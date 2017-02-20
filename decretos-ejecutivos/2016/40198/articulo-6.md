@@ -1,0 +1,5 @@
+Capítulo II
+Procedimientos y disposiciones generales aplicables al Régimen de
+Perfeccionamiento Activo
+Artículo 6.-Transmisión electrónica de datos. PROCOMER y la Dirección podrán autorizar que determinados trámites, de acuerdo a su competencia, se realicen a través de los medios electrónicos implementados. Para este efecto, los beneficiarios deberán cumplir con todos los requisitos de autorización y las obligaciones que le impone el régimen jurídico aduanero como Auxiliar de la función pública aduanera, en especial los relativos a la transmisión electrónica de declaraciones aduaneras, de la información que le sirve de sustento y la correcta utilización de códigos de seguridad, claves de acceso o certificados digitales. Para tal efecto, el beneficiario deberá cumplir con los requerimientos exigidos por PROCOMER y la Dirección para la implementación de los sistemas informáticos.
+En virtud de lo anterior, el código o clave de acceso confidencial o de seguridad asignado a la empresa, equivaldrá, para todos los efectos legales, a la firma autógrafa del representante legal o persona autorizada.

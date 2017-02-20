@@ -1,0 +1,1 @@
+TRANSITORIO SEXTO. - A partir de la entrada en vigencia del presente reglamento, el Ministerio de Hacienda deberá actualizar los procedimientos aduaneros y el sistema informático a las disposiciones aquí reformadas, debiendo estar finiquitados el 01 de julio del 2017.

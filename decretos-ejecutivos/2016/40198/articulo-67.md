@@ -1,0 +1,2 @@
+Artículo 67-Plazo para entregar el título de prenda aduanera debidamente inscrito. El beneficiario deberá entregar a la Aduana de Control, dentro del plazo de dos meses, contados a partir del momento en que se notifica el otorgamiento de la condición de auxiliar de la función pública aduanera, el original del título de prenda aduanera global, inscrito ante el
+En caso de incumplimiento, la Aduana de Control comunicará inmediatamente a COMEX, a efectos de que se proceda de conformidad con lo dispuesto en el artículo 27 del presente Reglamento.

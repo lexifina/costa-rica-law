@@ -1,0 +1,1 @@
+Artículo 43.- Traspaso de mercancías. Previa justificación del beneficiario, la Aduana de Control podrá autorizar el traspaso de mercancías de un beneficiario del Régimen a otro. Para tales efectos y previo al efectivo traspaso, el beneficiario deberá gestionar la declaración aduanera de internamiento correspondiente.

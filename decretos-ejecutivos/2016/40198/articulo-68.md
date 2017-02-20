@@ -1,0 +1,1 @@
+Articulo 68.- Liberación de la prenda aduanera ante el Registro Público. Dentro de los plazos establecidos, la Aduana de Control emitirá, a solicitud del beneficiario, en un plazo máximo de diez días hábiles, la respectiva comunicación al Registro de Prendas del Registro Público, a efectos de que cancele o libere el gravamen respectivo.

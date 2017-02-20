@@ -1,0 +1,1 @@
+Articulo 70.- Procedimiento para el cobro del adeudo. En cualquiera de los supuestos previstos en el artículo anterior, la Aduana de Control, procederá al cobro del adeudo, siguiendo el procedimiento establecido en el artículo 196 de la Ley.

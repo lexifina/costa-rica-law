@@ -1,0 +1,1 @@
+Artículo 20.- Vencimiento del plazo de permanencia. El incumplimiento del plazo indicado, sin que las mercancías hayan sido reexportadas o importadas definitivamente, dará lugar a que la Aduana de Control proceda de conformidad con lo indicado por el artículo 44 del presente Reglamento.

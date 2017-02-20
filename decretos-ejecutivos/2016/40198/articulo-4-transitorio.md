@@ -1,0 +1,1 @@
+TRANSITORIO CUARTO. - A partir de la entrada en vigencia del presente reglamento, las empresas beneficiarias en operación, deberán cumplir con lo dispuesto en el artículo 67 del presente Reglamento y presentar a la Aduana de Control, en el plazo de tres meses, el original del título de prenda aduanera global, inscrito ante el Registro Público de la Propiedad Mueble.

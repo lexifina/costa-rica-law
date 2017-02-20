@@ -1,0 +1,2 @@
+Artículo 45.- Procedimiento para el cobro del adeudo. En cualquiera de los supuestos previstos en el artículo anterior, la Aduana de Control, procederá al cobro del adeudo, siguiendo el procedimiento establecido en el artículo 196 de la Ley.
+Dictado el acto final que ordene el pago del adeudo, el beneficiario contará con un plazo de cinco días hábiles de conformidad con el artículo 61 de la Ley, a partir de la notificación respectiva, para solventar su adeudo con el Fisco.

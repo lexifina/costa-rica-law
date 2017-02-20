@@ -1,0 +1,1 @@
+TRANSITORIO QUINTO. - El uso de la clasificación arancelaria de las mercancías a doce dígitos, prevista en los artículos 8, 9, 14 y 25 del presente decreto, será obligatorio a partir del 1° de enero del 2017.

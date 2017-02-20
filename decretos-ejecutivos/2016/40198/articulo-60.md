@@ -1,0 +1,2 @@
+Articulo 60.-Domicilio electrónico permanente. Las empresas beneficiarias deberán señalar una dirección de correo electrónico como su domicilio legal para la recepción de notificaciones relacionadas con los trámites. Este señalamiento deberá realizarse mediante una manifestación expresa. La seguridad y la seriedad de la cuenta seleccionada son responsabilidad de la empresa.
+El señalamiento de domicilio electrónico podrá ser variado o revocado en cualquier tiempo, previa notificación a PROCOMER, sin perjuicio de las consecuencias jurídicas surgidas hasta ese momento.
