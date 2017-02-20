@@ -1,7 +1,0 @@
-Artículo 4º—Sesiones: periodicidad, quórum, convocatoria, agenda, actas y acuerdos del EGCIR. La periodicidad de las sesiones ordinarias del EGCIR será mensual, para lo cual sesionará el último jueves del mes, siempre y cuando haya asuntos que tratar. Podrá sesionar en forma extraordinaria cuando así se requiera, previa convocatoria al efecto.
-El EGCIR podrá sesionar válidamente con la presencia de la mitad más uno de sus miembros.
-Cada sesión se llevará a cabo siguiendo el orden del día. En aquellos casos que así se requiera, podrá variarse el orden del día, únicamente por acuerdo de mayoría simple.
-La convocatoria a las sesiones ordinarias, la remisión de la agenda y de la documentación correspondiente, se realizará con al menos tres días de antelación. En el caso de las sesiones extraordinarias, la convocatoria, la agenda y la documentación correspondiente, serán distribuidas con al menos 24 horas de anticipación.
-En cada sesión sea ordinaria o extraordinaria del EGCIR, se levantará el acta respectiva. Para tales efectos el EGCIR contará con un libro de Actas el cual será autorizado por la Auditoria Interna. El Secretario Técnico levantará el acta en cada sesión en el libro de Actas y las mismas estarán bajo su custodia.
-Las actas serán firmadas por todos los miembros del EGCIR que participaron en cada sesión.
-Los acuerdos serán adoptados por mayoría simple y en caso de empate resolverá el Coordinador del EGCIR. Los miembros que hayan hecho constar su voto disidente consignarán su firma en el acta en el apartado correspondiente.

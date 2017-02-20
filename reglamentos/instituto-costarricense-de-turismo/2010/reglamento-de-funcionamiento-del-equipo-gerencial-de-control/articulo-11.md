@@ -1,2 +1,0 @@
-Artículo 11.—Normativas de aplicación supletoria. En lo no regulado expresamente por las disposiciones del presente Reglamento, se aplicará supletoriamente lo dispuesto en la Ley General de la Administración Pública Nº 6227, en materia de órganos colegiados; así como cualquier otra disposición de derecho público que resulte aplicable al caso concreto.
-Aprobado en Sesión Ordinaria de Junta Directiva Nº 5637, Artículo 2, inciso II), celebrada el día 27 de abril del 2010.

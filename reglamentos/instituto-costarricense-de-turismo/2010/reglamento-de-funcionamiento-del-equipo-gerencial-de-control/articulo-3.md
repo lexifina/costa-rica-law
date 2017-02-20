@@ -1,1 +1,0 @@
-Artículo 3º—Coordinación del EGCIR. La Gerencia General designará el miembro que ejercerá el cargo de Coordinador del EGCIR. En ausencia de éste, los miembros del EGCIR determinarán quien presidirá y coordinará la sesión.

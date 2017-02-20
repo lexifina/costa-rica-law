@@ -1,1 +1,0 @@
-Artículo 9º—Apoyo logístico al Secretario Técnico. El Secretario Técnico podrá asistir a las sesiones con algún funcionario de la Unidad de Planificación que le facilite apoyo, en caso de que así se requiera.

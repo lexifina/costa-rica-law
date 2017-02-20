@@ -1,3 +1,0 @@
-Artículo 5º—Asistencia a las sesiones del EGCIR. La asistencia a las sesiones del EGCIR será obligatoria para los titulares que lo integran, quienes sólo podrán excusarse por justa causa, previa designación del suplente, lo que se hará ante el Coordinador, sin que la suplencia pueda ser permanente.
-En ausencia temporal (incapacidad, permisos, entre otros) de alguno de los miembros del EGCIR, éste será sustituido por quien haya sido designado con anterioridad, en calidad de suplente.
-El EGCIR podrá convocar eventualmente a sus sesiones a las jefaturas o funcionarios que estime necesarios o en consideración a los asuntos a tratar, quienes tendrán voz pero no voto.
