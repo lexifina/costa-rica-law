@@ -1,3 +1,0 @@
-Artículo 30.- Exhibición y presentación de bienes.
-En los casos en que se deba realizar la inspección judicial de los bienes, y resultare que éstos no fueron presentados por el deudor, el Abogado Externo deberá confeccionar un informe detallado al Centro de Administración de Crédito o al CIPAC en el plazo máximo de tres días hábiles, que deberá contener una recomendación del profesional indicando si los hechos podrían calificar como delito.
-El Centro de Administración de Crédito o CIPAC deberá analizar el caso y la recomendación del profesional y tomar la decisión de iniciar o no la acción penal correspondiente, en coordinación con la Dirección Jurídica del Banco.

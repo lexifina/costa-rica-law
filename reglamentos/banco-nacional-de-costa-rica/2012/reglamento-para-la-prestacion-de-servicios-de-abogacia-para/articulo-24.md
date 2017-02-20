@@ -1,2 +1,0 @@
-Artículo 24.- Imposibilidad de Localizar y desistimiento.
-En el caso de que haya personas que no se han podido localizar, y no proceda el nombramiento de curador procesal o su designación encarezca considerablemente el proceso; el Centro de Administración de Crédito o CIPAC, analizará la posibilidad de desistir de dicha persona en el juicio, para lo cual el Abogado Externo deberá rendir su criterio.

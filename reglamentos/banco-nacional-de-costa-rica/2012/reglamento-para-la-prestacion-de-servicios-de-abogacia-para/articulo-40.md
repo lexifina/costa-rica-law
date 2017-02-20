@@ -1,3 +1,0 @@
-Artículo 40. - Facturas para el pago de honorarios y gastos.
-El abogado externo incorporado al rol, presentará al Centro de Administración de Crédito respectivo o CIPAC, un detalle de gastos y honorarios para su revisión; una vez aprobado este detalle, presentará una factura timbrada.
-El Centro de Administración de Crédito respectivo o CIPAC tendrá la potestad para crear los procedimientos internos para la tramitación del pago de las facturas, cuando por razones de distancia de la oficina, sea más expedito tramitar el pago de otras formas, siempre en el entendido que bajo cualquier supuesto el Banco debe mantener en custodia la factura original del pago de servicios profesionales.

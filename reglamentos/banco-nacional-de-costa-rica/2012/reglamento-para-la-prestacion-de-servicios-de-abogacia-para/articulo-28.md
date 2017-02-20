@@ -1,2 +1,0 @@
-Artículo 28.- Bienes muebles.
-En caso de bienes muebles, el Banco Nacional coordinará por los medios que considere convenientes la captura del bien y cuando ésta se efectúe, el Abogado Externo deberá presentarse al lugar donde se encuentre el bien detenido y coordinar con el ejecutor la toma de posesión del bien en manos del Depositario Judicial del Banco, el cual trasladará el bien al lugar que el Banco establezca.

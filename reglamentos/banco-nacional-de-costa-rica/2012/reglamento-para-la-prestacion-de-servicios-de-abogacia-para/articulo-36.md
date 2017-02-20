@@ -1,3 +1,0 @@
-Artículo 36.- Bienes inmuebles ocupados por terceros.
-Cuando el bien adjudicado por el Banco sea un inmueble y éste se encuentre ocupado por el expropietario o por terceros sin un título válido, el abogado externo debe cordinar su desalojo como parte del proceso de toma de posesión por parte del Banco. Si el inmueble se encuentra ocupado válidamente por un arrendatario, la oficina encargada de cobro o el CIPAC debe
-notificarle mediante un Notario de Planta que debe continuar depositando el monto del arrendamiento al Banco; so pena de que la institución ejerza la acción de desahucio correspondiente mediante un Abogado de Planta.

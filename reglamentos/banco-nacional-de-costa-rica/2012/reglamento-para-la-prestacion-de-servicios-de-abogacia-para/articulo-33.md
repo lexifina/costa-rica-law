@@ -1,2 +1,0 @@
-Artículo 33.- Remate en Firme.
-Cuando se declare en firme el remate en el que el Banco se adjudique el bien y no tenga la posesión del mismo, el Abogado Externo, dentro de los dos días hábiles siguientes a la notificación del acto, deberá presentar un escrito en que solicite la toma de posesión inmediata del mismo por parte de funcionarios del Banco Nacional y gestionar todo lo necesario para esto. El Centro de Administración de Crédito o el CIPAC informará al abogado externo sobre el funcionario y sus calidades para tomar posesión del bien a la mayor brevedad posible.
