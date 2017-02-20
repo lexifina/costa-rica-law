@@ -1,3 +1,1 @@
-SECCIÓN XIX
-Incobrables
-Artículo 109.—Será considerada una operación crediticia como incobrable cuando el Abogado Director determine que se han agotado las vías de cobro administrativo y cobro judicial y aún persisten saldos por cobrar del monto de la deuda.
+ARTICULO 109. Si una operación fuera considerada incobrable y en fecha posterior a su declaratoria, la Institución recibe un pago parcial o total del saldo adeudado, la Sección de Cobro está facultada a reversar el registro contable realizado y proceder a realizar los ajustes necesarios en la base de datos automatizada.

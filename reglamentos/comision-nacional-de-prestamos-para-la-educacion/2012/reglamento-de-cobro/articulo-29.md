@@ -1,1 +1,1 @@
-Artículo 29.—Toda operación crediticia deberá pagar una póliza colectiva de vida que garantice los saldos adeudados a CONAPE durante el período de amortización. CONAPE cobrará al cliente el costo de la póliza junto con la cuota mensual del préstamo, para su correspondiente pago al ente asegurador.
+ARTICULO 29. CONAPE establece como fechas de pago de los préstamos los días 30 de cada mes.

@@ -14,3 +14,4 @@ Reglamento de Cobro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-08-08 | la propia norma |
+| 2 | 2017-02-20 | Reglamento 7 (2017-02-20) |

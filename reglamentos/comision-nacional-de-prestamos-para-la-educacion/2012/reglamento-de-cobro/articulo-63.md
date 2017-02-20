@@ -1,1 +1,1 @@
-Artículo 63.—Los arreglos de pago administrativo o extrajudicial podrán ser solicitados por el prestatario, fiador(es) o terceros cuando la operación crediticia se encuentra en cobro administrativo o judicial.
+ARTICULO 63. El arreglo de pago administrativo podrá ser solicitado por el prestatario, fiador(es) o terceros, cuando la operación crediticia se encuentra en cobro administrativo.

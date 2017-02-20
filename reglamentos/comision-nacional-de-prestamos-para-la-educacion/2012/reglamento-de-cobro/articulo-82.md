@@ -1,1 +1,2 @@
-Artículo 82.—El deudor siempre tiene que firmar el addendum al contrato de crédito para estudios en las oficinas de CONAPE y sólo él puede retirarlo para que los fiadores puedan firmarlo fuera de CONAPE. Se exceptúa casos especiales a juicio del Jefe de la Sección de Cobro.
+ARTICULO 82. El prestatario, fiadores o apoderados legales deben presentarse a formalizar el addendum al Contrato de Crédito para Estudios en un plazo no mayor a treinta días después del comunicado, de lo contrario, se dará por anulado y se archivará, salvo casos debidamente justificados y autorizados por el Jefe de la Sección de Cobro.
+En aquellos casos en que el addendum fuera anulado y archivado, el prestatario deberá presentar nuevamente la solicitud con los respectivos requisitos actualizados.

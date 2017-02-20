@@ -1,1 +1,1 @@
-Artículo 56.—El periodo de gracia o prórroga de pago, se concederá cuando el prestatario éste realizando o deba realizar estudios, se encuentre desempleado, los ingresos le resulten insuficientes para atender el pago de su cuota mensual, presente problemas de salud física o emocional.
+ARTICULO 56. El Jefe de la Sección de Cobro podrá autorizar el trámite de la prórroga de pago por un motivo diferente a los enunciados en el artículo Nº 55, siempre y cuando se cumpla con los requisitos establecidos en este Reglamento.

@@ -1,4 +1,2 @@
-Artículo 9º—El Comité de Cobro está integrado por:
-a. El (la) Secretario(a) Ejecutivo(a), quien preside.
-b. El (la) Jefe del Departamento Financiero.
-c. El (la) Jefe de la Sección de Cobro, y en su ausencia a quién éste designe.
+SECCION II. COMITÉ DE COBRO
+ARTICULO 9. Habrá un Comité de Cobro que tendrá como objetivo principal, conocer, establecer y velar por los aspectos relativos al cobro de los préstamos

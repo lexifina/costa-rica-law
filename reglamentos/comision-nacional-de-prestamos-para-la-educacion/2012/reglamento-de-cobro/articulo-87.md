@@ -1,3 +1,4 @@
-SECCIÓN XV
-Póliza de incendio y terremoto
-Artículo 87.—El prestatario queda obligado a presentar antes de la fecha de vencimiento de la póliza de incendio y terremoto un documento emitido, firmado y sellado por el ente asegurador que demuestre que su póliza de incendio y terremoto se encuentra vigente.
+ARTICULO 87. Los requisitos que se deben presentar para los reclamos por defunción son los que se detallan a continuación, sin perjuicio de aquellos adicionales que solicite el ente asegurador:
+a. Solicitud escrita firmada por el fiador, familiar o tercero, en el formulario establecido por la Sección de Cobro para ese efecto.
+b. Original del certificado de defunción del(a) prestatario(a) con la causa de la muerte, inscrito y emitido por el Registro Civil.
+c. Certificación de nacimiento del(a) prestatario(a) emitido por el Registro Civil.

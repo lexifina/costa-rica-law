@@ -1,3 +1,1 @@
-SECCIÓN XVII
-Cobro Judicial
-Artículo 95.—Toda operación que posea cuatro cuotas de atraso debe ser trasladada a la Cartera de Cobro Judicial, salvo casos que a criterio del Jefe de Cobro con autorización del Jefe del Departamento Financiero no se trasladen en el plazo establecido, sin embargo, esto no faculta para eximir de manera permanente el trámite de Cobro Judicial.
+ARTICULO 95. La Asesoría Legal comunicará al Abogado Director el cierre del cobro judicial cuando la operación crediticia haya sido cancelada, actualizada o se haya realizado el archivo del expediente judicial, posterior a recibir el comunicado por parte de la Sección de Cobro.

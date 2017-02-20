@@ -1,1 +1,2 @@
-Artículo 92.—La Sección de Cobro rebajará del monto de la indemnización las cuotas atrasadas de la operación crediticia, que presente un reclamo por defunción o incapacidad total y permanente del prestatario y aplicará el saldo remanente de la indemnización al principal de la deuda.
+SECCION XVII: COBRO JUDICIAL
+ARTICULO 92. Toda operación que posea cuatro cuotas de atraso debe ser trasladada a la Cartera de Cobro Judicial, salvo casos que a criterio del Jefe de Cobro con autorización del Jefe del Departamento Financiero no se trasladen en el plazo establecido, sin embargo, esto no faculta para eximir de manera permanente el trámite de Cobro Judicial.

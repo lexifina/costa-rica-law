@@ -1,1 +1,1 @@
-Artículo 3º—La Sección de Cobro deberá velar para que el ingreso de los dineros por concepto de pago de las cuotas mensuales de los préstamos otorgados a estudiantes, se realice tal y como fue convenido entre ésta y el prestatario, en la negociación del plan de amortización.
+ARTICULO 3. La Sección de Cobro deberá velar para que el ingreso de los dineros por concepto de pago de las cuotas mensuales de los préstamos otorgados a estudiantes, se realice tal y como fue convenido entre ésta y el prestatario, en la negociación del plan de amortización.

@@ -1,3 +1,2 @@
-SECCIÓN VI
-Plan de pagos
-Artículo 32.—Los Ejecutivos de Cuenta de la Sección de Cobro ante una solicitud justificada en forma escrita, suscrita por el prestatario, los fiadores o apoderado legal, podrán modificar a las operaciones crediticias, el plazo de amortización y el monto de la cuota mensual fijado en la Tabla de Plazos de Amortización, siempre y cuando no excedan el plazo y monto de la cuota mensual establecidos en el Contrato de Crédito para Estudios.
+SECCIÓN VI: PLAN DE PAGOS
+ARTICULO 32. Los funcionarios de la Sección de Cobro ante una solicitud justificada en forma escrita, suscrita por el prestatario, los fiadores o apoderado legal, podrán modificar a las operaciones crediticias, el plazo de amortización y el monto de la cuota mensual fijado en la Tabla de Plazos de Amortización, siempre y cuando los nuevos plazos de amortización y cuotas mensuales no excedan ni el plazo ni el monto de la cuota mensual establecidos en el Contrato de Crédito para Estudios

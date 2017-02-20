@@ -1,4 +1,8 @@
-SECCIÓN XII
-Sustitución o cambio de grado de la garantía
-hipotecaria o títulos valores
-Artículo 75.—Los prestatarios podrán tramitar la sustitución o cambio de grado de la garantía hipotecaria o cambio de las garantías de los títulos valores, siempre y cuando se cumpla con lo establecido en este Reglamento y las regulaciones estipuladas en el Reglamento de Crédito.
+ARTICULO 75. Para sustituir o cambiar las condiciones de las garantías hipotecarias y mixtas, el prestatario debe cumplir con los requisitos, condiciones y porcentajes de cobertura, señalados en el Reglamento de Crédito y el Plan Anual de Gestión de Crédito y los que se detallan a continuación:
+a. Solicitud escrita firmada por el prestatario, sus fiadores o apoderado legal, en el formulario establecido por CONAPE para ese efecto. La firma de la solicitud debe ser igual a la de la cédula de identidad vigente.
+b. Para las garantías hipotecarias se deberá actualizar mediante los mecanismos establecidos por CONAPE, las direcciones, números de teléfonos de residencia, trabajo, número de celular, correo electrónico del prestatario como de l(os) dueño(s) de la propiedad. Para las garantías mixtas se deberá actualizar mediante los mecanismos establecidos por CONAPE, adicionalmente, los datos anteriores para el fiador o fiadores.
+c. En aquellos casos que exista una garantía hipotecaria o una garantía mixta que incluya una garantía hipotecaria, deberá tener la póliza de incendio y terremoto al día, siempre y cuando existan edificaciones en la propiedad y mantener la acreencia vigente, para lo cual debe presentar el respectivo comprobante emitido por el ente asegurador.
+d. Cuando sea necesario, la póliza de incendio y terremoto deberá poseer una acreencia a favor de CONAPE, que cubra como mínimo el monto total de la deuda.
+e. La operación crediticia debe estar al día en el pago de sus cuotas.
+f. Cuando se trate de una garantía mixta, el prestatario y los fiadores, , deberán firmar un addendum al Contrato de Crédito para Estudios, posterior a que la sustitución o cambio en las condiciones de la hipoteca haya sido aprobada.
+g. El prestatario y el dueño o dueños de la propiedad deberán firmar una modificación a la escritura de la hipoteca dada en garantía.

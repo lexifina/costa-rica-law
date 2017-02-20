@@ -117,11 +117,4 @@ articulo-116.md
 articulo-117.md
 articulo-118.md
 articulo-119.md
-articulo-120.md
-articulo-121.md
-articulo-122.md
-articulo-123.md
-articulo-124.md
-articulo-125.md
 articulo-1-anexo.md
-articulo-2-anexo.md

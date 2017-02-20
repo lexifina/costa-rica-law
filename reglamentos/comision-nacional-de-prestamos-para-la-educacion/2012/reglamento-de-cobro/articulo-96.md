@@ -1,1 +1,1 @@
-Artículo 96.—El Jefe de la Sección de Cobro, en coordinación con la Asesoría Legal de la Institución, determinarán los documentos necesarios que se deben remitir al Juzgado para el trámite judicial de la operación.
+ARTICULO 96. La Sección de Cobro o en quién la jefatura de la Sección de Cobro delegue, brindará información para que la Sección de Contabilidad registre los ingresos provenientes del Poder Judicial.

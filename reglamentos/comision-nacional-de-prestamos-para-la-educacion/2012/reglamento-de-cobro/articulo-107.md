@@ -1,1 +1,1 @@
-Artículo 107.—CONAPE subrogará la deuda por una única vez a la persona que efectúe el trámite de primero o a todos aquellos fiadores o terceros que efectúen el trámite de forma conjunta.
+ARTICULO 107. El Consejo Directivo de la Institución o el Comité de Cobro, según corresponda, podrán solicitar ampliaciones a la información proporcionada en el informe presentado por el Abogado Director, para poder tomar la decisión de denegar o aprobar la declaratoria de incobrables.

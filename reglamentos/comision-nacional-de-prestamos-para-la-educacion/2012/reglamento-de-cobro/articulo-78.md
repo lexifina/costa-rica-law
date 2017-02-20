@@ -1,6 +1,3 @@
-Artículo 78.—Para sustituir o cambiar una garantía de títulos valores, el prestatario debe cumplir con los requisitos, condiciones y porcentajes de cobertura, señalados en el Reglamento de Crédito y el Plan Anual de Crédito y adicionalmente con los que se detallan a continuación:
-a. Solicitud escrita firmada por el prestatario en el formulario establecido por la Sección de Cobro para ese efecto. La firma de la solicitud debe ser igual a la de la cédula de identidad vigente.
-b. Actualización de direcciones, números de teléfonos de residencia, trabajo, número de celular, correo electrónico del prestatario y fiadores, éstos últimos en caso de garantía fiduciaria. Para las garantías hipotecarias se deberá actualizar en el formulario establecido por CONAPE, los datos anteriores tanto del prestatario como de l(os) dueño(s) de la propiedad.
-c. La operación crediticia debe estar al día en el pago de sus cuotas.
-d. El prestatario, fiadores, si existiesen y el dueño del título valor, deberán firmar un addendum al Contrato de Crédito para Estudios, posterior a que la sustitución o cambio de la garantía del título valor haya sido aprobado.
-e. El título valor debe cubrir al menos el 150% del saldo del monto adeudado actual al momento de la sustitución.
+SECCIÓN XIII: FORMALIZACIÓN AL ADDENDUM AL CONTRATO DE CRÉDITO PARA
+ESTUDIOS
+ARTICULO 78. El prestatario, fiadores o apoderados legales deberán firmar un addendum al Contrato de Crédito para Estudios cuando se modifiquen los términos originales contractuales; esto es, cuando el monto de la deuda, el plazo de amortización o el monto de la cuota sean superiores al fijado en el respectivo contrato o en el último addendum debidamente formalizado, cuando se sustituya o excluya uno o más fiadores, cuando se modifique el mecanismo de fluctuación de la tasa de interés o cuando las condiciones así lo requieran.

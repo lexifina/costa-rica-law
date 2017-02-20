@@ -1,1 +1,2 @@
-Artículo 67.—La Sección de Cobro no aceptará nuevas solicitudes de arreglos de pago cuando se hayan incumplido dos arreglos de forma consecutiva, para lo cual deberá transcurrir un plazo de doce meses para solicitar un nuevo arreglo de pago. Se exceptúan casos excepcionales a juicio del Jefe de la Sección de Cobro, para lo que deberá presentarse la justificación por escrito junto con la documentación probatoria.
+SECCIÓN XI: SUSTITUCIÓN O ELIMINACIÓN DE GARANTÍA FIDUCIARIA
+ARTICULO 67. El prestatario podrá sustituir o excluir uno o más fiadores siempre y cuando se cumpla con los requisitos y documentación solicitada en el artículo Nº 74 de este Reglamento y las regulaciones estipuladas en el Reglamento de Crédito, para las garantías fiduciarias.

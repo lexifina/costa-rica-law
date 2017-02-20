@@ -1,1 +1,2 @@
-Artículo 103.—Los honorarios de abogado y gastos de juicio ejecutivo se cobrarán conforme a la legislación vigente.
+SECCION XIX: INCOBRABLES
+ARTICULO 103. Será considerada una operación crediticia como incobrable cuando el Abogado Director determine que se han agotado las vías de cobro administrativo y cobro judicial y aún persisten saldos por cobrar del monto de la deuda.

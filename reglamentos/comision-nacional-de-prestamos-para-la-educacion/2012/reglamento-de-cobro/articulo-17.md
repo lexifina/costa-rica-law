@@ -1,1 +1,1 @@
-Artículo 17.—El periodo máximo de amortización lo establece el Consejo Directivo en el Reglamento de Crédito.
+ARTICULO 17. Los ajustes a la tasa de interés corriente y a la moratoria durante el período de amortización del préstamo, incluyendo las prórrogas de pago, se harán conforme al mecanismo de fluctuación establecido en el respectivo Contrato de Crédito para Estudios y cualquier otra disposición que al respecto determine el Consejo Directivo.

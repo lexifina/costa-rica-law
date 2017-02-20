@@ -1,1 +1,1 @@
-Artículo 102.—La Sección de Cobro registrará contablemente los ingresos provenientes del Poder Judicial conforme a la distribución que deberá indicar el Abogado Director en proceso judicial.
+ARTICULO 102. El Contrato de Crédito para Estudios o addendum se entregará al fiador o tercero cuando medie el trámite de subrogación de la deuda sólo cuando la operación crediticia no haya estado en cobro judicial antes del 31 de diciembre del 2009, caso contrario, el cliente deberá realizar la gestión pertinente ante el Juzgado correspondiente.

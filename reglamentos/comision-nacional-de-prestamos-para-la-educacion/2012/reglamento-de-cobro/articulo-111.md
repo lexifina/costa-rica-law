@@ -1,1 +1,9 @@
-Artículo 111.—El traslado de las operaciones crediticias a la cartera de incobrables, las aprobará el Comité de Cobro cuando el saldo del principal adeudado sea inferior a un monto de ¢750.000,00, montos superiores serán aprobados por el Consejo Directivo de la Institución. El monto tope de aprobación del Comité de Cobro se incrementará automáticamente con la aplicación del índice de inflación oficial de Banco Central de Costa Rica al 31 de diciembre de cada año, el cual deberá ser sometido a conocimiento y aprobación del Consejo Directivo.
+ARTICULO 111. El contrato de crédito, addemdun, y la escritura de la hipoteca y los títulos valores, según corresponda, será entregado a quién legalmente este facultado para ello, en los plazos que se detallan a continuación:
+a. Pago en efectivo, con cheque certificado, cheque de gerencia, transferencia en línea: cinco días hábiles después de la fecha de cancelación.
+b. Pago con cheque personal o institucional: ocho días hábiles después de la fecha de cancelación.
+La sección de Tesorería informará en un plazo menor a tres días hábiles cuando un cheque fue rechazado por el respectivo banco emisor.
+La Sección de Cobro entregará a la Sección de Tesorería la documentación respectiva, considerando los siguientes plazos:
+a. Pago en efectivo, con cheque certificado, cheque de gerencia, transferencia en línea: tres días hábiles después de la fecha de cancelación.
+b. Pago con cheque personal o institucional: cinco días hábiles después de la fecha de cancelación.
+Cuando la operación crediticia presente una inconsistencia en los pagos realizados, los documentos señalados en este artículo, se entregarán al cliente hasta que ésta haya sido revisada y corregida por la Sección de Cobro.
+Cuando la operación crediticia haya ingresado a la cartera de cobro judicial, antes del 31 de diciembre del 2009, el documento debe ser retirado en el respectivo Juzgado; aquellos que hayan ingresado en una fecha posterior serán entregados 10 días hábiles posterior a la fecha de cancelación y presentación de la solicitud del cliente.

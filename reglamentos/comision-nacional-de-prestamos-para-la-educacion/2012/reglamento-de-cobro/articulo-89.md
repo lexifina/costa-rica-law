@@ -1,3 +1,1 @@
-SECCIÓN XVI
-Reclamos por defunción o incapacidad
-Artículo 89.—Cuando el prestatario es declarado inválido de forma total y permanente o fallece, es responsabilidad del deudor, fiador(es), familiares o terceros, según corresponda, informarlo a la Sección de Cobro de forma escrita y adjuntar los requisitos necesarios para que el trámite de solicitud de indemnización se presente ante el ente asegurador; esto no exime de que la Sección de Cobro pueda plantear la solicitud de indemnización de oficio en las circunstancias que así lo permitan.
+ARTICULO 89. La Sección de Cobro rebajará del monto de la indemnización las cuotas atrasadas de la operación crediticia, que presente un reclamo por defunción o incapacidad total y permanente del prestatario y aplicará el saldo remanente de la indemnización al principal de la deuda.

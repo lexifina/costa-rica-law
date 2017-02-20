@@ -1,1 +1,1 @@
-Artículo 2º—La recuperación de los préstamos otorgados a los estudiantes, será responsabilidad de la Sección de Cobro, dependencia perteneciente al Departamento Financiero y la gestión del cobro judicial ante el Juzgado respectivo será responsabilidad del Abogado Director del proceso.
+ARTICULO 2. La recuperación de los préstamos otorgados a los estudiantes, será responsabilidad de la Sección de Cobro, dependencia perteneciente al Departamento Financiero y la gestión del cobro judicial ante el Juzgado respectivo será responsabilidad del Abogado Director del proceso.

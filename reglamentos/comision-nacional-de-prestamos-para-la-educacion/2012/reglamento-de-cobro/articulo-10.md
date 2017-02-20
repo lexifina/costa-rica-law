@@ -1,5 +1,5 @@
-Artículo 10.—Las funciones del Secretario(a) Ejecutivo(a) en el Comité de Cobro serán:
-a. Dirigir el desarrollo de las sesiones.
-b. Ejecutar y velar por el cumplimiento de los acuerdos que le competen.
-c. Firmar conjuntamente con los miembros presentes en la Sesión, la respectiva acta de la sesión.
-d. Fijar directrices generales e impartir instrucciones, en cuanto a los aspectos de forma de las labores del Comité de Cobro.
+ARTICULO 10. El Comité de Cobro está integrado por:
+• El(La) Secretario(a) Ejecutivo(a), quien preside.
+• El(La) Jefe(a) del Departamento Financiero.
+• El(La) Jefe(a) de la Sección de Cobro, y en su ausencia a quién éste designe.
+El Comité de Cobro podrá sesionar con sólo dos de sus miembros, cuando alguno de ellos se encuentre ausente. En ausencia del Secretario Ejecutivo, el Comité será presidido por el Jefe del Departamento Financiero.

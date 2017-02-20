@@ -1,7 +1,7 @@
-Artículo 12.—Las funciones del(a) Jefe de la Sección de Cobro en el Comité de Cobro serán:
-a. Convocar a sesiones.
-b. Levantar las actas de las sesiones del Comité de Cobro.
-c. Redactar y firmar conjuntamente con los otros miembros, la respectiva acta de la sesión.
-d. Llevar y resguardar los archivos y demás documentación del Comité de Cobro.
-e. Comunicar a quien corresponda los acuerdos del Comité de Cobro.
-f. Controlar el cumplimiento de los acuerdos del Comité de Crédito.
+ARTICULO 12. Las funciones del Jefe(a) del Departamento Financiero en el Comité de Cobro serán:
+a. Asistir a las sesiones cuando se le convoque.
+b. Ejecutar y velar por el cumplimiento de los acuerdos que le competen.
+c. Firmar conjuntamente con los miembros presentes en la sesión, la respectiva acta de la sesión.
+d. Participar del análisis, discusión y aprobación de los asuntos que se sometan a
+conocimiento del Comité.
+e. Sustituir en las sesiones del Comité de Cobro al Secretario Ejecutivo, cuando éste se encuentre ausente.

@@ -1,4 +1,4 @@
-Artículo 7º—Durante el periodo de amortización el cliente deberá cumplir con las siguientes obligaciones, caso contrario, la Sección de Cobro, en caso de considerarlo necesario, podrá dar por vencido el plazo y hacer exigible la cancelación del total de los saldos adeudados y proceder a realizar el cobro de dicho saldo por la vía judicial, en caso de que no se efectúe la cancelación de la deuda por la vía administrativa:
-a. Pagar puntualmente el monto de la cuota mensual de su plan de pagos
+ARTICULO 7. Durante el periodo de amortización, el cliente deberá cumplir con las siguientes obligaciones, caso contrario, la Sección de Cobro, en caso de considerarlo necesario, dará por vencido el plazo y hará exigible la cancelación del total de los saldos adeudados y procederá a realizar el cobro de dicho saldo por la vía judicial, en caso de que no se efectúe la cancelación de la deuda por la vía administrativa:
+a. Pagar puntualmente el monto de la cuota mensual de su plan de pagos.
 b. Notificar a la Sección de Cobro, el o los cambios de la(s) dirección(es) y teléfono(s) de residencia y del lugar de trabajo del prestatario y los fiadores.
-c. Mantener al día la póliza de incendio y terremoto sobre la edificación que forma parte de la garantía hipotecaria que respalda la operación crediticia.
+c. Cuando corresponda, mantener al día la póliza de incendio y terremoto sobre la edificación que forma parte de la garantía hipotecaria que respalda la operación crediticia, así como de su respectiva acreencia a favor de CONAPE.

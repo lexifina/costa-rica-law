@@ -1,3 +1,1 @@
-SECCIÓN II
-Comité de Cobro
-Artículo 8º—Habrá un Comité de Cobro que tendrá como objetivo principal, conocer, establecer y velar por los aspectos relativos al cobro de los préstamos.
+ARTICULO 8. El Jefe de la Sección de Cobro, ante solicitud escrita justificada del deudor, fiadores o del apoderado legal, podrá autorizar la continuación de cualquier trámite en la Sección de Cobro, cuando por motivos de fuerza mayor estén imposibilitados de cumplir con la actualización de direcciones y teléfonos

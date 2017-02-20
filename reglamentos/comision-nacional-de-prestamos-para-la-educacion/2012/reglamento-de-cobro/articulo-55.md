@@ -1,1 +1,2 @@
-Artículo 55.—El periodo de la prórroga de pago se considera desde la fecha de la última cuota pagada en condiciones normales y registradas en el sistema, hasta el último día del mes anterior a la fecha en que el cliente reanude de nuevo los pagos de las cuotas mensuales; para lo cual deberá haber pagado al menos la primera cuota del plan de amortización.
+ARTICULO 55. La prórroga de pago, se concederá cuando el prestatario logre comprobar documentalmente ante CONAPE, que se encuentra desempleado, los ingresos le resulten insuficientes para atender el pago de su cuota mensual, cuando el prestatario éste realizando o deba realizar estudios, presente problemas de salud física o emocional.
+Los anteriores motivos serán considerados cuando afecten su capacidad de pago.

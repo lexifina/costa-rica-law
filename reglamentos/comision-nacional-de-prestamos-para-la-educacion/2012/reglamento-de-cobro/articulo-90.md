@@ -1,5 +1,1 @@
-Artículo 90.—Los requisitos que se deben presentar para los reclamos por defunción son los que se detallan a continuación, sin perjuicio de aquellos adicionales que solicite el ente asegurador:
-a. Solicitud escrita firmada por el fiador, familiar o tercero, en el formulario establecido por la Sección de Cobro para ese efecto.
-b. Presentar original de la cédula de identidad vigente de quien firma la solicitud y entregar una fotocopia de ésta.
-c. Original del certificado de defunción del(a) prestatario(a) con la causa de la muerte, inscrito y emitido por el Registro Civil.
-d. Fotocopia de la cédula de identidad del prestatario fallecido.
+ARTICULO 90. CONAPE registrará contablemente los intereses, póliza de vida y otros cargos, a las operaciones crediticias que hayan sido indemnizadas por el INS, hasta la fecha de la defunción o de la vigencia decretada para la incapacidad total o permanente. En caso de que existan saldos en descubierto, se autoriza a la Sección de Contabilidad previa solicitud de la Sección de Cobro, a que se realicen los ajustes pertinentes en los registros contables para declarar incobrables dichos montos.

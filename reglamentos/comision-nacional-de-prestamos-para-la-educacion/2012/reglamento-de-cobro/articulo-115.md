@@ -1,1 +1,2 @@
-Artículo 115.—Si una operación fuera considerada incobrable y en fecha posterior a su declaratoria, la Institución recibe un pago parcial o total del saldo adeudado, la Sección de Cobro está facultada a reversar el registro contable realizado y proceder a realizar los ajustes necesarios en la base de datos automatizada.
+SECCIÓN XXI: DISPOSICIONES FINALES
+ARTICULO 115. Las situaciones no previstas en este Reglamento y apelaciones a los acuerdos tomados por el Comité de Cobro, serán conocidas y resueltas por el Consejo Directivo de CONAPE.

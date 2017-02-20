@@ -1,1 +1,1 @@
-Artículo 93.—Los saldos adeudados que no sean cubiertos por el monto de la indemnización girada por el ente asegurador deberán ser cubiertos por el o los fiadores o cualquier otra persona que voluntariamente así lo desee, caso contrario, la Sección de Cobro procederá a cobrar los saldos adeudados por la vía judicial.
+ARTICULO 93. El Abogado Director es el encargado de efectuar una gestión diligente y oportuna ante la autoridad judicial pertinente, de las operaciones crediticias de la cartera judicial a su cargo, velando por una recuperación expedita de los fondos

@@ -1,1 +1,1 @@
-Artículo 119.—La Sección de Cobro podrá solicitar a la Sección de Tesorería la entrega del Contrato de Crédito para Estudios y addendum al fiador o un tercero, cuando éste efectúe ante la Sección de Cobro el trámite de subrogación de la deuda.
+ARTICULO 119. El presente Reglamento de Cobro puede ser modificado por el Consejo Directivo de CONAPE y entrará en vigencia una vez que se realicé la publicación correspondiente en el Diario Oficial.

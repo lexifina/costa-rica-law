@@ -1,1 +1,4 @@
-Artículo 94.—Será responsabilidad del Ejecutivo de Cuenta de Cobro designado por el Jefe de la Sección de Cobro, el trámite, seguimiento, control y aplicación de la solicitud de indemnización ante el ente asegurador.
+ARTICULO 94. En caso de existir montos remanentes a favor de los demandados en las instancias judiciales no girados a CONAPE, una vez cancelada la operación, se autoriza al Abogado Director, a efectuar las gestiones judiciales para que dichas sumas sean devueltas a los interesados.
+En caso de existir montos remanentes a favor de los demandados en las instancias judiciales girados a CONAPE, una vez actualizada o cancelada, la operación, se procederá de la siguiente manera:
+a. en caso de que la operación crediticia este actualizada, estos dineros le serán aplicados a la operación crediticia y no le serán devueltos ni al prestatario ni al fiador o fiadores o terceros de mejor derecho, excepto cuando exista una orden judicial que disponga reintegrar los montos,
+b. en caso de que la operación crediticia este cancelada, se autoriza a la sección de Cobro para que realicé las gestiones administrativas para que dichas sumas sean devueltas a los interesados
