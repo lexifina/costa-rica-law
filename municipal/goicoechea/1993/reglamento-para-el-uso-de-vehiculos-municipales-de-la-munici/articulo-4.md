@@ -1,5 +1,2 @@
-Artículo 4 °- Los vehículos municipales se clasifican en dos categorías:
-a) De uso discrecional.
-b) De uso administrativo.
-Es vehículo de uso discrecional el asignado por el Concejo a un determinado funcionario por la índole de sus. funciones y para el mejor desempeño de éstas. El asignado al Ejecutivo Municipal se considera de uso discrecional. No podrá asignarse vehículos de esta naturaleza al Presidente Municipal o a cualquier otro miembro del Concejo.
-Son vehículos de uso administrativo todos los demás automotores.
+Artículo 4°.—Todos los vehículos municipales son de uso administrativo, los cuales deberán estar rotulados según el Manual de Imagen Institucional vigente; por lo que no pueden haber vehículos de uso discrecional ni semi discrecional. Ningún funcionario público de esta Municipalidad podrá disponer de vehículos oficiales o administrativos de forma permanente para el cumplimiento de las funciones que le corresponde llevar a cabo, sea cual sea su puesto y nivel jerárquico. El Concejo Municipal no puede acordar el uso discrecional de vehículos municipales, así como el titular de la Alcaldía Municipal no lo puede autorizar administrativamente.
+(Así reformado mediante sesión ordinaria N° 08-17 del 20 de febrero del 2017)

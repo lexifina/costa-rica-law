@@ -14,3 +14,4 @@ Reglamento para el uso de vehículos municipales de la Municipalidad de Goicoech
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-02-04 | la propia norma |
+| 2 | 2017-02-20 | Reglamento municipal 8 (2017-02-20) |
