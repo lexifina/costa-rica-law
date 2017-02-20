@@ -14,3 +14,4 @@ Autorización para el uso de comprobantes electrónicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-10-14 | la propia norma |
+| 2 | 2017-02-20 | Resolución 13 (2017-02-20) |
