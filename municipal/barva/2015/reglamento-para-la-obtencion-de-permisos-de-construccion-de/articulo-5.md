@@ -1,0 +1,1 @@
+Artículo 5º—Requisitos para obras generales: Todo permiso para Obra General deberá cumplir con los requisitos señalados en el artículo 3, según sea el caso el Departamento podrá eximir de algunos de los requisitos, previa justificación técnica.

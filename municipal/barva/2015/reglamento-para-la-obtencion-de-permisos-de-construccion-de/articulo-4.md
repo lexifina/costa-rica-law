@@ -1,0 +1,1 @@
+Artículo 4º—Requisitos para obra por mantenimiento: Además de los requisitos señalados en el Artículo 3, todo permiso para Obra por Mantenimiento deberá cumplir con lo siguiente: Presentar presupuesto detallado del mantenimiento a realizar. Según sea el caso el Departamento podrá eximir de algunos de los requisitos, previa justificación técnica.

@@ -1,0 +1,8 @@
+Artículo 9º—Recepción de obras de urbanización. Solicitudes de Visado de Planos Generales de Catastro (Planos de Mosaico Catastral) y recibimiento de proyectos de Urbanización.
+a- Para tales efectos el interesado deberá cumplir con los requisitos que señala el artículo III.3.15 del Reglamento Para el Control Nacional de Fraccionamientos y Urbanizaciones si el proyecto no se ha concluido.
+b- Presentar mínimo cuatro copias del plano general de catastro debidamente firmado por el profesional responsable que lo realiza.
+c- Presentar copia de los estudios de resistencia de suelos, rellenos, estabilidad de taludes si los hubiese, resistencia de materiales de calles, aceras, cordones de caño, resultados de pruebas de presión en cañería.
+d- Para el caso de los cabezales de hidrantes de cada proyecto, el interesado deberá presentar nota del Cuerpo de Bomberos que establezca que los mismos están en buen estado y son aprobados para su uso.
+b- Presentar nota del Instituto Costarricense de Electricidad que establezca que en materia de telefonía el proyecto cumple con los requisitos.
+c- Presentar nota de la Compañía Nacional de Fuerza y Luz o bien de la Empresa de Servicios Públicos de Heredia que indique que en materia de Electrificación y luminarias públicas, el proyecto cumple con los requisitos.
+d- Si el proyecto se dota de agua potable a través de un pozo profundo deberá presentarse toda la documentación que el mismo conlleva como los estudios hidrológicos, prueba de aforo y permisos de operación otorgados por el Departamento de Aguas del MINAE. Debe indicarse mediante carta quién o quienes se encargarán de administrar el pozo y velar por su correcta operación, funcionamiento y eventual reparación.

@@ -1,0 +1,9 @@
+MUNICIPALIDAD DE BARVA
+De conformidad con lo establecido en la Ley 8220, se comunica la actualización del Reglamento a la Ley 8220 para el Departamento de Ingeniería “Reglamento para la obtención de permisos de construcción”, mismo que se aprobó mediante Acuerdo 1037-2015 y 1038-2015, en sesión ordinaria 50-20156 del día 10 de agosto del 2015 que dice:
+REGLAMENTO PARA LA OBTENCIÓN
+DE PERMISOS DE CONSTRUCCIÓN
+La Municipalidad de Barva procede a realizar la actualización de los trámites y requisitos que se deben presentar ante el Departamento de Ingeniería de esta Municipalidad. Por tanto el Concejo Municipal en Sesión Ordinaria N° 46 del 27 de julio del 2015, mediante Acuerdo N°979-2015 aprueba y Promulga el presente “Reglamento para la obtención de permisos de construcción”
+Artículo 1º—Aspectos generales.
+1.1. La presente publicación para la realización de los diferentes trámites ante el Departamento de Ingeniería de la Municipalidad de Barva no derogan aquellos requisitos establecidos en leyes especiales para determinados trámites establecidos con anterioridad a la promulgación de la Ley N° 8220.
+1.2. Para efectos de reclamos en el futuro, todo funcionario de la Institución que reciba documentos de algún interesado deberá de proporcionarle al solicitante un recibo o firma sobre copias de los documentos que recibió que haga constar tal condición. Por lo anterior, para futuros reclamos deberá presentarse dichos documentos o bien el recibo que se extendió. Sin lo anterior la Municipalidad asumirá que los documentos no fueron entregados y deberán de presentarse nuevamente.
+1.3. En todo documento de solicitud que se entregue en las diferentes oficinas municipales, se le debe consignar con claridad toda la información que se solicita, sobretodo el lugar o medio en donde el solicitante señala para recibir notificaciones.

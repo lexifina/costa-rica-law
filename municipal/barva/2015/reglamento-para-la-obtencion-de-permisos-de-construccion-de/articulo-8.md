@@ -1,0 +1,4 @@
+Artículo 8º—Publicidad Exterior: Además de cumplir con los incisos a, b, c, d, e, f, g, h, l, m… del Artículo 3, Para todo permiso de publicidad exterior se deberá cumplir con los siguientes requisitos:
+a. Presentar Láminas del rotulo mostrando su leyenda, materiales, cotas dimensiones y sistemas de iluminación si lo incluyere; sellada por el CFIA e instituciones Ministerio de Salud y/o otras según corresponda.
+b. Visto bueno del MOPT, en caso de predios con frente a ruta nacional.
+c. En los casos que se utilice imágenes de la mujer impúdicamente, haga referencia a la dignidad de la mujer, atente contra el pudor de la familia, la moral o las buenas costumbres así como contra la seguridad general, se requerirá visto bueno de la Oficina de Control de Propaganda del Ministerio de Gobernación. (Ley 5811).
