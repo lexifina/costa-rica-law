@@ -1,0 +1,4 @@
+Artículo 62-bis.—Para el cobro de los bienes no sujetos a depreciación, la Administración deberá tomar en cuenta los siguientes aspectos:
+Los bienes que no son sujetos a depreciación serán aquellos que Contabilidad Nacional como órgano Rector del Subsistema de Contabilidad Pública indique como tales.
+El cobro se realizará posterior a la valoración de la Unidad Técnica responsable. La Unidad en mención, deberá remitir un informe al Departamento Financiero y Proveeduría donde se indique el valor de mercado del bien, el cual no puede ser menor al último valor registrado, con excepción que mediante un informe de la Unidad Técnica Especializada justifique las razones por la cuales el bien perdió su valor, para que la Administración proceda con el cobro respectivo; esto en concordancia con el artículo 6, inciso g) y el artículo 30 de este cuerpo normativo.
+(Así adicionado mediante acuerdo N° 02-16-17 de la sesión N° 155-2017 del 21 de febrero del 2017)
