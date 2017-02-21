@@ -1,0 +1,2 @@
+Artículo 20: De la contabilidad:
+La UEP debe llevar libros y registros actualizados relacionados con el proyecto, de acuerdo con principios y prácticas de contabilidad del proceso de tesorería de PIMA. Debe identificar los bienes financiados bajo el contrato y el uso de los fondos, facilitar información para que se pueda verificar el progreso de los trabajos y la situación general del proyecto en un momento dado, así como la disponibilidad de los fondos. Permitiendo la verificación de la información y cumplir con la normativa de control interno y otra legislación pertinente.
