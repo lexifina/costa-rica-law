@@ -2,3 +2,4 @@ Artículo 2°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance Digital N° 299 a La Gaceta N° 238 del 12 de diciembre del 2016)
 (Modificado por el artículo 1° del decreto ejecutivo N° 40122 del 11 de enero de 2017)
 (Modificado por el artículo 1° del decreto ejecutivo N° 40196 del 1° de febrero de 2017)
+(Modificado por el artículo 1° del decreto ejecutivo N° 40195 del 2 de febrero de 2017)
