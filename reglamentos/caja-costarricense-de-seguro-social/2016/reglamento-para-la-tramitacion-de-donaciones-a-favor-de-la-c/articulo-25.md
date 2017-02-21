@@ -1,0 +1,1 @@
+Artículo 25°—En caso de donación de equipo de cómputo se debe coordinar con el Centro de Gestión Informática que le brinda soporte a la unidad, con el objetivo de formatear las unidades de almacenamiento, de forma tal que el equipo no contenga licencias, datos o información de la Institución.

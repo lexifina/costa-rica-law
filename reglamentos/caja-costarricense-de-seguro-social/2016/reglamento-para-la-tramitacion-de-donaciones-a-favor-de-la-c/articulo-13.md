@@ -1,0 +1,1 @@
+Artículo 13°.- Prescindencia del criterio técnico. Cuando la institución se constituya en donataria se podrá prescindir del criterio técnico si se trata de donaciones de dinero. Sin perjuicio de la comprobación de su procedencia, conforme a lo establecido en el artículo 4 de este Reglamento.

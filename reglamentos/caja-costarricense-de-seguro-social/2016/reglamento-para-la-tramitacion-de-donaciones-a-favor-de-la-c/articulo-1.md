@@ -1,0 +1,16 @@
+CAJA COSTARRICENSE DEL SEGURO SOCIAL
+Junta Directiva
+APROBACION REFORMA INTEGRAL REGLAMENTO
+La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 29° de la sesión N°8856, celebrada el 28 de julio de 20] 6 acordó aprobar la reforma integral al Reglamento para la tramitación de donaciones a favor de la Caja Costarricense de Seguro Social, en los siguientes términos:
+REGLAM/NTO PARA LA TRAMITACIÓN DE DONACIONES
+A FAVOR DE LA CAJA COSTARRICENSE DE SEGURO SOCIA.L
+Considerando:
+I°—EI ordinal 4° de la Ley General de la Administración Pública dispone claramente que La actividad de los entes públicos deberá estar sujeta en su conjunto a los principios fundamentales del servicio público, para asegurar su continuidad, su eficiencia, su adaptación a todo cambio en el régimen legal o en la necesidad social que satisfacen y la igualdad en el trato de los destinatarios, usuarios o beneficiarios" (Sala Constitucional, Voto N° 2005-05600). Ello obliga, en el caso de la Caja Costarricense de Seguro Social, en adelante la Caja, a procurar las condiciones óptimas para la adquisición de bienes y servicios no personales que se constituyan en instrumento para la prestación de los servicios al usuario final.
+2°—El aprovisionamiento institucional de aquellos bienes muebles, inmuebles o servicios necesarios para la prestación fina] de los servicios puede realizarse de conformidad con los procedimientos de contratación administrativa y/o especiales aplicables, así como otros mecanismos habilitados por el ordenamiento jurídico, como son las donaciones.
+3°—Las actividades que desarrolla la Caja, en el eje de gobierno y administración de los seguros sociales, se fundamentan en los principios de solidaridad, universalidad, igualdad, obligatoriedad y equidad. Así, el principio de solidaridad debe entenderse no sólo circunscrito al financiamiento sostenible de la atención de la población en general sino como el precepto que posibilita aportes adicionales o extraordinarios a los diferentes servicios que brinda la Institución. Aportes que se podrían realizar a través de un negocio gratuito como la donación.
+4°—La Ley Constitutiva de la Caja, en su ordinal 14, inciso 1), contempla la posibilidad de que la Junta Directiva regule un marco firme de gestión, pues dicho artículo deposita en ese órgano superior jerárquico institucional, el deber de dictar los reglamentos necesarios para el funcionamiento de la Institución y el desarrollo de los objetivos constitucional y legalmente esperados, en concordancia con el bloque jurídico vigente y las líneas rectoras que dicta el Sector Salud sobre el servicio público prestado.
+5°—Dicha potestad reglamentaria se ha ejercido desde la creación de la Caja para organizarse y desarrollar los preceptos legales que han dispuesto potestades especiales a la [institución, en razón del servicio público que presta.
+CAPITULO I
+Disposiciones generales
+Artículo 1°— Alcance. El presente Reglamento regula las potestades, requisitos y trámite de las intenciones de donación y donaciones en sí a favor de la Caja Costarricense de Seguro Social.
+También, es de acatamiento obligatorio para las donaciones a favor de la Caja Costarricense de Seguro Social a través de asociaciones pro-hospital o similar.

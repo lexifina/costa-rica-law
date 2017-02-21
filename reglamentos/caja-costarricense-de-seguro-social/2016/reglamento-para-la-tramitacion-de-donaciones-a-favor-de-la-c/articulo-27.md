@@ -1,0 +1,3 @@
+Artículo 27°— Derogatorias, Queda derogado el Reglamento para la Tramitación de Donaciones a favor de la Caja Costarricense de Seguro Social (aprobado en el artículo 1° de la sesión N° 8130 del 8 de febrero del año 2007). Asimismo, quedan derogadas las normas que se opongan al presente Reglamento.
+Rige a partir de su publicación".
+Lo anterior, en el entendido de que el citado Reglamento deberá contar con el visto bueno del Oficial de Simplificación de Trámites Institucional, en consonancia con lo que establece la Ley 8220 y su Reglamento, según lo dispuesto en el artículo 25° de la sesión N° 8842, celebrada el 12 de mayo del año 2016".
