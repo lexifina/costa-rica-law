@@ -1,0 +1,1 @@
+Artículo 17°. - Designación de grupos de trabajo: El Comité designará los, grupos de trabajo que sean necesarios para realizar las actividades de análisis y estudio a efecto de brindar la asesoría y apoyos necesarios con el propósito de coadyuvar a la toma de decisiones y a fomentar el desarrollo integral de la plataforma tecnológica de la Institución.

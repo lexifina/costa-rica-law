@@ -1,0 +1,1 @@
+Artículo 8°.- De la persona responsable de dirigir el Comité: El Comité sesionará bajo la dirección de la persona que ocupe la Gerencia General y en su ausencia la que ocupe la Subgerencia de Soporte Administrativo.

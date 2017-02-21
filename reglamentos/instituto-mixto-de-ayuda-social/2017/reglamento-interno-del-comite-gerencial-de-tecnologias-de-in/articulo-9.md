@@ -1,0 +1,2 @@
+Artículo 9°.- Quórum. El quórum para que pueda sesionar válidamente el órgano colegiado será el de la mayoría absoluta de sus integrantes. Los acuerdos serán adoptados por mayoría absoluta de los miembros asistentes. El número de éstos se verificará en el lugar designado para llevar a cabo la sesión al inicio de la misma.
+En todos aquellos casos en que medie empate en la votación de algún asunto entre los miembros del Comité, quien ocupe el puesto de la Gerencia General tendrá en razón de su investidura, voto de calidad, para resolver el conflicto existente.

@@ -1,0 +1,1 @@
+Artículo 19°.- De la presentación de informes: Cuando se realicen designaciones de labores específicas a los y las integrantes del Comité, deberán presentar informes según el plazo que haya sido acordado y de ser necesario se podrá solicitar un plazo adicional al Comité.

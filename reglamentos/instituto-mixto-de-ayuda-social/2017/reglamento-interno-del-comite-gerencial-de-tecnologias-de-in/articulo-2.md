@@ -1,0 +1,1 @@
+Artículo 2°.- Alcance: El presente reglamento alcanza a las personas integrantes el Comité Gerencial de Tecnologías de Información del Instituto Mixto de Ayuda Social en su respectiva función asignada dentro del mismo.

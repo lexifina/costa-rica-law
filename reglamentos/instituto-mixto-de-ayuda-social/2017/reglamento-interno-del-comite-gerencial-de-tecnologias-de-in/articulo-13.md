@@ -1,0 +1,1 @@
+Artículo 13°.- Personas Invitadas. El Comité podrá recibir a personas funcionarias de la Institución que muestren interés en tratar asuntos relacionados con la adquisición, distribución, mantenimiento, y manejo del material de naturaleza informática. La audiencia se concederá previa solicitud ante el Presidente del Comité, quien fijará el día y la hora de la reunión.
