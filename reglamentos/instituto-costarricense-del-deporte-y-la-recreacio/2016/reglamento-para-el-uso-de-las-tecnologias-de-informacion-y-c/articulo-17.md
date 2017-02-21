@@ -1,0 +1,2 @@
+Artículo 17.- Conexión de equipo externo a red para uso de visitantes
+Para los equipos externos que se deseen conectar a la red inalámbrica de la Institución, se habilitará una red específica, desligada de la red institucional por medio de la DMZ, con las medidas de seguridad institucionales para su utilización.

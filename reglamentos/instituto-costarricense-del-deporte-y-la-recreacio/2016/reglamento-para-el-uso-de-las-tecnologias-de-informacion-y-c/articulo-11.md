@@ -1,0 +1,3 @@
+Artículo 11.- Revisión antivirus
+Tecnologías de Información es responsable de contar con una herramienta que permita detectar los virus que hayan sido infiltrados por correo electrónico, Internet, disco compacto o CD, dispositivo USB u otra fuente. Además de proceder a aplicar las medidas preventivas y correctivas para minimizar el riesgo de propagación en los equipos institucionales.
+Es responsabilidad de funcionario, verificar periódicamente mediante la herramienta antivirus el contenido de todos sus dispositivos.

@@ -1,0 +1,2 @@
+Artículo 29.- Cuentas para comisiones, asociaciones y otras
+Será deber del coordinador o representante respectivo de las comisiones, asociaciones u otros, solicitar por los medios formales a Tecnologías de Información, la creación de la cuenta así como definir los permisos para cada miembro de la comisión, asociación o agrupación respectiva.

@@ -1,0 +1,2 @@
+Artículo 21.- Limitación del uso de infraestructura de comunicaciones
+El uso de los recursos a los que se tiene acceso mediante la infraestructura de comunicaciones, está limitado estrictamente para las actividades laborales propias de cada funcionario, quien será responsable de velar por el buen uso que hace de la infraestructura que permite el tráfico y el acceso a la información de la Institución.

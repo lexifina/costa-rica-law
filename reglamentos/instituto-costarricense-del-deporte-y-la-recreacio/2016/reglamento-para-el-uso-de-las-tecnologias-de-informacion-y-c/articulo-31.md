@@ -1,0 +1,2 @@
+Artículo 31.- Mensajes a terceros
+El envío de mensajes a terceros fuera de la Institución, se realizará con criterio selectivo por parte del funcionario, como parte del desarrollo de sus actividades laborales diarias.

@@ -1,0 +1,2 @@
+Artículo 26.- Uso individual
+Ningún funcionario, más que el dueño de la cuenta, tendrá acceso al buzón de correos electrónicos, por ser estos confidenciales. La lectura o manipulación de correos electrónicos ajenos a la cuenta propia es una violación a la intimidad del mismo. La cuenta de correo electrónico es personal e intransferible, por lo que no se pueden compartir los datos de la misma ni de la contraseña, por lo que cada funcionario es responsable por la seguridad de su cuenta y de su contraseña.

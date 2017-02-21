@@ -1,0 +1,2 @@
+Artículo 5.- Suspensión del uso de los recursos tecnológicos
+Es función del Superior Jerárquico Administrativo, previo conocimiento propio o informe por escrito de la jefatura, solicitar a Tecnologías de Información la suspensión en cualquier momento, del uso de los recursos tecnológicos de los funcionarios a su cargo de la Institución. Ello en caso de considerarlo conveniente cuando la naturaleza de las funciones cambie, cuando exista un riesgo que afecte la operación Institucional o cuando no requieran de estas herramientas.

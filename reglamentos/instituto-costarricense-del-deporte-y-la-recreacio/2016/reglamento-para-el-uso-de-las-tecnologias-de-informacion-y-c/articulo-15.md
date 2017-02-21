@@ -1,0 +1,2 @@
+Artículo 15.- Desconexión
+Aquellos equipos que representen un riesgo al funcionamiento de los recursos tecnológicos del Instituto Costarricense del Deporte y la Recreación, entre otros propagación de virus, distribución de correo electrónico malicioso, saturación de las comunicaciones o compromiso de la seguridad informática; serán desconectados por Tecnologías de Información sin previa comunicación al funcionario.
