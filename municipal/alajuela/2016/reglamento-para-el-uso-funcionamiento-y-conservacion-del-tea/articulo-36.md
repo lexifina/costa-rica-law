@@ -1,0 +1,3 @@
+ARTÍCULO 36. TRÁMITE DE SOLICITUD BAJO LA MODALIDAD DE COSTO MÍNIMO.
+Las solicitudes para el “préstamo de la instalación por costo mínimo” se podrán realizar por parte de fundaciones y asociaciones, centros de educación, comités o subcomités, grupos y/o empresas culturales, instituciones estatales, organizaciones cantonales o nacionales y personas físicas, y deberán ser presentadas ante el Subproceso de Sistema Integrado de Servicio al Cliente, y seguir el procedimiento establecido en el Capítulo V del presente Reglamento.
+El Concejo Municipal podrá determinar si se exonera del pago del 5% de espectáculos públicos.

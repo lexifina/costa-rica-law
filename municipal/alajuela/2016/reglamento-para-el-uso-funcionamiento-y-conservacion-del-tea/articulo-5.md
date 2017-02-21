@@ -1,0 +1,1 @@
+ARTÍCULO 5. ADMINISTRACIÓN. La administración, conservación y el mantenimiento de las instalaciones del Teatro Municipal de Alajuela es responsabilidad de la Municipalidad de Alajuela y la misma será ejercida por la dependencia encargada de Desarrollo Cultural, Deportivo y Recreativo de la Municipalidad de Alajuela y personal de apoyo.

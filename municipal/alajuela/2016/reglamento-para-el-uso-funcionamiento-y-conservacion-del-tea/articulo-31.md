@@ -1,0 +1,1 @@
+ARTÍCULO 31. SOLICITUD DE PRÉSTAMO DE LA INSTALACIÓN. Se podrá solicitar la instalación bajo esta modalidad cuando la finalidad sea satisfacer una necesidad de carácter social, cultural o comunal, debidamente demostrada y que no sea con fines de lucro.

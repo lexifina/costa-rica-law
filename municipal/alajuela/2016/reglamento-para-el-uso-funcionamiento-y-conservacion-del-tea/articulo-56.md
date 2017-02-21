@@ -1,0 +1,1 @@
+ARTÍCULO 56. DE LA MODIFICACIÓN DE ESTE REGLAMENTO. La reforma parcial o total del presente Reglamento, requerirá de acuerdo del Concejo Municipal, previa solicitud de la Administración Municipal a través del Alcalde Municipal.

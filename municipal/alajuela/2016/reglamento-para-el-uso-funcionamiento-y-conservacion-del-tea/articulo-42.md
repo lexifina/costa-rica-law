@@ -1,0 +1,1 @@
+ARTÍCULO 42. DEVOLUCIÓN POR NO REALIZACIÓN DE LA ACTIVIDAD. Solo se procederá con la devolución del monto por préstamo oneroso cuando no se utilice el inmueble por causas no imputables al prestatario, de fuerza mayor o caso fortuito, tales como falta de servicios básicos (fluido eléctrico y agua potable) o desastres naturales.

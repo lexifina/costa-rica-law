@@ -1,0 +1,1 @@
+ARTÍCULO 2. NATURALEZA JURÍDICA Y OBJETO DEL TEATRO. El Teatro Municipal de Alajuela es una instancia del Gobierno Local a través del cual se promueve el desarrollo humano en un ambiente cultural que revalore el pasado patrimonial sin dejar la constante renovación según la demanda de los tiempos.

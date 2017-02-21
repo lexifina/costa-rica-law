@@ -1,0 +1,1 @@
+ARTÍCULO 18. REVOCACIÓN DE LA APROBACIÓN. La aprobación otorgada por la Administración, para el uso de las instalaciones del Teatro, podrá ser revocada en cualquier momento cuando se acredite que las características del espectáculo, no corresponde a las condiciones debidamente aprobadas en cuando a su calidad.

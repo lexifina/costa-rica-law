@@ -1,0 +1,1 @@
+ARTÍCULO 15. SOLICITUD DE USO DE LAS INSTALACIONES. Se deberá contar con la debida autorización por parte de la Alcaldía Municipal con recomendación de la dependencia encargada de Desarrollo Cultural, Deportivo y Recreativo de la Municipalidad de Alajuela para hacer uso del Teatro.

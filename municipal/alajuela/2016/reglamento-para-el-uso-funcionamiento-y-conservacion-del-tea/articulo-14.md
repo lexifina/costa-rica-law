@@ -1,0 +1,1 @@
+ARTICULO 14. PROGRAMA DE EXTENSIÓN Y COOPERACIÓN CULTURAL. Con el fin de fortalecer la actividad cultural, apoyar a los artistas y beneficiar a los espectadores, la dependencia encargada de Desarrollo Cultural, Deportivo y Recreativo de la Municipalidad de Alajuela establecerá un repertorio teatral anual.

@@ -1,0 +1,2 @@
+ARTÍCULO 26. TRÁMITE. La dependencia encargada de Desarrollo Cultural, Deportivo y Recreativo de la Municipalidad de Alajuela procederá a verificar el cumplimiento de los requisitos señalados en el artículo anterior. En el caso de ausencia de algún requisito, podrá emplazar al solicitante para que en un plazo no mayor de tres días hábiles, proceda a cumplirlo, caso contrario la Administración procederá con el archivo de la gestión.
+Asimismo, deberá analizar la viabilidad de la actividad que se ajuste al uso normal de la instalación, y que la fecha está disponible.

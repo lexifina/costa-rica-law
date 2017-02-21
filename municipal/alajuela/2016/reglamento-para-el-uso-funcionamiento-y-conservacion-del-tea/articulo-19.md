@@ -1,0 +1,1 @@
+ARTÍCULO 19. RECURSOS. Contra lo resuelto por la Administración sobre utilización de las instalaciones del Teatro, procederán los recursos ordinarios de revocatoria y apelación establecidos en el Código Municipal.

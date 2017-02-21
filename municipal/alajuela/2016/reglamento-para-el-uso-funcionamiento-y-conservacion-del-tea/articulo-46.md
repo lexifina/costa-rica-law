@@ -1,0 +1,2 @@
+ARTÍCULO 46. DEL USO Y CONSERVACIÓN DEL LOBBY O SALA DE EXPOSICIONES TEMPORALES. La Sala de Exposiciones o lobby pueden ser utilizadas para realizar reuniones, charlas, exposiciones, si no contraviene con las funciones ordinarias del teatro.
+Está terminantemente prohibido el servicio de comida y bebida en esta zona salvo a criterio de la dependencia de Desarrollo Cultural, Deportivo y Recreativo de la Municipalidad de Alajuela, que así lo autorice con su debida fundamentación.

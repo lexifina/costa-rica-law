@@ -1,0 +1,1 @@
+ARTÍCULO 4. UNIDAD ADMINISTRATIVA RESPONSABLE DE LAS INSTALACIONES. La dependencia encargada de Desarrollo Cultural, Deportivo y Recreativo de la Municipalidad de Alajuela será la responsable de hacer cumplir las normas establecidas en el presente reglamento.

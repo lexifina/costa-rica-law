@@ -1,0 +1,1 @@
+ARTÍCULO 3. AMBITO DE APLICACIÓN. El presente Reglamento será de observancia obligatoria para todo asistente a sus instalaciones, funcionario municipal, así como toda persona, empresa o grupo que presente cualquier espectáculo en el Teatro.

@@ -1,0 +1,6 @@
+ARTÍCULO 47. DEL INGRESO AL TEATRO MUNICIPAL. Deberá confeccionarse una lista completa que incluya los integrantes del elenco artístico y el director o productor de la obra o espectáculo, con su número de cédula para ser revisada por el funcionario de seguridad a cargo en ese horario. En el caso de elenco de niños (as) solo podrá ingresar una o dos personas encargadas del vestuario, maquillaje y responsables de su comportamiento.
+El ingreso del público será 20 minutos antes de iniciar el evento, solamente se le dará ingreso antes de esa hora a las personas adultos mayores o personas con discapacidad.
+No ingresará público 10 minutos posteriores al inicio de la obra, por respeto al público, a los artistas, a la producción y sobre todo para evitar accidentes al encontrarse ya apagadas las luces de la Sala.
+Será totalmente prohibido que el público ingrese botellas de cualquier líquido, lo mismo que comidas para ser ingeridas en el área de sala general o cualquier otra zona. Serán decomisadas al ingreso para ser retirados al salir del evento.
+Las normas de comportamiento del elenco artístico así como el de producción artística y técnica deben de estar basadas en puntualidad, respeto, disciplina y cortesía.
+Cualquier falta a estas permitirá una calificación baja que interferirá en sus próximas presentaciones.

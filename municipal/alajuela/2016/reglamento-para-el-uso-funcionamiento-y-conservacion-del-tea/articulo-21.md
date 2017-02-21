@@ -1,0 +1,1 @@
+ARTÍCULO 21. RESPONSABLES DE LAS INSTALACIONES. Los usuarios del Teatro serán las personas responsables ante la Unidad Administrativa, por el adecuado uso de las instalaciones conforme a las disposiciones establecidas en el presente Reglamento.

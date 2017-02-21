@@ -1,0 +1,1 @@
+ARTÍCULO 17. SUSPENSIÓN DE LA AUTORIZACIÓN DE USO. La Administración Municipal, podrá dejar sin efecto la autorización de uso, antes del tiempo otorgado, por incumplimientos de las obligaciones establecidas para el uso del Teatro, por razones de seguridad, fuerza mayor o caso fortuito debidamente demostrados sin responsabilidad de su parte.

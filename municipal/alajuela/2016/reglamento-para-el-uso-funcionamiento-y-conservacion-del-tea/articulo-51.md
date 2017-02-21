@@ -1,0 +1,3 @@
+ARTÍCULO 51. DE LOS SEGUROS Y PERMISOS
+Los seguros del Teatro Municipal estarán a cargo de la dependencia de Desarrollo Cultural, Deportivo y Recreativo de la Municipalidad de Alajuela en coordinación con Servicios Administrativos a efectos de que la Administración por medio del Alcalde Municipal suscriba las pólizas correspondientes en resguardo del inmueble, bienes municipales y eventuales daños ante terceros y funcionarios mediante una póliza de responsabilidad civil.
+Se deberá gestionar además el permiso de funcionamiento ante el Ministerio de Salud que deberá estar siempre al día bajo la responsabilidad de la coordinación de la dependencia de Desarrollo Cultural, Deportivo y Recreativo de la Municipalidad de Alajuela.
