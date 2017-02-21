@@ -6,4 +6,4 @@ Ao
 Ao= índice de precios para los consumidores de ingresos medio y bajo del año y mes base (abril 1986).
 A= índice de precios para los consumidores de ingresos medio y bajo del año y mes en estudio.
 i= índice de ajuste inflacionario.
-(NOTA DE SINALEVI: Mediante Acuerdo N° 13, sesión N° 46-07/08-GO de 02 de setiembre de 2008, se aprobó el nuevo factor “i” valorado en 20.80 para efectos del Reglamento de Tarifas de Honorarios para los Profesionales en Agrimensura, Topografía e Ingeniería Topográfica”
+(Nota de Sinalevi: Mediante acuerdo N° 53 de la sesión N° 16-16/17 de 21 de febrero de 2017, se aprobó el nuevo factor “i” valorado en 29.2082 para efectos del Reglamento de Tarifas de Honorarios para los Profesionales en Agrimensura, Topografía e Ingeniería Topográfica. )

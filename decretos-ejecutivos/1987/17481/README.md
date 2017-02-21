@@ -16,3 +16,4 @@ Reglamento de Tarifas de Honorarios para los Profesionales de Agrimensura, Topog
 | 1 | 1987-04-20 | la propia norma |
 | 2 | 1989-06-19 | Decreto Ejecutivo 19048 (1989-06-19) |
 | 3 | 2012-05-11 | Ley 9036 |
+| 4 | 2017-02-21 | Acuerdo 53 (2017-02-21) |
