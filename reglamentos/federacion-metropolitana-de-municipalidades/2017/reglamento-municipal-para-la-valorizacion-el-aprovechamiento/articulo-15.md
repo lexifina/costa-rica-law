@@ -1,0 +1,1 @@
+Artículo 15°— Impugnación: La propuesta de adjudicación en firme se presentará ante los Concejos Municipales de los gobiernos locales adheridos para que estos resuelvan en definitiva. La decisión de estos órganos colegiados tendrá las impugnaciones previstas en la legislación aplicable, ante la Contraloría General de la República.

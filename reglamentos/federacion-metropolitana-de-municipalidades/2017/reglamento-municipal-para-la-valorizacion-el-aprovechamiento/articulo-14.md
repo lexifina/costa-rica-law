@@ -1,0 +1,11 @@
+Artículo 14°— Sistema de valoración y calificación de las ofertas: Entre las ofertas que lograron la admisibilidad se escogerá aquella cuya propuesta contribuya mejor en el ámbito socio-ambiental, conforme a las siguientes disposiciones:
+a) Las municipalidades obtendrán para esta última determinación un criterio técnico socio ambiental y una metodología para su ponderación, fundamentado por el criterio de técnicos recomendados por las universidades estatales, con la participación de profesionales debidamente acreditados en las áreas que correspondan, que constituirán
+la Comisión Técnica Asesora en el Ambito Socio-Ambiental.
+b) Para la calificación de las ofertas se valorará el aporte de las propuestas de las empresas a:
+1- la generación de las menores emisiones posibles del proceso de tratamiento y disposición que se proponga vinculadas directamente con el cambio climático, con el propósito de que la propuesta brinde un aporte a las políticas nacionales y universales de carbono neutralidad,
+2- la generación de las menores emisiones contaminantes posibles del proceso de tratamiento y disposición que se proponga, sin afectación para el cambio climático, y
+3- el mayor cumplimiento de la Ley de Gestión Integral de Residuos a través del aporte económico al Fondo Municipal de Gestión de Residuos.
+4- experiencia en la construcción de plantas de valorización de residuos sólidos y producción de electricidad.
+5- el menor precio o aporte económico de las municipalidades al proceso de valorización y disposición final de los residuos, conforme al artículo 13 de este Reglamento.
+c) La ponderación de estos factores se establecerá en el cartel respectivo por acuerdo de las municipalidades que participen en el proceso.
+d) Conforme lo dispone la Ley 8279 "Sistema Nacional para la Calidad", las empresas oferentes presentarán una certificación o constancia de una entidad acreditada por del Ente Costarricense de Acreditación (ECA), que contenga las verificadores de gases de efecto invernadero, así como de los gases nocivos que no poseen efecto invernadero, en cuanto a la reducción que generaría cada tecnología específica que se proponga, conforme a los parámetros del Capítulo Tercero de este Reglamento. Si no existiera ninguna entidad acreditada con capacidad de emitir esta certificación o constancia, se suprimfrán estos factores de calificación.

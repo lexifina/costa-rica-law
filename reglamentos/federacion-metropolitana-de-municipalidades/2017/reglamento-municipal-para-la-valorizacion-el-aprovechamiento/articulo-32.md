@@ -1,0 +1,1 @@
+Artículo 32°— Vigencia: este reglamento rige a partir de su publicación definitiva en el Diario Oficial de La Gaceta. Posteriormente, para cada municipalidad regirá a partir del momento en que se adopte por acuerdo firme del respectivo Concejo Municipal, sin que sea necesario más que publicar el acuerdo de adhesión.
