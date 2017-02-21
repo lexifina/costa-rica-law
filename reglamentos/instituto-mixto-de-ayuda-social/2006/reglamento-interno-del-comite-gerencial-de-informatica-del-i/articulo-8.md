@@ -1,1 +1,0 @@
-Artículo 8º—Asuntos pendientes. Cuando el presidente levante la sesión estando en discusión algún punto, será tratado en la sesión siguiente, debiendo incluirse en el artículo de Asuntos Varios, como el número uno y se respetará la precedencia en que esté cedida la palabra de los miembros del Comité, para referirse al tema.
