@@ -1,0 +1,1 @@
+Artículo 10.—Exención del Pago de Derechos. De conformidad con la normativa vigente y aplicable en materia de Propiedad Intelectual, en los casos en que el CCPC realice eventos con fines educativos y culturales no lucrativos, podrá solicitar al titular de la obra cinematográfica o audiovisual, la exención del pago de derechos para realizar su exhibición.

@@ -1,0 +1,4 @@
+Artículo 2º—Objetivos. Con el fin de cumplir el objeto descrito en el artículo anterior, el CCPC pretende cumplir los siguientes objetivos con el otorgamiento de los premios:
+a. Fomentar el desarrollo de las manifestaciones culturales y el arte cinematográfico y audiovisual, como medio para impulsar el movimiento cultural del país.
+b. Reconocer la creación cinematográfica y audiovisual costarricense, así como su divulgación en el ámbito nacional e internacional, como vínculo para la diversidad cultural y como medio generador de externalidades económicas de impacto positivo.
+c. Reconocer, estimular y apoyar la libre creación artística como expresión máxima de la individualidad, en un entorno de libertad y realización plena del ser humano, contribuyendo a la generación de productos audiovisuales y cinematográficos.

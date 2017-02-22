@@ -1,0 +1,1 @@
+Artículo 12.—Del pago por derechos de exhibición. Una vez determinada la programación de obras para la muestra, encuentro o festival específico, el CCPC queda facultado para realizar el pago por derechos de exhibición de las obras programadas, según la normativa vigente y aplicable de Propiedad Intelectual, previa negociación con el titular de estos derechos.

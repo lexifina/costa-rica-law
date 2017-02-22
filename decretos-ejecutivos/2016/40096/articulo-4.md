@@ -1,0 +1,1 @@
+Artículo 4º—Contenido presupuestario. El contenido económico para cubrir los premios establecidos en este reglamento, debe considerarse en la propuesta de anteproyecto de presupuesto del CCPC, para cada Ejercicio Económico.

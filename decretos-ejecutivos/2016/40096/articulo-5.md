@@ -1,0 +1,2 @@
+Artículo 5º—Monto máximo para premios. El monto económico correspondiente para los premios no podrá exceder al equivalente a 8 salarios base de un Profesional 1B del Servicio Civil.
+El presupuesto destinado a los premios otorgados por el CCPC, no será considerado para efectos del establecimiento del límite de gasto presupuestario fijado por la Autoridad Presupuestaria del Ministerio de Hacienda, para el Ejercicio Económico del año en que se entregarán los galardones.
