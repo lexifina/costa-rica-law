@@ -1,0 +1,13 @@
+Artículo 4º—Requisitos para ser beneficiario de una beca municipal. A toda solicitud de beca municipal deberá adjuntarse:
+a) Certificación de nacimiento emitida por el Registro Civil para verificar relación de beneficiarios y padres.
+b) Declaración jurada, de quien ejerza la patria potestad en caso de menores de edad, o del solicitante en caso de mayores de edad, de que no recibe otras ayudas económicas con el mismo fin.
+c) Constancia emitida por la Asociación de Desarrollo de la Comunidad de que es vecino del cantón de Grecia o en su defecto por el síndico del distrito. (Requisito que debe ser presentado dos veces al año, en el mes de enero y julio).
+d) Original y copia de la orden patronal, del encargado del estudiante, o en su defecto algún documento que demuestre en forma fehaciente los ingresos de esa persona. (Declaración jurada).
+e) Original y copia del certificado del resultado académico del curso lectivo anterior.
+f) Constancia emitida por el centro educativo correspondiente donde se establezca que es estudiante activo para el periodo actual.
+g) Señalar lugar de residencia exacta, números de teléfono y correo electrónico, para ser notificado. Si el dato suministrado fuere impreciso o incierto las resoluciones que se dicten con relación al solicitante o beneficiario, se tendrán por firmes con el solo transcurso de veinticuatro horas después de su emisión.
+h) Constancia de estar al día en el pago de los servicios municipales.
+i) Certificación de que a la fecha no ha recibido beca de ninguna Institución Pública o Privada.
+j) Los formularios se entregarán a los Síndicos (as), quienes a la vez se reunirán con su Consejo de Distrito, Juntas de Desarrollo, así como directores o docentes para la selección de los becados municipales. Los cuáles serán entregados a las Instituciones Educativas, según la distribución que determine el síndico competente. En caso de resistencia de directores de escuelas o colegios, los Concejos de Distrito quedan facultados para establecer el procedimiento que consideren más idóneo, equitativo y justo para la asignación de becas, en el territorio de su competencia.
+k) Todos los requisitos establecidos en este artículo deben ser presentados ante la comisión de becas, por medio de la secretaria del Concejo, para su análisis y recomendación.
+En todo caso los miembros de la Comisión tomarán en consideración la situación socioeconómica del optante o posible beneficiario, para lo cual podrán solicitar los estudios socioeconómicos que estimen convenientes. Para mantener la beca una vez otorgada, el beneficiario deberá mantener o bien justificar su récord académico.
