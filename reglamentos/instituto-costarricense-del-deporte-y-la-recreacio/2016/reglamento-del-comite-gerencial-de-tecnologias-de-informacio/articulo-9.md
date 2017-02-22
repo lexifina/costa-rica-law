@@ -1,0 +1,1 @@
+Artículo 9º—De la presidencia. El Comité sesionará bajo la dirección del Presidente, y en ausencia de éste, presidirá la reunión en forma “adhoc” quien designen los integrantes del Comité para tal efecto.

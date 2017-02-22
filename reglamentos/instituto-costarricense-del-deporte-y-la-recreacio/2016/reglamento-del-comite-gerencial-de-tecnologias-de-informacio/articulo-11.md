@@ -1,0 +1,1 @@
+Artículo 11.—Invitados. El Comité podrá recibir a funcionarios de la Institución que muestren interés en tratar asuntos relacionados con la distribución, mantenimiento, adquisición o manejo del material de naturaleza informático. Dichos funcionarios tendrán voz pero sin voto.

@@ -1,0 +1,2 @@
+Artículo 12.—Ausencia y tardías. Cuando motivos especiales o de fuerza mayor, impidan a un integrante la asistencia a una sesión ordinaria, extraordinaria o de trabajo, tendrá obligación de avisar al Presidente o a la secretaría, por la vía que estime más efectiva, previo a la hora de inicio de la sesión que corresponda.
+Si un miembro se ausenta por más de tres sesiones consecutivas, sin previa justificación, será suspendido por el Comité y el miembro suplente ocupará su lugar.

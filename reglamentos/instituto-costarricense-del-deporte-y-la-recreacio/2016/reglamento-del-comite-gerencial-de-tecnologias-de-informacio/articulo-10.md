@@ -1,0 +1,2 @@
+Artículo 10.—Del quórum. El quórum para que el Comité pueda sesionar válidamente será de cuatro miembros del total de sus integrantes. En cuanto al número de votos para adoptar los acuerdos será de mayoría calificada de los miembros presentes. El número de estos se verificará en el lugar designado para llevar a cabo la sesión al inicio de la misma.
+En todos aquellos casos en que medie empate en la votación de algún asunto entre los miembros del Comité, el Presidente tendrá, en razón de su investidura, doble voto, para dirimir el conflicto existente.
