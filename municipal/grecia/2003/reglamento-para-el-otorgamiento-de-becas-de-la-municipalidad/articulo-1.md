@@ -1,7 +1,0 @@
-MUNICIPALIDAD DE GRECIA.
-La Municipalidad de Grecia, en ejercicio de las facultades que le confieren la Constitución Política en los artículos 169, y 170, y el Código Municipal en sus artículos 4º y 13 incisos c) y m), emite el presente Reglamento para el Otorgamiento de Becas a los estudiantes en el Programa de Educación Pública en Primero, Segundo, Tercero, y Cuarto Ciclo de Enseñanza General Básica, y en universidades, también públicas.
-(Nota de Sinalevi: Este reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 205 del 24 de octubre del 2014, por lo que se reproduce a continuación:)
-REGLAMENTO PARA EL OTORGAMIENTO
-DE BECAS DE LA MUNICIPALIDAD DE GRECIA
-La Municipalidad de Grecia, en ejercicio de las facultades que le confieren la Constitución Política en los artículos 169, y 170, y el Código Municipal en sus artículos 4° y 13 incisos c) y m), emite el presente Reglamento para el Otorgamiento de Becas a los estudiantes en el Programa de Educación Pública en Primero, Segundo, Tercero, y Cuarto Ciclo de Enseñanza General Básica, en universidades, becas de funcionarios Municipales y también públicas.
-Artículo 1º—Acatamiento imperativo. Este Reglamento es de imperativo acatamiento de becas en el trámite y otorgamiento de becas que realice esta Municipalidad. Los integrantes del Concejo Municipal, de la Comisión Becas, y todo servidor municipal, que incumpla lo dispuesto en el presente Reglamento incurrirán en responsabilidad laboral, civil o penal, según sea el caso.

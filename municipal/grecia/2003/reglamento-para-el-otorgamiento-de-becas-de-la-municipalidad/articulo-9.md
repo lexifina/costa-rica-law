@@ -1,1 +1,0 @@
-Artículo 9º—Obligación de cumplir lo preceptuado en este Reglamento. Aquel funcionario municipal, que incumpla lo dispuesto en este Reglamento será sujeto de un Procedimiento Administrativo, de conformidad con la legislación vigente, a efecto de determinar su responsabilidad y posibles sanciones.
