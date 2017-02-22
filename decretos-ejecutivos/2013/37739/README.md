@@ -15,3 +15,4 @@ Reglamento sobre regulación y control de la publicidad comercial relacionada co
 | --- | --- | --- |
 | 1 | 2013-10-19 | la propia norma |
 | 2 | 2016-05-21 | SINALEVI (sin norma nombrada) |
+| 3 | 2017-02-22 | Decreto Ejecutivo 40210 (2017-02-22) |
