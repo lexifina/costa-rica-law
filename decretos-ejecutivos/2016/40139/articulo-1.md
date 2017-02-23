@@ -1,0 +1,14 @@
+N° 40139 -MOPT
+EL PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DE OBRAS PUBLICAS Y TRANSPORTES
+En el ejercicio de las facultades que les confieren el Artículo 140, incisos 3) y 18) de la Constitución Política; y con fundamento en lo establecido por la Ley de Creación del Ministerio de Obras Públicas y Transportes, No. 3155 del 5 de agosto de 1963 y sus reformas; la Ley General de la Administración Pública, No. 6227 del 2 de mayo de 1978 y sus reformas, la Ley General de Control Interno, No. 8292 del 31 de julio del 2002, la Ley de la Administración Financiera de la República y Presupuestos Públicos, No. 8131 del 18 de setiembre del 2001 y la Primera Ley Especial para la Transferencia de Competencias: Atención Plena y Exclusiva de la Red Vial Cantonal, No. 9329 del 15 de octubre del 2015.
+CONSIDERANDO:
+1.- Que el 1° de enero del 2016 entró en vigencia la Ley No. 9329 Primera Ley Especial para la Transferencia de Competencias: Atención Plena y Exclusiva de la Red Vial Cantonal, cuya finalidad es transferir a los gobiernos locales la atención plena y exclusiva de la red vial cantonal.
+2.- Que según lo dispuesto en el último párrafo del artículo 2 de la Ley No. 9329, la titularidad y las potestades concernientes a la administración de los caminos vecinales, las calles locales y los caminos no clasificados, corresponderá a los gobiernos locales territorialmente competentes en la zona geográfica donde se encuentren ubicadas cada una de esas vías públicas, siempre bajo los lineamientos técnicos generales que promulgue el Ministerio de Obras Públicas y Transportes (MOPT) como ente rector y fiscalizador en la materia.
+3.- Que la Ley No. 9329 modificó el inciso a) del artículo 2 de la Ley No. 3155, Ley de Creación del Ministerio de Obras Públicas y Transportes (MOPT), de 5 de agosto de 1963. Dicha norma establece para el MOPT la competencia de ejercer la fiscalización y la rectoría técnica en materia de infraestructura vial, en virtud de lo cual debe asesorar y coordinar, con los gobiernos locales, sobre las regulaciones técnicas y logísticas indispensables que atañen a la adecuada funcionalidad de la red vial cantonal, considerada por separado y en integración con la red vial nacional.
+4.- Que en orden a las facultades de rector técnico que ostenta el MOPT conforme lo dispuesto en la Ley No. 9329, se oficializa por este acto la Norma Técnica-pua el Desarrollo y la Conservación de la Red Vial Cantonal.
+Por tanto,
+DECRETAN:
+Oficialización de la Norma Técnica para el Desarrollo y la Conservación de la Red
+Vial Cantonal
+Artículo 1.- Se oficializa el uso de la "Norma Técnica para el Desarrollo y la Conservación de la Red Vial Cantonal", como instrumento técnico de aplicación observancia en el desarrollo y ejecución de obras de infraestructura vial de la red vial cantonal.

@@ -1,0 +1,1 @@
+Artículo 2.- La versión oficial de la 'Norma técnica para el Desarrollo y la Conservación de la Red Vial Cantonal" se publica como anexo al presente Decreto Ejecutivo y estará asimismo publicada en la página de Internet del MOPT (www.mopt.go.cr).
