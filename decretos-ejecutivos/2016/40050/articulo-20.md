@@ -1,0 +1,1 @@
+Artículo 20°.- Programa País de Carbono Neutralidad. Las personas físicas o jurídicas podrán utilizar el consumo de biocombustibles, corno parte de sus acciones para contribuir a la carbononeutralidad del país, lo anterior conforme a lo dispuesto en el Acuerdo-36-2012-MINAET. Oficialización del Programa País Carbono Neutralidad,

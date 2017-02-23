@@ -1,0 +1,1 @@
+Artículo 12°.- Mezcla de los biocombustibles. La mezcla de los combustibles fósiles con los biocombustibles para su comercialización mayorista o a granel será realizada únicamente por RECOPE. Las proporciones entre biocombustibles y combustibles fósiles en las mezclas serán establecidas por el M[NAE.

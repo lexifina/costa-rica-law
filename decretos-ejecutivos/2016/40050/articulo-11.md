@@ -1,0 +1,1 @@
+Artículo 11°.- Volúmenes de biocombustibles requeridos. Se encarga a RECOPE establecer los volúmenes requeridos de biocombustibles (biodiesel y etanol) para satisfacer la demanda de acuerdo a las metas establecidas en los instrumentos de planificación nacional.

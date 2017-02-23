@@ -1,0 +1,1 @@
+Artículo 8°.- Funciones del MINAE. Al MINAE le corresponderá la coordinación del Programa Nacional de Biocombustibles, el Registro de Productores de Biocombustibles y el establecimiento de la proporción de mezcla de cada uno de los biocombustibles líquidos con combustibles fósiles a implementar por RECOPE.

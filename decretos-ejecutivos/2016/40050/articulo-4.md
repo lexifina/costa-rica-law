@@ -1,0 +1,1 @@
+Artículo 4°.- Materias primas. Las materias primas que se utilicen para la producción de biocombustibles podrán ser producidas a partir de biomasa procedente de cultivos energéticos y residuos agrícolas, pecuarios, microorganismos, forestales, industriales y urbanos, tanto de origen nacional corno extranjero.

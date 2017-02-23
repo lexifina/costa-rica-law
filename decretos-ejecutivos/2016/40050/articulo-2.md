@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de aplicación. Este reglamento es de aplicación obligatoria para toda persona física o jurídica que participe de la actividad de biocombustibles a lo largo de su cadena de valor, la cual incluye la producción, el transporte, el almacenamiento, la distribución y la comercialización.

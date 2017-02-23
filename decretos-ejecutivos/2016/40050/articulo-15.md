@@ -1,0 +1,1 @@
+Artículo 15°.- Precios de venta del combustible fósil mezclado. E] precio de venta del combustible fósil mezclado en los planteles de RECOPE y al usuario final será fijado por la ARESEP. conforme a lo establecido en la Ley 7593, Ley de la ARESEP.

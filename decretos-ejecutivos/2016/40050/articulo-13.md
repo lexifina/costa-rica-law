@@ -1,0 +1,1 @@
+Artículo 13°.- Venta de combustibles fósiles mezclados. RECOPE será la encargada de la venta de los combustibles fósiles mezclados con biocombustibles a los distribuidores autorizados para su comercialización y a sus clientes para autoconsumo.

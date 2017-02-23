@@ -1,0 +1,1 @@
+Artículo 3°.- Interés público de las actividades relacionadas con los biocombustibles. Declárese de interés público las actividades relacionadas con [a producción de biocombustibles y el Programa Nacional de Biocombustibles.
