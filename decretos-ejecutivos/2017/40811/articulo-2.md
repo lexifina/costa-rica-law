@@ -1,0 +1,1 @@
+Artículo 2 º-Las instituciones nacionales, públicas y privadas, así como demás organizaciones y empresas, brindarán en la medida de sus posibilidades, y dentro del marco jurídico respectivo, la colaboración y facilidades que estén a su alcance, para establecer el destino turístico “El Camino de Costa Rica". sin menoscabo de las funciones propias.
