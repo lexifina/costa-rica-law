@@ -1,0 +1,1 @@
+Artículo 45°—El recurso de revisión de un acuerdo o resolución, será solicitado por cualquier miembro en la misma sesión en que se tome, o en la sesión en que se aprueba el acta correspondiente, si no es acuerdo firme. En ambos casos puede aprobarse por simple mayoría de los miembros.

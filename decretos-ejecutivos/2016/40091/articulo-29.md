@@ -1,0 +1,1 @@
+Artículo 29°— Todas las dependencias del INCIENSA deben dar atención inmediata a los acuerdos que adopte el Consejo Técnico, responsabilidad que será delegada en la Dirección General. La persona encargada de la Secretaría de Actas del Consejo Técnico debe llevar, además, un registro especial de cada acuerdo y verificar en tiempo, su fiel cumplimiento.

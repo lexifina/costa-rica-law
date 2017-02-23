@@ -1,0 +1,1 @@
+Artículo 8°—El miembro del Consejo Técnico que no pueda asistir debe presentar en forma escrita la justificación de ausencia a la Presidencia o a la Secretaría del órgano, con 24 horas de anticipación a la sesión convocada, con la finalidad de confirmar el quórum.

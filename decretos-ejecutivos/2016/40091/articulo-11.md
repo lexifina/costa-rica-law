@@ -1,0 +1,1 @@
+Artículo 11°—Cuando alguno de los asistentes a las sesiones del Consejo Técnico, tuviera interés personal en el trámite de un asunto o lo tuvieran sus socios o parientes dentro del tercer grado de consanguinidad o afinidad, deberá retirarse de la respectiva sesión inhibiéndose así del conocimiento del asunto, mientras se discute y se resuelve el mismo.

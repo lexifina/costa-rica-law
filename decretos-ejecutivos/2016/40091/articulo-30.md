@@ -1,0 +1,1 @@
+Artículo 30°— La persona encargada de la Secretaría de Actas debe llevar un seguimiento de acuerdos, para lo cual el responsable de la ejecución de los mismos debe remitir a la Secretaria de Actas, los documentos en los que consta su cumplimiento.

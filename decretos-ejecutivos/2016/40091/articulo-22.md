@@ -1,0 +1,2 @@
+Artículo 22— Las actas de las sesiones ordinarias deben ser aprobadas en la sesión ordinaria siguiente. Las actas de las sesiones extraordinarias se aprueban como máximo en la sesión ordinaria subsiguiente.
+Si por razones de fuerza mayor, el Acta no puede conocerse en la sesión en que debe ser aprobada, la Secretaría de Actas lo informará así a la Presidencia del Consejo Técnico, el cual tomará nota de esa circunstancia.

@@ -1,0 +1,1 @@
+Artículo 23°—En la sesión que se conozca el acta, se deben hacer, si procede, las enmiendas, adiciones y correcciones que los miembros del Consejo autoricen y cumplido este trámite, queda convertida automáticamente en el acta oficial aprobada.

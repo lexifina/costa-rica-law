@@ -1,0 +1,1 @@
+Artículo 33°— Cuando concluya el año, el tomo correspondiente debe ser debidamente encuadernado, empastado, rotulado y guardado en un lugar apropiado que asegure al máximo su buen estado, custodia y conservación.

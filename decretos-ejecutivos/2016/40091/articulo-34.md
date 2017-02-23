@@ -1,0 +1,1 @@
+Artículo 34°— Las actas, una vez aprobadas, deben incorporarse de inmediato al Libro. Las personas encargadas de la Presidencia y de la Secretaría del Consejo Técnico, siempre que hayan asistido a la sesión correspondiente, deben estampar su firma al pie de cada Acta.

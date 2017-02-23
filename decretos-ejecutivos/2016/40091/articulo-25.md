@@ -1,0 +1,1 @@
+Artículo 25°— Cualquier miembro del Consejo puede pedir revisión de un acuerdo o resolución en - la misma sesión en que se tome o en la sesión en que se apruebe el acta correspondiente. Dicha revisión debe aprobarse por simple mayoría y de la misma se conocerá a más tardar, en la próxima sesión ordinaria, siempre que esté presente el miembro que solicitó la revisión.

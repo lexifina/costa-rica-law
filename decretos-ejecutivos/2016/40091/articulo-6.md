@@ -1,0 +1,1 @@
+Artículo 6---Si por falta de quórum una sesión no da inicio a la hora convenida, se dará un tiempo de espera hasta de treinta minutos, con el propósito de completar el quórum de Ley para efectuar la sesión. Si transcurrido ese tiempo no se llega a completar el quórum legalmente establecido, se levanta un acta en la que firman los presentes y se consigna esta circunstancia.

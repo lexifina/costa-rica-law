@@ -1,0 +1,1 @@
+Artículo 4°—La convocatoria de sesiones ordinarias debe comunicarse al menos con veinticuatro horas hábiles por la Secretaría de Actas del Consejo Técnico, según cronograma previamente aprobado por este Órgano Colegiado, adjuntando la agenda correspondiente.

@@ -1,0 +1,1 @@
+Artículo 7°—Si existieren asuntos urgentes en agenda, de conformidad con lo dispuesto en el inciso 2) del artículo 53 de la Ley N° 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública", se podrá sesionar con los miembros que se encuentren presentes, media hora después de la indicada para el inicio.

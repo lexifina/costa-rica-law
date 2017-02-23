@@ -1,0 +1,1 @@
+Artículo 49°— Deróguese el Decreto Ejecutivo N° 35520-S del 4 de agosto del 2009, "Reglamento de Funcionamiento del Consejo Técnico del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud (INCIENSA)", publicado en La Gaceta N° 209 del 28 de octubre del 2009.
