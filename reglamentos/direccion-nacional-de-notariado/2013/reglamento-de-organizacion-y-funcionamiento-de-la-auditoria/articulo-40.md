@@ -1,4 +1,5 @@
-Artículo 40.—Deberes. La Auditoría Interna tendrá las siguientes obligaciones, según lo establece el artículo 32 de la Ley General de Control Interno, Nº 8292:
+Artículo 40.—Deberes. La Auditoría Interna y el personal de la Auditoría Interna tendrán las siguientes obligaciones, según lo establece el artículo 32 de la Ley General de Control Interno, Nº 8292:
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 006-2017 del 23 de febrero del 2017)
 a) Cumplir las competencias asignadas por Ley.
 b) Cumplir el ordenamiento jurídico y técnico aplicable.
 c) Colaborar en los estudios que la Contraloría y otras instituciones realicen en el ejercicio de competencias de control o fiscalización legalmente atribuidas.

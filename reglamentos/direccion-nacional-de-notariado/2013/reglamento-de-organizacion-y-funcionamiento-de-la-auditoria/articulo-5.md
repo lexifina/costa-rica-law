@@ -9,7 +9,9 @@ g) Ley Nº 7764: Código Notarial y su reforma 8795 del 4 de enero de 2010.
 h) Lineamientos para el Ejercicio y Control del Servicio Notarial.
 i) Lineamientos sobre los requisitos de los cargos de Auditor y Subauditor internos, y las condiciones para las gestiones de nombramiento de dichos cargos.
 j) Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público, publicado en el Diario Oficial La Gaceta Nº 28 del 10 de febrero, 2010.
-k) Manual de Normas Generales de Auditoría para el Sector Público.
+k) Normas Generales de Auditoría para el Sector Público, publicado en La Gaceta N° 184 del 25 de setiembre del 2014.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 006-2017 del 23 de febrero del 2017)
 l) Reglamento Autónomo de Servicio del Ministerio de Justicia y Paz, No 25880-J.
 m) Normas Generales de Control Interno para el Sector Público y las entidades y órganos sujetos a su fiscalización.
-n) Además, se debe complementar con las directrices, normativa, políticas y procedimientos emitidos o que en el futuro emita, la Contraloría General de la República, en el ámbito de su competencia y que, en un conjunto establecen los estándares mínimos para el desarrollo de la actividad.
+n) Normas de Control Interno para el Sector Público (N-2-2009-CO-DFOE).
+(Así reformado el inciso anterior mediante sesión ordinaria N° 006-2017 del 23 de febrero del 2017)
