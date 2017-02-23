@@ -1,0 +1,2 @@
+Artículo 21.- Actualización de la información.
+La Secretaría de Planificación Sectorial, a instancia de la municipalidad correspondiente, procederá a actualizar las bases de datos del Registro Vial de Costa Rica, por medio de la actualización del levantamiento de la información de los inventarios viales de un cantón realizado por la municipalidad respectiva, así como a dar trámite a las solicitudes de cambio de categoría de las vías públicas.

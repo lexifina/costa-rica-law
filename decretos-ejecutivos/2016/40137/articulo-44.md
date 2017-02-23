@@ -1,0 +1,2 @@
+Articulo 44.- Autoevaluación
+La División de Obras Públicas deberá ejercer un control continuo del plan de trabajo anual, con el objetivo de detectar en forma oportuna eventuales desviaciones y adoptar las medidas correctivas pertinentes. Los resultados de dicha autoevaluación deberán consignarse en un informe anual que será entregado al Viceministerio de Infraestructura y Concesiones a más tardar el 31 de marzo.

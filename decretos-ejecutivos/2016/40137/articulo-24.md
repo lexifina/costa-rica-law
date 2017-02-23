@@ -1,0 +1,3 @@
+Artículo 24.- Elaboración de disposiciones técnicas
+En el caso de los Manuales de Especificaciones regulados en el Reglamento al artículo 6 de la Ley de Simplificación y Eficiencia Tributaria N° 8114, emitido mediante Decreto Ejecutivo 3 7016-MOPT, los cuales constituyen disposiciones técnicas y aplican a las municipalidades por establecerlo así dicho cuerpo normativo, el procedimiento para su elaboración, actualización y oficialización será el definido en dicho Reglamento.
+En lo que respecta a las disposiciones técnicas no incluida en dicho Reglamento, que sea necesario emitir en el ejercicio de la rectoría técnica a que se refiere la Ley No. 9329, corresponderá a la Dirección de Ingeniería de la División de Obras Públicas del MOPT su elaboración.

@@ -1,0 +1,6 @@
+CAPITULO V
+Disposiciones Finales
+Artículo 47.- Cooperación internacional
+Las municipalidades podrán gestionar de forma individual o conjunta ante la Secretaría de Planificación Sectorial, la colaboración para conformar una solicitud formal de cooperación técnica y financiera internacional, orientada a la atención plena y exclusiva de la red vial cantonal, de acuerdo con los alcances de Ley No. 9329 y demás normativa conexa.
+La Secretaría de Planificación Sectorial evaluará la solicitud realizada por la municipalidad para determinar su factibilidad, de acuerdo con los criterios de elegibilidad normalmente requeridos por las instituciones financieras internacionales. En caso que no lo considere viable, asi lo comunicará a la municipalidad con la justificación correspondiente.
+En caso contrario la Secretaría proporcionará toda la colaboración y el acompañamiento necesario a la municipalidad en el proceso de obtención de la cooperación. Para esto deberá observar las disposiciones normativas vigentes en materia de crédito público y cooperación internacional que les aplique, para lo cual hará las comunicaciones pertinentes a la Dirección de Crédito Público del Ministerio de Hacienda sobre las operaciones de crédito público y al Ministerio de Planificación Nacional y Política Económica.

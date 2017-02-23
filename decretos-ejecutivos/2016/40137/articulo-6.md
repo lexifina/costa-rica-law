@@ -1,0 +1,2 @@
+Artículo 6.- Transferencia de recursos
+Lo relativo al cálculo y transferencia de recursos provenientes del impuesto único a los combustibles será regulado en el Reglamento al inciso b) del artículo 5) de la Ley No. 8114. El procedimiento de entrega de materiales e insumos a que refiere el artículo 5 de la Ley No. 9329, así como la deducción de sus valores de los montos de transferencia, será regulado en el Reglamento especial que el Poder Ejecutivo emitirá para tales efectos.

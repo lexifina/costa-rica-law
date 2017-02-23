@@ -1,0 +1,2 @@
+Transitorio II
+En el plazo de un año a partir de la entrada en vigencia del presente Reglamento, la Dirección de Informática deberá implementar un sistema de consulta digital, para que a través de la página de Internet de) Ministerio de Obras Públicas y Transportes, las municipalidades puedan efectuar las consultas que estimen necesarias sobre las disposiciones técnicas oficializadas por esta Institución.

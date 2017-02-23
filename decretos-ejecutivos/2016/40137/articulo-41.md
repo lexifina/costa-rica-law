@@ -1,0 +1,2 @@
+Articulo 41.- Coordinación
+Previo a iniciar la fiscalización de un proyecto o actividad en una municipalidad determinada, la División de Obras Públicas comunicará al Alcalde y al Concejo Municipal el estudio a realizar, sus alcances y la fecha de inicio del proceso. Asimismo coordinará con tal instancia, así como con aquellas que estime necesario, incluyendo la Auditoría Municipal, todas aquellas acciones que resulten pertinentes para la ejecución del estudio respectivo.

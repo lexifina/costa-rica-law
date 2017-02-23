@@ -1,0 +1,3 @@
+Artículo 20.- Archivo y manejo de la información
+La Secretaría de Planificación Sectorial será la encargada del archivo y el manejo de la información del Registro Vial de Costa Rica. La Secretaría podrá establecer los medios mediante los cuales las municipalidades deberán proporcionar la información necesaria para la operación del Registro Vial de Costa Rica. Solamente los funcionarios municipales autorizados por la Alcaldía ante la Secretaría podrán ingresar información para el Registro, para su valoración por parte de la Secretaría.
+Cada municipalidad será la responsable de mantener el inventario vial original de su cantón en resguardo.

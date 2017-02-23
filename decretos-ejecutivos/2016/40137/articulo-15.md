@@ -1,0 +1,2 @@
+Artículo 15.- Criterios de clasificación para calles locales
+Los caminos públicos incluidos en esta categoría, se clasificarán con base en los criterios que al efecto establecerá cada municipalidad, cuando exista el respectivo Reglamento aprobado; de lo contrario se regirán por lo dispuesto en el Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones vigente emitido por el Instituto Nacional de Vivienda y Urbanismo.

@@ -1,0 +1,3 @@
+Articulo 7.- Recursos para proyectos de seguridad vial
+Para el cumplimiento de sus competencias en materia de seguridad vial, las municipalidades podrán utilizar, complementariamente a los recursos del impuesto único a los combustibles, los recursos provenientes de las sumas recaudadas por concepto de multas por infracciones a que refieren el inciso c) del artículo 10 de la Ley No. 6324 y el inciso d) del artículo 234 de la Ley No. 9078.
+Dichos recursos se deberán manejar en una cuenta específica de la municipalidad que será del conocimiento del Departamento de Tesorería del Consejo de Seguridad Vial, para la realización de las transferencias correspondientes.

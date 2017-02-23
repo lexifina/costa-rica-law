@@ -1,0 +1,2 @@
+Artículo 22-. Ingreso de información y comunicación a los interesados.
+La Secretaría de Planificación Sectorial preparará un corte y resumen anual, al 31 de mayo de cada año, para efectos de la comunicación de la información de las bases de datos del Registro Vial a las municipalidades, instituciones del Gobierno Central y a otros interesados, relativo a la extensión de la red vial de cada cantón. La información a consignar en esa fecha considerará el inventario existente y las solicitudes de actualización que se reciban a más tardar el 31 de enero del año anterior.

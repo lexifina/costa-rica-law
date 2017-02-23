@@ -1,0 +1,2 @@
+Articulo 12.- Constitución de la red vial cantonal
+La red vial cantonal estará constituida por todos los caminos y calles bajo la administración de las municipalidades, inventariados y georeferenciados como rutas cantonales por las municipalidades, y que constan como tales en el Registro Vial; así como por toda la infraestructura vial complementaria, siempre que se encuentre en terrenos de dominio público y cumpla los requisitos de ley.

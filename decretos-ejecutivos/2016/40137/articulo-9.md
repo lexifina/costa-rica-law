@@ -1,0 +1,2 @@
+Artículo 9.- Sobre el esquema de atención de la competencia
+Las municipalidades podrán ejercer la competencia transferida en la Ley No. 9329 de forma individual o colectiva, mediante convenios con otras municipalidades, federaciones, confederaciones o unidades ejecutoras intercantonales o regionales, de acuerdo con la autorización conferida en el artículo 4 de la Ley No. 9329 y los artículos 9 y 10 del Código Municipal.

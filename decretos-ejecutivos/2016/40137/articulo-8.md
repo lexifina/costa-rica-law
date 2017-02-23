@@ -1,0 +1,2 @@
+Artículo 8.- Responsabilidad de las municipalidades en la ejecución de los recursos
+Una vez que las municipalidades reciban la trasferencia de recursos, la ejecución de los mismos será de su responsabilidad exclusiva y estará sujeta al cumplimiento de las disposiciones técnicas generales que promulgue el MOPT, en el ejercicio de su competencia de rectoría técnica, conforme lo establece la Ley No. 9329.
