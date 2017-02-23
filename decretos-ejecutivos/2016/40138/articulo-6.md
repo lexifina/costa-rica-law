@@ -1,0 +1,5 @@
+Artículo 6.- Destino de los recursos
+El Concejo Municipal, con base en la propuesta de la Junta Vial, destinará los recursos provenientes de la Ley No. 8114 exclusivamente a la conservación vial, el mantenimiento rutinario, el mantenimiento periódico, el mejoramiento y la rehabilitación de la red vial cantonal.
+Una vez cumplidos estos objetivos, los sobrantes se utilizarán para construcción de obras nuevas de la red vial cantonal.
+Las municipalidades podrán financiar con los citados recursos, la operación de las dependencias técnicas que decidan establecer, encargadas de] desarrollo y de la asesoría para el ejercicio de competencias de gestión vial y su control. Las actividades a financiar pueden ser tanto gastos corrientes como de capital, necesarias para la gestión vial y que se ajusten a los principios de razonabilidad y proporcionalidad.
+Corresponderá a las municipalidades garantizar que los recursos de la Ley No. 8114 se destinen exclusivamente para los fines descritos en dicha ley, la Ley No. 9329 y sus reglamentos. La aplicación o el uso diferente de los recursos, generará las responsabilidades civiles, administrativas y penales que correspondan.

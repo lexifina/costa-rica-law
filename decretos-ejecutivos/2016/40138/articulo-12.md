@@ -1,0 +1,2 @@
+Artículo 12.- Seguimiento y evaluación de la gestión vial.
+La Junta Vial deberá realizar el seguimiento y la evaluación de los planes anuales, apoyándose en herramientas informáticas que aseguren una adecuada estandarización de los procedimientos. Para estos efectos el MOPT pondrá a disposición de los gobiernos locales, en cumplimiento de su función asesora y de rectoría técnica, las herramientas para favorecer la uniformidad en la materia, tajes como el Sistema de Gestión Vial Integrado o cualquier otro instrumento con que llegara a contar.
