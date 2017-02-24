@@ -1,4 +1,6 @@
+(Derogado)
 INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+(Esta norma fue derogada mediante acuerdo AJDIP/102-2017 del 24 de febrero del 2017, “Establece las tallas legales de primera captura para peces”)
 AJDIP/105-2013.—Puntarenas, a los ocho días del mes de marzo de dos mil trece.
 Considerando:
 1- Que de conformidad con la programación realizada por la Junta Directiva, respecto al establecimiento de las tallas de primera madurez de las principales especies de interés comercial; para lo cual se desarrollo por parte de la Dirección General Técnica una serie de consultas al sector pesquero costarricense, en las zonas de Guanacaste, Puntarenas, Limón y Zona Sur, a fin de que estos manifestaran sus posiciones sobre éste particular.
