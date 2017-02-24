@@ -15,3 +15,4 @@ Se autoriza el traspaso de licencia comercial inactiva con sustitución de embar
 | --- | --- | --- |
 | 1 | 2016-09-16 | la propia norma |
 | 2 | 2016-10-13 | Acuerdo 379 (2016-10-13) |
+| 3 | 2017-02-24 | Acuerdo 104 (2017-02-24) |
