@@ -1,0 +1,1046 @@
+ENTE COSTARRICENSE DE ACREDITACIÓN
+El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, dan a conocer la publicación de la modificación de los siguientes documentos, de la siguiente manera:
+Procedimiento | Versión actual | Versión publicada | Fecha de emisión | Fecha de entrada en vigencia en el sistema de gestión del ECA
+ECA-MC-005 Criterios para la evaluación de la norma INTE- ISO/IEC 17021 | 12 | 13 | A partir de su publicación en el diario oficial La Gaceta. | A partir de su publicación en el diario oficial La Gaceta.
+Dejar sin efecto la publicación de La Gaceta N° 13 del 18 de enero del 2017, porque no se cumple con el plazo de publicación de los documentos modificados.
+Los documentos descritos se encuentran a disposición de los interesados en la página electrónica www.eca.or.cr/http://www. eca.or.cr/docs.php; así mismo puede solicitar el envió de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestaría de Calidad en las oficinas centrales del ECA ubicadas en Pavas, Rohrmoser; 150 metros al este, del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8:00 a las 16:00 horas.
+San José, 10 de febrero del 2017
+(Nota de Sinalevi: La presente norma se extrajo del sitio web del Ente Costarricense de Acreditación, por lo que se transcribe a continuación:)
+[imagen]
+TABLA DE CONTENIDO
+1. OBJETIVO ............................................................................................................................. 1
+2. ALCANCE ............................................................................................................................. 2
+3. DEFINICIONES ...................................................................................................................... 2
+4. DOCUMENTOS MANDATORIOS .......................................................................................... 2
+5. ANEXOS ............................................................................................................................... 3
+ANEXO I: CERTIFICACIÓN DE SITIOS MÚLTIPLES BASADA EN EL MUESTREO .................... 3
+ANEXO II: TRANSFERENCIA DE LA CERTIFICACIÓN ACREDITADA DE SISTEMAS DE
+GESTIÓN ..................................................................................................................................... 11
+ANEXO lll: PROCEDIMIENTOS AVANZADOS DE SEGUIMIENTO Y RECERTIFICACIÓN ....... 14
+ANEXO lV: USO DE TÉCNICAS DE AUDITORÍA ASISTIDAS POR COMPUTADORA
+(“CAAT”) PARA LA CERTIFICACIÓN ACREDITADA DE LOS SISTEMAS DE GESTIÓN ......... 18
+ANEXO V: DURACIÓN DE AUDITORÍAS DE SGC Y SGA. ......................................................... 20
+(OBLIGATORIO) ........................................................................................................................... 20
+ANEXO Vl DOCUMENTO MANDATORIO DE IAF PARA LA EVALUACIÓN DEL
+MANEJO DE COMPETENCIA DEL ORGANISMO DE CERTIFICACIÓN DE ACUERDO
+CON INTE ISO/IEC 17021-1:2015 ................................................................................................ 36
+(OBLIGATORIO) ........................................................................................................................... 36
+ANEXO Vll: APLICACIÓN DE 17021-1:2015 PARA LA AUDITORÍA DE SISTEMAS DE
+GESTIÓN INTEGRADOS ............................................................................................................. 43
+(OBLIGATORIO) ........................................................................................................................... 43
+ANEXO VllI: RECOPILACIÓN DE DATOS PARA PROPORCIONAR INDICADORES DE
+RENDIMIENTO DE SISTEMA DE GESTIÓN DE ORGANISMOS DE CERTIFICACIÓN .............. 48
+(OBLIGATORIO) ........................................................................................................................... 48
+ANEXO IX: DOCUMENTO OBLIGATORIO DE IAF PARA LA AUDITORÍA Y
+CERTIFICACIÓN DE UN SISTEMA DE GESTIÓN OPERADO POR UNA
+ORGANIZACIÓN MULTISITIO ..................................................................................................... 51
+(Donde la aplicación del muestreo de sitios no es apropiada) ................................................ 51
+(OBLIGATORIO) ........................................................................................................................... 51
+ANEXO X: CRITERIOS PARA LA EVALUACIÓN DE ORGANISMOS DE
+CERTIFICACIÓN DE SISTEMAS DE GESTIÓN QUE CERTIFICACAN SISTEMAS DE
+GESTIÓN PARA LA IGUALDAD DE GÉNERO EN EL ÁMBITO LABORAL,
+RECONOCIDA POR EL INAMU. .................................................................................................. 57
+(OBLIGATORIO) ........................................................................................................................... 57
+6. IDENTIFICACIÓN DE CAMBIOS ......................................................................................... 74
+7. TRANSITORIO .................................................................................................................... 74
+1. OBJETIVO
+Establecer criterios de cumplimiento obligatorio para los Organismos de Certificación de Sistemas de Gestión (Calidad y/o Ambiental) acreditados o solicitantes de acreditación ante el ECA. Los criterios aquí definidos se pueden complementar con otros criterios de carácter específico para sistemas de gestión concretos como por ejemplo: certificación de Firma Digital.
+2. ALCANCE
+Aplica a la Secretaría de Acreditación de Organismos de Certificación, Cuerpo de Evaluadores y Expertos técnicos, Comité Asesor de Organismos de Certificación, Comisión de Acreditación y a Organismos de Certificación de Sistemas de Gestión (Calidad y/o Ambiental) acreditados o en proceso de acreditación.
+3. DEFINICIONES
+Son aplicables las definiciones pertinentes de la Guía ISO/IEC 2, la Norma INTE-ISO 9000, Norma INTE-ISO 14050, la Norma INTE- ISO/IEC 17000, la Norma INTE-ISO/IEC 17021-1, así como las siguientes:
+ OC: Organismo de Certificación.
+ SG: Sistema de Gestión.
+ SGA: Sistema de Gestión Ambiental
+ Organismo de Certificación: Tercera parte que evalúa y certifica el Sistema de Gestión Ambiental (SGA) de organizaciones con respecto a las normas publicadas sobre SGA u otros documentos normativos y a cualquier documentación complementaria requerida de acuerdo con el sistema.
+ Documento de Certificación: Documento que indica que el SG o SGA de una organización cumple con las normas especificadas del SG o SGA, según corresponda, y con cualquier otra documentación complementaria requerida de acuerdo con el sistema.
+ Sistema de Certificación: Sistema que posee sus propias reglas y procedimientos de gestión para llevar a cabo la evaluación, que tiene como resultado la emisión de un documento de certificación y el mantenimiento subsiguiente.
+ Organización: Compañía, corporación, firma, empresa, autoridad o institución, o parte o combinación de éstas, de responsabilidad limitada u otra, pública o privada, que tiene sus propias funciones y administración.
+Nota. Para las organizaciones con más de una unidad operativa, una sola unidad operativa puede ser definida como una organización.
+4. DOCUMENTOS MANDATORIOS
+Este documento incluye los documentos mandatorios de IAF aprobados a la fecha, todos ellos de aplicación obligatoria en las evaluaciones realizadas bajo los requisitos de la Norma INTE-ISO/IEC 17021-1.
+A efectos de clarificar la estructura del presente documento se entiende que, la palabra “debería” se utiliza para indicar disposiciones que son consideradas como un medio reconocido para cumplir con los requisitos de la norma. Un OEC puede cumplir estos requisitos por un modo equivalente siempre que esto pueda ser demostrado a un Organismo de Acreditación. La palabra “debe” es usada en este documento para indicar aquellas disposiciones que, reflejando los requisitos de la norma correspondiente, son obligatorias.
+En los Anexos de este documento se incluyen los correspondientes documentos mandatorios de IAF, de cumplimiento obligatorio para aquellos Organismos de Certificación de Sistemas a los cuales aplique.
+5. ANEXOS
+ANEXO I: CERTIFICACIÓN DE SITIOS MÚLTIPLES BASADA EN EL MUESTREO
+(OBLIGATORIO)
+(Tomado del Documento Mandatorio de IAF MD 1:2007)
+Este documento es obligatorio para la aplicación consistente del Apartado 9.1.5. Muestreo Multisitio de INTE-ISO/IEC 17021-1:2015 y se basa en la guía anteriormente brindada en IAF GD2: 2005 Anexo III y IAF GD6:2003, apartado G.5.3.5 – G.5.3.13. Todos los apartados de INTE-ISO/IEC 17021-1:2015 continúan aplicándose y este documento no sustituye ninguno de los requisitos en esta norma. Este documento obligatorio no es exclusivo para los Sistemas de Gestión de Calidad (SGC) ni para los Sistemas de Gestión Ambiental (SGA) y puede utilizarse para otros sistemas de gestión. Sin embargo, las normas relevantes pueden brindar los requisitos específicos para los multisitio o excluir el uso del muestreo (por ejemplo: ISO/IEC 27006, INTE-ISO/TS 22003).
+0. INTRODUCCIÓN
+Este documento es para la auditoría y, cuando sea apropiado, la certificación de sistemas de gestión en organizaciones con una red de sitios, de manera que se asegure, por una parte que la auditoría brinda la confianza necesaria en la conformidad del SG con la norma correspondiente en todos los sitios listados, y por otra parte que dicha auditoría sea económica y operativamente factible.
+Como regla general, las auditorías iniciales del sistema y posteriores auditorías de mantenimiento y recertificación deberían realizarse en todos los sitios cubiertos por la certificación. Sin embargo, cuando las actividades de la organización sujeta a certificación se realizan en diferentes sitios de manera similar estando todos ellos bajo la autoridad y el control de dicha organización, el OC puede establecer procedimientos para el muestreo de sitios en la auditoría inicial y posteriores auditorías de mantenimiento y recertificación. Este documento indica en qué condiciones los OC acreditados pueden hacer uso de esa opción incluyendo el cálculo de la muestra y la duración de la auditoría.
+Este documento no se aplica en auditorías de organizaciones que tienen sitios múltiples, o una combinación de sitios, pero en los cuales se llevan a cabo procesos o actividades esencialmente diferentes, aunque ellos estén bajo el mismo SG. En estas circunstancias, las razones por las cuales el OC realice una reducción en la auditoría normal completa de cada sitio, deberán ser justificadas en cada sitio donde una reducción sea propuesta.
+Este documento es aplicable a los OC acreditados que utilizan el muestreo en sus auditorías de organizaciones con sitios múltiples. Sin embargo, un OC acreditado puede desviarse de este documento a condición de poder justificarlo adecuadamente. Estas justificaciones deberán, a juicio del organismo de acreditación, demostrar que se puede obtener el mismo nivel de confianza en la conformidad del SG en todos los sitios.
+Cuando una organización es considerada como candidata para la certificación basada en muestreo, el OC debe tener disposiciones para explicar la aplicación de este documento a la organización previamente al desarrollo de la auditoría.
+1. DEFINICIONES
+1.1 Organización: El término organización es utilizado para designar a una empresa u otra organización que posee un SG sujeto a ser auditado y certificado.
+1.2 Sitio: Un sitio es una ubicación o localización permanente donde una organización lleva a cabo una tarea o un servicio.
+1.3 Sitio temporal: Un sitio temporal es aquel instalado por una organización para desarrollar tareas o servicios específicos por un período determinado, los cuales no se transformarán en un sitio permanente (por ejemplo en el área de la construcción).
+1.4 Sitios adicionales: Un nuevo sitio o grupo de sitios que será incluido a un certificado multisitio existente.
+1.5 Organización multisitios: Una organización multisitios se define como aquella que consiste en una función central (de aquí en adelante denominada “oficina central”, aunque no sea necesariamente la sede central de la organización) que planifica, controla o gestiona una serie de actividades que son ejecutadas en su totalidad o en parte por una red de oficinas o delegaciones (sitios).
+2. APLICACIÓN
+2.1 SITIO
+2.1.1 Un sitio puede incluir todo el espacio en donde las actividades bajo el control de una organización en una ubicación o localización dada son llevadas a cabo, incluyendo cualquier depósito, conectado o asociado, de materias primas, subproductos, productos intermedios, productos finales y residuos, y cualquier equipamiento o infraestructura relacionada con las actividades, ya sea fijas o no. En cambio, cuando sea requerido por Ley, se deben aplicar las definiciones establecidas en los regímenes de habilitación nacionales o locales.
+2.1.2 Cuando no es factible definir una ubicación o localización (por ejemplo en servicios), el alcance de la certificación debería tener en cuenta las actividades de la sede central de la organización así como la prestación de sus servicios. Cuando corresponda, el OC puede decidir que la auditoría de certificación sea llevada a cabo únicamente donde la organización presta sus servicios. En esos casos, todas las interfaces con la oficina central deben ser identificadas y auditadas.
+2.2 SITIO TEMPORAL
+2.2.1 Los sitios temporales que están cubiertos por el SG de la organización pueden ser auditados por muestreo a fin de proporcionar evidencia de la operación y eficacia del SG.
+Estos sitios pueden, sin embargo, ser incluidos en el alcance de una certificación multisitio, sujeto al acuerdo entre el OC y la organización cliente. Cuando estos sitios sean incluidos en el alcance, deberán ser identificados como temporales.
+2.3 ORGANIZACIÓN MULTISITIOS
+2.3.1 Una organización multisitios no necesita ser una entidad legal única, pero todos los sitios deben tener una relación legal o contractual con la oficina central y con el sitio temporal todos dentro del mismo SG, el que es establecido, y es sujeto a supervisión continua y a auditorías internas por la oficina central. Esto implica que dicha oficina central debe tener el derecho y la autoridad suficiente como para requerir que los sitios implementen las acciones correctivas que sean necesarias en cualquier sitio. Cuando sea aplicable, este derecho debería estar establecido en el acuerdo formal entre la oficina central y los sitios.
+Ejemplos de posibles organizaciones multisitios son:
+a) organizaciones que operan con franquicias;
+b) empresas fabricantes que disponen de una red de oficinas comerciales (el presente documento aplicaría a dicha red);
+c) empresas de servicio con sitios múltiples que ofrecen un servicio similar;
+d) empresas con múltiples delegaciones.
+3. ELECCIÓN DE UNA ORGANIZACIÓN PARA MUESTREO
+3.1 Los procesos de todos los sitios deben ser sustancialmente del mismo tipo, y deben estar operados bajo similares métodos y procedimientos. Cuando algunos de los sitios bajo consideración lleven a cabo procesos similares, pero menos procesos que otros sitios, pueden ser seleccionados para ser incluidos bajo la certificación multisitio siempre que los sitios que desarrollan la mayoría de los procesos o los procesos críticos sean objeto de auditorías completas.
+3.2 Las organizaciones que realizan sus negocios por medio de procesos vinculados, en diferentes ubicaciones o localizaciones pueden también ser elegidas para el muestreo siempre que todas las demás disposiciones de este documento sean cumplidas. Cuando los procesos en cada ubicación o localización no sean similares pero están claramente vinculados, el plan de muestreo debe incluir al menos un ejemplo de cada proceso llevado a cabo por la organización (por ejemplo fabricación de componentes electrónicos en una ubicación o localización, ensamble de estos componentes por la misma empresa en varias otras ubicaciones o localizaciones).
+3.3 El SG de la organización debe estar bajo un plan controlado y administrado centralmente y debe estar sujeto a revisiones por la dirección central. Todos los sitios pertinentes (incluidas las funciones de la administración central) deben estar sujetos al programa de auditorías internas y todos habrán sido auditados antes de que el OC comience sus auditorías.
+3.4 Debe demostrarse que la oficina central de la organización ha establecido un SG conforme con la correspondiente Norma de SG bajo auditoría y que toda la organización cumple los requisitos de la norma. Esto debe incluir consideraciones relativas a la legislación aplicable.
+3.5 La organización debería demostrar su capacidad para recopilar y analizar datos (incluyendo, pero no limitándose, a los puntos enunciados a continuación) de todos los sitios incluyendo la oficina central y su autoridad, así como debe demostrar su autoridad y capacidad para iniciar, si así se requiere, cambios en la organización:
+a) documentación del sistema y cambios del sistema;
+b) revisiones de la dirección;
+c) quejas;
+d) evaluación de las acciones correctivas;
+e) planificación de auditorías internas y evaluación de resultados;
+f) Cambios en aspectos e impactos asociados para SGA; y
+g) Diferentes requisitos legales.
+3.6 No todas las organizaciones que cumplen con la definición de “organización multisitios” serán adecuadas para el muestreo.
+3.7 No todas las normas de SG son adecuadas para ser consideradas para una certificación multisitio. Por ejemplo, el muestreo de multisitios podría ser inadecuado cuando la auditoria de factores locales variables es un requisito de la norma. Reglas específicas aplican también para algunos esquemas, por ejemplo el automotriz (TS 16949) y el aeroespacial (serie AS 9100) y los requisitos de cada esquema deben tener prioridad.
+3.8 Los OC deberían tener procedimientos documentados para restringir este muestreo, cuando el muestreo de sitios es inapropiado para conseguir la confianza suficiente en la efectividad del SG bajo auditoría. El OC debería definir estas restricciones en relación con:
+- sectores del alcance o actividades (por ejemplo basado en la evaluación de complejidad y riesgo asociados con determinado sector o actividad);
+- tamaño de los sitios seleccionados para auditorías multisitios;
+- variaciones en la implementación local del SG tales como la necesidad de un uso frecuente de planes dentro del SG para dirigir diferentes actividades o diferentes sistemas legales o contractuales;
+- utilización de sitios temporales que operan bajo el SG de la organización, los que no serán incluidos en el alcance de la certificación.
+4. ELECCIÓN DEL ORGANISMO DE CERTIFICACIÓN
+El OC debe proporcionar información a la organización cliente sobre la aplicación de este documento y las correspondientes normas de SG antes de iniciar el proceso de auditoría, y no debería iniciarlo si alguna de las disposiciones no se cumple. Antes de iniciar el proceso de auditoría, el OC debería informar a la organización cliente que el certificado no será emitido de acuerdo con este esquema si, durante la auditoría inicial se encuentran no conformidades.
+4.1 Revisión de contrato
+4.1.1 Los procedimientos del OC deberían asegurar que la revisión de contrato inicial identifica la complejidad y la escala de actividades cubiertas por el SG sujeto a certificación y cualquier diferencia en los sitios para poder determinar un nivel de muestreo adecuado.
+4.1.2 El OC debe identificar la función central de la organización con la cual el OC tiene un acuerdo legalmente ejecutable para la prestación de las actividades de certificación.
+4.1.3 El OC debe comprobar, en cada caso concreto, hasta qué punto los distintos sitios de una organización operan sustancialmente la misma clase de procesos, según los mismos métodos y procedimientos. Ver punto 3.1 de este Anexo para sitios que realizan menos procesos que otros sitios, pero similares, y el punto 3.2 de este Anexo para sitios que participan en procesos vinculados. Solamente después de un examen positivo llevado a cabo por el OC que garantice que todos los sitios propuestos cumplen con las disposiciones de elección, se puede aplicar el procedimiento de muestreo a los sitios individuales.
+4.1.4 Si todos los sitios de una organización de servicios donde la actividad sujeta a certificación no están en listos para someterse a certificación al mismo tiempo, se le debe requerir a la organización que informe con antelación al OC sobre los sitios que quiere sean incluidos en la certificación y aquellos que serán excluidos.
+4.2 Auditoría
+4.2.1 El OC debe tener procedimientos documentados que describan cómo lleva a cabo las auditorías dentro de este enfoque multisitios. Estos procedimientos deben establecer cómo el OC se asegura que el mismo SG que rige las actividades de todos los sitios, está actualmente aplicado en todos los sitios y que se cumplen todos los criterios de selección de la organización del punto 3 de este Anexo. Este requerimiento también se aplica a un SG en el que se utilice control electrónico de documentos, procesos o cualquier otro proceso electrónico. El OC debe justificar y registrar las razones para proceder con el enfoque multisitios.
+4.2.2 Si en la auditoría o seguimiento de la red de sitios está implicado más de un equipo auditor, el OC debería designar un único auditor líder cuya responsabilidad sea consolidar todos los hallazgos de todos los grupos auditores y elaborar un informe único.
+4.3 No conformidades
+4.3.1 Cuando no conformidades, como se definen en INTE-ISO/IEC 17021-1 punto 9.5.2 b), sean encontradas en cualquier sitio individual, ya sea bien en las auditorías internas de la organización cliente o bien en las auditorias del OC, se debería investigar si los demás sitios son afectados. Por lo tanto, el OC debería requerir a la organización cliente que revise todas las no conformidades para determinar si indican una deficiencia del sistema aplicable a todos los sitios o no. Si es así, se deberían realizar y verificar las acciones correctivas tanto en la oficina central como en los sitios afectados. Si no es así, la organización debería ser capaz de demostrarle al OC la justificación para limitar las acciones correctivas tomadas.
+4.3.2 El OC debe requerir evidencias de estas acciones y debe incrementar la frecuencia de muestreo y/o el tamaño de la muestra hasta que se demuestre que el control se ha reestablecido.
+4.3.3 En el proceso de toma de decisiones, si se ha identificado en cualquier sitio alguna no conformidad, como se definen en INTE-ISO/IEC 17021-1 punto 9.5.2 b), la certificación será denegada a toda la red de sitios listados de la organización en tanto en cuanto no se tomen acciones correctivas satisfactorias.
+4.3.4 No será admisible que, con el fin de resolver una no conformidad, la organización cliente excluya del alcance los sitios que hayan sido “problemáticos” durante el proceso de certificación. Tal exclusión puede ser únicamente acordada por anticipado (Ver punto 4.1.4 de este Anexo).
+4.4 Documentos de Certificación
+4.4.1 Pueden ser emitidos documentos de certificación (certificados) cubriendo múltiples sitios, siempre que cada sitio incluido en el alcance de la certificación haya sido tanto individualmente auditado por el OC o auditado utilizando el enfoque de muestreo indicado en este documento.
+4.4.2 El OC debe proporcionar documentos de certificación a sus clientes certificados por cualquier medio que el OC elija. Estos documentos de certificación deben cumplir totalmente con INTE-ISO/IEC 17021-1.
+4.4.3 Estos documentos deben contener el nombre y la dirección de la oficina central de la organización y una lista de todos los sitios a los que afecta el certificado. El alcance u otra referencia en estos documentos debe dejar claro que las actividades certificadas se realizan por la red de sitios mencionados en la lista. Si el alcance de certificación de los sitios se emite solo como una parte del alcance general de la organización, este hecho debe quedar claramente establecido. Cuando sitios temporales son incluidos en el alcance, tales sitios deben ser identificados como temporales en los certificados.
+4.4.4 Se podrán emitir certificados para cada sitio cubierto por la certificación siempre que contengan el mismo alcance, o parte de dicho alcance, y se incluya una clara referencia al certificado principal.
+4.4.5 Se deberá cancelar el certificado en su totalidad, si la oficina central o alguno de los sitios no cumplen las disposiciones necesarias para el mantenimiento del certificado.
+4.4.6 El OC debe mantener actualizada la lista de los sitios cubiertos por el certificado. Para ello deberá exigir a la organización cliente que le mantenga informado sobre el cierre de cualquiera de los sitios cubiertos por la certificación. Si no se produce dicha notificación, el OC deberá considerar este hecho como mal uso de la certificación y debería actuar de acuerdo con sus procedimientos.
+4.4.7 Como consecuencia de actividades de seguimiento, recertificación o extensión de alcance, sitios adicionales pueden añadirse a la certificación ya existente. El OC debe disponer de procedimientos documentados para la inclusión de nuevos sitios.
+5 MUESTREO
+5.1 Metodología
+5.1.1 La muestra debería ser parcialmente selectiva y parcialmente no selectiva y debería resultar en una variedad representativa de diferentes sitios a seleccionar, sin excluir el elemento aleatorio de esta selección.
+5.1.2 Por los menos el 25% de la muestra debería seleccionarse aleatoriamente.
+5.1.3 Una vez seleccionados los sitios según las disposiciones aquí expuestas, el resto deberá ser seleccionado de tal manera que se maximicen las diferencias entre los diferentes sitios seleccionados durante el periodo de validez del certificado.
+5.1.4 Los criterios de selección de los sitios pueden tener en cuenta, entre otros, los siguientes aspectos:
+a) los resultados de las auditorías internas del sitio y de revisiones por la dirección o de auditorías previas de certificación;
+b) registro de las quejas u otros aspectos relevantes sobre acciones correctivas o preventivas;
+c) variaciones significativas en el tamaño de los sitios;
+d) variaciones en el patrón de turnos y los procedimientos de trabajo;
+e) complejidad del SG y de los procesos realizados en los sitios;
+f) modificaciones desde la última auditoría de certificación;
+g) madurez del SG y conocimiento de la organización;
+h) cuestiones ambientales y amplitud de los aspectos e impactos asociados para SGA;
+i) diferencias en la cultura, el lenguaje y los requisitos reglamentarios; y
+j) dispersión geográfica.
+5.1.5 Esta selección no tiene por qué hacerse al inicio del proceso de auditoría. Incluso podría realizarse una vez completada la auditoría de la oficina central. En cualquier caso, la oficina central debe estar informada sobre los sitios que van a ser incluidos en la muestra.
+La comunicación de los sitios seleccionados puede hacerse con relativamente poca antelación, aunque con tiempo suficiente como para poder preparar la auditoría.
+5.2 Tamaño de la muestra
+5.2.1 El OC debe tener un procedimiento documentado para determinar la muestra a tomar durante la auditoría de los sitios como parte de una auditoría y certificación de una organización multisitios. Esto debería tener en cuenta todos los factores descritos en este documento.
+5.2.2 El OC debe tener registros de cada aplicación del muestreo multisitios, justificando que se realizó de acuerdo con este documento.
+5.2.3 El siguiente cálculo es un ejemplo basado en una actividad de riesgo medio con menos de 50 empleados en cada sitio. El número mínimo de sitios que han de ser visitados por cada auditoría es:
+- Auditoría inicial: El tamaño de la muestra (y) será la raíz cuadrada del número de sitios (x) redondeado al entero inmediato superior (y =  x).
+- Auditoría de seguimiento: El tamaño de la muestra anual será la raíz cuadrada del número de sitios reducido al 60% (y = 0.6  x, redondeado al entero inmediato superior).
+- Auditoría de recertificación: El tamaño de la muestra debería ser el mismo que en una auditoría inicial. No obstante cuando el SG ha probado su eficiencia en un periodo de tres años, el tamaño de la muestra podría ser reducido al 80% (y = 0.8  x, redondeado al entero inmediato superior).
+5.2.4 El OC debería definir en su SG los niveles de riesgo de las actividades como se describió arriba.
+5.2.5 La oficina central debe ser auditada en toda auditoría de certificación inicial y recertificación y, al menos, una vez al año como parte del seguimiento.
+5.2.6 El tamaño o frecuencia de la muestra debería ser incrementado cuando el análisis de riesgo realizado por el OC de las actividades cubiertas por el SG sujeto a certificación indique consideraciones especiales con respecto a factores tales como:
+a) el tamaño de los sitios y el número de empleados (por ejemplo más de 50 empleados en un sitio),
+b) la complejidad o el nivel de riesgo de las actividades y del SG,
+c) Variaciones en las prácticas laborales (por ejemplo horario de trabajo);
+d) variaciones en las actividades desarrolladas,
+e) importancia y amplitud de los aspectos e impactos asociados para SGA,
+f) registros de quejas y otros aspectos relevantes sobre acciones correctivas o preventivas,
+g) el posible componente multinacional de la organización, y
+h) resultados de las auditorías internas y revisión por la dirección.
+5.2.7 En el caso de organizaciones con un sistema jerárquico de niveles (sede central / oficinas nacionales / oficinas regionales / delegaciones locales), los criterios de muestreo definidos arriba son aplicables a cada uno de los niveles.
+Por ejemplo:
+· 1 Sede central: Visitada en cada ciclo de auditoría (inicial / seguimiento / recertificación)
+· 4 Oficinas nacionales: Muestra = 2: mínimo, 1 al azar
+· 27 Oficinas regionales: Muestra = 6: mínimo, 2 al azar
+· 1700 Delegaciones locales: Muestra = 42: mínimo, 11 al azar
+5.3 Duración de las auditorías
+5.3.1 El tiempo empleado para cada sitio es un elemento importante a considerar y el OC tiene que ser capaz de justificar el tiempo empleado en auditorías multisitios en términos de su política global de establecimiento del tiempo de auditoría.
+5.3.2 El número de días - hombre por sitio, incluyendo la oficina central, debería ser calculado para cada sitio usando el documento de IAF vigente para el cálculo de días – hombre para la norma correspondiente.
+5.3.3 Se pueden aplicar reducciones teniendo en cuenta las cláusulas que no sean aplicables a la oficina central y/o a los sitios. Las razones que justifican tales reducciones deben ser registradas por el OC.
+Nota: Los sitios que llevan a cabo la mayoría de los procesos o los procesos críticos no pueden ser sujetos a reducciones (ver punto 3.1 de este Anexo).
+5.3.4 El tiempo total empleado en una auditoría inicial y en los seguimientos es la suma total del tiempo empleado en cada sitio más la oficina central y no debería ser nunca menor que el que habría resultado para el tamaño y la complejidad de la organización si todo el trabajo se llevara a cabo en un único sitio (esto es con todos los empleados de la organización en el mismo sitio).
+5.4 Sitios adicionales
+5.4.1 Para ser añadido en la red certificada, cada nuevo grupo de sitios debería ser considerado como independiente para la determinación del tamaño de la muestra. Después de incluirlo en el certificado, el nuevo grupo de sitios se acumula a los previos para el cálculo del muestreo para las próximas visitas de seguimiento o recertificaciones.
+ANEXO II: TRANSFERENCIA DE LA CERTIFICACIÓN ACREDITADA DE SISTEMAS DE GESTIÓN
+(OBLIGATORIO)
+(Tomado del Documento Mandatorio de IAF MD 2:2007)
+Este documento es mandatorio para la aplicación consistente del punto 9.1.3 Programa de Auditoría de la INTE- ISO/IEC 17021-1 y está basado en directrices previamente establecidas en el Anexo IV de IAF GD 2:2005 y en el Anexo II de IAF GD 6:2006. Todos los puntos de la INTE ISO/IEC 17021-1 son aplicables, este documento no reemplaza ninguno de los requisitos de la misma. Este documento mandatorio no es exclusivamente para Sistemas de Gestión de la Calidad (SGC) y Sistemas de Gestión Ambiental (SGA), ya que puede ser utilizado para otros Sistemas de Gestión (SG).
+0. INTRODUCCIÓN
+Este documento proporciona criterios normativos para la transferencia de las certificaciones de SG entre los OC. Los criterios pueden ser también aplicables en el caso de adquisiciones de OC acreditados por un signatario del MLA de IAF.
+El objetivo de este documento es el asegurar el mantenimiento de la integridad de las certificaciones de SG emitidos por un OC, si van a ser posteriormente transferidos a otro OC.
+El documento proporciona criterios mínimos para la transferencia de certificaciones. Los OC pueden adoptar procedimientos de transferencia más exigentes que lo contenido en este documento con tal que no se limite de manera indebida la libertad de una organización cliente para elegir OC.
+1. DEFINICIÓN
+1.1 Transferencia de la certificación: La transferencia de una certificación se define como el reconocimiento de una certificación de SG existente y válida, concedida por un OC acreditado (de aquí en adelante denominado como “el OC emisor”), por otro OC acreditado (de aquí en adelante denominado “el OC receptor”) con el fin de emitir su propia certificación.
+Nota: En esta definición no se incluye el caso de certificación múltiple (certificación simultánea por más de un OC). IAF no fomenta este tipo de certificación.
+2. REQUISITOS MÍNIMOS
+2.1. Acreditación
+2.1.1 Solamente certificaciones que están cubiertas por una acreditación de un signatario del MLA de IAF pueden ser seleccionadas para transferencia. Las organizaciones que posean una certificación que no esté cubierta por aquellas acreditaciones deben ser tratadas como nuevos clientes.
+2.2. Revisión antes de la transferencia
+2.2.1 Una persona competente del OC receptor debe llevar a cabo una revisión de la situación de la certificación del posible cliente. La revisión debe llevarse a cabo por medio de una revisión de la documentación y debería, normalmente, incluir una visita al posible cliente. Las razones para no llevar a cabo una visita deben ser totalmente justificadas y documentadas, y la visita debe realizarse si no puede contactarse al OC emisor. La revisión debería cubrir los siguientes aspectos y sus hallazgos deben ser totalmente documentados:
+Confirmación de que las actividades certificadas del cliente entran dentro del alcance acreditado del OC receptor;
+Las razones para solicitar la transferencia;
+Que el sitios o sitios que buscan la transferencia de la certificación tenga una certificación acreditada que sea válida, en términos de autenticidad, duración y alcance de las actividades cubiertas por la certificación del SG. Si es posible, tanto la validez de la certificación como el estado de las no conformidades abiertas deberían ser verificados con el OC emisor, a no ser que este haya abandonado sus actividades. Cuando la comunicación con el OC emisor no ha sido posible, el OC receptor debe registrar las razones;
+Un estudio de los últimos informes de auditorías de certificación o recertificación, de las subsiguientes visitas de seguimiento y cualquier no conformidad que pueda surgir de éstos.
+Este estudio debe incluir cualquier otra documentación aplicable disponible relativa al proceso de certificación, por ejemplo notas escrita a mano, lista de verificación, etc. Si los informes de la última auditoría de certificación, recertificación o seguimiento no son puestos a disposición o si el plazo para la auditoría de seguimiento ha vencido, la organización debe ser tratada como un cliente nuevo;
+Quejas recibidas y acciones llevadas a cabo;
+La etapa del ciclo actual de certificación. Ver párrafo 2.3.4 de este Anexo; y Cualquier compromiso actual de la organización con organismos reguladores con respecto a cumplimientos legales.
+2.3 Certificación
+2.3.1 Normalmente, solo una certificación acreditada válida debería ser transferida. En los casos en que la certificación ha sido emitida por un OC que ha dejado de desarrollar su actividad o al que su acreditación ha vencido, ha sido suspendida o cancelada, el OC receptor podría considerar este certificado para transferirlo a su propio criterio. En tales casos, antes de proceder con la transferencia, el OC receptor debe obtener el acuerdo del organismo de acreditación, cuya marca pretende colocar en el certificado. En el caso de adquisiciones el OC adquirente debería, cuando sea posible, cumplir con las obligaciones contractuales del OC adquirido.
+2.3.2 La certificación de la que se sepa que ha sido suspendida o que está bajo amenaza de suspensión, no deben ser aceptadas para transferirse. Si el OC receptor no ha sido capaz de verificar el estatus de la certificación con el OC emisor, se le debe requerir a la organización cliente que confirme que el certificado no está suspendido o bajo amenaza de suspensión.
+2.3.3 Las no conformidades pendientes deberían cerrarse, si es posible, con el OC emisor, antes de la transferencia. De otra manera, deberían ser cerradas por el OC receptor.
+2.3.4 Si no se identifican más problemas pendientes o potenciales en la revisión pretransferencia, podría ser emitida una certificación siguiendo el proceso normal de toma de decisiones. El programa de los siguientes seguimientos debería estar basado en el cronograma de la certificación previa a menos que, como resultado de la revisión, el OC receptor haya llevado a cabo una auditoría inicial o una auditoria de recertificación.
+2.3.5 Cuando, después de la revisión pretransferencia, exista alguna duda de la adecuación de una certificación actual o una tenida previamente, el OC receptor debe, dependiendo de la magnitud de la duda:
+Tratar al solicitante como un nuevo cliente, o llevar a cabo una auditoría concentrada en las áreas donde se han identificado los problemas.
+La decisión sobre la acción necesaria dependerá de la naturaleza y amplitud de los problemas encontrados y debe explicarse a la organización y la justificación de la decisión debe ser documentada y los registros mantenidos por el OC.
+ANEXO lll: PROCEDIMIENTOS AVANZADOS DE SEGUIMIENTO Y RECERTIFICACIÓN
+(OBLIGATORIO)
+(Tomado del Documento Mandatorio de IAF MD 3:2008)
+Este documento proporciona criterios normativos para Procedimientos Avanzados de Seguimiento y Recertificación (en inglés ASRP), para la aplicación consistente del punto 9.1.3 Programa de Auditoría de la INTE – ISO/IEC 17021-1 en la determinación subsiguiente de ajustes al programa de auditorías. Este documento rige exclusivamente para Sistemas de Gestión de la Calidad (SGC) y Sistemas de Gestión Ambiental (SGA), en los cuales los miembros de IAF han tenido experiencia en la implementación de ASRP o sus metodologías predecesoras. El uso de ASRP no es mandatario, pero si un organismo de acreditación desea permitirle a sus OC acreditados y a sus clientes optar por el uso de ASRP, es requisito de IAF que el OC y sus clientes cumplan con este documento y sean capaces de demostrar la conformidad al organismo de acreditación.
+0. INTRODUCCIÓN
+Cuando una organización cliente, cuyo SG (SGC y/o SGA) se haya hecho merecedor de confianza a través de la demostración continua de su eficacia por un período de tiempo, el OC, con el acuerdo de la organización, puede optar por aplicar el Procedimiento Avanzado de Seguimiento y Recertificación (ASRP) establecido en este documento. El programa avanzado de seguimiento y recertificación puede depositar una mayor confianza (pero no total) en los procesos de auditoría interna y de revisión por la dirección de la organización, incluir temas seleccionados para el seguimiento, incluir aspectos seleccionados como objetivos en los seguimientos, tener en cuenta aspectos específicos de la organización en cuestión para su diseño y/o la utilización de otros métodos, cuando así sea oportuno, para demostrar conformidad del SG.
+El objetivo de este documento es asegurar que se consiga una auditoría eficaz y más eficiente de las organizaciones con un desempeño demostrado y al mismo tiempo mantener la integridad de los certificados acreditados de SG.
+Este documento establece requisitos mínimos para la aplicación del ASRP. Los OC pueden adoptar procedimientos o acciones más exigentes que lo contenido en este documento, con tal que no se limite de manera indebida una solicitud justificada para que se le aplique ASRP.
+1. REQUISITOS MÍNIMOS
+1.1. Pre-requisitos
+Para utilizar el ASRP, el OC debe demostrar primero, a un organismo de acreditación firmante del MLA de IAF, lo siguiente:
+a) Que ha estado aplicando un esquema de certificación acreditado para el SG correspondiente (SGC y/o SGA), como mínimo a lo largo de un ciclo completo de acreditación.
+b) Que es competente para diseñar un programa de ASRP para cada organización concreta en el SG correspondiente (SGC y/o SGA), de acuerdo con los requisitos de la INTE-ISO 9001:2015, cláusula 8.3, utilizando los criterios para los aspectos de diseño mencionados en la cláusula 1.3.2 de este Anexo que se detalla más adelante.
+Nota: La referencia aquí es hecha respecto a INTE-ISO 9001 puesto que esto especifica los requisitos para el OC en el diseño de un programa de ASRP, a pesar de que el mismo aplica tanto para SGC como SGA.
+1.2. Alcance de acreditación
+La competencia del OC para cumplir con el punto 1.1 b) anterior debe ser evaluada por el organismo de acreditación. Solo después y si el resultado es satisfactorio, se debe incluir en el alcance de acreditación del OC una referencia específica al reconocimiento para aplicar el ASRP.
+1.3. Criterios para la selección y los datos de entrada del diseño
+El OC debe informar al organismo de acreditación antes de cada nueva utilización del ASRP para cada organización específica, y tiene que demostrar que se han satisfecho los siguientes criterios de 1.3.1 y 1.3.2.
+1.3.1. Criterios de selección
+a) El OC debe demostrar que el SG de la organización se ha mantenido conforme con los requisitos de la (s) norma (s) aplicable (s) durante un periodo de tiempo de, al menos, un ciclo completo de certificación incluyendo auditoría inicial, de seguimiento y de recertificación.
+Nota: El OC puede basar la confirmación de esa demostración de conformidad en los resultados de la primera recertificación (no realizada mediante el ASRP) de la organización realizada al final de un ciclo de certificación de tres años.
+b) Deben haber sido resueltas satisfactoriamente todas las no conformidades que hubieran surgido durante el ciclo de certificación inmediatamente anterior a la utilización del ASRP.
+c) Para un SGA, el OC debe confirmar que la organización ha establecido cumplimiento con los requisitos legales aplicables y no ha tenido ninguna sanción impuesta por las autoridades regulatorias correspondientes por el período indicado en el punto a) antes mencionado.
+d) El OC debe haber acordado indicadores de desempeño adecuados con la organización, mediante los cuales se juzgará la eficacia del SG, y debe asegurar que la organización está cumpliendo de manera continua los objetivos de desempeño acordados.
+ Para un SGC, estos indicadores de desempeño deben abordar como mínimo, la capacidad demostrada de la organización para proporcionar de forma continua productos que cumplan los requisitos del cliente y los reglamentarios aplicables (ver INTE-ISO 9001:2015 cláusula 1.1) y deben incorporar requisitos para la mejora continua de la eficacia del SGC.
+Nota: Para un SGC, “indicador” significa una característica que puede ser medida y “objetivo” significa los requisitos cuantitativos / cualitativos que hay que cumplir.
+ Para un SGA, estos indicadores de desempeño deben abordar como mínimo, la capacidad demostrada de la organización para alcanzar el cumplimiento de su política ambiental, los objetivos y metas, y cumplir con los requisitos legales y otros aplicables relacionados a sus aspectos ambientales (ver INTE-ISO 14001:2015 cláusula 4.3.2) y deben incorporar requisitos para la mejora continua y la prevención de la contaminación.
+Nota: Para un SGA, “indicador” significa una característica que puede ser medida y “objetivo” usado en el contexto del desempeño significa los requisitos cuantitativos / cualitativos que hay que cumplir, los que son considerados como idénticos a los “objetivos ambientales” como se define en INTE-ISO 14001.
+e) El OC debe tener acuerdos ejecutables con la organización, por los cuales se le permita el acceso a la información relevante. Para un SGC, esta información son todos los datos recogidos, o bien disponibles, sobre la satisfacción de los clientes. Para un SGA, esta información son todas las comunicaciones relevantes de las partes interesadas externas, y en particular la autoridad regulatoria correspondiente. Cuando el OC necesite comunicarse directamente con la fuente de dicha información con el fin de validarla, se deben aplicar políticas y procedimientos de confidencialidad acordados mutuamente.
+f) El OC debe verificar que el proceso de auditoría interna de la organización se rige de acuerdo con las directrices de la norma INTE-ISO 19011, con atención especial a la competencia de los auditores, definida en la cláusula 7. El proceso de auditoría interna debe estar lo suficientemente coordinado e integrado como para proporcionar una evaluación del SG en su totalidad, no solamente del desempeño de los componentes individuales.
+g) El OC debe tener estipulado, por contrato legal, los puntos necesarios que le permitan aumentar el alcance, la frecuencia y la duración de sus auditorías en el caso de que se deteriore la capacidad de la organización para cumplir con los objetivos de desempeño acordados.
+1.3.2. Criterios para los datos de entrada del diseño
+Además de los datos de entrada específicos de diseño para una organización en particular, el diseño de cada ASRP debe cumplir lo siguiente:
+a) La frecuencia y duración de las auditorías del OC deben ser suficientes para que se cumpla con este documento de criterios, en particular con los puntos b) y c) siguientes, entre otros.
+Para cada uso proyectado del ASRP, el OC debe determinar, como nivel de base, el tiempo auditor utilizando el correspondiente documento de IAF (sin considerar el ASRP) y si es aplicable el IAF MD 1 para muestreo de multisitios. Si el OC planifica un ASRP que reduzca el tiempo auditor a menos del 70% de este nivel básico, debe justificar dicha reducción y solicitar la aprobación expresa del organismo de acreditación antes de su puesta en práctica.
+Nota: Los Documentos Mandatorios de IAF aplicables al tiempo de auditoría para SGC y SGA están en desarrollo. Hasta que estos estén disponibles, los Anexos II y III del presente documento deben continuar siendo aplicados para determinar el tiempo total de auditoría (Etapa 1 + Etapa 2).
+b) Además de auditar un número estadísticamente significativo de muestras de los procesos del SG para confirmar la adecuación y eficacia del proceso de auditoría interna, el OC debe continuar llevando a cabo, por sí mismo, las siguientes actividades, como mínimo, en cada una de las auditorías “in situ” de seguimiento y de recertificación (junto con otras actividades definidas por el ASRP; ver la cláusula 1.4 a continuación):
+- entrevista con la alta dirección y su representante;
+- evaluación de los datos de entrada y de los resultados de la revisión por la dirección, incluyendo una verificación de la capacidad de la organización para cumplir con los objetivos de desempeño acordados;
+- revisión del proceso de auditoría interna, incluyendo sus procedimientos y registros así como la competencia de los auditores internos;
+- revisión de los planes de acciones correctivas y preventivas y verificar la eficacia de su implementación.
+c) El OC debe asegurar que se continúa cumpliendo con todos los requisitos para la certificación acreditada (incluyendo los requisitos de la Norma INTE-ISO/IEC 17021-1 y los de cualquier otro esquema sectorial aplicable).
+1.4. Resultados del diseño
+Los resultados del diseño para cada aplicación del programa de ASRP del OC deben incluir lo siguiente (a) – (f):
+a) El grado en el que el OC utilizará los procesos de auditoria interna y de revisión por la dirección de la organización para complementar sus actividades;
+b) Los criterios para presenciar las auditorías internas de la organización, que incluyan el muestreo a realizar entre los auditores y los procesos que se vayan a auditar;
+c) Los criterios de aceptación y supervisión de la competencia de los auditores internos de la organización y del método de informe de los resultados de la auditoría interna;
+d) Los criterios para llevar a cabo ajustes continuos al programa de auditoría, que tengan en cuenta la capacidad demostrada de la organización, con el paso del tiempo, para cumplir los objetivos de desempeño acordados;
+e) Los componentes del SG que serán auditados obligatoriamente por el OC en cada visita de seguimiento y recertificación (ver 1.3.2 b de este Anexo); y
+f) Los criterios particulares de competencia para los auditores del OC y, si aplica, para los expertos técnicos.
+1.5. Certificados
+El OC no debe hacer diferencias en los certificados emitidos, entre los que provengan de la metodología ASRP y los que no.
+ANEXO lV: USO DE TÉCNICAS DE AUDITORÍA ASISTIDAS POR COMPUTADORA (“CAAT”) PARA LA CERTIFICACIÓN ACREDITADA DE LOS SISTEMAS DE GESTIÓN
+(OBLIGATORIO)
+(Tomado del Documento Mandatorio de IAF MD 4:2008)
+Este documento mandatorio es para la aplicación consistente de la INTE-ISO/IEC 17021-1 cuando son utilizadas, como parte de la metodología de auditoría, técnicas de auditoría asistidas por computadora (en inglés CAAT). El uso de CAAT no es mandatorio, pero si un Organismo de Certificación y su cliente optan por su uso, es mandatorio que cumplan con este documento y puedan demostrar su conformidad al Organismo de Acreditación.
+0. INTRODUCCIÓN
+Como las tecnologías de la información y la comunicación se vuelven cada vez más sofisticadas, es importante para los OC que sean capaces de usar CAAT para mejorar la eficacia y eficiencia de auditoría, y para respaldar y mantener la integridad del proceso de auditoría.
+Nota: Directrices sobre el uso de CAAT pueden obtenerse en el sitio web del ISO/IAF APG (Auditing Practices Group): www.iso.org/tc176/ISO9001AuditingPracticesGroup
+Estas CAAT pueden incluir, por ejemplo:
+- Teleconferencias,
+- Reuniones a través de la web,
+- Comunicaciones interactivas basadas en la web,
+- Acceso remoto electrónico a la documentación del Sistema de Gestión (SG) y/o a los procesos del Sistema de Gestión (SG).
+Los objetivos de la aplicación efectiva de CAAT son:
+a) Proveer una metodología que es suficientemente flexible y no prescriptiva a modo de satisfacer las necesidades de la industria, permitiendo a las organizaciones clientes y sus respectivos OC el uso de CAAT para mejorar el proceso convencional de auditoría, y
+b) Asegurar que se establecen controles adecuados que brinden la suficiente tranquilidad para el Organismo de Acreditación respecto de que se eviten abusos y para prevenir presiones comerciales excesivas que podrían comprometer la integridad del proceso de certificación.
+1. REQUISITOS
+1.1 Confidencialidad
+De acuerdo con INTE-ISO/IEC 17021-1, punto 8.4.1, la seguridad y confidencialidad de la información electrónica o electrónicamente transmitida es particularmente importante cuando un OC está utilizando CAAT. El OC debería acordar sobre las medidas de seguridad de la información mutuamente aceptables con su cliente antes de usar CAAT.
+1.2 Requisitos del proceso
+1.2.1 Adicionalmente a los requisitos de INTE-ISO/IEC 17021-1, punto 9.2.3, el plan de auditoría debe identificar cualquier CAAT que será utilizada.
+1.2.2 Adicionalmente a los requisitos de INTE-ISO/IEC 17021-1, punto 9.2.2, Selección del equipo auditor y asignación de tareas, cuando se usen CAAT, debe darse específica atención a la capacidad de los auditores para entender y utilizar las tecnologías de información empleadas por la organización cliente para administrar sus procesos del SG.
+1.2.3 Adicionalmente a los requisitos de INTE-ISO/IEC 17021-1, punto 9.1.4, Determinación del tiempo de auditoría, si un OC utiliza CAAT, esto puede ser considerado como una contribución parcial al total del tiempo auditor in situ. Si las actividades de auditoría remota representan más del 30% del tiempo auditor in situ planificado, el OC debe justificar el plan de auditoría y obtener aprobación específica del Organismo de Acreditación antes de su implementación.
+Notas:
+ Se espera que esta “aprobación específica” será hecha inicialmente sobre una base caso por caso, pero esto no excluye una “aprobación global” del Organismo de Acreditación al OC para sobrepasar una reducción del 30% una vez que el OC ha demostrado que su proceso es robusto.
+ El tiempo auditor in situ refiere al tiempo auditor in situ asignado para sitios individuales. Auditorías electrónicas de sitios remotos son consideradas como auditorías remotas, aún si la auditoría electrónica es físicamente llevada a cabo desde otros establecimientos de la organización cliente.
+1.2.4 Adicionalmente a los requisitos de INTE-ISO/IEC 17021-1, punto 9.4.8, los informes de auditoría deben indicar la amplitud con la que CAAT ha sido utilizada al llevar a cabo la auditoría, y como esto contribuye a la eficacia y eficiencia de la auditoría.
+1.2.5 Adicionalmente a los requisitos de INTE-ISO/IEC 17021-1, punto 9.1.2.1 a), cuando el OC está proponiendo el uso de CAAT como parte de la auditoría, la revisión de la solicitud debe incluir la verificación de que la organización cliente tiene la infraestructura necesaria para respaldar este enfoque.
+1.2.6 Adicionalmente a los requisitos de INTE-ISO/IEC 17021-1, punto 9.1.3.3, a pesar del uso de CAAT, la organización debe ser físicamente visitada como mínimo anualmente.
+1.2.7 Adicionalmente a los requisitos de INTE-ISO/IEC 17021-1, punto 9.9.2, los registros deben indicar la amplitud con la cual CAAT ha sido utilizada al llevar a cabo la auditoría y la certificación.
+ANEXO V: DURACIÓN DE AUDITORÍAS DE SGC Y SGA.
+(OBLIGATORIO)
+(Tomado del Documento Mandatorio de IAF MD 5:2015)
+El término "debería" se utiliza en este documento para indicar medio reconocido de cumplimiento de los requisitos de la norma. Un organismo de evaluación de la conformidad puede cumplir con estos en forma equivalente siempre que esta se puede demostrar a un organismo de acreditación.
+El término "debe" se utiliza en este documento para indicar las disposiciones que refleja los requisitos de la norma en cuestión son obligatorias.
+Este documento es mandatorio para la aplicación sistemática de las cláusulas relevantes de la INTE ISO/IEC 17021-1 +, en auditorías de SGCs y SGAs. Todas las cláusulas de la INTE ISO/IEC 17021-1- continúan aplicando y este documento no superpone ninguno de los requerimientos de esa norma Aunque el número de personal (permanente, temporal y a tiempo parcial) del cliente es usado como un punto de partida cuando se considera la duración de la auditoría, esto no debe ser lo único bajo consideración y debe tenerse en cuenta otros factores que afectan la duración de la auditoría, incluyendo los listados en la INTE ISO/IEC 17021-1.
+0. INTRODUCCIÓN
+0.1 La correcta determinación del tiempo de auditoría para una auditoría inicial (Etapa 1 más Etapa 2) es una parte integral de la revisión de la solicitud para cualquier organización del cliente.
+0.2 Este documento proporciona disposiciones mandatorias y directrices para los OCs para desarrollar sus propios procedimientos documentados para determinar la cantidad de tiempo requerido para la auditoría de clientes de diferentes tamaños y complejidad dentro de un amplio espectro de actividades. La intención de este documento es que conduzca a una consistencia de la duración de auditorías entre los OCs, como así también entre clientes similares del mismo OC.
+0.3 Los OCs deben identificar la duración para la etapa 1 y etapa 2 de la auditoría en la auditoría inicial, auditorías de seguimiento, y auditorías de re-certificación para cada solicitante y cada cliente certificado.
+0.4 Este documento mandatorio proporciona un marco de trabajo que debe ser utilizado por los OCs dentro de sus procesos para determinar de forma apropiada el tiempo de auditoría de los sistemas de gestión, teniendo en cuenta las características específicas del cliente a ser auditado.
+0.5 Aunque este documento está dirigido para certificaciones de SGCs y SGAs, puede ser utilizado para otros esquemas de certificación basados 17021-1. Ejemplos son: la aplicación de la duración del tiempo de auditoría, días de auditoría y personal efectivo.
+0.6 Sin perjuicio de la orientación proporcionada por este documento, el tiempo asignado para una auditoría específica debería ser suficiente para planificar y llevar a cabo una auditoría completa y eficaz del sistema de gestión del cliente.
+1. DEFINICIONES
+1.1 Esquema de Certificación de Sistemas de Gestión
+Sistema de evaluación de la conformidad en relación con los sistemas de gestión a la que se aplican los mismos requisitos especificados, reglas y procedimientos específicos.
+1.2 Organización Cliente
+Entidad o parte definida de una entidad que opera un sistema de gestión.
+1.3 Sitio permanente
+Ubicación (física o virtual), donde una organización cliente (1,2) realiza un trabajo o presta un servicio en forma continua.
+1.4 Sitio virtual
+Lugar virtual donde una organización cliente realiza el trabajo o presta un servicio utilizando un entorno en línea permitiendo personas independientemente de su ubicación física para ejecutar procesos.
+Nota 1: Un sitio virtual no se puede considerar en los procesos que deben ser ejecutados en un entorno físico, por ejemplo, el almacenamiento, fabricación, pruebas físicas laboratorios, la instalación o la reparación de productos físicos.
+Nota 2: Un sitio virtual (por ejemplo, la intranet de la empresa) se considera un solo sitio para el cálculo del tiempo de auditoría.
+1.5 sitio Temporal
+Ubicación (física o virtual), donde una organización cliente (1,2) realiza un trabajo específico o presta un servicio por un período finito de tiempo y que no está destinado a convertirse en un sitio permanente (1.3).
+1.6 Tiempo de auditoría
+Tiempo necesario para planificar y llevar a cabo una auditoría completa y eficaz del sistema de gestión de la organización del cliente (INTE ISO IEC 17021-1).
+1.7 Duración de las auditorías de certificación de sistemas de gestión Parte del tiempo de auditoría (1.6) para la conducción de todas las actividades de auditoría desde la reunión de apertura hasta la reunión de cierre, inclusive.
+Nota: Las actividades de auditoría normalmente incluyen:
+ la realización de la reunión de apertura
+ la realización de la revisión de documentos, mientras se realiza la auditoría
+ la comunicación durante la auditoría
+ la asignación de roles y responsabilidades de los guías y observadores
+ la recopilación y verificación de la información
+ Generación de hallazgos de auditoría
+ Preparación de las conclusiones de la auditoría
+ la realización de la reunión de cierre
+1.8 Día auditor
+La duración de un día de auditoría es normalmente 8 horas y puede o no incluir el tiempo para el almuerzo, dependiendo de la legislación local.
+1.9 Número efectivo de personal
+El número efectivo de personal se compone de todo el personal de tiempo completo que participa en el alcance de la certificación, incluidos los que trabajan en cada turno. El personal no permanente (estacional, temporal y personal contratado) y el personal a tiempo parcial que estará presente en el momento de la auditoría debe ser incluido en este número.
+1.10 Categoría de Riesgo (SGC solamente)
+Para SGC, las disposiciones contenidas en este documento se basan en tres categorías, dependiendo de los riesgos planteados por falla del producto o servicio de la organización del cliente. Estas categorías pueden ser considerados como alto, medio o bajo riesgo.
+Actividades de alto riesgo (por ejemplo, nuclear, médica, farmacéutica, alimentos, construcción) normalmente requieren más tiempo de auditoría.
+Actividades de riesgo medio (por ejemplo, simple fabricación) es probable que requieran el tiempo medio para llevar a cabo una auditoría eficaz y actividades de bajo riesgo menos tiempo. (Ver Apéndice A, Tabla SGC 2)
+1.11 Complejidad Categoría (EMS solamente)
+Para los sistemas de gestión medioambiental, las disposiciones especificadas en este documento se basan en cinco categorías de complejidad primaria de la naturaleza, el número y la gravedad de los aspectos ambientales de una organización que afectan fundamentalmente el tiempo de auditoría. (Ver Apéndice B, Tabla EMS 2)
+1.11 Categoría de complejidad (solo para SGA)
+Para SGA, las disposiciones mencionadas en este documento se basan en cinco categorías de complejidad de la naturaleza, el número y la gravedad de los aspectos ambientales de una organización que afectan fundamentalmente el tiempo de auditoría. (Ver Apéndice B, Tabla EMS 2)
+2. APLICACIÓN
+2.1 Tiempo de auditoría
+2.1.1 El tiempo de auditoría incluye el tiempo total en el sitio en los establecimientos del cliente (física o virtual) (1.7) y el tiempo dedicado fuera del sitio para llevar a cabo la planificación, la revisión documental, la interacción con el personal del cliente y el informe escrito.
+2.1.2 La duración de las auditorías de certificación de sistemas de gestión (1.7) no debería durar menos del 80% del tiempo calculado normalmente con la metodología de la Sección 3. Esto se aplica a las auditorías iniciales, de seguimiento y de recertificación.
+2.1.3 Los viajes (hacia el sitio o entre sitios) y los descansos no se incluyen en la duración de la gestión de las auditorías de certificación del sistema.
+Nota: Véase punto 1.8. Es posible que haya un requisito legal local para incluir la hora del almuerzo.
+2.2 Días de Auditoría
+2.2.1 Las tablas 1 de SGC y SGA presentan el tiempo promedio de duración de auditorías de certificación de sistemas de gestión calculadas en días de auditorías. Se pueden necesitar ajustes nacionales sobre el número de días para cumplir con la legislación local para viaje, la hora del almuerzo y las horas de trabajo, para lograr el mismo número total de días de auditoría de las Tablas 1
+2.2.2 El número de días de auditoría asignados no debe reducirse en las etapas de planificación por programar más horas por día de trabajo. Esta consideración puede realizarse para permitir una auditoría eficiente de las actividades realizadas por turnos, que pueden requerir horas adicionales en una jornada de trabajo.
+2.2.3 Si después del cálculo el resultado es un número decimal, el número de días debería ajustarse al medio día más cercano (Por ejemplo: 5.3 días de auditoría se convierten 5.5 días de auditoría; 5.2 días de auditorías se convierten en 5 días de auditoría).
+2.2.4 Para ayudar a asegurar la efectividad de la auditoría, los OCs deberían también considerar la composición y tamaño de su equipo auditor (por ejemplo: medio día con 2 auditores podría no será tan efectivo como un día de auditoría con 1 auditor o 1 un día de auditoría con un auditor líder y un experto técnico es más efectivo que 1 día de auditoría sin experto técnico).
+Nota 1: ECA podría requerir que los OCs demuestren que el tiempo de auditoría promedio de algunos clientes específicos, no es ni más ni menos que el tiempo de auditoría calculado a partir de las tablas SGC 1 y SGA 1.
+Nota 2: Los OCs que trabajan principalmente en industrias complejas o de alto riesgo es probable que tengan un promedio superior a las tablas y los OCs que trabajan principalmente con industrias de bajo riesgo es probable que tengan una media inferior a las tablas.
+2.3 Cálculo del Número Efectivo de Personal
+2.3.1 El número efectivo de personal como se definió anteriormente se utiliza como base para el cálculo de tiempo de auditoría de sistemas de gestión. Las consideraciones para determinar el número efectivo de empleados incluye el personal de medio tiempo y empleados que entran de forma parcial en el alcance, las personas que trabajan por turnos, personal administrativo y todas las categorías de personal fuera de la oficina, los procesos repetitivos y el empleo de un gran número de personal no calificado en algunos países.
+2.3.2 La justificación para determinar el número efectivo de personal debe estar disponible para el cliente de la organización y para el organismo de acreditación a petición y para su revisión durante sus evaluaciones.
+2.3.3 Personal de medio tiempo y empleados que se encuentran parcialmente en el alcance. Dependiendo de las horas trabajadas, los números de personal a medio tiempo y empleados de tiempo parcial en el alcance puede reducirse o aumentarse y convertirse en un número equivalente a un personal a tiempo completo. (por ejemplo, 30 personas de medio tiempo que trabajan 4 horas / día equivale a 15 personas de tiempo completo.)
+2.3.4 Proceso repetitivo dentro del alcance
+Cuando un alto porcentaje de personal realiza ciertas actividades / posiciones que son consideradas repetitivas (por ejemplo, personal de limpieza, seguridad, transporte, ventas, call center, etc) será permitida una reducción del número de personal dentro del alcance, si se presenta la situación anteriormente indicada. Para ser efectiva la reducción los métodos deben estar documentados para incluir cualquier consideración sobre el riesgo de las actividades / posiciones.
+2.3.5 Empleados que trabajan por turnos
+Los OCs deben determinar la duración y el momento de la auditoría que evaluará mejor la aplicación efectiva del sistema de gestión para el alcance completo de las actividades del cliente, incluyendo la necesidad de auditar fuera del horario normal de trabajo y diversos turnos de trabajo. Esta necesidad debe ser acordada con el cliente.
+2.3.6 Personal temporal no calificado
+Este problema normalmente sólo se da en países con un bajo nivel de la tecnología, donde Personal temporal no calificado puede contratarse en cantidades considerables para reemplazar procesos automatizados. Bajo estas circunstancias, una reducción de personal efectivo puede hacerse, pero la consideración de los procesos es más importante que el número de empleados. Esta reducción es inusual y se debe registrar la justificación para hacerlo y la misma debe estar a disposición del organismo de acreditación durante las evaluaciones.
+3. METODOLOGÍA PARA DETERMINAR LA DURACIÓN DE LA AUDITORÍA DE SISTEMAS DE GESTIÓN
+3.1 La metodología utilizada como base para el cálculo de la duración de la auditoría de una auditoría inicial (etapa 1 + etapa 2) involucra la interpretación de tablas y figuras en los apéndices A y B para auditorías de SGC y SGA respectivamente. El apéndice A (SGC) se basa únicamente en el número efectivo de personal (ver el punto 2.3 como directriz sobre el cálculo del número efectivo de personal), y el nivel de riesgo, pero no indica los mínimos o máximos establecidos del tiempo de auditorías.
+Además del número efectivo de personal, el apéndice B (SGA) se basa también en la complejidad ambiental de la organización y no proporciona un mínimo o máximo de duración.
+Nota: La práctica normal es que el tiempo utilizado para la etapa 2 exceda el tiempo de la etapa 1.
+3.2 El uso de un multiplicador adecuado, las mismas tablas y figuras pueden ser utilizadas como base para el cálculo del tiempo de la auditoría para las auditorías de seguimiento (punto 5) y las auditorías de recertificación (punto 6).
+3.3 El OC debe tener procedimientos para la asignación de tiempo suficiente para la auditoría de los correspondientes procesos del cliente. La experiencia ha demostrado que, además del número de personal, el tiempo necesario para llevar a cabo una auditoría eficaz depende de otros factores para SGC y SGA. Estos factores se analizan en mayor profundidad en el punto 8.
+3.4 Este documento mandatorio enumera las disposiciones que deberían ser consideradas al establecer la cantidad de tiempo necesario para llevar a cabo una auditoría. Estos y otros factores es necesario que sean examinados durante el proceso de revisión de contrato del OC por su potencial impacto sobre la duración de la auditoría, independientemente del tipo de auditoría. Por lo tanto, las correspondientes tablas, figuras y diagramas para SGC y SGA que demuestran la relación entre el número efectivo de personal y la complejidad, no pueden ser usadas de forma aislada. Estas tablas y figuras constituyen el marco para una mayor planificación de la auditoría y para hacer ajustes en la duración de la auditoría para todos los tipos de auditorías.
+3.5 Para auditorías de SGC, la figura SGC 1 presenta una guía visual para realizar ajustes sobre la base de tiempos de auditoría calculados con base a la tabla SGC 1 y constituye el marco para un proceso que se debería utilizar para la planificación de las auditorías por la identificación un punto de partida basado en el número total efectivo de personal para todos los turnos.
+3.6 Para una auditoría de SGA es adecuado basar la duración de la auditoría en el número efectivo de personal de la organización y la naturaleza, el número y la gravedad de los aspectos ambientales de una organización típica en ese sector de la industria. Las tablas SGA 1 y SGA 2 constituyen el marco para un proceso que se debería utilizar para la planificación de las auditorías. El tiempo de auditoría de sistemas de gestión debería entonces ser ajustada con base en los factores significativos que aplicarán únicamente a la organización a ser auditada.
+3.7 El punto de partida para determinar la duración de la auditorías de sistemas de gestión debe ser identificado sobre la base del número efectivo de personal, posteriormente ajustado por los factores significativos que aplican al cliente a ser auditado, atribuyendo a cada factor una ponderación aditiva o sustractiva para modificar la cifra básica. En cada situación las bases para el establecimiento de la duración de la auditoría, incluidos los ajustes que se realicen, debe ser registrada. El OC debería garantizar que cualquier variación en el tiempo de auditoría no comprometa la eficacia de las auditorías. Cuando la realización de los procesos de un producto o servicio opera sobre un turno base, el alcance de la auditoría de cada turno depende de los procesos realizados en cada turno, y el nivel de control de cada turno que se demuestra por el cliente.
+Para auditar la aplicación efectiva, al menos uno de los turnos debe ser auditado. La justificación para no auditar los otros turnos (por ejemplo, los que están fuera de horas regulares de oficina) debe documentarse.
+3.8 La determinación de la duración de la auditoría de sistemas de gestión utilizando las tablas o figuras en los apéndices A y B no deben incluir el tiempo de “auditores en formación”, observadores o el tiempo de los expertos técnicos.
+3.9 La reducción de la duración de la auditoría no debe exceder el 30% del tiempo establecido en las tablas SGC 1 o SGA 1.
+Nota: la cláusula 3.9 podría no aplicar a las situaciones descritas en el IAF D1 para un solo sitio o multi sitios donde los muestreos están permitidos. En esta situación un número limitado de procesos podría presentado en dichos sitios y la implementación para todos los requisitos relevantes del sistema de gestión puede ser verificada.
+4. AUDITORÍAS INICIALES DE SISTEMAS DE GESTIÓN (ETAPA 1 + ETAPA 2)
+4.1 La determinación del tiempo de auditoría de sistemas de gestión que involucran actividades fuera del sitio (Cláusula 2.1) no debería reducir el tiempo total de las auditorías del sistemas de gestión en el sitio a menos del 80% del tiempo de auditoría calculado a partir de las tablas de la metodología en la Sección 3. Cuando se requiere un tiempo adicional de auditoría para la planificación y / o redacción de informes, esto no será justificación para la reducción de tiempo de la duración en el sitio.
+4.2 La tabla SGC 1 y las tablas SGA 1 presentan un punto de partida para la estimación de la duración de una auditoría inicial (etapa 1 + etapa 2) para auditorías de SGC y SGA respectivamente.
+4.3 El tiempo de auditoría determinado por el OC y la justificación de la determinación del mismo debe registrarse. Este cálculo debe incluir detalles sobre el tiempo que se asignará para cubrir todo el alcance de la certificación.
+4.4 El OC debe proporcionar la determinación del tiempo de auditoría y la justificación a su organización cliente como parte del contrato y hacerlo disponible al organismo de acreditación cuando éste lo solicite.
+4.5 La duración de la auditoría de certificación puede incluir el uso de técnicas de auditoría remotas, tales como técnicas de auditoría interactivas basadas en el uso de la web, reuniones por la web, teleconferencias y / o verificación electrónica de los procesos del cliente (ver IAF MD 4). Estas actividades deben ser identificadas en el plan de auditoría, y el tiempo dedicado a estas actividades puede ser considerado como una contribución al total de la duración de la auditoría en sitio. Si el OC planifica una auditoría para la cual las actividades de auditoría remotas representan más del 30% de la duración de la auditoría en antes de hacer uso de esta versión, por si ha sido modificada.
+sitio prevista, el OC debe justificar el plan de auditoría y mantener los registros de esta justificación, que deben estar a disposición de un organismo de acreditación para su revisión (ver MD4).
+Notas:
+ El tiempo auditor en sitio significa el tiempo auditor asignado para sitios individuales.
+Las auditorías electrónicas de sitios remotos se consideran auditorías remotas, incluso si la auditoría electrónica es llevada a cabo físicamente en los establecimientos de la organización.
+ Independientemente de las técnicas de auditoría remota, el cliente debe ser visitado físicamente al menos anualmente, donde existe una ubicación física.
+ Es poco probable que la duración de la etapa 2 de la auditoría sea menor a 1 día auditor.
+5. SEGUIMIENTO O VIGILANCIA
+5.1 Durante el ciclo de certificación inicial de tres años, la duración de la auditoría de seguimiento o vigilancia para una determinada organización debería ser proporcional al tiempo dedicado a la auditoría de certificación inicial (etapa 1 + etapa 2), con la cantidad total de tiempo dedicado anualmente al seguimiento siendo 1/3 del tiempo empleado en la auditoría de certificación inicial. Una actualización de los datos de los clientes relacionados con la certificación debe estar disponible para la planificación de cada auditoría de seguimiento. La duración planificada para la auditoría de seguimiento debe ser revisada de vez en cuando, al menos en cada auditoría de seguimiento y siempre en el momento de la re-certificación, para tener en cuenta los cambios en la organización, la madurez del sistema, etc. La evidencia de la revisión, incluyendo cualquier ajuste a la duración de la auditoría debe ser registrada.
+6. RE-CERTIFICACIÓN
+La duración de la auditoría de re-certificación debería ser calculada sobre la base de la información actualizada del cliente y normalmente es de aproximadamente 2/3 del tiempo que sería necesario para una auditoría inicial de certificación (etapa 1 + etapa 2) de la organización, si esa auditoría inicial se llevara a cabo en el momento de la re-certificación (es decir, no 2/3 de la duración de la primera auditoría inicial de certificación). La duración de la auditoría debe tener en cuenta los resultados de la revisión del desempeño del sistema (ISO/IEC 17021-1). La revisión del desempeño del sistema no forma parte de la duración de la auditoría de recertificación.
+Nota: Es poco probable que una auditoría de recertificación sea menos de un (1) día de auditoría.
+7. SEGUNDO Y SUBSIGUIENTES CICLOS DE CERTIFICACIÓN INDIVIDUALIZADOS
+Para el segundo y subsiguientes ciclos de certificación, el OC puede elegir el diseño de un programa individualizado de seguimiento y re-certificación (ver IAF MD3 para Procedimientos Avanzados de Seguimiento y Re-certificación - ASRP). Si un enfoque ASRP no es elegido, la duración de la auditoría debería ser calculada como se indica en los puntos 5 y 6.
+8. FACTORES PARA EL AJUSTE DE LA DURACIÓN DE LA AUDITORÍA (SGC Y SGA)
+Los factores adicionales que deben considerarse incluyen pero no se limitan a:
+i) Incrementos en la duración de la auditoría:
+a) Logística complicada que implique más de un edificio o localización donde se lleva a cabo el trabajo. Ejemplo: cuando existe un centro de diseño separado, debe ser auditado;
+b) Personal que hable en más de un idioma (que exige intérpretes o que no permita que los auditores trabajen independientemente);
+c) Un sitio muy extenso para el número de personal (ej. un bosque);
+d) Extensa legislación (alimentos, medicinas, aeroespacial, energía nuclear, etc.);
+e) Sistemas que cubren procesos altamente complejos o un número relativamente alto de actividades únicas;
+f) Actividades que requieren visitas a sitios temporales para confirmar las actividades de los sitios permanentes cuando el sistema de gestión está bajo certificación.
+g) “Outsourcing” de funciones o procesos.
+ii) Incrementos en la duración de la auditoría, únicamente para SGC:
+a) Actividades que se consideran de alto riesgo (ver Apéndice A, Tabla SGC 2).
+iii) Incrementos en la duración de la auditoría, únicamente para SGA:
+a) Mayor sensibilidad del medio receptor en comparación con ubicación típica para el sector de la industria.
+b) Puntos de vista de las partes interesadas.
+c) Aspectos indirectos que requieran aumento en el tiempo de auditoría.
+d) Aspectos ambientales adicionales o inusuales o condiciones reguladas para el sector.
+e) Los riesgos a accidentes ambientales e impactos derivados, o que puedan derivarse, como consecuencia de los incidentes, accidentes y posibles emergencias situaciones, problemas ambientales anteriores.
+iv) Reducción en la duración de la auditoría:
+a) Cuando el cliente no es “responsable del diseño” o de otros elementos de la Norma no cubiertos por el alcance (solo para SGC);
+b) Un sitio muy pequeño para el número de personal (ej. solo un complejo de oficinas);
+c) Madurez del sistema de gestión;
+d) Conocimiento previo del sistema de gestión del cliente (ej. ya certificado para otra Norma por el mismo OC);
+e) La preparación del cliente para la certificación (ej. que ya haya sido certificado o reconocido por otro sistema de tercera parte);
+Nota: si la auditoría se realizó de conformidad con el IAF MD 11 esta justificación no es válida, por lo que la reducción se calculará a partir del nivel de integración.
+f) Alto nivel de automatización.
+g) Cuando el personal incluye un número de personas que trabajan fuera del lugar por ejemplo vendedores, conductores, personal de servicio, entre otros y es posible sustancialmente auditar el cumplimiento de sus actividades con el sistema a través de la revisión de registros.
+h) Actividades de baja complejidad, (ver Apéndice A, Tabla SGC 2 para ejemplos y Tabla SGA 1). Ejemplos:
+o Procesos que incluyen una sola actividad general (ej. sólo servicios);
+o Actividades idénticas de baja complejidad llevadas a cabo en todos los turnos con evidencias apropiadas de rendimiento equivalente en todos los turnos.
+o Cuando una proporción significativa del personal lleva a cabo tareas similares simples. Proceso repetitivo dentro del alcance (cuando los empleados realizan actividades repetitivas).
+Todos los atributos del sistema, procesos y productos / servicios del cliente deberían considerarse y hacerse un ajuste razonable para aquellos factores que podrían justificar más o menos tiempo de auditoría para una auditoría eficaz. Factores aditivos pueden ser compensados por factores sustractivos.
+Nota 1: El cálculo de los factores sustractivos pueden ser utilizados una única vez por cada cliente.
+Nota 2: Factores adicionales a considerar para el cálculo del tiempo de auditoría de sistemas de gestión integrados se abordan en IAF MD 11.
+9. SITIOS TEMPORALES
+9.1 En situaciones donde el cliente solicitante o certificado provee sus productos o servicios en sitios temporales, cada sitio debe ser incorporado en los programas de auditoría.
+9.2 Los sitios temporales podrían abarcar desde sitios con proyectos de gestión principales hasta sitios / instalaciones menores o de servicio. La necesidad de visitar tales sitios y de extender el muestreo, debería basarse en una evaluación de los riesgos de falla del SGC para el control del producto o servicio resultante o del SGA para el control de los aspectos e impactos ambientales asociados a las operaciones del cliente. El muestreo de los sitios seleccionados debería representar el espectro de las necesidades de competencia del cliente y las variaciones del servicio tomando en cuenta el tamaño y los tipos de actividades, y las distintas etapas de los proyectos en progreso y los aspectos e impactos ambientales asociados.
+9.3 Normalmente, deberían realizarse auditorías in situ de los sitios temporales. Sin embargo, podrían considerarse los siguientes métodos como alternativas que reemplacen algunas auditorías in situ:
+ Entrevistas o reuniones con el cliente y / o sus propios clientes en persona o por teleconferencia;
+ Revisión de documentos de las actividades de los sitios temporales;
+ Acceso remoto a sitios electrónicos que contengan registros u otra información
+relevante para la evaluación del sistema de gestión y del sitio temporal;
+ Uso de vídeo y teleconferencia y otras tecnologías que permitan que la auditoría remota sea conducida en forma efectiva.
+9.4 En cada caso, el método de auditoría debería ser totalmente documentado y justificado en términos de su efectividad.
+10. DURACIÓN DE AUDITORÍAS MULTISITIO
+10.1 En el caso de un sistema de gestión aplicados a multi sitios es necesario establecer si se permite o no el muestreo.
+10.2 Para la certificación de multi sitios donde el muestreo no es permitido, los requisitos detallados serán cubiertos en un nuevo MD IAF cuando esté disponible. El punto de partida para el cálculo de tiempo de auditoría del sistema de gestión es el total de todos los sitios involucrados, de acuerdo con la Tabla SGC 1 y la Tabla SGA 2 para sistemas de gestión de calidad y en la Tabla SGA 1 y la Tabla SGA 2 para sistemas de gestión ambiental.
+La proporción del tiempo total dedicado a cada sitio debe toma en cuenta las situaciones donde ciertos procesos del sistema de gestión no son relevantes para el sitio.
+10.3 Para la certificación de multi sitios donde el muestreo es permitido, los requisitos detallados serán cubiertos en el IAF MD1. El punto de partida para el cálculo tiempo de auditoría del sistema de gestión es el total que participan en cada uno de los sitios muestreados.
+El MD1 se debe utilizar para seleccionar los sitios a muestrear antes de aplicar el MD5 a cada sitio seleccionado. El tiempo total nunca debería ser menor que el que se habría calculado para el tamaño y la complejidad de la operación, si todo el trabajo se hubiera llevado a cabo en un solo sitio (MD1 - cláusula 5.3.4).
+11. CONTROL DE LAS FUNCIONES O PROCESOS EXTERNAMENTE PRESTADOS (OUTSOURCING)
+11.1 Si una organización terceriza (outsourcing) parte de sus funciones o procesos, es responsabilidad del OC obtener evidencia de que la organización ha determinado de forma efectiva el tipo y alcance de los controles que deben aplicarse, a fin de garantizar que las funciones o procesos proporcionados externamente no afectan negativamente a la eficacia del Sistema de Gestión, incluyendo la capacidad de la organización para entregar constantemente productos conformes y servicios a sus clientes o para controlar sus aspectos y compromisos ambientales al cumplimiento de los requisitos legales.
+11.2 El OC auditará y evaluará la eficacia del sistema de gestión del cliente en la gestión de cualquier actividad suministrada y el riesgo que esto supone para la entrega de los objetivos, de los clientes y de los requisitos de conformidad. Esto puede incluir la recopilación de información en el nivel de efectividad de los proveedores. Sin embargo, auditar el sistema de gestión del proveedor no es un requisito, teniendo en cuenta que está incluido en el ámbito del sistema de gestión de la organización sólo el control de la actividad suministrada, y no el antes de hacer uso de esta versión, por si ha sido modificada.
+desempeño de la actividad misma. A partir de esta comprensión del riesgo, cualquier tiempo de auditoría adicional se debe determinar.
+Apéndice A: Sistemas de Gestión de Calidad
+Relación entre el número efectivo de personal y la duración de la auditoría (solo auditoría inicial)
+[imagen]
+Nota 1. Nota 1: El número de personal de la Tabla 1 SGC debe ser visto como continuo en lugar de un cambio escalonado. Por ejemplo, se si dibujara como un gráfico, la línea debería comenzar con los valores en la banda inferior y terminar con los puntos finales de cada banda. El punto de partida del gráfico debe ser personal de 1 (1,5 días). Véase la cláusula
+2.2 para entender partes de un día.
+Nota 2. El procedimiento del OC podrá disponer una duración de la auditoría para un número de empleados superior a 10.700. Dicha duración de auditoría debería seguir la progresión en la tabla SGC 1 de forma consistente.
+Nota 3. Puede ver también la cláusula 1.9 y 2.3
+[imagen]
+Tabla SGC 2 - Ejemplos de categorías de riesgo
+Estas categorías de riesgo no son decisivos, son sólo ejemplos que podrían ser utilizados por un OEC a la hora de determinar la categoría de riesgo de una auditoría.
+Alto Riesgo
+Donde una falla del producto o servicio causa una catástrofe económica o pone la vida en riesgo.
+Los ejemplos incluyen pero no se limitan a:
+Alimentación; productos farmacéuticos; aeronaves; la construcción naval; componentes de carga; actividades de construcción complejas; aparatos eléctricos y de gas; servicios médicos y sanitarios; la pesca; combustible nuclear; químicos, productos químicos y fibras.
+Riesgo Medio
+Donde una falla del producto o servicio podrían causar lesiones o enfermedades.
+Los ejemplos incluyen pero no se limitan a:
+Actividades de construcción simples; metales básicos y productos fabricados; productos no metálicos; muebles; equipos ópticos; ocio y servicios personales.
+Riesgo Bajo
+Dónde una falla del producto o servicio es poco probable que cause lesión o enfermedad.
+Los ejemplos incluyen pero no se limitan a:
+Textiles y prendas de vestir; pulpa, papel y productos de papel; editorial; servicios de oficina; Educación; venta al por menor, hoteles y restaurantes.
+Nota 1: Se espera que las actividades de negocio definidos como de bajo riesgo pueden requerir menos tiempo de auditoría que el tiempo calculado utilizando la Tabla SGC 1, las actividades definidas como de riesgo medio se tome el tiempo calculado utilizando la Tabla SGC 1, y las actividades definidas como de alto riesgo se llevará más tiempo.
+Nota 2: Si una empresa está proporcionando una mezcla de actividades empresariales (por ejemplo: empresa de construcción que construye sencilla construcción - riesgo medio – y antes de hacer uso de esta versión, por si ha sido modificada.
+puentes - de alto riesgo), depende de del OC determinar el tiempo de auditoría correcto, tomando en cuenta el número de personal involucrado en cada una de las actividades.
+Apéndice B: Sistemas de Gestión Ambiental
+[imagen]
+Nota 1. La duración de la auditoría es mostrada para auditorías de complejidad alta. Media, baja y limitada.
+Nota 2. El número de empleados en la tabla SGA 1 debería ser visto como un continuo en vez de un cambio escalonado. Por ejemplo, se si dibujara como un gráfico, la línea debería comenzar con los valores en la banda inferior y terminar con los puntos finales de cada banda. El punto de partida del gráfico debe ser personal de 1 (1,5 días). Véase la cláusula 2.2 para entender días fraccionados.
+Nota 3. El procedimiento del OC podrá disponer una duración de la auditoría para un número de empleados superior a 10 700. Dicha duración de auditoría debería seguir la progresión en la tabla SGA 1 de forma consistente.
+Tabla SGA 2 – Ejemplos de relaciones entre los sectores y las categorías de
+complejidad de los aspectos ambientales
+Categoría de Complejidad | Sector
+Alta | Minería e industrias extractivas Extracción de petróleo y gas Curtido de pieles y de tejidos Fabricación de pasta de papel incluyendo el proceso de reciclado de papel Refinería de petróleo Químicas (incluyendo fabricación materias primas de goma y plástico) y farmacéuticas Metales-Producción primaria Procesamiento de no metálicos y sus productos cubriendo cerámicos y el cemento Generación de electricidad basada en el carbón Construcción civil y demolición Procesamiento de residuos peligrosos y no peligrosos por ej: incineración, etc. Tratamiento de aguas residuales y vertidos
+Media | Pesca, Agricultura/silvicultura Textiles y ropas excepto el curtido Fabricación de tableros y tratamiento/impregnación de madera Producción de papel y impresión exceptuando la fabricación de pasta Procesamiento de no metálicos y sus productos, cubriendo vidrio, arcilla, cal etc. Tratamiento superficial y otros tratamientos químicos para productos metálicos. Excluye la producción primaria Tratamiento superficial y otros tratamientos químicos para maquinaria y equipo mecánico Producción de circuitos impresos para la industria electrónica Fabricación de equipo de transporte - carretera, tren, aire, barcos Generación y distribución de electricidad que no esté basada en el carbón. Producción de gas, almacenamiento y distribución (excepto la extracción) Captación de agua, purificación y distribución incluyendo gestión de ríos Venta al por mayor y al por menor de combustible fósil Fabricación de comida y tabaco Transporte y distribución - por mar, aire, tierra Agencias de comercio inmobiliario, gestión inmobiliaria, limpieza industrial, limpieza higiénica, limpieza en seco, normalmente son parte de los servicios generales Reciclado, compostura, y vertedero (de residuos no peligrosos) Ensayos técnicos y laboratorios Cuidado de la salud/hospitales/veterinaria Servicios de ocio y servicios personales excluyendo hoteles y restaurantes
+Baja | Hoteles/restaurantes Madera y productos de madera Productos de papel excluyendo impresión, pasta de papel y fabricación de papel Moldeado por inyección de goma y plástico. Conformado y ensamble. Moldeado en caliente y en frío y fabricación de metal Ensamble de maquinaria y equipo mecánico Venta al por mayor y al por menor Ensamble de equipo eléctrico y electrónico de circuitos impresos
+Limitada | Actividades corporativas y de gestión, sedes centrales y gestión de sociedades Transporte y distribución – únicamente servicios de gestión, sin una flota real Telecomunicaciones Servicios generales a los negocios Servicios de enseñanza/educación
+Casos especiales | Nuclear Generación nuclear de electricidad Almacenamiento de grandes cantidades de material peligroso Administración pública Autoridades locales Organizaciones con productos o servicios medioambientalmente sensibles
+Categorías de complejidad de los aspectos ambientales:
+Las disposiciones especificadas en este documento se basan en cinco categorías de complejidad primarias de la naturaleza y gravedad de los aspectos ambientales de una organización que afectan fundamentalmente al tiempo auditor. Estas son:
+- Alta: aspectos ambientales con una naturaleza y gravedad importante (normalmente organizaciones de fabricación o procesamiento con impactos importantes en varios de los aspectos ambientales);
+- Media: aspectos ambientales con una naturaleza y gravedad media (normalmente organizaciones de fabricación con impactos ambientales importantes en algunos de los aspectos ambientales);
+- Baja: aspectos ambientales con una naturaleza y gravedad baja (normalmente organizaciones de ensamblaje con pocos aspectos ambientales);
+- Limitada: aspectos ambientales con una naturaleza y gravedad limitada (normalmente organizaciones del tipo de oficinas);
+- Especial: Estas requieren consideración adicional y única en el nivel de planificación de la auditoría.
+La tabla SGA 1 cubre las cuatro principales categorías de complejidad: alta, media, baja y limitada. La tabla SGA 2 proporciona la relación entre las cinco categorías de complejidad y los sectores que podrían típicamente estar en cada categoría.
+El OC debería reconocer que no todas las organizaciones de un sector determinado siempre estarán en la misma categoría de complejidad. El OC debería permitir flexibilidad en el procedimiento de revisión de contrato para asegurarse que las actividades específicas de la organización son consideradas para determinar la complejidad de la categoría. Por ejemplo: aunque muchos negocios en el sector químico se clasificarían como de complejidad "alta", una organización que se limita a formular sin llevar a cabo reacciones químicas o emisiones y/o comercialización podría clasificarse como "medio" e incluso "baja complejidad". El OC debe documentar todos los casos donde se haya bajado la categoría de complejidad para una organización en un sector específico.
+ANEXO Vl DOCUMENTO MANDATORIO DE IAF PARA LA EVALUACIÓN DEL MANEJO DE COMPETENCIA DEL ORGANISMO DE CERTIFICACIÓN DE ACUERDO CON INTE ISO/IEC 17021-1:2015
+(OBLIGATORIO)
+(Tomado del Documento Mandatorio de IAF MD 10:2013)
+1. INTRODUCCIÓN
+El propósito de este documento es proveer un enfoque armonizado sobre cómo los OA evalúan el manejo de competencias de los OC de acuerdo a la norma INTE ISO/IEC 17021-1:2015.
+2. DEFINICIONES
+Para este documento aplican las siguientes definiciones:
+2.1 Proceso de certificación: todas las funciones relacionadas con la certificación, desde el recibo de la solicitud, hasta el otorgamiento y mantenimiento de la certificación.
+2.2 Función de certificación: una etapa del proceso de certificación. Por ejemplo, revisión de la solicitud, auditoría, decisión de la certificación (ref; INTE ISO/IEC 17021-1:2015)
+2.3 Resultados esperados: los resultados de una función de certificación que cumplen con los requerimientos de INTE ISO/IEC 17021-1:2015 y los objetivos del proceso de certificación del OC.
+3. GENERAL
+3.1 El OA debe verificar que el OC pueda demostrar que todo el personal involucrado en desempeñar funciones de certificación tenga las competencias requeridas.
+3.2 El OA debe verificar que el OC ha definido su proceso de certificación y los resultados esperados a ser obtenidos por cada función de certificación. La evaluación de la competencia del OC, se debe basarse en:
+a) El proceso documentado del OC para determinar criterios de competencias
+b) Los resultados del proceso para determinar los criterios de competencia
+c) Las evaluaciones del OC sobre su personal
+d) Tomar en cuenta los resultados esperados de cada función de certificación y si éstos se lograron o no.
+3.3 Las funciones de certificación para las cuales el OA debe verificar que el OC ha determinado criterios de competencia, incluyen pero no se limitan a las siguientes:
+a) Revisión de la solicitud (ver ejemplo en el 3.5 abajo)
+b) Establecimiento del programa de auditoría
+c) Programación de auditorías
+d) Definición de los equipos auditores
+e) Auditoría e informes
+f) Revisión de informes y decisiones de certificación
+g) Mantenimiento de la certificación
+El Anexo A de este documento es informativo y provee ejemplos de resultados esperados para las funciones de certificación mencionadas arriba. El OC puede identificar otros resultados esperados para estas funciones de certificación.
+3.4 El OA debe verificar que el OC ha determinado los criterios de competencia para:
+a) Dirección que supervisa el proceso de certificación
+b) Miembros del comité de imparcialidad
+c) Personal que realiza las auditorías internas
+d) Personal responsable de evaluar y monitorear la competencia y desempeño del personal que realiza las funciones de certificación.
+3.5 El OA debe considerar evidencia objetiva de cómo el OC logra los resultados esperados para todas las funciones de certificación (ver anexo A de este documento) como un indicador de la efectividad de sus procesos para determinar y evaluar competencias. El OA debe considerar evidencia objetiva del OC que falle en lograr los resultados esperados para cualquier función de certificación como un indicador de que el proceso de determinación y evaluación de las competencias puede ser ineficiente.
+Nota: El que el OC falle en lograr los resultados esperados para una función de certificación particular, podría también ser un indicador de que los procedimientos para esa función no son efectivos o no han sido implementados.
+Por ejemplo, en el caso de la revisión de la solicitud, para determinar que el OC tiene miembros competentes en el equipo auditor que puede asignar y para determinar el tiempo de auditoría, el OA debe verificar que el OC:
+a) Haya definido los resultados esperados (ver d) abajo) para esta función del proceso de certificación
+b) Haya definido criterios de competencia efectivos para el personal que desempeña esta función
+c) Pueda proveer evidencia objetiva de que el personal que desempeña esta función ha demostrado que cumple con los criterios de competencia
+d) Que los resultados de esta función del proceso de certificación logran alcanzar los resultados esperados, al:
+i. Brindar evidencia de que las áreas técnicas de la organización a ser auditada han sido correctamente asignadas
+ii. Brindar evidencia de que los auditores asignados tienen la competencia requerida para las áreas técnicas apropiadas
+iii. Brindar evidencia de que se ha dispuesto de suficiente tiempo para la auditoría, basada en la revisión de la información provista por el cliente que aplica o está certificado y de auditorías previas.
+3.6 El OA debe evaluar el proceso y los procedimientos establecidos por el OC para determinar los criterios de competencia y evaluar la competencia para verificar que el personal evaluado como competente logra consistentemente obtener los resultados esperados para todas las funciones de certificación.
+3.7 El OA debe verificar que el OC tiene registros apropiados sobre la implementación de su proceso para determinar y evaluar la competencia y que el OC pueda demostrar que sus métodos son efectivos y logran los resultados esperados consistentemente.
+4. ÁREAS TÉCNICAS
+4.1 El OA debe verificar que el OC ha definido las áreas técnicas para las cuales provee certificaciones acreditadas y que estas cubren todo el alcance de la acreditación del OC. Es responsabilidad del OC determinar las áreas técnicas en las cuales opera, basado en qué tan comunes son los procesos, impactos y aspectos ambientales, riesgos, etc.
+a) Las áreas técnicas no necesariamente tienen que ser definidas usando los sectores de acreditación. Es posible que un solo alcance de acreditación pueda comprender más de un área técnica. Por ejemplo, el sector 38* de SGC de Salud y Trabajo Social podría comprender:
+i. Servicios veterinarios
+ii. Servicios hospitalarios
+iii. Prácticas médicas o dentales
+iv. Servicios de cuidado a la salud
+v. Trabajo social
+De manera similar, el sector 28* de SGC de Construcción podría tomarse en cuenta que comprende actividades que varían desde pintura y decoración a construcciones y obras civiles a grande escala.
+*Ver IAF ID1:2010 Documento Informativo para Sectores de Acreditación para SGC
+b) En algunos casos, una sola área técnica puede relacionarse con más de un sector de acreditación. Por ejemplo, la manufactura de bolsas plásticas para uso en empaques, puede relacionarse tanto para el sector 9 de compañías de impresión y el sector 14 de productos de plástico y hule en SGC.
+4.2 El OA debe verificar si los criterios de competencia documentados para las áreas técnicas del OC:
+a) Han sido formulados en términos de competencias (es decir, cuáles son los requerimientos de conocimiento y habilidades para esa área técnica)
+Nota: En algunas instancias, por ejemplo en el caso de un médico, las evidencias de calificación y registro profesional ante la autoridad nacional relevante pueden ser consideradas como parte de la evidencia de competencia en el área técnica.
+b) Cubren todos los aspectos relevantes del área técnica, es decir, que tiene todo el conocimiento relevante (por ejemplo requisitos legales, procesos, productos, técnicas de control) para el área técnica siendo identificada.
+4.3 El OA debe buscar evidencia de que el OC es capaz de demostrar competencia en todas las funciones de certificación a través de toda un área técnica, al lograr obtener los resultados esperados para cada función de certificación. El OA debe buscar evidencia de que el OC tiene procesos que aseguren poder lograr esto consistentemente.
+5. DETERMINACIÓN DE CRITERIOS DE COMPETENCIA
+5.1 El OA debe verificar que el OC ha documentado la experticia necesaria para establecer y mantener los criterios de competencia para cada área técnica. Esta experticia puede ser provista por un recurso externo.
+5.2 El OA debe verificar que el proceso del OC para determinar los criterios de competencia identifica el conocimiento y habilidades necesarias para el personal que desempeña todas las funciones de certificación en cada una de sus áreas técnicas y para cada norma o especificación del sistema de gestión.
+a) Para algunas funciones de certificación asignadas a individuos particulares, la competencia puede estar incluida en el diseño del proceso. Por ejemplo, el Sistema de TI del OC puede contener los detalles de auditores y de las áreas técnicas para las cuales han sido evaluados como competentes y puede nominar cuáles auditores son competentes para desempeñar la auditoría de una organización en particular. En este caso, el OA debe verificar que el proceso del OC se controla apropiadamente y es capaz de lograr los resultados esperados.
+Nota: Los controles apropiados pueden incluir la inclusión de niveles de autoridad, control de claves de acceso, etc.
+b) No es necesario que el personal involucrado en la revisión de solicitudes, selección de equipos auditores, determinación de tiempos de auditoría, revisión de reportes y toma de decisiones de certificación tengan el mismo nivel de competencia que los auditores en todas las áreas. Por ejemplo, refiriéndose al Anexo A de la INTE ISO/IEC 17021-1, el personal que revisa los informes y toma las decisiones de certificación debe tener la misma competencia que los auditores en cuanto al conocimiento del proceso del OC, pero no en cuanto a conocimiento del sector de negocio del cliente o conocimiento de principios, prácticas y técnicas de auditoría.
+c) Los individuos que se asignan para desempeñar funciones de certificación no necesariamente deben tener todas las competencias, mientras que el OC pueda demostrar de que cuenta con la competencia colectiva para desempeñar esas funciones. Por ejemplo, quien toma la decisión de certificación puede no ser competente en todo el sector de negocios del cliente, pero si el informe fue revisado por un experto técnico independiente, la competencia colectiva puede evidenciarse.
+d) La competencia requerida en un equipo auditor puede diferir dependiendo del alcance de la auditoría. Por ejemplo, el alcance de una visita de seguimiento puede ser más reducido que una inicial. El OA debe verificar que el OC tiene un proceso que asegure que los equipos auditores tienen la competencia colectiva necesaria para cada auditoría en particular.
+6. PROCESO DE EVALUACIÓN
+6.1 El OA debe verificar que el OC cuenta con procesos documentados para la evaluación inicial y continua de las competencias de todo el personal involucrado en la gestión y desempeño de todas las funciones de certificación. El OA debe buscar evidencia objetiva de que el OC ha evaluado a este personal según su propio proceso documentado.
+a) El Anexo B de INTE ISO/IEC 17021-1, al ser informativo y no normativo, provee una guía útil sobre algunos métodos que puede usar un OC para evaluar competencia. Sin embargo, el OC puede usar otros métodos para evaluar competencia. Sea cual sea el método que el OC use para evaluar competencia, el OA debe verificar que el OC puede demostrar que estos métodos son efectivos para demostrar competencia.
+b) El OC puede tomar en cuenta, pero no basarse solamente en ello, un historial de la habilidad del personal que obtiene resultados esperados para las labores que se les han asignado. El OA debe verificar que esta habilidad demostrada se basa en la evaluación del OC sobre los resultados de la función de certificación, por ejemplo registros, informes u otra información que puede contribuir a la evidencia que el personal tiene el conocimiento y habilidades requeridas por los criterios de competencia documentados.
+6.2 El OA debe verificar que cuando el OC emplea personal externo o nuevo que puede haber sido evaluado como competente por otro OC acreditado, el OC realice su propia evaluación de ese personal bajo sus propios criterios de competencia. Sin embargo, el OC puede tomar en cuenta la evaluación de otro OC acreditado (cuando los registros completos están disponibles), pero no basarse solo en ella, cuando se lleve a cabo su propia evaluación.
+6.3 La certificación en un esquema de certificación de personas, acreditado bajo INTE ISO/IEC 17024, puede ser usada para demostrar competencia del personal, en la medida que esté cubierta bajo el alcance del esquema. El OA debe buscar evidencia de que el OC ha determinado cuáles criterios de competencia no son cubiertos por el alcance del esquema de certificación de personas y que el OC ha realizado su propia evaluación contra estos criterios.
+6.4 Cuando un esquema de certificación de personas no está acreditado, puede ser usado solo como una indicación de que el personal tiene cierto conocimiento y herramientas. El OA debe verificar que el OC ha realizado su propia evaluación de competencias ante los criterios cubiertos por el esquema.
+6.5 El OA debe verificar que el OC es capaz de identificar si el hecho de que un individuo deje de estar disponible para el OC, tiene un impacto en la competencia total del OC. Por ejemplo, es posible que, si un auditor competente en un área específica deja de trabajar en el OC, resulte en que el OC ya no sea capaz de demostrar competencia en esa área técnica en particular. Bajo dichas circunstancias, el OA debe buscar evidencia de que el OC ha identificado las limitaciones de su competencia total y el efecto en certificaciones existentes.
+Final del Documento Mandatorio de IAF para la evaluación del manejo de competencia del Organismo de Certificación de acuerdo con INTE ISO/IEC 17021-1:2015.
+Apéndice A (Informativo): Ejemplos de resultados esperados de funciones de certificación
+FUNCIÓN DE CERTIFICACIÓN RESULTADOS ESPERADOS
+Revisión de la solicitud | • El alcance está dentro la competencia del OC; • El alcance propuesto está definido de manera consistente con los productos/servicios del cliente que aplica y del sistema de gestión; • Las áreas técnicas de la organización a ser auditada han sido asignadas e identificadas adecuadamente; • Se han asignado suficientes auditores; • Los auditores asignados tienen la competencia para: i) las funciones de auditoría, ej. líder del equipo auditor; ii) el proceso y las operaciones que se le asignan; iii) los estándares de sistema de gestión relevantes; iv) el esquema de certificación, cuando sea apropiado • Se ha asignado y justificado tiempo suficiente para la auditoría, de acuerdo con el IAF MD1 y MD5 (para SGA y SGC) u otros requerimientos específicos para esquemas de certificación particulares, basado en la revisión de información provista por el cliente. • Aplicaciones para la transferencia de la certificación son procesadas de acuerdo con los requisitos de IAFMD 2.
+Establecimiento del programa de auditoría | • El programa de seguimiento y las auditorías de recertificación están acorde con la norma INTE ISO / IEC 17021-1; • La correcta aplicación del IAF MD 1 para multisitios. Programación de las auditorías • El programa de auditoría cumple con la norma INTE ISO / IEC 17021-1; • La duración y las fechas de la auditoría se han acordado con el cliente.
+Asignación de los equipos auditores | • La competencia colectiva del equipo auditor es consistente con los productos y procesos del cliente.
+Planificación de la auditoría | • El plan de auditoría es consistente con el alcance propuesto de la certificación y el tipo de auditoría y refleja la organización, los procesos y las operaciones de los clientes; • El plan de auditoría asigna tiempo suficiente para una auditoría exhaustiva; • Los miembros del equipo auditor se asignan las tareas propias de su competencia.
+Auditoría e informe | • La ejecución de la auditoría se lleva a cabo con eficacia: • Las sesiones de apertura y de cierre se llevan a cabo, • Las técnicas de recolección de evidencia de auditoría son efectivas, • Los miembros del equipo de auditoría toman notas adecuadas de la evidencia de auditoría, • Las técnicas de muestreo se utilizan con eficacia; • Los miembros del equipo auditor llegan a conclusiones consistentes con la evidencia de auditoría. • El contenido del informe de auditoría cumple con los requisitos de la norma ISO / IEC TS 17022:2012. • Las re auditorías se realizan cuando es necesario. • La recomendación de certificación es consistente con los hallazgos de la auditoría, el alcance de la auditoría y el alcance de la certificación.
+Revisión de informes y decisiones de certificación | • Comprobación de los cambios desde la revisión de la solicitud; • Confirmación de que la duración de la auditoría fue correcta; • Confirmación de que a los miembros del equipo de auditor se les han sido asignadas tareas de auditoría adecuadas a su competencia; • Confirmación de que el informe de auditoría cumple con los requisitos de la norma ISO / IEC TS 17022:2012; • Confirmación de que la recomendación es consistente con los hallazgos de la auditoría; • Que las pruebas documentales están disponibles cuando el revisor independiente ha tenido motivos para discutir/aclarar cualquier aspecto del contenido del informe o recomendación asociada.
+Mantenimiento de la certificación | • El programa de auditoría se ha seguido y las funciones de seguimiento y recertificación se han realizado de manera oportuna; • Una adecuada toma de muestras de la revisión de los informes de seguimiento • Los cambios han sido revisados y verificados para que no afecte negativamente a la certificación; • Demostrado el traslado a instancias superiores en el caso de las no conformidades que pudieran llevar a la suspensión o retiro de la certificación; • Auditorías de recertificación oportuna y decisiones de recertificación antes de su vencimiento.
+|
+ANEXO Vll: APLICACIÓN DE 17021-1:2015 PARA LA AUDITORÍA DE SISTEMAS DE
+GESTIÓN INTEGRADOS
+(OBLIGATORIO)
+(Tomado del Documento Mandatorio de IAF MD 11:2013)
+Este documento es obligatorio para la aplicación consistente de INTE ISO/IEC 17021-1 por los Organismos de Certificación (OCs) para el planeamiento y realización de las Auditorías de Sistemas de Gestión Integrados (SGIs)
+0. INTRODUCCIÓN
+0.1. Este documento proporciona los requisitos para la aplicación de INTE ISO/IEC 17021-1 para el planeamiento y la realización de las auditorías de SGI y, si es apropiado, la certificación del (los) sistema(s) de gestión de una organización contra dos o más conjuntos de criterios/normas para auditoría. Todos los apartados de INTE ISO/IEC 17021-1 continúan aplicando y este documento no agrega ni reemplaza ninguno de los requisitos de ésa norma.
+0.2. Este documento puede no ser aplicable a ISO 9001 según normas de sectores específicos.
+0.3. Se hará notar que el Anexo al final de este documento es también parte de los requisitos y se leerá como tal.
+1. DEFINICIONES
+Para propósitos de este documento, aplicarán las siguientes definiciones:
+1.1 Auditoría del Sistema de Gestión Integrado: Una auditoría de un sistema de gestión de una organización contra dos o más conjuntos de normas/criterios para la auditoría al mismo tiempo.
+1.2 Sistema de Gestión Integrado: Un sólo sistema de gestión que maneja aspectos múltiples del desempeño organizacional para cumplir con los requisitos de más de una norma de gestión, a un nivel de integración dado (1.3). Un sistema de gestión puede comprender desde un sistema combinado que agrega sistemas de gestión por aparte para cada conjunto de normas/criterios de auditoría, a un Sistema de Gestión Integrado, el cual cuenta con un solo sistema de documentación, elementos de sistema de gestión y responsabilidades.
+1.3 Nivel de Integración: El nivel al cual una organización utiliza un sólo sistema de gestión para manejar aspectos múltiples sobre el desempeño organizacional para cumplir con los requisitos de más de una norma de sistema de gestión. La integración tiene que ver con el sistema de gestión que pueda integrar la documentación, los elementos del sistema de gestión adecuados y las responsabilidades en relación con dos o más conjuntos de normas/criterios de auditoría.
+Nota: La intención de los criterios para auditoría es la de utilizar las normas del sistema de gestión como una base en la evaluación de la conformidad y la certificación (ej. ISO 9001, ISO 14001, ISO/IEC 20000, ISO 22000, ISO/IEC 27001, etc.).
+2. APLICACIÓN
+2.1 El Organismo de Certificación debe asegurar que:
+2.1.1 Se considere el nivel de integración del(los) sistema(s) de gestión en el establecimiento del nivel de integración del programa para la auditoría.
+2.1.2 Los planes de auditoría cubran todas las áreas y actividades aplicables a cada norma/especificación del sistema de gestión cubiertas por el alcance de la auditoría y que sean atendidas por auditor(es) competente(s).
+2.1.3 El equipo auditor como un todo debe satisfacer los requisitos para la competencia, establecidos por el Organismo de Certificación, para cada área técnica, según sea relevante para cada norma/especificación del sistema de gestión cubierta por el alcance de la auditoría de un SGI.
+2.1.4 La auditoría sea gestionada por un líder de equipo, competente en por lo menos una de las normas/especificaciones auditadas.
+2.1.5 Se disponga de suficiente tiempo para cumplir con una auditoría completa y efectiva del sistema de gestión de la organización para las normas/especificaciones del sistema de gestión cubiertas por el alcance de la auditoría.
+2.1.5.1 Para determinar el tiempo de la auditoría para una auditoría de un SGI, que cubra dos o más normas/especificaciones del sistema de gestión, ej. A + B + C, el Organismo de Certificación deberá:
+a) Calcular el tiempo requerido para la auditoría de cada norma/especificación del sistema de gestión por aparte (aplicando todos los factores relevantes proporcionados por los documentos de aplicación y/o las reglas del esquema para cada norma, ej., IAF MD5, ISO/TS 22003, ISO/IEC 27006);
+b) Calcular el punto de inicio T para la duración de la auditoría del SGI por la suma de la cantidad de las partes individuales (por ejemplo T = A + B + C);
+c) Ajustar la cifra de punto de inicio tomando en cuenta los factores que puedan incrementar o reducir el tiempo requerido para la auditoría (ver Anexo 1).
+Los factores para la reducción deberán incluir pero no limitarse a:
+ La extensión a la cual el sistema de gestión de la organización se integra;
+ La habilidad del personal de la organización para responder las preguntas sobre más de una norma de los sistemas de gestión; y
+ La disponibilidad del(los) auditor(es) competentes para auditar más de una norma/especificación del sistema de gestión.
+ Los factores para el incremento deberán incluir pero no limitarse a la complejidad de la auditoría de un SGI comparado con auditorías de sistema de gestión sencillo.
+d) Informar al cliente que la duración de una auditoría de SGI según el nivel de integración declarado para el sistema de gestión de la organización puede estar sujeta a ajustes en base a la confirmación del nivel de integración en la etapa uno y auditorías subsecuentes.
+2.1.5.2 La auditoría de un SGI (entiéndase el planeamiento de la auditoría del SGI) podría resultar en incremento de tiempo, pero donde resulte en la reducción, no deberá exceder 20% desde el inicio T (2.3.b).
+2.1.5.3 Se deberá documentar la cifra del punto de inicio y la justificación para el incremento o la reducción.
+2.2 Los documentos de aplicación existentes que se relacionen con las auditorías de normas/especificaciones de los sistemas de gestión (ej. Documentos Obligatorios de IAF) necesitan considerarse al desarrollar el programa de auditoría y los planes de auditoría para un SGI.
+2.3 Todos los requisitos aplicables a cada norma/especificación del sistema de gestión relevante al alcance del SGI deberá ser auditado.
+2.4 Los reportes de auditoría pueden ser integrados o separados con respecto a los sistemas de gestión auditados. Cada hallazgo que surja en un reporte integrado deberá ser trazable a la (las) norma(s)/especificación(es) del sistema de gestión aplicable.
+2.5 El Organismo de Certificación deberá considerar el impacto que el hallazgo de una no-conformidad para una de las normas/especificaciones del sistema de gestión tiene sobre el cumplimiento con otra(s) norma(s)/especificación(es) del sistema de gestión.
+3. AUDITORÍA INICIAL Y CERTIFICACIÓN
+3.1 Solicitud del cliente
+Esta deberá incluir la información relacionada al nivel de integración, que incluya el nivel de integración de los documentos, elementos del sistema de gestión y las responsabilidades (ver Anexo 1).
+3.2 Auditoría Etapa Uno
+Durante la Auditoría en Etapa Uno, el equipo auditor deberá confirmar el nivel de integración del SGI. El Organismo de Certificación deberá revisar y modificar, según sea necesario, la duración de la auditoría que se estableció en la información proporcionada en la etapa de solicitud.
+4. ACTIVIDADES DE VIGILANCIA Y RECERTIFICACIÓN
+El Organismo de Certificación deberá confirmar que el nivel de integración sigue sin cambios a través de todo el ciclo de certificación para asegurar que las duraciones de la auditoría sigan aplicando.
+5. SUSPENSIÓN, REDUCCIÓN, RETIRO
+Si la certificación para una o más normas/especificaciones del sistema de gestión está(n) sujeta(s) a suspensión, reducción o retiro, el Organismo de Certificación deberá investigar el impacto de éste en la certificación para otra(s) norma(s)/especificación(es) del sistema de gestión.
+Apéndice A: Reducción del tiempo de auditoría
+[imagen]
+Figura 1: Esta imagen ilustra la reducción (%) en la duración de una auditoría integrada y su relación con:
+Eje vertical: el nivel de integración de un sistema de gestión de una organización (ver abajo), que debería incluir una consideración de las habilidades del auditado para responder preguntas sobre aspectos múltiples. Un Sistema de Gestión Integrado resulta cuando una organización utiliza un solo sistema de gestión para manejar múltiples aspectos del desempeño organizacional. Se caracteriza por (pero no se limita a):
+1. Un conjunto de documentación integrado, que incluya instrucciones de trabajo a un buen nivel de desarrollo, según sea apropiado;
+2. Revisiones por la Dirección que consideren la estrategia y plan de negocios en general;
+3. Un enfoque integrado para las auditorías internas;
+4. Un enfoque integrado para la política y los objetivos;
+5. Un enfoque integrado para los procesos de sistemas;
+6. Un enfoque integrado para los mecanismos de mejora, (acción preventiva y correctiva; medida y mejora continua); y,
+7. Gestión de apoyo y responsabilidades integradas.
+El Organismo de Certificación debe decidir el nivel de porcentaje de integración según la extensión para el que el sistema de gestión de la organización cumpla con los criterios antes mencionados.
+Eje horizontal: La extensión, da como un cociente a multiplicar por un factor de 100 con el fin de alcanzar la extensión dada como porcentaje, para el que los miembros individuales del equipo auditor están calificados:
+100 ((X1-1) + (X2-1) + (X3-1) + (Xn-1)) Z(Y-1)
+Donde
+X1, 2, 3...n es el número de normas para el que un auditor está calificado como relevante para el alcance de la auditoría integrada;
+Y es el número de normas del sistema de gestión a cubrir por la auditoría integrada; Z es el número de auditores.
+Ejemplo:
+Un equipo auditor integrado de tres auditores que cubran tres diferentes normas de sistema de gestión. Un auditor está calificado para todas las tres normas; un auditor está calificado para dos de las normas y el otro auditor está calificado para una norma.
+La cifra del porcentaje a utilizar para el eje horizontal es:
+100 ((3-1)+ (2-1) + (1-1)) = 50 %
+3(3-1)
+Debido a la competencia disponible de cada auditor para más de un conjunto de criterios/normas de auditoría, la efectividad se gana y va dentro del cálculo de la posible reducción de tiempo en la fórmula anterior. Estas incluyen:
+1. Ahorro de tiempo debido a una reunión de apertura y una de cierre;
+2. Ahorro de tiempo pues se produce un reporte de la auditoría integrada;
+3. Ahorro de tiempo en logística optimizada;
+4. Ahorro de tiempo en las reuniones del equipo auditor; y,
+5. Ahorro de tiempo al auditar elementos comunes de forma simultánea, ej. Control de documentos.
+ANEXO VllI: RECOPILACIÓN DE DATOS PARA PROPORCIONAR INDICADORES DE RENDIMIENTO DE SISTEMA DE GESTIÓN DE ORGANISMOS DE CERTIFICACIÓN
+(OBLIGATORIO)
+(Tomado del Documento Mandatorio de IAF MD 15: 2014)
+0. INTRODUCCIÓN
+Este documento obligatorio para proporcionar indicadores de rendimiento del sistema de gestión de Organismos de Certificación está dirigido a proporcionar a los entes de acreditación una gestión de las actividades de vigilancia que corresponden a lo previsto en la norma ISO / IEC 17011, cláusula 7.11.2, que requiere de los Organismos de Acreditación lo siguiente:
+"Establecer procedimientos y planes para llevar a cabo vigilancia periódica de evaluaciones in situ, otra actividades de vigilancia y reevaluaciones a intervalos suficientemente próximos para supervisar la continua cumplimiento por parte del OEC acreditado en los requisitos de acreditación".
+Algunos organismos de acreditación han desarrollado "otras actividades de vigilancia", basada en la recolección de indicadores de desempeño. También se conoce que los Organismos de Certificación tienen sus propios indicadores para evaluar su desempeño, así como el desempeño de sus auditores y otros empleados.
+Otros indicadores se discutieron y se mostrarán en una ISO / IAF AAPG papel.
+Algunos de estos indicadores podrían dar una idea de la eficacia del proceso de Certificación del OEC para asegurar que se logre el propósito de la certificación.
+Este documento obligatorio especifica un conjunto de indicadores que se recogen y revisan periódicamente por un organismo de acreditación para complementar las evaluaciones de campo.
+Se espera que el análisis de estos indicadores pueda llevar a ajustes en la vigilancia actividades. Este documento representa el consenso de todos los miembros de la IAF y no se opone a la posibilidad de que los Organismos de Acreditación desarrollen otros indicadores para consulta con sus grupos de interés.
+1. ALCANCE
+Este documento identifica los "indicadores" que los organismos de acreditación solicitarán a los Organismos de Certificación Acreditados en Sistemas de Gestión. Los organismos de certificación informarán sobre estos indicadores en una base periódica.
+Este documento se aplica a todos los organismos de acreditación miembros de IAF.
+2. TÉRMINOS Y DEFINICIONES
+Para efectos de este documento, los términos y definiciones dados en la Norma ISO / IEC 17011, INTE ISO/IEC 17021-1 y documentos obligatorios de IAF se aplicará la siguiente definición:
+Indicador - Una tendencia o un hecho que indica el estado o el nivel de las actividades de certificación.
+3. INDICADORES A RECOPILAR Y REVISAR
+Los Miembros de Acreditación de IAF deberán recopilar los siguientes indicadores de los Organismos de Certificación sobre una base anual, el periodo predeterminado es enero de cada año, a menos que se llegue a otro acuerdo entre el Organismo de Acreditación y el Organismo de Certificación. Los indicadores a continuación se mencionan deben ser informados por país y por norma de certificación bajo la que el organismo de certificación se encuentra acreditado.
+3.1 Número de certificados acreditados válidos al final de diciembre
+Nota: El análisis de estos datos indica cualquier cambio en el número de certificados en un período de tiempo dado. Sobre la base de los datos facilitados, los OA podrán obtener una comprensión razonable de cualquier cambio significativo en las operaciones del OC.
+3.2 Número de auditores
+Nota: Esta información, junto con la información en el punto 3.1, le daría una indicación de si el OC dispone de recursos adecuados para la gestión de los programas de certificación.
+Esto se debe recopilar al mismo tiempo que la información contenida en 3.1 e incluyen todos los auditores como se define en la norma INTE ISO/IEC 17021-1.
+3.3 Número de transferencias aceptadas
+Nota: Esta cifra refleja el # de transferencias (IAF MD2*) aceptada por el OC desde el período del informe anterior. Mientras que las transferencias pueden ser por muchas razones, cualquier aumento repentino en el número de transferencias podría proporcionar al OA los insumos para la revisión adicional durante la evaluación in situ.
+*Reconocimiento de una certificación del sistema de gestión válida y existente, concedida por un OC acreditado ("organismo de certificación de emisión", por otro organismo de certificación acreditado, ("OC receptor") con el propósito de emitir su propia certificación.
+3.4 Número de auditorías vencidas
+Nota: Esta información proporcionaría al OA aportaciones sobre la eficacia de un OC en la gestión de su programa de auditoría. Auditorías vencidas serían aquellos que no se llevó a cabo en el período de tiempo que se indica en los procedimientos del OC. El número informado debe oscilar hasta el período del informe anterior.
+3.5 Número de auditor - días entregados
+Nota: Auditor en día se ha de entender como se indica en la IAF MD5*. Esta información proporcionaría al OA, con indicación de los recursos utilizados por el Organismo de Certificación y debe ser comparado con los otros indicadores. El número informado debe oscilar hasta el período del informe anterior.
+*La duración de un día auditor es normalmente 8 horas, y puede o no incluir el tiempo de viaje o almuerzo dependiendo de la legislación local.
+4. IMPLEMENTACIÓN
+Cada organismo de acreditación deberá brindar orientación a los Organismos de Certificación en cómo los datos sobre indicadores deberán ser proporcionados. Los organismos de acreditación también puede considerar las certificaciones multi-sitio emitidas por un Organismo de Certificación y en consecuencia decidir sobre la utilidad de la recopilación de información sobre las certificaciones multi-sitio. Los organismos de acreditación pueden considerar si cualquier acuerdo contractual con un Organismo de Certificación puede abordar específicamente la prestación de estos indicadores periódicamente, al menos una vez al año.
+Fin del Documento Obligatorio IAF, Recopilación de datos para proporcionar indicadores de rendimiento de sistema de gestión de Organismos de Certificación.
+Apéndice A (normativo): Como Reportar el Número Total de Certificados Válidos
+El indicador que se describe en 3.1 requiere que los Organismos de Certificación reporten el número total de válido certificados emitidos. El número de certificados válidos debe ser reportado de acuerdo con las siguientes reglas:
+• Si un cliente posee un certificado válido que cubre un sitio, esto tiene que ser contado como un solo certificado (certificado de un solo sitio).
+• Si un cliente posee un certificado, el cual cubre más de un sitio, todavía se cuenta como un certificado, uno solo fue emitido (certificado de multi-sitios). Sin embargo, si los múltiplo sitios están certificados individualmente, cada certificado otorgado tiene que ser contado (como para un solo sitio certificado).
+• Si un cliente posee varios certificados en un sitio único (cada sitio posee su propio certificado) o uno solo de los certificado multi-sitio (con un certificado válido que cubren una serie de sitios), el Organismos de Certificación deberán informar el número total de certificados.
+• Si un cliente está certificado en más de un sistema de gestión, y un Organismo de Certificación emitió un solo certificado para cubrir los dos ámbitos, se debe contar número total de certificaciones cubiertas, por ejemplo, uno por cada sistema de gestión estándar cubierto.
+Nota: Un certificado válido se refiere a una certificación de que se encuentra valida bajo un contrato de certificación, ya sea con un estado activo o suspendido. Certificados retirados, así como solicitantes, no deben ser incluidos para este propósito.
+APLICACIÓN DE LOS CRITERIOS
+La aplicación de este criterio (Anexo VIII) regirá a partir del 14 de julio del año 2016. Por lo tanto los Organismos de Certificación de Sistemas de Gestión acreditados para certificar sistemas de gestión ambiental, deben satisfacer los requisitos del documento a partir de dicha fecha. La Secretaría de Acreditación de Organismos de Certificación será la encargada de difundir la información a los OEC´s acreditados y/o en proceso de acreditación para que sean notificados de dicha información para que realicen los cambios o modificaciones respectivas.
+ANEXO IX: DOCUMENTO OBLIGATORIO DE IAF PARA LA AUDITORÍA Y CERTIFICACIÓN DE UN SISTEMA DE GESTIÓN OPERADO POR UNA ORGANIZACIÓN MULTISITIO
+(Donde la aplicación del muestreo de sitios no es apropiada)
+(OBLIGATORIO)
+(Tomado del Documento Mandatorio de IAF MD 19: 2016)
+0 INTRODUCCIÓN
+Este documento es para la auditoría y certificación de los Sistemas de gestión de organizaciones con una red de sitios con esquemas de certificación y que no permitan el muestreo del sitio. El objetivo es garantizar que la auditoría proporcione la confianza adecuada en la implementación del sistema de gestión de las normas pertinentes en todos los sitios y que la auditoría es tanto práctica como viable en términos operativos.
+1 ALCANCE
+Este documento es obligatorio para los Organismos de Certificación de Sistemas de Gestión y la aplicación coherente de las Cláusulas 8.2 y 9 de la ISO/IEC 17021-1: 2015, donde aplique auditoría y certificación de los Sistemas de Gestión a organizaciones que operan con una red de sitios donde la aplicación del muestreo del sitio no es apropiado. Todas las cláusulas de ISO/IEC 17021-1 siguen aplicándose y este documento no sustituye ninguno de los requisitos de esa norma. Sin embargo, las normas pertinentes podrían proporcionar requisitos específicos para la auditoría y certificación de organizaciones multisitios (por ejemplo, ISO / IEC 27006, ISO / TS 22003).
+2. DEFINICIONES
+2.1 Organización
+Persona o grupo de personas que tiene sus propias funciones con responsabilidades, autoridades y las relaciones para lograr sus objetivos.
+(Fuente: Definición 3.1 del Anexo SL de las Directivas ISO).
+2.2 Sitio permanente
+Ubicación (física o virtual) donde la organización del cliente realiza un trabajo o proporciona un servicio continúo.
+(Fuente: ISO / CEI TS17023: 2013)
+2.3 Sitio temporal
+Ubicación (física o virtual) donde la organización del cliente realiza un trabajo específico o proporciona un servicio por un período finito de tiempo y que no pretende convertirse en un sitio permanente.
+(Fuente: ISO / IEC TS17023: 2013)
+2.4 Organización multisitios.
+Organización cubierta por un único sistema de gestión que incluya una función central (no necesariamente la sede de la organización) en la que determinadas actividades están planificadas, controladas y en que una red de sitios (permanente, temporal o virtual) realiza total o parcialmente dichas actividades.
+2.5 Función central
+Función que es responsable por controlar el sistema de gestión central.
+Nota: La función central es donde el control y la autoridad de la alta dirección de la
+organización ejerce sobre todos los sitios.
+2.6 Sitio virtual
+Entorno o ambiente en línea que permite a personas de diferentes ubicaciones físicas ejecutar procesos.
+Nota 1: Un ejemplo de sitio virtual es una organización de diseño y desarrollo con empleados que realizan trabajos de forma remota, trabajando en una nube.
+Nota 2: Un sitio no puede ser considerado un sitio virtual cuando los procesos deben ser ejecutados en un entorno físico, por ejemplo, almacenaje, fabricación, pruebas físicas de laboratorios, instalación o reparación de productos físicos.
+Nota 3: Un sitio virtual se considera un único sitio, esto con el propósito de calcular el tiempo de auditoría.
+2.7 Proceso primario
+Proceso directamente relacionado con productos o actividades, donde cualquier falla afecta directamente la conformidad relacionada con los objetivos de los documentos normativos aplicables.
+Nota: Estos procesos a veces se denominan "núcleo o procesos de creación de valor", normalmente referenciadas en el Anexo SL en la Cláusula 8.
+2.8 Proceso Secundario
+Proceso de apoyo que no tiene un impacto directo sobre la conformidad relacionada con los objetivos de los documentos normativos aplicables.
+3. FUNDAMENTO DEL ENFOQUE PROPUESTO
+Este documento aplica en la auditoría (para fines de certificación de tercera parte) de una organización que realiza actividades planificadas, controladas y realizadas por una red de sitios, independientemente de si son permanentes, temporales o virtuales.
+Cualquier sitio puede realizar total o parcialmente las actividades cubiertas en el alcance del sistema de gestión.
+Sin embargo, este documento se utiliza cuando el muestreo no es apropiado durante la planificación y la realización de la auditoría. Puede existir muchas razones para esto, tales como:
+- todos los sitios realizan actividades significativamente diferentes;
+- el cliente solicita que cada sitio sea auditado;
+- existe un esquema sectorial o un requisito reglamentario en el que se estipula que cada sitio debe ser objeto de una auditoría sistemática.
+Es el Sistema de Gestión de la organización el que debe ser auditado y certificado; por definición, una auditoría del Sistema de Gestión se basa sólo en una toma de muestra de la información disponible.
+Si tomamos el ejemplo de una auditoría del SGC de una empresa de manufactura con 4 líneas de producción diferentes, todas las 4 líneas tendrán que ser auditadas independientemente del hecho de que estén en un único sitio o en locaciones distanciadas por cientos de kilómetros; Incluso si la logística de la auditoría necesita adecuarse a las distancias geográficas, el tiempo de auditoría in situ no debería variar significativamente.
+Antes de la auditoría, el OEC es responsable de comprender correctamente dónde y cómo la organización está llevando a cabo las diferentes actividades bajo el alcance del sistema de gestión con el fin de planificar y realizar auditorías eficientes y efectivas.
+Los criterios claves para asegurar una planificación y ejecución efectiva de un programa de auditoría incluyen:
+- Obtener los conocimientos necesarios en la fase de planificación sobre el Sistema de Gestión de la organización incluyendo elementos / procesos / actividades que realizan;
+- Determinar los factores críticos que deben evaluarse para una auditoría eficiente y eficaz, dependiendo del tipo de Sistema de Gestión que se esté auditando;
+- Seleccionar el equipo de auditoría tomando en cuenta lo anterior;
+-Asignar suficiente tiempo de auditoría in situ.
+4 METODOLOGÍA DE AUDITORÍA Y CERTIFICACIÓN
+4.1 General
+4.1.1 Todos los requisitos de la norma ISO / IEC 17021-1 se deben aplicar además las metodologías que se exponen a continuación.
+4.2 Elegibilidad para la Certificación
+4.2.1 La organización deberá identificar su función central responsable del sistema de gestión.
+4.2.2 La función central tendrá autoridad organizativa para definir, establecer y mantener el sistema de gestión.
+4.2.3 El sistema de gestión de la organización deberá estar sujeto a una revisión centralizada de la gestión.
+4.2.4 Todos los sitios estarán sujetos al programa de auditoría interna de la organización.
+4.2.5 La función central será la responsable de garantizar que los datos se recopilen y analicen desde todos los sitios y deberá demostrar su autoridad y capacidad para iniciar cambios organizacionales que sean requeridos en lo que respecta, pero no limitado, a:
+i. documentación del sistema y cambios en el sistema;
+ii. revisión de la gestión;
+iii. quejas;
+iv. evaluación de acciones correctivas;
+v. la planificación de la auditoría interna y la evaluación de los resultados;
+vi. los requisitos legales y reglamentarios relativos al estándar (es).
+4.3 Revisión de Aplicaciones y Programa de Auditoría
+4.3.1 El OEC deberá obtener información pertinente sobre la organización con el fin de:
+- determinar el alcance del sistema de gestión que se está siendo operado contra el alcance de certificación solicitado.
+- comprender los contratos legales y contractuales que vinculan los diferentes sitios que implementan el Sistema de Gestión;
+- entender "lo que pasa donde", es decir, determinar las interfaces entre los diferentes sitios y actividades e identificar cualquier duplicación de actividades en sitios separados;
+- tener en cuenta otros factores relevantes (véase también IAF MD5, ISO/IEC TS 17023);
+- determinar el tiempo de auditoría y determinar la competencia del equipo de auditoría
+- determinar el programa de auditoría.
+4.3.2 Al determinar el programa de auditoría, el OC debe otorgar un tiempo adicional suficiente para actividades que no forman parte del tiempo de auditoría calculado, como tiempo de viaje, reuniones entre los miembros del equipo de auditoría, reuniones de apertura y cierre, reuniones posteriores a la auditoría, etc. Dependiendo de la organización a ser auditada.
+Nota: Pueden utilizarse técnicas de auditoría remota, siempre que los procesos a ser auditados de forma remota sean apropiados (ver ISO / IEC 17021-1).
+4.3.3 El OC deberá considerar la necesidad de realizar la Etapa 1 en más de un sitio, con el fin de obtener la información requerida por la Cláusula 9.3.1.2.2 de 17021-1.
+4.3.4 El OC, en colaboración con la organización, deberá identificar todos los procesos del Sistema de Gestión implementado en cada sitio (basado en el alcance de la certificación) incluyendo procesos primarios, procesos de evaluación y mejora de desempeño y procesos secundarios.
+En cada ciclo de certificación, el programa de auditoría deberá:
+a. Incluir durante cada auditoría todos los procesos primarios, tal como se realizan en cada sitio;
+b. Incluir todas las evaluaciones del desempeño y procesos de mejora durante cada auditoría inicial y de reevaluación y al menos una vez más en un seguimiento del ciclo de auditoría.
+c. Incluir los procesos secundarios de la siguiente manera:
+c.1. Auditoría de todos los procesos secundarios en cada auditoría inicial y de reevaluación, pero se pueden auditar procesos secundarios similares pueden llevarse a cabo en diferentes sitios por medio de muestreo;
+c.2 Durante las auditorías de seguimiento, los procesos secundarios se deberán revisar basados en muestreos y dependiendo de resultado de las auditorías anteriores. Este muestreo deberá ser diseñado para garantizar un tamaño muestra significativo que asegure una evaluación de la conformidad con los requisitos del sistema de gestión y deberá asegurar que la selección de los procesos auditados durante el ciclo de tres años sean razonablemente representativos del sistema de gestión.
+4.3.5 Cuando se utilicen equipos de auditoría compuestos por más de un miembro, será responsabilidad del OEC, en conjunto con el auditor líder, identificar las competencias técnicas necesarias para cada parte de la auditoría y para cada sitio y asignar a los miembros del equipo la parte de la auditoría que les corresponde.
+4.4 Auditoría Inicial: Etapa 1
+4.4.1 Durante la Etapa 1, el equipo de auditoría deberá asegurarse completar la información para:
+- confirmar el programa de auditoría;
+- Planificar la Etapa 2, teniendo en cuenta los procesos / elementos / actividades a ser auditadas en cada sitio. Además de cualquier proceso primario implementado en el Sitio, el equipo auditor deberá seleccionar en qué sitios la implementación de procesos no primarios necesitan ser auditados para garantizar una auditoría eficaz y completa del Sistema de gestión; y
+- confirmar que el equipo de auditoría de la fase 2 tiene la competencia necesaria.
+Nota: Los procesos no primarios mencionados aquí significan la Evaluación de Desempeño y procesos de mejora, así como los procesos secundarios.
+4.5 Auditoría Inicial: Etapa 2
+Al final de la auditoría inicial, el equipo auditor deberá documentar qué procesos fueron auditados en cada sitio. Esta información se utilizará para realizar los planes de auditoría de seguimiento.
+4.6 Auditorías de seguimiento
+4.6.1 El OEC deberá asignar tiempo suficiente en la evaluación in situ para auditar todos los procesos primarios así como otros procesos en cada sitio (ver 4.5). Los procesos secundarios pueden ser muestreados siempre que se obtenga un tamaño de muestra significativo para garantizar la conformidad con los requisitos del Sistema de Gestión (ver los requisitos de la Cláusula 9.6.2.2 de ISO / IEC 17021-1: 2015). El OEC deberá garantizar que la selección de los procesos auditados durante el ciclo de tres años sea razonablemente representativa del Sistema de Gestión.
+4.6.2 La cantidad de tiempo de auditoría asignado a cada sitio dependerá de si el sitio está realizando procesos primarios o no.
+4.7 Auditorías de recertificación
+El OEC debe auditar todo el sistema de gestión de manera similar a la auditoría inicial. El OEC deberá tomar en cuenta qué procesos han sido auditados en qué sitio durante el ciclo actual.
+5. CÁLCULO DEL TIEMPO DE AUDITORÍA
+5.1 Las normas ISO aplicables, documentos de IAF (principalmente IAF MD5) y, cuando sea necesario, cualquier requisito aplicable del Esquema del Sector en relación con los requisitos de este documento se utilizarán para calcular el tiempo total de auditoría independientemente del número de sitios.
+Este tiempo de auditoría nunca será inferior al que habría sido calculado para el tamaño y complejidad de la operación si todo el trabajo se hubiera realizado en un solo sitio (es decir, con todos los empleados de la empresa en el mismo sitio).
+Nota: Es poco probable que el enfoque de "un tercio" para el tiempo de auditoría de seguimiento y el enfoque de "dos tercios" para el tiempo de auditoría de reevaluación en sitios únicos sean adecuados y debe considerarse la posibilidad de añadir el tiempo necesario para las reuniones de apertura y cierre, procesos duplicados, variedad de procesos primarios a ser auditados, etc., tal como se indica en el MD5 de IAF para logísticas complicadas.
+6. DOCUMENTOS DE CERTIFICACIÓN
+6.1 El documento de certificación deberá reflejar el alcance de la certificación y sitios/ entidades legales auditadas y certificadas por el OEC.
+7. APLICACIÓN DE LOS CRITERIOS
+La aplicación de este criterio (Anexo IX) regirá a partir del 31 de marzo de 2017. Por lo tanto los Organismos de Certificación de Sistemas de Gestión acreditados para certificar sistemas de gestión, deben satisfacer los requisitos del documento a partir de dicha fecha.
+ANEXO X: CRITERIOS PARA LA EVALUACIÓN DE ORGANISMOS DE CERTIFICACIÓN DE SISTEMAS DE GESTIÓN QUE CERTIFICAN SISTEMAS DE GESTIÓN PARA LA IGUALDAD DE GÉNERO EN EL ÁMBITO LABORAL, RECONOCIDA POR EL INAMU.
+(OBLIGATORIO)
+1. ESPECIFICACIONES PARA EL ORGANISMO DE CERTIFICACIÓN (OCSG) SEGÚN EL ESQUEMA PARA LA CERTIFICACIÓN DE LOS SISTEMAS DE GESTIÓN PARA LA IGUALDAD DE GÉNERO EN EL ÁMBITO LABORAL EN SU VERSIÓN VIGENTE.
+1.1 El Organismo de Certificación debe cumplir los siguientes aspectos para poder llevar a cabo auditorías bajo el esquema de certificación del INAMU:
+a. Contar con acreditación vigente ante el Ente Costarricense de Acreditación (ECA), como Organismo de Certificación de Sistemas de Gestión contra la norma INTEISO/ IEC 17021 en su versión vigente, para el alcance específico “Igualdad de Género en Relaciones Laborales”. Lo indicado en este esquema será objeto de evaluación por parte del ECA
+b. Contar, luego de obtenida la acreditación con ECA, con el registro por parte de INAMU, la cual se debe solicitar mediante una nota formal firmada por la persona representante legal del organismo de certificación dirigida a la Presidencia Ejecutiva del INAMU con copia al correo electrónico selloigualdad@inamu.go.cr. De darse la autorización, el INAMU lo comunicará por los medios que considere convenientes.
+c. Demostrar que todo el personal involucrado en el desarrollo de las funciones de certificación tiene las competencias necesarias. En específico para las personas auditoras, revisoras y tomadoras de decisión:
+I. Conocimientos generales sobre la teoría de Género y en particular, sobre los componentes de género de la Norma INTE-38-01-01:2015, así como, de sus requisitos de gestión.
+II. Conocimiento amplio de la norma INTE- 38-01-01 y de los Criterios para la aplicación de la norma INTE 38-01-01 en su versión vigente.
+III. Al menos 20 jornadas de auditoría (de 8 horas cada una) de experiencia como persona auditora en otras normas de sistemas de gestión. Este requisito aplica solamente para los auditores del organismo de certificación.
+IV. Manejo técnico del idioma en el que se encuentre el Sistema de Gestión de la organización auditada.
+El equipo de auditoría debe contar con al menos una persona experta técnica en género, que debe contar con los siguientes requisitos:
+I. Experiencia documentada de al menos cinco años y desarrollada en los últimos dos años, en la aplicación del enfoque de género.
+II. Conocimiento amplio en los temas y requisitos de género de la norma INTE- 38-01-01 en su versión vigente y que se establecen en:
+i. Tratados (Leyes, Acuerdos y Convenios) internacionales ratificados por Costa Rica y vinculantes en materia de igualdad de género como: Convención para la Eliminación de todas las Formas de Discriminación contra las Mujeres (CEDAW por sus siglas en inglés), Convención Interamericana para Prevenir, Sancionar y Erradicar la Violencia contra la Mujer "Convención de Belem do Para", Convenios de la Organización Internacional del Trabajo-OIT (Convenios, 110, 111 y 156), entre otros.
+ii. Leyes, Normas y Decretos relacionados con los Derechos Laborales establecidos en la legislación costarricense para todas las personas trabajadoras y especialmente los derechos de las mujeres en el trabajo como: derechos durante el embarazo, licencias de maternidad y lactancia, derechos para trabajar en ambientes libres de hostigamiento sexual y violencia de género, así como, manejo básico de temas, entre ellos, aquellos que permitan mejorar la conciliación entre el ámbito del hogar y el empleo y, cambios culturales, en el marco de la corresponsabilidad en las tareas no remuneradas que realizan las mujeres y los hombres.
+iii. Conocimiento básico sobre funcionamiento de los Sistemas de Gestión de Calidad.
+1.2 Una vez registrado por el INAMU, el OCSG se compromete a cumplir las siguientes disposiciones:
+a. Emitir certificados en español en relación con este esquema. Un segundo idioma puede ser agregado al certificado.
+b. Emitir certificados de cumplimiento de norma la nacional INTE 38-01-01 y su Esquema de Certificación, que indique en su pie de página, con letra visible la siguiente leyenda: “Este certificado no sustituye al “Sello de Igualdad de Género” del INAMU”.
+c. Indicar en el certificado que el SIGIG se encuentra certificado contra los requisitos de la norma la nacional INTE 38-01-01 en su versión vigente y este Esquema de Certificación.
+d. Incluir en el acuerdo de certificación que la organización que obtenga la certificación debe cumplir todos los requisitos aplicables del Esquema de Certificación.
+e. Poner a disposición de INAMU, cuando este lo requiera, toda información y registros que solicite sobre los procesos de certificación de los SIGIG, que se apeguen al cumplimiento de este Esquema de Certificación, y específicamente debe informar al INAMU lo siguiente:
+1. De forma mensual, las organizaciones que ingresan solicitudes para iniciar el proceso de certificación.
+2. De forma inmediata, cuando una organización obtiene la certificación.
+3. De forma inmediata, cuando se produzca, cualquier queja, denuncia o proceso de investigación relacionado, al cual esté sometida una organización.
+4. De forma inmediata, cualquier cancelación o suspensión de la certificación.
+5. De forma inmediata, cualquier uso incorrecto del “Sello de Igualdad de Género”.
+1.3 El OCSG debe verificar:
+I. Al momento de recibir la solicitud, que la organización esté al día con lo siguiente:
+a) Todas las obligaciones con el fisco, tanto materiales como formales (constancia de que no tienen deudas pendientes con tributación).
+b) Contribuciones sociales (Estar al día con la Caja Costarricense del Seguro Social (CCSS), Instituto Nacional de Aprendizaje (INA), Fondo de Desarrollo Social y Asignaciones Familiares, FODESAF).
+c) Municipalidad, para lo cual aportará las constancias correspondientes (constancia de que se está al día con los impuestos/patentes municipales).
+d) No contar con infraccionalidades en la Dirección Nacional de Inspección del Trabajo del Ministerio de Trabajo y Seguridad Social. Nota: Estas condiciones deben mantenerse mientras la organización se encuentre certificada y usando el “Sello de Igualdad de Género” del INAMU.
+II. Al realizar la auditoría in situ, que la organización cuente con lo siguiente: a) La personería jurídica y la naturaleza y propiedad de las acciones, en el caso de organizaciones privadas.
+1.4 El OCSG debe disponer de acuerdos ejecutables de cumplimiento con sus clientes que comprometan a estos a proporcionar, bajo petición previa, acceso al equipo de evaluación del ECA, con el fin de evaluar el rendimiento del OEC en la realización de las actividades de evaluación de conformidad en el sitio del cliente.
+Además, El OCSG debe realizar las gestiones necesarias para que las organizaciones permitan la participación de INAMU como observador.
+Nota: El objetivo principal de participar en los procesos de auditoría es para que el INAMU obtenga insumos y aprendizajes para mejorar el sistema, las herramientas y demás aspectos relacionados así 14 como para realimentar al OCSG para la mejora de los procesos de auditoría de los SIGIG. El INAMU no puede interferir en los procesos de auditoría del OCSG, su participación se limita únicamente a la observación de los procesos.
+2. Criterios relacionados con la certificación
+2.1. Jornadas de las auditorías de certificación Para el cálculo de jornadas de auditoría el OCSG debe aplicar lo siguiente:
+a. El tiempo de auditoría incluye el tiempo total en el sitio en los establecimientos del cliente (física o virtual) y el tiempo dedicado fuera del sitio para llevar a cabo la planificación, la revisión documental, la interacción con el personal del cliente y el informe escrito.
+b. Los viajes (hacia el sitio o entre sitios) y los descansos no se incluyen en la duración de la gestión de las auditorías de certificación del sistema.
+c. El número de días de auditoría asignados no debe reducirse en las etapas de planificación por programar más horas por día de trabajo. Esta consideración puede realizarse para permitir una auditoría eficiente de las actividades realizadas por turnos, que pueden requerir horas adicionales en una jornada de trabajo.
+d. Si después del cálculo, el resultado es un número decimal, el número de días debería ajustarse al medio día más cercano (Por ejemplo: 5.3 días de auditoría se convierten 5.5 (5 días y medio) días de auditoría; 5.2 días de auditorías se convierten en 5 días de auditoría). e. Cálculo del tiempo de auditoría:
+I. El número efectivo de personal de la organización se utiliza como base para el cálculo de tiempo de auditoría del sistema de gestión para la igualdad de género. Las consideraciones para determinar el número efectivo de personas empleadas incluyen las personas contratadas por medio tiempo, las personas que trabajan por turnos, personal administrativo y todas las categorías de personal fuera de la oficina, los procesos repetitivos y el empleo de un gran número de personal no calificado.
+II. La justificación para determinar el número efectivo de personal debe estar disponible para la organización que opta por la certificación ante el OCSG y para el ECA a petición y para su revisión durante sus evaluaciones.
+III. Dependiendo de las horas trabajadas, la cantidad de personal a medio tiempo y empleados de tiempo parcial en el alcance, puede reducirse o aumentarse y convertirse en un número equivalente a un personal a tiempo completo (por ejemplo, 30 personas de medio tiempo que trabajan 4 horas / día equivale a 15 personas de tiempo completo).
+IV. Los OCSG deben determinar la duración y el momento de la auditoría que evaluará mejor la aplicación efectiva del sistema de gestión para el alcance completo de las actividades del cliente, incluyendo la necesidad de auditar fuera del horario normal de trabajo y diversos turnos de trabajo. Esta necesidad debe ser acordada con el cliente.
+V. La metodología utilizada como base para el cálculo de la duración de una auditoría inicial y de re-certificación (etapa 1 + etapa 2) involucra la interpretación de las siguientes tablas y figuras:
+Tabla 1. Relación entre el número efectivo de personal y la duración de la auditoría
+[imagen]
+[imagen]
+VI. La determinación de la duración de la auditoría de sistemas de gestión utilizando la tabla y/o figura anterior no deben incluir el tiempo de “personas auditoras en formación”, observadores o el tiempo de las personas expertas técnicas.
+VII. El tiempo de auditoría determinado por el OCSG y la justificación de la determinación del mismo debe quedar debidamente evidenciado por medio de registros. Este cálculo debe incluir detalles sobre el tiempo que se asignará para cubrir todo el alcance de la certificación.
+VIII. El OCSG debe proporcionar la determinación del tiempo de auditoría y la justificación a su organización cliente como parte del contrato y hacerlo disponible al Ente Costarricense de Acreditación cuando este lo solicite.
+IX. Hay factores que pueden afectar la duración de la auditoría. En caso de que se utilicen, debe mantenerse registros de su justificación. Los factores adicionales que deben considerarse incluyen, pero no se limitan a:
+i. Incrementos en la duración de la auditoría (Factores aditivos):
+a) Logística complicada que implique más de un edificio o localización donde se lleva a cabo el trabajo.
+b) Personal que hable en otro idioma distinto al español, o que presente algún tipo de discapacidad (que exige intérpretes, mediación pedagógica o que no permita que las personas auditoras trabajen independientemente);
+c) Un sitio muy extenso para el número de personal (ej. Una hacienda ganadera);
+d) Actividades que requieren visitas a sitios temporales para confirmar las actividades de los sitios permanentes cuando el sistema de gestión está bajo certificación.
+e) “Outsourcing” de funciones o procesos.
+ii. Reducción en la duración de la auditoría (Factores sustractivos):
+a) Un sitio muy pequeño para el número de personal
+b) Madurez del sistema de gestión;
+c) Conocimiento previo del sistema de gestión del cliente (ej. ya certificado para otra norma por el mismo OCSG);
+d) Cuando el personal incluye un número de personas que trabajan fuera del lugar por ejemplo vendedores, conductores, personal de servicio, entre otros y es posible sustancialmente auditar el cumplimiento de sus actividades con el sistema a través de la revisión de registros.
+X. Todos los atributos del sistema, procesos y productos/servicios del cliente deberían considerarse y hacerse un ajuste razonable para aquellos factores que podrían justificar más o menos tiempo de auditoría para una auditoría eficaz. Factores aditivos pueden ser compensados por factores sustractivos.
+2.2 Mantenimiento de la certificación El OCSG debe cumplir las siguientes condiciones:
+a. La vigencia de la certificación debe ser otorgada por un período de 3 años con un proceso de re-certificación de la certificación al tercer año, condicionados al cumplimiento de los requisitos de la norma INTE-38-01-01 en su versión vigente y Esquema de Certificación.
+b. Los procesos de seguimiento para el mantenimiento de la certificación deben realizarse en los aniversarios del otorgamiento de la certificación inicial, pudiendo adelantarse un mes o retrasarse un máximo 2 meses.
+c. Los procesos de re-certificación de la certificación se deben realizar con al menos 3 meses de anticipación a su vencimiento, con el fin de que se pueda otorgar el certificado de recertificación antes del vencimiento del certificado actual.
+d. El OCSG debe distribuir los requisitos a evaluar en los seguimientos de la siguiente forma:
+[imagen] Aspectos a evaluar
+C [imagen] e. Si en los seguimientos son detectadas NC Mayores, el OCSG debe establecer un tiempo máximo para la subsanación de estos hallazgos. Si este tiempo no es cumplido por la organización, se debe suspender la certificación hasta que las NC Mayores sean subsanadas. Si la organización no logra subsanar estas NC en el tiempo definido por el OCSG, se debe proceder a la cancelación de la certificación.
+f. El OCSG debe dar seguimiento a las NC detectadas en auditorías anteriores en todos los procesos de seguimiento. Estos resultados deben ser tomados en cuenta para la planificación de los procesos de auditoría.
+g. En el caso de los requisitos que solo se vean en uno de los seguimientos, el OCSG puede decidir ver el requisito en un año de seguimiento diferente al propuesto, justificando técnicamente y con evidencia objetiva, de forma documentada, los motivos para el cambio.
+h. La duración de la auditoría de seguimiento para una determinada organización debería ser proporcional al tiempo dedicado a la auditoría de certificación inicial (etapa 1 + etapa 2), con la cantidad total de tiempo dedicado anualmente al seguimiento siendo 1/2 del tiempo empleado en la auditoría de certificación inicial. Una actualización de los datos de los clientes relacionados con la certificación debe estar disponible para la planificación de cada auditoría de seguimiento. La duración planificada para la auditoría de seguimiento debe ser revisada de vez en cuando, al menos en cada auditoría de seguimiento y siempre en el momento de la re-certificación, para tener en cuenta los cambios en la organización, la madurez del sistema, etc. La evidencia de la revisión, incluyendo cualquier ajuste a la duración de la auditoría debe ser registrada.
+3. Actividades de vigilancia extraordinarias
+3.1 El organismo de certificación puede realizar actividades de vigilancia extraordinarias de clientes certificados bajo la forma de visitas notificadas a corto plazo o sin anunciar, con el fin de investigar quejas, en respuesta a cambios, o como seguimiento de clientes con la certificación suspendida. En estos casos:
+a) el organismo de certificación debe describir y poner en conocimiento de los clientes certificados, con antelación, las condiciones en las que se van a llevar a cabo estas auditorías;
+b) el organismo de certificación debe poner un cuidado muy especial en la designación del equipo auditor, debido a la imposibilidad, por parte de la organización auditada, de formular una objeción sobre los miembros del equipo auditor.
+4. Criterios para organizaciones multi-sitios Generalidades:
+4.1 Cuando las actividades de la organización sujeta a certificación se realizan en diferentes sitios de manera similar estando todos ellos bajo la autoridad y el control de dicha organización, el organismo de certificación puede establecer procedimientos para el muestreo de sitios en la auditoría inicial y posteriores auditorías de mantenimiento y recertificación. De querer hacer uso de esa opción, el organismo de certificación debe realizar lo que se establece en este apartado, incluyendo lo relacionado con el cálculo de la muestra y la duración de la auditoría.
+4.2 Siempre que se aplique lo indicado en este apartado, el organismo de certificación debe tener disposiciones para explicar dicha aplicación a la organización previamente al desarrollo de la auditoría.
+4.3 Los sitios temporales que están cubiertos por el sistema de gestión de la organización pueden ser auditados por muestreo a fin de proporcionar evidencia de la operación y eficacia del sistema de gestión. Estos sitios pueden ser incluidos en el alcance de una certificación multisitio. Cuando estos sitios sean incluidos en el alcance, deberán ser identificados como temporales.
+4.4 Una organización multisitios no necesita ser una entidad legal única, pero todos los sitios deben tener una relación legal o contractual con la oficina central y con el sitio temporal, todos dentro del mismo sistema de gestión, el que es establecido, y es sujeto a supervisión continua y a auditorías internas por la oficina central. Esto implica que dicha oficina central debe tener el derecho y la autoridad suficiente como para requerir que los sitios implementen las acciones correctivas que sean necesarias en cualquier sitio.
+Cuando sea aplicable, este derecho debería estar establecido en el acuerdo formal entre la oficina central y los sitios.
+4.5 Ejemplos de posibles organizaciones multisitios son:
+a) organizaciones que operan con franquicias;
+b) empresas fabricantes que disponen de una red de oficinas comerciales (el presente apartado aplicaría a dicha red);
+c) empresas de servicio con sitios múltiples que ofrecen un servicio similar;
+d) empresas con múltiples delegaciones.
+Elegibilidad de una organización para la aplicación del muestreo
+4.6 Los procesos de todos los sitios deben ser sustancialmente del mismo tipo, y deben estar operados bajo métodos y procedimientos similares. Cuando algunos de los sitios bajo consideración lleven a cabo procesos similares, pero menos procesos que otros sitios, pueden ser seleccionados para ser incluidos bajo la certificación multisitio siempre que los sitios que desarrollan la mayoría de los procesos o los procesos críticos sean objeto de auditorías completas.
+4.7 Las organizaciones que realizan sus negocios por medio de procesos vinculados, en diferentes ubicaciones o localizaciones pueden también ser elegidas para el muestreo siempre que todas las demás disposiciones de este documento sean cumplidas. Cuando los procesos en cada ubicación o localización no sean similares, pero están claramente vinculados, el plan de muestreo debe incluir al menos un ejemplo de cada proceso llevado a cabo por la organización (por ejemplo, fabricación de componentes electrónicos en una ubicación o localización, ensamble de estos componentes por la misma empresa en varias otras ubicaciones o localizaciones).
+4.8. El sistema de gestión de la organización debe estar bajo un plan controlado y administrado centralmente y debe estar sujeto a revisiones por la dirección central.
+Todos los sitios pertinentes (incluidas las funciones de la administración central) deben estar sujetos al programa de auditorías internas y todos habrán sido auditados antes de que el organismo de certificación comience sus auditorías.
+4.9. Debe demostrarse que la oficina central de la organización ha establecido un sistema de gestión conforme con este esquema de certificación bajo auditoría y que toda la organización cumple los requisitos de dicho esquema, incluyendo lo establecido por la norma INTE 38-01-01 y el documento mandatorio de Criterios para la aplicación de la norma INTE 38-01-01. Esto debe incluir consideraciones relativas a la legislación aplicable.
+4.10. La organización debería demostrar su capacidad para recopilar y analizar datos (incluyendo, pero no limitándose, a los puntos enunciados a continuación) de todos los sitios incluyendo la oficina central y su autoridad, así como debe demostrar su autoridad y capacidad para iniciar, si así se requiere, cambios en la organización:
+a) documentación del sistema y cambios del sistema;
+b) revisiones de la dirección;
+c) quejas;
+d) evaluación de las acciones correctivas;
+e) planificación de auditorías internas y evaluación de resultados;
+f) Cambios en aspectos e impactos asociados para SGA; y
+g) Diferentes requisitos legales. 4.4.4.11. No todas las organizaciones que cumplen con la definición de “organización multisitios” serán adecuadas para el muestreo.
+4.12. Los organismos de certificación deberían tener procedimientos documentados para restringir este muestreo, cuando el muestreo de sitios es inapropiado para conseguir la confianza suficiente en la efectividad del sistema de gestión bajo auditoría. El organismo de certificación debería definir estas restricciones en relación con:
+- sectores del alcance o actividades (por ejemplo, basado en la evaluación de complejidad y riesgo asociados con determinado sector o actividad);
+- tamaño de los sitios seleccionados para auditorías multisitios;
+-variaciones en la implementación local del sistema de gestión tales como la necesidad de un uso frecuente de planes dentro del sistema de gestión para dirigir diferentes actividades o diferentes sistemas legales o contractuales;
+- utilización de sitios temporales que operan bajo el sistema de gestión de la organización, los que no serán incluidos en el alcance de la certificación.
+Auditoría
+4.13. El organismo de certificación debe tener procedimientos documentados que describan cómo lleva a cabo las auditorías dentro de este enfoque multisitios. Estos procedimientos deben establecer cómo el organismo de certificación se asegura que el mismo sistema de gestión que rige las actividades de todos los sitios, está actualmente aplicado en todos los sitios y que se cumplen todos los criterios de selección de la organización la sección de “Elegibilidad de una organización para la aplicación del muestreo”, indicada en este apartado. Este requerimiento también se aplica a un sistema de gestión en el que se utilice control electrónico de documentos, procesos o cualquier otro proceso electrónico. El organismo de certificación debe justificar y registrar las razones para proceder con el enfoque multisitios. 4.14. Si en la auditoría o seguimiento de la red de sitios está implicado más de un equipo auditor, el organismo de certificación debería designar una única persona auditora líder cuya responsabilidad sea consolidar todos los hallazgos de todos los grupos auditores y elaborar un informe único.
+No-conformidades
+4.15. Cuando no conformidades sean encontradas en cualquier sitio individual, ya sea en las auditorías internas de la organización cliente o bien en las auditorias del organismo de certificación, se debe investigar si los demás sitios son afectados. Por lo tanto, el organismo de certificación debería requerir a la organización cliente que revise todas las no conformidades para determinar si indican una deficiencia del sistema aplicable a todos los sitios o no. Si es así, se deberían realizar y verificar las acciones correctivas tanto en la oficina central como en los sitios afectados. Si no es así, la organización debería ser capaz de demostrarle al organismo de certificación la justificación para limitar las acciones correctivas tomadas.
+4.16. El organismo de certificación debe requerir evidencias de estas acciones y debe incrementar la frecuencia de muestreo y/o el tamaño de la muestra hasta que se demuestre que el control se ha re-establecido.
+4.17. En el proceso de toma de decisiones, si se ha identificado en cualquier sitio alguna no conformidad la certificación será denegada a toda la red de sitios listados de la organización en tanto en cuanto no se tomen acciones correctivas satisfactorias.
+4.18. No será admisible que, con el fin de resolver una no conformidad, la organización cliente excluya del alcance los sitios que hayan sido “problemáticos” durante el proceso de certificación. Tal exclusión puede ser únicamente acordada por anticipado.
+Documentos de Certificación
+4.19. Pueden ser emitidos documentos de certificación (certificados) cubriendo múltiples sitios, siempre que cada sitio incluido en el alcance de la certificación haya sido tanto individualmente auditado por el organismo de certificación o auditado utilizando el enfoque de muestreo indicado en este documento.
+4.20. Estos documentos deben contener el nombre y la dirección de la oficina central de la organización y una lista de todos los sitios a los que afecta el certificado. El alcance u otra referencia en estos documentos debe dejar claro que las actividades certificadas se realizan por la red de sitios mencionados en la lista. Si el alcance de certificación de los sitios se emite solo como una parte del alcance general de la organización, este hecho debe quedar claramente establecido. Cuando sitios temporales son incluidos en el alcance, tales sitios deben ser identificados como temporales en los certificados.
+4.21. Se podrán emitir certificados para cada sitio cubierto por la certificación siempre que contengan el mismo alcance, o parte de dicho alcance, y se incluya una clara referencia al certificado principal.
+4.22. Se debe cancelar el certificado en su totalidad, si la oficina central o alguno de los sitios no cumplen las disposiciones necesarias para el mantenimiento del certificado.
+4.23. El organismo de certificación debe mantener actualizada la lista de los sitios cubiertos por el certificado. Para ello deberá exigir a la organización cliente que le mantenga informado sobre el cierre de cualquiera de los sitios cubiertos por la certificación. Si no se produce dicha notificación, el organismo de certificación deberá considerar este hecho como mal uso de la certificación y debería actuar de acuerdo con sus procedimientos.
+4.24. Como consecuencia de actividades de seguimiento, recertificación o extensión de alcance, sitios adicionales pueden añadirse a la certificación ya existente. El organismo de certificación debe disponer de procedimientos documentados para la inclusión de nuevos sitios.
+Muestreo
+4.25. La muestra debería ser parcialmente selectiva y parcialmente no selectiva y debe resultar en una variedad representativa de diferentes sitios a seleccionar, sin excluir el elemento aleatorio de esta selección.
+4.26. Por los menos el 25% de la muestra debe seleccionarse aleatoriamente.
+4.27. Una vez seleccionados los sitios según las disposiciones aquí expuestas, el resto debe ser seleccionado de tal manera que se maximicen las diferencias entre los diferentes sitios seleccionados durante el periodo de validez del certificado.
+4.28. Los criterios de selección de los sitios pueden tener en cuenta, entre otros, los siguientes aspectos:
+a) los resultados de las auditorías internas del sitio y de revisiones por la dirección o de auditorías previas de certificación;
+b) registro de las quejas u otros aspectos relevantes sobre acciones correctivas o preventivas; c) variaciones significativas en el tamaño de los sitios;
+d) variaciones en el patrón de turnos y los procedimientos de trabajo;
+e) complejidad del sistema de gestión y de los procesos realizados en los sitios;
+f) modificaciones desde la última auditoría de certificación;
+g) madurez del SG y conocimiento de la organización;
+h) diferencias en la cultura, el lenguaje y los requisitos reglamentarios; y
+i) dispersión geográfica.
+4.29. Esta selección no tiene por qué hacerse al inicio del proceso de auditoría. Incluso podría realizarse una vez completada la auditoría de la oficina central. En cualquier caso, la oficina central debe estar informada sobre los sitios que van a ser incluidos en la muestra. La comunicación de los sitios seleccionados puede hacerse con relativamente poca antelación, aunque con tiempo suficiente como para poder preparar la auditoría.
+Tamaño de la Muestra
+4.30. El organismo de certificación debe tener un procedimiento documentado para determinar la muestra a tomar durante la auditoría de los sitios como parte de una auditoría y certificación de una organización multisitios. Esto debe tener en cuenta todos los factores descritos en este apartado del esquema de certificación.
+4.31. El organismo de certificación debe tener registros de cada aplicación del muestreo multisitios, justificando que se realizó de acuerdo con este apartado.
+4.32. El siguiente cálculo es un ejemplo basado en una actividad de riesgo medio con menos de 50 personas trabajadoras en cada sitio. El número mínimo de sitios que han de ser visitados por cada auditoría es:
+- Auditoría inicial: El tamaño de la muestra (y) será la raíz cuadrada del número de sitios (x) redondeado al entero inmediato superior (y = √x).
+- Auditoría de seguimiento: El tamaño de la muestra anual será la raíz cuadrada del número de sitios reducido al 60% (y = 0.6 √x, redondeado al entero inmediato superior).
+- Auditoría de recertificación: El tamaño de la muestra debería ser el mismo que en una auditoría inicial. No obstante, cuando el SG ha probado su eficiencia en un periodo de tres años, el tamaño de la muestra podría ser reducido al 80% (y = 0.8 √x, redondeado al entero inmediato superior).
+4.33. El OCSG debería definir en su sistema de gestión los niveles de riesgo de las actividades como se describió arriba.
+4.34. La oficina central debe ser auditada en toda auditoría de certificación inicial y recertificación y, al menos, una vez al año como parte del seguimiento.
+4.35. El tamaño o frecuencia de la muestra debería ser incrementado cuando el análisis de riesgo realizado por el organismo de certificación de las actividades cubiertas por el sistema de gestión sujeto a certificación indique consideraciones especiales con respecto a factores tales como:
+a) el tamaño de los sitios y el número de empleados (por ejemplo, más de 50 empleados en un sitio),
+b) la complejidad o el nivel de riesgo de las actividades y del sistema de gestión,
+c) Variaciones en las prácticas laborales (por ejemplo, horario de trabajo);
+d) variaciones en las actividades desarrolladas,
+e) registros de quejas y otros aspectos relevantes sobre acciones correctivas o preventivas,
+f) el posible componente multinacional de la organización, y
+g) resultados de las auditorías internas y revisión por la dirección.
+4.36. En el caso de organizaciones con un sistema jerárquico de niveles (sede central / oficinas nacionales / oficinas regionales / delegaciones locales), los criterios de muestreo definidos arriba son aplicables a cada uno de los niveles. Por ejemplo:
+I. 1 Sede central: Visitada en cada ciclo de auditoría (inicial / seguimiento / recertificación)
+II. 4 Oficinas nacionales: Muestra = 2: mínimo, 1 al azar
+III. 27 Oficinas regionales: Muestra = 6: mínimo, 2 al azar
+IV. 1700 Delegaciones locales: Muestra = 42: mínimo, 11 al azar
+Duración de las auditorías
+4.37. El organismo de certificación debe ser capaz de justificar el tiempo empleado en auditorías multisitios en términos de su política global de establecimiento del tiempo de auditoría y este Esquema de Certificación.
+4.38. El número de días - hombre por sitio, incluyendo la oficina central, debería ser calculado para cada sitio.
+4.39. Se pueden aplicar reducciones teniendo en cuenta las cláusulas que no sean aplicables a la oficina central y/o a los sitios. Las razones que justifican tales reducciones deben ser registradas por el organismo de certificación.
+Nota: Los sitios que llevan a cabo la mayoría de los procesos o los procesos críticos no pueden ser sujetos a reducciones.
+4.40. El tiempo total empleado en una auditoría inicial y en los seguimientos es la suma total del tiempo empleado en cada sitio más la oficina central y no debería ser nunca menor que el que habría resultado para el tamaño y la complejidad de la organización si todo el trabajo se llevara a cabo en un único sitio (esto es con todos los empleados de la organización en el mismo sitio).
+Sitios Adicionales
+4.41. Para ser añadido en la red certificada, cada nuevo grupo de sitios debe ser considerado como independiente para la determinación del tamaño de la muestra.
+Después de incluirlo en el certificado, el nuevo grupo de sitios se acumula a los previos para el cálculo del muestreo para las próximas visitas de seguimiento o de recertificación.
+5. Transferencia de los certificados entre Organismos de Certificación OCSG
+5.1. El objetivo de este apartado es asegurar el mantenimiento de la integridad de las certificaciones acreditadas de los sistemas de gestión emitidas por un organismo de certificación, si posteriormente se transfiere a otro organismo similar.
+5.2. La transferencia de certificación se da a partir del reconocimiento de la existencia y validez de una certificación de un sistema de gestión por parte de un OCSG acreditado por el ECA y registrado por el INAMU (de aquí en adelante denominado “el OCSG receptor”), que acepta y reconoce la certificación otorgada por un organismo de certificación acreditado por el ECA y registrado por el INAMU (de ahora en adelante denominado “organismo de certificación emisor”), con el propósito de emitir su propia certificación.
+5.3. Sólo las certificaciones cubiertas por una acreditación del ECA y por el registro del INAMU, deben ser elegibles para la transferencia. Las organizaciones que tengan certificaciones que no estén cubiertas por tales acreditaciones deben ser consideradas como clientes nuevos.
+5.4. Una persona competente del organismo de certificación receptor debe llevar a cabo una revisión de la situación de la certificación del posible cliente. La revisión debe llevarse a cabo por medio de una revisión de la documentación y debería, normalmente, incluir una visita al posible cliente. Las razones para no llevar a cabo una visita deben ser totalmente justificadas y documentadas, y la visita debe realizarse si no puede contactarse al organismo de certificación emisor. La revisión debería cubrir los siguientes aspectos y sus hallazgos deben ser totalmente documentados:
+a) Confirmación de que las actividades certificadas del cliente entran dentro del alcance acreditado del organismo de certificación receptor;
+b) Las razones para solicitar la transferencia;
+c) Que el sitio o sitios que buscan la transferencia de la certificación tenga una certificación acreditada que sea válida, en términos de autenticidad, duración y alcance de las actividades cubiertas por la certificación del sistema de gestión. Si es posible, tanto la validez de la certificación como el estado de las no conformidades abiertas deberían ser verificados con el organismo de certificación emisor, a no ser que este haya abandonado sus actividades. Cuando la comunicación con el organismo de certificación emisor no ha sido posible, el organismo de certificación receptor debe registrar las razones;
+d) Un estudio de los últimos informes de auditorías de certificación o recertificación, de las subsiguientes visitas de seguimiento y cualquier no conformidad que pueda surgir de éstos. Este estudio debe incluir cualquier otra documentación aplicable disponible relativa al proceso de certificación, por ejemplo, notas escritas a mano, listas de verificación, etc. Si los informes de la última auditoría de certificación, recertificación o seguimiento no son puestos a disposición o si el plazo para la auditoría de seguimiento ha vencido, la organización debe ser tratada como un cliente nuevo;
+e) Quejas recibidas y acciones llevadas a cabo;
+f) La etapa del ciclo actual de certificación.
+g) Cualquier compromiso actual de la organización con organismos reguladores con respecto a cumplimientos legales.
+5.5. Normalmente, solo una certificación acreditada válida debería ser transferida. En los casos en que la certificación ha sido emitida por un organismo de certificación que ha dejado de desarrollar su actividad o al que su acreditación ha vencido, ha sido suspendida o cancelada, el organismo de certificación receptor podría considerar este certificado para transferirlo a su propio criterio. En tales casos, antes de proceder con la transferencia, el organismo de certificación receptor debe obtener el acuerdo del organismo de acreditación, cuya marca pretende colocar en el certificado. En el caso de adquisiciones el organismo de certificación adquirente debería, cuando sea posible,
+cumplir con las obligaciones contractuales del OC adquirido.
+5.6. No se debe aceptar para transferencia, la certificación de la cual se sepa que haya sido suspendida o se encuentre bajo amenaza de suspensión. Si el organismo de certificación que acepta no ha podido verificar el estado de la certificación con el organismo de certificación emisor, se le debe requerir a la organización que confirme que el certificado no está suspendido ni bajo amenaza de suspensión.
+5.7. Si es posible, las no conformidades pendientes deberían levantarse con el organismo certificador emisor, antes de realizar la transferencia. De no ser así, deben ser cerradas por el organismo de certificación que acepta.
+5.8. Si en la revisión pre-transferencia no se identifican más problemas pendientes o potenciales, se puede emitir una certificación una vez se complete el proceso normal de toma de decisión. El programa de seguimiento debería basarse en el régimen de certificación previo, a menos que el organismo de certificación que acepta haya llevado a cabo una evaluación inicial o de recertificación como resultado de la revisión.
+5.9. Cuando existiesen dudas, luego de la revisión pre-transferencia, sobre la adecuación de una certificación actual o previa, el organismo de certificación que acepta, según la magnitud de la duda debe:
+a) Tratar al solicitante como un cliente nuevo, o
+b) Llevar a cabo una auditoría enfocada en las áreas con problemas identificados.
+5.10. La decisión sobre la acción requerida dependerá de la naturaleza y magnitud de cualquier problema que se haya encontrado, y se debe explicar a la organización, así como documentar la justificación sobre la decisión, y el organismo de certificación debe guardar los registros.
+6. Requisitos críticos que impedirían la concesión de la certificación
+6.1. Una organización debe cerrar todas sus no conformidades (NC) mayores para lograr la certificación. La organización puede tener no conformidades menores abiertas cuando obtiene la certificación, sin embargo, previo a la obtención de la certificación, debe presentar para su aprobación, al OCSG, el plan de acción para subsanar estas NC.
+6.2. La clasificación de no conformidades mayores y menores incluye, pero sin limitarse, el incumplimiento de los siguientes requisitos de la norma INTE 38-01-01:
+Capítulo Apartado Clasificación
+[imagen]
+[imagen]
+6.3. Además, se deben considerar como NC Mayores los siguientes aspectos:
+ Incumplimiento de lo establecido en el Reglamento para el uso del “Sello de Igualdad de Género” del INAMU.
+7. Uso del “Sello de Igualdad de Género”
+El “Sello de Igualdad de Género” será otorgado por el Instituto Nacional de la Mujer INAMU a organizaciones que demuestren el cumplimiento de los requisitos de la norma INTE 38-01-01 Sistema de Gestión de Igualdad de Género en el Ámbito Laboral, de los Criterios para la aplicación de la norma INTE 38-01-01 y este Esquema de Certificación, por medio de la certificación con un OCSG acreditado por el ECA y registrado por el INAMU.
+7.1 Las organizaciones que deseen hacer uso del “Sello de Igualdad de Género” deben cumplir lo establecido en el Reglamento para el uso del “Sello de Igualdad de Género” del INAMU.
+7.2 El OCSG debe dar seguimiento al uso adecuado del “Sello de Igualdad de Género” del INAMU, tomando en cuenta lo establecido en el Reglamento para el uso del “Sello de Igualdad de Género” del INAMU. En los informes de auditoría debe quedar evidencia de la revisión de este reglamento y debe informar a INAMU de cualquier hallazgo detectado en las organizaciones sobre el mal uso del sello.
+7.3 El “Sello de Igualdad de Género” ofrecido por el INAMU está abierto a cualquier organización solicitante, por lo tanto, pueden solicitar su “Sello de Igualdad de Género”, tanto organizaciones públicas como privadas, con o sin fines de lucro, independientemente de su tamaño y actividades que realice, siempre y cuando obtengan su certificación por medio de un OCSG acreditado por el ECA en este alcance específico.
+7.4 El proceso de otorgamiento del sello se realiza según lo establecido en el Procedimiento para el otorgamiento del “Sello de Igualdad de Género” del INAMU.
+8. Sanciones
+Siempre que se aplique una suspensión o retiro de la certificación, se prohíbe el uso del sello del INAMU, en cualquier tipo de documento o propaganda. El OCSG puede aplicar las siguientes sanciones, según apliquen:
+a) Suspensión de la certificación:
+I. Cuando una organización sea objeto de investigación por parte del Ministerio de Trabajo y Seguridad Social MTSS o cualquier órgano competente, administrativo o judicial por incumplimiento de los derechos laborales individuales o colectivos o por discriminación en temas de género, que a juicio del OCSG y el INAMU, sean motivo para la suspensión.
+II. Cuando una organización no puede presentar evidencias de implementación de acciones correctivas efectivas de hallazgos detectados en procesos de seguimiento, actividades de vigilancia o re-certificación.
+III. Cuando haya una resolución administrativa o judicial, de carácter condenatoria, por incumplimiento de los derechos laborales individuales o colectivos o por discriminación en temas de género, que a juicio del OCSG y el INAMU, sean motivo para la suspensión de la certificación hasta que el incumplimiento sea subsanado.
+IV. Incumplimiento de legislación aplicable, que a juicio del OCSG y el INAMU, sean motivo para la suspensión de la certificación hasta que el incumplimiento sea subsanado.
+b) Retiro de la certificación y retiro del “Sello de Igualdad de Género” del INAMU:
+I. Cuando el organismo de certificación o el mismo INAMU encuentren pruebas de fraude y/o falta de confianza para cumplir con los requisitos especificados en este esquema de certificación.
+II. Cuando una organización no puede presentar evidencias de implantación de acciones correctivas efectivas una vez que el organismo de certificación haya declarado la suspensión.
+III. Cuando se dé una violación de los derechos humanos fundamentales establecidos en todos los acuerdos y convenciones internacionales de Derechos Humanos.
+IV. Cuando haya una resolución administrativa o judicial, de carácter condenatoria, por incumplimiento de los derechos laborales individuales o colectivos o por discriminación en temas de género, que a juicio del OCSG y el INAMU, sean motivo para la cancelación de la certificación.
+V. Incumplimiento de legislación legal aplicable, que a juicio del OCSG y el INAMU, sean motivo para el retiro de la certificación.
+VI. Negarse a recibir alguna visita de vigilancia extraordinaria establecida en el apartado 4.4.3 de este documento.
+9. Transitorio
+En el caso de que no se encuentren organismos de certificación acreditados por el Ente Costarricense de Acreditación (ECA) para certificar Sistemas de gestión para la igualdad de género en el ámbito laboral bajo la norma INTE-38-01-01 y este esquema, el INAMU permite que los procesos de certificación los puedan realizar aquellos organismos de certificación acreditados ante el ECA, en cualquier otro alcance, que hayan presentado su solicitud de acreditación como organismo certificador de sistemas de gestión para la norma INTE-38-01-01 y este esquema, y que hayan obtenido la admisibilidad por parte del Comité Asesor de Organismos de Certificación del ECA para este alcance.
+Dichos organismos de certificación tendrán el plazo máximo de un año, contado a partir de la publicación del presente esquema (De acuerdo correo de INAMU del 2 de febrero de 2017, la publicación del esquema en versión 2 fue el 25 de enero 2017, por ello este transitorio es hasta 25 de enero de 2018), para acreditarse ante ECA bajo el citado alcance.
+6. IDENTIFICACIÓN DE CAMBIOS
+Motivo: Modificación de documento
+Refiérase a la solicitud de elaboración o modificación del documento número 2017-001
+Observaciones
+Se agrega el Anexo IX: DOCUMENTO OBLIGATORIO DE IAF PARA LA AUDITORÍA Y CERTIFICACIÓN DE UN SISTEMA DE GESTIÓN OPERADO POR UNA ORGANIZACIÓN MULTISITIO (Donde la aplicación del muestreo de sitios no es apropiada)
+Se agrega el Anexo X: CRITERIOS PARA LA EVALUACIÓN DE ORGANISMOS DE CERTIFICACIÓN DE SISTEMAS DE GESTIÓN QUE CERTIFICACAN SISTEMAS DE ESTIÓN PARA LA IGUALDAD DE GÉNERO EN EL ÁMBITO LABORAL, RECONOCIDA POR EL INAMU.
+7. TRANSITORIO
+No aplica.
