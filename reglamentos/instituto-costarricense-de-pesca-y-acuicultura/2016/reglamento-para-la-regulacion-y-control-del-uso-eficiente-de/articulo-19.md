@@ -1,0 +1,1 @@
+Artículo 19- Cuando una solicitud no cumpla con los requisitos establecidos en este Reglamento, los documentos presentados no serán devueltos al beneficiario, en su efecto se le entregará un formulario de requisitos faltantes (Anexos).

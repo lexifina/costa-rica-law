@@ -1,0 +1,1 @@
+Artículo 64- El precio resultante al final del combustible vendido al pescador, producto de la aplicación de los factores o márgenes de intermediación aceptables, nunca podrá ser igual o superior al precio de calle del combustible.

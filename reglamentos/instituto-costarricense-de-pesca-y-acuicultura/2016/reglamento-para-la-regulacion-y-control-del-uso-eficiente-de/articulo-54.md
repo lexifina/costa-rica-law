@@ -1,0 +1,1 @@
+Artículo 54-. Cuando una Consolidación de autorizaciones de compra se haya extraviado y se pretenda su revalidación, el IINCOPESCA realizará ante RECOPE todas aquellas gestiones para verificar que la misma no se hizo efectiva, y contará con un plazo de 5 días hábiles para emitir y aprobar la nueva autorización de compra.

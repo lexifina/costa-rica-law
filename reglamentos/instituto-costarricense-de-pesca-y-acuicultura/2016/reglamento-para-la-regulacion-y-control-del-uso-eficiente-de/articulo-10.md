@@ -1,0 +1,6 @@
+Artículo 10- Para la firma del convenio las Organizaciones Pesqueras deberán cumplir con los siguientes requisitos:
+a) Aportar Certificación de Personería Jurídica vigente con no más de un mes de haber sido emitida
+b) Presentar original de cédula de identidad o de residencia libre de condición vigente del representante legal y aportar fotocopia.
+c) Presentar original y fotocopia de la Resolución Administrativa otorgada por el MJNAET, para el funcionamiento de los tanques de combustible propios o de las Estaciones de Servicio en las que se almacenarán los combustibles.
+d) Presentar original y fotocopia del contrato suscrito con las Estaciones de Servicio.
+Tratándose de organizaciones pesqueras que no utilicen tanques para el almacenamiento de combustibles tipo diésel, en razón de que hacen la compra directa a RECOPE y el combustible adquirido se deposita directamente a los barcos pesqueros utilizando los cisternas autorizados, los requisitos anotados bajo los incisos c) y d) del presente artículo no serán obligatorios. En su lugar será necesaria la presentación de una declaración jurada protocolizada por parte de la Asociación, donde deje rendida su declaración de que se adhiere a esta excepción. Esta declaración deberá presentarse al momento de suscribir o renovar el convenio con INCOPESCA.

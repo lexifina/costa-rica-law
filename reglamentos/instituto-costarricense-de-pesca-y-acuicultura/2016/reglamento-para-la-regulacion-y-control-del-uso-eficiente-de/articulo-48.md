@@ -1,0 +1,1 @@
+Artículo 48- Cuando una autorización de compra individual se haya extraviado y se pretenda su revalidación, el INCOPESCA realizará todas aquellas gestiones para verificar que la misma no se hizo efectiva por medio del consolidado, y contará con un plazo de 5 días hábiles para emitir y aprobar la nueva autorización de compra.

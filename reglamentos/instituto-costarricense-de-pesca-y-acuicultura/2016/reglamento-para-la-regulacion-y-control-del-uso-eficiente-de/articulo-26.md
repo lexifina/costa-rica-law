@@ -1,0 +1,1 @@
+Artículo 26- A las embarcaciones cuya base de operación se encuentre fuera del Golfo de Nicoya, es decir, en los litorales Pacifico o Caribe costarricenses y con motores superiores a los 48.4706 KW, se les otorgará combustible como si su potencia fuera de 48.4705 KW (equivalente a 65 Hp).

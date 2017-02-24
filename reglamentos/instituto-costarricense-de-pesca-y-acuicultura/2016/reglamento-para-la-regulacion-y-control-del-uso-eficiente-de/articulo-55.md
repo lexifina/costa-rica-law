@@ -1,0 +1,1 @@
+Artículo 55- Para los efectos de liquidación del viaje de pesca y el cálculo respectivo, se considerara para todos los efectos la fecha de emisión de la autorización de compra de combustible individual.

@@ -1,0 +1,1 @@
+Artículo 5- Confórmese el Comité de Combustible para el sistema de control y administración de combustible, el cual estará integrado por la jefatura de la Sección de Control y Administración del Combustible, quien lo coordinará, los Directores Regionales de Guanacaste y Limón,, los Jefes de las Oficinas Regionales de Quepos y Golfito y un abogado de la Asesoría Legal.

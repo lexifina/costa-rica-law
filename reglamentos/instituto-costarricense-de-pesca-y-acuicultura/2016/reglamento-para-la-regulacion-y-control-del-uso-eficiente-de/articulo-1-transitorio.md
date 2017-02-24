@@ -1,0 +1,1 @@
+Transitorio 1- A partir de la entrada en vigencia del presente Reglamento los beneficiarios deberán en el plazo de dos meses, actualizar toda la información que requiera el [NCOPESCA. Quienes no cumplan con esta disposición no podrán tramitar combustible ante las oficinas del INCOPESCA, hasta tanto cumplan con esa condición.

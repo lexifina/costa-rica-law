@@ -1,0 +1,1 @@
+Artículo 35- Los tanques utilizados para depositar el combustible, pertenecientes a los beneficiarios, Organizaciones Pesqueras o Estaciones de Servicio con contratos con las Organizaciones Pesqueras deberán estar debidamente cubicados y calibrados, además deben tener un mecanismo que permita medir la cantidad de combustible que contienen.

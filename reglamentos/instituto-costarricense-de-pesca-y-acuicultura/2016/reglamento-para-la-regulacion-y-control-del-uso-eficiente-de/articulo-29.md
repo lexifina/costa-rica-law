@@ -1,0 +1,5 @@
+Artículo 29- Para el cálculo del monto de litros combustible a autorizar a los beneficiarios, se deberá de valorar los siguientes aspectos, por máximo histórico y saldos, calculo con base a la tabla y la cantidad solicitada por el beneficiario, de la siguiente manera:
+a) Máximo histórico y saldos: Corresponde al monto mayor otorgado, el cual se le restará el saldo en tanque y en bomba que posea el beneficiario en ese momento.
+b) Con base a la tabla: Corresponde a la cantidad que se le puede otorgar tomando en cuenta los das de pesca efectuados, la cantidad de horas de estos días, así como la potencia del motor de la embarcación y utilizando las tablas y factores de multiplicación establecidos en el presente reglamento.
+c) Cantidad solicitada por el beneficiario: Consiste en la cantidad que el beneficiario requiere de acuerdo a lo indicado en la solicitud de combustible presentada para el trámite.
+Se autorizará la cantidad de litros de combustible que represente un menor costo de adquisición para el beneficiario.

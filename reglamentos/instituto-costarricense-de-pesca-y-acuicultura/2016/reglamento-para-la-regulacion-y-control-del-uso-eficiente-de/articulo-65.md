@@ -1,0 +1,1 @@
+Artículo 65- La inobservancia a lo establecido en el presente Reglamento, será sancionada de conformidad con lo dispuesto en la Ley N° 8436, Ley de Pesca y Acuicultura u otra disposición pesquera vigente y corresponderá a la Jefatura de la SCAC y de las Jefaturas de las Oficinas Regionales o Sub Regionales, presentar las denuncias ante las autoridades competentes.

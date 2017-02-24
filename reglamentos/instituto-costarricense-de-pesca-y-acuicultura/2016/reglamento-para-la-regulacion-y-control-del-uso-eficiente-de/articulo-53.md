@@ -1,0 +1,1 @@
+Artículo 53- En el caso que existan autorizaciones de compra de combustible a precio competitivo individuales vencidas, estas no podrán formar parte de la autorización de Consolidación de autorizaciones de Combustible.

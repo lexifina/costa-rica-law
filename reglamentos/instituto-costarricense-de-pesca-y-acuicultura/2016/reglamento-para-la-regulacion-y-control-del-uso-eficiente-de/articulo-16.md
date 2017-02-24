@@ -1,0 +1,1 @@
+Artículo 16- Los beneficiarios que posean código de compra directa ante RECOPE para combustible a precio competitivo, deberán aportar original y fotocopia del contrato vigente suscrito con RECOPE, con la finalidad de que se les pueda emitir las autorizaciones de compra directa a RECOPE.

@@ -1,0 +1,1 @@
+Artículo 38- Aquellas personas físicas o jurídicas que transporten combustible a precio competitivo podrán ser supervisadas por el INCOPESCA, en coordinación con las instituciones competentes (Policía Fiscal, Dirección (llenera] de Tránsito del MOPT, SNG, MIINAET, MSP).

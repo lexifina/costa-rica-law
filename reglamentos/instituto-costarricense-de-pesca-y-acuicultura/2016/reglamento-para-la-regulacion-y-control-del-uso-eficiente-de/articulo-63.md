@@ -1,0 +1,1 @@
+Artículo 63- Las estaciones de servicio, centros de almacenamiento u organizaciones con tanques propios, deberán llevar un registro de firmas para personas debidamente autorizadas que realicen retiros de combustible en representación del pescador, previa autorización de éste.

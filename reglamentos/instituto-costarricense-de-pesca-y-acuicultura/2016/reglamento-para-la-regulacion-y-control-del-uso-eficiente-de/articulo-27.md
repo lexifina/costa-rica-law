@@ -1,0 +1,1 @@
+Artículo 27- Para la asignación de combustible a precio competitivo a embarcaciones con dos motores fuera de borda solo se reconocerá y otorgará combustible para el motor de mayor potencia, siempre y cuando se encuentre en el límite de potencia permitida dentro de la zona de pesca que le corresponda
