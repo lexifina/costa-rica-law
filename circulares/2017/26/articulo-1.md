@@ -1,0 +1,13 @@
+CIRCULAR Nº 26-2017
+ASUNTO: Modificación al punto 3 de la Circular Nº 190-2014 sobre “Medidas para la matrícula y participación del curso virtual de Control Interno”.
+A LAS SERVIDORAS Y SERVIDORES JUDICIALES
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial, en sesión Nº 11- 17, celebrada el 14 de febrero del 2017, artículo LXXIX, acordó aprobar la modificación de punto 3 del Circular Nº 190-2014 del 4 de setiembre de 2017, de la Secretaría General de la Corte, sobre “Medidas para la matrícula y participación del curso virtual de Control Interno”, para que en adelante se lea de la siguiente manera:
+“El Consejo Superior del Poder Judicial, en sesión Nº 74-14, celebrada el 19 de agosto del 2014, artículo LXVIII, luego del análisis realizado al informe Nº 01-UCI-2014, de la Unidad de Control Interno y en procura de una mayor efectividad en los resultados del curso virtual “Control Interno”, dispone acoger las siguientes medidas:
+1. Para que las personas servidoras judiciales puedan matricular el curso deben aceptar un compromiso moral y ético para concluirlo, que genera el sistema antes de iniciar los pasos de la matrícula en línea.
+2. Recordar la obligación que tienen las personas matriculadas en cursos virtuales de completarlos y aprobarlos.
+3. Las personas servidoras judiciales matriculadas en el curso virtual Control Interno, que no ingresen o abandonen la convocatoria, deberán remitir durante las primeras tres semanas de iniciado el curso, una justificación con el visto bueno de su jefatura, a la Sección Gestión de la Capacitación de la Dirección Gestión Humana, para evitar el registro de la capacitación inconclusa en el registro personal.
+En el caso de causas fortuitas, por la cuales se debe abandonar o retirar el curso se debe enviar al Subproceso Gestión de la Capacitación de la Dirección Gestión Humana, la justificación con el visto bueno de la jefatura, en un plazo máximo de cinco días posterior a la situación presentada, para evitar el registro de la capacitación inconclusa en el histórico de cursos1. Las justificaciones por causas fortuitas serán valoradas por el Subproceso Gestión de la Capacitación en conjunto con la Unidad de Control Interno.
+1*Histórico de cursos: Sitio web donde se respalda el record de capacitación virtual realizada por cada persona y se puede consultar en el siguiente link htt://172.30.14.226/capacitae/miscursos.ph.p
+4. Limitar la matrícula de las personas que una vez matriculado el curso virtual “Control interno”, no ingresen o lo abandonen injustificadamente, de forma que no puedan matricularlo en las dos siguientes convocatorias.”
+San José, 24 de febrero del 2017.
