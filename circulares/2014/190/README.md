@@ -13,3 +13,4 @@ Medidas para la matrícula y participación del curso virtual de Control Interno
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-09-04 | la propia norma |
+| 2 | 2017-02-24 | Circular 26 (2017-02-24) |
