@@ -14,3 +14,4 @@ Fija la base imponible del impuesto general sobre las ventas en las etapas de fa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-03-16 | la propia norma |
+| 2 | 2017-02-24 | Resolución 14 (2017-02-24) |
