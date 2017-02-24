@@ -1,0 +1,3 @@
+Artículo 15.—Para acceder a este beneficio la Junta de Gobierno, en consideración a la falta cometida, podrá solicitarle al profesional sancionado, la realización de un trabajo social o bien la asistencia a un curso de actualización profesional.
+Para la realización del trabajo social, el mismo se regirá conforme los requisitos establecidos en el Capítulo II del presente Reglamento.
+La asignación del curso de actualización profesional deberá hacerse con el fin de que el agremiado se capacite en temas relacionados con la infracción cometida y así evite incurrir nuevamente a transgresiones a la Ética Médica.

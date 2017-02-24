@@ -1,0 +1,1 @@
+Artículo 19.—Renuncia del beneficio. El agremiado tendrá el derecho de renunciar a los beneficios que se indican en este Reglamento, debiendo así comunicarlo por escrito a la Junta de Gobierno. Dicha renuncia deberá ser remitida a la Fiscalía del Colegio para la anotación y aplicación de la sanción impuesta por dicha Junta.

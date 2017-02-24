@@ -1,0 +1,1 @@
+Artículo 14.—La Junta de Gobierno valorará la gravedad de la falta cometida, a efectos de otorgar el beneficio de reducción del periodo de inhabilitación y en caso de que acuerde su aplicación, procederá a comunicar al miembro sancionado dicha posibilidad.
