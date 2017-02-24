@@ -1,0 +1,1 @@
+Artículo 23.—Finiquito de los contratos. Para los concursos por invitación y concursos de ofertas, se deberá proceder a elaborar un finiquito del contrato una vez que se haya verificado la correcta ejecución del mismo y se hayan cancelado los pagos correspondientes.

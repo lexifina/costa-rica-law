@@ -7,17 +7,6 @@ La Corte Plena en sesión N° 23-15, celebrada el 8 de junio del 2015, artículo
 FIDEICOMISO INMOBILIARIO PODER JUDICIAL 2015
 REGLAMENTO PARA LA ADQUISICIÓN
 DE BIENES Y SERVICIOS
-JUNIO 2015
-TABLA DE CONTENIDO
-Contenido
-ARTÍCULO 2: ALCANCE DE ESTE REGLAMENTO
-ARTÍCULO 3. PRINCIPIOS APLICABLES A LA ADQUISICIÓN DE BIENES Y SERVICIOS
-ARTÍCULO 4. UNIDAD ADMINISTRADORA DEL PROYECTO
-ARTÍCULO 5. COMPETENCIA GENERAL DE LA UNIDAD ADMINISTRADORA DEL PROYECTO EN MATERIA DE CONTRATACIONES
-ARTÍCULO 6. LA ACTIVIDAD DE ADQUISICIÓN
-ARTÍCULO 7. CONCURSO DE OFERTAS
-ARTÍCULO 8. CONTRATACIÓN DIRECTA
-ARTÍCULO 9. CONCURSO DE ANTECEDENTES 6
-ARTÍCULO 10. PROHIBICIONES 6
-ARTÍCULO 11. DONACIONES 7
-Artículo 1°—Propósito de este reglamento. Este reglamento tiene como finalidad regular los procedimientos que deben seguirse por parte del Banco de Costa Rica en su condición de Fiduciario y la Unidad Administradora del Proyecto (UAP), para la contratación y pago de bienes y servicios, tanto nacionales como internacionales, con cargo a los recursos financieros del FIDEICOMISO, que sean necesarios para el cumplimiento de los fines y propósitos establecidos en el Contrato de Fideicomiso Inmobiliario Poder Judicial, Conforme a los artículos 2 y 3 de la Ley de Contratación Administrativa, artículos 4, 130 y 145 de su Reglamento, artículo 2 de la Ley Orgánica del Sistema Bancario Nacional y el artículo 10 de la Ley General de la Administración Pública.
+(Nota de Sinalevi: El texto de la presente norma fue reformado parcialmente y reproducido su texto en forma íntegra en sesión N° 2-17 del 30 de enero de 2017, mediante circular N° 27-2017 del 24 de febrero de 2017, y publicada en el Boletín Judicial N° 48 del 8 de marzo de 2017, por lo que se transcribe a continuación:)
+Artículo 1º—Propósito de este reglamento. Este reglamento tiene como finalidad establecer y regular en forma específica la aplicación de los principios, postulados, deberes y atribuciones a que se someten los órganos y funcionarios del Banco de Costa Rica en su condición de FIDUCIARIO, la UNIDAD ADMINISTRADORA DE PROYECTOS, y el Comité de Vigilancia, para la contratación y pago, con cargo a los recursos financieros del FIDEICOMISO, compra de bienes y servicios, necesarios para el cumplimiento de los fines y propósitos establecidos en el Contrato de Fideicomiso Inmobiliario Poder Judicial 2015.
+El Banco de Costa Rica en su condición de FIDUCIARIO deberá procurar en todo momento la economía y eficiencia del PROYECTO, la calidad de los bienes y servicios contratados y la previsión contractual para la adecuada protección al PROYECTO y fines perseguidos, así como el cumplimiento de los plazos de ejecución que hubieren acordado las partes para el desarrollo del mismo.

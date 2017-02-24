@@ -1,0 +1,3 @@
+Articulo 32.—Derogatoria y disposiciones finales. El presente Reglamento deroga cualquier otro reglamento de adquisiciones del Contrato de Fideicomiso Inmobiliario Poder Judicial 2015, que se haya dictado previamente.
+Además, las violaciones que se hagan al presente reglamento, así como actuaciones negligentes en los procesos de adquisición de bienes y servicios, acarrearán al responsable las sanciones correspondientes, de conformidad con la legislación laboral, civil y penal. Si de la actuación dolosa o imprudente durante la tramitación del proceso de adquisición se derivare algún perjuicio económico, el responsable responderá con su patrimonio.
+Rige a partir de su publicación en el Boletín Judicial.

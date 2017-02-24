@@ -1,0 +1,2 @@
+Artículo 21.—Mutabilidad del contrato. Es posible realizar ampliaciones hasta en un 50%, bajo una justificación previa y razonada por parte del Gerente General de la UAP, siempre y cuando el suministro sea de similar naturaleza a la contratación original.
+La UAP está facultada para aprobar ampliaciones, mejoras, prórrogas, suspensiones, rescindir o resolver los contratos aprobados previa coordinación con el fideicomitente y el fiduciario.

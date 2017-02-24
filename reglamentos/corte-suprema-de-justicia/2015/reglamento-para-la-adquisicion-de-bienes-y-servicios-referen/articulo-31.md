@@ -1,0 +1,1 @@
+Artículo 31.—Aplicación supletoria. Ante un vacío normativo y cuando sea conveniente al interés público se podrán aplicar en las contrataciones del fideicomiso disposiciones incorporadas en el Reglamento a la Ley de Contratación Administrativa

@@ -1,0 +1,3 @@
+Artículo 27.—Registros precalificados. EL fideicomiso, por medio de la UAP podrá constituir registros de precalificación que tendrán una vigencia de un año prorrogable por tres años más. El llamado a integrar los registros precalificados se hará por medio de un medio de circulación nacional y estará precedido por un cartel que defina los requisitos necesarios para conformar ese registro.
+La decisión de la conformación del registro tendrá recurso de revocatoria ante el representante del fiduciario.
+En los casos en los que se utilice un registro precalificado para contratar un bien o servicio, podrán participar solamente las empresas que cumplan esa precalificación.
