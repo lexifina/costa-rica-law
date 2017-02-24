@@ -1,0 +1,3 @@
+Artículo 24.- Fundamentación del acto, desestimación o archivo de denuncias.
+La desestimación y archivo de las denuncias se realizará mediante un acto debidamente motivado, donde se acrediten los argumentos que respaldan esa decisión. Tal situación deberá quedar debidamente acreditada en los papeles de trabajo de la investigación y en el archivo o herramientas que defina la Auditoría Interna.
+Contra la resolución que dicta el rechazo, archivo o desestimación de la denuncia cabrá, por parte del denunciante, los recursos de revocatoria y apelación dentro del plazo de tres días hábiles siguientes a la comunicación, conforme al régimen de impugnación establecido en la Ley General de la Administración Pública.

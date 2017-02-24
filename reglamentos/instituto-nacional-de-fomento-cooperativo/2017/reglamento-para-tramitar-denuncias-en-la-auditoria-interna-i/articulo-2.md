@@ -1,0 +1,9 @@
+Artículo 2.- Definiciones y abreviaturas
+INFOCOOP
+Instituto Nacional de Fomento Cooperativo
+Denuncia
+Conforme con la resolución N° 2001-00040 de las quince horas con nueve minutos del tres de enero del dos mil uno, la Sala Constitucional de la Corte Suprema de Justicia establece: “Las denuncias son medios utilizados por los administrados para poner en conocimiento de la Administración, hechos que el denunciante estima irregulares o ilegales, con el objeto de instar el ejercicio de competencias normalmente disciplinarias o sancionatorias, depositados por voluntad popular en los órganos públicos.”
+Denunciante
+De conformidad con el artículo 1, inciso 13 del Reglamento a la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública 8422 del 29 de octubre de 2004 y sus reformas, es la persona física o jurídica, pública o privada, que pone en conocimiento en forma escrita, verbal o por cualquier otro medio, de la Contraloría General de la República, la Administración y las Auditorías Internas de las Instituciones y Empresas Públicas, un hecho para que se investigue con el fin de prevenir o determinar la comisión de actos de corrupción o cualquiera situación irregular que incida sobre la Hacienda Pública, así como para que se establezcan las sanciones civiles y administrativas correspondientes sobre sus responsables.
+Denuncia anónima
+De acuerdo con los artículos 1, incisos 13 y 14 del Reglamento a la Ley 8422, es aquella noticia de un hecho o conducta presuntamente corrupta, que presenta una persona sin identificarse o mediante el uso de seudónimo o nombre falso ante la Contraloría General de la República, la Administración y las Auditorías Internas de las instituciones y empresas públicas, para que sea investigada, y que en caso de llegar a comprobarse, se establezcan las acciones correctivas respectivas y las sanciones correspondientes sobre los responsables.

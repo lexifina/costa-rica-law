@@ -1,0 +1,2 @@
+Artículo 17.- Denuncias recibidas de otras instancias de fiscalización y control (Contraloría General de la República, Procuraduría General de la República, Asamblea Legislativa, entre otras).
+Con base en su Plan de Trabajo Anual, la Auditoría Interna atenderá denuncias que le sean remitidas por otras instancias de fiscalización y control, y de acuerdo con el contenido de éstas asignará la prioridad para su atención en el menor tiempo posible.

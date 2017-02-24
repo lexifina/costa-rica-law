@@ -1,0 +1,5 @@
+Artículo 16.- Trámite de las denuncias recibidas.
+Una vez que la admisibilidad de la denuncia haya sido aprobada, se iniciará la investigación preliminar para definir si existe suficiente mérito e iniciar el estudio y la apertura del respectivo expediente debidamente foliado. En ese sentido, conforme a la normativa que rige se desarrollará el análisis y se emitirá el informe final.
+Si se concluye que existen elementos suficientes para recomendar la apertura de un procedimiento administrativo que establezca responsabilidades disciplinarias, la Auditoría Interna acreditará debidamente los hechos que generaron conductas irregulares en su informe final y los relacionará con los presuntos responsables mediante un informe de Relación de Hechos.
+Si se determinaran responsabilidades de tipo penal, el informe de la Auditoría Interna deberá documentar la realidad de los presuntos hechos ilícitos para su posterior traslado a la instancia competente.
+Caso contrario, si de la investigación preliminar se concluye que no existen méritos suficientes para iniciar un estudio, la denuncia se archivará.

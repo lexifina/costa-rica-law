@@ -1,0 +1,2 @@
+Artículo 20.- Seguimiento al trámite de acciones en informes sobre denuncias.
+La Auditoría Interna, como un componente orgánico del sistema de control interno y de acuerdo con los procedimientos establecidos, dará seguimiento al trámite de acciones que se derivan de los estudios de las denuncias para verificar el cumplimiento de recomendaciones que hayan sido emitidas. Asimismo, dará seguimiento a las denuncias que se hayan remitido a la Administración Activa para verificar que hayan sido atendidas con oportunidad.

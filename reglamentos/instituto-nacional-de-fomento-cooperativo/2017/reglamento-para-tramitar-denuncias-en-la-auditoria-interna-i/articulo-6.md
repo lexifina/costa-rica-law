@@ -1,0 +1,5 @@
+Artículo 6.- Confidencialidad de los denunciantes.
+La identidad del denunciante, la información, la documentación y otras evidencias relacionadas con las investigaciones que se efectúen serán confidenciales, de conformidad con las regulaciones establecidas en el artículo 6º de la Ley General de Control Interno y en el artículo 8 de la Ley contra la Corrupción y Enriquecimiento Ilícito en la Función Pública.
+Las infracciones a la obligación de mantener dicha confidencialidad por parte de los funcionarios de la Auditoría Interna podrán ser sancionadas según lo previsto en esas leyes.
+Dicha confidencialidad constituye una garantía para quien presenta la denuncia, pero también para la Hacienda Pública de la cual forma parte el sistema de control regulado en la Ley. Asimismo, garantiza al denunciante que su identidad no se dará a conocer y que, por ende, no debe sufrir persecuciones o represalias como consecuencia de tal denuncia.
+Por tanto, la Auditoría Interna y la administración activa tomarán las medidas correspondientes a efecto de que el secreto sobre esa identidad sea garantizado en forma permanente.

@@ -1,0 +1,2 @@
+Artículo 8.- Posible información adicional que el denunciante debe aportar.
+En caso de que resulte facultativo, el denunciante deberá brindar información complementaria respecto del posible monto en perjuicio de los fondos públicos del INFOCOOP, la indicación de probables testigos y el lugar o medio para localizarlos, además, aportará sugerencias de otras pruebas que considere convenientes para la investigación.
