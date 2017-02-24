@@ -13,4 +13,5 @@ i) Conducir el vehículo institucional durante el tiempo del servicio bajo los e
 j) Utilizar de manera indebida las herramientas, equipos, repuestos u otras piezas propios de cada unidad.
 k) Abandonar el vehículo sin causa justificada.
 l) Conducir el vehículo por caminos no aptos para sus características, lo cual puede implicar, daños a la integridad física de los usuarios o grave riesgo para el vehículo.
-La persona cuyo cargo estuviere la conducción de un vehículo, será responsable ante la Junta y cubrirá económicamente los daños y perjuicios que el vehículo sufriere o causare, al incurrir en cualquiera de las faltas estipuladas en los incisos (b, g, i, k, l); sin considerar las sanciones disciplinarias a que se haga acreedor(a): Según el Manual de Orden y Disciplina.
+La persona cuyo cargo estuviere la conducción de un vehículo, es responsable ante la JUNTA y cubre económicamente los daños y perjuicios que el vehículo sufriere o causare, al incurrir en cualquiera de las faltas estipuladas en los incisos (b, g, i, k, l); sin considerar las sanciones disciplinarias a que se haga acreedor (a): Según el procedimiento de Orden y Disciplina.
+(Así reformado el párrafo anterior mediante publicación en el Alcance Digital N° 42 a La Gaceta N° 40 del 24 de febrero del 2017)

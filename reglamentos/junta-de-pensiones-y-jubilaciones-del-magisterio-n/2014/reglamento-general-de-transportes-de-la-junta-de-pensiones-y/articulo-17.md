@@ -1,9 +1,12 @@
 CAPÍTULO VI
 Del servicio de mantenimiento y salida
 de operación de los vehículos
-Artículo 17.—Para mantener un óptimo control sobre el uso de combustibles y lubricantes, el Departamento Administrativo deberá ajustarse a lo siguiente:
+Artículo 17.— Para mantener un óptimo control sobre el uso de combustibles y lubricantes, el Departamento Administrativo debe ajustarse a lo siguiente:
+(Así reformado el párrafo anterior mediante publicación en el Alcance Digital N° 42 a La Gaceta N° 40 de 24 de febrero del 2016)
 a) Los (Las) únicos (as) trabajadores (as) autorizados (as) para retirar combustibles en los lugares designados, son los conductores y las personas autorizadas para conducir.
-b) La autorización a los conductores debe hacerse por escrito y enviar copia al Departamento Financiero-Contable; esa autorización se mantendrá fija hasta tanto no se manifieste lo contrario.
+(Así reformado el inciso anterior mediante publicación en el Alcance Digital N° 42 a La Gaceta N° 40 de 24 de febrero del 2016)
+b) La autorización a los conductores debe hacerse por escrito y se mantendrá fija hasta tanto no se manifieste lo contrario.
+(Así reformado el inciso anterior mediante publicación en el Alcance Digital N° 42 a La Gaceta N° 40 de 24 de febrero del 2016)
 c) En la escogencia de la Estación de Servicio se considerará en especial las condiciones de higiene, buena atención y seguridad.
 d) Toda factura de servicios que se debite a la cuenta de la Junta deberá reunir los siguientes requisitos:
 1. Consignar el nombre de La Junta, o las siglas Jupema.
