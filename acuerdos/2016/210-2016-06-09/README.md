@@ -14,3 +14,4 @@ Aprueba el otorgamiento de cinco licencias de pesca de ballyhoo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-08-31 | la propia norma |
+| 2 | 2017-02-24 | Acuerdo 103 (2017-02-24) |

@@ -14,7 +14,13 @@ f) Finalmente se acordó por unanimidad que si la Junta decide otorgar las licen
 ACUERDA:
 1º—Acoger el Informe rendido por la Comisión Asesora de Pesca de Guanacaste, bajo oficio DRG-102-06-2016, suscrito por el Sr. Ricardo Gutiérrez Vargas, Director Regional de Guanacaste y Coordinador de la Comisión Asesora de Guanacaste, por lo que en consecuencia se aprueba con sustento en criterios técnicos, sociales, económicos y científicos que los respaldan, el otorgamiento de cinco licencias de pesca de ballyhoo, en los siguientes términos y condiciones:
 i- Solo se otorgarán a personas físicas que hayan residido por más de tres años, debidamente demostrado, en las comunidades costeras que se ubican desde Flamingo hasta Bahía Salinas, que tengan a la fecha una embarcación en pequeña escala registrada a su nombre con certificado de navegabilidad al día, que no sean asalariados, que el arte de pesca sea únicamente el cachador o “scoop” con un diámetro no mayor a 50 cm y sólo 1 por embarcación.
-ii- Se establece una longitud total mínima de captura y comercialización del Ballyhoo proveniente de la zonas señaladas en el punto i) igual a veintiséis (26) cm.
-iii- Se establece una veda para la captura y comercio del Balyhoo proveniente de los alrededores del Golfo de Papagayo desde las aguas costeras ubicadas frente a Flamingo y hasta aquellas que se ubican frente a Bahía Salinas en la frontera con Nicaragua. Dicha veda sería desde el 1 de diciembre y hasta el 28 de febrero de cada año. De esta manera se estaría protegiendo picos de reproducción de la especie.
-2º—Acuerdo Firme.
-3º—Rige a partir de su publicación.
+ii Se establece una longitud total mínima de captura de 27 cm para la captura y comercialización de H.saltator provenientes únicamente de las aguas infralitorales comprendidas desde Punta Descartes (11°02’27,44” N y 85°44’55.23”o) hacia el Suroeste hasta las aguas ubicadas frente a Playa Flamingo (10°26’51.54”N y 85°46’55.40”0), exceptuando aquellas aguas comprendidas dentro de Parques Nacionales u otras zonas protegidas.
+(Así reformado el punto anterior por el punto 1) del acuerdo N° AJDIP/103-2017 del 24 de febrero del 2017)
+iii Se establece una veda total para la captura y comercio de H.saltator proveniente de las zonas delimitadas en el párrafo anterior durante el período comprendido de 1 de diciembre y el 28 de febrero de cada año.
+(Así reformado el punto anterior por el punto 1) del acuerdo N° AJDIP/103-2017 del 24 de febrero del 2017)
+Artículo 2. Se solicita a la Dirección General Técnica hacer las investigaciones correspondientes para determinar, ya sea, la cantidad máxima de formalina que puede utilizarse por los extractores de Ballyhoo o mecanismos aliemos para lograr el mismo objetivo y realizar las coordinaciones con las autoridades pertinentes para validar el proceso.
+(Así reformado el artículo anterior por el artículo 2° del acuerdo N° AJDIP/103-2017 del 24 de febrero del 2017)
+Artículo 3. Se ordena al Director Regional de Guanacaste, para que en un plazo de 3 meses contados a partir de la entrada en vigencia de este acuerdo, implemente el sistema de trazabilidad requerido y según propuesta de la Comisión Asesora Regional.
+(Así reformado el artículo anterior por el artículo 2° del acuerdo N° AJDIP/103-2017 del 24 de febrero del 2017)
+4°—Rige a partir de su publicación
+(Así adicionado el artículo anterior por el artículo 2° del acuerdo N° AJDIP/103-2017 del 24 de febrero del 2017)
