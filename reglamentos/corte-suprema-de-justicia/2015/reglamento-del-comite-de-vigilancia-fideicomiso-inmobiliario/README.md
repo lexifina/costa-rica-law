@@ -13,3 +13,4 @@ Reglamento del Comité de Vigilancia Fideicomiso Inmobiliario Poder Judicial 201
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-02-09 | la propia norma |
+| 2 | 2017-02-24 | Circular 28 (2017-02-24) |

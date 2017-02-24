@@ -1,1 +1,1 @@
-Artículo 8°—De los cambios del Comité. El Comité de Vigilancia se obliga a comunicarle oportunamente y por escrito al Fiduciario y al Fideicomitente cualquier cambio en los puestos del Comité, renuncia o variación que se presente en su conformación o funcionamiento.
+Artículo 8º—De los cambios del comité. El Comité de Vigilancia se obliga a comunicarle oportunamente y por escrito al FIDUCIARIO y al FIDEICOMITENTE cualquier cambio en los puestos del COMITÉ, renuncia o variación que se presente en su conformación o funcionamiento.

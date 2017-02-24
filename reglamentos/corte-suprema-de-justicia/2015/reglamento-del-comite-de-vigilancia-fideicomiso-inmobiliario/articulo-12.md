@@ -1,0 +1,4 @@
+Artículo 12.—Disposiciones Finales. Las violaciones al Reglamento; así como, las actuaciones negligentes por parte de los miembros del COMITÉ, harán al responsable acreedor de las sanciones correspondientes, de conformidad con la legislación civil o penal. Si de la actuación dolosa o negligente durante la ejecución de las labores se genera algún perjuicio económico, el responsable responderá con su patrimonio.
+Elaborado por: Gerencia de Área de Fideicomisos de Obra Pública del BCR actuando como Fiduciario del Contrato de Fideicomiso Inmobiliario Poder Judicial 2015.
+Aprobado por: Corte Suprema de Justicia y el Banco de Costa Rica, actuando como Fideicomitente y Fiduciario, respectivamente, del Contrato de Fideicomiso Inmobiliario Poder Judicial 2015.
+Rige a partir de su publicación en el Boletín Judicial.
