@@ -1,0 +1,1 @@
+Artículo 7º—: Los colaboradores que ingresen al Régimen de la Actividad Informática, lo harán mediante concurso externo o interno según corresponda y autorice la Junta en coordinación con el Departamento de Recursos Humanos.

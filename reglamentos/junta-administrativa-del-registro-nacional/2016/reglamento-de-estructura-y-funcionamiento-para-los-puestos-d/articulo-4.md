@@ -1,0 +1,1 @@
+Artículo 4º—:La Junta por su parte conforme a sus competencias determinará las regulaciones de tipo administrativo, así como su reclutamiento y selección del personal de la Dirección de Informática, previa aprobación de la propuesta presentada a tal efecto por parte del Departamento de Recursos Humanos.

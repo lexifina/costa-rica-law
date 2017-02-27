@@ -1,0 +1,2 @@
+Artículo 13º—: La Autoridad Presupuestaria establecerá la fijación salarial de los puestos contemplados dentro de la estructura ocupacional de la Dirección de Informática, cuyo contenido presupuestario será autorizado por la Junta, para cumplir con lo establecido por dicho ente rector.
+Para la fijación de salarios y otros ajustes a este, se considerarán y otorgarán los aumentos por costo de vida que decrete el Gobierno para el sector público, previa autorización de la AP.
