@@ -1,1 +1,0 @@
-Artículo 16.—Equiparación de oportunidades. La Comisión podrá recomendar al jerarca del Ministerio la eliminación de todas aquellas acciones y disposiciones que promuevan la discriminación o impidan, a las personas con discapacidad, el acceso a los programas y servicios del Ministerio, garantizando así la igualdad de oportunidades para las personas con discapacidad.

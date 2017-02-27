@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito. La Comisión procurará que el Ministerio de Hacienda, en todas las políticas y acciones que desarrolle, considere la accesibilidad de sus servicios tanto para sus funcionarios como para los usuarios con discapacidad.

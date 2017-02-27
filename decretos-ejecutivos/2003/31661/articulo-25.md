@@ -1,1 +1,0 @@
-Artículo 25.—Registro. La Comisión, en coordinación con la Unidad Técnica de Servicios Médicos, diseñará y levantará un registro de los funcionarios con discapacidad del Ministerio de Hacienda. Este registro es de carácter confidencial y sólo será usado para mejorar las condiciones de accesibilidad de las personas allí registradas.

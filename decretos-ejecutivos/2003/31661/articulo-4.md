@@ -1,1 +1,0 @@
-Artículo 4º—Servicios. Las Unidades Administrativas, que conforman las diferentes dependencias del Ministerio, deberán desarrollar actividades de servicio hacia los ciudadanos, de tal forma que las personas con discapacidad puedan acceder a todos los servicios que se prestan en esta Cartera.

@@ -1,1 +1,0 @@
-Artículo 15.—Igualdad. Es obligación de todo funcionario brindar un trato igualitario tanto a los funcionarios que presentan alguna discapacidad, como a las personas que requieren de los servicios de este Ministerio.

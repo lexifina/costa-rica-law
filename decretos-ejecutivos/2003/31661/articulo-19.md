@@ -1,1 +1,0 @@
-Artículo 19.—Procedimiento. La Comisión brindará colaboración a la Unidad Técnica de Recursos Humanos del Ministerio, en cuanto a información y recomendaciones para el abordaje adecuado de los asuntos relativos al tema de la discapacidad. Lo anterior, como una medida de apoyo afirmativa con respecto a los funcionarios con discapacidad.
