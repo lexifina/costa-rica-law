@@ -1,1 +1,2 @@
-Artículo 66º—De la responsabilidad de las instituciones que operen dentro del sistema digital. Las instituciones que operen dentro del sistema digital que se desarrolle, serán responsables de que la información incluida en dicho sistema sea fiel a la normativa que le aplique y esté actualizada. Además serán responsables de indicar cuales trámites son susceptibles a la aplicación del silencio y en que plazo debe aplicarse.
+Artículo 66º-Vigencia. Rige a partir de su publicación en el Diario Oficial.
+(Así reformado por el artículo 4° del decreto ejecutivo N° 40387 del 27 de febrero del 2017)

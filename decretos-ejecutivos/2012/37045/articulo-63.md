@@ -1,1 +1,4 @@
-Artículo 63º—Sistema digital para solicitar la aplicación del silencio positivo. La Secretaría de Gobierno Digital, pondrá a disposición de los ciudadanos un sistema digital para presentar de forma electrónica a la institución correspondiente, la declaración indicada en los artículos 42 y 43 de este reglamento. Este sistema se diseñará de forma tal que se notifique simultáneamente al Oficial Simplificación de Trámites y a la Dirección de Mejora Regulatoria del MEIC, todos los casos presentados por el ciudadano y a la vez permitirá conformar una base de datos de los casos en que efectivamente operó el silencio positivo.
+CAPÍTULO IX
+DISPOSICIONES FINALES
+Artículo 63º-Normas Supletorias. Se aplicará la Ley General de la Administración Pública y las demás normas del derecho positivo, de manera supletoria en los casos de ausencia de norma expresa de la Ley Nº 8220, su reforma y este Reglamento.
+(Así reformado por el artículo 4° del decreto ejecutivo N° 40387 del 27 de febrero del 2017)
