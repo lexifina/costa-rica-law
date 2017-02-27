@@ -1,0 +1,1 @@
+Artículo 2.-Objeto. Regular el procedimiento de selección y designación del ente técnico especializado que elaborará los criterios técnicos de fondo de las solicitudes de inscripción de Indicaciones Geográficas y Denominaciones de Origen.

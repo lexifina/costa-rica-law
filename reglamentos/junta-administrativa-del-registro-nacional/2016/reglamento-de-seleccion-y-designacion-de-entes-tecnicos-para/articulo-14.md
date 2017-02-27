@@ -1,0 +1,1 @@
+Artículo 14.- Contrato de servicios. Una vez seleccionado el Ente Técnico, previo al inicio del estudio, este deberá suscribir un contrato de servicios con la Junta Administrativa del Registro Nacional, en el cual se establecerán obligaciones, derechos, costo y otros aspectos relevantes. En todo caso, este Reglamento se considerará parte integral del contrato.

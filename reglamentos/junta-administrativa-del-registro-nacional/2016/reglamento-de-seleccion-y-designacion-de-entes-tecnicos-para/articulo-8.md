@@ -1,0 +1,1 @@
+Artículo 8.- Pago de las publicaciones. Las publicaciones delos avisos de convocatoria abierta, indicados en el artículo 7 de este Reglamento, correrán a cargo del solicitante, so pena de abandono de conformidad con lo que establece el artículo 85 de la Ley.
