@@ -1,1 +1,3 @@
-Artículo 3°.- La Unidad emisora retiene la última copia del recibo y pasa por la ventanilla interna el original y la otra copia.
+Del Funcionamiento
+Artículo 3º—Del trámite de cobro: El Cajero (a) se le asignará clave de acceso al sistema central de cómputo, única y personal, con lo cual podrá emitir los recibos de cobro y descargar el monto que reporte el documento de la cuenta del contribuyente, acto que realizará previa consulta de cédula jurídica o de identidad o nombre de la persona, así como verificar, antes de realizar la descarga de la suma por cancelar de la cuenta, el medio de pago por emplear, sea efectivo, cheque o tarjeta, con la finalidad de asegurarse que se cuenta con el disponible para la cancelación.
+En caso de ser por cheque, el mismo debe ser confeccionado a favor de la Municipalidad de Goicoechea, por la suma exacta de la deuda, lo cual debe constar en letras y números, debidamente firmado.

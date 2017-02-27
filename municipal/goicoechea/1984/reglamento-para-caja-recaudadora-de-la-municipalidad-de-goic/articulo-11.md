@@ -1,1 +1,1 @@
-Artículo 11.-Todo cajero deberá contar con una póliza de fidelidad otorgada por el Instituto Nacional de Seguros, cuyo monto lo fijará este de acuerdo con sus disposiciones internas, mientras se tramita esta póliza ante el INS, deberá rendir garantía fiduciaria.
+Artículo 11º—De la póliza de fidelidad: El (La) cajero (a) debe contar con una póliza de fidelidad otorgada por el Instituto Nacional de Seguros, cuyo monto lo fijará este de acuerdo con sus disposiciones internas, mientras se tramita esta póliza ante el INS, deberá rendir garantía fiduciaria.

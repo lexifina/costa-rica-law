@@ -1,4 +1,4 @@
-CAPITULO VI
-TÍTULO ÚNICO
+CAPÍTULO VII
 Del ingreso a la caja recaudadora
-Artículo 21.- A la caja recaudadora ingresará nicamente dinero en efectivo, salvo cheques por el monto completo que se adeuda a nombre de la Municipalidad de Goicoechea y que dicho cheque sea debidamente firmado por el dorso con el número de cédula del endosante y su número telefónico.
+Artículo 21.—Del tipo de recaudación: A la caja recaudadora, ingresará dinero en efectivo, cheques por el monto exacto a la deuda por cancelar y pagos con tarjeta, tanto de crédito como débito, con las excepciones que la Municipalidad disponga formalmente.
+En el caso de los cheques, además de lo establecido en el artículo 3°, en el reverso debe tener el número de recibo y número de teléfono del emisor, que debe requerir el cajero (a) obligatoriamente.

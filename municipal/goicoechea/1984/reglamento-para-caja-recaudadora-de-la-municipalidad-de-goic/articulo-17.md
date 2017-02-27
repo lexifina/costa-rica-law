@@ -1,1 +1,1 @@
-Artículo 17.- El descubrimiento de faltantes por parte del tesorero tendrá que ser notificado inmediatamente al auditor para lo que proceda.
+Artículo 17.—De la comunicación de faltantes: La determinación de faltantes por parte de la Jefatura de Tesorería, deben ser comunicados inmediatamente a la Alcaldía, Dirección Administrativa Financiera y a la Auditoría, para los efectos correspondientes.

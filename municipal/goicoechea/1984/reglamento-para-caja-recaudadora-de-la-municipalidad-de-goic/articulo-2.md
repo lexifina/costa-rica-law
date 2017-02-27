@@ -1,2 +1,1 @@
-De Funcionamiento
-Artículo 2°- La Unidad Administrativa encargada de la emisión preparado el Comprobante de Ingresa en original y dos copias, o el recibo correspondiente cuando el sistema está mecanizado, lo firma y sella la persona que lo confecciona y lo anota en el formulario denominado Control Diario de Recibos enviados a caja, cuyo diseño se adjunta. Este formulario se confeccione en original y una copia.
+Artículo 2º—Ubicación estructural: La caja recaudadora forma parte de la Dirección Administrativa Financiera, concretamente se ubica en el Departamento de Tesorería, siendo el jefe inmediato del cajero (s) el titular del puesto de Jefe Departamento de Tesorería.

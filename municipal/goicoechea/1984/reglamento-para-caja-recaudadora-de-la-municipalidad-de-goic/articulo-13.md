@@ -1,4 +1,4 @@
-CAPITULO III
-TÍTULO ÚNICO
-De la responsabilidad subjetiva del tesorero y el cajero
-Artículo 13.- El tesorero municipal y el cajero nombrado para el manejo de la caja recaudadora, serán responsables solidariamente por el buen funcionamiento de esta.
+CAPÍTULO III
+De la responsabilidad subjetiva
+del Tesorero y el Cajero
+Artículo 13.—De la responsabilidad solidaria: La jefatura del Departamento de Tesorería y el (la) cajero (a) nombrada para el manejo de la caja recaudadora, serán responsables solidariamente por el buen funcionamiento de esta.

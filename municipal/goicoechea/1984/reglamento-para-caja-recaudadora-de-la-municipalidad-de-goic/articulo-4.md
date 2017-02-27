@@ -1,1 +1,3 @@
-Artículo 4°.- El cajero revisa la consecutividad de la numeración del recibido o poner recibido en el Control Diario (cuando sea mecanizado), revisa las operaciones aritméticas, sella firma, recauda y entrega el original cancelado al contribuyente.
+Artículo 4º—De los recibos: El cajero (a) debe revisar y verificar diariamente, la consecutividad de la numeración de los recibos, así mismo, a cada recibo debe colocarle sello de cancelado y, de proceder, el sello de pago por tarjeta o cheque, así como que la efectividad del pago queda sujeto a que la Municipalidad haga efectivo el medio de pago.
+La no colocación de sellos acarrea responsabilidad al cajero (a), sancionable conforme la normativa vigente en la Municipalidad.
+De igual forma, el cajero (a) entrega el original del recibo al contribuyente y retiene la copia como comprobante de pago, la cual debe incluir en las liquidaciones parciales o totales del día.

@@ -1,1 +1,1 @@
-Artículo 14.- En el evento de que la recaudación supere el 50% de la póliza de fidelidad antes de la hora fijada para el cierre diario, el cajero debe entregar el dinero al tesorero, mediante el documento “Remesas parciales a Tesorería”.
+Artículo 14º—De la remesa parcial- En el evento de que la recaudación supere el 50% de la póliza de fidelidad antes de la hora fijada para el cierre diario, el cajero debe entregar el dinero al Tesorero, mediante el documento “Remesas parciales a Tesorería”.

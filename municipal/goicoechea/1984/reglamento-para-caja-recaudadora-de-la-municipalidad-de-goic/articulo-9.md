@@ -1,4 +1,3 @@
-CAPITULO II
-TÍTULO ÚNICO
-Del cajero
-Artículo 9°.- Toda caja recaudadora que entre a funcionar en la Municipalidad de Goicoechea, estará integrada por un cajero que dependerá jerárquicamente del tesorero municipal y tendrá la misma relación del jefe y subalterno.
+CAPÍTULO II
+De los cajeros (as)
+Artículo 9º—Del cajero (a): Cada caja recaudadora que funcione en la Municipalidad de Goicoechea, estará bajo responsabilidad de un cajero, que dependerá, como se indicó en el artículo 20, jerárquicamente de la Jefatura del Departamento de Tesorería.

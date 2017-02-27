@@ -1,4 +1,3 @@
-CAPITULO V
-TÍTULO ÚNICO
+CAPÍTULO VI
 De la ubicación de la caja recaudadora
-Artículo 19.- La caja recaudadora estará ubicada contiguo a la oficina emisora y será independiente de esta, salvo la comunicación por medio de una ventanilla, por la cual el cajero recibirá los mandados de ingresos que el usuario ha solicitado.
+Artículo 19.—De la ubicación: Las cajas recaudadoras se ubicarán en un lugar accesible a todo contribuyente dentro de las instalaciones municipales, la ubicación será independiente de otras áreas, salvo la comunicación requerida por medio telefónico o digital, el cual debe proporcionar debidamente la Municipalidad para el desempeño de la actividad.
