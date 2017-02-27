@@ -1,3 +1,2 @@
-CAPÍTULO VI
-Disposiciones finales
-Artículo 28.—Como norma de excepción, y de acuerdo a los artículos 12 y 16 de este Reglamento, a razón de sesionar en ausencia del Síndico Propietario y su suplente, podrá presidir el Concejo de Distrito el o la vicepresidente(a) electo(a).
+Artículo 28.—El presidente del Concejo de Distrito deberá velar porque el Secretario tenga al día el libro de actas de conformidad con las funciones que le asigna el artículo 49 de la Ley General de la Administración Pública.
+(Así adicionado en sesión N° 44 del 27 de febrero de 2017)

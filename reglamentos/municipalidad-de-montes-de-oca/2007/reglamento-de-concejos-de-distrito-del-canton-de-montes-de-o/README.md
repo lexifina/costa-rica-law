@@ -14,3 +14,4 @@ Reglamento de Concejos de Distrito del Cantón de Montes de Oca
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-09-12 | la propia norma |
+| 2 | 2017-02-27 | Reglamento municipal 44 (2017-02-27) |
