@@ -10,5 +10,9 @@ III.—Que el Consejo de Gobierno, en la Sesión Ordinaria N° 91, celebrada el 
 IV.—Que la reducción de la pobreza extrema y la pobreza básica es uno de los pilares del Plan Nacional de Desarrollo 2015- 2018 “Alberto Cañas Escalante”, y desde el Consejo Presidencial Social se ha liderado la Estrategia Nacional de Reducción de Pobreza denominada Puente al Desarrollo.
 V.—Que la estrategia Puente al Desarrollo incorpora la definición de acciones y mecanismos de articulación y seguimiento que permiten el cumplimiento de las metas establecidas en el Plan Nacional de Desarrollo. Por tanto,
 Emiten la siguiente directriz
-DIRIGIDA A LAS INSTITUCIONES DEL SECTOR SOCIAL
-Artículo 1º—Los jerarcas y funcionarios de los ministerios e instituciones del sector social utilizarán el Índice de Pobreza Multidimensional (IPM), como una herramienta oficial de medición, de información para asignación de recursos, de seguimiento y evaluación de los programas sociales.
+DIRIGIDO A INSTITUCIONES DE LA ADMINISTRACIÓN PÚBLICA QUE
+DESARROLLAN PROGRAMAS ORIENTADOS AL DESARROLLO HUMANO E
+INCLUSIÓN SOCIAL (*)
+(*) (Así modificada su denominación por el artículo 1° de la directriz N° 069-MP del 27 de febrero de 2017. Anteriormente se indicaba: "DIRIGIDA A LAS INSTITUCIONES DEL SECTOR SOCIAL".)
+Artículo 1º—Los jerarcas y funcionarios de los ministerios e instituciones que implementan programas orientados al desarrollo humano e inclusión social, utilizaran el Índice de Pobreza Multidimensional (IPM), como un criterio para la asignación de recursos, distribución de metas, monitoreo, seguimiento y evaluación de programas sociales.
+(Así reformado por el artículo 2 de la directriz N° 069 del 27 de febrero de 2017)

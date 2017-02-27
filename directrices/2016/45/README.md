@@ -14,3 +14,4 @@ Desarrollo de programas orientados al desarrollo humano e inclusión social
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-07-04 | la propia norma |
+| 2 | 2017-02-27 | Directriz 69 (2017-02-27) |
