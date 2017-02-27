@@ -14,3 +14,4 @@ Reglamento de la Junta de Planificación Cantonal de la Municipalidad de Vázque
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-03-03 | la propia norma |
+| 2 | 2017-02-27 | Reglamento municipal 45 (2017-02-27) |
