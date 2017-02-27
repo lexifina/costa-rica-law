@@ -1,0 +1,1 @@
+Artículo 2°- En caso de detectar un incumplimiento o anomalía en la recepción de incentivos salariales, los jerarcas deberán iniciar de manera oficiosa los procedimientos administrativos para la recuperación de sumas pagadas en exceso, así como adoptar las medidas internas necesarias para evitar que estos errores se repitan.
