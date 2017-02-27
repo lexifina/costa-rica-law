@@ -215,6 +215,25 @@ Potencia radiada aparente (p.r.a.) (en una dirección dada): Producto de la pote
 Potencia radiada aparente referida a una antena vertical corta (p.r.a.v.) (en una dirección dada): Producto de la potencia suministrada a la antena por su ganancia con relación a una antena vertical corta en una dirección dada.
 Dispersión troposférica: Propagación de las ondas radioeléctricas por dispersión, como consecuencia de irregularidades y discontinuidades en las propiedades físicas de la troposfera.
 Dispersión ionosférica: Propagación de las ondas radioeléctricas por dispersión, como consecuencia de irregularidades y discontinuidades en la ionización de la ionosfera.
+Altura Efectiva de Antena (He/): Es la altura efectiva del sistema radiante referida al nivel medio general del terreno.
+(Así adicionado el término anterior por el punto a) del artículo 5° del decreto ejecutivo N° 40370 del 27 de febrero del 2017)
+dBμVlm: Unidad que convierte un valor de intensidad de campo a dB, referida a 1 μV/m.
+(Así adicionado el término anterior por el punto a) del artículo 5° del decreto ejecutivo N° 40370 del 27 de febrero del 2017)
+Canal físico: Canal de 6 MHz destinado a la transmisión de una o más programaciones de televisión dentro de los segmentos de frecuencias destinados para tales propósitos, de conformidad con lo dispuesto por el PNAF.
+(Así adicionado el término anterior por el punto a) del artículo 5° del decreto ejecutivo N° 40370 del 27 de febrero del 2017)
+Canal lógico: Identificador de cada servicio existente dentro de un único canal físico. El parámetro "Remote_control_key_id", indica el canal lógico primario, mientras que el service_type y el "service_number" indican el número de canal lógico secundario.
+[imagen]
+(Así adicionado el término anterior por el punto a) del artículo 5° del decreto ejecutivo N° 40370 del 27 de febrero del 2017)
+Canal virtual: Corresponde al número de identificador empleado por los televidentes para sintonizar los canales digitales, conocido también como canal lógico.
+(Así adicionado el término anterior por el punto a) del artículo 5° del decreto ejecutivo N° 40370 del 27 de febrero del 2017)
+Co-Canal: Es el canal de la misma frecuencia de interés (n).
+(Así adicionado el término anterior por el punto a) del artículo 5° del decreto ejecutivo N° 40370 del 27 de febrero del 2017)
+OFDM (Ortogonal Frecuency Division Multiplexi11g): Multiplexión Ortogonal por División de Frecuencia - esencialment e ident ificada por Coded OFDM (COFDM) - es un esquema de modulación digital con múltiples portadoras que utiliza un gran número de subportadoras en formato ortogonal.
+(Así adicionado el término anterior por el punto a) del artículo 5° del decreto ejecutivo N° 40370 del 27 de febrero del 2017)
+One-Seg: Segmento dentro del estándar JSDB-Tb dedicado para la transmisión digital, específicamente a la televisión móvil.
+(Así adicionado el término anterior por el punto a) del artículo 5° del decreto ejecutivo N° 40370 del 27 de febrero del 2017)
+Zona de Cobertura: Zona asociada a una estación transmisora para un servicio dado y una frecuencia específica, en el interior de la cual y en condiciones técnicas determinadas puede establecerse una radiocomunicación con otra u otras estaciones receptoras.
+(Así adicionado el término anterior por el punto a) del artículo 5° del decreto ejecutivo N° 40370 del 27 de febrero del 2017)
 Compartición de frecuencias
 Interferencia: Efecto de una energía no deseada debida a una o varias emisiones, radiaciones, inducciones o sus combinaciones sobre la recepción en un sistema de radiocomunicación, que se manifiesta como degradación de la calidad, falseamiento o pérdida de la información que se podría obtener en ausencia de esta energía no deseada.
 Interferencia admisible3: Interferencia observada o prevista que satisface los criterios cuantitativos de interferencia y de compartición que figuran en el presente PNAF o en Recomendaciones UIT-R o en acuerdos especiales según lo previsto en el presente PNAF.
@@ -431,218 +450,65 @@ Para estaciones de servicio monoaural:
 La intensidad de campo mínima utilizable será de 48 dBμV/m en las zonas de baja densidad de población, de 66 dBμV/m en las zonas de media y alta densidad de población.
 La relación de protección será la intensidad de campo mínima utilizable, definida ésta como el Valor mínimo de la intensidad de campo necesaria para proporcionar una recepción satisfactoria en condiciones especificadas, en presencia de ruido atmosférico, ruido artificial y de interferencia en una situación real (o resultante de un plan de asignación de frecuencias).
 (*) (Así reformado el punto anterior por el artículo 6° del decreto ejecutivo N° 39057 del 27 de marzo de 2015.)
+(*)Servicio de Radiodifusión Televisiva
 Servicio de Radiodifusión Televisiva
-(1) Operación e instalación.
-La operación e instalación deberá ajustarse en todo a la Ley N°. 1758 y sus modificaciones, Ley de Radio, a lo que corresponda en la Ley General de Telecomunicaciones, el Reglamento General de Telecomunicaciones, a lo establecido en este PNAF y a los convenios Internacionales en la materia adoptados por Costa Rica mediante tratados o acuerdos.
+( 1) Operación e instalación.
+La operación e instalación deberá ajustarse en todo a la Ley Nº. 1758 y sus modificaciones, Ley de Radio, a lo que corresponda en la Ley General de Telecomunicaciones, el Reglamento General de Telecomunicaciones, a lo establecido en este reglamento y a los convenios internacionales en la materia adoptados por Costa Rica mediante tratados o acuerdos.
 Los concesionarios de estas frecuencias deben realizar en sus equipos todos los ajustes necesarios para no afectar otros servicios de radiocomunicación cuando se adjudiquen para su utilización en una zona determinada.
-(2) Canalización
-TABLA 1
-Canal | Banda de Frecuencias MHz | Portadora de Vídeo | Portadora de Color MHz | Portadora de Audio MHz
-2 | 54 - 60 | 55.25 | 58.83 | 59.75
-3 | 60 - 66 | 61.25 | 64.83 | 66.75
-4 | 66 - 72 | 67.25 | 70.83 | 71.75
-5 | 76 - 82 | 77.25 | 80.83 | 81.75
-6 | 82 - 88 | 83.25 | 86.83 | 87.75
-7 | 174 - 180 | 175.25 | 178.83 | 179.75
-8 | 180 - 186 | 181.25 | 184.83 | 185.75
-9 | 186 - 192 | 187.25 | 190.83 | 191.75
-10 | 192 - 198 | 193.25 | 196.83 | 197.75
-11 | 198 - 204 | 199.25 | 202.83 | 203.75
-12 | 204 - 210 | 205.25 | 208.83 | 209.75
-13 | 210 - 216 | 211.25 | 214.83 | 215.75
-14 | 470 - 476 | 471.25 | 474.83 | 475.75
-15 | 476 - 482 | 477.25 | 480.83 | 481.75
-16 | 482 - 488 | 483.25 | 486.83 | 487.75
-17 | 488 - 494 | 489.25 | 492.83 | 493.75
-18 | 494 - 500 | 495.25 | 498.83 | 499.75
-19 | 500 - 506 | 501.25 | 504.83 | 505.75
-20 | 506 - 512 | 507.25 | 510.83 | 511.75
-21 | 512 - 518 | 513.25 | 516.83 | 517.75
-22 | 518 - 524 | 519.25 | 522.83 | 523.75
-23 | 524 - 530 | 525.25 | 528.83 | 529.75
-24 | 530 - 536 | 531.25 | 534.83 | 535.75
-25 | 536 - 542 | 537.25 | 540.83 | 541.75
-26 | 542 - 548 | 543.25 | 546.83 | 547.75
-27 | 548 - 554 | 549.25 | 552.83 | 553.75
-28 | 554 - 560 | 555.25 | 558.83 | 559.75
-29 | 560 - 566 | 561.25 | 564.83 | 565.75
-30 | 566 - 572 | 567.25 | 570.83 | 571.75
-31 | 572 - 578 | 573.25 | 576.83 | 577.75
-32 | 578 - 584 | 579.25 | 582.83 | 583.75
-33 | 584 - 590 | 585.25 | 588.83 | 589.75
-34 | 590 - 596 | 591.25 | 594.83 | 595.75
-35 | 596 - 602 | 597.25 | 600.83 | 601.75
-36 | 602 - 608 | 603.25 | 606.83 | 607.75
-38 | 614 - 620 | 615.25 | 618.83 | 619.75
-39 | 620 - 626 | 621.25 | 624.83 | 625.75
-40 | 626 - 632 | 627.25 | 630.83 | 631.75
-41 | 632 - 638 | 633.25 | 636.83 | 637.75
-42 | 638 - 644 | 639.25 | 642.83 | 643.75
-43 | 644 - 650 | 645.25 | 648.83 | 649.75
-44 | 650 - 656 | 651.25 | 654.83 | 655.75
-45 | 656 - 662 | 657.25 | 660.83 | 661.75
-46 | 662 - 668 | 663.25 | 666.83 | 667.75
-47 | 668 - 674 | 669.25 | 672.83 | 673.75
-48 | 674 - 680 | 675.25 | 678.83 | 679.75
-49 | 680 - 686 | 681.25 | 684.83 | 685.75
-50 | 686 - 692 | 687.25 | 690.83 | 691.75
-51 | 692 - 698 | 693.25 | 696.83 | 697.75
-52 | 698 - 704 | 699.25 | 702.83 | 703.75
-53 | 704 - 710 | 705.25 | 708.83 | 709.75
-54 | 710 - 716 | 711.25 | 714.83 | 715.75
-55 | 716 - 722 | 717.25 | 720.83 | 721.75
-56 | 722 - 728 | 723.25 | 726.83 | 727.75
-57 | 728 - 734 | 729.25 | 732.83 | 733.75
-58 | 734 - 740 | 735.25 | 738.83 | 739.75
-59 | 740 - 746 | 741.25 | 744.83 | 745.75
-60 | 746 - 752 | 747.25 | 750.83 | 751.75
-61 | 752 - 758 | 753.25 | 756.83 | 757.75
-62 | 758 - 764 | 759.25 | 762.83 | 763.75
-63 | 764 - 770 | 765.25 | 768.83 | 769.75
-64 | 770 - 776 | 771.25 | 774.83 | 775.75
-65 | 776 - 782 | 777.25 | 780.83 | 781.75
-66 | 782 - 788 | 783.25 | 786.83 | 787.75
-67 | 788 - 794 | 789.25 | 792.83 | 793.75
-68 | 794 - 800 | 795.25 | 798.83 | 799.75
-69 | 800 - 806 | 801.25 | 804.83 | 805.75
-(3) Características básicas de señales de vídeo y de sincronismo
-Las características básicas de señales de vídeo y de sincronismo aplicables a las señales monocromas y de color son las siguientes:
-TABLA 2
-Número de líneas de imagen | 525
-Frecuencia de campo (Valor nominal) (número de campos/segundo) (1) | 60 (59.94)
-Frecuencia de línea Fh y tolerancia en funcionamiento | 1575
-no sincronizado (KHz) (1) (valor nominal) | (+ - 0.0003%)
-Porcentaje máximo de variación de frecuencia de línea | (%/s)
-válido para la transmisión monocroma (2) (3) | 0.15
-Nivel de supresión (nivel de referencia) | 0
-Nivel máximo del blanco | 100
-Nivel de sincronismo | - 40
-Diferencia entre los niveles de negro y supresión | 7.5 ±2.5
-Gamma superpuesta del dispositivo de presentación (receptor) para el que se hace la corrección previa de señal monocroma | 2.2 (valor de exponente)
-Anchura de banda nominal de vídeo (MHz) | 4.2
-Entrelazado | 2.1
-Formato de la imagen | (anchura - altura)
-Dirección de barrido |
-Líneas | (izq. a der)
-Campos | (de arriba a abajo)
-Sistema que puede funcionar con independencia de la |
-frecuencia de la red | sí
-Sincronismo de línea | Ver tabla 3
-Sincronismo de campo | Ver tabla 4
-| |
-Notas:
-(1) Los valores entre paréntesis se refieren a la transmisión en color.
-(2) Estos valores no son válidos cuando cambia la referencia de sincronismo, conforme a los siguientes detalles:
-a-) Detalles de las señales de sincronismo de línea Duraciones propias del sistema (medidas entre los puntos a la mitad de la amplitud de los frentes considerados).
-TABLA 3
-SIMBOLO CARACTERISTICAS | µS
-H. Período nominal de línea | 63.492
-| (63.55559)
-Duración de la señal de supresión de línea | 10.2 a 11.4 (10.5 a 11.4)
-Intervalo entre la frecuencia de los tiempos (OH) y el borde posterior de la señal de supresión de línea. | 8.9 a 10. (9.2 a 10.3)
-intervalo de reserva | 1.27 a 2.54 (1.27 a 2.22)
-Impulso de sincronismo | 4.19 a 5.71 (4.13 a 5.08)
-Tiempo de establecimiento | (10 a 90%)
-de los bordes anteriores de la señal | <_ 0.64 de supresión de línea.(<_ 0.48)
-Tiempo de establecimiento de los impulsos de sincronismo de línea | (10 a 90%) <_ 0.25
-Los valores que figuran entre paréntesis se aplican a la combinación M/NTSC.
-Detalles de las señales de sincronismo de campo
-Duraciones propias del sistema (medidas entre los puntos situados a mitad de la amplitud de los frentes considerados)
-TABLA 4
-SIMBOLO CARACTERISTICAS | µS
-Período de campo (ms) (1) | 16.667(16.6833)
-Período de supresión de campo (Para H y a, véase la tabla 3). | 19 A 21H+a
-Tiempo de establecimiento (10 - 90%) de los impulsos de supresión de campo (microsegundos). | <_35
-Duración de la primera secuencia de los impulsos de igualación | 3H
-Duración de la secuencia de los impulsos de sincronismo | 3H
-Duración de la segunda secuencia de los impulsos de igualación | 3H
-Duración del impulso de igualación (microsegundos) | 2.29 a 2.54
-Duración de los impulsos de sincronismo de campo (microsegundos) | 26.4 A 28.0
-Intervalo entre los impulsos de sincronismo de campo (microsegundos) | 3.81 A 5.34
-Tiempo de establecimiento los impulsos de sincronismo y de igualación (microsegundos) | (10 a 90%) de¾ 0.25
-Notas:
-(1) El valor entre paréntesis se aplica al sistema M/NTSC
-(2) No se indica en el diagrama.
-Características de la señal de vídeo para color
-TABLA 5
-Coordenadas de cromaticidad (CIE, 1931) admitidas para colores primarios del receptor:
-| X | Y
-Rojo | | 0.67 | 0.33
-Verde | | 0.21 | 0.71
-Azul | | 0.14 | 0.08
-Coordenadas de cromaticidad correspondientes a la igualdad de las señales primarias
-E=E’G=E’B | iluminante c | X=0.310 | Y=0.316
-Valor admitido de gamma del receptor para el que se realice la precorrección de las señales primarias. (1): 2.2
-Señal de luminancia:
-E’Y=0.299E’R+0.587E’G+0.114E’B
-E’R’E’G y E’B son la señales primarias con corrección del gamma
-Señales de crominancia (diferencia de color):
-E’I= - 0.27(E’B - E’Y) + 0.74(E’R - E’Y)
-E’Q=0.41(E’B - E’Y) + 0.48(E’R - E’Y)
-Atenuación de las señales de diferencia de color:
-dB MHz | dB MHz
-¾ 3 a 1.3 | ¾ 2 a 0.4
-E’I 20 a 3.6 | E’Q ¾ 6 a 0.5
-Error de coincidencia en el tiempo entre las señales de luminancia y de crominancia (µS) 0.05
-(No comprende la precorrección de la respuesta del receptor).
-Ecuación de la señal cromática compuesta:
-EM=E’Y+E’Q seno (2 fsct+33º) + E’I coseno (2 fcst+33º)
-E’Y (ver punto 4)
-E’Q y E’I (ver punto 5)
-fsct (ver punto 10.2)
-(ver también figura 3)
-Tipo de modulación de la subportadora de crominancia.
-Modulación de amplitud con portadora suprimida de dos subportadoras moduladas en cuadratura.
-Frecuencia de subportadora de crominancia.
-Valor nominal y tolerancia (Hz): 3579545 + - 10
-Relación entre la frecuencia de la subportadora de crominancia fsc y la frecuencia de línea fH: fsc = (455/2) fHAnchura de las bandas laterales de crominancia (modulación en cuadratura de la subportadora) (KHz) o Excursión de frecuencia de la subportadora de crominancia (modulación de frecuencia de la subportadora) (KHz) +620 KHz fsc- 1300.
-Amplitud de la subportadora de crominancia: G= Ö E’1 + Ö E’q 2
-Sincronismo de la subportadora de crominancia:
-Ráfaga de subportadora en el umbral posterior de supresión
-Comienzo de ráfaga de la subportadora (µS) 4.71 a 5.71 (0.38 µS después del umbral posterior de la señal de sincronismo de línea)
-Duración de la ráfaga de la subportadora (µS) 2.23 a 3.11 (8 ciclos como mínimo)
-Amplitud cresta a cresta de la ráfaga de subportadora de crominancia. 4/10 de diferencia entre el nivel de blanco máximo ± 10%
-Fase de ráfaga de subportadora de crominancia.180° con relación al eje (E’E - E’Y)
-Supresión de la ráfaga de subportadora de crominancia. Después de cada uno de los impulsos de igualación y durante los impulsos amplios de sincronismo de campos en el intervalo de supresión de campo.
-Nota: (1) Las señales primarias se corrigen previamente de tal manera que la calidad óptima se obtenga con un tubo de imagen cuya característica de transferencia tenga por exponente el valor de gamma indicado.
-(4) Normas de emisión.
-Las estaciones de televisión deben de emplear el tipo de emisión.
-vídeo | 5750 | A5C
-audio | 250 | F3
-(5) Características básicas del servicio de televisión.
-Todo servicio de televisión debe ajustarse a las siguientes características técnicas:
-ANCHURA DE BANDA NECESARIA
-La anchura de banda ocupada por una emisión de televisión es de 6 MHz para televisión monocromática o cromática.
-TIPO DE MODULACION
-Para el transmisor de audio se emplea la modulación en frecuencia (F3).
-Para el transmisor de vídeo se emplea la modulación en amplitud, banda lateral residual A5C negativa.
-SEPARACION ENTRE PORTADORAS DE AUDIO Y VIDEO
-La separación de la portadora de sonido con relación a la portadora de imagen será de +4.5 MHz.
-ANCHURA DE BANDA LATERAL PRINCIPAL
-El valor nominal de la anchura de la banda lateral principal será de 4.2 MHz.
-ANCHURA DE BANDA LATERAL SUPRIMIDA
-El valor nominal de la anchura de la banda lateral principalmente suprimida será: 0.75 MHz.
-SEPARACION ENTRE CANALES
-La separación de frecuencia entre canales se ajustará a lo establecido en la tabla 1.
-RELACION ENTRE LA POTENCIA RADIADA APARENTE DE VIDEO Y AUDIO:
-La potencia radiada aparente de audio no debe ser menor al 10% ni mayor al 20% de la potencia de cresta de vídeo.
-POTENCIA DE LAS ESTACIONES
-Todas las estaciones consideradas en el presente adendum, tendrán una potencia máxima medida en la etapa final del transmisor que no excederá de:
-20 KW para las estaciones operando en los canales 2 al 6.
-35 KW para las estaciones operando en los canales 7 al 13.
-50 KW para las estaciones operando en los canales 14 al 69.
-ALTURA DE LAS ANTENAS
-Cuando la altura del centro de radiación de la antena con relación al nivel del terreno promedio entre 3 y 16 Km, sea mayor a 600 m, la potencia de operación del equipo transmisor deberá reducirse conforme a la curva correspondiente para máxima potencia contra altura de antena, salvo en las zonas fronterizas por motivo de convenios con los países vecinos, en donde se deberán atender los lineamientos que sobre la materia se establezcan.
-DISTORSION ARMONICA DE AUDIOFRECUENCIA
-La distorsión de audiofrecuencia de las señales detectadas incluyendo a todas las armónicas superiores a 30 KHz. No deberán exceder a los valores dados en la siguiente tabla, para porcentajes de modulación de 25, 50 y 100%.
-TABLA 6
-DISTORSION ARMONICA
-Distorsión | Gama de frecuencia |
-(%) | (Hertz) |
-3.5 | 50 a 100 |
-2.5 | 100 a 7500 |
-3.0 | 7500 a 15000 (para una modulación de 100% únicamente |
-(Los límites de distorsión del transmisor únicamente se señalan en características del transmisor de audio).
+(2) Servicio de radiodifusión para emisiones televisivas digitales de acceso libre bajo el estándar ISDB-Tb
+Para el Servicio de Radiodifiusión para emisiones televisivas digitales de acceso libre bqjo el estándar JSDB-Tb ( en adelante, televisión digital), se toma como referencia la norma ABNT NBR 15601 :2007 de la Asociación Brasileña de Normas Técnicas. Para la televisión digital se establece la siguiente canalización aplicable a la banda de frecuencias de 470 MHz a 698 MHz, con canales físicos de 6 MHz de ancho de banda:
+Canalización para el servicio de radiodifusión televisiva digital
+[imagen]
+[imagen]
+[imagen]
+El segmento de frecuencias de 608 MHz a 614 MHz, está atribuido internacionalmente al Servicio de Radioastronomía, a título primario.
+(3) Desvío de la Frecuencia de Transmisión permitido
+El desvío máximo de frecuencia de transmisión permisible en la frecuencia central de las portadoras OFDM y para equipamientos transmisores que funcionarán sincronizados, deberá ser de ± 1 Hz.
+(4) Desplazamiento de frecuencias de las portadoras OFDM
+La frecuencia central de las portadoras OFDM podrá ser desplazada positivamente 117
+MHz (142,857 kHz) en relación con la frecuencia central del canal indicado en el Plan de Canalización de frecuencias, según la siguiente tabla:
+Desplazamiento de frecuencias de las portadoras OFDM
+[imagen]
+[imagen]
+(5) Intensidad admisible de emisiones espurias
+Las emisiones espurias no excederán los 20 m W y deben estar, por lo menos, 60 dB por deba jo de la potencia media de la señal digital para los transmisores digitales de potencia media superior a 25 W, en bandas UHF. Para transmisores digitales con potencia media igual o inferior a 25 W, las emisiones espurias no excederán 25 pW, igualmente para UHF. La potencia espuria permitida debe estar de acuerdo con la siguiente tabla:
+Potencia de emisión espuria admisible
+[imagen]
+(6) Intensidad de campo y modo de transmisión
+El valor de intensidad de campo para televisión digital, a partir del cual se determinará el cumplimiento de las obligaciones de cobertura de los concesionarios, será de al menos de 60 dBpV/m. Adicionalmente, se utilizará el modo de transmisión de tipo modo 3.
+(7) Codificación de canal
+Todas las especificaciones técnicas referentes a la codificación de canal deben obligatoriamente estar de acuerdo con la Recomendación UIT BT.1306, Anexo 1 punto c, y asimismo con la siguiente tabla:
+Codificación de canal
+[imagen]
+8) Parámetros OFDM
+Los parámetros del segmento OFDM y de la señal de transmisión deben obligatoriamente estar de acuerdo con las siguientes tablas:
+Parámetros del segmento OFDM
+[imagen]
+[imagen]
+Parámetros de la señal de transmisión
+[imagen]
+[imagen]
+[imagen]
+(9) Tasa de datos
+La tasa de datos por segmento y para todos los 13 segmentos debe estar de acuerdo con las siguientes tablas:
+Tasa de datos de un único segmento
+[imagen]
+[imagen]
+Tasa total de datos para 13 segmentos
+[imagen]
+(10) Frecuencia de muestreo de IFFT y desvío admisible
+La frecuencia de mues treo de la IFFT para uso en la modulación OFDM para radiodifusión debe ser obligatoriamente de:
+F\· = 512/63 MHz= 8 126 984 Hz
+El desvío admisible es ± 0,3 Hz/MHz. El desvío de frecuencia de la portadora (causado por el error de frecuencia de muestreo de la IFFT), a cada fin del ancho de banda, debe ser J Hz o menos.
+(1 1) Máscara del espectro de transmisión y sus características
+Se debe reducir obligatoriamente el nivel del espectro fuera de la banda, asignado para la transmisión de la se11al de televisión digital terrestre, aplicándose un filtro adecuado en los casos donde un cana/físico cause interferencia a su(s) canal (es) físico(s) vecino(s). En la siguiente ilustración y tabla se indican las atenuaciones mínimas de las emisiones fuera de la banda con relación a la potencia media del transmisor, especN1cadas en función del alejamiento con relación a la portadora central de la señal digital, para la máscara no crítica, subcrítica y crítica.
+[imagen]
+Especificaciones técnicas de las máscaras
+[imagen]
+[imagen]
+Los valores que se muestran en la tabla anterior se deben medir obligatoriamente con la configuración en el analizados de espectro indicada en la siguiente tabla:
+[imagen]
+(*)(Así reformado el apartado anterior "Servicio de Radiodifusión Televisiva" por el inciso b) adel artículo 5° del decreto ejecutivo N° 40370 del 27 de febrero del 2017)
 TOLERANCIA EN FRECUENCIA
 Las frecuencias portadoras de vídeo y de audio, deberán ser mantenidas dentro de ± 1000 Hz. De las frecuencias asignadas, salvo lo establecido en lo concerniente a retransmisores de baja potencia.
 Sistema estereofónico y multicanal de sonido
@@ -848,13 +714,11 @@ La relación de rechazo de los productos de intermodulación no será inferior a
 La respuesta de parásitas para toda frecuencia que diste de una frecuencia nominal del receptor a más de una separación de canal, la relación de rechazo de la respuesta parásita no debe ser superior a 70 dB.
 Uso del sistema de silenciador de tono.
 Todos los equipos de radiocomunicación utilizados en redes privadas de telecomunicaciones, ya sean fijos, móviles o portátiles, deberán usar el sistema silenciador controlado por tono continuo (CTCSS) o mejor. De tal modo que cada transmisor al ser activado transmita un código que sea específico del sistema, donde cada receptor del sistema detecte no sólo la señal de radiofrecuencia, sino también el código especial antes de que se abra el silenciador (squelch). De tal manera que el usuario sólo escuche las transmisiones de su propio sistema y no de otros usuarios.
-(3) De la separación de frecuencias en explotación Dúplex.
-La separación mínima entre frecuencias de transmisión y recepción en explotación dúplex según sea la banda será la siguiente:
-Banda de 30 a 50 MHz: | | 3 MHz
-| Banda de 138 a 174 MHz: | | 3 MHz
-| Banda de 225 a 470 MHz: | | 5 MHz
-| Banda de 800 a 900 MHz: | | 45 MHz
-No obstante lo anterior, y siendo que ya existe en el mercado equipos que operan con tecnología digital a una separación de canales de 6.25 KHz, y que dicha separación de frecuencias entrará en vigencia en Costa Rica a partir del 1 enero del 2012, se insta a los nuevos concesionarios a considerar la existencia de la mencionada tecnología a fin de no tener que reemplazarlos cuando entre en vigencia la nueva disposición.
+(3) De la separación de frecuencias en operaciones Dúplex
+La separación mínima entre frecuencias de transimisión y recepción en explotación dúplex según sea la banda será la siguiente:
+[imagen]
+No obstante lo anterior, en aras de lograr un uso eficiente del espectro radioeléctrico para bandas inferiores a 470 MHz, se podrá utilizar una separación de canales inferior a la establecida, previo análisis de cada caso en específico realizado por la SUTEL, en el que se consideren tanto las especificaciones técnicas de los equipos, como los escenarios de transmisiones y las posibles afectaciones a otros concesionarios.
+(Así reformado el punto 3) anterior por el inciso c) del artículo 5° del decreto ejecutivo N° 40370 del 27 de febrero del 2017)
 SISTEMAS DE BUSCAPERSONAS(*)
 De los sistemas de buscapersonas.
 El sistema de buscapersonas, es un sistema de señalización selectiva para la transmisión y recepción de mensajes de voz y texto el cual estará sujeto a los dictámenes técnicos que efectúe la SUTEL para evaluar la factibilidad técnica respectiva.
@@ -1089,60 +953,121 @@ metros de altura sobre la superficie en la cual sea instalada.
 La antena deberá tener como característica una radiación omnidireccional y una
 Polarización de onda vertical.
 Lo establecido anteriormente no se aplicará a las antenas de polarización horizontal.
-ADENDUM VII
-De la Utilización de Frecuencias de Uso Libre
-Condiciones para el uso de las frecuencias atribuidas como de uso libre.
-Son las frecuencias atribuidas en el cuadro de atribución de frecuencias para la constitución de redes privadas o públicas, mediante la utilización de equipos de radiocomunicación que se caractericen por utilizar emisiones de muy baja potencia, que minimicen la posibilidad de interferencia perjudicial, posean una notable inmunidad a las interferencias provenientes de emisiones similares con métodos convencionales de modulación, y que tales características permitan mejorar considerablemente la eficiencia en el uso del espectro, y aliviar la congestión de segmentos del mismo destinando grupos de frecuencias para que operen en forma compartida o bien que compartan las frecuencias atribuidas mediante sistemas de diferentes modulación.
-(1) Consideración de las redes de telecomunicaciones que utilicen frecuencias de uso libre(*).
-Serán consideradas redes de telecomunicaciones constituidas mediante la utilización de frecuencias del espectro radioeléctrico de uso libre, las siguientes:
-a) Las que utilizan tecnologías digitales como OFDM, FSK Espectro Disperso y otros, en la banda de 2400 a 2483, 5150 a 5250, 5250 a 5350, 5470 a 5725 y 5725 a 5825 MHz únicamente.
-b) Aquellas que operen en la banda de 920,5 MHz a 928 MHz para aplicaciones de medidores inteligentes o sistemas que utilicen esquemas de modulación por espectro ensanchado por salto de frecuencia (FHSS) o espectro ensanchado por secuencia directa (DSSS), sujetas a las condiciones detalladas en la sección (7) de este Adendum.
-Para las restantes bandas:
-c) Todos aquellos servicios que utilicen potencias inferiores a 250 miliwatts sin antena externa o que su radio de cobertura no sea mayor de 200 metros.
-(*) (Así reformada la sección anterior por el artículo 6° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)
-(2) Condiciones generales de Operación del servicio.
-La operación de estos servicios está condicionada a no causar interferencia perjudicial a otros servicios autorizados a fecha de entrada en vigencia el presente PNAF. Así mismo debe tolerar la interferencia perjudicial proveniente de otros sistemas autorizados, contra la cual no estará prioridad.
-a) Ante una denuncia de interferencia causada por estos servicios y debidamente comprobada, deberá de suspender toda operación y no podrá reanudarse hasta que se haya subsanado la interferencia y sea debidamente comprobado la eliminación de ésta por la SUTEL.
-b) En caso de incidirse con una interferencia la SUTEL podrá proceder a la remoción del equipo conforme a las facultades establecidas en la Ley General de Telecomunicaciones.
-(3) Sistemas que utilicen Tecnologías digitales
-Estos sistemas deberán caracterizarse por el uso de tecnologías que permitan hacer un uso eficiente del espectro radioeléctrico y una notable inmunidad de interferencias de forma tal que permita simplificar los procedimientos de gestión de frecuencias.
-(*)(4) Especificaciones técnicas de los equipos.
-Sólo se permitirá el uso de equipos que cumplan con las siguientes disposiciones técnicas:
-a) Las frecuencias de operación serán únicamente las establecidas en el presente Plan Nacional de Atribución de Frecuencias.
-b) La potencia máxima permitida deberá ajustarse al siguiente cuadro:
-Banda de Frecuencias (MHz) | Máxima Potencia de salida de los equipos (dBm) | Potencia isotrópica radiada equivalente (EIRP o PIRE, dBm)
-2400-2483,5 | 30 | 36
-5150-5250 | 17 | 23
-5250-5350 | 24 | 30
-5470-5725 | 24 | 30
-5725-5850 | 30 | 36
-Demás bandas | 24 | 30
-Los límites de EIRP tienen las siguientes excepciones:
-a. Los sistemas utilizados para enlaces fijos punto a punto que operen en el rango de 2400-2483,5 MHz, que empleen antenas con ganancias superiores a 6 dBi, deben de reducir la potencia de salida del transmisor en 1 dBm por cada 3 dBi de ganancia de antena superiores a 6 dBi.
-b. Los sistemas utilizados para enlaces fijos punto a punto que operen en los rangos 5470-5725 MHz y 5725-5875 MHz, pueden emplear antenas con ganancias superiores a 6 dBi, sin la restricción anterior, pero siempre manteniendo la potencia de salida de los equipos de transmisión en 24 dBm y 30 dBm como máximo, respectivamente.
-(*)(Así reformado el aparte anterior por el artículo 4°; inciso 2 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
-(*)(5) Servicio general compartido
-Servicio de radiocomunicación realizado mediante equipos de potencia limitada que trabajan en frecuencias comunes, conforme se establece en este PNAF Nacional de Atribución de Frecuencias.
-Operará, hasta la fecha establecida para la migración de usuarios de la banda de 450-470 MHz, en las siguientes frecuencias:
-Las frecuencias 462,5625; 462,5875; 462,6125; 462,6625; 462,6875; 467,5625; 467,5875; 467,6125; 467,6375; 467,6625; 467,6875; 467,7125 con una potencia máxima de 0,5 watts. Las frecuencias 151,625; 151,955; 154,570; 154,600; 464,500; 464,550; 467,7625; 467,8125; 467,850; 467,875; 467,900; 467,095 serán también para uso del servicio general compartido con una potencia máxima de 2 watts.
-(*)(Así reformado el aparte anterior por el artículo 4°; inciso 2 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
-(6) Condiciones de Operación General Compartido
-1) No podrá exceder la potencia máxima de 2 watts.
-2) Solo podrá utilizarse equipos con antena incorporada (Walkie Talkie).
-3) No se permite la instalación de Bases, Repetidoras y en vehículos.
-(*)(7) Condiciones técnicas de operación para equipos en redes de medidores inteligentes y sistemas que utilicen esquemas de modulación por espectro ensanchado por salto de frecuencia (FHSS) o de espectro ensanchado por secuencia directa (DSSS).
-Se permite la operación de dispositivos en redes de medidores inteligentes y de sistemas que utilicen esquemas de modulación por espectro ensanchado por salto de frecuencia o espectro ensanchado por secuencia directa en el segmento de 920,5 MHz a 928 MHz bajo las siguientes condiciones:
-Parámetro | Valor
+(*)ADENDUM VII
+De la utilización de las bandas de frecuencias de uso libre
+Son bandas de frecuencias que se caracterizan por utilizar emisiones de baja potencia, que minimizan la posibilidad de interferencias perjudiciales, poseen una notable inmunidad a las interferencias provenientes de emisiones similares con métodos convencionales de modulación, y que permiten mejorar considerablemente la eficiencia en el uso del espectro.
+Asimismo, previo a la utilización de las frecuencias de uso libre, se debe llevar a cabo el procedimiento de homologación de equipos terminales de usuario final ante la SUTEL, según la resolución dictada para tal fin, con el fin de verificar y asegurar el cumplimiento de lo establecido en el artículo 73, inciso m) de la Ley de la Autoridad Reguladora de los Servicios Públicos, Ley Nº 7593, la cual indica que le corresponde a la SUTEL ordenar la no utilización o el retiro de equipos, sistemas y aparatos terminales que causen interferencia o dañen la integridad y calidad de las redes y los servicios, así como la seguridad de los usuarios y el equilibrio ambiental.
+(1) Consideraciones de las redes de telecomunicaciones que utilizan bandas de frecuencias de uso libre
+Serán consideradas redes de telecomunicaciones constituidas mediante la utilización de frecuencias del espectro radioeléctrico de uso libre, las siguientes, las cuales deben funcionar en cumplimiento de las condiciones de operación del servicio, establecidas en la sección 2 del presente Anexo:
+a) Las que utilizan tecnologías digitales como OFDM, FSK y otros, en las siguientes bandas:
+• 3155 kHz a 3200 kHz, de conformidad con lo establecido por la nota CR 017.
+• 6765 kHz a 6795 kHz/
+• 13 553 kHz a 13 567 kHz.
+• 26 957 kHz a 27 283 kHz.
+• 40,66 MHz a 40, 70 MHz.
+• 402 MHz a 405 MHz, únicamente para dispositivos médicos implantables de potencia extremadamente reducida, de conformidad con la Recomendación UlT-R RS.1346.
+• 433,05 MHz a 434,79 MHz.
+• 2400 MHz a 2500 MHz.
+• 5150MHz a 5350MHz.
+• 5470 MHz a 5875 MHz.
+• 24 GHz a 24,25 GHz.
+• 57 GHz a 64 GHz.
+• 76 GHz a 77 GHz, únicamente para sistemas de radares de ondas milimétricas para evitar colisiones entre vehículos y sistemas de radiocomunicaciones para aplicaciones de sistemas de transporte inteligente, de conformidad con la Recomendación UIT-R M.1452.
+• 122 GHz a 123 GHz.
+• 244 GHz a 246 GHz.
+b) los sistemas que utilicen esquemas de modulación por espectro ensanchado por salto de frecuencia (FHSS) o de espectro ensanchado por secuencia directa (DSSS), en el segmento de frecuencias de 920,5 MHz a 934,5 MHz. No obstante lo anterior, en aras de lograr un uso eficiente del espectro radioeléctrico, se podrá valorar su operación en el segmento de 916 MHz a 939 MHz, de conformidad con las hojas de especificaciones técnicas de los equipos a utilizar, siempre que esto no introduzca interferencias perjudiciales en las bandas de frecuencias adyacentes atribuidas al servicio Móvil para el despliegue de sistemas IMT.
+c) los sistemas que transmitan en baja potencia y corto alcance (servicio general compartido) en las siguientes frecuencias:
+Servicio de radio móvil general (GMRS):
+Frecuencia (MHz)
+462,5500
+462,5750
+462,6000
+462,6250
+462,6500
+462,6750
+462,7000
+462,7250
+467,5500
+467,5750
+467,6000
+467,6250
+467,6500
+467,6750
+467,7000
+467,7250
+Servicio de radio familiar (FRS):
+Frecuencia (MHz)
+462,5620
+462,5875
+462,6125
+462,6375
+462,6625
+462,6875
+462,7125
+467,5625
+467,5875
+467,6125
+467,6375
+467,6625
+467,6875
+467, 7125
+Servicio de radio mu/ti-uso (MURS):
+Frecuencia ( MHz) | Ancho de Banda (kHz)
+151.8200 | 11.25
+151.8800 | 11.25
+151.9400 | 11.25
+154.5700 | 20.00
+154.6000 | 20.00
+d) Todos aquellos sistemas que utilicen frecuencias no atribuidas para uso libre de acuerdo a los puntos anteriores, podrán operar siempre que no excedan los umbrales de intensidad de la siguiente tabla:
+Frecuencia (MHz) | Intensidad de campo (μVlm) | Distancia de medición (m)
+0.009-.0490 | 2400/f (kHz) | 300
+0.490-1.705 | 24000/f(kHz) | 30
+1.705-30.0 | 30 | 30
+30-88 | 100 | 3
+88-216 | 150 | 3
+216-960 | 200 | 3
+Por encima | 500 | 3
+En caso de que las hojas de especificaciones técnicas de los equipos a homologar no muestren la información de intensidad de campo a las distancias establecidas, la SUTEl podrá realizar un cálculo teórico para determinar el cumplimiento o no de los umbrales definidos en la tabla anterior, utilizando los modelos de propagación aceptados por la industria, o tomando como referencia una Potencia Jsotrópica Radiada Equivalente máxima de 24 dBm con antena integrada o especifica.
+Es importante indicar, que estas potencias no son aplicables a los rangos de frecuencias atribuidos o identificados para sistemas JMT en el presente plan, para lo cual, la SUTEl valorará niveles de potencias inferiores que garanticen la no interferencia con estos sistemas, para su eventual homologación.
+(2) Condiciones generales de operacwn de las redes de telecomunicaciones que utilizan bandas de frecuencias de uso libre
+a) la operación de estas redes está condicionada a no causar interferencias perjudiciales a otros sistemas que operen conforme a los servicios radioeléctricos atribuidos mediante el presente plan y posean un título habilitante vigente, considerando principalmente aquellos que utilicen equipos receptores de alta sensibilidad, tales como el servicio móvil para el desarrollo de sistemas JMT Asimismo, no podrán reclamar protección contra interferencias perjudiciales proveniente de otros sistemas.
+b) De presentarse una interferencia causada por estos sistemas se deberá suspender transmisiones de inmediato hasta que sea subsanado el problema, conforme a las competencias otorgadas a la SUTEl por la legislación vigente.
+c) la potencia máxima permitida para las bandas de frecuencias indicadas en la sección 1, inciso a) del presente Anexo, deberán ajustarse al siguiente cuadro:
+Banda de frecuencia (MHz) | Máxima potencia de salida de los equipos (dBm) | Máxima Potencia Isotrópica Radiada Equivalente (EIRP o PIRE, dBm) | Consideraciones adicionales de operación.
+3.155 3.200 | --- | 12.15 | Se limita para el uso exclusivo de los dispositivos de comunicación in alámbrica de baja potencia, para personas de audición deficiente. La potencia establecida es según la recomendación UIT-R M. 1076.
+6.765 a 6.795 | 24 | 30 |
+13.553 a 13.567 | 24 | 30 |
+26.957 a 27.283 | 24 | 30 |
+40.660 a 40.700 | 24 | 30 |
+402 a 405 | --- | -16 | Únicamente para dispositivos médicos implantables de potencia extremadamente reducida, de conformidad con la Recomendación UIT-R RS.13 46. La potencia establecida es según la recomendación
+433.05 a 434.79 | 24 | 30 |
+2400 a 2500 | 30 | 36 |
+5150 a 5350 | 24 | 30 |
+5470 a 5725 | 24 | 30 |
+5725 a 5875 | 30 | 36 |
+24000 a 24250 | 24 | 30 |
+57000 a 64000 | --- | 43 | Se limita a su utilización en sistemas de redes inalámbricas de área personal (WPAN, por sus siglas en inglés).
+76000 a 77000 | 24 | 30 |
+122000 a 123000 | 24 | 30 |
+244000 a 246000 | 24 | 30 |
+Los límites de PIRE tienen las siguientes excepciones:
+a) Los sistemas utilizados para enlaces fijos punto a punto que operen en el
+rango de 2400 MHz a 2500 MHz, que empleen antenas con ganancias superiores a 6 dBi, deben de reducir la potencia de salida del transmisor en 1 dBm por cada 3 dBi de ganancia de antena superiores a 6 dBi.
+b) Los sistemas utilizados para enlaces fijos punto a punto que operen en los rangos 5470 MHz a 5725 MHz y 5725 MHz a 5875 MHz, pueden emplear antenas con ganancias superiores a 6 dBi, sin la restricción anterior, pero siempre manteniendo la potencia de salida de los equipos de transmisión en 24 dBm y 30 dBm como máximo, respectivamente.
+d) Los sistemas que utilicen esquemas de modulación FHSS o DSSS, según el inciso ( 1 ), sub inciso b ), del presente Adendum, deberán cumplir las siguientes condiciones técnicas:
+Parámetro | Especificación
 Potencia máxima (PIRE) | 1 W (para todos los dispositivos en la red)
-Tipos de antena permitidos | Integral o dedicada (ambos casos antenas internas, según la Recomendación ITU-R SM.1538-2)
-Banda de frecuencias de operación | De 920,5 MHz a 928 MHz
-Protección contra interferencias | Los sistemas de medición inteligente y los sistemas que utilicen esquemas de modulación por espectro ensanchado por salto de frecuencia o espectro ensanchado por secuencia directa no podrán reclamar protección contra interferencias ni ocasionar interferencias a servicios licenciados de forma primaria que operen en esa banda de frecuencias.
-(*) (Así adicionada la sección anterior por el artículo 6° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)
-* (R): en rutas.
-** (OR): fuera de rutas.
-1 1.117.1 Documento gráfico es todo soporte de información en el cual se registra de forma permanente un texto escrito o impreso o una imagen fija, y que es posible clasificar y consultar.
-2 1.125.1, 1.126.1 y 1.127.1 Por lo general, la explotación dúplex y la explotación semidúplex de un canal de radiocomunicación requieren el empleo de dos frecuencias: la explotación símplex puede hacerse con una o dos frecuencias.
-3 1.167.1 y 1.168.1 Los términos «interferencia admisible» e «interferencia aceptada» se utilizan en la coordinación de asignaciones de frecuencia entre administraciones.
+Tipos de antena permitidos | Integrada o especifica (según el informe ITU-R SM.2153)
+Banda de frecuencias de operación | De 920,5 MHz a 934,5 MHz. No obstante lo anterior, en aras de lograr un uso eficiente del espectro radioeléctrico, se podrá valorar su operación en el segmento de 916 MHz a 939 MHz, de conformidad con las hojas de especificaciones técnicas de los equipos a utilizar, siempre que esto no introduzca interferencias perjudiciales en las bandas de frecuencias adyacentes atribuidas al servicio Móvil para el despliegue de sistemas IMT.
+Protección contra interferencias | Los sistemas que utilicen esquemas de modulación por espectro ensanchado por salto de frecuencia o espectro contra ensanchado por secuencia directa, no podrán reclamar protección contra interferencias ni ocasionar interferencias a servicios habilitados de forma primaria que operen en esa banda de frecuencias.
+e) Para los servicios GMRS, FRS y MURS, se permite el uso de antena integrada o especifica con las siguientes características técnicas de operación:
+Tipo de servicio | PIRE(W) | Separación de canal máxima
+GMRS | 2 | 25 kHz
+FRS | 0.5 | 25 kHz
+MURS | 2 | 25 kHz
+Para estos servicios no se permite la implementación de sistemas bases o repetidoras, así como ninguna operación en vehículos con antenas externas que incumplan el punto anterior, en sistemas de radiocomunicación de banda agosta. Para otro tipo de uso de estas frecuencias, se podrán tomar como referencia las potencias máximas establecidas en la tabla anterior.
+Finalmente, para el caso de las frecuencias en la banda de 450 MHz a 470 MHz, éstas podrán ser utilizadas en estos servicios hasta que el Poder Ejecutivo establezca la fecha de uso y atribución de esta banda para sistemas IMT.
+(*)(Así reformado el ademdum VII anterior por el inciso d) del artículo 5° del decreto ejecutivo N° 40370 del 27 de febrero del 2017)
 (*)Adendum VIII
 Criterios de diseño para radioenlaces de microondas
 Para el establecimiento de nuevos radioenlaces de microondas o reubicación de enlaces existentes, en segmentos de frecuencias de asignación no exclusiva, se deberá cumplir con las distancias mínimas establecidas a continuación:
@@ -1165,3 +1090,16 @@ Banda (GHz) | Segmento de Frecuencia (MHz) | Frecuencia Central (MHz) | Distanci
 23 | 21 200 a 23 600 | 22 400
 27 | 25 250 a 24 250 | 24 750
 (*) (Así adicionado el Adendum VIII) anterior por el artículo 1° del decreto ejecutivo N° 37936 del 16 de agosto del 2013)
+(*) ADENDUM IX
+SERVICIO MÓVIL AERONÁUTICO POR SATÉLITE
+Para la operación de las estaciones terrenas de aeronave:
+Para la operación de las estaciones terrenas de aeronaves (ETA) que sobrevuelen el espacio aéreo costarricense, deberán acatarse de forma obligatoria los siguientes aspectos técnicos, así como todos aquellos que la SUTEL resuelva:
+i. No deberá existir interconexión de las redes de las ETA con las redes de telecomunicaciones de nuestro país.
+ii. El descenso de las señales para el SMAS se llevará a cabo únicamente desde los satélites de la infraestructura SFS.
+iii. Las emisiones de las ETA operarán con satélites autorizados del servicio fijo por satélite SFS, conforme a los convenios de coordinación satelital que correspondan.
+iv. Se permite la operación de las ETA en frecuencias del espectro costarricense en tanto se acaten los aspectos que se indican en las notas nacionales CR 091A, para descenso de señales satelitales para las ETA (en la banda de 10,7 GHz a 12, 7 GHz), y CR 098A, esta última para el ascenso de señales desde las ETA hacia satélites geoestacionarios del SFS (en la banda de 14,0 GHz a 14,5 GHz).
+v. Para la transmisión de señales desde las ETA en aeronaves hacia satélites del SFS, en redes del servicio móvil aeronáutico por satélite, en la banda de 14,0 GHz a 14,5 GHz deberá cumplirse lo dispuesto por la UIT en la recomendación ITU-R M.1643, de manera que no interfieran a los servicios atribuidos a título primario en territorio costarricense.
+vi. Las transmisiones de las ETA en los sistemas SMAS podrían ser utilizadas durante todas las fases del vuelo: despegue, aterrizaje y durante su permanencia en Tierra.
+vi. Los equipos que operen en bandas de frecuencias de uso libre, tales como los utilizados para los servicios WiFi dentro de las aeronaves, deberán cumplir con el procedimiento de homologación de dispositivos que operan en estas bandas, según la resolución RCS-431-2010 publicada el 01 de octubre de 2010.
+vii. La atribución de frecuencias de las ETA para el SMAS se realizará de acuerdo con la regulación y procedimientos legales vigentes, además deberán cumplir con los pagos de los cánones respectivos. Las bandas de asignación para SMAS son: JO, 7 GHz a 12,7 GHz (Espacio-Tierra) y 14, O GHz a 14, 5 GHz (Tierra- Espacio) a título secundario y de asignación no exclusiva, por lo que no se podrá reclamar protección contra interferencias.
+(*)(Así adicionado el adendum IX anterior por el artículo 6° del decreto ejecutivo N° 40370 del 27 de febrero del 2017)
