@@ -14,3 +14,4 @@ Reglamento para el pago de viáticos y gastos de transporte a los funcionarios d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-30 | la propia norma |
+| 2 | 2017-02-27 | Decreto Ejecutivo 40258 (2017-02-27) |
