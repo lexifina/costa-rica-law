@@ -1,0 +1,2 @@
+Artículo 15.- Acto determinativo del valor. La publicación de la actualización de la lista de valores, constituye el acto determinativo del valor de los vehículos automotores, aeronaves y embarcaciones, que se pone a disposición del contribuyente en los meses de noviembre y diciembre de cada año.5
+5Criterio de la Dirección General en Oficio Nº DVT-156-2013 referente al Reglamento de las Aseguradoras que propone el MOPT

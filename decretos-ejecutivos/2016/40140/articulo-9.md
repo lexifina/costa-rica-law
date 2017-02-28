@@ -1,0 +1,1 @@
+Artículo 9º.-Tarifas del Impuesto. Las tarifas del impuesto son progresivas, y se aplicarán de conformidad con los tramos de la tabla establecida en el inciso f), numeral 1) del artículo 9 de la Ley N° 7088 de 30 de noviembre de 1987.
