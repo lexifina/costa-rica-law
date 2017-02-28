@@ -14,3 +14,4 @@ Reglamento de los Consejos Presidenciales de Competitividad e Innovación, Conse
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-11-07 | la propia norma |
+| 2 | 2017-02-28 | Decreto Ejecutivo 40227 (2017-02-28) |
