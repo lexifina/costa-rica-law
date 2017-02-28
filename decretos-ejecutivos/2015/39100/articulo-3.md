@@ -1,1 +1,0 @@
-Artículo 3º—Se autoriza al Servicio Nacional de Salud Animal (SENASA) para que utilice hasta ¢180.000.000 (ciento ochenta millones de colones) del Fondo Acumulativo de Emergencias Sanitarias a estos efectos.
