@@ -1,0 +1,1 @@
+Artículo 6°.- El Coordinador de la Junta Interventora ejercerá las facultades del Presidente de la Junta Directiva de INFOCOOP y el Sub-Coordinador de la Vicepresidencia del ente. Además, la Secretaría asumirá las funciones asignadas a ese cargo en la normativa respectiva.

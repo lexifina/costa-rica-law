@@ -1,0 +1,1 @@
+Artículo 4°.- El Poder Ejecutivo podrá sustituir, cuando considere necesario, a cualquier miembro de la Junta Interventora. La sustitución se realizará a partir de recomendación emitida por el Consejo de Gobierno.
