@@ -1,2 +1,2 @@
-Artículo 7º—Corresponde al Contador Municipal, gestionar que la planilla de becas, la cual será trasladada a la tesorería municipal a fin de que se realicen los depósitos correspondientes a más tardar el segundo viernes de cada mes.
-(Así reformado mediante sesión ordinaria N° 217-2014 del 26 de junio del 2014)
+Artículo 7°—Otorgamiento del beneficio según valoración técnica. La Municipalidad de Curridabat generará categorías de ayuda económica, según la valoración que periódicamente realice de las necesidades de la población meta. La Municipalidad de Curridabat reservará cada año al menos el 10% del total de becas a estudiantes con alguna discapacidad. Se deberá acreditar el padecimiento de alguna discapacidad certificada por un Médico Especialista de acuerdo al tipo de discapacidad (sensorial, múltiple, de comunicación, motriz, mental o trastornos generalizados del desarrollo, entre otras).
+(Así reformado mediante acuerdo N° 16 del 28 de febrero de 2017)
