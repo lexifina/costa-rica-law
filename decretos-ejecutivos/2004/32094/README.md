@@ -16,3 +16,4 @@ Reglamento de entrega de materiales de construcción y suministros de servicios 
 | 1 | 2004-11-17 | la propia norma |
 | 2 | 2005-07-19 | Decreto Ejecutivo 32461 (2005-07-19) |
 | 3 | 2008-11-21 | Decreto Ejecutivo 34940 (2008-11-21) |
+| 4 | 2017-03-01 | Decreto Ejecutivo 40305 (2017-03-01) |

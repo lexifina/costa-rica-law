@@ -1,1 +1,2 @@
-Artículo 3º—Contenido. Sólo podrán donarse, entregarse o suministrarse, a los efectos del presente Reglamento, materiales y servicios relacionados con la construcción de obras comunales, viales o fluviales.
+Artículo 3.- Contenido. Sólo podrán donarse, entregarse o suministrarse, a los efectos del presente Reglamento, materiales y servicios relacionados con la construcción de obras comunales.
+(Así reformado por el artículo 16 del Reglamento que regula la entrega y cuantificación de materiales e insumos por parte del Ministerio de Obras Públicas y Transportes a las municipalidades para obras de construcción o conservación de la red vial cantonal, aprobado mediante decreto ejecutivo N° 40305 del 1 de marzo del 2017)

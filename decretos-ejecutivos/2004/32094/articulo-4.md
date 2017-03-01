@@ -1,2 +1,3 @@
-Artículo 4º—Requisito previo. Toda solicitud de materiales deberá contener indicación expresa, de las obras a ejecutar, del presupuesto de materiales, el plan de financiamiento, la fecha de inicio de la obra yel formulario Solicitud de Materiales para Obras Comunales, Viales o Fluviales, según corresponda.
-En el caso de servicios, se deberá presentar la solicitud con un detalle de las actividades y descripción clara del servicio requerido.
+Artículo 4.- Requisito previo. Toda solicitud de materiales deberá contener indicación expresa de las obras a ejecutar, del presupuesto de materiales, el plan de financiamiento, la fecha de inicio de la obra y el formulario Solicitud de Materiales para Obras Comunales.
+En el caso de servicios, se deberá presentar la solicitud con un detalle de las actividades y descripción clara del servicio requerido.”
+(Así reformado por el artículo 16 del Reglamento que regula la entrega y cuantificación de materiales e insumos por parte del Ministerio de Obras Públicas y Transportes a las municipalidades para obras de construcción o conservación de la red vial cantonal, aprobado mediante decreto ejecutivo N° 40305 del 1 de marzo del 2017)
