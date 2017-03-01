@@ -15,3 +15,4 @@ Reglamento para el Control de Drogas Estupefacientes y Psicotrópicas
 | --- | --- | --- |
 | 1 | 2012-06-05 | la propia norma |
 | 2 | 2016-09-01 | Decreto Ejecutivo 39984 (2016-09-01) |
+| 3 | 2017-03-01 | Decreto Ejecutivo 40307 (2017-03-01) |
