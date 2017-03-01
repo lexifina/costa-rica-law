@@ -21,3 +21,4 @@ Directrices Generales de Política Presupuestaria, Salarial, Empleo, Inversión 
 | 6 | 2017-01-27 | Decreto Ejecutivo 40194 (2017-01-27) |
 | 7 | 2017-02-08 | Decreto Ejecutivo 40234 (2017-02-08) |
 | 8 | 2017-02-27 | Decreto Ejecutivo 40282 (2017-02-27) |
+| 9 | 2017-03-01 | Decreto Ejecutivo 40283 (2017-03-01) |
