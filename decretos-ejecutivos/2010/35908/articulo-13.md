@@ -1,1 +1,0 @@
-Artículo 13.—Dependencias a cargo del trámite. Corresponderá a las Direcciones Regionales la atención de los trámites y procedimientos relativos a los convenios de mutua cooperación, que se realicen conforme las disposiciones del presente capítulo.

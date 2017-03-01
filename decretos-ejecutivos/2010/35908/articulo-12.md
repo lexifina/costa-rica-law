@@ -1,5 +1,0 @@
-CAPÍTULO III
-Convenios que se formalizan mediante el documento
-denominado “Desglose y Estimación de Aportes”
-Artículo 12.—Casos en que aplica. Se formalizará mediante el documento denominado “Desglose y Estimación de Aportes”, los casos en los cuales el objeto del convenio sea la ejecución de trabajos de mantenimiento, rehabilitación, reconstrucción, mejoramiento, obra nueva de la red vial cantonal, a ejecutar en conjunto con Municipalidades, Asociaciones de Desarrollo Integral y otros entes públicos y/o privados competentes, cuando las obras a realizar sean consideradas de escasa cuantía.
-Serán consideradas de escasa cuantía aquellas obras o actividades cuyo desglose y estimación de aportes totalice una suma igual o inferior a sesenta millones de colones, monto que será actualizado e incrementado anualmente, tomando como referencia el índice oficial de inflación del año precedente que elabora el Instituto Nacional de Estadística y Censos (INEC). La Dirección de la División de Obras Públicas, en el primer mes de cada año, comunicará la actualización de la cuantía referida en este artículo.

@@ -1,1 +1,0 @@
-Artículo 4º—Cumplimiento del bloque de legalidad. El Ministerio de Obras Públicas y Transportes podrá celebrar acuerdos de cooperación conforme a las disposiciones del presente Reglamento, en el tanto los objetivos a cumplir se encuentren dentro del marco de sus competencias, debiendo ajustar sus actuaciones en todo momento al ordenamiento jurídico.
