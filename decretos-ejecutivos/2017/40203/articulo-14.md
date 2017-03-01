@@ -1,0 +1,1 @@
+Artículo 14.- Foro Nacional de los ODS. Se crea el Foro Nacional de los ODS como un espacio público para la rendición de cuentas de las acciones realizadas para el cumplimiento de los ODS en Costa Rica. El foro será organizado y convocado por la Secretaría Técnica.

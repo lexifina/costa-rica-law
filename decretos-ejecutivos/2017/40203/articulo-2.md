@@ -1,0 +1,1 @@
+Artículo 2.- La Administración Pública y los ODS. Todas las instituciones públicas, dentro del ámbito de sus competencias, dependencias y autonomías, deberán prestar colaboración para el cumplimiento de los ODS en Costa Rica, conforme al principio de la debida coordinación interinstitucional.
