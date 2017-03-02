@@ -11,7 +11,7 @@ Artículo 8º—Competencias y responsabilidades. Son competencia y responsabili
 10. Requerir toda la información que considere necesaria a personas externas y órganos del Banco, para la gestión integral de riesgos.
 11. Vigilar el cumplimiento de las acciones administrativas orientadas a reducir el impacto de los riesgos materializados.
 12. Aprobar los informes de riesgo preparados por el Departamento de Riesgos, previo a su presentación a la Junta Directiva.
-13. Solicitar al Departamento de Riesgos un informe anual, en enero de cada año, sobre los resultados de la ejecución de su plan de trabajo, para comunicarlo al Comité de Auditoría y a la Junta Directiva.
+13. (Eliminado en sesión N° 5760 del 2 de marzo de 2017)
 14. Proponer oportunidades de mejora en la gestión integral de riesgos para el conocimiento de la Junta Directiva.
 15. Cerciorarse de la revisión bianual del Sistema de Gestión de Riesgos, por parte de una firma auditora externa.
 16. Presentar un informe cada seis meses a la Junta Directiva sobre la gestión integral de riesgos, con el siguiente contenido mínimo:
@@ -21,6 +21,10 @@ c) Las acciones tomadas en la gestión integral de riesgos.
 d) Los resultados obtenidos con las acciones aplicadas.
 e) Las oportunidades de mejora y actualización en la gestión integral de riesgos.
 f) Eventos de riesgo relevantes materializados, pérdidas incurridas y medidas de control aplicadas para su contención.
-g) Cualquier otro aspecto de interés.
-h) Cualquier otra función que le sea asignada por la Junta Directiva.
+g. Los resultados de la ejecución del plan de trabajo del Departamento Gestión Integral de Riesgos.
+(Así adicionado el inciso anterior en sesión N° 5760 del 2 de marzo de 2017)
+h) Cualquier otro aspecto de interés.
+(Así reformado el inciso anterior en sesión N° 5760 del 2 de marzo de 2017)
+i) Cualquier otra función que le sea asignada por la Junta Directiva”.
+(Así reformado el inciso anterior en sesión N° 5760 del 2 de marzo de 2017)
 17. Diagnosticar anualmente las necesidades de actualización del presente reglamento.
