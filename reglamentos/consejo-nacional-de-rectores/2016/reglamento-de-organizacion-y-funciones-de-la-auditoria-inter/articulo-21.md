@@ -1,0 +1,1 @@
+Artículo 21. Competencias de la Auditoría Interna. Compete a la Auditoría Interna ejecutar lo establecido el art. 22 de la LGCI, así como las instauradas en otras leyes, reglamentos y demás normativa de observancia obligada, incluyendo los informes, estudios especiales o funciones específicas que el CONARE le asigne.

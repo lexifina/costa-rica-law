@@ -1,0 +1,1 @@
+Artículo 54. Planificación y supervisión. Cada trabajo de auditoría o estudio especial debe contar con una adecuada planificación y supervisión con el propósito de que brinde una certeza razonable que ha sido realizado de acuerdo con las políticas, programas de trabajo y que ha cumplido con la normativa aplicable.

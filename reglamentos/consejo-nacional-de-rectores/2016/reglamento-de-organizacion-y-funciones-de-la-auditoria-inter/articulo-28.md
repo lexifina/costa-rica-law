@@ -1,0 +1,1 @@
+Artículo 28. Planificación estratégica. El Auditor (a) Interno (a) elaborará con su equipo de trabajo la planificación estratégica, con fundamento en las actividades de los procesos de la administración, en el universo auditable que determine y en la valoración de riesgos aplicable a dicho universo.

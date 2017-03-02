@@ -1,0 +1,1 @@
+Artículo 31. Estudio y evaluación del control interno. La Auditoría Interna al iniciar una auditoría o estudio especial estudiará y evaluará el sistema de control interno utilizando como insumo y parámetro el modelo establecido en la entidad.

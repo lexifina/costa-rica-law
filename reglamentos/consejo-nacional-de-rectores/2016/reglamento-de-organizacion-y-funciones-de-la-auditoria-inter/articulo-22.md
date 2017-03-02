@@ -1,0 +1,1 @@
+Artículo 22. Deberes legales. El Auditor (a) Interno (a), y los demás funcionarios de la Auditoría Interna, tendrán además de las obligaciones establecidas en el art. 32 LGCI, cumplir con todos aquellos otros que se deriven de la normativa técnica vigente.

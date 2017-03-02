@@ -1,0 +1,1 @@
+Artículo 20. Relaciones y coordinaciones. En la comunicación e intercambio de información con la Contraloría General de la República, la Procuraduría General de la República, otros entes fiscalizadores establecidos por ley en el ejercicio de sus competencias, u otras organizaciones la Auditoría Interna goza de total independencia.

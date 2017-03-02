@@ -1,0 +1,1 @@
+Artículo 56. Se deberá evaluar al personal de la Auditoría Interna una vez al año, por medio de la aplicación de herramientas internas y controles actualizados de acuerdo con la normativa vigente y según los lineamientos de la Contraloría General de la República.

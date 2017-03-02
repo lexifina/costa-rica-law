@@ -1,0 +1,1 @@
+Artículo 7. Competencia de fiscalización. La Auditoría Interna ejerce sus funciones en todas las unidades administrativas, operativas y demás dependencias de la institución, así mismo de los fondos propiedad de la Institución custodiados o administrados por otros entes cogestores.

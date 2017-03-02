@@ -1,0 +1,1 @@
+Artículo 52. Capacitación permanente. El personal de Auditoría Interna deberá cumplir un compromiso de formación permanente, mejorando continuamente sus habilidades y la efectividad y calidad de los servicios.

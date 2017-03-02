@@ -1,0 +1,1 @@
+Artículo 53. Evaluaciones al programa de calidad. La Auditoria Interna efectuará periódicamente evaluaciones de calidad a sus procesos, la cual deberán tener supervisión y evaluación interna y de ser posible externa, que permita el aseguramiento y mejoramiento continuo de la labor de fiscalización y asesoría.

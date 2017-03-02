@@ -1,0 +1,1 @@
+Artículo 23. Potestades. El Auditor (a) Interno (a) y los demás funcionarios de la Auditoría Interna tendrán las potestades que determina el artículo 33 de la Ley de Control Interno para el adecuado cumplimiento de sus funciones.

@@ -1,0 +1,13 @@
+Artículo 25. Prohibiciones legales. El Auditor (a) Interno (a), y los demás funcionarios de la Auditoría Interna, tendrán además de las prohibiciones establecidas en el art. 34 LGCI, las siguientes:
+a) Requerir, recibir u otorgar, directa o indirectamente, cualquier objeto de valor pecuniario u otros beneficios como dádivas, favores, premios, promesas o ventajas a cambio de la realización u omisión de cualquier acto en el ejercicio de sus funciones bajo cualquier modalidad o denominación.
+b) Utilizar su cargo oficial con propósitos privados.
+c) Sostener relaciones de negocios o de cualquier otra naturaleza que puedan influir, comprometer o amenazar la capacidad para actuar, o que puedan afectar su independencia de criterio y objetividad como funcionario público.
+Artículo 25. Metodologías, procedimientos y prácticas. Sin perjuicio de lo estipulado en otros artículos de este reglamento, en la Ley General de Control Interno No. 8292 y lo dispuesto por la Contraloría General de la República, en cuanto a las regulaciones para la Auditoría Interna, el Auditor (a) Interno (a) tendrá las siguientes obligaciones o responsabilidades:
+a) Establecer las regulaciones rectoras de la Auditoría Interna del CONARE.
+b) Actualizar e implementar los mecanismos para el manejo eficaz de las relaciones y coordinaciones que en el ejercicio de las competencias de la Auditoría Interna, sean aplicables con el jerarca, titulares subordinados y otras instancias internas o externas, en coordinación con los funcionarios de las unidades internas del CONARE.
+c) Regular la planificación de la Auditoría Interna para el desarrollo de las labores, basados en la valoración de riesgos.
+d) Diseñar e implementar los diferentes procesos inherentes a la Auditoría Interna, así como la elaboración de instrumentos para la ejecución del trabajo (procesos típicos en las diferentes labores de auditoría, estudios especiales de auditoría, irregularidades, control interno, presupuesto, etc., asesorías, advertencias, autorización de libros).
+e) Establecer los trámites que se le darán a los resultados de los estudios de la Auditoría Interna.
+f) Establecer los procedimientos que se le darán (internamente y externamente) a las recomendaciones no aceptadas por la Administración.
+g) Establecer los criterios mínimos que se tomarán en cuenta para mantener un programa de aseguramiento continuo de la calidad y mejora de la Auditoría Interna en todos los ámbitos incluyendo la aplicación de la normativa técnica y jurídica aplicable.
+(Nota de Sinalevi: En la publicación del presente reglamento se consignó dos veces el artículo 25°).

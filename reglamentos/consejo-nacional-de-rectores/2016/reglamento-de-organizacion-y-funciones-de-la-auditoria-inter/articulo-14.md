@@ -1,0 +1,1 @@
+Artículo 14. Recursos y apoyo a su gestión. El Auditor (a) Interno (a) para el desarrollo y administración de la unidad de auditoría, deberá presentar al jerarca los planes y la necesidad de recursos (creación de plazas, capacitación y otros) para desarrollarlos, debidamente fundamentados de acuerdo a cada requerimiento.

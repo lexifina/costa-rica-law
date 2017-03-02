@@ -1,0 +1,1 @@
+Artículo 33. Papeles de trabajo. Las auditorías o estudios especiales se soportarán con cédulas y documentos de trabajo en donde se registrará, las pruebas realizadas, la información o datos importantes obtenidos de acuerdo con los objetivos que pretendan la auditoría y las áreas críticas evaluadas.
