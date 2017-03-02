@@ -1,0 +1,3 @@
+COLEGIO DE INGENIEROS QUÍMICOS
+Y PROFESIONALES AFINES
+La Comisión de Investigación Profesional del Colegio de Ingenieros Químicos y Profesionales Afines, comunica a todos aquellos profesionales que deseen incorporarse como miembros activos de este Colegio, que el Reglamento a la Ley N° 8412, establece que uno de los requisitos de incorporación es la realización de un examen de aptitud profesional. Por lo que se ha programada esta prueba para el día 24 de junio del 2017. La normativa para la realización de dicho examen, fue publicada en el Diario La Gaceta N° 237 del 7/12/2010, cualquier duda o consulta podrá comunicarse al Colegio por medio del teléfono N° 2222-56-11.
