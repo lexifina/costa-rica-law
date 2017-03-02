@@ -1,1 +1,0 @@
-Artículo 16.—Los encargados de los fondos de Cajas Chicas, deberán revisar los cálculos aritméticos de todo comprobante que trámite, e igualmente la Tesorería y la Contabilidad cuando se trate de la Caja Chica General.

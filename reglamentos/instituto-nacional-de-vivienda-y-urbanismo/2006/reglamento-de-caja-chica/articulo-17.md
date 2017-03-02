@@ -1,1 +1,0 @@
-Artículo 17.—Todos los funcionarios que participen en los trámites de Caja Chica, deben observar estrictamente las normas y procedimientos aquí indicados. En el caso de la Caja Chica General, rige también lo estipulado en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, emitido por la Contraloría General de La República.
