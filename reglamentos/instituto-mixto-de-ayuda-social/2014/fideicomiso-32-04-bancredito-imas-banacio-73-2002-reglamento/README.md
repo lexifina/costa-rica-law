@@ -14,3 +14,4 @@ Fideicomiso 32-04 BANCREDITO-IMAS-BANACIO/73-2002 Reglamento para el otorgamient
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-30 | la propia norma |
+| 2 | 2017-03-03 | Reglamento 0 (2017-03-03) |
