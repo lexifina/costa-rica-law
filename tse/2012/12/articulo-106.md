@@ -1,1 +1,4 @@
-Artículo 106.- Ingresos económicos provenientes de cónyuge en virtud de matrimonio celebrado en el extranjero.- Cuando la parte gestionante requiera demostrar que su cónyuge es quien tiene ingresos económicos suficientes para su manutención, y el matrimonio fue celebrado en el extranjero, deberá aportar documento debidamente legalizado o apostillado –según corresponda– proveniente del país de origen y traducido oficialmente –si procede–, que demuestre el vínculo jurídico matrimonial.
+CAPITULO III
+DISPOSICIONES GENERALES SOBRE LAS PRUEBAS
+Artículo 106.- Apreciación de la prueba.- La apreciación de la prueba en los trámites de naturalización se hará de manera integral y de conformidad con las reglas de la sana crítica.
+(Así corrida su numeración por el artículo 4° del decreto del Tribunal Supremo de Elecciones, N° 2 del 3 de marzo del 2017, que lo traspaso del artículo 99 al 106)

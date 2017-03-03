@@ -1,2 +1,4 @@
-Artículo 78.- Minuta de calificación.- Toda solicitud de naturalización deberá ser calificada por el funcionario o funcionaria designada para ello, para lo cual deberá completar una minuta que se foliará en el expediente. La calificación deberá indicar con exactitud el cumplimiento de los respectivos requisitos, el nombre, dos apellidos y firma de quien realizó la calificación así como la fecha en que lo hizo. Dicha minuta deberá contener un espacio que firmará el funcionario o funcionaria responsable de la elaboración del proyecto de resolución respectivo.
-Elevados los autos en consulta o en alzada, el calificador del Área de Expedientes Civiles de la Secretaría General del Tribunal Supremo de Elecciones elaborará la propia minuta de calificación, la cual deberá cumplir los requisitos indicados en el párrafo anterior.
+SECCIÓN III
+Disposiciones especiales de procedimiento
+Artículo 78.—Normas generales.- Además de las disposiciones generales de procedimiento establecidas en el capítulo II del título IV de este reglamento, en el trámite de naturalización para personas declaradas en condición de apátrida o refugiado apátrida el Registro Civil deberá observar las disposiciones de esta Sección.
+(Así adicionado por el artículo 3 del decreto del Tribunal Supremo de Elecciones, N° 2 del 3 de marzo del 2017)

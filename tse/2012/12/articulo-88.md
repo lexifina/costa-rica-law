@@ -1,2 +1,3 @@
-Artículo 88.- Orden de resolución de las solicitudes de naturalización.- Las solicitudes de naturalización serán resueltas observando un estricto orden cronológico, considerado a partir de la fecha en la que fue presentadas y al cumplimiento exacto de los requisitos en los términos establecidos en este reglamento.
-El orden será variado solamente si la parte gestionante alega una causa debidamente justificada y demostrada. Tanto la solicitud como la respuesta del Registro deberán quedar constando en el expediente.
+Artículo 88.- Momento procesal de la prevención y el requerimiento de información a los órganos públicos.- La Sección de Opciones y Naturalizaciones requerirá a los órganos públicos correspondientes, que remitan los documentos que conforman el elenco probatorio de cada solicitud de naturalización, en los términos establecidos para cada uno de los trámites.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 12 del 9 de abril de 2015)
+(Así corrida su numeración por el artículo 4° del decreto del Tribunal Supremo de Elecciones, N° 2 del 3 de marzo del 2017, que lo traspaso del artículo 81 al 88)

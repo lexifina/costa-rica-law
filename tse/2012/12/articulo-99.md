@@ -1,3 +1,3 @@
-CAPITULO III
-DISPOSICIONES GENERALES SOBRE LAS PRUEBAS
-Artículo 99.- Apreciación de la prueba.- La apreciación de la prueba en los trámites de naturalización se hará de manera integral y de conformidad con las reglas de la sana crítica.
+Artículo 99.- Resolución final estimatoria.- La resolución que aprueba una solicitud de naturalización deberá contener toda la información necesaria de la parte gestionante como también la de sus hijos, si se presentó conjuntamente su solicitud de trascendencia de la nacionalidad. Además, deberá indicar las pruebas que demuestran el cumplimiento de los respectivos requisitos. Dicha información servirá de base para efectos del levantamiento de la respectiva acta y el consecuente asiento de registro especial en el tomo electrónico de naturalizaciones.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 12 del 9 de abril de 2015)
+(Así corrida su numeración por el artículo 4° del decreto del Tribunal Supremo de Elecciones, N° 2 del 3 de marzo del 2017, que lo traspaso del artículo 92 al 99)

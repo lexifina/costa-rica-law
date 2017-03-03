@@ -1,4 +1,2 @@
-TITULO VIII
-DISPOSICIONES FINALES
-CAPÍTULO ÚNICO
-Artículo 125.- Derogatorias.- Este reglamento deroga, en lo que se le oponga, el Reglamento a la Ley n.º 1902 de 31 de enero de 1956, así como toda otra norma del mismo rango.
+Artículo 125.- Recurso de revisión.- Al recurso de revisión que se plantee en contra de una resolución dictada por el Tribunal Supremo de Elecciones, le serán aplicables las normas establecidas en la Ley General de la Administración Pública.
+(Así corrida su numeración por el artículo 4° del decreto del Tribunal Supremo de Elecciones, N° 2 del 3 de marzo del 2017, que lo traspaso del artículo 118 al 125)
