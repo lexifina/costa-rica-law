@@ -1,0 +1,6 @@
+CIRCULAR Nº 35-2017
+ASUNTO: 1) Se deja sin efecto la Circular N° 228-2016 “Obligación de los jueces y las juezas quienes ejercen la Coordinación de las oficinas jurisdiccionales, de controlar la asistencia y puntualidad de las personas juzgadoras a las oficinas y a las audiencias programadas”. 2) Reiteración del personal judicial de cumplir con el horario y jornada de trabajo correspondiente.
+A TODAS LAS PERSONAS SERVIDORAS JUDICIALES
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión Nº 3-17 celebrada el 17 de enero de 2017, artículo LXXI, dispuso dejar sin efecto la Circular N° 228-2016 “Obligación de los jueces y las juezas quienes ejercen la Coordinación de las oficinas jurisdiccionales, de controlar la asistencia y puntualidad de las personas juzgadoras a las oficinas y a las audiencias programadas”, asimismo se reitera al personal judicial que sin distinción del cargo desempeñado, tienen la obligación de cumplir el horario y la jornada de trabajo que corresponde. En particular los jueces y juezas deben cumplir el horario del señalamiento de las audiencias y diligencias. Asimismo, en caso de que se constate el incumplimiento de esta obligación, deberá iniciarse el procedimiento disciplinario que corresponde.
+San José, 3 de marzo de 2017
