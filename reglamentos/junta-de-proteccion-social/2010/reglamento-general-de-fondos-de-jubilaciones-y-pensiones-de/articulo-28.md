@@ -8,4 +8,8 @@ Donde:
 QVsj es la cantidad total de cotizantes de lotería que vendieron lotería durante la semana j (una semana específica).
 • Vsj es la venta efectiva que realizó la Junta en la semana j (una semana específica).
 La Junta realizará el cálculo de la media aritmética indicada, y suministrará a FOMUVEL el dato de proporcionalidad de la cotización dentro de los diez días hábiles posteriores a la fecha de realización del último sorteo en que el vendedor retiró lotería, a efecto de facilitar la correcta determinación de la cuantía de la pensión que le corresponde al beneficiario. Lo anterior de conformidad con lo establecido en el artículo 22 de la Ley N° 8718.
+Si dentro del plazo indicado no es posible considerar todos los aportes que corresponden a ventas efectivas realizadas por el vendedor, el cálculo de la media aritmética se tendrá como parcial y así lo hará saber la Junta a FOMUVEL.
+(Así adicionado el párrafo anterior en sesión N° 08 del 6 de marzo de 2017)
+Una vez que se cuente con el dato definitivo de los aportes que corresponden a ventas efectivas realizadas por el vendedor, la Junta debe realizar el cálculo y suministrar a FOMUVEL el dato de proporcionalidad definitiva, dentro de los diez días hábiles posteriores a la fecha de la liquidación. Lo anterior con la finalidad de que FOMUVEL realice de oficio el reajuste de la cuantía de la pensión y proceda con el reconocimiento retroactivo que corresponda.
+(Así adicionado el párrafo anterior en sesión N° 08 del 6 de marzo de 2017)
 (Así reformado mediante sesión ordinaria N° 01-2016 del 12 de enero del 2016)
