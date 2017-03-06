@@ -15,3 +15,4 @@ Manual de Políticas y Procedimientos del Departamento Administrativo y Financie
 | --- | --- | --- |
 | 1 | 2016-02-02 | la propia norma |
 | 2 | 2016-06-27 | Reglamento 0 (2016-06-27) |
+| 3 | 2017-03-06 | Reglamento 0 (2017-03-06) |
