@@ -1,1 +1,0 @@
-Artículo 8º—El auditor y subauditor internos serán los encargados de la auditoría interna de la institución y son los responsables finales del logro de los objetivos de la unidad, por lo que requieren compromiso con las políticas y directrices emanadas del nivel superior, y lealtad absoluta hacia la institución y sus valores.

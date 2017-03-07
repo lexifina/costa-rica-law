@@ -1,1 +1,0 @@
-Artículo 3º—La auditoría interna es un órgano asesor del Concejo Municipal y estructuralmente no depende del Alcalde Municipal. Por lo tanto, debe estar ubicada al más alto nivel dentro de la estructura organizacional; y debe dotársele de los recursos humanos, financieros y tecnológicos y de capacitación necesarios para realizar su labor adecuadamente.

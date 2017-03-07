@@ -1,1 +1,0 @@
-Artículo 20.—El auditor interno coordinará ante la administración la incorporación de profesionales o técnicos de diferentes disciplinas, funcionarios o no de la institución, para que lleven a cabo labores de su especialidad en apoyo a la auditoría interna

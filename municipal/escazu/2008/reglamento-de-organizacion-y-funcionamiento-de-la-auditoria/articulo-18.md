@@ -1,1 +1,0 @@
-Artículo 18.—El auditor establecerá mecanismos de coordinación necesarios para que el responsable de control del presupuesto mantenga un registro separado del monto asignado y aprobado a la auditoría interna, detallado por objeto del gasto, de manera que se controlen la ejecución y las modificaciones de los recursos presupuestados para esa unidad.
