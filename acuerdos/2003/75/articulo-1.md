@@ -545,6 +545,7 @@ e)Se deroga el campo “Fecha pago intereses” del anexo 18 Plantilla de Carter
 Las entidades que prestan servicios de intermediación y actividades complementarias que deben remitir el Anexo 61 Reporte de Operaciones Internacionales, cuentan con tres meses a partir de la entrada en vigencia de este acuerdo para su cumplimiento.
 Transitorio V.
 La eliminación de la remisión de una copia del Informe de Gobierno Corporativo a Emisores, Sociedades Administradoras de Fondos de Inversión, Puestos de Bolsa, Sociedades Titularizadoras, Fiduciarias, Universalidades y a Bolsas de Valores, rige a partir del 1 de julio del 2017.”)
+(Nota de Sinalevi: Mediante el artículo 1° del acuerdo SGV-222 del 7 de marzo de 2017, se acordó la eliminación del campo “Cuenta de Valores” del “Informe de Operaciones Internacionales”, Anexo 61, que es de atención para los Intermediarios de Valores (Puestos de Bolsa, Bancos del Sistema Bancario Nacional), de acuerdo con el siguiente detalle: Anexo 61: Reporte de operaciones internacionales.docx “)
 SGV-A-75.—Superintendencia General de Valores. Despacho del Superintendente. A las catorce horas del veinticuatro de abril del dos mil tres.
 Considerando:
 I. Que mediante artículo 13 del Acta de la Sesión 81 -99. celebrada el 18 de marzo de 1999. el Consejo Nacional de Supervisión del Sistema Financiero aprobó el Reglamento sobre el Suministro de Información Periódica, Hechos Relevantes y otras Obligaciones de Información con lineamientos sobre los deberes de comunicación de los diferentes participantes en el mercado de valores.
