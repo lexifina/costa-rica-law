@@ -1,0 +1,3 @@
+ARTÍCULO 3.- El cómputo del plazo ampliado en el artículo 4 de la Ley N.° 9242, Ley para la Regulación de las Construcciones Existentes en la Zona Restringida de la Zona Marítimo Terrestre, de 6 de mayo de 2014, y en el párrafo primero del transitorio I de la Ley N.° 9221, Ley Marco para la Declaratoria de Zona Urbana Litoral y su Régimen de Uso y Aprovechamiento Territorial, de 27 de marzo de 2014, iniciará a partir de la entrada en vigencia de la presente ley.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los dieciocho días del mes de noviembre del año dos mil dieciséis.
