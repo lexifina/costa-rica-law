@@ -1,0 +1,1 @@
+Artículo 29.—El auditor establecerá las normas a seguir en materia de admisibilidad de denuncias para ser atendidas por parte de la auditoría interna. Podrá servir como guía para la auditoria interna el manual emitido por el órgano contralor.

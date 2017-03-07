@@ -1,0 +1,1 @@
+Artículo 13. —El personal de la auditoria interna deberá perfeccionar y actualizar sus aptitudes y conocimientos mediante la capacitación continua. Para lo cual, el auditor interno establecerá y actualizará el programa de capacitación para el personal de la auditoria interna, incluyendo dentro del presupuesto anual, los fondos suficientes para cumplir con el plan de capacitación.

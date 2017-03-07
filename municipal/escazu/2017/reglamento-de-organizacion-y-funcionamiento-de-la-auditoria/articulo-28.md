@@ -1,0 +1,1 @@
+Artículo 28.—La auditoría deberá evaluar el procesamiento de la información en la Municipalidad de Escazú, analizar los aspectos de manejo de registros, accesos, custodia y supervisión del trabajo. En esta labor deberá emplear los lineamientos que al respecto emita la Contraloría General de la República y material adicional de considerarlo necesario.

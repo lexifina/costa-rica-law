@@ -1,0 +1,1 @@
+Artículo 31.—Este reglamento rige a partir de su publicación en el Diario Oficial La Gaceta y deroga el anterior reglamento publicado en el diario oficial La Gaceta N° 32 del jueves 14 de febrero del 2008.

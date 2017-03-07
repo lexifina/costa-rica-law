@@ -1,0 +1,1 @@
+Artículo 20.—El auditor interno deberá establecer las pautas principales sobre las relaciones y coordinaciones de los funcionarios de su unidad con los auditados; además, también podrá proveer e intercambiar información con la Contraloría General y otros entes de control conforme al marco jurídico.
