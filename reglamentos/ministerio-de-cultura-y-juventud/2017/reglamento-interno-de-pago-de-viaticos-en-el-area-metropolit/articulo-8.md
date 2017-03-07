@@ -1,0 +1,1 @@
+Artículo 8°—Cuando el funcionario deba utilizar para su desplazamiento el servicio de transporte público, dicho pago se efectuará de acuerdo con las tarifas vigentes, para las rutas oficialmente establecidas y fijadas por el organismo regulador correspondiente.

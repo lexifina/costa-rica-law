@@ -1,0 +1,1 @@
+Artículo 3°—El reconocimiento de viáticos al que se refiere este Reglamento se aplicará únicamente en situaciones excepcionales en que, a criterio razonado de la Administración, se justifique el reconocimiento y pago de estas sumas.

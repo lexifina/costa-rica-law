@@ -1,0 +1,1 @@
+Artículo 10.—En la fórmula de liquidación de gastos de viaje, el funcionario deberá consignar la suma real que se deba cancelar por concepto de servicio de taxi, así como la ruta, el número de placa y la distancia recorrida por éste.

@@ -1,0 +1,1 @@
+Artículo 4°—Para la correcta aplicación y control de las disposiciones dispuestas en este reglamento, la Dirección General del Centro Nacional de la Música, una vez aprobada la actividad elaborará una lista de los funcionarios cuyos servicios se requieran para cubrir la misma, a efecto de mantener control sobre los montos que por concepto de viáticos se deben erogar.

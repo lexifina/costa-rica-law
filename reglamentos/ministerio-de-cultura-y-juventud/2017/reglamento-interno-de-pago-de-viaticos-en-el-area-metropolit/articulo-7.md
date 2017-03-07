@@ -1,0 +1,1 @@
+Artículo 7°—El funcionario que reciba sumas por concepto de adelanto, deberá una vez finalizada la actividad, proceder a realizar la liquidación de viáticos, en los mismos términos que lo establece los artículos 9), 10), 11), 12), 13) y 14) del Reglamento para Gastos de Viaje y Trasporte de Funcionarios Públicos.

@@ -1,0 +1,1 @@
+Artículo 5°—La solicitud para el pago de viáticos la debe realizar el funcionario que vaya a prestar servicios en la actividad, en el formulario dispuesto para tal fin en el Reglamento de Gastos de Viaje y Transporte para los Funcionarios Públicos.
