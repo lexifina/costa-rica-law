@@ -14,3 +14,4 @@ ECA-MC-C01 Criterios para la utilización de laboratorios por los organismos de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-06-19 | la propia norma |
+| 2 | 2017-03-08 | Acuerdo 3 (2017-03-08) |
