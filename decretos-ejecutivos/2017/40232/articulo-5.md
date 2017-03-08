@@ -1,0 +1,1 @@
+Artículo 5º—Se insta a las instituciones autónomas y descentralizadas del Sector Público, instituciones del Sistema Bancario Nacional y empresas constituidas como sociedades anónimas cuyo capital accionario pertenece al Estado, para que participen en las actividades que se realicen.

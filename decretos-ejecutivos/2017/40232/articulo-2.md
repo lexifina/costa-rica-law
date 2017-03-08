@@ -1,0 +1,1 @@
+Artículo 2º—Se concede autorización a todas las personas funcionarias de la Administración Central, para que participen el día 8 de marzo de 2017 a partir de las nueve horas y hasta las trece horas en las actividades de conmemoración del Día Internacional de la Mujer. Lo anterior, sin detrimento de la continuidad en la prestación de servicios.
