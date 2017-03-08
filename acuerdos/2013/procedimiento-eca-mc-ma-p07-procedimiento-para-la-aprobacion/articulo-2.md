@@ -1,2 +1,2 @@
 2 ALCANCE
-Aplica para los organismos de certificación de sistemas de gestión, certificación de producto o certificación de personas que requieran inscribir su marca de certificación en el Registro de Propiedad Industrial.
+Aplica para los organismos de certificación de sistemas de gestión, certificación de producto, organismos validadores y verificados de GEI (Aplica sólo cuando el OVV requiere la declaración o publicación por unidad de producto manufacturado (generado o reducido) o similar) o certificación de personas que requieran inscribir su marca de certificación en el Registro de Propiedad Industrial.
