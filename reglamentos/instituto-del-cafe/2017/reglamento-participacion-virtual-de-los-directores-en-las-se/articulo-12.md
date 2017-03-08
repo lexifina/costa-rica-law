@@ -1,0 +1,1 @@
+Artículo 12.—El acta se pondrá a disposición de los miembros de la Junta Directiva, por el mismo medio telemático utilizado para la convocatoria, y se entregará en la sesión presencial inmediata siguiente para su aprobación e incorporación al libro de actas de sesión de Junta.

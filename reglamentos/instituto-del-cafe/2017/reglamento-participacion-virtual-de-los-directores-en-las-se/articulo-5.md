@@ -1,0 +1,1 @@
+Artículo 5º—Los miembros que ejecuten la participación virtual; devengarán dietas siempre y cuando participen en toda la sesión y cumplan con todas las consideraciones de control interno que garanticen la confiabilidad, simultaneidad, deliberación y el Principio de Colegialidad, así como todos los aspectos contenidos en el ordinal segundo del presente reglamento.
