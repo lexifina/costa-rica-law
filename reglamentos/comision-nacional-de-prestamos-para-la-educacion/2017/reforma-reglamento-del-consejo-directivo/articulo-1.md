@@ -1,0 +1,14 @@
+COMISIÓN NACIONAL DE PRÉSTAMOS
+PARA EDUCACIÓN
+CONSEJO DIRECTIVO
+Con fundamento en el artículo con fundamento en el artículo 3 inciso f) de la Ley de Creación de Conape N° 6041; que impone al Consejo Directivo de la Comisión Nacional de Préstamos para Educación, la obligación de velar por la realización de sus fines y de un modo específico determinar la política, organización y funcionamiento administrativo de la Institución, dispuso adicionar el “Reglamento del Consejo Directivo de la Comisión Nacional de Préstamos para Educación” en los siguientes términos:
+De la participación no presencial a las sesiones
+Artículo 29.—Se habilita la posibilidad de realizar sesiones virtuales o no presenciales, entendiéndose esta como la sesión en la que no se encuentran presentes físicamente uno o más miembros del Consejo Directivo, sino que se encuentran en lugares distintos dentro o fuera del país, a través de cualquier sistema tecnológico que garantice la identidad de la persona cuya presencia es virtual, garantice la autenticidad e integridad de la voluntad y la conversación de lo actuado.
+Artículo 30.—Las sesiones virtuales o no presenciales, tendrán carácter de excepcionalidad, especialidad o urgencia que requieran una atención inmediata y puede realizarse cuando concurran circunstancias extraordinarias y a condición de que los medios empleados permitan una integración plena dentro de la sesión, a efecto de que se mantenga la simultaneidad en la deliberación.
+Artículo 31.—El Consejo Directivo deberá cumplir con los requisitos de quorum para sesionar válidamente. Se deberá respetar en todo la prohibición de superposición horaria.
+Artículo 32.—Los debates y las deliberaciones de los miembros del Consejo Directivo, deben realizarse de forma sucesiva, simultánea, alternativa, bidireccional e inmediata, de modo que todos y cada uno de los presentes y no presentes puedan escuchar las manifestaciones cuando hagan uso de la palabra. Se deberá dejar constancia de las manifestaciones así como del voto, sea este afirmativo o negativo.
+Artículo 33.—Los acuerdos que se adopten se regirán por las normas y principios atinentes a las sesiones presenciales, entre ellos los principios de colegialidad y simultaneidad.
+Artículo 34.—La administración deberá implementar a lo interno, los requerimientos de seguridad, los mecanismos de control y de recepción de manera que sean compatibles entre sí, permitiendo la plena interacción entre los distintos miembros, lo que implica la visibilidad y la audibilidad de las personas presentes en ambos lugares.
+Artículo 35.—Se remunerará la asistencia a sesiones virtuales o no presenciales, siempre que se verifique la asistencia a la totalidad de la sesión”.
+Rige a partir de su publicación.
+Aprobado en sesión del Consejo Directivo 03-01-2017 del lunes 23 de enero del 2017 y ratificado mediante sesión 04-01-2017 del 30 de enero del 2017.
