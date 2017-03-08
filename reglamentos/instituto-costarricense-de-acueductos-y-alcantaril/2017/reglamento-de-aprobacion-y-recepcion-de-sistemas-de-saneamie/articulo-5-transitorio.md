@@ -1,0 +1,1 @@
+Transitorio V. —.La aplicación del presente reglamento se dará a aquellos sistemas aprobados con posterioridad a la vigencia de esta norma. Para los sistemas aprobados previo a la publicación de la presente norma se aplicará el acuerdo N° 2008-068 durante un periodo de un año.

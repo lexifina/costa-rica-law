@@ -1,0 +1,7 @@
+Sección IV
+Del procedimiento para que el AyA asuma la administración, operación y
+mantenimiento de Sistemas de Saneamiento bajo la administración de
+Gobiernos Locales.
+Artículo 19º.- Cuando medie un Acuerdo del Concejo Municipal del Gobierno Local, solicitando traspasar el Sistema de Saneamiento, en donde el AyA sea el operador del Servicio de Agua potable y el Gobierno Local demuestre su incapacidad para la administración y operación del Sistema de Saneamiento, el AyA procederá a elaborar un Informe Técnico Preliminar por medio de la UEN de Recolección y Tratamiento de Sistemas Periféricos, Dirección de Recolección y Tratamiento GAM o la Subgerencia de Gestión de Sistemas Comunales, según corresponda, para que se acaten las correcciones procedentes del Sistema de Saneamiento. En este caso el AyA procederá conforme a los requisitos y procedimientos establecidos en este reglamento.
+Cuando AyA no es el operador del Servicio de Agua potable, se requerirá un Acuerdo del Concejo Municipal del Gobierno Local, en donde acepte traspasar el Sistema de Saneamiento, así como el sistema de agua que administra el Gobierno Local, previo cumplimiento al debido proceso.
+El procedimiento descrito anteriormente, no eximirá de responsabilidad a la Municipalidad respectiva, en caso de omisión, falta de supervisión y control en el cumplimiento de la reglamentación vigente, en materia de disposición de aguas residuales conforme con sus competencias.

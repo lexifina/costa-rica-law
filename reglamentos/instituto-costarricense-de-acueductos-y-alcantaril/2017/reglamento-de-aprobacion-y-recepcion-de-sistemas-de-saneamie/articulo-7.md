@@ -1,0 +1,1 @@
+Artículo 7º.- Órganos responsables. La aplicación y verificación del cumplimiento del presente Reglamento, estará a cargo de la Gerencia General o Subgerencia general y las Direcciones o Áreas que según su competencia le corresponda, conforme con la designación de la Administración Superior.

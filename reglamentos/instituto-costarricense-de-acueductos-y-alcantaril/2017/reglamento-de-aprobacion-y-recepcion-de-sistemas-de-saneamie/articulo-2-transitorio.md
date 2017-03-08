@@ -1,0 +1,1 @@
+Transitorio II. — La Administración Superior ordenará la realización de los estudios respectivos y las adecuaciones necesarias, para la implementación de este procedimiento en forma digital dentro de un plazo no mayor a 3 años.

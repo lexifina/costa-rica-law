@@ -1,0 +1,1 @@
+Artículo 4º.- Normas Técnicas. Para la aprobación de planos constructivos y la recepción de Sistemas de Saneamiento, éstos deben cumplir con las normas técnicas y condiciones de operación que establezca AyA, así como con las disposiciones emitidas en materias de salud y legislación ambiental que tengan relación.

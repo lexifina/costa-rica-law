@@ -1,0 +1,1 @@
+Artículo 3º.- Principio de prestación de servicio conjunto. Para la recepción de Sistemas de Saneamiento de Aguas Residuales, cuya administración y operación del servicio de agua no es brindado por el AyA, se requiere de previo que el Instituto asuma en forma directa, o a través de sus sistemas delegados, la prestación del servicio de agua potable.

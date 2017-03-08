@@ -1,0 +1,27 @@
+CAPÍTULO III
+De los requisitos y procedimientos para asumir la administración, operación y
+mantenimiento de Sistemas de Saneamiento
+Sección I
+De los requisitos para asumir la administración, operación y mantenimiento de
+Sistemas de Saneamiento
+Artículo 12º.- El Instituto podrá asumir la administración, operación y mantenimiento de Sistemas de Saneamiento de aguas residuales tipo ordinario, de Urbanizaciones, Fraccionamientos, Condominios, obras públicas y cualquier tipo de desarrollo constructivo habitacional previo cumplimiento de los siguientes requisitos:
+1. Solicitud escrita de gestión de recepción, por parte del propietario o representante legal del Sistema de Saneamiento. Indicando además, fecha de construcción, puesta en marcha del sistema, el área, el número de plano de catastro y folio real donde conste que los terrenos y servidumbres a traspasar, se encuentran libres de gravámenes y anotaciones que impidan la formalización del traspaso, dirección exacta del sistema de saneamiento y lugar o medio para recibir notificaciones.
+2. El desarrollo urbanístico, fraccionamiento, condominio, obra pública y cualquier tipo de desarrollo constructivo, deberá cumplir con al menos un 75% del total de viviendas del proyecto ocupadas y conectadas al alcantarillado sanitario que transporta las aguas a la Planta de Tratamiento de Aguas Residuales.
+3. Original o copia certificada del último Certificado de Calidad del Agua “CONFORME” emitido por el Ministerio de Salud. Para efectos de recepción del sistema, será requisito que este documento indique cumplimiento continuo de los límites máximos permisibles establecidos en el Reglamento de Vertido y Reuso de Aguas Residuales por un período de al menos doce meses.
+4. Certificación original de personería en caso de persona jurídica o documento legal donde ostente el poder que corresponda, y copia certificada de cédula de identidad en caso de persona física. En caso de ser la Municipalidad la interesada en solicitar el traspaso, deberá presentar acuerdo del Concejo Municipal donde se autoriza iniciar la gestión.
+5. En caso de personas jurídicas, se debe aportar copia certificada del pacto constitutivo.
+6. Copia certificada del permiso de construcción de la Municipalidad, que en caso de no poder suministrarse por una imposibilidad material, se deberá subsanar con una certificación de formalización de obra o de existencia de obra construida, emitida por la Municipalidad correspondiente.
+7. Copia certificada del Permiso de Vertido vigente de la Dirección de Agua del Ministerio del Ambiente y Energía.
+8. Constancia actualizada del pago del Canon Ambiental por Vertidos.
+9. Copia de recibos cancelados del servicio de electricidad correspondiente a los últimos 12 meses.
+10. Indicar número de NIS correspondiente al servicio de agua del inmueble a traspasar.
+11. Copia en formato digital de la bitácora de los últimos seis meses, conforme a los requisitos estipulados en el Reglamento de Vertido y Reuso de Aguas Residuales vigente.
+12. Copia del acuerdo municipal de recepción de áreas públicas, tal que se indique: fecha de aprobación, área total del proyecto, área de juegos infantiles y área de facilidades comunales.
+13. Manuales de los equipos electromecánicos.
+14. Copia de las garantías de los equipos electromecánicos en caso de estar vigentes al momento de presentar el trámite de recepción.
+15. Copia del Permiso Sanitario de Funcionamiento vigente.
+16. Cumplir con todos los aspectos técnicos del presente reglamento y la normativa técnica del AyA; según sea el caso de una Planta de Tratamiento de Aguas Residuales o bien una Estación de Bombeo de Aguas Residuales. Además, se deberá entregar equipos digitales para medición en campo, de pH, Temperatura y Oxígeno Disuelto, además de Conos Imhoff, probeta de 1L y dispositivo para toma de muestras, todos estos equipos deberán estar en buen estado (a ser comprobado por el AyA) y no deberán tener una antigüedad mayor a 24 meses al momento de entregar formalmente las obras al Instituto.
+17. Cumplir con lo establecido en la Norma Técnica para el Diseño y Construcción de Sistemas de Abastecimiento de Agua Potable, de Saneamiento y Sistema Pluvial, así como en el Reglamento de Aprobación de Sistemas de Tratamiento de Aguas Residuales emitido por el Ministerio de Salud y MINAE.
+18. En reactores biológicos de lodos activados en cualquiera de sus modalidades, el sistema de aireación deberá contemplar el uso de burbuja fina (diámetro de burbuja igual o inferior a 2,5 mm con excepción de las plantas de tratamiento de biopelícula sumergida en lecho móvil, para los cuales se permitirá burbuja gruesa.
+19. En caso de cualquier tipo de modificaciones o ampliaciones del Sistema de Saneamiento, se deberá presentar copia de los Planos Constructivos Finales en formato digital, en cumplimiento con lo dispuesto en el presente Reglamento y la normativa técnica del AyA. En este caso deberá indicar la capacidad sanitaria instalada.
+20. En caso de modificaciones realizadas durante o posterior al proceso de construcción que impliquen un cambio en los criterios para diseño sanitario o hidráulico del Sistema de Saneamiento, de previo se deberá tramitar la modificación, ante el Área Funcional de Urbanizaciones, el componente de recolección, tratamiento o disposición final correspondiente.

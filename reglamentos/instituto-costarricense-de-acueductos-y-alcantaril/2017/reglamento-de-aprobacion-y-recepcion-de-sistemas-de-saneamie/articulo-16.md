@@ -1,0 +1,1 @@
+Artículo 16º.- De todos los gastos asumidos al corregir los vicios que no fueron subsanados por el peticionario en el Sistema de Saneamiento, el AyA conservará la posibilidad de acudir a la vía jurisdiccional respectiva para resarcirse de los gastos incurridos.
