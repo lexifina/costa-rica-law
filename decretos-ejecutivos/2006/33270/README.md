@@ -17,3 +17,4 @@ Reglamento Autónomo de Servicio del Ministerio de Cultura, Juventud y Deportes
 | 2 | 2009-07-13 | Decreto Ejecutivo 35592 (2009-07-13) |
 | 3 | 2011-03-15 | Decreto Ejecutivo 36624 (2011-03-15) |
 | 4 | 2015-12-15 | Decreto Ejecutivo 39402 (2015-12-15) |
+| 5 | 2017-03-08 | Decreto Ejecutivo 40369 (2017-03-08) |

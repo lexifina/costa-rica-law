@@ -1,2 +1,2 @@
-Artículo 84.—Previa concesión de un plazo de tres días para hacer valer sus derechos, el Ministerio podrá realizar traslados temporales o permanentes de servidores de una Dirección, Departamento o Unidad a otra, cuando las necesidades del servicio así lo exijan, de conformidad con lo establecido en el Estatuto de Servicio Civil y su Reglamento y con respeto a sus derechos adquiridos, particularmente en cuanto se refiere a la jerarquía, funciones, salario, jornada y ubicación geográfica. Dicha audiencia será conferida por el Departamento de Recursos
-Humanos del Ministerio.
+Artículo 84.—De conformidad con lo establecido en el Estatuto de Servicio Civil y su Reglamento y con respeto de los derechos adquiridos de sus trabajadores(as), el Ministerio podrá realizar los movimientos de personal temporales o permanentes que las necesidades del servicio exijan.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40369 del 8 de marzo del 2017)
