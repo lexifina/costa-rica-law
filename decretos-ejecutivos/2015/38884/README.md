@@ -16,3 +16,4 @@ Precio de referencia del arroz en granza; y el precio máximo y mínimo de todas
 | 1 | 2015-02-27 | la propia norma |
 | 2 | 2015-09-17 | SINALEVI (sin norma nombrada) |
 | 3 | 2016-07-22 | Decreto Ejecutivo 39889 (2016-07-22) |
+| 4 | 2017-03-09 | Decreto Ejecutivo 40310 (2017-03-09) |
