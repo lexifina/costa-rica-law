@@ -1,0 +1,4 @@
+Artículo 25. Terminación irregular. Pondrá fin al tratamiento brindado por PAlME los siguientes supuestos:
+a) Cuando el paciente, no acuda a la clínica autorizada por el PAlME, sin una justificación clara a 3 visitas consecutivas ó 5 discontinuas durante todo el tratamiento.
+En un primer momento, la Comisión tratará de establecer contacto con el paciente con el fin de aclarar las razones, de su no asistencia e instar a retomar el proceso terapéutico; de no obtenerse respuesta por esta vía el médico tratante, presentará el respectivo informe a la Comisión del PAlME y procederá a darle el alta definitiva del programa PAlME.
+b) Deseo del paciente de no continuar siendo atendido en el programa PAlME. Deberá firmar un documento en el que expresamente manifieste su deseo de abandonar el programa y que reteva de toda responsabilidad tanto al médico tratante como a la Comisión. Las firmas de este documento deberán estar debidamente autenticadas.

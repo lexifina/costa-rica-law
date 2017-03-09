@@ -1,0 +1,2 @@
+Artículo 2. Ámbito de Aplicación. El programa PAlME, tendrá un alcance a todos los médicos debidamente incorporados al Colegio de Médicos y Cirujanos de Costa Rica, que se encuentren en el territorio nacional. La sede del programa se ubicará en la sede central del Colegio de Médicos y Cirujanos de Costa Rica, pudiendo extenderse a las sedes regionales según lo determine la Junta de Gobierno del Colegio.
+Todo lo anterior, sin perjuicio de que la atención a los pacientes, se pueda dar en un recinto el cual determinará la Comisión PAlME y la Junta de Gobierno.

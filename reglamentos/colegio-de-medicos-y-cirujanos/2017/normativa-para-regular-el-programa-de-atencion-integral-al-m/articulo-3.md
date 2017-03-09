@@ -1,0 +1,1 @@
+Artículo 3. Conformación del PAlME. El programa estará conformado por una Comisión, la cual será designada por la Junta de Gobierno del Colegio de Médicos y Cirujanos de Costa Rica y un equipo especializado de atención que será nombrado por la Comisión PAlME.
