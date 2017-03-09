@@ -1,2 +1,3 @@
-Artículo 3º—El fondo de Caja Chica será por un monto un millón de colones, que se actualizará en el momento que la Coordinación Administrativa lo estime oportuno, previo a realizar un análisis financiero que demuestre la necesidad de la modificación en dicho fondo y se aplicará en la adquisición de bienes y servicios y adelanto de viáticos de menor cuantía, cuyos límites se definen en el artículo 6º.
-(Así reformado mediante sesión N° 08 del 24 de abril del 2013)
+Artículo 3º—Artículo 3º—El fondo de Caja Chica será por un monto en colones, equivalente a $1.000,00 (mil dólares), moneda de los Estados Unidos de América, que se actualizará con el tipo de cambio vigente cada seis meses y se aplicará en la adquisición de bienes y servicios y adelanto de viáticos de menor cuantía, cuyos límites se definen en el artículo 6°.
+El monto del fondo de “Caja Chica” podrá ser variado por el Director Ejecutivo, a solicitud del Jefe de la Unidad Administrativa, el cual deberá respaldar dicha solicitud con un análisis financiero que demuestre la necesidad y la legalidad de la misma.
+(Así reformado mediante sesión ordinaria N° 007-2017 del 9 de marzo del 2017)

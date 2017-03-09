@@ -15,3 +15,4 @@ Reglamento de Caja Chica
 | --- | --- | --- |
 | 1 | 2010-10-06 | la propia norma |
 | 2 | 2013-04-24 | Reglamento 8 (2013-04-24) |
+| 3 | 2017-03-09 | Reglamento 7 (2017-03-09) |
