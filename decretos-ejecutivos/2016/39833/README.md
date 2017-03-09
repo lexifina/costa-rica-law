@@ -14,3 +14,4 @@ Reglamento para la conformación y operación de los Comités de Vigilancia de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-09-16 | la propia norma |
+| 2 | 2017-03-09 | Decreto Ejecutivo 40357 (2017-03-09) |
