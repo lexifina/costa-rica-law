@@ -1,0 +1,2 @@
+Artículo 34
+El vendedor, si estuviere obligado a entregar documentos relacionados con las mercaderías, deberá entregarlos en el momento, en el lugar y en la forma fijados por el contrato. En caso de entrega anticipada de documentos, el vendedor podrá, hasta el momento fijado para la entrega, subsanar cualquier falta de conformidad de los documentos, si el ejercicio de ese derecho no ocasiona al comprador inconvenientes ni gastos excesivos. No obstante, el comprador conservará el derecho a exigir la indemnización de los daños y perjuicios conforme a la presente Convención.

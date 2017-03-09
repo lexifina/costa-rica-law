@@ -1,0 +1,4 @@
+Artículo 88
+1) La parte que esté obligada a conservar las mercaderías conforme a los artículos 85 u 86 podrá venderlas por cualquier medio apropiado si la otra parte se ha demorado excesivamente en tomar posesión de ellas, en aceptar su devolución o en pagar el precio o los gastos de su conservación, siempre que comunique con antelación razonable a esa otra parte su intención de vender.
+2) Si las mercaderías están expuestas a deterioro rápido, o si su conservación entraña gastos excesivos, la parte que esté obligada a conservarlas conforme a los artículos 85 u 86 deberá adoptar medidas razonables para venderlas. En la medida de lo posible deberá comunicar a la otra parte su intención de vender.
+3) La parte que venda las mercaderías tendrá derecho a retener del producto de la venta una suma igual a los gastos razonables de su conservación y venta. Esa parte deberá abonar el saldo a la otra parte.

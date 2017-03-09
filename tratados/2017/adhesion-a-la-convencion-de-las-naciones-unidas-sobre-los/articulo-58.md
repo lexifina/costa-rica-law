@@ -1,0 +1,4 @@
+Artículo 58
+1) El comprador, si no estuviere obligado a pagar el precio en otro momento determinado, deberá pagarlo cuando el vendedor ponga a su disposición las mercaderías o los correspondientes documentos representativos conforme al contrato y a la presente Convención. El vendedor podrá hacer del pago una condición para la entrega de las mercaderías o los documentos.
+2) Si el contrato implica el transporte de las mercaderías, el vendedor podrá expedirlas estableciendo que las mercaderías o los correspondientes documentos representativos no se pondrán en poder del comprador más que contra el pago del precio.
+3) El comprador no estará obligado a pagar el precio mientras no haya tenido la posibilidad de examinar las mercaderías, a menos que las modalidades de entrega o de pago pactadas por las partes sean incompatibles con esa posibilidad.

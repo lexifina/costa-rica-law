@@ -1,0 +1,2 @@
+Artículo 27
+Salvo disposición expresa en contrario de esta Parte de la presente Convención, si una de las partes hace cualquier notificación, petición u otra comunicación conforme a dicha Parte y por medios adecuados a las circunstancias, las demoras o los errores que puedan producirse en la transmisión de esa comunicación o el hecho de que no llegue a su destino no privarán a esa parte del derecho a invocar tal comunicación.

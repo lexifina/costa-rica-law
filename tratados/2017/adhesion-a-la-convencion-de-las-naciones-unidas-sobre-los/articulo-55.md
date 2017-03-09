@@ -1,0 +1,2 @@
+Artículo 55
+Cuando el contrato haya sido válidamente celebrado pero en él ni expresa ni tácitamente se haya señalado el precio o estipulado un medio para determinarlo, se considerará, salvo indicación en contrario, que las partes han hecho referencia implícitamente al precio generalmente cobrado en el momento de la celebración del contrato por tales mercaderías, vendidas en circunstancias semejantes, en el tráfico mercantil de que se trate.

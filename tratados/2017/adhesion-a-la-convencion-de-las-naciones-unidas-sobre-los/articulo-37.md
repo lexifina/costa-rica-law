@@ -1,0 +1,2 @@
+Artículo 37
+En caso de entrega anticipada, el vendedor podrá, hasta la fecha fijada para la entrega de las mercaderías, bien entregar la parte o cantidad que falte de las mercaderías o entregar otras mercaderías en sustitución de las entregadas que no sean conformes, bien subsanar cualquier falta de conformidad de las mercaderías entregadas, siempre que el ejercicio de ese derecho no ocasione al comprador inconvenientes ni gastos excesivos. No obstante, el comprador conservará el derecho a exigir la indemnización de los daños y perjuicios conforme a la presente Convención.

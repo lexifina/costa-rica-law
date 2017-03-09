@@ -1,0 +1,2 @@
+Artículo 75
+Si se resuelve el contrato y si, de manera razonable y dentro de un plazo razonable después de la resolución, el comprador procede a una compra de reemplazo o el vendedor a una venta de reemplazo, la parte que exija la indemnización podrá obtener la diferencia entre el precio del contrato y el precio estipulado en la operación de reemplazo, así como cualesquiera otros daños y perjuicios exigibles conforme al artículo 74.

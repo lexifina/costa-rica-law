@@ -1,0 +1,3 @@
+Artículo 100
+1) La presente Convención se aplicará a la formación del contrato sólo cuando Ia propuesta de celebración del contrato se haga en la fecha de entrada en vigor de la Convención respecto de los Estados Contratantes a que se refiere el apartado a) del párrafo 1) del artículo 1 o respecto del Estado Contratante a que se refiere el apartado b) del párrafo 1) del artículo 1, o después de esa fecha.
+2) La presente Convención se aplicará a los contratos celebrados en la fecha de entrada en vigor de la presente Convención respecto de los Estados Contratantes a que se refiere el apartado a) del párrafo 1) del artículo 1 o respecto del Estado Contratante a que se refiere el apartado b) del párrafo 1) del artículo 1, o después de esa fecha.

@@ -1,0 +1,3 @@
+Artículo 92
+1) Todo Estado Contratante podrá declarar en el momento de la firma, la ratificación, la aceptación, la aprobación o la adhesión que no quedará obligado por la Parte II de la presente Convención o que no quedará obligado por la Parte III de la presente Convención.
+2) Todo Estado Contratante que haga una declaración conforme al párrafo precedente respecto de la Parte II o de la Parte III de la presente Convención no será considerado Estado Contratante a los efectos del párrafo 1) del artículo 1 de la presente Convención respecto de las materias que se rijan por la Parte a la que se aplique la declaración.

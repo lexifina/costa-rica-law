@@ -1,0 +1,4 @@
+Artículo 69
+1) En los casos no comprendidos en los artículos 67 y 68, el riesgo se transmitirá al comprador cuando éste se haga cargo de las mercaderías o, si no lo hace a su debido tiempo, desde el momento en que las mercaderías se pongan a su disposición e incurra en incumplimiento del contrato al rehusar su recepción.
+2) No obstante, si el comprador estuviere obligado a hacerse cargo de las mercaderías en un lugar distinto de un establecimiento del vendedor, el riesgo se transmitirá cuando deba efectuarse la entrega y el comprador tenga conocimiento de que las mercaderías están a su disposición en ese lugar.
+3) Si el contrato versa sobre mercaderías aún sin identificar, no se considerará que las mercaderías se han puesto a disposición del comprador hasta que estén claramente identificadas a los efectos del contrato.

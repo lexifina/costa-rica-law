@@ -1,0 +1,3 @@
+Artículo 36
+1) El vendedor será responsable, conforme al contrato y a la presente Convención, de toda falta de conformidad que exista en el momento de la transmisión del riesgo al comprador, aun cuando esa falta sólo sea manifiesta después de ese momento.
+2) El vendedor también será responsable de toda falta de conformidad ocurrida después del momento indicado en el párrafo precedente y que sea imputable al incumplimiento de cualquiera de sus obligaciones, incluido el incumplimiento de cualquier garantía de que, durante determinado período, las mercaderías seguirán siendo aptas para su uso ordinario o para un uso especial o conservarán las cualidades y características especificadas.

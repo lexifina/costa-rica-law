@@ -1,0 +1,3 @@
+Sección II. Indemnización de daños y perjuicios
+Artículo 74
+La indemnización de daños y perjuicios por el incumplimiento del contrato en que haya incurrido una de las partes comprenderá el valor de la pérdida sufrida y el de la ganancia dejada de obtener por la otra parte como consecuencia del incumplimiento. Esa indemnización no podrá exceder de la pérdida que la parte que haya incurrido en incumplimiento hubiera previsto o debiera haber previsto en el momento de la celebración del contrato, tomando en consideración los hechos de que tuvo o debió haber tenido conocimiento en ese momento, como consecuencia posible del incumplimiento del contrato.

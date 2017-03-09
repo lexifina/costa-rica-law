@@ -1,0 +1,4 @@
+Artículo 46
+1) El comprador podrá exigir al vendedor el cumplimiento de sus obligaciones, a menos que haya ejercitado un derecho o acción incompatible con esa exigencia.
+2) Si las mercaderías no fueren conformes al contrato, el comprador podrá exigir la entrega de otras mercaderías en sustitución de aquéllas sólo si la falta de conformidad constituye un incumplimiento esencial del contrato y la petición de sustitución de las mercaderías se formula al hacer la comunicación a que se refiere el artículo 39 o dentro de un plazo razonable a partir de ese momento.
+3) Si las mercaderías no fueren conformes al contrato, el comprador podrá exigir al vendedor que las repare para subsanar la falta de conformidad, a menos que esto no sea razonable habida cuenta de todas las circunstancias. La petición de que se reparen las mercaderías deberá formularse al hacer la comunicación a que se refiere el artículo 39 o dentro de un plazo razonable a partir de ese momento.

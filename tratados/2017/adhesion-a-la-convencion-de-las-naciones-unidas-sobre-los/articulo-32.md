@@ -1,0 +1,4 @@
+Artículo 32
+1) Si el vendedor, conforme al contrato o a la presente Convención, pusiere las mercaderías en poder de un porteador y éstas no estuvieren claramente identificadas a los efectos del contrato mediante señales en ellas, mediante los documentos de expedición o de otro modo, el vendedor deberá enviar al comprador un aviso de expedición en el que se especifiquen las mercaderías.
+2) El vendedor, si estuviere obligado a disponer el transporte de las mercaderías, deberá concertar los contratos necesarios para que éste se efectúe hasta el lugar señalado por los medios de transporte adecuados a las circunstancias y en las condiciones usuales para tal transporte.
+3) El vendedor, si no estuviere obligado a contratar un seguro de transporte, deberá proporcionar al comprador, a petición de éste, toda la información disponible que sea necesaria para contratar ese seguro.

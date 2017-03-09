@@ -1,0 +1,4 @@
+Artículo 8
+1) A los efectos de la presente Convención, las declaraciones y otros actos de una parte deberán interpretarse conforme a su intención cuando la otra parte haya conocido o no haya podido ignorar cuál era esa intención.
+2) Si el párrafo precedente no fuere aplicable, las declaraciones y otros actos de una parte deberán interpretarse conforme al sentido que les habría dado en igual situación una persona razonable de la misma condición que la otra parte.
+3) Para determinar la intención de una parte o el sentido que habría dado una persona razonable deberán tenerse debidamente en cuenta todas las circunstancias pertinentes del caso, en particular las negociaciones, cualesquiera prácticas que las partes hubieran establecido entre ellas, los usos y el comportamiento ulterior de las partes.

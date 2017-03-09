@@ -1,0 +1,3 @@
+Artículo 21
+1) La aceptación tardía surtirá, sin embargo, efecto como aceptación si el oferente, sin demora, informa verbalmente de ello al destinatario o le envía una comunicación en tal sentido.
+2) Si la carta u otra comunicación por escrito que contenga una aceptación tardía indica que ha sido enviada en circunstancias tales que si su transmisión hubiera sido normal habría llegado al oferente en el plazo debido, la aceptación tardía surtirá efecto como aceptación a menos que, sin demora, el oferente informe verbalmente al destinatario de que considera su oferta caducada o le envíe una comunicación en tal sentido.
