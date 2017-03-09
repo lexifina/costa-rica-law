@@ -1,2 +1,0 @@
-Artículo 4º—Cantidad. En el Registro de Bienes Inmuebles y en el Catastro Nacional habrá apartados numerados en forma consecutiva para el servicio de los usuarios que lo requieran. En la Oficina Regional de Alajuela se utilizará un sistema similar para los usuarios.
-El número de casilleros compete a la Dirección de Servicios Regístrales, para lo cual valorará, entre otros, el número de solicitudes existentes y el espacio físico institucional.
