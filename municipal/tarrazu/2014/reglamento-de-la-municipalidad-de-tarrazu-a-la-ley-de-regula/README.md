@@ -14,3 +14,4 @@ Reglamento de la Municipalidad de Tarrazú a la Ley de Regulación y Comercializ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-03-14 | la propia norma |
+| 2 | 2017-03-09 | Reglamento municipal 45 (2017-03-09) |

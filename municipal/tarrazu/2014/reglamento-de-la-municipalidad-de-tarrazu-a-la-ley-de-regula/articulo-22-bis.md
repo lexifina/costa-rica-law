@@ -1,0 +1,4 @@
+Artículo 22 bis.—Regulación. El acuerdo que autoriza una licencia temporal deberá indicar la categoría, ya sea la modalidad de B1 o B2, estas licencias deberán cumplir con las mismas prohibiciones establecidas en la Ley 9047 para la explotación de la categoría que fue otorgada.
+El horario de explotación de la licencia será conforme a la categoría otorgada, según los horarios establecidos en la Ley 9047. Lo que no se encuentre regulado mediante el presente reglamento o la Ley podrá ser regulado en el acuerdo de autorización.
+La vigencia de las licencias temporales estará definida por el término que se establezca en el respectivo acuerdo municipal. De comprobar la administración municipal alguna infracción, quedará facultada, en forma inmediata, a cancelar la licencia, clausurar el establecimiento donde se explota y sancionar tal conducta conforme al artículo 14 de la Ley.
+(Así adicionado mediante sesión ordinaria N° 045-2017 del 9 de marzo del 2017)
