@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE DESAMPARADOS
+La Municipalidad de Desamparados comunica que al no haberse presentado objeciones ni observaciones, mediante el acuerdo N° 3 de la sesión N° 60-2017 celebrada por el Concejo Municipal de Desamparados el día 07 de febrero de 2017, se aprobaron las siguientes modificaciones reglamentarias, para que entren a regir a partir de la presente publicación:
+La modificación del artículo 16 del “Reglamento para la Administración y Operación de los Sistemas de Estacionamiento Autorizado” de la Municipalidad de Desamparados, publicado en La Gaceta N° 76 del 22 de abril de 1996, para que se lea de la siguiente manera:
+“El personal del Área de Estacionómetros o Control Vial, por medio de sus inspectores, y los Policías Municipales, tendrán a cargo la vigilancia de este Reglamento, por lo que deberán velar por su correcta aplicación”.
