@@ -1,4 +1,2 @@
-CAPÍTULO V
-Procedimientos ordinarios de contratación
-Artículo 30.—Procedimientos ordinarios de contratación. Los procedimientos ordinarios de contratación administrativa son el medio idóneo para que la Operadora adquiera los bienes y servicios que requiere para su normal operación.
-Acorde con la normativa vigente y según el monto del concurso, se clasifican en licitación abreviada y licitación pública.
+Artículo 30-Contratación directa de escasa cuantía. La contratación directa de escasa cuantía es un procedimiento contractual de excepción que permite a la Operadora adquirir bienes y/o servicios por montos iguales o menores al límite establecido por la legislación nacional para este tipo de trámite, o bien para contratar aquellas actividades que por su naturaleza y circunstancias no están sujetas a concurso público.
+Este es un proceso que utilizará el Registro de Proveedores como el medio idóneo para invitar a posibles oferentes y garantizar así una amplia participación.

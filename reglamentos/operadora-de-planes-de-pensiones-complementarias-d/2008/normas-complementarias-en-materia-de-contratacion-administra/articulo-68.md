@@ -1,2 +1,1 @@
-Artículo 68.—Debido proceso. Recibida la solicitud, la Sección Administrativa iniciará el trámite del debido proceso, de conformidad con la normativa aplicable de la Ley General de Administración Pública y de los procedimientos internos.
-(Así reformado en sesión N° 459 del 16 de abril de 2015)
+Artículo 68-Resolución de diferendos. En caso de que se presenten diferencias de criterios en algún tópico propio de la Contratación Administrativa entre las diferentes dependencias involucradas en un procedimiento de contratación, prevalecerá el criterio de la dependencia especialista según la temática del diferendo. En caso de permanecer la diferencia, el asunto será resuelto en forma definitiva por el Comisión de Licitaciones bajo las reglas de la sana crítica.

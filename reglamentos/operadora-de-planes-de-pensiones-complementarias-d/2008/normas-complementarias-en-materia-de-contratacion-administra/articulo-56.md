@@ -1,1 +1,1 @@
-Artículo 56.—Comunicación de la resolución. Dada la resolución respectiva por el órgano competente, se enviará a la Sección Administrativa para que comunique la respuesta a los recurrentes dentro de los plazos establecidos.
+Artículo 56-Otras audiencias. En las audiencias finales y las especiales debe seguirse el mismo procedimiento de la audiencia inicial.

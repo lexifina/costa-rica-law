@@ -1,3 +1,3 @@
-Artículo 18.—Entrega de documentación. Los interesados en inscribirse en el Registro de Proveedores deberán retirar un formulario suministrado por la Sección Administrativa. Una vez completado se podrá enviar a ésta vía correo electrónico o entregar por fax o personalmente.
-Junto con la solicitud o en un plazo máximo de tres días posteriores a su presentación, deberán anexarse los documentos de respaldo y la información complementaria que se solicita.
-La documentación que se presente para incorporarse al Registro de Proveedores podrá ser utilizada en cualquiera de los procesos de contratación.
+Artículo 18-Excepciones. Al trabajador que incurra en esta mala práctica de fragmentar se le aplicará el procedimiento de sanción regulado en las presentes normas.
+No se considerará fragmentación ilícita cuando las acciones ejecutadas estén contempladas en los supuestos establecidos en el artículo 13 del Reglamento a la Ley de Contratación Administrativa.
+En caso de duda será la Dirección Jurídica la encargada de dictaminar, ante una solicitud de la Sección Administrativa, si en determinado procedimiento de contratación se configuran las causales de la fragmentación ilícita.

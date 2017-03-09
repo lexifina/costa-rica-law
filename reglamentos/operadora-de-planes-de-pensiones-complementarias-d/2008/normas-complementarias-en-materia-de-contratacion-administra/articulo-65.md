@@ -1,1 +1,4 @@
-Artículo 65.—Otras audiencias. En las audiencias finales y las especiales debe seguirse el mismo procedimiento de la audiencia inicial.
+CAPÍTULO XI
+Sanciones a colaboradores(as) o funcionarios(as)
+Artículo 65-Deber de supervisión. Los trabajadores(as) o funcionarios(as) de la Operadora que tengan los insumos y la capacitación necesaria para desempeñar una labor de supervisión de las contrataciones en forma eficiente serán responsables en la medida en que pueda individualizarse su responsabilidad por las consecuencias provocadas a la Operadora en razón de los incumplimientos de los contratistas, si pudiendo prever o denunciar a tiempo las transgresiones contractuales no lo hicieran y no solicitaran las sanciones, ejecuciones, multas o rescisión o resolución contractual respectivas.
+Además de la responsabilidad administrativa, podrán ser responsables laboral, penal y civilmente según corresponda, si se logra demostrar su culpa grave o dolo en la actuación u omisión.

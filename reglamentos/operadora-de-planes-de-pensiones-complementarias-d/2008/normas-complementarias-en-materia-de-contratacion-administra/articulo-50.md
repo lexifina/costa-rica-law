@@ -1,2 +1,2 @@
-Artículo 50.—Debido proceso. En caso de que proceda la ejecución de las garantías se seguirá el debido proceso correspondiente, de conformidad con la normativa aplicable de la Ley General de la Administración Pública y de los procedimientos internos respectivos.
-(Así reformado en sesión N° 459 del 16 de abril de 2015)
+Artículo 50-Criterio técnico y legal. Vencida la audiencia concedida y/o recibidos los argumentos del adjudicatario recurrido, la Sección Administrativa los enviará a las Áreas Usuarias, Técnicas y a la Dirección Jurídica, cuando corresponda, para que se pronuncien en un plazo de cinco días hábiles.
+Recibidos los criterios respectivos, la Sección Administrativa contará con un plazo máximo de tres días hábiles siguientes a la recepción de la documentación, para emitir su recomendación y elevarla al órgano competente para resolver.

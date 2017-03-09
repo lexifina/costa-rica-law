@@ -1,3 +1,1 @@
-Artículo 52.—Recurso de objeción al cartel en licitaciones públicas. En el caso del recurso de objeción al cartel de licitaciones públicas, recibida la notificación de audiencia especial por parte de la Contraloría General de la República, la Sección Administrativa solicitará el mismo día el pronunciamiento de las Áreas Usuarias y Técnicas, cuando corresponda, y de la Consultoría Jurídica, quienes en un plazo de dos días hábiles deberán enviar sus descargos o el allanamiento respectivo, si este procede, a la Sección Administrativa.
-Corresponde a la Sección Administrativa integrar y enviar la respuesta a la Contraloría General de la República dentro del plazo otorgado para contestar la audiencia.
-(Así reformado en sesión N° 459 del 16 de abril de 2015)
+Artículo 52-Comunicación. Corresponde a la Sección Administrativa notificar la resolución del recurso de revocatoria dentro de los tres días hábiles siguientes a su recibo.

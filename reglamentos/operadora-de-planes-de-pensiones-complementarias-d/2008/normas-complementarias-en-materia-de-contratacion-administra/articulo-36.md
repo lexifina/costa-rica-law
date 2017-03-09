@@ -1,2 +1,3 @@
-Artículo 36.—Evidencia en el expediente administrativo. Una vez aportada la información indicada en el artículo anterior, la Sección Administrativa dejará evidencia de la resolución de prorrogar, en el expediente correspondiente.
-(Así reformado mediante seisón ordinaria N° 402 del 14 de marzo del 2013)
+CAPÍTULO VII
+Garantías
+Artículo 36-Garantías de participación y cumplimiento. Las garantías de participación y de cumplimiento serán opcionales únicamente en los casos de contrataciones directas y se solicitarán obligatoriamente en las licitaciones abreviadas y públicas.

@@ -1,1 +1,1 @@
-Artículo 48.—Estado de las garantías. Será responsabilidad de la Sección Administrativa velar por el estado de las garantías, especialmente en lo referente a su vigencia y monto, así como ordenar la devolución o ejecución en los casos que proceda conforme a lo estipulado en las presentes normas.
+Artículo 48-Recurso de revocatoria. En los concursos en cuyos procedimientos proceda la interposición del recurso de revocatoria, el recurrente deberá presentarse ante la Sección Administrativa dentro de los plazos establecidos por ley.

@@ -1,2 +1,1 @@
-Artículo 47.—Devolución de garantías. La devolución de las garantías de participación se hará previa autorización de la Jefatura del Departamento de Administración y Finanzas, a los oferentes no adjudicados y al adjudicatario cuando este haya rendido la garantía de cumplimiento respectiva.
-Para el caso de las garantías de cumplimiento la devolución se hará previa autorización del Comité de Licitaciones.
+Artículo 47-Comunicación de la resolución. Dada la resolución respectiva por el órgano competente, se enviará a la Sección Administrativa para que comunique la respuesta a los recurrentes dentro de los plazos establecidos.

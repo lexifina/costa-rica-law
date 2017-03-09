@@ -1,3 +1,1 @@
-CAPÍTULO VIII
-Garantías
-Artículo 45.—Garantías de participación y cumplimiento. Las garantías de participación y de cumplimiento serán opcionales únicamente en los casos de contrataciones directas y se solicitarán obligatoriamente en las licitaciones abreviadas y públicas.
+Artículo 45-Recurso de objeción procedente. Si el recurso es declarado con lugar, la Sección Administrativa, en coordinación con la unidad usuaria, se encargará de efectuar las modificaciones al cartel y comunicarlas o publicarlas por los mismos medios utilizados para invitar.

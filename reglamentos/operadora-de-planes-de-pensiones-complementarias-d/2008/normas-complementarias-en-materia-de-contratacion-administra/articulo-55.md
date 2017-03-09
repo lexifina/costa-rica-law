@@ -1,4 +1,3 @@
-Artículo 55.—Recurso de revocatoria en contrataciones directas de escasa cuantía. Los casos de recursos de revocatoria en Contrataciones Directas de Escasa Cuantía, serán resueltos por la Sección Administrativa en coordinación con las Áreas Usuarias y Técnicas, cuando corresponda.
-Cuando dicho recurso sea planteado por razones de interpretación jurídica, la Consultoría Jurídica emitirá su dictamen.
-En tales casos, la Sección Administrativa deberá realizar la solicitud correspondiente.
-(Así reformado en sesión N° 459 del 16 de abril de 2015)
+Artículo 55-Respuesta a la audiencia inicial. Una vez notificada la audiencia inicial concedida por la Contraloría General de la República a la Operadora, la Sección Administrativa deberá, dentro del día hábil siguiente, convocar a las Áreas Usuarias y Técnicas, cuando corresponda, y a la Dirección Jurídica para que se pronuncien en un plazo no mayor a tres días hábiles.
+La Sección Administrativa debe aportar todos los documentos adicionales existentes en poder de la Contraloría General de la República, con el objetivo de que éstos sean analizados por las áreas involucradas antes de su respuesta.
+Corresponderá a la Sección Administrativa integrar una sola respuesta y remitirla al ente contralor dentro del plazo otorgado para contestar la audiencia.

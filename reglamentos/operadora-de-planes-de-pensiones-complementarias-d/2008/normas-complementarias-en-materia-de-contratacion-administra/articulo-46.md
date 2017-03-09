@@ -1,2 +1,3 @@
-Artículo 46.—Recepción de garantías. Corresponde a la Sección Administrativa la recepción de las garantías de participación y de cumplimiento, llevando un adecuado control de cuál es la unidad usuaria responsable.
-El registro de las garantías será responsabilidad de la Sección Administrativa y su custodia de la Tesorería de la Operadora.
+Artículo 46-Recurso de revocatoria en contrataciones directas de escasa cuantía. Los casos de recursos de revocatoria en Contrataciones Directas de Escasa Cuantía, serán resueltos por la Sección Administrativa en coordinación con las Áreas Usuarias y Técnicas, cuando corresponda.
+Cuando dicho recurso sea planteado por razones de interpretación jurídica, la Dirección Jurídica emitirá su dictamen.
+En tales casos, la Sección Administrativa deberá realizar la solicitud correspondiente.

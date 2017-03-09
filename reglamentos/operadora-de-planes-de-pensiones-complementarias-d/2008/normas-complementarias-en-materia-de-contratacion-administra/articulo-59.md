@@ -1,3 +1,1 @@
-Artículo 59.—Criterio técnico y legal. Vencida la audiencia concedida y/o recibidos los argumentos del adjudicatario recurrido, la Sección Administrativa los enviará a las Áreas Usuarias, Técnicas y a la Consultoría Jurídica, cuando corresponda, para que se pronuncien en un plazo de cinco días hábiles.
-Recibidos los criterios respectivos, la Sección Administrativa contará con un plazo máximo de tres días hábiles siguientes a la recepción de la documentación, para emitir su recomendación y elevarla al órgano competente para resolver.
-(Así reformado en sesión N° 459 del 16 de abril de 2015)
+Artículo 59-Debido proceso. Recibida la solicitud, la Sección Administrativa iniciará el trámite del debido proceso, de conformidad con la normativa aplicable de la Ley General de Administración Pública y de los procedimientos internos.

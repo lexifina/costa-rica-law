@@ -1,1 +1,1 @@
-Artículo 61.—Comunicación. Corresponde a la Sección Administrativa notificar la resolución del recurso de revocatoria dentro de los tres días hábiles siguientes a su recibo.
+Artículo 61-Resolución final. Recibidos el criterio del administrador del contrato u órgano fiscalizador y el de la Dirección Jurídica, la Sección Administrativa remitirá, en el plazo máximo de cinco días hábiles, su recomendación a la Gerencia General para que emita la resolución final.
