@@ -1,0 +1,1 @@
+Artículo 11.—La DPRR, para el trámite de pago de la factura, deberá adjuntar a la misma la Boleta de Donación de Productos Alimenticios, con los datos de la actividad, número de participantes, organización ejecutora y la firma y sello del responsable de esa organización, así como el visto bueno del funcionario de la Dirección destacado en la región.

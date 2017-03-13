@@ -1,0 +1,1 @@
+Artículo 8º—Talleres, Capacitaciones, Seminarios organizados por el ICODER o por las organizaciones locales. Estas actividades deben ser tramitadas por la Proveeduría si exceden del límite superior establecido en el artículo no. 2. Si no exceden de ese monto, pueden ser tramitadas

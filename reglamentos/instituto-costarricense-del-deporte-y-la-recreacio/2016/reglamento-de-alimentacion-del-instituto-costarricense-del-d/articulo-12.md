@@ -1,0 +1,1 @@
+Artículo 12.—El trámite de la factura por la DPRR requerirá del sello de servicio comprobado debidamente llenado y firmado por el funcionario destacado en las regiones, con el visto bueno del Director de Promoción Recreativa Regional.

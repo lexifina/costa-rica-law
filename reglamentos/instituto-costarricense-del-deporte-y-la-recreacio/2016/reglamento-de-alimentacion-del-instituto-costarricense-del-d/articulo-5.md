@@ -1,0 +1,1 @@
+Artículo 5º—De la asignación presupuestaria de recursos para los gastos de alimentación. El presupuesto dentro del cual podrá tomarse fondos para las actividades que desarrollen Comités Cantonales y otras organizaciones locales serán los que se han aprobado previo en el programa presupuestario de la DPRR.

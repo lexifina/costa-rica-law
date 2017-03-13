@@ -1,0 +1,1 @@
+Artículo 10.—La aprobación del servicio por la DPRR requiere de la solicitud formal del CCDR o de la organización local, así como de un oficio del funcionario destacado en la región, indicando que la actividad cumple con la meta del plan operativo institucional de esa región y tiene su aprobación.
