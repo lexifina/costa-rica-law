@@ -15,3 +15,4 @@ Reglamento para el régimen de puestos de confianza para el Concejo Municipal de
 | --- | --- | --- |
 | 1 | 2011-12-02 | la propia norma |
 | 2 | 2013-03-20 | Reglamento municipal 12 (2013-03-20) |
+| 3 | 2017-03-13 | Reglamento municipal 11 (2017-03-13) |
