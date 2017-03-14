@@ -665,12 +665,15 @@ CARACTERÍSTICAS PERSONALES
 Ser observador y con iniciativa motivada por la necesidad de realizar de manera excelente el trabajo. Debe mantener discreción respecto de los asuntos que se le encomiendan o de los que tiene conocimiento. Habilidad para resolver situaciones imprevistas, no poseer antecedentes penales o problemas psicológicos. Requiere habilidad para tratar en forma responsable, cortés y satisfactoria con el público y funcionarios en general, capacidad de liderazgo, buena comunicación verbal y escrita, habilidad analítica y toma de decisiones. Buena presentación personal y condición física.
 CONOCIMIENTOS BÁSICOS
 Capacitación en el campo de la seguridad, así como en relaciones interpersonales y realidad institucional.
-CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
-Bachillerato en una carrera universitaria atinente al área de actividad
-Experiencia mínima de dos años en labores relacionados con el área de actividad. Experiencia mínima de seis meses en el manejo y supervisión de grupos de seguridad.
-Incorporación al colegio profesional respectivo.
-Permiso de portación de armas.
+(**)CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
+Bachillerato en una carrera universitaria atinente al área de actividad.
+Experiencia mínima de dos años en labores relacionados con el área de actividad.
+Experiencia mínima de seis meses en el manejo y supervisión de grupos de seguridad.
 Curso de protección de dignatarios.
+Requisito legal:
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+Permiso de portación de armas.
+(**) (Así reformado el punto “Conocimientos y experiencia requerida, en sesión N°158 del 14 de marzo de 2017)
 (*)(Así reformada la categoría de puesto Subjefe de Seguridad anterior mediante acuerdo N° 32-11-12 tomado en sesión ordinaria N° 078-2011 del 13 de octubre del 2011)
 JEFE TÉCNICO
 Objetivo del trabajo: Coadyuvar al eficiente desarrollo de los procesos de trabajo de las diferentes áreas mediante la ejecución de labores de planeación, dirección, supervisión orientadas a la coordinación de una unidad administrativa compuesta por funcionarios que realizan labores técnicas u operativas rutinarias de la Asamblea Legislativa.
@@ -863,16 +866,18 @@ Esta clase de puesto está integrada por dos niveles, el nivel A y el B, la dife
 Nivel A
 Bachillerato en una carrera universitaria atinente a su área de actividad.
 Requisito legal:
-Incorporación al colegio respectivo.
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+(Así reformado el párrafo anterior en sesión N° 158 del 14 de marzo de 2017)
 Nivel B
 Bachillerato en una carrera universitaria atinente a su área de actividad.
 Experiencia mínima de dos años en labores relacionadas con el área de actividad, a nivel de bachiller universitario.
 Requisito legal:
-Incorporación al colegio respectivo.
-O
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+(Así reformado el párrafo anterior en sesión N° 158 del 14 de marzo de 2017)
 Formación profesional al nivel de licenciatura o superior en una carrera universitaria atinente a su área de actividad.
 Requisito legal:
-Incorporación al colegio respectivo.
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+(Así reformado el párrafo anterior en sesión N° 158 del 14 de marzo de 2017)
 PROFESIONAL 2 (Niveles A, B y C)
 Niveles A, B y C
 Objetivo del trabajo: Comprometerse con el cumplimiento y desarrollo de los planes y programas del proceso de trabajo en el que se ubican, mediante la ejecución de labores profesionales complejas y de alto impacto en la labor sustantiva de dicha unidad administrativa, orientadas a brindar información, asesorar, ejecutar y controlar las diferentes actividades; para ello requiere la aplicación de principios teóricos y prácticos propios de una disciplina atinente al cargo y adquiridos en una institución de enseñanza superior, así como de la experiencia profesional que promueve la adquisición de herramientas y habilidades para el mejor aprovechamiento de los conocimientos profesionales.
@@ -912,12 +917,14 @@ Nivel A
 Licenciatura o título superior en una carrera universitaria atinente a su área de actividad.
 Dos años de experiencia a nivel profesional y posterior a la obtención del grado de licenciatura, en labores relacionadas con el cargo o en el área profesional.
 Requisito legal:
-Incorporación al colegio respectivo.
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+(Así reformado el párrafo anterior en sesión N° 158 del 14 de marzo de 2017)
 Nivel B
 Licenciatura o título superior en una carrera universitaria atinente a su área de actividad.
 Cinco años de experiencia a nivel profesional y posterior a la obtención del grado de licenciatura, en labores relacionadas con el cargo o en el área profesional.
 Requisito legal:
-Incorporación al colegio respectivo.
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+(Así reformado el párrafo anterior en sesión N° 158 del 14 de marzo de 2017)
 Nivel C
 Nivel de clase transitorio con objetivo específico (ver el detalle en la descripción de la clase).
 Licenciatura o título superior en una carrera universitaria atinente a su área de actividad.
@@ -957,7 +964,8 @@ Actualización en su profesión
 CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
 Licenciado en medicina y cirugía.
 Requisito Legal:
-Incorporado al Colegio de Médicos y Cirujanos.
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+(Así reformado el párrafo anterior en sesión N° 158 del 14 de marzo de 2017)
 (*) (Así adicionada la clase de puesto anterior por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
 MÉDICO G2
 Objetivo del trabajo: Coadyuvar en la prevención y el mantenimiento de la salud de los funcionarios activos y pensionados de la Asamblea Legislativa mediante el diagnóstico, la asistencia, la prescripción y la administración de tratamiento médico en diferentes especialidades.
@@ -997,7 +1005,8 @@ CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
 Médico especialista.
 Dos años de experiencia en la rama de medicina.
 Requisito legal:
-Incorporado al Colegio de Médicos y Cirujanos.
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+(Así reformado el párrafo anterior en sesión N° 158 del 14 de marzo de 2017)
 ODONTÓLOGO
 Objetivo del trabajo: Prevenir problemas y brindar mantenimiento a la salud dental de los funcionarios de la Asamblea Legislativa, mediante la ejecución de labores de exámenes, tratamiento de enfermedades de los trastornos bucodentales.
 Ubicación: Servicios de Salud.
@@ -1035,7 +1044,8 @@ CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
 Cirujano Dentista.
 Cuatro años de experiencia en labores relacionadas con su especialidad.
 Requisito legal:
-Incorporado al colegio profesional respectivo.
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+(Así reformado el párrafo anterior en sesión N° 158 del 14 de marzo de 2017)
 ASESOR
 Objetivo del trabajo: Asesorar a las jefaturas departamentales y a las altas jerarquías institucionales en la ejecución de tareas de un alto grado de dificultad y responsabilidad propias del área de especialidad.
 Ubicación: El puesto existente con esta clasificación se encuentra ubicado en el Departamento de Servicios Técnicos.
@@ -1117,13 +1127,14 @@ Para el desempeño de los cargos ubicados en esta clase de puesto se requiere de
 CONOCIMIENTOS BÁSICOS
 Los relacionados con la utilización de los equipos y los programas que para la realización de sus funciones se requieren.
 Los relacionados con la actualización y la capacitación en habilidades directamente vinculadas al campo actividad como la redacción de informes, con procesos y procedimientos institucionales, actualización de conocimientos relacionados con el área profesional y laboral, etc., así como los que estimulen las relaciones interpersonales y repercutan en el manejo, trabajo en equipos y materia gerencial.
-CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
+(*) CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
 Formación profesional a nivel de bachiller universitario o título superior en una carrera universitaria atinente a su área de actividad.
-Experiencia mínima de tres años en el manejo y supervisión de personal.
-Experiencia mínima de tres años en labores relacionadas con el cargo a nivel de bachiller y desarrolladas en la Asamblea Legislativa o experiencia mínima de cinco años en labores relacionadas con el área de actividad, a nivel de bachillerato.
+Experiencia profesional mínima de CUATRO AÑOS en labores relacionadas con el cargo a nivel de bachiller.
+Experiencia mínima de UN AÑO en el manejo y supervisión de personal.
 Requisito legal:
-Incorporación al colegio respectivo.
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
 Permiso vigente de portación de armas.
+(*) (Así reformado el punto “Conocimientos y experiencia requerida en sesión N° 158 del 14 de marzo de 2017)
 PROFESIONAL JEFE 1
 Objetivo del trabajo: Comprometerse con el eficiente desarrollo de los procesos de trabajo de las diferentes áreas mediante la ejecución de labores de planeación, dirección, supervisión y evaluación, orientadas a la coordinación de un área administrativa o legislativa de la Asamblea Legislativa. Todo ello en estrecha coordinación con el jerarca de la unidad administrativa de que se trate.
 Ubicación:
@@ -1159,14 +1170,14 @@ Para el desempeño de los cargos ubicados en esta clase de puesto se requiere de
 CONOCIMIENTOS BÁSICOS
 Los relacionados con la utilización de los equipos y los programas que para la realización de sus funciones se requieren.
 Los relacionados con la actualización y la capacitación en habilidades directamente vinculadas al campo actividad como la redacción de informes, con procesos y procedimientos institucionales, actualización de conocimientos relacionados con el área profesional y laboral, etc., así como los que estimulen las relaciones interpersonales y repercutan en el manejo, trabajo en equipo y materia gerencial.
-CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
- Formación profesional a nivel de licenciatura o superior en carrera universitaria atinente con su área de actividad.
- Experiencia mínima de dieciocho meses en el manejo y supervisión de personal.
- Experiencia mínima de seis años en labores relacionadas con el cargo a nivel de licenciatura desarrolladas en la Asamblea Legislativa.
-O:
- Experiencia mínima de diez años en labores relacionadas con el área de actividad a nivel de licenciatura.
-Requisito Legal: Incorporación al colegio profesional respectivo a nivel de licenciatura.
-(Así reformado el aparte anterior "Conocimientos y expreriencia requerida) por acuerdo Nº 05-12-13 de la sesión N° 117-2012 del 15 de mayo del 2012)
+(*)CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
+Formación profesional a nivel de licenciatura o superior en una carrera universitaria
+atinente a su área de actividad.
+Experiencia profesional mínima de CINCO AÑOS a nivel de licenciatura y desarrolladas en la Asamblea Legislativa O experiencia profesional mínima de DIEZ AÑOS en labores relacionadas con el área académica, a nivel de licenciatura.
+Experiencia mínima de DIECIOCHO MESES en el manejo y supervisión de personal.
+Requisito legal:
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+(*) (Así reformado el aparte anterior "Conocimientos y experiencia requerida en sesión N° 158 del 14 de marzo de 2017))
 PROFESIONAL JEFE 2 (Niveles A y B)
 Objetivo del trabajo:
 Comprometerse con el eficiente desarrollo de los objetivos departamentales, la misión institucional y, por ende, su gestión sustantiva, mediante el desarrollo eficiente de los procesos de trabajo de las diferentes áreas por razón de la ejecución de labores de planeación, dirección, supervisión y evaluación, orientadas a la coordinación de una área administrativa o legislativa de la Asamblea Legislativa. Caracteriza a los puestos con esta clasificación la necesidad de una participación más estrecha con la dirección del departamento, bien sea por su estructura organizacional (Divisiones o Dirección Ejecutiva) o por la ausencia del cargo de subdirector de departamento.
@@ -1208,14 +1219,14 @@ CONOCIMIENTOS BÁSICOS
 Los relacionados con la utilización de los equipos y los programas que para la realización de sus funciones se requieren.
 Los relacionados con la actualización y la capacitación en habilidades directamente vinculadas al campo actividad como la redacción de informes, con procesos y procedimientos institucionales, actualización de conocimientos relacionados con el área profesional y laboral, etc., así como los que estimulen las relaciones interpersonales y repercutan en el manejo, trabajo en equipos y materia gerencial.
 CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
+(*)Nivel A
 Nivel A
- Formación profesional a nivel de licenciatura o superior en una carrera universitaria atinente con su área de actividad.
- Experiencia mínima de dieciocho meses en el manejo y supervisión de personal.
- Experiencia mínima de ocho años en labores relacionadas con el cargo a nivel de licenciatura desarrolladas en la Asamblea Legislativa.
-Ó
- Experiencia mínima de diez años en labores relacionadas con el área de actividad a nivel de licenciatura.
-Requisito Legal: Incorporación al colegio profesional respectivo a nivel de licenciatura
-(Así reformado el aparte anterior "Conocimiento y experiencia requerida Nivel A",por Nº 05-12-13 de la sesión N° 117-2012 del 15 de mayo del 2012)
+Licenciatura o título superior en una carrera universitaria atinente a su área de actividad.
+Experiencia profesional mínima de SEIS AÑOS a nivel de licenciatura y desarrolladas en la Asamblea Legislativa O experiencia profesional mínima de DIEZ AÑOS en labores relacionadas con el área de académica, a nivel de licenciatura.
+Experiencia mínima de DIECIOCHO MESES en el manejo y supervisión de personal.
+Requisito legal:
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+(*) (Así reformado el aparte anterior " Nivel A" en sesión N° 158 del 14 de marzo de 2017)
 Nivel B
 Nivel de clase transitorio con objetivo específico (ver el detalle en la descripción de la clase).
 Licenciatura o título superior en una carrera universitaria atinente a su área de actividad.
@@ -1253,11 +1264,13 @@ Para el desempeño de los cargos ubicados en esta clase de puesto se requiere de
 CONOCIMIENTOS BÁSICOS
 Los relacionados con la utilización de los equipos y los programas que para la realización de sus funciones se requieren.
 Los relacionados con la actualización y la capacitación en habilidades directamente vinculadas al campo de actividad como la redacción de informes, con procesos y procedimientos institucionales, actualización de conocimientos relacionados con el área profesional y laboral, etc., así como los que estimulen las relaciones interpersonales y repercutan en el manejo, trabajo en equipos y materia gerencial.
-CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
+(**)CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
 Formación profesional a nivel de bachiller universitario o título superior en una carrera universitaria atinente a su área de actividad.
-Experiencia mínima de tres años en el manejo y supervisión de personal.
-Experiencia mínima de tres años en labores relacionadas con el cargo a nivel de bachiller y desarrolladas en la Asamblea Legislativa o experiencia mínima de cinco años en labores relacionadas con el área de actividad, a nivel de bachillerato.
-Requisito legal: Incorporación al colegio respectivo.
+Experiencia profesional mínima de CUATRO AÑOS en labores relacionadas con el cargo a nivel de bachiller.
+Experiencia mínima de UN AÑO en el manejo y supervisión de personal.
+Requisito legal:
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+(*) (Así reformado el punto “Conocimientos y experiencia requerida”, en sesión N° 158 del 14 de marzo de 2017)
 (*) (Así adicionada la clase de puesto anterior por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
 ESTRATO GERENCIAL
 Contempla los procesos de definición y formulación de las políticas institucionales, así como la planificación, dirección y coordinación del funcionamiento general de la institución. Corresponde la dirección de unidades administrativas del más alto nivel, o bien, su asesoramiento.
@@ -1298,9 +1311,15 @@ NIVEL DE IMPACTO
 Dada su ubicación en la estructura organizativa y las facultades de que dispone, su participación es a nivel de las ideas rectoras, en la priorización de los objetivos institucionales y, en gran medida, en el establecimiento de las condiciones necesarias para el desarrollo de la organización. En función de ello tiene un nivel de impacto estratégico.
 DETALLE DE CLASES UBICADAS DENTRO DE ESTE ESTRATO
 (*)SUBAUDITOR INTERNO
-(*) (Así eliminada la clase de puesto anterior anterior por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
-(*) SUBDIRECTOR DE DEPARTAMENTO
-(*) (Así eliminada la clase de puesto anterior anterior por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
+(*) (Así eliminada la clase de puesto anterior por acuerdo Legislativo Nº 59 de la sesión N° 171 del 28 de octubre de 2009)
+(*)SUBDIRECTOR DE DEPARTAMENTO
+CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
+Licenciatura o título superior en una carrera universitaria atinente a su área de actividad.
+Experiencia profesional mínima de SIETE AÑOS a nivel de licenciatura y desarrolladas en la Asamblea Legislativa O experiencia profesional mínima de DIEZ AÑOS en labores relacionadas con el área de académica, a nivel de licenciatura.
+Experiencia mínima de TRES AÑOS en el manejo y supervisión de personal.
+Requisito legal:
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+(*) (Así reformado el punto “Subdirector de departamento en sesión N° 158 del 14 de marzo de 2017)
 (*)SUBDIRECTOR DEPARTAMENTO
 DE SERVICIOS DE SALUD
 · Licenciado en Medicina y Cirugía
@@ -1463,12 +1482,13 @@ Para el desempeño de los cargos ubicados en esta clase de puesto se requiere de
 CONOCIMIENTOS BÁSICOS
 Los relacionados con la utilización de los equipos y los programas que para la realización de sus funciones se requieren.
 Los relacionados con la actualización y la capacitación en habilidades directamente vinculadas al campo actividad como la redacción de informes, los procesos y procedimientos institucionales, la actualización de conocimientos relacionados con las funciones del Parlamento, del área profesional y laboral, así como los que estimulen las relaciones interpersonales y repercutan en el manejo de personal, trabajo en equipo, planificación estratégica y materia gerencial.
-CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
+(*) CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
 Formación profesional a nivel de licenciatura o título superior en una carrera atinente a su área de actividad.
-Experiencia mínima de tres años en el manejo y supervisión de personal.
-Experiencia mínima de siete años en labores relacionadas con el cargo a nivel de licenciatura y desarrolladas en la Asamblea Legislativa o experiencia mínima de nueve años en labores relacionadas con el área de actividad, a nivel de licenciatura.
+Experiencia profesional mínima de OCHO AÑOS a nivel de licenciatura y desarrolladas en la Asamblea Legislativa O experiencia profesional mínima de DIEZ AÑOS en labores relacionadas con el área de académica, a nivel de licenciatura.
+Experiencia mínima de TRES AÑOS en el manejo y supervisión de personal.
 Requisito legal:
-Incorporación al colegio respectivo.
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+(*) (Así reformado el punto anterior “Conocimientos y experiencia requerida”, en sesión N° 158 del 14 de marzo de 2017)
 DIRECTOR DE DIVISIÓN
 Objetivo del trabajo:
 Comprometerse con la definición de las políticas, las estrategias, los objetivos, los valores, la misión y la visión institucionales. Garantizar la gestión legislativa o administrativa de la Asamblea Legislativa en concordancia con las políticas institucionales y los planes anuales operativos de la división, mediante la ejecución de actividades gerenciales de planificación, organización, dirección, supervisión y evaluación de los procesos administrativos.
@@ -1520,12 +1540,12 @@ Se requiere capacidad para mantener buenas relaciones humanas, capacidad de resp
 CONOCIMIENTOS BÁSICOS
 Los relacionados con la utilización de los equipos y los programas que para la realización de sus funciones se requieren.
 Los relacionados con la actualización y la capacitación en habilidades directamente vinculadas al campo actividad como la redacción de informes, procesos y procedimientos institucionales, actualización de conocimientos relacionados con las funciones del Parlamento, del área profesional y laboral, así como los que estimulen las relaciones interpersonales y repercutan en el manejo de personal, trabajo en equipos, planificación estratégica y materia gerencial.
-CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
+(*)CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
 Formación profesional a nivel de licenciatura o título superior en una carrera universitaria atinente a su área de actividad.
-Experiencia mínima de tres años en el manejo y supervisión de personal.
-Experiencia mínima de ocho años en labores relacionadas con el cargo, a nivel de licenciatura y desarrolladas en la Asamblea Legislativa o experiencia mínima de diez años en labores relacionadas con el área de actividad, a nivel de licenciatura.
-Requisito legal:
-Incorporación al colegio respectivo.
+Experiencia profesional mínima de NUEVE AÑOS a nivel de licenciatura y desarrolladas en la Asamblea Legislativa O experiencia profesional mínima de DIEZ AÑOS en labores relacionadas con el área académica, a nivel de licenciatura.
+Experiencia mínima de TRES AÑOS en el manejo y supervisión de personal. Requisito legal:
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+(*) (Así reformado el punto anterior “Conocimientos y experiencia requerida”, en sesión N° 158 del 14 de marzo de 2017)
 Carreras atinentes
 Director de División Administrativa
 Administración con sus diferentes énfasis.
@@ -1574,12 +1594,13 @@ Por la naturaleza del cargo, su rol debe estar orientado a ser un facilitador y 
 CONOCIMIENTOS BÁSICOS
 Los relacionados con la utilización de los equipos y los programas que para la realización de sus funciones se requieren.
 Los relacionados con la actualización y la capacitación en habilidades directamente vinculadas al campo actividad como la redacción de informes, procesos y procedimientos institucionales, actualización de conocimientos relacionados con las funciones del Parlamento, del área profesional y laboral, etc., así como los que estimulen las relaciones interpersonales y repercutan en el manejo de personal, trabajo en equipos, planificación estratégica y materia gerencial.
-CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
+(*)CONOCIMIENTOS Y EXPERIENCIA REQUERIDA
 Formación profesional a nivel de licenciatura o título superior en una carrera universitaria atinente a su área de actividad.
-Experiencia mínima de tres años en el manejo y supervisión de personal.
-Experiencia mínima de diez años en labores relacionadas con el cargo, a nivel de licenciatura, y desarrolladas en la Asamblea Legislativa o experiencia mínima de doce años en labores relacionadas con el área de actividad, a nivel de licenciatura.
+Experiencia profesional mínima de DIEZ AÑOS a nivel de licenciatura, y desarrolladas en la Asamblea Legislativa O experiencia profesional mínima de DOCE AÑOS en labores relacionadas con el área académica, a nivel de licenciatura.
+Experiencia mínima de TRES AÑOS en el manejo y supervisión de personal.
 Requisito legal:
-Incorporación al colegio respectivo.
+Incorporación al colegio profesional correspondiente en el grado académico respectivo de la clase.
+(*) (Así reformado el punto anterior “Conocimientos y experiencia requerida”, en sesión N° 158 del 14 de marzo de 2017)
 Carreras atinentes:
 Administración con sus diferentes énfasis/ Ciencias Políticas/ Derecho con sus diferentes énfasis/ Economía con sus diferentes énfasis.
 CATEGORÍAS SEGÚN CLASES SALARIALES
