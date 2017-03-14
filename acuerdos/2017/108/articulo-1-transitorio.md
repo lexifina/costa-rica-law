@@ -1,0 +1,1 @@
+Transitorio 1: La suspensión de licencias de atún a embarcaciones extranjeras con red de cerco determinada según acuerdo de Junta Directiva AJDIP-101-2017, se prorroga hasta el momento de entrada en vigencia del presente acuerdo. Comuníquese a la Dirección General Técnica y al Departamento de Protección y Registro, a efecto que se tomen las previsiones correspondientes.
