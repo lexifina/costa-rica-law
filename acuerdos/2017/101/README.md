@@ -14,3 +14,4 @@ Modifica acuerdo AJDIP-071-2017, extendiendo el plazo de suspensión del otorgam
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-02-24 | la propia norma |
+| 2 | 2017-03-14 | Acuerdo 108 (2017-03-14) |

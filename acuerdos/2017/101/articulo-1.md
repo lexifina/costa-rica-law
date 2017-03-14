@@ -1,5 +1,5 @@
-INSTITUTO COSTARRICENSE DE PESCA
-Y ACUICULTURA
+INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+(Nota de Sinalevi: Mediante el transitorio 1° del acuerdo AJDIP/108-2017 y publicado en La Gaceta N° 52 del 14 de marzo de 2017, se estable que la suspensión de licencias de atún a embarcaciones extranjeras con red de cerco determinada según acuerdo de Junta Directiva AJDIP-101-2017, se prorroga hasta el momento de entrada en vigencia del acuerdo AJDIP/108-2017. Comuníquese a la Dirección General Técnica y al Departamento de Protección y Registro, a efecto que se tomen las previsiones correspondientes.)
 AJDIP/101-2017.—Puntarenas, a los veinticuatro días del mes de febrero del dos mil diecisiete.
 Considerando:
 1º—Que esta Junta Directiva estableció mediante el acuerdo AJDIP-071-2017 la suspensión del otorgamiento de licencias a de pesca de atún con red de cerco a embarcaciones de bandera extranjera, por una semana partir del lunes 20 de febrero del 2017.
