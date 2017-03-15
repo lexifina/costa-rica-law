@@ -1,0 +1,2 @@
+Artículo 2º—El documento que contiene, los “Lineamientos y Estándares del Mapa Geológico de Costa Rica a escala 1:50 000”, está disponible en la página web de la Dirección de Geología y Minas del MINAE http://www.geologia.go.cr. Una versión física del citado documento se custodiará en la Dirección de Geología y Minas.
+(Nota de Sinalevi: Por lo extenso de su contenido los Lineamientos y Estándares del Mapa Geológico de Costa Rica a escala 1:50 000, pueden ser consultados en el siguiente links.)

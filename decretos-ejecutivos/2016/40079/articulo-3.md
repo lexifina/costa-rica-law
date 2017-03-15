@@ -1,0 +1,1 @@
+Artículo 3º—Los Lineamientos y Estándares del Mapa Geológico de Costa Rica a escala 1:50 000, podrán ser actualizados por la Dirección de Geología y Minas, cuando ésta, así lo considere conveniente, de acuerdo a las necesidades del país y a los cambios y avances en la estandarización cartográfica internacional.
