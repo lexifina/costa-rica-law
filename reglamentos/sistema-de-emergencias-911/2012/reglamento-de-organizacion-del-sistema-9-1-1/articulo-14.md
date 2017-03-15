@@ -1,4 +1,5 @@
-Articulo 14.—La Coordinación del Proceso de Atención Ciudadana tendrá a cargo las siguientes actividades:
+Articulo 14.—La Coordinación del Proceso de Servicio Ciudadano(*) tendrá a cargo las siguientes actividades:
+(*) (Así modificada su denominación y publicado en La Gaceta N° 53 del 15 de marzo de 2017. Anteriormente se indicaba: “Proceso de Atención Ciudadana.”)
 a. Asegurar la entrega del servicio de acuerdo con los estándares de calidad e indicadores de gestión que le defina la Administración.
 b. Definir su Plan Anual Operativo alineado con la estrategia institucional, presupuesto requerido, así como los riesgos asociados para el cumplimiento de su misión. Asimismo, dar seguimiento a la ejecución tanto del plan como del presupuesto asignado y velar porque las acciones de mejora aseguren el cumplimiento de los objetivos.
 c. Coordinar y controlar la correcta ejecución de los acuerdos operativos y procedimientos institucionales.
