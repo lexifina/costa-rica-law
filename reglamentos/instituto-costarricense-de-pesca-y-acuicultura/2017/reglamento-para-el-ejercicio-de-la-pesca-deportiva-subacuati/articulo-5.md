@@ -1,0 +1,1 @@
+5º—Quien realice pesca deportiva, podrá utilizar uno o más arpones articulados con bandas de plásticos o por medio de aire comprimido, igualmente podrá utilizar linternas, cuchillo, bolsos de paños de red o cachador para recuperar las piezas capturadas.

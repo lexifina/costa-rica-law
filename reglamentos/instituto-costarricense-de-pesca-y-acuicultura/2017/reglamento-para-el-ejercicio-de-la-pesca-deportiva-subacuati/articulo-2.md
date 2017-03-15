@@ -1,0 +1,1 @@
+2º—Para la pesca subacuática, son aplicables en lo que le corresponda, las disposiciones establecidas en el Reglamento de la Ley de Pesca y Acuicultura, decreto Ejecutivo 36782-MINAET-MAG-MOPT-TUR-SP-S-MTSS, en sus artículos 62 al 69.

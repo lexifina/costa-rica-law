@@ -1,0 +1,1 @@
+4º—E1 Incopesca, autorizará la práctica de la pesca deportiva subacuática, únicamente mediante la práctica de buceo deportivo de apnea o pulmón. No se permite la pesca subacuática utilizando equipos autónomos de buceo como tanques de oxígeno o equipos semiautónomos como compresores.
