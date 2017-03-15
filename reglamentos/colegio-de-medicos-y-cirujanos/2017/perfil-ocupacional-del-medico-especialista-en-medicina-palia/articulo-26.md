@@ -1,0 +1,1 @@
+Artículo 26. – Cuando el médico visita a un paciente asistido por otro colega, deberá de abstenerse de hacer comentarios perjudiciales acerca del diagnóstico y el tratamiento, capaces de afectar el veredicto y la confianza depositada por el paciente, sus familiares y/o cuidadores.

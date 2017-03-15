@@ -1,0 +1,6 @@
+Artículo 11. – Funciones de docencia del médico especialista en Medicina Paliativa del Adulto.
+a. Participa en la programación, dirección, supervisión y ejecución de los programas para la formación y capacitación del personal sanitario, grupos de apoyo del paciente con enfermedad terminal, profesionales en Medicina y otros profesionales en Ciencias de la Salud, en todos los niveles de atención.
+b. Participa en la formación académica universitaria de pregrado, grado y pos grado de los Profesionales en Medicina, Medicina Paliativa del Adulto y otras Ciencias de la Salud.
+c. Supervisa la práctica de los médicos residentes que se encuentren realizando los estudios de posgrado en la especialidad en Medicina Paliativa del Adulto.
+d. Participa en la formación y capacitación del personal sanitario, profesionales en medicina y otros profesionales en Ciencias de la Salud, en materia de Medicina Paliativa del Adulto.
+e. Previa indicación de la Junta de Gobierno del Colegio de Médicos y Cirujanos, forma parte de jurados calificadores, en la evaluación teórica y práctica de aquellos Médicos y Cirujanos con formación en Medicina Paliativa de adultos en el extranjero y que optan por la inscripción de dicha especialidad.

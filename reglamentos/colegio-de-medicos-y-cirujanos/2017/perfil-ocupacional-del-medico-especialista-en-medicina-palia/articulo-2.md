@@ -1,0 +1,3 @@
+Artículo 2. – Generalidades del Médico Especialista en Medicina Paliativa del Adulto
+El médico especialista en Medicina Paliativa del Adulto, está capacitado para proyectarse en el servicio a la comunidad con una formación integral sólida, basada en elementos teóricos, prácticos, científicos, sociales e investigativos que lo acreditan como un profesional crítico, creativo y responsable, con sensibilidad social y que actúa bajo los lineamentos éticos establecidos por el Colegio de Médicos y Cirujanos de Costa Rica.
+Debe evidenciar el uso de competencias cognitivas, técnicas, socio-afectivas, comunicativas y de liderazgo dentro de los diferentes sectores en los cuales le corresponde desempeñar: salud, investigación, educación, empresarial y bienestar social.

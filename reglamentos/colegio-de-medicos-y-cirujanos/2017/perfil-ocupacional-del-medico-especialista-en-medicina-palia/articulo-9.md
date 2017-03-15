@@ -1,0 +1,22 @@
+Artículo 9. – Funciones asistenciales del médico especialista en Medicina Paliativa del Adulto.
+a. El especialista en Medicina Paliativa de Adultos atiende a los pacientes en situación de vida limitada en los diferentes escenarios donde este se pueda encontrar: hospitalización (hospital de día, internamiento, sesiones médicas, interconsultas), atención domiciliar paliativa del paciente y consulta externa.
+b. Podrá dar atención a la familia del paciente así como a sus cuidadores, cuando lo establezca pertinente.
+c. Integra y coordina grupos de trabajo relacionados con su especialidad, intra e interinstitucionales, así como intersectoriales.
+d. Paliación de síntomas de las diferentes enfermedades incurables, avanzadas e irreversibles, con un pronóstico de vida limitado, así como el control del dolor. También involucra el manejo anticipado de los síntomas y factores emocionales, sociales, culturales y espirituales del paciente, la familia y la sociedad. Así como la promoción de los cuidados paliativos en el sector salud.
+e. Controlar los signos y los síntomas de la enfermedad terminal. Para ello podrá hacer uso de sus conocimientos farmacológicos, no farmacológicos, procedimientos invasivos o técnicas terapéuticas en cualquier escenario que el paciente se encuentre y con base en la medicina basada en evidencia. El médico especialista en Medicina Paliativa ofrecerá los medios necesarios
+para ofrecer un óptimo alivio del sufrimiento basado en su entrenamiento incluyendo la sedación paliativa.
+f. Brindar una sedación paliativa siempre y cuando el paciente cumpla con criterios clínicos establecidos por la medicina paliativa, la autorización del mismo (voluntad anticipada) o por su tutor o representante legal.
+g. En el libre ejercicio de su profesión, como Médico y Cirujano especialista en Medicina Paliativa del Adulto, aplica principios y técnicas propias de la especialidad para concretar su acto médico propendiendo a mejorar la calidad de vida de los pacientes, familiares y/o cuidadores, reconociéndolos como una unidad.
+h. Evalúa a los pacientes en los servicios asistenciales, centrándose en las necesidades cambiantes de este, su familia y/o cuidadores, involucrándolos en el manejo y tratamiento de la enfermedad desde un inicio, principalmente en lo relativo al dolor.
+i. Brinda seguimiento continuo al paciente para definir las prioridades de control de los síntomas y signos, efectuando las modificaciones necesarias del plan de cuidados que aseguran el énfasis puesto en mantener la calidad de vida.
+j. Puede desarrollar sus funciones dentro de una red de servicios de salud e investigación, favoreciendo el abordaje integral, familiar y psicosocial, desde una perspectiva de trabajo pluridisciplinario y en equipo.
+k. Asegura la continuidad de la atención del paciente, mediante la coordinación de los diferentes equipos asistenciales que tiene a su disposición para el manejo del paciente o referencia a otros profesionales en ciencias médicas y de salud.
+l. Participa en la organización de los servicios de salud para la atención del paciente de Medicina Paliativa del Adulto, la familia y/o cuidadores, promoviendo el desarrollo de un medio ambiente humano y multidisciplinario de apoyo continuo.
+m. Participa y coordina en las actividades de salud para la elaboración e implementación de políticas nacionales en temas de Medicina Paliativa del Adulto.
+n. Elabora, implementa, coordina, supervisa e integra los equipos de trabajo propios de su especialidad.
+o. Coordina, supervisa e integra en las redes de servicios de atención a nivel comunitario, con la participación de los tres niveles de atención y de manera interinstitucional e interdisciplinaria.
+p. Colabora mediante la interconsulta con otros servicios asistenciales para el mejor desarrollo de una atención sanitaria integral.
+q. Documentar en función de su ejercicio profesional, la historia clínica, examen físico y los seguimientos que se le realicen al paciente, de acuerdo con el diagnóstico, pronóstico y tratamiento efectuado.
+r. Colaborará con los programas de rehabilitación psicosocial a nivel individual, grupal, familiar y social.
+s. A solicitud de la autoridad administrativa o judicial que dirija un proceso, el especialista en Medicina Paliativa del Adulto puede rendir peritaje dentro del mismo en el campo de su área.
+t. Brinda asesorías técnico profesionales en asuntos concernientes a la práctica, docencia, investigación y desarrollo de su especialidad, ante instituciones públicas o privadas que así lo requieran.

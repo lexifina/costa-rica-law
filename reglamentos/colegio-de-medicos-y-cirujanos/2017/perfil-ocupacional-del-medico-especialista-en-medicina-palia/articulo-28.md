@@ -1,0 +1,1 @@
+Artículo 28. – En el desempeño de sus funciones y previa indicación del ente rector en materia de salud del país, le puede corresponder participar en las diferentes comisiones de desastres naturales que ocurrieren.

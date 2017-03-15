@@ -1,0 +1,2 @@
+Artículo 6. – Investigación:
+El especialista en Medicina Paliativa de Adultos cuenta con los conocimientos básicos en metodología de la investigación, epidemiología y medicina basada en evidencia, y es capaz de utilizar la técnica y el arte de la investigación, mediante el diseño, ejecución y asesoría de investigaciones básicas, clínicas y sociales, para el desarrollo del conocimiento y el avance de las condiciones de salud de la población.

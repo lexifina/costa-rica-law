@@ -1,0 +1,1 @@
+Artículo 22. – En su actuación personal, debe mostrar la mayor dignidad, sensibilidad, y tolerancia con el paciente, sus familiares y/o cuidadores, siempre que su actitud no redunde en perjuicio de la misión especial que le ha sido confiada.

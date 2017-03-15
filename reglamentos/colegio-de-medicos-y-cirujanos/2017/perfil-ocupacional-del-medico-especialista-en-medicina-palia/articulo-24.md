@@ -1,0 +1,1 @@
+Artículo 24. – Utiliza un lenguaje sencillo y claro al comunicarse con los pacientes y familiares/cuidadores sobre diagnóstico, pronóstico, tratamiento, posibles efectos secundarios, opciones de manejo y aclaración de dudas.

@@ -1,0 +1,2 @@
+Artículo 5. – Asistencial:
+El especialista en Medicina Paliativa de Adultos aplica sus conocimientos para la detección, evaluación y atención médica de las necesidades físicas y funcionales; así como brindar la adecuada orientación hacia la atención de necesidades psicológicas, sociales y espirituales de los pacientes con enfermedad incurable, avanzada e irreversible, con un pronóstico de vida limitado, potencialmente mortal, a corto o mediano plazo.

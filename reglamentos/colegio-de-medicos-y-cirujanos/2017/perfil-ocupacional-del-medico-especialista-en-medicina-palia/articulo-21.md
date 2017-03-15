@@ -1,0 +1,1 @@
+Artículo 21. – Cuidado holístico y multidisciplinario del paciente, su familia y/o cuidador, así como mantenerlos informados sobre estos cuidados, la evolución de la enfermedad y su tratamiento, involucrándolos como una unidad desde un principio.
