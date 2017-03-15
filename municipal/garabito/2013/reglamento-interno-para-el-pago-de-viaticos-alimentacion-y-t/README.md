@@ -14,3 +14,4 @@ Reglamento interno para el pago de viáticos, alimentación y transporte para re
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-09 | la propia norma |
+| 2 | 2017-03-15 | Reglamento municipal 46 (2017-03-15) |
