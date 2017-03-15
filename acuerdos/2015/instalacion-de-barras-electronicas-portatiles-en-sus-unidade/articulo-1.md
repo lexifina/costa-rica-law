@@ -1,0 +1,2 @@
+CONSEJO DE TRANSPORTES PÚBLICO
+Informa a los prestatarios del transporte público de ruta regular: que mediante el artículo 7.1 de la sesión ordinaria 16-2015, celebrada el 25 de marzo del 2015, deberán permitir el uso y la instalación de las barras electrónicas portátiles en sus unidades por parte de este Consejo, en la recaudación de datos para la elaboración de estudios técnicos que requiera el operador como el Consejo de Transporte Público, ello como parte de las obligaciones de la prestación del servicio. Mismo que se encuentra disponible en el sitio web www.ctp.go.cr.
