@@ -1,0 +1,1 @@
+Artículo 2º—Colaboración y Coordinación. Las instituciones del Sector Público y el Sector Privado, dentro del marco legal de sus competencias, podrán contribuir con cualquier tipo de recursos o alternativas, de acuerdo con sus atribuciones y sin perjuicio del cumplimiento de sus propios objetivos, con las actividades e iniciativas relacionadas con el citado traslado.
