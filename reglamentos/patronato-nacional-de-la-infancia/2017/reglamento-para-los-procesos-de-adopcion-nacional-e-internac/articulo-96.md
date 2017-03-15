@@ -1,0 +1,2 @@
+Artículo 96.-EI Departamento de Adopciones recomendará al Consejo Nacional de Adopciones el rechazo de la solicitud, si los solicitantes no cumplen con los requisitos establecidos por el país de origen o con los regulados en el Código de Familia de la República de Costa Rica para la adopción de una persona menor de edad.
+El Consejo Nacional de Adopciones analizará la recomendación y procederá a emitir el acuerdo respectivo, el cual deberá ser comunicado a la familia solicitante y tendrá los recursos establecidos en la Ley General de Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 116.· En el caso de los seguimientos post - adoptivos que realizan las Oficinas Locales, cuando por la especialidad del tema y de las situaciones que se presentan resulta pertinente, las encargadas del proceso en las Oficinas podrán coordinar lo correspondiente para contar con la asesoría técnica profesional del Departamento de Adopciones.

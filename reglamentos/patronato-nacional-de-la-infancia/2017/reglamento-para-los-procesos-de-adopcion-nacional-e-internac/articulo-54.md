@@ -1,0 +1,2 @@
+Artículo 54. -Las valoraciones sociales y psicológicas de las personas solicitantes de adopción, podrán ser realizadas tanto por profesionales de la Institución, como por profesionales que ejercen liberalmente la profesión, cumpliendo con los criterios y parámetros Institucionales establecidos.
+Estos últimos profesionales deberán estar debidamente incorporados en sus respectivos colegios profesionales y contar con un grado académico mínimo de licenciatura.

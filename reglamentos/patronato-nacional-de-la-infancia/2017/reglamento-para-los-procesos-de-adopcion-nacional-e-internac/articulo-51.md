@@ -1,0 +1,1 @@
+Artículo 51.-En caso de que la o las personas solicitantes de adopción omitieran la presentación de alguno de los documentos requeridos, el Departamento de Adopciones , deberá prevenirlo mediante acto administrativo formal, dentro del plazo establecido en el artículo 49 de este Reglamento.

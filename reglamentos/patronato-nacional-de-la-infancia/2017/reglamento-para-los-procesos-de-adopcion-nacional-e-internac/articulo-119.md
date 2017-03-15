@@ -1,0 +1,1 @@
+Artículo 119.-EI Departamento de Adopciones deberá de revisar los informes de seguimiento conforme a los criterios establecidos por la institución, así como verificar el cumplimiento de la periodicidad establecida en el artículo anterior, e informar al Consejo Nacional de Adopciones conforme lo establece el presente Reglamento.

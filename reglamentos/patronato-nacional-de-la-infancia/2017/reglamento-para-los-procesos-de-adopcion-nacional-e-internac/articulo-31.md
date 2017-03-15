@@ -1,0 +1,1 @@
+Artículo 31.-De cada sesión, el Secretario de los Consejos levantará un acta detallada de los asuntos discutidos y los acuerdos tomados, con indicación expresa de las discrepancias presentadas, si las hubiere en relación con los acuerdos tomados, así como los fundamentos de las mismas.

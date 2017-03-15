@@ -1,0 +1,1 @@
+Artículo 102. -Una vez realizada la revisión técnica de las valoraciones sociales y psicológicas, el profesional en Psicología y Trabajo Social del Departamento de Adopciones, en apego a los criterios establecidos Institucionalmente y considerando el principio de interés superior de la persona menor de edad, recomendará la idoneidad o no de las personas solicitantes de adopción.

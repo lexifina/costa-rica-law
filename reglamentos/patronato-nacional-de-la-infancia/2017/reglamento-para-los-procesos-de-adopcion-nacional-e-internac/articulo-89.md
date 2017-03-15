@@ -1,0 +1,1 @@
+Artículo 89.-Estudiados y valorados los expedientes, el Consejo Nacional de Adopciones, definirá cuál de los solicitantes resulta ser el más idóneo para la ubicación con fines de adopción de la persona menor de edad, declarando su adaptabilidad internacional y tomando el acuerdo de ubicación respectivo.

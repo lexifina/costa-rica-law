@@ -1,0 +1,1 @@
+Artículo 58.-Una vez realizada la revisión técnica de las valoraciones sociales y psicológicas, el profesional en Psicología y Trabajo Social del Departamento de Adopciones, en apego a los criterios establecidos Institucionalmente y al interés superior de la persona menor de edad, recomendará la idoneidad o no de las personas solicitantes de adopción.

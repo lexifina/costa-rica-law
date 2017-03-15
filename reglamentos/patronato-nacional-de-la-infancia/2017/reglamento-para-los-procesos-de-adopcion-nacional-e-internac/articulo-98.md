@@ -1,0 +1,2 @@
+Artículo 98. -Las valoraciones sociales y psicológicas de las personas solicitantes de adopción, podrán ser realizadas tanto por profesionales de la Institución, como por profesionales que ejercen liberalmente la profesión, siempre y cuando cumplan con los criterios y parámetros de valoración establecidos institucionalmente.
+Estos últimos profesionales deberán estar debidamente incorporados en sus respectivos colegios profesionales y contar con un grado académico mínimo de licenciatura.

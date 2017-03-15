@@ -1,0 +1,19 @@
+SECCIÓN VIII-Del Consejo Nacional de Adopciones
+Artículo 14. -Son funciones y atribuciones del Consejo Nacional de Adopciones, en materia de adopción internacional, las siguientes:
+a) Garantizar que se cumplan las obligaciones que imponen los Convenios Relativos a la Protección del Niño en materia de Adopción Internacional, así como toda normativa en esta materia.
+b) Proponer la suscripción de convenios bilaterales, multilaterales y protocolos con otros Estados, para la protección de las personas menores de edad en materia de adopción internacional.
+c) Diseñar, proponer e impulsar estrategias y acciones tendientes al fortalecimiento de la cooperación internacional, con autoridades centrales, autoridades competentes y organismos o entidades colaboradoras de la adopción internacional del país receptor, así como con embajadas y consulados destacados tanto en nuestro país como en los países receptores.
+d) Proponer gestiones y acciones orientadas al conocimiento oportuno de la normativa y los criterios institucionales vigentes en materia de adopción internacional por parte de las autoridades centrales, autoridades competentes y organismos o entidades colaboradoras de la adopción internacional de los países receptores, así como con embajadas y consulados destacados tanto en nuestro país como en los países receptores.
+e) Aprobar o rechazar las solicitudes de adopción internacional de personas que tengan su residencia habitual fuera del territorio nacional.
+f) Aprobar o rechazar las solicitudes de adopción internacional de personas que tengan su residencia habitual en el territorio nacional.
+g) Analizar los expedientes de las personas menores de edad declaradas en estado de abandono, y los expedientes de los solicitantes de adopción declarados idóneos, con el fin de realizar el empate teórico, y determinar la ubicación con fines de adopción, que mejor convenga al interés superior del niño, niña o adolescente.
+h) Declarar la condición de adaptabilidad, tratándose de adopciones internacionales, cuando corresponda.
+i) Emitir los certificados para otorgar el consentimiento para las adopciones internacionales establecido en el artículo 17, inciso c, del Convenio de La Haya.
+j) Rendir y emitir los Informes establecidos en el artículo 16 del Convenio de La Haya.
+k) Emitir los certificados de conformidad establecidos en el artículo 23 del Convenio de La Haya.
+l) Realizar las coordinaciones, procedimientos y emitir los informes o certificados establecidos en el Convenio de La Haya, relativos a los procesos de adopción internacional, en donde Costa Rica figure como país receptor.
+m) Remitir a la Gerencia Técnica trimestralmente, un informe estadístico y cualitativo de las ubicaciones de personas menores de edad con fines de adopción con solicitantes cuya residencia habitual se encuentre fuera de Costa Rica.
+n) Analizar en forma semestral los informes que el Departamento de Adopciones debe presentar, sobre el cumplimiento de los procesos de seguimiento post-adopción por parte de las autoridades centrales u organismos o entidades colaboradoras de la Adopción Internacional del país receptor, y tomar las medidas pertinentes para garantizar la protección de las personas menores de edad adoptadas.
+o) Aprobar o rechazar mediante resolución motivada las solicitudes de funcionamiento presentadas por organismos o entidades colaborados de la adopción internacional debidamente acreditados en su país.
+p) Prorrogar o no el funcionamiento de los organismos o entidades colaboradoras de la adopción internacional, referida en el inciso anterior.
+q) Llevar un libro de registro de las organizaciones u organismos colaboradores de la adopción internacional que han sido autorizadas para su funcionamiento, para lo cual contará con el apoyo técnico y logístico del Departamento de Adopciones.

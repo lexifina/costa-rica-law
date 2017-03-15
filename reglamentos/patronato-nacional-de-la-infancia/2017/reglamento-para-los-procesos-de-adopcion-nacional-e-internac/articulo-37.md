@@ -1,0 +1,1 @@
+Artículo 37. -La resolución antes citada, deberá ser notificada a los progenitores, otorgándoles los recursos de impugnación pertinentes conforme a lo dispuesto en la Ley General de la Administración Pública, los cuales serán resueltos, el de revocatoria por el representante legal de la Oficina Local que lo dictó y el de apelación por la Presidencia Ejecutiva de la institución.

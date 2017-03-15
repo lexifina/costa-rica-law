@@ -1,0 +1,3 @@
+SECCIÓN IV -De los requisitos y los documentos requeridos a los solicitantes de adopción
+internacional cuando Costa Rica es el país receptor.
+Artículo 91. -Para valorar la idoneidad de solicitantes con residencia habitual en Costa Rica, que deseen adoptar personas menores de edad con residencia habitual fuera del territorio nacional, se deberá cumplir con las condiciones y requisitos que garanticen la protección de dichas personas menores de edad según lo dispone la normativa nacional e internacional que regula esta materia y en particular lo regulado en el Convenio de La Haya relativo a la Protección del Niño y la Cooperación en Materia de Adopción Internacional.

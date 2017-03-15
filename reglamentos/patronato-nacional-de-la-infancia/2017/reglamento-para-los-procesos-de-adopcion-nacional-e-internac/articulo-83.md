@@ -1,0 +1,1 @@
+Artículo 83.-Una vez recibidos los documentos y las ampliaciones referidas en el artículo anterior, el Departamento de Adopciones, dentro de un plazo de quince días naturales, deberá elaborar el informe de revisión técnica correspondiente y recomendar al Consejo Nacional de Adopciones, la idoneidad o no de los solicitantes de adopción.

@@ -1,0 +1,1 @@
+Artículo 59. -Cuando las (os) profesionales a cargo de la valoración o la revisión técnica recomienden la idoneidad de la o las personas solicitantes de la adopción, el Coordinador del Departamento de Adopciones los incluirá en el próximo Taller de Formación y Preparación.

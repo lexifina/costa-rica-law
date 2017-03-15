@@ -1,0 +1,3 @@
+CAPÍTULO V- Del procedimiento para la ubicación de personas menores de edad con fines de adopción, en donde medía el consentimiento de los progenitores que ejercen la autoridad parental
+SECCIÓN I- Del procedimiento de entrega a la institución a efecto de que ésta defina la ubicación entre las familias del banco de elegibles.
+Artículo 68. - Corresponderá a las Oficinas Locales del PANI conocer, dentro de su competencia territorial, de las situaciones en donde los progenitores expresan su deseo de entregar voluntariamente a su hijo/a en adopción con el fin de que la Institución lo/la ubique con personas debidamente declaradas idóneas que se encuentren en el Registro de Familias Elegibles del Departamento de Adopciones de la institución.

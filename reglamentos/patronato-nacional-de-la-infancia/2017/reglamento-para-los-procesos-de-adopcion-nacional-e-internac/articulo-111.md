@@ -1,0 +1,1 @@
+Artículo 111. -Firme el acto que concede la autorización, se inscribirá la Organización en un libro que al efecto llevará el Consejo Nacional de Adopciones. Esa inscripción tendrá vigencia de dos años y podrá ser prorrogable por períodos iguales.
