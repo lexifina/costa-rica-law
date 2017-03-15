@@ -1,0 +1,1 @@
+Artículo 2º-Las unidades productivas a las cuales hace referencia en términos conceptuales el componente III del Programa para la Prevención de la Violencia y Promoción de la Inclusión Social, se les denominará Unidades de Atención· Integral, y estás dependerán del Nivel de Unidades de Atención Integral (NUAI).
