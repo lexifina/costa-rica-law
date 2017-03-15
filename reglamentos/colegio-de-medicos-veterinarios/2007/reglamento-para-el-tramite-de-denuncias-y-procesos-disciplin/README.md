@@ -14,3 +14,4 @@ Reglamento para el Trámite de Denuncias y Procesos Disciplinarios de los Miembr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-16 | la propia norma |
+| 2 | 2017-03-15 | Reglamento 39 (2017-03-15) |
