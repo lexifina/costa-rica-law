@@ -1,0 +1,1 @@
+Artículo 11.—Recomendación del Comité de Nominaciones. El Comité de Nominaciones presentará ante el Consejo Director del CONICIT, el candidato propuesto para ser ganador del premio, a fin de que éste órgano colegiado ratifique su nominación.

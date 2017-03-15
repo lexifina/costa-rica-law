@@ -1,0 +1,1 @@
+Artículo 13.—Declaratoria del premio. La comunicación oficial del receptor del premio se hará en asocio del Consejo Director junto con los miembros del Comité de Nominaciones, a través de un acto especial.

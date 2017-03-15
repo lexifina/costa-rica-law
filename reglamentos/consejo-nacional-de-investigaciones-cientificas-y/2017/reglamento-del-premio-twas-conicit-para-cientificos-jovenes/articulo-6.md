@@ -1,0 +1,2 @@
+Artículo 6º—De los miembros del Comité de Nominaciones. Los tres (3) miembros del Comité de Nominaciones, deberán ser especialistas que posean un grado académico de doctorado, y estar relacionados con el área temática que se evalúe.
+Los miembros serán nombrados de las propuestas de cada una de las instancias anteriormente indicadas, o en su defecto, en caso de no contar con alguna propuesta, serán nombrados directamente por el Consejo Director del CONICIT.

@@ -1,0 +1,2 @@
+Artículo 16.—El Consejo Director del CONICIT tendrá la potestad de no otorgar el premio en el año correspondiente, por razones de fuerza mayor. La entrega del premio estará sujeta a la disponibilidad de los recursos por parte de los patrocinadores.
+Este reglamento fue modificado y aprobado por el Consejo Director en sesión Nº 2282 celebrada el 28 de febrero de 2017. Rige a partir de su publicación.

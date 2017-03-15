@@ -1,0 +1,2 @@
+Artículo 15.—Conflicto de intereses. De existir una relación laboral o conflicto de intereses, entre uno o varios(*) miembros del Comité de Nominaciones con alguno de los postulantes al premio, se debe dejar constancia de la situación; y en tal caso se excusarán de emitir criterio.
+(*) (Corregido mediante Fe de Erratas y publicada en La Gaceta N° 58 del 22 de marzo de 2017, página 60. Anteriormente se indicaba: “ovarios”.)

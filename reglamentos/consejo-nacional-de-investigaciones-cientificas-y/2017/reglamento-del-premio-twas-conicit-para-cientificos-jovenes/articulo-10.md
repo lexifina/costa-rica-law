@@ -1,0 +1,1 @@
+Artículo 10.—Presentación de documentos. La recepción de los trabajos de los postulantes se hará en la sede del CONICIT. Los trabajos deberán venir tanto en formato físico como digital, acompañado de un resumen de los mismos en idioma español.
