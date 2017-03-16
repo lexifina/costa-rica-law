@@ -1,0 +1,1 @@
+Artículo 4º—Ajústese la numeración de los demás artículos del Reglamento relativo a los trámites, requisitos y criterios de resolución en materia de naturalizaciones, a partir de lo dispuesto en el artículo tercero de este decreto.
