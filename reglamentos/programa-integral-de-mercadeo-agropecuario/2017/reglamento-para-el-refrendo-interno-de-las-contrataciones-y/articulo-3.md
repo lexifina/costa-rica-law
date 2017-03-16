@@ -1,0 +1,2 @@
+Artículo 3: Finalidad del refrendo interno o Visto Bueno.
+La finalidad del refrendo interno o Visto Bueno, es generar un mecanismo de control interno en cuanto a la eficacia de las concesiones administrativas y la contratación institucional que consiste en una revisión de legalidad. El análisis incluye la revisión del expediente administrativo del cual se presume la veracidad de la documentación en él incorporada, según el principio de buena fe que rige la materia de contratación administrativa.

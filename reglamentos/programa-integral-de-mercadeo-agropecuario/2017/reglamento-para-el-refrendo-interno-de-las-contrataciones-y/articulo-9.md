@@ -1,0 +1,3 @@
+Artículo 9: Trámite
+Todo refrendo deberá tramitarse a través de la Dirección solicitante, salvo la contratación efectuada por la Proveeduría quienes enviarán a la Asesoría Legal el expediente administrativo en donde conste al menos las partes contratantes, el objeto contractual, monto de adjudicación, versión final del cartel que aplica a la contratación, número de contratación, así como el procedimiento de concurso empleado.
+El análisis del expediente administrativo se ajustará a lo establecido en el artículo 8 del Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública.
