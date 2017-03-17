@@ -1,0 +1,1 @@
+Artículo 4º—Se establece el fondo de caja chica cuyo monto será de ¢400.000,00 (cuatrocientos mil colones exactos) y su custodia será responsabilidad del Tesorero (a) Municipal quién deberá actuar de conformidad con la normativa vigente y este Reglamento.

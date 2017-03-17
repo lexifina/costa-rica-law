@@ -1,0 +1,1 @@
+Artículo 6º—Corresponde al Concejo Municipal, mediante el correspondiente acuerdo que emane de su seno, variar el monto establecido a este fondo, según solicitud escrita y justificada que haga la Alcaldía Municipal, con el fin de satisfacer las necesidades institucionales de los servicios o materiales y suministros que deben adquirirse por este medio.
