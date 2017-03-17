@@ -15,3 +15,4 @@ Reglamento a la Ley de Fortalecimiento de las Pequeñas y Medianas Empresas, Ley
 | --- | --- | --- |
 | 1 | 2015-11-23 | la propia norma |
 | 2 | 2016-03-11 | Resolución 17 (2016-03-11) |
+| 3 | 2017-03-17 | Resolución 15 (2017-03-17) |
