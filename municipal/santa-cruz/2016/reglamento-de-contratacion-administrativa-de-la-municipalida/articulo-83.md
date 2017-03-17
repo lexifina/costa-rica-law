@@ -1,0 +1,1 @@
+Artículo 83.-Firmas en la orden de compra: La competencia para firmar órdenes hasta el monto de ¢2,000,000.00 (Dos millones de colones) corresponde a El Proveedor (a) y a El Director (a) Financiero (a) o en su defecto a El Encargado (a) de Presupuesto, superiores a los ¢2,000,000.00 (Dos millones de colones) corresponde al El Proveedor (a) y a El Alcalde (sa).

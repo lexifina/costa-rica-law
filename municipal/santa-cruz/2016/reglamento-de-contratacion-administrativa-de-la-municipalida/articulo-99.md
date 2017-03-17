@@ -1,0 +1,1 @@
+Artículo 99.-Forma de pago: La forma de pago se indicara en el cartel, los pagos a oferentes y a los arrendatarios se harán contra la prestación del servicio, recepción de bienes o avance de la obra, a entera satisfacción de la Municipalidad de Santa Cruz, resultando absolutamente nula cualquier estipulación en contrario. En contratos de arrendamiento se pagará por mes vencido.

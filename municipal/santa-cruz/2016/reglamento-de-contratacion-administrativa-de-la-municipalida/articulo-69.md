@@ -1,0 +1,1 @@
+Artículo 69.-Procedimiento para llevar a cabo Remates: el procedimiento para llevar a cabo remates se realizará en estricto apego al Manual de Procedimientos que la Municipalidad establezca para ello.

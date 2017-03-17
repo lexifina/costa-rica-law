@@ -1,0 +1,1 @@
+Artículo 38.-Requisitos previos: Previo a la decisión inicial de contratación, La Unidad Solicitante aportará certificación sobre la existencia de disponibilidad presupuestaria, siendo este requisito indispensable sobre el proceso de adquisición.

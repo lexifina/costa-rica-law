@@ -1,0 +1,1 @@
+Artículo 30.-El Procedimiento para la elaboración del plan de adquisiciones: El Proveedor (a) Municipal tomando como insumo el Presupuesto Ordinario aprobado y tomando el código presupuestario y la partida específica preparará el Plan de Adquisiciones municipal en el mes de diciembre.
