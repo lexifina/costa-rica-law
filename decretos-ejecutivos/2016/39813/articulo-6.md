@@ -1,0 +1,1 @@
+Artículo 6.- Sistemas de prevención contra caídas. Todo ente generador, debe contar con un sistema de prevención de caídas, para trabajar en alturas y para permitir el libre acceso a los puertos de muestreo o monitoreo en la chimenea o ducto.

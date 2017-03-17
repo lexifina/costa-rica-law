@@ -1,0 +1,1 @@
+Artículo 17.-Anexos. Los Anexos I, II y III del presente reglamento, se consideran parte integral y vinculante del mismo. El profesional responsable deberá justificar cualquier variación a lo establecido en los citados anexos y deberá demostrar que es estructuralmente equivalente o de resistencia y seguridad igual o superior.

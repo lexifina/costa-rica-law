@@ -1,0 +1,1 @@
+Artículo 12.- Orden. Se deberá mantener el orden y la limpieza durante la medición, tanto en la superficie de trabajo o plataforma, como en la escalera y sus alrededores, para evitar accidentes producto de un inadecuado ambiente de trabajo.

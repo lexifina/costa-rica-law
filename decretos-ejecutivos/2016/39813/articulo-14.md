@@ -1,0 +1,5 @@
+Artículo 14.-Elementos de protección personal.
+14.1 Elementos básicos. Todos los integrantes de los grupos de trabajo de los laboratorios, que realicen actividades en terreno, deben contar con los elementos de protección básicos: i. Casco de seguridad. fi. Guantes de cuero curtido al cromo @ara riesgos de accidentes por fricción y raspaduras). Protección ocular. Zapatos de seguridad. Arnés de seguridad.
+14.2 Según las condiciones de riesgo detectadas, se deben utilizar uno o más de los siguientes elementos de seguridad: i. Buzo de algodón para riesgos de quemaduras. H. Protección auditiva Mascarillas. Guantes para riesgos de quemaduras.
+14.3 El uso obligatorio de estos equipos de protección personal u otros específicos según las condiciones de riesgo de la actividad del ente generador, debe estar señalizado en el área de trabajo.
+14.4 El día de la medición todos los integrantes del equipo, deben contar con los dispositivos de protección personal requeridos, los que se deben encontrar en buen estado.

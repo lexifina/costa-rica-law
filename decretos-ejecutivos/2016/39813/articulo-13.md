@@ -1,0 +1,1 @@
+Artículo 13.- Responsabilidad de la verificación del muestreo. Es responsabilidad del ente generador, designar un encargado de verificar que durante la medición, se cumpla con el presente reglamento. El encargado deberá facilitar las labores del laboratorio, dentro de las instalaciones del ente generador.
