@@ -1,0 +1,1 @@
+Transitorio I: Modificación del Manual de Revisión Técnica Vehicular. En el plazo de tres meses posteriores a la publicación del presente reglamento, el Consejo de Seguridad Vial, deberá coordinar lo necesario para la modificación del Manual de Revisión Técnica Vehicular, con el fin de que se incluyan las disposiciones contenidas en esta normativa.

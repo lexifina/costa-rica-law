@@ -1,0 +1,1 @@
+Transitorio II: Una vez en vigencia el presente Reglamento, de existir causa justificable debidamente demostrada por los concesionarios y permisionarios de ruta regular, podrá ampliarse la aplicación del artículo 5 hasta por tres meses.
