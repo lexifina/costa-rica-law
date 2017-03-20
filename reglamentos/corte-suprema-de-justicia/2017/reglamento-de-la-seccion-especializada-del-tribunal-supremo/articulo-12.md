@@ -1,0 +1,1 @@
+Artículo 12.—Formalidades. En aras de garantizar que sea ágil y sencillo, bastará que el recurso de reconsideración contenga los elementos básicos de cualquier gestión recursiva: señalamiento de los vicios que se consideran cometidos en el fallo, fundamentación jurídica para sustentar los argumentos de objeción y, si los hubiera, los elementos de prueba adicionales.

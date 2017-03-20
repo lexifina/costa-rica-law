@@ -1,0 +1,1 @@
+Artículo 9º—Normativa aplicable. Para el trámite y resolución de los asuntos sometidos a su conocimiento, la Sección Especializada se estará a las normas de los diversos instrumentos que conforman el ordenamiento jurídico electoral, según lo detalla el numeral 3 del Código Electoral.

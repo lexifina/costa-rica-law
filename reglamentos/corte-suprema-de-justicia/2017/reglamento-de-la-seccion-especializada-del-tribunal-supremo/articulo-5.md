@@ -1,0 +1,1 @@
+Artículo 5º—Sesiones. Para la resolución de los asuntos, esa Sección Especializada del Tribunal Supremo de Elecciones sesionará cada vez que sea convocada por su presidente, para lo cual se tomará en cuenta el volumen de causas en trámite y la cantidad de expedientes en fase de resolución.

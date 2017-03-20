@@ -1,0 +1,1 @@
+Artículo 10.—Carácter de los fallos. Las resoluciones de la Sección Especializada, salvo que sean impugnadas conforme a las reglas expuestas en el siguiente capítulo, tendrán el carácter de cosa juzgada material y, por consiguiente, no podrán ser discutidas en otra sede distinta a la electoral.

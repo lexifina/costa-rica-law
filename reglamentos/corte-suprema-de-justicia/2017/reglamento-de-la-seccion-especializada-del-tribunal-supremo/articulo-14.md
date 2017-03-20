@@ -1,0 +1,1 @@
+Artículo 14.—Órgano de revisión del fallo. El recurso de reconsideración que se interponga contra la sentencia de la Sección Especializada, será de conocimiento del Pleno propietario. Tal instancia realizará una revisión amplia y detallada del fallo cuestionado frente a los argumentos planteados por la parte interesada.
