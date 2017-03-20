@@ -10,10 +10,10 @@ Considerando que:
 7. Los requisitos y declaraciones juradas que se requieren para la inscripción del auditor externo independiente y la firma auditora externa deben estar detallados en la regulación con el fin de uniformar la documentación a presentar por todos aquellos que desean participar y ser inscritos en el Registro de Auditores Elegibles.
 8. Según se consigna en el artículo 13 del acta de la sesión 873-2010 del 13 de agosto del 2010, en acatamiento de lo estipulado en el Artículo 361, numeral 2, de la Ley General de la Administración Pública, se remitió en consulta la citada propuesta de reglamento.
 dispuso, en firme:
-aprobar el Reglamento de auditores externos aplicable a los sujetos fiscalizados por la Superintendencia General de Entidades Financieras, Superintendencia General de Valores, Superintendencia de Pensiones y Superintendencia General de Seguros, cuyo texto se copia seguidamente:
-“REGLAMENTO DE AUDITORES EXTERNOS APLICABLE
-A LOS SUJETOS FISCALIZADOS POR LA SUGEF,
-SUGEVAL, SUPEN Y SUGESE
+aprobar el Reglamento General de Auditores Externos(*), cuyo texto se copia seguidamente:
+“REGLAMENTO GENERAL DE AUDITORES EXTERNOS(*)
+(*) (Así modificada su denominación en sesiones N° 1318-2017 y 1319-2017 del 13 y 20 de marzo de 2017. Anteriormente se indicaba: “Reglamento de auditores externos aplicable a los sujetos fiscalizados por la SUGEF, SUGEVAL, SUPEN y SUGESE.”
 CAPÍTULO I
 Disposiciones generales
-Artículo 1º—Objeto. Este Reglamento tiene por objeto establecer las normas que regirán para la contratación de las firmas de auditorías externas o auditores externos independientes, en los servicios de auditoría prestados a los sujetos supervisados por la Superintendencia General de Entidades Financieras, la Superintendencia General de Valores, la Superintendencia de Pensiones y la Superintendencia General de Seguros, en adelante denominadas las “Superintendencias”.
+Artículo 1º—Objeto. Este Reglamento tiene por objeto regular la contratación y la prestación de los servicios de auditoría externa.
+(Así reformado en sesiones N° 1318-2017 y 1319-2017 del 13 y 20 de marzo de 2017)
