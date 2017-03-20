@@ -14,3 +14,4 @@ Reglamento de audiciones para ingresar a la Orquesta Sinfónica Nacional de Cost
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-03 | la propia norma |
+| 2 | 2017-03-20 | Decreto Ejecutivo 40353 (2017-03-20) |
