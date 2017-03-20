@@ -1,3 +1,5 @@
+(Derogado)
+(Esta norma fue derogada por la disposición transitoria única del Reglamento General de Gestión de la Tecnología de Información, aprobado en sesión N° 1318-2017 y 1319-2017 del 13 y 20 de marzo de 2017.)
 El Consejo Nacional de Supervisión del Sistema Financiero en el artículo 6 del acta de la sesión 773-2009, celebrada el 20 de febrero del 2009,
 considerando que:
 1. El aumento de la dependencia tecnológica que caracteriza el desarrollo de las actividades financieras, la escala y los costos de las inversiones actuales y futuras en sistemas de información, la proliferación de amenazas y eventos no deseados; y el potencial que poseen las tecnologías para cambiar drásticamente los procesos de negocio de las organizaciones, hacen necesario que la gestión del riesgo tecnológico se realice de acuerdo con las mejores prácticas en la materia.

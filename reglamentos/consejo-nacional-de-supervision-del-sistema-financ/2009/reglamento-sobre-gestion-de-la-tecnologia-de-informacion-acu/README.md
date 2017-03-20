@@ -17,3 +17,4 @@ Reglamento sobre gestión de la tecnología de información (Acuerdo SUGEF 14-09
 | 2 | 2009-08-07 | Reglamento 796 (2009-08-07) |
 | 3 | 2010-05-21 | Reglamento 853 (2010-05-21) |
 | 4 | 2012-10-09 | Reglamento 1005 (2012-10-09) |
+| 5 | 2017-03-20 | Reglamento 1318 (2017-03-20) |
