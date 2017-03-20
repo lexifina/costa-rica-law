@@ -1,1 +1,0 @@
-Artículo 22.—Funciones. Las funciones del Auditor Interno serán establecidas en los respectivos manuales de funciones institucionales de cargos y clases, o instrumento similar que tenga en vigencia el Tribunal Registral Administrativo. En todo caso dichas funciones tomaran en cuenta lo que al respecto establece la normativa emitida por la Contraloría General de la República.

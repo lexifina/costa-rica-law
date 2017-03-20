@@ -1,1 +1,0 @@
-Artículo 45.—Informes dirigidos a los titulares subordinados. Cuando los informes de auditoría contengan recomendaciones dirigidas a los titulares subordinados, se procederá según lo dispuesto en el artículo 36 de la Ley General de Control Interno, Nº 8292.

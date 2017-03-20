@@ -1,2 +1,0 @@
-Artículo 13.—Dependencia orgánica y regulaciones aplicables. El Auditor Interno dependerá orgánicamente del Tribunal, quién le establecerá las regulaciones de tipo administrativo que le serán aplicables.
-Los demás funcionarios de la Auditoría Interna estarán sujetos a las disposiciones administrativas aplicable al resto del personal. Lo anterior, de conformidad con el artículo Nº 24 de la Ley General de Control Interno, Nº 8292.
