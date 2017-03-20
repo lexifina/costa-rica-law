@@ -1,0 +1,11 @@
+N° 40274-MP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE LA PRESIDENCIA
+Con fundamento en lo dispuesto en los artículos 118 y 140 inciso 14 de la Constitución Política.
+Decretan:
+Artículo único.—Amplíese la convocatoria a sesiones extraordinarias a la Asamblea Legislativa, realizada por el Decreto Ejecutivo N° 40039-MP, a fin de que se conozca los siguientes proyecto de ley:
+EXPEDIENTE 19.187: REFORMA A LA LEY N° 4760, CREACIÓN DEL INSTITUTO MIXTO DE AYUDA SOCIAL CREASE UN NUEVO CAPÍTULO VII Y QUE EL ACTUAL CAPÍTULO VII PASE A SER CAPÍTULO VIII.
+EXPEDIENTE 19.710: “LEY PARA PROMOVER LA PARTICIPACIÓN DE LAS PERSONAS JÓVENES EN LAS ELECCIONES MUNICIPALES”, (ANTERIORMENTE DENOMINADO): LEY CONTRA EL ADULTOCENTRISMO POLÍTICO Y LA DISCRIMINACIÓN CONTRA LAS PERSONAS JÓVENES EN LAS ELECCIONES MUNICIPALES.
+EXPEDIENTE 20.312: REFORMA DEL ARTÍCULO 10 DE LA LEY SOBRE REGISTRO, SECUESTRO Y EXAMEN DE DOCUMENTOS PRIVADOS E INTERVENCIÓN DE LAS COMUNICACIONES, LEY N° 7425, DE 9 DE AGOSTO DE 1994.
+Rige a partir del veinte de marzo de dos mil diecisiete.
+Dado en la Presidencia de la República, a los veinte días del mes de marzo de dos mil diecisiete.
