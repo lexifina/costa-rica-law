@@ -1,3 +1,0 @@
-4. Montos a pagar por modalidad y vigencia de los contratos. La Empresa, pagará al beneficiario en retribución por los servicios ambientales en las modalidades de reforestación, conservación, regeneración natural y plantaciones establecidas, los montos establecidos en la Resolución RRG-9496-2009 del 19 de febrero del 2009. Según se detalla en el cuadro adjunto.
-[imagen]
-Para aquellos contratos que ingresen después del año 2009, los montos de los PSA serán ajustados aplicando la tasa de inflación definida por el Programa Macroeconómico del Banco Central, según lo establecido por la ARESEP en la Resolución RRG-9496-2009 del 19 de febrero del 2009.
