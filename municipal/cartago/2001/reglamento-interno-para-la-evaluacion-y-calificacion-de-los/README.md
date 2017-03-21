@@ -14,3 +14,4 @@ Reglamento Interno para la Evaluación y Calificación de los Servicios de los T
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-29 | la propia norma |
+| 2 | 2017-03-21 | Reglamento municipal 0 (2017-03-21) |
