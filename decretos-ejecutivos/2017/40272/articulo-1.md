@@ -1,0 +1,9 @@
+N° 40272-MP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE LA PRESIDENCIA
+Con fundamento en lo dispuesto en los artículos 118 y 140 inciso 14 de la Constitución Política.
+Decretan:
+Artículo 1º—Amplíese la convocatoria a sesiones extraordinarias a la Asamblea Legislativa, realizada por el Decreto Ejecutivo N° 40039-MP, a fin de que se conozca los siguientes proyectos de ley:
+EXPEDIENTE 18.524: DECLARACIÓN DEL 7 DE AGOSTO COMO EL DÍA DE LA PAZ FIRME Y DURADERA.
+EXPEDIENTE 19.116: REDUCCIÓN DEL PLAZO ENTRE LA PRIMERA Y LA SEGUNDA RONDA ELECTORAL (REFORMA DEL ARTÍCULO 138 DE LA CONSTITUCIÓN POLÍTICA).
+EXPEDIENTE 20.117: REFORMA DEL ARTÍCULO 96 DE LA CONSTITUCIÓN POLÍTICA DE LA REPÚBLICA DE COSTA RICA SOBRE EL FINANCIAMIENTO DE LOS PARTIDOS POLÍTICOS.
