@@ -50,6 +50,7 @@ Plantillas de campo (por plantilla) | DST-AS-13 | plantilla | ¢80,00
 Examen de continuidad (por examen) | DST-AS-14 | examen | ¢100.000,00
 Emisión de criterio (por oficio) | DST-AS-15 | oficio | ¢12.000,00
 Reposición de certificación (por certificación) | DST-AS-16 | certificación | ¢20.000,00
+Estudios semidetallados y detallados de suelos y capacidad de uso de la tierra (Así adicionado el código anterior por el artículo 1° del decreto ejecutivo N° 40374 del 22 de marzo del 2017) | DST-AS-17 (Así adicionado el código anterior por el artículo 1° del decreto ejecutivo N° 40374 del 22 de marzo del 2017) | revisión (Así adicionado el código anterior por el artículo 1° del decreto ejecutivo N° 40374 del 22 de marzo del 2017) | ¢25.000,00 (Así adicionado el código anterior por el artículo 1° del decreto ejecutivo N° 40374 del 22 de marzo del 2017)
 Laboratorio de suelos
 Nombre | Código de tarifa | Unidad medida | Tarifa
 Análisis químico completo (pH, Al, Ca, Mg, K, P, Fe, Zn, Cu, Mn) (suelo por muestra) | DST-LSF-01 | muestra | ¢7.000,00
@@ -107,21 +108,22 @@ Diagnóstico molecular PCR básico (por muestra) | DST-LFP-21 | por muestra | ¢
 Diagnóstico molecular PCR tiempo real (por muestra) | DST-LFP-22 | por muestra | ¢72.000,00
 Bambú
 Nombre | Código de tarifa | Unidad medida | Tarifa
-Caña de 8,9 cm (3,5 pulgadas) sin tratar | EELD-BA-01 | caña de 10 m (mínimo) | ¢900,00
-Caña de 10,16 cm (4 pulgadas) sin tratar | EELD-BA-02 | caña de 10 | ¢1.200,00
-| | m (mínimo) |
-Caña de 11,43 cm (4,5 pulgadas) sin tratar | EELD-BA-03 | caña de 10 m (mínimo) | ¢1.500,00
-Caña de 12,7 cm (5 pulgadas) sin tratar | EELD-BA-04 | caña de 10 m (mínimo) | ¢1.900,00
-Caña de 13,97 cm (5,5 pulgadas) sin tratar | EELD-BA-05 | caña de 10 m (mínimo) | ¢2.300,00
-Caña de 15 cm (6 pulgadas) sin tratar | EELD-BA-06 | caña de 10 m (mínimo) | ¢2.700,00
-Caña de 16,5 cm (6,5 pulgadas) o más, sin tratar | EELD-BA-07 | caña de 10 m (mínimo) | ¢3.200,00
-Caña de 8,9 cm (3,5 pulgadas) curada | EELD-BA-08 | caña de 10 m (mínimo) | ¢2.900,00
-Caña de 10,16 cm (4 pulgadas) curada | EELD-BA-09 | caña de 10 m (mínimo) | ¢3.700,00
-Caña de 11,43 cm (4,5 pulgadas) curada | EELD-BA-10 | caña de 10 m (mínimo) | ¢4.700,00
-Caña de 12,7 cm (5 pulgadas) curada | EELD-BA-11 | caña de 10 m (mínimo) | ¢5.900,00
-Caña de 13,97 cm (5,5 pulgadas) curada | EELD-BA-12 | caña de 10 m (mínimo) | ¢7.100,00
-Caña de 15 cm (6 pulgadas) curada | EELD-BA-13 | caña de 10 m (mínimo) | ¢8.200,00
-Caña de 16,5 cm (6,5 pulgadas) o más, curada | EELD-BA-14 | caña de 10 m (mínimo) | ¢9.900,00
+Caña de 8,9 cm (3,5 pulgadas) sin tratar | EELD-BA-01 | caña de 6 m (mínimo) (Así reformada la medida anterior por el artículo 1° del decreto ejecutivo N° 40374 del 22 de marzo del 201) | ¢900,00
+Caña de 10,16 cm (4 pulgadas) sin tratar | EELD-BA-02 | caña de 6 m (mínimo) (Así reformada la medida anterior por el artículo 1° del decreto ejecutivo N° 40374 del 22 de marzo del 2017) | ¢1.200,00
+| | | | |
+| | |
+Caña de 11,43 cm (4,5 pulgadas) sin tratar | EELD-BA-03 | caña de 6 m (mínimo) (Así reformada la medida anterior por el artículo 1° del decreto ejecutivo N° 40374 del 22 de marzo del 2017) | ¢1.500,00
+Caña de 12,7 cm (5 pulgadas) sin tratar | EELD-BA-04 | caña de 6 m (mínimo) (Así reformada la medida anterior por el artículo 1° del decreto ejecutivo N° 40374 del 22 de marzo del 2017) | ¢1.900,00
+Caña de 13,97 cm (5,5 pulgadas) sin tratar | EELD-BA-05 | caña de 6 m (mínimo) (Así reformada la medida anterior por el artículo 1° del decreto ejecutivo N° 40374 del 22 de marzo del 2017) | ¢2.300,00
+Caña de 15 cm (6 pulgadas) sin tratar | EELD-BA-06 | caña de 6 m (mínimo) (Así reformada la medida anterior por el artículo 1° del decreto ejecutivo N° 40374 del 22 de marzo del 2017) | ¢2.700,00
+Caña de 16,5 cm (6,5 pulgadas) o más, sin tratar | EELD-BA-07 | caña de 6 m (mínimo) (Así reformada la medida anterior por el artículo 1° del decreto ejecutivo N° 40374 del 22 de marzo del 2017) | ¢3.200,00
+Caña de 8,9 cm (3,5 pulgadas) curada | EELD-BA-08 | caña de 6 m (mínimo) (Así reformada la medida anterior por el artículo 1° del decreto ejecutivo N° 40374 del 22 de marzo del 2017) | ¢2.900,00
+Caña de 10,16 cm (4 pulgadas) curada | EELD-BA-09 | caña de 6 m (mínimo) (Así reformada la medida anterior por el artículo 1° del decreto ejecutivo N° 40374 del 22 de marzo del 2017) | ¢3.700,00
+Caña de 11,43 cm (4,5 pulgadas) curada | EELD-BA-10 | caña de 6 m (mínimo) (Así reformada la medida anterior por el artículo 1° del decreto ejecutivo N° 40374 del 22 de marzo del 2017) | ¢4.700,00
+Caña de 12,7 cm (5 pulgadas) curada | EELD-BA-11 | caña de 6 m (mínimo) (Así reformada la medida anterior por el artículo 1° del decreto ejecutivo N° 40374 del 22 de marzo del 2017) | ¢5.900,00
+Caña de 13,97 cm (5,5 pulgadas) curada | EELD-BA-12 | caña de 6 m (mínimo) (Así reformada la medida anterior por el artículo 1° del decreto ejecutivo N° 40374 del 22 de marzo del 2017) | ¢7.100,00
+Caña de 15 cm (6 pulgadas) curada | EELD-BA-13 | caña de 6 m (mínimo) (Así reformada la medida anterior por el artículo 1° del decreto ejecutivo N° 40374 del 22 de marzo del 2017) | ¢8.200,00
+Caña de 16,5 cm (6,5 pulgadas) o más, curada | EELD-BA-14 | caña de 6 m (mínimo) (Así reformada la medida anterior por el artículo 1° del decreto ejecutivo N° 40374 del 22 de marzo del 2017) | ¢9.900,00
 Planta para cerca | EELD-BA-15 | planta | ¢2.000,00
 Semilla de raíz (cepa) | EELD-BA-16 | unidad | ¢12.000,00
 Semilla germinada | EELD-BA-17 | unidad | ¢2.000,00

@@ -15,3 +15,4 @@ Fija tarifas que regir√°n para los servicios del Instituto Nacional de Innovaci√
 | --- | --- | --- |
 | 1 | 2004-06-18 | la propia norma |
 | 2 | 2015-08-21 | Decreto Ejecutivo 39284 (2015-08-21) |
+| 3 | 2017-03-22 | Decreto Ejecutivo 40374 (2017-03-22) |
