@@ -1,0 +1,1 @@
+Artículo 8: La Junta Directiva del Colegio podrá brindar apoyo económico a estos grupos para la adquisición de implementos deportivos o de otra índole, relativo a su actividad, de acuerdo a la representación y cuando su presupuesto así lo permita.

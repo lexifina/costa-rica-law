@@ -1,0 +1,13 @@
+Artículo 4: La Junta Directiva es quien avala la conformación de cada Grupo Organizado pudiendo existir solamente uno por cada disciplina o actividad.
+La Junta Directiva emitirá las directrices que correspondan para implementar este reglamento, según lo siguiente:
+a) Para oficializar un grupo, el mismo deberá cumplir con lo siguiente:
+1. Presentar una solicitud formal por escrito para que se le acepte como grupo organizado.
+2. Lista de sus integrantes, indicando nombres, quienes son contadores y quienes familiares, números de cédula y carné.
+3. Nombrar y presentar por escrito la Junta Directiva del Grupo encargado de dirigir la actividad. Esta Junta Directiva deberá estar conformada únicamente por Contadores. El presidente de cada grupo será el representante, quien fungirá como enlace ante las Autoridades del Colegio. En caso de ausencia, dicho presidente podrá nombrar un suplente dentro de su junta directiva en representación suya. En el caso de las disciplinas colectivas como el fútbol la Junta Directiva deberá estar compuesta por los representantes de los equipos que han sido debidamente aprobados por la Junta Directiva del CCPCR, cuyas decisiones estarán sujetas a la aprobación previa de la Comisión de Deportes del CCPCR.
+4. Presentar a lo interno del Grupo su Normativa, para que regule su función, indicando la actividad específica en que se desarrollará, objetivos, obligaciones de sus miembros, sanciones disciplinarias internas, financiamiento y otros de importancia.
+5. Para el reconocimiento de los Equipos o Grupos de Actividades Colectivas, estos deberán cumplir de igual forma con los requisitos señalados para los Grupos Organizados y acatar lo que establece el presente reglamento y toda norma que involucre su actividad.
+6. La Junta Directiva del Colegio se reserva el derecho de aprobar o improbar las solicitudes tanto de Grupos como de Equipos, si no cumple con los requisitos o si se considera innecesario, redundante o fútil la creación de un nuevo grupo.
+7. La cantidad de grupos y subgrupos organizados en las diferentes disciplinas y actividades estará en función de la capacidad de infraestructura física que dispone el Colegio.
+b) Una vez oficializado el grupo organizado, deberá cumplir con lo siguiente:
+l. Aportar la lista de sus miembros y junta directiva con la información estipulada en el inciso a2. del presente artículo, que deberá actualizar en los meses de enero y julio de cada año y cuando el Colegio así lo requiera.
+2. Apegarse al reglamento de ingreso y permanencia del Club Social y al Reglamento de Credenciales y toda normativa vigente en la Institución.
