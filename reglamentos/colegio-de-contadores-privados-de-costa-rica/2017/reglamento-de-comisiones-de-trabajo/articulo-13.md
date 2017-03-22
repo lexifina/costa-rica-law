@@ -1,0 +1,1 @@
+Artículo 13: Para efectos de aprobación de un acta, sólo están habilitados para deliberar y aprobar el acta anterior los integrantes que estuvieron presentes en la sesión anterior, es decir quien no estuvo presente debe abstenerse.

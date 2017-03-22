@@ -1,0 +1,1 @@
+Artículo 8: En caso de ausencia del Director, éste será sustituido por el coordinador quien, para todo efecto legal, sin subordinación alguna, ejercerá las competencias de director del órgano con la plenitud de los poderes y deberes que las mismas contienen.

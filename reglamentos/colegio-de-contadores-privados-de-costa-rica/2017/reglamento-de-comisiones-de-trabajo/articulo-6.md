@@ -1,0 +1,1 @@
+Artículo 6: Las Comisiones de Trabajo sesionarán ordinariamente HASTA dos veces al mes y extraordinariamente cuando la Junta Directiva lo autorice. Su lugar de reunión será en las instalaciones Centrales del Colegio. Salvo en casos excepcionales previamente aprobados por la junta directiva podrán reunirse fuera de las instalaciones.
