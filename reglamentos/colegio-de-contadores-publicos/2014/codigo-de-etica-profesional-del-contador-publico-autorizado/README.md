@@ -15,3 +15,4 @@ Código de ética profesional del Contador Público autorizado y de la Contadora
 | --- | --- | --- |
 | 1 | 2015-01-16 | la propia norma |
 | 2 | 2016-11-14 | Reglamento 14 (2016-11-14) |
+| 3 | 2017-03-22 | Reglamento 7 (2017-03-22) |

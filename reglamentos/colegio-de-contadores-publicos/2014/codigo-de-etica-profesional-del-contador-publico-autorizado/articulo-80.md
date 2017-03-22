@@ -1,1 +1,2 @@
-Artículo 80.—La prescripción de la acción disciplinaria se interrumpirá con la interposición de la denuncia ante el Colegio de Contadores Públicos o bien en caso de trámites de oficio por la Fiscalía, con la comunicación del informe preliminar a la Junta Directiva; también se interrumpirá en ambos casos, con todas las actuaciones que se realizaren con motivo del trámite del procedimiento disciplinario.
+Artículo 80. La prescripción de la acción disciplinaria se interrumpirá con la notificación del auto de apertura.
+(Así reformado en sesión N° 7 del 22 de marzo de 2017)
