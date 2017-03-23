@@ -1,0 +1,1 @@
+Artículo 5º—Cumplimiento. El uso del presente Reglamento es de carácter obligatorio para todo el personal de la Institución, sean jerarcas y/o subordinados (as), quienes responderán de su debido uso, aplicación y cumplimiento.

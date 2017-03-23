@@ -1,0 +1,1 @@
+Artículo 22.—Los documentos de respaldo de operaciones por Caja Chica deberán mantenerse en la Contabilidad y a disposición de instancias de control para posibles revisiones, sin detrimento de las regulaciones establecidas en la Ley y en el Reglamento General de Archivo y en las directrices que sobre esta materia hayan girado otros órganos de fiscalización y control.

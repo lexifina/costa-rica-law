@@ -1,0 +1,1 @@
+Artículo 12.—Monto para la constitución de Fondos de Caja Chica. La Gerencia General, determinará con la debida justificación técnica el monto máximo del Fondo de Caja Chica, según las necesidades de cada Unidad o Dependencia de la Institución, tomando en cuenta los movimientos mensuales, la disponibilidad y programación de estos fondos.

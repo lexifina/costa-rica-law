@@ -1,0 +1,1 @@
+Artículo 4º—Divulgación. La Gerencia General deberá divulgar y dar a conocer el presente Reglamento a los Responsables del manejo y custodia de Fondos de Caja Chica, así como al personal que por sus competencias requieran hacer uso del mismo.

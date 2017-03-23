@@ -1,0 +1,1 @@
+Artículo 8º—Delegación de responsabilidad del Fondo de Caja Chica En ausencia del Responsable del Fondo de Caja Chica, la Jefatura inmediata debe designar a la persona funcionaria que asumirá la responsabilidad del mismo, previo arqueo y recepción del Fondo, mismo que debe realizarse en presencia de un delegado de la Tesorería Institucional.
