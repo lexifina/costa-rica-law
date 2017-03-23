@@ -1,0 +1,1 @@
+Artículo 2°—Composición del Comité de Auditoría. El Comité de Auditoría es un cuerpo colegiado integrado por un mínimo de tres miembros propietarios, todos deben ser directores del CONASSIF, uno de los cuales es el presidente del CONASSIF, quien a su vez presidirá dicho comité. El nombramiento de los miembros del Comité debe efectuarse por el término de tres años renovable.

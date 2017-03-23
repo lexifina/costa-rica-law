@@ -1,0 +1,2 @@
+Artículo 5°—Plan de trabajo anual de la Auditoría Interna. El Auditor Interno solicitará al Comité de Auditoría los requerimientos de estudios para incorporarlos al plan de trabajo anual de conformidad con los criterios de importancia relativa, costo-beneficio, valor agregado, viabilidad y valoración de riesgos.
+El Comité podrá solicitar estudios adicionales en cualquier momento del año para la consideración del Auditor Interno, quien comunicará la viabilidad técnica, así como el impacto en el plan de trabajo anual.
