@@ -1,0 +1,1 @@
+Artículo 19.- Una vez aprobadas las políticas y procedimientos por las instancias competentes, en un plazo no mayor de tres (3) días hábiles a su comunicación la Unidad de Planificación Institucional deberá actualizarlos en el Centro de Información Virtual que se tiene dispuesto para tal efecto en la institución.

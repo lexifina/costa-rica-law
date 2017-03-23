@@ -1,0 +1,1 @@
+Artículo 14.- Para todos los casos de elaboración o modificación de los Procedimientos y políticas se deberá utilizar uniformemente el mismo formato definido en el procedimiento establecido para este fin.

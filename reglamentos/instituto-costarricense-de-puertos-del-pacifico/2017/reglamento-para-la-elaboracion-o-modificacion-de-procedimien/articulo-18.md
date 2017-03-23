@@ -1,0 +1,1 @@
+Artículo 18.- Aquellos procedimientos en donde se involucre a otras Unidades, éstas deberán de ser partícipes del proceso y dejar constancia de su acuerdo a los términos en que el procedimiento ha sido redactado.

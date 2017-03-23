@@ -1,0 +1,1 @@
+Artículo 11.- Junta Promotora de Turismo: Los procedimientos y las políticas de la Junta Promotora serán aprobados en el seno de su Junta Directiva, luego de haber realizado todo el proceso de revisión por parte de Planificación Institucional y emisión del criterio legal, como apoyo a dicha Junta.

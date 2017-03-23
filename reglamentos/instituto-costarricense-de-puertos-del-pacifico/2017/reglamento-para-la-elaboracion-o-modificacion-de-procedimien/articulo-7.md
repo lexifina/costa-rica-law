@@ -1,0 +1,1 @@
+Artículo 7.- Director o Superior Jerárquico de la Unidad Funcional Solicitante: Responsable de coordinar las actividades entre Planificación Institucional y la Unidad Funcional Solicitante. Así como de emitir el aval definitivo al procedimiento.

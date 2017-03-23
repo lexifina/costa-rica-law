@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de Aplicación: El presente reglamento rige todo lo relativo a la elaboración y/o modificación de los procedimientos y manuales de políticas documentales del INCOP, su aplicación y el correspondiente registro.

@@ -1,0 +1,1 @@
+Artículo 20- La Junta Directiva por solicitud de la Presidencia Ejecutiva u otro motivo de interés institucional, se reserva el derecho de solicitar el trámite de un nuevo procedimiento o la modificación de alguno ya existente o las políticas, para lo cual se debe contar con los criterios técnicos correspondientes.

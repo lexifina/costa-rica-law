@@ -1,0 +1,1 @@
+Artículo 16- Planificación Institucional una vez recibida la solicitud de las Unidades funcionales, elaborará un cronograma de actividades donde se detalle el proceso de elaboración o modificación del procedimiento, el cual deberá ser coherente con la magnitud del trabajo a realizar.
