@@ -1,0 +1,15 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica en el numeral 3 del artículo 8 del acta de la sesión 5763-2017, celebrada el 22 de marzo del 2017,
+considerando que:
+A. La Ley Orgánica del Banco Central de Costa Rica, Ley 7558, en el inciso b), del artículo 2, establece que uno de los objetivos del Banco Central de Costa Rica es velar por el buen uso de las Reservas Monetarias Internacionales de la Nación, para el logro de la estabilidad económica general. Asimismo, el inciso b), del artículo 3, instituye que una de las funciones del Ente Emisor es la custodia y la administración de las Reservas Monetarias Internacionales.
+B. Las Políticas para la Gestión de las Reservas Internacionales, en el artículo 8, Designación de administradores externos, párrafo 2, establecen que: “…la Junta Directiva establecerá el tamaño, objetivos, criterios de evaluación del programa de administración y otros elementos que considere necesarios. Para esto considerará los análisis técnicos que efectúe la División Gestión de Activos y Pasivos. La aprobación final del gestor y firma de los contratos respectivos quedará a cargo de la administración del Banco Central de Costa Rica.”.
+C. Este Cuerpo Colegiado, mediante el artículo 5, del acta de la sesión 5743-2016, celebrada 26 de octubre del 2016, instruyó a la Administración del Banco Central de Costa Rica a trasladar los fondos de la cartera de Deutsche Bank Asset Management hacia BlackRock.
+D. La Administración efectuó un estudio de mercado para pre seleccionar gestores externos para las Reservas.
+E. Es conveniente contar con varios administradores, a fin de evitar la concentración de activos en un solo gestor, obtener los beneficios de la inversión de los recursos bajo filosofías distintas y comparar los resultados entre gestores. Adicionalmente, los costos de la industria han caído de manera considerable durante los últimos años, por lo que contar con varios administradores resulta mucho menos costoso que en el pasado.
+F. Las reservas disminuyeron durante el 2016, por lo que es conveniente trasladar fondos hacia la cartera de Liquidez para mantener el porcentaje de esta cartera en, al menos, un 50% de las reservas, acorde con el porcentaje establecido en la Asignación Estratégica de Activos, vigente a la fecha.
+dispuso en firme:
+Modificar el artículo 24 de las Políticas para la Gestión de las Reservas Internacionales para que en adelante se lea:
+“Artículo 24.—Gestión
+Una parte de esta cartera será gestionada por la División Gestión de Activos y Pasivos, según las políticas de inversión definidas en este capítulo. Además, se podrá dar en administración externa una porción de esta cartera, que será gestionada igualmente, según las políticas de inversión definidas en este capítulo.
+Adicionalmente, el Banco Mundial gestionará la otra proporción de esta cartera, según los términos definidos en estas políticas y en el convenio Reserve Advisory & Management Program y sus modificaciones, firmado entre el Banco Central de Costa Rica y dicha entidad.”
+Rige a partir del 23 de marzo del 2017.
