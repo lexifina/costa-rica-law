@@ -1,0 +1,1 @@
+TRANSITORIO III.- El Tribunal Electoral del Colegio contará con un plazo de seis meses, a partir de la publicación de esta ley para presentar a la Asamblea General el proyecto del reglamento de elecciones, el cual deberá ser aprobado por la Asamblea General en un plazo no mayor a dos meses.
