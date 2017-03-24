@@ -11,5 +11,5 @@ Nabo | Brassica rapa | 80 | 97 | 1
 Col de Bruselas | Brassica oleracea var.gemmifera | 75 | 98 | 1
 Col de milán | Brassica oleracea var.sabauda | 75 | 98 | 1
 Repollo Morado, Col Roja o Col Lombarda | Brassica olearacea var.capitata f.rubra | 80 | 98 | 1
-Berro | Nasturtium officinasle | 75 | 98 | 1
+Berro (Así reformado el producto anterior mediante publicación en La Gaceta N° 60 del 24 de marzo del 2017) | Nasturtium officinasle (Así reformado el producto anterior mediante publicación en La Gaceta N° 60 del 24 de marzo del 2017) | 75 (Así reformado el procentaje anterior mediante publicación en La Gaceta N° 60 del 24 de marzo del 2017) | 95 (Así reformado el porcentaje anterior mediante publicación en La Gaceta N° 60 del 24 de marzo del 2017) | 1 (Así reformado el punto anterior mediante publicación en La Gaceta N° 60 del 24 de marzo del 2017)
 Rige a partir del 07 de diciembre del año 2016.

@@ -14,3 +14,4 @@ Normas mínimas de Laboratorio para la Verificación Oficial de Estándares de C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-07 | la propia norma |
+| 2 | 2017-03-24 | Acuerdo 0 (2017-03-24) |
