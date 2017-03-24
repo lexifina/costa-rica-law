@@ -1,0 +1,1 @@
+Artículo 2º- Colaboración y Coordinación: Las dependencias del sector público y del sector privado, dentro del marco legal respectivo, podrán contribuir con recursos económicos y/o logísticos, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, para la exitosa realización de la actividad indicada.
