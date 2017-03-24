@@ -1,3 +1,2 @@
-CAPÍTULO IX
-Del Tribunal de Honor
-Artículo 41.—El Tribunal de Honor del Colegio es un organismo integrado por el Presidente de la Junta Directiva, el Secretario y tres miembros del Colegio, sorteados de una lista de diez, elaborada por la Asamblea General en sesión ordinaria.
+Artículo 41.—El Fondo de Mutualidad y Subsidios a que este Capítulo se refiere puede ser refundido en uno común a todos los colegios profesionales del país, siempre que los miembros del Colegio vayan a recibir iguales o superiores beneficios a los aquí establecidos. El acuerdo de fusión deberá ser tomado en Asamblea General Extraordinaria convocada al efecto, y por una votación no menor de los dos tercios de los colegiados presentes.
+(Corrida su numeración por el artículo 3° de la ley N° 9420 del 7 de febrero del 2017, que lo traspaso del antiguo artículo 36 al 41)

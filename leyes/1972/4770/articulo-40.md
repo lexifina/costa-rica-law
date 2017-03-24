@@ -1,1 +1,6 @@
-Artículo 40.—Si a su juicio fuere necesario el criterio de la Asamblea General se someterá a su conocimiento y se emitirá como opinión del Colegio la contenida en el dictamen acogido por la mayoría de los colegiados presentes.
+Artículo 40.—El Reglamento que se dicte deberá contener por lo menos las siguientes previsiones:
+a) El monto, la forma y las circunstancias en que cada prestación deberá otorgarse;
+b) Las causas por las cuales esos beneficios pueden suspenderse o perderse;
+c) Las circunstancias excepcionales en que, a pesar de no pagar las cuotas mensuales, algunos colegiados pueden tener derecho a esos beneficios; y
+d) La forma de invertir las reservas del Fondo. En todo caso, las inversiones deben hacerse en las condiciones más sólidas de garantía y rentabilidad, y buscar, en primer lugar, el beneficio social de los colegiados.
+(Corrida su numeración por el artículo 3° de la ley N° 9420 del 7 de febrero del 2017, que lo traspaso del antiguo artículo 35 al 40)

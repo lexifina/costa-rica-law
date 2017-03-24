@@ -1,0 +1,2 @@
+Artículo 61.—Esta ley deroga la N° 1231 de 20 de noviembre de 1950 y cualquier otra disposición que se le oponga.
+(Corrida su numeración por el artículo 3° de la ley N° 9420 del 7 de febrero del 2017, que lo traspaso del antiguo artículo 52 al 57. Posteriormente mediante el artículo 4° de la indicada ley se adiciona un nuevo artículo 54 y se corre nuevamente la numeración y se traspasa del antiguo artículo 57 al 58. Mediante el artículo 5° de dicha norma se corre nuevamente la numeración traspasando el antiguo artículo 58 al 61)
