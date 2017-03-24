@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE GOICOECHEA
+El Concejo Municipal del Cantón de Goicoechea, en Sesión Ordinaria N° 08-17, celebrada el 20 de febrero de 2017, Artículo 14°, aprobó:
+Modificar el artículo 4 del Reglamento para el Uso de Vehículos Municipales, para que se lea de la siguiente forma:
+Artículo 4°.—Todos los vehículos municipales son de uso administrativo, los cuales deberán estar rotulados según el Manual de Imagen Institucional vigente; por lo que no pueden haber vehículos de uso discrecional ni semi discrecional. Ningún funcionario público de esta Municipalidad podrá disponer de vehículos oficiales o administrativos de forma permanente para el cumplimiento de las funciones que le corresponde llevar a cabo, sea cual sea su puesto y nivel jerárquico. El Concejo Municipal no puede acordar el uso discrecional de vehículos municipales, así como el titular de la Alcaldía Municipal no lo puede autorizar administrativamente.
+Guadalupe, 28 de febrero del 2017
