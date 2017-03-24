@@ -1,3 +1,2 @@
-CAPÍTULO X
-Disposiciones Finales
-Artículo 49.—Dentro del término de un año, a partir de la vigencia de la presente ley, el Colegio queda obligado a promulgar el Código de Ética Profesional que ha de regir la conducta de sus miembros. El Código debe ser aprobado en una Asamblea General Extraordinaria convocada al efecto.
+Artículo 49.—En el caso del inciso b) del artículo 42, el Presidente del Tribunal ofrecerá inmediatamente su mediación y hará dentro de la mayor discreción, todos los esfuerzos necesarios para resolver el conflicto. Si la mediación fracasare y sólo a gestión de parte, pondrá el asunto en conocimiento del Tribunal, el cual comisionará a uno de sus miembros para que levante una información secreta, con intervención de los colegiados en pugna. Salvo el caso de que el conflicto se resuelva por otras vías conciliatorias, el Tribunal deberá fallar a la menor brevedad posible y en conciencia.
+(Corrida su numeración por el artículo 3° de la ley N° 9420 del 7 de febrero del 2017, que lo traspaso del antiguo artículo 44 al 49)

@@ -1,0 +1,73 @@
+N° 9420
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+REFORMA PARCIAL DE LA LEY N.º 4770, LEY ORGÁNICA DEL COLEGIO DE
+LICENCIADOS Y PROFESORES EN LETRAS, FILOSOFÍA, CIENCIAS Y
+ARTES, DE 13 DE OCTUBRE DE 1972, Y SUS REFORMAS
+ARTÍCULO 1.- Se reforman los artículos 2, 13, 14, 15, 16, 18, 19, 20, 23, 41, 42, 45, 46 y 48 de la Ley N.º 4770, Ley Orgánica del Colegio de Licenciados y Profesores en Letras, Filosofía, Ciencias y Artes, de 13 de octubre de 1972, y sus reformas. Los textos son los siguientes:
+"Artículo 2.- Son fines del Colegio:
+a) Promover e impulsar el estudio de las letras, la filosofía, las ciencias, las artes, lo mismo que la enseñanza de todas ellas.
+b) Elevar y defender el prestigio de los miembros del Colegio y velar por el fiel cumplimiento de la ética profesional, por parte de todos y cada uno de los colegiados.
+c) Estimular y mantener el espíritu de unión y solidaridad entre los afiliados y defender los derechos profesionales y económicos de estos.
+d) Propiciar cualquier plan que tienda a conseguir el mejoramiento económico y el bienestar espiritual de sus integrantes.
+e) Contribuir al progreso de la educación y la cultura, mediante actividades propias o en cooperación con las universidades públicas y privadas, otras entidades e instituciones afines.
+f) Gestionar o establecer sistemas solidarios de protección social a los afiliados, especialmente, un fondo de mutualidad y subsidios que los proteja en caso de infortunio o muerte."
+"Artículo 13.- Son deberes de la Asamblea General:
+a) Establecer las políticas que orienten la formulación del plan de desarrollo del Colegio, de conformidad con los fines que señala la presente ley.
+b) Elegir, por mayoría simple de los votos válidos recibidos, los cargos para el Tribunal Electoral y el Tribunal de Honor.
+c) Dictar, modificar y derogar los reglamentos internos que requiere el Colegio para su funcionamiento y el cumplimiento de sus fines.
+d) Dictar, modificar y derogar el Código Deontológico del Colegio.
+e) Examinar la liquidación del presupuesto, así como examinar y aprobar el presupuesto ordinario para cada ejercicio anual y los presupuestos extraordinarios, cuando corresponda, a propuesta de la Junta Directiva del Colegio.
+f) Aprobar el monto de la cuota de ingreso y mensuales que deberán pagar los colegiados. La Junta Directiva aportará el estudio técnico que justifique el monto de la cuota. Dicha cuota no podrá ser inferior a la que se encuentre vigente.
+g) Establecer las cuotas extraordinarias que pagarán las personas colegiadas.
+h) Examinar los actos de la Junta Directiva y del fiscal, así como conocer las quejas interpuestas en su contra o de sus integrantes, por infringir esta ley, su reglamento o los reglamentos emitidos por el Colegio.
+i) Conocer toda apelación en alzada a las resoluciones de la Junta Directiva, la Fiscalía, el Tribunal de Honor y el Tribunal Electoral. El recurso debe interponerlo el interesado dentro de los tres días hábiles posteriores a la publicación del acta respectiva por los medios que utiliza el Colegio, conocidos de previo por los colegiados. El plazo correrá el día siguiente de la publicación.
+j) Determinar cuáles miembros de la Junta Directiva deben tener funciones y por las que recibirán dietas o estipendios, según corresponda, y establecer el mecanismo para fijar el monto.
+k) Establecer el mecanismo para fijar el pago del estipendio para el fiscal, así como su monto.
+l) Decidir acerca de la creación o supresión de las comisiones ad hoc y juntas regionales, previo estudio de factibilidad ordenado por la Junta Directiva, las cuales deben coadyuvar con el desarrollo de los fines del Colegio. Sus funciones, integración y competencias serán determinadas por el reglamento general aprobado por la Asamblea.
+m) Examinar el cumplimiento de los fines del Colegio a la luz de la realidad corporativa y educativa nacional.
+n) Las demás funciones que le asigne esta ley y su reglamento.
+Artículo 14.- La Asamblea General sesionará ordinariamente una vez al año en el mes de noviembre, para examinar la gestión del Colegio en aspectos económicos, administrativos y educativos; recibir y examinar los informes del presidente, la Tesorería y la Fiscalía; nombrar por un período de tres años a las personas integrantes del Tribunal de Honor y el Tribunal Electoral, y tomar los acuerdos que se consideren necesarios para la buena marcha del Colegio.
+Artículo 15.- Para que se realice una Asamblea General ordinaria o extraordinaria se necesita una convocatoria que se publicará al menos diez días antes de la fecha de esta, una vez, en el diario oficial La Gaceta y al menos una vez en un diario de circulación nacional, y será responsabilidad de la Junta Directiva realizarla.
+La facultad de convocar extraordinariamente corresponde a la Junta Directiva, cuando actúe por sí. En caso de solicitud escrita de no menos del cero coma cinco por ciento (0,5%) de la membresía activa, en pleno goce de sus derechos, la Junta Directiva deberá convocar obligatoriamente en un plazo no mayor a treinta días hábiles.
+La Asamblea General extraordinaria solo podrá conocer de los asuntos incluidos en la convocatoria debidamente publicada.
+Artículo 16.- Las asambleas se realizarán en primera convocatoria con la mitad más uno del total de los colegiados activos, y una hora después, en segunda convocatoria, si está presente un mínimo de cien colegiados. Nunca la Asamblea podrá sesionar con menos de setenta y cinco colegiados.
+En caso de que el desarrollo de una asamblea general ordinaria no logre culminar su orden del día, la Asamblea General aprobará la ampliación de esta, indicando la fecha, el lugar y la hora para su continuación. La Junta Directiva deberá publicarlo en un medio de circulación nacional."
+"Artículo 18.- La Junta Directiva es el órgano ejecutivo del Colegio y estará conformada por las personas integrantes que sean electas para ocupar el cargo de la Presidencia, la Vicepresidencia, la Secretaría, la Prosecretaría, la Tesorería, la Vocalía uno y la Vocalía dos. La integración deberá asegurar la representación paritaria de ambos sexos, de manera que la diferencia entre el total de hombres y mujeres no sea superior a uno.
+Artículo 19.- La elección de los miembros de la Junta Directiva y la Fiscalía se llevará a cabo mediante un proceso electoral convocado por el Tribunal Electoral del Colegio, en el mes de marzo.
+La votación podrá realizarse por medios o dispositivos electrónicos, o de manera presencial en los centros de votación que, para tal propósito, deban habilitarse en todas las regionales que posea el Colegio en el territorio nacional, y otros que alternativamente puedan establecerse para tal efecto a criterio del Tribunal Electoral.
+Artículo 20.- Todos los puestos de las personas integrantes de la Junta Directiva serán electos por un período de tres años y no podrán ser reelectos, ni electos consecutivamente en ningún puesto del Colegio hasta tanto se cumpla un período de tres años, a partir de la fecha en que finaliza su nombramiento.
+Las vacantes de la Junta Directiva originadas por incapacidad permanente en el desempeño del cargo, renuncia, muerte u otras que no le permita cumplir con el periodo al que fue nombrado, se completarán por medio del Tribunal Electoral del Colegio, que procederá a llenarla llamando a ejercer el cargo, hasta por el resto del período que queda, al colegiado que por cantidad de votos ocupó el lugar inmediato inferior al último que resultó electo, respetando la representación paritaria de ambos sexos, de manera que la diferencia entre el total de hombres y mujeres no sea superior a uno. En caso de que esa persona colegiada no pueda ocupar la vacante, se llamará por orden descendente de los resultados de la votación en el cargo a quienes aparezcan en la misma postulación. De no existir candidato para completar esta vacante, el Tribunal Electoral del Colegio convocará a elecciones para ese puesto.
+No podrán formar parte de la misma Junta Directiva las personas unidas por parentesco de consanguinidad o afinidad hasta el segundo grado inclusive.
+En caso de producirse un nombramiento contra esta prohibición, se tendrá por nulo el más reciente, y en igualdad de condiciones será nulo el recaído en la persona que tenga menor tiempo de ser miembro del Colegio. La nulidad en el nombramiento a que hace referencia este artículo deberá ser declarada por el Tribunal Electoral del Colegio."
+"Artículo 23.- Son deberes de la Junta Directiva:
+a) Supervisar la ejecución de los acuerdos de la Asamblea General.
+b) Formular el plan de desarrollo del Colegio, de conformidad con lo establecido por la Asamblea General.
+e) Realizar la convocatoria a las asambleas generales ordinarias y extraordinarias, de conformidad con el reglamento de esta ley.
+d) Poner a disposición de las personas colegiadas los informes de la Presidencia, la Tesorería, la Fiscalía, el presupuesto y otros documentos que formen parte del orden del día, al menos diez días hábiles previos a la fecha de realización de la Asamblea, tanto en la página electrónica oficial del Colegio como físicamente.
+e) Nombrar a los miembros del Comité Consultivo, así como a las personas colegiadas que representarán al Colegio en las actividades y en los organismos en que este deba estar representado por la ley o los reglamentos, la integración atenderá el principio de paridad de género.
+f) Nombrar las comisiones de trabajo que estime convenientes, integrando de forma paritaria estas comisiones.
+g) Nombrar y remover al personal del Colegio que dependan directamente de la Junta Directiva de este; en ningún caso, tales nombramientos podrán recaer en miembros de la Junta Directiva, salvo los casos expresamente permitidos por esta ley, los reglamentos del Colegio o los acuerdos de la Asamblea General.
+h) Aprobar las solicitudes de ingreso y reingreso al Colegio, lo mismo que las renuncias o retiros que hagan sus miembros colegiados, conforme a las disposiciones de esta ley y los reglamentos del Colegio.
+i) Administrar el Fondo de Mutualidad y Subsidios.
+j) Determinar, de conformidad con los fines del Colegio, las materias que han de ser objeto de estudio y debate en las reuniones académicas y las asambleas del Colegio, los contenidos también podrán ser regulados por la mayoría de sus agremiados.
+k) Promover actividades nacionales e internacionales que coadyuven al cumplimiento de los fines del Colegio y que propicien el intercambio entre las personas miembros del Colegio y los miembros de otras corporaciones afines.
+l) Formular, de conformidad con las políticas emitidas por la Asamblea y los planes de desarrollo del Colegio, el proyecto de presupuesto ordinario del Colegio para el ejercicio anual siguiente, y los extraordinarios cuando corresponda, y someterlos a la Asamblea General para su estudio y aprobación.
+m) Examinar las cuentas de la Tesorería y autorizar todo gasto que exceda el monto de diez salarios base, determinado en la Ley N.º 7337, de 5 de mayo de 1993, y sus reformas.
+n) Aprobar las publicaciones que se hagan por cuenta del Colegio y subvencionar las que estime convenientes para el desarrollo y la difusión de las letras, la filosofía, las ciencias, las artes y las disciplinas educacionales.
+ñ) Elaborar y presentar, por medio de su presidente, un informe anual de rendición de cuentas a la Asamblea General ordinaria.
+o) Proponer a la Asamblea General, a iniciativa suya o de los colegiados, la creación o eliminación, según corresponda, de juntas regionales y comisiones ad hoc, todo de conformidad con estudios previos para cada caso.
+p) Conocer y elevar al Tribunal de Honor las denuncias que se presenten a conocimiento de la Junta Directiva.
+q) Tomar los acuerdos necesarios para el cumplimiento de los fines del Colegio y su buena marcha.
+r) Otras atribuciones que esta ley y los reglamentos le señalen."
+"Artículo 41.- El Tribunal de Honor del Colegio es un órgano que actúa con independencia de funciones, integrado por cinco miembros colegiados de reconocida solvencia moral, tres propietarios y dos suplentes, nombrados según lo establecido en el inciso b) del artículo 13 de esta ley, para un período de tres años, sin derecho a reelección consecutiva. Para aspirar a una nueva elección, deben esperar al menos tres años, a partir de la fecha de expiración de su último período. Para la elección del Tribunal de Honor, se considerará la paridad de género, de manera que la diferencia entre el total de hombres y mujeres no sea superior a uno.
+Artículo 42.- El Tribunal de Honor analizará y resolverá:
+a) Las denuncias que le hayan sido elevadas por el fiscal o la fiscal del Colegio con motivo de la transgresión al Código Deontológico del Colegio.
+b) Los conflictos graves que afecten el honor, surgidos entre dos o más miembros del Colegio.
+e) Las quejas que presenten los particulares contra alguno o algunos miembros del Colegio, por hechos que signifiquen desdoro para la profesión o cargos contra la moral, el ejercicio legal, ético y competente de la profesión y las buenas costumbres de sus miembros.
+d) Otras facultades que esta ley y los reglamentos le señalen."
+"Artículo 45.- En el caso del inciso c) del artículo 42, el Tribunal de Honor solo conocerá de las denuncias que se presenten formalmente y por escrito ante la Fiscalía del Colegio. El escrito deberá contener, necesariamente, una relación circunstanciada de los hechos que se acusan y de las pruebas que respaldan cada uno de esos hechos. Además, si el colegiado fuera absuelto, el denunciante deberá hacer una manifestación expresa autorizando al Colegio para que publique el fallo del Tribunal de Honor. El Tribunal de Honor no conocerá las denuncias que se presenten sin los requisitos anteriormente indicados.
+Artículo 46.- Es función del Tribunal de Honor imponer sanciones. Las deliberaciones y votaciones del Tribunal de Honor serán secretas y las sanciones que puede imponer son las siguientes:
+a) Amonestación escrita o apercibimiento.
+b) Suspensión temporal de la condición de colegiado, plazo que no será mayor a cinco años."
+"Artículo 48.- Las personas integrantes del Tribunal de Honor no podrán conocer de causas en las cuales estén interesados igualmente sus familiares consanguíneos o afines hasta el tercer grado inclusive. Y deberán separarse de este cuando una de las partes así lo pida, con base en razones de indudable seriedad y fundamento. En estos casos, la Junta Directiva del Colegio procederá a reintegrar el Tribunal de Honor, para el caso concreto, de acuerdo con lo establecido por el Tribunal Electoral del Colegio en su reglamento."

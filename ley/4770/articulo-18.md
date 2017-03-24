@@ -1,1 +1,2 @@
-Artículo 18.—La Junta Directiva es el órgano ejecutivo del Colegio y estará compuesta de un Presidente, un Vicepresidente, un Secretario, un Prosecretario, un Fiscal, un Tesorero y tres Vocales.
+Artículo 18.- La Junta Directiva es el órgano ejecutivo del Colegio y estará conformada por las personas integrantes que sean electas para ocupar el cargo de la Presidencia, la Vicepresidencia, la Secretaría, la Prosecretaría, la Tesorería, la Vocalía uno y la Vocalía dos. La integración deberá asegurar la representación paritaria de ambos sexos, de manera que la diferencia entre el total de hombres y mujeres no sea superior a uno.
+(Así reformado por el artículo 1° de la ley N° 9420 del 7 de febrero del 2017)
