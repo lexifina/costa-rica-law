@@ -1,0 +1,1 @@
+Transitorio II.- Los entes públicos que no posean páginas web, dispondrán de un plazo máximo improrrogable de cuatro años, para contratar los servicios requeridos, posibilitando cumplir con las obligaciones referidas en el artículo 148 bis del Reglamento a la Ley de Contratación Administrativa.
