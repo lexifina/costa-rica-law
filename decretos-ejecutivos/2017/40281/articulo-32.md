@@ -1,0 +1,1 @@
+Artículo 32- Las entidades públicas no podrán invertir, ni mantener recursos en ningún tipo de fondo de inversión, cuentas corrientes y cuentas de ahorro que se manejen como inversiones a la vista, cuentas con saldos pactados o en cualquier otra figura de depósito, excepto lo indicado en el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 10- Las entidades públicas, ministerios y órganos desconcentrados, cubiertos por el ámbito de la AP, sin perjuicio de lo establecido en otras disposiciones legales, serán responsables de garantizar que se cuente con los recursos presupuestarios para el cumplimiento de las prioridades, objetivos, estrategias y metas fijadas en el PND y el PNIP.

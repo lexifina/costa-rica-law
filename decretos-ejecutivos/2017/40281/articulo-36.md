@@ -1,0 +1,1 @@
+Artículo 36- Los ministerios, entidades públicas y órganos desconcentrados deberán velar porque los proyectos de inversión a financiarse con endeudamiento público estén contemplados en el PNIP elaborado por MIDEPLAN, así como en el BPIP.

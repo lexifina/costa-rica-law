@@ -1,0 +1,1 @@
+Artículo 26- Las entidades públicas, ministerios y órganos desconcentrados, deberán implementar acciones tendientes a incrementar los niveles de ejecución, tanto física como financiera de los proyectos de inversión.

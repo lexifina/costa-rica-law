@@ -1,0 +1,1 @@
+Artículo 8º - Las entidades públicas, los mm1sterios y los órganos desconcentrados deberán presentar al MH, los informes sobre evaluación obtenidos, de acuerdo con el artículo 55 de la Ley Nº 8131 y 74 de su reglamento.

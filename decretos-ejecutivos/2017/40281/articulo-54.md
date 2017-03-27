@@ -1,0 +1,1 @@
+Artículo 54- Las plazas de las entidades públicas y órganos desconcentrados aprobadas por la AP, deben incluirse en la relación de puestos y contar con el contenido económico en su presupuesto. En caso de no contar con contenido presupuestario deberán ser eliminadas.

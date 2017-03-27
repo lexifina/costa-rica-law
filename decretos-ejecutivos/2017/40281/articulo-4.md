@@ -1,0 +1,1 @@
+Artículo 4°-Las entidades públicas, los m1msterios y los órganos desconcentrados deberán utilizar como base para la GpRD, el documento denominado "Marco conceptual y estratégico para el fortalecimiento de la Gestión para Resultados en el Desarrollo en Costa Rica", elaborado por MIDEPLAN y el MH.

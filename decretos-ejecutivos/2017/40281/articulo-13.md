@@ -1,0 +1,1 @@
+Artículo 13- Las entidades públicas y órganos desconcentrados podrán solicitar ampliaciones al gasto presupuestario máximo cuando tengan ingresos adicionales (transferencias, superávit libre y específico, entre otros) a los contemplados en el artículo 12 de estas Directrices.

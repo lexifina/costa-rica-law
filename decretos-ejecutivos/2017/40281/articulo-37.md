@@ -1,0 +1,2 @@
+Artículo 37- Las entidades públicas y órganos desconcentrados que generen recursos provenientes de la venta de bienes y servicios y/o cooperaciones no reembolsables, procurarán cubrir con estos, los gastos de contrapartida local, los estudios de perfiles, prefactibilidad y factibilidad, que se requieran para la ejecución de proyectos financiados con endeudamiento.
+En casos que no se pueda cumplir con lo anterior, se presentará la debida justificación ante la Dirección de Crédito Público, para que se pronuncie al respecto.

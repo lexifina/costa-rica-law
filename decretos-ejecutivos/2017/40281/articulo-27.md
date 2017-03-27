@@ -1,0 +1,2 @@
+Artículo 27- Las entidades públicas que tengan capacidad financiera, podrán llevar a cabo la construcción de nuevos edificios o la adquisición de inmuebles, solamente si implica un ahorro en el pago de alquileres y no repercute en el desarrollo de sus actividades sustantivas, previo estudio que demuestre su factibilidad económica y financiera.
+Dichos proyectos deberán contar con el aval del Ministro Rector y con el código del BPIP.

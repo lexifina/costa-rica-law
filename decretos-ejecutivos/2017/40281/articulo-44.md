@@ -1,0 +1,1 @@
+Artículo 44- Las revaloraciones, modificaciones de escala, otros conceptos salariales, ajustes y aspectos técnicos, emitidos por la DGSC, cuando corresponda, podrán hacerse extensivos por parte de la AP, a las entidades homologadas y no homologadas, previa presentación a la STAP, del estudio técnico correspondiente, para el dictamen del Órgano Colegiado.

@@ -1,0 +1,1 @@
+Artículo 71- El incumplimiento de lo dispuesto en estas directrices podrá acarrear la aplicación del régimen de responsabilidad establecido en el titulo X, artículos 107 y siguientes de la Ley Nº 8131 ya citada.

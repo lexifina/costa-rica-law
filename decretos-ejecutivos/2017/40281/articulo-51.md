@@ -1,0 +1,2 @@
+Artículo 51- A los puestos de servicios especiales se les aplicará el mismo sistema de clasificación y valoración utilizado para los de cargos fijos, siempre y cuando dichos puestos sean similares en naturaleza, funciones y demás factores de clasificación.
+En caso de que los puestos de servicios especiales no reúnan las condiciones anteriormente citadas, las entidades podrán presentar a la ST AP para su valoración, la propuesta correspondiente, respaldada por el estudio técnico respectivo.
