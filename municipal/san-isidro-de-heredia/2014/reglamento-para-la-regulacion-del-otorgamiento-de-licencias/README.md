@@ -14,3 +14,4 @@ Reglamento para la regulación del otorgamiento de licencias para la comercializ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-16 | la propia norma |
+| 2 | 2017-03-27 | Reglamento municipal 21 (2017-03-27) |
