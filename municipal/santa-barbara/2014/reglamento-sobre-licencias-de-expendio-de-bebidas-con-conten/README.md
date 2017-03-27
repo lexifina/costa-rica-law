@@ -19,3 +19,4 @@ Reglamento sobre licencias de expendio de bebidas con contenido alcohólico de l
 | 4 | 2016-01-19 | Reglamento municipal 298 (2016-01-19) |
 | 5 | 2016-04-26 | Reglamento municipal 312 (2016-04-26) |
 | 6 | 2016-11-21 | Reglamento municipal 30 (2016-11-21) |
+| 7 | 2017-03-27 | Reglamento municipal 48 (2017-03-27) |

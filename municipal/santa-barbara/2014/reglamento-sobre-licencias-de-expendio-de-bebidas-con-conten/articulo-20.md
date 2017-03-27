@@ -1,1 +1,1 @@
-Artículo 20.—Restricciones temporales. La Municipalidad aplicará la restricción de venta de bebidas con contenido alcohólico en todo el Cantón de Santa Bárbara, indistintamente de la fecha, los días Jueves y Viernes Santos.
+Artículo 20.—(Derogado en sesión N° 48 del 27 de marzo de 2017)
