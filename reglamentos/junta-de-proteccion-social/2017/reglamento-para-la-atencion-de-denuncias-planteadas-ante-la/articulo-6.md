@@ -1,0 +1,1 @@
+Artículo 6º—Denuncias anónimas: No se tramitarán denuncias presentadas de forma anónima. De manera excepcional se atenderán este tipo de denuncias, cuando aporten elementos de evidencia suficientes y se encuentren soportadas en medios probatorios idóneos que permitan iniciar una investigación.

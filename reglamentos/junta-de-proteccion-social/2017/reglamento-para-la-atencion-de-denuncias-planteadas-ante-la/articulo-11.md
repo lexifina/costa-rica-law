@@ -1,0 +1,9 @@
+Artículo 11.—Causales para la desestimación y archivo de las denuncias: La Auditoría Interna desestimará o archivará las denuncias recibidas cuando se presente alguna de las siguientes situaciones:
+a. Si no corresponde al ámbito de competencia señalado en el artículo N° 2 del presente Reglamento.
+b. Si al realizar el análisis previo de la denuncia, la misma se refiere a intereses particulares exclusivos del denunciante en relación con conductas ejercidas u omitidas por la Administración, salvo que de la información aportada en la denuncia se logre determinar que existen aspectos de relevancia que ameritan ser investigados por la Auditoría Interna.
+c. Si los hechos denunciados corresponde investigarlos o ser discutidos en otras sedes, ya sean administrativas o judiciales.
+d. Si producto del análisis costo-beneficio realizado por el funcionario a cargo del análisis, se determina que el costo aproximado de la investigación fuera superior al beneficio que se obtendría al atender la denuncia y ante esa situación se debe dejar constancia del análisis realizado.
+e. Si se determina que el asunto denunciado también se encuentra presentado ante otras instancias con competencia para realizar la investigación, ejercer el control y las potestades disciplinarias. En tal caso se coordinará a efecto de no duplicar el uso de los recursos públicos y establecer la instancia que deberá atender la denuncia.
+f. Si la denuncia presentada fuera reiteración o reproducción de otras similares sin que se aporten elementos nuevos, y que ya hubieran sido resueltas con anterioridad por la Auditoría Interna o por otras unidades de la Administración Activa.
+g. Si los hechos denunciados o la documentación aportada por el denunciante son indeterminados y no dan mérito para ser elevados a la instancia que corresponde.
+h. Si los hechos denunciados se refieren a problemas de índole laboral que se presentaron entre el denunciante y la Administración Pública denunciada.
