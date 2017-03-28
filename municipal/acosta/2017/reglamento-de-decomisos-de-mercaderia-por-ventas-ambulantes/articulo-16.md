@@ -1,0 +1,1 @@
+Artículo 16.—Patentes otorgadas. Aquellas actividades de ventas ambulantes amparadas en patentes otorgadas antes de la entrada en vigencia de este reglamento, podrán seguir funcionando en los sitios autorizados hasta que se agote su periodo de vigencia.
