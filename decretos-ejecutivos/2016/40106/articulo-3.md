@@ -1,0 +1,1 @@
+Artículo 3° .- Deróguese el Artículo 63 del Reglamento de Organización del Ministerio de Seguridad Pública, Decreto Ejecutivo Nº 36366-SP del 2 de noviembre del 2010, publicado en el Diario Oficial La Gaceta Nº 21 del 31 de enero del 2011 y sus reformas.
