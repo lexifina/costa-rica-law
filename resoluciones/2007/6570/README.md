@@ -14,3 +14,4 @@ Establece requisitos de admisibilidad para toda petición tarifaria que se prese
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-06 | la propia norma |
+| 2 | 2017-03-28 | Resolución 104 (2017-03-28) |
