@@ -2,7 +2,6 @@ COLEGIO DE LICENCIADOS Y PROFESORES
 MANUAL DE POLÍTICAS Y PROCEDIMIENTOS
 DEPARTAMENTO ADMINISTRATIVO Y FINANCIERO
 (Nota de Sinalevi: Sobre este tema el Colegio de Licenciados y Profesores en Letras, Filosofía, Ciencias y Artes, había emitido anteriormente el Manual de Políticas y Procedimientos para los subsidios económicos, y publicado en La Gaceta N° 197 del 11 de octubre de 2012)
-[imagen]
 (Nota de Sinalevi: Esta norma fue reformada parcialmente y reproducido su texto de forma íntegra mediante publicación en el Alcance N° 288 a La Gaceta N° 234 del 6 de diciembre del 2016, por lo que se reproduce a continuación:)
 OBJETIVO:
 Establecer lineamientos que permitan unificar las acciones a seguir en los trámites de subsidio económico según el Reglamento del Fondo de Mutualidad y Subsidios.
@@ -28,13 +27,19 @@ además cumplir con los siguientes requisitos:
 a) Presentar documento original extendido por la Comisión Nacional de Emergencia o autoridad competente, en el que se indique el hecho acaecido, en el caso de una propiedad también presentar informe registral donde demuestre que la propiedad está a su nombre, en caso de que esté a nombre del cónyuge deberá presentar certificado de matrimonio (vigencia de tres meses a partir de la fecha de
 expedición).
 b) Ser colegiado/a al momento de la catástrofe.
-c) A partir de la fecha del siniestro, tendrá dos meses de plazo, para realizar el reclamo del subsidio, de lo contrario prescribirá su derecho al reclamo.
+c) A partir de la fecha del siniestro, tendrá seis meses de plazo, para realizar el reclamo del subsidio, de lo contrario prescribirá su derecho al reclamo.
+(Así reformado el inciso anterior mediante sesión N° 031-2017 el 28 de marzo del 2017)
+d) El monto será correspondiente al que esté vigente al momento de la catástrofe.
+(Así adicionado el inciso anterior mediante sesión N° 031-2017 el 28 de marzo del 2017)
 4. Para el subsidio por situaciones de emergencia por el fallecimiento demostrado del padre, madre, hijos, o cónyuge de la persona colegiada el colegiado deberá presentar lo indicado en el punto 1 y además los siguientes requisitos:
 a) Original y fotocopia del certificado de defunción.
 b) Original de la certificación de nacimiento (en el caso de muerte de familiar de padre, madre o hijos) o certificación de matrimonio (en el caso de muerte del
 cónyuge), emitida por el Registro Civil (esta última con una vigencia de tres meses a partir de la fecha de expedición).
 c) El subsidio se entregará siempre y cuando la persona que lo solicita sea colegiada al momento de la calamidad.
-d) A partir de la fecha del fallecimiento, la persona colegiada tendrá cuatro meses de plazo para realizar el reclamo del subsidio, de lo contrario prescribirá su derecho al reclamo.
+d) A partir de la fecha del fallecimiento, la persona colegiada tendrá seis meses de plazo para realizar el reclamo del subsidio, de lo contrario prescribirá su derecho al reclamo.
+(Así reformado el inciso anterior mediante sesión N° 031-2017 el 28 de marzo del 2017)
+e) El monto será correspondiente al que esté vigente al momento del fallecimiento.
+(Así adicionado el inciso anterior mediante sesión N° 031-2017 el 28 de marzo del 2017)
 5. La Comisión del Fondo de Mutualidad y Subsidios, conformada por el Analista del Fondo de Mutualidad y Subsidios, el Encargado de la Unidad de Cobros y la Jefatura Financiera, trasladará a la Junta Directiva la recomendación respecto de los trámites de subsidio económico que cumplan con lo establecido en el Reglamento del Fondo de Mutualidad y Subsidios y ésta Política, para su análisis y aprobación de los giros respectivos.
 6. La comisión del Fondo de Mutualidad y Subsidios informará por escrito a través de la secretaria de la Dirección Ejecutiva a más tardar 15 días naturales, posteriores a la finalización del mismo y en forma bimensual (en marzo, en mayo, en julio, en setiembre,
 en noviembre y en enero) a la Junta Directiva el detalle de los trámites de subsidios económicos que no cumplen con los requisitos establecidos para que sean analizados por
