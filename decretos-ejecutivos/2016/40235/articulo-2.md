@@ -1,0 +1,4 @@
+Artículo 2º. - Deróguese el inciso b) del artículo 20 del Decreto Ejecutivo número 39696-H denominado "Reglamento de Creación de la Comisión de Coordinación del Área de Ingresos del Ministerio de Hacienda" y córrase la numeración de los incisos, a efecto de que en lo sucesivo se lea de la siguiente forma:
+"Artículo 20 - Sobre las funciones del Comité de Control. El Comité de Control será el encargado de supervisar, fiscalizar, verificar y evaluar el cumplimiento de las obligaciones hacendarías, tributarías y aduaneras, según lo establecido en el Plan de Acciones Conjuntas. La ejecución de estas acciones será coordinada a través del Comité de Control, cuyas funciones serán:
+a) Establecer mecanismos de coordinación en el trabajo.
+b) Coordinar la implementación de las acciones conjuntas de control y fiscalización, establecidas en el plan aprobado por la Comisión."
