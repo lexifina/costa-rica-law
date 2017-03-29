@@ -1,11 +1,12 @@
-Artículo 12º—El permiso de transporte terrestre de turismo, podrá cancelarse, tanto al operador como al Transportista, por las siguientes causales:
-1) Interferencia con rutas de transporte público remunerado de personas, modalidad regular, cuando técnicamente sea comprobado por el Consejo de Transporte Público.
-2) Operar el permiso para el transporte de turistas en una modalidad distinta a la autorizada.
+Artículo 12°-. El permiso de transporte terrestre de turismo, se cancelará, al Operador o al Transportista, por las siguientes causales:
+1) Realizar actividades que corresponden al transporte público remunerado de personas, modalidad regular, cuando técnicamente sea comprobado por el Consejo de Transporte Público.
+2) Utilizar el permiso para el transporte de turistas en una modalidad distinta a la autorizada.
 3) No contar con la revisión técnica, seguros, derecho de circulación o el canon del Consejo de Transporte Público al día.
-4) No estar al día con sus obligaciones con la Caja Costarricense del Seguro Social.
-5) No contar con las unidades debidamente rotuladas de manera permanente, en los términos en que lo defina el Consejo de Transporte Público.
-6) Cierre del operador turístico
-7) Cuando el ICT determine que la relación entre el Operador Turístico y el Transportista es inexistente o simulada sin importar que medie o no un pago, para efectos de obtener el correspondiente permiso de transporte de turismo.
-El incumplimiento de lo dispuesto en los incisos 2), 4), 6) y 7) generará, para el Operador y el Transportista la revocatoria o extinción de la inscripción en el Registro de Prestatario del Servicio de Transporte Terrestre de Turistas por parte del ICT.
-Lo anterior, previo seguimiento del debido proceso.
-(Así reformado por el artículo 9° del decreto ejecutivo N° 37063 del 27 de enero del 2012)
+4) No estar al día con sus obligaciones con la Caja Costarricense del Seguro Social o FODESAF, lo que será verificado por la Administración.
+5) No contar con las unidades debidamente rotuladas de manera permanente, en los términos en que lo defina el Consejo de Transporte Público, salvo las excepciones establecidas en este Reglamento.
+6) En el caso del transporte de turismo en vehículos de lujo y vehículos doble tracción, el cierre del Operador Turístico.
+7) En el caso del transporte de turismo en vehículos de lujo y vehículos doble tracción, cuando el ICT determine que la relación entre el Operador Turístico y el Transportista es inexistente o simulada sin importar que medie o no un pago, para efectos de obtener el correspondiente permiso de transporte de turismo.
+8) Cuando se compruebe la alteración en el vehículo o documentalmente del número de identificación del vehículo (VIN), del año modelo de fabricación de la unidad ofrecida para el transporte de turismo o la capacidad máxima autorizada de pasajeros o carga de dicha unidad (esto último en el caso de los vehículos de doble tracción tipo pickup). Igualmente cuando en el vehículo se transporten más personas de las autorizadas o en espacios del vehículo destinados a la carga.
+El incumplimiento de lo dispuesto en los incisos 2), 4), 6) 7) y 8) generará, para el Operador o el Transportista la cancelación de la inscripción en el Registro de Prestatarios del Servicio o de Transporte Terrestre de Turistas por parte del ICT. Lo anterior, previo seguimiento del debido proceso."
+El incumplimiento de lo dispuesto en los incisos 2), 4), 6) 7) y 8) generará, para el Operador o el Transportista la cancelación de la inscripción en el Registro de Prestatarios del Servicio de Transporte Terrestre de Turistas por parte del ICT. Lo anterior, previo seguimiento del debido proceso.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40338 del 29 de marzo del 2017)

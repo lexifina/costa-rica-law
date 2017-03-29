@@ -18,7 +18,7 @@ Decretan:
 Reglamento para la Regulación y Explotación
 de Servicios de Transporte Terrestre
 de Turismo
-Artículo 1º— Corresponde a la Junta Directiva del Consejo de Transporte Público, autorizar todos los permisos de transporte terrestre de turismo con el fin de movilizar Turistas a sitios de interés turístico dentro y fuera del territorio nacional.
-Este servicio deberá ser brindado directamente por un operador turístico, o por un transportista contratado por aquel. En ambos casos deberán estar certificados ante el Instituto Costarricense de Turismo, conforme con los requerimientos que se indicarán en este reglamento.
-Los permisos de transporte de turismo que se emitan así como las respectivas matrículas, son de uso exclusivo y excluyente del transporte de turistas.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 37063 del 27 de enero del 2012)
+Artículo 1 º- Corresponde a la Junta Directiva del Consejo de Transporte Público, autorizar todos los permisos de transporte terrestre de turismo con el fin de movilizar turistas a sitios de interés turístico dentro y fuera del territorio nacional.
+Este servicio deberá ser brindado directamente por un operador turístico o por un transportista contratado por aquel. En ambos casos deberán estar certificados ante el Instituto Costarricense de Turiismo, conforme con los requerimientos que se indican en este reglamento.
+Los permisos de transporte de turismo que se emitan, así como las respectivas placas de matrícula, son de uso exclusivo para el transporte de turistas. Quienes cuenten con un permiso de transporte de turismo, podrán entrar a muelles, puertos y aeropuertos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40338 del 29 de marzo del 2017)
