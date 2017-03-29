@@ -14,3 +14,4 @@ Oficialización Normas de Acreditación de la Discapacidad para el Acceso a los 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-06-18 | la propia norma |
+| 2 | 2017-03-29 | SINALEVI (sin norma nombrada) |

@@ -1,4 +1,6 @@
+(Anulada)
 Nº 36042-S
+(Este decreto ejecutivo fue anulado mediante resolución de la Sala Constitucional N° 4797 del 29 de marzo de 2017)
 LA PRESIDENTA DE LA REPÚBLICA
 Y LA MINISTRA DE SALUD
 En uso de las potestades conferidas por los artículos 140 incisos 3) y 18) y 146 de la Constitución Política, artículo 28 párrafo segundo inciso b) de la Ley Nº 6227 del 2 de mayo de 1978 “Ley General de la Administración Pública”, artículos 3º, 4º y 7º de la Ley Nº 7600 del 2 de mayo de 1996 “Ley de Igualdad de Oportunidades para las Personas con Discapacidad”, artículos 1º, 2º, 3º y 9º de la Ley Nº 5395 de 30 de octubre de 1973 “Ley General de Salud”; artículo 2º inciso b) y c) de la Ley Nº 5412 de 8 de noviembre de 1973 “Ley Orgánica del Ministerio de Salud” y artículo 31 de la Convención sobre los Derechos de las Personas con Discapacidad de la Organización de las Naciones Unidas.
