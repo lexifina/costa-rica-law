@@ -14,3 +14,4 @@ Normativa para el Trámite de Permisos Temporales de Trabajo de Médicos General
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-09-06 | la propia norma |
+| 2 | 2017-03-29 | Reglamento 0 (2017-03-29) |
