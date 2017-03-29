@@ -1,0 +1,3 @@
+ARTÍCULO 3.- La Notaría del Estado formalizará todos los trámites de esta donación, mediante la elaboración de la escritura correspondiente, la cual estará exenta del pago de todo tipo de impuestos, tasas o contribuciones, tanto registrales como de cualquier otra índole. Además, queda facultada expresamente la Notaría del Estado para que actualice y corrija los defectos de los inmuebles citados que señale el Registro Público, para la inscripción del documento ante el Registro Nacional de la Propiedad.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los dieciséis días del mes de febrero del año dos mil diecisiete.
