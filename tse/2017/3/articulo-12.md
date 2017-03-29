@@ -1,0 +1,2 @@
+ARTÍCULO 12.- Recepción de bienes de la partida de materiales y suministros. Cuando la Administración adquiera bienes de la partida de materiales y suministros, así como mobiliario y equipo de oficina de uso corriente, quien administre el Almacén de la Proveeduría, junto con la contraparte técnica correspondiente, en caso de haberla, realizarán la recepción material de los bienes.
+En caso que por algún defecto en particular esta se realice en forma provisional, deberá informar –dentro del plazo de cinco días– a la Unidad para que determine lo que corresponda.

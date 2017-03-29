@@ -1,0 +1,1 @@
+ARTÍCULO 9.- Deber de facilitar información y documentos. Cualquier persona funcionaria o dependencia administrativa estará en la obligación de suministrar a la Unidad la información que esta tenga a su haber o bien la documentación que custodie y le sea requerida. Ello deberá cumplirlo en el menor tiempo posible, de conformidad con el plazo otorgado al efecto.

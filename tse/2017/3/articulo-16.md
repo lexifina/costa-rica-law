@@ -1,0 +1,1 @@
+ARTÍCULO 16.- Transitorio. Las contrataciones que a la entrada en vigencia de este reglamento estén en ejecución o aquellas para las que ya se hubiese girado la orden de inicio por parte de los Órganos Fiscalizadores, pasarán a fiscalización de la Unidad, conforme al plan de transición que la Dirección Ejecutiva someterá a conocimiento y aprobación del Tribunal.
