@@ -1,0 +1,4 @@
+COMISIÓN NACIONAL DE PREVENCIÓN DE RIESGOS
+Y ATENCIÓN DE EMERGENCIAS
+Que la Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, ha aprobado mediante acuerdo Nº 040-03-2017, tomado en Sesión Ordinaria Nº 04-03-17, celebrada el 01 de marzo de 2017, el Plan General de la Emergencia: Decreto Nº 40027 “Plan General de la Emergencia para la atención de los daños y pérdidas generadas por el paso del ciclón tropical denominado Huracán Otto ”, el cual por su volumen, se pone a disposición de los interesados, mediante publicación en la página WEB de la CNE o se puede acceder directamente mediante el link: https://www.cne.go.cr/Documentos/planes-emergencia/plan_emergencia_40027.pdf
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato el Plan General de la Emergencia para la atención de los daños y pérdidas generadas por el paso del ciclón tropical denominado Huracán Otto, puede ser consultado en el siguiente link.)
