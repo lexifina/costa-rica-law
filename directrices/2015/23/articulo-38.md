@@ -1,1 +1,0 @@
-Artículo 38.—Se derogan las directrices Nº 009-H, publicada en La Gaceta Nº 137 de 17 de julio de 2014, así como en su modificación la Directriz N° 14, publicada en el Alcance Digital N° 47 a La Gaceta N° 175 del jueves 11 de setiembre del 2014 y en la Directriz N° 17-P, publicada en La Gaceta N° 235 del viernes 5 de diciembre del 2014.

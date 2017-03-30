@@ -1,1 +1,0 @@
-Artículo 33.—Previo a la incorporación de cualquier transferencia que modifique la ley de presupuesto, la Dirección General de Presupuesto Nacional deberá presentar al Ministerio concedente o en que se presupuesta la transferencia, un informe de los recursos en su poder del logro de las metas alcanzadas con los recursos ya ejecutados.

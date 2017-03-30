@@ -1,1 +1,0 @@
-Artículo 3º—La reprogramación de los planes operativos institucionales 2015, deben ser entregados a las instancias correspondientes, por cada Ministro y jerarca de ente descentralizado, con copia a la Presidencia de la República.

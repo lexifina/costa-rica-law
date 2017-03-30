@@ -1,4 +1,0 @@
-SECCIÓN II
-Medidas referidas a venta de activos
-y contratación de bienes y servicios
-Artículo 14.—Se autoriza a los ministerios, órganos desconcentrados y entidades del sector público, para que de conformidad con lo dispuesto en la Ley de Contratación Administrativa y su reglamento, vendan todos los activos que a su criterio resulten ociosos, innecesarios o suntuarios -de acuerdo con el efectivo cumplimiento del fin público correspondiente- que se refieran a bienes inmuebles no afectados al dominio público, así como el equipo mobiliario. Los recursos producto de estas ventas se deberán utilizar para apoyar el financiamiento del gasto de inversión de los mismos ministerios, entidades y los demás órganos del sector público que los venden.
