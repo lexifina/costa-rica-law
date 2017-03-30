@@ -14,3 +14,4 @@ Corresponde al Instituto Mixto de Ayuda Social, ser el único responsable de la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-10-10 | la propia norma |
+| 2 | 2017-03-30 | Decreto Ejecutivo 40314 (2017-03-30) |
