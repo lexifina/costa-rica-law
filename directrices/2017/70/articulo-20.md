@@ -1,0 +1,1 @@
+Artículo 20.- Se derogan la Directriz Presidencial Nº 023-H, publicada en La Gaceta Nº 75 de 20 de abril de 2015 y la Directriz Nº 53-H publicada en el Alcance 163-B a La Gaceta Nº 1 73 del 08 de setiembre del 2016.

@@ -1,0 +1,2 @@
+Artículo 2º.-En el caso de transferencias presupuestadas a órganos desconcentrados, que no provengan de un destino específico, el Poder Ejecutivo transferirá únicamente los recursos que estos demuestren que son necesarios para atender salarios y compromisos ya contraídos y que no sea posible atender con las disponibilidades que tengan en caja única o en otras cuentas.
+Los órganos desconcentrados deberán financiar sus gastos de capital con los recursos disponibles en caja única.

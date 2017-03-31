@@ -1,0 +1,2 @@
+Artículo 6º.-El Ministerio de Hacienda presentará al Consejo de Gobierno de manera trimestral, el estado de la ejecución presupuestaria del Gobierno Central referente al tiempo extraordinario, consultorías, viajes, viáticos, servicios públicos, gastos de representación y de alimentación; además, de aquellos que signifiquen contratación y construcción de obra pública.
+Se instruye a los entes descentralizados a remitir trimestralmente dicha información a la Secretaría Técnica de la Autoridad Presupuestaria.

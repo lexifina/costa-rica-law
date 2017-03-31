@@ -1,0 +1,1 @@
+Artículo 7º -Todo incremento en el costo de proyectos de inversión que supere el 5%, asociado a un mal cálculo y no a una extensión o modificación del proyecto, deberá ser asumido por el ministerio, institución o entidad que lo presupuesta dentro del límite de gasto autorizado.

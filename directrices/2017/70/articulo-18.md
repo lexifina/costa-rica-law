@@ -1,0 +1,2 @@
+Artículo 18.-Se instruye a la Dirección Nacional de Presupuesto Nacional para que ponga a disposición de todos los Ministerios la información relativa a la cantidad total de plazas vacantes que se cuentan por Ministerio.
+A partir de esta información, se instruye a los Ministros para que negocien entre sí el traslado de plazas para su adecuada redistribución dentro de la Administración Pública. Aquellas plazas vacantes que sean objeto de esta redistribución quedarán descongeladas.
