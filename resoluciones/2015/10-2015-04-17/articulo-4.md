@@ -1,5 +1,0 @@
-Artículo 4º—En el caso de las instituciones que por ley manejan diferentes tipos de fondos, para realizar el trámite de exención respectivo deberán aportar, además de los requisitos del artículo 2 anterior, lo siguiente:
-1. Justificación de que la naturaleza jurídica de constitución de esos fondos permite que sean susceptibles de considerarse no sujetos del pago del impuesto.
-2. Número de identificación -cédula jurídica-, asignada por el Registro de Personas Jurídicas a entidades que no se consideran legalmente con personalidad jurídica, conforme al Decreto Nº 34691-J, y criterio registral DGRN/01-2008 de 16 de setiembre del 2008, ambos mencionados en el considerando IV anterior.
-Se exime a la Caja Costarricense de Seguro Social del cumplimiento del requisito de identificación por medio de cédula jurídica de los fondos denominados Régimen de Invalidez, Vejez y Muerte-CCSS (IVM), Seguro de Salud-CCSS (SS), Fondo de Prestaciones Sociales-CCSS (FPS) y Fondo de Contingencias- CCSS (FC).
-(Así reformado por el artículo 1° de la resolución DGT-R-20 del 3 de julio de 2015)

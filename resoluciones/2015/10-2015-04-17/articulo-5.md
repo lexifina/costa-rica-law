@@ -1,2 +1,0 @@
-Artículo 5º—El documento mediante el cual la Administración Tributaria autorice la no retención del impuesto tendrá una validez de un año, contado a partir de la fecha que se indique en ese documento, siempre y cuando durante ese período de tiempo no haya un cambio en la legislación que deje insubsistente tal exención.
-Lo indicado en el párrafo precedente deberá hacerse constar expresamente en el documento de autorización respectivo.

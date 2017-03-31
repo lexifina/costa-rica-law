@@ -1,1 +1,0 @@
-Artículo 6º—Se deja sin efecto la resolución 18-99, de las ocho horas del 1° de octubre de 1999, publicada en La Gaceta Nº 206, del 25 de octubre de 1999, así como cualquier documento de igual o menor rango que se le oponga.
