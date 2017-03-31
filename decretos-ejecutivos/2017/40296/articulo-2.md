@@ -1,0 +1,1 @@
+Artículo 2º-Las disposiciones establecidas en el Decreto Ejecutivo 39793-MTSS-MOPT sobre la necesidad de la continuidad y la eficiencia de los servicios públicos, así como las personas funcionarias que no pueden acogerse a estas medidas, seguirán vigentes.
