@@ -1,0 +1,4 @@
+ARTÍCULO 4.- Se autoriza a la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias para que ejecute la contratación de notarios externos que formalicen el traspaso de las fincas objeto de la donación autorizada en esta ley.
+Los beneficiarios estarán exentos, para este único trámite, del pago de todo impuesto, tasa, timbre o tributo nacionales, excepto las especies fiscales municipales, cuyo pago será asumido por la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias.
+Los fondos para el pago de los honorarios de notarios externos y de las especies fiscales municipales serán tomados de los recursos del Fondo Nacional de Emergencias.
+Se faculta al notario público que corresponda para que haga las escrituras de donación y realice las correcciones registrales necesarias para inscribir cada uno de los bienes inmuebles contenidos en esta ley.

@@ -1,0 +1,4 @@
+ARTÍCULO 3.- Para ejecutar el proceso de donación, la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias deberá constatar que cada una de las personas a quienes se les otorgue en donación una finca deberá ser a causa de los procesos de reconstrucción atinentes a una emergencia debidamente declarada conforme a la Ley N.º 8488, Ley Nacional de Emergencias y Prevención del Riesgo, de 22 de noviembre de 2005, y según lo establecido en el artículo 1 de esta ley.
+En caso de que el beneficiario haya fallecido o haya ocurrido una ruptura del núcleo familiar, este derecho de donación podrá heredarse o cederse a quien corresponda.
+La Comisión deberá implementar un expediente físico o electrónico, en el que se documente debidamente la atinencia de la donación.
+Si quedaran bienes inmuebles libres, estos los conservará la Comisión Nacional de Emergencias para utilizarlos de acuerdo con su mandato legal.
