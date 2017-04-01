@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el Decreto Ejecutivo número 40105-H del 08 de diciembre de 2016, publicado en el Alcance número 320 a La Gaceta número 247 del 23 de diciembre de 2016, a partir de la vigencia del presente decreto.
