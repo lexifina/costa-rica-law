@@ -1,0 +1,1 @@
+Artículo 5°-Se dejan sin vigencia la resolución DGH-044-2016 y DGA-DGT-002-2016 de la Dirección General de Hacienda y de la Dirección General de Aduanas, del Ministerio de Hacienda, San José, a las once horas y ocho minutos del día 01 de setiembre del dos mil dieciséis, publicada en el Alcance N º 187 de La Gaceta Nº 179, del 19 de setiembre del 2016.
