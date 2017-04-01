@@ -1,0 +1,4 @@
+Artículo 3º—Modificaciones. Se modifica el punto 1, del artículo 9 del “SGV-A-198 Acuerdo para la implantación del Reglamento de Custodia”, aprobado por el Despacho del Superintendente, a las quince horas del cuatro de setiembre del dos mil quince. Publicado en el Diario Oficial La Gaceta No. 214 del 4 de noviembre del 2015, para que en adelante se lea:
+(…)
+1. La entidad de custodia debe identificar las cuentas de los titulares de los valores bajo custodia, tanto en sus registros internos como en los de las entidades de primer nivel del Sistema Nacional de Registro de Anotaciones en Cuenta, conforme lo dispuesto en el “SGV-A-223. Acuerdo para la identificación de los clientes titulares de las cuentas de valores en el Sistema Nacional de Registro de Anotaciones en Cuenta y la administración de cuentas de valores.
+(…)

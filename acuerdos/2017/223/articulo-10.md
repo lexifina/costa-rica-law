@@ -1,0 +1,3 @@
+Artículo 10.—Estándar tipo de inversionista. Los clientes titulares de las cuentas de valores también deben identificarse por tipo de inversionista, según su estatus domiciliario, en: domiciliado, exento o extranjero no domiciliado; así como por su tratamiento tributario: exento. Esto en los sistemas de registro en el primer nivel.
+Para efectos de clasificar a los titulares como domiciliados o no domiciliados, las entidades deberán cumplir con lo establecido en el “Reglamento a la Ley de impuesto sobre la renta”.
+Los sistemas tecnológicos de las entidades de primer nivel, deben contar con las funcionalidades, para que las entidades de custodia puedan realizar esta clasificación.

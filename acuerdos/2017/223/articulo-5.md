@@ -1,0 +1,1 @@
+Artículo 5º—Efectos de la suspensión de cuentas de valores. La suspensión de una cuenta de valores, sea propia o de terceros, impide movimientos de salida de valores desde el momento en que la suspensión es ordenada. No obstante, no impide movimientos de entrada de valores ni la liquidación de vencimientos de los valores depositados.
