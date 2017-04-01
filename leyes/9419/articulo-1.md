@@ -1,0 +1,6 @@
+N° 9419
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+DECLARACIÓN DEL 30 DE NOVIEMBRE COMO
+DÍA NACIONAL DE LA MARIMBA COSTARRICENSE
+ARTÍCULO 1.- Se declara la marimba como símbolo nacional de la cultura y el folclore costarricense.
