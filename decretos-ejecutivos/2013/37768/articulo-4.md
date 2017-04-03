@@ -1,1 +1,2 @@
-Artículo 4º—Deróguese el Decreto Ejecutivo Nº 35531-C del 27 de agosto de 2009, publicado en el Diario Oficial La Gaceta Nº 198 del 13 de octubre de 2009.
+Artículo 4°—Del Sistema de Atención Cultural-Educativa. De acuerdo con los objetivos del “Parque Metropolitano La Libertad”, el Ministerio de Cultura y Juventud, creará un Sistema de Atención Cultural-Educativa, con el fin de beneficiar prioritariamente, pero no excluyente, a la población en condición de pobreza. Dicho sistema, fomentará además la participación de todas las personas en igualdad de condiciones.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 40395 del 3 de abril del 2017)

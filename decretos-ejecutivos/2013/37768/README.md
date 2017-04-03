@@ -14,3 +14,4 @@ Traslada Proyecto "Espacio Cultural la Libertad" del Museo de Arte y Diseño Con
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-07-15 | la propia norma |
+| 2 | 2017-04-03 | Decreto Ejecutivo 40395 (2017-04-03) |
