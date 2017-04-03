@@ -1,0 +1,1 @@
+Artículo 26.- Espacios. Los espacio para arrendamiento a los productores de la Feria del Agricultor serán delimitados por la Junta Nacional de Ferias, quien los identificará por medio de enumeración, de acuerdo con la sección en que se ubiquen, y su respectiva dimensión.

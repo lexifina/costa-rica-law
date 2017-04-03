@@ -1,0 +1,2 @@
+Artículo 27.- Ingreso de productos. Los productores podrán ingresar al Campo Ferial a partir de la 1am del día viernes para que instalen sus productos en el espacio que le sea asignado.
+La zona de descarga se ubicará en el sector oeste del Campo Ferial y estará habilitada en un horario de la 1am hasta las 10pm del día viernes y el día sábado de 4am a 6am para el ingreso de productos y de las 3pm hasta las 6pm del día sábado para retirarlos. Estas zonas estarán debidamente rotuladas e identificadas.
