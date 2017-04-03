@@ -1,4 +1,5 @@
 DIRECCIÓN GENERAL DE TRIBUTACIÓN
+(Mediante el artículo 2° de la resolución DGT-R-21 del 3 de abril de 2017, se estableció lo siguiente: “Los obligados tributarios deberán emitir comprobantes electrónicos conforme con lo establecido en la Resolución número DGT-R-051-2016 del 10 de octubre del 2016, a partir del 15 de junio de 2017, fecha a partir de la cual se aplicará la sanción establecida en el artículo 83 del Código Tributario a los incumplidores.”)
 Nº DGT-R- 51-2016.- San José, a las ocho horas del diez de octubre de dos mil dieciséis.
 CONSIDERANDO
 I.- Que el artículo 99 del Código de Normas y Procedimientos Tributarios en adelante Código Tributario, faculta a la Dirección General de Tributación para dictar normas generales tendientes a lograr la correcta aplicación de las normas tributarias, dentro de los límites que fijen las disposiciones legales y reglamentarias pertinentes, así como aprobar las resoluciones, instrucciones o directrices que resulten oportunas para el logro de los objetivos de la Administración Tributaria.

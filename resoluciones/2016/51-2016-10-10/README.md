@@ -14,3 +14,4 @@ Obligatoriedad para el uso de los comprobantes electrónicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-11-03 | la propia norma |
+| 2 | 2017-04-03 | Resolución 21 (2017-04-03) |
