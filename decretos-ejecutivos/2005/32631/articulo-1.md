@@ -7,19 +7,16 @@ Considerando:
 2º—Que el Gobierno debe incorporar decisiones y acciones específicas orientadas a cumplir con el objetivo de mejorar el ambiente y manejar adecuadamente los recursos naturales. A estos objetivos deberán incorporarse decisiones y acciones específicas destinadas a su cumplimiento, con el respaldo de regulaciones, instituciones y procedimientos que permitan lograr la funcionalidad de esas políticas. Para lo cual, resulta necesario reforzar y apoyar con un grupo de expertos que le brinden asesoría especializada a la Secretaría Técnica Nacional Ambiental-SETENA a fin de que pueda cumplir de mejor forma con la adecuada gestión de los Procesos de Evaluación de Impacto Ambiental.
 3º—Que la SETENA deberá responder a las necesidades de eficiencia y eficacia en el análisis de las evaluaciones de impacto ambiental, de conformidad con las normas específicas, viables y funcionales para la conservación del ambiente orientada hacia el desarrollo sostenible. Sin embargo, al momento no cuenta con todos los recursos necesarios para cumplir con dicho propósito, por lo que el gobierno debe aprovechar de mejor manera los recursos con los que cuenta, debe mejorar la coordinación y aunar esfuerzos, para poder lograrlo. Por tanto,
 DECRETAN:
-Artículo 1º—Créase la Comisión Nacional Asesora Técnica Mixta de la Secretaría Técnica Nacional Ambiental (SETENA), conocida en este decreto como Comisión, la cual estará adscrita al Ministerio del Ambiente, Energía y Telecomunicaciones, para dar apoyo a SETENA en el desarrollo, actualización y modernización de los instrumentos técnicos y procedimientos del sistema de Evaluación de Impacto Ambiental del país.
+Artículo 1º—Créase la Comisión Nacional Asesora Técnica Mixta de la Secretaría Técnica Nacional Ambiental (SETENA), conocida en este decreto como Comisión, la cual estará adscrita al Ministerio del Ambiente, Energía, para dar apoyo técnico a la SETENA en el desarrollo, y modernización de los instrumentos técnicos y procedimientos del sistema de Evaluación de Impacto Ambiental del país, cuando así sea requerido, sin ser vinculantes sus recomendaciones.
 La Comisión estará integrada por un representante titular y su respectivo suplente, de las siguientes instituciones y entidades:
-1. Secretaría Técnica Nacional Ambiental, quien presidirá la Comisión.
-2.Sistema Nacional de Áreas de Conservación (SINAC)
-3. Ministerio de Economía, Industria y Comercio.
-4. Asociación Costarricense de Consultores Ambientales.
-5. Federación de Colegios Profesionales de Costa Rica.
-6. Federación Costarricense para la Conservación del Ambiente (FECON).
-7. Cámara Costarricense de la Construcción ( CCC ).
-8. Cámara de Industrias de Costa Rica (CICR), y
-9. Cámara Nacional de Agricultura ( CNA ).
-10. Museo Nacional.
-11. Unión Costarricense de Cámaras y Asociaciones de la Empresa Privada (UCCAEP)
-Sin embargo, la Comisión podrá convocar a organizaciones y técnicos especializados para que actúen como órganos consultivos, quienes podrán participar en las sesiones como invitados especiales, con voz pero sin voto.
-El Secretario General de la SETENA, podrá nombrar un facilitador externo, quien apoye y proporcione información técnica específica a la Comisión.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 37181 del 23 de abril del 2012)
+1. Un representante de la Comisión Plenaria de la Secretaría Técnica Nacional Ambiental, quien presidirá la Comisión.
+2.Un representante del Sistema Nacional de Áreas de Conservación (SINAC) del Ministerio de Ambiente y Energía.
+3. Un representante del Ministerio de Salud.
+4. Un representante Ministerio de Agricultura y Ganadería.
+5. Un representante del Ministerio de Obras Públicas y Transportes.
+6. Un representante de mejora Regulatoria del Ministerio de Economía, Industria y Comercio.
+7. Un representante de la federación de Colegios Profesionales.
+8. Un representante de la Unión Costarricense de Cámaras Empresariales (UCCAEP).
+9. Un representante de una organización no gubernamental ambiental debidamente inscrita en el registro Nacional.
+Además, la Comisión podrá convocar a organizaciones y técnicos especializados para que actúen como órganos consultivos, quienes podrán participar en las sesiones como invitados especiales, con voz pero sin voto.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40505 del 3 de abril del 2017)
