@@ -1,1 +1,0 @@
-Artículo 4º—El Fondo Nacional de Financiamiento Forestal (FONAFIFO), a través de la Secretaría Ejecutiva, será el responsable de la administración de los recursos de la donación TF012692 para el establecimiento de la Propuesta de Preparación para REDD+. Estos recursos podrán ser administrados por el Fideicomiso 544 BNCR-FONAFIFO.
