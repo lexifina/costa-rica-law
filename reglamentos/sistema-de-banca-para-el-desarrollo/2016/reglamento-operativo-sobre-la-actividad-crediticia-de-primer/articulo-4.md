@@ -1,0 +1,8 @@
+CAPÍTULO II
+Procesos de acreditación ante el SBD y aprobación de programas
+Artículo 4. Registro o acreditación del operador financiero supervisado
+Los Bancos supervisados por la Superintendencia General de Entidades Financieras de Costa Rica podrán participar como integrantes del SBD, si no lo son ya por disposición de la Ley N° 9274, pudiendo optar por una licencia de registro o por una de autorización como operador financiero del SBD.
+El Banco estatal administrador del FCD, o el Banco público que opte únicamente por colocar los recursos del FOFIDE podrá optar por una licencia de registro (tipo B) para cumplir con sus obligaciones de ley; en caso que opte por acceder a otros fondos y productos del SBD deberá acreditarse como operador financiero del SBD y alcanzar una licencia tipo A, AA o AAA.
+El Banco privado que decida optar únicamente por la administración de los recursos según la opción ii) del artículo 59 de la Ley N° 1644 debe efectuar el trámite de acreditación ante el SBD a efecto de obtener la licencia de registro (tipo B). Además, cuando decida acceder a otros recursos y productos del SBD, debe acreditarse como operador financiero y alcanzar una licencia tipo A, AA o AAA; en ambos casos, de previo al inicio de sus operaciones.
+El Banco privado que mantenga un saldo de préstamos en el FCD conforme lo establece el inciso i) del artículo 59 de ley indicada, no debe efectuar trámite de registro ante el Consejo Rector del SBD.
+Los requisitos de información y plazos para el trámite de acreditación se rigen conforme lo establecido en el Decreto Ejecutivo N° 38906-MEIC-MAG-MH-MIDEPLAN y dicho trámite podrá realizarse a través del Sitio Web del SBD.

@@ -1,0 +1,5 @@
+Artículo 26. Control auxiliar
+El Consejo Rector y su Secretaría Técnica, de conformidad con lo establecido en el artículo 59 de la Ley N° 1644, deben de informar a la SUGEF cuando, existan indicios que hagan presumir que los beneficiarios de los recursos del inciso ii del citado artículo no son los que establece la Ley N° 8634 y sus reformas.
+La Secretaría Técnica, debe mantener un expediente individualizado en el que conste el resultado de sus procedimientos de verificación de información, así como cualquier otra información que hay sido requerida al efecto.
+La SUGEF puede solicitar a la Secretaría, previa coordinación con ésta, cualquier información referente a los resultados del control que ejerce sobre sus entidades supervisadas, sin detrimento de los convenios o acuerdo de intercambio de información permanente que llegasen a establecerse.
+El Consejo Rector y la Secretaría técnica deben velar por la absoluta confidencialidad sobre los datos obtenidos o los hechos observados, en el ejercicio o con motivo de sus funciones de control, limitándose a suministrar, cuando proceda una relación de hechos.

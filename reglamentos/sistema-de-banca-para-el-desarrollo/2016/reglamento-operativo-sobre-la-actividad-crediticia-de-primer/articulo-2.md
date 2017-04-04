@@ -1,0 +1,3 @@
+Artículo 2. Alcance
+Las disposiciones establecidas son de aplicación para los Bancos públicos y privados, que integren el Sistema de Banca para el Desarrollo y para las organizaciones reguladas y no reguladas por SUGEF, que coparticipen en la canalización de los recursos hacia los beneficiarios de la Ley N° 9274, ya sea como agente colocador de primer piso dentro del modelo de banca de segundo piso o como agente corresponsal.
+Los Bancos públicos y privados deben, además, observar el resto de las disposiciones normativas que le son aplicables; en caso de contraposición prevalecen las normas específicas sobre las normas generales.

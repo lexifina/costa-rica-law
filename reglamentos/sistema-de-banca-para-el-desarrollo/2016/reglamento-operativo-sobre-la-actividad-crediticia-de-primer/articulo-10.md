@@ -1,0 +1,5 @@
+Artículo 10. Sobre las metas y asignación de recursos
+El órgano de dirección y la alta administración del Banco deben velar por el cumplimiento de los límites y metas dispuestos por la Ley N° 9274 o por los que, supletoriamente, sean definidos en las directrices o políticas que al efecto llegase a establecer el Consejo Rector para la colocación en determinados sectores y beneficiarios.
+La alta administración debe establecer los mecanismos apropiados para llevar un control oportuno de estas asignaciones.
+El órgano de dirección, debe informar oportunamente, a la Secretaría Técnica y al Consejo Rector, en caso de inactividad o suspensión, mayor a tres meses, del programa(s) autorizado(s). El cómputo de los tres meses es a partir de la aprobación del programa o desde la fecha de la última operación formalizada.
+De conformidad con lo establecido en el artículo 46 del Reglamento a la Ley N° 9274, el órgano de dirección debe conocer y remitir oportunamente a la Secretaría Técnica, los resultados de los estudios o revisiones efectuados por la auditoría interna o función equivalente.

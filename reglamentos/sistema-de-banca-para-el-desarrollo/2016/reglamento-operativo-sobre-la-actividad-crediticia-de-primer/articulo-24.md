@@ -1,0 +1,3 @@
+Artículo 24. Sobre la transferencia de recursos al FCD
+El Banco que opte por trasladarse a la opción ii) del artículo 59 de la Ley N°1644 debe trasladar al Banco comercial del Estado que administra el Fondo de Crédito para el Desarrollo (FCD), la diferencia entre el saldo colocado y el monto equivalente al 10%, una vez deducido el encaje correspondiente de sus captaciones totales a plazos de treinta días o menos, en moneda local y extranjera.
+La determinación del importe debe realizarse con corte mensual utilizando la metodología que al efecto se establezca por el Consejo Rector en coordinación con la SUGEF.

@@ -1,0 +1,6 @@
+Artículo 7. De las opciones para operar como agente colocador
+Al amparo de los fondos del FCD, FOFIDE u opción ii), la organización que realice operaciones de primer piso subordinada a un programa de un Banco público o privado, puede optar por alguna de las siguientes opciones, según sea el modelo de operación:
+i. Proceso de acreditación que lo distingue como operador financiero, en caso de que pueda acceder a todos los fondos y productos del SBD. Su licencia podrá ser de tipo A, AA o AAA.
+ii. Acreditación simplificada, subordinado a un Banco operador del SBD con un programa marco aprobado por el Consejo Rector y diseñado para este propósito. La acreditación simplificada se efectúa mediante la completitud de un formulario electrónico disponible en el Sitio Web del SBD. La información a consignar es la misma que se detalla en el artículo 8 de este Reglamento.
+Toda entidad regulada por la SUGEF que desee fungir como agente especial debe estar acreditada como operador financiero ante el SBD.
+La organización regulada o no por la SUGEF que se acredite ante el SBD podrá ser considerado por los Bancos como un agente colocador. Sin embargo, ningún agente colocador podrá canalizar recursos del Sistema de Banca para el desarrollo a destinatarios y bajo condiciones diferentes a los definidos en el programa marco aprobado al Banco que lo contrató.

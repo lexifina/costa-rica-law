@@ -1,0 +1,4 @@
+Transitorio
+Las entidades que están trabajando programas con agentes especiales, tendrán seis meses naturales contados a partir de la entrada en vigencia de este Reglamento para efectuar el proceso de acreditación o registro correspondiente, según sea el caso. Una vez vencido el plazo indicado, el Consejo Rector, por medio de la Secretaría Técnica, verificará las condiciones de los programas y procederá conforme lo señala este Reglamento.
+El Consejo Rector acuerda instruir al Director Ejecutivo de la Secretaría Técnica del SBD, para que se proceda con la remisión del formulario Costo-Beneficio a la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio, junto con la matriz final de observaciones externas del Reglamento operativo sobre la actividad crediticia de primer y segundo piso de los Bancos participantes en el Sistema de Banca para el Desarrollo.
+Rige a partir de su publicación en el diario oficial La Gaceta.
