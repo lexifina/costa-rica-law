@@ -1,0 +1,2 @@
+ARTÍCULO 2.- Adiciónese un párrafo in fine al artículo 20 de dicho reglamento, que se leerá de la siguiente manera:
+“En casos de excepción, por razones de fuerza mayor, caso fortuito u otra circunstancia que impida utilizar los locales previamente definidos, o bien por el hecho de que se dificulte, a juicio de la administración electoral, que las personas puedan desplazarse hacia estos, se podrá trasladar a los electores empadronados en una junta receptora de votos a la junta que se encuentre más cercana, con el fin de garantizarle a los ciudadanos su derecho al sufragio.”.
