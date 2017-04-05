@@ -14,3 +14,4 @@ Declara estado de emergencia nacional por el Huracán Otto en los cantones Upala
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-11-28 | la propia norma |
+| 2 | 2017-04-05 | Decreto Ejecutivo 40335 (2017-04-05) |
