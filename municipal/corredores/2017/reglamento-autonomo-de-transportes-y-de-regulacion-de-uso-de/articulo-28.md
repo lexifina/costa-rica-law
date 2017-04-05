@@ -1,0 +1,1 @@
+Artículo 28° . Salvaguarda de Excepción.- Únicamente en casos de excepción debidamente calificados, un vehículo de uso administrativo podrá ser guardado en la casa de habitación del funcionario o de un particular, previa aprobación del funcionario encargado de su administración.

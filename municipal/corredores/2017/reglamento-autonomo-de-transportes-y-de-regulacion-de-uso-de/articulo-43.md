@@ -1,0 +1,2 @@
+Artículo 43°. lngesta de Bebidas Alcohólicas.-Los conductores no pueden por ninguna circunstancia ingerí r bebidas alcohólicas, narco tranquilizantes o cualquier otro tipo de droga durante la jornada laboral o fuera de ésta, en el caso de que conduzca vehículos de la Municipalidad. Asimismo es prohibido fumar dentro de los vehículos de la institución.
+La infracción a esta norma se sancionará como falta grave la primera vez y como falta gravísima en caso de reincidencia.

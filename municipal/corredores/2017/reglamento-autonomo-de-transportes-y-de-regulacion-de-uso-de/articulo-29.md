@@ -1,0 +1,1 @@
+Artículo 29° . Salvaguarda en Gira.-Cuando el vehículo se encuentre en gira el responsable del mismo deberá asegurarse que permanezca en lugar seguro en todo momento durante la gira aun cuando se halle en la vía pública. En caso ele que no se cuente con parqueo en el lugar donde pernocte, deberá buscar un Iugar adecuado para su protección y resguardo.

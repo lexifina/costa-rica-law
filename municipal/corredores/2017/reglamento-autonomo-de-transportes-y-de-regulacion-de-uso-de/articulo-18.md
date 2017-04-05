@@ -1,0 +1,1 @@
+Artículo 18° . Directriz.- El Despacho del (a) Alcalde (sa) determinará a través de directriz motivada al efecto cuáles vehículos quedarán bajo la custodia de cada proceso identificándolos a través de sus números de placas y de la descripción del vehículo o vehículos correspondientes.

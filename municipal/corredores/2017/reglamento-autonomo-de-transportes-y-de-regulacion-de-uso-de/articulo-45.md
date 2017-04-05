@@ -1,0 +1,1 @@
+Artículo 45°. Abandono del Vehículo.-El conductor que al averiarse su vehículo, lo abandone injustificadamente, es responsable de los daños y sustracciones que el mismo pueda sufrir. Asimismo será responsable ele la reposición de las herramientas, repuestos, y otras piezas complementarias del vehículo que por negligencia desaparezcan.

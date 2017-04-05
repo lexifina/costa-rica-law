@@ -1,0 +1,1 @@
+Artículo 37°. Programas de Mantenimiento.-Todos los vehículos, incluso los de uso discrecional, deberán cumplir con los programas de mantenimiento preventivo y correctivo, así como el control de consumo de combustible, kilometraje y diligencias en caso de accidentes de tránsito. Su cumplimiento estará a cargo de los encargados de las respectivas flotillas vehiculares.

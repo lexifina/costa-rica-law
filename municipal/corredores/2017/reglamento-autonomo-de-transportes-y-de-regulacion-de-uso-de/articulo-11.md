@@ -1,0 +1,1 @@
+Artículo 11 º. Del Servicio de Transporte a otros funcionarios y/o empleados.- La Municipalidad podrá brindar servicio de transporte en vehículos oficiales tanto al Presidente del Consejo Municipal como a los demás miembros de este órgano, así como a cualquier otro empleado municipal, siempre que se encuentren en el ejercicio de sus cargos o cuando representen a la Institución.

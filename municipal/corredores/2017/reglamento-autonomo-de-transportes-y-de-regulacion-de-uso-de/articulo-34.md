@@ -1,0 +1,1 @@
+Artículo 34°. Inventarios Periódicos.-El encargado de transportes realizará inventarios periódicos a los vehículos, a fin de verificar sus estados físicos y mecánicos, además del control ele las herramientas, repuestos y piezas complementarias.

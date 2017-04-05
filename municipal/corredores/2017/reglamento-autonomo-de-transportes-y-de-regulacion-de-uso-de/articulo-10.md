@@ -1,0 +1,1 @@
+Artículo 10º. Del Uso Administrativo.- Son de uso administrativo y oficial todos los demás vehículos no contemplados en el artículo anterior y destinados a prestar servicios regulares de transpor1e para el desarrollo normal de funciones y actividades de las di fe rentes dependencias de la Municipalidad.

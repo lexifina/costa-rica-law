@@ -1,0 +1,1 @@
+Artículo 66°. (Nota de Sinalevi: En la publicación de este reglamento no se publica este artículo. No obstante el sistema exige una numeración consecutiva por lo que se ha creado el mismo pero sin texto)

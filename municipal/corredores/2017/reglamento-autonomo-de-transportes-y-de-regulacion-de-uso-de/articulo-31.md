@@ -1,0 +1,2 @@
+Artículo 31°. Salida de los Vehículos.-Es responsabilidad del oficial ele seguridad o en su defecto del encargado de la flotilla vehicular, solicitar dicha boleta y verificar que esté debidamente llena y autorizado su conductor a la hora de salida de los vehículos de las instalaciones municipales.
+De existir alguna anomalía en los documentos, no permitirá la salida del mismo y lo comunicará de inmediato al encargado ele la flotilla o en su defecto al jerarca institucional.

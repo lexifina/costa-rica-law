@@ -1,0 +1,1 @@
+Artículo 7º. De la Inscripción y Póliza.-Todos los vehículos de la Institución deberán estar debidamente inscritos a nombre de la Municipalidad en el Registro Público de la Propiedad ele Vehículos Automotores y asegurados con póliza obligatoria y voluntaria ante el Instituto Nacional de Seguros.

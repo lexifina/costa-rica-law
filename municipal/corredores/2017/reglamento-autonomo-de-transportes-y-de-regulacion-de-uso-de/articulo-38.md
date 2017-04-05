@@ -1,0 +1,1 @@
+Artículo 38°. Licencias.-Es obligación de todo operador de activos vehiculares, contar con la licencia atinente a los diferentes tipos de vehículos con que cuenta la Institución de acuerdo a las leyes de la República y los Reglamentos respectivos.

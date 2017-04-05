@@ -1,0 +1,1 @@
+Artículo 4°'. Del Uso de las PIacas Oficiales.-Todos los vehículos de la Municipalidad de Corredores portarán las placas de matrícula referentes al Sector Municipal de conformidad con las normas vigentes en materia de tránsito automotor tanto en la parte delantera como en la trasera que se destina para este fin.

@@ -1,0 +1,1 @@
+Artículo 39°. Principios que rigen la Conducción de Vehículos.-Todos los conductores están obligados a conducir con precaución, moderación, prudencia y cuidado para conservar los vehículos en óptimas condiciones.
