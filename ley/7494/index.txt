@@ -9,6 +9,7 @@ articulo-7.md
 articulo-8.md
 articulo-9.md
 articulo-10.md
+articulo-10-bis.md
 articulo-11.md
 articulo-12.md
 articulo-12-bis.md
