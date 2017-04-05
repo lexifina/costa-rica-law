@@ -1,0 +1,2 @@
+Artículo 44° —Las ausencias por enfermedad deberán ser comprobadas, mediante incapacidad extendida por la Caja Costarricense del Seguro Social o el Instituto Nacional de Seguros, o por cualquier otro medio idóneo, el cual deberá ser presentado al patrono dentro de un término de 3 días, contados a partir del primer día de incapacidad inclusive, salvo causa justificada.
+La inobservancia de lo anterior y pasado el término de 3 días, dará motivo para tener como ausencias injustificadas al trabajo, conforme a los términos del inciso g) del artículo 81 del Código de Trabajo.

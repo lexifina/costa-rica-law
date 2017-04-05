@@ -1,0 +1,1 @@
+Artículo 74°—La resolución final, tendrá recurso de reposición que podrá ser interpuesto ante la Presidencia Ejecutiva, o el órgano decisor; en un plazo de tres días hábiles contados a partir de la notificación de ésta.

@@ -1,0 +1,1 @@
+Artículo 55°—Las amonestaciones verbales o escritas deberán imponerse dentro de los ocho días posteriores a aquel en que se cometió la falta o que los representantes patronales la conocieron y, las suspensiones o despido, en el transcurso del mes posterior al día en que se cometió la falta o los representantes patronales lo conocieron.

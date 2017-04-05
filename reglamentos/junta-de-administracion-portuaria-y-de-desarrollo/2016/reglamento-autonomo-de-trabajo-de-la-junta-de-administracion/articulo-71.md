@@ -1,0 +1,1 @@
+Artículo 71°. —Transcurrido el plazo de los cinco días hábiles, la Comisión Institucional contra el Hostigamiento Sexual, hará comparecer a las partes, recibiendo la prueba pertinente así como las respectivas declaraciones.

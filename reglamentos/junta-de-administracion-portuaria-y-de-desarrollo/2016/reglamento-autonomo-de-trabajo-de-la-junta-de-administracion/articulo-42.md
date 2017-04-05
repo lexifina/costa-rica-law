@@ -1,0 +1,1 @@
+Artículo 42°—Salvo los casos previstos en este Reglamento, la omisión de una marca a cualquiera de las horas de entrada o salida, se computará como inasistencia a la correspondiente fracción de jornada, y podrá ocasionar la pérdida de las horas, cuando el trabajador no justifique esa omisión a más tardar el día siguiente.

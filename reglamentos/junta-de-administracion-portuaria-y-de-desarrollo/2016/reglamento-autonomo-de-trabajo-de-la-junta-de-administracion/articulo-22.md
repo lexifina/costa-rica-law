@@ -1,0 +1,1 @@
+Artículo 22º—Todo trabajador de la Institución devengará el salario convenido al momento de formalizar el Contrato de Trabajo, el que estará regulado por la estructura interna de salarios, los que en ningún caso serán inferiores a los mínimos fijados por la Ley.

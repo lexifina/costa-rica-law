@@ -1,0 +1,1 @@
+Artículo 2º—Las disposiciones de este Reglamento deben tenerse como normas supletorias al Código de Trabajo y demás leyes sociales o conexas de la República, de la Convención Colectiva Vigente o de las que en el futuro se celebren en cuanto modifiquen lo establecido en éste.
