@@ -1,0 +1,10 @@
+Artículo 6°-ResponsabiJidad de los funcionarios autorizados para utilizar los fondos de trabajo.
+Es responsabilidad de los funcionarios autorizados para utilizar los fondos de trabajo, lo siguiente:
+1. Conocer y cumplir con lo que establece este reglamento y leyes conexas, en cuanto a compras discrecionales de mercancías, adquisición de bienes y/o servicios, pago de informantes, las que deberán responder a cada investigación en concreto.
+2. Cumplir con los programas de compras discrecionales, compra de mercancías objetos de alguna investigación y los posibles pagos a informantes, así como compra de insumos necesarios para llevar a buen término una investigación y de esa manera reunir las pruebas requeridas para conformar los expedientes relativos a las infracciones y delitos tributarios, aduaneros y hacendarios, las que deberán responder a cada investigación en concreto.
+3. Completar y enviar, con un mínimo de un día de anticipación, ante el respectivo Jefe de División la fórmula denominada "Adelanto de Dinero para solicitar los recursos" debidamente firmada por este, además de la firma conjunta del Jefe de División y la Dirección o en su defecto en caso de ausencia de esta, la Subdirección de la Policía de Control Fiscal
+4. Llevar un control claro y actualizado sobre los comprobantes y actas de cada inspección o compra que se realice o bien de la erogación para pago de informantes y rendir cuentas a la Jefatura de la División respectiva, cada mes.
+5. Elaborar la liquidación del adelanto de dinero, la cual deberá firmar la Dirección o en ausencia de éste la Subdirección, adjuntando las pruebas pertinentes que lo demuestren (Actas, copia de facturas, entre otros medios idóneos).
+6. Presentar la liquidación del gasto dentro del término de 5 días hábiles después de finalizada la compra o el pago solicitado.
+7. Velar porque las erogaciones se realicen de acuerdo con los planes presentados ante las Jefaturas de acuerdo a las investigaciones que se llevan a cabo en las diferentes Divisiones.
+8. Cualesquiera otras que designe la Dirección de la Policía de Control Fiscal.

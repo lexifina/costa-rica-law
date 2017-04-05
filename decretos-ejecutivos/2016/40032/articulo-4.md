@@ -1,0 +1,12 @@
+Artículo 4°-Responsabilidades del Director y la Subdirección de la Policía de Control Fiscal.
+Es responsabilidad del Director de la Policía de Control Fiscal y el Subdirector en ausencia de éste, lo siguiente:
+1. Analizar y a probar los gastos que se realicen para cumplir con las disposiciones del presente Reglamento y que serán ejecutados por los funcionarios de este cuerpo policial debidamente autorizados.
+2. Solicitar al Departamento Financiero, previo análisis de los planes a ejecutar y de la estimación aproximada de los gastos a realizar, la disponibilidad de los fondos para la Dirección de la Policía de Control Fiscal.
+3. Velar que las erogaciones se realicen de acuerdo con las investigaciones que se llevan en este cuerpo policial en materia en asuntos policiales, hacendarios, tributarios y aduaneros
+4. Verificar que los bienes o mercancías que se adquieran sean comunicados a la Proveeduría Institucional del Ministerio de Hacienda, mismos que servirán corno prueba material dentro de los procesos jurisdiccionales o administrativos, en caso de que representen pruebas para entregar al juzgado, se emitirá un acta que posteriormente debe ser entregada con la liquidación del gasto solicitado al Departamento Financiero.
+5. Autorizar junto con el Jefe de la División de Logística y Planificación de la Policía de Control Fiscal, las erogaciones que superen el monto de 1t50.000,00 (cincuenta mil colones exactos) por transacción dentro de un mismo mes, cuando éstas se refieran a compras de bienes o servicios. En caso de pago de informantes, estará sujeto a un valor estimado máximo de ¢50.000.00 (cincuenta mil colones exactos) para cada informante al cual brinde información eficaz y certera.
+6. Firmar previo análisis, las solicitudes de adelantos de dinero que se presenten al Departamento Financiero.
+7. Aprobar el gasto efectuado mediante la firma en la liquidación del adelanto de dinero.
+8. Supervisar que las erogaciones se realicen de acuerdo con los planes y justificaciones presentados por el Jefe de División solicitante.
+9. Presentar Declaración Jurada conforme al Libro de Informantes que llevará la Jefatura de la División ele Inteligencia, ante el Departamento Financiero adjunta a la liquidación del gasto.
+10. Llevar el control y seguimiento de los gastos que se han autorizado, conforme informe mensual que deben presentar los jefes de División en el que se detalla los bienes adquiridos o servicios adquiridos y el detalle del gasto en que se incurrió.
