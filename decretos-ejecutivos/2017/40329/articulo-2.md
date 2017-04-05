@@ -1,0 +1,5 @@
+Artículo dos.—Retírese del conocimiento de Sesiones Extraordinarias de la Asamblea Legislativa, el siguiente proyecto de Ley:
+Expediente 19.116: REDUCCIÓN DEL PLAZO ENTRE LA PRIMERA Y LA SEGUNDA RONDA ELECTORAL (REFORMA DEL ARTÍCULO 138 DE LA CONSTITUCIÓN POLÍTICA)”.
+Expediente 19.380: AUTORIZACIÓN AL INSTITUTO NACIONAL DE APRENDIZAJE (INA), PARA QUE SEGREGUE Y DONE LOTES DE SU PROPIEDAD A FAMILIAS DE ESCASOS RECURSOS ECONÓMICOS, (ANTERIORMENTE DENOMINADO): AUTORIZACIÓN AL INSTITUTO NACIONAL DE APRENDIZAJE (INA) PARA QUE SEGREGUE LOTES DE SU PROPIEDAD Y LOS DONE A FAMILIAS DE ESCASOS RECURSOS ECONÓMICOS.
+Rige a partir del cinco de abril de dos mil diecisiete.
+Dado en la Presidencia de la República, a los cinco días del mes de abril de dos mil diecisiete.
