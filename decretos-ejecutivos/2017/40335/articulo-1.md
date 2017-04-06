@@ -1,0 +1,18 @@
+N° 40335-MP
+EL PRESIDENTE DE LA REPÚBLICA,
+EL MINISTRO DE LA PRESIDENCIA Y
+De conformidad con lo dispuesto por los incisos 3) y 18) del artículo 140 y 146 de la Constitución Política de la República de Costa Rica, los artículos 27 inciso 1) y 28 inciso 2) acápite b) de la Ley General de la Administración Pública, N°6227 del 02 de mayo de 1978 y la Ley Nacional de Emergencias y Prevención del Riesgo, N°8488 del 22 de Noviembre de 2005.
+CONSIDERANDO:
+I. Que mediante Decreto Ejecutivo N°40027-MP publicado en el Diario Oficial la Gaceta del martes 29 de noviembre del 2016 se declara el estado de emergencia nacional la situación provocada por el Huracán Otto, en los siguientes cantones: Upala, Guatuso y los Chiles, así como los distritos de Aguas Zarcas, Cutris y Pocosol, del cantón de San Carlos, Río Cuarto, del cantón de Grecia y Peñas Blancas, del cantón de San Ramón, todos de la Provincia de Alajuela, cantón de Sarapiquí de la Provincia de Heredia, cantones de Bagaces y La Cruz de la Provincia de Guanacaste, los cantones de Osa, Golfito y Corredores de la Provincia de Puntarenas y Pococí de la Provincia de Limón.
+II. Que es deber máximo del Estado velar por la protección de la vida humana, por la seguridad de los habitantes y, en general, por la conservación del orden social.
+III. Que la Ley Nacional de Prevención de Riesgos y Atención de Emergencias dispone que en caso de calamidad pública ocasionada por hechos de la naturaleza que no puedan ser controlados, manejados ni dominados con las potestades ordinarias de que dispone el Gobierno, el Poder Ejecutivo podrá declarar emergencia nacional en cualquier parte del territorio nacional, a fin de integrar y definir las responsabilidades y funciones de todos los organismos, entidades públicas, privadas y poder brindar una solución acorde a la magnitud del desastre.
+IV. Que el Ministerio de Agricultura y Ganadería mediante oficio DVM-IQV-132- 2017 del 23 de febrero de 2017, solicita la inclusión de los cantones de Buenos Aires, Cotos Brus y Peréz Zeledón a la declaratoria de Estado de Emergencia Nacional a partir de la situación provocada por el Huracán Otto, en razón de la afectación a los productos sensibles socioeconómicamente en dichas zonas, especialmente café y frijol.
+V. Que la ampliación es necesaria a fin de dar un marco jurídico que permita tomar las medidas necesarias para hacer frente a los efectos que el huracán Otto ha provocado en dichos cantones y mitigar las consecuencias que puedan tener su impacto sobre las actividades de producción.
+VI. Que a partir de lo anterior, se requiere adicionar al Decreto Nº 40027-MP los siguientes cantones de la Región Brunca: Buenos Aires, Coto Brus y Peréz Zeledón.
+Por tanto,
+DECRETAN:
+REFORMA AL ARTÍCULO PRIMERO DEL DECRETO EJECUTIVO N°40027-MP
+"ESTADO DE EMERGENCIA NACIONAL A PARTIR DE LA SITUACIÓN
+PROVOCADA POR EL HURACÁN OTTO"
+Artículo 1º. Se reforma el artículo 1º del Decreto Ejecutivo Nº 40027-MP del 28 de noviembre de 2016, para que se lea de la siguiente manera:
+“Se declara estado de emergencia nacional la situación provocada por el Huracán Otto, en los siguientes cantones: Upala, Guatuso y los Chiles, así como los distritos de Aguas Zarcas, Cutris y Pocosol, del cantón de San Carlos, Río Cuarto, del cantón de Grecia y Peñas Blancas, del cantón de San Ramón, todos de la Provincia de Alajuela, cantón de Sarapiquí de la Provincia de Heredia, cantones de Bagaces y La Cruz de la Provincia de Guanacaste, los cantones de Osa, Golfito, Corredores, Buenos Aires y Coto Brus de la Provincia de Puntarenas, Pococí de la Provincia de Limón, y el cantón de Pérez de Zeledón de la Provincia de San José.”
