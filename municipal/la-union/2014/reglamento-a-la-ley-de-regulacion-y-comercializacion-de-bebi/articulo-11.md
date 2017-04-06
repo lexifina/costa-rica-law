@@ -1,1 +1,3 @@
-Artículo 11.—Prohibición para el expendió de licores. El día de las elecciones nacionales o locales, el jueves y viernes santos y los días que, cuando fuere necesario, señalare el Concejo Municipal mediante acuerdo firme y motivado, no se permitirá en todo el Cantón o en el área y por el tiempo que el Concejo previamente determine, el expendió de licores, para lo cual los inspectores municipales realizarán las verificaciones del cumplimiento de esta prohibición.
+Artículo 11.—La Municipalidad tendrá la facultad de regular la comercialización de bebidas alcohólicas y consumo de licor, los días que se celebren actos cívicos, desfiles u otras actividades cantonales, en la ruta asignada, y podrá delimitar el radio de acción; para ello se requerirá de mayoría calificada.
+Los inspectores municipales realizarán las verificaciones del cumplimiento respectivo.
+(Así reformado mediante sesión N° 77 del 6 de abril del 2017)

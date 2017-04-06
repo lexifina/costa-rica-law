@@ -14,3 +14,4 @@ Reglamento a la ley de Regulación y Comercialización de bebidas con Contenido 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-08 | la propia norma |
+| 2 | 2017-04-06 | Reglamento municipal 77 (2017-04-06) |

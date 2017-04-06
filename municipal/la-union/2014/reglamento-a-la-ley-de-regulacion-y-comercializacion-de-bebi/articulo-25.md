@@ -1,3 +1,5 @@
 CAPÍTULO V
 Sanciones
-Artículo 25.—Imposición de sanciones. La Municipalidad podrá imponer las sanciones establecidas en el Capítulo IV de la Ley 9047, para lo cual deben respetarse los principios del debido proceso, la verdad real, el impulso de oficio, la imparcialidad y la publicidad, así como los sanos criterios de la lógica, la razonabilidad y la proporcionalidad. Cuando la conducta objeto de sanción se determine por las reglas de la sana crítica la mera constatación se procederá de inmediato a imponer la sanción de rigor correspondiente y a emplazar al sancionado. Cuando la sanción dispuesta implique la revocación o cancelación de la licencia, deberá seguirse el procedimiento administrativo ordinario estipulado en el Libro Segundo de la Ley General de la Administración Pública.
+Artículo 25.—De la Revocación de las Licencias y Sanciones Administrativas. El Alcalde o Alcaldesa Municipal designará al órgano Director respectivo que se encargará de sustanciar el procedimiento administrativo y recomendar lo pertinente al Alcalde, que resolverá en primera instancia.
+En materia recursiva, contra esta resolución se estará a las disposiciones ordinarias que establezca el Código Municipal.
+(Así reformado mediante sesión N° 77 del 6 de abril del 2017)

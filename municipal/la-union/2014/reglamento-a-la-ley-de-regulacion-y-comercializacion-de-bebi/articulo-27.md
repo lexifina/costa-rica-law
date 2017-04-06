@@ -1,5 +1,4 @@
-Artículo 27.—Sanciones relativas al uso de la licencia. Será sancionado con una multa de diez salarios base a quien:
-1) Exceda las limitaciones de comercialización de la licencia permanente o licencia temporal con que opere.
-2) Comercialice bebidas con contenido alcohólico fuera de los horarios establecidos para su licencia.
-3) Venda, canjee, arriende, transfiera, enajene, traspase o subarriende de forma alguna la licencia o por cualquier medio permita su utilización indebida por terceros en contravención de lo dispuesto en el artículo 3 de la Ley.
-La aplicación de dichas sanciones se dará por medio de la simple constatación de los inspectores municipales y/o funcionarios públicos encargados de la fiscalización de las actividades autorizadas al expendio de bebidas con contenido alcohólico. En caso de reincidencia, se procederá además de la sanción de la multa establecida, a la clausura del local comercial y el inicio del procedimiento administrativo correspondiente a la cancelación de la licencia de expendio de bebidas con contenido alcohólico de conformidad con el Libro Segundo de la Ley General de la Administración Pública.
+Artículo 27.—Sanciones relativas al uso de la licencia. Será sancionado con una multa de un salario base, a quien por primera vez realice los actos tipificados en el Artículo 14 de la Ley 9047 durante la vigencia de su licencia.
+Será sancionado el Patentado con cuatro salarios base, quien por segunda vez realice los actos tipificados en el Artículo 14 de la Ley 9047 durante la vigencia de su licencia.
+En caso de reincidencia, se procederá a realizar el Procedimiento Administrativo correspondiente, de acuerdo con el Código Municipal y la Ley General de la Administración Pública, con el fin de proceder a cancelar la licencia otorgada, sin perjuicio de las demás responsabilidades civiles y penales del caso.
+(Así reformado mediante sesión N° 77 del 6 de abril del 2017)

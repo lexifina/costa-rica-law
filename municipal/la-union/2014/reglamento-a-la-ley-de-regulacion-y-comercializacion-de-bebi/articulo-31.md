@@ -1,3 +1,3 @@
-Artículo 31.—Sanciones relativas a la venta en vías públicas y sitios públicos. Será sancionado con treinta días multa a quien:
-Venda bebidas con contenido alcohólico en las vías públicas y sitios públicos, casas de habitación y en aquellos otros lugares donde se desarrollen actividades deportivas, mientras se efectúa el espectáculo.
-En estos casos, los inspectores municipales o las autoridades de policía mediante el levantamiento de un acta de decomiso o parte policial respectivamente, podrán realizar su decomiso, el cual deberá ser remitido al Juzgado Contravencional para que determine la procedencia de su destrucción y la aplicación de la sanción correspondiente, la cual de conformidad con el artículo 24 de la Ley 9047 deberá destinarse a las arcas municipales de esta Municipalidad.
+Artículo 31.—Sanciones relativas a la venta en vías públicas y sitios públicos. Será sancionado con una multa de quince días multa, a quien por primera vez realice los actos tipificados en el Artículo 19 de la Ley 9047 durante la vigencia de su licencia.
+Será sancionado el Patentado con treinta días multa, quien en caso de reincidencia realice los actos tipificados en el Artículo 19 de la Ley 9047 durante la vigencia de su licencia.
+(Así reformado mediante sesión N° 77 del 6 de abril del 2017)
