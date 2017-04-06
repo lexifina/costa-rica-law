@@ -288,6 +288,8 @@ d. Cualquier otro asunto que sea puesto a su conocimiento. En caso de que el fun
 • Juzgado Contravencional y de Menor Cuantía de Puerto Jiménez (*)
 • Plataforma Integrada de Servicios de Atención a la Víctima (PISAV) Sede Pavas
 • Plataforma Integrada de Servicios de Atención a la Víctima (PISAV) Sede La Unión.
+· Plataforma Integrada de Servicios de Atención a la Víctima de San Joaquín de Flores, Heredia
+(Así adicionado el punto anterior por el acuerdo N° 3-17 del 6 de abril de 2017)
 (*) Si bien estos despachos conocen diversas materias en primera instancia, solo atenderán los asuntos generados por la materia de Pensiones Alimentarias y Violencia Doméstica, conforme lo dispuesto por el Consejo Superior en sesión 28-09, artículo LXI, lo anterior sin detrimento de lo dispuesto en la circular Nº 100-08 de que cuando las circunstancias lo permitan y la apertura del despacho judicial sea efectiva, aprovechen este tiempo para tramitar tanto los asuntos nuevos como los ya entablados, por cuanto eso contribuye a la disminución del retraso judicial y a brindar un mejor servicio a las personas usuarias.
 Asuntos que deberá atender durante la apertura, en el período colectivo de vacaciones:
 Pensiones Alimentarias:
