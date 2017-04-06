@@ -1,0 +1,1 @@
+Artículo 21. —Los funcionarios de la Municipalidad de Osa no deberán aceptar o emitir cartas de recomendación, haciendo uso de su cargo, en beneficio de personas o grupos específicos, para procurar nombramientos, ascensos u otros beneficios.

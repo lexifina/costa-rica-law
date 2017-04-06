@@ -1,0 +1,1 @@
+Artículo 10. —Ninguno de los funcionarios de la Municipalidad de Osa deberá utilizar su cargo con propósitos privados y deberán evitar relaciones y actos que impliquen un riesgo de corrupción o que puedan suscitar dudas razonables acerca de su objetividad, independencia e imparcialidad.

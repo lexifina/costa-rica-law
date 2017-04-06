@@ -1,0 +1,2 @@
+Artículo 5º—La independencia no debe verse afectada por presiones internas o externas a la propia entidad; o por la influencia de jerarcas y demás funcionarios de la administración, en cuanto a personas, proyectos o programas; o por las relaciones personales o financieras que provoquen conflictos de lealtad o de interés.
+Los funcionarios de la Municipalidad de Osa deben de abstenerse de intervenir en asuntos donde tengan algún interés personal o familiar, directa o indirectamente.

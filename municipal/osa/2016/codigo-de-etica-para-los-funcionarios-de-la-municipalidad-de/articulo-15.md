@@ -1,0 +1,1 @@
+Artículo 15. —Los funcionarios de la Municipalidad de Osa no deberán aceptar honorarios, regalías de cualquier tipo por discursos, conferencias o actividades similares, con excepción de lo que permita la ley.

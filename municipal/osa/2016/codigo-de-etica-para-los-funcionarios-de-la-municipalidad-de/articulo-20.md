@@ -1,0 +1,1 @@
+Artículo 20. —Los funcionarios de la Municipalidad de Osa no deberán recibir, directa o indirectamente, beneficios originados en contratos, concesiones o franquicias que celebre u otorgue la administración.

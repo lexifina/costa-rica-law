@@ -1,0 +1,1 @@
+Artículo 24. —Los funcionarios de la Municipalidad de Osa deberán evitar relaciones inconvenientes que impliquen un riesgo de corrupción o que puedan suscitar dudas acerca de su objetividad o independencia.

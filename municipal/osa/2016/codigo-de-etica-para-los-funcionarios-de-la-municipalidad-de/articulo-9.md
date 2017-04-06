@@ -1,0 +1,1 @@
+Artículo 9.—Todos los funcionarios de la Municipalidad de Osa deben evitar toda clase de relaciones y actos inconvenientes, con personas que puedan influir, comprometer o amenazar la capacidad real o potencial de la Municipalidad de Osa, para actuar, y por ende, proceder con la independencia requerida.

@@ -1,0 +1,1 @@
+Artículo 6º—Todos los funcionarios de la Municipalidad de Osa, deben actuar con objetividad e imparcialidad en las labores que efectúa y en particular en la toma de decisiones, las cuales deberán ser objetivas y apegadas al marco jurídico establecido.
