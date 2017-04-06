@@ -1,0 +1,1 @@
+Artículo 52°: La Oficina de recursos Humanos velara por la actualización y aplicación del proceso de Evaluación del Desempeño, así como la revisión y mejoras de los formularios y guías de aplicación de este proceso.

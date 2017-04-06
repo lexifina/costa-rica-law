@@ -1,0 +1,11 @@
+Artículo 74°: El Alcalde Municipal otorgará permiso con goce de salario al trabajador que se encuentre en las siguientes situaciones:
+a) En caso de fallecimiento de sus padres, hijos, entenados, hermanos, cónyuge, compañero, compañera, hasta por 5 días hábiles, contados a partir del día del fallecimiento.
+b) En caso de nupcias cinco días hábiles, a partir del día de la ceremonia previa constancia extendida por autoridad competente a la Dirección de Recursos Humanos quien dirigirá al Alcalde Municipal para su aprobación.
+c) La certificación anterior, emitida por autoridad competente se tiene como válida cuando provenga de sacerdotes católicos, notarios públicos, capitanes de naves y aeronaves, y jueces.
+d) Una copia de la certificación de defunción o de matrimonio debe ser entregada a la jefatura o en su defecto a la dirección de recursos humanos a más tardar el día siguiente a su reingreso laboral.
+e) En caso de nacimiento de niño (a) vivo o adopción legal, de la esposa o compañera del trabajador, 5 días hábiles, que se disfrutarán en forma inmediata al nacimiento, o a partir del momento que la madre sea dada de alta en el hospital respectivo, se presentará documento idóneo que compruebe el nacimiento o el primer día hábil de egreso del hospital.
+f) Hasta 5 días naturales, al trabajador que sufra en su casa de habitación o donde resida: incendio, inundación, terremoto, derrumbe, explosión o cualquiera similar. Todas las situaciones anteriormente indicadas presentarán prueba documental, fotos, video, necesarios para demostrarlo.
+g) En los casos de hospitalización de menores de edad, se regirá por lo dispuesto por la Sala Constitucional, prevaleciendo el interés superior del menor ante cualquier norma infraconstitucional.
+h) Para acompañar a citas médicas a hijos menores, según lo establecido por la Sala Constitucional. Es deber del funcionario aportar dentro de los dos días hábiles siguientes, el comprobante de asistencia de lo contrario se procederá al rebajo de las horas laborales que se haya ausentado.
+i) En caso de asistir a cursos de estudio, afín al puesto que desempeña, siempre y cuando no se afecte de forma gravosa la labor que desarrolla el trabajador.
+Quedando a criterio del alcalde si otorga el permiso con o sin goce salarial.

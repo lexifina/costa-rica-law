@@ -1,0 +1,1 @@
+Artículo 96°: La Municipalidad cancelará en dinero, el preaviso que otorga el artículo 28 del Código de Trabajo y en la forma indicada en dicho artículo, solamente en los casos de despido inmediato, con responsabilidad patronal. Este artículo no aplica en los contratos por tiempo determinado.

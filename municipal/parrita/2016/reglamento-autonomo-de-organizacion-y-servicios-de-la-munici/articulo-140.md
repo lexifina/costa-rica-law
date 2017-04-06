@@ -1,0 +1,1 @@
+Artículo 140°:Procederá la sanción disciplinaria que corresponda conforme a la gravedad de la falta, respetando los principios del debido proceso, contra aquella persona trabajadora que habiendo sido advertida sobre la necesidad de someterse a un tratamiento contra la adicción, por causa de esta, reincida en conductas sancionables.

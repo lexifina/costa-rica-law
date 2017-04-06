@@ -1,0 +1,1 @@
+Artículo 25°: Cuando quede una plaza vacante, la dirección de recursos humanos deberá como primera opción realizar un estudio por ascenso directo según lo establecido en el inc a, del artículo 128 del código municipal. Ante inopia comprobada se deberá convocar a concurso interno.

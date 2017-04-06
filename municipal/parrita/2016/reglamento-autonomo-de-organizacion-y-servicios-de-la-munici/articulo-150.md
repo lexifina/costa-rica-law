@@ -1,0 +1,1 @@
+Artículo 150: Las situaciones relativas al hostigamiento sexual están reguladas en la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, en el Reglamento municipal especializado en la materia.

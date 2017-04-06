@@ -1,0 +1,1 @@
+Artículo: 151: Las situaciones que involucren las tecnologías de la información y comunicación, serán reguladas conforme lo indiquen las normas, políticas, directrices y reglamentos establecidos por el departamento responsable.

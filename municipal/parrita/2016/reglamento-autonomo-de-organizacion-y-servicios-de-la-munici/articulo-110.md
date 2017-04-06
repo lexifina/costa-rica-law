@@ -1,0 +1,1 @@
+Artículo 110°: El control y salida durante el tiempo destinado al almuerzo, queda bajo responsabilidad de cada jefe inmediato, quien establecerá los mecanismos necesarios para ello, de manera que no se cierre la oficina y no se ocasione menoscabo en la prestación de servicios.

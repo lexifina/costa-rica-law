@@ -1,0 +1,1 @@
+Artículo 60°: No podrán ser funcionarios municipales quienes sean cónyuges o parientes, en línea directa o colateral hasta el tercer grado inclusivo con respecto a los Concejales, Alcalde, Directores, Gestores, Jefes de Personal de las unidades de reclutamiento y Selección de Personal.

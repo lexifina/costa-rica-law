@@ -1,0 +1,1 @@
+Artículo 91°: Toda persona trabajadora tendrá derecho a que se le reconozca un 3 % del salario base por año servido en esta municipalidad o en cualquier otra entidad o dependencia del sector público, de acuerdo con las disposiciones legales vigentes. Este porcentaje podrá ser aumentado por acuerdo municipal, a solicitud de los servidores.

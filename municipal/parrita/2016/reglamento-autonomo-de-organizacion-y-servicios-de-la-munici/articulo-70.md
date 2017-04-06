@@ -1,0 +1,1 @@
+Artículo 70°: La programación de las vacaciones se debe coordinar entre el jefe inmediato y la Dirección de Recursos Humanos y estas se concederán según lo establecido en el artículo 146 inciso e- del Código Municipal.

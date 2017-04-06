@@ -1,0 +1,1 @@
+Artículo 119°: La llegada tardía injustificada mayor de diez minutos, contados a partir de la hora de ingreso estipulada en el artículo anterior será deducida en fracción de hora. En todo caso el funcionario habrá de registrar obligatoriamente el ingreso al centro de trabajo mediante el sistema correspondiente.

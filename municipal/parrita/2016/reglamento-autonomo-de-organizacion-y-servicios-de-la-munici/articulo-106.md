@@ -1,0 +1,1 @@
+Artículo 106°: Respecto al uso de Vehículos y Maquinaria Municipal acatar en todos sus extremos lo establecido en el reglamento de uso de Vehículos Municipales publicado en la Gaceta número 78 del 17 de setiembre del 2013.

@@ -1,0 +1,1 @@
+Artículo 81°: Toda persona trabajadora municipal deberá acatar y cumplir, la legislación y reglamentos vigentes en ésta materia y las normas que se promulguen en el futuro, así como las recomendaciones que formulen las autoridades competentes.

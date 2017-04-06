@@ -1,0 +1,1 @@
+Artículo 112°: Incurrirá en falta grave y se aplicara lo dispuesto en el artículo 149 inciso b, del código municipal, al servidor que por dolo o negligencia dañe o altere medios de control electromagnéticos establecidos para las marcas de asistencia.

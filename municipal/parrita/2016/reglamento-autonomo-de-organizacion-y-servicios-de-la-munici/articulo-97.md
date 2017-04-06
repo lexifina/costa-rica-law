@@ -1,0 +1,1 @@
+Artículo 97°: La compensación económica por concepto de Prohibición del Ejercicio Liberal de la Profesión y Dedicación Exclusiva, se regulará conforme la reglamentación vigente y la jurisprudencia existente emita en estas materias.

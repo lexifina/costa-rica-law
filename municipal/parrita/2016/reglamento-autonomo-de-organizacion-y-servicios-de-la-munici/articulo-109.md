@@ -1,0 +1,1 @@
+Artículo 109°: Salvo los casos previstos en este reglamento la omisión de marca a cualquiera de las horas de entrada o salida, hará presumir la inexistencia a la correspondiente fracción de jornada, siempre y cuando el trabajador no la justifique ante su jefe inmediato, quien valorara si acepta o no dicha justificación.

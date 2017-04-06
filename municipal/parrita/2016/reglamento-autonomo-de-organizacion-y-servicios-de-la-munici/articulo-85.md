@@ -1,0 +1,1 @@
+Artículo 85°: Toda servidora embarazada o que adopte a un menor de edad gozara de la licencia, los deberes y las atribuciones prescritas en el artículo 95 del Código de Trabajo. Durante el plazo de la licencia, la municipalidad le pagara el monto restante del subsidio que reciba de la Caja Costarricense de Seguro Social, hasta completar el cien por ciento de su salario.

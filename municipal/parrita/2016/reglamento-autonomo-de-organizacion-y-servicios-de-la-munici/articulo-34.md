@@ -1,0 +1,3 @@
+Artículo 34°: Es deber de las jefaturas, enviar copia al expediente personal de los funcionarios, de aquellas gestiones que dentro de su ámbito de competencia, pueden generar actos jurídico - administrativos.
+La información contenida en el prontuario, así como en el expediente personal, es de carácter confidencial y solo tendrán acceso a ella los funcionarios que lo requieran para labores propias del cargo, el servidor y su representante autorizado.
+Es deber de todos los funcionarios, mantener actualizado el expediente personal, en lo referente a cambio de domicilio atestados y cualquier otra información.

@@ -1,0 +1,1 @@
+Artículo 28°: Las plazas vacantes deberán ser llenadas atendiendo lo señalado en el artículo 128 y 130 del Código Municipal; dichas plazas podrán ser ocupadas en forma interina por la persona designada para ello, mientras se realiza el concurso interno, hasta por el término de dos meses, período que podrá ser prorrogado atendiendo a las circunstancias particulares del mismo.

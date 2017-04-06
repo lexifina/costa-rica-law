@@ -1,0 +1,1 @@
+Artículo 59°: El Manual Descriptivo de Puestos Municipal, es responsabilidad de la dirección de recursos humanos, en cuanto a su organización y funcionamiento de los puestos municipales, los cuales no podrán crear plazas sin que estén incluidas en dichos manuales, y los perfiles ocupacionales correspondientes.
