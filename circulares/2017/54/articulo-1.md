@@ -1,0 +1,29 @@
+CIRCULAR N° 54-2017
+ASUNTO: Sobre el uso del rol para el servicio médico-psiquiátrico.
+A TODAS LAS AUTORIDADES JUDICIALES QUE
+TRAMITAN CASOS MÉDICO-PSIQUIÁTRICOS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial, en sesión No. 29-17, celebrada el 28 de marzo de 2017, artículo LXXVII, a solicitud de la doctora Sisy Castillo Ramírez, Jefa interina de la Sección de Psiquiatría y Psicología Forense, acordó comunicar a todas las Autoridades Judiciales que tramitan casos de disponibilidad de dicha oficina, con el fin de agilizar el trámite de estos casos, lo siguiente:
+“SE LES RECUERDA QUE EL USO DEL ROL PARA EL SERVICIO MÉDICO-PSIQUIÁTRICO ININTERRUMPIDO DE LOS Y LAS ESPECIALISTAS EN PSIQUIATRÍA DE LA SECCIÓN DE PSIQUIATRÍA Y PSICOLOGÍA FORENSE ES EL SIGUIENTE:
+Modalidad: Disponibilidad (la persona perito viene a la Ciudad Judicial previa coordinación, no se encuentra de planta fuera de la jornada habitual, para ello se pone a disposición en el rol remitido mensualmente a los despachos judiciales los números de teléfono dónde localizarles después de las 16:30 horas, antes de esta hora en horario ordinario se puede coordinar con el personal administrativo de la Sección). No queda personal de planta en la Sección de Psiquiatría y Psicología Forense después de las 16:30 horas, de ahí la importancia de la coordinación.
+Casos a valorar: personas detenidas, con la orden de la autoridad jurisdiccional Penal de ser internadas en el 2Centro de atención para personas con enfermedad mental en conflicto con la ley (CAPEMCOL)” (según circular N° 171-2015), es decir, para valorar si reúnen o no criterios médico-psiquiátricos para un internamiento en el Hospital Nacional Psiquiátrico (Servicio CAPEMCOL).
+Las valoraciones de capacidades volitivas y cognitivas y cualquier otro aspecto forense no se realizan durante las disponibilidades; se deben solicitar en tiempo ordinario (lunes a viernes de 7:30 am a 4:30 pm) a través del área administrativa de la Sección con los requisitos respectivos (ver apartado de “Requisitos”).
+Lugar donde se realizan las valoraciones: Sección de Psiquiatría y Psicología Forense del Departamento de Medicina Legal, OIJ (Ciudad Judicial, San Joaquín de Flores) y el Horario NO inicia a la medianoche (no llamar a quien no le corresponde), sino de la siguiente manera:
+Horario: este rol se aplica
+● De lunes a viernes, a partir de las 4:30pm y hasta las 7:30 am del día siguiente
+● Sábados, domingos y feriados, las 24 horas (de 7:30 am el día que le corresponde la disponibilidad a las 7:30 am del día siguiente).
+● Para casos de este tipo (Valorar internamiento en CAPEMCOL) que sean enviados en horas hábiles (de lunes a viernes de 7:30 am a 4:30pm) sin previa cita, se tramita la solicitud por la vía ordinaria si la agenda lo permite, si no, se queda para la disponibilidad.
+Importante:
+1. Para efectos de notificar a la persona perito asignada para ese día, proceder a contactarla a través de los teléfonos brindados en el rol correspondiente a cada mes.
+2. El rol será remitido a los Despachos Judiciales y otras instancias correspondientes el último viernes de cada mes o con más antelación en casos de feriados o cierres colectivos.
+3. En caso de que no hubiera respuesta en los números telefónicos anotados de la persona perito en Psiquiatría en disponibilidad, luego de dos intentos a cada número, y transcurren quince minutos sin que la persona psiquiatra devuelva la llamada, proceder a contactar a la Jefa de la Sección o a quien la sustituya para lo cual se anotará en el rol respectivo. Preferiblemente realizar las llamadas desde teléfonos que no aparezcan como privados para facilitar la devolución de la llamada.
+4. Se les recuerda que la sección no cuenta con personal de apoyo administrativo durante la disponibilidad y que los números de oficina que aparecen anotados corresponden a las oficinas de las personas peritas en Psiquiatría y están activos mientras la persona esté realizándose la pericia en dicha oficina.
+5. La Central de Comunicaciones 5. de Radio del OIJ (2295- 3640) también recibe una copia de este rol.
+6. No son la ruta para contactar psiquiatras en disponibilidad: ni el personal de la Sección de Patología Forense (“Morgue”) ni de la Clínica Médico Forense del Departamento de Medicina Legal, ni del Hospital Nacional Psiquiátrico ni del CAPEMCOL. Asimismo, se recuerda que el (la) Psiquiatra no puede responder a consultas referentes a otras Secciones o Departamentos (Clínica, Toxicología, etcétera) ni sobre consultas de tipo administrativo relativo a otros casos o citas otorgadas en horario ordinario.
+Requisitos:
+1 Solicitud de la Autoridad Judicial debidamente llena, en el formulario F-137 del Departamento de Medicina Legal (Solicitud de Dictamen Médico Legal) indicando que se requiere valorar internamiento en CAPEMCOL o en Hospital Nacional Psiquiátrico en casos de mujeres o personas menores de edad.
+2. Copia de la denuncia o documento equivalente donde se narren los hechos denunciados.
+3. Documentos si hubiera de atenciones médicas o psicológicas, como dictámenes y/o epicrisis en caso que la persona a valorar cuente con antecedentes de valoraciones en Psiquiatría, Psicología y/o Trabajo Social.
+4. En caso de enviar esta documentación en forma digital en horas de disponibilidad, remitirla al correo electrónico institucional del perito (a) correspondiente, con copia al correo de la Sección: “Solicitar citas - Sección Psiquiatría y Psicología Forense”: docs_psiquiatria@Poder-Judicial.go.cr
+5. Recordar que para las solicitudes que impliquen la realización de un peritaje que se salga de lo contemplado en la circular N° 171-2015 (valoraciones para internamiento en CAPEMCOL) se debe tramitar cita por la vía ordinaria, en horas hábiles (por ejemplo: capacidades cognitivas y volitivas, tipo de enfermedad, personalidad, etc).”
+San José, 7 de abril de 2017
