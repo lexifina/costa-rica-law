@@ -14,3 +14,4 @@ Reglamento a la Ley Orgánica del Colegio de Profesionales en Bibliotecología d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-02-23 | la propia norma |
+| 2 | 2017-04-07 | Reglamento 0 (2017-04-07) |
