@@ -1,1 +1,0 @@
-Artículo 13.-Cuando se venza el término o sea resuelto el presente contrato por cualquier causa, el Contratista deberá entregar el local, mobiliario y equipo, dentro de un término no mayor de quince días naturales, en las mismas condiciones de conservación y limpieza en que fue recibido, salvo el natural deterioro que pueda atribuirse al tiempo y el uso normal.

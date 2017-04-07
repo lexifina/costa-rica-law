@@ -1,2 +1,0 @@
-Artículo 6°-El Contratista deberá adquirir aparte del menaje y equipos livianos suministrados por el IDA, el que considere necesario para el buen funcionamiento de la Soda. Así como pagar el exceso del consumo de gas que aporte el IDA para la prestación del servicio.
-El deterioro anormal que sufre el equipo, hará caer al Contratista en responsabilidad, pudiendo entonces resolverse el contrato y exigirse la garantía que estipula el artículo 14 de este Reglamento.

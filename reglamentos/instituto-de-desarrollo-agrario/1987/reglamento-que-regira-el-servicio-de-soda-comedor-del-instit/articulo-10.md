@@ -1,1 +1,0 @@
-Artículo 10.-Organizar al servicio y disponer las instalaciones para que el consumidor pueda, hasta donde sea posible, servirse así mismo y abandonar el local quince minutos después de haber ingresado a obtener un servicio de café o similares, o cuarenta y cinco minutos para el almuerzo.

@@ -1,1 +1,0 @@
-Artículo 4°-El IDA concede al Contratista el local de la Soda-Comedor y mobiliario sin costo alguno para el segundo, así como el suministro de servicio de energía eléctrica, agua, gas, y cualquier otro aporte que el IDA crea conveniente para el buen funcionamiento de la Soda.

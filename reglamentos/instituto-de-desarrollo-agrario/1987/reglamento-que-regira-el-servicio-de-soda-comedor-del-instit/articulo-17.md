@@ -1,2 +1,0 @@
-Artículo 17.-El Contratista no podrá fijar, ni modificar los precios de los artículos alimenticios sin la autorización de la Comisión Fiscalizadora de la Soda, a quien debe dirigir la solicitud de modificación, indicando los motivos que justifiquen la elevación del precio. Todo ello de conformidad con los precios fijados por el Ministerio de Economía y Comercio.
-Para esta autorización se llevará a cabo un estudio integral a efectos de determinar la acción que más convenga para el buen funcionamiento del servicio.

@@ -1,2 +1,0 @@
-OTRAS DISPOSICIONES
-Artículo 11.-El IDA se reserva el derecho de vigilar, controlar y fiscalizar el funcionamiento general del servicio de Soda-Comedor, aseo de las instalaciones, prestación del personal, etc., por medio de la Comisión Fiscalizadora de la Soda que contempla el artículo 12. El Contratista queda obligado a atender las indicaciones e instrucciones que sobre ello determine la Comisión citada. La Auditoria realizará los inventarios periódicos que estime convenientes.
