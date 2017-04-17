@@ -1,0 +1,1 @@
+Transitorio único. La declaratoria de ineficacia aquí señalada, se realiza sin perjuicio de los derechos adquiridos de aquellos médicos que demuestren el cumplimiento de los requisitos establecidos en los acuerdos derogados, en virtud de la realización de estudios de postgrado realizados durante la vigencia de dichos acuerdos.
