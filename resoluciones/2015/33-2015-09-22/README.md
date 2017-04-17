@@ -14,3 +14,4 @@ Condiciones Generales para el uso de la página Web "Administración Tributaria 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-10-04 | la propia norma |
+| 2 | 2017-04-17 | Resolución 22 (2017-04-17) |
