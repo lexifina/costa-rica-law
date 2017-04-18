@@ -1,1 +1,0 @@
-Artículo 4º—Del otorgamiento de la ayuda. La ayuda económica o en materiales se otorgará una vez por año presupuestario y esta se brindará en dinero o materiales de construcción, de acuerdo con las prioridades que determinen, en cada caso, los profesionales que realizan la valoración.
