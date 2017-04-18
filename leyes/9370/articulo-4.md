@@ -1,0 +1,1 @@
+ARTÍCULO 4.- Se modifican el uso y la naturaleza del bien inmueble a segregar conforme al artículo anterior, para que pase de terreno destinado a dar acceso a plaza de deportes a terreno para construcción de centro educativo, con el fin de albergar la escuela pública de San Rafael de Varablanca.

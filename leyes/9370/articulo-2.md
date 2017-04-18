@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Se modifican el uso y la naturaleza del bien inmueble a segregar, conforme al artículo anterior, para que pase de terreno destinado a campo deportivo a terreno para construcción de centro educativo, y se autoriza a la Municipalidad de Heredia para que lo done al Ministerio de Educación Pública, con el fin de albergar la escuela pública de San Rafael de Varablanca.
