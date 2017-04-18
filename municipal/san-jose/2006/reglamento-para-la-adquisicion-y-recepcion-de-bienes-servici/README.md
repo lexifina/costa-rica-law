@@ -15,3 +15,4 @@ Reglamento para la Adquisición y Recepción de Bienes, Servicios y Obras de la 
 | --- | --- | --- |
 | 1 | 2006-05-02 | la propia norma |
 | 2 | 2011-10-11 | Reglamento municipal 76 (2011-10-11) |
+| 3 | 2017-04-18 | Reglamento municipal 51 (2017-04-18) |

@@ -1,6 +1,6 @@
 (Derogado)
 MUNICIPALIDAD DE SAN JOSÉ
-(Esta norma fue derogada por el artículo 63 del Reglamento para la adquisición y recepción de bienes, servicios y obras de la Municipalidad de cantón central de San José, aprobado en sesión N° 76 del 11 de octubre de 2011)
+(Esta norma fue derogada por el artículo 63 del Reglamento para la adquisición y recepción de bienes, servicios y obras de la Municipalidad de cantón central de San José, aprobado en sesión N° 76 del 11 de octubre de 2011. Posteriormente se deroga nuevamente por el artículo 58 del Reglamento para la Adquisición y Recepción de Bienes, Servicios y Obras de la Municipalidad del Cantón Central de San José, aprobado mediante sesión ordinaria N° 051 del 18 de abril del 2017)
 APROBACIÓN
 REGLAMENTO PARA LA ADQUISICIÓN Y RECEPCIÓN
 DE BIENES, SERVICIOS Y OBRAS DE LA
