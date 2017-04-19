@@ -6,14 +6,14 @@ Para los productos de compras institucionales y BCR Distribución no pagarán co
 (Así reformado el punto 3.1) anterior en sesión N° 44 del 14 de octubre de 2015)
 3.2.- Comisión por adelanto de efectivo
 Tarjetas de crédito
-$1.00 + 4 % por avance efectivo. Esta comisión no se cobrará cuando el adelanto de efectivo se realice por canales electrónicos (ATM´S, sitio web, Apps, IVR o cualquier otro canal electrónico que se implemente)
+$1.00 + 4 % por avance efectivo utilizando cualquier medio disponible. Esta comisión no se cobrará cuando el adelanto de efectivo se realice por canales electrónicos (ATM´S, sitio web, Apps, IVR o cualquier otro canal electrónico que se implemente).
 Por los avances de efectivo de la BCR Compras institucionales, pagarán una comisión igual a la tasa básica pasiva del BCCR, vigente a fin de mes, más el margen que corresponda a una operación ubicada en el riesgo AAA en su límite inferior, ajustable mensualmente.
 Tarjetas de débito
-• $0.25 por avance efectivo en ATM´S del BCR después del quinto retiro en el mes, solamente en las cuentas cuyo saldo promedio semestral sea inferior a los $350.00.
-• $0.50 por avances efectivo en ATM´S dentro de los convenios que tenga el BCR (ATH y BNCR) y $0.25 para las consultas.
-• $3 +0.50% comisión por retiro de efectivo en ATM´S o en ventanilla en otros emisores internacionales o locales que no estén en convenio con el BCR.
-• $1 por cada transacción de avance o retiro de efectivo en ventanilla del BCR, excepto en las cuentas cuyo saldo promedio semestral sea mayor a $1.000.00 o cuando el retiro solicitado por el cliente supere el monto permitido a dispensar por nuestros ATM´S.
-(Así reformado el punto 3.2) anterior en sesión N° 21 del 23 de mayo de 2016)
+$0.25 por avance efectivo en ATM´S del BCR después del quinto retiro en el mes, solamente en las cuentas cuyo saldo promedio semestral sea inferior a los $350,00.
+$1.25 por avances efectivo en ATM´S en emisores locales.
+$3 +0.50% comisión por retiro de efectivo en ATM´S o en ventanilla en otros emisores internacionales.
+$1 por cada transacción de avance o retiro de efectivo en ventanilla del BCR, excepto en las cuentas cuyo saldo promedio semestral sea mayor a $1.000,00 o cuando el retiro solicitado por el cliente supere el monto permitido a dispensar por nuestros ATM´S.
+(Así reformado el punto 3.2) anterior en sesión N° 15 del 19 de abril de 2017)
 3.3.- Comisión por cargo administrativo por mora
 2-30 Días $ 25.00
 31-90 Días $ 40.00

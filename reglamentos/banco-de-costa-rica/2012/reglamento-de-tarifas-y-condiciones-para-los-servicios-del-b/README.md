@@ -24,3 +24,4 @@ Reglamento de tarifas y condiciones para los servicios del Banco de Costa Rica
 | 9 | 2016-02-08 | Reglamento 7 (2016-02-08) |
 | 10 | 2016-05-23 | Reglamento 21 (2016-05-23) |
 | 11 | 2017-01-18 | Reglamento 3 (2017-01-18) |
+| 12 | 2017-04-19 | Reglamento 15 (2017-04-19) |
