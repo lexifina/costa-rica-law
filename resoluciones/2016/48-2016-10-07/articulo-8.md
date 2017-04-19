@@ -9,14 +9,23 @@ g. Hora de emisión del documento electrónico: El sistema deberá indicar en di
 h. Condiciones de la venta o servicio: crédito, contado, apartado, en consignación, arrendamiento con opción de compra, arrendamiento en función financiera o cualquier otra condición que se consigne en la factura.
 i. Medio de pago: tarjeta, efectivo, cheque, transferencia – depósito bancario, recaudado por terceros o cualquier otra condición que se consigne en la factura.
 j. Normativa Vigente (Resolución): Para efectos de la representación gráfica, debe mostrarse la leyenda “Autorizada mediante resolución Nº DGT-R-48-2016 del 7 de octubre de 2016”.
-k. Deben estar redactados en español.
-l. Detalle de la mercancía o servicio prestado: cantidad enviada, precio unitario expresado en moneda nacional, unidad de medida, código de producto, descripción del producto o del servicio y monto de la operación expresada en moneda nacional.
+k. Los comprobantes electrónicos deberán expresarse en idioma español, no obstante, podrán ser redactados en un idioma distinto, en cuyo caso, de ser requerido por la Administración Tributaria deberá aportarse su traducción respectiva al idioma español
+(Así reformado el inciso anterior por el artículo 1° de la resolución N° DGT-R-25-2017 del 19 de abril del 2017)
+l. Detalle de la mercancía o servicio prestado: cantidad enviada, precio unitario expresado en moneda nacional o moneda extranjera, unidad de medida, código de producto, descripción del producto o del servicio y monto de la operación expresada en moneda nacional o moneda extranjera.
+(Así reformado el inciso anterior por el artículo 1° de la resolución N° DGT-R-25-2017 del 19 de abril del 2017)
 m. Descuentos concedidos, con la indicación de su naturaleza y montos.
-n. Subtotal de la factura en moneda nacional.
+n. Subtotal de la factura en moneda nacional o moneda extranjera.
+(Así reformado el inciso anterior mediante resolución N° DGT-R-25-2017 del 19 de abril del 2017)
 o. Monto del Impuesto Selectivo de Consumo, cuando el vendedor sea también obligado tributario del indicado impuesto y el monto de cualquier otro tributo que recaiga sobre las mercancías o servicios gravados.
-p. El valor de los servicios prestados expresado en moneda nacional, separando las gravadas de las exentas.
-q. El valor de las mercancías expresado en moneda nacional, separando las gravadas y las exentas.
-r. Precio neto de venta expresado en moneda nacional (sin impuesto de ventas).
+p. El valor de los servicios prestados expresado en moneda nacional o moneda extranjera, separando los gravados de los exentos.
+(Así reformado el inciso anterior por el artículo 1° de la resolución N° DGT-R-25-2017 del 19 de abril del 2017)
+q. El valor de las mercancías expresado en moneda nacional o moneda extranjera, separando las gravadas y las exentas.
+(Así reformado el inciso anterior por el artículo 1° de la resolución N° DGT-R-25-2017 del 19 de abril del 2017)
+r. Precio neto de venta expresado en moneda nacional o moneda extranjera, sin incluir el Impuesto General sobre las Ventas.
+(Así reformado el inciso anterior por el artículo 1° de la resolución N° DGT-R-25-2017 del 19 de abril del 2017)
 s. Monto del impuesto equivalente a la tarifa aplicada sobre el precio neto de venta, con la indicación “Impuesto de Ventas” en caso de que el cliente requiera dicho dato en el tiquete electrónico para respaldar el crédito, el sistema deberá estar en la capacidad de desglosar el impuesto.
-t. Valor total de la factura en moneda nacional.
+t. Valor total de la factura en moneda nacional o moneda extranjera.
+(Así reformado el inciso anterior por el artículo 1° de la resolución N° DGT-R-25-2017 del 19 de abril del 2017)
+u. Cuando el comprobante electrónico se exprese en moneda extranjera debe indicarse la moneda en que se realizó la operación, en el campo “Código de la moneda.
+(Así adicionado el anterior por el artículo 2° de la resolución N° DGT-R-25-2017 del 19 de abril del 2017)
 Además de los datos antes indicados; en la estructura deberán consignarse todos los campos que se establecen en los formatos y estructuras de los archivos XML publicados por la Administración Tributaria independientemente de que se utilicen o no.
