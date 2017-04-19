@@ -1,1 +1,0 @@
-Artículo 2º- Los obligados tributarios deberán emitir comprobantes electrónicos conforme con lo establecido en la Resolución número DGT-R-051-2016 del 10 de octubre del 2016, a partir del 15 de junio de 2017, fecha a partir de la cual se aplicará la sanción establecida en el artículo 83 del Código Tributario a los incumplidores.
