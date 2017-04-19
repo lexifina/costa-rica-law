@@ -1,0 +1,2 @@
+ARTICULO 12.-De cada sesión que celebre la Comisión se deberá levantar un acta que contendrá el orden del día, el nombre y el cargo de los asistentes a la sesión, el desarrollo de la reunión y los acuerdos tomados en la misma. Asimismo, deberán quedar asentados en el acta los nombres de los responsables del seguimiento y recomendaciones que se tomen.
+Los acuerdos de la Comisión se tomarán por mayoría simple de votos.

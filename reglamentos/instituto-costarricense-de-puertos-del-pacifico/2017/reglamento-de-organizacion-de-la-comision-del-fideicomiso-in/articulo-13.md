@@ -1,0 +1,1 @@
+ARTICULO 13.-El orden del día correspondiente, deberá incluir en primer lugar el conocimiento del acta de la sesión anterior, debiéndose incorporar todas las observaciones que los miembros del CIF consideren pertinentes, después de lo cual se someterá a aprobación y firma. Seguidamente se dará lectura a la correspondencia enviada y recibida por la CIF.

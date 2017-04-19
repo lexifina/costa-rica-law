@@ -1,0 +1,1 @@
+ARTICULO 4.-Cada miembro de la Comisión tendrá un sustituto, nombrado por el funcionario designado, para que le sustituya en su ausencia, con todos los deberes y obligaciones que le asisten al titular. La persona que se designe, deberá ser funcionario de la Institución que lo proponga.
