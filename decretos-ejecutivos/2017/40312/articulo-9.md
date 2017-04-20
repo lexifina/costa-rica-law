@@ -1,0 +1,1 @@
+Artículo 9º.-La Unidad Coordinadora y Ejecutora deberá coordinar con los jerarcas respectivos para la ejecución del Plan para la Atención Integral del Golfo de Nicoya, con competencias para resolver problemas de acción colectiva que se generan cuando existen multiplicidad de actores, que atienden metas y objetivos sectoriales o intersectoriales.

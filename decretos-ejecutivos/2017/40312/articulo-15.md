@@ -1,0 +1,1 @@
+Artículo 15º- Tanto el Plan para la Atención Integral del Golfo de Nicoya, como la Unidad Coordinadora y Ejecutora, tendrán una vigencia de cinco años, la cual podrá ser prorrogable de forma automática por un periodo igual al primero, en los cuales las instituciones velarán porque los proyectos y programas se incorporen en sus respectivos presupuestos anuales institucionales.

@@ -1,0 +1,1 @@
+Artículo 16º - Se declara de interés público y nacional las actividades relacionadas con la implementación, planificación y ejecución de los proyectos del Plan para la Atención Integral del Golfo de Nicoya.

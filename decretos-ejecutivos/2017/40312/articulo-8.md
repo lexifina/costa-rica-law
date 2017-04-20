@@ -1,0 +1,1 @@
+Artículo 8º. La Unidad Coordinadora y Ejecutora deberá generar, elaborar, coordinar y ejecutar procesos que promuevan el desarrollo integral del Golfo de Nicoya, en estrecha coordinación con los Órganos e Instrumentos de Planificación nacional, regional, territorial y local que se encuentran operando, la empresa privada, la academia y otros actores sociales cuando corresponda.

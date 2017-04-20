@@ -1,0 +1,1 @@
+Artículo 14º - La Unidad estará establecida en las instalaciones del Instituto Costarricense de Pesca y Acuicultura, ubicado en El Cocal, Puntarenas. Sin perjuicio de poder contar con otras oficinas dentro del territorio nacional.

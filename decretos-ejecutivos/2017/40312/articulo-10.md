@@ -1,0 +1,1 @@
+Artículo 10º. La Unidad Coordinadora y Ejecutora deberá de rendir informes semestrales al Consejo Presidencial Social y al Consejo Consultivo Nacional señalado en el artículo 6, para el seguimiento de los programas y proyectos; así como de los montos de la inversión pública, privada o de cooperación internacional ejecutados por Región.
