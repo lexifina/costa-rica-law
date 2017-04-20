@@ -26,7 +26,8 @@ Cemento Hidráulico Modificado con Caliza (Tipo MC). | |
 Cemento Hidráulico Modificado Mixto (Tipo MM). | |
 3. REFERENCIAS
 Para el cumplimiento del presente reglamento técnico se deben aplicar los siguientes documentos:
-3.1 Decreto Ejecutivo N° 28113-S, Reglamento para el Registro de los Productos Peligrosos.
+3.1 Decreto Ejecutivo N° 28113(*)-S, Reglamento para el Registro de los Productos Peligrosos.
+(*) (Nota de Sinalevi: mediante el artículo 2° del Reglamento técnico RTCR 481:2015 Productos Químicos. Productos Químicos Peligrosos. Etiquetado, aprobado mediante decreto ejecutivo N° 40457 del 20 de abril de 2017, se establece que en todo aquel reglamento en el que se señale el Decreto Ejecutivo N°28113-S del 10 de setiembre de 1999 "Reglamento para el Registro de Productos Químicos Peligrosos", publicado en el Alcance N° 74 a La Gaceta N° 194 del 6 de octubre de 1999, como referencia a algún requisito de etiquetado, deberá interpretarse que los mismos corresponden a lo indicado en el decreto ejecutivo N° 40457 del 20 de abril de 2017)
 3.2 Decreto Ejecutivo N° 333 71-COMEX-MEIC, Resolución N° 168-2006 (XLIX) Reglamento Técnico Centroamericano RTCA 01.01.11:06 Reglamento de Contenido Neto en Pre empacados.
 3.3 Decreto Ejecutivo N° 36463-MEIC, Reglamento Técnico RTCR 443:2010. Metrología. Unidades de Medida. Sistema Internacional (SI).
 3.4 Decreto Ejecutivo N° 39297-MElC, RTCR 476: 2015. Materiales de la Construcción. Cementos Hidráulicos. Procedimiento de Evaluación de la Conformidad,

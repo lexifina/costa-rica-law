@@ -14,3 +14,4 @@ Reglamento Técnico RTCR 479:2015 Materiales de Construcción, Cementos Hidrául
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-01-04 | la propia norma |
+| 2 | 2017-04-20 | Decreto Ejecutivo 40457 (2017-04-20) |
