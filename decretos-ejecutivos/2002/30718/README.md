@@ -14,3 +14,4 @@ Reforma al Reglamento para el Registro de Productos Peligrosos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-10-02 | la propia norma |
+| 2 | 2017-04-20 | Decreto Ejecutivo 40457 (2017-04-20) |
