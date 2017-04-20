@@ -1,0 +1,3 @@
+ARTÍCULO 15: NOTIFICACIÓN Y APLICACIÓN DE LA CATEGORÍA A
+1. En el momento de la entrada en vigor del presente Acuerdo, cada país en desarrollo Miembro aplicará sus compromisos de la categoría A. Los compromisos designados para su inclusión en la categoría A formarán parte integrante del presente Acuerdo.
+2. Todo país menos adelantado Miembro podrá notificar al Comité las disposiciones que haya designado para su inclusión en la categoría A hasta un año después de la entrada en vigor del presente Acuerdo. Los compromisos de cada país menos adelantado Miembro designados para su inclusión en la categoría A formarán parte integrante del presente Acuerdo.

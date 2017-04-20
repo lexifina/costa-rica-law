@@ -1,0 +1,6 @@
+ARTÍCULO 14: CATEGORÍAS DE DISPOSICIONES
+1. Hay tres categorías de disposiciones:
+a) La categoría A contiene las disposiciones que un país en desarrollo Miembro o un país menos adelantado Miembro designe para que sean aplicadas en el momento de la entrada en vigor del presente Acuerdo o, en el caso de un país menos adelantado Miembro, en el plazo de un año contado a partir de la entrada en vigor, según lo establecido en el artículo 15.
+b) La categoría B contiene las disposiciones que un país en desarrollo Miembro o un país menos adelantado Miembro designe para que sean aplicadas en una fecha posterior a un período de transición después de la entrada en vigor del presente Acuerdo, según lo establecido en el artículo 16.
+c) La categoría C contiene las disposiciones que un país en desarrollo Miembro o un país menos adelantado Miembro designe para que sean aplicadas en una fecha posterior a un período de transición después de la entrada en vigor del presente Acuerdo y que requieren la adquisición de capacidad de aplicación mediante la prestación de asistencia y apoyo para la creación de capacidad, según lo establecido en el artículo 16.
+2. Cada país en desarrollo y país menos adelantado Miembro designará por sí mismo, a título individual, las disposiciones que vaya a incluir en cada una de las categorías A, B y C.

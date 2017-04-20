@@ -1,0 +1,2 @@
+ARTÍCULO 9: TRASLADO DE MERCANCÍAS DESTINADAS A LA IMPORTACIÓN BAJO CONTROL ADUANERO
+Cada Miembro permitirá, en la medida en que sea factible, y siempre que se hayan cumplido todas las prescripciones reglamentarias, que las mercancías destinadas a la importación sean trasladadas en su territorio bajo control aduanero desde la oficina de aduanas de entrada hasta otra oficina de aduanas en su territorio en la que se realizaría el levante o el despacho de las mercancías.

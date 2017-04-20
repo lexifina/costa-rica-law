@@ -1,0 +1,13 @@
+ARTÍCULO 5: OTRAS MEDIDAS PARA AUMENTAR LA IMPARCIALIDAD, LA NO DISCRIMINACIÓN Y LA TRANSPARENCIA
+1 Notificaciones de controles o inspecciones reforzados
+Cuando un Miembro adopte o mantenga un sistema para emitir notificaciones u orientaciones a sus autoridades competentes a fin de elevar el nivel de los controles o inspecciones en frontera con respecto a los alimentos, bebidas o piensos que sean objeto de la notificación u orientación para proteger la vida y la salud de las personas y los animales o para preservar los vegetales en su territorio, se aplicarán las siguientes disciplinas con respecto a la forma de emitir, poner fin o suspender esas notificaciones y orientaciones:
+a) el Miembro podrá, según proceda, emitir la notificación o la orientación sobre la base del riesgo;
+b) el Miembro podrá emitir la notificación o la orientación de modo que se aplique uniformemente solo a los puntos de entrada en que se den las condiciones sanitarias y fitosanitarias en que se basan la notificación o la orientación;
+c) el Miembro pondrá fin a la notificación o a la orientación o las suspenderá, sin demora, cuando las circunstancias que dieron lugar a ellas ya no existan, o si las circunstancias modificadas pueden atenderse de una manera menos restrictiva del comercio; y
+d) cuando el Miembro decida dar por terminadas la notificación o la orientación o suspenderlas, publicará sin demora, según proceda, el anuncio de la terminación o la suspensión de la notificación o la orientación de manera no discriminatoria y fácilmente accesible, o informará al Miembro exportador o al importador.
+2 Retención
+Un Miembro informará sin demora al transportista o al importador en caso de que las mercancías declaradas para la importación sean retenidas a efectos de inspección por la aduana o cualquier otra autoridad competente.
+3 Procedimientos de prueba
+3.1 Previa petición, un Miembro podrá dar la oportunidad de realizar una segunda prueba en caso de que el resultado de la primera prueba de una muestra tomada a la llegada de mercancías declaradas para la importación dé lugar a una constatación desfavorable.
+3.2 Un Miembro publicará, de manera no discriminatoria y fácilmente accesible, los nombres y direcciones de los laboratorios en los que pueda realizarse la prueba, o facilitará esa información al importador cuando se le dé la oportunidad prevista en el párrafo 3.1.
+3.3 Un Miembro considerará los resultados de la segunda prueba realizada, en su caso, en virtud del párrafo 3.1, a efectos del levante y despacho de las mercancías y, cuando proceda, podrá aceptar los resultados de dicha prueba.
