@@ -1,1 +1,1 @@
-Artículo 9º—Etiquetado. Todos los productos peligrosos deberán ser manipulados en envases con sus respectivas etiquetas en idioma español, adheridas o impresas en su envase, o en papelería adjunta, de acuerdo a las indicaciones establecidas en los anexos 4 y 5.
+Artículo 9º—(Derogado por el artículo 3° del Reglamento técnico RTCR 481:2015 Productos Químicos. Productos Químicos Peligrosos. Etiquetado, aprobado mediante decreto ejecutivo N° 40457 del 20 de abril de 2017)
