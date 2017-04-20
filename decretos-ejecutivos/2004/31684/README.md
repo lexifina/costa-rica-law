@@ -16,3 +16,4 @@ Reglamento General a la Ley Sobre Estupefacientes, Sustancias Psicotrópicas, Dr
 | 1 | 2004-03-12 | la propia norma |
 | 2 | 2010-02-02 | Decreto Ejecutivo 35761 (2010-02-02) |
 | 3 | 2011-12-08 | Decreto Ejecutivo 36948 (2011-12-08) |
+| 4 | 2017-04-20 | Decreto Ejecutivo 40457 (2017-04-20) |
