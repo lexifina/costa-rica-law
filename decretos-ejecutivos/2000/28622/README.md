@@ -14,3 +14,4 @@ Reglamento para el Diseño, Construcción y Operación de Plantas de Almacenamie
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-18 | la propia norma |
+| 2 | 2017-04-20 | Decreto Ejecutivo 40457 (2017-04-20) |
