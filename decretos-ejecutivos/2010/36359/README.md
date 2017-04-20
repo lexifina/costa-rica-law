@@ -14,3 +14,4 @@ Reglamento para el Registro Sanitario y Verificación de Tintas, Pigmentos o Col
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-05-10 | la propia norma |
+| 2 | 2017-04-20 | Decreto Ejecutivo 40457 (2017-04-20) |
