@@ -1,4 +1,4 @@
-Ley N° 7475
+N° 7475
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
 DECRETA:
 APROBACION DEL ACTA FINAL EN QUE SE INCORPORAN LOS RESULTADOS DE LA RONDA URUGUAY DE NEGOCIACIONES COMERCIALES
@@ -191,6 +191,7 @@ Acuerdo sobre Normas de origen
 Acuerdo sobre Procedimientospara elk Trámite de Licencias de Importación
 Acuerdo sobre Subvenciones y Medidas Compensatorias
 Acuerdo sobre Salvaguardias
+(Nota de Sinalevi: Mediante Tratado Internacional 9430 del 4 de abril de 2017, se aprobó Protocolo de Enmienda del Acuerdo de Marrakech por el que se establece la Organización Mundial del Comercio, Ginebra 27 de noviembre 2014 y su anexo (Acuerdo sobre Facilitación del Comercio), mismo que puede ser consultado en el siguiente link.)
 ANEXO 1B: Acuerdo General sobre el Comercio de Servicios y Anexos
 ANEXO 1C: Acuerdo sobre los Aspectos de los Derechos de Propiedad Intelectual relacionados con el Comercio
 ANEXO 2
