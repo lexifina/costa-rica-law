@@ -1,0 +1,3 @@
+ARTÍCULO 4.- Comisiones técnicas
+El Consejo establecerá las comisiones técnicas que considere necesarias para atender temas particulares, con el objetivo de contar con apoyo técnico para un mejor desempeño de las labores del Consejo, en relación con infraestructura, puestos fronterizos y automatización de procedimientos de comercio exterior, entre otros relacionados con la facilitación del comercio.
+El Consejo Director del Sistema de Ventanilla Única de Comercio Exterior, creado mediante el decreto ejecutivo N.º 33452-Comex-MAG-H-G-S-MP, de 15 de junio de 2006, o el órgano que llegue a asumir sus competencias, se constituirá en una comisión técnica permanente en relación con las materias que abarcan sus objetivos y funciones.

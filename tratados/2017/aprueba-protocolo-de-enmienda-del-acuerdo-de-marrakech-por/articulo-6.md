@@ -1,0 +1,3 @@
+ARTÍCULO 6.- Se deroga el artículo 3 de la Ley N. º 9154, Aprobación del Acuerdo por el que se establece una Asociación entre Centroamérica, por un lado, y la Unión Europea y sus Estados miembros, por otro, y Aprobación por parte de la República de Costa Rica de la Enmienda al Artículo XXI de la Convención sobre el comercio internacional de especies amenazadas de fauna y flora silvestres, adoptada en reunión extraordinaria de la Conferencia de las partes, en Gaborone, Botswana, el 30 de abril de 1983, de 3 de julio de 2013, que crea el Consejo de Puestos Fronterizos Terrestres.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los cuatro días del mes de abril del año dos mil diecisiete.

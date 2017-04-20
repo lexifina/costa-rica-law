@@ -1,0 +1,12 @@
+ARTÍCULO 5.- Comités locales de facilitación del comercio
+Se crean los comités locales de facilitación del comercio en cada uno de los puertos, aeropuertos y puestos fronterizos terrestres, en los que se realizan procedimientos de comercio exterior, como una instancia de participación ciudadana y diálogo local permanente.
+El objetivo de los comités locales será constituirse en un canal privilegiado, para que usuarios y funcionarios públicos intercambien opiniones y criterios, elaboren, de manera constructiva, propuestas de mejora para los procedimientos de exportación, importación y tránsito de mercancías y participen activamente en los procesos de implementación de disposiciones sobre facilitación del comercio en sus respectivas ubicaciones.
+Cada uno de los comités locales estará conformado por el gerente o el subgerente de la aduana de jurisdicción, quien lo presidirá, así como por funcionarios del Ministerio de Obras Públicas y Transportes, el Ministerio de Salud, el Servicio Fitosanitario del Estado, el Servicio Nacional de Salud Animal, la Dirección General de Migración y Extranjería, la Policía de Control de Drogas, el Ministerio de Seguridad Pública y la Ventanilla Única de Comercio Exterior, destacados en cada puerto, aeropuerto y puesto fronterizo terrestre; así como por un representante de la municipalidad del cantón donde se ubiquen.
+Serán parte de los comités locales tres representantes del sector privado, en las áreas de gestión aduanera, transporte y logística, y depositarios aduaneros, así como un representante del sector productivo. La designación de estos representantes se realizará de conformidad con el reglamento de esta ley.
+Cuando las circunstancias lo ameriten por los temas a tratar, podrán ser invitados otros representantes del sector público y privado.
+Los comités locales tendrán las siguientes funciones:
+a) Resolver las situaciones y los problemas locales que estén afectando los procedimientos de exportación, importación y tránsito de mercancías, y la facilitación del comercio, en el puerto, aeropuerto o puesto fronterizo terrestre, según corresponda.
+b) Proponer al Conafac las medidas e iniciativas que mejoren la gestión del comercio exterior y su facilitación.
+e) Establecer planes de trabajo anuales en concordancia con el plan estratégico vigente, los cuales serán comunicados al Conafac.
+d) Remitir los informes y las actas de sus reuniones, a la secretaría técnica del Conafac.
+e) Otras funciones que se establezcan mediante el reglamento de esta ley.
