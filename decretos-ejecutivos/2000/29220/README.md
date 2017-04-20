@@ -15,3 +15,4 @@ Reglamento para la Contratación Laboral y Condiciones de Salud Ocupacional de l
 | --- | --- | --- |
 | 1 | 2001-01-10 | la propia norma |
 | 2 | 2011-06-22 | Decreto Ejecutivo 36640 (2011-06-22) |
+| 3 | 2017-04-20 | Decreto Ejecutivo 40457 (2017-04-20) |
