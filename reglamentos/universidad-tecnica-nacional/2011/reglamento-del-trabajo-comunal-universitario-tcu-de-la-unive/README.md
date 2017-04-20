@@ -14,3 +14,4 @@ Reglamento del trabajo comunal universitario (TCU) de la Universidad Técnica Na
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-08-10 | la propia norma |
+| 2 | 2017-04-20 | Reglamento 7 (2017-04-20) |
