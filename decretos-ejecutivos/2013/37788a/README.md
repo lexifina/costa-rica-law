@@ -14,3 +14,4 @@ Reglamento General para la Clasificación y Manejo de Residuos Peligrosos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-19 | la propia norma |
+| 2 | 2017-04-20 | Decreto Ejecutivo 40457 (2017-04-20) |
