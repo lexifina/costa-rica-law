@@ -1,1 +1,0 @@
-Artículo 39.—Requisitos para ser oficial de cumplimiento. Los requisitos para ser designado como Oficial de Cumplimiento, las incompatibilidades para su nombramiento como tal y sus funciones, serán definidas por normativa aprobada por el CONASSIF.

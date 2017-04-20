@@ -1,1 +1,0 @@
-Artículo 50.—Recursos. Contra las resoluciones emitidas por la Unidad de Control y Fiscalización de Precursores, con motivo de la aplicación de la Ley Nº 8204 y el presente Reglamento, cabrá recurso de revocatoria y apelación ante la Dirección General del ICD.

@@ -1,1 +1,0 @@
-Transitorio II.—Se otorga un plazo de hasta tres meses, contados a partir de la entrada en vigencia de este Reglamento, para que el CONASSIF emita la normativa y lineamientos exigida en este reglamento.

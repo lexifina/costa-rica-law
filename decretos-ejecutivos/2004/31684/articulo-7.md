@@ -1,1 +1,0 @@
-Artículo 7º—Comisiones Técnicas Ad Hoc. Para un mejor cumplimiento de los objetivos de la Comisión de Asesoramiento contra Legitimación de Capitales provenientes de delitos graves, ésta podrá establecer comisiones que desarrollen actividades de colaboración, logística y técnica en temas relacionados con la Ley Nº 8204 y este Reglamento.

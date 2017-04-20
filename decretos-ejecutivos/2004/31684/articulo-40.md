@@ -1,1 +1,0 @@
-Artículo 40.—Comunicación a la superintendencia que corresponda. Las instituciones supervisadas informarán por escrito a la Superintendencia a la que estén adscritas, sobre el nombramiento del Oficial de Cumplimiento, su suplente y sus respectivos atestados.

@@ -1,4 +1,0 @@
-Artículo 59.—Requisitos para sustitución de personería jurídica. Cuando se produzca el cambio de los representantes legales o de los apoderados de la persona física o jurídica registrada como importadora o compradora local de precursores, se deberá notificar a la Unidad de Control y Fiscalización de Precursores del ICD, según lo indicado a continuación:
-a) Comunicar por escrito la sustitución del apoderado, mencionando explícitamente el nombre y calidades de la persona cuyo nombramiento queda sin efecto y el nombre y calidades del nuevo representante o apoderado.
-b) Aportar certificación en la que consten los datos del nuevo representante legal o apoderado.
-c) Completar una boleta de registro de firmas, visible en el Anexo 2 de este Reglamento para el nuevo representante legal o apoderado. Este trámite aplica para empresas públicas o privadas que ya estén inscritas como importadoras de precursores.

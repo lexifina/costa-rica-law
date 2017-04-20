@@ -1,1 +1,0 @@
-Artículo 38.—Comité de cumplimiento. El Comité de Cumplimiento estará integrado por al menos, un miembro de la Junta Directiva o Consejo de Administración, el Gerente General, un funcionario de alto nivel del área operativa y el Oficial de Cumplimiento. Las funciones de este Comité serán definidos por el CONASSIF.

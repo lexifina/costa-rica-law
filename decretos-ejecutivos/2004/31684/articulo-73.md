@@ -1,1 +1,0 @@
-Artículo 73.—Sanciones. En caso de incumplimiento en lo dispuesto por los artículos 17, 22, 23, 25, 30, 33, 34, 35, y cualquier otra norma que disponga el deber, la responsabilidad, o la obligación de cumplimiento de lo dispuesto por el presente reglamento; se procederá conforme lo establece el capítulo III del Título IV de la Ley Nº 8204.

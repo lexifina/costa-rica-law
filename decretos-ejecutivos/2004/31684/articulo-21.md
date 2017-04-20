@@ -1,1 +1,0 @@
-Artículo 21.—Banco Pantalla. Se prohíbe, a las instituciones reguladas en los artículos 14 y 15 de la Ley Nº 8204, mantener relaciones directas o indirectas, con las instituciones que reúnan las características de un Banco Pantalla, conocido en idioma inglés como “Shell Bank”.

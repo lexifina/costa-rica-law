@@ -1,3 +1,0 @@
-CAPÍTULO V
-Confidencialidad de registros y trámites
-Artículo 30.—Confidencialidad de registros. Las instituciones supervisadas, sus funcionarios y empleados, las Superintendencias, sus funcionarios y empleados, así como los auditores internos y externos de las instituciones supervisadas, tienen prohibido poner en conocimiento de persona alguna, el hecho de que una información haya sido solicitada por la autoridad competente o proporcionada a la misma. Deberán mantener la más estricta reserva respecto a los reportes a que se refiere la presente normativa, absteniéndose de dar cualquier información o noticia al respecto, salvo a las autoridades competentes expresamente previstas.

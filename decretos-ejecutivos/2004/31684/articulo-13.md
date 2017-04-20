@@ -1,5 +1,0 @@
-Artículo 13.—Del desempeño de operaciones sistemáticas o substanciales. Las personas físicas o jurídicas que desempeñen las siguientes operaciones en forma sistemática o substancial, deberán inscribirse en el Registro que para ese efecto llevará la SUGEF, siempre y cuando no se encuentren supervisadas por alguna otra de las Superintendencias del país:
-a) Operaciones de canje de dinero y transferencias al y desde el exterior mediante instrumentos, tales como cheques, giros bancarios, letras de cambio o documentos similares.
-b) Operaciones de emisión, venta, rescate o transferencia de cheques de viajero, giros postales o instrumentos similares.
-c) Transferencias de fondos realizadas por cualquier otro medio, incluyendo retiros en efectivo en el exterior por medio de tarjetas de débito o transferencias electrónicas y remesas desde o hacia el exterior.
-d) Administración de fideicomisos o de cualquier tipo de administración de recursos efectuada por personas físicas o jurídicas que no sean intermediarios financieros, lo que incluye la administración de inversiones de cualquier tipo por parte de profesionales liberales que se dediquen al campo legal o contable.

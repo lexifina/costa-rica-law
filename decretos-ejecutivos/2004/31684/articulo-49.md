@@ -1,1 +1,0 @@
-Artículo 49.—Comunicación al Sistema Nacional de Aduanas. El ICD, comunicará al Servicio Nacional de Aduanas, a través del Sistema Informático utilizado en las operaciones Aduaneras u otro medio de comunicación electrónica o medio alterno, cada permiso de importación, exportación y reexportación de precursores de drogas y químicos esenciales emitido por dicho Instituto.

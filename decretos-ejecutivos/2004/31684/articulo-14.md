@@ -1,2 +1,0 @@
-Artículo 14.—Requisitos de inscripción. Los requisitos que deberán cumplir las personas físicas y jurídicas que realicen las actividades detalladas en el artículo anterior, así como el trámite aplicable para su inscripción ante la SUGEF, serán definidos mediante normativa aprobada por el CONASSIF.
-Cuando una persona física o jurídica fuera requerida a inscribirse y no lo hiciere en un plazo de un mes, la Superintendencia General de Entidades Financieras deberá comunicar este hecho al Ministerio Público para los efectos correspondientes.

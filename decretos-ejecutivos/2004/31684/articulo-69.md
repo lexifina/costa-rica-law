@@ -1,3 +1,0 @@
-Artículo 69.—Identificación y etiquetado de productos. Todo producto de los enlistados en el artículo 51 de este Reglamento, que se vaya a importar, exportar, reexportar o comerciar de cualquier forma en el mercado nacional o internacional deberá estar debidamente identificado y el etiquetado deberá incluir al menos:
-a) Nombre de marca, si la tuviere, y el nombre químico o genérico, de acuerdo con la nomenclatura señalada como oficial en el artículo 51 de este Reglamento.
-b) Indicar el nombre del fabricante y su dirección, país de origen, peso o volumen en sistema métrico decimal, número de lote, precauciones de uso o almacenamiento, si los tuviera, y todas aquellas características que permitan localizar y preservar su uso correcto.
