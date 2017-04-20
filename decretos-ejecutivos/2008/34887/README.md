@@ -14,3 +14,4 @@ Publicación Resolución N° 230-2008. Regla. RTCA 71.03.37:07 Produc. Higiénic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-26 | la propia norma |
+| 2 | 2017-04-20 | Decreto Ejecutivo 40457 (2017-04-20) |
