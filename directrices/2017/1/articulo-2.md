@@ -1,0 +1,1 @@
+Artículo 2º—La comunicación de las contrataciones con la Administración Pública es un deber funcional de notario público, por lo que el incumplimiento se considerará una falta y por consiguiente acarreará responsabilidad disciplinaria.
