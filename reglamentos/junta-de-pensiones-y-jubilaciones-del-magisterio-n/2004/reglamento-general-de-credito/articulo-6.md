@@ -3,9 +3,8 @@ a) Línea Gastos Personales
 15% Anual fija sobre saldos
 b) Línea Pago de Deuda al Fondo de Pensión
 9% Anual fija sobre saldos
-c) Línea de Microempresa
-15% Anual fija sobre saldos
-(Así reformado el inciso anterior mediante sesión ordinaria N° 015-2015 del 5 de febrero del 2015)
+c) Línea de Microempresa: 11% Anual fija sobre saldos, los primeros 3 años. Posterior a este plazo Tasa Básica Pasiva + 4 puntos porcentuales.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 043-2017 del 21 de abril del 2017)
 d) Línea para Entidades Sociales y Financieras del Magisterio Nacional: 10% Anual Fija sobre saldos, en tanto este porcentaje no sea inferior a la tasa básica pasiva, según la publicación del Banco Central, más 3 puntos. Cualquier solicitud para cambios en las tasas de interés, presentada por la entidad solicitante debe ser avalada por la Junta Directiva, previo estudio de impacto, elaborado por el Departamento Financiero Contable.
 (Así reformado el inciso anterior mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
 e) Línea de Salud
