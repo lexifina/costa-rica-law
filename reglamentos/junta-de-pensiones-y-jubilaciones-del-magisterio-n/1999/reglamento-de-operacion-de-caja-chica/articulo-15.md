@@ -1,1 +1,1 @@
-Artículo 15.—Compras por montos mayores al aquí estipulado, requerirán del trámite de orden de compra y emisión de cheque. (Modificación realizada según acuerdo adoptado por la Junta Directiva en sesión ordinaria 30-2002 del 24 de abril del 2002, (sesión ordinaria 01-2010). Modificación realizada sesión ordinaria Nº 011-2012 del 31 de enero 2012.
+Artículo 15.—Compras por montos mayores al aquí estipulado, requieren del trámite de orden de compra y emisión de cheque.

@@ -1,1 +1,1 @@
-Artículo 19.—El encargado de la Caja Chica que incumpla cualquiera de las disposiciones de este Reglamento se hará acreedor a la suspensión temporal o permanente de las funciones y a las sanciones estipuladas al efecto por el Reglamento Interno de Trabajo vigente de la Junta de Pensiones y las leyes conexas.
+Articulo 19.—El Especialista en custodia y fondos fijos debe mantener un control permanente del fondo a su cuidado y efectuar la solicitud de reintegro de gastos, oportunamente con el fin de que se registren en la Unidad de Contabilidad.

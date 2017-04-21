@@ -1,1 +1,1 @@
-Artículo 2º—Las Cajas Chicas operarán por medio del sistema de fondo fijo reembolsable.
+Artículo 2º—La Caja Chica opera por medio del sistema de fondo fijo reembolsable.

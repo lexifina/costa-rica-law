@@ -1,1 +1,1 @@
-Artículo 23.—El custodio no podrá mantener en la caja donde guarde los fondos de la Junta, documentos, efectivo, cheques u otros valores que sean propiedad particular o de otras personas, como tampoco deberá suplir dinero de su propiedad para realizar o contemplar pagos que correspondan a la Junta.
+Artículo 23.—Los aspectos relacionados con la adquisición de bienes y servicios no contemplados en este reglamento, se rigen por el Reglamento de Contratación Administrativa de Bienes y Servicios vigente de la Institución.

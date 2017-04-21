@@ -1,4 +1,1 @@
-Artículo 22.—Los fondos de Caja Chica establecidos al amparo de este Reglamento operarán por medio del sistema del fondo fijo, lo cual implica que el encargado del fondo tendrá en todo momento la suma total asignada compuesta por uno o varios de los siguientes conceptos:
-a) Efectivo.
-b) Documentos originales: anticipos de dinero, facturas.
-c) Solicitudes de reintegro en trámite.
+Artículo 22.—El Especialista en custodia y fondos fijos no puede mantener en la caja donde guarde los fondos de Jupema, documentos, efectivo, cheques u otros valores que sean propiedad particular o de otras personas, como tampoco debe suplir dinero de su propiedad para realizar o contemplar pagos que correspondan a Jupema.

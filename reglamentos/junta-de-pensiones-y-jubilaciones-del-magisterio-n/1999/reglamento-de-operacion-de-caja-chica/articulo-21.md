@@ -1,1 +1,4 @@
-Artículo 21.—En ausencia del responsable de la Caja Chica, el Jefe del Departamento Administrativo, nombrará provisionalmente un nuevo custodio según corresponda, el cual recibirá dicho fondo previo arqueo y lo entregará al custodio, siguiendo el mismo procedimiento. (Modificación realizada en la sesión ordinaria Nº 47-2002 del 03 de julio 2002.) (Última Modificación realizada en la sesión ordinaria Nº 73-2004 del 06 de octubre de 2004).
+Artículo 21.—El fondo de Caja Chica establecido al amparo de este Reglamento opera por medio del sistema del fondo fijo, lo cual implica que el Especialista en custodia y fondos fijos del fondo tiene en todo momento la suma total asignada compuesta por uno o varios de los siguientes conceptos:
+a) Efectivo
+b) Documentos originales: adelantos de dinero, facturas.
+c) Solicitudes de reintegro en trámite.
