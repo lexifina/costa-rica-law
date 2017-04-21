@@ -1,0 +1,4 @@
+JUNTA DE PENSIONES Y JUBILACIONES
+DEL MAGISTERIO NACIONAL
+Acuerdo adoptado por la Junta Directiva en su sesión ordinaria N° 023-2017 celebrada el 27 de febrero del año en curso, en el que se acordó:
+“Analizado el oficio DE-0162-02-2017 y su adjunto el oficio DACT-0017-02-2017 que contiene el Estudio Actuarial para el Aumento de Pensiones en Curso del Régimen de Capitalización Colectiva correspondiente al segundo semestre de 2016, la Junta Directiva acuerda: Acoger la recomendación del Departamento Actuarial y aprobar el incremento en un 0.67% para las personas que reciben una pensión desde el 1° de julio de 2016 o antes y, para aquellas que reciben una pensión después de esa fecha y hasta el 31 de diciembre de 2016, su aumento sea en forma proporcional al tiempo de disfrute del beneficio, desde la fecha de disfrute de pensión hasta la fecha en que se decretó el último aumento…”. Acuerdo firme.
