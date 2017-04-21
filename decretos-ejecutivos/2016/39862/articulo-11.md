@@ -1,0 +1,2 @@
+Artículo 11.- Grupos de trabajo
+Para el desarrollo de estudios de temas relacionados con el ámbito del Consejo Nacional Sectorial del Sector Transporte e Infraestructura, se podrán constituir comisiones de trabajo específicas, según lo requiera y solicite el ministro rector. En estos grupos de trabajo podrán participar representantes del Consejo, así como especialistas de los diferentes temas objeto de estudio que sean propuestos por los miembros del Consejo.
