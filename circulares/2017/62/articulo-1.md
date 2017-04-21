@@ -1,0 +1,11 @@
+N° 62-2017
+(Esta circular fue reiterada mediante circular N.° 195-2026 del 5 de noviembre del 2026)
+ASUNTO: Sobre la Ley N° 9271 denominada “Ley de Mecanismos electrónicos de seguimiento en Materia Penal” del Ministerio de Justicia y Paz.
+A LOS DESPACHOS JUDICIALES DEL PAÍS
+QUE TRAMITAN MATERIA PENAL
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial, en sesión No. 26- 17 celebrada el 21 de marzo de 2017, artículo XCIII, en atención a lo solicitado por el máster Manuel Delgado Cubillo, Jefe de la Unidad de Monitoreo Electrónico del Ministerio de Justicia y Paz, sobre la aplicación de la Ley N° 9271 de “Mecanismo Electrónico de Seguimiento en Materia Penal”, y en apego al artículo 7 del Decreto Ejecutivo N° 40177-JP, dispuso comunicar a los despachos judiciales del país que conocen materia penal, se sirvan indicar en las sentencias judiciales de arresto domiciliario con monitoreo electrónico, las condiciones laborales, educativas o de cualquier otra índole a cumplir por la persona monitoreada, se encuentren totalmente claras y se contemplen los espacios de movilización destinados para ello, en aquellos casos en los que no estén completamente definidos; se sugiere indicar el siguiente texto:
+“…se autoriza como área de movilización su (residencia, lugar de trabajo, y estudio) y los trayectos que existan entre estos puntos. La salida del sentenciado fuera de este rango territorial constituirá un incumplimiento o las establecidas en el artículo 11 del Reglamento supra indicado”
+A su vez resulta necesario que las autoridades judiciales aporten junto con la sentencia en físico, el auto de liquidación y el tener a la orden del Instituto Nacional de Criminología; este último resulta indispensable para el establecimiento de las fechas de valoración, según el artículo 25 del Reglamento Técnico del Ministerio de Justicia y Paz, contempladas en él.
+Lo anterior con la finalidad de que las autoridades competentes realicen el respectivo monitoreo a esas personas de forma efectiva y adecuada, coadyuvando a la Unidad de Monitorio del Ministerio de Justicia y Paz, para que pueda tomar en cuenta y eventualmente estudiar los recursos, ofertas laborales, educativas, entre otras, que la persona posea, con miras al cumplimiento de la pena o medida en desarrollo.
+San José, 21 de abril del 2017.
