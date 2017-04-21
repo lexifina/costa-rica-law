@@ -10,11 +10,12 @@ ECA-MP-P10 Seguimiento y reevaluación | N.A | 01 | A partir de su publicación 
 Todos los documentos descritos se encuentran a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad y en las oficinas centrales del ECA ubicadas en Rohrmoser 150 metros al este del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8 a las 16 horas.
 San José, 30 de junio del 2014.
 (Nota de Sinalevi: El presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditación, y se transcribe a continuación:)
-(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 3 del 4 de enero del 2017, donde se actualiza la versión 03 existente y se publica la versión 04, que se transcribe a continuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado y publicado su texto de forma íntegra mediante publicación en La Gaceta N° 90 del 15 de mayo del 2017, donde se actualiza la versión 04 existente y se publica la versión 05, que se reproduce a continuación:)
 [imagen]
 TABLA DE CONTENIDO
 1 SEGUIMIENTO Y REEVALUACIÓN ......................................................................................... 2
-2 COORDINACIÓN DE FECHA DE EVALUACIÓN Y CONFORMACIÓN DEL EQUIPO EVALUADOR ................................................................................................................................... 2
+2 COORDINACIÓN DE FECHA DE EVALUACIÓN Y CONFORMACIÓN DEL EQUIPO
+EVALUADOR ................................................................................................................................... 2
 3 ACTUALIZACIÓN DE LA DOCUMENTACIÓN .......................................................................... 3
 4 EVALUACIÓN ........................................................................................................................... 4
 5 ACTIVIDADES POSTERIORES A LA EVALUACIÓN .............................................................. 4
@@ -22,12 +23,14 @@ TABLA DE CONTENIDO
 7 PERIODICIDAD DE LAS VISITAS DE SEGUIMIENTO Y REEVALUACIÓN ............................. 5
 8 OTRAS ACTIVIDADES DE VIGILANCIA .................................................................................. 6
 9 ANEXOS .................................................................................................................................. 7
-10 IDENTIFICACIÓN DE CAMBIOS ............................................................................................ 25
-11 TRANSITORIO ........................................................................................................................ 25
+10 IDENTIFICACIÓN DE CAMBIOS ............................................................................................ 27
+11 TRANSITORIO ........................................................................................................................ 27
 1 SEGUIMIENTO Y REEVALUACIÓN
-1.1 Todos los OEC acreditados por el ECA deben ser supervisados al menos una vez al año, para asegurar que los mismos mantienen su competencia técnica y el cumplimiento de los requisitos por los cuales les fue otorgada la acreditación; cada 4 años, el OEC recibe una reevaluación, que consiste en realizar nuevamente el proceso completo de evaluación. Ambos procesos permiten asegurar que los requisitos que dieron lugar a la acreditación se mantienen por parte del OEC acreditado.
+1.1 Todos los OEC acreditados por el ECA deben ser supervisados al menos una vez al año, para
+asegurar que los mismos mantienen su competencia técnica y el cumplimiento de los requisitos por los cuales les fue otorgada la acreditación; cada 4 años, el OEC recibe una reevaluación, que consiste en realizar nuevamente el proceso completo de evaluación. Ambos procesos permiten asegurar que los requisitos que dieron lugar a la acreditación se mantienen por parte del OEC acreditado.
 2 SEGUIMIENTO Y REEVALUACIÓN
-2.1 Todos los OEC acreditados por el ECA deben ser supervisados al menos una vez al año, para asegurar que los mismos mantienen su competencia técnica y el cumplimiento de los requisitos por los cuales les fue otorgada la acreditación; cada 4 años, el OEC recibe una reevaluación, que consiste en realizar nuevamente el proceso completo de evaluación. Ambos procesos permiten asegurar que los requisitos que dieron lugar a la acreditación se mantienen por parte del OEC acreditado.
+2.1 Todos los OEC acreditados por el ECA deben ser supervisados al menos una vez al año, para
+asegurar que los mismos mantienen su competencia técnica y el cumplimiento de los requisitos por los cuales les fue otorgada la acreditación; cada 4 años, el OEC recibe una reevaluación, que consiste en realizar nuevamente el proceso completo de evaluación. Ambos procesos permiten asegurar que los requisitos que dieron lugar a la acreditación se mantienen por parte del OEC acreditado.
 3 COORDINACIÓN DE FECHA DE EVALUACIÓN Y CONFORMACIÓN DEL EQUIPO EVALUADOR
 3.1 La Secretaría de Acreditación, en el último trimestre de cada año, prepara el ECA-MP-P10-F01 Programa de evaluaciones, para las evaluaciones de seguimiento y reevaluaciones para el año siguiente.
 3.2 La Secretaría de Acreditación traslada a la Unidad de Logística el programa de evaluaciones aprobado, para que esta última informe a cada OEC, en el primer trimestre de cada año el mes que le corresponde la visita de seguimiento o reevaluación y la conformación del equipo evaluador.
@@ -95,298 +98,72 @@ Nota 3: Las evaluaciones extraordinarias siguen la formalidad de una evaluación
 9.3 El OEC debe cancelar el monto por todas las evaluaciones extraordinarias cuando se corrobora una queja fundamentada en su contra.
 9.4 Los laboratorios clínicos acreditados con la norma INTE-ISO 15189, que realicen cambio de equipo, deben cumplir con lo establecido en el instructivo ECA-MP-P10-I01.
 10 ANEXOS
-10.1 ANEXO 1: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA LABORATORIOS DE ENSAYO Y CALIBRACIÓN SEGÚN LA NORMA INTE-ISO/IEC 17025:2005 Aspectos a evaluar | Tipo de evaluación
-I Seguimiento | II Seguimiento | III Seguimiento | Reevaluación
-ASPECTOS GENERALES
-Informes de la evaluación del ECA anterior | X | X | X | X
-Cambios notificados por el laboratorio | X | X | X | X
-Cumplimiento Compromiso de acreditación | X | X | X | X
-Alcance de la acreditación a testificar | (Definido por SAL con anterioridad) | (definido por SAL con anterioridad) | (definido por SAL con anterioridad) | (definido por SAL con anterioridad)
-| | | | | | |
-REQUISITOS DE GESTIÓN
-4.1. Organización | X | X
-4.2. Sistema de gestión | X | X
-4.3 Control de Documentos | Este requisito se evalúa aplicado a la evaluación de los documentos que se revisan durante las evaluaciones | X
-4.4. Revisión de pedidos, ofertas y contratos | X | X | X | X
-4.5 Subcontratación de ensayos y de calibraciones | X | X
-4.6 Compras de servicios y de suministros | X | X
-4.7 Servicio al cliente | X | X
-4.8 Quejas, registros de quejas. | X | X | X | X
-4.9 Control de trabajos de ensayos o de calibraciones no conformes, registros de trabajos de ensayos o de calibraciones no conformes
-4.10 Mejora | X | X
-4.11 Acciones correctivas, Implementación efectiva de las acciones propuestas para subsanar las no conformidades de la evaluación anterior | X | X | X | X
-4.12 Acciones preventivas, registros de acciones preventivas | X | X | X
-4.13 Control de registros | Este requisitos se evalúa aplicado a la evaluación de los registros que evidencien la implementación de los requisitos que corresponda evaluar
-4.14 Auditorías internas, registros de auditoría interna | X | X | X | X
-4.15 Revisión por la dirección, registros de revisión por la dirección del sistema de calidad | X | X | X | X
-REQUISITOS TÉCNICOS
-Con respecto a los requisitos técnicos, serán evaluados todos los indicados en la norma INTE-ISO/IEC 17025:2005 en la sección 5 para el alcance seleccionado a testificar | Alcance de la acreditación a testificar definido por SAL | Alcance de la acreditación a testificar definido por SAL | Alcance de la acreditación a testificar definido por SAL | Alcance de la acreditación a testificar definido por SAL
-Políticas del ECA:  ECA-MC-P20 Trazabilidad de las mediciones  ECA-MC-P17: Criterios para la participación en ensayos/ pruebas de aptitud y otras comparaciones  ECA-MC-PO1:Política de Validación de Métodos  ECA-MC-PO01-G01: Guía para la validación de Métodos.  ECA-MC-PO02: Política de incertidumbre de las mediciones.  ECA-MC-P18: Política para el uso del logotipo y símbolo de acreditación. | X | X | X | X
-| | | | | | | | |
-X | X | X | X
-10.2 ANEXO 2: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA LABORATORIOS CLÍNICOS, SEGÚN LA NORMA INTE-ISO 15189:2014 spectos a evaluar | Tipo de evaluación |
-I Seguimiento | II Seguimiento | III Seguimiento | Reevaluación |
-ASPECTOS GENERALES |
-informes de la evaluación del ECA anterior | X | X | X | X |
-Cambios notificados por el laboratorio | X | X | X | X |
-Cumplimiento del Compromiso de acreditación | X | X | X | X |
-Alcance de la acreditación a testificar | (Definido por SACLI con anterioridad) | (Definido por SACLI con anterioridad) | (Definido por SACLI con anterioridad) | (Definido por SACLI con anterioridad) |
-REQUISITOS DE GESTIÓN |
-4.1 Organización y responsabilidad de la dirección | X | X |
-4.2. Sistema de gestión de la calidad | X | X |
-4.3 Control de los Documentos | Este requisito se evalúa aplicado a la evaluación de los documentos que se revisan durante las evaluaciones | X |
-4.4 Contratos de servicios | X | X |
-4.5 Análisis realizados por laboratorios de remisión | X | X |
-4.6 Servicios y suministros externos | X | X |
-4.7 Servicios de asesoramiento | X | X |
-4.8 Resolución de quejas | X | X | X | X |
-4.9 Identificación y control de no conformidades | X | X | X | X |
-4.10 Acción correctiva | X | X | X | X |
-4.11 Acción preventiva, | X | X
-4.12 Mejora Continua | X | X
-4.13 Control de los registros | Este requisito se evalúa aplicado a la evaluación de los registros que evidencien la implementación de los requisitos que corresponda evaluar
-4.14 Evaluación y auditorías | X | X | X | X
-4.15 Revisión por la dirección | X | X | X | X
-REQUISITOS TÉCNICOS
-Con respecto a los requisitos técnicos, serán evaluados todos los indicados en la norma INTE-ISO 15189:2014 en la sección 5 para el alcance seleccionado a testificar | Alcance de la acreditación a testificar definido por SACLI | Alcance de la acreditación a testificar definido por SACLI | Alcance de la acreditación a testificar definido por SACLI | Alcance de la acreditación a testificar definido por SACLI
-Políticas del ECA: ECA-MC-P20 Trazabilidad de las mediciones ECA-MC-P17: Criterios para la participación en ensayos/ pruebas de aptitud y otras comparaciones ECA-MC-PO1:Política de Validación de Métodos ECA-MC-PO01-G01: Guía para la validación de Métodos. ECA-MC-PO02: Política de incertidumbre de las mediciones. ECA-MC-P18: Política para el uso del logotipo y símbolo de acreditación. | X | X | X | X
-10.3 ANEXO 3: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA ORGANISMOS DE INSPECCIÓN, SEGÚN LA NORMA INTE-ISO/IEC 17020:2012 Aspectos a evaluar | Tipo de evaluación
-I Seguimiento | II Seguimiento | III Seguimiento | Reevaluación
-ASPECTOS GENERALES
-Informes de la evaluación del ECA anterior | X | X | X | X
-Cambios notificados por el Organismo | X | X | X | X
-Cumplimiento del Compromiso de acreditación | X | X | X | X
-Alcance de la acreditación a testificar (definido por SAI con anterioridad) | (Definido por SAI con anterioridad) | (Definido por SAI con anterioridad) | (Definido por SAI con anterioridad) | (Definido por SAI con anterioridad)
-4. REQUISITOS GENERALES
-4.1 Imparcialidad e independencia | X | X | X | X
-4.2 Confidencialidad | X | X
-5. REQUISITOS RELATIVOS A LA ESTRUCTURA
-5.1 Requisitos administrativos excepto el 5.1.4 | X | X
-5.1.4 Disposiciones adecuadas | X | X | X | X
-5.2 Organización y gestión | X | X
-6. REQUISITOS RELATIVOS A LOS RECURSOS y 7. REQUISITOS DE LOS PROCESOS
-Con respecto a los requisitos relativos a los recursos y requisitos del procesos, serán evaluados todos los indicados en la norma INTE-ISO/IEC 17020:2012 en las secciones 6 y 7 para el alcance seleccionado a testificar | X | X | X | X
-Políticas del ECA:  ECA-MC-P20 Trazabilidad de las mediciones  ECA-MC-P17: Criterios para la participación en ensayos/ pruebas de aptitud y otras comparaciones ECA-MC-P18: Política para el uso del logotipo y símbolo de acreditación | X | X | X | X
-8. REQUISITOS RELATIVOS AL SISTEMA DE GESTIÓN
-8.1 Opciones | X | X
-8.2 Documentación del sistema de gestión (Opción A) | X | X
-8.3 Control de documentos (Opción A) | Este requisito se evalúa aplicado a la evaluación de los documentos que se revisan durante las evaluaciones | X
-8.4 Control de registros (Opción A) | Este requisito se evalúa aplicado a la evaluación de los registros que evidencien la implementación de los requisitos que corresponda evaluar | X
-8.5 Revisión por la dirección (Opción A) | X | X | X | X
-8.6 Auditorías internas (Opción A) | X | X | X | X
-8.7 Acciones Correctivas (Opción A) | X | X | X | X
-8.8 Acciones preventivas (Opción A) | X | X
-10.4 ANEXO 4: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA ORGANISMOS QUE CERTIFICAN PRODUCTOS, PROCESOS Y SERVICIOS, SEGÚN LA NORMA INTE-ISO/IEC 17065:2013. Aspectos a evaluar | Tipo de Evaluación |
-I Seguimiento | II Seguimiento | III Seguimiento | Reevaluación |
-ASPECTOS GENERALES |
-Informes de la evaluación del ECA anterior | X | X | X | X |
-notificados por el Organismo | X | X | X | X
-Cumplimiento del Compromiso de acreditación | X | X | X | X
-Alcance de la acreditación a testificar (definido por SAC con anterioridad) | Lo definido en el ECA-MC-P11 | Lo definido en el ECA-MC-P11 | Lo definido en el ECA-MC-P11 | Lo definido en el ECA-MC-P11
-4. REQUISITOS GENERALES
-4.1 Temas legales y contractuales | X | X
-4.2 Gestión de la imparcialidad | X | X | X | X
-4.3 Responsabilidad legal y financiamiento | X | X | X | X
-4.4 Condiciones no discriminatorias | X | X
-4.5 Confidencialidad | X | X
-4.6 Información disponible al público | X | X
-5. REQUISITOS RELATIVOS A LA ESTRUCTURA
-5.1 Estructura de la organización y alta dirección | X | X
-5.2 Mecanismo para salvaguardar la imparcialidad | X | X | X | X
+10.1 ANEXO 1: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA LABORATORIOS DE ENSAYO Y CALIBRACIÓN SEGÚN LA NORMA INTE-ISO/IEC 17025:2005
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+10.2 ANEXO 2: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y
+REEVALUACION PARA LABORATORIOS CLÍNICOS, SEGÚN LA NORMA INTE-ISO
+15189:2014
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+10.3 ANEXO 3: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y
+REEVALUACION PARA ORGANISMOS DE INSPECCIÓN, SEGÚN LA NORMA INTEISO/
+IEC 17020:2012
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+10.4 ANEXO 4: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y
+REEVALUACION PARA ORGANISMOS QUE CERTIFICAN PRODUCTOS, PROCESOS Y
+SERVICIOS, SEGÚN LA NORMA INTE-ISO/IEC 17065:2013.
+[imagen]
+[imagen]
 6. REQUISITOS RELATIVOS A LOS RECURSOS
-6.1 Personal del organismo de certificación | X | X | X | X
-6.2 Recursos para la evaluación | X | X | X | X
-7. REQUISITOS DE LOS PROCESOS
-REQUISITOS TÉCNICOS
-7.1 Generalidades | X | X | X | X |
-7.2 Solicitud | X | X | X | X |
-7.3 Revisión de la solicitud | X | X | X | X |
-7.4 Evaluación | X | X | X | X |
-7.5 Revisión | X | X | X | X |
-7.6 Decisión de certificación | X | X | X | X |
-7.7 Documentación de certificación | X | X | X | X |
-7.8 Directorio de productos certificados | X | X | X | X |
-7.9 Vigilancia | X | X | X | X |
-7.10 Cambios que afectan a la certificación | X | X | X | X |
-7.11 Finalizar, reducir, suspender o retirar la certificación | X | X | X | X |
-7.12 Registros | X | X | X | X |
-7.13 Quejas y apelaciones | X | X | X | X |
-8. REQUISITOS RELATIVOS AL SISTEMA DE GESTIÓN |
-8.1 Opciones | X | X |
-8.2 Documentación del sistema de gestión (Opción A) | X | X |
-8.3 Control de documentos (Opción A) | Este requisito se evalúa aplicado a la evaluación de los documentos que se revisan durante las evaluaciones | X |
-8.4 Control de registros (Opción A) | Este requisito se evalúa aplicado a la evaluación de los documentos que se revisan durante las evaluaciones | X |
-8.5 Revisión por la dirección (Opción A) | X | X | X | X |
-8.6 Auditorías internas (Opción A) | X | X | X | X |
-8.7 Acciones Correctivas (Opción A) | X | X | X | X |
-8.8 Acciones preventivas (Opción A) | X | X
-10.5 ANEXO 5: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA ORGANISMOS QUE REALIZAN LA AUDITORÍA Y LA CERTIFICACIÓN DE SISTEMAS DE GESTIÓN, SEGÚN LA NORMA INTE-ISO/IEC 17021-1: 2015 Aspectos a evaluar | Tipo de Evaluación
-| I Seguimiento | II Seguimiento | III Seguimiento | Reevaluación |
-| ASPECTOS GENERALES |
-Informes de la evaluación del ECA anterior | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-Cambios notificados por el Organismo | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-Cumplimiento del Compromiso de acreditación | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-Alcance de la acreditación a testificar (definido por SAC con anterioridad) | Lo definido en el ECA-MC-P11 | Lo definido en el ECA-MC-P11 | Lo definido en el ECA-MC-P11 | Lo definido en el ECA-MC-P11 | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 5. REQUISITOS GENERALES | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 5.1 Temas legales y contractuales | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 5.2 Gestión de la imparcialidad | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 5.3 Responsabilidad legal y financiamiento | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 6. REQUISITOS RELATIVOS A LA ESTRUCTURA | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 6.1 Estructura de la organización y alta dirección | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 6.2 Control Operacional | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 7. REQUISITOS RELATIVOS A LOS RECURSOS | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 7.1 Competencia personal | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 7.2 Personal involucrado en la actividades de certificación | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 7.3 Empleo de auditores externos y expertos técnicos externos individuales | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 7.4 Registros relativos al personal | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 7.5 Contratación externa | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 8. REQUISITOS RELATIVOS A LA INFORMACIÓN | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 8.1 Información pública | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 8.2 Documentos de certificación | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 8.3 Referencia a la certificación y utilización de marcas | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 8.4 Confidencialidad | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 8.5 Intercambio de información entre el organismo de certificación y sus clientes (excepto 8.5.2) | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 8.5.2 Notificación de cambios realizados por un organismo de certificación (cuando hayan cambios reportados) | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 9. REQUISITOS RELATIVOS A LOS PROCESOS | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 9.1 Actividades previas a la certificación | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 9.2 Planificación de auditorías | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 9.3 Certificación Inicial | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 9.4 Realización de auditorías | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| Decisión de certificación | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 9.6 Mantenimiento de la certificación | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 9.7 Apelaciones | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 9.8 Quejas | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 9.9 Registros relativos a los clientes | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 10. REQUISITOS DEL SISTEMA DE GESTIÓN DE LOS ORGANISMOS DE CERTIFICACIÓN | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 10.1 Opciones | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 10.2 Opción A: Requisitos generales de un sistema de gestión | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 10. 3 Opción B: Requisitos del Sistema de gestión de acuerdo a la norma ISO 9001 | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| 10.2.1 Generalidades 10.2.2 Manual del sistema de gestión 10.2.3 Control de los documentos 10.2.4 Control de los registros 10.2.5 Revisión por la dirección 10.2.6 Auditorías internas 10.2.7 Acciones correctivas | X | X | X | X | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-| | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |
-10.6 ANEXO 6: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA ORGANISMOS QUE REALIZAN CERTIFICACIÓN DE PERSONAS, SEGÚN LA NORMA INTE-ISO/IEC 17024:2013
-Aspectos a evaluar | Tipo de Evaluación |
-I Seguimiento | II Seguimiento | III Seguimiento | Reevaluación |
-ASPECTOS GENERALES
-Informes de la evaluación del ECA anterior | X | X | X | X
-Cambios notificados por el Organismo | X | X | X | X
-Cumplimiento del Compromiso de acreditación | X | X | X | X
-Alcance de la acreditación a testificar (definido por SAC con anterioridad) | Lo definido en el ECA-MC-P11 | Lo definido en el ECA-MC-P11 | Lo definido en el ECA-MC-P11 | Lo definido en el ECA-MC-P11
-4. REQUISITOS GENERALES
-4.1 Temas legales | X | X
-4.2 Responsabilidad en materia de decisión de certificación | X | X | X | X
-4.3 Gestión de la imparcialidad | X | X | X | X
-4.4 Responsabilidad legal y financiamiento | X | X
-5. REQUISITOS RELATIVOS A LA ESTRUCTURA
-5.1 Dirección y estructura de la organización | X | X
-5.2 Estructura del organismo de certificación en relación con las actividades de formación | X | X | X
-6. REQUISITOS RELATIVOS A LOS RECURSOS
-| | | | | | | | | | | | |
-6.1 Requisitos generales del personal | X | X | X | X
-6.2 Personal que interviene en las actividades de certificación | X | X | X | X
-6.3 Contratación externa | X | X
-6.4 Otros recursos | X | X | X
-7. REQUISITOS RELATIVOS A LOS REGISTROS Y LA INFORMACIÓN
-REQUISITOS TÉCNICOS
-7.1 Registros de solicitantes, candidatos y personas certificadas | X | X | X | X
-7.2 Información pública | X | X | X
-7.3 Confidencialidad | X | X
-7.4 Seguridad | X | X | X | X
-8. ESQUEMAS DE CERTIFICACIÓN
-8. Esquema de certificación | X | X | X | X
-9. REQUISITOS RELATIVOS AL PROCESO DE CERTIFICACIÓN
-9.1 Proceso de solicitud | X | X | X | X
-9.2 Proceso de evaluación | X | X | X | X
-9.3 Proceso de examen | X | X | X | X
-9.4 Decisión de certificación | X | X | X | X
-| | | | | | | | |
-9.5 Suspender, retirar o reducir el alcance de la certificación | X | X | X | X
-9.6 Proceso de renovación de la certificación | X | X | X
-9.7 Uso de certificados, logotipos y marcas | X | X | X
-9.8 Apelaciones contra decisiones de certificación | X | X | X | X
-9.9 Quejas | X | X | X | X
-10. REQUISITOS RELATIVOS AL SISTEMA DE GESTIÓN
-10.1 Generalidades | X | X
-10.2. Requisitos generales del sistema de gestión (10.2.1; 10.2.2; | X | X
-10.2. Requisitos generales del sistema de gestión (10.2.3) | X | X
-10.2. Requisitos generales del sistema de gestión (10.2.4) | X | X
-10.2. Requisitos generales del sistema de gestión;10.2.5; (10.2.6) | X | X | X | X
-10.2. Requisitos generales del sistema de gestión (10.2.7 y 10.2.8) | X | X | X | X
-| | | | | | | | |
-10.7 ANEXO 7: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA ORGANISMOS QUE REALIZAN LA VALIDACIÓN Y LA VERIFICACIÓN DE LOS GASES DE EFECTO INVERNADERO, SEGÚN LA NORMA INTE-ISO/ 14065:2015
-Aspectos a evaluar | Tipo de Evaluación |
-I Seguimiento | II Seguimiento | III Seguimiento | Reevaluación
-ASPECTOS GENERALES
-Informes de la evaluación del ECA anterior | X | X | X | X
-Cambios notificados por el Organismo | X | X | X | X
-Cumplimiento del Compromiso de acreditación | X | X | X | X
-Alcance de la acreditación a testificar (definido por SAVV con anterioridad) | Lo definido en el ECA-MC-P11 | Lo definido en el ECA-MC-P11 | Lo definido en el ECA-MC-P11 | Lo definido en el ECA-MC-P11
-5. REQUISITOS GENERALES
-5.1 Situación legal | X | X
-5.2 Asuntos legales y contractuales | X | X | X | X
-5.3 Gobernanza y compromiso de la dirección | X | X
-| | | | | | | | | | |
-5.4 Imparcialidad | X | X | X | X
-5.5 Responsabilidad legal y finanzas | X | X
-6. COMPETENCIAS
-6.1 Dirección y personal | X | X | X | X
-6.2 Competencias del personal | X | X | X | X
-6.3 Distribución del personal | X | X | X | X
-6.4 Empleo de validadores o verificadores externos | X | X | X | X
-6.5 Registros del personal | X | X | X | X
-6.6 Contratación externa | X | X | X | X
-7. COMUNICACIÓN Y REGISTROS
-7.1 Información proporcionada al cliente o a la parte responsable | X | X
-7.2 Comunicación de responsabilidades al cliente o a la parte responsable | X | X
-7.3 Confidencialidad | X | X
-| | | | | |
-7.4 Información accesible al público | X | X
-7.5 Registros | X | X | X | X
-8. PROCESO DE VALIDACIÓN O DE VERIFICACIÓN
-8.1 Generalidades | X | X | X | X
-8.2 Acuerdo previo | X | X | X | X
-8.3 Enfoque | X | X | X | X
-8.4 Validación o verificación | X | X | X | X
-8.5 Revisión y emisión de la declaración de validación o de verificación | X | X | X | X
-8.6 Registros | X | X | X | X
-8.7 Hechos detectados después de la declaración de validación o de verificación | X | X | X | X
-9. APELACIONES
-9.1 Apelaciones | X | X | X | X
-10. QUEJAS
-10.1 Quejas | X | X | X | X
-11. VALIDACIONES O VERIFICACIONES ESPECIALES
-11.1 Validaciones o verificaciones especiales | X | X | X | X
-12. SISTEMA DE GESTIÓN
-12.1 Sistema de gestión | X | X | X | X
-| | | | | |
-10.8 ANEXO 8: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y REEVALUACION PARA PROVEEDORES DE ENSAYOS DE APTITUD SEGÚN LA NORMA INTE-ISO/IEC 17043:2010 Aspectos a evaluar | Tipo de evaluación |
-I Seguimiento | II Seguimiento | III Seguimiento | Reevaluación |
-ASPECTOS GENERALES |
-Informes de la evaluación del ECA anterior | X | X | X | X |
-Cambios notificados por el laboratorio | X | X | X | X |
-Cumplimiento Compromiso de acreditación | X | X | X | X |
-Alcance de la acreditación a testificar | (Definido por SAL con anterioridad) | (definido por SAL con anterioridad) | (definido por SAL con anterioridad) | (definido por SAL con anterioridad) |
-REQUISITOS TÉCNICOS |
-Con respecto a los requisitos técnicos, serán evaluados todos los indicados en la norma INTE-ISO/IEC 17043:2010 en la sección 4 para los programas de ensayos de aptitud seleccionado a evaluar | Alcance de la acreditación a testificar definido por SAL | Alcance de la acreditación a testificar definido por SAL | Alcance de la acreditación a testificar definido por SAL | Alcance de la acreditación a testificar definido por SAL |
-Políticas del ECA:  ECA-MC-P20 Trazabilidad de las mediciones  ECA-MC-P17: Criterios para la participación en ensayos/ pruebas de aptitud y otras comparaciones  ECA-MC-PO1:Política de Validación de Métodos  ECA-MC-PO01-G01: Guía para la validación de Métodos.  ECA-MC-PO02: Política de incertidumbre de las mediciones.  ECA-MC-P18: Política para el uso del logotipo y símbolo de acreditación. | X | X | X | X |
-REQUISITOS DE GESTIÓN |
-5.1 Organización | X | X |
-5.2 Sistema de gestión | X | X |
-5.3 Control de Documentos | Este requisitos se evalúa aplicado a la evaluación de los documentos que evidencien la implementación de los requisitos que corresponda evaluar | X |
-5.4 Revisión de los pedidos, las ofertas y los contratos | X | X | X | X |
-5.5 Subcontración de servicios, cuando aplique | X | X | X | X |
-5.6 Compra de servicios y de suministros | X | X |
-5.7 Servicio al cliente | X | X |
-5.8 Quejas y apelaciones | X | X | X | X |
-5.9 Control de trabajo no conforme | X | X | X | X |
-5.10 Mejora | X | X |
-5.11 Acciones Correctivas | X | X | X | X |
-5.12 Acciones preventivas | X | X |
-5.13 Control de los registros | Este requisitos se evalúa aplicado a la evaluación de los registros que evidencien la implementación de los requisitos que corresponda evaluar |
-5.14 Auditorías Internas | X | X | X | X |
-5.15 Revisiones por la dirección | X | X | X | X |
-11 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento ECA-MP-P10
-Refiérase a la solicitud de elaboración o modificación del documento 2016-170
-Observaciones: Se subrayan cambios y modificaciones en el documento. Apartados 3.3, anexo 9.1,9.3,9.4,9.5, 9.6, 9.7 y 9.8
-| | | | | | | | | | |
+[imagen]
+[imagen]
+[imagen]
+10.5 ANEXO 5: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y
+REEVALUACION PARA ORGANISMOS QUE REALIZAN LA AUDITORÍA Y LA
+CERTIFICACIÓN DE SISTEMAS DE GESTIÓN, SEGÚN LA NORMA INTE-ISO/IEC 17021-1:
+2015
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+10.6 ANEXO 6: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y
+REEVALUACION PARA ORGANISMOS QUE REALIZAN CERTIFICACIÓN DE PERSONAS,
+SEGÚN LA NORMA INTE-ISO/IEC 17024:2013
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+10.7 ANEXO 7: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y
+REEVALUACION PARA ORGANISMOS QUE REALIZAN LA VALIDACIÓN Y LA
+VERIFICACIÓN DE LOS GASES DE EFECTO INVERNADERO, SEGÚN LA NORMA INTEISO/
+14065:2015
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+10.8 ANEXO 8: TEMAS A CUBRIR DURANTE LAS EVALUACIONES DE SEGUIMIENTO Y
+REEVALUACION PARA PROVEEDORES DE ENSAYOS DE APTITUD SEGÚN LA NORMA
+INTE-ISO/IEC 17043:2010
+[imagen]
+[imagen]
+[imagen]
+[imagen]
 12 TRANSITORIO
-No aplica.
+Un mes posterior a su publicación en la Gaceta.
