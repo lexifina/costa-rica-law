@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-C13 Criterios para la Evaluación de la Norma INTE-
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-10-03 | la propia norma |
+| 2 | 2017-04-21 | Acuerdo 0 (2017-04-21) |
