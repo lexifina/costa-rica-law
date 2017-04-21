@@ -1,2 +1,1 @@
-Otras condiciones
-Artículo 14.—La velocidad del servicio de internet será establecida en el manual de este reglamento, para los aparatos entregados a Directivos, Abogado 2 de la Junta Directiva, Auditor Interno, Director Ejecutivo, Subdirector Ejecutivo, Asistente de Dirección Ejecutiva y Jefes Departamentales.
+Artículo 14.—Otras condiciones. La velocidad del servicio de internet se establece en el procedimiento P16-PR-011 Uso de celulares, para los dispositivos entregados a Directivos, Auditor Interno, Director Ejecutivo, los Directores de la División Pensiones y de la División Financiera Administrativa y Jefes de Departamento.

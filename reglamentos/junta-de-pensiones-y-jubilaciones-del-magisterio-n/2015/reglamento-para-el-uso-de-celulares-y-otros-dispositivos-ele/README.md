@@ -14,3 +14,4 @@ Reglamento para el uso de celulares y otros dispositivos electrónicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-14 | la propia norma |
+| 2 | 2017-04-21 | Reglamento 43 (2017-04-21) |

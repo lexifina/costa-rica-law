@@ -1,1 +1,1 @@
-Artículo 12.—Corresponderá al Departamento Administrativo el control y supervisión sobre la tarifa máxima a reconocer por la Institución y los excedentes que se originen como consecuencia del uso de los celulares.
+Artículo 12.—Corresponde al Departamento Administrativo el control y supervisión sobre la tarifa máxima a reconocer por la Institución y los excedentes que se originen como consecuencia del uso de los celulares.

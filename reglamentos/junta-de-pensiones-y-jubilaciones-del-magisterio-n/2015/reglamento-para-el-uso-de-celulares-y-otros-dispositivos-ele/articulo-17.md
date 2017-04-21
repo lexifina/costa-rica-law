@@ -1,1 +1,1 @@
-Artículo 17.—Los directores y funcionarios deberán mantener el aparato en perfecto estado, y se comprometen a mantenerlo en esa misma condición y a responder por todo daño o deterioro que se cause, por su falta, negligencia, acción u omisión en el cuidado del aparato.
+Artículo 17.—Los directores y trabajadores deben mantener el dispositivo en perfecto estado, y se comprometen a mantenerlo en esa misma condición y a responder por todo daño o deterioro que se cause, por su falta, negligencia, acción u omisión en el cuidado del dispositivo.
