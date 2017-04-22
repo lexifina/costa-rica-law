@@ -1,1 +1,2 @@
-Artículo 31.—Cuando se requiera evaluar los atestados de alguno de los miembros de la Comisión, durante una sesión ordinaria; el miembro en cuestión deberá abandonar la sesión y se reincorporará hasta que se complete el proceso de calificación.
+Artículo 31.—Cuando se requiera evaluar los atestados de alguno de los miembros de la Comisión o de un familiar de hasta segundo grado de consanguinidad de los miembros de la Comisión en línea ascendente, descendente y colateral, durante una sesión ordinaria, el miembro en cuestión deberá abandonar la sesión y se reincorporará hasta que se complete el proceso de calificación.
+(Así reformado mediante sesión extraordinaria N° 01-2017 del 22 de abril del 2017)
