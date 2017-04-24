@@ -1,0 +1,3 @@
+Artículo 25 °- Devolución de documentos
+Cuando los funcionarios no efectúen la devolución de los documentos o expedientes al vencimiento del plazo conferido, se solicitará por escrito la entrega de los mismos, la cual deberá efectuarse dentro de los siguientes tres días. Vencido el término del nuevo plazo, sin que el funcionario haga entrega de la documentación, se remitirá el caso al Departamento de Relaciones Laborales, a fin de que establezca las responsabilidades disciplinarias respectivas, previo debido proceso.
+Si la documentación no es devuelta, se interpondrán las denuncias penales respectivas, tomando en cuenta que los documentos son patrimonio de la Institución.

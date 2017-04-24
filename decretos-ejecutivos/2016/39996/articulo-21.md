@@ -1,0 +1,3 @@
+Artículo 21 °- Transferencia de documentos por eliminación o fusión de dependencias
+En caso que alguna dependencia del Ministerio de Obras Públicas y Transportes sea eliminada de la estructura orgánica, la documentación será transferida en su totalidad al Archivo Central, para lo cual el jerarca institucional deberá comunicar dicha disposición de forma oportuna.
+En caso de fusión de una o varias unidades, la unidad receptora asumirá la totalidad de la documentación que se integra, y con ello la administración y responsabilidad sobre la información contenida. La transferencia de la información se realizará según los procedimientos establecidos en el artículo 19 de este Reglamento.

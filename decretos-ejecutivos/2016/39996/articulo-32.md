@@ -1,0 +1,2 @@
+Artículo 32° -Responsabilidades de los prestatarios
+Los expedientes o documentos devueltos al Archivo Central serán revisados por el personal de éste, para constatar su estado. En caso que algún documento presente daños, deberá notificársele al Jefe del Archivo Central para que se realicen las gestiones correspondientes ante el prestatario, a fin de que asuma el costo de la reparación o reposición y si es un funcionario del MOPT, para que se establezca las gestiones respectivas a fin de que se determinen las responsabilidades disciplinarias que procedan.

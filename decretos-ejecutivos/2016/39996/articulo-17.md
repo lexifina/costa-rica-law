@@ -1,0 +1,2 @@
+Artículo 17º . Tabla de Plazos de Conservación y Eliminación de Documentos.
+Los plazos de transferencia de los Archivos de Gestión a los Archivos Centrales y de éstos a la Dirección General del Archivo Nacional, se fijarán en las tablas de plazos de conservación, conforme los parámetros establecidos en el Reglamento a la Ley del Sistema Nacional de Archivos; según corresponda según el valor administrativo y legal asignado en dicha Tabla.

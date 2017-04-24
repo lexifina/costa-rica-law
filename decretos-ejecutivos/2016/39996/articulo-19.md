@@ -1,0 +1,2 @@
+Artículo 19°- Requisitos para la remisión de documentos al Archivo Central
+Los encargados de los Archivos de Gestión deberán enviar los documentos al Archivo Central debidamente organizados, numerados, acompañados de una lista de remisión, en unidades de conservación rotuladas, las cuales deben venir guardadas en cajas debidamente identificadas, todo· según se establezca en el Manual de Procedimientos respectivo.
