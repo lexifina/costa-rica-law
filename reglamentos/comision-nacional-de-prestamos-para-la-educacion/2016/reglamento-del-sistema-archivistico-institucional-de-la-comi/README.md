@@ -14,3 +14,4 @@ Reglamento del sistema archivístico institucional de la Comisión Nacional de P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-11-24 | la propia norma |
+| 2 | 2017-04-24 | Reglamento 15 (2017-04-24) |
