@@ -1,0 +1,1 @@
+Artículo décimo sexto: es función de todos los directivos compartir funciones y responsabilidades, los directivos suplentes, cuando no estén sustituyendo al respectivo directivo propietario podrán participar en las sesiones del concejo directivo con voz pero sin derecho a voto y será obligación de los mismos asumir funciones en las comisiones de trabajo en que se les nombre.

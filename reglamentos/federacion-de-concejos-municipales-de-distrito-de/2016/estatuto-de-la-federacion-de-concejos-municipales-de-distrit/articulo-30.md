@@ -1,0 +1,1 @@
+Artículo trigésimo: este estatuto solo podrá ser reformado por la asamblea general, por votación de las dos terceras partes de la totalidad de sus miembros, en sesión extraordinaria convocada exclusivamente con ese propósito.

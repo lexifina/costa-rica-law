@@ -1,0 +1,1 @@
+Artículo segundo: Para ingresar a la Federación se requerirá como principio estar legalmente constituido como Concejo Municipal de Distrito y tener el respectivo acuerdo de ingreso del concejo el cual podrá ser tomado por simple mayoría, además de la aceptación de la asamblea general de la federación. De la personalidad de la federación:

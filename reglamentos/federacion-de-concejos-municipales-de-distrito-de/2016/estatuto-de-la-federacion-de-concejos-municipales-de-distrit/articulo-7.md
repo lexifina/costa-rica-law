@@ -1,0 +1,1 @@
+Artículo sétimo: la Federación facilitará la coordinación entre los Concejos que la integran y el Gobierno Central e instituciones como: el IFAM, otras Federaciones, ligas, convenios cooperativos o uniones de municipalidades y cualesquiera otras organizaciones nacionales e internacionales que guarden relación con los intereses del régimen municipal.

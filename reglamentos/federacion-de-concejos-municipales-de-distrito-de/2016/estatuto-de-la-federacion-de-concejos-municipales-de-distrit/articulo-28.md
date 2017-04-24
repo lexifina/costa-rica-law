@@ -1,0 +1,1 @@
+Articulo vigésimo octavo: a solicitud del concejo directivo o del director ejecutivo, los concejos municipales de distrito integrantes podrán trasladar personal técnico o administrativo a la federación para su normal funcionamiento o determinado proyecto, de acuerdo con las posibilidades de las mismas.

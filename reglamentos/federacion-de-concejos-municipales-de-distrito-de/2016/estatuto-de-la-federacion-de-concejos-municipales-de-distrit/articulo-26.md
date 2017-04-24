@@ -1,0 +1,1 @@
+Articulo vigésimo sexto: las actividades económicas y financiaras de la Federación estarán fiscalizadas por la Contraloría General de la República, de acuerdo con la normativa técnica y jurídica que rige la materia. Disposiciones varias.
