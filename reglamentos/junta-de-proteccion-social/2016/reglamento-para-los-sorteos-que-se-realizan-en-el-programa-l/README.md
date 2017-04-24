@@ -14,3 +14,4 @@ Reglamento para los Sorteos que se realizan en el Programa La Rueda de la Fortun
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-02-10 | la propia norma |
+| 2 | 2017-04-24 | Reglamento 14 (2017-04-24) |
