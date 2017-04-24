@@ -14,3 +14,4 @@ Actualización de las estructuras de los modelos de costos de la producción agr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-06-30 | la propia norma |
+| 2 | 2017-04-24 | Decreto Ejecutivo 40394 (2017-04-24) |
