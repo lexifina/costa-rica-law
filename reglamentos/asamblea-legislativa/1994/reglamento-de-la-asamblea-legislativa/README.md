@@ -42,3 +42,4 @@ Reglamento de la Asamblea Legislativa
 | 27 | 2015-07-27 | Reglamento 44 (2015-07-27) |
 | 28 | 2016-03-14 | Reglamento 158 (2016-03-14) |
 | 29 | 2016-06-09 | Reglamento 25 (2016-06-09) |
+| 30 | 2017-04-25 | Reglamento 176 (2017-04-25) |
