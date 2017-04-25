@@ -13,3 +13,4 @@ Reiteración de disposiciones sobre órdenes de captura y remisiones a la cárce
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-13 | la propia norma |
+| 2 | 2017-04-25 | Circular 65 (2017-04-25) |
