@@ -1,0 +1,2 @@
+Transitorio único: Las solicitudes que a la fecha de vigencia de la presente resolución estuvieren pendientes de resolver, deberán ser atendidas conforme con las disposiciones que aquí se indican, excepto en lo que al auxiliar de inversiones se refiere, el cual deberá ser presentado para el caso de resoluciones de autorización restringida, tres meses después de notificada la resolución de
+autorización.
