@@ -1,0 +1,2 @@
+Sección Xl. Del Comité de Nominaciones
+Artículo 37 bis, Este Comité lo integran tres Directores de la Junta Directiva Nacional, y es responsable de identificar, evaluar y proponer a los candidatos a integrar las Juntas Directivas de las sociedades y sus fiscalías, así como que debe velar por la existencia de un pian de sucesión de dichas personas, todo de conformidad con lo que indique la ley y los reglamentos aplicables.

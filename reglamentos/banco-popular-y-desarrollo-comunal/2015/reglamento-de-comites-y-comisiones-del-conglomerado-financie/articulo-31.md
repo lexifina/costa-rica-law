@@ -6,4 +6,4 @@ La persona Gestora de Riesgo de Popular Valores.
 La persona Gestora de Riesgo de Popular SAFI.
 La persona Gestora de la Unidad de Riesgos de la Operadora.
 La persona Gestora de la Unidad de Riesgos de Popular Seguros
-Las personas titulares de la Gerencia General Corporativa y delas Gerencias Generales de las Sociedades podrán asistir a las sesiones cuando lo estimen pertinente.
+Las personas titulares de la Gerencia General Corporativa y de las Gerencias Generales de las Sociedades podrán asistir a las sesiones cuando lo estimen pertinente.

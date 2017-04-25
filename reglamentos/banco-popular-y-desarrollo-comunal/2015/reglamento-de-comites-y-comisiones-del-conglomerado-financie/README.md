@@ -14,3 +14,4 @@ Reglamento de Comités y Comisiones del Conglomerado Financiero Banco Popular y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-12-02 | la propia norma |
+| 2 | 2017-04-25 | Reglamento 5457 (2017-04-25) |
