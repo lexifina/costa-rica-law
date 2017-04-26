@@ -1,0 +1,1 @@
+Artículo 22.—Cuando la Oficina Nacional de Semillas no considere apropiada la denominación propuesta, lo comunicará así al solicitante, quien dispondrá de 30 días hábiles para la presentación de una nueva propuesta.

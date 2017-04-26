@@ -1,0 +1,1 @@
+Artículo 17.—Para las variedades inscritas de oficio y aquellas en las que se considere de gran interés su permanencia en el Registro —sin haberse solicitado tal condición- la renovación de la inscripción podrá ser propuesta por la misma Oficina o por iniciativa de terceros.

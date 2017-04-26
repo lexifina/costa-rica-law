@@ -1,0 +1,1 @@
+Artículo 19.—El solicitante del registro deberá velar por que la variedad conserve las características originales con que fue inscrita. La Oficina Nacional de Semillas podrá realizar los controles correspondientes para verificar la conservación varietal.

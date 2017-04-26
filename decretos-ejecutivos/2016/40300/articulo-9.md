@@ -1,0 +1,1 @@
+Artículo 9º—La Oficina Nacional de Semillas publicará anualmente la lista de variedades comerciales de los diferentes cultivos; en los casos de inscripción provisional, la variedad aparecerá en la lista con esa indicación.

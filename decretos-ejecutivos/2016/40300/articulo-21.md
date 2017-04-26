@@ -1,0 +1,1 @@
+Artículo 21.—La Oficina Nacional de Semillas determinará si la denominación propuesta es aceptada. Será obligatorio utilizar la denominación con que la variedad quede inscrita en cualquier proceso de producción o comercialización del material de reproducción o multiplicación.

@@ -1,0 +1,1 @@
+Artículo 7º—La Oficina Nacional de Semillas verificará que se haya presentado toda la documentación solicitada. Si cumple con lo requerido, se dará por recibida la solicitud de inscripción, el solicitante deberá pagar la tarifa (según se indica en www.ofinase.go.cr/tarifas/tarifas por servicio/Registro de Variedades Comerciales) y presentar el comprobante de pago respectivo.

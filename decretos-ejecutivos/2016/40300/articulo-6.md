@@ -1,0 +1,1 @@
+Artículo 6º—Toda solicitud de inscripción deberá presentarse ante la Oficina Nacional de Semillas en el formulario que para tal efecto se facilite (anexo A del RTCA 65.05.34:06 Registro de Variedades Comerciales. Requisitos de inscripción).

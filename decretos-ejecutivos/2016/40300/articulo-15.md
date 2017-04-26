@@ -1,0 +1,2 @@
+Artículo 15.—La vigencia de inscripción de una variedad será de cinco años para especies anuales y diez años para perennes.
+Transcurrido este periodo y mediante solicitud escrita del solicitante y el pago respectivo, podrá renovarse la inscripción por periodos adicionales de cinco y diez años respectivamente, prórroga que deberá solicitarse antes de la expiración de su vigencia. Estas renovaciones tendrán aplicación inmediata, una vez cumplidas las condiciones antes indicadas.

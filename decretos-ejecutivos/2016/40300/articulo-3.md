@@ -1,0 +1,16 @@
+Artículo 3º—Definiciones:
+Causahabiente: Persona que ha sucedido en el derecho de obtentor de otra u otras.
+Comité calificador de variedades: grupo técnico especializado en temas de fitomejoramiento, semillas y afines, nombrado por la Junta Directiva de la Oficina Nacional de Semillas, cuya función es la de hacer recomendaciones técnicas a la Oficina en materia de registro de variedades comerciales.
+Descripción varietal: detalle de las características fenotípicas y genotípicas que identifican una variedad vegetal y que permiten su distinción de otras variedades.
+Fitomejorador: Persona con grado universitario en agronomía especializada en mejoramiento genético, que se dedique al desarrollo y mantenimiento de variedades de plantas cultivadas.
+Obtentor: persona física o jurídica que haya desarrollado o descubierto y puesto a punto una nueva variedad.
+Registro de variedades comerciales: expedientes de las variedades inscritas que cumplen con los requisitos generales del RTCA para su comercialización.
+Valor agronómico y de uso: valor intrínseco de una variedad resultante de la combinación de sus características agronómicas, con sus propiedades de uso en actividades industriales, comerciales o de consumo.
+Variedad (internacionalmente cultivar): El conjunto de plantas o individuos cultivados que se distinguen por uno o más caracteres morfológicos, fisiológicos, químicos, citológicos u otros de índole agrícola o industrial y que al ser reproducidos mantienen sus características distintivas de uniformidad y estabilidad.
+Variedad Comercial: variedad inscrita en el Registro de Variedades Comerciales que cumple con los requisitos que dispone este reglamento.
+Variedades de dominio público: aquellas variedades que no cuentan con derechos de propiedad intelectual o que ha caducado o cancelado la vigencia de esta protección.
+Variedad distinta: aquella que se diferencia claramente por uno o más caracteres importantes y de poca fluctuación, de cualquier otra variedad inscrita o en proceso de inscripción en el registro de variedades comerciales.
+Variedad estable: una variedad que, después de reproducciones o multiplicaciones sucesivas, o al final de un ciclo particular de reproducción o multiplicación —cuando se haya definido tal ciclo-, permanece conforme con la descripción en cuanto a sus caracteres esenciales.
+Variedad homogénea: aquella en la que los individuos que la componen, con exclusión de los tipos aberrantes cuyo número debe mantenerse dentro de límites razonables, son semejantes para el conjunto de caracteres que la definan, teniendo en cuenta las particularidades de su sistema de reproducción sexual o multiplicación vegetativa.
+Variedad local, tradicional o criolla: variedad cultivada y desarrollada por campesinos e indígenas, que incluyen los conocimientos, las prácticas e innovaciones, relacionadas con el empleo de los elementos de la biodiversidad y el conocimiento asociado. Estas variedades, independientemente de su origen, se encuentran adaptadas a las prácticas agrícolas y a los ecosistemas locales.
+Variedad protegida: Aquella variedad vegetal que ha sido objeto de protección de derechos de propiedad intelectual y se encuentra debidamente inscrita en el Registro de Variedades Protegidas, establecido para tal efecto en la legislación nacional vigente sobre protección de obtenciones vegetales.
