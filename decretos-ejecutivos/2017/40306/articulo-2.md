@@ -1,0 +1,1 @@
+Artículo 2º- El Departamento de Medicina, Seguridad e Higiene Ocupacionales del Ministerio de Trabajo y Seguridad Social, después de que entre en vigencia el presente Decreto Ejecutivo, no recibirá, tramitará solicitudes ni otorgará Permisos de Instalación y Funcionamiento de recipientes de presión (calderas), sean nuevos o usados.
