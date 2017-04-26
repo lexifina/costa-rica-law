@@ -1,0 +1,1 @@
+Artículo 33—En el caso en que la pérdida del activo se dé por caso fortuito (incendio, temblor, inundación) la dependencia afectada debe comunicar a la Dirección de Hacienda y Departamento de Proveeduría, el detalle de los activos afectados, para que se proceda por parte del Departamento de Proveeduría a realizar las acciones y registro correspondientes.

@@ -1,0 +1,1 @@
+Artículo 21—Inscripción de bienes: El Departamento de Proveeduría en coordinación con el Departamento Legal y el Departamento de Catastro, velarán para que se realicen las gestiones necesarias, para inscribir los bienes que por su naturaleza requieran ser inscritos en los respectivos registros públicos existentes.

@@ -1,0 +1,1 @@
+Artículo 105— Cuando se requiera enviar a mantenimiento o reparación un activo, el o la Director(a) o jefe de departamento llenará la boleta respectiva y la enviará junto con el activo al Departamento de Proveeduría para el trámite correspondiente.

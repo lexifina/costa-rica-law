@@ -1,0 +1,6 @@
+Artículo 51—Requisitos para la baja de activos: En desuso e inservibles, la Municipalidad de San Pablo actuara de conformidad con los con los artículos 49 y 50 de la Ley de contratación administrativa y el artículo 101 y 102 del reglamento de la Contratación Administrativa, todo lo anterior de conformidad con los artículos 2 y 62 del Código Municipal. Para dar de baja activos por cualquiera de los conceptos anteriormente citados el Departamento de Proveeduría, debe cumplir con los siguientes requisitos:
+a) Justificación y motivo de la baja por parte del responsable del activo;
+b) Avalúo correspondiente según valor de mercado o valor en libros y tratándose de vehículos según el valor dado por la Dirección General de Tributación Directa del Ministerio de Hacienda, cuando va a ser entregado como parte de pago en una licitación o se va a rematar.
+c) Elaboración de un acta por parte del Departamento de Proveeduría. Esta acta deberá firmarse por el funcionario(a) responsable del activo, el Director(a), el Jefe(a) del Departamento u Oficina respectivo;
+d) Autorización de baja por parte del Director o jefe o en quien haya delegado esta función;
+e) Registrar la baja de acuerdo al artículo 3 de este Reglamento.

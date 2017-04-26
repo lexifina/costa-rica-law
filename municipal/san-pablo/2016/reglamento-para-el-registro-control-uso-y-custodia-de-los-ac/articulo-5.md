@@ -1,0 +1,2 @@
+Artículo 5º—Concepto de bienes muebles: (Activos cuya vida útil es mayor a un año y son susceptibles de ser trasladados de un lugar a otro sin alterar ni su forma ni su esencia tal es el caso mobiliario y equipo de oficina, maquinaria automóviles, etc.
+Se consideran bienes muebles todos aquellos activos adquiridos por la Municipalidad de San Pablo de Heredia o los provenientes de donaciones, tales como maquinaria, mobiliario y el equipo utilizado en la ejecución de sus funciones y actividades conexas.

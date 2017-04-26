@@ -1,0 +1,1 @@
+Artículo 46—Traslado de activos en desuso o mal estado: El traslado de activos de la Municipalidad de San Pablo de Heredia que estén en desuso o mal estado, a otra institución pública o privada, deberá hacerse mediante los mecanismos establecidos expresamente por ley y según lo normado en este Reglamento.

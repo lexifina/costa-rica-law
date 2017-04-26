@@ -1,0 +1,2 @@
+Artículo 97— Importancia contable del inventario físico: La información que se obtenga como resultado del inventario físico será trasladada al departamento de Contabilidad para el registro en los libros contables de la red vial cantonal.
+Cada vez que se realice una reparación, mejora, obra nueva y mantenimiento de la red vial cantonal, dicha información deberá justificarse en el inventario que al efecto deberá haberse levantado.

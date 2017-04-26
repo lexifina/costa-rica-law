@@ -1,0 +1,4 @@
+Transitorios
+Transitorio 1º—Dentro del plazo de un año a partir de la publicación del presente Reglamento, la Municipalidad de San Pablo de Heredia y demás órganos adscritos, llámese; Centro Cultura, Centro de Conocimiento, Centro del Adulto Mayor de Miraflores, Centro de Cuido y desarrollo Infantil (CECUDI), Salones Comunales , Polideportivos y demás propiedades de la Municipalidad, que se encuentren debidamente registradas a nombre de la Municipalidad de San Pablo de Heredia ante del Registro Nacional de la propiedad, deberán tener inventariados todos sus activos .
+Para el caso de las carreteras y puentes, el plazo para realizar el inventario de acuerdo a este reglamento será de 3 años.
+Dicha información deberá entregarse a la Alcaldía Municipal, con copia al departamento de Contabilidad y Proveeduría municipal.

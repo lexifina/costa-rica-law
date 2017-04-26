@@ -1,0 +1,1 @@
+Artículo 40—Recuentos físicos: El Departamento de Contabilidad, cuando lo estime conveniente y sin previo aviso, podrá realizar recuentos físicos en las diferentes dependencias de la Municipalidad de San Pablo de Heredia, con el fin de velar por el buen estado y uso de los activos.

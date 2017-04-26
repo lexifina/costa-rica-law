@@ -1,0 +1,1 @@
+Artículo N° 10: Alerta Registral: El Departamento de Bienes Inmuebles velará porque las propiedades inscritas a nombre de la Municipalidad cuenten con una alerta registral que le permita a la Administración detectar irregularidades ante movimientos registrales en el Registro de la Propiedad.

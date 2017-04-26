@@ -1,0 +1,1 @@
+Artículo 19—Sistema Informático: El Departamento de Informática, velará por la implementación de un sistema informático para que el Departamento de Contabilidad y Proveeduría puedan efectuar el registro respectivo de los bienes de la Municipalidad de San Pablo de Heredia.

@@ -1,0 +1,1 @@
+Artículo 16—Coordinación interdepartamental: Tanto el Departamento de Proveeduría como el Departamento de Contabilidad, deberán trasladar a la Dirección de Asuntos Jurídicos de la institución los documentos que por ley tengan que contar con su participación. Y al Departamento de Contabilidad los inventarios concernientes para los efectos contables.

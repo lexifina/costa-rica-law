@@ -1,0 +1,1 @@
+Artículo 104—El mantenimiento, reparación, o revisión de activos cuando la garantía haya caducado (herramienta y vehículos) es responsabilidad del Departamento de Proveeduría, se exceptúa de lo anterior lo relacionado con el equipo computacional, cuya responsabilidad recae en el Coordinador de Informática.

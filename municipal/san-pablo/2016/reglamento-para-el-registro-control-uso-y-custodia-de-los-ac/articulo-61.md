@@ -1,0 +1,5 @@
+Artículo 61—Bajas de activos para premios de concursos, exposiciones y donaciones con destino al fomento de la defensa y promoción de los derechos humanos o ayuda a la educación en dicha materia. Para dar de baja elementos, artículos, herramientas, máquinas, aparatos, etc., para destinarlos como premio en concursos, exposiciones, o ayuda a la educación en dicha materia, se deben cumplir los siguientes requisitos:
+a) Solicitud formal por escrito de la entidad requirente donde se detalle el objeto de la actividad a desarrollar, y el tipo de bien de interés;
+b) Resolución del Alcalde Municipal que autorice la entrega del activo, con las estipulaciones y requisitos que deben llenar los interesados;
+c) Relación de los activos por clasificación de inventario, pormenorizando las características, cantidad y valor correspondiente;
+d) Acta de entrega de los activos, firmada por el Alcalde Municipal, Jefatura del Departamento de Proveeduría y los beneficiados. Este último, deberá firmar el acta en el acto de entrega de los activos. Copia de esta acta deberá remitirse al departamento de Contabilidad para el registro contable respectivo.

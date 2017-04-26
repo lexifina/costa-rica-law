@@ -1,0 +1,2 @@
+Artículo 47—Seguro de los Activos: Deberán contar con seguro todos los vehículos de la Municipalidad de San Pablo de Heredia, así como aquellos otros bienes muebles que lo necesiten. No podrán utilizarse hasta que estén cubiertos o protegidos por la póliza correspondiente. Así mismo se debe asegurar todo activo que se considere debe estar protegido por una póliza. El trámite de aseguramiento le corresponde al Departamento de Proveeduría.
+El departamento de Proveeduría velará por que una vez adquirido el activo cuente con las pólizas correspondientes.

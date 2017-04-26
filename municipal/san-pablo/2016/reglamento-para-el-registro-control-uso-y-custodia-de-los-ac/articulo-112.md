@@ -1,0 +1,1 @@
+Artículo 112—Todos los bienes inmuebles propiedad de la Municipalidad, que no se hayan registrado debidamente ante el Registro Público de la propiedad, deberán ser incluidos en el servicio de alerta registral, como medio para minimizar el riesgo que pueda ser registrado por otra persona al no existir claridad ni haberse podido concluir su registro como bien demanial.

@@ -1,0 +1,1 @@
+Artículo 103—Cuando las características de los activos lo requieran, el Director(a) u jefe de departamento podrá emitir procedimientos de restricción de uso del bien, conforme a los criterios internos y/o técnicos. Dichas normas y procedimientos se harán del conocimiento de todos(as) los(as) usuarios y serán debidamente incorporados a este reglamento.
