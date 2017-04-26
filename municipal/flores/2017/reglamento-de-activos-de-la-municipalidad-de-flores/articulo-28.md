@@ -1,0 +1,5 @@
+CAPÍTULO IX
+Retiro de activos y tratamiento de los activos en desuso
+Artículo 28.—Determinación de la baja. Salvo los casos de pérdida o robo cuyo trámite se indicó previamente en este reglamento, cuando un activo sea necesario darlo de baja, la Jefatura responsable del activo emitirá un criterio técnico determinando su obsolescencia, deterioro o inutilidad, solicitando a la Dirección Financiera que el activo sea dado de baja.
+La Dirección Financiera solicitará al Encargado de la Bodega Municipal, brindar criterio técnico del destino final del bien ya sea: desecho, reciclaje, reasignación, reutilización o donación. De igual manera, la Dirección Financiera analizará e inspeccionará el activo para determinar la procedencia o no de la petición, dando su visto bueno y remitiendo la petición a la Alcaldía Municipal.
+La Alcaldía determinará por resolución fundada la procedencia de la petición y en caso afirmativo ordenará la baja del activo, la eliminación de los registros de control y contables, así como la remoción del identificador del objeto; y determinará el destino final del bien tomando consideración lo indicado en el numeral 26 anterior.

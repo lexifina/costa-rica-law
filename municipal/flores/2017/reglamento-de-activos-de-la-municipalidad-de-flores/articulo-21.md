@@ -1,0 +1,1 @@
+Artículo 21.—Informe de Responsabilidad. El superior jerárquico es el responsable de efectuar los trámites e informar a las instancias correspondientes para que se abra el proceso administrativo contra la persona funcionaria responsable o custodio del activo por el supuesto mal uso, sustracción, deterioro o pérdida del mismo.

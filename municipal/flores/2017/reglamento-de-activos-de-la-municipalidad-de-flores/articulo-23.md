@@ -1,0 +1,1 @@
+Artículo 23.—Responsabilidad Civil y Disciplinaria. Si se determina responsabilidad por parte de la persona funcionaria responsable de custodiar el activo, se procederá con lo estipulado en el Reglamento Autónomo de Organización y Servicio capítulo XXIII, sin perjuicio de la responsabilidad civil por los daños y perjuicios ocasionados.

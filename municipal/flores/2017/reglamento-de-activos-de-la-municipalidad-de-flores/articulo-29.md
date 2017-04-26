@@ -1,0 +1,1 @@
+Artículo 29.—Remate, Venta y otras formas de disposición onerosa de bienes dados de baja. Cuando se considere pertinente la venta y remate de activos se hará conforme a lo que establece el Reglamento a la Ley de Contratación Administrativa. Corresponderá a la Proveeduría coordinar y realizar los procedimientos de la venta de activos.

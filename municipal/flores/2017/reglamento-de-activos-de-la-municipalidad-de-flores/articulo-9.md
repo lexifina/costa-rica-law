@@ -1,0 +1,2 @@
+Artículo 9°—Obligación de identificación. Todo activo fijo municipal deberá contar con una identificación numérica, por medio de una placa metálica, cinta adhesiva, código de barras, grabado eléctrico o uso de marcadores.
+En el caso del equipo de cómputo, cuando el equipo esté compuesto por un monitor y una unidad central de proceso (CPU), estos deberán ser identificados en forma individual, así como los demás componentes de manera independiente.

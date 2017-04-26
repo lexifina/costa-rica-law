@@ -1,0 +1,1 @@
+Artículo 6°—Rectoría. El Área Financiera ejercerá la rectoría respecto al registro y control de los activos muebles e inmuebles del municipio, por lo que podrá generar lineamientos generales de acatamiento obligatorio para toda la Administración.
