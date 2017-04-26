@@ -1,0 +1,2 @@
+ARTICULO 32: SANCIONES PARA QUIENES NO DEN TRÁMITE A LAS DENUNCIAS.
+Incurrir en falta de naturaleza laboral, que dará mérito para la aplicación del régimen disciplinario, de conformidad con el artículo 81 del Código de Trabajo, aquel funcionario que, conociendo de una denuncia por hostigamiento sexual, en su condición como Miembro de la Comisión Institucional contra el Hostigamiento Sexual, no le dé el trámite previsto en esta normativa.

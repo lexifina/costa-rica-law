@@ -1,0 +1,2 @@
+ARTICULO 13: CAUSAS DE IMPEDIMENTO, RECUSACIÓN O EXCUSA DE COMISIÓN INVESTIGADORA.
+Respecto a las causas de impedimento, recusación o excusa de los sujetos que conformen la Comisión Investigadora, se estará a las reglas de la Convención Colectiva y al Reglamento Interno de Trabajo. En forma supletoria se utilizará lo que al respecto indique la Ley contra el Hostigamiento Sexual su reglamento y supletoriamente por la Ley General de la Administración Pública y sus reformas.

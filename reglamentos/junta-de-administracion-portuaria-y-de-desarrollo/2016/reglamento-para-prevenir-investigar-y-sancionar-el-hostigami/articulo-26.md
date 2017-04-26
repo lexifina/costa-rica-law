@@ -1,0 +1,2 @@
+ARTÍCULO 26: INFORME FINAL
+La Comisión Instructora tendrá un plazo de quince días hábiles posteriores a la evacuación de toda la prueba para emitir el informe final, debiendo contener, en forma clara, precisa y circunstanciada, los hechos probados y no probados, toda la prueba recabada y su análisis, las medidas cautelares, si procedieron, los fundamentos legales y motivos que fundamentan la recomendación, así como una posible sanción sustentada. Este informe será remitido a la Presidencia Ejecutiva o a quien ejerza la potestad disciplinaria sobre la persona hostigadora

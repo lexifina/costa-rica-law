@@ -1,0 +1,2 @@
+ARTICULO 31: SANCIONES PARA QUIENES ENTORPEZCAN O ATRASEN INJUSTIFICADAMENTE LA INVESTIGACIÓN.
+Incurrirá en falta de naturaleza laboral, que dará mérito para la aplicación del régimen disciplinario, de conformidad con el artículo 81 del Código de Trabajo, aquel funcionario que entorpezca o que atrase injustificadamente, la investigación, negándose a declarar o brindar información sobre los hechos investigados.

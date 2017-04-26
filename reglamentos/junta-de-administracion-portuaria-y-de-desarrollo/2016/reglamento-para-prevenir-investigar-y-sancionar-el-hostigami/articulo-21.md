@@ -1,0 +1,4 @@
+ARTICULO 21: TRASLADO DE LA DENUNCIA Y DETERMINACIÓN DEL PLAZO A INVESTIGAR.
+Una vez que La Comisión Institucional contra el Hostigamiento Sexual haya recibido la denuncia, en un plazo de cinco días hábiles, dará traslado al denunciado; notificando, en forma personal y privada, mediante acta que deberá firmar como constancia de recibido.
+En este acto se le dará audiencia por el término de ocho días hábiles, a partir de su notificación, para que se refiera por escrito, a todos y cada uno de los hechos que se le imputan y ofrezca los medios de prueba en descargo de estos. En el caso de que la persona denunciada no ejerza su defensa, el proceso continuará hasta concluirse con el informe final.
+En caso de que la persona denunciante retire la denuncia, la Comisión Institucional evaluará el interés institucional para continuar con la instrucción del caso. Esa resolución deberá ser fundamentada y ampliamente razonada.

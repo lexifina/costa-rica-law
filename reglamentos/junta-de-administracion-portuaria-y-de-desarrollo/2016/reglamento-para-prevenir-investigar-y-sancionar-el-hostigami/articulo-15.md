@@ -1,0 +1,3 @@
+ARTICULO 15: DEBER DE COLABORACIÓN DE LOS DEPARTAMENTOS Y FUNCIONARIOS DEL DEPARTAMENTO LEGAL
+Todo departamento y todo funcionario o funcionaria de la Institución, cuya colaboración sea solicitada por la Comisión Institucional contra el Hostigamiento Sexual, para la investigación de una denuncia por hostigamiento sexual, está en la obligación de prestarla.
+La negativa injustificada del jefe de oficina o del servidor o servidora, será considerada como una falta, que da margen para la aplicación del régimen disciplinario, de conformidad con el artículo 81 del Código de Trabajo y el Reglamento interno de Trabajo de JAPDEVA.
