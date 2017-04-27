@@ -1,0 +1,7 @@
+CAPÍTULO V. Finalización de los servicios y Régimen disciplinario.
+Artículo 50. - Finalización de la prestación de servicios.
+La prestación de los servicios de abogacía finalizará por vencimiento del plazo del contrato incluida la decisión discrecional del Banco de no prorrogar su plazo; por rescisión unilateral, por rescisión bilateral o por resolución contractual; todo conforme a lo previsto en la Ley de Contratación Administrativa y su Reglamento.
+Cuando un abogado externo no desee continuar brindando sus servicios al Banco, deberá solicitarlo por escrito a Proveeduría General, la cual procederá a tramitar la solicitud ante el Comité o Subcomité de Licitaciones del Banco según corresponda, quien decidirá si se acepta o rechaza la solicitud por la ausencia de los siguientes requisitos:
+a) Debe presentar los escritos de renuncia en todos los procesos judiciales bajo su dirección profesional ante el despacho tramitador correspondiente, dándose por satisfecho en el pago de sus honorarios, con el fin de que otro profesional pueda asumirlos. Para reasignar esos casos, se respetará el rol correspondiente.
+b) A la hora de la presentación de los escritos de renuncia, cada proceso judicial deberá estar activo en la etapa procesal que se encuentre.
+El Banco Nacional de Costa Rica se reserva el derecho de entablar los diferentes procedimientos y procesos tanto en instancias administrativas como judiciales por la falta de cumplimiento de las obligaciones del profesional en derecho.

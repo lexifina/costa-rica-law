@@ -1,0 +1,2 @@
+Artículo 26.- Bienes encontrados y su ejecución.
+En los Procesos Monitorios, donde existan bienes encontrados, el abogado director debe solicitar el visto bueno de la UICJ, a través del “correo oficial”, para proceder a solicitar el remate del mismo. La UICJ deberá pronunciarse y comunicar al abogado director la deseabilidad del bien a embargar en el menor tiempo posible. Una vez recibido el visto bueno de la UICJ, el abogado director deberá coordinar directamente con los Jueces Ejecutores y Peritos para llevar a cabo las diligencias necesarias.

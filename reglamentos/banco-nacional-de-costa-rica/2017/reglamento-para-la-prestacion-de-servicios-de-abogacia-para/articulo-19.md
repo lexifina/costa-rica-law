@@ -1,0 +1,2 @@
+Artículo 19.- Imposibilidad de Localizar y desistimiento.
+En el caso de que haya personas que no se han podido localizar, y no proceda el nombramiento de curador procesal, o su designación encarezca considerablemente el proceso; una vez informada la UICJ y rendido el criterio profesional acerca de esta situación por parte del abogado director, a través del correo oficial, la UICJ analizará la posibilidad de desistir de dicha persona en el proceso comunicando oportunamente al abogado la decisión tomada.

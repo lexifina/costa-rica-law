@@ -1,0 +1,10 @@
+Artículo 47.- Honorarios Proceso monitorio.
+En el caso de los procesos monitorios o ejecutivos simples se cancelará al abogado director del proceso de la siguiente forma:
+a) Primer tracto del 50% de los honorarios con la presentación de la demanda ante el Juzgado que corresponda -la cual deberá cumplir a cabalidad con todos los requisitos legales, tanto procesales como de fondo a fin de evitar prevenciones o rechazos de plano-, para tal efecto el abogado externo debe remitir al “correo oficial” copia sellada de la demanda, junto con los documentos de respaldo que se detallan en el artículo 16 del presente Reglamento, así como la respectiva factura.
+b) El segundo tracto del 25% con el envío de la resolución intimatoria en firme al “correo oficial”, además de hacer constar lo siguiente:
+I. Que todas las partes se encuentran debidamente notificadas.
+II. Que no se formuló dentro del plazo correspondiente oposición alguna, con la cual la resolución intimatoria adquirió su firmeza.
+c) El tercer y último tracto del 25% el abogado externo debe aportar todas las resoluciones en las que se ordenen giros de dinero a favor del Banco y su debida aplicación, de forma tal que no se adeude suma alguna de conformidad con lo aprobado en el juzgado.
+En aquellos casos en los que existan bienes encontrados y sea viable su ejecución, se le cancelará el porcentaje respectivo una vez firme la verificación del remate.
+En caso de mediar normalización o cancelación total de la operación de crédito, al abogado director del proceso judicial se le cancelará sus honorarios de acuerdo a lo establecido en el arancel respectivo. En los casos en los que se determine la incobrabilidad de la obligación, el porcentaje correspondiente se le cancelará al abogado una vez aprobado el Criterio de Incobrabilidad según lo dispuesto artículo 41 del presente Reglamento.
+Es responsabilidad del abogado externo mantener actualizado al Banco, a través del “correo oficial”, sobre cada gestión de los procesos a su cargo.

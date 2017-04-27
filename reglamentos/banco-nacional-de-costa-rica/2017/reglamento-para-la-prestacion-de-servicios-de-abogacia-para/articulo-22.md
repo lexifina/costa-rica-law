@@ -1,0 +1,2 @@
+Artículo 22.- Atención de audiencias.
+En aquellos casos en los cuales el juzgado programe la celebración de una audiencia a la que debe acudir el banco, corresponde al abogado director apersonarse en la fecha y hora programada por el despacho, correspondiéndole velar por la defensa de los intereses del Banco. Finalizada la audiencia el abogado tendrá un plazo máximo de dos días hábiles para informar a la oficina el resultado y los pasos a seguir.

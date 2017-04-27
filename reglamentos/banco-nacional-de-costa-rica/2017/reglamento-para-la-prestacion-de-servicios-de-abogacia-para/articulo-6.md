@@ -1,0 +1,2 @@
+Artículo 6. - Normativa Aplicable.
+La contratación y ejecución contractual de las labores de los abogados externos se regirá por la Ley de contratación Administrativa y su Reglamento, el Código de Deberes Jurídicos, Morales y éticos del Profesional en Derecho, el presente reglamento y sus reformas, la normativa interna del Banco relacionada con el cobro judicial de operaciones en mora, los carteles o disposiciones generales que regulen una contratación particular.

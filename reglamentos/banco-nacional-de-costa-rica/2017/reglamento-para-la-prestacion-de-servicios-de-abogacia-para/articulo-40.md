@@ -1,0 +1,9 @@
+Artículo 40.- Terminación del proceso de cobro.
+La suspensión definitiva y finalización total del juicio, por orden de la UICJ, podrá realizarse en los siguientes casos:
+1. Si se cancela en su totalidad la obligación crediticia, junto con los intereses, gastos administrativos y honorarios de abogado.
+2. Si se normaliza la situación de la operación o la corrección total de las causas que originaron el cobro judicial.
+3. Si se determina su incobrabilidad de conformidad con lo dispuesto en el presente Reglamento.
+4. Si existe un arreglo parcial aprobado por el Banco.
+5. Cuando no exista saldo al descubierto, se ponga al banco en posesión del bien y este se encuentre debidamente inscrito.
+Cuando se dé por finalizado el proceso, el Banco lo comunicará al Abogado Externo, para que éste proceda con la presentación de la documentación necesaria ante el Despacho Judicial correspondiente. Dicho documento debe proporcionársele al Abogado director en un plazo máximo de tres días hábiles contados a partir de su suscripción. Entregado dicho documento al Abogado Director, éste debe proceder a presentarlo al Despacho Judicial correspondiente, en un plazo máximo de dos días hábiles. El abogado remitirá al “correo oficial” una copia debidamente sellada, dentro de los dos días hábiles siguientes a su presentación en el juzgado. Asimismo, con la presentación del referido documento, el abogado externo tendrá la obligación de interponer todas aquellas gestiones que sean necesarias para proceder a levantar las anotaciones y/o embargos que pesen sobre los bienes del demandado.
+En el caso de las Oficinas adscritas a la UICJ, si el cliente normaliza o cancela la operación, debe la oficina informar a la UICJ de manera inmediata de esa situación y enviar el finiquito correspondiente firmado por ambas partes en un plazo máximo de veinticuatro horas, previo escaneo del documento y envío electrónico al ejecutivo a cargo del cobro.

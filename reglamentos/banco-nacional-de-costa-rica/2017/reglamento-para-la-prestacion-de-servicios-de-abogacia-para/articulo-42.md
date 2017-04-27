@@ -1,0 +1,4 @@
+Artículo 42.- Suspensión del proceso de cobro.
+El Banco podrá girar orden escrita al Abogado Director para que proceda a solicitar una suspensión del proceso de cobro ante el Despacho Judicial respectivo. Esta suspensión se hará de conformidad con lo establecido en la legislación procesal civil vigente.
+En aquellos casos en los cuales se le gire instrucciones de suspender un proceso, deberá cuidar de que no operen deserciones o prescripciones que pongan en peligro la recuperación del crédito.
+Cuando no se regularice una operación que tiene señalada hora y fecha para remate, este puede ser suspendido por orden del Gerente General, Sub-Gerentes o Director de Zonas Comerciales o el Director de Zona mediante resolución debidamente motivada, igualmente se le debe informar al abogado director del proceso para que proceda a solicitar la suspensión.

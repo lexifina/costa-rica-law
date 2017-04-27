@@ -1,0 +1,5 @@
+Artículo 21.- Embargo de bienes.
+Una vez emitidas las órdenes de embargo corresponde al abogado director diligenciarlas lo antes posible ante las autoridades correspondientes.
+En caso de bienes muebles, una vez definida fecha y hora para la captura del bien, el abogado director deberá coordinar directamente con el Ejecutor y el depositario judicial designado por el banco, el traslado del bien al lugar que así se establezca.
+Además, tiene la obligación de informar a la UICJ con al menos 1 día hábil de anticipación a la realización de dicha diligencia, por medio de la cuenta de “correo oficial”; asistiéndole al abogado director la obligación de estar presente junto con la persona designada como Depositario Judicial por parte del Banco en el acto de la práctica de la captura.
+En caso de bienes inmuebles, cuando proceda el nombramiento de depositario judicial provisional o anticipado a solicitud de la UICJ, el Abogado Externo deberá coordinar con el Ejecutor y depositario judicial la fecha de la toma de posesión del bien. Igualmente deberá estar presente en la práctica de dicha diligencia judicial.

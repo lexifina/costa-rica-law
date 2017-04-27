@@ -1,0 +1,9 @@
+Artículo 36.- Protocolización de Piezas.
+Le corresponde al abogado director salvo indicación en contrario de la UICJ realizar la protocolización de los bienes adjudicados cuando este sea a su vez notario público y deberá en el mismo acto que informa de la firmeza del remate, remitir a la UICJ mediante “correo oficial” documento en el cual el juzgado tramitador o él manifieste que:
+a) A la fecha no existe pendiente de agregar ningún documento dentro del expediente judicial.
+b) No existe pendiente de resolver o atender ninguna apelación que enerve la posibilidad de inscripción del bien.
+c) La resolución verificada se encuentra firme.
+d) No existen otras anotaciones sobre la finca que deban ser levantadas previo a la protocolización. En este caso el abogado director previo a realizar la protocolización de piezas deberá gestionar y tramitar todos levantamientos que resulten necesarios para la inscripción del bien a favor del Banco.
+Una vez proporcionada dicha nota a la UICJ, deberá proceder con la confección de la escritura respectiva dentro del término de 8 días hábiles, una vez presentada ante el Registro Público deberá proporcionar a la UICJ copia de la respectiva boleta de presentación y una copia del testimonio. Asimismo, le corresponderá informar mediante el “correo oficial” la debida inscripción del bien a nombre del Banco, debiendo remitir la certificación registral en la que conste su inscripción.
+Una vez otorgada la escritura de protocolización de piezas, con el fin de tramitar el pago respectivo, deberá enviarse a la UICJ el detalle de gastos registrales, honorarios, su respectiva factura y el testimonio de la escritura original.
+El abogado director contará con un plazo de 60 días naturales para proceder a la inscripción del testimonio de protocolización y presentarlo debidamente inscrito ante la UICJ. El incumplimiento injustificado en el plazo de inscripción se considerará falta grave.

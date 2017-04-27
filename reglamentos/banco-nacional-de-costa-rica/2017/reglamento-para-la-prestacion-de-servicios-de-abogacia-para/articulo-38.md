@@ -1,0 +1,2 @@
+Artículo 38.- Incumplimiento.
+A los abogados externos que tienen la condición de notarios públicos, en caso de que no cumplan con los deberes y plazos establecidos en el presente Reglamento, se les impedirá en lo sucesivo realizar la protocolización de piezas en los procesos en que funjan como abogados directores. La UICJ podrá designar a un notario de planta o externo para realizar la protocolización correspondiente.

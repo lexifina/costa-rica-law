@@ -1,0 +1,2 @@
+Artículo 29.- Del edicto.
+La publicación del edicto deberá realizarse una vez que estén notificadas todas las partes del proceso, salvo lo instruido en contrario por la UICJ. Corresponde al abogado director cotejar el edicto antes y después de su publicación en el Boletín Judicial, debiendo verificar que el Edicto no contiene errores que deban ser subsanados y que la publicación se haya realizado en tiempo. Siendo responsable este ante el banco y los demandados de cualquier perjuicio que por error se cause.

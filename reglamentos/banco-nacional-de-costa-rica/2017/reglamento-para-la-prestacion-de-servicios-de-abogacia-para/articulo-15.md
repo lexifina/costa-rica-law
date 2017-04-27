@@ -1,0 +1,5 @@
+CAPÍTULO IV Trámite, obligaciones y deberes en los Procesos Cobratorios
+Artículo 15.- Juicio Sucesorio y legalización de créditos.
+En los casos en que el Banco deba recuperar alguna obligación que se encuentre en estado irregular, líquida y exigible, en la que se constate que el deudor (es), garantes o fiadores ha fallecido, existiendo un patrimonio que así lo justifique, deberá asignar el caso a un abogado de planta.
+Previo a la presentación de la demanda, el abogado director deberá informar de forma inmediata a la UICJ, si para la tramitación del proceso judicial que le fue asignado, se requiere iniciar un proceso sucesorio para que sea iniciado por un abogado de planta, debiendo el abogado externo verificar la capacidad jurídica de las partes por demandar.
+En aquellos casos en los que proceda la legalización del crédito, el abogado director deberá informar el caso a la UICJ, para que ésta decida si el proceso será asumido por un abogado de planta o deberá continuar el abogado externo su tramitación.

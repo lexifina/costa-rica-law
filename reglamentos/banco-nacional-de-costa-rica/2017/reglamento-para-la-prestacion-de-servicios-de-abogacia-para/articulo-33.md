@@ -1,0 +1,2 @@
+Artículo 33.- Liquidación final.
+Una vez firme el remate y dentro de los tres días hábiles siguientes corresponde al abogado director solicitar a la UICJ la liquidación final del saldo adeudado sea capital, intereses, costas y otras partidas pendientes de cobro. Debiendo el abogado cotejar que los rubros liquidados se encuentran ajustados a derecho y de conformidad con lo solicitado. Esta liquidación debe ser presentada ante el juzgado en el mismo plazo indicado anteriormente.

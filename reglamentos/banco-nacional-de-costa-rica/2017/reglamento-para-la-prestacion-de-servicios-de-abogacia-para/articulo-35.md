@@ -1,0 +1,2 @@
+Artículo 35.- Bienes inmuebles ocupados por terceros.
+Cuando el bien adjudicado por el Banco sea un inmueble y éste se encuentre ocupado por el ex propietario o por terceros sin un título válido, el abogado externo debe coordinar su desalojo como parte del proceso de toma en posesión por parte del Banco. Si el inmueble se encuentra ocupado válidamente por un arrendatario, la Dirección de Bienes del Banco debe notificarle mediante un Notario de Planta que debe continuar depositando el monto del arrendamiento a favor del Banco.
