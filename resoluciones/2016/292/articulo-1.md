@@ -2,11 +2,10 @@ SUPERINTENDENCIA DE TELECOMUNICACIONES
 9484-SUTEL-SCS-2016
 El suscrito, Secretario del Consejo de la Superintendencia de Telecomunicaciones, en ejercicio de las competencias que le atribuye el inciso b) del artículo 50 de la Ley General de la Administración Pública, ley 6227, y el artículo 35 del Reglamento interno de organización y funciones de la Autoridad Reguladora de los Servicios Públicos y su órgano desconcentrado, me permito comunicarle(s) que en sesión ordinaria 073-2016, celebrada el 14 de diciembre del 2016, mediante acuerdo 023-073-2016, de las 13:00 horas, el Consejo de la Superintendencia de Telecomunicaciones aprobó por unanimidad, la siguiente resolución:
 RCS-292-2016
-“METODOLOGÍA PARA EL CÁLCULO DE LOS PRECIOS POR USO COMPARTIDO DE
-INFRAESTRUCTURA DE POSTERÍA EN LOS PROCESOS DE INTERVENCIÓN
-QUE DEBE RESOLVER EL CONSEJO DE LA SUTEL”
+METODOLOGÍA PARA EL CÁLCULO DE LOS PRECIOS POR USO COMPARTIDO DE INFRAESTRUCTURA DE POSTERÍA PARA LOS OPERADORES DE REDES DE TELECOMUNICACIONES
 EXPEDIENTE: GCO-TMA-01466-2016
 RESULTANDO.
+(Así modificada su denominación mediante resolución N° 136-2017 del 27 de abril del 2017. Anteriormente indicaba “ METODOLOGÍA PARA EL CÁLCULO DE LOS PRECIOS POR USO COMPARTIDO DE INFRAESTRUCTURA DE POSTERÍA EN LOS PROCESOS DE INTERVENCIÓN QUE DEBE RESOLVER EL CONSEJO DE LA SUTEL”)
 1. Que por medio del informe técnico con número de oficio 01697-SUTEL-DGM-2016, se concluyó que para mantener una distribución eficiente del espacio disponible para el tendido de redes de telecomunicaciones y eléctricas se deben contemplar 5 unidades de desagregación y un 23% de factor de utilización para redes de telecomunicaciones.
 2. Que el informe 01697-SUTEL-DGM-2016 fue conocido por el Consejo de Sutel en sesión ordinaria 014- 2016 del 9 de marzo de 2016, y mediante acuerdo 015-014-2016 se resolvió instruir a la Dirección General de Mercados utilizar los resultados del informe con el fin de crear una metodología para la fijación del costo de alquiler que deben pagar los operadores y proveedores a los dueños de postería.
 3. Que mediante licitación abreviada No. 2015LA-000012-SUTEL “Valoración y análisis de la metodología para la determinación de los cargos para el acceso a infraestructura esencial de uso compartido”, se elaboró un estudio que brindara la normativa, metodologías y los cargos aplicados en el ámbito internacional por el alquiler de espacio de ductos, postes y torres. Los casos de estudio fueron las regulaciones de los países Colombia, Perú, Chile y España.
@@ -35,7 +34,6 @@ v. Cuando la infraestructura sea compartida con otro sector, los costos que ser�
 Esto basado en criterios técnicos asociados a la práctica, naturaleza de la infraestructura y tecnología disponible.
 2. Metodología para la determinación de los cargos recurrentes por uso compartido de infraestructura.
 Los cargos anuales por uso compartido de recursos escasos, en particular postes, deberán ser fijados mediante la aplicación de la siguiente fórmula:__
-[imagen]
 Siendo;
 Cargo: cargo anual por uso compartido de recursos escasos.
 VRI: Valor de recuperación de inversión. Se considera dentro de estos costos los costos de capital asociados al servicio, es decir; el valor de reposición de los equipos e infraestructura, costos de instalación, costos de mano de obra y administración de la obra y costo de obras civiles.
@@ -75,7 +73,7 @@ De acuerdo a la fórmula de la presente metodología el costo de capital o CAPEX
 Respecto al elemento U, unidades de desagregación técnica, este responde a la unidad que deberán dividirse los costos entre los usuarios posibles de la infraestructura. Este puede ser cantidad de usuarios, unidades de longitud, área u cualquier otro aplicable respecto al tipo de infraestructura. Los criterios técnicos aplicables a este factor para el caso de postes fueron igualmente definidos por la Dirección mediante el estudio técnico presentado mediante oficio N°1697-SUTEL-DGM-2016 el cuál se encuentra en el expediente GCO-TMA- 01466-2016.
 4. Condiciones respecto a la fórmula
 1. Los costos reconocidos para determinar el “Valor de recuperación de la inversión (VRI)”, deben estar adecuadamente respaldados por cada dueño de infraestructura, es decir con facturas de compras y detalle de los rubros incluidos.
-2. Los costos de capital se anualizarán mediante la determinación de un factor de descuento, FD: [imagen] donde i, sería promedio anual de la tasa Activa de Bancos Públicos para Otras actividades y como n a la vida útil del activo correspondientes la cual equivale a 40 años.
+2. Los costos de capital se anualizarán mediante la determinación de un factor de descuento, FD: donde i, sería promedio anual de la tasa Activa de Bancos Públicos para Otras actividades y como n a la vida útil del activo correspondientes la cual equivale a 40 años.
 3. El factor de utilización que se debe aplicar en la fórmula corresponde a 23%.
 4. Los costos operativos no podrán exceder al 5% de los costos de capital totales.
 5. Los costos operativos a reconocer serán los generados por el uso compartido de la infraestructura.
@@ -87,7 +85,8 @@ Con fundamento en las competencias otorgadas en la Ley General de Telecomunicaci
 EL CONSEJO DE LA SUPERINTENDENCIA DE TELECOMUNICACIONES
 RESUELVE:
 PRIMERO. – Dar por recibido el informe de la Dirección General de Mercados número 9307-SUTEL-DGM- 2016 del 9 de diciembre de 2016, en el cual se rinde informe sobra los resultados de la consulta pública efectuada.
-SEGUNDO. - APROBAR la metodología para el cálculo del cargo por uso compartido de postería en los procesos de intervención que debe resolver el Consejo de la Sutel.
+SEGUNDO: APROBAR LA METODOLOGÍA PARA EL CÁLCULO DEL CARGO POR USO COMPARTIDO DE POSTERÍA EN LOS PROCESOS DE INTERVENCIÓN, ASÍ COMO PARA TODOS LOS OPERADORES QUE HACEN USO COMPARTIDO DE POSTERÍA
+(Así reformado el punto anterior mediante resolución N° RCS-136-2017 del 27 de abril del 2017)
 TERCERO. - Ordenar la inscripción y publicación del texto completo de esta resolución, una vez que sea publicada en el Diario Oficial La Gaceta, en el Registro Nacional de Telecomunicaciones, ello en cumplimiento del artículo 80 inciso e) de la ley de la Autoridad Regulara de los Servicios Públicos No 7593.
 CUARTO. - Advertir que la metodología aprobada en la presente resolución, rige partir de la publicación en el diario oficial La Gaceta.
 En cumplimiento de lo que ordena el artículo 345 y el artículo 346 de la Ley General de la Administración Pública, se indica que contra esta resolución cabe el recurso ordinario de revocatoria o reposición ante el Consejo de la Superintendencia de Telecomunicaciones, a quien corresponde resolverlo, y deberá interponerse en el plazo de 3 días hábiles, contados a partir del día siguiente a la notificación de la presente resolución.

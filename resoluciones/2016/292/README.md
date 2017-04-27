@@ -14,3 +14,4 @@ Metodología para el cálculo de los precios por uso compartido de infraestructu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-21 | la propia norma |
+| 2 | 2017-04-27 | Resolución 136 (2017-04-27) |
