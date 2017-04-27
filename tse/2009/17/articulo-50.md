@@ -1,5 +1,6 @@
-Artículo 50.—Justificantes y sus requisitos. Para efectos de este Reglamento, se entenderá como justificante todo documento proporcionado por los distintos proveedores de bienes o servicios. Por regla general, todo gasto reembolsable a través del financiamiento del Estado, deberá ser respaldado mediante justificantes, los cuales deberán cumplir con los siguientes requisitos:
-1. Ser documento original, debidamente autorizado por la Administración Tributaria, excepto en los casos en que esa instancia apruebe regímenes especiales.
+Artículo 50.— Justificantes y sus requisitos. Para efectos de este Reglamento, se entenderá como justificante todo documento proporcionado por los distintos proveedores de bienes o servicios. Por regla general, todo gasto reembolsable a través del financiamiento del Estado, deberá ser respaldado mediante justificantes, los cuales deberán cumplir con los siguientes requisitos:
+1. Ser documento original.
+(Así reformado el inciso anterior por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 5-2017 del 27 de abril del 2017)
 2. Estar debidamente fechado, cancelado y extendido a nombre del partido.
 3. Tener consignado el nombre y cédula o documento de identificación de la persona física o jurídica que suministró los bienes o servicios.
 4. Detallar los bienes o servicios suministrados a la agrupación política que los paga.
