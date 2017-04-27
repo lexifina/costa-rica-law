@@ -1,1 +1,0 @@
-Artículo 43.—El becario que en el transcurso de un mes calendario, con posterioridad a su reincorporación al trabajo, no presentare el informe final escrito y/o la charla, podrá hacerse acreedor a una amonestación escrita, lo cual será aplicable por el Departamento de Recursos Humanos, cumpliéndose el debido proceso.

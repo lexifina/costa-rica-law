@@ -1,1 +1,0 @@
-Artículo 11.—El integrante de la Comisión que faltare sin justificación dos veces seguidas o tres alternas en un período de seis meses, perderá su credencial de miembro de la Comisión, debiendo ser sustituido por quien corresponda con excepción del Director Administrativo y el jefe de Recursos Humanos.

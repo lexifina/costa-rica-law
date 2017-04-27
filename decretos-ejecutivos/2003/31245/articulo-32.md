@@ -1,1 +1,0 @@
-Artículo 32.—En todos los casos el beneficiario(a) presentará un informe a la Comisión de Becas (por medio del área de Capacitación y Desarrollo) dentro de un plazo no mayor de un mes calendario, posterior a la conclusión de sus estudios sobre el resultado de los mismos, de lo contrario se gestionará el cobro correspondiente.

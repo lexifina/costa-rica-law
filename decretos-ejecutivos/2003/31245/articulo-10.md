@@ -1,1 +1,0 @@
-Artículo 10.—De cada sesión de la Comisión deberá levantarse un acta, que contemple los asuntos tratados que deben citarse en orden numérico, indicando los acuerdos tomados en cada uno de ellos. Esta acta, una vez aprobada debe ser firmada por los miembros que estuvieron presentes en la sesión.

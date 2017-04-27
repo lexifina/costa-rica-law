@@ -1,1 +1,0 @@
-Artículo 37.—El becario está obligado a enviar al Área de Capacitación y Desarrollo, así como a las instituciones del caso, los informes parciales y finales del resultado de la beca y los beneficios o conocimientos adquiridos, en los plazos estipulados que se le soliciten.

@@ -1,1 +1,0 @@
-Artículo 5º—La Comisión tendrá un fiscal, el cual será elegido por acuerdo de las organizaciones sindicales representadas en la Comisión y participará de las reuniones con voz pero sin voto, cuyas funciones y obligaciones se detallan posteriormente.

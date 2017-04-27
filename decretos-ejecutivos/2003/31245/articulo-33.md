@@ -1,1 +1,0 @@
-Artículo 33.—Si la persona beneficiada solicita beca con tiempo para estudio, deberá presentar junto con la solicitud, una certificación de la institución o centro de estudios correspondiente, que demuestre el horario de lecciones o clases, con el fin de garantizar que las mismas se impartirán en horas laborales.

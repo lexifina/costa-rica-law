@@ -1,1 +1,0 @@
-Artículo 39.—En caso de muerte o incapacidad permanente de un becado, acogido a cualquiera de los beneficios establecidos en este Reglamento, si la misma se produce en el período de estudios o en el cumplimiento del compromiso laboral, quedarán exentas de cumplimiento las obligaciones y garantías contraídas con el Ministerio.
