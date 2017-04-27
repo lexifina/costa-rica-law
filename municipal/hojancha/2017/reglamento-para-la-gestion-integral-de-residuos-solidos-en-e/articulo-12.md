@@ -1,0 +1,1 @@
+Artículo 12°- Sitios prohibidos para arrojar residuos sólidos. Queda prohibido colocar los residuos en el sitio fuera del horario establecido por la Municipalidad. Queda absolutamente prohibido arrojar cualquier tipo de residuo en cuerpos de agua, zonas de protección, terrenos desocupados, en caños, en la vía pública o en sitios públicos.

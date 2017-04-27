@@ -1,0 +1,1 @@
+Artículo 30°-Condición de los residuos valorizables. El usuario deberá limpiar, secar, separar y compactar los residuos valorizables, evitando que se contaminen con líquidos, alimentos, sustancias bioinfecciosas, pinturas, sustancias inflamables, explosivas, corrosivas, radioactivas y materiales punzo cortantes.

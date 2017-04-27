@@ -1,0 +1,1 @@
+Artículo 27°-Empaque de residuos punzocortantes. Los residuos punzocortantes, tienen que empacarse con un papel grueso o en una caja bien cerrada y tienen que rotularse para evitar un peligro para los operadores.

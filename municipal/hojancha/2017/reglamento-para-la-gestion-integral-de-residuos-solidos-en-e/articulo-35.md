@@ -1,0 +1,1 @@
+Artículo 35°- Tarifa de cobro servicio de recolección de residuos sólidos en edificaciones con apartamentos o varias casas de habitación. En las edificaciones que haya apartamentos o varias casas de habitación, se realizará el cobro del servicio por cada apartamento o cada casa de habitación y no por propiedad.

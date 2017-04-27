@@ -1,0 +1,1 @@
+Artículo 19°-Residuos de jardín. El servicio de recolección de residuos ordinarios no incluye la recolección de residuos de jardín. Los generadores son los encargados de tratarlos adecuadamente bajo su responsabilidad y costos.

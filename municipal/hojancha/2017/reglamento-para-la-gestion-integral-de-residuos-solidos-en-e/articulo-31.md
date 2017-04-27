@@ -1,0 +1,1 @@
+Artículo 31°- Empaque de residuos valorizables. En cumplimiento de la Estrategia Nacional de Separación, Recuperación y Valorización de residuos sólidos, los residuos valorizables deben venir empacados en bolsas transparentes.

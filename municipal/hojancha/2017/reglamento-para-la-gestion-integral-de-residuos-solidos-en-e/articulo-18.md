@@ -1,0 +1,1 @@
+Artículo 18°-Restos de animales. La Municipalidad se encargará de ejecutar el manejo sanitario de animales muertos en la vía pública a excepción de los animales que le pertenezcan a una o más personas, el dueño tiene la responsabilidad de darle el adecuado manejo al animal.

@@ -1,0 +1,1 @@
+Artículo 38°- Fijación. La Municipalidad fijará las tasas por el servicio municipal de gestión de residuos sólidos que incluya e integre todos los costos asociados al servicio municipal de gestión y manejo de residuos sólidos. Esta tasa será actualizada anualmente conforme a la inflación del país y a las necesidades del servicio.

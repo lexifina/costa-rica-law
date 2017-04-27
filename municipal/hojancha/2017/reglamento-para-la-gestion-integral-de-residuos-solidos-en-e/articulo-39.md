@@ -1,0 +1,1 @@
+Artículo 39°-Cobro. La Municipalidad realizará el cobro del servicio de recolección y disposición final de residuos sólidos ordinarios por categoría para todas las unidades residenciales y comerciales, ubicados dentro del área de cobertura del servicio de recolección.

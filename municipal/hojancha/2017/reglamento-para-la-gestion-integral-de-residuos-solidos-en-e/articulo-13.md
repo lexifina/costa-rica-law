@@ -1,0 +1,1 @@
+Artículo 13°- Prohibición de ingreso del funcionario de recolección. Queda prohibido que los operarios del servicio de recolección de residuos sólidos ingresen a las propiedades privadas con el fin de recoger residuos. Los residuos que se encuentren detrás del límite de la propiedad no serán recolectados.

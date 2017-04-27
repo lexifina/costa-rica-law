@@ -1,0 +1,2 @@
+Artículo 2°- Alcance. Este reglamento es de acatamiento obligatorio para todas las personas, físicas y jurídicas, públicas y privadas, generadoras de residuos sólidos ordinarios de competencia municipal que se encuentren localizados dentro del ámbito territorial del cantón de Hojancha.
+La Municipalidad no tiene obligación de recolectar todos los residuos de todos los generadores en el cantón. El Código Municipal y la Ley para la Gestión Integral de Residuos establecen excepciones, como el caso de los generadores de residuos peligrosos.

@@ -1,0 +1,1 @@
+Artículo 28°- Integridad de los empaques. El usuario es el responsable de la integridad de los empaques de los residuos sólidos, de manera tal, que no sean abiertos o dañados mientras esperan en la vía pública. Todo empaque dañado deberá ser sustituido a la brevedad por el usuario.

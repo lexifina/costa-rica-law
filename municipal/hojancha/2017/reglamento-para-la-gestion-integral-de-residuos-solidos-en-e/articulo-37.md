@@ -1,0 +1,1 @@
+Artículo 37°- Incumplimientos detectados. El funcionario municipal documentará adecuadamente las denuncias e inspecciones y cuando se detecten incumplimientos deberá realizar un informe para iniciar la atención del caso respectivo.

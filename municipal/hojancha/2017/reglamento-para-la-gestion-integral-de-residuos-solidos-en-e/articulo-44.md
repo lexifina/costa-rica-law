@@ -1,0 +1,1 @@
+Artículo 44°-Tarifa Comercial-Industrial. Se toma como tarifa Comercial-Industrial, la tasa a aplicar a toda unidad comercial que posea una patente para: tienda, fotocopiadora e internet, sodas, Bar y Restaurante, Pizzería, Pulperías, Mini Súper o Supermercados.
