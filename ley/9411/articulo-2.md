@@ -9,3 +9,4 @@ Artículo 2°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 40363 del 4 de abril del 2017)
 (Modificado por el artículo 1° del decreto ejecutivo N° 40392 del 6 de abril de 2017)
 (Modificado por el artículo 1° del decreto ejecutivo N° 40390 del 21 de abril del 2017)
+(Modificado por el artículo 1° del decreto ejecutivo N° 40410 del 27 de abril de 2017)
