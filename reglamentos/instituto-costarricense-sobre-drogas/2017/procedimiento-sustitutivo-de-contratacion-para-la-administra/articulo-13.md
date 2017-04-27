@@ -1,0 +1,1 @@
+Artículo 13. -Verificación de requisitos. Verificado el cumplimiento de los requisitos anteriores, el encargado general de la disposición de los bienes, designado en la resolución del artículo 10 de este reglamento, y a quien se le trasladó el expediente correspondiente, iniciará las gestiones propias del procedimiento establecido.

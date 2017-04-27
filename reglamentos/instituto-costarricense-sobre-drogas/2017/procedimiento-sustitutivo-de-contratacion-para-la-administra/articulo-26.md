@@ -1,0 +1,1 @@
+Artículo 26. - Traslado del expediente. Recibida la autorización por la Dirección General o una vez vencido el plazo indicado en el artículo anterior, el jefe de la URA trasladará inmediatamente la aprobación al encargado de la disposición de los bienes, que deberá conformar un expediente que contenga los requisitos descritos en el artículo 11.

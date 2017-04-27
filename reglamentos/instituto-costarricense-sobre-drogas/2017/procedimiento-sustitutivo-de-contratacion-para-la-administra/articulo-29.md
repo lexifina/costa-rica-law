@@ -1,0 +1,1 @@
+Artículo 29. - Resolución de adjudicación. De acuerdo con la recomendación del análisis comparativo, el Jefe de la URA dictará la resolución fundamentada de adjudicación a que se refiere el artículo 16 de este procedimiento, teniendo como plazo una hora para el dictado de la resolución.
