@@ -14,3 +14,4 @@ Regulación de la Autoridad Administrativa y Autoridades Científicas de la Conv
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-02-23 | la propia norma |
+| 2 | 2017-04-28 | Decreto Ejecutivo 40379 (2017-04-28) |
