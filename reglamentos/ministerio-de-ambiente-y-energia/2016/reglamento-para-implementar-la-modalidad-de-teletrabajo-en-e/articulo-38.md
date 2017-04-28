@@ -1,0 +1,1 @@
+Artículo 38º.- Bajo rendimiento del funcionario. Cuando el rendimiento del teletrabajador no cumpla los parámetros programados, según se haya definido en el convenio, el jefe inmediato actuará conforme a lo indicado en el artículo 31, inciso e) del presente Reglamento.

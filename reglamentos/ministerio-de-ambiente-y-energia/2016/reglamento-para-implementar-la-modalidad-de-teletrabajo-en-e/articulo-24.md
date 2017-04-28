@@ -1,0 +1,1 @@
+Artículo 24º.- Jornada laboral y horario dentro del teletrabajo. De así estipularse en el convenio; dentro del horario institucional, la persona teletrabajadora debe cumplir las metas o el trabajo que su superior jerárquico le asigne y en el plazo establecido para tal efecto.

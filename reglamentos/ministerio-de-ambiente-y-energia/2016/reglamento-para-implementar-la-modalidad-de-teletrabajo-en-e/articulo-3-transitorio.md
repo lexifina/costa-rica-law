@@ -1,0 +1,1 @@
+TRANSITORIO III.- Dentro de los seis meses siguientes a la comunicación del presente reglamento, la Dirección de Recursos Humanos deberá definir los perfiles de las actividades o las funciones que pueden sujetarse a la modalidad de prestación de servicios del teletrabajo.

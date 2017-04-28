@@ -1,0 +1,1 @@
+TRANSITORIO IV.- La Comisión Institucional de Teletrabajo recibirá propuestas de las distintas dependencias ministeriales, para incorporarse en la modalidad de teletrabajo; a partir del mes siguiente a la comunicación del presente reglamento.

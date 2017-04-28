@@ -1,0 +1,1 @@
+TRANSITORIO I.- Dentro de los seis meses siguientes a la comunicación del presente reglamento, la Unidad de Salud Ocupacional, deberá tener debidamente aprobadas las condiciones sobre los espacios físicos, según el reglamento y las propuestas de las formas, para eventualmente hacer verificaciones.

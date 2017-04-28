@@ -1,0 +1,1 @@
+Artículo 15º.- Visto bueno de la jefatura. El funcionario que desee laborar en esta modalidad de trabajo, debe tener la aprobación de la Jefatura correspondiente, quien coordinará lo necesario con las jefaturas internas, y las instancias relacionadas.

@@ -1,0 +1,1 @@
+Artículo 2º.-Ámbito de Aplicación. Este Reglamento es aplicable a todos los trabajadores del Ministerio de Ambiente y Energía, mismos que realicen actividades que la Institución determine como susceptibles de ser manejables a través de la actividad del teletrabajo y donde existan las condiciones tecnológicas requeridas.

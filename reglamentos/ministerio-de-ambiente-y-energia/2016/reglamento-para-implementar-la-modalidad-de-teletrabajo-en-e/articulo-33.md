@@ -1,0 +1,2 @@
+Artículo 33º.- Funciones de la unidad de Salud Ocupacional. Corresponde a esta unidad, definir las condiciones con que debe contar el espacio destinado al teletrabajo, las cuales deberán ser las mínimas necesarias para laborar.
+·Asimismo, le corresponderá hacer eventuales inspecciones al lugar respectivo para verificar las condiciones para el teletrabajo, según el reglamento, y si es el caso reportarlo a la Comisión Institucional para que sea considerado en las decisiones relacionadas.

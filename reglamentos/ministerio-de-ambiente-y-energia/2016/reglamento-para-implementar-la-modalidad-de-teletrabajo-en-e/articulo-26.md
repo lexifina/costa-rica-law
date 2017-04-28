@@ -1,0 +1,2 @@
+Artículo 26°.- Evaluación del desempeño, medición de resultados. El teletrabajador estará sujeto a los controles ordinarios establecidos en el MINAE.
+En caso de comprobarse incumplimiento por parte del teletrabajador en cuanto a su obligación de brindar información verídica y oportuna, según se señala en el artículo de Derechos y Obligaciones del Teletrabajador, quedará sometido al régimen disciplinario establecido, sin perjuicio de dejar sin efecto el convenio de teletrabajo, de conformidad con la conveniencia institucional y la gravedad de la falta.

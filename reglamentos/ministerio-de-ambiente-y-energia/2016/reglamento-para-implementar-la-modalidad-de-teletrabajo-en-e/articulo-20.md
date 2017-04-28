@@ -1,0 +1,1 @@
+Artículo 20º-Cambio de modalidad de contrato laboral. Cuando las condiciones que dieron lugar a la contratación bajo la modalidad de teletrabajo concluyan, el funcionario prestará sus servicios al MINAE, conforme a las reglas del contrato laboral regular, aplicables a los demás funcionarios de esta institución.

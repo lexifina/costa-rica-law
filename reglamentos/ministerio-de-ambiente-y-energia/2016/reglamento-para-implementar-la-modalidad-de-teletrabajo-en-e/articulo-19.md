@@ -1,0 +1,3 @@
+Artículo 19º.- Deber de firmar el convenio por parte del teletrabajador. El teletrabajador deberá firmar un convenio que especificará las condiciones de esta modalidad laboral.
+Además, en este convenio se debe indicar que el funcionario y el puesto cumplen los perfiles definidos, así como que la persona conoce, acepta y se compromete a mantener las condiciones de espacio físico, equipo y otras herramientas determinadas por la Institución para la realización adecuada de las funciones a su cargo.
+El formato del convenio será preparado por la CIT y avalado por la Dirección de Asesoría Jurídica del MINAE.

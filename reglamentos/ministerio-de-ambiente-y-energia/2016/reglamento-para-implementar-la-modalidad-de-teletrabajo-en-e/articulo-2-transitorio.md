@@ -1,0 +1,1 @@
+TRANSITORIO II.- Dentro de los seis meses siguientes a la comunicación del presente reglamento, la Unidad de Tecnologías de la Información deberá tener la definición del equipo y las condiciones mínimas con el que debe contar un funcionario o funcionaria en su lugar de teletrabajo para realizar sus funciones.
