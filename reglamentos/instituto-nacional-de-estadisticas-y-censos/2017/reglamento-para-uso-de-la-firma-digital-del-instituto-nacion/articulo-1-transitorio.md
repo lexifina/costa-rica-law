@@ -1,0 +1,2 @@
+Transitorio Único. Se le brinda a la Unidad Técnica de Sistemas e Informática un plazo máximo de seis (6) meses contados a partir la vigencia de este reglamento para que implemente y adecúe sus actividades y funciones a los requerimientos y obligaciones que esta normativa le exige.
+Aprobado por el Consejo Directivo Institucional, mediante el acuerdo 4, de la sesión ordinaria N° 845-2017, de fecha 21 de marzo del año 2017.

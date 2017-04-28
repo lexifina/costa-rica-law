@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación. Este Reglamento se aplicará a toda clase de transacciones y actos jurídicos en general relacionados con los trámites internos y externos de INEC, gestionados ante o por las personas funcionarias del INEC debidamente autorizadas.

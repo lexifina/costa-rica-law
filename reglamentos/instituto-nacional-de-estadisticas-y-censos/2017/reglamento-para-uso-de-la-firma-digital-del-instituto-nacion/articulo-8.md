@@ -1,0 +1,1 @@
+Artículo 8º—Implementación de firmas digitales. Las directrices, políticas y pautas técnicas acerca de los trámites en los que pueden ser utilizados éstos u otros medios electrónicos, serán definidas por la Unidad Técnica de Sistemas e Informática, conforme la verificación de infraestructura, sistemas, aplicaciones, medidas de seguridad y lineamientos que emita al efecto.

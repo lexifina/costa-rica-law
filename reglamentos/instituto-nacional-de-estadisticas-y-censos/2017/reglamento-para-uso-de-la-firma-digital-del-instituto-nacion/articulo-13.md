@@ -1,0 +1,1 @@
+Artículo 13.—Régimen disciplinario. Para la imposición de sanciones por incumplimiento de lo dispuesto en este reglamento, se aplicará el régimen establecido en el Reglamento Autónomo de Servicios de INEC, la Ley General de la Administración Pública y demás normativa conexa aplicable.

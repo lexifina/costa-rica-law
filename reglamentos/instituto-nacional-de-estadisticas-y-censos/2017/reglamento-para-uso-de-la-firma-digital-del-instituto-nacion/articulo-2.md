@@ -1,0 +1,1 @@
+Artículo 2º—Autoridad competente para la autorización de la firma digital. Corresponderá a la Gerencia del INEC disponer sobre la autorización del uso de firma digital de las personas funcionarias del INEC.
