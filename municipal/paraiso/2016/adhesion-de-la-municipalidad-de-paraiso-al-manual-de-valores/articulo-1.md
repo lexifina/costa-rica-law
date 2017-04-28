@@ -1,0 +1,9 @@
+MUNICIPALIDAD DE PARAÍSO
+AVISA
+C-94-2016.—Ana Rosa Ramírez Bonilla, secretaria concejo municipal de paraíso, certifica:
+Que en la sesión ordinaria número veintiséis del 16 de agosto del año dos mil dieciséis se conoce y se aprueba el artículo 06, inciso 2 el cual literalmente dice:
+El Concejo Municipal de la Municipalidad del Cantón de Paraíso se adhiere a la publicación del documento manual de valores base unitarios por tipología constructiva, publicado en el Alcance Digital N° 19 de La Gaceta del 23 de marzo 2015, por el órgano de normalización técnica del Ministerio de Hacienda.
+De conformidad con lo que disponen los artículos 3 y 12 de la Ley de Impuesto sobre Bienes Inmuebles, Nº 7509 y su reformas, la Sentencia 1073-2010 del Tribunal Contencioso Administrativo, Sección III, la Resolución de la Sala Constitucional Nº 2011-003075 del 9 de marzo del 2011 y el artículo 2 de la Ley N° 9071, Ley de Regulaciones Especiales sobre la Aplicación de la Ley N° 7509, Ley de Impuesto sobre Bienes Inmuebles, de 9 de mayo de 1995, y sus reformas, para Terrenos de Uso Agropecuario, y en aras de dar cumplimiento a su competencia, esta Administración Tributaria procede a publicar la matriz de información de la Plataforma de Valores de Terrenos Agropecuarios del cantón de Paraíso, suministrada por el Órgano de Normalización Técnica, Dirección General de Tributación, Ministerio de Hacienda:
+[imagen]
+Esta herramienta será utilizada para la determinación administrativa de la base imponible de los bienes inmuebles de uso agropecuario del Cantón para efectos del Impuesto sobre Bienes Inmuebles, a partir de la fecha de su publicación en el Diario Oficial La Gaceta, durante los procesos de valoración que se realicen. Para efectos de consulta por parte de los administrados, el Mapa de Valores de Terrenos Agropecuarios podrá ser localizado en la oficina de Catastro y Valoración de la Municipalidad de Paraíso.
+Paraíso, 20 de febrero del 2017
