@@ -132,7 +132,7 @@ Equipo para Hospitales, Clínicas y Ebais
 Compra de lote
 1. Opción de compra de propiedad libre de embargos, al día en el pago de impuestos y por el máximo plazo posible
 2. Fotocopia del plano catastrado.
-3. Si en lote se construirá un servicio totalmente nuevo debe presentar el estudio de impacto ambiental indicado en el Reglamento General sobre los procedimientos de evaluación de impacto ambiental, 28-06-2004 Decreto Ejecutivo Nº 31849. MINAE-SALUD- MOPT-MAG-MEIC
+3. (Eliminado mediante acuerdo JD-414 de la sesión N° 15 del 2 de mayo de 2017)
 4. Visto Bueno de uso de suelo municipal.
 5. De acuerdo con las condiciones particulares de cada caso, previa valoración técnica del profesional en ingeniería del área de Acción Social, se podría solicitar:
 5.1. Dictamen de vulnerabilidad de riesgo de la Comisión de Emergencias.
@@ -148,10 +148,12 @@ Construcción
 2. Fotocopia del plano catastrado.
 3. Informe registral donde conste que la propiedad está a nombre de la organización solicitante. (Ver excepciones en puntos 5.3.1 y 5.3.2 del título Disposiciones Generales)
 4. Otros requisitos que se definan en el Manual de Procedimientos para la Fiscalización Evaluativa y Operativa de Proyectos de Construcción.
+5. Si en el lote se construye una edificación por primera vez, debe aportar el documento de Viabilidad Ambiental, según se indica en el Reglamento General sobre los Procedimientos De Evaluación De Impacto Ambiental (EIA), del 28-06-2004 Decreto Ejecutivo No. 31849. MINAE-SALUD- MOPT-MAG-MEIC y sus Reformas.
+(Así adicionado el punto 5) anterior mediante acuerdo JD-414 de la sesión N° 15 del 2 de mayo de 2017)
 Compra de lote y construcción
 1. Opción de compra de propiedad libre de embargos, al día en el pago de impuestos y por el máximo plazo posible.
 2. Fotocopia del plano catastrado.
-3. Si en lote se construirá un servicio totalmente nuevo debe presentar el estudio de impacto ambiental indicado en el Reglamento General sobre los procedimientos de evaluación de impacto ambiental, 28-06-2004 Decreto Ejecutivo Nº 31849. MINAE-SALUD- MOPT-MAG-MEIC
+3. (Eliminado mediante acuerdo JD-414 de la sesión N° 15 del 2 de mayo de 2017)
 4. Visto Bueno de uso de suelo municipal.
 5. De acuerdo con las condiciones particulares de cada caso previa valoración técnica del profesional correspondiente, se podría solicitar:
 5.1. Dictamen de vulnerabilidad de riesgo de la Comisión de Emergencias.
@@ -164,6 +166,8 @@ Compra de lote y construcción
 6.5. Los contratos de consultoría y construcción deben registrarse en el Colegio Federado de Ingenieros y Arquitectos.
 7. Borrador del cartel.
 8. Otros requisitos que se definan en el Manual de Procedimientos para la Fiscalización Evaluativa y Operativa de Proyectos de Construcción.
+9. Para la fase de Construcción, si en el lote se construye una edificación por primera vez, debe aportar el documento de Viabilidad Ambiental, según se indica en el Reglamento General sobre los Procedimientos de Evaluación de Impacto Ambiental (EIA), del 28-06-2004 Decreto Ejecutivo N° 31849. MINAE-SALUD- MOPT-MAG-MEIC y sus Reformas”.
+(Así adicionado el punto 9) anterior mediante acuerdo JD-414 de la sesión N° 15 del 2 de mayo de 2017)
 Reparaciones
 1. Un presupuesto detallado.
 2. Croquis de la obra
