@@ -1,0 +1,7 @@
+Artículo 4º—De los postes o hitos autorizados. Los postes bolardos o pilotes que sean autorizados, deberán cumplir con las siguientes regulaciones:
+i.- La altura máxima permitida es de 1.00 metros, la altura mínima es de 0.70 metros.
+ii.- En el caso de los postes, estos deben ser construidos en tubo metálico de 100 milímetros de diámetro, relleno de concreto y pintado de amarillo.
+iii.- Los bolardos o pilotes de concreto, de piedra o metal que se autoricen serán rectangulares, con una medida de 200 milímetros por 150 milímetros, igualmente un metro de alto, los fabricados en concreto deberán tener armadura metálica interna, según las especificaciones que dictará la Dirección de Ingeniería, Operaciones y Urbanismo, igualmente deberá ser pintado de color amarillo.
+iv.- En casos muy calificados, y siempre que sea así autorizado por la Dirección de Ingeniería, Operaciones y Urbanismo, con fundamento en razones de armonía paisajística urbana, podrán autorizarse bolardos o pilotes ornamentales, con diseño distinto al aquí establecido.
+v.- Ningún poste, bolardo o pilote podrá tener argollas, ganchos, cadenas, cables, bordes afilados o puntiagudos, u otras características de diseño, que de alguna forma puedan constituir un peligro a los peatones.
+vi.- Cuando se considere necesario, la Dirección de Ingeniería, Operaciones y Urbanismo ordenará que los postes, bolardos o pilotes sean provistos de elementos retro reflectantes, que aseguren su visibilidad en todo momento.

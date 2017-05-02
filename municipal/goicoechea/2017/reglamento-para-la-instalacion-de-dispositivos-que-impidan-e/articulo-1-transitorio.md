@@ -1,0 +1,1 @@
+Transitorio 1.—Los propietarios de inmuebles que actualmente posean, ya instalados, postes, bolardos o pilones en las aceras de sus propiedades tendrán un plazo de un año, a partir de la entrada en vigencia del presente reglamento, para poner a derecho dichos dispositivos. De no atenderse esta obligación la Municipalidad podrá ordenar la destrucción y remoción de los mismos.

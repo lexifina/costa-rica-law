@@ -1,0 +1,1 @@
+Artículo 6º—Autorizaciones no constituyen derechos adquiridos. Las autorizaciones para la instalación de estos dispositivos en las aceras del cantón, regulados en la presente regulación no constituyen derechos adquiridos a favor de terceros y, en consecuencia, pueden ser revocadas en cualquier momento por la Municipalidad.

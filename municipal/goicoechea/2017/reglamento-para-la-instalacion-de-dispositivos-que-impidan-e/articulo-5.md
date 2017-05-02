@@ -1,0 +1,2 @@
+Artículo 5º—Solicitud de permisos. Para instalar estos dispositivos de protección, el interesado deberá tramitar permisos de construcción ante la Municipalidad de Goicoechea, de conformidad con el artículo 74 y concordantes de la Ley de Construcciones.
+La ausencia del permiso de construcción, o bien, ejecutar la instalación de los mismo en forma distinta a como fue autorizado, facultará a la Municipalidad para aplicar el régimen sancionatorio correspondiente, pudiendo incluso ordenarse la destrucción total de los dispositivos, de conformidad con el ordenamiento jurídico.
