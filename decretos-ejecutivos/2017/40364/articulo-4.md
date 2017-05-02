@@ -1,0 +1,2 @@
+Artículo 4º-Con el establecimiento por el Servicio Fitosanitario del Estado y la Corporación Bananera Nacional del plan de acción oficial que se indica en el artículo anterior, se publicará y se pondrá a disposición del público en general, en las páginas web de éstas instituciones, en aras de fortalecer las capacidades de vigilancia a nivel de campo y de control fitosanitario en los puntos de ingreso al país como: aeropuertos, puertos marítimos y fronteras terrestres.
+Implementando lo dispuesto en el artículo 2º del presente Decreto, e instruyendo al personal sobre la plaga.
