@@ -86,6 +86,8 @@ c) Políticas y procedimientos al menos para reaseguros, inversiones, liquidez, 
 d) Detalle de características de la plataforma tecnológica, planes de contingencia y mantenimiento.
 e) Detalle del modelo de comercialización de seguros.
 f) Detalle de políticas y procedimientos mediante la cual se defina: control de conflictos de interés, límites de negocios con empresas relacionadas, suscripción de riesgos, retención y transferencia de riesgos y reaseguro, control interno, procesamiento de reclamos, distribución de productos, inversiones y administración integral de riesgos. En el caso de entidades de seguro mixto deberá aportar información satisfactoria sobre los procesos administrativos propuestos que permita una administración separada de los riesgos.
+Para la estructuración del Sistema de Gobierno Corporativo de la entidad, deben observarse los principios y las normas contenidas en la reglamentación sobre Gobierno Corporativo y en las regulaciones sobre gestión de riesgos, comercialización de seguros, legitimación de capitales y financiamiento al terrorismo, defensa del consumidor y tecnologías de información, vigentes para entidades de seguros o reaseguros, según corresponda.
+(Así adicionado el párrafo anterior mediante sesión N° 1328-2017 del 2 de mayo del 2017)
 Actividades a subcontratar
 Descripción de cualquier acuerdo material de “outsourcing” que pueda ser anticipado, con indicación de las partes involucradas y considerando cualquier función en procesamiento de datos que pueda ser conducida desde fuera del territorio nacional.
 D. MIEMBROS DE LA JUNTA DIRECTIVA, GERENTE, SUBGERENTES, ACTUARIO, AUDITOR INTERNO Y OFICIAL DE CUMPLIMIENTO

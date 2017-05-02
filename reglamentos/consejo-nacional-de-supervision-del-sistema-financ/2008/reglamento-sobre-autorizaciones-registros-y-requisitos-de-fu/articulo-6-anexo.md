@@ -43,6 +43,8 @@ b) Organigrama que identifique los niveles gerenciales y mandos medios, las depe
 c) Políticas y procedimientos al menos para inversiones, liquidez, prevención de legitimación de capitales, control de conflictos de interés, manejo de información y comercialización.
 d) Detalle de características de la plataforma tecnológica, planes de contingencia y mantenimiento.
 e) Detalle del modelo de comercialización de seguros.
+Para la estructuración del Sistema de Gobierno Corporativo de la entidad, deben observarse los principios y las normas contenidas en la reglamentación sobre Gobierno Corporativo y gestión de riesgos vigentes.
+(Así adicionado el párrafo anterior mediante sesión N° 1328-2017 del 2 de mayo del 2017)
 Actividades a subcontratar
 Descripción de cualquier acuerdo material de “outsourcing” que pueda ser anticipado, con indicación de las partes involucradas y considerando cualquier función en procesamiento de datos que pueda ser conducida desde fuera del territorio nacional.
 III. INSCRIPCIÓN ANTE LA SUPERINTENDENCIA
