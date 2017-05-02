@@ -1,0 +1,2 @@
+Artículo 25°.- Centros Educativos Participantes. La Municipalidad de Curridabat brindará una subvención económica a los jóvenes recién egresados del Colegio Técnico de Tirrases, Colegio Técnico de Granadilla y Liceo de Curridabat (La Lía) para que puedan gestionar la consecución de una primera experiencia laboral mediante una subvención económica.
+(Así adicionado mediante sesión ordinaria N° 53-2017 del 2 de mayo del 2017)
