@@ -1,0 +1,1 @@
+Artículo 18. Calificación de riesgos de TI El superintendente, cuando corresponda a su modelo de supervisión definido reglamentariamente y aprobado por el CONASSIF, debe emitir la calificación sobre el riesgo de TI de la entidad supervisada. La metodología para determinar dicha calificación se establece en las regulaciones particulares de cada Superintendencia.

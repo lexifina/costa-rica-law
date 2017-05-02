@@ -1,0 +1,1 @@
+Artículo 10. Tipo de gestión de TI Las entidades supervisadas pueden solicitar que su gestión de TI sea tipificada como corporativa cuando la unidad de TI provee servicios a dos o más entidades integrantes del grupo o conglomerado financiero. Los aspectos a considerar en la justificación de la solicitud y el plazo de resolución serán establecidos en los Lineamientos Generales.

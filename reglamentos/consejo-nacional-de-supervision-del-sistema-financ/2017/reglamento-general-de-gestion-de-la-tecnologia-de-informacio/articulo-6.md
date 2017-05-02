@@ -1,0 +1,4 @@
+CAPITULO II
+ORGANIZACIÓN DE LAS TECNOLOGÍAS DE INFORMACIÓN
+Artículo 6. Unidad de TI La Unidad de TI es individual, cuando ésta forma parte de la estructura organizativa de la entidad supervisada, o es un proveedor de TI domiciliado en el territorio nacional o en el extranjero, que brinda servicios en forma particular a una entidad supervisada.
+La Unidad de TI es corporativa, cuando el servicio lo realiza una unidad que forma parte de la estructura organizacional de una empresa integrante del mismo grupo o conglomerado financiero al que pertenece la entidad supervisada, o bien, es un proveedor de TI domiciliado en el territorio nacional o en el extranjero, que brinda servicios a varias empresas integrantes de un mismo grupo o conglomerado financiero. La responsabilidad del gobierno, la gestión y de la seguridad de información en los servicios que estén tercerizados recaerá en las entidades supervisadas.

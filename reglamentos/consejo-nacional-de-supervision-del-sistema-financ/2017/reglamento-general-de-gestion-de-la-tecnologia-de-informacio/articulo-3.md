@@ -1,0 +1,22 @@
+Artículo 3. Definiciones y abreviaturas. Para efectos de este Reglamento y sus Lineamientos se utilizan las siguientes definiciones y abreviaturas:
+a) Auditor externo de TI: profesional independiente o socio de una firma o despacho responsable de la auditoría externa de TI.
+b) Auditoría externa de TI: servicio de auditoría directa que implica un compromiso de reporte directo según el estándar definido por ISACA.
+c) Cliente: Persona relacionada a las entidades supervisadas denominadas: ahorrantes, inversionistas, afiliados a fondos de inversión o fondos de pensiones, tomadores de seguros, asegurados, beneficiarios de pólizas de seguros, según sea el caso.
+d) Entidad supervisada: entidad del sector financiero supervisada por un órgano supervisor costarricense según el alcance definido en el artículo 2.
+e) Gestión de TI: estructura de relaciones y procesos diseñados y ejecutados para dirigir y controlar la tecnología de información, sus riesgos asociados y su vinculación con las estrategias y objetivos del negocio.
+f) Guías de aseguramiento: guía con los pasos de prueba sugeridos para auditar el cumplimiento de los objetivos de control.
+g) Gobierno de TI: componente del marco de gobierno corporativo a través del cual, el Órgano de Dirección y la Gerencia de la entidad o vehículo de administración de recursos de terceros, evalúa, controla y dirige el uso actual y futuro de la tecnología de información, para contribuir con el soporte de las metas estratégicas y el monitoreo en el cumplimiento de los planes.
+h) Hallazgo: debilidad, deficiencia o brecha apreciable respecto a un criterio o estándar previamente definido.
+i) ISACA: acrónimo en inglés de la Asociación de Auditoría y Control de los Sistemas de Información (Information Systems Audit and Control Association).
+j) Marco de Gestión de TI: conjunto de procesos, destinados a gestionar las tecnologías de información, que la entidad supervisada debe adoptar como referencia para la gestión integral de sus riesgos tecnológicos, considerando su naturaleza, complejidad, modelo de negocio, volumen de operaciones, criticidad de sus procesos y la dependencia tecnológica que éstas tienen en procesos de TI.
+k) Objetivo de control: declaración del resultado o fin que se desea lograr, al implantar procedimientos de control en una actividad de TI en particular.
+l) Órgano de Dirección: Máximo órgano colegiado de la entidad, responsable de la organización.
+m) Perfil tecnológico: descripción de la estructura organizacional, los procesos y la infraestructura de TI de la entidad supervisada, así como, del nivel de automatización de sus procesos de negocio y de gestión del riesgo.
+n) Plan de acción: documento que describe las acciones, plazos y responsables que establezca una entidad supervisada, para atender los hallazgos y riesgos detectados y comunicados en el reporte del supervisor.
+o) Prácticas de control: indicaciones detalladas para dar cumplimiento a los objetivos de control.
+p) Proceso de negocio: cadena de actividades que agregan valor y permiten la generación de un producto o servicio bajo determinadas condiciones y plazo.
+q) Proveedor de TI: persona física o jurídica que provee o presta un servicio relacionado con TI a la unidad de TI, o a una entidad supervisada, sea independiente o que pertenezca al mismo grupo o conglomerado financiero, incluyendo las casas matrices, indistintamente de su domicilio.
+r) Riesgo de TI: posibilidad de pérdidas financieras o afectaciones derivadas de un evento relacionado con el acceso o uso de la tecnología, que afecta el desarrollo de los procesos de negocio y la gestión de riesgos de la entidad, al atentar contra la confidencialidad, integridad, disponibilidad, eficiencia, confiabilidad y oportunidad de la información.
+s) TI: acrónimo de Tecnologías de Información, definidas como el conjunto de técnicas para la captura, almacenamiento, transformación, transmisión y presentación de la información generada o recibida a partir de procesos de negocios, de manera que pueda ser organizada y utilizada en forma consistente y comprensible por los usuarios que estén relacionados con ella. Incluye elementos de hardware, software, telecomunicaciones y conectividad, entre otros.
+t) Tipo de gestión de TI: Conjunto de características o aspectos que determinan si la gestión que realizan las entidades es individual o corporativa.
+u) Unidad de TI: unidad que provee los procesos y servicios de TI para las entidades supervisadas.

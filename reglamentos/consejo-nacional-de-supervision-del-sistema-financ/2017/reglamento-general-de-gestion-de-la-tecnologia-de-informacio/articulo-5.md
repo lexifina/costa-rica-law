@@ -1,0 +1,2 @@
+Artículo 5. Coordinación entre superintendencias Las superintendencias deben coordinar los procesos regulados en este reglamento cuando la gestión de TI sea corporativa, cuando existan razones técnicas y de oportunidad que justifican dicho accionar.
+El proceso de intercambio de información entre superintendencias se hará en los términos dispuestos en la Ley Orgánica del Banco Central de Costa Rica.
