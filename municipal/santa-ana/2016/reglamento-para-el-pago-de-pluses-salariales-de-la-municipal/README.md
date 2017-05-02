@@ -16,3 +16,4 @@ Reglamento para el pago de pluses salariales de la Municipalidad de Santa Ana
 | 1 | 2016-10-25 | la propia norma |
 | 2 | 2016-10-25 | Reglamento municipal 26 (2016-10-25) |
 | 3 | 2016-11-16 | Reglamento municipal 0 (2016-11-16) |
+| 4 | 2017-05-02 | Reglamento municipal 53 (2017-05-02) |
