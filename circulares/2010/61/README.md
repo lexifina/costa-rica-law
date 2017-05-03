@@ -13,3 +13,4 @@ Modificación de la circular 117-09 "Reiteración del apartado A) Normas prácti
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-04-26 | la propia norma |
+| 2 | 2017-05-03 | Circular 70 (2017-05-03) |
