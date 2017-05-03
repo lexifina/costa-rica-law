@@ -1,1 +1,1 @@
-Artículo 55.—Para el cumplimiento de sus funciones la Alta Administración de la entidad suministrará a la Contraloría de Servicios los recursos necesarios para el cumplimiento de las funciones que por ley le competen.
+Artículo 55. Previo a la cancelación o acreditación de los montos reconocidos a favor del cliente, se debe firmar, con éste, un documento en donde se haga constar la voluntad de ambas partes de dejar resuelta toda diferencia presente y futura fundada en los mismos hechos, y la renuncia a interponer cualquier otra acción motivada en la misma causa.

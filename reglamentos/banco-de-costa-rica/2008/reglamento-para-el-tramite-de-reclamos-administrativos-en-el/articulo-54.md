@@ -1,1 +1,1 @@
-Artículo 54.—Corresponde a la Alta Administración adoptar las medidas conducentes para minimizar el riesgo legal de conformidad con las recomendaciones brindadas por la Contraloría de Servicios o bien implementar otras acciones respectivas.
+Artículo 54. Cuando se requiera el pago de intereses, deberá indicarse el tipo aplicable según corresponda.

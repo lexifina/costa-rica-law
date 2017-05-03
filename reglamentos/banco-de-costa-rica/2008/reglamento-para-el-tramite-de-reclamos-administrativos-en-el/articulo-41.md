@@ -1,3 +1,1 @@
-CAPÍTULO V
-De la ejecución del acto
-Artículo 41.—Cuando la decisión adoptada sea la de admitir la pretensión del reclamante, se establecerá expresamente los alcances del acto, y cuando involucre el reconocimiento de extremos patrimoniales se fijarán las sumas a reconocer disponiéndose la forma en que se hará su cancelación y la oficina responsable de llevarla a cabo y afectar sus registros contables.
+Artículo 41. La respuesta o resolución al reclamo debe ser notificada al cliente por la Oficina de Atención y Defensa del Cliente, en un plazo máximo de treinta días naturales, a partir de su recepción. La oficina comercial o subsidiaria contará con cinco días dentro de este plazo, para remitir la respuesta al reclamo a la Oficina de Atención y Defensa del Cliente con el fin de que ésta proceda a valorar el contenido del documento señalado, y de ser acorde con las pretensiones del reclamante, responder a la persona usuaria en el plazo máximo antes indicado.

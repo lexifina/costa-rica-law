@@ -1,1 +1,2 @@
-Artículo 13.—La Contraloría de Servicios será la oficina que en forma preferente deberá recibir los reclamos, sin perjuicio de que estos puedan ser interpuestos ante cualquier oficina o servidor del BCR. Quedará a su cargo la verificación del cumplimiento de los requisitos de admisibilidad y en su caso la emisión de las prevenciones para la corrección de aquellos que sean subsanables.
+De los reclamos administrativos:
+Artículo 13. El Reclamo Administrativo quedará sometido a las reglas contenidas en los artículos 214 y 239 y siguientes concordantes de la Ley General de la Administración Pública, con las salvedades aquí establecidas.

@@ -1,1 +1,1 @@
-Artículo 24.—Cuando la Oficina de Investigaciones fuere requerida a intervenir deberá darle trámite expedito contando con un máximo de treinta días naturales para emitir un informe, los dictámenes y análisis técnicos que se requieran deberán ser rendidos dentro del mismo plazo.
+Artículo 24. La interposición del reclamo no requerirá autenticaciones aunque no la presente la parte, queda a salvo la facultad de que goza el Banco para exigir la verificación de la autenticidad por los medios que estime pertinentes.

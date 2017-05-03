@@ -1,1 +1,3 @@
-Artículo 52.—Cuando la oficina que incumplió haya finalizado el trámite administrativo con el cliente, deberá informar mediante nota, los alcances de la respuesta a la Contraloría de Servicios, y esta los adjuntará al expediente para cerrar el caso.
+Artículo 52. La vía administrativa queda agotada en los siguientes casos:
+a) Cuando el reclamante no presente dentro de los plazos establecidos en la Ley General de Administración Pública, los recursos correspondientes.
+b) Una vez resueltos los recursos interpuestos en segunda instancia.

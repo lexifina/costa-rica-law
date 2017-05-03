@@ -1,0 +1,1 @@
+Artículo 59. Las funciones y responsabilidades de la Oficina de Atención y Defensa del Cliente, serán establecidas a través de las Disposiciones Administrativas que emitirá oportunamente la Gerencia General.

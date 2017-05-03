@@ -1,1 +1,2 @@
-Artículo 10.—Se tendrán por auténticas las presentaciones hechas personalmente.
+Artículo 10. Si la confrontación de este informe y sus anexos con el contenido de la queja permite adoptar alguna decisión frente al cliente, la Oficina de Atención y Defensa del Cliente la adoptará de manera fundada, y comunicará de inmediato la posición del Banco frente a lo acontecido.
+Si no es posible resolver con estos elementos, se podrá solicitar a la Oficina de Investigaciones técnicas una verificación in situ de lo acontecido con entrevista de los involucrados y la recolección de cualquier otro elemento que resulte importante, acción que deberá ejecutarse de manera sumaria.

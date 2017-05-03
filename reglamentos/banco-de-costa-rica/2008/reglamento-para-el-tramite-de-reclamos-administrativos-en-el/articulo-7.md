@@ -1,1 +1,1 @@
-Artículo 7º—La ausencia de los requisitos indicados en los numerales b. y c. obligará al rechazo y archivo de la reclamación, salvo que los datos se puedan inferir claramente del escrito o de los documentos anexos.
+Artículo 7. La respuesta al cliente o usuario deberá ser comunicada dentro del plazo de diez días naturales contados a partir del día siguiente al recibo de la queja. Para efectos de control, dicha respuesta debe ser comunicada a la Oficina Servicio de Atención y Defensa del Cliente.

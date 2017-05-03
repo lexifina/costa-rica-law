@@ -14,3 +14,4 @@ Reglamento para el Trámite de Reclamos Administrativos en el Conglomerado BCR
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-13 | la propia norma |
+| 2 | 2017-05-03 | Reglamento 17 (2017-05-03) |

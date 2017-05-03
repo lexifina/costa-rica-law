@@ -1,1 +1,1 @@
-Artículo 25.—El informe que rinda la Oficina de Investigaciones pasará a formar parte del expediente administrativo y contendrá exclusivamente los hechos y conclusiones que permitan resolver el reclamo. Las apreciaciones y recomendaciones de carácter organizativo o que atañen propiamente a la administración del Banco por detectar algunas debilidades o responsabilidades internas, deberán hacerse constar en documento separado.
+Artículo 25. Los reclamos presentados personalmente por el cliente que se identifique debidamente se tendrán por auténticos.

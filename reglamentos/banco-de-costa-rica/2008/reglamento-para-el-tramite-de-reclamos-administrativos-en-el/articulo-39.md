@@ -1,1 +1,1 @@
-Artículo 39.—Una vez resuelto el recurso de apelación el expediente deberá ser devuelto a la Contraloría de Servicios para que lleve a cabo la notificación y se cumpla con el respectivo archivo y custodia
+Artículo 39. El reclamo debe ser atendido y el acto final debe ser comunicado al cliente. La decisión que como acto final resuelva el reclamo debe ser emitida exclusivamente por el superior jerárquico del área u oficina donde ocurrieron los hechos. Para el caso de las sociedades anónimas, le corresponderá al Gerente General de la subsidiaria o al Gerente Comercial.

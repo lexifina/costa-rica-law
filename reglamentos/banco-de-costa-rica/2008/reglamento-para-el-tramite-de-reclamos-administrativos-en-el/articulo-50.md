@@ -1,1 +1,1 @@
-Artículo 50.—La Contraloría de Servicios mantendrá control para asegurarse de que el quejoso o denunciante reciba la respuesta en el tiempo establecido.
+Artículo 50. Para los efectos de lo dispuesto en el artículo 356.1 de la Ley General de la Administración Pública, y con motivo de la resolución del recurso de apelación, si no existe un criterio jurídico previo, la oficina de Atención y Defensa del Cliente debe solicitar al área jurídica el pronunciamiento respectivo.

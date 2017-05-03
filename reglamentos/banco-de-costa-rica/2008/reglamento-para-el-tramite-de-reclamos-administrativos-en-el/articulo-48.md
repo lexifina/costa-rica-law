@@ -1,3 +1,1 @@
-CAPÍTULO VI
-De las quejas y denuncias
-Artículo 48.—Cuando fuere presentada alguna queja o denuncia ante la Contraloría de Servicios, esta remitirá los antecedentes a la oficina donde ocurrieron los hechos que la generaron.
+Artículo 48. Cuando el servidor confirme lo resuelto denegando la revocatoria o reconsideración y exista apelación, en subsidio, la oficina de Atención y Defensa del Cliente al recibo de la respuesta del recurso de revocatoria, debe remitir de inmediato el expediente a la Gerencia General o al gerente de la subsidiaria correspondiente, para que agote la segunda instancia y con ello la vía administrativa.

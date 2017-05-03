@@ -1,1 +1,1 @@
-Artículo 8º—La falta de firma del cliente en el escrito del reclamo producirá indefectiblemente el rechazo y archivo de la reclamación.
+Artículo 8. Cuando la oficina receptora de la queja no tenga ninguna relación con los hechos que la motivan, procederá a trasladarla sin dilación a la Oficina de Atención y Defensa del Cliente para su registro, sustanciación y resolución.

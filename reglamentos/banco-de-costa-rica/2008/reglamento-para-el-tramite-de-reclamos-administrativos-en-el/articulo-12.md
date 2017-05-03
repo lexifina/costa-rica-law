@@ -1,1 +1,2 @@
-Artículo 12.—Si la interposición se hace en forma verbal, deberá documentarse a través de un formulario que deberá llenar el reclamante o trascribiendo las manifestaciones directas de este en un acta que cumpla todas las formalidades respectivas.
+Artículo 12. A aquellas quejas por concepto de trato inadecuado se aplicará en lo posible, las regulaciones que se apliquen para el Banco y/o sus subsidiarias.
+Estas quejas serán respondidas de forma inmediata por la oficina de Atención y Defensa del Cliente, y se remitirá copia de la queja y su respuesta al encargado de la oficina a que se refiere, al gerente comercial respectivo y a la Gerencia de Servicio al Cliente, para que analice si corresponde establecer algún tipo de responsabilidad.
