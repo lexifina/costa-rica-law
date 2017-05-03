@@ -1,0 +1,1 @@
+ARTÍCULO 3.- En caso de que la asociación donataria llegara a disolverse o el inmueble se destine a otro uso no autorizado en la presente ley, el bien donado volverá de pleno derecho a ser propiedad de la Junta Administrativa del Liceo de Paraíso.
