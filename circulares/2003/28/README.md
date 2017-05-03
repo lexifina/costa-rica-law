@@ -17,3 +17,4 @@ Normas prácticas para el trámite de las comisiones para notificar y Establece 
 | 2 | 2003-07-31 | Circular 65 (2003-07-31) |
 | 3 | 2007-10-08 | Circular 74 (2007-10-08) |
 | 4 | 2010-04-26 | Circular 61 (2010-04-26) |
+| 5 | 2017-05-03 | Circular 70 (2017-05-03) |
