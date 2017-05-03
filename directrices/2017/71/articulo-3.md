@@ -1,0 +1,1 @@
+Artículo 3°—Los bancos del Estado, instituciones autónomas y empresas públicas que están bajo los lineamientos de esta directriz deberán informar ante el Consejo de Gobierno sobre el cumplimiento y resultado de la presente directriz cada mes durante su vigencia, la cual se establece por el período de año a partir de su publicación.
