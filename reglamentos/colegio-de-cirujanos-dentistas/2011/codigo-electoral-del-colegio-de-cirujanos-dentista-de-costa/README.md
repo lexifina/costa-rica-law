@@ -15,3 +15,4 @@ Código Electoral del Colegio de Cirujanos Dentista de Costa Rica
 | --- | --- | --- |
 | 1 | 2011-06-20 | la propia norma |
 | 2 | 2012-07-09 | Reglamento 0 (2012-07-09) |
+| 3 | 2017-05-03 | SINALEVI (sin norma nombrada) |

@@ -15,5 +15,5 @@ g) Cada partido inscrito deberá tener uno o dos colores oficiales en su propaga
 h) La propaganda se limitará a exponer los planes de trabajo, ideología dar respuesta a planteamientos de los colegiados y el currículo de los odontólogos que integran las diferentes papeletas.
 i) No se permite ningún tipo de patrocinio de personas físicas o jurídicas públicas o privadas en la propaganda, ni la participación de éstas en el proceso electoral.
 j) Los electores si pueden patrocinar cualquier tipo de propaganda o actividad y el Tribunal tiene facultades para recabar, investigar, fiscalizar, estos patrocinios.
-k) Los partidos inscritos que incumplan con lo establecido en este artículo quedará automáticamente y en forma inmediata eliminada del proceso electoral, sin necesidad de resolución razonada del Tribunal Electoral.
+k) (Mediante resolución de la Sala Constitucional N° 6329 del 3 de mayo de 2017, se declaró inconstitucional este inciso.)
 l) Queda terminantemente prohibido fuera del período electoral que corresponda, cualquier tipo de proselitismo masivo, campaña pública como correos electrónicos o impresos masivos, redes sociales y similares por cualquier medio de comunicación.
