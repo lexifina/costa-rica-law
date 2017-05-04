@@ -1,0 +1,1 @@
+Artículo 38. —La Alcaldía Municipal, previa recomendación de la Dirección Administrativa Financiera, deberá dictaminar sobre la solicitud, considerando entre otros aspectos que los bienes que serían objeto de donación, debidamente inventariados, no son útiles o necesarios para la institución.

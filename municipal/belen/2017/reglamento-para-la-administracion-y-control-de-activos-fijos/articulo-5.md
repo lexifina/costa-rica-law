@@ -1,0 +1,1 @@
+Artículo 5. —Del ingreso de activos. El ingreso físico de activos se hará por medio del proceso de Bienes y Servicios, donde se le debe asignar una identificación numérica o alfa numérica de acuerdo a su clasificación, por medio de una placa metálica, cinta adhesiva, código de barras o uso de marcadores.

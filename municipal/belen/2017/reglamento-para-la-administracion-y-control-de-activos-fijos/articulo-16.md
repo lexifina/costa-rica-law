@@ -1,0 +1,1 @@
+Artículo 16.- Cuando los activos fijos deban salir temporalmente de las instalaciones de la Municipalidad de Belén, para ser objeto de diagnóstico de su estado, reparación o mantenimiento, se tramitará a través de la Unidad que corresponda, mediante el uso del formulario denominado “Autorización de Salida Activos”, diseñado para estos efectos.

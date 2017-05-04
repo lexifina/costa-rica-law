@@ -1,0 +1,6 @@
+CAPÍTULO II
+Administración de activos
+Artículo 4. —Todo funcionario (a) de la Municipalidad de Belén, recibirá en buenas condiciones de funcionamiento los activos fijos necesarios para el cumplimiento de sus funciones, asumiendo la responsabilidad de darles el uso adecuado. Las modalidades para asignar activos fijos serán:
+a. Asignación Permanente: Asignación permanente de activos fijos de uso individual: se hará a cada funcionario (a) para ser utilizados personalmente para el cumplimiento de sus funciones, mediante el uso del formulario denominado “Asignación de Activos”, diseñado para estos efectos. Es obligación del Proceso de Recursos Humanos informar al Proceso Administrativo Financiero, sobre el ingreso de nuevos funcionarios(as), para proceder con la asignación de los activos correspondientes.
+b. Asignación permanente de activos fijos de uso común: serán asignados a los niveles de Alcaldía Municipal, directores, coordinadores, encargados de área o unidades administrativas, en la que vayan a ser utilizados, mediante el uso del formulario denominado “Asignación de Activos”, diseñado para estos efectos.
+c. Asignación por tiempo definido: La asignación se hará por un período determinado establecido, a quien lo solicite, mediante el uso del formulario denominado “Asignación de Activos”, diseñado para estos efectos.
