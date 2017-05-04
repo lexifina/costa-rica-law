@@ -1,0 +1,1 @@
+Transitorio I. —Corresponderá al Ministerio de Ambiente y Energía realizar mediante decreto ejecutivo, los ajustes que sean pertinentes al Decreto Ejecutivo N°39489-MINAE, a fin de dar el adecuado cumplimiento de la Convención CITES según los alcances del presente decreto, dentro de los siguientes treinta días posteriores a su publicación.
