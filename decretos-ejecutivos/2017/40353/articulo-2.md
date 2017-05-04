@@ -1,0 +1,11 @@
+Artículo 2º—Se adiciona un nuevo artículo 17 bis, para que se lea de la siguiente manera:
+Artículo 17 bis.—De la forma de evaluación:
+a. Primera fase
+Al finalizar la audición de cada participante, los miembros del Jurado Calificador realizarán su evaluación de forma separada, otorgándole una calificación según la valoración de los rubros descritos en el artículo anterior. Hecho esto, entregarán la hoja de evaluación al Jefe del Área de Gestión Auxiliar de Recursos Humanos del CNM o su representante debidamente acreditado.
+En esta primera fase, está terminantemente prohibido que los miembros del Jurado Calificador efectúen comentarios relacionados con la ejecución de los participantes y/o los resultados de su audición entre ellos, o con funcionarios del CNM que se encuentren en el recinto de audiciones. Dicha abstención se mantendrá antes, durante y después de la audición de cada participante.
+La nota mínima para pasar a la segunda fase es de 80 (ochenta).
+b. Segunda fase
+Al finalizar la audición de cada participante, los miembros del Jurado Calificador realizarán su evaluación de forma separada, otorgándole una calificación según la valoración de los rubros descritos en el artículo anterior. Hecho esto, entregarán la hoja de evaluación al Jefe del Área de Gestión Auxiliar de Recursos Humanos del CNM o su representante debidamente acreditado.
+En esta segunda fase, está terminantemente prohibido que los miembros del Jurado Calificador efectúen comentarlos relacionados con la ejecución de los participantes y/o los resultados de su audición entre ellos, o con funcionarios del CNM que se encuentren en el recinto de audiciones. Dicha abstención se mantendrá antes, durante y después de la audición de cada participante.
+Resultará ganador aquel concursante que obtenga el mayor puntaje ponderado en la segunda fase del proceso de audición, resultante de la suma de todas las evaluaciones individuales. La calificación mínima para aprobar esta segunda fase, será 90 (noventa).
+En caso de un primer empate entre dos o más aspirantes a un mismo puesto, el Jurado Calificador se reserva la posibilidad de volver a audicionar a los participantes que quedaron empatados; si se mantiene el empate, corresponde al Director Artístico, como presidente del Jurado Calificador de la segunda fase, tomar la decisión final, que será inapelable.
