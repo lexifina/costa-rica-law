@@ -1,0 +1,4 @@
+Artículo 4.- Prohibición de aprobar aportes sin efectuar los procedimientos respectivos
+Ningún funcionario del MOPT podrá autorizar la entrega de materiales o insumos a los gobiernos locales, si de previo no ha efectuado el análisis correspondiente en cuanto a la existencia de los bienes requeridos, procedencia del trámite y factibilidad de efectuar el aporte solicitado sin afectar el cumplimiento de las metas y proyectos del MOPT.
+Será asimismo obligación de los funcionarios competentes cumplir a cabalidad con los procedimientos establecidos en el presente Reglamento y en los manuales que al efecto oficialice el MOPT.
+Será sancionado de acuerdo con lo previsto por las leyes, el funcionario o servidor que tuviere a su cargo la custodia de materiales y que para su entrega violentare las disposiciones de este Reglamento y la normativa vigente sobre esta materia.

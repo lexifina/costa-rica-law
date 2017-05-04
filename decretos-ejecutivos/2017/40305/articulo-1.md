@@ -1,0 +1,20 @@
+N° 40305-MOPT
+EL PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DE OBRAS PUBLICAS Y TRANSPORTES
+En el ejercicio de las facultades que les confieren el artículo 140, incisos 3) y 18) de la Constitución Política; y con fundamento en lo establecido por la Ley de Creación del Ministerio de Obras Públicas y Transportes, No. 3155 del 5 de agosto de 1963 y sus reformas; la Ley General de la Administración Pública, No. 6227 del 2 de mayo de 1978 y sus reformas, la Ley General de Control Interno, No. 8292 del 4 de setiembre del 2002, la Ley de la Administración Financiera de la República y Presupuestos Públicos, No. 8131 del 18 de setiembre del 2001 y la Primera Ley Especial para la Transferencia de Competencias: Atención Plena y Exclusiva de la Red Vial Cantonal, No. 9329 del 15 de octubre del 2015.
+CONSIDERANDO:
+1.- Que conforme lo dispuesto en el artículo 1 de la Ley No. 5060 Ley General de Caminos Públicos, compete a las municipalidades la administración de la red vial cantonal.
+2.- Que el 1° de enero del 2016 entró en vigencia la Ley No. 9329, Primera Ley Especial para la Transferencia de Competencias: Atención Plena y Exclusiva de la Red Vial Cantonal, cuya finalidad es transferir a los gobiernos locales la atención plena y exclusiva de la red vial cantonal.
+3.- Que mediante la Ley No. 9329 se modificó el inciso a) artículo 2 de la Ley de Creación del Ministerio de Obras Públicas y Transportes No. 3155 y sus reformas, eliminándose la habilitación de este Ministerio para colaborar con las municipalidades en la conservación de la red vial cantonal. No obstante lo anterior, la citada Ley No. 9329 autoriza al Ministerio de Obras Públicas y Transportes (MOPT) para que realice “aportes en materiales e insumos (…) a solicitud de las Municipalidades, para la construcción o el mantenimiento de la Red Vial Cantonal”.
+4.- Que según lo dispuesto en el artículo 5 de la Ley No. 9329, “se incluirán dentro de” los recursos destinados en el artículo 12 de dicha Ley, correspondientes al inciso b) del artículo 5 de la Ley No. 8114, Ley de Simplificación y Eficiencia Tributarias, “los aportes en materiales e insumos que realice el MOPT”, por lo que el MOPT deberá cuantificar estos aportes, con la finalidad de que se tomen en consideración, a los efectos de los recursos que corresponde girar a las municipalidades, a la luz de dichos cuerpos normativos.
+5.- Que en razón de lo anterior, resulta necesario regular lo atinente a la entrega de materiales e insumos por parte del MOPT a las municipalidades y establecer los mecanismos de cuantificación y control a emplear, para los rebajos correspondientes de los recursos provenientes de la Ley N° 8114.
+6.- Que el proceso de promulgación del presente Decreto se encuentra suficientemente legitimado, pues su anteproyecto fue publicado para su consulta pública en La Gaceta No. 105 del 1 de junio del 2016 y analizado en el seno del Consejo Consultivo establecido por el artículo 6 de la Ley General de Transferencia de Competencias del Poder Ejecutivo a las Municipalidades, número 8801 del 28 de abril de 2010.
+7.- Que se procedió a llenar el Formulario de Evaluación Costo Beneficio que establece el artículo 12 bis del Decreto Ejecutivo No. 37045-MP-MEIC, en la Sección I “Control Previo de Mejora Regulatoria”, siendo que el mismo dio resultado negativo, pues este Reglamento no contiene trámites ni requisitos para los administrados.
+Por tanto,
+DECRETAN:
+Reglamento que regula la entrega y cuantificación de materiales e insumos por parte del
+Ministerio de Obras Públicas y Transportes a las municipalidades para obras de
+construcción o conservación de la red vial cantonal
+CAPÍTULO I
+Disposiciones generales
+Artículo 1.- Objeto. El presente Reglamento tiene como objeto regular los procedimientos a seguir para la entrega de materiales e insumos por parte del Ministerio de Obras Públicas y Transportes (MOPT) a solicitud de las municipalidades y establecer los mecanismos de cuantificación y control a emplear, para los rebajos correspondientes a los recursos provenientes del inciso b) del artículo 5 de la Ley No. 8114, de conformidad con lo establecido en la Ley No. 9329.

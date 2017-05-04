@@ -1,0 +1,2 @@
+Artículo 2.- Competencia
+Corresponderá a las Direcciones Regionales de la División de Obras Públicas del MOPT, recibir las solicitudes que realicen las municipalidades para la entrega de materiales e insumos y efectuar las verificaciones y acciones que se establecen en el artículo 8 del presente Reglamento. El análisis de la gestión y la aprobación final de la solicitud competerá a la Dirección General de la División de Obras Públicas.

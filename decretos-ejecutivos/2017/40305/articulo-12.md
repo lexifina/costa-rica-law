@@ -1,0 +1,2 @@
+Artículo 12.- Responsabilidad en cuanto a la ejecución de las obras con los materiales e insumos entregados
+El MOPT será responsable por la calidad de los materiales e insumos que entregue conforme las disposiciones de este Reglamento, pero no responderá por la calidad y correcta ejecución de las obras, lo cual estará a cargo en forma plena y exclusiva de la respectiva municipalidad; la cual será además la responsable del uso, administración, custodia y disposición de los materiales e insumos desde el momento en que le son entregados por el MOPT.

@@ -1,0 +1,2 @@
+Artículo 3.- Naturaleza de las obras a ejecutar con los materiales e insumos entregados por el MOPT
+Los materiales e insumos que soliciten las municipalidades conforme las disposiciones del presente Reglamento, sólo podrán utilizarse para la ejecución de obras que cumplan con los requisitos de destino de recursos establecidos en el Decreto Ejecutivo N° 40138-MOPT, Reglamento al inciso b) del artículo 5 de la Ley 8114 y ejecutados en rutas debidamente incorporadas en el Registro Vial a cargo del Ministerio de Obras Públicas y Transportes.

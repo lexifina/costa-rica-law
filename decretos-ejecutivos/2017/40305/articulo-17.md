@@ -1,0 +1,3 @@
+Artículo 17.- Derogatorias
+Se derogan los incisos 6.2.3 y 6.2.5 del artículo 6, el Capítulo III “Procedimiento para la entrega de materiales o prestación de servicios que se tramiten a través de la División de Obras Públicas” y el inciso 8.3 del artículo 8 del Decreto Ejecutivo No. N° 32094-MOPT del 4 de junio del 2004 y sus reformas.
+Se deroga el Decreto Ejecutivo No 35908-MOPT del 18 de marzo del 2010 “Reglamento que regula el actuar de la División de Obras Públicas del MOPT, en lo relativo a la ejecución de obras de la red vial cantonal, mediante convenios de mutua cooperación con entes de derecho público o privado”, publicado en la Gaceta No 76 del 21 de abril del 2010.
