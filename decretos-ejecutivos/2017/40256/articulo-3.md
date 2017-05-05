@@ -1,0 +1,2 @@
+ARTÍCULO 3
+Los ciudadanos de cada una de las Partes portadores de pasaportes de los tipos mencionados en el Artículo (1) de este acuerdo, pueden extender la duración de su estadía, posterior a la expiración del período mencionado en el Artículo (2), una vez recibida la aprobación por parte de las autoridades competentes de la otra Parte de extender la estadía, de acuerdo con las disposiciones legales vigentes en el territorio de la otra Parte.
