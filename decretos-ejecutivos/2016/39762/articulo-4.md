@@ -1,0 +1,1 @@
+Artículo 4º-Apoyo del Proyecto. El Poder Ejecutivo, consciente de la necesidad de articular esfuerzos públicos y privados para armonizar la movilidad sostenible en el área metropolitana, apoyará la formalización de cualquier acto que sea necesario para su concreción.

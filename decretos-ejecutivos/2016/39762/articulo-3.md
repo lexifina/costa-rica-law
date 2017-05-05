@@ -1,0 +1,1 @@
+Artículo 3°-Mejora y Eficiencia Administrativa. La Administración Pública Central y Descentralizada, de confom1idad con el bloque de legalidad, apoyará, mediante la aplicación de las reglas de simplificación de trámites, eficiencia administrativa y coordinación interinstitucional, con los trámites que se deban cumplir para el desarrollo del proyecto.
