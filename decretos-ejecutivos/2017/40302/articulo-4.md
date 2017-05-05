@@ -1,0 +1,1 @@
+Artículo 4°. La postulación de las candidaturas deberá hacerse por medio, de los colegios profesionales competentes, asociaciones de personas productoras, cámaras empresariales, cooperativas, corporaciones agrícolas o grupos organizados, los Comités Sectoriales Regionales Agropecuarios (CSRA) y la sociedad civil.

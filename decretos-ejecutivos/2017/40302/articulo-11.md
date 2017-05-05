@@ -1,0 +1,1 @@
+Artículo 11°. La Oficina de Prensa de la Casa Presidencial y del Ministerio de Agricultura y Ganadería, deberán dar publicidad a la personalidad e imagen de los galardonados, así como del acto de entrega oficial de la Medalla Agrícola.

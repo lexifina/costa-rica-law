@@ -1,0 +1,1 @@
+Artículo 3°. Quedarán comprendidas entre las posibles personas candidatas, todas aquellas personas físicas, productores o productoras y personas jurídicas, cuya labor en el campo agrícola, empresarial, científico, profesional o técnico, se haya desarrollado en las ciencias naturales, biológicas, económicas o sociales.

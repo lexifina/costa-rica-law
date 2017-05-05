@@ -1,0 +1,1 @@
+Artículo 2°. Se entenderá por campo agrícola: los procesos de producción primaria, transformación, mercadeo y comercialización de los productos agrícolas, pecuarios, apícolas, acuícolas, pesqueros y otros productos del mar, así como los relacionados con la producción y comercialización de insumos, bienes y servicios relacionados con estas actividades.

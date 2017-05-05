@@ -1,0 +1,1 @@
+Artículo 6°. El CAN, además en su primera sesión del año nombrará una Comisión Ad Hoc, que se denominará “Pro Medalla Nacional del Mérito Agrícola” con tres de sus miembros, quienes desempeñarán sus funciones ad-honorem, bajo la dirección del Ministro Rector del Sector, para darle el carácter transparente que requiere esta selección al referido galardón.
