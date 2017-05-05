@@ -14,3 +14,4 @@ Establece Condiciones Habilitadoras para el Aprovechamiento de árboles caídos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-22 | la propia norma |
+| 2 | 2017-05-05 | Decreto Ejecutivo 40400 (2017-05-05) |
