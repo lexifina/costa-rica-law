@@ -1,7 +1,7 @@
 Artículo 44.—De los equipos, maquinaria y vehículos. La lista mencionada en el último párrafo del artículo 13 de la Ley que contiene los equipos y maquinaria y vehículos para los cuales deben aplicarse las disposiciones indicadas en el capítulo V de este reglamento, es la siguiente:
 a) Acondicionadores de aire (según artículo 45 de este reglamento)
-b) Refrigeradores y refrigeradores-congeladores (según artículo 46 de este reglamento)
-c) Congeladores verticales y horizontales (según artículo 47 de este reglamento)
+b) (Derogado por el artículo 4 del Reglamento Técnico RTCR 482:2015 Productos eléctricos Refrigeradores y Congeladores Electrodomésticos Operados por Motocompresor Hermético. Especificaciones de Eficiencia Energética, aprobado mediante decreto ejecutivo N° 40510 del 5 de mayo del 2017)
+c) (Derogado por el artículo 4 del Reglamento Técnico RTCR 482:2015 Productos eléctricos Refrigeradores y Congeladores Electrodomésticos Operados por Motocompresor Hermético. Especificaciones de Eficiencia Energética, aprobado mediante decreto ejecutivo N° 40510 del 5 de mayo del 2017)
 d) Motores eléctricos de potencia superior a 1 kW (según artículo 48 de este reglamento)
 e) Balastos para lámparas (según artículo 49 de este reglamento)
 f) Calentadores eléctricos de agua tipo tanque (según artículo 50 de este reglamento)
