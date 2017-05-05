@@ -18,3 +18,4 @@ Reglamento Autónomo de Servicio del Ministerio de Planificación Nacional y Pol
 | 3 | 2001-10-12 | Decreto Ejecutivo 30297 (2001-10-12) |
 | 4 | 2011-10-24 | Decreto Ejecutivo 36860 (2011-10-24) |
 | 5 | 2015-12-01 | Decreto Ejecutivo 39404 (2015-12-01) |
+| 6 | 2017-05-05 | Decreto Ejecutivo 40499 (2017-05-05) |
