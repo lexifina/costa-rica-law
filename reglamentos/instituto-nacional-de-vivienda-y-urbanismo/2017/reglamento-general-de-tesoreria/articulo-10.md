@@ -1,0 +1,5 @@
+Artículo 10º-lnversiones:
+La persona encargada de la Tesorería realizará las inversiones de los recursos del Instituto previa coordinación con la jefatura del Departamento Administrativo Financiero para el caso de INVU Central.
+Para el caso de los recursos que se invertirán del Sistema de Ahorro y Préstamo, se regirán según lo dispuesto en el Articulo N º5 de la Ley 1788, reformado con la Ley N º8448, para lo cual se conformó el Comité de Inversiones, y Riesgo de Inversiones y Diversificación, quién será el responsable de elevar a Junta Directiva, y posteriormente se comunicará a la Tesorería para su trámite.
+La persona encargada de la Tesorería deberá llevar un control de las inversiones realizadas y su vencimiento. En caso de que las inversiones generen un título valor físico, será responsable de su custodia
+La Tesorería remitirá los documentos de inversiones, liquidaciones, reinversiones, redenciones, etc.; a la Contabilidad con copia al Departamento Administrativo Financiero para su registro contable.

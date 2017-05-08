@@ -1,0 +1,10 @@
+Artículo 9.- Por Cajas recaudadoras:
+La persona encargada de Caja será responsable de cualquier faltante que se produzca en los valores de que es depositario.
+Todos los ingresos del día se depositarán a más tardar el día hábil inmediato posterior, en las cuentas bancarias del Instituto, para lo cual la persona encargada de Caja deber á preparar diariamente los depósitos correspondientes, los cuales deben haber sido revisados por el funcionario designado por la Tesorería; dejándose únicamente el fondo fijo de caja determinado por la Gerencia, para efectos de facilitar la recaudación.
+La persona encargada de Caja recaudador deberá mantener el dinero recibido dentro de la caja fuerte, ubicada en cada recinto, la cual deberá mantener cerrada. Únicamente podrá tener fuera un monto que como máximo no supere dos veces el monto fijo de caja asignado.
+Aparte de la persona encargada de Caja, solamente la persona encargada de la Tesorería, en caso de fuerza mayor, podrá acceder a los valores depositados por la persona encargada de Caja en la caja fuerte ubicada dentro del cubículo.
+La persona encargada de Caja es responsable del uso de su sello de caja, el cual no podrá prestar y deberá mantener dentro de la caja fuerte cuando no esté laborando.
+A todo cheque que reciban las personas encargadas de Caja, encargada de la Tesorería o el funcionario designado debe estampársele inmediatamente el sello de "Únicamente para depositar en la cuenta corriente de INVU Nº_ en el Banco_"; así como, el número de teléfono como referencia en caso de devolución.
+La persona encargada de Caja está obligada a llevar un registro de cada cheque que recibe, con indicación de nombre del Banco contra el cual se gira, monto y nombre al que se emitió el recibo.
+La persona encargada de la Tesorería rechazará reclamos por diferencias de dinero, una vez que el cliente o funcionario haya abandonado la ventanilla de la caja o la persona encargada de Caja haya realizado la liquidación diaria de operaciones, salvo prueba en contrario.
+La Tesorería llevará los controles necesarios para la anotación del movimiento de las Cajas.

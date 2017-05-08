@@ -1,0 +1,8 @@
+CAPÍTULO III
+De los Ingresos y Egresos
+Artículo 8 º- Ingresos
+Toda recaudación de dinero de INVU se hará a través de las cajas recaudadoras de la Institución o directamente en las cuentas corrientes que éste posee en los Bancos Estatales sea por depósitos o por convenios de conectividad.
+Por todo ingreso recibido en las cajas recaudadoras de la Institución, se emitirá un recibo pre numerado consecutivamente, según los formularios autorizados. Los recibos anulados deben mantenerse en el consecutivo de copias de recibos en original y copia respectiva.
+Ningún funcionario del Instituto, con excepción de las personas encargadas de Caja, la persona encargada de la Tesorería, y la persona encargada de la mensajería autorizada, está facultado para recibir dinero en efectivo, cheque o títulos valores. No obstante, cuando una dependencia del INVU, reciba, por fuerza mayor algún valor, deberá enviarlo el mismo día a la Tesorería, mediante oficio firmado por la jefatura inmediata, con copia a la Auditoría Interna; en él que se detalle el concepto de pago y las razones que mediaron para que fuera recibido por un funcionario no autorizado.
+Queda prohibido a las personas encargadas de Caja y personal de Tesorería recibir dinero en custodia cuando no media un comunicado formal y autorización de la persona encargada de la Tesorería.
+Toda dependencia del Instituto, que, por negociación propia de su función, espere el ingreso de una suma de dinero para un fin específico, respaldada por un convenio o contrato, deberá informarlo oportuna y formalmente a la persona encargada de la Tesorería, para el control de los recursos.

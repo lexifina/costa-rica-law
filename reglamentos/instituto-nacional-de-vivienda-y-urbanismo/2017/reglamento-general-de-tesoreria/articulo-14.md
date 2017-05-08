@@ -1,0 +1,1 @@
+Artículo 14°-Cada mes, junto con la Unidad de Adquisiciones y Contrataciones se realizará conciliación del estado de garantías en custodia de participación y cumplimiento de licitaciones con detalle de su clase y monto, fecha de vencimiento, institución emisora, número de licitación.

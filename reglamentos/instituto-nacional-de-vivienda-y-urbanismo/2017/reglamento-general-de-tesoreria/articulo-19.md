@@ -1,0 +1,1 @@
+Artículo 19º - Forma parte de este Reglamento lo estipulado en la Ley de Control Interno, Ley de Contratación Administrativa, Reglamento de Cauciones, Reglamento General de Caja Chica, los procedimientos de la Tesorería y los reglamentos, leyes y disposiciones que regulan a los funcionarios del Instituto.

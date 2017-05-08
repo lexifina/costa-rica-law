@@ -1,0 +1,24 @@
+Artículo 7°-Funciones
+Le corresponderá al personal de Tesorería, coordinados por la persona encargada de la Tesorería, desarrollar las siguientes funciones:
+a) Recaudar los ingresos propios de la Institución, ya sea en efectivo, por medio de documentos,
+por procedimientos normales, excepcionales o judiciales.
+b) Ejercer un control diario sobre los saldos de las cuentas corrientes y velar por el adecuado flujo de caja de la Institución.
+c) Hacer los pagos que, en general, deba realizar el Instituto.
+d) Custodiar y administrar los valores, fondos y documentos del Instituto que le sean remitidos en la caja fuerte de la Institución, para lo cual llevará un registro de la entrada y salida de los mismos, donde se anotarán los siguientes datos: número de documento, monto o valor, fecha, nombre y firma de la persona que lo retira o entrega y nombre de la dependencia a la que pertenece el funcionario que la retira o entrega.
+e) Emitir los pagos (cheques y/o transferencias) que se requieran para el correcto y oportuno cumplimiento de las obligaciones financieras del Instituto.
+f) La persona encargada de la Tesorería deberá firmar cheques y/o autorizar transferencias que emita la Institución, sin límite de suma, mancomunadamente con los funcionarios autorizados por la Junta Directiva.
+g) Coordinar y fiscalizar las labores de las Cajas receptoras de efectivo y Fondos de Caja Chica (regulados por el Reglamento de Caja Chica) delegadas a las personas encargadas de Caja, velando por el correcto e íntegro manejo de los valores que les corresponda recibir y/o entregar. Se administrarán todos los fondos en forma independiente.
+h) Realizar las declaraciones del impuesto por concepto de retenciones salariales y pagos a proveedores.
+i) Realizar traslados de dinero entre cuentas de la Institución sin límite de suma, cuando se requiera.
+j) Retirar los aportes de Entes Externos, de aquellos recursos que se giren a la Institución.
+k) Administrar los recursos financieros, a través de títulos valores emitidos por el Ministerio de Hacienda, y por Bancos del Estado.
+l) Recibir, custodiar, controlar y entregar las garantías de participación y cumplimiento, que hayan sido aceptadas en los procesos de contratación administrativo. Cuando las mismas se reciban en efectivo o cheques certificados se depositarán en la cuenta corriente bancaria, destinada para tales efectos.
+m) Llevar el control de las obligaciones contractuales de la Institución.
+n) Gestionar ante las diferentes Instituciones del Estado el giro de los recursos asignados al Instituto.
+o) Preparar informes relacionados con su gestión, a solicitud de la Presidencia Ejecutiva, Gerencia General, Sub Gerencia General, Auditoría Interna, Departamento Administrativo Financiero y la Unidad de Finanzas.
+p) Preparar y revisar los Flujos de Caja diarios de la Institución, coordinando con la Unidad de Finanzas, su ejecución y proyección, para lo cual se requiere una adecuada programación de las necesidades de efectivo para la previsión de las diferentes erogaciones de la Institución a través de los diferentes medios: cheques, transferencias o caja chica.
+q) Realizar sus actividades de acuerdo con las prioridades que fije la Unidad de Finanzas y la Administración Superior.
+r) Definir los procedimientos de operación de cada una de las actividades a su cargo, hacerlos de conocimiento de los usuarios y ocuparse de su permanente actualización.
+s) La persona encargada de la Tesorería o el funcionario designado, sin detrimento de los que efectúe la Auditoría Internas, realizará arqueos periódicos y sorpresivos a los fondos de recaudación, caja chica, fórmulas de cheques, garantías, boletos de pago de café, entre otros, y emitirá un documento con el detalle de lo arqueado, que debe ser firmado por la persona encargada de Caja, el funcionario que lo efectuó y la persona encargada de la Tesorería. Sí el arqueo arroja una diferencia, ésta deberá ajustarse a lo dispuesto en el Reglamento de Caja Chica, adicionalmente deberá justificarla la persona encargada de Caja y debe ser reportado en el estado de caja diario. Del documento resultante del arqueo, se debe entregar una copia a la persona encargada de Caja y otra a la Auditoría. El original permanecerá en el archivo de gestión de la Tesorería.
+t) Cuando por vacaciones, permiso, incapacidad u otra causa no prevista, las personas encargadas de Caja se deban ausentar, se entregará el fondo a la persona que lo suplirá. En caso de requerirse el uso del fondo y no se encuentre el encargado del mismo, la persona encargada de la Tesorería Institucional haciéndose acompañar del encargado de la Unidad de Finanzas, deberá realizar procedimiento anteriormente indicado.
+u) Los arqueos realizados por la Auditoría Interna no requerirán de la presencia de la persona encargada de la Tesorería.

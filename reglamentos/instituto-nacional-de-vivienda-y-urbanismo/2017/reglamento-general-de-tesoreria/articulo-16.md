@@ -1,0 +1,1 @@
+Artículo 16°- Al cierre de cada mes preparará Informe de los cheques por cuenta bancaria en custodia de la Caja Pagadora para ser remitido a la Contabilidad con copia al Departamento Administrativo Financiero.
