@@ -14,3 +14,4 @@ Estandares de Sostenibilidad para Manejo de Bosques Naturales: Código de Práct
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-04-22 | la propia norma |
+| 2 | 2017-05-08 | Resolución 21 (2017-05-08) |

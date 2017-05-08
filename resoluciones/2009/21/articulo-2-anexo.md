@@ -1,4 +1,3 @@
-[imagen]
 GUÍA METODOLÓGICA PARA EL MANEJO POLICÍCLICO y
 PROTOCOLO DE APROVECHAMIENTO FORESTAL
 DE IMPACTO REDUCIDO EN BOSQUES
@@ -119,12 +118,10 @@ Se utilizarán parcelas de muestreo rectangulares de 30 metros de ancho por 100 
 Los transeptos perpendiculares a la pica madre servirán de línea central para la parcela de muestreo. Se debe marcar el inicio y el final de la parcela con las iniciales IP con el número de la parcela al inicio y FP con el número de la parcela al final.
 Cualquier cambio en la metodología sugerida anteriormente deberá ser descrito detalladamente
 Sea cualquiera la metodología utilizada en las parcelas de muestreo se debe medir toda la vegetación mayor o igual a 30 cm de diámetro. Además se debe establecer una subparcela equivalente a un cuarto del área de la parcela de muestreo. En esta se deben medir los individuos mayores o iguales a 10 cm de diámetro. Estas subparcelas deben ser ubicadas de forma consistente, por ejemplo, en parcelas rectangulares de 30 m x 100 m (0,3 ha) las subparcelas serían de 30 m x 25 m (0,075 ha), al inicio o al final de la parcela de muestreo, de manera sincronizada al levantamiento de toda la parcela. (Figura 1).
-[imagen]
 Figura 1: Ejemplo de diseño de parcela para el inventario por muestreo
 Nota: se ha acostumbrado distancias de 50, 75 y 100 metros entre los transeptos perpendiculares a la pica madre. Este diseño obedece a que los transeptos serán utilizados para realizar el inventario total (censo) para el plan operativo de aprovechamiento.
 1.3.3. Variables
 En el inventario forestal se debe registrar el número de árbol, el diámetro y la especie de todos los individuos con dap mayor o igual a 10 cm en las subparcelas y el número de árbol, el diámetro y la especie de todos los individuos con dap mayor o igual a 30 cm en las parcelas de muestreo. Los árboles que han sido incluidos dentro de la parcela deben quedar marcados con una mancha de pintura (como la producida por un spray dirigida a un solo punto, Figura 2), en la cara del árbol que está en dirección al transepto del inventario. Para facilitar la revisión de los datos del inventario forestal por parte de los funcionarios de la AFE, se recomienda numerar cada uno de los árboles consecutivamente en la parcela y subparcela. Si los árboles son numerados, entonces no será necesario marcar con un punto el árbol.
-[imagen]
 Figura 2: Marca de pintura recomendada para los árboles incluidos en el inventario por muestreo
 1.3.4. Evaluación de resultados del inventario forestal
 Se requiere que el error de muestreo del área basal para todas las especies de los árboles con dap mayor o igual a 30 cm, sea menor o igual al 20%, calculado con una probabilidad del 95%. En un anexo (Anexo 1) se debe incluir el listado de los datos recopilados durante el inventario. A partir de los datos del inventario forestal se construirán los siguientes cuadros:
@@ -173,17 +170,15 @@ El valor de área basal promedio por hectárea estimado a partir del inventario 
 Si G es > a VRM Þ | El bosque podría estar sujeto a aprovechamiento, previo a verificar las otras condiciones
 Si G es ≤ a VRM Þ | El bosque no puede ser intervenido
 Gráficamente se representa de la siguiente manera (Figura 3):
-[imagen]
 Figura 3: aplicación del umbral de área basal
 Se debe indicar claramente el VRM utilizado y el valor del área basal promedio actual del bosque, así como los resultados de la prueba estadística de T de Student realizada.
-1.4.2. Valor de Referencia Máximo del porcentaje del gremio de las especies heliófitas efímeras
+(*)1.4.2. Valor de Referencia Máximo del porcentaje del gremio de las especies heliófitas efímeras.
 El bosque sujeto de aprovechamiento debe encontrarse bajo un Valor de Referencia Máximo (VRMx) de abundancia del gremio de las especies heliófitas efímeras. La abundancia de los árboles del gremio ecológico conformado por las especies heliófitas efímeras no debe superar el 15% del total de árboles arriba de 10 cm dap, con base en los resultados del número de árboles del inventario por muestreo. Gráficamente la utilización del umbral se representa como lo muestra la Figura 4.
-La proporción de individuos arriba de 10 cm de dap pertenecientes al gremio de heliófitas efímeras estimado a partir del inventario forestal (H) debe ser estadísticamente menor o igual al 15%. Dicha prueba estadística puede ser hecha a través de una prueba de T de Student (Ta/2, 95%) donde se compara H promedio contra el valor fijo de Referencia Máximo establecido en un 15%.
-Si H es ≤ 15% Þ | El bosque podría estar sujeto a aprovechamiento, previo a verificar las otras condiciones
-Si H es > a 15% Þ | El bosque no puede ser intervenido
+La proporción de individuos arriba de 10 cm de dap pertenecientes al gremio ecológico de heliófitas efímeras estimado a partir del inventario forestal (H) debe ser estadísticamente menor o igual al 15%.
 [imagen]
 Figura 4: Aplicación del umbral de heliófitas efímeras
-Se debe indicar claramente el VRM utilizado y el valor actual de la abundancia del gremio de las especies heliófitas efímeras. Actualmente se cuenta con un listado de las especies arbóreas que pertenecen al gremio ecológico de las heliófitas efímeras que se debe utilizar como base para la clasificación de las especies a partir de los resultados del inventario por muestreo (Anexo 6). Para efectos del cálculo de este umbral se deben considerar como parte del gremio de heliófitas efímeras las especies clasificadas como indeterminadas y los individuos de especies desconocidas como principio precautorio.
+Se debe indicar claramente el VRM utilizado y el valor actual de la abundancia del gremio de las especies heliófitas efímeras. Se utiliza la lista de especies codificadas por gremio ecológico como base para la clasificación de estas especies, a partir de los resultados del inventario por muestreo (Anexo 6). Para efectos del cálculo de este umbral y como principio precautorio, se deben considerar como parte del gremio de heliófitas efímeras los individuos señalados como especies desconocidas.
+(Así reformado el punto 1.4.2) anterior resolución N° R-SINAC-CONAC-021-2017 del 8 de mayo del 2017)
 1.4.3. Se respetan diámetros mínimos de corta para evitar disminuir la capacidad de regeneración de las especies manejadas debido a la eliminación de la población reproductiva
 El diámetro mínimo de corta (DMC) general está establecido en 60 cm de dap; sin embargo, existe un listado de excepciones con las especies a las que les ha definido un DMC diferente. Una vez identificadas las especies a aprovechar se debe establecer claramente los DMC a utilizar en el presente aprovechamiento.
 Cuadro 12: Diámetros mínimos de corta por especie
@@ -210,16 +205,13 @@ Nº | Nombre común | Nombre científico
 c) El incremento medio anual promedio para todas las especies cosechables con un dap entre 50 y 60 cm en los bosques naturales de Costa Rica se asume que es de 0,5 cm por año.
 d) La mortalidad natural en los bosques de Costa Rica se asume que es de 1,5% anual.
 e) Estimación del incremento en 15 años: considerando los parámetros anteriores, el incremento en un periodo de 15 años será el 75% del área basal o del número de árboles de la clase diamétrica entre 50 y 60 cm de dap o la clase diamétrica inmediatamente inferior al DMC, menos la mortalidad correspondiente al período.
-[imagen]
 Donde:
 - N = 75% número de árboles existentes hoy en la clase 50-60 cm
 - Mortalidad =0,015
 - n = 15 años
 f) A partir de los datos del censo forestal (ver punto 2.1 adelante) se construirán los siguientes cuadros, que permitirán definir la intensidad de cosecha.
 Cuadro 15: Distribución diamétrica del número de árboles de las especies determinadas en el censo forestal
-[imagen]
 Cuadro 16: Distribución diamétrica del área basal de las especies determinadas en el censo forestal
-[imagen]
 g) Determinación de la intensidad de cosecha por especie: el área basal o número de árboles a cosechar será igual al incremento esperado en un ciclo de corta de 15 años. La intensidad de cosecha por especie estará determinada por el incremento esperado en el área basal o número de árboles actual arriba del diámetro mínimo de corta (DMC) y esta nunca deberá superar el 50%.
 Cuadro 17: Intensidad de corta máxima propuesta por especie a cosechar
 Especies | Incremento en área basal o número de árboles en 15 años 50-60 | Área basal o número de árboles 60->100 | Intensidad de cosecha (% )
