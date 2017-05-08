@@ -1,0 +1,4 @@
+ARTÍCULO 3°.- Principios que rigen a la Iniciativa CoST. La Iniciativa CoST se fundamenta en los siguientes principios:
+a) Enfoque multisectorial: la Iniciativa CoST opera a través de un grupo multisectorial conformado por representantes del gobierno, sociedad civil y sector privado para asegurar la participación activa de todas las partes involucradas en el proceso de ejecución de obra pública.
+b) Divulgación de información: los órganos y entes participantes deben divulgar información de forma regular sobre los proyectos de su competencia, de acuerdo con el estándar de datos de infraestructura que apruebe a nivel nacional la Iniciativa CoST.
+c) Aseguramiento: la Iniciativa CoST evaluará periódicamente del cumplimiento de la información divulgada y realizará observaciones a los órganos y entes competentes de la ejecución, control y fiscalización de la construcción de obra pública en caso de encontrar inconsistencias.

@@ -1,0 +1,1 @@
+ARTÍCULO 17.- Potestad actual de fiscalización. La implementación de la Iniciativa CoST en Costa Rica no afectará ni sustituirá las potestades y deberes de fiscalización de las diferentes instituciones públicas que desempeñen esa función.

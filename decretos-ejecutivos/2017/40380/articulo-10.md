@@ -1,0 +1,2 @@
+ARTÍCULO 10.- Representación de organizaciones de la sociedad civil. Para representar al sector de sociedad civil en el Grupo Multisectorial, se designa al Colegio Federado de Ingenieros y Arquitectos de Costa Rica (CFIA), la Asociación de Consumidores de Costa Rica (ACCR) y la Asociación Costa Rica Íntegra (CRI).
+Cada una de estas organizaciones deberá designar a un representante titular y uno suplente ante el Grupo Multisectorial. Dichas personas deberán, necesariamente, contar con experiencia en infraestructura pública o en materia de transparencia.

@@ -1,0 +1,2 @@
+ARTÍCULO 18.- Interés público de la Iniciativa CoST. Se declaran de interés público todas las actividades de la Iniciativa CoST vinculadas con el objeto de este decreto. Se requiere a todas las instituciones públicas o privadas a que, dentro del ámbito de sus competencias y sin afectar el cumplimiento de sus propios objetivos, apoyen el trabajo que desarrollará el Grupo Multisectorial.
+Para mejorar la realización de los objetivos de este Decreto, la Administración Pública podrá coordinar acciones de cooperación, dentro del marco de sus competencias.

@@ -1,0 +1,2 @@
+ARTÍCULO 7°.- Evaluación de rendimiento. Los representantes del sector público, el sector privado y la sociedad civil designados en el Grupo Multisectorial deberán evaluar de forma anual su rendimiento de labores y la pertinencia de la participación de su sector en el Grupo Multisectorial.
+El Grupo Multisectorial deberá reglamentar el mecanismo de dicha evaluación y determinar los criterios para la remoción de sus miembros en caso de un mal rendimiento o necesidad de modificar la representación sectorial.
