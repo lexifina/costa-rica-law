@@ -1,0 +1,8 @@
+Artículo 3.- Los requisitos para inscribirse como Inspector de Calderas y recipientes a presión, en el CIQPA, en el respectivo registro que se crea al efecto, son los siguientes:
+a) Ser Ingeniero Químico o Profesional Afín.
+b) Solicitar formalmente en el correspondiente formulario por escrito su deseo a ser Inspector Autorizado de Calderas el CIQPA.
+c) Presentar su hoja de vida donde sea fácilmente demostrable que usted posee experiencia en el área de calderas y recipientes a presión. (presentar hoja de vida completa incluyendo atestados).
+d) Ser miembro activo o emérito del CIQPA y estar completamente al día con todas sus obligaciones (se debe presentar una certificación emitida directamente por la Dirección).
+e) Experiencia mínima de 3 años en sistemas de generación de vapor y recipientes a presión en general. Demostrándose por medio de dos cartas de recomendación por un empleador. Dicho empleador podrá ser presente o alguno pasado.
+f) Haber aprobado el curso final de calderas para emitir certificación de Inspector autorizado.
+De ser presentados todos estos documentos al Colegio se someterá a estudio y aprobación de los mismos, por parte de la Comisión de Calderas. Para este efecto se realizará un cotejo con el listado de requisitos en un documento oficial o formulario el cual será necesario para seguir el proceso del interesado. Al ser aprobado se aceptará su ingreso al curso para inspectores de calderas y recipientes a presión, pagando el importe correspondiente que por disposición de la Asamblea del Colegio fijará precisamente la Junta Directiva del CIQPA, de acuerdo a los criterios usuales de mercado, y que se ajustará utilizando los mismos parámetros de ajuste de las tarifas de honorarios del Colegio.

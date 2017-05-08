@@ -1,0 +1,1 @@
+Articulo 12.- Todo lo relacionado a las pruebas deberán los Inspectores adherirse a las disposiciones prescritas en los artículos del 54 al 59 del Reglamento de Calderas vigente, Decreto Nº 26789 M.T.S.S. De igual manera, las inspecciones oculares Externas e internas deberán abarcarse según lo dispuesto en los artículos 60 al 104 de este mismo documento.

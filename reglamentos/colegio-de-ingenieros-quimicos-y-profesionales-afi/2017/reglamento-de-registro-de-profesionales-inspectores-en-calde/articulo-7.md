@@ -1,0 +1,1 @@
+Artículo 7.- Todo lo relacionado a los periféricos mínimo de una Caldera según su categoría deberán los Inspectores adherirse a las disposiciones prescritas en los artículos del 23 al 33 del Reglamento de Calderas Vigente, Decreto N º 26789 M.T.S.S.

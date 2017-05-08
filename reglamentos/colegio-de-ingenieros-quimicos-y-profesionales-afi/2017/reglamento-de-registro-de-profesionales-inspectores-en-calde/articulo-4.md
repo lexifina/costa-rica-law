@@ -1,0 +1,1 @@
+Artículo 4.- Las disposiciones generales sobre calderas sean estas técnicas o objetivas sobre la inspección deberán basarse en los enunciados vigentes del Reglamento de Calderas Decreto Nº 26789 M.T.S.S.

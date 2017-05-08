@@ -1,0 +1,1 @@
+Artículo 13.- Las disposiciones generales técnicas u objetivas sobre el tratamiento químico de aguas industrializadas para Calderas deberán basarse en los enunciados vigentes del Reglamento de Calderas Decreto Nº 26789 M.T.S.S. artículos 105-107.

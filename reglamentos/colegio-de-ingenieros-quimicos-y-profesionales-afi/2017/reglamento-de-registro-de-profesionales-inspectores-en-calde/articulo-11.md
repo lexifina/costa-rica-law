@@ -1,0 +1,1 @@
+Artículo 11.- Corresponde a la Comisión de Calderas y recipientes a presión, sin carácter exclusivo denunciar los incumplimientos a la Ley 8412, su reglamento y la normativa de Calderas y conexa, como sus lineamientos ante el Tribunal de Honor del CIQPA

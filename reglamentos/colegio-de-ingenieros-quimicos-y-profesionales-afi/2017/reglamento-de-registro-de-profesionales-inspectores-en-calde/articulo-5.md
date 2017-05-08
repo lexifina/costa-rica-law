@@ -1,0 +1,1 @@
+Artículo 5.- En referencia a Permisos de Instalación de Caldera deberán los Inspectores adherirse a las disposiciones prescritas en los artículos 4, 5 y 6 del Reglamento de Calderas Vigente, Decreto N º 26789 M.T.S.S.

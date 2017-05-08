@@ -1,0 +1,1 @@
+Artículo 6.- Todo lo competente al Permiso de Funcionamiento Anual de Caldera deberán los Inspectores adherirse a las disposiciones prescritas en los artículos del 7 al 16 del Reglamento de Calderas Vigente, Decreto Nº 26789 M.T.S.S.
