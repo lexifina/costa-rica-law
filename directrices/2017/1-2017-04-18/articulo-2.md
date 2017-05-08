@@ -1,0 +1,1 @@
+Artículo 2- Que por consiguiente, la Universidad de Costa Rica no puede abstraerse de la totalidad del régimen jurídico y debe solicitar ante la Oficina Técnica de la CONAGEBIO, los permisos de acceso a los elementos y recursos genéticos y bioquímicos de la biodiversidad, cuando sean para realizar bioprospección o aprovechamiento económico comercial.
