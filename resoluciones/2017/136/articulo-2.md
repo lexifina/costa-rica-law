@@ -1,0 +1,2 @@
+2º—Modificar el título de la resolución RCS-292-2016 del 14 de diciembre del 2016 para que se lea de la siguiente manera:
+“METODOLOGÍA PARA EL CÁLCULO DE LOS PRECIOS POR USO COMPARTIDO DE INFRAESTRUCTURA DE POSTERÍA PARA LOS OPERADORES DE REDES DE TELECOMUNICACIONES
