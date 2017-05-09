@@ -14,21 +14,27 @@ Disposiciones Generales:
 1. Los Centros de Recreo estarán bajo la responsabilidad de un encargado quien tiene la potestad para:
 a) Resolver situaciones imprevistas que surjan en las instalaciones, de conformidad con la normativa vigente.
 b) Cerrar o prohibir el funcionamiento de cualquier área o servicio del Centro de Recreo cuando la conservación del mismo o la integridad física de las personas estén en riesgo.
-2. El uso de las instalaciones de los Centros de Recreo, será gratuito para personas colegiadas que se encuentren al día con sus obligaciones, así como para sus padres, cónyuge e hijos, presentando el respectivo carné familiar, en caso que estos familiares no porten dicho carné, podrán ingresar como invitado en compañía del colegiado, previa cancelación del pago respectivo.
+2. El uso de las instalaciones de los Centros de Recreo será gratuito para personas colegiadas que se encuentren al día con sus obligaciones, así como para sus familiares, siempre y cuando presenten el respectivo carné familiar.
+(Así reformado el punto anterior mediante sesión N° 043-2017 del 9 de mayo del 2017)
 3. La persona colegiada podrá invitar a los Centros de Recreo a un máximo de tres acompañantes, quienes cancelarán la cuota de ingreso estipulada por la Junta Directiva. La persona colegiada deberá permanecer en todo momento en las instalaciones junto con sus invitados, se exonera de este pago a los ciudadanos de oro, previa presentación de la cédula de identidad o del carné respectivo, (los mismos cuentan dentro de los 3 invitados) y a los niños menores de 6 años.
-4. En temporada alta solo se aceptará una entrada de cortesía por persona, considerando temporada alta los siguientes periodos:
+4. En caso de que los familiares no porten su carné, podrán ingresar como invitados en compañía del colegiado, previa cancelación de la entrada respectiva.
+(Así adicionado el punto anterior mediante sesión N° 043-2017 del 9 de mayo del 2017)
+5. En temporada alta solo se aceptará una entrada de cortesía por persona, considerando temporada alta los siguientes periodos:
 a) Semana Santa.
 b) Vacaciones de medio periodo.
 c) Vacaciones de fin y principio de año, (a partir del 16 de diciembre y hasta la primera semana de febrero).
-5. Los colaboradores del Colegio podrán hacer uso de los Centros de Recreo y sus servicios en las mismas condiciones que las personas colegiadas, con excepción del alquiler de cabinas en temporada alta.
-6. Obligaciones de las personas colegiadas que ingresan a las instalaciones de los Centros de Recreo:
+(Corrida la numeración el punto anterior mediante sesión N° 043-2017 del 9 de mayo del 2017 que lo pasó del antiguo punto 4) al 5))
+6. Los colaboradores del Colegio podrán hacer uso de los Centros de Recreo y sus servicios en las mismas condiciones que las personas colegiadas, con excepción del alquiler de cabinas en temporada alta.
+(Corrida la numeración el punto anterior mediante sesión N° 043-2017 del 9 de mayo del 2017 que lo pasó del antiguo punto 5) al 6))
+7. Obligaciones de las personas colegiadas que ingresan a las instalaciones de los Centros de Recreo:
 a) Presentar su carné vigente o documento que lo acredite y el de sus familiares.
 b) Velar por la seguridad de los menores de edad, personas con necesidades especiales y/o adultos mayores que lo acompañan.
 c) Mantener una conducta respetuosa y acorde con la naturaleza familiar del Centro de Recreo, actuando siempre dentro del marco de la moral y las buenas costumbres, así como contribuir a la sana convivencia.
 d) Responder por el comportamiento y los daños que cause directamente o los que hayan sido producidos por sus familiares y/o invitados.
 e) Respetar la demarcación de las áreas tales como: parqueo, zona de camping, entre otras.
 f) Respetar todos los horarios establecidos por la corporación.
-7. Prohibiciones para los usuarios:
+(Corrida la numeración el punto anterior mediante sesión N° 043-2017 del 9 de mayo del 2017 que lo pasó del antiguo punto 6) al 7))
+8. Prohibiciones para los usuarios:
 a) El ingreso de grupos de estudiantes.
 b) El ingreso de mascotas a excepción de las mascotas terapéuticas (perros o gatos), en cuyo caso debe presentar al chequeador de casetilla el respectivo dictamen médico que indique expresamente que la mascota es parte de su terapia.
 c) El ingreso con cualquier tipo de arma, drogas de uso prohibido, y/o artefactos peligrosos.
@@ -41,17 +47,24 @@ i) Fumar en los Centros de Recreo, de acuerdo con la Ley 9028 “Ley General de 
 j) Cancelar el monto de las reservaciones de cabinas, camping y ranchos directamente en los centros de recreo.
 k) El uso de leña y/o cualquier otro elemento de combustión diferente al carbón en las parrillas.
 l) Cualquier tipo de conducta de colegiados o invitados que atente contra la moral o las buenas costumbres o cualquier otro comportamiento que atente contra el orden del centro de recreo.
-8. Los usuarios de los Centros de Recreo que contravengan algunas de las disposiciones establecidas en estas políticas, serán sancionados sobre la base de cuatro posibilidades:
+(Corrida la numeración el punto anterior mediante sesión N° 043-2017 del 9 de mayo del 2017 que lo pasó del antiguo punto 7) al 8))
+9. Los usuarios de los Centros de Recreo que contravengan algunas de las disposiciones establecidas en estas políticas, serán sancionados sobre la base de cuatro posibilidades:
 a) Llamada de atención realizada por el encargado del Centro de Recreo.
 b) Retiro inmediato de las instalaciones del centro de recreo, con apoyo de la policía si ésta fuera necesaria.
 c) Según la gravedad, el encargado podrá comunicar a su Jefatura Inmediata, para que proceda conforme corresponda.
 d) Suspensión del uso de los centros de recreo por un periodo de hasta tres años a las personas que hayan causado algún problema previa revisión de los hechos.
 Las acciones tomadas en los incisos a, b y c deben quedar registradas en la bitácora respectiva.
-9. Cuando los equipos deportivos oficiales del Colegio realicen partidos, presentarán una lista con los jugadores y cuerpo técnico del equipo visitante (máximo 22 personas), para que estos sean exonerados del pago de la entrada respectiva. Si vinieran con acompañantes, los mismos deberán cancelar la cuota correspondiente de un invitado, para poder hacer uso de las demás instalaciones del Colegio, con un máximo de dos invitados por jugador. El ingreso será máximo una hora previa al partido, dando prioridad de uso a la cancha de fútbol ubicada junto a las oficinas Administrativas.
-10. El préstamo de las instalaciones para actividades de Centros Educativos en las cuales al menos el 80% de las personas participantes sean colegiadas, será aprobado por el Director Ejecutivo.
-11. El horario de los Centros de recreo es el siguiente:
- Centro de recreo Alajuela: martes a domingo de 8:00 am a 5:00 pm. Cuando la hora de ingreso para uso del gimnasio o aguas temperadas sea posterior a las 5:00 p.m. de lunes a viernes, solo podrán ingresar personas mayores de 17 años que tengan carné del Colegio, por lo que no se permite el ingreso o permanencia de menores de 17 años después de esta hora.
- Centros de recreo regionales: de martes a domingo de 8:30am a 4:30pm.
+(Corrida la numeración el punto anterior mediante sesión N° 043-2017 del 9 de mayo del 2017 que lo pasó del antiguo punto 8) al 9))
+10. Cuando los equipos deportivos oficiales del Colegio realicen partidos, presentarán una lista con los jugadores y cuerpo técnico del equipo visitante (máximo 22 personas), para que estos sean exonerados del pago de la entrada respectiva. Si vinieran con acompañantes, los mismos deberán cancelar la cuota correspondiente de un invitado, para poder hacer uso de las demás instalaciones del Colegio, con un máximo de dos invitados por jugador. El ingreso será máximo una hora previa al partido, dando prioridad de uso a la cancha de fútbol ubicada junto a las oficinas Administrativas.
+(Corrida la numeración el punto anterior mediante sesión N° 043-2017 del 9 de mayo del 2017 que lo pasó del antiguo punto 9) al 10))
+11. El préstamo de las instalaciones para actividades de Centros Educativos en las cuales al menos el 80% de las personas participantes sean colegiadas, será aprobado por el Director Ejecutivo.
+(Corrida la numeración el punto anterior mediante sesión N° 043-2017 del 9 de mayo del 2017 que lo pasó del antiguo punto 10) al 11))
+12. El horario de los centros de recreo es el siguiente:
+● Centro de recreo Alajuela: de martes a domingo de 8:00 a. m. a 5:00 p. m. Cuando la hora de ingreso para uso del gimnasio o aguas temperadas sea posterior a las 5:00 p. m. de lunes a viernes, solo podrán ingresar personas mayores de 17 años que tengan carné del Colegio, por lo que no se permite el ingreso o permanencia de menores de 17 años después de esta hora.
+● Centros de recreo de San Carlos y Pérez Zeledón: de martes a domingo de 9:00 a. m. a 5:00 p. m.
+● Para los demás centros de recreo regionales: de martes a domingo de 8:30 a. m. a 4:30 p. m.
+(Corrida la numeración el punto anterior mediante sesión N° 043-2017 del 9 de mayo del 2017 que lo pasó del antiguo punto 11) al 12))
+(Así reformado el punto anterior mediante sesión N° 043-2017 del 9 de mayo del 2017)
 ESPECÍFICAS:
 1. Toda persona que permanezca dentro de las instalaciones de los Centros de Recreo debe de portar su brazalete correspondiente de acuerdo con la condición respectiva, de lo contrario el Encargado del Centro de Recreo u otro colaborador debidamente identificado, podrá solicitarle a la persona que se registre nuevamente con el fin de verificar su condición, en caso de negativa deberá desalojar el centro de recreo.
 2. El préstamo de los accesorios para jugar Ping-pong, Pool y/o futbolín, así como balones de fútbol, Basquetball y Voleyball, se hará únicamente a las personas colegiadas y en horario de 9:00 a.m. a 4:30 p.m. contra la presentación del carné, si éstos llegaran a dañarse como consecuencia del maltrato del usuario, el mismo deberá reponer el artículo. Para la práctica de los deportes que lo requieran, la persona colegiada tendrá que traer los respectivos implementos o artículos deportivos.

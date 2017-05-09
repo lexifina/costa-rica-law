@@ -14,3 +14,4 @@ Manual de Políticas y Procedimientos del Departamento Administrativo (Uso de lo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-02-11 | la propia norma |
+| 2 | 2017-05-09 | Reglamento 43 (2017-05-09) |
