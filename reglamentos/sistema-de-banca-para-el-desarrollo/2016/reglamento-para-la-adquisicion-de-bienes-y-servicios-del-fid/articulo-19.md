@@ -1,0 +1,2 @@
+ARTÍCULO 19. CONFLICTOS DE INTERÉS
+Se prohíbe al FIDUCIARIO y a todos los miembros de la UNIDAD TECNICA DEL FINADE establecer todo tipo de relaciones con oferentes o proveedores, que mantengan algún grado de vinculación por consanguinidad o afinidad hasta el tercer grado, inclusive de parentesco con directores de la Junta Directiva, miembros de los comités, personal gerencial y administrativo del Banco Fiduciario, así como de las demás empresas que conformen su conglomerado financiero.
