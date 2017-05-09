@@ -1,0 +1,4 @@
+Artículo 2° -Se oficializa el nuevo Manual de Auscultación Visual de Pavimentos de Costa Rica. Guía para Profesionales y Guía para Técnicos. (MAV-2016), dictaminado favorablemente por la Comisión Revisora, las cuales serán instrumento de aplicación y observancia técnico/jurídica en el desarrollo y ejecución de las obras públicas, contratadas por el Ministerio de Obras Públicas y Transportes ( en sentido laxo) y por el Estado costarricense.
+Manual nuevo a oficializarse | MAV-2016 Manual de Auscultación Visual de Pavimentos de Costa Rica (Guía para Profesionales y Guía para Técnicos)
+(Nota de Sinalevi: Por el tipo de formato y lo extenso de su contenido el Manual de Auscultación Visual de Pavimentos de Costa Rica “Guía para Técnicos. (MAV-2016)” debe ser consultado Aquí)
+(Nota de Sinalevi: Por el tipo de formato y lo extenso de su contenido el Manual de Auscultación Visual de Pavimentos de Costa Rica “Guía para Profesionales. (MAV-2016)” debe ser consultado Aquí)

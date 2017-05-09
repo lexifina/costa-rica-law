@@ -1,0 +1,1 @@
+Transitorio 1.-Todos los procedimientos de contratación administrativa ya iniciados y proyectos de obras públicas que se estén ejecutando, no podrán ser afectados de forma retroactiva con la entrada en vigencia del presente decreto, respetándose con ello los derechos y situaciones jurídicas ya pactados y consolidados contractualmente.
