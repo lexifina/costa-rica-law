@@ -1,0 +1,4 @@
+MUNICIPALIDAD DEL CANTÓN QUEPOS
+SECRETARÍA DEL CONCEJO
+El Concejo Municipal de Quepos, mediante acuerdo tomado en sesión ordinaria 096-2017 de fecha 10 de abril de 2017, según artículo setimo, informes varios, acuerdo 02, acuerda lo siguiente:
+Acuerdo N° 02: El Concejo acuerda: acoger y aprobar en todos sus términos el Dictamen CMAJ-031-2017, de la Comisión Municipal de Asuntos Jurídicos. Por tanto: agregar a los requisitos para otorgar resoluciones de ubicación: 1) Como requisito indispensable que cuenten con plano catastrado. 2) Cumplir al menos con uno de los siguientes requisitos: Aportar documento acreditando que tiene el trámite de escritura en vía judicial, Acreditar que tienen más de diez años de pagar impuesto de bienes inmuebles del terreno, Presentar acta notarial de que la escritura está en trámite en el Registro Nacional de la Propiedad. Publicar dichos requisitos en el diario oficial La Gaceta. Se acuerda lo anterior por unanimidad (cinco votos).
