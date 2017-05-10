@@ -20,3 +20,4 @@ Reglamento de Contratación Administrativa de la Junta de Pensiones y Jubilacion
 | 5 | 2014-03-06 | Reglamento 0 (2014-03-06) |
 | 6 | 2015-01-30 | Reglamento 12 (2015-01-30) |
 | 7 | 2015-03-05 | Reglamento 28 (2015-03-05) |
+| 8 | 2017-05-10 | Reglamento 52 (2017-05-10) |
