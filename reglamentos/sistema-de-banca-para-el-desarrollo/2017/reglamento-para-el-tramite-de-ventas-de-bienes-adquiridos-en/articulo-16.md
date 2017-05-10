@@ -1,0 +1,1 @@
+Artículo 16.—Avalúos. La Unidad Técnica será la responsable de que cada uno de los bienes sujetos a venta, posean su respectivo avalúo; el cual no debe tener más de un año de vigencia, debe ser elaborado por peritos designados por el fiduciario; también podrán utilizarse avalúos realizados por la Dirección General de Tributación Directa cuya vigencia no supere el plazo indicado.

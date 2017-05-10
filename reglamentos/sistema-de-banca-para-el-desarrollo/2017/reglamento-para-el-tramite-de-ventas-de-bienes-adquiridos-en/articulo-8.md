@@ -1,0 +1,1 @@
+Artículo 8º—Del precio de venta. Servirá como base para la venta de un bien, con excepción de lo que se indica en el siguiente artículo, el valor consignado en el avalúo que realice un perito designado o contratado por el Fiduciario; se podrá utilizar el último avalúo que el Fideicomiso tenga en sus registros siempre y cuando su antigüedad no supere los 12 meses.

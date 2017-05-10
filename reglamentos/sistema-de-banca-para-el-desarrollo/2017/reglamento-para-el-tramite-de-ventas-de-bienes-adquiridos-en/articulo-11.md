@@ -1,0 +1,1 @@
+Artículo 11.—Venta Pública. La Unidad Técnica de FINADE publicará un anuncio de venta en un periódico de circulación nacional, al menos durante dos días naturales y consecutivos, debiendo establecer las condiciones de la venta.
