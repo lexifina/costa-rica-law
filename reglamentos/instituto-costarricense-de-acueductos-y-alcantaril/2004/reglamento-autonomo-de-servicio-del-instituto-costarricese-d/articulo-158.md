@@ -1,1 +1,2 @@
-Artículo 158.—La normativa vigente sobre la creación y funcionamiento del Fondo de Ahorro, Retiro y Garantía de AyA, así como el Acuerdo de Junta Directiva No. 87.269 del 21 de octubre de 1987, se mantienen inalterables.
+Artículo 158.— La administración, gestión y funcionamiento del Fondo de Ahorro, Retiro y Garantía (F.A.R.G), se regirá por su propio Reglamento y demás disposiciones que dicten esta Junta Directiva y la Junta Administradora (J.A.F.A.R.G), de acuerdo con sus respectivas competencias.
+(Así reformado por el artículo 50 del Reglamento del fondo de ahorro, retiro y garantía de los trabajadores del Instituto Costarricense de Acueductos y Alcantarillados (F.A.R.G), aprobado en sesión N° 30 del 10 de mayo de 2017)
