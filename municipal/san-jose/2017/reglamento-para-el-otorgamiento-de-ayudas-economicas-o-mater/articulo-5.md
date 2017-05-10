@@ -1,0 +1,6 @@
+Artículo 5º—De la disponibilidad presupuestaria:
+a) Todo beneficio que se apruebe y otorgue estará condicionado a la respectiva disponibilidad presupuestaria. Para tal efecto la Municipalidad deberá disponer del correspondiente contenido económico.
+b) La Comisión Técnica de Estudio de Solicitud deberá garantizar la reserva de un monto determinado en el presupuesto anual disponible, para efectos de atender situaciones de emergencia o desastre que puedan presentarse en el transcurso del año.
+c) En aquellas solicitudes presentadas y que no se disponga del presupuesto requerido quedarán en espera por un periodo no mayor a tres meses. Si el periodo sobrepasa los tres meses se deberá replantear la solicitud.
+d) En situaciones de aumento de la demanda del beneficio en contraposición a la disponibilidad presupuestaria, las profesionales en Trabajo Social seleccionarán las situaciones de mayor riesgo según la magnitud de la problemática para la familia.
+e) En caso de que un acontecimiento de grandes proporciones afecte a varios(as) trabajadores(as), la Municipalidad ayudará a tantas personas o familias como lo permitan los recursos establecidos anualmente en su Presupuesto Ordinario, destinado previamente para tales fines; o cuando estemos en presencia de casos calificados de amenaza, vulnerabilidad, riesgo o infortunio.

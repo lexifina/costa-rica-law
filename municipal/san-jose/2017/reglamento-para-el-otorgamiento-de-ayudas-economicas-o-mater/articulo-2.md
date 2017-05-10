@@ -1,0 +1,10 @@
+CAPÍTULO II
+Beneficiarios y requisitos
+Artículo 2º—Del ámbito de aplicación. La Municipalidad podrá otorgar ayudas a sus trabajadores(as), que enfrenten situaciones debidamente comprobadas de desgracia o infortunio, que lo ubican en una situación de vulnerabilidad y que afecte coyunturalmente la condición socioeconómica, entre las cuales este Reglamento contempla:
+a) Aquellos casos que presentan riesgo por desastre o por la manifestación propiamente de la emergencia. El riesgo está conformado tanto por la manifestación de amenazas de origen físico natural (huracanes, inundaciones, sismos, deslizamientos, sequía); por amenazas causadas por la acción humana (incendios, contaminación del ambiente) y por amenazas de origen tecnológico (materiales peligrosos) que ponen en peligro la vida humana, los bienes materiales y al medio ambiente en un momento y espacio determinado.
+b) Aquellos casos en que la condición de pobreza de un(a) trabajador(a) municipal no permita hacerle frente a una situación de calamidad doméstica que afecte al inmueble.
+c) Que la condición de pobreza no les permita cubrir las necesidades de accesibilidad de personas con discapacidad al domicilio.
+d) Que la condición de pobreza no les permita cubrir las pérdidas o daños de enseres domésticos indispensables que sean de uso constante y que fueron afectados por un desastre natural o incendio.
+e) En el caso de presentarse una situación de calamidad en funcionarios(as) que mantengan una relación consanguínea o por afinidad y que vivan bajo el mismo techo, solo se atenderá una sola solicitud.
+f) La ayuda económica se puede solicitar cada dos años a excepción de aquellas ocasiones en que por razones de emergencia requieran de una ayuda antes del plazo referido, de acuerdo con las prioridades que se determinen en cada situación particular. Los(as) profesionales que realizan la valoración, darán prioridad a las solicitudes del beneficio hechas por primera vez.
+g) Que la situación de calamidad demande una atención inmediata por la condición de emergencia.
