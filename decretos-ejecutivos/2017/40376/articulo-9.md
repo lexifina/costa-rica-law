@@ -1,0 +1,1 @@
+Artículo 9°. Para remociones y renuncias. En caso de conflicto de intereses, incompatibilidad, incompetencia o incumplimiento reiterado e injustificado a las sesiones de trabajo o a actividades encomendadas, se podrán remover o aceptar renuncias de los miembros nombrados con el acuerdo de por lo menos la mitad de sus miembros más uno.

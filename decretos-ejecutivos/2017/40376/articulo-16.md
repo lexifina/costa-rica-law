@@ -1,0 +1,1 @@
+Artículo 16°-Quejas o Denuncias. Las denuncias presentadas en relación con la afectación de los derechos fundamentales de la población en condición de discapacidad, deberán ser elevadas a conocimiento del respectivo Director o Jefe de Programa para las acciones que en derecho correspondan.

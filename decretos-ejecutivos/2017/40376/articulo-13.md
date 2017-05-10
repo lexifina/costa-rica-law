@@ -1,0 +1,2 @@
+Artículo 13 °-Disponibilidad de Tiempo. Los miembros de la CIAD deberán asistir a las sesiones, atender las diligencias o actividades propias de la Comisión, así como las tareas o responsabilidades que se le asignen o se acuerden a lo interno ele la Comisión.
+Las ausencias del propietario o el suplente, deben ser debidamente justificadas. Por su parte, los Directores de las unidades representadas con fundamento al Reglamento Autónomo de Servicios del Ministerio, otorgarán el permiso correspondiente a la persona designada, para participar en las sesiones de la CIAD.

@@ -1,0 +1,1 @@
+Artículo 15°-Será responsabilidad de la CIAD realizar y actualiza,· un inventario de funcionarios con alguna discapacidad. Este listado es de carácter confidencial y sólo será usado por la CIAD y la Comisión Especializada.

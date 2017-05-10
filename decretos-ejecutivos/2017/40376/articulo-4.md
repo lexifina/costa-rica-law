@@ -1,0 +1,5 @@
+CAPÍTULO II
+Objeto y Organización
+Artículo 4°-Objetivo y Ámbito de la CIAD
+a. Objetivo. La CIAD es el órgano fiscalizador en materia de discapacidad del más alto nivel en la Institución, cuya finalidad principal será la de garantizar la eliminación de toda forma de discriminación por discapacidad, velar por el cumplimiento del Ordenamiento Jurídico en materia de discapacidad y su Reglamento, así como cualquier otra normativa relacionada con la materia de discapacidad y velar porque se brinden idénticos derechos y oportunidades a todos los funcionarios.
+b. Ámbito. La CIAD fiscalizará en todas las dependencias del Ministerio y para todas las políticas y acciones que desarrolle, que se garantice el cumplimiento de la normativa establecida en materia de discapacidad, a fin de brindar los diferentes servicios de apoyo y ayudas técnicas que requieren los funcionarios con discapacidad, para el desempeño de sus labores y a los usuarios con discapacidad, para acceder los servicios que brinda el Ministerio.

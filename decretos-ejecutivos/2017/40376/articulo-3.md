@@ -1,0 +1,1 @@
+Artículo 3°-Infonnación y Comunicación. La CIAD vigilará que todas las Dependencias del Ministerio, adapten los sistemas ele información y comunicación, materiales divulgativos y los medios tecnológicos a las necesidades de las personas con discapacidad, para garantizar que toda la información del Ministerio se transmita en formato accesible para tocias personas.

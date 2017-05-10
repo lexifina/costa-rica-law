@@ -1,0 +1,1 @@
+Artículo 14°-Rendicíón de cuentas al Consejo Nacional de Personas con Discapacidad (CONAPDIS). La ClAD deberá elaborar un plan de trabajo anual, que debe ser remitido al CONAPDlS, a más tardar el primer trimestre de cada año. Asimismo, la CIAD deberá rendir informes semestrales sobre su constitución y el cumplimiento de sus funciones a dicha institución.
