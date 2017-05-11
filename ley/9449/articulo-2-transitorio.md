@@ -1,0 +1,1 @@
+TRANSITORIO II.- El Poder Ejecutivo, en un plazo máximo de doce meses a partir de la entrada en vigencia de esta ley, otorgará los recursos financieros necesarios y razonables para que la Unidad de Inteligencia Financiera, del Instituto Costarricense sobre Drogas (ICD) cuente con los recursos suficientes para el cumplimiento de las obligaciones establecidas en esta ley.
