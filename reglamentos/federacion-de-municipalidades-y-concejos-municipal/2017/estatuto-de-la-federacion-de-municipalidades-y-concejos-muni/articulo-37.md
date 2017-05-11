@@ -1,0 +1,1 @@
+Artículo treinta y siete: Las normas legales propias que rigen a las Municipalidades y Concejos Municipales de Distrito signatarias, se aplicarán a la Federación de Municipalidades y Concejos Municipales de Distrito del Pacifico Central en lo que no fueren incompatibles con sus especiales funciones.

@@ -1,0 +1,2 @@
+Artículo veintidós: De la Comisión Técnica de Desarrollo Regional.
+La Comisión Técnica de Desarrollo Regional es un órgano de apoyo y de asesoría del Concejo Directivo y estará conformada por los funcionarios municipales que designe cada uno de los representantes de las municipalidades y concejos municipales de distrito afiliadas a la Federación. También se podrán incorporar como miembros colaboradores los representantes de entidades públicas y privadas, que se determinen como necesarios para incidir positivamente en la Región.

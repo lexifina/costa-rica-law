@@ -1,0 +1,1 @@
+Artículo treinta y nueve: El personal municipal que se traslade en forma definitiva a prestar servicios en la Federación de Municipalidades y Concejos Municipales de Distrito del Pacifico Central conservará en ésta sus derechos adquiridos en los regímenes de pensiones o jubilaciones a que estén amparados.

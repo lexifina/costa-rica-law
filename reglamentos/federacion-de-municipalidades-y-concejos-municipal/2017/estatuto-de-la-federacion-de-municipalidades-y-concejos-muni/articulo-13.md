@@ -1,0 +1,1 @@
+Artículo trece: De la Presidencia. La Presidencia será electa por el concejo directivo por un periodo de dos años y podrá ser reelecto, no por más de tres periodos consecutivos. Siempre y cuando sea delegado oficial para el nuevo periodo que designe su municipio.

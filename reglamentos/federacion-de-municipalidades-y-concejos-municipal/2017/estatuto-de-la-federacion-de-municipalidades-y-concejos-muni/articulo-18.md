@@ -1,0 +1,1 @@
+Artículo dieciocho: Del vocal. El vocal sustituirá temporalmente por su orden y cuando lo amerite, a los miembros del Concejo Directivo, excepto al presidente. Será nombrada por el Concejo Directivo por un periodo de dos años y podrá ser reelecto, no por más de tres periodos consecutivos. Siempre y cuando sea delegado oficial para el nuevo periodo que designe su municipio.

@@ -1,0 +1,1 @@
+Artículo sexto: La Federación ejecutará su presupuesto anual conforme al correspondiente Plan Operativo; y el Plan Estratégico, y estos deberán contar con la debida aprobación de la Contraloría General de la República de Costa Rica.

@@ -1,0 +1,1 @@
+Artículo cuarto: De la representación Legal. La representación legal de la FEMUCPAC la tendrán simultáneamente la Presidencia y la Dirección Ejecutiva. En ausencia de la presidencia por razones de permiso u ausencia temporal debidamente acreditada la vicepresidencia ostentará el cargo de presidente con las mismas atribuciones, incluyendo su representación legal.

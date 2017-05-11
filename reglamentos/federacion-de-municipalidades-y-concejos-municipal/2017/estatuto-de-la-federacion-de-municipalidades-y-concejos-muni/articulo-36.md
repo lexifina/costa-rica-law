@@ -1,0 +1,1 @@
+Artículo treinta y seis: La separación de una de las Municipalidades integradas a la Federación de Municipalidades y Concejos Municipales de Distrito del Pacifico Central, no invalida los acuerdos en vía de ejecución.
