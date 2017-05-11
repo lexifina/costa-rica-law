@@ -1,0 +1,5 @@
+9. ENTREGA DEL PAGO POR SERVICIO AMBIENTAL HÍDRICO
+De previo a la formalización del contrato, la Unidad de Gestión Ambiental solicita a la Unidad de Adquisiciones la inscripción del Beneficiarlo al registro de proveedores y la orden de compra, para lo cual remitirá el formulario descrito en el Anexo 9, con los respectivos documentos.
+Una vez confeccionada la orden de Compra, la Unidad de Gestión Ambiental solicita al Beneficiario una factura para gestionar el Pago de Servicio Ambiental hídrico conforme al procedimiento establecido por la Unidad de Tesorería.
+Los desembolsos siguientes, para cualquiera de las modalidades, se realizan posterior a la realización de la visita de inspección anual y una vez recibido el Informe de Regencia Forestal detallando el cumplimiento del Plan de Manejo y el contrato de regencia vigente. Para tramitar los pagos anuales el Beneficiario deberá presentar la respectiva factura.
+El Beneficiario puede por escrito autorizar a la ESPH, S.A. la deducción de honorarios por los servicios de regencia forestal mediante una carta de autorización de honorarios (Anexo 10).
