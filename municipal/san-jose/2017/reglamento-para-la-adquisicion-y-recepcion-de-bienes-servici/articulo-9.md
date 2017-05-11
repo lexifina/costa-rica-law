@@ -1,0 +1,1 @@
+Artículo 9. Requisitos Previos. Previo a la decisión inicial de contratación, la unidad usuaria deberá verificar la existencia de la partida presupuestaria (contenido) mediante el sistema Merlink, así como la verificación de existencias ante el Almacén Municipal.

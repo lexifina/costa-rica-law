@@ -1,0 +1,1 @@
+Artículo 45. Rescisión contractual. La rescisión del contrato se regirá conforme a lo establecido en la LCA y el reglamento a dicha ley, siguiendo los lineamientos del instructivo elaborado por el DRMS, avalado por el Departamento de Desarrollo Organizacional.
