@@ -1,0 +1,1 @@
+Artículo 8°—Queda prohibido fraccionar la adquisición de bienes y servicios, así como de autorizar gastos sin contenido presupuestario, no se podrán tramitar contrataciones de servicios profesionales bajo los supuestos de este Reglamento. Se considerará falta grave el incumplimiento de estas disposiciones.

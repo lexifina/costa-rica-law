@@ -1,0 +1,1 @@
+Artículo 2°—Las adquisiciones que se hagan al amparo de este Reglamento, deben obedecer a necesidades de servicios o bienes no incluidos en el inventario de bodega de Proveeduría. Además, las adquisiciones deben estar apegadas a los valores de Servicio al Cliente, Excelencia Operativa, Trabajo en Equipo e Integridad y a las normas internas de la Municipalidad.

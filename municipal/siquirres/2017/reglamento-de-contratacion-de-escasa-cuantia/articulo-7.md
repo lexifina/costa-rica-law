@@ -1,0 +1,1 @@
+Artículo 7°—Con el fin de asegurar el control de los bienes y servicios adquiridos al amparo de este reglamento, se aplicará el proceso de plaqueo de los bienes adquiridos por la unidad competente según corresponda.
