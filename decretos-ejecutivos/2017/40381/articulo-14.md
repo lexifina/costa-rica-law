@@ -1,0 +1,1 @@
+Artículo 14.- Obligatoriedad. El acatamiento y aplicación de este Reglamento, es de carácter obligatorio para los encargados de las unidades ejecutoras autorizadas en el presente reglamento, que hagan uso de las subpartidas presupuestarias correspondientes para la adquisición de alimentos y bebidas.

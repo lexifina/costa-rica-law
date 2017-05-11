@@ -1,0 +1,1 @@
+Artículo 8.- Exclusión. Se excluye de las limitaciones detalladas en los artículos anteriores la adquisición de agua, la cual se autoriza únicamente para la Junta Directiva, la Dirección Ejecutiva, el Departamento de Servicio al Usuario, la Contraloría de Servicios y el Consultorio Médico Institucional.
