@@ -1,0 +1,1 @@
+2º—El Cuerpo de Paz, en la persona de su Director o quien ostente ese cargo, deberá comunicar formalmente la Dirección General de Migración y Extranjería, el nombre, número de pasaporte, nombre del proyecto, fecha de entrada y salida del país de cada miembro del Cuerpo de Paz que será destinado a Costa Rica.

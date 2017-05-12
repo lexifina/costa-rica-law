@@ -1,0 +1,1 @@
+4º—Se autoriza a la Dirección General de Migración y Extranjería a aplicar la exoneración, reconocida mediante la presente resolución en los rubros que correspondan a los “derechos migratorios”, a los funcionarios extranjeros del Cuerpo de Paz, cuyas calidades conforme a lo establecido en el resultando N° 2 anterior, sean comunicadas formalmente por el Cuerpo de Paz.
