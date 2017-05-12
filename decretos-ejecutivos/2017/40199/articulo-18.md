@@ -1,0 +1,2 @@
+Artículo 18. Plan de Acción Nacional.
+La Secretaria Técnica con apoyo de la Comisión Nacional de Datos Abiertos elaborara anualmente el Plan de Acción, en el que se establecerán los compromisos referentes a la apertura de datos públicos derivados de este decreto; con el ánimo de estimular la generación y reutilización de los mismos. El plan deberá ser actualizado anualmente de acuerdo a las necesidades de la sociedad y los recursos con los que cuenta la administración.

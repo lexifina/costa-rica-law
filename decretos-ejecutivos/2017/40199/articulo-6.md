@@ -1,0 +1,2 @@
+Artículo 6. Observancia de las disposiciones.
+Las instituciones públicas a las que refiere el ámbito de aplicación, observaran las disposiciones que, en su caso, emita Secretaria Técnica de la política Nacional de Apertura de Datos Públicos, en las que se establecerán las directrices para los datos abiertos en sus procesos de generación, recolección, conversión, publicación, administración y actualización en formatos abiertos.

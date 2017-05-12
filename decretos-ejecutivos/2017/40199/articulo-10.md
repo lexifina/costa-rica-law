@@ -1,0 +1,2 @@
+Artículo 10. Grupo de Enlaces Institucionales.
+El Grupo de Enlaces Institucionales estará conformado por las personas funcionarias designadas como oficiales de acceso a la información, según el Decreto Ejecutivo número 40200-MP-MEIC-MC del 27 de abril de 2017. Dichos oficiales tendrán la función de liderar el proceso de publicación de datos abiertos con un equipo multidisciplinario de la institución; de conformidad con la demanda tanto de sociedad civil como de otras instituciones públicas, y además promover el reuso de los datos publicados.

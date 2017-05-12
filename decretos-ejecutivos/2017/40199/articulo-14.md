@@ -1,0 +1,2 @@
+Artículo 14. Vinculación Ciudadana.
+Quienes implementen procesos de apertura de datos de carácter público deben generar espacios y mecanismos de participación y realimentación con diversos actores de la sociedad y el ecosistema de datos, que permitan la generación y publicación de conjuntos de datos de carácter público, en formato abierto, neutral e interoperable; de interés para las personas, con la finalidad de que su contenido sea utilizado en la toma de decisiones, el acceso a bienes y servicios públicos y la solución colaborativa de problemas que les afecten.
