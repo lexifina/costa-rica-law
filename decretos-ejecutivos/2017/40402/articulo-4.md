@@ -1,0 +1,1 @@
+Artículo 4° - El INFOCOOP remitirá al CONACOOP, con copia a la Comisión Permanente de Cooperativas de Autogestión, en un plazo no menor a treinta días naturales de previo a la celebración de las Asambleas Sectoriales, la clasificación oficial de las Cooperativas y Organismos Cooperativos de segundo grado.
