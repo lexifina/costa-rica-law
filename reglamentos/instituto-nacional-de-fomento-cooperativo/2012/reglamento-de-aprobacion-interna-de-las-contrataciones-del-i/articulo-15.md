@@ -1,1 +1,0 @@
-Artículo 15.—Situación de las contrataciones que por su monto, no requieran aprobación interna. Para la ejecución de las contrataciones que no requieran de refrendo contralor ni de aprobación interna, será responsabilidad de la Proveeduría verificar, en lo que corresponda, que estén acreditados en el expediente los aspectos señalados en el artículo 10 del presente reglamento.

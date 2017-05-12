@@ -1,5 +1,0 @@
-CAPÍTULO III
-Disposiciones finales
-Artículo 14.—Responsabilidad del servidor. Si a pesar de la inexistencia o denegación de la aprobación interna, la ejecución contractual se realiza mediante actividades o actuaciones, éstas generan responsabilidad del servidor que las ordene o ejecute, o bien que pudiendo impedirlo no lo hizo. Esta responsabilidad podrá ser de tipo disciplinario, civil o incluso penal, atendiendo la naturaleza de la actuación, y siguiendo para ello la normativa que resulte aplicable en cada caso. Esta disposición se aplicará igualmente, para el caso de modificaciones a los elementos esenciales del contrato que no cuenten con el cumplimiento del citado requisito.
-El incumplimiento de los plazos previstos en el artículo 9 del presente reglamento, dará lugar a la aplicación de las sanciones establecidas en los artículos 96 y 96 bis de la Ley de Contratación Administrativa.
-Para la determinación de responsabilidad y la aplicación de sanciones, deberá observarse el debido proceso.
