@@ -1,0 +1,2 @@
+Artículo 13.- Del quórum y las votaciones. El quórun1 para que el Comité pueda sesionar válidamente será de la mitad más uno (tres) del total de sus integrantes. Para la adopción de los acuerdos será necesaria la mayoría calificada de los miembros presentes.
+En todos aquellos casos en que medie empate en la votación de algún asunto entre los miembros de la Comisión, el Presidente ejercerá el voto calificado.

@@ -1,0 +1,1 @@
+Artículo 17.- Normativa supletoria. En lo no dispuesto expresamente por este reglamento, le serán aplicables al funcionamiento y manejo del Comité Gerencial, lo dispuesto en los artículos del 49 al 58 de la Ley No. 6227, Ley General de la Administración Pública del 2 de mayo de 1978.

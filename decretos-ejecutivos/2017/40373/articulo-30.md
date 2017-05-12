@@ -1,0 +1,7 @@
+Artículo 30.- Control de acceso 2 la Red Institucional. El acceso a la Red Institucional, se regirá por las siguientes condiciones:
+1-. Las solicitudes de creación de usuario para el acceso a la red de recursos tecnológicos, deberán ser requeridas formalmente, al Departamento de Informática, por los titulares subordinados. Para estos efectos, el Departamento de Informática tendrá la potestad de definir los niveles de acceso, la asignación de los roles de seguridad y las credenciales a la red de recursos tecnológicos, así como su nivel de complejidad.
+2-. Las contraseñas que define cada usuario, son intransferibles1 de uso personal exclusivo y confidencial, deben cambiarse periódicamente y no facilitarse a terceros.
+3-. Cada funcionario es responsable, cuando se encuentre ausente de su área de trabajo, de bloquear o cerrar las sesiones de trabajo en aplicaciones, accesos remotos, correo, y similares, de manera que ninguna otra persona pueda usar los servicios o sistemas con sus credenciales de usuario.
+4-. El Titular Subordinado comunicará al Departamento de Informática a cual funcionario se le asignará el equipo de cómputo, quien será responsable de velar por los activos asignados y por los cambios que se hagan.
+5-, Es deber de los Titulares Subordinados, comunicar al Departamento de Informática, en cuanto acontezcan, de cualquier movimiento de personal que implique cambios en la
+asignación de los recursos tecnológicos.

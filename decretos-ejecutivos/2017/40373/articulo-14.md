@@ -1,0 +1,3 @@
+Artículo 14.-Ausencias y tardías. Cuando motivos especiales o de fuerza mayor, impidan a un integrante la asistencia a una sesión, deberá justificar la ausencia, por la vía establecida para ello, previo a la hora de inicio de la sesión que corresponda. En caso de emergencias, las justificaciones podrán aceptarse con posterioridad al acaecimiento del hecho.
+Si un miembro se ausenta por más de tres sesiones consecutivas, sin justificación, será
+destituido de este cargo y el miembro suplente ocupará su lugar. De esto se informará a la Jefatura inmediata del funcionario destituido, para que se tomen las medidas disciplinarias correspondientes.

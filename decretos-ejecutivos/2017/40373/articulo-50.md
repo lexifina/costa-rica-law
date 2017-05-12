@@ -1,0 +1,1 @@
+Artículo 50.- Responsabilidad del contenido de la información. El Departamento de Informática no es responsables del contenido de los documentos electrónicos propiedad del usuario, almacenados en el equipo propiedad de la institución, lo que quedará bajo su entera responsabilidad.

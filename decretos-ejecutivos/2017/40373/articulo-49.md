@@ -1,0 +1,1 @@
+Artículo 49- Actualización de los programas informáticos. Los programas informáticos serán actualizados conforme se adquieran otros nuevos, y recaerá en el Departamento de Informática la determinación de la prioridad con que se realizarán dichas actualizaciones.

@@ -1,0 +1,3 @@
+Artículo 37.- Unidades de almacenamiento y respaldo. Los funcionarios del MCJ utilizarán unidades de respaldo y almacenamiento de datos, fijos o portátiles, únicamente para fines laborales.
+El funcionario será el responsable de la información almacenada en el equipo asignado por la Institución para el ejercicio de sus funciones.
+Cuando el Departamento de Informática o un superior inmediato del usuario tengan conocimiento que un funcionario almacena en cualquier dispositivo, archivos que atenten contra la moral o las buenas costumbres, deberá comunicarse por escrito ante el Jerarca Ministerial para lo que corresponda.

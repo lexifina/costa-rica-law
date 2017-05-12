@@ -1,0 +1,1 @@
+Articulo 47 ... Aplicación del software libre. El MCJ podrá utilizar el software libre en sus diferentes opciones de sistemas de infom1a,cíón y el manejo de datos, garantizando ante todo el respeto a los derechos de propiedad intelectual.

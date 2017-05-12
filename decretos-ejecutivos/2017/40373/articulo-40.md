@@ -1,0 +1,4 @@
+CAPÍTULO VII.
+DE LA ADMINISTRACIÓN DEL SOFTWARE
+Artículo 40.- Resguardo de Licencias de Software: Los originales de las licencias de software estarán en resguardo del Departamento de Informática, quien será el responsable de su adecuado almacenamiento. Para esto tanto se deberá contar con un software o herramienta que le permita llevar un inventario de las licencias adquiridas y de igual forma un control de los equipos y usuarios donde han sido instaladas.
+El Titular Subordinado podrá solicitar al Departamento de Informática, una revisión técnica del equipo informático en aquellas oficinas donde existan indicios de la utilización de programas que requieren autorización de uso, y no cuentan con ésta, o sin la licencia correspondiente, atentando contra las disposiciones vigentes en materia de Propiedad Intelectual.

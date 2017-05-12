@@ -1,0 +1,1 @@
+Artículo 41. - Autorización de software: En caso de que los funcionarios del MCJ requieran almacenar, instalar, o ejecutar, software diferente al instalado en sus equipos, deberán justificarlo ante el Titular Subordinado, quien requerirá el permiso respectivo al Departamento de Informática.

@@ -1,0 +1,1 @@
+Artículo 33.- Traslados de Equipos. Los equipos de cómputo solo se podrán trasladar de un área administrativa, con la justificación del Titular Subordinado, quien lo comunicará al Departamento de Informática y al Área de Control de Bienes de la Proveeduría Institucional, mediante la utilización del formulario respectivo.

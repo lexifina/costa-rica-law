@@ -1,0 +1,1 @@
+Artículo 22.. Deber de confidencialidad. Los funcionarios del Departamento de Infom1ática, encargados de la administración de los servicios, deberán guardar confidencialidad sobre la información, que, con ocasión de sus funciones llegaren a conocer. Por ningún motivo proporcionarán inf01mación a personas no autorizadas, de acuerdo con lo que establece el presente reglamento.

@@ -1,0 +1,5 @@
+Artículo 8.- Fines. El Comité Gerencial de Informática tendrá los siguientes fines:
+1-, Asesorar al nivel jerárquico superior, en la aprobación de los resultados de los estudios de factibilidad, del Plan Estratégico y el Plan Operativo Anual de la función de informática y en la emisión de políticas relativas al Sistemas de Información Computarizados.
+2-. Formular las especificaciones o guías de referencia para la elaboración del estudio preliminar de los diferentes proyectos que estén incluidos en el Plan Estratégico,
+3-. Conforme los resultados del estudio preliminar citado, si se necesitara, el Comité elaborará un estudio de factibilidad, para la adquisición de hardware y software y para el desarrollo de nuevos Sistemas de Información Computarizados; definiendo con claridad su alcance y objetivos, Posteriormente preparará el informe correspondiente en conformidad con las especificaciones emitidas.
+4-. Controlar y asegurar que el nuevo equipo sea contratado bajo criterios de oportunidad y con una relación adecuada de beneficio-costo.
