@@ -13,3 +13,4 @@ Permisos con goce de salario para asistir a actividades deportivas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-07 | la propia norma |
+| 2 | 2017-05-15 | Circular 76 (2017-05-15) |
