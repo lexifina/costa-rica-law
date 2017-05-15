@@ -1,0 +1,14 @@
+Artículo 3º -Definiciones: Para efectos de este Reglamento se entiende por:
+Concejo: Concejo de la Municipalidad de Santa Cruz.
+CGR: Contraloría General de la República.
+La Municipalidad: Municipalidad de Santa Cruz.
+La Proveeduría: El Departamento de Proveeduría Municipal.
+La Alcaldía: El (La) Alcalde (sa).
+La Comisión: Comisión de Recomendación de Adjudicaciones.
+Unidades Solicitantes: Departamentos o unidades municipales que integran la estructura administrativa de la Municipalidad de Santa Cruz.
+SIAC: Sistema Integrado de la Actividad Contractual.
+LCA: Ley de Contratación Administrativa. Ley Nº 7494.
+RLCA: Reglamento a la Ley de Contratación Administrativa. Decreto Ejecutivo Nº 33411-H.
+El Código: El Código Municipal. Ley Nº 7794.
+RRCAP: Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública.
+Resolución de la Contraloría General de la República Nº R-CO-33 del 8 de marzo del 2006.

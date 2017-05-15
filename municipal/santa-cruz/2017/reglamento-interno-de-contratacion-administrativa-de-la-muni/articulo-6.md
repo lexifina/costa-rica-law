@@ -1,0 +1,3 @@
+SECCIÓN II
+Alcalde (sa) Municipal
+Artículo 6º-Jerarca Institucional: El Alcalde (sa) es el Jerarca de la Institución en materia de contratación administrativa, consecuencia de ello, es la instancia competente para dictar el acto de adjudicación de las contrataciones directas o de escaso monto, que promueva esta Municipalidad, así como aquellos procesos de adquisición de bienes y servicios excluidos de los procedimientos ordinarios de contratación y aquellas contrataciones que sean autorizados por la Contraloría General de República siempre y cuando no supere el límite establecido por el Ente Contralor para las contrataciones directas.

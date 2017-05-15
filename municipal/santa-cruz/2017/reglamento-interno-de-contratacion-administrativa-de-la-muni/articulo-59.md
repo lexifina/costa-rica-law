@@ -1,0 +1,1 @@
+Artículo 59.-Procedimiento para la adquisición de bienes y servicios mediante Licitación Pública: La adquisición de bienes y servicios mediante Licitación Pública se realizará en estricto apego al Manual de Procedimientos que la Municipalidad establezca para ello; y de conformidad con la normativa vigente.

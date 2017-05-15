@@ -1,0 +1,1 @@
+Artículo 65.-Procedimiento para la adquisición de Bienes y Servicios mediante Contratación Directa de Escasa Cuantía: para llevar a cabo la adquisición de bienes y servicios en La Municipalidad se realizará en estricto apego al Manual de Procedimientos que la Municipalidad establezca para ello.

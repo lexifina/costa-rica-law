@@ -1,0 +1,1 @@
+Artículo 36.-Formalidades del pedido: El respectivo formulario de Solicitud para la Adquisición de Bienes y Servicios (Orden de Pedido) deberá estar autorizado por la jefatura de la Unidad Solicitante quien será el funcionario (a) responsable de verificar y justificar la efectiva necesidad del bien, servicio u obra.
