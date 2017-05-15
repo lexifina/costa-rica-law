@@ -14,3 +14,4 @@ Reglamento sobre Gastos Fijos y adquisición de bienes y servicios de competenci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-12 | la propia norma |
+| 2 | 2017-05-15 | Reglamento municipal 86 (2017-05-15) |
