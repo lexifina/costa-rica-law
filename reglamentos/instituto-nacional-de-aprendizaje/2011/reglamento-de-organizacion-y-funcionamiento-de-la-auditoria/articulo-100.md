@@ -1,1 +1,0 @@
-Artículo 100.—Derogatoria del reglamento anterior. El presente Reglamento, aprobado por la Junta Directiva del Instituto Nacional de Aprendizaje mediante acuerdo Nº 022-2011-JD, tomado en la sesión Nº 4472 del 14 de febrero del 2011, deroga el Reglamento de Organización y Funciones de la Auditoría, publicado en La Gaceta Nº 102 del 24 de agosto del 2007.

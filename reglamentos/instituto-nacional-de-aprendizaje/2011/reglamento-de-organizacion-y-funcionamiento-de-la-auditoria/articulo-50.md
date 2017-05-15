@@ -1,1 +1,0 @@
-Artículo 50.—Enfoque de la actividad de Auditoría. La Auditoría Interna debe ejercer su actividad de auditoría con un enfoque estratégico, sistémico, integral y de mejoramiento continuo de su gestión bajo la ponderación de criterios relacionados con la materialidad (importancia financiera), riesgo, impacto social y auditabilidad.

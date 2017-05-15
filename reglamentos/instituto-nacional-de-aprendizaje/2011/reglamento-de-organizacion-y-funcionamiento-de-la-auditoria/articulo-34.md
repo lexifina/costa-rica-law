@@ -1,4 +1,0 @@
-SECCIÓN II
-Definición de relaciones y coordinaciones internas
-y externas para el ejercicio de la Auditoría Interna
-Artículo 34.—Relaciones y coordinaciones. Las relaciones de la Auditoría Interna del Instituto Nacional de Aprendizaje con la Junta Directiva del INA, los titulares subordinados del INA y otras instancias internas para efectos de la fiscalización, los servicios de auditoría y preventivos, serán definidas por el Auditor Interno, acorde con la normativa que las rige. Dicha definición se realizará atendiendo principios de lógica, razonabilidad y oportunidad. También deberá definirse el plazo en el cual debe suministrarse lo requerido, considerando además, el grado de complejidad y la urgencia que represente la información.

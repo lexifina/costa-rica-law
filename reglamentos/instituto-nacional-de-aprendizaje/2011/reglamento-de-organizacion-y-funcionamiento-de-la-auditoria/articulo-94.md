@@ -1,1 +1,0 @@
-Artículo 94.—Otras regulaciones administrativas. En cuanto a las regulaciones administrativas aplicables al personal de la Auditoría Interna deberá atenderse lo dispuesto en los artículos 24 y 28 de la Ley General de Control Interno, con las justificaciones pertinentes.

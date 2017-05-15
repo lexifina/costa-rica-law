@@ -1,1 +1,0 @@
-Artículo 82.—Delegación de funciones. El Auditor Interno podrá delegar en su personal sus funciones, utilizando criterios de idoneidad y conforme lo establecen los artículos 89 y siguientes de la Ley General de la Administración Pública.

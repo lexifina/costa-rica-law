@@ -1,1 +1,0 @@
-Artículo 26.—Nombramiento. Los nombramientos de la persona Auditora y Subauditora Internas serán por tiempo indefinido, y los hará la Junta Directiva del Instituto Nacional de Aprendizaje. Tales nombramientos se realizarán por concurso público promovido por el INA.

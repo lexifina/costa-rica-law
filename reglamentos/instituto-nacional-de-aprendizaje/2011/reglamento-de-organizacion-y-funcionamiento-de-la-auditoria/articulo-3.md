@@ -1,1 +1,0 @@
-Artículo 3º—Concepto de la actividad de Auditoría Interna. La Auditoría Interna debe funcionar como una actividad independiente, objetiva y asesora, que proporciona seguridad razonable al INA, en la medida en que valida y mejora sus operaciones.

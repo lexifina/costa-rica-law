@@ -1,1 +1,0 @@
-Artículo 93.—Incorporación de personal especializado. El Auditor o Auditora Interna debe gestionar -cuando se requiera- la incorporación de profesionales y técnicos de diferentes disciplinas, funcionarios o no del Instituto Nacional de Aprendizaje, para que lleven a cabo labores de su especialidad en apoyo a las auditorías que realice la Unidad a su cargo.

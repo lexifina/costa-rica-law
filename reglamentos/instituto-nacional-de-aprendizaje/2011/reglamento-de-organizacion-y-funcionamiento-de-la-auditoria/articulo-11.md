@@ -1,1 +1,0 @@
-Artículo 11.—Discreción. El personal que participa en el proceso de auditoría en la Auditoría Interna del INA debe mantener la reserva y la discreción debidas respecto de la información obtenida durante el proceso de auditoría, y sólo deberá revelarla a terceros, para los efectos de cumplir con requerimientos legales.
