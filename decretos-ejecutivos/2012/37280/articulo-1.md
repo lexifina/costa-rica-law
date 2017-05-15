@@ -1,4 +1,5 @@
 N° 37280 -COMEX-MEIC
+(Nota de Sinalevi: Mediante el artículo 2° del decreto ejecutivo N° 40454 del 15 de mayo de 2017, “Publica el Acuerdo N° 1-2016 (COMIECO-LXXVII) del 1 de setiembre de 2016 y su Anexo: "Guía para la Interpretación del Reglamento Técnico Centroamericano sobre Etiquetado General de los Alimentos Previamente Envasados (Preenvasados)"), se indica reformar el presente decreto ejecutivo de conformidad con los numerales 1 y 3 de la parte dispositiva del Acuerdo N° 1-20 16 (COM1ECO-LXXVII) de fecha 01 de setiembre de 2016.)
 LA PRESIDENTA DE LA REPÚBLICA
 Y LAS MINISTRAS DE COMERCIO EXTERIOR
 Y DE ECONOMÍA, INDUSTRIA Y COMERCIO
