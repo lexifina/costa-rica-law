@@ -1,0 +1,1 @@
+ARTÍCULO 5° .- No se concede el presente asueto a los servidores policiales que pertenezcan a los cuerpos policiales adscritos al Ministerio de Seguridad Pública, en virtud de que su labor no puede ser interrumpida, en aras del mantenimiento del orden público y por lo dispuesto en el artículo 8 de la Ley Orgánica del Ministerio de Seguridad Pública Nº 5482.
