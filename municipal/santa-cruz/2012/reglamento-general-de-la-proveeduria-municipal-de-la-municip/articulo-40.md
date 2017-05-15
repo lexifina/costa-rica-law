@@ -1,6 +1,0 @@
-Artículo 40.—Responsabilidades del órgano supervisor. Al órgano supervisor o parte técnica designada durante la ejecución contractual, le corresponderá lo siguiente:
-a) Velar porque durante la ejecución y la recepción de los bienes, las obras y/o servicios se cumpla con lo pactado, conforme lo establece la LCA y RLCA.
-b) Asignar personal capacitado para la adecuada y/o correcta fiscalización del contrato desde el principio hasta la recepción definitiva.
-c) Reportar a la Proveeduría cualquier anomalía o incumplimiento que se presente durante la ejecución a efecto de que se valore la resolución contractual, ejecución de garantías, aplicación de multas, cláusulas penales, sanciones, etc.
-d) Velar por que la Administración cumpla con las obligaciones pactadas y con lo dispuesto en la LCA y su reglamento. En el caso de las contrataciones de obra, la orden de inicio se dará a más tardar dentro de los 15 días hábiles siguientes al refrendo del contrato por parte de la Contraloría General de la República, cuando corresponda, o de la aprobación municipal esto orientado a que el contratista pueda iniciar sus labores lo más pronto posible.
-e) En las ejecuciones de obras, velará porque los materiales que le provee la municipalidad al contratista, sean utilizados en cantidad y calidad de forma eficiente.

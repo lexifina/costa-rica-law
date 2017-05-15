@@ -1,1 +1,0 @@
-Artículo 52.—Cesión: Los derechos y obligaciones derivados de un contrato en ejecución o listo para iniciarse podrán ser cedidos a un tercero, siempre que no se trate de una obligación personalísima. Los requisitos y condiciones de la cesión se regularán de conformidad con el numeral 209 del RLCA.
