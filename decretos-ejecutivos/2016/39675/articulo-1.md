@@ -29,11 +29,11 @@ ACUERDA:
 5. Agradecer al Banco Interamericano de Desarrollo (BID), a la Agencia de los Estados Unidos para el Desarrollo Internacional (USAID) y a otros organismos internacionales, por la asistencia técnica brindada en la formulación de esta Estrategia. Asimismo, los exhortamos a que continúen brindando su apoyo en el proceso de implementación de esta Estrategia.
 6. El presente Acuerdo surte efectos Inmediatamente y será publicado por los Estados Parte.
 San Salvador, El Salvador, 22 de octubre de 2015
-[imagen]
 infrascrita Secretaria General de la Secretaría de Integración Económica Centroamericana (SIECA) CERTIFICA: Que las dos (2) fotocopias que anteceden a la presente. impresas únicamente en su anverso, rubricadas y selladas con el sello de la SIEGA, reproducen fielmente el Acuerdo No. 01-2015 (COMIECO-LXXIII), adoptado por el Consejo de Ministros de Integración Económica, el veintidós (22) de octubre dos mil quince (2015), de cuyos originales se reprodujeron. Y, para remitir a los Estados Parte para su correspondiente publicación, extiendo la presente copia certificada en la ciudad de Guatemala, el veintinueve (29) de octubre de dos mil quince (2015). -------------------------------------------------------------------------------------------------------
 Estrategia Centroamericana
 De Facilitación del Comercio y Competitividad
 Con énfasis en Gestión Coordinada de Fronteras.
+(Nota de Sinalevi: Mediante el artículo 2° del decreto ejecutivo N° 40435 del 15 de mayo del 2017, Publica Resolución N° 376-2016 (COMIECO-LXXVII) de fecha 01 de septiembre del 2016 y sus Anexos: Acelerar la Ejecución de las 5 medidas prioritarias de corto plazo contempladas en la "Estrategia Centroamericana de Facilitación del Comercio y Competitividad, se acordó modificar el decreto ejecutivo N° 39675 del 3 de marzo de 2016, “Publica Acuerdo N° 01-2015 (COMIECO-LXXIII) del 22 de octubre de 2015 y su Anexo: Estrategia Centroamericana de Facilitación del Comercio y Competitividad con énfasis en Gestión Coordinada de Fronteras", de conformidad a lo dispuesto en el apartado 2 de la parte dispositiva de la Resolución N° 376-2016 (COMIECO-LXXVII) de fecha 01 de septiembre de 2016 y su Anexo, aprobada mediante decreto ejecutivo N° 40435 del 15 de mayo de 2017, la misma dispone: “2. Acelerar la ejecución de las 5 medidas prioritarias de corto plazo contempladas en la Estrategia Centroamericana de Facilitación del Comercio y Competitividad con Énfasis en la Gestión Coordinada de Fronteras, de conformidad con el Anexo de esta Resolución.)
 AGRADECIMIENTOS
 El Consejo de Ministros de Integración Económica Centroamericana (COMIECO) agradece de forma especial la asistencia brindada por el Banco Interamericano de Desarrollo (BID) y la Agencia de los Estados Unidos para el Desarrollo Internacional (USAID), cuyos aportes fueron esenciales para la elaboración de la presente Estrategia.
 Índice
@@ -58,14 +58,12 @@ La región carece de un marco regulatorio que norme y regularice las funciones d
 Las actividades de control e inspección en frontera, se realizan de manera independiente entre las instituciones nacionales y entre los países con limitada o nula coordinación.
 La región carece de la infraestructura y equipamiento necesario o éste no es suficiente para responder a las iniciativas de facilitación comercial y para mejorar la eficacia y eficiencia de los procesos de control fiscal y parafiscal.
 Algunos de los planes de reforma no consideran integralmente el impacto económico, social y ambiental en las poblaciones fronterizas.
-[imagen]
 Se estima que el costo combinado de estas carencias en la gestión fronteriza incrementa el precio final de los productos transados en la región hasta en 12%1
 1 Cunha y Jaramillo (2013), Trade and logistics in Central America. Washington DC: Banco Mundial.
 En este contexto. y consientes de la importancia de avanzar en este tema, los Mandatarios centroamericanos, a través de la Declaración de Punta Cana de junio de 2014, instruyeron al Consejo de Ministros de Integración Económica (COMIECO) a:
 "Presentar en 90 días una propuesto de procedimientos comunes de trámites (fronterizos). .. e indicadores de medición y evaluación" (párrafo 9) y "adoptar e implementar una estrategia centroamericana de Facilitaci6n de Comercio y Competitividad con énfasis en la gestión coordinada de fronteras" (Párrafo 10)2
 2 Declaración de Punta Cana, XLIII Reunión Ordinaria de Jefes de Estado y de Gobierno de los países miembros de la Integración Centroamericana (SICA), 27 de junio de 2014.
 Con el propósito de dar cumplimiento a este mandato, el COMIECO solicitó el apoyo al Banco Interamericano de Desarrollo (BID). El BlD. junto a la Agencia de los Estados Unidos para el Desarrollo Internacional (USAID), presentó una propuesta al COM1ECO para llevar a cabo esta tarea, Tal propuesta, aprobada en el Taller de Reflexión de COMIECO en septiembre de 2014, contemplaba la conformación de un equipo multidisciplinario de especialistas (Task Force) para producir una Estrategia que incluyera los siguientes entregables: i) cinco medidas de facilitación comercial de corto plazo, y ii) un plan de acción de mediano y largo plazo para la implementación de la Gestión Coordinada de fronteras (GCF) en Centroamérica, con indicadores de medición y evaluación. A través de un proceso de consulta y validación con las autoridades fronterizas de los países, el sector privado, organismos de integración regional y otros donantes, el Task Force generó los productos acordados, los cuales fueron presentados a COMIECO en diciembre de 2014.
-[imagen]
 Posteriormente. los Presidentes de la región, reunidos en Plasencia, decidieron dar un nuevo impulso al proceso de establecimiento de la Unión Aduanera Centroamericana e Instruyeron al COMIECO la elaboración de una Hoja de Ruta para alcanzar este objetivo. El Consejo de Ministros elaboró dicha Hoja de Ruta. incluyendo la implementación de la Estrategia y las 5 medidas entre los hitos necesarios para establecer una unión aduanera en la región.
 En marzo de 2015, el COMIECO conformó el Grupo de Facilitación del Comercio, que reúne representantes de todos los países Centroamericanos con el objetivo de conocer de los temas relacionados a la facilitación comercial de la región - incluyendo esta Estrategia y la coordinación de gestiones para llevar adelante su implementación.
 En junio de 2015. reunidos en Antigua Guatemala, los Presidentes validaron la Hoja. de Ruta e instruyeron a los Ministros su implementación y seguimiento. Con este mandato, la implementación de la Estrategia y las 5 medidas quedó acordada, tanto a nivel ministerial como presidencial, en todos los países centroamericanos.
@@ -77,7 +75,6 @@ El modelo de GCF tiene como objetivo promover la coordinación de agencias del s
 La definición de un marco regional de actuación en el contexto centroamericano permite establecer parámetros comunes que guiarían las adecuaciones a nivel nacional en todos los países y el trabajo coordinado en las fronteras entre países buscando generar beneficios a nivel regional.
 El modelo de GCF que contempla la Estrategia se desarrolla a través de ocho pilares en un esquema de pares de países y pares de fronteras3. Sus pilares incluyen: el fortalecimiento de las ventanillas únicas de comercio exterior, la realización de controles basados en la gestión integral del riesgo, operadores económicos confiables, control cuarentenario. la reforma de la infraestructura y equipamiento fronterizo, la coordinación e integración de los procedimientos de control y la atención de los impactos económicos y sociales de las intervenciones en las zonas fronterizas, Para cada componente, se han definido parámetros regionales comunes basados en las mejores prácticas internacionales. Su implementación se ajusta adecuadamente a los requerimientos específicos de cada. país, punto fronterizo y su aplicación puede ampliarse a puertos y aeropuertos,
 3 Este esquema forma parte de los ejes trasversales de la Estrategia.
-[imagen]
 2.2. Ejes transversales del modelo
 a. Plataforma Digital de Comercio Centroamericana (PDC)
 Esta Estrategia promueve que los países implementen una plataforma informática regional para la integración de información y procesos de la gestión aduanera, migratoria, de ventanillas únicas. Esta herramienta digital contribuirá a la facilitación del comercio y la integración económica regional.
@@ -120,15 +117,12 @@ En el tema de infraestructura para pasos fronterizos internos, se promueven esqu
 De conformidad con lo anterior, la inversión esencial deberá estar enfocada en procesos, equipamiento e infraestructura para que los controles que deban efectuarse se realicen de la manera más eficiente posible, a través de controles automatizados y no intrusivos, manteniendo flujos estériles y separados. Estas inversiones permitirán operar una transición ordenada y eficiente durante el tiempo que lleve el cambio del estado actual la Unión Aduanera.
 En concordancia con la modernización de los puntos fronterizos terrestres, y de conformidad con acuerdos Internacionales suscritos por la región, se hace necesario que el ámbito de aplicación de esta Estrategia considere la posibilidad de incorporar a futuro puertos y aeropuertos.
 Con la implementación de este modelo se alcanzarían tos siguientes hitos necesarios para el establecimiento de una unión aduanera:
-[imagen]
 Finalmente, la implementación de los ocho elementos de manera conjunta y coordinada entre [os países permitirá obtener beneficios sustanciales en la disminución de tiempos, promoviendo el incremento en los flujos comerciales intrarregionales. De esta manera, una inversión en GCF se ve socialmente amortizada de manera rápida por los beneficios agregados que el sector privado obtiene al disminuir sus costos logísticos.
 3. Medidas de corto, mediano y largo plazo para la implementación del modelo de GCF en Centroamérica
 3.1. Medidas prioritarias de corto plazo
 Para la determinación de estas medidas se tuvo en consideración: i) la existencia de una base legal regional; ii) implementación relativamente sencilla, ejecutable en un período aproximado de un año y de bajo costo; y iii) impacto positivo y significativo en el costo, tiempo y predictibilidad de la circulación por los pasos fronterizos en el corto plazo.
-[imagen]
 Algunas medidas han sido identificadas a raíz de proyectos implementados en ciertos países de la región y, debido a los resultados positivos en el desempeño fronterizo o trazabilidad de la carga, pueden ser consideradas "mejores prácticas regionales", Ejemplo de ello es la implementación de cámaras en El Salvador, la declaración anticipada de información en Costa Rica y la coordinación de controles migratorios entre El Salvador y Guatemala. Ya que el estado de implementación de las cinco medidas varía en cada uno de los países de la región, el objetivo es alcanzar un nivel uniforme a nivel regional. Estas acciones constituyen una pequeña muestra de cómo la coordinación e implementación de medidas puntuales permitirá obtener resultados en el corto plazo que incentiven a la reforma integral de largo plazo delos pasos fronterizos de la región.
 Para avanzar en la implementación de las 5 medidas, los Ministros del COMIECO aprobaron un cronograma que establece un plazo de 18 meses para la ejecución de actividades.
-[imagen]
 AA: Administración Aduanera
 MI: Migración
 AS: Autoridad Sanitaria
@@ -155,7 +149,6 @@ Como acciones estratégicas se propone fortalecer las Ventanillas Únicas Electr
 técnicas de control y que hayan sido unificados internacionalmente.
 • Adecuación de los sistemas informáticos Institucionales: para asimilar el modelo de datos comunes de la OMA.
 • Definición de un conjunto multifuncional de indicadores: que permitan establecer parámetros objetivos demostrativos del desempeño de los pasos de frontera, de su seguimiento y comparación relativa,
-[imagen]
 b. Interoperabilidad de información
 Objetivo: Mejorar el control, la coordinación interinstitucional y la reducción de trámites para el comercio internacional mediante el intercambio de información entre las instituciones de control fronterizo, desarrollando aplicaciones específicas sobre plataformas tecnológicas seguras y de alta disponibilidad. Esto se alcanzará mediante el intercambio de información integral, anticipada y de calidad, en un marco de Interoperabilidad entre las instituciones de control fronterizo, tanto a nivel nacional como proyectado entre países miembros del acuerdo regional y, en lo que corresporidiere, para la lucha contra el fraude.
 Parámerros regionales comunes
@@ -168,8 +161,6 @@ Como acciones estratégicas se pretende fortalecer las Ventanillas Únicas Elect
 En este componente se identifican dos proyectos principales, Ellos son:
 • Relevamiento de sistemas de Ventanilla Única Electrónica: - pública, privada O mixta – en los países o su equivalente como prestación de un sistema informático institucional disponible (í.e. Aduanas)
 • Relevamiento de proyectos vigentes, o en curso, para el perfeccionamiento de sistemas de Ventanilla Única Electrónica: disponibles para la instalación de nuevas aplicaciones.
-[imagen]
-[imagen]
 c. Gestión integral de riesgo
 Objetivo: reducir las intervenciones físicas en general, mejorando la eficacia de los controles fronterizos con base en una gestión de riesgo integral que involucre la participación y cooperación de todas las instituciones de control fronterizo y el sector privado. Para ello, se deberá establecer la gestión de riesgo como herramienta de trabajo habitual en cada una de las instituciones de control en frontera para minimizar las inspecciones físicas de mercancías y/o unidades de transporte a través de la coordinación de las intervenciones, a la vez que aumenta su efectividad con base en mejores sistemas de selectividad.
 Como Acciones estratégicas se requiere fortalecer la gestión de riesgo en cada país con un tratamiento coordinado entre las instituciones nacionales de control fronterizo y establecer una Comisión Regional de Cooperación dedicada a identificar riesgos regionales y a proponer medidas que permita mitigarlos adecuadamente.
@@ -182,8 +173,6 @@ Parámetros regionales comunes
 ü Base de datos por grupo de operadores identificando de manera dinámica el nivel de riesgo (alto, medio, bajo)
 ü Módulo de Riesgo en el sistema informático aduanero y en los sistemas informáticos de las demás instituciones de control fronterizo.
 ü Planes anuales de fiscalización a posteriori y fiscalización en línea de los procesos de control, basados en el análisis de riesgo por sector de actividad comercial o por contribuyente, respectivamente.
-[imagen]
-[imagen]
 d. Operadores confiables
 Objetivo: reducir el riesgo fiscal y aumentar la seguridad de la cadena logística por medio de la certificación de operadores confiables y el reconocimiento internacional de los mismos. Para ello, se contará con un programa de Operadores Económicos Autorizados que cumpla con las mejores prácticas internacionales, para facilitar el establecimiento de acuerdos de reconocimiento mutuo en la región y con otros países y bloques.
 Como acciones estratégicas se incentivará la puesta en operación y el fortalecimiento de los programas OEA, integrando en ellos a las instituciones de control fronterizo y alineándolos en base a los estándares mínimos del Marco Normativo de la Organización Mundial de Aduanas (OMA).
@@ -194,7 +183,6 @@ Parámetros regionales comunes
 ü Programas OEA habilitados que incluyan a todos los actores de la cadena logística (exportadores, importadores, transportistas, depósito, agentes aduaneros, etc)
 ü Requisitos de seguridad en base al estándar n° 2 del Pilar Aduanas-Sector Privado y el Anexo III (condiciones, requerimientos y beneficios del OEA) del marco SAFE de la OMA
 ü Métodos de facilitación comercial y beneficios al sector privado en base al estándar n° 6 del Pilar Aduanas. Sector Privado y el Anexo III del marco SAFE de la OMA
-[imagen]
 e. Control cuarentenario
 Objetivo: reducir los tiempos y costos operativos en frontera y aumentar la predictibilidad de los flujos comerciales a través de la región, protegiendo la condición fitosanitaria, zoosanitaria y de inocuidad alimentaria de los países. Para ello. se fortalecerá el sistema nacional de control zoosanitario, fitosanitario y/o de inocuidad' de alimentos armonizado, basado en criterios y recomendaciones reconocidas internacionalmente, con actuaciones realizadas con base en gestión de riesgo e intervenciones ejecutadas de manera segura y coordinada con las demás instituciones de control fronterizo.
 Parámetros regionales comunes
@@ -205,7 +193,6 @@ Como acciones estratégicas se enfocarán los esfuerzos de control fronterizo en
 En este componente se identifican dos proyectos principales:
 Adopción de políticas de certificación de sanidad o inocuidad según criterios y recomendaciones del Codex Alimentarius o de la Oficina Internacional de Epizootias (OlE) o de la Secretaria de Ia Convención Internacional de Protección Fitosanitaria (CIPF): se pretende que todos los países de la región dispongan o compartan un sistema informático a nivel de sus instituciones de control de sanidad que permita la solicitud, gestión y emisión de los respectivos certificados fitosanitarios, zoosanitarios o de inocuidad de consumo; previo a las operaciones de exportación o de importación de mercancías sensibles, según corresponda.
 Diseño de procedimientos de certificación de sanidad o inocuidad de mercancías en planta, armonizados según estándares anteriores y con tramitación por Ventanilla Única Electrónica para que las intervenciones físicas en fronteras sean excepcionales.
-[imagen]
 f. Integración de procedimientos y control
 Objetivo: implementar un proceso de control fronterizo que defina la secuencia y el modo de actuación e intervención obligatoria de las instituciones de control de ambos países, siguiendo una gestión basada en perfiles de riesgo, información electrónica anticipada e inspección conjunta en frontera. Para ello, se definirá un proceso de control comprensivo del modo de coordinación interinstitucional nacional y de carácter vinculante para todas las instituciones y que apunte a garantizar la Integridad del control (entendido como consistencia de datos sobre los flujos de factores que circulan a través del paso de frontera).
 Este proceso de control transversal se diferencia de los procedimientos internos que adopta cada institución en ejercicio de sus potestades para procurar obtener buena calidad de control técnico, en su respectivo ámbito de especificidad.
@@ -246,7 +233,6 @@ Parámetros de dimensionamiento físico de instalaciones, equipamiento y de recu
 Diseño funcional operativo de infraestructuras físicas y viales internas del puesto fronterizo: que reflejen el proceso de control definido y acordado por las instituciones públicas, las instalaciones y equipamientos asociados a ellas.
 Características constructivas y especificaciones básicas o estándares de servicio a cumplir por infraestructuras físicas y viales de! puesto fronterizo: implementando una rigurosa planificación que organice la secuencia de obras para que durante la transición no se resienta la capacidad de prestación de los servicios a los usuarios ni se afecten desfavorablemente las condiciones de hábitat laboral de los funcionarios y las circunstanciales de espera de los usuarios externos.
 Características constructivas y especificaciones básicas O estándares de servicio a cumplir por instalaciones, servicios y equipamientos del puesto fronterizo: para que durante la transición no se afecte el servicio a los usuarios ni las condiciones laborales de los funcionarios.
-[imagen]
 h. Comunidad fronteriza y seguridad
 Objetivo: asegurar que las zonas aledañas a los pasos fronterizos posean un entorno económico, social y ambiental que facilite su adecuado funcionamiento y sostenibilidad; preservando condiciones de seguridad, fortaleciendo la transparencia y predictibilidad de las actuaciones e intervenciones de las instituciones y un ambiente de valores apegados a la integridad y ética de comportamiento por parte de los actores involucrados.
 Para ello, se atenderán los posibles impactos sociales, económicos y ambientales en las poblaciones locales como resultado de la modernización fronteriza y se generarán políticas que promuevan un ambiente de seguridad en las fronteras (fortaleciendo la transparencia y predictibilidad de las actuaciones e intervenciones de las instituciones) y de valores apegados a la integridad y ética de comportamiento por parte de los actores involucrados.
@@ -263,7 +249,6 @@ En este componente se identifican tres proyectos principales:
 · Impacto económico, social y medioambiental: para atender y compensar los efectos desfavorables sobre alguno de los participantes de la actividad fronteriza tradicional.
 · Planificación y acciones de desarrollo económico: para identificar oportunidades de complementariedad sub-regional entre zonas de influencia del paso de frontera que se moderniza.
 · Fortalecimiento de la seguridad en la frontera: comprendiendo por tal a las zonas aduaneras primarias que conforman el conjunto del paso de frontera y sus zonas de adyacencia cercana y la línea fronteriza en su conjunto.
-[imagen]
 3.3. indicadores de medición y evaluación
 A pesar de la dificultad de establecer indicadores para estimar el desempeño global de un grupo variado de instituciones públicas. lo cierto del caso es que la importancia y el impacto de la GCF en el comercie internacional amerita un esfuerzo de identificación que permita estimar a grosso modo la efectividad de los procesos fronterizos.
 Para entender dicha complejidad, es preciso tener en consideración los siguientes elementos:
