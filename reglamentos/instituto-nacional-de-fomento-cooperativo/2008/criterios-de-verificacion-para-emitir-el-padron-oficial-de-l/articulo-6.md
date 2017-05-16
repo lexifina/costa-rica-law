@@ -1,5 +1,4 @@
 CAPÍTULO III
-Criterios de Verificación para Uniones y Federaciones
-de Ámbito Nacional
-Artículo 6º—Ámbito Nacional. Para los presentes efectos, se entenderá que son de ámbito nacional aquellas Uniones o Federaciones compuestas por cooperativas que tengan su domicilio social ubicado en al menos tres de las regiones de nuestro país establecidas por el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), a saber: Región Chorotega, Región Huetar Norte, Región Huetar Atlántica, Región Central, Región Pacífico Central, Región Brunca, Región Provincia de Heredia y Región Provincia de Cartago.
-Para efectos de este artículo se considerará como domicilio social de la Cooperativa, aquel establecido en su Estatuto Social. En caso de que el Organismo Cooperativo tenga sucursales en otras zonas geográficas, estas no se considerarán para los presentes efectos.
+Clasificación oficial definitivo
+Artículo 6º-Elaboración y remisión. La clasificación oficial definitiva será emitido por el Departamento Supervisión Cooperativa del INFOCOOP y será remitido a la Junta Interventora para su conocimiento y aprobación y para que ésta autorice a la Dirección Ejecutiva del INFOCOOP remitirlo al CONACOOP, con copia a la Comisión Permanente de Cooperativas de Autogestión (CPCA), el día 15 de junio de 2017 a más tardar.
+El CONACOOP elaborará el Padrón y tendrá impresa la referida clasificación remitida oficialmente por INFOCOOP. El mismo permanecerá expuesto al público hasta el día de las Asambleas Sectoriales.

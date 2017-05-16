@@ -1,0 +1,1 @@
+Transitorio Único: En acatamiento a la Ley 8220 denominada “Ley de Protección al Ciudadano de Exceso de Requisitos y Trámites Administrativos”, los Entes Cooperativos que ya presentaron documentación quedan eximidos de volver a hacerlo en cuanto a los documentos que legalmente correspondan.
