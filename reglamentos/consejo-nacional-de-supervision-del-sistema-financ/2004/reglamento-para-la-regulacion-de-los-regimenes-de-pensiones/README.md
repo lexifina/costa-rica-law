@@ -17,3 +17,4 @@ Reglamento para la regulación de los regímenes de pensiones creados por Leyes 
 | 2 | 2006-03-02 | Reglamento 562 (2006-03-02) |
 | 3 | 2006-08-10 | Reglamento 596 (2006-08-10) |
 | 4 | 2007-02-15 | Reglamento 631 (2007-02-15) |
+| 5 | 2017-05-16 | Reglamento 1332 (2017-05-16) |

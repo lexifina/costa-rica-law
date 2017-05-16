@@ -1,1 +1,1 @@
-Artículo 20.—Requisitos. Los encargados de las funciones establecidas en esta sección deberán conocer la normativa vigente y contar con estudios y experiencia en materia económica, financiera, bursátil o de pensiones.
+Artículo 20.—Requisitos. (Derogado por el artículo 38 del Reglamento de Riesgos aprobado mediante sesión N° 1332-2017 del 16 de mayo del 2017)
