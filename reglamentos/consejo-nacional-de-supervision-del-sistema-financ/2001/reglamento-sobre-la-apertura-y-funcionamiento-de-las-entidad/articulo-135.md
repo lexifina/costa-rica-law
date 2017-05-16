@@ -1,1 +1,1 @@
-Artículo 135. (DEROGADO, en sesión N° 424 de 9 de marzo de 2004).
+Artículo 135. (DEROGADO, en sesión N° 424 de 9 de marzo de 2004. Posteriormente se deroga nuevamente este artículo por el artículo 38 del Reglamento de Riesgos aprobado mediante sesión N° 1332-2017 del 16 de mayo del 2017)

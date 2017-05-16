@@ -1,9 +1,3 @@
 SECCIÓN V
 Evaluación cualitativa del riesgo operativo
-Artículo 52.—Administración del riesgo operativo. Es responsabilidad de las entidades autorizadas la identificación, medición, seguimiento y control del riesgo operativo a efecto de evitar la ocurrencia de pérdidas originadas en fallas o deficiencias relacionadas con los procesos, el personal, tecnología de la información, controles internos o eventos externos. Como mínimo las entidades deben considerar que:
-a) El directorio y la gerencia superior analicen los riesgos subyacentes en sus operaciones y se comprometan con la identificación, medición y seguimiento de los riesgos asociados.
-b) La estructura administrativa cuente con un manual de deberes y responsabilidades para cada puesto; procedimientos documentados para los procesos definidos por la Administración como sustantivos, al menos para los procesos de afiliación, recaudación, inversiones, traspasos y retiros, donde se especifique la segregación de funciones y la toma de decisiones; además de un código de conducta aplicable y de acatamiento obligatorio por parte de todo el personal.
-c) Existan políticas y procedimientos, aprobados por Junta Directiva, para la identificación, medición, seguimiento y control de los riesgos operativos, para todos los productos, actividades, procesos y sistemas de la entidad, las cuales deben ser conocidas y entendidas por el personal involucrado.
-d) La Auditoría Interna vigile el cumplimiento de las políticas y procedimientos establecidos y verifique que las políticas, prácticas y controles existentes sean suficientes para el desarrollo de las actividades de la entidad.
-e) Existan planes de contingencia para asegurar la continuidad de las operaciones del negocio y minimizar pérdidas en caso de una interrupción severa en las operaciones o dificultades en el funcionamiento de los sistemas.
-(Así reformado mediante sesión N° 743 del 12 de setiembre de 2008)
+Artículo 52.—Administración del riesgo operativo. (Derogado por el artículo 38 del Reglamento de Riesgos aprobado mediante sesión N° 1332-2017 del 16 de mayo del 2017)

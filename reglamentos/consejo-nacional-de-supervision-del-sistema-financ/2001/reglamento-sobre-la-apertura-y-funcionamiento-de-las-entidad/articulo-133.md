@@ -1,2 +1,1 @@
-Artículo 133.—Convocatoria a reuniones con la Superintendencia. El Superintendente podrá solicitar reunirse con los encargados de las funciones de control de cumplimiento normativo, ya sea en forma individual o en conjunto, cuando lo considere pertinente. La convocatoria se realizará con al menos tres días de anticipación a la fecha de la reunión.
-(Así reformado, en sesión N° 424 de 9 de marzo de 2004, que dispuso derogar el texto anterior de este artículo y agregarle el texto actual).
+Artículo 133.—Convocatoria a reuniones con la Superintendencia. (Derogado por el artículo 38 del Reglamento de Riesgos aprobado mediante sesión N° 1332-2017 del 16 de mayo del 2017)

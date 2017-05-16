@@ -1,4 +1,1 @@
-ARTÍCULO 50. Cálculo y requerimiento del Riesgo de Mercado.
-Las entidades autorizadas deberán calcular el Riesgo de Mercado de la cartera de inversiones propias con periodicidad diaria. El requerimiento por riesgo de mercado de la entidad autorizada será igual al máximo valor observado del Valor en Riesgo (VaR) de la cartera de inversiones propias de la entidad durante los últimos 60 días naturales a la fecha de cálculo, más un porcentaje del valor de los instrumentos financieros excluidos del cálculo del VaR.
-El método de cálculo del VaR será histórico, considera un nivel de confianza del 95%, 500 observaciones y un horizonte temporal de 21 días. La metodología para el cálculo del requerimiento de capital por riesgo de mercado se establecerá mediante acuerdo general por el Superintendente.
-(Así reformado mediante sesión N° 975 del 29 de mayo del 2012)
+ARTÍCULO 50. Cálculo y requerimiento del Riesgo de Mercado. (Derogado por el artículo 38 del Reglamento de Riesgos aprobado mediante sesión N° 1332-2017 del 16 de mayo del 2017)
