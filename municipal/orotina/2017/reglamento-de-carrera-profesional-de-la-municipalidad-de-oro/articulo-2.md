@@ -1,0 +1,1 @@
+Artículo 2.- Carrera Profesional es el incentivo económico aplicable a los funcionarios de nivel profesional, con base en sus grados académicos, especialidades y postgrados adicionales al bachillerato universitario, así como la capacitación recibida, capacitación impartida, y por publicaciones realizadas que sean de interés municipal.

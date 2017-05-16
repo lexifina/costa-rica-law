@@ -1,0 +1,1 @@
+Artículo 17.-Contra la resolución denegatoria el interesado podrá presentar recursos ordinarios ante la Unidad de Recursos Humanos en un plazo de cinco días hábiles, que se regirán conforme con el Código Municipal.
