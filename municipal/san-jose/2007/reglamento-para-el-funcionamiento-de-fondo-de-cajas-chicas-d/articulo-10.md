@@ -1,4 +1,3 @@
-CAPÍTULO TERCERO
-De la liquidación
-Artículo 10.—Con excepción del fondo número cuatro, para la compra y pago de servicios de asistencia jurídica, que podrán ser liquidados dentro de los próximos 10 días hábiles, los vales de caja chica 1, 2 y 3 deberán ser liquidados dentro de los tres días hábiles siguientes a su entrega, salvo aquellos casos en donde por razones de caso fortuito o fuerza mayor, el funcionario que lo retira no pueda hacerlo en el plazo establecido, cuando esto suceda se deberá justificar y documentar la razón del mismo.
-(Así reformado mediante sesión ordianria N° 246 del 13 de enero del 2015)
+Artículo 10º—Este reglamento y los funcionarios que involucra, quedan sujetos a las disposiciones dadas por la Ley de Administración Financiera de la República, Ley Orgánica de la Contraloría General de la República, Ley General de la Administración Pública, Ley de Contratación Administrativa, Reglamento General de la Contratación Administrativa, Reglamento de Gastos de Viaje para Funcionarios del Estado, Código Municipal, Reglamento Autónomo de Organización y Servicios, la Ley de Control Interno y cualesquier otra normativa conexa con la materia.
+(Así reformado en sesión N° 055 del 16 de mayo del 2017)
+(Así corrida la numeración en sesión N° 055 del 16 de mayo del 2017, que lo traspasó del antiguo artículo 9) al 10))

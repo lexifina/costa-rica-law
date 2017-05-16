@@ -1,2 +1,4 @@
-Artículo 14.—Para el trámite de compra por el fondo de caja chica, el funcionario que lo gestione para la adquisición de bienes y servicios, deberá solicitar ante el encargado del fondo municipal, un comprobante de exoneración de pago del impuesto de ventas o en su defecto la proveeduría municipal confeccionará el documento respectivo.
-No se reconocerá el importe por concepto de impuesto de ventas, cuando éste sea cancelado por el usuario del vale, ya que la Municipalidad de conformidad con lo establecido en el Artículo 8, del Código Municipal, está exenta del pago de toda clase de tributos.
+Artículo 14.—El monto de lo gastado, no podrá exceder el monto autorizado en el vale de caja chica. De presentarse esta situación, el funcionario a nombre de quien se giró el vale debe asumir el gasto diferencial resultante, sin que la Municipalidad quede obligada a reintegrarle esa suma.
+Solo se liquidarán los vales de caja chica por los bienes y servicios y por la cantidad de estos que haya sido previamente autorizada. En casos excepcionales se valorará si procede o no una liquidación cuando haya habido una modificación en los artículos o en la cantidad.
+(Así adicionado el párrafo anterior en sesión N° 055 del 16 de mayo del 2017)
+(Así corrida la numeración en sesión N° 055 del 16 de mayo del 2017, que lo traspasó del antiguo artículo 13) al 14))

@@ -1,3 +1,2 @@
-CAPÍTULO QUINTO
-De los reintegros
-Artículo 22.—Los egresos de caja chica, se tramitarán a través del correspondiente reintegro en original y copia, el cual será revisado y autorizado por el tesorero o a quien él designe.
+Artículo 22.—Si por caso fortuito o fuerza mayor el encargado del fondo se ausente de su puesto y siendo necesario la utilización del fondo, se realizará un arqueo en presencia del tesorero municipal o a quien él designe y dos testigos, haciendo constar mediante un documento firmado, el contenido del mismo.
+(Así corrida la numeración en sesión N° 055 del 16 de mayo del 2017, que lo traspasó del antiguo artículo 21) al 22))

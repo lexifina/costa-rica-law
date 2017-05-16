@@ -1,1 +1,2 @@
-Artículo 21.—Si por caso fortuito o fuerza mayor el encargado del fondo se ausente de su puesto y siendo necesario la utilización del fondo, se realizará un arqueo en presencia del tesorero municipal o a quien él designe y dos testigos, haciendo constar mediante un documento firmado, el contenido del mismo.
+Artículo 21.—Todo arqueo de caja chica se realizará en presencia del tesorero municipal, o del funcionario que él designe para tal efecto.
+(Así corrida la numeración en sesión N° 055 del 16 de mayo del 2017, que lo traspasó del antiguo artículo 20) al 21))

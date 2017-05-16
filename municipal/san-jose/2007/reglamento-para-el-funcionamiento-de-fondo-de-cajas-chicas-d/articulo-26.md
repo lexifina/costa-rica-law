@@ -1,1 +1,2 @@
-Artículo 26.—Los encargados de las cajas chicas, no podrán guardar documentos, efectivo o cheques de propiedad particular, en los lugares destinados para la custodia del dinero del fondo y por ningún motivo podrán suplir con su dinero, compras o pagos que correspondan a la Municipalidad.
+Artículo 26.—El fondo de caja chica no podrá ser utilizado para el cambio de cheques personales, ni disponerse para actuaciones distintas a las autorizadas por ley, o establecidas en este reglamento.
+(Así corrida la numeración en sesión N° 055 del 16 de mayo del 2017, que lo traspasó del antiguo artículo 25) al 26))

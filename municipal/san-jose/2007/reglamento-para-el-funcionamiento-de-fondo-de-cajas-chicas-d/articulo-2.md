@@ -1,3 +1,3 @@
-CAPÍTULO SEGUNDO
-Del funcionamiento
-Artículo 2º—Cada fondo funcionará con una cuenta corriente, para la adquisición de bienes y/o servicios, las compras se efectuarán con dinero en efectivo u otro medio aceptado en el comercio local.
+Artículo 2º—De las autorizaciones de vales de caja chica: Corresponde al Departamento de Tesorería dictar el acto de autorización de las compras que se efectúen utilizando vales de Caja Chica N° 1. En aquellos supuestos donde las compras superen un 70% (setenta por ciento) del valor del vale que se encuentre vigente, se solicitará por parte de la Tesorería una factura proforma, misma que incluso podrá ser solicitada cuando a criterio de dicha unidad esta sea requerida para mejor resolver con un mayor criterio con el fin de dar un mejor uso a los recursos.
+Tratándose de la caja chica N° 2, la factura proforma será solicitada por el área de mantenimiento automotor cuando las compras sean superiores al tope de renta establecido por las autoridades competentes.
+(Así adicionado en sesión N° 055 del 16 de mayo del 2017)

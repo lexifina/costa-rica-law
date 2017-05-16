@@ -1,1 +1,2 @@
-Artículo 6º—La Caja Chica, mantendrá siempre el total del monto asignado, el cual estará conformado de la siguiente forma: Dinero en efectivo, vales liquidados, vales pendientes de liquidación y vales en trámite de reintegro. En ningún momento ni por motivo alguno, se podrán sustituir esos valores por otros de naturaleza distinta al de la Caja Chica.
+Artículo 6º—Cuando se presuma, que este instrumento se está utilizando para obviar los procesos de contratación, se requerirá de un visto bueno del proveedor municipal, quien definirá en última instancia, si se autoriza la compra o contratación a través de este fondo.
+(Así corrida la numeración en sesión N° 055 del 16 de mayo del 2017, que lo traspasó del antiguo artículo 5) al 6))

@@ -1,1 +1,4 @@
-Artículo 15.—No se entregará un segundo vale de caja chica, a funcionarios que tengan pendiente la liquidación del primero.
+Artículo 15.—Para el trámite de compra por el fondo de caja chica, el funcionario que lo gestione para la adquisición de bienes y servicios, deberá solicitar ante el encargado del fondo municipal, un comprobante de exoneración de pago del impuesto de ventas. El documento original se le entrega al comerciante y la copia con el recibido conforme quedará en el expediente que se conforme.
+(Así reformado el párrafo anterior en sesión N° 055 del 16 de mayo del 2017)
+No se reconocerá el importe por concepto de impuesto de ventas, cuando éste sea cancelado por el usuario del vale, ya que la Municipalidad de conformidad con lo establecido en el Artículo 8, del Código Municipal, está exenta del pago de toda clase de tributos.
+(Así corrida la numeración en sesión N° 055 del 16 de mayo del 2017, que lo traspasó del antiguo artículo 14) al 15))

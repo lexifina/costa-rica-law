@@ -1,1 +1,3 @@
-Artículo 27° (NOTA DE SINALEVI: En la publicación de este reglamento municipal, no aparece este artículo. No obstante el sistema exige una numeración consecutiva, por lo que se ha creado el mismo, pero sin texto)
+Artículo 27.—Los encargados de las cajas chicas, no podrán guardar documentos, efectivo o cheques de propiedad particular, en los lugares destinados para la custodia del dinero del fondo y por ningún motivo podrán suplir con su dinero, compras o pagos que correspondan a la Municipalidad, con excepción de los casos previstos en este mismo reglamento.
+(Así reformado en sesión N° 055 del 16 de mayo del 2017)
+(Así corrida la numeración en sesión N° 055 del 16 de mayo del 2017, que lo traspasó del antiguo artículo 26) al 27))

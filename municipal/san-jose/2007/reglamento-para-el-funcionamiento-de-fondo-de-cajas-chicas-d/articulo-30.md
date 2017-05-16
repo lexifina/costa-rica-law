@@ -1,2 +1,4 @@
-Artículo 30.—Rige a partir de su publicación. Acuerdo firme Nº 6, artículo IV, de la sesión ordinaria Nº 75, celebrada por la Corporación Municipal del cantón central de San José, el 2 de octubre de 2007.
-San José, 5 de octubre de 2007.
+CAPÍTULO OCTAVO
+De la derogatoria y vigencia
+Artículo 30.—El presente reglamento deroga cualquier disposición de la misma naturaleza que haya emitido esta Municipalidad.
+(Así corrida la numeración en sesión N° 055 del 16 de mayo del 2017, que lo traspasó del antiguo artículo 29) al 30))

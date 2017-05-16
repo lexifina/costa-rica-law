@@ -1,1 +1,3 @@
-Artículo 5º—Cuando se presuma, que este instrumento se está utilizando para obviar los procesos de contratación, se requerirá de un visto bueno del proveedor municipal, quien definirá en última instancia, si se autoriza la compra o contratación a través de este fondo.
+Artículo 5º—Según la determinación que realice el área de mantenimiento automotor respecto al tipo de urgencia, mediante acto administrativo debidamente motivado y a través de los pedidos, el Departamento de Recursos Materiales y Servicios procederá, previa valoración, a limitar la erogación de estas compras, al monto del tope del impuesto sobre la renta que se establece anualmente por parte de las autoridades competentes, mismo que no podrá ser sobrepasado.
+(Así reformado en sesión N° 055 del 16 de mayo del 2017)
+(Así corrida la numeración en sesión N° 055 del 16 de mayo del 2017, que lo traspasó del antiguo artículo 4) al 5))
