@@ -1,2 +1,0 @@
-Artículo 12.—Calificación global de los riesgos. La calificación global, la cual ubicará a la entidad regulada en un tipo de Normalidad, se obtendrá a partir de la evaluación, basado en el criterio fundamentado del supervisor, de todos los riesgos detallados en este reglamento.
-La calificación global obtenida por los procesos de supervisión será analizada, previa comunicación a la entidad regulada, por el Comité de Supervisión, con el fin de validar la fundamentación de los riesgos o hallazgos, así como la calidad y consistencia de la evaluación realizada.
