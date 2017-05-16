@@ -1,5 +1,2 @@
-Artículo 6º—De los libros de actas. La entidad regulada llevará los acuerdos tomados por el Comité de Inversiones en un libro de actas electrónico de conformidad con los requisitos que, para tal efecto, dicte el Superintendente.
-La política de inversión, una vez aprobada por el Órgano de Dirección, se consignará en el libro de actas indicándose, de manera clara, a qué fondo corresponde. Las actas deberán ser firmadas, como mínimo, por los miembros del comité que hubieren fungido como el Presidente y el Secretario de la sesión respectiva.
-Los miembros del Comité serán responsables de que el contenido de las actas corresponda a lo discutido y aprobado en cada sesión. El libro de actas, así como la información en la que se respalden las decisiones de inversión, deberá mantenerse a disposición de la Superintendencia en todo tiempo.
-(Así reformado mediante sesión N° 642 del 25 de abril de 2007)
+Artículo 6º—De los libros de actas. (Derogado por el artículo 38 del Reglamento de Riesgos aprobado mediante sesión N° 1332-2017 del 16 de mayo del 2017)
 (Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°5 al N°6 actual).
