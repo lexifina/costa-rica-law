@@ -1,0 +1,4 @@
+Artículo 7. Adiciónese un inciso l), un inciso m) y un inciso n) al artículo 42 del Reglamento Autónomo de Trabajo del Instituto Costarricense de Turismo, para que los mismos se lean como sigue:
+l) Recibir capacitación sobre los Derechos Humanos, particularmente, sobre la no discriminación por razones de edad, etnia, idioma, sexo, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad.
+m) Disfrutar de un entorno laboral en el que no existan disposiciones o acciones que generen discriminación alguna por razones de edad, etnia, idioma, sexo, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad.
+n) El reconocimiento de su identidad de género de acuerdo a su solicitud y de conformidad con la legislación vigente.”
