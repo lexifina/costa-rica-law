@@ -14,3 +14,4 @@ Normativa para la declaratoria de médico general avanzado del Colegio de Médic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-14 | la propia norma |
+| 2 | 2017-05-17 | Acuerdo 0 (2017-05-17) |

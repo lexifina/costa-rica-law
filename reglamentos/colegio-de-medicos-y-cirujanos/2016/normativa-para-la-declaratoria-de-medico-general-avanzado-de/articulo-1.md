@@ -1,4 +1,6 @@
+(Revocada)
 COLEGIO DE MÉDICOS Y CIRUJANOS DE COSTA RICA
+(Esta norma fue revocada en sesión 2017-05-17 del 17 de mayo del 2017)
 La Junta de Gobierno del Colegio de Médicos y Cirujanos de Costa Rica, comunica que en la sesión ordinaria 2016-11- 16, celebrada el 16 de noviembre del 2016, se acordó publicar el documento final que contiene:
 NORMATIVA PARA LA DECLARATORIA DE MÉDICO
 GENERAL AVANZADO DEL COLEGIO DE MÉDICOS
