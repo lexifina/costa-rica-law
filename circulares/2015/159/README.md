@@ -13,3 +13,4 @@ Obligación de los despachos judiciales de colaborar con la Dirección de Tecnol
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-23 | la propia norma |
+| 2 | 2017-05-17 | Circular 53 (2017-05-17) |
