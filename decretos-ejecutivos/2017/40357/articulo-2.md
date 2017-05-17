@@ -1,0 +1,1 @@
+Artículo 2°. Se oficializa el formulario denominado "Datos de cada miembro de grupo o COVIRENA o solicitante de nombramiento como Inspector Ambiental Ad Honorem" (Anexo 2), en adición al Decreto Ejecutivo Nº 39833-MINAE.
