@@ -1,5 +1,0 @@
-Artículo 15.—Para el cálculo de la garantía, los montos administrados se ubican en los siguientes tres niveles:
-a) Bajo: en este nivel se encuentran los puestos que administran fondos públicos que van del equivalente de uno a tres salarios base, y que para efectos de cálculo de su garantía, deberán fijar como valor de factor del monto administrado el equivalente a un salario base.
-b) Medio: en este nivel se encuentran los puestos que administran fondos públicos que van de un monto mayor al equivalente a tres salarios base hasta uno similar a seis salarios base, y que para efectos de cálculo de su garantía, deberán fijar como valor de factor del monto administrado, el equivalente a dos salarios base.
-c) Alto: en este nivel se encuentran los puestos que administran fondos públicos de cuantía inestimable o mayores al equivalente a mas de 6 salarios base, y que para efectos de cálculo de su garantía, deberán fijar como valor de factor del monto administrado el equivalente a tres salarios base.
-(Así reformado por el artículo 1 del decreto ejecutivo N° 34627 del 22 de abril del 2008)

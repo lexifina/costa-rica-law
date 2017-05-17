@@ -1,1 +1,0 @@
-Artículo 5º—Reconocimiento de intereses. No se reconocerán intereses por las garantías en depósito de dinero, mantenidas en custodia del Ministerio de Cultura y Juventud o del órgano desconcentrado. En cuanto a los intereses que devenguen los títulos hasta el momento en que se ejecuten, corresponderán al caucionante.

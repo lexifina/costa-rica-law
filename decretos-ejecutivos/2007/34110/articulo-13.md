@@ -1,1 +1,0 @@
-Artículo 13.—Caucionantes ad honorem o sin salario. Los caucionantes que ocupen puestos públicos en condición ad honorem, miembros de órganos colegiados u otros que no perciban un salario mensual por parte del Ministerio, rendirán la caución mínima.

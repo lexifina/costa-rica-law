@@ -1,2 +1,0 @@
-Artículo 19.—El Ministro de Cultura y Juventud o la Ministra de Cultura y Juventud o el máximo jerarca del órgano desconcentrado, podrán ajustar en el mes de diciembre de cada año, la clasificación indicada en el Artículo 17 sobre el factor salario, así como la clasificación de los factores de responsabilidad señalada en el artículo 16.
-( Así reformado por el artículo 1 del decreto ejecutivo N°34627 del 22 de abril del 2008)

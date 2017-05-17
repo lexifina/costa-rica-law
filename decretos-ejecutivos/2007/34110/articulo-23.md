@@ -1,2 +1,0 @@
-Artículo 23.—Deber de informar sobre movimientos de los caucionantes. Corresponde a la Unidad de Recursos Humanos informar por escrito a la Dirección Financiera Contable, respecto del nombramiento, cese o traslado del personal en puestos que por la índole de sus funciones se encuentran obligados a presentar caución.
-Todas las dependencias que cuenten con personal obligado a rendir caución, tendrán un plazo de cinco días para informar a la Unidad de Recursos Humanos, cualquier cambio que al respecto se produzcan.
