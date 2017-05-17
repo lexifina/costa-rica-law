@@ -14,3 +14,4 @@ Reglamento de Organización y Servicio de la Policía de Tránsito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-29 | la propia norma |
+| 2 | 2017-05-17 | Decreto Ejecutivo 40456 (2017-05-17) |
