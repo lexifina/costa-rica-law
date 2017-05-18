@@ -1,0 +1,1 @@
+Artículo 2º—Ningún barco de pesca semi-industrial de arrastre de camarón para el litoral del Océano Pacífico Costarricense, podrá realizar faenas de pesca dentro de las zonas de exclusión que se determinan en este acuerdo (definidas en el mapa anexo 1). Este alejamiento no se aplica para la flota semiindustrial sardinera (bolichera).

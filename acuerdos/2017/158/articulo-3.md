@@ -1,0 +1,1 @@
+Artículo 3º—Todas las embarcaciones de la flota pesquera semi-industrial de camarón, deberán instalar un dispositivo de control satelital o baliza, compatible y enlazado con los sistemas de control satelital con que cuenta el INCOPESCA, así como operarlo según las disposiciones técnicas y reglamentarias vigentes.
