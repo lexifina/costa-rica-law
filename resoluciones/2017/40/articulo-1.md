@@ -1,0 +1,1076 @@
+DIRECCIÓN GENERAL DE HACIENDA
+RES-DGH-040-2017. —Dirección General de Hacienda a las trece horas y treinta minutos del veintiséis de abril del dos mil diecisiete.
+Considerando:
+I.—Que la Ley Nº 3022 del 27 de agosto de 1962 establece que el Ministro de Hacienda, el Director General de Hacienda u otro funcionario de esa Dirección escogido por aquéllos, son los funcionarios facultados para autorizar, bajo su responsabilidad las exenciones de impuestos debiendo en cada caso señalar la ley en que se ampare dicha petición.
+II.— Que el artículo 6 de la Ley N° 7293 de 31 de marzo de 1992, concede exención de todo tributo incluyendo el Impuesto General sobre las Ventas y el Impuesto Selectivo de Consumo, para las adquisiciones de bienes en el mercado nacional a favor de la universidad de Costa Rica.
+III. —Que la Universidad de Costa Rica ha constituido un Fideicomiso con el Banco de Costa Rica denominado “Fideicomiso UCR/BCR 2011”, en calidad de fideicomitente, cuyo principal objetivo es la construcción y equipamiento de obras inmobiliarias y cuyos bienes a adquirir se constituyen en garantía ante el Estado por los impuestos exonerados por ser propiedad de la Universidad de Costa Rica.
+IV—.Que la Universidad de Costa Rica mediante oficio R-2589-2017 de 21 de abril de 2017, ha presentado solicitud formal para la exoneración de impuestos locales, para la “Construcción y Renovación de la Facultad de Derecho”, amparada al contrato de fideicomiso antes indicado y ofrecen un control estricto sobre materiales, equipos, mano de obra y procedimientos constructivos.
+V. —.Que la Ley Nº 4755 del 29 de abril de 1971, Código de Normas y Procedimientos Tributarios, establece que los órganos de la Administración Tributaria del Ministerio de Hacienda pueden dictar normas generales para la correcta aplicación de las leyes tributarias, dentro de los límites fijados por las normas legales y reglamentarias pertinentes
+VI— Que el trámite por medio de resolución genérica para la autorización de la exención para cada adquisición mediante orden de compra facilitará las funciones del Fideicomiso indicado en el “Considerando” III anterior, cuyo beneficiario para los efectos de la presente resolución será la Universidad de Costa Rica.
+VII. — Que se ha comprobado la presentación oportuna de los informes debidos sobre las autorizaciones genéricas de los proyectos que desarrolla el Fideicomiso UCR/BCR 2011.
+SE RESUELVE:
+1º—Conceder autorización genérica por ocho (8) meses a favor de la “Universidad de Costa Rica Fideicomiso UCR/BCR-2011”, a efecto de que adquiera bienes y servicios en el mercado nacional exentos de los Impuestos General sobre las Ventas y/o Selectivo de Consumo, según el detalle adjunto en veintitrés (23) hojas debidamente firmadas y selladas por esta Dirección General, para la “Construcción y Renovación de la Facultad de Derecho”. Conforme lo expuesto, en estos casos se prescindirá del trámite para la autorización de la exoneración ante el Departamento de Gestión de Exenciones en cada adquisición.
+2º—Las adquisiciones se realizarán mediante órdenes de compra emitidas por la “Universidad de Costa Rica Fideicomiso UCR/BCR-2011”. Estas órdenes de compra deberán ser firmadas por las personas debidamente autorizadas por parte del Representante Legal de la Universidad de Costa Rica, para efectuar las referidas compras exentas de impuestos en nombre del fideicomiso.
+3º—El Representante Legal de la Universidad de Costa Rica deberá remitir oficio a la Subdirección de Programación de la División de Incentivos Fiscales de esta Dirección, haciendo referencia a la presente resolución e indicando el nombre completo y el número de identificación de las personas autorizadas para efectuar las compras y consecuentemente para firmar las órdenes de compra a nombre del fideicomiso. En este oficio se debe registrar formalmente las firmas de las personas citadas. Estos registros de firmas deberán mantenerse actualizados ante
+cualquier variación al respecto.
+4º—Las órdenes de compra deberán contener expresa manifestación de que la compra en referencia está exenta de los Impuestos General sobre las Ventas y/o Selectivo de Consumo o de alguno de los dos, según corresponda. En poder del vendedor deberá permanecer la orden de compra original. No obstante, cuando por regulaciones especiales la “Universidad de Costa Rica Fideicomiso UCR/BCR-2011”, requiera conservar en su poder el original del documento en mención, como respaldo de la compra, el vendedor deberá conservar una copia certificada de la orden de compra respectiva. En todo caso, bien se trate del original o de la copia de la orden de compra, en este documento deberá constar la firma original de la persona autorizada para efectuar las compras a nombre de la entidad beneficiaria de la exención.
+Las órdenes de compra deberán contener el formato según el anexo adjunto a esta resolución.
+5º—Adicionalmente a los datos que exige la legislación, la factura respectiva deberá estar emitida a nombre de la “Universidad de Costa Rica Fideicomiso UCR/BCR-2011”, así como expresa manifestación de que con fundamento en la presente resolución, la compra en referencia está exenta de los Impuestos General sobre las Ventas y/o Selectivo de Consumo, o de alguno de los dos según corresponda. Asimismo deberá constar en la factura el monto específico de cada uno de los tributos que se están exonerando.
+6°—Los bienes exonerados al amparo de la presente resolución deberán ser utilizados por el beneficiario, únicamente para facilitar la “Construcción y Renovación de la Facultad de Derecho”. Cualquier uso o destino indebido de los bienes, exonerados debidamente comprobado, será motivo suficiente para dejar sin efecto la presente autorización e iniciar los procedimientos administrativos correspondientes para el cobro de los impuestos exonerados al amparo del artículo 37 y siguientes y 45 párrafo primero de la ley 7293 de 31 de marzo de 1992.
+7º—El beneficiario deberá llevar el debido control de los saldos pendientes de bienes exentos autorizados mediante la presente resolución, y evitar que se excedan las compras de las cantidades autorizadas, durante la vigencia de la misma.
+8º—El finiquito o cierre de la obra, deberá incluir un informe de cierre de todas las adquisiciones exoneradas, determinando y cuantificando los bienes sobrantes, para que el beneficiario proceda a pagar los impuestos respectivos, re-exportarlos o donarlos al Estado. Copia de este informe será remitido a la Dirección General de Hacienda y al Departamento de Gestión de Exenciones del Ministerio de Hacienda para el cierre de las exoneraciones en la etapa constructiva del proyecto.
+9º—Para cumplir con los controles que al efecto debe llevar la Dirección General de Hacienda específicamente la División de Incentivos Fiscales, la “Universidad de Costa Rica Fideicomiso UCR/BCR-2011”, deberá rendir informes que brindará, el primero, en los primeros diez días del mes de junio de 2017 y otro informe al finalizar la obra, con la siguiente información:
+ENCABEZADO
+1. Razón social del beneficiario y del fideicomiso.
+2. Cédula jurídica del beneficiario: Numérico, sin guiones de 10 dígitos (9999999999)
+3. Período del informe (Semestre y Año).
+4. Número de Resolución: Alfanumérico
+5. Fecha de Resolución: dd/mm/aaaa
+DETALLE DEL INFORME
+Según el anexo adjunto a esta resolución.
+CONSIDERACIONES GENERALES
+1. El informe debe ser elaborado con la herramienta Excel y enviarlo con firma digital al correo electrónico inforg@hacienda.go.cr de la Subdirección de Programación de la División de Incentivos Fiscales de la Dirección General de Hacienda.
+2. Llenar formulario en Fuente (letra) Arial, tamaño mínimo 9.
+3. Indicar los Totales Generales de: Valor de la compra, y Total Monto Exonerado, al final de la columna que correspondiente.
+4. Se debe numerar cada página del informe. Ejemplo: 1/2, 2/2,…
+5. El Informe deberá ser presentado según el anexo que contiene esta resolución, ante en la Dirección General de Hacienda dirigido a la División de Incentivos Fiscales.
+6. La “Universidad de Costa Rica Fideicomiso UCR/BCR-2011” deberá conservar en debido orden un archivo consecutivo de las órdenes de compra emitidas.
+7. Será responsabilidad de la “Universidad de Costa Rica Fideicomiso UCR/BCR-2011”, hacer los ajustes que correspondan para el adecuado control del procedimiento aquí autorizado.
+8. La vigencia de la presente resolución se define a partir de la fecha de su notificación. La misma podrá gestionarse nuevamente por parte de los interesados, en caso de ser necesario, un mes antes de su vencimiento y el Ministerio de Hacienda podrá autorizarla previa constatación de haberse aportado los informes requeridos. Asimismo la vigencia de esta resolución queda sujeta a que mediante leyes aprobadas con posterioridad, se dejen sin efecto o se disminuyan las exenciones reconocidas a favor de la Universidad de Costa Rica o bien a criterios de oportunidad y/o conveniencia del Ministerio de Hacienda, previa notificación o publicación en el diario La Gaceta de la resolución que deja sin efecto la presente autorización.
+9. En todo caso de operaciones de compraventa de bienes gravados con los impuestos en mención, en que el beneficiario no presente la orden de compra, el vendedor deberá consignar y cobrar el o los impuestos que corresponda.
+Es conforme.
+Notifíquese a la Universidad de Costa Rica.
+Publíquese.
+[imagen]
+INSTRUCTIVO DE LLENADO
+FORMULARIO INFORME DE COMPRAS LOCALES
+EXONERADAS AUTORIZADAS MEDIANTE RESOLUCION
+A continuación se detalla la información que se debe proporcionar en cada uno de los campos del formulario en cuestión:
+Encabezado
+ Razón Social del Beneficiario: nombre o razón social del beneficiario de la exoneración.
+ Cédula Jurídica: número de cedula jurídica del beneficiario.
+ Periodo (Semestre y Año): I o II semestre y el año respectivo.
+ Número y fecha de Resolución: número y fecha de la resolución emitida por la Dirección General de Hacienda, mediante la cual se autoriza el procedimiento especial para las adquisiciones bienes y servicios exonerados en el mercado local, prescindiendo del trámite ante el Departamento de Gestion de Exenciones.
+Formulario
+ Orden de compra o contrato o Número: número de orden de compra o contrato mediante el cual se realizaron las compras.
+o Fecha: fecha de la orden de compra o contrato mediante el cual se realizaron las compras.
+ Factura
+o Número: número de factura emitida por el proveedor
+o Fecha: fecha de factura emitida por el proveedor
+ Dependencia o unidad que usará el bien o servicio: área a la cual será destinado el bien exonerado.
+ Proveedor
+o Nombre: nombre o razón social de la persona física o jurídica por medio de la cual se adquirieron los bienes o servicios exonerados o Identificación: número de cedula física o jurídica del proveedor
+ Valor de la compra
+o Dólares: monto total pagado en dólares a un proveedor por concepto de todos los bienes o servicios exonerados adquiridos durante el semestre, en cuyo caso la factura debe haber sido extendida en dicha moneda.
+o Tipo de cambio: valor de la divisa aplicado en la adquisición de bienes o servicios exonerados facturados en dólares
+o Colones: resultado de la multiplicación de la columna “Monto Compra Dólares” por el monto de la columna “Tipo de Cambio”, en el caso de bienes facturados en dólares, a efecto de obtener la conversión del monto pagado en moneda nacional; o bien, monto total pagado en colones a un proveedor por concepto de todos los bienes o servicios exonerados adquiridos durante el semestre, facturados en moneda local.
+ Impuestos Exonerados: monto total de los impuestos exonerados por concepto de los bienes y servicios adquiridos a cada proveedor durante el semestre.
+Las consultas pueden ser planteadas por medio del correo electrónico: inforg@hacienda.go.cr , así como, a los teléfonos: 2284-5297 y 2284-5344.
+[imagen]
+PROYECTO: FACULTAD DE DERECHO PLAN DE COMPRAS
+ITEM | DETALLE DE COMPRA | CANTIDAD | UNIDAD
+1 | TOBA 70Kg/cm2 | 200,00 | M3
+2 | TOBA 25Kg/cm2 | 200,00 | M3
+3 | EPOXICO MAXISTICK 580 | 50,00 | GAL
+4 | TEJIDO DE FIBRA DE CARBONO | 2.500,00 | ML
+5 | KIT EPOXICO | 100,00 | UND
+6 | ARENA SILICA | 50,00 | SACO
+7 | ADOQUIN BICAPA 401 GRIS 8X10X20CM | 1.000,00 | M2
+8 | ADOQUIN BICAPA 401 ROJO 8X10X20CM | 250,00 | M2
+9 | MONTACARGAS BAJA CAPACIDAD TIPO MONTALIBROS | 1,00 | UND
+10 | ELEVADOR SCHINDLER MODELO 5500 | 6,00 | UND
+11 | EPÓXICO PARA FIJACIÓN DE VARILLAS | 1.500,00 | UND
+12 | EPÓXICO PARA INYECCIÓN | 1.000,00 | LITROS
+13 | ABRAZADERA PARA RIEL ACANALADO 150.00 MM | 35,00 | UND
+14 | ACOPLE HIERRO NEGRO RANURADO FLEXIBLE 100.00 MM | 15,00 | UND
+15 | ACOPLE HIERRO NEGRO RANURADO FLEXIBLE 150.00 MM | 90,00 | UND
+16 | ACOPLE HIERRO NEGRO RANURADO FLEXIBLE 50.00 MM | 120,00 | UND
+17 | ACOPLE HIERRO NEGRO RANURADO FLEXIBLE 63.00 MM | 720,00 | UND
+18 | ACOPLE HIERRO NEGRO RANURADO FLEXIBLE 75.00 MM | 45,00 | UND
+19 | ACOPLE HIERRO NEGRO RANURADO REDUCIDO 100MM X 75MM 0.00 N/A | 35,00 | UND
+20 | ACOPLE HIERRO NEGRO RANURADO REDUCIDO 150MM X 100MM 0.00 N/A | 5,00 | UND
+21 | ACOPLE HIERRO NEGRO RANURADO REDUCIDO 63MM X 50MM 0.00 N/A | 20,00 | UND
+22 | ACOPLE HIERRO NEGRO RANURADO REDUCIDO 75MM X 63MM 0.00 N/A | 20,00 | UND
+23 | ACOPLE HIERRO NEGRO RANURADO RIGIDO 100.00 MM | 120,00 | UND
+24 | ACOPLE HIERRO NEGRO RANURADO RIGIDO 150.00 MM | 500,00 | UND
+25 | ACOPLE HIERRO NEGRO RANURADO RIGIDO 50.00 MM | 43,00 | UND
+26 | ACOPLE HIERRO NEGRO RANURADO RIGIDO 63.00 MM | 2.257,00 | UND
+27 | ACOPLE HIERRO NEGRO RANURADO RIGIDO 75.00 MM | 131,00 | UND
+28 | ADAPTADOR HEMBRA COBRE 12.00 MM | 50,00 | UND
+29 | ADAPTADOR HEMBRA COBRE 18.00 MM | 8,00 | UND
+30 | ADAPTADOR HEMBRA COBRE 25.00 MM | 8,00 | UND
+31 | ADAPTADOR HEMBRA COBRE 50.00 MM | 8,00 | UND
+32 | ADAPTADOR HEMBRA COBRE 63.00 MM | 30,00 | UND
+33 | ADAPTADOR HEMBRA COBRE 75.00 MM | 30,00 | UND
+34 | ADAPTADOR HEMBRA PVC PRESION 12.00 MM | 528,00 | UND
+35 | ADAPTADOR HEMBRA PVC PRESION 18.00 MM | 45,00 | UND
+36 | ADAPTADOR HEMBRA PVC PRESION 25.00 MM | 107,00 | UND
+37 | ADAPTADOR HEMBRA PVC PRESION 32.00 MM | 78,00 | UND
+38 | ADAPTADOR MACHO COBRE 100.00 MM | 46,00 | UND
+39 | ADAPTADOR MACHO COBRE 12.00 MM | 45,00 | UND
+40 | ADAPTADOR MACHO COBRE 18.00 MM | 8,00 | UND
+41 | ADAPTADOR MACHO COBRE 25.00 MM | 8,00 | UND
+42 | ADAPTADOR MACHO COBRE 50.00 MM | 8,00 | UND
+43 | ADAPTADOR MACHO COBRE 63.00 MM | 30,00 | UND
+44 | ADAPTADOR MACHO COBRE 75.00 MM | 20,00 | UND
+45 | ADAPTADOR MACHO PVC CED 80 PRESION 100.00 MM | 113,00 | UND
+46 | ADAPTADOR MACHO PVC CED 80 PRESION 12.00 MM | 1.236,00 | UND
+47 | ADAPTADOR MACHO PVC CED 80 PRESION 150.00 MM | 20,00 | UND
+48 | ADAPTADOR MACHO PVC CED 80 PRESION 18.00 MM | 988,00 | UND
+49 | ADAPTADOR MACHO PVC CED 80 PRESION 25.00 MM | 372,00 | UND
+50 | ADAPTADOR MACHO PVC CED 80 PRESION 32.00 MM | 258,00 | UND
+51 | ADAPTADOR MACHO PVC CED 80 PRESION 38.00 MM | 193,00 | UND
+52 | ADAPTADOR MACHO PVC CED 80 PRESION 50.00 MM | 204,00 | UND
+53 | ADAPTADOR MACHO PVC CED 80 PRESION 75.00 MM | 177,00 | UND
+54 | ADAPTADOR MACHO PVC PRESION 100.00 MM | 64,00 | UND
+55 | ADAPTADOR MACHO PVC PRESION 150.00 MM | 8,00 | UND
+56 | ADAPTADOR MACHO PVC PRESION 50.00 MM | 148,00 | UND
+57 | ADAPTADOR REGISTRO PVC SANITARIO PARED DELGADA 50.00 MM | 4,00 | UND
+58 | ADAPTADOR REGISTRO PVC SANITARIO PARED GRUESA 100.00 MM | 136,00 | UND
+59 | ADAPTADOR REGISTRO PVC SANITARIO PARED GRUESA 150.00 MM | 37,00 | UND
+60 | ADAPTADOR REGISTRO PVC SANITARIO PARED GRUESA 200.00 MM | 32,00 | UND
+61 | ADAPTADOR REGISTRO PVC SANITARIO PARED GRUESA 38.00 MM | 82,00 | UND
+62 | ADAPTADOR REGISTRO PVC SANITARIO PARED GRUESA 50.00 MM | 121,00 | UND
+63 | ADAPTADOR REGISTRO PVC SANITARIO PARED GRUESA 75.00 MM | 40,00 | UND
+64 | ADAPTADOR SIFON PVC 38MM X 38MM | 214,00 | UND
+65 | AERODUCTO METALICO 100.00 MM | 92,00 | 2.44 MTS
+66 | AERODUCTO METALICO 2.44 METROS 50.00 MM | 732,00 | UND
+67 | AERODUCTO METALICO 63.00 MM | 82,00 | UND
+68 | AERODUCTO METALICO 75.00 MM | 46,00 | UND
+69 | AERODUCTO METALICO CON UNION 150.00 MM | 100,00 | 1.52 MTS
+70 | AISLAMIENTO DE HULE 3/4" DE DIAMETRO POR 1" IPS DE ESPESOR | 206,00 | 1.83 MT
+71 | AISLAMIENTO DE HULE 3/4" DE DIAMETRO POR 3/4" DE ESPESOR | 128,00 | 1.83 MT
+72 | AMARRA PLASTICA 16" | 22.145,00 | UND
+73 | AMARRA PLASTICA 18" | 16.891,00 | UND
+74 | AMARRA PLASTICA 24" 0.00 N/A | 3.560,00 | UND
+75 | AMARRA PLASTICA 8" 0.00 N/A | 10.218,00 | UND
+76 | ANCLAJE 18MM LARGO 10.00 MM | 9.759,00 | UND
+77 | ANCLAJE 38MM LARGO 10.00 MM | 14.022,00 | UND
+78 | ANCLAJE 50MM LARGO 12.00 MM | 510,00 | UND
+79 | ANCLAJE ANTISIMICO | 869,00 | UND
+80 | ANCLAJE DE CANASTA A B LINE 0.00 N/A | 6.155,00 | UND
+81 | ANCLAJE DE PISO PARA RACK | 120,00 | UND
+82 | ANCLAJE KWICK BOLT 3/8" X 1" | 642,00 | UND
+83 | ANCLAJE KWICK BOLT 3/8" X 2" | 3.280,00 | UND
+84 | ANCLAJE METAL VERTIGO 12.00 MM | 1.421,00 | UND
+85 | ANCLAJE METAL VERTIGO DE 3/8" UL FM EZG470 0.00 N/A | 1.426,00 | UND
+86 | ANCLAJE METALICO PARA GYPSON TIPO MARIPOSA 3/16 X 75MM DE LARGO 0.00 N/A | 125,00 | UND
+87 | ARANDELA CUADRADA RIEL ACANALADO 10.00 MM | 1.906,00 | UND
+88 | ARANDELA PLANA BRONCE 1/2" 12.00 MM | 960,00 | UND
+89 | ARANDELA PLANA BRONCE 3/8" 10.00 MM | 480,00 | UND
+90 | ARANDELA PLANA GALVANIZADA 1/2" 12.00 MM | 6.733,00 | UND
+91 | ARANDELA PLANA GALVANIZADA 3/8" 10.00 MM | 42.456,00 | UND
+92 | ARANDELA PLANA GALVANIZADA 5/8" 16.00 MM | 2.458,00 | UND
+93 | ARANDELA PRESION BRONCE 1/2" 12.00 MM | 960,00 | UND
+94 | ARANDELA PRESION BRONCE 3/8" 10.00 MM | 960,00 | UND
+95 | ARANDELA PRESION GALVANIZADA 1/2" 12.00 MM | 3.733,00 | UND
+96 | ARANDELA PRESION GALVANIZADA 3/8" 10.00 MM | 42.456,00 | UND
+97 | ARO DE REPELLO EMT 1 GANG X 12MM (1/2") PROFUNDIDAD | 4.021,00 | UND
+98 | ARO DE REPELLO EMT 2 GANG PLANOS 0.00 N/A | 853,00 | UND
+99 | ARRANCADOR 1HP, 480V, 3P | 38,00 | UND
+100 | ARRESTADOR FLAMA | 7,00 | UND
+101 | BANDEJA DE EMPALMES | 6,00 | UND
+102 | BANDEJA PARA FIBRA OPTICA | 6,00 | UND
+103 | BANDEJA PARA PINTORES DE 9" ANCHO | 29,00 | UND
+104 | BAQUELITA DE ROTULACIÓN DE EQUIPOS ELÉCTRICOS Y MECÁNICOS (TABLEROS, MEDIDORES, VÁLVULAS) | 300,00 | UND
+105 | BARRA DE COBRE | 45,00 | UND
+106 | BARRA TIERRA TIPO OMEGA | 9,00 | UND
+107 | BASE PARA RIEL ACANALADO 2 HUECOS | 260,00 | UND
+108 | BISAGRA ANTISISMICA 4 HUECOS | 1.582,00 | UND
+109 | BRACAIRO GALVANIZADO 38MM X 12MM X 4890MM LARGO CAL.18 | 1.897,00 | UND
+110 | BREAKER EN CAJA NEMA 1 CH 3POLOS/100AMP | 1,00 | UND
+111 | BREAKER PRESION 0.00 N/A | 6,00 | UND
+112 | BREAKER PRINCIPAL 3 POLOS 1000 A EATON | 1,00 | UND
+113 | BRIDA HIERRO NEGRO RANURADO/ROSCADO 150.00 MM | 15,00 | UND
+114 | BRIDA HIERRO NEGRO SIN CUELLO SOLDABLE 150.00 MM | 4,00 | UND
+115 | CABEZAL DE PRUEBA 150MM CON 4 VALVULAS 63MM 6844-RB | 1,00 | UND
+116 | CABLE 1/0 35KV AISLAMIENTO 133% | 1.200,00 | MT
+117 | CABLE ALUMINIO NEUTRACEN 3 X 4 0.00 N/A | 148,00 | MT
+118 | CABLE ALUMINIO XHHW-2 # 4 0.00 N/A | 444,00 | MT
+119 | CABLE COAXIAL RG-6 18AWG | 2.440,00 | MT
+120 | CABLE COBRE HILO THHN 3 X 10 CON ARMADURA ALUMINIO TIPO MC METAL CLAD CON CHAQUETA PVC(VERDE-BLANCO-NEGRO) 0.00 N/A | 3.920,00 | MT
+121 | CABLE COBRE HILO THHN 3 X 12 CON ARMADURA ALUMINIO TIPO MC METAL CLAD (VERDE-BLANCO-NEGRO) | 30.101,00 | MT
+122 | CABLE COBRE HILO THHN 3 X 12 CON ARMADURA ALUMINIO TIPO MC METAL CLAD CON CHAQUETA PVC (NEGRO-BLANCO-VERDE) 0.00 N/A | 37.880,00 | MT
+123 | CABLE COBRE HILO THHN 4 X 10 CON ARMADURA ALUMINIO TIPO MC METAL CLAD (VERDE NEGRO ROJO BLANCO) 0.00 N/A | 6.897,00 | MT
+124 | CABLE COBRE HILO THHN 4 X 10 CON ARMADURA ALUMINIO TIPO MC METAL CLAD CON CHAQUETA PVC 0.00 N/A | 7.854,00 | MT
+125 | CABLE COBRE HILO THHN 4 X 12 CON ARMADURA ALUMINIO TIPO MC METAL CLAD (VERDE-NEGRO-BLANCO-ROJO) | 20.225,00 | MT
+126 | CABLE DESNUDO 1/0 | 339,00 | MT
+127 | CABLE DESNUDO 3/0 | 958,00 | MT
+128 | CABLE FIBRA OPTICA DE 24 HILOS MONOMODO INDOOR/OUTDOOR | 3.370,00 | MT
+129 | CABLE RHH/RHHW-2 USE 8 | 4.684,00 | MT
+130 | CABLE RRH/RHHW-2 USE 2 | 247,00 | MT
+131 | CABLE RRH/RHHW-2 USE 2/0 | 511,00 | MT
+132 | CABLE RRH/RHHW-2 USE 400 | 1.442,00 | MT
+133 | CABLE TELEFONICO 25 PARES 24AWG | 1.830,00 | MT
+134 | CABLE TFF 18 NEGRO | 6.078,00 | MT
+135 | CABLE TGP 3 LINEAS CALIBRE 12 | 936,00 | MT
+136 | CABLE THHN 1/0 | 3.807,00 | MT
+137 | CABLE THHN 10 COLOR BLANCO | 7.728,00 | MT
+138 | CABLE THHN 10 COLOR NEGRO | 8.215,00 | MT
+139 | CABLE THHN 10 COLOR VERDE | 9.218,00 | MT
+140 | CABLE THHN 12 COLOR BLANCO | 49.594,00 | MT
+141 | CABLE THHN 12 COLOR NEGRO | 42.160,00 | MT
+142 | CABLE THHN 12 COLOR VERDE | 69.794,00 | MT
+143 | CABLE THHN 2 COLOR BLANCO | 233,00 | MT
+144 | CABLE THHN 2 COLOR NEGRO | 1.694,00 | MT
+145 | CABLE THHN 2 COLOR VERDE | 860,00 | MT
+146 | CABLE THHN 2/0 | 1.723,00 | MT
+147 | CABLE THHN 250MCM | 1.613,00 | MT
+148 | CABLE THHN 3/0 | 513,00 | MT
+149 | CABLE THHN 350MCM | 387,00 | MT
+150 | CABLE THHN 4 COLOR BLANCO | 279,00 | MT
+151 | CABLE THHN 4 COLOR NEGRO | 830,00 | MT
+152 | CABLE THHN 4 COLOR VERDE | 604,00 | MT
+153 | CABLE THHN 4/0 | 565,00 | MT
+154 | CABLE THHN 6 COLOR BLANCO | 80,00 | MT
+155 | CABLE THHN 6 COLOR NEGRO | 159,00 | MT
+156 | CABLE THHN 6 COLOR VERDE | 4.804,00 | MT
+157 | CABLE THHN 8 COLOR BLANCO | 815,00 | MT
+158 | CABLE THHN 8 COLOR NEGRO | 1.978,00 | MT
+159 | CABLE THHN 8 COLOR VERDE | 820,00 | MT
+160 | CABLE UTP CAT-6 TXA-10G | 62.899,00 | MT
+161 | CABLE XLPE 3 X 10 0.00 N/A | 960,00 | MT
+162 | CABLE XLPE 3 X 12 0.00 N/A | 350,00 | MT
+163 | CAJA CUADRADA EMT 100MM (4") X 100MM(4") X 38MM(11/2") NOCKOUT 12MM | 8.241,00 | UND
+164 | CAJA CUADRADA EMT PROFUNDA 100MM (4") X 100MM(4") X 50MM(2") NOCKOUT 12- 18MM | 2.098,00 | UND
+165 | CAJA DE CONEXION A PRUEBA DE AGUA (WATERPROOF) | 15,00 | UND
+166 | CAJA DE PASO METALICA 10X10X4 F-G-H-I 0.00 N/A | 40,00 | UND
+167 | CAJA DE PASO METALICA 6X6X4S PARCHE | 18,00 | UND
+168 | CAJA DE PASO METALICA 8X8X4F EMPOTRAR 0.00 N/A | 55,00 | UND
+169 | CAJA DE REGISTRO PLÁSTICA POLIETILENO ALTA DENSIDAD PENCELL | 3,00 | UND
+170 | CAJA OCTOGONAL EMT NOCK OUT 12-18MM | 3.968,00 | UND
+171 | CAJA OCTOGONAL EMT NOCK OUT 12MM | 1.840,00 | UND
+172 | CAJA P/ROCIADOR 1/2" 0.00 N/A | 5,00 | UND
+173 | CAJA PLEXO 100 X 100 X 55 | 10,00 | UND
+174 | CAJA RECTANGULAR EMT 100MM (4") X 50MM (2") X 50MM(2") NOCK OUT 12MM-18MM | 329,00 | UND
+175 | CAJA RECTANGULAR EMT 100MM (4") X 50MM(2") X 38MM(1 1/2") NOCKOUT 12MM(1/2") | 1.815,00 | UND
+176 | CAJA VALVULAS | 15,00 | UND
+177 | CALCOMANIA "AGUA POTABLE" 12 CMS LARGO X 4 CMS ALTO | 313,00 | UND
+178 | CALCOMANIA "AGUA POTABLE" 20 CMS LARGO X 8 CMS ALTO - ESPAÑOL-INLGES | 200,00 | UND
+179 | CALCOMANIA "AGUAS NEGRAS" 20 CMS LARGO X 12 CMS ALTO | 838,00 | UND
+180 | CALCOMANIA "AGUAS PLUVIALES" 18 CMS LARGO X 10 CMS ALTO | 400,00 | UND
+181 | CALCOMANIA "AGUAS PLUVIALES" 20 CMS LARGO X 10 CMS ALTO | 800,00 | UND
+182 | CALCOMANIA "DRENAJE DE CONDESADOS" 20 CMS LARGO X 5 CMS ALTO NACIONAL | 300,00 | UND
+183 | CALCOMANIA "GAS LP TROPIGAS" | 100,00 | UND
+184 | CALCOMANIA "SISTEMA AGUAS GRASOSAS" 18 CMS LARGO X 10 CMS ALTO | 250,00 | UND
+185 | CALCOMANIA "SISTEMA PROTECCION CONTRA INCENDIOS" 15 CMS LARGO X 8 CMS ALTO | 1.955,00 | UND
+186 | CALCOMANIA "SISTEMA VENTILACION" 15 CMS LARGO X 8 CMS ALTO | 465,00 | UND
+187 | CALCOMANIA (AGUA POTABLE) 10CMS ALTO POR 20CMS LARGO | 402,00 | UND
+188 | CALCOMANÍA “REBALSE TANQUE AGUA POTABLE” 18X9 CM | 16,00 | UND
+189 | CANASTA 150.00 MM | 585,00 | 3 MT
+190 | CANASTA 300.00 MM | 458,00 | 3 MT
+191 | CARGA DE ACETILENO 1 KG | 3,00 | UND
+192 | CARGA DE OXIGENO 220 PCI | 4,00 | UND
+193 | CARGA EXOTERMICA | 120,00 | UND
+194 | CENTRO DE CARGA PARCHE 8 ESPACIOS 0.00 N/A | 1,00 | UND
+195 | CHISPERO PARA MOLDE | 4,00 | UND
+196 | CODO COBRE 45 GRADOS 12.00 MM | 15,00 | UND
+197 | CODO COBRE 90 GRADOS 100.00 MM | 4,00 | UND
+198 | CODO COBRE 90 GRADOS 12.00 MM | 35,00 | UND
+199 | CODO COBRE 90 GRADOS 18.00 MM | 8,00 | UND
+200 | CODO COBRE 90 GRADOS 25.00 MM | 8,00 | UND
+201 | CODO COBRE 90 GRADOS 32.00 MM | 8,00 | UND
+202 | CODO COBRE 90 GRADOS 38.00 MM | 45,00 | UND
+203 | CODO COBRE 90 GRADOS 50.00 MM | 8,00 | UND
+204 | CODO COBRE 90 GRADOS 63.00 MM | 30,00 | UND
+205 | CODO COBRE 90 GRADOS 75.00 MM | 10,00 | UND
+206 | CODO DUCTO 45 GRADOS 100.00 MM | 30,00 | UND
+207 | CODO DUCTO 45 GRADOS 150.00 MM | 10,00 | UND
+208 | CODO DUCTO 45 GRADOS 63.00 MM | 43,00 | UND
+209 | CODO DUCTO 45 GRADOS 75.00 MM | 8,00 | UND
+210 | CODO DUCTO 90 GRADOS 100.00 MM | 35,00 | UND
+211 | CODO DUCTO 90 GRADOS 150.00 MM | 20,00 | UND
+212 | CODO DUCTO 90 GRADOS 50.00 MM | 98,00 | UND
+213 | CODO DUCTO 90 GRADOS 63.00 MM | 51,00 | UND
+214 | CODO DUCTO 90 GRADOS 75.00 MM | 16,00 | UND
+215 | CODO HIERRO DUCTIL BRIDADO 90 GRADOS 150.00 MM | 6,00 | UND
+216 | CODO HIERRO DUCTIL JUNTA MECANICA 45 GRADOS 150.00 MM | 19,00 | UND
+217 | CODO HIERRO DUCTIL JUNTA MECANICA 90 GRADOS 100.00 MM | 16,00 | UND
+218 | CODO HIERRO DUCTIL JUNTA MECANICA 90 GRADOS 150.00 MM | 51,00 | UND
+219 | CODO HIERRO GALVANIZADO CLASE 125 45 GRADOS 12.00 MM | 205,00 | UND
+220 | CODO HIERRO GALVANIZADO CLASE 125 90 GRADOS 12.00 MM | 929,00 | UND
+221 | CODO HIERRO GALVANIZADO CLASE 125 90 GRADOS 25.00 MM | 30,00 | UND
+222 | CODO HIERRO GALVANIZADO CLASE 125 90 GRADOS 32.00 MM | 25,00 | UND
+223 | CODO HIERRO GALVANIZADO CLASE 125 90 GRADOS 38.00 MM | 38,00 | UND
+224 | CODO HIERRO GALVANIZADO CLASE 125 90 GRADOS 50.00 MM | 40,00 | UND
+225 | CODO HIERRO NEGRO RANURADO 45 GRADOS 100.00 MM | 20,00 | UND
+226 | CODO HIERRO NEGRO RANURADO 45 GRADOS 150.00 MM | 35,00 | UND
+227 | CODO HIERRO NEGRO RANURADO 45 GRADOS 200.00 MM | 5,00 | UND
+228 | CODO HIERRO NEGRO RANURADO 45 GRADOS 38.00 MM | 80,00 | UND
+229 | CODO HIERRO NEGRO RANURADO 45 GRADOS 63.00 MM | 20,00 | UND
+230 | CODO HIERRO NEGRO RANURADO 45 GRADOS 75.00 MM | 28,00 | UND
+231 | CODO HIERRO NEGRO RANURADO 90 GRADOS 100.00 MM | 20,00 | UND
+232 | CODO HIERRO NEGRO RANURADO 90 GRADOS 150.00 MM | 210,00 | UND
+233 | CODO HIERRO NEGRO RANURADO 90 GRADOS 200.00 MM | 10,00 | UND
+234 | CODO HIERRO NEGRO RANURADO 90 GRADOS 32.00 MM | 250,00 | UND
+235 | CODO HIERRO NEGRO RANURADO 90 GRADOS 50.00 MM | 66,00 | UND
+236 | CODO HIERRO NEGRO RANURADO 90 GRADOS 63.00 MM | 425,00 | UND
+237 | CODO HIERRO NEGRO RANURADO 90 GRADOS 75.00 MM | 50,00 | UND
+238 | CODO HIERRO NEGRO ROSCABLE 45 GRADOS 25.00 MM | 300,00 | UND
+239 | CODO HIERRO NEGRO ROSCABLE 90 GRADOS 12.00 MM | 25,00 | UND
+240 | CODO HIERRO NEGRO ROSCABLE 90 GRADOS 18.00 MM | 25,00 | UND
+241 | CODO HIERRO NEGRO ROSCABLE 90 GRADOS 25.00 MM | 3.240,00 | UND
+242 | CODO HIERRO NEGRO ROSCABLE 90 GRADOS 32.00 MM | 489,00 | UND
+243 | CODO HIERRO NEGRO ROSCABLE 90 GRADOS 38.00 MM | 95,00 | UND
+244 | CODO HIERRO NEGRO SOLDABLE 45 GRADOS 150.00 MM | 10,00 | UND
+245 | CODO HIERRO NEGRO SOLDABLE 90 GRADOS 150.00 MM | 15,00 | UND
+246 | CODO PVC C-900 NACIONAL DR18 45°X 150.00 MM | 10,00 | UND
+247 | CODO PVC C-900 NACIONAL DR18 90°X 100.00 MM | 6,00 | UND
+248 | CODO PVC C-900 NACIONAL DR18 90°X 150.00 MM | 42,00 | UND
+249 | CODO PVC LISO CED 80 PRESION 45 GRADOS 12.00 MM | 295,00 | UND
+250 | CODO PVC LISO CED 80 PRESION 45 GRADOS 25.00 MM | 321,00 | UND
+251 | CODO PVC LISO CED 80 PRESION 45 GRADOS 50.00 MM | 30,00 | UND
+252 | CODO PVC LISO CED 80 PRESION 90 GRADOS 100.00 MM | 45,00 | UND
+253 | CODO PVC LISO CED 80 PRESION 90 GRADOS 12.00 MM | 566,00 | UND
+254 | CODO PVC LISO CED 80 PRESION 90 GRADOS 18.00 MM | 126,00 | UND
+255 | CODO PVC LISO CED 80 PRESION 90 GRADOS 25.00 MM | 258,00 | UND
+256 | CODO PVC LISO CED 80 PRESION 90 GRADOS 32.00 MM | 78,00 | UND
+257 | CODO PVC LISO CED 80 PRESION 90 GRADOS 38.00 MM | 34,00 | UND
+258 | CODO PVC LISO CED 80 PRESION 90 GRADOS 50.00 MM | 28,00 | UND
+259 | CODO PVC LISO CED 80 PRESION 90 GRADOS 75.00 MM | 23,00 | UND
+260 | CODO PVC LISO PRESION 90 GRADOS 18.00 MM | 204,00 | UND
+261 | CODO PVC LISO PRESION 90 GRADOS 25.00 MM | 245,00 | UND
+262 | COLADERA 20 X 20 50.00 MM | 17,00 | UND
+263 | COLADERA GRANDECO GRANDE REDONDO 100.00 MM | 18,00 | UND
+264 | CONDULETA EMT TIPO C 100.00 MM | 6,00 | UND
+265 | CONDULETA EMT TIPO C 12.00 MM | 200,00 | UND
+266 | CONDULETA EMT TIPO C 18.00 MM | 190,00 | UND
+267 | CONDULETA EMT TIPO C 25.00 MM | 90,00 | UND
+268 | CONDULETA EMT TIPO C 32.00 MM | 60,00 | UND
+269 | CONDULETA EMT TIPO C 38.00 MM | 50,00 | UND
+270 | CONDULETA EMT TIPO C 50.00 MM | 120,00 | UND
+271 | CONDULETA EMT TIPO C 63.00 MM | 40,00 | UND
+272 | CONDULETA EMT TIPO C 75.00 MM | 20,00 | UND
+273 | CONDULETA EMT TIPO LB 32.00 MM | 13,00 | UND
+274 | CONDULETA EMT TIPO LB 63.00 MM | 33,00 | UND
+275 | CONDULETA EMT TIPO LB 75.00 MM | 9,00 | UND
+276 | CONDULETA EMT TIPO LR 100.00 MM | 5,00 | UND
+277 | CONECTOR BARRIL CABLE 4 | 900,00 | UND
+278 | CONECTOR COMPRESION P/CABLE 1/0-2/0 REF.ICE CC-4 0.00 N/A | 70,00 | UND
+279 | CONECTOR COMPRESION P/CABLE 3/0-4/0 | 25,00 | UND
+280 | CONECTOR CONDUIT PVC 12.00 MM | 8.000,00 | UND
+281 | CONECTOR CONDUIT PVC 18.00 MM | 12.000,00 | UND
+282 | CONECTOR CONDUIT PVC 25.00 MM | 4.000,00 | UND
+283 | CONECTOR EMT BUSHING CON TIERRA 100.00 MM | 20,00 | UND
+284 | CONECTOR EMT BUSHING CON TIERRA 12.00 MM | 222,00 | UND
+285 | CONECTOR EMT BUSHING CON TIERRA 18.00 MM | 981,00 | UND
+286 | CONECTOR EMT BUSHING CON TIERRA 25.00 MM | 1.254,00 | UND
+287 | CONECTOR EMT BUSHING CON TIERRA 32.00 MM | 58,00 | UND
+288 | CONECTOR EMT BUSHING CON TIERRA 38.00 MM | 116,00 | UND
+289 | CONECTOR EMT BUSHING CON TIERRA 50.00 MM | 251,00 | UND
+290 | CONECTOR EMT BUSHING CON TIERRA 63.00 MM | 500,00 | UND
+291 | CONECTOR EMT BUSHING CON TIERRA 75.00 MM | 10,00 | UND
+292 | CONECTOR EMT PARA CABLE MC ARMADO THHN S/FORRO FAST LOCK 1/2 KO | 4.776,00 | UND
+293 | CONECTOR EMT PRESION 100.00 MM | 45,00 | UND
+294 | CONECTOR EMT PRESION 32.00 MM | 28,00 | UND
+295 | CONECTOR EMT PRESION 38.00 MM | 120,00 | UND
+296 | CONECTOR EMT PRESION 63.00 MM | 102,00 | UND
+297 | CONECTOR EMT PRESION 75.00 MM | 42,00 | UND
+298 | CONECTOR EMT RECTO BX LIQUIT TITE 100.00 MM | 25,00 | UND
+299 | CONECTOR EMT RECTO BX LIQUIT TITE 12.00 MM | 138,00 | UND
+300 | CONECTOR EMT RECTO BX LIQUIT TITE 18.00 MM | 18,00 | UND
+301 | CONECTOR EMT RECTO BX LIQUIT TITE 25.00 MM | 26,00 | UND
+302 | CONECTOR EMT RECTO BX LIQUIT TITE 38.00 MM | 19,00 | UND
+303 | CONECTOR EMT RECTO BX LIQUIT TITE 50.00 MM | 52,00 | UND
+304 | CONECTOR EMT RECTO BX LIQUIT TITE 63.00 MM | 35,00 | UND
+305 | CONECTOR EMT RECTO BX LIQUIT TITE 75.00 MM | 5,00 | UND
+306 | CONECTOR EMT RECTO BX METALICO 32.00 MM | 9,00 | UND
+307 | CONECTOR EMT RECTO BX METALICO 50.00 MM | 78,00 | UND
+308 | CONECTOR EMT TSJ 12.00 MM | 1.027,00 | UND
+309 | CONECTOR MACHO ROSCADO CONDUIT PVC CED 40 18.00 MM | 16.000,00 | UND
+310 | CONECTOR RJ-45 CAT 6A COLOR BLANCO | 1.056,00 | UND
+311 | CONECTOR TIPO GAS QUICK DISCONNECT 25MM | 1,00 | UND
+312 | CONTADOR DE EVENTOS | 3,00 | UND
+313 | CURVA CONDUIT PVC CED 40 90 GR HEMBRA/HEMBRA 12.00 MM | 2.000,00 | UND
+314 | CURVA CONDUIT PVC CED 40 90 GR HEMBRA/HEMBRA 18.00 MM | 1.350,00 | UND
+315 | CURVA CONDUIT PVC CED 40 90 GR HEMBRA/HEMBRA 25.00 MM | 670,00 | UND
+316 | CURVA PVC RADIO LARGO SDR-32.5 90 GRADOS 50.00 MM | 8,00 | UND
+317 | CURVA PVC RADIO LARGO SDR-41 90 GRADOS 100.00 MM | 11,00 | UND
+318 | CURVA PVC RADIO LARGO SDR-41 90 GRADOS 150.00 MM | 8,00 | UND
+319 | DESCONECTADOR 2 POLOS 30AMP | 59,00 | UND
+320 | DESCONECTADOR 2 POLOS 30AMP NEMA 3R | 8,00 | UND
+321 | DESCONECTADOR 2 POLOS 60AMP NEMA 3R | 4,00 | UND
+322 | DESCONECTADOR 2POLOS 50AMP | 2,00 | UND
+323 | DESCONECTADOR 3 POLOS 30AMP NEMA 3R 600V | 4,00 | UND
+324 | DESCONECTADOR DE CABLE BAJANTE PARA CABLE 1/0 IPC | 3,00 | UND
+325 | DESCONECTADOR NEMA 1 3P/50AMP SIN FUSIBLES | 2,00 | UND
+326 | DESCONECTADOR SEGURIDAD 3 POLOS 30AMP NEMA 3R | 5,00 | UND
+327 | DESCONECTADOR SIN FUSIBLE 3P 100A NEMA 3R | 4,00 | UND
+328 | DESCONECTADOR SIN FUSIBLE 3POLOS/200AMP 240V NEMA 3R | 3,00 | UND
+329 | DRENAJE DE PISO ALUMINIO, DRENAJE CUADRADO 50.00 MM | 20,00 | UND
+330 | DRENAJE PISO REDONDO ALUMINIO 50.00 MM | 56,00 | UND
+331 | EMPAQUE DE CERA PARA INODORO | 116,00 | UND
+332 | EMPAQUE ESPIROMETALICO PARA BRIDA 100.00 MM | 10,00 | UND
+333 | EMPAQUE ESPIROMETALICO PARA BRIDA 125.00 MM | 10,00 | UND
+334 | EMPAQUE ESPIROMETALICO PARA BRIDA 150.00 MM | 23,00 | UND
+335 | ENCHUFE POLARIZADO PARA EXTENSION 15AMP 125V 0.00 N/A | 20,00 | UND
+336 | ESCUADRA INTERNA RIEL ACANALADO 2 HUECOS | 161,00 | UND
+337 | ESCUDETE COLOR BLANCO PARA ROCIADOR TY2524 | 1.507,00 | UND
+338 | ETIQUETA PARA PLACAS | 2.500,00 | UND
+339 | ETIQUETAS PARA CABLE | 5.000,00 | UND
+340 | ETIQUETAS PATCH PANEL | 2.500,00 | UND
+341 | EXTINTOR DE POLVO QUIMICO TIPO ABC | 74,00 | UND
+342 | EXTINTOR TIPO K | 1,00 | UND
+343 | FIBRA OPTICA DE 12 HILOS MULTIMODO INDOOR/OUTDOOR | 1.000,00 | UND
+344 | FILTRO DE DIESEL | 1,00 | UND
+345 | FLANGER CROMADO 12.00 MM | 207,00 | UND
+346 | FLANGER CROMADO 18.00 MM | 163,00 | UND
+347 | FLANGER DUCTO 100.00 MM | 12,00 | UND
+348 | FLANGER DUCTO 150.00 MM | 10,00 | UND
+349 | FLANGER DUCTO 63.00 MM | 20,00 | UND
+350 | FLANGER DUCTO 75.00 MM | 15,00 | UND
+351 | FLANGER DUCTO CUTLER HAMMER 50.00 MM (2.09'') | 47,00 | UND
+352 | FLANGER HIERRO NEGRO SOLDABLE 12 HUECOS 150.00 MM | 1,00 | UND
+353 | FLANGER HIERRO NEGRO SOLDABLE 150.00 MM | 10,00 | UND
+354 | FLANGER HIERRO NEGRO SOLDABLE 200.00 MM | 10,00 | UND
+355 | FLANGER SANITARIO PARED GRUESA PARA INODORO 100MM X 75MM | 116,00 | UND
+356 | FULMINANTE SUELTO CAL.22 COLOR AMARILLO 0.00 N/A | 57.292,00 | UND
+357 | FULMINANTE SUELTO CAL.22 COLOR CAFE | 57.892,00 | UND
+358 | FULMINANTE SUELTO CAL.22 COLOR VERDE 0.00 N/A | 57.292,00 | UND
+359 | GABINETE PARA MEDIDOR DE CNFL | 1,00 | UND
+360 | GALON DE PINTURA MINIO ROJO | 102,00 | UND
+361 | GALON DE PINTURA ROJO INTERNACIONAL ANTICORROSIVO | 52,00 | UND
+362 | GAZA ANTISISMICA 100.00 MM | 102,00 | UND
+363 | GAZA ANTISISMICA 150.00 MM | 45,00 | UND
+364 | GAZA ANTISISMICA 63.00 MM | 224,00 | UND
+365 | GAZA ANTISISMICA 75.00 MM | 83,00 | UND
+366 | GAZA DE COBRE PARA CABLE BAJANTE DE PARARRAYO NAC 1/2 PARA CABLE 1/0 | 117,00 | UND
+367 | GAZA EMT DOS OREJAS 12.00 MM | 995,00 | UND
+368 | GAZA EMT DOS OREJAS 18.00 MM | 623,00 | UND
+369 | GAZA EMT DOS OREJAS 25.00 MM | 515,00 | UND
+370 | GAZA EMT DOS OREJAS 32.00 MM | 268,00 | UND
+371 | GAZA EMT DOS OREJAS 38.00 MM | 486,00 | UND
+372 | GAZA EMT DOS OREJAS 50.00 MM | 421,00 | UND
+373 | GAZA EMT DOS OREJAS 63.00 MM | 39,00 | UND
+374 | GAZA EMT DOS OREJAS 75.00 MM | 174,00 | UND
+375 | GAZA EMT UNA OREJA AMERICANA 12.00 MM | 28.513,00 | UND
+376 | GAZA EMT UNA OREJA AMERICANA 18.00 MM | 10.212,00 | UND
+377 | GAZA EMT UNA OREJA AMERICANA 25.00 MM | 342,00 | UND
+378 | GAZA EMT UNA OREJA AMERICANA 50.00 MM | 565,00 | UND
+379 | GAZA EMT UNA OREJA AMERICANA 63.00 MM | 331,00 | UND
+380 | GAZA PARA RIEL ACANALADO 100.00 MM | 987,00 | UND
+381 | GAZA PARA RIEL ACANALADO 150.00 MM | 103,00 | UND
+382 | GAZA PARA RIEL ACANALADO 200.00 MM | 56,00 | UND
+383 | GAZA PARA RIEL ACANALADO 25.00 MM | 185,00 | UND
+384 | GAZA PARA RIEL ACANALADO 32.00 MM | 78,00 | UND
+385 | GAZA PARA RIEL ACANALADO 38.00 MM | 99,00 | UND
+386 | GAZA PARA RIEL ACANALADO 50.00 MM | 661,00 | UND
+387 | GAZA PARA RIEL ACANALADO 63.00 MM | 366,00 | UND
+388 | GAZA PARA RIEL ACANALADO 75.00 MM | 328,00 | UND
+389 | GAZA TIPO PERA HIERRO GALVANIZADO 100.00 MM | 562,00 | UND
+390 | GAZA TIPO PERA HIERRO GALVANIZADO 12.00 MM | 227,00 | UND
+391 | GAZA TIPO PERA HIERRO GALVANIZADO 150.00 MM | 140,00 | UND
+392 | GAZA TIPO PERA HIERRO GALVANIZADO 18.00 MM | 205,00 | UND
+393 | GAZA TIPO PERA HIERRO GALVANIZADO 200.00 MM | 73,00 | UND
+394 | GAZA TIPO PERA HIERRO GALVANIZADO 25.00 MM | 1.462,00 | UND
+395 | GAZA TIPO PERA HIERRO GALVANIZADO 250.00 MM | 93,00 | UND
+396 | GAZA TIPO PERA HIERRO GALVANIZADO 32.00 MM | 1.603,00 | UND
+397 | GAZA TIPO PERA HIERRO GALVANIZADO 38.00 MM | 188,00 | UND
+398 | GAZA TIPO PERA HIERRO GALVANIZADO 50.00 MM | 638,00 | UND
+399 | GAZA TIPO PERA HIERRO GALVANIZADO 63.00 MM | 988,00 | UND
+400 | GAZA TIPO PERA HIERRO GALVANIZADO 75.00 MM | 100,00 | UND
+401 | GENERADOR DE 300KW | 1,00 | UND
+402 | GRANADA GRANDE 100.00 MM | 46,00 | UND
+403 | GRANADA GRANDE 150.00 MM | 5,00 | UND
+404 | GRANADA GRANDE 200.00 MM | 4,00 | UND
+405 | HIDRANTE HUMEDO | 1,00 | UND
+406 | INTERRUPTOR DE TRANSFERENCIA MANUAL 150AMP, 120/208V | 1,00 | UND
+407 | INTERRUPTOR INDUSTRIAL 20A 120/277V | 412,00 | UND
+408 | INTERRUPTOR INDUSTRIAL 3 VIAS 20 A 120/277V | 44,00 | UND
+409 | JUNTA FLEXIBLE ACERO INOXIDABLE METALICA BRIDADA 50.00 MM | 4,00 | UND
+410 | JUNTA FLEXIBLE DE COBRE SOLDABLE NACIONAL 18.00 MM | 3,00 | UND
+411 | JUNTA FLEXIBLE DE HULE BRIDADA 150.00 MM | 5,00 | UND
+412 | JUNTA FLEXIBLE HIERRO NEGRO RANURADA METRALOOP MTV 63.00 MM 0.00 N/A | 15,00 | UND
+413 | JUNTA FLEXIBLE HULE BRIDADA ACERO INOXIDABLE 32.00 MM | 4,00 | UND
+414 | JUNTA FLEXIBLE HULE BRIDADA ACERO INOXIDABLE 38.00 MM | 4,00 | UND
+415 | JUNTA FLEXIBLE ROSCADA ACERO INOXIDABLE 25MM MODELO EV-PCM-25 | 20,00 | UND
+416 | KILO DE ALAMBRE GALVANIZADO NO.18 | 33,00 | KG
+417 | LAMPARA LUMINARIA EMERGENCIA E-40 | 354,00 | UND
+418 | LLAVE DE CHORRO BRONCE 90 GRADOS 12.00 MM | 40,00 | UND
+419 | LLAVE DE CONTROL A LA PARED 12MM X 12MM | 136,00 | UND
+420 | LLAVE PARA ROCIADOR TFP PH2 0.00 N/A | 5,00 | UND
+421 | LUMINARIA DE EMPOTRAR | 1.472,00 | UND
+422 | LUMINARIA DE PARCHE A04-SI-A-2-LED-30K-120-W-P1I30-LMC | 34,00 | UND
+423 | LUMINARIA DE SUPERFICIE 22EN-LD2-34-UNV-L830-CD1-U + SK-22-WS | 148,00 | UND
+424 | LUMINARIA EN PARED | 36,00 | UND
+425 | LUMINARIA EN PARED 303-W2-LEDB2-3500-UNV-T2-DIM10-NSS | 60,00 | UND
+426 | LUMINARIA EN POSTE FUMAGALLI | 13,00 | UND
+427 | LUMINARIA EN POSTE FUMAGALLI | 4,00 | UND
+428 | LUMINARIA EN RIEL MODELO:L806HOSP8030AH277 | 27,00 | UND
+429 | LUMINARIA MODELO 2VT2-LD4-3-DR-UNV-L840-CD1-WL-U | 248,00 | UND
+430 | LUMINARIA MODELO H2601E70SL GENOVA | 35,00 | UND
+431 | LUMINARIA MODELO PD620ED010-PDM6A840-61VC | 397,00 | UND
+432 | LUMINARIA MODELO VT2-248T8H0-277V-WL-U | 47,00 | UND
+433 | LUMINARIA TIPO REFLECTOR | 5,00 | UND
+434 | LUMINARIA TIPO REFLECTOR TOMMY FUMAGALLI 240V | 8,00 | UND
+435 | LUMINARIAS DE EMPOTRAR FUMAGALLI | 48,00 | UND
+436 | MANERAL PARA MOLDE TIPO C,R,E | 1,00 | UND
+437 | MANGUERA DE ABASTO METALICA TRENZADA 12MM X 9.53MM | 136,00 | UND
+438 | MANGUERA DE CONEXION PARA ROCIADORES DE 36" A36HAQBBA1 SERIE AH1 CON RACK AB7 12.00 MM | 1.250,00 | UND
+439 | MANGUERA DE CONEXION PARA ROCIADORES DE 36" BRAIDED 12.00 MM | 1.621,00 | UND
+440 | MANGUITOS TERMOCONTRACTILES (PAQUETE DE 100 UNIDADES) | 13,00 | UND
+441 | MANOMETRO CON GLICERINA 0-100PSI CARATULA 50MM | 31,00 | UND
+442 | MANOMETRO CON GLICERINA 0-140PSI CARATULA 50MM | 3,00 | UND
+443 | MANOMETRO CON GLICERINA 0-200PSI CARATULA 50MM 0.00 N/A | 112,00 | UND
+444 | MANOMETRO CON GLICERINA 0-200PSI CARATULA 63MM 0.00 N/A | 13,00 | UND
+445 | MANOMETRO CON GLICERINA 0-300PSI CARATULA 50MM 0.00 N/A | 15,00 | UND
+446 | MANOMETRO CON GLICERINA DE 0-300 CON CARATULA DE 4-1/2" | 29,00 | UND
+447 | MANOMETRO PARA GAS LP DE ALTA PRESION 0-30 PSI | 3,00 | UND
+448 | MANOMETRO PARA GAS LP DE BAJA PRESION 0-1,5 PSI | 1,00 | UND
+449 | MANOMETRO SECO A-600 PSI CARATULA 75MM | 4,00 | UND
+450 | MASTIL DE ELEVACION 5MTS PARA PARARRAYOS | 1,00 | UND
+451 | MEDIDOR DE VARIABLES ELECTRICAS EATON IQ150MA6510 | 1,00 | UND
+452 | MEDIDOR PARA AGUA ROSCADO 25.00 MM | 6,00 | UND
+453 | MEDIDOR PARA AGUA ROSCADO 32.00 MM | 2,00 | UND
+454 | MEDIDOR PARA AGUA ROSCADO 38.00 MM | 12,00 | UND
+455 | MODULO DE FIBRA OPTICA 6LC DUPLEX | 80,00 | UND
+456 | MODULO DE FIBRA ÓPTICA FAP6WEIDLC | 10,00 | UND
+457 | MODULO DE FIBRA OPTICA LC DUPLEX | 10,00 | UND
+458 | MUFLA SISTEMA INCENDIO | 1,00 | UND
+459 | NIPLE HIERRO GALVANIZADO 12MM X 150MM LARGO | 55,00 | UND
+460 | NIPLE HIERRO GALVANIZADO CROMADO 12MM X 100MM LARGO | 236,00 | UND
+461 | ORGANIZADOR DE FIBRA ÓPTICA DE 2U | 80,00 | UND
+462 | ORGANIZADOR DE FIBRA OPTICA PARA 4 MODULOS | 12,00 | UND
+463 | ORGANIZADOR PARA CABLE HORIZONTAL | 280,00 | UND
+464 | ORGANIZADOR PARA CABLE VERTICAL | 160,00 | UND
+465 | PAR DE TORNILLOS ANCLAJE INODORO | 136,00 | UND
+466 | PARARRAYOS IONIZANTE 97MTS | 1,00 | UND
+467 | PASTA FUNTENDE FLUX "LA-CO" 4 OZ. PARA ESTAÑO 0.00 N/A | 8,00 | UND
+468 | CABLE DE EMPATE DE RJ45 A RJ45 DE 5 PIES (Cable telecomunicaciones) | 2.206,00 | UND
+469 | CABLE DE EMPATE DE RJ45 A RJ 45 DE 7 PIES CATEGORIA 6A (Cable telecomunicaciones) | 2.206,00 | UND
+470 | CABLE DE EMPATE DE FIBRA OPTICA DE 3METROS TERMINACION LC-LC MUTIMODO OM4 (Cable telecomunicaciones) | 189,00 | UND
+471 | PANEL DE TERMINACION DE CABLES CATEGORIA 6A (Panel telecom) | 158,00 | UND
+472 | CONECTOR PARA TERMINACION DE FIBRA OPTICA LC | 1.124,00 | UND
+473 | CONECTOR PARA TERMINACION DE FIBRA OPTICA MONO MODO LC | 325,00 | UND
+474 | PLACA 1 GANG BLANCA DE PRESION | 5.159,00 | UND
+475 | PLACA 1 HUECO RJ45 COLOR BLANCO | 242,00 | UND
+476 | PLACA 2 HUECOS RJ45 COLOR BLANCA | 1.163,00 | UND
+477 | PLACA ACERO INOXIDABLE 1 GANG 40.5MM P/TOMACORRIENTE TWIST LOCK | 41,00 | UND
+478 | PLACA ANTIVORTICE 30 CMS X 30 CMS X 1/4" | 3,00 | UND
+479 | PLACA CON CONECCION HDMI + VGA | 92,00 | UND
+480 | PLACA CORTALAGRIMAS | 2,00 | UND
+481 | PLACA PARA INTEMPERIE | 68,00 | UND
+482 | PLACA PLASTICA DE NYLON TOMACORRIENTE COLOR ROJA | 303,00 | UND
+483 | PLIEGO DE LIJA AGUA #100 0.00 N/A | 143,00 | UND
+484 | POSTE PARA LUMINARIA 2360-2370-RT 4MTS, COLOR NEGRO | 4,00 | UND
+485 | POSTES ORNAMENTALES TIPO REYES 4.5M (SABORIO) | 7,00 | UND
+486 | FUENTE DE PODER PARA SENSORES | 42,00 | UND
+487 | PROTECTOR DE POLIETILENO PARA CABLE BAJANTE (LARGO 8") | 42,00 | UND
+488 | PANEL TIPO RACK 4 POSTES MODELO 15053-703 DE CPI | 9,00 | UND
+489 | PANEL TIPO RACK DE PISO COLOR NEGRO | 74,00 | UND
+490 | ACCESORIO DE DRENAJE Y SENSADO PARA ALIMENTADOR PRINCIAL DE 150.00MM | 17,00 | UND
+491 | ACCESORIO DE DRENAJE Y SENSADO PARA ALIMENTADOR PRINCIAL DE 63.00MM | 20,00 | UND
+492 | ACCESORIO DE DRENAJE Y SENSADO PARA ALIMENTADOR PRINCIAL DE 75.00MM | 20,00 | UND
+493 | REDUCCION BUSHING BRONCE 12MM X 6MM 0.00 N/A | 10,00 | UND
+494 | REDUCCION BUSHING HIERRO GALVANIZADO 12 X 6MM | 66,00 | UND
+495 | REDUCCION BUSHING HIERRO GALVANIZADO 25 X 6MM | 106,00 | UND
+496 | REDUCCION BUSHING HIERRO GALVANIZADO 32 X 12MM | 32,00 | UND
+497 | REDUCCION BUSHING HIERRO GALVANIZADO 38 X 12MM | 43,00 | UND
+498 | REDUCCION BUSHING HIERRO NEGRO RANURADO 75 X 50MM 0.00 N/A | 35,00 | UND
+499 | REDUCCION BUSHING HIERRO NEGRO RANURADO 75 X 63MM 0.00 N/A | 43,00 | UND
+500 | REDUCCION CAMPANA COBRE 50 X 18MM | 15,00 | UND
+501 | REDUCCION CAMPANA HIERRO NEGRO RANURADO 100 X 63 MM | 10,00 | UND
+502 | REDUCCION CAMPANA HIERRO NEGRO RANURADO 150 X 100MM | 11,00 | UND
+503 | REDUCCION CAMPANA HIERRO NEGRO RANURADO 150 X 63MM | 33,00 | UND
+504 | REDUCCION CAMPANA HIERRO NEGRO RANURADO 150 X 75MM 0.00 N/A | 25,00 | UND
+505 | REDUCCION CAMPANA HIERRO NEGRO RANURADO 63 X 25MM | 210,00 | UND
+506 | REDUCCION CAMPANA HIERRO NEGRO RANURADO 63 X 32MM | 320,00 | UND
+507 | REDUCCION CAMPANA HIERRO NEGRO RANURADO 63 X 38MM | 45,00 | UND
+508 | REDUCCION CAMPANA HIERRO NEGRO RANURADO 63 X 50MM 0.00 N/A | 71,00 | UND
+509 | REDUCCION CAMPANA HIERRO NEGRO ROSCABLE 25 X 12MM | 1.950,00 | UND
+510 | REDUCCION CAMPANA HIERRO NEGRO ROSCABLE 32 X 25MM | 1.400,00 | UND
+511 | REDUCCION CAMPANA HIERRO NEGRO ROSCABLE 38 X 25MM | 80,00 | UND
+512 | REDUCCION CAMPANA HIERRO NEGRO ROSCABLE 38 X 32MM 0.00 N/A | 400,00 | UND
+513 | REDUCCION HIERRO DUCTIL JUNTA MECANICA 150MM X 100MM | 21,00 | UND
+514 | REDUCCION PVC LISA CED 80 PRESION 100 X 50 MM | 9,00 | UND
+515 | REDUCCION PVC LISA CED 80 PRESION 18 X 12 MM | 133,00 | UND
+516 | REDUCCION PVC LISA CED 80 PRESION 25 X 12 MM | 101,00 | UND
+517 | REDUCCION PVC LISA CED 80 PRESION 25 X 18 MM | 52,00 | UND
+518 | REDUCCION PVC LISA CED 80 PRESION 32 X 12 MM | 63,00 | UND
+519 | REDUCCION PVC LISA CED 80 PRESION 32 X 18 MM | 24,00 | UND
+520 | REDUCCION PVC LISA CED 80 PRESION 32 X 25 MM | 92,00 | UND
+521 | REDUCCION PVC LISA CED 80 PRESION 38 X 18 MM | 17,00 | UND
+522 | REDUCCION PVC LISA CED 80 PRESION 38 X 32 MM | 74,00 | UND
+523 | REDUCCION PVC LISA CED 80 PRESION 50MM X 25MM | 26,00 | UND
+524 | REDUCCION PVC LISA CED 80 PRESION 50MM X 32MM | 46,00 | UND
+525 | REDUCCION PVC LISA CED 80 PRESION 50MM X 38MM | 13,00 | UND
+526 | REDUCCION PVC LISA CED 80 PRESION 75MM X 25MM | 26,00 | UND
+527 | REDUCCION PVC LISA CED 80 PRESION 75MM X 32 MM | 10,00 | UND
+528 | REDUCCION PVC LISA CED 80 PRESION 75MM X 38MM | 20,00 | UND
+529 | REDUCCION PVC SANITARIA PARED GRUESA 100 X 38 | 78,00 | UND
+530 | REDUCCION PVC SANITARIA PARED GRUESA 200MM X 50MM | 10,00 | UND
+531 | REDUCCION TDP PARA ALCANTARILLADO 250MM X 150MM 0.00 N/A | 3,00 | UND
+532 | REGISTRO DE PISO TAPA ALUMINIO ALT.AJUSTABLE CUERPO ALUMINIO 100.00 MM | 42,00 | UND
+533 | REGISTRO DE PISO TAPA ALUMINIO ALT.AJUSTABLE CUERPO ALUMINIO 50.00 MM | 52,00 | UND
+534 | REGISTRO DE VARILLAS COPERWELD CON TAPA 25 X 25CM ACABADO CROMO | 25,00 | UND
+535 | REGLETA 110 DE MONTAJE EN RACK CON 2 BASES DE 96 PARES | 33,00 | UND
+536 | REGLETA DE POTENCIA 120V/20A | 140,00 | UND
+537 | RESCTRICTOR TUBO-TUBO C-900 100.00 MM | 76,00 | UND
+538 | RESTRICTOR GLANDULA TUBO-ACCESORIO 150.00 MM | 323,00 | UND
+539 | RESTRICTOR PARA TUBO - PVC C900 C/ACC C907 PRC 1100C 150.00 MM | 115,00 | UND
+540 | RESTRICTOR TUBO ACCESORIO HD 150.00 MM | 73,00 | UND
+541 | RIEL ACANALADO 1 5/8 X 1 5/8 GA 14 | 1.086,00 | UND
+542 | ROCIADOR K8 286 F MONTANTE 0.00 N/A | 25,00 | UND
+543 | ROCIADOR PENDENT K=5.6 TEMPERATURA 155F (68C) RESPUESTA RÁPIDA, BLANCO,TYFRB TY3231 , 57-371-4-155 | 1.657,00 | UND
+544 | ROCIADOR RELIABLE UPRIGHT K=8 QUICK RESPONSE (TY4131) | 97,00 | UND
+545 | ROCIADOR TIPO UPRIGHT, K=5.6, 155°F SIMILAR A TY-FRB TY3131 DE TYCO | 461,00 | UND
+546 | SECAMANOS MODELO MB-1012 CON SENSOR MARCA HELVEX | 47,00 | UND
+547 | SELLO CORTA FUEGO | 95,00 | UND
+548 | SENSOR DE FLUJO 150MM MOD 06066B VIKING 0.00 N/A | 10,00 | UND
+549 | SENSOR DE FLUJO 50.00 MM | 2,00 | UND
+550 | SENSOR DE FLUJO POTTER ROMMER VSR 25.00 MM | 15,00 | UND
+551 | SENSOR DE MOVIMIENTO | 42,00 | UND
+552 | SIFON PARA MANOMETRO RABO DE CHANCHO 6.00 MM | 30,00 | UND
+553 | SIFON PVC SANITARIO PARED GRUESA CON REGISTRO 38.00 MM | 42,00 | UND
+554 | SIFON PVC SANITARIO PARED GRUESA CON REGISTRO 50.00 MM | 10,00 | UND
+555 | SIFON PVC SANITARIO PARED GRUESA SIN REGISTRO 100.00 MM | 25,00 | UND
+556 | SIFON PVC SANITARIO PARED GRUESA SIN REGISTRO 32.00 MM | 5,00 | UND
+557 | SIFON PVC SANITARIO PARED GRUESA SIN REGISTRO 38.00 MM | 85,00 | UND
+558 | SIFON PVC SANITARIO PARED GRUESA SIN REGISTRO 50.00 MM | 88,00 | UND
+559 | SILLETA HIERRO NEGRO RANURADO 100MM CON SALIDA ROSCADA 25MM 0.00 N/A | 195,00 | UND
+560 | SILLETA HIERRO NEGRO RANURADO 100MM X 63MM 0.00 N/A | 75,00 | UND
+561 | SILLETA HIERRO NEGRO RANURADO 150MM CON SALIDA ROSCADA 38MM 0.00 N/A | 5,00 | UND
+562 | SILLETA HIERRO NEGRO RANURADO 150MM CON SALIDA ROSCADA 63MM 0.00 N/A | 85,00 | UND
+563 | SILLETA HIERRO NEGRO RANURADO 150MM CON SALIDA ROSCADA 75MM 0.00 N/A | 35,00 | UND
+564 | SILLETA HIERRO NEGRO RANURADO 32MM CON SALIDA ROSCADA 25MM 0.00 N/A | 246,00 | UND
+565 | SILLETA HIERRO NEGRO RANURADO 38MM CON SALIDA ROSCADA 25MM 0.00 N/A | 362,00 | UND
+566 | SILLETA HIERRO NEGRO RANURADO 50MM CON SALIDA ROSCADA 25MM 0.00 N/A | 300,00 | UND
+567 | SILLETA HIERRO NEGRO RANURADO 50MM CON SALIDA ROSCADA 32MM 0.00 N/A | 150,00 | UND
+568 | SILLETA HIERRO NEGRO RANURADO 50MM CON SALIDA ROSCADA 38MM 0.00 N/A | 150,00 | UND
+569 | SILLETA HIERRO NEGRO RANURADO 63MM CON SALIDA ROSCADA 25MM 0.00 N/A | 321,00 | UND
+570 | SILLETA HIERRO NEGRO RANURADO 63MM CON SALIDA ROSCADA 32MM 0.00 N/A | 320,00 | UND
+571 | SILLETA HIERRO NEGRO RANURADO 63MM X 38MM 0.00 N/A | 48,00 | UND
+572 | SILLETA PVC LISA PRESION 100MM X 18MM | 36,00 | UND
+573 | SOPORTE PARA EXTINTOR ABC MODELO 4608 DE GUARDIAN | 75,00 | UND
+574 | SPANDER PLASTICO S10 0.00 N/A | 1.000,00 | UND
+575 | SPANDER PLASTICO S8 0.00 N/A | 20.113,00 | UND
+576 | FILTRO DE SOLIDOS HIERRO NEGRO PARA TUBERIA DE 25.00MM | 15,00 | UND
+577 | RESTRICTOR TUBO ACCESORIO PVC PARA TUBERIA C-900 100.00MM | 10,00 | UND
+578 | SUB ESTACION PRINCIPAL | 1,00 | UND
+579 | TABLERO ELECTRICO A2G0 | 1,00 | UND
+580 | TABLERO ELECTRICO A2G1 | 1,00 | UND
+581 | TABLERO ELECTRICO A2G2 | 1,00 | UND
+582 | TABLERO ELECTRICO A2G3 | 1,00 | UND
+583 | TABLERO ELECTRICO A2G4 | 1,00 | UND
+584 | TABLERO ELECTRICO A2G5 | 1,00 | UND
+585 | TABLERO ELECTRICO A2P0 | 1,00 | UND
+586 | TABLERO ELECTRICO A2P3 | 1,00 | UND
+587 | TABLERO ELECTRICO A2P5 | 1,00 | UND
+588 | TABLERO ELECTRICO A2R1 | 1,00 | UND
+589 | TABLERO ELECTRICO A2T1 | 1,00 | UND
+590 | TABLERO ELECTRICO A2T2 | 1,00 | UND
+591 | TABLERO ELECTRICO A2T3 | 1,00 | UND
+592 | TABLERO ELECTRICO A2T4 | 1,00 | UND
+593 | TABLERO ELECTRICO A2T5 | 1,00 | UND
+594 | TABLERO ELECTRICO A2U0 | 1,00 | UND
+595 | TABLERO ELECTRICO A2U4 | 1,00 | UND
+596 | TABLERO ELECTRICO A2U5 | 1,00 | UND
+597 | TABLERO ELECTRICO A2UP | 3,00 | UND
+598 | TABLERO ELECTRICO A2UR1 | 1,00 | UND
+599 | TABLERO ELECTRICO A4L1 | 1,00 | UND
+600 | TABLERO ELECTRICO A4LR | 1,00 | UND
+601 | TABLERO ELECTRICO A4P1 | 1,00 | UND
+602 | TABLERO ELECTRICO A4P5 | 1,00 | UND
+603 | TABLERO ELECTRICO A4R1 | 1,00 | UND
+604 | TABLERO ELECTRICO B2 | 1,00 | UND
+605 | TABLERO ELECTRICO B2G0 | 1,00 | UND
+606 | TABLERO ELECTRICO B2G1 | 1,00 | UND
+607 | TABLERO ELECTRICO B2G2 | 1,00 | UND
+608 | TABLERO ELECTRICO B2G3 | 1,00 | UND
+609 | TABLERO ELECTRICO B2GS1 | 1,00 | UND
+610 | TABLERO ELECTRICO B2K1 | 1,00 | UND
+611 | TABLERO ELECTRICO B2P1 | 1,00 | UND
+612 | TABLERO ELECTRICO B2P3 | 1,00 | UND
+613 | TABLERO ELECTRICO B2R1 | 1,00 | UND
+614 | TABLERO ELECTRICO B2T2 | 1,00 | UND
+615 | TABLERO ELECTRICO B2T3 | 1,00 | UND
+616 | TABLERO ELECTRICO B2UR1 | 1,00 | UND
+617 | TABLERO ELECTRICO B4L1 | 1,00 | UND
+618 | TABLERO ELECTRICO B4LR | 1,00 | UND
+619 | TABLERO ELECTRICO B4P3 | 1,00 | UND
+620 | TABLERO ELECTRICO B4R1 | 1,00 | UND
+621 | TABLERO ELECTRICO BCM | 1,00 | UND
+622 | TAPA DE REGISTRO ALUMINIO 38.00 MM | 15,00 | UND
+623 | TAPA DE REGISTRO ALUMINIO CARMIOL INDUSTRIAL CI-300-200-E-A-P 200.00 MM (8.34'') | 8,00 | UND
+624 | TAPA EMT CIEGA NAL RECTANGULAR 0.00 N/A | 2.143,00 | UND
+625 | TAPA EMT NAL OCTOGONAL KO 18MM (3/4") | 381,00 | UND
+626 | TAPA FINAL DUCTO 100.00 MM | 30,00 | UND
+627 | TAPA FINAL DUCTO 150.00 MM | 40,00 | UND
+628 | TAPA FINAL DUCTO 50.00 MM | 85,00 | UND
+629 | TAPON HEMBRA LISO PVC PRESION 38.00 MM | 25,00 | UND
+630 | TAPON HEMBRA LISO PVC PRESION 50.00 MM | 12,00 | UND
+631 | TAPON HEMBRA LISO PVC SANITARIO PARED DELGADA 100.00 MM | 60,00 | UND
+632 | TAPON HEMBRA LISO PVC SANITARIO PARED DELGADA 150.00 MM | 10,00 | UND
+633 | TAPON HEMBRA LISO PVC SANITARIO PARED DELGADA 200.00 MM | 81,00 | UND
+634 | TAPON HEMBRA LISO PVC SANITARIO PARED DELGADA 38.00 MM | 19,00 | UND
+635 | TAPON HEMBRA LISO PVC SANITARIO PARED DELGADA 50.00 MM | 40,00 | UND
+636 | TAPON HEMBRA LISO PVC SANITARIO PARED DELGADA 75.00 MM | 20,00 | UND
+637 | TAPON HEMBRA PVC LISO CED 80 PRESION 100.00 MM | 8,00 | UND
+638 | TAPON HEMBRA PVC ROSCADO CED 80 PRESION 25.00 MM | 13,00 | UND
+639 | TAPON HEMBRA ROSCADO PVC PRESION 12.00 MM | 25,00 | UND
+640 | TAPON HIERRO GALVANIZADO HEMBRA ROSCADO 12.00 MM | 166,00 | UND
+641 | TAPON HIERRO GALVANIZADO HEMBRA ROSCADO 18.00 MM | 6,00 | UND
+642 | TAPON HIERRO GALVANIZADO HEMBRA ROSCADO 25.00 MM | 114,00 | UND
+643 | TAPON HIERRO NEGRO HEMBRA ROSCADO 25.00 MM | 30,00 | UND
+644 | TAPON HIERRO NEGRO MACHO ROSCADO 100.00 MM | 332,00 | UND
+645 | TAPON HIERRO NEGRO MACHO ROSCADO 12.00 MM | 1.200,00 | UND
+646 | TAPON HIERRO NEGRO MACHO ROSCADO 150.00 MM | 10,00 | UND
+647 | TAPON HIERRO NEGRO MACHO ROSCADO 25.00 MM | 217,00 | UND
+648 | TAPON HIERRO NEGRO MACHO ROSCADO 38.00 MM | 18,00 | UND
+649 | TAPON HIERRO NEGRO MACHO ROSCADO 50.00 MM | 12,00 | UND
+650 | TAPON HIERRO NEGRO MACHO ROSCADO 63.00 MM | 4,00 | UND
+651 | TAPON HIERRO NEGRO MACHO ROSCADO 75.00 MM | 6,00 | UND
+652 | TAPON HIERRO NEGRO RANURADO 32.00 MM | 50,00 | UND
+653 | TAPON HIERRO NEGRO RANURADO 63.00 MM | 55,00 | UND
+654 | TAPON REGISTRO PVC SANITARIO PARED GRUESA 100.00 MM | 93,00 | UND
+655 | TAPON REGISTRO PVC SANITARIO PARED GRUESA 150.00 MM | 12,00 | UND
+656 | TAPON REGISTRO PVC SANITARIO PARED GRUESA 200.00 MM | 8,00 | UND
+657 | TAPON REGISTRO PVC SANITARIO PARED GRUESA 38.00 MM | 11,00 | UND
+658 | TAPON REGISTRO PVC SANITARIO PARED GRUESA 50.00 MM | 61,00 | UND
+659 | TAPON REGISTRO PVC SANITARIO PARED GRUESA 75.00 MM | 9,00 | UND
+660 | TEE COBRE 12.00 MM | 15,00 | UND
+661 | TEE COBRE 18.00 MM | 14,00 | UND
+662 | TEE COBRE 25.00 MM | 23,00 | UND
+663 | TEE COBRE 32.00 MM | 21,00 | UND
+664 | TEE COBRE 38.00 MM | 63,00 | UND
+665 | TEE COBRE 50.00 MM | 6,00 | UND
+666 | TEE COBRE 75.00 MM | 10,00 | UND
+667 | TEE DUCTO 100.00 MM | 18,00 | UND
+668 | TEE DUCTO 150.00 MM | 4,00 | UND
+669 | TEE DUCTO 63.00 MM | 5,00 | UND
+670 | TEE DUCTO 75.00 MM | 8,00 | UND
+671 | TEE DUCTO CUTLER HAMMER 50.00 MM (2.09'') | 8,00 | UND
+672 | TEE HIERRO GALVANIZADO 25.00 MM | 117,00 | UND
+673 | TEE HIERRO NEGRO RANURADO 75.00 MM | 30,00 | UND
+674 | TEE HIERRO NEGRO ROSCABLE 50.00 MM | 60,00 | UND
+675 | TEE HIERRO NEGRO U-BOLT 25 MM A 25 MM ROSCA INTERNA | 510,00 | UND
+676 | TEE HIERRO NEGRO U-BOLT 32 MM A 25 MM ROSCA INTERNA 0.00 N/A | 500,00 | UND
+677 | TEE HIERRO NEGRO U-BOLT 38 MM A 25 MM ROSCA INTERNA | 25,00 | UND
+678 | TEE HIERRO NEGRO U-BOLT 50 MM A 25 MM ROSCA INTERNA | 80,00 | UND
+679 | TEE HIERRO NEGRO U-BOLT 63 MM A 25 MM ROSCA INTERNA | 25,00 | UND
+680 | TEE LISA PVC CED 80 PRESION 100.00 MM | 22,00 | UND
+681 | TEE LISA PVC CED 80 PRESION 12.00 MM | 14,00 | UND
+682 | TEE LISA PVC CED 80 PRESION 18.00 MM | 83,00 | UND
+683 | TEE LISA PVC CED 80 PRESION 25.00 MM | 95,00 | UND
+684 | TEE LISA PVC CED 80 PRESION 32.00 MM | 118,00 | UND
+685 | TEE LISA PVC CED 80 PRESION 38.00 MM | 26,00 | UND
+686 | TEE LISA PVC CED 80 PRESION 50.00 MM | 17,00 | UND
+687 | TEE LISA PVC CED 80 PRESION 75.00 MM | 12,00 | UND
+688 | TEE LISA PVC REDUCIDA CED 80 PRESION 100 MM X 50 MM 0.00 N/A | 21,00 | UND
+689 | TEE LISA PVC REDUCIDA CED 80 PRESION 25 MM X 12 MM 0.00 N/A | 25,00 | UND
+690 | TEE LISA PVC REDUCIDA CED 80 PRESION 38 MM X 25 MM 0.00 N/A | 20,00 | UND
+691 | TEE LISA PVC REDUCIDA CED 80 PRESION 50 MM X 25 MM 0.00 N/A | 60,00 | UND
+692 | TEE PARA RIEL ACANALADO 4 HUECOS | 149,00 | UND
+693 | TEE PVC C-900 NACIONAL DR18 150.00 MM | 6,00 | UND
+694 | TEE PVC LISA PRESION 18.00 MM | 19,00 | UND
+695 | TEE PVC LISA PRESION 25.00 MM | 15,00 | UND
+696 | TEE PVC SANITARIA PARED GRUESA 100.00 MM | 4,00 | UND
+697 | TEE PVC SANITARIA PARED GRUESA 38.00 MM | 183,00 | UND
+698 | TEE PVC SANITARIA PARED GRUESA 50.00 MM | 490,00 | UND
+699 | TEE REDUCIDA PVC SANITARIA PARED GRUESA 75 X 50 0.00 N/A | 30,00 | UND
+700 | TERMINAL DE ENTALLAR DOBLE OJO CABLE 6 1/4" DIAMETRO X 5/8" SEPARACION ENTRE HUECOS | 55,00 | UND
+701 | TERMINAL DE OJO PARA CABLE 12-10 AWG ANILLO 1/2 0.00 N/A | 20.000,00 | UND
+702 | TERMINAL ENTALLAR CABLE 1/0 | 28,00 | UND
+703 | TERMINAL ENTALLAR COBRE DOBLE OJO CABLE 10 0.00 N/A | 65,00 | UND
+704 | TERMINAL ENTALLAR COBRE DOBLE OJO CABLE 2/0 0.00 N/A | 14,00 | UND
+705 | TERMINAL ENTALLAR COBRE DOBLE OJO CABLE 300MCM 0.00 N/A | 8,00 | UND
+706 | TERMINAL ENTALLAR COBRE DOBLE OJO CABLE 350MCM 0.00 N/A | 5,00 | UND
+707 | TERMINAL ENTALLAR COBRE DOBLE OJO CABLE 400MCM 0.00 N/A | 7,00 | UND
+708 | TERMINAL ENTALLAR DOBLE OJO CABLE 1/0 0.00 N/A | 14,00 | UND
+709 | TERMINAL ENTALLAR DOBLE OJO CABLE 250MCM 0.00 N/A | 6,00 | UND
+710 | TERMINAL ENTALLAR DOBLE OJO CABLE 3/0 0.00 N/A | 7,00 | UND
+711 | TOMA DIRECTA PARA BOMBEROS 63MM | 39,00 | UND
+712 | TOMA SIAMESA 4 VÍAS 6'' X (4) 2-1/2'' BRONCE SIN PULIR | 1,00 | UND
+713 | TOMACORRIENTE DOBLE 20A 125V BLANCO | 1.279,00 | UND
+714 | TOMACORRIENTE DOBLE GFCI 20A 125 | 108,00 | UND
+715 | TOMACORRIENTE DOBLE POLARIZADO 20A 125V COLOR ROJO | 278,00 | UND
+716 | TOMACORRIENTE TWIST LOCK 2P,3W,30AMP,250V | 28,00 | UND
+717 | TRAMPA DE GRASA | 3,00 | UND
+718 | TRAMPA DE GRASA 4500 DE MUCHO TANQUE | 1,00 | UND
+719 | TRANSFERENCIA AUTOMATICA ATS-1 450A | 1,00 | UND
+720 | TRANSFERENCIA MANUAL 175A | 1,00 | UND
+721 | TRANSFERENCIA MANUAL 70AMP | 1,00 | UND
+722 | TRANSFERENCIA MANUAL MTSB-1 60A | 1,00 | UND
+723 | TRANSFORMADOR DE PEDESTAL 750KVA T001 | 1,00 | UND
+724 | TRANSFORMADOR SECO 150KVA | 1,00 | UND
+725 | TRANSFORMADOR SECO 45KVA 480-120/208V | 3,00 | UND
+726 | TRANSFORMADOR SECO 45KVA 480/208V | 1,00 | UND
+727 | TRANSFORMADOR SECO 75KVA 480-120/208 K4 | 3,00 | UND
+728 | TRANSFORMADOR SECO K-1 112.5 KVA | 3,00 | UND
+729 | TRANSICION HIERRO DUCTIL JUNTA MECANICA A BRIDA 100.00 MM | 11,00 | UND
+730 | TRIM PARA VALVULA 150.00 MM | 27,00 | UND
+731 | TRIM PARA VALVULA VICTAULIC 717-R 50.00 MM | 5,00 | UND
+732 | TUBERÍA DE ALTA DENSIDAD DE 100MM CON 4 SUB CONDUCTOS DE 32MM | 164,00 | UND
+733 | TUBO BX LIQUIT TITE 100.00 MM | 8,00 | MT
+734 | TUBO BX LIQUIT TITE 12.00 MM | 211,00 | MT
+735 | TUBO BX LIQUIT TITE 18.00 MM | 91,50 | MT
+736 | TUBO BX LIQUIT TITE 25.00 MM | 30,50 | MT
+737 | TUBO BX LIQUIT TITE 38.00 MM | 30,50 | MT
+738 | TUBO BX LIQUIT TITE 50.00 MM | 61,00 | MT
+739 | TUBO BX LIQUIT TITE 63.00 MM | 30,50 | MT
+740 | TUBO BX LIQUIT TITE 75.00 MM | 30,50 | MT
+741 | TUBO BX METALICO 18.00 MM | 1.071,00 | MT
+742 | TUBO BX METALICO 32.00 MM | 6,00 | MT
+743 | TUBO BX METALICO 50.00 MM | 30,00 | MT
+744 | TUBO COBRE TIPO L 18.00 MM | 7,00 | 6 MT
+745 | TUBO COBRE TIPO L 25.00 MM | 8,00 | 6 MT
+746 | TUBO COBRE TIPO L 50.00 MM | 6,00 | 6 MT
+747 | TUBO COBRE TIPO L 63.00 MM | 15,00 | 6 MT
+748 | TUBO COBRE TIPO L 75.00 MM | 10,00 | 6 MT
+749 | TUBO CONDUIT PVC 12.00 MM | 3.000,00 | 3 MT
+750 | TUBO CONDUIT PVC 18.00 MM | 2.000,00 | 3 MT
+751 | TUBO CONDUIT PVC 25.00 MM | 1.000,00 | 3 MT
+752 | TUBO CUADRADO INDUSTRIAL 50MM X 50MM X 1.80MM 0.00 N/A | 12,00 | 6 MT
+753 | TUBO DE POLIETILENO DE ALTA DENSIDAD 25.00 MM | 46,00 | UND
+754 | TUBO EMT 100.00 MM | 21,00 | 3 MT
+755 | TUBO EMT 32.00 MM | 42,00 | 3 MT
+756 | TUBO EMT 63.00 MM | 94,00 | 3 MT
+757 | TUBO EMT 75.00 MM | 74,00 | 3 MT
+758 | TUBO FLEXIBLE GASTITE LONGITUD 1.20 M 25.00 MM | 35,00 | UND
+759 | TUBO HIERRO DUCTIL 100.00 MM | 18,00 | UND
+760 | TUBO HIERRO DUCTIL 150.00 MM | 18,00 | UND
+761 | TUBO HIERRO GALVANIZADO CED 40 ASTM A53 1 1/2" 38.00 MM | 8,00 | 6 MT
+762 | TUBO HIERRO GALVANIZADO CED 40 ASTM A53 1 1/4" 32.00 MM | 6,00 | 6 MT
+763 | TUBO HIERRO GALVANIZADO CED 40 ASTM A53 1" 25.00 MM | 15,00 | 6 MT
+764 | TUBO HIERRO GALVANIZADO CED 40 ASTM A53 1/2" 12.00 MM | 31,00 | 6 MT
+765 | TUBO HIERRO GALVANIZADO CED 40 ASTM A53 2" 50.00 MM | 11,00 | 6 MT
+766 | TUBO HIERRO NEGRO CED 40 12.00 MM | 39,00 | 6 MT
+767 | TUBO HIERRO NEGRO CED 40 150.00 MM | 10,00 | 6 MT
+768 | TUBO HIERRO NEGRO CED 40 63.00 MM | 43,00 | 6 MT
+769 | TUBO HIERRO NEGRO CED 40 75.00 MM | 36,00 | 6 MT
+770 | TUBO HIERRO NEGRO RANURADO CED 10 100.00 MM | 51,00 | 6 MT
+771 | TUBO HIERRO NEGRO RANURADO CED 10 150.00 MM | 57,00 | 6 MT
+772 | TUBO HIERRO NEGRO RANURADO CED 10 200.00 MM | 13,00 | 6 MT
+773 | TUBO HIERRO NEGRO RANURADO CED 10 63.00 MM | 360,00 | 6 MT
+774 | TUBO IMC ALLIET U.L. 63.00 MM | 92,00 | 3 MT
+775 | TUBO IMC RYMCO U.L 75.00 MM | 3,00 | 3 MT
+776 | TUBO NOVALOC 750.00 MM | 31,00 | 6 MT
+777 | TUBO PVC AWWA/UL/FM 150.00 MM | 4,00 | UND
+778 | TUBO PVC C-900 NACIONAL DR18 100.00 MM | 15,00 | UND
+779 | TUBO PVC SDR 13.5 18.00 MM | 36,00 | 6 MT
+780 | TUBO PVC SDR 41 100.00 MM | 135,00 | 6 MT
+781 | TUBO PVC SDR 41 150.00 MM | 12,00 | 6 MT
+782 | TUBO PVC SDR 41 50.00 MM | 39,00 | 6 MT
+783 | TUBO TDP PARA ALCANTARILLADO 200.00 MM | 12,00 | 6 MT
+784 | TUBO TDP PARA ALCANTARILLADO BLANCO 450.00 MM | 64,00 | 6 MT
+785 | TUBO TDP PARA ALCANTARILLADO BLANCO 600.00 MM | 26,00 | 6 MT
+786 | TUERCA DE BRONCE 12.00 MM | 960,00 | UND
+787 | TUERCA DE BRONCE 3/8" 10.00 MM | 960,00 | UND
+788 | TUERCA GALVANIZADA 1/2" 12.00 MM | 515,00 | UND
+789 | TUERCA GALVANIZADA 3/8" 10.00 MM | 23.907,00 | UND
+790 | TUERCA GALVANIZADA 5/8" 0.00 N/A | 500,00 | UND
+791 | UNION CONDUIT PVC CED 40 12.00 MM | 6.000,00 | UND
+792 | UNION CONDUIT PVC CED 40 18.00 MM | 4.000,00 | UND
+793 | UNION CONDUIT PVC CED 40 25.00 MM | 2.000,00 | UND
+794 | UNION DE REPARACION PVC PRESION 100.00 MM | 5,00 | UND
+795 | UNION DE REPARACION PVC PRESION 150.00 MM | 5,00 | UND
+796 | UNION DE REPARACION PVC PRESION 200.00 MM | 5,00 | UND
+797 | UNION DE TOPE 1/2" F. NPT INLET/OUTLET 3/32" 0.00 N/A | 4,00 | UND
+798 | UNION DE TOPE COBRE 25.00 MM | 12,00 | UND
+799 | UNION DE TOPE COBRE 32.00 MM | 8,00 | UND
+800 | UNION DE TOPE COBRE 38.00 MM | 34,00 | UND
+801 | UNION DE TOPE HIERRO GALVANIZADO CLASE 125 25.00 MM | 7,00 | UND
+802 | UNION DE TOPE HIERRO GALVANIZADO CLASE 125 32.00 MM | 7,00 | UND
+803 | UNION DE TOPE HIERRO GALVANIZADO CLASE 125 38.00 MM | 59,00 | UND
+804 | UNION DE TOPE HIERRO NEGRO ROSCABLE 12.00 MM | 5,00 | UND
+805 | UNION DE TOPE HIERRO NEGRO ROSCABLE 18.00 MM | 5,00 | UND
+806 | UNION DE TOPE HIERRO NEGRO ROSCABLE 25.00 MM | 15,00 | UND
+807 | UNION DE TOPE HIERRO NEGRO ROSCABLE 32.00 MM | 12,00 | UND
+808 | UNION DE TOPE HIERRO NEGRO ROSCABLE 50.00 MM | 10,00 | UND
+809 | UNION DE TOPE PVC CED 80 PRESION 100.00 MM | 5,00 | UND
+810 | UNION DE TOPE PVC CED 80 PRESION 12.00 MM | 10,00 | UND
+811 | UNION DE TOPE PVC CED 80 PRESION 18.00 MM | 10,00 | UND
+812 | UNION DE TOPE PVC CED 80 PRESION 25.00 MM | 14,00 | UND
+813 | UNION DE TOPE PVC CED 80 PRESION 32.00 MM | 23,00 | UND
+814 | UNION DE TOPE PVC CED 80 PRESION 38.00 MM | 26,00 | UND
+815 | UNION DE TOPE PVC CED 80 PRESION 50.00 MM | 4,00 | UND
+816 | UNION DE TOPE PVC CED 80 PRESION 75.00 MM | 6,00 | UND
+817 | UNION DUCTO 50.00 MM | 1.047,00 | UND
+818 | UNION EMT PRESION 100.00 MM | 29,00 | UND
+819 | UNION EMT PRESION 32.00 MM | 102,00 | UND
+820 | UNION EMT PRESION 38.00 MM | 118,00 | UND
+821 | UNION EMT PRESION 63.00 MM | 136,00 | UND
+822 | UNION EMT PRESION 75.00 MM | 95,00 | UND
+823 | UNION IMC 100.00 MM | 5,00 | UND
+824 | UNION IMC 12.00 MM | 138,00 | UND
+825 | UNION IMC 18.00 MM | 75,00 | UND
+826 | UNION IMC 25.00 MM | 50,00 | UND
+827 | UNION IMC 38.00 MM | 25,00 | UND
+828 | UNION IMC 50.00 MM | 60,00 | UND
+829 | UNION IMC 63.00 MM | 63,00 | UND
+830 | UNION IMC 75.00 MM | 3,00 | UND
+831 | UNION LISA PVC PRESION 100.00 MM | 15,00 | UND
+832 | UNION LISA PVC PRESION 12.00 MM | 415,00 | UND
+833 | UNION LISA PVC PRESION 150.00 MM | 8,00 | UND
+834 | UNION LISA PVC PRESION 18.00 MM | 225,00 | UND
+835 | UNION LISA PVC PRESION 25.00 MM | 350,00 | UND
+836 | UNION LISA PVC PRESION 32.00 MM | 95,00 | UND
+837 | UNION LISA PVC PRESION 38.00 MM | 101,00 | UND
+838 | UNION LISA PVC PRESION 50.00 MM | 35,00 | UND
+839 | UNION LISA PVC PRESION 75.00 MM | 24,00 | UND
+840 | UNION LISA SENCILLA PVC CED 80 PRESION 200.00 MM | 20,00 | UND
+841 | UNION PARA CANASTA 0.00 N/A | 5.158,00 | UND
+842 | UNION PARA CANASTA BICROMATADA | 2.571,00 | UND
+843 | UNION SENCILLA COBRE 1" 25.00 MM | 10,00 | UND
+844 | UNION SENCILLA HIERRO GALVANIZADO 12.00 MM | 78,00 | UND
+845 | UNION SENCILLA PVC SANITARIA 38.00 MM | 45,00 | UND
+846 | UNION SENCILLA PVC SANITARIA 50.00 MM | 15,00 | UND
+847 | UNION SENCILLA PVC SANITARIA 75.00 MM | 10,00 | UND
+848 | UNION TOPE POLIETILENO ALTA DENSIDAD 12.00 MM | 5,00 | UND
+849 | FUENTE DE PODER ININTERRUMPIBLE DE 15,000 VOLTIAMPERIOS, 208V | 1,00 | UND
+850 | FUENTE DE PODER ININTERRUMPIBLE DE 20,000 VOLTIAMPERIOS, 208V | 1,00 | UND
+851 | FUENTE DE PODER ININTERRUMPIBLE DE 40,000 VOLTIAMPERIOS, 120/208V | 1,00 | UND
+852 | FUENTE DE PODER ININTERRUMPIBLE DE 50,000 VOLTIAMPERIOS, 480V | 1,00 | UND
+853 | VALVULA ANGULAR CON TAPA Y CADENA 63.00 MM | 40,00 | UND
+854 | VALVULA ANTISISMICA PARA GAS KOSO 25.00 MM | 1,00 | UND
+855 | VALVULA BOLA BRONCE ROSCABLE 32.00 MM | 23,00 | UND
+856 | VALVULA CHECK PASCON 50.00 MM | 2,00 | UND
+857 | VALVULA CHECK PRESION DE 300 PSI ROSCADA 38.00 MM | 5,00 | UND
+858 | VALVULA CHECK RANURADA 150.00 MM | 34,00 | UND
+859 | VALVULA CHECK RANURADA 200.00 MM | 5,00 | UND
+860 | VALVULA CHECK RANURADA 63.00 MM | 20,00 | UND
+861 | VALVULA CHECK RANURADA 75.00 MM | 20,00 | UND
+862 | VALVULA CHECK UNIVERSAL 150.00 MM | 1,00 | UND
+863 | VALVULA CHECK UNIVERSAL ROSCABLE 12.00 MM | 12,00 | UND
+864 | VALVULA CHECK UNIVERSAL ROSCABLE 18.00 MM | 11,00 | UND
+865 | VALVULA CHECK UNIVERSAL ROSCABLE 25.00 MM | 12,00 | UND
+866 | VALVULA CHECK UNIVERSAL ROSCABLE 32.00 MM | 5,00 | UND
+867 | VALVULA CHECK UNIVERSAL ROSCABLE 38.00 MM | 18,00 | UND
+868 | VALVULA CHECK UNIVERSAL ROSCABLE 75.00 MM | 8,00 | UND
+869 | VALVULA COMPUERTA BRIDADA DADO UL/FM 150.00 MM | 19,00 | UND
+870 | VALVULA COMPUERTA BRIDADA VASTAGO ASCENDENTE 200PSI 150.00 MM | 3,00 | UND
+871 | VALVULA COMPUERTA BRONCE ROSCADA VASTAGO ASCENDENTE 38.00 MM | 2,00 | UND
+872 | VALVULA DE BOLA BRONCE ROSCADA 100.00 MM | 4,00 | UND
+873 | VALVULA DE BOLA BRONCE ROSCADA 12.00 MM | 42,00 | UND
+874 | VALVULA DE BOLA BRONCE ROSCADA 18.00 MM | 18,00 | UND
+875 | VALVULA DE BOLA BRONCE ROSCADA 25.00 MM | 36,00 | UND
+876 | VALVULA DE BOLA BRONCE ROSCADA 32.00 MM | 25,00 | UND
+877 | VALVULA DE BOLA BRONCE ROSCADA 38.00 MM | 66,00 | UND
+878 | VALVULA DE BOLA BRONCE ROSCADA 50.00 MM | 5,00 | UND
+879 | VALVULA DE BOLA BRONCE ROSCADA 75.00 MM | 12,00 | UND
+880 | VALVULA DE DRENAJE, PRUEBAS E INSPECCION | 27,00 | UND
+881 | VALVULA DE GLOBO 12.00 MM | 10,00 | UND
+882 | VALVULA DE GLOBO 25.00 MM | 16,00 | UND
+883 | VALVULA DE GLOBO 32.00 MM | 6,00 | UND
+884 | VALVULA DE GLOBO 38.00 MM | 26,00 | UND
+885 | VALVULA DE GLOBO 50.00 MM | 3,00 | UND
+886 | VALVULA DE PRUEBA Y DRENAJE CON ORIFICIO 1/2" PARA PRUEBA VALVULA ALIVIO APERTURA SOBRE LAS 175 PSI EN 1" 0.00 N/A | 15,00 | UND
+887 | VALVULA ELIMINADORA DE AIRE MODELO 15 UL/FM 18MM | 8,00 | UND
+888 | VALVULA ELIMINADORA DE AIRE PVC 25.00 MM | 3,00 | UND
+889 | VALVULA MARIPOSA BRIDADA 75.00 MM | 1,00 | UND
+890 | VALVULA MARIPOSA RANURADA CON MONITOREO 150.00 MM | 43,00 | UND
+891 | VALVULA MARIPOSA RANURADA CON MONITOREO 200.00 MM | 5,00 | UND
+892 | VALVULA MARIPOSA RANURADA CON MONITOREO 50.00 MM | 2,00 | UND
+893 | VALVULA MARIPOSA RANURADA CON MONITOREO 63.00 MM | 20,00 | UND
+894 | VALVULA MARIPOSA RANURADA CON MONITOREO 75.00 MM | 20,00 | UND
+895 | VALVULA REGULADORA DE AIRE 300PSI 25.00 MM | 10,00 | UND
+896 | VALVULA REGULADORA DE SEGUNDA ETAPA PARA GAS LP DE 25 MM REGO | 4,00 | UND
+897 | VALVULA REGULADORA PRESION AGUA 25-75 LBS CROMADA 32.00 MM | 6,00 | UND
+898 | VALVULA REGULADORA PRESION AGUA 25-75LBS 25.00 MM | 8,00 | UND
+899 | VALVULA REGULADORA PRESION AGUA 25-75LBS 38.00 MM | 32,00 | UND
+900 | VALVULA REGULADORA PRESION GAS 1 ETAPA 25.00 MM | 1,00 | UND
+901 | VALVULA REGULADORA RANURADA 90-21 DE INCENDIO (UL) 150.00 MM | 15,00 | UND
+902 | VALVULA SOLENOIDE 24V NC 25.00 MM | 1,00 | UND
+903 | VALVULA SOLENOIDE MARCA MADAS DE 50MM 12 O 24 VDC PARA CORTE DE PASO DE GAS GLP | 1,00 | UND
+904 | VALVULA SOLENOIDE PARA GAS LP MADAS OPERACIÓN AUTOMATICA Y REARME MANUAL DE 25MM 24 VDC | 1,00 | UND
+905 | VARILLA COOPERWELD 3/4 X 3MTS LARGO | 67,00 | UND
+906 | VARILLA ROSCADA GALVANIZADA 1/2 12.00 MM | 80,00 | 3 MT
+907 | VARILLA ROSCADA GALVANIZADA 3/8 9.53 MM | 3.597,00 | 3 MT
+908 | VARILLA ROSCADA GALVANIZADA USA 1.83 METROS 18.00 MM (0.75 ") 0.00 N/A | 35,00 | UND
+909 | VARILLA SOLDADURA ACERO/PLATA - 95% COBRE - 5% PLATA | 231,00 | UND
+910 | VELCRO DE COLOR 18.00 MM | 6.285,00 | MT
+911 | ADAPTOR BRIDADO RANURADO PARA TUBERIA DE HIERRO 100.00MM | 23,00 | UND
+912 | ADAPTOR BRIDADO RANURADO PARA TUBERIA DE HIERRO 150.00MM | 23,00 | UND
+913 | TERMINAL DE CONEXIONES ELECTRICAS PARA CABLE 18-12 AWG | 17.581,00 | UND
+914 | YEE PVC SANITARIA PARED GRUESA 150.00 MM | 8,00 | UND
+915 | YEE PVC SANITARIA PARED GRUESA 38.00 MM | 46,00 | UND
+916 | YEE PVC SANITARIA PARED GRUESA 75.00 MM | 16,00 | UND
+917 | YEE REDUCIDA PVC SANITARIA PARED GRUESA 100MM X 75MM 0.00 N/A | 10,00 | UND
+918 | YEE REDUCIDA PVC SANITARIA PARED GRUESA 150MM X 100MM 0.00 N/A | 15,00 | UND
+919 | YEE REDUCIDA PVC SANITARIA PARED GRUESA 200MM X 150MM 0.00 N/A | 40,00 | UND
+920 | YEE REDUCIDA PVC SANITARIA PARED GRUESA 50MM X 38MM 0.00 N/A | 34,00 | UND
+921 | YEE REDUCIDA PVC SANITARIA PARED GRUESA 75MM X 50MM 0.00 N/A | 56,00 | UND
+922 | YEE TDP PARA ALCANTARILLADO 200.00 MM | 4,00 | UND
+923 | YEE TDP PARA ALCANTARILLADO 250.00 MM | 6,00 | UND
+924 | CODO PVC SANITARIO PARED GRUESA 45 GRADOS 100.00 MM | 415,00 | UND
+925 | CODO PVC SANITARIO PARED GRUESA 45 GRADOS 150.00 MM | 50,00 | UND
+926 | CODO PVC SANITARIO PARED GRUESA 45 GRADOS 200.00 MM | 50,00 | UND
+927 | CODO PVC SANITARIO PARED GRUESA 45 GRADOS 38.00 MM | 120,00 | UND
+928 | CODO PVC SANITARIO PARED GRUESA 45 GRADOS 50.00 MM | 410,00 | UND
+929 | CODO PVC SANITARIO PARED GRUESA 45 GRADOS 75.00 MM | 10,00 | UND
+930 | CODO PVC SANITARIO PARED GRUESA 90 GRADOS 38.00 MM | 88,00 | UND
+931 | CONDULETA EMT TIPO LB 100.00 MM | 10,00 | UND
+932 | CONDULETA EMT TIPO LB 12.00 MM | 93,00 | UND
+933 | CONDULETA EMT TIPO LB 18.00 MM | 15,00 | UND
+934 | CONDULETA EMT TIPO LB 38.00 MM | 10,00 | UND
+935 | CONDULETA EMT TIPO LB 50.00 MM | 68,00 | UND
+936 | CONECTOR EMT PRESION 12.00 MM | 4.199,00 | UND
+937 | CONECTOR EMT PRESION 18.00 MM | 2.460,00 | UND
+938 | CONECTOR EMT PRESION 25.00 MM | 126,00 | UND
+939 | CONECTOR EMT PRESION 50.00 MM | 317,00 | UND
+940 | CONECTOR EMT RECTO BX METALICO 18.00 MM | 439,00 | UND
+941 | CONECTOR MACHO ROSCADO CONDUIT PVC CED 40 12.00 MM | 23.994,00 | UND
+942 | CONECTOR MACHO ROSCADO CONDUIT PVC CED 40 25.00 MM | 7.960,00 | UND
+943 | CURVA CONDUIT PVC 90 GRADOS 12.00 MM | 658,00 | UND
+944 | CURVA CONDUIT PVC 90 GRADOS 18.00 MM | 994,00 | UND
+945 | CURVA CONDUIT PVC 90 GRADOS 25.00 MM | 348,00 | UND
+946 | NIPLE HIERRO GALVANIZADO CLASE 125 25MM X 100MM LARGO | 27,00 | UND
+947 | REDUCCION PVC SANITARIA PARED GRUESA 100 X 50 | 141,00 | UND
+948 | REDUCCION PVC SANITARIA PARED GRUESA 100 X 75 | 10,00 | UND
+949 | REDUCCION PVC SANITARIA PARED GRUESA 200 X 100 | 16,00 | UND
+950 | REDUCCION PVC SANITARIA PARED GRUESA 50 X 38 | 114,00 | UND
+951 | TAPA EMT CIEGA NAL CUADRADA | 3.825,00 | UND
+952 | TAPA EMT CIEGA NAL OCTOGONAL | 1.513,00 | UND
+953 | TEE HIERRO GALVANIZADO 12.00 MM | 57,00 | UND
+954 | TEE HIERRO GALVANIZADO 25.00 MM | 42,00 | UND
+955 | TEE HIERRO NEGRO RANURADO 150.00 MM | 19,00 | UND
+956 | TEE HIERRO NEGRO RANURADO 63.00 MM | 192,00 | UND
+957 | TEE HIERRO NEGRO ROSCABLE 25.00 MM | 1.357,00 | UND
+958 | TEE HIERRO NEGRO ROSCABLE 32.00 MM | 731,00 | UND
+959 | TEE HIERRO NEGRO ROSCABLE 38.00 MM | 43,00 | UND
+960 | TUBO CONDUIT PVC CED 40 100.00 MM | 10,00 | UND
+961 | TUBO CONDUIT PVC CED 40 12.00 MM | 5.943,00 | UND
+962 | TUBO CONDUIT PVC CED 40 18.00 MM | 3.980,00 | UND
+963 | TUBO CONDUIT PVC CED 40 25.00 MM | 1.944,00 | UND
+964 | TUBO CONDUIT PVC CED 40 38.00 MM | 215,00 | UND
+965 | TUBO EMT 12.00 MM | 8.719,00 | UND
+966 | TUBO EMT 18.00 MM | 1.506,00 | UND
+967 | TUBO EMT 25.00 MM | 199,00 | UND
+968 | TUBO EMT 38.00 MM | 21,00 | UND
+969 | TUBO EMT 50.00 MM | 587,00 | UND
+970 | TUBO HIERRO NEGRO CED 40 25.00 MM | 523,00 | UND
+971 | TUBO HIERRO NEGRO CED 40 32.00 MM | 173,00 | UND
+972 | TUBO HIERRO NEGRO CED 40 38.00 MM | 35,00 | UND
+973 | TUBO HIERRO NEGRO CED 40 50.00 MM | 18,00 | UND
+974 | TUBO IMC 12.00 MM | 215,00 | UND
+975 | TUBO IMC 18.00 MM | 90,00 | UND
+976 | TUBO IMC 50.00 MM | 37,00 | UND
+977 | TUBO IMC RYMCO 38.00 MM | 18,00 | UND
+978 | TUBO IMC RYMCO U.L 25.00 MM | 63,00 | UND
+979 | TUBO PVC C-900 150.00 MM | 31,00 | UND
+980 | TUBO PVC SCH 40 18.00 MM | 11,00 | UND
+981 | TUBO PVC SDR 17 25.00 MM | 10,00 | UND
+982 | TUBO PVC SDR 17 32.00 MM | 10,00 | UND
+983 | TUBO PVC SDR 17 38.00 MM | 20,00 | UND
+984 | TUBO PVC SDR 17 50.00 MM | 24,00 | UND
+985 | TUBO PVC SDR 17 75.00 MM | 10,00 | UND
+986 | TUBO PVC SDR 26 100.00 MM | 293,00 | UND
+987 | TUBO PVC SDR 26 150.00 MM | 16,00 | UND
+988 | TUBO PVC SDR 26 200.00 MM | 132,00 | UND
+989 | TUBO PVC SDR 26 250.00 MM | 10,00 | UND
+990 | TUBO PVC SDR 26 38.00 MM | 25,00 | UND
+991 | TUBO PVC SDR 26 75.00 MM | 15,00 | UND
+992 | UNION CONDUIT PVC 12.00 MM | 3.943,00 | UND
+993 | UNION CONDUIT PVC 18.00 MM | 2.980,00 | UND
+994 | UNION CONDUIT PVC 25.00 MM | 944,00 | UND
+995 | UNION CONDUIT PVC CED 40 100.00 MM | 10,00 | UND
+996 | UNION CONDUIT PVC CED 40 38.00 MM | 215,00 | UND
+997 | UNION EMT PRESION 12.00 MM | 951,00 | UND
+998 | UNION EMT PRESION 18.00 MM | 1.350,00 | UND
+999 | UNION EMT PRESION 25.00 MM | 485,00 | UND
+1000 | UNION EMT PRESION 50.00 MM | 498,00 | UND
+1001 | YEE PVC SANITARIA PARED GRUESA 100.00 MM | 255,00 | UND
+1002 | YEE PVC SANITARIA PARED GRUESA 200.00 MM | 36,00 | UND
+1003 | YEE PVC SANITARIA PARED GRUESA 50.00 MM | 104,00 | UND
+1004 | PIEDRA CUARTA | 1.500,00 | M3
+1005 | TUBO PVC CORRUGADO PARED PERFORADA DE 200MM | 100,00 | UND
