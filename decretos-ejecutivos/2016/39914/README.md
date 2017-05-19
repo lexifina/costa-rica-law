@@ -14,3 +14,4 @@ Acuerdo entre el Gobierno de los Emiratos Árabes Unidos y el Gobierno de la Rep
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-11-11 | la propia norma |
+| 2 | 2017-05-19 | Decreto Ejecutivo 40560 (2017-05-19) |
