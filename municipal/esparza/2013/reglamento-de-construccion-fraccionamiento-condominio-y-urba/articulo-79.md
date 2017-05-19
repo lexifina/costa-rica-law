@@ -1,2 +1,0 @@
-Artículo 79.—Los planos serán revisados por la D.O.O. en apego al Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones, dará las recomendaciones del caso, emitiendo su dictamen final al Concejo Municipal. La Municipalidad de Esparza, se reserva el derecho de aceptar el diseño urbanístico, de solicitar la eliminación o nuevas previstas de calle, o de solicitar la reubicación de las Áreas Comunales, de Parque y de Juegos Infantiles.
-La aprobación de un anteproyecto no garantiza el permiso de construcción.

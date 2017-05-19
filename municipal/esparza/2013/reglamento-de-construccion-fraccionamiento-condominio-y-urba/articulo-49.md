@@ -1,1 +1,0 @@
-Artículo 49.—Todos los lotes resultantes de un fraccionamiento deberán tener las dimensiones de área, frente y fondo mínimos establecidos en el Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones conforme a la de Planificación Urbana, Ley Nº 4240 del 15 de noviembre de 1968.

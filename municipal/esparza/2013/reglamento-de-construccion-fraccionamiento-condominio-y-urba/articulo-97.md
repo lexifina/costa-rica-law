@@ -1,1 +1,0 @@
-Artículo 97.—Si habiendo sido colocado los sellos de clausura en una construcción, la Municipalidad constata la continuidad de la construcción en evidente violación de la orden girada mediante los sellos, como su representación simbólica, se procederá a interponer la denuncia respectiva ante la Fiscalía Adjunta de la ciudad de Puntarenas.

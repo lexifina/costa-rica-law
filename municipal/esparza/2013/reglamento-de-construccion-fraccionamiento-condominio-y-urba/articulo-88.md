@@ -1,1 +1,0 @@
-Artículo 88.—Todo lo no contemplado en este Capítulo, se regirá por la Ley de Planificación Urbana, Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones, Ley de Construcciones, Ley General de Caminos Públicos, Reglamento de Construcciones, Ley de Catastro, Reglamento a la Ley del Catastro y Leyes conexas relacionadas con los procesos de Urbanización.

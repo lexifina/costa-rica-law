@@ -1,1 +1,0 @@
-Artículo 47.—Para autorizar el visado de planos, es necesario la presentación de éste, elaborado por profesional en topografía a escala y acotado, consignando toda la información registral, áreas, frente, linderos, colindantes, afectaciones, vía de acceso, etc.

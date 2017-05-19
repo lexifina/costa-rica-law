@@ -1,1 +1,0 @@
-Artículo 24.—Toda alteración al trazo de una construcción hacia afuera del alineamiento oficial será considerado como una invasión de la vía pública, quedando obligado el dueño de la construcción a demoler la parte de la misma que motive dicha invasión dentro del plazo que al efecto le señale la Municipalidad.

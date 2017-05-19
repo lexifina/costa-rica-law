@@ -1,1 +1,0 @@
-Artículo 37.—Será obligatorio para todo propietario que solicite permiso para realizar una construcción, o remodelación, construir acera cordón de caño y entubado pluvial. Obras que deberán ser construidas cuando la construcción o remodelación se encuentre en el cincuenta por ciento de desarrollo.

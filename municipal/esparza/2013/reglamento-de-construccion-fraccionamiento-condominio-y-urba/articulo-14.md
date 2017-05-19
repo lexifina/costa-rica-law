@@ -1,1 +1,0 @@
-Artículo 14.—Toda construcción a realizar en el cantón requerirá de la respectiva Viabilidad Ambiental emitida por la SETENA, se exceptúan de dicho requisito aquellas actividades, obras y proyectos calificadas por dicha secretaría en la resolución Nº 2370-SETENA, del 07 de diciembre del 2004, como obras de muy bajo impacto ambiental potencial.

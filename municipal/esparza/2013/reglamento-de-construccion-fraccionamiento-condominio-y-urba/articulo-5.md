@@ -1,1 +1,0 @@
-Artículo 5º—Todo trámite sujeto a la obtención de una licencia municipal es independiente uno del otro, aun cuando el primero sea requisito para un segundo trámite, por ejemplo: visado del plano catastrado, certificado de uso del suelo y licencias en general. Lo anterior hasta tanto no se disponga de un Expediente Único Electrónico para cada predio.

@@ -1,2 +1,0 @@
-Artículo 36.—En todo permiso de construcción, reparación, ampliación o remodelación se reservará el área, según el derecho de vía correspondiente para la construcción de entubado pluvial, acera, cordón y caño.
-Además debe dejarse entre la línea de propiedad y la línea de construcción dos metros libres de antejardín, si es frente a carretera controlada por la Municipalidad y tres metros si es frente a una controlada por el Ministerio de Obras Públicas y Transportes. (Carretera Nacional).

@@ -1,2 +1,0 @@
-Artículo 86.—Traspaso de áreas públicas. Una vez visados los planos de Áreas de todas estas áreas, el urbanizador procederá a traspasar dichas áreas a nombre de la Municipalidad de Esparza, ante un notario público, el cual llevará los trámites ante el Registro Nacional de la propiedad.
-Una vez que el Registro le asigne el número de escritura, se llevarán a la Oficina de Catastro Municipal, para su debida inscripción.

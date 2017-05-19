@@ -1,1 +1,0 @@
-Artículo 11.—Cuando la resolución que dicte la D.O.O sea en el sentido de que el uso del suelo es no conforme o no permitido, el permiso correspondiente de edificación o de licencia de funcionamiento queda totalmente denegado y rechazado.

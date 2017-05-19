@@ -1,1 +1,0 @@
-Artículo 59.—Todo fraccionamiento que se presente cuya subdivisión no exceda de 5 lotes, y/o con un inminente interés familiar (no urbanístico), estará exenta de lo dispuesto en el artículo 53 de presente reglamento. Sin embargo, si por cualquier razón se presentan fraccionamiento por separado pero de la misma finca madre, dicha norma será aplicada a partir del lote Nº 6.

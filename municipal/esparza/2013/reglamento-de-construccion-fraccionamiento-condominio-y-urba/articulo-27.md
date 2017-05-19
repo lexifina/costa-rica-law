@@ -1,1 +1,0 @@
-Artículo 27.—En los casos en que la Municipalidad lo considere necesario, podrá realizar una recalificación del monto del impuesto de construcción con base en una inspección realizada durante el proceso constructivo o una vez concluida la obra.
