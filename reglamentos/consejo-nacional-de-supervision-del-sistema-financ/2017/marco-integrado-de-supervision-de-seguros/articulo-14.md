@@ -1,0 +1,3 @@
+Artículo 14. Determinación y calificación del Riesgo Compuesto.
+La calificación de riesgo compuesto considera la valoración de las utilidades, el capital y la liquidez en relación al riesgo neto total. La evaluación se realiza sobre un horizonte de tiempo que sea apropiado para la Entidad de seguros, dados los cambios ocurridos internamente y su entorno.
+El riesgo compuesto es calificado como bajo, moderado, alto o crítico, e incluye su perspectiva futura, la cual es la evaluación de la dirección más probable en la cual puede moverse la calificación de riesgo compuesto. La dirección se califica como decreciente, estable o creciente.

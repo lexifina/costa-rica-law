@@ -1,0 +1,2 @@
+Artículo 10. Determinación del Riesgo Neto Total y su dirección.
+El riesgo neto total considera el potencial impacto de las actividades significativas de manera conjunta, sobre el desempeño de las utilidades y la suficiencia de capital y su liquidez para hacer frente a sus obligaciones. El riesgo neto total está calificado como bajo, moderado, alto o crítico y la dirección es evaluada como decreciente, estable o creciente.

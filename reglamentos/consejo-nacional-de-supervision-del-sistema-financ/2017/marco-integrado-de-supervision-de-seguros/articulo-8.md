@@ -1,0 +1,7 @@
+Artículo 8. Evaluación de la calidad de la gestión del riesgo.
+La calidad de la gestión del riesgo debe valorarse en cada uno de los siguientes niveles de control:
+a) Gestión operativa: es aquella utilizada para administrar los riesgos inherentes de la actividad significativa sobre la base del día a día. La Alta Gerencia debe asegurarse que existe un claro entendimiento, por parte de toda la estructura de la Entidad, de los riesgos que enfrenta y que debe administrar, así como de que las políticas, procesos y la cantidad de recursos dedicados sean suficientes y efectivos.
+b) Funciones de control: comprende la existencia y suficiencia de las funciones que garanticen una supervisión adecuada de la gestión de la Entidad de conformidad con los principios contenidos en la reglamentación sobre gestión de riesgos.
+Cuando una Entidad carezca de alguna de las funciones de control o no sean suficientemente independientes o cuando sus potestades no sean suficientemente amplias, se espera que otras funciones internas o externas ejerzan el control independiente requerido.
+La SUGESE evalúa la gestión operativa y las funciones de control por actividad significativa de acuerdo con las siguientes cuatro categorías: fuerte, aceptable, necesita mejorar o débil.
+Asimismo, para cada función de control relevante de la Entidad, SUGESE debe determinar una calificación general que refleje la calidad de cada función a través de toda la compañía, utilizando las mismas cuatro categorías citadas.

@@ -1,0 +1,2 @@
+Artículo 6. Identificación de las Actividades Significativas. Una actividad significativa es una línea de negocio, proceso o unidad que implica un riesgo material para la compañía y que es fundamental para el modelo de negocio y para la consecución de los objetivos de la Entidad.
+Las actividades significativas se identifican con base en el análisis de diversos elementos cuantitativos y cualitativos de la entidad y del mercado.

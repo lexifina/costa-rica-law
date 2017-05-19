@@ -1,0 +1,3 @@
+Artículo 16. Medidas de Actuación.
+La ubicación particular de cada una de las entidades supervisadas dentro de los distintos niveles de riesgo orientará a la SUGESE en cuanto a la adopción de las medidas de actuación que se establecen en este reglamento.
+El régimen de medidas de actuación constituye un esquema flexible. La descripción de las medidas de actuación asociadas a niveles de riesgo no constituye limitaciones a la intensidad de la supervisión y a las acciones que la Ley faculte a la SUGESE. Las medidas descritas para niveles tempranos de riesgo también pueden ser aplicadas en niveles posteriores y, en algunas situaciones, la SUGESE podrá ordenar en niveles posteriores medidas utilizadas en niveles tempranos.

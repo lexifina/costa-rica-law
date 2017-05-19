@@ -1,0 +1,5 @@
+Artículo 23. Nivel 3 – Riesgo a la viabilidad financiera o solvencia.
+Cuando una Entidad se encuentra en nivel 3, la SUGESE ha identificado problemas en relación con la seguridad y solidez de la Entidad y la misma es vulnerable a cambios adversos en las condiciones económicas. A pesar de que estos problemas no son lo suficientemente graves como para implicar una amenaza inmediata a la viabilidad financiera o solvencia, tienen el potencial de conducir a situaciones graves en caso de no ser abordados oportunamente.
+Las siguientes circunstancias podrían conducir a que la SUGESE asigne a una Entidad el Nivel 3:
+a) Se identifican problemas en los controles o en la gestión de riesgo que si bien es cierto no representan amenaza seria para la viabilidad financiera o la solvencia de la Entidad, podrían conducir a problemas más serios en caso de no ser abordados de manera inmediata.
+b) La combinación del riesgo neto total de la compañía, sus utilidades, capital y liquidez hacen que la Entidad sea vulnerable frente a condiciones adversas, lo cual podría implicar una amenaza grave a la viabilidad financiera o solvencia en caso de no ser abordados inmediatamente.

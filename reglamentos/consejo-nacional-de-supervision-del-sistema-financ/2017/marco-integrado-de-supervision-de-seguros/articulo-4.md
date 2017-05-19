@@ -1,0 +1,2 @@
+Artículo 4. Principio de proporcionalidad.
+La evaluación de cada Entidad y las medidas de actuación por parte de la SUGESE, debe tener en consideración los atributos particulares del supervisado en aspectos tales como: naturaleza jurídica de la Entidad, tamaño, estructura de propiedad, alcance y la complejidad de las operaciones, estrategia corporativa, Perfil de riesgo y el potencial impacto de sus operaciones sobre terceros. Asimismo, debe adecuarse a medida que varíen las circunstancias internas o externas y las actividades comerciales de la Entidad.
