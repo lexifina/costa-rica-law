@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Declaratoria de interés público. Se declara de interés público la presente ley, como medio de garantizar la adecuada alimentación y nutrición de estudiantes que se encuentren en riesgo de exclusión social, pobreza y pobreza extrema, durante el período lectivo y no lectivo.

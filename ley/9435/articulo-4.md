@@ -1,0 +1,1 @@
+ARTÍCULO 4.- Apertura de comedores en tiempo lectivo. En el tiempo lectivo, el Estado debe garantizar la adecuada alimentación complementaria a la población estudiantil, de conformidad con la selección de beneficiarios realizada por la autoridad competente.
