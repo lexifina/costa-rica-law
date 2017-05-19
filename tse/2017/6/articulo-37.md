@@ -1,0 +1,3 @@
+Capítulo VIII
+DISPOSICIONES FINALES
+Artículo 37.- Alcance: El presente reglamento es de acatamiento obligatorio para los partidos políticos, coaliciones, agentes electorales y ciudadanos que participen en el proceso electoral.

@@ -1,0 +1,1 @@
+Artículo 24.- Ubicación de los recintos de votación: Los recintos de votación deben estar ubicados de forma tal que reúnan todas las garantías necesarias para asegurar el secreto del voto; deberán también permitir el acceso de personas en sillas de ruedas u otros elementos auxiliares necesarios para su movilización.

@@ -1,0 +1,7 @@
+Artículo 36.- Escrutinio definitivo: El escrutinio definitivo a cargo del TSE deberá realizarse con base en el conteo definitivo de los resultados efectuado por las juntas receptoras de votos. El TSE hará recuento de los sufragios únicamente en los siguientes casos excepcionales:
+a) Tratándose de juntas receptoras de votos contra cuyos resultados se presenten apelaciones o demandas de nulidad admisibles y esa diligencia -a juicio del TSE- sea necesaria para su resolución.
+b) Cuando los resultados de una junta sean manifiestamente inconsistentes.
+c) Cuando, al momento del escrutinio preliminar, no estén presentes al menos tres de los miembros de la respectiva junta, salvo si se encuentran dos miembros acompañados de un auxiliar electoral, lo cual deberá constar en el padrón registro.
+d) Respecto de las juntas receptoras de votos en las que se extravíe el padrón registro, no se haya utilizado o que consten en él observaciones que ameriten el recuento.
+e) Tratándose de la papeleta presidencial, cuando la totalización del cómputo hecho por las juntas receptoras de votos -según lo informe el programa electoral de
+Transmisión de Datos a partir de los reportes telemáticos susceptibles de procesar arroje una diferencia de dos puntos porcentuales o menos, ya sea entre la nómina más votada y la que ocupa el segundo lugar o entre esta y la tercera nómina más votada, de ser necesaria una segunda vuelta electoral.
