@@ -1,0 +1,4 @@
+CONSEJO NACIONAL DE SUPERVISIÓN DEL SISTEMA FINANCIERO
+El Consejo Nacional de Supervisión del Sistema Financiero en el artículo 12 del acta de la sesión 1328- 2017, celebrada el 2 de mayo del 2017, II. Modificar el Acuerdo SUGESE 01-08 Reglamento sobre autorizaciones, registros y requisitos de funcionamiento de entidades supervisadas por la Superintendencia General de Seguros, de la siguiente manera:
+a) Modificar la definición de Gobernabilidad Corporativa contenida en el inciso d) del artículo 32 para que se lea de la siguiente manera:
+“Conjunto de relaciones entre la administración de la entidad, su Órgano de Dirección, sus propietarios y otras Partes Interesadas, las cuales proveen la estructura para establecer los objetivos de la entidad, la forma y los medios para alcanzarlos y monitorear su cumplimiento. El Gobierno Corporativo define la manera en que se asigna la autoridad y se toman las decisiones corporativas.”

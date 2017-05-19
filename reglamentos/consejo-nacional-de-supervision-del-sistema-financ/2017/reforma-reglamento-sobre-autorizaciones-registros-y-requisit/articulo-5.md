@@ -1,0 +1,2 @@
+e) Adicionar al apartado Organización, gobernabilidad y sistemas de administración y control del Anexo 3, un párrafo final en los siguientes términos.
+“Para la estructuración del Sistema de Gobierno Corporativo de la entidad, deben observarse los principios y las normas contenidas en la reglamentación sobre Gobierno Corporativo y en las regulaciones sobre gestión de riesgos, comercialización de seguros, legitimación de capitales y financiamiento al terrorismo, defensa del consumidor y tecnologías de información, vigentes para entidades corredoras de seguros.”
