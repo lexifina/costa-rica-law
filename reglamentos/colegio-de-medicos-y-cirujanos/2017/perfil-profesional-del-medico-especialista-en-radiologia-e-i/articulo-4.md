@@ -1,0 +1,1 @@
+Artículo 4. –El médico especializado en radiología e imágenes médicas es el único médico autorizado para ejercer esta especialidad, al cual, también se le conoce como radiólogo. Los radiólogos que realizan ultrasonografías se les conocen como ultrasonografistas.

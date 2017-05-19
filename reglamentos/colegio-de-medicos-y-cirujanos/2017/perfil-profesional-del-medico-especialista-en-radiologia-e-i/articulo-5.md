@@ -1,0 +1,1 @@
+Artículo 5. –Telerradiología: Se entiende ésta como la transmisión electrónica de imágenes radiológicas, tales como radiografías, tomografía computarizada y resonancia magnética, con el propósito de compartir estudios con otros radiólogos o médicos para fines de interpretación o consulta dentro del territorio nacional.

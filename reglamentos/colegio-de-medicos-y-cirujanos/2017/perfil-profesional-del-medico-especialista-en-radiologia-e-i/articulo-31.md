@@ -1,0 +1,1 @@
+Artículo 31. –El ejercicio profesional deberá ejecutarse con responsabilidad, respeto, discreción y ética profesional velando en todo momento por cumplir los principios radiológicos de: justificación, optimización y limitación de la dosis de radiación, para la protección del paciente y personal.

@@ -1,0 +1,19 @@
+Artículo 14. –Funciones asistenciales del médico especialista en Radiología e Imágenes Médicas:
+a. Desarrolla sus actividades a nivel público y privado, dentro de una red de servicios de salud, favoreciendo el abordaje integral, familiar y psicosocial, desde una perspectiva de trabajo pluridisciplinario y en equipo.
+b. Valora las solicitudes de estudios radiológicos, corrobora que el estudio solicitado sea el indicado y autoriza el mismo según la sospecha clínica para evitar los riesgos para la salud del paciente que conlleva realizar estudios innecesarios y así optimizar los recursos disponibles.
+c. Interpreta y da significado a los hallazgos imagenológicos, emitiendo un reporte con su impresión diagnóstica y aportando recomendaciones cuando lo considere necesario. Dicha interpretación, tendrá mayor sensibilidad y especificidad si el radiólogo cuenta con toda la información clínica necesaria para realizar una adecuada correlación clínicoradiológica.
+d. Participa en la resolución de problemas de diagnóstico y tratamientos empleando como herramienta fundamental las imágenes médicas.
+e. Ejecuta procedimientos terapéuticos que ayudan a resolver el estado de enfermedad del paciente.
+f. Correlaciona los hallazgos en las imágenes médicas con otros exámenes y pruebas; diagnostica y trata enfermedades utilizando radiaciones o intervenciones médicas invasivas guiadas por imágenes.
+g. Conocer y resolver los riesgos y la evolución de todos los procedimientos que se practiquen en su especialidad.
+h. Colabora mediante la interconsulta con otros servicios asistenciales para el mejor desarrollo de una atención sanitaria integral.
+i. Actúa como experto consultor para el médico referente ayudándolo a elegir el examen adecuado, interpretando las imágenes médicas resultantes y utilizando el resultado de las pruebas para planificar su atención médica.
+j. Recomienda exámenes complementarios o tratamientos adecuados cuando sea necesario y consulta con los médicos referentes.
+k. Comunicar de manera efectiva y respetuosa los resultados de los reportes radiológicos que realice a los pacientes, familiares de pacientes y otros profesionales en salud.
+l. Determinar en función de su ejercicio profesional, los seguimientos que se le realicen al paciente, de acuerdo con el diagnóstico, pronóstico y tratamiento efectuado.
+m. Dirige, supervisa y orienta a los Tecnólogos de Radiología e Imágenes Médicas para realizar exámenes de óptima calidad diagnóstica en caso de ser necesario.
+n. Valora, supervisa y evalúa la calidad de las imágenes realizadas por los tecnólogos con el fin de que cuenten con la calidad necesaria para ser interpretadas.
+o. Práctica, revisa y perfecciona las normas de protección y seguridad radiológica, de acuerdo a las normas nacionales e internacionales. Puede ser consultor y operador de las normas de protección radiológica y del uso de las radiaciones ionizantes, por ser el uso de éstas de riesgo para la población general y el personal ocupacionalmente expuesto, como ha sido consignado a nivel internacional.
+p. Previa indicación de la autoridad judicial o administrativa, podrá formar parte del equipo de investigación, en programas de peritaje en el campo de la radiología e imágenes médicas.
+q. Pueden realizar la Telerradiología. Se reconoce ésta modalidad como la oportunidad de avanzar hacia el desarrollo del país, mejorando las condiciones laborales del especialista en Radiología e Imágenes Médicas así como la oportunidad para el paciente de acceder a la globalización en el área de la radiología pudiendo acceder a la era digital de su diagnóstico.
+r. Establece los protocolos de dosificación de los medios de contrastes intravenosos, gastrointestinales entre otros en caso de ser necesario, previa valoración del riesgo beneficio por el médico tratante, vela por la supervisión adecuada de la aplicación de estos por el personal de salud.
