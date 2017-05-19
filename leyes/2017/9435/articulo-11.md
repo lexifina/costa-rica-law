@@ -1,0 +1,1 @@
+ARTÍCULO 11. Obligación de las juntas de educación y juntas administrativas. Es obligación de las juntas de educación y las juntas administrativas, encargadas del manejo de los comedores escolares dentro de los distintos centros educativos del país, prestar su colaboración para la apertura de estos en los términos que indica esta ley.
