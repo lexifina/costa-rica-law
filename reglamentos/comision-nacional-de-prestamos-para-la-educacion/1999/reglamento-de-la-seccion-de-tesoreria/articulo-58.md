@@ -1,2 +1,0 @@
-Artículo 58.—El Jefe de Tesorería elabora una lista mensual de las garantías en custodia por concepto de licitaciones o concursos de antecedentes, los cuales devolverá o mantendrá en custodia de acuerdo con las instrucciones que reciba de la Jefatura del Departamento Financiero.
-(Así corrida su numeración mediante sesión N° 43 del 18 de octubre del 2001, que lo traspaso del anterior artículo 56 al 58 actual).

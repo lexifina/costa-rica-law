@@ -1,2 +1,0 @@
-Artículo 40.—El Jefe de Tesorería, el Asistente y el Cajero se aseguran de que todos los documentos justificantes de pago, como órdenes de compra, emisiones de documentos, recibos de títulos, provenientes del Puesto de Bolsa encargado de realizar las inversiones transitorias de CONAPE, estén debidamente firmados y sellados.
-(Así corrida su numeración mediante sesión N° 43 del 18 de octubre del 2001, que lo traspaso del anterior artículo 38 al 40 actual).

@@ -1,2 +1,0 @@
-Artículo 53.—El Jefe de Tesorería brinda el listado mensual del vencimiento de los títulos y cupones, tres días antes al último día del mes, con el visto bueno del Jefe de Contabilidad de CONAPE para presentarlo a la Tesorería del Puesto de Bolsa, al Ministerio de Hacienda, a la Jefatura del Departamento Financiero y a la Auditoría Interna de CONAPE.
-(Así corrida su numeración mediante sesión N° 43 del 18 de octubre del 2001, que lo traspaso del anterior artículo 51 al 53 actual).

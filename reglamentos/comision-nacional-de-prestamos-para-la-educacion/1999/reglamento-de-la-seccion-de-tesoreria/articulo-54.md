@@ -1,2 +1,0 @@
-Artículo 54.—El Jefe de Tesorería emite trimestralmente un informe del inventario de garantías prendarias e hipotecarias en custodia de esta Sección y lo presenta al Jefe de la Sección de Control y Ejecución de Crédito, al Jefe de la Sección de Cobro, a la Jefatura del Departamento Financiero y a la Auditoría Interna.
-(Así corrida su numeración mediante sesión N° 43 del 18 de octubre del 2001, que lo traspaso del anterior artículo 52 al 54 actual).

@@ -1,2 +1,0 @@
-Artículo 47.—El Jefe de Tesorería, el asistente y el cajero, o cualquier otro funcionario que ejecute labores en la Tesorería responden personalmente por cualquier faltante que sea imputable a estos por dolo, negligencia o error en los valores custodiados (bonos, certificados, pagarés, contratos, recibos, fondos, etc.).
-(Así corrida su numeración mediante sesión N° 43 del 18 de octubre del 2001, que lo traspaso del anterior artículo 45 al 47 actual).

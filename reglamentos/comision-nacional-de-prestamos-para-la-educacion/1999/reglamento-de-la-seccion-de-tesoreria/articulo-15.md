@@ -1,1 +1,5 @@
-Artículo 15.—El Jefe de Tesorería, al finalizar las labores diarias, es responsable de recibir del cajero y verificar en presencia de éste, la cantidad de dinero y los comprobantes correspondientes de las operaciones que se registren.
+Artículo No. 15
+La entrega de cheques por proceso de contratación administrativa se realizan contra la presentación del original de la orden de compra y la respectiva factura original por parte del proveedor, un recibo de dinero debidamente firmado por quien lo recibe y la cédula de identidad del proveedor, de su representante o autorizado.
+La entrega de los cheques por concepto de garantía de participación o cumplimiento, requieren que se realice contra la firma del beneficiario, autorizado o apoderado en el formulario de devolución de la garantía.
+La entrega de los cheques por concepto de pago por servicios de abogado, deben realizarse contra el recibo por dinero debidamente firmado por el beneficiario del cheque, autorizado o apoderado legal.
+La entrega de los cheques de desembolsos endosados a los abogados por servicios recibidos, se deben entregar al respectivo abogado, autorizado o apoderado legal contra la presentación del comprobante de registro de la hipoteca cuando el prestatario haya endosado el cheque

@@ -1,2 +1,2 @@
-Artículo 33.—El Cajero entrega a los funcionarios de CONAPE, los cheques para pagos fuera de la Institución, mediante el uso del formulario de “Retiro de cheques” debidamente firmado.
-(Así corrida su numeración mediante sesión N° 43 del 18 de octubre del 2001, que lo traspaso del anterior artículo 31 al 33 actual).
+Artículo No. 33
+Se deroga el anterior reglamento aprobado por el consejo directivo y publicado en el alcance N° 44 de La Gaceta 201 del 24 de octubre de 1995 a partir de la vigencia del presente reglamento.

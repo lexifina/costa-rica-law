@@ -1,1 +1,2 @@
-Artículo 4°—Es prohibida la entrada de particulares y funcionarios de CONAPE a los locales donde operan las cajas de pagos. Se exceptúa de esta disposición al Auditor Interno o su delegado en funciones propias del cargo, al Secretario Ejecutivo, la Jefatura del Departamento Financiero. Cualquier otro funcionario de CONAPE en funciones propias de su cargo, previa autorización y presencia del Jefe de Tesorería y el custodio.
+Artículo No. 4
+Los funcionarios de la tesorería dependerán directamente de quien ejerza la Jefatura de la Tesorería. En ausencia del Jefe de Tesorería, los subalternos de esta sección deben de reportar sus consultas a la Jefatura del Departamento Financiero, o en su ausencia al funcionario que está supliendo la Jefatura del Departamento Financiero.

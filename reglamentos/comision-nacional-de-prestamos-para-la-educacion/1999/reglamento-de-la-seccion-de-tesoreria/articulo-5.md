@@ -1,1 +1,2 @@
-Artículo 5.—Los funcionarios de la Tesorería, dependerán directamente de quién ejerza la jefatura de la Tesorería.
+Artículo No. 5
+Es prohibida la entrada de particulares y funcionarios de CONAPE a los cubículos donde operan las cajas de pagos y la bóveda. Se exceptúa de esa disposición al Auditor Interno o su delegado en funciones propias del cargo, el Secretario Ejecutivo y la Jefatura del Departamento Financiero. Podrá ingresar cualquier otro funcionario de CONAPE o personal contratado externo para efectuar funciones propias de su cargo previa autorización del Jefe de la Tesorería y en presencia de alguno de los funcionarios de Tesorería.

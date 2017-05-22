@@ -1,1 +1,2 @@
-Artículo 12.—El Jefe de Tesorería delega en el cajero y asistente de tesorería las responsabilidades necesarias para el cumplimiento de las funciones encomendadas en los reglamentos, procedimientos y rutinas.
+Artículo No. 12
+Las salidas de efectivo realizadas por transferencia bancaria, requieren el comprobante de transferencia aplicada en el banco, la cual debe indicar la fecha de aplicación del pago, monto, nombre del beneficiario y número de comprobante.

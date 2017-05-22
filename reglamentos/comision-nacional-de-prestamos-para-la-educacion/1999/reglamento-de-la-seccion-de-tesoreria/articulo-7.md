@@ -1,9 +1,2 @@
-CAPITULO II
-De las responsabilidades de los funcionarios
-Artículo 7.—Son responsabilidades del Jefe de Tesorería:
-a) Verificar la información de las aplicaciones computarizadas de Planilla de Salarios, Desembolsos a Estudiantes y Cheques y Bancos, antes de emitir los respectivos cheques o transferencias bancadas.
-b) Administrar la información del Sistema de Flujo de Efectivo.
-c) Administrar la información del Sistema de Inversiones Transitorias.
-d) Administrar la información del Sistema de Control de Garantías.
-e) Verificar el traslado de la información correspondiente al Sistema de Contabilidad.
-f) Comunicar de inmediato y por escrito, cualquier falla que detecte en los sistemas mencionados a la Jefatura del Departamento Financiero.
+Artículo No. 7
+Se prohíbe recibir cheques de pago extendidas a caja. Todos los cheques deber ser girados a la orden de CONAPE, salvo casos especiales a criterio de la Jefatura del Departamento Financiero.

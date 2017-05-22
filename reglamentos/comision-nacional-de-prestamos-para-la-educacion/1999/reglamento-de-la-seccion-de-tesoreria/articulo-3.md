@@ -1,1 +1,4 @@
-Artículo 3°—En ausencia del Jefe de Tesorería, los subalternos de esta Sección deben reportar sus consultas a la Jefatura del Departamento Financiero o en su ausencia al Secretario Ejecutivo.
+Artículo No. 3
+En caso de ausencia del Técnico en Tesorería por motivo de vacaciones, capacitaciones, incapacidades o licencias, será suplido por el funcionario previamente designado por la Sección de Cobro con el puesto de Asistente de Procesos de Cobro y Cajero a quien se le asignara un fondo de trabajo que formara parte del fondo fijo de trabajo.
+El Técnico en Tesorería será sustituido en primera instancia por el Analista de Tesorería y en su ausencia por el Asistente de Procesos de Cobro y Cajero, durante sus periodos para la ingesta de alimentos, reuniones, charlas, entre otras actividades propias del puesto, a quien se le asignará un fondo monetario de trabajo que formará parte del fondo general de trabajo. Su monto será fijado por el Jefe de Tesorería mediante oficio que respalde su aumento o disminución.
+En ausencia del Técnico en Tesorería, el Analista de Tesorería o el Técnico en Cobro y Tesorería, las funciones serán asumidas por el Jefe de Tesorería.

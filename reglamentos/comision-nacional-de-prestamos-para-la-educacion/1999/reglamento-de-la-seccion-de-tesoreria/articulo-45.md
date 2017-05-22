@@ -1,2 +1,0 @@
-Artículo 45.—El Jefe de Tesorería registra y custodia los valores recibidos depositándolos en las cajas de seguridad. Deposita todo el dinero en efectivo y los cheques, que ingresen a la Tesorería en las cuentas bancarias de la Institución, a más tardar el día hábil siguiente, dejando en únicamente el Fondo de Trabajo Diario.
-(Así corrida su numeración mediante sesión N° 43 del 18 de octubre del 2001, que lo traspaso del anterior artículo 43 al 45 actual).

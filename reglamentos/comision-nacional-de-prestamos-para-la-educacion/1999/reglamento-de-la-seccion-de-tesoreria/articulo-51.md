@@ -1,2 +1,0 @@
-Artículo 51.—El Asistente de la Tesorería confecciona una lista mensual con los cheques emitidos (proveedores, prestatarios y planilla), a favor de terceros, que a esa fecha se encuentran en custodia de la Tesorería, para presentarlo a la Jefatura de la Tesorería, Jefatura de la Sección Administrativa, Jefatura de Sección de Control y Ejecución de Crédito y a la Auditoría Interna.
-(Así corrida su numeración mediante sesión N° 43 del 18 de octubre del 2001, que lo traspaso del anterior artículo 49 al 51 actual).

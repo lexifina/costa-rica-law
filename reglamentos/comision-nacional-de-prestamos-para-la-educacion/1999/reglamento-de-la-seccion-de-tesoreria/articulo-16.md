@@ -1,1 +1,2 @@
-Artículo 16.—El Asistente de Tesorería debe remitir las copias de los comprobantes de ingreso a la Contabilidad y Auditoría Interna. Corresponderá a la Sección de Cobro suministrar y preparar estos comprobantes de ingreso.
+Artículo No. 16
+Los cheques de los prestatarios menores de 18 años, serán retirados por el tutor legal quién deberá presentar la cédula de identidad vigente.

@@ -1,2 +1,0 @@
-Artículo 39.—El Jefe de Tesorería o su Asistente, previa autorización de la Jefatura del Departamento Financiero, realizan los trámites de las renovaciones de las garantías respectivas, conjuntamente con el propietario de la garantía, otorgada con certificados de depósito a plazo de cualquier Banco del país u otras Instituciones Financieras aceptadas por CONAPE.
-(Así corrida su numeración mediante sesión N° 43 del 18 de octubre del 2001, que lo traspaso del anterior artículo 37 al 39 actual).
