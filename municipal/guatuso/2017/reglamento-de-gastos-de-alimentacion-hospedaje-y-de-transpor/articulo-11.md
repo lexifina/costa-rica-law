@@ -1,0 +1,1 @@
+Artículo 11.—Ante las lagunas que se presenten en la aplicación de este Reglamento, se aplicará supletoriamente el Reglamento de Viajes y de Transportes para funcionarios públicos de la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 8º—En caso que el servicio de transporte público no se brindará en el horario en el que lo miembros del Concejo Municipal tengan la entrada o salida de la sesión, se podrá cancelar taxi, y si dos o más miembros pueden viajar por una misma ruta únicamente se pagará un servicio de taxi.
