@@ -14,3 +14,4 @@ Oficializa la Política Nacional del Mar y reforma el Decreto Ejecutivo N° 3721
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-02-27 | la propia norma |
+| 2 | 2017-05-23 | Decreto Ejecutivo 40473 (2017-05-23) |
