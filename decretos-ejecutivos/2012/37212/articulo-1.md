@@ -15,5 +15,7 @@ Considerando:
 Por tanto,
 DECRETAN:
 (Nota de Sinalevi: El texto de esta norma fue reformada parcialmente y reproducido su texto de forma íntegra mediante decreto ejecutivo N° 37384 del 6 de noviembre del 2012, y publicado en La Gaceta N° 227 del 23 de noviembre del 2012 y se transcribe a continuación:)
-Creación y Funcionamiento de la Comisión Nacional Marina
-Artículo 1º—Créase la Comisión Nacional del Mar, como órgano colegiado de carácter permanente adscrita al Ministerio de la Presidencia, en adelante la Comisión, que fungirá como autoridad máxima de articulación y gestión integrada entre las diferentes instancias del sector público, que hacen parte de la institucionalidad marina costarricense.
+Creación y Funcionamiento del Consejo Nacional de Desarrollo del Mar(*)
+(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 40473 del 23 de mayo del 2017. Anteriormente se indicaba: "Creación y Funcionamiento de la Comisión Nacional Marina".)
+Artículo 1 º- Créase el Consejo Nacional de Desarrollo del Mar, en adelante CONAMAR, como órgano colegiado de carácter permanente adscrito al Ministerio de la Presidencia, que fungirá como autoridad máxima de articulación y gestión integrada entre las diferentes instancias del sector público, que hacen parte de la institucionalidad marino-costera costarricense.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40473 del 23 de mayo del 2017)
