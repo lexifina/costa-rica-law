@@ -1,1 +1,0 @@
-Artículo 2º—El Concejo Municipal es el único órgano competente para conocer y resolver solicitudes de disponibilidades de agua de más de cuatro pajas. Queda absolutamente prohibido para la administración otorgar más de tres disponibilidades de agua.

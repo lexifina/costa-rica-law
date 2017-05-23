@@ -1,1 +1,0 @@
-Artículo 4º—La Alcaldía Municipal deberá emitir en un plazo no mayo de ocho días hábiles las directrices administrativas encaminadas a dar a conocer a los funcionarios administrativos competentes y regular los procedimientos para implementar estas disposiciones.
