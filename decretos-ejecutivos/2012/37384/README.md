@@ -14,3 +14,4 @@ Reforma Integral Creación y Funcionamiento de la Comisión Nacional Marina
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-23 | la propia norma |
+| 2 | 2017-05-23 | Decreto Ejecutivo 40473 (2017-05-23) |

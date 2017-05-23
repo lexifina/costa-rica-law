@@ -21,24 +21,33 @@ Reforma integral al Decreto Ejecutivo Nº 37212-MINAET-MAG-
 MSP-MOPT que establece la Creación y Funcionamiento
 de la Comisión Nacional Marina.
 Artículo 1º—Se reforma de manera integral el Decreto Ejecutivo Nº 37212-MINAET-MAG-MSP-MOPT del 17 de julio del 2012 para que en adelante se lea de la siguiente forma:
-“Creación y Funcionamiento de la Comisión Nacional del Mar”
-Artículo 1º—Créase la Comisión Nacional del Mar, como órgano colegiado de carácter permanente adscrita al Ministerio de la Presidencia, en adelante la Comisión, que fungirá como autoridad máxima de articulación y gestión integrada entre las diferentes instancias del sector público, que hacen parte de la institucionalidad marina costarricense.
-Artículo 2º—La Comisión Nacional del Mar, estará integrada por los siguientes miembros:
+“Creación y Funcionamiento de la CONAMAR (*)”
+(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 40473 del 23 de mayo del 2017. Anteriormente se indicaba: "Comisión Nacional del Mar".)
+Artículo 1º—Créase la CONAMAR (*), como órgano colegiado de carácter permanente adscrita al Ministerio de la Presidencia, en adelante la Comisión, que fungirá como autoridad máxima de articulación y gestión integrada entre las diferentes instancias del sector público, que hacen parte de la institucionalidad marina costarricense.
+(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 40473 del 23 de mayo del 2017. Anteriormente se indicaba: "Comisión Nacional del Mar".)
+Artículo 2º—La CONAMAR (*), estará integrada por los siguientes miembros:
+(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 40473 del 23 de mayo del 2017. Anteriormente se indicaba: "Comisión Nacional del Mar".)
 a) El Presidente de la República o un Vicepresidente de la República nombrado directamente por él (ella), quien presidirá.
 b) El Ministro de Ambiente, Energía y Telecomunicaciones o el Viceministro de este Ministerio que éste designe.
 c) El Ministro de Seguridad Pública o el viceministro de este Ministerio que éste designe.
 d) El Ministro de Obras Públicas y Transportes o el Viceministro de este Ministerio que éste designe.
 e) El Ministro de Agricultura y Ganadería o el Viceministro de este Ministerio que éste designe.
-Artículo 3º—Corresponde a la Comisión Nacional del Mar:
+Artículo 3º—Corresponde a la CONAMAR (*):
+(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 40473 del 23 de mayo del 2017. Anteriormente se indicaba: "Comisión Nacional del Mar".)
 a) Articular, integrar y conciliar las políticas e instrumentos de planificación emitidos en materia marina; impulsando su implementación a través de las instituciones rectoras.
 b) Elaborar y proponer la Política Nacional Marina.
 c) Recomendar directrices que aseguren el cumplimiento de la Política Nacional Marina y una gestión integrada y efectiva de los espacios marinos.
-d) Aprobar los planes de trabajo de la Secretaría Técnica de la Comisión Nacional del Mar.
-Artículo 4º—La Comisión Nacional del Mar se reunirá obligatoriamente cada dos meses y será convocada por el Presidente de la República o quien lo represente. Contará con un Secretario Ejecutivo que será nombrado por el Presidente de la República, que tendrá derecho a asistir a las sesiones de la Comisión con voz pero sin voto. Para su funcionamiento se regirá por lo dispuesto en la Ley General de Administración Pública en lo que respecta a órganos colegiados.
+d) Aprobar los planes de trabajo de la Secretaría Técnica de la CONAMAR (*).
+(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 40473 del 23 de mayo del 2017. Anteriormente se indicaba: "Comisión Nacional del Mar".)
+Artículo 4º—La CONAMAR (*) se reunirá obligatoriamente cada dos meses y será convocada por el Presidente de la República o quien lo represente. Contará con un Secretario Ejecutivo que será nombrado por el Presidente de la República, que tendrá derecho a asistir a las sesiones de la Comisión con voz pero sin voto. Para su funcionamiento se regirá por lo dispuesto en la Ley General de Administración Pública en lo que respecta a órganos colegiados.
+(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 40473 del 23 de mayo del 2017. Anteriormente se indicaba: "Comisión Nacional del Mar".)
 Podrán además asistir a las sesiones de la Comisión, con derecho a voz pero sin voto quienes determine el (la) Presidente de la República.
-Artículo 5º—La Comisión Nacional del Mar contará a su vez con una Secretaría Técnica adscrita a la Presidencia de la República y será el órgano ejecutor de las políticas y proyectos que defina la Comisión y contará con el apoyo técnico de las organizaciones que la integran, quienes están autorizados a designar personal para tal efecto. La Secretaría sesionará obligatoriamente una vez al mes.
-Artículo 6º—La Secretaría Técnica de la Comisión Nacional del Mar estará integrada por:
-a) El Secretario Ejecutivo de la Comisión Nacional del Mar, quien fungirá como coordinador general.
+Artículo 5º—La CONAMAR (*) contará a su vez con una Secretaría Técnica adscrita a la Presidencia de la República y será el órgano ejecutor de las políticas y proyectos que defina la Comisión y contará con el apoyo técnico de las organizaciones que la integran, quienes están autorizados a designar personal para tal efecto. La Secretaría sesionará obligatoriamente una vez al mes.
+(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 40473 del 23 de mayo del 2017. Anteriormente se indicaba: "Comisión Nacional del Mar".)
+Artículo 6º—La Secretaría Técnica de la CONAMAR (*) estará integrada por:
+(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 40473 del 23 de mayo del 2017. Anteriormente se indicaba: "Comisión Nacional del Mar".)
+a) El Secretario Ejecutivo de la CONAMAR (*), quien fungirá como coordinador general.
+(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 40473 del 23 de mayo del 2017. Anteriormente se indicaba: "Comisión Nacional del Mar".)
 b) Un representante de la Dirección Marino Costera, del Ministerio de Ambiente, Energía y Telecomunicaciones.
 c) Un representante del Servicio Nacional de Guardacostas, del Ministerio de Seguridad Pública.
 d) Un representante de la División Marítimo Portuaria del Ministerio de Obras Públicas y Transportes.
