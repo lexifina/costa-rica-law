@@ -1,5 +1,0 @@
-Artículo 2º—Residentes fiscales. Se consideran residentes fiscales en Costa Rica y por ende pueden solicitar los certificados, los siguientes:
-a) Las personas naturales costarricenses, que perciban rentas de fuente costarricense, independientemente de que hayan residido o no en el territorio nacional, durante el período fiscal respectivo.
-b) Las personas naturales extranjeras que hayan residido o permanecido en el país, por lo menos seis meses en forma continua durante el período fiscal y que perciban rentas de fuente costarricense durante el período fiscal respectivo.
-c) Las personas jurídicas legalmente constituidas en Costa Rica, así como las sociedades de hecho que actúen en el país y cualquier otro ente con o sin personalidad jurídica, que perciban rentas de fuente costarricense durante el período fiscal respectivo.
-d) Las sucursales, agencias y otros establecimientos permanentes en el país, de personas no domiciliadas en Costa Rica, que perciban rentas de fuente costarricense durante el período fiscal respectivo.
