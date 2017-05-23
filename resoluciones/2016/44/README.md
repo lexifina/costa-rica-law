@@ -14,3 +14,4 @@ Declaración informativa de precios de transferencia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-09-13 | la propia norma |
+| 2 | 2017-05-23 | Resolución 28 (2017-05-23) |
