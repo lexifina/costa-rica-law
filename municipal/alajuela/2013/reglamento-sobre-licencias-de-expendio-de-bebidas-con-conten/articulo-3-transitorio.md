@@ -1,0 +1,2 @@
+TRANSITORIO III. Para efectos de actualizar el monto del impuesto trimestral de licencias para expendio de bebidas con contenido alcohólico los licenciatarios deberán presentar la declaración jurada para el cálculo de los derechos de licencias de licores en el formulario que la Municipalidad tendrá a disposición para la declaración. La actualización de dicho monto rige a partir del trimestre en el cual el licenciatario presente la respectiva declaración.
+(Así adicionado mediante sesión ordinaria N° 21-2017 del 23 de mayo del 2017)

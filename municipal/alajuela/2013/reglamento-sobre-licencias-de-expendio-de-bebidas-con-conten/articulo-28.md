@@ -1,1 +1,5 @@
-Artículo 28. Denuncia ante otras autoridades. En los supuestos normativos de los artículos del 15 al 23 de la Ley, la Fuerza Pública, la Policía Municipal y los Inspectores Municipales tendrán facultades cautelares de decomiso y procederán a levantar el parte correspondiente, mismo que remitirán ante el Juez Contravencional, la Policía de Control Fiscal o la autoridad competente correspondiente, adjuntando todas las pruebas e indicios con que cuenten para darle sustento.
+Artículo 28. Causales para la suspensión de la licencia de expendio de bebidas con contenido alcohólico.
+La licencia de expendio de bebidas con contenido alcohólico, podrán suspenderse:
+1. Por la falta de pago del impuesto de dos o más trimestres vencidos.
+2. Por el incumplimiento de los requisitos y las prohibiciones establecidas en la ley Nº 9047, su reforma y este reglamento.
+(Así adicionado mediante sesión ordinaria N° 21-2017 del 23 de mayo del 2017)

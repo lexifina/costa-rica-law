@@ -1,1 +1,3 @@
-Artículo 24. Prohibiciones. No se otorgarán licencias temporales en ninguna de las circunstancias detalladas en el párrafo tercero del artículo 7 de la Ley.
+Artículo 24. Personas Físicas o Jurídicas, inscritas en el Régimen de Tributación Simplificada.
+Para todas las personas físicas o jurídicas que cuenten con licencias de expendio de bebidas con contenido alcohólico y que además se encuentren inscritas bajo el Régimen de Tributación Simplificada, para efectos del cobro del impuesto, se calculará el valor de las ventas anuales netas considerando el total de compras anuales del último período fiscal, a ese monto se le adicionará un 50% del total de compras anuales reportadas.
+(Así adicionado mediante sesión ordinaria N° 21-2017 del 23 de mayo del 2017)

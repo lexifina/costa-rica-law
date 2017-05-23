@@ -1,3 +1,3 @@
-CAPÍTULO V
-Sanciones y recursos
-Artículo 26. Imposición de sanciones. La Municipalidad podrá imponer las sanciones establecidas en el capítulo IV de la Ley, para lo cual deben respetarse los principios del debido proceso, la verdad real, el impulso de oficio, la imparcialidad y la publicidad, respetando además los trámites y formalidades que informan el procedimiento administrativo ordinario estipulado en el Libro Segundo de la Ley General de la Administración Pública.
+Artículo 26. Pago extemporáneo de los derechos trimestrales.
+El pago extemporáneo de los derechos trimestrales está sujeto a una multa de uno por ciento (1%) por mes sobre el monto no pagado o fracción de mes hasta un máximo de un veinte por ciento (20%), y al pago de intereses correspondientes.
+(Así adicionado mediante sesión ordinaria N° 21-2017 del 23 de mayo del 2017)

@@ -1,1 +1,7 @@
-Artículo 23. Pago de derechos. Salvo en los casos en que se dispense su cancelación por acreditarse documentalmente la consonancia de la actividad con fines públicos, comunales o sociales, los interesados deberán cancelar de forma anticipada a la autorización del evento, en las cajas municipales medio salario base por cada puesto de licor a ser explotado en la actividad. Por ende, en caso de autorizarse la licencia temporal, cuando proceda, se prevendrá por una única vez al solicitante de realizar el pago de los derechos de dicha licencia, como condición para la emisión y entrega de la resolución final correspondiente.
+Artículo 23. Parámetros a considerar para el cobro del impuesto, según la tabla establecida en la reforma del artículo 10 de la Ley Nº 9047.
+La Municipalidad considerará los siguientes parámetros en las siguientes categorías para el cobro del
+impuesto.
+*Bar (B1), la fracción a pagar para los clasificados en la subcategoría 1 es de 1/4 para los sujetos pasivos ubicados en el distrito primero del cantón, y 1/8 para los sujetos pasivos ubicados en los distritos restantes del cantón.
+**Restaurante (C) la fracción a pagar para los sujetos pasivos clasificados en la subcategoría 1 es de 1/4 para los sujetos pasivos ubicados en el distrito primero del cantón, y de 1/8 para los sujetos pasivos ubicados en los distritos restantes del cantón.
+*** “Hospedaje < 15 (E1a)" y "Hospedaje > 15 (E1b)", de cualquier subcategoría, ubicados en distritos distintos al distrito primero del cantón, pagarán 3/4 de la tarifa establecida en la tabla anterior.
+(Así adicionado mediante sesión ordinaria N° 21-2017 del 23 de mayo del 2017)

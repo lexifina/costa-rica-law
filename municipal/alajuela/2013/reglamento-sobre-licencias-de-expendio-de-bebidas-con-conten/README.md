@@ -14,3 +14,4 @@ Reglamento sobre licencias de expendio de bebidas con contenido alcohólico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-04-05 | la propia norma |
+| 2 | 2017-05-23 | Reglamento municipal 21 (2017-05-23) |

@@ -1,1 +1,2 @@
-Artículo 14. Prohibiciones para el otorgamiento de licencias. No se otorgarán licencias en ninguno de los casos comprendidos en el artículo 9 de la Ley.
+Artículo 14. Actividades concurrentes y coincidentes. La realización de actividades comerciales reguladas en el artículo 4 de la ley en forma concurrente o coincidente, requerirán la gestión y otorgamiento de una licencia por cada categoría, siempre y cuando las actividades sean administradas por el mismo titular de las Licencias. En caso que se realicen actividades administradas por un tercero, éste deberá de solicitar una nueva licencia. Cumpliendo con todos los requisitos.
+(Así adicionado mediante sesión ordinaria N° 21-2017 del 23 de mayo del 2017)

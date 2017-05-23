@@ -1,9 +1,7 @@
-Artículo 21. Revocación de Licencia. La licencia será revocada en los siguientes casos:
-a. Por muerte o renuncia expresa del patentado.
-b. Cuando el patentado abandone la actividad y así sea comunicado a la Municipalidad.
-c. Cuando resulte totalmente evidente el abandono de la actividad por más de seis meses sin causa justificada, aún cuando el interesado no lo haya comunicado.
-d. Por la pérdida o cancelación del permiso de funcionamiento del establecimiento, independientemente del motivo que lo origine.
-e. Por cualquiera de las causales establecidas en el artículo 6 de la Ley.
-f. Por el incumplimiento de los requisitos y prohibiciones establecidos en la Ley, previa suspensión conforme lo establece el artículo 10 de la Ley.
-g. Por la venta de bebidas con contenido alcohólico de contrabando, adulteradas o de fabricación clandestina, según artículo 15 de la Ley. Sin perjuicio de las sanciones penales que correspondan.
-h. Por reincidencia en las conductas establecidas en los artículos 14, 16 y 18 de la Ley. Sin perjuicio de las demás responsabilidades civiles y penales del caso.
+Artículo 21. Denegatoria. La licencia podrá denegarse en los siguientes casos:
+a. Cuando la ubicación del establecimiento sea incompatible con el expendio de bebidas alcohólicas, conforme al artículo 9 de la Ley.
+b. Cuando el solicitante se encuentre atrasado en el pago de sus obligaciones con la Municipalidad, de cualquier índole que estas sean.
+c. Cuando la actividad principal autorizada a realizar en el establecimiento sea incompatible con la clase de licencia solicitada.
+d. Cuando la ubicación del establecimiento no sea conforme con las restricciones establecidas por Ley.
+e. Cuando la solicitud esté incompleta o defectuosa y no sea corregida dentro del plazo conferido al efecto.
+(Corrida su numeración mediante sesión ordinaria N° 21-2017 del 23 de mayo del 2017, que lo traspasó del artículo 18 al 19. Posteriormente en esa misma sesión se adicionan los artículo 18 y 19 por lo que se corre nuevamente la numeración del 19 al 21)

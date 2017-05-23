@@ -1,6 +1,7 @@
-Artículo 18. Denegatoria. La licencia podrá denegarse en los siguientes casos:
-a. Cuando la ubicación del establecimiento sea incompatible con el expendio de bebidas alcohólicas, conforme al artículo 9 de la Ley.
-b. Cuando el solicitante se encuentre atrasado en el pago de sus obligaciones con la Municipalidad, de cualquier índole que estas sean.
-c. Cuando la actividad principal autorizada a realizar en el establecimiento sea incompatible con la clase de licencia solicitada.
-d. Cuando la ubicación del establecimiento no sea conforme con las restricciones establecidas por Ley.
-e. Cuando la solicitud esté incompleta o defectuosa y no sea corregida dentro del plazo conferido al efecto.
+Artículo 18. Declaración Jurada para el cálculo de los derechos de licencias de licores.
+Todo licenciatario, deberá presentar cada año a más tardar el 15 de noviembre, la declaración jurada para el cálculo del impuesto de la licencia de expendio de bebidas con contenido alcohólico, el cual se aplicará por un período anual, aplicándose el nuevo valor a partir del segundo trimestre del año. Para ello debe aportar los siguientes documentos:
+1. Formulario de Declaración Jurada del titular de la licencia de licores realizada ante Contador Público Autorizado, en la que se detalle la cantidad de empleados que laboran en el local comercial, el valor de los activos totales netos del último período fiscal y las ventas anuales netas del último período fiscal de la empresa. La firma debe ser idéntica a la consignada en la cédula de identidad, de lo contrario deberá venir autenticada por un abogado. La Municipalidad pondrá a disposición del licenciatario el formulario de Declaración Jurada para el cálculo del impuesto de las licencias de licores.
+2. Copia de la Declaración Jurada del Impuesto sobre la Renta, presentada ante la Dirección General de Tributación. En caso de las personas físicas o jurídicas bajo el Régimen de Tributación Simplificada deben de presentar la copia de las cuatro declaraciones trimestrales del último período fiscal.
+3. En caso de personas jurídicas deben presentar la personería jurídica vigente y copia de la cédula de identidad del representante legal.
+Los licenciatarios que no presenten la declaración anual ante la Municipalidad, se procederá a aplicar de oficio el impuesto según los montos establecidos en la subcategoría 3 de conformidad con la categoría autorizada en la patente comercial (por el artículo 4 de la Ley Nº 9047)
+(Así adicionado mediante sesión ordinaria N° 21-2017 del 23 de mayo del 2017)
