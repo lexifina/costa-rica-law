@@ -1,0 +1,1 @@
+Artículo 44.—Recibido conforme de un bien mueble reparado. Una vez reparado el bien mueble, la Jefatura responsable deberá actualizar la ubicación del bien mueble en el sistema informático disponible para tal efecto y debe comunicarlo de inmediato, por medio correo electrónico, a la Unidad de Proveeduría, para su información.

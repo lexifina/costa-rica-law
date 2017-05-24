@@ -1,0 +1,1 @@
+Artículo 14.—Inscripción o desinscripción de bienes muebles. La Unidad de Proveeduría realizará las gestiones necesarias para inscribir o desinscribir los bienes muebles que por su naturaleza requieran de esos trámites en el Registro Nacional.

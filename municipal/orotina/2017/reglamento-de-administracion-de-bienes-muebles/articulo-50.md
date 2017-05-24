@@ -1,0 +1,1 @@
+Artículo 50. —Material bibliográfico. También se exceptúan de estas disposiciones los libros, folletos, diccionarios, manuales técnicos y demás material bibliográfico específico propiedad municipal, lo que está a cargo del Archivo y es regulado por su propia reglamentación.

@@ -1,0 +1,1 @@
+Artículo 19.—Alta de bienes muebles por compra. La Unidad de Proveeduría dará alta a los bienes muebles que adquiera a través de un procedimiento de contratación administrativa o a través de caja chica.

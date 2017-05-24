@@ -1,0 +1,4 @@
+CAPÍTULO XI
+Reparación de bienes muebles
+Artículo 41.—Reparación de bienes muebles. Cuando un bien mueble requiera reparación, la jefatura responsable deberá evaluar la cuantía de la reparación.
+Si el costo no sobrepasa el monto de adelanto máximo estipulado en el Reglamento de Caja Chica, la contratación de la reparación se podrá realizar según lo establecido en dicho reglamento; caso contrario, la reparación se tramitará conforme a la Ley de Contratación Administrativa y su Reglamento. En lo relativo al equipo de cómputo, además se deberá contar con el visto bueno de la Jefatura de esa área.

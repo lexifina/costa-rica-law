@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. Las disposiciones de este reglamento son de acatamiento obligatorio para todos los funcionarios de la Municipalidad de Orotina, terceros autorizados a hacer uso de los bienes municipales, así como para aquellos que se encuentren comprendidos en los supuestos de este Reglamento.

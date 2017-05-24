@@ -1,0 +1,1 @@
+Artículo 46. —Deber de los funcionarios. Es deber de todo funcionario colaborar con la Unidad de Proveeduría, brindando toda información relacionada con el uso, registro y control de los bienes muebles.

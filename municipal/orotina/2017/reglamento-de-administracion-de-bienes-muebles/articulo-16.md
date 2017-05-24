@@ -1,0 +1,1 @@
+Artículo 16.—Verificación de inventarios. La Unidad de Proveeduría verificará, cuando lo estime necesario, la existencia de los bienes inventariados y corregirá las discrepancias que se presenten con arreglo a lo dispuesto en este reglamento.

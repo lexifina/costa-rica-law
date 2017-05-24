@@ -1,0 +1,1 @@
+Artículo 47.—Reposición de bienes muebles. Si luego de un proceso administrativo instaurado al efecto, se determina que un funcionario es responsable por pérdida, extravío, hurto o robo de un bien mueble que le había sido asignado, este deberá restituirlo o realizar el pago según el valor de reposición del bien, previa resolución de la Alcaldía Municipal que así lo establezca.

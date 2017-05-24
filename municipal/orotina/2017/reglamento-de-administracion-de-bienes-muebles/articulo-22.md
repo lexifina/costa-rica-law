@@ -1,0 +1,1 @@
+Artículo 22.—Alta por reposición de bienes muebles. La Unidad de Proveeduría efectuará un alta a un bien mueble por reposición, cuando esta sea autorizada por la Alcaldía Municipal, sobre un bien que fue extraviado o sustraído a un funcionario, previa investigación. El bien repuesto debe ser de igual calidad al bien extraviado o sustraído al funcionario.

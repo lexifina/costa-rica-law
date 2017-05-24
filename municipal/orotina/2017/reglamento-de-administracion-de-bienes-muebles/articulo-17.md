@@ -1,0 +1,1 @@
+Artículo 17.—Reporte para las área operativa. Las jefaturas de las áreas operativas podrán solicitar la Unidad de Proveeduría, cuando lo consideren oportuno, la emisión de informes sobre los bienes muebles que les han sido asignados.

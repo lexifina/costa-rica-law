@@ -1,0 +1,1 @@
+Artículo 29.—Baja de bienes muebles por donación. La Unidad de Proveeduría dispondrá la baja de los bienes muebles que la Municipalidad de Orotina autorice donar de acuerdo con lo establecido en las leyes que autorizan la donación, en este reglamento y con base en el acta que levantará al momento de concretarla.

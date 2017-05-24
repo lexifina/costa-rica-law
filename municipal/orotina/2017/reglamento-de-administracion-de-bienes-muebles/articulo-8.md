@@ -1,0 +1,1 @@
+Artículo 8º—Utilización de los bienes muebles en general. Los bienes muebles serán utilizados solamente por los funcionarios de la Municipalidad de Orotina y por las personas autorizadas de forma expresa por la Alcaldía.

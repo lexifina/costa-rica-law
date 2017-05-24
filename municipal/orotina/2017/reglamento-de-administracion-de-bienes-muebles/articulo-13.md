@@ -1,0 +1,1 @@
+Artículo 13.—Control de garantías. El Área Financiera Administrativa llevará el control de las diferentes garantías de fábrica, agencia o post-venta otorgadas por los proveedores sobre los bienes. Para la custodia de estas garantías dispondrá de un archivo donde se almacenará los documentos originales debidamente conciliados con el control establecido.
