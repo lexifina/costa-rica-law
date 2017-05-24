@@ -1,0 +1,13 @@
+Artículo 6. Modificación al artículo 20. Agréguese el Adendum IX al artículo 20 del Plan Nacional de Atribución de Frecuencias, Decreto Ejecutivo Nº 35257-MINAET, publicado en La Gaceta Nº 103 del 29 de mayo del 2009, y sus reformas, según se indica a continuación:
+"ADENDUMIX
+SERVICIO MÓVIL AERONÁUTICO POR SATÉLITE
+Para la operación de las estaciones terrenas de aeronave:
+Para la operación de las estaciones terrenas de aeronaves (ETA) que sobrevuelen el espacio aéreo costarricense, deberán acatarse de forma obligatoria los siguientes aspectos técnicos, así como todos aquellos que la SUTEL resuelva:
+i. No deberá existir interconexión de las redes de las ETA con las redes de telecomunicaciones de nuestro país.
+ii. El descenso de las señales para el SMAS se llevará a cabo únicamente desde los satélites de la infraestructura SFS.
+iii. Las emisiones de las ETA operarán con satélites autorizados del servicio fijo por satélite SFS, conforme a los convenios de coordinación satelital que correspondan.
+iv. Se permite la operación de las ETA en frecuencias del espectro costarricense en tanto se acaten los aspectos que se indican en las notas nacionales CR 091A, para descenso de señales satelitales para las ETA (en la banda de 10,7 GHz a 12, 7 GHz), y CR 098A, esta última para el ascenso de señales desde las ETA hacia satélites geoestacionarios del SFS (en la banda de 14,0 GHz a 14,5 GHz).
+v. Para la transmisión de señales desde las ETA en aeronaves hacia satélites del SFS, en redes del servicio móvil aeronáutico por satélite, en la banda de 14,0 GHz a 14,5 GHz deberá cumplirse lo dispuesto por la UIT en la recomendación ITU-R M.1643, de manera que no interfieran a los servicios atribuidos a título primario en territorio costarricense.
+vi. Las transmisiones de las ETA en los sistemas SMAS podrían ser utilizadas durante todas las fases del vuelo: despegue, aterrizaje y durante su permanencia en Tierra.
+vi. Los equipos que operen en bandas de frecuencias de uso libre, tales como los utilizados para los servicios WiFi dentro de las aeronaves, deberán cumplir con el procedimiento de homologación de dispositivos que operan en estas bandas, según la resolución RCS-431-2010 publicada el 01 de octubre de 2010.
+vii. La atribución de frecuencias de las ETA para el SMAS se realizará de acuerdo con la regulación y procedimientos legales vigentes, además deberán cumplir con los pagos de los cánones respectivos. Las bandas de asignación para SMAS son: JO, 7 GHz a 12,7 GHz (Espacio-Tierra) y 14, O GHz a 14, 5 GHz (Tierra- Espacio) a título secundario y de asignación no exclusiva, por lo que no se podrá reclamar protección contra interferencias."
