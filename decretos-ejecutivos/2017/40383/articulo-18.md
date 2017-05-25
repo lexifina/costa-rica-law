@@ -1,0 +1,1 @@
+Artículo 18º- Los funcionarios obligados a rendir la garantía correspondiente y que estén ocupando los cargos a la fecha que rige este Reglamento, dispondrán de 15 días naturales después de la publicación del mismo, para suscribir la póliza de fidelidad y de presentar la respectiva fotocopia confrontada en el Departamento de Gestión Institucional de Recursos Humanos.

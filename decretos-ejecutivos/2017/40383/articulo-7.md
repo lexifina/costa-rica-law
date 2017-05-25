@@ -1,0 +1,1 @@
+Artículo 7° -Ajuste de la Garantía. El caucionante que por algún motivo sea trasladado de un puesto a otro que implique una nueva ubicación en la clasificación por niveles de responsabilidad deberá ajustar la caución conforme a la nueva situación, para lo cual contará con un plazo de veinte días hábiles a partir del momento de su traslado.

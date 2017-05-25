@@ -1,0 +1,9 @@
+Artículo 3º-Definiciones. Para los efectos de este Reglamento se entenderá por:
+a) Administrador de Fondos Públicos: Todos aquellos funcionarios que determinen los objetivos y las políticas del Ministerio, así corno también, los que autoricen o ejecuten programas presupuestarios y los que mediante el ejercido de sus funciones administrativas les haya sido encomendada la tarea de ejercer el gobierno, la administración, la recaudación, el cuidado o la custodia de fondos y valores públicos.
+b) Custodia: Es la función administrativa de cuido, guarda o tenencia sobre aquellos fondos, recursos, valores, bienes y derechos propiedad del Ministerio de Ciencia, Tecnología y Telecomunicaciones o a cargo de éste.
+c) Fondos Públicos: Son todos aquellos recursos, valores, bienes y derechos propiedad del Ministerio de Ciencia, Tecnología y Telecomunicaciones o a cargo de este, de conformidad con el artículo 9º de la Ley Nº 7428 "Ley Orgánica de la Contraloría General de la República", publicada en el Diario Oficial La Gaceta Nº 210 del 04 de noviembre de 1994.
+d) Caución o Garantía: Garantía que deben rendir con cargo a su propio peculio los funcionarios encargados de recaudar, custodiar o administrar fondos y valores públicos a favor de la Hacienda Pública. Artículo 13, Ley 8131.
+e) Ministro(a): Máxima autoridad jerárquica del MICITT.
+f) Propio peculio: Patrimonio perteneciente al funcionario.
+g) Póliza o Seguro de Fidelidad: Contrato de seguro ofrecido por entidades autorizadas a brindar ese servicio, por el cual los funcionarios rinden garantía en beneficio del Estado con tal de afianzar los daños y perjuicios causados por la comisión de actos culposos y/o dolosos por parte de estos en el desempeño de su labor.
+h) Recaudación: Ejecución, percepción o autorización de movimientos o traslados de fondos o valores públicos propiedad o a cargo del Ministerio de Ciencia, Tecnología y Telecomunicaciones, con independencia del hecho generador u origen.

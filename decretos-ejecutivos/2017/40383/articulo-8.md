@@ -1,0 +1,1 @@
+Artículo 8°-Funcionario con más de un cargo. El ocupante de un puesto que le corresponda asumir otras funciones donde se recaude, administre o custodie fondos públicos, deberá rendir una única caución y por el monto de mayor valor.

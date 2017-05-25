@@ -1,0 +1,1 @@
+Artículo 16º-Responsabilidad Solidaria. El responsable de la custodia y control de las garantías o cauciones que por culpa o dolo no informe cualquier anomalía será solidariamente responsable del perjuicio ocasionado.

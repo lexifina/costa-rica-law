@@ -1,0 +1,1 @@
+Artículo 10º-Funcionarios ad-honorem. Los funcionarios que ejerzan cargos públicos en condición ad-honorem, y que realicen funciones de recaudación, custodia o administración de fondos públicos deberán rendir garantía o caución dependiendo del nivel de responsabilidad que le corresponda, salvo disposición expresa en contrario.

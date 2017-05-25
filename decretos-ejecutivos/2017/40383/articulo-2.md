@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. El presente Reglamento regula las disposiciones y procedimientos aplicables a las garantías o cauciones que deberán rendir los funcionarios del Ministerio de Ciencia, Tecnología y Telecomunicaciones.
