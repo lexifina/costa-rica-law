@@ -1,0 +1,7 @@
+MUNICIPALIDAD DE UPALA
+Le transcribo el artículo 7) que corresponde al capítulo III, según Acta N° 10 - 2017, de sesión ordinaria celebrada por el Concejo Municipal el día viernes diecisiete de febrero de dos mil diecisiete, el cual contiene lo siguiente:
+acuerdo siete aprobado en definitiva y en firme:
+El Concejo Municipal con los votos positivos de los siete regidores (as) presentes acuerda en definitiva y en firme dar aprobación al criterio de Comisión Permanente de Asuntos Jurídicos Asunto: “Modificar el Reglamento Interno de Gastos de Viaje y de Transporte para Síndicos y Regidores Propietarios y Suplentes de la Municipalidad de Upala, Modifíquese El Artículo 5: Punto de Lejanía “De acuerdo al segundo párrafo del artículo 30 del código municipal, que establece que los gastos correspondientes a viáticos y transporte para regidores y síndicos propietarios y suplentes, cuando residan lejos de la sede municipal, se pagarán con base en la tabla que fija la Contraloría General de la República. Por lo tanto este Concejo Municipal define como punto de lejanía cinco kilómetros de la sede municipal”
+Indicando - se modifica: La distancia (lejanía) se aplique solo para transportes y no para el pago de viáticos (solo para alimentación).
+Por lo que, se le solicita a la Administración Municipal se publique, mediante Diario Oficial La Gaceta, la modificación al artículo 5, del Reglamento, indicando: La distancia (lejanía) se aplique solo para transportes y no para el pago de viáticos (alimentación).
+Rige a partir de su publicación.
