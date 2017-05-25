@@ -1,3 +1,2 @@
-Artículo 10.—De la Sucesión de quien ocupa la Vicepresidencia: De ocurrir una vacante permanente en la Vice-presidencia, la Corte fijará una sesión para que las personas interesadas expongan las razones de postulación.
+Artículo 10.—De la sucesión de quien ocupa la Vicepresidencia. De ocurrir una vacante permanente en la Vice-presidencia, la Corte fijará una sesión para que las personas interesadas expongan las razones de su postulación. Debe contarse con un plazo razonable que no podrá ser inferior a 8 días para organizar la propuesta de género. De quedar una persona del género masculino en la Presidencia, se deberá garantizar la paridad de género en la Vicepresidencia y viceversa.
 En esa sesión, una vez concluida la exposición de las personas candidatas, se procederá de inmediato a la elección.
-San José, 8 de abril de 2014.

@@ -13,3 +13,4 @@ Reglas para la sucesión de una vacante permanente en la Presidencia o Vicepresi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-08 | la propia norma |
+| 2 | 2017-05-25 | Circular 88 (2017-05-25) |
