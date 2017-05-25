@@ -1,0 +1,11 @@
+Artículo 4 bis. La Comisión Institucional para la Igualdad y la no Discriminación hacia la Población LGBTI tendrá dentro de sus funciones las siguientes:
+1. Brindar asistencia técnica a las diferentes dependencias de la institución sobre las estrategias para la implementación de políticas inclusivas para la población LGBTI.
+2. Impulsar y coordinar el establecimiento de programas y servicios que aseguren un trato respetuoso a las necesidades y especificidades de la población de acuerdo con su orientación sexual e identidad de género.
+3. Asegurar la accesibilidad a información sobre el mecanismo de la institución para atender una denuncia por discriminación a la orientación sexual e identidad de género.
+4. Asesorar a las instancias competentes de la institución, en la atención de denuncias por cualquier tipo de discriminación a la población LGBTI, tanto en la gestión interna como en los servicios que brinde la institución respectiva.
+5. Coordinar con la instancia encargada de los procesos de capacitación para que se incluyan las temáticas en un marco de derechos humanos, la orientación sexual e identidad de género.
+6. Velar para que el lenguaje utilizado en todos instrumentos normativos y en toda comunicación interna y externa de la institución sea inclusiva bajo el marco de derechos humanos.
+7. Participar y apoyar en la elaboración de las políticas institucionales sea incorporada un efecto de respeto hacia la identidad de género y orientación sexual de las personas usuarias.
+8. Recopilar la información estadística sobre la cantidad de denuncias y procedimientos administrativos disciplinarios, tanto abiertos como finalizados, por discriminación hacia la población LGBTI. Dicha información deberá ser remitida vía electrónica a la Comisión Institucional de Casa Presidencial durante la primera semana de mayo de cada año. La Comisión Institucional de Casa Presidencial centralizará los datos globales de todas las instituciones, a fin de que dichos datos sean de acceso público, así como para mejorar políticas públicas relativas al tema.
+9. Apoyar la ejecución y el cumplimiento de las disposiciones establecidas en el decreto Nº 38999 y la directriz N° 025-P.
+(Así adicionado por el artículo 4° del decreto ejecutivo N° 40422 del 25 de mayo de 2017)

@@ -14,3 +14,4 @@ Política del Poder Ejecutivo para erradicar de sus instituciones la discriminac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-05-15 | la propia norma |
+| 2 | 2017-05-25 | Decreto Ejecutivo 40422 (2017-05-25) |

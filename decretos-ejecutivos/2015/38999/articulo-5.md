@@ -3,3 +3,9 @@ Artículo 5º—Dentro del plazo de seis meses a partir de la entrada en vigenci
 - El otorgamiento de licencias en caso de enfermedad grave o fallecimiento del compañero/a.
 - El establecimiento de un régimen sancionatorio frente a acciones discriminatorias por razones de diversidad sexual.
 - El reconocimiento de las identidades de género de acuerdo a lo que solicite la persona funcionaria o usuaria respectiva.
+Para el cumplimiento de lo establecido en el presente artículo, cada institución podrá solicitar a la persona funcionaria una declaración jurada a efectos de consignar la información necesaria para tales fines. La declaración jurada podrá realizarse a través las distintas maneras permitidas por el ordenamiento, ya sea protocolizada, por medio documento extra protocolar o mediante una manifestación escrita de la persona solicitante ante la autoridad de Recursos Humanos de la Institución, así como por cualquier otra vía que sea permitida por el ordenamiento jurídico.
+(Así adicionado el párrafo anterior por el artículo 5° del decreto ejecutivo N° 40422 del 25 de mayo de 2017)
+Toda la información que sea brindada en dicha declaración jurada, por contener datos sensibles, estará resguardada bajo el deber de confidencialidad señalado en el artículo 3º de la Ley Protección de la Persona frente al tratamiento de sus datos personales, Ley Nº 8968.
+(Así adicionado el párrafo anterior por el artículo 5° del decreto ejecutivo N° 40422 del 25 de mayo de 2017)
+La divulgación de estos datos sensibles podrá acarrear responsabilidad para aquellas personas funcionarias públicas que resguarden dicha información por la infracción a la Ley Nº 8968, sea su tratamiento automatizado o manual. Igualmente, cuando corresponda, podrá darse traslado al Ministerio Público cuando puedan configurar delito.
+(Así adicionado el párrafo anterior por el artículo 5° del decreto ejecutivo N° 40422 del 25 de mayo de 2017)

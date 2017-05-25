@@ -1,0 +1,2 @@
+Artículo 9°. El procedimiento interno administrativo se llevará a cabo conforme los principios generales del debido proceso, la proporcionalidad y la libertad probatoria, así como el de confidencialidad. El principio de confidencialidad implica el deber de las instancias, los representantes, los testigos y las partes que intervienen en la investigación y resolución, de no dar a conocer la identidad de las personas denunciantes ni la de la persona denunciada.
+(Así adicionado por el artículo 6° del decreto ejecutivo N° 40422 del 25 de mayo de 2017)
