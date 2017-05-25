@@ -1,0 +1,1 @@
+Artículo 2°—De las Bienales: Las Bienales a que se refiere este reglamento, se realizarán de manera separada y alterna en el mes de octubre de cada ario, iniciando a partir de la vigencia de este Reglamento con la Bienal de Pintura.
