@@ -24,5 +24,10 @@ d) El (La) Director (a) de Crédito Público
 e) El (La) Director (a) General de Administración de Bienes y Contratación Administrativa.
 f) El (La) Tesorero (a) Nacional.
 g) El (La) Director (a) de la Secretaría Técnica de la Autoridad Presupuestaria.
-h) El (La) Director (a) General de Informática del Ministerio de Hacienda.
+h) El (La) Director (a) de Tecnologías de Información y Comunicación.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40494 del 25 de mayo del 2017)
+Los (Las) Subdirectores (as) de las Direcciones que integran la CCAF podrán participar en las convocatorias a sesiones tanto ordinarias como extraordinarias, cuando el (la) Tesorero (a) Nacional, el (la) Contador (a) Nacional y los (las) Directores (as), se encuentren ausentes por motivo de vacaciones, incapacidad, en funciones oficiales dentro o fuera del país, u otra situación de ausencia temporal que justifique su ausencia en forma calificada, previa comunicación al Viceministro de Egresos.
+(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 40494 del 25 de mayo del 2017)
+A dichas sesiones de trabajo podrán asistir los funcionarios en calidad de Subdirectores (as) con las mismas facultades de voz y voto que los (las) Directores (as) que sustituyen.
+(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 40494 del 25 de mayo del 2017)
 Corresponderá al coordinador convocar al comité cuando resulte necesario a los efectos del debido cumplimiento de sus funciones.
