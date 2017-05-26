@@ -1,3 +1,4 @@
-Artículo 24.- Exclusión del Registro. La exclusión del Registro de Proveedores, conforme con lo señalado en el artículo 124 del RLCA, deberá de ser precedida de una audiencia por cinco días hábiles otorgada al interesado o interesada para que se manifieste sobre el particular. Vencido el plazo, se resolverá conforme en derecho corresponda. Contra lo resuelto se aplicará el régimen recursivo ordinario previsto en la Ley General de Administración Pública.
-El recurso deberá indicar los alegatos por los cuales el interesado no está conforme con su exclusión del registro de proveedores, aportándose la prueba en que apoya su argumentación.
-Corresponde a la Proveeduría dictar la resolución por la cual se excluya del Registro de Proveedores.
+CAPÍTULOV
+Disposiciones finales
+Artículo 24. - Derogatoria. El presente reglamento deroga el Reglamento Interno de Proveeduría vigente y cualquier reforma.
+(Corrida la numeración en sesión N° 032 y publicado en La Gaceta N° 99 del 26 de mayo de 2017, que lo traspaso del antiguo artículo 25 al 24. Lo anterior debido a que en la publicación original del presente reglamento no se publicó el numeral 20.)

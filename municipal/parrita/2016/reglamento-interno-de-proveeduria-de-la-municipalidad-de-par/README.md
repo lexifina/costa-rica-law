@@ -15,3 +15,4 @@ Reglamento Interno de Proveeduría de la Municipalidad de Parrita
 | --- | --- | --- |
 | 1 | 2016-06-02 | la propia norma |
 | 2 | 2017-03-10 | Reglamento municipal 14 (2017-03-10) |
+| 3 | 2017-05-26 | Reglamento municipal 32 (2017-05-26) |

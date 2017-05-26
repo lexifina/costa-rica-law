@@ -1,9 +1,4 @@
-Artículo 23. Rotación. La Proveeduría deberá de garantizar una rotación de los proveedores inscritos en el Registro de Proveedores, en las invitaciones a los procedimientos de contratación de licitación abreviada y las contrataciones directas por escasa cuantía no referidas a Caja Chica o a otras excepciones.
-La rotación se realizará conforme con las siguientes regulaciones:
-1. Los proveedores se invitarán en estricto orden cronológico, empezando por los proveedores más antiguos según la fecha de inscripción en el registro.
-2. En las contrataciones directas por escasa cuantía se invitarán obligatoriamente tres proveedores pudiendo incorporarse adicionalmente dos más tomando como referencia su
-participación en procedimientos anteriormente tramitados para la adquisición de bienes y
-servicios similares.
-3. En las licitaciones abreviadas se invitarán obligatoriamente cinco proveedores, pudiendo incorporarse adicionalmente dos más tomando como referencia su participación en procedimientos de contratación anteriormente tramitados para la adquisición de bienes y servicios similares.
-4. No se permite la invitación a proveedores que tengan sanciones de inhabilitación vigentes.
-5. Será potestativo para la Administración decidir procedimientos donde se inviten a todos los proveedores registrados para un objeto determinado, momento después del cual se reiniciará el rol de invitaciones.
+Artículo 23. Exclusión del Registro. La exclusión del Registro de Proveedores, conforme con lo señalado en el artículo 124 del RLCA, deberá de ser precedida de una audiencia por cinco días hábiles otorgada al interesado o interesada para que se manifieste sobre el particular. Vencido el plazo, se resolverá conforme en derecho corresponda. Contra lo resuelto se aplicará el régimen recursivo ordinario previsto en la Ley General de Administración Pública.
+El recurso deberá indicar los alegatos por los cuales el interesado no está conforme con su exclusión del registro de proveedores, aportándose la prueba en que apoya su argumentación.
+Corresponde a la Proveeduría dictar la resolución por la cual se excluya del Registro de Proveedores.
+(Corrida la numeración en sesión N° 032 y publicado en La Gaceta N° 99 del 26 de mayo de 2017, que lo traspaso del antiguo artículo 24 al 23. Lo anterior debido a que en la publicación original del presente reglamento no se publicó el numeral 20.)

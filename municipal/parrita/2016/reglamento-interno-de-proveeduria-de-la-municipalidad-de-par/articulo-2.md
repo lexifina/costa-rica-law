@@ -17,6 +17,7 @@ Acto final: acto administrativo de adjudicación, re-adjudicación, declaración
 Contratación directa por excepción: contrataciones que por su propia naturaleza se encuentran excluidas de los procedimientos ordinarios de concurso.
 Contrataciones directas autorizadas: contrataciones que por estar autorizadas por la Contraloría General de la República, se excluyen de los procedimientos ordinarios de concurso.
 Contratista: persona física o jurídica que una vez presentada su oferta es seleccionada como adjudicataria para proveer un determinado bien o servicio.
-Decisión Inicial: acto administrativo que marca el inicio del procedimiento para la adquisición de un bien o servicio en el cual se definen los requisitos y especificaciones técnicas del bien o servicio requerido, emitido por el Jerarca de cada Unidad Solicitante o por el titular subordinado.
+Decisión Inicial: Acto administrativo que marca el inicio del procedimiento para la adquisición de un bien o servicio en el cual se definen los requisitos y especificaciones técnicas del bien o servicio requerido, generado por el Jerarca de cada Unidad Solicitante y autorizado por la Alcaldía Municipal.
+(Así reformada la definición anterior en sesión N° 032 y publicado en La Gaceta N° 99 del 26 de mayo de 2017)
 Expediente administrativo: legajo físico que deberá contener todas las actuaciones, internas y externas en el orden cronológico correspondiente a su presentación y relativas a un trámite de contratación administrativa específico.
 Registro de Proveedores: registro en el cual figuran las personas físicas o jurídicas que han cumplido los requisitos dispuestos para ser tomados en cuenta en los procesos de contratación administrativa que promueva La Municipalidad.

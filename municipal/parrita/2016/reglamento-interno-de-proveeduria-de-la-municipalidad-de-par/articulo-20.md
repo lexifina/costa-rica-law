@@ -1,1 +1,2 @@
-Artículo 20.- (Nota de Sinalevi: En la publicación de este reglamento no se publica este artículo. No obstante el sistema exige una numeración consecutiva por lo que se ha creado el mismo pero sin texto)
+Artículo 20.- Vigencia de la inscripción. La condición de proveedor activo tiene una vigencia de veinticuatro meses, conforme con lo que señala el artículo 122 del RLCA.
+(Corrida la numeración en sesión N° 032 y publicado en La Gaceta N° 99 del 26 de mayo de 2017, que lo traspaso del antiguo artículo 21 al 20. Lo anterior debido a que en la publicación original del presente reglamento no se publicó el numeral 20.)

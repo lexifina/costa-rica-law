@@ -1,3 +1,1 @@
-Artículo 26. - Vigencia. El presente Reglamento rige a partir de su publicación en el Diario Oficial.
-Sandra Hernández Chinchilla , Secretaría Municipal
-ES CONFORME: Se extiende la presente en la Ciudad de Parrita, a los cuatro días del mes de mayo del año dos mil dieciséis.
+Artículo 26. - (Nota de Sinalevi: El texto del presente numeral se puede consultar en el artículo 25.. Lo anterior debido a que en la publicación original del presente reglamento no se publicó el numeral 20)

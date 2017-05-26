@@ -1,2 +1,3 @@
-Artículo 6.- De la Unidad Solicitante. Corresponde a la Unidad Solicitante, por intermedio del Jerarca de la Unidad, generar y presentar la decisión inicial y demás documentos de orden técnico que la Proveeduría requiera para el trámite de contratación administrativa.
+Artículo 6.—De la Unidad Solicitante. Corresponde a la Unidad Solicitante, por intermedio del Jerarca de la Unidad, generar y presentar la decisión inicial y demás documentos de orden técnico ante la Alcaldía para su aprobación y, posterior a su aprobación, ante la Proveeduría para realizar el procedimiento de contratación administrativa que corresponda.
+(Así reformado el párrafo anterior en sesión N° 032 y publicado en La Gaceta N° 99 del 26 de mayo de 2017)
 En todo caso, la Unidad Solicitante tendrá los mismos deberes y obligaciones que respecto de aquélla contempla el artículo 5 de este Reglamento.
