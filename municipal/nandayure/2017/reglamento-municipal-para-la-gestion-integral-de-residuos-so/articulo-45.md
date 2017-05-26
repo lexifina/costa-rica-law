@@ -1,0 +1,1 @@
+Artículo 45. Transitorio Número 3. La Municipalidad dispondrá de un año a partir de la Oficialización y entrada en vigencia del presente Reglamento para efectuar cambios al respecto sobre las tasas y la metodología de Cálculo respectiva para el cobro por el servicio estipulado en el capítulo VII.

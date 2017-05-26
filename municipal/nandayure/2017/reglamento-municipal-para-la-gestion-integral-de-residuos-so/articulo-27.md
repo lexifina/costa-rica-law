@@ -1,0 +1,1 @@
+Artículo 27. Fijación. La Municipalidad fijará las tasas por el servicio municipal de gestión de residuos sólidos que incluya e integre todos los costos y gastos asociados al servicio municipal de gestión y manejo de residuos sólidos. Dicha tasa puede ser adaptada semestralmente conforme a la inflación de país y a las necesidades del servicio.

@@ -1,0 +1,1 @@
+Artículo 46. El presente reglamento regirá la Gestión Integral de Residuos Sólidos en el Cantón Nandayure a partir de su publicación en el Periódico Oficial La Gaceta, sustituyendo y derogando cualquier otra norma contenida en otro reglamento que lo contradiga.

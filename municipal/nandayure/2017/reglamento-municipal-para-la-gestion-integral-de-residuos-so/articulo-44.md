@@ -1,0 +1,1 @@
+Artículo 44. Transitorio Número 2. Para el punto número 8 del artículo 8 del presente reglamento, la Municipalidad dará un periodo de 1 año a partir de la oficialización del presente Reglamento y su entrada en vigencia para que los usuarios se ajusten a las medidas dictadas.

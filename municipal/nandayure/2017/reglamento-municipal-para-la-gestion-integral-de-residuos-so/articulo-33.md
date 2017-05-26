@@ -1,0 +1,1 @@
+Artículo 33 Tarifa residencial (R). Se toma como tarifa residencial, la tasa a aplicar a toda unidad habitacional en donde no exista o se posea una patente, y en donde el promedio estimado en generación de basura sea inferior a kilogramos por semana. En la tarifa doméstica el factor de generación es de 1. Para la tarifa residencial se toma como factor de ponderación 1.
