@@ -1,0 +1,1 @@
+Artículo 10—Custodia. El Departamento de Recursos Humanos, será el órgano administrativo encargado de ejecutar las labores de custodia de las garantías que rindan los funcionarios o funcionarias de la Municipalidad de Turrubares, obligados para los fines de este Reglamento.

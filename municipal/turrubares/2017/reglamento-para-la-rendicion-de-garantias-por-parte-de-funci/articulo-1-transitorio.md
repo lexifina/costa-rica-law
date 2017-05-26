@@ -1,0 +1,2 @@
+Transitorio Uno—Los funcionarios o funcionarias obligados a rendir la garantía correspondiente y que estén ocupando los cargos a la fecha de vigencia de este Reglamento, tendrán cinco meses calendario después de publicado el mismo, para suscribir o modificar la póliza de fidelidad, que suscriban, de conformidad con los estratos aquí indicados y para presentar la respectiva documentación original ante la Unidad de Recursos Humanos, o la Alcaldía Municipal en su defecto.
+Rige a partir de su publicación en La Gaceta.
