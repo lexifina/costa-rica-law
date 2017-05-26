@@ -1,0 +1,2 @@
+5 TRANSITORIO
+No aplica.

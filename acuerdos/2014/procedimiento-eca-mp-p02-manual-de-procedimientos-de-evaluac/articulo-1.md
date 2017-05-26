@@ -10,13 +10,13 @@ ECA-MP-P02 Requisitos para la acreditación | N.A | 01 | A partir de su publicac
 Todos los documentos descritos se encuentran a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad y en las oficinas centrales del ECA ubicadas en Rohrmoser 150 metros al este del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8 a las 16 horas.
 San José, 30 de junio del 2014.
 (Nota de Sinalevi: El presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditación, y se transcribe a continuación:)
-(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 3 del 4 de enero del 2017, donde se actualiza la versión 03 existente y se publica la versión 04, por lo que se reproduce a continuación:)
+(Nota de Sinalevi: EL presente procedimiento fue reformado y publicado su texto de forma íntegra mediante publicación en La Gaceta N° 127 del 5 de julio del 2017, donde se actualiza la versión 04 existente y se publica la 05)
 [imagen]
 TABLA DE CONTENIDO
 1 DOCUMENTOS APLICABLES POR TIPO DE OEC ................................................................. 1
 2 REQUISITOS GENERALES PARA LA ACREDITACIÓN DE CUALQUIER TIPO DE OEC ....... 1
 3 ANEXO .................................................................................................................................... 5
-4 IDENTIFICACIÓN DE CAMBIOS .............................................................................................. 7
+4 IDENTIFICACIÓN DE CAMBIOS .............................................................................................. 8
 5 TRANSITORIO .......................................................................................................................... 8
 1 DOCUMENTOS APLICABLES POR TIPO DE OEC
 1.1 Es requisito para la acreditación el cumplimiento de este documento y lo establecido en los documentos del anexo 1.
