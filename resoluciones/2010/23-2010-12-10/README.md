@@ -15,3 +15,4 @@ Comunica emisión de resoluciones de la Dirección General del Servicio Civil:(D
 | --- | --- | --- |
 | 1 | 2011-01-06 | la propia norma |
 | 2 | 2015-04-15 | Resolución 6 (2015-04-15) |
+| 3 | 2017-05-26 | Resolución 6 (2017-05-26) |
