@@ -1,0 +1,3 @@
+CAPÍTULO II
+DE LOS VIÁTICOS EXCEPCIONALES
+Artículo 4º- Autorización para el pago de viáticos excepcionales. De acuerdo a lo¿ establecido en los artículos 16 y 24 del Reglamento N° R-DC-111-2011 se autoriza a pagar viáticos por excepción territorial, cuando, a partir de un perímetro de cien metros de distancia de la sede central o regional de trabajo o del domicilio del funcionario, este requiera realizar funciones propias de su cargo, dentro del Área Metropolitana de San José o en la cercanía de las sedes regionales, siempre que existan situaciones razonablemente justificadas y autorizadas por el Director del programa presupuestario correspondiente.
