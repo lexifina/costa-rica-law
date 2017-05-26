@@ -1,7 +1,8 @@
 CAPÍTULO III
 De las sesiones, del quórum y de la asistencia
 Artículo 6º—
-a- En su primera sesión ordinaria de cada período anual, la Junta Directiva determinará el día y la hora de sus sesiones ordinarias.
+a- En su primera sesión ordinaria de cada periodo anual, la Junta Directiva determinará el día y la hora de sus sesiones ordinarias, lo cual puede ser modificado cuando dicha Junta estime pertinente.
+(Así reformado el inciso anterior mediante sesión N° 014 del 26 de mayo del 2017)
 b- Para reunirse en sesión ordinaria no hará falta convocatoria especial. Las sesiones extraordinarias se celebrarán cuando sean convocadas por el Presidente de la Junta Directiva o el Director Ejecutivo, especificando el objeto de la sesión y la hora en que ésta debe verificarse.
 También el Presidente deberá convocar a sesión extraordinaria, cuando así lo soliciten por lo menos tres de sus miembros.
 c- Para reunirse en sesión extraordinaria será siempre necesaria una convocatoria por escrito con una antelación mínima de veinticuatro horas, acompañando copia del orden del día. En caso de urgencia, no se exigirá la antelación mínima ni el acompañamiento de la copia indicada.

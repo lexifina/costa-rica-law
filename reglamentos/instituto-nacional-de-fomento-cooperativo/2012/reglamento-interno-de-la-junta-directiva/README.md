@@ -14,3 +14,4 @@ Reglamento Interno de la Junta Directiva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-06-04 | la propia norma |
+| 2 | 2017-05-26 | Reglamento 14 (2017-05-26) |
