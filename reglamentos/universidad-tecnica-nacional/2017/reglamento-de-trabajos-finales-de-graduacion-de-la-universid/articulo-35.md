@@ -1,0 +1,3 @@
+Artículo 35.-Correcciones al TFG.-
+En caso que el Tribunal Evaluador recomiende que se incorporen correcciones al Trabajo Final de Graduación, quien preside el Tribunal Evaluador se lo hará saber a los estudiantes para que las realicen y entreguen la versión final en un plazo de quince (15) días hábiles.
+De conformidad con lo dispuesto en este Reglamento, corresponde al profesor-tutor del Trabajo Final de Graduación verificar que las observaciones realizadas por el Tribunal Evaluador sean incorporadas al documento y hacerlo constar, por escrito, a la Dirección de Carrera para lo que corresponda.

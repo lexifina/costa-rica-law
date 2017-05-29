@@ -1,0 +1,4 @@
+Artículo 19.-Requisitos y formato.-
+El anteproyecto elaborado en el curso de Investigación Dirigida deberá guiarse por los lineamientos y formato establecidos por este Reglamento y deberá contener lo que se especifica en el Anexo I. El anteproyecto deberá ser avalado por el docente del curso de Investigación Dirigida y el profesor-tutor, y presentado por escrito ante el Director de Carrera, quien lo elevará a la Comisión de Trabajos Finales de Graduación para su aprobación. Para ello, el estudiante deberá además presentar:
+a) Una solicitud dirigida a la Dirección de Carrera en la que solicite la aprobación del anteproyecto y la modalidad de Trabajo Final de Graduación. El anteproyecto del Trabajo Final de Graduación debe cumplir con la estructura establecida en este reglamento y el Anexo I, según su modalidad.
+b) Dos cartas, una del profesor-tutor del TFG y otra del profesor del curso de Investigación Dirigida, avalando el anteproyecto de graduación.

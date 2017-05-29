@@ -1,0 +1,2 @@
+Artículo 34.-Acta de defensa de TFG.-
+Finalizada la deliberación, quien preside el Tribunal Evaluador, registrará en el acta el resultado (Aprobado o Reprobado), la calificación, la mención de honor (si corresponde) y las observaciones si las hubiere. Posteriormente, se procede a dar lectura del acta haciendo la declaratoria del grado académico obtenido por los estudiantes y el campo de su especialidad. En el mismo acto, todos los miembros del Tribunal Evaluador y los graduandos deberán firmar el acta.

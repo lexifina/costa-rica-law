@@ -1,0 +1,2 @@
+Artículo 14.-Curso Investigación Dirigida.-
+Para la elaboración del TFG, los estudiantes deberán matricular el curso de Investigación Dirigida. En este curso, con el acompañamiento del docente, el estudiante deberá definir el tema de investigación y la modalidad de TFG, así como elaborar el anteproyecto. Le corresponderá al docente del curso consignar en el sistema la condición de Aprobado o Reprobado con base en el dictamen de la CTFG. En los casos en que el estudiante repruebe el curso, deberá matricularlo y cursarlo hasta su aprobación.

@@ -1,0 +1,2 @@
+Artículo 27.-Asignación de defensa.-
+Corresponde a la Dirección de Carrera la asignación de la fecha, lugar y hora donde se llevará a cabo la defensa o la exposición oral y pública de la tesis, del seminario o proyecto de graduación, y para ello dispone de diez (10) días hábiles a partir de la solicitud de los estudiantes. La Dirección de Carrera deberá notificar por escrito a todos los actores en esta etapa del proceso.

@@ -1,0 +1,2 @@
+Artículo 29.-Del Tribunal Evaluador en la defensa.-
+La Dirección de Carrera presidirá el Tribunal Evaluador y en los casos que el Tribunal esté integrado por varias Direcciones de Carrera, éstas deberán decidir cuál de ellas lo preside, siguiendo criterios de experticia y afinidad con el tema central del TFG. El presidente del Tribunal Evaluador se encargará además de conducir el acto de defensa o exposición oral y pública. Las decisiones que tome el Tribunal Evaluador se alcanzarán por mayoría simple. En casos de empate, quien preside el Tribunal goza del voto de calidad.

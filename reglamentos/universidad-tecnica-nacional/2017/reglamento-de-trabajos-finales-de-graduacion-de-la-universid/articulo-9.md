@@ -1,0 +1,8 @@
+Artículo 9.-De la Comisión de Trabajos Finales de Graduación.-
+Cada carrera contará con su respectiva Comisión de Trabajos Finales de Graduación, que será nombrada anualmente por el CAC y sus miembros podrán ser reelectos por un máximo de dos años consecutivos posterior a su elección. No obstante, cuando se encuentre imposibilidad técnica debidamente justificada para la conformación de la Comisión de TFG, la reelección podrá prorrogarse por períodos mayores mientras sea necesario. Estará integrada por tres profesores que se encuentren trabajando en la Institución, cuenten con un grado académico mayor o igual a licenciatura y se ajusten al perfil de las líneas de investigación propuestas por los CAC y avaladas por la Vicerrectoría de Docencia. Le corresponderá a esta Comisión:
+a) Aprobar el profesor-tutor y los lectores sugeridos por los estudiantes o la Dirección de Carrera, para la asesoría y acompañamiento durante todas las etapas del proceso de investigación.
+b) Aprobar, aprobar con observaciones o rechazar el anteproyecto de investigación presentado por los estudiantes en un plazo no mayor a diez días hábiles. En caso de rechazo fundamentado, no se admitirá recurso alguno.
+c) Velar por el fiel cumplimiento de las normas establecidas en este reglamento y las normas éticas de la UTN y el país.
+d) Valorar y aprobar las solicitudes de condición de excepción en los plazos y en otros elementos vinculados a los Trabajos Finales de Graduación.
+e) Elaborar la Guía de Procedimientos para TFG de la carrera en conjunto con la Coordinación General de Carrera o el Consejo Asesor de Carrera, según corresponda, y de conformidad con las líneas de investigación definidas.
+f) Avalar los atestados de los lectores externos.
