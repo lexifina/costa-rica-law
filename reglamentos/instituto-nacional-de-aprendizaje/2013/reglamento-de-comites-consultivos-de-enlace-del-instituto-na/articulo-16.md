@@ -1,1 +1,0 @@
-Artículo 16.—Firmeza. Las actas adquieren firmeza cuando sean adoptados por la mayoría calificada de sus miembros presentes. De lo contrario las actas se aprobaran en la siguiente sesión y hasta tanto no se apruebe el acta los acuerdos carecerán de firmeza.

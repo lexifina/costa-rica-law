@@ -1,1 +1,0 @@
-Artículo 19.—Del seguimiento. Las jefaturas de los Núcleos y Unidades Regionales deberán remitir formalmente a la Gestión correspondiente un Informe Trimestral sobre los CCE de Enlace, la cual a su vez procesa y consolida la información para trasladarla a la Subgerencia Técnica la cual será responsable de mantener debidamente informada a la Presidencia Ejecutiva.

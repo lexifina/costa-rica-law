@@ -1,1 +1,0 @@
-Artículo 21.—Sustitución de integrantes. La sustitución de integrantes de cualquier Comité Consultivo de Enlace por renuncia, remoción justificada, muerte o cualquier otra causa, deberá hacerse por el resto del período del que se nombró originalmente y mediante comunicación escrita dirigida al Jefe de Núcleo o Unidad Regional, según corresponda.
