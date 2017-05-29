@@ -4,10 +4,9 @@ Asignación Temporal de Bienes: asignación de bienes a una persona funcionaria 
 Almacenes: Lugar en el cual se custodian y desde donde se distribuyen los equipos y materiales necesarios para el desarrollo de los objetivos institucionales. Comprende el Almacén Central y los Almacenes Regionales.
 Centro de Formación Profesional: Centros responsables de la ejecución de los SCFP tales como, Centros de Formación Profesional, Centros Nacionales Especializados, Centros Regionales Polivalentes, Centros de Formación Plurisectoriales y Centros de Desarrollo Tecnológico.
 Equipo y materiales: Se utilizarán las definiciones establecidas por el Clasificador por Objeto del Gasto del Sector Público del Ministerio de Hacienda vigente.
-Expediente Administrativo: Conjunto de documentos que conforman el trámite de exclusión por robo o hurto de bienes a un funcionario, el cual debe estar conformado como mínimo por la denuncia o declaración jurada, informe de investigación cuando proceda, oficio de solicitud de reposición de los bienes, información de placa, descripción, valor inicial y valor en libros de los bienes sustraídos, trámite de exclusión ante el SIBI y acuerdos tomados por la Comisión de Bienes respectiva.
+Expediente Administrativo: Conjunto de documentos que conforman el trámite de inventarios el cual debe estar conformado como mínimo de acta de apertura, acta de cierre, documentos de toma física, selectivas, minutas de reuniones; o aquel de exclusión por robo o hurto de bienes a un funcionario, el cual debe estar conformado como mínimo por la denuncia ante el Organismo de Investigación Judicial o informe detallado, informe de investigación cuando proceda, oficio de solicitud de reposición de los bienes, información de placa, descripción, valor inicial y valor en libros de los bienes sustraídos, trámite de exclusión ante el SIBI y acuerdos tomados por la Comisión de Bienes Institucional o Regional correspondiente.
 Material devolutivo: Insumo que por definición en el Catálogo de Bienes y Servicios del SIREMA, las Unidades Técnicas Especializadas definen como tal y se utiliza en el desarrollo del servicio, es reutilizado y requiere devolución al finalizar el SCFP.
 Material de Alto Riesgo: Productos que por su naturaleza tóxica, riesgosa o peligrosa para el ser humano, no pueden ser almacenados y deben ser adquiridos y utilizados en forma inmediata.
-Material de difícil adquisición: (Derogada esta definición mediante publicación en La Gaceta N° 114 del 16 de junio del 2014)
 Materiales Perecederos: Productos alimenticios cuya biodegradación esta intrínsecamente relacionada con la naturaleza del bien, generalmente de muy corta vida útil.
 Material Gastable: Insumo utilizado para la ejecución de los SCFP, forma parte de la lista de recursos didácticos y se consume en el desarrollo del servicio.
 Paquete de curso: Grupo de bienes, que requiere una persona docente para impartir un SCFP y que está normalizado en cuanto a cantidad y a descripción mediante una lista de recursos didácticos, que previamente determinó la Unidad Técnica Especializada.
@@ -31,4 +30,5 @@ URF: Unidad de Recursos Financieros.
 URH: Unidad de Recursos Humanos.
 UCI: Unidad de Compras Institucionales.
 UTE: Unidad Técnica Especializada.
-EAR: Encargado de Almacén Regional.
+EAR: Encargado de Almacén Regional
+(Así reformado mediante publicación en La Gaceta N° 100 del 29 de mayo del 2017)
