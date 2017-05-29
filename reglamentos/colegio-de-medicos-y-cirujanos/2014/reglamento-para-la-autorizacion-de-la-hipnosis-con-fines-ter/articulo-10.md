@@ -1,0 +1,1 @@
+Artículo 10.—Publicidad. La divulgación, la propaganda y el anuncio de de la hipnosis con fines terapéuticos en seres humanos, en medios de comunicación colectiva por los profesionales debidamente autorizados así como su enseñanza, solo podrá realizarse con la previa autorización del Colegio de Médicos y Cirujanos.

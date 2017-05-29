@@ -1,0 +1,1 @@
+Artículo 9º—Consentimiento informado. Los profesionales autorizados para la aplicación de la hipnosis con fines terapéuticos, deben de obtener de forma previa el consentimiento informado de los pacientes en donde se especifique las acreditaciones del profesional, la técnica empleada y se aclare la evidencia científica respecto a esta intervención.
