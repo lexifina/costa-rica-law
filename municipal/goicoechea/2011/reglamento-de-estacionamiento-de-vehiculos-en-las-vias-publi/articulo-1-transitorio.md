@@ -1,3 +1,4 @@
 CAPÍTULO VII
 Normas transitorias
-Transitorio único.—Para el inicio de la operación del sistema de estacionómetros se fija una tarifa de ciento noventa colones por media hora de estacionamiento y de trescientos setenta y cinco colones por una hora de estacionamiento. El horario inicial del sistema de estacionómetros será de lunes a sábado de las siete a las diecinueve horas.
+Transitorio único: El servicio de estacionamiento con boleta se prestará de lunes a viernes en horario de 7:30 a.m. a 4:00 p.m. y los días sábados en el sector del Mercado Libre de Guadalupe, en horario de 6:00 a.m. a 1:00 p.m.
+(Así reformado mediante sesión ordinaria N° 22-17 del 29 de mayo del 2017)
