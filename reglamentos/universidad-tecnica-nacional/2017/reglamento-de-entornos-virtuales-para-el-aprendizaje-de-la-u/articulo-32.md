@@ -1,0 +1,1 @@
+Artículo 32. Para estos casos, todas las actividades y archivos enviados en el aula virtual serán considerados como documentos oficiales y probatorios a partir de los cuales el docente podrá tomar los fallos correspondientes sobre el rendimiento académico y ejecutar las acciones que considere pertinentes.

@@ -1,0 +1,1 @@
+Artículo 12. Para diseñar un curso en entornos virtuales, las unidades académicas, harán la solicitud de diseño a TE y PRD mínimo seis meses antes de la apertura del curso. La misma debe contar con el aval del Departamento de Gestión y Evaluación Curricular. En esta solicitud se debe incorporar el nombre del curso, programa y el docente o docentes responsables del mismo.

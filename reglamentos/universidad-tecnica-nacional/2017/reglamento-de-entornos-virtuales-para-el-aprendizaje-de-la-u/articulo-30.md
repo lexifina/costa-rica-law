@@ -1,0 +1,1 @@
+Artículo 30. En el caso de los cursos de capacitación ofrecidos por el área de TE y PRD, recibirán la certificación correspondiente los participantes que cumplan con todos los puntos del artículo anterior y con el proceso administrativo descrito en este documento. Esta certificación será emitida por el CFPTE.

@@ -1,0 +1,1 @@
+Artículo 8. El docente encargado del proceso formativo o de capacitación (cursos, talleres, tutorías y otros de índole académico), es el responsable directo de brindar al estudiante el acompañamiento académico permanente durante todo el periodo en el que se lleve a cabo la actividad formativa o de capacitación.

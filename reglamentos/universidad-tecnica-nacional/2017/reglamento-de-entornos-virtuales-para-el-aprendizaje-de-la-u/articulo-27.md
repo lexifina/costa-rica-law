@@ -1,0 +1,1 @@
+Artículo 27. Demostrar las destrezas básicas para el uso de herramientas ofimáticas y para el manejo básico de búsquedas en Internet, salvo disposición en contrario y debidamente justificada por la autoridad correspondiente.

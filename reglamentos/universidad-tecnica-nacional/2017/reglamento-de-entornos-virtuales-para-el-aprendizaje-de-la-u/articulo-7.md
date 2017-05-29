@@ -1,0 +1,1 @@
+Artículo 7. TE y PRD es la dependencia responsable de administrar el campus virtual y brindar al participante el acompañamiento técnico ante cualquier consulta sobre el manejo del campus virtual, a través de la designación de un funcionario para tal propósito.

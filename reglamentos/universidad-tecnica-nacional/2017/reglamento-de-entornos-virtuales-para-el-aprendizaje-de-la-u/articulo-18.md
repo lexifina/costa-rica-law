@@ -1,0 +1,3 @@
+CAPÍTULO V
+CASOS POR EXCEPCIÓN EN TUTORÍAS EN EL CAMPUS VIRTUAL
+Artículo 18. Los casos por excepción serán aquellos establecidos en el Reglamento de Estudio Independiente supra citado, en cuyo caso las unidades académicas serán las encargadas de realizar la solicitud formal ante TE y PRD, de conformidad con los lineamientos establecidos en este reglamento, quien resolverá a la mayor brevedad posible conforme a los siguientes tipos de matrícula: ordinaria, extraordinaria y por inclusión. Por tratarse de situaciones de excepción, mientras se resuelve la solicitud, la tutoría deberá impartirse de manera presencial y de forma conjunta con el curso introductorio del campus virtual.

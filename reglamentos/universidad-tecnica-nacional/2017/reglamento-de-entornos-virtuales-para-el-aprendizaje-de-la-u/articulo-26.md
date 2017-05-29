@@ -1,0 +1,1 @@
+Artículo 26. Contar con la disposición de realizar actividades grupales para el trabajo colaborativo-cooperativo y cumplir con las responsabilidades adquiridas con el equipo de trabajo en las actividades que requieran trabajo colaborativo en el campus virtual, de conformidad con el programa del curso.

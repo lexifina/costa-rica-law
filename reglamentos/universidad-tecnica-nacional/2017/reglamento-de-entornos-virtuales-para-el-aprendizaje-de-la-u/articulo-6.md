@@ -1,0 +1,1 @@
+Artículo 6. TE y RD será el encargado de proporcionar los datos de acceso (usuario y contraseña) una vez que se haya recibido la lista de los participantes y serán para el uso exclusivo del participante.

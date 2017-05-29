@@ -1,0 +1,1 @@
+Artículo 19. En los casos en que el docente encargado de las tutorías establecidas en este capítulo no cuente con las capacitaciones mencionadas en este Reglamento, TEyPRD le dará el acompañamiento necesario para el diseño e implementación de la tutoría, siempre y cuando éste cuente con las competencias necesarias en el uso y manejo del campus virtual en entornos virtuales.

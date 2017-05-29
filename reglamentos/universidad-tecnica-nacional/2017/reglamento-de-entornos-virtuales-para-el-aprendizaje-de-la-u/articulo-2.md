@@ -1,0 +1,1 @@
+Artículo 2. Este reglamento es de aplicación obligatoria para todos los usuarios de entornos virtuales que requieran el apoyo del área de Tecnología Educativa y Producción de Recursos Didácticos del Centro de Formación Pedagógica y Tecnología Educativa, en lo subsiguiente TE y PRD.

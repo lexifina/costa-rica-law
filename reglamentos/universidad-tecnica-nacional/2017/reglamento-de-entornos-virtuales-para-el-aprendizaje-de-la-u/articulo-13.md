@@ -1,0 +1,1 @@
+Artículo 13. TEyPRD habilitará un espacio virtual para cada curso solicitado por las unidades académicas y designará un profesional del área que le brinde el acompañamiento necesario al equipo responsable del curso, con el objetivo que se inicie el proceso de diseño, producción y montaje en plataforma. Lo anterior en un plazo de cinco días hábiles.
