@@ -1,0 +1,1 @@
+Artículo 54º: Para hacer uso de la cancha deportiva, los usuarios están obligados a vestir ropa deportiva adecuada, siendo estrictamente obligatorio el uso de tacos de futbol o tenis deportivas reglamentarias para la práctica de fútbol.

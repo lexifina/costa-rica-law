@@ -1,0 +1,1 @@
+Artículo 39º: El practicante o espectador debe guardar las normas de conducta y respeto hacia los demás, así como los reglamentos y manuales respectivos; en caso contrario, podrá ser retirado de las instalaciones por el responsable administrativo o por el personal de vigilancia.

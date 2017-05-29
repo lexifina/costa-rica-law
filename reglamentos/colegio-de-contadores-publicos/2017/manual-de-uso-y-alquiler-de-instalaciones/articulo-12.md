@@ -1,0 +1,1 @@
+Artículo 12º: El parqueo es de uso exclusivo para Colegiados activos, que se encuentren al día en el pago de las obligaciones con el Colegio, familiares en primer grado de consanguinidad (padres e hijos), cónyuge e invitados, empleados y otros usuarios. Hasta cubrir el máximo de campos de parqueo con que cuenta el Colegio.

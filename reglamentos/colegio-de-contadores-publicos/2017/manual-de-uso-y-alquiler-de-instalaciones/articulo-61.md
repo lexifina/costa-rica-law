@@ -1,0 +1,1 @@
+Artículo 61º: No está permitido jugar o efectuar calentamientos con balones, pelotas u otros objetos, en vestidores, pasillos de acceso, zonas de jardín y todos aquellos espacios que no se consideren deportivos.

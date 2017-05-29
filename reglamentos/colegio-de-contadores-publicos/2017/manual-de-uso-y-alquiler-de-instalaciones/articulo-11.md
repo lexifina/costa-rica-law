@@ -1,0 +1,1 @@
+Artículo 11º: Todos los colegiados, sus familiares en primer grado de consanguinidad (padres e hijos), su cónyuge y sus invitados, empleados y otros usuarios deberán presentar el carnet vigente correspondiente para el ingreso a las instalaciones.

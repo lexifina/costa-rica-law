@@ -1,0 +1,1 @@
+Artículo 10º: Tendrán derecho a utilizar las instalaciones del Colegio, Colegiados activos al día en sus obligaciones con el Colegio, familiares en primer grado de consanguinidad (padres e hijos), cónyuge, invitados, empleados y otros usuarios.

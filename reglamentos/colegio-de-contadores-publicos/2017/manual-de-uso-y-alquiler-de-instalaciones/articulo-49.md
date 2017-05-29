@@ -1,0 +1,1 @@
+Artículo 49º: El tiempo máximo de uso en las máquinas de trabajo cardiovascular u otro tipo de máquina es de 20 minutos en cada una de ellas. Una vez transcurrido ese tiempo la persona instructora está facultada para solicitar a la persona dejar de hacer uso de la máquina. No es permitido reservar máquinas o mesas de juego.

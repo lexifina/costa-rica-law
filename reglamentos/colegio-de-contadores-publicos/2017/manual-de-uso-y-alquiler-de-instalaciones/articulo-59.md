@@ -1,0 +1,1 @@
+Artículo 59º: El uso, préstamo o alquiler de la cancha de fútbol está condicionada a las condiciones climatológicas y a su estado. El Director Ejecutivo queda facultado para cerrar temporalmente la cacha de futbol por los motivos mencionados.

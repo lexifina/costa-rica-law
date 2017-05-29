@@ -1,0 +1,1 @@
+Artículo 3º: Para los efectos del presente manual, son instalaciones deportivas, educativas y de recreación las que están bajo custodia de la Administración del Colegio ubicadas en San Vicente de Moravia, específicamente de Romanas Ballar 600 metros al oeste.

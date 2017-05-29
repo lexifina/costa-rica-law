@@ -1,0 +1,1 @@
+Artículo 52º: El instructor del CAF será el encargado de entregar y recibir los accesorios de las mesas de billar y de tenis de mesa, por lo que el usuario deberá solicitarlos y entregarlos al finalizar de jugar. El instructor del CAF verificará que la mesa y sus accesorios se entregan en buenas condiciones, y reportar cualquier anomalía encontrada.

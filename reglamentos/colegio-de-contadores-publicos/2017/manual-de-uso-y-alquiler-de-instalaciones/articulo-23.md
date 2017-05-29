@@ -1,0 +1,1 @@
+Artículo 23º: Es deber de los usuarios e instructores mantener una conducta decente mientras se encuentren en uso de las aulas, tampoco se admitirá que dañen el mobiliario y equipo instalado en ellas.

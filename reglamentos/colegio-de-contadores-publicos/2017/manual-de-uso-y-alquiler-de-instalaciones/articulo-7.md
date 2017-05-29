@@ -1,0 +1,1 @@
+Artículo 7º: Para realizar el alquiler de cualquiera de los espacios disponibles se debe coordinar de previo con el encargado de administrar el uso de las instalaciones en el Colegio al correo electrónico correspondiente, para verificar los espacios y fechas con una anticipación mínima de 5 días hábiles a la realización de la actividad (sujeto a disponibilidad).

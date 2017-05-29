@@ -1,0 +1,1 @@
+Artículo 72º: La Junta Directiva se reserva el derecho de entablar las acciones legales correspondientes, según la gravedad de la falta recibida por el ofendido, o de remitir el informe a la Fiscalía del Colegio, cuando se trate de un Colegiado.

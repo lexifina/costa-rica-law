@@ -1,0 +1,1 @@
+Artículo 16º: Es prohibido el uso de armas de fuego, armas de aire comprimido, flechas o cualquier tipo de armas dentro de las instalaciones del Colegio. También es prohibido permanecer bajo los efectos de alguna droga o sustancias psicotrópicas.

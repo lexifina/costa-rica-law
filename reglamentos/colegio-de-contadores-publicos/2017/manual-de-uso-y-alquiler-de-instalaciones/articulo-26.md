@@ -1,0 +1,1 @@
+Artículo 26º: El instructor a cargo del aula debe velar por el cuido de las instalaciones, en caso de observar un acto que afecte físicamente el mobiliario y equipo de las aulas, debe reportarlo con el encargado administrativo.

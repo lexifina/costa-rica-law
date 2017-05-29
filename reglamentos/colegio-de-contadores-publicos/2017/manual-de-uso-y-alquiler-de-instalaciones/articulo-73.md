@@ -1,0 +1,1 @@
+Artículo 73º: Asimismo queda prohibida la utilización de las instalaciones del Colegio para generar ingresos o beneficios para una persona en particular u otras actividades colectivas organizadas, sin la previa autorización de la Dirección Ejecutiva.

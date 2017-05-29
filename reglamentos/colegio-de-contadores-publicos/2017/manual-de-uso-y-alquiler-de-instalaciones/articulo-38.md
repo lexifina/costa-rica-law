@@ -1,0 +1,1 @@
+Artículo 38º: El colegiado o la empresa que use y alquile el gimnasio multiusos, debe entregar las instalaciones a la hora especificada en el contrato y en las mismas condiciones en que fueron prestadas o alquiladas.

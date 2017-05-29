@@ -1,0 +1,1 @@
+Artículo 51º: El usuario podrá hacer uso del juego de tenis de mesa y de billar en un tiempo máximo de una hora y treinta minutos, no obstante cumplido ese tiempo y de no existir otros personas esperando, el usuario si lo desea puede continuar utilizándolas.

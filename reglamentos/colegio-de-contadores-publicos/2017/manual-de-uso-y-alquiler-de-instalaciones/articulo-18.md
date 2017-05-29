@@ -1,0 +1,1 @@
+Artículo 18º: Cualquier otro aspecto sobre el alquiler y uso de las instalaciones del Colegio no previstos en este Manual, regirán las regulaciones que disponga la Dirección Ejecutiva o la Junta Directiva del Colegio.

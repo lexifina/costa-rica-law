@@ -1,0 +1,1 @@
+Artículo 66º: Se prohíbe rayar y maltratar las paredes, pisos, ventanas, puertas, mesas, sillas, o cualquier otro mobiliario o equipo del Restaurante. No pueden pegarse objetos en las paredes, ventanas o cielo raso sin previa autorización de la administración del Colegio.

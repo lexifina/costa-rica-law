@@ -1,0 +1,1 @@
+Artículo 5º: Las instalaciones del Colegio se prestarán gratuitamente para la realización de las actividades indicadas en el inciso a) del artículo 4º. En los casos de los incisos siguientes de ese mismo artículo, la administración del Colegio cobrará las tarifas vigentes.

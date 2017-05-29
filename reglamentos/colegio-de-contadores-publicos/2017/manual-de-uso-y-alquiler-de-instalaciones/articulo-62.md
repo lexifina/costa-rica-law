@@ -1,0 +1,1 @@
+Artículo 62º: La organización de torneos o juegos con equipos externos deberá hacerse bajo autorización de la Dirección Ejecutiva, siendo siempre prioritario el uso por equipos integrados sólo por miembros activos y al día en las obligaciones con el Colegio.
