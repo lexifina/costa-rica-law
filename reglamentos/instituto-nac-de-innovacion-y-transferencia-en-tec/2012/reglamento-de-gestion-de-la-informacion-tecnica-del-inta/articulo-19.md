@@ -1,0 +1,1 @@
+Artículo 19 -Los Proyectos se considerarán oficialmente terminados en el momento en que el expediente original se encuentre registrado en la Unidad de Gestión de Información Técnica del INTA, con las respectivas aprobaciones del Comité Técnico Asesor (COTECA).

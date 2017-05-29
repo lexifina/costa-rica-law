@@ -1,0 +1,1 @@
+Artículo Nº 22.-Con respecto a los convenios o alianzas estratégicas entre una o varias instituciones y el INTA, el registro de información generada en el transcurso del proyecto, deberá cumplir con lo dispuesto en este Reglamento. La autoría y las publicaciones serán normadas conforme a los términos de referencia del Convenio o Contrato.

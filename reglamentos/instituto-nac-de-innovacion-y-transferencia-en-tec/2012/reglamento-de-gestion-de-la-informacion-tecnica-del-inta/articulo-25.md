@@ -1,0 +1,1 @@
+Artículo Nº 25.-Los funcionarios que realicen investigaciones y deseen acogerse a un beneficio de beca de estudios, capacitación en el extranjero, a un permiso con o sin goce de salario, deberán presentar como parte de los requisitos que se pidan, una constancia del Área de Gestión de Información Técnica, de que se encuentra al día con los expedientes que maneje dicha Unidad.
