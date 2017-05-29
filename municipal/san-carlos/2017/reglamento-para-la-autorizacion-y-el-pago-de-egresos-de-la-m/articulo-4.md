@@ -1,0 +1,1 @@
+Artículo 4º—Los pagos no fijos serán autorizados por la Alcaldía y/o la Dirección General, hasta el mismo monto en que estén autorizados para los procesos de compra de bienes y servicios u obra pública, según el artículo 27 y 84 de la Ley de Contratación Administrativa Nº 7494.

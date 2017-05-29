@@ -1,0 +1,1 @@
+Artículo 14.—El documento de pago será firmado siempre de manera conjunta por la firma del tesorero o su suplente, y cualquiera de los siguientes funcionarios: Alcalde, Vice-Alcalde primero, Director General, Director Financiero o Director de Planificación; siempre y cuando no hayan autorizado el proceso de pago, esto según el artículo 109 del Código Municipal.

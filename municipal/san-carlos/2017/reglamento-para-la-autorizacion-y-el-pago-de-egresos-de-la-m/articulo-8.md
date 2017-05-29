@@ -1,0 +1,1 @@
+Artículo 8º—Corresponderá siempre al Contador Municipal, la generación y emisión del documento de pago que se utilice. En ausencia de dicho funcionario, dicho proceso lo realizará el Director Financiero y en ausencia de este, el funcionario que haya sido designado como suplente por parte de la Administración.

@@ -1,0 +1,1 @@
+Artículo 13.—La Alcaldía municipal deberá entregar un informe de todos los pagos efectuados delegados en este Reglamento en el artículo 12, referente al inciso e) artículo 13 del Código municipal, a la Comisión de Hacienda y Presupuesto del Concejo Municipal, en el plazo máximo de diez días hábiles de concluido el mes donde se ejecutaron los pagos.

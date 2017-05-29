@@ -1,0 +1,1 @@
+Artículo 15.—En un plazo no mayor de 6 meses, la Proveeduría Municipal y la Dirección de Hacienda propondrán las modificaciones que consideren necesarias a los Manuales de Procedimientos que regulan el Proceso de Pago de la Municipalidad.
