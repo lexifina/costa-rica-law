@@ -1,4 +1,6 @@
+(Suspendida)
 BANCO CENTRAL DE COSTA RICA
+(Mediante sesión N° 5770-2017 del 29 de mayo del 2017 se deja en suspenso los acuerdos tomados en el presente acuerdo)
 La Junta Directiva del Banco Central de Costa Rica en el artículo 6 del acta de la sesión 5729-2016, celebrada el 13 de julio del 2016,
 considerando que:
 A- Este Cuerpo Colegiado, mediante artículo 10, del acta de la sesión 5651-2014, celebrada el 25 de junio de 2014, dispuso encargar a la Administración del Banco Central que proveyera el requerimiento neto de divisas diario del Sector Público No Bancario (SPNB), mediante el uso de las Reservas Internacionales Netas (RIN), sujeto a los límites definidos en dicho acuerdo.
