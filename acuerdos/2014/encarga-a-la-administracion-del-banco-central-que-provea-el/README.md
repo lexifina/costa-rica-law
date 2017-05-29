@@ -16,3 +16,4 @@ Encarga a la Administración del Banco Central que provea el requerimiento neto 
 | 1 | 2014-06-26 | la propia norma |
 | 2 | 2014-11-19 | Acuerdo 0 (2014-11-19) |
 | 3 | 2016-07-13 | Acuerdo 0 (2016-07-13) |
+| 4 | 2017-05-29 | Acuerdo 0 (2017-05-29) |

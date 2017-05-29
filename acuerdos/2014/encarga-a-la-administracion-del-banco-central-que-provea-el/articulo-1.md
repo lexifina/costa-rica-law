@@ -1,4 +1,6 @@
+(Suspendida)
 BANCO CENTRAL DE COSTA RICA
+(Mediante sesión N° 5770-2017 del 29 de mayo del 2017 se deja en suspenso los acuerdos tomados en el presente acuerdo)
 La Junta Directiva del Banco Central de Costa Rica en el artículo 10 del acta de la sesión 5651-2014, celebrada el 25 de junio del 2014,
 considerando que:
 A. El artículo 2 de la Ley Orgánica del Banco Central de Costa Rica establece, como objetivos prioritarios de esta Entidad, procurar la estabilidad interna y externa del colón y asegurar su conversión a otras monedas.
