@@ -14,3 +14,4 @@ Reglamento de Becas y Capacitación de Funcionarios de la Muniicpalidad de San J
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-31 | la propia norma |
+| 2 | 2017-05-30 | Reglamento municipal 57 (2017-05-30) |
