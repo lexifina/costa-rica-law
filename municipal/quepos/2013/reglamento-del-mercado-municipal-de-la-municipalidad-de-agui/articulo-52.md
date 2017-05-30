@@ -1,1 +1,0 @@
-Artículo 52—Los arrendatarios o inquilinos del Mercado Municipal de Aguirre están sujetos al acatamiento del articulado de éste Reglamento y no podrán alegar desconocimiento, ni ignorancia al ser aplicadas las sanciones correspondientes.
