@@ -1,0 +1,1 @@
+Artículo 13. Respaldo técnico y económico. La Unidad Gestora preparará la documentación técnica y económica de respaldo que permita demostrar la participación sustantiva de RACSA en la prestación de la solución, identificando los diferentes elementos que componen el servicio a brindar.

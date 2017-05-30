@@ -1,0 +1,2 @@
+Artículo 11. Acuerdo de Confidencialidad
+11.1 Toda iniciativa de asociación empresarial, deberá estar previamente respaldada por la suscripción, entre las Partes, de un acuerdo de protección de información confidencial desde las etapas iniciales de conversación y negociación, compromisos que dependiendo del carácter de la información deberán mantenerse independientemente de que se concrete o no la relación formal. Dicho acuerdo deberá constar en el expediente respectivo.

@@ -1,0 +1,2 @@
+Artículo 34. Finiquito. Luego de finalizada la etapa de ejecución del Acuerdo de Asociación Empresarial y no mediando ningún asunto pendiente, las Partes están facultadas para suscribir un finiquito que las exima de reclamos posteriores de cualquier tipo.
+El documento de finiquito de la asociación empresarial será suscrito por el Gerente General, en su condición de apoderado generalísimo sin límite de suma de la empresa.

@@ -1,0 +1,1 @@
+Transitorio III: Se instruye a la Asesoría Jurídica y a la Dirección de Nuevos Negocios e Innovación para que procedan a capacitar a los funcionarios que participan en la implementación de este Reglamento y la normativa asociada.”
