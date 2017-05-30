@@ -1,1 +1,0 @@
-Artículo 11.—Declaración. Cualquier entrevista necesaria para la instrucción de una denuncia, tales como la recepción de prueba, debe realizarse con especial consideración a las necesidades e integridad de las personas involucradas, tanto en temas de necesidades especiales, apoyos con ayudas técnicas, u otros.

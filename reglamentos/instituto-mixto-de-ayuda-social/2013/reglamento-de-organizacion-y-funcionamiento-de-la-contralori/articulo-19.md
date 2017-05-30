@@ -1,2 +1,0 @@
-Artículo 19.—Disposiciones transitorias. Mientras no exista otra forma o canalización de gestiones in situ o de mayor acercamiento al público que no sean las temporales como ferias, mesas de trabajo etc. El ámbito de la contraloría de servicios del Nivel central tendrá una cobertura del Nivel Nacional.
-Aprobado por el Consejo Directivo mediante Acuerdo Nº 556-10-2013, Artículo quinto del 28 de octubre del 2013.
