@@ -1,0 +1,1 @@
+Artículo 23. —Del seguimiento. Las Jefaturas de los Núcleos y Unidades Regionales deberán remitir formalmente a la Gestión correspondiente un Informe cuatrimestral sobre los CCE. El CCE PYME deberá enviar un informe cuatrimestral a la GG.

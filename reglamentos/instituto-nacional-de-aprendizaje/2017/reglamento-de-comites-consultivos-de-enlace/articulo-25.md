@@ -1,0 +1,1 @@
+Artículo 25. —Sustitución de integrantes. La sustitución de integrantes de cualquier CCE por renuncia, remoción justificada, ausentismo, muerte o cualquier otra causa, deberá hacerse por el resto del período del que se nombró originalmente y mediante comunicación escrita, dirigida a la Jefatura de Núcleo, Unidad Regional y UPYME, según corresponda.

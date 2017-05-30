@@ -1,0 +1,2 @@
+Artículo 5. —Aprobación de los Comités Consultivos de Enlace. La aprobación de los CCE de los Sectores Productivos y Regionales le corresponde a la Subgerencia Técnica, a propuesta de la persona responsable de GFST o de la GR, según corresponda. En caso de ausencia prolongada del titular de la Subgerencia Técnica, la aprobación le corresponde a la persona que ocupa el cargo de Gerente General.
+A la GG le corresponde la aprobación del CCE-PYME y en caso de ausencia prolongada del titular de la Gerencia, la aprobación le corresponderá a la PE.

@@ -1,0 +1,3 @@
+Artículo 12. —Designación. El Jefe de la Unidad Regional solicitara formalmente, a las organizaciones empresariales, laborales y comunales de la respectiva región, así como a las instituciones públicas atinentes, que propongan los representantes del CCE, designando un titular y un suplente.
+Posteriormente, la Jefatura de la UR, mediante resolución razonada, será responsable de presentar a la Jefatura de la GR, el nombre de las personas que integrarán el CCE y el suplente respectivo, quienes participarán en caso de ausencia temporal del titular.
+La GR emitirá las recomendaciones que considere pertinentes y someterá la propuesta a la Subgerencia Técnica para su ratificación, de forma excepcional a la GG conforme lo establecido en el artículo quinto de este Reglamento.
