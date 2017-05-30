@@ -1,0 +1,8 @@
+Artículo 28: de las autorizaciones y periodos de la formulación. Los instrumentos de Planificación del IMAS tendrán las siguientes autorizaciones y tiempos para su formulación:
+a) La Política Institucional: se formulará por mandato del Consejo Directivo del IMAS.
+b) El Plan Nacional Contra la Pobreza (PNCP) se formulará por mandato del Consejo Directivo del IMAS.
+c) El Plan Estratégico Institucional (PEI). se formulará por mandato del Consejo Directivo del IMAS a solicitud de la Gerencia General o del Área de Planificación Institucional.
+Lo anterior una vez el PEI vigente haya finalizado y haya sido evaluado.
+El Consejo Directivo acordará, si así lo considera, de acuerdo a criterio técnico del Área de Planificación Institucional, prolongar el plazo de vigencia del PEI, siempre y cuando esta prórroga no sea mayor a un año, lo anterior mientras se formula un nuevo PEI.
+d) El Plan Operativo Institucional (POI). Se formula anualmente. El inicio de su formulación se da una vez que se emite la directriz por parte de la Gerencia General, lo cual debe realizarse a más tardar la primera semana del mes de abril. Este Plan se elabora a partir de los aportes de los distintos ámbitos e instancias institucionales y debe ser aprobado por el Consejo Directivo a más tardar la segunda semana del mes setiembre.
+e) El Plan Operativo Gerencial (POGE). se formula paralelamente con el POI, y constituye su principal insumo. Su diseño se inicia a partir de la respectiva directriz porparte de la Gerencia General. Debe estar debidamente elaborado y remitido a la Gerencia General a más tardar la segunda semana de diciembre.

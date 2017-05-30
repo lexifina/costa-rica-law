@@ -1,0 +1,1 @@
+Artículo 26: de la alineación de los instrumentos de planificación. El Área de Planificación Institucional debe garantizar que en la formulación de los instrumentos de planificación institucional haya congruencia, complementariedad y alineamiento entre los distintos ámbitos institucionales.

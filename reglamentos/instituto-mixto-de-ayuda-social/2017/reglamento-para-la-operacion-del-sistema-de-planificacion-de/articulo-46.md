@@ -1,0 +1,1 @@
+Artículo 46: de la vigencia de este Reglamento. La aprobación del presente Reglamento fue realizada por el Consejo Directivo del IMAS, en la Sesión celebrada el 09 de enero del 2017, mediante Acuerdo CD.N º11-01- 2017 y rige a partir de su publicación en el Diario Oficial La Gaceta.

@@ -1,0 +1,1 @@
+Artículo 23: Plan Operativo Institucional (POI). Es el instrumento de planificación institucional con un horizonte de temporalidad no mayor de un año, elaborado según programa presupuestario, que define los resultados, metas e indicadores de la organización conforme los recursos disponibles para cada año. Debe ser formulado en correspondencia con los contenidos del PND y e PEI.

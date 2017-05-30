@@ -1,0 +1,8 @@
+Artículo 15: funciones de la Unidad de Control Interno. Es la Unidad encargada de implementar el Sistema de Control Interno, brinda asesoría y coordina las acciones necesarias de seguimiento y evaluación. Se ubica en el nivel estratégico y depende jerárquicamente de la Gerencia General. En el Sistema de Planificación del IMAS le corresponden las siguientes funciones:
+a) Dirigir el proceso de implementación del Sistema de Control Interno y de identificación y administración de los riesgos, de acuerdo con los objetivos programados por las distintas unidades y su respectiva incorporación en los planes institucionales (PEI, POI, POGE).
+b) Integrar la evaluación de riesgos y su posible afectación en el cumplimiento de los objetivos incorporados en los instrumentos de planificación institucional.
+c) Propiciar que las medidas de administración de riesgos se incorporen en el PEI, POI y POGE, según las prioridades definidas en el Marco Orientador para el funcionamiento del Sistema Específico de Valoración de Riesgos (SEVRI).
+d) Dar seguimiento a las medidas de administración de riesgos incorporadas en los planes institucionales (PEI, POI, POGES).
+e) Elaborar informes de seguimiento sobre la aplicación de medidas de administración y resultados de la gestión de riesgos institucional.
+f) Presentar informes sobre la gestión de riesgos a la Comisión Gerencial de Control Interno y al Consejo Directivo.
+g) Dirigir el proceso de autoevaluación del Sistema de Control Interno, con el fin de determinar las mejoras requeridas para su buen funcionamiento e incorporar las acciones de mejora en los planes institucionales. (PEI, POI, POGE,).

@@ -1,0 +1,1 @@
+Artículo 40: solicitud de información para el seguimiento y evaluación. Es responsabilidad del Área de Planificación solicitar a las unidades los datos e información sobre la ejecución de los diferentes planes, programas y proyectos, estas deberán suministrar dicha información en el plazo establecido por el Área de Planificación.

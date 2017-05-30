@@ -1,0 +1,1 @@
+Artículo 38: tipos de evaluación. Podrán realizarse evaluaciones de los planes, programas y proyectos institucionales ya sea de manera ex ante, durante y ex post, estas pueden estar orientadas a la evaluación, tanto de efectos como de impacto de la ejecución de los instrumentos de planificación. Estas evaluaciones deben disponer del contenido presupuestario para su ejecución.

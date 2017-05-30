@@ -1,0 +1,4 @@
+Artículo 10: funciones del Consejo Directivo. El Consejo Directivo es el máximo órgano jerárquico, que se ubica en el nivel estratégico, es el encargado de la conducción política y de la toma de decisiones estratégicas de la institución. En el Sistema de Planificación tendrá las siguientes funciones:
+a) Dictar la política general, aprobar el Plan Nacional de Lucha contra la Pobreza Extrema y los programas y proyectos institucionales.
+b) Dar seguimiento al desempeño institucional a partir de los informes gerenciales que se requieran sobre el cumplimiento de objetivos y metas establecidos en sus planes, programas y proyectos.
+c) Aprobar el Plan Estratégico Institucional (PEI), el Plan Operativo Institucional (POI), el Presupuesto Ordinario, los Extraordinarios y las distintas Modificaciones Presupuestarias, así como demás normativa referente a la distribución y uso de los recursos institucionales.

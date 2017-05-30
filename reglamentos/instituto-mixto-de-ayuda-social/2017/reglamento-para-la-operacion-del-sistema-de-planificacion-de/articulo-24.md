@@ -1,0 +1,1 @@
+Artículo 24: Plan Operativo Gerencial (POGE). Es el instrumento que utiliza el IMAS para programar los objetivos y metas de cada Subgerencia y Área Institucional, de manera que las funciones y productos de cada una estén debidamente complementadas. Asimismo el POGE debe estar alineado con los objetivos y metas globales por programa presupuestario contenidos en el PEI y el POI.

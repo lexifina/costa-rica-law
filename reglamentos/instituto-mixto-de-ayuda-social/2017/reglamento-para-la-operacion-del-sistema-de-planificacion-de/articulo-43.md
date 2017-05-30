@@ -1,0 +1,1 @@
+Artículo 43: toma de decisiones sobre los resultados. Es competencia del Consejo Directivo, Gerencia General y Subgerencias, establecer acciones correctivas o preventivas sobre los resultados del seguimiento y las diferentes evaluaciones. Es responsabilidad de las unidades acatar y cumplir con dichas disposiciones.

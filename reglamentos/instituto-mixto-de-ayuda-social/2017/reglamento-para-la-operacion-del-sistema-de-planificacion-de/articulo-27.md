@@ -1,0 +1,1 @@
+Artículo 27: de la metodología. La Gestión por Resultados de Desarrollo (GpRD), es la metodología a ser utilizada en el Sistema de Planificación Institucional, esta responde a las orientaciones brindadas por el ente rector en la materia y procura la vinculación de los distintos instrumentos de planificación y la determinación de las responsabilidades de las partes en el Sistema.
