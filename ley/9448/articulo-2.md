@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Se desafecta del uso y dominio público el lote segregado anteriormente descrito y se afecta al nuevo uso de biblioteca pública. Se autoriza a la Municipalidad de Orotina para que lo done libre de gravámenes y anotaciones al Ministerio de Cultura y Juventud, cédula jurídica número dos - uno cero cero – cero cuatro dos cero cero uno (2-100-042001 ).
