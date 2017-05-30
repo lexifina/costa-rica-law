@@ -1,0 +1,1 @@
+Artículo 14°-Actuaciones: La Contraloría de Servicios será competente para actuar de oficio o a petición de parte, realizar investigaciones, visitar las dependencias institucionales, requerir la información pertinente garantizando siempre la discrecionalidad y confidencialidad del caso para el cumplimiento de todas sus funciones.

@@ -1,0 +1,1 @@
+Artículo 25º-Disposiciones transitorias: Mientras no exista otra forma o canalización de gestiones in situ o de mayor acercamiento al público que no sean las temporales como ferias, mesas de trabajo etc. El ámbito de la Contraloría de Servicios del nivel central tendrá una cobertura del nivel nacional.

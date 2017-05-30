@@ -1,0 +1,2 @@
+Artículo 27º-Derogatoria: A partir de la entrada en vigencia del presente Reglamento, queda derogado el Reglamento de organización y funcionamiento de la Contraloría de Servicios del IMAS, aprobado por el Consejo Directivo mediante Acuerdo Nº556-10-2013, artículo quinto del 28 de octubre del 2013 y publicado en el Diario la Gaceta Nº2 del viernes 03 de enero del 2014.
+Se deroga Manual de la Contraloría de servicios Aprobado por: Gerencia 28-octubre-2008 y toda normativa vigente interna igual o de rango inferior que se le oponga.

@@ -1,0 +1,1 @@
+Artículo 20º-lnformes y recomendaciones: Los informes y recomendaciones que emita la Contraloría de Servicios, deberán ser remitidos como corresponden según norma, o al órgano que compete. Quien en el caso que así se requiera instruirá las acciones correspondientes.

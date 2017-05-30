@@ -1,0 +1,1 @@
+Artículo 9°-Traslado de gestiones: Las gestiones que se presenten ante la Contraloría de Servicios deberán ser de un análisis previo y/o acto motivado, de tal manera que las que no correspondan a las funciones y atribuciones propias, sean de traslado según competencia y tema. De no corresponder al ámbito institucional se rechaza.

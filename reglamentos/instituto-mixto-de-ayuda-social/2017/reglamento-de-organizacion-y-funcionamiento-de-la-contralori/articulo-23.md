@@ -1,0 +1,1 @@
+Artículo 23º-Suspensión de la tramitación de un caso: La Contraloría de Servicios suspenderá la instrucción de una investigación cuando el mismo hecho sea conocido por otra instancia administrativa, así como por motivos de extrema necesidad, o a petición de la persona usuaria, a excepción de la denuncia.

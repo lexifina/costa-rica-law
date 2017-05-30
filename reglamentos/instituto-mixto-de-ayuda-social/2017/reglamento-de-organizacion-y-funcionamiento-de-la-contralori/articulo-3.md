@@ -1,0 +1,1 @@
+Artículo 3 °-Alcance: El Reglamento de la Contraloría de Servicios, se sustenta en la normativa del derecho público, sus leyes, reglamentos y normas conexas vigentes, de acatamiento obligatorio en el accionar de personal del Instituto Mixto de Ayuda Social.
