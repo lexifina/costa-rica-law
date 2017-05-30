@@ -1,0 +1,4 @@
+ARTÍCULO 11 Actividad presupuestaria y contractual de los .fideicomisos. Cada fideicomiso elaborará anualmente el presupuesto y lo remitirá a la Contraloría General de la República.
+El contrato de fideicomiso y la actividad contractual desplegada por el fiduciario estarán sujetos a los principios generales que rigen la contratación administrativa.
+El fideicomiso adjudicará las contrataciones que promueva por medio de la estructura organizativa y en resguardo del principio de doble instancia, garantizará la revisión de lo actuado mediante la interposición de recursos de revisión ante la estructura de fiscalización, supervisión y vigilancia definida en el contrato de fideicomiso.
+La actividad contractual orientada a la captación de recursos financieros estará sujeta a la legislación vigente en materia de oferta de valores y a la normativa que dicta la Superintendencia de Valores (Sugeval) y el Consejo Nacional de Supervisión del Sistema Financiero (Conassif).

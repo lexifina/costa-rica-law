@@ -1,0 +1,2 @@
+ARTÍCULO 2.Concordancia con los planes nacionales de transporte y de desarrollo. La constitución de cada fideicomiso, según la presente ley, deberá contar con la autorización del Ministerio de Planificación Nacional y Política Económica (Mideplán), del Ministerio de Hacienda y del Banco Central de Costa Rica .
+Dichos fideicomisos deberán responder a la planificación institucional y priorización de proyectos estratégicos definidos en el Plan Nacional de Transportes y el Plan Nacional de Desarrollo.
