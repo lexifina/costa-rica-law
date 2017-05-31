@@ -1,0 +1,1 @@
+ARTÍCULO 7. Administración de los recursos conforme al principio de caja única. Los recursos provenientes del Contrato de Préstamo serán administrados por la Tesorería Nacional, de conformidad con el principio de caja única. El prestatario acreditará los recursos a favor del fideicomiso o gestor del Programa.
