@@ -17,22 +17,22 @@ Considerando:
 11.—Que las especies identificadas no ponen en peligro el comercio nacional o internacional de madera ya que el volumen en el mercado de las mismas es muy bajo
 12.—Que dichas especies se localizan en áreas fuera de las Áreas Silvestres Protegidas, y la veda es la única herramienta para conservarlas.
 Decretan:
-Artículo 1 °—De conformidad con los estudios técnicos- científicos que demuestran que las siguientes especies se encuentran en peligro de extinción, se declara en veda total el aprovechamiento de los árboles de:
-Ajo Negro | Anthodiscus chocoensis
-Bálsamo | Myroxylon balsamun
-Camíbar | Copaifera camibar
-Caoba | Swietenia macrophylla
-Cedro | Cedrela salvadorensis
-Cedro real | Cedrela fissilis
-Cipresillo | Podocarpus costarricensis
-Cola de pavo | Hymenolobium mesoamericanum
-Copo | Couratari scottimorii
-Cristóbal | Platyrniscrium pinnatum
-Cristóbal | Platymiscium parviflorum
-Guayacán real | Guaiacum sanctun
-Laurel negro | Cordia gerascanthus
-Pinillo | Podocarpus guatemalensis
-Quira | Caryotaphnopsis burgerii
-Sandrillo | Paramachaerium gruberi
-Tamarindón | Parkia pendula
-Tostado | Sclerolobium costaricense
+Artículo 1: De conformidad con los estudios técnicos-científicos que demuestran que las siguientes especies se encuentran en peligro de extinción, se declara en veda total el aprovechamiento de los árboles en pie de:
+Ajo Negro Anthodiscus chocoensis
+Bálsamo Myroxylon balsamum
+Camíbar Copaifera camibar
+Caoba Swietenia macrophylla
+Cedro Cedrela salvadorensis
+Cedro real Cedrela fissilis
+Cipresillo Podocarpus costaricensis
+Cola de pavo Hymenolobium mesoamericanum
+Copo Couratari scottrnorii
+Cristóbal Platymiscium pinnatum
+Guayacán real Guaiacum sanctum
+Laurel negro Cordia gerascanthus
+Pinillo Podocarpus guatemalensis
+Quira Caryotaphnopsis burgeri
+Sandrillo Paramachaerium gruberi
+Tamarindón Parkia pendula
+Tostado Tachigali costarricense
+(Así reformado por el artículo 14 del decreto ejecutivo N° 40477 del 1° de junio del 2017, “Regulaciones para el aprovechamiento y extracción de madera aserrada de árboles caídos naturalmente en bosques privados”)
