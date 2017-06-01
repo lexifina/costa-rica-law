@@ -1,0 +1,1 @@
+Artículo 3º—Derogaciones. Deróguense los acápites 3.13, 3.17, 3.22 y 3.23 de la sección 3 “Definiciones”, pertenecientes al Artículo 1º del Decreto Ejecutivo Nº 33744-MEIC del 22 de marzo de 2007, “RTCR 400:2006. Etiquetado de la carne cruda, molida, marinada, adobada, tenderizada y vísceras”, publicado en La Gaceta Nº 95 del 18 de mayo de 2007.

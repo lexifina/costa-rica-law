@@ -1,0 +1,3 @@
+Artículo 2º—Adición. Adiciónese un Transitorio al Decreto Ejecutivo No. 33744-MEIC del 22 de marzo de 2007, “RTCR 400:2006. Etiquetado de la carne cruda, molida, marinada, adobada, tenderizada y vísceras”, publicado en La Gaceta No. 95 del 18 de mayo de 2007, para que se lea de la siguiente manera.
+“ TRANSITORIO ÚNICO: El LACOMET y SENASA-MAG contarán con un plazo de seis meses, a partir de la publicación del presente reglamento, para desarrollar los métodos de ensayo o análisis necesarios, que permitan efectivamente verificar los incisos materia de su competencia, señalados en el Artículo 2º bis anterior.
+[…]”
