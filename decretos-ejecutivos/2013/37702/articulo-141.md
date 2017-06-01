@@ -1,1 +1,1 @@
-Artículo 141.—El personal técnico, administrativo y docente de la Escuela, deberá ser reclutado y seleccionado según los requisitos que establezca la Ley y este Reglamento y los que para cada clase de puesto, se consignen en el Manual de Puestos de la Policía de Tránsito.
+Artículo 141.— (Derogado por el artículo 71 del Reglamento Interno y de Servicio de la Escuela de Capacitación de la Policía de Tránsito, aprobado mediante decreto ejecutivo N° 40487 del 1° de junio del 2017)

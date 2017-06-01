@@ -1,1 +1,1 @@
-Artículo 143.—El nombramiento de personal, se realizará entre las nóminas que al efecto emita la Dirección General de Recursos Humanos con base en el Registro de Elegibles.
+Artículo 143.— (Derogado por el artículo 71 del Reglamento Interno y de Servicio de la Escuela de Capacitación de la Policía de Tránsito, aprobado mediante decreto ejecutivo N° 40487 del 1° de junio del 2017)

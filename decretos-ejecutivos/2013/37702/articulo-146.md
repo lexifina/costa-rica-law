@@ -1,1 +1,1 @@
-Artículo 146.—Se crea el Comité de Evaluación como un órgano colegiado que cumple sus funciones dentro de la Escuela, teniendo como objetivo principal, valorar los aspectos relacionados con la Evaluación de los (as) estudiantes, emitir recomendaciones sobre dicho proceso, así como resolver en definitiva la aprobación o reprobación de los (as) estudiantes.
+Artículo 146.— (Derogado por el artículo 71 del Reglamento Interno y de Servicio de la Escuela de Capacitación de la Policía de Tránsito, aprobado mediante decreto ejecutivo N° 40487 del 1° de junio del 2017)

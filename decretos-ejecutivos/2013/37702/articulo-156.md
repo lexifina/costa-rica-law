@@ -1,1 +1,1 @@
-Artículo 156.—Las autoridades de la Escuela, ante el quebranto de los deberes y prohibiciones establecidas en este Reglamento, deberán adoptar el procedimiento adecuado según corresponda a faltas leves o graves, de acuerdo a lo establecido en el artículo 124 y 126 de este Reglamento.
+Artículo 156.— (Derogado por el artículo 71 del Reglamento Interno y de Servicio de la Escuela de Capacitación de la Policía de Tránsito, aprobado mediante decreto ejecutivo N° 40487 del 1° de junio del 2017)

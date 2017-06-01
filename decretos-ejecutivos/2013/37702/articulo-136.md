@@ -1,1 +1,1 @@
-Artículo 136.—El Curso Básico proporcionará a los (as) Policías de nuevo ingreso los conocimientos y destrezas fundamentales para el desempeño adecuado de las funciones policiales.
+Artículo 136.— (Derogado por el artículo 71 del Reglamento Interno y de Servicio de la Escuela de Capacitación de la Policía de Tránsito, aprobado mediante decreto ejecutivo N° 40487 del 1° de junio del 2017)

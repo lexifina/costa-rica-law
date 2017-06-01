@@ -1,1 +1,1 @@
-Artículo 145.—El Director General regulará, en cualquier momento, mediante la emisión de directrices el proceso de evaluación de la Escuela.
+Artículo 145.— (Derogado por el artículo 71 del Reglamento Interno y de Servicio de la Escuela de Capacitación de la Policía de Tránsito, aprobado mediante decreto ejecutivo N° 40487 del 1° de junio del 2017)

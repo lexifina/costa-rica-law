@@ -1,1 +1,1 @@
-Artículo 150.—Las diferentes instancias: administrativa, docente o técnico policial de la Escuela están en él deber de velar por el cumplimiento de las normas de este Capítulo, reportando al (la) Director (a) cualquier anomalía o transgresión al mismo.
+Artículo 150.— (Derogado por el artículo 71 del Reglamento Interno y de Servicio de la Escuela de Capacitación de la Policía de Tránsito, aprobado mediante decreto ejecutivo N° 40487 del 1° de junio del 2017)

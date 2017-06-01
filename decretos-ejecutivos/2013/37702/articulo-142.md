@@ -1,1 +1,1 @@
-Artículo 142.—La Dirección de Recursos Humanos del Ministerio deberá disponer de un registro de elegibles para satisfacer las necesidades de personal de la Escuela.
+Artículo 142.— (Derogado por el artículo 71 del Reglamento Interno y de Servicio de la Escuela de Capacitación de la Policía de Tránsito, aprobado mediante decreto ejecutivo N° 40487 del 1° de junio del 2017)

@@ -1,1 +1,1 @@
-Artículo 144.—Para resolver una nómina, el Director de la Policía de Tránsito en coordinación con el Jefe (a) de la Escuela remitirán la recomendación al Consejo, para que éste recomiende el nombramiento al Despacho del Ministro (a).
+Artículo 144.— (Derogado por el artículo 71 del Reglamento Interno y de Servicio de la Escuela de Capacitación de la Policía de Tránsito, aprobado mediante decreto ejecutivo N° 40487 del 1° de junio del 2017)

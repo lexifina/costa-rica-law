@@ -1,1 +1,1 @@
-Artículo 134.—La organización interna y funcional estará a cargo de una Jefatura y una Sub Jefatura.
+Artículo 134.— (Derogado por el artículo 71 del Reglamento Interno y de Servicio de la Escuela de Capacitación de la Policía de Tránsito, aprobado mediante decreto ejecutivo N° 40487 del 1° de junio del 2017)

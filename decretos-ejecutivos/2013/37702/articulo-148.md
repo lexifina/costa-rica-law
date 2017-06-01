@@ -1,3 +1,3 @@
 CAPÍTULO II
 Del régimen interno
-Artículo 148.—Con el fin de regular el orden interno en la Escuela, se establecerán normas para controlar el orden y la disciplina de los estudiantes.
+Artículo 148.— (Derogado por el artículo 71 del Reglamento Interno y de Servicio de la Escuela de Capacitación de la Policía de Tránsito, aprobado mediante decreto ejecutivo N° 40487 del 1° de junio del 2017)

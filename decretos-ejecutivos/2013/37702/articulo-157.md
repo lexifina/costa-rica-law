@@ -1,2 +1,1 @@
-Artículo 157.—La pérdida injustificada de materias, cursos, talleres o cualquiera de las facilidades de educación que se brinde al (la) Policía de Tránsito mediante el presente Reglamento acarreará al (la) servidor (a) el pago del tiempo concedido para tal efecto y la respectiva responsabilidad disciplinaria.
-En el caso de los (las) Oficiales de primer ingreso que no aprueban el Curso Básico Policial se procederá con el despido sin responsabilidad patronal.
+Artículo 157.— (Derogado por el artículo 71 del Reglamento Interno y de Servicio de la Escuela de Capacitación de la Policía de Tránsito, aprobado mediante decreto ejecutivo N° 40487 del 1° de junio del 2017)

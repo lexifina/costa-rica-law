@@ -1,1 +1,1 @@
-Artículo 139.—Los cursos de actualización y especialización que imparte la Escuela los definirá la Dirección General de la Policía de Tránsito, en coordinación con el Director de la Escuela.
+Artículo 139.— (Derogado por el artículo 71 del Reglamento Interno y de Servicio de la Escuela de Capacitación de la Policía de Tránsito, aprobado mediante decreto ejecutivo N° 40487 del 1° de junio del 2017)
