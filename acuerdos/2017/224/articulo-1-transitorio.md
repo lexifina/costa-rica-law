@@ -1,0 +1,1 @@
+Transitorio I.—Las entidades de custodia cuentan con 5 meses a partir de la entrada en vigencia del presente acuerdo para adoptar las medidas necesarias para cumplir con las disposiciones establecidas.
