@@ -1,2 +1,3 @@
-Artículo 44º. -- Las ausencias justificadas del servidor podrán asimilarse a vacaciones, a solicitud suya, cuando así sea autorizado por el Jefe respectivo.
-Se entiende por ausencia justificada aquellas originadas por enfermedad, trámite urgente.
+CAPÍTULO XI
+De la licencias
+Artículo 44. No interrumpirá la continuidad de la relación de servicios, las licencias sin goce de salario, los descansos otorgados legalmente, las incapacidades debidamente justificadas, la renovación inmediata de la prestación u otras causas expresamente señaladas por Ley.

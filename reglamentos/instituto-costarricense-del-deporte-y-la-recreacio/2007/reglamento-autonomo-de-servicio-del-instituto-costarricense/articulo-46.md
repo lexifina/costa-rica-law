@@ -1,3 +1,5 @@
-Artículo 46º. — Los funcionarios podrán disfrutar de licencia ocasional, de conformidad con los requisitos y formalidades que establece el presente Reglamento, según los siguientes casos y condiciones:
-Licencias con goce de salario: Los Coordinadores podrán conceder Cinco días hábiles en casos de matrimonio de los funcionarios, por enfermedad grave o el fallecimiento de alguno de sus padres, hijos, cónyuge, hermanos; tres meses calendario para la servidora que adopte un menor. En caso de nacimiento 5 días hábiles para el padre. Medio día por cumplir años de nacimiento.
-En caso de adopción 10 días hábiles para el padre. Tres días hábiles en caso de traslado de domicilio del funcionario, medio día el día de cumpleaños del servidor. A los efectos anteriores, los funcionarios deberán aportar copias de actas de matrimonio, certificaciones de defunción o de nacimiento, certificados de reconocimiento o de adopción, declaraciones juradas sobre patria potestad y certificaciones de la autoridad de policía sobre cambio de domicilio, respectivamente.
+Artículo 46. Licencias sin goce de salario: El Instituto Costarricense del Deporte y la Recreación podrá otorgar a los funcionarios licencia sin goce de salario, para atender asuntos personales, de la siguiente forma:
+Hasta una semana, otorgado por el Coordinador de Departamento respectivo;
+Hasta un mes, autorizado por la Unidad de Recursos Humanos; con el visto bueno del Director de Dirección.
+Por más de un mes, autorizado por la Dirección Nacional.
+En todos los casos, la autorización y comprobantes deberán ser remitidos a la Unidad de Recursos Humanos, para su valoración y control respectivo.

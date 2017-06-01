@@ -1,3 +1,1 @@
-CAPÍTULO XV
-Del expediente personal
-Artículo 66º. — La Unidad de Recursos Humanos, llevará un registro con la información de cada funcionario, para formar un expediente personal, dándole a éste, el debido mantenimiento.
+Artículo 66. Cada funcionario deberá aportar la información que sea necesaria para la formación y actualización de su expediente, el cual podrá consultar cada vez que lo estime pertinente.

@@ -1,1 +1,1 @@
-Artículo 85º. —El ICODER autorizará y facilitará, la creación de una Comisión de Salud Ocupacional que tendrá por finalidad identificar las causas de los riesgos profesionales, proponer medidas para prevenirlos y vigilar que en el centro de trabajo se cumplan las disposiciones de salud ocupacional.
+Artículo 85. Los funcionarios podrán realizar actividades de formación humanística, intelectual, estética, deportiva, ejercicio físico y recreativo, que les permita el desarrollo de sus aptitudes y la integración de grupos, para un saludable y adecuado estado físico y mental.

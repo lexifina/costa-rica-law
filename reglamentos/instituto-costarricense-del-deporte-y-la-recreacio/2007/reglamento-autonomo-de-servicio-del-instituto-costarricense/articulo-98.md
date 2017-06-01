@@ -1,4 +1,1 @@
-Artículo 98º. —La acción disciplinaria prescribe:
-a. Si dentro de un mes siguientes a la fecha en que el superior jerárquico tuvo conocimiento de los hechos, éstos no se denuncian por escrito ante el Departamento de Recursos Humanos.
-b. Si la instrucción del procedimiento disciplinario se paraliza totalmente por un mes sin justa causa.
-c. Si dentro de los dos meses siguientes a la fecha en que se reciban todos informes y atestados resultantes de la instrucción del procedimiento disciplinario, la Dirección en su caso, no dicta la resolución definitiva.
+Artículo 98. Los términos y plazos del procedimiento disciplinario son ordenatorios y podrán ser prorrogados por el instructor o el órgano director hasta en una mitad más si hay motivos que justifiquen dicha prórroga, siempre que no haya mediado culpa de su parte y no se cause con ello lesión a los derechos de los funcionarios disciplinados. La solicitud de prórroga deberá hacerse ante la Dirección, antes del vencimiento del término o plazo, con expresión de los motivos que la originan.

@@ -1,2 +1,2 @@
-Artículo 34º.—Las ausencias por enfermedad que excedan de tres días, deberá justificarlas el servidor con incapacidad médica, extendida por la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros, según corresponda.
-Las ausencias por enfermedad que no excedan de tres días, podrán ser justificadas por el superior inmediato, previa solicitud escrita del interesado.
+Artículo 34. Cuando la ausencia no sea por enfermedad, el funcionario podrá solicitar que se le rebaje del saldo de sus vacaciones, cuando proceda, o en su defecto, solicitar el rebajo salarial por la jornada correspondiente.
+Las ausencias injustificadas, no solo producirán el rebajo salarial de la jornada, sino también la aplicación de la medida disciplinaria respectiva.

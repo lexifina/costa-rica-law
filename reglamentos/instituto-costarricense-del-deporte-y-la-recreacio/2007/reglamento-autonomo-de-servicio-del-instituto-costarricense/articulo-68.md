@@ -1,3 +1,3 @@
-CAPÍTULO XVI
-De la evaluación del desempeño
-Artículo 68º. —Los funcionarios serán evaluados, por lo menos una vez al año, en cada uno de los factores que intervienen en el desempeño de sus funciones. La evaluación se efectuará conforme lo establezca el Manual de Evaluación del Desempeño, que será emitido por la Unidad de Recursos Humanos y en atención al archivo con los expediente de los funcionarios que posee cada Departamento o Dirección.
+CAPÍTULO XVII
+De las permutas, traslados y reubicaciones
+Artículo 68. Para efectos de permutas, traslados y reubicaciones, se regirá por lo dispuesto en los artículos 69 y 70 del presente Reglamento.

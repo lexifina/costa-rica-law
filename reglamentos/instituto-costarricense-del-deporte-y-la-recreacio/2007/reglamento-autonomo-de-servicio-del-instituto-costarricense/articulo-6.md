@@ -1,1 +1,2 @@
-Artículo 6º. —En su relación con el ICODER, los funcionarios tienen deberes de lealtad, eficiencia, probidad, responsabilidad, confidencialidad, imparcialidad, objetividad y denuncia.
+Artículo 6. En su relación con el Instituto Costarricense del Deporte y la Recreación, los funcionarios tienen deberes de lealtad, eficiencia, probidad, responsabilidad, confidencialidad, imparcialidad, igualdad, objetividad y denuncia.
+Modificado por el Consejo Nacional de Deporte y Recreación, en el acuerdo No. 1 de la Sesión Ordinaria No. 1016-2017, celebrada el 01 de junio del 2017; y mediante STAP 1145-2017.

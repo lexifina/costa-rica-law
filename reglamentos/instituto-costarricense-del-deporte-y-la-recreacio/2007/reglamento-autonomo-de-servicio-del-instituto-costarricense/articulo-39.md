@@ -1,5 +1,1 @@
-Artículo 39º. —El derecho a vacaciones se obtiene cuando el servidor ha laborado 50 semanas de servicio consecutivo. Sin embargo, si no cumpliera ese plazo, por terminación de su relación de servicio, tendrá derecho al pago de vacaciones proporcionales, de la siguiente forma:
-a. Un día por cada mes de trabajo, cuando no haya cumplido el año consecutivo de servicios;
-b. Uno punto veinticinco (1.25) días, por cada mes trabajado, en los casos en que corresponda disfrutar de quince días de vacaciones;
-c. Uno punto ochenta y tres (1.83) días, por cada mes trabajado, cuando corresponda disfrutar de veinte días de vacaciones; y
-d. Dos punto dieciséis (2.16) días, por cada mes trabajado, cuando corresponda disfrutar de veintiséis días hábiles de vacaciones.
+Artículo 39. Las vacaciones deben disfrutarse sin interrupciones. No obstante, si durante el goce de las mismas el funcionario resulta incapacitado por la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros, el período se interrumpe y los días que falten por disfrutar, de los solicitados, se concederán al término de la incapacidad si el funcionario así lo dispone, en coordinación con su superior inmediato.

@@ -1,1 +1,1 @@
-Artículo 27º. —No se reconocerá el tiempo extraordinario laborado sin el visto bueno de previo del Director de Dirección respectivo, en el entendido de que la jornada extraordinaria es de naturaleza excepcional, por lo que no se puede autorizar jornada extraordinaria permanente.
+Artículo 27. El pago de tiempo extraordinario se hará conforme lo establece la ley y los procedimientos que para tales efectos se dicten.

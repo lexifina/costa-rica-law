@@ -1,1 +1,1 @@
-Artículo 94º. —El instructor(a) o el órgano director podrá citar a cualquier servidor(a) del ICODER, para que declare o realice cualquier acto necesario para el desenvolvimiento normal del procedimiento disciplinario o para su decisión final. El servidor(a) citado que, sin justa causa, no compareciere el día y hora que se le indiquen, incurrirá en responsabilidad disciplinaria.
+Artículo 94. Las pruebas serán apreciadas de conformidad con las reglas de la sana crítica, esto es, de acuerdo a la lógica, la ciencia y la experiencia.

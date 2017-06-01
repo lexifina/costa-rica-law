@@ -1,1 +1,3 @@
-Artículo 101º. —La denuncia se presentará por escrito y deberá contener una relación circunstanciada de los hechos, con indicación de los servidores partícipes. El denunciante deberá, asimismo, aportar u ofrecer las pruebas en que funda sus cargos.
+Artículo 101. La denuncia se presentará por escrito y deberá contener una relación circunstanciada de los hechos, con indicación de los funcionarios partícipes. El denunciante deberá, asimismo, aportar u ofrecer las pruebas en que funda sus cargos.
+Artículo 101. Recibida la denuncia por la Dirección o por la Unidad Recursos Humanos y previo a determinar la necesidad o procedencia de iniciar un procedimiento de investigación disciplinaria, la Dirección podrá nombrar al instructor u órgano director del procedimiento de conformidad con lo indicado en la Ley General de la Administración Pública.
+(Nota de Sinalevi: En la publicación de este reglamento se consignó dos veces el artículo N° 101)

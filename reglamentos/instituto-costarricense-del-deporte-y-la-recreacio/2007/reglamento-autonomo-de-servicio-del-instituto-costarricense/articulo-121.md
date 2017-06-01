@@ -1,1 +1,1 @@
-Artículo 121º. —Las medidas disciplinarias que se indican en el presente Capítulo, deberán imponerse dentro del mes siguiente, a aquel en que cometió la falta o que fue de conocimiento del la Dirección Nacional o la Unidad Recursos Humanos.
+Artículo 121. La suspensión del trabajo no podrá decretarse antes de escuchar al interesado y, a los testigos que él hubiera indicado, excepto que haya aceptado, expresamente, la falta que se le imputa.

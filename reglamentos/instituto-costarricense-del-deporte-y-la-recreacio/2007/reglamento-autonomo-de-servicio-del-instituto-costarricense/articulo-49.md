@@ -1,1 +1,1 @@
-Artículo 49º. - El Director (a) Nacional podrá otorgar permisos sin goce de salario, vía excepción, en tiempo, no contemplados en el artículo anterior, siempre que exista acuerdo mutuo entre funcionario y la administración.
+Artículo 49. Dichas licencias deben ser solicitadas con un plazo de treinta días de anticipación y el regreso a su puesto debe comunicarlo en ese mismo término.

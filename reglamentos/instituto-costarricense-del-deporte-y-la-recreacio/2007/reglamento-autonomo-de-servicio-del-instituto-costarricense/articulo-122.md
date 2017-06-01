@@ -1,1 +1,1 @@
-Artículo 122º. —La suspensión del trabajo no podrá decretarse antes de escuchar al interesado y, a los testigos que él hubiera indicado, excepto que haya aceptado, expresamente, la falta que se le imputa.
+Artículo 122. Las decisiones sobre los despidos las tomará la Dirección Nacional, luego de instruida la gestión por el Órgano Director del Procedimiento.

@@ -1,5 +1,1 @@
-Artículo 84º. —Para los efectos del artículo anterior, el ICODER adoptará las medidas necesarias que permitan proteger eficazmente la vida, la salud y la integridad corporal de los servidores, manteniendo en estado adecuado lo relativo
-a. Edificaciones e instalaciones;
-b. Suministro, uso y mantenimiento de los equipos y materiales para protección personal;
-c. Condiciones ambientales; y
-d. Operaciones y procesos de trabajo.
+Artículo 84. El Instituto Costarricense del Deporte y la Recreación autorizará y facilitará, la creación de una Comisión de Salud Ocupacional que tendrá por finalidad identificar las causas de los riesgos profesionales, proponer medidas para prevenirlos y vigilar que en el centro de trabajo se cumplan las disposiciones de salud ocupacional.

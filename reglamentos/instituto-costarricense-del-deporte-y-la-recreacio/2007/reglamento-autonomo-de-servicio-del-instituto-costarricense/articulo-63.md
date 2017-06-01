@@ -1,3 +1,1 @@
-CAPITULO XIV
-REASIGNACIÓN DE PUESTOS
-Artículo 63º. - Además de lo normado en este capítulo, las reasignaciones de puestos se rigen por las políticas emanadas de la Autoridad Presupuestaria.
+Artículo 63. Cuando un funcionario del Instituto Costarricense del Deporte y la Recreación considere que las funciones de su puesto han cambiado sustancialmente puede solicitar al Coordinador de Departamento un estudio de su puesto. El Coordinador de Departamento plantea solicitud al Director de Dirección para que solicite a la Unidad de Recursos Humanos realice el estudio correspondiente.

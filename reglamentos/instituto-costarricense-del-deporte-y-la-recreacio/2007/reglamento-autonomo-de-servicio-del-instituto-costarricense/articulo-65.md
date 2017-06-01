@@ -1,4 +1,1 @@
-Artículo 65º. - Si en el término de un mes calendario el solicitante no recibe respuesta a su planteamiento, puede dirigir la petición de estudio del puesto a la Unidad de Recursos Humanos para que actúe de oficio.
-La reasignación a un puesto solo procederá cuando el servidor reúna los requisitos académicos y legales que señale el manual de cargos.
-Deben transcurrir seis meses entre el momento en que se inicie el cambio de las tareas y responsabilidades del puesto y la presentación de la solicitud a la Unidad de Recursos Humanos.
-Para que un puesto sea reasignado a una clase de mayor nivel salarial, debe haber transcurrido al menos un año desde la última reasignación del mismo.
+Artículo 65. La Unidad de Recursos Humanos, llevará un registro con la información de cada funcionario, para formar un expediente personal, dándole a este, el debido mantenimiento.

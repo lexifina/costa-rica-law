@@ -1,1 +1,3 @@
-Artículo 57º. —En período de lactancia, la servidora podrá disponer de una hora diaria, continua o fraccionada, con goce de salario para amamantar a su hijo. Este permiso será concedido hasta completar un año desde la fecha de nacimiento del menor, siempre que la servidora interesada lo solicite por escrito a la Unidad de Recursos Humanos, aportando un certificado extendido de un médico pediatra de la Caja Costarricense del Seguro Social, en el que conste la necesidad del menor de recibir la leche materna.
+CAPÍTULO XIII
+Beneficios e incentivos económicos
+Artículo 57. Los funcionarios profesionales, podrán acogerse a los beneficios de Carrera Profesional Decreto No. 33048-H; Dedicación Exclusiva, Decreto No. 23669-H, y sus reformas; prohibición según Ley No.5867 y 8422 de aplicación exclusiva a los funcionarios indicados en ella, conformidad con los requisitos y procedimientos establecidos por la normativa vigente.

@@ -1,2 +1,3 @@
-Artículo 82º. —Lo resuelto por la Dirección Nacional, tendrá recurso de revocatoria ante esta misma Dirección y de apelación ante el Consejo Nacional del Deporte y la Recreación los cuales deberán ser interpuestos dentro de un término de tres días hábiles cada uno, posteriores a su notificación.
-La apelación interpuesta será resuelta mediante resolución por el Consejo Nacional del Deporte y la Recreación, misma que agotará la vía administrativa.
+CAPÍTULO XIX
+De la salud ocupacional
+Artículo 82. Es deber del Instituto Costarricense del Deporte y la Recreación procurar el bienestar físico, mental y social de sus servidores, previendo una repartición justa, equitativa y razonable de las tareas acordes con la clase del puesto y la capacidad del funcionario; así como todo daño a la salud por las condiciones o riesgos del trabajo, por lo que prestará especial interés en la seguridad e higiene de cada centro laboral.

@@ -1,1 +1,8 @@
-Artículo 78º. — La Unidad Recursos Humanos dispondrá de un término que no podrá exceder de cinco días hábiles, para dictar el auto inicial del procedimiento administrativo, en el cual se dará traslado de la denuncia al funcionario(a) denunciado(a), concediéndosele un plazo de cinco días hábiles, para que se refiera a los hechos que se le imputan y ofrezca los medios de prueba en descargo que correspondan. Cuando fueren varios(as) servidores(as) los denunciados(as) por los mismos hechos, podrá conocerse de éstos dentro de un mismo procedimiento administrativo. Cuando el funcionario(a) denunciado(a) no ejerciere su defensa, ello no será motivo para tener por ciertos los hechos denunciados y la Unidad Recursos Humanos deberá continuar con el proceso hasta verificar la verdad real y dar por ello concluido el procedimiento.
+Artículo 78. La Unidad Recursos Humanos, para lo estipulado en este capítulo, tendrá las siguientes atribuciones y potestades:
+a. Realizar la investigación de las denuncias por hostigamiento sexual.
+b. Recibir las pruebas testimoniales y recabar las demás probanzas ofrecidas por las partes.
+c. Solicitar a cualquier funcionario, la colaboración necesaria para concluir la investigación.
+d. Verificar que en el proceso no existan errores u omisiones capaces de producir nulidad o indefensión.
+e. Ordenar el traslado del denunciante según corresponda.
+f. Recomendar la sanción que corresponda, de acuerdo con la gravedad del caso y previo el ejercicio del derecho de defensa.
+g. Recomendar la sanción que corresponda, contra aquellos funcionarios que se nieguen a colaborar con la investigación, o bien que conociendo de casos de hostigamiento entorpezcan la investigación y que omitan denunciarlos.

@@ -1,1 +1,3 @@
-Artículo 50º.- Dichas licencias deben ser solicitadas con - un plazo de treinta días de anticipación y el regreso a su puesto debe comunicarlo en ese mismo término.
+Artículo 50. La Dirección Nacional puede otorgar licencias para capacitación a sus funcionarios para aprovechar las becas u otras facilidades que otorguen gobiernos, instituciones y organismos nacionales o extranjeros.
+Las becas que se otorguen deben estar relacionadas y ser atinentes al puesto que ocupe el funcionario. El nivel de especialización requerido lo establece la Dirección Nacional.
+Si la licencia se concede con goce parcial o total de salario, el funcionario deberá suscribir un contrato con el Instituto Costarricense del Deporte y la Recreación y sujetarse a las disposiciones, tanto de dicho contrato, como a las de la citada ley y su reglamento. Lo anterior no regirá cuando la licencia, para tales fines, sea sin goce de salario.

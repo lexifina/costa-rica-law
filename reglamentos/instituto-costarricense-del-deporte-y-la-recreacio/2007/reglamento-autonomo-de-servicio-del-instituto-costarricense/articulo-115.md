@@ -1,3 +1,1 @@
-CAPÍTULO XXI
-De las faltas y sanciones
-Artículo 115º. —En lo que respecta al procedimiento administrativo que debe seguir el Órgano Director en sus gestiones, deberá regirse por lo dispuesto en el Libro Segundo de la Ley General de la Administración Pública.
+Artículo 115. La inobservancia de los deberes y obligaciones, o la violación de las prohibiciones a que se refiere el Reglamento, por parte de los funcionarios en el desempeño de sus funciones, se sancionarán de acuerdo con la gravedad de la falta cometida y siguiendo el procedimiento que se indica en el presente Capítulo.

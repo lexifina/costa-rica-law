@@ -1,3 +1,3 @@
-Artículo 70º. - Las permutas se regirán por las siguientes disposiciones:
-a. Cuando se tratare de puestos de igual clase, se requerirá anuencia de los servidores afectados y de sus jefes.
-b. Si se tratare de puestos de clase diferente se requerirá, además de lo señalado en el inciso anterior, la aprobación de la Unidad de Recursos Humanos, la que deberá determinar si los servidores afectados, reúnen los requisitos respectivos.
+Artículo 70. Los traslados y reubicaciones dentro del Instituto Costarricense del Deporte y la Recreación, se regirán así:
+a. Los traslados y reubicaciones podrán ser acordados unilateralmente por la Dirección Nacional siempre que no se cause grave perjuicio al servidor.
+b. Los traslados hacia una entidad diferente al Instituto Costarricense del Deporte y la Recreación aplica el Decreto N° 22317-MP-H-MIDEPLAN publicado en La Gaceta N°137 del 20 de junio de 1993 y la circular STAP-880-94.

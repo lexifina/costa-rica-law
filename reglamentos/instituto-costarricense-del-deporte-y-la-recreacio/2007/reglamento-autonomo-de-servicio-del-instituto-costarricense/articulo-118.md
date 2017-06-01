@@ -1,1 +1,2 @@
-Artículo 118º. —Se considerarán faltas leves, la violación de las disposiciones contenidas en los artículos 15, literales a., b., c., del artículo 16 literales e., f., h., artículo 17 literales b., c., f., del 18, literales a., del presente Reglamento.
+Artículo 118. Se considerarán faltas de alguna gravedad la violación de las disposiciones del artículo 15, literales d., e., f., g., h., i., j., k., l., del artículo 17 literales e., g., del 18, literales b., c., d., e., f., g., h., q., r., s. artículo 19, literales a., b., c., del presente Reglamento.
+Modificado por el Consejo Nacional de Deporte y Recreación, en el acuerdo No. 1 de la Sesión Ordinaria No. 1016-2017, celebrada el 01 de junio del 2017; y mediante STAP 1145-2017.

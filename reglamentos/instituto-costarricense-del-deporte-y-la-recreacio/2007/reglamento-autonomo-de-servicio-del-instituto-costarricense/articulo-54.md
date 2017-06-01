@@ -1,3 +1,3 @@
-Artículo 54º. - El monto del subsidio que pagará el ICODER, es la diferencia hasta completar el 100% del salario ordinario que esté devengando el funcionario durante los primeros treinta días de su incapacidad.
-Para incapacidades menores de 4 días el ICODER como patrono reconocerá un subsidio de un 80%.
-Por ninguna razón, y en ningún caso de incapacidad otorgada, el monto del subsidio que pagaren los órganos aseguradores sumados a lo que le corresponde cancelar al Estado como patrono, podrá exceder el 100% del salario total del servidor.
+Artículo 54. La funcionaria embarazada gozará obligatoriamente de un subsidio salarial, durante el mes anterior al parto y los tres posteriores a él. Si este se retrasa, no se alterará el término de la licencia, pero si el alumbramiento se anticipa, gozará de los tres meses posteriores al mismo.
+La funcionaria deberá tramitar su incapacidad, por medio del superior inmediato, por lo menos con quince días de anticipación a su retiro, de acuerdo con la fecha, previamente señalada, por el médico.
+El monto que corresponda al pago de este subsidio, deberá ser equivalente al salario de la funcionaria y lo cubrirán por partes iguales, la Caja Costarricense de Seguro Social y el Instituto Costarricense del Deporte y la Recreación.

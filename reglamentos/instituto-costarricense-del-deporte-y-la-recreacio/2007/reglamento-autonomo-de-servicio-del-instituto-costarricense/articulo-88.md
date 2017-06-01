@@ -1,1 +1,3 @@
-Artículo 88º. —Los servidores contarán con los servicios médicos asistenciales dentro de la Institución.
+CAPÍTULO XX
+Del Procedimiento Administrativo
+Artículo 88. El procedimiento que se establece en este capítulo será de observancia obligatoria cuando las faltas atribuidas a los funcionarios puedan dar lugar a la imposición de sanciones de suspensión. Se respetara el debido proceso y en consecuencia, la sanción que corresponda no podrá imponerse sin formación previa de expediente, con amplia audiencia al funcionario para que haga valer sus derechos. Sin embargo, tratándose de amonestaciones solicitadas por la Jefatura inmediata o que se originen de Recursos Humanos por asistencia no se requerirá formación previa de expediente, ni audiencia anticipada al funcionario, pero este gozará de todos los recursos que el presente reglamento y las leyes conexas le confieren.

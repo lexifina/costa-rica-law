@@ -1,1 +1,1 @@
-Artículo 134º. - Este Reglamento se presumirá de conocimiento de los empleados y será de observancia obligatoria para todos los empleados, desde el día de entrada en vigencia.
+Artículo 134. A falta de disposiciones de este Reglamento, aplicable a un caso determinado deberán tenerse como normas supletorias: La Ley General de la Administración Publica, Estatuto del Servicio Civil, Código de Trabajo y demás leyes y reglamentos conexos.

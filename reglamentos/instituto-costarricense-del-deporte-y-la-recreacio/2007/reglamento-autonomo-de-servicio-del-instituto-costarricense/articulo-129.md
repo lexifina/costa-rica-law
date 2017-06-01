@@ -1,3 +1,3 @@
-CAPÍTULO XXII
-De los reclamos
-Artículo 129º. —Las quejas, peticiones, reclamos y sugerencias surgidas en la relación de servicio, deberán ser dirigidas a los Directores o Coordinadores de Departamento. Esto se hará en forma escrita, pero si la urgencia del caso lo amerita, puede hacerse verbalmente. En cualquier caso, se debe proceder en forma libre, respetuosa y objetiva.
+CAPÍTULO XXIII
+De los funcionarios con discapacidad
+Artículo 129. El Instituto Costarricense del Deporte y la Recreación garantizará, de conformidad con la Ley N° 7600 "Ley de Igualdad de Oportunidades de las Personas con Discapacidad en Costa Rica", reglamentos y directrices para la aplicación de esta Ley, igualdad de oportunidades para el ingreso a las personas con discapacidad y el derecho a un empleo adecuado a sus condiciones y necesidades personales.

@@ -1,3 +1,6 @@
-CAPÍTULO XI
-De las licencias
-Artículo 45º. -- No interrumpirá la continuidad de la relación de servicios, las licencias sin goce de salario, los descansos otorgados legalmente, las incapacidades debidamente justificadas, la renovación inmediata de la prestación u otra causa análoga que no termine con esta.
+Artículo 45. Los funcionarios podrán disfrutar de una licencia ocasional, de conformidad con los requisitos y formalidades que establece el presente Reglamento, según los siguientes casos y condiciones:
+Licencias con goce de salario: Los Coordinadores podrán conceder cinco días hábiles en casos de matrimonio de los funcionarios, por enfermedad grave o el fallecimiento de alguno de sus padres, hijos, cónyuge, hermanos, o compañero de hecho; tres meses calendario para la madre funcionaria que adopte un menor. En caso de nacimiento 5 días hábiles para el padre o compañero de hecho. Medio día por cumplir años de nacimiento.
+En caso de adopción 10 días hábiles para el padre funcionario o compañero de hecho. Tres días hábiles en caso de traslado de domicilio del funcionario, medio día el día de cumpleaños del funcionario.
+A los efectos anteriores, los funcionarios deberán aportar copias de actas de matrimonio, certificaciones de defunción o de nacimiento, certificados de reconocimiento o de adopción, declaraciones juradas sobre patria potestad y certificaciones de la autoridad de policía sobre cambio de domicilio, respectivamente.
+El funcionario que solicite la licencia por cambio de residencia, no podrá solicitarla nuevamente hasta que haya transcurrido un período de al menos 5 años desde que se le concediera dicha licencia.
+Modificado por el Consejo Nacional de Deporte y Recreación, en el acuerdo No. 1 de la Sesión Ordinaria No. 1016-2017, celebrada el 01 de junio del 2017; y mediante STAP 1145-2017.

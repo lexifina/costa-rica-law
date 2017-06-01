@@ -1,1 +1,1 @@
-Artículo 120º. —Serán consideradas faltas graves, la infracción a las disposiciones de los artículos 15, literales n., o., del artículo 16 literales a., b., c., d., g., i., artículo 17 literales a., d., h., del 18, literales i., j., k., l., m., n.,o,p, del presente Reglamento.
+Artículo 120. Las medidas disciplinarias que se indican en el presente Capítulo, deberán imponerse dentro del mes siguiente, a aquel en que cometió la falta o que fue de conocimiento de la Dirección Nacional o la Unidad Recursos Humanos.

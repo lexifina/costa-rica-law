@@ -1,4 +1,1 @@
-Artículo 60.—Se crea la Unidad o Programa de Capacitación que depende jerárquicamente del Director(a) Nacional, el encargado realizará anualmente un diagnóstico de necesidades de capacitación y elaborará un plan de capacitación para los funcionarios del ICODER. De acuerdo con la asignación presupuestaria.
-El plan de capacitación será aprobado por el Director Nacional, la inclusión o exclusión de un evento de capacitación debe contar con su visto bueno.
-A la unidad de capacitación o encargado del programa le corresponde coordinar todo lo relacionado con la capacitación y recibir las solicitudes de capacitación planteadas por los jefes y los funcionarios las cuales presentará a la Comisión de Capacitación y Becas del ICODER para su análisis y recomendación al Director Nacional de los candidatos a capacitar.
-(Así reformado mediante sesión ordinaria N° 751-2011 del 31 de marzo del 2011)
+Artículo 60. El Instituto Costarricense del Deporte y la Recreación le otorgará a sus funcionarios 20 medios días de permiso para que presenten su tesis de pre-grado, grado o post grado.

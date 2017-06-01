@@ -1,1 +1,3 @@
-Artículo 114º. —La resolución se notificará al interesado personalmente o en su casa de habitación. Como prueba de la notificación servirá la copia de ésta firmada por quien la reciba y por el notificador. Si aquél rehusare firmar, bastará la firma del notificador, quien deberá dejar constancia de lo ocurrido. En todo caso se indicará con precisión la hora y fecha en que se practicó dicha diligencia.
+CAPÍTULO XXI
+De las faltas y sanciones
+Artículo 114. En lo que respecta al procedimiento administrativo que debe seguir el Órgano Director en sus gestiones, deberá regirse por lo dispuesto en el Libro Segundo de la Ley General de la Administración Pública.

@@ -1,2 +1,2 @@
-Artículo 35º.—Cuando la ausencia no sea por enfermedad, el servidor podrá solicitar que se le rebaje del saldo de sus vacaciones, cuando proceda, o en su defecto, solicitar el rebajo salarial por la jornada correspondiente.
-Las ausencias injustificadas, no sólo producirán el rebajo salarial de la jornada, sino también la aplicación de la medida disciplinaria respectiva.
+Artículo 35. Se considerará llegada tardía, la presentación al trabajo después de diez minutos de la hora señalada para el comienzo de las labores de la jornada respectiva.
+En casos especiales y atendiendo la naturaleza del trabajo, los superiores inmediatos, podrán justificar las llegadas tardías de un funcionario, ante la Unidad de Recursos Humanos

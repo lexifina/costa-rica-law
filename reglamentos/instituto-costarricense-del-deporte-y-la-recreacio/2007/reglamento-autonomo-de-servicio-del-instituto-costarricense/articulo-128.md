@@ -1,1 +1,3 @@
-Artículo 128º. —Las faltas no señaladas en este Reglamento, serán sancionadas conforme lo establezca el Código de Trabajo, y demás leyes conexas y supletorias urgentes.
+CAPÍTULO XXII
+De los reclamos
+Artículo 128. Las quejas, peticiones, reclamos y sugerencias surgidas en la relación de servicio, deberán ser dirigidas a los Directores o Coordinadores de Departamento. Esto se hará en forma escrita, pero si la urgencia del caso lo amerita, puede hacerse verbalmente. En cualquier caso, se debe proceder en forma libre, respetuosa y objetiva.

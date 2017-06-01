@@ -1,1 +1,7 @@
-Artículo 28º. —El pago de tiempo extraordinario se hará conforme lo establece la ley y los procedimientos que para tales efectos se dicten.
+CAPÍTULO IX
+Del registro de asistencia, ausencias, llegadas tardías y omisiones
+Artículo 28. El registro de asistencia de los funcionarios se llevará mediante reloj marcador o acta de registro donde no haya reloj marcador.
+Cuando no funcione el reloj marcador, dicho control se llevará a cabo valiéndose de un libro, en el cual se apuntará las horas de entrada y salida en el cual el funcionario debe firmar. El libro de registro debe encontrarse sellado por folio por la Auditoría Interna y su manejo compete exclusivamente a la Unidad de Recursos Humanos.
+A juicio del Director y de los Directores, quedan excluidos de la obligación de registrar su asistencia, únicamente los funcionarios a quienes les corresponda habitualmente ejercer su trabajo fuera de la oficina, o cuando por la naturaleza de las funciones deba trasladarse constantemente a otras instituciones para el desarrollo efectivo de sus labores, y que así lo hubieran demostrado, mediante boleta de justificación.
+A solicitud del Director, cuando ocurra algún cambio en las condiciones del trabajo, la Unidad de Recursos Humanos podrá revocar las autorizaciones concedidas, sin que por ello el funcionario pueda alegar perjuicio alguno o incluso derecho adquirido.
+Modificado por el Consejo Nacional de Deporte y Recreación, en el acuerdo No. 1 de la Sesión Ordinaria No. 1016-2017, celebrada el 01 de junio del 2017; y mediante STAP 1145-2017.

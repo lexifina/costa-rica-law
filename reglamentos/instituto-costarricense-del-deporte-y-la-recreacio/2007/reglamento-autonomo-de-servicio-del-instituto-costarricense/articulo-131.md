@@ -1,1 +1,1 @@
-Artículo 131º. —El ICODER proporcionará las facilidades con el fin de que todos los (las) servidores (as), sin discriminación alguna, puedan capacitarse y superarse en el empleo.
+Artículo 131. El Instituto Costarricense del Deporte y la Recreación facilitará la participación de los funcionarios en programas de capacitación cuando sufran discapacidad en razón del trabajo que realizan.

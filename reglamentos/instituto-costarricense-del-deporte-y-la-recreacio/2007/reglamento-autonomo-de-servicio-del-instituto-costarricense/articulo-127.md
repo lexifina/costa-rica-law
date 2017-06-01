@@ -1,1 +1,1 @@
-Artículo 127º. —El despido de los funcionarios se efectuará siguiendo el procedimiento que establece el presente Reglamento.
+Artículo 127. Las faltas no señaladas en este Reglamento, serán sancionadas conforme lo establezca el Código de Trabajo y demás leyes conexas y supletorias urgentes.

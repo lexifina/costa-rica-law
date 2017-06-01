@@ -1,3 +1,5 @@
-Artículo 71 º. - Los traslados y reubicaciones se regirán así:
-a. Los traslados y reubicaciones podrán ser acordados unilateralmente por
-el Director (a) Nacional siempre que no se cause grave perjuicio al servidor.
+CAPÍTULO XVIII
+Del hostigamiento o acoso sexual y discriminación a la población sexualmente diversa
+Artículo 71. Para efectos de definición, regulación y manifestaciones de casos de Hostigamiento Sexual donde intervengan los funcionarios, se deberá actuar por lo que al efecto establece la ley vigente contra el Hostigamiento Sexual en el Empleo y la Docencia.
+El funcionario debe velar por que los subalternos, superiores y demás funcionarios de la Institución, no incurran en prácticas discriminatorias hacia ningún funcionario o usuario de la Institución por razones de edad, etnia, sexo, religión, preferencia sexual, estado civil, simpatía política, estatus social, filiación, discapacidad, afiliación sindical o deportiva, situación económica, o cualquier otra forma análoga de discriminación. En caso de tener noticia, ya sea de manera personal o por interpósita persona, de que algún funcionario incurrió en estas prácticas, instruir para el inicio del procedimiento sancionatorio correspondiente.
+Modificado por el Consejo Nacional de Deporte y Recreación, en el acuerdo No. 1 de la Sesión Ordinaria No. 1016-2017, celebrada el 01 de junio del 2017; y mediante STAP 1145-2017.

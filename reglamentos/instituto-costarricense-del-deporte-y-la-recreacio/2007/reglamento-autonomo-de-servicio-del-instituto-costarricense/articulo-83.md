@@ -1,3 +1,5 @@
-CAPÍTULO XIX
-De la salud ocupacional
-Artículo 83º. —Es deber del ICODER procurar el bienestar físico, mental y social de sus servidores, previendo una repartición justa, equitativa y razonable de las tareas acordes con la clase del puesto y la capacidad del servidor; así como todo daño a la salud por las condiciones o riesgos del trabajo, por lo que prestará especial interés en la seguridad e higiene de cada centro laboral.
+Artículo 83. Para los efectos del artículo anterior, el Instituto Costarricense del Deporte y la Recreación adoptará las medidas necesarias que permitan proteger eficazmente la vida, la salud y la integridad corporal de los servidores, manteniendo en estado adecuado lo relativo a:
+a. Edificaciones e instalaciones.
+b. Suministro, uso y mantenimiento de los equipos y materiales para protección personal.
+c. Condiciones ambientales; y
+d. Operaciones y procesos de trabajo.

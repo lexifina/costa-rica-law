@@ -1,1 +1,1 @@
-Artículo 76º. —El procedimiento deberá ser llevado a cabo, resguardando la imagen, confidencialidad y los principios que rigen la actividad administrativa, sopena de incurrir en falta grave.
+Artículo 76. Cuando el denunciante lo solicite y Unidad Recursos Humanos considere conveniente, podrá ser reubicado, en forma temporal, en cualquier momento del proceso.

@@ -1,1 +1,4 @@
-Artículos 59º-- Los funcionarios del ICODER, y sus familiares, hasta segundo grado de consanguinidad, tendrán acceso para disfrutar gratuitamente las instalaciones deportivas y recreativas. El ICODER le proporcionará un carné de pensionado a los funcionarios que se acojan a la pensión y tendrán derecho al uso de las instalaciones.
+Artículo 59. La Unidad de Recursos Humanos es la unidad competente de elaborar anualmente un diagnóstico de necesidades de capacitación y elaborará un plan de capacitación para los funcionarios del Instituto Costarricense del Deporte y la Recreación. De acuerdo con la asignación presupuestaria.
+El plan de capacitación será aprobado por la Dirección Nacional, la inclusión o exclusión de un evento de capacitación debe contar con su visto bueno.
+A la Unidad de Recursos Humanos, le corresponde coordinar todo lo relacionado con la capacitación y recibir las solicitudes de capacitación planteadas por los jefes y los funcionarios.
+Modificado por el Consejo Nacional de Deporte y Recreación, en el acuerdo No. 1 de la Sesión Ordinaria No. 1016-2017, celebrada el 01 de junio del 2017; y mediante STAP 1145-2017.
