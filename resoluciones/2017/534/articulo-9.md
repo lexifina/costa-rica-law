@@ -1,0 +1,1 @@
+Artículo 9º—Plazo para resolver: La Dirección General de Hacienda deberá notificar la resolución correspondiente dentro del plazo de un mes contabilizado a partir de la recepción del expediente, remitiendo copia de la misma a la Administración Tributaria que inició el trámite para su registro y correspondiente ejecución.
