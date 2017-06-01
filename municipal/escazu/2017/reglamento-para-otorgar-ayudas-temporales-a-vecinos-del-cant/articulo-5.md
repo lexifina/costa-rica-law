@@ -1,0 +1,1 @@
+Artículo 5.- Del otorgamiento de la ayuda temporal: La ayuda temporal a una persona o familia solicitante, se otorgará por una única vez por año presupuestario y ésta se brindará en dinero en efectivo. No se tramitarán ayudas temporales durante años consecutivos por un mismo motivo de solicitud.
