@@ -1,0 +1,1 @@
+ARTÍCULO 25. REGLAMENTO DE RENOVACIÓN URBANA CANTONAL. Cuando el gobierno municipal decida emitir su propio Reglamento de Renovación Urbana Cantonal, que formará parte del Plan Regulador, deberá definir las respectivas áreas denominadas Áreas con Potencial de Renovación Urbana, así como respetar lo dispuesto en el Capítulo VI Renovación Urbana de la Ley de Planificación Urbana.

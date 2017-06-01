@@ -1,0 +1,1 @@
+ARTÍCULO 2. ÁMBITO DE APLICACIÓN. Al amparo de lo establecido en la Ley de Planificación Urbana y sus reformas, el presente Reglamento se aplicará en cantones cuyos gobiernos municipales no hubieren promulgado sus propias disposiciones locales en materia de Renovación Urbana.

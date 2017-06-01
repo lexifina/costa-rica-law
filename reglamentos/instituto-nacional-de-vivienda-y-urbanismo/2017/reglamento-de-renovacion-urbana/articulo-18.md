@@ -1,0 +1,2 @@
+ARTÍCULO 18. REAJUSTE DE TERRENOS. El reajuste de terrenos se realizará según lo dispuesto en los artículos 52 y 53 de la Ley de Planificación Urbana.
+Para la aplicación de este instrumento, el gobierno municipal deberá establecer un Modelo de Reparto de Cargas y Beneficios, así como verificar la suscripción de un Convenio de Reparto de Cargas y Beneficios para cada Plan Proyecto de Renovación Urbana, que deberá cumplir con lo indicado en los artículos 20 y 21 del presente Reglamento.

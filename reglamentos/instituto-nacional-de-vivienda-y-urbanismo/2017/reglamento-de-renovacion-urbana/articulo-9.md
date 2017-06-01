@@ -1,0 +1,2 @@
+ARTÍCULO 9. PARTICIPACIÓN CIUDADANA. Para todo Plan Proyecto de Renovación Urbana, el gobierno municipal implementará mecanismos que promuevan la participación ciudadana de la población beneficiada, en sus etapas de formulación y gestión.
+Para efectos del seguimiento, el gobierno municipal podrá nombrar una comisión, contemplando lo establecido en los artículos 59 y 60 de la Ley Nº 4240, o normativa vigente en la materia.

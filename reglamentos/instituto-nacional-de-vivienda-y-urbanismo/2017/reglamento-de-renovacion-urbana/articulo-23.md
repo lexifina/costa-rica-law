@@ -1,0 +1,2 @@
+ARTÍCULO 23. CONTRIBUCIONES ESPECIALES. Cuando el gobierno municipal invierta en obra pública y mejoras urbanas que beneficien a la comunidad, podrá establecer un tributo que no debe tener un destino ajeno a la financiación de las obras públicas. Esto con la intención de recuperar la inversión inicial realizada.
+Las Contribuciones Especiales se deben aplicar según lo establecido en el Código de Normas y Procedimientos Tributarios, la Ley de Planificación Urbana y el Código Municipal.
