@@ -18,7 +18,7 @@ a. MAÍZ BLANCO | $t | 43,55 | -
 b. FRIJOL | $t | 47,37 | -
 c. ARROZ GRANZA | $t | 70,71 | -
 C. TARIFAS GENERALES •/ | | |
-1. ALMAC. EN SILOS (P.LA CHINA Y SILOS BANCA) 1/ | $/T/MES | 7,03 | 2,66
+1. ALMAC. EN SILOS (Planta La China y Silos Barranca): | $/T/MES | 5,63 (Así reformada la tarifa por acuerdo N° 39063 del 1 de junio de 2017) | 2,06 (meses adicionales) (Así reformada la tarifa por acuerdo N° 39063 del 1 de junio de 2017)
 2. TRASIEGO INTERNO DE GRANOS A GRANEL | $/T | 7,03 | 7,03
 3. ROMANA CAMIONERA: PESADO DE VEHÍCULOS | $/VEHÍCULO | 6,52 | -
 4. USO DE SILOS DE 2000 T: (SIN.LIMP. CNP) | $/SILO/MES | 219.00 | 142,82

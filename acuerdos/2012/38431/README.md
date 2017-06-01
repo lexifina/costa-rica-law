@@ -14,3 +14,4 @@ Tarifas de los servicios en Plantas para la venta de servicios de almacenamiento
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-08-01 | la propia norma |
+| 2 | 2017-06-01 | Acuerdo 39063 (2017-06-01) |
