@@ -1,1 +1,0 @@
-Artículo 9º—Sanciones. La autorización podrá ser revocada por la Administración Forestal del Estado, en el momento en que se compruebe la violación de alguna norma de la Ley Forestal, su reglamento o las regulaciones del presente Decreto Ejecutivo, previo aviso por escrito al interesado; sin perjuicio de las demás sanciones civiles, penales y/o administrativas que procedan.
