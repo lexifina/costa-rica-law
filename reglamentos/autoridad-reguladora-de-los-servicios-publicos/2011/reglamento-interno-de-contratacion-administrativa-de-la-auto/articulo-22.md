@@ -1,1 +1,0 @@
-Artículo 22.—Intercambio de bases de datos. La Proveeduría podrá accesar o intercambiar las bases de datos de registro de proveedores de otras instituciones de conformidad con el artículo 120 del RLCA.

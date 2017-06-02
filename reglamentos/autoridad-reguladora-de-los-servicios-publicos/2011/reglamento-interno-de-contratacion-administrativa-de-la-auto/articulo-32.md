@@ -1,2 +1,0 @@
-Artículo 32.—Uso indebido de la tarjeta. Si la Dirección de Finanzas detecta un posible uso indebido de la tarjeta por parte del tarjetahabiente, deberá reportarlo a la Dirección General de Operaciones para que se le informe al Despacho del Regulador General sobre lo acontecido a fin de que se determine la apertura o no del procedimiento administrativo disciplinario.
-(Así adicionado mediante sesión extraordinaria N° 35-2014 del 23 de junio del 2014)

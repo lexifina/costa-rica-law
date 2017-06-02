@@ -1,2 +1,0 @@
-Transitorio II.—Los Directores de las actuales Direcciones de Servicios de Energía, Aguas y Ambiente, y Transportes, o quienes los sustituyan, podrán solicitar el inicio de los procedimientos de contratación hasta tanto se encuentren debidamente nombrados los Intendentes(*) de Energía, Aguas y Saneamiento y Transporte Público.
-(*)(Modificada su denominación mediante sesión ordinaria N° 22-2012 del 21 de marzo del 2012)

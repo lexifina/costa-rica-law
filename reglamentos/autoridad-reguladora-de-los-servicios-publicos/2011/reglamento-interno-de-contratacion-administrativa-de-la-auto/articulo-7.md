@@ -1,8 +1,0 @@
-Artículo 7º—De la Dirección General de Asesoría Jurídica y Regulatoria. Corresponde a la DGJR, además de las funciones establecidas en el RIOF, brindar asesoría legal para la atención de los distintos procedimientos de contratación que lleve a cabo la ARESEP. Para ello, cuenta al menos con los siguientes deberes y obligaciones:
-1. Emitir recomendaciones de orden jurídico a los borradores de carteles que sean sometidos a su consideración, cuando se trate de procedimientos de licitación o de contrataciones directas autorizadas o por excepción cuyo monto alcance el límite inferior de una licitación abreviada
-2. Dictaminar desde el punto de vista legal, sobre la procedencia o improcedencia de la subsanación de ofertas cuando se trate de procedimientos de licitación o de contrataciones directas autorizadas o por excepción cuyo monto alcance el límite inferior de una licitación abreviada.
-3. Rendir los dictámenes legales sobre la admisibilidad de las ofertas participantes en los concursos mencionados.
-4. Emitir los criterios jurídicos sobre los recursos que se presenten en los procesos de contratación administrativa en los concursos mencionados.
-5. Elaborar los contratos administrativos que requieran de formalización.
-6. Instruir las acciones sancionatorias contra los o las oferentes y proveedores, una vez detectado algún incumplimiento o irregularidad en un proceso de compra, coordinando con las demás dependencias involucradas que correspondan.
-7. Otorgar la aprobación interna de aquellas contrataciones que así lo requieran, de conformidad con lo establecido en el Reglamento sobre el refrendo de las contrataciones de la administración pública, emitido por la CGR.

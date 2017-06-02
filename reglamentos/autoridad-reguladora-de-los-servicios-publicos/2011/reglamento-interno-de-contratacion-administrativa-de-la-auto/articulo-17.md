@@ -1,7 +1,0 @@
-Artículo 17.—Procedimiento de inscripción. El procedimiento de inscripción en el Registro de Proveedores de la Autoridad Reguladora contempla los siguientes pasos:
-1. La Proveeduría invitará a los interesados o interesadas en integrar el Registro de Proveedores, mediante publicación en el diario oficial La Gaceta, en la página web de la ARESEP y facultativamente en un diario de circulación nacional, al menos una vez al año. No obstante lo anterior, todo interesado o interesada en ser incluido en el Registro de Proveedores, podrá solicitar su incorporación en cualquier momento, sin que exista un tiempo establecido para hacerlo.
-2. Los interesados o interesadas deben de completar en forma electrónica el respectivo formulario el cual debe ser accesado desde la página Web de la ARESEP. También puede entregarse el formulario en forma física en las oficinas de la ARESEP.
-3. Una vez que el interesado o interesada se haya inscrito, deberá remitir a la Proveeduría las certificaciones, declaraciones juradas y demás documentación física que se señala.
-4. La Proveeduría cuenta con un plazo máximo de tres días hábiles para verificar si el interesado aportó toda la información electrónica y física solicitada.
-5. En aquellos casos en que la información sea defectuosa o poco clara, se prevendrá al interesado o interesada su subsanación, para lo cual se le concederá un plazo máximo de cinco días hábiles.
-6. Si la prevención es atendida correctamente, se otorgará la inscripción; caso contrario, la solicitud se tendrá por rechazada y se notificará al interesado.

@@ -1,5 +1,0 @@
-Artículo 9º—De la Gerencia General. Corresponde a la Gerencia General, realizar las funciones gerenciales de administración financiera establecidas en el RIOF y las siguientes funciones, las cuales realizará a través de las áreas a su cargo:
-1. A través del área de Tesorería, realizar los pagos respectivos a los proveedores de bienes y servicios no personales una vez que la Proveeduría haya informado sobre el recibido a satisfacción de los mismos.
-2. Con la colaboración de la DGJR y con el Área de Tesorería emitir las resoluciones que permitan llevar a cabo el cobro de multas o sanciones a los contratistas que se deriven de los procedimientos de contratación, en lo que a cada una de ellas corresponde, previa solicitud de la Proveeduría.
-3. A través del área de Tesorería, recibir, custodiar y devolver las garantías de participación y cumplimiento que se rindan producto del procedimiento de contratación.
-4. A través del área de Tesorería, custodiar los contratos originales firmados producto de un procedimiento de contratación.

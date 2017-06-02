@@ -1,2 +1,0 @@
-Artículo 36.—Pago. Cuando la Dirección de Finanzas comunique al Departamento de Proveeduría que la cuenta bancaria tiene contenido económico, el tarjetahabiente, solicitará al encargado de custodiar la tarjeta, realizará el pago y devolverá de inmediato al custodio la tarjeta y hará entrega del comprobante de pago.
-(Así adicionado mediante sesión extraordinaria N° 35-2014 del 23 de junio del 2014)

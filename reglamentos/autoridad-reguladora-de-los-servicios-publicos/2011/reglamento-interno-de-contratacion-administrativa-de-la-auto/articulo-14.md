@@ -1,1 +1,0 @@
-Artículo 14.- Coordinación interna con respecto al cartel. Las aclaraciones, modificaciones y prórrogas al plazo de recepción de ofertas serán incluidas por la Proveeduría, la cual deberá coordinarlas previamente con el área solicitante respectiva y demás unidades intervinientes

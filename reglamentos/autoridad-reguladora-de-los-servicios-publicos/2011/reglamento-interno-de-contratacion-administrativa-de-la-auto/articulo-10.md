@@ -1,3 +1,0 @@
-Artículo 10. —De la Junta Directiva. Corresponde a la Junta Directiva aprobar los contratos y las órdenes de compra de obras y servicios originados en una licitación pública o en una contratación directa vía excepción, cuyo monto ascienda al establecido para una licitación pública.
-Los contratos y órdenes de compra de obras y servicios originados en una licitación abreviada o en una contratación directa vía excepción, cuyo monto ascienda al establecido para una licitación abreviada, serán aprobados por el Regulador General.
-Los contratos y órdenes de compra de obras y servicios originados en una contratación directa cuyo monto no sobrepase al establecido para una contratación directa de escasa cuantía, serán aprobados por el Gerente General.
