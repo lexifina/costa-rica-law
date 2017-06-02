@@ -1,1 +1,0 @@
-Artículo 3°—Adición: Se adiciona al Reglamento Interno de Contratación Administrativa de la Autoridad Reguladora de los Servicios Públicos, en el artículo denominado Integración de Normas después de la frase “y su Reglamento”, lo siguiente “y el Reglamento de Caja Chica”.
