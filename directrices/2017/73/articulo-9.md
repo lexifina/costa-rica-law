@@ -1,0 +1,1 @@
+Artículo 9°.- Se instruye a los jerarcas de las instituciones descentralizadas para que brinden los medios y facilidades pertinentes para que los órganos regulados en los artículos 6° y 7° de esta Directriz puedan cumplir sus funciones en forma adecuada.

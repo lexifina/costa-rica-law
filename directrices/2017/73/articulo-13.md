@@ -1,0 +1,1 @@
+Artículo 13.- La Comisión Nacional por un Gobierno Abierto dará seguimiento a la puesta en práctica de lo establecido en esta Directriz, para lo cual habilitará una cuenta electrónica y dará debida divulgación.

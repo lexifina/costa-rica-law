@@ -1,0 +1,1 @@
+Artículo 2°.- Para efectos de la presente Directriz se entenderá por información de acceso público cualquier tipo de dato que sea generado o resguardado por quien ejerza una función o potestad pública y que no tenga su acceso restringido por ley.
