@@ -1,0 +1,2 @@
+Artículo 8°.- Dilación indebida.
+Cuando haya transcurrido el plazo contemplado en el artículo 5 de este Decreto sin obtener la información pública solicitada, la persona interesada podrá presentar ante el Oficial de Acceso a la Información establecido en este Decreto, la queja respectiva para la atención de la omisión de su interés. Lo anterior, sin perjuicio de los recursos administrativos o jurisdiccionales que confiere el ordenamiento.

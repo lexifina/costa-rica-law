@@ -1,0 +1,2 @@
+Artículo 4 º— Acuse de recibido.
+El funcionario que reciba la solicitud de información pública deberá extender inmediatamente un comprobante de acuse de recibido, con indicación de la fecha de recibo de la solicitud, nombre de quien la recibe y la unidad receptora. Este comprobante deberá extenderse de forma escrita, sea física o electrónica, a través del medio indicado por el solicitante para recibir notificaciones, según el artículo 3 de este decreto.
