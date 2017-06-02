@@ -1,0 +1,1 @@
+Artículo 2°—Alcances. Este reglamento es de acatamiento obligatorio para todas las personas, físicas, jurídicas, públicas o privadas, generadoras de residuos sólidos ordinarios de competencia municipal, que se encuentren localizados dentro del ámbito territorial del cantón de Esparza
