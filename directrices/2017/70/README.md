@@ -14,3 +14,4 @@ Sobre la eficiencia, eficacia y transparencia en la gestión presupuestaria de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-03-31 | la propia norma |
+| 2 | 2017-06-02 | Directriz 78 (2017-06-02) |

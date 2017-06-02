@@ -17,6 +17,10 @@ m. Plazas técnicas relacionadas estrictamente con la atención de emergencias d
 n. Las plazas para el Ministerio de Hacienda correspondientes a la Administración Financiera, la Secretaría Técnica de la Autoridad Presupuestaria y las de los programas de recaudación.
 o. Plazas destacadas en el cuido de los niños y niñas (Tías sustitutas).
 p. Las plazas vacantes del Ministerio de Trabajo que se trasladen a puestos creados para la implementación y gestión del Código Procesal Laboral.
+q. Las plazas vacantes de la Procuraduría General de la República que se trasladen a puestos creados para la implementación y gestión del Código Procesal Laboral.
+(Así adicionado el inciso anterior por el artículo 1° de la directriz N° 78 del 2 de junio de 2017)
+r. Las plazas vacantes que se generen como producto de la cadena originada por la utilización de un puesto vacante autorizado en aplicación del 50%.
+(Así adicionado el inciso anterior por el artículo 1° de la directriz N° 78 del 2 de junio de 2017)
 En los primeros diez días hábiles vencido cada trimestre, los ministerios, las entidades y órganos desconcentrados que reciben transferencia de Gobierno para el pago de salarios deberán remitir, a la Secretaría Técnica de la Autoridad Presupuestaria (ST AP), un informe de plazas vacantes que consigne el número de puesto, código y nombre de la clase, así como la información que indique desde cuándo está vacante, costo mensual de la misma (incluye salario base, pluses, aguinaldo y contribuciones sociales). Deberán informar además sobre la utilización de vacantes.
 Los Ministerios deberán remitir a la Dirección General de Presupuesto Nacional del Ministerio de Hacienda (DGPN) copia de la información referida en el párrafo anterior.
-Ninguna instancia queda autorizada para conocer o conferir excepc10nes adicionales a las ya contenidas en el presente artículo
+Ninguna instancia queda autorizada para conocer o conferir excepc10nes adicionales a las ya contenidas en el presente artículo.
