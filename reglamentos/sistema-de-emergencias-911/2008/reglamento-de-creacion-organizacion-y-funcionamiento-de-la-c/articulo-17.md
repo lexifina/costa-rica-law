@@ -1,4 +1,0 @@
-TÍTULO VI
-De los/as usuarios/as
-Artículo 17.—De la presentación de inconformidades, denuncias o sugerencias de los usuarios. Toda persona individual o colectiva podrá plantear ante la Contraloría de Servicios, inconformidades, denuncias o sugerencias, respecto a la prestación de los servicios brindados por la institución y sobre las actuaciones de funcionarios en el ejercicio de sus labores cuando se estime que afecten directa o indirectamente los servicios prestados, lo que podría generar responsabilidad disciplinaria.
-Podrán plantearse requiriendo a la administración la reserva o secreto de la identidad del gestionante, la que deberá ser guardada especialmente en aquellos casos en los que la persona lo solicite o se considere que, como consecuencia de las investigaciones, pueda afectarse la continuidad y atención de los servicios que deban brindárseles, o bien, poner en peligro su integridad física.

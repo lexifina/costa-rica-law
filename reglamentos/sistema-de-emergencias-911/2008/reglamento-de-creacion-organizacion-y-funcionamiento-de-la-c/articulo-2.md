@@ -1,1 +1,0 @@
-Artículo 2º—Actuaciones. La Contraloría será competente para actuar de oficio o a petición de parte, realizar investigaciones, visitar las dependencias, requerir la información pertinente para el cumplimiento de sus funciones.

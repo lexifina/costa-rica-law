@@ -1,1 +1,0 @@
-Artículo 12.—Manuales de Servicio al cliente. La contraloría deberá elaborar y poner a disposición de la institución un Manual de servicio al cliente, que establezca las condiciones que deben cumplir los funcionarios al atender a los /as usuario/as. Esas condiciones serán de actitud (valorar al usuario como persona) y aptitud (conocer el servicio que se ofrece).
