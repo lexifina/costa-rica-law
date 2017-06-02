@@ -17,6 +17,11 @@ Tiene las siguientes funciones:
 13. Mantener actualizados los registros y controles del almacén de artículos de existencias.
 14. Realizar un inventario anual de artículos de existencias en el almacén, y rendir el informe respectivo con sus resultados y sus justificantes.
 15. Mantener actualizados los diferentes registros y controles que se llevan para los diferentes procesos de contrataciones de bienes y servicios que se tramitan.
-16. Administrar y controlar los contratos de bienes muebles e inmuebles y servicios que requiere la Institución para su operación, así como la recepción, almacenamiento y distribución oportuna de los materiales y suministros requeridos en los diferentes departamentos.
-17. Cooperar con otros funcionarios y dependencias en la consecución del fin público de Aresep.
-18. Todas aquellas otras funciones que le asigne la Junta Directiva, el Regulador General o el Director General de Operaciones, atinentes al Departamento de Proveeduría.
+16. Rendir criterio jurídico sobre los contratos de bienes y servicios que deba aprobar la Junta Directiva, de acuerdo con el ordenamiento jurídico.
+(Así reformado el inciso anterior mediante sesión N° 26-2017 del 2 de junio del 2017)
+17. Administrar y controlar los contratos de bienes muebles e inmuebles y servicios que requiere la Institución para su operación, así como la recepción, almacenamiento y distribución oportuna de los materiales y suministros requeridos en los diferentes departamentos.
+(Así reformado el inciso anterior mediante sesión N° 26-2017 del 2 de junio del 2017)
+18. Cooperar con otros funcionarios y dependencias en la consecución del fin público de Aresep.
+(Así reformado el inciso anterior mediante sesión N° 26-2017 del 2 de junio del 2017)
+19. Todas aquellas otras funciones que le asigne la Junta Directiva, el Regulador General o el Director General de Operaciones, atinentes al Departamento de Proveeduría.
+(Así adicionado el inciso anterior mediante sesión N° 26-2017 del 2 de junio del 2017)

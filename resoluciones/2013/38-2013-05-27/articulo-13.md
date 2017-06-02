@@ -8,13 +8,14 @@ La Dirección General tiene las siguientes funciones:
 3. Apoyar en la atención de las consultas planteadas por terceros a la Junta Directiva.
 4. Elaborar los proyectos de resolución que deba emitir la Junta Directiva.
 5. Atender los asuntos judiciales en que sea parte la Aresep, sin asumir la representación de Sutel.
-6. Rendir criterio jurídico sobre los contratos de bienes y servicios que deba aprobar la Junta Directiva, de acuerdo con el ordenamiento jurídico.
+6. (Derogado mediante sesión N° 26-2017 del 2 de junio del 2017)
 7. Elaborar y someter a aprobación de la Junta Directiva, las propuestas de normativa administrativa que ésta deba emitir, para lo cual contará con el apoyo de las demás dependencias de la Aresep.
 8. Participar, como parte de equipos designados por el Regulador General, en la ejecución de proyectos para el diseño de metodologías de fijación de tarifas y normativa de calidad.
 Asimismo, brindar las recomendaciones que correspondan en caso de eventuales recursos relacionados con las propuestas realizadas.
 9. Todas aquellas otras funciones que le asigne la Junta Directiva o el Regulador General, en congruencia con el ámbito de su competencia.
 La Dirección de Asesoría Legal tiene las siguientes funciones:
-10. Rendir criterio sobre los recursos administrativos que deban conocer las dependencias que forman parte del Despacho del Regulador General, Centro de Desarrollo de la Regulación, Dirección General de Atención del Usuario y de la Dirección General de Operaciones.
+10. Rendir criterio sobre los recursos administrativos que deban conocer las dependencias que forman parte del Despacho del Regulador General, Centro de Desarrollo de la Regulación, Dirección General de Atención del Usuario y de la Dirección General de Operaciones, con la salvedad de los recursos relativos al procedimiento de contratación administrativa, propiamente los recursos de objeción al cartel, revocatoria contra el acto de adjudicación, y sobre el acto que declara desierto o infructuoso el concurso y cualquier otro, cuya atención corresponderá al asesor o asesores legales del Departamento de Proveeduría.
+(Así reformado el inciso 10) anterior mediante sesión N° 26-2017 del 2 de junio del 2017)
 11. Rendir criterio sobre la ratificación o no de los contratos y adendas que suscriba el Instituto Costarricense de Electricidad destinados a la compra de energía eléctrica, que sean remitidos para estos efectos.
 12. Rendir criterio sobre el refrendo de contratos de concesión de transporte remunerado de personas en vehículos automotores, que sean remitidos para estos efectos.
 13. Rendir criterio jurídico sobre las consultas que le formulen las dependencias que forman parte del Despacho del Regulador General, Centro de Desarrollo de la Regulación, Dirección General de Atención del Usuario y de la Dirección General de Operaciones.

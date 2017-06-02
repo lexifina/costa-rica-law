@@ -16,3 +16,4 @@ Reglamento interno de organización y funciones de la Autoridad Reguladora de lo
 | 1 | 2013-06-03 | la propia norma |
 | 2 | 2013-09-26 | Reglamento 70 (2013-09-26) |
 | 3 | 2014-08-21 | Reglamento 49 (2014-08-21) |
+| 4 | 2017-06-02 | Reglamento 26 (2017-06-02) |
