@@ -14,3 +14,4 @@ Reglamento para el Funcionamiento del Fondo Fijo de Caja Chica de la Municipalid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-10-27 | la propia norma |
+| 2 | 2017-06-05 | Reglamento municipal 58 (2017-06-05) |
