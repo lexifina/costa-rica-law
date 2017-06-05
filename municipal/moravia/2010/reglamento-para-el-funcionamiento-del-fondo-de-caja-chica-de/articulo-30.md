@@ -1,3 +1,1 @@
-CAPÍTULO V
-De los reintegros
-Artículo 30.—Los egresos que se realicen por Caja Chica se tramitarán a través del correspondiente reintegro de Caja Chica, que preparará el Tesorero Municipal, en original y copia.
+Artículo 30°: El Tesorero Municipal debe procurar tramitar con la diligencia y frecuencia debida los reintegros de las sumas pagadas, para que se mantenga una adecuada rotación y el fondo no llegue a agotarse. El monto mínimo que debe mantener el fondo para la solicitud de reintegro, debe ser de un 20%.

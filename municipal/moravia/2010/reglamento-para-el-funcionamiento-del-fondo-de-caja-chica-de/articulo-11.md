@@ -1,8 +1,5 @@
-Artículo 11.—El vale se tramitará únicamente, cuando cumpla con todos y cada uno de los siguientes requisitos:
-a. Debe completarse, indicando la fecha, el monto exacto y los artículos y/o servicios que se comprarán. No se permitirá que el documento contenga borrones ni tachaduras.
-b. Deberá contar con la firma de autorización del gasto por parte del Alcalde Municipal, de conformidad con lo que establece el inciso h) del artículo 17 del Código Municipal.
-c. Debe contar con el nombre y firma del funcionario que realizará el retiro del dinero en efectivo.
-d. Debe estar la firma y nombre de la jefatura inmediata.
-e. Contendrá constancia de la Oficina de Control de Presupuesto sobre verificación de existencia de contenido presupuestario.
-f. Detalle de la compra de los bienes y/o servicios que se pretenden adquirir.
-g. Referencia del proveedor municipal de que el bien o servicio, no se encuentra en la bodega municipal o esta contratado, para tal efecto bastará la firma y sello del funcionario.
+Articulo11.- El vale de caja chica se tramitará únicamente cuando se cumpla con todos y cada uno de los siguientes requisitos:
+a) Debe completarse indicando nombre del solicitante, fecha, monto exacto, indicación de los artículos y/o servicios que compraran, código presupuestario. No se aceptarán documentos con borrones, ni tachaduras.
+b) Deberá incluirse la firma y sello de la jefatura inmediata.
+c) Aval de la oficina de presupuesto (firma y sello).
+d) Aval de la Proveeduría Municipal de que el bien o servicio no está disponible en bodega o está adjudicado (firma y sello).

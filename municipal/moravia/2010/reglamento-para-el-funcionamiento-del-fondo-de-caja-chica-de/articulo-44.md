@@ -1,1 +1,3 @@
-Artículo 44.—Las sanciones que correspondan, según lo dispuesto en este Capítulo, serán aplicadas por el Alcalde Municipal, de conformidad con lo que establece en esta materia, la Convención Colectiva, el Código Municipal, el Código de Trabajo y otras normas conexas.
+CAPÍTULO VIII
+DE LA SUPLETORIEDAD, DEROGATORIA Y VIGENCIA
+Artículo 44°: Se aplicará supletoriamente a las normas de este Reglamento, las siguientes disposiciones legales: el Código Municipal, la Ley de la Contratación Administrativa y su Reglamento, la Ley de la Administración Pública, y demás normativa vigente de la materia.

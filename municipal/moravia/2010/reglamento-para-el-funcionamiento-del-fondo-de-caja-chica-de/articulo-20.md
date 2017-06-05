@@ -1,3 +1,1 @@
-CAPÍTULO IV
-Mecanismos de control
-Artículo 20.—Es responsabilidad del Tesorero Municipal en su condición de encargado de la Caja Chica, diseñar y mantener un adecuado sistema de control del fondo autorizado en caja chica, en concordancia con las prácticas sanas de control interno, el Manual de Normas Técnicas de Control Interno para la Contraloría General de la República y demás Órganos Sujetos a su Fiscalización y el Código Municipal.
+Artículo 20°: El sistema de control de la administración del fondo de caja chica debe garantizar la custodia y el buen uso de esos recursos, el registro de datos necesarios para disponer de información confiable y oportuna, un sistema de archivo que permita la fácil localización de documentos y otros que se estimen convenientes.

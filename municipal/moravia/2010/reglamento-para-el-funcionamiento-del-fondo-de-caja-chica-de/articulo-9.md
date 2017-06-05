@@ -1,5 +1,6 @@
-Artículo 9º—La compra de bienes y/o servicios se tramitará por el fondo de caja chica, solamente cuando se den las siguientes condiciones:
+Artículo 9. La compra de bienes y/o servicios se tramitará por el fondo de caja chica, solamente cuando se den las siguientes condiciones:
 a) Si en la bodega municipal no hay existencia del bien que se solicita.
-b) Si ninguna dependencia o funcionario de la Municipalidad, según sus funciones, está en la posibilidad de prestar el servicio de que se trate.
-c) Si el bien o servicio son tan indispensables y de verdadera urgencia que se justifique su pago fuera de los trámites ordinarios que establece la Ley y el Reglamento de Contratación Administrativa.
-d) Si son gastos de la partida de servicios no personales, o de la partida de materiales y suministros, siempre que exista contenido económico y presupuestario con cargo a estas partidas.
+b) Si ninguna dependencia o funcionario de la Municipalidad, según sus funciones está en la posibilidad de prestar el servicio de que se trate.
+c) Si el bien o servicio son tan indispensables y de verdadera urgencia que se justifique su pago fuera de los trámites ordinarios de contratación administrativa. Se comprenderá que median razones de urgencia cuando la necesidad del bien o servicio surgió como resultado de una situación imprevisible, que aún con un adecuado sistema de planificación era imposible de prever. Será la jefatura que autoriza el uso del procedimiento de caja chica la responsable de verificar que se está en una situación de urgencia. En casos excepcionales, cuando medie discrepancia entre la jefatura que autorizó el uso del procedimiento y la tesorería municipal en cuanto a las razones de urgencia, la tesorería podrá requerir una justificación escrita. De persistir la discrepancia, la misma deberá elevarse ante el Alcalde Municipal, quien resolverá en definitiva, siempre con ajuste a lo dispuesto por este reglamento y legislación aplicable.
+d) Si son gastos de la partida de servicios no personales o de la partida de materiales o suministros, siempre que exista contenido económico y presupuestario con cargo a estas
+partidas.

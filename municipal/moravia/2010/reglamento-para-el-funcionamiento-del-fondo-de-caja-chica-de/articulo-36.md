@@ -1,1 +1,1 @@
-Artículo 36.—No podrán hacer uso del fondo de Caja Chica las personas que no presten servicio regular en la Municipalidad y en consecuencia, no sean funcionarios públicos de la Municipalidad.
+Artículo 36°: El fondo de Caja Chica no podrá ser utilizado para el cambio de cheques personales ni usarse para fines distintos para el que fue creado ni disponerse para actuaciones distintas a las autorizadas por la Ley y este Reglamento.

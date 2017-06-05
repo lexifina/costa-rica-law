@@ -1,1 +1,3 @@
-Artículo 31.—El Tesorero Municipal debe procurar tramitar con la diligencia y frecuencia debida los reintegros de las sumas pagadas, para que se mantenga una adecuada rotación y el fondo no llegue a agotarse. El monto mínimo que debe mantener el fondo para la solicitud de reintegro, debe ser de un 20%.
+CAPÍTULO VI
+DE LAS PROHIBICIONES
+Artículo 31°: Por ningún motivo se tramitarán las adquisiciones o compras de bienes y servicios cuando la Bodega Municipal mantenga existencias de los artículos solicitados o cuando la Administración por medio de sus dependencias se encuentre en capacidad de suministrar el artículo o servicio requerido a la dependencia que lo necesite.

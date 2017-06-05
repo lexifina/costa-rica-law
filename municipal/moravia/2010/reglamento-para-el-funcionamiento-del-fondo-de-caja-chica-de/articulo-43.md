@@ -1,1 +1,1 @@
-Artículo 43.—El funcionario que pretenda justificar los egresos de Caja Chica con comprobantes que no cumplan con los requisitos indicados en el artículo 16, incumpliendo con ello su deber de verificar los requisitos del comprobante, deberá pagar de su peculio el costo del bien o servicio adquirido.
+Artículo 43°: Las sanciones que correspondan, según lo dispuesto en este Capítulo, serán aplicadas por el Alcalde Municipal, de conformidad con lo que establece en esta materia, la Convención Colectiva, el Código Municipal, el Código de Trabajo y otras normas conexas.

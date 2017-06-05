@@ -3,8 +3,12 @@ REGLAMENTO PARA EL FUNCIONAMIENTO DEL FONDO
 DE CAJA CHICA DE LA MUNICIPALIDAD DE MORAVIA.
 CAPÍTULO I
 Disposiciones generales
-Artículo 1º—Para los efectos de este Reglamento se entenderá por:
-a) Arqueo de Caja Chica: Verificación del cumplimiento de la normativa y reglamentación que rige la Caja Chica. Es la constatación de que la documentación que da soporte a los egresos concuerda con los montos autorizados por Caja Chica, debe quedar constancia debidamente firmada.
+(Nota de Sinalevi: El presente norma fue reformada parcialmente y reproducido su texto en forma íntegra mediante sesión ordinaria N° 58 del 5 de junio del 2017, y publicado en el Alcance Digital N° 176 a La Gaceta N° 137 del 19 de julio del 2017, por lo que se transcribe a continuación:)
+CAPÍTULO I
+DISPOSICIONES GENERALES
+Artículo 1°: Para los efectos de este Reglamento se entenderá por:
+a) Arqueo de Caja Chica: Verificación del cumplimiento de la normativa y reglamentación que rige la Caja Chica.
+Es la constatación de que la documentación que da soporte a los egresos concuerda con los montos autorizados por Caja Chica, debe quedar constancia debidamente firmada.
 b) Bienes y servicios de uso común: Son los bienes y servicios de uso periódico y repetitivo, utilizados en las operaciones regulares y normales de la Municipalidad. Las dependencias deben asegurarse de tener siempre en existencia este tipo de artículos o prever con suficiente anticipación sus necesidades.
 c) Caso fortuito: Llámase así al suceso que sin poder preverse o que, previsto, no pudo evitarse, puede ser producido por la naturaleza o por hechos del hombre.
 d) Compra menor: Es la adquisición de bienes y servicios de menor cuantía, que no superen los límites preestablecidos para los vales de caja chica y cuya necesidad sea urgente y requieran atención inmediata.

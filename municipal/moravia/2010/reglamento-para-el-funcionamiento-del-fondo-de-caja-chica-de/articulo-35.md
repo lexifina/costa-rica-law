@@ -1,1 +1,1 @@
-Artículo 35.—Por ningún motivo se aceptará el fraccionamiento ilícito en las compras de Caja Chica, así como tampoco se permitirá variar el objetivo inicial de una compra.
+Artículo 35°: No podrán hacer uso del fondo de Caja Chica las personas que no presten servicio regular en la Municipalidad y en consecuencia, no sean funcionarios públicos de la Municipalidad.

@@ -1,1 +1,1 @@
-Artículo 34.—No se utilizarán fondos de Caja Chica para ejecutar inversiones de la partida maquinaria y equipo.
+Artículo 34°: Por ningún motivo se aceptará el fraccionamiento ilícito en las compras de Caja Chica, así como tampoco se permitirá variar el objetivo inicial de una compra.

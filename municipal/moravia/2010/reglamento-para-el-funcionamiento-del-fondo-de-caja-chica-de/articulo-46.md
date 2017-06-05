@@ -1,1 +1,1 @@
-Artículo 46.—Se deroga cualquier disposición de la misma naturaleza que haya emitido esta Municipalidad, que se oponga al presente reglamento.
+Artículo 46°: Rige a partir del día de su publicación en el diario oficial.

@@ -1,1 +1,3 @@
-Artículo 29.—Cuando el Tesorero Municipal sea sustituido por otra persona que ocupe temporalmente ese cargo, por vacaciones, incapacidad, permiso con o sin goce de salario o cualquier otro motivo, se realizará un arqueo del cual se dejará constancia escrita, con la firma del Tesorero y la persona que lo sustituirá. Igual procedimiento se utilizará cuando el titular de la Tesorería Municipal se reintegre a su puesto.
+CAPÍTULO V
+DE LOS REINTEGROS
+Artículo 29°: Los egresos que se realicen por Caja Chica se tramitarán a través del correspondiente reintegro de Caja Chica, que preparará el Tesorero Municipal, en original y copia.

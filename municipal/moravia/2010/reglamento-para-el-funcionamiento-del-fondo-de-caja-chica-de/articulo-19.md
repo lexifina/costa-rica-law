@@ -1,1 +1,3 @@
-Artículo 19.—Los vales de Caja Chica solicitados con un tiempo de recepción en la Tesorería Municipal mayor a cinco días hábiles que no hayan sido retirados, serán anulados sin previo aviso.
+CAPÍTULO IV
+MECANISMOS DE CONTROL
+Artículo 19°: Es responsabilidad del Tesorero Municipal en su condición de encargado de la Caja Chica, diseñar y mantener un adecuado sistema de control del fondo autorizado en caja chica, en concordancia con las prácticas sanas de control interno, el Manual de Normas Técnicas de Control Interno para la Contraloría General de la República y demás Órganos Sujetos a su Fiscalización y el Código Municipal.

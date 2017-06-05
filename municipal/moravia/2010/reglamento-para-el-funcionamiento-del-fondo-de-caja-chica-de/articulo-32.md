@@ -1,3 +1,1 @@
-CAPÍTULO VI
-De las prohibiciones
-Artículo 32.—Por ningún motivo se tramitarán las adquisiciones o compras de bienes y servicios cuando la Bodega Municipal mantenga existencias de los artículos solicitados o cuando la Administración por medio de sus dependencias se encuentre en capacidad de suministrar el artículo o servicio requerido a la dependencia que lo necesite.
+Artículo 32°: No se tramitarán por medio del fondo fijo de Caja Chica las compras que se hayan definido como artículo de uso común, los que deberán ser adquiridos por medio de los sistemas convencionales de compra que existan en la Municipalidad, según las disposiciones establecidas en la Ley de Contratación Administrativa y en el Reglamento General de Contratación Administrativa.
