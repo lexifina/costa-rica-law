@@ -6,7 +6,8 @@ c- Remitir información para el desarrollo de las sesiones, tanto a Directores p
 d- Redactar el borrador del acta de la Junta Directiva.
 e- Sera responsabilidad de la Secretaria de Actas hacer constar si los acuerdos han sido tomados por unanimidad o por mayoría de votos, consignando literalmente los votos salvados y las razones de los mismos, si así lo solicitan los interesados.
 f- Emitir certificaciones sobre los asuntos que consten en actas.
-g- Comunicar los acuerdos de la Junta Directiva.
+g- Ejercer la potestad certificante consagrada en el artículo 65.2 de la Ley General de la Administración Pública, la cual se tendrá por delegada en la Secretaría de Actas.
+(Así reformado el inciso anterior en sesión N° 455 del 5 de junio de 2017)
 h- Llevar el control de cumplimientos de los acuerdos.
 i- Llevar el control de asistencia a las sesiones.
 j- Solicitar ante la Auditoria Interna la legalización de la apertura y cierre de los libros de actas.
