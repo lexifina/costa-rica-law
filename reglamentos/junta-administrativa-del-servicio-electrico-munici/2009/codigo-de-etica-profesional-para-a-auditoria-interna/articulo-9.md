@@ -1,1 +1,0 @@
-Artículo 9º—Credibilidad: El personal de Auditoría debe velar para que en todas sus actuaciones, prevalezca la normativa técnica, la moral y los valores; actuando consistentemente cuidando su reputación, además de salvaguardar las relaciones con sus colaboradores, colegas y clientes, de manera que siempre se enaltezca la dignidad de la profesión y el espíritu de grupo.

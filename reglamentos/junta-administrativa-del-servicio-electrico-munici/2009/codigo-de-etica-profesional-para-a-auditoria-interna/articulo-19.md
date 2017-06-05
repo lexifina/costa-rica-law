@@ -1,1 +1,0 @@
-Artículo 19.—Compromiso: Será compromiso de la Auditoría Interna el desempeño de sus funciones de la mejor manera posible, identificándose con la Unidad y con la Institución, además de tener claro la responsabilidad de laborar para la ciudadanía y para el servicio público.

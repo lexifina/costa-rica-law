@@ -1,1 +1,0 @@
-Artículo 2º—Alcance: Este Código procura promover la ética, los valores y los principios apropiados que representen la labor diaria de esta Unidad sin menoscabar la independencia funcional y de criterio que regulan la actividad de todo funcionario público.

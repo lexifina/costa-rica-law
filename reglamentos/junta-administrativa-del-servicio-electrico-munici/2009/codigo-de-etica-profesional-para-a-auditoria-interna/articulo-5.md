@@ -1,1 +1,0 @@
-Artículo 5º—Debido cuidado profesional: Al realizar sus actividades, los funcionarios de esta Unidad deben ejecutarlas con la debida diligencia, guardando el cuidado, la pericia y el buen juicio profesional, todo en total apego con la normativa legal y técnica aplicable, y bajo procedimientos e instrucciones pertinentes en el caso de que existan en dicha Unidad.

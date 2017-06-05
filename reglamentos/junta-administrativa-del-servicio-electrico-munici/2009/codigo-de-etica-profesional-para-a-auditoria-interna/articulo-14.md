@@ -1,1 +1,0 @@
-Artículo 14.—Creatividad: El personal que se desempeñe en esta Unidad independientemente de la función que realice, debe mantener un constante replanteamiento de sus labores y búsqueda continua de nuevas soluciones que agreguen valor agregado a las funciones que se realizan en el Auditoría Interna.

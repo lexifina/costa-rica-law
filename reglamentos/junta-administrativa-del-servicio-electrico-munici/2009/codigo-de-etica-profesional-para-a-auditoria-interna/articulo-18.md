@@ -1,1 +1,0 @@
-Artículo 18.—Superación Personal: El personal de la Auditoría Interna debe estar en una búsqueda permanente de mejora continua, intentando exceder las expectativas y en una actitud de crecimiento profesional diario, independientemente del área para la cual se desempeñe.

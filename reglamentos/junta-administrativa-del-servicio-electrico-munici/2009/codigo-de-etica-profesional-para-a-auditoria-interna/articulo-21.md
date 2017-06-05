@@ -1,1 +1,0 @@
-Artículo 21.—Está totalmente prohibido para los funcionarios de la Auditoría ingerir bebidas alcohólicas en las instalaciones o vehículos de JASEC. Asimismo ningún servidor de esta dependencia podrá efectuar sus actividades bajo los efectos del alcohol ni de ninguna otra sustancia enervante.

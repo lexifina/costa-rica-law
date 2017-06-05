@@ -1,1 +1,0 @@
-Artículo 28.—Incurrirá en falta aquel funcionario de esta Auditoría que utilice su cargo oficial con propósitos privados, por lo que deberá evitar relaciones razonablemente inconvenientes que implique riesgo de corrupción o que pongan en duda su carácter de objetividad e independencia.

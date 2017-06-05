@@ -1,1 +1,0 @@
-Artículo 13.—Honradez: Todo profesional de esta Auditoría está en la obligación de llevar a cabo sus actividades con honestidad, mostrando rectitud en sus acciones y procurando que las mismas no sean cuestionadas.

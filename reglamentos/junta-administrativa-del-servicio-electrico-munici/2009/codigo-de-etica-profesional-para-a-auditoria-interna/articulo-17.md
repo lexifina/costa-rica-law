@@ -1,1 +1,0 @@
-Artículo 17.—Comunicación: La comunicación debe de ser un pilar fundamental sobre el cual se desempeñe la labor de los servidores de la Auditoría Interna, por lo cual se debe fomentar como un mecanismo orientado hacia el mejoramiento de las actividades de auditoría, resolución de problemas y optimización de las labores llevadas a cabo.

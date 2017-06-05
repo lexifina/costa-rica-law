@@ -1,1 +1,0 @@
-Artículo 16.—Trabajo en equipo: Todos los profesionales de esta Auditoría deben trabajar bajo el principio de compromiso común y de integración grupal, con la finalidad de que todos los funcionarios se sientan responsables del accionar de la Auditoría en cuestión.

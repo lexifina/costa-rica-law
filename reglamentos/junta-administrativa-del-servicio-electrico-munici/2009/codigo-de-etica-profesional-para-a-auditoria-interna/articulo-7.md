@@ -1,1 +1,0 @@
-Artículo 7º—Probidad: Todo servidor de esta Auditoría debe actuar con honradez, en especial cuando haga uso de recursos públicos que le son confiados para el cumplimiento de los fines del servicio público o cuando participe en actividades o negocios de la Administración que comprometan esos recursos.

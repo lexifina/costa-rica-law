@@ -1,2 +1,0 @@
-Artículo 31.—Todo aquel funcionario de esta Auditoría que incumpla con el presente Código de Ética estará sometido a una llamada de atención por parte del Jerarca de esta Unidad, sin perjuicio de la aplicación de otras medidas disciplinarias establecidas en la Ley Orgánica de la Junta Administrativa de Servicio Eléctrico Municipal de Cartago (JASEC), el Código de Trabajo, Reglamento Autónomo de Trabajo y cualquier otra normativa aplicable.
-Cartago, 17 de abril del 2009.

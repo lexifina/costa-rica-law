@@ -1,1 +1,0 @@
-Artículo 23.—Los servidores de la Auditoría Interna no pueden dar ni recibir obsequios, descuentos, invitaciones o dinero en efectivo, a cambio de una acción u omisión contrarias a la normativa vigente.
