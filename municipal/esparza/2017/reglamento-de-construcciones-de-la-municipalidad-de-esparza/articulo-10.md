@@ -1,0 +1,2 @@
+Artículo 10.-Del Pago del Impuesto. Una vez aprobada la Licencia y previo al inicio de las obras, el interesado deberá cancelar a la Municipalidad en las cuentas Bancarias autorizadas para este fin, el impuesto de construcción el cual será del uno por ciento (1%) del valor de la construcción.
+Para las viviendas declaradas de interés social se cobrará un cero punto cinco por ciento (0,5%) del valor de la construcción.

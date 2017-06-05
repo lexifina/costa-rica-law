@@ -1,0 +1,1 @@
+Artículo 6.-Trámite administrativo para la solicitud de Licencia de Construcción de Obras Menores. Para obtener el permiso de construcción de esta clasificación de obras, se debe tramitar en forma física en la Plataforma de Servicios de la Municipalidad de Esparza.

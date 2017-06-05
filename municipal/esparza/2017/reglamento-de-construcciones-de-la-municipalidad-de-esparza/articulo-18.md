@@ -1,0 +1,3 @@
+Artículo 18.-Procedimientos Judiciales para Demolición de la Obra.
+a) Una vez vencido el último plazo (la renuencia) y persistiendo el incumplimiento, la GOT someterá el asunto a la Alcaldía Municipal quien iniciará el proceso correspondiente ante las instancias judiciales para que se ordene la demolición y/o el derribo de la construcción nueva.
+b) En caso de comprobarse la violación de sellos y/o desacato de la autoridad por medio de la inspección municipal, el superior inmediato de esta inspección remitirá el informe respectivo ante la alcaldía para que esta proceda a presentar las denuncias en los despachos judiciales correspondientes.

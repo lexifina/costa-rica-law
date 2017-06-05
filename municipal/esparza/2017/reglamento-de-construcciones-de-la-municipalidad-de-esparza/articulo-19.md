@@ -1,0 +1,1 @@
+Artículo 19.-Construcciones terminadas sin previa licencia municipal. Para su autorización se procederá de acuerdo a lo ordenado en los artículos 93,94, 95 y 96 de la Ley de Construcciones No.833, debiendo solicitar la Licencia de Construcción según corresponda, deberá cancelar los montos respectivos por impuestos de construcción y multa.

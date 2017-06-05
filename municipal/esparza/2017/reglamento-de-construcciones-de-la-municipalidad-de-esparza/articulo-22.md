@@ -1,0 +1,1 @@
+Artículo 22.-Derogatoria. El presente reglamento deroga el Reglamento de Construcción, fraccionamiento, condominio y urbanización de la Municipalidad de Esparza publicado en el Diario Oficial La Gaceta el 27 de febrero del 2008, y cualquier otra normativa que se le oponga.

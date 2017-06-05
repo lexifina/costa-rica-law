@@ -1,0 +1,2 @@
+Artículo 21.-Supletoriedad de otras normas. Lo no regulado expresamente en este reglamento se regirá de conformidad con la Ley de Construcciones, Ley de Planificación Urbana, Reglamento para el Control Nacional de Fraccionamiento y urbanizaciones, Ley General de caminos Públicos, el Reglamento Nacional de Construcciones, Ley y Reglamento de Catastro y las normas del ordenamiento jurídico vigente que sean de aplicación supletoria a este Reglamento.
+Sobre fraccionamientos, condominios y urbanizaciones: Se regirán por los Reglamentos Nacionales que rigen sobre esta materia.
