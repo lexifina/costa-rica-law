@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Procederá de pleno derecho, a favor de la Municipalidad de Corredores, la inmediata reversión de la propiedad de cualquier bien inmueble donado, en caso de que el terreno correspondiente se destine a otra finalidad o uso no autorizado por la presente ley.
