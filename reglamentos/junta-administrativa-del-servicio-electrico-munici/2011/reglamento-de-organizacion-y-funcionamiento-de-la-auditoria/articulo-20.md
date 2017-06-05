@@ -1,4 +1,0 @@
-SECCIÓN D
-Servicios de Fiscalización
-Artículo 20.—Servicio de aseguramiento, consultoría y de valor agregado. Corresponde a la Auditoría Interna brindar un servicio de aseguramiento y consultoría de los resultados obtenidos en los distintos trabajos desarrollados; de manera tal que genere mediante la mejora de oportunidades el logro de objetivos institucionales; así como la identificación de mejoras operativas, y la reducción de la exposición al riesgo.
-Los servicios de consultoría que brinda la Unidad son por naturaleza consejos, o asesorías, por lo general con menor alcance a los servicios de aseguramiento, ya que éstos últimos se refieren a la auditoría tradicional con emisión de informes.

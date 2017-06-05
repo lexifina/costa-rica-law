@@ -1,1 +1,0 @@
-Artículo 11.—Valores Éticos. Los funcionarios de la Auditoría Interna acatarán aquellos principios y valores éticos establecidos en el Código de Ética Profesional de la Unidad con el objetivo de regular el accionar diario de éstos, promoviendo y practicando así una cultura acorde, tanto interna como externa.

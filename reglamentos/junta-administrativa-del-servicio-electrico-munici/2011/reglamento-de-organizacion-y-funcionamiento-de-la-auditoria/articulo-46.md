@@ -1,1 +1,0 @@
-Artículo 46.—Discusión previa de los Resultados. El Auditor Interno y su equipo de trabajo deberán discutir los resultados con quienes tengan parte en los asuntos, previo a su comunicación oficial; en el caso de las relaciones de hechos, se desarrollarán de conformidad con la normativa aplicable a esta materia.

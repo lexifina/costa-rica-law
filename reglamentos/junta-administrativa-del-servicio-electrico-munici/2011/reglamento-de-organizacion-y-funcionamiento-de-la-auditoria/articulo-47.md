@@ -1,1 +1,0 @@
-Artículo 47.—Comunicación del Informe Final. Los resultados que obtendrá la Auditoría Interna en los estudios que realiza deberán ser comunicados a los titulares subordinados correspondientes mediante un Informe Final, a efecto de que se implementen las recomendaciones del caso en tiempo y espacio establecido.

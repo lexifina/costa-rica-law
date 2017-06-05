@@ -1,1 +1,0 @@
-Artículo 15.—Área Administrativa. Será la encargada de planificar, administrar y dar control a la actividad de Auditoría Interna, mediante el desarrollo de aspectos sustantivos y estrategias que apoyen el mejoramiento continuo y el manejo de los sistemas de información de la Unidad; dando seguridad razonable de la calidad de los servicios de Auditoría.

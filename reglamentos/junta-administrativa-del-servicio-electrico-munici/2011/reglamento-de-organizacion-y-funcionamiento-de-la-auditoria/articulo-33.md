@@ -1,1 +1,0 @@
-Artículo 33.—Aplicaciones Informáticas. Mediante la aplicación de un sistema de información ésta Auditoría implementará íntegramente sus acciones establecidas en el Plan Operativo, con lo cual se facilitará el control de las operaciones mejorando con ello el desempeño y la productividad desarrollando una administración y una cultura orientada a resultados.

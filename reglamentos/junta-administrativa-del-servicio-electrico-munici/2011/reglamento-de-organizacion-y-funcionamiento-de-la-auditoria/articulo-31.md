@@ -1,1 +1,0 @@
-Artículo 31.—Contratación de Recursos Externos. La Auditoría Interna, de acuerdo a la planificación operativa y los estudios especiales, podrá realizar la contratación de bienes y servicios necesarios para llevar a cabo tal gestión, con base a la disponibilidad presupuestaria y a los procedimientos administrativos establecidos.

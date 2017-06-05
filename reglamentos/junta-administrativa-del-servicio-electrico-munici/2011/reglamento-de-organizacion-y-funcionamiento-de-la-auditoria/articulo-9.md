@@ -1,1 +1,0 @@
-Artículo 9º—Denuncias. Toda denuncia que se tramite en la Auditoría Interna de JASEC deberá acogerse a lo estipulado en el Reglamento para la Atención de Denuncias Planteadas a la Auditoría Interna de JASEC.

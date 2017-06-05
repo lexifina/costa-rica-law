@@ -1,1 +1,0 @@
-Artículo 40.—Evaluaciones del programa de calidad. Se desarrollarán evaluaciones tanto internas como externas, previamente planificadas; con las cuales se aportarán recomendaciones para las mejoras pertinentes.

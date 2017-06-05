@@ -1,1 +1,0 @@
-Artículo 3º—Ámbito de Aplicación. Este Reglamento es de carácter obligatorio para todos los funcionarios de la Auditoría Interna y funcionarios de la Administración Activa de JASEC en todo aquello que les resulte aplicable.

@@ -1,1 +1,0 @@
-Artículo 29.—Coordinación de Auditorías Externas. La Auditoría Interna, mediante reuniones, intercambio de información, etc. coordinará las actividades a desarrollar por las Auditorías Externas. Lo anterior con el objetivo de asegurar una cobertura adecuada de auditoría y minimizar la duplicidad de esfuerzos.

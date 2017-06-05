@@ -1,1 +1,0 @@
-Artículo 24.—Asistencia a sesiones de Junta Directiva. El Auditor Interno como miembro representante de Auditoría y en calidad de asesor, o a quien éste designe, deberá asistir a las sesiones de Junta Directiva previamente planificadas y comunicadas, con derecho a voz pero sin voto.

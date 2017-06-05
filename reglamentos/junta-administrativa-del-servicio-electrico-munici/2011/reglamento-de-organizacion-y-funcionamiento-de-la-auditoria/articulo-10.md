@@ -1,3 +1,0 @@
-SECCIÓN B
-Marco Orientador
-Artículo 10.—Ámbito de acción. La Auditoría establecerá y mantendrá actualizado, y congruente a sus actividades y al marco orientador de JASEC, su visión, misión y políticas principales con el objetivo de guiar y uniformar la manera de actuar de sus funcionarios.
