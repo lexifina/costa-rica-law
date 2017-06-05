@@ -1,0 +1,1 @@
+Artículo 5 °- El incumplimiento de las disposiciones establecidas en el presente Decreto, dará lugar a la aplicación de las medidas sanitarias especiales que señala la Ley General de Salud, la Ley Orgánica del Ambiente, la Ley de Protección Fitosanitaria, sin perjuicio del resto de sanciones establecidas en la legislación nacional.

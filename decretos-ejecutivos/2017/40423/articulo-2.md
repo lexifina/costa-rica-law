@@ -1,0 +1,1 @@
+Artículo 2 º- A partir de la fecha de publicación del presente Decreto se prohíbe la importación de ingredientes activos grado técnico y plaguicidas sintéticos formulados que contengan el ingrediente activo 5-bromo-3-sec-butyl-6-methyluracil, de nombre común bromacil y su sal de litio.
