@@ -1,0 +1,1 @@
+Artículo 3.- Las instituciones del Sector Público y el Sector Privado, dentro del marco legal respectivo, podrán contribuir con cualquier tipo de recursos alternativos de colaboración en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos con las actividades e iniciativas para fomentar el cultivo y la comercialización de la trucha.

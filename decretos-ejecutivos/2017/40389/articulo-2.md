@@ -1,0 +1,1 @@
+Artículo 2.- El ministerio de Agricultura y Ganadería dentro del marco de sus competencias y por medio del Instituto Costarricense de Pesca y Acuicultura, brindará asistencia técnica a los productores de trucha para el mejoramiento del cultivo.

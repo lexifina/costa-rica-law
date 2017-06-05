@@ -1,0 +1,16 @@
+N° 40389-MAG
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+En ejercicio de las facultades establecidas en los artículos 140, incisos 3), 8), 18) y 20), 50 y 146 de la Constitución Política; la Ley Nº 6227, Ley General de la Administración Pública del 2 de mayo de 1978; la Ley N º 7064, Ley de Fomento a la Producción Agropecuaria, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería, del 29 de abril de 1987; la Ley Nº 7384, Ley de Creación del Instituto Costarricense de Pesca y Acuicultura del 16 de marzo de 1994, la Ley Nº 8436, Ley de Pesca y Acuicultura, del 1 º de marzo de 2005.
+Considerando:
+Primero: En Costa Rica en los 15 últimos años, la acuicultura ha ido adquiriendo una importancia cada vez mayor, no solo como una alternativa de producción de proteína de origen acuático, sino desde el punto de vista empresarial, siendo que el cultivo de la trucha se viene desarrollando desde hace 27 años, en zonas altas del país, se ha constituido en un motor de desarro.llo rural, produciendo en la actualidad más de 800.000 kilos de producto fresco, tanto para consumo del mercado interno como externo. Es por lo anterior que dada dicha transformación surgen políticas como las del actual gobierno, las cuales desarrollan diferentes eventos para fortalecer metodologías y estrategias en la producción y asistencia técnica de la truchicultura en nuestro país, de manera que nuestros productores adquieran mayor información y conocimiento, para mejorar la calidad del servicio.
+Segundo: Que en el país hay 240 productores dedicados al cultivo de trucha, cuyo producto se utiliza para la comercialización bajo diferentes presentaciones como son trucha fresca esvicerado, ahumada y filete.
+Tercero: Que la actividad del cultivo de la trucha, se realiza dentro del concepto de acuicultura familiar integrada, ligada al concepto de turismo ecológico y fincas diversificadas, donde las diferentes actividades que se realizan, sirven como complemento para buscar la rentabilidad de la actividad integral de la finca, mejorando el desarrollo socioeconómico a muchas familias de zonas rurales.
+Cuarto: Que el Ministerio de Agricultura y Ganadería por disposición de la Ley 7064, es el rector del Sector Agropecuario, que fue constituido como un medio para fortalecer y agilizar el sistema de dirección y planificación nacional, así como para coadyudar a la coordinación de las actividades del Gobierno y de sus instituciones. En esa condición el Ministerio de Agricultura y Ganadería tiene la responsabilidad de atender los problemas que afectan las actividades agropecuarias y de fomentar la producción de bienes agropecuarios, mediante el estímulo de productores.
+Quinto: Que mediante el oficio DGT-025-2017, del 23 de enero del 2017, la Dirección General Técnica de INCOPESCA, da su visto bueno a la declaratoria solicitada.
+Sexto: Que se procedió a llenar el Formulario de Evaluación Costo Beneficio, Sección I, denominada Control Previo de Mejora Regulatoria, siendo que el mismo dio un resultado negativo y la propuesta no contiene trámites ni requisitos.
+Por Tanto,
+DECRETAN:
+DECLARATORIA DE INTERÉS PÚBLICO DE LA
+ACTIVIDAD DE CULTIVO DE LA TRUCHA
+Artículo 1.-Declarar de interés público la actividad de cultivo de trucha.
