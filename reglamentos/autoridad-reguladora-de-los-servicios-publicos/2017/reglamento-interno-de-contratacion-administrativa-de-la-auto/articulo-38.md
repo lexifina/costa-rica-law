@@ -1,0 +1,1 @@
+Artículo 38°- Transferencia de fondos. Una vez recibido en la DF la solicitud y el formulario citado en el artículo anterior, realizará la transferencia de fondos en un plazo no mayor a dos días hábiles.

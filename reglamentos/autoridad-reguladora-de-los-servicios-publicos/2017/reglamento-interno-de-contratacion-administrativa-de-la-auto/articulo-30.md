@@ -1,0 +1,1 @@
+Artículo 30°- Personal autorizado para el uso de la tarjeta. Los tarjetahabientes serán el Jefe y los funcionarios del DEP, designados por el Jefe. La designación del funcionario será informada por el DEP, a través de los medios oficiales, a la DGO y a la DF.

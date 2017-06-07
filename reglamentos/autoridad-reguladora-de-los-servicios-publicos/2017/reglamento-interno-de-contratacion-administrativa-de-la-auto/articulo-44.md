@@ -1,0 +1,1 @@
+Artículo 44°- Derogatoria. Se deroga el Reglamento Interno de Contratación Administrativa de la Autoridad Reguladora de los Servicios Públicos, publicado el 3 de noviembre de 2011, mediante la Gaceta N° 211 y sus reformas, así como cualquier normativa o disposición vigente a la fecha de entrada en vigencia de este reglamento, que sea contraponga a lo aquí reformado.

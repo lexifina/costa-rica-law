@@ -1,0 +1,1 @@
+Artículo 40°- Conciliación de la cuenta. Es responsabilidad de la DF revisar al menos mensualmente el estado de cuenta de la tarjeta y conciliar con los comprobantes de pago, así como reportar de inmediato a la DGO cualquier anomalía, para que sea comunicada al Despacho del RG y se tomen las medidas pertinentes.

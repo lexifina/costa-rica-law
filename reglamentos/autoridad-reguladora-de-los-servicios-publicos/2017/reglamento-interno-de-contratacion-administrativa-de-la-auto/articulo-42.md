@@ -1,0 +1,1 @@
+Artículo 42°- Integración de normas. El presente reglamento se integra con lo que disponga la LCA, el RLCA, el Manual de Procedimientos, el Reglamento de Caja Chica los lineamientos que emita el RG en materia de compras públicas, el RAS, RIOF, los lineamiento de plataforma de compras electrónicas cuyo uso esté vigente en la institución, y cualquier norma jurídica aplicable.

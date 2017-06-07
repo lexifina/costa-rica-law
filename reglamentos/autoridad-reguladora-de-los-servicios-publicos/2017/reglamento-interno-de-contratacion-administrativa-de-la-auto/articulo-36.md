@@ -1,0 +1,1 @@
+Artículo 36°- Desactivar o bloquear la tarjeta. En caso de que por algún motivo el tarjetahabiente haga uso indebido de la tarjeta o deje de laborar, ya sea en forma permanente o temporal para la ARESEP, la DGO deberá proceder a informar inmediatamente a la DF, para que ésta solicite al Banco desactivar o bloquear la tarjeta electrónica, según sea el caso.

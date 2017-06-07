@@ -1,0 +1,4 @@
+Artículo 20°- De la aprobación de contratos.
+1.Corresponde a la Junta Directiva, aprobar los contratos de obras y servicios, originados en licitaciones públicas, contrataciones directas vía excepción y contrataciones autorizadas, cuyo monto supere los límites establecidos para una licitación pública.
+2.Corresponde al Director General de la DGO, aprobar las órdenes de compra o contratos de obras y servicios originados en licitaciones abreviadas, contrataciones directas vía excepción y contrataciones autorizadas, cuyo monto supere los límites establecidos para una licitación abreviada.
+3.Corresponde al Director de la DF, aprobar las órdenes de compra de obras y servicios originados en contrataciones directas de escasa cuantía, contrataciones directas vía excepción y contrataciones autorizadas, cuyo monto corresponda a los límites establecidos para contratación directa de escasa cuantía.

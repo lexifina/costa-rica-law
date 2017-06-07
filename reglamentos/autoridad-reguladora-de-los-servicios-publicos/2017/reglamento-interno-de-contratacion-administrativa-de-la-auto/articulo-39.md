@@ -1,0 +1,1 @@
+Artículo 39°- Pago. Una vez autorizada la compra por medio del procedimiento de contratación administrativa o caja chica respectivo, y verificando que la cuenta bancaria tenga el disponible para el pago correspondiente, el tarjetahabiente procederá a realizar el pago.

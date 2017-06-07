@@ -1,0 +1,1 @@
+Artículo 34°- Extravío, robo o hurto de la tarjeta. En los casos de extravío, hurto o robo, el tarjetahabiente debe comunicarlo inmediatamente al Banco emisor por las vías que la entidad bancaria ponga a su disposición. Una vez hecho el reporte al banco, deberá informarlo de inmediato a la DF, indicándose el día y la hora del reporte.

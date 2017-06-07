@@ -1,0 +1,4 @@
+Artículo 22°- Procedimiento de registro.
+1.El DEP invitará a los interesados en integrar el Registro de Proveedores, mediante publicación en el Diario Oficial La Gaceta, en la página web de la ARESEP y facultativamente en un diario de circulación nacional, al menos una vez al año. No obstante lo anterior, todo interesado o interesada en ser incluido en el Registro de Proveedores, podrá solicitar su incorporación en cualquier momento, sin que exista un tiempo establecido para hacerlo.
+2. Los interesados deben completar, según corresponda, el “Formulario para Registro de Proveedores Personas Jurídicas” o “Formulario para Registro de Proveedores Personas Físicas”, el cual puede ser accedido desde la página web de la ARESEP, o bien retirarlo físicamente en el DEP.
+3. Los interesados deben presentar el formulario original en forma física en el DEP, adjuntado la documentación requerida.

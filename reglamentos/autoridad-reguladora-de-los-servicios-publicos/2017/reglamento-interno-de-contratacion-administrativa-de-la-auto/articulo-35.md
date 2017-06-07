@@ -1,0 +1,1 @@
+Artículo 35°- Uso indebido de la tarjeta. Si la DF detecta un posible uso diferente al permitido en el artículo 31 de este reglamento, deberá informarlo de inmediato a la DGO, para que eleve el informe respectivo, ante el Despacho del RG, a fin de que se tomen las medidas pertinentes.
