@@ -14,3 +14,4 @@ Reglamento para la formulación, aprobación y ejecución de modificaciones pres
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-11-14 | la propia norma |
+| 2 | 2017-06-07 | Reglamento municipal 26 (2017-06-07) |
