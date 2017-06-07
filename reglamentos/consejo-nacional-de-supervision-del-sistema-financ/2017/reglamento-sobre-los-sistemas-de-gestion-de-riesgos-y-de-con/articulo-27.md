@@ -1,0 +1,6 @@
+Artículo 27. Función de auditoría interna
+La función de auditoría interna proporciona criterio independiente al Órgano de Dirección y apoya a este y a la Alta Gerencia en la promoción de un proceso de Gobierno Corporativo eficaz y en mantener la solidez a largo plazo de la Entidad. La función de auditoría interna tiene un mandato claro, responde ante el Órgano de Dirección pero no ante la Alta Gerencia. Para garantizar la autonomía y la objetividad, la función de auditoría interna no debe estar sujeta a condición alguna que amenace su capacidad de cumplir con sus responsabilidades de manera imparcial.
+El Órgano de Dirección y la Alta Gerencia contribuyen a la eficacia de la función de auditoría interna, de igual manera respetan y promueven su independencia por medio de las siguientes acciones, entre otras:
+a) Verificar que el personal de auditoría tenga la experiencia, competencias, cualidades personales y recursos acordes con las actividades y riesgo de la Entidad.
+b) Permitir el acceso y revisión de todos los registros e informes de la Entidad que la función de auditoría interna considera necesarios para llevar a cabo una auditoría u otro tipo de revisión.
+c) Exigir una respuesta apropiada de la administración a un informe de la auditoría interna, así como el cumplimiento de planes internos definidos.

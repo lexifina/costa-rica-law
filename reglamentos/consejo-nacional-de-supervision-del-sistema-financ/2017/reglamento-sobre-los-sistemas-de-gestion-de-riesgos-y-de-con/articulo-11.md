@@ -1,0 +1,3 @@
+Artículo 11. Políticas sobre gestión de riesgos
+Las políticas para identificar, evaluar, dar seguimiento, mitigar y controlar los diferentes tipos de riesgos a los que se expone la Entidad, deben definir las responsabilidades y roles de las áreas y personas que participan en esos procesos así como los esquemas, contenido y periodicidad de reportes oportunos al Órgano de Dirección y la Alta Gerencia.
+Estas políticas deben encontrarse alineadas con la estrategia y ser evaluadas periódicamente. Debe reportarse oportunamente al Órgano de Dirección cualquier desviación o actualización requerida al SGR.

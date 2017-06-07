@@ -1,0 +1,4 @@
+Artículo 18. Funciones generales de control
+Como parte de un sistema efectivo de gestión de riesgos y de controles internos, las Entidades contarán con funciones de control con suficiente autoridad, independencia y recursos. Las funciones de control incluyen, por lo menos, análisis financiero, cumplimiento normativo, control de gestión de riesgos, materia actuarial y auditoría interna.
+Las funciones de control apoyan el gobierno y las labores de fiscalización del Órgano de Dirección, pero no relevan a este ni a la Alta Gerencia de sus responsabilidades.
+Las funciones de control deben ser lideradas por una persona con las capacidades apropiadas y la objetividad necesarias para cumplir sus objetivos. El desempeño de las funciones y sus encargados, deben ser objeto de evaluaciones periódicas independientes y objetivas.

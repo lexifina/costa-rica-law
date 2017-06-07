@@ -1,0 +1,2 @@
+Artículo 7. Alta Gerencia
+La Alta Gerencia es la responsable de implementar efectivamente el SGR y el SCI y procurar los recursos y el apoyo necesarios para su adecuado funcionamiento. Debe gestionar las actividades de la entidad de forma coherente con la estrategia empresarial, el Apetito de Riesgo y las políticas aprobadas por el Órgano de Dirección. Asimismo, debe supervisar las áreas operativas de la entidad para garantizar el cumplimiento de sus objetivos.

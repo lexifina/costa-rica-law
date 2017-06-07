@@ -1,0 +1,3 @@
+Artículo 25. Función de control actuarial
+La Entidad debe contar con una unidad o función de control actuarial eficaz y con un grado de independencia suficiente de las líneas de negocio o actividades sustantivas. Debe ser desempeñada por personas con conocimientos suficientes de matemática actuarial y financiera y deben acreditar experiencia y pericia en relación con las normas profesionales aplicables.
+La función de control actuarial debe realizar evaluaciones actuariales razonables y proveer, a los órganos responsables de la toma de decisiones, una opinión sobre el nivel apropiado de las provisiones técnicas y demás temas actuariales relevantes para la Entidad. En el ejercicio de esta función deben observarse las mejores prácticas internacionales.

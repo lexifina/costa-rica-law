@@ -1,0 +1,3 @@
+Artículo 4. Principio de proporcionalidad. Aplicación proporcional y diferenciada de los principios
+Cada entidad diseña y evalúa su SGR y SCI de conformidad con sus atributos particulares, para ello debe considerar las leyes que les resultan aplicables, el tamaño, la estructura de propiedad y la naturaleza jurídica de la entidad, así como el alcance y la complejidad de las operaciones, la estrategia corporativa, el Perfil de riesgo y el potencial impacto de sus operaciones sobre terceros. Asimismo, el SGR y el SCI deben adecuarse a medida que varíen las circunstancias internas o externas y las actividades comerciales de la Entidad.
+La Entidad es la responsable de demostrar la efectividad de su SGR y SCI.
