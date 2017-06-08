@@ -14,3 +14,4 @@ Reglamento del Comité de Inversiones de la Operadora de Planes de Pensiones Com
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-12-17 | la propia norma |
+| 2 | 2017-06-08 | Reglamento 513 (2017-06-08) |
