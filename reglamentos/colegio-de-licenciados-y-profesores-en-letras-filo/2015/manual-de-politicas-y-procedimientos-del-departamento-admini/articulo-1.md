@@ -3,7 +3,6 @@ MANUAL DE POLÍTICAS Y PROCEDIMIENTOS
 DEPARTAMENTO ADMINISTRATIVO Y FINANCIERO
 (Nota de Sinalevi. El presente procedimiento fue reformado parcialmente y publicado su texto íntegramente mediante publicación en el Alcance Digital N° 109 a La Gaceta N° 96 del 23 de mayo del 2017, por lo que se transcribe a continuación:)
 FINANCIERO
-[imagen]
 OBJETIVO:
 Establecer los lineamientos por seguir en la gestión del cobro de cuotas de colegiación y arreglo de pago, además de la suspensión de la colegiatura, el levantamiento de suspensión de la colegiatura y aplicación de cuentas por pagar, notas de crédito y notas de débito.
 ALCANCE:
@@ -17,8 +16,10 @@ Las personas colegiadas que no laboren para el sector público, deberán autoriz
 5. A las personas colegiadas que incurran en morosidad, se les realizará el cobro administrativo por medio de: Llamada telefónica, correo electrónico, mensaje de texto u otro medio idóneo siendo todas excluyentes entre sí y no siendo obligación del Colegio todas las acciones antes citadas.
 6. Las personas colegiadas que incurran en morosidad de tres (3) cuotas o más, serán comunicados de su condición por medio del Diario Oficial la Gaceta y otros medios de comunicación idóneo por parte del Colegio.
 7. Una vez realizada la publicación de morosidad la persona colegiada tendrá diez (10) días hábiles para arreglar su situación con el Colegio, caso contrario se procederá con la suspensión respectiva.
-8. Las personas colegiadas que incurran en morosidad de cuatro (4) cuotas o más, serán suspendidas y se publicará dicha suspensión en el diario oficial la Gaceta, constituyéndose este acto como el final de la gestión administrativa de cobro.
-9. Cumplido un año de realizada la publicación indicada en el punto anterior, la unidad de cobros trasladará a la asesoría Legal de Junta Directiva un oficio con los Colegiados suspendidos por morosidad en virtud a los puntos 9.1 y 9.2, para que ésta inicie el proceso de cobro judicial.
+8. Las personas colegiadas que incurran en morosidad de cuatro (4) cuotas o más, serán suspendidas y se publicará dicha suspensión en el Diario Oficial La Gaceta.
+(Así reformado el punto anterior mediante sesión N° 054-2017 del 8 de junio del 2017)
+9. Cumplido un año de realizada la publicación indicada en el punto anterior, la Unidad de Cobros trasladará a la Asesoría Legal de Junta Directiva un oficio con los colegiados suspendidos por morosidad en virtud al punto 9.1, para que ésta inicie el proceso de cobro judicial.
+(Así reformado el punto anterior mediante sesión N° 054-2017 del 8 de junio del 2017)
 9.1 La cuantía para proceder con el cobro judicial será por un monto igual o mayor al 25% del salario base del auxiliar del Poder Judicial.
 9.2 Para declarar una cuenta como incobrable deberá contar con el criterio de Asesoría Legal de la Junta Directiva, tomando en consideración alguna de los siguientes aspectos:
 a) Cuando haya operado el plazo de prescripción (4 años para las letras de cambio y de 10 años para las deudas que no tengan letra de cambio).
