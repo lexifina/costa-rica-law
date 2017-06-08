@@ -1,0 +1,1 @@
+Artículo 50. Derogatoria. Se deroga el Reglamento de Gobierno Corporativo aprobado por el Consejo Nacional deSupervisión del Sistema Financiero en el literal B) de los artículos 16 y 5 de las actas de las sesiones 787-2009 y 788-2009, del 19 de junio de 2009 y sus reformas.

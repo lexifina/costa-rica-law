@@ -1,0 +1,1 @@
+Artículo 49. Lineamientos o acuerdos del Superintendente. Los superintendentes podrán emitir, mediante resolución razonada, los lineamientos o acuerdos necesarios para la aplicación de las disposiciones contenidas en este Reglamento.

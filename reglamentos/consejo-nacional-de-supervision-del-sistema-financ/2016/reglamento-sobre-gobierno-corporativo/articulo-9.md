@@ -1,0 +1,1 @@
+Artículo 9. Efectividad del Gobierno Corporativo. El Órgano de Dirección y la Alta Gerencia son los responsables de revisar y ajustar periódicamente el Gobierno Corporativo para que se adapte a los cambios del entorno, de la entidad o de los Vehículos de Administración de Recursos de Terceros bajo su responsabilidad.

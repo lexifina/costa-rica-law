@@ -1,0 +1,8 @@
+Artículo 47. Tratamiento equitativo de los propietarios. EL Gobierno Corporativo garantiza un trato equitativo a todos los accionistas, incluidos los minoritarios y los extranjeros y facilita que todos los accionistas tengan la oportunidad de presentar un recurso efectivo en caso de violación de sus derechos.
+Entre otros aspectos, se deben considerar los siguientes:
+47.1 Los inversionistas tienen la posibilidad de obtener información sobre los derechos asociados a cada serie y categoría de acciones, antes de realizar una operación de compra.
+47.2 Los accionistas minoritarios son protegidos frente a actos abusivos por parte, o en interés de accionistas con poder de control, que actúen de forma directa o indirecta.
+47.3 Los miembros del Órgano de Dirección y Puestos Claves hacen de conocimiento del Órgano de Dirección cualquier interés que pudiera tener de forma directa, indirecta o por cuenta de terceros, en cualquiera de las transacciones o asuntos que afecten directamente a la sociedad.
+47.4 Los procesos y procedimientos de las asambleas generales de accionistas permiten que todos los accionistas disfruten de un trato equitativo y no dificultan indebidamente la emisión de votos.
+47.5 En los casos en los que las decisiones del Órgano de Dirección puedan afectar de forma diferente a distintos grupos de accionistas, el Órgano concede un trato justo a todos los accionistas.
+47.6 Establece mecanismos para evitar el uso de información privilegiada y las operaciones abusivas de autocartera por parte de los accionistas. Se entiende como operación abusiva las que se producen cuando se explotan las relaciones en detrimento de la compañía y los inversores.

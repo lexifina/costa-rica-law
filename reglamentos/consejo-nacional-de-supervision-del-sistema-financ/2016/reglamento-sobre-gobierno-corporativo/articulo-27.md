@@ -1,0 +1,1 @@
+Artículo 27. Comité de Nominaciones. Es el responsable de identificar y postular a los candidatos al Órgano de Dirección, tomando en cuenta los criterios y disposiciones establecidos en la sección V del Capítulo II de este Reglamento. Su conformación debe incluir al menos un Director Independiente.

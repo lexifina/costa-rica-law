@@ -1,0 +1,1 @@
+Artículo 11. Código de Conducta. El Órgano de Dirección debe mantener y aplicar un Código de Conducta para sí mismo y para todos los colaboradores de la entidad, así como velar por su cumplimiento. Este código debe ser plenamente conocido y aplicado por todos los colaboradores de la organización y definir los comportamientos aceptables e inaceptables.

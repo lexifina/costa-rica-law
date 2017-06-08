@@ -1,0 +1,14 @@
+Artículo 25. Comité de Auditoría. La conformación del Comité de Auditoría debe garantizar el ejercicio de un juicio independiente. Todos sus miembros deben poseer las habilidades, conocimientos y experiencia demostrable en el manejo y comprensión de la información financiera, así como en temas de contabilidad y auditoría. Debe ser presidido por un Director Independiente.
+No obstante lo dispuesto en el Artículo 4. de este Reglamento, la constitución del Comité de Auditoría es obligatoria para todas las entidades incluidas en el Artículo 2 de este Reglamento.
+El Comité de Auditoría es responsable, entre otros asuntos de:
+25.1 El proceso de reporte financiero y de informar al Órgano de Dirección sobre la confiabilidad de los procesos contables y financieros, incluido el sistema de información gerencial.
+25.2 La supervisión e interacción con auditores internos y externos.
+25.3 Proponer o recomendar al Órgano de Dirección las condiciones de contratación y el nombramiento o revocación de la firma o auditor externo conforme los términos del Reglamento sobre auditores externos aplicable a los sujetos fiscalizados por las superintendencias.
+25.4 Revisar y aprobar el programa anual de trabajo de la auditoría interna o equivalente y el alcance y frecuencia de la auditoría externa, de acuerdo con la normativa vigente.
+25.5 Vigilar que la Alta Gerencia toma las acciones correctivas necesarias en el momento oportuno para hacer frente a las debilidades de control, el incumplimiento de las políticas, leyes y reglamentos, así como otras situaciones identificadas por los auditores y el supervisor.
+25.6 Supervisar el cumplimiento de las políticas y prácticas contables.
+25.7 Revisar las evaluaciones y opiniones sobre el diseño y efectividad del gobierno de riesgos y control interno.
+25.8 Proponer al Órgano de Dirección, los candidatos para ocupar el cargo de auditor interno, excepto en el caso de las entidades supervisadas que se rigen por lo dispuesto en la Ley General de Control Interno, Ley 8292.
+25.9 Dar seguimiento al cumplimiento del programa anual de trabajo de la auditoría Interna o equivalente.
+25.10 Revisar la información financiera anual y trimestral antes de su remisión al Órgano de Dirección, de la entidad y del Vehículo de Administración de Recursos de Terceros, poniendo énfasis en cambios contables, estimaciones contables, ajustes importantes como resultado del proceso de auditoría, evaluación de la continuidad del negocio y el cumplimiento de leyes y regulaciones vigentes que afecten a la entidad o al Vehículo de Administración de Recursos de Terceros.
+25.11 Revisar y trasladar al Órgano de Dirección, los estados financieros anuales auditados, los informes complementarios, las comunicaciones del auditor externo y demás informes de auditoría externa o interna.

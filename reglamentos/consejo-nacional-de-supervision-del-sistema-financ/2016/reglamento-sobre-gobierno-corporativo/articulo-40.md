@@ -1,0 +1,9 @@
+CAPÍTULO VI
+RETRIBUCIONES, TRANSPARENCIA Y RENDICIÓN DE CUENTAS
+Artículo 40. Retribuciones e incentivos. El Órgano de Dirección debe establecer y verificar que el sistema de retribución e incentivos promueva el buen desempeño, fomente conductas de riesgo aceptables y refuerce la cultura de la entidad.
+El Órgano de Dirección debe controlar periódicamente su aplicación y conveniencia por medio de su revisión, para asegurar que se aplica correctamente.
+El Órgano de Dirección debe aprobar la remuneración de la Alta Gerencia, director de riesgo o equivalente y responsables de la auditoría interna o equivalente, y debe supervisar el desarrollo y el funcionamiento de las políticas de incentivos, sistemas y procesos de control de dichas políticas.
+La estructura de incentivos debe estar en línea con la estrategia y horizonte de negocio o de la actividad y nivel de riesgos, los objetivos, los valores y los intereses a largo plazo de la entidad e incorporar medidas para prevenir los conflictos de intereses.
+Para los empleados de las unidades o funciones de riesgo, cumplimiento y otras funciones de control, los incentivos deben determinarse de manera independiente de cualquier línea de negocio o actividad sustantiva y las medidas de desempeño, deben basarse principalmente en la consecución de sus propios objetivos, para no poner en peligro su independencia.
+Los programas de incentivos deben ser congruentes con la Declaración de Apetito de Riesgo, promover conductas de riesgo apropiadas y alentar a los empleados a actuar en interés de la entidad o del Vehículo de Administración de Recursos de Terceros, considerando los intereses de los Clientes y otras Partes Interesadas cuando corresponda.
+El Órgano de Dirección debe asegurarse que la retribución variable toma en cuenta los actuales y potenciales riesgos que toma un empleado, así como los riesgos incurridos, incluidas infracciones de los procedimientos internos o los requisitos legales y normativos.

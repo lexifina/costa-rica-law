@@ -1,0 +1,6 @@
+Artículo 13. Apetito de Riesgo y Declaración del Apetito de Riesgo. El Órgano de Dirección debe aprobar y dar seguimiento al Apetito de Riesgo, así como asegurar su alineamiento con los objetivos, la estrategia, el capital, los planes financieros y las prácticas de remuneración e incentivos de la entidad. De acuerdo con las políticas emanadas por el Órgano de Dirección, el Apetito de Riesgo debe ser comunicado por medio de una Declaración de Apetito de Riesgo que es comprendida por las Partes Interesadas pertinentes, entre otros: el propio Órgano de Dirección, la Alta Gerencia, los Órganos de Control y los empleados de la entidad. Dicha Declaración de Apetito de Riesgo debe de estar disponible para el supervisor.
+La Declaración de Apetito de Riesgo de la entidad incluye, entre otros:
+13.1 Consideraciones cuantitativas y cualitativas.
+13.2 El nivel y tipos de riesgo que la entidad o Vehículo de Administración de Recursos de Terceros está dispuesta a asumir con el fin de desarrollar sus actividades o negocios dentro de su Capacidad de Riesgo individual y agregada.
+13.3 Límites y consideraciones comerciales u operacionales, de conformidad con la estrategia de negocio o actividades sustantivas.
+El Apetito de Riesgo debe comunicarse a toda la entidad para que pueda ser vinculado a la toma de decisiones operativas diarias.

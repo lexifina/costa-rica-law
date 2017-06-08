@@ -1,0 +1,1 @@
+Artículo 34. Responsabilidad de la unidad o función de riesgos. La unidad o función de gestión de riesgos es responsable de identificar, evaluar, medir, informar y dar seguimiento sobre los riesgos de la entidad o Vehículo de Administración de Recursos de Terceros.
