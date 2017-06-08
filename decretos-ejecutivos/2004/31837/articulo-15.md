@@ -1,8 +1,0 @@
-Artículo 15.—Otros requisitos.
-a. Los reportes de análisis de combustibles alternos de contaminantes atmosféricos y otros así como los diagramas de flujo deberán cumplir con lo establecido en la Ley Nº 6038 del Colegio Federado de Químicos e Ingenieros Químicos de Costa Rica, publicada en el Alcance Nº 12 a La Gaceta Nº 18 del 27 de enero de 1977 y sus respectivas reformas y reglamentos.
-b. Presentar criterio de la Secretaría Técnica Nacional Ambiental (SETENA) y de la Dirección General de Comercialización de Combustibles del Ministerio del Ambiente y Energía, MINAE.
-c. La industria deberá contar con una bitácora dentro de sus instalaciones en la que se anotarán diariamente los datos de operación de adición de combustibles alternos señalando entre otros datos: fechas, horas, tipos, porcentaje de sustitución de combustible convencional y cantidades suministradas de combustibles alternos formulados (líquidos) y los sólidos, fechas, nombre del generador, procedencia y cantidades de residuos recibidas, fechas y motivos de paros y arranques de los hornos cementeros y cualquiera otra información de interés sanitario y ambiental.
-d. Señalar las medidas de prevención de derrames y fugas durante el almacenamiento de los combustibles alternos.
-e. Señalar los requerimientos empleados para el manejo de residuos incompatibles e inflamables.
-f. Señalar el manejo de los residuos del tratamiento, tales como los tanques API y enfriamientos de los gases.
-g. Describir la manera en que se efectuarán las inspecciones rutinarias de las instalaciones (para detectar fallas en los equipos de monitoreo, equipo de seguridad y emergencias, obras civiles, derrames, entre otros) y entrenamiento de los empleados.

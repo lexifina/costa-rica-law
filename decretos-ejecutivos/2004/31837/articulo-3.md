@@ -1,1 +1,0 @@
-Artículo 3º—Requisitos generales. La industria que solicite autorización al Ministerio de Salud para el uso de combustibles alternos debe señalar razón social, nombre del representante legal y dirección para oír y recibir notificaciones.

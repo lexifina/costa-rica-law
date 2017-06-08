@@ -1,1 +1,0 @@
-Artículo 16.—Muestreos perimetrales. Con el fin de verificar el impacto de las emisiones atmosféricas de la industria cementera a poblaciones y ambientes circundantes a la industria, el Ministerio de Salud podrá solicitar muestreos perimetrales de cualquier sustancia indicada en el presente Decreto o sus productos de degradación o transformación.

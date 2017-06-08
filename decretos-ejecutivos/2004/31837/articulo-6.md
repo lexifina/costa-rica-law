@@ -1,1 +1,0 @@
-Artículo 6º—Recolección de los residuos (combustibles alternos). El interesado deberá describir la forma en que se recolectan y reciben los residuos en la instalación de reciclaje, indicando si se utilizará transporte propio o de otra empresa, adjuntando en ambos casos copia de las autorizaciones respectivas por parte del MOPT para los vehículos a utilizar.
