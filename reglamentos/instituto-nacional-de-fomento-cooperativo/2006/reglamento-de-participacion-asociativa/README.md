@@ -19,3 +19,4 @@ Reglamento de Participación Asociativa
 | 4 | 2010-06-17 | Reglamento 3783 (2010-06-17) |
 | 5 | 2010-09-06 | Reglamento 3794 (2010-09-06) |
 | 6 | 2017-01-30 | Reglamento 4104 (2017-01-30) |
+| 7 | 2017-06-09 | Reglamento 16 (2017-06-09) |

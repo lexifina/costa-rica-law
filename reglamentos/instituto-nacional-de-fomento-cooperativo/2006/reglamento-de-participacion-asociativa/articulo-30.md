@@ -1,0 +1,2 @@
+Artículo 30.—Como resultado del llenado de Formulario de evaluación costo-beneficio en la Sección I denominada: Control previo de mejora regulatoria, siendo que el mismo dio resultado negativo y que no contiene trámites, requisitos o procedimientos que el administrado tenga que cumplir ante la institución, es que esta propuesta podrá ser emitida y publicada por la administración en cualquier momento y no deberá enviarse a la Dirección de Mejora Regulatoria.
+(Así adicionado mediante sesión N° 016 del 9 de junio del 2017)
