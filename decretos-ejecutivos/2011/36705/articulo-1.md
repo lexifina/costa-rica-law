@@ -15,12 +15,13 @@ DE HONORARIOS POR CONCEPTO DE AVALÚOS
 CON FINES HIPOTECARIOS Y PRENDARIOS QUE
 REQUIERAN LAS ENTIDADES CREDITICIAS
 DEL SECTOR PÚBLICO Y PRIVADO
-Artículo 1º—Honorarios mínimos. Se establecen las siguientes tarifas mínimas que regirán el cobro de honorarios por parte de los miembros del Colegio de Ingenieros Agrónomos, por la ejecución de avalúos hipotecarios y prendarios en el campo agropecuario y forestal.
-a) Para operaciones de crédito de hasta ¢4.000.000 los honorarios se fijan en el monto equivalente a 3.4 horas profesionales utilizando la hora profesional vigente establecida por el Colegio de Ingenieros Agrónomos de Costa Rica.
-b) De ¢4.000.001 en adelante, los honorarios se calcularán con base en la aplicación de la siguiente fórmula:
-Monto del honorario = (ipc) (M. Crédito/ipc) 0.597
+Artículo 1º-Honorarios mínimos. Se establecen las siguientes tarifas mínimas que regirán el cobro de honorarios por parte de los miembros del Colegio de Ingenieros Agrónomos, por la ejecución de avalúos hipotecarios y prendarios en el campo agropecuario y forestal.
+a) Para operaciones de crédito de hasta ¢5.250.000 los honorarios se fijan en el monto equivalente a 3.4 horas profesionales utilizando la hora profesional vigente establecida por el Colegio de Ingenieros
+Agrónomos de Costa Rica.
+b) De ¢5.250.001 en adelante, los honorarios se calcularán con base en la aplicación de la siguiente fórmula:
+Monto del honorario = (ipc) (M. Crédito/ipc) 0.618
 Donde:
-M. Crédito: Monto del crédito aprobado al cliente por la persona física o jurídica que otorga el préstamo a quien se le hace el avalúo.
-ipc: índice de precios al consumidor registrado para el mes anterior a la fecha del avalúo según el Banco Central de Costa Rica.
-(Así reformado el concepto anterior por el artículo 1° del decreto ejecutivo N° 37817 del 13 de marzo de 2013)
-Exponencial 0.597: Factor seleccionado para dar el mejor ajuste en una curva de regresión con respecto a otros valores tomados como referencia.
+M. Crédito: Monto del crédito solicitado por el cliente o aprobado al cliente, por la persona física o jurídica que otorga el préstamo a quien se le hace el avalúo.
+Ipc: índice de precios al consumidor registrado para el mes anterior a la fecha del avalúo según el Banco Central de Costa Rica.
+Exponencial 0.618: Factor seleccionado para dar el mejor ajuste en una curva de regresión con respecto a otros valores tomados como referencia.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40511 del 9 de junio del 2017)
