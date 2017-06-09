@@ -18,3 +18,4 @@ Reglamento sobre Nombramiento, Deberes, Atribuciones y Remoción de Representant
 | 3 | 2010-04-19 | Reglamento 3779 (2010-04-19) |
 | 4 | 2010-09-06 | Reglamento 3794 (2010-09-06) |
 | 5 | 2017-01-30 | Reglamento 4104 (2017-01-30) |
+| 6 | 2017-06-09 | Reglamento 16 (2017-06-09) |
