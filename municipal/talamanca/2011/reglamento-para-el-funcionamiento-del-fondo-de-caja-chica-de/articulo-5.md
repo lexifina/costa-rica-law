@@ -1,2 +1,2 @@
-Artículo 5º—El monto autorizado para poder realizar una compra por cada vale será de ¢150.000,00 ciento cincuenta mil colones
-La actualización del fondo de caja chica y del monto del vale se efectuará en forma automática, cada dos años a partir de la entrada en vigencia de este reglamento, el porcentaje de incremento cada dos años será de un 25%, afectando tanto el fondo de caja como el monto del comprobante de caja chica.
+Artículo 5. Que el monto autorizado para poder realizar una compra por cada vale será de ¢1.000.000.00 un millón de colones. De los cuales cada jefe de departamento estará autorizado para aprobar compras hasta por un monto de ¢500.000.00, si la compra fuese mayor a este monto, la misma deberá estar autorizada por el alcalde.
+(Así reformado mediante sesión ordinaria N° 55 del 9 de junio del 2017)
