@@ -32,4 +32,7 @@ Artículo 37º- El Gerente General tiene entre otras las siguientes funciones y 
 31. Rendir el Informe de Fin de Gestión, al concluir el período para el que fue nombrado, en cumplimiento de lo estipulado en la Ley General de Control Interno y de acuerdo con las directrices y lineamientos emitidos por la Contraloría General de la República; y
 32. Autorizar y aprobar las concesiones y exenciones de pago de los servicios que presta el CENADA, la Red Frigorífica Nacional y las demás dependencias del PIMA que de acuerdo con la ley se establezcan en el territorio nacional, de acuerdo a la reglamentación vigente.
 33. Autorizar los permisos, vacaciones, vehículos y demás trámites administrativos que solicite el auditor y el secretario de actas.
-34. Ejecutar las demás funciones que le asigne el Consejo Directivo, las leyes y reglamentos.
+34. El Gerente podrá realizar modificaciones presupuestarias y reacomodo de partidas en tanto estas no alteren ni modifiquen la planificación institucional (PAO, POI), para lo cual el Consejo Directivo reglamentará dicha facultad.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 40513 del 9 de junio del 2017)
+35. Ejecutar las demás funciones que le asigne el Consejo Directivo, las leyes y reglamentos.
+(Corrida la numeración del inciso anterior por el artículo 2° del decreto ejecutivo N° 40513 del 9 de junio del 2017, que lo traspasó del antiguo inciso 34 al 35)

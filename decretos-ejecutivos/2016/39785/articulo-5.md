@@ -8,7 +8,8 @@ Artículo 5º- El Consejo Directivo como jerarquía política del PIMA tiene las
 7. Aprobar el presupuesto anual ordinario del PIMA, los presupuestos extraordinarios y sus modificaciones; así como los estados financieros e informes conexos, las liquidaciones presupuestarias, la liquidación del ejercicio económico y las memorias de la Institución;
 8. Autorizar y aprobar los cánones, y reglamentar las concesiones y exenciones de pago de los servicios que presta el CENADA, la Red Frigorífica Nacional y las demás dependencias del PIMA que de acuerdo con la ley se establezcan en el territorio nacional;
 9. Aceptar las donaciones, herencias y legados que se hagan al PIMA.
-10. Autorizar la contratación de empréstitos nacionales o internacionales para el cumplimiento de los fines del PIMA, previo dictamen de la Gerencia y la Auditoría Interna;
+10. Autorizar la contratación de empréstitos nacionales o internacionales para el cumplimiento de los fines del PIMA, previo dictamen de la Gerencia.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40513 del 9 de junio del 2017)
 11. Autorizar la venta, enajenación o gravamen de los bienes de la Institución y la inversión de los fondos disponibles, de acuerdo con la normativa vigente;
 12. Autorizar las transacciones, conciliaciones y compromisos arbitrales en los litigios del PIMA;
 13. Aprobar los carteles y adjudicar las Licitaciones Públicas, conforme a lo establecido por la Ley de Contratación Administrativa y su respectivo Reglamento;

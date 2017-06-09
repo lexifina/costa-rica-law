@@ -14,3 +14,4 @@ Reglamento del Funcionamiento del Programa Integral de Mercadeo Agropecuario (PI
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-07-29 | la propia norma |
+| 2 | 2017-06-09 | Decreto Ejecutivo 40513 (2017-06-09) |
