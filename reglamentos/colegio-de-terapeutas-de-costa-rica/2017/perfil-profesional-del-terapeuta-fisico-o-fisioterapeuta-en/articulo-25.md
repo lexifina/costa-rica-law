@@ -1,0 +1,1 @@
+Artículo 25.- El profesional en Terapia Física o Fisioterapia puede intervenir en el proceso de evaluación, recomendación y abordaje terapéutico en el campo de la Odontología y de la Veterinaria en forma interdisciplinaria.

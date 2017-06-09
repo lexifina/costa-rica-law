@@ -1,0 +1,1 @@
+Artículo 6.- El terapeuta físico o fisioterapeuta conoce, comprende y utiliza los métodos, procedimientos y actuaciones dirigidas tanto a la aplicabilidad del tratamiento terapéutico para la prevención, reeducación y recuperación funcional como también para la realización de actividades dirigidas a la promoción y mantenimiento de la salud.

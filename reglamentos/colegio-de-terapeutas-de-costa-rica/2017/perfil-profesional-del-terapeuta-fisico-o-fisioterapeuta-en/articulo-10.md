@@ -1,0 +1,1 @@
+Artículo 10.- El terapeuta físico o fisioterapeuta confecciona los registros en salud respecto de cada uno de los usuarios que interviene, consignando todas las acciones realizadas durante y después de la intervención terapéutica.

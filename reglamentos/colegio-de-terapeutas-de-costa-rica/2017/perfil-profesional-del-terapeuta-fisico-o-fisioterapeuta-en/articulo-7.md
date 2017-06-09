@@ -1,0 +1,1 @@
+Artículo 7.- El terapeuta físico o fisioterapeuta posee la experiencia clínica que proporciona un adecuado razonamiento para el proceso de toma de decisiones clínicas y desarrollo de destrezas técnicas y manuales.

@@ -1,0 +1,1 @@
+Artículo 14.- El terapeuta físico o fisioterapeuta posee habilidades de gestión clínica que incluyen el uso eficiente de los recursos sanitarios y desarrolla actividades de planificación, gestión y control en las unidades asistenciales donde se preste el servicio de Fisioterapia.

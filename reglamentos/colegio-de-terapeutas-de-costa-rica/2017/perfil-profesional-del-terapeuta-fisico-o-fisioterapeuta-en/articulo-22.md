@@ -1,0 +1,1 @@
+Artículo 22.- El terapeuta físico o fisioterapeuta podrá desarrollar funciones de gestión y dirección en servicios o centros donde se ejecuten actividades relacionadas con el área de la Terapia Física o Fisioterapia y campos afines.

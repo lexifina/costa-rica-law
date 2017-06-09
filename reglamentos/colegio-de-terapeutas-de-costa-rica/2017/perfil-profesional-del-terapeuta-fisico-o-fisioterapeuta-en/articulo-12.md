@@ -1,0 +1,1 @@
+Artículo 12.- El terapeuta físico o fisioterapeuta participa en la elaboración de planes o programas asistenciales basados en la evidencia científica y fomentando actividades profesionales que dinamicen la investigación en dicho campo.

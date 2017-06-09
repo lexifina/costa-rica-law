@@ -1,0 +1,1 @@
+Artículo 5.- El terapeuta físico o fisioterapeuta conoce y comprende los diferentes campos de las ciencias, los modelos, las técnicas y los instrumentos sobre los que se fundamenta, articula y desarrolla su profesión.

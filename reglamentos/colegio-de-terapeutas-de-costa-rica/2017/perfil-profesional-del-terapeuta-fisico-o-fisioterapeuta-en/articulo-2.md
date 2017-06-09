@@ -1,0 +1,1 @@
+Artículo 2.- El terapeuta físico o fisioterapeuta, como profesional independiente y autónomo tiene competencias en los campos de clínica, prevención, promoción, evaluación y diagnóstico, intervención o tratamiento y otras funciones que establezca este perfil profesional.

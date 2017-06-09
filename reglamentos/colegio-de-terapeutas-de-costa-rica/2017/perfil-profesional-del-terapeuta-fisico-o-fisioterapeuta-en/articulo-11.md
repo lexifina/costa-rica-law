@@ -1,0 +1,1 @@
+Artículo 11.- El terapeuta físico o fisioterapeuta interviene en los ámbitos de promoción, prevención, protección y recuperación de la salud. De igual manera, se encuentra capacitado para intervenir usuarios con diversas condiciones de salud mediante el trabajo multidisciplinario e interdisciplinario

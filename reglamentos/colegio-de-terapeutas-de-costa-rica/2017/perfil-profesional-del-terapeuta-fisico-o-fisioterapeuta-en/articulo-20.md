@@ -1,0 +1,1 @@
+Artículo 20.- Aquellas intervenciones que no se encuentren contempladas en el artículo 19 y que el colectivo de profesionales determine como necesarias de incorporar en el perfil, requerirán una adenda con su normativa específica.

@@ -1,0 +1,1 @@
+Artículo 8.- El terapeuta físico o fisioterapeuta evalúa y valora el estado funcional del usuario, considerando los aspectos físicos, psicológicos y sociales. Asimismo, define los objetivos del tratamiento del usuario y el plan de intervención, atendiendo a los criterios de adecuación, validez y eficiencia determinados por la práctica basada en la evidencia.

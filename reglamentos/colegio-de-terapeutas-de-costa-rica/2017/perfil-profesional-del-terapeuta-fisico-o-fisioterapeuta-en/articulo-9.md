@@ -1,0 +1,1 @@
+Artículo 9.- El terapeuta físico o fisioterapeuta ejecuta, dirige y coordina el plan de intervención del usuario, utilizando las herramientas terapéuticas respectivas. Además, evalúa la evolución de los resultados obtenidos con el tratamiento en relación con los objetivos definidos.
