@@ -1,0 +1,2 @@
+ARTÍCULO 19 EDUCACIÓN
+LA COMISION NACIONAL ANTIDOPAJE DE COSTA RICA planificará, implementará, evaluará y realizará el seguimiento de programas de información, educación y prevención para un deporte sin dopaje en relación al menos con los temas indicados en el Artículo 18.2 del Código, y apoyará la participación activa de los Deportistas y del Personal de Apoyo a los Deportistas en dichos programas.

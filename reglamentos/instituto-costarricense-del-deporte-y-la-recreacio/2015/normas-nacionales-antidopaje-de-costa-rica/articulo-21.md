@@ -1,0 +1,7 @@
+ARTÍCULO 21 INTERPRETACIÓN DEL CÓDIGO
+21.1 El Código, en su versión oficial, será actualizado por la AMA y publicado en sus versiones al inglés y al francés. En caso de conflicto de interpretación entre las versiones inglesa y francesa del Código, prevalecerá la versión inglesa.
+21.2 Los comentarios que acompañan a varias disposiciones del Código se utilizarán para interpretarlo.
+21.3 El Código se interpretará como un documento independiente y autónomo, y no con referencia a leyes o estatutos existentes en los países de los Signatarios o gobiernos.
+21.4 Los títulos utilizados en las distintas partes y Artículos del Código tienen como propósito únicamente facilitar su lectura, y no se podrán considerar como parte sustancial del Código, ni podrán afectar de forma alguna al texto de la disposición a la que se refieren.
+21.5 El Código no se aplicará con carácter retroactivo a las causas pendientes antes de la fecha en la que el Código sea aceptado por el Signatario e implementado en sus normas. Sin embargo, las infracciones de las normas antidopaje anteriores a la entrada en vigor del Código seguirán contando como primera o segunda infracción con el objeto de determinar las sanciones previstas en el Artículo 10 para infracciones producidas tras la entrada en vigor del Código.
+21.6 La sección Propósito, Ámbito de Aplicación y Organización del Programa Mundial Antidopaje y del Código, así como el Anexo 1, Definiciones, y el Anexo 2, los Ejemplos de la Aplicación del Artículo 10, se considerarán parte integrante del Código.

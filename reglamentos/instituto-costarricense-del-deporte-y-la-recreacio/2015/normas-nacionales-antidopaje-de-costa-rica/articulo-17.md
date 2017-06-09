@@ -1,0 +1,2 @@
+ARTÍCULO 17 PLAZO DE PRESCRIPCIÓN
+No se podrá iniciar ningún proceso por infracción de las normas antidopaje contra un Deportista o contra otra Persona a menos que ésta haya sido notificada de la Infracción de las Normas Antidopaje de acuerdo con lo establecido en el Artículo 7, o se le haya intentado razonablemente notificar dentro de un plazo de diez años desde la fecha en la que se haya cometido la infracción alegada.
