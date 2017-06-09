@@ -1,1 +1,0 @@
-Artículo 8º—Patentes de licores: Autorización emitida por la Municipalidad para la comercialización de bebidas con contenido alcohólico, autorizadas mediante la Ley Nº 10 del 07 de octubre de 1936, según el transitorio I de la Ley.
