@@ -1,0 +1,2 @@
+Artículo 24 bis.-Recaudación y destino de multas. Las multas que se recauden, por incumplimiento de las obligaciones establecidas en el artículo 7 de la presente ley, serán trasladadas al Servicio Nacional de Salud Animal (Senasa) y serán destinadas a las labores de educación, control y fiscalización de las obligaciones allí establecidas. El Servicio podrá establecer convenios con las municipalidades, para asegurar las labores de vigilancia, educación y fiscalización.
+(Así adicionado por el artículo 1° de la ley N° 9458 del 11 de junio de 2017)

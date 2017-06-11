@@ -1,3 +1,6 @@
-ARTICULO 7.- Trato a los animales mascota.
-Los dueños de animales mascota están obligados a garantizarles
-condiciones vitales básicas.
+Artículo 7.-Trato a los animales de compañía. Los dueños o los responsables de los animales de compañía deberán cumplir con las siguientes obligaciones:
+a) Garantizarles condiciones vitales básicas y manejo apropiado según las buenas prácticas de seguridad, para evitar riesgos y daños a la integridad, la salud pública y la salud pública veterinaria.
+b) Mantener los espacios destinados a su hábitat en condiciones apropiadas de higiene, con el fin de prevenir la propagación de enfermedades.
+c) Recoger y depositar, en lugares apropiados, los desechos fecales de los animales de compañía que sean arrojados en las aceras, los parques, las calles, los jardines públicos, las playas y demás lugares públicos.
+d) Los dueños o responsables de los animales de compañía deberán cumplir con los requerimientos establecidos en esta ley y con las normas de salud pública y veterinaria, además de contar con lugares apropiados de espacios e higiene, con el propósito de no propagar enfermedades. De igual forma, cuando las mascotas circulan por las vías públicas, los respectivos dueños o responsables deberán tomar las medidas de seguridad con los mecanismos correspondientes.
+(Así reformado por el artículo 1° de la ley N° 9458 del 11 de junio de 2017)
