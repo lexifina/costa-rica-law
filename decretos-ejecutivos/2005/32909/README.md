@@ -19,3 +19,4 @@ Reglamento al Artículo 10 de la Ley N°1038 de Tarifas de Honorarios Profesiona
 | 4 | 2012-01-26 | Acuerdo 30 (2012-01-26) |
 | 5 | 2014-04-28 | Acuerdo 237 (2014-04-28) |
 | 6 | 2015-03-09 | Acuerdo 191 (2015-03-09) |
+| 7 | 2017-06-12 | Acuerdo 451 (2017-06-12) |
