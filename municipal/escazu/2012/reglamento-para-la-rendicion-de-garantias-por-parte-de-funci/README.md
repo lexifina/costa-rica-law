@@ -14,3 +14,4 @@ Reglamento para la rendición de garantías por parte de funcionarios o funciona
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-08 | la propia norma |
+| 2 | 2017-06-12 | Reglamento municipal 59 (2017-06-12) |
