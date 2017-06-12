@@ -1,0 +1,1 @@
+Transitorio I: A partir de la vigencia de esta reforma, Recursos Humanos cuenta con un mes para presentar, para aprobación por parte del jerarca superior administrativo, la propuesta de procedimiento de estudios de puestos.
