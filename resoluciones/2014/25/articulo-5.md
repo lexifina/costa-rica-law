@@ -1,5 +1,4 @@
-Artículo 5º—Registro electrónico de compras de mercancías y servicios. El registro electrónico de compras de mercancías y de servicios detallará cada una de las facturas por concepto de compra de mercancías y/o de servicios, así como también las devoluciones (notas de débito) que las afecte. Este registro deberá contener obligatoriamente y en el orden que se detalla, la siguiente
-información:
+Artículo 5º—Registro electrónico de compras de mercancías y servicios. El registro electrónico de compras de mercancías y de servicios detallará cada una de las facturas por concepto de compra de mercancías y/o de servicios, así como también las devoluciones (notas de débito) que las afecte. Este registro deberá contener obligatoriamente y en el orden que se detalla, la siguiente información:
 i. Número de factura: Número de identificación asignado por el proveedor a la factura que respalda la compra.
 ii. Nota de débito: Número consecutivo asignado a las notas que respaldan las devoluciones de las compras realizadas.
 iii. Fecha de emisión: Fecha en la cual se emite la factura o nota de débito.
@@ -21,11 +20,11 @@ xviii. Número de nota de autorización o exención para comprar sin IVA, ISC o 
 xix. Fecha de vigencia de la autorización: Periodo que cubre la nota de autorización que se menciona en el acápite anterior.
 Tratándose de notas de débito, adicional a la información solicitada en los puntos ii) y xx) del presente artículo, los contribuyentes y declarantes deberán consignar la información de los demás numerales, por ejemplo, el ISC soportado, el IVA soportado, etc.
 De igual manera, formarán parte del registro electrónico de compras de mercancías y servicios realizadas por internación o importación, las cuales deberán ser incluidas bajo los mismos parámetros enunciados que identifiquen claramente que corresponden a importaciones efectuadas. Adicionalmente a lo establecido, el registro de estas transacciones deberá detallar:
-xx. Número de DUA de Importación: Número de identificación de la Declaración Única Aduanera con la que se están importando las mercancías.
-xxi. Fecha de la DUA de Importación: Fecha de la Declaración Única Aduanera.
-xxii. Partida arancelaria: Epígrafe que el arancel de aduanas asigna a la mercancía.
-xxiii. Detalle de la partida arancelaria: Descripción asignada a la partida arancelaria referenciada en el acápite anterior.
-xxiv. Aduana: Nombre la Aduana a través de la cual ingresaron las mercancías importadas.
-xxv. Nombre de la agencia aduanal o el agente de aduanas (sea persona física o jurídica) que realiza el trámite de importación.
-xxvi. Número de identificación (cédula física o jurídica) del agente de aduanas o la agencia aduanal que realiza el trámite de exportación.
-xxvii. Valor de Aduanas: Valor de las mercancías reflejado en la DUA.
+xx.(Anulado mediante sentencia del Tribunal Contencioso Administrativo, Sección V Nº 52-2017-V del 12 de junio de 2017).
+xxi.(Anulado mediante sentencia del Tribunal Contencioso Administrativo, Sección V Nº 52-2017-V del 12 de junio de 2017).
+xxii.(Anulado mediante sentencia del Tribunal Contencioso Administrativo, Sección V Nº 52-2017-V del 12 de junio de 2017).
+xxiii.(Anulado mediante sentencia del Tribunal Contencioso Administrativo, Sección V Nº 52-2017-V del 12 de junio de 2017).
+xxiv.(Anulado mediante sentencia del Tribunal Contencioso Administrativo, Sección V Nº 52-2017-V del 12 de junio de 2017).
+xxv. (Anulado mediante sentencia del Tribunal Contencioso Administrativo, Sección V Nº 52-2017-V del 12 de junio de 2017).
+xxvi. (Anulado mediante sentencia del Tribunal Contencioso Administrativo, Sección V Nº 52-2017-V del 12 de junio de 2017).
+xxvii. (Anulado mediante sentencia del Tribunal Contencioso Administrativo, Sección V Nº 52-2017-V del 12 de junio de 2017).

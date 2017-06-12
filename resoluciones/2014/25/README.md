@@ -14,3 +14,4 @@ Establece la obligatoriedad de los grandes contribuyentes nacionales de llevar p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-01 | la propia norma |
+| 2 | 2017-06-12 | SINALEVI (sin norma nombrada) |
