@@ -1,0 +1,1 @@
+Artículo 4°.- Con el propósito de optimizar los recursos para la realización de actividades de capacitación, se exhorta a las áreas de capacitación de las instituciones del Sector para que coordinen la logística para el desarrollo de actividades c01tjuntas, que pem1itan incorporar a la mayor cantidad de funcionarios en temas afines.
