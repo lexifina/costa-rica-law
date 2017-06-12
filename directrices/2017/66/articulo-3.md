@@ -1,0 +1,1 @@
+Artículo 3°- La Secretaría de Planificación Sectorial, por medio del Proceso de Gestión Ambiental y Social para los proyectos del Sector Transporte e Infraestructura, asesorará a los encargados de la Comisión Institucional de Gestión Ambiental de las instituciones que conforman dicho Sector, para la elaboración, implementación y seguimiento del PGAI.
