@@ -11,14 +11,14 @@ f. Requisitos.
 Superficie mínima 1.500 m
 Superficie máxima 4.000 m
 Frente mínimo 15 m
-Retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+Retiro lateral 5 m
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 Cobertura máxima 30%
 Zona verde 70%
-Retiro frontal: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-Retiro posterior: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-Retiro posterior. Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+Retiro frontal 5 m
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+Retiro posterior 5 m
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+Retiro posterior 3 m
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 Altura de cumbrera 5.5 m

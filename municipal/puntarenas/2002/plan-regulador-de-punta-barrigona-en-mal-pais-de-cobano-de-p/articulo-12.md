@@ -8,8 +8,7 @@ Buceo libre
 Alquiler de botes u canoas
 e. Usos conflictivos. Cualquier instalación que no esté asociada a la actividad turística.
 f. Concesiones. Según aquellas establecidas por la Ley Nº 6043 y su Reglamento.
-g.Retiro frontal, retiro posterior, retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así adicionado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+(Nota de Sinalevi: Mediante sesión sesión ordinaria N° 59 del 13 de junio de 2017 se reestablecen todas las reformas introducidas mediante la sesión N° 06 del 10 de febrero de 2015, la cual anteriormente había introducido un inciso g) indicaba lo siguiente: “g. Retiro frontal, retiro posterior, retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo”)
 USOS PERMITIDOS
 Los senderos naturales son quizá, el aspecto más notorio que permitirá el mejor aprovechamiento de las bellezas naturales presentes en Punta Barrigona. Así mismo, se deben construir asociados varios miradores que permitirán aprovechar al máximo los excelentes sitios que existen para tal fin.
 Los mismos serán uno de los componentes más importantes del proyecto propuesto, y que permitirán la observación de la flora y la fauna que existen en las diferentes asociaciones vegetales.
