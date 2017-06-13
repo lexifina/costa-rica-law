@@ -10,7 +10,7 @@ Superficie mínima | 150 m2
 Superficie máxima | I 000 m2
 Frente mínimo | 10 metros
 Frente máximo | 20 metros
-Retiro frontal, lateral y posterior | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+Retiro frontal, lateral y posterior | 3 metros (Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 Cobertura máxima | 60%
 Altura máxima | 7 metros (2 pisos)
 Todo proyecto comercial deberá tramitar los respectivos planos ante la Comisión Centralizadora de Permisos de Construcción y deberá cumplir con lo dispuesto por el Ministerio de Salud, el ICT y la Municipalidad de Puntarenas.

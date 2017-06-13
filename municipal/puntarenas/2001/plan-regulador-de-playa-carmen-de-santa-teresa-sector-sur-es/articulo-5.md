@@ -5,13 +5,13 @@ c. Usos permitidos: Vivienda unifamiliar, áreas de deportes, áreas verdes.
 d. Usos condicionales: Cabinas, ventas de artesanía y souvenirs.
 e. Usos conflictivos: Hoteles, discotecas, centros comerciales, depósitos de materiales, talleres, industrias. Cualquier otra instalación, edificación o actividad que emita ruido, malos olores, vibración o contaminación en general.
 f. Requisitos: De acuerdo con lo que se pretende, para los lotes se han definido las siguientes normas:
-Superficie mínima | 200 metros cuadrados (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-Superficie máxima | 4.000 metros cuadrados (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+Superficie mínima | 600 metros cuadrados (Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+Superficie máxima | 2.000 metros cuadrados (Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 Frente mínimo: | 15 metros
 Frente máximo: | 30 metros
-Retiro frontal: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-Retiro lateral: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-Retiro posterior: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+Retiro frontal: | 5 metros (Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+Retiro lateral: | 3 metros (Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+Retiro posterior: | 3 metros (Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 Cobertura máxima: | 40 %
 Altura máxima | 7 metros (dos pisos)
 La zona residencial, debe tener las vías de acceso secundarias y peatonales y áreas verdes como exige la Ley de Planificación Urbana.
