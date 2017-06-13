@@ -15,3 +15,4 @@ Plan Regulador del Sector Costero Anexo de Punta Barrigona, Reglamento de Zonifi
 | --- | --- | --- |
 | 1 | 2004-10-01 | la propia norma |
 | 2 | 2015-02-10 | Reglamento municipal 6 (2015-02-10) |
+| 3 | 2017-06-13 | Reglamento municipal 59 (2017-06-13) |

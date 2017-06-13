@@ -66,13 +66,13 @@ D.3. Usos permitidos: Vivienda unifamiliar, áreas de deportes livianos, áreas 
 D.4. Usos condicionales: Sodas, restaurantes, ventas de artesanía y souvenir.
 D.5. Usos conflictivos: Hoteles, bares, discotecas, centros comerciales, depósitos de materiales, talleres, industrias. Cualquier otra instalación, edificación o actividad que emita ruido, malos olores, vibración o contaminación en general.
 D.6. Requisitos: De acuerdo con lo que se pretende, el INVU ha definido normas al respecto.
-- Superficie mínima: | 200 metros cuadrados (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Superficie máxima: | 4. 000 metros cuadrados (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Superficie mínima: | 600 metros cuadrados (Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Superficie máxima: | 2 000 metros cuadrados (Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 - Frente mínimo: | 15 metros
 - Frente máximo: | 30 metros
-- Retiro frontal: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Retiro lateral: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Retiro posterior | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro frontal: | 5 metros (Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Retiro lateral: | 3 metros (Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Retiro posterior | 5 metros. (Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 - Cobertura máxima: | 40%
 - Altura máxima: | 5 metros
 Cada una de las concesiones de la zona residencial debe tener las vías de acceso secundarias de carácter público y peatonales y áreas verdes como exige la Ley de Planificación Urbana en sus porcentajes mayores. Los planos a nivel de anteproyecto y constructivos deben ser visados y aprobados por la Oficina Centralizadora de Permisos. Especial énfasis deben tener las siguientes instituciones: ICE, Ministerio de Salud, Acueductos y Alcantarillados, INVU, ICT y Municipalidad de Puntarenas.
@@ -89,9 +89,9 @@ E.6. Requisitos:
 - Superficie máxima: | 1 000 metros cuadrados
 - Frente mínimo: | 10 metros
 - Frente máximo: | 20 metros
-- Retiro Frontal: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Retiro Lateral: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Retiro Posterior: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro Frontal: | 5 metros (Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Retiro Lateral: | 3 metros (Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Retiro Posterior: | 5 metros (Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 - Cobertura máxima: | 75%
 - Altura máxima: | 5 metros
 E.7 Concesión: De acuerdo con lo establecido en la Ley Nº 6043 y su Reglamento.
@@ -119,9 +119,9 @@ F.6. Requisitos: El interesado o solicitante a concesión deberá acatar los req
 El diseño espacial deberá respetar como mínimo las siguientes normas:
 - Superficie mínima: | 5 000 metros cuadrados
 - Superficie máxima: | 20 000 metros cuadrados
-- Retiro frontal: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Retiro lateral: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Retiro posterior: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro frontal: | 10 metros (Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Retiro lateral: | 3 metros (Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Retiro posterior: | 10 metros (Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 - Cobertura máxima: | 40%
 - Altura máxima: | 7 metros (dos plantas, no incluye la altura de techos de palma. Además se advierte que en caso de ranchos abiertos con techos de palma se permitirá una altura máx. de 10 m en una planta; no se permiten mezanines).
 - Vías internas mínimo: | 10%
@@ -133,8 +133,9 @@ G.2. Localización: Se dispone de varios puntos en aquellos extremos de las call
 G.3. Usos permitidos: Servicios sanitarios, vestidores y duchas, puesto de información turística, puesto de primeros auxilios, servicios telefónicos.
 G.4. Usos condicionales: Refresquerías y sodas, kioscos de venta de comidas ligeras, ranchos de pic-nic, asadores.
 G.5. Usos conflictivos: Toda edificación o actividad que no sea estrictamente de servicio para publico que visita la playa.
-G.6. Requisitos:Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+G. 6. Requisitos:
+Se deberán respetar las disposiciones de la Ley de Construcciones y de Salud, así como el tratamiento de diseño para adecuar las obras al medio natural. Su cobertura será del 50% y los retiros de 2.0 metros. La altura máxima es de 3 metros (un nivel). Se permiten alturas de hasta 8 metros para ranchos con techo de palma. Los proyectos para esta zona deberán contar, además con la aprobación del ICT y del Ministerio de Salud.
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 G.7. Concesión: Según lo establece la Ley Nº 6043 y su Reglamento.
 H. ZONA COOPERATIVA (ZCO):
 H.1. Propósito: Hacer efectivo el inciso c) del artículo 57 de la Ley Nº 6043.
@@ -143,12 +144,7 @@ H.3. Usos permitidos: Cabinas, restaurante, piscinas, áreas de deportes, sodas,
 H.4. Usos condicionales: Salón de baile, discotecas, juegos de salón, salones de reuniones, salas de espectáculos.
 H.5. Usos conflictivos: Toda actividad o edificación, que no sea estrictamente recreativa turística o generadora de lucro: Hoteles, servicios, comercio, talleres, etc., que se opongan a su carácter de servicio gremial. El grupo concesionario deberá garantizar el adecuado uso de las instalaciones, considerando las características particulares de la zona, a fin de evitar altas aglomeraciones, ruido excesivo, daños a la vegetación y playas.
 H.6. Requisitos: La agrupación, asociación, sindicato, federación o club interesado, deberá presentar un proyecto con los mismos requisitos señalados para los desarrollos de hoteles y cabinas.
-Superficie mínima: 200 metros cuadrados.
-(Así adicionado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-Superficie máxima: 4.000 metros cuadrados
-(Así adicionado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-Retiro frontal, posterior, lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo
-(Así adicionado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 H.7. Concesiones: La Municipalidad de Puntarenas ofrecerá por medio de aviso público, en los principales medios de comunicación, las áreas para tal fin, recibiendo las ofertas y calificando estas, escogiendo aquel proyecto que se ajuste a los objetivos indicados en la Ley. Especial énfasis debe dar la Municipalidad de Puntarenas, en la inversión, servicios a desarrollar, infraestructura y calidad de las edificaciones, estética y arquitectura en general ofrecidos. La concesión a ser dada, será de acuerdo con lo establecido por la Ley Nº 6043 y su Reglamento.
 I. ZONA DE VIALIDAD Y ESTACIONAMIENTO (ZVI):
 I.1. Propósito: Permitir la libre circulación vehicular y el fácil acceso a todos los sectores, servicios e instalaciones con que cuente el sitio, así como de dotar las áreas de estacionamiento requeridos por los visitantes no pernoctantes.
