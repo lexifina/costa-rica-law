@@ -8,10 +8,10 @@ f. Concesiones: Esta Zona se darán en concesión a las personas físicas o jur�
 g. Requisitos: El interesado deberá presentar un anteproyecto de desarrollo del área mostrando los diseños de todas las instalaciones y el diseño de senderos y refugios, además en los sectores donde corra alguna quebrada se deberá respetar el retiro establecido en este mismo reglamento para protección de las mismas. Deberá ajustarse al máximo a los siguientes requisitos:
 a) Densidad máxima: 4 viviendas / hectárea
 b) Cobertura máxima: 30%.
-c) Retiros laterales y frontales: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
-d) Retiro posterior: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
+c) Retiros laterales y frontales: 3 m.
+(Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+d) Retiro posterior: 5 m.
+(Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 e) Tamaño mínimo del lote: 2 000 m2.
 f) Tamaño máximo del lote: 4 000 m2.
 g) Altura máxima: 2 pisos / 7 metros

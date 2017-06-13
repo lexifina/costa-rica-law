@@ -7,12 +7,12 @@ e. Usos conflictivos: Cualquiera que no sea de carácter ecoturístico.
 f. Requisitos: El diseño del sitio deberá ajustarse al máximo a las siguientes normas de carácter legal y a la vez con los requisitos anotados en las "Observaciones Generales" del presente reglamento:
 1. Densidad máxima: 25 habitaciones dobles / Ha.
 2. Cobertura máxima: 35%.
-3. Retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
-4. Retiro frontal: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
-5. Retiro posterior: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
+3. Retiro lateral: 3 m.
+(Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+4. Retiro frontal: 3 m.
+(Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+5. Retiro posterior: 3 m.
+(Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 6. Área verde: 65%
 7. Ancho mínimo caminos internos: 7 m.
 8. Altura máxima número de plantas: 2 pisos
