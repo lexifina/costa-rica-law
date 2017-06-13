@@ -1,0 +1,1 @@
+Artículo 3.-Se instruye al Consejo Técnico de Aviación Civil (CETAC) para que proceda a la actualización del proyecto "Construcción del aeropuerto metropolitano 2025" inscrito en el banco de proyectos de inversión pública (BPIP) del Ministerio de Planificación y Política Económica, bajo el código 001392.

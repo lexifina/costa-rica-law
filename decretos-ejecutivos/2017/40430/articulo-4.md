@@ -1,0 +1,1 @@
+Artículo 4.-Se instruye al CETAC para que proceda· a conformar un grupo técnico a efectos de que inicie la implementación de las acciones necesarias para el desarrollo del proyecto del aeropuerto mencionado.
