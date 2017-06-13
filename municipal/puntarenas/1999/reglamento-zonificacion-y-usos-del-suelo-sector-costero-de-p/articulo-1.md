@@ -98,18 +98,18 @@ F.5 Usos conflictivos:
 - Industrias
 Cualquier otra instalación, edificación o actividad que emita ruido, malos olores, vibración o contaminación en general.
 F.6. Requisitos: De acuerdo con lo que se pretende, el INVU ha definido normas al respecto.
-- Superficie mínima: 200 metros cuadrados
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Superficie máxima: 4. 000 metros cuadrados
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Superficie mínima: 300 metros cuadrados
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Superficie máxima: 2. 000 metros cuadrados
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 - Frente mínimo: 15 metros
 - Frente máximo: 30 metros
-- Retiro frontal: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Retiro posterior: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro frontal: 5 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Retiro lateral: 3 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Retiro posterior: 5 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 - Cobertura máxima: 45 %
 - Altura máxima: 5 metros
 La zona residencial debe tener las vías de acceso secundarias y peatonales y áreas verdes como exige la Ley de Planificación Urbana en sus porcentajes mayores. No se permitirán segregaciones, sin el respectivo visto bueno del INVU y del ICT, previa presentación de planos.
@@ -146,18 +146,18 @@ G.5. Usos conflictivos:
 - Industrias
 Cualquier otra instalación, edificación o actividad que emita ruido, malos olores, vibración o contaminación en general.
 G.6. Requisitos: De acuerdo con lo que se pretende, el INVU ha definido normas al respecto.
-- Superficie mínima: 200 metros cuadrados
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Superficie máxima: 4. 000 metros cuadrados
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Superficie mínima: 300 metros cuadrados
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Superficie máxima: 2. 000 metros cuadrados
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 - Frente mínimo: 15 metros
 - Frente máximo: 30 metros
-- Retiro frontal: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Retiro posterior: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro frontal: 5 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Retiro lateral: 3 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Retiro posterior: 5 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 - Cobertura máxima: 25 %
 - Altura máxima: 5 metros
 La zona residencial debe tener las vías de acceso secundarias y peatonales y áreas verdes como exige la Ley de Planificación Urbana en sus porcentajes mayores.
@@ -202,12 +202,12 @@ H.6 Requisitos:
 - Superficie máxima: 1 000 metros cuadrados
 - Frente mínimo: 10 metros
 - Frente máximo: 20 metros
-- Retiro frontal: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Retiro posterior: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro frontal: 5 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Retiro lateral: 3 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Retiro posterior: 5 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 - Cobertura máxima: 75 %
 - Altura máxima: 5 metros
 H.7. Concesión: De acuerdo a lo establecido en la Ley Nº 6043 y su reglamento. La ZC.2 no podría ser dada en concesión hasta tanto sea demarcada la zona con los mojones del IGN.
@@ -258,12 +258,12 @@ I.6. Requisitos: El interesado o solicitante a concesión deberá acatar los req
 El diseño espacial deberá respetar como mínimo las siguientes normas:
 - Superficie mínima 5 000 metros cuadrados
 - Superficie máxima: 20 000 metros cuadrados
-- Retiro frontal:Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Retiro posterior: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Retiro lateral : Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro frontal: 10 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Retiro posterior: 10 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Retiro lateral : 3 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 - Cobertura máxima: 40 %
 - Altura máxima: 7 metros
 - Areas de zona verde mínima: 40 %
@@ -322,12 +322,12 @@ J.6. Requisitos: El interesado, deberá presentar un proyecto del área de campi
 - Estudio de abastecimiento de agua potable
 - Sistema de tratamiento de aguas negras y jabonosas
 El diseño espacial, deberá respetar las normas internacionales, para este tipo de servicios en cuanto superficies mínimas y máximas, distribución de zonas y densidad:
-- Retiro frontal: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Retiros laterales: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Retiros posteriores: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro frontal: 10 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Retiros laterales: 5 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Retiros posteriores: 10 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 - Cobertura máxima: 50 %
 - Altura máxima: 5 metros
 - Vías internas: 20 %
@@ -347,8 +347,9 @@ K.3. Usos permitidos:
 - Servicios telefónicos
 K.4. Usos condicionales: No se consideran otros usos condicionales por estar cubiertas otras necesidades en las zonas restantes.
 K.5. Usos conflictivos: Toda edificación o actividad que no sea estrictamente de servicio público.
-K.6. Requisitos: Retiro frontal, retiro posterior, retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+K.6. Requisitos: Se deberán respetar las disposiciones de la Ley de Construcciones y de Salud, así como el tratamiento de diseño para adecuar las obras al medio natural. Su cobertura será del 50% y los retiros de 2,00 metros.
+Los proyectos para esta zona deberán contar, además con la aprobación del ICT.
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 K.7. Concesión: Según lo establece la Ley Nº 6043 y su Reglamento.
 No se otorgarán concesiones a aquellas parcelas que no hayan sido eliminadas las cercas, barreras y setos de piñuelas en la zona pública.
 En el trámite de concesión debe indicarse en el plano catastrado que el acceso se da por calle pública. Estos accesos quedarán bajo control municipal.
