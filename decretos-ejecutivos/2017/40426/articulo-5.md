@@ -1,0 +1,1 @@
+Artículo 5°. El ICE deberá realizar la menor corta de árboles posible, y el pago de los daños forestales que correspondan, según el "Manual de Pago de Daños a Terceros del ICE", previa autorización del Área de Conservación respectiva del Sistema Nacional de Áreas de Conservación.
