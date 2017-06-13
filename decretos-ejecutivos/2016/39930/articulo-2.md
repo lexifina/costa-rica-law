@@ -1,1 +1,2 @@
-Artículo 2º- La importación a que se refiere el artículo anterior será realizada por la Corporación Arrocera Nacional, según lo dispuesto en el artículo 37 y concordantes de la Ley de Creación de la Corporación Arrocera, para el período comprendido entre los meses de enero a junio del 2017.
+Artículo 2º- La importación a que se refiere el artículo anterior será realizada por la Corporación Arrocera Nacional, según lo dispuesto en el artículo 37 y concordantes de la Ley de Creación de la Corporación Arrocera, para el período comprendido desde el mes de enero de 2017 hasta el 10 de agosto de 2017.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40463 del 13 de junio del 2017)
