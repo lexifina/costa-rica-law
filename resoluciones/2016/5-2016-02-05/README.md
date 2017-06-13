@@ -14,3 +14,4 @@ Requisitos para considerar exentos los uniformes oficiales para niveles preescol
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-03-04 | la propia norma |
+| 2 | 2017-06-13 | Resolución 32 (2017-06-13) |
