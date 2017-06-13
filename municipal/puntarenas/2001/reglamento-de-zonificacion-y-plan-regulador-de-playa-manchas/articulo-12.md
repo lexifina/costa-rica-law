@@ -5,7 +5,7 @@ c. Usos permitidos: Duchas, servicios sanitarios, vestidores, guardarropías, ra
 d. Usos condicionales: Soda, refresquería, comercio turístico.
 e. Usos conflictivos: Industrias, ganadería, agricultura intensiva o cualquier instalación no estrictamente de servicio público y que genere ruidos, olores, humo, vibración o desechos no controlables.
 f. Requisitos:
-1. Retiro posterior, frontal y lateral: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+1. Retiro posterior, frontal y lateral: | 3m (Así reformado el requisito anterior en sesión ordinaria N°59-2017 del 13 de junio del 2017)
 2. Retiro a línea de mojones | 5 m
 3. Altura máxima: | 7 m 10m edificaciones con techo de paja o similares
 4. Número de pisos máximo: | 2 pisos

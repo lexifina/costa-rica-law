@@ -5,10 +5,7 @@ c. Usos permitidos: Cabinas, restaurante, piscina, parqueo, servicios básicos.
 d. Usos condicionales: Albergue, comercio turístico.
 e. Usos conflictivos: Industrias, ganadería, agricultura intensiva o cualquier instalación no estrictamente de servicio público y que genere ruidos, olores, humo, vibración o desechos no controlables.
 f. Requisitos: La asociación o grupo interesado deberá presentar un proyecto con los misinos requisitos señalados para las zonas de alojamiento y en las observaciones generales del presente reglamento.
-Superficie mínima: 200 metros cuadrados
-(Así adicionado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-Superficie máxima: 4.000 metros cuadrados
-(Así adicionado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-Retiro frontal, posterior, lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así adicionado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+(Nota de Sinalevi: Mediante sesión sesión N° 59 del 13 de junio de 2017 se reestablecen todas las reformas introducidas mediante la sesión N° 06 del 10 de febrero de 2015, la cual anteriormente había introducido un requisito que indicaba lo siguiente: " Superficie mínima: 200 metros cuadrados. Dicha sesión había sido derogada en sesión N° 55 del 16 de mayo de 2017")
+(Nota de Sinalevi: Mediante sesión sesión N° 59 del 13 de junio de 2017 se reestablecen todas las reformas introducidas mediante la sesión N° 06 del 10 de febrero de 2015, la cual anteriormente había introducido un requisito que indicaba lo siguiente: " Superficie máxima: 4.000 metros cuadrados. Dicha sesión había sido derogada en sesión N° 55 del 16 de mayo de 2017")
+(Nota de Sinalevi: Mediante sesión sesión N° 59 del 13 de junio de 2017 se reestablecen todas las reformas introducidas mediante la sesión N° 06 del 10 de febrero de 2015, la cual anteriormente había introducido un requisito que indicaba lo siguiente: " Retiro frontal, posterior, lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. Dicha sesión había sido derogada en sesión N° 55 del 16 de mayo de 2017")
 g. Concesiones: De acuerdo a lo establecido en la Ley N° 6043.

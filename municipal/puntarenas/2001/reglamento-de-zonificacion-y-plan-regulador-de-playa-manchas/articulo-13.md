@@ -5,7 +5,7 @@ c) Usos permitidos: caseta de control, parqueo, núcleo de baños, servicios san
 d) Usos condicionales; piscina, facilidades deportivas y comisariato.
 e) Usos conflictivos: cualquier instalación que no esté acorde con los usos permitidos y condicionales.
 f. Requisitos:
-| 1. Retiros laterales, frontales y posteriores: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+| 1. Retiros laterales, frontales y posteriores: | 3 m (Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 | 2. Cobertura máxima: | 30%
 | 3. Altura máxima: | 7 m (10 m edificaciones con techo de paja 11 similares)
 | 4. Ancho caminos internos: | 7 m mínimo
