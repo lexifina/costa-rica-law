@@ -50,10 +50,10 @@ f. -Requisitos: El interesado solicitante de la concesión deberá acatar los re
 El diseño espacial deberá respetar como mínimo las siguientes normas:
 1.- Superficie mínima del terreno: 2000 mts
 2.- Superficie máxima del terreno: 6000 mts
-3.- Retiro frontal: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo
-(Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
-4.- Retiro posterior: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo
-(Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
+3.- Retiro frontal: 10 mts
+(Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+4.- Retiro posterior: 10 mts
+(Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 5.- Cobertura máxima 50%
 6.- Altura máxima 5 mts
 9.- Concesiones:
@@ -69,10 +69,10 @@ f.- Requisitos:
 2.- Superficie máxima 750 mts2
 3.- Frente mínimo: 15 mts2
 4.- Frente máximo: 20 mts
-5.- Retiro frontal: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo
-(Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
-6.- Retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo
-(Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
+5.- Retiro frontal: 5 metros
+(Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+6.- Retiro lateral: 3 metros
+(Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 7.- Cobertura máxima: 60%
 8.- Altura máxima: 5 metros
 g.- Concesiones: De acuerdo a lo establecido en la Ley 6043 y su reglamento.
@@ -83,11 +83,10 @@ Usos permitidos: Motel, cabinas, restaurante, piscinas, áreas de deporte, sodas
 Usos condicionales: Campins, jugos de salón, salas de reuniones, salas de espectáculos.
 Usos conflictivos: Toda actividad o edificación que no sean estrictamente recreativo- turísticos o que genere lucro.
 Requisitos: La agrupación, asociación, sindicato, federación o club interesados; deberán presentar un proyecto con los mismo requisitos señalados, para los desarrollos de las zonas turísticas
-(Nota de Sinalevi: Mediante sesión N° 06 del 10 de febrero de 2015, el Concejo Municipal de Distrito de Cóbano, acordó modificar el requisito del retiro a las colindancias y área mínima / máxima, al no encontrarse dichos requisitos en este apartado se transcribe la reforma: " Rectifíquese el Artículo 5.- Zona de Asociaciones y Cooperativa: para que se modifique el requisito del retiro a las colindancias y área mínima / máxima, para que se lea de la siguiente manera.
+(Nota de Sinalevi: Mediante sesión sesión N° 59 del 13 de junio de 2017 se reestablecen todas las reformas introducidas mediante la sesión N° 06 del 10 de febrero de 2015, la cual anteriormente había introducido un requisito que indicaba lo siguiente: " Rectifíquese el Artículo 5.- Zona de Asociaciones y Cooperativa: para que se modifique el requisito del retiro a las colindancias y área mínima / máxima, para que se lea de la siguiente manera.
 Superficie mínima: 200 metros cuadrados
 Superficie máxima: 4.000 metros cuadrados
-Retiro frontal, posterior, lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.")
-(Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
+Retiro frontal, posterior, lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. Dicha sesión había sido derogada en sesión N° 55 del 16 de mayo de 2017")
 Concesiones: la Municipalidad ofrecerá; por medio de avisos públicos, en los principales medios de comunicación, las áreas dispuestas para tal fin; las ofertas se recibirán y calificaran; la escogencia recaerá en aquellos proyectos que se ajusten a los objetivos indicados por la ley. Especial énfasis, debe dar la Municipalidad a la inversión, servicios a desarrollar, infraestructura, calidad de las edificaciones, estética y a la arquitectura en general ofrecidos por los interesados.
 La distribución de concesiones en esta zona se concretará posteriormente a la aprobación de la propuesta de distribución respectiva, donde se indiquen los accesos (servidumbres de paso o alamedas) por parte del I.C.T y del I.N.V.U.
 Las concesiones presentadas estarán de acuerdo con lo establecido por la ley 6043 y su reglamento.
@@ -98,8 +97,7 @@ Usos permitidos: Exclusivamente los asistentes.
 Usos condicionales: Ninguno.
 Usos conflictivos: Toda actividad o edificación que no sean estrictamente los existentes.
 Requisitos: El estado y las temporalidades de la iglesia; deberán presentar una solicitud de concesión de los terrenos de interés.
-(Nota de Sinalevi: Mediante sesión N° 06 del 10 de febrero de 2015, el Concejo Municipal de Distrito de Cóbano, acordó modificar el requisito del retiro a las colindancias, al no encontrarse dicho requisito en este apartado se transcribe la reforma: "Rectifíquese el Artículo 6.- Zona de Servicios Comunales: para modificar el requisito del retiro a las colindancias, para que se lea de la siguiente manera: Retiro frontal, retiro posterior, retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo")
-(Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
+(Nota de Sinalevi: Mediante sesión sesión N° 59 del 13 de junio de 2017 se reestablecen todas las reformas introducidas mediante la sesión N° 06 del 10 de febrero de 2015, la cual anteriormente había introducido un requisito que indicaba lo siguiente: " Rectifíquese el Artículo 6.- Zona de Servicios Comunales: para modificar el requisito del retiro a las colindancias, para que se lea de la siguiente manera: Retiro frontal, retiro posterior, retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. Dicha sesión había sido derogada en sesión N° 55 del 16 de mayo de 2017")
 Concesiones: la Municipalidad conjuntamente con las partes interesadas negociará los términos de estas negociaciones previa consulta al I.C.T.
 Las concesiones presentadas estarán de acuerdo con lo establecido por la ley 6043 y su reglamento.
 -SANCIONES.
