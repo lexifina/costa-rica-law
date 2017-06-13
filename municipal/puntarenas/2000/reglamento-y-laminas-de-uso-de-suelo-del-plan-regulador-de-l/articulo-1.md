@@ -75,18 +75,18 @@ F.5. Usos conflictivos:
 - Industrias
 Cualquier otra instalación, edificación o actividad que emita ruido, malos olores, vibración o contaminación en general.
 F.6. Requisitos: De acuerdo con lo que se pretende, el INVL definido normas al respecto.
-- Superficie mínima: 200 metros cuadrado
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Superficie máxima: 4.000 metros cuadrado
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Superficie mínima: 600 metros cuadrado
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Superficie máxima: 2.000 metros cuadrado
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 - Frente mínimo: 15 metros
 - Frente máximo: 30 metros
-- Retiro frontal: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Retiro posterior: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro frontal: 5 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Retiro lateral: 3 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Retiro posterior: 5 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 - Cobertura máxima: 25%
 - Altura máxima: 5 metros
 - Pendiente máxima utilizable: menor a 30%
@@ -127,12 +127,12 @@ Superficie mínima: 300 metros cuadrados
 Superficie máxima: 1000 metros cuadrados
 Frente mínimo: 10 metros
 Frente máximo: 20 metros
-Retiro frontal: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-Retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-Retiro posterior: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+Retiro frontal: 5 metros.
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+Retiro lateral: 3 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+Retiro posterior: 5 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 Cobertura máxima: 75 %
 Altura máxima: 5 metros
 G.7. Concesión: De acuerdo con lo establecido en la Ley No 6043 y su reglamento.
@@ -157,12 +157,9 @@ H.4. Usos condicionales:
 - Salas de espectáculos
 H.5. Usos conflictivos: Toda actividad o edificación que no sea estrictamente recreativa-turística o que genere lucro tales cono: hoteles, servicios, comercio, talleres, etc.
 H.6. Requisitos: La agrupación, asociación, sindicato, federación o club interesado, deberá presentar un proyecto con los mismos requisitos señalados para los desarrollos de las zonas hoteleras.
-Superficie mínima: 200 metros cuadrados
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-Superficie máxima: 4.000 metros cuadrados
-(Así adicionado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-Retiro frontal, posterior, lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así adicionado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+(Nota de Sinalevi: Mediante sesión sesión N° 59 del 13 de junio de 2017 se reestablecen todas las reformas introducidas mediante la sesión N° 06 del 10 de febrero de 2015, la cual anteriormente había introducido un requisito que indicaba lo siguiente: " Superficie mínima: 200 metros cuadrados. Dicha sesión había sido derogada en sesión N° 55 del 16 de mayo de 2017")
+(Nota de Sinalevi: Mediante sesión sesión N° 59 del 13 de junio de 2017 se reestablecen todas las reformas introducidas mediante la sesión N° 06 del 10 de febrero de 2015, la cual anteriormente había introducido un requisito que indicaba lo siguiente: " Superficie máxima: 4.000 metros cuadrados. Dicha sesión había sido derogada en sesión N° 55 del 16 de mayo de 2017")
+(Nota de Sinalevi: Mediante sesión sesión N° 59 del 13 de junio de 2017 se reestablecen todas las reformas introducidas mediante la sesión N° 06 del 10 de febrero de 2015, la cual anteriormente había introducido un requisito que indicaba lo siguiente: " Retiro frontal, posterior, lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo”. Dicha sesión había sido derogada en sesión N° 55 del 16 de mayo de 2017")
 H.7. Concesión: El Concejo Municipal ofrecerá por medio de aviso público en los principales medios de comunicación las áreas para tal fin, recibiendo las ofertas y calificando éstas, escogiendo aquel proyecto que se ajuste a los objetivos indicados en la Ley. Especial énfasis debe dar el Concejo Municipal en la inversión, servicios a desarrollar, infraestructura y calidad de las edificaciones, estética y arquitectura en general ofrecidos.
 Las concesiones a ser dadas serán de acuerdo con lo establecido por la Ley No 6043 y su reglamento.
 I. ZONA HOTELERA (ZH):
@@ -207,12 +204,12 @@ I4. Usos condicionales:
 El diseño espacial deberá respetar como mínimo las siguientes normas:
 - Superficie mínima: 5.000 metros cuadrados
 - Superficie máxima: 20.000 metros cuadrados
-- Retiro frontalToda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Retiro posterior: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-- Retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro frontal 10 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Retiro posterior: 10 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+- Retiro lateral: 3 metros
+(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 - Cobertura máxima: 50 %
 - Altura máxima: 7 metros
 - Vías internas mínimo: 10 %
@@ -236,8 +233,7 @@ J.4 Usos condicionales:
 J.5. Usos conflictivos: Toda edificación o actividad que no sea estrictamente de servicio público.
 J.6. Requisitos: Se deberán respetar las disposiciones de la Ley de Construcciones y de Salud, así como el tratamiento de diseño para adecuar las obras al medio natural. Su cobertura será del 50% y los retiros de 2.0 metros.
 Los proyectos para esta zona deberán contar, además con la aprobación del ICT y del Ministerio de Salud.
-Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así adicionado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+(Mediante sesión sesión N° 59 del 13 de junio de 2017 se reestablecen todas las reformas introducidas mediante la sesión N° 06 del 10 de febrero de 2015, la cual anteriormente había introducido un párrafo que indicaba lo siguiente: " Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo”. Dicha sesión había sido derogada en sesión N° 55 del 16 de mayo de 2017")
 J.7. Concesión: Según lo establece la Ley No 6043 y su Reglamento.
 K. ZONA DE CAMPAMENTO (ZCA):
 K.l. Propósitos: Zona dedicada a ofrecer servicios para el carro-casa o camper y tiendas de campaña, así como todo tipo de alojamiento móvil.
@@ -285,8 +281,7 @@ K.6. Requisitos: Se deberán respetar las disposiciones de la Ley de Construccio
 - Estudio de viabilidad económica con detalle de presupuesto estimado, de inversión y forma de fínanciamiento
 - Estudio de abastecimiento de agua potable
 - Estudio de recolección y tratamiento de aguas servidas y negras
--Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así adicionado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+(Mediante sesión sesión N° 59 del 13 de junio de 2017 se reestablecen todas las reformas introducidas mediante la sesión N° 06 del 10 de febrero de 2015, la cual anteriormente había introducido un requisito que indicaba lo siguiente: " -Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo”. Dicha sesión había sido derogada en sesión N° 55 del 16 de mayo de 2017)
 K. 7 Concesión: De acuerdo a lo establecido por la Ley No 6043 y su Reglamento.
 L. ZONA DE VIALIDAD Y ESTACIONAMIENTO (ZVI):
 L.l. Propósito: Permitir la libre circulación vehicular y el fácil acceso a todos los sectores, servicios e instalaciones con que cuente el sitio, así como de dotar las áreas de estacionamiento requeridos por los visitantes no pernoctantes en la zona.
