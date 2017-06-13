@@ -35,12 +35,7 @@ E.3. Usos permitidos: Motel, cabinas, restaurante, piscinas, áreas de deporte, 
 E.4. Usos condicionales: Salón de baile, discotecas, juegos de salón, salas de reuniones, salas de espectáculos.
 E.5. Usos conflictivos: Toda actividad o edificación que no sea estrictamente recreativa – turística o que genere lucro.
 E.6. Requisitos: la agrupación, asociación, sindicato, federación o club interesado deberá presentar un proyecto con los mismos requisitos señalados para los desarrollos de las zonas turísticas.
-Superficie mínima: 200 metros cuadrados
-(Así adicionado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-Superficie máxima: 4.000 metros cuadrados
-(Así adicionado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-Retiro frontal, posterior, lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así adicionado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+(Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 E.7. Concesiones: el Concejo Municipal de Puntarenas ofrecerá por medio de aviso público en los principales medios de comunicación de las áreas para tal .n recibiendo las ofertas y calificando estas escogiendo aquel proyecto que se ajuste a los objetivos indicados en la ley. Especial énfasis debe dar el Concejo Municipal de Puntarenas en la inversión, servicios a desarrollar, infraestructura y calidad de las edificaciones, estética y arquitectura en general ofrecidos. Las concesiones a ser dadas serán de acuerdo con lo establecido por la Ley 6043 y su reglamento.
 F. Zona Turística (Hoteles, Moteles y Cabinas)
 F.1. Propósitos: desarrollar la planta turística de hospedaje, gastronomía y servicios conexos para el turista y visitante que pernocte en este sector costero.
@@ -65,14 +60,12 @@ F.6. Requisitos: el interesado o solicitante a concesión deberá acatar los req
 El diseño espacial deberá respetar como mínimo las siguientes normas:
 Superficie mínima: 10 000 metros cuadrados
 Superficie máxima: 30 000 metros cuadrados
-Retiro frontal: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-Retiro posterior:
-Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-Retiro lateral:
-Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+Retiro frontal: 10 metros
+(Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+Retiro posterior: 10 metros
+(Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+Retiro lateral: 10 metros
+(Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 Cobertura máxima: 50 %
 Altura máxima: 7 metros
 Áreas de zona verde mínima: 40 %
@@ -86,8 +79,7 @@ G.3. Usos permitidos: Servicios sanitarios, vestidores, duchas, parqueos, puesto
 G.4. Usos condicionales: Refresquería, sodas, kioscos de venta de comidas ligeras, ranchos de pic-nic, asadores.
 G.5. Usos conflictivos: toda edificación o actividad que no sea estrictamente de servicio público.
 G.6. Concesión: En esta zona no se darán concesiones del terreno pero se dará licencia de administración y explotación.
-G.7 Retiro frontal, retiro posterior, retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así adicionado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+(Nota de Sinalevi: Mediante sesión sesión N° 59 del 13 de junio de 2017 se reestablecen todas las reformas introducidas mediante la sesión N° 06 del 10 de febrero de 2015, la cual anteriormente había introducido un requisito g.7) que indicaba lo siguiente: " G.7 Retiro frontal, retiro posterior, retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. Dicha sesión había sido derogada en sesión N° 55 del 16 de mayo de 2017")
 H. Zona de Camping
 H.1. Propósito: zona dedicada a ofrecer servicios para el camper y tienda de campaña, así como todo tipo de alojamiento móvil.
 H.2. Localización: Desde el mojón Nº 1 – 26 m hasta el mojón Nº 2 + 26 m en el extremo sureste de Playa Hermosa.
@@ -96,9 +88,9 @@ H.4. Usos condicionales: Soda, cafetería, venta de abarrotes, venta y alquiler 
 H.5. Usos conflictivos: bares, discotecas, salones de baile, hoteles, cabinas, moteles, residencias, agencias de viaje, talleres, industrias, almacenes, toda instalación o actividad que genere, malos olores, ruido, vibración o contaminación del suelo, aire y del agua.
 H.6. Requisitos: el interesado deberá presentar un proyecto de el área de camping, en donde se indique: nombre y dirección del solicitante, nombre del proyecto, plano catastrado, linderos del proyecto y área a desarrollar, plano de curvas de nivel, plano de vialidad y de senderos peatonales, plano de tratamiento de áreas verdes y cobertura forestal, plano de ubicación de las instalaciones, plano de sistema de distribución de agua potable, drenaje, alcantarillado, tomas de energía eléctrica, iluminación aérea, anteproyecto de las instalaciones, secciones típicas longitudinales y transversales, estudio de vialidad económica indicando forma de financiamiento y presupuesto estimado de inversión, estudio de abastecimiento de agua potable.
 El diseño espacial deberá respetar las normas internacionales para este tipo de servicios en cuanto superficies mínimas y máximas, distribución de zonas y densidad.
-Retiro frontal: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-Retiros laterales: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-Retiros posteriores: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+Retiro frontal: | 10 metros (Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+Retiros laterales: | 5 metros (Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+Retiros posteriores: | 10 metros (Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 Cobertura máxima: | 50 %
 Altura máxima: | 5 metros
 Vías internas: | 20 %
