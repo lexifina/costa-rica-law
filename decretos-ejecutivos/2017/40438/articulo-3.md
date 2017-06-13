@@ -1,0 +1,1 @@
+Artículo 3. Podrán las instituciones descentralizadas, universidades, gobiernos locales, organizaciones no gubernamentales y sociedad civil contribuir, en la medida de sus posibilidades, con la organización y participar del Encuentro Mundial de Zonas Azules.
