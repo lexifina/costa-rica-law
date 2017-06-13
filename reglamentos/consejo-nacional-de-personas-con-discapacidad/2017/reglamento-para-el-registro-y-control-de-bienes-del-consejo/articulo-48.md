@@ -1,0 +1,1 @@
+Artículo 48°-Registro de instituciones aptas para recibir donaciones. La institución verificará el registro de instituciones aptas para recibir donación, que lleva la Dirección Genero! de Administración de Bienes y Contratación Administrativa.

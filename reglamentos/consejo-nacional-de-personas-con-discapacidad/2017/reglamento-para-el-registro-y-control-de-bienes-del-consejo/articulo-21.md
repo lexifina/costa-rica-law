@@ -1,0 +1,1 @@
+Artículo 21 º-Obligación de velar porque en los registros contables se incluyan todas las características de los bienes patrimoniales. La Unidad de Proveeduría Institucional velará porque en los registros en el SIBINET se incluyan todas las características que identifiquen los bienes que se registren.

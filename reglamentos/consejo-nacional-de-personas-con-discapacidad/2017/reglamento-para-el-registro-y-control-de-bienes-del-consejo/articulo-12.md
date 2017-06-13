@@ -1,0 +1,1 @@
+Artículo 12°-Unidad responsable de llevar registro de nombres y firmas. La Unidad de Proveeduría Institucional mantendrá un registro de nombres y firmas de los funcionarios y funcionarias autorizados (as) para aprobar la adquisición y/o reparación de bienes.

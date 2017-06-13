@@ -1,0 +1,3 @@
+CAPITULO II
+De la responsabilidad de los funcionarios y funcionarias
+Artículo 5°-Derecho de los funcionarios y funcionarias a contar con mobiliario y equipo y del Comité de Información de las Organizaciones de Personas con Discapacidad (COINDIS). Todo funcionario y funcionaria del Consejo Nacional de Personas con Discapacidad y el coordinador vigente del Comité de Información de las Organizaciones de Personas con Discapacidad (COINDIS), tiene derecho a recibir, por un plazo indefinido y en buen estado físico, de funcionamiento y de conservación, el mobiliario y el equipo necesarios para el cumplimiento de sus labores. Asimismo tienen la responsabilidad por el correcto uso y cuido de esos bienes.

@@ -1,0 +1,1 @@
+Artículo 16º-0bligacíón de practicar recuentos físicos. La Unidad de Proveeduría Institucional, cuando lo estime conveniente y semestralmente, realizará recuentos físicos en las diferentes unidades funcionales de la Institución.

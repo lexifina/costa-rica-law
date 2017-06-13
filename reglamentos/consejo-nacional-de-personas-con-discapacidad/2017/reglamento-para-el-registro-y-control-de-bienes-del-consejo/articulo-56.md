@@ -1,0 +1,1 @@
+Artículo 56º-Anualmente la Unidad de Proveeduría actualizará el valor de todos los bienes muebles e inmuebles propiedad del Conapdis y comunicará a la compañía aseguradora el valor real de los mismos que se refleja en el sistema Sibinet, para la posterior cancelación de las primas correspondientes de conformidad con el valor presente del bien.

@@ -1,0 +1,1 @@
+Artículo 42º-Requisitos para la donación de activos. Se podrán donar activos fijos cuando la Comisión de donación, determine de manera fundada, que esos bienes no son de utilidad para la Institución. Corresponde al máximo jerarca firmar las actas de donación que realice la institución, o a quién en su defecto así designe.

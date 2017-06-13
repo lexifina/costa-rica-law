@@ -1,0 +1,1 @@
+Artículo 38°-Responsabilidad por daños a bienes de la Institución. Será responsable el funcionario que por descuido, mal uso, o negligencia dañe bienes de la Institución, en cuyo caso tendrá que pagar el activo de la forma descrita en el presente reglamento.

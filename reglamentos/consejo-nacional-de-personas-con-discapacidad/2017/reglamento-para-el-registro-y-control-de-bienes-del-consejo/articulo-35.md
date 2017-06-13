@@ -1,0 +1,1 @@
+Artículo 35°-Obligación de fijar placas a los activos. La Unidad de Proveeduría Institucional esta obligada en todas las circunstancias a verificar que las placas de cada activo se encuentren debidamente fijadas de manera permanente antes de proceder a entregarlos al funcionario o funcionaria que lo requiera.

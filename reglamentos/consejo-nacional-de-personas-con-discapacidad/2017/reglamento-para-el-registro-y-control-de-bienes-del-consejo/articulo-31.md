@@ -1,0 +1,1 @@
+Artículo 31º-Control de ingreso y salida de activos de las instalaciones de la Institución. El ingreso y la salida de bienes propiedad de los funcionarios y funcionarias a las instalaciones de la Institución, se consignará en el formulario correspondiente, de lo contrario el dueño no podrá retirarlos de la Institución, a menos que demuestre que efectivamente son de su propiedad.

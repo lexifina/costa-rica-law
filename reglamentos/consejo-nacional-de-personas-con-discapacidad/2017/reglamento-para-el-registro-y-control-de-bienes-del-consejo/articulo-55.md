@@ -1,0 +1,1 @@
+Artículo 55º-Deberán de asegurarse, todos aquellos bienes inmuebles que mantengan un valor actual igual o superior a los veinticinco millones de colones, según se refleje en el listado de bienes registrados en la plataforma de registro de bienes del Estado Sibinet.

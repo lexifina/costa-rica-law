@@ -1,0 +1,1 @@
+Artículo 3º-Unidad responsable de coordinar las actividades relativas al control de activos. La Unidad de Proveeduría Institucional es la Unidad responsable de coordinar todas las actividades relacionadas con el control de activos y, de mantener un registro auxiliar que concilie permanentemente con la cuenta central de los bienes muebles e inmuebles de la Institución.

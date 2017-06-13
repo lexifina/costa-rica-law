@@ -1,0 +1,1 @@
+Artículo 14º-Unidad responsable de calcular la depreciación, el registro y la revaluación de activos. Corresponde a la Unidad de Proveeduría Institucional registrar y calcular la depreciación, de todos los activos de la Institución.

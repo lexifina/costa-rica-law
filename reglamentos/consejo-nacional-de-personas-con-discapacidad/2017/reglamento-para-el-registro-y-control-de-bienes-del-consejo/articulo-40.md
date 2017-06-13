@@ -1,0 +1,1 @@
+Artículo 40°-Comisión de donación. El máximo jerarca institucional nombrará la comisión de donación, la cual estará conformada, al menos por las personas titulares de la Dirección Administrativo Financiera, Ia Unidad de Proveeduría Institucional y el encargado del Control de activos de la institución, la cual se encargará de recomendar las donaciones que realice la institución.

@@ -1,0 +1,1 @@
+Artículo 19º-0bligación de mantener el inventario permanente en el SIBINET. Existirá un inventario permanente de los bienes institucionales y es responsabilidad del Encargado de la Unidad de Proveeduría institucional registrar en el SIBINET de la Institución, cada uno de los bienes del Consejo Nacional de Personas con Discapacidad.

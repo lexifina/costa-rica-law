@@ -1,0 +1,1 @@
+Artículo 15º-Obligación de llevar registro de activos por dependencia y por funcionario y funcionaria. Para el control correspondiente, la Unidad de Proveeduría Institucional mantendrá un registro computarizado por dependencia y por funcionario y funcionaria, con información del activo que permita su debida identificación.

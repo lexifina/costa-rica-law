@@ -1,0 +1,1 @@
+Artículo 49°-Deber de informar. La institución beneficiada con la donación, deberá, comunicar al donante en un plazo no mayor de treinta días naturales, contados a partir del acto de entrega de la donación, un detalle del beneficio o destino final de los bienes donados.

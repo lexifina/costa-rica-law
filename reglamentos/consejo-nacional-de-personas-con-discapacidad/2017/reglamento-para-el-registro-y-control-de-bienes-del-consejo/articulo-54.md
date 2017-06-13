@@ -1,0 +1,2 @@
+Artículo 54º-Deberán de asegurarse todos aquellos bienes muebles o activos que mantengan un valor actual igual o superior a los cien mil colones, según se refleje en el listado de bienes registrados en la plataforma de registro de bienes del Estado Sibinet.
+Los bienes que se encuentren clasificados en el sistema Sibinet con el valor residual o inferior al monto establecido en el presente artículo no serán asegurados.

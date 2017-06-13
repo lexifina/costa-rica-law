@@ -1,0 +1,1 @@
+Artículo 32º-Responsabilidad del control de Ingreso y salida de activos y vehículos de la Institución. Corresponde a los encargados de seguridad y vigilancia controlar la salida y, entrada de activos y vehículos de las instalaciones de la Institución. Cualquier anomalía será comunicada de manera inmediata a la persona encargada de la Unidad de Servicios Generales.

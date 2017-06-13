@@ -1,0 +1,1 @@
+Artículo 47°-Solícitud de inscripción. Los interesados deberán presentar una solicitud formal ante la Dirección General de Administración de Bienes y Contratación Administrativa a los efectos de ser inscritos en el Registro correspondiente, conforme a lo establecido en el Reglamento para el Registro y Control de bienes de la Administración Central.

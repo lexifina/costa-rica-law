@@ -1,0 +1,1 @@
+Artículo 34°-Oficina responsable de asignarle número a los activos. Corresponde a el Encargado de Almacén Institucional asignar el número de placa y fijarla de manera permanente en todos los bienes institucionales; procedimiento que se realizara en el momento que se reciba el bien, e informará semanalmente a la Unidad de Proveeduría Institucional para registrarlo en SIBINET.

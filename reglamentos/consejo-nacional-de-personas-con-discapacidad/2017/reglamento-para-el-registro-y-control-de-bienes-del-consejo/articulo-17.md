@@ -1,0 +1,1 @@
+Artículo 17º-Descargo de activos, del registro auxiliar. Comprobada la pérdida o baja de los bienes, la Unidad de Proveeduría Institucional solicitará autorización a la Dirección Administrativa Financiera para que se proceda a descargar del registro auxiliar, el bien de que se trate, mediante acta de baja del activo.

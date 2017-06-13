@@ -1,0 +1,2 @@
+Artículo 30º-Responsable de autorizar el préstamo de activos. La autorización para los préstamos de activos de la Institución a otros entes del Estado, corresponde al máximo jerarca institucional.
+Los préstamos a que se refiere este artículo serán solicitados por escrito que suscribirá el jerarca del ente solicitante o su delegado, legalmente autorizado. Normalmente, dichos préstamos serán por un periodo no mayor de un año, sin embargo; La Junta Directiva del Consejo Nacional de Personas con Discapacidad, podrá autorizar préstamos por periodos mayores.
