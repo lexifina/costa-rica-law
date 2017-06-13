@@ -13,8 +13,8 @@ f) Requisitos: El diseño de sitio deberá tratar de ajustarse al máximo a las 
 5. Área verde mínima: | | 60%
 6. Altura máxima en Nº de plantas: | | 2 pisos
 7. Altura máxima de techo: | | 8 m
-8. Retiro lateral y posterior mínimo: | | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
-9. Retiro frontal mínimo: | | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
+8. Retiro lateral y posterior mínimo: | | 3 m (Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017
+9. Retiro frontal mínimo: | | 3 m (Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017
 10. Ancho caminos internos: | | 9 m
 11. Área recreativa mínima: | | 5%
 12. Área de equipamiento comercial: | | 0.5%

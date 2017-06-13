@@ -9,7 +9,7 @@ f) Requisitos: El interesado deberá presentar un anteproyecto de desarrollo del
 2. Área de lote mínimo: | 500 m2
 3. Altura máxima en Nº de plantas: | 2 pisos
 4. Altura máxima de techo: | 7 m / 10 m techos de paja.
-5. Retiro lateral, posterior y frontal: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
+5. Retiro lateral, posterior y frontal: | 3 m (Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017
 6. Frente mínimo de lote: | 15 m
 7. No se permiten Mezzanines. |
 8. El interesado deberá presentar un Proyecto de Desarrollo del área en concesión, cumpliendo con los requisitos establecidos en el acápite 14 del inciso f, del artículo 4 del presente Reglamento. |
