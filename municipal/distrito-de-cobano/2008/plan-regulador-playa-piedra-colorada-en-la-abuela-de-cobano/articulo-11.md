@@ -6,16 +6,16 @@ c) Usos Permitidos:
 d) Usos condicionales y Conflictivos:
 • Parqueo para residencias móviles Áreas de campamentos Toda instalación que no sea de carácter recreativo y turístico sin fines de lucro.
 e) Requisitos:
-• Superficie mínima 200 metros cuadaros
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-• Superficie máxima 4.000 metros cuadrados
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+. Área mínima 300 m²
+(Así reformado el requisito anterior en sesión ordinaria N° 59 del 13 de junio del 2017)
+. Área máxima 2000 m2
+(Así reformado el requisito anterior en sesión ordinaria N° 59 del 13 de junio del 2017)
 • Densidad máxima 80 hab/Ha
 • Cobertura máxima 50%
 • Altura máxima 7 m
 • .Altura máxima en pisos 2 pisos
 • No se permiten mezanines
-• Retiro frontal, retiro posterior, retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+• Retiros laterales, frontales y posteriores 3 m
+(Así reformado el requisito anterior en sesión ordinaria N° 59 del 13 de junio del 2017)
 • Frente mínimo 15 m
 f) Concesiones: De acuerdo a lo establecido en la Ley N° 6043.

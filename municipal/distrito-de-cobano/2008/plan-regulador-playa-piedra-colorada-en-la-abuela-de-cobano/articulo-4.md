@@ -8,9 +8,11 @@ f) Requisitos:
 • Área mínima 1 000m2
 • Área máxima 3 401 m2
 • Cobertura 20%
-• (*)Retiros:
-Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo
-(*)(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+(*)• Retiros:
+i. Frontal 5m
+ii. Posterior 5m
+iii. Laterales 5m
+(*)(Así reformado el requisito anterior en sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 • Altura 2 pisos (7 m)
 • No se permiten mezanines.
 g) Concesión: De acuerdo a lo establecido en la Ley sobre la Zona Marítimo Terrestre.

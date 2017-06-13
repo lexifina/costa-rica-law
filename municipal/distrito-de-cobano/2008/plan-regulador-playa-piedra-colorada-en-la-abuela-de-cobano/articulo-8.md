@@ -26,8 +26,8 @@ f) Requisitos
 • Área mínima 200 m².
 • Área máxima 1000 m²
 • Frente mínimo 10 m
-• Retiro frontal, retiro posterior, retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+• Retiro frontal 5 m
+(Así reformado el requisito anterior en sesión ordinaria N° 59 del 13 de junio del 2017)
 • Cobertura máxima 60%
 • Altura máxima 7 m
 • No se permiten mezanines
