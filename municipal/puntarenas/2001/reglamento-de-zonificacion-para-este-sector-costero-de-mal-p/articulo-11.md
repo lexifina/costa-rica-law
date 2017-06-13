@@ -13,8 +13,8 @@ f) Regulaciones: El diseño del proyecto, además de las normas y reglamentos de
 > Vías de acceso y parquees no mayor al 5% del área total.
 > Iluminación interna de baja intensidad.
 > Cobertura máxima del 10%.
-> Retiros frontales, laterales y posteriores: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+> Retiros frontales, laterales y posteriores de 5 metros mínimo.
+(Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 > Altura máxima de dos niveles o 7.0 metros medidos del nivel del terreno a la parte de la construcción.
 > En suelos húmedos las construcciones sobre nivel del suelo en pilotes.
 > No se permitirá la corta de árboles con diámetros mayores a 20 cm.

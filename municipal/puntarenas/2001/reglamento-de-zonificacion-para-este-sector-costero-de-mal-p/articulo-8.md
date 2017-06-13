@@ -5,12 +5,12 @@ c) Lisos permitidos: Vivienda unifamiliar.
 d) Usos condicionales: Áreas de deportes, áreas verdes, cabinas o habitaciones en alquiler, vivienda multifamiliar, sodas, restaurantes, ventas de artesanía y "souvenirs". vivienda de alquiler.
 e) Usos conflictivos: centros comerciales, industria, salón de baile, ferreterías, discotecas, bodegas, talleres, depósito de materiales y cualquier otro uso no residencial. Cualquier instalación, edificación o actividad que genere ruido, malos olores, vibración o contaminación en general.
 f) Requisitos: De acuerdo con lo que se pretende, para los lotes se han definido las siguientes normas:
-1. Superficie mínima | 200 metros cuadrados (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-2. Superficie máxima | 4. 000 metros cuadrados (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+1. Superficie mínima | 300 m2 (Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+2. Superficie máxima | 2 000 m2 (Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 3. Frente mínimo | 15 metros
 4. Frente máximo: | 30 metros
-5. Retiro frontal: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-6. Retiro lateral y posterior | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+5. Retiro frontal: | 5 metros (Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+6. Retiro lateral y posterior | 3 metros (Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 7. Cobertura máxima | 40%
 8. Altura máxima | 7 metros
 9. Densidad máxima | 30 unidades habitacionales/ hectárea

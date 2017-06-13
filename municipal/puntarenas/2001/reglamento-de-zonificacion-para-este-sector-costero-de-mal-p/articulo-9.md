@@ -8,11 +8,11 @@ e) Usos conflictivos: Toda actividad o edificación, que no sea estrictamente re
 f) Requisitos:
 1. Densidad máxima | 60 habitaciones / hectárea
 2. Ocupación máxima | 40%
-3. Superficie mínima | 200 metros cuadrados (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-4. Superficie máxima | 4.000 metros cuadrados (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+3. Superficie mínima | 300 m2 (Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
+4. Superficie máxima | 200m2 (Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 5. Frente mínimo: | 15 metros
 6. Frente máximo: | 30 metros
-7. Retiro lateral, posterior y frontal: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+7. Retiro lateral, posterior y frontal: | 3 metros (Así reformado el requisito anterior mediante sesión ordinaria N° 59-2017 del 13 de junio del 2017)
 8. Retiro a línea de mojones: | 5 metros
 9. No se permiten mezzanines |
 10. Altura máxima | 7 metros
