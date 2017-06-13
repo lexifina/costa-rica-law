@@ -1,0 +1,1 @@
+Artículo 4.- Se instruye al Consejo Técnico de Aviación Civil a iniciar los procedimientos correspondientes ante la Secretaría Técnica Ambiental (SETENA), para que ésta emita los términos de referencia del estudio de impacto ambiental del aeropuerto.

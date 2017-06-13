@@ -1,0 +1,1 @@
+Artículo 2.-Aquellas predios en los cuales el Estado sea propietario registral se declaran de interés público para efectos de la construcción del Aeropuerto Internacional Metropolitano de Costa Rica, sin embargo por resultar innecesario, no serán sometidos al proceso de expropiación correspondiente.
