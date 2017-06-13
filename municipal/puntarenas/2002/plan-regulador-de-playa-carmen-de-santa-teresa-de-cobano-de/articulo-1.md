@@ -105,18 +105,17 @@ E.5. Usos conflictivos:
 Cualquier otra instalación, edificación o actividad que emita ruido, malos olores, vibración o contaminación en general.
 E.6. Requisitos:
 De acuerdo con lo que se pretende, para los lotes el INVU ha definido normas al respecto.
-– Superficie mínima: 200 metros cuadrados.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-– Superficie máxima: 4.000 metros cuadrados.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+– Superficie mínima: 600 metros cuadrados.
+(Así reformado el requisito anterior mediante sesión N° 59 del 13 de junio de 2017. Anteriormente dicho requisito había sido reformado en sesión N° 06 del 10 de febrero de 2015, misma que fue derogada en sesión N° 55 del 16 de mayo de 2017)
+– Superficie máxima: 2.000 metros cuadrados.
+(Así reformado el requisito anterior mediante sesión N° 59 del 13 de junio de 2017. Anteriormente dicho requisito había sido reformado en sesión N° 06 del 10 de febrero de 2015, misma que fue derogada en sesión N° 55 del 16 de mayo de 2017)
 – Frente mínimo: 15 metros.
 – Frente máximo: 30 metros.
 – Retiro frontal: 5 metros.
 – Retiro lateral: 3 metros.
 – Cobertura máxima: 50%.
 – Altura máxima: 5 metros.
-Retiro frontal, posterior, lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así adicionado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+(Mediante sesión N° 59 del 13 de junio de 2017 se reestablecen todas las reformas introducidas mediante la sesión N° 06 del 10 de febrero de 2015, la cual anteriormente había introducido un párrafo después del requisito anterior que indicaba lo siguiente: “Retiro frontal, posterior, lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. Dicha sesión había sido derogada en sesión N° 55 del 16 de mayo de 2017”)
 La zona residencial, debe tener las vías de acceso secundarias y peatonales y áreas verdes como exige la Ley de Planificación Urbana en sus porcentajes mayores.
 Todos los planos constructivos, deben ser visados y aprobados por la Oficina Centralizadora de Permisos. Especial énfasis deben tener las siguientes instituciones: ICE, Ministerio de Salud, Acueductos y Alcantarillados, INVU, ICT y Concejo Municipal de Puntarenas.
 No se autorizará ninguna obra residencial que no cumpla con dichos requisitos y cuyos terrenos no están debidamente amojonados.
@@ -146,18 +145,17 @@ F.5. Usos conflictivos:
 Cualquier otra instalación, edificación o actividad que emita ruido, malos olores, vibración o contaminación en general.
 F.6. Requisitos:
 De acuerdo con lo que se pretende, para los lotes el INVU ha definido normas al respecto.
-– Superficie mínima: 7200 metros cuadrados.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-– Superficie máxima: 4.000 metros cuadrados.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+– Superficie mínima: 700 metros cuadrados.
+(Así reformado el requisito anterior mediante sesión N° 59 del 13 de junio de 2017. Anteriormente dicho requisito había sido reformado en sesión N° 06 del 10 de febrero de 2015, misma que fue derogada en sesión N° 55 del 16 de mayo de 2017)
+– Superficie máxima: 2.000 metros cuadrados.
+(Así reformado el requisito anterior mediante sesión N° 59 del 13 de junio de 2017. Anteriormente dicho requisito había sido reformado en sesión N° 06 del 10 de febrero de 2015, misma que fue derogada en sesión N° 55 del 16 de mayo de 2017)
 – Frente mínimo: 15 metros.
 – Frente máximo: 30 metros.
 – Retiro frontal: 5 metros.
 – Retiro lateral: 3 metros.
 – Cobertura máxima: 20%.
 – Altura máxima: 5 metros.
-Retiro frontal, posterior, lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así adicionado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+(Mediante sesión sesión N° 59 del 13 de junio de 2017 se reestablecen todas las reformas introducidas mediante la sesión N° 06 del 10 de febrero de 2015, la cual anteriormente había introducido un párrafo después del requisito anterior que indicaba lo siguiente: Retiro frontal, posterior, lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. Dicha sesión había sido derogada en sesión N° 55 del 16 de mayo de 2017”)
 La zona residencial, debe tener las vías de acceso secundarias y peatonales y áreas verdes como exige la Ley de Planificación Urbana en sus porcentajes mayores.
 Todos los planos constructivos, deben ser visados y aprobados por la Oficina Centralizadora de Permisos de Construcción. Especial énfasis deben tener las siguientes instituciones: ICE, Ministerio de Salud, Acueductos y Alcantarillados, INVU, ICT y Concejo Municipal de Puntarenas.
 No se autorizará ninguna obra residencial que no cumpla con dichos requisitos y cuyos terrenos no están debidamente amojonados.
@@ -217,12 +215,12 @@ El proyecto-desarrollo para el área solicitada en concesión, debe presentarse 
 El diseño espacial deberá respetar como mínimo las siguientes normas:
 – Superficie mínima: 4.000 metros cuadrados.
 – Superficie máxima: 30.000 metros cuadrados.
-– Retiro frontal: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-– Retiro posterior: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-– Retiro lateral:Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+– Retiro frontal: 5 metros.
+(Así reformado el requisito anterior mediante sesión N° 59 del 13 de junio de 2017. Anteriormente dicho requisito había sido reformado en sesión N° 06 del 10 de febrero de 2015, misma que fue derogada en sesión N° 55 del 16 de mayo de 2017)
+– Retiro posterior: 5 metros.
+(Así reformado el requisito anterior mediante sesión N° 59 del 13 de junio de 2017. Anteriormente dicho requisito había sido reformado en sesión N° 06 del 10 de febrero de 2015, misma que fue derogada en sesión N° 55 del 16 de mayo de 2017)
+– Retiro lateral: 3 metros.
+(Así reformado el requisito anterior mediante sesión N° 59 del 13 de junio de 2017. Anteriormente dicho requisito había sido reformado en sesión N° 06 del 10 de febrero de 2015, misma que fue derogada en sesión N° 55 del 16 de mayo de 2017)
 – Cobertura máxima: 50%.
 – Altura máxima: 7 metros.
 – Áreas de zona verde mínima: 40%.
@@ -251,8 +249,7 @@ H.5. Usos conflictivos:
 Toda edificación o actividad, que no sea estrictamente de servicio público.
 H.6. Concesión:
 Según lo establece la Ley Nº 6043 y su Reglamento.
-H.7.- Retiro frontal, retiro posterior, retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así adicionado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+(Mediante sesión N° 59 del 13 de junio de 2017 se reestablecen todas las reformas introducidas mediante la sesión N° 06 del 10 de febrero de 2015, la cual anteriormente había introducido un inciso H-7 que indicaba lo siguiente: H.7.- Retiro frontal, retiro posterior, retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. Dicha sesión había sido derogada en sesión N° 55 del 16 de mayo de 2017”)
 J. ZONA DE CAMPAMENTO (ZCAM):
 J.1. Propósito:
 Zona dedicada a ofrecer servicios para el carro-casa o cámper y tienda de campaña; así como todo tipo de alojamiento móvil. Ocupa 2.802 m² que representan el 0,83% de la Zona Marítimo Terrestre.
@@ -304,12 +301,12 @@ El interesado, deberá presentar un proyecto del área de camping, en donde se i
 – Estudio de abastecimiento de agua potable.
 – Sistema de tratamiento de aguas negras y jabonosas.
 El diseño espacial, deberá respetar las normas internacionales, para este tipo de servicios en cuanto superficies mínimas y máximas, distribución de zonas y densidad:
-– Retiro frontal: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-– Retiros laterales: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
-– Retiros posteriores: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
-(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+– Retiro frontal: 10 metros.
+(Así reformado el requisito anterior mediante sesión N° 59 del 13 de junio de 2017. Anteriormente dicho requisito había sido reformado en sesión N° 06 del 10 de febrero de 2015, misma que fue derogada en sesión N° 55 del 16 de mayo de 2017)
+– Retiros laterales: 5 metros.
+(Así reformado el requisito anterior mediante sesión N° 59 del 13 de junio de 2017. Anteriormente dicho requisito había sido reformado en sesión N° 06 del 10 de febrero de 2015, misma que fue derogada en sesión N° 55 del 16 de mayo de 2017)
+– Retiros posteriores: 10 metros.
+(Así reformado el requisito anterior mediante sesión N° 59 del 13 de junio de 2017. Anteriormente dicho requisito había sido reformado en sesión N° 06 del 10 de febrero de 2015, misma que fue derogada en sesión N° 55 del 16 de mayo de 2017)
 – Cobertura máxima: 50%.
 – Altura máxima: 5 metros.
 – Vías internas: 20%.
