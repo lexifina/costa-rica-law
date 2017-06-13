@@ -1,0 +1,18 @@
+N° 40441-MP
+EL PRESIDENTE DE LA REPÚBLICA,
+Y EL MINISTRO DE LA PRESIDENCIA
+En uso de las facultades y atribuciones que les confieren los artículos 140 incisos 3), 8), 18) y 20) y 146 de la Constitución Política; 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley General de la Administración Pública Nº 6227;
+CONSIDERANDO:
+l. Que dentro de los fines culturales de la República, instituidos en el artículo 89 de la Constitución Política, se encuentra apoyar la iniciativa privada para el progreso científico y artístico de la Nación.
+II. Que en el año 1996 el Instituto Nacional de Seguros cambió el esquema de ventas de sus productos que mantuvo por más de 72 años, finiquitó los contratos de trabajo que existían con los Agentes de Seguros y se creó la figura de las Comercializadoras de Seguros, con el fin de mantener una relación mercantil y no laboral con la fuerza de ventas.
+III. Que a raíz de este cambio trascendental, el día 04 de junio de 1996 se constituyó la Cámara Nacional de Empresas Comercializadoras de Seguros (CANECOS), hoy conocida como Cámara de Intermediarios de Seguros de Costa Rica (CIS) con el propósito de agrupar a las nuevas empresas y representar sus intereses y necesidades ante el Instituto Nacional de Seguros y la sociedad como un todo.
+IV. Que en el año 2008 y producto de los compromisos adquiridos por el Gobierno de Costa Rica para el Ingreso al Tratado de Libre Comercio con Estados Unidos, República Dominicana y Centroamérica, se aprobó la ley Reguladora del Mercado de Seguros; la cual estableció los lineamientos para la apertura del mercado y la eliminación del monopolio que mantuvo el INS durante 84 años.
+V. Que la Cámara de Intermediarios de Seguros de Costa Rica (CIS), es miembro de la Confederación Panamericana de Productores de Seguros (COPAPROSE), que está ligada a la Federación Mundial de Intermediarios de Seguros (WFII, por sus siglas en inglés). La WFII es la única voz que representa a todos los agentes y corredores de seguros del mundo entero, ante la Organización Mundial de Comercio (OMC), la Organización de Cooperación Económica y Desarrollo (OECD, por sus siglas en inglés) y la Asociación Internacional de Supervisores de Seguros (IAIS, por sus siglas en inglés), entre otros.
+VI. Que la CIS tiene entre sus objetivos estratégicos el: Promover el desarrollo y perfeccionamiento de la industria del seguro; difundir la cultura de seguros en Costa Rica, realizar programas de capacitación complementarios para el mercado de seguros de Costa Rica, apoyar a los afiliados ante los cambios en las normativas del ente regulador y las aseguradoras, objetivos acordes al cambio de la legislación establecida por el gobierno de la República en el 2008.
+VII. Que Costa Rica por medio de la CIS ha sido seleccionado para ser la sede del XXVII Congreso Panamericano de Productores de Seguros, COPAPROSE 2018, los días 18, 19 y 20 de abril del año 2018 en el Hotel Intercontinental en San José.
+VIII. Que el desarrollo del mencionado Congreso se estima de interés público, dado el intercambio de ideas y experiencias que el mismo generará en el área de Seguros, así como los aportes que serán presentados en el evento en cuestión y los beneficios y valores que los mismos conllevan.
+Por tanto;
+DECRETAN:
+DECLARATORIA DE INTERÉS PÚBLICO DEL XXVII CONGRESO PANAMERICANO DE
+PRODUCTORES DE SEGUROS, COPAPROSE 2018
+Artículo 1.- Se declara de interés público el XXVII Congreso Panamericano de Productores de Seguros COPAPROSE 2018, mismo que se realizará los días 18, 19 y 20 de abril del año 2018 en el Hotel Intercontinental en San José y que está siendo organizado por la Cámara de Intermediarios de Seguros de Costa Rica (CIS ).

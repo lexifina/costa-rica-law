@@ -1,0 +1,1 @@
+Artículo 2.- Se autoriza y recomienda la participación y colaboración de todas las instancias de la Administración central y descentralizada, así como todas las acciones que las mismas puedan disponer a favor del desarrollo de dicho Congreso, esto dentro de los límites y competencias que al efecto dispone nuestro ordenamiento jurídico y sin detrimento de sus propios objetivos.
