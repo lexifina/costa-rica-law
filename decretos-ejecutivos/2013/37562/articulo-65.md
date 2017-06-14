@@ -28,6 +28,7 @@ Medicina Reproductiva. Ginecología Urológica (Así adicionada la subespecialid
 Subespecialidad de la Medicina de Emergencias Artículo No. 87
 Medicina de Emergencias Pediátricas. | Artículo No. 88
 Subespecialidades de la Neurocirugía Artículo No. 89
+Cirugía de Columna Vertebral (Así adicionada la subespecialidad anterior mediante sesión ordinaria 2017-06-14, celebrada el 14 de junio del 2017) | Artículo No. 149 (Así adicionado el requisito anterior mediante sesión ordinaria 2017-06-14, celebrada el 14 de junio del 2017)
 Neurocirugía Pediátrica | Artículo No. 90
 Neuro-Oncología. | Artículo No. 91
 Subespecialidades de la Oftalmología Artículo No. 92
