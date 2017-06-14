@@ -14,8 +14,10 @@ DEFINICIÓN DE LOS RIESGOS
 La Superintendencia, para juzgar la situación económica - financiera de las entidades supervisadas, incluye los siguientes riesgos: el riesgo de solvencia, riesgo de liquidez, riesgo por variaciones en las tasas de interés, riesgo cambiario, riesgo de crédito y riesgo operacional.
 Riesgo de solvencia: Se presenta cuando el nivel de capital contable (Patrimonio) de una entidad es insuficiente para cubrir las pérdidas no protegidas por las estimaciones, erosionando su base patrimonial. La determinación de las pérdidas estimadas se basa en la calidad y estructura de los activos de los intermediarios financieros, por lo tanto el riesgo de solvencia incluye el riesgo de los activos.
 Riesgo de liquidez: se origina cuando la entidad financiera no posee los recursos líquidos necesarios para atender sus exigibilidades u obligaciones con terceros en el corto plazo.
-Riesgo por variaciones en las tasas de interés: es la exposición a pérdidas debido a fluctuaciones en las tasas cuando se presentan descalces en los plazos de las carteras activas y pasivas, sin contarse con la flexibilidad para un ajuste oportuno.
-Riesgo cambiario: Una entidad se enfrenta a este tipo de riesgo cuando el valor de sus activos y pasivos en moneda extranjera se ven afectados por las variaciones en el tipo de cambio y los montos correspondientes se encuentran descalzados.
+Riesgo de tasas de interés (o riesgo por variaciones en las tasas de interés): Se define como la posibilidad de que se produzcan cambios adversos en las condiciones financieras de una entidad ante fluctuaciones en la tasa de interés dentro del libro bancario (cartera de inversión), generando efectos negativos en el margen financiero y el valor económico de la entidad.
+(Así reformada la definición anterior mediante sesión N° 1340 del 14 de junio del 2017)
+Riesgo de tipos de cambio (o riesgo de tipo de cambio o riesgo cambiario): Posibilidad de sufrir pérdidas como consecuencia de variaciones en el tipo de cambio; y los montos correspondientes se encuentran descalzados. Está compuesto por los riesgos de conversión, riesgos de posición en moneda extranjera y riesgos de transacciones.
+(Así reformada la definición anterior mediante sesión N° 1340 del 14 de junio del 2017)
 Riesgo de crédito: Surge de la posibilidad de que un deudor no pague.
 Riesgo operacional o de funcionamiento Se origina cuando los sistemas de información gerencial son inadecuados, cuando existen problemas operacionales, debilidades en el control interno, fraude, etc.
 CAPÍTULO I
