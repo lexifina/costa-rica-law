@@ -1,0 +1,1 @@
+Artículo 24. Técnicas de investigación. Durante la fase de investigación, la Administración en el ejercicio de sus competencias y facultades, deberán efectuar la investigación correspondiente, utilizando para tales efectos los medios científicos, técnicos y empíricos necesarios según lo amerita cada caso.

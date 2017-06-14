@@ -1,0 +1,1 @@
+Artículo 14. La denuncia anónima: En caso de denuncias anónimas la Presidencia Ejecutiva instruirá al Órgano Instructor (Gerencia General y Unidad de Relaciones Laborales) abrir de oficio una investigación preliminar,

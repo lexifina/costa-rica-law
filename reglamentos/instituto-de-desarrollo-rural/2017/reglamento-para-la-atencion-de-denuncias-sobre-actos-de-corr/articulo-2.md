@@ -1,0 +1,1 @@
+Artículo 2°. Alcance: Este reglamento es aplicable para el trámite de todas aquellas denuncias que sean presentadas contra Funcionarios, Titulares Subordinados, Administración Superior, Auditoría Interna y Jerarcas, cuando se señale el presunto acto de corrupción, falta de ética y transparencia en la función pública.
