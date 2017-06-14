@@ -1,0 +1,1 @@
+Artículo 8: Vigencia. Esta promoción tiene vigencia durante los eventos promocionales que la Junta efectuará, cuyas fechas, lugares y horas estará comunicando oportunamente y la lotería participante corresponde al Sorteo Extraordinario del Gordito de Medio Año No. 4447, que se estará vendiendo durante dichos eventos.
