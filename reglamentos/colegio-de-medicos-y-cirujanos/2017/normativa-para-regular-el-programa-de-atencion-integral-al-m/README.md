@@ -14,3 +14,4 @@ Normativa para regular el programa de atención integral al médico (PAIME) del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-03-09 | la propia norma |
+| 2 | 2017-06-14 | Reglamento 0 (2017-06-14) |
