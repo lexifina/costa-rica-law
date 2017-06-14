@@ -35,3 +35,4 @@ Reglamento para Juzgar la Situación Económica-Financiera de las Entidades Fisc
 | 20 | 2010-06-25 | Reglamento 862 (2010-06-25) |
 | 21 | 2013-08-19 | Reglamento 1058 (2013-08-19) |
 | 22 | 2014-09-01 | Reglamento 1123 (2014-09-01) |
+| 23 | 2017-06-14 | Reglamento 1340 (2017-06-14) |
