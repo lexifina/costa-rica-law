@@ -14,3 +14,4 @@ Perfil Profesional del Médico Especialista en Radiología e Imágenes Médicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-05-19 | la propia norma |
+| 2 | 2017-06-14 | Reglamento 0 (2017-06-14) |
