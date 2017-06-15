@@ -14,3 +14,4 @@ Reglamento de trabajos finales de graduación de la Universidad Técnica Naciona
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-05-29 | la propia norma |
+| 2 | 2017-06-15 | Reglamento 11 (2017-06-15) |

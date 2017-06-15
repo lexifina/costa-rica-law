@@ -1,0 +1,2 @@
+Artículo 15 bis: “Curso de Buenas Prácticas de Investigación (BPI)”. En el caso particular de investigaciones en materia de salud realizadas de modo directo o indirecto en personas, los tutores, lectores y estudiantes, deberán aprobar el curso Buenas Prácticas de Investigación (BPI) acreditado por Consejo Nacional de Investigación en Salud (CONIS).
+(Así adicionado mediante sesión ordinaria N° 11-2017 del 15 de junio del 2017)
