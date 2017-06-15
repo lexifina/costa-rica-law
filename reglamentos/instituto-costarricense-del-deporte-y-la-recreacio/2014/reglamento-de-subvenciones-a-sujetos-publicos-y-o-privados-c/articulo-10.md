@@ -1,1 +1,0 @@
-Artículo 10.—Fiscalización y verificación de los programas. El ICODER verificará el cumplimiento de los acuerdos asumidos en la aprobación del plan de trabajo y presupuesto que dieron origen a la transferencia. Esto por medio de la fiscalización de los objetivos, resultados y de la rendición de cuentas.

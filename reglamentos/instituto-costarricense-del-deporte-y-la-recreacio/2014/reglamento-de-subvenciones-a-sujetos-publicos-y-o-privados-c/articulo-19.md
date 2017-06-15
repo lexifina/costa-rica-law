@@ -1,2 +1,0 @@
-Artículo 19.—Derogatorias. Léase Artículo N° 19 Derogatorias Deróguese el Reglamento aprobado en la sesión ordinaria N° 557-2007 acuerdo N° 1 del CND. Publicado en La Gaceta N° 242 del lunes 17 de setiembre del 2007.
-Aprobado mediante Acuerdo N° 16 de la sesión ordinaria 912-2014 del Consejo Nacional del Deporte y la Recreación celebrada a los diecinueve días del mes de junio del año dos mil catorce, en la sala de sesiones del Estadio Nacional.

@@ -1,1 +1,0 @@
-Artículo 17.—Participación de la Auditoria. La Auditoría Interna tendrá la facultad de fiscalizar los recursos otorgados a los sujetos públicos y/o privados de acuerdo con su Plan de Trabajo y recomendará a la Dirección Nacional lo correspondiente.
