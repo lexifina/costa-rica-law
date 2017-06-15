@@ -13,3 +13,4 @@ Modificar la competencia territorial de los Juzgados Penales Juveniles del Terce
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-04-26 | la propia norma |
+| 2 | 2017-06-15 | Circular 95 (2017-06-15) |
