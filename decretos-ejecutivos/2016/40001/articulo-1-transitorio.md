@@ -1,0 +1,1 @@
+Transitorio. Una vez transcurridos los seis meses para que entre a regir la presente normativa, se desarrollará por un año, un modelo operativo en el Hospital San Juan de Dios; y al finalizar dicho año, la normativa será de aplicación voluntaria para todo el territorio nacional.
