@@ -1,0 +1,1 @@
+Artículo 2°—Sanciones por incumplimiento. El incumplimiento a este reglamento técnico por parte del administrado se procederá de conformidad con lo dispuesto en los artículos 5 inciso o), 8 inciso e) y 35 de la Ley de Protección Fitosanitaria N° 7664 y su reglamento.
