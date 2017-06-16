@@ -1,0 +1,1 @@
+Artículo 9º—Los espacios de la Escuela Municipal de Música por ningún motivo serán cedidos para actividades de índole religiosa, políticas electorales o con fines de lucro. Se podrán realizar, cuando así se solicite vía escrita a la Junta Administrativa, actividades académicas, conferencias, mesas redondas u otras similares.

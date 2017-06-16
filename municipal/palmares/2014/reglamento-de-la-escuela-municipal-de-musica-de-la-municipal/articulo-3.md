@@ -1,0 +1,1 @@
+Artículo 3º—Toda actividad que se realice en la Escuela Municipal de Música debe estar inspirada en los más altos principios de la humanidad, tiendan a generar felicidad, amor, solidaridad, libertad, reflexión, sentido crítico, positivismo, comprensión y valoración de lo diverso.
