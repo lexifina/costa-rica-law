@@ -1,1 +1,0 @@
-Artículo 24.—Envío de correos masivos. Se prohíbe el envío de correos masivos. Se exceptúan de esta prohibición las oficinas expresamente autorizadas para este fin por el Consejo Superior y las demás que la Dirección Ejecutiva autorice.

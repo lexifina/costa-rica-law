@@ -1,1 +1,0 @@
-Artículo 34.—Derogatorias. Se deroga el Reglamento para la Administración y uso de los recursos informáticos del Poder Judicial aprobado por Corte Plena en sesión celebrada el 16 de febrero de 2006, artículo LI.

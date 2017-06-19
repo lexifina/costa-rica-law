@@ -1,1 +1,0 @@
-Artículo 21.—Envío de comunicaciones. En toda comunicación electrónica, el usuario o usuaria deberá mantener los cuidados, profesionalismo y discreción que guarda con los documentos o memorandos impresos.

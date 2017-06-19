@@ -1,6 +1,0 @@
-Artículo 14.—Protección de recursos tecnológicos. Las personas usuarias deberán seguir las directrices institucionales que eviten la introducción de malware o la manipulación indebida de la información. Por tanto, cuando se utilice el acceso a Internet, las comunicaciones electrónicas, las memorias removibles y otros servicios tecnológicos, deberán:
-a) Utilizar la Internet y los sistemas de comunicación electrónica de acuerdo con las disposiciones que emita la Administración Superior.
-b) Mantener las condiciones de seguridad de los sistemas, incluyendo la confidencialidad de las palabras claves.
-c) Ejecutar la revisión de malware a los dispositivos externos antes de acceder a su información, haciendo uso de las herramientas tecnológicas proveídas por el Poder Judicial.
-d) Resguardar la información de carácter confidencial, de acceso restringido, o aquella que goce de protección por los derechos de autor o sea de uso exclusivo del Poder Judicial, a la que tenga acceso; quedando estrictamente prohibido comunicarla o facilitarla, directa o indirectamente a un tercero sin la debida autorización.
-e) Abstenerse de utilizar o descargar documentos o archivos que no tengan relación alguna con sus labores habituales.

@@ -1,1 +1,0 @@
-Artículo 5º—Administración y mantenimiento de recursos tecnológicos. El Departamento de Tecnología de Información y Comunicaciones en coordinación con las dependencias que éste designe, serán los responsables de administrar y dar soporte técnico y velar por el buen funcionamiento de la infraestructura tecnológica del Poder Judicial.

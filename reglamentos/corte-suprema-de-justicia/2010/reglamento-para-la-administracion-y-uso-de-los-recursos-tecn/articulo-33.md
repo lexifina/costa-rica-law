@@ -1,1 +1,0 @@
-Artículo 33.—Integración normativa. Los aspectos no previstos en este reglamento se regularán por lo que dispone la Ley Orgánica del Poder Judicial, la Ley General de Control Interno, las Políticas de Tecnología de Información y Comunicaciones del Poder Judicial, y demás ordenamiento jurídico en lo que sea aplicable.

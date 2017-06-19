@@ -1,1 +1,0 @@
-Artículo 27.—Equipo propiedad de terceros. No se permite la conexión a la red institucional de equipos propiedad de terceros que no se ajusten a los lineamientos que establezca el Departamento de Tecnología de Información y Comunicaciones. En caso de que sea necesaria la conexión de un equipo de esta naturaleza, se deberá contar con la aprobación del Departamento de Tecnología.

@@ -1,1 +1,0 @@
-Artículo 31.—Recursos. En contra de lo resuelto por el Departamento de Tecnología de la Información y Comunicación, cabrá recurso de revocatoria ante el mismo Departamento y de apelación ante la Dirección Ejecutiva.

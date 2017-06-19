@@ -1,1 +1,0 @@
-Artículo 22.—Monitoreo. El Departamento de Tecnología de Información y Comunicaciones pondrá en funcionamiento herramientas de control automatizadas para analizar y detectar los usos y comportamientos indebidos o ilícitos en la red, sin que se violenten los derechos constitucionales de libertad de expresión y privacidad de las comunicaciones.
