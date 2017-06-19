@@ -1,0 +1,18 @@
+INTITUTO DE FOMENTO Y ASESORÍA MUNICIPAL
+Comunica que la Directora Tributaria de este Instituto aprobó la publicación de la siguiente resolución:
+DE-841-2017
+Resolución Administrativa N° 39-2017
+La Dirección Ejecutiva del Instituto de Fomento y Asesoría Municipal, representada por Laura Obando Villegas, en su condición de Directora de la Administración Tributaria.
+Considerando:
+1.Que el artículo 99 del Código de Normas y Procedimientos Tributarios faculta a la Administración Tributaria para dictar normas generales a efectos de la correcta aplicación de las leyes tributarias, dentro de los límites que fijen las disposiciones legales y reglamentarias vigentes.
+2.Que el artículo 57 del Código de Normas Procedimientos Tributarios establece que todo pago efectuado fuera de término, produce la obligación de pagar un interés junto con el tributo adeudado, aun cuando el sujeto pasivo de la obligación tributaria haya realizado pagos parciales.
+3.Que el artículo 57 del Código de Normas y Procedimientos Tributarios, reformado mediante la Ley N° 8981 del 25 de agosto de 2011, publicado en La Gaceta N° 167, Alcance 58 del 31 de agosto de 2011, define la base de cálculo de la tasa de interés a cobrar deuda a cargo del sujeto pasivo de la obligación tributaria.
+4.Que el artículo 58 del Código de Normas y Procedimientos Tributarios, reformado mediante la Ley N°7900 del 03 de agosto de 1999, publicado en La Gaceta N°159 del 17 de agosto de 1999 y vigente a partir del 1° de octubre de 1999, define la base de cálculo de la tasa interés sobre principal de las deudas de la Administración Tributaria.
+5.Que la tasa de interés a cargo de sujeto pasivo y de la Administración Tributaria corresponderá a la cifra resultante de calcular el promedio simple de las tasas activas de los bancos comerciales del Estado para créditos del sector comercial, no pudiendo exceder en más de diez puntos la tasa básica pasiva fijada por el Banco Central de Costa Rica.
+6.Que el promedio simple de las tasas activas para el sector comercial del Banco Nacional de Costa Rica, Banco de Costa Rica y Banco Crédito Agrícola de Cartago, es de 10,99% anual, al 6 de junio de 2017, según la información calculada y publicada por el Banco Central de Costa Rica.
+7.Que la tasa básica pasiva fijada por el Banco Central de Costa Rica, al 12 de junio de 2017, es de4.80% anual, por lo que la tasa de interés a establecer por parte de la Administración Tributaria del Instituto de Fomento y Asesoría Municipal (IFAM) no podrá exceder la magnitud de 14,80%anual, en razón de que la tasa que se fije, no podrá exceder en más de diez puntos la tasa básica pasiva. Siendo el promedio simple de las tasas activas de los bancos comerciales del Estado para créditos del sector comercial de 10,99% anual, (al 6 de junio de 2017) inferior a la sumatoria de la tasa básica pasiva más diez puntos porcentuales (14,80% anual), prevalece el promedio simple de las indicadas tasas activas, cuya magnitud es de 10,99% anual.
+8. Que la Directora Tributaria del Instituto de Fomento y Asesoría Municipal, aprobó modificar la tasa de interés a 10,99% anual, tanto a cargo del sujeto pasivo de la obligación tributaria como de la Administración Tributaria, con vigencia a partir de su publicación en el Diario Oficial de La Gaceta.
+Por tanto
+LA ADMINISTRACIÓN TRIBUTARIA
+DEL INSTITUTO DE FOMENTO Y ASESORÍA MUNICIPA (IFAM) RESUELVE:
+Artículo1°-. Se establece en 10,99% anual la tasa de interés que está a cargo del sujeto pasivo de la obligación tributaria y de la Administración Tributaria, de conformidad con el regulado en los artículos 57 y 58 del Código de Normas y Procedimientos Tributarios.
