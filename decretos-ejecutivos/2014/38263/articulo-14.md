@@ -12,6 +12,7 @@ j) Colaborar con las otras unidades administrativas y Direcciones de la Tesorer�
 k) Apoyar a la Dirección en la optimización del flujo de caja.
 l) Proponer la colocación de excedentes temporales de fondos.
 m)Participar en comisiones internas o externas a solicitud de los superiores, intercambiando criterios en materia de política de liquidez y dando a conocer la posición de la Tesorería en esa materia.
-n) Diseñar el plan anual de trabajo, tomando en cuenta las directrices emanadas de la Dirección de Tesorería Nacional, para lograr el cumplimiento de la misión, visión y objetivos encomendados.
+n) Elaborar el plan anual de trabajo, tomando en cuenta las directrices emanadas de la Dirección de Tesorería Nacional, para lograr el cumplimiento de la misión, visión y objetivos encomendados.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40641 del 19 de junio del 2017)
 o) Promover la gestión de calidad en los productos, servicios y acciones que realice.
 p) Las demás funciones que le encomiende la Dirección Tesorería Nacional.

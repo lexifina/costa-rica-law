@@ -6,6 +6,7 @@ d) Mantener actualizados los parámetros de los sistemas informáticos que sopor
 e) Atender los requerimientos de información sobre los pagos de salarios y pensiones y deducciones que soliciten los clientes internos y externos.
 f) Realizar estudios técnicos sobre los diferentes conceptos relacionados con el pago de salarios y pensiones realizado por la Tesorería Nacional.
 g) Coordinar con la Unidad de Programación Financiera la propuesta de calendarios de pagos anuales.
-h) Diseñar el plan anual de trabajo, tomando en cuenta las directrices emanadas de la Dirección de Tesorería Nacional, para lograr el cumplimiento de la misión, visión y objetivos encomendados.
+h) Elaborar el plan anual de trabajo, tomando en cuenta las directrices emanadas de la Dirección de Tesorería Nacional, para lograr el cumplimiento de la misión, visión y objetivos encomendados.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40641 del 19 de junio del 2017)
 i) Promover la gestión de calidad en los productos, servicios y acciones que realice la unidad.
 j) Las demás funciones que le encomiende la Dirección.

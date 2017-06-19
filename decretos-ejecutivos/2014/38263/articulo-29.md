@@ -5,6 +5,11 @@ c) Asesorar a las áreas componentes de la Tesorería Nacional para fortalecer l
 d) Elaborar las propuestas de normativa dirigidas a los entes gestores, que regula la Tesorería Nacional.
 e) Programar, coordinar, dar seguimiento y evaluar las actividades de las unidades que conforman la Dirección de Control de Operaciones y Fiscalización.
 f) Representar a la Tesorería Nacional en diferentes comisiones y comités.
-g) Diseñar el plan anual de trabajo, tomando en cuenta las directrices emanadas de la Dirección de Tesorería Nacional, para lograr el cumplimiento de la misión, visión y objetivos encomendados.
-h) Promover la gestión de calidad en los productos, servicios y acciones que realice la unidad.
-i) Las demás funciones que le encomiende la Dirección Tesorería Nacional.
+g) Crear y administrar el registro centralizado de la normativa emitida por la Tesorería Nacional.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40641 del 19 de junio del 2017)
+h) Elaborar el plan anual de trabajo, tomando en cuenta las directrices emanadas de la Dirección de Tesorería Nacional, para lograr el cumplimiento de la misión, visión y objetivos encomendados.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40641 del 19 de junio del 2017)
+i) Promover la gestión de calidad en los productos, servicios y acciones que realice la Dirección.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40641 del 19 de junio del 2017)
+j) Las demás funciones que le encomiende la Dirección Tesorería Nacional.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 40641 del 19 de junio del 2017)

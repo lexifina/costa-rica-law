@@ -1,4 +1,5 @@
-Artículo 5º—De las funciones del Tesorero Nacional: El Tesorero Nacional, para el ejercicio de las atribuciones concedidas por el Ordenamiento Jurídico, cuenta con las siguientes funciones:
+Artículo 5º— De las funciones del (la) Tesorero (a) Nacional: El (la) Tesorero(a) Nacional, para el ejercicio de las atribuciones concedidas por el Ordenamiento Jurídico, cuenta con las siguientes funciones:
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 40641 del 19 de junio del 2017)
 a) Establecer políticas, estrategias, programas, directrices y disposiciones para el adecuado funcionamiento de la dependencia.
 b) Planear, organizar, dirigir, coordinar, controlar y evaluar las actividades desarrolladas dentro de la Tesorería Nacional.
 c) Representar a la Tesorería Nacional ante las autoridades gubernamentales y organismos nacionales e internacionales.

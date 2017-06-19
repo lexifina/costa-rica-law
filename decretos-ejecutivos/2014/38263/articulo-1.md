@@ -13,4 +13,5 @@ VII.—Que es fundamental reglamentar la organización de la Tesorería Nacional
 Decretan:
 REGLAMENTO DE ORGANIZACIÓN
 DE LA TESORERÍA NACIONAL
-Artículo 1º—De la Tesorería Nacional. La Tesorería Nacional se encuentra a cargo de un Tesorero Nacional y un Subtesorero Nacional.
+Artículo 1º—De la Tesorería Nacional. La Tesorería Nacional se encuentra a cargo de un (a) Tesorero (a) Nacional y un (a) Subtesorero (a) Nacional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40641 del 19 de junio del 2017)

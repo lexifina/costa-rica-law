@@ -14,3 +14,4 @@ Reglamento de Organización de la Tesorería Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-09 | la propia norma |
+| 2 | 2017-06-19 | Decreto Ejecutivo 40641 (2017-06-19) |
