@@ -1,4 +1,6 @@
-CIRCULAR Nº 22-2014
+(Derogado)
+Nº 22-2014
+(Esta norma fue derogada por el artículo 115 del Reglamento del Gobierno, la Gestión y el uso de los servicios Tecnológicos del Poder Judicial, aprobado mediante sesión N° 19-17 del 19 de junio del 2017, publicada en el Boletín Judicial N° 132 del 12 de julio del 2017 mediante circular N° 100-2017)
 Asunto: Reglamento Interno de la Comisión Gerencial de Tecnologías de la Información en el Poder Judicial Costarricense
 A LOS DESPACHOS JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:

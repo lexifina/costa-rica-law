@@ -13,3 +13,4 @@ Reglamento Interno de la Comisión Gerencial de Tecnologías de la Información 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-30 | la propia norma |
+| 2 | 2017-06-19 | Reglamento 19 (2017-06-19) |
