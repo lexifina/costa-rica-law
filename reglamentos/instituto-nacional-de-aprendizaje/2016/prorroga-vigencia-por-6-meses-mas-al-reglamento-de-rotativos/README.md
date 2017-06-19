@@ -14,3 +14,4 @@ Prórroga vigencia por 6 meses más, al Reglamento de rotativos de trabajo, caja
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-01-03 | la propia norma |
+| 2 | 2017-06-19 | Reglamento 4787 (2017-06-19) |
