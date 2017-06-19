@@ -1,1 +1,0 @@
-Artículo 10.—Los cargos de Coordinadores (as)de las Áreas Jurídicas de la Unidad de Asuntos Jurídicos, así como los productos específicos de cada Área jurídica, serán incluidos en los Manuales de Puestos correspondientes.
