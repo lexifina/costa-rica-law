@@ -1,0 +1,6 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+N° SC-007-2017.—San José, 9 de junio del 2017.
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+DG-061-2017: Se modifica el Manual Descriptivo de Especialidades Docentes (Resolución DG-399-2010), en particular las Especialidades “Informática en Programación”, e “Informática en Soporte”, de manera que en el apartado “Atinencias Académicas” se incluya la carrera de Bachillerato en Ingeniería en Tecnologías de Información, según se indica en la misma.
+DG-064-2017: Se modifica el Manual Descriptivo de Especialidades Docentes (Resolución DG-399-2010), en particular la Especialidad “Inglés”, de manera que en el apartado “Atinencias Académicas” se incluyan las carreras de Bachillerato y Licenciatura en Ciencias de la Educación en I y II Ciclos con Énfasis en Inglés como Segunda Lengua, según se indica
+DG-065-2017: Se modifica el Manual Descriptivo de Especialidades Docentes (Resolución DG-399-2010), en particular la Especialidad “Administración y Operación Aduanera”, de manera que en el apartado “Atinencias Académicas” se incluyan las carreras de Profesorado en la Enseñanza de Comercio Exterior y el Bachillerato Universitario en Comercio Exterior, según se indica en la presente resolución.
