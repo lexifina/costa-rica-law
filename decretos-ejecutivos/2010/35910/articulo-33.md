@@ -1,1 +1,0 @@
-Artículo 33.—Cuando un abogado omita el cumplimiento de alguna de las cláusulas de este reglamento, por tres veces, durante el plazo de vigencia de su respectivo contrato, la DESAF tendrá la facultad de dar por terminado el contrato de servicios profesionales, sin responsabilidad para el MTSS / DESAF.

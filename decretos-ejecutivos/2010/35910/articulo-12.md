@@ -1,1 +1,0 @@
-Artículo 12.—En caso de oposición del patrono moroso, la Unidad de Cobro Administrativo deberá fundamentar el cobro mediante resolución. Formará parte integral de la respectiva resolución, el estado de cuenta de la correspondiente operación, el cual deberá contener al menos el monto, recargos y meses adeudados por el patrono moroso.

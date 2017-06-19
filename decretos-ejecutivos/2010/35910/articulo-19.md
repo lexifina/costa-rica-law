@@ -1,3 +1,0 @@
-Artículo 19.—Determinación de incobrable. Corresponderá al Departamento de Gestión de Cobro, determinar las operaciones incobrables dentro de la gestión de cobro administrativo y judicial, garantizando que las certificaciones de deuda emitidas para la gestión de cobro judicial no se encuentran en alguno de los supuestos mencionados en el artículo anterior.
-Para ambos casos, cobro administrativo y judicial, el Departamento de Cobro, deberá emitir recomendación motivada, solicitando a la Dirección General, la aprobación de la declaración incobrable.
-Igual situación sucederá cuando se haya incurrido en dichos gastos y el respectivo patrono demuestre encontrarse al día en el pago del tributo ante el proceso de inspección y cobros.

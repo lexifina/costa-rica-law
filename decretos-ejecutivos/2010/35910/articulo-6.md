@@ -1,1 +1,0 @@
-Artículo 6º—De la contratación de notificadores. El Departamento de Gestión de Cobro con el apoyo de la Dirección General, podrá gestionar la contratación de notificadores con el fin de hacer eficiente y eficaz los procesos de localización de los patronos morosos, de acuerdo con los procedimientos y la normativa vigente y aplicable.
