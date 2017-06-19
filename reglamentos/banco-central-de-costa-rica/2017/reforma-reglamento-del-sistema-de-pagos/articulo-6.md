@@ -1,0 +1,1 @@
+VI. Establecer el monto máximo de negociación en MONEX-Continuo, entendido como la suma de compras calzadas más ventas calzadas, en un millón de dólares de los Estados Unidos, por día por intermediario cambiario. La Administración podrá reducir este monto.

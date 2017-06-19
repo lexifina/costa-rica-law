@@ -1,0 +1,1 @@
+VII. Establecer que el monto máximo de negociación en MONEX-Continuo, entrará a regir una semana después de que se habilite para el mercado el mecanismo de MONEX-Subasta, concretamente el miércoles 19 de julio del 2017.
