@@ -1,0 +1,1 @@
+ARTÍCULO 8. Tipificación de conducta. Si la queja tipifica como conducta asociada al acoso laboral determinado en este reglamento, se recomendará a la Alcaldía Municipal aplicar los mecanismos alternos propuestos por la CEAL. En caso de tipificarse como acoso laboral, esta comisión trasladará un Informe Final, con recomendaciones a la Alcaldía Municipal.

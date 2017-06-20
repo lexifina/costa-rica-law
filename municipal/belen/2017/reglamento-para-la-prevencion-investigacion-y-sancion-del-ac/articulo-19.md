@@ -1,0 +1,1 @@
+ARTÍCULO 19. Recursos. Rechazada la recomendación o establecida la sanción por la Alcaldía Municipal, tanto la persona denunciante como la persona denunciada, podrán interponer los recursos que correspondan según la normativa vigente.

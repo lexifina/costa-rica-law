@@ -1,0 +1,1 @@
+ARTÍCULO 18. Rechazo de recomendación. Si la Alcaldía Municipal rechaza la recomendación, deberá expresar por escrito y dejar constancia en el expediente, en un plazo no mayor a tres días hábiles, los motivos por los cuales se opone a aplicar la sanción.

@@ -1,0 +1,1 @@
+ARTÍCULO 3. Cláusula contractual. La Municipalidad de Belén incluirá en sus contratos una cláusula de resolución en caso reiterado de incumplimiento de la normativa sobre acoso laboral a las empresas que le prestan servicios.
