@@ -17,3 +17,4 @@ Reglamento para la autorización y ejecución de operaciones con derivados cambi
 | 2 | 2009-02-13 | Reglamento 772 (2009-02-13) |
 | 3 | 2010-06-25 | Reglamento 862 (2010-06-25) |
 | 4 | 2015-02-09 | Reglamento 1148 (2015-02-09) |
+| 5 | 2017-06-20 | Reglamento 1342 (2017-06-20) |
