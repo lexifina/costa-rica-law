@@ -1,0 +1,1 @@
+Artículo 3°—Mecánica de participación. La mecánica de participación es automática al adquirir al menos una fracción de Lotería Nacional y/o Lotería Popular de los sorteos indicados en el artículo 4) del presente procedimiento.
