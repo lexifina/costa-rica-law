@@ -3,7 +3,8 @@ No podrán circular vehículos:
 a) Que cuenten en su estructura, carrocería, llantas, aros, aditamentos o elementos punzocortantes que constituyan un ángulo vivo o una protuberancia peligrosa.
 b) Que se les haya modificado su odómetro.
 c) Que el volante esté ubicado al lado derecho.
-d) Que en los parabrisas cuenten con polarizados u otros materiales que impidan la visibilidad satisfactoria, salvo que se trate de viseras cuyas medidas serán establecidas mediante reglamento. Esta disposición no aplica para lo dispuesto por el CTP, en relación con la rotulación e información al usuario que deberán portar las unidades de transporte remunerado de personas.
+d) Que los parabrisas cuenten con polarizado tipo espejo o limosina, salvo polarización de fábrica que permita la visibilidad de adentro hacia afuera y viceversa del ciento por ciento (100%), o que se trate de viseras cuyas medidas serán establecidas mediante reglamento. Esta disposición no aplica para lo dispuesto por el Consejo de Transporte Público, en relación con la rotulación e información al usuario que deberán portar las unidades de transporte remunerado de personas.
+(Así reformado el inciso anterior por el artículo 4° de la ley N° 9460 del 20 de junio de 2017)
 e) Con polarizado tipo espejo o limusina en las ventanas laterales. Se exceptúan las ambulancias destinadas al transporte de pacientes y los vehículos de uso policial.
 f) Las bicicletas que no porten encendido un dispositivo proyector de luz blanca o amarilla hacia adelante, desde las seis de la tarde y hasta las seis de la mañana.
 g) De carga cuya capacidad haya sido modificada de forma tal que exceda el peso bruto especificado en la ficha técnica de su casa fabricante. A estos vehículos no se les otorgará el certificado de pesos y dimensiones emitido por el órgano competente del MOPT.
