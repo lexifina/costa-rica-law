@@ -14,3 +14,4 @@ Reglamento para la Integración y Funcionamiento de la Comisión Permanente de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-08-06 | la propia norma |
+| 2 | 2017-06-20 | Reglamento 5472 (2017-06-20) |
