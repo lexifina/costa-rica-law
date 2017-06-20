@@ -1,4 +1,6 @@
+(Derogado)
 BANCO CRÉDITO AGRÍCOLA DE CARTAGO
+(Esta norma fue derogada por el artículo 18 del Reglamento para la venta de bienes adjudicados del Banco Crédito Agrícola de Cartago, por parte de terceros, aprobado mediante sesión N° 9045/17 del 20 de junio del 2017)
 REGLAMENTO DE CORREDURÍA PARA LA VENTA
 DE BIENES ADJUDICADOS AL BANCO CRÉDITO
 AGRÍCOLA DE CARTAGO
