@@ -1,0 +1,1 @@
+Artículo 29. - Deber de confidencialidad: Las consultas, los informes y demás documentación que surjan son de carácter confidencial. La responsabilidad es colectiva y a todos obliga el secreto profesional.

@@ -1,0 +1,1 @@
+Artículo 17. - Supervisar el proceso de codificación de morbilidad, mortalidad y procedimientos médico- qu1rurg1cos, de acuerdo con las clasificaciones internacionales de enfermedades y legislación vigentes aplicables en Costa Rica del Sistema Nacional de Salud.

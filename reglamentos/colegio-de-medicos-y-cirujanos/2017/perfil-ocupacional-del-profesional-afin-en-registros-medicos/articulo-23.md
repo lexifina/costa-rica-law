@@ -1,0 +1,1 @@
+Artículo 23. - Trabaja siempre bajo la supervisión del Director Médico, de la máxima autoridad del Centro de Salud, del Programa de Salud o de otro Profesional Afín en Registros Médicos autorizado por el Colegio de Médicos y Cirujanos de Costa Rica.

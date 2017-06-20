@@ -1,0 +1,2 @@
+Artículo 14. - Auto-aprendizaje e iniciativa personal:
+Inquietud y capacidad de búsqueda de nuevos conocimientos, incrementando su acervo profesional, así como el diseñar estrategias para la recolección de los datos, coordinación para la creación de herramientas de los sistemas de información en salud, así como la programación y aplicación de innovaciones en las capacitaciones brindadas para los equipos de salud propias de la disciplina que representa.

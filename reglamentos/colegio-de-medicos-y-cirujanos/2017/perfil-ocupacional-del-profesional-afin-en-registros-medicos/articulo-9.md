@@ -1,0 +1,3 @@
+Artículo 9. -Docencia:
+Podrá participar como docente en la formación teórica de Técnicos y Profesionales en su misma especialidad o en otras disciplinas, respecto a la parte práctica de dicha formación, deberá mantener en todo momento la confidencialidad de la información.
+Esta docencia le permite participar en los procesos de capacitación del personal, tanto público como privado en temas que requieran los conocimientos técnicos y profesionales en áreas de ciencias de la salud como: registros médicos, estadística, sistemas de información, epidemiología y administración. A través de seminarios, talleres, comisiones de trabajo.

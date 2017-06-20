@@ -1,0 +1,1 @@
+Artículo 24. -Sin perjuicio de la obligación de acatar las instrucciones recibidas por su jefatura, el Profesional gozará de independencia en lo que respecta a la ejecución de los procedimientos propios de su disciplina.

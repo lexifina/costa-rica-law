@@ -1,0 +1,1 @@
+Artículo 11. - Le puede corresponder trasladarse a diferentes lugares del área de atracción del centro de trabajo, por lo cual debe observar las normas de higiene y seguridad necesarias para evitar posibles riesgos y accidentes.

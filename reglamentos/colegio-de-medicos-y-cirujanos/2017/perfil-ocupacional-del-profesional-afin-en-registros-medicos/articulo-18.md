@@ -1,0 +1,1 @@
+Artículo 18. - Atender las solicitudes de información emanada de los órganos judiciales y de los propios usuarios, siguiendo el procedimiento indicado, cuando así lo requiera la autoridad superior del centro de trabajo.
