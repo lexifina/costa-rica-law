@@ -1,0 +1,1 @@
+Artículo 19. -Debe aplicar discreción con relación a la información y los procedimientos propios de su área técnica y que desarrolla dentro de su puesto de trabajo, así como salvaguardar la confidencialidad en el uso de los diferentes sistemas de información que utiliza para el registro de la información que opera, de acuerdo con la normativa vigente.

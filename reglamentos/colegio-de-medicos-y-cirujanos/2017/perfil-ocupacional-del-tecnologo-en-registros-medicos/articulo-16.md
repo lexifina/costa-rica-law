@@ -1,0 +1,2 @@
+Artículo 16. - Formación técnica:
+Capacidad para participar en las organizaciones propias de su formación, estableciendo procedimientos de trabajo necesarios para mejorar los sistemas de información en salud, así como participar en comisiones de trabajo interdisciplinario en el ámbito institucional e interinstitucional, apoyando con su conocimiento en investigaciones, proyectos propios de la disciplina que representa.

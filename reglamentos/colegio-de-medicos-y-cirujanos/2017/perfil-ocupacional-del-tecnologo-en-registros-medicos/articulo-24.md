@@ -1,0 +1,1 @@
+Artículo 24. -Sin perjuicio de la obligación de acatar las instrucciones del superior jerárquico recibidas, el Tecnólogo gozará de independencia en lo que respecta a la ejecución de los procedimientos propios de su Tecnología.

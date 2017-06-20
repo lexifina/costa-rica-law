@@ -1,0 +1,1 @@
+Artículo 5. -Dará asistencia a la Jefatura del Servicio de Registros Médicos para la ejecución de procedimientos técnicos propios de su área. Sus actividades como Tecnólogo, las podrá realizar siempre que se encuentre debidamente capacitado para efectuarlas.

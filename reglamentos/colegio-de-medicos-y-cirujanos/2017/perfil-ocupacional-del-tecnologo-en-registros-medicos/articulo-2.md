@@ -1,0 +1,2 @@
+Artículo 2. -Supervisión del superior jerárquico:
+La labor del Tecnólogo en Registros Médicos estará bajo la supervisión del superior jerárquico el cual según la naturaleza de su función puede ser un coordinador de sección de Registros y Estadísticas de Salud, la jefatura del servicio de Registros y Estadísticas de Salud o el Director Médico. No obstante lo anterior, técnica, operativa y administrativamente la supervisión de sus funciones recae en la Jefatura del Servicio de Registros Médicos y Estadísticas en Salud.

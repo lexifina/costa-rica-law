@@ -1,0 +1,1 @@
+Artículo 10. -Su ámbito ocupacional comprende desde niveles centrales, regionales, así como el nivel local, conformado por establecimientos públicos y privados, universidades, centros de investigación, entre otras instituciones del Sistema Nacional de Salud afines en el ejercicio de esta disciplina.

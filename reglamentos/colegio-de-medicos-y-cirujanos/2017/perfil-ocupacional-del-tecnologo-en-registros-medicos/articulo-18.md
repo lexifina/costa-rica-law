@@ -1,0 +1,1 @@
+Artículo 18. -Atender las solicitudes de información proveniente de usuarios internos y externos sean estos del nivel local, regional, central o judicial, observando el procedimiento que para ello se establezca, cuando así lo requiera la autoridad superior del centro de trabajo.

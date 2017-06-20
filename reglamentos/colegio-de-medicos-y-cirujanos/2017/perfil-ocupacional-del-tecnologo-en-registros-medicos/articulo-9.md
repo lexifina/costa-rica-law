@@ -1,0 +1,5 @@
+Artículo 9. -Docencia:
+a. Podrá participar como docente en la formación teórica de otros Tecnólogos, respecto a la parte práctica de dicha formación, deberá mostrar en todo momento adecuados valores morales y prácticas éticas en el ejercicio de la docencia.
+b. Esta docencia le permite participar en los procesos de capacitación del personal de los diferentes niveles de gestión institucional y sectorial, tanto público como privado en temas relacionados académicamente con los registros y sistemas de información.
+c. Podrá capacitar a diferentes usuarios, sobre implementación y uso de sistemas de información en salud, que requieran los conocimientos técnicos en registros médicos, estadística, sistemas de información en salud, vigilancia epidemiológica y todo lo relacionado con su disciplina ..
+d. Participar en la capacitación de los diferentes profesionales en materia de Registros Médicos y Sistemas de Información en salud, por medio de de seminarios, talleres, comisiones de trabajo. (Relaciones entre profesionales)
