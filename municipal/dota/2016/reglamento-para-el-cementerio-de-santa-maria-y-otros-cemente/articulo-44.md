@@ -1,0 +1,1 @@
+Artículo 44. Las construcciones de bóvedas y nichos sujetas al pago de derechos de construcción cuyo monto será objeto de determinación por parte del Concejo Municipal de acuerdo al valor de la obra. (Monto de construcción, recomendación 12000 colones por m3) o establecer porcentajes o monto fijo por m3, m2 ó diseño)

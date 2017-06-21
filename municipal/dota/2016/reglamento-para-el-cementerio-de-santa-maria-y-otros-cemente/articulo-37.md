@@ -1,0 +1,1 @@
+Artículo 37. Los derechos solo se adjudicarán en orden de ubicación geográfica, según lo disponga el Administrador. Se hará efectiva su ubicación solo en el momento en que el interesado diere inicio a la construcción.

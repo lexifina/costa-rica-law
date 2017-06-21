@@ -1,0 +1,1 @@
+Artículo 27. Corresponde a los arrendatarios de bóvedas y parcelas la conservación de las construcciones y monumentos erigidos en ellas a su costo, de acuerdo a las disposiciones contenidas en el procedimiento respectivo y demás ordenanzas emitidas al efecto.

@@ -1,0 +1,1 @@
+Artículo 9. Si la inhumación se fuera a realizar en una bóveda particular, debería mediar la utilización de la persona o propietario del derecho o alguno de quienes aquella hubiere designado como corresponsable en el contrato de adquisición, según lo estipulado en el artículo 21 del presente reglamento.

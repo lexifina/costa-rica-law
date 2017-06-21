@@ -1,0 +1,1 @@
+Artículo 34. Los traspasos permitidos con el acuerdo mencionado se harán ante el administrador mediante el testimonio de escritura pública o ejecutoria de sentencia judicial. En caso de existencia de restos en el derecho, el documento deberá hacer constar el vínculo familiar respectivo entre los contratantes. En todo traspaso que no se llene este requisito será nulo.

@@ -1,0 +1,1 @@
+Artículo 10. La presentación del comprobante de ingreso cancelado deberá hacerse antes de la inhumación ante el Administrador en los casos en que la misma se realice en nichos municipales o bóvedas particulares, con el fin de determinar el sitio exacto y la ausencia de restos con menos de cinco años inhumados.

@@ -1,0 +1,1 @@
+Artículo 32. Los derechos de arrendamiento sobre parcelas y nichos del cementerio municipal, se darán exclusivamente a personas físicas por un plazo de cinco años, prorrogables por periodos iguales, en cuyo caso se requerirá estar al dia con las obligaciones relacionadas con el servicio de cementerio.

@@ -1,0 +1,1 @@
+Artículo 2. Se declara la demanialidad del terreno donde actualmente se ubica el Cementerio de Santa María, de modo tal que el derecho funerario sobre una sepultura no constituye derecho de propiedad, ya que están construidas sobre lotes o parcelas que son de dominio público y por tanto están por fuera del comercio de las personas.
