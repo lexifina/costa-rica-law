@@ -16,3 +16,4 @@ Reglamento para la Administración Integral de Riesgos de los Fondos Institucion
 | 1 | 2004-06-11 | la propia norma |
 | 2 | 2006-05-18 | Reglamento 8058 (2006-05-18) |
 | 3 | 2014-04-10 | Reglamento 8709 (2014-04-10) |
+| 4 | 2017-06-22 | Reglamento 8912 (2017-06-22) |
