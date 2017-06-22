@@ -1,2 +1,0 @@
-Artículo 10.—Llamadas internacionales: Únicamente tendrán acceso a llamadas internacionales, tanto entrantes como salientes, las líneas celulares asignadas al (la) Ministro (a) y Viceministros (as), siempre que éstas sean realizadas para atender asuntos propios de su cargo.
-Las demás líneas celulares únicamente tendrán derecho a recibir llamadas internacionales entrantes, sin que esto genere un costo para el Ministerio.
