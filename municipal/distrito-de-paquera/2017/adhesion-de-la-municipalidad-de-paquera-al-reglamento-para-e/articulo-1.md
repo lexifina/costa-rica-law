@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE PAQUERA
+El Concejo Municipal del Distrito de Paquera, en sesión ordinaria N° 73-2017, celebrada el 17 de mayo del 2017, artículo 7, inciso A: Acuerda adherirse al Reglamento para pago de gastos de transporte, hospedaje y alimentación de la Municipalidad de Puntarenas, por cumplir con las necesidades de los Concejales del Distrito de Paquera. Publíquese en el Diario Oficial La Gaceta y rige a partir de su publicación.
