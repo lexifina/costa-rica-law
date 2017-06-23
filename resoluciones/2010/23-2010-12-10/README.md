@@ -17,3 +17,4 @@ Comunica emisión de resoluciones de la Dirección General del Servicio Civil:(D
 | 2 | 2015-04-15 | Resolución 6 (2015-04-15) |
 | 3 | 2017-05-26 | Resolución 6 (2017-05-26) |
 | 4 | 2017-06-09 | Resolución 7 (2017-06-09) |
+| 5 | 2017-06-23 | Resolución 8 (2017-06-23) |
