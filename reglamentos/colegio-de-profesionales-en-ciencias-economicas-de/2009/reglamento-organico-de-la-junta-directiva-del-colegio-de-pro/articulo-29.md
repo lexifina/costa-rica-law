@@ -1,1 +1,1 @@
-Artículo 29.—Ninguno de los integrantes de la Junta Directiva será interrumpido sin su aceptación en el uso de la palabra, salvo que infringiere alguna disposición reglamentaria o se separase de la cuestión principal, en cuyo caso será llamado al orden por la Presidencia.
+Artículo 29. Ninguno de los integrantes de la Junta Directiva será interrumpido sin su aceptación en el uso de la palabra, salvo que infringiere alguna disposición reglamentaria o se separase de la cuestión principal, en cuyo caso será llamado al orden por la Presidencia,

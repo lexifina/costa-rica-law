@@ -14,3 +14,4 @@ Reglamento Orgánico de la Junta Directiva del Colegio de Profesionales en Cienc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-28 | la propia norma |
+| 2 | 2017-06-23 | Reglamento 105 (2017-06-23) |

@@ -1,2 +1,2 @@
-Artículo 18.—Las sesiones deberán iniciarse dentro de los quince minutos siguientes a la hora señalada. Pasado ese tiempo, de no haber quórum, se dejará constancia en la grabación y en el acta respectiva, con mención de los directores presentes y de los ausentes.
+Artículo 18. las sesiones deberán iniciarse dentro de los quince minutos siguientes a la hora señalada. Pasado ese tiempo, de no haber quórum, se dejará constancia en la grabación y en el acta respectiva, con mención de los directores presentes y de los ausentes.
 Las intervenciones de los integrantes de la Junta Directiva, mediante las cuales informen, planteen inquietudes o expongan asuntos de interés institucional, tendrán una duración, cada una, de hasta cinco minutos.

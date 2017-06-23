@@ -1,2 +1,2 @@
-Artículo 33.—Los acuerdos de la Junta Directiva se tomarán por simple mayoría de los miembros presentes, y en caso de empate el voto de la Presidencia contará por dos.
-Los integrantes del órgano directivo podrán solicitar que conste en el acta expresamente su voto negativo a un acuerdo, lo mismo que los motivos que justifican su posición, para los efectos de salvar la responsabilidad que en su caso pudiera derivarse de la adopción de tales acuerdos.
+Artículo 33. Los acuerdos de la Junta Directiva se tomarán por simple mayoría de los miembros presentes, y en caso de empate el voto de la Presidencia contará por dos.
+Los integrantes del órgano directivo podrán solicitar que conste en el acta expresamente su voto negativo a un acuerdo, lo mismo que los motivos que justifican su posición, para los efectos de salvar la responsabilidad que en su caso pudiera derivarse de la adopción de tales acuerdos

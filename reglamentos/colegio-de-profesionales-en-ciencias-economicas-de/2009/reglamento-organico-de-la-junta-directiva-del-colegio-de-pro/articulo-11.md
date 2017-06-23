@@ -1,1 +1,1 @@
-Artículo 11.—La Junta Directiva contará con el asesoramiento de la Asesoría Legal o de la Auditoría, según corresponda, así como de cualquier otra instancia de apoyo que determine o considere pertinente, y de los recursos de apoyo administrativo y técnico que requiera.
+Artículo 11. La Junta Directiva contará con el asesoramiento de la Asesoría Legal o de la Auditoría, según corresponda, así como de cualquier otra instancia de apoyo que determine o considere pertinente, y de los recursos de apoyo administrativo y técnico que requiera.

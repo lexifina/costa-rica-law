@@ -1,2 +1,1 @@
-Artículo 45.—La presente normativa deja sin efecto y ningún valor legal cualquier norma, acuerdo o práctica anterior que se le oponga. Rige a partir de su publicación en el Diario Oficial La Gaceta.
-Aprobado por Asamblea General en sesión Nº 079-2009 celebrada el jueves 12 de noviembre de 2009
+Artículo 45. La presente normativa deja sin efecto y ningún valor legal cualquier norma, acuerdo o práctica anterior que se le oponga. Rige a partir de su publicación en el Diario Oficial La Gaceta.

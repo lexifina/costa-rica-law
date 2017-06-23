@@ -1,1 +1,1 @@
-Artículo 16.—Las excusas que formulen los integrantes de la Junta Directiva y las recusaciones en su contra, serán resueltas siempre de previo al conocimiento del asunto o asuntos afectados con estos procedimientos.
+Artículo 16. Las excusas que formulen los integrantes de la Junta Directiva y las recusaciones en su contra, serán resueltas siempre de previo al conocimiento del asunto o asuntos afectados con estos procedimientos.
