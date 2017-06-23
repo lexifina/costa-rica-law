@@ -1,0 +1,1 @@
+Transitorio único. En acatamiento de lo establecido en el artículo del artículo 17 del Reglamento General del Colegio de Profesionales en Ciencias Económicas de Costa Rica, Decreto Ejecutivo 20014-MEIC, en lo sucesivo toda reforma o adición al presente Reglamento deberá ser realizada únicamente por la Junta Directiva del Colegio.

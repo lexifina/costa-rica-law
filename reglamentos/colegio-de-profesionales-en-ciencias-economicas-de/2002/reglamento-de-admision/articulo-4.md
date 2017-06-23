@@ -1,1 +1,1 @@
-Artículo 4º—Para el cumplimiento de sus funciones, la Comisión de Admisión tendrá el apoyo administrativo necesario y podrá dar instrucciones y ordenar los trabajos requeridos a la Administración del Colegio.
+Artículo 4. La Comisión de Admisión será nombrada por el (la) Presidente de la Junta Directiva, conforme el Artículo 36, inciso d) de la Ley Orgánica N' 7105. Sus miembros fungirán por un período de un año pudiendo ser reelectos y cumplirán sus funciones en forma ad honorem. Asumirán sus cargos previa juramentación por la Junta Directiva del Colegio.

@@ -1,1 +1,6 @@
-Artículo 5º—La Comisión de Admisión será la encargada de preparar la información que requiere la Junta Directiva en relación con la incorporación de nuevos miembros, para lo cual recibirá la documentación pertinente, y hará la ivestigación preliminar de cada solicitud.
+Artículo 5. El (la) Coordinador(a) de Comisión tendrá las siguientes atribuciones:
+a. Convocar a sesiones.
+b. Proponer el orden del día (agenda).
+c. Presidir las sesiones.
+d. Coordinar con la Administración del Colegio la ejecución de los acuerdos y trabajos ordenados por la Comisión de Admisión.
+e. Coordinar con la Fiscalía del Colegio los asuntos que por su naturaleza ameriten ser tratados con ella.

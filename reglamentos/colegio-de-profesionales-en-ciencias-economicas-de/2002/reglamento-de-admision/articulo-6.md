@@ -1,1 +1,1 @@
-Artículo 6º—Las resoluciones de la Comisión de Admisión serán tomadas por mayoría simple de votos. En caso de empate el presidente tendrá doble voto.
+Artículo 6. Para el cumplimiento de sus funciones, la Comisión de Admisión tendrá el apoyo administrativo necesario de la Administración del Colegio.

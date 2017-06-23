@@ -1,1 +1,1 @@
-Artículo 17.—Las resoluciones que emita la Comisión no tienen recurso legal alguno, por tratarse de actos preparatorios.
+Artículo 17. En las sesiones de la Comisión de Admisión se estudiarán solamente las solicitudes cuyos expedientes hayan sido remitidos en forma ordenada, y clasificados en una lista, por la Administración del Colegio.

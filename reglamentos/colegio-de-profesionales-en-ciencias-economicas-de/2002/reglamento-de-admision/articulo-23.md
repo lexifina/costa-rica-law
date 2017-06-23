@@ -1,5 +1,2 @@
-Artículo 23.—Para efectos de la aplicación del artículo 13 del Reglamento a la Ley N° 7105, la incorporación de solicitantes con nivel académico de postgrado (especialidad, maestría y doctorado académico) procederá siempre y cuando el postgrado sea genérico en uno de los campos de las Ciencias Económicas señalados en el artículo 17 de la Ley Nº 7105, a saber:
-a) Administración
-b) Economía
-c) Estadística
-d) Seguros y Actuariado
+Artículo 23. Cuando el área de estudios del solicitante no se encuentre claramente descrita en las que detalla el Artículo 11 del Reglamento de la Ley Orgánica del Colegio de Profesionales en Ciencias Económicas de Costa Rica, de modo que exista duda en cuanto a que si se trata de un graduado en dichas áreas, el Colegio comprobará que el solicitante haya recibido un mínimo de setenta por ciento (70%) de créditos universitarios en materias propias de las Ciencias Económicas y correspondan en su conjunto a la columna vertebral de una carrera universitaria autorizada por CONARE o por el CON ESUP. Caso contrario, el Colegio denegará la admisión.
+El total de créditos sobre el que se calculará el porcentaje a que se refiere este artículo se establecerá para cada grado atendiendo a lo dispuesto en el Convenio para crear una Nomenclatura de Grados y Títulos de la Educación Superior, emitido por CONARE y CONESUP.

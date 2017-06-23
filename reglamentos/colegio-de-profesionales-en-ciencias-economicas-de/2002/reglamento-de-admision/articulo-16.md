@@ -1,1 +1,1 @@
-Artículo 16.—La Comisión presentará a la Junta Directiva las resoluciones a que se refiere el Artículo anterior, con carácter recomendativo, indicando en cada caso las razones en que fundamenta la respectiva recomendación.
+Artículo 16. La Administración del Colegio será la responsable de recibir en forma completa los documentos indicados en los anteriores artículos., verificando con vista a los originales su autenticidad.
