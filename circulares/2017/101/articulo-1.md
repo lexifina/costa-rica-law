@@ -1,0 +1,8 @@
+CIRCULAR Nº 101-2017
+ASUNTO: Reiteración de la Circular Nº 97-2015 sobre trámite de licencias sin goce de salario y recuperación de las sumas giradas de más.
+A LAS JEFATURAS Y PERSONAS SERVIDORAS
+DEL PODER JUDICIAL
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión Nº 57-17, celebrada el 13 de junio del 2017, artículo XXII, acordó reiterarles la circular Nº 97-2015, sobre el “trámite de licencias sin goce de salario y recuperación de las sumas giradas de más”, publicada en el Boletín Judicial Nº 152 del 06 de agosto del 2015, que literalmente indica:
+“El Consejo Superior en sesión Nº 42-15, celebrada el 05 de mayo del 2015, artículo XXXV, dispuso comunicar a las jefaturas de los despachos y oficinas judiciales, su obligación de implementar los controles necesarios en relación a las licencias sin goce de salario otorgadas a las personas servidoras judiciales y comunicar que a futuro para la concesión de dichas licencias o prórrogas por el plazo mayor a un mes, deberán aportar una certificación de la Dirección de Gestión Humana que indique que no tienen deuda alguna con el Poder Judicial, caso contrario deberá supeditar el trámite del permiso a la cancelación de la deuda o la demostración de un arreglo de pago. Igualmente, deberán las jefaturas de los despachos y oficinas judiciales informar a los servidores y servidoras judiciales, su obligación de cancelar en favor del Poder Judicial y por los medios establecidos, las sumas concedidas de más de forma indebida, por parte de la Administración, además del deber de comunicar lo pertinente a la Dirección de Gestión Humana, para que el trámite de recuperación se haga en forma inmediata”.
+San José, 23 de junio del 2017.
