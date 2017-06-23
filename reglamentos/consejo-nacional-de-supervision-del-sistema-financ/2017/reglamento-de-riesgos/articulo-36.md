@@ -1,0 +1,12 @@
+Capítulo II. Medidas aplicables en situaciones de irregularidad o inestabilidad financiera
+Artículo 36. Aplicación de las medidas
+En uso de las facultades que le otorga el literal d) del artículo 38 y los artículos 40 al 44 de la Ley 7523, el Superintendente de Pensiones, dependiendo del grado de irregularidad o inestabilidad financiera determinado, dispondrá las siguientes medidas:
+1. Cuando se trate de una irregularidad o inestabilidad financiera de grado 1, informará al órgano de dirección de la entidad regulada, las irregularidades encontradas y le solicitará la presentación de las medidas correctivas en un plazo prudencial.
+2. En el caso de irregularidad o inestabilidad financiera grado dos, el Superintendente de Pensiones convocará a una comparecencia al órgano de dirección, al gerente o administrador y al auditor interno de la entidad regulada para comunicarles las irregularidades detectadas y solicitará la presentación de un plan de saneamiento en un plazo prudencial. En el caso de inasistencia injustificada de los personeros de la entidad, la superintendencia dejará constancia y realizará la comparecencia. Este plan de saneamiento debe ser aprobado por el órgano de dirección. Asimismo, debe ser presentado al Superintendente para su aprobación, quien deberá valorar, entre otros, el plazo propuesto por la entidad en función de la gravedad de la situación determinada, el efecto en el patrimonio de los afiliados y pensionados y de la complejidad y naturaleza de
+las actividades involucradas para subsanar las irregularidades detectadas.
+3. Para el grado de irregularidad o inestabilidad financiera de grado tres se procederá con:
+i. La intervención de la entidad regulada o
+ii. La sustitución de sus administradores.
+La intervención será solicitada por el Superintendente de Pensiones y será decretada por el Consejo Nacional de Supervisión del Sistema Financiero, de acuerdo con lo estipulado en el inciso z) del artículo 38 de la Ley 7523, Régimen Privado de Pensiones Complementarias y el inciso c) del artículo 171 de la Ley 7732, Ley Reguladora del Mercado de Valores.
+En caso de que proceda la sustitución de los administradores de la entidad regulada, ésta deberá realizarse dentro del plazo establecido por el Superintendente, según el inciso d) del artículo 38 de la Ley 7523, Régimen Privado de Pensiones Complementarias.
+La aplicación de estas medidas procederá siempre y cuando contribuya a reducir los riesgos de los fondos administrados a raíz de las situaciones detectadas.

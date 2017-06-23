@@ -1,0 +1,3 @@
+TRANSITORIO I
+En caso de que, a la entrada en vigencia del presente Reglamento, el órgano de dirección no cuente con directores independientes, se deberá nombrar en el Comité de Riesgos un miembro externo a la entidad regulada, al grupo o conglomerado financiero o al grupo de interés económico, el cual no podrá integrar otros comités de la entidad regulada. En este caso, el miembro externo debe presidir el Comité.
+Una vez que en el órgano de dirección se nombre uno o más directores independientes, la conformación del Comité de Riesgo se deberá realizar según lo establecido en el artículo 14 de este reglamento.

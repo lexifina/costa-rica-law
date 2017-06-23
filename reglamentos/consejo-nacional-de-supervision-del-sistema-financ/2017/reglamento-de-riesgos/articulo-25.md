@@ -1,0 +1,3 @@
+Artículo 25. Riesgo Residual
+Para cada actividad significativa, la evaluación del riesgo residual es el resultado de un análisis que considera las evaluaciones de los principales riesgos inherentes, y la mitigación de la gestión operativa y de las funciones de control y supervisión relevantes para cada una de ellas.
+Las entidades reguladas deberán tener controles y supervisión adecuados para los principales riesgos inherentes, de manera que el riesgo residual se ubique en los niveles mínimos posibles. Cuando los niveles del riesgo residual son inadecuados, la situación debe corregirse mejorando la gestión operativa y las funciones de control y supervisión o reduciendo el riesgo inherente.

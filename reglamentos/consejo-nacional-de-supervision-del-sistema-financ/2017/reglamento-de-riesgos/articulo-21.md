@@ -1,0 +1,2 @@
+Artículo 21. Determinación del riesgo inherente
+El riesgo inherente es intrínseco a cada actividad significativa y se evalúa sin tener en consideración la importancia relativa de la actividad significativa en relación con el tamaño del fondo o de la entidad y antes de evaluar la calidad de la administración de los riesgos que ésta realiza. Para identificar y evaluar el riesgo inherente, es esencial tener un conocimiento profundo de la naturaleza de las actividades que desarrolla la entidad regulada, así como del entorno en el que ésta opera.

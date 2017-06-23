@@ -1,0 +1,2 @@
+Artículo 27. Evaluación del desempeño
+En los regímenes de beneficio definido, la evaluación del desempeño constituye una estimación de la viabilidad del régimen, para lo cual se realiza una valuación actuarial con población cerrada y bajo los supuestos de que el régimen continúa en operación y que los requerimientos de fondeo son alcanzados. Esta evaluación toma en cuenta aspectos tales como indicadores de solvencia, tendencias de largo plazo y desempeño de las inversiones.

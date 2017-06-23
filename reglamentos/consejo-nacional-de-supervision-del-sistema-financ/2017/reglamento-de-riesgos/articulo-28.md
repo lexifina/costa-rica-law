@@ -1,0 +1,3 @@
+Artículo 28. Evaluación de fondeo
+La evaluación de fondeo, en los regímenes de beneficio definido, está orientada a establecer la capacidad del régimen para acceder al financiamiento necesario en el futuro, incluso si ello implica un incremento en el nivel de cotización vigente. Este análisis prospectivo pretende evaluar cuán viable es para el régimen satisfacer los requerimientos mínimos de fondeo en el corto y el largo plazo.
+En la aplicación de este artículo, así como de los artículos 26 y 27, se deberá observar además lo establecido en el reglamento sobre la materia actuarial, emitido por el CONASSIF.

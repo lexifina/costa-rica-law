@@ -1,0 +1,4 @@
+Artículo 22. Calidad de la Gestión de Riesgos
+Uno de los objetivos principales de la supervisión basada en riesgos es evaluar la efectividad y calidad de la gestión de riesgos.
+Dependiendo de la naturaleza, tamaño y complejidad de la entidad regulada y los fondos que administra, la definición de las responsabilidades para la administración de riesgos puede variar. La SUPEN evalúa la calidad de la gestión de riesgos a cargo de la entidad regulada en lo relativo a la gestión operativa y a las funciones de control y supervisión.
+La evaluación de la gestión operativa y de las funciones de control y supervisión, es el resultado de un análisis que compara las expectativas que sobre estas se formaron durante el proceso del análisis de los riesgos inherentes con la gestión que efectivamente llevaron a cabo.
