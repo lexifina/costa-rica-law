@@ -1,0 +1,1 @@
+Artículo 35.- Subsanación de ofertas. La prevención girada a un oferente para que subsane la oferta será girada ya sea por la UT, la UJI o la USP, según corresponda. En caso de duda se deberá coordinar con la USP de previo a girar la prevención de subsanación.

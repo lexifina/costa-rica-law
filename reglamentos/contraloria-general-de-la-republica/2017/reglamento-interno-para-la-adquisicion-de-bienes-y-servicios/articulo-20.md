@@ -1,0 +1,1 @@
+Artículo 20.- Ajustes al Programa de Adquisiciones. En los casos en los que producto de ajustes en la planificación de las US surja la necesidad de adquirir un bien o servicio no previsto en el Programa de Adquisiciones, la UT deberá comunicarlo a la USP con el objeto de que se valore si el ajuste requerido podrá incorporarse al Programa de Adquisiciones del año en ejercicio.

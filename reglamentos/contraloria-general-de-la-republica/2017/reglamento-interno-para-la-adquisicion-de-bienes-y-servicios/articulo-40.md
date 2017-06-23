@@ -1,0 +1,2 @@
+Artículo 40. – Declaración de procedimiento infructuoso. Cuando no se reciban ofertas en cualesquiera de los procedimientos de contratación, la jefatura de la USP declarará infructuoso el concurso, ya sea de todo o en parte, si estuviere dividido en líneas.
+Solo en el caso de que se reciban ofertas y éstas sean declaradas inelegibles, la recomendación de la Comisión de Recomendación de Adjudicaciones será necesaria y únicamente en aquellos procedimientos en los que deba intervenir.

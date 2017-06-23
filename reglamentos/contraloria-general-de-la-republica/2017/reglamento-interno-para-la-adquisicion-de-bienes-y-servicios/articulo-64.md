@@ -1,0 +1,1 @@
+Artículo 64.- Derogación. Se deroga el Reglamento Interno de Contratación Administrativa de la Contraloría General de la República, promulgado mediante resoluciónR-DC-169-2010 de las quince horas del veintiocho de setiembre del dos mil diez y su reforma.

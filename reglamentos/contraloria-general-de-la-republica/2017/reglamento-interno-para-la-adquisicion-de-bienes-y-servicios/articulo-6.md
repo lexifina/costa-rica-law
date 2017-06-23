@@ -1,0 +1,2 @@
+Artículo 6.- De la Unidad Solicitante. Corresponde a la US identificar posibles soluciones a sus necesidades, para lo cual se hará asesorar por las distintas UT o la USP a efectos de que sean valoradas en la elaboración del Programa de Adquisiciones institucional.
+La US actuará como UT cuando no exista en la institución una unidad encargada para direccionar técnicamente las diferentes fases del proceso de adquisición de un bien o servicio determinado, con excepción de las actividades indicadas en los incisos a y g del artículo siguiente.

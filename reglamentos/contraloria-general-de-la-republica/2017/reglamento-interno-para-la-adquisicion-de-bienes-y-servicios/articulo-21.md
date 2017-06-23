@@ -1,0 +1,2 @@
+Artículo 21.- Programación de las actividades. La USP deberá elaborar un cronograma de actividades para cada una de las compras que se incluyan en el Programa de Adquisiciones, de manera tal que se ajusten a la naturaleza del bien o servicio a contratar y se procure la obtención del bien de manera oportuna. Dichos cronogramas serán ajustados por la USP una vez recibida la solicitud de inicio del procedimiento.
+Para las contrataciones directas no previstas en el Programa de Adquisiciones se elaborará el cronograma respectivo una vez recibida la solicitud de inicio en la USP.

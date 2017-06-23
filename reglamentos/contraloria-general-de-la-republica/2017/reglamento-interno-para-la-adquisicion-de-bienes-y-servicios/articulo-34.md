@@ -1,0 +1,1 @@
+Artículo 34.- Prórrogas al plazo de recepción de ofertas. La USP adoptará la prórroga al plazo de recepción de ofertas, previa recomendación de la UT, la cual deberá emitir la debida justificación, debiendo respetarse lo señalado en el artículo 60 del RLCA.

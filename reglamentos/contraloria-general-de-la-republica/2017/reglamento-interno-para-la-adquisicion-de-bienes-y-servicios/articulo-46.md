@@ -1,0 +1,1 @@
+Artículo 46. Del Registro de Proveedores. En caso de que la CGR opte por la utilización de un sistema público de contratación electrónica que contenga su propio registro de proveedores, la CGR usará ese registro. Caso contrario, la USP deberá dictar los lineamientos para el funcionamiento de un registro de proveedores propio.

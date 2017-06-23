@@ -1,0 +1,2 @@
+Artículo 24.- Plazos para gestionar el inicio de los procedimientos. Anualmente, le corresponderá a la USP comunicar durante el primer trimestre del año las fechas máximas para la emisión de la orden de inicio correspondiente a los procedimientos de adquisición de bienes y servicios no previstos dentro del Programa de Adquisiciones.
+En caso de que el requerimiento de inicio se presente en fecha posterior a la definida en dicha comunicación, la UT deberá contar con el visto bueno de la Gerencia de la DGA para que la USP pueda dar inicio a la contratación.

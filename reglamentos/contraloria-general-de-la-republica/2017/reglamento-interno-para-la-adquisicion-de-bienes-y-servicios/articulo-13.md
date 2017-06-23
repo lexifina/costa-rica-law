@@ -1,0 +1,1 @@
+Artículo 13.- Convocatoria a sesiones. La Comisión podrá reunirse en cualquier momento. Entre el llamado a sesionar que gestione la USP y la sesión del órgano debe existir una antelación mínima de dos días hábiles.

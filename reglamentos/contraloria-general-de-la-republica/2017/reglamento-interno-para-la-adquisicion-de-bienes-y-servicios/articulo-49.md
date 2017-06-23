@@ -1,0 +1,2 @@
+Artículo 49.- Modificación del contrato y/o contrato adicional. La UT deberá remitir a la USP las solicitudes para modificar un contrato o tramitar un contrato adicional, con indicación de los criterios por medio de los cuales se determinó que se cumplen los requisitos para la ejecución del trámite correspondiente.
+Cuando se trate de un contrato adicional, la solicitud deberá ser planteada ante la USP con al menos dos meses de anticipación al vencimiento de los seis meses posteriores a la recepción provisional del objeto contractual.

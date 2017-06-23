@@ -1,0 +1,1 @@
+Artículo 39.- Ampliaciones o aclaraciones sobre los criterios. La UJI o la UT deberán brindar colaboración oportuna en la atención de las solicitudes de ampliación o aclaración requeridas por la USP o la Comisión de Recomendación de Adjudicaciones. Estas solicitudes deberán ser atendidas con al menos dos días de anticipación a la fecha máxima para la emisión del acto final.

@@ -1,0 +1,2 @@
+Artículo 27.- Invitación a participar de las audiencias. La invitación a participar en la audiencia precartelaria deberá ser publicada por la USP con al menos cinco días hábiles de anticipación a su realización. La invitación deberá indicar la descripción del objeto de la contratación, el objetivo de la audiencia, fecha, hora y lugar de celebración, y el medio para confirmar la participación.
+Adicionalmente, en la invitación se podrá señalar la existencia de un borrador de cartel al que los interesados podrán acceder.

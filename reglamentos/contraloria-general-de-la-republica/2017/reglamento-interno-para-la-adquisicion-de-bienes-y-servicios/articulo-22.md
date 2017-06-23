@@ -1,0 +1,1 @@
+Artículo 22.- Seguimiento del Programa de Adquisiciones. Corresponderá a la USP presentar trimestralmente a la Gerencia de la DGA una evaluación del Programa de Adquisiciones, documentando su porcentaje de cumplimiento, las modificaciones efectuadas y los aspectos de mejora. En caso de atrasos indicará en qué se originan, para que sea valorado conjuntamente con la Gerencia.

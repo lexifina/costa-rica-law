@@ -1,0 +1,1 @@
+Artículo 51.- Rescisión y resolución contractual. Las solicitudes de rescisión y resolución contractual, debidamente motivadas, que remita la UT a la USP, deberán cumplir con los requisitos que establecen los artículos 11 de la LCA y 212, 214, 215 y 216 del RLCA.

@@ -1,0 +1,2 @@
+Artículo 57.- Rechazo. El funcionario encargado de la recepción deberá rechazar el objeto contractual cuando se detecte un incumplimiento grave y evidente durante la entrega de dicho objeto.
+En estos casos el funcionario encargado de la recepción deberá dejar evidencia de sus hallazgos y comunicarlos a la USP para que, previa consulta a la UT sobre la posibilidad de brindar un plazo adicional, gestione ante el contratista la corrección necesaria.
