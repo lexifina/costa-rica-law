@@ -1,0 +1,1 @@
+Artículo 2º.- Se faculta a la Administración Pública Central y a las otras instituciones y empresas del Estado para que, dentro de sus competencias y en estricto apego al ordenamiento jurídico, brinden la cooperación y las facilidades necesarias requeridas para la realización de la actividad descrita en el artículo anterior.
