@@ -1,1 +1,0 @@
-Artículo 7º—El departamento de Administración y Planificación a partir de la información suministrada por la Oficina de Informática elaborará y remitirá un informe general del proceso de depuración de la base de datos en forma trimestral al Alcalde, y a las direcciones respectivas con copia a la Auditoría Interna.
