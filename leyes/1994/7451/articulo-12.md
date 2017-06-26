@@ -1,6 +1,4 @@
-ARTICULO 12.- Condiciones para los experimentos.
-Los experimentos con animales deberán registrarse en el Ministerio de
-Ciencia y Tecnología, salvo los casos estipulados en la Ley de
-conservación de vida silvestre Nº 7317, del 30 de octubre de 1992.
-Ese Ministerio vigilará porque tales investigaciones se realicen de
-acuerdo con los criterios establecidos en esta Ley.
+Artículo 12.-Condiciones para los experimentos. Los experimentos con animales deberán registrarse en el Ministerio de Ciencia, Tecnología y Telecomunicaciones, salvo los casos estipulados en la Ley N.° 7317, Ley de Conservación de la Vida Silvestre, de 30 de octubre de 1992. También, deberán ajustarse a lo establecido por el Servicio Nacional de Salud Animal (Senasa), en sus protocolos de buenas prácticas de salud animal en experimentos.
+Ese Ministerio vigilará por que tales investigaciones se realicen de acuerdo con los criterios establecidos en esta ley.
+Una vez realizado el registro del experimento respectivo, ante el Ministerio de Ciencia, Tecnología y Telecomunicaciones, se deberá notificar al Servicio Nacional de Salud Animal para lo que corresponda, de acuerdo con sus competencias contenidas en la Ley N.° 8495, Ley General del Servicio Nacional de Salud Animal, de 6 de abril de 2006.
+(Así reformado por el artículo 1° de la ley N° 9458 del 11 de junio de 2017)
