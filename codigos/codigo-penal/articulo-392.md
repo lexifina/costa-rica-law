@@ -6,7 +6,7 @@ Artículo 392.- Se impondrá de cinco a treinta días multa:
 Embriaguez
 1) A quien se presentare embriagado en un lugar público y causare escándalo, perturbare la tranquilidad de las personas o pusiere en peligro la seguridad propia o ajena. Si reincidiere, la pena será de diez a cincuenta días multa.
 Maltrato de animales
-2) A quien maltratare animales, los molestare o causare su muerte sin necesidad, o los sometiere a trabajos manifiestamente excesivos.
+2) (Derogado por el artículo 4° de la ley N° 9458 del 11 de junio de 2017)
 Palabras o actos obscenos
 3) A quien, en sitio público o lugar privado expuesto a las miradas de los demás, profiriere palabras obscenas o ejecutare actos, gestos, actitudes o exhibiciones indecorosas o deshonestas.
 Proposiciones irrespetuosas

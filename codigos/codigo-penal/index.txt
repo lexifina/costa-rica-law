@@ -309,6 +309,10 @@ articulo-277.md
 articulo-278.md
 articulo-279.md
 articulo-279-bis.md
+articulo-279-ter.md
+articulo-279-quater.md
+articulo-279-quinquies.md
+articulo-279-sexies.md
 articulo-280.md
 articulo-281.md
 articulo-281-bis.md
@@ -445,6 +449,8 @@ articulo-402.md
 articulo-403.md
 articulo-404.md
 articulo-405.md
+articulo-405-bis.md
+articulo-405-ter.md
 articulo-406.md
 articulo-407.md
 articulo-408.md

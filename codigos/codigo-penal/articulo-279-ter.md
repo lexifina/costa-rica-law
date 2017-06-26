@@ -1,0 +1,5 @@
+Artículo 279 ter.-Muerte del animal. Se sancionará con pena de prisión de tres meses a dos años, a quien dolosamente, de forma directa o por interpósita persona, cause la muerte de un animal doméstico o domesticado; la misma pena se aplicará cuando la muerte de este sea consecuencia de las conductas descritas en los artículos 279 bis y 279 quinquies de esta ley.
+Por animal doméstico se entenderá todo aquel que por sus características evolutivas y de comportamiento conviva con el ser humano. Por animal domesticado se entenderá todo aquel que mediante el esfuerzo del ser humano ha cambiado su condición salvaje.
+Las organizaciones debidamente inscritas en el Registro Judicial podrán representar los intereses difusos de los animales afectados por las conductas descritas en esta norma.
+Se tendrá por exceptuado de la aplicación de la pena prevista en este artículo, cuando se le cause la muerte al animal exclusivamente para el autoconsumo personal o familiar.
+(Así adicionado por el artículo 2° de la ley N° 9458 del 11 de junio de 2017)
