@@ -14,3 +14,4 @@ Manual de Procedimientos para la Revisión Técnica de Vehículos Automotores en
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-06-01 | la propia norma |
+| 2 | 2017-06-26 | Reglamento 2885 (2017-06-26) |
