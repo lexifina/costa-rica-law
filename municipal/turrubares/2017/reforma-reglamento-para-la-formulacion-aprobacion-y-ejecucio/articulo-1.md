@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE TURRUBARES
+El Concejo Municipal de Turrubares acuerda en sesión ordinaria número 26-2017 del 7 de junio del 2017 aprobar enmienda al Reglamento para la Formulación, Aprobación y Ejecución Presupuestarias, para que en adelante el artículo 4 en vez de 20 salarios base, se lea 25 salarios base; y en el artículo 5, se enmienda el número de modificaciones presupuestarias en vez de 10 para que se lea 16 durante el mismo ejercicio económico anual. Se autoriza a la administración para su aplicación inmediata y entrada en vigencia después de su publicación; se dispensa del trámite de consulta.
+Turrubares, 7 de junio del 2017
