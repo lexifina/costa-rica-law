@@ -14,3 +14,4 @@ Reglamento para la Administración y Uso del Centro Recreativo Municipal del Can
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-29 | la propia norma |
+| 2 | 2017-06-27 | Reglamento municipal 61 (2017-06-27) |
