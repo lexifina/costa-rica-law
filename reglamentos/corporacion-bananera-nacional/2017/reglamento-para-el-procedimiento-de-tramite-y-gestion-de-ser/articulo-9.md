@@ -1,0 +1,4 @@
+Artículo 9. - Trámite de cobro de servicios de laboratorio.
+El trámite, gestión de cobro y custodia de las facturas, será coordinado y realizado por el asistente de cobros de la Sección de Ingresos y Egresos de oficinas centrales de CORBANA, S.A.
+A) El asistente de cobros de la Sección de Ingresos y Egresos, deberá coordinar el trámite de la factura con el tercero, con el propósito de garantizar la notificación oficial del cobro y con el recibido conforme, mantener en custodia la factura hasta su posterior cancelación.
+B) La persona que reciba la factura, deberá ser el comprador del servicio o en su defecto, su mandatario o encargado, en cuyo caso se deberá contar con la debida autorización, a efecto de probar en un eventual proceso de cobro, la legitimación del receptor de la factura. Por lo anterior, deberá indicar en la factura su nombre, apellidos, firma, cédula y fecha de recibido.

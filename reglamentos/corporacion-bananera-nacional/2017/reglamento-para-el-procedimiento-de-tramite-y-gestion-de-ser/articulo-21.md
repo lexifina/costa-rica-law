@@ -1,0 +1,3 @@
+CAPÍTULO VIII COBRO EN ACCIDENTES DE TRÁNSITO.
+Artículo 21. - Origen.
+El hecho generador de cobro, se originará al darse un accidente de tránsito, en el cual se involucre un trabajador de CORBANA, S.A. o un tercero debidamente autorizado por esta, quien conduzca un vehículo que sea propiedad de CORBANA, S.A. o subsidiarias o el mismo esté arrendado por éstas, y que en su uso y custodia al darse el accidente de tránsito, se utilicen las pólizas de seguros de CORBANA, S.A. o subsidiarias, en cuyo caso se podrían cobrar los deducibles de la póliza, o que en su defecto, la utilización de la póliza no sea necesaria por lo que el cobro respectivo del accidente se podría realizar de forma directa.

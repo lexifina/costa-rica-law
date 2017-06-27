@@ -1,0 +1,3 @@
+CAPITULO VII COBRO A TRABAJADORES INCLUIDOS EN PLANILLAS DE CORBANA, S.A.
+Artículo 17. - Alcance.
+En este capítulo se establece el procedimiento a seguir para el cobro a trabajadores de CORBANA, S.A., incluidos en las planillas controladas por la Sección de Personal de CORBANA, S.A. Se exceptúan de lo establecido en este capítulo, los cobros fijos regulados previamente por contrato, como por ejemplo, el cobro de los excedentes en las tarifas por servicios de electricidad y telefónicos o por contratos de becas; los cuales tienen sus propias regulaciones. También se exceptúan, los cobros a trabajadores por concepto de accidentes de tránsito con vehículos de CORBANA, S.A. o subsidiarias o vehículos arrendados por éstas, los cuales son tratados en el capítulo VIII.

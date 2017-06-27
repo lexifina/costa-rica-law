@@ -1,0 +1,5 @@
+Artículo 5. - Solicitud de información de la base de datos.
+Para solicitar información de la base de datos de clientes se deberá seguir el siguiente procedimiento:
+A) Solicitud de información específica a un servicio o una condición propia del cliente: El responsable del servicio es el único que podrá solicitar esta información (de forma escrita o verbal) salvo que el jefe de Crédito, Ingresos y Egresos autorice de manera escrita para que se remita información a otro interesado.
+B) Solicitud de contactos de un cliente: Para la solicitud de información de algún contacto con el fin de efectuar alguna gestión laboral-administrativa se deberá remitir un correo electrónico al asistente de cobros con copia al jefe de Crédito, Ingresos y Egresos para que remita la información que se encuentre disponible en la base de datos.
+C) Información general sobre personas jurídicas: Esta información no tendrá ninguna restricción, para los trabajadores de CORBANA, S.A., en lo relativo a brindar el nombre de la razón social, cédula jurídica, domicilio y representante legal, podrá solicitarse de manera verbal o escrita al asistente de cobros.
