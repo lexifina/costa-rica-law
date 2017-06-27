@@ -1,0 +1,2 @@
+Artículo 5. Solicitud de servicios.
+Una vez que el cliente haya cumplido con el trámite anterior, se debe completar la solicitud de servicios (Formulario N° 2), en la cual se detalla el tipo de servicio solicitado, cantidad de muestras, periodicidad, tipo de muestreo. Este documento debe ser firmado por la persona que solicita el servicio (expresamente autorizada en el formulario de Inscripción de Clientes) y por el profesional de investigaciones o el funcionario que este designe, este será el respaldo del servicio a otorgar.
