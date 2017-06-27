@@ -1,1 +1,0 @@
-Artículo 35.—Los Policías Municipales tendrán derecho a que su defensa, en asuntos judiciales producto del desempeño de su trabajo, les sea proveída por la Municipalidad, mediante servicios profesionales internos.
