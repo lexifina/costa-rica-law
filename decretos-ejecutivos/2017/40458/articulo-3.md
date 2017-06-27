@@ -1,0 +1,1 @@
+Artículo 3°: Las mismas Oficinas de Gestión Institucional de Recursos Humanos, estarán obligadas a realizar la respectiva actualización de datos cada vez que se realice la apertura de algún concurso a través del Aplicativo mencionado en el artículo anterior.

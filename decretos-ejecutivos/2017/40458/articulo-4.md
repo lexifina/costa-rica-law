@@ -1,0 +1,1 @@
+Artículo 4°: La Dirección de Gestión de Recursos Humanos de la Dirección General de Servicio Civil, será responsable de asegurar por parte de las OGEREH el cumplimiento de la obligación de divulgar los concursos establecidos en el artículo 1o de este Decreto, así como también promocionar a los funcionarios públicos de la existencia de dicho aplicativo.

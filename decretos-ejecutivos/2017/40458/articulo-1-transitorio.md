@@ -1,0 +1,1 @@
+Transitorio Único: Se establece un plazo máximo de 6 meses a partir de la publicación del presente decreto para transparentar a través del aplicativo supracitado los concursos internos y externos abiertos.

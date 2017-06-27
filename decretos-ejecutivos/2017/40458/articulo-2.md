@@ -1,0 +1,1 @@
+Artículo 2°: Las Oficinas de Gestión Institucional de Recursos Humanos, deberán publicar los concursos a través del “Aplicativo automatizado para la publicación de Concursos” que se encuentra en la página de la Dirección General del Servicio Civil.
