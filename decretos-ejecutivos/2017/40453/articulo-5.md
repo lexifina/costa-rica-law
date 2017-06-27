@@ -1,0 +1,1 @@
+Artículo 5. Operación de los pozos estratégicos para uso agropecuario. En el caso del uso agropecuario, los pozos serán administrados por el Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento (SENARA) en coordinación con el Ministerio de Agricultura y Ganadería y la Dirección de Agua del MINAE.

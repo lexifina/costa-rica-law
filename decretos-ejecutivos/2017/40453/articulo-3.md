@@ -1,0 +1,3 @@
+Capítulo II
+De la perforación de pozos
+Artículo 3. Evaluación de permisos de perforación. La evaluación técnica y legal de solicitudes de perforación, deberán realizarse al amparo de las condiciones de déficit hídrico, basada en principios de sostenibilidad, bienestar social, económico y racionalidad. La resolución deberá ser motivada y justificada respecto a la disponibilidad hídrica y la necesidad real del solicitante, considerando los efectos acumulados sobre todo el acuífero evaluado versus el acceso al agua del solicitante. Todo lo anterior, bajo el amparo del Decreto Ejecutivo N°35884-MINAE.

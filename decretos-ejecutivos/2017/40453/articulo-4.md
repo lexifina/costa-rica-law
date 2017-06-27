@@ -1,0 +1,5 @@
+Artículo 4. Pozos estratégicos. En aquellos acuíferos que presenten condiciones especiales
+de vulnerabilidad se podrán perforar pozos estratégicos. Se considerarán pozos estratégicos aquellos que cumplan todos los siguientes preceptos: comprobada necesidad, su ubicación sea estratégica respecto a la situación del acuífero a aprovechar y las necesidades a atender, el uso sea en beneficio colectivo para el abastecimiento poblacional y el desarrollo productivo, especialmente, el agropecuario o turístico de la zona y la perforación sea realizada o contratada por la Administración Pública, sea el AyA, ASADAS, las Municipalidades, Comisión Nacional de Emergencia o el Instituto Costarricense de Turismo.
+En caso del uso agropecuario, ésta podrá ser solicitada por el Ministerio de Agricultura y Ganadería.
+Para estos efectos podrán realizarse iniciativas de cooperación público-privadas, garantizando que la infraestructura y el caudal sean traspasados a los entes de Gobierno que lo operan.
+Todo lo anterior, bajo el amparo del Decreto Ejecutivo N° 35884-MINAE.
