@@ -14,3 +14,4 @@ Reglamento Interno para el Pago de Viáticos, Alimentación y Transportes para R
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-03-27 | la propia norma |
+| 2 | 2017-06-27 | Reglamento municipal 0 (2017-06-27) |
