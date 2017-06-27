@@ -15,3 +15,4 @@ Reglamento del Fondo de Caja Chica
 | --- | --- | --- |
 | 1 | 2010-08-23 | la propia norma |
 | 2 | 2010-10-05 | Reglamento municipal 0 (2010-10-05) |
+| 3 | 2017-06-27 | Reglamento municipal 84 (2017-06-27) |
