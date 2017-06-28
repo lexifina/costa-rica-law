@@ -1,0 +1,1 @@
+Artículo 28.—La Junta realizará mejoras, ampliaciones de los cementerios a su cargo por medio de donaciones; recursos que genere las ventas de bóvedas y aportes de la Municipalidad Gobierno Central, Instituciones Públicas y Privadas.

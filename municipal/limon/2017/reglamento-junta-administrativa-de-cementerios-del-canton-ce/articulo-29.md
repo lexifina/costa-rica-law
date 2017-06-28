@@ -1,0 +1,1 @@
+Artículo 29.—La Junta acepta todos los lineamientos del Reglamento General de Cementerios decretada el 06 de marzo de 1993 y las reformas del 08 de octubre de 1997 emanadas por el Ministerio de Salud.

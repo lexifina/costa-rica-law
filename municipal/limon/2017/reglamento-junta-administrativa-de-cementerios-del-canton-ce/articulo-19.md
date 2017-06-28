@@ -1,0 +1,1 @@
+Artículo 19.—La junta podrá comunicar a los propietarios en forma radial y por escrito su obligación de mantener en buenas condiciones sus bóvedas y previniéndolos que si en un plazo de cinco años continuaran en mal estado y abandono la Junta las tomara realizara las reparaciones del caso procediendo al uso de las mismas.

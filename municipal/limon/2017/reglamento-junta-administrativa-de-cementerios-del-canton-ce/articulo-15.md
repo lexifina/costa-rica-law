@@ -1,0 +1,1 @@
+Artículo 15.—Cuando el poseedor de un derecho de arrendamiento o de perpetuidad fallecen sin dejar beneficiarios la Junta adjudicara el derecho a quien o quienes resulten herederos previa comprobación de documento emanado por un Juez de la República competente o en su efecto por un notario.

@@ -1,0 +1,1 @@
+Artículo 7º—Dejará de pertenecer a la Junta el que se ausentare a tres sesiones ordinarias consecutivas o cinco alternes, si en ese plazo no justifica sus ausencias a la Junta Directiva comunica al Concejo Municipal lo acontecido para que este proceda a la reposición.

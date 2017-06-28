@@ -1,0 +1,1 @@
+Artículo 24.—Ningún arrendatario podrá usar, vender, donar, traspasar, si mantienen deudas pendientes con la Junta Administrativa y la Municipalidad del cantón Central de Limón salvo si garantiza a entera satisfacción de esta lo adeudado.
