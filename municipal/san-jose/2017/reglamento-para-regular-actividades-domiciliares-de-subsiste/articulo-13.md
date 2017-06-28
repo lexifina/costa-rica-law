@@ -1,2 +1,0 @@
-Artículo 13.- De la renovación. La solicitud de renovación de una autorización se debe presentar veinte días hábiles previos a su vencimiento.
-La persona beneficiaria deberá retirar y presentar en el Departamento de Servicios Sociales y Económicos el formulario de solicitud de renovación, sujeto ello a las valoraciones y recomendaciones correspondientes de las áreas técnicas, así como sujeta al cumplimiento de los requisitos que dieron motivo a la autorización inicial.
