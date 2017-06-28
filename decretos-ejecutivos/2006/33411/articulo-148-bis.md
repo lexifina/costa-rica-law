@@ -4,6 +4,7 @@ b) Los elementos de los pliegos cartelarios que la Administración contratante c
 c) Inmediatamente finalizado el acto de apertura, un detalle de las ofertas recibidas que deberá contemplar al menos el nombre del oferente, su número de identificación y el precio ofertado cuando éste se conozca.
 d) El nombre del adjudicatario o de los adjudicatarios según se trate, así como un resumen de los criterios que justificaron su escogencia.
 e) Los términos más importantes del contrato, incluyendo al menos: la mención de los bienes y/o servicios contratados, precio adjudicado cuando corresponda y vigencia de la contratación.
-j) Cualquier información que determine vía directriz la Dirección General de Administración de Bienes y Contratación Administrativa.
+j) Cualquier información que determine vía directriz el Poder Ejecutivo, y que le haya propuesto la Dirección General de Administración de Bienes y Contratación Administrativa.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40538 del 28 de junio del 2017)
 Cuando se realicen contrataciones excluidas de procedimientos de concurso, la institución contratante deberá de registrar el respectivo procedimiento en el Sistema Integrado de Compras Públicas y publicar en su página web, la información mencionada en los incisos anteriores, cuando ésta se haya
 (Así adicionado por el artículo 2° del decreto ejecutivo N° 40270 del 14 de marzo de 2017)

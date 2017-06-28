@@ -1,3 +1,2 @@
-Artículo 131.—Proveedor inactivo. Se tendrá como proveedor inactivo aquél que habiendo sido invitado a participar en procedimientos de contratación administrativa no lo hiciere en tres ocasiones sin mediar justa causa, en el termino de tres años, contados a partir de la primera invitación; asimismo aquel que se negare a actualizar la información del Registro cuando la Administración así lo haya pedido. Dicha condición de inactivo operara en forma automática.
-En cualquier tiempo el proveedor inactivo podrá solicitar el cambio de su condición y en tal caso ocupará en el registro el lugar que por rol corresponda.
+Artículo 131.— (Derogado por el artículo 2° del decreto ejecutivo N° 40538 del 28 de junio del 2017)
 (Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 123 al 131)
