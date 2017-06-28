@@ -1,1 +1,0 @@
-Artículo 25.—La construcción modificaciones o reparaciones, que no se ajusten a lo establecido por el Reglamento General de Cementerios o el presente reglamento, serán demolidos por la Junta sin responsabilidad de su parte.

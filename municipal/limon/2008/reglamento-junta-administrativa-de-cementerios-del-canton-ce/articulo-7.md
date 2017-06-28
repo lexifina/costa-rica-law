@@ -1,1 +1,0 @@
-Artículo 7º—Dejará de pertenecer a la Junta el que falla a tres sesiones ordinarias consecutivas ya cinco alternas, si en ese plazo no justifique sus ausentes la Junta Directiva tomara el acuerdo y comunicará la suspensión del cargo al Concejo Municipal para el nombramiento del sustituto para lo que resta de su periodo.

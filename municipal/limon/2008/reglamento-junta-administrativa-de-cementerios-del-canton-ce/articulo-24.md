@@ -1,1 +1,0 @@
-Artículo 24.—Ningún arrendatario podrá usar, vender, donar, traspasar, si mantiene deudas pendientes con la Junta Administrativa y la Municipalidad de Limón, salvo si garantiza a entera satisfacción de esta lo adeudado.
