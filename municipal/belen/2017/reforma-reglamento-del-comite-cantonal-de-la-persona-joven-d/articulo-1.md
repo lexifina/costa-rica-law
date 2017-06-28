@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE BELÉN
+La suscrita Secretaria del Concejo Municipal de Belén, notifica el acuerdo tomado, en la sesión ordinaria Nº 33-2017, celebrada el seis de junio del dos mil diecisiete y ratificada el trece de junio del dos mil diecisiete, que literalmente dice:
+Artículo 5º—La Secretaria del Concejo Municipal Ana Patricia Murillo, informa que en La Gaceta Nº 92 del miércoles 17 de mayo del 2017, se publicó la modificación del Reglamento de la Persona Joven aprobado en la sesión ordinaria Nº 24-2017, artículo 30, celebrada el veinticinco de abril del dos mil diecisiete y ratificada el dos de mayo del dos mil diecisiete.
+Modificar el Reglamento de la Persona Joven, aprobado el 16 de noviembre del 2006, incluyendo un nuevo artículo que cite: “Artículo 10 bis: El Comité de la Persona Joven, deberá llevar un libro de actas de cada una de las sesiones ordinarias y extraordinarias, el mismo deberá ser presentado a la Auditoria Interna para la apertura y cierre correspondiente del libro”.
+Se acuerda por unanimidad: No habiendo conocido objeciones a la modificación del Reglamento de la Persona Joven aprobado en la sesión ordinaria Nº 24-2017, artículo 30, celebrada el veinticinco de abril del dos mil diecisiete, queda el mismo definitivamente aprobado y entra en vigencia a partir de la presente publicación.
+San Antonio de Belén, Heredia, 14 de junio del 2017
