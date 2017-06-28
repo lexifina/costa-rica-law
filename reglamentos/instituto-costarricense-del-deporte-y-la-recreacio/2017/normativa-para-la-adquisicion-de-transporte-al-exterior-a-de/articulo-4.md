@@ -1,0 +1,1 @@
+Artículo Nº 4: De los plazos y del trámite para resolver. El Consejo Nacional del Deporte y la Recreación dispondrá de cinco días hábiles después de recibidas las solicitudes y comunicará a los interesados la resolución final. En caso afirmativo, se iniciará el procedimiento de compra de los tiquetes conforme a la Ley y Reglamento de Contratación Administrativa.
