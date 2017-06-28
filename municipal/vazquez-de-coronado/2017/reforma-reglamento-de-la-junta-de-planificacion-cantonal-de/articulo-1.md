@@ -1,0 +1,11 @@
+MUNICIPALIDAD VÁZQUEZ DE CORONADO
+El Concejo Municipal de Vázquez de Coronado, el 27 de febrero del 2017 en sesión ordinaria Nº 45, solicita mediante acuerdo Nº 2017-45-06, que se publique en el Diario Oficial La Gaceta, la modificación a los artículos 7º y 12 del Reglamento de la Junta Planificación Cantonal del cantón Vázquez de Coronado, según acuerdos de Junta EXT 2017-002-01 y EXT 2017-003-01, rigen a partir de su publicación según el siguiente desglose:
+Artículo 7º—El coordinador dirigirá las sesiones ordinarias y extraordinarias que se realizarán siguiendo los procedimientos de los reglamentos municipales en la materia de órganos colegiados, y supletoriamente lo señalado por la Ley General de la Administración Pública y el Código Municipal. Corresponderá al coordinador convocar a las sesiones y elaborar el orden del día a ser visto en las mismas.
+El quórum mínimo para la gestión de las sesiones se conformará con la presencia de cuatro de sus miembros, correctamente nombrados.
+La Junta de Planificación Cantonal se reunirá ordinariamente una vez al mes, y extraordinariamente cuando así sea convocada por quien ostente la coordinación, el Concejo Municipal, o cuando así lo requieran al menos cuatro de sus miembros, debiendo mediar entre la convocatoria y la realización de la sesión el plazo prudencial de 48 horas.”
+Artículo 12.—Cuando alguno de los integrantes de la Junta de Planificación Cantonal deje de asistir a las sesiones (ordinarias y extraordinarias) se deberá de tomar las siguientes consideraciones:
+a) Dos ausencias consecutivas en forma injustificada sin haber avisado previamente con prueba escrita o digital enviada a la coordinación, se le dará a conocer mediante oficio al Presidente del Concejo para solicitar su sustitución inmediata;
+b) Las ausencias de un integrante de la Junta que sean justificadas, deberán realizarlas por escrito o digital y de previo a la reunión al Coordinador de la Junta. Más de tres ausencias consecutivas justificadas implicarán la solicitud al Presidente del Concejo para que en su lugar se nombre un sustituto de inmediato.”
+Acuerdo. Cuenta con seis votos afirmativos. Acuerdo firme. Ausente la Regidora Carmen Durán. 27 de febrero, 2017.
+Es todo. Rige un mes después de su publicación.
+Vásquez de Coronado, 10 de mayo del 2017
