@@ -9,7 +9,8 @@ Considerando:
 1. Que no existe en la normativa de los Tecnólogos en Ciencias Médicas, aspectos legales y funcionales que regulen, específicamente, el ejercicio de los Tecnólogos en Registros Médicos.
 2. Que en la actualidad es importante para el gremio de Tecnólogos en general, regular en un solo documento el Perfil Ocupacional ateniente a los Tecnólogos en Registros Médicos.
 3. Que en cumplimiento de las disposiciones de la Junta de Gobierno en la Normativa de Tecnólogos en Ciencias Médicas, se elabora el Perfil Ocupacional de los Tecnólogos en Registros Médicos.
-4. Que en cumplimiento de las disposiciones de la Ley Nº 3019 del 08 de agosto de 1962, Ley Orgánica del Colegio de Médicos y Cirujanos de la República de Costa Rica, la Junta de Gobierno en Sesión celebrada el 31 de junio del 2017, acordó aprobar en esa sesión el nuevo texto para la validez y aprobación. Por tanto,
+4. Que en cumplimiento de las disposiciones de la Ley N° 3019 del 08 de agosto de 1962, Ley Orgánica del Colegio de Médicos y Cirujanos de la República de Costa Rica, la Junta de Gobierno en sesión celebrada el 31 de mayo del 2017, acordó aprobar en esa sesión el nuevo texto para la validez y aprobación.
+(Así reformado el considerando anterior mediante sesión ordinaria N° 2017-06-08 del 28 de junio del 2017)
 Aprueba:
 El siguiente:
 PERFIL OCUPACIONAL DEL TECNÓLOGO EN REGISTROS MÉDICOS

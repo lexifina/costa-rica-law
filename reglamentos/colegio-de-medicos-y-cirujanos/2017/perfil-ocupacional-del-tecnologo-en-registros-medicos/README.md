@@ -14,3 +14,4 @@ Perfil Ocupacional del Tecnólogo en Registros Médicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-06-20 | la propia norma |
+| 2 | 2017-06-28 | Reglamento 0 (2017-06-28) |
