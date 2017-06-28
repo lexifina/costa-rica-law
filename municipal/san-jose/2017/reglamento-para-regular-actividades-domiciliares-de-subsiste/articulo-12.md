@@ -1,0 +1,1 @@
+Artículo 12.- Del Plazo para resolver las solicitudes: La Municipalidad resolverá las solicitudes dentro del plazo de treinta días hábiles a partir del recibo de la solicitud con requisitos completos.
