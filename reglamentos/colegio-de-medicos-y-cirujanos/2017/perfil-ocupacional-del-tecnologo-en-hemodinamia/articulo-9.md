@@ -1,0 +1,3 @@
+Artículo 9. –Función Docente:
+a. Podrá participar como docente en la formación teórica de otros tecnólogos en Hemodinamia, respecto a la formación práctica, deberá contar en todo momento con la supervisión del Médico Especialista Cardiología, Cardiología Intervencionista y Hemodinamia, Electrofisiología Cardiaca, Cardiología Pediátrica, Vascular Periférico, Neurocirugía, Radiología e Imágenes Médicas y, Neurología.
+b. Participar en planes y programas sanitarios que le sean encomendados por el médico especialista en Cardiología, Cardiología Intervencionista y Hemodinamia, Electrofisiología Cardiaca, Cardiología Pediátrica, Vascular Periférico, Neurocirugía, Radiología e Imágenes Médicas y, Neurología.

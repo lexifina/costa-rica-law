@@ -1,0 +1,1 @@
+Artículo 21. –Sin perjuicio de la obligación de acatar las instrucciones médicas recibidas, el Tecnólogo gozará de independencia en lo que respecta a la ejecución de los procedimientos propios de su Tecnología.

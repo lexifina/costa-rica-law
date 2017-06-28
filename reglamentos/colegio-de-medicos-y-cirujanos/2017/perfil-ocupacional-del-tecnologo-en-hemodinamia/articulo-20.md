@@ -1,0 +1,1 @@
+Artículo 20. –Trabaja siempre bajo la supervisión del Médico Especialista en alguna de las siguientes ramas: Cardiología, Cardiología Intervencionista y Hemodinamia, Electrofisiología Cardiaca, Cardiología Pediátrica, Vascular Periférico, Neurocirugía, Radiología e Imágenes Médicas y, Neurología, dentro de su ámbito de acción.
