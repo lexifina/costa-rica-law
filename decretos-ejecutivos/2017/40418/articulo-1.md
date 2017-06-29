@@ -1,0 +1,14 @@
+N° 40418-JP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE JUSTICIA Y PAZ A.I.
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones N° 218 del 8 de agosto de 1939 y los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones número 294964, publicado en la Gaceta N° 96 del 21 de mayo del 2001.
+CONSIDERANDO
+I. El artículo 32 de la Ley de Asociaciones N° 218 de 8 de agosto de 1939 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública a las asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II. La Asociación Administradora del Acueducto de Santa Rosa del distrito Río Nuevo del Cantón de Pérez Zeledón de San José, cédula de persona jurídica número 3-002-211303, se inscribió en el Registro de Asociaciones del Registro Público desde el día 26 de julio de 1997, tomo N° 0445, asiento 220.
+III. Los fines que persigue la asociación, según sus estatutos, son: "... ARTÍCULO TERCERO: los fines de la Asociación son los siguientes: a- La construcción, operación y reconstrucción del sistema de acueducto de la comunidad de Santa Rosa del distrito de Río Nuevo del cantón de Pérez Zeledón de San José, b) Administrar, operar y conservar en buenas condiciones el acueducto, de acuerdo con las disposiciones y Reglamentos que al respecto emita el Instituto Costarricense de Acueductos y Alcantarillados en adelante AyA. c) Obtener la participación efectiva de la comunidad, en la construcción y mantenimiento del acueducto. d) Realizar y en su caso colaborar con otros organismos, en los programas y campañas de índole educativas relacionadas con el uso racional y ía sostenibilidad del sistema de acueducto. e) Ayudar a explicar y divulgar en la comunidad las disposiciones y Reglamentos de AyA. fi Cooperar con los planes, proyectos y obras que emprenda AyA en la comunidad g) Participar en la vigilancia y protección de las fuentes de abastecimiento del acueducto, evitar las contaminaciones de aquellas y ayudar a la protección de las cuencas hidrográficas de la región" (Folios 109 y 110)
+IV. Tales fines solventan una necesidad social de primer orden, por lo cual merecen el apoyo del Estado costarricense. Por tanto,
+DECRETAN
+DECLARATORIA DE UTILIDAD PÚBLICA PARA LA ASOCIACIÓN
+ADMINISTRADORA DEL ACUEDUCTO DE SANTA ROSA DEL DISTRITO RÍO
+NUEVO DEL CANTÓN DE PÉREZ ZELEDÓN DE SAN JOSÉ.
+Artículo 1.- Declárese de utilidad pública para los intereses del Estado a la Asociación Administradora del Acueducto de Santa Rosa del distrito Río Nuevo del Cantón de Pérez Zeledón de San José, cédula de persona jurídica número 3-002-211303.
