@@ -8,4 +8,6 @@ f) La Dirección de recursos forestales y vida silvestre.
 g) El Órgano de Administración Financiera.
 h) Las Oficinas Subregionales del Área de Conservación.
 i) Los Consejos Locales creados por la Ley de Biodiversidad.
+j) La Administración de cada Área Silvestre Protegida cuando cuente con ella.
+(Así adicionado el inciso anterior por el artículo 3° del decreto ejecutivo N° 40479 del 29 de junio del 2017)
 (Así reformado por el artículo 9° del decreto ejecutivo N° 40054 del 19 de octubre del 2016 “Regionalización del Ministerio de Ambiente y Energía”)
