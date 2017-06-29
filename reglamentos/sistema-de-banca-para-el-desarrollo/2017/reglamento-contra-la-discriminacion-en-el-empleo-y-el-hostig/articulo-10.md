@@ -1,0 +1,2 @@
+Artículo 10: Quien haya denunciado hostigamiento laboral falso podrá incurrir, cuando así se tipifique, en cualquiera de las conductas propias de la difamación, la injuria o la calumnia, según el Código Penal.
+Asimismo, el abuso en los procedimientos descritos en la presente regulación laboral podrá dar lugar a la aplicación de las sanciones disciplinarias correspondientes, de conformidad con la legislación laboral aplicable.

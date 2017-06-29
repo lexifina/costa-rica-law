@@ -1,0 +1,1 @@
+Artículo 8: Los colaboradores de la Institución son responsables de eliminar comportamientos de discriminación y hostigamiento laboral en el lugar de trabajo e informar de casos que, razonablemente, crea que violan esta regulación.

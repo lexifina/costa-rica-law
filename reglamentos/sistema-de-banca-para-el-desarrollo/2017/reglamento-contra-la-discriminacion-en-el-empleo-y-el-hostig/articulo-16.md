@@ -1,0 +1,2 @@
+Artículo 16: Una vez conformada la Comisión Investigadora o el órgano competente para la tramitación de la denuncia, dentro de un plazo máximo de cinco días hábiles siguientes a esta conformación, se notificará el traslado de cargos a la persona denunciada.
+La Comisión Investigadora o el órgano competente para la tramitación de la denuncia deberá respectar el debido proceso, el derecho a la defensa, la igualdad de trato y demás principios constitucionales.

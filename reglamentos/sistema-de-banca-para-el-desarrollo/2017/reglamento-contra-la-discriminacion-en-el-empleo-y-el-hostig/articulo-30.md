@@ -1,0 +1,1 @@
+Artículo 30: Todas las resoluciones del Comité Investigador deben ser notificadas a todas las partes del procedimiento. Las reglas aplicables para las notificaciones serán las mismas establecidas en la Ley de Notificaciones Judiciales, número 8687.

@@ -1,0 +1,1 @@
+Artículo 36: Se considerará que incurre en una falta, quien, habiendo recibido una denuncia por hostigamiento laboral, no le den el trámite previsto en esta Regulación. De comprobarse la falta se tomarán las medidas disciplinarias correspondientes.

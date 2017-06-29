@@ -1,0 +1,2 @@
+Artículo 2. La presente regulación laboral es de cumplimiento obligatorio para todos los colaboradores de la Institución, sin importar el cargo que tengan en la organización o la forma en que fueron contratados.
+Se aplicará en relaciones de jerarquía o autoridad (jefe a subordinado), relaciones entre personas del mismo nivel jerárquico (compañeros de trabajo), entre personas de un nivel jerárquico inferior a uno superior (de subordinado a jefe).

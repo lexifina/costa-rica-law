@@ -1,0 +1,4 @@
+Sección III
+De los encargados para conocer e investigar una denuncia por hostigamiento laboral
+Artículo 11: La Comisión Investigadora es el órgano encargado de tramitar las denuncias aceptadas por hostigamiento laboral vigentes en la Institución.
+Estará conformada por 3 (tres) integrantes de los cuales 2 (dos) serán profesionales independientes externos a la Institución, a fin de garantizar la objetividad e independencia de criterio. Será integrada y presidida por la persona que presida la Unidad de Capital Humano de la Institución, Unidad que contará con un máximo de 5 días hábiles, a partir de la recepción de la denuncia por parte de la presunta víctima, para formular un informe técnico - legal ante la Dirección Ejecutiva, informe que deberá recomendar la aceptación o no de la denuncia. En caso de ser aceptada, la Unidad de Capital Humano deberá proponer una propuesta de integración para los dos integrantes externos.

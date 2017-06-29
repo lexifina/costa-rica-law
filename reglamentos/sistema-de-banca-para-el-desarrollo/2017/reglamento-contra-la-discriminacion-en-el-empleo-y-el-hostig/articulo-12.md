@@ -1,0 +1,2 @@
+Artículo 12: La aprobación de la conformación final de la Comisión Investigadora corresponderá a la Dirección Ejecutiva de la Institución, quien cuenta con un plazo de 3 días hábiles para remitir el comunicado de confirmación a quien preside la Comisión, en caso de ser aceptada la propuesta, o bien proceder a los nombramientos correspondientes ante un rechazo fundamentado de la misma.
+Quien preside la Comisión cuenta con dos días hábiles para comunicar a los demás miembros su incorporación a tal órgano.

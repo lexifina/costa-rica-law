@@ -1,0 +1,3 @@
+Artículo 21: La Dirección Ejecutiva de la Institución deberá, en un plazo de diez días hábiles, contados a partir de la recepción del informe de la Comisión Investigadora, emitir una resolución fundada en donde indique que acepta la recomendación, o la rechaza, debiendo establecer la nueva disposición a aplicar.
+En este último escenario, dicha resolución debe contener los elementos de hecho y de derecho por los cuales se concluyó de manera distinta a las recomendaciones de la Comisión Investigadora.
+En todas las fases del procedimiento toda información será tratada con absoluta confidencialidad.

@@ -1,0 +1,1 @@
+Artículo 14: La Comisión Investigadora será conformada para cada proceso individual; sin embargo, en caso que no perjudique los intereses de las partes involucradas, los nombramientos podrán prevalecer para todos los procedimientos de esta naturaleza, previa autorización de la Dirección Ejecutiva.

@@ -1,0 +1,1 @@
+Artículo 25: Una vez que se haya cerrado la investigación en la Institución, quien no esté satisfecho con el resultado de la investigación, puede presentar la denuncia correspondiente ante los Tribunales de Trabajo.
