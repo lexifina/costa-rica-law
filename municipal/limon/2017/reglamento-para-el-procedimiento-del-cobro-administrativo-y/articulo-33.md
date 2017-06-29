@@ -1,0 +1,1 @@
+Artículo 33.—Formalización del arreglo de pago. La formalización del arreglo de pago se realizará ante la Unidad de Cobro, única competente para realizar esta gestión, mediante la suscripción del documento idóneo que tendrá dicha Unidad para tales efectos

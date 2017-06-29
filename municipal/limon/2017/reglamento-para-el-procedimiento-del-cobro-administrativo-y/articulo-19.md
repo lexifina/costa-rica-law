@@ -1,0 +1,1 @@
+Artículo 19.—El abogado que se contrate deberá excusarse de atender la dirección de un juicio cuando tuviere vínculos de parentesco o prohibición por afinidad con el sujeto pasivo del cobro, situación que comunicará por escrito a la Unidad de Cobro en el término de tres días hábiles.

@@ -1,0 +1,1 @@
+Artículo 27.—Cuando por causas atribuibles al abogado se produjera perdida de saldos deudores, la Municipalidad podrá plantear las denuncias que considere necesarias y ante las instancias competentes; así mismo será causa de finalización del contrato sin costo alguno para la Municipalidad.

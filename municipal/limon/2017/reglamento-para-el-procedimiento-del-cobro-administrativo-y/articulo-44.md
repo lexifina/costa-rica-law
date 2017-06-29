@@ -1,0 +1,1 @@
+Artículo 44.—Condonación en pago. El procedimiento para la extinción de la obligación tributaria municipal mediante condonación en pago, se regirá por el Decreto Ejecutivo Nº 20870- H del 27 de octubre de 1991, publicado en La Gaceta Nº 234 del 06 de diciembre de 1991 que reglamentó el artículo Nº 7218.

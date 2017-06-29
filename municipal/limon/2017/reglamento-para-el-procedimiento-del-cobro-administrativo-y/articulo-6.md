@@ -1,0 +1,1 @@
+Artículo 6°—Se entenderá por cobro administrativo todas las acciones que se realizan por cuenta de la Municipalidad, con el objetivo de cumplir con calendarios de pago que amorticen la cancelación oportuna de las cuentas de los contribuyentes.
