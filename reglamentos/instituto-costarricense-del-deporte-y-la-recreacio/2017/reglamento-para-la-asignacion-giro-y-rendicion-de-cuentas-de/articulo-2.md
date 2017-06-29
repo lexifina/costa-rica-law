@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. El presente reglamento establece la regulación del presupuesto, giro y rendición de cuentas de las transferencias de recursos financieros otorgados a los sujetos púbicos o privados, consignados en el presupuesto del ICODER.

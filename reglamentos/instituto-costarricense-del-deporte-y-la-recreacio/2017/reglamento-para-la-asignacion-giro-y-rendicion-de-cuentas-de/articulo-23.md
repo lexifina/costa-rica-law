@@ -1,0 +1,1 @@
+Artículo 23º — Participación de la Auditoria. La Auditoría Interna del ICODER tendrá la facultad de fiscalizar la asignación, giro, ejecución y liquidación de las transferencias otorgadas por el ICODER, lo cual podrá realizar en cualquier etapa del proceso o posterior a la liquidación.

@@ -1,0 +1,1 @@
+Artículo 24º — Otras fiscalizaciones. El resultado de los estudios que el ICODER efectúe de las liquidaciones presentadas por sujetos públicos o privados, se dictará sin perjuicio de la fiscalización, posterior por parte de la Contraloría General de la República.

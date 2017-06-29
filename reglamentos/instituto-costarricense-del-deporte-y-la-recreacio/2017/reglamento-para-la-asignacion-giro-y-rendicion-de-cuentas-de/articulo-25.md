@@ -1,0 +1,1 @@
+Artículo 25º — Derogatorias. Deróguese el Reglamento aprobado por el Consejo Nacional del Deporte y la Recreación, mediante acuerdo N° 16, de la sesión ordinaria N° 912 2014, celebrada a los diecinueve días del mes de junio del año dos mil catorce, en la sala de sesiones del Estadio Nacional y publicado en La Gaceta no. 141 del miércoles 23 de julio de 2014.
