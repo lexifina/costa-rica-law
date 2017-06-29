@@ -1,3 +1,3 @@
-Artículo 10°
-Si al momento de su fallecimiento el o la causante tenía compañera o compañero, respectivamente, en las condiciones señaladas en el artículo anterior, y al mismo tiempo tenía cónyuge dependiente económicamente. la Caja podrá reconocer el derecho a ambas o ambos En tal caso se reconocerá el 50% del monto que le hubiere correspondido a un sólo beneficiario de viudez, conforme se indica en el articulo 27°.
-Es entendido que en ningún caso la Caja otorgará más de dos pensiones por viudez Cuando se presentara el reclamo de más de dos beneficíanos y existiera duda acerca del perjuicio económico que la muerte del asegurado les causó, la decisión sobre quién es o quiénes son los dos titulares del derecho corresponderá a la Junta Directiva, con fundamento en el expediente respectivo.
+Artículo 10.—Reconocimiento de más de un derecho en calidad de pareja supérstite: La Caja podrá reconocer el derecho de pensión en calidad de pareja supérstite a más de una persona, si cumplen con lo dispuesto en el artículo 9 de este Reglamento.
+La proporción de pensión para cada beneficiario será el porcentaje que le hubiese correspondido a uno solo, de acuerdo con lo establecido en el artículo 27 de este Reglamento, dividido por el número de beneficiarios en calidad de pareja supérstite del caso.
+(Así reformado en sesión N° 8913 del 29 de junio de 2017)
