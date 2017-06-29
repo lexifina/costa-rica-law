@@ -1,1 +1,0 @@
-Artículo 112.—La Dirección General del Archivo Nacional realizará en otras instituciones y lugares, exposiciones temporales, preferiblemente con reproducciones de los documentos que conserva, para evitar su deterioro.

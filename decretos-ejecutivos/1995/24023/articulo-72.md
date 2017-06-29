@@ -1,1 +1,0 @@
-Artículo 72.—La restauración tiene como fin recuperar la integridad física y funcional de los documentos, mediante la corrección de las alteraciones sufridas, y restituirles en la medida de lo posible a su estado original.

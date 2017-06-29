@@ -1,1 +1,0 @@
-Artículo 5°—El Director General del Archivo Nacional y los Jefes o Encargados de los Archivos Públicos, deberán denunciar y dar seguimiento, ante el Ministerio Público de la apropiación ilegal de documentos producidos en las instituciones públicas, para la aplicación de lo dispuesto en los artículos 8 y 9 de la ley que se reglamenta.

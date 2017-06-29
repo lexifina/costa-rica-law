@@ -1,1 +1,0 @@
-Artículo 24.—En caso de ausencia, el Presidente será sustituido por el Vicepresidente con las mismas funciones y atribuciones. En caso de no estar presente ninguno de los anteriores, presidirá el primer vocal o el segundo, siguiendo este orden.

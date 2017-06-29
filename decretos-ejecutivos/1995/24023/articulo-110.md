@@ -1,1 +1,0 @@
-Artículo 110.—Los archivos pertenecientes al Sistema podrán facilitar sus documentos a las diferentes unidades de la institución a la cual pertenecen, previa solicitud del Jefe de la Unidad respectiva y llevando un registro de préstamo de documentos.

@@ -1,1 +1,0 @@
-Artículo 65.—Si en alguna institución existen documentos de valor científico-cultural que han cumplido 20 anos de gestados, plazo para ser remitidos a la Dirección General del Archivo Nacional, y la institución no ha solicitado su transferencia, la Dirección General requerirá por escrito su remisión y fijará la fecha para que ésta se lleve a cabo.

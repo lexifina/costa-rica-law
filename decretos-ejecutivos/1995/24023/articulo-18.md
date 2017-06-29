@@ -1,1 +1,0 @@
-Artículo 18.—Todos los funcionarios de la Dirección General del Archivo Nacional, estarán bajo el régimen del Estatuto de Servicio Civil, de acuerdo con lo que dispone el artículo 191 de la Constitución Política de la República de Costa Rica, excepto lo establecido en el artículo anterior.

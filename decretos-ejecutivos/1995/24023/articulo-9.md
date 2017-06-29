@@ -1,1 +1,0 @@
-Artículo 9°—La Asamblea General de Archivistas se realizará en el mes de febrero cada dos años o cuando sea necesario integrar una nueva terna. La convocatoria se hará a través de un medio de comunicación escrita de amplia circulación.

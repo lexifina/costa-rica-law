@@ -1,1 +1,0 @@
-Artículo 162.—Si la Dirección General del Archivo Nacional conociere de la existencia de documentos de reconocido valor científico cultural en manos de instituciones privadas o particulares, tomará las medidas necesarias que tiendan a su conservación y organización. DONACIONES

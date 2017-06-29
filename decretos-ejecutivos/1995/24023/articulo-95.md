@@ -1,1 +1,0 @@
-Artículo 95.—La Dirección General del Archivo Nacional establecerá mediante normas internas los requisitos para la atención al público en las salas de consulta y despachos de atención. Dichas normas podrán ser aplicadas en los archivos que pertenecen al sistema.

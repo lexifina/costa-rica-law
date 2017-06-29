@@ -1,1 +1,0 @@
-Artículo 17.—Además del personal permanente de la relación de puestos de la Dirección General del Archivo Nacional, la Junta Administrativa del Archivo Nacional podrá nombrar el personal administrativo, técnico y profesional necesario para el cumplimiento de sus fines y los de la Dirección General del Archivo Nacional, como cargo fijo o por contrato a plazo determinado.

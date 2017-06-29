@@ -1,1 +1,0 @@
-Artículo 119.—El Técnico del Departamento Documental que va a asistir a la Comisión será designado por el Director General del Archivo Nacional y permanecerá en su puesto por un período de dos años. El Historiador nombrado por la Junta Administrativa también permanecerá como miembro de la Comisión durante dos años, pudiendo ambos ser reelectos.

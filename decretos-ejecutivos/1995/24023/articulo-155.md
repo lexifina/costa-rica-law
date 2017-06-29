@@ -1,1 +1,0 @@
-Artículo 155.—La institución que solicita una asesoría para la creación u organización de sus archivos, deberá contar con el espacio físico necesario, el mobiliario correspondiente y los funcionarios responsables de la Unidad.

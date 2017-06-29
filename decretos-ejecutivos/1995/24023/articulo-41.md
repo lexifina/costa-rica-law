@@ -1,1 +1,0 @@
-Artículo 41.—La Dirección General del Archivo Nacional laborará con planes anuales de trabajo formalmente preparados. Cuando la Dirección General lo considere conveniente, se reunirá con los Jefes de Departamento para evaluar el cumplimiento de las metas propuestas y otros asuntos importantes independientemente de los informes escritos y cualquier otro que se establezca.

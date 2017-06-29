@@ -1,1 +1,0 @@
-Artículo 148.—Cuando los archivos centrales transfieran documentos a la Dirección General del Archivo Nacional, deberán entregar los instrumentos descriptivos que pertenecen a aquellos calificados por la Comisión de Selección y Eliminación de Documentos como de valor científico-cultural. La transferencia de los instrumentos y documentos se realizará en forma conjunta.

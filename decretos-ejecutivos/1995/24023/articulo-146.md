@@ -1,1 +1,0 @@
-Artículo 146.—Este informe contendrá las actividades archivísticas realizadas en el año inmediato anterior. Se referirá a los documentos recibidos en cuanto a su conservación, clasificación, ordenación, descripción, selección, administración y facilitación de los mismos, así como otras actividades relacionadas con el quehacer archivístico, que se considere conveniente informar.

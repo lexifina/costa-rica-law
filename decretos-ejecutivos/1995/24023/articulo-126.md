@@ -1,1 +1,0 @@
-Artículo 126.—El quórum para todas las reuniones será de tres miembros y los acuerdos serán tomados por la mayoría de votos de los presentes; en caso de empate decidirá quien preside, con su doble voto.

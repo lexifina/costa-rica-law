@@ -1,1 +1,0 @@
-Artículo 21.—Los acuerdos, mociones y demás disposiciones aprobadas o rechazadas por la Junta, podrán ser revisados por una sola vez, a solicitud del Director Ejecutivo, o de uno de sus miembros, o cualquier tercero con interés legítimo y directo antes de la aprobación del acta respectiva, siempre que no se trate de acuerdos firmes.

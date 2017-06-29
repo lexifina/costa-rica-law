@@ -1,1 +1,0 @@
-Artículo 15.—En el mes de junio de cada año, cada miembro de la Junta Administrativa deberá presentar un informe de su labor ante la persona o entidad que representa, con copia para la Junta Administrativa. En caso de no presentarse en el mes inmediato siguiente, el fiscal de la Junta reportará el incumplimiento a la entidad o persona representada.

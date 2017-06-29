@@ -1,1 +1,0 @@
-Artículo 157.—El objetivo general de las visitas de inspección será salvaguardar el Patrimonio Documental de la Nación. Se pretende además con ellas establecer relaciones permanentes con los archivos centrales y de gestión, para mejorar la conservación y organización de sus documentos.

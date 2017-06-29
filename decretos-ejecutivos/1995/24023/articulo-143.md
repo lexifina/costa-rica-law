@@ -1,1 +1,0 @@
-Artículo 143.—En la institución donde exista un Archivo Central conformado como tal, éste deberá encargarse de coordinar todas las actividades archivísticas que realicen los archivos de gestión de la entidad, de acuerdo con los lineamientos establecidos en este reglamento.

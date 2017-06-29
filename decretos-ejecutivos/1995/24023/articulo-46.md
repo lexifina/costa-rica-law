@@ -1,1 +1,0 @@
-Artículo 46.—Los jefes de las salas de consulta y de la Biblioteca, velarán por el cumplimiento de lo que establece el artículo 26 de la ley que se reglamentó. En caso de que algún investigador no cumpla con esta disposición, la Dirección General tomará las medidas internas correspondientes.

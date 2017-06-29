@@ -1,1 +1,0 @@
-Artículo 34.—A la Dirección General del Archivo Nacional le corresponde conservar, organizar y facilitar el Patrimonio documental del país, y ejercer las funciones que le competen a través de la Junta Administrativa del Archivo Nacional como autoridad máxima del Sistema Nacional de Archivos.

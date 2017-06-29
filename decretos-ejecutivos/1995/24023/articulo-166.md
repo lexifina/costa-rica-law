@@ -1,1 +1,0 @@
-Artículo 166.—La Dirección General del Archivo Nacional, cuando el caso lo amerite, podrá reservarse el derecho de seleccionar y eliminar parte de la documentación donada, que carezca de valor científico-cultural.

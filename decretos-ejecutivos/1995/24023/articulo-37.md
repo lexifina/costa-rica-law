@@ -1,1 +1,0 @@
-Artículo 37.—El Departamento de Conservación tendrá a su cargo todas las funciones relacionadas con la conservación de documentos, medidas de preservación y restauración, publicaciones y reprografía documental: microfilmación, fotografía, grabación, entre otros.

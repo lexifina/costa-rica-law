@@ -1,1 +1,0 @@
-Artículo 151.—En caso de que una institución desapareciera, fuera absorbida por otra o se convirtiera en un ente de derecho privado, deberá comunicarlo a la Dirección General del Archivo Nacional con un mínimo de tres meses de antelación.

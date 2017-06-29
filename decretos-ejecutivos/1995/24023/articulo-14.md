@@ -1,3 +1,0 @@
-Artículo 14.-Los miembros de la Junta devengarán una dieta de ¢ 5.000,00 (cinco mil colones) por cada sesión a la que asistan, no pudiendo ser más de seis sesiones remuneradas por mes. Dicha dieta se ajustará anualmente de conformidad con el índice de inflación que determine el Banco Central de Costa Rica.
-Los Directores que lo desean, podrán renunciar a esta remuneración cuando lo consideren oportuno. Los funcionarios públicos que integren la Junta , sólo tendrán derecho a devengar dietas, si no se produce superposición horaria con sus labores ordinarias, de acuerdo con lo que establece el artículo 49 de la Ley de Administración Financiera de la República .
-(Así reformado por el artículo 1° del decreto ejecutivo N° 26424 de 17 de setiembre de 1997).

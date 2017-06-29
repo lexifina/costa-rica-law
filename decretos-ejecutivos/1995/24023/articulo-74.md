@@ -1,1 +1,0 @@
-Artículo 74.—La Dirección General del Archivo Nacional y los Archivos del Sistema, antes de iniciar un proceso de microfilmación, deberán estudiar y comparar sus costos con los de la conservación de documentos en su forma original, de manera que se microfilmen aquellos que tienen el valor y la importancia suficientes que justifiquen la inversión económica.

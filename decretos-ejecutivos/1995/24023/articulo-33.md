@@ -1,1 +1,0 @@
-Artículo 33.—El Director General del Archivo Nacional, será el responsable de la buena marcha de la institución, del cumplimiento de la Ley 7202 del 24 de octubre de 1990, y del presente reglamento, así como de las funciones descritas en los artículos 23, 28 y 29 de la Ley que se reglamenta.

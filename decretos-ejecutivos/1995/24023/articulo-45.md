@@ -1,1 +1,0 @@
-Artículo 45.—Las colecciones de libros que se encuentran en la Biblioteca especializada de la Dirección General del Archivo Nacional, estarán al servicio del público y podrán ser consultadas en las salas designadas para ese efecto.

@@ -1,1 +1,0 @@
-Artículo 105.—Los fondos documentales de la Dirección General del Archivo Nacional y de los Archivos del Sistema, podrán ser reproducidos para cumplir con los trámites de constancias, certificaciones y testimonios que se expedirán a solicitud de los usuarios, quienes cancelarán las especies fiscales, tasas y otros costos establecidos de acuerdo con las leyes vigentes.

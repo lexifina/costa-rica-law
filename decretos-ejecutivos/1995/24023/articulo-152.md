@@ -1,1 +1,0 @@
-Artículo 152.—Los documentos que entreguen la Presidencia de la República y los Ministros de Estado a la Dirección General del Archivo Nacional, ingresarán a ésta con una lista de remisión. Posteriormente podrán sufrir el proceso de selección, de acuerdo con los criterios que establezca la Comisión Nacional de Selección y Eliminación de Documentos.

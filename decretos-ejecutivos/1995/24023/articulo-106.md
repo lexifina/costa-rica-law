@@ -1,1 +1,0 @@
-Artículo 106.—En cuanto a la expedición de certificaciones y testimonios de instrumentos públicos, insertos en los protocolos notariales, se hará de acuerdo con lo que dispone la legislación notarial vigente.

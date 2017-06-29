@@ -1,1 +1,0 @@
-Artículo 142.—El jefe o encargado de cada Archivo Central será cuando menos un Técnico Profesional con especialidad en Archivística, a quien le corresponderá planificar, coordinar, controlar y supervisar las funciones archivísticas de su unidad.

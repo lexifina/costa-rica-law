@@ -1,1 +1,0 @@
-Artículo 164.—Los documentos donados a la Dirección General del Archivo Nacional serán conservados y organizados en series que llevarán el nombre del donante o de quien él indicare, salvo su manifestación en contrario. Se respetarán las condiciones de restricción de acceso o similares que indique expresamente el donante.

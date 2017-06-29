@@ -1,1 +1,0 @@
-Artículo 50.—La sede de las actividades a que se refiere el artículo anterior, será la misma de la Dirección General del Archivo Nacional, pudiéndose trasladar a otra institución beneficiada con el programa, en cuyo caso le corresponderá a la unidad de capacitación de esta última, coordinar la actividad.

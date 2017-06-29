@@ -1,1 +1,0 @@
-Artículo 92.—Los Archivos de Gestión, Centrales y Finales o Históricos, están en la obligación de facilitar sus documentos, de acuerdo con lo que establece el Artículo 30 de la Constitución Política, y los artículos 10, 23 y 42 de la Ley que se reglamenta, para lo cual establecerán en sus respectivas instituciones las normas que consideren convenientes para este fin.

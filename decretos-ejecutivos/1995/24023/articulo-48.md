@@ -1,1 +1,0 @@
-Artículo 48.—A nivel institucional, las actividades de capacitación se desarrollarán de acuerdo con las necesidades y normas internas, y serán debidamente planificadas por medio de estudios de detección de necesidades, en los que participarán todos los funcionarios de la institución.

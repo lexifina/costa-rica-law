@@ -1,1 +1,0 @@
-Artículo 55.—Este curso será coordinado con la Dirección General de Servicio Civil, cuando la participación costarricense sea igual o mayor al 50% de la participación total; en caso contrario, únicamente se informará de la actividad y cada participante en forma personal, deberá tramitar el reconocimiento ante esa Dirección General.

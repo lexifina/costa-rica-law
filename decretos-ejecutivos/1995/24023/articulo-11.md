@@ -1,2 +1,0 @@
-Artículo 11.—La Junta Administrativa del Archivo Nacional acordará los días y horas de las sesiones ordinarias, que se realizarán en la sede de la Dirección General del Archivo Nacional. Extraordinariamente se reunirá cuando la misma Junta lo juzgue necesario o cuando el Director Ejecutivo la convoque o por lo menos la tercera parte de sus miembros solicite al Director Ejecutivo.
-La convocatoria a reuniones extraordinarias deberá hacerse con un mínimo de 24 horas de anticipación, indicándose concretamente los asuntos a tratar.

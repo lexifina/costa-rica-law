@@ -1,1 +1,0 @@
-Artículo 19.—Los servicios y publicaciones de carácter cultural y educativo que patrocina la Junta Administrativa, serán vendidos sin fines de lucro. Su precio será fijado por la Junta Administrativa. El Director Ejecutivo decidirá qué porcentaje de las publicaciones serán obsequiadas o canjeadas.

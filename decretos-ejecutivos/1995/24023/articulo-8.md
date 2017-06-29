@@ -1,2 +1,0 @@
-Artículo 8°—A la Asamblea que convoca la Junta Administrativa del Archivo Nacional para integrar una terna de archivistas, se convocará: a los archivistas graduados de un Centro de Educación Superior y a aquellos que laboran en archivos públicos y privados.
-La terna únicamente la podrán integrar los archivistas graduados de un Centro de Educación Superior, que se desempeñan como tales en alguno de los archivos de las instituciones a las que se refiere el artículo 2° de la Ley que se reglamenta.

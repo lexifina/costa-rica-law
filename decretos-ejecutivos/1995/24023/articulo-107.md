@@ -1,2 +1,0 @@
-PRÉSTAMO
-Artículo 107.—La Dirección General del Archivo Nacional facilitará sus documentos en calidad de préstamo, previa solicitud de las instituciones productoras o de los Tribunales de Justicia, que así lo soliciten. El préstamo será por el término de tres meses prorrogable por una vez, excepto en el caso de los documentos conservados en el Archivo Intermedio, cuyos préstamos podrán ser prorrogados hasta por un plazo máximo de un año. Para tal efecto existirán los controles internos necesarios.

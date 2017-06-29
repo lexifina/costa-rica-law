@@ -1,2 +1,0 @@
-Artículo 10.—La Junta Administrativa del Archivo Nacional integrará su Directorio de la siguiente manera:
-En la primera sesión ordinaria de cada año, entre los mismos miembros y por simple mayoría de votos eligirán un vicepresidente, un secretario, un tesorero, un fiscal y dos vocales. El Presidente será el Ministro de Cultura, Juventud y Deportes o su representante. El Director General del Archivo Nacional, será el Director Ejecutivo de la Junta Administrativa.

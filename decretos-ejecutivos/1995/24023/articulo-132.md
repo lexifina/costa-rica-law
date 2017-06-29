@@ -1,1 +1,0 @@
-Artículo 132.—Una vez aprobadas las tablas de plazos, las instituciones pueden eliminar los tipos documentales autorizados sin consultar nuevamente a la Comisión, d Sin embargo, las Tablas de Plazos aprobadas deben someterse a una revisión, tanto del Comité Institucional, como de la Comisión Nacional, cada cinco años, para determinar si los criterios originales son aún válidos.

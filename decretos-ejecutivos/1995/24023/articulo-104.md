@@ -1,1 +1,0 @@
-Artículo 104.—El Director General del Archivo Nacional autorizará la salida de documentos textuales, gráficos y audiovisuales para ser reproducidos fuera de sus instalaciones, en el caso de que no se cuente con el equipo necesario para hacerlo y atendiendo las restricciones estipuladas en los artículos 101 y 102 del presente reglamento y otras directrices internas.

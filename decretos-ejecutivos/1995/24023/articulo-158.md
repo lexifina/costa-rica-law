@@ -1,1 +1,0 @@
-Artículo 158.—Los funcionarios de la Dirección General que realicen las visitas de inspección, rendirán un informe escrito con las recomendaciones necesarias ante la Jefatura respectiva. Esta lo hará del conocimiento del Director General del Archivo Nacional, quien hará las recomendaciones y denuncias correspondientes.

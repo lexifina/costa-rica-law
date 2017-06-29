@@ -1,1 +1,0 @@
-Artículo 31.—La Dirección General del Archivo Nacional, como órgano desconcentrado, tiene independencia funcional, al otorgarte la ley que se reglamenta la función técnica especial de ejecutar las políticas archivísticas a nivel nacional.

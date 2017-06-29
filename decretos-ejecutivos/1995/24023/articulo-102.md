@@ -1,1 +1,0 @@
-Artículo 102.—Los documentos textuales posteriores a 1821, que custodia la Dirección General del Archivo Nacional y los Archivos del Sistema, podrán ser fotocopiados, dependiendo de su estado de conservación y de las restricciones legales vigentes.

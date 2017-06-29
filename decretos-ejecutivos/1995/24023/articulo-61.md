@@ -1,1 +1,0 @@
-Artículo 61.—Los plazos de transferencia de los Archivos de Gestión a los Archivos Centrales, y de éstos a la Dirección General del Archivo Nacional, se fijarán en las tablas de plazos de conservación, de acuerdo con lo que establece el artículo siguiente.

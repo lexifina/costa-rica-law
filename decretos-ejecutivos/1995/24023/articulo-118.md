@@ -1,1 +1,0 @@
-Artículo 118.—El Jefe de la Sección de Servicios Archivísticos Externos o su representante asistirá a las reuniones como invitado permanente, actuará como Secretario y en tal calidad será el responsable de llevar las actas, establecer el orden del día y convocar a las reuniones, de común acuerdo con el Presidente y con el Director Ejecutivo de la Comisión.

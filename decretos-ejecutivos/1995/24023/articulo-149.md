@@ -1,1 +1,0 @@
-Artículo 149.—La Dirección General del Archivo Nacional facilitará en calidad de préstamo, a la institución productora, la documentación transferida de acuerdo con lo que establece el artículo 108 y siguientes de este Reglamento.
