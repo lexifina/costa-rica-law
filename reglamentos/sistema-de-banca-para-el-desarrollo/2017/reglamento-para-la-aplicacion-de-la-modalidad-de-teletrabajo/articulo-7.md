@@ -1,0 +1,1 @@
+Artículo 7º—Visto bueno del Director de Área. El personal que desee laborar en la modalidad de teletrabajo, debe contar con el visto bueno del Director de Área de competente. En el caso del Auditor (a) Interno (a) como del Director (a) Ejecutivo (a), este visto bueno, así como cualquier otro requisito lo otorgará el Presidente o Vicepresidente del Consejo Rector.

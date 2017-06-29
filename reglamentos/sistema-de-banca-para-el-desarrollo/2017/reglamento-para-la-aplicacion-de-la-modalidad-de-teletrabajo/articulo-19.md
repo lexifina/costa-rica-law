@@ -1,0 +1,1 @@
+Artículo 19. —Definición y cumplimiento de metas y objetivos. El superior jerárquico inmediato, será el responsable de definir y verificar el cumplimiento de las metas y objetivos de la persona teletrabajadora, según se haya definido en el convenio.

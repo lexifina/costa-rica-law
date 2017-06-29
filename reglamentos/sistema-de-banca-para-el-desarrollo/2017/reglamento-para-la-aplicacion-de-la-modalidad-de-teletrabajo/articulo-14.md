@@ -1,0 +1,2 @@
+Artículo 14. —Gastos adicionales de la persona teletrabajadora. Los gastos que amerite el desempeño de tareas con la modalidad del teletrabajo, tales como luz, agua, acondicionamiento del espacio físico, internet, entre otros, serán cubiertos en su totalidad por la persona teletrabajadora.
+El equipo utilizado para prestar el servicio y las herramientas informáticas, deben cumplir con las políticas y o directrices de seguridad de la información definidas para tal actividad por la Dirección de Estrategia Digital.

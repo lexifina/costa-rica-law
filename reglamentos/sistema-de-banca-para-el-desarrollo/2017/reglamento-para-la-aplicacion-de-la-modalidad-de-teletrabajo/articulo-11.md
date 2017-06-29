@@ -1,0 +1,2 @@
+Artículo 11.—Evaluación del desempeño, medición de resultados. La persona teletrabajadora, estará sujeta a los controles ordinarios establecidos en la Institución y que se definan en el acuerdo particular, y ha de brindar la información verídica y oportuna en todos los procesos de investigación, evaluación de desempeño y medición a los que deba someterse.
+En caso de comprobarse incumplimiento, quedará sometida al régimen disciplinario, sin perjuicio de dejar sin efecto el acuerdo de teletrabajo, de conformidad con la conveniencia institucional y la gravedad de la falta.
