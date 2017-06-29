@@ -1,0 +1,1 @@
+Artículo 7°- El PAl es una actividad sin fines de lucro para el CNP, creado para dar apoyo a la comercialización de sus suplidores prioritarios cuales son los micro, pequeños y medianos productores agropecuarios, agroindustriales, pesqueros y acuícolas del país y en respuesta a las necesidades de las instituciones públicas clientes.

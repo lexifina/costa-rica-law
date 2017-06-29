@@ -1,0 +1,1 @@
+Artículo 23°- Las normas específicas que regirán las compras y adjudicación de mercado por el PAl a los suplidores estarán conformes con el procedimiento DA-DM-P014.02 "Participación y criterios para adjudicar compras a suplidores" y las reformas de éste que se promuevan en lo sucesivo.

@@ -1,0 +1,11 @@
+Artículo 29°.—Serán funciones de la Comisión de Abastecimiento Institucional, las siguientes:
+a) Velar por que la actividad desarrollada por el PAl se realice al amparo de lo que faculta la ley en la materia, tanto en lo que respecta a la naturaleza de los bienes que se adquieren, los cuales han de ser los propios del tráfico ordinario de la Institución de acuerdo a los fines institucionales, la aplicación de los principios de contratación administrativa y los intereses de los entes públicos que se abastecen del CNP.
+b) Hacer de conocimiento de la Junta Administrativa, para que sea elevado ante la Junta Directiva, la recomendación de la introducción de nuevos productos sugeridos por la DAI por acuerdo razonado y justificando la necesidad.
+c) Elaborar los informes que dispone el artículo 19 del presente Reglamento y hacer del conocimiento de la Junta Administrativa para que sean elevados ante la Junta directiva.
+d) Manejar información actualizada con respecto a la operatividad del Programa.
+e) Solicitar a la Junta Directiva con las debidas recomendaciones la inclusión de suplidores grandes o alternativos.
+f) Avalar los márgenes de comercialización de los productos, que le reportará la DAI y velar porque los mismos se apeguen a lo que dicta este reglamento en la Sección Quinta del Capítulo III, el Artículo 8 y Artículo 12 inciso f).
+g) Aprobar la inclusión y/o conocer de la exclusión de suplidores. En el acuerdo de aprobación de registro de suplidor debe indicar como mínimo: nombre, su ubicación, producto(s) que productos suministrará, categoría de suplidor (micro, pequeño, mediano, grande prioritario o grande alternativo). Este acuerdo tendrá un formato estándar y debe encabezar, como carátula, el expediente de registro de cada suplidor como folio portada.
+h) Velar, revisar y emitir criterio sobre informes de:-Evaluación periódica del servicio brindado, resultados contables, verificación de ejecución y adecuada liquidación de inventarios.
+i) Organizar en conjunto con la DAI las actividades durante el año, para que los suplidores muestren sus productos y sus atributos de calidad, con presencia de los clientes o directamente donde estos.
+Estas actividades pueden ser nacionales o de nivel local.

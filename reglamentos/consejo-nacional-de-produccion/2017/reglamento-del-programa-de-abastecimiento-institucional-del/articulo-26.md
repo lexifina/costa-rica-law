@@ -1,0 +1,2 @@
+Artículo 26°.- La Dirección Agrocomercial de CNP, a través de sus Áreas de Desarrollo de Mercados y Sistemas de Información Agroalimentaria harán los estudios frecuentes de precios de mercado, según una metodología al efecto para sustentar la razonabilidad y estabilidad de los precios de compra y venta PAl referido a los precios del mercado.
+Esta metodología será aprobada por la Comisión de Abastecimiento Institucional y la Dirección Agrocomercial coordinará su ejecución con las Direcciones Regionales.
