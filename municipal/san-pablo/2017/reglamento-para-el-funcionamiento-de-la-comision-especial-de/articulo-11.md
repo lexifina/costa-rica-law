@@ -1,0 +1,1 @@
+Artículo 11.- En caso de renuncia, accidente o muerte de algún(a) integrante de la Comisión, será reemplazado(a) por la persona que nombre el Presidente Municipal en la sesión del Concejo posterior inmediata al conocimiento de alguno de los supuestos indicados anteriormente.
