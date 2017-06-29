@@ -1,0 +1,2 @@
+Artículo 15.—El Patrimonio Natural del Estado, conforme al artículo 13 de la Ley Forestal será administrado por el Ministerio de Ambiente y Energía a través de su órgano desconcentrado el SINAC. para lo cual y conforme a la Ley de Biodiversidad y Ley Forestal el SINAC podrá destinar los recursos de su presupuesto para la correcta administración, protección y manejo de este Patrimonio.
+(Así adicionado por el artículo 4° del decreto ejecutivo N° 40479 del 29 de junio del 2017)
