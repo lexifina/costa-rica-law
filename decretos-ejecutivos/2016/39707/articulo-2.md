@@ -1,0 +1,8 @@
+Artículo 2.- Definiciones. A efectos del presente Reglamento, se entenderá por:
+a) DUA: Declaración Única Aduanera
+b) Perímetro de Origen Autorizado (POA) SEETAXI: Espacio físico de origen del servicio con capacidad para estancia en parqueo del cien por ciento de las unidades que prestarán el servicio, con las facilidades mínimas que le permitan cumplir con el servicio "puerta a puerta" y las oficinas administrativas correspondientes. En caso de brindarse el servicio con una única unidad, corresponderá al espacio físico para ésta. Dicha instalación debe contar con las facilidades para tal fin1 cumpliendo con las regulaciones nacionales y municipales aplicables, incluyendo las disposiciones de la Ley de Igualdad de Oportunidades para las personas con discapacidad, N° 7600 y deberá estar ubicada a una distancia de ciento cincuenta metros, como mínimo, de las terminales oficiales de autobuses y taxis,
+c) Registro: Registro de Bienes Muebles del Registro Nacional.
+d) ITV: Documento de inspección técnica vehicular.
+e) SE: Clase que identifica la matrícula asignada por el Registro al Servicio Especial Estable de Taxi y que va impresa en la placa metálica correspondiente.
+f) Servicio Especial Estable de Taxi (SEETAXI): Servicio de transporte público remunerado de personas de la modalidad de taxi, que está dirigido a un grupo cerrado de personas usuarias y que satisface una demanda residual.
+Se entienden incorporadas al presente reglamento, en lo pertinente, las definiciones del artículo 2, de la Ley N° 9078, "Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial", así como del artículo 1, de la Ley N° 7969.

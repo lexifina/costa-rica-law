@@ -1,0 +1,1 @@
+Artículo 26 Prohibición para la reasignación de placas clase SE desinscritas. Las placas clase "SE" que se desinscriban en el Registro no podrán ser asignadas en el futuro a ningún otro vehículo que resulte beneficiario de SEETAX1.

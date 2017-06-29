@@ -1,0 +1,1 @@
+TRANSITORIO II: Para el cumplimiento del artículo 17, inciso a) de este reglamento, se otorgará un plazo de un año contado a partir de la entrada en vigencia del presente reglamento, para que todo operador de vehículos a brindar servicio SEETAXI, tengan su respectiva licencia C-1.

@@ -1,0 +1,1 @@
+Artículo 10.- De la prestación del servicio. La condición de permisionario de SEETAXI es personalísima. No está permitido el arrendamiento del permiso de SEETAXI. Tampoco se permite su traspaso bajo ningún título.

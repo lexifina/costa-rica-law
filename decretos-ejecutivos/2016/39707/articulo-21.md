@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Requisitos para la inscripción registral del servicio especial estable de taxi
+Artículo 21. De la asignación de placa para el servicio especial estable de taxi. El Registro de Bienes Muebles asignará una clase de placa exclusiva para distinguir el servicio especial estable de taxi de otras modalidades de servicio de transporte público remunerado de personas bajo la modalidad taxi. La matrícula a utilizar tendrá la siguiente estructura: Clase: "SE", correspondiente a las iniciales de "servicio" y "estable", las iniciales de la provincia donde se ubique la zona de operación de la unidad vehicular permisionaria y el número consecutivo, iniciando en forma ascendente con la secuencia 00001 que corresponda.

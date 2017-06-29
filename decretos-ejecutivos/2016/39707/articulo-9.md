@@ -1,0 +1,1 @@
+Artículo 9.- Deber de publicar listado de permisos. El Consejo de Transporte Público debe publicar, una vez al año, en el diario oficial La Gaceta y en un diario de circulación nacional las listas de las personas y unidades habilitadas para la prestación del SEETAXL

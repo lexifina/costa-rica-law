@@ -1,0 +1,10 @@
+Artículo 13.- Requisitos para la circulación de las unidades. En la circulación de vehículos autorizados para prestar el servicio especial estable de taxi se deben satisfacer las siguientes condiciones:
+a) Portar el contrato firmado entre el permisionar.io y el contratante que viaja y los documentos indicados en el artículo 4, de la Ley N° 9078, "Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial".
+b) El vehículo debe ser propiedad del permisionario o bien tener título habilitante vigente para su uso y posesión, mediante contrato de arrendamiento financiero (leasing), que deberá encontrarse debidamente protocolizado por Notario Público.
+c) Contar con la Inspección Vehicular (IVE) al día que debe realizarse cada seis meses y portarse el certificado de la TVE.
+d) Tener asignado un código único y exclusivo de identificación. Dicho código lo asigna el CTP una vez que la persona física permisionaria firme el permiso con el cual quedará inscrita la unidad, el cuál debe estar plenamente visible en los documentos de circulación o identificación que el CTP emita.
+Con el fin de lograr una mejor identificación, los códigos se asignarán de tal forma que puedan ser relacionados fácilmente con la POA dentro de la cual se presta servicio, de conformidad con la patente respectiva.
+e) Contar con placas de servicio público, distintas de las otras modalidades de servicio público, en especial de las que identifican el servicio de taxi regular, las que serán definidas por el CTP en coordinación con el Registro Nacional.
+f) Exhibir, dentro del vehículo, el código de conductor emitido por el CTP, de tal forma que sea visible a las personas usuarias del servicio.
+g) Mantener vigente, durante todo el plazo del permiso, los seguros de ley del vehículo que utilizará para prestar el servicio especial estable de taxi, con coberturas A y C, o equivalentes cuyo plazo de vigencia sea conforme a la solicitud tramitada, según lo establecido en el Artículo 42 de la Ley 9078 y 52 de la Ley 7969.
+h) Efectuar las revisiones técnicas semestrales estipuladas en la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial.

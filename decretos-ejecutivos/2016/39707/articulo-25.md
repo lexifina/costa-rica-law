@@ -1,0 +1,8 @@
+Artículo 25. De la desinscripción de la matrícula SEETAXI ante el Registro.
+El permisionario de un SEETAXI podrá solicitar su desinscripción aportando los siguientes documentos.
+1. Solicitud de desinscripción. Debe constar suscrita por el propietario registral del vehículo, debidamente autenticada en papel de seguridad notarial por un notario público o mediante escritura pública, con indicación de las calidades de ley y las características del automotor. Debe adjuntarse la Boleta de Seguridad del Notario.
+2. Nota Administrativa del Consejo de Transporte Público. Debe constar la autorización para la des inscripción del vehículo o el Acuerdo en el cual se dispuso la cancelación del permiso.
+3. Depósito de placas. Debe hacerse previamente ante el Departamento de Placas del Registro Nacional.
+4. El vehículo no debe estar gravado. Debe encontrarse libre de gravámenes judiciales y administrativos, de infracciones a la Ley N° 9078 y de gravámenes reales generados en prenda. En el caso de que existan gravámenes prendarios debe aportarse la cancelación del crédito por parte del acreedor.
+5. Derechos de circulación al día. Cuando se trate de los presupuestos señalados en el artículo 19 de la Ley N° 9078, se deberá adjuntar el comprobante de pago del impuesto a la propiedad del período fiscal vigente. (Art. 9, inciso b) Ley N° 7088 y su Reglamento).
+El Registro Nacional deberá resolver la gestión dentro del plazo de cinco días hábiles contados a partir del día siguiente de la presentación del documento, lo anterior sin perjuicio de las suspensiones al plazo que se den al realizar la prevención única de requisitos al administrado.

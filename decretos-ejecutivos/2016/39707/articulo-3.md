@@ -1,0 +1,4 @@
+CAPÍTULO II
+De los permisos de operación del SEETAXI
+Artículo 3..- Expedición de los permisos. El SEETAXI operará mediante la figura del permiso de operación, autorizado por la Junta Directiva del Consejo de Transporte Público (CTP), de conformidad con lo que se estípula en el artículo 2, de la Ley N° 7969 y sus reformas, en lo referente a estos permisos.
+En razón de los principios de proporcionalidad, razonabilidad y necesidad y siendo un servicio complementario que debe satisfacer una demanda residual del servicio de taxi, la cantidad de vehículos autorizados para brindar el Servicios Especiales estable de taxi, no podrá superar el tres por ciento de las concesiones de taxi autorizadas en la respectiva base de operación. Solo se otorgarán permisos a personas físicas, un permiso por persona, sobre un único vehículo.

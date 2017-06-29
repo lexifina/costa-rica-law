@@ -1,0 +1,5 @@
+Artículo 14.- Requisitos técnicos de las unidades. Los vehículos autorizados para prestar el servicio especial estable de taxi, deben atenerse a los siguientes requisitos técnicos:
+a) Los que se establecen en general para los automóviles en la Ley N° 9078, "Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial".
+b) Vida útil máxima de diez años, contados a partir de su año de fabricación.
+c) Los vehículos autorizados para prestar el Servicio Especial Estable de Taxi deberán ser de tipo sedan de cuatro o cinco puertas con capacidad no mayor a cinco pasajeros contando al conductor.
+d) Portar en la carrocería únicamente la información autorizada por el CTP, la cual constará en una identificación en ambas puertas con un circulo con el nombre del permisionario, con una medida de veintiocho (28) centímetros de diámetro, mismo que deberá indicar código, provincia, cantón, placa del vehículo y número de permiso, ambas figuras geométricas deberán estar pintadas y con fondo color celeste y letras negras. La identificación se hará con pintura retroreflectiva, garantizándose su durabilidad, por lo que no serán aceptadas ningún tipo de calcomanía.
