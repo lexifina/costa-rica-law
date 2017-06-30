@@ -1,1 +1,0 @@
-Artículo 5°—Para la toma de decisiones, definición de políticas, emisión de disposiciones y canalización de recursos, el Director Ejecutivo puede contar en cualquier momento, con la asesoría de consejos de capacitación existentes.

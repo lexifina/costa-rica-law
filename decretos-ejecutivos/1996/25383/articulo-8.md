@@ -1,1 +1,0 @@
-Artículo 8°—El Director General de Servicio Civil gestionará ante los organismos técnico-políticos pertinentes, una adecuada asignación de presupuesto que corresponda con las necesidades surgidas de las atribuciones que se le señalan al CECADES en este decreto.
