@@ -1,0 +1,4 @@
+Artículo 4°—Plazo de la Designación de los Representantes del Sector Privado.
+1. El período de designación de los miembros propietarios y sus suplentes será de dos años, el cual podrá ser prorrogado por períodos iguales.
+2. CADEXCO y UCCAEP respectivamente, deberán comunicar al Presidente y a la Secretaría Técnica del CONAFAC con, al menos, un mes natural de antelación al vencimiento de la designación vigente, sobre la elección y sustitución del miembro designado o bien, comunicar sobre la continuidad del miembro designado como representante.
+3. Los puestos de miembro propietario y suplentes, designados por CADEXCO o UCCAEP, serán de libre remoción por parte de CADEXCO o UCCAEP respectivamente. En el caso de remoción, CADEXCO y UCCAEP deberán enviar al Presidente y a la Secretaría Técnica del CONAFAC la comunicación de ese hecho, acompañada de la designación del nuevo representante y sus suplentes que sustituirá al miembro removido.

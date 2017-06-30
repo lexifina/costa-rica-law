@@ -1,0 +1,1 @@
+Artículo 7°—Deber de Representación del Sector Privado. Es deber de CADEXCO y UCCAEP, vigilar y procurar que cualquiera de los miembros plenos en ejercicio que les representan, designados por CADEXCO y UCCAEP, asistan a las sesiones del CONAFAC.
