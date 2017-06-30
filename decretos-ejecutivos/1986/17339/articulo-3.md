@@ -1,7 +1,2 @@
-Artículo 3º.-Las becas u otras facilidades de adiestramiento que de
-conformidad con el artículo primero de la Ley de Licencias para
-Adiestramiento de Servidores Públicos sean ofrecidas, deberán enviarse al
-Departamento de Adiestramiento de Personal de la Dirección General de
-Servicio Civil para que éste, previo estudio, las remita según
-corresponda, a las instituciones del Poder Ejecutivo, a los otros Poderes
-del Estado y al Tribunal Supremo de Elecciones.
+Artículo 3. En cumplimiento de lo estipulado por el artículo primero de la Ley 3009, el CECADES divulgará las becas y facilidades que gestione, o aquellas de las que tenga conocimiento, facilitando el acceso a la información sobre las opciones disponibles al respecto, a las unidades de capacitación o a las dependencias responsables de la capacitación, las cuales a su vez, analizarán su pertinencia y las divulgarán oportunamente en su entorno institucional.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 40608 del 30 de junio de 2017)

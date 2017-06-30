@@ -1,9 +1,2 @@
-Artículo 9º.-Las licencias para que los funcionarios públicos
-aprovechen becas o facilidades para el adiestramiento, se concederán
-mediante contrato que suscribirán la máxima autoridad del organismo
-correspondiente y el beneficiario, cuando estos excedan de tres meses.
-Transitorio único: Todos aquellos beneficiarios que a la fecha de
-publicación de este decreto no hubieren suscrito el respectivo contrato
-se considerará que actuaron de buena fe.
-(Así reformado por Decreto Nº 23737 de cinco de julio de 1994, artículo
-1º)
+Artículo 9. Las licencias para el aprovechamiento de becas o facilidades de capacitación que excedan de tres meses o de 260 horas, se concederán mediante la suscripción de un Contrato de Capacitación entre el o la jerarca institucional y la persona beneficiaria, con el refrendo de la Dirección General de Servicio Civil o su representante, salvo el caso de los servidores en condición de interinidad que lo firmarán únicamente con el o la jerarca institucional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40608 del 30 de junio de 2017)

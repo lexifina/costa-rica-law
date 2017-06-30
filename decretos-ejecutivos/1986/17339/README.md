@@ -14,3 +14,4 @@ Reglamento a la Ley de Licencias Adiestramiento Servidores Públicos
 | --- | --- | --- |
 | 1 | 1986-12-15 | la propia norma |
 | 2 | 1986-12-15 | SINALEVI (sin norma nombrada) |
+| 3 | 2017-06-30 | Decreto Ejecutivo 40608 (2017-06-30) |
