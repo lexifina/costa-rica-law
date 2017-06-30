@@ -1,2 +1,0 @@
-Artículo 11.—En el último trimestre de cada año, las Unidades de Capacitación o los funcionarios responsables directos de las actividades de capacitación, realizarán los estudios necesarios para llevar a cabo o actualizar la detección de necesidades y la planificación de la capacitación para el año siguiente, así como, para determinar el presupuesto necesario; todo en estrecha relación con los objetivos y programas prioritarios de la institución y las que al efecto fije el CECADES.
-(Así reformado mediante el artículo 1 del decreto ejecutivo N°26786 del 12 de marzo de 1998).

@@ -1,2 +1,0 @@
-Artículo 12.—En la primera quincena del mes de enero de cada año, las Unidades de Capacitación o los responsables directos de las actividades de capacitación, remitirán al CECADES el programa de actividades para el período anual que se inicia, señalando sus objetivos, actividades, calendarización, recursos disponibles y faltantes, al igual que el número de cupos que se ofrecerán como contribución a las actividades de otras Unidades del SUCADES.
-(Asi reformado mediante el artículo 1 del decreto ejecutivo N°26786 del 12 de marzo de 1998).

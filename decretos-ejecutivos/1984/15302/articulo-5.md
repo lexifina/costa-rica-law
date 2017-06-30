@@ -1,2 +1,0 @@
-Artículo 5°—El Consejo de Capacitación estará integrado por cinco miembros titulares, quienes a su vez, tendrán un suplente cada uno, elegidos en Asamblea que se efectuará en el mes de diciembre de cada año; la cual Se integrará con los encargados de las Unidades de Capacitación de las instituciones bajo el Régimen de Servicio Civil o de quienes tengan la responsabilidad directa de las actividades de capacitación en dichas instituciones.
-(Así reformado mediante el artículo 1 del decreto ejecutivo N° 26786 del 12 de marzo de 1998)

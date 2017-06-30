@@ -1,3 +1,0 @@
-Artículo 16.—Las actividades de capacitación impartidas por instituciones del SUCADES con la participación de organismos externos a éste, serán reconocidas para efectos del artículo 14 de este Reglamento, solamente si fueren organizadas y ejecutadas en coordinación previa del CECADES y tengan el aval de la respectiva Unidad de Capacitación o de quien tenga la responsabilidad directa de las actividades de capacitación en la respectiva institución.
-Dicho reconocimiento se efectuará conforme los lineamientos técnicos y administrativos que establecerá el CECADES en el Plan de Acreditación a organizaciones proveedoras de capacitación y desarrollo de servidores públicos.
-(Así reformado mediante sesión N°26786 del 12 de marzo de 1998).
