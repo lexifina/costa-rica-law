@@ -14,3 +14,4 @@ Guía de trámites y requisitos de los servicios que brinda la Dirección Genera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-06-11 | la propia norma |
+| 2 | 2017-06-30 | Decreto Ejecutivo 40612 (2017-06-30) |

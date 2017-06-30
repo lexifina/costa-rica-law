@@ -324,12 +324,13 @@ _Retirar reproducción de documento notarial el día indicado en el comprobante,
 _En el caso de un testimonio de escritura sólo se le entregará la contraseña correspondiente al solicitante o la persona autorizada en la solicitud.
 3.2.4 Copias simples:
 _ Realizar la solicitud de forma verbal.
-Plazo de resolución:
-_ Fotocopia certificada 5 días hábiles.
-_Fotocopia simple de inmediato.
-_Certificaciones y Ulterior testimonios 10 días hábiles.
-_Cuando se trata del Poder Judicial u otra instancia que solicita vía mensajería, el tiempo del trámite es de 15 días hábiles.
-_Constancias 5 días hábiles.
+(*)Plazo de resolución:
+▪ Fotocopia certificada y certificaciones 10 días hábiles.
+▪ Fotocopia simple de inmediato.
+▪ Ulteriores testimonios 15 días hábiles.
+▪ Cuando se trata del Poder Judicial u otra instancia que solicita vía mensajería, el tiempo del trámite es de 20 días hábiles.
+▪ Constancias 10 días hábiles.
+(*) (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 40612 del 30 de junio de 2017)
 Vigencia de la licencia, autorización o permiso:
 _ La vigencia depende de la Institución receptora del documento.
 Costo del trámite:
