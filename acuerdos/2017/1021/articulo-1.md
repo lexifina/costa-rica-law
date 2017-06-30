@@ -1,0 +1,21 @@
+MINISTERIO DE SALUD
+N° DM-FG-1021-2017
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE SALUD
+En uso de las atribuciones que les confieren los artículos 146 de la Constitución Política; 28 párrafo segundo inciso b) de la Ley No. 6227 de 2 mayo de 1978 “Ley General de la Administración Pública”; 1 y 2 de la Ley No. 5395 de 30 de octubre de 1973 “Ley General de Salud”.
+Considerando:
+1°—Que el Ministerio de Salud establece como Misión, que es la institución que dirige y conduce a los actores sociales para el desarrollo de acciones que protejan y mejoren el estado de salud físico, mental y social de los habitantes, mediante el ejercicio de la rectoría del Sistema Nacional de Salud, con enfoque de promoción de la salud y prevención de la enfermedad, propiciando un ambiente humano sano y equilibrado, bajo los principios de equidad, ética, eficiencia, calidad, transparencia y respeto a la diversidad.
+2°—Que el deterioro cognitivo y la demencia de cualquier tipo constituyen un problema de salud Pública en Costa Rica y el mundo, que por la transición demográfica, se ha visto incrementada en los últimos años. La demencia, en particular, es poco frecuente en personas jóvenes pero el riesgo se incrementa a partir de los 50 años. Es así como la edad se convierte en el principal factor de riesgo para ambas condiciones, en los países de América Latina con la creciente esperanza de vida, se estima que el número de casos continúe aumentando.
+3°—Que el envejecimiento de la población, así como ciertos factores de riesgo como enfermedades crónicas prevalentes, entre otras, han hecho que este padecimiento sea aún más evidente en los servicios de salud y afines, con el consecuente impacto en la calidad de vida de las personas, sus familias o cuidadores y las prestaciones sociales en los cuidados a largo plazo, tanto estructurales como económicas.
+4°—Que en Costa Rica, el sistema de registros estadísticos es deficiente y no permite la vigilancia epidemiológica efectiva, lo que impide un conocimiento real de esta condición de salud para la toma de decisiones estratégicas en servicios sociales, de salud y otros.
+5°—Que los diagnósticos de demencia y deterioro cognitivo no se encuentran incluidos dentro del Decreto Ejecutivo N° 37306-S del 27 de agosto del 2012 “Reglamento de Vigilancia de la Salud”, lo que puede ser una causa que influye en el subregistro de este tipo de patologías. El Instituto Nacional de Estadística y Censos (INEC) tampoco cuenta con este tipo de información, excepto que se incluyan como causa básica de defunción.
+6°—La Caja Costarricense de Seguro Social (CCSS) no cuenta con datos estadísticos actualizados sobre estas patologías. En la actualidad, la CCSS cuenta con algunas unidades para la atención de trastornos cognitivos. Los únicos datos sistematizados, confiables y publicados, son los que provienen de la Clínica de Memoria del Hospital Nacional de Geriatría y Gerontología Dr. Raúl Blanco Cervantes, con la limitante de que solo involucra a la población mayor de 60 años, lo que impide el cálculo de la incidencia y prevalencia nacional.
+Las estadísticas sobre deterioro cognitivo y demencia en servicios de salud privados se desconocen.
+7°—Que es necesario que cada servicio de salud y afín, tanto público como privado, registren los diagnósticos de deterioro cognitivo y demencia, como insumo a las acciones que generen lineamientos para políticas de salud a nivel nacional que favorezcan a la población adulta.
+8°—Que resulta necesario contar con una norma nacional de atención a personas adultas con deterioro cognitivo y demencia, para obtener datos más acordes al contexto nacional, que permita generar estrategias de atención integral y, por ende, mejoras de la situación actual en el tema del deterioro cognitivo y las demencias.
+9°—Que por lo anterior es conveniente y oportuno declarar de interés público y nacional la “Norma Nacional de Atención a Personas Adultas con Deterioro Cognitivo y Demencia”, y su respectiva implementación. Por tanto,
+ACUERDAN:
+OFICIALIZAR Y DECLARAR DE INTERÉS PÚBLICO Y NACIONAL
+LA “NORMA NACIONAL DE ATENCIÓN A PERSONAS ADULTAS
+CON DETERIORO COGNITIVO Y DEMENCIA”
+Artículo 1°—Oficialícese y declárese de interés público y nacional la “Norma Nacional de Atención a Personas Adultas con Deterioro Cognitivo y Demencia” y su respectiva implementación.
