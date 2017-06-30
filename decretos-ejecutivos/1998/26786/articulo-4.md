@@ -1,1 +1,0 @@
-Artículo 4°—Modifíquese el artículo 1° del Decreto Ejecutivo No 25383-MP del 03 de setiembre de 1996 J para que en lo que corresponda se lea así "...CECADES, como órgano central del Subsistema de Capacitación y Desarrollo del Régimen de Servicio Civil".

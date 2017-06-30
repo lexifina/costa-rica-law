@@ -1,1 +1,0 @@
-Artículo 2°—Sustituir las nomenclaturas "Departamento de Adiestramiento de Personal" y "Departamento de Capacitación" y similares por la de "Centro de Capacitación y Desarrollo" (CECADES), y el término "adiestramiento" por "capacitación", en los diferentes artículos de la legislación de igual o menor rango al presente Decreto Ejecutivo donde éstos aparezcan con tal denominación.
