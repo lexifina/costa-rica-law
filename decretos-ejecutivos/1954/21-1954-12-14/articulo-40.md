@@ -1,1 +1,1 @@
-Artículo 40.- Los permisos para que los servidores se acojan a invitaciones de Gobiernos o de Organismos Internacionales para viajes de representación o participación en seminarios, congresos o actividades similares, se podrán conceder con goce de sueldo por los Ministros, siempre que no excedan de tres meses.
+Artículo 40.- (Derogado por el artículo 4° del decreto ejecutivo N° 40608 del 30 de junio de 2017)

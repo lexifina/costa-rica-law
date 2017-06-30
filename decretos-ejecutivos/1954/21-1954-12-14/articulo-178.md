@@ -1,0 +1,2 @@
+Artículo 178. Se exceptúan de las restricciones estipuladas en este capítulo, las licencias que se concedan sin goce de salario, salvo cuando se trate del aprovechamiento de becas o facilidades, en cuyo caso se aplicará lo dispuesto en el artículo 7° de la Ley de Licencias para Adiestramiento de Servidores Públicos No. 3009.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 40608 del 30 de junio de 2017)

@@ -1,0 +1,2 @@
+Artículo 162. La Asamblea de Encargadas o Encargados de la Capacitación Institucional es la instancia constitutiva de representación y participación del SUCADES, que nombra a sus representantes en el Consejo de Capacitación y somete, además, a discusión y valoración aquellos asuntos de interés para las instituciones representadas. Dicha Asamblea será convocada por el CECADES.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 40608 del 30 de junio de 2017)

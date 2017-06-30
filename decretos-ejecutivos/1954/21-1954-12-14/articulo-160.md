@@ -1,0 +1,9 @@
+Artículo 160. El Consejo de Capacitación tendrá como atribuciones principales las siguientes:
+a) Colaborar con el CECADES en la unificación de estrategias y sistematización de acciones para el desarrollo integral y permanente de las organizaciones públicas y de sus recursos humanos, adoptando un papel activo en pos del logro de los cometidos.
+b) Actuar como órgano integrador y canalizador de las opiniones, necesidades y la problemática de las dependencias representadas en éste, a fin de formular las recomendaciones pertinentes al CECADES.
+c) Analizar y emitir criterios acerca de los proyectos o actividades relacionadas con el desarrollo de la capacitación en el Régimen de Servicio Civil.
+d) Contribuir al desarrollo cooperativo e innovador de los programas de capacitación en los distintos campos ocupacionales, conforme con las necesidades de modernización de las instituciones cubiertas por el Régimen de Servicio Civil.
+e) Colaborar con el CECADES en la identificación de necesidades y oportunidades de capacitación y desarrollo, así como en la búsqueda y consecución sistemáticas de recursos que procuren el beneficio equitativo de los órganos y recursos humanos del SUCADES.
+f) Proponer y ejecutar proyectos o actividades que coadyuven con el fortalecimiento de las capacidades de las personas servidoras, cuyos resultados serán compartidos con el CECADES como recomendaciones de mejora.
+El ejercicio de representación de los funcionarios del SUCADES, en el seno del Consejo de Capacitación y su participación en las actividades convocadas u organizadas por los órganos de dicho subsistema, se considerará como parte de las labores regulares asignadas al funcionario en su respectiva institución.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 40608 del 30 de junio de 2017)

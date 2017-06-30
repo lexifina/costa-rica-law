@@ -1,0 +1,2 @@
+Artículo 152. Las actividades y relaciones del SUCADES se fundamentarán en la siguiente normativa y sus reformas: el Estatuto de Servicio Civil, sus Reglamentos y reformas; la Ley N° 6362 del 03 de setiembre de 1979, la Ley N° 3009 del 18 de julio de 1962, su Reglamento y sus reformas; el presente Capítulo, así como las disposiciones y políticas que emita la Dirección General de Servicio Civil (DGSC) y el Centro de Capacitación y Desarrollo (CECADES).
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 40608 del 30 de junio de 2017)

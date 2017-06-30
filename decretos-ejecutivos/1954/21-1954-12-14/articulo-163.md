@@ -1,0 +1,4 @@
+Sección III
+Planificación y Desarrollo de la Capacitación
+Artículo 163. Las distintas acciones de capacitación por realizar en las instituciones del SUCADES, deberán contar con la autorización previa del CECADES, requiriéndose para ello su inclusión en un Plan Institucional de Capacitación (PIC). Dicho plan será flexible y susceptible de ajustarse e incorporar -de ser necesarias- aquellas acciones de capacitación no previstas puntualmente en su formulación original, o bien, aprovechar oportunidades que contribuyan a superar necesidades o situaciones laborales que surjan luego de su entrada en vigencia. Su periodicidad y las fechas de presentación al CECADES, para su respectiva revisión y aprobación, serán definidas por éste.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 40608 del 30 de junio de 2017)
