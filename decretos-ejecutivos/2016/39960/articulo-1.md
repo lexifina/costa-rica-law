@@ -552,7 +552,7 @@ CODIGO | DESCRIPCION | DAI %
 0301.11.00.00 | - - De agua dulce | 15
 0301.19.00.00 | - - Los demás | 15
 0301.9 | - Los demás peces o pescados, vivos: |
-0301.91 | - - Truchas (Salmo trutta, Oncorhynchus mykiss, Oncorhynchus clarki, Oncorhynchus aguabonita, Oncorhynchus gilae, Oncorhynchus apache y Oncorhynchus chrysogaster): |
+0301.91 | - - Truchas (salmo trutta, Oncorhynchus mykiss, Oncorhynchus clarki Oncorhynchus aguabonita, Oncorhynchus gilae, Oncorhynchus apache y Oncorhynchus chrysogaster): (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
 0301.91.10.00 | - - - Larvas para repoblación | 0
 0301.91.90.00 | - - - Otras | 10
 0301.92 | - - Anguilas (Anguilla spp.): |
@@ -571,15 +571,15 @@ CODIGO | DESCRIPCION | DAI %
 0301.99.99.00 | - - - - Los demás | 10
 03.02 | PESCADO FRESCO O REFRIGERADO, EXCEPTO LOS FILETES Y DEMAS CARNE DE PESCADO DE LA PARTIDA 03.04 |
 0302.1 | - Salmónidos, excepto los despojos comestibles de pescado de las subpartidas 0302.91 a 0302.99: |
-0302.11.00.00 | - - Truchas (Salmo trutta, Oncorhynchus mykiss, Oncorhynchus clarki, Oncorhynchus aguabonita, Oncorhynchus gilae, Oncorhynchus apache y Oncorhynchus chrysogaster) | 15
+0302.11.00.00 | - - Truchas (Salmo trutta, Oncorhynchus mykiss, Oncorhynchus clarki, Oncorhynchus aguabonita, Oncorhynchus gilae, Oncorhynchus apache y Oncorhynchus chrysogaster) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
 0302.13.00.00 | - - Salmones del Pacífico (Oncorhynchus nerka, Oncorhynchus gorbuscha, Oncorhynchus keta, Oncorhynchus tschawytscha, Oncorhynchus kisutch, Oncorhynchus masou y Oncorhynchus rhodurus) | 10
 0302.14.00.00 | - - Salmones del Atlántico (Salmo salar) y salmones del Danubio (Hucho hucho) | 10
 0302.19.00.00 | - - Los demás | 10
 0302.2 | - Pescados planos (Pleuronectidae, Bothidae, Cynoglossidae, Soleidae, Scophthalmidae y Citharidae), excepto los despojos comestibles de pescado de las subpartidas 0302.91 a 0302.99: |
-0302.21.00.00 | - - Fletanes (halibut) (Reinhardtius hippoglossoides, Hippoglossus hippoglossus, Hippoglossus stenolepis) | 10
+0302.21.00.00 | - - Fletanes (“halibut”) (Reinhardtius hippoglossoides, hippoglossus hippoglossus, hippoglossus stenolepis) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 10
 0302.22.00.00 | - - Sollas (Pleuronectes platessa) | 10
 0302.23.00.00 | - - Lenguados (Solea spp.) | 10
-0302.24.00.00 | - - Rodaballos (turbots) (Psetta maxima) | 10
+0302.24.00.00 | - - Rodaballos (“turbots”) (Pseta maxima) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 10
 0302.29.00.00 | - - Los demás | 10
 0302.3 | - Atunes (del género Thunnus), listados o bonitos de vientre rayado (Euthynnus (Katsuwonus) pelamis), excepto los despojos comestibles de pescado de las subpartidas 0302.91 a 0302.99: |
 0302.31.00.00 | - - Albacoras o atunes blancos (thunnus alalunga) | 0
@@ -640,7 +640,7 @@ CODIGO | DESCRIPCION | DAI %
 0303.11.00.00 | - - Salmones rojos (Oncorhynchus nerka) | 10
 0303.12.00.00 | - - Los demás salmones del Pacífico (Oncorhynchus gorbuscha, Oncorhynchus keta, Oncorhynchus tschawytscha, Oncorhynchus kisutch, Oncorhynchus masou y Oncorhynchus rhodurus) | 10
 0303.13.00.00 | - - Salmones del Atlántico (Salmo salar) y salmones del Danubio (Hucho hucho) | 10
-0303.14.00.00 | - - Truchas (Salmo trutta, Oncorhynchus mykiss, Oncorhynchus clarki, Oncorhynchus aguabonita, Oncorhynchus gilae, Oncorhynchus apache y Oncorhynchus chrysogaster) | 15
+0303.14.00.00 | - - Truchas (Salmo trutta, Oncorhynchus mykiss, Oncorhynchus clarki, Oncorhynchus aguabonita, Oncorhynchus gilae, Oncorhynchus apache y Oncorhynchus chrysogaster) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
 0303.19.00.00 | - - Los demás | 10
 0303.2 | - Tilapias (Oreochromis spp.), bagres o peces gato (Pangasius spp., Silurus spp., Clarias spp., Ictalurus spp.), carpas (Cyprinus spp., Carassius spp., Ctenopharyngodon idellus, Hypophthalmichthys spp., Cirrhinus spp., Mylopharyngodon piceus, Catla catla, Labeo spp., Osteochilus hasselti, Leptobarbus hoeveni, Megalobrama spp.), anguilas (Anguilla spp.), percas del Nilo (Lates niloticus) y peces cabeza de serpiente (Channa spp.), excepto los despojos comestibles de pescado de las subpartidas 0303.91 a 0303.99: |
 0303.23.00.00 | - - Tilapias (Oreochromis spp.) | 10
@@ -649,10 +649,10 @@ CODIGO | DESCRIPCION | DAI %
 0303.26.00.00 | - - Anguilas (Anguilla spp.) | 10
 0303.29.00.00 | - - Los demás | 10
 0303.3 | - Pescados planos (Pleuronectidae, Bothidae, Cynoglossidae, Soleidae, Scophthalmidae y Citharidae), excepto los despojos comestibles de pescado de las subpartidas 0303.91 a 0303.99: |
-0303.31.00.00 | - - Fletanes (halibut) (Reinhardtius hippoglossoides, Hippoglossus hippoglossus, Hippoglossus stenolepis) | 10
+0303.31.00.00 | - - Fletanes (“halibut”) ( Reinhardtius, hippoglossoides, hippoglossus hippoglossus, hippoglossus stenolepis) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 10
 0303.32.00.00 | - - Sollas (Pleuronectes platessa) | 10
 0303.33.00.00 | - - Lenguados (Solea spp.) | 10
-0303.34.00.00 | - - Rodaballos (turbots) (Psetta maxima) | 10
+0303.34.00.00 | - - Rodaballos (“turbots”) (Psseta maxima) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 10
 0303.39.00.00 | - - Los demás | 10
 0303.4 | - Atunes (del género Thunnus), listados o bonitos de vientre rayado (Euthynnus (Katsuwonus) pelamis), excepto los despojos comestibles de pescado de las subpartidas 0303.91 a 0303.99: |
 0303.41.00.00 | - - Albacoras o atunes blancos (Thunnus alalunga) | 0
@@ -709,7 +709,7 @@ CODIGO | DESCRIPCION | DAI %
 0304.48.00.00 | - - Rayas (Rajidae) | 15
 0304.49.00.00 | - - Los demás | 15
 0304.5 | - Los demás, frescos o refrigerados: |
-0304.51.00.00 | - - Tilapias (Oreochromis spp.), bagres o peces gato (Pangasius spp., Silurus spp., Clarias spp., Ictalurus spp.), carpas (Cyprinus spp., Carassius spp., Ctenopharyngodon idellus, Hypophthalmichthys spp., Cirrhinus spp., Mylopharyngodon piceus, Catla catla, Labeo spp., Osteochilus hasselti, Leptobarbus hoeveni, Megalobrama spp.), anguilas (Anguilla spp.), percas del Nilo (Lates niloticus) y peces cabeza de serpiente (Channa spp.) | 15
+0304.51.00.00 | - - Tilapias (Oreochromis spp) bagres o peces gato (pangasius spp, Silurus spp, Clarias spp, Ictalurus spp), carpas (Cyprinus spp, Carassius spp, Ctenopharyngodon idellus, Hupophthalmichthys spp, cinhinus spp, Mylopharyngodon piceus, Catla catla, Labeo spp, Osteochllus hasselti, Leptobarbus hoeveni, Megalobrama spp), anguilas (Anguilla spp), percas del Nilo (Lates niloticus) y peces cabeza de serpiente (Channa spp) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
 0304.52.00.00 | - - Salmónidos | 15
 0304.53.00.00 | - - Pescados de las familias Bregmacerotidae, Euclichthyidae, Gadidae, Macrouridae, Melanonidae, Merlucciidae, Moridae y Muraenolepididae | 15
 0304.54.00.00 | - - Peces espada (Xiphias gladius) | 15
@@ -750,7 +750,7 @@ CODIGO | DESCRIPCION | DAI %
 0304.9 | - Los demás, congelados: |
 0304.91.00.00 | - - Peces espada (Xiphias gladius) | 15
 0304.92.00.00 | - - Austromerluzas antárticas y austromerluzas negras (merluzas negras, bacalaos de profundidad, nototenias negras) (Dissostichus spp.) | 15
-0304.93.00.00 | - - Tilapias (Oreochromis spp.), bagres o peces gato (Pangasius spp., Silurus spp., Clarias spp., Ictalurus spp.), carpas (Cyprinus spp., Carassius spp., Ctenopharyngodon idellus, Hypophthalmichthys spp., Cirrhinus spp., Mylopharyngodon piceus, Catla catla, Labeo spp., Osteochilus hasselti, Leptobarbus hoeveni, Megalobrama spp.), anguilas (Anguilla spp.), percas del Nilo (Lates niloticus) y peces cabeza de serpiente (Channa spp.) | 15
+0304.93.00.00 | - - Tilapias (Oreochromis spp), bagres o peces gato (pangasius spp, Silurus spp, Clarias spp, Ictalurus spp), carpas (Cyprinus spp, carassius spp, Ctenopharyngodon idelius, Hypophthalmichthys spp, cirrhinus spp, Mylopharyngodos plceus, Catla catla, labeo spp, osteochilus hasselti, leptobarbus hoeveni, Melobrama spp), anguilas (Anguilla spp), percas del Nilo (Lates nilotlcus) y peces cabeza de serpiente (channa spp) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
 0304.94.00.00 | - - Abadejos de Alaska (Theragra chalcogramma) | 15
 0304.95.00.00 | - - Pescados de las familias Bregmacerotidae, Euclichthyidae, Gadidae, Macrouridae, Melanonidae, Merlucciidae, Moridae y Muraenolepididae, excepto el abadejos de Alaska (Theragra chalcogramma) | 15
 0304.96.00.00 | - - Cazones y demás escualos | 15
@@ -760,18 +760,18 @@ CODIGO | DESCRIPCION | DAI %
 0305.10.00.00 | - Harina, polvo y "pellets" de pescado, aptos para la alimentación humana | 0
 0305.20.00.00 | - Hígados, huevas y lechas de pescado, secos, ahumados, salados o en salmuera | 10
 0305.3 | - Filetes de pescado, secos, salados o en salmuera, sin ahumar: |
-0305.31.00.00 | - - Tilapias (Oreochromis spp.), bagres o peces gato (Pangasius spp., Silurus spp., Clarias spp., Ictalurus spp.), carpas (Cyprinus spp., Carassius spp., Ctenopharyngodon idellus, Hypophthalmichthys spp., Cirrhinus spp., Mylopharyngodon piceus, Catla catla, Labeo spp., Osteochilus hasselti, Leptobarbus hoeveni, Megalobrama spp.), anguilas (Anguilla spp.), percas del Nilo (Lates niloticus) y peces cabeza de serpiente (Channa spp.) | 15
+0305.31.00.00 | - - Tilapias (Orechromis spp) bagres o peces dato (Pangasius spp, Sillurus spp, Clarias spp, Ictalurus spp), carpas (Cyprinus spp, Carassius spp, Ctenopharyngodon, edellus, Hypophthalmichthys spp, Cirrhinus spp, Mylopharyngodon íceus, Catla catla, Labeo spp, Osteochilus hasselti, Leptobarbus hoeveni, Megalobrama spp), anguilas (Anguilla spp), percas del Nilo (Lates niloticus) y peces cabeza de serpiente (Channa spp) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publicación de la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
 0305.32.00.00 | - - Pescados de las familias Bregmacerotidae, Euclichthyidae, Gadidae, Macrouridae, Melanonidae, Merlucciidae, Moridae y Muraenolepididae | 15
 0305.39.00.00 | - - Los demás | 15
 0305.4 | - Pescado ahumado, incluidos los filetes, excepto los despojos comestibles de pescado: |
-0305.41.00.00 | - - Salmones del Pacífico (Oncorhynchus nerka, Oncorhynchus gorbuscha, Oncorhynchus keta, Oncorhynchus tschawytscha, Oncorhynchus kisutch, Oncorhynchus masou y Oncorhynchus rhodurus), salmones del Atlántico (Salmo salar) y salmones del Danubio (Hucho hucho) | 15
+0305.41.00.00 | - - Salmones del Pacífico (Oncorhynchus nerka, Oncorhynchus gorbuscha, Oncorhynchus keta, Oncorhynchus tschawytsch, Oncorhynchuskisutch, Oncorhynchus masou y Oncorhynchus rhodurus), salmones del Atlántico (salmon salar) y salmones del Danubio (Hucho hucho) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
 0305.42.00.00 | - - Arenques (Clupea harengus, Clupea pallasii) | 15
 0305.43.00.00 | - - Truchas (Salmo trutta, Oncorhynchus mykiss, Oncorhynchus clarki, Oncorhynchus aguabonita, Oncorhynchus gilae, Oncorhynchus apache y Oncorhynchus chrysogaster) | 15
-0305.44.00.00 | - - Tilapias (Oreochromis spp.), bagres o peces gato (Pangasius spp., Silurus spp., Clarias spp., Ictalurus spp.), carpas (Cyprinus spp., Carassius spp., Ctenopharyngodon idellus, Hypophthalmichthys spp., Cirrhinus spp., Mylopharyngodon piceus, Catla catla, Labeo spp., Osteochilus hasselti, Leptobarbus hoeveni, Megalobrama spp.), anguilas (Anguilla spp.), percas del Nilo (Lates niloticus) y peces cabeza de serpiente (Channa spp.) | 15
+0305.44.00.00 | - - Tilapias (Oreochromis spp), bagres o peces gato (Pangasius spp, Silurus spp, Clarias spp, Ictalurus spp), carpas (Cyprinus spp, Carssius spp, Clenopharyngofon idellus, Hypophthalmichthys spp, Cirrhinus spp, Mylopharyngodon piceus, Catla ctla, Labeo spp, Osteochilus hasselti, Leptobarbus hoeveni, Megalobrama spp), anguillas (Anguilla spp.), percas del Nilo (Lates niloticus) y peces cabeza de serpiente (Channa spp) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
 0305.49.00.00 | - - Los demás | 15
 0305.5 | - Pescado seco, excepto los despojos comestibles, incluso salado, sin ahumar: |
 0305.51.00.00 | - - Bacalaos (Gadus morhua, Gadus ogac, Gadus macrocephalus) | 15
-0305.52.00.00 | - - Tilapias (Oreochromis spp.), bagres o peces gato (Pangasius spp., Silurus spp., Clarias spp., Ictalurus spp.), carpas (Cyprinus spp., Carassius spp., Ctenopharyngodon idellus, Hypophthalmichthys spp., Cirrhinus spp., Mylopharyngodon piceus, Catla catla, Labeo spp., Osteochilus hasselti, Leptobarbus hoeveni, Megalobrama spp.), anguilas (Anguilla spp.), percas del Nilo (Lates niloticus) y peces cabeza de serpiente (Channa spp.) | 15
+0305.52.00.00 | - - Tilapias (Oreochromis spp.), bagres o peces gato (pangasius spp., Silurus spp, Clarias spp, Ictalurus spp.), carpas (cyprinus spp., Carassius spp., Ctenopharyngodon idellus, Hypophthalmichthys spp., cirrhinus spp., Osteochilus hasselti, Leptobarbus hoeveni, Megalobrama spp), anguillas (Anguilla spp), percas del Nilo (Lates niloticus) y peces cabeza de serpiente (Channa spp) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
 0305.53.00.00 | - - Pescados de las familias Bregmacerotidae, Euclichthyidae, Gadidae, Macrouridae, Melanonidae, Merlucciidae, Moridae y Muraenolepididae, excepto los bacalaos (Gadus morhua, Gadus ogac, Gadus macrocephalus) | 15
 0305.54.00.00 | - - Arenques (Clupea harengus, Clupea pallasii), anchoas (Engraulis spp.), sardinas (Sardina pilchardus, Sardinops spp.), sardinelas (Sardinella spp.), espadines (Sprattus sprattus), caballas (macarelas) (Scomber scombrus, Scomber australasicus, Scomber japonicus), caballas de la India (Rastrelliger spp.), carites (Scomberomorus spp.), jureles (Trachurus spp.), pámpanos (Caranx spp.), cobias (Rachycentron canadum), palometones plateados (Pampus spp.), papardas del Pacífico (Cololabis saira), macarelas (Decapterus spp.), capelanes (Mallotus villosus), peces espada (Xiphias gladius), bacoretas orientales (Euthynnus affinis), bonitos (Sarda spp.), agujas, marlines, peces vela o picudos (Istiophoridae) | 15
 0305.59.00.00 | - - Los demás | 15
@@ -779,13 +779,13 @@ CODIGO | DESCRIPCION | DAI %
 0305.61.00.00 | - - Arenques (Clupea harengus, Clupea pallasii) | 15
 0305.62.00.00 | - - Bacalaos (Gadus morhua, Gadus ogac, Gadus macrocephalus) | 15
 0305.63.00.00 | - - Anchoas (Engraulis spp.) | 15
-0305.64.00.00 | - - Tilapias (Oreochromis spp.), bagres o peces gato (Pangasius spp., Silurus spp., Clarias spp., Ictalurus spp.), carpas (Cyprinus spp., Carassius spp., Ctenopharyngodon idellus, Hypophthalmichthys spp., Cirrhinus spp., Mylopharyngodon piceus, Catla catla, Labeo spp., Osteochilus hasselti, Leptobarbus hoeveni, Megalobrama spp.), anguilas (Anguilla spp.), percas del Nilo (Lates niloticus) y peces cabeza de serpiente (Channa spp.) | 15
+0305.64.00.00 | - - Tilapia (Oreochromis spp), bagres o peces gato (Pangasius spp, Silurus spp, Clarias spp, Ictalurus spp) carpas (Cyprinus spp, Carassius spp, Ctenopharyngodon idellus, Hypophthalmichthys spp, Cirrhinus spp, Mylopharyngodon piceus, Catla catla, Labeo spp, Osteochilus hasselti, Leptobarbus hoeveni, Megalobrama spp), anguilas (Anguilla spp), perrcas del Nilo (Lates niloticus ) y peces cabeza de serpiente (Channa spp) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
 0305.69.00.00 | - - Los demás | 15
 0305.7 | - Aletas, cabezas, colas, vejigas natatorias y demás despojos, comestibles de pescado: |
 0305.71.00.00 | - - Aletas de tiburón | 15
 0305.72.00.00 | - - Cabezas, colas y vejigas natatorias, de pescado | 15
 0305.79.00.00 | - - Los demás | 15
-03.06 | CRUSTACEOS, INCLUSO PELADOS, VIVOS, FRESCOS, REFRIGERADOS, CONGELADOS, SECOS, SALADOS O EN SALMUERA; CRUSTACEOS AHUMADOS, INCLUSO PELADOS O COCIDOS, ANTES O DURANTE EL AHUMADO; CRUSTACEOS SIN PELAR, COCIDOS EN AGUA O VAPOR, INCLUSO REFRIGERADOS, CONGELADOS, SECOS, SALADOS O EN SALMUERA; HARINA, POLVO Y “PELLETS” DE CRUSTACEOS, APTOS PARA LA ALIMENTACION HUMANA |
+03.06 | CRUTÁCEOS, INCLUSO PELADOS, VIVOS, FRESCOS, REFRIGERADOS, CONGELADOS, SECOS, SALDOS O EN SALMUERA; CRUSTÁCEOS, INCLUSO PELADOS, AHUMADOS INCLUSO COCIDOS ANTES O DURANTE EL AHUMADO; CRUSTÁCEOS SIN PELAR, COCIDOS EN AGUA O CAPOR, INCLUSO REFRIGERADOS, CONGELADOS, SECOS, SALDOS O EN SALMUERA; HARINA, POLVO Y “PELLETS” DE CRUSTÁCEOS, APTOS PARA LA ALIMENTACIÓN HUMANA. (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
 0306.1 | - Congelados: |
 0306.11 | - - Langostas (Palinurus spp., Panulirus spp., Jasus spp.): |
 0306.11.1 | - - - Sin pelar: |
@@ -893,7 +893,7 @@ CODIGO | DESCRIPCION | DAI %
 0306.99.9 | - - - Otros: |
 0306.99.91.00 | - - - - Ahumados, incluso pelados o cocidos antes o durante el ahumado | 15
 0306.99.99.00 | - - - - Otros | 10
-03.07 | MOLUSCOS, INCLUSO SEPARADOS DE SUS VALVAS, VIVOS, FRESCOS, REFRIGERADOS, CONGELADOS, SECOS, SALADOS O EN SALMUERA; MOLUSCOS AHUMADOS, INCLUSO PELADOS O COCIDOS, ANTES O DURANTE EL AHUMADO; HARINA, POLVO Y “PELLETS” DE MOLUSCOS, APTOS PARA LA ALIMENTACION HUMANA |
+03.07 | MOLUSCOS, INCLUSO SEPARADOS DE SUS VALVAS, VIVOS, FRESCOS, REFRIGERADOS, CONGELADOS, SECOS, SALADOS O EN SALMUERA; MOLUSCOS, INCLUSO PELADOS, AHUMADOS INCLUSO COCIDOS ANTES O DURANTE EL AHUMADO; HARINA, POLVO Y “PELLETS” DE MOLUSCOS, APTOS PARA LA ALIMENTACIÓN HUMANA. (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
 0307.1 | - Ostras: |
 0307.11.00.00 | - - Vivas, frescas o refrigeradas | 10
 0307.12 | - - Congeladas: |
@@ -1022,7 +1022,8 @@ b) un contenido de extracto seco superior o igual al 70 % pero inferior o igual 
 c) moldeados o susceptibles de serlo.
 4. Este Capítulo no comprende:
 a) los productos obtenidos del lactosuero, con un contenido de lactosa superior al 95 % en peso, expresado en lactosa anhidra, calculado sobre materia seca (partida 17.02);
-b) los productos resultantes de la sustitución en la leche de uno o varios de sus componentes naturales (por ejemplo, materia grasa de tipo butírico) por otra sustancia (por ejemplo, materia grasa de tipo oléico) (partidas 19.01 ó 21.06);
+b) los productos resultantes de la sustitución en la leche de uno o varios de sus componentes naturales (por ejemplo, materia grasa de tipo butírico) por otra sustancia (por ejemplo materia grasa de tipo oleico)(partidas 19.01 ó 21.06);
+(Así reformada la nota b) anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
 c) las albúminas (incluidos los concentrados de varias proteínas de lactosuero, con un contenido de proteínas de lactosuero superior al 80 % en peso, calculado sobre materia seca) (partida 35.02) ni las globulinas (partida 35.04).
 NOTAS DE SUBPARTIDA.
 1. En la subpartida 0404.10, se entiende por lactosuero modificado el producto constituido por componentes del lactosuero, es decir, lactosuero del que se haya extraído, total o parcialmente, lactosa, proteínas o sales minerales, o al que se haya añadido componentes naturales del lactosuero, así como los productos obtenidos por mezcla de componentes naturales del lactosuero.
@@ -1231,11 +1232,11 @@ CODIGO | DESCRIPCION | DAI %
 0703.10.20.00 | - - Chalotes | II
 0703.20.00.00 | - Ajos | 15
 0703.90.00.00 | - Puerros y demás hortalizas aliáceas | 15
-07.04 | COLES, INCLUIDOS LOS REPOLLOS, COLIFLORES, COLES RIZADAS, COLINABOS Y PRODUCTOS COMESTIBLES SIMILARES DEL GENERO BRASSICA, FRESCOS O REFRIGERADOS |
+07.04 | COLES, INCLUIDOS LOS REPOLLO, COLIFLORES, COLES RIZADAS, COLINSBOD Y PRODUCTOS COMESTIBLES SIMILARES DEL GENERO BRASSICA, FRESCOS O REFRIGERADOS (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
 0704.10.00.00 | - Coliflores y brécoles ("broccoli") | 15
 0704.20.00.00 | - Coles (repollitos) de Bruselas | 15
 0704.90.00.00 | - Los demás | 15
-07.05 | LECHUGAS (LACTUCA SATIVA) Y ACHICORIAS, COMPRENDIDAS LA ESCAROLA Y LA ENDIBIA (CICHORIUM SPP.), FRESCAS O REFRIGERADAS |
+07.05 | LECHUGA (LACTUCA SATIVA) Y ACHICORIAS, COMPRENDIDAS LA ESCAROLA Y LA ENDIBIA (CICHORIUM SPP), FRESCAS Y REFRIGERADAS (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
 0705.1 | - Lechugas: |
 0705.11.00.00 | - - Repolladas | 15
 0705.19.00.00 | - - Las demás | 15
@@ -2396,7 +2397,8 @@ NOTAS.
 1. Este Capítulo no comprende:
 a) los productos de este Capítulo (excepto los de la partida 22.09) preparados para uso culinario de tal forma que resulten impropios para el consumo como bebida (generalmente, partida 21.03);
 b) el agua de mar (partida 25.01);
-c) el agua destilada, de conductibilidad o del mismo grado de pureza (partida 28.53);
+c) el agua destilada de conductividad o del mismo grado de pureza (partida 28.53);
+(Así reformada la nota c) anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
 d) las disoluciones acuosas con un contenido de ácido acético superior al 10 % en peso (partida 29.15);
 e) los medicamentos de las partidas 30.03 ó 30.04;
 f) los productos de perfumería o de tocador (Capítulo 33).
@@ -2747,7 +2749,7 @@ CODIGO | DESCRIPCION | DAI %
 2620.40.00.00 | - Que contengan principalmente aluminio | 0
 2620.60.00.00 | - Que contengan arsénico, mercurio, talio o sus mezclas, de los tipos utilizados para la extracción de arsénico o de estos metales o para la elaboración de sus compuestos químicos | 0
 2620.9 | - Los demás: |
-2620.91.00.00 | - - Que contengan antimonio, berilio, cadmio, cromo o sus mezclas | 0
+2620.91.00.00 | - - que contenga antimonio, berilio, cadmio, cromo o sus mezclas. (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 0
 2620.99.00.00 | - - Los demás | 0
 26.21 | LAS DEMAS ESCORIAS Y CENIZAS, INCLUIDAS LAS CENIZAS DE ALGAS; CENIZAS Y RESIDUOS PROCEDENTES DE LA INCINERACION DE DESECHOS Y DESPERDICIOS MUNICIPALES |
 2621.10.00.00 | - Cenizas y residuos procedentes de la incineración de desechos y desperdicios municipales | 0
@@ -3298,7 +3300,8 @@ Las partidas 29.30 (tiocompuestos orgánicos) y 29.31 (los demás compuestos ór
 Las disposiciones anteriores sólo se aplican cuando la estructura heterocíclica proceda exclusivamente de las funciones ciclantes antes citadas.
 8. En la partida 29.37:
 a) el término hormonas comprende los factores liberadores o estimulantes de hormonas, los inhibidores de hormonas y los antagonistas de hormonas (antihormonas);
-b) la expresión utilizados principalmente como hormonas se aplica no solamente a los derivados de hormonas y a sus análogos estructurales utilizados principalmente por su acción hormonal, sino también a los derivados y análogos estructurales de hormonas utilizados principalmente como intermedios en la síntesis de productos de esta partida.
+b) la expresión utilizados principalmente como hormonas, se aplica no solamente a los derivados de hormonas y a sus análogos estructurales utilizados principalmente por su acción hormonal, sino también a los derivados y análogos estructurales de hormonas utilizados principalmente como intermedios en la síntesis de productos de esta partida.
+(Así reformada la nota b) anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
 NOTAS DE SUBPARTIDA.
 1. Dentro de una partida de este Capítulo, los derivados de un compuesto químico (o de un grupo de compuestos químicos) se clasifican en la misma subpartida que el compuesto (o grupo de compuestos), siempre que no estén comprendidos más específicamente en otra subpartida y que no exista una subpartida residual "Los/Las demás" en la serie de subpartidas involucradas.
 2. La Nota 3 del Capítulo 29 no se aplica a las subpartidas de este Capítulo.
@@ -3678,7 +3681,7 @@ CODIGO | DESCRIPCION | DAI %
 2918.19.90 | + + SUPRIMIDA + + |
 2918.2 | - Acidos carboxílicos con función fenol, pero sin otra función oxigenada, sus anhídridos, halogenuros, peróxidos, peroxiácidos y sus derivados: |
 2918.21.00.00 | - - Acido salicílico y sus sales | 0
-2918.22.00.00 | - - Acido o-acetilsalicílico, sus sales y sus ésteres | 0
+2918.22.00.00 | - - Acido o acetilsalicílico, sus sales y sus ésteres (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 0
 2918.23.00.00 | - - Los demás ésteres del ácido salicílico y sus sales | 0
 2918.29.00.00 | - - Los demás | 0
 2918.30.00.00 | - Acidos carboxílicos con función aldehído o cetona, pero sin otra función oxigenada, sus anhídridos, halogenuros, peróxidos, peroxiácidos y sus derivados | 0
@@ -3716,9 +3719,9 @@ CODIGO | DESCRIPCION | DAI %
 29.21 | COMPUESTOS CON FUNCION AMINA |
 2921.1 | - Monoaminas acíclicas y sus derivados; sales de estos productos: |
 2921.11.00.00 | - - Mono-, di- o trimetilamina y sus sales | 0
-2921.12.00.00 | - - Clorhidrato de 2-cloroetil (N,N-dimetilamina) (CAS 4584-46-7) | 0
-2921.13.00.00 | - - Clorhidrato de 2-cloroetil (N,N-dietilamina) (CAS 869-24-9 | 0
-2921.14.00.00 | - - Clorhidrato de 2-cloroetil (N,N-diisopropilamina) (CAS 4261-68-1) | 0
+2921.12.00.00 | - - Clorhidrato de 2- cloroetil (N,N-diisopropilamina)(CAS4261-68-1) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 0
+2921.13.00.00 | - - Clorhidrato de 2-cloroetil (N,N-dietilamina) (CAS 869-24-9) (CAS 869-24-9 (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 0
+2921.14.00.00 | - - Clorhidrato de 2-cloroetil (N,N-diisopropilamina (CAS 4261-68-1) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 0
 2921.19 | - - Los demás: |
 2921.19.10.00 | - - - Dietilamina y sus sales | 0
 2921.19.2 | - - - Etilaminas, sus sales y sus derivados, distintos de los comprendidos en el inciso 2921.19.10.00: |
@@ -3929,7 +3932,7 @@ CODIGO | DESCRIPCION | DAI %
 2933.2 | - Compuestos cuya estructura contenga uno o más ciclos imidazol (incluso hidrogenado), sin condensar: |
 2933.21.00.00 | - - Hidantoína y sus derivados | 0
 2933.29.00.00 | - - Los demás | 0
-2933.3 | - Compuestos cuya estructura contenga ciclo piridina (incluso hidrogenado), sin condensar: |
+2933.3 | - Compuesto cuya estructura contenga uno o más ciclospiridina (incluso hidrogenado), sin condensar: (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
 2933.31.00.00 | - - Piridina y sus sales | 0
 2933.32.00.00 | - - Piperidina y sus sales | 0
 2933.33.00.00 | - - Alfentanilo (DCI), anileridina (DCI), bezitramida (DCI), bromazepam (DCI), cetobemidona (DCI), difenoxilato (DCI), difenoxina (DCI), dipipanona (DCI), fenciclidina (DCI) (PCP), fenoperidina (DCI), fentanilo (DCI), metilfenidato (DCI), pentazocina (DCI), petidina (DCI), intermedio A de la petidina (DCI), pipradrol (DCI), piritramida (DCI), propiram (DCI) y trimeperidina (DCI); sales de estos productos | 0
@@ -4054,7 +4057,8 @@ PRODUCTOS FARMACEUTICOS
 NOTAS.
 1. Este Capítulo no comprende:
 a) los alimentos dietéticos, alimentos enriquecidos, alimentos para diabéticos, complementos alimenticios, bebidas tónicas y el agua mineral (Sección IV), excepto las preparaciones nutritivas para administración por vía intravenosa;
-b) Las preparaciones, tales como comprimidos, gomas de mascar o parches autoadhesivos (que se administran por vía transdérmica), diseñados para ayudar a los fumadores que intentan dejar de fumar (partidas 21.06 ó 38.24);
+b) Las preparaciones, tales como comprimidos, gomas de marcar o parches autoadhesivos (que se administran por vía transdérmica), diseñadas para ayuda a los fumadores que intentan dejar de fumar (partidas 21.06 ó 38.24);
+(Así reformada la nota b) anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
 c) el yeso fraguable especialmente calcinado o finamente molido para uso en odontología (partida 25.20);
 d) los destilados acuosos aromáticos y las disoluciones acuosas de aceites esenciales, medicinales (partida 33.01);
 e) las preparaciones de las partidas 33.03 a 33.07, incluso si tienen propiedades terapéuticas o profilácticas;
@@ -4235,7 +4239,7 @@ CODIGO | DESCRIPCION | DAI %
 3006.40.00.00 | - Cementos y demás productos de obturación dental; cementos para la refección de los huesos | 0
 3006.50.00.00 | - Botiquines equipados para primeros auxilios | II
 3006.60.00.00 | - Preparaciones químicas anticonceptivas a base de hormonas, de otros productos de la partida 29.37 o de espermicidas | 0
-3006.70.00.00 | - Preparaciones en forma de gel, concebidas para ser utilizadas en medicina o veterinaria como lubricante para ciertas partes del cuerpo en operaciones quirúrgicas o exámenes médicos o como nexo entre el cuerpo y los instrumentos médicos | 0
+3006.70.00.00 | - Preparaciones en forma de gel, concebidas para ser utilizadas en medicina o veterinaria como lubricante para ciertas partes del cuerpo, en operaciones quirúrgicas o exámenes médicos o como nexo entre el cuerpo y los instrumentos médicos. (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 0
 3006.9 | - Los demás: |
 3006.91.00.00 | - - Dispositivos identificables para uso en estomas | 0
 3006.92.00.00 | - - Desechos farmacéuticos | 15
@@ -4762,7 +4766,8 @@ NOTAS DE SUBPARTIDA
 La subpartida 3808.59 comprende también las preparaciones en polvo que contengan una mezcla de benomilo (ISO), de carbofurano (ISO) y de thiram (ISO).
 2. Las subpartidas 3808.61 a 3808.69 comprenden únicamente productos de la partida 38.08, que contengan alfa-cipermetrina (ISO), bendiocarb (ISO), bifentrina (ISO), ciflutrina (ISO), clorfenapir (ISO), deltametrina (DCI, ISO), etofenprox (DCI), fenitrotión (ISO), lambda-cialotrina (ISO), malatión (ISO), pirimifos-metil (ISO) o propoxur (ISO).
 3. Las subpartidas 3824.81 a 3824.88 comprenden únicamente las mezclas y preparaciones que contengan una o más de las sustancias siguientes: oxirano (óxido de etileno), bifenilos polibromados (PBB), bifenilos policlorados (PCB), terfenilos policlorados (PCT), fosfato de tris(2,3-dibromopropilo), aldrina (ISO), canfecloro (ISO) (toxafeno), clordano (ISO), clordecona (ISO), DDT (ISO) (clofenotano (DCI), 1,1,1-tricloro-2,2-bis(p-clorofenil)etano), dieldrina (ISO, DCI), endosulfán (ISO), endrina (ISO), heptacloro (ISO), mirex (ISO), 1,2,3,4,5,6-hexaclorociclohexano (HCH (ISO)), incluido el lindano (ISO, DCI), pentaclorobenceno (ISO), hexaclorobenceno (ISO), ácido perfluorooctano sulfónico o sus sales, perfluorooctano sulfonamidas, fluoruro de perfluorooctano sulfonilo o éteres tetra-, penta-, hexa-, hepta- u octabromodifenílicos.
-4. En las subpartidas 3825.41 y 3825.49, se entenderá por desechos de disolventes orgánicos, los desechos que contengan principalmente disolventes orgánicos impropios para su utilización inicial, aunque no se destinen a la recuperación de éstos.
+4.En las subpartidas 3825.41 y 3825.49, se entiende por desechos de disolventes orgánicos, los desechos que contengan principalmente disolventes orgánicos impropios para su utilización inicial, aunque se destinen a la recuperación de éstos.
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
 NOTAS COMPLEMENTARIAS CENTROAMERICANAS.
 A. El inciso arancelario 3823.11.00.00 comprende también el ácido esteárico comercial, constituido por las mezclas de ácidos grasos industriales, sólidos a la temperatura normal, con un contenido de ácido esteárico puro superior o igual al 30 % pero inferior al 90 % en peso, del producto anhidro.
 Las mezclas con un contenido de ácido esteárico puro superior o igual al 90 % en peso, se clasifican en el inciso arancelario 2915.70.00.00.
@@ -4970,7 +4975,7 @@ CODIGO | DESCRIPCION | DAI %
 3824.87.00.00 | - - Que contengan ácido perfluorooctano sulfónico o sus sales, perfluorooctano sulfonamidas o fluoruro de perfluorooctano sulfonilo | 10
 3824.88.00.00 | - - Que contengan éteres tetra-, penta-, hexa-, hepta- u octabromodifenílicos | 10
 3824.9 | - Los demás: |
-3824.91.00.00 | - - Mezclas y preparaciones constituidas esencialmente de metilfosfonato de (5-etil-2-metil-2-oxido-1,3,2-dioxafosfinan-5-il)metil metilo y metilfosfonato de bis((5-etil-2-metil-2-oxido-1,3,2-dioxafosfinan-5-il)metilo) | 10
+3824.91.00.00 | - - Mezclas y preparaciones constituidas esencialmente de metilfosfonato de (5-etil-2-metil-2-óxido-1,2,3-dioxafosfinan-5-il) metil metilo y metilfosfonato de bis ((5-etil-2-metil-2-óxido-1,2,3-dioxafosfinan-5-il)metilo) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 10
 3824.99 | - - Los demás: |
 3824.99.10.00 | - - - Preparaciones para caucho o plástico, no expresadas ni comprendidas en otra parte | 0
 3824.99.20.00 | - - - Gelificantes, endurecedores, agentes antipiel y demás preparaciones, para pinturas y barnices, no expresados ni comprendidos en otra parte | 0
@@ -5013,7 +5018,7 @@ CODIGO | DESCRIPCION | DAI %
 3825.61.00.00 | - - Que contengan principalmente componentes orgánicos | 10
 3825.69.00.00 | - - Los demás | 10
 3825.90.00.00 | - Los demás | 10
-3826.00.00.00 | BIODIESEL Y SUS MEZCLAS, SIN ACEITES DE PETROLEO O DE MINERAL BITUMINOSO O CON UN CONTENIDO INFERIOR AL 70 % EN PESO DE DICHOS ACEITES | 10
+3826.00.00.00 | BIODIESEL Y SUS MEZCLAS, SIN ACEITES DE PETROLEO O DE MINERAL BITUMINOSO O CON UN CONTENIDO INFERIOR AL 70% EN PESO DE ESTOS ACEITES (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 10
 SECCION VII
 PLASTICO Y SUS MANUFACTURAS; CAUCHO Y SUS MANUFACTURAS
 NOTAS.
@@ -5787,7 +5792,8 @@ m) los botones, botones de presión, formas para botones y demás partes de boto
 3. A) Además de lo dispuesto en la Nota 2 anterior, la partida 42.02 no comprende:
 a) las bolsas de hojas de plástico, con asas, no concebidas para un uso prolongado, incluso impresas (partida 39.23);
 b) los artículos de materia trenzable (partida 46.02).
-B) Las manufacturas comprendidas en las partidas 42.02 y 42.03 con partes de metal precioso o de chapados de metal precioso (plaqué), de perlas finas (naturales) o cultivadas o de piedras preciosas o semipreciosas (naturales, sintéticas o reconstituidas) permanecen incluidas en estas partidas, incluso si dichas partes exceden la función de simples accesorios o adornos de mínima importancia, a condición de que tales partes no confieran a las manufacturas su carácter esencial. Si, por el contrario, esas partes confieren a las manufacturas su carácter esencial, éstas deben clasificarse en el Capítulo 71.
+B) Las manufacturas comprendidas en las partidas 42.02 y 42.03 con partes de metal precioso o de chapados de metal precioso (plaqué), de perlas finas (naturales) o cultivadas o de piedras preciosas o semipreciosas (naturales, sintéticas o reconstruidas) permanecen incluidas en estas partidas, incluso si dichas partes exceden la función de simples accesorios o adornos de mínima importancia, siempre que tales partes no confieran a las manufacturas su carácter esencial. Si, por el contrario, esas partes confieren a las manufacturas su carácter esencial, éstas deben clasificarse en el Capítulo 71.
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
 4. En la partida 42.03 la expresión prendas y complementos (accesorios), de vestir se refiere, entre otros, a los guantes, mitones y manoplas (incluidos los de deporte y los de protección), a los delantales y demás equipos especiales de protección individual para cualquier oficio, a los tirantes (tiradores), cinturones, bandoleras, brazaletes y muñequeras, excepto las pulseras para relojes (partida 91.13).
 CODIGO | DESCRIPCION | DAI %
 4201.00.00.00 | ARTICULOS DE TALABARTERIA O GUARNICIONERIA PARA TODOS LOS ANIMALES (INCLUIDOS LOS TIROS, TRAILLAS, RODILLERAS, BOZALES, SUDADEROS, ALFORJAS, ABRIGOS PARA PERROS Y ARTICULOS SIMILARES), DE CUALQUIER MATERIA | 15
@@ -5841,7 +5847,8 @@ f) los artículos del Capítulo 95 (por ejemplo: juguetes, juegos, artefactos
 deportivos).
 3. Se clasifican en la partida 43.03, la peletería y partes de peletería, ensambladas con otras materias, y la peletería y partes de peletería, cosidas formando prendas, partes de prendas, complementos (accesorios), de vestir u otros artículos.
 4. Se clasifican en las partidas 43.03 ó 43.04, según los casos, las prendas y complementos (accesorios), de vestir, de cualquier clase (excepto los excluidos de este Capítulo por la Nota 2), forrados interiormente con peletería natural o con peletería facticia o artificial, así como las prendas y complementos (accesorios), de vestir, con partes exteriores de peletería natural o peletería facticia o artificial, cuando dichas partes no sean simples guarniciones.
-5. En la Nomenclatura, se consideran peletería facticia o artificial las imitaciones de peletería obtenidas con lana, pelo u otras fibras, aplicados por pegado o cosido, sobre cuero, tejido u otras materias, excepto las imitaciones obtenidas por tejido o por punto (partidas 58.01 ó 60.01, generalmente).
+5. En la Nomenclatura, se consideran peletería facticia o artificial las imitaciones de peletería obtenidas con lana, pelo u otras fibras, aplicados por pegado o cosido, sobre cuero, tejido u otras materias, excepto las imitaciones obtenidas por tejido o por punto (partidas 58.01 ó 60.01, generalmente)
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
 CODIGO | DESCRIPCION | DAI %
 43.01 | PELETERIA EN BRUTO (INCLUIDAS LAS CABEZAS, COLAS, PATAS Y DEMAS TROZOS UTILIZABLES EN PELETERIA), EXCEPTO LAS PIELES EN BRUTO DE LAS PARTIDAS 41.01, 41.02 ó 41.03 |
 4301.10.00.00 | - De visón, enteras, incluso sin la cabeza, cola o patas | 15
@@ -6058,7 +6065,7 @@ CODIGO | DESCRIPCION | DAI %
 4412.3 | - Las demás maderas contrachapadas, constituidas exclusivamente por hojas de madera (excepto de bambú) de espesor unitario inferior o igual a 6 mm: |
 4412.31.00.00 | - - Que tengan, por lo menos, una hoja externa de maderas tropicales | 10
 4412.32.00 | + + SUPRIMIDA ++ |
-4412.33.00.00 | - - Las demás, que tengan, por lo menos, una hoja externa de madera distinta de la de coníferas, de las especies: aliso (Alnus spp.), fresno (Fraxinus spp.), haya (Fagus spp.), abedul (Betula spp.), cerezo (Prunus spp.), castaño (Castanea spp.), olmo (Ulmus spp.), eucalipto (Eucalyptus spp.), caria o pacana (Carya spp.), castaño de indias (Aesculus spp.), tilo (Tilia spp.), arce (Acer spp.), roble (Quercus spp.), plátano (Platanus spp.), álamo (Populus spp.), algarrobo negro (Robinia spp.), árbol de tulipán (Liriodendron spp.) o nogal (Juglans spp.) | 10
+4412.33.00.00 | - - Las demás, que tengan por lo menos, una hoja externa de madera distinta de la de coníferas, de las especies: aliso (Alnus spp), fresno (Fraxinus spp), haya )Fagus spp), abedul (Betula spp), cerezo (Prunus spp), castaño (Castanea spp), olmo (Ulmus spp), eucalipto (Eucalyptus spp), caria o pacana (Carya spp), castaño de Indias (Aesculus spp), tilo (Tilia spp), arce (Hacer spp), roble(Quercus spp), plátano (Platanus spp), álamo (Poputus spp), algarrobo negro (Robinia spp), árbol de tulipán (Liriodendron spp) o nogal (Juglans spp) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 10
 4412.34.00.00 | - - Las demás, que tengan, por lo menos, una hoja externa de madera distinta de la de coníferas, no especificadas en la subpartida 4412.33 | 10
 4412.39.00.00 | - - Las demás, con las dos hojas externas de madera de coníferas | 10
 4412.9 | - Las demás: |
@@ -6096,7 +6103,7 @@ CODIGO | DESCRIPCION | DAI %
 4418.50.00.00 | - Tablillas para cubierta de tejados o fachadas ("shingles" y "shakes") | 15
 4418.60.00.00 | - Postes y vigas | 15
 4418.7 | - Tableros ensamblados para revestimiento de suelo: |
-4418.73 | - - De bambú o que tengan al menos la capa superior de bambú: |
+4418.73 | - - De bambú o que tengan por lo menos la capa superior de bambú: (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
 4418.73.10.00 | - - - Para suelos en mosaico | 15
 4418.73.20.00 | - - - Los demás, multicapas | 15
 4418.73.90.00 | - - - Otros | 15
@@ -6241,7 +6248,8 @@ c) los papeles perfumados y los papeles impregnados o recubiertos de cosméticos
 d) el papel y la guata de celulosa impregnados, recubiertos o revestidos de jabón o de detergentes (partida 34.01), o de cremas, encáusticos, abrillantadores (lustres) o preparaciones similares (partida 34.05);
 e) el papel y cartón sensibilizados de las partidas 37.01 a 37.04;
 f) el papel impregnado con reactivos de diagnóstico o de laboratorio (partida 38.22);
-g) el plástico estratificado con papel o cartón, los productos constituidos por una capa de papel o cartón recubiertos o revestidos de una capa de plástico cuando el espesor de este último sea superior a la mitad del espesor total, y las manufacturas de estas materias, excepto los revestimientos para paredes de la partida 48.14 (Capítulo 39);
+g) el plástico estratificado con papel o cartón, los productos constituidos por una capa de papel o cartón recubiertos o revestidos de una capa de plástico cuando el espesor de esta última sea superior a la mitad del espesor total, y las manufacturas de estas materias, excepto los revestimientos para paredes de la partida 48.14 (capítulo 39
+(Así reformada la nota g) anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
 h) los artículos de la partida 42.02 (por ejemplo: artículos de viaje);
 ij) los artículos del Capítulo 46 (manufacturas de espartería o cestería);
 k) los hilados de papel y los artículos textiles de hilados de papel (Sección XI);
@@ -6309,7 +6317,8 @@ Dirección longitudinal de la máquina | Dirección longitudinal de la máquina 
 4. La subpartida 4805.12 comprende el papel en bobinas (rollos), compuesto principalmente de pasta de paja obtenida por la combinación de procedimientos mecánico y químico, de peso superior o igual a 130 g/m2 y con una resistencia al aplastamiento según el método CMT 30 (Corrugated Medium Test con 30 minutos de acondicionamiento) superior a 1.4 newtons/g/m2 para una humedad relativa de 50 %, a una temperatura de 23 °C.
 5. Las subpartidas 4805.24 y 4805.25 comprenden el papel y cartón compuestos exclusiva o principalmente de pasta de papel o cartón reciclado (de desperdicios y desechos). El papel "Testliner” puede igualmente tener una capa superficial de papel coloreado o compuesto de pasta blanqueada o cruda, sin reciclar. Estos productos tienen un índice de estallido Mullen superior o igual a 2 kPa.m2 /g.
 6. En la subpartida 4805.30, se entiende por papel sulfito para envolver, el papel satinado en una cara en el que el contenido de fibras de madera obtenidas por el procedimiento químico al sulfito sea superior al 40 % en peso del contenido total de fibra, con un contenido de cenizas inferior o igual al 8 % y con un índice de estallido Mullen superior o igual a 1.47 kPa.m2/g.
-7. En la subpartida 4810.22, se entiende por papel estucado o cuché ligero (liviano) (“L.W.C.”) (“light-weight coated”), el papel estucado en las dos caras, de peso inferior o igual a 72 g/m2, con un peso de la capa de estucado inferior o igual a 15 g/m2 por cada cara, con un soporte constituido por fibras de madera obtenidas por procedimiento mecánico, cuyo contenido sea superior o igual al 50 % en peso del contenido total de fibra.
+7. En la subpartida 4810.22, se entiende por papel estucado o cuché ligero (liviano)(“L.W.C)(“light-weight coated”), el papel estucado en las dos caras, de peso inferior o igual a 72g/m2, con un peso de la capa de estucado inferior o igual a 15 g/m2 de madera obtenidas por procedimiento mecánico, cuyo contenido sea superior o igual al 50% en peso del contenido total de fibra.
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
 NOTA COMPLEMENTARIA CENTROAMERICANA.
 A. En los incisos arancelarios 4804.31.10.00 y 4804.39.10.00, se entiende por papel para cerillos el papel Kraft 100 % sin satinar, sin poros y sin grumos de pasta, de peso superior o igual a 50 g/m2, pero inferior o igual a 60 g/m2, rasgado en dirección paralela superior a 35 g/m2 y en dirección transversal a la fibra, superior a 60 g/m2, con alargamiento a la tracción longitudinal mínima del 2 %.
 CÓDIGO | DESCRIPCIÓN | DAI %
@@ -7159,7 +7168,7 @@ CODIGO | DESCRIPCION | DAI %
 5301.21.00.00 | - - Agramado o espadado | 0
 5301.29.00.00 | - - Los demás | 0
 5301.30.00.00 | - Estopas y desperdicios de lino | 0
-53.02 | CAÑAMO (CANNABIS SATIVA L.) EN BRUTO O TRABAJADO, PERO SIN HILAR; ESTOPAS Y DESPERDICIOS DE CAÑAMO (INCLUIDOS LOS DESPERDICIOS DE HILADOS Y LAS HILACHAS) |
+53.02 | CAÑAMO (CANNABIS SATIVA L.) EN BRUTO O TRABAJADO, PERO SIN HILAR; ESTOPA Y DESPERDICIOS DE CAÑAMO (INCLUIDOS LOS DESPERDICIOS DE HILADOS Y LAS HILACHAS) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
 5302.10.00.00 | - Cáñamo en bruto o enriado | 0
 5302.90.00.00 | - Los demás | 0
 53.03 | YUTE Y DEMAS FIBRAS TEXTILES DEL LIBER (EXCEPTO EL LINO, CAÑAMO Y RAMIO), EN BRUTO O TRABAJADOS, PERO SIN HILAR; ESTOPAS Y DESPERDICIOS DE ESTAS FIBRAS (INCLUIDOS LOS DESPERDICIOS DE HILADOS Y LAS HILACHAS) |
@@ -7167,7 +7176,7 @@ CODIGO | DESCRIPCION | DAI %
 5303.10.10.00 | - - Kenaf | 0
 5303.10.90.00 | - - Otras | 0
 5303.90.00.00 | - Los demás | 0
-53.05 | COCO, ABACA (CAÑAMO DE MANILA (MUSA TEXTILIS NEE)), RAMIO Y DEMAS FIBRAS TEXTILES VEGETALES NO EXPRESADAS NI COMPRENDIDAS EN OTRA PARTE, EN BRUTO O TRABAJADAS, PERO SIN HILAR; ESTOPAS Y DESPERDICIOS DE ESTAS FIBRAS (INCLUIDOS LOS DESPERDICIOS DE HILADOS Y LAS HILACHAS) |
+53.05 | COCO, ABACA, (CAÑAMO DE MANILA (MUSA TEXTILIS NEE)), RAMIO Y DEMAS FIBRAS TEXTILES VEGETALES NO EXPRESADAS NI COMPRENDIDAS EN OTRA PARTE, EN BRUTO O TRABAJADAS, PERO SIN HILAR; ESTOPAS Y DESPERDICIOS DE ESTAS FIBRAS (INCLUIDOS LOS DESPERDICIOS DE HILADOS Y LAS HILACHAS) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
 5305.00.1 | - Sisal y demás fibras textiles del género agave, en bruto: |
 5305.00.11.00 | - - Cabuya y henequén | 0
 5305.00.19.00 | - - Las demás | 0
@@ -7238,7 +7247,7 @@ CODIGO | DESCRIPCION | DAI %
 5402.44.30.00 | - - - De los demás poliésteres | 5
 5402.44.90.00 | - - - Otros | 5
 5402.45.00.00 | - - Los demás, de nailon o demás poliamidas | 0
-5402.46.00.00 | - - Los demás, de poliésteres parcialmente orientados | 0
+5402.46.00.00 | - - Los demás, de poliésteres, parcialmente orientados (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 0
 5402.47.00.00 | - - Los demás, de poliésteres | 0
 5402.48.00.00 | - - Los demás, de polipropileno | 5
 5402.49.00.00 | - - Los demás | 5
@@ -7539,7 +7548,8 @@ d) la mica aglomerada o reconstituida con soporte de fieltro o tela sin tejer (p
 e) las hojas y tiras delgadas de metal con soporte de fieltro o tela sin tejer (generalmente Secciones XIV o XV);
 f) las compresas y los tampones higiénicos, pañales para bebés y artículos similares de la partida 96.19.
 2. El término fieltro comprende también el fieltro punzonado y los productos constituidos por una capa de fibra textil cuya cohesión se ha reforzado mediante costura por cadeneta con las fibras de la propia capa.
-3. Las partidas 56.02 y 56.03 comprenden respectivamente el fieltro y la tela sin tejer, impregnados, recubiertos, revestidos o estratificados con plástico o caucho, cualquiera que sea la naturaleza de estas materias (compacta o celular).
+3. Las partidas 56.02 y 56.03 comprenden, respectivamente, el fieltro y la tela sin tejer, impregnados, recubiertos, revestidos o estratificados con plástico o caucho, cualquiera que sea la naturaleza de estas materias (compacta o celular)
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
 La partida 56.03 comprende, además, la tela sin tejer aglomerada con plástico o caucho.
 Las partidas 56.02 y 56.03 no comprenden, sin embargo:
 a) el fieltro impregnado, recubierto, revestido o estratificado, con plástico o caucho, con un contenido de materia textil inferior o igual al 50 % en peso, así como el fieltro inmerso totalmente en plástico o caucho (Capítulos 39 ó 40);
@@ -8019,7 +8029,8 @@ a) los artículos de la partida 62.12;
 b) los artículos de prendería de la partida 63.09;
 c) los artículos de ortopedia, tales como bragueros para hernias, fajas medicoquirúrgicas (partida 90.21).
 3. En las partidas 61.03 y 61.04:
-a) Se entiende por trajes (ambos o ternos) y trajes sastre los surtidos formados por dos o tres prendas de vestir confeccionadas en su superficie exterior con la misma tela y compuestos por:
+a) Se entiende por trajes (ambos o temos) y trajes sastre los surtidos formados por dos o tres prendas de vestir confeccionadas en su superficie exterior con la misma tela y compuesto por:
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
 - una sola chaqueta (saco) que cubra la parte superior del cuerpo, cuyo exterior, excepto las mangas, esté constituido por cuatro o más piezas, eventualmente acompañada de un solo chaleco sastre en el que su parte delantera esté confeccionada con la misma tela que la superficie exterior de los demás componentes del surtido y cuya espalda sea de la misma tela que el forro de la chaqueta (saco); y
 - una sola prenda que cubra la parte inferior del cuerpo y que consista en un pantalón largo, un pantalón corto (calzón), un short (excepto de baño), una falda o una falda pantalón, sin tirantes (tiradores) ni peto.
 Todos los componentes del traje (ambo o terno) o del traje sastre deberán confeccionarse con una tela de la misma estructura, color y composición; además, deberán ser del mismo estilo y de tallas correspondientes o compatibles. Sin embargo, estos componentes pueden presentar un vivo (tira de tela cosida a las costuras) de una tela diferente.
@@ -8028,7 +8039,8 @@ Aunque no cumplan todas las condiciones antes citadas, la expresión trajes (amb
 - el chaqué, en el que la chaqueta (saco), lisa, presenta faldones redondeados que descienden muy bajo hacia atrás, con un pantalón de rayas verticales;
 - el frac, hecho generalmente de tela negra, con una chaqueta (saco) relativamente corta por delante, que se mantiene abierta, con los faldones estrechos, escotados en las caderas y colgantes por detrás;
 - el esmoquin, en el que la chaqueta (saco), aunque quizás permita mayor visibilidad de la pechera, es de corte similar al de la chaqueta (saco) común y presenta la particularidad de llevar solapas brillantes de seda o de imitación de seda.
-b) Se entiende por conjunto un surtido de prendas de vestir (excepto los artículos de las partidas 61.07, 61.08 ó 61.09) que comprenda varias prendas confeccionadas con una misma tela, acondicionado para la venta al por menor y compuesto por:
+b) Se extiende por conjunto un surtido de prendas de vestir (excepto los artículos de las partidas 61.07 , 61.08 ó 61.09) que comprenda varias prendas confeccionadas con una misma tela, acondicionado para la venta al por menor y compuesto por:
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
 - una sola prenda que cubra la parte superior del cuerpo, excepto el "pullover" que puede constituir una segunda prenda exterior solamente en el caso de los "twinset" o un chaleco que puede constituir una segunda prenda en los demás casos; y
 - una o dos prendas diferentes que cubran la parte inferior del cuerpo y que consistan en un pantalón largo, un pantalón con peto, un pantalón corto (calzón), un short (excepto de baño), una falda o una falda pantalón.
 Todos los componentes del conjunto deben tener la misma estructura, estilo, color y composición; además, deben ser de tallas correspondientes o compatibles. El término conjunto no comprende los conjuntos de abrigo para entrenamiento o deporte ni los monos (overoles) y conjuntos de esquí, de la partida 61.12.
@@ -8223,7 +8235,8 @@ NOTAS.
 a) los artículos de prendería de la partida 63.09;
 b) los artículos de ortopedia, tales como bragueros para hernias, fajas medicoquirúrgicas (partida 90.21).
 3. En las partidas 62.03 y 62.04:
-a) Se entiende por trajes (ambos o ternos) y trajes sastre los surtidos formados por dos o tres prendas de vestir confeccionadas en su superficie exterior con la misma tela y compuestos por:
+a) Se entiende por trajes (ambos o temos) y trajes sastre los surtidos formados por dos o tres prendas de vestir confeccionadas en su superficie exterior con la misma tela y compuesto por:
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
 - una sola chaqueta (saco) que cubra la parte superior del cuerpo, cuyo exterior, excepto las mangas, esté constituido por cuatro o más piezas, eventualmente acompañada de un solo chaleco sastre en el que su parte delantera esté confeccionada con la misma tela que la superficie exterior de los demás componentes del surtido y cuya espalda sea de la misma tela que el forro de la chaqueta (saco); y
 - una sola prenda que cubra la parte inferior del cuerpo y que consista en un pantalón largo, un pantalón corto (calzón), un short (excepto de baño), una falda o una falda pantalón, sin tirantes (tiradores) ni peto.
 Todos los componentes del traje (ambo o terno) o del traje sastre deberán confeccionarse con una tela de la misma estructura, color y composición; además, deberán ser del mismo estilo y de tallas correspondientes o compatibles. Sin embargo, estos componentes pueden presentar un vivo (tira de tela cosida a las costuras) de una tela diferente.
@@ -8233,6 +8246,7 @@ Aunque no cumplan todas las condiciones antes citadas, la expresión trajes (amb
 - el frac, hecho generalmente de tela negra, con una chaqueta (saco) relativamente corta por delante, que se mantiene abierta, con los faldones estrechos, escotados en las caderas y colgantes por detrás;
 - el esmoquin, en el que la chaqueta (saco), aunque quizás permita mayor visibilidad de la pechera, es de corte similar al de la chaqueta (saco) común y presenta la particularidad de llevar solapas brillantes de seda o de imitación de seda.
 b) Se entiende por conjunto un surtido de prendas de vestir (excepto los artículos de las partidas 62.07 ó 62.08) que comprenda varias prendas confeccionadas con una misma tela, acondicionado para la venta al por menor y compuesto por:
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
 - una sola prenda que cubra la parte superior del cuerpo, excepto el chaleco que puede constituir una segunda prenda; y
 - una o dos prendas diferentes que cubran la parte inferior del cuerpo y que consistan en un pantalón largo, un pantalón con peto, un pantalón corto (calzón), un short (excepto de baño), una falda o una falda pantalón.
 Todos los componentes del conjunto deben tener la misma estructura, estilo, color y composición; además, deben ser de tallas correspondientes o compatibles. El término conjunto no comprende los conjuntos de abrigo para entrenamiento o deporte ni los monos (overoles) y conjuntos de esquí, de la partida 62.11.
@@ -8374,8 +8388,8 @@ CODIGO | DESCRIPCION | DAI %
 6210.10 | - Con productos de las partidas 56.02 ó 56.03: |
 6210.10.10.00 | - - Uniformes del tipo mono (overol) esterilizados, desechables | 0
 6210.10.90.00 | - - Otras | 15
-6210.20.00.00 | - Las demás prendas de vestir del tipo de las citadas en las subpartidas 6201.11 a 6201.19 | 15
-6210.30.00.00 | - Las demás prendas de vestir del tipo de las citadas en las subpartidas 6202.11 a 6202.19 | 15
+6210.20.00.00 | - las demás prendas de vestir de los tipos citados en las subpartidas 6201.11 6201.19 (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
+6210.30.00.00 | - Las demás prendas de vestir de los tipos citados en las subpartidas 6202.11 a 6202.19 (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
 6210.40.00.00 | - Las demás prendas de vestir para hombres o niños | 15
 6210.50.00.00 | - Las demás prendas de vestir para mujeres o niñas | 15
 62.11 | CONJUNTOS DE ABRIGO PARA ENTRENAMIENTO O DEPORTE (CHANDALES), MONOS (OVEROLES) Y CONJUNTOS DE ESQUI Y BAÑADORES; LAS DEMAS PRENDAS DE VESTIR |
@@ -8573,7 +8587,7 @@ CODIGO | DESCRIPCION | DAI %
 6402.1 | - Calzado de deporte: |
 6402.12.00.00 | - - Calzado de esquí y calzado para la práctica de "snowboard" (tabla para nieve) | 15
 6402.19.00.00 | - - Los demás | 15
-6402.20.00.00 | - Calzado con la parte superior de tiras o bridas fijas a la suela por tetones (espigas) | 15
+6402.20.00.00 | - Calzado con la parte superior de tiras o bridas fijadas a la suela por tetones (espigas) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
 6402.9 | - Los demás calzados: |
 6402.91 | - - Que cubran el tobillo: |
 6402.91.10.00 | - - - Calzado con puntera metálica de protección | 15
@@ -8836,7 +8850,7 @@ CODIGO | DESCRIPCION | DAI %
 | I. PRODUCTOS DE HARINAS SILICEAS FOSILES O DE TIERRAS SILICEAS ANALOGAS Y PRODUCTOS REFRACTARIOS |
 6901.00.00.00 | LADRILLOS, PLACAS, BALDOSAS Y DEMAS PIEZAS CERAMICAS DE HARINAS SILICEAS FOSILES (POR EJEMPLO: "KIESELGUHR", TRIPOLITA, DIATOMITA) O DE TIERRAS SILICEAS ANALOGAS | 0
 69.02 | LADRILLOS, PLACAS, BALDOSAS Y PIEZAS CERAMICAS ANALOGAS DE CONSTRUCCION, REFRACTARIOS, EXCEPTO LOS DE HARINAS SILICEAS FOSILES O DE TIERRAS SILICEAS ANALOGAS |
-6902.10.00.00 | - Con un contenido de los elementos Mg (magnesio), Ca (calcio) o Cr (cromo), considerados aislada o conjuntamente, superior al 50 % en peso, expresados en MgO (óxido de magnesio), CaO (óxido de calcio) u Cr2O3 (óxido crómico) | 0
+6902.10.00.00 | - Con un contenido de los elementos Mg (magnesio), Ca (calcio), o Cr (cromo), considerados aislada o conjuntamente, superior al 50% en peso, expresados en MgO (óxido de magnesio), CaO) (óxido de calcio) o Cr2O3 (óxido crómico) (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 0
 6902.20.00.00 | - Con un contenido de alúmina (Al2O3), de sílice (SiO2) o de una mezcla o combinación de estos productos, superior al 50 % en peso | 0
 6902.90.00.00 | - Los demás | 0
 69.03 | LOS DEMAS ARTICULOS CERAMICOS REFRACTARIOS (POR EJEMPLO: RETORTAS, CRISOLES, MUFLAS, TOBERAS, TAPONES, SOPORTES, COPELAS, TUBOS, FUNDAS, VARILLAS), EXCEPTO LOS DE HARINAS SILICEAS FOSILES O DE TIERRAS SILICEAS ANALOGAS |
@@ -8909,9 +8923,9 @@ b) el corte en cualquier forma no afecta la clasificación del vidrio en placas 
 c) se entiende por capa absorbente, reflectante o antirreflectante, la capa metálica o de compuestos químicos (por ejemplo, óxidos metálicos), de espesor microscópico que absorbe, en particular, los rayos infrarrojos o mejora las cualidades reflectantes del vidrio sin impedir su transparencia o traslucidez o que impide que la superficie del vidrio refleje la luz.
 3. Los productos de la partida 70.06 permanecen clasificados en dicha partida, aunque tengan ya el carácter de manufacturas.
 4. En la partida 70.19 se entiende por lana de vidrio:
-a) la lana mineral con un contenido de sílice (SiO2) superior o igual al 60 % en
-peso;
-b) la lana mineral con un contenido de sílice (SiO2) inferior al 60 % en peso, pero con un contenido de óxidos alcalinos (K2O u Na2O) superior al 5 % en peso o con un contenido de anhídrido bórico (B2O3) superior al 2 % en peso.
+a) la lana mineral con un contenido de sílice (SiO2) superior o igual al 60 % en peso;
+b) la lana mineral con un contenido de sílice (SiO2) inferior al 60% en peso, pero con un contenido de óxidos alcalinos (K2O o Na2O) superior al 5% en peso o con un contenido de anhídrido bórico (B2O3) superior al 2% en peso.
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
 Las lanas minerales que no cumplan estas condiciones se clasifican en la partida 68.06.
 5. En la Nomenclatura, el cuarzo y demás sílices, fundidos, se consideran vidrio.
 NOTA DE SUBPARTIDA.
@@ -9063,9 +9077,12 @@ n) los artículos contemplados en la Nota 2 del Capítulo 95;
 o) los artículos clasificados en el Capítulo 96 conforme la Nota 4 de dicho Capítulo;
 p) las obras originales de estatuaria o escultura (partida 97.03), las piezas de colección (partida 97.05) y las antigüedades de más de cien años (partida 97.06). Sin embargo, las perlas finas (naturales) o cultivadas y las piedras preciosas o semipreciosas se clasifican en este Capítulo.
 4. A) Se consideran metal precioso la plata, el oro y el platino.
-B) El término platino abarca el platino, iridio, osmio, paladio, rodio y rutenio.
-C) La expresión piedras preciosas o semipreciosas no incluye las materias mencionadas en la Nota 2 b) del Capítulo 96.
-5. En este Capítulo, se consideran aleaciones de metal precioso, las aleaciones (incluidas las mezclas sinterizadas y los compuestos intermetálicos) que contengan uno o varios metales preciosos, siempre que el peso del metal precioso o de uno de los metales preciosos sea superior o igual al 2 % del peso de la aleación.
+B) El término platino abarca el platino, iridio, osmio, paladio, odio y rutenio.
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+C) La expresión piedras preciosas o semipreciosas no incluye las materias mencionadas en la Nota 2 b) del capítulo 96.
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
+5. En este Capítulo, se consideran aleaciones de metal precioso, las aleaciones (incluidas las mezclas sinterizadas y los compuestos intemetálicos) que contengan uno o varios metales preciosos, siempre que el peso del metal precioso o de uno de los metales preciosos sea superior o igual al 2% del peso de la aleación.
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
 Las aleaciones de metal precioso se clasifican como sigue:
 a) las aleaciones con un contenido de platino superior o igual al 2 % en peso, se clasifican como aleaciones de platino;
 b) las aleaciones con un contenido de oro superior o igual al 2 % en peso, pero sin platino o con un contenido de platino inferior al 2 % en peso, se clasifican como aleaciones de oro;
@@ -10643,11 +10660,13 @@ Las bolas de acero que no respondan a esta definición se clasifican en la parti
 En cualquier caso, las máquinas de cordelería o de cablería (por ejemplo: retorcedoras, trenzadoras, cableadoras) para cualquier materia, se clasifican en la partida 84.79.
 8. En la partida 84.70, la expresión de bolsillo se aplica únicamente a las máquinas con dimensiones inferiores o iguales a 170 mm x 100 mm x 45 mm.
 9. A) Las Notas 9 a) y 9 b) del Capítulo 85 también se aplican a las expresiones dispositivos semiconductores y circuitos electrónicos integrados, respectivamente, tal como se utilizan en esta Nota y en la partida 84.86. Sin embargo, para la aplicación de esta Nota y de la partida 84.86, la expresión dispositivos semiconductores también incluye los dispositivos semiconductores fotosensibles y los diodos emisores de luz (LED).
-B) Para la aplicación de esta Nota y de la partida 84.86, la expresión fabricación de dispositivos de visualización (display) de pantalla plana comprende la fabricación de los sustratos usados en dichos dispositivos. Esta expresión no comprende la fabricación del cristal o el montaje de las placas de circuitos impresos u otros componentes electrónicos de la pantalla plana. Los dispositivos de visualización (display) de pantalla plana no comprenden la tecnología del tubo de rayos catódicos.
+B) Para la aplicación de esta Nota y de la partida 84.86, la expresión fabricación de dispositivos de visualización (“display”) de pantalla plana comprende la fabricación de los sustratos usados en dichos dispositivos. Esta expresión no comprende la fabricación del cristal o el montaje de las placas de circuitos impresos u otros componente electrónicos de la pantalla plana. Los dispositivos de visualización (“display”) de pantalla plana no comprenden la tecnología del tubo de rayos catódicos.
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
 C) La partida 84.86 también comprende las máquinas y aparatos de los tipos utilizados, exclusiva o principalmente, para:
 1°) la fabricación o reparación de máscaras y retículas,
 2°) el ensamblaje de dispositivos semiconductores o de circuitos electrónicos integrados,
-3°) el montaje, manipulación, carga o descarga de semiconductores en forma de monocristales periformes u obleas (“wafers”), dispositivos semiconductores, circuitos electrónicos integrados y dispositivos de visualización (display) de pantalla plana.
+3°) el montaje, manipulación, carga o descarga de semiconductores en forma de monocristales periformes u obleas (“wafers”), dispositivos semiconductores, cicuitos electrónicos integrados y dispositivos de visualización (“display”) de pantalla plana.
+(Así reformado el punto 3°) anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
 D) Sin perjuicio de lo dispuesto en la Nota 1 de la Sección XVI y la Nota 1 del Capítulo 84, las máquinas y aparatos que cumplan las especificaciones de la partida 84.86, se clasifican en dicha partida y no en otra de la Nomenclatura.
 NOTAS DE SUBPARTIDA
 1. En la subpartida 8465.20, la expresión centros de mecanizado se aplica únicamente a las máquinas herramienta para trabajar madera, corcho, hueso, caucho endurecido, plástico rígido o materias duras similares, que pueden realizar diferentes tipos de operaciones de mecanizado por cambio automático de útiles procedentes de un almacén, de acuerdo con un programa de mecanizado.
@@ -10794,7 +10813,7 @@ CODIGO | DESCRIPCION | DAI %
 8418.29.90.00 | - - - Otros | 15
 8418.30.00.00 | - Congeladores horizontales del tipo arcón (cofre), de capacidad inferior o igual a 800 l | 15
 8418.40.00.00 | - Congeladores verticales del tipo armario, de capacidad inferior o igual a 900 l | 15
-8418.50.00.00 | - Los demás muebles (armarios, arcones (cofres), vitrinas, mostradores y similares) para la conservación y exposición de los productos, que incorporen un equipo para refrigerar o congelar | 15
+8418.50.00.00 | - los demás muebles (armarios, arcones (cofres), vitrinas, mostradores y similares) para la conservación y exposición de los productos, que incorporen un equipo para producción de frío. (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) | 15
 8418.6 | - Los demás materiales, máquinas y aparatos para producción de frío; bombas de calor: |
 8418.61 | - - Bombas de calor, excepto las máquinas y aparatos para acondicionamiento de aire de la partida 84.15: |
 8418.61.10.00 | - - - Grupos frigoríficos de compresión en los que el condensador esté constituido por un intercambiador de calor | 0
@@ -11455,7 +11474,7 @@ CODIGO | DESCRIPCION | DAI %
 8484.10.00.00 | - Juntas metaloplásticas | 5
 8484.20.00.00 | - Juntas mecánicas de estanqueidad | 5
 8484.90.00.00 | - Los demás | 5
-84.86 | MAQUINAS Y APARATOS UTILIZADOS, EXCLUSIVA O PRINCIPALMENTE, PARA LA FABRICACION DE SEMICONDUCTORES EN FORMA DE MONOCRISTALES PERIFORMES U OBLEAS (“WAFERS”), DISPOSITIVOS SEMICONDUCTORES, CIRCUITOS ELECTRONICOS INTEGRADOS O DISPOSITIVOS DE VISUALIZACION (DISPLAY) DE PANTALLA PLANA; MAQUINAS Y APARATOS DESCRITOS EN LA NOTA 9 C) DE ESTE CAPITULO; PARTES Y ACCESORIOS |
+84.86 | MAQUINAS Y APARATOS UTILIZADOS, EXCLUSIVA O PRINCIPALMENTE, PARA LA FABRICACIÓN DE SEMICONDUCTORES EN FORMA DE MONOCRISTALES PERIFORMES U OBLEAS (“WAFERS”), DISPOSITIVOS SEMICONDUCTORES, CIRCUITOS ELECTRONICOS INTEGRADOS O DISPOSITIVOS DE CISUALIZACION (“DISPALY”) DE PANTALLA PLANA, MAQUINAS Y APARATOS DESCRITOS EN LA NOTA 9 C) DE ESTE CAPITULO; PARTES Y ACCESORIOS. (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
 8486.10.00.00 | - Máquinas y aparatos para la fabricación de semiconductores en forma de monocristales periformes u obleas (“wafers”) | 0
 8486.20 | - Máquinas y aparatos para la fabricación de dispositivos semiconductores o circuitos electrónicos integrados: |
 8486.20.10.00 | - - Que operen mediante láser u otros haces de luz o de fotones | 0
@@ -11472,7 +11491,7 @@ CODIGO | DESCRIPCION | DAI %
 8486.20.93.00 | - - - Aparatos para trazado directo sobre obleas ("wafers") | 0
 8486.20.94.00 | - - - Fotorrepetidores | 0
 8486.20.99.00 | - - - Los demás | 0
-8486.30 | - Máquinas y aparatos para la fabricación de dispositivos de visualización (display) de pantalla plana: |
+8486.30 | - Máquinas y aparatos para la fabricación de dispositivos de visualización (“display”) de pantalla plana: (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
 8486.30.1 | - - Máquinas herramienta que trabajen por arranque de cualquier materia: |
 8486.30.11.00 | - - - Que operen mediante láser u otros haces de luz o de fotones | 0
 8486.30.12.00 | - - - Que operen por ultrasonido | 0
@@ -11530,7 +11549,8 @@ A los fines de esta definición:
 3. a) Los sensores de silicio están constituidos por estructuras microelectrónicas o mecánicas, que se crean en la masa o en la superficie de un semiconductor y cuya función es detectar magnitudes físicas o químicas y convertirlas en señales eléctricas cuando se producen variaciones de las propiedades eléctricas o una deformación de la estructura mecánica. Las magnitudes físicas o químicas se refieren a fenómenos reales, tales como la presión, las ondas sonoras, la aceleración, la vibración, el movimiento, la orientación, la tensión, la intensidad del campo magnético, la luz, la radiactividad, la humedad, la fluencia, la concentración de productos químicos, etc.
 b) Los accionadores de silicio están constituidos por estructuras microelectrónicas y mecánicas, que se crean en la masa o en la superficie de un semiconductor y cuya función es convertir las señales eléctricas en movimiento físico.
 c) Los resonadores de silicio son componentes constituidos por estructuras microelectrónicas o mecánicas, que se crean en la masa o en la superficie de un semiconductor y cuya función es generar una oscilación mecánica o eléctrica de una frecuencia predefinida, que depende de la geometría física de estas estructuras en respuesta a una entrada externa.
-d) Los osciladores de silicio son componentes activos constituidos por estructuras microelectrónicas o mecánicas, que se crean en la masa o en la superficie de un semiconductor y cuya función es generar una oscilación mecánica o eléctrica de una frecuencia predefiinida, que depende de la geometría física de estas estructuras.
+d) Los osciladores de silicio son componentes activos constituidos por estructura micorelectrónicas o mecánicas, que se crean en la masa o en la superficie de un semiconductor y cuya función es generar una oscilación mecánica o eléctrica de un frecuencia predefinida, que depende de la geometría física de estas estructuras.
+(Así reformado el punto anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
 Para los artículos definidos en esta Nota, las partidas 85.41 y 85.42 tienen prioridad sobre cualquier otra de la Nomenclatura que pudiera comprenderlos, especialmente en razón de su función, excepto en el caso de la partida 85.23.
 10. En la partida 85.48, se consideran pilas, baterías de pilas y acumuladores, eléctricos, inservibles, los que no son utilizables como tales a consecuencia de rotura, corte, desgaste o cualquier otro motivo o por no ser susceptibles de recarga.
 NOTA DE SUBPARTIDA.
@@ -11917,7 +11937,7 @@ CODIGO | DESCRIPCION | DAI %
 8528.69.10.00 | - - - Completamente desarmados (CKD) presentados en juegos o “kits” | 0
 8528.69.90.00 | - - - Otros | 0
 8528.7 | - Aparatos receptores de televisión, incluso con aparato receptor de radiodifusión o grabación o reproducción de sonido o imagen incorporado: |
-8528.71 | - - No concebidos para incorporar un dispositivo de visualización (display) o pantalla de video: |
+8528.71 | - - No concebido para incorporar un dispositivo de visualización (“display”) p pantalla de video. (Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”) |
 8528.71.10.00 | - - - Completamente desarmados (CKD) presentado en juegos o “kits” | 0
 8528.71.20.00 | - - - Convertidor de señales digitales de televisión (incluso de señales digitales de audio), únicamente en señales analógicas, para la recepción de señales digitales emitidas por televisión abierta, para los aparatos receptores de televisión que no tienen incorporado un dispositivo sintonizador de televisión digital | 0
 8528.71.90.00 | - - - Otros | 15
@@ -13005,8 +13025,8 @@ CODIGO | DESCRIPCION | DAI %
 SECCION XX
 MERCANCIAS Y PRODUCTOS DIVERSOS
 CAPITULO 94
-MUEBLES; MOBILIARIO MEDICOQUIRURGICO; ARTICULOS DE CAMA Y SIMILARES; APARATOS DE ALUMBRADO NO EXPRESADOS NI COMPRENDIDOS EN OTRA PARTE; ANUNCIOS, LETREROS Y PLACAS INDICADORAS, LUMINOSOS Y ARTICULOS SIMILARES; CONSTRUCCIONES PREFABRICADAS
-NOTAS.
+Muebles; mobiliario médico quirúrgico; artículos de cama y similares; aparatos de alumbrado no expresados no comprendidos en otra parte; anuncios, letreros y placas indicadoras, luminosos y artículos similares; construcciones prefabricadas.
+(Así reformada la descripción anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)NOTAS.
 1. Este Capítulo no comprende:
 a) los colchones, almohadas y cojines, neumáticos o de agua, de los Capítulos 39, 40 ó 63;
 b) los espejos que se apoyen en el suelo (por ejemplo, espejos de vestir móviles) (partida 70.09);
@@ -13120,7 +13140,8 @@ a) las velas (partida 34.06);
 b) los artículos de pirotecnia para diversión de la partida 36.04;
 c) los hilados, monofilamentos, cordones, cuerdas de tripa y similares para la pesca, incluso cortados en longitudes determinadas pero sin montar en sedal (tanza) con anzuelo, del Capítulo 39, partida 42.06 o Sección XI;
 d) las bolsas para artículos de deporte y demás continentes, de las partidas 42.02, 43.03 ó 43.04;
-e) los disfraces de materia textil, de los Capítulos 61 ó 62; las prendas de vestir de deporte y prendas especiales de materia textil, de los Capítulos 61 ó 62, incluso las que incorporen accesoriamente elementos de protección, tales como placas protectoras o acolchado en las partes correspondientes a los codos, las rodillas o la ingle (por ejemplo: prendas para esgrima o suéteres (jerseys) para porteros de fútbol);
+e) Los disfraces de materia textil, de los Capítulos 61 ó 62; las prendas de vestir de deporte y prendas especiales de materia textil, de los Capítulo 61 ó 62, incluso las que incorporen accesoriamente elementos de protección, tales como placas protectoras o acolchado en las partes correspondientes a los codos, las rodillas o la ingle (por ejemplo: prendas para esgrima o suéteres (jersey) para porteros (arqueros de fútbol);
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
 f) las banderas y cuerdas de gallardetes, de materia textil, así como las velas para embarcaciones, deslizadores o vehículos terrestres, del Capítulo 63;
 g) el calzado (excepto el fijado a patines para hielo o patines de ruedas) del Capítulo 64 y los tocados especiales para la práctica de deportes del Capítulo 65;
 h) los bastones, fustas, látigos y artículos similares (partida 66.02), así como sus partes (partida 66.03);
@@ -13355,7 +13376,8 @@ NOTAS.
 a) los sellos (estampillas) de correo, timbres fiscales, enteros postales, demás artículos franqueados y análogos, sin obliterar, de la partida 49.07;
 b) los lienzos pintados para decorados de teatro, fondos de estudio o usos análogos (partida 59.07), salvo que puedan clasificarse en la partida 97.06;
 c) las perlas finas (naturales) o cultivadas y las piedras preciosas o semipreciosas (partidas 71.01 a 71.03).
-2. En la partida 97.02, se consideran grabados, estampas y litografías, originales las pruebas obtenidas directamente en negro o color de una o varias planchas totalmente realizadas a mano por el artista, cualquiera que sea la técnica o materia utilizada, excepto por cualquier procedimiento mecánico o fotomecánico.
+2. En la partida 97.02, se consideran grabados, estampas y litografías, originales, las pruebas obtenidas directamente en negro o color de una o varias planchas totalmente realizadas a mano por el artista, cualquiera que sea la técnica o materia utilizada, excepto por cualquier procedimiento mecánico o fotomecánico.
+(Así reformada la nota anterior por el artículo 1° y 2° del decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo”)
 3. No se clasifican en la partida 97.03 las esculturas que presenten carácter comercial (por ejemplo: reproducciones en serie, vaciados, obras de artesanía), aunque hayan sido concebidas o creadas por artistas.
 4. A) Salvo lo dispuesto en las Notas 1, 2 y 3, los artículos susceptibles de clasificarse en este Capítulo y en otros de la Nomenclatura, se clasifican en este Capítulo.
 B) Los artículos susceptibles de clasificarse en la partida 97.06 y en las
