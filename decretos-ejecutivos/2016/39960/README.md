@@ -14,3 +14,4 @@ Publica Resolución N° 372-2015 (COMIECO-LXXIV) del 4 de diciembre de 2015 y su
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-01 | la propia norma |
+| 2 | 2017-07-01 | Decreto Ejecutivo 40480 (2017-06-16) |

@@ -37,7 +37,6 @@ RESUELVE:
 4. La República de Panamá conservará la nomenclatura y los Derechos Arancelarios a la Importación consignados en su arancel nacional vigente, para aquellos incisos arancelarios contenidos en los Anexos 5.1 y 5.2 del Protocolo de Incorporación de Panamá al Subsistema de Integración Económica del Sistema de Integración Centroamericana. Para tales efectos, la República de Panamá realizará, con posterioridad a la firma de esta Resolución, la publicación de la versión del Arancel de Importación en el que se reflejarán todos los DAI y la nomenclatura armonizada, así como aquellos DAI nomenclatura no armonizados.
 5. La presente Resolución entrará en vigencia el 1 de enero de 2017 y será publicado por los Estados Parte.
 San Salvador, El Salvador, 4 de diciembre de 2015
-[imagen]
 El infrascrito Director de Inteligencia Económica de la Secretaría de Integración Económica Centroamericana (SIECA) CERTIFICA: Que la presente fotocopia y las dos (2) que le anteceden, impresas únicamente en su anverso, así como las novecientas setenta y seis (976) del anexo adjunto, rubricadas y selladas con el sello de la SIECA, reproducen fielmente la Resolución N° 372-2015 (COMIECO-LXXIV), adoptada por el Consejo de Ministros de Integración Económica, el cuatro de diciembre de dos mil quince, de cuyos originales se reprodujeron. Y para remitir a los Estados Parte para su correspondiente publicación, extiendo la presente copia certificada en la ciudad de Guatemala el treinta de mayo de dos mil dieciséis.
 SISTEMA ARANCELARIO
 CENTROAMERICANO
@@ -128,6 +127,13 @@ CAUCHO Y SUS MANUFACTURAS
 Notas de Sección
 39 Plásticos y sus manufacturas
 40 Caucho y sus manufacturas
+(Nota de Sinalevi: Mediante el decreto ejecutivo N° 40480 del 16 de junio del 2017 “Publica Resolución N° 385-2017 (COMIECO-EX) del 27 de abril de 2017: Apertura arancelaria en el Arancel Centroamericano de Importación”, en su numeral 3°, se establece que de conformidad con los párrafos segundo y cuarto de la parte considerativa y los numerales 1 y 2 de la parte dispositiva, todos de la Resolución N° 385-2017 (COMIECOEX) del 27 de abril de 2017, se debe ajustar y modificar la Resolución N° 372-2015 (COMIECO-LXX1V) de fecha 04 de diciembre de 2015 y su Anexo: "Modificaciones al Arancel Centroamericano de Importación, que amplía los códigos arancelarios a diez dígitos e incorpora al Sistema Arancelario Centroamericano (SA C) los resultados a la 60 Enmienda de la Nomenclatura del Sistema Armonizado de Designación y modificación de Mercancías", que fue publicada por Costa Rica mediante el Decreto Ejecutivo N° 39960-COMEX de fecha 16 de septiembre de 2016; por lo que, es necesario adecuar las disposiciones nacionales de conformidad con las normas regionales de la siguiente manera:
+CÓDIGO | DESCRIPCIÓN | DAI %
+39.23 | ARTICULOS PARA EL TRANSPORTE O ENVASADO DE PLASTICO, TAPONES, TAPAS, CAPSULAS Y DEMAS DISPOSITICOS DE CIERRE, DE PLASTICO |
+3923.10.00.00 | ++SUPRIMIDA++ |
+3923.10 | -Cajas, cajones, jaulas y artículo similares: |
+3923.10.10.00 | --Cajas alveolares para el envase y transporte de huevos, de plástico | 5
+3923.10.90.00 | --Otros | 10”)
 Sección VIII
 PIELES, CUEROS, PELETERIA Y MANUFACTURAS DE ESTAS MATERIAS;
 ARTÍCULO DE TALABARTERÍA O GUARNICIONERIA;
