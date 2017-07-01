@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el Decreto Ejecutivo número 40299-H del 07 de marzo de 2017, publicado en el Alcance número 72 a La Gaceta número 64 del 30 de marzo de 2017, a partir de la vigencia del presente decreto.
