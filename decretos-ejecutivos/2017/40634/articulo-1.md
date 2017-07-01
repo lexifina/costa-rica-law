@@ -1,0 +1,22 @@
+N° 40634 - MTSS – H
+EL PRESIDENTE DE LA REPÚBLICA,
+EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL,
+Y EL MINISTRO DE HACIENDA
+En uso de las facultades conferidas por el artículo 140, incisos 3) y 18), y el artículo 146, ambos de la Constitución Política y el Decreto Ejecutivo N°35730-MTSS de fecha 14 de enero del 2010.
+Considerando:
+1º— Que, según el inciso a) del artículo 9 del Decreto Ejecutivo Nº 35730-MTSS de Creación de la Comisión Negociadora de Salarios del Sector Público, publicado en La Gaceta No 28 del 10 de febrero del 2010, ésta tendrá la atribución de “Actuar como instancia de negociación en relación con los ajustes de salarios del sector público y sus componentes, de acuerdo con el ordenamiento jurídico y posibilidades financieras”.
+2°—Que, existe un acuerdo del año 2007, suscrito por los representantes de los trabajadores(as) públicos y del Gobierno, según el cual debe reconocerse a los funcionarios y funcionarias públicas la inflación del semestre inmediato anterior. Al respecto, el acuerdo mencionado en lo de interés indica lo siguiente:
+“…Asimismo, se acuerda que para los futuros incrementos salariales el Poder Ejecutivo reconocerá, la inflación acumulada y conocida del semestre anterior al momento de la fijación, llámese según sea el caso de enero a junio y de julio a diciembre de cada año. Para aplicar esta metodología de incrementos salariales con relación a la inflación acumulada, se utilizará el Índice de Precios al Consumidor (IPC) dados por el Instituto Nacional de Estadística y Censos (INEC)”.
+3º—Que, el índice de Precios al Consumidor, calculado por INEC, refleja una inflación acumulada del 1,01% (uno coma cero uno) durante el primer semestre del 2017.
+4°—Que, pese a lo anterior, existe un déficit fiscal estructural creciente que dificulta su financiamiento.
+5°—Que, cada año se requieren mayores recursos para financiar ese déficit creciente, lo que implica o hace necesaria una mayor colocación de títulos valores de deuda interna.
+6°—Que, las colocaciones de títulos valores, que a la fecha se están realizando, no son suficientes para cubrir la totalidad de las necesidades de financiamiento del Presupuesto Nacional.
+7°—Que, para enfrentar la situación antes descrita, el Gobierno de la República presentó desde hace varios años a la corriente legislativa, una reforma integral en materia hacendaria, con iniciativas que implican por un lado modificaciones estructurales en el sistema tributario, mejorar la recaudación y, por otra parte, mejorar la calidad en el gasto público.
+8°—Que, en adición a dichas iniciativas, que dependen en gran medida de su aprobación por parte del Poder Legislativo, en ejercicio del poder de dirección, el Poder Ejecutivo ha emitido Directrices con el fin de establecer medidas de contención del gasto.
+9°—Que la situación fiscal se está agravando por dificultades en el acceso al financiamiento que provocan falta de liquidez en el flujo de caja de la Tesorería Nacional.
+10°—Que, a pesar de los esfuerzos apuntados para atender las necesidades de financiamiento del Presupuesto Nacional, se requiere tomar acciones inmediatas que permitan continuar con la operatividad y el funcionamiento del Estado costarricense.
+11°—Que, dada la situación que afecta la liquidez, el Gobierno de la Republica emitió el Decreto Ejecutivo N° 40540-H publicado en el Alcance Digital No 191 a La Gaceta No 148 del 7 de agosto del 2017 en el que se dictan medidas de contingencia fiscal.
+12°—Que, si bien la inflación reportada es de un 1.01%, las condiciones de liquidez que se apuntan en los considerandos anteriores tienen que ser tomadas en cuenta en la fijación del ajuste salarial, debido a la necesidad de racionalizar el uso de los recursos económicos y a las posibilidades financieras del Estado, en apego al inciso a) del artículo 9 del Decreto Ejecutivo Nº 35730-MTSS de Creación de la Comisión Negociadora de Salarios del Sector Público.
+13°—Que, pese al déficit fiscal estructural que se apunta en el cuarto considerando del presente decreto, se reconoce que los trabajadores públicos y las trabajadoras públicas del Gobierno Central, de menores salarios y de reciente ingreso a la Administración Pública, no cuentan con los pluses e incentivos salariales que tienen los otros niveles, lo que requiere protección a dichas clases salariales. Por tanto,
+Decretan:
+Artículo 1º—Otorgar un aumento general del 0,75% por concepto de costo de vida a todas las trabajadoras públicas y a todos los trabajadores públicos a partir del 1 de julio 2017.

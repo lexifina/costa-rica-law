@@ -1,0 +1,2 @@
+Artículo 10—Los incrementos salariales indicados en los artículos 1° y 2° de este Decreto rigen a partir del 01 de julio del 2017 y se harán efectivos, de ser posible, en la segunda quincena de septiembre del 2017, en caso de no ser posible realizar el pago en la fecha indicada, al momento de realizar el mismo, se hará de manera retroactiva al 1° de julio.
+Dado en San José, a los treinta días del mes de agosto del dos mil diecisiete.
