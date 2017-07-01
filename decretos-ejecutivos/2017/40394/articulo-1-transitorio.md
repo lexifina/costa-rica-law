@@ -1,0 +1,1 @@
+TRANSITORIO ÚNICO. - Se mantiene el precio de referencia de ¢ 22.139,00 colones por saco de 73,6 kilogramos de arroz en granza seca y limpia puesto en planta, a los productores que iniciaron su siembra antes de la publicación del presente Decreto; en ese sentido, le corresponderá a la CONARROZ certificar la cantidad cosechada que cumple con esta especificación.
