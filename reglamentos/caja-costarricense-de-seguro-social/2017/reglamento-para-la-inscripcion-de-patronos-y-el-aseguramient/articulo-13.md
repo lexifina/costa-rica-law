@@ -1,0 +1,2 @@
+Artículo 13º: De las normas supletorias. Los aspectos no contemplados expresamente en el presente Reglamento, se regirán por lo dispuesto en la Ley Constitutiva de la Caja Costarricense de Seguro Social, el Reglamento de Seguro de Salud, el Reglamento del Seguro de Invalidez, Vejez y Muerte, así como cualquier otra normativa institucional aplicable. En ausencia de ley especial, se estará a lo dispuesto en tratados internacionales, el Código de Trabajo y los principios generales del derecho.
+Rige a partir de su publicación en el Diario Oficial “La Gaceta”.
