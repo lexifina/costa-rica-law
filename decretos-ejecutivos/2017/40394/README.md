@@ -14,3 +14,4 @@ Reforma Actualización estructuras de modelos de costos de producción agrícola
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-01 | la propia norma |
+| 2 | 2017-07-01 | Decreto Ejecutivo 40451 (2017-05-17) |
