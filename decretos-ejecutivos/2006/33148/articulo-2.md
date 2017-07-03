@@ -1,3 +1,0 @@
-Artículo 2º—Para lograr el objetivo planteado en el artículo 1º de este decreto, en las etapas de prediseño y diseño de obras viales o de transporte nuevas, así como en las tareas que se realicen sobre las obras ya existentes, podrán desarrollarse Auditorías de Seguridad Vial, de acuerdo con la complejidad de cada proyecto y con el fin de que la operación sobre esas vías sea segura para todos los eventuales usuarios, mediante la implementación de sus recomendaciones.
-En las obras ya existentes, deberá considerarse la posibilidad real de la incorporación del componente de seguridad vial, tomando en cuenta el entorno y las características de las vías.
-(Así reformado mediante artículo 1° del decreto ejecutivo N° 34088 del 02 de octubre de 2007)
