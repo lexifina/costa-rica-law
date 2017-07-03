@@ -1,1 +1,1 @@
-IV. Establecer como fecha para el inicio de operación de MONEX-Subasta el miércoles 12 de julio del 2017.
+IV. (Dejado sin efecto en sesión N° 5777-2017 del 3 de julio del 2017)

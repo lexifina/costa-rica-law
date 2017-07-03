@@ -1,1 +1,1 @@
-V. Establecer que las nuevas tarifas del servicio MONEX indicadas en el punto anterior, entrarán a regir dos semanas después de que se habilite para el mercado el mecanismo de MONEX-Subasta, concretamente el miércoles 26 de julio del 2017.
+V. (Dejado sin efecto en sesión N° 5777-2017 del 3 de julio del 2017)

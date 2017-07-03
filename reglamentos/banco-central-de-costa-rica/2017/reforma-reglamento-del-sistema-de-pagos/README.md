@@ -14,3 +14,4 @@ Reforma Reglamento del Sistema de Pagos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-06-19 | la propia norma |
+| 2 | 2017-07-03 | Reglamento 5777 (2017-07-03) |
