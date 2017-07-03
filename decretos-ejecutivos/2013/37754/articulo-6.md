@@ -1,1 +1,0 @@
-Artículo 6º—El presente Decreto deroga los Acuerdos Ejecutivos 105 y 126, publicados en La Gaceta Nº 161 y Nº 187 del 19 de agosto del 2010 y 29 de setiembre del 2011 respectivamente, emitidos por la Presidenta de la República y por el Ministro de turno.
