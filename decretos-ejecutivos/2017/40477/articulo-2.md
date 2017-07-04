@@ -1,0 +1,4 @@
+Artículo 2. Definiciones.
+Además de las definiciones contenidas en la Ley Forestal, su reglamento y sus reformas, para efectos de aplicación del presente Decreto se definen los siguientes conceptos:
+a) Árbol caído: Fustes y ramas que por razones naturales han caído al suelo por completo, como consecuencia de eventos naturales como fuertes vientos, huracanes, lluvias extremas, terremotos, derrumbes, y otros. Como características de esta condición podría observarse raíces expuestas y fustes quebrados como claros indicios de esta condición.
+b) Arrastre de bajo impacto: Métodos o técnicas de acarreo de productos forestales que utilizan la fuerza humana o animal. Bajo ninguna circunstancia se podrá utilizar maquinaria para remover vegetación o para rehabilitar y/o construir trochas o caminos con el fin de extraer el producto forestal.

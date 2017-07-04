@@ -1,0 +1,8 @@
+Artículo 6. Categoría de aprovechamiento de 10 árboles o más.
+Para las solicitudes de 10 árboles o ms se requiere el Estudio Técnico de Extracción de Árboles Caídos en Bosque, labores de seguimiento y cumplimiento de la ejecución en campo hasta la finalización del aprovechamiento. Estas labores estarán bajo la responsabilidad de un regente forestal quien suscribirá con el dueño o representante legal de la propiedad, el respectivo Contrato de Regencia inscrito ante el Colegio de Ingenieros Agrónomos.
+El Estudio Técnico o Plan de aprovechamiento y extracción de madera de árboles caídos o madera aserrada de árboles caídos en bosque deberá incluir:
+1) Referencia al folio real de la propiedad descrita en la solicitud y en caso de poseedores legítimos, se deberá hacer referencia a la certificación judicial de la existencia de sentencia firme en el trámite de información posesoria correspondiente.
+2) Inventario Forestal de los árboles caídos debidamente georeferenciados (Nombre común, Nombre científico, Diámetro, Largo, Volumen en metros cúbicos y ubicación).
+3) Justificación técnica de la planificación de las labores de aprovechamiento y extracción de los árboles caídos propuestos que garantice el menor impacto posible e incluya las medidas de mitigación.
+4) Cronograma de actividades
+5) Mapa base con el área del bosque y árboles a aprovechar georeferenciados. caminos (Si existen), hidrología y patios fuera del bosque, en formato digital (datum oficial para Costa Rica (CR05), asociado al elipsoide del Sistema Geodésico Mundial (WGS84), y será la Proyección Transversal de Mercator para Costa Rica (CRTM05). al SINAC.
