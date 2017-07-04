@@ -1,0 +1,1 @@
+Artículo 11º.- Validez del certificado. Los certificados de residencia fiscal son válidos por el período fiscal al que se refiere la solicitud. Si se solicita la certificación para el periodo fiscal en curso, la validez del certificado será de 6 meses.
