@@ -1,0 +1,17 @@
+Nº 40471-MP-MD
+EL PRESIDENTE DE LA REPÚBLICA,
+EL MINISTRO DE LA PRESIDENCIA Y LA MINISTRA DEL DEPORTE
+En uso de las facultades que les confieren los artículos 140, incisos 8) y 20) y 146 de la Constitución Política; 25, 28, párrafo 2), inciso b) de la Ley General de la Administración Pública, Ley N° 6227 de 2 de mayo de 1978;
+Considerando:
+I. Que el deporte representa un fundamento y una condición importante para el desarrollo físico, intelectual y socio-afectivo del ser humano.
+II. Que una de las prioridades de la actual Administración es impulsar iniciativas y crear espacios que promuevan el bienestar y la salud en la población costarricense, a través del deporte, la recreación, y la actividad física.
+III, Que la Universidad Nacional de Costa Rica, por medio de la Facultad Ciencias de la Salud, específicamente de su Escuela de Ciencias del Movimiento Humano y Calidad de Vida, busca la construcción de una nueva cultura somática (estilos de vida saludable), por medio de la formación de profesionales en el área de la educación física, los deportes, la recreación y disciplinas afines a las ciencias del movimiento humano. La internalización de posibilidades y la responsabilidad social caracterizarán el quehacer de esta unidad académica.
+IV. Que la Universidad Nacional de Costa Rica es una institución autónoma, creado mediante la Ley N° 5182 del 15 de febrero de 1973, integrado y coordinado por el Sistema Nacional de Educación Superior con base en los ordenamientos legales que se den al efecto.
+V. Que la Universidad Nacional de Costa Rica es la organizadora del Congreso Internacional de Ciencias del Movimiento Humano, el cual desarrollará tres áreas de conocimiento: Educación y Pedagogía, cuyo tema central será los valores dentro de Las clases de Educación Física y estrategias contemporáneas de mediación pedagógica; Deporte y Salud, con el tema intervención en salud por medio de la actividad física y nuevas tendencias en el fitness y el wellness; y Rendimiento Deportivo, con el tema entrenamiento del cerebro como la nueva frontera del entrenamiento deportivo.
+VI. Que por la complejidad de este evento deportivo es necesario establecer la mejor relación y coordinación entre la Universidad Nacional de Costa Rica y las dependencias del Gobierno Central, Instituciones Descentralizadas, Municipalidades, Comités Cantonales de Deporte y Recreación, entre otros, para la realización de un evento exitoso para el disfrute de la ciudadanía costarricense.
+VII. Que el Consejo Nacional del Deporte y la Recreación, en sesión ordinaria n° 1014- 2017 del 11 de mayo de 2017, mediante acuerdo n° 27 del 11 de mayo del 2017, recomienda a la Ministra del Deporte, que por medio del Ministerio de la Presidencia, proceda a la Declaratoria de Interés Público y Nacional del Congreso Internacional de Ciencias del Movimiento Humano, a realizarse el 27, 28 y 29 de setiembre de 2017, en las instalaciones del Colegio de Licenciados y Profesores en Letras, Filosofía, Ciencias y Artes (COLYPRO).
+Por tanto;
+Acuerdan:
+"DECLARATORIA DE INTERÉS PÚBLICO Y NACIONAL DEL CONGRESO INTERNACIONAL DE
+CIENCIAS DEL MOVIMIENTO HUMANO"
+Artículo 1°—Se declara de interés público y nacional el Congreso Internacional de Ciencias del Movimiento Humano, a realizarse el 27, 28 y 29 de setiembre, en las instalaciones del Colegio de Licenciados y Profesores en Letras, Filosofía, Ciencias y Artes (COLYPRO).
