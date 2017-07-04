@@ -1,1 +1,1 @@
-Artículo 5º—Límites de aprobación para transacciones internacionales. Los montos y niveles de aprobación en dólares de los EE.UU. para los servicios de cartas de crédito de importación, disponibilidad inmediata de fondos (DIF) y confirmación de cartas de crédito de exportación, deberán regirse por el Reglamento General de Crédito.
+Artículo 5°.- Límites de aprobación para transacciones internacionales. Los montos y niveles de aprobación en dólares estadounidenses para los servicios de cartas de crédito de exportación, deberá regirse por el Reglamento General de Crédito.
