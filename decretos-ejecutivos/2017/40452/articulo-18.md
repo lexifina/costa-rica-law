@@ -1,0 +1,2 @@
+Capítulo IV. Incumplimiento y sanciones
+Artículo 18.- Del incumplimiento de las obligaciones. El incumplimiento de alguna de las disposiciones que rigen el presente Reglamento por parte del funcionario o de quienes ejerzan cargos de jefatura, tiene como consecuencia la aplicación de las sanciones disciplinarias y económicas que correspondan, de acuerdo con lo establecido en el Reglamento Autónomo de Servicios del Ministerio de Ambiente y Energía y las disposiciones legales vinculantes.

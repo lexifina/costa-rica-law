@@ -1,0 +1,1 @@
+Artículo 25.- Una vez entre en vigencia el presente decreto, se dejan sin efecto los contratos firmados de manera previa por los funcionarios del SINAC con sus jefaturas inmediatas o Directores de Áreas de Conservación al amparo del Decreto Ejecutivo N' 38236- MINAE.

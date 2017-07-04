@@ -1,0 +1,1 @@
+Artículo 13.- De la Bitácora de disponibilidad. La Bitácora debidamente foliada y autorizada por la Auditoría Interna del SINAC, debe ser llevada de manera obligatoria en cada área silvestre protegida u oficinas auxiliares por parte de la Jefatura inmediata, según corresponda y ajustarse al formato establecido.

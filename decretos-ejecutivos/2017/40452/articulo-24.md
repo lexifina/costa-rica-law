@@ -1,0 +1,1 @@
+Artículo 24.- El Departamento de Gestión Institucional de Recurso Humano podrá suscribir los contratos para el reconocimiento de disponibilidad en el momento que cuente con las autorizaciones indicadas en el artículo 23 del presente Decreto Ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 11.- Sujeción reglamentaria. El trabajador al aceptar estar bajo régimen de disponibilidad, estará sujeto a todas las disposiciones de este Reglamento y a la suscripción del respectivo Contrato, previa aprobación de las instancias correspondientes.

@@ -1,0 +1,3 @@
+Artículo 19.- Consecuencias del incumplimiento. El incumplimiento de las disposiciones que rigen el presente Reglamento por parte del servidor beneficiario del pago de disponibilidad, tiene como consecuencia:
+a) El reintegro al SINAC por el servidor, de las sumas que haya percibido por este concepto a partir de la fecha en que incurrió en el incumplimiento de sus deberes, el cual se regirá por el Procedimiento institucional para "Recuperación de sumas giradas de más por la Administración".
+b) La aplicación de las sanciones que correspondan de acuerdo con el régimen disciplinario institucional.
