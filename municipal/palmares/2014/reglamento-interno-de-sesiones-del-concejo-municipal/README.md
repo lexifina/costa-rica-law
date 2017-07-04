@@ -14,3 +14,4 @@ Reglamento interno de sesiones del Concejo Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-18 | la propia norma |
+| 2 | 2017-07-04 | Reglamento municipal 60 (2017-07-04) |
