@@ -1,0 +1,9 @@
+Transitorio II.—A la entrada en vigencia de la Ley, las patentes de licores para la venta de bebidas con contenido alcohólico adquiridas mediante la Ley N° 10 del 7 de octubre de 1936 que se encuentren en estado de inactividad, sea, que no estén ligadas a ninguna actividad comercial en particular, deberán cancelar a la Municipalidad la patente mensual, tasada en el monto mínimo equivalente en Colones a medio Salario Base, que corresponde a las clases B y C conforme a los conceptos definidos en los artículos 2, 4 y 10 de la Ley.
+(Nota de Sinalevi: Mediante Fe de Erratas publicada en La Gaceta N° 164 del 30 de agosto del 2017, página 60, se establece lo siguiente: “ MUNICIPALIDAD DE SAN CARLOS
+ANA PATRICIA SOLÍS ROJAS
+Cédula N° 2-429-537
+Secretaria del Concejo Municipal
+Municipalidad de San Carlos
+MSC-SC-1872-2017
+CERTIFICA:
+Que el Concejo Municipal de San Carlos en su sesión ordinaria celebrada el lunes 07 de agosto del 2017, en el salón de sesiones de ésta Municipalidad, mediante artículo Nº 19, inciso 01), acta Nº 52, acordó: Con base en el oficio AM-1033-2017 emitido por la Alcaldía Municipal, mediante el cual remite el oficio MSC-AT-207-2017 emitido por la Sección de Patentes y la Administración Tributaria, se determina, autorizar la publicación de una fe de erratas donde se establezca la derogación del reglamento a la Ley N° 9047 Regulación y Comercialización de Bebidas con Contenido Alcohólico para la Municipalidad San Carlos publicado en La Gaceta N° 185 del viernes 26 de setiembre de 2014 en la página 41, y se tome como único reglamento vigente el Reglamento a la Ley N° 9047 Regulación y Comercialización de Bebidas con Contenido Alcohólico para la Municipalidad San Carlos publicado en alcance N° 164 de La Gaceta del miércoles 5 de julio del 2017, en la página 42. Votación unánime.- UL. ”)

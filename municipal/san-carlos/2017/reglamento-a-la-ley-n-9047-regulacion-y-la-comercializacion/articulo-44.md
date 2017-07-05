@@ -1,0 +1,1 @@
+Artículo 44.—Queda prohibida la adulteración del licor y de bebidas con contenido alcohólico, así como su contrabando. La Municipalidad tiene la obligación de denunciar ante la Policía de Control Fiscal, órgano competente para determinar la adulteración, fabricación clandestina o contrabando, cuyas pruebas le competen al Ministerio de Salud.
