@@ -1,0 +1,3 @@
+Artículo 11º- De la función del Departamento de Tecnologías de Información:
+El Departamento de Tecnologías de Información será el responsable de atender y supervisar la correcta operación y continuidad de los sistemas informáticos, requeridos para garantizar la correcta ejecución de las actividades relacionadas con la realización y celebración de los sorteos de lotería y a la recepción de excedentes de loterías.
+Para tales efectos su Jefatura designará el recurso humano necesario para brindar el servicio en cada uno de los eventos, sea en el área de hardware, software, bases de datos e instalación de equipos, siguiendo criterios de razonabilidad y eficiencia.

@@ -1,0 +1,3 @@
+Artículo 9º- De la recepción de excedentes de lotería:
+Conforme el artículo Nº 34 del Decreto Ejecutivo Nº 28529-MTSS-MP que es el Reglamento a la Ley de Loterías Nº 7395, el proceso de recepción de excedentes de lotería estará a cargo de la Gerencia de Operaciones o la Gerencia encargada del proceso. El Gerente a cargo de este proceso, deberá asistir a estos eventos y podrá delegar esta función en el subalterno que habitualmente lo sustituye en sus ausencias o quien él designe.
+La Gerencia encargada del proceso designará el personal operativo que considere necesario para llevar a cabo esta labor siguiendo criterios de razonabilidad y eficiencia.

@@ -1,0 +1,2 @@
+Artículo 10º- De la función fiscalizadora de la Auditoría Interna en la recepción de excedentes de lotería:
+La Auditoría Interna fiscalizará de manera independiente y en sitio la recepción de excedentes de lotería y su titular designará el personal que considere necesario para llevar a cabo esta fiscalización, de conformidad con las competencias asignadas en el artículo N° 22 de la Ley General de Control Interno N° 8292, en el artículo 34 del Reglamento a la Ley de Loterías, la valoración del riesgo y su Plan Anual de Trabajo.

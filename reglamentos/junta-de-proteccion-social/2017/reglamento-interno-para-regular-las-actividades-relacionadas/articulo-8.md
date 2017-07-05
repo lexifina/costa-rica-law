@@ -1,0 +1,3 @@
+Artículo 8º- De la función fiscalizadora de la Auditoría Interna en la realización de los sorteos:
+La Auditoría Interna fiscalizará de forma independiente la realización de los sorteos en sitio, de conformidad con las competencias asignadas en el artículo Nº 22 de la Ley General de Control Interno Nº 8292, la valoración del riesgo y su Plan Anual de Trabajo. La Auditoría Interna dejará constancia de su fiscalización, mediante documento que será anexado al Libro Auxiliar de los Sorteos.
+De igual forma, la Auditoría Interna fiscalizará de manera independiente, en sitio y según lo determine su Plan Anual de Trabajo, la impresión de las listas oficiales de premios de loterías que realice el Departamento de Producción.

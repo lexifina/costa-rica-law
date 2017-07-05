@@ -1,0 +1,6 @@
+Artículo 12º.- De la remuneración por la asistencia a la realización y celebración de los sorteos de lotería y a la recepción de excedentes de loterías:
+La asistencia a la realización y celebración de los sorteos de lotería y a la recepción de excedentes de loterías que se realice fuera de la jornada ordinaria del funcionario al tenor de lo establecido en el artículo 43 de la Convención Colectiva, suscrita el veintitrés de diciembre del dos mil dieciséis entre la Junta de Protección Social y la Asociación Nacional de Empleados Públicos y Privados, se considerará un servicio especial y se remunerará mediante una tarifa para cada una de las labores que se llevan a cabo en estos procesos.
+Para tales efectos la Gerencia encargada del proceso elaborará la propuesta que contemple todas las funciones y labores relacionadas con la celebración de los sorteos de lotería y la recepción de excedentes de loterías y la tarifa para cada labor.
+La fijación de la tarifa considerará, entre otros aspectos pero no limitado a: naturaleza de la función, su importancia dentro del proceso y la consecuencia del error.
+La propuesta de tarifa será avalada por la Gerencia General y aprobada por la Junta Directiva.
+A las tarifas se les aplicará el porcentaje de incremento salarial decretado para el Sector Público y autorizado por la Autoridad Presupuestaria.

@@ -1,0 +1,2 @@
+Artículo 7º- De la participación de otros funcionarios en la realización de los sorteos:
+También deberán participar en la realización de los sorteos, los funcionarios de la Institución necesarios para llevar a cabo las distintas labores operativas que demanden estos eventos, según propuesta elaborada por la Gerencia a cuyo cargo se encuentre el proceso, siguiendo criterios de razonabilidad y eficiencia.

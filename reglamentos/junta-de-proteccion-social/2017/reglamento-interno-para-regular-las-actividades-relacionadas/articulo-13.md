@@ -1,0 +1,2 @@
+Artículo 13º- Límite a la participación diaria en las actividades relacionadas con la realización y celebración de sorteos y en la recepción de excedentes:
+Un mismo funcionario no podrá participar el mismo día en el proceso de recepción de excedentes de loterías y en las actividades relacionadas con la realización y celebración de los sorteos de lotería o armado de ficheros; salvo que las necesidades de prestación del servicio público así lo demanden y sea debidamente aprobado por la Gerencia encargada del proceso.
