@@ -1,3 +1,0 @@
-Artículo 6º— A la recepción de excedentes de lotería asistirá el Gerente de Operaciones, quien puede delegar esta función en el subalterno que habitualmente lo sustituye en sus ausencias.
-La Auditoría Interna fiscalizará de manera independiente y en sitio la recepción de excedentes de lotería y su titular designará el personal que considere necesario para llevar a cabo esta fiscalización, de conformidad con las competencias asignadas en el artículo N° 22 de la Ley General de Control Interno N° 8292, la valoración del riesgo y su Plan Anual de Trabajo.
-(Así reformado mediante sesión ordinaria N° 31-2015 del 8 de setiembre del 2015)
