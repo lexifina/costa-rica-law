@@ -1,3 +1,5 @@
-Artículo 18.—Desembolso. En los préstamos personales los desembolsos se girarán a nombre del solicitante del crédito, pudiendo realizarse el depósito a través de transferencia bancaria o por medio de cheque.
-En el caso de las refundiciones de deudas, los cheques o transferencias con las que se cancelen operaciones, deben girarse a nombre y directamente a las instituciones correspondientes.
-(Así reformado mediante sesión ordianria N° 119-2014 del 29 de octubre del 2014)
+Artículo 18: Del cobro de los créditos
+La cuota del crédito, así como los montos por concepto de pólizas y seguros, retenidas por los patronos a sus trabajadores mediante deducción de planilla, deben ser pagados a la Junta de Pensiones en forma mensual, junto con el pago de las planillas por concepto de cuotas obrero patronal que se debe cancelar en los primeros diez días hábiles del mes. En el caso de los trabajadores del Ministerio de Educación, se deduce de su giro quincenal la cuota correspondiente, previa autorización escrita de éste al formalizarse el crédito, así como en el pagaré.
+Se exceptúan los casos en que la deducción no se pueda aplicar por motivos ajenos a JUPEMA, siempre y cuando esta situación se haya generado con posterioridad a la formalización del crédito. En estos casos, el deudor queda obligado a pagar las cuotas oportunamente en las oficinas de la Junta de Pensiones.
+Para efectos de cobro de intereses moratorios, se cobra a partir del primer día hábil del mes, siendo equivalente a la tasa de interés corriente del crédito más un 30%, según lo establecido en el Artículo 498 del Código de Comercio.
+En el caso de los jubilados y pensionados se deduce de su giro de pensión.

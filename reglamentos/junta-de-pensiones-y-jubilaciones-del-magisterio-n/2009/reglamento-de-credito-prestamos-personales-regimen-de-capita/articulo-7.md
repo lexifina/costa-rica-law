@@ -1,46 +1,26 @@
-CAPÍTULO III
-Requisitos
-Artículo 7°—De los requisitos de los préstamos personales.
-a. Completar la solicitud de crédito.
-b. El solicitante deberá aportar una constancia emitida por su patrono, donde se detallen los salarios nominales y líquidos de los últimos tres meses. Solo se considerará el ingreso fijo que reporte su patrono como servidor del Magisterio Nacional. Para efectos de análisis de capacidad de pago y a excepción de los arreglos de pago, solo se considerarán los “pluses salariales” definidos en el Instructivo de Otorgamiento de Créditos de este programa. En el caso de los jubilados y pensionados, la constancia será emitida por la Junta de Pensiones, así como en los casos de trabajadores del Ministerio de Educación Pública cuando se tenga acceso a esa información.
-(Así reformado el inciso anterior mediante sesiones N° 070 y 071-2016 del 22 y 28 de junio del 2016)
-c. Tener un salario líquido superior o igual al monto de la cuota estresada del crédito requerido, multiplicada por dos, más la cuota del seguro de caución (en los casos que cuenten con esta garantía).
-(Así reformado el inciso anterior mediante sesiones N° 070 y 071-2016 del 22 y 28 de junio del 2016)
-d. Presentar fotocopia de la cédula de identidad vigente (por ambos lados).
-e. Presentar el Reporte de Información Crediticia emitido por alguna de las entidades supervisadas por la SUGEF, con el fin de evaluar el comportamiento de pago vigente e histórico del solicitante.f. Aportar el número de una cuenta cliente donde se le podría realizar el depósito del monto otorgado. No aplica para jubilados y pensionados.
-(Así reformado el inciso anterior mediante sesiones N° 070 y 071-2016 del 22 y 28 de junio del 2016)
-g. La cantidad de cotizaciones requeridas para optar por crédito sin fiador serán las siguientes:
-Los trabajadores en propiedad del MEP, el INA, el CUC, el CUN Limón y las universidades estatales, así como los trabajadores interinos de estas instituciones, que hayan aportado 48 o más cotizaciones en los últimos 5 años, podrán gestionar créditos con garantía fiduciaria, hipotecaria o sin fiador (según el monto) en tanto hayan reportado 3 o más cotizaciones inmediatas anteriores a la solicitud del crédito. Los afiliados podrán ser eximidos de la presentación de fiadores, de acuerdo a los rangos de montos establecidos, que se detallan en cada línea crediticia, siempre y cuando suscriban el Seguro de Caución como garantía por el total de la operación. Para el caso del CUC y CUN Limón, el monto máximo que podrán solicitar con garantía del Seguro de Caución será de 5 millones de colones.
-En caso que el solicitante ya haya tenido créditos en esta Institución, podrá sustituir la fianza solidaria o codeudor, por el seguro de caución, en tanto en los 2 años previos a la solicitud, hayan presentado una morosidad máxima de 60 días de atraso por operación.
-Los trabajadores interinos del MEP, el INA, el CUC, el CUN Limón y las universidades estatales, con menos de 48 cotizaciones en los últimos 5 años, podrán gestionar créditos con garantía fiduciaria, hipotecaria o sin fiador (según el monto), en tanto hayan reportado 6 o más cotizaciones inmediatas anteriores a la solicitud del crédito.
-Los trabajadores con nombramiento en propiedad o interino de los centros educativos privados, deberán aportar 12 cotizaciones inmediatas anteriores a la solicitud y deberán aportar fiador (es) solidario(s), según el monto requerido. En los casos en los que por período de inactividad (vacaciones en fin y principio de año) no cuenten con las cotizaciones completas en un solo período, podrán ser consideradas las cotizaciones del período lectivo inmediato anterior.
-(Así reformado el inciso g) anterior mediante sesiones N° 070 y 071-2016 del 22 y 28 de junio del 2016)
-h. Los fiadores y/o codeudores, deben ser trabajadores en servicio, con nombramiento en propiedad, jubilados o pensionados por derecho propio, del Magisterio Nacional cuyos líquidos sean superiores al 150% del monto de la cuota estresada del crédito, según corresponda, los cuales deberán cumplir con los mismos requisitos establecidos en los incisos b., d. y e. de este artículo. Previo análisis de la Unidad de Crédito, se rechazarán aquellos deudores y fiadores que tengan una calificación crediticia en el comportamiento de pago histórico (CPH) del documento de calificación de riesgo de la SUGEF, igual a 3. (De este requisito se exceptúan los casos correspondientes a arreglos de pago).
-(Así reformado el inciso anterior mediante sesiones N° 070 y 071-2016 del 22 y 28 de junio del 2016)
-i. Podrán acceder a una línea de crédito adicional y sin fiador, los sujetos de crédito en las siguientes condiciones:
-Los pensionados y jubilados por derecho propio, hasta por 03.500.000.00 con respaldo sobre la Póliza Mutual, de la Sociedad de Seguros de Vida del Magisterio Nacional o la de saldos deudores y el seguro de caución.
-Los trabajadores en servicio, con nombramiento en propiedad con 12 cotizaciones consecutivas o más, del Ministerio de Educación Pública, las Universidades y el INA, hasta por 01.000.000.00 con garantía de póliza de saldos deudores y seguro de caución.
-Los trabajadores en servicio, con nombramiento en propiedad de los Centros Educativos Privados con 12 cotizaciones consecutivas o más hasta por 0500.000.00, con garantía sobre la póliza de saldos deudores. En los casos en los que por período de inactividad (vacaciones de fin y principio de año) no cuenten con las cotizaciones completas en un solo período, podrán ser consideradas las cotizaciones del período lectivo inmediato anterior.
-(Así reformado el inciso anterior mediante sesiones N° 070 y 071-2016 del 22 y 28 de junio del 2016)
-j. En caso de ser necesario, presentar y cumplir con los documentos, requisitos y garantías adicionales que le solicite la Unidad de Crédito y Cobro, para resguardar los intereses de la Institución.
-k. En el caso de que el solicitante sea extranjero, sólo se aceptarán aquellos cotizantes que posean cédula de residencia vigente y con al menos seis meses de laborar para el mismo patrono. }
-l caso de que el solicitante sea extranjero, sólo se aceptarán aquellos cotizantes que posean cédula de residencia vigente y con al menos 48 cotizaciones en los últimos 5 años. Los fiadores y codeudores extranjeros deben cumplir con esta misma condición.
-(Así reformado el inciso anterior mediante sesiones N° 070 y 071-2016 del 22 y 28 de junio del 2016)
-m. Se autoriza al Comité de Crédito para que previa recomendación y estudio técnico elaborado por la Unidad de Crédito y Cobro, acepte garantías reales de hipotecas en primer grado, con un 85% del valor del avalúo. El Comité analizará las solicitudes de crédito superiores al monto máximo de la línea de Gastos Personales. Los montos inferiores serán aprobados por el analista de crédito hipotecario y el Coordinador de la Unidad de Crédito y Cobro.
-n. Se autoriza al Comité de Crédito para que previa recomendación y estudio técnico elaborado por la Unidad de Crédito y Cobro, acepte garantías reales de hipotecas en primer grado, con un 80% del valor del avalúo. El Comité analizará las solicitudes de crédito superiores al monto máximo de la línea de Gastos Personales y Refundición de Deudas con garantía fiduciaria o cobertura de seguro de caución. Los montos inferiores serán aprobados por un analista de crédito hipotecario y el Coordinador de la Unidad de Crédito y Cobro.
-(Así reformado el inciso anterior mediante sesiones N° 070 y 071-2016 del 22 y 28 de junio del 2016)
-o. Los pensionados y jubilados por derecho propio y los sucesores que posean la póliza mutual activa deberán pignorar la Póliza Mutual de la Sociedad de Seguros de Vida del Magisterio Nacional de previo a suscribir la póliza de saldos deudores. Si el monto disponible para pignorar no cubre el total de la operación, se debe pignorar el disponible y el resto del crédito garantizarlo suscribiendo la póliza de saldos deudores. Si no posee disponible, puede utilizarse únicamente la póliza de saldos deudores.
-(Así reformado el inciso anterior en sesión N° 105 del 22 de setiembre de 2015)
-p. Los servidores activos deben contar con la póliza de vida de la Sociedad de Seguros de Vida del Magisterio Nacional; tanto estos trabajadores como los beneficiarios de derechos sucesorios que no posean póliza mutual de la Sociedad de Seguros de Vida, deben suscribir en todos los casos, una póliza de saldos deudores que cubra la operación de crédito en caso de fallecimiento. Los trabajadores activos deben autorizar la pignoración de la póliza según lo que tenga disponible, durante el período de disputabilidad. Una vez cumplido este período, la póliza será despignorada y el aseguramiento será únicamente la póliza de saldos deudores.
-Los requisitos deben ser cumplidos satisfactoriamente, en caso de que el gestionante desee optar por una renovación de crédito, deberá estar al día en sus operaciones crediticias.
-(Así reformado el inciso anterior en sesión N° 105 del 22 de setiembre de 2015)
-q. Certificación original de la municipalidad respectiva, que demuestre estar al día en el pago de Impuestos Municipales y Territoriales. (Cancelados mínimo al trimestre anterior a su fecha de expedición).
-(Así reformado el inciso anterior en sesión N° 105 del 22 de setiembre de 2015)
-r. Aportar copia certificada del plano catastrado. En los casos en los que la garantía es únicamente terreno y los planos fueron emitidos antes de 1999, se deberá aportar la certificación de uso de suelos extendida por la Municipalidad salvo que ya exista construcción en la propiedad ofrecida en garantía, o que ya tenga los permisos de construcción brindados por la municipalidad.
-(Así reformado el inciso anterior en sesión N° 105 del 22 de setiembre de 2015)
-s. Cancelación previa de los honorarios profesionales por avalúo al perito designado para la operación.
-t. Suscribir sobre las construcciones, una Póliza de Incendio y Líneas Aliadas con el Instituto Nacional de Seguros, este aseguramiento aplica únicamente para los casos en que el 85% del valor del terreno no cubre el monto del crédito.
-(Así adicionado el inciso anterior mediante sesión N° 016-2015 del 10 de febrero del 2015)
-u. Suscribir sobre las construcciones, una Póliza de Incendio y Líneas Aliadas con el Instituto Nacional de Seguros, este aseguramiento aplica únicamente para los casos en que el 80% del valor del terreno no cubre el monto del crédito.
-(Así adicionado el inciso anterior en sesión N° 105 del 22 de setiembre de 2015)
-(Así reformado mediante sesión ordinaria N° 119-2014 del 29 de octubre del 2014)
+Artículo 7: Línea de crédito personal para Gastos académicos (CrediEstudio).
+Pueden acceder a esta línea, los trabajadores en servicio, los pensionados (as) y jubilados (as) del Magisterio Nacional, para sufragar cualquier tipo de gasto relacionado con sus estudios, o de quien estime pertinente Estos gastos incluyen el pago de matrículas y materias escolares o universitarias, compra de útiles, uniformes, etc.
+Para ello, deben cumplir los siguientes requisitos:
+1. Cumplir con lo dispuesto en el Artículo 5 del Reglamento de Crédito para determinar la capacidad de pago.
+Presentar documentos probatorios del requerimiento a financiar, como el plan de estudio de la universidad, la factura Proforma o la factura cancelada, del gasto que desea cubrir, en forma parcial o total. Estos documentos no deben tener más de 60 días de emitidos.
+El desembolso del crédito, se realizará a nombre del solicitante contra la documentación probatoria correspondiente.
+Las siguientes son las condiciones de financiamiento para esta línea:
+Monto Máximo: ¢6.000.000
+Plazo Máximo: 6 años
+Tasa de Interés: Variable
+Garantía: Esta línea de crédito puede aprobarse con o sin fiador, según se detalla:
+Pensionados
+Hasta | ¢6.000.000.00 | 1 fiador o seguro de caución
+Trabajadores en servicio: MEP, CUC, CUN Limón, INA y Universidades Estatales con nombramiento en Propiedad, o bien, interino con 48 o más cotizaciones al Régimen, en los últimos 5 años.
+Hasta | ¢6.000.000.00 | 1 fiador o seguro de caución
+Trabajadores en servicio: MEP, INA, CUC, CUN Limón y Universidades Estatales con nombramiento Interino, con menos de 48 cotizaciones, en los últimos 5 años.
+Hasta | ¢1.000.000.00 | 1 fiador o Seguro de Caución
+¢1.000.001.00 | ¢2.000.000.00 | 1 fiador
+¢2.000.001.00 | ¢6.000.000.00 | 2 fiadores
+Trabajadores en servicio: Centros educativos privados con nombramiento en Propiedad
+Hasta | ¢2.000.000.00 | 1 fiador
+¢2.000.001.00 | ¢6.000.000.00 | 2 fiadores
+Trabajadores en servicio: Centros educativos privados con nombramiento interino
+Hasta | ¢2.000.000.00 | 1 fiador
+¢2.000.001.00 | ¢6.000.000.00 | 2 fiadores
+En los montos hasta ¢6.000.000.00 los dos fiadores pueden ser sustituidos por solo uno, siempre que este sea Pensionado o Jubilado del Magisterio Nacional, o bien, un trabajador en servicio del MEP, CUC, CUN Limón, INA o Universidades Estatales, con nombramiento en propiedad.

@@ -1,8 +1,2 @@
-Artículo 20: Del cobro de los créditos. La cuota del préstamo, así como los montos por concepto de pólizas y seguros, retenidas por los patronos a sus trabajadores mediante deducción de planilla, deberán ser pagados a la Junta de Pensiones en forma mensual, junto con el pago de las planillas por concepto de cuotas obrero patronal que se debe cancelar en los primeros diez días hábiles del mes. En el caso de los trabajadores del Ministerio de Educación, se deducirá de su giro quincenal la cuota correspondiente, previa autorización escrita de éste al formalizarse el crédito, así como en el pagaré.
-(Así reformado el párrafo anterior mediante sesión ordinaria N° 016-2015 del 10 de febrero del 2015)
-Se exceptúan los casos en que la deducción no se pueda aplicar por motivos ajenos a la Junta, siempre y cuando esta situación se haya generado con posterioridad a la formalización del crédito. En estos casos, el deudor quedará obligado a pagar las cuotas oportunamente en las oficinas de la Junta de Pensiones.
-(Así reformado el párrafo anterior mediante sesión ordinaria N° 016-2015 del 10 de febrero del 2015)
-Para efectos de cobro de intereses moratorios, se cobrará a partir del primer día hábil del mes, siendo equivalente a la tasa de interés corriente del crédito más un 30%, según lo establecido en el Artículo 498 del Código de Comercio.
-(Así reformado el párrafo anterior mediante sesiones N° 070 y 071-2016 del 22 y 28 de junio del 2016)
-En el caso de los jubilados y pensionados se deducirán de su giro de pensión.
-(Así reformado el párrafo anterior mediante sesiones N° 070 y 071-2016 del 22 y 28 de junio del 2016)
+Artículo 20: Vencimiento anticipado
+Las operaciones concedidas, pueden declararse vencidas anticipadamente y exigibles de inmediato por parte de JUPEMA, si se comprobara en cualquier momento, falsedad en la información proporcionada por el deudor al formalizarse la operación de crédito, atraso en el pago de una cuota o bien, se observe deterioro en la garantía.

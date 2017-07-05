@@ -1,1 +1,2 @@
-Artículo 3º—Objetivo del Reglamento. Este Reglamento tiene como fin regular la actividad crediticia que realizará la Junta de Pensiones y Jubilaciones del Magisterio Nacional con recursos provenientes del Régimen de Capitalización Colectiva.
+Artículo 3: Destino de los recursos
+Dirigido a los trabajadores en servicio, jubilados y pensionados de los regímenes de Capitalización Colectiva y Transitorio de Reparto y los beneficiarios de pensiones vitalicias por sucesión en la Línea de Gastos Personales, para sufragar requerimientos variados de índole personal.

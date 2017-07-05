@@ -1,11 +1,23 @@
-Artículo 6: De las condiciones de los créditos
-Las condiciones de las líneas para el financiamiento de los préstamos personales son las siguientes:
-Línea | Plazo máximo | Monto de financiamiento | Tasa de interés
-Gastos personales | 15 años | Hasta 020.000.000,00 o hasta el 80% del avalúo con garantía hipotecaria. | Ajustable. Se ajustará sumando la tasa básica pasiva bruta o la inflación, publicadas en la página del Banco Central de Costa Rica (la más alta de ambas) más la Tasa Técnica Actuarial y el Margen de Seguridad.
-CrediEstudio | 6 años | Hasta 06.000.000,00
-CrediTurismo | 5 años | Hasta 05.000.000,00
-CrediMarchamo | 1 año | Hasta 0500.000
-CrediElectrónico | 3 años | Hasta 01.000.000.00
-Refundición de Deudas | 20 años | Según capacidad de pago. Se otorga el 80% del avalúo, con la garantía hipotecaria. | Ajustable. Se ajustará sumando la tasa básica pasiva bruta o la inflación publicadas en la página del Banco Central de Costa Rica (la más alta de ambas) más la Tasa Técnica Actuarial y el Margen de Seguridad multiplicado por 2.
-El solicitante podrá acceder a la cantidad de créditos que su capacidad de pago le permita, en las diferentes líneas de crédito que ofrece este programa.
-(Así reformado mediante sesiones N° 070 y 071-2016 del 22 y 28 de junio del 2016
+Artículo 6: Línea de crédito personal para Gastos Personales
+Pueden acceder a esta línea, los trabajadores en servicio, jubilados (as) y pensionados (as) por derecho propio o por sucesión vitalicia, para atender toda clase de requerimientos personales.
+Para ello, deben cumplir con lo dispuesto en el Artículo 5 del Reglamento de Crédito para determinar la capacidad de pago.
+Las siguientes son las condiciones de financiamiento para esta línea:
+Montos Máximos:
+a) ¢20.000.000.00 con garantía fiduciaria, hipotecaria o seguro de caución.
+b) ¢50.000.000,00 considerando el 70% del avalúo, si la garantía es hipotecaria.
+Plazo Máximo: 15 años
+Tasa de Interés: Variable.
+Garantía: Esta línea de crédito puede aprobarse con o sin fiador, según se detalla:
+Pensionados (as) y los beneficiarios de pensiones vitalicias por sucesión:
+Hasta | ¢13.000.000.00 | 1 fiador, hipoteca o seguro de caución
+¢13.000.001.00 | ¢20.000.000.00 | 2 fiadores, hipoteca o seguro de caución
+Trabajadores en servicio: MEP, INA, CUC, CUN Limón y Universidades Estatales con nombramiento en Propiedad, o bien, interino de estas instituciones, con 48 o más cotizaciones al Régimen, en los últimos 5 años:
+Hasta | ¢10.000.000.00 | 1 fiador, hipoteca o seguro de caución
+¢10.000.001.00 | ¢20.000.000.00 | 2 fiadores, hipoteca o seguro de caución
+Trabajadores en servicio: MEP, INA, CUC, CUN Limón y Universidades Estatales con nombramiento Interino con menos de 48 cotizaciones, en los últimos 5 años
+Hasta | ¢10.000.000.00 | 1 fiador, hipoteca o seguro de caución
+¢10.000.001.00 | ¢20.000.000.00 | 2 fiadores, hipoteca o seguro de caución
+Trabajadores en servicio: Centros Educativos Privados (CEP en Propiedad e Interinos)
+Hasta | ¢7.500.000.00 | 1 fiador o hipoteca
+¢7.500.001.00 | ¢15.000.000.00 | 2 fiadores o hipoteca
+¢15.000.001.00 | ¢20.000.000.00 | 3 fiadores o hipoteca

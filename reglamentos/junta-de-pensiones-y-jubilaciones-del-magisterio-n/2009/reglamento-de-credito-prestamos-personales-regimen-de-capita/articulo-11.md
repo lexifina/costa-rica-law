@@ -1,12 +1,20 @@
-Artículo 11.— Línea de Crédito para Pago de Marchamo. Podrán acceder a esta línea, los cotizantes activos, jubilados y pensionados por derecho propio, para la cancelación del (de los) Derecho(s) de Circulación.
-(Así reformado el párrafo anterior mediante sesión ordinaria N° 016-2015 del 10 de febrero del 2015)
-Para ello, deberán cumplir los siguientes requisitos:
-1. Cumplir con lo dispuesto en el Artículo 7 del Reglamento de Crédito para determinar la capacidad de pago.
-(*) Garantía:
-Pensionados, trabajadores del MEP, INA, CUC. CUN Limón, Universidades Estatales en propiedad e interinos y Centros Educativos Privados en Propiedad:
-Hasta 0500.000.00 1 fiador o Seguro de caución
-Centros Educativos Privados interinos
-Hasta 0500.000.00 1 fiador
-Esta línea de crédito puede ser renovada, en tanto la capacidad de pago lo permita.
-(*)(Así reformado el punto anterior mediante sesiones N° 070 y 071-2016 del 22 y 28 de junio del 2016)
-(Así reformado mediante sesión ordinaria N° 119-2014 del 29 de octubre del 2014)
+Artículo 11 Línea de Refundición de Deudas y Arreglos de Pago
+Pueden acceder a esta línea, los trabajadores en servicio y pensionados, para la cancelación de operaciones de crédito adquiridas en esta o en otras instituciones, con el propósito de mejorar las condiciones de financiamiento de las mismas, de manera que la totalidad del crédito que se otorgue debe ser utilizado para la cancelación de deudas.
+Para ello, deben cumplir con lo dispuesto en el Artículo 5 de este Reglamento, para determinar la capacidad de pago y la garantía.
+Además, deben presentar los documentos requeridos para determinar el monto actualizado de las deudas que se cancelan con el nuevo crédito, o cualquier otro documento que se estime necesario para resolver.
+El solicitante debe estar al día en sus operaciones con esta u otras instituciones, sin embargo, se aceptan un máximo de 30 días naturales de atraso en las operaciones externas a cancelar. En el caso de pensionados del Régimen de Capitalización Colectiva, podrán tener una morosidad de hasta 90 días de atraso, en operaciones que se cancelen producto de la refundición. (De lo anterior, se exceptúan los arreglos de pago, que podrán tener atrasos superiores a los indicados).
+Las siguientes son las condiciones de financiamiento para esta línea:
+Montos Máximos:
+a) ¢15.000.000,00 con garantía fiduciaria, hipotecaria o seguro de caución.
+b) ¢50.000.000,00 considerando el 70% del avalúo, si la garantía es hipotecaria.
+Plazo Máximo: 20 años
+Tasa de Interés: Variable.
+Garantía: La garantía corresponde a la fianza solidaria o hipotecaria en primer grado considerando el 70% del avalúo.
+En caso de fianza solidaria, para esta línea específica se aplica la siguiente tabla:
+Pensionados
+Hasta | ¢6.000.000.00 | 1 fiador, hipoteca o Seguro de caución
+¢6.000.001.00 | ¢15.000.000.00 | 2 fiadores, hipoteca o seguro de caución
+Trabajadores en Servicio: MEP, INA, CUC, CUN Limón y Universidades estatales con nombramiento en Propiedad, o bien, interino con 48 o más cotizaciones al Régimen, en los últimos 5 años.
+Hasta | ¢3.000.000.00 | 1 fiador, hipoteca o seguro de caución
+¢3.000.001.000 | ¢6.000.000.00 | 2 fiadores, hipoteca o seguro de caución
+¢6.000.001.000 | ¢15.000.000.00 | 3 fiadores, hipoteca o seguro de caución

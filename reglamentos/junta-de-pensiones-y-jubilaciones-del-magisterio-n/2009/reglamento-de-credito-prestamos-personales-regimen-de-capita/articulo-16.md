@@ -1,3 +1,3 @@
-Artículo 16: De la formalización del crédito
-Los créditos, podrán ser formalizados en las Oficinas Centrales de la Junta de Pensiones o en sus Oficinas Regionales o bien fuera de las instalaciones de la Junta, solo en casos excepcionales. Toda formalización debe realizarse en presencia de un ejecutivo de servicio al cliente de la Junta.
-(Así reformado mediante sesiones N° 070 y 071-2016 del 22 y 28 de junio del 2016)
+Artículo 16: Desembolso
+En los préstamos personales los desembolsos se giran a nombre del solicitante del crédito, pudiendo realizarse el depósito a través de transferencia bancaria o por medio de cheque.
+En el caso de las refundiciones de deudas, los cheques o transferencias con las que se cancelen operaciones, deben girarse a nombre y directamente a las instituciones correspondientes.
