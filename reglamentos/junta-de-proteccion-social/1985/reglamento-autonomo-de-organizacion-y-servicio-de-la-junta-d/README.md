@@ -21,3 +21,4 @@ Reglamento Autónomo de Organización y Servicio de la Junta de Protección Soci
 | 6 | 2009-12-09 | Reglamento 0 (2009-12-09) |
 | 7 | 2015-06-22 | Reglamento 22 (2015-06-22) |
 | 8 | 2016-02-08 | Reglamento 4 (2016-02-08) |
+| 9 | 2017-07-05 | Reglamento 0 (2017-07-05) |

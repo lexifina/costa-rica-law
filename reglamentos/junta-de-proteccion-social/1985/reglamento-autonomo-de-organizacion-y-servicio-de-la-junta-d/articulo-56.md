@@ -1,1 +1,3 @@
 Artículo 56.—Se considerará llegada tardía, el ingreso al trabajo después de cinco minutos de la hora exacta señalada para el inicio de las labores en la correspondiente jornada de trabajo.
+En caso de que se presente una llegada tardía en la prestación de labores en la realización y celebración de los sorteos de lotería y en la recepción de excedentes de loterías, queda a criterio del funcionario designado como responsable de ese proceso, autorizar o no la participación en esas actividades.
+(Así adicionado el párrafo anterior mediante publicación en el Alcance Digital N° 164-A a La Gaceta N° 127 del 5 de julio del 2017)
