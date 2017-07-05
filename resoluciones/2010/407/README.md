@@ -14,3 +14,4 @@ Procedimiento para la Emisión de Criterios Técnicos en Materia de Clasificaci�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-03-10 | la propia norma |
+| 2 | 2017-07-05 | Resolución 10 (2017-07-05) |
