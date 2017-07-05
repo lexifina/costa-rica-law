@@ -1,0 +1,1 @@
+ARTICULO VIGESIMOSEPTIMO.-Toda modificación acordada por el Consejo de Administración entrará en vigor un mes después de que el Director General haya recibido notificación escrita de su aprobación efectuada de conformidad con los respectivos procedimientos constitucionales o legales de los “Estados Miembros”.

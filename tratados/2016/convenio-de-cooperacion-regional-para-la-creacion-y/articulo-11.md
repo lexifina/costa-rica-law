@@ -1,0 +1,1 @@
+ARTICULO DECIMOPRIMERO.-El Consejo de Administración celebrará sesiones ordinarias una vez al año, preferentemente en el último trimestre del año calendario. La convocatoria se hará por escrito, con una anticipación mínima de tres meses.

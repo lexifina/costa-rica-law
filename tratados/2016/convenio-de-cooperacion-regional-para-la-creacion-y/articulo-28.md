@@ -1,0 +1,2 @@
+ARTICULO VIGESIMOCTAVO.- Todos aquellos países de América Latina y el Caribe que no hayan participado en la firma del presente Convenio, podrán adherirse al mismo y pasar, por tanto, a ser parte en el presente Convenio como miembro del CREFAL, previa notificación a la “UNESCO”, la “OEA” y los “Estados Miembros” los cuales decidirán dentro del Consejo de Administración sobre su procedencia.
+Los instrumentos de adhesión se depositarán en poder del Director General, en su condición de Secretario del Consejo de Administración.

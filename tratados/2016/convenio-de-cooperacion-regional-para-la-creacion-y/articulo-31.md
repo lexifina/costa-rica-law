@@ -1,0 +1,1 @@
+ARTICULO TRIGESIMOPRIMERO.- Respecto de los países que se hayan adherido posteriormente, este Convenio entrará en vigor la fecha en que el Director General del CREFAL, reciba en depósito el correspondiente instrumento de adhesión.

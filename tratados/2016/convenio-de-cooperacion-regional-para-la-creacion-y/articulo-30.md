@@ -1,0 +1,1 @@
+ARTICULO TRIGESIMO.-El presente Convenio entrará en vigor una vez que por lo menos la mitad más uno de los Estados firmantes del mismo hayan depositado en poder del Director General del CREFAL los correspondientes instrumentos de ratificación.

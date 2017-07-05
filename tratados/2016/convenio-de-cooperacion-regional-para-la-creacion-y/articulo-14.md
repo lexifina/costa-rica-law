@@ -1,0 +1,2 @@
+ARTICULO DECIMOCUARTO.-El quórum para las sesiones del Consejo de Administración se integrará con la asistencia de su Presidente y la mitad más uno de sus miembros. Sus acuerdos serán tomados por mayoría de votos.
+La “SG/OEA”, la “UNESCO”, así como los “Estados Miembros”, tendrán derecho a voz y a un solo voto. El Presidente tendrá voto de calidad. Los observadores y los invitados especiales sólo tendrán derecho a voz.

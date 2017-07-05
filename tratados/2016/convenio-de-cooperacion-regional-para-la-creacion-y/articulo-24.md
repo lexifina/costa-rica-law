@@ -1,0 +1,1 @@
+ARTICULO VIGESIMOCUARTO.- La “SG/OEA” y la “UNESCO” contribuirán a las actividades del Centro conforme a los programas y presupuestos aprobados por cada una de las organizaciones y según los procedimientos correspondientes para la ejecución de las actividades convenidas.

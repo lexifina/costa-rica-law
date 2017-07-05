@@ -1,0 +1,1 @@
+ARTICULO DECIMOTERCERO.- Podrán participar en las reuniones del Consejo de Administración además de los representantes debidamente acreditados, observadores e invitados especiales a propuesta de las partes que suscriben el presente convenio, previa aprobación del Presidente del Consejo.
