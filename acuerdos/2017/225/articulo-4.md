@@ -1,0 +1,3 @@
+Artículo 4. Actualización de la información suministrada en el prospecto
+| El emisor será responsable de mantener la información suministrada en el prospecto debidamente actualizada, según lo establecido en el ROPV y en el Acuerdo SGV-A-182 “Instrucciones para la remisión de prospectos de entidades emisoras y documentos relacionados”. Las modificaciones o actualizaciones en las revelaciones sobre riesgos y conflictos de interés así como en las políticas aplicables al vehículo de propósito especial, se deben incorporar al prospecto mediante el procedimiento de actualización por Hecho Relevante.
+Adicionalmente, como parte de la actualización anual del prospecto, se deben incorporar las proyecciones actualizadas del proyecto.
