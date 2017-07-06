@@ -1,4 +1,4 @@
-CAPÍTULO SEGUNDO
+CAPITULO SEGUNDO
 Administración de los bienes
-Artículo 20.—Pérdida por deterioro en bienes realizables. La Gerencia General Corporativa, mediante acto que únicamente puede delegar en las Subgerencias, puede aprobar el traslado de los bienes indicados en el artículo 2 de este Reglamento a cuentas de orden por deterioro o pérdida, cuando:
+Articulo 20.—Pérdida por deterioro en bienes realizables, La Gerencia General Corporativa, mediante acto que únicamente puede delegar en las Subgerencias, puede aprobar el traslado de los bienes indicados en el artículo 2 de este Reglamento a cuentas de orden por deterioro o pérdida, cuando:
 Medie un estudio de costo beneficio o que jurídicamente sea imposible su realización por deterioro, destrucción o inexistencia del bien. El traslado debe proponerlo la Gerencia de la respectiva oficina o la Jefatura de Bienes Adjudicados, quien debe gestionar por escrito ante la jerarquía superior del Área de Bienes Adjudicados, que la propuesta de pérdida por deterioro cumple con el estudio de costo beneficio o bien con el dictamen legal, sobre la imposibilidad jurídica de la realización del bien, para su respectivo traslado a la Gerencia General Corporativa.

@@ -1,3 +1,3 @@
-Artículo 4º—Publicación de bienes para la venta. El Banco debe promover la venta de los bienes disponibles por medio de su página Web, debiendo realizar al menos una publicación al mes, en la cual deben detallarse los requisitos y condiciones que definirá el Área de Bienes Adjudicados.
+Artículo 4°—Publicación de bienes para la venta, El Banco debe promover la venta de los bienes disponibles por medio de su página Web, debiendo realizar al menos una publicación al mes, en la cual deben detallarse los requisitos y condiciones que definirá el Área de Bienes Adjudicados.
 El Banco puede publicitar la venta de los bienes en cualquier medio de circulación nacional o regional, cuando lo considere conveniente.
-En todo caso, no se pueden ofertar en oficina los bienes no publicados en la página Web.
+En todo caso, no se pueden ofertar en oficina los bienes no publicados en la página web.

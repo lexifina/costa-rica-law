@@ -1,0 +1,3 @@
+Artículo 19 Ter.— Venta Organizaciones Sociales.
+Sin perjuicio de lo indicado en el artículo 19 de este Reglamento, el Banco puede vender a organizaciones sociales sin fines de lucro y las organizaciones de la economía social solidada, con al menos un año de haberse inscrito en el registro correspondiente y estar cumpliendo con sus objetivos, sin observar lo indicado en los artículos 8 y 9 de este Reglamento, cuando así se solicite, antes de que se ordene la primera publicación para la venta. Esta venta debe efectuarse por el monto del avalúo y conforme a lo establecido en los artículos 16 y 17 de este Reglamento.
+Estas ventas estarán exentas del pago de arras estipulado en el artículo 17 de este Reglamento.
