@@ -1,0 +1,72 @@
+CONSEJO NACIONAL DE SUPERVISIÓN DEL SISTEMA FINANCIERO
+El Consejo Nacional de Supervisión del Sistema Financiero en el artículo 10 del acta de la sesión 1340- 2017, celebrada el 14 de junio del 2017,
+considerando que:
+consideraciones de orden legal
+I. Con fundamento en el inciso c) del artículo 131 de la Ley Orgánica del Banco Central de Costa Rica, el Superintendente General de Entidades Financieras (SUGEF) propuso al Consejo Nacional de Supervisión del Sistema Financiero (CONASSIF) para su aprobación, el “Reglamento sobre la Administración del Riesgo de Mercado de Tasa de Interés y de Tipos de cambio”, el cual tiene como objetivo promover la mejora de la administración del riesgo de mercado y tasa de interés de las entidades supervisadas, así como adecuar el marco regulatorio a los estándares internacionales sobre la materia, en particular a las recomendaciones del Comité de Basilea en Supervisión Bancaria.
+II. El inciso b) del artículo 171 de la Ley Reguladora del Mercado de Valores, Ley 7732, dispone que son funciones del CONASSIF aprobar las normas atinentes a la autorización, regulación, supervisión, fiscalización y vigilancia que, conforme a la ley, deben ejecutar la Superintendencia General de Entidades Financieras, la Superintendencia General de Valores, la Superintendencia General de Seguros y la Superintendencia de Pensiones.
+III. El párrafo segundo del artículo 119 de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558, en relación con la operación propia de las entidades fiscalizadas establece que se podrán dictar las normas generales que sean necesarias para el establecimiento de sanas prácticas bancarias, todo en salvaguarda del interés de la colectividad.
+IV. De conformidad con lo dispuesto en el inciso 2, artículo 3 de la Ley1644 “Ley Orgánica del Sistema Bancario Nacional” le compete a los bancos la función esencial de procurar la liquidez, solvencia y buen funcionamiento del Sistema Bancario Nacional, lo que es extensivo a los demás entes supervisados del Sistema Financiero Nacional; en ese sentido, la administración de riesgo de liquidez mercado y tasa de interés involucra la mayoría de los procesos de los entes financieros por lo que se requiere que éstos implementen políticas, controles e infraestructura para limitar la exposición no aceptable del riesgo de mercado y tasa de interés.
+V. El inciso b) del artículo 136, Reglamento para las entidades financieras; de la Sección II, Operaciones de la Superintendencia en los entes fiscalizados; del Capítulo IV, Superintendencia General de Entidades Financieras; de la Ley Orgánica del Banco Central de Costa Rica, dispone que el Consejo Directivo de la Superintendencia, a propuesta del Superintendente, deberá dictar un reglamento que le permita a la Superintendencia juzgar la situación económica y financiera de las entidades fiscalizadas, para velar por la estabilidad y la eficiencia del sistema financiero. Específicamente dispone la potestad de solicitar "requerimientos proporcionales de capital adicional, cuando sea necesario para que los entes fiscalizados puedan enfrentar los riesgos mencionados en el inciso anterior. Estos requerimientos serán adicionales a los establecidos por ley o por reglamento, que deben entenderse como los mínimos necesarios para iniciar operaciones."
+VI. Mediante artículo 14 del acta de la sesión 1326-2017 del 25 de abril del 2017, el CONASSIF remitió en consulta pública la propuesta de acuerdo SUGEF 23-17 “Reglamento sobre la administración del riesgo de mercado, de tasas de interés y de tipos de cambio” y las modificaciones al Acuerdo SUGEF 3-06 “Reglamento sobre la suficiencia patrimonial de entidades financieras”, al acuerdo SUGEF 2-10 Reglamento sobre administración integral de riesgos, al acuerdo SUGEF 24-00, Reglamento para juzgar la situación económica - financiera de las entidades fiscalizadas y al acuerdo SUGEF 27-00, Reglamento para juzgar la situación económica - financiera de las asociaciones mutualistas de ahorro y préstamo para la vivienda. Las observaciones recibidas fueron valoradas y en lo procedente, se incluyeron al texto sometido a consulta.
+Consideraciones prudenciales
+Consideraciones sobre gestión y supervisión
+I. Con el objeto de promover un marco adecuado para administración del riesgo de mercado y riesgo de tasas de interés de las entidades supervisadas, y adecuar la regulación a los estándares internacionales sobre la materia, en particular las recomendaciones del Comité de Basilea en Supervisión Bancaria, resulta conveniente complementar la norma vigente sobre Administración Integral de Riesgos, con normas específicas que establezcan lineamientos para la administración de los riesgos de mercado , de tasa de interés y de tipo de cambio.
+II. Entre los Principios Básicos para una Supervisión Bancaria Efectiva del Comité de Supervisión Bancaria de Basilea, los principios 22 y 23 sobre riesgo de mercado y riesgo de tasa de interés, disponen que los supervisores determinan que las entidades cuenten con una estrategia para gestionar el riesgo de mercado y el riesgo de tasa de interés. Esta estrategia incorpora el alineamiento de sistemas, políticas y procesos para identificar, cuantificar, evaluar, vigilar, informar y controlar o mitigar los riesgos de mercado y el riesgo de tasa de interés; con el apetito por el riesgo, importancia sistémica y el perfil de riesgo de la entidad, la situación macroeconómica y de los mercados.
+III. El proceso de administración del riesgo de mercado, de tasas de interés y de tipos de cambio, para ser adecuado debe contar con un marco organizativo con funciones y responsabilidades claras, con recursos humanos y materiales apropiados, acordes con el tamaño, grado de sofisticación, estrategia de negocio y perfil de riesgo de cada entidad.
+IV. La administración integral de riesgos propicia la alineación entre el riesgo aceptado y la estrategia, provee el rigor para identificar el riesgo y seleccionar posibles alternativas de respuesta y mejora la capacidad para la toma de decisiones y la utilización de capital en función de las necesidades reales, razones por las cuales es imperativo para las entidades financieras desarrollar y mantener un proceso de Administración Integral de Riesgos que debe considerar las pérdidas potenciales por cambios adversos de los precios de mercado a los cuales la banca está expuesta, tanto en sus operaciones activas como pasivas.
+V. El supervisor debe contar con facultades que le permitan exigir una reducción del riesgo a aquellas instituciones que presenten una excesiva exposición al riesgo de tasa de interés en la cartera de inversión. Para ello, el supervisor puede solicitar que realicen las acciones correctivas que le permitan reducir la exposición, disponer de una cantidad adicional de capital o que realicen una combinación de ambas.
+VI. De acuerdo con el estándar sobre “Requerimientos mínimos de capital por riesgo de mercado”, emitido por el Comité de Basilea, en enero del 2016: “Una posición con riesgo en divisas calzada protegerá al banco frente a pérdidas por variaciones en los tipos de cambio, pero no necesariamente protegerá su coeficiente de suficiencia de capital. La ratio capital/activos de un banco cuyo capital esté denominado en moneda local y cuya cartera de activos y pasivos en divisas esté completamente calzada disminuirá si la moneda local se deprecia. Manteniendo una posición de riesgo corta en la moneda local podrá proteger su coeficiente de suficiencia de capital, pero la posición de riesgo podría provocar pérdidas en caso de que la moneda local se apreciase. Las autoridades supervisoras tienen libertad para permitir a los bancos proteger su coeficiente de capital de esta manera y excluir ciertas posiciones de riesgo del cálculo de sus posiciones de riesgo abiertas netas en divisas.”
+resolvió, en firme:
+II. Modificar el Acuerdo SUGEF 3-06, Reglamento sobre la suficiencia patrimonial de entidades financieras, de conformidad con el siguiente texto:
+1. Modificar el Artículo 25 “Posición neta total sujeta a requerimiento de capital por riesgo cambiario”, conforme al siguiente texto:
+“Artículo 25. Posición expuesta en moneda extranjera sujeta a requerimiento de capital por riesgo cambiario
+La posición expuesta en moneda extranjera sujeta a requerimiento de capital se calcula de acuerdo con la siguiente expresión matemática:
+[imagen]
+PEME: Posición expuesta en moneda extranjera.
+Posición en moneda extranjera (PME), Ai-Pi, así definida en el Artículo 34. "Límite para la posición en moneda extranjera" del Acuerdo SUGEF 9-08, Reglamento para la autorización y ejecución de operaciones con derivados cambiarios.
+i= representa una moneda extranjera, por ejemplo: dólares, euros, yenes, etc.; para i=1,…,n.
+Ai: Activos en la moneda extranjera i.
+Pi: Pasivos en la moneda extranjera i.
+CB: Capital Base.
+A: Activo total.
+El incumplimiento de la variación en los límites declarados en el Artículo 25 del Acuerdo SUGEF 23- 17, Reglamento sobre la administración del riesgo de mercado, de tasas de interés y de tipos de cambio, será sancionado de acuerdo con el Reglamento para las Operaciones Cambiarias de Contado emitido por el Banco Central de Costa Rica.”
+2. Modificar el Artículo 26. Requerimiento de capital por riesgo cambiario, conforme al siguiente texto:
+“Artículo 26. Requerimiento de capital por riesgo cambiario
+El requerimiento patrimonial por riesgo cambiario se calcula multiplicando la posición expuesta en moneda extranjera por un factor de riesgo del 10%. “
+3. Sustituir el Artículo 32 "Cálculo de la suficiencia patrimonial" conforme al siguiente:
+"Artículo 32. Cálculo de la suficiencia patrimonial
+La suficiencia patrimonial de la entidad se calcula según la siguiente fórmula:
+[imagen]
+donde:
+SPE = Suficiencia patrimonial de la entidad.
+CB = Capital base.
+RC = Activos y pasivos contingentes ponderados por riesgo de crédito más riesgo de precio de liquidación
+RO = Requerimiento patrimonial por riesgo operativo.
+RP = Requerimiento de capital por riesgo de precio más requerimiento de capital por riesgo de variación de tasas de interés en operaciones con derivados cambiarios.
+RTC = Requerimiento de capital por riesgo de tipos de cambio. Este se calcula según el artículo 25 Posición expuesta en moneda extranjera sujeta a requerimiento de capital por riesgo cambiario, de este Reglamento.”
+4. Agregar el Transitorio X conforme al siguiente texto:
+Transitorio X.
+En el transcurso de un mes, contado a partir de la fecha de entrada en vigencia de esta modificación, las entidades deberán remitir a la SUGEF el plan de ajuste a los nuevos requerimientos de capital por riesgo cambiario según lo señalado en los Artículos 25 y 26 de este Reglamento.
+Las entidades disponen de un plazo de 24 meses, contado a partir de la fecha de entrada en vigencia de esta modificación, para concretar el plan de ajuste a que se refiere el párrafo anterior.
+Rige a partir de la publicación en el Diario Oficial “La Gaceta"
+III. Modificar el Acuerdo SUGEF 2-10, Reglamento sobre administración integral de riesgos, de conformidad con el siguiente texto:
+1. Modificar los incisos g. y h. del Artículo 3, Definiciones, conforme al siguiente texto:
+"Artículo 3. Definiciones
+[…]
+g. Riesgo de tasas de interés (o riesgo de tasa de interés): Se define como la posibilidad de que se produzcan cambios adversos en las condiciones financieras de una entidad ante fluctuaciones en la tasa de interés dentro del libro bancario (cartera de inversión), generando efectos negativos en el margen financiero y el valor económico de la entidad.
+h. Riesgo de tipos de cambio (o riesgo de tipo de cambio o riesgo cambiario): Posibilidad de sufrir pérdidas como consecuencia de variaciones en el tipo de cambio. Está compuesto por los riesgos de conversión, riesgos de posición en moneda extranjera y riesgos de transacciones.
+Este riesgo también se manifiesta cuando el resultado neto del ajuste cambiario no compensa proporcionalmente el ajuste en el valor de los activos denominados en moneda extranjera, ocasionando una reducción en el indicador de suficiencia patrimonial.
+[…]"
+IV. Modificar el Acuerdo SUGEF 24-00, Reglamento para juzgar la situación económica - financiera de las entidades fiscalizadas, de conformidad con el siguiente texto:
+1. Sustituir en el apartado Definiciones de riesgos de las Disposiciones Generales, las definiciones de Riesgo por variaciones en las tasas de interés y Riesgo cambiario conforme al siguiente texto:
+"[…]
+Riesgo de tasas de interés (o riesgo por variaciones en las tasas de interés): Se define como la posibilidad de que se produzcan cambios adversos en las condiciones financieras de una entidad ante fluctuaciones en la tasa de interés dentro del libro bancario (cartera de inversión), generando efectos negativos en el margen financiero y el valor económico de la entidad.
+Riesgo de tipos de cambio (o riesgo de tipo de cambio o riesgo cambiario): Posibilidad de sufrir pérdidas como consecuencia de variaciones en el tipo de cambio; y los montos correspondientes se encuentran descalzados. Está compuesto por los riesgos de conversión, riesgos de posición en moneda extranjera y riesgos de transacciones.
+[…]"
+V. Modificar el Acuerdo SUGEF 27-00, Reglamento para juzgar la situación económica - financiera de las asociaciones mutualistas de ahorro y préstamo para la vivienda, de conformidad con el siguiente texto:
+1. Sustituir en el apartado Definiciones de riesgos de las Disposiciones Generales, las definiciones de Riesgo por variaciones en las tasas de interés y Riesgo cambiario conforme al siguiente texto:
+"[…]
+Riesgo de tasas de interés (o riesgo por variaciones en las tasas de interés): Se define como la posibilidad de que se produzcan cambios adversos en las condiciones financieras de una entidad ante fluctuaciones en la tasa de interés dentro del libro bancario (cartera de inversión), generando efectos negativos en el margen financiero y el valor económico de la entidad.
+Riesgo de tipos de cambio (o riesgo de tipo de cambio o riesgo cambiario): Posibilidad de sufrir pérdidas como consecuencia de variaciones en el tipo de cambio; y los montos correspondientes se encuentran descalzados. Está compuesto por los riesgos de conversión, riesgos de posición en moneda extranjera y riesgos de transacciones.
+[…]"
+Rige a partir del cierre del mes siguiente a la publicación en el Diario Oficial La Gaceta.
