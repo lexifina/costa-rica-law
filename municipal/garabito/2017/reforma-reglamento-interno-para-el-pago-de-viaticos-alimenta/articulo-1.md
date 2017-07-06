@@ -1,0 +1,10 @@
+MUNICIPALIDAD DE GARABITO
+REFORMAS AL REGLAMENTO INTERNO
+PARA PAGO DE VIÁTICOS, ALIMENTACIÓN
+Y TRANSPORTES PARA REGIDORES,
+SÍNDICOS Y TRABAJADORES
+MUNICIPALES
+El Concejo Municipal del cantón de Garabito, de conformidad con lo establecido en los artículos 1º, 2º, 3º, 4º, inciso a), 13 inciso c), 30 párrafo segundo y el 43 del Código Municipal, en uso de sus atribuciones acuerda en sesión ordinaria Nº 46, celebrada el 15 de marzo del 2017, la modificación de los artículos 5º y 9º, del Reglamento Interno para pago de Viáticos, Alimentación y Transportes para Regidores, Síndicos y Trabajadores Municipales:
+Artículo 5º—Cuando algún regidor o síndico municipal sea nombrado por acuerdo municipal, para atender asuntos propios de su investidura y ello implique un desplazamiento fuera del cantón de Garabito, el Concejo Municipal autorizará el pago de viáticos con sustento en lo dispuesto por la Contraloría General de la República al respecto y a este Reglamento. Asimismo, se cancelará con autorización del Alcalde Municipal, viáticos de transporte y alimentación por la asistencia a sesiones de Concejo y a reuniones, siempre que exista una distancia mayor a doce kilómetros entre el sitio de la sesión o reunión y el domicilio del regidor o síndico, y se compruebe que la Municipalidad no facilitó el transporte mediante vehículos municipales y alimentación. Estos viáticos se tramitarán por adelantado y la Secretaria del Concejo hará la solicitud y transcribirá el acuerdo correspondiente a efecto de que el Señor Alcalde proceda.
+Artículo 9º—La liquidación de gastos de alimentación, hospedaje y transporte, por concepto de ejecución de funciones propias del cargo de regidor o síndico, fuera del cantón, deberá hacerse dentro de los ocho días naturales después de efectuada la erogación, aportando los comprobantes respectivos. La liquidación de gastos de alimentación y transporte, por concepto de asistencia a reuniones y sesiones al regidor o síndico, deberá hacerse dentro de los cinco días naturales después del vencimiento de cada mes, aportando los comprobantes respectivos.
+Jacó, 30 de marzo del 2017
