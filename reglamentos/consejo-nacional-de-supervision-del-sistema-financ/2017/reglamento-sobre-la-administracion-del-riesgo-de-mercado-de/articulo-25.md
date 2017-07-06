@@ -1,0 +1,3 @@
+Artículo 25. Políticas
+Las políticas deben contener los criterios para definir la posición en moneda extranjera para negociación y la posición en moneda extranjera estructural; las funciones y responsabilidades en la gestión del riesgo de tipos de cambio y los criterios adoptados para la identificación, medición, control, mitigación y sistemas de información para la gestión del riesgo de tipos de cambio.
+Las políticas deben contener la declaratoria de los límites cuantitativos, por parte de la entidad, de la posición en moneda extranjera estructural y de la posición en moneda extranjera para negociación.

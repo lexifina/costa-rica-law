@@ -1,0 +1,5 @@
+CAPITULO III
+DISPOSICIONES ESPECÍFICAS SOBRE GESTIÓN DE RIESGOS DE TASAS DE INTERÉS
+Artículo 18. Proceso para la gestión del riesgo tasas de interés
+El marco que las entidades establezcan para la gestión del riesgo de tasa de interés debe incluir las políticas, prácticas, procedimientos y estructuras organizativas para su adecuada gestión, acorde a su modelo de negocios, el cual debe ser proporcional a su tamaño, así como el volumen, las características y la complejidad de sus operaciones relacionadas con este riesgo. Adicionalmente, dicho marco debe estar en consonancia con el apetito por el riesgo, el perfil de riesgo y la importancia sistémica de la entidad.
+La gestión de este riesgo involucra una serie de procesos, entre ellos la administración de los descalces de tasa de interés, el análisis de la incertidumbre respecto de la tasa de interés a aplicar a los futuros flujos de fondos, los ajustes de tasa -incluyendo el uso de escenarios de tensión, así como la consideración del riesgo de tasa que resulta del uso de modelos dinámicos que reflejan potenciales negocios futuros y decisiones empresariales.

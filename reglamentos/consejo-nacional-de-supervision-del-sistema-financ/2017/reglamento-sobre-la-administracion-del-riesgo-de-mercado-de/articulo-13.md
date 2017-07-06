@@ -1,0 +1,3 @@
+Artículo 13. Valoración de los instrumentos
+La valoración de los instrumentos debe reflejar el valor razonable de realización. Las entidades deben contar con sistemas adecuados y un control suficiente para asegurar que las posiciones valoradas a precios de mercado se revalúan con la frecuencia establecida en el Reglamento sobre Valoración de Instrumentos Financieros de la Superintendencia General de Valores.
+La utilización de los precios generados, provistos por las empresas autorizadas debe ser complementada por la entidad con políticas y procedimientos para presentar las objeciones a dichos precios cuando a juicio de la entidad no representen un valor razonable.

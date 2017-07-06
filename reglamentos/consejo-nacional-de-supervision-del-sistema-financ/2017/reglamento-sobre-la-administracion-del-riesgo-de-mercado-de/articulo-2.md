@@ -1,0 +1,3 @@
+Artículo 2. Alcance
+Los sujetos obligados al cumplimiento del presente reglamento son los intermediarios financieros y otras entidades creadas por Ley Especial supervisados por la Superintendencia General de Entidades Financieras (SUGEF), y complementa el marco regulatorio general vigente, del cual forman parte también el “Reglamento sobre Gobierno Corporativo” y el “Reglamento sobre Administración Integral de Riesgos”.
+Su aplicación debe atender al concepto de proporcionalidad, siendo congruente con el tamaño de la entidad, el enfoque de negocio, la naturaleza y complejidad de sus operaciones, el entorno macroeconómico y las condiciones del mercado.
