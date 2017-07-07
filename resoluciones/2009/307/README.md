@@ -21,3 +21,4 @@ Definición de los Mercados Relevantes y de los Operadores y/o Proveedores Impor
 | 6 | 2016-11-23 | Resolución 263 (2016-11-23) |
 | 7 | 2016-11-23 | Resolución 264 (2016-11-23) |
 | 8 | 2016-11-23 | Resolución 266 (2016-11-23) |
+| 9 | 2017-07-07 | Resolución 191 (2017-07-07) |
