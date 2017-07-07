@@ -1,1 +1,2 @@
-Artículo 2°-El Colegio de Farmacéuticos de Costa Rica dispondrá de las medidas administrativas que considere necesarias y que deberán ser cumplidas por los interesados en los trámites de autorización y registro de los establecimientos farmacéuticos.
+Artículo 2.- El Colegio de Farmacéuticos de Costa Rica, en apego a lo establecido en el artículo 97 de la Ley No. 5395 del 30 de octubre de 1973, "Ley General de Salud", verificará las calidades del profesional en farmacia que regentará el establecimiento farmacéutico como trámite de autorización y registro de los establecimientos farmacéuticos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40631 del 7 de julio del 2017)

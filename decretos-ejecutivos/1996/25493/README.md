@@ -14,3 +14,4 @@ Disposiciones para la inscripción de los establecimientos farmacéuticos en el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-10-08 | la propia norma |
+| 2 | 2017-07-07 | Decreto Ejecutivo 40631 (2017-07-07) |
