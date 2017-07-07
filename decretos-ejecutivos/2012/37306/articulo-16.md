@@ -1,2 +1,0 @@
-Artículo 16°- Del Equipo Local de Vigilancia de la Salud.
-El Equipo de Vigilancia de la Salud depende del Director del Área Rectora de Salud. Su objetivo consiste en garantizar que el componente local del proceso Vigilancia de la Salud se ejecute de manera articulada, eficaz y con la calidad requerida. Este equipo realiza la selección, recopilación, integración, análisis y difusión de la información sobre el estado de salud, sus determinantes y tendencias, en el nivel local, a fin de seleccionar las medidas más apropiadas para proteger y mejorar la salud de la población.

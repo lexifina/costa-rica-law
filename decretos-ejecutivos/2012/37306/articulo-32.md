@@ -1,2 +1,0 @@
-Artículo 32°- De la lista de determinantes, riesgos y eventos de salud sujetos a notificación obligatoria.
-El Ministerio de Salud será el responsable de definir y mantener actualizada la lista de determinantes, riesgos, patógenos, material biológico y eventos de salud, cuya notificación es obligatoria por parte de las personas físicas y jurídicas que los registran, detectan, investigan o atiendan; así como de establecer los medios, plazos y condiciones en que tal notificación debe ser realizada.

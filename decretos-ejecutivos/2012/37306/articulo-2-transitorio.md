@@ -1,1 +1,0 @@
-Transitorio II.- Aquellas instituciones o profesionales que tengan problemas de conectividad, deberán entregar al Área Rectora de Salud correspondiente la información solicitada en digital con la periodicidad que establece el presente decreto.

@@ -1,2 +1,0 @@
-Artículo 13°- De los Responsables Regionales de Vigilancia de la Salud.
-Los Responsables Regionales de Vigilancia de la Salud tienen como objetivo garantizar que el componente regional del proceso Vigilancia de la Salud se ejecute de manera articulada, eficaz y con la calidad requerida. Además, están encargados de la selección, recopilación, integración, análisis y difusión de la información sobre el estado de salud, sus determinantes y tendencias, en el ámbito regional, a fin de seleccionar las medidas más apropiadas para proteger y mejorar la salud de la población.
