@@ -60,3 +60,29 @@ Lista de productos cosméticos
 20 Quita esmalte
 22 Talcos perfumados
 23 Cremas humectantes/hidratantes para manos y cuerpo
+(*)Lista de Nuevos Productos Alimenticios para Registro Simplificado:
+1. Barquillos.
+2. Bebidas a base de té.
+3. Bizcochos (Rosquillas).
+4. Empanizadores.
+5. Fécula de maíz- Maicenas (Saborizadas y no saborizadas).
+6. Grano la.
+7. Jugos - Pulpas de frutas y vegetales.
+8. Lustre para queques y decoración comestible.
+9. Marshmellows (Malvaviscos).
+10. Mezcla en polvo para preparar Flan y Gelatina.
+11. Palomitas de maíz.
+12. Queques y Repostería ( excepto los rellenos con algún lácteo o tipo de carne
+de res, cerdo, atún ... ).
+13. Salsas Picantes (Tabasco) y Chileras preparadas.
+14. Siropes y Jarabes.
+15. Tapa de dulce (Cualquier forma).
+16. Tortillas (Harina y Maíz).
+17. Vegetales congelados productos.
+(*)(Así adicionada la lista de productos anteriores por el artículo 1° del decreto ejecutivo N° 40629 del 7 de julio del 2017)
+(*)Lista de Nuevos Productos Cosméticos para Registro Simplificado:
+1. Desodorante para pies (menos los de acción antitranspirante ).
+2. Desodorante axilar (menos los de acción antitranspirante).
+3. Brillantina para el cabello.
+4. Sales de baño.
+(*)(Así adicionada la lista de productos anteriores por el artículo 1° del decreto ejecutivo N° 40629 del 7 de julio del 2017)
