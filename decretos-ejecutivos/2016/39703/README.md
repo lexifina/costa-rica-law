@@ -14,3 +14,4 @@ Reglamento para la Operación de Actividades de Turismo de Aventura
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-06-06 | la propia norma |
+| 2 | 2017-07-07 | Decreto Ejecutivo 40621 (2017-07-07) |
