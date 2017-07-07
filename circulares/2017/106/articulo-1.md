@@ -1,0 +1,11 @@
+CIRCULAR Nº 106-2017
+ASUNTO: Acciones para fortalecer el Sistema de Control Interno.
+A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión Nº 61-17 celebrada el 27 de junio de 2017, artículo XC, conoció el informe sobre el Proceso de Autoevaluación Institucional 2016, donde se analizó, la percepción que existe sobre el Sistema de Control Interno del Poder Judicial y el nivel de cumplimiento para cada uno de sus componentes funcionales.
+En este sentido, se dispuso recomendar las siguientes acciones pertinentes para fortalecer el cumplimiento del Sistema de Control Interno.
+1- Reiterar a las y los titulares subordinados de las diferentes oficinas y despachos judiciales su obligación de implementar de forma integral la Normativa General de Control Interno, con especial atención a la normativa del componente de Ambiente de Control, fortaleciendo todos aquellos aspectos como los valores institucionales, delegación de funciones, rotación de labores, etc., por su significativo impacto positivo en el ambiente laboral de los despachos y oficinas judiciales.
+2- Con respecto al componente Sistemas de Información, reiterar a las oficinas y despachos judiciales la obligación de mantener actualizados los sistemas de información y las responsabilidades que representa para las jefaturas y titulares subordinados la omisión o incumplimiento de esta disposición, tal y como lo establece la Ley General de Control Interno.
+3- Se recomienda que las oficinas y despachos judiciales realicen muestreos aleatorios de forma semanal que permitan corroborar la calidad de la información que brindan los sistemas informáticos en operación y que corresponda con la realidad de la oficina, así como para fortalecer la cultura de protección de los datos y evitar las inconsistencias en estas herramientas.
+4- En virtud de los resultados en el componente de Valoración de Riesgo, reiterar a las jefaturas de los despachos judiciales, el apoyo a los equipos de gestión de riesgos en cada oficina, por medio de reuniones periódicas, elaboración de bitácoras y cronogramas definidos para dar apropiada respuesta a los riesgos valorados, de conformidad con la normativa aplicable y la metodología del SEVRI-PJ.”
+San José, 7 de julio de 2017.
