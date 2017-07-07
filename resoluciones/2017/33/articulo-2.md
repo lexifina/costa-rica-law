@@ -1,1 +1,0 @@
-Artículo 2°-Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución número RES-DGH-002-2017 del 09 de enero de 2017, publicada en La Gaceta número 20 del 27 de enero de 2017.
