@@ -1,0 +1,4 @@
+Artículo 14. —Aprobación previa: De forma previa a la firma de los contratos de disponibilidad con los servidores municipales, se le debe brindar un informe al Concejo Municipal, de forma tal que los mismos sean aprobados por este Órgano legislativo.
+De conformidad con lo dispuesto en el artículo 4 y numeral 13, inciso c) del Código Municipal, el presente Reglamento debe ser publicado en el Diario Oficial La Gaceta.
+-Se apruebe e incluya en el documento de presupuesto ordinario para el 2014 el contenido presupuestario para el pago de disponibilidad para las plazas de Secretario del Concejo Municipal, Perito Valuador de Valoración y Coordinador de Presupuesto.
+Aprobado por el Concejo Municipal de Pococí en su Sesión Ordinaria N° 69 de fecha 23-09-2013, mediante Acuerdo N°1865, Acta Nº69, Publíquese.

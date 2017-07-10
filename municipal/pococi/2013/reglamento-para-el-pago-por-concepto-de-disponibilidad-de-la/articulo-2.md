@@ -1,0 +1,2 @@
+CAPÍTULO II. Objetivos de la disponibilidad.
+Artículo 2—Objetivo de la disponibilidad: El objetivo primordial de la disponibilidad, es que la Municipalidad pueda contar en cualquier momento con el personal técnicamente calificado en el rango, para asistirla a través de su asesoría en asuntos contingentes, imprevistos y de mera emergencia que puedan suceder en horas y días no hábiles de labor, y que su atención inmediata convenga y sea necesaria para el interés público, lo cual en caso contrario podría afectar a la administración.
