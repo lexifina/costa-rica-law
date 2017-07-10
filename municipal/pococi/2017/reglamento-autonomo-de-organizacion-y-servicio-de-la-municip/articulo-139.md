@@ -1,0 +1,1 @@
+Artículo 139. - Se dotará a todos los trabajadores sin excepción de un uniforme por año consistente en el caso de las mujeres, de dos pantalones o enaguas cuyo largo será “largo corte español a la rodilla”, dos blusas y dos pares de zapatos. A los varones, dos pantalones, dos camisas y dos pares de zapatos.

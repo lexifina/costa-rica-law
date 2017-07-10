@@ -1,0 +1,1 @@
+Artículo 47. - Se establece la Carrera Administrativa Municipal, como medio de desarrollo y promoción humanos. Se entenderá como un sistema integral, regulador del empleo y las relaciones laborales entre los servidores(as) y la administración municipal.

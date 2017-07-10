@@ -1,0 +1,1 @@
+Artículo 12. - El Proceso de Recursos Humanos de la Municipalidad será responsable de elaborar y custodiar física o digitalmente, el expediente personal y el respaldo de cada uno de los funcionarios (as), y de mantener al día los archivos de los documentos pertinentes que estos y estas aportan, así como de preservar su confidencialidad.

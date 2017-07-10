@@ -1,0 +1,1 @@
+Artículo 77. - La municipalidad por medio de la Hacienda municipal, adjudicará una partida presupuestaria anual para la capacitación, formación y becas como incentivo, al proceso de recursos humanos, para la concesión y administración de tales propósitos.

@@ -1,0 +1,1 @@
+Artículo 60. - La funcionaría que esté embarazada no podrá ser elegida para participar en actividades de capacitación o formación durante el lapso de la licencia por maternidad, salvo certificado médico que la habilite.

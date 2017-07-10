@@ -1,0 +1,3 @@
+CAPÍTULO XII
+DE LA UTILIZACIÓN DEL SOFTWARE Y EQUIPO DE CÓMPUTO
+Artículo 26. - Sin perjuicio de otras obligaciones señaladas en este Reglamento, el Reglamento para el uso de los equipos de cómputo y programas informáticos de la Municipalidad de Pococí y cualquier reglamentación interna al respecto, el software por utilizar en cada equipo de cómputo, propiedad de la Municipalidad de Pococí, deberá contar con las respectivas licencias; en caso de que un funcionario(a) incluya software ílegal o prohibido, este será borrado de forma inmediata y se procederá con la sanción establecida en el artículo 158 del presente reglamento.

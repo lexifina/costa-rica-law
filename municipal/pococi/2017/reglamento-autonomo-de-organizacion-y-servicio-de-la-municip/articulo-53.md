@@ -1,0 +1,1 @@
+Artículo 53. - Se establece el presente capítulo para la capacitación y formación de los funcionarios(as) de la Municipalidad de Pococí, a desarrollarse, ya sea en el país o en el exterior, y a la adjudicación de becas en la materia propia del quehacer municipal. Esta formación o capacitación puede ser financiada de forma total o parcialmente, tal y como más adelante se verá.

@@ -1,0 +1,1 @@
+Artículo 173. - Para los procedimientos administrativos se aplicará el artículo 150 del Código Municipal, la Ley General de la Administración Pública, la Convención Colectiva y el presente reglamento en lo que corresponda.

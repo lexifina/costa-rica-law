@@ -1,0 +1,1 @@
+Artículo 129. - Las asistencias al Seguro Social o al Instituto Nacional de Seguros, cuando sean en horas laborales, se considerarán como licencias con goce de salario, debiendo presentar el respectivo comprobante, y presentarse en el tiempo prudencial a su puesto de trabajo una vez atendido por la entidad de salud correspondiente.

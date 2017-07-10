@@ -1,0 +1,1 @@
+Artículo 72. - La municipalidad programará y presupuestará mediante el Proceso de Recursos Humanos becas de capacitación o formación acordes con las necesidades detectadas y prioridades en las distintas unidades de la Institución, en coordinación con el Despacho del Alcalde (sa), y las coordinaciones de unidades.

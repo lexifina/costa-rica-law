@@ -1,0 +1,1 @@
+Artículo 98. - La Municipalidad a través del Subproceso de Salud Ocupacional, dentro de sus posibilidades materiales y presupuestarias reales, brindará los servicios médicos requeridos a todos los funcionarios (as) de la Municipalidad.

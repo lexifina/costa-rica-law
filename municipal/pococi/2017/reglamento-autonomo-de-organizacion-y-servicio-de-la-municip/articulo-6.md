@@ -1,0 +1,1 @@
+Artículo 6.- Los Coordinadores (as), jefaturas o encargados (as) de unidades o departamentos y todos aquellos (as) funcionarios (as) que tengan bajo su responsabilidad, tareas de administración o supervisión de personal, son responsables ante el Alcalde (sa) o Vice Alcalde (sa) designado (a), de velar por la correcta aplicación de todas las disposiciones de este reglamento.

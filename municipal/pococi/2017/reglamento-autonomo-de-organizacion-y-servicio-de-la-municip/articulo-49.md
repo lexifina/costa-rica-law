@@ -1,0 +1,1 @@
+Artículo 49. - Quedan protegidos por el Código Municipal, este Reglamento y la Convención colectiva vigente, todos los trabajadores(as) de la Municipalidad nombrados(as) con base en el sistema de selección por mérito, garantes de las responsabilidades derivadas de tal acto y renumerados por el presupuesto de la municipalidad.

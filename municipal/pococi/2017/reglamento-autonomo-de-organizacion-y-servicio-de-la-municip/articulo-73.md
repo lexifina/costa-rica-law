@@ -1,0 +1,1 @@
+Artículo 73. - El Proceso de Recursos Humanos analizará si la actividad propuesta responde a la programación establecida, y si el funcionario (a) seleccionado (a) reúne los requisitos que este Proceso establezca para la aceptación de su participación.

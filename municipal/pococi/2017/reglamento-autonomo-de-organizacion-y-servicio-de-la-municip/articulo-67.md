@@ -1,0 +1,1 @@
+Artículo 67. - El funcionario (a) becado (a) deberá, una vez concluida su participación, rendir un informe al Proceso de Recursos Humanos sobre la capacitación recibida por el otorgamiento de la beca y estar en disposición de trasmitir los conocimientos adquiridos cuando dicho Proceso lo requiera.

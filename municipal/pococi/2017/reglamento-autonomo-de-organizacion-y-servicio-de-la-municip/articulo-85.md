@@ -1,0 +1,1 @@
+Artículo 85. - El desacuerdo entre el coordinador (a) inmediato (a) y el colaborador (a) en relación con el resultado de la evaluación y calificación de servicios, será resuelto por el Alcalde (sa) de la Municipalidad, previa audiencia a todas las partes interesadas.

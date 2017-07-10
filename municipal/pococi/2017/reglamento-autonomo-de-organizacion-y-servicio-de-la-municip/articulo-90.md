@@ -1,0 +1,1 @@
+Artículo 90. - El pago de salario del personal municipal se hará en forma bisemanal, dependiendo del grupo laboral, depositándose en la cuenta respectiva del funcionario (a) en alguno de los bancos o instituciones financiera.

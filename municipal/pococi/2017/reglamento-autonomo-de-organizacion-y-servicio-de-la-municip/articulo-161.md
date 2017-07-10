@@ -1,0 +1,17 @@
+Artículo 161. - Respecto del servidor (a) que incurra en las causales que se dirán, sin perjuicio de cualquier otra prevista en las leyes y reglamentos laborales y en este reglamento, podrá acordarse la gestión de despido para que pueda ser removido (a) de su puesto sin responsabilidad para la municipalidad; siendo causas justas las siguientes:
+a. Las contenidas en el artículo 81 del Código de Trabajo.
+b. Las contenidas en el artículo 369 del Código de Trabajo.
+c. Sufrir arresto o prisión preventiva por más de tres meses.
+d. Cuando el servidor (a) incurra por tercera vez en una de las faltas consideradas de cierta gravedad.
+e. El retraso injustificado en los procedimientos en que intervenga.
+f. Cuando el servidor (a) acceda, sin la autorización correspondiente y por cualquier medio, a los sistemas informáticos utilizados por la municipalidad.
+g. Cuando el servidor (a) se apodere, copie, destruya, inutilice, facilite, trasfiera, o tenga en su poder sin autorización de la autoridad correspondiente, cualquier programa de computación y base de datos, utilizados por la municipalidad.
+h. Cuando el servidor (a) dolosamente dañe los componentes materiales o físicos de los aparatos, las máquinas o los accesorios que apoyen el funcionamiento de los sistemas informáticos diseñados para las operaciones de la municipalidad o para el trabajo diario de cuadrillas, con cualquier propósito.
+i. Cuando el servidor (a) facilite el uso del código y la clave de acceso asignados para ingresar en los sistemas informáticos de la municipalidad, para que otra persona los use.
+j. Cuando el servidor (a) actúe como cómplice o instigador (a) de las conductas y hechos previstos en los incisos f), g), h), y el i) anteriores.
+k. Por inhabilitación para el desempeño de cargos públicos, decretada por sentencia firme de la autoridad competente.
+I. Cuando el servidor (a) colabore o facilite de manera directa o indirecta, por acción u omisión de cualquier forma, el incumplimiento de la obligación tributaria de los administrados.
+m. Cuando el servidor (a) oculte o destruya información, libros contables, bienes, documentos, registros, sistemas, programas computarizados, soportes magnéticos u otros medios de trascendencia municipal o tributaria en las investigaciones y los procedimientos municipales o tributarios.
+n. Cuando el servidor (a) divulgue, en cualquier forma o por cualquier medio, la cuantía u origen de las rentas o cualquier otro dato que figure en las declaraciones, o permita que estas o sus copias, libros o documentos que contengan extractos o referencia de ellas, sean vistas por personas ajenas a las que la Administración Tributaria haya encargado para tal efecto.
+o. Cuando el funcionario (a) efectúe un registro de asistencia que no sea el suyo, o consienta o solicite a otro que le registre su marca de asistencia.
+p. Cuando el funcionario (a) viole la confidencialidad en el procedimiento por casos de hostigamiento o acoso sexual.

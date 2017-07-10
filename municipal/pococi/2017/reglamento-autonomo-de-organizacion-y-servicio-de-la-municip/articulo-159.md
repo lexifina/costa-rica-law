@@ -1,0 +1,1 @@
+Artículo 159. - Tanto la amonestación verbal como la escrita, relacionadas con aspectos disciplinarios ajenos a las faltas por inasistencia al trabajo, serán realizarán conforme al artículo 149 del Código Municipal.

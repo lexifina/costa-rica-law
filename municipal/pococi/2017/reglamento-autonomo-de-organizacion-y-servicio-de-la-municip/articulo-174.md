@@ -1,0 +1,5 @@
+Artículo 174. - Los servidores (as) Municipales podrán ser removidos de sus puestos cuando incurran en las causales de despido que determinan el artículo 81 del Código de trabajo, el Código Municipal, y el presente Reglamento. El despido deberá estar sujeto a las siguientes normas:
+El despido deberá estar sujeto tanto al procedimiento previsto en el Libro II de la Ley general de la Administración Pública, como a las siguientes normas:
+a) En caso de que el acto final disponga la destitución del servidor(a), este podrá formular, dentro del plazo de ocho días hábiles contados a partir de la notificación del acto final, un recurso de apelación para ante el Juzgado de Trabajo, el cual agotará la vía administrativa.
+b) En el caso de que transcurra el plazo de ocho días hábiles sin que el Alcalde(sa) o el Concejo Municipal dé trámite al recurso de apelación, remitiendo además el expediente administrativo cuando el recurso sea admisible, respetando lo dispuesto en el artículo 150 del Código Municipal.
+Lo anterior será también de aplicación para los casos de suspensiones sin goce salarial.

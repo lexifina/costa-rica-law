@@ -1,0 +1,1 @@
+Artículo 144. - Cada empleado (a) será responsable del buen uso que se le den a las prendas. Por tanto, queda prohibido el ingreso a lugares no compatibles con la ley, la moral y las buenas costumbres, portando el uniforme municipal, salvo en labores relativas al cargo.

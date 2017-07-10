@@ -1,0 +1,1 @@
+Artículo 63. - Aquellos empleados contratados interinamente, podrán recibir capacitación para mejorar su trabajo, previa solicitud escrita de la coordinación respectiva y la autorización del Proceso de Recursos Humanos.
