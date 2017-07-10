@@ -1,0 +1,1 @@
+Artículo 11.—Minuta y Control de Asuntos Pendientes. Se le asigna la responsabilidad a la persona que coordina la Unidad de Tecnología de documentar la sesión del CTI, así como el control de temas pendientes que resulten de la discusión de los puntos de agenda. La minuta de la sesión debe de ser circulada máximo 8 días hábiles después de llevada a cabo la sesión del CTI.

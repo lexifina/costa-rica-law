@@ -1,0 +1,1 @@
+Artículo 2º—Del Alcance. El presente reglamento alcanza a las personas integrantes del CTI en su respectiva función asignada dentro del mismo y al personal del INDER, tanto del nivel central como regional.

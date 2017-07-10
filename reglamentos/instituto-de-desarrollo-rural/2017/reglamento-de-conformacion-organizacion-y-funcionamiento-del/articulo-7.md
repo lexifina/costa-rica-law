@@ -1,0 +1,1 @@
+Artículo 7º—Indelegabilidad de Funciones. Los funcionarios que conforman el Comité de TI no podrán delegar sus funciones y participación en las sesiones en representantes. El nombramiento de los miembros del Comité es competencia de la Presidencia Ejecutiva.

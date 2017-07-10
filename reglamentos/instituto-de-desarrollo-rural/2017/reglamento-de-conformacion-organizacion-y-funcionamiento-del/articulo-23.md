@@ -1,0 +1,1 @@
+Artículo 23.—De la Justificación de Ausencias. Los miembros que no puedan asistir a una sesión deberán presentar una justificación por escrito al Gerente General, a más tardar 24:00 horas después de la fecha señalada para iniciar la sesión.

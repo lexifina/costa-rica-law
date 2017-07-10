@@ -1,0 +1,1 @@
+Artículo 15.—Coordinación de los grupos de trabajo. Los grupos de trabajo serán coordinados por la persona que designe el Comité quien será responsable de la rendición de los informes. Para obtener mayores elementos de juicio en sus resoluciones y recomendaciones, los grupos de trabajo podrán solicitar criterios a las distintas dependencias institucionales.

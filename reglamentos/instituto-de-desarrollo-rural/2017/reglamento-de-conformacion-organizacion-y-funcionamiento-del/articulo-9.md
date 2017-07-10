@@ -1,0 +1,1 @@
+Artículo 9º—De la Aplicación Normativa. Todas las actuaciones del Comité de T.I. serán regidas únicamente por lo establecido en el presente Reglamento y en caso de duda, por lo que efecto establezca la Junta Directiva del Instituto de Desarrollo Rural.

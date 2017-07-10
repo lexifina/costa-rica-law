@@ -1,0 +1,1 @@
+Artículo 10.—De los Derechos de los Miembros. Todos los miembros del Comité de TI, tendrán derecho a voz y voto. En todos aquellos casos en que medie empate en la votación de algún asunto, entre los miembros del Comité, quien ocupe el puesto de la Gerencia General tendrá en razón de su investidura, voto de calidad, para resolver el conflicto existente.

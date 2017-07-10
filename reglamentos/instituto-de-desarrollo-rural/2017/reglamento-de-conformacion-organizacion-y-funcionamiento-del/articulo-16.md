@@ -1,0 +1,1 @@
+Artículo 16.—De la presentación de informes. Cuando se realicen designaciones de labores específicas a los y las integrantes del Comité de TI o el personal de apoyo que se designe, deberán presentar informes según el plazo que haya sido acordado y de ser necesario se podrá solicitar un plazo adicional al jerarca.

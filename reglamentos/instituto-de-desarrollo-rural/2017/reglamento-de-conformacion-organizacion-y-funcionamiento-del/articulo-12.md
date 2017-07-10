@@ -1,0 +1,1 @@
+Artículo 12—Suspensión de la Sesión. En caso que la sesión del comité deba de ser suspendida o que la misma finalice en tiempo sin completar los puntos citados en agenda, la Gerencia General se reserva la posibilidad de reprogramar a una sesión extraordinaria con los temas pendientes al momento de la suspensión o finalización.
