@@ -1,0 +1,5 @@
+ARTÍCULO 20. ANÁLISIS DE LAS OFERTAS, ADJUDICACIÓN Y NOTIFICACION DEL ACTO
+Todos los procesos de contratación, requieren de la elaboración de un estudio y valoración de las cotizaciones u ofertas recibidas, en relación con las condiciones y especificaciones fijadas en los términos de referencia o en la invitación remitida al proveedor. Para lo cual se deberá considerar el precio de los bienes o servicios, la calidad, las garantías, la fecha de entrega, experiencia y cualquier otro concepto establecido de previo en los términos de referencia.
+Para facilitar el estudio de las ofertas, se confeccionará un cuadro comparativo de ofertas, el cual formará parte del expediente respectivo, y se procederá con la formalización del acto de adjudicación.
+Una vez adjudicada la contratación se deberá proceder a comunicar a los participantes por los mismos medios en que se invitó a participar en el concurso respectivo.
+Es obligación del FIDUCIARIO, notificar todas las aclaraciones y el resultado de los concursos a los oferentes participantes y a la unidad solicitante.
