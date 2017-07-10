@@ -1,2 +1,0 @@
-Artículo 14.—De la Secretaría. La Jefatura del Departamento de Tecnologías de Información, fungirá como Secretaría Técnica del Comité de TI, quien será la responsable de levantar las actas de las sesiones y proponer a la Gerencia General el orden del día.
-Igualmente, deberá proporcionar las copias y documentos necesarios para que los demás miembros del Comité de TI puedan consultar en las respectivas sesiones.

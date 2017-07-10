@@ -1,1 +1,0 @@
-Artículo 19.—Del Comité de TI ampliado. En caso de requerir asesoría o en consideración de asuntos a tratar, el Comité de TI podrá sesionar en forma ampliada, con la participación de los titulares subordinados que se requieran para la toma de la decisión correspondiente.

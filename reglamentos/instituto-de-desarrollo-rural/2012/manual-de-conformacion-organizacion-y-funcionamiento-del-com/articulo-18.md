@@ -1,2 +1,0 @@
-Artículo 18.—De las votaciones. Los acuerdos del Comité de TI serán tomados por mayoría simple de los votos, en caso de empate, el Gerente General tendrá doble voto.
-Si alguno de los miembros considera que un acuerdo es contrario a los intereses del IDA, podrá presentar por escrito, sus observaciones ante el Presidente del Comité, dentro de los tres (3) días hábiles siguientes a la fecha en que se tomó el acuerdo, sea éste en firme o no.

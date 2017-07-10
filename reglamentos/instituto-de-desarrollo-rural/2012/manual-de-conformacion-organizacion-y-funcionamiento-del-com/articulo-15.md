@@ -1,1 +1,0 @@
-Artículo 15.—Del Libro de Actas. El Comité de TI tendrá un libro de actas, debidamente legalizado por la Auditoría Interna, en el cual se registrarán todos los acuerdos tomados durante las sesiones del Comité de TI.

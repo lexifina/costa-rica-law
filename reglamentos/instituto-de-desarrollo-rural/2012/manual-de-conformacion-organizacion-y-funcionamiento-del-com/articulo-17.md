@@ -1,1 +1,0 @@
-Artículo 17.—Justificación de ausencias. Los miembros que puedan asistir a una sesión deberán presentar una justificación por escrito al Gerente General, a más tardar 24 horas después de fecha señalada para iniciar la sesión.
