@@ -1,0 +1,1 @@
+Artículo 26. Destitución de vice alcaldes: El plebiscito de revocatoria de mandato podrá extenderse a los vice alcaldes, para lo cual se requerirá el acuerdo de las tres cuartas partes de los regidores integrantes. Sin embargo, la pregunta sobre la destitución de los vice alcaldes/sa, será independiente de la del alcalde/sa municipal.

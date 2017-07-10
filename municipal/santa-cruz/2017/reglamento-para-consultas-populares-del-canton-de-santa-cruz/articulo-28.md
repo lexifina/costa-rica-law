@@ -1,0 +1,1 @@
+Artículo 28. Reposición del Alcalde Municipal: Si el resultado de la consulta popular fuere la destitución del funcionario, el Concejo Municipal lo comunicará al Tribunal Supremo de Elecciones, el cual repondrá al Alcalde por el resto del período, según lo establece el artículo 14 del Código Municipal.

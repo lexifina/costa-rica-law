@@ -1,0 +1,1 @@
+Artículo 35. Acumulación de consultas: Cuando se presente más de una solicitud de convocatoria, siempre y cuando se reciban dentro de los plazos establecidos en esta sección, el Concejo podrá acumular las distintas consultas para que se conozcan en un solo acto.
