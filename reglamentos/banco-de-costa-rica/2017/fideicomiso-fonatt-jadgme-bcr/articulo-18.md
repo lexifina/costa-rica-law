@@ -1,0 +1,4 @@
+ARTÍCULO 18. DE LA OFERTA
+Toda oferta será recibida de acuerdo con el tiempo y la forma establecida en los artículos 10, 11, 12 13, 14, 15 y 16 o según se defina en los términos de referencia. Deberá redactarse en idioma español, salvo que en los requerimientos se permitan otros idiomas con la traducción debidamente oficializada.
+La oferta deberá estar debidamente firmada por el representante legal del oferente o apoderado y cualquier manifestación que contradiga las condiciones cartelarias será objeto de exclusión del concurso.
+Los proveedores deberán adjuntar en su oferta o cotización una declaración jurada donde se establezca que no existe ningún conflicto de intereses entre su empresa o subcontratistas, con directores de la Junta directiva, Junta administrativa, personal gerencial y administrativo del FIDEICOMITENTE, FIDEICOMISARIO, o el conglomerado financiero del BCR.

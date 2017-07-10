@@ -1,0 +1,4 @@
+ARTÍCULO 35. DISPOSICIONES FINALES
+El FIDEICOMISO FONATT JADGME/BCR, podrá hacer de conocimiento este reglamento a los participantes en los procesos de contratación promovidos por este, que así lo requieran.
+Las violaciones que se hagan al presente reglamento así como actuaciones negligentes en los procesos de adquisición de bienes y servicios, acarrearán al responsable las sanciones correspondientes, de conformidad con la legislación laboral, civil o penal. Si de la actuación dolosa o imprudente durante la tramitación del proceso de adquisición se derivare algún perjuicio económico, el responsable responderá con su patrimonio.
+APROBADO POR EL FIDEICOMITENTE mediante el acuerdo número siete tomado en la sesión ordinaria numero veinte de la Junta Administrativa de la Dirección General de Migración y Extranjería celebrada el día 09 de mayo del 2017. Acuerdo conocido por el Fiduciario mediante oficio JAD-265-05-2017

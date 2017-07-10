@@ -1,0 +1,2 @@
+ARTÍCULO 2: ALCANCE DE ESTE REGLAMENTO
+El presente reglamento es de acatamiento obligatorio para el Banco de Costa Rica y sus funcionarios y funcionarias cuando éste actúe como FIDUCIARIO, para las instituciones miembros de la Coalición Nacional Contra el Tráfico Ilícito de Migrantes y Trata de Personas y las unidades solicitantes de los proyectos aprobados por la CONATT y referidos por el FIDEICOMITENTE, según su especialidad, con el propósito de velar por el fiel cumplimiento del Contrato de Fideicomiso FONATT JADGME/BCR.
