@@ -1,0 +1,9 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+La Junta Directiva Nacional en sesión 5472 del 20 de junio del 2017 modificó el artículo 3 del “Reglamento para la integración y funcionamiento de la Comisión permanente de la mujer de la Asamblea de Trabajadores y Trabajadoras”, artículo que se leerá de la siguiente manera:
+“Artículo 3º—Integración de la Comisión.
+La Asamblea de Trabajadores y Trabajadoras deberá integrar de su seno la Comisión Permanente de la Mujer, la cual estará integrada por cinco delegadas de diferentes sectores representados en dicha Asamblea, una de las cuales debe ser asignada a los sectores cuyo número de delegados propietarios no sea mayor a uno, siempre y cuando presenten candidatas.
+A tales efectos, cada sector individualmente propondrá al menos una candidata a propietaria y su respectiva suplente mediante propuesta que conocerá y aprobará el Plenario de la Asamblea de Trabajadores y Trabajadoras, para lo cual los delegados propietarios de cada sector deberán reunirse y elegir por mayoría simple a sus candidatas.
+Las anteriores propuestas deben ser del conocimiento del Directorio Nacional al momento de iniciar la Asamblea en que se realizará la integración.
+La integración se llevará a cabo en Sesión Plenaria Ordinaria de inicio y mitad de período de nombramiento de las delegadas y delegados de la Asamblea de Trabajadores y Trabajadoras, salvo que ello no sea posible, caso en el cual se integrará en una posterior Asamblea Plenaria, y serán elegidas por mayoría de los votos de las delegadas y los delegados presentes en la sesión.
+El período de nombramiento será de dos años contados desde el inicio y mitad del periodo cuatrienal de la Asamblea de Trabajadores y Trabajadoras, correspondiendo a la suplente sustituir a la propietaria en sus ausencias temporales o definitivas por el resto del período. Tanto las propietarias como las suplentes pueden ser reelectas.”
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
