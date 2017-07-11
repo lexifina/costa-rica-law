@@ -14,3 +14,4 @@ Reglamento de asociaciones empresariales Radiográfica Costarricense S.A.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-05-30 | la propia norma |
+| 2 | 2017-07-11 | Reglamento 2144 (2017-07-11) |
