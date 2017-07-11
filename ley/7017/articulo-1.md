@@ -64,3 +64,20 @@ CÓDIGO | DESCRIPCIÓN | DAI %
 3923.10 | -Cajas, cajones, jaulas y artículo similares: |
 3923.10.10.00 | --Cajas alveolares para el envase y transporte de huevos, de plástico | 5
 3923.10.90.00 | --Otros | 10”)
+(Nota de Sinalevi: Mediante decreto ejecutivo N° 40482 del 16 de junio del 2017 “Publica la Resolución N° 389-2017 (COMIECO-LXXIX) del 5 de mayo de 2017 "Aprobar las modificaciones arancelarias para Guatemala y Honduras de los rubros incluidos en la Parte II del Arancel Centroamericano Cetroamericano de Importación ", se reforma el decreto ejecutivo N° 39960 que publicó la Resolución N° 372-2015 (COMIECOLXXIV) de fecha 04 de diciembre de 2015 y su Anexo: "Modificaciones al Arancel Centroamericano de Importación, que amplía los códigos arancelarios a diez dígitos e incorpora al Sistema Arancelario Centroamericano (SAC) los resultados a la 60 Enmienda de la Nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías"; de conformidad con el párrafo segundo de la parte considerativa y el numeral 1 de la parte dispositiva, todos de la Resolución N° 389-2017 (COMIECO-LX)UX) del 05 de mayo de 2017, que establece los siguiente: “
+CÓDIGO | DESCRIPCION | DAI %
+1006.10.10.00 | - - Para siembra | 0
+8713.10.00.00 | - Sin mecanismo de propulsión | 0
+8713.90.00.00 | - Los demás | 0
+8714.20.00.00 | - De sillones de ruedas y demás vehículos para inválidos | 0
+8714.92.20.00 | - - - Radios (rayos) | 0
+8714.93.00.00 | - - Bujes sin freno y piñones libres | 0
+8714.94.00.00 | - - Frenos, incluidos los bujes con freno, y sus partes | 0
+8714.95.00.00 | - - Sillines (asientos) | 0
+8714.96.00.00 | - - Pedales y mecanismos de pedal, y sus partes | 0
+8714.99.20.00 | --- Puños (mangos) y parrillas portaequipaje (incluso O para herramientas), de plástico | 0
+8714.99.90.00 | --- Otros | 0
+8715.00.80.00 (Nota de Sinalevi: Mediante el artículo 2° del presente decreto ejecutivo se establece lo siguiente: “Aplíquese un arancel de 9% de Derechos Arancelarios a la Importación (DAT) al inciso arancelario 8715.00.80.00 que aparece en la Resolución N° 389-2017 (COMIECO-LXXIX) del 05 de mayo de 2017, con tarifas de 10% de DAI, de conformidad con la Resolución N° 48-94 (CONSEJOXII) de fecha 23 de febrero de 1994, la cual autoriza a Costa Rica para que las tarifas de 10% incluyan el gravamen del 1% de la Ley N° 6946 del 13 de enero de 1984”) | -Otros | 10
+8715.00.90.00 | - Partes | 0
+8716.90.00.00 | - Partes | 0
+“)
