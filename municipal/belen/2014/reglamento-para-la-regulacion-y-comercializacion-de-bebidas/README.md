@@ -16,3 +16,4 @@ Reglamento para la regulación y comercialización de bebidas con contenido alco
 | 1 | 2014-04-30 | la propia norma |
 | 2 | 2015-06-09 | Reglamento municipal 34 (2015-06-09) |
 | 3 | 2017-06-06 | Reglamento municipal 33 (2017-06-06) |
+| 4 | 2017-07-11 | Reglamento municipal 41 (2017-07-11) |
