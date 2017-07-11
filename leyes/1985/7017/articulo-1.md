@@ -81,3 +81,24 @@ CÓDIGO | DESCRIPCION | DAI %
 8715.00.90.00 | - Partes | 0
 8716.90.00.00 | - Partes | 0
 “)
+(Nota de Sinalevi: Mediante el decreto ejecutivo N° 40481 del 16 de junio del 2017 “Publica la Resolución N° 382-2017 (COMLECO-EX) del 27 de abril del 2017 Aprobar las adecuaciones y modificaciones al Sistema Arancelario Centroamericano (SAC) y su Anexo, se reforma la presente norma de conformidad con la parte considerativa y el numeral 2 y 3 de la parte dispositiva, todos de la Resolución N° 382-2017 (COMIECO-EX) del 27 de abril del 2017, que establece lo siguiente: “2. CORRIGENDAS AL SAC 2017:
+UBICACIÓN | DONDE DICE: | DEBE DECIR:
+Índice, Capítulo 34 | Jabón, agentes de superficie orgánicos, preparaciones para lavar, preparaciones lubricantes, ceras artificiales, ceras preparadas, productos de limpieza, velas y artículos similares, pastas para modelar, << ceras para odontología>> y preparaciones | Jabón, agentes de superficie orgánicos, preparaciones para lavar, preparaciones lubricantes, ceras artificiales, ceras preparadas, productos de limpieza, velas y artículos similares, pastas para modelar, “ceras para odontología” y preparaciones.
+29.31 | 2931.90.72.00 + + SUPRIMIDA ++ | 2931.90.72 + + SUPRIMIDA++
+Capítulo 38, Nota 3 d) | d) los productos para la corrección de clisés de mimeógrafo (<<stencils>>), los demás correctores líquidos y las cintas correctoras (excepto las de la partida 96.12), acondicionados en envases | d) los productos para la corrección de clisés de mimeógrafo (“stencils”), los demás correctores líquidos y las cintas correctoras (excepto las de la partida 96.12), acondicionados en envases para la venta la por menor;
+3808.62.00.00 | - - Acondicionados en envases con un contenido en peso neto superior a 300 g pero inferior o igual a 7.5 kg | - - Acondicionados en encases con un contenido en peso neto superior a 300 g pero inferior o igual a 7.5 kg
+44.18 | 4418.72.00 ++SUPRIMIDA++ 4418.79.00 ++SUPRIMIDA++ 4418.90 ++SUPRIMIDA++ | 4418.72.00 ++SUPRIMIDA++ 4418.90 ++SUPRIMIDA++
+7606.12.92.00 | - - - - Con un contenido de manganeso superior o igual al 0.8%, de espesor inferior o igual a 0.315 mm, en bobinas (rollos) de anchura inferior a 1900 mm ( de aleación de la serie 3000) | - - - - Con un contenido de manganeso superior o igual al 0.8 % de espesor inferior o igual a 0.315 mm, en bobinas (rollos) de anchura inferior a 1.900 mm (de aleación de la serie 3000)
+8548.90.00.00 | 8548.90.00.00 | 8548.90.00.00
+91.08 | 91.08 | 91.08
+3. APERTURAS ARANCELARIAS RECOMENDACIÓN 10 DE LA OMA DEL 14 DE JULIO 2016
+CÓDIGO | DESCRIPCIÓN | DAI%
+3603.00.00.00 | ++SUPRIMIDA++ |
+36.03 | MECHAS DE SEGURIDAD; CORDINES DETONANTES; CEBOS Y CAPSULAS FULMINANTES; INFLAMADORES; DETONADORES ELECTRICOS |
+3603.00.10.00 | - Mechas de seguridad | 0
+3603.00.20.00 | - Cordones detonantes | 0
+3603.00.30.00 | - Cebos | 0
+3603.00.40.00 | - Cápsulas fulminantes | 0
+3603.00.50.00 | - Inflamadores | 0
+3603.00.60.00 | - Detonadores eléctricos | 0
+“)
