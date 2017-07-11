@@ -1,1 +1,0 @@
-Artículo 33.—Deróguese el decreto n.° 26-2009 del 1º de diciembre de 2009 (“Reglamento para la Fiscalización de los Procesos Electivos y Consultivos” publicado en La Gaceta N.º 241 del 11 de diciembre de 2009).

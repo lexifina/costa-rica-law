@@ -1,1 +1,0 @@
-Artículo 19.—Los partidos políticos o coaliciones podrán sustituir a las o los fiscales debidamente acreditados, siempre que la solicitud de sustitución sea presentada hasta quince días naturales antes de la elección. Dicha solicitud deberá cumplir con todos los requisitos establecidos en este reglamento. Además, se deberán devolver los carnés de las personas sustituidas.

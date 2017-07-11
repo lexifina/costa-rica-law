@@ -1,1 +1,0 @@
-Artículo 24.—Los partidos políticos o coaliciones podrán solicitar la acreditación de fiscales para el proceso a que se refiere este capítulo, desde que inscriban sus candidaturas y hasta el día que finalice el escrutinio, siguiendo los trámites y utilizando las mismas fórmulas dispuestas para las acreditaciones de los otros tipos de fiscales.
