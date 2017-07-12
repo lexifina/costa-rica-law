@@ -1,1 +1,1 @@
-Artículo 71.—Los permisos de tenencia en cautiverio otorgados mediante este decreto no autorizan la comercialización de animales o plantas, ni de sus productos y subproductos.
+Artículo 71.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

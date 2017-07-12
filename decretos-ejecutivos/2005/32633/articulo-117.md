@@ -1,3 +1,1 @@
-Artículo 117.—Para los efectos del artículo 51 de la Ley 7317, se entenderá por estudio o enseñanza las siguientes actividades:
-a) Los programas educativos en los centros de enseñanza primaria y diversificada, reconocidos ante el Ministerio de Educación Pública.
-b) Los programas educativos en los centros de enseñanza superior, públicos o privados o instituciones científicas debidamente inscritas en el SINAC.
+Artículo 117.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

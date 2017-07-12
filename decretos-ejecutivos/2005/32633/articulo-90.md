@@ -1,1 +1,1 @@
-Artículo 90.—Los especímenes de vida silvestre que se mantengan temporalmente en cautiverio para su rehabilitación deberán estar en edificios completamente separados de los sitios donde se mantengan animales domésticos, u otros animales silvestres que se encuentren en cautiverio permanente. Nunca se deberá permitir el acceso al público.
+Artículo 90.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

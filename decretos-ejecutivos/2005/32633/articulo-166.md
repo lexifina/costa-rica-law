@@ -1,1 +1,2 @@
-Artículo 166.—Los cánones estarán regidos por el artículo 127 de la LCVS y se deberán cancelar por anualidades adelantadas y regirá a partir de la fecha en que quede firme la resolución que apruebe la solicitud para un permiso de uso. El mismo deberá ser depositado en la caja única del Estado.
+Artículo 166.—Los cánones estarán regidos por el artículo 123 de la LCVS y se deberán cancelar por anualidades adelantadas y regirá a partir de la fecha en que quede firme la resolución que apruebe la solicitud para un permiso de uso. El mismo deberá ser depositado en la caja única del Estado.
+(Así reformado por el artículo 229 aparte 13) del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

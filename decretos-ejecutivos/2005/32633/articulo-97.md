@@ -1,1 +1,1 @@
-Artículo 97.—Los permisos otorgados para la operación de acuarios, zoológicos, zoocriaderos, centros de rescate o viveros sólo podrán ser transferidos a terceros con la autorización escrita del SINAC.
+Artículo 97.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

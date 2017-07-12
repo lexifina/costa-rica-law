@@ -1,1 +1,1 @@
-Artículo 129.—El SINAC dispondrá de hasta un mes para dar respuesta a la solicitud de otorgamiento de permisos de exportación, importación y tránsito de las especies silvestres. El SINAC conocerá las solicitudes para la obtención de permisos y licencias, de acuerdo a su orden de recepción y dispondrá de un plazo máximo de un mes para resolverlas.
+Artículo 129.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

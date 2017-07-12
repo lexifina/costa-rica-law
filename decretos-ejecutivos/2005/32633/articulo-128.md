@@ -1,1 +1,1 @@
-Artículo 128.—El SINAC llevará registros actualizados de las importaciones, exportaciones y reexportaciones de flora y fauna silvestres, según se establece en el artículo 16 de este decreto.
+Artículo 128.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

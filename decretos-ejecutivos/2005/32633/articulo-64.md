@@ -1,1 +1,1 @@
-Artículo 64.—Se tramitarán solicitudes nuevas para tenencia en cautiverio de fauna silvestre únicamente cuando se trate de animales autorizados o cazados al amparo de la licencia de caza respectiva. El interesado deberá cancelar los costos de la inspección correspondiente.
+Artículo 64.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

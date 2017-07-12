@@ -1,1 +1,1 @@
-Artículo 96.—El permisionario dispondrá de 180 días a partir del otorgamiento del permiso para iniciar la operación de acuario, zoológico, zoocriadero o vivero. Si vencido este plazo no dio inicio a la operación, el SINAC procederá a la revocatoria del permiso, sin responsabilidad alguna para el Estado.
+Artículo 96.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

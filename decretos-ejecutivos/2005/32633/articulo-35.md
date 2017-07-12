@@ -1,1 +1,1 @@
-Artículo 35.—La inscripción y portación de armas se regirá por la Ley de Armas, número 7530.
+Artículo 35.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

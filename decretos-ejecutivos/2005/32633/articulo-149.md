@@ -1,1 +1,1 @@
-Artículo 149.—El SINAC despachará las solicitudes para la obtención de permisos y licencias, de acuerdo a su orden de recepción y de conformidad con lo señalado por el artículo 296 de la Ley General de la Administración Pública.
+Artículo 149.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

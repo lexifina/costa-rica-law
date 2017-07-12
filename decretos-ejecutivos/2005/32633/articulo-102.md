@@ -1,1 +1,1 @@
-Artículo 102.—El SINAC fiscalizará que los animales y plantas silvestres, productos y subproductos de los zoológicos, zoocriaderos, viveros, jardines botánicos y acuarios estén adecuadamente marcados, siempre y cuando sea esto material y físicamente posible.
+Artículo 102.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

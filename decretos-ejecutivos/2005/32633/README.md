@@ -17,3 +17,4 @@ Reglamento a la Ley de Conservación de la Vida Silvestre para Pesca y Refugios 
 | 2 | 2009-10-14 | Decreto Ejecutivo 35700 (2009-10-14) |
 | 3 | 2015-12-16 | Decreto Ejecutivo 39489 (2015-12-16) |
 | 4 | 2016-07-25 | Decreto Ejecutivo 39833 (2016-07-25) |
+| 5 | 2017-07-12 | Decreto Ejecutivo 40548 (2017-07-12) |

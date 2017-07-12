@@ -1,1 +1,1 @@
-Artículo 6º—Los cánones establecidos en la LCVS serán ajustados, automática y anualmente, de conformidad con el índice de in.ación que establece el Banco Central a partir del primero de enero de cada año.
+Artículo 6º—(Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

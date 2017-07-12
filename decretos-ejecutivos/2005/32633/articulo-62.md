@@ -1,1 +1,1 @@
-Artículo 62.—Para los efectos del artículo 17 de la ley 7317, se entenderá como figura jurídica: contratos, derechos de uso, licencias, concesiones, convenios y cartas de entendimiento.
+Artículo 62.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

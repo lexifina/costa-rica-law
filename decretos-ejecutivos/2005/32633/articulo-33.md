@@ -1,10 +1,7 @@
-Artículo 33.—Los métodos de caza autorizados por el SINAC son los siguientes:
-1) Para la caza mayor y menor:
-a. La cacería con arma de fuego.
-b. La caza con arma de fuego y la ayuda de un perro entrenado para tal fin.
-c. La caza con arco con un mínimo de 40 libras de tensión, medida a setenta centímetros o menos de la halada del arco, y flechas de cabeza afilada con un mínimo de dos centímetros de ancho.
-2) Para la caza de aves canoras y de plumaje:
-a. Únicamente se permitirá la utilización de dos jaulas cogedoras por cazador autorizado, con su respectiva ave llamadora.
+Artículo 33.—Los métodos de pesca autorizados por el SINAC son los siguientes:
+(Así reformado el párrafo anterior por el artículo 229 aparte 8) del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+1) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+2) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
 3) Para la pesca deportiva:
 a. La caña y carrete o líneas de mano.
-b. El arpón de varilla para la captura del camarón de río o langostino.
+b. (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

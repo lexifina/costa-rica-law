@@ -1,6 +1,1 @@
-Artículo 121.—El SINAC autorizará los siguientes métodos para la recolecta o extracción comercial y científica de la flora silvestre:
-a) Poda.
-b) Deshija.
-c) Fraccionamiento.
-d) Arranque manual o con instrumentos.
-e) Cualquier otro método que autorice el SINAC.
+Artículo 121.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

@@ -1,6 +1,1 @@
-Artículo 49.—Para el otorgamiento de permisos de extracción y recolecta de flora y fauna silvestre, el SINAC consultará, cuando así lo considere necesario, a las siguientes autoridades y entidades científicas:
-1) Museo Nacional.
-2) Universidad de Costa Rica.
-3) Universidad Nacional.
-4) Instituto Tecnológico de Costa Rica.
-El SINAC podrá consultar con otras entidades gubernamentales o privadas cuando lo considere conveniente por la especialidad o idoneidad de las mismas.
+Artículo 49.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

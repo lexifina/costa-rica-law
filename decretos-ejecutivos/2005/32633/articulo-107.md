@@ -1,1 +1,1 @@
-Artículo 107.—El SINAC establecerá mediante resolución administrativa los procedimientos y formularios para la inscripción, informes trimestrales o semestrales, informes de inspección y seguimiento de estos establecimientos.
+Artículo 107.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

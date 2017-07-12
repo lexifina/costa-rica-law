@@ -1,1 +1,1 @@
-Artículo 30.—Para los efectos del artículo 26 de la LCVS y este reglamento se entenderá por especies ornamentales únicamente aquellas especies de aves, peces y plantas exóticas, catalogadas como domesticas, reproducidas en cautiverio en zoocriaderos, centros de rescate, viveros, acuarios y que requieren del cuidado del hombre para su supervivencia.
+Artículo 30.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

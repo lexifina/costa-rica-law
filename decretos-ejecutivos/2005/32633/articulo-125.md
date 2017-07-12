@@ -1,1 +1,1 @@
-Artículo 125.—Queda prohibida la importación de especies exóticas que hayan sido identificadas como posibles plagas en otros países, se exceptúa de esta prohibición la importación de machos no fértiles, para ello deberán aportar las respectivas certificaciones veterinarias.
+Artículo 125.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

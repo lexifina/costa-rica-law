@@ -1,55 +1,50 @@
 Artículo 2º—Para los fines de la aplicación de la LCVS se entenderá
-1) ACOSO: acción de acorralar, atrapar, perseguir o tratar de extraer de madrigueras o del nido a un animal.
-2) ÁREAS DE MANEJO DE VIDA SILVESTRE: Para efectos del artículo 2 de la ley 7317, Ley de Conservación de la Vida Silvestre, se definen como Áreas de Manejo de Vida Silvestre las siguientes categorías: zoológico, zoocriadero, vivero, acuario, y otras áreas delimitadas para el manejo “in situ”.
-3) BOCA DE RÍO: Accidente geográfico en donde un río descarga su caudal de aguas a otro río u otro cuerpo de agua dulce, salobre o salado.
-4) CENTRO DE RESCATE: institución designada por la Autoridad Administrativa CITES para cuidar y velar por el bienestar, así como de la rehabilitación de los especimenes vivos de vida silvestre, con.scados, donados y rescatados.
-5) CONTAMINANTE: Cualquier sustancia o material que modifique las características físicas y químicas del agua, aire o el suelo.
-6) CUERO: La piel procesada de un animal, con valor agregado por el curtido, teñido y acabado.
-7) DESARROLLO TURÍSTICO: Todo proyecto de carácter comercial que genere bene.cios económicos y que contemple más de un módulo para fines recreativos.
-8) DESEMBOCADURA: Sitio o lugar en donde un río o estero con.uye al mar, siendo su área de influencia un kilómetro a cada lado de la boca de río, de forma que complete un semicírculo tomando como punto de partida el centro de dicha boca.
-9) ESPECIES EN VÍAS O PELIGRO DE EXTINCIÓN: Aquellas que debido a su escasez o por algún otro factor de su biología particular, se encuentran gravemente amenazadas de desaparecer del país, y cuya sobrevivencia es poco probable si los factores causales de su desaparición (entre otros, deforestación, cacería, introducción de especies exóticas, contaminación) continúan actuando sobre ella.
-10) ESPECIES CON POBLACIONES REDUCIDAS: Son especies o subespecies de fauna y flora silvestres, o sus poblaciones, que tienen probabilidades de convertirse en especies en peligro de extinción en el futuro previsible, en todas o parte de sus áreas de distribución; si los factores que causan su disminución numérica o la degradación de sus hábitats continúan presentándose; o que son raras porque se encuentran generalmente localizadas en áreas o hábitats geográ.camente limitados, o muy diseminadas en áreas de distribución más extensas, y están en posibilidades reales o potenciales de verse sujetas a una disminución y posible peligro de extinción o a la extinción de la misma.
-11) ESTANQUE O PILETA: El depósito artificial de agua, de bajo volumen; utilizado para simular condiciones naturales en el manejo del plantel reproductor de un zoocriadero, zoológico o acuario, o bien para desarrollar cultivos de animales en cautiverio.
-12) ESTERO: El depósito de agua salobre que penetra en el continente manteniendo comunicación con el mar, con 50 metros o menos de ancho en su desembocadura.
-13) EVALUACIÓN DE IMPACTO AMBIENTAL: Para los efectos de la aplicación de este Reglamento, se entenderá como evaluación de impacto ambiental lo establecido en el artículo 26 de la Ley 7317, Ley de Conservación de la Vida Silvestre.
-14) F1: Primera generación, individuos nacidos en cautiverio producto de la reproducción de animales provenientes del medio natural.
-15) F2: Segunda generación, individuos nacidos en cautiverio provenientes de la reproducción en cautiverio de especimenes de la primera generación.
-16) HABITAT: El lugar en donde vive un animal o planta, que posee determinadas condiciones físicas y naturales esenciales para su supervivencia y preservación.
-17) HÍBRIDO: Organismo producto del cruce de dos géneros o especies diferentes.
-18) INSPECTOR DE VIDA SILVESTRE: Guarda recurso.
-19) JARDÍN BOTÁNICO: Se define como Jardín Botánico aquella Institución que tiene colecciones de Plantas mantenidas y ordenadas cientí.camente, por lo general documentadas y etiquetadas y abierto al público con propósitos recreativos, culturales, educativos y de investigación. Un arboreto desempeña las mismas funciones que un Jardín Botánico, pero las colecciones de plantas están normalmente restringidas a árboles u otras especies leñosas.
-20) LABORATORIO: Instalación de carácter cientí.co en donde se experimenta, se estudian o analizan ejemplares de .ora o fauna silvestre.
-21) LAGUNA: El depósito natural de agua. Puede ser de carácter estacional.
-22) LICENCIA DE INVESTIGACIÓN: Documento o pasaporte de investigación científica emitido por el SINAC para autorizar las investigaciones y recolectas de material biológico con .nes de investigación.
-23) MANGLAR: Ecosistema dominado por grupos de especies vegetales pantropicales y típicamente arbóreas, arbustivas y vegetación asociada, las cuales cuentan con adaptaciones morfológicas, fisiológicas y reproductivas que permiten colonizar áreas sujetas al intercambio de mareas. El paisaje general está dominado por la presencia de bosques de diferentes especies de mangle, esteros y canales. Las concentraciones de salinidad varían según la estación climática y al aporte de aguas continentales encontrándose valores de concentración de sales desde muy bajos hasta muy altos.
-24) MATERIAL GENÉTICO: Los tejidos, gametos y semillas de plantas, o de animales silvestres.
+1) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+2) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+3) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+4) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+5) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+6) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+7) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+8) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+9) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+10) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+11) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+12) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+13) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+14) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+15) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+16) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+17) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+18) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+19) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+20) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+21) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+22) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+23) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+24) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
 25) MÓDULO: Conjunto de aposentos que componen una vivienda.
-26) PIEL: Tejido epidérmico sin procesar obtenido de un animal, cuyo normal tratamiento es el salado.
-27) PLAN DE COLECCIÓN: este consiste en un análisis de los especimenes y las especies en la institución, su edad y sexo, planes de reproducción, definición de que se va a hacer con los especimenes nacidos, con los excedentes y necesidades de adquisición.
-28) PLAN DE MANEJO: Conjunto de normas técnicas que regularán las acciones por ejecutar en un zoológico, zoocriadero, vivero, acuario, finca cinegética, centro de rescate, jardín botánico o refugio de vida silvestre, con el fin de manejar y conservar la vida silvestre, de acuerdo con el principio de uso racional de los recursos naturales renovables que garantizarán la sostenibilidad del recurso.
+26) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+27) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+28) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
 29) PLAZAS: se refiere al número de huéspedes que permite la unidad habitacional.
 30) PLANTA DE TRATAMIENTO: sistema de manejo de aguas negras, jabonosas, de deshecho o cualquier sustancia contaminante, en donde usualmente se incorpora oxígeno y se precipitan sólidos disueltos.
-31) PROCESAMIENTO: Para los fines de este reglamento se define como: actividad cuyo objetivo es el aprovechamiento de un producto o subproducto de la flora o la fauna silvestre.
-32) PRODUCTO: Todo aquello generado directamente por la fauna y flora silvestres.
-33) RAZA: El concepto de la sistemática biológica para la descripción de subunidades de una especie. Es similar a variedad.
+31) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+32) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+33) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
 34) REFUGIO DE FAUNA Y VIDA SILVESTRE: categoría de manejo de áreas protegidas, en donde se preserva, conserva y maneja el hábitat, la flora y la fauna silvestre.
-35) REGENCIA: Conjunto de técnicas que se aplican para la implementación de las diferentes categorías de manejo en vida silvestre, la cual debe ser ejercida por un regente profesional, Licenciado en Biología preferiblemente, en su defecto un profesional en manejo de vida silvestre, manejo de recursos naturales, veterinario, forestal o agrónomo, que demuestre idoneidad en el campo de manejo de vida silvestre.
-36) REGENTE: Es la persona física con grado profesional mínimo de Licenciado inscrito en el registro de Regencias que administra el SINAC, para lo cual deberá cumplir con los requisitos de su respectivo colegio.
+35) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+36) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
 37) RECURSOS NATURALES: El conjunto de elementos que componen la naturaleza. En su más generalizada acepción entiéndanse como tierra, agua, aire y vida silvestre.
-38) SELLO SIN VALOR COMERCIAL: Timbre, estampilla o la impresión de un sello, sin ningún valor postal.
-39) SUBPRODUCTO: Lo que se deriva de un producto de la fauna o flora silvestre mediante un proceso de transformación.
-40) SUSTANCIA CONTAMINANTE: Todos los elementos, compuestos orgánicos, inorgánicos y organometálicos o sus combinaciones, que alteren el ambiente natural, la salud, el bienestar humano y la vida silvestre. Generalmente, se introduce al ambiente como subproducto y desechos de los procesos industriales u otra actividad humana.
-41) TAXIDERMIA: el arte de preparar y disecar los animales, sus pieles o algunas de sus partes.
-42) TENENCIA: Se de.ne como la acción de mantener en cautiverio especies de vida silvestre.
+38) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+39) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+40) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+41) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+42) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
 43) UNIDAD HABITACIONAL: Dormitorio, habitación.
-44) USO DE LOS RECURSOS NATURALES: La actividad por medio de la cual los seres humanos obtienen bene.cios de una población animal, vegetal o de los componentes de un ecosistema.
-45) VARIEDADES BOTÁNICAS: Formas, razas o subunidades taxonómicas de una especie vegetal.
-46) VIVERO: Para efectos de este reglamento, se definen como el área de manejo o sitio donde se reproducen plantas silvestres, tanto sexual como asexualmente, mediante métodos naturales o artificiales, se exhiben, se conservan y estudian o se comercializan, según sean sus fines. Para estos efectos se crean las siguientes categorías de viveros:
-i. Con fines comerciales: incluye la producción de plántulas, exhibición y venta.
-ii. Sin fines comerciales: incluye la exhibición, investigación.
-iii. Centros de rescate: incluye el rescate, recuperación y re-inserción al medio natural de plantas decomisadas o donadas.
-iv. Jardín botánico: Institución que tiene colecciones de Plantas mantenidas y ordenadas científicamente, por lo general documentadas y etiquetadas y abierto al público con propósitos recreativos, culturales, educativos y de investigación.
-v. Toda colección o vivero de orquídeas deberá inscribirse en el Área de Conservación correspondiente.
+44) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+45) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
+46) (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
 47) VIVIENDA HABITACIONAL: Son aquellas construcciones formadas por un solo módulo y que es ocupada por sus propietarios permanentemente.
 48) VIVIENDA TURÍSTICA RECREATIVA: Establecimiento que brinda servicio de hospedaje por una tarifa diaria o mensual, con unidades independientes de uno o más dormitorios, baño privado, cocina.
 49) ZOOLÓGICO: Una institución eminentemente cultural, que tiene animales silvestres en cautiverio que representan más que una simple colección, bajo la dirección de un cuerpo de profesionales que les garantiza condiciones de vida adecuada a la colección en una forma estética para el público. Deben ser definidos como instituciones cuyos principales objetivos son la conservación, educación, investigación, reproducción, exhibición y preservación de la fauna de una manera científica. Puede también tener objetivos comerciales

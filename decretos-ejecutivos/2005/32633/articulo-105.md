@@ -1,1 +1,1 @@
-Artículo 105.—Las actividades de reproducción de especies ornamentales exóticas de peces de acuario, aves y plantas en cautiverio, excepto las especies que se encuentran incluidas en apéndices de CITES, no requerirán inscribirse en los registros de zoocriaderos, viveros y acuarios que lleva el SINAC.
+Artículo 105.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

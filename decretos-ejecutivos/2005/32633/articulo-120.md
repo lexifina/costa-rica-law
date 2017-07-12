@@ -1,4 +1,1 @@
-Artículo 120.—Para los efectos del inciso b) del artículo 61 de la LCVS el ejercicio de la pesca continental o insular, con fines de estudio o enseñanza, se autorizará sólo cuando sea necesaria para el desarrollo de programas:
-a) Educativos en los centros de enseñanza primaria y diversi.cada, reconocidos ante el Ministerio de Educación Pública.
-b) Educativos en los centros de enseñanza superior públicos o privados.
-c) Educativos en instituciones estatales e instituciones científicas privadas.
+Artículo 120.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

@@ -1,1 +1,1 @@
-Artículo 13.—La administración y manejo del recurso flora y fauna silvestre continúa a cargo del Sistema Nacional de Áreas de Conservación y los demás órganos del MINAE, a los que la legislación les ha otorgado esa competencia.
+Artículo 13.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

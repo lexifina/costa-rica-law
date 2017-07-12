@@ -1,1 +1,1 @@
-Artículo 79.—Para los poseedores de licencias de caza menor y mayor, una vez aprobada la inscripción de sus animales, el SINAC entregará un libro registro al interesado para que anote fecha de captura, especie, sitio de captura, con el fin de llevar un control de la cantidad de especies autorizadas según el decreto de vedas correspondiente.
+Artículo 79.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

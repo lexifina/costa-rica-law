@@ -1,1 +1,1 @@
-Artículo 38.—Para la obtención de licencias de subsistencia para la extracción y recolecta de la flora, el SINAC podrá autorizar las solicitudes cuando sean para llenar necesidades alimenticias o medicinales de personas de escasos recursos económicos comprobadas y previa consulta a técnicos y especialistas en la materia.
+Artículo 38.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

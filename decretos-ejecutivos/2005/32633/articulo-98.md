@@ -1,1 +1,1 @@
-Artículo 98.—Los acuarios, zoológicos o zoocriaderos mantendrán condiciones de seguridad para impedir el ingreso o salida accidental de animales y deberá establecer áreas delimitadas para la exhibición, reproducción y cuarentena.
+Artículo 98.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

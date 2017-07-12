@@ -1,3 +1,3 @@
 CAPÍTULO IV
 De la protección de la vida silvestre
-Artículo 22.—Se prohíbe suministrar alimentos a la fauna silvestre, excepto cuando por una situación de emergencia se requiera para la supervivencia de las especies.
+Artículo 22.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

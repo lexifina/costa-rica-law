@@ -1,4 +1,1 @@
-Artículo 127.—La solicitud para obtener permiso para la exportación de flora y fauna silvestre originadas en licencias de recolecta científica, deberán cumplir con los siguientes requisitos:
-a) Solicitar y completar, a satisfacción, el formulario que al efecto entregará el SINAC.
-b) Copia del documento que autorizó su colecta.
-c) En el formulario del solicitante deberá declarar que el producto a exportar no será comercializado.
+Artículo 127.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

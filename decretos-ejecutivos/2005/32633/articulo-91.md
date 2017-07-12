@@ -1,1 +1,1 @@
-Artículo 91.—El SINAC tiene la obligación de proporcionar las condiciones mínimas de espacio y asegurar la alimentación de aquellas especies decomisadas y dadas en custodia temporal por el poder judicial o entregadas voluntariamente mientras se resuelve la situación jurídica de ellas.
+Artículo 91.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

@@ -1,1 +1,1 @@
-Artículo 87.—Las cuotas máximas de comercialización serán establecidas por las oficinas subregionales del SINAC en donde se encuentra inscrito el establecimiento considerando el criterio técnico, los inventarios y los informes de inspecciones, asignando mediante resolución administrativa una cuota semestral de especimenes autorizadas para el comercio.
+Artículo 87.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

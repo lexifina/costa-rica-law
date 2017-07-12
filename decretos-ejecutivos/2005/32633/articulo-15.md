@@ -1,1 +1,1 @@
-Artículo 15.—La Dirección Regional de Área de Conservación será un órgano programador, de supervisión y de apoyo técnico al Director del SINAC y será la encargada de la ejecución de las actividades de campo. Se autoriza al SINAC para el establecimiento de las oficinas subregionales que se requieran para el cumplimiento de la ley.
+Artículo 15.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

@@ -1,1 +1,1 @@
-Artículo 43.—Las licencias de caza para extranjeros no residentes tendrán una vigencia de seis meses y las licencias de pesca para extranjeros no residentes tendrán una vigencia de sesenta días (Artículo 66 de la Ley Nº 7317).
+Artículo 43.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

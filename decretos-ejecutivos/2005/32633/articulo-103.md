@@ -1,1 +1,1 @@
-Artículo 103.—El SINAC autorizará a los propietarios de viveros inscritos, la extracción y recolecta de la flora silvestre, producto de los árboles aprovechados en los planes de manejo forestal aprobados por la AFE, que sean requeridos únicamente para desarrollar programas de reproducción. Las plantas recolectas no podrán ser comercializadas.
+Artículo 103.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

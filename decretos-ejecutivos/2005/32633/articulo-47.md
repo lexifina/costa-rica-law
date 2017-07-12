@@ -1,9 +1,1 @@
-Artículo 47.—El SINAC podrá autorizar zoocriaderos de las siguientes especies venados (Odocoileus virginianus), tepezcuintles (Agouti paca), sahinos (Tayassu tajacu), guatuzas (Dasyprocta punctata) iguanas (Iguana iguana) y garrobos (Ctenosaura similis), sin fines comerciales según la definición del artículo 2 de este decreto, debiendo satisfacer los siguientes requisitos ante la oficina Subregional del Área de Conservación correspondiente:
-a) Solicitud escrita o formulario de inscripción, que incluya nombre completo, calidades (Nº cédula, estado civil, profesión, lugar de residencia), dirección exacta, teléfono o fax y los objetivos de la actividad.
-b) Copia del plano de propiedad o en su defecto un croquis de la propiedad.
-c) Diseño o croquis de las jaulas.
-d) Inventario de especímenes.
-e) Programa de alimentación y mantenimiento.
-f) Manejo de los desechos sólidos y aguas servidas, de conformidad con lo que establece la legislación en la materia y las recomendaciones que emanen de las autoridades competentes.
-El SINAC podrá autorizar el traspaso de animales a otro zoocriadero siempre y cuando sean utilizados como pie de cría para otro establecimiento. En todos estos casos el SINAC hará las inspecciones y podrá brindar asesoría técnica.
-El SINAC tendrá hasta un mes para resolver la solicitud, contado a partir de la presentación de todos los requisitos solicitados. Si se rechazara la solicitud el interesado tendrá 15 días hábiles para completar las recomendaciones técnicas solicitadas, pasado este tiempo el expediente se archivara. Las apelaciones se deben de presentar a la Dirección Regional del Área de Conservación. De persistir la negativa el usuario podrá apelar ante la Dirección Superior del SINAC y si todavía la negativa persistiera elevara su apelación ante el titular del MINAE.
+Artículo 47.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
