@@ -1,0 +1,2 @@
+ARTÍCULO 7. MONEDA EN QUE SE AUTORIZA CONTRATAR
+El fideicomiso, podrá realizar la compra de bienes o servicios a personas físicas o jurídicas, en la moneda funcional del fideicomiso o en cualquier moneda que se pacte en el contrato y/o orden de compra con cada proveedor de bienes o servicios, procurando salvaguardar los intereses del fideicomiso y el cumplimiento de los fines para el que fue constituido.

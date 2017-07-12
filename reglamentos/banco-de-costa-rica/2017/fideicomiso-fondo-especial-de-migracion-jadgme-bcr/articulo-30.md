@@ -1,0 +1,7 @@
+ARTÍCULO 30. PRÁCTICAS DE CORRUPCIÓN
+El presente reglamento exige que el FIDEICOMITENTE, EL FIDUCIARIO, EL FIDEICOMISARIO, así como los oferentes, contratistas y consultores que participen en el FIDEICOMISO, observen los más altos niveles éticos, ya sea durante los procesos de concurso o la ejecución de un contrato.
+Las acciones que se reconocen como prácticas de corrupción, sin pretender ser exhaustivas o agotar los delitos que al efecto se tipifican en el Código Penal, se describen a continuación:
+a. “Cohecho” (Soborno). Consiste en ofrecer, dar, recibir, o solicitar indebidamente cualquier cosa de valor capaz de influir en las decisiones que deben tomar funcionarios públicos, o quienes actúen en su lugar en relación con un concurso o durante la ejecución del contrato correspondiente.
+b. “Extorsión” (Coacción). Consiste en el hecho de amenazar a otro con causarle a él mismo o a miembros de su familia, en su persona, honra, o bienes, un mal que constituyere delito, para influir en las decisiones durante un concurso o durante la ejecución del contrato correspondiente, ya sea que el objetivo se hubiere logrado o no.
+c. “Fraude”. Consiste en la tergiversación de datos o hechos con el objeto de influir sobre un determinado concurso, o la fase de ejecución del contrato, en perjuicio de otros participantes.
+d. “Colusión”. Consiste en los acuerdos o pactos de los oferentes destinados a que se obtengan precios de concurso a niveles artificiales y no competitivos.

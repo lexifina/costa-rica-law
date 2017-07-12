@@ -1,0 +1,3 @@
+ARTÍCULO 17. DE LAS GARANTÍAS DE PARTICIPACIÓN Y CUMPLIMIENTO
+Las garantías de participación y cumplimiento podrán ser rendidas por los oferentes en cualquiera de los siguientes medios: depósito de bono de garantía de instituciones aseguradoras reconocidas en el país, o de uno de los bancos del Sistema Bancario Nacional; certificados de depósito a plazo, bonos del Estado o de sus instituciones, cheques certificados o de gerencia de un banco del Sistema Bancario Nacional; mediante depósito a la orden de un banco del mismo sistema, presentando la boleta respectiva.
+En los artículos 12, 13, 14, 15 y 16 de este Reglamento, se define la obligación del oferente para aportar garantías de acuerdo con cada modalidad de contratación.
