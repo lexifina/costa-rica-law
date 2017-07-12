@@ -1,0 +1,3 @@
+Sección Cuarta
+Del Subcomité Institucional de Continuidad de los Servicios Tecnológicos
+Articulo 41.- El Subcomité Institucional de Continuidad de los Servicios Tecnológicos tendrá como objetivo el análisis, propuesta y administración de un plan de continuidad del servicio en el cual se definan las acciones necesarias para responder de forma adecuada ante cualquier incidente que se presente en la institución, desde el momento en que se necesario utilizar la contingencia hasta el momento en que se dé la vuelta a la normalidad de los servicios, de forma que se reduzca al mínimo su impacto sobre las operaciones y servicios del Poder Judicial.

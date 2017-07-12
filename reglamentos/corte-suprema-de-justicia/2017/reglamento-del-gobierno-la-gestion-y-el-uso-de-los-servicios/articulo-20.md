@@ -1,0 +1,1 @@
+Artículo 20.- La Dirección de Tecnología de Información y Comunicaciones y el personal designado por éste, son los únicos autorizados a remover, cambiar o intercambiar los componentes internos de los recursos tecnológicos y configurar o reconfigurar, programar o reprogramar e instalar o desinstalar programas (software) en los equipos de la Institución.

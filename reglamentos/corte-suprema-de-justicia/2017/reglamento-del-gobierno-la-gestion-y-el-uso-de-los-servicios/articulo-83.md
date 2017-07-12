@@ -1,0 +1,1 @@
+Articulo 83.- Las personas usuarias tienen prohibida la copia o distribución, para fines personales o comerciales, de cualquier aplicación o software protegido legalmente o violar cualquier derecho de autor o términos de licenciamiento adquiridos por la institución.

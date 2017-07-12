@@ -1,0 +1,1 @@
+Artículo 106.- Se prohíbe el acceso, copia, impresión, almacenamiento o divulgación de información con contenido pornográfico, racista, sexual o cualquier material que atente contra la dignidad, la ética o los principios morales y que no sean propios de investigaciones o actuaciones judiciales.

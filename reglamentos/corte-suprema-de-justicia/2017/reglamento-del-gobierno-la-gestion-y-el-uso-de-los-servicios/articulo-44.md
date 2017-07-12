@@ -1,0 +1,7 @@
+Artículo 44.- El Subcomité Institucional de Continuidad de los Servicios Tecnológicos tendrá las siguientes funciones:
+1. Identificar los procesos institucionales que sean de importancia estratégica los cuales son clave para el cumplimiento de las metas de la organización.
+2. Velar por la generación de un plan de continuidad que este orientado a la puesta de marcha en forma oportuna de los diferentes procesos institucionales y servicios críticos ante cualquier interrupción o desastre.
+3. Establecer planes de capacitación para todo el personal involucrado en la aplicación del plan de continuidad de la institución con el fin de que cada persona conozca su rol y tenga claro cuáles son los procedimientos que debe seguir para lograr el éxito en la ejecución del mismo.
+4. Velar por que existan mecanismos adecuados de comunicación entre las diferentes dependencias de la institución con el fin de que se proceda como el plan de continuidad lo indique que en caso de presentarse algún tipo de incidente que se pueda determinar cómo crisis.
+5. Mantener actualizado el Plan de Continuidad y velar si existe la necesidad de realizar cambios en los elementos que lo afectan, para lo cual se deben realizar revisiones en forma periódica de las políticas, procesos y cualquier otro elemento que se vea involucrado en el mismo.
+6. Una vez establecida la declaratoria de desastre por las instancias pertinentes el comité deberá activar los planes de recuperación asociados.

@@ -1,0 +1,2 @@
+Artículo 54.- Las personas usuarias son las responsables de cualquier actividad que se pueda realizar desde las cuentas asociadas a sus buzones de correo, por lo que no deben permitir que otras personas utilicen estas cuentas de correo electrónico.
+En caso de usos indebidos que se detectes, las personas usuarias tienen la obligación de reportarlos inmediatamente a su superior para que se inicie con las medidas correspondientes.

@@ -1,0 +1,1 @@
+Articulo 2.- Las disposiciones contenidas en este reglamento son de cumplimiento obligatorio para todas las personas que laboran para el Poder Judicial, así como para quienes interactúen por cualquier medio tecnológico, con las oficinas del Poder Judicial.

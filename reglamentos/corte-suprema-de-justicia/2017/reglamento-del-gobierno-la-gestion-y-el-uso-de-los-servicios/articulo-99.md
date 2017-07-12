@@ -1,0 +1,2 @@
+Artículo 99.- En toda comunicación electrónica, la persona usuaria deberá mantener los cuidados, profesionalismo y discreción que guarda con los documentos o memorandos impresos.
+Las personas servidoras que se desempeñan en la Dirección de Tecnología de la Información y Comunicaciones, deberán firmar un convenio de confidencialidad para proteger la información sensible y crítica que maneja la institución, los que deberá gestionar su jefatura en coordinación con la Dirección Jurídica.

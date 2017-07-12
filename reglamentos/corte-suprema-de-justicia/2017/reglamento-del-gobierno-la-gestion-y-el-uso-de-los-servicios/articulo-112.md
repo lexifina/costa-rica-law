@@ -1,0 +1,2 @@
+Artículo 112.- las infracciones al presente reglamento darán motivo para iniciar el correspondiente procedimiento administrativo disciplinario, de conformidad con lo que dispone la Ley Orgánica del Poder Judicial-.
+Las jefaturas de las oficinas serán las responsables de iniciar el procedimiento disciplinario, de acuerdo a las disposiciones de la Ley Orgánica del Poder Judicial. Si se tratare de un procedimiento disciplinario contra una persona que se desempeña como jefe de oficina, la responsabilidad de iniciar el proceso disciplinario recae sobre su jefatura inmediata.

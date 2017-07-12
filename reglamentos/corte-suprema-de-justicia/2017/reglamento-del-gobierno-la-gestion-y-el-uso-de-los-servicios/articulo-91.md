@@ -1,0 +1,1 @@
+Articulo 91.- En caso de que la Dirección de Tecnología de Información y Comunicaciones identifique una falla de seguridad en un recurso tecnológico, podrá suspender el acceso a los servicios de comunicaciones electrónicas e Internet, mientras ésta es corregida, para evitar problemas adicionales que se puedan ocasionar mientras se elimina la falla detectada.

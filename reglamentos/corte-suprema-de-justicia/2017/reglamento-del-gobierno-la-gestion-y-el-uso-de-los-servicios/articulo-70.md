@@ -1,0 +1,2 @@
+Artículo 70.- Queda totalmente prohibido a la persona usuaria, realizar modificaciones o alteraciones al equipo tecnológico, porque esta práctica anulada los términos de la garantía y la persona asumirá las responsabilidades económicas y administrativas correspondientes.
+La Dirección de Tecnología de Información y Comunicaciones y las áreas tecnológicas que ésta designe, serán los responsables de darle mantenimiento a los componentes internos del equipo.

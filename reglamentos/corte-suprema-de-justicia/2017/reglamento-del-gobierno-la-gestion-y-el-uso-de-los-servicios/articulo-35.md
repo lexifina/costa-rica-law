@@ -1,0 +1,1 @@
+Artículo 35.- De la designación de equipos de trabajo. La CGTI como órgano colegiado, designara los equipos de trabajo que sean necesarios para realizar las actividades de análisis y estudio, brindar la asesoría y los apoyos necesarios para coadyuvar la toma de decisiones. Estos equipos de trabajo serán coordinados por la persona que así designe la CGTI.

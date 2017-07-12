@@ -1,0 +1,1 @@
+Articulo 13.- La Dirección de Tecnología de Información y Comunicaciones es la responsable de gestionar los proyectos netamente tecnológicos. De igual manera, participará en aquellos que aunque no siendo gestionados directamente por la DTIC, utilicen la tecnología de información como elemento estratégico para el cumplimiento de los objetivos del área ejecutante.

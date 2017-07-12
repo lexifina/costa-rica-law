@@ -1,0 +1,1 @@
+Artículo 102.- Queda prohibido almacenar productos o artefactos (latas de pintura, papeles, productos de limpieza, equipo para arreglar, escaleras, cajas, tubos fluorescentes, equipo de oficina, mobiliario, entre otros), en los centros de datos, salas de servidores, centros de comunicación o cuartos eléctricos en todos los circuitos, excepto los respectivos extintores.

@@ -1,0 +1,1 @@
+Artículo 39.- El Subcomité Institucional de Seguridad de la Información podrá sesionar válidamente con la presencia de la mitad más uno de sus miembros y los acuerdos serán adoptados por mayoría simple de los presentes. En caso de empate, se someterá nuevamente a votación en la sesión siguiente.

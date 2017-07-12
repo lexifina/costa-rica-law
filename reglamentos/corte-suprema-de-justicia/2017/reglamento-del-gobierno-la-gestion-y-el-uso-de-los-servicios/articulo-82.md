@@ -1,0 +1,1 @@
+Artículo 82.- No está permitido desinstalar software, aplicaciones, borrar archivos del sistema o cambiar configuraciones preestablecidas para los equipos computacionales sin supervisión o consentimiento expreso de la Dirección de Tecnología de Información y Comunicaciones.

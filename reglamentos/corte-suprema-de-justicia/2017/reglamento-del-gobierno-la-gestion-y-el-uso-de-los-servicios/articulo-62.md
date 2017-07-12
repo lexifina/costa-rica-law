@@ -1,0 +1,1 @@
+Artículo 62.- La persona usuaria tiene la responsabilidad de utilizar adecuadamente el equipo de cómputo y los periféricos que se le asignen, así como de la información almacenada en este. De igual manera, la jefatura de la oficina tiene la responsabilidad de velar por el uso adecuado de todos los equipos computacionales asignados a la oficina.

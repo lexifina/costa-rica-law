@@ -1,0 +1,2 @@
+Articulo 73.- Ningún usuario deberá permitir el acceso a la red interna de la institución a personas externas a la misma o a personal no autorizado, mediante el uso de la cuenta que le ha sido asignada.
+La persona usuaria y la jefatura correspondiente, son responsables ante la institución y/o ante terceros, por la instalación y uso de cualquier software no autorizado que haya sido colocado en el equipo computacional.

@@ -1,0 +1,2 @@
+Articulo 78.- Cuando se detecte un uso no aceptable, se cancelará la cuenta o se desconectara temporal o permanentemente a la persona usuaria o la red involucrada dependiendo de la severidad del incidente. La reconexión se hará en cuanto se considere que el uso no aceptable sea suspendido.
+La Dirección de Tecnología de Información, remitirá a las autoridades correspondientes, los informes que permitan iniciar las sanciones administrativas dependiendo de la severidad del incidente ocasionado.

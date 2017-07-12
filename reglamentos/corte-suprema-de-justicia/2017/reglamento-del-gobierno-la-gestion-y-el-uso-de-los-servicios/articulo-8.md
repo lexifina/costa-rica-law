@@ -1,0 +1,1 @@
+Articulo 8.- La Dirección de Tecnología de Información y Comunicaciones, previa aprobación de la Administración Superior, deberá desarrollar y mantener un plan de gestión de riesgos mediante el cual la institución pueda responder adecuadamente a las diferentes amenazas que puedan afectar el correcto funcionamiento de las TI.

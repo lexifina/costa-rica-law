@@ -1,0 +1,2 @@
+Articulo 90.- Es responsabilidad de la Dirección de Tecnología de Información y Comunicaciones respetar en todo momento la privacidad de los usuarios y no divulgar información acerca de las cuentas de usuario o del uso que haga del servicio a menos que sea requerido para cumplir con procedimientos legales por orden de un Juez.
+La DTIC es responsable de la custodia de la información institucional almacenada en los medios tecnológicos y tiene expresamente prohibido suministrarla sin el debido consentimiento del despacho dueño de la información o de una orden judicial.

@@ -1,0 +1,1 @@
+Artículo 66.- En caso de desperfectos o daños causados a los equipos computacionales asignados, ya sea por falta de cuido o intencionalmente, la persona responsable asumirá los costos por la reparación o sustitución de los equipos, siguiendo para ello el debido proceso.

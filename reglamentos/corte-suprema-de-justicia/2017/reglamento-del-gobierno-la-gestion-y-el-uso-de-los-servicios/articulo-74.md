@@ -1,0 +1,1 @@
+Articulo 74.- Los servicios de impresión institucionales tanto locales como en red deben ser utilizados únicamente para imprimir documentos relacionados con las labores de la oficina. Queda expresamente prohibido su uso para impresiones de carácter personal.

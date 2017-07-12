@@ -1,0 +1,1 @@
+Articulo 7.- La Dirección de Tecnología de Información y Comunicaciones está en la obligación de generar productos y servicios de TI de conformidad con las necesidades de las diferentes oficinas que conforman el Poder Judicial y las posibilidades presupuestarias, manteniendo en todo momento un enfoque de mejora continua.

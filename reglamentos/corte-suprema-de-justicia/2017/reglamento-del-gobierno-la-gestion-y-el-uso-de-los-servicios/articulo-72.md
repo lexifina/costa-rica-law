@@ -1,0 +1,2 @@
+Articulo 72.- Para acceder a la red interna es necesario obtener una clave de usuario y una contraseña. Esta clave debe ser conocida solamente por el usuario y es intransferible.
+En caso de cualquier olvido la única persona autorizada para proporcionar una nueva clave y/o contraseña es el administrador de la red designado por la Dirección de Tecnología de Información y Comunicaciones u otras áreas tecnológicas. Si la persona usuaria sospecha que alguien más está haciendo uso de su clave debe reportado de inmediato.

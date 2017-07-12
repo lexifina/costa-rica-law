@@ -1,0 +1,1 @@
+Articulo 76.- El uso de analizadores de red es permitido única y exclusivamente por el personal de la Dirección de Tecnologías de Información y Comunicaciones, con el fin de monitorear la funcionalidad de la red institucional. Todas las demás personas usuarias, tienen prohibida la realización de este tipo de actividades.

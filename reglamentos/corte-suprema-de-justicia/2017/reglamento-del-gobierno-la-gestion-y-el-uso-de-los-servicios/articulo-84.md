@@ -1,0 +1,1 @@
+Articulo 84.- Toda instalación, desinstalación o traslado de software incluyendo los de "dominio público" o de "distribución libre" desde y hacia un equipo informático, requiere autorización y coordinación previa de la Dirección de Tecnología de Información y Comunicaciones.

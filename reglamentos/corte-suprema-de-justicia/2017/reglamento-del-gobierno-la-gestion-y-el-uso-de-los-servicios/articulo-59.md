@@ -1,0 +1,12 @@
+Sección Tercera
+De la Internet suministrada por la institución.
+Artículo 59.- Las personas autorizadas para acceder a los servicios de Internet e Intranet, deberán cumplir con lo siguiente:
+a. Respetar la privacidad de otros usuarios. No está permitido obtener copias intencionales de archivos, códigos, contraseñas o información ajena; ni suplantar a otra persona en una conexión que no le pertenece o enviar información a nombre de otra persona sin consentimiento expreso del titular de la cuenta.
+b. Respetar la protección legal otorgada a programas, textos, artículos y bases de datos, según la legislación internacional sobre propiedad intelectual y las normas pertinentes de nuestro país.
+c. Respetar la integridad de los sistemas de computación. Esto significa que ninguna persona usuaria podrá realizar acciones orientadas a infiltrarse, dañar o atacar la seguridad de la información del Poder Judicial ni de otra institución pública y organización privada, a través de medio fisico o electrónico alguno.
+d. No obtener ni suministrar información a terceros, salvo autorización de las instancias superiores.
+e. No dar a conocer códigos de seguridad tales como contraseñas a otras personas, o entorpecer por ningún medio el funcionamiento de los servicios y telecomunicaciones del Poder Judicial.
+f. No utilizar los servicios de Internet suministrada por la institución para fines personales, como por ejemplo: juegos en línea, radio o televisión por Internet, publicación de contenidos personales, sitios de ocio, sitios para adultos, sitios de descaiga de contenidos maliciosos, así como otros sitios que la Dirección de Tecnología de Infomsación y Comunicaciones o las instancias superiores dispongan para salvaguardar la seguridad y el desempeño del personal.
+g. No utilizar programas que vulneren la seguridad de los equipos y servidores del Poder Judicial.
+h. No dañar o alterar las características técnicas de los servicios tecnológicos provistos por la Dirección de Tecnología de la Información y otras áreas tecnológicas.
+i. Salvo los casos donde por la naturaleza de la oficina así se requiera, no acceder a sitios con contenido sexual o pornográfico, ni bajar o ver material inapropiado, no solo referido a juegos, música y pornografía, sino a cualquier otro material inaceptable, que atente contra los principios morales, sociales y en general que no se relacionen con los objetivos de la institución. En resumen debe utilizarse única y exclusivamente para propósitos laborales.

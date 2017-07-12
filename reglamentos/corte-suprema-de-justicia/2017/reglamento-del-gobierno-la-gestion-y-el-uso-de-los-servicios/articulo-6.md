@@ -1,0 +1,2 @@
+Articulo 6.- La Dirección de Tecnología de Información y Comunicaciones es la encargada de desarrollar e implementar aquellos proyectos que hayan sido aprobados por la Corte Plena o el Consejo Superior y cuenten con los recursos presupuestarios y humanos correspondientes.
+En materia de tecnología de la información y comunicaciones deberá establecerse un proceso continuo de promulgación y divulgación de un marco estratégico, constituido por políticas organizacionales que sean de fácil comprensión para todo el personal.

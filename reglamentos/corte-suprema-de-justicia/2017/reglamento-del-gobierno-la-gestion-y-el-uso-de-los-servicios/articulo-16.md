@@ -1,0 +1,9 @@
+Artículo 16.- La Dirección de Tecnología de Información y Comunicaciones, así como el personal que éste designe, son los únicos autorizados para instalar, actualizar y desinstalar software o programas en los equipos del Poder Judicial.
+Únicamente se podrán instalar herramientas que sean parte de la lista de software base autorizado por la Administración Superior. Cualquier necesidad específica que se tenga y que no esté incluida en esta lista, deberá ser aprobada por la Dirección de Tecnología de Información y Comunicaciones conforme a las directrices emitidas por la Administración Superior.
+Para estas tareas, deberá respetarse lo siguiente:
+? La Dirección de Tecnología de Información y Comunicaciones tiene la responsabilidad de publicar en la intranet la lista de software permitido en el Poder Judicial para realizar las funciones diarias.
+? Desarrollar y aplicar un marco metodológico que guíe los procesos de implementación y considere la definición de requerimientos, los estudios de factibilidad, la elaboración de diseóos, la programación y pruebas, el desarrollo de la documentación, la conversión de datos y la puesta en producción, así como también la evaluación postimplantación de la satisfacción de los requerimientos.
+? Establecer los controles y asignar las funciones, responsabilidades y permisos de acceso al personal a cargo de las labores de implementación y mantenimiento de software.
+? Controlar la implementación del software en el ambiente de producción y garantizar el traslado de los datos fuente utilizados en los programas para los procesos de conversión y migración.
+? Definir los criterios para determinar la procedencia de cambios y accesos de emergencia al software y datos, y los procedimientos de autorización, registro, supervisión y evaluación técnica, operativa y administrativa de los resultados de esos cambios y accesos.
+? Controlar las distintas versiones de los programas que se generen como parte de su mantenimiento.

@@ -1,0 +1,1 @@
+Articulo 5.- La Dirección de Tecnología de Información y Comunicaciones tiene la responsabilidad de definir los mecanismos que permitan aplicar y verificar el cumplimiento de lo establecido en este reglamento.

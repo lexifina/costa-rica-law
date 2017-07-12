@@ -1,0 +1,1 @@
+Artículo 18.- La Dirección de Tecnología de Información y Comunicaciones en coordinación con las dependencias que éste designe, serán los responsables de adquirir, administrar, instalar, dar soporte técnico y mantener actualizada la infraestructura tecnológica, además de velar por el buen funcionamiento de la misma en el Poder Judicial.

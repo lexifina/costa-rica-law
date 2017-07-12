@@ -1,0 +1,1 @@
+Articulo 85.- La Dirección de Tecnología de Información y Comunicaciones, es responsable de realizar revisiones periódicas para asegurar que sólo software con licencia esté instalado en las computadoras de la institución. Producto de esta revisión, podrá iniciar los procedimientos administrativos correspondientes.

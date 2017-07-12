@@ -1,0 +1,2 @@
+Artículo 81.- No deberá instalarse en los equipos informáticos ningún tipo de software que no se encuentre autorizado por la Dirección de Tecnología de información y Comunicaciones, ni licenciado por la institución.
+La persona usuaria y la jefatura correspondiente, son responsables ante la institución y/o ante terceros, por la instalación y uso de cualquier software no autorizado que haya sido colocado en el equipo computacional

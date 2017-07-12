@@ -1,0 +1,2 @@
+Artículo 55.- Con el propósito de evitar saturaciones que puedan afectar el buen funcionamiento del servicio, el tamaño máximo de los mensajes que se pueden enviar está limitado, fijándose dicho límite en función de los recursos disponibles en cada momento.
+La Dirección de Tecnología de Información y Comunicaciones será la responsable de definir con base en criterios técnicos el tamaño máximo de los mensajes de correo.

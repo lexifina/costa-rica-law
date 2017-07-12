@@ -1,0 +1,1 @@
+Articulo 69.- En caso de sustracción o pérdida del equipo, la persona que tenga asignado el mismo debe interponer la denuncia correspondiente, sin detrimento de las acciones administrativas asociadas. De igual manera, tiene el deber de informarlo a la Jefatura de oficina.
