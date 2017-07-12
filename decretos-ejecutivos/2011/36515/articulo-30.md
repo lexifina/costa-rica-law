@@ -1,1 +1,1 @@
-Artículo 30.—Se prohíbe la venta, la tenencia temporal o permanente y la exhibición de aves silvestres canoras o de plumaje en las ferias del agricultor y establecimientos comerciales de cualquier índole.
+Artículo 30.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

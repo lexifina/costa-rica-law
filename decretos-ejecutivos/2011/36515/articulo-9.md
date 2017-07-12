@@ -1,5 +1,1 @@
-Artículo 9º—Se autorizan las siguientes regiones para la caza:
-Región 1. Provincia de Guanacaste
-Región 2. Provincias de Alajuela y Heredia
-Región 3. Provincias de Puntarenas y San José
-Región 4. Provincias de Cartago y Limón
+Artículo 9º—(Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)

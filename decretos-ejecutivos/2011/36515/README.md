@@ -14,3 +14,4 @@ Regulaciones para la caza menor y caza mayor fuera de las áreas silvestres prot
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-05-20 | la propia norma |
+| 2 | 2017-07-12 | Decreto Ejecutivo 40548 (2017-07-12) |

@@ -1,1 +1,1 @@
-Artículo 29.—Se prohíbe por tiempo indefinido, la caza o captura de las especies que no aparezcan contempladas en las listas de especies autorizadas para la caza, contenidas en los artículos 12, 13, 14, 16, 17, 18, 19, 20, 21 y 24 del presente decreto.
+Artículo 29.— (Derogado por el artículo 230 del del Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317, aprobado mediante decreto ejecutivo N° 40548 del 12 de julio de 2017.)
