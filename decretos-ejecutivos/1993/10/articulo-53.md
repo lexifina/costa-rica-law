@@ -1,1 +1,0 @@
-Artículo 53.-Las personas físicas o jurídicas que se dediquen a la taxidermia y el procesamiento de la fauna y flora silvestre, de sus productos y subproductos, deberán presentar un informe semestral a satisfacción de la DGVS, de todos los especímenes procesados o atendidos durante ese período.

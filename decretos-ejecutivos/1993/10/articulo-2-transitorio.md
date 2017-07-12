@@ -1,1 +1,0 @@
-2° Las personas físicas y jurídicas dedicadas a la taxidermia y al procesamiento de la flora y fauna, sus productos y subproductos deberán inscribirse en el término de 30 días a partir de la publicación del presente Reglamento, en el Libro que al efecto llevará el Registro Nacional de Flora y Fauna Silvestre.

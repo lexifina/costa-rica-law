@@ -1,1 +1,0 @@
-Artículo 39.-Cada uno de los Departamentos y Unidades citados tendrá una jefatura y personal técnico y auxiliar para el buen desempeño de sus funciones. Los Departamentos dependerán jerárquicamente de la Dirección General y serán órganos programadores, de supervisión y de apoyo técnico, y dejarán la ejecución de las actividades de campo a las oficinas regionales del MIRENEM.

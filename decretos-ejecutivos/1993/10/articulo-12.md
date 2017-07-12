@@ -1,2 +1,0 @@
-Artículo 12.-Las asociaciones que se constituyan, para realizar labores dentro del ámbito de la LCVS, tendrán un plazo máximo de un mes a partir de su constitución, para inscribirse en el Libro que llevará el Registro Nacional, de Flora y Fauna.
-Todas las asociaciones deberán presentar anualmente a la DGVS copia certificada, de la integración de su Junta Directiva, así como cualquier otra modificación que ocurra en su acta constitutiva.

@@ -1,1 +1,0 @@
-Artículo 50.- Los inspectores Ad-honorem de vida silvestre en el desempeño de sus funciones, coadyuvarán con las autoridades de la Dirección de Vida Silvestre, Dirección Nacional Forestal, y del Servicio de Parques Nacionales, en la aplicación y cumplimiento de la LCVS.

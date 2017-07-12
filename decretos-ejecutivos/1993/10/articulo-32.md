@@ -1,1 +1,0 @@
-Artículo 32.-Todo trasiego internacional de flora y fauna silvestre, que pase en tránsito por el territorio nacional, deberá contar con los permisos fitosanitarios, los permisos de las autoridades públicas competentes y cuando corresponda, los permisos de la Autoridad Administrativa CITES del país de origen.

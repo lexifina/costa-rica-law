@@ -1,3 +1,0 @@
-Artículo 28.-Los requisitos necesarios para la obtención de licencias de subsistencia para caza, pesca, extracción y recolecta de flora, son los siguientes:
-1° Carta del Delegado Cantonal o Distrital de la Guardia de Asistencia Rural de la jurisdicción para donde se solicita la licencia.
-2° Carta expedida por una trabajadora social del Patronato Nacional de la Infancia, del Ministerio de Salud o del Instituto Mixto de Ayuda Social de la zona, indicando que por las condiciones socioeconómicas del solicitante se requiere del otorgamiento de este tipo de licencia. Para el caso de grupos indígenas, el jefe o cacique deberá solicitar a la DGVS la respectiva licencia a nombre de su grupo.

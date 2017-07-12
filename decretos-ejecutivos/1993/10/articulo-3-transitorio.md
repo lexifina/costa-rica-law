@@ -1,1 +1,0 @@
-3° Las personas físicas o jurídicas que posean animales silvestres en cautiverio o disecados, dispondrán de 2 meses a partir de la publicación de este Reglamento para solicitar la inscripción correspondiente ante la DGVS.

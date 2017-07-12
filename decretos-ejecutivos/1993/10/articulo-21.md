@@ -1,1 +1,0 @@
-Artículo 21.-La recolecta científica o cultural de fauna silvestre podrá realizarse en los Parques Nacionales y Reservas biológicas cuando esta no involucre actividad comercial alguna por tratarse de bienes de dominio público, previa obtención del "Visto Bueno" del SPN.

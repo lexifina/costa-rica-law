@@ -1,1 +1,0 @@
-Artículo 70.- Los particulares que soliciten la inscripción de zoocriaderos de especies silvestres sin fines comerciales, deberán solicitar y completar a satisfacción, el formulario de inscripción que para tal efecto entregará la DGVS. Aprobada la solicitud de inscripción y operación del zoocriadero, la DGVS, o en su defecto del hábitat natural.

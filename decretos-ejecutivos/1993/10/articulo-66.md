@@ -1,1 +1,0 @@
-Artículo 66.-La DGVS fiscalizará que los animales y plantas silvestres, productos y subproductos de los zoológicos, zoocriaderos, viveros o acuarios estén adecuadamente marcados, siempre y cuando sea esto material y físicamente posible.

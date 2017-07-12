@@ -1,1 +1,0 @@
-Artículo 13.-Los cánones establecidos en la LCVS serán ajustados, automática y anualmente, de conformidad con el índice de inflación que establece el Banco Central a partir del primero de enero de cada año.

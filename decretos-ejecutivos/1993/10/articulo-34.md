@@ -1,1 +1,0 @@
-Artículo 34.-La DGVS dispondrá de hasta 1 mes para dar respuesta a la solicitud de otorgamiento de permisos de exportación, importación y tránsito de las especies silvestres amenazadas o en peligro de extinción.

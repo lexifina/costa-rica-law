@@ -1,1 +1,0 @@
-Artículo 60.-El permisionario dispondrá de 180 días a partir del otorgamiento del permiso para iniciar la operación de acuario, zoológico, zoocriadero o vivero. Si vencido este plazo no dio inicio a la operación, la DGVS procederá a la revocatoria del permiso, sin responsabilidad alguna para el Estado.

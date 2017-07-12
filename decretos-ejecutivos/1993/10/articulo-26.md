@@ -1,1 +1,0 @@
-Artículo 26. -Para el ejercicio de la pesca continental o insular de fauna silvestre, con fines científicos o culturales, se autorizará sólo aquella que sea necesaria para el desarrollo de programas educativos en los centros de enseñanza primaria y diversificada, reconocidos ante el Ministerio de Educación Pública.
