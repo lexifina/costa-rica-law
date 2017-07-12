@@ -1,0 +1,5 @@
+JUNTA DE PROTECCION SOCIAL
+La Junta Directiva de la Junta de Protección Social mediante acuerdo JD-032, correspondiente al artículo VI), inciso 6) de la sesión ordinaria 02-2017 celebrada el 23 de enero del 2017,
+ACUERDA:
+De conformidad con la solicitud cursada en el oficio JD-012- 2016, con fecha 31 de octubre del año en curso, suscrito por el señor Felipe Díaz Miranda, Presidente Junta Directiva FOMUVEL, se aprueba la modificación del artículo 40 del Reglamento General del Fondo de Jubilaciones y Pensiones para los Vendedores de Loterías, para que en adelante diga:
+Artículo 40: Procedimiento de declaratoria de la revaloración. En el mes de enero de cada año, se realizará el estudio actuarial con el que se determinará si procede el ajuste en los montos de las pensiones en curso, con corte al 31 de diciembre de cada año, de manera que cuando proceda tal ajuste, dentro del estudio se recomendará el nivel y la forma de dicha variación. Fomuvel determinará la revaloración de las pensiones, con estricta sujeción a los estudios actuariales. Cuando el ajuste resulte procedente, Fomuvel lo comunicará a la SUPEN y lo publicará en el Diario Oficial La Gaceta.
