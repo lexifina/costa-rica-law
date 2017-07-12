@@ -1,0 +1,1 @@
+Artículo 9º—Derogatoria. Se deroga el Reglamento 3893 del 10 de diciembre de 2012 “Reglamento de aprobación interna de las contrataciones del Instituto Nacional de Fomento Cooperativo no sujetas a referendo contralor”, publicado en La Gaceta 37 del 21 de febrero de 2013.

@@ -1,0 +1,1 @@
+Artículo 10.—Transitorio. Los parámetros para el Refrendo Interno aquí indicado se aplicarán a todo procedimiento de contratación ya iniciado, en tanto funge como un requisito de eficacia del contrato administrativo y responde a los nuevos parámetros vigentes de la Contraloría General de la República.
