@@ -1,0 +1,6 @@
+b) De acuerdo a lo advertido por la Comisión de Mejora Regulatoria del INFOCOOP, en su oficio CMR-11-2016 de 9 de diciembre de 2016, se solicita adicionar los siguientes artículos:
+Al Reglamento de Participación Asociativa:
+Artículo 30.—Como resultado del llenado de Formulario de evaluación costo-beneficio en la Sección I denominada: Control previo de mejora regulatoria, siendo que el mismo dio resultado negativo y que no contiene trámites, requisitos o procedimientos que el administrado tenga que cumplir ante la institución, es que esta propuesta podrá ser emitida y publicada por la administración en cualquier momento y no deberá enviarse a la Dirección de Mejora Regulatoria.
+Al Reglamento para el nombramiento, deberes, atribuciones y remoción de representantes del INFOCOOP en Organismos Receptores de Coinversión o Participación Asociativa:
+Artículo 15.—Como resultado del llenado de Formulario de evaluación costo-beneficio en la Sección I denominada: Control previo de mejora regulatoria, siendo que el mismo dio resultado negativo y que no contiene trámites, requisitos o procedimientos que el administrado tenga que cumplir ante la institución, es que esta propuesta podrá ser emitida y publicada por la administración en cualquier momento y no deberá enviarse a la Dirección de Mejora Regulatoria.
+Acuerdo firme”.
