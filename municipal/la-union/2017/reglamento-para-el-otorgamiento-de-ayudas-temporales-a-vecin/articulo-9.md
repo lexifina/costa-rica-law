@@ -1,0 +1,5 @@
+Artículo 9º.- Presunción de Falsedad de documentación presentada por el o la solicitante.
+Si en cualquier momento del proceso de estudio, trámite o entrega de la Ayuda Temporal, existieren indicios suficientes para creer que los documentos o información suministrada por la persona solicitante son falsos, la Comisión de Asuntos Sociales suspenderá el proceso seguido y lo remitirá al seno del Concejo Municipal, el cual lo trasladará a la Dirección Jurídica, con el legajo donde se establece la presunción de falsedad para que esta Dirección proceda a tramitar la denuncia pertinente. A la vez dicha Comisión comunicará a el/la solicitante sobre el particular.
+Rige a partir de su publicación definitiva en el Diario Oficial La Gaceta.
+Se acuerda en firme y por unanimidad realizar la segunda publicación del reglamento para el otorgamiento de ayudas temporales, a vecinos y vecinas del Cantón de La Unión contenidas en el párrafo quinto del artículo 62 del Código Municipal para poder proceder con fundamento legal para este tipo de ayudas, en la Sesión N°.77, realizada el jueves 6 de abril de 2017.
+La Unión, 18 de abril de 2017

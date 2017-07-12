@@ -1,0 +1,2 @@
+Artículo 5º.- Del otorgamiento de la ayuda temporal.
+La ayuda temporal a una persona o familia solicitante, se otorgará por una única vez por año presupuestario y ésta se brindará en materiales, alimentos (enseres o artículos de primera necesidad de la canasta básica y/o servicios, cuyo monto ascenderá hasta la suma correspondiente a tres salarios mínimos para el sector privado vigente a partir del 01 de enero de 2014, según decreto no. 38-01- MTSS publicado en la Gaceta No. 249 de 26 de 12 de 2013.”
