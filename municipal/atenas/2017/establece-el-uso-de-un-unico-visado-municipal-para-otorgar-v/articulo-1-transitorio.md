@@ -1,0 +1,2 @@
+DISPOSICIONES TRANSITORIAS
+Transitorio I.—De conformidad al transitorio único de la Ley N° 8220 “Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos” publicado en el Diario Oficial La Gaceta del 11 de marzo del año 2002. La Municipalidad de Atenas propone la adopción de la tramitología de licencias para construcción únicamente mediante la plataforma digital APC (Administración de Proyectos de Construcción) del Colegio Federado de Ingenieros y Arquitectos, tres meses posterior de su publicación en el Diario Oficial La Gaceta.
