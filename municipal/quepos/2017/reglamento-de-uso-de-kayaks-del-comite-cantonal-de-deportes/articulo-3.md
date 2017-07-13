@@ -1,0 +1,1 @@
+Artículo 3º—Uso del Logo Oficial. Los kayaks llevarán en algún lugar visible y de forma permanentemente- una placa, pegatina o cualquier distintivo especial, con carácter de oficial. El distintivo que se utilice deberá incluir de forma clara el logo del Comité así como la frase “Propiedad del Comité Cantonal de Deportes y Recreación de Quepos”.
