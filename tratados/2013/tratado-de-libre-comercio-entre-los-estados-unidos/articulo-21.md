@@ -339,22 +339,24 @@ México - Nicaragua
 4. Para los efectos de este Apéndice, se entenderá por “azúcar” las mercancías clasificadas en las siguientes fracciones arancelarias descritas en la Ley de los Impuestos Generales de Importación y Exportación de México: 1701.11.01, 1701.11.02, 1701.11.03, 1701.12.01, 1701.12.02, 1701.12.03, 1701.91.01 (excepto aquellos que contengan saborizantes), 1701.99.01, 1701.99.02 y 1701.99.99.
 5. Sin perjuicio de las concesiones otorgadas por México a Nicaragua en este Apéndice, ambos Estados se comprometen a coordinar esfuerzos con las autoridades aduaneras respectivas, con el fin de evitar la elusión del pago de aranceles aduaneros correspondientes a azúcar o a las mercancías con alto contenido de azúcar.
 6. Los gobiernos de México y Nicaragua establecerán un programa de trabajo con la participación de sus sectores productivos, con objeto de combatir el contrabando de azúcar, incluido el contrabando técnico, de la manera más enérgica y efectiva posible.
+ANEXO
 Anexo 4.3
 Reglas de Origen Específicas
-Sección A: Nota General Interpretativa
+(*)Sección A: Nota General Interpretativa
 1. Para los efectos de este Anexo, se entenderá por:
-capítulo: un capítulo del Sistema Armonizado;
-fracción arancelaria: un código de clasificación arancelaria con base en el Sistema Armonizado a nivel de 8 o 10 dígitos;
-partida: un código de clasificación arancelaria del Sistema Armonizado a nivel de 4 dígitos;
-sección: una sección del Sistema Armonizado; y
-subpartida: un código de clasificación arancelaria del Sistema Armonizado a nivel de 6 dígitos.
+Capítulo: Un capítulo del Sistema Armonizado;
+Fracción arancelaria; un código de clasificación arancelaria con base en el Sistema Armonizado a nivel de 8 o 10 dígitos;
+Partida: un código de clasificación arancelaria del Sistema Armonizado a nivel de 4 dígitos;
+Sección: un sección del Sistema Armonizado; y
+Subpartida: un código de clasificación arancelaria del Sistema Armonizado a nivel de 6 dígitos.
 2. La regla específica o el conjunto específico de reglas que se aplica a una partida, subpartida o fracción arancelaria se establece al lado de la partida, subpartida o fracción arancelaria correspondiente.
 3. La regla aplicable a una fracción arancelaria tendrá prioridad sobre la regla aplicable a la partida o subpartida que comprende a esa fracción arancelaria.
 4. Un requisito de cambio de clasificación arancelaria aplica solamente a los materiales no originarios.
 5. Cuando una regla de origen específica esté definida con el criterio de cambio de clasificación arancelaria y la regla está escrita de manera que se exceptúen materiales o posiciones arancelarias a nivel de capítulo, partida, subpartida o fracción arancelaria, se entenderá que dichos materiales o posiciones arancelarias excluidas deben ser originarios para que la mercancía cumpla su regla de origen específica.
 6. Cuando una partida, subpartida o fracción arancelaria esté sujeta a reglas de origen específicas optativas, será suficiente cumplir con una de ellas.
-7. Cuando una regla de origen específica establezca para un grupo de partidas o subpartidas únicamente un cambio de otra partida o subpartida, dicho cambio podrá realizarse dentro y fuera del grupo de partidas o subpartidas especificadas en la regla, según sea el caso. No obstante, cuando una regla se refiera a un cambio de partida o subpartida “fuera del grupo”, se entenderá que la regla requiere que el cambio de partida o subpartida debe ocurrir desde una partida o subpartida que está fuera del grupo de partidas o subpartidas establecidas en la regla.
-8. La descripción de las fracciones arancelarias expresadas con letra en el texto de las reglas de origen específicas está contenida en el Apéndice del Anexo 4.3.
+7. Cuando una regla de origen específica establezca para un grupo de partidas o subpartidas únicamente un cambio de otra partida o subpartida, dicho cambio podrá realizarse dentro y fuera del grupo de partidas o subpartidas especificadas en la regla según sea el caso. No obstante, cuando una regla se refiera a un cambio de partida o subpartida “fuera del grupo”, se entenderá que la regla requiere que el cambio de partida o subpartida sebe ocurrir desde una partida o subpartida que está fuera del grupo de partidas o subpartidas establecidas en la regla.
+8. La descripción de las fracciones arancelarias expresadas con letra en el texto de las reglas de origen específicas está contenida en el Apéndice del Anexo 4.3
+(*)(Así reformada la Sección A) anterior por el artículo 1° del decreto ejecutivo N° 40468-COMEX del 15 de mayo del 2018 “Publica la Decisión N° 08 del 24/01/2017 de la Comisión Administradora del Tratado de Libre Comercio entre los Estados Unidos Mexicanos y Costa Rica, El Salvador, Guatemala, Honduras y Nicaragua: “Reglas de Origen Específicas del Tratado de Libre Comercio”)
 Sección B. Reglas de Origen Específicas del Anexo 4.3
 Apéndice al Anexo 4.3
 Nota: Cuando en las columnas de fracciones arancelarias de Centroamérica o México se inserte una letra adjunta a dicha fracción arancelaria, esto significa que dicha fracción arancelaria cubre únicamente la mercancía descrita en la columna “Descripción”.
