@@ -1024,41 +1024,26 @@ OBJETOS DE ARTE O COLECCIÓN Y ANTIGÜEDADES
 (Capítulo 97)
 CAPÍTULO 97: OBJETOS DE ARTE O COLECCIÓN Y ANTIGUEDADES
 97.1 – 97.06 | – Un cambio a la partida 97.01 a 97.06 desde cualquier otra subpartida.
-ANEXO 3-B CERTIFICADO DE ORIGEN
-1. Nombre y Dirección del Exportador: Teléfono: Fax: Correo electrónico: Número de Registro Fiscal: | Certificado No: CERTIFICADO DE ORIGEN Tratado de Libre Comercio entre Colombia y Costa Rica (Ver instrucciones al reverso)
+(*)ANEXO 3-B CERTIFICADO DE ORIGEN
+Certificado de Origen
+1. Nombre y Dirección del Exportador: Teléfono: Fax: Correo electrónico: Número de Registro Fiscal: | Certificado Nº: CERTIFICADO DE ORIGEN Tratado de Libre Comercio entre Colombia y Costa Rica (Ver instrucciones al reverso)
 2. Nombre y Dirección del Productor: Teléfono: Fax: Correo electrónico: Número de Registro Fiscal: | 3. Nombre y Dirección del Importador: Teléfono: Fax: Correo electrónico: Número de Registro Fiscal:
-4. Ítem: | 5. Descripción de las Mercancías: | 6.Clasificación Arancelaria SA (6 dígitos): | 7. Número de la Factura: | 8. Valor en Factura: | 9. Criterio de Origen:
+4. Ítem : | 5. Descripción de las Mercancías: | 6.Clasificación Arancelaria SA (6 dígitos): | 7. Número de la Factura: | 8. Valor en Factura: | 9. Criterio de Origen:
 10. Observaciones:
-11. Declaración del exportador: | 12. Certificación de la autoridad competente:
-El abajo firmante declara bajo juramento que la | Sobre la base del control efectuado, se certifica
-información consignada en este certificado de | por este medio que la información aquí
-origen es correcta y verdadera y que las | señalada es correcta y que las mercancías
-mercancías fueron producidas en: | descritas cumplen con las disposiciones del
-| Tratado de Libre Comercio entre la República
-………………………………………………………... | de Colombia y la República Costa Rica.
-(país) |
-| Lugar y fecha, nombre y firma del funcionario y
-y cumplen con las disposiciones del Capítulo 3 | sello de la autoridad competente:
-(Reglas de Origen y Procedimientos de Origen) |
-establecidas en el Tratado de Libre Comercio |
-entre la República de Colombia y la República de |
-Costa Rica y exportadas a: |
-………………………………………………………... | Dirección:
-(país de importación) |
-| Teléfono: Fax:
-Lugar y fecha, firma del exportador: |
-Correo electrónico:
+11.Declaración del exportador: El abajo firmante declara bajo juramento que la información consignad a en este certificado de origen es correcta y verdadera y que las mercancías fueron producidas en: …………………………………………….……… (país) y cumplen con las disposiciones del Capítulo 3 (Reglas de Origen y Procedimientos de Origen) establecidas en el Tratado de Libre Comercio entre la República de Colombia y la República de Costa Rica y exportadas a: ……………………………………………………… (país de importación) Lugar y fecha, firma del exportados: | 12.Certificación de Ja autoridad competente: Sobre la base del control efectuado, se certifica por este medio que la información aquí señalada es correcta y que las mercancías descritas cumplen con las disposiciones del Tratado de Libre Comercio entre la República de Colombia y la República Costa Rica. Lugar y fecha, nombre y firma del funcionario y sello de la autoridad competente: Dirección: Teléfono: Fax: Correo electrónico:
 | | | | |
 INSTRUCCIONES PARA COMPLETAR EL CERTIFICADO DE ORIGEN
 Para efectos de solicitar el trato arancelario preferencial, este documento deberá ser completado en forma legible y completa por el exportador de las mercancías, y certificado por la autoridad competente, sin tachaduras, enmiendas o entrelíneas y el importador deberá tenerlo en su poder al momento de presentar la declaración de importación. Llenar a máquina o con letra de imprenta (molde).
-Certificado No: Número correlativo del certificado de origen asignado por la autoridad competente.
+Certificado N°: Número correlativo del certificado de origen asignado por la autoridad competente.
 Campo 1: Indique el nombre completo o razón social, la dirección (incluyendo la ciudad y el país), el número de teléfono, y el número del registro fiscal del exportador.
-Indicar el número de fax y el correo electrónico, si son conocidos. El número del registro fiscal será en:
+Indicar el número de fax y el correo electrónico, si son conocidos.
+El número del registro fiscal será en:
 (a) Colombia, el número de Registro Único Tributario (R.U.T.) o de cualquier otro documento autorizado de acuerdo con su legislación; y
 (b) Costa Rica: el número de cédula jurídica para personas jurídicas ó la cédula de identidad para personas físicas.
 Campo 2: Indique el nombre completo o razón social, la dirección (incluyendo la ciudad y el país), el número de teléfono y el número del registro fiscal del productor.
 Indicar el número de fax y el correo electrónico, si son conocidos.
-En caso que el certificado ampare mercancías de más de un productor, señale: “VARIOS” y anexe una lista de los productores, incluyendo el nombre completo o razón social, la dirección (incluyendo la ciudad y el país), el número de teléfono y el número del registro fiscal, haciendo referencia directa a la mercancía descrita en el Campo 5.
+En caso que el certificado ampare mercancías de más de un productor, señale:
+"VARIOS" y anexe una lista de los productores, incluyendo el nombre completo o razón social, la dirección (incluyendo la ciudad y el país), el número de teléfono y el número del registro fiscal, haciendo referencia directa a la mercancía descrita en el Campo 5.
 Indicar el número de fax y el correo electrónico, si son conocidos.
 Campo 3: Indique el nombre completo o razón social, la dirección (incluyendo la ciudad y el país), el número de teléfono y el número del registro fiscal del importador.
 Indicar el número de fax y el correo electrónico, si son conocidos.
@@ -1067,34 +1052,19 @@ Campo 5: Proporcione una descripción completa de cada mercancía. La descripci�
 Campo 6: Para cada mercancía descrita en el Campo 5, identifique los seis dígitos correspondientes a la clasificación arancelaria del Sistema Armonizado (SA).
 Campo 7: Para cada mercancía descrita en el Campo 5, indique el número de la factura. En el caso de que la mercancía sea facturada por un operador de un país no Parte y no cuente con la factura comercial, se deberá señalar en este campo el número de la factura comercial emitida en la Parte exportadora.
 Campo 8: En este campo se deberá indicar el valor facturado. Se podrá consignar el valor facturado por cada ítem o por el total de ítems. En el caso que una mercancía sea facturada por un operador de un país no Parte, será opcional para el exportador consignar el valor de factura.
-Campo 9: Para cada mercancía descrita en el Campo 5, se deberá indicar el criterio de origen correspondiente por el cual la mercancía califica como originaria, de acuerdo a lo siguiente:
-A:La mercancía es totalmente obtenida o enteramente producida en el territorio de una o ambas Partes, según se define en el Artículo 3.2 (Mercancías Totalmente Obtenidas o Enteramente Producidas).
-B:La mercancía es producida en el territorio de una o ambas Partes, a partir de materiales no originarios, que cumplan con el cambio de clasificación arancelaria, el valor de contenido regional, u otras reglas de origen específicas contenidas en el Anexo 3-A.
-C:La mercancía es producida en el territorio de una o ambas Partes, a partir exclusivamente de materiales originarios.
-Campo 10: Este campo deberá ser utilizado cuando exista alguna observación adicional respecto a este certificado, entre otros, cuando la mercancía objeto de intercambio sea facturada por un operador de un país no Parte. En dicho caso, se deberá indicar el nombre completo o la razón social y dirección (incluyendo la ciudad y el país) del operador del país no Parte. En el evento que se emita un duplicado, se deberá incluir la frase “DUPLICADO del Certificado de Origen número […] de fecha […]”.
+Campo 9: Para cada mercancía descrita en el Campo 5, se deberá indicar el criterio de origen correspondiente por el cual la mercancía califica corno originaria, de acuerdo a lo siguiente:
+A. La mercancía es totalmente obtenida o enteramente producida en el territorio de una o ambas Partes, según se define en el Artículo 3.2 (Mercancías Totalmente Obtenidas o Enteramente Producidas).
+B. La mercancía es producida en el territorio de una o ambas Partes, a partir de materiales no originarios, que cumplan con el cambio de clasificación arancelaria, el valor de contenido regional, u otras reglas de origen específicas contenidas en el Anexo 3-A.
+C. La mercancía es producida en el territorio de una o ambas Partes, a partir exclusivamente de materiales originarios.
+Campo 10: Este campo deberá ser utilizado cuando exista alguna observación adicional respecto a este certificado, entre otros, cuando la mercancía objeto de intercambio sea facturada por un operador de un país no Parte. En dicho caso, se deberá indicar el nombre completo o la razón social y dirección (incluyendo la ciudad y el país) del operador de] país no Parte. En el caso que se emita un duplicado, se deberá incluir la frase "DUPLICADO de] Certificado de Origen número [ ... ] de fecha [...]". En el caso en que se utilice acumulación con terceros países deberá indicarse en este campo el país con el que se está acumulando.
 Campo 11: El campo debe ser completado, firmado y fechado por el exportador.
 Campo 12: El campo debe ser completado, firmado, fechado y sellado por el funcionario de la autoridad competente acreditado para emitir certificados de origen.
 HOJA ANEXA
-Certificado No: CERTIFICADO DE ORIGEN Tratado de Libre Comercio entre Colombia y Costa Rica
+Certificado Nº: CERTIFICADO DE ORIGEN Tratado de Libre Comercio entre Colombia y Costa Rica
 4. Ítem: | 5. Descripción de las Mercancías: | 6.Clasificación Arancelaria SA (6 dígitos): | 7. Número de la Factura: | 8. Valor en Factura: | 9. Criterio de Origen:
-10. Observaciones:
-11. Declaración del exportador: | 12. Certificación de la autoridad competente:
-El abajo firmante declara bajo juramento que la | Sobre la base del control efectuado, se certifica
-información consignada en este certificado de | por este medio que la información aquí
-origen es correcta y verdadera y que las | señalada es correcta y que las mercancías
-mercancías fueron producidas en: | descritas cumplen con las disposiciones del
-| Tratado de Libre Comercio entre la República
-………………………………………………………... | de Colombia y la República de Costa Rica.
-(país) |
-| Lugar y fecha, nombre y firma del funcionario y
-y cumplen con las disposiciones establecidas en | sello de la autoridad competente:
-el Capítulo 3 del Tratado de Libre Comercio |
-entre la República de Colombia y la República de |
-Costa Rica, y exportadas a: |
-………………………………………………………... |
-(país de importación) | Dirección:
-Lugar y fecha, firma del exportador: | Teléfono: Fax:
-Correo electrónico:
+10.Observaciones:
+11. Declaración del exportador: El abajo firmante declara bajo juramento que la información consignada en este certificado de origen es correcta y verdadera y que las mercancías fueron producidas en: ……………………………………………………………………. (país) y cumplen con las disposiciones establecidas en el Capítulo 3 del Tratado de Libre Comercio entre la República de Colombia y la República de Costa Rica, y exportadas a: ………………………………………………………………..……… (país de importación) Lugar y fecha, firma del exportador: | 12.Certificación de la autoridad competente: Sobre la base del control efectuado, se certifica por este medio que la información aquí señalada es correcta y que las mercancías descritas cumplen con las disposiciones del Tratado de Libre Comercio entre la República de Colombia y la República de Costa Rica. Lugar y fecha, nombre y firma del funcionario y sello de la autoridad competente: Dirección : Teléfono: Fax: Correo electrónico:
+(*) (Así modificado el certificado el origen anterior correspondiente al Anexo 3-B del Tratado, mediante Decisión N° 02 de fecha 10 de febrero de 2017 de la Comisión de Libre Comercio Tratado de Libre Comercio entre el Gobierno de la República de Costa Rica y el Gobierno de la República de Colombia, aprobado mediante decreto ejecutivo N° 40484 del 15 de mayo de 2017.)
 ANEXO 3-C
 PROCEDIMIENTO PARA EL ENVÍO Y RECEPCIÓN DEL CERTIFICADO DE ORIGEN ELECTRÓNICO
 Las Partes adoptan el siguiente procedimiento para el envío y recepción de certificados de origen electrónicos:
