@@ -1,0 +1,1 @@
+TRANSITORIO SEGUNDO: La AC elaborará, en el plazo de seis meses a partir de la fecha de vigencia del presente reglamento, un sistema que permita el registro en línea, de manera que permita la presentación de la información de forma digital, sin presentarla en forma física excepto el legajo confidencial.
