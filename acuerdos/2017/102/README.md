@@ -14,3 +14,4 @@ Establece las tallas legales de primera captura para peces
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-03-17 | la propia norma |
+| 2 | 2017-07-13 | Acuerdo 288 (2017-07-13) |
