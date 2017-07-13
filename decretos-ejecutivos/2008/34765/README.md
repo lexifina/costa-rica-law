@@ -20,3 +20,4 @@ Reglamento a la Ley General de Telecomunicaciones
 | 5 | 2011-09-09 | Decreto Ejecutivo 36796 (2011-09-09) |
 | 6 | 2012-06-25 | Ley 9046 |
 | 7 | 2013-07-09 | Decreto Ejecutivo 37804 (2013-07-09) |
+| 8 | 2017-07-13 | Decreto Ejecutivo 40639 (2017-07-13) |

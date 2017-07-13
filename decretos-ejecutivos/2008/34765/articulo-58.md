@@ -1,2 +1,1 @@
-Artículo 58.—De los aspirantes. Al aspirante se le otorgará un permiso provisional para prácticas por un plazo máximo de 90 días e improrrogables antes del examen, el cual sólo podrá utilizarlo en los equipos autorizados.
-Como forma de identificación se le otorgará el prefijo “TI” seguido de un dígito que indicará la zona y cuatro letras donde la primera de ellas será “P” identificándolos como practicantes, podrá operar en las mismas bandas y frecuencias atribuidas a la categoría de NOVICIO.
+Artículo 58.—(Derogado por el artículo 37 del Reglamento general para la regulación de los trámites del servicio de radioaficionados y afines, aprobado mediante decreto ejecutivo N° 40639 del 13 de julio de 2017)

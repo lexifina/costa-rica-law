@@ -1,2 +1,2 @@
 Banda ciudadana
-Artículo 51.—De la categoría banda ciudadana. Es un servicio de radiocomunicación fijo-móvil terrestre, abierto al público que está integrado por estaciones fijas y móviles terrestres destinadas a cursar tráfico de correspondencia, ya sean de asuntos familiares, de entretenimiento o de actividades de auxilio y cooperación con las autoridades nacionales en caso de emergencias.
+Artículo 51.— (Derogado por el artículo 37 del Reglamento general para la regulación de los trámites del servicio de radioaficionados y afines, aprobado mediante decreto ejecutivo N° 40639 del 13 de julio de 2017)
