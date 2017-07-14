@@ -1,0 +1,1 @@
+Artículo 62. Rendición de informes a la Comisión Institucional de Teletrabajo. La jefatura involucrada en el Programa de Teletrabajo deberá presentar informes bimensuales de gestión para el conocimiento de la Comisión Institucional de Teletrabajo, los cuales, deberán cumplir con todos los parámetros pre establecidos por dicha Comisión.

@@ -1,0 +1,1 @@
+Artículo 66. Características de los equipos tecnológicos. Los equipos de cómputo utilizados para el teletrabajo, deben cumplir con todas las características de seguridad indicadas en el "Manual de Políticas de Seguridad del Cosevi", Reglamento de Seguridad de la información y cualquier otra normativa que regule la materia.

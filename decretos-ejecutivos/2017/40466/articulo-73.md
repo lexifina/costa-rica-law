@@ -1,0 +1,1 @@
+Artículo 73. Coordinación de aspectos administrativos y de soporte para la ejecución de la modalidad de teletrabajo. La Dirección de Logística es la responsable de velar por la eficiente y eficaz ejecución de las actividades en aplicación de la gestión y modalidad de teletrabajo, en cumplimiento de las obligaciones de los departamentos y unidades a su cargo.

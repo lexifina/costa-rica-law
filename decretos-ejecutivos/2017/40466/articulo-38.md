@@ -1,0 +1,1 @@
+Artículo 38. Viáticos por gira. En el caso de realizar giras en el interior del país, viajes al exterior y/o reuniones de trabajo como parte de su función, al teletrabajador le aplicará lo establecido en la normativa laboral vigente y el artículo 7 del presente reglamento.

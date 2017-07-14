@@ -1,0 +1,2 @@
+Artículo 56. Medición de resultados. La jefatura deberá evaluar el cumplimiento de las metas del teletrabajador, según la metodología definida por el Cosevi mediante el "Sistema de Control, Medición y Evaluación" del Teletrabajo, avalada por la Comisión Institucional de Teletrabajo; y ejecutar las acciones que permitan mejorar el desempeño del teletrabajador.
+Para este fin debe llevar los registros correspondientes, realizar sesiones de seguimiento de control de las metas e informar a los interesados.

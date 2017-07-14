@@ -1,0 +1,1 @@
+Artículo 47. Disponibilidad del teletrabajador en la jornada laboral. El teletrabajador debe estar disponible en todo momento dentro de la jornada laboral acordada, para atender asuntos de su jefatura, compañeros, ya sea por medio del correo electrónico, teléfono, videoconferencia u otro medio.

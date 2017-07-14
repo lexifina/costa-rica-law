@@ -1,0 +1,2 @@
+Artículo 51. Información de medición. El teletrabajador debe brindar información verídica y oportuna en todos los procesos de medición, control y evaluación, a los que deba someterse.
+El teletrabajador es el responsable de cumplir con la meta y/o cuota laboral establecida por el Cosevi conforme a la Guía para la Medición, Control y Evaluación del Teletrabajador y aceptada por di en la adenda al contrato de trabajo; caso contrario la Comisión Institucional de Teletrabajo y el Cosevi procederán conforme lo establece el artículo 12 del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 14. Pago de la jornada extraordinaria. En la modalidad de teletrabajo, cuando surjan necesidades excepcionales de trabajar tiempo extraordinario, el Cosevi aplicará lo establecido en el ordenamiento jurídico, normativas institucionales y las disposiciones de la Dirección General de Servicio Civil.

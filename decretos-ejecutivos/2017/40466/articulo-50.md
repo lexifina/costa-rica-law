@@ -1,0 +1,2 @@
+Artículo 50. Equipo de trabajo. El funcionario aprobado para la modalidad de teletrabajo, aportará el equipo de trabajo y herramientas de su propiedad para el cumplimiento de las funciones asignadas, situación que quedará consignada en la adenda suscrita por las partes.
+Sin embargo, en caso de que el Cosevi suministre equipo de trabajo al teletrabajador, este estará sujeto a disponibilidad presupuestaria de las unidades ejecutoras involucradas en el proceso.

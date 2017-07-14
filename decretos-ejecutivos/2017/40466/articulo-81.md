@@ -1,0 +1,1 @@
+Artículo 81. Mejora de los procesos. La Unidad de Planificación Institucional, brindará el asesoramiento técnico necesario a la Comisión Institucional de Teletrabajo, de forma que las mejoras a los procesos relacionados con el teletrabajo propuestas por la jefatura del área, cumplan con los criterios establecidos a nivel nacional o institucional.

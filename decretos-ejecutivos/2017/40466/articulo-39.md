@@ -1,0 +1,1 @@
+Artículo 39. Póliza de Riesgos del Trabajo. Los teletrabajadores estarán cubiertos por la Póliza de Riesgos del Trabajo del Instituto Nacional de Seguros que posee el Cosevi, siempre que se encuentren ejerciendo las labores propias de su función y pactadas para realizar el teletrabajo.

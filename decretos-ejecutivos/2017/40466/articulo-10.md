@@ -1,0 +1,1 @@
+Artículo 10. Selección de funcionarios. El Cosevi se reserva la facultad de incorporar o no a sus funcionarios en esta modalidad de trabajo, dependiendo de las funciones que desempeñen y de los requisitos establecidos en el presente reglamento, según el análisis que realice la Comisión Institucional de Teletrabajo.

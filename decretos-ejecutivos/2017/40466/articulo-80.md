@@ -1,0 +1,1 @@
+Artículo 80. Alineamiento del programa de teletrabajo. La Unidad de Planificación institucional brindará a la Comisión Institucional de Teletrabajo, el asesoramiento necesario en materia de alineamiento estratégico, de forma que el Programa de Teletrabajo responda a la estrategia del Consejo.

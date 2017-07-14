@@ -1,0 +1,1 @@
+Artículo 79. Informes estadísticos. La Dirección de Proyectos con base en los insumos que con al menos tres semanas de antelación le brinden los demás involucrados en el programa de teletrabajo, es la responsable de elaborar de forma semestral los informes estadísticos de la gestión de teletrabajo y presentarlos ante, la Comisión Institucional de Teletrabajo.

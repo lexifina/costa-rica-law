@@ -1,0 +1,1 @@
+Artículo 48. Cumplimiento de Condiciones. Independientemente del lugar donde se desarrollen las actividades teletrabajables, el trabajador debe cumplir con todas las condiciones que establezcan las normas, decretos, reglamentos, circulares, directrices y procedimientos entre otros, aplicables a la modalidad de teletrabajo.

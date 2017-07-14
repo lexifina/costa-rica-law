@@ -1,0 +1,1 @@
+Artículo 20. Coordinador de la Comisión Institucional de Teletrabajo. La comisión tendrá un coordinador nombrado de entre los miembros y representantes que conforman la comisión por mayoría simple de ellos, quién se mantendrá en el cargo por un año, pudiendo ser reelecto.

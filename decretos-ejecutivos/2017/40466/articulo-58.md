@@ -1,0 +1,1 @@
+Artículo 58. Solicitud de resolución contractual de la aderida. La jefatura del teletrabajador deberá informar y solicitar a la Comisión Institucional de Teletrabajo, la resolución contractual de la adenda al contrato de prestación de servicios bajo la modalidad de teletrabajo, en aquellos casos que no cumplan con las condiciones establecidas.

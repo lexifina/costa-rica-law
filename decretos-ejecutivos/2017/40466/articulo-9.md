@@ -1,0 +1,1 @@
+Artículo 9. Carácter pennanente. Las actividades teletrabajables deben tener en principio un carácter permanente. No obstante, si por conveniencia institucional se decide realizar actividades teletrabajables de forma parcial o temporal, el tiempo y los recursos deberán ser consensuados entre el teletrabajador y su jefatura inmediata.

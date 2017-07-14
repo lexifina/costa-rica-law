@@ -1,0 +1,1 @@
+Artículo 36. Carrera administrativa. Los teletrabajo adores tendrán el mismo derecho de acceso a la información y a las oportunidades de desarrollo de la carrera administrativa y profesional que los demás funcionarios que laboran en las iustalaciones del Cosevi.
