@@ -13,3 +13,4 @@ Aplicación del formulario “Solicitud de Interceptación de Comunicaciones hac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-09-30 | la propia norma |
+| 2 | 2017-07-14 | Circular 108 (2017-07-14) |

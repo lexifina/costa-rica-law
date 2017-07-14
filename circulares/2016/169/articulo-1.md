@@ -7,4 +7,5 @@ El Consejo Superior del Poder Judicial en sesión N° 84- 16, celebrada el 8 de 
 Centro Judicial de Intervención de las Comunicaciones
 [imagen]
 [imagen]
+(Nota de Sinalevi: Mediante circular N° 108-2017 del 14 de julio de 2017, se acordó reformar el punto octavo anterior para que se lea: ““Así como el nombramiento de peritos e intérpretes, en caso de surgir conversaciones en otros idiomas, que se requieran para la ejecución de la intervención comisionada”.)
 San José, 30 de setiembre del 2016.
