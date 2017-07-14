@@ -1,4 +1,3 @@
-CAPÍTULO CUARTO
-Del Ingreso a la Caja Recaudadora
-Artículo 13.—A la Caja Recaudadora ingresará únicamente dinero efectivo, salvo cheque por el monto completo que se adeuda a nombre de la Municipalidad de Turrialba, y que dicho cheque esté debidamente firmado por el dorso con el número de cédula del endosante.
-Cuando el cheque presente alguna duda, se procederá a realizar la consulta con el Jefe Financiero o con la Institución Bancaria, que está confeccionando el cheque para su autorización.
+CAPÍTULO QUINTO
+Ubicación de la Cajas Recaudadoras
+Artículo 13.—Las cajas recaudadoras estarán ubicadas contiguo al Departamento de Tesorería Municipal y funcionarán independientemente de esta, salvo comunicación por medio de una ventana.

@@ -1,1 +1,1 @@
-Artículo 2º—El monto de dinero con que se operará la Caja Recaudadora será de ¢ 150.000,00 (ciento cincuenta mil colones con cero centavos), y será exclusivamente para el buen funcionamiento de la Caja Recaudadora.
+Artículo 2º—E1 monto de dinero con que se operará cada cajero será de medio salario base de oficinista de la Municipalidad de Turrialba, que se implemente al año, y será exclusivamente para el buen funcionamiento de las cajas recaudadoras.

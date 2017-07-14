@@ -1,3 +1,1 @@
-Artículo 17.—El presente Reglamento reforma y deroga cualquier Reglamento de Caja Recaudadora que el Concejo Municipal de Turrialba haya emitido con anterioridad.
-Rige a partir de su publicación.
-Turrialba, 23 de marzo del 2006
+Artículo 17.—Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta y la página Web de la Municipalidad de Turrialba, julio del 2017.

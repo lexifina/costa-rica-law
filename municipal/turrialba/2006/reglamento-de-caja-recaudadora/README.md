@@ -14,3 +14,4 @@ Reglamento de Caja Recaudadora
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-19 | la propia norma |
+| 2 | 2017-07-14 | Reglamento municipal 35 (2017-07-14) |

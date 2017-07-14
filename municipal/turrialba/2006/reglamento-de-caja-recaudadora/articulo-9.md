@@ -1,4 +1,5 @@
-Artículo 9º—El encargado de la Caja Recaudadora, deberá contar con una póliza de fidelidad, dicha póliza debe ser otorgada por el Instituto Nacional de Seguros, mientras se tramite ante el INS, deberá rendir una garantía fiduciaria.
-Cuando el monto de la recaudación supere el monto establecido de la póliza de fidelidad, el Cajero(a) debe entregar al Tesorero el efectivo recaudado mediante el formulario "REMESAS PARCIALES A TESORERIA".
-EL Tesorero(a) y el Cajero(a) Municipales son solidariamente responsables por el buen funcionamiento de la Caja Recaudadora.
-Al cubículo donde se ubicará la Caja Recaudadora, no debe ingresar persona alguna, excepto las personas autorizadas.
+Artículo 9º—Los cajeros, deberán contar con una póliza de fidelidad, dicha póliza debe ser otorgada por el Instituto Nacional de Seguros, mientras se tramite ante el INS, deberá rendir una garantía fiduciaria.
+Cuando el monto de la recaudación supere el monto establecido de la póliza de fidelidad el Cajero(a) debe entregar al Tesorería el efectivo recaudado, en un bolso cerrado que solamente el cajero tendrá acceso a la llave de dicho bolso el cual será guardado en la Caja Fuerte.
+La Tesorería y los cajeros Municipales son solidariamente responsables por el buen funcionamiento de la Caja Recaudadora.
+Al cubículo donde se ubicará las cajas recaudadoras, no debe ingresar persona alguna, excepto las personas autorizadas.
+Las ausencias de las personas que fungen como cajeros sea en periodo de vacaciones o incapacidad deben ser coordinadas con el departamento de Recursos Humanos, el cual deben tener un funcionario capacitado en el manejo de SISTEMA DE COBROS Y DE CAJERO para este fin, el cual deberá rendir garantía fiduciaria. A este funcionario se le debe equiparar el salario base mientras ocupe temporalmente el puesto.

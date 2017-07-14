@@ -1,1 +1,1 @@
-Artículo 4º—El Cajero revisa la impresión del comprobante de ingreso, lo sella y lo firma, procede a cobrar la suma asignada al contribuyente, entrega el original del comprobante al cliente y retiene la copia para el Departamento de Tesorería.
+Artículo 4º—Los cajeros revisan la impresión del comprobante de ingreso, lo sella y lo firma, procede a cobrar la suma asignada al contribuyente, entrega el original del comprobante al cliente.

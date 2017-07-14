@@ -1,5 +1,5 @@
-CAPÍTULO TERCERO
-Depósitos
-Artículo 11.—Los depósitos los efectuará la Tesorera o Auxiliar de Tesorería y lo hará las veces que sean necesarios para mantener en las arcas lo menos posible, serán remesas parciales a la liquidación de la Caja. La persona que lleva el depósito al Banco, lo hará en compañía de un funcionario autorizado de esta institución. El depósito se hará en el Banco más cercano, el cual debe ser un Banco Estatal.
-A las quince horas con treinta minutos (3:30 p. m.), se cierra diariamente la Caja Recaudadora, el cual se verificarán todos ingresos generados por el Departamento de Cobranzas y Rentas, menos los depósitos efectuados como remesas parciales, más el efectivo que no sea el de Fondo de Caja será el ingreso del día, que viene a comprobarse con la suma de los reportes que se imprimen para tal efecto.
-La tesorera debe verificar si todos los recibos fueron cancelados.
+CAPÍTULO CUARTO
+Del Ingreso a la Caja Recaudadora
+Artículo 11.—A la Caja Recaudadoras ingresará dinero en efectivo, Tarjetas de Crédito, Débito y cheque por el monto completo que se adeuda a nombre de la Municipalidad de Turrialba, y que dicho cheque esté debidamente firmado. El Cajero deberá anotar al reverso del cheque la información relativa a la persona que realiza el pago, nombre, número telefónico. Además, se indicará que la cancelación queda sujeta a la existencia de fondos del documento de pago por medio de un sello. El cajero deberá revisar minuciosamente los cheques, y si fueran devueltos por el banco debido a la mala confección, falta de datos o insolvencia de la cuenta, el cajero deberá coadyuvar y será el responsable en la solución del caso.
+Leyenda del sello para los cheques. A todo recibo cancelado mediante cheque debe consignársele la leyenda” La validez del pago de este recibo por medio de cheque queda condicionado a que el mismo sea aceptado por el Banco respectivo”.
+Cuando el cheque presente alguna duda, se procederá a realizar la consulta con el Coordinador de Hacienda o con la Institución Bancaria, que está confeccionando el cheque para su autorización.

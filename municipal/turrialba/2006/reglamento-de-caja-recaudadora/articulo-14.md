@@ -1,1 +1,1 @@
-Artículo 14.—A todo recibo cancelado mediante cheque debe consignarse la leyenda "QUEDA SUJETO A QUE EL CHEQUE SEA PAGADO POR EL BANCO RESPECTIVO".
+Artículo 14.—Las cajas recaudadoras deberán mantenerse con Cámaras de Vigilancia que enfoquen claramente las transacciones que se realizan y los otros contribuyentes con el fin de velar tanto por la integridad del funcionario y del contribuyente.
