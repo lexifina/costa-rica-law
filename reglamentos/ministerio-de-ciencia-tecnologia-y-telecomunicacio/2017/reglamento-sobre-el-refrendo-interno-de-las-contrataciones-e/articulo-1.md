@@ -1,0 +1,17 @@
+CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES
+LA MINISTRA DE CIENCIA, TECNOLOGÍA
+Y TELECOMUNICACIONES
+En uso de las facultades que le confieren los artículos 25 inciso 2), 28 incisos 1) y 2) subinciso a) de la Ley N° 6227 “Ley General de la Administración Pública”, de 2 de mayo de 1978 y el artículos 2 del Decreto Ejecutivo N° 38830-H-MICITT, publicado en el Diario Oficial La Gaceta N° 19 del 28 de enero de 2015.
+Considerando:
+1º—Que mediante Reglamento R-DC-114-2016 “Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública”, del 16 de diciembre del 2016, publicado en el Diario Oficial La Gaceta N° 3, del 04 de enero de 2017, la Contraloría General de la República efectúo ajustes en la regulación de los contratos actualmente sometidos a refrendo, con el fin de que aquellas contrataciones que tengan por objeto la adquisición de bienes y servicios, puedan ser aprobadas a lo interno de la institución, por cuanto se tratan de contrataciones con menor grado de complejidad en su ejecución y por tratarse de objetos contractuales más delimitados.
+2º—Que el artículo 18 del Reglamento R-DC-114-2016, establece que es obligación de cada institución, emitir las disposiciones internas que correspondan, para regular el proceso de refrendo interno de las contrataciones, con el fin de maximizar el uso racional de los recursos, así como asegurar la transparencia de todas las acciones que se lleven a cabo para cumplir con dicha labor.
+3º—Que mediante Decreto Ejecutivo N° 38830-H-MICITT, se crea el Sistema Integrado de Compras Públicas “SICOP”, como plataforma tecnológica de uso obligatorio para toda la Administración Central, para la tramitación de los procedimientos de contratación administrativa y para los actos y contratos que se deriven de ellos.
+4º—Que la Dirección General de Administración de Bienes y Contratación Administrativa, del Ministerio de Hacienda, mediante Directriz DGABCA-NC-0006-2016 de fecha 30 de mayo de 2016, referente a “Elaboración de contratos en el Sistema Integrado de Compras Públicas (SICOP)” refuerza lo indicado en el considerando anterior, al establecer que las distintas proveedurías institucionales y encargados de elaborar los contratos, no deberán realizar formalizaciones por un medio distinto al previsto en el SICOP.
+5º—Que la Contraloría General de la República, mediante las disposiciones contenidas en Las Normas de Control Interno para el Sector Público Nº 2-2009-CO-DFOE, publicadas en el Diario Oficial La Gaceta Nº 26, del 6 de febrero de 2009, establece en los jerarcas y titulares subordinados, la necesidad de establecer las actividades de control que permitan obtener una seguridad razonable de que la actuación de la institución es conforme con las disposiciones jurídicas y técnicas vigentes. Por tanto,
+DECRETAN:
+REGLAMENTO SOBRE EL REFRENDO INTERNO DE LAS
+CONTRATACIONES EN EL MINISTERIO DE CIENCIA,
+TECNOLOGÍA Y TELECOMUNICACIONES
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Alcance del Reglamento. El presente reglamento regula la aprobación interna de las contrataciones que celebre el Ministerio de Ciencia, Tecnología y Telecomunicaciones (MICITT), con entes y órganos que integran la Administración Pública, empresas públicas, privadas, nacionales y extranjeras y que de conformidad con el artículo 17 del Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública, no están sujetas a refrendo contralor.

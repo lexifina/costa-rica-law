@@ -1,0 +1,4 @@
+CAPÍTULO III
+Del refrendo interno
+Artículo 8º—Estudio del refrendo interno. A más tardar el día hábil después de recibida la solicitud por parte de la Proveeduría Institucional, la jefatura de la Unidad de Asuntos Jurídicos designará a un profesional en derecho, para que efectúe el análisis jurídico tendiente a aprobar o devolver, sin aprobación, la contratación remitida.
+Para los efectos de verificación de requisitos, la Unidad de Asuntos Jurídicos se limitará a lo establecido en el artículo 8 del Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública, en el entendido de que los demás aspectos no verificados, corren bajo la responsabilidad exclusiva de la unidad, departamento o dirección del MICITT, encargada de la tramitación del procedimiento y de fiscalización del contrato en fase de ejecución.

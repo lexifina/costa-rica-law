@@ -1,0 +1,4 @@
+Artículo 2º—Definiciones. Para los efectos del presente reglamento se entenderá por:
+1) Refrendo Interno: también llamado aprobación interna. Acto mediante el cual la Unidad de Asuntos Jurídicos del MICITT, previa verificación del cumplimiento de todos los requisitos legales establecidos en el artículo 8 del Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública, otorga la aprobación de las contrataciones, confiriéndoles eficacia jurídica.
+2) Expediente Administrativo: archivo digital mediante el cual se recopilan todos los documentos que durante el proceso de contratación se elaboran; se encuentra incorporado en el Sistema Integrado de Compras Pública.
+3) SICOP: Sistema Integrado de Compras Públicas. Es un modelo de proveeduría virtual, basado en las mejores prácticas internacionales que hará más eficientes los procesos de compra y contratación con las instituciones públicas del Estado Costarricense.

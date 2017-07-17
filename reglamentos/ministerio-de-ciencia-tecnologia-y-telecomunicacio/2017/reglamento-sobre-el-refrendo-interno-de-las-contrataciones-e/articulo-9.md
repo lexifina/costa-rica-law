@@ -1,0 +1,4 @@
+Artículo 9º—Plazo para realizar el estudio y refrendo interno. La Unidad de Asuntos Jurídicos deberá resolver la solicitud de refrendo interno en un plazo máximo de diez días hábiles, mismo que empezará a correr a partir del día siguiente al recibido de la solicitud por parte de la Proveeduría Institucional y de conformidad con lo dispuesto en el artículo 198 del Reglamento de la Ley de Contratación Administrativa.
+Durante el trámite de aprobación, la Unidad de Asuntos Jurídicos podrá requerir información adicional o realizar prevenciones, suspendiendo con ello el plazo de la aprobación final.
+De no atenderse la solicitud en el tiempo consignado al efecto, la Unidad de Asuntos Jurídicos rechazará la solicitud de refrendo interno.
+Aplican igualmente las reglas establecidas sobre plazos, suspensiones e interrupciones conferidas en el artículo 13 del Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública.

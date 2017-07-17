@@ -1,0 +1,1 @@
+Artículo 11.—Revisión de las contrataciones en caso que no proceda refrendo interno y refrendo contralor. La actividad contractual, no sujeta a refrendo contralor ni a refrendo interno por parte de la Unidad de Asuntos Jurídicos, estará sujeta a revisión interna a cargo de la Proveeduría Institucional.
