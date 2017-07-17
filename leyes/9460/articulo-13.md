@@ -1,0 +1,1 @@
+ARTÍCULO 13.- Derogación del inciso p) del artículo 146 de la Ley N.° 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, de 4 de octubre de 2012. Se deroga el inciso p) del artículo 146 de la Ley N.° 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, de 4 de octubre de 2012.
