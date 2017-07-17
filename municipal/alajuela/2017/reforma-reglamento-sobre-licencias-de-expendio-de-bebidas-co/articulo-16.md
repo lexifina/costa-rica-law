@@ -1,0 +1,3 @@
+ARTÍCULO 16. Incorpórese un nuevo artículo con el número 25 para que se lea de la siguiente forma:
+Artículo 25. Personas Físicas o Jurídicas que estén iniciando en la comercialización de bebidas con contenido alcohólico y no han declarado en el último período fiscal.
+Todos los negocios que se estén iniciando en la comercialización de bebidas con contenido alcohólico y todavía no hayan declarado en el último período fiscal, pagarán los patentados el monto establecido en la categoría correspondiente y el rubro establecido en la subcategoría 1, establecida en la reforma del artículo 10 de la ley Nº 9047, Ley para la Regulación y Comercialización de Bebidas con Contenido Alcohólico.

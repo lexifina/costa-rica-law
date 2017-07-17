@@ -1,0 +1,3 @@
+ARTÍCULO 3. Refórmese el artículo 6 para que se lea:
+Artículo 6. Obligación de contar con el Certificado de la Licencia. Todos los establecimientos que comercializan bebidas alcohólicas deben tener en un lugar visible, para las autoridades municipales y de policía, el Certificado de la Licencia extendida por la municipalidad, el cual será entregado una vez que se verifique que el interesado cuenta con la resolución de autorización y está al día en el pago del impuesto por la Licencia y demás tributos municipales. En caso de extravío de este documento, se debe informar a la dependencia encargada de tramitar y aprobar las licencias en la municipalidad justificando la pérdida mediante una declaración jurada ante notario público para proceder a su
+reposición.

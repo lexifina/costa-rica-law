@@ -1,0 +1,3 @@
+ARTÍCULO 15. Incorpórese un nuevo artículo con el número 24 para que se lea de la siguiente forma:
+Artículo 24. Personas Físicas o Jurídicas, inscritas en el Régimen de Tributación Simplificada.
+Para todas las personas físicas o jurídicas que cuenten con licencias de expendio de bebidas con contenido alcohólico y que además se encuentren inscritas bajo el Régimen de Tributación Simplificada, para efectos del cobro del impuesto, se calculará el valor de las ventas anuales netas considerando el total de compras anuales del último período fiscal, a ese monto se le adicionará un 50% del total de compras anuales reportadas.

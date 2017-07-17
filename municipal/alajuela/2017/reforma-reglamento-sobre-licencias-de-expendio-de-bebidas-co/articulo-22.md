@@ -1,0 +1,2 @@
+ARTÍCULO 22. Refórmese el artículo 23 (o sea el 31 de acuerdo con la nueva numeración), de tal manera se lea:
+Artículo 31. Pago de derechos. Los interesados deberán cancelar de forma anticipada a la autorización del evento, en las cajas municipales medio salario base. Por ende, en caso de autorizarse la licencia temporal, cuando proceda, se prevendrá por una única vez al solicitante de realizar el pago de los derechos de dicha licencia, como condición para la emisión y entrega de la resolución final correspondiente.

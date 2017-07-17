@@ -1,0 +1,1 @@
+ARTÍCULO 32. Elimínese el Capítulo VI de “Disposiciones Transitorias” (Transitorio I y II) relacionados con la categorización, traspasos, explotaciones de las patentes de licores adquiridas mediante Ley Nº 10 y patentes inactivas por carecer de interés actual.

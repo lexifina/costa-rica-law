@@ -1,0 +1,2 @@
+ARTÍCULO 4. Refórmese el artículo 9 para que se lea:
+Artículo 9. Declaración Jurada de Personas Jurídicas. Las personas jurídicas a las cuales se les ha otorgado la Licencia de Expendio de bebidas con contenido alcohólico, deben presentar cada dos años, en el mes de octubre: una declaración jurada ante notario público de la composición del capital social con no más de un mes de emitida, certificación de la Personería jurídica y copia de la cédula de identidad del representante legal.

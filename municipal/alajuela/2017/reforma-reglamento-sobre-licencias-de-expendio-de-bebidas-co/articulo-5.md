@@ -1,0 +1,3 @@
+ARTÍCULO 5. Refórmese el artículo 12 para que se lea:
+Artículo 12. Limitación cuantitativa. La cantidad total de Licencias clase A y clase B otorgadas en cada distrito del Cantón no podrá exceder la cantidad de una por cada trescientos habitantes, parámetro que debe aplicarse en forma separada para la clase A y para la clase B.
+En la determinación del total de habitantes de cada distrito del Cantón, se acudirá al estudio técnico del INEC o fuente objetiva verificable que tenga disponible la Municipalidad. Periódicamente, conforme se constaten incrementos o disminuciones en el parámetro de habitantes distritales, podrá ajustarse la cantidad de licencias clase A y clase B en el distrito correspondiente a dicha constatación.

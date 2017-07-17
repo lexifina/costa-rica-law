@@ -1,0 +1,2 @@
+ARTÍCULO 11. Incorpórese un nuevo artículo con el número 19 para que se lea de la siguiente forma:
+Artículo 19. Medición de distancias para licencias clases A, B y C. Para la medición de las distancias establecidas en el artículo 9 inciso a) y b) de la ley, se tomará como punto de referencia del centro de la puerta principal del local comercial al centro de la puerta principal de los entes a los que se refiere el artículo 9 inciso a) y b) de la ley.

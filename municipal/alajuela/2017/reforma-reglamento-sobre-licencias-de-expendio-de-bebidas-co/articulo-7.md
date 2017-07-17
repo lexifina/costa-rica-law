@@ -1,0 +1,2 @@
+ARTÍCULO 7: Incorpórese un nuevo artículo, con el número 14, para que se lea de la siguiente forma:
+Artículo 14. Actividades concurrentes y coincidentes. La realización de actividades comerciales reguladas en el artículo 4 de la ley en forma concurrente o coincidente, requerirán la gestión y otorgamiento de una licencia por cada categoría, siempre y cuando las actividades sean administradas por el mismo titular de las Licencias. En caso que se realicen actividades administradas por un tercero, éste deberá de solicitar una nueva licencia. Cumpliendo con todos los requisitos.
