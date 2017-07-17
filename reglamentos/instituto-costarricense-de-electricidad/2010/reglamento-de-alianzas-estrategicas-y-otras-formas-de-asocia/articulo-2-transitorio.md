@@ -1,1 +1,0 @@
-Transitorio II.—En el plazo máximo de quince días hábiles posteriores a la promulgación del presente Reglamento, las Gerencias deberán informar a la Gerencia General cuáles alianzas estratégicas, asociaciones o colaboraciones empresariales que se encuentran en trámite, cuentan con un caso de negocio, para que sean tramitadas conforme al Transitorio I.

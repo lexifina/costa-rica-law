@@ -1,3 +1,0 @@
-Artículo 14.—Tipos de acuerdos. Para efectos de formalizar la relación con el aliado o socio estratégico, se podrán elaborar los siguientes acuerdos:
-a. Acuerdo General: Corresponde al acuerdo con el aliado o socio estratégico, donde se detallan las condiciones contractuales que se aplicarán para la atención de cualquier servicio a los diferentes clientes.
-b. Acuerdo Específico de Servicios: Es el acuerdo con el aliado o socio estratégico, mediante el cual se indican las condiciones particulares para cada caso. En el mismo se indicará el detalle de las aportaciones de cada uno de los integrantes de la relación y la valoración de esos aportes para la correspondiente distribución de los beneficios económicos proporcionales.

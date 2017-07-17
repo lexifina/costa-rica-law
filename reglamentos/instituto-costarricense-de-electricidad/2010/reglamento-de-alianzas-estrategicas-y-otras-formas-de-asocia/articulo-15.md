@@ -1,1 +1,0 @@
-Artículo 15.—Propiedad Intelectual. Los acuerdos de asociación empresarial o de colaboración, deberán determinar con claridad los derechos de propiedad intelectual de las partes sobre los productos que se creen o produzcan, como resultado de la misma.
