@@ -1,1 +1,2 @@
-Artículo 23.—De la inapelabilidad de los fallos. Por la naturaleza de las deliberaciones y determinaciones de los distintos jurados que seleccionan a los Premios Nacional de Cultura, sus fallos son inapelables.
+Artículo 23.—Declaratoria de desierto. Los Premios Nacionales de Cultura, en cualquiera de sus modalidades y expresiones, podrán declararse desiertos, cuando a juicio del respectivo Jurado Calificador no haya candidatos idóneos para su reconocimiento. La resolución que así lo declare, deberá cumplir con las mismas formalidades establecidas para el fallo que otorga a alguno de los postulados.
+(Así reformado por el artículo 15 del decreto ejecutivo N° 40603 del 17 de julio de 2017)

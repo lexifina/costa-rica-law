@@ -37,12 +37,13 @@ c.5.2. Dirección: considera la interpretación de la dramaturgia y la resoluci�
 c.5.3. Diseño: entendido como diseño de iluminación, de vestuario o de escenografía.
 d. Premio Nacional de Literatura Aquileo J. Echeverría; administrado por el Colegio de Costa Rica.
 Este premio tiene como fin, el reconocimiento de las obras literarias que hayan destacado durante el año inmediato anterior, de entre sus homólogas, e impliquen un decidido nivel de aporte al fortalecimiento del entorno cultural costarricense. Serán objeto de reconocimiento para este premio, las siguientes cinco categorías:
-c.6.1. Novela.
-c.6.2. Cuento.
-c.6.3. Poesía.
-c.6.4. Ensayo.
-c.6.5. Dramaturgia.
-Tomando en cuenta el premio en dramaturgia, al menos uno de los representantes de las universidades públicas, deberá ser un profesional con trayectoria en el campo de las artes dramáticas.
+d.1. Novela.
+d.2. Cuento.
+d.3. Poesía.
+d.4. Ensayo.
+d.5. Dramaturgia.
+Tomando en cuenta el premio en dramaturgia, al menos uno de los representantes de las universidades públicas, deberá ser un profesional con trayectoria en el campo de las artes dramáticas.”
+(Así reformado el inciso d) anterior por el artículo 3° del decreto ejecutivo N° 40603 del 17 de julio de 2017)
 e. Premio Nacional de Investigación Cultural Luis Ferrero Acosta; administrado por la Dirección de Cultura.
 Constituirá un reconocimiento, sin discriminación de formatos, géneros ni estilos. Su abordaje puede ser desde cualquiera de las ramas de las ciencias sociales, contenida en libros y documentos o formatos no tradicionales debidamente publicados, que haya destacado de entre sus homólogas, en el área correspondiente durante el año inmediato anterior, e implique un decidido nivel de aporte al fortalecimiento del entorno cultural costarricense.
 f. Premio de Gestión y Promoción Cultural; administrado por la Dirección de Cultura.

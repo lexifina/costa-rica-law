@@ -1,1 +1,4 @@
-Artículo 20.—Elección del representante. La elección de los representantes de las asociaciones culturales, para integrar los jurados de los Premios Nacionales de Cultura se hará por mayoría simple (mitad más uno de los miembros presentes).
+Artículo 20.—Sustitución de representantes de las Asociaciones Culturales en los Jurados Calificadores. Cuando se presente la renuncia, abandono del cargo o muerte del miembro propietario, la Unidad Administradora convocará al miembro suplente, para que asuma de forma permanente el rol de Jurado Calificador.
+De esta circunstancia deberá quedar constancia escrita en el expediente levantado por la Unidad Administradora para el Premio Nacional de Cultura bajo su encargo.
+Para efectos del este artículo, se considerará abandono del cargo, cuando el miembro propietario escogido no se presente a su Juramentación por parte del Ministro de Cultura y Juventud y/o no responda las convocatorias del Jurado Calificador o de la Unidad Administradora, o no atienda sus funciones, valorando las propuestas postuladas.
+(Así reformado por el artículo 12 del decreto ejecutivo N° 40603 del 17 de julio de 2017)

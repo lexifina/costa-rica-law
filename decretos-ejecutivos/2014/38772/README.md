@@ -14,3 +14,4 @@ Reglamento a la Ley N° 9211 Ley sobre Premios Nacionales de Cultura
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-01 | la propia norma |
+| 2 | 2017-07-17 | Decreto Ejecutivo 40603 (2017-07-17) |
