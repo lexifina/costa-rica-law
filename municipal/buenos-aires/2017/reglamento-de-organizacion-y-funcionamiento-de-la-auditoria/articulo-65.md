@@ -1,0 +1,1 @@
+Artículo 65°. Rechazo de la gestión de apertura. El incumplimiento de uno o más requisitos detallados en el artículo 63º del presente reglamento, podrá dar lugar, previa valoración de cada caso por parte de la Auditoría Interna, al rechazo de plano de la gestión.

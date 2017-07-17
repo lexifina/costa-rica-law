@@ -1,0 +1,1 @@
+Artículo 27°. Sobre la asignación de funciones. El Auditor Interno, debe considerar la característica de idoneidad del personal a efecto de asignar funciones, delegar autoridad, exigir responsabilidad, conforme la Ley General de la Administración Pública.
