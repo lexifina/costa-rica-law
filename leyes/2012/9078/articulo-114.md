@@ -2,7 +2,8 @@ ARTÍCULO 114.- Conductores de vehículos de carga
 Los conductores de vehículos de carga liviana y carga pesada deberán acatar las siguientes disposiciones:
 a) La carga debe estar bien sujeta y acondicionada.
 b) La carga no debe obstruir la visibilidad del conductor ni dificultar la conducción del vehículo.
-c) La carga debe transportarse de forma que no provoque inconvenientes por desprendimiento o que dificulte el tránsito de otros vehículos.
+c) La carga debe transportarse de forma que no provoque inconvenientes por desprendimiento o que dificulte el tránsito de otros vehículos. Los conductores de carga liviana o pesada que transporten por vías nacionales o municipales piedras, arena, lastre derivados de tajos y restos de obras en construcción estarán obligados a cubrir la carga con un dispositivo adecuado para evitar desprendimiento de material.
+(Así reformado el inciso anterior por el artículo 12° de la ley N° 9460 del 20 de junio de 2017)
 d) La carga no debe ocultar las luces del vehículo ni el número de la placa.
 e) Todos los accesorios, que sirvan para acondicionar o proteger la carga, deben reunir las condiciones de seguridad reglamentarias.
 f) Cualquier carga que sobresalga de la parte trasera, delantera o lateral del vehículo, debe estar señalada con banderas rojas y con dispositivos proyectores de luz durante la noche. La carga no debe hacer contacto con la vía.

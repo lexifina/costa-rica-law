@@ -139,3 +139,5 @@ Para la interpretación de esta ley y de su reglamento, tienen el carácter de d
 136. Visera: franja superior que se coloca en el parabrisas de un vehículo en que presenta un oscurecimiento mayor al del resto de este.
 137. Zona de paso: zona de una vía pública demarcada para el cruce de peatones.
 138. Zona de seguridad: zona de paso regulada por semáforos que, de forma alterna, permite el paso de peatones y vehículos.
+139. Zona de carga y descarga: espacio de una vía pública destinado exclusivamente a la carga y la descarga de mercancías de vehículos de motor, remolques y semirremolques.
+(Así adicionado el inciso anterior por el artículo 2° de la ley N° 9460 del 20 de junio de 2017)
