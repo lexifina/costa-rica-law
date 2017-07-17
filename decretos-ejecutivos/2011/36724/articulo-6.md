@@ -1,1 +1,0 @@
-Artículo 6°—Captura de la imagen: Las imágenes capturadas por los equipos de registro y detección de infracciones a la Ley de Tránsito vigente, deberán ser capturadas por equipos que cumplan con los requerimientos técnicos establecidos por la Ley de Tránsito vigente y el presente Reglamento.

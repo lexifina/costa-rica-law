@@ -1,1 +1,0 @@
-Artículo 4°—Operador del sistema: La Dirección General de Tránsito será el operador de los equipos de registro y detección de infracciones por medio de imágenes, quien asimismo podrá asignar a otra entidad la instalación de los equipos y la transmisión de forma segura de las imágenes capturadas.

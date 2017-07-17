@@ -1,1 +1,0 @@
-Artículo 13.—Registro de multas: Una vez que la multa se encuentre en firme, la autoridad de tránsito correspondiente procederá a solicitar la anotación de la misma en el asiento del propietario registral del vehículo infractor.

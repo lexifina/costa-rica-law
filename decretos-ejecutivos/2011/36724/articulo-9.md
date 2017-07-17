@@ -1,1 +1,0 @@
-Artículo 9°—Ubicación: La autoridad de tránsito competente debe determinar la ubicación, señalización, instalación y funcionamiento de los equipos de registro y detección de infracciones a la Ley de Tránsito vigente por medio de imágenes de acuerdo a lo establecido por la Ley de Tránsito vigente y regulaciones de tránsito aplicables.

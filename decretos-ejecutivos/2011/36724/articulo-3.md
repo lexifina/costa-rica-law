@@ -1,1 +1,0 @@
-Artículo 3°—Registro y detección: Para el registro y detección de las infracciones a la Ley de Tránsito vigente acreditadas por las imágenes capturadas por los equipos de registro y detección de infracciones no será necesaria la presencia física de las autoridades de tránsito al momento de la infracción en el lugar donde ocurre el hecho.

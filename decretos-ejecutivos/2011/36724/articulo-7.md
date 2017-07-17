@@ -1,1 +1,0 @@
-Artículo 7°—Seguridad y confidencialidad: Desde el momento de su captura, las imágenes producidas por los equipos de registro y detección que sirvan para la acreditación de una infracción, tendrán incorporadas las medidas de seguridad necesarias para que únicamente las autoridades de tránsito correspondiente tengan acceso a ellas y procedan a la generación de la infracción.

@@ -1,1 +1,0 @@
-Artículo 8°—Privacidad: Las imágenes capturadas por los equipos de registro y detección de infracciones a la Ley de Tránsito vigente por medio de imágenes deberán ser captadas en respeto a la privacidad de los ocupantes del vehículo objeto de medición. Por lo tanto, deberá registrarse únicamente la información necesaria para acreditar la existencia de la infracción.
