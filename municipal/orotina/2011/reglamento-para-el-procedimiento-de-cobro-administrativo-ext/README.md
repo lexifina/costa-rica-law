@@ -14,3 +14,4 @@ Reglamento para el Procedimiento de Cobro Administrativo Extrajudicial y Judicia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-10-28 | la propia norma |
+| 2 | 2017-07-17 | Reglamento municipal 991 (2017-07-17) |

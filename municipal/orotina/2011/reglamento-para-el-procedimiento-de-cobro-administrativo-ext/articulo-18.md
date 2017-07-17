@@ -1,4 +1,5 @@
-Artículo 18.—Condiciones para otorgar arreglos de pago. El arreglo de pago se otorgará por parte de la sección de cobros, para lo cual esta valorará las siguientes condiciones del sujeto pasivo:
-a) Capacidad económica: la persona sujeta pasiva debe demostrar a la sección de cobros que su situación económica le impide pagar de forma inmediata las obligaciones vencidas. EL DEPTO. DE LA SECCIÓN DE COBROS TENDRÁ QUE IMPLEMENTAR UN PROCEDIMIENTO CONJUNTO CON EL DEPTO. DE ASISTENCIA SOCIAL PARA DETERMINAR LA CAPACIDAD ECONÓMICA DEL CLIENTE. EN LOS CASOS EN LOS CUALES SE VARÍE EL 1% DEL APORTE INICIAL.
-b) Monto adeudado: de proceder el arreglo de pago, ambas partes pactarán el monto a pagar mensual o quincenalmente, y el plazo para la cancelación total de la obligación vencida no podrá exceder de seis meses.
-c) Cuota inicial: para formalizar el arreglo de pago se deberá hacer un aporte inicial del 30% de la deuda total, en casos calificados previo análisis de la jefatura de la Sección de Cobros, podrá variarse ese porcentaje.
+Artículo 18.—Condiciones para otorgar arreglos de pago. El arreglo de pago se otorgará bajo las siguientes condiciones del sujeto pasivo:
+a) Debe demostrar que su situación económica le impide pagar de forma inmediata las obligaciones vencidas.
+b) El plazo para la cancelación total de la obligación vencida no podrá exceder de doce meses.
+c) Se deberá hacer un aporte inicial del 20% de la deuda total.
+(Así reformado en sesión N° 991 del 17 de julio de 2017)
