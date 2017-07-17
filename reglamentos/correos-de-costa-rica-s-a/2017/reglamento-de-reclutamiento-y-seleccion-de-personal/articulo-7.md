@@ -1,0 +1,13 @@
+Artículo 7: Sobre la promoción interna y ascensos directo.
+Promoción Interna:
+Todos las y los colaboradores de Correos de Costa Rica, tendrán la posibilidad de participar en procesos de promoción interna.
+Las jefaturas, conforme a las necesidades y posibilidades de la Empresa, fomentarán la promoción interna del personal, a efecto de propiciar la superación, desarrollo personal y carrera profesional de los colaboradores. Por lo tanto, deberán colaborar y promover la participación de su personal en concursos públicos o ascensos directos.
+Las y los colaboradores de Correos de Costa Rica que deseen participar en un concurso público de forma voluntaria y consensuada para un puesto de trabajo dentro de la empresa deberán cumplir con lo indicado en el artículo 4 del presente Reglamento, participar en un concurso público, someterse al proceso de valoración dispuesto en el artículo 5 del presente Reglamento y aceptar las condiciones del puesto en todos sus extremos.
+Ascenso Directo:
+Las jefaturas de Correos de Costa Rica tendrán la facultad para promover a través de un ascenso directo con visto bueno de la Gerencia de Área respectiva, a una o un colaborador de su equipo de trabajo a un puesto superior dentro de su misma área.
+En este caso la jefatura respectiva emitirá un oficio, debidamente firmado por la Gerencia de Área, solicitando tal requerimiento a la Gerencia de Recursos Humanos, en donde se especifique claramente los motivos de su decisión los cuales estarán basados en función al análisis integral de requisitos, prevaleciendo el conocimiento que tiene del área y del puesto, desempeño laboral, actitudes y aptitudes para el puesto.
+La Gerencia de Recursos Humanos verificará que se cumpla con los requisitos del puesto y dará respuesta a la solicitud realizada.
+Indistintamente de la forma en que se promueva una o un colaborador a un puesto superior, deberá cumplir con los requisitos establecidos para el nuevo puesto y deberá contar con la valoración por parte de la Gerencia de Recursos Humanos.
+El período de prueba tanto para un nombramiento por promoción interna como para un ascenso directo, será de 60 días naturales de acuerdo al artículo 61 de la Convención Colectiva.
+Si durante el periodo de prueba la o el colaborador no cumple satisfactoriamente el desempeño en el puesto que fue promovido, deberá devolverse al puesto anterior; o bien cuando la misma persona considere que el ascenso o traslado no llena sus expectativas o surge otra causa que a su criterio afecta gravemente sus intereses.
+Durante el período de prueba no se otorgará permiso sin goce de salario, por cuanto interrumpe el proceso de capacitación, adaptación y valoración de su desempeño en el nuevo puesto.

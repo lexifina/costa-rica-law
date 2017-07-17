@@ -1,0 +1,3 @@
+Artículo 11: Contratación por tiempo definido
+Se podrá contratar personal por tiempo definido o por obra determinada de acuerdo a la naturaleza de la actividad; no pudiendo nombrarse personal a plazo fijo para realizar labores permanentes de la Empresa, salvo cuando se trate de permisos, vacaciones, incapacidades o mientras se tramita el concurso correspondiente.
+La Gerencia de Recursos Humanos emitirá una alerta 22 días naturales antes al vencimiento del plazo, para rescindir del contrato laboral en el término fijado o bien, ampliar el plazo de contratación, lo cual no deberá exceder a un plazo máximo de un año.
