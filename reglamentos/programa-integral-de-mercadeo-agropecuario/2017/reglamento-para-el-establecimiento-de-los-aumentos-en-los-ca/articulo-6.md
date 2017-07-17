@@ -1,0 +1,2 @@
+ARTÍCULO 6: Facultad discrecional: Si una vez calculados los cánones para los servicios del PIMA con base en las fórmulas expuestas en los artículos anteriores, el Consejo Directivo mediante acto discrecional y debidamente motivado, bajo criterios de oportunidad y razonabilidad y por fines públicos, podrá eventualmente establecer un aumento menor al que expresa la fórmula, de acuerdo a la necesidad propia del momento.
+Rige a partir de su publicación.
