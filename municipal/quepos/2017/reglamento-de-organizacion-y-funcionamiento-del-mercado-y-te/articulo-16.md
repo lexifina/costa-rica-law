@@ -1,0 +1,6 @@
+Artículo 16° - Transmisibilidad por Cesiones de Derechos:
+a) Podrán también ser personas arrendatarias de derechos de uso en precario de locales comerciales en estos inmuebles los familiares hasta tercer grado de consanguinidad que hayan obtenido del titular una cesión de estos derechos.
+b) Para la validez plena de estas cesiones, necesitarán la autorización expresa y previa del Concejo Municipal, sin cuya autorización esos contratos carecerán de valor y no serán oponibles ni reconocidos por la institución municipal ni contra terceros.
+c) En caso de autorización por parte del Concejo Municipal el contrato, que la Municipalidad tuviere con el anterior arrendatario, deberá ser rescindido de pleno derecho por la Municipalidad y deberá generarse uno nuevo con el nuevo titular del derecho autorizado.
+d) En caso de no autorización de la cesión correspondiente por parte del Concejo Municipal, la Municipalidad podrá rescindir el contrato original con el titular sin responsabilidad de ningún tipo al efecto, con solo comunicarlo así a los interesados previa demostración de la falta de aprobación a que hace referencia este artículo.
+e) El derecho del titular anterior quedará a disposición de la Municipalidad para ser adjudicado en remate público conforme a los procedimientos de contratación administrativa.
