@@ -20,3 +20,4 @@ Reglamento General de Crédito
 | 5 | 2011-01-26 | Reglamento 0 (2011-01-26) |
 | 6 | 2011-09-09 | Reglamento 13 (2011-09-09) |
 | 7 | 2014-03-31 | Reglamento 2 (2014-03-31) |
+| 8 | 2017-07-17 | Reglamento 10 (2017-07-17) |

@@ -1,0 +1,2 @@
+Artículo 4 bis.—Financiamiento para Capital de Trabajo. Para los efectos del presente Reglamento se entenderá como capital de trabajo la cantidad de dinero que un organismo cooperativo requiere a corto plazo, para el giro normal de su negocio, tales como, pero no limitados a: recursos para cubrir insumos, materia prima, pago de mano de obra, compra de activos fijos, pago de gastos de operación y cualquier otra actividad relacionada con el desarrollo de su principal actividad, accesoria y afines.
+(Así adicionado en sesión N° 10 del 17 de julio de 2017)
