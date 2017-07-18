@@ -15,3 +15,4 @@ Reglamento Aplicación Beneficio Dedicación Exclusiva
 | --- | --- | --- |
 | 1 | 2000-01-12 | la propia norma |
 | 2 | 2000-01-12 | SINALEVI (sin norma nombrada) |
+| 3 | 2017-07-18 | Reglamento municipal 64 (2017-07-18) |
