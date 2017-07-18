@@ -14,3 +14,4 @@ Reglamento para la rendición de cauciones en BN Sociedad Corredora de Seguros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-04-29 | la propia norma |
+| 2 | 2017-07-18 | Reglamento 171 (2017-07-18) |
