@@ -1,0 +1,1 @@
+Artículo 2. Participación de los Sectores. La Estrategia es una iniciativa de Estado, que incorpora un proceso participativo que recoge el aporte de todos los sectores involucrados, mediante un proceso de socialización, participación y consulta.

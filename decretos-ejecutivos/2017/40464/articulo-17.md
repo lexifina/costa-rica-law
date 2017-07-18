@@ -1,0 +1,1 @@
+Artículo 17. De otros convenios y arreglos institucionales. Cuando la ejecución de la Estrategia REDD+ requiera la realización de acciones y colaboración de otras instituciones del Estado, la Secretaría deberá procurar establecer un convenio de colaboración específico para tal fin, con el aval del Consejo Directivo.

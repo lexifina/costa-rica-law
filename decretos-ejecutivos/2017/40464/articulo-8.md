@@ -1,0 +1,1 @@
+Artículo 8. Del deber de colaboración de los órganos del MINAE. Todos los órganos del Ministerio de Ambiente y Energía deberán colaborar según sus competencias y funciones en el cumplimiento del Programa de Bosques y Desarrollo Rural y la Estrategia REDD+, para su cumplimiento podrán destinar recursos humanos y presupuestarios en su cometido.

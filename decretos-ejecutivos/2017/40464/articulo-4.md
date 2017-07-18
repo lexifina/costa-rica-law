@@ -1,0 +1,1 @@
+Artículo 4. Principio de Financiamiento de la Estrategia. La Estrategia deberá como un principio esencial estar financiada con recursos que generen su desarrollo mediante instrumentos de mercado o enfoques de no mercado, por medio de personas, empresas, o entidades públicas o privadas, nacionales o internacionales.

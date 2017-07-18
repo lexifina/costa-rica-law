@@ -1,0 +1,1 @@
+Artículo 16. De los precios de venta de las Reducciones de Emisiones y acciones de mitigación. Los precios de las reducciones de emisiones y las acciones de mitigación de gases de efecto invernadero, al menos deberán cubrir todos los costos de producción, contabilización, medición, supervisión, monitoreo, comercialización, durante todo el plazo de los compromisos.

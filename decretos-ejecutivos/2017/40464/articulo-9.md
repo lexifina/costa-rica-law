@@ -1,0 +1,1 @@
+Artículo 9. Colaboración del Instituto Meteorológico de Costa Rica y la Dirección de Cambio Climático. El Instituto Meteorológico de Costa Rica y La Dirección de Cambio Climático, coadyuvara a todo el proceso de ejecución de la Estrategia REDD+, para tal fin brindarán asesoría y colaboración en los procesos en los cuales la Secretaría establecida en este Decreto lo solicite.
