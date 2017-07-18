@@ -16,3 +16,4 @@ Reglamento General de Servicio de Restaurante
 | 1 | 2006-07-24 | la propia norma |
 | 2 | 2009-10-22 | Reglamento 41 (2009-10-22) |
 | 3 | 2016-02-25 | Reglamento 8 (2016-02-25) |
+| 4 | 2017-07-18 | Reglamento 0 (2017-07-18) |
