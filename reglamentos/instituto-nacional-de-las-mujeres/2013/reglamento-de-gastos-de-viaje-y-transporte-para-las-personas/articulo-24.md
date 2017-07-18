@@ -1,9 +1,0 @@
-Artículo 24.—Horario para el reconocimiento de viáticos. Cuando el viaje inicie con la utilización de transporte aéreo, se reconocerán los siguientes gastos:
-a) Desayuno, cuando la hora de llegada al destino es a las 09:00 horas o antes.
-b) Almuerzo, cuando la hora de llegada al destino es a las 15:00 horas o antes.
-c) Cena: Cuando la hora de llegada al destino es a las 21:00 horas o antes.
-d) Hospedaje: Cuando la hora de ingreso al hotel ocurra entre las 00:00 y las 06:00 horas, para el reconocimiento de la tarifa pagada, la persona funcionaria deberá presentar la correspondiente factura.
-e) Cuando por motivo de itinerario, la persona funcionaria tenga que permanecer en tránsito por más de cuatro horas, se reconocerán las tarifas establecidas en los incisos a), b) y c) de este artículo. Si fuese necesario hospedarse, se reconocerá el gasto contra la presentación de la respectiva factura.
-f) Los gastos por concepto de alimentación durante el trayecto hacia el país de destino, que no correspondan a gastos en tránsito, serán reconocidos contra presentación de la factura correspondiente, hasta un máximo de la tarifa establecida para el país en el que se realice el gasto. En ningún caso se reconocerán los servicios de alimentación, cuando las líneas aéreas los suministren gratuitamente, durante el respectivo trayecto.
-Para los viajes que inicien utilizando transporte terrestre, los servicios de alimentación y hospedaje dentro del territorio costarricense, se reconocerán de conformidad con lo establecido en el artículo 12 de este reglamento. A partir de la hora de salida de Costa Rica o de cualquier otro país por vía terrestre, se aplicarán las disposiciones establecidas en los incisos a), b), c) y d) de este artículo.
-Los horarios establecidos en los incisos a), b) y c) de este artículo, serán de aplicación para el reconocimiento de gastos en que incurra la persona funcionaria, de regreso al país.

@@ -1,2 +1,0 @@
-Artículo 29.—Póliza de seguro de viajeros. El INAMU cuenta con una póliza colectiva para cubrir los gastos que se generen en casos de lesiones, enfermedad o muerte de las personas funcionarias que viajan al exterior en el cumplimiento de sus labores, incluyendo, en el caso de fallecimiento, los gastos derivados del traslado del cuerpo a Costa Rica.
-Para la inclusión en esta póliza, la persona funcionaria que viaja deberá llenar el formulario que le entregará el Área de Recursos Humanos, contra la presentación del acuerdo de viaje, al menos tres días antes de viajar.

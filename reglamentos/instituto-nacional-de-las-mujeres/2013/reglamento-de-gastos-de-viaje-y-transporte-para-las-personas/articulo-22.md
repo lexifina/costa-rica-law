@@ -1,2 +1,0 @@
-Artículo 22.—Reconocimiento de gastos de traslado. Sin necesidad de que se incluyan en el acuerdo viaje, se reconocerán los gastos de traslado desde el domicilio de la persona funcionaria hasta la terminal de transporte y viceversa; desde la terminal de transporte de la ciudad de destino del viaje hasta el hotel o sitio de hospedaje y viceversa y los gastos de transporte entre ciudades.
-Para estos efectos, se entenderá que la ciudad de destino es la localidad donde se llevará a cabo la actividad que origina el viaje.

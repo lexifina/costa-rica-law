@@ -1,8 +1,0 @@
-Artículo 35.—Obligaciones de las personas funcionarias. Las personas funcionarias que reciben viáticos deben cumplir con las siguientes obligaciones:
-a) Verificar que exista contenido presupuestario.
-b) Indicar en los formularios de adelanto y liquidación de viáticos la subpartida presupuestaria correspondiente.
-c) Previo a realizar un reintegro, verificar que se le haya transferido la suma solicitada mediante el formulario de adelanto de viáticos.
-d) En caso de realizar los reintegros con dinero efectivo, ante la Tesorería institucional, indicar a la persona funcionaria que recibe el reintegro, nombre y apellidos de la persona funcionaria a quien se le hizo el adelanto, así como el número de formulario de adelanto de viáticos correspondiente. En caso de reintegros realizados por medio de transferencia electrónica a la cuenta bancaria del INAMU, dicha información debe indicarse en el espacio de “concepto” y se debe remitir una copia del comprobante de la transferencia a la Unidad de Tesorería.
-e) En el momento de llenar los formularios de adelanto y liquidación de viáticos, verificarse que la letra y los números sean claros y legibles y que el monto anotado en la columna de total coincida con el desglose del gasto.
-f) Verificar que las facturas por concepto de hospedaje se extiendan a nombre de la persona funcionaria. En caso de que la factura esté a nombre del INAMU, la persona funcionaria deberá anotar, en la parte posterior de la factura, su nombre y firma.
-g) Las personas funcionarias operadoras de equipo móvil, a quienes se les suspenda una gira y no se les reasigne otra, deben realizar el reintegro correspondiente en un plazo máximo de tres días a partir de dicha suspensión.

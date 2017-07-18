@@ -1,6 +1,0 @@
-Artículo 8º—Requisitos para utilizar el servicio de taxi. Además de lo establecido en los artículos anteriores, la persona funcionaria usuaria del transporte público, modalidad taxi, previo a incurrir en el gasto deberá:
-a) Verificar, con la jefatura correspondiente que existe contenido presupuestario.
-b) Contar con la autorización de su jefatura inmediata, quien deberá verificar que se cumple con los supuestos establecidos para el uso de servicio de taxi.
-c) Elaborar y presentar el formulario de adelanto de gastos de transporte dentro del país, de acuerdo con el procedimiento y plazos establecidos en este Reglamento. Únicamente en casos de urgencia, a juicio de la jefatura inmediata, se podrá hacer uso de los fondos de Caja Chica, conforme con lo establecido en el Reglamento del Fondo de Caja Chica.
-d) Elaborar y presentar el formulario de liquidación de gastos de transporte dentro del país de acuerdo con el procedimiento y plazos establecidos en este Reglamento.
-e) Presentar el formulario de “Comprobante de Pago de Taxi”, donde debe constar la ruta recorrida, la fecha, el número de placa del taxi, el nombre del conductor y número de teléfono, si lo tiene y el nombre de la Cooperativa o empresa a la que pertenece el taxi. En zonas rurales donde no se disponga de servicio de taxi autorizado como tal, las características del vehículo utilizado.

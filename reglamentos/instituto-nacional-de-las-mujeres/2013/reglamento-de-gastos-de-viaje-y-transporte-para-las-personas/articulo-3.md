@@ -1,1 +1,0 @@
-Artículo 3º—Ámbito de aplicación. El presente Reglamento será de acatamiento obligatorio para todas las personas funcionarias del INAMU y para personas beneficiarias que excepcionalmente puedan obtener viáticos en el interior del país, conforme con lo que más adelante se regulará.

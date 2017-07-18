@@ -1,1 +1,0 @@
-Artículo 18.—Acuerdo de viaje. Para que una persona funcionaria reciba viáticos por gastos de viaje al exterior, debe existir un acuerdo previo, por parte de la Presidenta Ejecutiva, en el que se autorice el viaje. En el caso de la Presidenta Ejecutiva, el acuerdo deberá emitirlo la Junta Directiva.

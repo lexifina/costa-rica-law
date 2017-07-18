@@ -1,1 +1,0 @@
-Artículo 20.—Reconocimiento de viáticos al exterior con posterioridad al viaje. El INAMU podrá reconocer gastos no previstos en el acuerdo de viaje, en los que haya incurrido la persona funcionaria, siempre y cuando estén debidamente justificados y autorizados, mediante una modificación del acuerdo de viaje, que se tramitará de la misma forma que el acuerdo original.
