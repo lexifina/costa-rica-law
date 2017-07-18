@@ -15,3 +15,4 @@ Reglamento General de patentes comerciales y similares de la Municipalidad de Ti
 | --- | --- | --- |
 | 1 | 2014-03-03 | la propia norma |
 | 2 | 2016-03-10 | Reglamento municipal 306 (2016-03-10) |
+| 3 | 2017-07-18 | Reglamento municipal 0 (2017-07-18) |
