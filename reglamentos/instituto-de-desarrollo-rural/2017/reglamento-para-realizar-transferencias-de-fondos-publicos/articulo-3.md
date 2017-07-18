@@ -1,0 +1,11 @@
+Artículo 3º—Definiciones. Los siguientes términos, tendrán el significado que aquí se establece para ellos.
+a) Adenda de convenio: es una ampliación o modificación de las condiciones del convenio.
+b) Comité Directivo de los CTDR: Órgano territorial permanente, nombrado por la Asamblea General. Responsable de la gestión, administración y representación de éste, en concordancia con las competencias establecidas en su estatuto de constitución y de funcionamiento.
+c) Consejo Territorial de Desarrollo Rural (CTDR): instancia territorial de coordinación y articulación del desarrollo rural territorial, cuyo establecimiento y coordinación será facilitada por el Inder.
+d) Convenio de Cooperación o donación: en adelante Convenio es el instrumento mediante el cual se plasman los acuerdos de voluntades suscritos entre dos o más sujetos públicos o entre uno público y uno privado, con el fin de lograr una relación para satisfacer el interés público.
+e) Convenio Específico: son aquellos que determinan los proyectos específicos a ejecutar en aras de la cooperación interinstitucional. En el cual se establecen los deberes, obligaciones y responsabilidades de las partes.
+f) Convenio Marco Acuerdo entre dos o más partes mediante la cual se establece un marco general de cooperación mutua con el propósito de lograr objetivos comunes, generales y específicos, siempre con el fin de satisfacer el interés público. En este se establecen los parámetros de cooperación en términos generales.
+g) Plan de Desarrollo Rural Territorial (PDRT): herramienta de planificación que tiene como finalidad orientar el desarrollo integral del territorio.
+h) Proyecto: Conjunto de actividades y de recursos interrelacionados entre sí, diseñado e implementado de forma organizada en una determinada realidad social, dirigido atender, en un plazo definido, necesidades o problemas socioeconómicos específicos de las personas, familias, grupos, organizaciones o comunidades.
+i) Receptor: Sujeto público o privado que recibe fondos públicos mediante una transferencia realizada por el Inder.
+j) Transferencias de Recursos Financieros: son aquellas sumas debidamente presupuestadas en el POI que se transfieren a sujetos privados o públicos que han sido declarados como idóneos para administrar estos fondos, y que tienen un fin específico.
