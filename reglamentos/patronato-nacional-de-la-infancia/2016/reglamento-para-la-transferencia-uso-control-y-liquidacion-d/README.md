@@ -14,3 +14,4 @@ Reglamento para la transferencia, uso, control y liquidación de los recursos gi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-11-01 | la propia norma |
+| 2 | 2017-07-18 | Reglamento 25 (2017-07-18) |
