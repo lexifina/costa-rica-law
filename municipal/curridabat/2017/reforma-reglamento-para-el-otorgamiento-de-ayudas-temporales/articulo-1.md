@@ -1,0 +1,9 @@
+MUNICIPALIDAD DE CURRIDABAT
+MODIFICACIÓN PARCIAL AL REGLAMENTO DE AYUDAS TEMPORALES Y SUBVENCIONES
+Por acuerdo Nro. 14 de las 21:07 horas del 2 de mayo de 2017, que consta en el artículo 5º, capítulo 6º, del acta de la sesión ordinaria Nro. 53-2017, el Concejo de Curridabat aprobó las siguientes modificaciones al Reglamento de Ayudas Temporales y Subvenciones vigente:
+PRIMERO: Modificar el artículo 22, del Reglamento para el Otorgamiento de Ayudas Temporales y Subvenciones en el Cantón de Curridabat para que se lea así:
+“Artículo 22.- El sujeto privado o entidad pública deberá presentar a la Dirección Financiera de la Municipalidad de Curridabat el informe de liquidación de los recursos otorgados, en cual deberá estar apegado a las metas y objetivos del convenio de transferencia aprobado por el Concejo Municipal, el cual deberá constar en el expediente respectivo.
+Dicho informe deberá ser presentado dentro del mes siguiente a la finalización del plazo del convenio de transferencia.
+Si del informe se determina que los recursos fueron destinados para fines distintos a las especificaciones contempladas en el convenio de transferencia, la Alcaldía mediante procedimiento sumario, determinará excluir al sujeto privado o la entidad transgresora de la posibilidad de recibir subvenciones o ayudas temporales durante los siguientes cinco años.
+En caso de que el sujeto privado o entidad pública solicite una nueva transferencia y éste no haya presentado la liquidación de los recursos otorgados con anterioridad, no podrá el municipio autorizar el giro de nuevas transferencias.
+A través de la Dirección a la que se delegó el trámite de la ayuda, mantendrá en control actualizado donde se registren las ayudas concedidas. De igual forma, los expedientes de cada ayuda o subvención estarán en custodia de la Dirección Financiera de la Municipalidad de Curridabat.”
