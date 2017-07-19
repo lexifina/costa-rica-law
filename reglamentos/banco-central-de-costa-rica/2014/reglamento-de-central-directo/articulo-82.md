@@ -1,2 +1,3 @@
-Artículo 82.—Cambios de tasa por plazo efectivo. En el momento del registro de la orden de inversión, si el plazo originalmente dado por el participante es aplazado uno o más días para hacer coincidir la fecha de vencimiento con un día hábil, el plazo efectivo de la inversión computará los días aplazados y la inversión deberá constituirse con la tasa de interés vigente para ese plazo efectivo.
-La disposición anterior rige únicamente para los instrumentos financieros que reconozcan los días inhábiles como parte del plazo de inversión.
+CAPÍTULO VII
+DE LA RENOVACIÓN DE INVERSIONES
+Artículo 82. Renovación automática en la fecha de vencimiento. Las inversiones que en la fecha de vencimiento tengan activada la cláusula de renovación automática, darán origen por una única vez a la constitución de una nueva inversión en el mismo instrumento y con las condiciones de plazo, periodicidad y capitalización de intereses especificadas por el inversionista.

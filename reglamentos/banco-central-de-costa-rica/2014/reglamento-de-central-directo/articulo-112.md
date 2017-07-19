@@ -1,0 +1,1 @@
+Artículo 112. Confirmación del registro de Cuentas de Valores. Para garantizar que las cuentas registradas son propiedad exclusiva del participante, Central Directo valida contra Sistema de Administración de Cuentas de Valores, que el número de cuenta suministrado por el participante le corresponda y su estado sea válido.

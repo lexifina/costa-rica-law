@@ -1,6 +1,5 @@
 LIBRO III
-Autenticación de los participantes
+AUTENTICACIÓN DE LOS PARTICIPANTES
 CAPÍTULO I
-Del esquema de autenticación
-Artículo 31.—Mecanismo de autenticación. Central Directo cuenta con el siguiente mecanismo para la autenticación de los participantes:
-a) Certificado Digital: mecanismo de autenticación basado en la utilización de un certificado emitido por una Autoridad Certificadora autorizada por el MICIT, que permite validar la identidad del participante.
+DEL ESQUEMA DE AUTENTICACIÓN
+Artículo 31. Mecanismo de autenticación. Central Directo utiliza certificados digitales emitidos por una Autoridad Certificadora autorizada.

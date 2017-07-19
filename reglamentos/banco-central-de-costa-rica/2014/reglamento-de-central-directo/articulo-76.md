@@ -1,1 +1,1 @@
-Artículo 76.—Horario para el registro de órdenes. El participante puede realizar el registro de las órdenes de inversión calendarizadas dentro de un horario de 24 horas, los 7 días de la semana.
+Artículo 76. Criterio de tasa de interés. La tasa de interés aplicable a una inversión siempre corresponde a la que define el emisor y se encuentre vigente en su fecha valor; por lo tanto, las órdenes calendarizadas son registros que realiza el participante sin que Central Directo pueda confirmar la tasa de interés que aplique para la futura inversión.

@@ -1,2 +1,1 @@
-Artículo 37.—Usuarios responsables. La mancomunación permite establecer usuarios responsables de administrar la seguridad en Central Directo.
-El usuario que se identifique al suscribirse como responsable de seguridad, es quien puede decidir sobre el uso del mecanismo de mancomunación, el cual le permite crear otros usuarios con su mismo perfil de administrador de la seguridad.
+Artículo 37. Actividades mancomunadas. El participante que cuente con dos o más responsables de seguridad, podrá mancomunar la asignación de los derechos y permisos de acceso de sus usuarios, de manera que éstos tengan que ser definidos y autorizados en forma conjunta por dos responsables de administrar la seguridad.

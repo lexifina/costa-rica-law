@@ -1,3 +1,6 @@
-CAPÍTULO III
-De la consulta de operaciones
-Artículo 103.—Consulta de operaciones. Central Directo tiene a disposición del participante funcionalidades para consultar en línea las operaciones cambiarias que registre durante el día de negociaciones, así como las que haya realizado en fechas anteriores.
+LIBRO IX
+MONEX-CENTRAL DIRECTO
+CAPÍTULO I
+DEL SERVICIO
+Artículo 103. Definición del servicio. Se define Monex-Central Directo, como el servicio por medio del cual los participantes acceden al Mercado de Monedas Extranjeras (Monex) que organiza el BCCR.
+El servicio operará en el mismo horario que el BCCR establezca para el Monex.

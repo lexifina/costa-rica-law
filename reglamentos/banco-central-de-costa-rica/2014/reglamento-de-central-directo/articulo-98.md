@@ -1,1 +1,1 @@
-Artículo 98.—Información sobre condiciones del servicio. Las condiciones del servicio (monto mínimo y los múltiplos de las ofertas, los plazos, así como las tasas vigentes), serán definidas por la Junta Directiva del BCCR y publicadas por medio de la plataforma tecnológica.
+Artículo 98. Información sobre condiciones del servicio. Las condiciones del servicio (monto mínimo y los múltiplos de las ofertas, los plazos, así como las tasas vigentes), serán definidas por la Junta Directiva del BCCR y publicadas por medio de la plataforma tecnológica.

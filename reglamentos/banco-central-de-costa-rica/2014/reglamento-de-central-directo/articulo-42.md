@@ -1,1 +1,1 @@
-Artículo 42.—Responsabilidad por los registros y transacciones. El participante es responsable por los registros y las transacciones que realicen sus usuarios autorizados, ya sea que lo hagan como usuarios únicos o mediante el mecanismo de mancomunación.
+Artículo 42. Actualización de información. Los participantes deberán establecer mecanismos de control interno que les asegure mantener actualizada la información de sus usuarios en el portal Web de Central Directo, así como los perfiles de usuario creados como parte de la administración de la seguridad.

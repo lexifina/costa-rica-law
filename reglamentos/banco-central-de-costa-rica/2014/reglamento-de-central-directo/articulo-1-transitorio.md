@@ -1,5 +1,5 @@
-LIBRO XII
-Disposiciones finales
+LIBRO XIV
+DISPOSICIONES FINALES
 CAPÍTULO I
-De las disposiciones transitorias
-Transitorio I.—El movimiento de fondos desde las entidades financieras a través del servicio DTR; estará habilitado luego de que el BCCR realice los desarrollos tecnológicos necesarios para la implementación de su funcionalidad.
+TRANSITORIOS
+TRANSITORIO I. El registro de cuentas de Caja Única y el servicio de Ventanilla de Valores estará disponible cuando el BCCR en conjunto con el MHDA realicen los desarrollos tecnológicos necesarios y defina su modelo de negocio.

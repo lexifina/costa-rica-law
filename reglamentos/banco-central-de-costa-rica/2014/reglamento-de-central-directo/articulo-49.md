@@ -1,1 +1,2 @@
-Artículo 49.—Exclusividad de uso de la CCI. Todos los movimientos de fondos del participante relacionados con Central Directo se harán por medio de la CCI.
+Artículo 49. Requisito para el registro de CB. Como requisito para garantizar que las cuentas registradas son propiedad exclusiva del participante, Central Directo valida que el número de identificación suministrado por el participante para suscribirse, corresponda con el número de identificación de la CB en trámite de registro.
+El registro de una CB no será posible si la validación de su número de identificación no resulta exitosa.

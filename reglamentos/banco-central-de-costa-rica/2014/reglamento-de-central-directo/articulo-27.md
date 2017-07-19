@@ -1,1 +1,1 @@
-Artículo 27.—Inversionistas fallecidos. En el caso de inversionistas fallecidos se gestionará el retiro de los fondos mantenidos en la CCI, según los procedimientos establecidos, de conformidad con el ordenamiento jurídico vigente.
+Artículo 27. Participantes fallecidos. En el caso de participantes físicos fallecidos se gestionará el retiro de los fondos mantenidos en la CCD, según los procedimientos establecidos, de conformidad con el ordenamiento jurídico vigente.

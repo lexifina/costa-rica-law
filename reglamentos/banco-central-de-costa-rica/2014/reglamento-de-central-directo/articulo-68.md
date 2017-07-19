@@ -1,3 +1,1 @@
-CAPÍTULO III
-De las órdenes de inversión
-Artículo 68.—Registro de operaciones. Los instrumentos financieros ofrecidos por el BCCR en Central Directo pueden ser adquiridos por el participante mediante una orden de inversión.
+Artículo 68. Requisito de constitución de inversiones. Una orden de inversión se constituye en una inversión únicamente si se logra cobrar, en tiempo y forma, el monto invertido por el participante.

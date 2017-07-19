@@ -1,1 +1,3 @@
-Artículo 66.—Publicación de acuerdos. Los acuerdos que adopte la Junta Directiva del BCCR, en relación con la disponibilidad y características de los instrumentos financieros ofrecidos mediante Central Directo, se tienen por incorporados automáticamente a este reglamento y serán publicados por el BCCR en los medios que considere apropiados para que puedan ser consultados por los participantes.
+CAPÍTULO III
+DE LAS ÓRDENES DE INVERSIÓN
+Artículo 66. Registro de operaciones. Los instrumentos financieros ofrecidos en Central Directo pueden ser adquiridos por el participante mediante una orden de inversión.

@@ -1,5 +1,1 @@
-LIBRO VI
-Movilización interbancaria de fondos
-CAPÍTULO I
-Del depósito de fondos en la CCI
-Artículo 54.—Movimientos permitidos para el ingreso de fondos. El participante podrá trasladar fondos de su CC a la CCI desde Central Directo, utilizando el servicio DTR en un horario de 12:00 medianoche hasta las 6:00 p.m. con acreditación de fondos en tiempo real en su CCI.
+Artículo 54. Irrevocabilidad de los movimientos de fondos. Los débitos que se ordenen desde Central Directo serán tramitados sin cobro revertido, por lo que no podrán revocarse ni procederá su reclamación por parte del participante luego de que hayan sido ordenados.

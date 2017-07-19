@@ -1,1 +1,3 @@
-Artículo 70.—Requisito de constitución de inversiones. Una orden de inversión se constituye en una inversión únicamente si el BCCR logra cobrar, en tiempo y forma, el monto invertido por el participante.
+CAPÍTULO IV
+DEL REGISTRO DE ÓRDENES DE INVERSIÓN
+Artículo 70. Constitución de inversiones en tiempo real. El participante puede registrar en Central Directo órdenes de inversión para que se constituyan en forma inmediata.

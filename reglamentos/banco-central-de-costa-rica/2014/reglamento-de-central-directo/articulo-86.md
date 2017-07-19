@@ -1,2 +1,1 @@
-Artículo 86.—Condiciones para la renovación automática. La posibilidad de hacer efectiva la renovación automática de una inversión queda sujeta a que, en su fecha valor, se mantenga en oferta el mismo instrumento financiero de la operación original y con las mismas características de moneda, monto mínimo, múltiplos, plazo y periodicidad, necesarias para la renovación.
-La renovación parcial del capital no está permitida.
+Artículo 86. Edición de la renovación automática. El participante puede activar o desactivar la condición de renovación automática de una inversión mientras la misma se encuentre vigente.

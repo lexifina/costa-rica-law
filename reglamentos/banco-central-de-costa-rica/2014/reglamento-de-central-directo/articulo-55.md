@@ -1,1 +1,1 @@
-Artículo 55.—Irrevocabilidad de los movimientos de fondos. Los débitos que se ordenen desde Central Directo serán tramitados sin cobro revertido, por lo que no podrán revocarse ni procederá su reclamación por parte del participante luego de que hayan sido ordenados.
+Artículo 55. Movimientos de fondos desde las entidades financieras. El participante puede ordenar desde su entidad financiera, movimientos de fondos utilizando el servicio TFT en un horario de 12:00 medianoche hasta las 6:00 p.m., con acreditación de fondos en tiempo real en su CCD.

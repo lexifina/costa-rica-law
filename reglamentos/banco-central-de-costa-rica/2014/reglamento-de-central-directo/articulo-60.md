@@ -1,3 +1,1 @@
-CAPÍTULO III
-De las comisiones
-Artículo 60.—Cobro de comisiones bancarias. Las comisiones de la entidad destino por los movimientos interbancarios de fondos ordenados desde Central Directo con el uso de los servicios del SINPE, correrán por cuenta del participante. El costo de la comisión será el que para tales servicios se encuentre vigente al momento de la transacción, conforme con lo dispuesto en el Reglamento del Sistema de Pagos.
+Artículo 60. Condición para el envío de movimientos. El trámite de cualquier movimiento de fondos que se ordene desde Central Directo, está sujeto a que el participante disponga en la CCD de los fondos suficientes para cubrir el pago de la comisión cobrada por la entidad destino.

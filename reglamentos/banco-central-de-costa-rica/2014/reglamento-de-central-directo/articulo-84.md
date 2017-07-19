@@ -1,3 +1,2 @@
-CAPÍTULO VII
-De la renovación de inversiones
-Artículo 84.—Renovación automática en la fecha de vencimiento. Las inversiones que en la fecha de vencimiento tengan activada la cláusula de renovación automática, darán origen por una única vez a la constitución de una nueva inversión en el mismo instrumento y con las mismas condiciones de plazo, periodicidad y capitalización de intereses especificadas para la inversión original.
+Artículo 84. Condiciones para la renovación automática. La posibilidad de hacer efectiva la renovación automática de una inversión queda sujeta a que, en su fecha valor, se mantenga en oferta el mismo instrumento financiero de la operación original y las características de moneda, monto mínimo, múltiplos, plazo y periodicidad, necesarias para la renovación.
+El participante también podrá optar por la renovación parcial del capital.

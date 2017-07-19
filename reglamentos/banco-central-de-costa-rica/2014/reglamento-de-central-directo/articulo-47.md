@@ -1,6 +1,2 @@
-LIBRO V
-Administración de cuentas
-CAPÍTULO I
-De la cuenta cliente de inversión
-Artículo 47.—Apertura de la CCI. El participante deberá mantener en el BCCR una CCI abierta a su nombre, en las mismas monedas que el BCCR determine para participar en los servicios de Central Directo. Cada participante podrá mantener una única CCI activa en una misma moneda.
-La CCI será abierta automáticamente durante el trámite de suscripción del participante, o cada vez que el BCCR autorice una nueva moneda para Central Directo.
+Artículo 47. Consultas del estado de cuenta. El participante puede generar desde Central Directo el estado de cuenta de su CCD, con el detalle de los movimientos de débito y crédito efectuados, así como con el saldo diario de la cuenta para el periodo de consulta que determine.
+Central Directo provee al participante facilidades de acceso en tiempo real para consultar los movimientos de su CCD.

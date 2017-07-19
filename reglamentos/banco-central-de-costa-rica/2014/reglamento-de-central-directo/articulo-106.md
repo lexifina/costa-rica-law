@@ -1,1 +1,3 @@
-Artículo 106.—Canales de comunicación. Para que los participantes realicen sus consultas o planteen los casos que requieran de la intervención del Centro de Atención al Cliente, el COS debe poner a su disposición una dirección de correo electrónico y una línea telefónica directa. Además, deberá contar con los procedimientos operativos necesarios para garantizar la calidad en la atención de los participantes que requieran de sus servicios.
+CAPÍTULO IV
+DE LA RESPONSABILIDAD DE LOS PARTICIPANTES
+Artículo 106. Prohibiciones. Es absolutamente prohibido para los participantes, utilizar el mecanismo de negociación de Monex-Central Directo para la realización de cualquier tipo de actividad que implique intermediación cambiaria. La violación de esta disposición será sancionada conforme con lo dispuesto en el artículo 92 de la Ley 7558.

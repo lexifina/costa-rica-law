@@ -1,1 +1,1 @@
-Artículo 59.—Movimientos de fondos desde las entidades financieras. El participante podrá ordenar desde su entidad financiera, movimientos de fondos utilizando los servicios DTR, durante las 24 horas del día, todos los días del año, con acreditación de fondos en tiempo real en su CC.
+Artículo 59. Cancelación de comisiones con cargo a la CCD. Las comisiones por cuenta del participante serán cobradas con cargo a su CCD, en el momento en que se confirma el envío del movimiento de fondos.

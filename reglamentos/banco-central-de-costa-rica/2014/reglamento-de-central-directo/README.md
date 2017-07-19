@@ -14,3 +14,4 @@ Reglamento de Central Directo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-19 | la propia norma |
+| 2 | 2017-07-19 | Reglamento 5778 (2017-07-11) |

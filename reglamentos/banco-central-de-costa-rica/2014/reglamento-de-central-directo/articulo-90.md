@@ -1,3 +1,1 @@
-CAPÍTULO IX
-Del principio de irrevocabilidad
-Artículo 90.—Irrevocabilidad de las operaciones. Toda operación que el participante realice en Central Directo tiene un carácter irrevocable, por lo que el participante no podrá solicitar su anulación una vez que se dé inicio al proceso de liquidación correspondiente.
+Artículo 90. Restricciones de la redención anticipada. En caso de que un participante opte por la redención, está se hará por la totalidad de la inversión. Una redención parcial no está permitida.

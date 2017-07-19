@@ -1,3 +1,1 @@
-CAPÍTULO II
-De la oferta de instrumentos financieros
-Artículo 65.—Tipo de instrumentos. El BCCR determinará los tipos de instrumentos financieros que decida ofrecer a través de Central Directo. Para estos efectos y mediante acuerdo, la Junta Directiva del BCCR definirá las características financieras y las condiciones en que los instrumentos serán ofrecidos a los participantes.
+Artículo 65. Consulta de los instrumentos. La información relacionada con los términos y condiciones financieras de los instrumentos ofrecidos puede ser consultada por los participantes en el portal Web de Central Directo; no obstante, el emisor podrá crear los mecanismos de comunicación y divulgación que considere necesarios para promocionar su oferta en el mercado al cual se dirige.

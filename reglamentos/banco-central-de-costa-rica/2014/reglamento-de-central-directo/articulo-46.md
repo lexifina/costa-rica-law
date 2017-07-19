@@ -1,1 +1,6 @@
-Artículo 46.—Confidencialidad de la información. La información que almacenen los sistemas de registro de Central Directo tiene un carácter confidencial, pudiendo el BCCR entregarla a su titular solo cuando éste así lo solicite, ante el requerimiento de una autoridad judicial competente, o en aquellos casos previstos expresamente por ley, siempre y cuando la entrega de la información se conduzca dentro de los procedimientos administrativos y judiciales establecidos para esos efectos.
+LIBRO V
+ADMINISTRACIÓN DE CUENTAS
+CAPÍTULO I
+DE LA CUENTA EN CENTRAL DIRECTO
+Artículo 46. Apertura de la CCD. El participante deberá mantener en el BCCR una CCD abierta a su nombre, en las monedas que el BCCR determine para participar en los servicios de Central Directo. Cada participante mantendrá una única CCD activa en una misma moneda.
+La CCD será abierta automáticamente durante el trámite de suscripción del participante, o cada vez que el BCCR autorice una nueva moneda para Central Directo.

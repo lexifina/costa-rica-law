@@ -1,4 +1,3 @@
 CAPÍTULO IV
-De la política tributaria
-Artículo 100.—Sujeción a las normas tributarias. Los rendimientos financieros que se constituyan mediante Central Directo estarán sujetos a las disposiciones de la legislación tributaria, en cuanto a lo que les fuere aplicable.
-El BCCR deberá sujetarse a los procedimientos administrativos que establezca la Dirección General de Tributación, para el manejo y la recaudación de los impuestos.
+DE LA REDENCIÓN ANTICIPADA
+Artículo 100. Redención anticipada de una operación. Las operaciones diferidas de liquidez podrán ser redimidas anticipadamente siempre que se tenga activada la cláusula de redención. La condición de redención podrá activarse y desactivarse cuando el Emisor así lo considere; y las condiciones de plazo aplicable y plazo al vencimiento para aplicar la redención, podrán ser cambiadas.

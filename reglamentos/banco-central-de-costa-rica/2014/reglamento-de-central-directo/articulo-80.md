@@ -1,1 +1,2 @@
-Artículo 80.—Prioridad de constitución. La constitución de una inversión renovada, tiene prioridad por sobre la constitución de las demás órdenes de inversión calendarizadas que se liquiden en un mismo día de operaciones.
+Artículo 80. Cambios de tasa por plazo efectivo. En el momento del registro de la orden de inversión, si el plazo originalmente dado por el participante es aplazado uno o más días para hacer coincidir la fecha de vencimiento con un día hábil, el plazo efectivo de la inversión computará los días aplazados y la inversión deberá constituirse con la tasa de interés vigente para ese plazo efectivo.
+La disposición anterior rige únicamente para los instrumentos financieros que reconozcan los días inhábiles como parte del plazo de inversión.

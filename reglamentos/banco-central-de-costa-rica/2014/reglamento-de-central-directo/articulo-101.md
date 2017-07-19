@@ -1,6 +1,1 @@
-LIBRO IX
-Monex-central directo
-CAPÍTULO I
-Del servicio
-Artículo 101.—Definición del servicio. Se define Monex-Central Directo, como el servicio por medio del cual los participantes acceden al Mercado de Monedas Extranjeras (Monex) que organiza el BCCR.
-El servicio operará en el mismo horario que el BCCR establezca para el Monex.
+Artículo 101. Condiciones para la redención. El participante debe invocar expresamente su solicitud de redención a través del servicio y confirmar su aceptación de las condiciones bajo las cuales se realizara la redención. La posibilidad de hacer efectiva la redención anticipada queda sujeta a la aprobación por parte del Emisor, ya que se trata de una prerrogativa del Emisor y no un derecho del participante.

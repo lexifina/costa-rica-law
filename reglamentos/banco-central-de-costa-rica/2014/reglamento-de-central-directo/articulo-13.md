@@ -1,1 +1,1 @@
-Artículo 13.—Uso de las direcciones electrónicas de correo. Los mensajes particulares de los participantes y sus operaciones, serán remitidos por el BCCR a las direcciones de correo electrónico registradas por ellos en Central Directo.
+Artículo 13. Uso de las direcciones electrónicas de correo. Los mensajes particulares a los participantes sobre sus operaciones, serán remitidos por el BCCR a las direcciones de correo electrónico registradas por ellos en Central Directo.

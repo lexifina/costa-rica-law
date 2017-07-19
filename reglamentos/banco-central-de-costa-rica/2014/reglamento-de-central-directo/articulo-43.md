@@ -1,1 +1,3 @@
-Artículo 43.—Actualización de información. Los participantes deberán establecer mecanismos de control interno que les asegure mantener actualizada la información de sus usuarios en el portal Web de Central Directo, así como los perfiles de usuario creados como parte de la administración de la seguridad.
+CAPÍTULO III
+DE LOS REGISTROS DE AUDITORÍA
+Artículo 43. Administración de registros de auditoría. Central Directo administra bitácoras y registros electrónicos que permiten realizar la reconstrucción de operaciones y estudios de trazabilidad o de encadenamiento de las relaciones transaccionales para efectos de auditoría, así como para atender el desarrollo de las investigaciones solicitadas por el participante para situaciones especiales que se presenten con sus operaciones.

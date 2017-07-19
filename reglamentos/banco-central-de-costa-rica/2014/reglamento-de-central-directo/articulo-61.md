@@ -1,1 +1,5 @@
-Artículo 61.—Cancelación de comisiones con cargo a la CCI. Las comisiones por cuenta del participante serán cobradas con cargo a su CCI, en el momento en que se confirma el envío del movimiento de fondos.
+LIBRO VII
+ADMINISTRACIÓN DE INVERSIONES
+CAPÍTULO I
+DEL SERVICIO
+Artículo 61. Definición del servicio. Se define Administración de Inversiones como el servicio por medio del cual, los participantes en su papel de inversionista pueden acceder a los instrumentos de captación de recursos ofrecidos por el emisor a través de Central Directo.

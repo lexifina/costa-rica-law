@@ -1,1 +1,5 @@
-Artículo 87.—Restricciones de la renovación automática. Cualquier cambio en el tipo de instrumentos ofrecidos, o en sus características financieras, por el que se afecten inversiones con instrucciones de renovación automática, Central Directo lo notificará de inmediato al participante, ello en el entendido de que cuando la renovación no sea posible, liquidará los fondos al participante en la fecha de pago que corresponda para el vencimiento de la inversión cuya renovación no fuere posible hacer efectiva.
+CAPÍTULO VIII
+DE LA LIQUIDACIÓN DE VENCIMIENTOS
+Artículo 87. Acreditación de vencimientos. En la fecha que corresponda pagar un vencimiento, Central Directo acreditará en forma automática el capital de la inversión, y los rendimientos generados, directamente en la CCD del participante, efectuándose dicha acreditación en la misma moneda del instrumento financiero utilizado para constituir la inversión.
+De igual forma la liquidación se estaría realizando en las cuentas de Caja Única, cuando así corresponda.
+La liquidación efectiva de los vencimientos se hará a las 12:00 a.m.

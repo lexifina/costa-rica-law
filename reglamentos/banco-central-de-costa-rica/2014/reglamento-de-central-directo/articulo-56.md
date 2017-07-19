@@ -1,1 +1,1 @@
-Artículo 56.—Movimientos de fondos desde las entidades financieras. El participante puede ordenar desde su entidad financiera, movimientos de fondos utilizando el servicio TFT en un horario de 12:00 medianoche hasta las 6:00 p.m., con acreditación de fondos en tiempo real en su CCI.
+Artículo 56. Restricción para la recepción de fondos. En ningún caso la CCD podrá recibir fondos procedentes de CB que no estén abiertas a nombre del participante.

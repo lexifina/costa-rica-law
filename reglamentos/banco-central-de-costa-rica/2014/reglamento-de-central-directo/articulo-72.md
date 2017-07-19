@@ -1,3 +1,1 @@
-CAPÍTULO IV
-Del registro de órdenes de inversión
-Artículo 72.—Constitución de inversiones en tiempo real. El participante puede registrar en Central Directo órdenes de inversión para que se constituyan en forma inmediata.
+Artículo 72. Horario para el registro de órdenes. El registro de una orden de inversión que se constituya en tiempo real puede hacerse dentro del horario bancario, únicamente los días hábiles en que opera Central Directo.

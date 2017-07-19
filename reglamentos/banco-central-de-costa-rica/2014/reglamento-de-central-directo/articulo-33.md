@@ -1,1 +1,1 @@
-Artículo 33.—Condiciones legales de la autenticación. El participante que ingrese a Central Directo autenticándose con un certificado digital, lo hace con los derechos y responsabilidades que establece la Ley 8454, su reglamento general y las demás normas jurídicas que resulten aplicables.
+Artículo 33. Condiciones legales de la autenticación. El participante al ingresar a Central Directo autenticándose con un certificado digital, lo hace con los derechos y responsabilidades que establece la Ley 8454, su reglamento general y las demás normas jurídicas que resulten aplicables.

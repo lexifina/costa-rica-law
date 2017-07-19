@@ -1,1 +1,1 @@
-Artículo 81.—Tasa de interés de las inversiones. Las inversiones en Central Directo se constituyen con la tasa de interés que, para el plazo de constitución, se encuentre vigente en su fecha valor.
+Artículo 81. Tipo de moneda para la constitución. El pago de la constitución de una inversión se hará en la misma moneda en que se encuentre expresado el instrumento financiero adquirido por el participante.
