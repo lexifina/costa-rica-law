@@ -1,0 +1,2 @@
+ARTÍCULO 3.- Se modifica el artículo 2 de la Ley N.° 9411, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico de 2017, publicada en los alcances digitales N.° 299A, 29911 y 299C de La Gaceta N.1238 de 12 de diciembre de 2016, en la forma que se indica a continuación:
+(Nota de Sinalei: Por lo extenso de su contenido y tipo de formato el de dicha reforma debe consultarse en el Alcance Digital N° 176 a La Gaceta N° 137 del 19 de julio del 2017)
