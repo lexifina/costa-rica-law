@@ -3,3 +3,4 @@ Artículo 6°:(Nota de Sinalevi: El presente artículo no fue publicado en el Al
 (Modificado por el artículo 1° del decreto ejecutivo N° 40196 del 1° de febrero de 2017)
 (Modificado por el artículo 2° del decreto ejecutivo N° 40279 del 15 de marzo del 2017)
 (Modificado por el artículo 1° del decreto ejecutivo N° 40415 del 15 de mayo de 2017)
+(Modificado por el artículo 1° del decreto ejecutivo N° 40519 del 3 de julio de 2017)
