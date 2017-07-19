@@ -13,3 +13,4 @@ Artículo 2°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 40415 del 15 de mayo de 2017)
 (Modificado por el artículo 1° del decreto ejecutivo N° 40445 del 25 de mayo de 2017)
 (Modificado por el artículo 1° del decreto ejecutivo N° 40519 del 3 de julio de 2017)
+(Así reformado por el artículo 1° de la ley N° 9461 del 7 de julio del 2017)
