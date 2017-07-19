@@ -1,0 +1,1 @@
+Artículo 45.—Carácter probatorio de los registros. Los registros electrónicos administrados por Central Directo, así como por sus sistemas de soporte tecnológico a nivel de registro y control financiero-contable, constituyen respaldo pleno de las operaciones que realicen el BCCR y los participantes por medio de Central Directo.

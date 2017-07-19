@@ -1,0 +1,1 @@
+Artículo 41.—Revocación de derechos. El responsable de seguridad podrá revocar derechos de los usuarios actuando de manera individual, aún y cuando el participante utilice el mecanismo de mancomunación.

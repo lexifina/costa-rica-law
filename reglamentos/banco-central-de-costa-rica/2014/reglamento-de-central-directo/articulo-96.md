@@ -1,0 +1,1 @@
+Artículo 96.—Condiciones de las operaciones. Las operaciones diferidas de liquidez disponibles por medio de MIL-CD se negociarán sin garantía con el Banco Central como única contraparte captadora. Las negociaciones se realizan por rendimiento.

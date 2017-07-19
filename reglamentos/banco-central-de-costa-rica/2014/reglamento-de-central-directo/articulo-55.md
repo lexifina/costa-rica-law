@@ -1,0 +1,1 @@
+Artículo 55.—Irrevocabilidad de los movimientos de fondos. Los débitos que se ordenen desde Central Directo serán tramitados sin cobro revertido, por lo que no podrán revocarse ni procederá su reclamación por parte del participante luego de que hayan sido ordenados.

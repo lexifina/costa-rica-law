@@ -1,0 +1,1 @@
+Artículo 30.—Facilidades para el BCCR. Para el debido cumplimiento de la política conozca a su cliente, los participantes deberán prestar al BCCR todas las facilidades que les solicite con el propósito de verificar y confirmar la información que suministran en cumplimiento de dicha política y de la Ley 8204.

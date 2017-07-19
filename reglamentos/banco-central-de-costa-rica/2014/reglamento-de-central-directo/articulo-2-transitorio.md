@@ -1,0 +1,1 @@
+Transitorio II.—El servicio de Administración de Inversiones se mantendrá habilitado únicamente para los entes sujetos a reserva de liquidez, hasta que inicie la aplicación del cambio en la composición de la reserva de liquidez en moneda nacional.

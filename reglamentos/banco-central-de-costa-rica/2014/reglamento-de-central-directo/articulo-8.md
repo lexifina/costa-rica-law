@@ -1,0 +1,1 @@
+Artículo 8º—Publicación del marco regulatorio. El BCCR establecerá los medios de comunicación y divulgación que permitan al participante acceder con facilidad al marco jurídico que regula el funcionamiento y las relaciones comerciales de Central Directo.

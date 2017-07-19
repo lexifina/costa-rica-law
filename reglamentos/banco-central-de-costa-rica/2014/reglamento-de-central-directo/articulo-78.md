@@ -1,0 +1,1 @@
+Artículo 78.—Criterio de tasa de interés. La tasa de interés aplicable a una inversión siempre corresponde a la que se encuentre vigente en su fecha valor; por lo tanto, las órdenes calendarizadas son registros que realiza el participante sin que Central Directo pueda confirmarle la tasa de interés que aplique para la futura inversión.

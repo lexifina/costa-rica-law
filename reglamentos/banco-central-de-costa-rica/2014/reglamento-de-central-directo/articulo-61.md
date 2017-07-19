@@ -1,0 +1,1 @@
+Artículo 61.—Cancelación de comisiones con cargo a la CCI. Las comisiones por cuenta del participante serán cobradas con cargo a su CCI, en el momento en que se confirma el envío del movimiento de fondos.

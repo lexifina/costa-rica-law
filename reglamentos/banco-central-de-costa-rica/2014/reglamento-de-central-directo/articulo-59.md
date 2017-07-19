@@ -1,0 +1,1 @@
+Artículo 59.—Movimientos de fondos desde las entidades financieras. El participante podrá ordenar desde su entidad financiera, movimientos de fondos utilizando los servicios DTR, durante las 24 horas del día, todos los días del año, con acreditación de fondos en tiempo real en su CC.

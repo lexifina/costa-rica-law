@@ -1,0 +1,1 @@
+Artículo 83.—Tipo de moneda para la constitución. El pago de la constitución de una inversión se hará en la misma moneda en que se encuentre expresado el instrumento financiero adquirido por el participante.

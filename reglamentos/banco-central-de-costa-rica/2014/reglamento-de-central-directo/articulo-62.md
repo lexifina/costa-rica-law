@@ -1,0 +1,1 @@
+Artículo 62.—Condición para el envío de movimientos. El trámite de cualquier movimiento de fondos que se ordene desde Central Directo, está sujeto a que el participante disponga en la CCI de los fondos suficientes para cubrir el pago de la comisión cobrada por la entidad destino.

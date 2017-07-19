@@ -1,0 +1,1 @@
+Artículo 42.—Responsabilidad por los registros y transacciones. El participante es responsable por los registros y las transacciones que realicen sus usuarios autorizados, ya sea que lo hagan como usuarios únicos o mediante el mecanismo de mancomunación.

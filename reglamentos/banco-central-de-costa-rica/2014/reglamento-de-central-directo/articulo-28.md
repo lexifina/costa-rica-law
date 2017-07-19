@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la política conozca a su cliente
+Artículo 28.—Política conozca a su cliente. Los participantes deberán someterse a la política conozca a su cliente y a las condiciones que el BCCR establezca para cumplir con la Ley 8204 y su reglamento general, así como con las disposiciones que promulgue el Conassif en relación con la prevención de la legitimación de capitales, y las demás normas jurídicas emitidas con el objeto de prevenir las operaciones de ocultación y movilización de capitales y otras transacciones encaminadas a legitimar capitales o a financiar actividades u organizaciones terroristas tipificadas en la Ley 8204.

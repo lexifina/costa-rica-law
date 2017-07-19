@@ -1,0 +1,1 @@
+Artículo 40.—Creación de usuarios sin mancomunación. El participante que decida no utilizar el mecanismo de mancomunación, por medio del primer responsable de seguridad mantiene la posibilidad de crear y autorizar usuarios para que realicen en su nombre las diferentes transacciones y actividades que se encuentran disponibles en los servicios de Central Directo.
