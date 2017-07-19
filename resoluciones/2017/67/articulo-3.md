@@ -1,0 +1,1 @@
+III. Para todas aquellas compraventas de energía proveniente de plantas nuevas que produzcan con fuentes no convencionales para las cuales no exista aún una metodología tarifaria específica aprobada por la Autoridad Reguladora se les aplicará la banda y la estructura tarifaria propuesta para la generación con plantas hidroeléctricas nuevas.
