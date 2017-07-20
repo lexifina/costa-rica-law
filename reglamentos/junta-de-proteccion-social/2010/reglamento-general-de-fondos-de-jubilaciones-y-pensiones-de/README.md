@@ -20,3 +20,4 @@ Reglamento General de fondos de Jubilaciones y Pensiones de los vendedores de lo
 | 5 | 2017-01-23 | Reglamento 2 (2017-01-23) |
 | 6 | 2017-03-06 | Reglamento 8 (2017-03-06) |
 | 7 | 2017-07-20 | Reglamento 12 (2017-07-20) |
+| 8 | 2017-07-20 | Reglamento 12 (2017-07-20) |
