@@ -1,9 +1,11 @@
 Artículo 22.—Información para el análisis del crédito: La Dirección FONAVI requerirá de la entidad autorizada, el envío de la información que a continuación se indica, a excepción de aquella que ya se encuentre en el BANHVI por haber sido remitida con anterioridad como parte de la información suministrada periódicamente al BANHVI por su condición de órgano garante o acreedor:
-a) Solicitud formal de financiamiento debidamente suscrita por la Gerencia General o Subgerencia General de la entidad autorizada, acompañada del acuerdo de junta directiva, directorio o consejo de administración, en el que conste la aprobación para solicitar el financiamiento al BANHVI, con referencia al monto máximo que podrá ser solicitado.
+a) Solicitud formal de financiamiento debidamente suscrita por la Gerencia General, Subgerencia General u otro funcionario que cuente con la condición de Apoderado Generalísimo sin límite de suma de la entidad autorizada.
+(Así reformado el inciso anterior mediante sesión N° 52-2017 del 20 de julio del 2017)
 b) Estados Financieros Auditados de la entidad autorizada para los últimos tres períodos fiscales.
 c) Estados Financieros de la Entidad Autorizada con corte al último mes calendario.
 d) Flujo de caja proyectado para un periodo de doce meses, con el detalle de los supuestos utilizados en la proyección; en el caso de financiamiento de proyectos específicos, el periodo proyectado debe contemplar el plazo total del crédito, con proyección mensual para los primeros 12 meses y anual para el periodo restante. Las proyecciones efectuadas deberán proporcionarse además en medios electrónicos y con formatos que permitan la sensibilización de los valores proyectados.
-e) Para el caso de entidades supervisadas por SUGEF, ficha CAMELS emitida por ese órgano para los últimos dos trimestres.
+e) Para el caso de entidades supervisadas por SUGEF, ficha CAMELS calculada por la entidad para los últimos dos trimestres.
+(Así reformado el inciso anterior mediante sesión N° 52-2017 del 20 de julio del 2017)
 f) Formulario e información complementaria requerida para la aplicación de la Política Conozca a su Cliente.
 g) Último informe disponible de una agencia calificadora de riesgo autorizada por la Superintendencia General de Valores, cuando exista.
 h) Clasificación de la cartera de crédito de la entidad autorizada a la última fecha de corte, según las categorías establecidas por la normativa de la SUGEF o por rangos de morosidad en el caso de entidades no supervisadas; así como la distribución de esta cartera crediticia por zona geográfica, por actividad económica, por tipo de garantía y por moneda.

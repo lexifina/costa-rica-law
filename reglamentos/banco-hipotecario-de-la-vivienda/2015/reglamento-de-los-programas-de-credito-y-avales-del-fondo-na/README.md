@@ -14,3 +14,4 @@ Reglamento de los programas de crédito y avales del Fondo Nacional para la Vivi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-04-20 | la propia norma |
+| 2 | 2017-07-20 | Reglamento 52 (2017-07-20) |
