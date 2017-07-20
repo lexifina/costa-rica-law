@@ -5,3 +5,5 @@ c) Velar por el cumplimiento de los deberes y objetivos de FOMUVEL y cumplir con
 d) Someter a consideración de la Junta Directiva los asuntos que le correspondan, dirigir los debates y someter a votación los asuntos en discusión.
 e) Abrir y levantar las sesiones.
 f) Ejercer las demás funciones que le correspondan de conformidad con el presente Reglamento y demás disposiciones pertinentes.
+g) Para la compra o venta, donación, hipoteca o arrendamiento de inmuebles de FOMUVEL, el presidente deberá contar con el acuerdo firme, previo y expreso de la Junta Directiva.
+(Así adicionado el inciso anterior mediante sesión extraordinaria N° 12-2017 del 20 de julio del 2017)
