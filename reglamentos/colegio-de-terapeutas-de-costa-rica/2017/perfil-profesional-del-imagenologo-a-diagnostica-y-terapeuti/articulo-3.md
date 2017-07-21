@@ -1,0 +1,1 @@
+Artículo 3.- Sólo en el caso de inopia declarada, una institución sea pública o privada podrá utilizar al Bachiller en Imagenología Diagnóstica para cualquier función que sea competencia exclusiva del Licenciado (a) en Imagenología Diagnóstica y Terapéutica.
