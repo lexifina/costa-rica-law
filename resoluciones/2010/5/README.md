@@ -14,3 +14,4 @@ Comunica emisión de resoluciones de la Dirección General de Servicio Civil (DG
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-06-15 | la propia norma |
+| 2 | 2017-07-21 | Resolución 10 (2017-07-21) |
