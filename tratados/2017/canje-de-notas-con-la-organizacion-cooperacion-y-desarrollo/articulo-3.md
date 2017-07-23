@@ -1,0 +1,6 @@
+Artículo 3
+Sanciones
+1. El cohecho de un servidor público extranjero deberá ser castigable con sanciones penales efectivas, proporcionales y disuasivas. El rango de sanciones será comparable al aplicable al cohecho de servidores públicos propios de la Parte y en el caso de personas físicas, deberá incluir privación de libertad suficiente para permitir asistencia jurídica recíproca y extradición.
+2. En caso de que, bajo el sistema legal de una de las Partes, la responsabilidad penal no sea aplicable a las personas jurídicas, dicha Parte deberá garantizar que las personas jurídicas estarán sujetas a sanciones efectivas, proporcionales y disuasivas no penales, incluyendo sanciones monetarias, por cohecho de servidores públicos extranjeros.
+3. Cada una de las Partes deberá adoptar las medidas necesarias para estipular que el cohecho y las ganancias del soborno de un servidor público extranjero, o los bienes cuyo valor corresponda al de esas ganancias, están sujetos a incautación y decomiso o que sean aplicables sanciones monetarias de efecto comparable.
+4. Cada una de las partes deberá considerar la imposición de sanciones administrativas o civiles adicionales contra una persona sujeta a sanciones por el cohecho de un servidor público extranjero.

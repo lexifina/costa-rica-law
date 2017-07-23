@@ -1,0 +1,3 @@
+Artículo 12
+Monitoreo y seguimiento
+Las Partes deberán cooperar para llevar a cabo un programa de seguimiento sistemático con el objeto de monitorear y promover plena implementación de la presente Convención. A menos que se decida lo contrario por consenso de las Partes, esto se deberá realizar en el marco del Grupo de Trabajo de la OCDE sobre Cohecho en Transacciones Comerciales Internacionales y de conformidad con sus términos de referencia o dentro del marco y términos de referencia de quien lo suceda en sus funciones, y las Partes deberán de sufragar los costos del programa de conformidad con las reglas aplicables a ese órgano.
