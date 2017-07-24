@@ -12,4 +12,4 @@ Artículo 1º—Nombrar como parte de los miembros que integran la Comisión Nac
 1) Miembro propietario:
 a. Carlos Dengo Garrón, cédula de identidad: uno-ochocientos sesenta y uno-trescientos cincuenta y dos, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
 2) Miembro suplente:
-a. Natalia Batista Mora, cédula de identidad: uno-mil cuatrocientos-quinientos cincuenta y seis, representante del Ministerio de Ambiente y Energía.
+a. (Derogado este inciso por el artículo 1° del decreto ejecutivo N° 40648 del 24 de julio del 2017)

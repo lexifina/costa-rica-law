@@ -14,3 +14,4 @@ Nombra miembro de la Comisión Nacional para la Gestión de la Biodiversidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-29 | la propia norma |
+| 2 | 2017-07-24 | Decreto Ejecutivo 40648 (2017-07-24) |
