@@ -1,0 +1,1 @@
+Artículo 11.-Multas. Cuando se incumplan las obligaciones dispuestas en el artículo 3° anterior, y la Municipalidad no haya estado posibilitada para asumir las obras omitidas, ésta última podrá cobrar al Munícipe, trimestralmente y con carácter de multa, los montos previstos en el artículo 76, 76 bis y 76 ter del Código Municipal.
