@@ -1,0 +1,1 @@
+Artículo 22.- Una vez aprobada la solicitud correspondiente, el Programa de Escrutinio emitirá y entregará los carnés a las personas acreditadas para que puedan ingresar al salón de escrutinio, previa revisión de la respectiva acreditación.

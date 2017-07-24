@@ -1,0 +1,2 @@
+Artículo 14.- Contra lo resuelto por la persona encargada del programa de Acreditación de Fiscales, cabrán los recursos de revocatoria y apelación, este último ante el TSE. El término para recurrir será de tres días hábiles a partir del momento en que se notifique la resolución respectiva.
+Estarán legitimados para recurrir quienes, según la ley y este reglamento, pueden gestionar la acreditación de fiscales.

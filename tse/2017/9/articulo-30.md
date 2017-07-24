@@ -1,0 +1,1 @@
+Artículo 30.- Deróguese el decreto n.° 17-2012 del 21 de setiembre de 2012, “Reglamento para la Fiscalización de los Procesos Electivos y Consultivos”, publicado en La Gaceta n.º 219 del 13 de noviembre de 2012.

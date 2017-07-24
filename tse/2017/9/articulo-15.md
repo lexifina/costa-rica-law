@@ -1,0 +1,2 @@
+Artículo 15.- La notificación de las resoluciones se realizará de acuerdo con el “Reglamento de Notificaciones de los Actos y las Resoluciones que emite el Registro Electoral y sus departamentos a Partidos Políticos por medio de Correo Electrónico” (decreto n.º 05-2012 publicado en La Gaceta n.º 102 de 28 de mayo de 2012) y el “Reglamento de Notificaciones a Partidos Políticos por Correo
+Electrónico” (decreto n.º 06-2009 del 05 de junio de 2009 publicado en La Gaceta n.º 117 del 18 junio de 2009).

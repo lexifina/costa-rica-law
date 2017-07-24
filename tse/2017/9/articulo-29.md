@@ -1,0 +1,1 @@
+Artículo 29.- La solicitud de reposición de credenciales deberá ser planteada por la persona legitimada para acreditar fiscales en representación de un partido político o coalición. La gestión se tramitará siguiendo el mismo procedimiento señalado en el párrafo segundo del artículo 16 del presente reglamento.

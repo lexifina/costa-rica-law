@@ -1,0 +1,1 @@
+Artículo 21.- Los partidos políticos y coaliciones podrán solicitar la acreditación de fiscales para el proceso de escrutinio, desde la inscripción de sus candidaturas y hasta el día que este finalice, siguiendo los trámites dispuestos para las acreditaciones de los otros tipos de fiscales.

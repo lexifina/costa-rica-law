@@ -1,0 +1,2 @@
+Artículo 26.- A los fiscales presentes en cada mesa se les podrá suministrar una copia física o digital de las boletas de escrutinio, una vez suscritas por el Magistrado o Magistrada responsable. En el caso de la copia digital, el fiscal deberá aportar al Programa de Escrutinio el medio en el que se almacenará esa información.
+También se pondrá a disposición de cada partido copia de las actas de escrutinio, una vez firmadas por los Magistrados.

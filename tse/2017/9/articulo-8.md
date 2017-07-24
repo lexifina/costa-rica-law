@@ -1,0 +1,1 @@
+Artículo 8.- Los partidos políticos o coaliciones que hayan inscrito candidaturas podrán solicitar la acreditación de sus fiscales ante las juntas electorales hasta veinte días hábiles antes de la elección. Aquellas solicitudes que se presenten fuera de dicho plazo se tendrán por extemporáneas y se rechazarán de plano.

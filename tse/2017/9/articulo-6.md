@@ -1,0 +1,1 @@
+Artículo 6.- El Programa de Acreditación de Fiscales del TSE será el encargado de validar y acreditar a las personas que los partidos políticos y coaliciones designen para ejercer labores de fiscalización.
