@@ -14,3 +14,4 @@ Manual de normas y procedimientos para presupuestos extraordinarios y variacione
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-21 | la propia norma |
+| 2 | 2017-07-24 | Reglamento municipal 58 (2017-07-24) |
