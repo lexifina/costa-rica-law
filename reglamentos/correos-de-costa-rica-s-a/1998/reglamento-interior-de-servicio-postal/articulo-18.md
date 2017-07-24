@@ -1,1 +1,0 @@
-Artículo 18.—Dimensiones y pesos. Las dimensiones y pesos máximos admitidos para el transporte de envíos EMS, variará de acuerdo con las condiciones de admisión que establezca cada Administración Postal de destino, dimensiones y pesos que Correos de Costa Rica pondrá a disposición de los clientes.

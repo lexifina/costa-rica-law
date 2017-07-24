@@ -1,2 +1,0 @@
-Artículo 48.—Del franqueo de la correspondencia. El franqueo de la correspondencia que se realice mediante máquinas franqueadoras deberá ajustarse a las tarifas vigentes.
-La correspondencia deberá llevar la fecha del día en que se realiza la imposición en las Sucursales de Correos de Costa Rica. Cualquier fecha distinta al día de la imposición implicará la nulidad del franqueo para efectos postales y para ser cursados deberán ser franqueados nuevamente.

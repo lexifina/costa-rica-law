@@ -1,1 +1,0 @@
-Artículo 40.—Servicio de Telegramas. No se transmitirán telegramas que contengan insultos, palabras obscenas o contrarias a la moral ya las buenas costumbres. Los funcionarios de Correos manifestarán al interesado el fundamento de su negativa.

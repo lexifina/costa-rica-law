@@ -1,2 +1,0 @@
-Artículo 70.—El destinatario deberá apersonarse a retirar el envío en el plazo estipulado por Correos de Costa Rica. Correos de Costa Rica pondrá a disposición los medios de comunicación que considere oportunos para informar el estado o llegada del envió al destinatario, dentro de ellos el seguimiento de este una vez que se encuentre en el país por medio de la página web o la aplicación móvil.
-(Así adicionado en sesión N° 1431 del 21 de febrero de 2017)

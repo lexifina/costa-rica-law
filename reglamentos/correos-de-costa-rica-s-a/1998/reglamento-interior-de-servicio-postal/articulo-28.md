@@ -1,2 +1,0 @@
-.Artículo 28.—Permiso. Correos de Costa Rica prestará a sus clientes el servicio SEEX mediante un permiso previamente concedido por ésta, para lo cual los interesados en utilizar esta modalidad de servicio deberán presentar una solicitud formal ante Correos de Costa Rica quien previo estudio informará su anuencia o negativa así como las condiciones bajo las cuales le concede el mismo.
-Los envíos que se remitan por esta modalidad de servicio deberán cumplir con las disposiciones que para tal efecto emita la Administración.

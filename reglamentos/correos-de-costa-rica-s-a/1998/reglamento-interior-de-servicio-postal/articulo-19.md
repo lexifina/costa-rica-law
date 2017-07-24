@@ -1,2 +1,0 @@
-Artículo 19.—Entrega. Una vez realizado el trámite de control se realizará la entrega en la dirección indicada en el envío, constatando dicha entrega por medio del recibo correspondiente.
-Respecto a aquellos envíos que deban someterse a la legislación aduanera, la Empresa comunicará al destinatario de la situación a fin de que éste realice los trámites aduaneros correspondientes, extinguiéndose en lo que se refiere a tiempo de entrega, la responsabilidad de la empresa con la entrega del comunicado.

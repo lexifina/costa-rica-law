@@ -1,1 +1,0 @@
-Artículo 52.—Sanciones por incumplimiento. El incumplimiento de los procedimientos que aquí se reglamentan así como cualquier irregularidad que se compruebe dará lugar a la cancelación de la licencia de operaciones así como a tomar las medidas legales que correspondan.

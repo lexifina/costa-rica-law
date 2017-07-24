@@ -1,1 +1,0 @@
-Artículo 12.—Definición. El servicio Fax-CORREOS constituye la recepción, transmisión y distribución de documentos, tales como: notas, planos, gráficos, fotografías, entre otros, utilizando máquinas de fax o cualquier otro medio electrónico.

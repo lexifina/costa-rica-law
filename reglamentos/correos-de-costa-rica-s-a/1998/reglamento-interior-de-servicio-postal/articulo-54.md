@@ -1,1 +1,0 @@
-Artículo 54.—Sistema de descuentos. La Administración podrá variar las condiciones para la aplicación de los descuentos por imposición de envíos nacionales de contado y de débito, por medio de contratos individuales con las instituciones o empresas. No encontrándose facultada para aplicar este descuento a los envíos franqueados con estampillas.

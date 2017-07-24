@@ -1,9 +1,0 @@
-Artículo 22.—Condiciones para la aceptación. Toda encomienda para ser recibida deberá cumplir al menos con las siguientes condiciones:
-a. Dirección exacta del destinatario y del remitente, en caracteres latinos y números arábigos. La dirección debe estar escrita sobre la misma encomienda o en una etiqueta adherida a ésta. No se aceptarán encomiendas con la dirección a lápiz. No podrá designarse más que una persona física como destinataria.
-b. Toda encomienda deberá ir acompañada de la correspondiente declaración de aduana.
-c. Las encomiendas se embalarán y cerrarán de una manera adecuada al peso, a la forma y a la naturaleza del contenido, así como al medio de transporte y a su duración. El embalaje y el cierre deberán proteger el contenido de modo que no pueda deteriorarse por la presión, ni por las manipulaciones sucesivas y que sea imposible atentar contra su contenido sin dejar rastros visibles de violación.
-d. Se deben embalar y cerrar de manera que no amenacen la salud de los empleados que las manipularán, para evitar cualquier peligro si contienen objetos que puedan herir a quien las manipule, manchar o deteriorar los envíos o despachos que se transporten junto a ellas.
-e. Se debe dejar en el embalaje o cubierta el espacio suficiente para las anotaciones de servicio y la aplicación de sellos y etiquetas que se requieran.
-f. Se aceptarán sin embalaje aquellos objetos que puedan ser reunidos y sujetos por una atadura sólida con precintos de plomo o lacre, formando una sola y única encomienda.
-g. También se aceptarán sin embalaje las encomiendas de una sola pieza, como por ejemplo las piezas de madera, piezas metálicas, y cualesquiera otra que por costumbre el comercio no embale.
-La Administración Postal de Costa Rica se reserva el derecho de no admitir o confiscar aquellos envíos que contengan artículos prohibidos.

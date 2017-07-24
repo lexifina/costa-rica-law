@@ -1,3 +1,0 @@
-Artículo 7°—Modalidades. El servicio de mercadeo directo se prestará bajo las siguientes modalidades;
-7.1 Cliente destinatario: consiste en la admisión de envíos dirigidos a una persona física o jurídica en particular, referentes a una actividad específica tales como concursos, entre otros. El monto correspondiente al franqueo de los envíos serán cancelados por el cliente destinatario. En esta modalidad se integrará además la tarjeta y sobre de respuesta comercial.
-7.2 Cliente impositor: consiste en la imposición de envíos con o sin dirección, dirigidos a un segmento específico de la población. El monto correspondiente al franqueo de los envíos será cancelado por el cliente impositor.

@@ -1,2 +1,0 @@
-Artículo 62.—Envíos con valor declarado. En caso de pérdida de un envío con valor declarado a nivel nacional, el expedidor tendrá derecho a una indemnización que corresponderá al monto declarado por el mismo, más las tasas postales pagadas por el envío. Se iniciará el trámite de pago en forma inmediata después de que se compruebe la no entrega.
-En caso de expoliación o avería la empresa definirá el monto de la indemnización que corresponda previa investigación.

@@ -1,6 +1,0 @@
-Artículo 63.—Indemnizaciones del Servicio EMS. La empresa cancelará al cliente, cuando corresponda las indemnizaciones del caso, tomando en consideración:
-a. Se fijará un monto máximo de indemnización para los envíos que solamente contengan documentos y para los que contienen otros objetos, siendo definido el monto de conformidad con lo que establezca el Convenio Postal Universal así como cualquier directriz que en este sentido emita la Unión Postal Universal.
-b. El cliente deberá presentar la reclamación correspondiente en la oficinas del servicio EMS autorizadas, dentro de un término perentorio de treinta días naturales, contados a partir de la imposición del envío.
-c. La responsabilidad de la Administración Postal se determinará de conformidad con las disposiciones del Convenio Postal Universal o del Acuerdo relativo a Encomiendas Postales.
-d. Procederá el pago de indemnización cuando se compruebe documentalmente la responsabilidad de la Administración Postal.
-e. Cuando la Administración incurra en incumplimiento en el plazo de entrega indicado en la "Compilación de informes EMS" para determinado destino, por razones imputables al servicio, se reintegrará al cliente un porcentaje de la tasa de expedición cobrada de acuerdo a los parámetros que establezca la Administración Postal.
