@@ -1,0 +1,20 @@
+N° 40504-MAG
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+En uso de las facultades que les confieren los incisos 3), 18) y 20) del artículo 140 y artículo 146 de la Constitución Política y con fundamento en los numerales 25, 27, 28 y 103 de la Ley General de la Administración Pública del 2 de a mayo de 1978 y 5° del Decreto Ejecutivo Nº 90-S.C., del 13 de diciembre de 1965 y sus reformas, Reglamento para el Pago del Zonaje a los Servidores de la Administración Pública.
+Considerando
+1º—.Que al Ministerio de Agricultura y Ganadería le corresponde la función de velar por el mantenimiento, manejo y buen uso de los recursos y bienes del Estado.
+2°. —Que el Ministerio de Agricultura y Ganadería es propietario de casas de habitación y/o apartamentos, para el uso de sus servidores que así lo requieran, según el Decreto Ejecutivo N° 27452-MAG del 06 de octubre de 1998, denominado “Reglamento de Uso y Habitación de las Casas y Apartamentos del Ministerio de Agricultura y Ganadería”, en el que se regulan los términos y requisitos que los funcionarios deben de cumplir, para poder optar a este beneficio.
+3º. —Que esas casas de habitación y/o apartamentos se encuentran ubicados en zonas alejadas del Gran Área Metropolitana, y se debe de velar por su correcto uso, control y mantenimiento, y la forma en que se regula la asignación de estos inmuebles y otros aspectos.
+4º. —Que con el fin de lograr un mejor aprovechamiento y utilización de los activos de la Administración Pública, en respecto a lo preceptuado por la normativa referida a control interno, y en aplicación de los principios de coordinación, colaboración y eficiencia, el Ministerio de Agricultura y Ganadería destinará los bienes inmuebles que se han estado cediendo a préstamo como casas de habitación en las diferentes Regiones, para ser utilizadas de la siguiente manera, en primer término para oficinas de instituciones del Sector Agropecuario, en segundo término como oficinas para instituciones gubernamentales y tercero para funcionarios del Ministerio de Agricultura y Ganadería por su orden.
+5°. —Que es legalmente procedente por parte de las administraciones interesadas, dentro de los parámetros fijados por la normativa indicada, emitir regulaciones adicionales que permitan el mejor uso de los bienes del Estado y clarifiquen la utilización de los mismos, para el cumplimiento de los servicios y fines públicos establecidos por ley.
+6º. —Que, en razón de lo anterior, resulta necesario emitir un reglamento mediante el cual se regule la asignación, uso y control de bienes inmuebles del Ministerio de Agricultura y Ganadería, con el fin de establecer los procedimientos con sus respectivos requisitos para el trámite de préstamo de bienes inmuebles como una medida de control interno.
+7º. — El presente reglamento técnico cumple con los principios de mejora regulatoria, de acuerdo al informe No.DMR-DAR-INF-064-2017, emitido por la Dirección de Mejora Regulatoria, en fecha 29 de mayo del 2017.
+Por tanto,
+Decretan:
+REGLAMENTO PARA EL PRÉSTAMO, ASIGNACIÓN, USO Y CONTROL DE
+BIENES INMUEBLES DEL MINISTERIO DE AGRICULTURA Y GANADERÍA
+CAPITULO I
+Disposiciones generales
+Artículo 1º. Ámbito de aplicación. El presente Reglamento regula los procedimientos para el préstamo, asignación, utilización y el control de los bienes inmuebles del MAG, por parte de los funcionarios del ministerio y sus órganos de desconcentración mínima y máxima y las demás instituciones públicas o privadas que conforman el Sector Agropecuario, así como las personas físicas o jurídicas públicas o privadas que demuestren un interés legítimo de conformidad con las Políticas Institucionales para el Desarrollo del Sector Agropecuario.
+El uso de los bienes inmuebles se realizará como permiso de uso a título precario de conformidad con el artículo 154 de la Ley General de la Administración Pública. La asignación del uso se aplicará bajo los principios de eficiencia, eficacia y oportunidad, garantizando siempre el interés público.

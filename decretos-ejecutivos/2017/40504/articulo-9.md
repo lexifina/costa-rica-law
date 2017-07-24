@@ -1,0 +1,1 @@
+Artículo 9°.Modificación o ampliación de convenios. Toda modificación o ampliación de convenios de préstamos de bienes inmuebles deberá canalizarse a través de la DABS, en cuyo caso, se deberá de cumplir en lo que corresponda con lo establecido en los artículos 7 y 8 anteriores y según los plazos establecidos.

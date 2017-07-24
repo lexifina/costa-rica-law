@@ -1,0 +1,2 @@
+Artículo 11°.Control, seguimiento y evaluación de los convenios de préstamo de inmuebles.
+El DABS será el responsable del control, seguimiento y evaluación de los convenios de préstamo de inmuebles respectivos. Anualmente y al finiquitarse acuerdos de préstamos de inmuebles, se presentarán al Ministro un informe sobre la ejecución de los préstamos de bienes inmuebles, el mismo deberá contener el resultado del seguimiento y evaluación de gestión de estos instrumentos.

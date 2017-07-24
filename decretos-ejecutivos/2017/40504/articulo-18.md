@@ -1,0 +1,1 @@
+Artículo 18°. El Ministerio por medio del Departamento de Bienes y Servicios deberá comprobar las condiciones en que el beneficiario recibe el inmueble. El beneficiario se compromete a velar y cuidar el bien, dándole el mantenimiento requerido, evitando su deterioro.

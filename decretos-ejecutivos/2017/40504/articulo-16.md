@@ -1,0 +1,3 @@
+CAPITULO VI
+De la asignación de alojamiento a los servidores del MAG
+Artículo 16º. El Ministerio con base en lo consignado en los artículos anteriores de este Reglamento, podrá asignar, con la finalidad de brindar un mejor servicio, a los funcionarios que califiquen para el uso de las casas y apartamentos propiedad del Ministerio para habitarlas con su familia, en conjunto con otros servidores o individualmente, por lo que deberán cumplir con el procedimiento que se establece en este reglamento para este fin. A los servidores que posean casa propia en la zona de influencia de la Agencia de Extensión Agropecuaria o Dirección Regional, no se les concederá el beneficio aquí establecido ya sea que el inmueble este a su nombre o del conyugue.

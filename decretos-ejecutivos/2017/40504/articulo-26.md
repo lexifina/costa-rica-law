@@ -1,0 +1,3 @@
+CAPITULO VII
+Disposiciones finales y derogatorias
+Artículo 26°. El presente Reglamento constituye el marco legal para el préstamo de Bienes inmuebles propiedad del Estado Costarricense, asignados al Ministerio de Agricultura y Ganadería, podrá ser modificado por conveniencia institucional y será de aplicación obligatoria a partir de su vigencia. A falta de disposición expresa aplicable a un caso determinado, se recurrirá supletoriamente a las disposiciones de la Ley General de Administración Pública, el Reglamento Autónomo de Servicio del Ministerio de Agricultura y Ganadería y demás normativa conexa

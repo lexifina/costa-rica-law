@@ -1,0 +1,1 @@
+Artículo 10°.Ejecución de los convenios de préstamo de bienes inmuebles. La ejecución de todo convenio de préstamo de inmuebles sólo podrá iniciarse una vez que se cumpla con los trámites y requisitos indicados en el presente capítulo. Caso contrario, aplicarán las sanciones que en derecho correspondan previa observancia del debido proceso.
