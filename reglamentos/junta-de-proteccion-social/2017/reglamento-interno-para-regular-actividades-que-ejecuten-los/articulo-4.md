@@ -1,0 +1,1 @@
+Artículo 4º—Del porcentaje de reconocimiento por riesgo inherente a sus labores. La Junta reconocerá a los funcionarios que realicen y ejecuten labores de seguridad y vigilancia, así como de inspección de vendedores de lotería, un plus salarial calculado en un 18% del salario base como reconocimiento al riesgo inherente a su labor.

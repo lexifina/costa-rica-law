@@ -1,0 +1,5 @@
+Artículo 6º—De la obligación de las jefaturas de informar la variación de circunstancias. Las jefaturas de las Unidades de Seguridad y Vigilancia y de Supervisión de Ventas tendrán la obligación de informar al Departamento Desarrollo del Talento Humano, sobre cualquier cambio de circunstancias que pueda llegar a significar la supresión del pago del riesgo policial a los funcionarios a su cargo.
+La información deberá remitirse a más tardar en el mes siguiente de aquel en el que variaron las circunstancias, quedando cada jefe de unidad, supeditado a las sanciones disciplinarias que puedan corresponder en caso de que omita remitir la información oportunamente. Lo anterior sin perjuicio de otras responsabilidades que puedan atribuirse.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
+El presente reglamento fue aprobado por junta directiva de la Junta de Protección Social, mediante acuerdo JD-607 correspondiente al artículo VII), inciso 1) de la sesión ordinaria 23- 2017 realizada el día 26 de junio del 2017.
+Acuerdo firme.
