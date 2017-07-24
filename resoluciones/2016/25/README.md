@@ -14,3 +14,4 @@ Regulación de los requisitos para el trámite de autorización para recibir don
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-05-27 | la propia norma |
+| 2 | 2017-07-24 | Resolución 40 (2017-07-24) |

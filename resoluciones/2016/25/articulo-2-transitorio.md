@@ -1,1 +1,1 @@
-II. Para cumplir con el requisito de solicitud de renovación y/o de la autorización para recibir donaciones, los interesados deberán descargar de la página web del Ministerio de Hacienda www.hacienda.go.cr, el formulario D-408 denominado “Solicitud de renovación o autorización para recibir donaciones”, el cual deberán completar y enviar con los documentos necesarios y en la forma indicada en el siguiente transitorio.
+II. (Derogado por el artículo 2° de la resolución DGT-R-40-2017 del 24 de julio de 2017)
