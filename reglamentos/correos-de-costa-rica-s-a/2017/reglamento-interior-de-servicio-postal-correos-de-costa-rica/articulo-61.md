@@ -1,0 +1,1 @@
+Artículo 61: Tarifa preferencial para Máquina Franqueadora Privada.- Los clientes que realicen el franqueo utilizando la máquina franqueadora de su propiedad, gozarán de tarifas preferenciales, de conformidad con las tarifas establecidas por la administración.

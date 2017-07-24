@@ -1,0 +1,1 @@
+Artículo 4: Artículos prohibidos con requisitos especiales y materiales peligrosos.- Los objetos y materiales prohibidos debidamente tipificados a nivel nacional como internacional según convenios, políticas y regulaciones no podrán ser enviados por medio de los servicios de Correos de Costa Rica.

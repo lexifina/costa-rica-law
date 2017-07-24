@@ -1,0 +1,1 @@
+Artículo 58: Sanciones por incumplimiento.- El sobregiro en la máquina franqueadora privada y el incumplimiento de los procedimientos que aquí se reglamentan, así como cualquier irregularidad que se compruebe dará lugar a la cancelación de la licencia de operaciones y se tomarán las medidas legales que correspondan.

@@ -1,0 +1,4 @@
+.Artículo 14: Tasas especiales de envíos de llegada Internacional.- Estos envíos estarán sujetas al pago de las siguientes tasas especiales postales:
+a. Tasa de presentación: Es la tasa que se cobra por los gastos administrativos generados por la presentación del envío ante la Aduana de acuerdo a la regulación aduanera vigente.
+b. Tasa de Almacenaje: Se cobrará a los envíos mayores a 500 gramos y cuyo destinatario no lo hubiere retirado en un plazo de 5 días hábiles a partir de la notificación de la llegada de envío internacional. La tarifa de almacenaje se cobrará por día hábil calculada a partir del sexto día hábil hasta el día en que sea retirada, siempre y cuando se evidencie y se constate que el destinatario haya sido notificado por medio de la entrega del aviso de llegada del envío.
+La tarifa de almacenaje será aprobada por la Junta Directiva de Correos de Costa Rica S.A. y será publicada en el tarifario oficial de Correos.

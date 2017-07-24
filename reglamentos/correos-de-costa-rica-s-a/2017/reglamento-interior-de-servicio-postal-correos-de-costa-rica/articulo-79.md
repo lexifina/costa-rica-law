@@ -1,0 +1,2 @@
+Artículo 79. Indemnización de los envíos con valor declarado en dinero con moneda nacional y mercadería. En caso de pérdida de un envío de control con valor declarado a nivel nacional, el remitente tendrá derecho a una indemnización que corresponderá al monto declarado por el mismo, más las tasas postales pagadas por el envío. Se iniciará el trámite de pago en forma inmediata después de que se compruebe la no entrega.
+En caso de expoliación o daño, Correos de Costa Rica definirá el monto de la indemnización que corresponda previa investigación.

@@ -1,0 +1,3 @@
+Envíos Certificados
+Artículo 18: Certificados Nacionales Definición. -Son aquellos envíos en que el remitente solicita que se lleve un seguimiento desde su imposición hasta la entrega al destinatario. El control se llevará por medio de código de barras asignado a cada envío. No se exigirá para los envíos certificados ninguna condición especial de forma o de cierre.
+Los envíos certificados podrán ser entregados a cualquier persona mayor de 15 años que aporte el documento oficial de identidad, en el domicilio postal del destinatario, en caso de que no se encuentre ninguna persona de las anteriormente descritas, se dejará un aviso para que el destinatario se presente al Punto de Venta correspondiente a retirar el envío.

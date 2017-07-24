@@ -1,0 +1,1 @@
+Artículo 60: Tarifas preferenciales.- Correos de Costa Rica podrá variar las condiciones para la aplicación de tarifas preferenciales a nivel nacional, por volumen de imposición, por medio de contratos individuales con las instituciones o empresas. No encontrándose facultadas para aplicar tarifas preferenciales a los envíos franqueados con estampillas adhesivas o tradicionales.

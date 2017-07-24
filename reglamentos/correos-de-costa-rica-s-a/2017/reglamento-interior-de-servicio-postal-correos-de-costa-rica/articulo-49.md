@@ -1,0 +1,1 @@
+Artículo 49. Traspasos, cesión y traslados de apartados postales.- El usuario que desee trasladar su casilla postal de un Punto de Venta de Correos a otro, deberá llenar la solicitud de traslado y cancelar la tarifa correspondiente, la cual podrá ser cancelada en cualquier Punto de Venta de Correos o por cualquier otro medio autorizado por la empresa.

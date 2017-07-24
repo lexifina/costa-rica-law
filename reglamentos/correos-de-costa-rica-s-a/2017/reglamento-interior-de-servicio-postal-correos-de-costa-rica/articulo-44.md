@@ -1,0 +1,2 @@
+Artículo 44: Vigencia de los envíos de control con destino a un apartado postal.- Los envíos de control se resguardarán por correos de Costa Rica en el Punto de Venta donde se encuentra el apartado postal, un mes calendario a partir del depósito del aviso en el apartado correspondiente. Una vez transcurrido este plazo se devolverá al remitente.
+Si el envío no pudo ser entregado al remitente se conservará por un mes calendario, transcurrido el respectivo plazo se enviará al módulo de Rezago (Unidad de Destrucción).

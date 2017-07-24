@@ -1,0 +1,3 @@
+Artículo 41: Condiciones del Servicio en los Puntos de Venta de Correos de Costa Rica.- Las condiciones en las que se brindará el servicio son las siguientes:
+a. El usuario deberá de formalizar la aceptación de términos y condiciones para el derecho de uso del apartado postal y deberá de pagar la tarifa anual correspondiente al derecho de uso del apartado postal en el plazo estipulado en el respectivo contrato.
+b. Para efectos de seguridad de la correspondencia, eficiencia en la prestación del servicio y para distribución de la misma en cada apartado, Correos de Costa Rica entregará una única llave al usuario, quien será el responsable del uso de la misma.

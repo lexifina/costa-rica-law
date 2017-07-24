@@ -1,0 +1,1 @@
+Artículo 38: Devolución de una encomienda internacional al remitente.- Una encomienda internacional se podrá devolver siempre y cuando en el boletín de expedición CP 71, así lo indique el remitente, habiendo marcado en las casillas correspondientes dicha solicitud.

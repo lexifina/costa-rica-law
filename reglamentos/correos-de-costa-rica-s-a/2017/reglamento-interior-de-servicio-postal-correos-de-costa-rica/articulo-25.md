@@ -1,0 +1,1 @@
+Artículo 25: Prohibiciones del Servicio de Telegramas.- No se transmitirán telegramas que contengan insultos, palabras obscenas o contrarias a la moral y a las buenas costumbres. Los colaboradores de Correos manifestarán al interesado el fundamento de su negativa.

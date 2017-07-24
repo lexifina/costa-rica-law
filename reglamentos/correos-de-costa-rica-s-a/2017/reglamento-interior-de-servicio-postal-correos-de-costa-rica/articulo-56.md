@@ -1,0 +1,4 @@
+Artículo 56: De las licencias de operación de las máquinas franqueadoras privadas. -Las personas físicas o jurídicas que deseen utilizar las máquinas franqueadoras deberán indicar lo siguiente:
+a. La solicitud deberá mencionar todas las características de la máquina de su propiedad, tales como: marca, serie, modelo, entre otros.
+b. De previo a la utilización del servicio y una vez otorgada la licencia de operación, el cliente deberá realizar los depósitos anticipados de acuerdo con los procedimientos que establezca Correos de Costa Rica, lo anterior a efecto de autorizar la carga de la máquina.
+c. Cuando se incurra en alteraciones de contadores o desperfectos mecánicos, el cliente comunicará inmediatamente a Correos de Costa Rica; por cualquier medio, físico, electrónico o telefónico y se suspenderá el servicio hasta que la máquina sea reparada.

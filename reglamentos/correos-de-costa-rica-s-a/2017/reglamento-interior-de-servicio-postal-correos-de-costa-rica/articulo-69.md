@@ -1,0 +1,1 @@
+Artículo 69. -Los envíos provenientes del comercio electrónico serán entregados en los puntos de entrega autorizados y pagaran la tasa de comercio electrónica vigente, o bien a solicitud del destinatario en el lugar de preferencia de éste para lo cual deberá pagar un monto adicional, de acuerdo al servicio requerido.

@@ -1,0 +1,1 @@
+Artículo 39: Definición de Encomienda Nacional.- Consiste en recolectar, transportar, y distribuir correspondencias, documentos o mercadería hasta 30 kilogramos, los cuales deben ser declarados de acuerdo a los formularios que Correos de Costa Rica S.A. indique.

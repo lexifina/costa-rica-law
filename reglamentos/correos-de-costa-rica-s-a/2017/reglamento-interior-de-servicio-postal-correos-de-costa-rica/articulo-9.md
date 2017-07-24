@@ -1,0 +1,2 @@
+Condiciones aplicables a los envíos de llegada Internacional
+Artículo 9: Envíos sujetos a formalidades aduaneras.- De conformidad con la Ley General de Aduanas, una vez notificado al cliente de la existencia del envío postal, éste se deberá presentar a la Aduana Postal a fin de que reconozca las mercancías y manifieste su disposición de despacharlas para consumo o devolverlas, siendo que en el primer caso la Aduana procederá a tramitar, de oficio, la declaración y determinará el adeudo tributario. Correos de Costa Rica y la Aduana podrán estipular procedimientos distintos.

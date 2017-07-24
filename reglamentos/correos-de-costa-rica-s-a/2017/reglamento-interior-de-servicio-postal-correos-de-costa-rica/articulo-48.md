@@ -1,0 +1,1 @@
+Artículo 48: Cambio de cerraduras y duplicados de llaves.- Durante el tiempo de uso si por gusto o necesidad del usuario se requiere cambiar la cerradura y confeccionar un duplicado de llave, este costo deberá de asumirlo el usuario, de acuerdo al precio establecido en la tarifa vigente.

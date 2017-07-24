@@ -1,0 +1,3 @@
+Del contenido de los envíos
+Artículo 2: Derecho de Admisión de los envíos.- Correos de Costa Rica se reserva el derecho de no admitir o remitir a la autoridad correspondiente aquellos envíos que contengan artículos prohibidos, contemplados en este reglamento o cualquier otro objeto que las demás administraciones postales internacionales y las regulaciones correspondientes prohíban.
+Los objetos o materiales que para su circulación, importación o exportación requieran de licencias, certificaciones o autorizaciones de determinada entidad, deberán presentar estos al momento de la imposición o retiro.
