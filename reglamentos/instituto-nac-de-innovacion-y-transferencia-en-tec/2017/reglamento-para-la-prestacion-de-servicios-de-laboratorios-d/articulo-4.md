@@ -1,0 +1,2 @@
+ARTÍCULO 4°- DE LA NATURALEZA DE LOS LABORATORIOS:
+Los Laboratorios de Fitoprotección y material genético del Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INTA) tienen como fin brindar servicios en las siguientes áreas: diagnóstico de plagas, enfermedades, nematodos, microbiología de suelos y demandas de usuarios del sector agropecuario y proyectistas del INTA, en cuanto a demanda por material genético. Además, de atender demandas específicas de usuarios dentro del campo de agricultura empresarial y estratégica.

@@ -1,0 +1,3 @@
+ARTÍCULO 9°- . DEL REGISTRO DE MUESTRAS Y DEMANDA DE PRODUCTOS.
+Es obligación de los laboratorios registrar en la inclusión de la muestra en el libro identificado como “Registro de muestras” así como a la introducción de los datos básicos de la muestra, los cuales se llenan en la boleta identificada como “Solicitud de análisis de muestra”.
+El usuario realiza el pedido de material genético vía telefónica o bien solicita el servicio personalmente en la oficina respectiva y un funcionario del Laboratorio se encarga de registrar el ingreso de la muestra o la solicitud de semilla, según corresponda. Todas las demandas por semilla de diferentes categorías o bien por medios de cultivo o venta de plántulas se registran en un libro de entradas.

@@ -1,0 +1,16 @@
+ANEXO 2
+DECLARACION JURADA
+PERSONA FISICA/PERSONA JURIDICA
+Señores
+Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria
+Yo,_______________________________________(nombre y apellidos), ____________________ mayor,__________________________(estado civil), _______________________(ocupación u oficio), _____________________________________vecino (a) de ______________________________(domicilio exacto), portador(a) de la cédula de identidad número ___________________en mi condición de ______________________________ (persona física o jurídica)___________________________con facultades de apoderado generalísimo sin límite de suma, de la sociedad _____________________________________(nombre completo de la sociedad),cédula jurídica número______________________, inscrita en la sección mercantil del Registro Público al tomo_____ folio______ asiento__________,
+DECLARO BAJO LA FE DEL JURAMENTO, en conocimiento de las sanciones con que el Código Penal castiga el delito de perjurio, lo siguiente:
+Que no me afectan ninguna de las prohibiciones establecidas por el Artículo 22 bis de la Ley de Contratación Administrativa.
+1. Que no me encuentro inhabilitado (a) para contratar con la Administración Pública, según las causales que establece el Artículo 100 de la Ley de Contratación Administrativa.
+2. Que me encuentro al día en el pago de todo tipo de impuestos nacionales, según lo establecido en el Artículo 65 inciso a del Reglamento a la Ley de Contratación Administrativa.
+3. Que no me encuentro inhabilitado(a) para el ejercicio del comercio ni he sido declarado (a) en estado de insolvencia o quiebra.
+4. Que no me alcanzan las prohibiciones establecidas en el artículo 17 de la Ley 8149, Ley del INTA que establece: “Prohíbese celebrar toda clase de contratos con el Instituto a los miembros de la Junta Directiva y a todos los demás funcionarios, empleados y parientes de tales personas hasta el tercer grado de consanguinidad o afinidad inclusive, así como a las sociedades de cualquier tipo en las que estos tengan participación o interés. La violación de lo dispuesto en este artículo se sancionará con la destitución inmediata del infractor, sin perjuicio de las responsabilidades penales y civiles que puedan corresponderle e implicará la nulidad absoluta de los actos celebrados por este.”
+5. Que no me alcanzan las prohibiciones establecidas en el artículo 46 del decreto ejecutivo Nº 31857, Reglamento a la Ley del INTA que establece: “Prohíbase celebrar toda clase de contratos con el Instituto a los miembros de la Junta Directiva y a todos los demás funcionarios y sus parientes hasta el tercer grado de consanguinidad o afinidad inclusive, así como a las sociedades de cualquier tipo en las que ellos tengan participación o interés. La infracción comprobada de lo dispuesto en este artículo se sancionará con la destitución inmediata del infractor, sin perjuicio de las responsabilidades penales y civiles que puedan corresponderle e implicará la nulidad absoluta de los actos celebrados entre éste y el Instituto.”
+Hago la presente declaración jurada consciente del valor, alcance y trascendencia de mis declaraciones. Es Todo.
+Firma: _______________
+Es Auténtica (por abogado o notario)
