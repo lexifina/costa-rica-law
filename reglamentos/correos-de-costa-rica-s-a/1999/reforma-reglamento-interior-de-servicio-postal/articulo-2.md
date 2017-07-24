@@ -1,2 +1,0 @@
-Artículo 2°—Reformar el párrafo primero del artículo 30 del Reglamento Interior de Servicio Postal para que en adelante se lea así:
-"Artículo 30°—Propiedad. Los apartados postales son propiedad exclusiva de Correos de Costa Rica, Sociedad Anónima, excepto aquellos que sean instalados de conformidad con lo estipulado en los párrafos tercero y cuarto del artículo anterior. Dicho servicio es de carácter comercial".
