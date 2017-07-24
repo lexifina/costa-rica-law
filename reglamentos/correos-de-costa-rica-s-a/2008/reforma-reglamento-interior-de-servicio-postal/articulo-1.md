@@ -1,5 +1,0 @@
-CORREOS DE COSTA RICA S. A.
-La Junta Directiva de Correos de Costa Rica S. A. mediante Acuerdo número cuatro mil trescientos setenta y siete tomado en la sesión ordinaria número ochocientos sesenta y tres, celebrada el siete de abril del dos mil ocho,
-ACUERDA:
-Artículo 1º—Se agrega un nuevo párrafo segundo al artículo 31 del Reglamento Interior de Servicio Postal, publicado en La Gaceta Nº 32 del lunes 16 de febrero del 2004, cuyo texto es el siguiente:
-“Como excepción a lo anterior, aquellos clientes que hayan adquirido uno o más paneles de apartados, podrán pagar la anualidad sin el recargo indicado en el párrafo anterior, durante los primeros diez días hábiles del mes de febrero. Dicho período es con el fin de que cuenten con plazo suficiente para realizar el cobro a sus usuarios de cada apartado dentro del mes de enero y depositen el dinero en las cuentas de Correos de Costa Rica S.A. durante los primeros diez días hábiles del mes de febrero. Pasados los diez días, aplicará la multa estipulada en el párrafo primero”.
