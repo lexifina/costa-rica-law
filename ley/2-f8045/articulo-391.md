@@ -1,1 +1,2 @@
-ARTICULO 391.- Los individuos que con ocasión de un conflicto colectivo participaren en éste para promover en forma notoria el desorden o quitarle su carácter pacífico, serán detenidos y arrestados por cualquier autoridad hasta que termine la huelga o paro o hasta que rindieren fianza de no ejecutar lo proyectado, a satisfacción de los Tribunales de Trabajo.
+Artículo 391.- Se tendrá también por paro ilegal todo acto malicioso del empleador o la empleadora que imposibilite a las personas trabajadoras el normal desempeño de sus labores.
+(Así reformado por el artículo 1° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

@@ -1,2 +1,1 @@
-ARTICULO 328.- En cuanto no contraríen el texto y los principios que contiene este Capítulo, se aplicarán las normas generales contenidas en otras disposiciones de este Código y del Código de Procedimientos Penales.
-(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)
+ARTICULO 328.- (Derogado por el artículo 4° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

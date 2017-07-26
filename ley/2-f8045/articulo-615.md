@@ -1,2 +1,5 @@
-ARTICULO 615.- El juzgador aplicará las sanciones tomando en cuenta la gravedad del hecho, el número de faltas cometidas y la cantidad de trabajadores afectados.
-(Así adicionado por el artículo 4º de la ley No.7360 del 4 de noviembre de 1993)
+SECCIÓN II
+Arreglo directo
+Artículo 615.- Los patronos y trabajadores tratarán de resolver sus diferencias por medio del arreglo directo, con la sola intervención de ellos o con la de cualesquiera otros amigables componedores. Al efecto, los trabajadores podrán constituir consejos o comités permanentes en cada lugar de trabajo, compuestos por no más de tres miembros, quienes se encargarán de plantear a los patronos o a los representantes de estos, verbalmente o por escrito, las quejas o solicitudes. Dichos consejos o comités harán siempre sus gestiones de forma atenta y, cuando así proceda, el patrono o su representante no podrá negarse a recibirlos, a la mayor brevedad que le sea posible.
+Cada vez que se forme uno de los consejos o comités a que se refiere el párrafo anterior, sus miembros lo informarán al Departamento de Relaciones de Trabajo del Ministerio de Trabajo y Seguridad Social, mediante una nota que suscribirán y enviarán dentro de los cinco días posteriores a su nombramiento.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

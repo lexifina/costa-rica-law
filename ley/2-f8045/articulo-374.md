@@ -1,1 +1,2 @@
-Artículo 374.- La huelga deberá limitarse al mero acto de la suspensión y abandono del trabajo. Los actos de coacción o de violencia sobre personas o propiedades, serán sancionados por las autoridades represivas comunes con las penas correspondientes.
+Artículo 374.- En el caso de instituciones o empresas que tengan más de un establecimiento o centro de trabajo, el porcentaje de apoyo mínimo requerido, conforme al artículo 371, se contabilizará considerando a todas las personas trabajadoras de la empresa, institución o el respectivo centro de trabajo, según sea el caso.
+(Así reformado por el artículo 1° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

@@ -1,1 +1,2 @@
-ARTICULO 482.- Cuando se requiera dictamen pericial, el Juez nombrará uno o dos peritos que, a ser posible, dictaminarán en forma verbal o escrita en la misma comparecencia. Si no pudieren hacerlo, la prueba se recibirá, sin necesidad de señalamiento especial, en la siguiente comparecencia.
+Artículo 482.- Cuando la parte dispone de los documentos en los que constan las pruebas de los hechos controvertidos debe suministrarlos al proceso, si es requerida para ello. Si no lo hace injustificadamente, su comportamiento puede tenerse como malicioso y considerarse que la documentación omitida le da razón a lo afirmado por la parte contraria.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

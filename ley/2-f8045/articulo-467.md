@@ -1,3 +1,4 @@
-ARTICULO 467.- Si hubiere contrademanda, el Juez dará traslado de ella al reconvenido para que la conteste en forma verbal o escrita, concediéndole al efecto un término que fijará, según las circunstancias, entre tres y ocho días, con las prevenciones que indica el artículo 464(*).
-(Así reformado por el artículo 1° de la ley N° 3702 del 22 de junio de 1966)
-(*) (Nota de Sinalevi: De acuerdo con el artículo 3º de la ley No.7360 del 4 de noviembre de 1993, se modificó la numeración del antiguo artículo 457, siendo ahora el 464)
+Artículo 467.- Las gestiones escritas se presentarán directamente en el despacho judicial al que van dirigidas o en el sitio previsto por la organización judicial para hacer esas presentaciones y sus efectos se producirán, en este último caso, el día y la hora de la presentación, con independencia de la jornada ordinaria de trabajo del despacho respectivo.
+Podrán ser enviados por fax u otro medio idóneo que se encuentre a disposición del despacho, sin que sea necesaria la presentación del original, salvo que la parte contraria alegara alteración del escrito.
+Las gestiones escritas presentadas equivocadamente en un despacho u oficina que no corresponde, surtirán efecto a partir del momento en que sean recibidas por el órgano que debe conocerlas.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

@@ -1,1 +1,2 @@
-ARTICULO 451.- Las providencias deberán necesariamente dictarse dentro de las veinticuatro horas y los autos, salvo lo dispuesto para casos especiales, dentro de tres días.
+Artículo 451.- Las partes podrán comparecer por sí mismas o con patrocinio letrado, o hacerse representar por una persona con mandato especial judicial mediante poder constituido de acuerdo con las leyes comunes. Salvo pacto o disposición legal en contrario, el otorgamiento confiere al apoderado o apoderada la facultad de solucionar el proceso mediante conciliación, aunque expresamente no se haya estipulado.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

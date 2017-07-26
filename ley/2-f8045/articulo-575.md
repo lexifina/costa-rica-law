@@ -1,1 +1,2 @@
-ARTICULO 575.- (ANULADO por Resolución de la Sala Constitucional Nº 6308-98 de las 17:09 horas del 1º de setiembre de 1998)
+Artículo 575.- La parte trabajadora podrá solicitar la postergación de la reinstalación, si ello fuera necesario para permitir el preaviso de la conclusión de otra relación laboral contraída, caso en el cual se indicará al juzgado el día que reasumirá sus funciones, lo que no podrá exceder de un mes y quince días a partir de la notificación de la sentencia o resolución que ordene la reinstalación.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

@@ -1,2 +1,1 @@
-ARTICULO 319.- Si la denuncia no fuere presentada en forma legal, el juez de trabajo se abstendrá de darle curso, hasta tanto no se cumplan las exigencias del artículo 318; al efecto, queda obligado el juez, por todos los medios a su alcance, a procurar que se subsanen, sin pérdida de tiempo, las omisiones que hubiere.
-(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)
+ARTICULO 319.- (Derogado por el artículo 4° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

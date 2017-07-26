@@ -1,0 +1,2 @@
+Artículo 676.- Las organizaciones sociales y, en general, las personas jurídicas a cuyo nombre se realizó la actuación reputada como infractora de las leyes de trabajo y seguridad social serán citadas, por medio de sus representantes, como responsables directas de las faltas y eventuales responsables solidarias de las resultas económicas del proceso, en los términos señalados en el artículo 399.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

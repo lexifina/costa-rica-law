@@ -1,2 +1,2 @@
-ARTICULO 558.- Inmediatamente que se reciba el recurso, la Secretaría, sin necesidad de providencia al respecto, pedirá los autos.
-Con vista del oficio respectivo, el Tribunal Superior de Trabajo citará y emplazará a las partes para que comparezcan dentro de tercero día ante la Sala de Casación a hacer valer sus derechos. Si sobreviniere recurso de otra u otras partes, no se repetirá por eso la citación y emplazamiento.
+Artículo 558.- Si habiendo mediado oposición de la parte empleadora a la solicitud de reinstalación o reubicación y alguna de estas se considera procedente en sentencia, esa parte deberá pagarle a la persona trabajadora salarios caídos completos desde el día en que cesó la incapacidad y, a título de daños y perjuicios y como indemnización fija, un mes de salario adicional.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

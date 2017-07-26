@@ -1,7 +1,3 @@
-ARTICULO 414.- Para ser Juez Superior de Trabajo se requiere:
-Ser costarricense de origen, mayor de veinticinco años, ciudadano en ejercicio y del estado seglar;
-Ser Abogado, de preferencia especializado en Derecho de Trabajo;
-Tener gran solvencia moral y reconocida independencia de criterio;
-Tener, por lo menos, cinco años de práctica profesional, y
-Rendir fianza por la suma de tres mil colones antes de entrar en posesión de su cargo.
-La Corte Plena nombrará al Juez Superior de Trabajo por mayoría no menor de la mitad más uno de la totalidad de sus miembros.
+Artículo 414.- Sin perjuicio de lo que establezcan las disposiciones especiales sobre el plazo de prescripción, los derechos y las acciones de los empleadores o las empleadoras para despedir justificadamente a los trabajadores o las trabajadoras, o para disciplinar sus faltas, prescribirán en el término de un mes, que comenzará a correr desde que se dio la causa para la separación o sanción o, en su caso, desde que fueran conocidos los hechos causales.
+En caso de que la parte empleadora deba cumplir un procedimiento sancionador, la intención de sanción debe notificarse al empleado dentro de ese plazo y, a partir de ese momento, el mes comenzará a correr de nuevo en el momento en que la persona empleadora o el órgano competente, en su caso, esté en posibilidad de resolver, salvo que el procedimiento se paralice o detenga por culpa atribuible exclusivamente a la parte empleadora, situación en la cual la prescripción es aplicable, si la paralización o suspensión alcanza a cubrir ese plazo.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

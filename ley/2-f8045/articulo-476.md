@@ -1,6 +1,4 @@
-ARTICULO 476.- Se rechazará de plano la prueba que no fuera ofrecida por las partes en la oportunidad que indica la ley.
-Sin embargo, antes de que los autos estén listos para el fallo, se admitirán todos los documentos que aporten los litigantes.
-Inmediatamente que sean presentados, el Juez dará audiencia por tres días a la parte contraria, quien podrá ofrecer dentro de ese término, la prueba que estime conveniente para combatirlos. Si el Juez lo juzgare necesario, ordenará que se evacuen todas aquellas pruebas que no tiendan a entorpecer el curso normal del juicio.
-También podrá cualquiera de las partes pedir confesión a la contraria, antes de que se haya dictado sentencia de primera instancia.
-Respecto a testigos, las partes podrán ofrecer hasta cuatro sobre cada uno de los hechos que intenten demostrar, pero el Juez reducirá su número siempre que lo estime necesario.
-(Así reformado por el artículo 1 de la ley No.3702 del 22 de junio de 1966)
+SECCIÓN III
+Régimen probatorio
+Artículo 476.- La actividad probatoria en el proceso laboral tiene como objetivo fundamental la búsqueda de la verdad material. Las partes, por medio de un comportamiento de buena fe, deben cooperar con los tribunales de justicia en el acopio de los elementos probatorios necesarios para resolver con justicia los conflictos sometidos a su conocimiento, y los titulares de esos órganos pondrán todo su empeño y diligencia para la consecución de dicho objetivo.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

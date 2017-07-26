@@ -1,1 +1,2 @@
-ARTICULO 395.- En todos los Tribunales de Trabajo habrá un Secretario que deberá ser Abogado o Bachiller en Leyes, un Prosecretario y los Notificadores y escribientes u oficinistas que fueren necesarios para el buen servicio.
+Artículo 395.- El derecho de las partes empleadoras al paro y el de las trabajadoras a la huelga son irrenunciables; pero será válida la cláusula, en virtud de la cual se comprometa a no ejercerlos temporalmente, mientras una de las partes no incumpla los términos de la convención o el instrumento colectivo.
+(Así reformado por el artículo 1° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

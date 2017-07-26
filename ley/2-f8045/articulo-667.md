@@ -1,0 +1,2 @@
+Artículo 667.- Cuando no hubiera prueba que deba recibirse en audiencia, la sentencia se dictará dentro de los tres días siguientes a la substanciación de los autos. En el caso contrario, se estará a lo dispuesto para el dictado de la sentencia en el proceso con audiencia, pero el plazo máximo para el dictado de la sentencia será igualmente de tres días.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

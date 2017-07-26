@@ -1,0 +1,3 @@
+Artículo 653.- Toda diligencia que practiquen los órganos de conciliación y arbitraje se extenderá por escrito en el acto mismo de llevarse a cabo y será firmada, previa lectura, por sus miembros y las personas que han intervenido en ella, y deberán mencionarse el lugar, la hora y el día de la práctica, el nombre de las personas que asistieron y demás indicaciones pertinentes.
+Se anotarán las observaciones de los asistentes sobre la exactitud de lo consignado y, cuando alguno rehúse firmar, se pondrá razón del motivo que alegue para no hacerlo.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

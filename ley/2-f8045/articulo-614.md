@@ -1,10 +1,7 @@
-Artículo 614.- Establécese la siguiente tabla de sanciones, que será de aplicación para las personas físicas o jurídicas condenadas por haber incurrido en las faltas previstas en el artículo 608 de este Código:
-De uno a tres salarios base.
-De cuatro a siete salarios base.
-De ocho a once salarios base.
-De doce a quince salarios base.
-De dieciséis a diecinueve salarios base.
-f) De veinte a veintitrés salarios base.
-La denominación salario base utilizada en esta ley, debe entenderse como la contenida en el artículo 2 de la Ley No. 7337."
-(Así reformado por el artículo 88 de la Ley N° 7983 del 16 de febrero del 2000, “Ley de Protección al Trabajador”)
-(Nota de Sinalevi: La ley No.7360 del 4 de noviembre de 1993, artículo 6, eliminó la antigua Sección III, llamada "De las responsabilidades", que comprendía el artículo 614)
+CAPÍTULO DECIMOTERCERO
+Solución de los conflictos colectivos de carácter económico y
+social y del procedimiento de conciliación y arbitraje
+SECCIÓN I
+Medios de solución
+Artículo 614.- Son medios de solución de los conflictos económicos y sociales generados en las relaciones laborales, el arreglo directo, la conciliación y el arbitraje.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

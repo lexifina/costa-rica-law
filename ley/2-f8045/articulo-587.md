@@ -1,6 +1,8 @@
-TITULO NOVENO
-DE LA ORGANIZACION ADMINISTRATIVA DE TRABAJO
-CAPITULO PRIMERO
-El Ministerio de Trabajo y Seguridad Social
-(Nota: Originalmente, este Título comprendía los artículos 580 a 600 inclusive. Empero, el artículo 119 de la ley Nº 1860 de 21 de abril de 1955 y por el artículo 139 de la ley Nº 3095 de 18 de febrero de 1963 - la cual reprodujo íntegramente la anterior- derogaron este Título Noveno. Luego, el artículo 3º de la ley No.7360 del 4 de noviembre de 1993 ordena correr la numeración del Código desde el antiguo artículo 364, que pasó a ser el 371, hasta el 579, que pasó a ser el 586, abarcando números de artículo que pertenecieron antes a este apartado )
-ARTICULO 587.-(Derogado por el artículo 119 de la ley Nº 1860 de 21 de abril de 1955 y por el artículo 139 de la ley Nº 3095 de 18 de febrero de 1963, la cual reprodujo íntegramente la anterior.)
+Artículo 587.- Por razones procesales será admisible cuando se invoque:
+1.- Cualquiera de los vicios por los cuales procede la nulidad de actuaciones, siempre y cuando estos hayan sido alegados en alguna de las fases precedentes del proceso y la reclamación se haya desestimado.
+2.- Incongruencia de la sentencia u oscuridad absoluta de esta última parte. En los supuestos de incongruencia, el recurso solo es admisible cuando se ha agotado el trámite de la adición o aclaración.
+3.- Falta de determinación, clara y precisa, de los hechos acreditados por el juzgado.
+4.- Haberse fundado la sentencia en medios probatorios ilegítimos o introducidos ilegalmente al proceso.
+5.- Falta de fundamento o fundamento insuficiente de la sentencia.
+6.- Haberse dictado la sentencia fuera del tiempo previsto para hacerlo.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

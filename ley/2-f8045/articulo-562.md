@@ -1,3 +1,8 @@
-ARTICULO 562.- La Sala de Casación, dictará sentencia, sin más trámite dentro de los quince días siguientes a aquél en que se venció el término del emplazamiento, o dentro de los ocho días posteriores a aquél en que quedaron evacuadas las pruebas ordenadas para mejor proveer.
-El Tribunal apreciará la prueba de conformidad con las prescripciones del artículo 493(*).
-(*) (Nota de Sinalevi: De acuerdo con el artículo 3º de la ley No.7360 del 4 de noviembre de 1993, se modificó la numeración del antiguo artículo 486, siendo ahora el 493)
+SECCIÓN II
+Costas
+Artículo 562.- En toda sentencia, incluidas las anticipadas, y las resoluciones que provoquen el perecimiento del proceso por litispendencia, incompetencia por razones del territorio nacional, satisfacción extraprocesal o deserción, se condenará al vencido, a quien ha satisfecho el derecho o a la parte sancionada con la finalización del asunto, al pago de las costas personales y procesales causadas.
+Si la sentencia resuelve el asunto por el fondo o acoge excepciones materiales de las calificadas como previas, las personales no podrán ser menores del quince por ciento (15%) ni mayores del veinticinco por ciento (25%) del importe líquido de la condenatoria o de la absolución, en su caso.
+En los demás supuestos, así como cuando el proceso no fuera susceptible de estimación pecuniaria, la fijación se hará prudencialmente.
+Para hacer la fijación del porcentaje o del monto prudencial se tomarán en cuenta la labor realizada, la cuantía de la cosa litigada y la posición económica del actor y demandado.
+En los asuntos inestimables en que hubiera trascendencia económica se hará la fijación con base en el monto resultante hasta la firmeza de la sentencia y, si a consecuencia del proceso se siguiera generando en el futuro el resultado económico, podrá agregarse al monto fijado, según criterio prudencial, hasta un cincuenta por ciento (50%). Si el resultado económico fuera intrascendente se hará la fijación de forma prudencial con fundamento en los criterios mencionados.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)
