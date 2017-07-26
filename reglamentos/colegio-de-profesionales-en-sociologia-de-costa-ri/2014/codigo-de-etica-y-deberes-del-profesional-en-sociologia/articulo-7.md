@@ -1,0 +1,1 @@
+Artículo 7. Los destinatarios o usuarios de los servicios profesionales del profesional en Sociología pueden ser personas físicas o jurídicas que actúen en forma independiente, como miembro de la sociedad o como parte de una organización, institución u organismo.

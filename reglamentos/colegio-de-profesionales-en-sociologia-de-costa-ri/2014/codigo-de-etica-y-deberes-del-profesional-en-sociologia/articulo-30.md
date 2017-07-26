@@ -1,0 +1,1 @@
+Artículo 30. Es impropio de cualquier profesional en Sociología la contratación de servicios en condiciones que puedan demeritar a los profesionales o a la Sociología como disciplina, así como poner en riesgo la integridad física de las personas miembros del equipo a su cargo.

@@ -1,0 +1,1 @@
+Artículo 4. Las personas colegiadas que ejerzan otra profesión, además de la Sociología, deberán acatar las normas establecidas en este Código, independientemente de las que señale la otra profesión para sus miembros.

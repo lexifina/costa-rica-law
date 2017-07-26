@@ -1,0 +1,1 @@
+Artículo 20. El respeto que la persona profesional en Sociología debe a los principios éticos establecidos en el presente Código, su Reglamento u otra normativa vigente, no puede ser eximido por ninguna relación de autoridad.

@@ -1,0 +1,2 @@
+Faltas y sanciones
+Artículo 44. El artículo 32 de la Ley Orgánica del Colegio impone tres tipos de sanciones, cuya aplicabilidad corresponde a la gravedad de la falta: a) amonestación confidencial, para este cuerpo normativo podrá ser pública cuando se trate de una falta de regular gravedad, o privada en caso de faltas leves; b) amonestación por escrito y c) suspensión hasta por dos años de los derechos y prerrogativas inherentes a los miembros del Colegio.

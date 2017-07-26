@@ -1,0 +1,1 @@
+Artículo 15. Los profesionales en Sociología se abstendrán de desempeñar, por sí mismos o por persona interpuesta, cargos u ocupaciones que establezcan incompatibilidades legales o técnicas, tengan prohibición o contraríen el perfil y los principios científicos propios del ejercicio profesional de esta disciplina.

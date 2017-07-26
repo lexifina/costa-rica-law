@@ -1,0 +1,1 @@
+Artículo 16. De acuerdo con el Reglamento del Colegio, los miembros que hayan sido suspendidos o se hayan retirados voluntariamente del ejercicio profesional estarán imposibilitados de ejercer la Sociología, de igual modo los miembros inactivos del Colegio de acuerdo con el artículo 3 de la Ley N° 8974.

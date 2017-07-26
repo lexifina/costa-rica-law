@@ -1,0 +1,2 @@
+Artículo 28. Cuando se haya aceptado un compromiso o un trabajo, la persona profesional en Sociología no podrá renunciar a él, salvo por causa justificada que afecte su honor, dignidad, conciencia, independencia, por razones de salud o personales documentadas, cuando exista incumplimiento de las obligaciones materiales por parte del cliente o surja una desavenencia insalvable. En este caso deberá conciliar con el cliente la devolución de los honorarios o adelantos
+recibidos.

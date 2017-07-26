@@ -1,0 +1,2 @@
+Sobre la divulgación de la investigación
+Artículo 33. Las personas profesionales en Sociología tienen derecho a buscar patrocinio para publicar sus trabajos o hacerlo con sus propios medios. Asimismo, tienen derecho a asegurarse de que sus resultados no van a ser manipulados ni sacados de contexto por las partes contratantes. No obstante, deberán respetar cláusulas contractuales que fijen condiciones o tiempo para realizar tales publicaciones.

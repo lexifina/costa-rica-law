@@ -1,0 +1,1 @@
+Artículo 38. Las personas profesionales en Sociología deben respetarse mutuamente, en especial cuando participen en grupos de trabajo o comisiones; evitar expresiones peyorativas, injuriosas o alusivas a situaciones personales, religiosas, políticas, ideológicas, étnicas o de género.

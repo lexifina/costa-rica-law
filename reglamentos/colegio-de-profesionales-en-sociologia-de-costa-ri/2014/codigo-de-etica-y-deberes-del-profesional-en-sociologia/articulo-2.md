@@ -1,0 +1,1 @@
+Artículo 2. Este Código establece el marco ético que regula el ejercicio de la Sociología según lo establecido en la Ley de Creación N° 8974, el Reglamento interno del Colegio, Decreto Ejecutivo 38129-MP publicado en la Gaceta N° 35 del 19 de febrero del 2014, y en otra normativa conexa.

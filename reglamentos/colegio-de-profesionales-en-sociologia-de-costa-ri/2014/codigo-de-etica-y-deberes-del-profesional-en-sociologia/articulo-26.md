@@ -1,0 +1,1 @@
+Artículo 26. Constituyen secreto profesional las confidencias que se hagan a las o los sociólogos en su ejercicio laboral por parte de quien los contrate. No son materia de secreto profesional las informaciones que se reciban sobre el cometido o la intención de cometer actos ilícitos o antiéticos.

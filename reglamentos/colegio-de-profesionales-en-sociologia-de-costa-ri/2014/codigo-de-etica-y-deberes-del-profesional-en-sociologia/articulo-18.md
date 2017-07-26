@@ -1,0 +1,1 @@
+Artículo 18. El ejercicio de la Sociología se puede realizar y se debe hacer en todos los ámbitos, territorios, sectores sociales o coyunturas históricas. Sin embargo, la persona profesional en Sociología deberá desarrollar su actividad principal en un lugar digno que permita la reflexión, el análisis creativo y la síntesis.

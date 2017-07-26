@@ -1,0 +1,1 @@
+Artículo 34. Las personas profesionales en Sociología deben reconocer en sus informes, clara y explícitamente, la participación de académicos, patrocinadores, técnicos u otros colaboradores que hayan hecho una contribución significativa al trabajo realizado.

@@ -1,0 +1,2 @@
+Sobre los derechos de autor
+Artículo 31. Los datos adquiridos en el trabajo y los resultados de la investigación sociológica constituyen la propiedad intelectual de las personas investigadoras y les corresponden como parte de los derechos de autor. En caso de que los derechos de autor deban ser transferidos a un patrocinador o empresa, los profesionales en Sociología deben tener una compensación adecuada, acorde con las tarifas vigentes del Colegio.

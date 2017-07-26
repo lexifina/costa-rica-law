@@ -1,0 +1,2 @@
+Artículo 40. De la normativa y principios aplicables. La Fiscalía y el Tribunal de Honor garantizarán el cumplimiento del “principio de justicia pronta y cumplida” y del “principio del debido proceso”, con el fin de establecer la verdad en torno de los hechos investigados.
+Fundamentará sus actuaciones en las previsiones de la Ley Constitutiva del Colegio, el Reglamento de la Ley del Colegio, la normativa específica de este Código de Ética, la Ley General de la Administración Pública, la Constitución y los principios generales del derecho sustantivo y procesal administrativo.
