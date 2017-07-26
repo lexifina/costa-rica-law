@@ -1,0 +1,1 @@
+ARTÍCULO 7.- Los actuales tribunales de trabajo de menor cuantía se convierten en juzgados de trabajo con competencia ordinaria, pero la Corte Suprema de Justicia queda facultada para encargarles, de manera exclusiva, el conocimiento de asuntos de determinada especialidad o cuantía.

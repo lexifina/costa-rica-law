@@ -1,0 +1,1 @@
+TRANSITORIO IV.- En los lugares o las circunscripciones en que el volumen de trabajo no justifique el funcionamiento de tribunales especializados, mientras esa situación subsista, la justicia laboral será administrada por juzgados y tribunales mixtos, según lo determine la Corte Suprema de Justicia.

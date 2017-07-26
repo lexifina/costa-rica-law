@@ -1,0 +1,1 @@
+TRANSITORIO III.- A los funcionarios excluidos de la aplicación del régimen de este Código, nombrados antes de la entrada en vigencia de esta ley, a quienes en la actualidad se les paga cesantía cuando se jubilan, pensionan o fallecen, se les mantienen esos derechos, en los montos o las proporciones que se les satisfacen.
