@@ -1,0 +1,1 @@
+Artículo 45.- En caso en que la demanda de servicios de TIC exceda la capacidad instalada en el MIDEPLAN, o en caso de contingencias que puedan afectar la continuidad de los servicios de TIC el personal de Informática podrá recomendar el establecimiento de prioridades.

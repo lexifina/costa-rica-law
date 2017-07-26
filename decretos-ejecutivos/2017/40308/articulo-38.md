@@ -1,0 +1,3 @@
+CAPÍTULO VII
+DEL USO DEL CORREO ELECTRÓNICO Y FIRMA DIGITAL
+Artículo 38.- El correo electrónico institucional (@mideplan.go.cr) es el medio electrónico o informático de comunicación e intercambio oficial de información. Los funcionarios de MIDEPLAN deben utilizar el correo electrónico asignado únicamente para comunicación con funciones propias de su cargo o asuntos estrictamente relacionados con las labores que desarrolla MIDEPLAN. Aquellos actos administrativos que requieran de notificación formal, sólo podrán ser notificados por el correo electrónico institucional cuando se cumplan los procesos establecidos por el ordenamiento jurídico para las notificaciones por medios electrónicos, preferiblemente con la firma digital correspondiente.

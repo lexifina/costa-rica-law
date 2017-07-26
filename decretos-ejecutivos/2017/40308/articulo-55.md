@@ -1,0 +1,1 @@
+Artículo 55.- Cualquier infracción a este Decreto Ejecutivo, o el uso inadecuado de las herramientas a las que se refiere, autoriza al jefe inmediato de los funcionarios a tomar las medidas pertinentes.

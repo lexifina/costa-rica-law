@@ -1,0 +1,1 @@
+Artículo 42.- El funcionario es responsable de la información que se envía desde su cuenta, por lo cual se asegurará de hacer un uso racional del servicio, y no enviará archivos adjuntos que pudieran contener información nociva, peligrosa u ofensiva, tales como virus informáticos, mensajes insultantes, vilipendiosos o pornográficos.

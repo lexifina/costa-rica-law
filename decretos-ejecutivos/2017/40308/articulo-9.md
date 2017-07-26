@@ -1,0 +1,13 @@
+Artículo 9°.- Queda absolutamente prohibido a los funcionarios del MIDEPLAN en cuanto al equipo
+de cómputo:
+a) Emplear el equipo asignado para actividades personales, comerciales o extra laborales; ni para reproducir, almacenar o grabar en ellos, ningún tipo de material que esté protegido por la Ley de Derechos de Autor y Derechos Conexos.
+b) Abrir el equipo asignado (alquilado o adquirido por la institución), instalar cualquier software, programa o variar la configuración inicial prevista para el equipo, con excepción del personal de Informática u otro profesional especializado y debidamente acompañado del personal de Informática.
+c) Utilizar dispositivos de almacenamiento masivo (llaves USB), discos duros externos, discos compactos, unidades de disco flexible, entre otros, de desconocida procedencia, sin antes ser verificados mediante el sistema de antivirus dispuesto por la institución.
+d) Comer, beber sobre el equipo de cómputo o sus periféricos. Cualquier daño ocasionado a los equipos por causa de derrames, acumulación de residuos de comida o similares será
+responsabilidad de los funcionarios y se aplicarán las medidas administrativas correspondientes en aplicación del debido proceso.
+e) Utilizar el equipo de cómputo telecomunicaciones y periféricos que MIDEPLAN ha puesto a disposición de los funcionarios para el cun1plimiento de las competencias que el ordenamiento jurídico le ha encomendado cumplir o su red de cómputo, para generar o propagar mensajes obscenos u ofensivos, enviar correos masivos tipos cadenas, divulgar material pornográfico o discriminatorios o que ofenda la dignidad humana.
+f) Trasladar equipos de cómputo, telecomunicaciones, periféricos o demás recursos de TIC, con excepción de aquellos que por su naturaleza de equipo móvil puedan ser trasladados por el responsable respectivo o que por razones de trabajo así se requiera y se cuente con la debida autorización establecida para ello. Tal situación debe ser comunicada de previo a la Oficina de Bienes de MIDEPLAN e Informática, con el fin de cumplir con los procedimientos institucionales establecidos para la salida o traslado de equipos entre oficinas o fuera de las instalaciones de MIDEPLAN.
+g) Conectar equipo que no sea propiedad de MIDEPLAN a la red de cómputo institucional sin la autorización de Informática.
+h) Proveer información falsa o incorrecta en solicitudes institucionales escritas y transacciones que cursen a través de Internet.
+i) Dar a conocer a otros funcionarios u otras sus claves o contraseñas, salvo cuando medie una relación de confianza previamente establecida.
+j) Guardar información confidencial en dispositivos USB a no ser que sean encriptados o con contraseña.

@@ -1,0 +1,1 @@
+Artículo 36.- El personal de Informática podrá monitorear y mantener una copia de los registros y sus respectivos respaldos sobre las actividades en Internet de todos los funcionarios de la red por un período de tres meses.

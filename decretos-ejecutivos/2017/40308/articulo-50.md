@@ -1,0 +1,1 @@
+Artículo 50.- Los funcionarios de sistemas, deberán ejecutar las transacciones en los sistemas sólo aplicando procedimientos comprobados que no arriesguen la integridad de la información. De comprobarse pérdida de información, datos o deterioro de éstos, atribuidos a "mala praxis" por parte de los funcionarios,-MIDEPLAN podrá tomar las medidas legales que le resulten aplicables.

@@ -1,0 +1,1 @@
+Artículo 5°- Informática será la Unidad Administrativa de MIDEPLAN encargada de establecer y conducir el desarrollo informático Institucional, mediante la adopción de mejores prácticas en la gestión de las Tecnologías de Información y Comunicación (TIC) acorde con la realidad nacional, el ordenamiento jurídico y los avances tecnológicos.

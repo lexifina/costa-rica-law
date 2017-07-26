@@ -1,0 +1,1 @@
+Artículo 4°.- Todos los recursos tecnológicos, de telecomunicaciones y demás servicios de Informática que sean suministrados por parte de MIDEPLAN a los funcionarios tienen como fin cumplir los objetivos y metas de MIDEPLAN.

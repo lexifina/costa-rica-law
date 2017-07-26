@@ -1,0 +1,1 @@
+Artículo 28.- Informática realizará respaldos periódicos de la información de MIDEPLAN, almacenada en los servidores, unidades de almacenamiento y otros medios institucionales asignados a Informática.

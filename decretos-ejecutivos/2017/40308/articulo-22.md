@@ -1,0 +1,1 @@
+Artículo 22.- Queda prohibido utilizar software que no haya sido instalado ni autorizado por el personal de Informática en cualquiera de las computadoras que el MIDEPLAN haya puesto a disposición de los funcionarios.

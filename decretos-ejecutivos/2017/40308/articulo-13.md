@@ -1,0 +1,1 @@
+Artículo 13.- Todas las computadoras de escritorio de MIDEPLAN deben contar con un sistema de protección contra fallos de la energía eléctrica mediante una UPS, para proteger el equipo, siendo responsabilidad del funcionario velar por el buen funcionamiento de los componentes que estén conectados a la UPS.

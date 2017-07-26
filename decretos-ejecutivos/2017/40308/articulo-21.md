@@ -1,0 +1,1 @@
+Artículo 21.- Únicamente Inforn1ática estará autorizada a instalar programas con licenciamiento de prueba, software de licenciamiento libre o licencia temporal para efectos de los estudios de investigación o evaluación de los mismos, con el objetivo de determinar su viabilidad técnica de aplicación en los procesos del quehacer Institucional.

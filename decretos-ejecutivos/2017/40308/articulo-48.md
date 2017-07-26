@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+ADMINISTRACIÓN DE LA INFORMACIÓN INSTI TUCIONAL
+Artículo 48.- El funcionario encargado -en virtud de su competencia- deberá velar porque en toda información o software generados mediante la utilización de los recursos institucionales, por parte de personas físicas o jurídicas contratadas por MIDEPLAN, se estipule que MIDEPLAN posee el derecho patrimonial, preservando el autor el derecho moral. La Proveeduría Institucional de MIDEPLAN velará porque este aspecto sea notificado a las partes de previo a la suscripción del contrato y será considerado en los términos de referencia correspondientes.
