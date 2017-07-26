@@ -1,0 +1,7 @@
+Artículo 9º—Nombramiento del Auditor Interno y del Subauditor interno. El nombramiento del Auditor Interno y del Subauditor interno se realiza por tiempo indefinido.
+Estos nombramientos se realizan por concurso público, del cual se conforma el expediente correspondiente. El expediente y la terna seleccionada deben ser trasladados a la Contraloría General de la República, en forma previa a los nombramientos; dicha dependencia analiza el proceso y lo aprueba o lo veta.
+En este último caso, gira las disposiciones a la Institución y señala los elementos objetados para su corrección; la administración debe repetir el proceso a partir de la etapa donde se inició la objeción respectiva.
+Una vez que la Contraloría General de la República apruebe la terna con los candidatos y el expediente del proceso, se realiza el nombramiento del Auditor y / o Subauditor Interno.
+Con el voto afirmativo de al menos cinco de los miembros de la Junta Directiva, se nombra al Auditor Interno y debe ser comunicado por el Órgano Colegiado a la Contraloría General de la República, a más tardar el primer día hábil del inicio de funciones.
+En el caso particular del nombramiento del Subauditor interno, de previo a su nombramiento, el Órgano Colegiado requiere de una recomendación formal del Auditor Interno, en relación con la nómina de los candidatos propuestos (no menos de tres).
+Todo lo anterior, de conformidad con lo establecido en la normativa que sobre el tema ha emitido el ente Contralor.

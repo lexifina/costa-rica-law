@@ -1,0 +1,3 @@
+Artículo 8º—Del Auditor y Subauditor Interno. La Auditoría Interna está bajo la responsabilidad de un Auditor Interno, quien responde ante la Junta Directiva por el desempeño de sus funciones. Para desempeñar el puesto de Auditor Interno, es necesario ser Contador Público Autorizado, incorporado y con una experiencia mínima de 3 años, de conformidad con la normativa emitida por la Contraloría General de la República.
+La Auditoría Interna cuenta además con un Subauditor, quien es el inmediato colaborador del Auditor Interno, de quien depende jerárquicamente y lo sustituye en sus ausencias temporales, con las mismas facultades de éste.
+El Subauditor debe cumplir con los mismos requisitos establecidos para el Auditor Interno.

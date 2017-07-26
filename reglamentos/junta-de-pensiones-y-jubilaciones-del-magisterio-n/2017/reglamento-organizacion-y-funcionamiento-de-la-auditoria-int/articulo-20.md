@@ -1,0 +1,11 @@
+Artículo 20.—Deberes de la Auditoría. Para el cumplimiento de su objetivo, los funcionarios de la Auditoría Interna tienen los siguientes deberes:
+a) Independencia: Actuar libres de injerencias e intereses, con respecto al Órgano Colegiado y los demás órganos de la Administración Activa, que afecten la objetividad en el desempeño de sus funciones. Su labor debe obedecer al cumplimiento de la normativa legal, técnica y ética que rige su competencia y plan de trabajo y no deben subordinar su juicio al de otros.
+b) Objetividad: Ejecutar sus funciones con una actitud imparcial, honestos intelectualmente y libres de conflictos de intereses.
+c) Integridad: Su desempeño profesional y personal debe estar cimentado en la honradez, responsabilidad, objetividad, credibilidad, laboriosidad, entre otros valores morales y éticos.
+d) Competencia profesional: Reunir los conocimientos, actitudes y otras competencias necesarias para cumplir con sus responsabilidades, para lo cual se requiere su participación en las capacitaciones de actualización profesional.
+e) Debido cuidado profesional: Cumplir su trabajo con la pericia que se espera de un profesional prudente y competente; lo cual no implica infalibilidad.
+f) Confidencialidad: Obligación de respetar el valor y la propiedad de la información que por la índole de sus funciones son de su conocimiento; así mismo no debe utilizarla en beneficio propio o de terceros.
+Esta obligación debe persistir aún después del término del contrato laboral.
+La información confidencial sólo puede ser divulgada con autorización del Órgano Colegiado o cuando las autoridades competentes así lo soliciten.
+g) Conducta Profesional: Abstenerse de cualquier comportamiento que pudiera desacreditarlo personal y profesionalmente; para ello debe cuidar las relaciones interpersonales con los demás funcionarios y usuarios de la Institución; de manera que enaltezca la dignidad de la profesión y del departamento, en el cual se desempeña.
+La inobservancia o desobediencia a cualquiera de los deberes mencionados anteriormente, es sancionada con amonestación verbal, apercibimiento escrito, suspensión del trabajo o despido, según la gravedad de la falta y de conformidad con lo establecido en el Reglamento Interno de Trabajo y las leyes conexas.

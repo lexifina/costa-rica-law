@@ -1,0 +1,4 @@
+CAPÍTULO II
+De la organización
+Artículo 6º—Dependencia jerárquica de la Auditoría. La Auditoría Interna es un órgano asesor de la Junta Directiva, dependiente para todos los efectos de este Órgano Colegiado, conforme lo señala el artículo 113 de la Ley Nº 7531 y sus reformas. No obstante, los aspectos de orden administrativo de la Auditoría, serán coordinados por la jefatura de la Auditoría Interna con el Presidente de la Junta Directiva.
+Sin perjuicio de lo anterior, la Auditoría Interna ejerce sus labores con independencia funcional y de criterio, con respecto al Órgano Colegiado y los órganos de la administración. Para lo cual, los funcionarios de esta dependencia laboran en jornada de tiempo completo, de conformidad con el horario de la Institución, señalada en el Reglamento Interior de Trabajo.

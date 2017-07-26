@@ -1,0 +1,3 @@
+Artículo 10º—Remoción del Auditor Interno y del Subauditor interno
+El auditor y el subauditor sólo pueden ser suspendidos o destituidos de su cargo por justa causa, cuando, a juicio de cinco miembros de la Junta Directiva, se demuestre que no cumplen debidamente con las funciones y deberes inherentes a su cargo, previa conformación de expediente, con oportunidad suficiente de audiencia y defensa en su favor, así como dictamen previo favorable de la Contraloría General de la República.
+Adicionalmente, en su remoción debe tomarse en cuenta lo dispuesto en el inciso h) del artículo 114 de la Ley 7531 y sus reformas.

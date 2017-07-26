@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De la comunicación de resultados
+Artículo 25.—Los hallazgos de las auditorías. Los hallazgos obtenidos en el transcurso de la auditoría o estudio especial, a saber; informes o estudios relativos al control interno; deben ser remitidos en calidad de borrador a los funcionarios responsables de previo a emitir las conclusiones y recomendaciones definitivas, a efecto de obtener de ellos sus puntos de vista, opiniones y cualquier información adicional, para facilitar la implementación de cualquier acción correctiva que sea necesaria o en su defecto, la indicación de las razones por las cuales no se consideran viables las recomendaciones. Se debe confeccionar una minuta donde constan los resultados.

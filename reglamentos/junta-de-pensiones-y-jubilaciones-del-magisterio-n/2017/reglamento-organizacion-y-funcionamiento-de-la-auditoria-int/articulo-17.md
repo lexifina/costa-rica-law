@@ -1,0 +1,2 @@
+Artículo 17.—Trámite de compras. Las solicitudes de compra que presente la Auditoría Interna para la adquisición de los bienes y servicios, para el cumplimiento de sus objetivos y cuyos recursos estén previstos en el Presupuesto de la Auditoría, son tramitadas con la firma del Auditor Interno.
+Corresponde a la Administración la compra de los bienes y servicios solicitados por la Auditoría Interna, de conformidad con la normativa interna aplicable.
