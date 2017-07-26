@@ -1,0 +1,1 @@
+Artículo 5º—Adecúese la numeración del Decreto Ejecutivo N° 40054-MINAE “Regionalización del Ministerio de Ambiente y Energía y reforma Reglamento a la Ley de Biodiversidad” del 19 de octubre de 2016, de manera tal que el artículo 14 que corresponde al rige, se enumere ahora como artículo 17.

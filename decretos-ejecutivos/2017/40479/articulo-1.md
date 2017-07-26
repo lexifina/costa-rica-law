@@ -1,0 +1,28 @@
+N° 40479-MINAE
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA
+En el ejercicio de las facultades que les confieren los artículos 50, 140, incisos 3) y 18) y 146 de la Constitución Política; el artículo 28 inciso 2) acápite b) la Ley General de la Administración Pública N° 6227 del 2 de mayo de 1978; los artículos 22 y 28 de la Ley de Biodiversidad N° 7788 del 30 de abril de 1998; el artículo 32 de la Ley Orgánica del Ambiente N° 7554 del 04 de octubre de 1995; la Ley de Planificación Nacional N° 5525 del 2 de mayo de 1974; y los artículos 21 y 22 del Reglamento Orgánico del Poder Ejecutivo, Decreto Ejecutivo N° 38536-MP-PLAN de 25 de julio de 2014.
+Considerando;
+1º—Que el artículo 50 de la Constitución Política de Costa Rica, establece que el Estado debe procurar el mayor bienestar a todos los habitantes del país, garantizando el derecho a un ambiente sano y ecológicamente equilibrado, en respeto del derecho a la protección de la salud humana que se deriva del derecho a la vida; siendo entonces, el objetivo primordial del uso y protección del ambiente obtener un desarrollo y evolución favorable al ser humano en armonía con éste, en el que la calidad ambiental, y los medios económicos resultan ser los parámetros fundamentales para las personas.
+2º—Que el artículo 2 inciso c) de la Ley Orgánica del Ambiente N° 7554 establece que el Estado velará por la utilización racional de los elementos ambientales, con el fin de proteger y mejorar la calidad de vida de los habitantes del territorio nacional. Asimismo, está obligado a propiciar un desarrollo económico y ambientalmente sostenible, entendido como el desarrollo que satisface las necesidades humanas básicas, sin comprometer las opciones de las generaciones futuras.
+3º—Que la Ley de Biodiversidad N° 7788 estableció que el SINAC estará constituido por unidades territoriales denominadas Áreas de Conservación bajo la supervisión general del Ministerio del Ambiente y Energía, por medio del Consejo Nacional de Áreas de Conservación, con competencia en todo el territorio nacional, según se trate de áreas silvestres protegidas, áreas con alto grado de fragilidad o de áreas privadas de explotación económica.
+4º—Que cada Área de Conservación es una unidad territorial del país, delimitada administrativamente, regida por una misma estrategia de desarrollo y administración, debidamente coordinada con el resto del sector público. En cada uno se interrelacionan actividades tanto privadas como estatales en materia de conservación sin menoscabo de las áreas protegidas.
+5º—Que con fundamento en el artículo 28 de la Ley de Biodiversidad, el Ministro de Ambiente y Energía con base en las recomendaciones que realice el Consejo Nacional de Áreas de Conservación, definirá la división territorial que técnicamente sea más aconsejable para las Áreas de Conservación del país, así como sus modificaciones.
+6º—Que mediante Decreto Ejecutivo N° 40054-MINAE del 19 de octubre del 2016, se emitió el Decreto denominado “Regionalización del Ministerio de Ambiente y Energía y reforma Reglamento a la Ley de Biodiversidad”.
+7º—Que los diferentes espacios de participación del Sistema Nacional de Áreas de Conservación SINAC como los Consejos Locales, los Consejos Regionales de Áreas de Conservación CORAC, y otras instituciones públicas como Municipalidades y el sector privado, han remitido observaciones al contenido del Decreto Ejecutivo N° 40054-MINAE del 19 de octubre del 2016, que consideran deben ser aclaradas, incluidas o modificadas. Que en ánimo de fortalecer el objetivo de dicho Decreto Ejecutivo que es la regionalización del Ministerio de Ambiente y Energía se emite el presente Decreto Ejecutivo.
+8º—Que de conformidad con el Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo N° 37045-MP-MEIC y sus reformas, se determinó que la presente propuesta no establece ni modifica trámites, requisitos o procedimientos, que el administrado deba cumplir, situación por la que no se procedió con el trámite de control previo. Por tanto,
+Decretan:
+“MODIFICACIÓN AL DECRETO EJECUTIVO N° 40054-MINAE
+“REGIONALIZACIÓN DEL MINISTERIO DE AMBIENTE
+Y ENERGÍA Y REFORMA REGLAMENTO A LA LEY
+DE BIODIVERSIDAD” DEL 19 DE OCTUBRE
+DE 2016, Y AL REGLAMENTO A LA LEY
+DE BIODIVERSIDAD, DECRETO
+EJECUTIVO N° 34433 DEL 11
+DE MARZO DE 2008”
+Artículo 1º—Modifíquense los artículo 2 inciso a), 3 y 4 del Decreto Ejecutivo N° 40054-M1NAE “Regionalización del Ministerio de Ambiente y Energía y reforma Reglamento a la Ley de Biodiversidad” del 19 de octubre de 2016, para que se lean de la siguiente manera:
+“Artículo 2º—Serán de administración compartida entre las Áreas de Conservación que se indican, las siguientes Áreas Protegidas:
+a) Refugio Nacional de Vida Silvestre Corredor Fronterizo (ACTo-ACAHN-ACG).
+(…)”
+“Artículo 3º—Formarán parte de las Áreas de Conservación con litorales costeros, las aguas interiores y el área del Mar Territorial correspondiente, así como las áreas silvestres marinas protegidas allí localizadas y establecidas conforme a la ley, y el Patrimonio Natural del Estado. Dentro de sus territorios, con base a la legislación ambiental y con un enfoque ecosistémico, participarán en los procesos que se realicen en el ámbito del ordenamiento espacial marino”.
+“Artículo 4º—Créase una nueva Área de Conservación denominada Área de Conservación Marina Cocos, la cual incluye los ecosistemas asociados al Parque Nacional Isla del Coco, al Área Marina de Manejo Montes Submarinos, y cualesquiera áreas marinas que el país defina como de significancia ecológica o biológica, procurando la adecuada salud de los ecosistemas o estabilidad de los recursos marinos.”
