@@ -1,0 +1,7 @@
+INSTITUTO COSTARRICENSE DE TURISMO
+POLO TURÍSTICO GOLFO DE PAPAGAYO
+MODIFICACIÓN DE CANON DE CONCESIÓN(*)
+(*) (Corregido el título anterior mediante Fe de Erratas, y publicada en La Gaceta N° 235 del 12 de diciembre de 2017, página N° 32.)
+La Dirección Ejecutiva del Polo Turístico Golfo de Papagayo, con instrucciones de la junta directiva del Instituto Costarricense de Turismo, hace del conocimiento de los señores Concesionarios del Polo Turístico Golfo de Papagayo, Guanacaste, el comunicado de acuerdo N° SJD-355-2017, tomado por ese mismo órgano en sesión ordinaria N° 6005, Artículo 5, inciso X, celebrada el día 6 de noviembre del 2017, donde se toma el siguiente acuerdo que textualmente dice:
+“SE ACUERDA:
+A) De conformidad con el Acuerdo tomado por el Consejo Director del Polo Turístico Golfo de Papagayo, en sesión ordinaria N° 19-2017, artículo 6, inciso II, celebrada el lunes 02 de octubre del 2017 (Comunicado de Acuerdo N° CDP-175-2016) y con fundamento en el criterio técnico N° PGP-514-2017 del 10 de julio del 2017, suscrito por la Licda. Victoria Villalobos Esquivel y el Ing. Henry Wong Carranza de la Dirección Ejecutiva del Polo Turístico Golfo de Papagayo, aprobar el ajuste por indexación al canon de terreno concesionado, para los próximos cinco años, estableciendo como monto la suma de tres dólares con veinticuatro centavos, moneda en curso legal de los Estados Unidos de América (US$ 3.24) por metro cuadrado, el cual regirá a partir del 26 de julio del 2017 hasta el 25 de julio del 2022, inclusive.”
