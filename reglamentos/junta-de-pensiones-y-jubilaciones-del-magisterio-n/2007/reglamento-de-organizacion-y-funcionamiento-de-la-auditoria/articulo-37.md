@@ -1,1 +1,0 @@
-Artículo 37.—Derogatoria. El presente Reglamento deroga el reglamento anterior, que fuera aprobado por Junta Directiva en la sesión extraordinaria Nº 15-2003 del 6 de marzo de 2003 y modifica los aprobados en la sesión ordinaria Nº 106-2006 del 26 de setiembre de 2006 y la Sesión Ordinaria Nº 90-2007 del 13 de agosto de 2007.

@@ -1,2 +1,0 @@
-Artículo 26.—Plazo para revisión del Informe sobre el cumplimiento de Acuerdos. En lo correspondiente a los informes sobre la ejecución de acuerdos emitidos por la Junta Directiva; la Dirección Ejecutiva dispondrá para realizar las observaciones o comentarios que considere pertinentes, de un plazo máximo de diez días hábiles a partir de la fecha en que la Auditoría remita formalmente el borrador del informe.
-La administración podrá solicitar una prórroga a los plazos señalados en los artículos 25 y 26, con razones ampliamente justificadas.

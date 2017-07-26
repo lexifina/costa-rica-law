@@ -1,1 +1,0 @@
-Artículo 10.—Delegación de funciones. El Auditor Interno podrá asignar funciones y delegar autoridad, excepto en aquellos casos en que su intervención personal sea obligatoria conforme con las disposiciones legales que emanen de las autoridades competentes.

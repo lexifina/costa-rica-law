@@ -1,2 +1,0 @@
-Artículo 9º—Nombramiento del Sub-Auditor Interno. El nombramiento del Subauditor Interno se efectuará por tiempo indefinido por la Junta Directiva. De previo a su nombramiento, este Órgano requerirá de una recomendación formal del Auditor Interno, en relación con la nómina de los candidatos propuestos (no menos de tres).
-Su nombramiento también deberá ser comunicado a la Contraloría General de la República, a más tardar el primer día hábil del inicio de funciones. Y su remoción se realizará conforme lo descrito en el artículo 8.
