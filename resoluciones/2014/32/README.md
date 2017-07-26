@@ -14,3 +14,4 @@ Renta líquida presuntiva de empresas no domiciliadas de transporte y comunicaci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-10 | la propia norma |
+| 2 | 2017-07-26 | Resolución 41 (2017-07-26) |

@@ -1,2 +1,3 @@
-Artículo 12.—En el caso de existir pérdidas en los estados financieros presentados, la Administración Tributaria deberá determinará el margen de contribución tributaria del sector.
+Artículo 12—En el caso de que el margen de contribución tributaria de la casa matriz sea inferior al margen de contribución del sector, se autorizara el margen de contribución del sector, caso contrario se autorizara el margen de contribución tributaria de la casa matriz.
 Este margen de contribución tributaria del sector se obtendrá de la mediana de márgenes de contribución tributaria positivos, de estados financieros de empresas de transporte o comunicación internacional, según corresponda a la actividad y al sector que pertenezca la solicitante, sea ésta de transporte marítimo, transporte aéreo, transporte terrestre o de comunicaciones; con las cuales se disponga de información financiera.
+(Así reformado por el artículo 1° de la resolución DGT-R-41 del 26 de julio de 2017)
