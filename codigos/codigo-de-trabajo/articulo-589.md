@@ -1,1 +1,3 @@
-ARTICULO 589..-(Derogado por el artículo 119 de la ley Nº 1860 de 21 de abril de 1955 y por el artículo 139 de la ley Nº 3095 de 18 de febrero de 1963, la cual reprodujo íntegramente la anterior.)
+Artículo 589.- No podrán ser objeto de apelación o casación cuestiones que no hayan sido propuestas ni debatidas oportunamente por los litigantes y la sentencia que se dicte no podrá abrazar otros puntos distintos de los planteados en el recurso, salvo las nulidades, correcciones o reposiciones que procedan por iniciativa del órgano.
+Se prohíbe la reforma en perjuicio.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

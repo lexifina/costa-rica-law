@@ -1,0 +1,2 @@
+Artículo 707.- Las personas trabajadoras, cualquiera que sea su régimen, con impedimento para declararse en huelga por laborar en servicios esenciales, fracasada la conciliación, tienen derecho a someter la solución del conflicto económico y social a arbitramento, en la forma, los términos y las condiciones indicadas en esta normativa.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

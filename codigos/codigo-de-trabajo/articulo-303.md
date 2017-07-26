@@ -1,3 +1,3 @@
 CAPITULO NOVENO
-ARTICULO 303.- Los reclamos por riesgos del trabajo se tramitarán en los juzgados de trabajo de la jurisdicción donde hubiesen ocurrido, operándose la prórroga de jurisdicción en beneficio del trabajador litigante, de conformidad con lo dispuesto en los artículos 461 y siguientes y demás concordantes del Código de trabajo, o de acuerdo con el procedimiento señalado en los artículos 543 a 555 del mismo Código, en lo que sea aplicable y no contradiga las disposiciones de este Código; todo ello atendiendo la naturaleza del reclamo y la conveniencia e interés de los trabajadores.
-(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)
+Artículo 303.- Los reclamos por riesgos de trabajo se tramitarán ante el juzgado competente y según el procedimiento indicado en el título décimo de este Código.
+(Así reformado por el artículo 3° aparte a) de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

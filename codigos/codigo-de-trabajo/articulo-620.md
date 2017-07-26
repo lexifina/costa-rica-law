@@ -1,2 +1,5 @@
-Artículo 620.—Prohíbese el despido de los trabajadores por razones de edad, etnia, género o religión.
+Artículo 620.- Desde el momento de la entrega del pliego de peticiones, se entenderá planteado el conflicto para el solo efecto de que ninguna de las partes pueda tomar la menor represalia contra la otra, ni impedirle el ejercicio de sus derechos. Quien infrinja esta disposición será sancionado de acuerdo con lo dispuesto en este título, según la importancia de las represalias tomadas y el número de las personas afectadas por estas, y satisfacer los daños y perjuicios que cause.
+A partir del momento a que se refiere este artículo, toda terminación de contratos de trabajo debe ser autorizada por el órgano que conoce del conflicto, según el procedimiento previsto en este mismo Código para otorgar autorizaciones.
+Lo dispuesto en este artículo será aplicable durante la conciliación, el arbitraje, la huelga o el procedimiento, en el caso de convención colectiva fracasada.
 (Así adicionado por el artículo único de la ley N° 8107 de 18 de julio del 2001)
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

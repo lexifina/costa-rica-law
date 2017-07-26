@@ -1,1 +1,2 @@
-ARTICULO 445.- Las gestiones verbales se harán directamente ante los miembros de cada Tribunal de Trabajo con ocasión de alguna comparecencia, o por medio del Secretario o Prosecretario en los demás casos.
+Artículo 445.- Las personas declaradas en estado de interdicción, los incapaces naturales mayores de dieciocho años y los ausentes comparecerán por medio de sus representantes legítimos. Si no los tuvieran o el que ostentan se encuentra en opuesto interés, se nombrará para que los represente como curador, sin costo alguno, a una persona abogada de asistencia social.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

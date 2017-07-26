@@ -1,0 +1,4 @@
+Artículo 628.- La omisión en el nombramiento de personas conciliadoras en los plazos establecidos en este Código, la inasistencia injustificada a la diligencia de conciliación y cualquier otra conducta tendiente a obstaculizarla constituirá una infracción punible con multa de cinco a ocho salarios base mensuales. Para establecerla se tomará en cuenta la condición de la persona de empleadora o de trabajadora y se aplicará lo dispuesto en los títulos sétimo y el presente.
+En la misma resolución en que se dé por concluido el procedimiento conciliatorio, el órgano ordenará que se libre un testimonio de piezas para que se inicie el respectivo proceso sancionador.
+Se absolverá a los denunciados y se ordenará el archivo del expediente, cuando se demuestren motivos justos que impidieron de forma absoluta la asistencia.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

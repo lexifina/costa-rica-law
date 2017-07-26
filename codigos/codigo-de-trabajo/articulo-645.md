@@ -1,0 +1,2 @@
+Artículo 645.- Se tendrá como base el pliego de peticiones presentado para la discusión, del cual deberá acompañarse una copia con la solicitud inicial. Además, en esa misma petición se indicará el nombre de la persona que fungirá como conciliadora o árbitra de la parte, según sea el caso, y de sus delegados o delegadas y se señalará lugar o medio para notificaciones. En todo lo demás que resulte pertinente se aplicará lo dispuesto en este capítulo.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

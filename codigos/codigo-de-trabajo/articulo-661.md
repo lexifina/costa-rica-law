@@ -1,0 +1,3 @@
+Artículo 661.- La calificación debe pedirse en cualquier tiempo mientras subsista la huelga o el paro, salvo lo dispuesto en la oración final del artículo 384.
+Sin perjuicio de lo dispuesto en el artículo 668, solo podrá intentarse un único proceso de calificación por el mismo movimiento o hechos, siempre que se trate de un mismo empleador o empleadora, aunque tenga lugar en todo el territorio nacional o en determinadas regiones, sin perjuicio de que si se produjera únicamente en un centro de trabajo se circunscribirá la calificación a ese centro.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

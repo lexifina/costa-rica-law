@@ -1,7 +1,5 @@
-TITULO OCTAVO
-DEL REGIMEN DE LOS SERVIDORES DEL ESTADO Y DE SUS INSTITUCIONES
-CAPITULO UNICO
-Disposiciones especiales para los servidores del Estado y de sus Instituciones
-(Nota: La numeración de este Título fue modificada en su totalidad por el artículo 3º de la ley No.7360 del 4 de noviembre de 1993. Por ello, el antiguo 578 pasa a ser el actual 585 y el 579 pasa a ser el actual 586)
-ARTICULO 585.- Trabajador del Estado o de sus Instituciones, es toda persona que preste a aquél o a éstas un servicio material, intelectual o de ambos géneros, en virtud del nombramiento que le fuere expedido por autoridad o funcionario competente, o por el hecho de figurar en las listas del presupuesto o en las de pago por planillas.
-Cualquiera de estas últimas circunstancias sustituye, para todos los efectos legales, al contrato escrito de trabajo.
+Artículo 585.- Las apelaciones admisibles contra autos y sentencias interlocutorias, que impidan el curso del procedimiento, se tramitarán de forma inmediata. Cuando versen sobre autos denegatorios de prueba o resoluciones producidas en la audiencia cuyo efecto directo no sea el de la paralización o terminación del proceso, la interposición del recurso no impedirá la continuación de la actividad y el dictado de la sentencia, y se tendrá por interpuesto con efectos diferidos y condicionado a que el pronunciamiento final sea recurrido de forma legal y oportuna. En tal caso, la apelación solo se tomará en cuenta si:
+1) El punto objeto de la impugnación trasciende al resultado de la sentencia y la parte que interpuso la apelación figure como recurrente de la sentencia y reitere en su recurso aquella apelación.
+2) La sentencia admite el recurso de casación, el motivo de disconformidad pueda ser parte o constituya uno de los vicios deducibles como motivos de casación.
+3) La parte que lo interpuso no figure como impugnante por haber resultado victoriosa y con motivo de la procedencia del recurso de cualquier otro litigante la objeción recobre interés. En ese supuesto, se le tendrá como apelación eventual.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

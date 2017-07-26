@@ -1,5 +1,3 @@
-SECCION II
-De los Juzgados de Trabajo:
-ARTICULO 400.- Habrá un Juzgado de Trabajo con jurisdicción en cada uno de los circuitos judiciales de trabajo que se establezcan en la República. La Corte Plena determinará, por propia iniciativa o a instancia del Poder Ejecutivo, los circuitos judiciales a que se refiere el párrafo anterior, lo mismo que el asiento de los respectivos Juzgados de Trabajo, tomando en cuenta las previsiones del presupuesto, la importancia económica de las distintas zonas o regiones y el mayor o menor número de trabajadores que en ellas se ocupen.
-Para hacer uso de esta atribución, la Corte oirá previamente a el Ministerio de Trabajo y de Seguridad Social y al Inspector Judicial.
-(El nombre del Ministerio fue así reformado por la Ley No. 5089 del 18 de octubre de 1972 )
+Artículo 400.- Las infracciones a las normas prohibitivas de este Código o de las leyes de trabajo y seguridad social serán sancionadas a partir de la multa comprendida en el numeral 3 de la tabla de sanciones del artículo 398, o superiores establecidas por ley especial.
+Cuando se trate de la negativa a otorgar informes, avisos, solicitudes, permisos, comprobaciones o documentos requeridos según este Código y las leyes de trabajo y seguridad social, para que las autoridades de Trabajo puedan ejercer el control que les encargan dichas disposiciones, los responsables serán sancionados con la multa comprendida en el numeral 1 de la tabla de sanciones contenida en el artículo 398, siempre que haya mediado prevención con un plazo de quince días.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

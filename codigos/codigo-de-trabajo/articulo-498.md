@@ -1,1 +1,4 @@
-ARTICULO 498.- El término para pedir adición o aclaración del fallo será de veinticuatro horas.
+Artículo 498.- La contrademanda, cuando la hubiera, será trasladada a la parte reconvenida por diez días y su contestación se ajustará a lo dicho en el artículo anterior. Es suficiente la notificación de ese traslado a la parte reconvenida en el lugar o medio señalado para notificaciones.
+Al darse el traslado de la demanda y contrademanda, se prevendrá a la parte de que si no contesta en el término concedido o no responde de forma clara, se le tendrá por allanada en cuanto a los hechos no contestados o no respondidos según queda dicho, los que se tendrán por ciertos en sentencia, salvo que en el expediente existan elementos probatorios que los desvirtúen.
+También, en ese mismo momento procesal se ordenarán las peritaciones a cargo de las dependencias oficiales que se ofrezcan o que sea necesario evacuar por estar así previsto en la ley, lo cual se comunicará de inmediato a los órganos correspondientes, para que las practiquen.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

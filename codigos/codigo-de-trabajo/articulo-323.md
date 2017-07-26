@@ -1,3 +1,1 @@
-ARTICULO 323.- En materia de faltas o infracciones a los términos de este Título o sus reglamentos, no se suspenderá la jurisdicción por excusas o recusación, ni por la excepción o declaratoria de incompetencia que se formule.
-Cuando surja uno de estos incidentes y el tribunal de trabajo que conoce del juzgamiento deba remitir el expediente a otra autoridad judicial, dejará testimonio de las piezas que juzgue indispensables para continuar, válidamente, recibiendo las pruebas o levantando la información que proceda. Sin embargo, se abstendrá de dictar sentencia hasta tanto no se resuelva en definitiva la articulación.
-(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)
+ARTICULO 323.- (Derogado por el artículo 4° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

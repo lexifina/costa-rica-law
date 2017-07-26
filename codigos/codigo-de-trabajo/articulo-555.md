@@ -1,1 +1,2 @@
-ARTICULO 555.- ANULADO por Resolución de la Sala Constitucional Nº 1807-99 de las 15:03 horas del 10 de marzo de 1999.
+Artículo 555.- El escrito inicial deberá cumplir los requisitos básicos de toda demanda y con él deberá acompañarse u ofrecerse la prueba relativa a la relación de empleo, la orden de alta expedida por el ente asegurador y la copia del dictamen médico en el que se especifique claramente la situación real de la persona en cuanto a su estado de salud y el medio que se recomiende para él, según su capacidad laboral.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

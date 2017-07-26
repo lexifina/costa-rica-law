@@ -1,0 +1,4 @@
+Artículo 641.- El fallo arbitral judicial podrá ser recurrido por las partes ante el tribunal de apelaciones del Segundo Circuito Judicial de San José (Goicoechea), con invocación, de forma puntual, de los agravios que este último órgano debe resolver. Se autoriza a la Corte Suprema de Justicia para que varíe esta atribución de competencia, cuando las circunstancias lo ameriten.
+El tribunal dictará sentencia definitiva dentro de los quince días siguientes al recibo de los autos, salvo que ordene alguna prueba para mejor proveer, la cual deberá evacuarse antes de doce días.
+La sentencia extrajudicial tendrá los recursos que determine la Ley N.° 7727, Ley sobre Resolución Alterna de Conflictos y Promoción de la Paz Social, RAC, de 9 de diciembre de 1977, y sus reformas, que serán conocidos por la sala de casación en materia laboral.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

@@ -1,0 +1,2 @@
+Artículo 648.- Si la desavenencia fuera solo parcial, lo que se acuerde ante el órgano conciliador o resuelva el órgano arbitral se considerará como parte de la convención, la cual entrará en vigencia según lo establecido en ella, o bien, conforme a lo dispuesto en el arreglo conciliatorio o laudo arbitral, según sea el caso.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

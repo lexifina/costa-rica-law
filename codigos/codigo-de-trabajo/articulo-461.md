@@ -1,8 +1,2 @@
-SECCION IV
-De la demanda:
-ARTICULO 461.- Toda demanda contendrá:
-Los nombres y apellidos, la profesión u oficio, la edad aproximada y el vecindario del actor y del demandado;
-La exposición clara y precisa de los hechos en que se funda;
-La enunciación de los medios de prueba con que se acreditarán los hechos y la expresión de los nombres, apellidos y domicilio de los testigos. Si el demandante deseare que el Juzgado haga comparecer a éstos, indicará las señas exactas del lugar donde trabajan o viven; y si se tratare de certificaciones u otros documentos públicos, el actor expresará la oficina donde se encuentran, para que la autoridad ordene su expedición libres de derechos;
-Las peticiones que se someten a la resolución del Tribunal, y
-Señalamiento de casa para oír notificaciones. No es necesario estimar el valor pecuniario de la acción.
+Artículo 461.- Si la parte hubiera elegido el agotamiento de la vía administrativa, la falta de ese requisito no podrá exigirse de oficio y cualquier omisión al respecto se tendrá por subsanada, si la parte demandada no alega la excepción oportunamente. Esta debe interponerse siempre bajo pena de rechazo de plano, de forma fundada, indicándose y demostrándose en el mismo acto la razón concreta por la cual la discusión administrativa no puede tenerse por cerrada.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

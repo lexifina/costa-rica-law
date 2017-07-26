@@ -1,0 +1,3 @@
+Artículo 643.- Mientras no haya incumplimiento del fallo arbitral no podrán plantearse los procedimientos de solución de conflictos económicos y sociales a que se refiere este Código sobre las materias que dieron origen al juicio, a menos que el alza del costo de la vida, la baja del valor del colón u otros factores análogos, que los tribunales de trabajo apreciarán en cada oportunidad, alteren sensiblemente las condiciones económico sociales vigentes en el momento de dictar la sentencia.
+De todo fallo arbitral firme se enviará copia certificada a la Inspección General de Trabajo.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

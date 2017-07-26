@@ -1,6 +1,8 @@
-SECCION II
-De las faltas y de sus sanciones:
-(Nota: La ley No.7360 del 4 de noviembre de 1993, reformó los siguientes artículos 608 al 614 inclusive y agregó tres nuevos artículos 615 al 617, eliminando así la antigua Sección III, llamada "De las responsabilidades")
-ARTICULO 608.- Constituyen faltas punibles, las acciones u omisiones en que incurran los empleadores, los trabajadores, o sus respectivas organizaciones, que transgredan las normas previstas en los convenios adoptados por la Organización Internacional del Trabajo, ratificados por la Asamblea Legislativa y las normas previstas en este Código y en las leyes de seguridad social.
-(Nota: Mediante Voto N° 8072- 97 de las 13:48 horas del 28 de noviembre de 1997, publicado en el Boletín Judicial N° 11 de 16 de enero de 1998, la Sala Constitucional dispuso que este artículo no es inconstitucional)
-(Así reformado por el artículo 4º de la ley N° 7360 del 4 de noviembre de 1993)
+Artículo 608.- Los honorarios de los árbitros o las árbitras, salvo pacto en contrario, serán cubiertos por las partes de forma igualitaria.
+La fijación de esos honorarios se regirá conforme a la siguiente tabla:
+Un siete coma cinco por ciento (7,5%) sobre el primer millón de colones del monto de la pretensión económica; un cinco por ciento (5%) sobre los siguientes dos millones de colones; un dos coma cinco por ciento (2,5%) sobre el exceso hasta cinco millones; un uno por ciento (1%) sobre el exceso hasta cincuenta millones de colones y un cero coma cincuenta por ciento (0,50%) sobre el exceso de esa suma.
+En los procesos sobre pretensiones no estimables la fijación de los honorarios se hará prudencialmente y cuando se acumulen pretensiones estimables y no estimables, la estimación se hará tomando en cuenta unas y otras.
+La fijación la hará la autoridad del respectivo centro de arbitraje antes de darle curso a la solicitud y las partes deberán depositar lo que les corresponda dentro de los cinco días siguientes a la notificación.
+No obstante lo indicado en el párrafo primero, cuando el Fondo de Apoyo a la Solución Alterna de Conflictos que se crea en esta ley adquiera la solidez necesaria, sus rentas podrán destinarse a cubrir los honorarios de los árbitros o árbitras de las personas trabajadoras, según se establezca en el reglamento que se dicte.
+La Corte Suprema de Justicia podrá actualizar, al menos cada cinco años, la escala anteriormente señalada, atendiendo a la variación del índice de precios al consumidor.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

@@ -1,1 +1,3 @@
-ARTICULO 437.- A más tardar dentro de las veinticuatro horas siguientes a la presentación del incidente, el o los funcionarios judiciales de trabajo recusados harán constar en autos si reconocen o no como ciertos los hechos que alega el recusante, debiendo hacer la correspondiente rectificación si estuvieren referidos de modo inexacto.
+Artículo 437.- La competencia por la materia es improrrogable. Únicamente podrá ser protestada por la parte interesada, al contestar la demanda o contrademanda.
+La excepción de incompetencia será rechazada de plano, cuando las pretensiones deducidas en la demanda o reconvención sean de naturaleza laboral incuestionable. Esta resolución no condicionará el criterio del juez a la hora de resolver las pretensiones correspondientes en sentencia, atendiendo a las probanzas sobre la relación substancial que les sirvan de base.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

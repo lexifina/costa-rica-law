@@ -1,0 +1,7 @@
+Artículo 670.- La acusación deberá presentarse de forma escrita, ante el órgano jurisdiccional competente y cumplirá los siguientes requisitos:
+1) El nombre completo del acusador, el número de documento de identidad y el domicilio. Si se tratara de un representante, deberá indicar el carácter en que comparece y presentar el documento que lo acredite.
+2) Una relación detallada de los hechos, con expresión del lugar, el día, la hora y el año en que ocurrieron y, si se trata de situaciones continuadas, deberá indicarse el estado de esto último y, si ya ha cesado, la fecha en que la cesación tuvo lugar.
+3) El nombre de los responsables de la falta o el de los colaboradores, si los hubiera y, si se tratara de representantes o directores de una persona jurídica u organización social, el nombre de esta última. En todo caso, deberá indicarse la dirección exacta del denunciado donde se le pueda localizar. Las personas jurídicas deberán ser notificadas de conformidad con la Ley N.° 8687, Ley de Notificaciones Judiciales, de 4 de diciembre de 2008.
+4) Los elementos de prueba que a juicio del exponente conduzca a la comprobación de la falta, a la determinación de su naturaleza o gravedad y a la determinación de la responsabilidad.
+5) El medio para notificaciones conforme a los artículos 34 y 36 de la Ley N.° 8687, Ley de Notificaciones Judiciales, de 4 de diciembre de 2008, y la firma del acusador debidamente autenticada.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

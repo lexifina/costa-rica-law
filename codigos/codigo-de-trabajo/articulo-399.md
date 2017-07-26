@@ -1,2 +1,2 @@
-ARTICULO 399.- En cuanto no contraríen el texto y los principios referentes a la organización de los Tribunales de Trabajo que contiene este Título, se aplicarán supletoriamente las disposiciones de la Ley Orgánica del Poder Judicial.
-Las normas contenidas en este Capítulo se aplicarán a su vez, si no hubiere incompatibilidad, en silencio de las demás reglas del presente Título.
+Artículo 399.- La responsabilidad de las personas físicas es subjetiva y la de las personas jurídicas es objetiva. Cuando la conducta la realice un representante patronal de una empleadora persona jurídica o grupo de interés económico, en los términos del artículo 5 de este Código, la sanción recaerá también sobre estos según corresponda, a quienes solidariamente se extienden los efectos económicos de la falta del representante.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

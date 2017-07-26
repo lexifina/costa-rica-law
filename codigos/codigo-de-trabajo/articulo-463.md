@@ -1,2 +1,3 @@
-ARTICULO 463.- Si la demanda se interpusiere verbalmente, el Secretario levantará acta lacónica con todos los requisitos a que se refiere el artículo 461(*).
-(*) (Nota de Sinalevi: De acuerdo con el artículo 3º de la ley No.7360 del 4 de noviembre de 1993, se modificó la numeración del antiguo artículo 454, siendo ahora el 461)
+Artículo 463.- No se exigirán copias de los escritos y documentos que se aporten al proceso. Los documentos originales, cuya pérdida puede causar perjuicio irreparable, serán certificados a costa de la parte interesada, quedarán en la caja del respectivo despacho y serán mostrados a la parte contraria, si esta los pidiera.
+El despacho brindará a las partes las facilidades para que en cualquier momento, durante la jornada laboral, puedan obtener por su cuenta copias de las piezas de los expedientes.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

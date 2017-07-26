@@ -1,3 +1,2 @@
-ARTICULO 452.- En cuanto no contraríen el texto y los principios procesales que contiene este Título, se aplicarán supletoriamente las disposiciones del Código de Procedimientos Civiles.
-Si hubiere omisión de procedimiento en el presente Título, los Tribunales de Trabajo estarán autorizados para aplicar las normas del referido Código por analogía o para idear el que sea más conveniente al caso, a fin de que pueda dictarse con prontitud la resolución que decida imparcialmente las pretensiones de las partes.
-Las normas contenidas en este Capítulo se aplicarán a su vez, si no hubiere incompatibilidad, en silencio de las demás reglas del presente Título.
+Artículo 452.- El Patronato Nacional de la Infancia (PANI) será parte en los procesos en los cuales intervengan menores de edad o madres que demanden derechos relacionados con la maternidad.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

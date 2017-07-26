@@ -1,3 +1,2 @@
-ARTICULO 468.- Si el demandado no contestare la demanda o el reconvenido la reconvención, dentro del término que al respecto se les haya concedido, se tendrán por ciertos, en sentencia, los hechos que sirvan de fundamento a la acción, salvo que en el expediente existan pruebas fehacientes que los contradigan. Esta regla se aplicará también en cuanto a los hechos de la demanda y de la contrademanda, acerca de los cuales el demandado o el reconvenido, no haya dado contestación en la forma que indica el artículo 464(*).
-(Así reformado por el artículo 1° de la ley N° 3702 del 22 de junio de 1966)
-(*) (Nota de Sinalevi: De acuerdo con el artículo 3º de la ley No.7360 del 4 de noviembre de 1993, se modificó la numeración del antiguo artículo 457, siendo ahora el 464)
+Artículo 468.- Cada proceso dará lugar a la formación, con foliación ordenada y numerada, de expedientes físicos, los cuales también podrán ordenarse de forma electrónica.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

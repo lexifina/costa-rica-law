@@ -1,0 +1,3 @@
+Artículo 626.- Antes de la hora señalada para la comparecencia, el órgano conciliador oirá separadamente a los interesados o delegados de cada parte, y estos responderán con precisión y amplitud a todas las preguntas que se les hagan.
+Una vez que hayan determinado bien las pretensiones de las partes, en un acta lacónica hará las deliberaciones necesarias y luego llamará a los delegados a dicha comparecencia, a efectos de proponerles los medios o las bases generales del arreglo que su prudencia le dicte.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, "Reforma Procesal Laboral".)

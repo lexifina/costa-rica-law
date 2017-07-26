@@ -1,0 +1,3 @@
+Artículo 692.- Asimismo, queda absolutamente prohibido dispensar o excepcionar leyes o reglamentos vigentes, debidamente promulgados, por medio de los mecanismos de solución.
+Es entendido que cuando se trate de erogaciones que afecten el presupuesto nacional o el de una institución o empresa en particular, las decisiones que se emitan por las jerarquías y los órganos arbitrales deben sujetarse no solo a las restricciones que resultan de esta normativa, sino también a las normas constitucionales en materia de aprobación de presupuestos públicos, las que en caso de haber sido irrespetadas implicarán la nulidad absoluta de lo dispuesto.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

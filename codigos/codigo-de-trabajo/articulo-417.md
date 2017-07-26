@@ -1,2 +1,2 @@
-ARTICULO 417.- El Tribunal Superior de Trabajo conocerá en grado de las resoluciones dictadas por los Jueces de trabajo o por los Tribunales de Arbitraje, y los Jueces de Trabajo de las dictadas por los Alcaldes en materia de trabajo, cuando proceda la apelación o la consulta.
-(Así reformado por el artículo 1º de la ley N° 668 del 14 de agosto de 1946 )
+Artículo 417.- Los derechos y las acciones de los empleadores o las empleadoras, para reclamar contra quienes se separen injustificadamente de sus puestos, caducarán de acuerdo con lo previsto en el artículo 32 de este Código.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

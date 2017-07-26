@@ -1,0 +1,2 @@
+Artículo 687.- Las personas trabajadoras a que se refiere el artículo inicial de este título, que no tengan derecho de estabilidad en sus puestos de trabajo, solo podrán ser despedidas sin justa causa, expidiéndoles simultáneamente la orden de pago de las prestaciones que les corresponda. El acuerdo de despido y la orden de pago deberán publicarse en la misma fecha en el diario oficial La Gaceta.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

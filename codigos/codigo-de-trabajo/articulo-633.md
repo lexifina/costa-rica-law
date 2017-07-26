@@ -1,0 +1,3 @@
+Artículo 633.- En ningún caso los procedimientos de conciliación podrán durar más de veinte días hábiles, contados a partir del momento en que haya quedado legalmente constituido el órgano de conciliación.
+No obstante lo anterior, dicho órgano podrá ampliar este plazo hasta por el tiempo que las partes convengan de común acuerdo. Salvo que se acuerde dicha ampliación, al vencimiento del plazo se tendrá de pleno derecho por definitivamente agotado el procedimiento de conciliación. En tal caso, el órgano conciliador deberá elaborar el informe indicado en el artículo 630, en un término perentorio de cuarenta y ocho horas.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

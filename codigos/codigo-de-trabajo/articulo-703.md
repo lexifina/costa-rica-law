@@ -1,0 +1,2 @@
+Artículo 703.- Además de las actas individuales de cada sesión, al final del proceso negociador se levantará un acta de cierre en la que se recogerá el texto completo de las cláusulas que fueron negociadas y donde se indicará cuáles cláusulas del proyecto fueron desechadas o no pudieron negociarse por falta de acuerdo acerca de ellas.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

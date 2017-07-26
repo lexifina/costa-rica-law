@@ -1,1 +1,5 @@
-ARTICULO 591.- .-(Derogado por el artículo 119 de la ley Nº 1860 de 21 de abril de 1955 y por el artículo 139 de la ley Nº 3095 de 18 de febrero de 1963, la cual reprodujo íntegramente la anterior.)
+Artículo 591.- En la apelación no reservada y en la casación, interpuesto el recurso en tiempo, se emplazará a la parte o partes recurridas para que presenten dentro de tres días ante el mismo juzgado la expresión de sus agravios en relación con los motivos argumentados. Cuando el órgano superior se halle ubicado en una circunscripción territorial diferente, en la misma resolución prevendrá a todas las partes que atienden notificaciones en un lugar determinado y no por un medio electrónico de comunicación, hacer el respectivo señalamiento para recibir esas notificaciones en el tribunal que conoce del recurso y les hará las advertencias correspondientes, en el caso de que no lo hagan.
+El señalamiento de medios electrónicos valdrá para todas las instancias.
+El expediente se remitirá al órgano correspondiente, una vez transcurrido el término del emplazamiento.
+El recurso extemporáneo será rechazado de plano por el juzgado.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

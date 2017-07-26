@@ -1,0 +1,3 @@
+Artículo 673.- En la primera fase de la audiencia se procurará una solución conciliada, procurando el acuerdo entre las partes. Tal solución solo será promovida cuando el posible arreglo no implique una infracción a las disposiciones de trabajo y de previsión social, y los acuerdos solo serán válidos y homologables si no son contrarios a derechos irrenunciables de las partes o en cualquier otra forma violatorios de dichas disposiciones.
+En cuanto a los efectos y la ejecución del acuerdo, se estará a lo dispuesto en este título. Los hechos que sirvieron de sustento a la acusación no podrán invocarse nuevamente como causa de infracción.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

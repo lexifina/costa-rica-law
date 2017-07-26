@@ -1,3 +1,2 @@
-ARTICULO 432.- Cuando por impedimento, recusación, excusa u otro motivo, un miembro del Tribunal Superior de Trabajo tuviere que separarse del conocimiento de un negocio determinado, se procederá de conformidad con estas disposiciones:
-El Presidente será sustituido por un Magistrado suplente, que con ese fin será sorteado por la Corte Plena, y
-b. Los otros miembros del Tribunal serán sustituidos por sus respectivos suplentes y, en defecto de éstos, la Corte Plena elegirá libremente al representante que corresponda.
+Artículo 432.- Cuando se trate de derechos irrenunciables, los órganos de trabajo, al dictar sus sentencias, ajustarán los montos respectivos a lo que legalmente corresponda, aunque resulten superiores a lo indicado en la pretensión, cuando algún documento o medio probatorio lo sustente de forma indubitable. Respecto de los extremos renunciables, las estimaciones o las fijaciones hechas en la demanda regirán como límites que los órganos de trabajo no podrán sobrepasar.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

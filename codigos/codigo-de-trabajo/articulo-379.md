@@ -1,3 +1,2 @@
-CAPITULO SEGUNDO
-De los paros legales e ilegales
-ARTICULO 379.- Paro legal es la suspensión temporal del trabajo ordenada por dos o más patronos, en forma pacífica y con el exclusivo propósito de defender sus intereses económicos y sociales comunes. El paro comprenderá siempre el cierre total de las empresas, establecimientos o negocios en que se declare.
+Artículo 379.- La terminación de los contratos de trabajo o, en su defecto, el rebajo salarial o cualquier tipo de sanción, solo será procedente a partir de la declaratoria de ilegalidad de la huelga.
+(Así reformado por el artículo 1° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

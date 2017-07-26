@@ -1,2 +1,4 @@
-ARTICULO 494.- En ningún caso procederá el afianzamiento de costas, pero la sentencia contendrá expresión de que se condena en costas procesales, o en ambas costas, o que se pronuncia sin especial condenatoria en ellas.
-Por costas procesales se entenderán todos los gastos judiciales de que no puede haber exención, como depósitos para responder a honorarios de peritos y otros análogos.
+Artículo 494.- La solicitud se sustanciará en proceso incidental. Si lo que se pide es la suspensión de los efectos del acto, al dársele curso a la articulación, se ordenará a la autoridad administrativa no ejecutar el acto hasta tanto no se resuelva la solicitud, apercibiéndola de que el incumplimiento la hará incurrir en el delito de desobediencia a la autoridad y en el pago de salarios caídos. La notificación se hará legítimamente por cualquier medio escrito, inclusive por la propia parte interesada, si comprueba al despacho el recibido de la comunicación.
+La reinstalación se regirá en lo pertinente por lo dispuesto en el capítulo que regula el procedimiento de ejecución.
+En todo supuesto de violación de fueros especiales de tutela, la reinstalación precautoria se regirá por lo señalado en el procedimiento previsto para esos casos.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

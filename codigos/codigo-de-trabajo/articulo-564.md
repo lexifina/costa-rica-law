@@ -1,6 +1,2 @@
-CAPITULO SEXTO
-Del juzgamiento de faltas cometidas contra las leyes de trabajo o de previsión social
-ARTICULO 564.- Se confiere acción para hacer efectivas las responsabilidades que correspondan por la comisión de faltas contra las leyes de trabajo o dar previsión social, a las personas perjudicadas y a sus representantes legales o apoderados, a las autoridades administrativas de trabajo, a las entidades de protección a los trabajadores, y, cuando se trate de infracciones a disposiciones prohibitivas de este Código, también a los particulares.
-La acusación no podrá presentarse simultáneamente con la demanda de indemnizaciones que puedan ser consecuencia de la falta.
-El acusador podrá desistir de la acusación por él establecida; y cuando el desistimiento se fundare en haber habido error, o en arreglos no contrarios a derechos probados de las partes, o en cualquiera otra consideración de equidad que no implique infracción a las leyes de trabajo, se decretará la suspensión de procedimientos. También se decretará dicha suspensión cuando los hechos acusados o denunciados no constituyeren falta. En uno y otro casos caben contra lo resuelto los recursos legales.
-(Así reformado por el artículo 1° de la ley N° 668 de 14 de agosto de 1946)
+Artículo 564.- El contrato de cuota litis en materia laboral se regirá por las disposiciones del procedimiento civil. Sin embargo, tratándose de la parte trabajadora, los honorarios que deba pagar a su abogado o abogada no podrán ser superiores en ningún caso al veinticinco por ciento (25%) del beneficio económico que se adquiera en la sentencia.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

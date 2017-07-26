@@ -1,0 +1,2 @@
+Artículo 646.- El respectivo órgano pondrá la solicitud a conocimiento de la otra parte interesada y le prevendrá que dentro de tres días indique el nombre de la persona que actuará como su conciliadora o árbitra y de los delegados o delegadas, así como señalar lugar o medio para notificaciones.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

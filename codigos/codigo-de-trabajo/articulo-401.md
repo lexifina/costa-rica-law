@@ -1,5 +1,3 @@
-ARTICULO 401.- Los Juzgados de Trabajo serán Tribunales unipersonales, integrados por Jueces de Trabajo; cada uno de éstos será nombrado por la Corte Plena, durará cuatro años en su puesto y deberá reunir los siguientes requisitos:
-Ser costarricense, mayor de veinticinco años, ciudadano en ejercicio y del estado seglar;
-Ser Abogado o Bachiller en Leyes, de referencia especializado en Derecho de Trabajo;
-Tener gran solvencia moral y reconocida independencia de criterio, y
-d. Rendir caución por la suma de dos mil colones antes de entrar al ejercicio de su cargo.
+Artículo 401.- Al juzgarse las faltas de trabajo se aplicará la sanción que corresponda en cada caso, tomando en cuenta la gravedad del hecho, sus consecuencias, el número de faltas cometidas y la cantidad de trabajadores o trabajadoras que han sufrido los efectos de la infracción.
+Podrá aminorarse la sanción, siempre y cuando el infractor se comprometa a reparar el daño de inmediato de forma integral.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

@@ -1,2 +1,2 @@
-ARTICULO 448.- Ninguna organización social podrá gestionar judicialmente mientras no compruebe en autos su personería jurídica.
-Es entendido que toda organización social podrá ser representada en juicio por un profesional en Derecho, siempre que la respectiva Junta Directiva o el Presidente, Secretario General o Gerente otorgue, en nombre de ésta, el poder que corresponda.
+Artículo 448.- En las demandas contra el Estado, por actuaciones de la Administración Central, de los Poderes del Estado, del Tribunal Supremo de Elecciones, de la Contraloría General de la República y de la Defensoría de los Habitantes de la República, en tanto ejerzan función administrativa, la representación y defensa corresponderá a la Procuraduría General de la República.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

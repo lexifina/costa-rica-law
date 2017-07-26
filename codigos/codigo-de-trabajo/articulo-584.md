@@ -1,6 +1,2 @@
-CAPITULO OCTAVO
-De la intervención del Patronato Nacional de la Infancia
-ARTICULO 584.- Siempre que en un juicio de conocimiento de los Tribunales de Trabajo figure un trabajador menor de veintiún años o cuando se trate de acciones entabladas para proteger la maternidad de las trabajadoras, será notificado el Patronato Nacional de la Infancia por medio de su respectivo representante, a efecto de que intervenga, si lo tiene a bien, con todas las facultades que le conceden las leyes.
-Dicha notificación se hará, sin pérdida de tiempo, en cuanto aparezca en autos el interés de las referidas personas; contendrá indicación de la clase de juicio, del nombre completo de las partes y una síntesis muy breve de la naturaleza o causa del litigio; y se formulará telegráficamente en los casos muy urgentes, o por medio de simple nota escrita, que será entregada en las propias oficinas centrales del Patronato o en las de las Juntas Provinciales, según corresponda.
-Ningún Tribunal de Trabajo podrá dictar sentencia mientras no transcurran tres días después de la mencionada notificación, aunque debe prolongar los términos que señala este Título para pronunciar el fallo.
-Las disposiciones de este artículo no se aplicarán en los conflictos colectivos de carácter económico y social.
+Artículo 584.- Las apelaciones contra las resoluciones interlocutorias escritas se formularán de esa misma manera ante el órgano que dictó el pronunciamiento, dentro de tres días, y las que procedan contra las orales dictadas en audiencia deberán interponerse en el mismo acto de la notificación y deberá dejarse constancia de su interposición y motivación en el acta.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

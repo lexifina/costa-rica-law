@@ -1,1 +1,2 @@
-ARTICULO 597.-(Derogado por el artículo 119 de la ley Nº 1860 de 21 de abril de 1955 y por el artículo 139 de la ley Nº 3095 de 18 de febrero de 1963, la cual reprodujo íntegramente la anterior.)
+Artículo 597.- Los órganos de alzada y de casación, al conocer de los agravios esgrimidos en los recursos, se ajustarán a la materialidad de los elementos probatorios incorporados al expediente y, racionalmente, a los límites del principio de inmediación.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

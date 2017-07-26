@@ -1,3 +1,2 @@
-ARTICULO 380.- El paro será legal si los patronos se ajustan a los requisitos previstos por los artículo 379 y 373(*), inciso b), y dan luego a sus trabajadores un aviso con un mes de anticipación para el solo efecto de que éstos puedan dar por terminados sus contratos, sin responsabilidad para ninguna de las partes, durante ese período.
-Este aviso se dará en el momento de concluirse los procedimientos de conciliación.
-(*)(Nota de Sinalevi: De acuerdo con el artículo 3º de la ley No.7360 del 4 de noviembre de 1993, se modificó la numeración de los antiguos artículos 372 y 366, siendo ahora 379 y 373)
+Artículo 380.- La huelga legal suspende los contratos de trabajo vigentes en los establecimientos, negocios, departamentos o centros de trabajo en que esta se declare, por todo el tiempo que ella dure. En los casos en que la huelga no se haya declarado en la totalidad del centro, sino en uno de los departamentos, secciones o categoría de trabajadores específicos, la suspensión operará únicamente respecto a estos.
+(Así reformado por el artículo 1° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

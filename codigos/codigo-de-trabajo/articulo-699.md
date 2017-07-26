@@ -1,0 +1,2 @@
+Artículo 699.- En caso de conflicto en la determinación de la organización u organizaciones sindicales legitimadas para negociar y suscribir una convención colectiva, el jerarca de las instituciones o cualquiera de las organizaciones sindicales involucradas podrá solicitar, al Ministerio de Trabajo y Seguridad Social, hacer la designación correspondiente, con arreglo a lo dispuesto en el artículo 56 y las disposiciones de este capítulo.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)
