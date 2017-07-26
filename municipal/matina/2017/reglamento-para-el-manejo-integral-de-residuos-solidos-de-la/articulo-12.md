@@ -1,0 +1,9 @@
+Artículo 12. Condiciones requeridas para el servicio de recolección selectiva
+Todo usuario al que la Municipalidad le brinde el servicio de recolección tradicional, deberá separar en la fuente de generación, almacenar y entregar los residuos de materiales reciclables al servicio de recolección selectiva municipal. De lo contrario, la Municipalidad podrá suspender el servicio de recolección tradicional. Los residuos clasificados como materiales valorizables dentro de la recolección selectiva corresponden a los descritos en el inciso a), b), c),d), e) y f) del presente artículo. El usuario cumplirá lo estipulado en el artículo 9, inciso a) de este reglamento, considerando las siguientes categorías y sus condiciones de entrega.
+a) Cartón y cartoncillo: libres de contaminantes (grasas, pinturas, residuos). En caso de que la cantidad de cartón sea mucha, este debe ir amarrado en cruz y con un peso no mayo a 10 Kg por paca
+b) Papel: blanco, periódico, cartulinas, de color y revistas limpias, libres de contaminantes
+c) Plásticos: Envases plásticos refrescos gaseosos, jugos, bebidas energéticas y agua, identificados reciclaje, champú, aceites, desinfectantes, bolsas plásticas, plástico para envolver y empaques de alimentos que estén identificados, enjuagados, escurridos y compactados.
+d) Vidrio: Envases de vidrio de cualquier color, libres de contaminantes. No se recibirá el vidrio plano.
+e) Aluminio: Latas de refrescos y cervezas, de preferencia compactadas.
+f) Poli laminados: Envases de bebidas jugos, vinos y lácteos identificados con el nombre “Tetrapak”, libres de contaminantes.
+Los usuarios deberán entregar los materiales antes citados en bolsas transparentes o translúcidas, o en bolsas negras con rotulación o distintivos basados en los colores definidos en la Estrategia Nacional de Separación, Recuperación y Valorización de Residuos, ENSRVR
