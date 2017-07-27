@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE GOLFITO
+La Municipalidad de Golfito mediante la resolución R-AM-MG-0017-2017 de las 11:39 horas del 7 de marzo de 2017, en la figura del Lic. Elberth Barrantes Arrieta, en calidad de Alcalde de la Municipalidad de Golfito procedió a aprobar para su aplicación la adhesión al Manual de Valores Base Unitarios por Tipología Constructiva elaborada por el Órgano de Normalización Técnica de la Dirección General de Tributación, Ministerio de Hacienda conforme dispone el artículo 3° y 12 de la Ley N° 7509 y sus reformas, así como el Informe Técnico que la sustenta y que fuera publicado en el Alcance N° 19 del Diario Oficial La Gaceta N° 57, del lunes 23 de marzo del 2015. Rige a partir de su publicación.
+Golfito, 7 de marzo de 2017
