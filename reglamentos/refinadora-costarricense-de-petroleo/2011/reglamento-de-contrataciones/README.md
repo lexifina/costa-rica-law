@@ -19,3 +19,4 @@ Reglamento de Contrataciones
 | 4 | 2014-03-24 | Reglamento 4783 (2014-03-24) |
 | 5 | 2016-11-25 | Reglamento 0 (2016-11-25) |
 | 6 | 2017-02-20 | Reglamento 4974 (2017-02-20) |
+| 7 | 2017-07-27 | Reglamento 4992 (2017-07-27) |
