@@ -20,3 +20,4 @@ Estatuto Orgánico de la Universidad Estatal a Distancia
 | 5 | 2013-10-25 | Reglamento 0 (2013-10-25) |
 | 6 | 2016-11-04 | Reglamento 100 (2016-11-04) |
 | 7 | 2016-12-07 | SINALEVI (sin norma nombrada) |
+| 8 | 2017-07-28 | Reglamento 103 (2017-07-28) |
