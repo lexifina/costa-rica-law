@@ -1,1 +1,0 @@
-Artículo 20.—Un estudiante de III Ciclo que no cursó el sétimo año en Costa Rica, deberá aprobar una prueba que contemple los objetivos y los contenidos de los programas de estudio de Estudios Sociales y Educación Cívica de 7º Año en el colegio donde obtuvo matrícula. Esto será condición para poder obtener la conclusión de la Educación General Básica.

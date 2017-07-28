@@ -1,1 +1,0 @@
-Artículo 14.—El estudiante que hubiere sido aplazado en una o más asignaturas, se debe matricular en el mismo año en que se encuentra aplazado. Su ubicación definitiva se hará hasta tanto se defina su condición, una vez conocidos los resultados de las dos convocatorias.

@@ -1,1 +1,0 @@
-Artículo 29.—Para realizar la matrícula ordinaria o extraordinaria en la nueva institución educativa al que se traslada, el estudiante debe presentar la certificación de calificaciones correspondiente, con el visto bueno del Supervisor del Circuito Escolar donde esté ubicada la institución de procedencia, sea éste público o privado.
