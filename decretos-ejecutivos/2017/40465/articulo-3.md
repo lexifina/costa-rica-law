@@ -1,0 +1,1 @@
+Artículo 3: La finalidad de la garantía. La garantía tiene como finalidad asegurar el correcto cumplimiento de los deberes y las obligaciones de los funcionarios, así como resarcir los eventuales daños y perjuicios que en el ejercicio de su cargo produzcan al patrimonio público, de acuerdo con su grado de responsabilidad.

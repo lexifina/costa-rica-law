@@ -1,0 +1,1 @@
+Transitorio único: Las garantías que se hayan rendido, previo a la entrada en vigencia de esta normativa, mantendrán su vigencia hasta su vencimiento, posterior al cual, las nuevas garantías se regirán según lo dispuesto en el presente Reglamento.

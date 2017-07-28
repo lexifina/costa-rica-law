@@ -1,0 +1,1 @@
+Artículo 5: Deber de solventar la garantía. Es deber del caucionante gestionar y sufragar de su propio peculio, el costa integro de la garantía a favor del Ministerio o de los Órganos Desconcentrados, bajo la Forma contemplada en el artículo 4° de este Reglamento.

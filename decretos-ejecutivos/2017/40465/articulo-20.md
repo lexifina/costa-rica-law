@@ -1,0 +1,1 @@
+Artículo 20: El encargado del control de las garantías, que por culpa o dolo no informe a la Ministra(o) o al Jerarca del Órgano Desconcentrado, cualquier anomalía, será solidariamente responsable del perjuicio ocasionado.

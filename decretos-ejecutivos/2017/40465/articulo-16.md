@@ -1,0 +1,1 @@
+Artículo 16: Unidad de Apoyo. El Departamento Financiero Contable del Ministerio prestará el apoyo necesario al Departamento de Gestión Institucional de Recursos Humanos del Ministerio y a las Unidades Auxiliares de Gestión Institucional de Recursos Humanos de los Órganos Desconcentrados, para que puedan cumplir la finalidad de este Reglamento.
