@@ -1,0 +1,1 @@
+Artículo 54—Denuncias. Toda denuncia que se tramite en la Auditoría Interna del TRA deberá acogerse a lo estipulado en el Manual para la atención de denuncias presentadas en la Auditoría Interna del Tribunal Registral Administrativo.

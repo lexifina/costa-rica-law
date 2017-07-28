@@ -1,0 +1,1 @@
+Artículo 46—Informes de Auditoría. Los informes de Auditoría Interna versarán sobre diversos asuntos de su competencia y se regirán por lo que al respecto establece la Ley General de Control Interno, N° 8292, las Normas Generales de Auditoría para el Sector Público, resolución R-DC-64-2014, y otra normativa emitida por la Contraloría General de la República.

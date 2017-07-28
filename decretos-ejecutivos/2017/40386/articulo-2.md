@@ -1,0 +1,1 @@
+Artículo 2—Ámbito de aplicación. El presente Reglamento es de acatamiento obligatorio para todos los funcionarios de la Auditoría Interna y para el resto de los funcionarios de la Administración Activa del Tribunal Registral Admirativo en la materia que les resulte aplicable.

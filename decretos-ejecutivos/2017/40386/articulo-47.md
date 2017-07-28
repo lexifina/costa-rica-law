@@ -1,0 +1,1 @@
+Artículo 47—informes dirigidos a los titulares subordinados. Cuando los informes de auditoría contengan recomendaciones dirigidas a los titulares subordinados, se procederá de acuerdo con el artículo 36 de la Ley General de Control Interno, N°8292.

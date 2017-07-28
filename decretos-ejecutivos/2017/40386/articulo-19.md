@@ -1,0 +1,1 @@
+Artículo 19—Medidas de independencia y objetividad. El Auditor Interno establecerá de manera formal, las medidas necesarias para controlar y administrar eventuales situaciones que puedan afectar o cuestionar la objetividad e independencia de la Auditoría Interna.

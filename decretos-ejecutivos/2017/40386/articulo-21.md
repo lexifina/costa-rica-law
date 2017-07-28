@@ -1,0 +1,1 @@
+Artículo 21—Requisitos del Auditor Interno. El Auditor Interno deberá ser contador público autorizado y contar al menos con licenciatura en un área atinente, así como cumplir con todos los requisitos que exige la normativa que al efecto emita la Contraloría General de la República. Además, deberá conocer las disposiciones legales que rigen la Administración Pública.

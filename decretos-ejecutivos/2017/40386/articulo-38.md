@@ -1,0 +1,7 @@
+Artículo 38— Prohibiciones. El Auditor Interno y el personal de Auditoría Interna tendrán las siguientes prohibiciones, previstas en el artículo 34 de la Ley General de Control Interno, N° 8292:
+a) Realizar funciones y actuaciones de administración activa, salvo las necesarias para cumplir su competencia.
+b) Formar parte de un órgano director de un procedimiento administrativo.
+c) La participación permanente del Auditor Interno en las sesiones o reuniones del Tribunal. Cuando se requiera su participación en dichas sesiones o reuniones, su actuación ha de ser conforme a su responsabilidad de asesor.
+d) Ejercer profesiones liberales fuera del cargo, salvo en asuntos estrictamente personales, en los de su cónyuge, sus ascendientes, descendientes y colaterales por consanguinidad y afinidad hasta tercer grado, o bien, cuando la jornada no sea de tiempo completo, excepto que exista impedimento por la existencia de un interés directo o indirecto del propio ente u órgano. De esta prohibición se exceptúa la docencia, siempre que sea fuera de la jornada laboral.
+e) Participar en actividades político-electorales, salvo la emisión del voto en las elecciones nacionales y municipales.
+f) Revelar información sobre las auditorías o los estudios especiales de auditoria que se estén realizando y sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios de los órganos sujetos de auditoría.

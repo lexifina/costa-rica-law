@@ -1,0 +1,1 @@
+Artículo 28—Declaración de bienes. El Auditor Interno está obligado a cumplir con el requisito de declarar su situación patrimonial, ante la Contraloría General de la República, conforme lo establece el artículo 21 de la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Ley N° 8422.

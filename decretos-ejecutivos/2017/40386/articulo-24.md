@@ -1,0 +1,8 @@
+Artículo 24—Dirección de la Auditoría Interna. Además de las funciones mencionadas, y las que se establecen en los cuerpos normativos citados, al Auditor Interno le corresponde la dirección superior de la Auditoría Interna, que incluye entre otras:
+a) Ejercer el máximo nivel de competencia, responsabilidad y autoridad de la Auditoría Interna.
+b) Coordinar el proceso de planificación estratégica de la Auditoría Interna, sus objetivos, misión, visión, sus valores fundamentales y su proyección.
+c) Dirigir y administrar la Auditoría Interna; para ello podrá dictar los lineamientos, directrices, políticas e instrucciones pertinentes, según la normativa jurídica y técnica, con criterios uniformes en el ejercicio de las competencias y en las relaciones con la Administración.
+d) Formular, gestionar, mantener vigente, cumplir y hacer cumplir el Reglamento de Organización y Funcionamiento de la Auditoría Interna., de conformidad con el artículo 23 de la Ley General de Control Interno, Ley 8292.
+e) Realizar sus funciones de orden sustantivo y estratégico, en el diseño, implementación, dirección, evaluación y mejora constante de la calidad de los procesos, procedimientos, productos y servicios que corresponden a la unidad a su cargo y tendrá bajo su responsabilidad la coordinación y control.
+f) Implantar una adecuada gestión de supervisión, de manera que le permita asegurar la calidad de los procesos, servicios y productos de la auditoría. Con ese fin deberá establecer un programa de aseguramiento de la calidad de su unidad.
+g)Supervisar la Unidad a su cargo y verificar el cumplimiento de los objetivos de la unidad, de cada proceso y de cada estudio en particular, así como de las

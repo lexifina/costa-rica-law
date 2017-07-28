@@ -1,0 +1,3 @@
+Artículo 16— Prohibiciones al personal de Auditoría Interna. La Auditoría Interna tendrá las prohibiciones establecidas en el artículo 34 de la Ley General de Control Interno, Ley N° 8292.
+Se deberán también considerar las prohibiciones contenidas en el capítulo II de la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Ley N° 8422,
+y las Directrices Generales sobre Principios y Enunciados Éticos a Observar por parte de los Jerarcas, Titulares Subordinados, Funcionarios de la Contraloría General de la República, Auditorías Internas y Servidores Públicos en General, N° D-2-2004-CO.

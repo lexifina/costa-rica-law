@@ -1,0 +1,1 @@
+Artículo 56—Derogatoria. Se deroga y deja sin efecto el Reglamento de organización y Funciones de la Auditoria Interna del Tribunal Registral Administrativo, Decreto Ejecutivo N° 35069-JP del 04 de febrero de 2009, publicado en el Diario Oficial La Gaceta N° 40 del 26 de febrero del 2009.
