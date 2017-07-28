@@ -1,6 +1,6 @@
 # Ley de Notificaciones Judiciales
 
-Ley N° 8687 del 2008-12-04. SINALEVI, ficha 64786: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=64786&param2=75313&param3=1>.
+Ley N° 8687 del 2008-12-04. SINALEVI, ficha 64786: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=64786&param2=109091&param3=1>.
 
 Publicada en La Gaceta N° 20 del 2009-01-29.
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 4 | 2009-03-01 | Ley 8687 | 2008-12-04 |
+| 2 de 4 | 2017-07-28 | Ley 9462 | 2017-07-11 |
