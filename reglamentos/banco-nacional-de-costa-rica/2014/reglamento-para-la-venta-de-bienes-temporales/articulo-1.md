@@ -1,4 +1,6 @@
+(Derogado)
 BANCO NACIONAL DE COSTA RICA
+(Esta norma fue derogada por el artículo 21 del Reglamento para la adjudicación de bienes temporales del Banco Nacional de Costa Rica, aprobado en sesión N° 12180 del 31 de julio de 2017)
 El Banco Nacional de Costa Rica comunica la parte resolutiva del acuerdo tomado por la Junta Directiva General N° 11.918, artículo 13º, celebrada el 30 de junio del 2014, en el cual acordó dejar sin efecto lo acordado en el artículo 19°, numeral 2) de la sesión 11.714 del 26 de julio el 2011 y lo acordado en el artículo 9°, sesión 11.790 del 4 de noviembre del 2012, relativos al Reglamento de Gestión y Venta de Bienes Temporales. 2)Aprobar, en consecuencia, el documento denominado Reglamento para la venta de Bienes Temporales, para que, en lo sucesivo, se lea de conformidad con el siguiente texto:
 REGLAMENTO PARA LA VENTA
 DE BIENES TEMPORALES

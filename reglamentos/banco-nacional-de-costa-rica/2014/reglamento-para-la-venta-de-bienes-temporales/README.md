@@ -14,3 +14,4 @@ Reglamento para la venta de bienes temporales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-13 | la propia norma |
+| 2 | 2017-07-31 | Reglamento 12180 (2017-07-31) |
