@@ -1,0 +1,1 @@
+Artículo 18. —El estudiante adquiere la condición regular en la institución educativa, siempre y cuando, cumpla con el acto de ratificación de matrícula en la forma que establezca el respectivo centro educativo.

@@ -1,0 +1,1 @@
+Artículo 30—El estudiante con séptimo, octavo o noveno año aprobado en un colegio técnico profesional, que se traslade a un colegio académico, diurno o nocturno, ingresa al año inmediato superior y debe cursar el plan de estudios respectivo.

@@ -1,0 +1,1 @@
+Artículo 5°—Toda persona menor de edad tiene derecho a recibir educación pública gratuita. En ningún caso, el ejercicio de ese derecho estará sujeto a discriminación por su situación socioeconómica, estatus migratorio irregular, condición de estudiante proveniente del extranjero, nivel social o lugar de residencia del estudiante, condición de discapacidad u otra.

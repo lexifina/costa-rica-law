@@ -1,0 +1,1 @@
+Artículo 24.— Para que un estudiante pueda trasladarse, al inicio del curso lectivo de un centro educativo a otro, es condición previa indispensable que haya definido totalmente su promoción en la institución de procedencia, ya sea esta pública o privada. Ninguna institución puede aplicar pruebas de aplazados a estudiantes que provengan de otros centros educativos.

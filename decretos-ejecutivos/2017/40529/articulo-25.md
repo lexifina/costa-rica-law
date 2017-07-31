@@ -1,0 +1,1 @@
+Artículo 25—Para realizar la matrícula en el nuevo centro educativo al que se traslada el estudiante; el padre, la madre o el representante legal debe presentar la certificación de calificaciones correspondiente, con el visto bueno del supervisor del Circuito Escolar donde esté ubicada la institución de procedencia, sea este público o privado.

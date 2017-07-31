@@ -1,0 +1,1 @@
+Artículo 4°—En Educación Preescolar, primer grado, séptimo año de la Educación General Básica y en el Colegio Nacional Virtual Marco Tulio Salazar, para su ingreso, se realizará, previo a la matrícula ordinaria, un proceso de prematrícula en las fechas que establece el calendario escolar.

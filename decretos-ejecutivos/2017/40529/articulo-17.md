@@ -1,0 +1,1 @@
+Artículo 17.—Las disposiciones de este reglamento, referentes con la matrícula de estudiantes procedentes del extranjero, son de acatamiento obligatorio para todas las instituciones educativas del país (públicas y privadas).

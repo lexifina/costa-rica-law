@@ -1,0 +1,1 @@
+Artículo 29.—El estudiante con séptimo, octavo y noveno año aprobado en un colegio académico que desee trasladarse a un Colegio Técnico Profesional, ingresa al año inmediato superior y debe cursar el plan de estudios respectivo.

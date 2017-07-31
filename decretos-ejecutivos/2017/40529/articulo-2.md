@@ -1,0 +1,1 @@
+Artículo 2° —Todo proceso de prematrícula y de matrícula en una institución educativa está sujeto al cumplimiento de la veracidad de los requisitos, condiciones y procedimientos que se establecen en este reglamento. El proceso de prematricula se realiza una sola vez al año en los plazos definidos en el calendario escolar.

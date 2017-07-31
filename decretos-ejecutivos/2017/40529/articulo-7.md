@@ -1,0 +1,1 @@
+Artículo 7°—Le corresponde al supervisor y el director de las instituciones educativas asumir la responsabilidad del proceso administrativo de verificación de matrícula para efectos de solicitudes de: continuidad de servicios, nuevos códigos, ampliación de jornadas y cambios de modalidad.

@@ -1,0 +1,1 @@
+Artículo 15. —El estudiante procedente del extranjero que ingrese antes del 30 de abril, según lo que señala el artículo 2, debe definir su condición académica en el primer período. La institución educativa correspondiente brindará los objetivos y contenidos de cada asignatura en los que se debe examinar, para establecer las calificaciones de ese primer período.

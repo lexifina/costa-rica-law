@@ -1,0 +1,1 @@
+Artículo 14.—Una vez presentados por los interesados los documentos señalados en el artículo 12, el director del centro educativo los revisa, verifica y resuelve en un plazo no mayor a 10 días hábiles, con el objetivo de garantizar el derecho a la educación de las personas que hacen la solicitud.
