@@ -1,2 +1,0 @@
-Artículo 100.—Con fundamento en el artículo 43 del Código Municipal, el presente proyecto de Reglamento se someterá a consulta popular no vinculante, por el término de diez días hábiles, a través de la publicación del mismo en el Diario Oficial La Gaceta, término durante el cual los interesados deberán presentar sus manifestaciones por escrito, en memorial razonado, ante el despacho del señor Alcalde Municipal, ubicado en el edificio de la Municipalidad.
-Santo Domingo de Heredia, 16 de agosto del 2000.—Br. Olivier Sánchez Méndez, Alcalde Municipal.

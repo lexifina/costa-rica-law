@@ -1,1 +1,0 @@
-Artículo 83.—El Comité Cantonal y sus órganos sólo podrán invertir sus fondos en terrenos o propiedades que sean propiedad de la Municipalidad, lo cual deberá ser coordinado con el Concejo, de conformidad con lo establecido en el artículo 170 del Código Municipal.

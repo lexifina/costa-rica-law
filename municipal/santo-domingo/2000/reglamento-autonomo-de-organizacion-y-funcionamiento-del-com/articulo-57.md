@@ -1,1 +1,0 @@
-Artículo 57.—Las sesiones ordinarias y extraordinarias de los Comités Comunales y los Subcomités de Deportes, serán públicas. Ordinariamente, deberán sesionar cada quince días. Extraordinariamente, lo harán cuando lo requieran.

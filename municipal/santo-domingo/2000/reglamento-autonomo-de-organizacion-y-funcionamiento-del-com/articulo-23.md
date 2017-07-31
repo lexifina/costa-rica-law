@@ -1,1 +1,0 @@
-Artículo 23.—En la primera sesión, mediante votación nominal se elegirán los cargos de la Junta Directiva, quienes desempeñarán el cargo en forma ad honorem, por un período de un año, pudiendo ser reelectos, salvo en el caso de que alguno de los miembros le hubiese sobrevenido alguno de los supuestos del numeral 11 de este Reglamento.

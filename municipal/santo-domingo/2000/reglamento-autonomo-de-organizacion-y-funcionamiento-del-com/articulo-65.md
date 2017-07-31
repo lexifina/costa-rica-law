@@ -1,1 +1,0 @@
-Artículo 65.—Para la satisfacción de sus necesidades, los Comités Comunales deben organizar actividades para recaudar fondos, pudiendo solicitar para ello la colaboración de la empresa privada y de las instituciones públicas. Esas actividades deberán ser sometidas previamente a la aprobación del Comité Cantonal.

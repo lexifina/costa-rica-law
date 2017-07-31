@@ -1,1 +1,0 @@
-Artículo 10.—El Comité Cantonal de acuerdo con las políticas generales que en materia deportiva y de recreación fije el Concejo, establecerá los controles que corresponden para que sus órganos y afiliados cumplan con las funciones asignadas con el logro de dichas políticas y con su gestión de fomentar, tutelar y dirigir el deporte y la recreación en el cantón.

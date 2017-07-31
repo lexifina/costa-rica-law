@@ -1,1 +1,0 @@
-Artículo 29.—Todo miembro, en forma escrita; deberá comunicar las razones de su inasistencia a más tardar dentro de las veinticuatro horas siguientes a su ausencia. En caso contrario, será catalogada la ausencia como injustificada y sancionable.

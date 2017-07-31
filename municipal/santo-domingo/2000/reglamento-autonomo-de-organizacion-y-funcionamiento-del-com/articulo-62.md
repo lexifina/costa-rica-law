@@ -1,1 +1,0 @@
-Artículo 62.—Los Comités Comunales deben nombrar los Subcomités de Deportes en el plazo improrrogable de un mes, contado a partir de la fecha en que inicien sus funciones. Los miembros de los Subcomités de Deportes deberán cumplir con los requisitos establecidos en el artículo 49 de Reglamento.

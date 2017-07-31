@@ -1,1 +1,0 @@
-Artículo 59.—Los Comités Comunales deberán rendir un informe trimestral de labores y de los resultados obtenidos ante el Comité Cantonal, el cual deberá conocerlo y pronunciarse al respecto en la sesión inmediata siguiente al recibo del mismo, ya sea que se trate de una sesión ordinaria o extraordinaria.

@@ -1,2 +1,0 @@
-Artículo 11.—No podrán forma parte del Comité Cantonal ni de los Comités Comunales las siguientes personas: Los regidores, el alcalde municipal, los alcaldes suplentes, el tesorero, el auditor y el contador municipal, alcanzando esta prohibición a los cónyuges o parientes en la línea directa o colateral hasta el tercer grado inclusive, de conformidad con lo dispuesto en el artículo 167 del Código Municipal.
-(Así reformado mediante sesión N° 3-2007 del 15 de enero del 2007).

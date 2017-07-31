@@ -1,1 +1,0 @@
-Artículo 50.—Los Comités Comunales serán conformados por una Junta Directiva, compuesta de cinco miembros: quienes deberán ser residentes de la comunidad respectiva, nombrados por la asamblea general convocada para tal efecto por el Comité Cantonal.

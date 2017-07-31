@@ -1,3 +1,0 @@
-CAPÍTULO III
-De la Junta Directiva
-Artículo 13.—La Junta Directiva del Comité Cantonal, es la máxima autoridad de este Organismo y es la encargada de su gobierno y dirección, con absoluta observancia de las directrices que fije la Municipalidad en el Plan Anual y los reglamentos internos, que emita dentro de las facultades al efecto dispuestas en el artículo 169 del Código Municipal. Sin embargo, la celebración de cualquier tipo de contrato o convenio de cualquier naturaleza; así como cualquier otro acto que comprometa recursos económicos o bienes, deberá ser suscrito entre la parte interesada y el Alcalde Municipal, quien ostenta la representación legal judicial y extrajudicial de la Municipalidad.
