@@ -9,7 +9,8 @@ g) Hacienda Pública, Monetario y Supervisión Financiera;
 h) Cultura y Juventud;
 i) Transporte e Infraestructura;
 j) Seguridad Ciudadana y Justicia;
-k) Ciencia, Tecnología y Telecomunicaciones;
+k) Ciencia, Tecnología, Telecomunicaciones y Gobernanza Digital
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40682 del 31 de julio del 2017)
 l) Economía, Industria y Comercio.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 38997 del 19 de mayo de 2015)
 m) Política Internacional, y

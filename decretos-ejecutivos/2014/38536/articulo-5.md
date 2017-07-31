@@ -11,7 +11,8 @@ g) Hacienda Pública, Monetario y Supervisión Financiera, bajo la rectoría de 
 h) Cultura y Juventud, bajo la rectoría de la o el Ministro de Cultura y Juventud;
 i) Transporte e Infraestructura, bajo la rectoría de la o el Ministro de Obras Públicas y Transportes;
 j) Seguridad Ciudadana y Justicia, bajo la rectoría de la o el Ministro de Seguridad Pública;
-k) Ciencia, Tecnología y Telecomunicaciones, bajo la rectoría de la o el Ministro de Ciencia, Tecnología y Telecomunicaciones;
+k) Ciencia, Tecnología, Telecomunicaciones, Gobernanza Digital bajo la rectoría de la o el Ministro de Ciencia, Tecnología y Telecomunicaciones
+(Así reformado el inciso anterior por el artículo 1° de decreto ejecutivo N° 40682 del 31 de julio del 2017)
 l) Economía, Industria y Comercio, bajo la rectoría de la o el Ministro de Economía, Industria y Comercio.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 38997 del 19 de mayo de 2015)
 m) Política Internacional, bajo la rectoría de la o el Ministro de Relaciones Exteriores y Culto; y
