@@ -14,3 +14,4 @@ Reglamento de Operación del Consejo Director del Polo Turístico del Golfo de P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-11-05 | la propia norma |
+| 2 | 2017-07-31 | Reglamento 5990 (2017-07-31) |
