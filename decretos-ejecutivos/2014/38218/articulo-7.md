@@ -1,1 +1,0 @@
-Artículo 7º—Cada representante y su suplente será nombrado por el respectivo jerarca institucional por espacio de dos años, incluyendo a la persona representante del Ministerio de Salud. Cumplido este plazo el jerarca respectivo definirá si prorroga o sustituye su nombramiento de acuerdo a los intereses de la institución y de la Comisión.
