@@ -1,2 +1,5 @@
-Artículo 38.—Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.
-Abróguese el actual Reglamento de la Junta Directiva del INA, publicado en La Gaceta 201 del Viernes 16 de octubre 2009 el cual fue aprobado en la sesión 4395, del 6 de julio de 2009, la Junta Directiva, así como todas las reformas y modificaciones anteriores a la entrada en vigencia del presente Reglamento.
+CAPÍTULO XIII
+Disposiciones Transitorias
+(Así adicionado el capítulo anterior mediante sesión N° 4803 del 31 de julio de 2017)
+Artículo 38: Transitorios
+(Así adicionado mediante sesión N° 4803 del 31 de julio de 2017)

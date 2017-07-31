@@ -7,7 +7,8 @@ e) Colaborar con quien ejerza la Presidencia de la Junta Directiva en la prepara
 (Así reformado el inciso anterior en sesión N° 4741 del 09 de mayo del 2016)
 f. Asistir a las sesiones ordinarias y extraordinarias de la Junta Directiva.
 g. Dar la revisión final a los borradores de actas de las sesiones ordinarias y extraordinarias que celebre el órgano colegiado y supervisar los ajustes y correcciones que formulen quienes integran la Junta Directiva.
-h. Firmar junto con quien ejerza la Presidencia de la Junta Directiva, las actas de cada sesión ordinaria y extraordinaria, manteniendo al día los libros de actas correspondientes, y archivándolos de conformidad con la Ley del Sistema Nacional de Archivos Nº 7202.
+h) Firmar digitalmente, junto con quien ejerza la Presidencia de la Junta Directiva, las actas de cada sesión ordinaria y extraordinaria, manteniendo al día los libros de actas correspondientes, y archivándolos o bien en formato electrónico mediante el sistema informático correspondiente de conformidad con la Ley del Sistema Nacional de Archivos N° 7202.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 4803 del 31 de julio del 2017)
 i. Comunicar oportunamente los acuerdos y resoluciones dictados por la Junta Directiva, actuando por delegación administrativa.
 j. Orientar a quienes integran la Junta Directiva, sobre acuerdos anteriores, relacionados con los asuntos que aquélla deba resolver, a fin de evitar contradicciones o repeticiones con respecto a actos anteriores.
 k. Mantener el control de los acuerdos pendientes de ejecución dictados por la Junta Directiva y comunicarle a ésta de su cumplimiento cada tres meses.

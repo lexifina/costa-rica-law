@@ -15,3 +15,4 @@ Reglamento de la Junta Directiva del Instituto Nacional de Aprendizaje
 | --- | --- | --- |
 | 1 | 2015-01-06 | la propia norma |
 | 2 | 2016-05-09 | Reglamento 4741 (2016-05-09) |
+| 3 | 2017-07-31 | Reglamento 4803 (2017-07-31) |
