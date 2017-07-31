@@ -14,3 +14,4 @@ Calendario anual de sorteos y planes de premiso de loterías 2017
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-22 | la propia norma |
+| 2 | 2017-07-31 | Acuerdo 732 (2017-07-31) |

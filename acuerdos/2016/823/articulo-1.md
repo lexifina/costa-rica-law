@@ -395,7 +395,6 @@ TIEMPOS IMPRESOS | 2912 | 75 veces la inversión. | 04/01/2018
 5/11/2017 | Domingo | NACIONAL | 4465 | ₡ 160.000.000 | 04/01/2018
 TIEMPOS IMPRESOS | 2913 | 75 veces la inversión. | 04/01/2018
 [imagen]
-[imagen]
 DICIEMBRE
 FECHA | DÍA | LOTERÍA | Nº DE SORTEO | PREMIO MAYOR | Fecha caducidad
 1/12/2017 | Viernes | POPULAR | 6268 | ₡ 80.000.000 | 01/02/2018
@@ -696,7 +695,8 @@ Premios | Nombre Premio | Premio por billete | Premio por fracción | Monto Prem
 999 | Número igual al Segundo Premio excepto su serie | ₡60.000 | ₡6.000 | ₡59.940.000
 999 | Número igual al Tercer Premio excepto su serie | ₡30.000 | ₡3.000 | ₡29.970.000
 | Cantidad Premios Directos | 4 | ₡644.660.000
-[imagen]
+(Nota de Sinalevi. Mediante sesión ordinaria 28- 2017 del 31 de julio del 2017 se establece los siguiente: “Se aprueba la modificación del plan de premios del sorteo N° 6246 del viernes 15 de setiembre del 2017, quedando de la siguiente manera:
+[imagen] ”)
 CALENDARIO ELECTRÓNICA "NUEVOS TIEMPOS" DE ENERO A DICIEMBRE 2017
 ENERO 2017
 DÍA | FECHA | Nº DE SORTEO | TIPO DE LOTERÍA
