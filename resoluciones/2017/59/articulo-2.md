@@ -1,0 +1,1 @@
+Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución número RES-DHG-033-2017 del 17 de abril de 2017, publicada en el Alcance N° 89 a La Gaceta N° 77 del 25 de abril de 2017.
