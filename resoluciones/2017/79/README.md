@@ -14,3 +14,4 @@ Medida sanitaria de prohibición de derribas a fincas piñeras ubicadas en el di
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-24 | la propia norma |
+| 2 | 2017-08-01 | Resolución 80 (2017-08-01) |
