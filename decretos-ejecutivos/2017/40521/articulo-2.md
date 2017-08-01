@@ -1,0 +1,1 @@
+Artículo 2°— Deróguese el Decreto Ejecutivo número 40391-H de fecha 7 de abril de 2017, publicado en el Alcance número 91 a La Gaceta número 79 de fecha 27 de abril de 2017, a partir de la vigencia del presente decreto.
