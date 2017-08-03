@@ -1,0 +1,1 @@
+Artículo 38. Si en determinado momento, o caso, se llegare a dar o crearse una nueva clasificación o nominación de patente, la Municipalidad podrá previo estudio clasificarla y tasarle el residuo donde cree que sea necesario.

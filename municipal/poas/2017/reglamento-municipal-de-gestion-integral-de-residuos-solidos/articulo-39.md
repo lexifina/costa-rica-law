@@ -1,0 +1,1 @@
+Artículo 39. La Municipalidad establecerá multas e intereses moratorios por incumplimientos a este reglamento y por atrasos en el pago del servicio de recolección de los residuos sólidos, de acuerdo con lo establecido en la legislación vigente.

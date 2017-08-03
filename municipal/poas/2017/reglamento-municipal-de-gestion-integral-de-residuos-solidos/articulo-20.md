@@ -1,0 +1,4 @@
+CAPÍTULO V
+Manejo Integral de residuos de manejo especial
+Artículo 20. La responsabilidad por el manejo de los residuos provenientes de la construcción o demolición corresponde al dueño de la propiedad, el cual debe garantizar su recolección, transporte y disposición final en forma directa o mediante un gestor autorizado. El sitio de disposición debe cumplir con los requisitos legales y evitar ser una molestia para los vecinos y los trabajadores. Queda prohibido tener este tipo de residuos sobre la vía pública o en la acera.
+En caso de incumplimiento de este artículo, se le notificará la anomalía al dueño de la propiedad y se le dará un plazo de tres (3) días naturales para resolver la situación. De no resolverse la anomalía de acuerdo a lo notificado, la Municipalidad procederá a clausurar la construcción.

@@ -1,0 +1,1 @@
+Artículo 33. La Municipalidad a petición del contribuyente podrá realizar un estudio específico para el usuario del servicio, para determinar la cantidad de residuos ordinarios generados, si es que la Municipalidad o el contribuyente consideran que la generación de este es diferente a la establecida en el rango de generación donde se clasificó originalmente.

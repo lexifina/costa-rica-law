@@ -1,0 +1,28 @@
+CAPÍTULO III
+Del manejo integral de los residuos sólidos
+Artículo 8. Tanto los generadores, los usuarios del servicio, así como las entidades autorizadas por la Municipalidad para el manejo de algunas de las etapas de la gestión de los residuos sólidos en el cantón, son responsables de acatar las disposiciones establecidas en este reglamento.
+Es responsabilidad de los diferentes actores lo siguiente:
+a) Generador:
+1. Almacenar temporalmente los residuos generados en su casa o terreno de tal forma, que no causen ningún impacto ambiental y/o riesgo a su salud o de otras personas de la comunidad.
+2. Colocar los residuos sólidos generados a partir de la hora y día de la recolección según lo establecido en el contrato de prestación de dicho servicio previa divulgación, de tal forma que no causen impactos ambientales o de salud.
+3. Colocar los residuos en el suelo o en una canasta metálica de baja altura, al frente de su
+propiedad, o en un contenedor colectivo, en los dominios de la vía pública, de forma que no puedan ser alcanzados por animales.
+4. En zonas, donde se ofrece recipientes colectivos, el generador tiene que depositar sus residuos sólidos en el mismo, garantizando que los mismos serán cerrados después de su uso.
+5. Mantener limpios los sitios con los contenedores o los recipientes en donde se disponen los residuos sólidos en espera de su recolección.
+6. Los residuos a ser recolectados tienen que estar en bolsas o recipientes cerrados.
+7. En las zonas, donde la Municipalidad ofrece el servicio de recolección separada de materiales valorizables, los mismos tienen que ser separados desde su generación y puestos por separado al servicio de la recolección. La identificación del tipo de residuo (material valorizable, residuo sólido ordinario) tiene que ser facilitada por el recolector.
+8. Los residuos valorizables tales como vidrio, papel, cartón, plástico y aluminio entre otros, deben ser entregados secos y libres de residuos orgánicos y en el horario establecido. El ente recolector podrá establecer otras o nuevas condiciones para su separación, embalaje y recolección, que serán comunicadas previamente a los usuarios en forma escrita.
+9. Entregar sus residuos sólidos separados en diferentes recipientes. El recipiente de los residuos puede ser desechable o reutilizable.
+10. Los residuos punzo-cortantes deberán ser empacados individualmente para reducir al máximo el riesgo para el personal recolector.
+11. Las empresas agrícolas, industriales y comerciales, deberán disponer de un sistema de separación y recolección, acumulación y disposición final de los residuos sólidos provenientes de sus operaciones, aprobado por el Ministerio de Salud cuando la naturaleza, o cantidad de estos, no fuere sanitariamente aceptable el uso del sistema público.
+12. Los residuos sólidos separados, los no aprovechables y los residuos de jardín, deberán ser entregados en bolsas plásticas que impidan que éstos se mojen. En el caso de establecimientos comerciales o instituciones que produzcan una cantidad de residuos no aprovechables equivalente a cuatrocientos cuarenta decímetros cúbicos de residuos sólidos por jornada de recolección o más (2 o más estañones), deberán disponer los residuos en contenedores cerrados, con acceso directo desde la vía pública y de fácil manipulación para el personal de la recolección. Queda prohibido el uso de recipientes que por su forma o materiales, puedan poner en riesgo la salud de los funcionarios de la recolección o transeúntes.
+b) Recolector:
+1. Prestar el servicio de la recolección de residuos sólidos en forma accesible, periódica y eficiente para todos los usuarios.
+2. Garantizar la recolección en el área bajo su responsabilidad. La frecuencia de la recolección es decidida de común acuerdo con los responsables municipales. El recolector puede ser la Municipalidad o una empresa privada a la que fue otorgada una concesión.
+Independientemente de esto, la responsabilidad frente al usuario sigue siendo de la Municipalidad.
+c) Responsables del tratamiento:
+La Municipalidad realiza los siguientes tratamientos de residuos en su cantón:
+1. Separación del material reciclable: La Municipalidad instala centros de recuperación propios y promueve también la instalación de centros privados. El funcionamiento y las condiciones de estos centros se define en un convenio/contrato separado, sus resultados referente a los horarios de funcionamiento y de los materiales a recibir se pone en conocimiento de la población por parte de la Municipalidad.
+2. Compostaje, Lombricompost, Bocashi y Takakura: La Municipalidad incentivará en la fuente de generación de residuos orgánicos fácilmente biodegradables, el tratamiento mediante las técnicas citadas anteriormente con el fin darle un mejor uso a los residuos y disminuir cantidad de los mismos enviados al relleno sanitario.
+3. Operador del relleno sanitario: El operador del relleno sanitario puede ser la Municipalidad, un concesionario del sector privado u otra persona jurídica, que cumple con los requisitos para hacerlo de acuerdo con la legislación vigente. El operador tiene que garantizar el funcionamiento del relleno sanitario de acuerdo con el permiso para su funcionamiento. En caso de incumplimiento, la Municipalidad puede tomar las medidas que considere necesarias.
+4. Limpieza: La Municipalidad se encargará de ejecutar los servicios de aseo de vías y espacios públicos, así como el manejo sanitario de animales muertos en la vía pública. Le corresponde también prevenir y eliminar los vertederos de residuos en todo el territorio del cantón y el acopio no autorizado de residuos sólidos.

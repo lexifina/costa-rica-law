@@ -1,0 +1,1 @@
+Artículo 40. La Municipalidad tendrá la obligación de tener actualizada la contabilidad de costos del servicio de recolección municipal de residuos sólidos, antes de solicitar una actualización de tasas de recolección. Esta contabilidad de costos deberá realizarse de acuerdo a las normas de contabilidad generales aceptadas

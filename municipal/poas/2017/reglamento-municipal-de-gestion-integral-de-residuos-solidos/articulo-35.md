@@ -1,0 +1,1 @@
+Artículo 35. Toda persona física o jurídica podrá presentar su respectivo reclamo si considera que el factor de ponderación que se le aplica no está acorde con el promedio de generación de residuo semanal. O si considera que el cobro por el uso del servicio de relleno sanitario de residuos voluminosos, no es el adecuado.

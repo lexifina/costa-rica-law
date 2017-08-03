@@ -1,0 +1,1 @@
+Artículo 42. En aquellas propiedades en donde existan casas de habitación y negocios comerciales, se cobrarán por separado las tasas de recolección a cada generador, de acuerdo con la generación de residuos ya sea a nivel comercial o domiciliar.
