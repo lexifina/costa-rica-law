@@ -1,0 +1,1 @@
+Artículo 23. Recursos ordinarios. Contra la resolución final podrá interponerse el recurso de Revocatoria y Apelación en Subsidio ante la Alcaldía Municipal, por cualquiera de las partes dentro de los 5 días hábiles siguientes a la notificación de la resolución.

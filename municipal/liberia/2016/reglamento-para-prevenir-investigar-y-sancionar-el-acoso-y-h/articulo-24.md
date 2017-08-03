@@ -1,0 +1,1 @@
+Artículo 24. Denuncias falsas. Las denuncias falsas se consideran falta grave y la persona denunciada podrá plantear gestión ante la Alcaldía, para que se le dé el trámite correspondiente. Todo ello sin demérito que la persona denunciada pueda plantear las acciones judiciales que estime convenientes.

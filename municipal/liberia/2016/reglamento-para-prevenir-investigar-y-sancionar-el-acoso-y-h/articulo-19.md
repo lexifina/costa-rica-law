@@ -1,0 +1,1 @@
+Artículo 19. De la audiencia de evacuación de prueba. Vencido el término concedido en el artículo 16, el Órgano Instructor hará comparecer a las partes, recibiendo en el acto la prueba testimonial y los demás medios de pruebas existentes, señalando lugar, fecha y hora para tal efecto.

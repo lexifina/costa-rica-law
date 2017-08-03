@@ -1,0 +1,2 @@
+Artículo 22. Conclusión y resolución. Al finalizar el procedimiento el Órgano Instructor deberá rendir un informe sobre los hechos denunciados al Órgano Decisor, manteniendo siempre la confidencialidad, mediante el cual se emitirán las conclusiones del proceso y las recomendaciones correspondientes, de acuerdo con la gravedad de los hechos acreditados, para que tome en definitiva la resolución sobre el caso.
+El procedimiento correspondiente no puede exceder de 3 meses incluyendo el dictado de la resolución final, contados a partir del recibo de la denuncia.

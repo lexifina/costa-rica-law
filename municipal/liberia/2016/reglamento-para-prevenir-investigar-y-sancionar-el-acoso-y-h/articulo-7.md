@@ -1,0 +1,1 @@
+Artículo 7. Obligatoriedad de acciones de divulgación y prevención. Recursos Humanos y la Comisión de Capacitación estarán obligados a realizar al menos dos veces al año, procesos de capacitación y divulgación y otros en temas de acoso y hostigamiento sexual.

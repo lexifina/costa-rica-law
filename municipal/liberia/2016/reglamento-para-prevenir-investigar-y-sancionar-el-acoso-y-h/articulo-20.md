@@ -1,0 +1,1 @@
+Artículo 20. Prueba para mejor resolver. En cualquier fase del proceso, el órgano Instructor podrá ordenar la práctica de cualquier prueba o la ampliación de la que exista, siempre que se considere de influencia decisiva en el resultado del procedimiento. Una vez producida la prueba, se dará audiencia a las partes, para que en el plazo de tres días se pronuncien sobre ella.

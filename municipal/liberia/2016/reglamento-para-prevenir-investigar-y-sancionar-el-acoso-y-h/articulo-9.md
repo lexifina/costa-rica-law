@@ -1,0 +1,1 @@
+Artículo 9. Conformación del Órgano Instructor. El órgano instructor será conformado preferiblemente por tres personas, en las que estén representados ambos sexos, con conocimientos en materia de hostigamiento sexual y régimen disciplinario.
