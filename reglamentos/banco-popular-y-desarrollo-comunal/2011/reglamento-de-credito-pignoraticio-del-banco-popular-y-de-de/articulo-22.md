@@ -1,1 +1,1 @@
-Artículo 22.—De la cancelación del remate: El remate de una operación se cancelará si una hora antes del inicio de la sesión la operación fuese cancelada o en razón de lo que indique otra norma jurídica aplicable.
+Artículo 22.- DEROGADO.

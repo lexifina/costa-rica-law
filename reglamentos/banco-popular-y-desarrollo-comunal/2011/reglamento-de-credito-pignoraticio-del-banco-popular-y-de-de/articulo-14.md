@@ -1,1 +1,1 @@
-Artículo 14.—Verificación del estado de la garantía: La clientela podrá solicitar en cualquier tiempo que se le muestren sus bienes, lo cual se hará contra la presentación del comprobante respectivo y un documento de identidad, previo el pago de la comisión establecida en la tabla de cargos y comisiones anexa a este Reglamento.
+Artículo 14.-Verificación del estado de la garantía: El deudor podrá solicitar en cualquier momento que se le muestren sus bienes, lo cual se hará contra la presentación del comprobante respectivo, el pago de comisión y un documento de identidad.
