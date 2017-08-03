@@ -1,0 +1,1 @@
+Artículo 32: Las vacaciones, permisos, y licencias se regularán por la legislación vigente en cada momento y los acuerdos entre la corporación y sus funcionarios. Estos días deberán de solicitarse con un plazo mínimo de cuatro días de antelación y se concederán siempre que el servicio no se comprometa o se encuentre en una situación especial.

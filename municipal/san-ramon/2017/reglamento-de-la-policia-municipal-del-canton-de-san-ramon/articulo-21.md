@@ -1,0 +1,1 @@
+Artículo 21º: La Policía Municipal procurará evitar la comisión de delitos, faltas e infracciones y denunciará todas aquellas que vea cometer. Así mismo, informará de cuantas deficiencias observe en el funcionamiento o conservación de los bienes y servicios municipales.

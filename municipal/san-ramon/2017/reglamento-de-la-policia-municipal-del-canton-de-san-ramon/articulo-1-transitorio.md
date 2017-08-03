@@ -1,0 +1,1 @@
+Transitorio I: La amplitud funcional de la Policía Municipal estará condicionada a las posibilidades del recurso humano con que cuente la misma. De tal manera que, para asumir en su plenitud las atribuciones del presente reglamento se deberá considerar el fortalecimiento del recurso humano de la mencionada Policía Municipal.

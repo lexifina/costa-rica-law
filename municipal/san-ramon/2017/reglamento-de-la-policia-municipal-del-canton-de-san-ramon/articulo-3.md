@@ -1,0 +1,1 @@
+Artículo 3°: Potestad: La Policía Municipal es responsable de velar y hacer cumplir la reglamentación y normativa especial municipal, así como labores de colaboración en actividades de índole penal preventivo donde procederá a poner en conocimiento a las autoridades judiciales o administrativas sobre lo actuado , para lo que corresponda.

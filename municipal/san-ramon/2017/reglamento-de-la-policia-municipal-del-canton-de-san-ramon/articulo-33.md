@@ -1,0 +1,1 @@
+Artículo 33º: Los miembros de la Policía Municipal tendrán derecho a que su defensa, en asuntos judiciales producto del desempeño de su trabajo, les sea provista por la Municipalidad, mediante la Unidad de Gestión Jurídica.

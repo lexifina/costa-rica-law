@@ -1,0 +1,1 @@
+Artículo 22º: Los miembros de la Policía Municipal, deberán prestar mutuo apoyo a los miembros de otras autoridades policiales, cuando sea necesaria su intervención en apoyo de éstas y se cuente con los recursos para hacerlo.

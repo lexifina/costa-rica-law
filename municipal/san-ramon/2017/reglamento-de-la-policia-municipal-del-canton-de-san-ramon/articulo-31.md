@@ -1,0 +1,1 @@
+Artículo 31º: Las distinciones otorgadas a los miembros de la Policía Municipal serán tenidas en cuenta para la valoración en los concursos para el ascenso a otro cargo dentro de Policía Municipal, y para el acceso a los cursos de actualización de conocimientos y especialización.

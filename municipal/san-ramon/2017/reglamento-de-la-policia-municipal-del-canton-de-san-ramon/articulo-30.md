@@ -1,0 +1,1 @@
+Artículo 30º: Los incentivos a que se refiere el artículo anterior en su inciso a), será efectuado por el Jefe de Policía Municipal. La Mención Honorífica la otorgará el Alcalde Municipal y la distinción por actos heroicos, el Concejo Municipal.

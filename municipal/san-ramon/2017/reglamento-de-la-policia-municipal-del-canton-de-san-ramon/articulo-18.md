@@ -1,0 +1,1 @@
+Artículo 18º: En los casos de emergencia y desastres, la Policía Municipal deberá presentarse en el menor tiempo posible a su respectiva base y prestar sus funciones, aunque estuvieran libres de servicio.

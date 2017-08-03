@@ -1,0 +1,1 @@
+Artículo 13°: Las pruebas toxicológicas en personal activo se harán en orden aleatorio, así mismo el funcionario está en la obligación de comunicar por escrito a su superior si está siendo tratado con algún medicamento, y el resultado de estos exámenes deberán valorarse conforme al artículo anterior.
