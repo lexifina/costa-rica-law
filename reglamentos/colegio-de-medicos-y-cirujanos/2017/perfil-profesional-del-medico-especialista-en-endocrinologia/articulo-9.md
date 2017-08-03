@@ -1,0 +1,1 @@
+Artículo 9.-El médico especialista en Endocrinología integra y coordina grupos de trabajo relacionados con su especialidad en su servicio o departamento, intra e interinstitucionales, así como intersectoriales.

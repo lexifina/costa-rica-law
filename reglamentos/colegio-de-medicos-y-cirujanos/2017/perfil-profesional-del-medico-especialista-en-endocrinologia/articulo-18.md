@@ -1,0 +1,1 @@
+Articulo 18.-Es deber del médico especialista elevar ante el Colegio de Médicos y Cirujanos de Costa Rica, aquellos casos en el que se incurra en un incumplimiento de la presente normativa y reglamento del Colegio de Médicos y del ejercicio legal de la especialidad para su análisis y respectiva sanción cuando esta corresponda.
