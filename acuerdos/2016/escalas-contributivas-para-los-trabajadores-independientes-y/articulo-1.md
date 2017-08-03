@@ -7,6 +7,7 @@ Y COLECTIVAMENTE
 La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 22 de la sesión número 8865, celebrada el 29 de setiembre de 2016 acordó:
 1) Establecer la siguiente escala contributiva para los trabajadores independientes y asegurados voluntarios afiliados individual y colectivamente, a partir del 01 de octubre del año 2016 y hasta el 30 de setiembre del año 2017.
 [imagen]
+(Así actualizada la tabla anterior mediante sesión N° 8919 del 3 de agosto del 2017)
 Notas:
 (1) Adicionalmente la contribución del Estado como tal es de 0.25% en el Seguro de Salud y 1.24% Seguro de IVM.
 (2) SM corresponde al salario mínimo legal del trabajador no calificado genérico, decretado por el Poder Ejecutivo y vigente en cada momento.

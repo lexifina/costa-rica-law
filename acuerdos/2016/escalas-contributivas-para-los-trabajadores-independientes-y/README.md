@@ -14,3 +14,4 @@ Escalas contributivas para los trabajadores independientes y asegurados voluntar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-10-28 | la propia norma |
+| 2 | 2017-08-03 | Acuerdo 0 (2017-08-03) |
