@@ -1,5 +1,4 @@
-ARTICULO 47 LLAMADA DE ATENCION POR LA ADMINISTRACION CON CONSTANCIA EN LA BITACORA
-La administración de la Villa procederá a realizar una llamada de atención al Comité Cantonal en la persona de su entrenador o delegado por las siguientes faltas:
+ARTICULO 47 LLAMADA DE ATENCION POR LA ADMINISTRACION CON CONSTANCIA EN LA BITACORA. La administración de la Villa procederá a realizar una llamada de atención al Comité Cantonal en la persona de su entrenador o delegado por las siguientes faltas:
 47.1 Sacar fuera de las aulas-dormitorios o hacer mal uso de los artículos puestos a disposición de las delegaciones en las habitaciones tales como catres, colchonetas, basureros, muebles, etc.
 47.2 No disminuir el volumen de los equipos de sonido y / o televisores en general a partir de las 22:00 horas perturbando la tranquilidad de los demás participantes.
 47.3 Llegadas tardías a la villa, sobre todo antes del cierre oficial 24:00 horas.

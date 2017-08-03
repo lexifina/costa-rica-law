@@ -1,5 +1,4 @@
-ARTICULO 7 LA DIRECCIÓN NACIONAL DEL INSTITUTO COSTARRICENSE DEL DEPORTE Y LA RECREACIÓN
-La Dirección Nacional del ICODER, a través del Dpto. de Juegos Deportivos Nacionales es una unidad operativa dentro de la estructura organizativa del ICODER y le corresponde:
+ARTICULO 7 LA DIRECCIÓN NACIONAL DEL INSTITUTO COSTARRICENSE DEL DEPORTE Y LA RECREACIÓN. La Dirección Nacional del ICODER, a través del Dpto. de Juegos Deportivos Nacionales es una unidad operativa dentro de la estructura organizativa del ICODER y le corresponde:
 7.1 Ejecutar las directrices, resoluciones, acuerdos, planes y programas que apruebe el Consejo Nacional del Deporte y la Recreación.
 7.2 La planificación, organización, ejecución, dirección, supervisión, control y evaluación de los Juegos Deportivos Nacionales
 7.3 Integrar los equipos de trabajo necesarios para el desarrollo de los Juegos Deportivos Nacionales.
@@ -13,4 +12,5 @@ La Dirección Nacional del ICODER, a través del Dpto. de Juegos Deportivos Naci
 7.11 Colaborar con los respectivos Tribunales en las indagatorias que este le asigne de conformidad con los casos que estén en estudio.
 7.12 Coordinar con la Comisión Regional de Coordinación y Comisiones Cantonales la organización y desarrollo de las actividades atinentes de cada edición a nivel regional y cantonal.
 7.13 Recibir las denuncias o apelaciones presentadas por los Comités Cantonales de Deporte y Recreación para el traslado a los Tribunales.
-7.14 Las demás que le asignen este Reglamento.
+7.14 Aprobar los actos, contratos y convenios conducentes a obtener patrocinio o financiamiento para el programa, aprobando los términos de las negociaciones financieras y autorizando las garantías y compromisos que deben adquirirse si fueren necesarias. El Consejo podrá ceder a los Comités de Apoyo Locales y Regionales algunos derechos de comercialización.
+7.15 Las demás que le asignen este Reglamento.

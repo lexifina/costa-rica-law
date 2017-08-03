@@ -14,3 +14,4 @@ Reglamento general de competición y disciplinario de juegos deportivos nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-13 | la propia norma |
+| 2 | 2017-08-03 | Reglamento 1022 (2017-08-03) |

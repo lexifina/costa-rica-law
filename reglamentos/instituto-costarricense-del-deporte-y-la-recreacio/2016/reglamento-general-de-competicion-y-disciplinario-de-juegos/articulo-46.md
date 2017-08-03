@@ -1,5 +1,4 @@
-ARTICULO 46 DEBERES Y PROHIBICIONES
-Durante la estadía en las villas deportivas los atletas, cuerpos técnicos, Comités Cantonales y colaboradores autorizados para utilizar el mismo deberán cumplir con los siguientes deberes y prohibiciones:
+ARTICULO 46 DEBERES Y PROHIBICIONES. Durante la estadía en las villas deportivas los atletas, cuerpos técnicos, Comités Cantonales y colaboradores autorizados para utilizar el mismo deberán cumplir con los siguientes deberes y prohibiciones:
 46.1 Para el ingreso a la villa los participantes deben mostrar su identificación la cual debe consignar que está hospedado en dicha villa y verificado por el control establecido para tal fin.
 46.2 Dentro de la villa, deberán portar siempre las identificaciones a fin de tener acceso a los diferentes servicios que le brinda la organización.
 46.3 Mantener una conducta honorable y de respeto hacia todas las personas con las que se relacione en las villas.
@@ -7,7 +6,7 @@ Durante la estadía en las villas deportivas los atletas, cuerpos técnicos, Com
 46.5 La portación y el uso de armas de fuego y objetos punzo cortantes están terminantemente prohibidos dentro y en los alrededores de la villa.
 46.6 En las diferentes áreas de la villa, está estrictamente prohibido el ingreso y / o consumo de bebidas alcohólicas y estupefacientes, así como el acceso a sus instalaciones a personas en estado de pre o ebriedad, o bajo los efectos de alguna droga.
 46.7 Se prohíben los juegos de azar y cruzar apuestas con dinero a la vista.
-46.8 Los artículos puestos a disposición de las delegaciones en las habitaciones tales como catres, colchonetas, basureros, muebles, etc., no podrán ser sacados fuera de las aulas- dormitorios sin permiso de la Administración.
+46.8 Los artículos puestos a disposición de las delegaciones en las habitaciones tales como catres, colchonetas, basureros, muebles, etc., no podrán ser sacados fuera de las aulas-dormitorios sin permiso de la Administración.
 46.9 A partir de las 21:00 horas deberá disminuirse el volumen de los equipos de sonido y / o televisores y a partir de las 22:00 horas se deberá guardar silencio.
 46.10 Apagar las luces a más tardar a las 23:00 horas evitando la presencia de personas ajenas a su dormitorio, así como producir ruidos que molesten a las demás personas internas.
 46.11 El cierre administrativo de las villas será informado por La Oficina de Juegos Deportivos Nacionales, únicamente podrá ser cambiado bajo comunicado oficial.
@@ -24,8 +23,7 @@ Durante la estadía en las villas deportivas los atletas, cuerpos técnicos, Com
 46.22 No se permitirá a ninguna persona entrar o permanecer en los cuartos, estando ausente el o los responsables del mismo.
 46.23 Quedan prohibidos los actos en cualesquiera de sus manifestaciones y acciones que atenten contra la moralidad y tranquilidad de los demás participantes, especialmente mediante las llamadas de “iniciación o similares connotaciones” que atenten contra el pudor, moral e integridad física, emocional y psicológica de la persona.
 46.24 Al concluir la participación el responsable de la delegación deberá entregar las llaves y la habitación en las mismas condiciones de cantidad y estado físico de los bienes y planta física en que se le asigno, solicitando el correspondiente recibo con la autorización de salida.
-46.25 Queda estrictamente prohibido la permanencia y / o alojar niños (as) que no sean participantes en competición aún cuando estos sean hijos (as) de cualquier tipo o
-condición de usuario, salvo autorización expresa de la Oficina de Juegos Deportivos Nacionales.
+46.25 Queda estrictamente prohibido la permanencia y / o alojar niños (as) que no sean participantes en competición aun cuando estos sean hijos (as) de cualquier tipo o condición de usuario, salvo autorización expresa de la Oficina de Juegos Deportivos Nacionales.
 46.26 Es responsabilidad del usuario, contribuir al buen ejemplo, cuidado e higiene de las instalaciones, del equipo deportivo y de las oficinas, por tal motivo queda estrictamente prohibido lo siguiente:
 a. El rayado o destrucción de muebles, paredes y equipo.
 b. Saltar bardas, tapias, mallas o cercas de alambre.

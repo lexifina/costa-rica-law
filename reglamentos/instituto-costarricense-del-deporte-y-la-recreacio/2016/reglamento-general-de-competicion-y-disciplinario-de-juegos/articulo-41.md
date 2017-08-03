@@ -1,6 +1,5 @@
-ARTICULO 41. SANCIÓN DE SUSPENSION POR EL RESTO DE LA EDICIÓN Y TRES EDICIONES MÁS
-Será sancionado un atleta, cuerpo técnico, Comité Cantonal y colaborador con suspensión por el resto de la edición y las siguientes tres ediciones el que incurriere en alguna de las siguientes faltas:
-En todos los casos, excepto el 40.7, además de la sanción al atleta, se sanciona por igual al entrenador.
+ARTICULO 41. SANCIÓN DE SUSPENSION POR EL RESTO DE LA EDICIÓN Y TRES EDICIONES MÁS. Será sancionado un atleta, cuerpo técnico, Comité Cantonal y colaborador con suspensión por el resto de la edición y las siguientes tres ediciones el que incurriere en alguna de las siguientes faltas:
+En todos los casos, excepto el 41.7, además de la sanción al atleta, se sanciona por igual al entrenador.
 41.1 Alteración de documentos con datos falsos.
 41.2 Falsificación de documentos públicos y privados
 41.3 Falso Testimonio

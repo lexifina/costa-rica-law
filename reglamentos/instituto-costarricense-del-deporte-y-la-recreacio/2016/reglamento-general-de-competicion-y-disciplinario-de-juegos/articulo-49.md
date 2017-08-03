@@ -1,5 +1,4 @@
-ARTICULO 49 SANCION DE SUSPENSION POR EL RESTO DE LA EDICION Y UNA EDICION MÁS
-Las siguientes faltas cometidas por los atletas, cuerpos técnicos, equipos y colaboradores serán sancionadas por:
+ARTICULO 49 SANCION DE SUSPENSION POR EL RESTO DE LA EDICION Y UNA EDICION MÁS. Las siguientes faltas cometidas por los atletas, cuerpos técnicos, equipos y colaboradores serán sancionadas por:
 49.1 Faltar a algunas de las siguientes consideraciones básicas de comportamiento y disciplina, causando:
 a. El rayado o destrucción de muebles, paredes y equipo.
 b. Usar puertas que no correspondan para su acceso.
