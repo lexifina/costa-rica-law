@@ -1,0 +1,13 @@
+Artículo 3° Requisitos:
+La solicitud indicada en el artículo anterior deberá contener los siguientes requisitos:
+a) Formulario que proporcione el Colegio.
+b) Solicitud expresa del médico especialista requerido, en la cual indique sus calidades.
+c) 2 Fotos tamaño pasaporte.
+d) Certificación original antecedentes penales: Se debe presentar original de la Certificación de Antecedentes Penales emitida por el Registro Judicial, del Poder Judicial de la República de Costa Rica, cuando el gestionante haya residido en los últimos diez años en nuestro país.
+En el caso de solicitantes extranjeros con menos de diez años de vivir en Costa Rica, deberán aportar además de lo mencionado en el párrafo anterior, una certificación de su antecedente penal (criminal o legal), emitida por la autoridad correspondiente de su país de origen o del último de residencia. En casos de excepción y de imposibilidad debidamente justificada ante la Fiscalía del Colegio, se podrá aportar una declaración jurada protocolizada hecha ante notario público costarricense, donde manifieste que no ha sido condenado penalmente, tanto en su país de origen o en su último país de residencia.
+e) Presentar el documento de identidad vigente y en buen estado, en caso de ser extranjero presentar el pasaporte vigente y en buen estado.
+f) Curriculum vitae, al cual debe adjuntarse los documentos idóneos que demuestren su experiencia.
+g) Oficio en el que conste la oferta laboral expedida por el Director Médico de la entidad pública empleadora, con indicación de la especialidad requerida, Lugar y horario de trabajo. Además que indique cuáles han sido las acciones que se han tomado para que dicha plaza haya sido ofrecida a algún especialista, por otros mecanismos ordinarios de contratación y por qué se considera la plaza ofertada como deficitaria.
+En dicha oferta se indicará el plazo por el cual se pretende contratar al médico requerido, el horario, las labores que realizará, además del nombre del Jefe de Servicio y del Médico Especialista que estará a cargo de su supervisión.
+h) Copia del título de médico y cirujano extendido por una universidad reconocida para tales efectos, así como el título de médico especialista en la especialidad requerida. Estos títulos deben estar autenticados por las autoridades del país de origen, la del Cónsul de Costa Rica en dicho país y la del Ministerio de Relaciones Exteriores y Culto de la República de Costa Rica. Quedará facultada la Junta de Gobierno para verificar la excelencia académica de la universidad que emita el titulo por cualquier mecanismo.
+i) Pago de derechos establecidos por la Junta de Gobierno. La Junta de Gobierno se reserva la posibilidad de solicitar todo aquel requisito que considere oportuno.
