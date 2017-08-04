@@ -16,3 +16,4 @@ Reglamento Orgánico del Poder Ejecutivo
 | 1 | 2014-08-20 | la propia norma |
 | 2 | 2015-05-19 | Decreto Ejecutivo 38997 (2015-05-19) |
 | 3 | 2017-07-31 | Decreto Ejecutivo 40682 (2017-07-31) |
+| 4 | 2017-08-04 | Decreto Ejecutivo 40710 (2017-08-04) |
