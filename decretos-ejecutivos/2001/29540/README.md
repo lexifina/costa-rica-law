@@ -18,3 +18,4 @@ Constituye el Centro Nacional de Información Geoambiental como un órgano de la
 | 3 | 2009-12-04 | Decreto Ejecutivo 35669 (2009-12-04) |
 | 4 | 2012-06-25 | Ley 9046 |
 | 5 | 2013-01-29 | Decreto Ejecutivo 37658 (2013-01-29) |
+| 6 | 2017-08-04 | Decreto Ejecutivo 40710 (2017-08-04) |
