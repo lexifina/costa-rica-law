@@ -15,3 +15,4 @@ Estatutos Federación de Municipalidades de la Provincia de Cartago
 | --- | --- | --- |
 | 1 | 2008-01-18 | la propia norma |
 | 2 | 2008-07-26 | Reglamento 109 (2008-07-26) |
+| 3 | 2017-08-04 | Reglamento 0 (2017-08-04) |
