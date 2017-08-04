@@ -14,3 +14,4 @@ Establece Sistema Nacional de Información Ambiental (SINIA) y reforma decreto e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-16 | la propia norma |
+| 2 | 2017-08-04 | Decreto Ejecutivo 40710 (2017-08-04) |
