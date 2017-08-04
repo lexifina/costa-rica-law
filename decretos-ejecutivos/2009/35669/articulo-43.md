@@ -1,14 +1,9 @@
-Artículo 43.—De las funciones de la Dirección de Cambio Climático. Serán funciones de la Dirección de Cambio Climático las siguientes:
-a. Coordinar, gestionar, formular e implementar la política pública de cambio climático, promoviendo la integración de una agenda interministerial de cambio climático.
-b. Coordinar e integrar la agenda ministerial de cambio climático.
-c. Apoyar a nivel superior en el diseño y ejecución de una agenda prioritaria a nivel nacional e internacional de cambio climático.
-d. Coordinar la Secretaría Técnica del Consejo Interministerial de Cambio Climático (órgano de coordinación en la administración pública) presidido por el Ministro de Ambiente y Energía(*) y el Comité Técnico Interministerial de Cambio Climático (órgano para el seguimiento del cambio climático y mitigación y adaptación a sus efectos).
-e. Coordinar, dirigir y planificar la implementación de la Estrategia Nacional de Cambio Climático, mediante el Programa Nacional de Cambio Climático, con los diferentes actores socioeconómicos en el ámbito nacional a nivel de mitigación, adaptación, métrica, desarrollo de capacidades y tecnología, sensibilización pública, y financiamiento y en el ámbito internacional a nivel de: incidir internacionalmente, atraer recursos externos, liderazgo, legitimidad, presencia en foros multilaterales y binacionales y desarrollo de capacidades internacionales.
-f. Coordinar y establecer el Sistema Nacional de Métrica para el monitoreo, evaluación y seguimiento del Programa Nacional de cambio climático, por medio de la información y gestión del conocimiento a nivel nacional para la gestión operativa del Programa.
-g. Coordinar y dar seguimiento a los planes ministeriales, organizacionales y sectoriales para el cambio climático, promoviendo el establecimiento de estándares que alimenten el Sistema Nacional de Métrica.
-h. Fungir como Secretaría Técnica de la Junta de Carbono y administrar el Registro C-Neutral.
-i. Coordinar el proceso C-Neutral con los diversos actores y sectores del quehacer nacional.
-j. Coordinar, gestionar y dar seguimiento al Plan Nacional de Adaptación.
-k. Coordinar acciones con FONAFIFO, IMN y cualquier otra institución pertinente, la articulación de las políticas en el marco de los compromisos de las convenciones internacionales y la agenda nacional, bajo la directriz del Ministro y del Consejo Interministerial.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 36437 del 24 de enero del 2011)
-(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
+Artículo 43.— De las funciones de la Dirección de Cambio Climático. Serán funciones de la Dirección de Cambio Climático las siguientes:
+a. Coordinar y gestionar la política pública de cambio climático, promoviendo la integración de una agenda intra-ministerial de cambio climático en sus distintas dimensiones.
+b. Apoyar al Ministro Rector y a SEPLASA en la ejecución de la agenda prioritaria a nivel nacional e internacional de cambio climático.
+c. Ejercer la focalía de la Convención Marco de Cabio Climático en sus distintos ámbitos y apoyar al ente rector en el proceso de negociación bajo la Convención y sus instrumentos.
+d. Fungir como Secretaría Técnica del Mercado Doméstico de Carbono y sus estructuras.
+e. Diseñar y administrar el Registro de Créditos de Carbono y/o Unidades de Compensación que se generen o transen en el territorio costarricense con el fin de evitar la doble contabilidad y establecer los vínculos con el Sistema Nacional de Métrica de Cambio Climático (SINAMECC).
+f Coordinar e impulsar la implementación del Programa País de C- Neutralidad con los diversos actores y sectores del quehacer nacional y de otros programas que se generen para consolidar la implementación de la acción climática.
+g. Promover espacios de participación multisectorial que fomenten el involucramiento del sector privado y sociedad civil en la acción climática".
+(Así reformado por el artículo 18 del Reglamento Operativo de la Secretaría de Planificación Sectorial de Ambiente, Energía, Mares y Ordenamiento Territorial (SEPLASA), aprobado mediante decreto ejecutivo N° 40710 del 4 de agosto del 2017)
