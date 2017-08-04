@@ -1,0 +1,9 @@
+N° 9459
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+AUTORIZACIÓN AL ESTADO PARA QUE DESAFECTE, SEGREGUE Y
+DONE UN TERRENO A LA ASOCIACIÓN DE DESARROLLO ESPECÍFICA
+PARA LA CONSTRUCCIÓN Y MANTENIMIENTO DE PARQUE DE
+RECREACIÓN DEL ESTE DE LIBERIA, GUANACASTE
+ARTÍCULO 1.- Se autoriza al Estado, cédula jurídica número dos- cero cero cero- cero cuatro cinco cinco dos dos (N.° 2-000-045522) para que segregue un terreno de su propiedad inscrito en el Registro Público de la Propiedad Inmueble, partido de Guanacaste, bajo la matrícula de folio real número cinco cero nueve ocho siete siete siete, secuencia cero cero cero (N.° 5098777-000), y lo done a título gratuito a la Asociación de Desarrollo Específica para la Construcción y Mantenimiento del Parque de Recreación del Este de Liberia, Guanacaste, con cédula de persona jurídica número tres - cero cero dos - seis siete siete ocho seis cuatro (N.° 3-002-677864). El propósito de la donación es para establecer el Parque del Este, donde construirá el complejo deportivo.
+La finca madre se describe así: naturaleza terreno de potrero destinado a Centro Conservación Ambiental de Liberia, situada en el distrito primero; cantón Liberia; provincia Guanacaste. Linderos: al norte el río Liberia, quebrada en medio Pablo Rivas Espinoza; al sur Napoleón Baltodano Muñoz y Pablo Rivas Espinoza; al este Pablo Rivas Espinoza y al oeste el río Liberia cinco calles públicas con frente cada una de nueve metros (9 m) y Junta Administradora del Colegio Artístico Profesor Felipe Pérez Pérez. Inscrita en el folio real número cinco - cero cero cero cero tres nueve nueve cuatro, secuencia cero cero cero (N.° 5-00003994-000). Mide ciento noventa y cuatro mil ciento cuarenta y seis metros con cuarenta y nueve decímetros cuadrados (194 146,49 m2). Plano catastrado número G- cero cero uno dos uno ocho siete- mil novecientos setenta y cinco (N.° G-0012187-1975).
