@@ -1,0 +1,1 @@
+ARTÍCULO 7. Se insta a las instituciones públicas a las instituciones autónomas, semi autónomas y a las entidades adscritas, así como a los otros poderes de la República a aplicar las medidas consideradas en este decreto.

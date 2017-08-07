@@ -1,0 +1,1 @@
+ARTÍCULO 5. Establézcase una moratoria para la declaratoria de interés público, actividad deportiva, o interés cultural, de actividades o personas jurídicas, por parte de las distintas entidades del gobierno que tengan esa potestad, que impliquen el otorgamiento de beneficios fiscales, tales como exoneraciones o cualquier otro beneficio fiscal.

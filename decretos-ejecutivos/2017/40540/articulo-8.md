@@ -1,0 +1,1 @@
+ARTÍCULO 8 Se designa al Ministerio de Hacienda, Ministerio de la Presidencia y Ministerio de Planificación Nacional para que, en conjunto, estudien y valoren las excepciones a lo dispuesto en este Decreto. El Presidente de la República podrá vetar aquellas autorizaciones que considere pertinente.
