@@ -1,2 +1,0 @@
-Artículo 8º—Recursos financieros para capacitación. En el presupuesto de la Institución se incluirán las partidas que resulten necesarias para la ejecución del Plan de Capacitación Institucional, siempre y cuando la situación financiera de la Institución lo permita.
-La Sección de Recursos Humanos verifica la disponibilidad de contenido económico, que dará soporte a la gestión de contratación de curso requerido.
