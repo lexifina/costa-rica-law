@@ -13,3 +13,4 @@ Protocolo actuación de Justicia Juvenil Restaurativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-11-30 | la propia norma |
+| 2 | 2017-08-07 | Circular 119 (2017-09-19) |
