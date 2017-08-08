@@ -112,6 +112,8 @@ Centro Especializado Mixto: Centro de internamiento para personas entre 12 y 18 
 Persona Menor de edad privada de libertad: Personas entre 12 y 18 años que deben cumplir sentencia en el Centro Especializado Mixto.
 Sanciones privativas de libertad: Establecidas por la Ley Penal Juvenil de la siguiente forma: Internamiento domiciliario, internamiento durante tiempo libre e internamiento en centros especializados
 j. Sector Entidades dedicadas a atender y proteger a las personas adultas mayores
+Atención Integral para Personas Adultas Mayores: Satisfacción de las necesidades físicas, materiales, biológicas, emocionales, sociales, laborales, productivas y espirituales de las personas adultas mayores, para facilitarles una vejez plena y saludable, se considerarán sus hábitos, capacidades funcionales y preferencias.
+(Así adicionada la definición anterior y publicada en La Gaceta N° 149 del 8 de agosto de 2017)
 APRONAGE: Asociación Pro Hospital Nacional de Geriatría y Gerontología Dr. Raúl Blanco Cervantes.
 CONAPAM: Consejo Nacional de la Persona Adulta Mayor
 Entidad dedicada a atender y proteger a las personas adultas mayores: organización formalmente establecida que cuenta con y/o apoya un servicio de atención integral de personas adultas mayores de escasos recursos económicos, cuyo objetivo es mejorar la calidad de vida de sus beneficiarios.
@@ -119,6 +121,8 @@ Hogar para personas adultas mayores: lugar donde vive un grupo de personas adult
 Persona adulta mayor: Toda persona de 65 años y más. (Ley Nº 7935)
 Persona adulta mayor de escasos recursos económicos: Toda persona mayor de 65 años, que no tiene pensión (excepto la del Régimen no Contributivo) u otro medio de subsistencia.
 Persona adulta mayor dependiente: es aquella que requiere del apoyo permanente de terceras personas. Tiene problemas severos de salud funcional y mental. Puede decirse que una persona mayor es dependiente cuando presenta una pérdida de su autonomía funcional y necesita la ayuda de otras personas para poder desenvolverse en su vida diaria.
+Programas de Envejecimiento Saludable: Programa de atención para personas adultas mayores con fines preventivos de envejecimiento con deterioro debido a enfermedades no transmisibles y a factores de riesgo que los exponen a soledad, carencia de participación y socialización que se reúnen toda la semana, algunas veces a la semana o bien de acuerdo con las necesidades y preferencias de la persona adulta mayor, para compartir, para aprender cosas nuevas, para mejorar social y emocionalmente, para disfrutar actividades recreativas y fomentar el autocuidado, entre otras.
+(Así adicionada la definición anterior y publicada en La Gaceta N° 149 del 8 de agosto de 2017)
 k. Sector Entidades de capacitación, organización y dirección de asociaciones, fundaciones y grupos de personas dedicadas a atender y proteger a las personas adultas mayores.
 Entidades dedicadas a la capacitación, organización y dirección de asociaciones, fundaciones y grupos de personas dedicadas a atender y proteger a las personas adultas mayores: son las Federaciones u otras entidades formalmente constituidas, conformadas por organizaciones que brindan atención a personas adultas mayores y que dentro de su gestión principal contemple el fortalecimiento y la integración de sus afiliadas, así como el desarrollo de acciones tendientes a mejorar la calidad de vida de las personas adultas mayores que atienden.
 l. Sector Centros Diurnos sin fines de lucro para personas adultas mayores
