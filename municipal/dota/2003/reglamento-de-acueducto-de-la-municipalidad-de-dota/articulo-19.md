@@ -1,1 +1,0 @@
-Artículo 19.—Los usuarios que disfrutan del servicio de agua, podrán solicitar a la Municipalidad, cambio en el nombre de la cuenta por traspaso de la propiedad y cambio en el uso del servicio de (diferente categoría) para lo cual el Gobierno Local determinará si se justifica la solicitud del usuario.

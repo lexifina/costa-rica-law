@@ -1,1 +1,0 @@
-Artículo 22.—La conexión temporal se realizará si fuera acogida por el Alcalde, previo pago de las tasas que correspondan. La Municipalidad no se encuentra obligada a conceder conexiones temporales de servicio de agua.

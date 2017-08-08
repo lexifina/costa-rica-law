@@ -1,1 +1,0 @@
-Artículo 25.—El servicio de agua que presta la Municipalidad a los abonados no puede ser gratuito; así se trate de cualquier entidad pública nacional; salvo que alguna ley especial determine lo contrario.

@@ -1,1 +1,0 @@
-Artículo 28.—La Municipalidad podrá suspender el servicio, cuando el abonado no atienda sus obligaciones de pago por el servicio, previa notificación escrita, otorgándoles 5 días hábiles, de lo contrario se procederá.
