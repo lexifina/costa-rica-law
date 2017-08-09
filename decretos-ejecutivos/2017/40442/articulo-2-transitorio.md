@@ -1,0 +1,1 @@
+Transitorio II- El INCOPESCA y el SINAC establecerán los mecanismos técnicos y de coordinación necesarios para el otorgamiento de las licencias de pesca y los permisos de ingreso dentro del Área Marina de manejo Cabo Blanco, considerando como prioridad a las comunidades locales cercanas al Área Marina de Manejo, ubicadas en la Península de Nicoya.

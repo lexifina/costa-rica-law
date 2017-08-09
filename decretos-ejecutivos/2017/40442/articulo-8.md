@@ -1,0 +1,1 @@
+Artículo 8°— Las instituciones del Estado con competencia en el Área Marina deberán promover y establecer mecanismos efectivos de coordinación interinstitucional, en particular (ÍNCOPESCA y GUARDACOSTAS) que aseguren la conservación y aprovechamiento sostenible de los recursos naturales, presentes en dicha área.

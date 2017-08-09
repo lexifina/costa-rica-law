@@ -1,0 +1,1 @@
+Artículo 4°—Dentro del Área Marina de Manejo Cabo Blanco, rigen las limitaciones que establece la Ley de Biodiversidad NÓ 7788 del 30 de abril de 1998; el Reglamento a la Ley de Biodiversidad, Decreto Ejecutivo N° 34433-MINAE del 11 de marzo de 2008, el Decreto Ejecutivo N° 35369-MTNAET del 18 de mayo de 2009 y normativa conexa.

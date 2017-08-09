@@ -1,0 +1,1 @@
+Transitorio I.- El Área de Conservación Tempisque, deberá contar con el Plan de Manejo del Área Marina de Manejo Cabo Blanco aprobado en el plazo de seis meses y el plan de manejo de recursos pesqueros en un plazo de un año, lo anterior, a partir de la publicación del presente decreto.

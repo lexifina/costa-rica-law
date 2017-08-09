@@ -1,0 +1,1 @@
+Transitorio IV.- El SINAC deberá elaborar una tarifa anual de ingreso al Área Marina de Manejo Cabo Blanco para los pescadores y otros usuarios, excluyendo a los usuarios de la pesca en pequeña escala de las comunidades vecinas, en un plazo de un año.

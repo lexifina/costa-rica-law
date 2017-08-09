@@ -1,0 +1,1 @@
+Artículo 6°—El Sistema Nacional de Áreas de Conservación, deberá asignar los recursos necesarios para atender las necesidades, el manejo y desarrollo del Área Marina de Manejo Cabo Blanco; sin perjuicio del aporte que otros entes estatales interesados designen de sus propios presupuestos para esta nueva área protegida.
