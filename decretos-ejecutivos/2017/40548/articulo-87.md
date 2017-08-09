@@ -1,0 +1,1 @@
+Artículo 87.- Plan de manejo. Todo sitio de manejo de vida silvestre debe tener un plan de manejo elaborado por un profesional en manejo de vida silvestre. El Área de Conservación solicitará las aclaraciones, información adicional o modificaciones que se requieran sobre este documento técnico.

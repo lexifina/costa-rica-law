@@ -1,0 +1,1 @@
+Artículo 77.- Reproducción de especies en peligro de extinción o con población reducida. Solamente se autorizará la reproducción en cautiverio de especies en peligro de extinción o con población reducida cuando se demuestre científicamente que este tipo de manejo apoyará la conservación de estas especies.

@@ -1,0 +1,6 @@
+SECCIÓN III
+REINSERCIÓN DE FAUNA SILVESTRE
+Artículo 53.- Reinserción de fauna silvestre. La reinserción de fauna silvestre solo podrá ser realizada por centros de rescate autorizados. También podrán hacer reinserción de fauna proveniente de colecta científica y academica cuando sea llevada de manera inmediata a la captura.
+Para la reinserción de fauna silvestre serán requisitos las evaluaciones sanitarias y etológicas respectivas del organismo u organismos involucrados, cuyo costo debe ser asumido por el centro de rescate encargado. Adicionalmente, se debe solicitar la guía de transporte cuando sea necesario el traslado de individuos fuera de las instalaciones del centro de rescate según lo establecido en el artículo 78 del presente Reglamento.
+Para los efectos de lo establecido en el artículo 24 de la LCVS, el plan de manejo del centro de rescate que realice reinserciones deberá contener un programa de liberación y plan de acción específico por grupo taxonómico. Además, deberá cumplir con los protocolos de manejo oficiales del SINAC para estos sitios.
+Las disposiciones incluidas en este artículo se aplicarán a los animales provenientes de vida silvestre con más de 72 horas de captura.

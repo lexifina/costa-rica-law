@@ -1,0 +1,1 @@
+Artículo 72. Eutanasia practicada por SENASA. En el caso que la eutanasia sea aplicada por SENASA a individuos de vida silvestre nativa o exótica declarada como silvestre por su país de origen, según la normativa que le rige, informará por escrito al SINAC indicando las circunstancias del caso.

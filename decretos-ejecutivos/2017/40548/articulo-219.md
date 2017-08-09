@@ -1,0 +1,3 @@
+CAPITULO XIV
+ÓRDENES ADMINISTRATIVAS Y PROCEDIMIENTO
+Artículo 219.- Procedencia de las órdenes administrativas. El SINAC, en el ejercicio de sus funciones de supervisión, control y protección, se encuentra facultado por ley y por los principios preventivo, precautorio y el de tutela administrativa efectiva, para emitir órdenes administrativas, con el objetivo de hacer o no hacer determinada conducta contraria a la legislación nacional o internacional, o que genere impacto negativo a la vida silvestre. La orden puede consistir en paralizar, prevenir, eliminar, realizar, omitir, restaurar o corregir.

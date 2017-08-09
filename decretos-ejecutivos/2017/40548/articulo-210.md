@@ -1,0 +1,1 @@
+Artículo 210- Certificaciones y guías oficiales de transporte emitidos por el regente. Para efectos de las certificaciones y las guías oficiales de transporte, el regente del sitio deberá acatar lo establecido en los protocolos elaborados para tal fin por el SINAC y este reglamento para el transporte de flora o fauna, según corresponda.

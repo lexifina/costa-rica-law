@@ -1,0 +1,15 @@
+Artículo 202.- Funciones. El regente tendrá las siguientes funciones y responsabilidades:
+a. Elaborar y ejecutar el plan de manejo autorizado del sitio, velando por el cumplimiento cabal de sus objetivos.
+b. Ser el responsable del fiel cumplimiento de la aplicación de la LCVS, este reglamento, las leyes conexas y cualquier otra norma jurídica sobre conservación y uso sostenible de la vida silvestre, en el sitio de manejo que regenta.
+c. Velar por el fiel cumplimiento de las normas éticas y técnicas en la ejecución de los planes de manejo aprobados por el SINAC.
+d. Verificar que el establecimiento cumpla los diferentes protocolos oficiales de SINAC en materia de vida silvestre, además de los propios establecidos en el plan de manejo autorizado.
+e. En los sitios de manejo de fauna silvestre, deberá apoyar al Médico Veterinario en el cumplimiento del plan de salud animal del sitio y los programas de cuarentena, cuando corresponda.
+f. En los sitios de manejo de flora silvestre, deberá apoyar las recomendaciones fitosanitarias indicadas por el profesional competente.
+g. Recomendar las modificaciones justificadas que requiera el plan de manejo aprobado, con el propósito de adecuarlo a nuevas técnicas de reproducción, propagación (en flora) o manejo, además de las adiciones o ampliaciones que se le soliciten, según la categoría del sitio de manejo.
+h. Presentar los informes técnicos trimestrales y certificaciones o criterios correspondientes sobre el funcionamiento del sitio de manejo, así como los informes adicionales que le solicite el SINAC, en el formato de presentación especificado en el artículo 206 de este Reglamento.
+i. Deberá presentar un informe anual sobre el cumplimiento del plan de manejo, el cual será entregado al Área de Conservación respectiva en enero de cada año. El informe deberá señalar cuáles objetivos han sido cumplidos y cuáles no, e indicar las razones del incumplimiento. Además, deberá ser congruente con los informes de regencia trimestrales presentados ante el SINAC.
+j. Velar porque los empleados involucrados en el manejo de vida silvestre estén adecuadamente capacitados, equipados y vacunados para prevenir la zoonosis y accidentes con la vida silvestre, cuando corresponda.
+k. Emitir certificaciones de origen de especímenes nacidos en cautividad en el sitio que regenta, para comercio entre sitios de manejo o comercio internacional.
+l. Denunciar de inmediato cualquier anomalía que se dé en el sitio de manejo de vida silvestre ante la autoridad judicial o administrativa competente. En caso de que la denuncia se presente ante otra institución que no sea el SINAC, deberá comunicarse la situación al Área de Conservación. Todas las situaciones denunciadas y las denuncias presentadas deben ser incluidas en el informe de regencia y la bitácora del sitio.
+m. Llenar la bitácora del establecimiento, en donde se registren los acontecimientos sobresalientes del sitio, así como las recomendaciones en el manejo de la vida silvestre bajo su responsabilidad.
+n. Comunicar por escrito de manera inmediata al Área de Conservación correspondiente el cese de labores en un sitio de manejo.

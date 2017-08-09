@@ -1,0 +1,1 @@
+Artículo 65.- Estudio sobre la dinámica poblacional de la especie. Una vez establecida la población viable de la especie focal, el sitio de manejo debe analizar los indicadores de éxito del proyecto los cuales mostraran los resultados del monitoreo, reproducción, entre otros.

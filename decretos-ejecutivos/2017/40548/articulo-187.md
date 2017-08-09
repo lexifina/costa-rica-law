@@ -1,0 +1,1 @@
+Artículo 187.- Acatamiento de resoluciones de la Conferencia de las Partes de CITES. Las resoluciones vigentes de la Conferencia de las Partes de CITES serán vinculantes para el país, con el objetivo de cumplir con los compromisos adquiridos por el país en el marco de la Convención.

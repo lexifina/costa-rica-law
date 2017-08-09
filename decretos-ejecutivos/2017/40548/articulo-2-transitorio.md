@@ -1,0 +1,1 @@
+Transitorio II. En un plazo máximo de seis meses posteriores a la publicación de este reglamento, todos los sitios del manejo del país deberán presentar ante el Área de Conservación correspondiente, un plan de acción que detalle los cambios organizativos, de infraestructura y manejo técnico para el cumplimiento de la LCVS y la adaptación a este reglamento.

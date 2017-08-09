@@ -1,0 +1,1 @@
+Artículo 16.- Recursos contra la resolución de la gestión. Contra la resolución que resuelve el rechazo o archivo de la solicitud, se podrá interponer los recursos ordinarios de revocatoria ante la misma oficina que dictó el acto, y de apelación ante el CONAC, en el término de 3 días hábiles contados a partir del momento de su notificación.

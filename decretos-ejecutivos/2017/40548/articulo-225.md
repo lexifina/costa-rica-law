@@ -1,0 +1,3 @@
+Artículo 225.- Disposición administrativa de animales vivos. Cuando se trate de animales silvestres vivos que lleguen a la administración por alguno de los supuestos del artículo anterior y dentro del plazo contenido en el artículo 24 de la LCVS y este reglamento, deberán ser liberados en el mismo sitio de captura o en un sitio específico, para lo cual se levantará una acta de liberación firmada por el funcionario del SINAC y dos testigos.
+El SINAC determinará el destino de aquellos animales que por su condición física o de comportamiento no puedan ser liberados, con base en una valoración científica.
+Tanto la liberación como el mantenimiento en cautiverio deberán realizarse en apego a los criterios establecidos en el presente decreto.

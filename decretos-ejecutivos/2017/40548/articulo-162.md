@@ -1,0 +1,1 @@
+Artículo 162. Plazo del permiso de funcionamiento de sitios de manejo de flora. Los permisos para sitios de manejo de flora silvestre se podrán otorgar por un plazo máximo de 5 años. La renovación del permiso se podrá otorgar por plazos máximos iguales.

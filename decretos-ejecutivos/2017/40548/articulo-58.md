@@ -1,0 +1,1 @@
+Artículo 58.- Evaluaciones etológicas de los candidatos a liberar. El SINAC, con el apoyo de la CONAVIS, desarrollará protocolos oficiales por grupos taxonómicos para la realización de las evaluaciones etológicas mínimas.

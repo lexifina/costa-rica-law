@@ -1,0 +1,2 @@
+Artículo 115.- Zoocriaderos comerciales de artrópodos. El SINAC podrá autorizar el establecimiento de zoocriaderos comerciales de artrópodos, los cuales deberán cumplir con todo lo establecido en este Reglamento para sitios de manejo de fauna silvestre y la comercialización para la venta a nivel nacional o internacional.
+A nivel nacional, la comercialización será autorizada únicamente para el establecimiento del plantel parental de otros sitios de manejo, la exhibición en zoológicos, la elaboración de artesanías y para exportación.

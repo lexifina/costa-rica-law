@@ -1,0 +1,2 @@
+Artículo 201.- Formación del regente. El regente debe tener formación, experiencia e idoneidad comprobadas en manejo de vida silvestre para poder ejercer la regencia, aspectos que serán certificados ante el SINAC por el Colegio profesional correspondiente.
+Podrán regentar sitios de manejo de vida silvestre profesionales de las carreras de biología, manejo de vida silvestre, manejo de recursos naturales, forestal y agronomía.

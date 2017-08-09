@@ -1,0 +1,1 @@
+Artículo 139.- Dispositivos de control para flora silvestre aprovechada. El SINAC determinará, vía resolución administrativa, el tipo de empaque y los dispositivos de control que se aplicarán para el comercio de flora silvestre aprovechada durante cada período.

@@ -1,0 +1,1 @@
+Artículo 19. No aplicación del silencio positivo. Para las solicitudes de permisos, licencias, autorizaciones o concesiones otorgadas al amparo de la LCVS y este reglamento, no operará el silencio positivo.

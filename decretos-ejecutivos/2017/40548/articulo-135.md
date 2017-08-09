@@ -1,0 +1,6 @@
+Artículo 135.- Requisitos para autorización de aprovechamiento de flora silvestre sin fines comerciales o para la subsistencia. El SINAC podrá autorizar la extracción o colecta de flora silvestre sin fines comerciales o para la subsistencia, cuando sea para satisfacer necesidades alimenticias, medicinales y otras similares de personas de escasos recursos económicos. Los requisitos necesarios para la autorización de aprovechamiento de flora sin fines comerciales o de subsistencia, serán los siguientes:
+a. Presentar los requisitos establecidos en el artículo 14 del presente Reglamento, según corresponda, ante el Área de Conservación respectiva.
+b. Solicitud escrita con una breve justificación de la necesidad para la extracción o colecta de subsistencia de flora silvestre debidamente firmada por el solicitante e indicando lugar para notificaciones, además de la cantidad aproximada de recurso que aprovecharán.
+c. Dentro de los Refugios Nacionales de Vida Silvestre mixtos o estatales, los Administradores de los mismos podrán dar constancia de las condiciones socioeconómicas de los ocupantes del mismo.
+d. Si se pretende hacer aprovechamientos en terrenos privados que no sean propios, deberá aportar una carta firmada del propietario autorizando el aprovechamiento.
+La licencia tendrá una validez de un año.

@@ -1,0 +1,1 @@
+Artículo 152.- Viveros sin fines comerciales. Los viveros sin fines comerciales no estarán autorizados para la comercialización de plantas. Podrán estar autorizados para la exhibición de plantas en ferias, exposiciones u otros eventos debidamente autorizados.

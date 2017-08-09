@@ -1,0 +1,4 @@
+Artículo 191.- Especies incluidas en los apéndices CITES sujetas a importación. Para los efectos de los artículos 25 y 26 de la LCVS, el SINAC podrá autorizar la importación de especímenes de vida silvestre exóticas, cuando se trate de:
+a) Especies incluidas en los apéndices CITES nacidas en cautiverio en un sitio de manejo de vida silvestre, o aquellos especímenes que provengan de permisos de investigación científica, cuando no signifique un riesgo para los ecosistemas naturales del país o para la población humana.
+b) Productos, subproductos y derivados de especies incluidas en los apéndices CITES reproducidas en cautiverio, cuando no representen peligro para la vida silvestre.
+c) Partes, productos y subproductos de especies incluidas en los Apéndices de CITES que no estén incluidas en las categorías anteriores.

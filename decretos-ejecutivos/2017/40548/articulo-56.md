@@ -1,0 +1,1 @@
+Artículo 56.- Evaluaciones genéticas de los candidatos a liberar. El SINAC, con apoyo de la CONAVIS, desarrollará criterios nacionales sobre el estado de la genética de las poblaciones de las especies silvestres según los diferentes grupos taxonómicos. Estos indicadores serán considerados para la toma de decisiones cuando corresponda.

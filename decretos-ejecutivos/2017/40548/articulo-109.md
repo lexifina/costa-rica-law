@@ -1,0 +1,3 @@
+SECCIÓN XIII
+ZOOCRIADEROS
+Artículo 109.- Zoocriaderos sin fines comerciales. El SINAC podrá autorizar el establecimiento de zoocriaderos no comerciales, los cuales se dedicarán a la reproducción de especies amenazadas o que requieran este tipo de manejo para el fortalecimiento o reintroducción de poblaciones. No estarán autorizados para comercializar los animales reproducidos bajo ninguna circunstancia. La evaluación del plan de manejo de estos sitios se hará basada en los documentos “Directrices de Uso de la Gestión Ex situ para la Conservación de Especies de la Comisión de Supervivencia de Especies” y “Directrices para reintroducciones y otras translocaciones para fines de conservación” de la UICN, en las versiones más recientes disponibles.

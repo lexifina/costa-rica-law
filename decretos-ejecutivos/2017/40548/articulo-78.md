@@ -1,0 +1,5 @@
+SECCIÓN VIII
+TRANSPORTE Y TRASLADO DE ANIMALES SILVESTRES
+Artículo 78.- Transporte de animales silvestres. Todo transporte de fauna silvestre, sus productos o subproductos, requiere la autorización del SINAC, para lo cual se extenderán guías oficiales de transporte que serán usadas a nivel nacional para este fin.
+El regente del sitio de manejo deberá completar la guía oficial de transporte, dirigirse al Área de Conservación correspondiente para obtener los sellos y firmas de la autoridad del SINAC, trámite que será resuelto en un plazo máximo de un día hábil. En caso de que se trate de un traslado urgente fuera de horas hábiles, el regente completará la guía de transporte y emitirá una certificación indicando las circunstancias que justifican la necesidad del traslado inmediato, documentos que serán presentados al Área de Conservación dentro de los 3 días hábiles siguientes.
+Cuando el transporte sea realizado por un funcionario del SINAC de un Área de Conservación a otra, deberá presentar de manera inmediata en el Área de Conservación donde se mantendrá el animal, el acta de entrega al sitio de manejo.

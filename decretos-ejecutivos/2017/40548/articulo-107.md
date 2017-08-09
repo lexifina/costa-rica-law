@@ -1,0 +1,1 @@
+Artículo 107.- Zoológicos no comerciales tipo santuario. Los zoológicos no comerciales tipo santuario únicamente podrán exhibir animales silvestres que no pueden liberarse por problemas físicos o de comportamientos provocados por acciones humanas directas o indirectas. No estarán autorizados para comprar, vender o intercambiar animales silvestres.

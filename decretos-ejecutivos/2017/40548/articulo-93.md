@@ -1,0 +1,1 @@
+Artículo 93. Fiscalización del sitio de manejo. Una vez iniciado el funcionamiento del sitio de manejo, los funcionarios del Área de Conservación respectiva visitarán el sitio al menos una vez por trimestre. De cada inspección, se elaborará un informe de visita que refleje el estado del lugar y las recomendaciones y observaciones realizadas.

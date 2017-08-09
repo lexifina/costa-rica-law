@@ -1,0 +1,1 @@
+Artículo 173.- Importación de especímenes como mascotas. No se autorizará la importación de fauna silvestre y especies exóticas declaradas como silvestres por su país de origen, para su tenencia o venta como mascota.

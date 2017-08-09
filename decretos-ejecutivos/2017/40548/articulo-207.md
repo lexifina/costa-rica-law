@@ -1,0 +1,1 @@
+Artículo 207.- Solicitud de aclaraciones al informe de regencia. El SINAC podrá solicitar por escrito al regente aclaraciones o ampliaciones de los informes de regencia. El regente deberá presentar la información solicitada por escrito ante la oficina correspondiente, en un plazo de 10 días hábiles.

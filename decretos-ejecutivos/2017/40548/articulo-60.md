@@ -1,0 +1,1 @@
+Artículo 60.- Recintos de preliberación. Por tratarse de actividades de conservación, el SINAC podrá autorizar a los centros de rescate, la ubicación de los recintos de pre-liberación y las actividades de liberación, así como el diseño de senderos para el traslado de equipo y movilización del personal en áreas bajo cobertura boscosa, causando el menor impacto posible.

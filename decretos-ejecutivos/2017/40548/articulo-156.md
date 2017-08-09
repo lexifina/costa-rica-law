@@ -1,0 +1,1 @@
+Artículo 156.- Plan de manejo. Todo sitio de manejo de flora silvestre debe tener un plan de manejo elaborado por un profesional en manejo de vida silvestre debidamente colegiado. El SINAC solicitará las aclaraciones, información adicional o modificaciones que se requieren.

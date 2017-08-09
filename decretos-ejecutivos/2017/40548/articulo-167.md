@@ -1,0 +1,2 @@
+Artículo 167.- Liberación de especies exóticas. No se autorizará la liberación al medio silvestre de individuos de especies exóticas de ningún tipo. Se incluye dentro de esta prohibición la liberación de híbridos de especies silvestres.
+En caso de que se realice la liberación de especies exóticas, se aplicarán las sanciones correspondientes según la LCVS, incluyendo la valoración del daño ambiental provocado por la liberación y los gastos asociados al manejo que deba realizarse para resolver la problemática generada.

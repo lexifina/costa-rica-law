@@ -1,0 +1,1 @@
+Artículo 51.- Exhibiciones de fauna silvestre viva. Se permite la exhibición de fauna silvestre viva únicamente en zoológicos o zoocriaderos artesanales con manejo restringido que cuenten con los permisos respectivos.

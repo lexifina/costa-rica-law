@@ -1,0 +1,2 @@
+Artículo 91.- Plazo del permiso de funcionamiento de sitios de manejo de fauna. Los permisos para los zoológicos, centros de rescate y zoocriaderos, podrán otorgarse por primera vez por un plazo máximo de tres años.
+La renovación del permiso para zoológicos, zoocriaderos comerciales, no comerciales y centros de rescate se podrá otorgar por un plazo máximo de 5 años. La renovación del permiso para los zoocriaderos artesanales con manejo restringido se podrá otorgar hasta por un plazo máximo de tres años.

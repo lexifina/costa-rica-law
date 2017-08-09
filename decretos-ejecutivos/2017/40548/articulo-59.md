@@ -1,0 +1,1 @@
+Artículo 59.- Factores de riesgo de animales rescatados. Al presentarse un rescate de fauna silvestre por funcionarios de SINAC, se analizarán los factores de riesgo que afectaron al individuo. En caso de que se trate de una situación repetitiva, el SINAC coordinará las medidas preventivas apropiadas para evitar nuevos casos.

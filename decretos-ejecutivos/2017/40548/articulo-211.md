@@ -1,0 +1,1 @@
+Artículo 211.- Seguridad de los actos emitidos. Cada acto debe ser firmado y sellado por el regente que lo extienda, indicando el nombre completo, profesión y número de colegiado del respectivo Colegio Profesional.

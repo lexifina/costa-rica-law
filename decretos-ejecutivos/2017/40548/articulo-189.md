@@ -1,0 +1,5 @@
+Artículo 189.- Importación de especies de fauna incluidas en los apéndices CITES para sitios de manejo. El SINAC podrá autorizar la importación de especies de fauna incluidas en los apéndices CITES para zoológicos o zoocriaderos que estén autorizados en su permiso de funcionamiento para recibir y mantener individuos de especies de este tipo. El plan de manejodel sitio debe contener todos los detalles técnicos correspondientes para el cuido y manejo de los mismos.
+Los zoocriaderos podrán comercializar individuos nacidos en cautiverio de esas especies únicamente bajo las siguientes circunstancias:
+a. Dentro del territorio nacional entre sitios de manejo, ya sea como plantel parental o para exhibición en un sitio de manejo autorizado para tal fin. Para ello se requerirá la autorización por escrito del SINAC.
+b. Para exportación. El zoocriadero deberá estar inscrito bajo la categoría comercial y cumplir todos los requisitos establecidos en CITES, la LCVS y este Reglamento.
+Además, se deberá contar con el permiso de exportación correspondiente.

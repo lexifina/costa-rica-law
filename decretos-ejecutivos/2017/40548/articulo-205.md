@@ -1,0 +1,1 @@
+Artículo 205.- Honorarios de regencia. Toda relación de regencia que contemple horarios y honorarios será negociada libremente entre las partes. El Colegio Profesional correspondiente establecerá las tarifas mínimas que los colegiados deberán cobrar.

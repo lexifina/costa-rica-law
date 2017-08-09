@@ -1,0 +1,1 @@
+Artículo 48.- De la cetrería y técnicas similares que involucren mascotización. La cetrería y técnicas similares que involucren el cautiverio y adiestramiento de animales silvestres para ser usados con fines de cacería, espectáculos u otros similares no serán permitidas en nuestro país.

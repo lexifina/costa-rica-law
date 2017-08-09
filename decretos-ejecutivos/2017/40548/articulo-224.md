@@ -1,0 +1,1 @@
+Artículo 224.- Disposición administrativa de productos perecederos. Los productos perecederos de flora y fauna silvestre decomisados en el ejercicio de actividades prohibidas, serán destruidos, para lo cual se levantará un acta de destrucción firmada por el funcionario del SINAC y dos testigos.

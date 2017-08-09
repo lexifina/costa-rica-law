@@ -1,0 +1,1 @@
+Artículo 170.- Puntos autorizados de ingreso y salida de vida silvestre. Los especímenes de vida silvestre, únicamente podrán ingresar o dejar el país a través de los Aeropuertos Internacionales Juan Santamaría y Daniel Oduber, Puertos Limón y Caldera, y los Puestos Fronterizos de Paso Canoas y Peñas Blancas.

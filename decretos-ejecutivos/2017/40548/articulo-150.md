@@ -1,0 +1,1 @@
+Artículo 150.- Jardines botánicos. Los jardines botánicos podrán estar abiertos al público con propósitos recreativos, culturales, educativos y de investigación. No estarán autorizados para la comercialización de flora silvestre.

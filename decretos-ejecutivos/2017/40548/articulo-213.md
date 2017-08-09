@@ -1,0 +1,3 @@
+Artículo 213.- Incumplimiento de las funciones del regente. En caso de que se comprueben faltas en las funciones del regente, el SINAC, siguiendo el debido proceso que garantice el derecho de defensa, procederá a aplicar las sanciones correspondientes conforme con lo establecido en artículo 21 de la LCVS.
+El SINAC informará de la situación al Colegio Profesional respectivo y presentará las denuncias administrativas y judiciales que correspondan, enviando copia de las mismas al Colegio Profesional.
+En caso de que se excluya al regente del registro, quedará imposibilitado para regentar cualquier sitio de manejo durante el plazo de la sanción.

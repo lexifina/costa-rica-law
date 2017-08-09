@@ -1,0 +1,4 @@
+SECCIÓN V
+TENENCIA DE FLORA SILVESTRE EN PELIGRO DE EXTINCIÓN
+Artículo 146.- Jardines domésticos y decorativos con especies de flora silvestre de especies categorizadas en peligro de extinción. El Área de Conservación correspondiente podrá autorizar la tenencia de plantas de flora silvestre de especies categorizadas en peligro de extinción, para lo cual autorizará a particulares que deseen tener bajo su cuidado plantas silvestres con fines estéticos y recreativos para su disfrute personal. La autorización e inscripción de los especímenes se realizará bajo la modalidad de colección.
+El permisionario mantendrá las plantas dándoles las condiciones ideales para su supervivencia. Las plantas no pueden ser comercializadas o exhibidas públicamente. La adquisición de las mismas debe hacerse de manera legal.

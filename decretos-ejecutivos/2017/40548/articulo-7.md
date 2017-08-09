@@ -1,0 +1,1 @@
+Artículo 7.- Veda de fauna silvestre. Todas las especies de fauna silvestre se encuentran en veda permanente para el ejercicio de la cacería. Solamente podrá autorizarse la cacería de control o subsistencia cumpliendo lo establecido en la LCVS y este Reglamento.

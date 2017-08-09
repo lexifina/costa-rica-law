@@ -1,0 +1,1 @@
+Artículo 28.- Comprobación de daños ocasionados. Para la comprobación de daños ocasionados por fauna silvestre, se aplicará el Protocolo de abordaje para situaciones de interacción y convivencia entre actividades humanas y fauna silvestre del SINAC.

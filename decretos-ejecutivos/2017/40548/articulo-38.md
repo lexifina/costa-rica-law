@@ -1,0 +1,1 @@
+Artículo 38.- Reposición de licencia de cacería de control. En caso de pérdida de la licencia, el interesado deberá presentar una declaración jurada ante Notario Público indicando la pérdida, solicitar la reposición por escrito y presentar el comprobante original de pago del monto correspondiente al valor de la misma. El SINAC tendrá 15 días para emitir la nueva licencia.

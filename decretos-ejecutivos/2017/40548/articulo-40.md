@@ -1,0 +1,4 @@
+SECCIÓN III
+CACERÍA DE SUBSISTENCIA
+Artículo 40.- Cacería de subsistencia. El SINAC valorará cualquier solicitud relacionada con caza de subsistencia, cuando el objetivo exclusivo sea el consumo personal o familiar para la satisfacción de necesidades alimenticias de personas en una condición socioeconómica tal que no tengan acceso a otra fuente de proteína, quedando excluido el comercio. Esta autorización se dará mediante resolución administrativa en la cual se establecerán los métodos de cacería autorizados, el número de piezas por cazador y las zonas autorizadas, las cuales deberán ser cercanas al domicilio del solicitante.
+No se podrá autorizar la cacería de subsistencia de fauna silvestre con poblaciones reducidas, amenazadas o en peligro de extinción. La caza de subsistencia no será permitida en áreas silvestres protegidas.

@@ -1,0 +1,1 @@
+Artículo 212.- Acompañamiento de los regentes a inspecciones conjuntas. Será obligación del regente, acompañar a los funcionarios del SINAC a realizar inspecciones conjuntas del sitio que regenta cuando éstos así lo soliciten, previa notificación con diez días naturales de antelación.

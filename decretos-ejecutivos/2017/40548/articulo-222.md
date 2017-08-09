@@ -1,0 +1,1 @@
+Artículo 222.- Ejecutoriedad y recursos ordinarios. Estas órdenes administrativas tendrán los recursos ordinarios de revocatoria y apelación, los cuales deberán interponerse en los mismos plazos establecidos en el artículo 346 de la Ley General de la Administración Pública. La interposición de los recursos ordinarios no suspende la ejecución de la orden.

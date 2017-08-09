@@ -1,0 +1,1 @@
+Transitorio V. Los montos por los derechos indicados en este reglamento con destino al Fondo de Vida Silvestre, serán publicados mediante Decreto Ejecutivo en un plazo máximo de seis meses posteriores a la publicación de este reglamento. Hasta la publicación de este Decreto, los trámites se realizarán sin el cobro de estos montos.

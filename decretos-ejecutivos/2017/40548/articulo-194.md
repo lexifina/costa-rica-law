@@ -1,0 +1,7 @@
+Artículo 194.- Requisitos para permiso de exportación de especímenes de vida silvestre incluida en los apéndices de CITES. Para solicitar el permiso para exportación de especies de vida silvestre incluidas en los apéndices de CITES, el interesado debe presentarse ante la Secretaría Ejecutiva de SINAC según lo establecido en el artículo 14, y cumplir con los siguientes requisitos:
+a) Cumplir con lo establecido en el artículo 26 de la LCVS, con respecto a la EIA aprobada por la SETENA
+b) Cuando se solicite permiso de exportación para especies incluidas en el Apéndice I de CITES, se requerirá de una copia del permiso CITES del país de destino o una nota de la Autoridad Administrativa del país de destino, expresando su conformidad con la importación. En caso de que los especímenes provengan de un zoocriadero, el sitio deberá estar inscrito ante la Secretaría de CITES según lo dispuesto en la Convención.
+c) Criterio emitido por el Profesional Regente del sitio, indicando la fecha de nacimiento del espécimen, padres y otros criterios técnicos que demuestren que los individuos a exportar son nacidos en cautiverio y a cual generación filial pertenecen.
+d) Cuando los especímenes provengan de una venta autorizada según lo dispuesto en este reglamento, debe presentar una certificación que indique el origen.
+e) Cumplir con lo establecido por la CITES para la exportación de especímenes
+Una vez entregados estos requisitos, la Autoridad Administrativa solicitará el criterio a la Autoridad Científica CITES correspondiente.

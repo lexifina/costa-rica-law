@@ -1,0 +1,3 @@
+Artículo 130.- Reproducción de raicilla. Se permitirá el aprovechamiento mediante la reproducción de la Raicilla (Psichotria ipecacuana) en áreas fuera de bosque, bosque intervenidos y claros naturales debidamente manejados. Conforme a las excepciones del artículo 19 de la Ley Forestal N° 7575, el SINAC podrá autorizar el establecimiento de viveros de ésta especie en bosque intervenido, bajo las condiciones que para el efecto, establezca el Reglamento a la Ley Forestal
+El interesado deberá inscribir la actividad como un vivero comercial y cumplir lo establecido en la LCVS y este Reglamento.
+En caso de exportación deberá cumplir lo establecido en la LCVS y este reglamento.

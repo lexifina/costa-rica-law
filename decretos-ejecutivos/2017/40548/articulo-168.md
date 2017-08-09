@@ -1,0 +1,2 @@
+Artículo 168.- Listados de especies exóticas invasoras. El SINAC, con el apoyo de la CONAVIS y el Grupo de Especialistas de Especies Invasoras del Convenio sobre la Diversidad Biológica, confeccionará los listados oficiales de especies exóticas invasoras. Estas especies no podrán ser importadas o reproducidas en el territorio nacional.
+Estos listados serán revisados y actualizados cada tres años y su versión oficial estará disponible al público en la página web oficial del MINAE-SINAC.

@@ -1,0 +1,1 @@
+Artículo 110.- Zoocriaderos con fines comerciales. El SINAC podrá autorizar el establecimiento de zoocriaderos comerciales, los cuales se dedicarán a la reproducción de especies para la comercialización.

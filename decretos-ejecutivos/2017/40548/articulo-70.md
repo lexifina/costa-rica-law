@@ -1,0 +1,1 @@
+Artículo 70.- Métodos de eutanasia. Los métodos para aplicar la eutanasia deben respetar los principios de bienestar animal, causándole el menor sufrimiento al individuo. Para la aplicación de la eutanasia, el veterinario que la aplique o supervise directamente el proceso, debe seguir los protocolos oficiales sobre eutanasia del SINAC.

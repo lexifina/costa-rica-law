@@ -1,0 +1,4 @@
+Artículo 147.- Requisitos para solicitar la inscripción de tenencia de flora silvestre en peligro de extinción bajo la modalidad de colección. Según lo indicado en el artículo anterior, el interesado deberá inscribir ante el Área de Conservación respectiva, su colección de flora. Para ello, debe tramitar su solicitud según el artículo 14 de este reglamento y además cumplir con los siguientes requisitos:
+a. Demostrar que obtuvo las plantas silvestres de acuerdo a la legislación vigente, mediante la presentación de la factura comercial timbrada del sitio donde lo adquirió indicando el número de resolución que autoriza la venta, cuando corresponda.
+b. Presentar un inventario firmado por un profesional competente para la clasificación taxonómica, indicando la cantidad y especie de plantas.
+La inscripción de la colección tendrá un plazo de vigencia de cinco años, prorrogables según lo establecido en el siguiente artículo.

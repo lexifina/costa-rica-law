@@ -1,0 +1,1 @@
+Artículo 198.- Registro de vida silvestre por Área de Conservación. Cada Área de Conservación y la Secretaría Ejecutiva deberán ingresar los registros en el Sistema Nacional de Información sobre Vida Silvestre de las gestiones que realicen, según lo indicado en el artículo anterior.

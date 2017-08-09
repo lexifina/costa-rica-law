@@ -1,0 +1,1 @@
+Artículo 114.- Producción de carne. Los zoocriaderos comerciales estarán autorizados para la venta de carne de las especies silvestres que reproduzcan, de conformidad con los artículos anteriores. Además deberán cumplir los requisitos establecidos en la normativa nacional para la comercialización de carne de fauna silvestre.

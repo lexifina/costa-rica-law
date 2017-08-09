@@ -1,0 +1,1 @@
+Artículo 75.- Eutanasia con fines humanitarios. Cuando se deba aplicar eutanasia a un animal silvestre que se encuentra en condiciones que comprometan gravemente la salud o vida del animal, el SINAC podrá coordinar con clínicas veterinarias de la zona para la aplicación de la eutanasia. El veterinario que la aplique deberá seguir los protocolos oficiales del SINAC para tal fin.

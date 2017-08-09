@@ -1,0 +1,1 @@
+Artículo 142.- Transporte de flora silvestre comprada legalmente. En caso de compra de especímenes de flora silvestre de un establecimiento autorizado para la comercialización, el comprador portará factura de venta durante el recorrido, la cual debe contener la especie(s), número de individuos de cada especie y número de resolución que autoriza la venta de las plantas.
