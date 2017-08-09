@@ -1,0 +1,3 @@
+Artículo 84.- El presidente del Tribunal de Honor nombrará al menos dos integrantes, sin perjuicio de que puedan participar los cinco, en cada procedimiento disciplinario como instructores, dentro de sus miembros nombrados por la asamblea general. Estos miembros del Tribunal de Honor serán los encargados de la instrucción en todas sus etapas, asistirán a la audiencia y prepararán un informe preliminar.
+El informe preliminar será discutido por los cinco miembros del Tribunal de Honor en pleno, para que tomen una decisión, emitan la resolución final que firmarán los cinco y que deberá enviarse a la Junta Directiva.
+(Así adicionado en sesión N° 16-2017 del 9 de agosto de 2017)
