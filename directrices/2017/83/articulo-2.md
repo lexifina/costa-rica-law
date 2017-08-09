@@ -1,0 +1,1 @@
+Artículo 2º. Dicha restricción se extenderá a todos aquellos espacios físicos dispuestos para la publicidad (vallas publicitarias, mupis, entre otros), así como cualquier espacio electrónico (páginas web, redes sociales, entre otros) que tengan a disposición las instituciones públicas o las empresas públicas del Estado.
