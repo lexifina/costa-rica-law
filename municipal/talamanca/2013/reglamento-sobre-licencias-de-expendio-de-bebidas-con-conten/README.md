@@ -16,3 +16,4 @@ Reglamento sobre licencias de expendio de bebidas con contenido alcohólico
 | 1 | 2013-03-04 | la propia norma |
 | 2 | 2013-11-01 | Reglamento municipal 170 (2013-11-01) |
 | 3 | 2017-06-30 | Reglamento municipal 58 (2017-06-30) |
+| 4 | 2017-08-09 | Reglamento municipal 34 (2017-08-09) |
