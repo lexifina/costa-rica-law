@@ -1,1 +1,0 @@
-Artículo 10°-Los materiales que se usarán para la construcción de los reductores podrán ser concreto, asfalto o cualquier otro adecuado que acepte la Dirección, siempre y cuando cumplan con el propósito para el cual se ha instalado y no se opongan a las disposiciones legales y reglamentarias vigentes.
