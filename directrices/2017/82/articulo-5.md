@@ -1,0 +1,1 @@
+Artículo 5º. Se instruye a todas las instituciones de la Administración central y descentralizada, para que dentro del marco de sus competencias, proceda a ejecutar las acciones pertinentes a efectos de dar cumplimiento al marco normativo aplicable en relación con el transporte remunerado de personas.

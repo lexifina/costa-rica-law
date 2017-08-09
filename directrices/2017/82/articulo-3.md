@@ -1,0 +1,1 @@
+Artículo 3º. Se insta a la Caja Costarricense de Seguro Social para que, dentro de sus competencias constituciones y legales, proceda a investigar si cualquier empresa que utilice plataformas digitales para prestar un servicio ilegal de transporte remunerado de personas, se encuentra al día en sus obligaciones con la seguridad social.

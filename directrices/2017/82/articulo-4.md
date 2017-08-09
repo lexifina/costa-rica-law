@@ -1,0 +1,1 @@
+Artículo 4º. Debe el Ministerio de Economía, Industria y Comercio, de conformidad con la Ley Nº 7472, Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, ejercer las acciones legales que correspondan en relación con promociones y ofertas sobre servicios ilegales de transporte remunerado de personas que promuevan diferentes empresas dentro del territorio.

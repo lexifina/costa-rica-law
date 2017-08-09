@@ -1,0 +1,1 @@
+Artículo 2º. Debe la Dirección General de Tributación realizar las acciones que por ley correspondan para asegurar que cualquier otra empresa que utilice plataformas digitales para prestar un servicio ilegal de transporte remunerado de personas, se ajusten a las disposiciones tributarias aplicables al efecto.
