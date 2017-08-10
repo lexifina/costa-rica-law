@@ -1,0 +1,20 @@
+Sección III
+Unidad de Ingresos Fiscales y Programación Plurianual
+Artículo 11°- Atiende el proceso presupuestario de los ingresos fiscales y la programación plurianual; así como la formulación del Marco Fiscal Presupuestario de Mediano Plazo.
+Sus principales funciones son:
+a) Estimar la totalidad de las rentas probables del Gobierno de la República, mediante el uso de técnicas estadísticas y econométricas que consideran, entre otros aspectos, supuestos macroeconómicos y el análisis de diferentes variables económicas.
+b) Coordinar con las entidades externas la obtención de las certificaciones de ingresos y de capacidad de endeudamiento del Sector Público, así como la información requerida en su área para la elaboración del Proyecto de Ley de Presupuesto de la República.
+c) Elaborar los comentarios correspondientes a los ingresos y estadísticas que se incorporan en el documento de presentación del Proyecto de Ley de Presupuesto de la República, con el objeto de mostrar un panorama general de la situación fiscal del país.
+d) Efectuar proyecciones de mediano plazo de los ingresos y gastos del Gobierno de la República, para elaborar el documento conocido como Marco Fiscal Presupuestario de Mediano Plazo, con el objeto de proyectar el impacto de la implementación de las prioridades gubernamentales sobre las finanzas del Gobierno de la República en un horizonte de tres a cinco años, el cual se presenta a la Asamblea Legislativa.
+e) Dar seguimiento a la ejecución de los ingresos tributarios mediante el análisis continuo de las causas del comportamiento observado de la recaudación, con el objeto de detectar desviaciones significativas en las estimaciones inicialmente efectuadas.
+f) Efectuar nuevas estimaciones de los ingresos corrientes durante la ejecución del ejercicio presupuestario y cuando sea requerido, elaborar proyectos de presupuestos extraordinarios en lo que al apartado de rentas se refiere.
+g) Incorporar en los sistemas presupuestarios las cuentas y cifras de ingresos corrientes de capital y financiamiento como parte de los proyectos de presupuesto ordinario y extraordinario de la República.
+h) Participar en la elaboración de los informes de seguimiento de la ejecución del presupuesto de la República, para determinar impactos en los escenarios presupuestarios plurianuales publicados.
+i) Investigar y preparar informes relativos al impacto de modificaciones en la normativa tributaria vigente, sobre los ingresos fiscales que percibe el Gobierno de la República y las asignaciones presupuestarias con destino específico.
+j) Participar en Comisiones técnicas internas y como representante de la DGPN en comisiones institucionales e interinstitucionales, con el fin de elaborar informes, instructivos, manuales, circulares, directrices, lineamientos, oficios y otros instrumentos técnicos que surgen como consecuencia de las actividades que realizan estas comisiones para atender la normativa técnica vigente.
+k) Efectuar a solicitud de las autoridades superiores, estudios especiales de naturaleza económica, que tengan estrecha vinculación con la materia presupuestaria.
+l) Investigar sobre la existencia de nuevas metodologías o técnicas de estimación estadística y econométrica que contribuyan al logro de mayores grados de precisión en las proyecciones de ingresos y gastos, tanto de corto como de mediano plazo.
+m) Participar en la función asesora y de capacitación que tiene la DGPN, a nivel interno y externo, en materia de ingresos y programación plurianual.
+n) Atender y resolver consultas verbales y escritas del público en general y entidades del Sector Público en materia de ingresos y programación plurianual.
+o) Asistir a reuniones, seminarios, charlas, talleres y otras actividades similares, así como representar a la institución ante organismos públicos y privados que traten materia de ingresos y programación plurianual o de cualquier otro tema, cuando así lo solicite la Dirección General.
+p) Otras funciones que determine la Dirección General o la normativa vigente.

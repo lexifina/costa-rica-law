@@ -1,0 +1,1 @@
+Artículo 7°- El equipo de asistentes administrativos de la Dirección General será el responsable de brindar apoyo a los (as) funcionarios (as) de la Dirección General de Presupuesto Nacional en diferentes actividades secretariales y administrativas necesarias para el buen funcionamiento de la Dirección.
