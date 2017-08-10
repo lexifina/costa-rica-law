@@ -26,11 +26,13 @@ Depende de la Dirección de Administración y Finanzas.
 118.2.22 Realizar periódicamente arqueos de los fondos de Caja Chica.
 118.2.23 Realizar los inventarios de los activos fijos.
 118.2.24 Mantener actualizado el sistema de control de activos fijos.
-118.2.25 Preparar y controlar las solicitudes de indemnización al Instituto Nacional de Seguros, amparadas a la póliza de Vida Tradicional y la póliza de Protección Crediticia.
+118.2.25 Preparar y controlar las solicitudes de indemnización al Instituto Nacional de Seguros, amparadas con la póliza de Protección Crediticia.
+(Así reformado el punto anterior mediante sesión N° 007-2017 del 10 de agosto del 2017)
 118.2.26 Implementar mejoras en los procesos, procedimientos y actividades.
 118.2.27 Participar en la elaboración y ejecución del Plan Estratégico del FONDO.
 118.2.28 Elaborar y ejecutar el Plan Anual Operativo.
 118.2.29 Velar por la correcta aplicación de la disposición de la JUNTA en materia Tributaria.
-118.2.30 Preparar y controlar el cobro de las partidas que reconoce RECOPE, así como el reintegro del pago realizado por concepto de las pólizas de Vida Tradicional y la póliza de Protección Crediticia.
+118.2.30 Preparar y controlar el cobro de las partidas que reconoce RECOPE, así como el reintegro del pago realizado por concepto de la póliza de Protección Crediticia.
+(Así reformado el punto anterior mediante sesión N° 007-2017 del 10 de agosto del 2017)
 118.2.31 Realizar la valoración de riesgos y proponer al Director de Administración y Finanzas un plan de mitigación de los mismos.
 118.2.32 Realizar otras funciones propias del Fondo.

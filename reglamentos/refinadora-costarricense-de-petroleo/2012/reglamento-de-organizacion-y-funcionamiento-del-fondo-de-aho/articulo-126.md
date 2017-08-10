@@ -4,7 +4,8 @@ Depende de la Dirección de Operaciones.
 126.2 Deberes y atribuciones:
 126.2.1 Velar que se cumplan las normas, políticas y procedimientos en todas las actividades desarrolladas por la unidad.
 126.2.2 Coordinar y velar por la ejecución de las actividades de Servicios Jurídicos.
-126.2.3 Asesorar a los beneficiarios en asuntos legales relacionados con los trámites crediticios y pólizas de incendio y de vida tradicional colectiva.
+126.2.3 Asesorar a los beneficiarios en asuntos legales relacionados con los trámites crediticios y pólizas de incendio.
+(Así reformado el punto anterior mediante sesión N° 007-2017 del 10 de agosto del 2017)
 126.2.4 Realizar el estudio legal correspondiente a las solicitudes de crédito hipotecario.
 126.2.5 Asignar a los notarios externos la confección de los contratos hipotecarios.
 126.2.6 Verificar que las escrituras hipotecarias cumplan con las condiciones de aprobación del préstamo.
@@ -12,7 +13,8 @@ Depende de la Dirección de Operaciones.
 126.2.8 Asignar a los abogados externos los casos para cobro judicial.
 126.2.9 Controlar el proceso de cobro judicial, velando por el cumplimiento del reglamento correspondiente.
 126.2.10 Incluir y actualizar la información correspondiente a la póliza colectiva de incendio que asegura las propiedades financiadas por el FONDO.
-126.2.11 Ejecutar y controlar el procedimiento de suscripción para la designación de beneficiarios en los formularios de indemnizaciones de la póliza de vida tradicional colectiva y protección crediticia.
+126.2.11 Ejecutar y controlar el procedimiento de suscripción para la designación de beneficiarios en el formulario de indemnizaciones de la póliza de protección crediticia.
+(Así reformado el punto anterior mediante sesión N° 007-2017 del 10 de agosto del 2017)
 126.2.12 Controlar el procedimiento de suscripción de pagarés por formalización de créditos hipotecarios.
 126.2.13 Realizar la etapa de instrucción de la causa denunciada, en los procedimientos disciplinarios seguidos contra trabajadores del FONDO.
 126.2.14 Realizar la etapa de instrucción de la causa denunciada, en los procedimientos disciplinarios seguidos contra usuarios de los centros de recreación, de conformidad con el Reglamento de uso de las Instalaciones del Centro de Recreación de Alajuela y de Manzanillo.

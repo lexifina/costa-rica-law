@@ -15,7 +15,8 @@ Depende de la Dirección de Operaciones.
 125.2.11 Ejecutar las aplicaciones de excedentes a préstamos.
 125.2.12 Ejecutar el proceso para la devolución del 5% de aporte patronal en diciembre de cada año.
 125.2.13 Ejecutar los procesos de devolución del ahorro voluntario.
-125.2.14 Administrar la información de las pólizas (incendio, robo, vida tradicional y protección crediticia) de los beneficiarios del FONDO, en coordinación con el agente de seguros.
+125.2.14 Administrar la información de las pólizas (incendio, robo y protección crediticia) de los beneficiados del FONDO, en coordinación con el agente de seguros.
+(Así reformado el punto anterior mediante sesión N° 007-2017 del 10 de agosto del 2017)
 125.2.15 Administrar los expedientes físicos y digitales de las operaciones crediticias de los beneficiarios.
 125.2.16 Preparar los informes necesarios para la elaboración de la propuesta de política de crediticia del FONDO.
 125.2.17 Implementar mejoras a los procesos, procedimientos y actividades.

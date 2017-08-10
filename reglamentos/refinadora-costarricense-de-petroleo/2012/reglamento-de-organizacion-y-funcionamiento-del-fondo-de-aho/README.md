@@ -21,3 +21,4 @@ Reglamento de Organización y Funcionamiento del Fondo de Ahorro, Préstamo, Viv
 | 6 | 2015-07-07 | Reglamento 4 (2015-07-07) |
 | 7 | 2015-08-26 | Reglamento 7 (2015-08-26) |
 | 8 | 2017-07-31 | Reglamento 6 (2017-07-31) |
+| 9 | 2017-08-10 | Reglamento 7 (2017-08-10) |
