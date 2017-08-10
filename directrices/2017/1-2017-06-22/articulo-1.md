@@ -1,0 +1,100 @@
+MAG-001–2017
+EL MIINISTRO DE AGRICULTURA Y GANADERÍA
+Directriz N° 001 -2017.-Al ser las trece horas del día veintidós del mes de junio del año dos mil diecisiete.
+Considerando:
+1. Que de conformidad con la Ley Nº 8823, Reforma de varias leyes sobre la participación de la Contraloría General de la República para la simplificación y el fortalecimiento de la gestión pública , divulgada en el Diario Oficial La Cacera N° 105 de 01 de junio del 2010, se establece el procedimiento para la declaratoria de idoneidad de sujetos privados para administrar fondos públicos.
+2. Que de conformidad con la Ley citada, cuando los recursos que se asignen al sujeto privado con cargo al Presupuesto Ordinario y Extraordinario de la República, se canalicen a través de un Ministerio, éste en su condición de administración concedente, debe cumplir con lo establecido en el numeral 4.5.3 de las Normas de Control Interno para el Sector Público, publicadas en La Gaceta Nº 26 del 6 de febrero de 2009 y determinar bajo su responsabilidad la emisión de las regulaciones o mecanismos que se considere necesarios para asegurar que de previo al giro de los recursos, se verifique la capacidad legal, administrativa y financiera del sujeto privado beneficiario, su aptitud técnica para la ejecución de las obras o servicios para los cuales se dispongan los recursos, así como el cumplimiento del destino legal para el cual se otorguen lo recursos (modificación de los artículos 2 y 4 inciso j) de Ley Nº 7755, por el artículo 41 de la Ley Nº 8823).
+3. Que en la Circular N° DGPN -044-2011 del Ministerio de Hacienda del 21 de enero de 2011 se establece que corresponde a la Administración Concedente definir las unidades administrativas para atender el cumplimiento de la norma y garantizar que los sujetos beneficiarios tienen capacidad suficiente a nivel legal, técnico, administrativo y financiero.
+4. Que en el Decreto Ejecutivo Nº 37485-H publicado en el Diario Oficial La Gaceta N.º 33 de 15 de febrero del 2013 emitido por la Presidencia de la Republica y el Ministerio de Hacienda, se crea el Reglamento para Transferencias de la Administración Central a Entidades Beneficiarias, tiene por objetivo establecer los lineamientos generales a aplicar por parte del máximo jerarca y/o la instancia competente en los procedimientos y presentación de requerimientos de información que deban atender las Entidades Beneficiarias y las Entidades Concedente participantes en procesos de transferencias presupuestaria .
+5. Que el Consejo Nacional Sectorial Agropecuario (CAN) en Sesión N.º 06-20 15 de 20 de agosto del año 2015, acuerdo Nº 54-08-2015, acordó que las instituciones del Sector Agropecuario, gestionen el desarrollo de proyectos con un enfoque de gestión intersectorial, con apalancamiento técnicos y financieros interinstitucionales para el de arrollo de emprendimientos agro productivos, socioeconómicos y ambientales y que conlleven a generar un mayor impacto y cobertura territorial y cuente con un portafolio o cartera de proyectos formulados y aprobados.
+6. Que en el acuerdo N.º 52 de 25 de agosto del 2016, la Junta Directiva del Instituto de Desarrollo Rural (Inder). acuerda:" ...
+i. En procura de alinear el acuerdo del Consejo Nacional Sectorial Agropecuario (CAN) Nº 54-08-2015 de la Sesión N°º 06-2015, orientado a homogenizar e integrar lineamientos para la elaboración y aprobación de proyectos agro productivos con apalancamientos interinstitucionales, la Junta Directiva del Inder acuerda unificar e integrar la certificación de idoneidad requerida por el MAG y el Inder para evaluar la capacidad administrativa y financiera de las organizaciones beneficiadas con proyectos de estas instituciones.
+ii. El mecanismo de trabajo a seguir será definido por la Unidad de Planificación del Ministerio de Agricultura (MAG), la Dirección de Planificación y la Dirección de Desarrollo del Inder, orientado a la integración de requisitos y requerimientos establecidos en la normativa legal de los órganos reguladores como el Ministerio de Hacienda y la Contraloría General de la República (CGR) acorde con la eficiencia de trámites, requisitos y la estandarización de procesos interinstitucionales."
+iii. Asimismo, se definirá un mecanismo de coordinación para el manejo integrado de los portafolios o cartera de proyectos formulados y aprobados entre ambas instituciones.
+7. Que en coordinación la Unidad de Planificación del MAG y Planificación Institucional del Inder, elaboraron una propuesta para la integración del procedimiento para la declaratoria de idoneidad de sujetos privados para administrar fondos públicos. En ella se mantiene el respeto a la formalidad y normativa vigente y fomenta la simplificación de trámites cii la administración del Sector Agropecuario y Rural. Dado lo anterior resulta viable aprobar y oficializar los lineamientos mínimos para la declaratoria de idoneidad de sujetos privados para el manejo de fondos públicos en el Sector Agropecuario y Rural.
+8. Que los requisitos y el procedimiento para otorgar la declaratoria de idoneidad de sujetos privados para administrar fondos públicos, debe estandarizarse con todas las instituciones del Sector Agropecuario y Rural, para esto es necesario contar con la formalidad y oficialización de dicho procedimiento, a fin de brindar transparencia y simplificación de trámites para el solicitante interesado.
+Por tanto,
+EL MINISTRO DE AGRICULTURA Y GANADERIA,
+RESUELVE:
+APROBAR LA DIRECTRIZ DENOMINADA
+"LINEAMIENTOS MÍNIMOS PARA LA
+DECLARATORIA DE IDONEIDAD DE SUJETOS PRIVADOS PARA EL MANEJO DE FONDOS
+PÚBLICOS PARA EL SECTOR AGROPECUARIO Y RURAL", el cual rige a partir de su publicación.
+Procédase con su respectiva publicación, por una vez, en el Diario Oficial La Gaceta.
+LINEAMIENTOS MÍNIMOS
+PARA LA DECLARATORIA DE IDONEII)AD DE SUJETOS PRIVADOS
+PARA EL MANEJO DE FONDOS PÚBLICOS PARA EL SECTOR AGROPECUARIO
+Objeto
+Declarar la idoneidad de sujetos privados para administrar fondos públicos provenientes de transferencias y partidas específicas, contempladas en los Presupuestos Ordinarios y Extraordinarios de la Ley de la Administración Financiera de la Republica y Presupuestos Públicos, según la Ley N.° 8131, en beneficio de la prestación de servicios de las instituciones del Sector Agropecuario y Rural.
+Justificación
+La prestación de servicios mediante la transferencia de fondos públicos a sujetos privados requiere la comprobación de la capacidad legal, administrativa y financiera de la Organización, además de aptitud técnica para administrar y ejecutar los recursos. La declaración de idoneidad conlleva la evaluación de condiciones de legalidad, transparencia y competencias administrativas y financieras necesarias para la administración eficiente y eficaz de fondos públicos.
+Compete al Ministro de Agricultura y Ganadería, como rector de Sector Agropecuario y Rural, definir un procedimiento para la declaratoria de idoneidad de sujetos privados para administrar fondos públicos, razón por la cual, se requiere contar lineamientos mínimos oficializados para dicho procedimiento de declaratoria. Así mismo, a lo establecido en el Decreto Ejecutivo N° 37485-H emitido por la Presidencia de la República y el Ministerio de Hacienda, que regula esta materia para los entes del Gobierno Central.
+Ámbito de aplicación
+La presente directriz aplica para todas las entidades y órganos públicos del Sector Agropecuario y Rural concedentes de beneficios patrimoniales, gratuitos o sin contraprestación alguna, en favor de sujetos privados que soliciten la declaratoria de idoneidad para administrar fondos públicos, con el fin de desarrollar proyectos del Sector Agropecuario y Rural. Estos deben estar dirigidos a generar impacto económico y social, sean productivos o de servicios, con atención prioritaria sobre aquellos territorios con menores índices de desarrollo.
+Se establece la excepción para organizaciones en proceso de formación de competencias que participan como coadyuvantes en la atención de familias que reciben apoyo por parte del programa Fomento a la Producción y la Seguridad Alimentaria del lnder. Los criterios de selección y participación de estas organizaciones serán definidos por el Instituto ejecutor.
+I. Requisitos generales a cumplir por el sujeto privado.
+Solicitud de declaración de idoneidad.
+1. Carta de solicitud que contenga:
+a) Domicilio del sujeto privado.
+b) Número de teléfono, fax, apartado postal y dirección del correo electrónico, en caso de contar con ellos.
+c) Calidades del representante legal (nombre completo, estado civil, número de cédula de identidad o residencia, profesión u oficio y domicilio).
+d) El listado con el detalle de los documentos que se adjuntan a la solicitud.
+Capacidad técnica.
+1. La organización debe presentar un documento del proyecto que se pretende apoyar total o parcialmente con fondos públicos, debe contener objetivos, metas e indicadores precisos con su respectivo plan de inversión y su fuente de financiamiento, que permita verificar con claridad el fin ajustado a las políticas. planes y lineamientos de cada institución.
+2. Una declaración jurada del representante legal de la organización, que indique con claridad, que la entidad está activa, realizando en Forma regular proyectos y actividades conducentes a la finalidad para la cual fue creada. Para ello el sujeto privado solicitante deberá tener al menos un año de haber sido inscrito oficialmente en el registro respectivo y de estar activo.
+Capacidad legal.
+1. Fotocopia certificada de la escritura constitutiva y sus reformas, así como los estatutos vigentes al momento de la solicitud, emitida por la entidad u órgano público respectivo o por un Notario Público.
+2. Certificación literal de personería jurídica vigente (con no más de un mes de emitida) dada por la entidad u órgano público respectivo o por un Notario Público; en la cual se indique la fecha de vencimiento del nombramiento de los representantes de los órganos directivos (en el caso de las organizaciones cooperativas deben presentar personería jurídica en que se indique la Gerencia y el Consejo de Administración).
+3. Las organizaciones cooperativas deben presentar certificación de encontrarse al día con el Instituto Nacional de Fomento Cooperativo (INFOCOOP).
+Capacidad administrativa.
+1. Declaración jurada emitida por el representante legal de la organización en la cual se indique en forma clara y precisa lo siguiente:
+a. La estructura administrativa del sujeto privado, con indicación expresa que cuenta con todos los
+recursos complementarios para el desarrollo del proyecto.
+b. Si el sujeto privado utiliza reglamentos, manuales o directrices para la administración y el manejo de recursos destinados para el desarrollo de programas y proyectos y ejecución de obras.
+c. Si el sujeto privado cuenta con libros contables y de actas actualizados de los principales órganos (Asamblea y Junta Directiva, u órganos creados), debidamente legalizados y al día. En este caso, se debe indicar el tipo de libros de actas y contables existentes, el nombre de la entidad, órgano o persona que los legalizó y la fecha del último registro en cada uno de ellos al menos del mes anterior a la fecha en que se reciba la carta de presentación en la Administración concedente.
+2. Certificaciones de estar al día con la normativa de seguridad social CCSS, FODESAF.
+Capacidad financiera.
+1. Copia confrontada con el original del dictamen de auditoría de estados financieros y de los estados financieros auditados del último periodo contable (Balance General, Estado de Resultados, Estado de
+Cambios en el Patrimonio y Estado de Flujo de Efectivo y notas a los estados financieros), correspondientes al último período contable anual, firmados por el contador que los preparó y por el representante legal de la entidad.
+2. Nota suscrita por el representante legal del sujeto privado en la que se indiquen las acciones efectuadas por la administración para subsanar las debilidades de control interno identificadas en la Carta de Gerencia emitida por el Contador Público Autorizado.
+II. Requisitos adicionales a cumplir por sujetos privados con facultades específicas.
+Organizaciones declaradas de Bienestar Social
+1. En el caso que aplique, los sujetos privados de cualquier tipo beneficiarios de fondos provenientes de la Ley N.° 7972 de 22 de diciembre de 1999, deberán presentar la certificación vigente del Instituto Mixto de Ayuda Social (IMAS) que los declara de bienestar social, según lo dispone el artículo 18 de esa Ley.
+Fundaciones
+Según la Ley de Fundaciones. N.° 5338 de 28 de agosto de 1973 y sus reformas, deberán:
+1. Informar sobre las calidades, el número de teléfono, el grado académico y el número de afiliación al Colegio Profesional correspondiente de la persona que ocupa el cargo de Auditor Interno de la fundación, en cumplimiento de lo dispuesto por el artículo 18 de la Ley de Fundaciones, que señala que toda fundación está obligada a tener una auditoria interna.
+2. Presentar fotocopia del Diario Oficial La Gaceta, donde consten los nombramientos de los directores designados por el Poder Ejecutivo y por el Concejo Municipal del cantón en que la fundación tiene su domicilio legal, según lo establecido por el artículo 11 de la Ley de Fundaciones y su Reglamento (Decreto Ejecutivo N.° 29744-J de 29 de mayo del 2001). Se debe acompañar de las certificaciones de las autoridades correspondientes en que conste la vigencia de los nombramientos.
+3. Fotocopia certificada de la nota de presentación a la Contraloría General de la República de los informes contables, del informe anual sobre el uso y destino de los fondos públicos que hubiere recibido la fundación y del informe del auditor interno relativo a la fiscalización de los recursos públicos que se le hubieran transferido a la fundación, según lo dispuesto por los artículos 15 y 18 de la Ley de Fundaciones, respectivamente.
+4. Presentar una declaración jurada ante Notario Público del Presidente de la Junta Administrativa, en la cual se indique claramente que la entidad ha estado activa desde su constitución, calidad que adquiere con la ejecución de por lo menos un proyecto, programa u obra al año, según lo establecido por el inciso b) del artículo 18 de la Ley N.° 5338 y sus reformas.
+Sujetos privados con presupuestos con regulaciones establecidas por la Contraloría General de la República (CGR)
+1. El sujeto privado, de cualquier tipo, sometido a las regulaciones establecidas por la CGR para efectos de la presentación de sus presupuestos ante el Órgano Contralor, deberá suministrar ante la Administración concedente, una copia del oficio en que se emite la aprobación del presupuesto por parte de la CGR, asimismo copia de la nota con la que presentó los informes de ejecución y liquidación en que conste el recibido.
+III. Procedimiento general para los entes u órganos públicos concedentes de recursos para la declaración de la idoneidad.
+La Administración designará la unidad responsable de liderar el proceso de declaratoria de idoneidad según su estructura. Esta unidad tendrá las siguientes funciones:
+1) Verificar y analizar la capacidad legal, administrativa y financiera del sujeto privado, así como su aptitud técnica en el desarrollo de programas, proyectos u otros, financiados total o parcialmente con fondos públicos.
+2) Coordinar con las instancias competentes para emitir el criterio correspondiente según la capacidad analizada.
+3) Documentar en un expediente foliado de cada sujeto privado, físico o electrónico, el proceso de
+declaratoria de idoneidad a desarrollar.
+4) Emitir la declaración de la condición de idoneidad bajo el análisis integral, de acuerdo al criterio técnico, legal, financiero y administrativo.
+5) Comunicar oficialmente el resultado positivo o negativo de la valoración efectuada a las partes involucradas.
+Sobre la coordinación entre entidades concedentes del Sector Agropecuario y Rural.
+1. Para aquellos sujetos privados que ya cuentan con la declaratoria de idoneidad vigente por parte de alguna de las entidades de] Sector Agropecuario y Rural, podrán presentar copia certificada de la idoneidad, emitida por la entidad concedente.
+2. En los casos citados en el punto I, la entidad concedente de los fondos, solicitará al sujeto privado la actualización de documentos que tengan vencimiento.
+3. Las entidades del Sector Agropecuario y Rural, deberán definir los mecanismos de coordinación para el manejo integrado de los portafolios o cartera de proyectos aprobados entre las instituciones y sujetos privados declarados idóneos. Así como, los procesos para el seguimiento y la evaluación en todo el ciclo de gestión de los proyectos.
+IV. Vigencia de la declaración de idoneidad.
+La declaración de idoneidad otorgada tendrá una vigencia de dos años, contados a partir de la fecha de su emisión.
+v. Fiscalización.
+La Administración concedente y su respectiva Auditoria Interna con fundamento en lo establecido en los artículos 22 y 23 de la Ley General de Control Interno, N.° 8292 de 31 de julio del 2002, podrá fiscalizar la actuación realizada por el sujeto privado que ha sido declarado como idóneo para administrar fondos públicos.
+Dicha facultad procederá igualmente para la Contraloría General de la República, al amparo de su Ley Orgánica.
+VI. Controles sobre los sujetos privados declarados como idóneos para administrar fondos públicos.
+La Administración concedente deberá cumplir con lo estipulado en los párrafos final y segundo de los artículos 7 y 25, respectivamente, de la Ley Orgánica de la Contraloría General de la República y los numerales 1, inciso c) de los apartes IV y VII, en ese orden, de las Circulares números 14298 y 14299, 14300 de 18 de diciembre del 2001 y sus reformas, en lo referente a la implementación de los mecanismos de control necesarios y suficientes para verificar el correcto uso y destino de los beneficios otorgados a sujetos privados.
+Además del cumplimiento a lo establecido en las Normas de Control interno para el Sector Público, Resolución N.° 72-2000 emitida por la Contraloría General de la República.
+Durante la vigencia de la declaración de idoneidad, el ente concedente está obligado a verificar, previo al desembolso de nuevos recursos al sujeto declarado como idóneo, que las situaciones técnico jurídicas bajo las que se otorgó el dictamen de idoneidad se mantienen.
+VII. Revocación de la declaratoria de idoneidad.
+Para asegurar el debido cumplimiento del destino de los recursos, la Entidad Concedente podrá revocarle o suspenderle al sujeto privado la declaración de idoneidad según la gravedad del incumplimiento, cuando se presenten los siguientes supuestos:
+1. Se constate por cualquier medio, que el sujeto privado ha desviado los recursos concedidos hacia fines diversos del asignado. En este supuesto si la desviación fue respecto a intereses particulares, procede la revocación, de acuerdo con lo preceptuado por el artículo 7 de la Ley N. 7428.
+2. Cuando de previo a la incorporación de nuevos proyectos o al giro de recursos, se verifique que han variado las condiciones con las que se emitió la declaración de idoneidad, según lo dispuesto en la presente normativa.
+3. Cuando producto de la evaluación de objetivos, metas e indicadores, el resultado determine el incumplimiento de los fines públicos que se perseguían con el programa o proyecto.
+El acto que revoque la declaración de idoneidad del sujeto privado debe ser motivado y puesto en conocimiento de las dependencias administraciones internas que por razones de competencia deban conocer dichos efectos.
+VIII. Sanciones y responsabilidades.
+El incumplimiento de lo establecido en esta Directriz dará lugar a las sanciones previstas en la Ley General de la Administración Pública, Ley de la Administración Financiera de la República y Presupuestos Públicos, Ley General de Control Interno. Ley contra la Corrupción y el Enriquecimiento ilícito en la Función Pública, sin perjuicio de la aplicación de otras causales de responsabilidad contenidas en el ordenamiento jurídico.
+Es todo. Comuníquese.
