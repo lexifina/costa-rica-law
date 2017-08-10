@@ -1,0 +1,1 @@
+Artículo 2.- Deróguense los artículos 125. 128, 129, 130, 131, 132, 144 párrafo sétimo, 148 párrafo tercero, 150 y 152 del Decreto Ejecutivo N° 33411 del 27 de setiembre del 2006, Reglamento a la Ley Contratación Administrativa.
