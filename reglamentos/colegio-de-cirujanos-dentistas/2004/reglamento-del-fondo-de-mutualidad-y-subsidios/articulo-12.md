@@ -1,7 +1,7 @@
-Artículo 12.—Revalorización de los beneficios. Anualmente, la Junta Directiva someterá a la Asamblea General, una propuesta para el aumento en el monto de los beneficios en caso de invalidez o muerte, con fundamento en lo siguiente:
-1) La evaluación actuarial del fondo, comprobando el equilibrio o superávit actuarial en el largo plazo y que dicha evaluación cumpla las siguientes condiciones:
-a) Haya contemplando los aumentos propuestos.
-b) Haya sido realizada en fecha que no supere los seis meses del inicio de la fecha del aumento propuesto.
-c) Haya sido realizada por un actuario-matemático, debidamente autorizado para ejercer la profesión en el país.
-d) Haya sido aprobada por la junta directiva del colegio.
-2) Que los egresos del año en curso o siguiente, causados por la modificación propuesta hayan sido debidamente incluidos en el presupuesto anual correspondiente.
+Artículo 12:
+El financiamiento del Fondo de Mutualidad y Subsidio, se realiza mediante la capitalización colectiva completa y comprende los siguientes recursos financieros:
+a. Los fondos de reserva acumulados.
+b. La contribución mensual a cargo de cada colegiado, la cual no podrá ser inferior al 10% de la cuota de colegiatura establecida por la Asamblea General del Colegio c. La suma que anualmente disponga la Junta Directiva que conforme a la Ley del Timbre Odontológico (Ley No 3752 del 4 de octubre de 1966) le corresponde al Fondo y no podrá ser menor al 10% de la recaudación total o entrega global.
+d. Otros recursos a juicio de la Junta Directiva del Colegio.
+Los rendimientos generados por las inversiones del Fondo de Mutualidad y Subsidio, serán trasladados al Fondo de Retiro Odontológico que administra el Colegio.
+(Así reformado mediante sesión N° 79-2017 del 10 de agosto del 2017)
