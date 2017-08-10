@@ -14,3 +14,4 @@ Reglamento para el Registro y Control de Bienes de la Operadora de Planes de Pen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-02-13 | la propia norma |
+| 2 | 2017-08-10 | Reglamento 517 (2017-08-10) |
