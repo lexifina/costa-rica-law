@@ -14,3 +14,4 @@ Reglamento del fondo de Caja Chica del Instituto Costarricense del Deporte y la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-02-08 | la propia norma |
+| 2 | 2017-08-10 | Reglamento 1023 (2017-08-10) |

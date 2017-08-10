@@ -7,7 +7,8 @@ CONSIDERANDO:
 1 Publicada en Alcance No. 20, Gaceta No. 103 del 29 de mayo de 1998
 2. Que el artículo Nº 2 de la Ley N° 74942, Contratación Administrativa informa que las compras realizadas con fondos de Caja Chica se dispondrán reglamentariamente, siempre y cuando no excedan los límites económicos fijados para las distintas modalidades de concursos por lo que se excluyen las compras de Caja Chica de los procedimientos de concurso establecidos en la citada Ley.
 2 Publicada en Alcance No. 20, Gaceta No. 110 del 08 de junio de 1995
-3. Que dada la importancia del uso racional de los recursos financieros asignados al ICODER, se requiere contar con un Fondo de Caja Chica que permita el financiamiento oportuno de suministros e insumos, bienes y servicios de carácter urgente, imprevisto y por escasa cuantía y que garantice el funcionamiento administrativo y técnico eficiente de la Institución, así como la ejecución racional de su presupuesto.
+3. Que dada la importancia del uso racional de los recursos financieros asignados al ICODER, se requiere contar con un Fondo de Caja Chica que permita el financiamiento oportuno de suministros e insumos, bienes y servicios de carácter urgente, imprevisto o por escasa cuantía y que garantice el funcionamiento administrativo y técnico eficiente de la Institución, así como la ejecución racional de su presupuesto.
+(Así reformado el punto anterior mediante sesión ordinaria N° 1023-2017 del 10 de agosto del 2017)
 4. Con el fin de alcanzar el mejoramiento continuo y dada las necesidades de mejorar la eficiencia y oportunidad del gasto, se hace necesario realizar ajustes y mejoras al reglamento actual que se adapte a la realidad institucional vigente.
 CAPITULO I
 DISPOSICIONES GENERALES
