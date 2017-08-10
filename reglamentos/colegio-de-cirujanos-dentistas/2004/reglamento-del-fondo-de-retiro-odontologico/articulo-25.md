@@ -1,1 +1,3 @@
-Artículo 25.—El presente Reglamento deroga el anterior aprobado en Asamblea General del Colegio el 17 de octubre de 1998, reformado el 15 de mayo del 2003, sin perjuicio de los derechos adquiridos con base en este último y rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 25:
+Las únicas circunstancias admitidas para que un colegiado salga del grupo de activos cotizantes del Fondo son: muerte, invalidez, incapacidad, acogerse al beneficio de este Fondo o renuncia que éste haga a los derechos de inscripción o derechos del Colegio.
+(Así reformado mediante sesión N° 79-2017 del 10 de agosto del 2017)

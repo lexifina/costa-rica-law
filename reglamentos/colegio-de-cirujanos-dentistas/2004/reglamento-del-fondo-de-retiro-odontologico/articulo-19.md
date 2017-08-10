@@ -1,1 +1,4 @@
-Artículo 19.—La junta directiva deberá incluir en su informe anual a la asamblea general ordinaria del colegio, un resumen sobre la situación financiero-actuarial del fondo, acompañado de los respectivos reportes financiero-contables pertinentes, debidamente avalados por una auditoria externa.
+Artículo 19:
+En caso de que la Junta Directiva considere pertinente la delegación de funciones, deberá exigir por medio de contrato, responsabilidad solidaria y fiduciaria del ente administrador, cuando éste ejerza una actividad discrecional, realice la programación y control de inversiones, manejo de los recursos financieros o realice la administración en general de recursos del Fondo.
+En todo caso el contrato deberá ser refrendado por el Auditor y la oficina Legal del Colegio.
+(Así reformado mediante sesión N° 79-2017 del 10 de agosto del 2017)

@@ -1,1 +1,4 @@
-Artículo 12.—La junta directiva tiene la obligación de girar al Fondo la suma especificada en el artículo anterior de la cuota de colegiatura recaudada. Esto deberá hacerse en los primeros cinco días hábiles del mes siguiente a la recaudación.
+Artículo 12:
+El pago de la cuota de colegiatura mensual es obligatorio conforme a la Ley Orgánica para todos los miembros del Colegio.
+En caso de atrasos, se aplicará lo que dispone el artículo 35 de la Ley Orgánica del Colegio de Cirujanos Dentistas de Costa Rica.
+(Así reformado mediante sesión N° 79-2017 del 10 de agosto del 2017)

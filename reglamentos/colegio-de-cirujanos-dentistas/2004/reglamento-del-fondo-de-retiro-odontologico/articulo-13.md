@@ -1,1 +1,3 @@
-Artículo 13.—El pago de la cuota de colegiatura mensual es obligatorio conforme a la Ley Orgánica para todos lo miembros del Colegio. Cuando un colegiado activo alcance los 65 años de edad, estará exento del pago de las contribuciones al Fondo de Retiro Odontológico. En caso de atrasos, se aplicará lo que dispone el artículo 35 de la Ley Orgánica del Colegio de Cirujanos Dentistas de Costa Rica.
+Artículo 13:
+Cuando alguno de los miembros del Fondo debe ausentarse del país, deberá seguir cubriendo la cuota que señala el artículo 33 de la Ley Orgánica por el tiempo que dure su ausencia. En el caso de que el colegido se atrase más de dos meses, se procederá conforme se indica en el artículo 35 de la Ley Orgánica del Colegio.
+(Así reformado mediante sesión N° 79-2017 del 10 de agosto del 2017)

@@ -1,1 +1,4 @@
-Artículo 14.—Cuando alguno de los miembros del fondo deben ausentarse del país, deberá seguir cubriendo la cuota que señala el artículo 33 de la Ley Orgánica por el tiempo que dure su ausencia. En el caso de que el colegido se atrase más de dos meses, se procederá conforme se indica en el artículo 35 de la Ley Orgánica del Colegio.
+Artículo 14:
+El miembro que incurra en atrasos de más de dos meses podrá perder sus derechos como tal, sin responsabilidad alguna para el Fondo y el Colegio. En este caso, la Junta Directiva actuará conforme se indica en el artículo 35 de la Ley Orgánica del Colegio.
+En caso de suspensión del colegiado y revocatoria de la misma, el interesado deberá pagar las cuotas adeudadas con una tasa de interés igual a la obtenida por el Fondo en el periodo que tuvo el atraso.
+(Así reformado mediante sesión N° 79-2017 del 10 de agosto del 2017)
