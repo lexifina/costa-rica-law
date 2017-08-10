@@ -1,0 +1,2 @@
+Artículo 9°—Cancelación de hipoteca. En la condonación de deuda total, el Inder procederá de forma oficiosa a realizar los exhortos para solicitar al Registro Nacional de la Propiedad la cancelación de las hipotecas que pesan sobre cada predio.
+En el caso de la condonación parcial de deuda, si el asignatario así lo requiere podrá contratar los servicios de notario externo para la modificación de la hipoteca registrada en cuanto al valor y los términos de la readecuación aceptada.

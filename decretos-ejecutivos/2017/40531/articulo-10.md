@@ -1,0 +1,3 @@
+Artículo 10°—Procesos de revocatoria por falta de pago. En el evento de que se hayan iniciado procesos de revocatoria o nulidad de título, fundamentados únicamente en la causal de falta de pago por la deuda de valor tierra y que esta cumpla con los requisitos establecidos en el artículo 2 de la Ley 9409, para la condonación del 100% deberá el Inder desestimar el proceso y archivarlo al haberse extinguido la deuda por condonación.
+En los casos que existan otras causales de revocatoria deberá continuarse el proceso con las otras causales y desestimarse la falta de pago.
+En estos casos en los que se aplique la condonación parcial el interesado podrá solicitar un arreglo de pago para dar por terminado el proceso de revocatoria por falta de pago.
