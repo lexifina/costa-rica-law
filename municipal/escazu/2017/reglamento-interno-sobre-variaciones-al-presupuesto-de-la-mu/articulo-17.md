@@ -1,0 +1,1 @@
+Artículo 17.—Ajustes horizontales. Se podrán realizar ajustes internos a nivel horizontal y subpartida, dentro de los macro procesos, procesos y subproceso incorporados únicamente en el Programa 1-Dirección y Administración general, según su estructura programática.

@@ -1,0 +1,1 @@
+Artículo 21.—Responsabilidades. La instancia jerarquía y titulares subordinados/as deberán establecer los mecanismos que aseguren el adecuado cumplimiento de lo establecido en este Reglamento. Lo anterior, sin perjuicio del control que debe ejercer la Unidad de Auditoría Interna y de las competencias de la Contraloría General de la República.

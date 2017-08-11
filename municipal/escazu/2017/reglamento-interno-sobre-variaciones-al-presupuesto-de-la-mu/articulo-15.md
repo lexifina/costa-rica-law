@@ -1,0 +1,1 @@
+Artículo 15.—Aprobación de las modificaciones presupuestarias por parte del Concejo Municipal. La aprobación de las modificaciones presupuestarias corresponderá al Concejo Municipal, conforme lo establecido en la normativa vigente.

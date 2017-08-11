@@ -1,0 +1,1 @@
+Artículo 23.—Derogatorias y modificaciones: Se deroga el Reglamento Interno sobre Variaciones al presupuesto de la Municipalidad de Escazú aprobado mediante acuerdo municipal AC-47-01-10 de la Sesión ordinaria Nº 200, Acta 285 del 23 de febrero del 2010 y publicado en el Diario Oficial La Gaceta Nº 70 de fecha 13 de abril del 2010.

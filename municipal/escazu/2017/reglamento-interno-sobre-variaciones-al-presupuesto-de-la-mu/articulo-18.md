@@ -1,0 +1,1 @@
+Artículo 18.—Evaluación. Se evaluará y revisará periódicamente, de manera oportuna y expedita los mecanismos y procedimientos empleados en la formulación y aprobación de la modificación presupuestaria con el propósito de establecer, mantener y perfeccionar el proceso presupuestario.
