@@ -14,3 +14,4 @@ Reglamento para el ejercicio de la pesca deportiva subacuática (acuerdo AJDIP/0
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-03-15 | la propia norma |
+| 2 | 2017-08-11 | Acuerdo 329 (2017-08-11) |
