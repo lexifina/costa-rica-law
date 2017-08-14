@@ -1,0 +1,2 @@
+Artículo 25.- Escrutinio
+Al final de la jornada electoral, cada junta receptora realizará el escrutinio provisional de votos recabados, cuyo resultado se certificará y enviará de inmediato, con el resto del material electoral, al Concejo Municipal, de conformidad con las instrucciones que éste oportunamente haya girado. El Concejo Municipal realizará el escrutinio definitivo, con presencia de los delegados que el Tribunal Supremo de Elecciones designe para tales efectos, el cual deberá haber concluido a más tardar quince días después de la celebración de los comicios.

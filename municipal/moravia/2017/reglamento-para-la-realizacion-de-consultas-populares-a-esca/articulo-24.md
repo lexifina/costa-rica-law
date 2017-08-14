@@ -1,0 +1,2 @@
+Artículo 24.- Medidas de seguridad
+El Concejo Municipal tiene la obligación de tomar las medidas necesarias a fin de garantizar un ambiente de seguridad y tranquilidad el día de las elecciones, para lo cual deberá coordinar con la Fuerza Pública, Cruz Roja y Dirección de Policía de Tránsito. Asimismo, durante el periodo de proceso electoral, la Policía Municipal deberá atender las solicitudes que con ocasión de ese proceso le realice el Concejo Municipal para garantizar la seguridad el día de las elecciones.

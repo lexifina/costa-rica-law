@@ -1,0 +1,8 @@
+CAPÍTULO II
+DE LA CONSULTA POPULAR
+Artículo 5.- Objeto de la Consulta Popular
+La consulta popular puede versar sobre cualquier asunto, siempre que cumpla los siguientes requisitos:
+a) Que el asunto a resolver sea de competencia Municipal.
+b) Que el asunto a resolver no tenga un procedimiento debidamente reglado por la ley.
+c) Que el resultado de la consulta pueda dar origen a un acto administrativo válido y eficaz de la autoridad Municipal.
+d) Que la consulta verse sobre un asunto actual y de interés general para los habitantes de la comunidad.

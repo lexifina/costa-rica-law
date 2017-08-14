@@ -1,0 +1,2 @@
+Artículo 28.- Requisito para destitución
+Para destituir al alcalde municipal se requiere dos tercios del total de votos emitidos en el plebiscito, y que esos dos tercios no sean inferiores al diez por ciento del total de electores inscritos en el cantón.

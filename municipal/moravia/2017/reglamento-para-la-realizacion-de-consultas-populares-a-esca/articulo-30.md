@@ -1,0 +1,2 @@
+Artículo 30.- Reposición de suplentes
+Si también fueren destituidos o renunciaren los dos alcaldes suplentes, el Tribunal Supremo de Elecciones deberá convocar a nuevas elecciones en el respectivo cantón, en un plazo máximo de seis meses y el nombramiento será por el resto del período. En dicho caso, mientras se lleva a cabo la elección, el Presidente del Concejo asumirá como recargo el puesto de alcalde municipal, con todas las atribuciones que le otorga la ley.
