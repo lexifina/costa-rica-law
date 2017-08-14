@@ -1,0 +1,3 @@
+SECCIÓN II
+Definición de relaciones y coordinaciones internas y externas para el ejercicio de la Auditoría Interna
+Artículo 34º—Relaciones y coordinaciones. Las relaciones de la Auditoría Interna con la Junta Directiva, los titulares subordinados y otras instancias internas del INA, para efectos de los servicios de auditoría y preventivos, serán definidas por el Auditor Interno, acorde con la normativa que las rige. Dicha definición se realizará atendiendo principios de lógica, razonabilidad y oportunidad. También deberá definirse el plazo en el cual debe suministrarse lo requerido, considerando además, el grado de complejidad y la urgencia que represente la información.

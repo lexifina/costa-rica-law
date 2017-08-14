@@ -1,0 +1,3 @@
+Artículo 31º—Dependencia orgánica y funcional de la persona Auditora y Subauditora Interna. Las personas Auditora y el Subauditora internos del INA dependerán orgánicamente de la Junta Directiva, quien los nombrará y establecerá las regulaciones de tipo administrativo que les serán aplicables a dichos funcionarios.
+Tales regulaciones de tipo administrativo no deberán afectar negativamente la actividad de Auditoría Interna, la independencia funcional y de criterio de las personas Auditora y Subauditora Internas y su personal; en caso de duda, la CGR dispondrá lo correspondiente.
+No obstante en el tema de funciones, a la persona del Subauditora Interna será la persona de Auditora Interna quien le asigne las funciones a realizar.

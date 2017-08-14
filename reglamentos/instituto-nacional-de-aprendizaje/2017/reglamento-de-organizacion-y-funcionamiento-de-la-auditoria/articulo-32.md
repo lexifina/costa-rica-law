@@ -1,0 +1,1 @@
+Artículo 32º—Jornada laboral para los puestos de Auditor (a) y Subauditor (a). Las personas nombradas en los puestos de Auditor (a) y Subauditor (a) tendrán una jornada de tiempo completo, de conformidad con lo dispuesto en el artículo 30 de la LGCI.

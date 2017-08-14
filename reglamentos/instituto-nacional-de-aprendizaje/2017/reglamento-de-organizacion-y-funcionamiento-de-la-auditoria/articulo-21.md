@@ -1,0 +1,1 @@
+Artículo 21º—Modificaciones a la estructura orgánica de la Auditoría Interna. Las modificaciones a la estructura orgánica interna de la Auditoría requerirán de la aprobación expresa de la persona Auditora Interna y se comunicará a la Junta Directiva del INA, para que ésta instruya a la Administración para la ejecución correspondiente.

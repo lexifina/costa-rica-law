@@ -1,0 +1,1 @@
+Artículo 7º—Relación externa. La Auditoría Interna del INA forma parte del Sistema de Fiscalización Superior de la Hacienda Pública a que se refiere la Ley Orgánica de la Contraloría General de la República.

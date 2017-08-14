@@ -1,0 +1,3 @@
+Artículo 43º—Procesos de Calidad. El Auditor Interno o Auditora Interna debe instaurar, coordinar y velar por la aplicación de los procesos necesarios para el aseguramiento de la calidad y el mejoramiento continuo en el ejercicio de la auditoría interna, mediante supervisión, evaluaciones internas y externas, de conformidad con la normativa aplicable.
+Esas revisiones deben ser efectuadas por personal independiente al que ejecutó las auditorías, el cual debe contar con la competencia y experiencia necesarias.
+En cuanto a las revisiones externas, deberán realizarse con la periodicidad y lineamientos establecidos por la Contraloría General de la República.

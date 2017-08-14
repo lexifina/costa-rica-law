@@ -1,0 +1,1 @@
+Artículo 14º—Establecimiento de medidas que garanticen objetividad. Es obligación de la persona Auditora Interna establecer medidas formales para controlar y administrar situaciones de impedimento que pudieran presentarse sobre hechos o actuaciones que pongan en duda o en peligro (de hecho o en apariencia) la objetividad e independencia de la Auditoría Interna.

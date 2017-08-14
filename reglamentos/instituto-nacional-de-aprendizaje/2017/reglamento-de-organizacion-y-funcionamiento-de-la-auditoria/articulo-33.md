@@ -1,0 +1,1 @@
+Artículo 33º—Obligación de presentar declaración jurada de bienes. Las personas Auditora y Subauditora Internas deberán cumplir con el requisito establecido en el artículo 21 de la Ley contra la corrupción y el enriquecimiento ilícito Nº 8422, de presentar declaración jurada de bienes en forma anual.

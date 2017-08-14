@@ -1,0 +1,1 @@
+Artículo 15º—Uniformidad de criterios. La persona Auditora Interna aplicará criterios uniformes en el ejercicio de las competencias y en las relaciones con los sujetos pasivos, salvo que la naturaleza del caso requiera tomar una medida específica para el cumplimiento efectivo de la ley y la consecución de los fines.

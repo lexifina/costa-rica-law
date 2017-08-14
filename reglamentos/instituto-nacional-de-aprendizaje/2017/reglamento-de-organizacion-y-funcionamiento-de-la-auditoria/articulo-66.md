@@ -1,0 +1,1 @@
+Artículo 66º—Planteamiento de conflictos ante la Contraloría General de la República. Firme la resolución de la Junta Directiva del Instituto Nacional de Aprendizaje, que ordene soluciones distintas de las recomendadas por la Auditoría Interna, ésta podrá acogerse a lo dispuesto en el artículo 38 de Ley General de Control Interno.
