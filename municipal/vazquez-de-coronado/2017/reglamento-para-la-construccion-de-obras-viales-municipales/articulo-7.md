@@ -1,0 +1,7 @@
+Artículo 7.- Funcionamiento de la Junta Vial Cantonal: Los miembros de la Junta Vial Cantonal, una vez que sean juramentados en sesión del Concejo Municipal, se desempeñaran en su cargo por un período de cuatro años y podrán ser reelegidos, siempre y cuando ostenten la titularidad del puesto al cual representan. Si en algún caso venciera el período de alguno de los miembros, se nombrará al sustituto, en un plazo no mayor a un mes, por el plazo que le hubiese correspondido a su predecesor.
+Serán causales de destitución de los miembros:
+a) El incumplimiento de sus deberes, comprobado previo debido proceso, a cargo del funcionario que el Concejo Municipal determine.
+b) La ausencia injustificada a tres sesiones consecutivas o seis alternas en el plazo de un año calendario.
+Causal que será de simple verificación a partir de las actas de la Junta Vial, y de las cuales los restantes miembros darán parte al Concejo Municipal para que este órgano acuerde la correspondiente destitución.
+c) Cualquier otra violación grave al ordenamiento jurídico administrativo.
+La Junta Vial sesionará ordinariamente una vez al mes y extraordinariamente cuando su presidente o al menos tres de sus miembros la convoquen con al menos veinticuatro horas de anticipación. Las disposiciones correspondientes a la sesión se regirán según lo establecido para los órganos colegiados de la Ley General de la Administración Pública.

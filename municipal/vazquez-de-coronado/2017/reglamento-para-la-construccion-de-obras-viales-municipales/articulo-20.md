@@ -1,0 +1,8 @@
+Artículo 20.- Obras con exigencia de presentación de planos y bitácora con registro de responsabilidad profesional: Se deberán presentar los planos constructivos, tener bitácora y registrarse la responsabilidad profesional en las siguientes actividades:
+a) Mejoramiento: que implique variación geométrica, topográfica o estructural de la obra original. Se exceptúan las obras necesarias para resolver una emergencia o urgencia apremiante.
+b) Obras nuevas. Se exceptúan las obras necesarias para resolver una emergencia o urgencia apremiante.
+c) Reconstrucción: que implique variación geométrica, topográfica o estructural de la obra original. Se exceptúan las obras necesarias para resolver una emergencia o urgencia apremiante.
+d) Rehabilitación: que implique variación geométrica, topográfica o estructural de la obra original. Se exceptúan las obras necesarias para resolver una emergencia o urgencia apremiante.
+e) Todas las otras obras que no estén exceptuadas de este trámite según el artículo 19 del presente reglamento.
+Para estos casos, la Municipalidad contratará profesionales externos para que se encarguen de realizar los estudios pertinentes y los diseños correspondientes, así como el trámite y el registro de la responsabilidad profesional. En todo caso, los profesionales que firman los planos darán seguimiento a las obras en ejecución hasta que las mismas se hayan concluido y serán los responsables ante las instituciones correspondientes. Para lo que deben entregar un informe a esta Municipalidad, junto con toda la información del proyecto.
+También se podrá realizar todo el trámite anterior con el personal de ingeniería de la Unidad Técnica de Gestión Vial cuando sea posible, necesario o requerido por la Administración Municipal.

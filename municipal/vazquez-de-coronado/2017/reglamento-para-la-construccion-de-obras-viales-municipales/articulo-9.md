@@ -1,0 +1,1 @@
+Artículo 9.- Seguimiento y evaluación de la gestión vial cantonal: La Junta Vial Cantonal deberá realizar el seguimiento y la evaluación de los planes anuales, apoyándose en las herramientas informáticas que aseguren una estandarización de los procedimientos.

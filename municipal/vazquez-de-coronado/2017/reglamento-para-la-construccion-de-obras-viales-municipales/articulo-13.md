@@ -1,0 +1,1 @@
+Artículo 13.- Responsabilidad de asesoramiento técnico de la Unidad Técnica de Gestión Vial: Es responsabilidad de la Unidad Técnica de Gestión Vial de Vázquez de Coronado el proporcionar criterio y los insumos técnicos, tanto a la Junta Vial Cantonal, como a las otras autoridades municipales, para el cumplimiento de sus competencias de cara a la gestión vial cantonal.
