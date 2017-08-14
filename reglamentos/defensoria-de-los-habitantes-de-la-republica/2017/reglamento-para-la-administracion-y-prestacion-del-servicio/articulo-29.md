@@ -1,0 +1,1 @@
+Artículo 29.- Imposibilidad de realizar arreglos extrajudiciales. Bajo ninguna circunstancia se permite que los funcionarios o funcionarias de la Defensoría implicados en un accidente de tránsito realicen algún tipo de arreglo extrajudicial.

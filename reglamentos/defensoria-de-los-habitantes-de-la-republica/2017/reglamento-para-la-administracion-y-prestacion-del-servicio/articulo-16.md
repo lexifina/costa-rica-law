@@ -1,0 +1,19 @@
+CAPÍTULO III
+DEBERES Y PROHIBICIONES
+Artículo 16.- Deberes y responsabilidades del Departamento de Proveeduría y Servicios Generales. Son deberes y responsabilidades del Departamento de Proveeduría y Servicios Generales, como unidad administrativa a la cual le corresponde administrar el servicio de transportes en la Defensoría, las siguientes:
+a) Planificar, organizar y brindar el servicio de transporte en la Defensoría de los Habitantes, bajo los más estrictos estándares de eficiencia, y buscando la debida satisfacción del interés institucional.
+b) Establecer los mecanismos para asegurar que los servicios de transporte se presten conforme a la normativa vigente.
+c) Llevar un registro donde conste la información referente a los vehículos institucionales, detallando al menos lo siguiente: número de placa, número de motor, fecha de adquisición, garantía del fabricante, número de póliza, monto del seguro y coberturas, constancia de la inscripción ante el Registro Público, fechas y detalles de las revisiones y reparaciones.
+d) Llevar un registro de las y los funcionarios que se encuentran autorizados para conducir vehículos institucionales.
+e) Atender con prontitud y de acuerdo al orden de presentación, las solicitudes de transporte que le sean formuladas.
+f) Velar porque los vehículos de la Defensoría se encuentren en óptimas condiciones de limpieza, funcionamiento, mantenimiento y reparación.
+g) Verificar que los vehículos de la Defensoría porten todos los dispositivos de seguridad que se exigen en la normativa vigente.
+h) Realizar y coordinar lo correspondiente a trámites de inscripción y desinscripción de vehículos ante el Registro Público.
+i) Tramitar oportunamente y mantener al día el pago correspondiente a derechos de circulación, revisión técnica, cobertura de seguros, así como cualquier otro requisito que se exija en la normativa vigente.
+j) Velar porque en los vehículos institucionales se porten de forma permanente los siguientes documentos: título de propiedad o documento idóneo que acredite la inscripción en el Registro Nacional, comprobante de derecho de circulación y de revisión técnica vehicular, calcomanía o comprobante de la revisión técnica, marchamo de circulación, placas de matrícula, y cualquier permiso especial de circulación que se requiera, de conformidad con lo que se dispone en la normativa vigente.
+k) Revisar el vehículo antes de cada salida, o de ser posible el día anterior, para verificar que las llantas (presión y estado), herramientas, combustible, agua, aceite, frenos, y cualesquiera otras condiciones del vehículo en general, se hallen en óptimo estado de previo al inicio de la gira. A tal efecto, el Departamento de Proveeduría dispondrá de una boleta que contendrá todos los aspectos técnicos sujetos a verificación de previo a la salida de un vehículo institucional.
+l) Realizar, dar seguimiento y coordinar con la Dirección Jurídica cuando corresponda, los trámites necesarios en caso que se presente un accidente de tránsito en que haya intervenido un vehículo de la Defensoría, de conformidad con lo dispuesto en el presente Reglamento.
+m) Realizar los trámites correspondientes para la reparación de los vehículos cuando se presente algún tipo de daño o desperfecto, así como los de su recuperación en caso de robo o hurto.
+n) Asumir todo lo correspondiente a suministro y consumo de combustible de los vehículos institucionales.
+o) Atender las necesidades y solicitudes que le sean formuladas por las Oficinas Regionales teniendo en consideración las particularidades de su gestión, situaciones excepcionales o de fuerza mayor que se presenten, a fin de asegurarles la continuidad y la eficiencia en el servicio que prestan, todo dentro de las posibilidades materiales de la institución.
+p) Asumir cualesquiera otras funciones y responsabilidades que le sean asignadas.

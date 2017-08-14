@@ -1,0 +1,1 @@
+Artículo 24.- Inicio y finalización del servicio. La sede de cada oficina regional será el punto de inicio y finalización del servicio de transporte, salvo los casos en que los vehículos se resguarden en espacios distintos autorizados por la institución.

@@ -1,0 +1,3 @@
+CAPÍTULO VII
+SANCIONES
+Artículo 36.- Sanciones. Las infracciones al presente Reglamento y a las disposiciones legales en esta materia, serán ponderadas y analizadas de conformidad con las particularidades de cada situación particular y de ser el caso, serán sancionadas disciplinariamente de conformidad con la reglamentación interna de la Defensoría de los Habitantes y de las reglas del procedimiento ordinario de la Ley General de la Administración Pública, de modo que se garantice el derecho de defensa a las y los funcionarios involucrados a través del procedimiento correspondiente, sin perjuicio de las responsabilidades civiles y penales en que pudiere incurrir el infractor.

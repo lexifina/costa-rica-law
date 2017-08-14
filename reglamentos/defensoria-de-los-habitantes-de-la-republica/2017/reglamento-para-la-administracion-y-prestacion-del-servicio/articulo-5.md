@@ -1,0 +1,3 @@
+Artículo 5.- De los vehículos de uso semidiscrecional en la Defensoría. Es de uso semidiscrecional el vehículo asignado a la o el Defensor Adjunto de los Habitantes exclusivamente, en estricto cumplimiento de las funciones propias de su cargo. Este vehículo puede portar placas particulares, y no necesariamente debe tener marcas visibles que lo distinga como vehículo oficial, no obstante, está sujeto a los siguientes controles:
+a) Una vez concluida la gira o la salida del vehículo, el mismo deberá ser ubicado en el espacio dispuesto para estos efectos en la Defensoría.
+b) El guarda de seguridad institucional anotará en sus registros el kilometraje del vehículo en la primera y última salida de cada día.

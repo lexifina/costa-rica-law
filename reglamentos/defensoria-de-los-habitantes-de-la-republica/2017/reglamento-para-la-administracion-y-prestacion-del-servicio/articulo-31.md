@@ -1,0 +1,2 @@
+Artículo 31.- Intervención de la Dirección Jurídica institucional. Corresponderá a la Dirección Jurídica brindar el apoyo legal y el acompañamiento que se requiera en los procesos en los cuales existan vehículos institucionales involucrados en accidentes de tránsito, para lo cual ejercerá la representación exclusiva de los intereses de la Defensoría.
+Será responsabilidad del Departamento de Proveeduría y Servicios Generales remitir el expediente del caso a la Dirección Jurídica tan pronto como se cuente con la copia íntegra del legajo judicial.

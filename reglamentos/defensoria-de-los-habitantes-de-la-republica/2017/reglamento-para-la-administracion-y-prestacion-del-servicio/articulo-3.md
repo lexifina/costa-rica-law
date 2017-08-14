@@ -1,0 +1,3 @@
+Artículo 3.- De los vehículos de uso administrativo de la Defensoría. Los vehículos de uso administrativo son los que se destinan para la prestación de los servicios regulares de transporte en la Defensoría de los Habitantes, tanto en la Sede Central como en Oficinas Regionales, como medio para realizar el desarrollo normal de sus funciones y actividades.
+Los mismos deben identificarse como vehículos de uso oficial, con el logotipo de la institución, la placa oficial correspondiente, así como cualquier otro distintivo institucional previamente definido.
+Las disposiciones referidas al uso de estos vehículos, tales como horarios, recorridos, y lugares de resguardo en horas no hábiles, se rigen conforme lo establecido en el presente reglamento.

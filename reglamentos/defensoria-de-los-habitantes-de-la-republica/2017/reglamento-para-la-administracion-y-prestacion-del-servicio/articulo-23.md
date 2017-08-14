@@ -1,0 +1,3 @@
+CAPÍTULO IV
+USO DE VEHÍCULOS OFICIALES EN OFICINAS REGIONALES
+Artículo 23.- Sobre la asignación de vehículos de uso administrativo a las Oficinas Regionales de la Defensoría. A efectos de facilitar la labor que ejecutan las y los funcionarios de las oficinas regionales de la Defensoría, la Administración designará, en la medida que el presupuesto institucional lo permita, vehículos de uso administrativo en dichas sedes, los cuales estarán bajo la responsabilidad última de las y los Coordinadores de estas Oficinas, sin perjuicio de la que pudiera serle atribuida en forma directa a otros funcionarios y funcionarias de dichas Oficinas por incumplimiento de las disposiciones de este Reglamento y de la normativa de tránsito, previa celebración de un debido proceso.

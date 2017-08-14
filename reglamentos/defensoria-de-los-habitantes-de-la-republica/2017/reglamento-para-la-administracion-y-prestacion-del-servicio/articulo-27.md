@@ -1,0 +1,4 @@
+CAPÍTULO V
+ATENCIÓN DE ACCIDENTES U OTRAS EVENTUALIDADES
+Artículo 27.- Atención de eventualidades. En caso que se presente alguna eventualidad o situación de emergencia, sea por desperfectos que presente el vehículo, una colisión, complicaciones de salud del chofer o alguno de los pasajeros, o cualquier otra cuestión que de alguna manera altere el tiempo y el recorrido normal previamente establecido, se procurará dar aviso al Departamento de Proveeduría y Servicios Generales, a fin de poner al tanto de la situación y si fuera del caso, recibir la asistencia o las instrucciones debidas.
+Además, el funcionario o funcionaria deberá informar a las autoridades de atención de emergencias, Dirección de Tránsito, entidad aseguradora, o cualquier otra instancia que corresponda según sea la naturaleza del hecho.
