@@ -1,0 +1,1 @@
+Artículo 6°— Se insta respetuosamente a los jerarcas de las instituciones autónomas, Municipalidades del país y los restantes Poderes de la República y sus órganos auxiliares, a sumarse a lo dispuesto en la presente Directriz.
