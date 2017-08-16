@@ -1,0 +1,1 @@
+Artículo 3 º - El Premio Nacional de las Juventudes Jorge Debravo consistirá en un reconocimiento oficial, realizado en las actividades conmemorativas del Día de las Juventudes. Durante el año de vigencia, el Viceministerio de Juventud deberá ayudar a fortalecer las capacidades e incidencia social de la persona o grupo ganador. El premio no contiene una remuneración económica.

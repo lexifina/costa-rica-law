@@ -1,0 +1,1 @@
+Artículo 4° - El Premio Nacional de las Juventudes Jorge Debravo será entregado en el mes de agosto de cada año. El Viceministerio de Juventud recibirá las postulaciones respectivas antes del 30 de junio de cada año.

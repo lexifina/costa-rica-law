@@ -1,0 +1,1 @@
+Transitorio. El Premio Nacional de las Juventudes Jorge De bravo 2017, se otorgará en el mes de agosto. Posterior a la publicación de este decreto se abrirá un plazo de dos semanas para recibir postulaciones. El jurado será designado a partir de la publicación de este decreto, y contará con una semana para elegir al ganador.
