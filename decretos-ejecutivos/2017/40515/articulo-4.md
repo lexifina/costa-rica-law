@@ -1,0 +1,1 @@
+Artículo 4°- El Ministerio de Educación Pública deberá incluir en el calendario escolar para educación secundaria, las actividades en conmemoración del Día de Juventudes, con el objetivo de conocer y generar conciencia sobre los derechos de las personas jóvenes.

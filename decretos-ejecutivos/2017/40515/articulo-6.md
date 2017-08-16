@@ -1,0 +1,1 @@
+Artículo 6°- El Consejo Nacional de Juventudes se reunirá de manera ordinaria dos veces al año, en agosto y febrero de cada año. La Presidencia de la República podrá convocar a sesiones extraordinarias cuando sea requerido.

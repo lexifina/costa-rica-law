@@ -1,0 +1,1 @@
+Artículo 3°- Los jerarcas de todos los Ministerios y sus órganos adscritos deberán presentar al Viceministerio de Juventud, antes del 30 de junio de cada año, un informe con el detalle de acciones, actividades y proyectos realizados para la atención de la población joven, de 12 a 35 años.

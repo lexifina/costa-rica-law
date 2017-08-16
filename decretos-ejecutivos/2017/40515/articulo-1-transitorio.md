@@ -1,0 +1,1 @@
+Transitorio 1. En el 2017, el informe relativo a las acciones, actividades y proyectos realizados para la atención de la población joven, serán presentados en la sesión ordinaria del Consejo Nacional de Juventudes, a celebrarse en agosto.

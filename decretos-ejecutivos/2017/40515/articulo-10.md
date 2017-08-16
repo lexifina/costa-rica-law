@@ -1,0 +1,1 @@
+Artículo 10°.- Los acuerdos del Consejo se aprobaran por mayoría absoluta de los integrantes presentes y se consignarán en un libro de actas. La secretaría del Consejo la ejercerá el/la Viceministro/a de Juventud, quien levantará el acta de cada sesión. El/ la Viceministro/a podrá delegar esa función a un funcionario de rango inferior.
