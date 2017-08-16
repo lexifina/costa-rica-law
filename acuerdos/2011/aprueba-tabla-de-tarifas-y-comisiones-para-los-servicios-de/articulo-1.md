@@ -69,6 +69,7 @@ Cheques de Viajero
 Cambio de Cheques Viajero (Servicio) | $7.5 en dólares (indistintamente del monto), en colones 1%
 Cuentas de Ahorro:
 Avance y retiro de efectivo en ventanilla por transacción (Se exceptúa los pensionados. Además a los clientes cuando el saldo promedio es mayor a $500.00 o cuando la transacción de retiro es mayor a lo permitido para retiro en cajeros). (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $2.00 (Así monto el anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Cargo por manejo de cuentas de ahorros, saldo promedio mínimo mensual, para cuentas en dólares y colones: (Así adicionado el servicio anterior mediante sesión N° 9055/7 del 16 de agosto del 2017) | $20.00 para aquellos saldos promedios iguales o inferiores a 100 mil colones o su equivalente en dólares. (Así adicionada la tarifa anterior mediante sesión N° 9055/7 del 16 de agosto del 2017)
 Cuentas ahorro inactivas:
 Cuentas ahorros en colones. Saldo igual o inferior al equivalente a $20.00. | Aplica $5.00 cada mes hasta su liquidación.
 Cuentas ahorros en dólares. Saldo igual o inferior a $20.00. | Aplica $5.00 cada mes hasta su liquidación
@@ -81,7 +82,7 @@ Cuentas cerradas por decisión del Banco o saldo insoluto | $10.00
 Costo de chequeras. Para girar colones y dólares | $6.00
 Cheques rechazados p/fondos insuficientes colones y dólares | $20.00 c/u
 Nota de débito generada p/devolución de cheques defectuosos en forma (endosos distintos, mal endoso, letra y monto distinto, posfechados) | $5.00
-Cargo por manejo de cuentas corrientes saldo promedio mínimo mensual | Saldo promedio mensual menor a ¢50.000 comisión $3,50 mensual; y saldo promedio menor a $200, comisión $3,00 mensual.
+Cargo por manejo de cuentas corrientes, saldo promedio mínimo mensual, para cuentas en dólares y colones: (Así reformado el servicio anterior mediante sesión N° 9055/17 del 16 de agosto del 2017) | $30.00 para aquellos saldos promedios iguales o inferiores a 150 mil colones o su equivalente en dólares. (Así reformada la tarifa anterior mediante sesión N° 9055/17 del 16 de agosto del 2017)
 Liberación inmediata de fondos depositados en cuenta corriente:
 Cheques en colones | 1% en colones y 0.50% en dólares sobre los fondos utilizados
 Cheques en dólares contra Bancos del exterior | 1% sobre los fondos utilizados
