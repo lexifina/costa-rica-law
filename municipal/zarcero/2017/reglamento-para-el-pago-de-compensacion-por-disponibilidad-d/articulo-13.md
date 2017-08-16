@@ -1,0 +1,1 @@
+Artículo 13.—Procedimiento: Una vez aprobado y entrado en vigencia el presente reglamento y en un término no mayor de tres meses, el Alcalde definirá los puestos ocupacional es afectos a este régimen, para lo cual podrá solicitar la participación o resoluciones técnicas y profesional es de la Dirección o Departamento de Recursos Humanos.
