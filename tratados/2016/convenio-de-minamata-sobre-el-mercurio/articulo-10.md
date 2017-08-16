@@ -1,0 +1,7 @@
+Artículo 10
+Almacenamiento provisional ambientalmente racional
+de mercurio, distinto del mercurio de desecho
+1. El presente artículo se aplicará al almacenamiento provisional de mercurio y compuestos de mercurio definidos en el artículo 3 que no estén comprendidos en el significado de la definición de desechos de mercurio que figura en el artículo 11.
+2. Cada Parte adoptará medidas para velar por que el almacenamiento provisional de mercurio y de compuestos de mercurio destinados a un uso permitido a una Parte en virtud del presente Convenio se lleve a cabo de manera ambientalmente racional, teniendo en cuenta toda directriz y de acuerdo con todo requisito que se apruebe con arreglo al párrafo 3.
+3. La Conferencia de las Partes adoptará directrices sobre el almacenamiento provisional ambientalmente racional de dicho mercurio y compuestos de mercurio, teniendo en cuenta las directrices pertinentes elaboradas en el marco del Convenio de Basilea sobre el control de los movimientos transfronterizos de los desechos peligrosos y su eliminación y toda otra orientación pertinente. La Conferencia de las Partes podrá aprobar requisitos para el almacenamiento provisional en un anexo adicional del presente Convenio, con arreglo al artículo 27.
+4. Las Partes cooperarán, según proceda, entre sí y con las organizaciones intergubernamentales y otras entidades pertinentes a fin de aumentar la creación de capacidad para el almacenamiento provisional ambientalmente racional de ese mercurio y compuestos de mercurio.

@@ -1,0 +1,30 @@
+Artículo 8
+Emisiones
+1. El presente artículo trata del control y, cuando sea viable, la reducción de las emisiones de mercurio y compuestos de mercurio, a menudo expresadas como "mercurio total", a la atmósfera mediante medidas encaminadas a controlar las emisiones procedentes de las fuentes puntuales que entran dentro de las categorías enumeradas en el anexo D.
+2. A los efectos del presente artículo:
+a) Por "emisiones" se entienden las em1s1ones de mercurio o compuestos de mercurio a la atmósfera;
+b) Por "fuente pertinente" se entiende una fuente que entra dentro de una de las categorías enumeradas en el anexo D. Una Parte podrá, si así lo desea, establecer criterios para identificar las fuentes incluidas en una de las categorías enumeradas en el anexo D, siempre que esos criterios incluyan al menos el 75% de las emisiones procedentes de esa categoría;
+c) Por "nueva fuente" se entiende cualquier fuente pertinente de una categoría enumerada en el anexo D, cuya construcción o modificación sustancial comience como mínimo un año después de la fecha de:
+i. La entrada en vigor del presente Convenio para la Parte de que se trate; o
+ii. La entrada en vigor para la Parte de que se trate de una enmienda del anexo D en virtud de la cual la fuente de emisiones quede sujeta a las disposiciones del presente Convenio únicamente en virtud de esa enmienda;
+d) Por "modificación sustancial" se entiende la modificación de una fuente pertinente cuyo resultado sea un aumento significativo de las emisiones, con exclusión de cualquier variación en las emisiones resultante de la recuperación de subproductos. Corresponderá a la Parte decidir sí una modificación es o no sustancial;
+e) Por "fuente existente" se entiende cualquier fuente pertinente que no sea una nueva fuente;
+f) Por "valor límite de emisión" se entiende un límite a la concentración, la masa o la tasa de emisión de mercurio o compuestos de mercurio, a menudo expresadas como "mercurio total", emitida por una fuente puntual.
+3. Una Parte en la que haya fuentes pertinentes adoptará medidas para controlar las emisiones y podrá preparar un plan nacional en el que se expongan las medidas que deben adoptarse para controlar las emisiones, así como las metas, los objetivos y los resultados que prevé obtener. Esos planes se presentarán a la Conferencia de las Partes en un plazo de cuatro años desde la fecha de entrada en vigor del Convenio para esa Parte. Si una Parte decidiera elaborar un plan de aplicación con arreglo a lo establecido en el artículo 20, podrá incluir en su texto el plan que se contempla en el presente párrafo.
+4. En lo relativo a las nuevas fuentes, cada Parte exigirá el uso de las mejores técnicas disponibles y las mejores prácticas ambientales para controlar y, cuando sea viable, reducir las emisiones lo antes posible, pero en cualquier caso antes de que transcurran cinco años desde la entrada en vigor del Convenio para esa Parte. Una Parte podrá utilizar valores límite de emisión que sean compatibles con la aplicación de las mejores técnicas disponibles.
+5. En lo relativo a las fuentes existentes, cada Parte incluirá una o más de las siguientes medidas en cualquier plan nacional y las aplicará lo antes posible, pero en cualquier caso antes de que transcurran diez años desde la fecha de entrada en vigor del Convenio para ella, teniendo en cuenta las circunstancias nacionales y la viabilidad económica y técnica, así como la asequibilidad, de las medidas:
+a) Un objetivo cuantificado para controlar y, cuando sea viable, reducir las emisiones procedentes de las fuentes pertinentes;
+b) Valores límite de emisión para controlar y, cuando sea viable, reducir las emisiones procedentes de las fuentes pertinentes;
+c) El uso de las mejores técnicas disponibles y las mejores prácticas ambientales para controlar las emisiones procedentes de las fuentes pertinentes;
+d) Una estrategia de control de múltiples contaminantes que aporte beneficios paralelos para el control de las emisiones de mercurio;
+e) Otras medidas encaminadas a reducir las emisiones procedentes de las fuentes pertinentes.
+6. Las Partes podrán aplicar las mismas medidas a todas las fuentes existentes pertinentes o podrán adoptar medidas diferentes con respecto a diferentes categorías de fuentes. El objetivo será que las medidas aplicadas por una Parte permitan lograr, con el tiempo, progresos razonables en la reducción de las emisiones.
+7 Cada Parte establecerá, tan pronto como sea factible y a más tardar cinco años después de la fecha de entrada en vigor del Convenio para ella, un inventario de las emisiones de las fuentes pertinentes, que mantendrá a partir de entonces.
+8. La Conferencia de las Partes, en su primera reunión, aprobará directrices sobre:
+a) Las mejores técnicas disponibles y las mejores prácticas ambientales, teniendo en cuenta las posibles diferencias entre las fuentes nuevas y las existentes, así como la necesidad de reducir al mínimo los efectos cruzados entre los distintos medios; y
+b) La prestación de apoyo a las Partes en la aplicación de las medidas que figuran en el párrafo 5, especialmente en la determinación de los objetivos y el establecimiento de los valores límite de emisión.
+9. La Conferencia de las Partes, tan pronto como sea factible, aprobará directrices sobre:
+a) Los criterios que las Partes pueden establecer con arreglo al párrafo 2 b);
+b) La metodología para la preparación de inventarios de emisiones.
+10. La Conferencia de las Partes mantendrá en examen, y actualizará según proceda, las directrices elaboradas con arreglo a lo establecido en los párrafos 8 y 9. Las Partes tendrán en cuenta esas directrices al aplicar las disposiciones pertinentes del presente artículo.
+11 . Cada Parte incluirá información sobre la aplicación del presente artículo en los informes que presente en virtud de lo establecido en el artículo 21, en particular información relativa a las medidas que haya adoptado con arreglo a los párrafos 4 a 7, y a la eficacia de esas medidas.
