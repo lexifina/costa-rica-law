@@ -1,0 +1,1 @@
+Artículo 3.- Los encargado de los diferentes procesos de la municipalidad deberán establecer dentro de sus planes de trabajo objetivos, metas e indicadores en relación a la depuración de la base de datos.

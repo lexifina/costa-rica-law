@@ -1,0 +1,1 @@
+Artículo 4.- Los encargados de los diferentes procesos de la municipalidad serán los responsables directos de la depuración de la base de datos de conformidad con los lineamientos establecidos en el presente Reglamento.

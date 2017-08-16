@@ -1,0 +1,1 @@
+Artículo 8.- El encargado del proceso u oficina elaborará una resolución técnica justificando la depuración de la base de datos, la cual consistirá en un razonamiento justificado y documentado de la situación encontrada, indicando en el mismo la documentación aportada y el resultado de la investigación la cual constara en el expediente respectivo.

@@ -1,0 +1,1 @@
+Artículo 5.- La Oficina de Informática de la municipalidad será la encargada de definir conforme al sistema de información municipal con que cuente la entidad, de ser requerido, cual funcionario ha afectado la base de datos y cuál fue la afectación realizada.

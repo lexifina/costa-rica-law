@@ -1,0 +1,1 @@
+Artículo 6.- La Dirección de Administración y Planificación establecerá los instrumentos adecuados para administrar y controlar el cumplimiento de los objetivos y metas relacionadas con la depuración de la base de datos que se consignen en los planes anuales de trabajo de los diferentes procesos de la municipalidad.
