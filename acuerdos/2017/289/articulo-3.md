@@ -1,0 +1,1 @@
+3- Para el caso de algunos mamíferos, tortugas y aves marinas, que no necesariamente son de interés pesquero, pero interactúan con otras especies de interés pesquero comercial, las gestiones para su conservación deben realizarse de manera conjunta entre el Incopesca y el MINAE.

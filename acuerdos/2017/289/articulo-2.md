@@ -1,0 +1,1 @@
+2- La Lista de Especies Pesqueras y Acuícolas de Interés Pesquero que antecede, no implica “… numerus clausus…”, sino por el contrario, un “… numerus apertus…”, por cuanto dependiendo de la especie fáctico jurídico de que se trate, así podrán ingresar especies no contempladas originalmente salir alguna de esta lista.
