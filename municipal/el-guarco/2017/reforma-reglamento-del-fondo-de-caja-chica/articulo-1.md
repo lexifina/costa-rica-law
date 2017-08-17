@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE EL GUARCO
+De conformidad con lo acordado por el Concejo Municipal de El Guarco en la sesión N° 84-2017, celebrada el 27 de junio de 2017, mediante acuerdo N° 251 definitivamente aprobado, se modifica el artículo Nº 1 del Reglamento del Fondo de Caja Chica de la Municipalidad de El Guarco, de modo que se lea “Artículo Nº 1: Se establece un fondo fijo de caja Chica para el servicio de la Municipalidad de El Guarco cuyo monto será de ¢2.000.000,00.
+Este monto podrá ser modificado por medio de un acuerdo del Concejo Municipal a solicitud del Alcalde, previa justificación y publicarse en el Diario Oficial La Gaceta”.
