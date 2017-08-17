@@ -14,3 +14,4 @@ Intervención del Instituto Nacional de Fomento Cooperativo (en adelante INFOCOO
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-02-28 | la propia norma |
+| 2 | 2017-08-17 | Decreto Ejecutivo 40568 (2017-08-17) |
