@@ -1,1 +1,0 @@
-Artículo 6º—Vigencia del registro y de la autorización de importación de materia prima. La vigencia del registro de productos peligrosos y de la autorización de importación de materia prima será por tiempo indefinido. Salvo lo dispuesto en los artículos 7 y 8 del presente reglamento.

@@ -1,1 +1,0 @@
-Artículo 4°- Sólo será permitido el manejo de aquellos productos peligrosos debidamente registrados ante el Ministerio, siempre y cuando el establecimiento cuente con el permiso de funcionamiento vigente.
