@@ -6,7 +6,8 @@ Le corresponde a la Unidad de Control Tributario las siguientes funciones relaci
 a) Evaluar los informes de gestión tributaria y emitir sus respectivas recomendaciones.
 b) Controlar y evaluar la aplicación de los indicadores de gestión.
 c) Ejecutar los planes, proyectos, acciones y actividades relacionadas con el control tributario que le sean asignados.
-d) Recopilar y analizar información sobre recaudación y gasto, así como de otras estadísticas de gestión.
+d) Recopilar y analizar información estadística e indicadores de desempeño relacionados con el ámbito de acción del Área de Ingresos, así como de la gestión que realizan las dependencias que la conforman.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 40671 del 18 de agosto de 2017)
 e) Corroborar la efectiva implementación y cumplimiento de la normativa tributaria.
 f) Proponer mejoras a los procesos de gestión.
 g) Ejecutar los planes de evaluación según el Plan Anual de Evaluación de la Gestión.
@@ -19,7 +20,8 @@ Le corresponde a la Unidad de Control Aduanero las siguientes funciones relacion
 a) Evaluar los informes de gestión aduanera y emitir sus respectivas recomendaciones.
 b) Controlar y evaluar la aplicación de los indicadores de gestión.
 c) Ejecutar los planes, proyectos, acciones y actividades relacionadas con el control tributario que le sean asignados.
-d) Recopilar y analizar información sobre recaudación y gasto, así como de otras estadísticas de gestión.
+d) Recopilar y analizar información estadística e indicadores de desempeño relacionados con el ámbito de acción del Área de Ingresos, así como de la gestión que realizan las dependencias que la conforman.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 40671 del 18 de agosto de 2017)
 e) Corroborar la efectiva implementación y cumplimiento de la normativa.
 f) Proponer mejoras a los procesos de gestión.
 g) Ejecutar los planes de evaluación según el Plan Anual de Evaluación de la Gestión.
@@ -32,7 +34,8 @@ Le corresponde a la Unidad de Control Hacendario las siguientes funciones relaci
 a) Evaluar los informes de gestión hacendaría y emitir sus respectivas recomendaciones.
 b) Controlar y evaluar la aplicación de los indicadores de gestión.
 c) Ejecutar los planes, proyectos, acciones y actividades relacionadas con el control tributario que le sean asignados.
-d) Recopilar y analizar información sobre recaudación y gasto, así como de otras estadísticas de gestión.
+d) Recopilar y analizar información estadística e indicadores de desempeño relacionados con el ámbito de acción del Área de Ingresos, así como de la gestión que realizan las dependencias que la conforman.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 40671 del 18 de agosto de 2017)
 e) Corroborar la efectiva implementación y cumplimiento de la normativa.
 f) Proponer mejoras a los procesos de gestión.
 g) Ejecutar los planes de evaluación según el Plan Anual de Evaluación de la Gestión.

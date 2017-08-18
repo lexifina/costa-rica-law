@@ -3,4 +3,5 @@ Las Divisiones que conforman la Dirección son las siguientes:
 1) División de Incentivos Fiscales, conformada por las Subdirecciones de Programación, de Supervisión Operativa, y de Normativa; y por los Departamentos de Fiscalización y de Gestión de Exenciones.
 2) División de Control y Evaluación de la Gestión de Ingresos, conformada por las Subdirecciones de: Programación y Seguimiento, y de Normas y Procedimientos, además, por el Departamento de Evaluación de la Gestión.
 3) División de Adeudos Estatales, conformada por las Subdirecciones de: Programación y Normativa de Cobros y de Supervisión de Cobros, así como por el Departamento de Cobro Judicial.
-4) División de Política Fiscal, conformada por las Subdirecciones de: Estudios Económicos, y Asesoría Fiscal.
+4) División de Política Fiscal, conformada por las Subdirecciones de: Estudios Económicos y Asesoría Fiscal, así como por el Departamento de Estadísticas Fiscales.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40671 del 18 de agosto de 2017)

@@ -15,3 +15,4 @@ Reglamento de Organización y Funciones de la Dirección General de Hacienda
 | --- | --- | --- |
 | 1 | 2009-07-15 | la propia norma |
 | 2 | 2010-04-22 | Decreto Ejecutivo 36003 (2010-04-22) |
+| 3 | 2017-08-18 | Decreto Ejecutivo 40671 (2017-08-18) |

@@ -4,11 +4,12 @@ b) Fiscalizar, controlar y evaluar todas aquellas actividades relacionadas con l
 c) Controlar posibles distorsiones en la transparencia de las actuaciones de los funcionarios del Área de Ingresos.
 d) Aprobar en conjunto con el Director, el Plan Anual de Evaluación de la Gestión y la Directriz Anual de Criterios de Selección.
 e) Emitir las recomendaciones a las autoridades competentes sobre la evaluación y control de la gestión del Área de Ingresos.
-f) Mantener informados a los jerarcas institucionales sobre el comportamiento de las cifras de recaudación, así también como los puntos de riesgo en las mismas y sus posibles causas.
+f) (Derogado por el artículo 4° del decreto ejecutivo N° 40671 del 18 de agosto de 2017)
 g) Evaluar los resultados de los planes específicos de las diferentes Direcciones Generales del Área de Ingresos, con efecto directo, indirecto o inducido en la gestión de los ingresos.
 h) Proponer mecanismos de rendición de cuentas en el Área de Ingresos así como evaluar los resultados.
 i) Elaborar propuestas de actividades integradas de control tributario.
-j) Solicitar, tabular y analizar las estadísticas de recaudación e indicadores de desempeño correspondientes al Área de Ingresos.
+j) Solicitar y analizar estadísticas e indicadores relacionados con el ámbito de acción del Área de Ingresos, como insumo de estudios, evaluaciones, e investigaciones, así como en valoraciones de gestión de las Dependencias que conforman dicha Área”.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40671 del 18 de agosto de 2017)
 k) Dar seguimiento a las actividades de control tributario integrado que sean ordenadas para el Área de Ingresos.
 l) Dirigir a nivel técnico el departamento operativo a su cargo.
 m) Ejecutar las disposiciones emitidas por las entidades fiscalizadoras y contraloras.
