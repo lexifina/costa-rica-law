@@ -1,0 +1,4 @@
+Artículo 21: Derogación. Esta publicación deroga la anterior normativa aprobada mediante acuerdo tomado por la Junta Directiva General en el artículo 13. °, sesión 11.918 del 23 de junio del 2014. Rige a partir de su publicación en Diario Oficial La Gaceta.
+2) Encargar a la Gerencia General instruir lo pertinente para que el nuevo texto del Reglamento sea oportunamente publicado en el diario oficial La Gaceta; asimismo, la Gerencia General deberá instruir lo pertinente con el fin de que se realice la divulgación y comunicación pertinente, a nivel interno, de las modificaciones aprobadas en esta oportunidad. 4) Derogar lo acordado en el artículo 13.º, numeral 2) de la sesión 11.918 del 30 de junio del 2014.
+Nota: se dejó constancia de que durante el conocimiento del asunto consignado en el presente artículo reingresó al salón de sesiones el señor Jorge Méndez Zamora.”
+La Uruca, 11 de agosto del 2017.

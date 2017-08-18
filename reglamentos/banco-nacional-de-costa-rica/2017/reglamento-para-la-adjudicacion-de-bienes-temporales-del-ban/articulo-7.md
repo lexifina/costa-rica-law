@@ -1,0 +1,3 @@
+Artículo 7: Actas. La elaboración de las actas del Comité se regirá conforme a lo establecido en el artículo 56 de la Ley General de la Administración Pública.
+La responsabilidad de levantar el acta y su publicación recae sobre el Secretario, quien gestionará los borradores de la misma, hasta llegar a la definitiva, así como el seguimiento de los acuerdos.
+Los acuerdos quedarán en firme en la sesión siguiente del Comité, salvo que por unanimidad los miembros le den firmeza a todas o a algunas de las resoluciones tomadas, de conformidad con lo previsto en el artículo 56 párrafo 2 de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 5: Quorum del Comité: El quórum del Comité de Adjudicación de Bienes Temporales quedará válidamente constituido con la totalidad de sus miembros y las decisiones se tomarán por simple mayoría de los miembros con derecho a voto.
