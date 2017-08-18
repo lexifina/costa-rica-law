@@ -19,3 +19,4 @@ Comunica emisión de resoluciones de la Dirección General del Servicio Civil:(D
 | 4 | 2017-06-09 | Resolución 7 (2017-06-09) |
 | 5 | 2017-06-23 | Resolución 8 (2017-06-23) |
 | 6 | 2017-06-30 | Resolución 9 (2017-06-30) |
+| 7 | 2017-08-18 | Resolución 12 (2017-08-18) |
