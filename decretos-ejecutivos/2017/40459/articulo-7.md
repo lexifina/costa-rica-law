@@ -1,0 +1,1 @@
+Artículo 7°. Conformación de la Secretaría Técnica de Responsabilidad Social. La Secretaría Técnica estará conformada por una persona del Despacho Ministerial del MEIC quien será encargada de la coordinación, más un equipo nombrado por el Ministro o la Ministra.

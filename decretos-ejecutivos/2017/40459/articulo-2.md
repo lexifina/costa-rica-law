@@ -1,0 +1,1 @@
+Artículo 2°.De la Administración Pública y la Responsabilidad Social. La Administración Pública Central deberá, dentro del ámbito de sus competencias y dependencias, incorporar criterios de Responsabilidad Social en su gestión.
