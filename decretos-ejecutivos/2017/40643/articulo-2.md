@@ -1,0 +1,1 @@
+Artículo 2°—Para cumplir estos fines, las dependencias del Sector Público, dentro del marco legal respectivo, podrán contribuir con recursos (económicos, técnicos, logísticos, entre otros) en la medida de sus posibilidades.
