@@ -14,3 +14,4 @@ Emite resoluciones de la Dirección General del Servicio Civil (DG045-2017, DG-0
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-05-19 | la propia norma |
+| 2 | 2017-08-18 | Resolución 12 (2017-08-18) |
