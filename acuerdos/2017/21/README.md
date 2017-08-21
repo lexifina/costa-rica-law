@@ -14,3 +14,4 @@ Establece restricciones para el otorgamiento de servicios nuevos de agua potable
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-02-03 | la propia norma |
+| 2 | 2017-08-21 | Acuerdo 225 (2017-08-21) |

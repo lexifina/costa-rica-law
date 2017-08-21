@@ -38,39 +38,39 @@ Esta zona incluye las siguientes áreas:
 • Áreas de protección que bordeen nacientes permanentes, definidas en un radio de cien metros medidos de modo horizontal, según artículo 33 de la Ley Forestal (Nº 7575, 13 de febrero de 1996) y las tierras que circunden los sitios de captación o tomas surtidoras de agua potable, en un perímetro no menor de doscientos metros de radio, según artículo 31 de la Ley General de Agua Potable (Nº 1634 de 18 de setiembre de 1953).
 • Área comprendida dentro de los límites de la Reserva Forestal de la Cordillera Volcánica Central establecida por el Decreto Ejecutivo Nº 4961-A, del 26 de junio de 1975.
 En esta zona la Empresa de Servicios Públicos de Heredia S. A., no otorgará servicios de energía eléctrica ni de agua potable, bajo ninguna circunstancia.
-B. Zona de protección de fuentes:
+(*)B. Zona de protección de fuentes:
 Esta zona incluye las siguientes áreas:
-• La zona inalienable declarada según la Ley Nº LXV de 1888 del 30 de julio de 1888.
+• La zona inalienable declarada según la Ley No LXV de 1888 del 30 de julio de 1888.
 • Áreas delimitadas en el “Informe integral para la protección de las tomas de agua potable de la ESPH S. A.” elaborado por Tecnoambiente (2002), para las siguientes captaciones de agua: Sacramento, 29, 29 A, Anexa Arrieta, Arrieta, Iris Hernández Este y Oeste, Botho Steinvorth, Flores 1 y Flores 2, Carlos Steinvorth, Tibasito, Río Segundo, La Hoja, Breña de Mora, Mata de Plátano y Mata de Maíz.
 En esta zona se restringe la dotación de servicios según los siguientes lineamientos:
-• No se realizarán extensiones de línea eléctrica primaria y de red de distribución de agua potable con el objetivo de otorgar servicios nuevos a particulares.
-• La ESPH sí podrá realizar obras de infraestructura tales como tuberías de conducción o impulsión, tanques de almacenamiento, plantas de tratamiento y demás infraestructura asociada a la captación, almacenamiento, tratamiento y conducción de agua potable-en ningún caso a la distribución de servicios nuevos-. Además serán permitidas las extensiones de redes de energía y/o telecomunicaciones única y exclusivamente con el objetivo de utilizar y operar dicha infraestructura.
-• No se darán servicios de energía y agua potable a segregaciones de finca, parcelas agrícolas y o segregaciones frente a calle pública.
-• Se dará un único servicio por finca para uso residencial a las propiedades que estén frente a calle pública y donde exista tendido eléctrico o red de agua potable al momento de la publicación de este acuerdo. Así mismo se otorgará un servicio para instalaciones con fines científicos y de protección a la ESPH S. A., o al Ministerio del Ambiente y Energía (MINAE).
+• Se dará un único servicio por finca para uso residencial a las propiedades que estén frente a calle pública y donde exista tendido eléctrico o red de agua potable, siempre y cuando el plano catastrado esté fechado antes del Acuerdo JD-076-2008, el cual entró en vigencia el 10 de abril del 2008. Así mismo se otorgará un servicio para instalaciones con fines científicos y de protección a la ESPH S. A., o al Ministerio de Ambiente y Energía (MINAE).
+(*)(Así reformado el inciso anterior mediante sesión ordinaria N° 3764 del 21 de agosto del 2017)
 C. Zona 1 de restricción de servicios de agua potable:
 Esta zona está asociada a las áreas consideradas como estrés hídrico alto. En esta zona se restringe la dotación de servicios de agua potable según los siguientes lineamientos:
 • No se brindará ningún tipo de disponibilidad.
-D. Zona 2 de restricción de servicios de agua potable:
+(*) D. Zona 2 de restricción de servicios de agua potable:
 Esta zona está asociada a las áreas consideradas como estrés hídrico medio. En esta zona se restringe la dotación de servicios según los siguientes lineamientos:
-• Solamente se brindará disponibilidad para un único servicio a planos que estén registralmente constituidos por medio de plano catastro fechados antes del Acuerdo JD- 176-2014, el cual se entró en vigencia el 08 de agosto del 2014.
+• Solamente se brindará disponibilidad para un único servicio a planos que estén registralmente constituidos por medio de plano catastro fechados antes del Acuerdo JD-176-2014, el cual entró en vigencia el 08 de agosto del 2014.
 • No se brindarán servicios adicionales a propiedades que ya cuenten con el servicio de agua potable.
 • Para solicitudes de servicios No domiciliares (Comercio, Industria, Gobierno), se solicitará el criterio de la UEN APH para su respuesta.
 • No se brindará disponibilidad para solicitudes que consideren segregaciones de lotes.
 • No se brindará disponibilidad de servicios de agua potable para proyectos urbanísticos.
-E. Zona 3 de restricción de servicios de agua potable:
+(*)(Así reformado el inciso anterior mediante sesión ordinaria N° 3764 del 21 de agosto del 2017)
+(*) E. Zona 3 de restricción de servicios de agua potable:
 Esta zona está asociada a las áreas consideradas como estrés hídrico bajo. En esta zona se restringe la dotación de servicios de agua potable según los siguientes lineamientos:
-• Se brindará disponibilidad a solicitudes de servicios que contemplen hasta tres segregaciones como máximo.
+• Se brindará disponibilidad a solicitudes que contemplen hasta tres servicios como máximo para el plano madre catastrado o hasta tres segregaciones como máximo, siempre y cuando el plano madre, o plano a segregar esté fechado antes del Acuerdo JD-176-2014, el cual entró en vigencia el 08 de agosto del 2014.
 • Para solicitudes de servicios adicionales para propiedades que ya cuenten con el servicio de agua potable, se solicitará el criterio de la UEN APH para su respuesta.
 • Para solicitudes de servicios No domiciliares (Comercio, Industria, Gobierno), se solicitará el criterio de la UEN APH para su respuesta.
 • No se brindará disponibilidad de servicios de agua potable para proyectos urbanísticos.
-2. Para el caso de la zona 1 de restricción de servicios de agua potable, la zona 2 de restricción de servicios de agua potable y la zona 3 de restricción de servicios de agua potable; se podrán aplicar excepciones a las restricciones, previo estudio de la Comisión de Urbanizaciones de la ESPH S.A, donde se logren comprobar las situaciones dadas por el interesado con la documentación correspondiente y con declaración jurada, en escritura pública que respalde la información y documentación presentada, de tal forma que:
+(*)(Así reformado el inciso anterior mediante sesión ordinaria N° 3764 del 21 de agosto del 2017)
+(*) 2. Para el caso de la zona 1, la zona 2 y la zona 3, de restricción de servicios de agua potable; se podrán aplicar excepciones a las restricciones, previo estudio de la Comisión de Proyectos Habitacionales de la ESPH S.A, donde se logren comprobar las situaciones dadas por el interesado con la documentación correspondiente y con declaración jurada, certificaciones literales de la propiedad y documentación que respalde la información presentada, de tal forma que:
 A. Se brinde el otorgamiento de los servicios en los siguientes casos:
 1. Donde el cliente solo cuente con una propiedad a su nombre en el Registro Público o ninguna, y se requiere hacer el traspaso.
-2. Casos donde se soliciten segregaciones para herencia familiar.
+2. Casos donde se soliciten segregaciones para efectos de procesos sucesorios, siempre que tales traspasos sean en favor de los cónyuges e hijos.
 3. Formalización registral u ordenamiento territorial de propiedades ante la Municipalidad y el Registro Nacional.
 4. En propiedades donde se han otorgado los sellos, y al no haberlos utilizado caducaron ahora, la restricción no permite la renovación de la disponibilidad brindad inicialmente.
-5. Considerar los casos que representen ante todo, un trámite de visado y ordenamiento registral, esto por cuanto nos permite ganar tiempo para las obras a desarrollar.
-B. Para los proyectos urbanísticos: condominios verticales, horizontales, urbanizaciones y fraccionamientos; mantener la prohibición.
+B. Para los proyectos habitacionales: condominios, apartamentos, urbanizaciones y fraccionamientos; mantener la prohibición.
+(*)(Así reformado el punto 2) anterior mediante sesión ordinaria N° 3764 del 21 de agosto del 2017)
 3. Revocar los acuerdos JD 76-2008, JD-028-2011, y JD 264-2015 después de la entrada en vigencia de este acuerdo a partir del 04 de febrero del 2017.
 4. Únicamente se modificarán estas zonas de restricción de servicios en los siguientes casos:
 A. Cuando por medio de Decreto Ejecutivo o Ley de la República sean modificados los límites de la Zona Inalienable de la Ley LXV , del Parque Nacional Braulio Carrillo, de la Reserva Forestal de la Cordillera Volcánica Central o la delimitación de las zonas de protección absoluta de nacientes y captaciones.
