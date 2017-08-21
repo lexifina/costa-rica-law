@@ -27,7 +27,7 @@ Requisitos: Además de cumplir con lo señalado en el Capítulo V de requisitos,
 • Todos los pasillos internos deben encontrarse libres de obstáculos y con un ancho mínimo de 90 cm.
 • El local deberá ser accesible y cumplir con las disposiciones establecidas en la Ley 7600 y su reglamento.
 • Preferiblemente los baños de Hombres y Mujeres deberán ser completamente accesibles, caso contrario deberán contar con al menos un baño accesible, cuyo mobiliario, rotulación, puertas de acceso, alturas, medidas internas, etc., deben estar acorde a lo que señala el Reglamento de la Ley 7600.
-• Adjuntar el documento que haga constar que cuentan con el Plan de Confinamiento de Sonido Vigente.
+• (La derogación de este punto practicada en sesión N° 107 del 21 de agosto de 2017, posteriormente fue derogada por la reforma hecha al capítulo XIV “Disposiciones Finales” del Reglamento a la Ley 9023 Impuestos Municipales del Cantón Central de Heredia, reforma publicada en el Alcance Digital N° 122 a La Gaceta N° 121 del 3 de julio de 2024 Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma).
 • Plan de Atención de Emergencias y estudio del INS o de Bomberos.
 • Según las dimensiones del local, deberá cumplir con los espacios de estacionamiento requerido en la Ley y el Reglamento de Construcciones.
 d) Cantinas, Bares, Tabernas:
@@ -42,7 +42,7 @@ Requisitos: Además de cumplir con lo señalado en el Capítulo V de requisitos,
 • Cuentan con una oferta de alimentos limitada a entradas o aperitivos.
 • Rotulación adecuada, prohibiendo el ingreso de menores y señalando las salidas de emergencia, etc.
 • Todos los pasillos internos deben encontrarse libres de obstáculos y con un ancho mínimo de 90 cm.
-• Adjuntar el documento que haga constar que cuentan con el Plan de Confinamiento de Sonido Vigente.
+• (La derogación de este punto practicada en sesión N° 107 del 21 de agosto de 2017, posteriormente fue derogada por la reforma hecha al capítulo XIV “Disposiciones Finales” del Reglamento a la Ley 9023 Impuestos Municipales del Cantón Central de Heredia, reforma publicada en el Alcance Digital N° 122 a La Gaceta N° 121 del 3 de julio de 2024 Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma).
 • Según las dimensiones del local, deberá cumplir con los espacios de estacionamiento requerido en la Ley y el Reglamento de Construcciones.
 e) Restaurantes:
 Establecimientos comerciales dedicados al expendio de comidas y bebidas de acuerdo a un menú de comidas y bebidas disponibles para el público durante todo el horario de actividad del negocio. Cuenta con una cocina equipada, salón comedor con mesas para la atención de público, vajillas, cubertería, caja, muebles y personal para la atención, un área de cocción y preparación de alimentos, áreas de bodegas para granos, enlatados, líquidos, licores, o envases, cámaras de refrigeración y congelación para los mariscos, aves, carnes y legumbres.
@@ -61,7 +61,7 @@ Requisitos: Además de cumplir con lo señalado en el Capítulo V de requisitos,
 • Cumplir con la Ley de control de Tabaco, Ley N° 9028.
 • Rotulación adecuada, señalando las salidas de emergencia, etc.
 • Todos los pasillos internos deben encontrarse libres de obstáculos y con un ancho mínimo de 90 cm.
-• Adjuntar el documento que haga constar que cuentan con el Plan de Confinamiento de Sonido Vigente.
+• (La derogación de este punto practicada en sesión N° 107 del 21 de agosto de 2017, posteriormente fue derogada por la reforma hecha al capítulo XIV “Disposiciones Finales” del Reglamento a la Ley 9023 Impuestos Municipales del Cantón Central de Heredia, reforma publicada en el Alcance Digital N° 122 a La Gaceta N° 121 del 3 de julio de 2024 Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma).
 f) Supermercados y Mini-Súper.
 Concepto: Son aquellos establecimientos comerciales cuya actividad primaria o principal son la venta de mercancías, alimentos y productos para el consumo diario de las personas y donde se utiliza el sistema de auto servicio. Se diferencian unos de otros principalmente por el área que ocupan y la cantidad de personal que operan ellos.
 Requisitos: Además de cumplir con lo señalado en el Capítulo V de requisitos, dado que la actividad principal es la venta de mercancías varias, deberán cumplir con las siguientes condiciones:

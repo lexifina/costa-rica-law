@@ -6,8 +6,8 @@ a) Del permiso municipal: Toda actividad social que se programe y donde se prete
 b) Solicitudes de permiso para desarrollar actividades, eventos con karaokes, Música en vivo, artistas o con DJ (no espectáculo público): Las solicitudes deberán presentarse con no menos de diez días hábiles de anticipación a la realización de la actividad, lo cual debe hacerse ante la Sección de Servicios Tributarios de la Municipalidad, las solicitudes deberán ajustarse a los siguientes requisitos:
 • Solicitud formal escrita, la que debe contener nombre completo, número de cédula, firma del solicitante, lugar en el que se realizará la actividad fecha y hora. En el caso de locales comerciales, la solicitud deberá de hacerla el patentado. En los casos de locales comerciales que desarrollen esta actividad en forma permanente, están obligados a realizar el trámite cada tres meses, presentando los requisitos solicitados.
 • Autorización del Ministerio de Salud, para dicha actividad.
-• Adjuntar el Plan de Confinamiento de Sonido Vigente avalado y aprobado por el Ministerio de Salud.
-• Declaración jurada de un profesional o ingeniero en sonido que acredite y certifique que el lugar donde se va realizar el evento o actividad cumple con los niveles y parámetros normados por ministerio de salud y que se encuentra confinado para tal fin.
+• (Derogado en sesión N° 107 del 21 de agosto de 2017)
+• (Derogado en sesión N° 107 del 21 de agosto de 2017)
 • Estar al día en el pago de impuestos municipales.
 • Estar al día en el pago de la patente comercial.
 c) De la hora límite: Establecimientos comerciales o particulares podrán desarrollar las actividades de Karaoke, eventos, Animación, Música en Vivo, DJ o artista, estas no podrá extenderse más allá del horario autorizado para la actividad mediante la licencia comercial o de licores, de no tener restricción de horario la actividad no podrán extenderse más allá de la 1:00 a.m. En el caso de locales presenten artistas o grupos nacionales los mismos no tendrán restricción de horario alguno.
@@ -19,8 +19,8 @@ e) Requisitos para la licencia de espectáculo público, evento, o actividad en 
 • Presentar mensualmente, en los primeros diez días de cada mes los boletos o tiquetes que se utilizarán para el ingreso a las actividades con el objetivo de que la Municipalidad proceda a sellar y registrar cada uno de ellos. Los boletos deberán tener impreso el valor de la entrada, el nombre del negocio, razón social del patentado o patentada y estar numerados en forma consecutiva, en caso de boletos electrónicos presentar copia del contrato de la empresa encargada de la venta de los tiquetes.
 • Contrato de arrendamiento en donde se indique que la actividad solicitada cuenta con el
 visto bueno del propietario del inmueble.
-• Adjuntar el Plan de Confinamiento de Sonido Vigente avalado y aprobado por el Ministerio de Salud.
-• Declaración jurada de un profesional o ingeniero en sonido que acredite y certifique que el lugar donde se va realizar el evento o actividad cumple con los niveles y parámetros normados por ministerio de salud y que se encuentra confinado para tal fin.
+• (Derogado en sesión N° 107 del 21 de agosto de 2017)
+• (Derogado en sesión N° 107 del 21 de agosto de 2017)
 • Constancia emitida por el Teatro Nacional, donde se indique que el interesado se encuentra al día o exonerado del pago de impuesto de espectáculos públicos.
 • Póliza del Instituto Nacional de Seguros sobre daños a terceros.
 • Autorización o exoneración del uso del repertorio musical, extendido por la Asociación de Compositores y Autores Musicales (ACAM).
