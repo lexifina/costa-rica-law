@@ -1,2 +1,0 @@
-Artículo 20.—De la vigencia del Reglamento. Por su naturaleza, este reglamento de conformidad con lo establecido en el numeral 43 del Código Municipal se somete a consulta publica por un lapso de diez días hábiles contados a partir de su publicación en el Diario Oficial La Gaceta, debiendo cualquier interesado hacer sus oposiciones en memorial razonado, ante el despacho del Alcalde Municipal, ubicado en San Isidro de Heredia, en edificio Municipal, 100 m sur del Templo Católico.
-San Isidro de Heredia, 29 de octubre del 2007.

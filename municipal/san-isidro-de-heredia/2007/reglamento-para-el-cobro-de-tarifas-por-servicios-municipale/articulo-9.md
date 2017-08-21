@@ -1,2 +1,0 @@
-Artículo 9º—De la actuación oficiosa de la Municipalidad o de parte interesada. La Municipalidad de San Isidro de Heredia, mediante la actuación del funcionario que la administración designe, podrá actuar de oficio, respecto a la verificación del cumplimiento del presente Reglamento.
-Además de la actuación oficiosa por parte de la administración, cualquier interesado podrá solicitar una inspección en el lugar donde tenga conocimiento de la infracción al presente reglamento, dicha solicitud podrá ser realizada en forma escrita o verbal ante la Administración.

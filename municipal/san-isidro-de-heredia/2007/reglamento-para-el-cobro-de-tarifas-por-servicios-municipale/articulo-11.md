@@ -1,1 +1,0 @@
-Artículo 11.—De la fijación de precios. El Concejo Municipal fijará los precios que se deberán cobrar por los servicios que preste u obras que realice la Municipalidad. El acuerdo que los establezca deberá ser publicado en el Diario Oficial La Gaceta, y los precios tendrán que ser actualizados anualmente, y debidamente publicados.
