@@ -15,3 +15,4 @@ Reglamento para las dotaciones de servicios y urbanizaciones, fraccionamientos y
 | --- | --- | --- |
 | 1 | 2013-02-28 | la propia norma |
 | 2 | 2013-11-25 | Reglamento 3402 (2013-11-25) |
+| 3 | 2017-08-21 | Reglamento 3764 (2017-08-21) |
