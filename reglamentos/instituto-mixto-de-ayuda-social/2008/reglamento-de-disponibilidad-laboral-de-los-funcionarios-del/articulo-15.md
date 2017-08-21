@@ -1,1 +1,0 @@
-Artículo 15.—De los recursos: Contra las resoluciones de Recursos Humanos podrán formularse los recursos ordinarios de revocatoria y apelación en los términos contenidos en la Ley General de la Administración Pública, el recurso de revocatoria será resuelto por Recursos Humanos y el de apelación será conocido y resuelto por la Gerencia General del IMAS.

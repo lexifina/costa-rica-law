@@ -1,2 +1,0 @@
-Artículo 6º—De la transitoriedad: La disponibilidad laboral se otorga en función del ejercicio de un puesto, como un acto administrativo condicionado, por lo que si el funcionario cambia de puesto o de funciones, o el IMAS resuelve suprimir la existencia de dicho plus de manera general, deberá suprimírsele inmediatamente el pago de disponibilidad, sin responsabilidad alguna para con el servidor.
-La suspensión del reconocimiento por disponibilidad, debe ser justificada por parte de la administración del IMAS y comunicada al funcionario interesado.

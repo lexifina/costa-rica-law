@@ -1,1 +1,0 @@
-Artículo 9º—De los funcionarios excluidos: Se excluye del reconocimiento de disponibilidad que establece este reglamento, a los puestos de Presidente Ejecutivo, Gerente General, Subgerentes, a los empleados de confianza, al Auditor y Subauditor Internos, a los trabajadores de Empresas Comerciales y en general a todos los titulares subordinados.

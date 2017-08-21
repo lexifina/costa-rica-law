@@ -1,1 +1,0 @@
-Artículo 20.—De las excepciones: Por causa justificada el trabajador podrá solicitar en forma previa la no disponibilidad en cierto horario, en cuyo caso el superior jerárquico de éste determinará la posibilidad de acceder a dicha petición, comunicando su decisión en forma escrita tanto al tanto al solicitante como a Recursos Humanos.

@@ -1,1 +1,0 @@
-Artículo 11.—Del porcentaje de retribución: La compensación económica será de un 20% (veinte por ciento) del salario base de la clase de puesto en que se encuentre nombrado el trabajador disponible.
