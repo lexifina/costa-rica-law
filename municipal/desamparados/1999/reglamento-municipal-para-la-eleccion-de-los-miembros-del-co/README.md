@@ -15,3 +15,4 @@ Reglamento Municipal para la Elección de los Miembros del Comité Cantonal de D
 | --- | --- | --- |
 | 1 | 2000-01-05 | la propia norma |
 | 2 | 2014-01-08 | Reglamento municipal 0 (2014-01-08) |
+| 3 | 2017-08-21 | Reglamento municipal 99 (2017-08-21) |
