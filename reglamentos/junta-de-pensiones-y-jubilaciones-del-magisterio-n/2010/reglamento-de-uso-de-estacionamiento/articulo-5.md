@@ -1,1 +1,3 @@
-Artículo 5º—El parqueo se dividirá en dos secciones. La primera que estará destinada al estacionamiento permanente de las jefaturas o quienes los sustituyan, y funcionarios que ejerzan tareas de supervisión, funciones especiales de administración, control o dirección y la segunda, en la que ubicarán a aquellos servidores que de acuerdo a las disposiciones contenidas en este reglamento disponga la Dirección Ejecutiva.
+Artículo No. 5: El Departamento Administrativo asigna los estacionamientos con base en el interés institucional, para lo cual el criterio de la antigüedad de cada trabajador será el elemento objetivo y determinante para la concesión del derecho a estacionamiento.
+La Dirección Ejecutiva establece anualmente o cuando sea necesario, la cantidad total de lugares de estacionamientos a distribuir entre los trabajadores, según la clasificación del párrafo anterior.
+La definición de los espacios es clasificada conforme al procedimiento correspondiente.

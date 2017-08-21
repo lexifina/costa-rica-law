@@ -1,1 +1,1 @@
-Artículo 18. —(Nota de Sinalevi: En la publicación de este reglamento, no aparece este artículo. No obstante el sistema exige una numeración consecutiva, por lo que se ha creado el mismo, pero sin texto.)
+Artículo No. 18: Previa autorización expresa del Departamento Administrativo o de la Dirección Ejecutiva el estacionamiento puede ser utilizado por terceros, los cuales deben ajustarse a los lineamientos de este reglamento.

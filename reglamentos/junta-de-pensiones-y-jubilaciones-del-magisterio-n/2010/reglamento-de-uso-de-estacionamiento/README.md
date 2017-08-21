@@ -14,3 +14,4 @@ Reglamento de uso de estacionamiento
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-06 | la propia norma |
+| 2 | 2017-08-21 | Reglamento 93 (2017-08-21) |

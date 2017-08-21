@@ -1,1 +1,1 @@
-Artículo 16.—Se prohíbe a los funcionarios con derecho de estacionamiento, subir o bajar de sus vehículos a personas ajenas a la institución dentro de las zonas de acceso y parqueo de JUPEMA.
+Artículo No. 16: El Departamento Administrativo comunica, con al menos un día de antelación y sin ninguna responsabilidad para JUPEMA, la necesidad de desocupar el estacionamiento para atender actividades propias de la Institución.

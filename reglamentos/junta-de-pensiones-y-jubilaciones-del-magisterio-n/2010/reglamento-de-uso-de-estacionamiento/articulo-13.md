@@ -1,1 +1,1 @@
-Artículo 13.—El derecho de estacionamiento le será suspendido a aquel funcionario cuyo vehículo aparcado produzca derrames de aceite o combustible que pongan en peligro la seguridad de las personas y de los otros vehículos que se encuentren en el parqueo. Igual ocurrirá con aquellos vehículos que no se encuentran ajustados a la Ley de Tránsito, para transitar en las vías públicas.
+Artículo No. 13: Solamente el trabajador con derecho a estacionamiento puede conducir su vehículo dentro del parqueo de JUPEMA, salvo caso fortuito o fuerza mayor.

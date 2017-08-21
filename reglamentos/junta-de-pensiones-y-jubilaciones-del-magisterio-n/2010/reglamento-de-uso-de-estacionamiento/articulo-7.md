@@ -1,1 +1,1 @@
-Artículo 7º—En aquellos casos de funcionarios, que sean cónyuges entre sí, y con interés legítimo en la asignación de un estacionamiento en el parqueo de JUPEMA, únicamente se le asignará un espacio.
+Artículo No. 7: La asignación de los estacionamientos no constituye un derecho laboral del trabajador que lo haya disfrutado ni tampoco salario en especie, salvo que contractualmente o por otra normativa especial se disponga lo contrario.

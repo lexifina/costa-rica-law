@@ -1,1 +1,1 @@
-Artículo 17.—El Departamento Administrativo comunicará, con al menos un día de antelación y sin ninguna responsabilidad para JUPEMA, la necesidad de desocupar el parqueo para atender actividades propias de la Institución.
+Artículo No 17: La velocidad máxima a transitar dentro de los estacionamientos de JUPEMA, se regula conforme a la señalización establecida.

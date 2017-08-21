@@ -1,1 +1,1 @@
-Artículo 3º—Compete al Departamento Administrativo de JUPEMA velar por la administración y el mantenimiento del orden en el parqueo de la institución, así como por la efectiva aplicación y observancia de las presentes disposiciones.
+Artículo No. 3: Compete al Departamento Administrativo de JUPEMA velar por la administración y el mantenimiento del orden en el parqueo de la institución, así como por la efectiva aplicación y observancia de las presentes disposiciones.

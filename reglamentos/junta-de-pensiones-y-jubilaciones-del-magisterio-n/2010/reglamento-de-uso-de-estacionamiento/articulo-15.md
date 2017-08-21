@@ -1,1 +1,1 @@
-Artículo 15.—Se prohíbe el estacionamiento temporal de vehículos frente al portón de entrada, en los pasillos internos del parqueo y en las rampas de acceso a éste.
+Artículo No. 15: Para los controles correspondientes los trabajadores con derecho de estacionamiento, deben comunicar al Área de Seguridad, el ingreso de personas ajenas a la institución que viajen en sus vehículos.

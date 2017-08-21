@@ -1,1 +1,1 @@
-Artículo 6º—Una vez asignados los estacionamientos permanentes, el Departamento Administrativo, asignará los estacionamientos con base en el interés institucional, para lo cual el criterio de la antigüedad de cada servidor será el elemento objetivo y determinante para la concesión del derecho a estacionamiento y en última instancia el nivel jerárquico del servidor.
+Artículo No. 6: En aquellos casos de trabajadores, que sean cónyuges entre sí, y con interés legítimo en la asignación de un estacionamiento en el parqueo de JUPEMA, únicamente se le asigna un espacio.
