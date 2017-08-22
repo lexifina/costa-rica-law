@@ -1,1 +1,2 @@
-Artículo 41. Del Chaleco antibalas. Todo el personal policial utilizará chaleco antibalas, este será en color negro con la leyenda “Policía” al frente y espalda del mismo. El diseño será determinado por la administración, este en todo caso, debe ser con un nivel de protección igual o superior al III A.
+Artículo 41. Del avituallamiento. La Administración será la encargada de proveer los uniformes de la Fuerza Pública, de los demás cuerpos de Policía adscritos al Ministerio de Seguridad Pública y de la Escuela Nacional de Policía, así como los accesorios que se utilizarán para el buen desempeño de la función policial.
+(Así reformado por el artículo 4° del decreto ejecutivo N° 40669 del 22 de agosto del 2017)

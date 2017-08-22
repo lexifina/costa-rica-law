@@ -1,0 +1,2 @@
+Artículo 80. El libro para el registro de condecoraciones y reconocimientos deberá estar debidamente identificado con tomo, folio y asiento. En cada asiento constará el nombre de la persona a condecorar o a reconocer, tipo de condecoración o reconocimiento que se otorga, número y fecha del acuerdo del Consejo Superior de Oficiales según corresponda.
+(Corrida su numeración por el artículo 5° del decreto ejecutivo N° 40669 del 22 de agosto del 2017, que lo traspasó del antiguo artículo 63 al 80)

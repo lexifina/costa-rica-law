@@ -1,3 +1,5 @@
-Artículo 70. Vigencia: Rige a partir del 01 de enero del 2013.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 37215 del 10 de julio del 2012)
-Dado en San José, a los ocho días del mes de mayo del dos mil doce.
+Artículo 70. Disposiciones Generales. El otorgamiento de reconocimientos, medallas y condecoraciones, se dará previa recomendación del Director de cada Cuerpo Policial, por alguna de las siguientes acciones:
+A. Por acciones meritorias y ejemplares, destacándose por su valor, capacidad y eficacia reiterada en defensa de los derechos y libertades de los ciudadanos, más allá del normal cumplimiento de sus labores policiales.
+B. Por realizar o apoyar estudios profesionales que redunden en el prestigio de la Fuerza Pública o utilidad para el servicio.
+La solicitud deberá presentarse por escrito debidamente motivado ante el Consejo Superior de Oficiales y contendrá las calidades del recomendado, un resúmen de su historial laboral, justificación de la solicitud, en la que deberá detallarse el hecho o hechos en que se basa la solicitud y que a criterio del Director del Cuerpo Policial respectivo o del Director de la Escuela Nacional de Policía, hacen merecedor al funcionario de especial reconocimiento, así mismo deberá incorporarse toda aquella información que permita sustentar la propuesta realizada.
+(Corrida su numeración por el artículo 5° del decreto ejecutivo N° 40669 del 22 de agosto del 2017, que lo traspasó del antiguo artículo 53 al 70)

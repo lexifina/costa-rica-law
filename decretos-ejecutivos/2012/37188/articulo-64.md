@@ -1,3 +1,3 @@
-CAPÍTULO V
-Del uso y colocación de las insignias de grado y otros distintivos
-Artículo 64. Colocación de grados. En los Uniformes de Diario los distintivos de grado se utilizarán sobre las charreteras, en caponas de tela negra bordadas en hilo de color oro y deberán tener una línea bordada en hilo color oro en el borde distal del cuello. En los Uniformes Ejecutivos y Formales los distintivos de grado se utilizarán sobre las charreteras en pines metálicos color oro. En los Uniformes de Fatiga que así se haya dispuesto, los distintivos de grado se usaran bordados con hilo color oro en un parche cuadrado de tela negra, el cual se colocará adherido con velcro al respectivo uniforme en el pecho. La utilización de un grado policial por funcionarios no autorizados será considerada falta grave de conformidad con la Ley General de Policía.
+Artículo 64. Del calzado. Para ambos sexos serán botas de color negro o coyote de caña alta de no más de ocho pulgadas de alto, de cuero con suela antideslizante, con cuatro costuras, con o sin cremallera y de amarre de cordón.
+Las medias serán de color negro.
+(Así adicionado por el artículo 4° del decreto ejecutivo N° 40669 del 22 de agosto del 2017)

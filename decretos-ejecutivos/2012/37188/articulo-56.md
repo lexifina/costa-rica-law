@@ -1,6 +1,14 @@
-Artículo 56. De los distintivos de la Escuela Nacional de Policía: Corresponde al Consejo Académico de la Escuela Nacional de Policía acordar los distintivos para personal instructor y estudiantil. Las mismas serán a otorgadas a las siguientes categorías:
-A. Distintivo al mejor instructor (a) del año y mejor táctico (a) del año: Se le conferirá al personal de instrucción de la Escuela Nacional de Policía que por su abnegación, constancia y dedicación haya sobresalido en su labor y servicio y que sobrepase la actividad normal, con hechos sobresalientes que dan a la institución prestigio y distinción.
-B. Distintivo al mejor promedio académico del Curso Básico Policial: Se le conferirá al estudiante de cada Curso Básico Policial, en etapa de formación de agente que por su promoción obtenga el mayor promedio académico.
-C. Distintivo al mejor estudiante del Curso Básico Policial: Se le conferirá al estudiante de cada Curso Básico Policial, en etapa de formación de agente que por destacarse con un excelente promedio académico, y haya demostrado buena conducta, espíritu de servicio, disciplina y compromiso con la institución.
-D. Distintivo al mejor estudiante tirador de polígono en cada Curso Básico Policial: Se le conferirá al estudiante de cada Curso Básico Policial, en etapa de formación de agente que sobresalga en las evaluaciones teóricas y prácticas y en su habilidad para disparar en polígono.
-E. Distintivo al mejor conductor(a) vehicular del año: Se le conferirá al personal de conductores, de la Escuela Nacional de Policía, por su prudencia, el respeto a la Ley de Tránsito, respeto a los pasajeros, así como el compromiso institucional.
+Artículo 56. Sobre uso de insignias, pines y condecoraciones del SNG:
+Para la Escala Ejecutiva y Oficiales Superiores
+Insignias para los uniformes según cada Escala:
+a- En los hombros se utilizaran "charreteras" bordadas con el grado correspondiente para cada funcionario.
+b- En el cuello anclas con el logo SNG.
+c- Para oficiales su distintivo al lado izquierdo (pin de oficiales) y grado a la derecha si no portan charreteras.
+d- Los pines de cursos, condecoraciones y distinciones, en la solapa de la bolsa derecha los cursos internaciones y al lado izquierdo los nacionales.
+e- No se podrán utilizar "parches" en lugar de los pines anteriores.
+Insignias para el Uniforme de Fatiga (pixeleado mimetizado, beige, verde olivo y azul de
+guardacostas):
+a- Los grados en estos uniformes se utilizaran al frente de la camisa en el medio a nivel de las dos bolsas frontales.
+b- No se podrá utilizar ningún pin sobre este uniforme, únicamente parches.
+c- La Bandera de Costa Rica y el escudo del Servicio Nacional de Guardacostas serán en colores verde, gris y negro. El grado y anclas en negro; siendo en negro el grado y fondo verde oliva.
+(Así adicionado por el artículo 4° del decreto ejecutivo N° 40669 del 22 de agosto del 2017)

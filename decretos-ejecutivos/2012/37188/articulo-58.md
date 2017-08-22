@@ -1,5 +1,9 @@
-Artículo 58. Condecoraciones y reconocimientos de la Policía de Control de Drogas: Corresponde al Director de la Policía de Control de Drogas, el procedimiento y forma de calificación y recomendación ante el Ministro y el Consejo Superior de Oficiales.
-Todos los reconocimientos se otorgarán una vez al año en cada aniversario de creación de la Policía, y estos serán:
-A. Años de Servicio: Otorgada a Oficiales Policiales y de Apoyo. Se otorgará a los diez, quince, veinte, veinticinco, treinta años de servicio.
-B. Honor al Mérito: Otorgado a aquellos oficiales que se hayan destacado por acciones humanitarias y que hayan destacado sobre los demás de grupo, departamento o de la policía en general. Los méritos también se reconocerán por sus deseos de superación, preparación, honradez, disciplina y otras que en el caso se estimen meritorias.
-C. Honor al Valor: Para aquellos funcionarios que se distingan por su valor en el cumplimiento de su deber.
+CAPÍTULO V
+UNIFORMES DE LA POLICÍA DE CONTROL DE DROGAS
+Artículo 58. Del uniforme de faena clase 8-1.
+Será camisa de fatiga o camiseta de color azul oscuro. La camisa de fatiga contará con dos bolsas delanteras colocadas una a la derecha y otra a la izquierda, ambas con tapa.
+La camiseta será tipo deportiva color azul con la leyenda "PCD" en color amarillo en la espalda y en el pecho al lado izquierdo el emblema de la Policía de Control de Drogas.
+El pantalón será de fatiga de color azul oscuro, con dos bolsas delanteras colocadas una a la derecha y otra a la izquierda; dos bolsas traseras colocadas una a la derecha y otra a la izquierda, con tapa cada una; dos bolsas laterales con tapa, colocadas a la altura de los muslos, pudiéndose dispensar de estas en el diseño por seguridad personal y por decisión del Director de la Policía de Control de Drogas. Los ruedos irán dentro de las botas o fuera de estas de acuerdo a la situación operativa. Asimismo, se utilizará faja de color negro de lona.
+Las botas serán de color negro, de caña baja y alta, con cordón de color negro, y se utilizarán medias en color negro.
+La gorra del uniforme será de color azul tipo beisbolera, con la leyenda "PCD" al frente en letras blancas.
+(Así adicionado por el artículo 4° del decreto ejecutivo N° 40669 del 22 de agosto del 2017)

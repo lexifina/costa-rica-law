@@ -1,7 +1,8 @@
-CAPÍTULO III
-De los Escudos de las Unidades Policiales
-Escuela Nacional de Policía
-Artículo 51. De los escudos. Todas las Direcciones y Unidades Policiales, podrán tener su propio escudo, el cual será autorizado para su uso de conformidad con las siguientes reglas:
-A. El Jefe de la Dirección o Unidad Policial solicitante, presentará al Director del Cuerpo Policial correspondiente o de la Escuela Nacional de Policía según sea el caso, para su aprobación y autorización de uso, una solicitud motivada por escrito conteniendo una imagen del escudo propuesto y una descripción detallada de cada uno de los elementos que lo componen.
-B. La solicitud deberá realizarse justificando e interpretando los símbolos y colores utilizados bajo principios heráldicos.
-C. Una vez aprobado el diseño del escudo propuesto, cada Director deberá incluir el escudo en el Registro que para tales efectos deberá llevar y remitir copia de los mismos al Consejo Superior de Oficiales, donde se llevará el Registro General de Escudos que se emplean en los Cuerpos Policiales adscritos al Ministerio de Seguridad Pública.
+Artículo 51. Del uniforme de deportes clase E-1. Para las prácticas deportivas, los estudiantes de la Escala Básica usarán, camiseta color blanco con cuello redondo y con mangas, con la leyenda en la espalda "GUARDACOSTAS", el escudo del Servicio Nacional de Guardacostas impreso a la altura del pecho al lado izquierdo. La pantaloneta corta de color negro con estampado en el muslo izquierdo el ancla del Servicio Nacional de Guardacostas en color amarillo.
+Los estudiantes de la Escala Ejecutiva y Superior usarán, camiseta color gris con sin cuello y con mangas con la leyenda en la espalda "GUARDACOSTAS" en color negro, el escudo del Servicio Nacional de Guardacostas impreso a la altura del pecho al lado izquierdo. La pantaloneta corta de color negro con estampado en el muslo izquierdo el ancla del Servicio Nacional de Guardacostas en color amarillo.
+El uniforme que utilizarán los oficiales para el acondicionamiento físico u otras actividades que lo requieran, será el siguiente:
+De la camiseta: Se utilizará camiseta blanca con el escudo del Servicio Nacional de Guardacostas al lado izquierdo al frente y la leyenda de "Guardacostas" color negro en la parte trasera. En su lugar se podrá utilizar camiseta completamente blanca.
+De la pantaloneta: Será en color negro en material nylon o algún otro tipo "dry fit."
+Del calzado: Serán zapatos deportivos en color blanco o negro, con medias en color blanco tipo deportivas.
+Cuando se realicen actividades de acondicionamiento físico en la vía pública, al menos dos efectivos utilizarán chalecos reflectantes.
+(Así adicionado por el artículo 4° del decreto ejecutivo N° 40669 del 22 de agosto del 2017)

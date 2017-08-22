@@ -1,1 +1,2 @@
-Artículo 37. Del poncho contra la lluvia del personal de la Fuerza Pública. Será color azul, negro o verde con la leyenda “Fuerza Pública” en la parte trasera, en letras color amarillo. Para operativos en montaña se autoriza el uso del poncho verde o mimetizado, sin leyenda.
+Artículo 37. Del brazal para el personal de la Fuerza Pública. Se utilizará en el brazo derecho durante operativos en zonas fronterizas. El brazal será de color azul con cierre en velero, con la Bandera Nacional cosida. Además podrá utilizarse para diferenciar alguna especialidad o actividad que se establezca en la operatividad de la Fuerza Pública, así definido por los Directores de cada Cuerpo Policial.
+(Así reformado por el artículo 4° del decreto ejecutivo N° 40669 del 22 de agosto del 2017)

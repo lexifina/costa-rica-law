@@ -1,0 +1,2 @@
+Artículo 76. De la suspensión de entrega de reconocimientos. La existencia de procesos penales y administrativos pendientes por la comisión de un hecho delictivo u otra causa grave, facultará al Consejo Superior de Directores, o al Consejo Superior de Oficiales a suspender el conocimiento de la solicitud hasta la efectiva resolución de los procesos.
+(Corrida su numeración por el artículo 5° del decreto ejecutivo N° 40669 del 22 de agosto del 2017, que lo traspasó del antiguo artículo 59 al 76)
