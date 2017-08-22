@@ -1,0 +1,1 @@
+Artículo 2° .-Se faculta a la Administración Pública Central y a las instituciones y empresas del Estado para que, dentro de sus competencias y en estricto apego al ordenamiento jurídico, brinden la cooperación y las facilidades necesarias requeridas para impulsar la creación, el desarrollo y el fortalecimiento del CISG.
