@@ -1,0 +1,1 @@
+Artículo 17º.- Periodo análisis de la información. Una vez recibida la información de las partes, la AI cuenta con un plazo de tres meses calendario para analizar las pruebas aportadas, conforme al artículo 13 del presente Reglamento. Dicho plazo incluye investigación, análisis y verificación in situ.

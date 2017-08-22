@@ -1,0 +1,2 @@
+Artículo 16º.- Verificación de la información. La AI podrá, en cualquier momento de la investigación, efectuar visitas in situ de verificación de información. En tal caso, la AI informará a las partes interesadas, con anterioridad a la visita, sobre la naturaleza general de la información que se verificará. Lo anterior no será impedimento para que, durante la visita, y a la luz de la información obtenida, se soliciten más detalles.
+Adicionalmente, la AI podrá utilizar otros medios que considere pertinentes a efectos de acreditar la veracidad de las pruebas.

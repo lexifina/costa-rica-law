@@ -1,0 +1,1 @@
+Artículo 23º.- Vigencia de la medida anti-elusión. La medida anti-elusión entrará en vigencia a partir de la firmeza de la resolución y hasta el plazo de vigencia de la medida de Defensa Comercial. En ningún caso su aplicación se mantendrá si la medida de Defensa Comercial que se pretendía eludir se ha extinguido.

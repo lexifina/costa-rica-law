@@ -1,0 +1,1 @@
+Artículo 27º.- Aplicación supletoria. En los casos no previstos en el presente Reglamento, se podrá aplicar en forma supletoria las normas, disposiciones y principios del derecho público y en su defecto del derecho común.

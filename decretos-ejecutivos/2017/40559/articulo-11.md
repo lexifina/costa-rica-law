@@ -1,0 +1,1 @@
+Artículo 11º.-Recursos durante el procedimiento investigación. En el procedimiento cabrán los recursos ordinarios únicamente contra la resolución de apertura, de archivo, o cualquier prueba, de conformidad con la Ley General de la Administración Pública de Costa Rica.

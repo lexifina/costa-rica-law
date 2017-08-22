@@ -1,0 +1,2 @@
+Artículo 8º.- De la solicitud de investigación anti-elusión. Toda solicitud de investigación anti-elusión se presentará ante la AI y deberá basarse en pruebas idóneas; es decir, afirmativas, objetivas y verificables, que respalden los hechos denunciados y que resulten relevantes para la iniciación de la investigación anti-elusión.
+Asimismo, para su admisibilidad la solicitud deberá ser presentada una vez que haya transcurrido un periodo de seis meses desde la implementación de la medida de defensa comercial supuestamente eludida.

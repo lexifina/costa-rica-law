@@ -1,0 +1,2 @@
+Artículo 20º.- Informe técnico. Una vez concluida la diligencia de la audiencia, la AI cuenta con un plazo de 15 días calendario para emitir el informe técnico definitivo, finalizando la investigación.
+En ese mismo plazo, deberá remitir el informe técnico y el expediente del caso al Ministro (a) del MEIC. En dicho informe deberá la AI recomendar sobre la procedencia de ampliar o no la medida de defensa comercial al producto objeto de la investigación anti-elusión.

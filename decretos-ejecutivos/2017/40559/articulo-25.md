@@ -1,0 +1,6 @@
+CAPITULO VI
+Disposiciones finales
+Artículo 25º.- Del expediente y su acceso. Toda información aportada por las partes interesadas, así como la acopiada de oficio por la AI, será archivada cronológicamente.
+Del expediente administrativo se deberá llevar dos legajos, uno que contendrá la información de carácter pública y otro la información de carácter confidencial.
+La AI, el Despacho Ministerial, las partes interesadas, sus representantes y sus abogados, debidamente acreditados al efecto, tendrán derecho en cualquier fase del procedimiento a examinar, leer y copiar, cualquier documento o medio de prueba del expediente, así como pedir certificación del mismo, salvo la información confidencial a la cual sólo tendrá acceso la AI, el Despacho Ministerial y la parte que la haya suministrado.
+De conformidad con los artículos 12 del Reglamento Centroamericano sobre Prácticas Desleales de Comercio y 17 del Reglamento sobre Salvaguardia, las partes señaladas en el párrafo anterior, no podrán durante el trascurso del procedimiento de investigación divulgar la información contenida en el expediente administrativo; no obstante, una vez concluida la investigación, cualquier persona podrá tener acceso al expediente que contiene la información pública y solicitar autorización a la AI para su fotocopia.

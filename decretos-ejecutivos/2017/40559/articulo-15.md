@@ -1,0 +1,1 @@
+Artículo 15º.- Solicitud de prueba. Junto con la resolución de apertura, la AI solicitará prueba a las partes interesadas, las cuales contarán con un plazo de 20 días calendario para proveerla. A solicitud de parte justificada y a criterio de la AI, dicho plazo se podrá prorrogar hasta por la mitad del plazo ordinario.

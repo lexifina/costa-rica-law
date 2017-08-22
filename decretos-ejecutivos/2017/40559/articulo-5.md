@@ -1,0 +1,4 @@
+CAPÍTULO III
+De la elusión de Medidas Antidumping, Compensatorias y de Salvaguardia
+Artículo 5º.- De la determinación de existencia de elusión de medidas antidumping, compensatorias o de salvaguardia. Para determinar la elusión de una medida de defensa comercial, la AI, basada en prueba idónea, deberá comprobar la existencia de un cambio importante en las características del comercio del producto investigado, ya sea con el país sujeto a las medidas de defensa comercial o con terceros países. Lo anterior, debe ser resultado del efecto de una o varias de las practicas enunciadas infra y debe comprobarse perjuicio o menoscabo en los efectos correctores del derecho de defensa comercial vigente.
+Su existencia podrá ser analizada desde el inicio de la investigación que dio origen a la aplicación de la medida de defensa comercial y hasta la finalización de su implementación.

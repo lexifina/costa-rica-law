@@ -1,0 +1,2 @@
+Artículo 21º.- Resolución final. Una vez recibido el informe recomendativo y el expediente, el Ministro (a) del MEIC, contará con un plazo de 30 días hábiles para emitir la resolución donde resuelva el fondo del asunto.
+En el caso de que el Jerarca decidiera apartarse del informe técnico de la AI, deberá justificar técnicamente su decisión, para lo cual considerará las pruebas que se encuentren en el expediente administrativo llevado al efecto.

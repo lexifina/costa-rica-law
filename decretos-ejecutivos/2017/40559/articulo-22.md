@@ -1,0 +1,1 @@
+Artículo 22º.- Recursos. Contra la resolución que ordena la ampliación o no de las medidas vigentes por elusión cabrá el recurso de reconsideración (Revocatoria) ante el Superior Jerárquico, conforme a la Ley General de la Administración Pública costarricense.

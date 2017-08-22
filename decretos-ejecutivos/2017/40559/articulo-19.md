@@ -1,0 +1,2 @@
+Artículo 19º.- Audiencia. Junto con el informe de hechos esenciales indicado supra y con 15 días calendario de anticipación, se convocará a las partes interesadas a una audiencia oral y privada.
+La audiencia tendrá como objetivo conceder a las partes interesadas la oportunidad de interrogar o refutar oralmente a sus contrapartes en relación con la información y pruebas presentadas a la AI, permitiendo a esta y a las otras partes interesadas solicitar explicaciones adicionales o aclaraciones específicas. Con la audiencia concluirá el periodo de prueba.
