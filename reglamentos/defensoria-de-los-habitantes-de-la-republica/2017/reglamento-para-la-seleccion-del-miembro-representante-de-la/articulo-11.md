@@ -1,0 +1,1 @@
+Artículo 11.—Plazo de nombramiento. El plazo de nombramiento será de 3 años de conformidad con lo establecido en el artículo 36 de la Ley Reguladora de Investigación Biomédica, el cual regirá a partir de la firmeza de la designación efectuada por la o el Defensor de los Habitantes, según los términos establecidos en el artículo anterior.

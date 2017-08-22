@@ -1,0 +1,2 @@
+Artículo 12.—Recurso de Reconsideración. La designación del miembro representante de la comunidad y su suplente efectuada por la o el Defensor de los Habitantes tendrá recurso de reconsideración dentro del plazo de 8 días hábiles posterior a la notificación a cada una de las y los participantes.
+Igualmente cabrá recurso de reconsideración con el mismo plazo indicado en el párrafo anterior, contra el acto que inadmita o descarte la postulación de un o una participante por falta de requisitos durante la fase preliminar de recepción de requisitos.

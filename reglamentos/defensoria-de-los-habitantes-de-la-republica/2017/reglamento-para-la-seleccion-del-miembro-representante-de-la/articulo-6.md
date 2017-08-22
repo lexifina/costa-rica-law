@@ -1,0 +1,5 @@
+CAPÍTULO III
+Procedimiento de Selección
+Artículo 6º—Conformación de Comisión Institucional. Con el fin de conducir el procedimiento de selección del miembro representante de la comunidad y atender todas las incidencias que de éste pudieran derivarse, la Defensoría de los Habitantes conformará una comisión tripartita con funcionarios institucionales, de los cuales uno de ellos pertenecerá a la Dirección de Calidad de Vida, uno de la Dirección de Protección Especial y un miembro de libre selección por parte del o la Defensora de los Habitantes.
+Sin menoscabo de las potestades atribuidas a la comisión, ésta podrá disponer y requerir el criterio o asesoría de expertos, tanto a nivel interno institucional como externo, en las materias que así lo estime necesario en aras de cumplir a cabalidad con las funciones que le son exclusivas.
+La comisión será presidida por un presidente, electo entre sus miembros, quienes adicionalmente deberán designar al miembro encargado de conformar y custodiar debidamente el expediente administrativo donde reposarán todos los antecedentes y actuaciones del procedimiento a su cargo.
