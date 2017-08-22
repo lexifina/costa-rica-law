@@ -1,7 +1,8 @@
 Artículo 3º—Definiciones y abreviaturas:
 Para efectos del presente reglamento se entenderá por:
 a) Accidente de tránsito: Hecho necesariamente súbito y físicamente violento en el que participa directamente el vehículo de la Municipalidad y mediante el cual puede causarse daño o destrucción a las cosas, lesión o muerte a las personas.
-b) Asignación: Declaración formal por escrito que hace el Alcalde Municipal, mediante la cual se distribuyen los vehículos propiedad de la Municipalidad a las diferentes unidades administrativas; y la que realiza el Concejo Municipal respecto del vehículo discrecional del Alcalde.
+b) Asignación: Declaración formal por escrito que hace el Alcalde Municipal, mediante la cual se distribuyen los vehículos propiedad de la Municipalidad a las diferentes unidades administrativas; y
+(Así reformado el inciso anterior en sesión N° 66 del 22 de agosto de 2017)
 c) Conductor: Funcionario quien debidamente autorizado por la jefatura respectiva, conduce un vehículo municipal, aunque no se encuentre nombrado en ese puesto, y que cumpla con lo establecido en los artículos 16 y 17 del presente Reglamento.
 d) Boleta de solicitud y autorización de uso de vehículos: Boleta mediante la cual el jefe respectivo, autoriza con su firma, la conducción de un vehículo municipal de uso oficial.
 e) Funcionario: Persona física que presta a la Municipalidad, en propiedad o en forma interina, sus servicios materiales y/o intelectuales, a nombre y por cuenta de ésta, en virtud de un acto válido y de eficaz investidura.

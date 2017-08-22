@@ -1,2 +1,1 @@
-Artículo 33.—
-Rige a partir de su publicación en el Diario Oficial La Gaceta. Según acuerdo municipal del Acta extraordinaria Nº 15-2012, verificada por la Municipalidad de Acosta.
+Artículo 33.—(Mediante sesión N° 66 del 22 de agosto de 2017, se ordenó derogar el artículo 5 original y correr la numeración de los restante numerales por lo que el texto de este artículo debe de ser consultado en el numeral 32)

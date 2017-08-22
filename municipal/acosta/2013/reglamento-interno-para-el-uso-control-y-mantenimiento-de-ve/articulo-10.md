@@ -1,3 +1,4 @@
-Artículo 10.—Solicitudes de uso:
-Las solicitudes para utilizar los vehículos deuso administrativo deberán presentarse ante la jefatura del Área respectiva. Para lo anterior, se utilizará la boleta denominada Solicitud y Autorización de Uso de Vehículos, la cual deberá ser firmada por el funcionario que utilizará el vehículo.
-Dicha boleta contendrá como mínimo la siguiente información: nombre del solicitante, número de cédula, fecha de la solicitud, marca y número de placa del vehículo, unidad a la que esta asignado, lugar de destino, motivo del viaje, número y nombre de los acompañantes, tiempo estimado de duración, kilometraje de salida y de regreso, hora de salida y de regreso.
+Artículo 10.— De la custodia de vehículos:
+Todos los vehículos, deben ser guardados al final de la jornada en las instalaciones que la Municipalidad ha destinado para ese fin, salvo situaciones especiales debidamente autorizadas o casos de fuerza mayor y justificados ante la jefatura.
+(Así reformado en sesión N° 66 del 22 de agosto de 2017)
+(Mediante sesión N° 66 del 22 de agosto de 2017, se ordenó derogar el artículo 5 original y correr la numeración de los restante numerales por lo que artículo 11 paso a ser el numero 10)

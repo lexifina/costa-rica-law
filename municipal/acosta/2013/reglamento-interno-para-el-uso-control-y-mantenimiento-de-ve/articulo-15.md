@@ -1,2 +1,5 @@
-Artículo 15.—De la tarjeta o registro de mantenimiento:
-Esta tarjeta será de uso de cada una de las Áreas con vehículos asignados. En ella se detallará: placa del vehículo, tipo de mantenimiento (preventivo o correctivo), hora y fecha de entrada a mantenimiento, hora y fecha de salida, kilometraje al entrar y kilometraje al salir, detalle del servicio o reparación, descripción de partes, repuestos, aceites, grasas lubricantes y otros de obra, costo de los repuestos y materiales, y firma del funcionario responsable de recibir el servicio.
+CAPÍTULO V
+Deberes y prohibiciones
+Artículo 15.—Personas autorizadas:
+Únicamente podrán conducir vehículos municipales los funcionarios debidamente autorizados por las Áreas correspondientes, a solicitud de las dependencias. Queda terminantemente prohibido conducir un vehículo sin la respectiva autorización.
+(Mediante sesión N° 66 del 22 de agosto de 2017, se ordenó derogar el artículo 5 original y correr la numeración de los restante numerales por lo que artículo 16 paso a ser el numero 15)

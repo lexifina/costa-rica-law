@@ -14,3 +14,4 @@ Reglamento Interno para el uso, control y mantenimiento de Vehículos de la Muni
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-02-12 | la propia norma |
+| 2 | 2017-08-22 | Reglamento municipal 66 (2017-08-22) |

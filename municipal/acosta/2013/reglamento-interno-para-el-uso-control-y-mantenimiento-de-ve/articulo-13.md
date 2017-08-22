@@ -1,2 +1,3 @@
-Artículo 13.—De las tarjetas o registros de control:
-Todo vehículo municipal contará con dos tarjetas o registros: una denominada “control de kilometraje y combustible”, y otra denominada “control de mantenimiento”.
+Artículo 13.—De la tarjeta o registro de control de kilometraje y combustible:
+Esta deberá ser completada por el funcionario a cargo del vehículo, deberá llenarla cada vez que se le suministra combustible al vehículo y contendrá al menos la siguiente información: placa del vehículo, tipo de combustible, fecha, kilómetros al momento del suministro del combustible, cantidad de combustible suministrado (respaldado con el respectivo tiquete), costo del combustible, número de orden, número de factura y firma responsable.
+(Mediante sesión N° 66 del 22 de agosto de 2017, se ordenó derogar el artículo 5 original y correr la numeración de los restante numerales por lo que artículo 14 paso a ser el numero 13)
