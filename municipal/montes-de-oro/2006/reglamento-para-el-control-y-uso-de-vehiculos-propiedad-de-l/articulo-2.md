@@ -1,3 +1,3 @@
-Artículo 2º—Los vehículos de la Municipalidad de Montes de Oro, se clasificarán en:
-a) Vehículos de uso discrecional: Este vehículo es el utilizado por al Alcalde Municipal, quién lo usará, bajo su estricto criterio, y lo operaría en los mismos términos y condiciones que lo permite la Ley Nº 7331, denominada Ley de Transito Por Vías Publicas Terrestres, en su artículo 225.
-b) Vehículos de uso administrativo general: son de uso para las actividades que involucren al personal y al Concejo de la Municipalidad. Deberán estar identificados con placas de Servicio Municipal (SM). Todos estarán bajo la responsabilidad del Alcalde, o persona que este designe y operarán bajo los siguientes términos.
+Artículo 2°—Los vehículos de la Municipalidad de Montes de Oro, se clasificarán en:
+Vehículos de uso administrativo general: son de uso para las actividades que involucren al personal y al Concejo de la Municipalidad. Deberán estar identificados con placas de Servicio Municipal (SM), y debidamente rotulado, como lo dispone el artículo 236 de la Ley 9078. Todos estarán bajo la responsabilidad del Alcalde, o persona que este designe y operarán bajo los siguientes términos.
+(Así reformado mediante sesión ordinaria N° 69-17 del 22 de agosto del 2017)

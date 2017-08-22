@@ -14,3 +14,4 @@ Reglamento para el control y uso de vehículos propiedad de la Municipalidad de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-11 | la propia norma |
+| 2 | 2017-08-22 | Reglamento municipal 69 (2017-08-22) |
