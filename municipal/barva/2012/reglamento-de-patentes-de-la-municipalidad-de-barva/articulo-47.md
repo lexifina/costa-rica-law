@@ -1,0 +1,1 @@
+Artículo 47.-Las notificaciones del Departamento de Rentas y Cobranzas que ordenen la caducidad de la licencia por falta de pago, no tendrá recurso alguno y su tramitación no admitirá prueba en contrario salvo la excepción del pago.

@@ -1,0 +1,1 @@
+Artículo 34.-La solicitud de traspasos de patentes de licores, se presentaran al departamento de Rentas y Cobranzas( debidamente protocolizado ante notario público habilitado), para que sea este el que los remita al Concejo Municipal para su aprobación, una vez firme el acuerdo municipal donde se aprueba el traspaso será ejecutado el mismo por la jefatura de dicho departamento.

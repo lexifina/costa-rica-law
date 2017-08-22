@@ -1,0 +1,4 @@
+Artículo 52.-Permisos particulares: Además de lo señalado supra (Artículos 30 y siguientes) para casos de actividades específicas el interesado deberá aportar:
+a) Sí en la actividad van a operar carruseles: Deberán adjuntar copia del original debidamente certificada por notario público de la póliza respectiva extendida por el INS.
+b) En caso de uso de pólvora: Aportar autorización del Departamento de Armas y Explosivos del Ministerio de Seguridad Pública y el visto bueno del Ministerio de Salud.
+c) Para actividades de ciclismo, cuadraciclos, maratónicas, desfile de chapulines, tope o similar, además de los requisitos señalados, cuando corresponda deben contar con el permiso de la Dirección de Tránsito Regional de Heredia. Además, deberán adjuntar copia del original debidamente certificada por notario público de la póliza respectiva extendida por el INS.

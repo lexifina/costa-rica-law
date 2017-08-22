@@ -1,0 +1,1 @@
+Artículo 78.-Frente a las resoluciones del Departamento de Rentas y Cobranzas, cabrán los recursos ordinarios de revocatoria y apelación ante el Concejo Municipal, de conformidad con el artículo 162 del Código Municipal y deberán estar fundadas en motivos de legalidad, oportunidad y no suspenderá la ejecución del acto que se recurre.

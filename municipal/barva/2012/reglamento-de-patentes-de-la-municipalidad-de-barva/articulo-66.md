@@ -1,0 +1,1 @@
+Artículo 66.-Toda la normativa establecida en este Reglamento será de aplicación tanto para quien sea titular de la licencia (patente) municipal de licores nacionales, extranjeros, patente especial turística, como también, al propietario, administrador, arrendatario o responsable del establecimiento.

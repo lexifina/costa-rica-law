@@ -1,0 +1,4 @@
+De la explotación, traspasos, traslados y renuncia de licencia (patentes) de licores
+Artículo 33.-Para el traspaso, traslado, ampliación o renuncia a la explotación de la patente de licores, el interesado deberá contar con el permiso municipal correspondiente y cumplir con los siguientes requisitos:
+a) Formulario de solicitud: El cual debe ser firmado por el dueño de la propiedad o local comercial y por el solicitante de la licencia cumpliendo con todos los requisitos de legitimación y demás requisitos generales. La información declarada por los firmantes en el formulario tiene carácter de declaración jurada, por lo que si los datos son falsos, la Municipalidad por medio del Departamento de Rentas iniciará la acción penal correspondiente, según el artículo 311 del Código Penal y sus reformas.
+b) Cumplir con los requisitos que establece los artículos 30 y siguientes de este Reglamento para la solicitud de licencias comerciales.

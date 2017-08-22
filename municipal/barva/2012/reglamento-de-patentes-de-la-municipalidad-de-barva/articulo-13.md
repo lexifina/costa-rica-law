@@ -1,0 +1,1 @@
+Artículo 13.-Régimen de adquisición y traspaso de las patentes municipales. En razón de lo dicho en el artículo anterior las patentes municipales no son susceptibles de embargo, ni de apropiación mediante remate o cualquier otro procedimiento judicial que no esté permitido en la ley, a excepción de las patentes de licores las cuales se rigen por una ley especial.

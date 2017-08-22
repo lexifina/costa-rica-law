@@ -1,0 +1,3 @@
+Artículo 16.-Son derechos de los contribuyentes:
+1) Ejercer la actividad para la que se ha dado permiso en los términos exactos en que la resolución administrativa haya otorgado ese permiso.
+2) Oponer a terceros el derecho que le fue otorgado para la explotación de la actividad correspondiente. Tratándose de materia de derecho privado, la jefatura del departamento de Rentas y Cobranzas no se hace responsable por cualquier reclamo o derecho de tercero que pueda ser lesionado con el ejercicio de esta actividad, siempre y cuando ésta cumpla con los requisitos de ley, en cuyo caso el reclamo podrá ser gestionado ante la instancia correspondiente.

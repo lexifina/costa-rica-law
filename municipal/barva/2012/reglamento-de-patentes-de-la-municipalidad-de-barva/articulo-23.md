@@ -1,0 +1,7 @@
+Artículo 23.-Sin perjuicio que la Administración Municipal o el Concejo Municipal establezcan más funciones, serán potestades del departamento de Rentas y Cobranzas:
+1) Conocer, aprobar, denegar o condicionar las licencias (patentes) municipales comerciales conforme lo establece la Ley y este Reglamento, normativa supletoria y conexa.
+2) Verificar los datos que el interesado le proporcione como requisito para solicitar la licencia según lo establece la Ley y este Reglamento, normativa supletoria y conexa.
+3) Calificar, determinar de oficio y con fundamento al aumento del costo de vida o recalificar el monto del importe según lo establece la Ley y este Reglamento, la normativa supletoria y conexa, sin que con ello se deje de aplicar el cobro contemplado en la Ley N° 7288 sobre presentación tardía o no presentación en los casos que proceda y la generación de intereses moratorios que establecen el Código Municipal, el Código de Normas y procedimientos Tributarios.
+4) Proceder a la suspensión provisional, cancelación y/o rehabilitación de la licencia en los casos que se establecen en la Ley, este Reglamento y en la normativa supletoria y conexa.
+5) Establecer las sanciones conforme a lo que establece la Ley y este Reglamento, normativa supletoria y conexa.
+6) Aprobar, denegar y/o condicionar las renuncias, retiros, traspasos, traslados, cambios o ampliaciones de la actividad lucrativa de licencias (patentes) municipales conforme lo establece la Ley y este Reglamento, normativa supletoria y conexa.

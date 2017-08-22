@@ -1,0 +1,2 @@
+De los derechos y obligaciones del patentado
+Artículo 15.-La Municipalidad Mediante la autorización formal de la Corporación otorga al patentado la facultad de ejercer la explotación de las actividades lucrativas necesarias para el desarrollo del cantón. Mediante el certificado que contiene el derecho de patente, el patentado adquiere derechos y obligaciones de acuerdo a la ley los cuales deberá ejercer y cumplir fielmente bajo pena de ser sancionado de acuerdo a este Reglamento y las normas vigentes en la nación.

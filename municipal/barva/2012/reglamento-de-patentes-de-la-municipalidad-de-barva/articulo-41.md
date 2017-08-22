@@ -1,0 +1,1 @@
+Artículo 41.-Cuando las leyes exoneren del pago del impuesto de patentes municipales o la actividad se realice sin fines de lucro, los interesados deberán cumplir con las demás exigencias y requisitos para el ejercicio de las actividades establecidas en este reglamento.

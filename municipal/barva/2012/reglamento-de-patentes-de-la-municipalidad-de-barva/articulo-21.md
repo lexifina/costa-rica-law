@@ -1,0 +1,2 @@
+De las unidades administrativas
+Artículo 21.-El Departamento de Rentas y Cobranzas. Es la instancia administrativa que debe recibir, conocer, custodiar y resolver en primera instancia, tanto las solicitudes de licencias para establecimientos comerciales, como las ampliaciones, los traslados y traspasos de estas, así como de patentes de licores, solicitudes de explotación de estas últimas, y toda aquellos asuntos y materias que se relacionen con licencias comerciales, patentes de licores y licencias o permisos de actividades masivas o espectáculos públicos.

@@ -1,0 +1,3 @@
+De las licencias
+Artículo 4º-Exigencia de Licencia o Patente y Obligación de Pago. Para ejercer cualquier actividad lucrativa los interesados obligatoriamente deberán contar con la licencia y patente municipal respectiva, la cual se obtendrá mediante el cumplimiento de los requisitos establecidos en la Ley Nº 7288 y este reglamento, Ley de Construcciones y su Reglamento, Ley General de Salud, los Decretos del Ministerio de Salud y la Ley 8495 y así como otras normativas conexas.
+El ejercicio de cualquier actividad lucrativa generará la obligación del patentado de pagar a favor de la Municipalidad, el impuesto de patente de conformidad con la ley vigente.
