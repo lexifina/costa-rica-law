@@ -1,3 +1,2 @@
-Artículo 36
-Durante un proceso administrativo de carácter disciplinario, el informe de relación de hechos u otro informe elaborado por la Auditoría Interna, deben ser considerados por el Órgano Director como elemento fundamental de apoyo en la investigación de hechos que pudieran ser contrarios al ordenamiento jurídico, para que éste establezca las respectivas sanciones a los funcionarios que se presuman responsables.
-Esto, sin que el Órgano Colegiado renuncie a sus potestades legales de establecer por sus propios medios, la verdad real de los hechos.
+Artículo 36.—La Auditoría Interna dispondrá de un programa de seguimiento de las recomendaciones aceptadas por la administración activa, que hayan sido formuladas en sus memorandos u oficios e informes de auditoría o estudios especiales de auditoría y en los de las firmas independientes de contadores públicos autorizados, con la finalidad de verificar si esas recomendaciones aceptadas han sido puestas en práctica.
+También deberá dársele seguimiento a las disposiciones y recomendaciones emitidas por la Contraloría General de la República y demás instituciones de control y fiscalización que correspondan.

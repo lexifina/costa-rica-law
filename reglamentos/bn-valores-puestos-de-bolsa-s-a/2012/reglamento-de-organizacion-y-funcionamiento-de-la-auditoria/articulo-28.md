@@ -1,2 +1,1 @@
-Artículo 28
-Será estrictamente confidencial la información que el Auditor Interno o cualquiera de sus subalternos obtenga en el ejercicio de sus funciones. Sin embargo, esta confidencialidad no se aplicará a los requerimientos de la Contraloría General de la República en el ejercicio de su competencia fiscalizadora, los de la Junta Directiva de BN Valores Puesto de Bolsa S. A., la Superintendencia General de Valores o cuando haya solicitud expresa de la autoridad legalmente competente.
+Artículo 28.—La Auditoría Interna tendrá las prohibiciones establecidas en el artículo 34 de la Ley General de Control Interno.

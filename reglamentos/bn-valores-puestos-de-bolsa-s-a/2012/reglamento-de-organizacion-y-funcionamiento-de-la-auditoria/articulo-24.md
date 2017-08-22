@@ -1,2 +1,1 @@
-Artículo 24
-La Auditoría Interna en el ámbito de sus competencias, podrá realizar auditorías, inspecciones, fiscalizaciones, exámenes, estudios, análisis e investigaciones de todo tipo y de cualquier naturaleza en el ente sujeto a su control para verificar la legalidad, exactitud, veracidad y corrección de sus operaciones, así como para evaluar el cumplimiento y los resultados de los planes y las acciones administrativas, la eficacia, la eficiencia, la economía, la calidad e impacto de su gestión.
+Artículo 24.—La Auditoría Interna tendrá las potestades definidas en el artículo 33 de la Ley General del Control Interno así como aquéllas que determine la normativa emitida por la Contraloría General de la República.

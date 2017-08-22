@@ -1,3 +1,3 @@
-Artículo 40
-La Auditoría Interna contará con la asesoría legal de la Dirección Jurídica del Banco Nacional de Costa Rica a fin de establecer adecuadamente su ámbito de acción y atender sus necesidades de orden jurídico.
-La Auditoría Interna podrá incorporar profesionales o técnicos de diferentes disciplinas, funcionarios o no de la institución, para que lleven a cabo labores de su especialidad en apoyo a las auditorías que se realicen.
+CAPÍTULO IV
+Relaciones y coordinaciones
+Artículo 40.—El Auditor Interno tendrá la obligación de establecer y regular a lo interno de la auditoría, las pautas principales sobre las relaciones y coordinaciones de los funcionarios de su unidad con los auditados.

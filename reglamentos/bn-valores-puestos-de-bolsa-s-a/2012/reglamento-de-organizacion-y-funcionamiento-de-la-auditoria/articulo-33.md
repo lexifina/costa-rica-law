@@ -1,5 +1,1 @@
-Artículo 33
-Cuando los informes de auditoría contengan recomendaciones dirigidas a los titulares subordinados, se procederá de acuerdo con el artículo 36 de la Ley General de Control Interno.
-En caso de contener recomendaciones dirigidas al jerarca, el proceder se realizará de conformidad con el artículo 37 de esa Ley.
-El incumplimiento de los plazos señalados será causal de responsabilidad administrativa conforme lo dispuesto en los artículos 39 y 40 de la Ley General de Control de Interno.
-En caso que se presenten discrepancias, se procederá con lo establecido en el artículo 38 de la Ley General de Control de Interno.
+Artículo 33.—El texto de los informes de auditoría o estudio especial de auditoría constará, como principal división, de los cuatro siguientes capítulos: introducción, comentarios u observaciones, conclusiones y recomendaciones, que se subdividirán en secciones de acuerdo con las necesidades de exposición. Sin embargo los memorandos no necesariamente deben ordenarse de acuerdo con la división antes mencionada, siempre y cuando tal excepción no vaya en demérito de la concisión, exactitud, objetividad y claridad de la información.

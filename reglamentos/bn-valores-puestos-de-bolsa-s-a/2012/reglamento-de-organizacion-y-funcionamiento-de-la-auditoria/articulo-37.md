@@ -1,2 +1,1 @@
-Artículo 37
-Los funcionarios de auditoría responsables de la investigación y confección del informe de relación de hechos u otro informe, podrán comparecer en las audiencias del Órgano Director en su carácter exclusivo de experto calificado y únicamente será cuestionado, sobre las dudas que del informe puedan surgir en el curso del procedimiento administrativo en el ámbito de la materia en investigación.
+Artículo 37.—La Auditoría Interna durante el desarrollo de su trabajo considerará los siguientes aspectos para el procesamiento de la información: las cualidades de la información, análisis y evaluación, registros, acceso, custodia y supervisión del trabajo.

@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría Interna de BN Valo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-02-11 | la propia norma |
+| 2 | 2017-08-22 | Reglamento 320 (2017-08-22) |

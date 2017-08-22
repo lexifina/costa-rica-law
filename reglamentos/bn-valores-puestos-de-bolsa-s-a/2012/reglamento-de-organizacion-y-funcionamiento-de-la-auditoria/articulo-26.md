@@ -1,2 +1,1 @@
-Artículo 26
-La Auditoría Interna tendrá las prohibiciones establecidas en el artículo 34 de la Ley General de Control Interno.
+Artículo 26.—El objeto fundamental de la Auditoría Interna de BN Valores Puesto de Bolsa, S. A., es realizar una actividad de asesoría que garantice una adecuada y eficiente administración de la Hacienda Pública, que contribuya a alcanzar los objetivos institucionales, mediante la práctica de un enfoque sistémico y profesional para fiscalizar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección; proporcionándole en forma oportuna información, análisis, evaluación, comentarios y recomendaciones pertinentes sobre las operaciones que examina en forma posterior.

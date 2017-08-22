@@ -1,3 +1,1 @@
-Artículo 34
-La Auditoría Interna dispondrá de un programa de seguimiento de las recomendaciones aceptadas por la administración activa, que hayan sido formuladas en sus memorandos u oficios e informes de auditoría o estudios especiales de auditoría y en los de las firmas independientes de contadores públicos autorizados, con la finalidad de verificar si esas recomendaciones aceptadas han sido puestas en práctica.
-También deberá dársele seguimiento a las disposiciones y recomendaciones emitidas por la Contraloría General de la República y demás instituciones de control y fiscalización que correspondan.
+Artículo 34.—Los hallazgos obtenidos en el transcurso de la auditoría o estudio especial de auditoría deben ser comentados con el jerarca o titulares subordinados responsables, de previo a emitir las conclusiones y recomendaciones definitivas, a efecto de obtener de ellos sus puntos de vista, opiniones y cualquier acción correctiva que sea necesaria.

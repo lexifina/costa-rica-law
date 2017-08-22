@@ -1,4 +1,1 @@
-CAPÍTULO IV
-RELACIONES Y COORDINACIONES
-Artículo 38
-El Auditor Interno tendrá la obligación de establecer y regular a lo interno de la auditoría, las pautas principales sobre las relaciones y coordinaciones de los funcionarios de su unidad con los auditados.
+Artículo 38.—Durante un proceso administrativo de carácter disciplinario, el informe de relación de hechos u otro informe elaborado por la Auditoría Interna, deben ser considerados por el Órgano Director como elemento fundamental de apoyo en la investigación de hechos que pudieran ser contrarios al ordenamiento jurídico, para que éste establezca las respectivas sanciones a los funcionarios que se presuman responsables. Esto, sin que el Órgano Colegiado renuncie a sus potestades legales de establecer por sus propios medios, la verdad real de los hechos.
