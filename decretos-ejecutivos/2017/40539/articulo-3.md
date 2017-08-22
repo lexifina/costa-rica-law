@@ -1,0 +1,1 @@
+Artículo 3.- Todas las instancias públicas deberán garantizar la promoción del uso del condón, masculino y femenino y de lubricantes a base de agua, en todo el territorio nacional como parte del derecho a la salud sexual y reproductiva de la población.

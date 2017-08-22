@@ -1,0 +1,1 @@
+Artículo 2.- La Caja Costarricense de Seguro Social C.C.S.S. garantizará la existencia y accesibilidad de condones masculinos y femeninos y lubricantes a base de agua, así corno de personal capacitado para ofrecer estos insumos a los y las usuarias que lo demanden.

@@ -1,0 +1,1 @@
+Artículo 5.- El Estado costarricense, en este día conmemorativo, deberá garantizar gratuitamente la distribución de condones masculinos y femeninos y lubricantes a base de agua, a las personas que cuenten o no con seguro social.

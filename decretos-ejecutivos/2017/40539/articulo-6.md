@@ -1,0 +1,1 @@
+Artículo 6.- El Ministerio de Salud coordinará con todas las instituciones y organizaciones de la sociedad civil organizada, acciones de divulgación y capacitación sobre el uso correcto de los condones, masculinos y femeninos y de lubricantes a base de agua, y la promoción de los mismos garantizando la información científica y clara.
