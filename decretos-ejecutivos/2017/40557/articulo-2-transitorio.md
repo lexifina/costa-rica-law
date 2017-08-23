@@ -1,0 +1,2 @@
+TRANSITORIO II
+En un plazo de 6 meses a partir de la publicación del presente reglamento los Colegios Profesionales contemplados en la Ley N°8412 del 22 de abril del 2004 “Ley Orgánica del Colegio de Ingenieros Químicos y Profesionales Afines y Ley Orgánica del Colegio de Químicos de Costa Rica”, pondrán a disposición del Ministerio de Salud, por medios electrónicos, el listado de empresas y laboratorios inscritos en sus respectivos colegios, a fin que el Ministerio de Salud verifique que cuenten con Permiso Sanitario de Funcionamiento.

@@ -1,0 +1,2 @@
+Artículo 19°—Denuncias.
+Al existir una denuncia ambiental relacionada con las emisiones atmosféricas, el Ministerio de Salud deberá contratar, previa evaluación de la denuncia, mediciones de emisiones de los hornos cementeros a fin de corroborar su cumplimiento con el presente reglamento. En el caso de atención de denuncias el Ministerio de Salud deberá prever anualmente los fondos necesarios para este fin.
