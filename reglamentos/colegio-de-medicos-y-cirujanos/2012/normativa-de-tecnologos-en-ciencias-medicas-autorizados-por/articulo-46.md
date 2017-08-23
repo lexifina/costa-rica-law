@@ -1,1 +1,0 @@
-Artículo 46.—De la defunción. Podrán los familiares de primer grado de consanguinidad o afinidad que así lo demuestren conforme a lo establecido en la Normativa del Beneficio de Gastos Funerarios solicitar ayuda económica por los gastos funerarios, de sepelio o incineración de los agremiados al Colegio de Médicos en el momento de su fallecimiento.

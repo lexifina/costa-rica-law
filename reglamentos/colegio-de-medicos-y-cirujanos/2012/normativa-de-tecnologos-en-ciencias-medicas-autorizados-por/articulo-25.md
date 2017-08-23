@@ -1,1 +1,0 @@
-Artículo 25.—De los Delegados. Son Tecnólogos en Ciencias Médicas activos, nombrados ad honorem por el Comité Coordinador con representatividad en todo el territorio nacional, que velarán por la correcta transmisión y difusión de la información (proyectos, actividades y asuntos relevantes) a todos los Tecnólogos autorizados por el Colegio de Médicos de zonas rurales o vecinas.

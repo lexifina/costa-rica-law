@@ -1,1 +1,0 @@
-Artículo 36.—Aprobación de Informes. Los informes una vez aprobados por Asamblea General deberán ser presentados a la Junta de Gobierno dentro de los siguientes ocho días hábiles para su respectiva aprobación.

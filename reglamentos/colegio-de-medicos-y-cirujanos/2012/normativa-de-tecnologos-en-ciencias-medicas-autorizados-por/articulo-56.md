@@ -1,1 +1,0 @@
-Artículo 56.—Norma Supletoria. Todos aquellos aspectos que no estén cubiertos por esta Normativa y que en algún momento requieran alguna acción, ésta se apegará a la normas generales y especificas del Colegio de Médicos en primera instancia, así como también serán de aplicación por orden jerárquico las Leyes y Reglamentos en atención al ejercicio ilegal de la profesión.

@@ -1,1 +1,0 @@
-Artículo 38.—Votos Nulos. Serán nulos los votos que presenten irregularidades tales como ilegibilidad, confusión, votación múltiple, voto en blanco y los que presenten cualquier alteración en la intención del voto.

@@ -1,2 +1,0 @@
-Artículo 23.—Del Fiscal. Es un órgano autónomo, que velará porque todas las decisiones emanadas del Comité Coordinador sean apegadas a derecho y a las normas jurídicas vigentes. Su nombramiento tendrá una vigencia en sus funciones de dos años y se elegirá en el mismo acto en que se eligen: el Vicepresidente, Vocal I y Vocal III. Tendrá voz pero no voto, por lo anterior el Fiscal no forma parte del Comité Coordinador.
-Para ser electo Fiscal se requieren los mismos requisitos que para ser miembro del Comité Coordinador.
