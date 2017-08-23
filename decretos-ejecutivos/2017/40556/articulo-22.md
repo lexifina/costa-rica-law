@@ -1,0 +1,2 @@
+Artículo 22°- Visión del Sistema Nacional de Vigilancia de la Salud Automatizado.
+El Sistema Nacional de Vigilancia de la Salud automatizado, será un medio estratégico para el análisis de situación, gestión, planificación, definición de políticas que propicie la toma de decisiones basadas en hechos. Con información de cobertura nacional, segura, confiable, oportuna y de fácil acceso de acuerdo a los roles establecidos.

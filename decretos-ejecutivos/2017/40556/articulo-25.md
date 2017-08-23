@@ -1,0 +1,2 @@
+Artículo 25°- De la cobertura y alcance del Sistema de Información Nacional de Vigilancia de la Salud Automatizado.
+El sistema cubrirá todas las instituciones, organizaciones, entes nacionales públicos y privados e internacionales que aporten información referente a los determinantes y eventos de salud definidos por este reglamento, inclusive aquellos eventos o determinantes nuevos o de origen o causa desconocida que pongan en riesgo la salud de la población.

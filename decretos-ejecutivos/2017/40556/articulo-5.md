@@ -1,0 +1,2 @@
+Artículo 5°- Del Sistema Nacional de Vigilancia de la Salud.
+Se entiende como SINAVIS, al conjunto interrelacionado de actores sociales, que, bajo la conducción del Ministerio de Salud, participan en el proceso de selección, recopilación, integración, análisis y difusión de información sobre el estado de salud de la población, sus determinantes y tendencias. Lo anterior mediante, la aplicación de normas, protocolos y procedimientos estandarizados, a fin de contribuir a adoptar las medidas más apropiadas para proteger y mejorar la salud de la población.

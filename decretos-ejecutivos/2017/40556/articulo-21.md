@@ -1,0 +1,7 @@
+CAPÍTULO VI
+De la Organización y Funcionamiento del Sistema Nacional de Vigilancia de la
+Salud Automatizado (SINAVISA)
+Artículo 21°- Establecimiento del Sistema Nacional de Vigilancia de la Salud Automatizado.
+El Sistema Nacional de Vigilancia de la Salud Automatizado (SINAVISA) está conformado por los componentes del Sistema Nacional de Vigilancia de la Salud que se encuentran disponibles para reporte o ingreso vía electrónica, entre los que se encuentran tumores malignos, vacunas aplicadas o eventos de notificación inmediata correspondientes al grupo A de los eventos que se definen posteriormente en este mismo reglamento. Este sistema estará disponible 24 horas al día, siete días a la semana, y permitirá en muchos de los eventos más importantes que cualquier persona que deba hacer reportes sobre eventos de notificación obligatoria lo haga en tiempo real, vía web. Para el ingreso a este sistema para los responsables definidos de notificaciones dentro del sector salud, se asignarán de manera previa a una capacitación básica de su uso, usuarios y contraseñas por parte de la Dirección Vigilancia de la Salud.
+El Director de la Dirección de Vigilancia de la Salud del Ministerio de Salud es el responsable de este sistema automatizado.
+En el caso de entes notificadores que cuenten con otros sistemas que permitan realizar la transferencia de información al SINAVISA, deberán de cumplir con las condiciones técnicas establecidas por el Ministerio de Salud.

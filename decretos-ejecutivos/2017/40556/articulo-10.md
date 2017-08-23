@@ -1,0 +1,6 @@
+CAPÍTULO III
+De la Organización y Funcionamiento del Ministerio de Salud
+en el nivel nacional para la Vigilancia de la salud
+Artículo 10°- De la Dirección de Vigilancia de la Salud. La Dirección de Vigilancia de la Salud se ubica en el nivel central del Ministerio de Salud y depende organizativamente de la Dirección General de Salud.
+Su objetivo general consiste en conducir a nivel nacional la ejecución armoniosa de la Vigilancia de la Salud, comprendida como la función esencial en salud pública que permite obtener el permanente análisis epidemiológico del país y en los diferentes estratos geopolíticos, por medio de la identificación, cuantificación y monitoreo de las tendencias y patrones de los eventos y factores involucrados en el proceso salud/enfermedad, para facilitar la planificación en salud y la toma eficaz y eficiente de decisiones por las partes involucradas en la producción social de la salud.
+Es responsable de la producción de información oportuna y veraz sobre la situación de salud del país, que permita fundamentar la toma de decisiones para ejercer la rectoría en forma efectiva, eficiente y con enfoque de promoción - prevención, para garantizar la protección y mejoramiento del estado de salud de la población.

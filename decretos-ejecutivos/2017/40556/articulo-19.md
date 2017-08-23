@@ -1,0 +1,2 @@
+Artículo 19°- De las redes o equipos técnicos de Vigilancia de la Salud
+Constituyen una instancia de coordinación y articulación de los actores en los tres ámbitos de gestión, con el fin de que el accionar en materia de vigilancia de la salud se realice en forma armónica, sinérgica y coordinada, para evitar traslapes, omisiones o duplicidades. Será coordinada por el responsable del proceso de Vigilancia de la Salud en cada uno de los ámbitos de gestión del Ministerio de Salud.

@@ -1,0 +1,2 @@
+Artículo 51°- De la codificación de los eventos.
+Para la codificación de los eventos sujetos a vigilancia y según aplique, se deberá utilizar la Clasificación Internacional de Enfermedades vigente en el país y las demás clasificaciones que adopte oficialmente el Ministerio de Salud, excepto aquellos eventos que son de carácter sindrómico por lo que agrupan una serie de eventos y por lo tanto no tienen un código específico como por ejemplo las Infecciones Respiratorias Agudas Graves (IRAG) o la Enfermedad Tipo Influenza (ETI), entre otros.

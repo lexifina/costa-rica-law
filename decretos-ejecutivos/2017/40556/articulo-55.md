@@ -1,0 +1,6 @@
+CAPÍTULO X
+Del Centro Nacional de Enlace
+Artículo 55°- Sobre el Centro Nacional de Enlace
+El Reglamento Sanitario Internacional (RSI-2005), busca prevenir la propagación internacional de enfermedades, proteger contra esa propagación, controlarla y darle una respuesta de salud pública proporcionada y restringida a los riesgos para la salud pública, evitando al mismo tiempo las interferencias innecesarias con el tráfico y el comercio internacional. Además sirve de base jurídica a importantes documentos sanitarios relativos a los viajes y al transporte internacional, así como para la protección sanitaria de los usuarios de aeropuertos, puertos internacionales y pasos fronterizos terrestres.
+Complementario a lo anterior dicta la creación de un Centro de coordinación directa por país, el cual deberá de fungir como instancia enlace en todo momento, para recibir las comunicaciones de los puntos de contacto de la OMS para el RSI, con el fin de cumplir con los objetivos de dicho reglamento. Por tal razón, se crea el Centro Nacional de Enlace constituido por diferentes instituciones que tienen un rol primario en el cumplimiento de los objetivos del RSI.
+Su sitio habitual de reunión será la Dirección de Vigilancia de la Salud del Ministerio de Salud, y su coordinador(a) será el Punto Focal para el RSI de Costa Rica, quien será funcionario(a) de dicha Dirección.

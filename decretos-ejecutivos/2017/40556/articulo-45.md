@@ -1,0 +1,2 @@
+Artículo 45°- De la notificación negativa.
+Todo ente notificador que no haya detectado eventos que están eliminados o en proceso de eliminación tales como polio, sarampión, rubeola, síndrome de rubeola congénita, tétano y tétano neonatal, malaria y filariasis deberá realizar la notificación negativa al Ministerio de Salud, los días lunes de cada semana, en el formato Excel de notificación negativa. Dado por el Ministerio de Salud.

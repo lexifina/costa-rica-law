@@ -1,0 +1,2 @@
+Artículo 26°- Protocolos informáticos: para la importación de datos al Sistema de Información Nacional de Vigilancia de la Salud Automatizado
+Todas las instituciones públicas y privadas deberán cumplir con lo establecido por el Ministerio de Salud, en sus procedimientos y protocolos nacionales de transferencia de datos que serán cargados al SINAVISA, adjuntos en los anexos de este reglamento. En los casos donde no exista la importación de datos, se digitará la información directamente en los módulos del SINAVISA.
