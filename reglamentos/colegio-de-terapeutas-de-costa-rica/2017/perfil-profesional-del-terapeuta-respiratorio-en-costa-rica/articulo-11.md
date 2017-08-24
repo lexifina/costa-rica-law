@@ -1,0 +1,3 @@
+Artículo 11.—Área de rehabilitación cardiopulmonar:
+1. Organizar, diseñar, desarrollar y evaluar programas multidisciplinarios intra y extrahospitalarios, tales como rehabilitación cardiopulmonar, programas de cesación de fumado, programas de oxigenoterapia en el hogar, programas de ventilación mecánica domiciliaria, programa de acondicionamiento respiratorio, programas de pacientes con vía aérea artificial en el hogar, programas de educación de pacientes que utilizan inhaladores u otro programa afín a la profesión.
+2. Desarrollar programas de autocuidado para pacientes con enfermedad cardiorrespiratoria en el hogar.

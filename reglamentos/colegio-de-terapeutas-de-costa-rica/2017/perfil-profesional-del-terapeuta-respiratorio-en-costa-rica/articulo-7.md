@@ -1,0 +1,5 @@
+Artículo 7º—Área de apoyo diagnóstico:
+a. Realizar pruebas de función pulmonar al lado de la unidad del paciente, así como pruebas de función pulmonar complejas, tales como espirometrías lentas (volúmenes pulmonares: pletismografía y lavado de nitrógeno) y forzadas. Presión inspiratoria y espiratoria máxima, ventilación voluntaria máxima, sniff nasal, pruebas de difusión, oscilometría de impulso, pruebas de marcha como el test de caminata de 6 minutos.
+b. Pruebas metabólicas y prescripción del ejercicio. Aplica para aquellos terapeutas respiratorios con formación específica en el área.
+c. Realizar, asistir o colaborar en estudios de polisomnografía y estudios de igual o menor complejidad, como la poligrafía o estudio de noche dividida, para detección de problemas respiratorios durante el sueño. Aplica para aquellos terapeutas respiratorios con formación específica en el área.
+d. Asistir al médico en procedimientos diagnósticos invasivos: broncoscopía, toracocentesis, punciones pleurales y cualquier otro procedimiento (de diagnóstico a nivel de tórax) que se realice en una sala (de broncoscopía o en la sala designada para tal fin).
