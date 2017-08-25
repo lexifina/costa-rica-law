@@ -1,0 +1,2 @@
+DISPOSICIONES TRANSITORIAS
+TRANSITORIO I- El reglamento para la distribución del Fondo de Asistencia Económica de Productores en Régimen de Excedentes, para ayudar a pequeños y medianos productores independientes que tienen entregas de caña en régimen de excedentes, deberá promulgarse, por parte de la Junta Directiva de la Liga, en el plazo de un año contado a partir de la entrada en vigencia de esta ley. Vencido ese plazo, el subsidio no se distribuirá mientras no se emita el reglamento correspondiente.
