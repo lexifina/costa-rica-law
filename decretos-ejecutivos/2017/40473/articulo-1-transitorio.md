@@ -1,0 +1,1 @@
+TRANSITORIO ÚNICO.- Durante el tiempo que transcurra mientras el CONAMAR no haya nombrado el Secretario Ejecutivo descrito en los artículos 4 y 6 del Decreto Ejecutivo N° 37212-MINAET-MAG-SP-MOPT que aquí se reforma, la Secretaría Técnica del CONAMAR, podrá designar a uno de sus miembros para que ocupe el cargo de manera interina.
