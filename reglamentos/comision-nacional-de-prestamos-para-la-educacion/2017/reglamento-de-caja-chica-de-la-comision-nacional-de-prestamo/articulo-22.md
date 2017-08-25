@@ -1,0 +1,2 @@
+Artículo No. 22
+Los reembolsos deben de ser realizados por la Sección de Tesorería por medio de un cheque a nombre del encargado de la caja chica que podrá ser cambiado del fondo general, deben ser presentados en un estado de cuenta de fondos de Caja Chica con el detalle de los números que lo integran y debe estar firmado por el responsable de la caja chica y la Jefatura de la Sección de Tesorería o la Jefatura del Departamento Financiero.

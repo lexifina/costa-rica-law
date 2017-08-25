@@ -1,0 +1,2 @@
+Artículo No. 6
+El fondo de Caja Chica está sujeto a fiscalización inmediata de la jefatura de la Sección de Tesorería, mediante arqueos. El Analista de Tesorería quien es el encargado del fondo de Caja Chica debe brindar la información requerida para éstos efectos ante cualquier anomalía. La Jefatura de la Sección de Tesorería envía copia de su informe a la Jefatura del Departamento Financiero quién de oficio accionará el proceso administrativo correspondiente.

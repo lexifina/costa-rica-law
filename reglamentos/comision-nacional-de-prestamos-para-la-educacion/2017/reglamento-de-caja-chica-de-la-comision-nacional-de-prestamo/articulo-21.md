@@ -1,0 +1,2 @@
+Artículo No. 21
+Antes de liquidar el anticipo de Caja Chica, el funcionario comprador debe presentar ante el Jefe inmediato los bienes o servicios adquiridos para comprobar las especificaciones. Si la compra se realizó de acuerdo a las especificaciones, el funcionario comprador y el jefe inmediato firman la factura autorizando la respectiva liquidación. Si el bien o servicio no reúne las condiciones específicas, el funcionario comprador devuelve al proveedor y se reinicia la compra, asumiendo el funcionario comprador toda la responsabilidad por la devolución.

@@ -1,0 +1,2 @@
+Artículo No. 16
+Todo pago por medio del fondo debe estar respaldado por factura comercial debidamente emitida. Si en razón del servicio no existiere factura que justifique el gasto, se completa la boleta que compruebe y detalle el mismo, señalando al menos el beneficiario, fecha, bien o servicio prestado y el monto correspondiente. Debe contener además firma y el número de cédula del proveedor del bien o servicio y del funcionario que lo recibió.
