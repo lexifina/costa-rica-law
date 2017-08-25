@@ -1,0 +1,62 @@
+N° 40561–RREE
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE RELACIONES EXTERIORES Y CULTO
+Con fundamento en el artículo 140, incisos 3) ,8), 12) y 20) y el artículo 146 de la Constitución Política.
+Por cuanto:
+Mediante la nota diplomática DM-DGPE-255-17 de fecha 12 de mayo de 2017 suscrita por el señor Manuel A. González Sanz, Ministro de Relaciones Exteriores y Culto y la nota diplomática Wi 468.40/10 de fecha 26 de abril de 2017 suscrita por el Excelentísimo Señor lngo Winkelmann, Embajador de la República Federal de Alemania, se formalizó el presente Acuerdo bajo la modalidad de Canje de Notas sobre el proyecto "Cambio climático y transporte en Costa Rica", en el marco de la Iniciativa Internacional de Protección del Clima del Ministerio Federal de Medio Ambiente, Protección de la Naturaleza, Obras Públicas y Seguridad Nuclear.
+Considerando:
+1- Que el numeral 2 del artículo 1 del Convenio entre el Gobierno de Costa Rica y el Gobierno de la República Federal de Alemania sobre Cooperación Técnica, hecho en San José, el 23 de julio de 1995, aprobado mediante Ley número 3654 del 23 de diciembre de 1965 y enmendado por sus Protocolos de fecha 13 de marzo de 1986 y del 18 de diciembre de 2006, establece la facultad de las Partes de concertar Acuerdos especiales referentes a distintos proyectos.
+2- Que el presente Acuerdo especial derivado del Convenio de Cooperación Técnica mencionado, bajo la modalidad de canje de notas ha sido formalizado con el deseo de fortalecer e intensificar los lazos de amistad y cooperación que existen entre ambos países. Por tanto,
+En uso de las facultades conferidas por el artículo 140, incisos 10) y 12) de la Constitución Política.
+DECRETAN:
+Artículo 1.- Promulgar teniéndolo como vigente para los efectos internos y externos, el presente Acuerdo bajo la modalidad de Canje de Notas constituido, por la nota diplomática DM-DGPE-255-17 de fecha 12 de mayo de 2017 suscrita por el señor Manuel A. González Sanz, Ministro de Relaciones Exteriores y Culto y la nota diplomática Wi 468.40/10 de fecha 26 de abril de 2017 suscrita por el Excelentísimo Señor lngo Winkelmann, Embajador de la República Federal de Alemania, sobre el proyecto "Cambio climático y transporte en Costa Rica", en el marco de la Iniciativa Internacional de Protección del Clima del Ministerio Federal de Medio Ambiente, Protección de la Naturaleza, Obras Públicas y Seguridad Nuclear, cuyos textos son los siguientes:
+San José, 12 de mayo del 2017
+DM-DGPE-255-17
+Excelentísimo señor:
+Tengo el honor de dirigirme a Vuestra Excelencia, en ocasión de acusar recibo de su atenta nota Wi 468 .40 / 10 de fecha 26 de abril del 2017, que dice lo siguiente:
+"Señor Ministro:
+En cumplimiento del Convenio sobre Cooperación Técnica, concertado entre nuestros dos Gobiernos el 23 de julio de 1965, así como de los Protocolos de Enmienda del 13 de marzo de 1986 y del 18 de diciembre de 2006, tengo el honor de proponer a Vuestra Excelencia, en nombre del Gobierno de la República Federal de Alemania, el siguiente Acuerdo sobre el proyecto "Cambio climático y transporte en Costa Rica", en el marco de la Iniciativa Internacional de Protección del Clima del Ministerio Federal de Medio Ambiente, Protección de la Naturaleza, Obras Públicas y Seguridad Nuclear:
+1. El Gobierno de la República Federal de Alemania y el Gobierno de la República de Costa Rica fomentarán conjuntamente el proyecto "Cambio climático y transporte en Costa Rica", si después de examinado resulta susceptible de apoyo.
+2. El objetivo del proyecto es contribuir a la protección del clima y al desarrollo sostenible en la República de Costa Rica, a través del fomento de medidas para la mitigación de gases de efecto invernadero.
+3. El Gobierno de la República Federal de Alemania facilitará recursos humanos y realizará prestaciones materiales y, si procede, aportaciones financieras para el proyecto por un monto total de hasta 3.500.000 euros (en letras: tres millones quinientos mil euros).
+Confiará la ejecución a la Deutsche Gesellschaft für Internationale Zusammenarbeit (GIZ) GmbH.
+4. Por parte del Gobierno de la República de Costa Rica será responsable de la ejecución del proyecto el Ministerio de Ambiente y Energía.
+5. Los detalles del proyecto y de las prestaciones y obligaciones respectivas se fijarán en un contrato de ejecución y, si procede, de financiación que habrá de ser concertado entre la GIZ y la institución a la que el Gobierno de la República de Costa Rica encargue la ejecución del proyecto y que estará sujeto a las disposiciones legales vigentes en la República Federal de Alemania.
+6. El compromiso del Gobierno de la República Federal de Alemania para el proyecto quedará sin efecto si el contrato de ejecución y, si procede, de financiación mencionado en el párrafo 5 no se concierta dentro de un plazo de cuatro años contado a partir del año de la entrada en vigor del presente Acuerdo. Para el monto en cuestión el plazo concluirá el 31 de diciembre de 2021.
+7. El Gobierno de la República de Costa Rica eximirá a los materiales, vehículos, bienes y equipos importados para el proyecto por encargo y a expensas del Gobierno de la República Federal de Alemania, así como a los respectivos repuestos que se utilicen para el proyecto mencionado en el párrafo 1, de todos los derechos de importación y exportación, así como de licencias, tasas portuarias, derechos de almacenaje y demás gravámenes públicos, y asegurará que pasen aduana sin demora.
+8. El Gobierno de la República de Costa Rica eximirá a la GIZ de todos los impuestos directos que se devenguen en la República de Costa Rica en relación con la concertación y ejecución del contrato de ejecución y, si procede, de financiación mencionado en el párrafo 5.
+9. El Gobierno de la República de Costa Rica reembolsará a solicitud de la GIZ el impuesto sobre el valor añadido u otros impuestos indirectos similares que hayan sido aplicados en la República de Costa Rica sobre objetos adquiridos y servicios utilizados en relación con la concertación y ejecución del contrato de ejecución y, si procede, de financiación mencionado en el párrafo 5. Los impuestos especiales al consumo que se hayan aplicado en este contexto serán asumidos por el Gobierno de la República de Costa Rica siguiendo una solicitud.
+10. Por lo demás se aplicarán también al presente Acuerdo las disposiciones del Convenio sobre Cooperación Técnica del 23 de julio de 1965 y de los Protocolos de Enmienda del 13 de marzo de 1986 y del 18 de diciembre de 2006 mencionados al inicio.
+11. El presente Acuerdo se concierta en alemán y español, siendo ambos textos igualmente auténticos.
+En caso de que el Gobierno de la República de Costa Rica se declare conforme con las propuestas contenidas en los párrafos 1 a 11, esta Nota y la Nota de respuesta de Vuestra Excelencia en la que conste la conformidad de su Gobierno constituirán un Acuerdo entre nuestros Gobiernos que entrará en vigor en la fecha de su Nota de respuesta.
+Aprovecho la ocasión para reiterar a Vuestra Excelencia, Sr. González Sanz, el testimonio de mi más alta y distinguida consideración".
+Sobre el particular, tengo el honor de informar que la propuesta anterior es aceptable al Gobierno de la República de Costa Rica y que la Nota de Vuestra Excelencia y la presente constituyen un Acuerdo entre nuestros Gobiernos, con la salvedad que entrará en vigencia el día en que el Gobierno de la República de Costa Rica haya comunicado al Gobierno de la República Federal de Alemania, por la vía diplomática, el cumplimiento de los requisitos internos necesarios para la entrada en vigor del presente Canje de Notas.
+Aprovecho la oportunidad para reiterar las seguridades de mi más alta y distinguida consideración.
+[imagen]
+[imagen]
+Dr. Ingo Winkelmann
+Embajador de la República Federal de Alemania
+Excmo. Señor
+Manuel Antonio González Sanz
+Ministro de Relaciones Exteriores y Culto
+de la República de Costa Rica
+San José
+San José, 26 de abril de 2017
+Wi 468.40/1º
+Señor Ministro:
+En cumplimiento del Convenio sobre Cooperación Técnica, concertado entre nuestros dos Gobiernos el 23 de julio de 1965, así como de los Protocolos de Enmienda del 13 de marzo de 1986 y del 18 de diciembre de 2006, tengo el honor de proponer a Vuestra Excelencia, en nombre del Gobierno de la República Federal de Alemania, el siguiente Acuerdo sobre el proyecto "Cambio climático y transporte en Costa Rica", en el marco de la Iniciativa Internacional de Protección del Clima del Ministerio Federal de Medio Ambiente, Protección de la Naturaleza, Obras Públicas y Seguridad Nuclear:
+1. El Gobierno de la República Federal de Alemania y el Gobierno de la República de Costa Rica fomentarán conjuntamente el proyecto "Cambio climático y transporte en Costa Rica", si después de examinado resulta susceptible de apoyo.
+2. El objetivo del proyecto es contribuir a la protección del clima y al desarrollo sostenible en la República de Costa Rica, a través del fomento de medidas para la mitigación de gases de efecto invernadero.
+3. El Gobierno de la República Federal de Alemania facilitará recursos humanos y realizará prestaciones materiales y, si procede, aportaciones financieras para el proyecto por un monto total de hasta 3.500.000 euros (en letras: tres millones quinientos mil euros).
+Confiará la ejecución a la Deutsche Gesellschaft für Internationale Zusammenarbeit (GIZ) GrnbH.
+4. Por parte del Gobierno de la República de Costa Rica será responsable de la ejecución del proyecto el Ministerio de Ambiente y Energía.
+5. Los detalles del proyecto y de las prestaciones y obligaciones respectivas se fijarán en un contrato de ejecución y, si procede, de financiación que habrá de ser concertado entre la GIZ y la institución a la que el Gobierno de la República de Costa Rica encargue la ejecución del proyecto y que estará sujeto a las disposiciones legales vigentes en la República Federal de Alemania.
+6. El compromiso del Gobierno de la República Federal de Alemania para el proyecto quedará sin efecto si el contrato de ejecución y, si procede, de financiación mencionado en el párrafo 5 no se concierta dentro de un plazo de cuatro años contado a partir del año de la entrada en vigor del presente Acuerdo. Para el monto en cuestión el plazo concluirá el 31 de diciembre de 2021.
+7. El Gobierno de la República de Costa Rica eximirá a los materiales, vehículos, bienes y equipos importados para el proyecto por encargo y a expensas del Gobierno de la República Federal de Alemania, así como a los respectivos repuestos que se utilicen para el proyecto mencionado en el párrafo l, de todos los derechos de importación y exportación, así como de licencias, tasas portuarias, derechos de almacenaje y demás gravámenes públicos, y asegurará que pasen aduana sin demora.
+8. El Gobierno de la República de Costa Rica eximirá a la GIZ de todos los impuestos directos que se devenguen en la República de Costa Rica en relación con la concertación y ejecución del contrato de ejecución y, si procede, de financiación mencionado en el párrafo 5.
+9. El Gobierno de la República de Costa Rica reembolsará a solicitud de la GIZ el impuesto sobre el valor añadido u otros impuestos indirectos similares que hayan sido aplicados en la República de Costa Rica sobre objetos adquiridos y servicios utilizados en relación con la concertación y ejecución del contrato de ejecución y, si procede, de financiación mencionado en el párrafo 5. Los impuestos especiales al consumo que se hayan aplicado en este contexto serán asumidos por el Gobierno de la República de Costa Rica siguiendo una solicitud.
+10. Por lo demás se aplicarán también al presente Acuerdo las disposiciones del Convenio sobre Cooperación Técnica del 23 de julio ele 1965 y de los Protocolos de Enmienda del 13 de marzo de 1986 y del 18 de diciembre de 2006 mencionados al inicio.
+11. El presente Acuerdo se concie1ia en alemán y español, siendo ambos textos igualmente auténticos.
+En caso de que el Gobierno de la República de Costa Rica se declare conforme con las propuestas contenidas en los párrafos 1 a 11, esta Nota y la Nota de respuesta de Vuestra Excelencia en la que conste la conformidad de su Gobierno constituirán un Acuerdo entre nuestros Gobiernos que entrará en vigor en la fecha de su Nota de respuesta.
+Aprovecho la ocasión para reiterar a Vuestra Excelencia, Sr. González Sanz, el testimonio de mi más alta y distinguida consideración.
+[imagen]
