@@ -1,0 +1,1 @@
+ARTÍCULO 3- La elección de los miembros propietarios y suplentes del Concejo de Distrito y los respectivos síndicos del distrito de Matambú, será organizada y dirigida por el Tribunal Supremo de Elecciones (TSE), seis meses después de que entre en vigencia la presente ley.

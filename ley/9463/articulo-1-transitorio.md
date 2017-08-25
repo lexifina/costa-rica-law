@@ -1,0 +1,2 @@
+TRANSITORIO ÚNICO- La presente ley entrará en vigencia el día hábil siguiente a la celebración de las elecciones para designar a las autoridades municipales, que se realizarán el 7 de febrero de 2016 o, en su defecto, el día hábil siguiente a las elecciones nacionales para elegir presidente, vicepresidentes y diputados, a celebrarse el 4 de febrero de 2018.
+Dado en la Ciudad de Nicoya, a los veinticinco días del mes de julio del año dos mil diecisiete.
