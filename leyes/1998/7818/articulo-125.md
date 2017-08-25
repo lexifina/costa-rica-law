@@ -1,22 +1,9 @@
 SECCION II
 CUOTA DE REFERENCIA
-ARTÍCULO 125.- La cuota de referencia será el promedio de las
-producciones totales de azúcar de cada ingenio en las cinco zafras
-anteriores, calculadas con base en azúcar de 96º de polarización.
-Empero, si en alguna de las zafras indicadas, por causa de fuerza
-mayor o caso fortuito a juicio de la Junta Directiva de la Liga, el
-ingenio hubiere disminuido considerablemente en su producción, con
-respecto al promedio de elaboración de azúcar registrado por él en las
-últimas tres zafras, la zafra afectada no se incluirá para determinar el
-promedio referido en el párrafo anterior.
-No obstante lo dispuesto en el párrafo primero, a ningún ingenio le
-corresponderá una cuota de referencia inferior al dos por ciento (2%) del
-total de las cuotas de referencia individuales, para cualquier año
-azucarero.
-A la Cuota Nacional de Producción de Azúcar se incrementará el
-aumento que se determine en la cuota individual de producción de un
-ingenio al aplicar la cuota de referencia mínima en sustitución de la
-cuota de referencia calculada según el párrafo primero.
-La cantidad de azúcar no elaborada por el ingenio dentro del aumento
-expresado, no se distribuirá entre otros ingenios; consecuentemente, en
-tal supuesto, no se aplicarán los artículos 122 y 123.
+Artículo 125- La cuota de referencia será el promedio de las producciones totales de azúcar de cada ingenio en las cinco zafras anteriores, calculadas con base en el azúcar de 96º de polarización.
+La cuota de referencia limitada será el promedio de la producción de las cinco zafras anteriores a aquella en que se aplique, pero en el cálculo de esta, para cada ingenio, las producciones que se incluyan tendrán como tope máximo la producción máxima de referencia, entendida esta como el promedio de las dos producciones más altas de cada ingenio, en las zafras comprendidas entre el 2011-2012 y el 2015-2016.
+Sin embargo, si en alguna de las zafras indicadas, por causa de fuerza mayor o caso fortuito a juicio de la Junta Directiva de la Liga, el ingenio ha disminuido considerablemente su producción con respecto al promedio de elaboración de azúcar registrado por él en las últimas tres zafras, la zafra afectada no se incluirá para determinar el promedio referido en los dos párrafos anteriores.
+No obstante lo dispuesto en el párrafo primero, a ningún ingenio le corresponderá una cuota de referencia inferior al dos por ciento (2%) del total de las cuotas de referencia individuales limitadas, para cualquier año azucarero.
+A la cuota nacional de producción de azúcar se incrementará el aumento que se determine en la cuota individual de producción de un ingenio al aplicar la cuota de referencia mínima en sustitución de la cuota de referencia, calculada según el párrafo primero.
+La cantidad de azúcar no elaborada por el ingenio, dentro del aumento expresado, no se distribuirá entre otros ingenios; consecuentemente, en tal supuesto, no se aplicarán los artículos 122 y 123.
+(Así reformado por el artículo 2° de la ley N° 9466 del 16 de agosto de 2017)
