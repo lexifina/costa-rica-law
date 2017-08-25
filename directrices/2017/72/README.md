@@ -14,3 +14,4 @@ Licencia sindical con goce de salario para que los agremiados de la Asociación 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-05-08 | la propia norma |
+| 2 | 2017-08-25 | Directriz 87 (2017-08-25) |

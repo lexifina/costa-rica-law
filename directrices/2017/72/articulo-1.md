@@ -12,4 +12,5 @@ DIRIGIDA A LOS MINISTROS DE ESTADO, PRESIDENTES
 EJECUTIVOS, GERENTES GENERALES, DIRECTORES
 GENERALES Y DEMÁS ALTOS JERARCAS
 DE LA ADMINISTRACIÓN PÚBLICA
-Artículo 1º-Las instituciones de la Administración Pública, podrán conceder licencia sindical con goce de salario para el día 28 de julio de 2017, para que los agremiados de la Asociación Nacional de Empleados Públicos y Privados (ANEP), de las diferentes entidades y órganos de la Administración Pública, puedan asistir desde las 8 de la mañana hasta las 5 de la tarde, con goce salarial a la Asamblea General Ordinaria de fin de período de dicha Asociación.
+Artículo 1º—Las instituciones de la Administración Pública, podrán conceder licencia sindical con goce de salario para el día 22 de setiembre del 2017, para que los agremiados de la Asociación Nacional de Empleados Públicos y Privados (ANEP), de las diferentes entidades y órganos de la Administración Pública, puedan asistir desde las 8 de la mañana hasta las 5 de la tarde, a la Asamblea General Ordinaria de fin de período de dicha Asociación.
+(Así reformado por el artículo 1° de la directriz N° 087 del 25 de agosto del 2017)
