@@ -1,1 +1,5 @@
-Artículo 6º—Plazos. Las importaciones que se realicen al amparo de las asignaciones de contingentes de importación a que se refiere este Reglamento deberán efectuarse en el período comprendido entre el 01 de enero y el 31 de diciembre del año para el cual corresponde la asignación.
+Artículo 6°.- Plazo para la utilización del contingente.
+1. Las importaciones que se realicen al amparo de la asignación del contingente de importación a que se refiere este Reglamento, deberán efectuarse en el período comprendido entre el 01 de enero y el 31 de diciembre del año para el cual corresponde la asignación.
+2. El plazo anterior se podrá extender a solicitud de un beneficiario o grupo de ellos, en situaciones de caso fortuito, fuerza mayor o ante acciones u omisiones de la Administración Pública que impidan fehacientemente al administrado la utilización de los contingentes de importación que le fueron asignados dentro de dicho plazo, previa verificación por parte de la Administración.
+3. Para determinar si procede o no extender o extender el plazo anterior, COMEX deberá seguir el procedimiento sumario regulado en la Ley General de la Administración Pública, Ley N° 6227 del 02 de mayo de 1978.
+(Así reformado por el artículo 1° del decreto ejecutivo N°40693 del 25 de agosto del 2017)
