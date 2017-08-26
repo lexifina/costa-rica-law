@@ -1,2 +1,5 @@
-Artículo 9º—Del Consejo Intermunicipal. El Consejo Intermunicipal está compuesto por dos miembros propietarios y un suplente, uno de los miembros propietarios será el Alcalde con voz y voto, el otro miembro propietario será el que designe el respectivo Concejo Municipal, igualmente el miembro suplente.
-(Así reformado mediante publicación en La Gaceta N° 14 del 21 de enero del 2015)
+Artículo 9. Del Consejo Intermunicipal
+El Consejo Intermunicipal estará compuesto por tres miembros propietarios: dos representantes electos del seno de los Concejos Municipales y el alcalde, todos con voz y voto, por cada municipalidad integrante de la Federación. Estos tres delegados necesariamente deberán ser los tres que representan a la municipalidad en la Asamblea General. Asistirán con voz, pero sin voto: el Director Ejecutivo, así como cualquier otro funcionario que sea llamado en cumplimiento de sus funciones.
+Todo miembro de este Consejo Intermunicipal tendrá derecho al cobro de dietas, en el siguiente orden; los representantes de los Concejos Municipales un 100% del monto estimado en el Presupuesto Anual de la Federación, los alcaldes y alcaldesas no devengarán dietas por su representación.
+El monto de las dietas será fijado mediante acuerdo del Consejo Intermunicipal y podrá aumentarse anualmente hasta en un 20% en relación con el monto fijado en el periodo anterior.
+(Así reformado mediante sesión ordinaria N° 01-2017 del 26 de agosto del 2017)
