@@ -1,0 +1,2 @@
+Artículo 3. Prohibiciones
+Según donde se genere una situación de prohibición, están inhibidas a participar a conformar parte del registro de precalificados o para participar en una gestión específica, aunque estén registrados como oferentes válidos, aquellas personas físicas o jurídicas comprendidas dentro de los supuestos regulados por los artículos 22 y 22 bis de la Ley de Contratación administrativa y los artículos 19 y 20 del Reglamento de la Ley de Contratación Administrativa.

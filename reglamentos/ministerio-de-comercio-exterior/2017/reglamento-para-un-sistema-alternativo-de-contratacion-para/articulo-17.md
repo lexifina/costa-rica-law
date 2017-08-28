@@ -1,0 +1,3 @@
+Artículo 17. Adjudicación
+De conformidad con los criterios y condiciones indicadas, la Proveeduría Institucional, procederá con la adjudicación de las contrataciones de compra de boletos en las cuales se haya recibido ofertas base, y se haya seleccionado la de menor precio.
+En los casos, en los que se adjudique ofertas opcionales, deberá mediar una justificación por parte de la Dependencia Solicitante mediante formulario de recomendación de adjudicación, contenido en el apéndice N° 5 del presente Reglamento, en las cuales se acredite que la oferta seleccionada permite alcanzar los objetivos del viaje de forma satisfactoria aun cuando no cumplieron estrictamente con los requerimientos.

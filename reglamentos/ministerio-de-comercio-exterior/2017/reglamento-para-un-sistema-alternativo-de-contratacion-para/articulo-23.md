@@ -1,0 +1,22 @@
+Artículo 23. Procedimiento de Urgencia
+En casos excepcionales y únicamente cuando las condiciones de tiempo no permitan gestionar un nuevo procedimiento de contratación, la Proveeduría Institucional está facultada para aplicar el mecanismo de trámite de urgencia, en los siguientes casos, los cuales deberá ser acreditados mediante el formulario contenido en el apéndice N° 7 del presente Reglamento.
+a) Cuando deba realizar un trámite de compra un día viernes después de la 12:00
+medio día, siendo que el viaje está programado para el fin de semana o el día
+hábil siguiente.
+b) Cuando deba realizar un trámite de compra antes del medio día para realizar un
+viaje durante la tarde del mismo día.
+c) Cuando se trate de un funcionario destacado en el exterior y requiera la compra
+de un boleto y cuente con un tiempo igual o menor a 4 horas hábiles previos al
+viaje en el horario del país en donde labore.
+Para estos efectos se establecerá un proceso de rotación de proveedores de las agencias
+que se encuentren vigentes dentro del registro de precalificados, el cual se hará mediante rifa entre los ejecutivos o representantes que se presenten en una primera sesión de trabajo.
+Esta primera sesión de trabajo será convocada dentro de los primeros 10 días hábiles siguientes a la firmeza del acto de comunicación del resultado final del registro de precalificados mediante SICOP. Para esta comunicación se remitirá un oficio formal a las agencias precalificadas por los medios de comunicación habilitados por las mismas agencias de viajes en SICOP; con la finalidad de que en dicha sesión se proceda con la coordinación inicial del proceso de ejecución del contrato en la cual se atenderán como mínimo los siguientes puntos:
+1. Presentación del personal a cargo del proceso de compra.
+2. Entrega formal de los formularios que formarán parte de los procedimientos de compra.
+3. Explicación de los procedimientos relacionados con las compras en SICOP.
+4. Atención de dudas y consultas de los proveedores precalificados en relación a mecanismos de contratación.
+5. Rifa de los roles a través de la suerte. Establecimiento formal del rol de las agencias para casos de urgencia.
+6. Levantamiento de minuta sobre los temas vistos en la sesión la cuál será firmada por todos los participantes.
+En el expediente electrónico creado en SICOP, se dejará constancia mediante formulario contenido en el apéndice N° 7 del presente Reglamento, de la justificación del uso del procedimiento de urgencia y la consulta respectiva al registro de rotación de agencias precalificadas realizado por la Proveeduría Institucional, este procedimiento será autorizado por el Jefe de Programa o en su ausencia por el Proveedor Institucional.
+Este listado de asignación por rol podrá actualizarse en caso de que ingrese una agencia; siendo que se le asignará el siguiente número de rol disponible lo cual se comunicará a todas las agencias precalificadas por los medios designados para tales efectos.
+La contratación se hará directamente con la agencia precalificada mediante SICOP; y se dará tiempos de recepción de ofertas de 20 minutos hasta un máximo de 1 hora, dependiendo el nivel de urgencia y proximidad al cierre de la Institución en horarios hábiles.

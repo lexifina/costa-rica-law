@@ -1,0 +1,13 @@
+Artículo 22: Anulación o cancelación de Boletos:
+Cuando por motivos de caso fortuito, fuerza mayor o cuando priven razones de interés público que impidan realizar un viaje sobre el cual ya fue emitido el boleto; el funcionario que viaja de forma directa o a través del solicitante; deberá remitir la solicitud de anulación del viaje a la Proveeduría Institucional mediante formulario contenido en el apéndice N° 6 del presente Reglamento, previo a la fecha establecida para la salida, lo que permite que el boleto pueda ser reutilizado posteriormente, pagando la penalidad respectiva y la diferencia de tarifa que pueda existir en la fecha de la reprogramación.
+Esta cancelación deberá estar acompañada de la justificación correspondiente, la cual debe contar con la autorización de la Jefatura Inmediata o Superior Jerárquico del funcionario que viaja; con un plazo no menor de 1 día hábil previo a la fecha de salida prevista en el boleto. En los casos de que se realice dicha solicitud de cancelación con una antelación menor a la establecida, será responsabilidad del funcionario asegurarse de que la información de cancelación fue recibida de forma oportuna en la Proveeduría Institucional y que se realizó la cancelación citada.
+En los casos de que la cancelación deba realizarse en días y horas no hábiles que no puedan realizarse posteriormente en las fechas más inmediatas hábiles, el funcionario deberá solicitar la autorización de la Jefatura Inmediata para proceder con la anulación (esta autorización podrá ser vía correo o telefónica) y una vez autorizado podrá solicitar los cambios respectivos directamente a la agencia de viajes que emitió el boleto original con el ejecutivo respectivo. Asimismo, deberá aportar dentro de los 2 días hábiles siguientes a la cancelación, la justificación autorizada mediante el formulario contenido en el apéndice N° 6 del presente Reglamento, indicando que ya el proceso de cancelación fue realizado.
+En caso de que existan reembolsos por la cancelación de boletos ya emitidos, la Agencia de Viajes deberá comunicar a la Proveeduría Institucional dentro del día hábil siguiente a la cancelación, la siguiente información en relación a los reembolsos:
+1. Número de Boleto.
+2. Fecha.
+3. Nombre del o los funcionarios o personas que viajan.
+4. Precio del boleto.
+5. Monto de la penalidad aplicado por la Aerolínea.
+6. Monto reembolsable.
+7. Número de documento mediante el cual se realizará el reembolso
+Los montos reembolsables serán aplicados a compras posteriores mediante nota de crédito o documento que se haya notificado, previa coordinación entre la Proveeduría Institucional y la Agencia de Viajes.

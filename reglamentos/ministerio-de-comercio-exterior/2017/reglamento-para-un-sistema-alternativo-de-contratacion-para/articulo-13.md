@@ -1,0 +1,5 @@
+Artículo 13: De la invitación
+Para llevar a cabo la compra se utilizará los mecanismos de invitación que se dispongan en SICOP, de conformidad con las reglas de notificación definidas en el sistema.
+La invitación se generará dentro de las 3 horas hábiles siguientes a la recepción de la versión final de la solicitud de compra; y será remitida a las agencias que formen parte del registro de precalificación, según los datos de notificación señalados para los efectos en el registro de proveedores de SICOP.
+La invitación se establecerá con plazos para la presentación de ofertas de 1 hora hasta 6 horas hábiles (horario 8:00 am a 5:00 pm); sin detrimento que la invitación pueda ser generada en horario fuera de este rango que se encuentren habilitados por la institución (correspondiente a jornadas especiales); según determine la Proveeduría Institucional de conformidad con la complejidad del boleto, la cercanía del plazo del itinerario y la disponibilidad de espacios según consulta previa.
+Los términos y condiciones del viaje, se comunicarán según formulario establecido por la Proveeduría Institucional para tales efectos.

@@ -1,0 +1,2 @@
+Artículo 18. Declaración de infructuoso:
+Una vez realizado el proceso de apertura de ofertas y se verifique por parte de la Proveeduría Institucional que no hay ofertas se procederá con la declaración de infructuoso de forma inmediata. Asimismo; si se presentaron ofertas base, pero una vez revisadas se determinan que son inelegibles y no pueden ser valoradas como opcionales para la satisfacción del interés institucional; se procederá con la declaratoria de infructuoso del proceso, mediante el formulario contenido en el apéndice N° 5 del presente Reglamento.
