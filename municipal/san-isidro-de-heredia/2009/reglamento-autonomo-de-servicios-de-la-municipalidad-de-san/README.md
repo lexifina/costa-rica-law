@@ -15,3 +15,4 @@ Reglamento Autónomo de Servicios de la Municipalidad de San Isidro de Heredia
 | --- | --- | --- |
 | 1 | 2009-05-07 | la propia norma |
 | 2 | 2015-09-14 | Reglamento municipal 58 (2015-09-14) |
+| 3 | 2017-08-28 | Reglamento municipal 57 (2017-08-28) |
