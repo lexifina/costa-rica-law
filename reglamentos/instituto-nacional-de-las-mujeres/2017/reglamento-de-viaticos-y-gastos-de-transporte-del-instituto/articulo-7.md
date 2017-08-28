@@ -1,0 +1,1 @@
+ARTÍCULO 7° — Adelanto de Viático Ocasional. Son aquellos gastos en que incurran las personas funcionarias y beneficiarias, que deban salir de viaje o gira dentro del país, en funciones de su cargo, y que tienen planificadas las giras durante un mes, pero no son continuas, por lo que serán reconocidas en un solo adelanto de viáticos.

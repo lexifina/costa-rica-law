@@ -1,0 +1,1 @@
+ARTÍCULO 15°. — Pago: El reconocimiento del pago de cualquier transporte externo se hará de acuerdo con la tarifa autorizada por el ente regulador correspondiente o también se autoriza el pago de la tarifa que establezcan las personas encargadas de los medios de transporte cuando no existe ente regulador como es el caso de semovientes u otros.

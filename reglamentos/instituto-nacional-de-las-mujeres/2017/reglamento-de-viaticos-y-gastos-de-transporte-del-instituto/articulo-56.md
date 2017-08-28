@@ -1,0 +1,3 @@
+Artículo 56° — De los Reintegros de viáticos al Interior. Cuando las liquidaciones sean inferiores a los adelantos girados, deberá hacerse el reintegro dentro del plazo establecido para la liquidación. En ningún caso se rebajará la diferencia de adelantos o liquidaciones posteriores.
+En caso de suspensión de una gira, el dinero depositado en la cuenta bancaria de la persona funcionaria, debe reintegrarse dentro del plazo máximo de tres días, a partir de dicha suspensión.
+Si la gira se pospone para un plazo no mayor de siete días hábiles, el dinero depositado puede utilizarse, siempre y cuando sea la misma gira. Si hay modificaciones, el reintegro debe hacerse en el plazo máximo de tres días a partir de dicha posposición y solicitar el adelanto para la nueva gira.

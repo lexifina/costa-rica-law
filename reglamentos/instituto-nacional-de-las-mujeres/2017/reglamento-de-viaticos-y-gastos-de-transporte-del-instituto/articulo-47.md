@@ -1,0 +1,1 @@
+ARTÍCULO 47°— Responsabilidad jerárquica. La jefatura superior inmediata de la persona funcionaria o beneficiaria que reciba Viático y Transporte será responsable de velar porque la persona funcionaria cumpla con las obligaciones, requisitos y condiciones que en el presente Reglamento se disponen para disfrutar del referido pago.

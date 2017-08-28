@@ -1,0 +1,4 @@
+CAPÍTULO V
+ASPECTOS GENERALES VIAJES EN EL EXTERIOR
+ARTÍCULO 32° — Personas funcionarias becarias. Los gastos que realicen las personas funcionarias en condición de becarios, en cursos con una duración mayor de treinta días, deberán regularse en el respectivo contrato de beca, de tal forma que no podrán recibir monto alguno por concepto de viáticos, salvo el subsidio establecido en el artículo 30 del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, emitido por la Contraloría General de la República, para lo cual la Comisión de Capacitación y Desarrollo del Recurso Humano, deberá normar lo pertinente.
+Para efectos de este artículo no se considerarán personas funcionarias becarias las personas funcionarias que viajen para asistir a seminarios, congresos o cónclaves, cuya duración sea inferior a 31 días.

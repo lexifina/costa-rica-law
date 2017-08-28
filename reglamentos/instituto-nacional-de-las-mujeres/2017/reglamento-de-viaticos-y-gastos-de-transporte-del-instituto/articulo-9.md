@@ -1,0 +1,1 @@
+ARTÍCULO 9. — Viático Continuo. Son aquellos gastos que serán reconocidos en un solo adelanto de viáticos, para cubrir giras que se efectúen dentro de un mismo mes, Estos se reconocerán a las personas operadores de equipo móvil, facilitadoras del PAM y otras que autoricen las Direcciones.

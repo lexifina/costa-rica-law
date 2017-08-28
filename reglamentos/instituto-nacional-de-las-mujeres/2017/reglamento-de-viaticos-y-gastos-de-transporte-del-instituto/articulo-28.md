@@ -1,0 +1,1 @@
+ARTÍCULO 28°. — Otras localidades: Si la persona funcionaria o beneficiaria se hospeda en una localidad que no está incluida en la Tabla de la Contraloría, solo se reconocerá la tarifa que indica dicho Órgano para estos casos.

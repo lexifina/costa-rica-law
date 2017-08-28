@@ -1,0 +1,1 @@
+ARTÍCULO 19° —Gastos por transporte marítimo, vía férrea o vía aérea, en casos en casos de viajes al exterior. Cuando en este tipo de gastos, el viaje requiera más de un día, durante ese o esos días la empresa de transporte incluya en el precio los servicios de alimentación y de hospedaje, no se reconocerán viáticos.

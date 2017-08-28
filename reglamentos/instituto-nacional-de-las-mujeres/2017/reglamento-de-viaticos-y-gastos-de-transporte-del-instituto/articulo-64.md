@@ -1,0 +1,3 @@
+CAPÍTULO X
+DISPOSICIONES FINALES
+ARTÍCULO 64°—Aplicación supletoria. En lo no previsto en estas regulaciones y atinente a la materia, serán de aplicación supletoria las disposiciones contenidas en el Reglamento para Gastos de Viaje y Transporte para Funcionarios Públicos emitido por la Contraloría, Reglamento Autónomo de Servicios del INAMU, la Ley General de la Administración Pública, la Ley de Administración Financiera y Presupuestos Públicos y su Reglamento, el Código de Trabajo, el Código Civil, el Código Penal, el Código Procesal Penal y demás disposiciones normativas, así como la jurisprudencia administrativa y judicial que sea de aplicación a la materia referente a viáticos.

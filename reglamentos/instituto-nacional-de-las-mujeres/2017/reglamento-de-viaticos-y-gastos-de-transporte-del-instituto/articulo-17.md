@@ -1,0 +1,1 @@
+ARTÍCULO 17° —Del uso de Transporte Externo modalidad Aérea. Las personas funcionarias o beneficiaras podrán hacer uso de transporte aéreo, en giras dentro del territorio nacional cuando el uso del transporte aéreo represente una ventaja para la institución, en razón del ahorro de tiempo y recursos o por dictamen médico que así lo justifique.

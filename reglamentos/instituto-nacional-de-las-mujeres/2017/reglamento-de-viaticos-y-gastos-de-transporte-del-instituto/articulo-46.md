@@ -1,0 +1,1 @@
+ARTÍCULO 46° —Dependencia que autoriza el Viático Continuo. El Área de Servicios Generales y Transportes y el Área de Desarrollo Regional serán las únicas dependencias que autorizarán el pago de Viático Continuo con base en la presentación de la documentación correspondiente

@@ -1,0 +1,1 @@
+ARTÍCULO 58° —Tipo de cambio de adelantos y reintegros. Los adelantos y reintegros que se deriven de la liquidación de viáticos por viajes al exterior, se harán en colones al tipo de cambio de referencia dado por el Banco Central de Costa Rica, correspondiente a la fecha en que se elabora la transferencia para el adelanto.

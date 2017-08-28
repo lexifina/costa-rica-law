@@ -1,0 +1,1 @@
+ARTÍCULO 8. — Viático Eventual: Son aquellos gastos en que incurran las personas funcionarias o beneficiarias, que eventualmente deban salir de viaje o gira dentro del país, en funciones de su cargo, los que serán reconocidos cada vez que surja la necesidad.

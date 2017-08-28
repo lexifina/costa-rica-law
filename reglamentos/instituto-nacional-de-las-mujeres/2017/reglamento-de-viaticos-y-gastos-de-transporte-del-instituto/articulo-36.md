@@ -1,0 +1,1 @@
+ARTÍCULO 36° —Deducción de la tarifa diaria. Cuando una gira al exterior se extienda por más de treinta días en una misma ciudad, la tarifa diaria se reducirá un 10%, a partir de la fecha de llegada a la ciudad. Esto se aplicará solo en los casos en que la gira desde un inicio supere este periodo.

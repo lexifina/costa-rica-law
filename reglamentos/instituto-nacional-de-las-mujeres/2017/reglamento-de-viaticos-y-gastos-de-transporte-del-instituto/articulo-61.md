@@ -1,0 +1,1 @@
+ARTÍCULO 61° — Constatación de la veracidad y justificación. Toda persona encargada de autorizar y aprobar con su firma los gastos previstos en este Reglamento estará obligada a constatar la veracidad y justificación de los montos autorizados y será solidariamente responsable por los perjuicios de cualquier índole que se deriven del incumplimiento de dichas obligaciones.
