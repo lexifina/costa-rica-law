@@ -18,3 +18,4 @@ Reglamento para el Juego Nuevos Tiempos
 | 3 | 2015-09-08 | Reglamento 31 (2015-09-08) |
 | 4 | 2015-11-30 | Reglamento 43 (2015-11-30) |
 | 5 | 2016-02-18 | Reglamento 5 (2016-02-18) |
+| 6 | 2017-08-28 | Reglamento 32 (2017-08-28) |
