@@ -8,7 +8,8 @@ d) Procurar el respeto mutuo de entre las y los miembros de la Junta y las y los
 e) Velar por el cumplimiento de este reglamento.
 f) Firmar junto con la secretaría del comité, las actas de las sesiones de la Junta Directiva, los informes y otros documentos relevantes a consideración de la Junta.
 g) Convocar al menos con 24 horas de anticipación a las sesiones extraordinarias indicando los puntos de agenda, conforme con las disposiciones de este Reglamento.
-h) Hacer llegar a cada miembro de la Junta Directiva con 48 horas de anticipación a la Sesión, el Acta Anterior, el orden del día y la documentación correspondiente a la sesión.
+h) Hacer llegar a cada miembro de la Junta Directiva con dos horas de anticipación a la Sesión, el Acta Anterior, el orden del día y la documentación correspondiente a la sesión.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 57-2017 del 28 de agosto del 2017)
 i) Representar judicial y extrajudicialmente al Comité Cantonal.
 j) Velar por el cumplimiento de las obligaciones y objetivos del Comité Cantonal.
 k) Suscribir los convenios aprobados que celebre el Comité Cantonal, siguiendo los lineamientos y políticas de la Corporación Municipal.

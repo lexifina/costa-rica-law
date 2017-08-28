@@ -14,3 +14,4 @@ Reglamento para la organización y funcionamiento del comité cantonal de deport
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-11-24 | la propia norma |
+| 2 | 2017-08-28 | Reglamento municipal 57 (2017-08-28) |
