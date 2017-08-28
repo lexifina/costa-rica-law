@@ -1,0 +1,1 @@
+Artículo 27.-Supervisión. La Municipalidad y los inspectores municipales de tránsito, se someterán en todo momento y de forma voluntaria, a las inspecciones o supervisiones, que realice La Unidad de la Supervisión Nacional de la Dirección General de la Policía de Tránsito. Lo anterior de previo haber realizado la coordinación con las autoridades municipales correspondientes.

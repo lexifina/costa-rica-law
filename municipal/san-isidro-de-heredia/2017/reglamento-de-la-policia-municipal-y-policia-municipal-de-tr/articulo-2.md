@@ -1,0 +1,1 @@
+Artículo 2.- Creación. Se crea la Policía Municipal como cuerpo de carácter administrativo, encargado de la seguridad y la vigilancia en el cantón de San Isidro de Heredia, sirviendo a su vez, como órgano auxiliar de la Administración Municipal en materia de ejecución de órdenes y sanciones administrativas.

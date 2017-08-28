@@ -1,0 +1,1 @@
+Artículo 22.- Registro de sanciones. En el caso de existir suspensión o despido del funcionario investido como inspector municipal de tránsito por parte de la Municipalidad, ello deberá comunicarse al Departamento de Operaciones Policiales de la Dirección General de la Policía de Tránsito.

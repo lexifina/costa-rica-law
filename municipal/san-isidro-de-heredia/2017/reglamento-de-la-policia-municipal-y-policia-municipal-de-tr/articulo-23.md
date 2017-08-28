@@ -1,0 +1,3 @@
+Artículo 23.-Uniforme. La Municipalidad proveerá de uniforme al inspector municipal de tránsito, el cual deberá ser diferente al que usan los oficiales de planta de la Dirección General de la Policía de Tránsito. Este uniforme, deberá contener al menos un distintivo que permita identificarlo como inspector municipal de tránsito.
+La Dirección General de la Policía de Tránsito proveerá de un carné de identificación al inspector municipal de tránsito, cuyo costo será sufragado por la municipalidad correspondiente
+La camisa del inspector municipal de tránsito, deberá contener en ambas mangas un distintivo con la leyenda "Inspector Municipal de Tránsito".

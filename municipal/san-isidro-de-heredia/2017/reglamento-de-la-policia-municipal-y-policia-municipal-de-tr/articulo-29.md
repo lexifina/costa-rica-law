@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Disposiciones Finales
+Artículo 29.- Normas de aplicación supletoria. En todo aquello no previsto en el presente reglamento, se aplicará supletoriamente, el Código Municipal, la Ley General de Administración Pública, Reglamento Autónomo de Organización y Servicios de la Municipalidad de San Isidro de Heredia, Código de Trabajo, la Constitución Política, Ley General de Policía, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, Nº 9078 y el Reglamento para el funcionamiento de los cuerpos especiales de Inspectores de Tránsito, Decreto Ejecutivo N° 38164-MOPT y demás normativa conexa.

@@ -1,0 +1,1 @@
+Artículo 5.- Disponibilidad presupuestaria. Lo dispuesto en el artículo anterior, supedita sus alcances a la disponibilidad de recursos presupuestarios por parte de la Municipalidad. De tal forma, la imposibilidad de realizar alguna de estas acciones por razones presupuestarias, no podrá tenerse como una omisión administrativa de la Municipalidad.

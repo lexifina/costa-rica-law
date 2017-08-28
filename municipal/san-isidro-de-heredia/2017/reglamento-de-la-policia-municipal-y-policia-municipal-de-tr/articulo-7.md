@@ -1,0 +1,5 @@
+CAPÍTULO III
+Régimen de empleo de los funcionarios o funcionarias que laboren
+en el proceso de Policía Municipal
+Artículo 7.- Reclutamiento y selección. Para el reclutamiento y selección de los funcionarios o funcionarias que ocupen cargos en la Policía Municipal, deberá tomarse en consideración el régimen de empleo contenido en el Código Municipal y la reglamentación interna que se tenga al efecto en la Municipalidad de San Isidro. Deberá privar en tal caso la determinación de la idoneidad comprobada del servidor o servidora, poniendo especial atención al tipo de funciones que mediante el presente reglamento y la normativa atinente se asignan al cuerpo policial.
+En el procedimiento de reclutamiento y selección, la Administración Municipal deberá realizar los análisis psicométricos pertinentes que sirvan de utilidad para efectos de asegurar que la persona designada en el cargo, es idónea para ocupar el puesto. Tales pruebas no deberán incluirse como parte de los requisitos de admisibilidad ni incluirse en el sistema de valoración.

@@ -1,0 +1,9 @@
+Artículo 19.-Deberes de los inspectores municipales de tránsito. Además de los deberes contenidos en el Reglamento Autónomo de Organización y Servicios de la Municipalidad de San Isidro de Heredia, el Código Municipal, el Código de Trabajo y normativa interna especial, los funcionarios o funcionarias de la Policía Municipal de Tránsito tendrán los siguientes deberes:
+a) Ejercer su función dentro del ámbito geográfico de competencia territorial de su cantón.
+b) Conocer con amplitud la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, así como las demás leyes, reglamentos y disposiciones normativas relacionadas con esta materia.
+c) Respetar los símbolos nacionales, y cuando se entone el Himno Nacional o se izare el Pabellón Nacional mantenerse en posición firme, de frente al acto, hasta que finalice el mismo.
+d) No propiciar, ni tampoco participar en ninguna clase de comentario público o privado, dentro o fuera del recinto de trabajo, que desacredite a la Municipalidad de San Isidro, el cuerpo de Policía Municipal o la Dirección General de la Policía de Tránsito, o a su personal.
+e) Mantener en el ejercicio de la prestación del servicio una actitud permanente de serenidad, prudencia y atención, dispuesto a contestar en forma cortés cualquier pregunta que se le hiciere, sin causar demoras o atrasos injustificados.
+f) Portar, en un lugar visible, el respectivo carnet de identificación, que le otorga la Dirección General de la Policía de Tránsito, así como el otorgado por la Municipalidad.
+g) Cuando así se le solicite, dar testimonio fiel de todo cuanto hubiere visto y oído.
+h) Cumplir fielmente con las disposiciones de la Ley N° 9078, el Reglamento para el funcionamiento de los cuerpos especiales de Inspectores de Tránsito, Decreto Ejecutivo N° 38164-MOPT, así como la normativa interna municipal.

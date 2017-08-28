@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Órganos auxiliares en materia de seguridad ciudadana
+Artículo 14.- Comisión de Seguridad Ciudadana. En función de las competencias conferidas en el artículo 13, inciso n) de Código Municipal, se crea la Comisión Especial de Seguridad Ciudadana, en cuyo seno se discutirá todo lo concerniente a las distintas políticas municipales que se emitan en materia de seguridad ciudadana. Asimismo, mediante esta Comisión se llevarán a cabo las coordinaciones necesarias para incorporar en la emisión de tales políticas, criterios técnicos de otras instituciones especializadas en la materia, fomentando además la participación ciudadana.
+De igual forma, es responsabilidad de esta Comisión llevar a cabo relaciones de cooperación y coordinación con los Comisión Cantonal de Seguridad, que forman parte de los programas preventivos que al efecto mantiene el Ministerio de Seguridad Pública,

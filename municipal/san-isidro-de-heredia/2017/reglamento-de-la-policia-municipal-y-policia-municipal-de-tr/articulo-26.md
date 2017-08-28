@@ -1,0 +1,1 @@
+Artículo 26.- Rendición de Informes. La Municipalidad deberá informar mensualmente por escrito al Departamento de Operaciones Policiales de la Dirección General de la Policía de Transito sobre la labor realizada y boletas de citación confeccionadas.

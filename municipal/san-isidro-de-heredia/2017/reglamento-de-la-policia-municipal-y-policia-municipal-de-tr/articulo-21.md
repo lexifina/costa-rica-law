@@ -1,0 +1,5 @@
+Artículo 21.- Conductas u omisiones sancionables. Además de aquellas acciones u omisiones prohibidas y sancionables según el Reglamento Autónomo de Organización y Servicios de la Municipalidad de San Isidro de Heredia, se tenderán como conductas sancionables las siguientes:
+a) No portar el uniforme oficial entregado por parte de la Municipalidad durante el ejercicio de sus funciones.
+b) No confeccionar los respectivos partes o boletas de citación ante la verificación de las infracciones contempladas en los artículos 96, 143, 144, 145, 146 y 147 de la Ley Nº 9078.
+c) Atender accidentes de tránsito en contraposición de las competencias contempladas en la Ley N° 9078 y el Reglamento para el funcionamiento de los cuerpos especiales de Inspectores de Tránsito, Decreto Ejecutivo N° 38164-MOPT.
+Según la gravedad de las acciones u omisiones sancionables cometidas, las sanciones a interponer podrán ir desde la amonestación verbal, hasta el despido sin responsabilidad patronal, según los términos y condiciones del propio Reglamento Autónomo en mención.
