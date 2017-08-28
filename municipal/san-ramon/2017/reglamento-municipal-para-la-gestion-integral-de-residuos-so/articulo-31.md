@@ -1,0 +1,5 @@
+Artículo 31°. Frecuencia de recolección. La Municipalidad brindará el servicio de recolección según las rutas, frecuencia y sectores correspondientes, las cuales podrán estar sujetas a modificaciones, que serán informadas oportunamente a los usuarios por medio de cualquier medio electrónico o de comunicación. La frecuencia mínima para brindar cada uno de los componentes del servicio de manejo de residuos sólidos será la siguiente:
+a) Recolección de residuos ordinarios: dos veces por semana dependiendo del sector y todos los días en el área comercial del casco central.
+b) Recolección de residuos sólidos valorizables: la frecuencia se establecerá de acuerdo al estudio que realice la Municipalidad para establecer rutas y sectores para este servicio.
+c) Recolección de residuos no tradicionales: la frecuencia se establecerá de acuerdo al estudio que realice la Municipalidad para establecer rutas y sectores para este servicio.
+Los sectores, días y horas pueden ser consultados en la página web de la Municipalidad www.sanramon.go.cr y en la Plataforma de Servicios, ubicada en el edificio municipal.

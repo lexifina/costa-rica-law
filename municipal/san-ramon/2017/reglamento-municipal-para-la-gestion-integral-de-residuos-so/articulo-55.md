@@ -1,0 +1,1 @@
+Artículo 55°. Unidad de cobro. El cobro se realizará al sujeto pasivo, de acuerdo a la cantidad de unidades habitacionales y/o comerciales que se encuentren en la propiedad; cada unidad se calificará acorde al tipo de actividad comercial que desempeñe.

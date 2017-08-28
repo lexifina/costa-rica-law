@@ -1,0 +1,1 @@
+Artículo 60°. Categoría de las instituciones públicas, religiosas y de bien social. Las instituciones públicas, religiosas y de bien social que cuenten con los permisos de funcionamiento, se ubicarán dentro de la categoría C1, por ser de utilidad pública.

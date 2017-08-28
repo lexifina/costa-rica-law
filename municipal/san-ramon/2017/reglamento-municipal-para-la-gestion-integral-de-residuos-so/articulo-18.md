@@ -1,0 +1,1 @@
+Artículo 18°. Residuos de jardín. El servicio de recolección de residuos ordinarios no incluye la recolección de residuos tipo troncos, raíces y ramas, los cuales se trataran como residuos no tradicionales.

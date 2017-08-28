@@ -1,0 +1,1 @@
+Artículo 49°. Hecho generador del tributo. El hecho generador de las tasas lo constituye la prestación efectiva o potencial los servicios públicos de manejo de residuos sólidos ordinarios por parte de la Municipalidad, sobre los propietarios o poseedores de un inmueble ubicado en el territorio bajo su jurisdicción o el área servida.

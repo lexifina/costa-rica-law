@@ -1,0 +1,1 @@
+Artículo 75°. Tipos de incentivos. La Municipalidad podrá brindar incentivos fiscales y no fiscales, los cuales serán definidos de acuerdo a las condiciones financieras, operativas y de planificación de la Municipalidad.

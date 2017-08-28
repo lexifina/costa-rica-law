@@ -1,0 +1,1 @@
+Artículo 22°. Chatarra. El servicio de recolección de residuos ordinarios no incluye la recolección de chatarra. Las actividades que procesen y produzcan este tipo de residuos deberán realizar la movilización por medio de recolección privada como mínimo una vez al mes por medio de un gestor autorizado por el Ministerio de Salud.

@@ -1,0 +1,2 @@
+Artículo 65° Revisión de oficio y cambio de categoría: En los primeros tres meses de cada año civil el Área de Gestión Ambiental podrá realizar un estudio técnico de pesaje de los residuos sin previo aviso para el generador al cual se le ha realizado la recalificación de categoría.
+En caso de que de los resultados estén dentro de la categoría en que fue reasignado se mantendrá la recalificación; caso contrario se notificará al contribuyente que se asignará en la categoría que le corresponde a fin de que manifieste lo pertinente.

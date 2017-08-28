@@ -1,0 +1,1 @@
+Artículo 67°. Sujeto pasivo con permiso de construcción vigente. Todo sujeto pasivo que cuente con permiso de construcción vigente deberá cancelar la categoría correspondiente de acuerdo a la categorización establecida en el artículo 62° de este reglamento. Una vez finalizada la construcción, la Municipalidad tramitará de oficio el cambio de categoría correspondiente.

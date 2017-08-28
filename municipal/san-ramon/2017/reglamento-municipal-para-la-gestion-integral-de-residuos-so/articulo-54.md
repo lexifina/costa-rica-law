@@ -1,0 +1,1 @@
+Artículo 54°. Alcance del cobro por servicios. La Municipalidad realizará el cobro de los servicios de manejo de residuos sólidos ordinarios a todos los sujetos pasivos propietarios o poseedores de inmuebles que se encuentren dentro del alcance de los servicios en el territorio bajo su jurisdicción o el área servida.

@@ -1,0 +1,1 @@
+Artículo 82°. Denuncias. Se considera infractor a toda persona mayor de edad que cometa cualquiera de las infracciones descritas en este reglamento. En contraposición, cualquier persona, física o jurídica podrá presentar denuncias por violaciones a este reglamento ante la Plataforma de Servicios de esta Municipalidad dirigido al Área de Gestión Ambiental.

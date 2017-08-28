@@ -1,0 +1,1 @@
+Artículo 51°. Área servida. Se considera área servida de los servicios, tanto los sitios de prestación directa sobre la vía pública como aquellos que se comunican con ésta, siempre y cuando se dé la prestación efectiva o potencial del servicio.

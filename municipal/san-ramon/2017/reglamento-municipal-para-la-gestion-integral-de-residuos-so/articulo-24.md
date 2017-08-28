@@ -1,0 +1,2 @@
+Artículo 24°. Restos de animales y excretas. La Municipalidad proveerá el manejo sanitario de animales muertos que se encuentren en la vía pública y que se desconozca su generador.
+Los propietarios o responsables de animales de compañía deben recoger y disponer adecuadamente de las excretas de los animales de compañía cuando realicen deposiciones en las aceras, parques, jardines de vecinos o lugares públicos, de acuerdo al artículo 48° del Reglamento para la reproducción y tenencia responsable de animales de compañía.
