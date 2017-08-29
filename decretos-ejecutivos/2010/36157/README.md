@@ -14,3 +14,4 @@ Reglamento de Funcionamiento del Consejo Superior de Trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-09-07 | la propia norma |
+| 2 | 2017-08-29 | Decreto Ejecutivo 40582 (2017-08-29) |
