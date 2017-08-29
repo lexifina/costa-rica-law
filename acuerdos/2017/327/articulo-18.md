@@ -1,0 +1,1 @@
+Artículo 18.—En todo momento deberá valorarse este procedimiento en cada ocasión que se ponga en práctica, asistido por los Principios de Adaptabilidad, Igualdad, Eficiencia, Celeridad, Economía y Simplicidad de trámites, por tratarse de la disposición de productos perecederos.

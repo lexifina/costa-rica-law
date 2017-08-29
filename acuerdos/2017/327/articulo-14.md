@@ -1,0 +1,1 @@
+Artículo 14.—Destrucción. Cuando el producto pesquero recaiga en una inutilización total, según lo declare por escrito SENASA, el INCOPESCA ordenará su destrucción integral, mediante el respectivo acto administrativo e igualmente levantará el acta pertinente que acredite lo actuado, conforme a los artículos 270 y 271 de la Ley N° 6227.

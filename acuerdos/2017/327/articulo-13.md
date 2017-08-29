@@ -1,0 +1,1 @@
+Artículo 13.—Donación. Es el acto mediante el cual se procede a legar el producto pesquero a quien el Incopesca determine mediante el acta correspondiente, todo conforme a los artículos 270 y 271 de la Ley General de la Administración Pública N° 6227.

@@ -1,0 +1,2 @@
+Artículo 3º—Legitimación; participación. Cualquier sujeto de derecho, sea persona física o jurídica, podrá participar en las venta de productos pesqueros como oferente para adquirir la cantidad del producto que sea objeto de la misma.
+Igualmente el Incopesca podrá crear un Registro de Compradores de Productos Pesqueros, el cual deberá estar adscrito al Departamento de Mercadeo de la Dirección de Operación Pesqueras y Acuícolas del Instituto Costarricense de Pesca y Acuicultura.

@@ -1,0 +1,2 @@
+Artículo 11.—Fallo de la venta y adjudicación. Se adjudicará el bien ofrecido al postor que haga la mejor oferta conforme al procedimiento aquí establecido; sin embargo, en caso de no hacerlo, por razones debidamente justificadas, se podrá decidir convocar a una nueva venta; o en su defecto, proceder a donarlo, destruirlo en caso que las condiciones del producto lo ameriten o ante la falta de oferentes durante la celebración de la venta, desistir del proceso.
+No se podrá adjudicar la venta cuando el precio sea ruinoso a criterio del funcionario responsable de hacer la venta

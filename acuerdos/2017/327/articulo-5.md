@@ -1,0 +1,1 @@
+Artículo 5º—Conflictos de Interés. Los funcionarios del INCOPESCA, las instituciones y organizaciones no gubernamentales que intervengan en el proyecto de investigación, así como familiares directos en primer grado o personas físicas o jurídicas con deudas que no hayan prescrito con el INCOPESCA, estarán imposibilitadas de participar en la venta del producto ofertado.

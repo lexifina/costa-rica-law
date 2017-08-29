@@ -1,0 +1,2 @@
+Artículo 15.—Manejo de documentación. Para cada gestión, se abrirá un expediente administrativo individualizado, el cual deberá contener todas las diligencias efectuadas en el proceso de venta, destrucción o donación; consecuentemente, se hará incluir el acta de venta, el proceso de destrucción o la respectiva donación.
+Toda la documentación que presente el SENASA sobre el producto en caso de destrucción deberá formar parte del legajo correspondiente.

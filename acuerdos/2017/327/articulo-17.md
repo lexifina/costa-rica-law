@@ -1,0 +1,1 @@
+Artículo 17.—La dirección general Administrativa, deberá establecer la cuenta bancaria administrativa, parca la correcta administración de los fondos, así como lo mecanismos necesarios para efectuar los pagos al titular del permiso de investigación cuando corresponda así como los gastos de mantenimiento del producto.
