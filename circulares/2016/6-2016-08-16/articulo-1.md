@@ -1,0 +1,10 @@
+DIRECCIÓN DE BIENES MUEBLES
+CIRCULAR N° DRBM-CIR-006-2017
+DE: Dirección de bienes muebles
+PARA: Usuarios externos, entidades públicas, empresas privadas y funcionarios del registro bienes muebles
+ASUNTO: Nuevas disposiciones para los títulos de propiedad
+FECHA: 16 de agosto del 2017
+En nuestro Registro, se emiten títulos de propiedad relacionados con los tres tipos de bienes muebles inscribibles: automotores, aeronaves y embarcaciones, estos documentos son de gran relevancia registral y extra registral, en tanto se constituyen como el medio idóneo para consignar la información de titularidad y características básicas del bien inscrito.
+Hasta la fecha, todo título de propiedad requiere para completar su eficacia de la firma y sello del funcionario emisor, lo cual, por sí mismo, no es un mecanismo de seguridad eficiente o susceptible de verificar por un medio electrónico.
+No obstante, atendiendo a las mejoras que ofrece la tecnología en la actualidad para validar tanto la información contenida en el título como su emisor, a partir del 1 de setiembre de 2017, se implementará en todos los títulos de aeronaves y automotores, la impresión de un código de respuesta rápida, conocido por sus siglas en inglés como “QR”, por medio de este código la imagen impresa podrá ser escaneada desde cualquier dispositivo móvil (teléfonos inteligentes y tabletas), a través de las diversas aplicaciones gratuitas que se encuentran disponibles para descarga.
+Así las cosas, conforme a lo anteriormente expuesto, los funcionarios registradores a partir de la fecha señalada supra, no deberán plasmar su sello o firma en los citados documentos. Salvo que se trate de títulos correspondientes a embarcaciones, por encontrarnos en proceso de precisar con la entidad competente las características básicas que se requieren como obligatorias para la publicidad su publicidad. De forma tal que una vez conciliada la información para estos bienes (embarcaciones) se procederá de inmediato con la emisión del código QR, en estos títulos.
