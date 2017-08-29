@@ -14,3 +14,4 @@ Reglamento de caja chica de la Municipalidad de Santa Ana
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-03-20 | la propia norma |
+| 2 | 2017-08-29 | Reglamento municipal 70 (2017-08-29) |
