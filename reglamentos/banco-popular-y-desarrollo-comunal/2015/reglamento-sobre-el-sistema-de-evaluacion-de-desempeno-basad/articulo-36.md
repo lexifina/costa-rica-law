@@ -1,0 +1,1 @@
+Artículo 36. -Sanciones. El incumplimiento de las responsabilidades contenidas en este reglamento es sancionado previo debido proceso, según lo dispuesto en el Código de Trabajo, Convención Colectiva y en el Reglamento Interior de Trabajo. Rige a partir de su publicación en el Diario Oficial La Gaceta.

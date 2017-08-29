@@ -1,0 +1,1 @@
+Artículo 26. —Parámetros de evaluación. La ponderación de cada criterio se efectúa conforme los parámetros aprobados por la Junta Directiva Nacional y según lo establece el Banco en la normativa interna.

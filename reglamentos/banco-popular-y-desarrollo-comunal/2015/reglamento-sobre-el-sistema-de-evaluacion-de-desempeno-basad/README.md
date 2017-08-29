@@ -14,3 +14,4 @@ Reglamento sobre el sistema de evaluación de desempeño basado en el balance SC
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-11 | la propia norma |
+| 2 | 2017-08-29 | Reglamento 5490 (2017-08-29) |
