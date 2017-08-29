@@ -15,3 +15,4 @@ Reglamento de Comités y Comisiones del Conglomerado Financiero Banco Popular y 
 | --- | --- | --- |
 | 1 | 2015-12-02 | la propia norma |
 | 2 | 2017-04-25 | Reglamento 5457 (2017-04-25) |
+| 3 | 2017-08-29 | Reglamento 5490 (2017-08-29) |
