@@ -14,3 +14,4 @@ Reglamento del Sistema de Actualización Profesional del CFIA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-02-11 | la propia norma |
+| 2 | 2017-08-29 | Reglamento 38 (2017-08-29) |

@@ -1,8 +1,0 @@
-4. Declaración de principios:
-El Sistema de Certificación Profesional se adhiere a los siguientes principios: respeto, equidad, transparencia, ética profesional y responsabilidad social, mismos que deben regir todas las actuaciones individuales y colectivas sin detrimento de lo dispuesto por el Código de Ética del Colegio Federado.
-4.1. Respeto: Se entiende por respeto, la consideración y deferencia con que se tratarán a todos miembros del Colegio Federado que se sometan al proceso de certificación.
-4.2. Confidencialidad: Se refiere a la confianza, seguridad, reserva y salvaguarda de la información que se suministre o se genere como parte del proceso de certificación.
-4.3. Equidad: Se entiende como la disposición de todos los participantes del proceso de certificación profesional, de dar a cada uno lo que merece, en atención de lo dispuesto en el presente Reglamento.
-4.4. Transparencia: Es la garantía de que el proceso de certificación manejará la información correspondiente de manera clara y evidente, que se comprenda sin lugar a la duda ni a la ambigüedad, con el sigilo que el principio de respeto impone.
-4.5. Ética profesional: El sistema de certificación profesional se adhiere en criterios funciones y procedimientos, a los principios éticos en relación con la sociedad, la profesión, los agremiados y la ejecución en el servicio consignados en el Código de Ética del Colegio Federado.
-4.6. Responsabilidad social: Se entiende por responsabilidad social la contribución activa y voluntaria al mejoramiento social, económico y ambiental por parte del sistema de certificación profesional, con el propósito de cumplir los fines y objetivos del Colegio Federado.
