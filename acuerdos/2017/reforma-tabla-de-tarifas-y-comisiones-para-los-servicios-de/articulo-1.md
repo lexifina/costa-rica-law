@@ -1,0 +1,4 @@
+BANCO CRÉDITO AGRÍCOLA DE CARTAGO
+La Junta Directiva General del Banco Crédito Agrícola de Cartago en la sesión N° 9055/17, artículo 14°, realizada el 16 de agosto del 2017, acordó modificar la comisión de cargo por manejo de cuentas corrientes, saldo promedio mínimo mensual y la inclusión de dicha comisión para cuentas de ahorro en la “Tabla de Tarifas y Comisiones para los Servicios de Bancrédito”, que se indican a continuación:
+Cargo por manejo de cuentas corrientes, saldo promedio mínimo mensual, para cuentas en dólares y colones: | $30.00 para aquellos saldos promedios iguales o inferiores a 150 mil colones o su equivalente en dólares.
+Cargo por manejo de cuentas de ahorros, saldo promedio mínimo mensual, para cuentas en dólares y colones: | $20.00 para aquellos saldos promedios iguales o inferiores a 100 mil colones o su equivalente en dólares.
