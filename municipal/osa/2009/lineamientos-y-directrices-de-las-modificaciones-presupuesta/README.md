@@ -14,3 +14,4 @@ Lineamientos y directrices de las modificaciones presupuestarias y presupuestos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-03-12 | la propia norma |
+| 2 | 2017-08-30 | Reglamento municipal 35 (2017-08-30) |
