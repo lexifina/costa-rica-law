@@ -1,0 +1,1 @@
+Artículo 19.-Comunicación de resultados. Una vez recibido la aprobación del proceso de nombramiento por parte de la Contraloría, la Comisión Especial deberá notificar por escrito mediante medio autorizado por el participante, el puntaje obtenido.

@@ -1,0 +1,1 @@
+Artículo 5º-Plazo del proceso. De conformidad con el artículo 28 de la Ley General de Control Interno N° 8292, la plaza de Auditor Interno deberá de llenarse en un plazo máximo de tres meses, contados a partir del momento de la vacante. El plazo podrá prorrogarse por otros tres meses con fundamento en razones debidamente acreditadas en el expediente que se confeccione.

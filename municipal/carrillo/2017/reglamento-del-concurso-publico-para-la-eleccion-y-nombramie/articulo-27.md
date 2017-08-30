@@ -1,0 +1,4 @@
+Artículo 27.-Rige a partir de su publicación. Acuerdo definitivamente aprobado por el Concejo Municipal de Carrillo, en su sesión ordinaria Nº 27 acuerdo N°3, inciso N°3, del día 4 del mes julio del año 2017.
+Por lo tanto: solicita la Comisión se tome el acuerdo de aprobación del "Reglamento del Concurso Público para la Elección y Nombramiento del Auditor Interno de la Municipalidad de Carrillo".
+SE ACUERDA; Este Concejo Municipal por unanimidad de votos dispone, Aprobar y solicitar a la SECRETARIA DEL CONCEJO se realice la publicación respectiva por segunda vez en el Diario Oficial La Gaceta. Acuerdo definitivamente aprobado. Tomado mediante acuerdo 06, de la sesión ordinaria 32-2017 del 08 de agosto, se aclara que su primera publicación fue en sesión ordinaria N° 27, acuerdo N°3, inciso N°3 del 04 de julio del 2017.
+Filadelfia, Carrillo, 21 de agosto del 2017

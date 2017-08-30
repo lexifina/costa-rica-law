@@ -1,0 +1,1 @@
+Artículo 10.-Plazo y lugar para la recepción de ofertas. El plazo para la presentación y recepción de ofertas será de 10 días hábiles a partir de la publicación del concurso, en el departamento de Recursos Humanos de la Concejo Municipal de Carrillo en forma Digital y deberá presentarse los títulos o documentación respectiva originales, para ser confrontados.

@@ -1,0 +1,2 @@
+Artículo 11.-Supuestos bajo los cuales se excluye una oferta del proceso. Una vez vencido el plazo para la recepción de ofertas, según lo dispuesto en los artículos 10 y 11, los oferentes que no hayan completado su oferta o presentado los requisitos solicitados, quedarán excluidos del proceso.
+Igualmente se excluirán del proceso quienes no se presenten a las entrevistas y evaluaciones convocadas, en la fecha, hora y lugar informados oportunamente por el medio idóneo y seguro.
