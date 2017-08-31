@@ -1,0 +1,1 @@
+II. Prevenir a los prestadores de este servicio que deben observar el cumplimiento de las obligaciones en materia tributaria, el pago de cargas sociales, y el cumplimiento de las leyes laborales (artículo 6, inciso c) de la Ley 7593).

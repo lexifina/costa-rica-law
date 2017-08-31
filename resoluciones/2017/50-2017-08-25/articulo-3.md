@@ -1,0 +1,2 @@
+III. Establecer que el valor que debe cancelarse por el uso de vías de tránsito (peaje) no está considerado como un costo dentro de la tarifa del servicio de transporte remunerado de personas en la modalidad taxis, de ahí que dependiendo de la vía de tránsito que escoja el usuario, éste deberá pagarlo en forma adicional a la tarifa.
+El pago del peaje procede únicamente cuando el usuario está haciendo uso del servicio de taxi.
