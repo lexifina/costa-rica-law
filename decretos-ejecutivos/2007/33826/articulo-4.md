@@ -1,10 +1,6 @@
-Artículo 4º—El Comité de Seguimiento estará conformado por los siguientes miembros acreditados:
-· Un representante del SINAC que participará como Coordinador (a) de la Comisión y principal responsable del SIReFOR.
-· Un representante del FONAFIFO.
-· Un representante de la ONF.
-· Un representante del Colegio de Ingenieros Agrónomos.
-· Un representante de la Junta Nacional Forestal Campesina.
-· Un representante de la Cámara Costarricense Forestal.
-· Un representante del Ministerio de Agricultura y Ganadería.
-· Un representante de la Asociación Coordinadora Indígena y Campesina de Agroforestería Comunitaria Centroamericana.
-· Un representante de la Organización de Naciones Unidas para la Agricultura y la Alimentación.
+Artículo 4º—La Comisión Interinstitucional de Seguimiento del Plan Nacional de Desarrollo Forestal (PNDF) estará conformado por los siguientes miembros acreditados:
+a) Un representante del SNAC que coordinará la Comisión de Seguimiento.
+b) Un representante del FONAFIFO.
+c) Un representante de la ONF.
+d) Un representante del Colegio de Ingenieros Agrónomos de Costa Rica.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40698 del 31 de agosto del 2017)
