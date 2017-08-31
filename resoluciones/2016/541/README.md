@@ -14,3 +14,4 @@ Establece el límite de gasto al Fondo Nacional de Financiamiento Forestal, para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-01-06 | la propia norma |
+| 2 | 2017-08-31 | Resolución 316 (2017-08-31) |

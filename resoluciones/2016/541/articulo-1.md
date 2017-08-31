@@ -69,6 +69,23 @@ f) Específicamente, los servicios ambientales en plantaciones y bloques en sist
 g) El Fonafifo podrá modificar cuando así se solicite, aquellos contratos suscritos antes del año 2006, que demuestren haber alcanzado una producción mínima de 13 metros cúbicos de volumen anual por hectárea. Para tales efectos, el Fonafifo podrá solicitar la información que considere pertinente.
 h) El Fonafifo para constatar los datos presentados en todos los casos requerirá la presentación de los datos de las mediciones individuales de los árboles incluidos en las parcelas de medición que para sus efectos se tienen que establecer en los proyectos de reforestación.
 i) El Sistema Nacional de Áreas de Conservación, deberá establecer un plan para el fomento de las plantaciones forestales de manera que las seis mil doscientas hectáreas de reforestación, incluidas en la presente resolución se distribuyan de la siguiente manera: Región Brunca 375 hectáreas, Región Central 160 hectáreas. Región Chorotega 2755 hectáreas, Región Huetar Atlántica 504 hectáreas. Región Huetar Norte 1 779 y Región Pacífico Central 908 hectáreas. De conseguirse la meta en alguna Región, el Fonafifo podrá destinar los recursos a otras regiones.
+(*)1.2.1.A. Sub-actividad denominada Plantaciones Forestales con Turnos de Rotación Reducidos (PFTRR). Las condiciones que regirán para el trámite de solicitudes, para el reconocimiento de los servicios ambientales en la actividad de Plantaciones Forestales con turnos de rotación reducidos serán las siguientes:
+a) De los montos de pago por actividad y otras condiciones:
+Para el año 2017, se incluirá dentro de la modalidad de Recuperación de la Cobertura Forestal, la subactividad de Plantaciones Forestales con Turnos de Rotación Reducidos (PFTRR), hasta por una cantidad máxima de 2,000 hectáreas, las cuales son parte de las 6,210 hectáreas previstas para la actividad de reforestación en 2017 con especies de rápido crecimiento.
+b) El monto a pagar para las Plantaciones Forestales con Turnos de Rotación Reducidos (PFTRR), será de trecientos sesenta y un mil quinientos treinta y un colones 00/100 (361.531 colones con 00/100) por hectárea. Los pagos serán distribuidos de la siguiente forma: 50% el primer año, 25% el segundo año y 25% el cuarto año.
+c) El Fondo Nacional de Financiamiento Forestal utilizará los siguientes mínimos para tramitar los pagos correspondientes a cada año:
+Valores de mínimos para el diámetro (DAP cm) y la altura total (m), esperada por año para las Plantaciones Forestales con Turnos de Rotación Reducidos (PFTRR) para la especie Gmelina Arborea y especies del grupo de rápido crecimiento:
+Edad (años) | VRM DAP* (cm) | VRM Alt Tot** (m)
+1 | - | 3,29
+2 | 8,88 | 6,65
+3 | 13,35 | 9,73
+4 | 14,69 | 10,69
+5 | 17,55 | 12,48
+6 | 19,53 | 13,80
+* DAP, diámetro a la altura de pecho mínima de referencia en centímetros
+** Alt, Altura total mínima de referencia en metros
+Para las plantaciones para producción de Dendroenergía, las densidades pueden variar 2000 árboles/ ha, y 5000 árboles/ha, igualmente la cosecha final no podrá realizarse antes de los seis años.
+(*) (Así adicionado el punto 1.2.1.A) anterior por el artículo 1° de la resolución N° R-016 del 31 de agosto de 2017)
 1.2.2. Actividad de Regeneración Natural: Las condiciones que regirán para el trámite de solicitudes, para el reconocimiento de los servicios ambientales en la actividad de Regeneración Natural, se detallan a continuación.
 a) El monto a pagar en Regeneración Natural. será de ciento nueve mil ciento seis colones con 00/1 00 (¢109.106) por hectárea, desembolsados en cinco pagos anuales de 20% durante un período de cinco años.
 1.2.3. Actividad de Sistemas Agroforestales: Las condiciones que regirán para el trámite de solicitudes, para el reconocimiento de los servicios ambientales en la actividad de Sistemas Agroforestales, se detallan a continuación.

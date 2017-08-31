@@ -13,3 +13,11 @@ Adicionalmente. para los contratos de Reforestación de rápido crecimiento, deb
 3.11. En el caso de las solicitudes de ingreso presentadas en la actividad de protección y que presenten varias fincas; la calificación dependerá de la finca de mayor tamaño que se incluya en la solicitud.
 3.12. En el caso de las solicitudes de ingreso de Reforestación y Sistemas Agroforestales que involucren mezclas de especies de rápido, mediano y/o en vías de extinción, el valor del contrato dependerá del monto menor establecido en estos tipos de especies.
 3.13. Los arreglos de los Sistemas Agroforestales que involucren especies de uso múltiple y maderables deberán realizarse con al menos un 20 % de los árboles de especies maderables.
+3.14. Para cubrir el costo de inscripción del contrato ante el Registro Nacional, el Fondo Nacional de Financiamiento Forestal retendrá en el primer desembolso del monto total del contrato, un 0,6% para las Plantaciones Forestales con Turnos de Rotación Reducidos (PFTRR).
+(Así adicionado el inciso anterior por el artículo 3° de la resolución R-0316 del 31 de agosto de 2017)
+3.15. El beneficiario del proyecto PFTRR deberá contar durante todo el plazo del contrato, con un regente forestal debidamente inscrito en el Colegio de Ingenieros Agrónomos, quien deberá informar de previo a cada pago, el estado de la plantación y sus crecimientos en diámetro y altura.
+(Así adicionado el inciso anterior por el artículo 3° de la resolución R-0316 del 31 de agosto de 2017)
+3.16. Previo a cada pago de cada proyecto PFTRR, se debe contar con una certificación de un regente forestal, donde se detalle el estado de la plantación y que se cumplen las condiciones mínimas indicadas en el artículo 1 de esta resolución y lo establecido en el Manual de Procedimiento para el Pago de Servicios Ambientales 2009 y sus modificaciones.
+(Así adicionado el inciso anterior por el artículo 3° de la resolución R-0316 del 31 de agosto de 2017)
+3.17. El Fonafifo para constatar los datos presentados, en todos los casos requerirá la presentación de los datos de las mediciones individuales de los árboles incluidos en las parcelas de medición, que para sus efectos se tienen que establecer en los proyectos de plantaciones forestales.
+(Así adicionado el inciso anterior por el artículo 3° de la resolución R-0316 del 31 de agosto de 2017)

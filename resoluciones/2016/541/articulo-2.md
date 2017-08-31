@@ -7,3 +7,5 @@ vigencia sin embargo, dado que ya están plantados se les reconocerán retroacti
 c) Los contratos correspondientes a la actividad de Protección de Bosque tendrán una vigencia de cinco años a partir de su firma.
 d) Los contratos correspondientes a la actividad de Regeneración Natural tendrán una vigencia de cinco años a partir de su firma.
 e) Los contratos correspondientes a la actividad de Manejo de Bosque, tendrán una vigencia de cinco años a partir de su firma. De previo a la firma del contrato, deberá constar en el expediente la certificación de que fue aprobado el plan de manejo, según los Estándares de Sostenibilidad para Manejo de Bosques Naturales: Principios, Criterios e Indicadores, Código de Prácticas y Manual de Procedimientos, Decreto Ejecutivo N° 27388-MINAE publicado el 2 de noviembre de 1998, y el Decreto Ejecutivo N° 34559-MINAE publicado en La Gaceta N° 115, del día 16 de junio de 2008.
+f) Los contratos correspondientes a la subactividad de Plantaciones Forestales con Turnos de Rotación Reducidos (PFTRR), tendrán una vigencia de seis años.
+(Así adicionado el inciso anterior por el artículo 2° de la resolución R-0316 del 31 de agosto de 2017)
