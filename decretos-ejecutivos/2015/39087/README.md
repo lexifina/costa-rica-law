@@ -14,3 +14,4 @@ Reglamento para la operación de Hornos Crematorios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-11-18 | la propia norma |
+| 2 | 2017-08-31 | Decreto Ejecutivo 40663 (2017-08-31) |
