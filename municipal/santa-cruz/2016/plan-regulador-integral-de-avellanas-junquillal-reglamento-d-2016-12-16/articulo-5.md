@@ -1,0 +1,19 @@
+ARTÍCULO 5.- ZONA MIXTA (MIX)
+a. Definición ZONA MIXTA DE TURISMO Y MONUNIDAD (MIX) Áreas para el desarrollo de empresas turísticas de mediana densidad en actividades de hospedaje, restaurantes, comercio, hospedaje con tiendas para acampar y otros negocios relacionados con el turismo. El desarrollo en estas áreas debe permitir la integración de las pareas comunitarias existentes (vivienda e instalaciones públicas) y pequeños negocios al desarrollo futuro. Como resultado de esto, se induciría el desarrollo mixto de turismo y comunidad a densidades relativamente medias o altas. Las empresas de hospedaje que se instalen en esta área deberán contar con la respectiva declaratoria turística emitida por el ICT y a tal efecto deberán observar lo señalado en el Reglamento de Empresas de Hospedaje Turístico.
+b. Condicionantes del Plan Regulador | Usos de la zona | Uso turístico: Empresas turísticas con la declaratoria turística emitida por el ICT. El tipo, características y servicios complementarios de las empresas corresponderán a los incluidos en el Reglamento de las empresas y actividades turísticas, y el Reglamento de empresas de hospedaje turístico, ambos dictados por el ICT. Hospedaje con tiendas para acampar: - Recepción, duchas, servicios sanitarios, guardarropa, parqueo para usuarios, espacio para instalación de tiendas de campaña, circulaciones internas. Uso Residencial: - Vivienda de recreo sin fines comerciales para uso del concesionario y su familia. - Viviendas de alquiler con área administrativa y de mantenimiento. Comercio: Tiendas, abarrotes, sodas, cafeterías, suvenir y pequeños comercios.
+Localización | Las Zonas Mixtas de Servicios Básicos (Turístico y Comunal) se han ubicado en varios sectores del área de planificación y se puede localizar en la lámina de zonificación mediante sus siglas MIX.
+c. Condicionantes ambientales derivada del análisis IFA | Condicionantes ambientales | La zona presenta limitantes hidrogeológicas, litopetrofísicas y amenazas naturales El impacto ambiental potencial es medio.
+Usos de la zona | Uso turístico: Mínimo 500 metros2; Máximo: 10,000 m² cada lote
+Hospedaje con tiendas para acampar: mínimo 500 m² máximo 2000 m²
+Uso vivienda: Mínimo: Las áreas mínima y máxima por cada lote, se regirán de acuerdo a lo establecido en el Artículo 65 del Reglamento de la Ley de la Zona Marítimo Terrestre.
+Uso comercial: mínimo 200 m² máximo 2000 m²
+Coberturas 70% Turismo: De 20 a 50 habitaciones /hectárea. · Hospedaje con tiendas para acampar: No aplica · Vivienda: Una vivienda por lote, o una cada 200 metros de terreno cuando existan varias viviendas en un mismo lote. Para proteger los derechos de las personas, cuando exista más de una casa por lote, la concesión deberá someterse al régimen de condominio en los términos en que lo establece la respectiva legislación. · Comercio: Una unidad comercial por lote. 2 pisos en 10 metros de altura máximo. Para las zonas de hospedaje con tiendas de acampar: 1 piso en 5 metros de altura
+| Localización | Las Zonas Mixtas (Turístico y Comunidad) se han ubicado en varios sectores del área de planificación y se puede localizar en la lámina de zonificación mediante sus siglas MIX. |
+| | | |
+d. Condicionantes técnicas y ambientales: las condicionantes técnicas a las que debe sujetarse el uso del suelo para esta zona son las siguientes:
+ Realizar los estudios de geotecnia y respetar las recomendaciones establecidas para el diseño cimentación de las obras.
+ Las edificaciones deben cumplir con las especificaciones del Código Sísmico.
+ Utilizar sistemas de tratamiento de aguas negras y grises para reducir la posibilidad de impacto.
+ Reforestar con especies endémicas la zona para promover la permanencia y atracción de fauna.
+ Respetar las áreas máximas de construcción, altura y número de pisos, áreas verdes y recreativas establecidas en el Plan Regulador.
+ El diseño de la infraestructura debe guardar la armonía con el entorno.

@@ -1,0 +1,18 @@
+ARTÍCULO 11.-LINEAMIENTOS AMBIENTALES GENERALES PARA ELPLAN
+Como parte del Reglamento de Zonificación y Desarrollo Sostenible, considerando además los aspectos ambientales establecidos en el Índice de Fragilidad Ambiental, la propuesta de zonificación según los factores ambientales analizados, así como los mandatos legales establecidos en la legislación vigente mencionada anteriormente, se fijarán los lineamientos ambientales generales que cubren la temática del desarrollo propuesto.
+Es importante indicar que en la zona en general no se presentó ninguna condición significativamente adversa o que contamine. No obstante, la protección del ambiente es primordial a través de las medidas que permitan asegurar el disfrute y sostenibilidad a futuro. Entre los lineamientos que permitirán mantener el uso conforme se destacan los siguientes:
+a. El diseño de la infraestructura debe realizarse asumiendo el compromiso y responsabilidad ambiental, evitando impactos por factores asociados a color, iluminación, reflejos y cobertura.
+b. Realizar los estudios de geotecnia en las zonas donde se construya infraestructura acatando las recomendaciones geotécnicas para el diseño de cimentación de las obras, para evitar afectaciones como licuefacción.
+c. Para el efecto del diseño de obras civiles del proyecto deberán considerarse las condiciones de riesgo sísmico y aplicar lo indicado en el Código Sísmico.
+d. El diseño deberá contemplar zonas verdes, cada área debe ser distribuida uniformemente considerando la armonía con el medio.
+e. Promover la regeneración de la cobertura vegetal así como la plantación de especies naturales endémicas que ayuden a mitigar la erosión en el suelo
+f. Respetar lo retiros establecidos en la Ley Forestal.
+g. Mantener el uso conforme en aquellas zonas donde éste se presenta como la zona pública, la zona de patrimonio nacional y zona de protección de las quebradas.
+h. Mantener la conectividad existente entre los remanentes boscosos en proceso de regeneración, la vegetación de la playa, los bosques de galería, y las áreas silvestres protegidas adyacentes para que funcione como un corredor biológico.
+i. En la fase constructiva de la infraestructura se recomienda contar con sistemas de recolección de aguas grises; las casetas sanitarias deben estar ubicadas sobre una capa impermeable que no permita la filtración de aguas negras y evitar el derrame de combustibles o sustancias tóxicas peligrosas.
+j. Se prohíbe el uso de tanques sépticos convencionales como sistema de tratamiento de aguas negras, o bien se debe presentar un estudio de tránsito de contaminantes donde se indique que las condiciones son idóneas para justificar su utilización.
+k. Evitar sistemas de desfogue de aguas que propicien la erosión o cualquier tipo de contaminación.
+l. El diseño de pluviales debe, en la medida de lo posible, respetar los patrones de escorrentía naturales preexistentes y seguir los lineamientos técnicos.
+m. Contar con un plan de emergencia y evacuación para tomar las previsiones en el diseño, ante la posible sucesión de eventos extremos en caso de inundaciones, tsumani y sismos.
+n. Evitar la congestión de vehículos en la zona manteniendo una circulación fluida en las áreas viales.
+o. De realizarse proyectos complejos en la zona, éstos deberán promover actividades que coadyuven en el desarrollo local como la contratación de mano de obra local; colaborar con la no promoción de actividades relacionadas con el comercio sexual o cualquier otra actividad que atente contra la integridad y desarrollo local. Finalmente colaborar con programas que ayuden a la comunidad.
