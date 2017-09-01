@@ -1,4 +1,6 @@
+(Derogado)
 N° 9024
+(Esta norma fue derogada por el artículo 18 de la Ley de Impuesto a las Personas Jurídicas, N° 9428 del 21 de marzo de 2017)
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
