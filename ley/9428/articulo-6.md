@@ -1,0 +1,1 @@
+ARTÍCULO 6.- Base de datos de los contribuyentes. La Dirección General de Tributación creará una base de datos consultable por medios electrónicos para que el público pueda verificar si los contribuyentes se encuentran al día o en estado moroso con el pago de este impuesto.

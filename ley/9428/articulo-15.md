@@ -1,0 +1,1 @@
+ARTÍCULO 15.- Situación excepcional. Se autoriza al Ministerio de Seguridad Pública, para que al amparo de esta ley, y por única vez, cree mil plazas policiales, cuyos costos podrán ser cubiertos, durante toda su existencia, por los recursos provenientes de la presente ley.
