@@ -1,0 +1,1 @@
+ARTÍCULO 14.- Aplicación supletoria del Código de Normas y Procedimientos Tributarios. Para lo no previsto expresamente en esta ley, se aplicará supletoriamente lo establecido en la Ley N.º 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971.
