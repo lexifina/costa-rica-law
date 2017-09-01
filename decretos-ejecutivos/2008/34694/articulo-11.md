@@ -1,5 +1,6 @@
 Artículo 11.—De las funciones del órgano operativo. Las funciones de la Unidad de Inversiones Públicas de MIDEPLAN serán las siguientes:
-a) Apoyar a los despachos en la elaboración del Plan Nacional de Inversión Pública (PNIP) de conformidad con los decretos ejecutivos Nº 31324-PLAN y Nº 33695-PLAN.
+a) Apoyar a los despachos en la elaboración del Plan Nacional de Inversión Pública (PNIP).
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40691 del 1° de setiembre del 2017)
 b) Presentar a los despachos las normas, procedimientos y metodologías para la formulación, evaluación y presentación de proyectos de inversión en los términos que se indica en este Reglamento.
 c) Administrar el funcionamiento del SNIP, buscando definir y perfeccionar los mecanismos de coordinación institucional en el proceso de la inversión.
 d) Preparar y actualizar periódicamente las guías metodológicas generales o específicas relativas a las diferentes etapas del ciclo de vida del proyecto de inversión pública.
