@@ -1,0 +1,1 @@
+Artículo 5°- Se previene a las Directoras y Directores y a las Juntas de Educación y Administrativas, de los centros educativos públicos, que el Tribunal Supremo de Elecciones, podría ceder espacios a los partidos políticos, dependiendo de las particularidades propias que presenta cada centro de votación, para la instalación de toldos, mesas u otros bienes.
