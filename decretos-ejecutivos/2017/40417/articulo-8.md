@@ -1,0 +1,1 @@
+Artículo 8º. Contribuyentes omisos en el Impuesto sobre la Renta. En el caso de un contribuyente omiso en el Impuesto sobre la Renta, se consignará el estatus de moroso en el Impuesto hasta tanto no normalice su condición tributaria.

@@ -1,0 +1,1 @@
+Artículo 9º. Medios para el pago del Impuesto. El pago del impuesto se realizará a través del sistema de pago por conectividad bancaria. Mediante resolución general emitida por la Dirección General de Tributación, se podrá establecer otras formas y medios de pago.

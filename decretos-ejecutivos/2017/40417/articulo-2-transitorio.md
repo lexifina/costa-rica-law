@@ -1,0 +1,1 @@
+Transitorio II.- Suministro de información. La Dirección General de Tributación y el Registro Nacional establecerán los mecanismos tecnológicos necesarios para el suministro de información que facilite la administración y control de este impuesto.
