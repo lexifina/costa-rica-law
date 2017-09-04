@@ -1,1 +1,1 @@
-Artículo 29°—Rige a partir de su publicación.
+Artículo 29.—Rige a partir de su publicación.

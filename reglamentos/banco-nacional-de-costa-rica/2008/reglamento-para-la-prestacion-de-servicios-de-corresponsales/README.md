@@ -18,3 +18,4 @@ Reglamento para la Prestación de Servicios de Corresponsales BN Servicios del B
 | 3 | 2011-11-16 | Acuerdo 0 (2011-11-16) |
 | 4 | 2012-12-04 | Reglamento 11805 (2012-12-04) |
 | 5 | 2016-05-16 | Reglamento 12079 (2016-05-16) |
+| 6 | 2017-09-04 | Reglamento 12188 (2017-09-04) |

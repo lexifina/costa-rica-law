@@ -1,1 +1,1 @@
-Artículo 16°—El CORRESPONSAL BN SERVICIOS es totalmente responsable ante el BANCO por los daños y perjuicios ocasionados a terceros, en razón de la no prestación del servicio por factores ajenos al BANCO.
+Artículo 16.—El CORRESPONSAL BN SERVICIOS es totalmente responsable ante el BANCO por los daños y perjuicios ocasionados a terceros, en razón de la no prestación del servicio por factores ajenos al BANCO.
