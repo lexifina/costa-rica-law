@@ -1,1 +1,0 @@
-Artículo 11.—Las tarifas que se cobren en el Mercado Municipal por concepto de alquiler, serán fijadas por la Municipalidad. Las recalificaciones y aumentos de alquileres se harán conforme a lo establecido en la Ley No 7027 del 12 de marzo de 1986.

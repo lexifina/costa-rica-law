@@ -1,4 +1,0 @@
-Artículo 20.—La Municipalidad de Orotina, se reserva el derecho de dar por terminado y sin lugar a indemnización alguna para el adjudicatario, el contrato celebrado con éste por cualquiera de la causales establecidas en este reglamento, especialmente:
-a) Por cierre o clausura del puesto o negocio, por parte del inquilino, sin autorización previa de la administración.
-b) Por especular o acaparar en el puesto o negocio o negarse a vender los artículos o mercaderías al público o esconderlas o guardarlas para crear escasez artificial o propiciar con ello el aumento de los precios.
-c) Por demolición o remodelación parcial del mercado. No obstante, los inquilinos que por razones expuestas en este inciso se vean perjudicados, conservarán el derecho de prioridad para ocupar nuevamente los locales, cuando el mercado se rehabilite.
