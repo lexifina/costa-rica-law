@@ -1,6 +1,2 @@
-Artículo 9º-El nombramiento de los miembros de la CONITTA será por
-dos años. Para ocupar los puestos en esta Comisión, las instituciones
-enviarán terna al Ministro Rector, quien escogerá al funcionario, y
-solamente en el caso de las Universidades, el nombramiento lo hará
-CONARE. El nombramiento deberá ser rotativo entre las instituciones que
-integran cada sector.
+'Artículo 9° - El nombramiento de los miembros de la CONITTA será por dos años. Para ocupar los puestos en esta Comisión, las instituciones o instancias, enviarán una tema al Ministro Rector, quien escogerá al miembro y solamente en el caso de las Universidades, el nombramiento lo hará CONARE. El nombramiento será rotativo entre las instituciones o instancias que integran cada sector. En el caso de omisión reiterada del envió de la tema indicada, el Ministro Rector nombrará temporalmente de los registros del sector, al miembro correspondiente, que permita la integración y funcionamiento de la CONITTA.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40685 del 4 de setiembre de 2017)

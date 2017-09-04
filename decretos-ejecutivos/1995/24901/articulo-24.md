@@ -1,4 +1,2 @@
-Artículo 24º- Los programas trabajarán por proyectos de
-investigación, transferencia, capacitación, según su naturaleza. Estos
-programas tendrán su origen en necesidades específicas de los productores
-y en las políticas nacionales que determine la Asamblea General.
+Artículo 24º - Los programas trabajarán por proyectos de investigación, innovación, transferencia, o capacitación, según su naturaleza. Estos programas tendrán su origen en necesidades específicas de los sectores y productores miembros de la agrocadena y en las políticas nacionales que determine el Gobierno, el Ministro Rector o la Asamblea General.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40685 del 4 de setiembre de 2017)

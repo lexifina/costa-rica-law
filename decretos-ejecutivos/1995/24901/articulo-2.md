@@ -1,6 +1,2 @@
-Artículo 2º- Los órganos que integran el Sistema Nacional de
-Investigación y Transferencia de Tecnología Agropecuaria son: la Asamblea
-General de las instituciones que integran el Sistema, la Comisión
-Nacional de Investigación y Transferencia de Tecnología Agropecuaria
-(CONITTA), la Secretaría Ejecutiva, y los Comités Técnicos de
-Investigación y Transferencia de Tecnología Agropecuaria.
+Artículo 2º- Los órganos que integran el Sistema Nacional de Investigación, Innovación y Transferencia de tecnología Agropecuaria de Costa Rica (SNITTA)(*) son: la Asamblea General de las instituciones que integran el Sistema, la Comisión Nacional de Investigación y Transferencia de Tecnología Agropecuaria (CONITTA), la Secretaría Ejecutiva, y los Comités Técnicos de Investigación y Transferencia de Tecnología Agropecuaria.
+(*) (Así modificada su denominación por el artículo 3° del decreto ejecutivo N° 40685 del 4 de setiembre de 2017. Anteriormente se indicaba: “Sistema Nacional de Investigación y Transferencia de Tecnología Agropecuaria”)

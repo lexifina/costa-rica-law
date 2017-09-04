@@ -1,2 +1,2 @@
-Artículo 5º- La asistencia a las sesiones de la Asamblea General es
-obligatoria para sus miembros y no podrán enviar suplentes.
+Artículo 5° - La asistencia a las sesiones de la Asamblea General es obligatoria para sus miembros, sin embargo, por razones justificadas podrán enviar un suplente, el cual deberá ser del nivel superior y tendrá las mismas atribuciones y responsabilidades del titular. A la Asamblea General podrán invitarse a participar, con derecho a voz, otras instancias, entes u organizaciones que realicen actividades vinculadas o asociadas a los fines del SNITTA, públicas o privadas.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40685 del 4 de setiembre de 2017)

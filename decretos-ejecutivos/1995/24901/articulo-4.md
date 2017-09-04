@@ -1,7 +1,2 @@
-Artículo 4º- La Asamblea General será convocada por el Ministro
-Rector y se reunirá ordinariamente una vez al año, con el propósito de
-dictar las políticas en la materia, conocer informes y evaluar el
-desempeño de las instituciones que integran el Sistema, y de asignar las
-responsabilidades pertinentes a las instituciones para el próximo
-período. Se reunirá en forma extraordinaria cuando la convoquen cinco de
-sus miembros.
+Artículo 4°- La Asamblea General será convocada por el Ministro Rector y se reunirá ordinariamente una vez al año, con el propósito de valorar y recomendar soluciones al Ministro de Agricultura y Ganadería sobre el desempeño de las instituciones que integran el Sistema. Se podrá reunir en forma extraordinaria, cuando así lo solicite el Ministro de Agricultura y Ganadería o un mínimo de siete de sus miembros. La Asamblea se reunirá válidamente en primera convocatoria con la participación de catorce de sus miembros, en segunda convocatoria con diez y en tercera convocatoria con cinco de sus miembros y sus acuerdos se adoptarán por mayoría simple de votos presentes.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40685 del 4 de setiembre de 2017)
