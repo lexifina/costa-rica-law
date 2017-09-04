@@ -1,2 +1,2 @@
-Artículo 19. — El informe de movimiento de estupefacientes y psicotrópicos en los establecimientos farmacéuticos, deberá generarse a través del Sistema Receta Digital y enviarse en forma mensual, en los primeros quince días hábiles del mes siguiente de vencido el período del informe y en el formato establecido por el Ministerio de Salud para tal fin, dicho informe incluirá el detalle de las recetas despachadas por el establecimiento mediante el sistema digital.
-Las recetas digitales originalmente emitidas por el prescriptor, quedarán custodiadas por el Ministerio de Salud en sus sistemas por un período de cinco años.
+Artículo 19.- Las recetas digitales originalmente emitidas por el prescriptor, quedarán custodiadas por el Ministerio de Salud en sus sistemas por un período de cinco años.
+(Así reformado por el artículo 4° del decreto ejecutivo N° 40821 del 4 de setiembre de 2017)

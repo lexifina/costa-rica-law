@@ -14,3 +14,4 @@ Reglamento de Utilización y Funcionamiento del Sistema Automatizado de Receta D
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-11-09 | la propia norma |
+| 2 | 2017-09-04 | Decreto Ejecutivo 40821 (2017-09-04) |
