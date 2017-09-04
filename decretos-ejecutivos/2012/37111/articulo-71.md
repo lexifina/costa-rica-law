@@ -1,0 +1,3 @@
+Artículo 71. Para constatar las faltas al presente reglamento y demás disposiciones vigentes en esta materia, la Junta de Vigilancia de Drogas, conocerá los hallazgos y dará traslado al profesional y/o al representante legal del establecimiento farmacéutico por un plazo de 10 días hábiles para que presente su descargo y la prueba que considere necesaria.
+Una vez presentado el descargo de las partes, la Junta de Vigilancia de Drogas analizará los argumentos y resolverá si procede la aplicación de alguna medida, en cuyo caso establecerá mediante resolución motivada.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 40821 del 4 de setiembre de 2017)

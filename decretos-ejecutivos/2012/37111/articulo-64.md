@@ -1,3 +1,4 @@
 CAPÍTULO IX
 DISPOSICIONES FINALES
-Artículo 64. — Deróguense el Decreto Ejecutivo N° 33245-S del 9 de mayo de 2006, publicado en La Gaceta Nº 150 del 7 de agosto de 2006, y el Decreto Ejecutivo No. 32862 del 27 de julio del 2005, publicado en La Gaceta No. 15 del 20 de enero del 2006.
+Artículo 64.- Las faltas que pueden ser sancionadas conformes al artículo 63 de este Reglamento, se clasifican en leves, graves y muy graves.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40821 del 4 de setiembre de 2017)

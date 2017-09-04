@@ -1,0 +1,4 @@
+Artículo 66. Se considera falta grave:
+1. La infracción de cualquiera de los artículos 28, 29, 30, 33 y 35 del presente Reglamento; del artículo 49 del Reglamento de Establecimientos Farmacéuticos Privados, Decreto Ejecutivo No. 16765-S del 13 de diciembre de 1985, publicado en La Gaceta No. 10 del 15 de enero de 1986; de los artículos 4.3.7 y 4.4.10 del Decreto Ejecutivo No. 31969-S publicado en la Gaceta No. 175 del 07 de setiembre de 2004, que publicó el Manual de Normas para la Habilitación de Farmacias; y de los artículos 14, 15, 16, 17, 20 y 21 del Reglamento de Utilización y Funcionamiento del Sistema Automatizado de Receta Digital, Decreto Ejecutivo No. 39984-S del 01 de setiembre de 2016, publicado en el Alcance No. 252 a La Gaceta No. 215 del 09 de noviembre de 2016.
+2. Haber incurrido en faltas leves dos o más veces durante un periodo de seis meses.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 40821 del 4 de setiembre de 2017)
