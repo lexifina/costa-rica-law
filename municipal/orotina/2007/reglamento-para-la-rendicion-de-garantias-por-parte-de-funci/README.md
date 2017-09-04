@@ -14,3 +14,4 @@ Reglamento para la Rendición de Garantías por parte de Funcionarios de la Muni
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-09-13 | la propia norma |
+| 2 | 2017-09-04 | Reglamento municipal 109 (2017-09-04) |
