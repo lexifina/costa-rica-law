@@ -21,3 +21,4 @@ Reglamento a la Ley de Salarios y Régimen de Méritos del Tribunal Supremo de E
 | 6 | 2016-05-05 | Decreto TSE 4 (2016-05-05) |
 | 7 | 2016-06-22 | Decreto TSE 6 (2016-06-22) |
 | 8 | 2016-12-06 | Decreto TSE 14 (2016-12-06) |
+| 9 | 2017-09-05 | Decreto TSE 10 (2017-09-05) |
