@@ -1,0 +1,118 @@
+N° 40604–COMEX
+EL PRESIDENTE DE LA REPÚBLICA Y
+LOS MINISTROS DE HACIENDA Y DE COMERCIO EXTERIOR
+De conformidad con las facultades y atribuciones que les conceden los artículos 50, 140 incisos 3 ), 8) 10), 18) y 20) y 146 de la Constitución Política; los artículos 4, 25, 27 párrafo 1, 28 párrafo 2 inciso b) de la Ley General de la Administración Pública, Ley Nº 6227 del 02 de mayo de 1978; la Ley de Creación del Ministerio de Comercio Exterior y de la Promotora del Comercio Exterior de Costa Rica, Ley Nº 7638 del 30 de octubre de 1996; los artículos 5.15 y 19.1 del Tratado de Libre Comercio entre los Estados Unidos Mexicanos y las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras y Nicaragua, Ley de Aprobación Nº 9122 del 06 de marzo de 2013; y
+CONSIDERANDO:
+I.- Que el Tratado de Libre Comercio entre los Estados Unidos Mexicanos y las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras y Nicaragua, que entró en vigencia para Costa Rica el 01 de julio de 2013, fue aprobado mediante Ley Nº 9122 del 06 de marzo de 2013 y ratificado mediante el Decreto Ejecutivo Nº 37689-COMEX del 23 de abril de 2013.
+II.- Que la Comisión Administradora del Tratado de Libre Comercio entre los Estados Unidos Mexicanos y las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras y Nicaragua, aprobó la Decisión Nº 09 de fecha 24 de enero de 2017, denominada "Reglamentaciones Uniformes del Tratado de Libre Comercio entre los Estados Unidos Mexicanos y las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras y Nicaragua" y su Anexo.
+III.-Que en cumplimiento de lo establecido en dicho Tratado, debe publicarse la citada Decisión.
+Por tanto;
+DECRETAN:
+Publicación de la Decisión Nº 09 de fecha 24 de enero de 2017 de la Comisión
+Administradora del Tratado de Libre Comercio entre los Estados Unidos
+Mexicanos y las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras y Nicaragua:
+"Reglamentaciones Uniformes del Tratado de Libre Comercio entre los Estados Unidos
+Mexicanos y las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras y Nicaragua" y
+su Anexo.
+Artículo 1.- Publíquense la Decisión Nº 09 de fecha 24 de enero de 2017 de la Comisión Administradora del Tratado de Libre Comercio entre los Estados Unidos Mexicanos y las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras y Nicaragua: "Reglamentaciones Uniformes del Tratado de libre Comercio entre los Estados Unidos Mexicanos y las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras y Nicaragua" y su Anexo; que a continuación se transcriben:
+DECISIÓN No. 9
+24 de enero de 2017
+Reglamentaciones Uniformes del Tratado de Libre Comercio entre los Estados
+Unidos Mexicanos y las Repúblicas de Costa Rica, El Salvador, Guatemala,
+Honduras y Nicaragua
+La Comisión Administradora del Tratado de Libre Comercio entre los Estados Unidos Mexicanos y las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras y Nicaragua (Tratado), en cumplimiento con lo establecido en los artículos 5.15 (Reglamentaciones Uniformes) y 19.1.3(b)(iii) (Comisión Administradora) del Tratado,
+DECIDE:
+1. Adoptar las Reglamentaciones Uniformes referentes a la interpretación, aplicación y administración de los capítulos IV (Reglas de Origen), V (Procedimientos Aduaneros Relacionados con el Origen de las Mercancías) y cualquier otro capítulo del Tratado, como se establece en el Anexo de esta Decisión.
+2. El Anexo de la presente Decisión forma parte integrante de la misma.
+3. Instruir al Comité de Origen, Procedimientos Aduaneros relacionados con el Origen de las Mercancías y Facilitación del Comercio, para que de conformidad con el Artículo 5.14.8(a) del Tratado, de seguimiento a la aplicación y administración del Artículo 4.18 (Transbordo y Expedición Directa), a fin de alcanzar un acuerdo mutuamente satisfactorio entre las Partes en un plazo de 3 meses contados a partir de la entrada en vigor de la presente Decisión.
+4. La presente Decisión entrará en vigor a los 45 días siguientes de la fecha de su firma.
+[imagen]
+[imagen]
+ANEXO
+Reglamentaciones Uniformes del Tratado de Libre Comercio entre los Estados
+Unidos Mexicanos y las Repúblicas de Costa Rica, El Salvador, Guatemala,
+Honduras y Nicaragua
+TÍTULO I: REGLAS DE ORIGEN
+SECCIÓN I: TRANSBORDO Y EXPEDICIÓN DIRECTA
+1. Para los efectos del Artículo 4.18 del Tratado de Libre Comercio entre los Estados Unidos Mexicanos y las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras y Nicaragua (Tratado), el importador podrá acreditar que las mercancías originarias de la otra Parte que hayan estado en tránsito, con o sin transbordo, almacenamiento temporal o separación del envío, por el territorio de uno o más Estados no Parte del Tratado, estuvieron bajo vigilancia de la autoridad aduanera competente en esos Estados, con la documentación siguiente:
+(i) Con los documentos de transporte, tales como la guía aérea, el conocimiento de embarque o la carta de porte, según sea el caso, en los que conste la fecha y el lugar de embarque de las mercancías y el puerto, aeropuerto o punto de entrada del destino final, cuando dichas mercancías hayan estado en tránsito por el territorio de uno o más Estados no Parte del Tratado sin transbordo o almacenamiento temporal.
+(ii) Con los documentos de transporte, tales como la guía aérea, el conocimiento de embarque o la carta de porte, según sea el caso, o el documento de transporte multimodal cuando las mercancías sean objeto de transbordo por diferentes medios de transporte, donde conste la circunstancia de que las mercancías que hayan estado en tránsito fueron únicamente objeto de transbordo sin almacenamiento temporal en uno o más Estados no Parte del Tratado.
+(iii) Con los documentos de transporte, tales como la guía aérea, el conocimiento de embarque o la carta de porte, según sea el caso, y la copia de los documentos de control aduanero que comprueben que las mercancías permanecieron bajo control y vigilancia de la autoridad aduanera, tratándose de mercancías que estando en tránsito hayan sido objeto de transbordo con almacenamiento temporal en uno o más Estados no Parte del Tratado.
+TÍTULO II: PROCEDIMIENTOS ADUANEROS RELACIONADOS CON EL ORIGEN DE LAS MERCANCÍAS
+SECCIÓN 1: DECLARACIÓN Y CERTIFICACIÓN DE ORIGEN
+2. Para los efectos del Artículo 5.2 del Tratado y estas Reglamentaciones, se entenderá por certificado de origen válido, el certificado de origen que haya sido llenado y firmado conforme a lo dispuesto en el Capítulo V del Tratado, y al formato e instructivo para su llenado acordado por las Partes.
+3. Para los efectos de lo dispuesto en el Artículo 5.2, párrafos 1 y 2 del Tratado, el certificado de origen que ampare una mercancía que se importe bajo trato arancelario preferencial, deberá presentarse en el formato acordado por las Partes.
+4. El certificado de origen y la declaración de origen que se establecen en el Artículo 5.2 del Tratado deberán ser llenados y firmados por el exportador o por el productor de la mercancía o un representante autorizado de éstos, de acuerdo con lo dispuesto en el instructivo de llenado correspondiente, así como en las disposiciones aplicables del Tratado. Los formatos mencionados en este párrafo son de libre reproducción.
+5. De conformidad con lo dispuesto en el Artículo 5.2.5 del Tratado, cuando el exportador no sea el productor de la mercancía, el exportador llenará y firmará el certificado de origen, con fundamento en su conocimiento de que la mercancía califica como originaria o en una declaración de origen que ampara la mercancía objeto de exportación, la cual deberá ser llenada y firmada por el productor de la mercancía y proporcionada voluntariamente al exportador. Lo anterior no debe interpretarse en el sentido de obligar al productor de una mercancía a proporcionar una declaración de origen al exportador.
+6. Para los efectos del Artículo 5.2.6(a) del Tratado, una sola importación significa un solo embarque, amparado en una o más declaraciones de importación, o bien, más de un embarque, amparado en una sola declaración de importación.
+SECCIÓN II: OBLIGACIONES RESPECTO A LAS IMPORTACIONES
+7. Para los efectos de lo dispuesto en el Artículo 5.3.1(c) del Tratado, cuando la autoridad competente de la Parte importadora requiera una copia del certificado de origen, deberá considerarlo como no válido y negar el trato arancelario preferencial en el caso de que se encuentre en cualquiera de los siguientes supuestos:
+l. cuando sea ilegible o presente alguna raspadura, tachadura o enmienda;
+II. cuando las mercancías descritas en el certificado de origen no correspondan a las que se importen con el trato arancelario preferencial solicitado en la declaración de
+importación;
+II. cuando se omita llenar algún campo obligatorio del certificado de origen conforme a lo dispuesto en el instructivo de llenado; salvo el número del fax, teléfono, correo electrónico, y en caso que no se indique la palabra "NO" en las casillas 8 y 1 O, cuando corresponda;
+IV. cuando se utilice un formato de certificado de origen de un acuerdo comercial distinto al del Tratado, o
+V. cuando sea expedido por un exportador ubicado en un Estado no Parte del Tratado.
+En el caso de que el certificado de origen sea presentado fuera del período de vigencia, la autoridad competente de la Parte importadora no aceptará dicho certificado y negará el trato arancelario preferencial, de conformidad con lo dispuesto en el Artículo 5.2. 7 del Tratado.
+Cuando se importen mercancías bajo trato arancelario preferencial, amparadas por un certificado de origen válido y la clasificación arancelaria que se señale en éste difiera de la clasificación arancelaria contenida en la declaración de importación, se estará sujeto a lo siguiente:
+l. En los casos en que la clasificación arancelaria que se señale en el certificado de origen difiera de la clasificación arancelaria contenida en la declaración de importación por haberse expedido con base en una versión diferente del Sistema Armonizado de conformidad con las enmiendas acordadas en la Organización Mundial de Aduanas, en tanto no se lleven a cabo las modificaciones a la legislación de la materia, se considerará como válido dicho certificado de origen, siempre que la descripción de la mercancía señalada en el mismo coincida con la contenida en la declaración de importación y permita la identificación plena de las mercancías presentadas a despacho.
+ii. En los casos en que cada una de las Partes haya emitido un criterio de clasificación arancelaria para una misma mercancía y dichos criterios difieran entre sí, prevalecerá la clasificación arancelaria de la Parte importadora. Sin embargo, la autoridad competente de la Parte importadora deberá considerar como válido el certificado de origen, aún y cuando en el mismo se haya declarado la clasificación arancelaria determinada por la Parte exportadora, siempre que la descripción de las mercancías declaradas en dicho certificado permita la identificación plena de las mercancías presentadas para su despacho aduanero y se cumpla con el procedimiento establecido para tales efectos por la Parte importadora.
+Lo dispuesto en el párrafo anterior será aplicable únicamente para esa operación, considerando que en subsecuentes operaciones prevalecerá el criterio de la Parte importadora, en tanto las Partes lleguen a un acuerdo.
+Aquellos certificados de origen que presenten en el llenado o en el formato errores de forma u otros irrelevantes, tales como errores mecanográficos, que no impidan la apreciación de la información relevante o pongan en duda la veracidad de la misma, serán aceptados por la autoridad competente de la Parte importadora.
+Asimismo, salvo lo establecido en los párrafos anteriores de este numeral, en los demás casos, incluyendo aquellos en donde no exista coincidencia de la clasificación arancelaria establecida en el certificado de origen respecto a la clasificación arancelaria de la declaración de importación, la autoridad competente de la Parte importadora deberá solicitar al importador, por única vez y de forma improrrogable, que le proporcione en un término de 15 días contados a partir de que reciba la notificación del requerimiento, una copia del certificado de origen en la que se subsanen las irregularidades correspondientes, siempre y cuando las mercancías descritas en el certificado de origen correspondan a las que se importen con el trato arancelario preferencial y con la descripción de la mercancía en la declaración de importación.
+En caso de que no se subsanen las citadas irregularidades dentro del término indicado, la autoridad competente de la Parte importadora negará el trato arancelario preferencial conforme a lo dispuesto en el Artículo 5.3.3 del Tratado.
+SECCIÓN iii: EXCEPCIONES
+8. De conformidad con lo dispuesto en el Artículo 5.5 del Tratado, no se requerirá el certificado de origen tratándose de importaciones de mercancías originarias cuyo valor en aduanas no exceda del equivalente en moneda nacional a 1,000 dólares de los Estados Unidos de América, ni a las importaciones que la Parte importadora haya dispensado del requisito, siempre que dichas importaciones no formen parte de una serie de importaciones que se efectúen o se pretendan realizar con el propósito de evadir los requisitos de certificación señalados en los artículos 5.2 y 5.3 del Tratado.
+No obstante lo anterior, las importaciones de mercancías originarias con fines comerciales cuyo valor no exceda el monto a que se refiere el párrafo anterior, deberán contar con la declaración que a continuación se indica para certificar que la mercancía califica como originaria, misma que deberá ser firmada por el exportador de la mercancía, por el importador o por sus representantes legales. Dicha declaración deberá incluirse en la factura que ampare la mercancía o anexarse a la misma, y estar escrita a mano, a máquina o impresa.
+"Declaro bajo protesta de decir verdad que las mercancías amparadas en la presente factura comercial son originarias de (las Repúblicas de Costa Rica, El Salvador, Guatemala, Honduras, Nicaragua o los Estados Unidos Mexicanos. según corresponda), de conformidad con las disposiciones establecidas en el Capítulo IV (Reglas de Origen) del Tratado de Libre Comercio entre los Estados Unidos Mexicanos y las Repúblicas de Costa Rica, El Salvador, Guatemala,
+Honduras y Nicaragua, la cual tiene fines comerciales y no forma parte de una serie de importaciones que se efectúen con el propósito de evadir el cumplimiento de los artículos 5.2 y 5.3 del Tratado.
+Firma------------------------------
+Fecha------------------------------
+9. Para los efectos del numeral 8 de las presentes Reglamentaciones, se considerará que:
+l. Una importación se realiza con fines comerciales, cuando se efectúa con propósitos de venta, o utilización para la realización de actividades comerciales, industriales o de servicios.
+II. Una importación forma parte de una serie de importaciones efectuadas o que se pretendan realizar con el propósito de evadir el cumplimiento de los artículos 5.2 y 5.3 del Tratado, cuando se presenten dos o más declaraciones de importación que amparen mercancías ingresadas en el mismo envío y despachadas al amparo de una o más facturas comerciales del mismo exportador.
+SECCIÓN IV: PROCEDIMIENTOS PARA VERIFICAR EL ORIGEN
+10. El cuestionario o solicitud dirigida al exportador o productor, al que se hace referencia en el Artículo 5.7.2, incisos (a) y (b) del Tratado, deberá ir acompañado de un oficio que contenga, entre otros, la siguiente información:
+I. identificación de la autoridad que solicita la información;
+II. nombre del exportador o productor a quien va dirigido el cuestionario o solicitud;
+III. indicación de que se trata de un procedimiento de verificación de origen;
+IV. el objeto y alcance del cuestionario o solicitud, haciendo mención específica de la mercancía o mercancías objeto de la verificación;
+V. plazo otorgado para responder y devolver el cuestionario o solicitud;
+VI. fundamento legal, y
+VIl. la posibilidad de negar el trato arancelario preferencial en caso de que el exportador o productor incumpla con su obligación de proporcionar los elementos documentales que acrediten el origen de las mercancías sujetas a verificación.
+SECCIÓN V: CRITERIOS ANTICIPADOS
+11. Para los efectos de lo dispuesto en el Artículo 5.11 del Tratado, se entenderá por criterio anticipado la resolución administrativa que de manera expedita y previa a la importación de una mercancía, emita la autoridad competente de la Parte importadora respecto a los supuestos establecidos en el párrafo 3 del mismo Artículo.
+12. De conformidad con lo dispuesto en el Artículo 5.11.1 del Tratado, podrán solicitar un criterio anticipado:
+l. cualquier importador en su territorio, o
+II. cualquier productor o exportador en el territorio de otra Parte.
+13. Para los efectos de lo dispuesto en el Artículo 5.11 del Tratado, el escrito en que se solicite un criterio anticipado deberá ser dirigido a la autoridad competente de la Parte importadora e incluir la siguiente información:
+I. el nombre completo, denominación o razón social y domicilio del importador, exportador o productor de la mercancía objeto de la solicitud;
+II. una manifestación hecha por la persona que solicita el criterio anticipado, en la que señale si se ha solicitado u obtenido un criterio anticipado respecto de dicha mercancía o si el asunto en cuestión se encuentra sujeto a alguna instancia de revisión o impugnación en el territorio de cualquiera de las Partes;
+III. una manifestación en la que se señale si la mercancía objeto de la solicitud de un criterio anticipado ha sido previamente importada;
+IV. una descripción completa de todos los hechos y circunstancias relevantes que se relacionen con el objeto de la solicitud, la cual deberá incluir una declaración dentro del alcance de lo establecido en el Artículo 5.11.3 del Tratado, señalando el asunto por el que se solicita la emisión del criterio anticipado;
+V. una descripción detallada de la mercancía objeto del criterio anticipado, y
+VI. el domicilio del solicitante para oír y recibir notificaciones.
+No serán objeto de un criterio anticipado los asuntos que se encuentren sujetos a una verificación de origen o a una instancia de revisión o impugnación, en cualesquiera de las Partes del Tratado.
+14. El escrito en que se solicite un criterio anticipado deberá incluir, además de lo establecido en el numeral 13 de las presentes Reglamentaciones, la información necesaria para permitir a la autoridad competente de la Parte importadora determinar la clasificación arancelaria de la mercancía objeto de la solicitud, así como, en caso de ser necesario, de los materiales utilizados en la producción de la mercancía. El escrito comprenderá lo siguiente:
+l. una copia de la resolución en la que se determine la clasificación arancelaria para la mercancía o material objeto del criterio anticipado, emitida por la autoridad competente en territorio de la otra Parte, en su caso, y
+II. una descripción completa de la mercancía o material incluyendo, en su caso, su naturaleza, composición, estado y características, una descripción de su proceso de producción, una descripción del empaque en el que la mercancía será importada, el destino, utilización o uso final de la mercancía o material, así como su designación comercial, común o técnica y dibujos, fotografías, catálogos, folletos o muestras dela mercancía o material.
+15. Cuando la solicitud de un criterio anticipado verse sobre si los materiales no originarios utilizados en la producción de la mercancía cumplen con el cambio de clasificación arancelaria aplicable, de conformidad con lo dispuesto en el Artículo 5.11.3(b) del Tratado, el escrito de solicitud deberá incluir lo siguiente:
+l. una lista de todos los materiales utilizados en la producción de la mercancía, señalando para cada uno de ellos si son originarios, no originarios o de origen desconocido;
+II. la descripción completa de cada uno de los materiales originarios, señalando el fundamento con base en el cual se considera que son originarios;
+III. la descripción completa de cada uno de los materiales no originarios o de origen desconocido, incluyendo la clasificación arancelaria de los mismos, y
+IV. la descripción, el lugar y la secuencia de cada proceso de producción empleado en la elaboración de la mercancía.
+16. Cuando la solicitud de un criterio anticipado verse sobre el cumplimiento de un requisito de valor de contenido regional, de conformidad con lo dispuesto en el Artículo 5.11.3(c) del Tratado, deberá indicarse si la solicitud se basa en el uso del método de valor de transacción o en el método de costo neto, en los términos del Artículo 4.4.1 del Tratado.
+17. Cuando la solicitud de un criterio anticipado implique el uso del método de valor de transacción, de conformidad con lo dispuesto en el Artículo 5.11.3( d) del Tratado, el escrito en que se solicite el criterio anticipado deberá incluir lo siguiente:
+I. información suficiente para calcular el valor de transacción de la mercancía, de conformidad con lo dispuesto en el Capítulo IV del Tratado;
+II. información suficiente para calcular el valor de todos los materiales no originarios o de origen desconocido utilizados en la producción de la mercancía, de conformidad con lo dispuesto en el Capítulo IV del Tratado, y
+III. una descripción completa de los materiales originarios utilizados en la producción de la mercancía, señalando el fundamento con base en el cual se considera que son originarios.
+18. Cuando la solicitud de un criterio anticipado implique el uso del método de costo neto, de conformidad con lo dispuesto en el Artículo 4.4.4 del Tratado, el escrito en el que se solicite el criterio anticipado deberá incluir lo siguiente:
+I. una lista con la información suficiente para determinar el costo total de la mercancía;
+II. una lista con los costos que deben sustraerse del costo total;
+III. información suficiente para el cálculo del valor de todos los materiales no originarios o de origen desconocido utilizados en la producción de la mercancía;
+IV. la base para calcular la asignación de costos, y
+V. el periodo sobre el cual se calculó el costo neto.
+19. De conformidad con lo dispuesto en el Artículo 5.11.4(b) del Tratado y para efectos del numeral 14 de las presentes Reglamentaciones, la autoridad competente de la Parte importadora podrá requerir información adicional en cualquier momento a la persona que solicita el criterio anticipado, durante el proceso de evaluación de la solicitud.
+20. Cuando el escrito en el que se hace la solicitud del criterio anticipado no cumpla con los requisitos establecidos en el numeral 13 de las presentes Reglamentaciones o cuando se requiera que el solicitante presente información adicional, la autoridad competente de la Parte importadora notificará al solicitante que cuenta con un plazo de 30 días, contados a partir de la fecha de notificación del requerimiento correspondiente, para cumplir con el requisito omitido o presentar la documentación o información adicional. De lo contrario, se tendrá por no presentada la solicitud respectiva.
+21. De conformidad con lo dispuesto en el Artículo 5.11.4( c) del Tratado, el criterio anticipado deberá emitirse en un plazo no mayor a 120 días, contados a partir de la fecha en que se haya recibido toda la información necesaria de la persona que lo solicita.
+Cuando se requiera que la persona que solicita el criterio anticipado cumpla con los requisitos omitidos o proporcione los elementos necesarios para resolver, el término a que se refiere el párrafo anterior comenzará a correr desde que el requerimiento haya sido cumplido.
