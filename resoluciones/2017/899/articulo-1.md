@@ -1,0 +1,29 @@
+DIRECCIÓN GENERAL DE ADUANAS
+RESOLUCIÓN DE ALCANCE GENERAL
+RES-DGA-DN-899-2017
+DIRECCIÓN GENERAL DE ADUANAS, San José, a las catorce horas cuarenta y cinco minutos del día nueve de junio del año dos mil diecisiete.
+CONSIDERANDO:
+I. Que Mediante Ley de la República número 9430 del 04 de abril de 2017, se aprobó el Protocolo de Enmienda del Acuerdo de Marrakech por el que se establece la Organización Mundial del Comercio, Ginebra 27 de noviembre 2014 y su anexo (Acuerdo sobre Facilitación del Comercio), mismo que fue publicado en el Alcance N° 83 a La Gaceta N° 74 del 20 de abril del 2017 y ratificado mediante el artículo 1° del Decreto Ejecutivo N° 40342 del 4 de abril de 2017, publicado en Alcance N° 83 a La Gaceta N° 74 del 20 de abril de 2017.
+II. Que el artículo 10, inciso 2, sub inciso 2.3 del Protocolo de Enmienda del Acuerdo de Marrakech por el que se establece la Organización Mundial del Comercio, Ginebra 27 de noviembre 2014 y su anexo (Acuerdo sobre Facilitación del Comercio) establece lo siguiente:
+“ARTÍCULO 10: FORMALIDADES EN RELACIÓN CON LA
+IMPORTACIÓN, LA EXPORTACIÓN Y EL TRÁNSITO
+(...)
+2 Aceptación de copias
+(...)
+2.3 Ningún Miembro exigirá el original ni copia de las declaraciones de exportación presentadas a las autoridades aduaneras del Miembro exportador como requisito para la importación.¹¹
+(...)
+________________________
+¹¹ Nada de lo dispuesto en el presente párrafo impide a un Miembro solicitar documentos tales como certificados, permisos o licencias como requisito para la importación de mercancías controladas o reguladas”.
+III. Que el artículo 7 de la Constitución Política de la República de Costa Rica, establece que los tratados públicos, los convenios internacionales y los concordatos, debidamente aprobados por la Asamblea Legislativa, tendrán desde su promulgación o desde el día que ellos designen, autoridad superior a las leyes.
+IV. Que en virtud de lo señalado por nuestra Carta Magna, el Protocolo de Enmienda del Acuerdo de Marrakech por el que se establece la Organización Mundial del Comercio, Ginebra 27 de noviembre 2014 y su anexo (Acuerdo sobre Facilitación del Comercio), tiene una mayor jerarquía que la Ley General de Aduanas. Razón por la que por disposición del artículo 10 inciso 2, sub inciso 2.3 del citado Acuerdo de Facilitación, nuestro país no debe solicitar el requisito contenido en el inciso d) del artículo 86 de la Ley General de Aduanas a los países Miembros de la Organización Mundial del Comercio.
+V. Que mediante oficio del Viceministro de Comercio Exterior DVI-COR-CAE-0089-2017 del día 30 de mayo de 2017, se remitió a la Dirección General de Aduanas la lista oficial de países Miembros de la Organización Mundial del Comercio, en esa fecha, indicándose además que la misma se encuentra sujeta a la adhesión de nuevos países por lo que es importante que periódicamente se revise el sitio web de la Organización Mundial del Comercio.
+VI. Que el artículo 4º de la Ley General de la Administración Pública Nº 6227 de 02 de mayo de 1978, dispone que “La actividad de los entes públicos deberá estar sujeta en su conjunto a los principios fundamentales del servicio público, para asegurar su continuidad, su eficiencia, su adaptación a todo cambio en el régimen legal o en la necesidad social que satisfacen y la igualdad en el trato de los destinatarios, usuarios o beneficiarios”.
+VII. Que el artículo 9 de la Ley General de Aduanas, establece como funciones del Servicio Nacional de Aduanas, actualizar los procedimientos aduaneros y proponer las modificaciones de las normas, para adaptarlas a los cambios técnicos, tecnológicos y a los requerimientos del Comercio Internacional.
+VIII. Que el artículo 6º del Reglamento a la Ley General de Aduanas, Decreto No. 25270-H de 14 de junio de 1996, sus reformas y modificaciones vigentes, establece que: “Es competencia de la Dirección General, determinar y emitir las políticas y directrices que orienten las decisiones y acciones hacia el efectivo cumplimiento de los fines del régimen jurídico aduanero y la consecución de los objetivos del Servicio Nacional de Aduanas”.
+POR TANTO:
+Con base en las potestades otorgadas en la Ley General de Aduanas N° 7557, de fecha 20 de octubre de 1995, sus reformas y modificaciones vigentes, el Reglamento a la Ley General de Aduanas Decreto Ejecutivo número 25270-H de fecha 14 de junio de 1996, sus reformas y modificaciones vigentes, y en la Ley General de Administración Pública N° 6267 de 2 de mayo de 1978.
+EL DIRECTOR GENERAL DE ADUANAS, RESUELVE:
+1. Que el artículo 10 inciso 2, sub inciso 2.3 del Protocolo de Enmienda del Acuerdo de Marrakech por el que se establece la Organización Mundial del Comercio, Ginebra 27 de noviembre 2014 y su anexo (Acuerdo sobre Facilitación del Comercio), tiene una mayor jerarquía que el artículo 86 inciso d) de la Ley General de Aduanas, por lo que las Autoridades Aduaneras no exigirán el original ni copia de las declaraciones de exportación como requisito para la importación, a ninguno de los países exportadores que sean Miembros de la Organización Mundial del Comercio, los cuales se citan en el Anexo 1 adjunto a la presente Resolución.
+2. El requisito contendido en el artículo 86 inciso d) de la Ley General de Aduanas, será exigido únicamente para las importaciones de las mercancías provenientes de países exportadores no Miembros de la Organización Mundial del Comercio.
+3. Se instruye a la Dirección de Gestión Técnica de la Dirección General de Aduanas para que proceda a ejecutar los respectivos requerimientos y ajustes al sistema TIC@, para el cumplimiento de lo establecido en el artículo 10 inciso 2, sub inciso 2.3 del Protocolo de Enmienda del Acuerdo de Marrakech y su Anexo el Acuerdo de Facilitación y a mantener actualizado en el sistema de cita, la lista de los países Miembros de la Organización Mundial del Comercio.
+4. Rige dos meses después de su publicación en el Diario Oficial La Gaceta.
