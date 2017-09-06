@@ -14,3 +14,4 @@ Comisión Institucional de Control Interno del Ministerio de Educación Pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-02-23 | la propia norma |
+| 2 | 2017-09-06 | Directriz 0 (2017-09-06) |
