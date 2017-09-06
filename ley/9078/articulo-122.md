@@ -11,3 +11,4 @@ g) De carga cuya capacidad haya sido modificada de forma tal que exceda el peso 
 h) Que no cuenten con el respectivo marchamo, el derecho de circulación, la IVE y el certificado de seguro obligatorio.
 i) Importados, contraviniendo lo dispuesto en el artículo 5 de la presente ley.
 j) Declarados pérdida total, conforme al artículo 157 de esta ley.
+(Mediante resolución de la Sala Constitucional, N° 14253 del 6 de setiembre de 2017,se interpretó este numeral, en el sentido que la sanción ahí prevista se aplica, únicamente, al conductor que es propietario registral del vehículo.)
