@@ -1,0 +1,1 @@
+Artículo 15. El investigador se compromete a remitir al Incopesca en idioma español informes de avance mensuales, trimestrales, semestrales o anuales según se haya establecido en el Plan de Actividades y un Informe Final a más tardar 90 días calendario a partir de la finalización de la investigación.

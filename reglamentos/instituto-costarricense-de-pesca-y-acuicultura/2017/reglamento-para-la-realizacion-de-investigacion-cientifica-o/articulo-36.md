@@ -1,0 +1,1 @@
+Artículo 36. Para los fines consiguientes el Incopesca deberá suscribir convenios marcos de Cooperación en materia de investigación con universidades públicas, centros de investigación, organismos de investigación u otros, que deseen realizar investigación científica o de fomento.

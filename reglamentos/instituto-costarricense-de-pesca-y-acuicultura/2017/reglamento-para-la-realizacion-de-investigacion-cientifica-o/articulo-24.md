@@ -1,0 +1,1 @@
+Artículo 24. El investigador deberá de acatar las indicaciones y recomendaciones establecidas en dicha supervisión, así como las ya establecidas en el permiso de investigación otorgado al inicio del proyecto.

@@ -1,0 +1,1 @@
+Artículo 12. El investigador responsable del proyecto deberá comunicar por escrito al Departamento del Incopesca respectivo, cualquier cambio en la información contenida en el Formulario de Solicitud o en el Plan de Actividades presentado, antes de implementar estos cambios en la ejecución de su proyecto de investigación.

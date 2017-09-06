@@ -1,0 +1,1 @@
+Artículo 4. La función principal de la COTICIF será aprobar y coordinar la investigación Científica o de Fomento, Pesquero o Acuícola, sobre los Recursos Vivos Marinos, Acuáticos Continentales o Acuícolas que se realice fuera de las Áreas Marinas Protegidas bajo Jurisdicción del MINAE será coordinar la investigación.

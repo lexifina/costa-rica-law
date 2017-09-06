@@ -1,0 +1,1 @@
+Artículo 20. Corresponderá a la COTICIF recibir, analizar y evaluar los informes de avance o final de cada uno de los proyectos de investigación autorizados. Esta comisión podrá nombrar a un funcionario del Departamento de Desarrollo e Investigación o del Departamento de Acuicultura, para que dé seguimiento y supervisión a los proyectos de investigación.

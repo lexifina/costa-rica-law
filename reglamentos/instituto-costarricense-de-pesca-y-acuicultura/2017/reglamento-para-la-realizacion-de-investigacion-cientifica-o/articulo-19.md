@@ -1,0 +1,1 @@
+Artículo 19. El coordinador de la COTICIF abrirá un expediente físico de cada investigación e incluirá, en una base de datos física toda la documentación aportada, para lo cual deberá asegurar la integridad física y lógica de dicha base de datos.

@@ -1,0 +1,1 @@
+Artículo 21. De no presentarse los informes de avance, el investigador deberá enviar a la COTICIF, una justificación indicando las razones por las cuales los informes no han sido presentados en la fecha indicada y en cuyo caso, se dará un plazo adicional máximo de hasta 15 días hábiles.

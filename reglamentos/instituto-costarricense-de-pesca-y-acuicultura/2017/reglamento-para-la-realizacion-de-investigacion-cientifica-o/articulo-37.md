@@ -1,0 +1,1 @@
+Artículo 37. En el caso de la investigación que realiza el Incopesca mediante contratación y utilizando fondos concursables, se tiene que tener un Convenio de Cooperación entre el Incopesca y la institución que va a realizar la investigación.

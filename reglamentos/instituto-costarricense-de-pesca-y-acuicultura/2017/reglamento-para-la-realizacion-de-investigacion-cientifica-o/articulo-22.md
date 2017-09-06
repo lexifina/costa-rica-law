@@ -1,0 +1,1 @@
+Artículo 22. En caso de incumplimiento respecto a la presentación de los informes en el plazo señalado en el punto anterior y sin la debida justificación, la COTICIF comunicará del incumplimiento a la Junta Directiva del INCOPESCA, para que se tomen las medidas pertinentes.

@@ -1,0 +1,1 @@
+Artículo 23. El encargado del seguimiento del Proyecto, nombrado por la COTICIF, podrá realizar visitas periódicas a los lugares de muestreo y otros, procediendo en cada visita a completar el Formulario de Supervisión, que deberá ser firmado por el investigador a quien se le hará entrega del original, en tanto la copia se adjuntará al expediente respectivo.

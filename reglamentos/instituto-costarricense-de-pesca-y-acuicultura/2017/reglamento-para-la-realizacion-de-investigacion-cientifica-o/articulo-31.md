@@ -1,0 +1,1 @@
+Artículo 31. El emplazamiento y la utilización de cualquier tipo de instalaciones o equipo de investigación científica, no constituirán un obstáculo en las rutas de navegación nacional o internacional establecidas.

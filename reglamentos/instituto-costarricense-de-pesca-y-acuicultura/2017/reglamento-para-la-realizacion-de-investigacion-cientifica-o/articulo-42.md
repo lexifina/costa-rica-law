@@ -1,0 +1,1 @@
+Artículo 42. La lista de investigaciones de interés institucional también será enviada por la COTICIF, a las universidades públicas que reciben fondos por venta de licencias de atún, para que se dé prioridad a esas investigaciones.

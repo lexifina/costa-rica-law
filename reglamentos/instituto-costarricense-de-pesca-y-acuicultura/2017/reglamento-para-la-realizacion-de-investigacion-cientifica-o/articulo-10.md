@@ -1,0 +1,1 @@
+Artículo 10. Una vez recibido el expediente en Junta Directiva, ésta tendrá un plazo de un mes calendario, para tomar una acuerdo, positivo o negativo y devolver el expediente de nuevo a COTICIF. El coordinador de esta comisión informará al interesado acerca del acuerdo, para que inicie la investigación o para solicitar las correcciones, si así lo decidiera esa Junta Directiva.

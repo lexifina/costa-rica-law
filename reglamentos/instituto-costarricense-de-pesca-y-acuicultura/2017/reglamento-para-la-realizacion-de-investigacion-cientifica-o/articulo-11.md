@@ -1,0 +1,1 @@
+Artículo 11. En el caso de que la respuesta sea negativa, COTICIF otorgará un plazo máximo al interesado de hasta 60 días calendario para que se presente la información adicional. Vencido dicho plazo, si no se presentase la información adicional, la COTICIF procederá a archivar la solicitud.
