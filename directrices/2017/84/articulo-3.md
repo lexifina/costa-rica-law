@@ -1,0 +1,1 @@
+Artículo 3°.- Los jerarcas de las instituciones parte del Sistema Nacional de Inversión Pública procurarán verificar de manera responsable el contenido de la información que se publique en el BPIP, cuya actualización se dará en tiempo real a través del módulo en línea de dicho Banco.

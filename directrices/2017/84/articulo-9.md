@@ -1,0 +1,1 @@
+Artículo 9°.- Para la puesta en práctica de esta Directriz, se contempla el Anexo I, disponible en la página web del Ministerio de Planificación Nacional y Política Económica, cuya actualización se dará de forma anual y con la debida comunicación a los jerarcas instituciones sujetos al Sistema Nacional de Inversión Pública.

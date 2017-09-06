@@ -1,0 +1,1 @@
+Artículo 5°.- Las instituciones sujetas al Sistema Nacional de Inversión Pública procurarán reportar y programar el indicador de avance físico en porcentaje acumulativo por trimestre y por su parte, el avance financiero en miles de colones acumulados por trimestre.

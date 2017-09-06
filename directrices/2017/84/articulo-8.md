@@ -1,0 +1,1 @@
+Artículo 8°.- Se instruye a las instituciones del Sistema Nacional de Inversión Pública para que ingresen al menos nueve fotografías de la etapa de ejecución del proyecto, contemplando tres imágenes antes iniciar de dicha fase, tres durante el proceso constructivo y tres al finalizar las obras, según lo sugiere el Anexo I de este Directriz.

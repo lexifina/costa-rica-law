@@ -1,0 +1,1 @@
+Artículo 7°.- Las instituciones parte del Sistema Nacional de Inversión Pública, contemplarán en el registro del avance físico y financiero real del proyecto la información trimestral que justifique el mismo, particularmente las razones de atrasos o adelantos con respecto de lo programado, según lo sugiere el Anexo I de este Directriz.

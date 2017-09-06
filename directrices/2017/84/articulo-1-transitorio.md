@@ -1,0 +1,1 @@
+Transitorio I.- Al finalizar el año 2017, el resto de las instituciones del Sistema Nacional de Inversión contemplarán la programación física y financiera de los proyectos registrados en el BPIP en etapa de ejecución o que iniciarán dicha etapa en el año 2018, según lo indicado en el artículo 6° de esta Directriz.
