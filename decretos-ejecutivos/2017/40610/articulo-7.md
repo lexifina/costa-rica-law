@@ -1,0 +1,1 @@
+Artículo 7.- El Ministerio de Agricultura y Ganadería coordinará con la Dirección General de Aduanas del Ministerio de Hacienda lo concerniente a la nota técnica relativa a la SGE establecida mediante el presente Decreto Ejecutivo, en el Sistema Tecnología Informática para el Control Aduanero (TIC@) o el sistema que le sustituya.

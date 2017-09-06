@@ -1,0 +1,1 @@
+Artículo 2.- El derecho adicional de 11,67% a los Derechos Arancelarios a la Importación de los incisos 1006.20.00.00.91 y 1006.20.00.99 del Arancel de Importación, se aplicará a las importaciones que se realicen una vez que se haya sobrepasado el volumen de activación de 3.805.206,05 Kg contabilizado a partir del 01 de enero de 2017.

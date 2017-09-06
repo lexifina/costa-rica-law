@@ -1,0 +1,1 @@
+Artículo 8.- El Ministerio de Comercio Exterior comunicará la presente medida al Comité de Agricultura de la OMC, de conformidad con el artículo 18 del Decreto Ejecutivo Nº 23912-COMEX-MAG-MEIC del 22 de diciembre de 1994, “Reglamento Medidas Salvaguardia Especial para Productos Agropecuarios”.
