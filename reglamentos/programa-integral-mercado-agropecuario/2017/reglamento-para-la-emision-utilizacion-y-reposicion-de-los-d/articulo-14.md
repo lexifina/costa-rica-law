@@ -1,0 +1,1 @@
+Artículo 14: La Dirección Administración CENADA analizará la solicitud con base en los documentos presentados por el Concesionario y comunicará la resolución en un plazo no mayor a 8 días hábiles, aprobando o improbando la solicitud. En caso de aprobación se seguirá con el trámite correspondiente.

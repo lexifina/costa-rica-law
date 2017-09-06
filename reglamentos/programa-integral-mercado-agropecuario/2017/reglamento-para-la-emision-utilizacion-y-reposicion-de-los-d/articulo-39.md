@@ -1,0 +1,2 @@
+Artículo 39: En caso de daño o extravío del dispositivo asignado, el Usuario deberá tramitar la sustitución del mismo, por lo que deberá cancelar el rubro de derecho de uso del servicio nuevamente y la sustitución del mismo quedará sujeto a la disponibilidad o existencia de dispositivos.
+El saldo del dispositivo al momento de la denuncia formal se podrá trasladar al nuevo dispositivo (en caso de aceptarse tal gestión), y si así lo solicitare el Usuario.

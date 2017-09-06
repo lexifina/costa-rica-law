@@ -1,0 +1,1 @@
+Artículo 43: De comprobarse el uso inadecuado del dispositivo de Pre pago según lo que se establece en el artículo 38, la Administración quedará facultada de inhabilitar el servicio, asr como la emisión de futuros servicios al usuario infractor, hasta por un año.

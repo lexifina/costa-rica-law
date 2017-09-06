@@ -1,0 +1,2 @@
+Artículo 9: Para el uso de este servicio, el concesionario recibirá un dispositivo por vehículo (por matricula) el cual, le permitirá ingresar y salir de la Central Mayorista.
+El vehículo deberá estar registrado ante la Administración. La Administración se reserva el derecho de modificar el sistema o los dispositivos para el beneficio del servicio público y los intereses institucionales, lo cual comunicará con tiempo suficiente a los concesionarios.

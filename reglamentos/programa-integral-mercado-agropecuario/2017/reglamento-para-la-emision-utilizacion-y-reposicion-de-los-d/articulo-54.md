@@ -1,0 +1,1 @@
+Artículo 54: De comprobarse el uso inadecuado del dispositivo de desabastecedores según lo que se establece el articulado de esta sección, la Administración quedará facultada de inhabilitar el servicio, así como la emisión de futuros servicios al usuario infractor, hasta por un año.

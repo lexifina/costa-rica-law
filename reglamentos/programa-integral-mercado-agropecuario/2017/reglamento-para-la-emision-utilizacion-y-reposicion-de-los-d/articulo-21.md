@@ -1,0 +1,1 @@
+Artículo 21: Si se comprueba que el concesionario no guardó la distancia debida y pasó simultáneamente con el vehículo delantero, o no permitió que la barrera de acceso retomara a su posición horizontal, deberá cancelar un cargo equivalente a6 horas de permanencia, según el canon aplicable al tipo de vehículo inscrito, esto si se comprueba que existe reincidencia en el acto.

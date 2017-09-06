@@ -1,0 +1,1 @@
+Artículo 37: Para la activación del dispositivo en esta modalidad, el Usuario deberá cancelar lo correspondiente al canon de derecho de uso del servicio, toda vez que se haya cumplido el proceso de revisión correspondiente a lo establecido por la Administración en el artículo 36.

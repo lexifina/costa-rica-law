@@ -1,0 +1,1 @@
+Artículo 10: En ningún momento el pago de este servicio, otorga por sí solo, el derecho de uso de un espacio para la comercialización, ni como área de permanencia de forma ininterrumpida dentro de la Central.
