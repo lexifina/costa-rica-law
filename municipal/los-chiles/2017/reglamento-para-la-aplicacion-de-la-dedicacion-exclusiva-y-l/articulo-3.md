@@ -1,0 +1,4 @@
+Artículo 3º La Municipalidad reconocerá al funcionario con grado profesional que se acoge a la Dedicación exclusiva, una compensación económica porcentual sobre su salario base por concepto de dedicación exclusiva, de la siguiente manera:
+a. Un 20%, a aquellos servidores que poseen el grado académico de bachillerato universitario y ocupen un puesto para el que se requiere la condición anterior y además satisfaga los literales c), d), e), f) y g) del artículo 4º de este reglamento.
+b. Un 40%, a aquellos servidores que poseen el grado académico de bachillerato universitario y ocupen un puesto de jefatura y además satisfaga los literales c), d), e), f) y g) del artículo 4º de este reglamento.
+c. Un 55%, a aquellos otros que ostentando el grado académico de licenciatura, ocupen un puesto para el que se requiere esta condición y además cumplen los literales c), d), e), f) y g) del artículo señalado anteriormente.

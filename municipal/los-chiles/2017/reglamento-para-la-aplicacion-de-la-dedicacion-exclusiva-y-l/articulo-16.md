@@ -1,0 +1,1 @@
+Artículo 16.El Alcalde (esa) y el proceso de Recursos Humanos deben velar por el cumplimiento de las disposiciones establecidas en el presente reglamento y en los contratos respectivos, sin perjuicio de la intervención que al respecto puedan hacer la Auditoría Interna
