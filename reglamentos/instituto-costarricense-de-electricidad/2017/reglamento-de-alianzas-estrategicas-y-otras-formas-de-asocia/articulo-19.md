@@ -1,0 +1,5 @@
+Artículo 19. Aprobación y Formalización. Una vez que el acuerdo respectivo cuente con el visto bueno de la División Jurídica Corporativa, la Unidad Gestora lo enviará conjuntamente con el expediente para su aprobación y consecuente firma del competente, según los topes establecidos al efecto por la Presidencia Ejecutiva, de conformidad con el Reglamento Corporativo de Organización y considerando para ello el monto del poder que ostenta cada instancia.
+Cuando exista una asociación empresarial de interés de varias Gerencias, la misma deberá ser suscrita por las gerencias que estén involucradas.
+La Unidad Gestora coordinará las firmas correspondientes, tanto a lo interno del ICE, como la del socio.
+En caso de no aprobarse, la Unidad Gestora comunicará motivadamente la negativa al Proponente y se procederá al archivo de la solicitud.
+Una vez formalizado el acuerdo, la Unidad Gestora deberá promover su implementación en los casos en que corresponda y rendir informes de avance a la Gerencia.
