@@ -1,0 +1,1 @@
+Artículo 53°-De la competencia para dictar las correcciones. Corresponderá a la Junta de Gobierno, de conformidad con su Ley Orgánica y su reglamento, corregir disciplinariamente a los Tecnólogos. Toda sanción deberá ser comunicada al Comité de Tecnólogos y tramitada mediante debido proceso según corresponda.

@@ -1,0 +1,5 @@
+Artículo 5°-Del jurado calificador. El jurado calificador de la Tecnología, ante el cual el solicitante se someterá a examen de suficiencia teórico práctico; estará integrado por tres miembros propietarios y un miembro suplente, autorizados por el Colegio de Médicos y activos en la Tecnología a evaluar y que cuenten con al menos cinco (5) años de experiencia demostrada en la misma (a excepción en casos debidamente justificados y aprobados por la Junta de Gobierno). Dicho Jurado Calificador está conformado de la siguiente manera:
+a) Un Tecnólogo, que represente al Comité Coordinador.
+b) Un tecnólogo, que represente a la Asociación de Tecnólogos respectiva. En caso no de haber asociación de Tecnólogos, será nombrado por la Junta de Gobierno.
+c) Un profesor de la Tecnología, nombrado por la Junta de Gobierno. En caso que la Tecnología no se imparta en Costa Rica, se nombrará a un miembro inscrito en la Tecnología con experiencia demostrada de al menos 5 años en la misma.
+d) El miembro suplente será nombrado por la Junta de Gobierno.

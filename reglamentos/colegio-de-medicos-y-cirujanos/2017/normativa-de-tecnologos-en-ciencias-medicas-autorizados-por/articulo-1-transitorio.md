@@ -1,0 +1,3 @@
+Capítulo XII
+Disposiciones Transitorias
+Transitorio I: Los expedientes presentados para su correspondiente estudio antes de la publicación del presente Reglamento se les deberá aplicar el trámite usual anterior a la publicación de esta Normativa y aquellas personas que iniciaron estudios con anterioridad a la vigencia de esta Normativa podrán inscribirse acogiéndose a lo vigente en el momento del inicio de estudios o a la Normativa que se deroga. Este transitorio tendrá una vigencia de dos años, a partir de la fecha de aprobación de la presente Normativa y su respectiva publicación en el diario oficial La Gaceta; automáticamente una vez cumplido este plazo, quedará sin vigencia su aplicación.

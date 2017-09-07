@@ -1,0 +1,2 @@
+Artículo 36°-De la votación en asambleas. La votación se realizará de forma pública cuando se deba tomar cualquier acuerdo sometido a discusión para su aprobación o no. La votación se realizará de forma secreta para la elección de los miembros que integrarán el Comité de Tecnólogos o bien por acuerdo según lo determine la asamblea general. Los miembros del Comité de Tecnólogos tendrán iguales derechos y obligaciones que los demás asambleístas.
+La aprobación de los acuerdos será por mayoría simple y en caso de empate se deberá someter nuevamente a votación.

@@ -1,0 +1,1 @@
+Artículo 6°-El solicitante tendrá derecho a recusar los miembros del jurado, presentando carta ante la Dirección Académica, exponiendo las razones que fundamenten la recusación, dentro del plazo de tres días hábiles luego de que se le notifique la integración de dicho jurado.

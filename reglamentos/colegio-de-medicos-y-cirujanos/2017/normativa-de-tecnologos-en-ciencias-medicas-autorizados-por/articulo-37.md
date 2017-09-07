@@ -1,0 +1,1 @@
+Artículo 37°-Del voto asistido. El Tecnólogo con necesidades especiales, podrá votar de manera asistida por un Tecnólogo de su entera confianza, para lo cual se tomará en cuenta estrictamente la voluntad del votante y se indicará en el acta respectiva los motivos por los cuales el voto fue emitido de forma asistida.

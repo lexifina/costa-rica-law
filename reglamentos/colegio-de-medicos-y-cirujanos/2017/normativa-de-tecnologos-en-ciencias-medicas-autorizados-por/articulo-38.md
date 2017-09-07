@@ -1,0 +1,1 @@
+Artículo 38°-Aprobación de informes. Los informes una vez aprobados por Asamblea General deberán ser presentados junto con el acta de la asamblea a la Junta de Gobierno dentro de los siguientes quince días hábiles para su respectiva aprobación.

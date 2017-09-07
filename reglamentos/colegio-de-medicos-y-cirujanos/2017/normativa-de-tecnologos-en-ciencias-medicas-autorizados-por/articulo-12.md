@@ -1,0 +1,3 @@
+Artículo 12°-Inclusión de nuevas tecnologías. Se faculta a la Junta de Gobierno, incluir en la lista oficial reconocida por el Colegio de Médicos y Cirujanos, tecnologías distintas a las que se establecen por esta normativa.
+a) La Dirección Académica, podrá realizar las gestiones de las solicitudes, analizará los casos, solicitará criterios y verificará el cumplimiento de requisitos, y emitirá una recomendación a la Junta de Gobierno.
+b) La Dirección Académica enviará copia del oficio que se elevará a la Junta de Gobierno al Comité de Tecnólogos con la lista de las nuevas solicitudes de autorización.

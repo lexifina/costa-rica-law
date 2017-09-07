@@ -1,0 +1,3 @@
+Capítulo IV
+De la Asamblea General
+Artículo 30°-De la Asamblea General. Le corresponde a la Asamblea General la suprema regencia del Comité de Tecnólogos, se reunirá ordinariamente una vez al año en la primera quincena del mes de febrero, para escuchar los informes anuales y realizar la elección de los nuevos integrantes del Comité de Tecnólogos o del Fiscal según corresponda; se reunirá extraordinariamente, cuando así lo amerite, por la solicitud escrita del uno por ciento de los Tecnólogos inscritos y activos o por solicitud expresa del Fiscal. Sus resoluciones serán de acatamiento obligatorio para los Tecnólogos en Ciencias Médicas.

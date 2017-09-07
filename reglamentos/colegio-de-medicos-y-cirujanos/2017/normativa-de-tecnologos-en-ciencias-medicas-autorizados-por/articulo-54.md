@@ -1,0 +1,5 @@
+Artículo 54°-De las sanciones a los miembros del Comité de Tecnólogos. Los integrantes del Comité de Tecnólogos serán sancionados con la remoción de su cargo, previo debido proceso según corresponda, cuando incurran en una de las siguientes causales:
+a) En el caso que alguno de los integrantes del Comité de Tecnólogos faltare de forma injustificada a cuatro sesiones consecutivas, o no consecutivas, en un mismo trimestre.
+b) Cuando se ausentare aún con justificación a seis de las convocatorias ordinarias señaladas de manera reiterada o alterna en un mismo año.
+c) Cuando presente llegadas tardías, con más de cuarenta y cinco minutos una vez iniciada la sesión de por lo menos seis de las convocatorias ordinarias señaladas de manera reiterada o alterna en un mismo año.
+d) Aquellos Tecnólogos que no se encuentren en pleno uso de sus derechos o bien que hayan sido suspendidos del ejercicio de la profesión por los Tribunales de Justicia o por la Junta de Gobierno por violación al Código de Ética durante el ejercicio de su cargo.
