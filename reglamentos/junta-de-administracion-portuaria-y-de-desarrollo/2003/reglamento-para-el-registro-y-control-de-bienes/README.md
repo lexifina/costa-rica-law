@@ -14,3 +14,4 @@ Reglamento para el Registro y Control de Bienes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-01-17 | la propia norma |
+| 2 | 2017-09-07 | Reglamento 19 (2017-09-07) |

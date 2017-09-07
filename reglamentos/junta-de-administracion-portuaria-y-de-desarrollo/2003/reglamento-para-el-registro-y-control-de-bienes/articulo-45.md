@@ -1,0 +1,1 @@
+Artículo 45.—Actas. Las actas originales y los documentos de respaldo serán conservados bajo custodia en la Dirección Financiera y Jefatura Administrativa; constando además la copia respectiva en el expediente de donación.
