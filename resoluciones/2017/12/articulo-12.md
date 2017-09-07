@@ -1,0 +1,3 @@
+Artículo 12. Terminación por desistimiento del obligado tributario.
+1.Los obligados tributarios podrán desistir del Procedimiento mediante escrito dirigido a la autoridad competente con el que se dará por finalizado el Procedimiento y se acordará el archivo de las actuaciones. Si hubiera varios obligados tributarios el desistimiento afectará sólo a aquellos que lo hubiesen formulado.
+2.Este acuerdo de archivo de actuaciones se hará mediante resolución administrativa y deberá ser comunicado a la autoridad competente del otro Estado en un plazo de 15 días, contado desde el día siguiente de la presentación del escrito de desistimiento.

@@ -1,0 +1,6 @@
+Capítulo IV
+Régimen del Procedimiento Amistoso cuando es iniciado ante las autoridades competentes del otro Estado por acciones de la Administración Tributaria de ese otro Estado
+Artículo 18. Normativa aplicable al inicio, desarrollo y ejecución.
+1.Cuando el Procedimiento a que se refiere el artículo 1, se inicie ante las autoridades competentes de otro Estado por acciones de la Administración Tributaria de ese otro Estado, estará legitimada para solicitar el inicio de este Procedimiento cualquier persona que sea residente en el otro Estado en el sentido definido por el correspondiente Convenio y que considere que las medidas adoptadas por la Administración Tributaria del citado Estado implican o pueden implicar para ella una imposición que no esté de acuerdo con las disposiciones del Convenio.
+2.La Dirección General de Tributación podrá rechazar la admisión de la solicitud en los supuestos previstos en el artículo 8.2 de esta resolución.
+3.Las actuaciones que, en su caso, deba realizar la Dirección General de Tributación se regirán por lo dispuesto en los artículos siguientes de este apartado y, en lo no previsto en este apartado, por lo dispuesto en los artículos 9 al 16, ambos inclusive.

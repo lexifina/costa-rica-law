@@ -1,0 +1,1 @@
+Artículo 5. Plazo para interponer la solicitud. La solicitud para iniciar el Procedimiento deberá plantearse dentro de los tres años siguientes a la primera notificación de la medida que implique una imposición no conforme a las disposiciones del Convenio.

@@ -1,0 +1,19 @@
+Artículo 8. Admisión de inicio del Procedimiento Amistoso.
+1.Transcurridos dos meses sin que la Administración haya realizado el requerimiento indicado en el artículo anterior, o un mes desde la recepción de la totalidad de la documentación requerida, la Dirección General de Tributación determinará la admisión o no de la solicitud de inicio del Procedimiento, y lo notificará al obligado tributario en el lugar o medio señalado en su solicitud.
+Si en dichos plazos, que se consideran perentorios, no se ha notificado ninguna decisión al respecto, se tendrá por admitida la solicitud.
+2.Se podrá denegar motivadamente el inicio del Procedimiento, entre otros, en los siguientes supuestos:
+a) Cuando no exista un Convenio aplicable con artículo relativo al Procedimiento.
+b) Cuando la solicitud se haya presentado fuera del plazo regulado en el Convenio o se presente por persona no legitimada.
+c) Cuando no proceda iniciar un Procedimiento por ser una cuestión de derecho interno y no una divergencia o discrepancia en la aplicación del Convenio.
+d) Cuando se tenga constancia de que la actuación del obligado tributario trataba de evadir sus obligaciones tributarias en alguno de los Estados afectados.
+e) Cuando exista un posible abuso del convenio, es decir, cuando de su aplicación se pretenda obtener un trato más favorable, siendo contrario al objeto y la finalidad del mismo.
+f) Cuando la solicitud se refiera a la apertura de un nuevo Procedimiento sobre una cuestión que ya hubiera sido objeto de otro Procedimiento planteado con anterioridad por el mismo obligado tributario y sobre el cual se hubiese alcanzado un acuerdo entre las autoridades competentes involucradas o sobre el que hubiera desistido el obligado tributario.
+g) Cuando el requerimiento de subsanación y de completar la información haya sido contestado en plazo pero no se entiendan subsanados los defectos o aportada la documentación requerida.
+h) Cuando el caso o la controversia objeto de análisis haya sido resuelto en vía judicial, habiéndose agotado los recursos de ley; entiéndase al respecto, cosa juzgada.
+3.El Procedimiento se iniciará en los siguientes casos:
+a) En el supuesto establecido en el párrafo segundo del inciso 1. del presente artículo.
+b) Cuando la Dirección General de Tributación considere que la solicitud es fundada y que puede por sí misma encontrar una solución. Entiéndase que la Dirección General de Tributación unilateralmente podrá resolver la petición sin la intervención del otro Estado contratante.
+c) Cuando la Dirección General de Tributación considere que la solicitud es fundada y que no puede por sí misma encontrar una solución. Entiéndase que la Dirección General de Tributación iniciará comunicaciones con el otro Estado contratante, para buscar una adecuada solución a la solicitud.
+En este caso, se comunicará a la autoridad competente del otro Estado que se ha admitido el inicio del Procedimiento, que la presentación de la solicitud se ha producido dentro del plazo a que se refiere el artículo 5 y, se adjuntará, la documentación del caso. Si el Convenio aplicable prevé la creación de la comisión consultiva a que se refiere el artículo 10, se solicitará a la Administración del otro Estado que comunique la fecha de recepción de la documentación. Dicha fecha será la de inicio del cómputo del periodo para poder acceder a la comisión consultiva. Conocida esta fecha, se notificará al obligado tributario en el lugar o medio señalado en su solicitud.
+4.A efectos de lo dispuesto en este artículo, la Dirección General de Tributación podrá solicitar al otro Estado contratante, la documentación e informes que estime oportunos.
+5.El Procedimiento amistoso deberá concluirse en un plazo de 24 meses, contados a partir de la fecha de aceptación de inicio del Procedimiento, siempre y cuando las circunstancias particulares del mismo lo permitan.

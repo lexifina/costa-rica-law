@@ -1,0 +1,3 @@
+Capítulo II
+Régimen del Procedimiento Amistoso cuando es iniciado ante la Dirección General de Tributación por acciones de la Administración Tributaria de Costa Rica
+Artículo 4. Legitimación activa. Cuando así esté dispuesto en un Convenio o tratado para evitar la doble imposición suscrito por Costa Rica, cualquier persona, que sea residente en Costa Rica, en el sentido definido por el correspondiente Convenio, y que considere que las medidas adoptadas por la Administración Tributaria costarricense implican o pueden implicar para ella una imposición que no esté de acuerdo con las disposiciones del Convenio, podrá solicitar el inicio del Procedimiento Amistoso a la autoridad competente de cualquiera de los Estados contratantes.
