@@ -1,0 +1,16 @@
+N° 40419-S
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE SALUD
+En ejercicio de las facultades que les confieren los artículos 140 incisos 3), 18) y 146 de la Constitución Política; 25 inciso 1 ), 27 inciso 1 ), 28 inciso 2) acá pite b) y 103 inciso 1) de la Ley No. 6227 del 2 de mayo de 1978, "Ley General de la Administración Pública"; 1, 2, 4, 7, 264, 265, 266, 267 siguientes y concordantes de la Ley No. 5395 del 30 de octubre de 1973, "Ley General de Salud"; Ley No. 8220 del 4 de marzo de 2002, "Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos"; Ley No. 276, del 27 de agosto de 1942, "Ley de Aguas"; Ley No. 8279 del 2 de mayo de 2002, "Sistema Nacional para la Calidad"; y el Decreto Ejecutivo No. 38924-S del 12 de enero de 2015, "Reglamento para la Calidad del Agua Potable".
+CONSIDERANDO:
+1.- Que el Ministerio de Salud tiene como misión garantizar la protección y mejoramiento del estado de salud y bienestar de la población, mediante el ejercicio efectivo de la rectoría y el liderazgo institucional con enfoque de promoción de la salud y participación social, bajo los principios de transparencia, equidad, solidaridad y universalidad.
+2.- Que conforme a las disposiciones legales contenidas en el artículo primero de la Ley General de Salud, la salud de la población, es un bien de interés público.
+3.- Que el Estado, a través del Ministerio de Salud, tiene la responsabilidad de garantizar la salud a toda la población y defenderá ese derecho, sin que se obstaculicen las condiciones de competitividad para el desarrollo del país, manteniendo un equilibrio entre las regulaciones socioeconómicas y de salud, velando siempre por la satisfacción del interés público.
+4.- Que las entidades públicas y privadas que brinden el servicio de transporte de agua para consumo humano en camiones cisterna deben cumplir con estrictos estándares sanitarios para proteger la salud pública, y que a la fecha el Estado no ha normado dicha actividad.
+5.- Que de conformidad con lo establecido en el artículo 12 bis del Decreto Ejecutivo No. 37045 del 22 de febrero de 2012 y su reforma "Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos", esta regulación cumple con los principios de mejora regulatoria, de acuerdo con el informe No. DMR-DAR-INF-005-17 de fecha 02 de febrero de 2017, emitido por la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio.
+POR TANTO,
+DECRETAN:
+REGLAMENTO PARA EL TRANSPORTE Y DISTRIBUCION DE AGUA
+POTABLE EN CAMIONES CISTERNA
+Artículo 1°. Objetivo y Ámbito de Aplicación. El presente reglamento tiene por objetivo velar por la salud de la población, mediante la regulación del transporte y distribución del agua potable, asegurando así su inocuidad por medio del control sanitario y la vigilancia. Este reglamento será de aplicación obligatoria en todo el territorio nacional.
+Se establece así que la vigilancia de la calidad del agua transportada y distribuida por los camiones cisterna, corresponderá al Ministerio de Salud, en adelante denominado Ministerio, y a las empresas e instituciones prestatarias del servicio el control sanitario, las cuales se sujetarán a lo establecido en este reglamento.

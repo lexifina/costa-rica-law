@@ -1,0 +1,1 @@
+Artículo 7º. Todo ente prestatario del servicio de suministro de agua potable mediante camión cisterna, mostrará la bitácora al funcionario del Ministerio o del ente operador del acueducto que así lo requiera.
