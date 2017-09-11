@@ -18,3 +18,4 @@ ECA-MC-C05 Criterios para la evaluaci√≥n de la norma INTE-ISO/ IEC 17021 (versi√
 | 3 | 2016-03-07 | Acuerdo 0 (2016-03-07) |
 | 4 | 2016-08-03 | Acuerdo 0 (2016-08-03) |
 | 5 | 2017-02-10 | Acuerdo 0 (2017-02-10) |
+| 6 | 2017-09-11 | Acuerdo 7 (2017-09-11) |
