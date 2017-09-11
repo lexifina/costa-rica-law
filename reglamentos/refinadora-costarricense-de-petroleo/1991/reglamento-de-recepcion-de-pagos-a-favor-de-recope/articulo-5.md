@@ -1,2 +1,0 @@
-ARTICULO 5.
-La DISA receptora deberá informar de inmediato de dicha situación al librador cuyo cheque haya sido devuelto por el Banco, por la vía telefónica y por escrito, dejando constancia de ello en el expediente administrativo, y otorgándole un plazo improrrogable de cinco días hábiles a partir de la fecha de la primera comunicación, a efecto de que cancele su obligación mediante dinero en efectivo o cheque certificado.

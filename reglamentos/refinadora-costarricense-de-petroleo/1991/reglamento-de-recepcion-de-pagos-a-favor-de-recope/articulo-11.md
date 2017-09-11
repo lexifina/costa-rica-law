@@ -1,2 +1,0 @@
-ARTICULO 11.
-Transcurridos los plazos indicados en los artículos 8 y 9, según corresponda, y únicamente en el caso de que no existan deudas pendientes del cliente o contratista con la Empresa, la DISA receptora comunicará a las dependencias de su gerencia, a las demás Direcciones de Servicios Administrativos y al interesado, el levantamiento de la sanción de realizar todo pago a la Empresa en dinero efectivo o cheque certificado.

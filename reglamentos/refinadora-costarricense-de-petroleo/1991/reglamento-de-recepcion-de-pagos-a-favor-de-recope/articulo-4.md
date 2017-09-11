@@ -1,2 +1,0 @@
-ARTICULO 4.
-El funcionario que reciba una nota de débito por cheque no aceptado por el Banco deberá comunicar tal hecho a más tardar el día hábil siguiente a la Dirección de Servicios Administrativos de la Gerencia respectiva; en adelante denominada DISA receptora, para que ésta, de inmediato y preferentemente vía fax, comunique a la dependencia afectada y a las demás Direcciones de Servicios Administrativos que se abstengan de recibir cheques de dicha cuenta hasta nuevo aviso.
