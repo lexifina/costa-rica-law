@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-005 Criterios para la evaluación de la norma INTE-
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-02-24 | la propia norma |
+| 2 | 2017-09-11 | Acuerdo 7 (2017-09-11) |
