@@ -1,0 +1,1 @@
+2º—Que la modificación indicada en el punto anterior, se realizó en el Arancel que utiliza el sistema informático TIC@, por lo que, en lo que respecta al Impuesto General sobre las Ventas, en las partidas antes señaladas, la tasa impositiva es cero.
