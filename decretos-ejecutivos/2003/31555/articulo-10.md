@@ -1,1 +1,0 @@
-Artículo 10.—El Ministerio de Agricultura y Ganadería, a través de las instancias representadas en la Comisión y los respectivos sindicatos podrán remover, sustituir y reelegir libremente a sus representantes. La Administración concederá licencia con goce de salario a los miembros de la Comisión, durante el tiempo que se requiera para cumplir sus funciones.

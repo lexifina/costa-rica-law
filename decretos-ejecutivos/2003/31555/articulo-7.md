@@ -1,1 +1,0 @@
-Artículo 7º—Los gastos de viajes y de transporte seguirán regulándose de manera independiente al zonaje o incentivo por regionalización, de acuerdo con las disposiciones contenidas en el Reglamento correspondiente, promulgado por la Contraloría General de la República.
