@@ -1,0 +1,6 @@
+Artículo 3º. Obligación del pago
+Están obligados al pago del Timbre los siguientes:
+1. Los profesionales en medicina debidamente incorporados al Colegio de Médicos y Cirujanos ele Costa Rica que emitan dictámenes o informes médicos físicos, deberán incluir un timbre en cada hoja, el cual debe ser cancelado por el profesional que expide el documento, cuyo valor será cubierto por quien lo solicita.
+En caso de utilizar el mecanismo digital para la emisión de esos dictámenes o informes médicos de conformidad con la Normativa para la compra, confección y validez de los certificados médicos digitales, emitida por la Junta de Gobierno del Colegio de Médicos y Cirujanos de Costa Rica en la sesión ordinaria 2015-12-16, del 16 de diciembre de 2015, publicada en La Gaceta número 23 del 3 de febrero de 2016, deberá este Colegio garantizar que se realice la cancelación del irnpo11e del Timbre de Cruz Roja en cada hoja de estos ce11ifícados, el cual deberá ser trasladado por mes vencido a la Asociación Cruz Roja Costarricense en sus cuentas bancarias e informar a ésta de lo emitido y pagado.
+2. Quien solicite la inscripción de medicinas de patente extranjera deberá cancelar y adjuntar cinco timbres en los poderes o las cartas-poder requeridos para tal fin.
+3. Quien solicite la inscripción o traspaso de vehículos automotores, deberán cancelar un timbre.

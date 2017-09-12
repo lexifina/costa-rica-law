@@ -1,0 +1,2 @@
+Artículo 8° . Hecho Generador y Base Imponible
+Para la contribución parafiscal que establece la Ley 8690 modificada mediante el artículo 3 de la ley 9355, el hecho generador será la facturación del servicio de telefonía móvil y convencional, prepago, pospago o cualquier otra modalidad de telefonía por parte de los agentes retenedores o perceptores, y se calculará sobre el monto pagado por el usuario final, excluyendo los demás servicios que brinde el operador que no corresponden a telefonía, así como el Impuesto General sobre las Ventas.

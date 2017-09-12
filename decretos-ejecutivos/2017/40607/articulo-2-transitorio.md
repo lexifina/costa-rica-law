@@ -1,0 +1,2 @@
+Transitorio segundo: La obligación de percepción y pago establecida en la ley 8690 reformada mediante Ley 9355 se continuará trasladando a las cuentas de reserva de la Tesorería Nacional, por parte de los obligados, conforme se ha realizado desde la publicación de la Ley 8690 y sus reformas, hasta tanto la Dirección General de Tributación habilite el uso del formulario definido en el artículo 9 del presente reglamento.
+Dado en la Presidencia de la República. San José, a los dieciocho días del mes de julio de dos mil diecisiete.

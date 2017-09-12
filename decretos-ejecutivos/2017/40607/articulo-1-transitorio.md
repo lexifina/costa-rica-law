@@ -1,0 +1,1 @@
+Transitorio primero: La Dirección General de Tributación deberá incluir en sus sistemas de declaración y recaudación, el formulario para la declaración y pago de la contribución parafiscal, en el plazo de seis meses contados a pa11ir del p1imero del mes siguiente a la publicación del presente reglamento.

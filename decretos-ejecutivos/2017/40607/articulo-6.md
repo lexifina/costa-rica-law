@@ -1,0 +1,2 @@
+Artículo 6°. Devoluciones a terceros
+Las personas físicas o jurídicas que habiendo pagado el timbre, demuestren que por error hayan pagado de más o que no les correspondiera realizar dicho pago, podrán solicitar a la Asociación Crnz Roja Costarricense la devolución del importe conforme el procedimiento previsto para este efecto por dicha asociación, mediante la presentación del formulario de Solicitud de Devolución, aportando el original del comprobante de pago y demás requisitos necesarios para el trámite.
