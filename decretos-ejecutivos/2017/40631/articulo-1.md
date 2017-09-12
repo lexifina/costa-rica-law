@@ -1,0 +1,20 @@
+N° 40631–S
+EL PRESIDENTE DE LA REPUBLICA
+Y LA MINISTRA DE SALUD
+En uso de las facultades que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b) de la Ley No. 6227 del 2 de mayo de 1978 11Ley General de la Administración Pública"; 1, 2, 4, 7, 95, 96, 97 y 100 de la Ley No. 5395 del 30 de octubre de 1973, 11Ley General de Salud"; 1, 2 y 6 de la Ley No. 5412 del 8 de noviembre de 1973, "Ley Orgánica del Ministerio de Salud".
+CONSIDERANDO:
+1. Que el artículo 97 de la Ley No. 5395 del 30 de octubre de 1973, "Ley General de Salud", establece que la instalación y operación de los establecimientos farmacéuticos necesitan de la inscripción en el Ministerio de Salud, previa autorización y registro en el Colegio de Farmacéuticos de Costa Rica.
+2. Que el artículo 100 de la misma Ley No. 5395 del 30 de octubre de 1973, "Ley General de Salud", establece que el permiso de operación que otorga el Ministerio de Salud a los establecimientos farmacéuticos es válido por dos años y que la fiscalización de dichos establecimientos corresponde al Colegio de Farmacéuticos de Costa Rica, sin pe1juicio de las facultades de control y vigilancia que sobre ellos ejerce el Misterio de Salud.
+3. Que es conveniente y necesario que el Ministerio de Salud y el Colegio de Farmacéuticos de Costa Rica establezcan un mecanismo apropiado tendiente a fortalecer la labor de fiscalización y control de los establecimientos farmacéuticos.
+4. Que las funciones de fiscalización de dichos establecimientos, impuestas al mencionado Colegio Profesional por disposición legal, son de orden público y de beneficio directo para la salud de la población, la cual es un bien de interés público tutelado por el Estado, razón suficiente para considerar necesario que dicho Colegio cuente con el presupuesto requerido para ejercer dicha fiscalización.
+5. Que en el Decreto Ejecutivo No. 25493-S del 30 de agosto de 1996, "Disposiciones para la inscripción de los establecimientos farmacéuticos en el Ministerio de Salud, tanto para iniciar operaciones como para renovar el permiso cada dos años", publicado en La Gaceta No. 192 del 08 de octubre de 1996, Alcance: 60, se indicó que para la inscripción en el Ministerio de Salud de un establecimiento farmacéutico, se requiere la autorización y registro previo en el Colegio de Farmacéuticos, pero en el mismo no se especifican las medidas administrativas que el Colegio de Farmacéuticos ejecutará para otorgar la autorización y registro de dichos establecimientos farmacéuticos.
+6. Que de conformidad con el artículo 12 bis del Decreto Ejecutivo No. 3 7045 de 22 de febrero de 2012 "Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos" y su reforma, se considera que por la naturaleza de la presente regulación no es necesario completar la Sección I denominada Control Previo de Mejora Regulatoria, que conforma el formulario de Evaluación Costo Beneficio, toda vez que la misma no establece trámites ni requerimientos para el administrado.
+POR TANTO,
+DECRETAN:
+MODIFICACIÓN AL DECRETO EJECUTIVO No. 25493-S DEL 30 DE
+AGOSTO DE 1996, "DISPOSICIONES PARA LA INSCRIPCIÓN DE LOS
+ESTABLECIMIENTOS FARMACÉUTICOS EN EL MINISTERIO DE SALUD,
+TANTO PARA INICIAR OPERACIONES COMO PARA RENOVAR EL
+PERMISO CADA DOS AÑOS"
+Artículo 1.- Modifíquese el artículo 2 del Decreto Ejecutivo No. 25493-S del 30 de agosto de 1996, "Disposiciones para la inscripción de los establecimientos farmacéuticos en el Ministerio de Salud, tanto para iniciar operaciones como para renovar el permiso cada dos años", publicado en La Gaceta No. 192 del 08 de octubre de 1996, Alcance: 60, para que en adelante se lea de la siguiente manera:
+"Artículo 2.- El Colegio de Farmacéuticos de Costa Rica, en apego a lo establecido en el artículo 97 de la Ley No. 5395 del 30 de octubre de 1973, "Ley General de Salud", verificará las calidades del profesional en farmacia que regentará el establecimiento farmacéutico como trámite de autorización y registro de los establecimientos farmacéuticos. "
