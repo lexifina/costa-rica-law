@@ -14,3 +14,4 @@ Reglamento de fiscalización, regulación y comercialización de bebidas con con
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-09-12 | la propia norma |
+| 2 | 2017-09-12 | Reglamento municipal 37 (2017-09-12) |
