@@ -11,4 +11,6 @@ La Junta Directiva del Fondo Nacional de Financiamiento Forestal, emite el sigui
 MANUAL DE PROCEDIMIENTOS PARA EL PAGO
 DE SERVICIOS AMBIENTALES
 1. Objetivo. Establecer los procedimientos que se aplicaran en el Pago de los Servicios Ambientales (PSA) generados por los bosques y las plantaciones forestales del país, mediante el fomento de las actividades de reforestación, protección de la cobertura boscosa, manejo de bosque, recuperación de cobertura mediante regeneración natural y plantación de árboles forestales en sistema agroforestales (SAF), pagados con recursos provenientes del Presupuesto Nacional y de cualquier otro donante o inversionista que no establezca condiciones diferentes, a las establecidas en este Manual.
+1.1. Objetivo. Establecer los procedimientos que se aplicarán en el Pago de los Servicios Ambientales (PSA) para Plantaciones Forestales con Turnos de Rotación Reducidos (PFTRR) con fines industriales para la producción de madera para embalaje y biomasa forestal para dendroenergía, pagados con recursos provenientes del Presupuesto Nacional y de cualquier otro donante o inversionista, que no establezca condiciones diferentes a las establecidas en este Manual.
+(Así adicionado el objetivo 1.1) anterior mediante acta N° 09-2017 del 12 de setiembre de 2017)
 (Así reformado en sesión N° 01 del 18 de enero de 2010)

@@ -21,3 +21,4 @@ Manual de Procedimientos para el pago de Servicios Ambientales
 | 6 | 2014-09-16 | Reglamento 6 (2014-09-16) |
 | 7 | 2016-09-16 | Reglamento 8 (2016-09-16) |
 | 8 | 2016-12-13 | Reglamento 10 (2016-12-13) |
+| 9 | 2017-09-12 | Reglamento 0 (2017-09-12) |

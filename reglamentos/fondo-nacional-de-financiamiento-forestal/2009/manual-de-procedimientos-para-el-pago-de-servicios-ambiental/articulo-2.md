@@ -1,15 +1,23 @@
-2. Criterios de priorización de proyectos. Las áreas prioritarias para el Pago de Servicios Ambientales (PSA), serán las establecidas mediante el Decreto Ejecutivo que emitirá el Poder Ejecutivo, en las modalidades de protección, reforestación, recuperación de cobertura mediante regeneración natural, manejo de bosque y plantación de árboles forestales en SAF, los cuales serán aplicados para la selección de los proyectos que se considerarán en el programa de PSA. Solamente, en aquellos casos cuando la demanda nacional de las áreas prioritarias ha sido satisfecha, se aceptarán proyectos en otras áreas que oportunamente el FONAFIFO dará a conocer.
-Para inmuebles que se encuentren sobre el límite de las áreas prioritarias se considerarán para efectos del Programa de PSA aquellas que al menos tengan un 30% dentro de dichas áreas.
-(Así reformado los dos párrafos anteriores en sesión N° 01 del 18 de enero de 2010)
+2º—Criterios de priorización de proyectos. Las áreas prioritarias para el Pago de Servicios Ambientales (PSA), en la actividad de Plantaciones Forestales con Turnos de Rotación Reducidos (PFTRR) serán:
+(Así reformado el párrafo anterior mediante acta N° 09-2017 del 12 de siembre de 2017)
 Las presolicitudes de PSA se regirán por los siguientes criterios de priorización considerado en el siguiente orden de prioridad:
 2.1. Proyectos de Reforestación.
-2.1.1 Los sitios que presenten un alto potencial productivo para el desarrollo de plantaciones forestales a excepción de las clases de capacidad de uso VII y VIII (Metodología para la Determinación de la Capacidad de Uso de las Tierras de Costa Rica, Nº 23214-MAG-MIRENEM).
+2.1.1. Los sitios que presenten un alto potencial productivo para el desarrollo de plantaciones forestales con fines industriales para la producción de madera para embalaje y biomasa forestal para dendroenergía, a excepción de las clases de capacidad de uso VII y VIII (Metodología para la Determinación de la Capacidad de Uso de las Tierras de Costa Rica, N° 23214 -MAG-MIRENEM).
+(Así reformado el punto anterior mediante acta N° 09-2017 del 12 de siembre de 2017)
 2.1.2 Para los proyectos de reforestación con especies contenidas en los decretos de vedas y especies amenazadas o en peligro de extinción (Decreto Nº 25663-MINAE y Decreto Nº 25700-MINAE), se establece como prioritario todo el país. Para proyectos de reforestación establecidas en las áreas de protección según el artículo 33 de la Ley Forestal Nº 7575, se considerará como prioritario todo el país.
-2.1.3 Sitios donde haya un alto potencial de bloques de plantación dando especial prioridad a los proyectos que utilicen material genético mejorado.
-2.1.4 Se podrán incluir áreas en donde se ejecutaron proyectos de reforestación financiados por medio de incentivos y que hayan cumplido con los planes de manejo aprobados y el periodo de vigencia.
+2.1.3. Sitios donde haya un alto potencial de bloques de plantación dando especial prioridad a los proyectos que utilicen material genético mejorado.
+(Así reformado el punto anterior mediante acta N° 09-2017 del 12 de siembre de 2017)
+2.1.4. Se podrán incluir áreas en donde se ejecutaron proyectos de reforestación financiados por medio de incentivos y que hayan cumplido con los planes de manejo aprobados y el periodo de vigencia.
+(Así reformado el punto anterior mediante acta N° 09-2017 del 12 de siembre de 2017)
+2.1.5. Sitios preferiblemente cerca de plantas de procesamiento y sitios de fácil acceso.
+(Así adicionado el punto 2.1.5 anterior mediante acta N° 09-2017 del 12 de siembre de 2017)
+2.1.6. Sitios planos marginales sin uso, que favorezcan la acumulación de carbono mediante plantaciones forestales con fines industriales para la producción de madera para embalaje y biomasa forestal para dendroenergía, que favorezcan la recuperación del suelo y la protección de la erosión.
+(Así adicionado el punto 2.1.6 anterior mediante acta N° 09-2017 del 12 de siembre de 2017)
+2.1.7. Para la actividad de Plantaciones Forestales con Turnos de Rotación Reducidos (PFTRR), se acepta el método de establecimiento de manejo de rebrotes, siempre y cuando cumpla con lo establecido en el artículo 2, del Decreto Ejecutivo Nº 39083-MINAE publicado en la Gaceta Nº 143 del 24 de julio de 2015.
+(Así adicionado el punto 2.1.7 anterior mediante acta N° 09-2017 del 12 de siembre de 2017)
 2.2. Proyectos de Protección de Bosque y Protección de Bosque en Vacíos de Conservación.
 Los terrenos privados ubicados dentro de los vacíos de conservación identificados por GRUAS II, definidos como “aquellas áreas cuyos tipos de vegetación, sistemas ecológicos de agua dulce, marinos y las especies que no se encuentran adecuadamente representados en la actual red de áreas protegidas1”, serán prioritarias:
-1 Análisis de Vacíos de Conservación en Costa Rica, 2007. Grúas II Propuesta de ordenamiento territorial para la conservación de la biodiversidad en Costa Rica. SINAC. Volumen I.
+1Análisis de Vacíos de Conservación en Costa Rica, 2007. Grúas II Propuesta de ordenamiento territorial para la conservación de la biodiversidad en Costa Rica. SINAC. Volumen I.
 a. Como prioridad 1 los vacíos de conservación en terrenos privados dentro de Áreas Silvestres Protegidas (ASP).
 b. Como prioridad 2 los vacíos de conservación en terrenos privados dentro de Corredores Biológicos.
 c. Como prioridad 3 los vacíos de conservación en terrenos privados fuera de ASP y de Corredores Biológicos.

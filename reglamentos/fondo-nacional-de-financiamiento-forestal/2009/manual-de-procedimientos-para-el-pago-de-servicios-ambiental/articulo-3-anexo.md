@@ -3,10 +3,19 @@ INSTRUCTIVO PARA ELABORAR EL ESTUDIO TÉCNICO PARA
 PROYECTOS PSA DE REFORESTACIÓN
 El suscrito ____________, Nº colegiado ______, En mi calidad de Regente Forestal, con póliza de fidelidad Nº ______, amparado a la Ley Forestal, su reglamentación, sus modificaciones, reglamento de regencias forestales y la normativa vigente. Certifico el contenido del siguiente Estudio Técnico:
 1. Nombre de beneficiarios (as), números de cédula, folio(s) real (es), número(s) de plano, área(s) total (es) de folio(s), uso actual, ubicación administrativa y la dirección exacta de la(s) finca(s), colindantes encontrados en el campo.
-2. Indicar la modalidad y el número de Presolicitud asignado de previo por la Oficina Regional respectiva.
+2º—Indicar la Sub-actividad de PFTRR relacionada a fines industriales para la producción de madera para embalaje, o biomasa forestal para dendroenergía y el número de Presolicitud asignado de previo por la Oficina Regional respectiva.
+(Así reformado el punto anterior mediante acta N° 09-2017 del 12 de setiembre de 2017)
 3. Indicar si el área se encuentra en un área silvestre protegida, señalando el nombre de la misma.
-4. Se debe incluir el nombre común y científico de las especies a plantar e indicar claramente la especie por área por cada folio real y la densidad de plantación de cada especie, justificando la densidad a utilizar.
-5. El Regente Forestal debe certificar que realizó una evaluación de los factores físico-ambientales, ecológicos y silviculturales para recomendar la(s) especie(s), sitios a plantar y el manejo de la(s) misma(s) y que estas fueron comunicadas por escrito al beneficiario(a).
+4º—Se debe incluir el nombre común y científico de las especies maderables a plantar e indicar claramente la especie de rápido crecimiento, por área por cada folio real y la densidad de plantación de cada especie, justificando la densidad a utilizar, dependiendo del fin último de la plantación, considerando las siguientes densidades establecidas:
+(Así reformado el punto anterior mediante acta N° 09-2017 del 12 de setiembre de 2017)
+4.1. Densidades de plantación: Para el establecimiento de las Plantaciones Forestales con Turnos de Rotación Reducidos (PFTRR) para la producción de madera para embalaje y biomasa forestal para dendroenergía, se aceptarán únicamente aquellas plantaciones con una densidad inicial mínima de 625 árboles por hectárea.
+(Así adicionado el punto anterior mediante acta N° 09-2017 del 12 de setiembre de 2017)
+4.2. Para el establecimiento de las Plantaciones Forestales con Turnos de Rotación Reducidos (PFTRR) para la producción de madera para embalaje y biomasa forestal para dendroenergía, se aceptarán únicamente especies maderables de rápido crecimiento, preferiblemente con mejoramiento genético, cuyo origen de material esté certificado por la Oficina Nacional de Semillas.
+(Así adicionado el punto anterior mediante acta N° 09-2017 del 12 de setiembre de 2017)
+5º—El Regente Forestal debe certificar que realizó una evaluación de los factores físico -ambientales, ecológicos y silviculturales para recomendar la(s) especie(s), sitios a plantar y el manejo de la(s) misma(s).
+(Así reformado el punto anterior mediante acta N° 09-2017 del 12 de setiembre de 2017)
+5.1. Para el establecimiento de las Plantaciones Forestales con Turnos de Rotación Reducidos (PFTRR) con fines industriales tanto para la producción de madera para embalaje, como para la producción de biomasa con fines dendroenergéticos, presentar un cronograma con las actividades de manejo desde la fecha promedio de plantación hasta la cosecha final (72 meses).
+(Así adicionado el punto anterior mediante acta N° 09-2017 del 12 de setiembre de 2017)
 6. El Regente Forestal debe certificar el origen del material vegetativo mejorado cuando exista o en su defecto el origen del material seleccionado para la plantación.
 7. Se deberá localizar y cuantificar las superficies ocupadas por otros usos de la tierra (infraestructura existente, zonas de protección, etc.), siempre y cuando estos se encuentren dentro de los bloques o áreas a plantar.
 8. En proyectos de reforestación con otros métodos debe incluirse además de área efectiva, fecha de plantación y porcentaje de sobrevivencia, condiciones fenotípicas de los mejores individuos, en el caso de las especies Gmelina arborea, Tectona grandis se certifique material genético adecuado en la plantación original, cosechas certificadas superiores al promedio nacional (más de 100 m3 en la cosecha), certificación que al menos 200 árboles de la primera cosecha fue de clase 1.
@@ -48,7 +57,6 @@ USO | DESCRIPCIÓN
 13. Además, el Estudio deberá elaborarse con base al área legal del terreno, es decir la ‘superficie agraria’, definiéndose ésta como el área de una porción de terreno determinada por la proyección horizontal de su perímetro.
 14. Manifestación expresa de la existencia de otros contratos de PSA vigentes sobre la misma finca, indicando el área o número de árboles, la ubicación y certificando la cabida de los contratos.
 (Así reformado el inciso 14) anterior en sesión N° 08-2016 del 16 de setiembre del 2016)
-.
 15. En inmuebles sobre los que existan contratos de arrendamientos, debe certificarse que las áreas PSA están excluidas de las áreas en arriendo, esto en caso de que sea el propietario del inmueble que solicita el ingreso al PSA. Caso contrario, certificar que los arriendos corresponden efectivamente a áreas PSA solicitados por los arrendatarios.
 16. Solo se admitirán Estudios Técnicos que se refieran a planos cuyos desplazamientos en la ubicación cartográfica no superen los 500 metros, con respecto a lo indicado en el plano y la ubicación real de la finca. En los casos que supere los 500 metros se deberá adjuntar una certificación emitida por un topógrafo colegiado que indique la ubicación correcta del plano.
 17. Los Estudios Técnicos deben ser elaborados en papel de seguridad, contener el nombre, número de colegiado y firma del profesional responsable, la fecha de elaboración y con los timbres respectivos.

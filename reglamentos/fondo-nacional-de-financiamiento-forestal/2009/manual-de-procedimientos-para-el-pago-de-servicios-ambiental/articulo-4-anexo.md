@@ -55,6 +55,63 @@ ___________________
 11. A excepción del año de establecimiento de la plantación, en las certificaciones posteriores cuando corresponda la medición de parcelas, deben de presentar los datos de diámetro a la altura de pecho (dap) de los árboles de las parcelas y su respectivo coeficiente de variación. Así como el estado fitosanitario de la misma.
 12. Para el trámite del pago del año de establecimiento de la plantación solamente debe certificar el área efectiva por especie, por folio real, mortalidad y la fecha de plantación, siguiendo los puntos del 1 al 6 de este anexo.
 13. Para el trámite de los pagos a los 12 y 36 meses de la fecha promedio de establecimiento de la plantación, el Regente Forestal solamente deberá certificar las labores silviculturales realizadas, el estado fitosanitario de la plantación, las labores de control de incendios, rotulación y cualquier anomalía detectada. En estas certificaciones se deben de incluir los aspectos indicados en los puntos del 1 al 6 de este anexo.
-14. Para el trámite de los pagos a los 24 y 48 meses de la fecha promedio de establecimiento de la plantación, el Regente Forestal deberá incluir los datos de las parcelas consideradas en el punto 9.
+(*)14.—Para el trámite de los pagos según la fecha de establecimiento de la plantación, el Regente Forestal deberá aportar en un archivo Excel, con las mediciones de árboles individuales para cada parcela de medición del proyecto.
+El archivo de Excel deberá incluir las siguientes variables:
+• Número de Contrato
+• Nombre Beneficiario
+• Especie
+• Área plantada (ha)
+• Lote (ha) o estrato (ha)
+• Fecha de plantación
+• Fecha de medición
+• Edad (años y meses)
+• Nº parcela
+• Área parcela (m²)
+• No Árbol
+• DAP (cm)
+• Altura total (m)
+• % de mortalidad
+• % de árboles raleados, cuando corresponda.
+(*) (Así reformado el punto 14) anterior mediante acta N° 09-2017 del 12 de setiembre de 2017)
+(*) 14.—Disposiciones finales
+(*) (Así adicionado el punto 14) anterior mediante acta N° 09-2017 del 12 de setiembre de 2017. Nótese que ya existe un punto 14), con texto diferente.)
+14.14 De la Cosecha Final: En ningún caso, se podrá realizar la cosecha final de las Plantaciones Forestales con Turnos de Rotación Reducidos (PFTRR) antes de los 72 meses de edad, contados a partir de la fecha de plantación.
+(Así adicionado el punto 14.14 ) anterior mediante acta N° 09-2017 del 12 de setiembre de 2017)
+(*)14.15. De los períodos de Pagos: Los pagos de los proyectos de Plantaciones Forestales con Turnos de Rotación Reducidos (PFTRR) se realizarán de la siguiente forma.
+i. Primer pago una vez que el regente certifique que la plantación fue establecida, y que el porcentaje de mortalidad inicial no supera el 10%. Debe además el regente certificar la fecha de plantación.
+ii. Segundo pago a los 12 meses después de la fecha promedio de plantación.
+iii. Tercer pago a los 48 meses después de la fecha promedio de plantación.
+(*)(Así adicionado el punto 14.15 ) anterior mediante acta N° 09-2017 del 12 de setiembre de 2017)
+(*)14.16. Los proyectos PFTRR con fines industriales para la producción de madera para embalaje, deben cumplir con los siguientes valores de referencia mínimos según la edad que corresponda:
+Edad (años) | VRM DAP (cm) | VRM Altura Total (m)
+1 | - | 3,29
+2 | 8,88 | 6,65
+3 | 13,35 | 9,73
+4 | 14,69 | 10,69
+5 | 17,55 | 12,48
+6 | 19,53 | 13,80
+El valor de referencia mínimo (VRM) debe ser verificado a los 12 meses (previo al segundo pago) y 48 meses (previo al tercer pago), posteriores a la fecha promedio de plantación. Los VRM corresponden a valores promedios ponderados para la totalidad del área plantada.
+(*)(Así adicionado el punto 14.16 ) anterior mediante acta N° 09-2017 del 12 de setiembre de 2017)
+(*)14.17. Los proyectos PFTRR con fines dendroenergéticos, deben cumplir con los siguientes valores de referencia mínimos según la edad que corresponda:
+Edad (años) | Volumen Total (m³/ha)
+1 | 1,15
+2 | 17,84
+3 | 44,65
+4 | 48,51
+5 | 68,60
+6 | 88,57
+El valor de referencia mínimo debe ser verificado a los 12 meses (previo al segundo pago) y 48 meses (previo al tercer pago), posteriores a la fecha promedio de plantación. Los VRM corresponden a valores promedios ponderados para la totalidad del área plantada. Para la estimación del volumen se aplicará la siguiente fórmula:
+Vt = π/4*(DAP) ² * Htot * Ff * N
+Dónde:
+Vt = Volumen total por hectárea expresado en metros cúbicos.
+DAP = Diámetro a la altura de 1.3m expresado en metros.
+Htot = Altura total expresada en metros.
+Ff = Factor de forma igual que 0,5.
+N = Número de árboles por hectárea.
+(Así adicionado el punto 14.17 ) anterior mediante acta N° 09-2017 del 12 de setiembre de 2017)
+14.18. Respecto a los otros requisitos técnicos, administrativos y legales aplicarán los contemplados en la normativa vigente a la fecha.
+(Así adicionado el punto 14.18) anterior mediante acta N° 09-2017 del 12 de setiembre de 2017)
+14.19. Rige a partir de su publicación en el Diario Oficial La Gaceta.
+(Así adicionado el punto 14.19) anterior mediante acta N° 09-2017 del 12 de setiembre de 2017)
 15. Cuando se establezca la plantación en sitios diferentes a los indicados en el estudio técnico original, siempre y cuando se encuentre dentro del mismo folio real, el regente deberá presentar el croquis con la nueva área, además de la fecha promedio de plantación.
 16. En todos los casos, las Certificaciones deben ser elaborados en papel de seguridad, contener el nombre, número de colegiado y firma del profesional responsable, la fecha de elaboración y con los timbres respectivos.
