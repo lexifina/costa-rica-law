@@ -14,3 +14,4 @@ Establece el retiro de la Flota Pesquera Semi-Industrial Camaronera de arastre e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-05-18 | la propia norma |
+| 2 | 2017-09-13 | Acuerdo 368 (2017-09-13) |
