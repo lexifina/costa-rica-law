@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la auditoría interna del Consej
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-15 | la propia norma |
+| 2 | 2017-09-13 | Reglamento 2974 (2017-09-13) |

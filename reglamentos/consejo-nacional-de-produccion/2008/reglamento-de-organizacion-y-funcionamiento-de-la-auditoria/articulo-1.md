@@ -1,4 +1,6 @@
+(Derogado)
 CONSEJO NACIONAL DE PRODUCCIÓN
+(Esta norma fue derogada por el artículo 74 del Reglamento de organización y funcionamiento de la auditoría interna del Consejo Nacional de Producción, aprobado en sesión N° 2974 del 13 de setiembre de 2017)
 REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO
 DE LA AUDITORÍA INTERNA DEL CONSEJO
 NACIONAL DE PRODUCIÓN
