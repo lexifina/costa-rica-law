@@ -1,0 +1,4 @@
+2. Artículo 7.
+-Se elimina la frase “y lo dispuesto en el artículo 2, inciso a”., del artículo 7, para que de ahora en adelante se lea de la siguiente forma:
+“Artículo 7°—Todos los vehículos de uso administrativo, deben guardarse al terminar la jornada de trabajo en las instalaciones de la Municipalidad.
+Se exceptúan de esta disposición, aquellos vehículos que por motivo de gira se encuentran distantes a la Municipalidad, en cuyo caso se deberá garantizar el aparcamiento en un lugar seguro, también se exceptúa de esta disposición cuando el vehículo sufra un desperfecto mecánico, también se exceptúa de esta disposición cuando la gira inicie de madrugada o finalice muy tarde de noche, en cuyos casos el día previo podrá autorizarse la salida del vehículo y/o regreso el día siguiente de la gira. Los sábados, domingos y días feriados estos vehículos deberán permanecer aparcados dentro de las instalaciones municipales, salvo usos oficiales autorizados por el Alcalde.
