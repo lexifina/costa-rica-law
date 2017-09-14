@@ -1,0 +1,1 @@
+ARTÍCULO 10.- Entrega según demanda: La Proveeduría de la Unidad Ejecutora podrá aplicar la modalidad de contratación de entrega según demanda, cumpliendo las disposiciones de la Ley de Contratación Administrativa y su Reglamento.

@@ -1,0 +1,1 @@
+ARTÍCULO 13.- Garantías: Las garantías de participación y cumplimiento serán depositadas en la Tesorería de la respectiva Unidad Ejecutora, para su debido control y custodia, esto con el fin de ser utilizadas de ser necesario.

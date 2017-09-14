@@ -1,0 +1,1 @@
+ARTÍCULO 11.- Órdenes de compra o contrato: Los contratos (Órdenes de Compra) deberán ser remitidas a la CNE para la aprobación final de la Presidencia Ejecutiva o a quién ésta delegue, en concordancia con lo establecido en el artículo 18 de este reglamento.

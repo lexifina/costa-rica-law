@@ -1,0 +1,1 @@
+ARTÍCULO 14.- Recursos: El régimen recursivo para este tipo de contrataciones será el dispuesto en el Reglamento para las Contrataciones por el Régimen de Excepción y Funcionamiento de la Proveeduría Institucional de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias y en forma supletoria la Ley de Contratación Administrativa y su respectivo Reglamento.

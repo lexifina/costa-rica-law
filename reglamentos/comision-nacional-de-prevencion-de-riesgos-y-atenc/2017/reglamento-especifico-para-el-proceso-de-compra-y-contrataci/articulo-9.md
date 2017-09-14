@@ -1,0 +1,1 @@
+ARTÍCULO 9.- Contrataciones de Bienes y Servicios: Todas las contrataciones de bienes y servicios que requieran las Unidades Ejecutoras se realizarán con estricto apego a la Ley Nacional de Emergencias y Prevención del Riesgo, Ley de Contratación Administrativa y demás normativa interna de la CNE.
