@@ -1,1 +1,0 @@
-Artículo 22.—Al Auditor Interno le corresponderá proponer al Concejo Municipal la creación de las plazas y servicioss que considera indispensables para el cumplimiento del plan anual de Auditoría y en general para el buen funcionamiento de la Auditoría Interna, además de lo establecido en el artículo 28 de la Ley General de Control Interno Nº 8292.

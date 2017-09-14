@@ -1,1 +1,0 @@
-Artículo 31.—Es obligación del Auditor Interno incorporar profesionales o técnicos de diferentes disciplinas, funcionarios o no de la Municipalidad de Acosta, para que lleven a cabo labores de su especialidad en apoyo a las auditorias que realice la Unidad de Auditoría Interna.

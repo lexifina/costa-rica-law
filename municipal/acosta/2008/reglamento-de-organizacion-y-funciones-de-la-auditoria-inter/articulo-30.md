@@ -1,1 +1,0 @@
-Artículo 30.—Es obligación de la Municipalidad de Acosta, brindar Asesoría Legal, el oportuno y efectivo servicio mediante los estudios jurídicos que requiera la Auditoría Interna, a fin de establecer adecuadamente su ámbito de acción y atender sus necesidades en orden jurídico, conforme lo estipula el artículo 33, inciso c), de la Ley General de Control Interno.
