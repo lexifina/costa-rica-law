@@ -1,0 +1,1 @@
+ARTÍCULO 22.- Las recalificaciones y aumentos de alquileres se harán conforme a lo establecido en la Ley No. 2428 del 14 de setiembre del 1959, Ley Sobre Arrendamientos de Locales Municipales, y sus reformas.

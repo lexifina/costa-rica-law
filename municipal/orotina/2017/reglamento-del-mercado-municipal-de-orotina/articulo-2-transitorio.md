@@ -1,0 +1,2 @@
+TRANSITORIO II.- La Municipalidad contará con un plazo de dos meses a partir de la vigencia de este reglamento, para elaborar y poner a disposición de los arrendatarios los respectivos contratos de arrendamiento. Los arrendatarios contarán con diez días hábiles a partir del requerimiento formal efectuado por la Municipalidad, para suscribir el contrato.”
+RECOMENDACIÓN Esta comisión recomienda al honorable Concejo:

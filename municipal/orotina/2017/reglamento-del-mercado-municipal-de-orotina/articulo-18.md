@@ -1,0 +1,1 @@
+ARTÍCULO 18.- Permiso para ausentarse. El administrador del Mercado podrá otorgar a los arrendatarios que así lo requieran, permiso para ausentarse por razones de incapacidad médica, lo cual el interesado deberá demostrar fehacientemente.

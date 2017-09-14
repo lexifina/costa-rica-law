@@ -1,0 +1,7 @@
+ARTÍCULO 28.- Horario. El mercado funcionará ordinariamente, según los horarios que fije la Alcaldía, oyendo previamente, a los arrendatarios, y velando porque dichos horarios se ajusten a las necesidades de los usuarios, con las siguientes disposiciones:
+a) Solamente se permitirá al público ingresar al mercado entre la hora de apertura y la hora fijada para el cierre.
+b) Los domingos, días feriados de ley y día de festividades especiales, el mercado prestará sus servicios hasta las doce del mediodía.
+c) En casos especiales, la Alcaldía, previo informe del Administrador del Mercado, podrá autorizar modificaciones temporales al horario establecido para el funcionamiento general del mercado.
+d) La Alcaldía, previo informe del administrador del Mercado, podrá extender licencias ocasionales para que los arrendatarios desarrollen actividades fuera del horario ordinario. Los gastos administrativos que se ocasionen del funcionamiento extraordinario del mercado, serán sufragados en forma proporcional por los arrendatarios que hayan solicitado el funcionamiento extraordinario.
+e) La Administración del Mercado, previa autorización de la Alcaldía, podrá cerrar la totalidad o parte de las zonas comunes cuando sea necesario, para efectuar trabajos de reparación o modificaciones. Para ello informará oportunamente a los arrendatarios, salvos casos de urgencia.
+Cuando la administración varíe los horarios del mercado, le será notificado al público en general y arrendatarios mediante aviso en los medios disponibles.

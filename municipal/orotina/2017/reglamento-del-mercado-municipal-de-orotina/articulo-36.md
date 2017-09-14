@@ -1,0 +1,2 @@
+ARTÍCULO 36.- Procedimiento. Tratándose de falta leves se aplicará el procedimiento sumario, y, tratándose de faltas graves y faltas muy graves, el procedimiento ordinario, ambos regulados en la Ley General de la Administración Pública.
+El procedimiento de faltas leves, así como la imposición de las sanciones, corresponderá al Administrador del Mercado. El procedimiento de faltas graves y de faltas muy graves, así como la imposición de las sanciones, corresponderá a la Alcaldía Municipal.

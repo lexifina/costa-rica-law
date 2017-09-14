@@ -1,0 +1,1 @@
+ARTÍCULO 29.- Ingreso de mercadería. Se permitirá la entrada de artículos o productos para surtir los puestos durante la primera y la ultima hora de la jornada de apertura del mercado. En casos especiales, según el tipo de productos y la necesidad de proveeduría, el Administrador del Mercado podrá autorizar el ingreso en horario diferenciado.

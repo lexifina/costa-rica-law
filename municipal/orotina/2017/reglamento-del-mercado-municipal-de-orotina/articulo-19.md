@@ -1,0 +1,3 @@
+ARTÍCULO 19.- Estado de instalaciones y mobiliario. Las instalaciones y el mobiliario del local deben mantenerse en buen estado de conservación, higiene y limpieza. Solo podrán contar con mercadería atinente a la actividad autorizada, así como objetos, herramientas y elementos relacionados con éstas.
+Los arrendatarios deberán acondicionar sus locales para desarrollar adecuadamente la actividad para la cual han sido destinados.
+Los locales podrán ser inspeccionados por los funcionarios municipales designados en cualquier momento, quedando los arrendatarios obligados a facilitar estas inspecciones.

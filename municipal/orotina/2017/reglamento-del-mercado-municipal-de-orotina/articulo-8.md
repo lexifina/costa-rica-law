@@ -1,0 +1,2 @@
+ARTÍCULO 8.- Organización de los arrendatarios. Los arrendatarios podrán organizarse para ser representados ante la Administración del Mercado. Para ello, la organización creada debe demostrar a la Administración que representa un porcentaje mayor al 50% de los arrendatarios.
+Entre sus funciones, la organización de arrendatarios tendrá la de presentar, entre los meses de junio y julio de cada año, las propuestas para el Plan Anual Operativo, con su respectivo presupuesto.
