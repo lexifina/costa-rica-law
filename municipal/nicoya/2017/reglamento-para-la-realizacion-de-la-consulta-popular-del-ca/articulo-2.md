@@ -1,0 +1,1 @@
+Artículo 2°- Plebiscito: Es la consulta popular mediante la cual los habitantes del Cantón de Nicoya se pronunciarán sobre la aprobación o no de la creación del Concejo Municipal del Distrito de Bocas de Nosara.

@@ -1,0 +1,1 @@
+Artículo 24º- Del Resultado: El resultado de la votación para ser vinculante afirmativamente y de acatamiento para la creación del Concejo Municipal del Distrito de Bocas de Nosara deberá contar con el apoyo de al menos el quince porcientos (15%) de los votantes inscritos en el cantón.

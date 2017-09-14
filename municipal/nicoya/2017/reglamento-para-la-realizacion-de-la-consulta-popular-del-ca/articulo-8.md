@@ -1,0 +1,1 @@
+Artículo 8°- Limites a la Reiteración de la Consulta: Rechazado el plebiscito, no podrá volver a ser sometido a consulta popular, en un periodo de tiempo que no será inferior a dos años. Preferentemente no se realizará el Plebiscito dentro de los ocho meses anteriores a la celebración de elecciones nacionales o de los tres meses anteriores a elecciones municipales.

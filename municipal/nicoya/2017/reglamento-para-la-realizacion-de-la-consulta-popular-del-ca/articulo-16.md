@@ -1,0 +1,1 @@
+Artículo 16°- De la Formulación de la Pregunta: La formulación de la pregunta objeto de la consulta será clara y concisa de modo que se eviten interrogaciones confusas, capciosa o de dobles sentido. La pregunta será formulada de manera que se pueda contestar utilizando únicamente las palabras “SI” o “NO”.

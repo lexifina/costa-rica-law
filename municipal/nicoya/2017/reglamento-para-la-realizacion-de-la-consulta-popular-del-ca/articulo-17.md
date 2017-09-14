@@ -1,0 +1,1 @@
+Artículo 17°- De las Papeletas de Votación: El Concejo Municipal elaborará las papeletas que serán usadas en la votación, las cuales contendrán la pregunta que se somete a la consulta, así como las casillas para marcar la respuesta.

@@ -1,0 +1,1 @@
+Artículo 13°- De la Divulgación de la Consulta: Sin perjuicio de lo anterior, el Concejo Municipal tomara todas las medidas necesarias a fin de dar amplia divulgación a la consulta en todo el cantón de Nicoya y promover la eficacia de la decisión ciudadana.
