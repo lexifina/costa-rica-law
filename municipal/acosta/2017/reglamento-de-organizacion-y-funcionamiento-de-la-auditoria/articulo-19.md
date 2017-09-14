@@ -1,0 +1,2 @@
+Artículo 19°.-De la asistencia del Auditor Interno a convocatorias formales que realice la Contraloría General de la República. La asistencia del Auditor Interno a convocatorias formales que realice la Contraloría General de la República es obligatoria; razón por la cual no es necesario que el Auditor Interno solicite autorización previa al Concejo Municipal para asistir a las convocatorias que le haga dicho órgano Contralor, sin embargo se le deberá comunicar al Órgano
+colegiado previamente su participación a dichas convocatorias.

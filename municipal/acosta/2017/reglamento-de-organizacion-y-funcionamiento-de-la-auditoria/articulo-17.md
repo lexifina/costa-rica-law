@@ -1,0 +1,1 @@
+Artículo 17°.-Vacaciones y permisos del Auditor Interno. las vacaciones eventuales y urgentes y permisos por situaciones especiales o imprevistos del Auditor Interno deberán ser aprobados por el Alcalde Municipal, de igual forma se deberá comunicar al Órgano Colegiado cuando se presenten estos casos fortuitos. 11
