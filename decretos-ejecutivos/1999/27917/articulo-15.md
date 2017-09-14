@@ -1,12 +1,5 @@
 CAPITULO V
 Del área de obras públicas
-Artículo 15.—Funciones de obras públicas. Considerando que, por una parte el Consejo Nacional de Vialidad es el responsable de la conservación y construcción de la Red Vial Nacional y por otra que las Municipalidades son las responsables de la Red Vial Cantonal, el rol de la División de Obras Públicas pasará a enfocarse en la asistencia técnica y apoyo a los Municipios para la conservación de dicha red, procurando al mismo tiempo que las Municipalidades vayan asumiendo gradualmente sus responsabilidades, en la medida que tengan capacidad financiera y técnica para ese cometido.
-Por lo tanto, la División de Obras Públicas es clave para ayudar y canalizar los requerimientos de las Municipalidades en la etapa de transición, para que estas asuman su responsabilidad sobre la Red Cantonal.
-Su objetivo es brindar en forma coordinada, la asistencia técnica y el apoyo a las municipalidades y a otras organizaciones del país, para que en conjunto con éstas, se lleven a cabo las obras públicas necesarias con énfasis en la infraestructura vial cantonal, que permita un desarrollo económico y social del país, acorde con las políticas generales del Gobierno y del Ministerio.
-Sus funciones generales pasarán a ser:
-a. Cooperar con las municipalidades en el mantenimiento rutinario y periódico, la rehabilitación y el mejoramiento de caminos y puentes de la red cantonal y calles urbanas del país.
-b. (Derogado por el artículo 2° del decreto ejecutivo N° 39702 del 27 de abril del 2016)
-c. Inventariar la red cantonal del país y actualizar su clasificación.
-d. Planificar y ejecutar las obras fluviales.
-e. Coordinar con la Comisión Nacional de Emergencia en los eventos tendientes a la prevención y atención de situaciones de emergencia.
-f. Cumplir con las demás funciones que le sean asignadas por los Despachos del Ministro y del Viceministro, las leyes y los reglamentos.
+Artículo 15.—Funciones de obras públicas. Sin perjuicio de las potestades del Consejo Nacional de Vialidad, corresponde a la División de Obras Públicas la construcción, mantenimiento y mejoramiento de las carreteras de la red vial nacional. Le corresponde asimismo, regular y controlar los derechos de vía de las carreteras de dicha red existentes o en proyecto; planificar y ejecutar las obras fluviales y demás funciones que se establecen en el presente Decreto.
+En lo que atañe a la Red Vial Cantonal, compete a la citada División ejercer la fiscalización y la rectoría técnica en materia de infraestructura vial, en virtud de lo cual debe asesorar y coordinar con los gobiernos locales, sobre las regulaciones técnicas y logísticas indispensables que atañen a la adecuada funcionalidad de la red vial cantonal, considerada por separado y en integración con la red vial nacional; todo conforme lo establecido en el Reglamento a la Primera Ley Especial para la Transferencia de Competencias: Atención Plena y Exclusiva de la Red Vial Cantonal, Decreto Ejecutivo N° 40137-MOPT y demás normativa concordante.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40687 del 14 de setiembre del 2017)
