@@ -14,3 +14,4 @@ Reglamento para el Control sobre el Uso y Mantenimiento de los Vehículos Oficia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-02-17 | la propia norma |
+| 2 | 2017-09-14 | Decreto Ejecutivo 40688 (2017-09-14) |
