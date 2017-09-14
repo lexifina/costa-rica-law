@@ -1,0 +1,1 @@
+Artículo 18: De la responsabilidad de la UTN: En caso de que algún vehículo propiedad de la UTN hubiere causado daños a terceros que no hayan participado de forma directa en el accidente, los reclamos deberán sustentarse de conformidad con lo que establece la Ley General de la Administración Pública y otra normativa aplicable.

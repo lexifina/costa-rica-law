@@ -1,0 +1,1 @@
+Artículo 9: De la prestación de los servicios: El uso de los vehículos deberá reservarse única y exclusivamente al desempeño y desarrollo de las funciones propias de la Universidad, toda dependencia que requiera de los servicios de transporte para el cumplimiento de sus funciones, deberá presentar el formulario elaborado para tal fin, al Área de Transportes.

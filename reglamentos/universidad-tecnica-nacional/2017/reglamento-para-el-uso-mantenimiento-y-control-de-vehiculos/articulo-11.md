@@ -1,0 +1,1 @@
+Artículo 11: Responsabilidad del uso y costo por préstamo de vehículo y maquinaria agrícola: La dependencia solicitante es responsable del uso y control del servicio asignado, ante la Unidad responsable de la administración del vehículo. Asimismo, debe asumir el costo del combustible utilizado y en caso de que se le asigne chofer, debe cubrir el pago de viáticos.
