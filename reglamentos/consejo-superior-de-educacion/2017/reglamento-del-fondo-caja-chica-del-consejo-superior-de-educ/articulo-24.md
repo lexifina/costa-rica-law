@@ -1,0 +1,1 @@
+ARTÍCULO 24°. Faltantes. Los faltantes de dinero determinados en los arqueos de los respectivos fondos, serán cubiertos de inmediato por el responsable directo de su manejo y/o custodia, una vez establecida su responsabilidad, de lo contrario se procederá de conformidad con lo establecido en el artículo 37 del Reglamento General del Fondo Cajas Chicas, Decreto Ejecutivo N' 32874

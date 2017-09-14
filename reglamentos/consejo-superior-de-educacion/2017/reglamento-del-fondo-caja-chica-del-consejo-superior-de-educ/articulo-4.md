@@ -1,0 +1,1 @@
+ARTÍCULO 4°. De la apertura del Fondo Caja Chica. La apertura del Fondo Caja Chica, tiene como propósito facilitar la adquisición de bienes y servicios de menor cuantía que no son de uso común. La apertura del Fondo Caja Chica requiere la aprobación del Consejo Superior de Educación, previo visto bueno de la Tesorería Nacional.

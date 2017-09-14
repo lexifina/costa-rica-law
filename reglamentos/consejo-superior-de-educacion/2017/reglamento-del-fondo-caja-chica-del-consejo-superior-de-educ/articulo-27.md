@@ -1,0 +1,1 @@
+ARTÍCULO 27°. Sanciones administrativas. El incumplimiento a las disposiciones contenidas en el presente reglamento será sancionado de acuerdo a las disposiciones legales y reglamentarias de las normativas vigentes.

@@ -1,0 +1,3 @@
+ARTICULO 15°. Vales de Caja Chica. Es requisito indispensable la utilización del 'vale provisional de Caja Chica" en él se consignará la fecha, el monto, el nombre y firma de la persona que recibirá el dinero con la finalidad de realizar compras a nombre de la institución.
+El propósito del vale es que el responsable del Fondo pueda justificar oportunamente la entrega de dineros, es un documento que funcionará corno respaldo legal.
+Todo vale que se tramite debe estar respaldado por el suficiente contenido presupuestario para poder realizar el gasto. El encargado del Fondo Caja Chica, no aceptará ningún vale o pagará gasto alguno, si los comprobantes no cumplen con la justificación y firmas autorizadas.

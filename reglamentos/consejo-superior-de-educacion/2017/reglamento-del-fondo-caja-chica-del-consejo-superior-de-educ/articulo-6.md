@@ -1,0 +1,1 @@
+ARTICULO 6°. Las partidas, grupos y subpartidas presupuestarias autorizadas para realizar gastos por Fondo Fijo-Caja Chica se establecerán atendiendo el Clasificador del Objeto del Gasto del Sector Público para compras por el Fondo de Caja Chica. La Tesorería Nacional emitirá los lineamientos con las regulaciones respectivas.

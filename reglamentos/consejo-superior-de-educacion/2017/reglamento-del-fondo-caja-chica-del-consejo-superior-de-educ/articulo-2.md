@@ -1,0 +1,10 @@
+ARTICULO 2°. Definiciones: Entiéndase en el texto de esta normativa las siguientes definiciones:
+a) Fondo Caja Chica: Fondo en efectivo, para realizar la adquisición de bienes y servicios atendiendo situaciones no previsibles oportunamente y que sean de carácter indispensable y urgente, según las partidas, grupos y subpartidas presupuestarias autorizadas para realizar gastos por Fondo Caja Chica, las cuales se establecerán de conformidad con el Clasificador del Objeto del Gasto del Sector Público para compras por el Fondo de Caja Chica, para Compras por efectivo, que emite la Tesorería Nacional del Ministerio de Hacienda.
+b) Arqueo de Caja Chica: Procedimiento de control interno que consiste en constatar que la documentación que da soporte a los egresos y el efectivo se ajustan al monto autorizado, para lo cual se hará uso del instrumento preestablecido y autorizado
+c) Vate de Caja Chica: Documento utilizado para la solicitud de los adelantos de efectivo para la compra de un bien o servicio.
+d) Compra menor: Es la adquisición de bienes y servicios de menor cuantía que no superen los límites preestablecidos para los vales de Caja Chica y cuya necesidad sea urgente y requiera de atención inmediata.
+e) Liquidación: Rendición de cuentas que efectúa el funcionario responsable del Fondo Caja Chica, mediante la presentación de comprobantes originales que sustentan las adquisiciones o servicios recibidos,
+f) Reintegro de Caja Chica: Solicitud de reembolso que realiza el encargado del manejo del Fondo Caja Chica con la finalidad de que se le restituya por dinero en efectivo el total de pagos de facturas realizadas con cargo a este Fondo
+g) Viáticos: Gastos de viaje en el interior del país se podrán pagar por medio del Fondo Caja Chica conforme a lo establecido en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos de la Contraloría General de la República.
+h) Consejo o CSE: Consejo Superior de Educación.
+i) Secretaría: Secretaría General del Consejo Superior de Educación.
