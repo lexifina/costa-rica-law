@@ -1,1 +1,0 @@
-Artículo 6º—Que todo plan o proyecto que se promueva y se deba incorporar en un registro, el cual requiera del aval del Ministro Rector, debe señalar, por parte la Secretaría Sectorial, que el mismo es de conocimiento y está integrado en lo que corresponda, con los planes y proyectos del resto de los órganos y entes del Sector Transporte.
