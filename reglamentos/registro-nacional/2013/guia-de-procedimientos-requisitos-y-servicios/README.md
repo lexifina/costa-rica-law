@@ -14,3 +14,4 @@ Guía de Procedimientos, requisitos y servicios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-02-12 | la propia norma |
+| 2 | 2017-09-14 | Directriz 1 (2017-09-14) |
