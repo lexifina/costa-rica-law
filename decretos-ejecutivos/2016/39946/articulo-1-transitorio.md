@@ -1,0 +1,1 @@
+Transitorio· Único: Se confiere un plazo de seis meses a partir de la entrada en vigencia del presente Reglamento Técnico, con el .. .fin de que los cinemómetros utilizados, y que se encontraban· en ·operación. antes de la publicación de este Reglamento, se adapten a los requerimientos indicados para la verificación después de reparación o modificación.

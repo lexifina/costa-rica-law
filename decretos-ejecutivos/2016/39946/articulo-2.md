@@ -1,0 +1,1 @@
+Artículo 2º-.Los organismos, empresas o instituciones que utilicen los cinemómetros, deben demostrar documentalmente que el instrumento cumple con los requisitos reglamentarios establecidos en el artículo 1 del presente Reglamento, lo anterior mediante la presentación de un certificado de verificación vigente, en donde se indique el cumplimiento técnico.

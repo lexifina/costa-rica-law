@@ -1,0 +1,1 @@
+Artículo 4°- El Ministerio de Economía, Industria y Comercio será el encargado de la revisión y actualización del presente Reglamento. Técnico, a través del Laboratorio Costarricense de Metrología (LACOMET).
