@@ -1,0 +1,1 @@
+Artículo 13.—Modificaciones de obra: Cualquier modificación, obra adicional, exceso de obra constructiva o modificación de los planos constructivos, deberá ser solicitada y tramitada de conformidad con la normativa emitida al efecto por el BANHVI.

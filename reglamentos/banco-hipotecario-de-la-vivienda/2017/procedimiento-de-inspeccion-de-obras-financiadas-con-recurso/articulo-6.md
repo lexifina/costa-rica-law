@@ -1,0 +1,5 @@
+CAPÍTULO II
+Plan de Visitas
+Artículo 6º—Plan de visitas: Para cada uno de los casos de vivienda en territorio indígena, el inspector de la obra deberá elaborar un plan de visitas acorde con las condiciones encontradas para ejecutar las labores. En el plan de visitas propuesto, se deberá contemplar al menos tres visitas calendarizadas para cada caso independientemente de la lejanía o del acceso.
+La programación constructiva se debe incluir de forma detallada en el plan de visitas que debe realizar el inspector de obras, puesto que este plan de visitas obedece al desarrollo o ejecución del proceso constructivo de las viviendas.
+Las visitas deberán realizarse en las fases críticas del proceso constructivo, cubriendo al menos la construcción de cimientos, paredes, techos y elementos para el suministro de energía eléctrica, lo anterior sin ser una lista taxativa y sin detrimento del criterio profesional que emita el inspector de la obra, que debe considerar tipo de sistema constructivo y características particulares del desarrollo de cada vivienda.

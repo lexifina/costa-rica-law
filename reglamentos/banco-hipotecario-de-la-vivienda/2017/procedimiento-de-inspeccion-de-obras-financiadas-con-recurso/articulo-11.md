@@ -1,0 +1,3 @@
+Artículo 11.—Análisis de pruebas de calidad: Las pruebas de laboratorio inicialmente las aporta el constructor o profesional responsable, si el inspector posee duda razonable podrá solicitar la elaboración de pruebas de calidad adicionales, acompañada de la justificación técnica que la sustente.
+La entidad autorizada, recibirá dicha solicitud y de manera razonada deberá rechazarla o aprobarla, indicando al inspector y a la empresa constructora, su resolución al efecto.
+Si las causas detectadas son asignables a la empresa constructora o profesional responsable, el costo de la prueba debe ser cubierta por esa empresa o profesional responsable de la construcción.

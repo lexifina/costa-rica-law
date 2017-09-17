@@ -1,0 +1,2 @@
+Transitorio: Todos los casos de Bono Familiar de Vivienda destinados a la construcción de viviendas indígenas que estuvieren aprobados mediante acuerdo de la Junta Directiva del BANHVI o aprobados en la entidad autorizada o en trámite en la Dirección de FOSUVI, a la fecha en que entren a regir las presentes disposiciones y en curso de construcción de las obras, no deberán someterse a lo dispuesto en el presente reglamento y podrán continuarse tramitando únicamente con la participación de un profesional fiscalizador de inversiones.
+Acuerdo Unánime y Firme.
