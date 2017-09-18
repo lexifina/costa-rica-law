@@ -1,1 +1,0 @@
-Artículo 11.—Para lo cual se tomará un acuerdo en firme del Concejo Municipal de San Carlos de aceptar el área para la vía de la Red Vial Cantonal, contando con todos y cada uno de los requisitos previos.

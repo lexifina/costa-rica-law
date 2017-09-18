@@ -1,1 +1,0 @@
-Artículo 21.—La Resolución que emita la Administración, tendrá los Recursos Administrativos dentro de los tres días siguientes a la publicación de aquella en el Diario Oficial, sin que tal recurso impida la ejecutoriedad del acto administrativo.

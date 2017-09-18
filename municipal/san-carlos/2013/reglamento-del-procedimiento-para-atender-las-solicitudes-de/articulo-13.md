@@ -1,1 +1,0 @@
-Artículo 13.—Aceptadas las donaciones de terrenos para la construcción de la Vía de la Red Vial Cantonal por el Concejo Municipal de San Carlos, facultará por acuerdo al Alcalde Municipal para firmar la escritura de donación.

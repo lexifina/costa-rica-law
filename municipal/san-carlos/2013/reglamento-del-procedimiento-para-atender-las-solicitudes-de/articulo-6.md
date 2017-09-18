@@ -1,1 +1,0 @@
-Artículo 6º—La superficie de rodamiento del terreno para ser destinado a la Vía Pública de la Red Vial Cantonal deberá ser acorde con lo que establezca la normativa relacionada con el fraccionamiento urbano y rural, según corresponda.

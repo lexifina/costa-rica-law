@@ -1,1 +1,0 @@
-Artículo 20.—El propietario del inmueble deberá abrir la vía de la Red Vial Cantonal en el término que fije la Administración, siendo que ante su renuencia, la Administración estará facultada para ejecutar la orden por su cuenta; quedando facultada conforme la ley así lo establece para el cobro de los gastos en que incurra por tal ejecución.

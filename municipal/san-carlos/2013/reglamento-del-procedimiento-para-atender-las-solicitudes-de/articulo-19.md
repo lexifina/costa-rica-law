@@ -1,1 +1,0 @@
-Artículo 19.—La Administración deberá fijar en la misma resolución, un término para que la misma se cumpla, el cual en ningún caso puede ser inferior a tres días, término que se contará a partir de la publicación de la resolución.

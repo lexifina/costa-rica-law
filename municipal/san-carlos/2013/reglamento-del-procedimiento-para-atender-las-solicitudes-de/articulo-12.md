@@ -1,1 +1,0 @@
-Artículo 12.—En caso de requerirse ampliar el ancho del terreno para ser destinado a vía de la Red Vial Cantonal para establecerlo conforme a derecho, deben los propietarios de los inmuebles colindantes con la vía, realizar las donaciones de las franjas de terreno correspondientes.
