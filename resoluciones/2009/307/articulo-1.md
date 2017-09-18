@@ -51,34 +51,16 @@ Mercado 1: Acceso a la red pública de telecomunicaciones desde una ubicación f
 Mercado 2: Servicios de comunicaciones de voz con origen en una ubicación fija y destino nacional: (Derogado por la resolución N° RCS-261-2016 aprobada en la sesión N° 068-2016 del 23 de noviembre del 2016, “Revisión del mercado minorista del servicio de telefonía fija, análisis del grado de competencia en dicho mercado, declaratoria de operadores importantes e imposición de obligaciones”)
 Mercado 3: Servicio de comunicaciones de voz con origen en ubicación fija y destino internacional: (Derogado por la resolución N° RCS-262-2016 aprobada en la sesión N° 068-2016 del 23 de noviembre del 2016, “Revisión del mercado minorista de telefonía internacional, análisis del grado de competencia en dicho mercado, declaratoria de operadores importantes e imposición de obligaciones”)
 SERVICIOS MÓVILES
-Mercado 4: Acceso a la red pública de telecomunicaciones desde una ubicación móvil: Mercado que incluye la puesta a disposición de los recursos que permiten la prestación de servicios de telecomunicaciones y las facilidades adicionales asociadas a éstos, desde un origen móvil.
-Mercado 5: Servicios de comunicaciones de voz con origen en una ubicación móvil y destino nacional: servicio de realización de comunicaciones de voz, desde un punto de origen en la red móvil, con destino a ubicaciones fijas o móviles e incluye los siguientes tipos de comunicaciones:
-a. Comunicaciones con origen y destino móvil:
-i. Comunicaciones locales
-ii. Comunicaciones locales a través del protocolo IP (VoIP)
-iii. Demás que establezca la SUTEL
-b. Comunicaciones con origen móvil y destino fijo:
-i. Comunicaciones locales
-ii. Comunicaciones locales a través del protocolo IP (VoIP)
-iii. Comunicaciones a servicios de acceso a bases de datos (900)
-iv. Comunicaciones a servicios de cobro revertido manual y automático
-v. Comunicaciones de telefonía pública
-vi. Comunicaciones a centros de telegestión de los operadores y proveedores a nivel nacional
-vii. Comunicaciones a servicios de emergencia (911)
-viii. Comunicaciones al servicio de mensajería de voz
-ix. Demás que establezca la SUTEL
+Mercado 4: Acceso a la red pública de telecomunicaciones desde una ubicación móvil: (Derogado por la resolución N° RCS-248-2017, aprobada en la sesión N° 67-2017 del 18 de setiembre de 2017, “Revisión del mercado del servicio minorista de telecomunicaciones móviles, análisis del grado de competencia en dicho mercado, declaratoria del operador y/ o operadores importantes e imposición de obligaciones”, se acordó eliminar el “Servicio minorista de telecomunicaciones móviles”)
+Mercado 5: Servicios de comunicaciones de voz con origen en una ubicación móvil y destino nacional: (Derogado por la resolución N° RCS-248-2017, aprobada en la sesión N° 67-2017 del 18 de setiembre de 2017, “Revisión del mercado del servicio minorista de telecomunicaciones móviles, análisis del grado de competencia en dicho mercado, declaratoria del operador y/ o operadores importantes e imposición de obligaciones”, se acordó eliminar el “Servicio minorista de telecomunicaciones móviles”)
 Mercado 6: Servicio de comunicaciones de voz con origen en ubicación móvil y destino internacional: (Derogado por la resolución N° RCS-262-2016 aprobada en la sesión N° 068-2016 del 23 de noviembre del 2016, “Revisión del mercado minorista de telefonía internacional, análisis del grado de competencia en dicho mercado, declaratoria de operadores importantes e imposición de obligaciones”)
-Mercado 7: Servicios de comunicaciones de mensajería corta: servicio de comunicaciones de mensajería corta tanto de texto como multimedia e incluye los siguientes tipos de comunicaciones:
-i. Mensajería corta nacional
-ii. Mensajería corta nacional a servicios de contenido
-iii. Mensajería corta internacional
-iv. Mensajería corta internacional a servicios de contenido
-v. Demás que establezca la SUTEL
+Mercado 7: Servicios de comunicaciones de mensajería corta: (Derogado por la resolución N° RCS-248-2017, aprobada en la sesión N° 67-2017 del 18 de setiembre de 2017, “Revisión del mercado del servicio minorista de telecomunicaciones móviles, análisis del grado de competencia en dicho mercado, declaratoria del operador y/ o operadores importantes e imposición de obligaciones”, se acordó eliminar el “Servicio minorista de telecomunicaciones móviles”)
+Mercado 6: Servicio de comunicaciones de voz con origen en ubicación móvil y destino internacional: (Derogado por la resolución
 Mercado 8: Servicios de itinerancia nacional e internacional: servicio que permite al cliente de un operador o proveedor realizar comunicaciones (voz, mensajería corta, transferencia de datos) a través de la red otro operador o proveedor e incluye comunicaciones entrantes y salientes nacionales e internacionales.
 (Nota de Sinalevi: Mediante resolución N° RCS-259-2016 “Revisión del mercado del minorista de itinerancia internacional, análisis del grado de competencia en dicho mercado, declaratoria de operadores importantes e imposición de obligaciones” aprobada en sesión N° 068-2016 del 23 de noviembre del 2016, se acordó deroga el Mercado 8 “Servicios de itinerancia nacional e internacional”, específicamente en la parte de itinerancia internacional.)
 SERVICIOS DE TRANSFERENCIA DE DATOS
 Mercado 9: Servicios de transferencia de datos de acceso conmutado: (Derogado por la resolución N° RCS-261-2016 aprobada en la sesión N° 068-2016 del 23 de noviembre del 2016, “Revisión del mercado minorista del servicio de telefonía fija, análisis del grado de competencia en dicho mercado, declaratoria de operadores importantes e imposición de obligaciones”)
-Mercado 10: Servicios de transferencia de datos a través de redes móviles: Corresponde a los servicios de acceso a redes de transferencia de datos a través de tecnologías móviles (celulares).
+Mercado 10: Servicios de transferencia de datos a través de redes móviles: (Derogado por la resolución N° RCS-248-2017, aprobada en la sesión N° 67-2017 del 18 de setiembre de 2017, “Revisión del mercado del servicio minorista de telecomunicaciones móviles, análisis del grado de competencia en dicho mercado, declaratoria del operador y/ o operadores importantes e imposición de obligaciones”, se acordó eliminar el “Servicio minorista de telecomunicaciones móviles”)
 Mercado 11: Servicios de transferencia de datos de acceso permanente (dedicado): Corresponde a los servicios de acceso a redes de transferencia de datos a través de tecnologías que aseguran la conectividad permanente del cliente. Incluye el acceso a través de redes cableadas y a través de redes móviles (celulares), satelitales e inalámbricas.
 Mercado 12: Servicios de comunicaciones punto a punto, punto a multipunto y demás modalidades: Corresponde a los servicios de arrendamiento a los usuarios finales, de enlaces de transmisión para la conexión permanente entre dos o más puntos a través de una red pública de telecomunicaciones, con una determinada capacidad fija en circuitos de n x 64 Kbps u otras capacidades, sin incluir funciones de conmutación que el usuario pueda controlar. Este servicio permite conectar dos o más puntos para el envío y recepción de flujos de información.
 Mercado 13: Servicios de redes privadas virtuales (VPN): son aquellas redes privadas que se establecen a través de las redes de telecomunicaciones disponibles al público y permiten a sus usuarios la comunicación directa con los recursos de sus redes locales o empresariales.
