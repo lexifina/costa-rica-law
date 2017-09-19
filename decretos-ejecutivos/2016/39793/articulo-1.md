@@ -22,6 +22,7 @@ Por tanto,
 DECRETAN:
 “IMPLEMENACIÓN DE LOS HORARIOS ESCALONADOS Y LA JORNADA ACUMULATIVA
 VOLUNTARIA EN LA ADMINISTRACIÓN CENTRAL”
-Artículo 1°.- Los titulares de los Ministerios y sus órganos adscritos ubicados dentro del Área Metropolitana de San José deberá aplicar un horario escalonado de ingreso y salida de la jornada laboral de sus funcionarios, medida que será implementada hasta el 30 de noviembre del 2016 y la cual podrá ser prorrogada por periodos adicionales de seis meses.
+Artículo 1°.-Los titulares de los Ministerios y sus órganos adscritos ubicados dentro del Área Metropolitana de San José deberá aplicar un horario escalonado de ingreso y salida de la jornada laboral de sus funcionarios, medida que será implementada hasta el 30 de junio del 2018 y la cual podrá ser prorrogada según sea necesario.
 Para efectos del presente decreto el Área Metropolitana de San José comprende los cantones de San José, Escazú, Desamparados, Aserrí, Mora, Goicoechea, Santa Ana, Alajuelita, Vázquez de Coronado, Tibás, Moravia, Montes de Oca y Curridabat y la Unión.
 Los titulares de los Ministerios y sus órganos adscritos deberán establecer a lo interno de sus respectivas instituciones, las unidades responsables de la ejecución de las acciones establecidas en el presente decreto, así como de las labores de coordinación que se consideren necesarias.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40658 del 19 de setiembre de 2017)

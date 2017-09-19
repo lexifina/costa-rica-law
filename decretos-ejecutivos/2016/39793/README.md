@@ -16,3 +16,4 @@ Implementación de los Horarios Escalonados y la Jornada Acumulativa Voluntaria 
 | 1 | 2016-07-12 | la propia norma |
 | 2 | 2016-11-29 | Decreto Ejecutivo 40029 (2016-11-29) |
 | 3 | 2017-03-28 | Decreto Ejecutivo 40296 (2017-03-28) |
+| 4 | 2017-09-19 | Decreto Ejecutivo 40658 (2017-09-19) |
