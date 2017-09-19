@@ -1,1 +1,0 @@
-Artículo 6º—Si la Proveeduría, no tiene en existencia el material pedido, procederá a la confección de la orden de compra respectiva, de acuerdo con el procedimiento de contratación administrativa, contenida en la Ley de Contratación Administrativa y su Reglamento, siempre y cuando haya contenido presupuestario (artículo 103 del Código Municipal).
