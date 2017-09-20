@@ -1,0 +1,2 @@
+Artículo 8. De suscripción de aceptación de la confidencialidad de la información.
+Las empresas fabricantes que resulten precalificadas en el sondeo de mercado de numerario, deberán suscribir el documento “Aceptación de Confidencialidad” al cual se refiere el Capítulo III de este Reglamento como requisito indispensable para participar en la etapa de selección y negociación económica. La Proveeduría podrá considerar vigentes los acuerdos de confidencialidad que tales empresas hayan suscrito previamente para efectos de otros procesos de contratación.

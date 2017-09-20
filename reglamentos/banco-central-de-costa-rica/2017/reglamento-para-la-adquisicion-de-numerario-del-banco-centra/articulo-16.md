@@ -1,0 +1,1 @@
+Artículo 16. Notificaciones por medios electrónicos. La dirección de correo electrónico señalada por las empresas en cualquiera de las etapas de este capítulo, será el medio oficial de notificación para todos los efectos del proceso de adquisición y demás procedimientos relacionados con ésta.

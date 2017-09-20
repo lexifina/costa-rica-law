@@ -1,0 +1,1 @@
+Artículo 19. Disposiciones derogatorias. Con la vigencia del presente Reglamento quedan derogados aquellas instrucciones, directrices y acuerdos que en materia de contratación de numerario que se hubieren emitido.
