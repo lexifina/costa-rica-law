@@ -15,3 +15,4 @@ Reglamento de bienes muebles de las Asamblea Legislativa
 | --- | --- | --- |
 | 1 | 2014-07-07 | la propia norma |
 | 2 | 2017-02-21 | Acuerdo 2 (2017-02-21) |
+| 3 | 2017-09-20 | Reglamento 180 (2017-09-20) |

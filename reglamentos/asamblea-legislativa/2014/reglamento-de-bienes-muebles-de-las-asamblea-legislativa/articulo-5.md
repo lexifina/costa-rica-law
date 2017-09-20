@@ -1,8 +1,10 @@
 CAPÍTULO III
 Deberes, Responsabilidades y Competencias
 de la Dependencia Institucional
-Artículo 5º—Departamento de Proveeduría. El Departamento de Proveeduría, por medio del Área de Suministros y Bienes Muebles, es la responsable de coordinar todas las actividades relacionadas con el control y el registro de bienes muebles. Además, le corresponderá al Área de Suministros y Bienes Muebles coordinar con el contratista la fecha y hora del recibo de lo adjudicado y enviará a la Unidad solicitante el aviso de recibo, para la coordinación con la unidad técnica respectiva.
-Son funciones del Área de Suministros y Bienes Muebles:
+Artículo 5.—Departamento de Proveeduría. El Departamento de Proveeduría, por medio del Área de Suministros y Bienes Muebles, es el responsable de coordinar todas las actividades relacionadas con el control y el registro de los bienes muebles. Además, le corresponderá al Área de Suministros y Bienes Muebles coordinar con el contratista la fecha y la hora del recibo de lo adjudicado, y enviará a la unidad solicitante el aviso de recibo, a fin de coordinar con la unidad técnica respectiva.
+(Así reformado el párrafo anterior en sesión N° 180-2017 del 20 de setiembre de 2017)
+Son funciones del Área de Suministros y Bienes las siguientes:
+(Así reformado el párrafo anterior en sesión N° 180-2017 del 20 de setiembre de 2017)
 a) Recibir, controlar y verificar el estado físico de los bienes muebles, materiales y suministros, en cuanto a sus componentes, cantidades y valor económico, además de constatar que el bien sea recibido conforme a la factura y a la orden de pedido, sin detrimento del acta que levante la unidad de acuerdo con la contratación y en la que conste el recibo del bien a entera satisfacción, entendiendo por esto el adecuado funcionamiento así como el cumplimiento de las características técnicas.
 b) Mantener actualizado el inventario de los bienes de la institución en el sistema correspondiente.
 c) Registrar los bienes adquiridos por la institución en el Sistema correspondiente, consignando su naturaleza, características y garantías, así como también los materiales y los suministros.
@@ -17,4 +19,6 @@ k) Gestionar en coordinación con la Dirección del Departamento de Proveeduría
 l) Llevar un registro de nombres, con sus respectivas firmas y números de identificación, de las personas designadas por las diferentes dependencias institucionales, autorizadas para realizar cualquier movimiento de bienes muebles, tales como asignaciones, reasignaciones, traslados y otros.
 m) Registrar la baja de bienes, previo cumplimiento de los procedimientos establecidos al efecto, así como enviar a través de los medios electrónicos idóneos, una copia de las actas de cesión a la Dirección del Proveeduría, Departamento Financiero (Dirección, Área de Contabilidad), Unidad Técnica involucrada, Departamento Legal y miembros de la Comisión de Cesiones.
 n) Enviar los originales de las garantías de los bienes adquiridos por la institución al Área de Gestión y Control del Departamento de Proveeduría; esta Área los custodiará y hará llegar a la unidad técnica correspondiente un comunicado de las garantías de los equipos.
+ñ) Custodiar los documentos originales de las garantías; facilitar una copia a la unidad técnica correspondiente cuando esta la requiera, ya sea por medio físico o digital, y llevar un control sobre la vigencia de estas y sus vencimientos.
+(Así adicionado el inciso anterior en sesión N° 180-2017 del 20 de setiembre de 2017)
 o) Implementar los procedimientos necesarios para garantizar el orden, la localización y el control del movimiento, asignación, reasignación, traslado, devolución y baja de los bienes, mediante los formularios respectivos.
