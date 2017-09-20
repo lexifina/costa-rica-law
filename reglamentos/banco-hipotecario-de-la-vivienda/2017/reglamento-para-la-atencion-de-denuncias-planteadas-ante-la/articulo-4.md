@@ -1,0 +1,2 @@
+Artículo 4º—Confidencialidad: Según lo establecido en el artículo N° 6 de la Ley General de Control Interno N° 8292 y el artículo N° 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública N° 8422, se debe mantener confidencialidad de la identidad del denunciante, de la información, así como de la documentación y otras evidencias de las investigaciones que se efectúen.
+Las infracciones a la obligación de mantener dicha confidencialidad por parte de los colaboradores de la Auditoría Interna podrán ser sancionadas según lo previsto en dichas leyes.

@@ -1,0 +1,1 @@
+Artículo 22.—Recursos: Contra la resolución que dicta el rechazo, archivo o desestimación de la denuncia, cabrá, por parte del denunciante, únicamente el recurso de revocatoria, dentro del plazo de tres días hábiles siguientes a la comunicación, conforme al régimen de impugnación establecido en la Ley General de la Administración Pública.
