@@ -1,0 +1,1 @@
+Artículo 119. —La Municipalidad podrá modificar transitoria o permanentemente los horarios establecidos en este reglamento, siempre que circunstancias especiales así lo exijan y no se cause grave perjuicio a los (as) trabajadores(as).

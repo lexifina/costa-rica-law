@@ -1,0 +1,1 @@
+Artículo 75. —Los (as) funcionarios (as) podrán acogerse al pago por concepto de Dedicación Exclusiva. Todo de conformidad con el Reglamento de Dedicación Exclusiva de la Municipalidad de Santa Bárbara.

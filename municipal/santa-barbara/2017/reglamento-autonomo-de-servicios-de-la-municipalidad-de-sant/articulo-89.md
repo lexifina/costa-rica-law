@@ -1,0 +1,1 @@
+Artículo 89. —Por el incumplimiento de lo dispuesto en la Ley General del Control del Tabaco y sus Efectos Nocivos Sobre la Salud y en este reglamento se impondrá una multa del diez por ciento (10%) de un salario base, a las personas físicas que fumen en los sitios prohibidos, sin perjuicio del Régimen Disciplinario Interno.

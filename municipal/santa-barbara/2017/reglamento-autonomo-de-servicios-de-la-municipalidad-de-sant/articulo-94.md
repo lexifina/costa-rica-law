@@ -1,0 +1,1 @@
+Artículo 94. — La persona ofendida podrá poner en consideración de la Alcaldía Municipal, su reubicación temporal en cualquier momento del procedimiento. La Alcaldía Municipal resolverá en única instancia, dentro de un plazo de dos días hábiles a partir de la gestión, la procedencia o no de la reubicación temporal solicitada.

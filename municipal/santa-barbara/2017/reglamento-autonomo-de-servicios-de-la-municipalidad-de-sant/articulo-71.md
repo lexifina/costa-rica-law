@@ -1,0 +1,1 @@
+Artículo 71. —En adelante la Municipalidad seguirá aplicando las sumas y porcentajes de aumento de salarios a todos (as) sus colaboradores (as) en las mismas condiciones y cantidades según el artículo 100 del Código Municipal (costo de vida).

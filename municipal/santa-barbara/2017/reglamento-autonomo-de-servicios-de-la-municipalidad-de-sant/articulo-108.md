@@ -1,0 +1,1 @@
+Artículo 108. —Del total que le corresponde, el o la servidor (a) deberá tomar las previsiones para cubrir las vacaciones que se toman a nivel de todo el personal Municipal, en los periodos de semana Santa y de fin de año.

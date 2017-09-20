@@ -1,0 +1,1 @@
+Artículo 85. —Todo (a) funcionario (a), grupo u organización de los (as) servidores (as) de la Municipalidad tendrán derecho a presentar las quejas y propuestas tendientes a mejorar las condiciones laborales. Para lo anterior, será competente la Comisión de Salud Ocupacional, quien deberá pronunciarse en los plazos establecidos en la Ley General de la Administración Pública.

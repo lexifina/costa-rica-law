@@ -1,0 +1,8 @@
+CAPÍTULO XXIV
+De los permisos con y sin goce de salario
+Artículo 113. —Siendo un derecho del o la funcionaria (a) Municipal, se podrá solicitar permiso ocasional o de excepción en los casos que establece el artículo 144 del Código Municipal. En los demás casos de permisos, por regla general, serán sin goce de sueldo, a excepción de citas médicas de la Caja Costarricense de Seguro Social las cuales serán refrendadas con comprobante de asistencia de la cita médica.
+Los permisos sin goce de salario por emergencia del solicitante, serán autorizados o rechazados por el Alcalde (sa) Municipal.
+El o la servidor (a) deberá gestionar las boletas de justificación (permiso sin goce de salario) ante el Departamento Recursos Humanos, quien luego de las firmas correspondientes procederá al rebajo correspondiente y archivo en el expediente personal administrativo.
+La Municipalidad otorgará permiso a todos (as) aquellos (as) funcionarios (as) que requieran renovar su licencia, siempre y cuando se establezca como requisito legal, por el Manual de Puestos Vigente y complete la “boleta de justificación” ante el Departamento de Recursos Humanos y posterior presentación de la justificación respectiva.
+Asimismo, se otorgará permiso a todos (as) aquellos(as) funcionarios (as) que tengan que renovar su carnet siempre y cuando ocupen puestos que requieran incorporación a Colegios Profesionales como requisito legal, según el Manual de Puestos Vigente y complete la “boleta de justificación” ante el Departamento de Recursos Humanos y posterior presentación de la justificación respectiva.
+La Municipalidad pagará a sus trabajadores(as) todos los días feriados señalados en el artículo 148 del Código de Trabajo tomando en cuenta los días de asueto por ley.

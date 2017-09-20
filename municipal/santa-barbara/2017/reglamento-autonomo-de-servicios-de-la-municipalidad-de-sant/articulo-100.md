@@ -1,0 +1,1 @@
+Artículo 100. — El procedimiento administrativo se substanciará de conformidad con lo dispuesto en el título segundo de la Ley General de la Administración pública, con la particularidad de que en caso de que los denunciados sean miembros o dependan jerárquicamente del Concejo Municipal, corresponderá a este órgano colegiado resolver, en definitiva.

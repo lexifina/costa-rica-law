@@ -1,0 +1,1 @@
+Artículo 54. —Todo programa de capacitación, en que organismos o instituciones públicas o privados, ofrezcan becas o extiendan invitaciones de capacitación, cursos, seminarios, talleres u otros, se canalizará a través del Departamento de Recursos Humanos, previo visto bueno del o la Alcalde (sa).

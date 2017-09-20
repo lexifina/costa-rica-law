@@ -1,0 +1,1 @@
+Artículo 109. —Si durante el disfrute de las vacaciones, el o la servidor (a) se enferma o accidenta y es incapacitado(a) para trabajar por la Caja Costarricense del Seguro Social o el Instituto Nacional de Seguros, el periodo se interrumpe y los días que falten de disfrutar se concederán al término de la incapacidad.

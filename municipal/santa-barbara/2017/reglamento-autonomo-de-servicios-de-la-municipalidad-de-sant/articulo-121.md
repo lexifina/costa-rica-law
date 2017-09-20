@@ -1,0 +1,1 @@
+Artículo 121. —Cuando necesidades imperiosas de la Municipalidad lo exijan, todo (a) trabajador (a) podrá ser requerido por sus superiores para realizar temporalmente cualquier otra labor adicional o diferente, compatible con sus fuerzas, aptitudes, o condición, y nivel ocupacional, siempre que la misma no exceda de un mes.

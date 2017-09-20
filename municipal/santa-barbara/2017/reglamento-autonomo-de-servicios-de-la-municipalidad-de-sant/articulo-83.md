@@ -1,0 +1,1 @@
+Artículo 83. —La Municipalidad en atención a estas normas, procurará con las previsiones técnicas y presupuestarias, en la medida de sus posibilidades, el trasladar al funcionario (a), que por razones médicas no deba permanecer en un puesto de trabajo específico.

@@ -1,0 +1,2 @@
+Artículo 110. —Cuando se presente un caso de emergencia o de urgencia en el trabajo y se considere que la solución del problema podría estar en el regreso inmediato del (la) servidor (a) en vacaciones, podrá pedirse a éste(a) su regreso, sin que ello represente obligación para él o la servidor (a) o represalias en su contra.
+Si está anuente, se interrumpirá el disfrute por todo el tiempo que sea necesario, y al término de la situación que la originó, continuará el o la servidor (a) el disfrute de su derecho.

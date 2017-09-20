@@ -1,0 +1,1 @@
+Artículo 48. —Se establece la Carrera Administrativa Municipal, como medio de desarrollo y promoción humano. Se entenderá como un sistema integral, regulador del empleo y las relaciones laborales entre los o las servidores(as) y la administración municipal.

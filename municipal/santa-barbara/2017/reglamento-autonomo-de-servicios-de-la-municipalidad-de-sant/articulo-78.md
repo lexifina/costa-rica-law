@@ -1,0 +1,1 @@
+Artículo 78. —Los (as) funcionarios (as) que deban viajar dentro del país en el ejercicio de sus funciones tendrá derecho a gastos de transporte y viáticos consistentes en pasajes, alimentación y hospedaje, los cuales regirán de acuerdo a la tabla emitida por la Contraloría General de la República. Los viáticos no se considerarán salario para ningún efecto legal.
