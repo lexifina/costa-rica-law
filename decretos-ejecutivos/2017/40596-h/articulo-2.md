@@ -1,0 +1,1 @@
+Artículo 2°.- Es responsabilidad de la administración activa del CONAC 4-S el cumplimiento de los dispuesto en el artículo 6 de la Ley N° 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos, publicada en La Gaceta N° 32452-H, publicado en La Gaceta N° 130 de 6 de julio de 2005 y sus reformas.
