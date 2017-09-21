@@ -1,0 +1,1 @@
+Artículo 22°—ESTUDIO DE LA SOLICITUD DE CONVALIDACIÓN.- La solicitud de convalidación será estudiada por la Jefatura de Capacitación, instancia que emitirá una recomendación ante el Director de la Escuela, quien resolverá lo pertinente y comunicará al interesado el resultado de su gestión.

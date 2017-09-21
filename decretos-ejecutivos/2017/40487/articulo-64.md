@@ -1,0 +1,1 @@
+Artículo 64°—DE LA EVALUACIÓN DEL CURSO IMPARTIDO: -Al término de cada materia se deberá realizar la evaluación de la materia por parte de los estudiantes, que deberá incluir al menos: instructor, metodología, instalaciones y materiales y deberá hacerse antes de realizar los exámenes finales.

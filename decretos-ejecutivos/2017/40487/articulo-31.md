@@ -1,0 +1,1 @@
+Artículo 31°—COMPONENTES DE LA CALIFICACIÓN.- La calificación de los estudiantes en cada materia, se obtendrá sumando los siguientes valores obtenidos: trabajo en clase (cuando lo amerite), pruebas (parciales, finales) teóricas y/o prácticas, exposiciones (cuando lo amerite), trabajo de campo (cuando lo amerite), trabajos extra clase (cuando lo amerite) y concepto.

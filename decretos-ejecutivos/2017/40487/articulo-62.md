@@ -1,0 +1,1 @@
+Artículo 62°—DEBERES Y DERECHOS.- Serán deberes y derechos de los instructores de la Escuela aquellos contemplados en la Ley General de Policía y el Reglamento de Organización y Servicio para la Policía de Tránsito.

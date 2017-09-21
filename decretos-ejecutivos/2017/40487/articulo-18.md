@@ -1,0 +1,2 @@
+Artículo 18°-DE LOS REQUISITOS PARA TRÁMITES DE CONVALIDACIÓN. Toda solicitud de convalidación de materias deberá ser tramitada ante la jefatura de Capacitación. Para realizar este trámite, será necesario aportar certificación original que incluya contenidos y horas, además de constancia de la existencia legal de la institución educativa o empresa otorgante.
+La Escuela se reserva el derecho de realizar cualquier investigación sobre la existencia legal del ente otorgante o sobre la legitimidad del documento, por los medios disponibles que sean necesarios.

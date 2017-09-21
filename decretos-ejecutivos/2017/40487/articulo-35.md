@@ -1,0 +1,1 @@
+Artículo 35°—DEFINICIÓN DE CONCEPTO. El concepto constituye el juicio profesional valorativo y global que emite el instructor con respecto al desempeño y actitud que demuestra el estudiante durante el proceso de aprendizaje de la materia. Para su calificación se deben utilizar las escalas de calificación u otros instrumentos técnicamente elaborados para tal propósito.

@@ -1,0 +1,1 @@
+Artículo 36°—APLICACIÓN DE EXAMEN DE REPOSICION. Cuando un estudiante obtenga una calificación inferior a setenta pero igual o superior a sesenta, tendrá derecho a un único examen de reposición cuya nota deberá resultar igual o mayor a setenta para aprobar la materia.

@@ -1,0 +1,4 @@
+Artículo 37°—EL EXAMEN DE REPOSICIÓN SE REGIRÁ BAJO LOS SIGUIENTES PARÁMETROS:
+1. El instructor de la materia en cuestión deberá programar el examen de reposición en los siguientes ocho días naturales después de entregada la nota final de la materia y presentada ante el Comité de Evaluación para su conocimiento. El instructor notificará al estudiante, al Comité de Evaluación e informará, a la Jefatura de Capacitación y a los demás instructores en forma general, con al menos tres días naturales de anticipación para la realización del examen.
+2. El examen de reposición deberá cubrir los objetivos de aprendizaje contenidos en el programa y desarrollados en clase.
+3. El resultado de este examen deberá reflejarse en un acta que deberá presentarse al Comité de Evaluación con copia a la Jefatura de Capacitación en los siguientes ocho días naturales posteriores a la aplicación del examen.

@@ -1,0 +1,1 @@
+Artículo 51°—OFICIALIA DE GUARDIA.- El oficial de guardia que esté en servicio, velará por el cumplimento y supervisión de lo dispuesto en el presente Reglamento, por los deberes y derechos de todo el personal de la Escuela. Asimismo será el superior inmediato de los cadetes en ausencia de la jefatura y del personal instructor.

@@ -1,0 +1,1 @@
+Artículo 11°- T.A.E -Antes de finalizar el Curso los estudiantes deberán aportar con su esfuerzo personal, cuarenta y ocho horas en obras de mejora en la infraestructura de la Escuela, para lo cual se coordinan lo referente entre la Dirección y la Jefatura de Capacitación. Dicha actividad se realizara en horas laborales y su aprobación se considera requisito de graduación.

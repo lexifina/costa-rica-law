@@ -1,0 +1,1 @@
+Artículo 24°—INTERPOSICIÓN DE RECURSOS EN LOS CASOS DE CONVALIDACIÓN... Contra lo resuelto por la Jefatura de Capacitación de la Escuela, el interesado podrá interponer dentro de los tres días hábiles posteriores a su notificación, los recursos de revocatoria y lo apelación, el primero ante el Director de la Escuela y el segundo ante el Ministro de Obras Públicas y Transportes.

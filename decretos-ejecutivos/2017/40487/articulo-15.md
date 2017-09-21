@@ -1,0 +1,1 @@
+Artículo 15°—MATERIAS DE ESPECIALIZACIÓN.- Las materias de especialización tienen como propósito adquirir conocimientos y habilidades en función con las necesidades operativas y administrativas específicas de la Policía de Tránsito y de la Unidad Policial a la que pertenece.

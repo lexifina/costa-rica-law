@@ -1,0 +1,4 @@
+Artículo 38°—NOTA OBTENIDA EN EL EXAMEN DE REPOSICIÓN:
+1. Cuando el examen de reposición es aprobado, se consigna como nota final de la materia un setenta.
+2. En caso de reprobar el examen de reposición, se consigna como nota final de la materia, la calificación obtenida en dicho examen y se dará por reprobada la materia y por ende el Curso Básico Policial, lo que el instructor comunicará al Comité de Evaluación con copia al Jefe de Capacitación, el cual procederá a informar al Consejo de Personal con copia al Director, para lo procedente
+En caso de inconformidad con el resultado del examen de reposición, el estudiante deberá solicitar en primera instancia una revisión ante el instructor en forma inmediata, el cual deberá resolver en el término de tres días hábiles y al Comité de Evaluación en segunda instancia dentro del término de los tres días hábiles siguientes en caso de continuar inconforme.

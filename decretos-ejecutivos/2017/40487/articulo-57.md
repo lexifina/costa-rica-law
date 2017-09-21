@@ -1,0 +1,6 @@
+SECCIÓN VI
+RÉGIMEN DISCIPLINARIO
+Artículo 57°—PROCEDIMIENTO DE LA APLICACIÓN DE LAS FALTAS GRAVES.-Las faltas graves o denuncias en contra de un educando, deberán ser tramitadas en forma expedita y oportunamente ante el Director de la Escuela a efecto de que se proceda conforme a lo indicado en la Ley General de Policía.
+En el caso de faltas graves deberá remitirse el expediente a la Sección de Asuntos Internos de la Dirección Jurídica, de acuerdo con lo estipulado en la Ley General de Policía.
+La Dirección de la Escuela podrá solicitar por escrito al Consejo de Personal que recomiende al señor Ministro el cese, en forma inmediata, del nombramiento, mediante la aplicación del artículo 140 inciso 1) Constitucional, del estudiante al que se le comprobó la comisión de falta grave, sin perjuicio de aplicar lo establecido en las cláusulas del contrato de adiestramiento suscrito por el estudiante con el Ministerio.
+Se considerarán faltas graves las contenidas en la Ley General de Policía, así como el quebranto a las disposiciones contenidas en los artículos 12, 13, y 14, del Decreto Ejecutivo 37702— MOVÍ del 2 de octubre de 2013, excluyendo las conductas indicadas en el inciso 8 del artículo 14 del citado Reglamento.

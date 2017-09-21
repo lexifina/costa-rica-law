@@ -1,0 +1,1 @@
+Artículo 4°—PROGRAMA DE CURSO. El Programa de cada Curso en sus diferentes áreas, los contenidos de las materias que se imparten y su duración en horas, deberán ser aprobados por el Director para su debida implementación.

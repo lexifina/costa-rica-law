@@ -1,0 +1,1 @@
+Artículo 10° —PRÁCTICAS SUPERVISADAS.- Para efectos de la formación policial, las prácticas supervisadas son las actividades formativas que consisten en la inserción gradual del estudiante con la realidad laboral, que posibilite la aplicación de los conocimientos adquiridos durante su formación académica.

@@ -1,0 +1,1 @@
+Artículo 14°—MATERIAS DE ACTUALIZACIÓN.- Las materias de actualización son aquellas diseñadas con el fin de fortalecer las habilidades, conocimientos y actitudes que necesita la población policial para mejorar el desempeño de los policías, cuando así se demuestre que es requerido.
