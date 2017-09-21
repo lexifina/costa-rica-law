@@ -1,1 +1,1 @@
-Artículo 68.—Prohibiciones. Bajo ninguna circunstancia el Banco podrá pagar un depósito judicial si el interesado no se encuentra registrado en la base de datos del Sistema del Banco para ese número de caso, no exista expediente judicial o no presente el documento de identificación.
+Artículo 68.- Prohibiciones. Bajo ninguna circunstancia el Banco podrá pagar un depósito judicial si el interesado no se encuentra registrado en la base de datos del Sistema del Banco para ese número de caso, no exista expediente judicial o no presente el documento de identificación.

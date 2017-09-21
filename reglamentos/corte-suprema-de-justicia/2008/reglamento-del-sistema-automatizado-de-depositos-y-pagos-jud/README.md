@@ -13,3 +13,4 @@ Reglamento del sistema automatizado de depósitos y pagos judiciales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-05-27 | la propia norma |
+| 2 | 2017-09-21 | Circular 148 (2017-09-21) |

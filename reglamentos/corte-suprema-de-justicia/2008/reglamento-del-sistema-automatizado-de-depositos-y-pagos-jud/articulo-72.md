@@ -1,1 +1,1 @@
-Artículo 72.—Verificación de los estados de conciliación. La revisión y verificación de los estados de conciliación que emite el S.D.J., los hará el Encargado del Sistema en el Departamento Financiero Contable, o en su caso, el de la U.A.R.
+Artículo 72.- Verificación de los estados de conciliación. La revisión y verificación de los estados de conciliación que emite el S.D.J., los hará el Encargado del Sistema en el Departamento Financiero Contable, o en su caso, el de la U.A.R.

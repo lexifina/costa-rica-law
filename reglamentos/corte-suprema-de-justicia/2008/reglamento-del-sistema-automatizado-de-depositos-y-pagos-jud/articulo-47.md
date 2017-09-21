@@ -1,1 +1,1 @@
-Artículo 47.—De la contraorden de pago. Toda contraorden de pago debe ser registrada en el S.D.J. y comunicada al Departamento Financiero Contable o a la U.A.R. formalmente con la autenticación del Juez Encargado.
+Artículo 47.- De la contraorden de pago. Toda contraorden de pago debe ser registrada en el S.D.J. y comunicada al Departamento Financiero Contable o a la U.A.R. formalmente con la autenticación del Juez Encargado.

@@ -1,1 +1,1 @@
-Artículo 46.—Control de las autorizaciones. Toda autorización debe ser mediante resolución judicial, excepto pensiones alimentarias y consignación de alquileres, que deberá contar con un auto inicial y la aprobación de la generación de autorizaciones de pago en forma automática.
+Artículo 46.- Control de las autorizaciones. Toda autorización debe ser mediante resolución judicial, excepto pensiones alimentarias y consignación de alquileres, que deberá contar con un auto inicial y la aprobación de la generación de autorizaciones de pago en forma automática.

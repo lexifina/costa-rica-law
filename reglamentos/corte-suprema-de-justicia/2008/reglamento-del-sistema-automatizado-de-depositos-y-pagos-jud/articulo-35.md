@@ -1,1 +1,1 @@
-Artículo 35.—Responsables. A solicitud escrita, el personal designado por Financiero Contable, U.A.R. y el Juez del Despacho, deberá consultar las bitácoras y emitir los reportes que sean necesarios.
+Artículo 35.- Responsables. A solicitud escrita, el personal designado por Financiero Contable, U.A.R. y el Juez del Despacho, deberá consultar las bitácoras y emitir los reportes que sean necesarios.

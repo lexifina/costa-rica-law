@@ -1,1 +1,1 @@
-Artículo 23.—Desactivación de códigos acceso. Por renuncia, vacaciones, traslado, permiso o cese de funciones, de cualquier usuario del S.D.J., se deberá notificar al Departamento de Informática, o al Analista Regional Informático, para que desactive el código de acceso.
+Artículo 23.- Desactivación de códigos acceso. Por renuncia, vacaciones, traslado, permiso o cese de funciones, de cualquier usuario del S.D.J., se deberá notificar al responsable de administrar los usuarios del sistema, para que desactive el código de acceso.

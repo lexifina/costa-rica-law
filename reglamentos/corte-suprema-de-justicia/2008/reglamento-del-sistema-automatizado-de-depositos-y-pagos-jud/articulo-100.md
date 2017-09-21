@@ -1,1 +1,1 @@
-Artículo 100.—Vigencia. Este Reglamento rige a partir de su publicación y deroga el Reglamento del Sistema Automatizado de Depósitos y pagos judiciales aprobado por Corte Plena en sesión número 17-2000, celebrada el 24 de abril de 2000, artículo XXIX.
+Artículo 100.- Vigencia. Este Reglamento rige a partir de su publicación y deroga el Reglamento del Sistema Automatizado de Depósitos y pagos judiciales aprobado por Corte Plena en sesión número 17-2000, celebrada el 24 de abril de 2000, artículo XXIX.

@@ -1,4 +1,4 @@
-Artículo 28.—Del acceso al Sistema del Banco. El acceso al Sistema Automatizado del Banco será por medio de una clave confidencial que deberá ser solicitada al Banco formalmente por:
+Artículo 28.- Del acceso al Sistema del Banco. El acceso al Sistema Automatizado del Banco será por medio de una clave confidencial que deberá ser solicitada al Banco formalmente por:
 • el Jefe del Departamento Financiero Contable para el personal encargado del S.D.J. en este departamento.
 • el Jefe Administrativo, en el caso de la U.A.R.
 • el Jefe del despacho o la UAR, en el caso de los Despachos Judiciales.

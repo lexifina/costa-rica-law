@@ -1,15 +1,15 @@
-Artículo 2º—Definiciones. Para los efectos de este reglamento se entenderá por:
-Analista Regional Informático: Profesional en el campo de la informática que pertenece a los Circuitos Judiciales, quien se encarga de darle soporte al SDJ.
+Artículo 2.- Definiciones. Para los efectos de este reglamento se entenderá por:
+Analista Regional Informático: Profesional en el campo de la informática que pertenece a los Circuitos Judiciales, quien se encarga de darle soporte al S.D.J..
 Autoridad que ordena pagar automáticamente: Juez con potestad para administrar los depósitos judiciales acreditados al expediente de un caso en particular, conforme resolución que llegue a dictar dentro de un proceso.
 Autorización: Giro electrónico que permite el pago del monto total o parcial de un depósito, puede ser automática, normal o en línea.
 Tipos de autorización:
-a). Automática: El computador del Banco está programado para generar una autorización en el momento en que se realice un depósito, siempre y cuando, la información del expediente y el depósito cumplan una serie de parámetros o requisitos preestablecidos.
-b) Normal: Son las autorizaciones registradas en el S.D.J. y que se envían al Banco al final del día (se envían en grupo). El dinero se puede retirar hasta el día siguiente.
-c) Línea: Es generada por el despacho e incluida al Sistema del Banco el mismo día, para que pueda ser pagada inmediatamente. Esta autorización se da sólo en casos calificados y queda a criterio del Juez.
+a. Automática: El computador del Banco está programado para generar una autorización en el momento en que se realice un depósito, siempre y cuando, la información del expediente y el depósito cumplan una serie de parámetros o requisitos preestablecidos.
+b. Normal: Son las autorizaciones registradas en el S.D.J. y que se envían al Banco al final del día (se envían en grupo). El dinero se puede retirar hasta el día siguiente.
+c. Línea: Es generada por el despacho e incluida al Sistema del Banco el mismo día, para que pueda ser pagada inmediatamente. Esta autorización se da sólo en casos calificados y queda a criterio del Juez.
 Autorización. Tipos. El S.D.J. tiene los siguientes tipos de autorización:
 a) Normal: Cuando el autorizado a retirar el dinero aparece como tal en el expediente.
 b) Devolución: Cuando el autorizado a retirar el dinero es el que realizó el depósito.
-c) Transferencia: Cuando se transfiere dinero de un expediente en el SDJ a una cuenta corriente judicial o a otro expediente Judicial.
+c) Transferencia: Cuando se transfiere dinero de un expediente en el S.D.J. a una cuenta corriente judicial o a otro expediente Judicial.
 Autorizado: Es la persona que puede retirar el dinero en el Banco.
 Banco: Institución con la que se tiene el S.D.J., específicamente: el Banco, Sucursal o Agencia bancaria en la cual se realizan los depósitos, se generan las autorizaciones automáticas y se retiran los pagos.
 Bitácora: Es el historial donde se anotan los movimientos que se realizan en el S.D.J.
@@ -32,7 +32,8 @@ Perfiles de acceso: Son los derechos que se asocian a cada usuario, para acceder
 Respaldo: El respaldo es la acción de guardar una o varias copias de la base de datos o archivos que conforman un sistema.
 Reversión: Proceso mediante el cual debe anularse alguna acción específica realizada en el Sistema, con el fin que la información regrese a su estado original.
 Sistema Automatizado de Depósitos y Pagos Judiciales (S.D.J.): Sistema que administra en forma electrónica los dineros depositados en los procesos judiciales.
-Transferencia de depósitos entre expedientes del mismo Despacho Judicial: Esta situación se presenta cuando se detecta que uno o más depósitos se encuentran en otro expediente al cual no pertenecen, por lo que deben trasladarse al expediente correcto.
+Transferencia de depósitos entre expedientes del mismo Despacho
+Judicial: Esta situación se presenta cuando se detecta que uno o más depósitos se encuentran en otro expediente al cual no pertenecen, por lo que deben trasladarse al expediente correcto.
 Transferencia de expedientes: Cuando un expediente debe ser trasladado física y electrónicamente a otro Despacho Judicial.
 U.A.R.: Unidad o Subunidad Administrativa Regional u Oficina Administrativa.
-Usuario del Sistema: Autorizado para utilizar el Sistema de Depósitos Judiciales por medio de un código de acceso.
+Usuario del Sistema: Autorizado para utilizar el Sistema de Depósitos Judiciales por medio de un código de acceso. Administradores de Usuarios del S.D.J. por Despacho: Son los responsables de la inclusión, modificación, activación y desactivación de los usuarios del S.D.J.. Estos usuarios pertenecen a cada uno de los despachos judiciales u oficinas que utilizan el S.D.J.. Reciben solicitudes por parte del Juez del despacho o el Jefe de oficina, según corresponda. Solo pueden administrar usuarios del despacho u oficina donde trabajan. Administradores Regionales de la Seguridad del S.D.J. en cada Circuito Judicial: Son los responsables de la inclusión, modificación, activación y desactivación de los Administradores de usuarios del S.D.J. por Despacho. Estos usuarios pertenecen a las Unidades o Subunidades Regionales, son designados por el Jefe de la Unidad o Subunidad Regional y reciben solicitudes por parte del Juez del despacho o el Jefe de oficina, según corresponda. Solo pueden administrar usuarios de las oficinas del Circuito Judicial donde trabajan.

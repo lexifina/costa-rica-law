@@ -1,1 +1,1 @@
-Artículo 52.—Del Control. Cada vez que haya un traspaso de depósito, el usuario del S.D.J. en Financiero Contable o en la U.A.R. del Circuito Judicial respectivo debe verificar al día siguiente que éste se aplicó en el Banco.
+Artículo 52.- Del Control. Cada vez que haya un traspaso de depósito, el usuario del S.D.J. en Financiero Contable o en la U.A.R. del Circuito Judicial respectivo debe verificar al día siguiente que éste se aplicó en el Banco.

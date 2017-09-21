@@ -1,1 +1,1 @@
-Artículo 4º—Información del expediente a registrar para conformar la base de datos del S.D.J. El Despacho Judicial deberá mantener y registrar la base de datos del S.D.J. con la información requerida por el sistema.
+Artículo 4.- Información del expediente a registrar para conformar la base de datos del S.D.J. El Despacho Judicial deberá mantener y registrar la base de datos del S.D.J. con la información requerida por el sistema.

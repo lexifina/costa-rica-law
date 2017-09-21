@@ -1,1 +1,1 @@
-Artículo 87.—Custodia de los Respaldos. La custodia del respaldo del Circuito Judicial, quedará a cargo del Departamento de Informática y de la U.A.R., de acuerdo con los lineamientos establecidos para la Institución.
+Artículo 87.- Custodia de los Respaldos. La custodia del respaldo del Circuito Judicial, quedará a cargo del Departamento de Informática y de la U.A.R., de acuerdo con los lineamientos establecidos para la Institución.

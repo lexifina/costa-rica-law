@@ -1,1 +1,1 @@
-Artículo 97.—Incumplimiento al Reglamento. El incumplimiento a este Reglamento, al Manual de Procedimientos, instructivos y circulares emitidas, serán sancionados de acuerdo con lo dispuesto en la Ley Orgánica del Poder Judicial, y demás ordenamiento jurídico, según corresponda.
+Artículo 97.- Incumplimiento al Reglamento. El incumplimiento a este Reglamento, al Manual de Procedimientos, instructivos y circulares emitidas, serán sancionados de acuerdo con lo dispuesto en la Ley Orgánica del Poder Judicial, y demás ordenamiento jurídico, según corresponda.

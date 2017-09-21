@@ -1,1 +1,1 @@
-Artículo 57.—Del Control. La U.A.R., o en su caso el Departamento Financiero Contable, verificará que la transferencia recibida se haya cargado correctamente en el Sistema o que la transferencia enviado haya sido recibida en el circuito destino.
+Artículo 57.- Del Control. La U.A.R., o en su caso el Departamento Financiero Contable, verificará que la transferencia recibida se haya cargado correctamente en el Sistema o que la transferencia enviado haya sido recibida en el circuito destino.

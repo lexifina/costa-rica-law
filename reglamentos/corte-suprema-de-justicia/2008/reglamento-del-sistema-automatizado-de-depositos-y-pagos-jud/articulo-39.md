@@ -1,1 +1,1 @@
-Artículo 39.—De la Deducción por Planilla. Cuando se requiera practicar la deducción automática del salario de la parte obligada, el Despacho Judicial deberá comunicar al patrono del obligado, que efectúe la deducción y realice el depósito sobre el número único de expediente.
+Artículo 39.- De la Deducción por Planilla. Cuando se requiera practicar la deducción automática del salario de la parte obligada, el Despacho Judicial deberá comunicar al patrono del obligado, que efectúe la deducción y realice el depósito sobre el número único de expediente.

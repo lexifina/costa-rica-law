@@ -1,1 +1,1 @@
-Artículo 34.—Del Acceso de las Bitácoras. Únicamente el personal autorizado por el Jefe del Departamento Financiero Contable y de la U.A.R. así como el Juez Encargado, revisara las bitácoras del Sistema.
+Artículo 34.- Del Acceso de las Bitácoras. Únicamente el personal autorizado por el Jefe del Departamento Financiero Contable y de la U.A.R. así como el Juez Encargado, revisara las bitácoras del Sistema.

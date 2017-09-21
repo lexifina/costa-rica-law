@@ -99,4 +99,3 @@ articulo-98.md
 articulo-99.md
 articulo-100.md
 articulo-101.md
-articulo-1-transitorio.md

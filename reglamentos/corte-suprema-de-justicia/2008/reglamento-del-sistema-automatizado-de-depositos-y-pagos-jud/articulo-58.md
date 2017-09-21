@@ -1,7 +1,7 @@
-CAPÍTULO III
-De las Transferencias de Despachos Judiciales
-Automatizados a Despachos Judiciales sin Sistema
-Artículo 58.—Trámite. El Encargado del Despacho Judicial origen incluirá como autorizado al Despacho Judicial destino y generará una autorización por transferencia, la cual debe ser aprobada por el Juez Encargado. Una vez que la autorización sea confirmada por el Banco, el despacho confeccionará un oficio que va dirigido al Banco, donde se solicita transferir los fondos a esa nueva cuenta, remitiendo primero el oficio al Departamento Financiero Contable o a la U.A. R. para que verifiquen los datos, le den el visto bueno y sea enviado.
+CAPITULO III
+De las Transferencias de Despachos Judiciales automatizados
+a Despachos Judiciales sin Sistema
+Artículo 58.- Trámite. El Encargado del Despacho Judicial origen incluirá como autorizado al Despacho Judicial destino y generará una autorización por transferencia, la cual debe ser aprobada por el Juez Encargado. Una vez que la autorización sea confirmada por el Banco, el despacho confeccionará un oficio que va dirigido al Banco, donde se solicita transferir los fondos a esa nueva cuenta, remitiendo primero el oficio al Departamento Financiero Contable o a la U.A. R. para que verifiquen los datos, le den el visto bueno y sea enviado.
 Si el proceso para la transferencia de fondos se puede realizar de forma automatizada, no será necesaria la utilización del oficio. En cuyo caso la verificación, control y envío del oficio por parte de la U.A.R. o de Financiero Contable no será necesaria. Sólo deberá verificar y confirmar que dicha transferencia se ejecutó correctamente, una vez que terminó el proceso de la transferencia de fondos.
 Al trasladar un expediente a un Despacho Judicial sin Sistema Automatizado, los depósitos que tienen saldo serán transferidos a la cuenta del Despacho destino y el Despacho solicitará formalmente al Departamento Financiero Contable y a la U.A.R. que desactiven el expediente en el Sistema del Banco, e indicará en el S.D.J. en la información del expediente que fue trasladado a otro despacho.
 En caso de que sea una deducción por planilla, el Despacho Judicial origen deberá notificar al patrono el número de cuenta corriente del Despacho destino para los depósitos.
