@@ -1,0 +1,1 @@
+Artículo 3. Elimínense el inciso j) del artículo 25, inciso j) artículo 27, el inciso i) del artículo 37 y el inciso q) del artículo 41 del Decreto Ejecutivo N° 38263-H, denominado “Reglamento de Organización de la Tesorería Nacional”.
