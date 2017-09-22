@@ -1,0 +1,3 @@
+ARTÍCULO 27. De las sanciones. En caso de advertir una infracción al presente reglamento con el uso de la patente para juegos permitidos, el Departamento de Patentes seguirá el siguiente procedimiento:
+En el primer decomiso para devolver dichas máquinas, el propietario deberá cancelar a la municipalidad de Siquirres, diez veces el monto de la patente por máquina de forma trimestral, y la segunda vez se pasará vía judicial.
+De comprobarse que en el local comercial autorizado para la actividad de máquinas o juegos permitidos se ingieren bebidas alcohólicas, se consume drogas o se presta para actividades que violenten los derechos de los niños y adolescentes, en forma inmediata y definitiva se suspende la explotación comercial autorizada en este reglamento.

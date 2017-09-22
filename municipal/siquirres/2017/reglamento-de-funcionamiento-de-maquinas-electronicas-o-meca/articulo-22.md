@@ -1,0 +1,1 @@
+ARTICULO 22. Los locales deberán exhibir rótulos grandes y visibles advirtiendo al público prohibiciones de uso de máquinas de juego a los menores de 12 años y las restricciones de horarios estipulados. También se deberá colocarse en forma visible la respectiva patente municipal de juegos al día.

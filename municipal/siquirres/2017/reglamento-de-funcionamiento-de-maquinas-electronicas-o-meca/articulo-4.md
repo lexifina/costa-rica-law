@@ -1,0 +1,1 @@
+ARTÍCULO 4. De los permisos para la instalación y funcionamiento de máquinas de juegos, deberán ser autorizados por el departamento de patentes de la Municipalidad, previo la inspección y constatación respectiva de que se ha cumplido con todos los requisitos que establece el presente reglamento y las disposiciones legales aplicables.

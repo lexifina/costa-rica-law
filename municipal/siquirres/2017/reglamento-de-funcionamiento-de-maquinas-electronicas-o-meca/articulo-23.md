@@ -1,0 +1,1 @@
+ARTÍCULO 23. El costo de patente se calculará por cada máquina a instalar y el mismo no debe ser menor a veintisiete mil quinientos colones trimestrales por máquina, tarifa que se incrementará en un 10% anualmente, este costo no incluye la obligación de las salas de juegos y similares de obtener la respectiva patente para el desarrollo de dicha actividad lucrativa.

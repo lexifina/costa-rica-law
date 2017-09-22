@@ -1,0 +1,1 @@
+ARTÍCULO 16. Del informe final de la inspección. El inspector o inspectores Municipales, deberán levantar un acta de inspección de la cual dejaran una copia al interesado y presentarán un informe respectivo al siguiente día hábil, con las respectivas, para determinar lo que proceda.

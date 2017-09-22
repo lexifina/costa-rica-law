@@ -1,0 +1,1 @@
+ARTÍCULO 7. De los lugares prohibidos e instalaciones ocasionales de máquinas de juegos. Se prohíbe expresamente la instalación de las máquinas de juegos sobre la vía pública, en ferias, turnos, festejos cívicos, patronales o religiosos, para lo cual deberán de previo ser autorizados por la Municipalidad en caso de un otorgamiento temporal.
