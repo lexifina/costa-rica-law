@@ -1,4 +1,6 @@
+(Derogado)
 N° 9353
+(Esta norma fue derogada por el artículo 4° de la Ley para garantizar el interés superior del niño, la niña y el adolescente en el cuidado de la persona menor de edad gravemente enferma, N° 9470 del 22 de agosto del 2017)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 LEY PARA GARANTIZAR EL INTERÉS SUPERIOR DEL NIÑO, LA NIÑA
