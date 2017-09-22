@@ -1,0 +1,1 @@
+Artículo 28. -Resolución Administrativa de cobro. La Resolución Administrativa del cobro por obras o servicios, deberá ajustarse a lo establecido en el artículo 147 del Código de Normas y Procedimientos Tributarios. Ver Anexo N2. 3
