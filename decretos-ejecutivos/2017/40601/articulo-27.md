@@ -1,0 +1,1 @@
+Artículo 27. Derogación. El presente Decreto deroga el Decreto Ejecutivo N° 17415-MOPT que contiene el “Reglamento para la instalación de Reductores de Velocidad en las Vías Públicas”, del 5 de febrero de 1987, publicado en el Diario Oficial La Gaceta, N° 44, del 4 de marzo del 1987.

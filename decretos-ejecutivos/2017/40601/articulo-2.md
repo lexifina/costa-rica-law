@@ -1,0 +1,1 @@
+Artículo 2. Aplicación del reglamento. Las disposiciones del presente Reglamento se aplicarán, sin excepción alguna, a toda persona física o jurídica que solicite a la DGIT o a un gobierno local, un permiso para construir o eliminar reductores de velocidad.

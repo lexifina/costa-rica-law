@@ -1,0 +1,1 @@
+Artículo 26. Sanciones. Las infracciones a las disposiciones del presente Reglamento serán sancionadas de acuerdo con lo establecido en la Ley de Tránsito por vías Públicas Terrestres y Seguridad Vial, N° 9078, del 4 de octubre del 2012, en lo que sea posible, sin menoscabo de las demás responsabilidades penales y civiles en que puedan incurrir los infractores.

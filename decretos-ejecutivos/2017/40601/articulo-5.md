@@ -1,0 +1,3 @@
+Artículo 5. Definición de competencias. De acuerdo con la clasificación de la RVN y de la RVC establecida en el Artículo 10, de la Ley General de Caminos Públicos, Ley N° 5060, del 22 de agosto de 1972, y de la Ley Especial para la Transferencia de Competencias: Atención Plena y
+Exclusiva de la Red Vial Cantonal, Ley N° 9329, las carreteras primarias, secundarias y terciarias de la RVN serán, en su totalidad, competencia única y exclusiva de la DGIT, para los efectos del presente Reglamento.
+En el caso de las vías de la RVC, las potestades y responsabilidades contenidas en el presente Reglamento recaen en el gobierno local respectivo, según la jurisdicción territorial a que pertenezcan las vías.

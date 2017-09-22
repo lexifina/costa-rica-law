@@ -1,0 +1,4 @@
+Artículo 15. Criterios técnicos para la construcción de reductores de velocidad. Constituyen criterios técnicos justificantes para la decisión de instalar reductores de velocidad cualquiera de los siguientes, siempre que cumplan con lo dispuesto en este reglamento:
+a. Que más del quince por ciento de los conductores excedan la velocidad máxima establecida por Ley o por señales reglamentarias instaladas para tal efecto, en al menos veinte kilómetros por hora (20 km/h).
+b. Cuando exista un establecimiento público o privado de uso frecuente por diversos tipos de personas consideradas usuarios vulnerables (ancianos, niños, personas con discapacidad o enfermos) que requieran de la instalación de un reductor de velocidad para su protección y seguridad.
+c. Cualquier factor que, según el criterio técnico debidamente fundamentado de la DGIT o la Municipalidad, provoque peligro o inseguridad en la vía y justifique la colocación de un reductor de velocidad.
