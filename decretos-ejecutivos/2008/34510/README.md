@@ -19,3 +19,4 @@ Reglamento Orgánico del Ministerio de Salud
 | 4 | 2013-12-02 | Decreto Ejecutivo 38150 (2013-12-02) |
 | 5 | 2015-02-23 | Decreto Ejecutivo 38968 (2015-02-23) |
 | 6 | 2016-03-29 | Decreto Ejecutivo 39654 (2016-03-29) |
+| 7 | 2017-09-23 | Decreto Ejecutivo 40724 (2017-09-23) |
