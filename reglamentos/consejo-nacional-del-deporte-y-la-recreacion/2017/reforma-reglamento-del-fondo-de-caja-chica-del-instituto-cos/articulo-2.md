@@ -1,0 +1,2 @@
+2.- Primer párrafo del artículo No. 3 para que se lea de la siguiente manera:
+Se entiende por Fondo de Caja Chica aquella suma de dinero fija que deposite el ICODER a su nombre, en uno de los Bancos del Estado, con la autorización del máximo jerarca institucional, para realizar gastos en la adquisición de bienes y servicios que tienen carácter de indispensable, urgente, que en definitiva no pudieron ser planificados o aquellos que por su monto se consideran de escasa cuantía así definida por este Reglamento.

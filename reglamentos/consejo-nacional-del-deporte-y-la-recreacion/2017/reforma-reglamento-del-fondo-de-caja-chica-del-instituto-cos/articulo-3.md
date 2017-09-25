@@ -1,0 +1,3 @@
+3.- Primer y segundo párrafo del artículo No. 10 para que se lea de la siguiente manera:
+El monto del Fondo de Caja Chica del ICODER será establecido por el Consejo Nacional del Deporte y la Recreación, para lo cual deberá emitir un acuerdo donde establezca claramente el monto total del Fondo. La Dirección Nacional autorizará los porcentajes de composición del mismo. (Cuenta de Caja Única y efectivo).
+Corresponderá a la Jefatura del Departamento de Finanzas y Contabilidad o en su defecto la Dirección Administrativa y Financiera, establecer aquellos casos que califiquen estrictamente como pago en efectivo.
