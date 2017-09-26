@@ -1,1 +1,0 @@
-Artículo 23.—Los Comités Distritales y Distritos Deportivos estarán integrados por cinco miembros de la Comunidad, que serán elegidos popularmente en Asamblea General convocada al efecto por el Comité Cantonal.

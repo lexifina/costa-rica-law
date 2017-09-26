@@ -1,1 +1,0 @@
-Artículo 98.—Los colores oficiales del deporte en el cantón de Flores son el amarillo y verde. Sin perjuicio que por razones de diseño artístico y estética puedan combinarse adicionalmente con el amarillo.

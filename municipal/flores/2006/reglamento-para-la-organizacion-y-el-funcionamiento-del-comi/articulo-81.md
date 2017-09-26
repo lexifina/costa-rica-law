@@ -1,1 +1,0 @@
-Artículo 81.—Las instalaciones deportivas serán clasificadas por el Comité Cantonal, en categorías de acuerdo con la infraestructura de éstas; también ordenará el uso de éstas por los usuarios de acuerdo con el tipo de actividad que realicen. Con sustento en este ordenamiento se definirán las tarifas por derecho de uso de las instalaciones y el período que abarca dicha cuota.

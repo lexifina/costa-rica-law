@@ -1,1 +1,0 @@
-Artículo 2º—El Comité Cantonal de Deportes y Recreación es un organismo adscrito a la Municipalidad de Flores con personería jurídica únicamente para el cumplimiento de los fines que la Ley y sus Reglamentos le otorguen, la certificación de la personería será extendida por la Secretaría Municipal.

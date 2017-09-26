@@ -1,1 +1,0 @@
-Artículo 49.—En la primera sesión, que se celebrará no antes de cinco días naturales después de la fecha de su juramentación por el Concejo Municipal, los miembros del Comité se reunirán, y mediante votación secreta, se designarán los cargos de Presidente, Secretario y Tesorero, quienes desempeñarán el cargo en forma ad honorem, por un período de un año, pudiendo ser reelectos.
