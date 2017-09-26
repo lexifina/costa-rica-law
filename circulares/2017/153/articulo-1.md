@@ -1,0 +1,6 @@
+CIRCULAR Nº 153-2017
+ASUNTO: Utilización de las Salas de Audiencia y dispositivos de grabación en Despachos Civiles y Laborales.
+A TODAS LAS AUTORIDADES JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión Nº 85- 17 celebrada el 19 de setiembre de 2017, artículo LXVIII, en concordancia con lo dispuesto por las reformas Procesal Laboral y Procesal Civil, tomando en consideración que la primera ya entró en vigencia y la segunda lo hará durante el mes de octubre de 2018, con la finalidad de que al momento de entrada en vigencia de esta última, las estructuras estén lo más adaptadas posibles al nuevo sistema procesal y tecnologías desarrolladas; se acordó que todos aquellos Despachos Civiles y Laborales que cuenten con Salas de Audiencia, realicen los señalamientos de ambas materias en la agenda “Cronos”, compartiendo equitativamente esas Salas, de tal suerte, que en la materia civil se realicen en ellas las audiencias de prueba y conciliación. También deberán utilizar en las audiencias civiles los sistemas de grabación disponibles en las Salas con el fin de agilizarlas y proceder a su registro en la aplicación escritorio virtual, el cual se ha implementado para ambas materias en todo el país.
+San José, 26 de setiembre de 2017.
