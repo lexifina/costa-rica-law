@@ -1,0 +1,1 @@
+Artículo 9. El Ministro de Ambiente y Energía designará mediante oficio a los miembros del consejo científico en virtud de sus meritos y atestados por un plazo de tres años, prorrogables por igual plazo. El oficio en el que se designe a miembros del 4C deberá dejar constancia de los atestados y atributos de cada miembro.

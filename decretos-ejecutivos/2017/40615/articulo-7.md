@@ -1,0 +1,1 @@
+Artículo 7. Si el Plenario del Consejo lo considera necesario podrá nombrar un secretario asistente del Presidente para preparar la memoria de las reuniones y llevar el control de acuerdos. Las memorias y el control de acuerdos, serían presentadas por el Presidente al Plenario del Consejo para su aprobación en cada reunión.

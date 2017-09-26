@@ -1,0 +1,1 @@
+Artículo 2. El Consejo preparará los informes que le solicite el ministro del MINAE sobre los temas que éste considere necesarios y podrá también manifestarse de forma voluntaria sobre aquellos asuntos relevantes al fin para el que fue creado.

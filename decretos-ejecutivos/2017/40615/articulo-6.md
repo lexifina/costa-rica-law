@@ -1,0 +1,1 @@
+Artículo 6. El Consejo podrá invitar a sus sesiones a técnicos de las instituciones públicas así como otros expertos vinculados al cambio climático. Además podrá instituir grupos de trabajo para la atención de temas puntuales propios del fin para el que fue creado.
