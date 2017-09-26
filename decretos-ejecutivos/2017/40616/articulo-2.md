@@ -1,0 +1,1 @@
+Artículo 2. El 5C es un espacio consultivo deliberativo, que aspira colaborar con el diseño y aplicación de las políticas nacionales de cambio climático, en particular la implementación de la Contribución Prevista y Determinada a Nivel Nacional presentada por Costa Rica ante la Conferencia de las Partes 21, celebrada en París en diciembre 2015.

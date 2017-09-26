@@ -1,0 +1,1 @@
+Artículo 7. El plenario del 5C estará compuesto por 21 representantes, tres por cada uno de los 7 sectores antes señalados. El plenario elegirá al comité directivo del 5C que tendrá la vocería del Consejo y representará al Consejo frente al MINAE y las otras instituciones del Estado, así como a las actividades a las que el Consejo sea invitado.

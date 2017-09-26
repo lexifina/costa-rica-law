@@ -1,0 +1,1 @@
+Artículo 8. El comité directivo del 5C estará compuesto por un presidente, un vicepresidente y un secretario. El presidente preparará la agenda de cada reunión y el seguimiento de los acuerdos tomados en las reuniones previas. El secretario elaborará la minuta de cada una de las sesiones.
