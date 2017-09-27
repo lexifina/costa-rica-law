@@ -13,3 +13,4 @@ Remisión de información sobre actividades con ciudadanía para el portal web d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-09-05 | la propia norma |
+| 2 | 2017-09-27 | Circular 145 (2017-09-27) |
