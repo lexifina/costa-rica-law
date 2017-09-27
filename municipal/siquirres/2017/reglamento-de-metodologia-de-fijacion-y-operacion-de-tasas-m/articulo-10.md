@@ -1,0 +1,1 @@
+Artículo 10° - Sobre los eventos de asistencia masiva. Para los eventos de asistencia masiva que se realicen en el Cantón, como plazas públicas, conciertos, ferias y similares, se cobrará previamente al responsable (físico o jurídico) de la actividad, el equivalente a la tarifa de la categoría comercial 2 de Recolección y Disposición Final de Residuos.

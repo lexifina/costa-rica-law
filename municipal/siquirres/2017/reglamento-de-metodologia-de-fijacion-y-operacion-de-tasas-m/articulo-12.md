@@ -1,0 +1,1 @@
+Artículo 12°: Alcance del servicio de mantenimiento de parques y obras de ornato. La Municipalidad de Siquirres podrá brindar el servicio de mantenimiento, mejoras y adiciones de parques y obras de ornato donde existan las respectivas áreas de parque, juegos infantiles y zonas comunales.
