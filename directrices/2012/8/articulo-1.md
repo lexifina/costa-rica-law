@@ -17,10 +17,13 @@ a. CVO: Certificado Veterinario de Operación.
 b. EEB: Encefalopatía Espongiforme Bovina.
 c. Establecimiento: todo tipo de establecimiento que, reciba, adquiera, negocie, comercialice, subaste, sacrifique o deshuese ganado.
 d. HCH: Harinas de Carne y Hueso.
-e. MER: Materiales específicos de Riesgo. Corresponde a determinadas partes anatómicas de los bovinos cuyo consumo representa riesgo para la población, con referencia específica a:
-a. Amígdalas e íleon distal de bovinos de cualquier edad.
-b. Encéfalo, ojos, médula espinal y columna vertebral de bovinos sacrificados con más de 30 meses de edad.
-Serán considerados MER los animales postrados, en condición no ambulatoria, o que en la inspección ante mortem presenten signos clínicos de enfermedades nerviosas. Igualmente los animales positivos a EEB.
+(*)e. MER: Materiales Específicos de Riesgo. Corresponde a determinadas partes anatómicas de los bovinos cuyo consumo representa riesgo para la población, con referencia específica a:
+a) Amígdalas e íleon distal de bovinos de cualquier edad de países con riesgo controlado o indeterminado.
+b) Encéfalo, ojos, médula espinal y columna vertebral de bovinos sacrificados de más de 30 meses de edad provenientes de países con riesgo controlado.
+c) Encéfalo, ojos, médula espinal y columna vertebral de bovinos sacrificados de más de 12 meses de edad provenientes de países con riesgo indeterminado.
+d) Los animales postrados, en condición no ambulatoria, o que en la inspección ante mortem presenten signos clínicos de enfermedades nerviosas.
+e) Los animales positivos a EEB.
+(*) (Así reformado el inciso e) anterior por el artículo 1° de la directriz SENASA-DG-D002-2017 del 27 de setiembre de 2017)
 f. OIE: Organización Mundial de Sanidad Animal.
 g. Rendering: Conjunto de instalaciones y equipos utilizados para el aprovechamiento industrial de decomisos y desechos destinados a la alimentación animal.
 h. SENASA: Servicio Nacional de Salud Animal.

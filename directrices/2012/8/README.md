@@ -15,3 +15,4 @@ Medidas de precaución para evitar la presencia de la enfermedad Encefalopatía 
 | --- | --- | --- |
 | 1 | 2012-09-13 | la propia norma |
 | 2 | 2012-12-12 | Directriz 11 (2012-12-12) |
+| 3 | 2017-09-27 | Directriz 2 (2017-09-27) |

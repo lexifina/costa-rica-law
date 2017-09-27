@@ -1,2 +1,4 @@
 Artículo 2º—Utilización del Material Específico de Riesgo. Se prohibe la utilización de MER para la elaboración de productos o ingredientes destinados al consumo humano, la alimentación de animales, la preparación de fertilizantes, productos cosméticos, farmacéuticos y biológicos o de material médico.
 Se exceptúa del apartado anterior el uso de la columna vertebral para la elaboración de productos o ingredientes destinados al consumo humano, la alimentación de animales no rumiantes y la preparación de fertilizantes.
+Prohíbase la importación de toda mercancía que incluya amígdalas, íleon distal, encéfalo, ojos, médula espinal y columna vertebral de bovinos sacrificados en países clasificados como de riesgo controlado o indeterminado de conformidad con la OIE.
+(Así adicionado el párrafo anterior por el artículo 2° de la directriz SENASA-DG-D002-2017 del 27 de setiembre de 2017)

@@ -1,0 +1,5 @@
+Artículo 11 bis. Establecimientos procesadores de animales importados.
+Solamente se permitirá el sacrificio de animales importados de países donde el riesgo de encefalopatía espongiforme bovina es controlado según la Lista de la OIE, en establecimientos que separen los MER de todos los animales ingresados, ya sean nacionales o importados. Los MERS derivados de los animales importados deberán ser destruidos. En casos en que en una misma jornada de matanza se sacrifiquen animales nacionales e importados, todos los MERS separados ese día deberán ser destruidos.
+La Dirección de Inocuidad de Productos de Origen Animal (DIPOA) verificará las condiciones de separación y destrucción de los MER en los establecimientos y la Dirección de Cuarentena Animal mantendrá el registro de los establecimientos aprobados para sacrificar animales importados de países con riesgo controlado.
+Los animales importados de países con riesgo controlado que a la fecha se encuentren en el país solo podrán ser sacrificados en los establecimientos que cumplan con lo señalado en este artículo.
+(Así adicionado por el artículo 2° de la directriz SENASA-DG-D002-2017 del 27 de setiembre de 2017)
