@@ -21,6 +21,7 @@ Gerontología.
 Gerencia de la Salud.
 Homeopatía.
 Informática Médica.
+Maestría Académica en Ciencias Médicas y Quirúrgicas (Así adicionada la maestría anterior mediante sesión ordinaria N° 2017-09-27 del 27 de setiembre del 2017)
 Medicina del Deporte.
 Medicina Fetal (Así adicionada la maestría anterior mediante sesión extraordinaria N° 2015-02-04 del 4 de febrero del 2015)
 Medicina del Trabajo.
