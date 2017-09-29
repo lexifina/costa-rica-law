@@ -14,3 +14,4 @@ Obligatoriedad para embarcaciones de portar con licencia comercial de mediana es
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-01-06 | la propia norma |
+| 2 | 2017-09-29 | Acuerdo 407 (2017-09-29) |
