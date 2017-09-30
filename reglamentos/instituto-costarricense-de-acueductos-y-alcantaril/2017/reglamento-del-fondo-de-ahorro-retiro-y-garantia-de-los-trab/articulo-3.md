@@ -1,0 +1,1 @@
+Artículo 3: Derecho a ser Afiliado. La afiliación al F.A.R.G se adquiere en forma inmediata a partir del momento en que AyA emite la acción de personal correspondiente y adquiera firmeza el acto de nombramiento respectivo, ya sea interino, en propiedad, o contrato laboral por tiempo definido. El afiliado podrá en cualquier momento solicitar la desafiliación al FARG.

@@ -1,0 +1,1 @@
+Artículo 28: Prioridad en créditos. La Junta Administradora considerará las solicitudes en orden de presentación, pero tendrá la potestad de dar prioridad a aquellas cuyo financiamiento involucre la actividad de construcción.

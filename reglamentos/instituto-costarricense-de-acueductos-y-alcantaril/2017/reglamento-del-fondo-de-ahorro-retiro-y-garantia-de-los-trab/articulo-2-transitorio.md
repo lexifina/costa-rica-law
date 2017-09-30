@@ -1,0 +1,1 @@
+TRANSITORIO DOS: Aquellas personas que a la fecha de entrada en vigencia del presente reglamento tengan 6 meses o más de haber renunciado a su afiliación al Fondo, podrán volverse a afiliar en cuanto lo deseen.

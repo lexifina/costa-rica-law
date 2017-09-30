@@ -1,0 +1,1 @@
+Artículo 6: Aportes del Instituto. Los aportes del Instituto y sus rendimientos para todos los efectos son recursos públicos bajo custodia del F.A.R.G. Estos recursos estarán reflejados en un Catálogo de Cuentas, que permita identificarlos de manera unívoca y separada.

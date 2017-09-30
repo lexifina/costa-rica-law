@@ -1,0 +1,5 @@
+Artículo 9: Cuenta General de Cesantía: Acreditación de fondos. Los fondos de la Cuenta General de Cesantía de los afiliados al F.A.R.G., se acreditarán automáticamente cada vez que se reciban los ingresos correspondientes.
+Se conservarán como reserva para hacer frente a los siguientes gastos:
+• Pago de auxilio de cesantía, cuando corresponda, a los afiliados del F.A.R.G., que será determinado por la Dirección de Gestión de Capital Humano de acuerdo con la normativa vigente.
+• La liquidación de pago de cesantía que le corresponda al trabajador y/o causahabientes. En caso de que el monto existente fuera insuficiente para cubrir la totalidad de lo que le corresponde al afiliado, el Fondo cubrirá la diferencia conforme la disponibilidad económica del momento, a efectos de no desestabilizarlo financieramente.
+• Cuando queden sumas remanentes por liquidaciones de funcionarios que se retiran del AyA sin responsabilidad patronal, se destinarán en su totalidad a esta Cuenta para cubrir los casos que puedan presentarse según lo señalado en el inciso anterior.

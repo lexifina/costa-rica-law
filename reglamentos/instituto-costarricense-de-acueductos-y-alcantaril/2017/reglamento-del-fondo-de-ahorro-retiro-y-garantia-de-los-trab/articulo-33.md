@@ -1,0 +1,1 @@
+Artículo 33: Liquidez salarial. En ningún caso el F.A.R.G. podrá otorgar préstamos a afiliados que no tengan capacidad de pago requerida y liquidez en su salario ordinario, de acuerdo a Metodología aprobada por la Junta Administradora y establecida en el Manual Operativo, tratando de evitar el excesivo endeudamiento de los afiliados

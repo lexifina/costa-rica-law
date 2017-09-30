@@ -1,0 +1,2 @@
+Artículo 50: Reformas. Modificase el artículo 158 del Reglamento Autónomo de Servicio del Instituto Costarricense de Acueductos y Alcantarillados, para que en lo futuro rece lo siguiente:
+“La administración, gestión y funcionamiento del Fondo de Ahorro, Retiro y Garantía (F.A.R.G), se regirá por su propio Reglamento y demás disposiciones que dicten esta Junta Directiva y la Junta Administradora (J.A.F.A.R.G), de acuerdo con sus respectivas competencias.”

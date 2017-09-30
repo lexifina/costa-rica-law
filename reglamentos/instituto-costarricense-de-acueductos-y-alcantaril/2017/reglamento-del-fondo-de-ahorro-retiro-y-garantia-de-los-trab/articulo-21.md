@@ -1,0 +1,1 @@
+Artículo 21: Fiscalización interna. La Auditoría Interna de AyA ejercerá la fiscalización del F.A.R.G, efectuando estudios, auditorías, análisis y evaluaciones periódicas de todas las actividades desarrolladas por este de conformidad con sus propios programas de trabajo, y en casos especiales cuando la Junta Directiva del AyA o la Junta Administradora del Fondo se lo soliciten.

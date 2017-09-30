@@ -1,0 +1,2 @@
+Artículo 34: Fiscalización de inversión. El F.A.R.G. está facultado para fiscalizar el plan de inversión durante la vigencia del préstamo, por los medios que juzgue convenientes.
+Si el deudor no presentare los documentos justificativos del empleo del préstamo o incumpliere las obligaciones que le impone este Reglamento o si el F.A.R.G. comprobare que no ha cumplido con el plan de inversión, se tendrá por vencido el plazo y exigible la totalidad de la obligación, previo otorgamiento del derecho de defensa.

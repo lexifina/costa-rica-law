@@ -1,0 +1,1 @@
+Artículo 39: Uso del bien hipotecado. El inmueble dado en garantía no podrá ser enajenado, alquilado ni gravado en forma alguna, sin previa autorización de la Junta Administradora. La autorización se otorgará en casos muy calificados y si se tratara de la venta del inmueble, la autorización condicionará la venta a la cancelación inmediata del total de lo adeudado.

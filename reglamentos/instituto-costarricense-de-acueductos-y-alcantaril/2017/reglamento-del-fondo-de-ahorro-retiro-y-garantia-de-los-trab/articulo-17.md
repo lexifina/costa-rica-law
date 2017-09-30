@@ -1,0 +1,4 @@
+Artículo 17: Del Director (a) del F.A.R.G. El F.A.R.G. contará con un Director, será el superior jerárquico del recurso humano que labora en el Fondo.
+Será seleccionado mediante concurso interno, previa recomendación acordada en firme por la Junta Administradora del F.A.R.G., con base en una terna presentada por la Dirección de Gestión de Capital Humano. Tanto su nombramiento como su remoción serán responsabilidad de la Junta Directiva de AyA.
+Los requisitos para ser nombrado Director del F.A.R.G. serán los establecidos en el Manual de clases y puestos institucional, vigente a la fecha del concurso para su selección.
+Cada año será evaluado de acuerdo a los resultados de la Gestión Administrativa del F.A.R.G, y podrá ser removido por la Junta Directiva de AyA, previa recomendación acordada en firme por la Junta Administradora del F.A.R.G., si según su criterio debidamente fundamentado estos no son satisfactorios. Lo anterior una vez cumplido el debido proceso.

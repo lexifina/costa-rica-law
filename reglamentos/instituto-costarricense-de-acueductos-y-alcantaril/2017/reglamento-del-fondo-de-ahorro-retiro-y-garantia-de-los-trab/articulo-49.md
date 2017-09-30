@@ -1,0 +1,1 @@
+Artículo 49: Manual Operativo. En un plazo máximo de tres meses, contados a partir de la aprobación del presente Reglamento, la Gerencia General deberá coordinar lo necesario para la elaboración del correspondiente Manual Operativo.

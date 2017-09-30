@@ -1,0 +1,1 @@
+Artículo 38: Impuestos nacionales. El prestatario se obliga a mantener al día el pago de todos los impuestos y tasas nacionales y municipales que afecten directamente al bien hipotecado y a presentar el comprobante respectivo de ser requerido cada semestre.

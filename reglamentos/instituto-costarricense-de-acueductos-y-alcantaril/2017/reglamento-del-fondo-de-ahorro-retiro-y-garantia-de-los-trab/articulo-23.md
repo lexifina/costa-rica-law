@@ -1,0 +1,8 @@
+Artículo 23: Vencimiento anticipado de obligaciones. Las obligaciones contraídas podrán ser exigibles anticipadamente, por los medios legales que corresponda cuanto se presente alguna de las siguientes causas:
+a. Ante la falta de pago de dos o más cuotas consecutivas, según lo establecido en el contrato de préstamo, sin que exista una razón de peso demostrable y aceptada por la Junta Administradora;
+b. Por el empleo de los fondos para fines distintos de los que justifican el préstamo, teniendo el F.A.R.G la facultad de ejercer la fiscalización del uso del dinero otorgado mediante créditos;
+c. Cuando se determine que el afiliado indujo a error al F.A.R.G. presentando documentos con información falsa o alterada.
+d. En cualquiera de los otros casos de vencimiento anticipado autorizado por ley o pactados en la formalización del crédito respectivo, previo cumplimiento del debido proceso.
+En el caso de aquellos afiliados que renuncien al F.A.R.G. pero continúen su relación laboral con AyA, y sus ahorros y rendimientos fueren insuficientes para cubrir sus deudas con este, se procederá de la siguiente manera:
+a. Al funcionario se le seguirá rebajando mensualmente de su salario lo correspondiente a sus obligaciones crediticias con el F.A.R.G., según lo establecido en el contrato de préstamo, por medio de la Dirección de Capital Humano.
+b. Ante la falta de pago de dos o más cuotas consecutivas, sin que exista una razón de peso demostrable y aceptada por la Junta Administradora, se tendrá por vencido el plazo y dará derecho a exigir la cancelación total de la deuda por los medios legales que corresponda, según lo establecido en el contrato de préstamo.

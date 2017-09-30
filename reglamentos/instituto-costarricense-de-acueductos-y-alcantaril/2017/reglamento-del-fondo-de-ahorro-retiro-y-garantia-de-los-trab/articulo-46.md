@@ -1,0 +1,1 @@
+Artículo 46: Prescripción. El derecho a reclamar los beneficios derivados de la afiliación al F.A.R.G. prescribirá en el plazo de un año contado a partir de la fecha de cesación de la relación laboral con AyA.

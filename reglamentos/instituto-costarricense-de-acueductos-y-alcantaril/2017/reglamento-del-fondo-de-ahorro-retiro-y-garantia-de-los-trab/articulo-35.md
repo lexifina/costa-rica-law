@@ -1,0 +1,1 @@
+Artículo 35: Gastos y honorarios. Todos los gastos y honorarios originados en el trámite del otorgamiento e inversión del préstamo como: estudios de títulos, avalúos, escrituras, inspecciones, planos, supervisión, especies y timbres de cualquier clase, certificaciones, seguros y otros similares serán cubiertos por el deudor directamente o mediante deducción de la suma prestada.

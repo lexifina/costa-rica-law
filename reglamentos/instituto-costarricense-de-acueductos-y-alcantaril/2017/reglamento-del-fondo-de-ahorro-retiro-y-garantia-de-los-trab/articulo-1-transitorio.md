@@ -1,0 +1,1 @@
+TRANSITORIO UNO: En cuanto cese el nombramiento de la persona que actualmente ejerce la Dirección del F.A.R.G., por la causal que sea, para la selección de su sucesor se aplicará el procedimiento establecido en este Reglamento y en el Manual de Clases y Puestos de AyA.

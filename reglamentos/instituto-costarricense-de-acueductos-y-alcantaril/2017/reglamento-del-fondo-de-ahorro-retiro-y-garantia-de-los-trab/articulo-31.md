@@ -1,0 +1,1 @@
+Artículo 31: Cancelación de préstamos. Todos los préstamos se cancelarán por medio de cuotas mensuales y consecutivas, que cubran amortización, intereses y pólizas. Las cuotas se deducirán, previa autorización del deudor, directamente de su salario.
