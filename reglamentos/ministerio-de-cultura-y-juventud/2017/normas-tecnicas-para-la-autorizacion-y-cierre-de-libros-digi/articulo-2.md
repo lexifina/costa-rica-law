@@ -1,0 +1,2 @@
+Artículo 2° – Las “NORMAS TÉCNICAS PARA AUTORIZACIÓN Y CIERRE DE LIBROS DIGITALES” son de acatamiento obligatorio para las Auditorías Internas que voluntariamente se adhieran a este protocolo y prevalecerán sobre cualquier normativa que en materia de competencia de autorización de Libros Digitales emita la Administración Activa.
+Sobre esta normativa privarán las disposiciones que emita la Contraloría General de la República al respecto.
