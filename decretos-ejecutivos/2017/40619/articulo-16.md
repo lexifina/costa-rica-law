@@ -1,0 +1,1 @@
+Artículo 16: Finiquito. Luego de finalizada la ejecución de la relación, y no mediando ningún asunto pendiente que resolver, las partes deberán firmar un finiquito que las exima de reclamos de cualquier tipo.

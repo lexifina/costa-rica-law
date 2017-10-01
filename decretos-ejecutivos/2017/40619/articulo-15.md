@@ -1,0 +1,1 @@
+Artículo 15: Análisis de los Informes y Toma de Decisiones. El Ministro o el Jerarca del Órgano Desconcentrado deberá analizar la información suministrada sobre los avances y ejecución del proyecto y decidir lo que considere oportuno y conveniente para el propio Ministerio de Cultura y Juventud u Órgano Desconcentrado.

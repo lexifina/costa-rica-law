@@ -1,0 +1,3 @@
+Capítulo IV.
+De la ejecución, evaluación y finiquito.
+Artículo 14: De los Informes y su Contenido. El administrador deberá presentar al Ministro o al Jerarca del Órgano Desconcentrado, informes semestrales sobre el avance, nivel de ejecución y grado de satisfacción de la ejecución del Convenio o alianza. Los informes deben ser extendidos con copia a la Auditoría Interna y deberán contener un análisis comparativo entre las proyecciones y metas estimadas y las que se han obtenido, a fin de conocer el grado de satisfacción alcanzado en el proyecto. Si el proyecto se desarrolla en menos de seis meses, el informe será al final de su ejecución.

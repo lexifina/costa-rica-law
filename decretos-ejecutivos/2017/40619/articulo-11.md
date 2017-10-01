@@ -1,0 +1,2 @@
+Artículo 11: Viabilidad Técnica. De previo a enviar cada gestión con su respectiva recomendación al Jerarca -o superior del Órgano Desconcentrado-, la Comisión Ad Hoc deberá emitir en el plazo de tres meses, contados a partir del recibo de su gestión, un criterio preliminar sobre la viabilidad del proyecto.
+Una vez que se emita el criterio favorable antes señalado, el Ministro o Jerarca del Órgano Desconcentrado, emitirá en un plazo no mayor a un mes un criterio de oportunidad y conveniencia para que se prosiga con la etapa de formalización del Convenio.

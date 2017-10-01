@@ -1,0 +1,2 @@
+Artículo 8: Expediente y Custodia. El Ministerio de Cultura y Juventud o el Órgano Desconcentrado dará soporte administrativo a la Comisión Ad Hoc. Esta, entre otros, deberá cuidar porque para cada iniciativa de colaboración se confeccione un Expediente Administrativo. Este Expediente deberá estar foliado cronológicamente, y en custodia en el área que acuerde la Comisión.
+Podrá implementarse expedientes electrónicos siempre que se garantice el acceso, autoría, seguridad, autenticidad e inalterabilidad de los documentos.

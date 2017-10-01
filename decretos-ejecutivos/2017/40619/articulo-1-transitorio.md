@@ -1,0 +1,1 @@
+Transitorio Único. -Los proyectos que al momento de entrar en vigencia el presente Reglamento estén en ejecución, continuarán su desarrollo bajo las reglas de su aprobación. En los demás casos, deberá observarse las presentes disposiciones.

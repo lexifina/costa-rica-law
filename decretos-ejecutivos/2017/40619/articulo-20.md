@@ -1,0 +1,1 @@
+Artículo 20. Preparación de Formulario. El formulario indicado en el artículo 7 deberá estar listo en un plazo no mayor a 30 días hábiles contados a partir de la publicación de este Reglamento. El formulario deberá cumplir con lo establecido en la Ley No. 8220 del 4 de marzo del 2002, publicado en el Alcance No 22 de La Gaceta No 49 del 11 de marzo del 2002.
