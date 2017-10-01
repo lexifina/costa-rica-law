@@ -1,0 +1,1 @@
+Artículo 2°—Deróguese el Decreto Ejecutivo número 40462-H del 07 de junio de 2017, publicado en el Alcance número 152 a La Gaceta número 120 del 26 de junio de 2017, a partir de la vigencia del presente decreto.
