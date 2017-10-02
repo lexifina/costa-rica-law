@@ -1,2 +1,3 @@
-Artículo 19.—Sustitución de garantías. La Junta de Pensiones se reserva el derecho de solicitar en cualquier momento la modificación o sustitución de cualquiera de las garantías que respalden los créditos otorgados. Lo anterior en procura de salvaguardar los intereses de la Institución.
-Será potestad de la Junta Directiva de la Institución, aprobar la sustitución de garantías otorgadas bajo la línea de créditos de microempresa.
+CAPÍTULO IV
+ANÁLISIS, FORMALIZACIÓN Y COBRO
+ARTÍCULO 19. Formalización. El proceso de análisis de la solicitud presentada por el interesado, en cualquiera de las diferentes líneas, se inicia cuando éste haya presentado, a satisfacción de la Unidad de Crédito o en las sucursales, la totalidad de los requisitos previamente definidos en este reglamento, así como otros adicionales, solicitados en procura de salvaguardar los intereses de la Institución.

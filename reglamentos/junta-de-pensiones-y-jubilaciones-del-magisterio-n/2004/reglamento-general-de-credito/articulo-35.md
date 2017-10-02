@@ -1,2 +1,0 @@
-Artículo 35.—Vigencia. El presente reglamento fue aprobado por la junta directiva de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, en las sesiones ordinarias: 30-2004 y 38- 2004 del 28 de abril y 19 de mayo de 2004 respectivamente, en la sesión extraordinaria N° 28-2004 celebrada el 27 de abril de 2004 y sus modificaciones.
-El presente reglamento solo podrá ser modificado por la junta directiva de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, mediante votación calificada.

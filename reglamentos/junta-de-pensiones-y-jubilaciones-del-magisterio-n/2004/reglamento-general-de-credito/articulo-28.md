@@ -1,8 +1,3 @@
-CAPÍTULO V
-Disposiciones finales
-Artículo 28.—Limitaciones de alcance general
-a) No se permiten renovaciones en la línea de crédito de Microempresa.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 113-2015 del 19 de octubre del 2015)
-b) Todo aquel pensionado o jubilado que requiera acceder a un nuevo crédito y que haya tenido problemas de morosidad de dos cuotas sin justificación, en los últimos 48 meses, debe presentar uno o más fiadores solidarios con capacidad de pago que respalden el monto solicitado, para optar por un nuevo crédito o renovación del mismo.
-c) La determinación del número de créditos a otorgar a una entidad social o financiera del Magisterio Nacional, será potestad exclusiva de la junta directiva de la Junta de Pensiones.
-d) No se aceptarán como garantías hipotecarias, terrenos que se encuentren en periodo de convalidación o que estén ubicados en zonas de alto riesgo. La Junta de Pensiones se reserva el derecho de rechazar cualquier garantía propuesta por el solicitante, en procura de salvaguardar los intereses de la Institución.
+ARTÍCULO 28. Deducciones. Atendiendo lo indicado en el Artículo 109 de la Ley N° 7531, las deducciones mensuales que corresponden al pago de los intereses y la amortización a los créditos, seguros y pólizas, son aplicadas directamente del monto recibido por pensión o jubilación del beneficiario, previa autorización escrita de éste al formalizarse el crédito, así como en la hipoteca o pagaré.
+Se exceptúan los casos en que la deducción no se pueda aplicar por motivos ajenos a JUPEMA, siempre y cuando esta situación se haya generado con posterioridad la formalización del crédito. En estos casos, el deudor queda obligado a pagar las cuotas oportunamente en las oficinas de JUPEMA.
+Esta disposición aplica para todas las líneas de crédito vigentes, excepto para la de Entidades Sociales y Financieras del Magisterio Nacional, las cuales deben cancelar las cuotas correspondientes en las oficinas de JUPEMA, o bien depositar por medio de transferencia o depósito directo el monto en la cuenta corriente que para tal efecto indique la Unidad de Cobro.

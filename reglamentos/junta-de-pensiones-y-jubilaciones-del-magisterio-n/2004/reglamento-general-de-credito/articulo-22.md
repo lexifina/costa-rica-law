@@ -1,3 +1,2 @@
-ARTÍCULO 22 Mecanismo de Aprobación
-Las solicitudes de crédito serán recibidas, analizadas y aprobadas o denegadas por la Unidad de Crédito o en cualquiera de las sucursales, según los parámetros establecidos en este Reglamento.
-(Así reformado mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
+ARTÍCULO 22. Comité de Crédito. Se establece un Comité de Crédito conformado por el Encargado de la Unidad de Crédito, el Jefe del Departamento de Crédito y Cobro, el Encargado de la Unidad de Cobro, y en casos especiales por cualquiera de los asesores legales de JUPEMA o el Coordinador de Riesgos. Este Comité tiene la facultad de analizar, aprobar o denegar las solicitudes de crédito en la línea de Microempresa, y en los casos atípicos por las otras líneas de crédito. Con lo referente a las Entidades Sociales y Financieras del Magisterio Nacional, en conjunto con la Unidad Integral de Riesgos, emiten una recomendación técnica para el análisis respectivo de la Junta Directiva.
+De las reuniones realizadas, se levanta un Acta con los pormenores de los asuntos tratados.

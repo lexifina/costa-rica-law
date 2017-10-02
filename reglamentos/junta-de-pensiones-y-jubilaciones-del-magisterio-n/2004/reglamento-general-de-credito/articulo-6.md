@@ -1,27 +1,11 @@
-Artículo 6º—Tasas de interés. La tasa de interés vigente para cada línea de crédito, es la siguiente:
-a) Línea Gastos Personales
-15% Anual fija sobre saldos
-b) Línea Pago de Deuda al Fondo de Pensión
-9% Anual fija sobre saldos
-c) Línea de Microempresa: 11% Anual fija sobre saldos, los primeros 3 años. Posterior a este plazo Tasa Básica Pasiva + 4 puntos porcentuales.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 043-2017 del 21 de abril del 2017)
-d) Línea para Entidades Sociales y Financieras del Magisterio Nacional: 10% Anual Fija sobre saldos, en tanto este porcentaje no sea inferior a la tasa básica pasiva, según la publicación del Banco Central, más 3 puntos. Cualquier solicitud para cambios en las tasas de interés, presentada por la entidad solicitante debe ser avalada por la Junta Directiva, previo estudio de impacto, elaborado por el Departamento Financiero Contable.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
-e) Línea de Salud
-8% Anual fija sobre saldos
-f) Derechos Sucesorios
-15% Anual fija sobre saldos
-La tasa de interés subirá en cinco puntos porcentuales, para aquellos créditos en los cuales los beneficiarios pierdan su condición de beneficiario del derecho sucesorio, por incumplimiento de algún requisito, y según las causales de caducidad de los derechos, que se establecen en las leyes:
-• Ley 2248 (artículos 11)
-• Ley 7268 (numerales 18 y 22)
-• Ley 7531 (artículos 60, 63 y 67)
-• Reglamento del Régimen de Capitalización Colectiva (artículos 17 y 34).
-De darse el aumento de la tasa de interés, el interesado estará obligado a efectuar la cancelación de la cuota mensual por ventanilla y en caso de no pago oportuno de la cuota, el fiador deberá asumir el saldo de la deuda.
-g) Línea de Urgencia: 10 % Anual fija sobre saldos
-(Así reformado el inciso anterior mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
-h) Línea para Servicios Funerarios:14% Anual fija sobre saldos
-Las tasas de interés, solo podrán ser variadas por acuerdo de la Junta Directiva y se aplicarán únicamente para los nuevos créditos que se otorguen.
-Por acuerdo de Junta Directiva, se podrán establecer tasas de interés, ajustables y revisables semestralmente.
-Para efectos de cobro de intereses moratorios, se tendrá como fecha de cobro, el primer día hábil del mes, siendo equivalente a la tasa de interés corriente del crédito más un 30%, según lo establecido en el Artículo 498 del Código de Comercio.
-Los intereses moratorios no serán inferiores a la tasa máxima que cobren los bancos en sus operaciones activas, de conformidad con el Artículo 498 del Código de Comercio.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
+CAPÍTULO II
+REQUISITOS
+Las solicitudes de crédito deben ser presentadas para su revisión y análisis, en la Unidad de Crédito o en las Sucursales de JUPEMA. Los requisitos deben ser cumplidos satisfactoriamente en cada una de las líneas vigentes, en caso de que el gestionante desee optar por una nueva línea de crédito o realizar una renovación por la Línea de Gastos Personales, debe estar totalmente al día en sus créditos y fianzas vigentes, en esta u otras instituciones, salvo que los mismos queden cancelados con el nuevo crédito.
+ARTÍCULO 6. Línea: Gastos Personales
+a) El solicitante debe tener un líquido de pensión o jubilación superior o igual al monto de la cuota del crédito requerido, multiplicada por dos.
+b) Tener disponibilidad y autorizar la pignoración de la póliza de la Sociedad de Seguros de Vida del Magisterio Nacional.
+c) Comprobantes de los últimos tres salarios percibidos, previos a la firma del derecho jubilatorio (únicamente para aquellos pensionados (as) que no hayan sido incluidos en planilla y por lo tanto no hayan recibido
+oportunamente el pago de pensión o jubilación).
+d) Presentar cédula de identidad vigente y en buen estado.
+e) Proporcionar satisfactoriamente los datos de contactos solicitados por la Unidad de Crédito.
+f) En caso de ser necesario, presentar y cumplir con los documentos, requisitos y garantías adicionales que le solicite la Unidad de Crédito, para resguardar los intereses de la institución.

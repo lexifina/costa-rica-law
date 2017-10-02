@@ -1,30 +1,9 @@
-Artículo 10 Línea para Entidades Sociales y Financieras del Magisterio Nacional
-Toda solicitud de crédito deberá ser presentada ante la Unidad de Crédito de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, para el respectivo análisis técnico. Posteriormente, el criterio técnico será trasladado a la Dirección Ejecutiva, y será la Junta Directiva la que apruebe o impruebe el crédito solicitado.
-(Así reformado el párrafo anterior mediante sesión ordinaria N° 043-2017 del 21 de abril del 2017)
-El monto que debe depositarse a favor de la Junta de Pensiones, que servirá para cubrir el pago de los servicios profesionales que se requieran para la realización del avalúo, el estudio de factibilidad y otros gastos inherentes, será determinado con base en la tabla del Colegio Federado de Ingenieros y Arquitectos, y la tabla de cualquier otro colegio profesional que se requiera. Debe indicarse que la realización de estos estudios y el depósito de la suma indicada, no implica la aprobación del crédito.
-(Así reformado el párrafo anterior mediante sesión ordinaria N° 043-2017 del 21 de abril del 2017)
-El expediente deberá contar, al menos, con los siguientes documentos:
-(Así reformado el párrafo anterior mediante sesión ordinaria N° 043-2017 del 21 de abril del 2017)
-a) Solicitud detallada: Presentada por escrito y firmada por el representante legal donde se exponga en forma breve el plan de inversión con la información de soporte correspondiente, indicando al menos: monto, dirección completa de la Institución, número telefónico, número de fax, nombre completo y cargo que ocupa el que firma la nota, fotocopia del acuerdo de la Junta Directiva, donde se tomó la decisión de solicitar el crédito y nombrar a la persona que realizará y dará seguimiento al respectivo trámite ante la Junta de Pensiones, así como cualquier otra información que consideren relevante.
-b) Copia del convenio celebrado entre la Junta y la Institución solicitante, donde conste el plan de beneficios a ofrecer a la membresía pensionada del Régimen del Magisterio Nacional, a través del crédito solicitado.
-c) Certificación original reciente de la personería jurídica, donde indique los nombres de los integrantes de la Junta Directiva, el Representante Legal y sus respectivas facultades.
-d) Cédula de identidad vigente y en buen estado del Representante Legal o Apoderado de la Institución.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 043-2017 del 21 de abril del 2017)
-e) Estados Financieros auditados de los tres últimos periodos fiscales y cualquier otra información financiera requerida por el Contador Público contratado a fin de verificar la capacidad de pago de la institución solicitante.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 043-2017 del 21 de abril del 2017)
-f) Avalúo de la propiedad que se entregará como garantía; realizado por un profesional autorizado por la Junta de Pensiones. El pago del avalúo corre por cuenta del solicitante.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
-g) Avalúo de la propiedad que se entregará como garantía; realizado por un profesional autorizado por la Junta de Pensiones. El pago del avalúo corre por cuenta del solicitante. Queda entendido que por el hecho de recibir la solicitud de crédito y los documentos que la acompañan, la Junta no adquiere compromiso y obligación alguna con el solicitante y que la aprobación del mismo queda sujeto a juicio exclusivo de la Institución, de conformidad con los parámetros establecidos en esta reglamentación, la disponibilidad presupuestaria, y los acuerdos expresos de la Junta Directiva.
-h) Plano catastrado de la propiedad que se va dar en garantía (original y copia).
-i) Certificaciones originales que comprueben estar al día en el pago de los impuestos territoriales y municipales.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 043-2017 del 21 de abril del 2017)
-j) Para la compra de edificios, debe presentar la opción de compra venta, extendida por un abogado, la copia de la escritura y del plano catastrado, certificación del Registro Público, y certificaciones de estar al día en el pago de los impuestos territoriales y municipales.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
-k) Para la construcción de edificios, debe presentar el plano catastrado, plano de construcción o anteproyecto, debidamente autorizado por el Colegio de Ingenieros y Arquitectos, presupuesto de la obra debidamente firmado y sellado por el Ingeniero, y permiso municipal correspondiente.
-Queda entendido que por el hecho de recibir la solicitud de crédito y los documentos que la acompañan, la Junta no adquiere compromiso y obligación alguna con el solicitante y que la aprobación del mimo queda sujeto a juicio exclusivo de la Institución, de conformidad con los parámetros establecidos en esta reglamentación, la disponibilidad presupuestaria, y los acuerdos expresos de la Junta Directiva.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
-l) Para la construcción de edificios, debe presentar el avalúo original de la propiedad, plano catastrado, plano de construcción o anteproyecto, debidamente autorizado por el Colegio de Ingenieros y Arquitectos, presupuesto de la obra debidamente firmado y sellado por el Ingeniero, y permiso municipal correspondiente.
-Queda entendido que por el hecho de recibir la solicitud de crédito y los documentos que la acompañan, la Junta no adquiere compromiso y obligación alguna con el solicitante y que la aprobación del mismo queda sujeto a juicio exclusivo de la Institución, de conformidad con los parámetros establecidos en esta reglamentación, la disponibilidad presupuestaria, y los acuerdos expresos de la Junta Directiva.
-(Así reformado el párrafo anterior mediante sesión ordinaria N° 043-2017 del 21 de abril del 2017)
-La Junta de Pensiones se reserva el derecho de solicitar cualquier otro requisito, en procura de salvaguardar los intereses de la Institución, así como modificar cualquiera de las condiciones aquí establecidas.
-(Así reformado el párrafo anterior mediante sesión ordinaria N° 043-2017 del 21 de abril del 2017)
+ARTÍCULO 10. Derechos Sucesorios
+a) El interesado debe ser mayor de edad y contar con una pensión o jubilación líquida mayor a dos veces el monto de la cuota asignada.
+b) Debe de estar en capacidad de aportar un fiador, que sea cotizante del MEP, INA, CUC, CUN Limón y universidades estatales en propiedad del Magisterio Nacional o un pensionado por derecho propio, para que responda por cualquier cuota, intereses, pólizas y demás gastos no pagados por el deudor y que asuma el compromiso en caso de fallecimiento de éste. Dicho fiador, debe mostrar la solvencia económica necesaria, por medio de las constancias de los salarios desglosados de los últimos tres meses, así como certificación de que se encuentran en propiedad.
+Quedan exentos de este requisito, aquellos beneficiarios de pensiones vitalicias.
+c) Debe de presentar cédula de identidad vigente y en buen estado.
+d) Proporcionar satisfactoriamente los datos de contactos solicitados por la Unidad de Crédito.
+e) Las cuotas del crédito, incluyendo amortización y pago de intereses, son deducidas de la pensión o jubilación, previa autorización del interesado.
+f) El interesado debe contar con una póliza o seguro de vida conforme lo establece el artículo 16 de este Reglamento.
+g) Cualquier otro requisito adicional, no considerado en los incisos anteriores, a criterio de la Unidad de Crédito.

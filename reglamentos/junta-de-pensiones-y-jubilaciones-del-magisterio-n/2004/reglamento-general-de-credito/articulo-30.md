@@ -1,1 +1,1 @@
-Artículo 30.—Pagos extraordinarios y cancelaciones anticipadas. El beneficiario podrá realizar pagos extraordinarios al crédito, o cancelar en forma anticipada cualquiera de los préstamos, sin que por ello deba pagar suma adicional alguna, salvo los intereses generados al momento de la cancelación
+ARTÍCULO 30. Este reglamento deroga cualquier disposición que se le oponga.

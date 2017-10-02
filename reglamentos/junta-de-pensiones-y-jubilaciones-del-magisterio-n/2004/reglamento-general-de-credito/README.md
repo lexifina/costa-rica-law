@@ -36,3 +36,4 @@ Reglamento General de Crédito
 | 21 | 2015-10-19 | Reglamento 113 (2015-10-19) |
 | 22 | 2016-10-04 | Reglamento 109 (2016-10-04) |
 | 23 | 2017-04-21 | Reglamento 43 (2017-04-21) |
+| 24 | 2017-10-02 | Reglamento 109 (2017-10-02) |

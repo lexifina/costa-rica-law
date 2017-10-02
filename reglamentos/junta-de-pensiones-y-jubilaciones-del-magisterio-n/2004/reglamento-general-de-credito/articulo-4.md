@@ -1,19 +1,11 @@
-ARTÍCULO 4 Plazos
-El plazo máximo para financiar cada línea de crédito es el siguiente:
-(Así reformado el párrafo anterior mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
-a) Línea de Gastos Personales 5 años.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
-b) Línea de Pago de Deuda de Pensión 10 años.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
-c) Línea de Microempresa 15 años.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
-d) Línea para entidades sociales y financieras del Magisterio Nacional, hasta 25 años. En este caso se podrá extender el plazo según la línea de inversión y lo que determine Junta Directiva.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
-e) Línea de Salud 8 años
-(Así reformado el inciso anterior mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
-f) Derechos Sucesorios 5 años.
-Este plazo máximo aplicará sólo en aquellos casos en que el plazo de extinción del derecho sucesorio exceda de cinco años. Si dicho plazo de extinción fuera menor de cinco años, el plazo del crédito no podrá superar este plazo.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
-g) Línea de Urgencia 7años.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
-h) Línea para Servicios Funerarios 5 Años
+ARTÍCULO 4. Monto de financiamiento. El monto máximo de cada tipo de crédito es el siguiente:
+a) Línea de Gastos Personales: ¢3.000.000,00 (Tres millones de colones con 00/100).
+b) Línea de Pago de Deuda de Pensión: ¢10.000.000,00 (diez millones de colones con 00/100).
+c) Línea de Microempresa: ¢20.000.000,00 (veinte millones de colones con 00/100). O 80% del valor de avalúo si la garantía es hipotecaria.
+d) Línea para Entidades Sociales y Financieras del Magisterio Nacional:
+El monto máximo para esta línea es designado en cada caso por la Junta Directiva, tomando como referencia el plan de inversión, considerando los beneficios que se planea brindar a la membresía por medio del crédito solicitado, la(s) garantía(s) ofrecida(s), los avalúos correspondientes, el presupuesto disponible para este tipo de créditos y los demás requisitos que se incluyen en este Reglamento, así como cualquier otra información que se considere necesaria, en procura de salvaguardar los intereses de la institución.
+e) Línea de Salud: ¢6.000.000.00 (seis millones de colones con 00/100).
+f) Derechos Sucesorios ¢1.000,000.00 (un millón de colones con 00/100 por beneficiario).
+g) Línea de Urgencia: ¢4.000.000.00 (cuatro millones de colones con 00/100).
+h) Línea para Servicios Funerarios ¢2.000.000.00 (dos millones de colones con 00/100).
+Los montos máximos autorizados para cada una de las diferentes líneas, son revisados anualmente basándose en criterios técnicos, y pueden ser modificados únicamente por acuerdo expreso de la Junta Directiva de la Institución.

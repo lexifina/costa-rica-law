@@ -1,7 +1,7 @@
-Artículo 27.—Vencimiento anticipado. Las operaciones concedidas en las diferentes líneas de crédito, podrán declararse vencidas anticipadamente y exigibles de inmediato por parte de la Junta de Pensiones, ante cualquiera de las siguientes situaciones:
-a) Si se comprobara en cualquier momento, falsedad en información proporcionada por el deudor al formalizarse la operación de crédito.
-b) Si el deudor se opusiera a la inspección de las inversiones o de los bienes dados en garantía o se negara a proporcionar los informes que se le soliciten en relación con ellos.
-c) Si el deudor dejara transcurrir un mes sin dar aviso por escrito a la Junta, de deterioros sufridos por los bienes en garantía o de cualquier hecho susceptible de disminuir su valor o comprometer su dominio.
-d) Si se dieran circunstancias imputables al deudor, que demoren o imposibiliten la inscripción del primer testimonio de hipoteca de la propiedad dada en garantía.
-e) Cualquier operación de crédito que se encuentre en estado de mora por un periodo igual o mayor a los dos meses, habiéndose agotado la vía de cobro administrativo.
-Cualquier otra considerada por la normativa vigente.
+CAPÍTULO V
+DISPOSICIONES FINALES
+ARTÍCULO 27. Limitaciones de alcance general
+a) No se permiten renovaciones en la línea de crédito de Microempresa.
+b) Todo aquel pensionado o jubilado que requiera acceder a un nuevo crédito y que haya tenido problemas de morosidad de dos cuotas sin justificación, en los últimos 48 meses, debe presentar uno o más fiadores solidarios con capacidad de pago que respalden el monto solicitado, para optar por un nuevo crédito o renovación del mismo.
+c) La determinación del número de créditos a otorgar a una entidad social o financiera del Magisterio Nacional, es potestad exclusiva de la Junta Directiva de JUPEMA.
+d) No se aceptan como garantías hipotecarias, terrenos que se encuentren en periodo de convalidación o que estén ubicados en zonas de alto riesgo. JUPEMA se reserva el derecho de rechazar cualquier garantía propuesta por el solicitante, en procura de salvaguardar los intereses de la Institución.

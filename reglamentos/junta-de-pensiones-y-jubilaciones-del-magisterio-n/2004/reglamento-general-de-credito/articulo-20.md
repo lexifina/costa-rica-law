@@ -1,5 +1,6 @@
-CAPÍTULO IV
-ANÁLISIS, FORMALIZACIÓN Y COBRO
-ARTÍCULO 20 Formalización
-El proceso de análisis de la solicitud presentada por el interesado, en cualquiera de las diferentes líneas, se iniciará cuando éste haya presentado, a satisfacción de la Unidad de Crédito o en las sucursales, la totalidad de los requisitos previamente definidos en este reglamento, así como otros adicionales, solicitados en procura de salvaguardar los intereses de la Institución.
-(Así reformado mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
+ARTÍCULO 20. Desembolso. JUPEMA, por medio de la Unidad de Crédito, se reserva el derecho de realizar desembolsos parciales, en los créditos por la línea de Microempresa.
+Por lo tanto, puede solicitar a los deudores la presentación de facturas originales, facturas pro-forma, informes de avance, y en general, cualquier otro documento que permita comprobar el uso que se le ha dado a los recursos derivados de la operación crediticia.
+En el caso de la Línea de Salud y de Urgencia, los desembolsos son girados a nombre del beneficiario, o directamente a nombre de la persona u organización que prestó o presta el servicio o que le es cancelada la deuda pendiente, según sea la naturaleza o la finalidad del crédito.
+Para los casos otorgados bajo la Línea de Pago de Deuda de Pensión, los desembolsos deben realizarse a nombre de JUPEMA.
+En la línea de crédito para Entidades Sociales y Financieras del Magisterio Nacional, se aplica lo que consigne el acuerdo de Junta Directiva que autorizó el préstamo.
+Todo desembolso parcial genera intereses que corren a partir de la fecha propuesta de la formalización.
