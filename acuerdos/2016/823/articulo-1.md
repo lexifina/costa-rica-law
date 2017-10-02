@@ -683,18 +683,8 @@ Premios | Nombre Premio | Premio por billete | Premio por fracción | Monto Prem
 | SORTEO SUPER EXTRAORDINARIO DE LOTERIA POPULAR "VIERNES NEGRO".
 NO. 6266 DEL VIERNES 24 DE NOVIEMBRE DEL 2017
 PLAN DE PREMIOS POR EMISIÓN
-EMISIÓN: 100.000 billetes cada una (Emisión doble) total: 200.000 Billetes
-El billete consta de 10 fracciones con un valor de ¢10.000 el billete y ¢1,000 la fracción
-PLAN DE PREMIOS POR PAGAR EN CADA EMISIÓN
-Premios | Nombre Premio | Premio por billete | Premio por fracción | Monto Premios
-1 | Premio Mayor | ₡220.000.000 | ₡22.000.000 | ₡220.000.000
-1 | Segundo premio de | ₡50.000.000 | ₡5.000.000 | ₡50.000.000
-1 | Tercer premio de | ₡30.000.000 | ₡3.000.000 | ₡30.000.000
-1 | Premio de | ₡5.000.000 | ₡500.000 | ₡5.000.000
-999 | Los billetes con el Número igual al Mayor, con diferente serie | ₡250.000 | ₡25.000 | ₡249.750.000
-999 | Número igual al Segundo Premio excepto su serie | ₡60.000 | ₡6.000 | ₡59.940.000
-999 | Número igual al Tercer Premio excepto su serie | ₡30.000 | ₡3.000 | ₡29.970.000
-| Cantidad Premios Directos | 4 | ₡644.660.000
+[imagen]
+(Así reformado el cuadro anterior mediante sesión ordinaria 37-2017 del 02 de octubre del 2017)
 (Nota de Sinalevi. Mediante sesión ordinaria 28- 2017 del 31 de julio del 2017 se establece los siguiente: “Se aprueba la modificación del plan de premios del sorteo N° 6246 del viernes 15 de setiembre del 2017, quedando de la siguiente manera:
 [imagen] ”)
 CALENDARIO ELECTRÓNICA "NUEVOS TIEMPOS" DE ENERO A DICIEMBRE 2017
