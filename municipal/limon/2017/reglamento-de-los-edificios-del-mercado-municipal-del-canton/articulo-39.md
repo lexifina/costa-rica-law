@@ -1,0 +1,2 @@
+Artículo 39.- Emergencias.- La Administración Municipal podrá cerrar temporalmente el Mercado Municipal por razones de caso fortuito y/o emergencia.
+En estos casos, la Administración del Mercado Municipal contará con un plazo máximo de 24 horas para remitir informe detallando las causas del cierre; a la Alcaldía Municipal, con copia de dicha información a la Dirección Financiera y al Concejo Municipal.

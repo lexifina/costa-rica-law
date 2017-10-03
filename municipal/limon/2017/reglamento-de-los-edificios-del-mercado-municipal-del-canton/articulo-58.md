@@ -1,0 +1,1 @@
+Artículo 58.- Personas no aptas.- No se permitirá dentro del Mercado, por ningún concepto vendedores ambulantes, ni estacionarios; así como la formación de grupos de personal de locales comerciales ni la permanencia de ebrios y vagabundos.

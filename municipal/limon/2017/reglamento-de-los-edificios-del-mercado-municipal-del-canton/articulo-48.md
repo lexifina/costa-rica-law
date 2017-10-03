@@ -1,0 +1,1 @@
+Artículo 48. Arrendatarios antiguos. Son arrendatarios antiguos los inquilinos que hayan obtenido un local comercial, en el Mercado Municipal, con anterioridad a la construcción del actual Mercado Municipal.

@@ -1,0 +1,1 @@
+Artículo 14.- Prohibiciones.- Ningún inquilino del mercado municipal podrá vender mercancías diferentes a las expresamente autorizadas por el Concejo Municipal de la Municipalidad del Cantón Central de Limón.

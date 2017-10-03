@@ -1,0 +1,2 @@
+Artículo 16. Vendedores temporales.- En caso de la realización de ferias debidamente autorizadas por la Municipalidad, el Concejo Municipal podrá otorgar patentes temporales a vendedores temporales afines al evento organizado.
+En estos casos deberá respetarse la normativa aplicable en la materia y cumplir con los requisitos señalados en la Ley para el Ejercicio de Actividades Lucrativas del Cantón Central de Limón.

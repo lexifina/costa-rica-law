@@ -1,0 +1,1 @@
+Artículo 26.- Ornato de los edificios del mercado.- Los arrendatarios están en la obligación de mantener la estética de los edificios y el ornato en general; así como preservar y cuidar las áreas comunes y el mobiliario urbano que se llegare a instalarse para beneficio y disfrute de los visitantes.

@@ -1,0 +1,2 @@
+Artículo 19.- Uso de locales comerciales como bodegas.- Los inquilinos podrán destinar un tercio de la totalidad del local arrendado a bodegas o frigoríficos; en los términos y condiciones que le autorice la Dirección de Ingeniería y Proyectos de la Municipalidad.
+En los casos en que se violente lo aquí dispuesto el inquilino incurrirá en la causal de rescisión contractual.

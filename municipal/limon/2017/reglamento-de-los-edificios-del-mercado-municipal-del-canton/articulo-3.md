@@ -1,0 +1,1 @@
+Artículo 3º. Definición de arrendatario.- Son arrendatarios aquellas personas físicas o jurídicas que bajo un contrato previamente firmado entre las partes; y pagan un alquiler a la Municipalidad por disfrutar del uso y disfrute de las utilidades que éste genere.

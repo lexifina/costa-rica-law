@@ -1,0 +1,1 @@
+Artículo 22. Seguridad de los usuarios.- La Municipalidad no tendrá responsabilidad alguna sobre los eventuales accidentes que sufran los usuarios del Mercado Municipal dentro de las instalaciones y /o los arrendatarios y su personal dentro de los locales que arrienden.

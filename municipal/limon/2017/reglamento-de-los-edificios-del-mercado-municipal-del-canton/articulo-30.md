@@ -1,0 +1,1 @@
+Artículo 30.- Servicio de agua potable y electricidad.- Cada inquilino concesionario de locales comerciales deberá proveer su servicio de agua potable y energía eléctrica; el cual deberá cancelar puntualmente.
