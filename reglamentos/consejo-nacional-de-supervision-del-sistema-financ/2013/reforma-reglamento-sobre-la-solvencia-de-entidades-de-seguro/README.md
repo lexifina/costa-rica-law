@@ -15,3 +15,4 @@ Reforma Reglamento sobre la Solvencia de Entidades de Seguros y Reaseguros
 | --- | --- | --- |
 | 1 | 2014-01-01 | la propia norma |
 | 2 | 2014-07-22 | Reglamento 1114 (2014-07-22) |
+| 3 | 2017-10-03 | Reglamento 1363 (2017-10-03) |

@@ -235,7 +235,10 @@ b) Provisión por insuficiencia de prima (Anexo PT-2).
 c) Provisión de seguros personales (Anexo PT-3).
 d) Provisión para siniestros (Anexo PT-4).
 e) Provisión de participación en los beneficios (Anexo PT-5).
-f) Provisiones de seguros en los que el riego de inversión lo asume el tomador (Anexo PT-6).
+f) ) Provisión de seguros en los que el riesgo de inversión lo asume el tomador (Anexo PT-6).
+(Así reformado el inciso anterior mediante sesión N° 1363 del 3 de octubre de 2017
+g) Provisión de riesgos catastróficos (Anexo PT-7).
+(Así reformado el inciso anterior mediante sesión N° 1363 del 3 de octubre de 2017
 Los parámetros específicos para cada provisión, se establecen en el anexo respectivo y forman parte integral de este reglamento.
 La entidad puede solicitar autorización para constituir otras provisiones o reservas de carácter técnico, a las que serán aplicables las regulaciones recogidas en este título.
 En cualquier caso, las provisiones se computarán en forma bruta, sin descontar reaseguro. En el caso de existir cesión de riesgos en reaseguro se debe reconocer un activo por dicha cesión, cuya metodología de determinación debe ser consistente con la aplicada en la constitución de la respectiva provisión.
@@ -283,7 +286,8 @@ Las inversiones deben efectuarse de conformidad con los siguientes lineamientos:
 b) Custodia de valores
 Los valores susceptibles de ser custodiados deben mantenerse en una institución de custodia. La entidad debe autorizar el acceso directo de la Superintendencia, con propósitos de supervisión, a sus valores y cuentas en el custodio.
 Los custodios deben cumplir con los siguientes requisitos:
-a) En caso de custodios nacionales, estar autorizados por la Superintendencia General de Valores como custodios bancarios tipo “C”.
+a) En caso de custodios nacionales, ser bancos inscritos en el Registro Nacional de Valores e Intermediarios como custodios
+(Así reformado el inciso anterior mediante sesión N° 1363 del 3 de octubre de 2017)
 b) En caso de custodios internacionales:
 i. Estar debidamente autorizado para ejercer la actividad en su país de domicilio.
 ii. Contar con quince años de experiencia en la prestación de servicios de custodia.
@@ -407,8 +411,8 @@ Artículo 39 Prohibición para la realización de operaciones de cobertura
 Las entidades supervisadas no pueden realizar operaciones de cobertura de riesgos con una entidad contraparte de su grupo vinculado según lo dispuesto en la normativa vigente sobre grupos financieros que le sea aplicable.
 CAPÍTULO V
 OTRAS DISPOSICIONES
-Artículo 40 Respaldo documental y de la información
-Para efectos de demostrar una apropiada gestión de la información relacionada con la actividad aseguradora y, en concreto, para justificar la adecuación de las provisiones técnicas, las entidades deben cumplir al menos los siguientes requerimientos de información, separadamente para seguro directo, reaseguro aceptado y reaseguro cedido, debiendo existir una coherencia y una vinculación entre la información contenida en los diferentes registros en relación a una misma póliza:
+Artículo 40 Respaldo documental y de la información. Para efectos de demostrar una apropiada gestión de la información relacionada con la actividad aseguradora, las entidades deben cumplir al menos los siguientes requerimientos de información, separadamente para seguro directo, reaseguro aceptado y reaseguro cedido, debiendo existir una coherencia y una vinculación entre la información contenida en los diferentes registros en relación a una misma póliza:”)
+(Así reformado el párrafo anterior mediante sesión N° 1363 del 3 de octubre de 2017)
 a) Registro de Producción (pólizas, adendas y anulaciones): este registro deberá identificar para cada póliza emitida o adenda los datos relevantes en relación a sus elementos personales, las coberturas otorgadas, el periodo de cobertura, es decir, la fecha de inicio y la fecha de vencimiento del plazo durante el cual se el riesgo se encuentra cubierto, las condiciones económicas del contrato, tales como prima y suma asegurada y, en general, todos los datos necesarios para la identificación del riesgo asegurado. Cuando se produzca la anulación de una póliza o adenda se hará constar tal circunstancia y su fecha en los registros afectados. Tratándose de pólizas colectivas, dicha información deberá mantenerse para cada ítem asegurado.
 b) Registro de Siniestros: Los siniestros deben registrarse tan pronto sean conocidos por la entidad, por orden cronológico y asignándoles un código único de siniestro, que debe ser correlativo. La información que, entre otros aspectos, debe contener este registro debe referirse a la póliza de la que procede cada siniestro, fecha de ocurrencia y declaración, el detalle del evento que genera el siniestro reclamado, valoración inicial asignada, montos pagados con indicación separada de los recobros que se hayan producido, informes de liquidación, provisión de siniestros, pagos y participación en la provisión a cargo del reasegurador y en general todos los antecedentes necesarios para la evaluación de la siniestralidad de la entidad. También debe indicarse si están en proceso de liquidación, controvertidos por el asegurado (indicando por separado si existe reclamación judicial) o si están liquidados y no pagados. Tratándose de pólizas colectivas dicha información deberá mantenerse para cada evento e ítem asegurado.
 c) Registro de cálculo de provisiones técnicas: para cada una de las provisiones técnicas, la entidad deberá llevar separadamente los registros correspondientes que permitan verificar la adecuación de éstas y la identificación de la póliza a la que se refieren cuando su cálculo deba ser individualizado según lo exigido por este Reglamento.
@@ -432,6 +436,11 @@ Transitorio IV
 Las entidades que a la entrada en vigencia de estas disposiciones requieran ajustar el monto de las provisiones técnicas constituidas, o requieran constituir alguna de las provisiones dispuestas en este reglamento, podrán realizar las reclasificaciones necesarias de las provisiones existentes previa autorización de la Superintendencia.
 TRANSITORIO V: La primera publicación del índice de suficiencia de capital de las entidades supervisadas, en los términos dispuestos en el artículo 15 de este reglamento, se hará con la información reportada por las entidades al 31 de diciembre de 2014.
 (Así adicionado el transitorio anterior mediante sesión 1114 del 22 de julio del 2014)
+Transitorio VI. Las entidades que realicen operaciones de seguros y reaseguro aceptado de terremoto y erupción volcánica, deben comenzar a constituir la provisión de riesgos catastróficos de los seguros de terremoto y erupción volcánica, en términos de lo establecido en el Anexo PT-7 de este Reglamento, en un plazo máximo de un año desde la entrada en vigencia de esta modificación.
+El mismo plazo correrá para las entidades que a la entrada de vigencia tuvieren autorización de la Superintendencia para mantener la provisión de riesgos catastróficos para los seguros de terremoto y erupción volcánica.
+(Así adicionado mediante sesión N° 1363 del 3 de octubre de 2017)
+Transitorio VII. Las entidades que realicen operaciones de seguros y reaseguro aceptado de seguros de terremoto y erupción volcánica, disponen de un plazo de un año desde la entrada en vigencia de esta modificación, para adoptar la metodología de cálculo del requerimiento de capital de solvencia de los seguros de terremoto y erupción volcánica, dispuesta en el Anexo RCS-6 de este Reglamento. En el tanto, la entidad no aplique esa metodología, el requerimiento de capital para los seguros de terremoto y erupción volcánica se calculará según lo dispuesto en el apartado A del Anexo RCS-6.
+(Así adicionado mediante sesión N° 1363 del 3 de octubre de 2017)
 ANEXO PT-1
 PROVISIÓN PARA PRIMA NO DEVENGADA (PPND)
 La provisión de prima no devengada se calculará póliza a póliza de la siguiente forma:
@@ -459,7 +468,8 @@ En caso de que la forma de pago de la prima de la póliza se realice de forma fr
 ANEXO PT-2
 PROVISIÓN POR INSUFICIENCIA DE PRIMA (PIP)
 La provisión por insuficiencia de prima (PIP) complementará a la provisión para prima no devengada (PPND) en la medida en que el importe de esta última no sea suficiente para reflejar la valoración de todos los riesgos y gastos a cubrir por la entidad aseguradora, correspondientes al periodo de cobertura no transcurrido a la fecha de cálculo.
-El importe de la provisión por insuficiencia de prima se calcula separadamente para el seguro directo y para el reaseguro aceptado, por cada línea o producto comercial, según la política aprobada por la entidad.
+El importe de la provisión por insuficiencia de prima se calcula separadamente para el seguro directo y para el reaseguro aceptado, por cada línea o producto comercial, según la política aprobada por la entidad. Esta provisión no se requiere para las coberturas de terremoto y erupción volcánica.
+(Así reformado el párrafo anterior mediante sesión N° 1363 del 3 de octubre de 2017)
 A) Base de cálculo
 Para el cálculo de la provisión por insuficiencia de prima (PIP) los siniestros deben clasificarse por año de ocurrencia. El periodo de referencia será de tres años hasta la fecha de cálculo, es decir, los últimos 36 meses.
 Las entidades nuevas que no cuenten con experiencia en Costa Rica, estarán exceptuadas de calcular esta provisión hasta que cuenten con 12 meses de operación en la línea o producto para el cual se calcula esta provisión. A partir de ese momento, las entidades deberán calcular esta provisión tomando como periodo de referencia, el tiempo acumulado hasta la fecha de cierre de cálculo, hasta completar los 36 meses establecidos.
@@ -678,6 +688,61 @@ PROVISIÓN DE SEGUROS EN LOS QUE EL RIESGO DE INVERSIÓN LO ASUME EL TOMADOR
 La provisión de los seguros, asociados a los seguros de vida o renta, en los que contractualmente se estipule que el riesgo de inversión es soportado íntegramente por el tomador se determina en función de los activos o índices que se hayan fijado como referencia para determinar el valor económico de los derechos del tomador.
 Se efectuarán las dotaciones a la provisión de seguros de personas que procedan para reflejar los riesgos derivados de estas operaciones que no sean efectivamente asumidos por el tomador.
 Las entidades deberán justificar y registrar ante la Superintendencia la metodología específica para el cálculo de esta provisión durante el proceso de registro de cada producto.
+(*)ANEXO PT-7
+PROVISIÓN DE RIESGOS CATASTRÓFICOS (PRCAT)
+La provisión de riesgos catastróficos de los seguros de temblor y terremoto (en adelante terremoto) y erupción volcánica debe constituirse para cada uno de los siguientes tipos de contratos de seguro y reaseguro:
+i) Seguros que cubran, en forma directa o como beneficio adicional, las pérdidas materiales o pérdidas consecuenciales de bienes inmuebles y sus contenidos, causadas por la ocurrencia de eventos sísmicos de temblor y terremoto.
+ii) Seguros que cubran, en forma directa o como beneficio adicional, pérdidas materiales o consecuenciales en bienes inmuebles y sus contenidos, causadas en forma directa por erupción volcánica.
+iii) Contratos de reaseguro aceptado que cubran pérdidas materiales o consecuenciales de bienes inmuebles y sus contenidos, derivadas de pólizas de seguros de terremoto y erupción volcánica.
+Esta provisión no aplicará cuando se trate de seguros distintos a aquellos que tienen por objeto cubrir los daños materiales que puedan sufrir bienes inmuebles, tales como casas o edificios y sus contenidos, carreteras, puentes, presas, estadios y demás estructuras similares que constituyen bienes inmuebles que son susceptibles de sufrir daños por terremoto y erupción volcánica.
+A) Objetivo
+La provisión de riesgos catastróficos de los seguros de terremoto y erupción volcánica tendrá como objeto, compensar las pérdidas derivadas de alguna de las siguientes circunstancias:
+1) De la ocurrencia de un evento de terremoto o erupción volcánica que produzca reclamaciones.
+2) Cuando ocurra la insolvencia de alguno de los reaseguradores a los cuales la entidad le hubiese cedido parte de los riesgos asegurados o que por algún otro motivo el reasegurador no proceda con el pago esperado, y ello implique que la entidad aseguradora no cuente con el apoyo económico previsto para el pago de reclamaciones brutas de terremoto o erupción volcánica, y ello le ocasione pérdidas.
+3) Cuando después de un evento catastrófico de terremoto o erupción volcánica una entidad tenga que contratar la reinstalación de sus coberturas de reaseguro de exceso de pérdida y el costo de la reinstalación le ocasione pérdidas.
+B) Metodología
+B.1 Aportaciones
+La provisión de riesgos catastróficos de los seguros de terremoto y erupción volcánica, se constituirá mensualmente con base en la prima de riesgo retenida devengada en cada mes, excluido el recargo de seguridad, en caso de existir. El cálculo se realizará conforme al siguiente procedimiento de cálculo:
+I. En el caso de pólizas anuales e independientemente de la forma de pago de la prima, se calculará al cierre de cada mes, una aportación a la provisión de riesgos catastróficos (APm), con el monto que resulte del 80% de la prima de riesgo retenida devengada del mes, calculando la prima de riesgo retenida devengada del mes, como un doceavo de la prima de riesgo retenida (PRRm) de las pólizas en vigor al cierre de dicho mes.
+[imagen]
+II. En el caso de pólizas que tengan una temporalidad inferior o superior a un año, la aportación a la provisión de riesgos catastróficos (APm) será el monto que resulte del 80% de la prima de riesgo retenida devengada del mes, calculando la prima de riesgo retenida devengada del mes, como un m-ésimo de la prima de riesgo retenida (PRRm) de las pólizas en vigor al cierre de dicho mes.
+[imagen]
+III. En el caso de pólizas de seguro que operen con cobertura y forma de pago de prima mensual, entendiendo que dicho esquema consiste en que la entidad aseguradora recibe pagos mensuales que cubren únicamente el riesgo y obligaciones del mes, la aportación APm debe ser el 80% de la prima de riesgo retenida correspondiente a las primas emitidas en el mes.
+APm = 0.8 * (PRRm)
+Para estos efectos la prima de riesgo retenida de cada póliza no deberá ser una cantidad inferior al 70% de la prima de tarifa retenida de cada póliza. Asimismo, cuando no se tenga conocimiento del valor que tiene la prima de riesgo retenida de las pólizas en vigor, dicha prima de riesgo retenida deberá ser calculada como el 70% de la prima de tarifa retenida de las pólizas en vigor.
+Las entidades deberán mantener en resguardo, el detalle del cálculo de la prima de riesgo retenida devengada mensual que se utilizó para la aportación mensual a la reserva, el cual podrá ser requerido por la Superintendencia, para efectos de verificación de los resultados obtenidos.
+B.2 Rendimientos
+A la provisión de riesgos catastróficos de los seguros de terremoto y erupción volcánica, deberán sumársele, mensualmente, los rendimientos (Rendm) que se hayan generado durante el mes, tomando como base para el cálculo, el saldo que tenga dicha provisión al cierre del mes inmediato anterior. Los rendimientos se calcularán utilizando una tasa (i), equivalente a la tasa de rendimiento promedio mensual obtenida por la entidad en ese mes en sus inversiones o en la cartera asignada específicamente a la provisión de riesgo catastrófico, si fuera el caso. El cálculo de los intereses en un determinado mes m, deberá realizarse mediante el siguiente procedimiento:
+[imagen]
+PRCATm-1: Se refiere al monto de la provisión de riesgos catastróficos de terremoto y erupción volcánica, al cierre del mes inmediato anterior al mes de valuación.
+Sm: Se refiere al monto retenido de los siniestros reportados o ajustes que, en su caso, se hubiesen efectuado en el mes, o a algunas de las pérdidas indicadas en los incisos 2) y 3) de la sección A) de este anexo. Para estos efectos, se entenderán como ajustes, los montos complementarios utilizados para incrementar la estimación inicialmente realizada de un siniestro (ajustes de más) o para reconocer el monto en exceso que se produce cuando la provisión inicialmente realizada para el pago de un siniestro es menor al monto realmente pagado (ajuste de menos).
+Las entidades deberán mantener en resguardo, el cálculo y la información con base en la cual se determinó la tasa de rendimiento promedio mensual i, utilizada para calcular los rendimientos mensuales de la reserva, lo cual podrá ser requerido por la Superintendencia, para efectos de verificación de los resultados obtenidos.
+B.3 Cálculo
+La provisión de riesgos catastróficos, al cierre de cada mes deberá determinarse como el monto que resulte de sumar, al saldo de dicha provisión al cierre del mes inmediato anterior, la aportación del mes correspondiente a la prima de riesgo retenida devengada (APm) y los intereses del mes (Rendm), restando de dicha suma, el monto retenido de los siniestros o ajustes (Sm) que, en su caso, se hubiesen registrado en el mes, es decir:
+PRCATm ꞊PRCATm-1 † Rendm † Apm -Sm
+C) Límite máximo
+La provisión de riesgos catastróficos de los seguros de terremoto y erupción volcánica tendrá como límite máximo de acumulación, el monto que resulte de aplicar el siguiente criterio técnico:
+I. Se determinará el monto de la pérdida máxima probable retenida de los seguros de terremoto y erupción volcánica, al cierre del año de que se trate, mediante la metodología y criterios indicados en el Anexo RCS-6 relativo al Cálculo de Requerimiento de Capital de Solvencia por Riesgo Catastrófico, de este Reglamento.
+II. Se determinará el monto que resulte del promedio de la pérdida máxima probable retenida calculada al cierre de cada uno de los últimos cinco años de operación de la entidad, incluyendo el año que se cierra. En caso de que no se cuente con la información de los últimos cinco años, debido a la reciente constitución de la entidad o al reciente inicio de operación en este tipo de seguros, el promedio se realizará con los años con que se cuente.
+III. Se determinará el límite de la provisión de riesgos catastróficos de los seguros de terremoto y erupción volcánica, como el máximo entre los montos obtenidos conforme a lo indicado en los numerales I y II anteriores.
+IV. Al monto resultante del numeral III se debe añadir el costo estimado de reinstalación de la cobertura del contrato de reaseguro de exceso de pérdida catastrófico, cuando este costo no haya sido previamente pagado por la compañía (como parte de la prima del reaseguro).
+Cuando la provisión de riesgos catastróficos de terremoto y erupción volcánica, llegue a su límite, deberá dejar de incrementarse o se liberará cualquier excedente que exista. No obstante, la Superintendencia podrá dar autorización para mantener un monto de provisión superior al límite en los casos en que una entidad lo solicite, bajo el argumento de que cuenta con evidencias de la existencia de alguna contingencia o riesgo futuro que pueda afectar su solvencia, en cuyo caso, la autorización se otorgará en tanto se justifique que se mantiene la existencia de dicha contingencia o riesgo futuro.
+La verificación del límite de la provisión y el ajuste correspondiente en caso de que haya excedente, se realizará hasta el cierre de cada año.
+D) Afectaciones
+La provisión de riesgos catastróficos de terremoto y erupción volcánica, sólo se podrá afectar por alguna de las causas indicadas en la sección A) de este anexo, siempre y cuando se cumplan las condiciones para la afectación establecidas en la citada sección A) y la existencia de un registro oficial del evento. En esos casos, el monto de la afectación (Afm) será hasta por el monto de la pérdida técnica ocasionada por la siniestralidad retenida originada por el evento de que se trate, entendiendo como pérdida técnica para estos efectos, la diferencia entre la suma constituida por la aportación correspondiente a la prima de riesgo retenida devengada (APm) y los rendimientos del mes (Rendm), y el monto de los siniestros retenidos registrados en dicho mes o algunas de las pérdidas indicadas en los incisos 2) y 3) de la sección A) de este anexo (sM).
+AFm = Rendm + APm – Sm
+Adicionalmente, a solicitud de la entidad, previo análisis de las circunstancias y autorización por parte de la Superintendencia, la provisión de riesgos catastróficos de terremoto y erupción volcánica se podrá afectar para cubrir pérdidas originadas por eventos catastróficos distintos al de terremoto y erupción volcánica, que hayan producido perdidas extraordinarias que pongan en riesgo la solvencia y liquidez de la entidad. En estos casos la entidad someterá a autorización ante la Superintendencia, un programa de reconstitución del monto afectado, con base en las utilidades que tenga la entidad en los siguientes años, en los otros ramos y tipos de seguros, mediante aportaciones adicionales a las aportaciones provenientes de los seguros de terremoto y erupción volcánica.
+Asimismo, la propia Superintendencia, ante la ocurrencia de alguna contingencia grave en territorio nacional, declarada como estado de emergencia por el Poder Ejecutivo vía decreto ejecutivo, que afecte al mercado asegurador, podrá determinar mediante disposiciones de carácter general, la afectación automática de la provisión, para el pago de siniestros, sin que para esos efectos se requiera previa autorización.
+Cuando la provisión de riesgos catastróficos de los seguros de terremoto y erupción volcánica sea afectada por algunas de las causas previstas en la sección A) de este anexo, no será obligatorio reponer el saldo dispuesto, y las entidades deberán realizar la reconstitución de dicha provisión, partiendo del saldo remanente y mediante las aportaciones y los rendimientos determinados conforme a lo establecido en la sección B) del presente anexo.
+La Junta Directiva de la entidad deberá aprobar la deducción que se realice de la provisión de riesgos catastróficos de los seguros de terremoto y erupción volcánica por alguna de las causas indicadas en la sección A) de este anexo, lo cual deberá estar justificado técnicamente.
+La entidad deberá mantener en todo momento a disposición de la Superintendencia, la documentación que justifique el uso de la provisión de riesgos catastróficos, la cual deberá ser firmada por un actuario debidamente acreditado para ejercer en dicha profesión en Costa Rica.
+E) Disponibilidad y liquidez
+Sin perjuicio de lo dispuesto en el capítulo III del título III de este Reglamento, la entidad deberá contar, dentro de su gestión de activos y pasivos, con un plan que permita atender el pago de siniestros derivados de la ocurrencia de los eventos contemplados en la sección A de este anexo.
+F) Cese de operaciones
+Cuando una entidad determine dejar de operar los seguros de terremoto y erupción volcánica pero mantenga otras operaciones activas, podrá liberar al 100% el monto de la provisión de riesgos catastróficos de los seguros de terremoto y erupción volcánica siempre que haya liquidado los siniestros pendientes de pago y que haya previamente compensado cualquier déficit de provisión que en esos momentos presente cualquier otro ramo de seguro o alguna deficiencia de capital, previa autorización de la Superintendencia.
+G) Relación con la Provisión para siniestros ocurridos y no reportados
+Las entidades que constituyan la provisión de riesgos catastróficos de los seguros de terremoto y erupción volcánica no estarán obligadas a la constitución de la Provisión para siniestros ocurridos y no reportados, salvo cuando el monto constituido de la provisión de riesgos catastróficos de los seguros de terremoto y erupción volcánica, al cierre del año, sea inferior al 5% de las primas anuales retenidas de los seguros de terremoto y erupción volcánica, en tal caso se deberá utilizar el método dispuesto en el Anexo PT-4 de este Reglamento.
+(*)(Así adicionado el anexo 7 anterior mediante sesión N° 1363-2017 del 3 de octubre del 2017)
 ANEXO RCS-1
 CALCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA
 RIESGO DE GENERAL DE ACTIVOS
@@ -813,9 +878,12 @@ PT = monto bruto de la provisión técnica, de primas o de siniestros, que corre
 Provisión técnica retenida= monto de la provisión técnica, de primas o siniestros, que corresponda deducido la participación del reasegurador en dicha provisión.
 Ramos | Factor de Capital Regulatorio Provisión para Siniestros | Factor de Capital Regulatorio Provisión para prima no Devengada
 Seguro obligatorio de automóviles | 13,5% | 10%
-Automóviles, incendio y líneas aliadas excepto industrial o comercial, defensa jurídica. | 13,5% | 20,25%
-Incendio y líneas aliadas industrial o comercial, Aviación, vehículos marítimos y ferroviarios, mercancías transportadas, Agrícolas y Pecuarios, otros daños a los bienes. | 16,5% | 24,75%
-Crédito, Caución, Pérdidas pecuniarias, responsabilidad civil y otros no mencionados precedentemente. | 22,5% | 33,75%
+Automóviles, la línea de Hogar del ramo de Incendio y líneas aliadas, y Defensa jurídica. | 13,5% | 20,25%
+Las líneas de Industrial y Comercial del ramo de Incendio y líneas aliadas, Aviación, Vehículos marítimos y ferroviarios, Mercancías transportadas, Agrícolas y pecuarios, y Otros daños a los bienes. | 16,5% | 24,75%
+Crédito, Caución, Pérdidas pecuniarias, | |
+Ramos | Factor de Capital Regulatorio Provisión para Siniestros | Factor de Capital Regulatorio Provisión para prima no Devengada
+Responsabilidad civil y otros no mencionados precedentemente. | 22,5% | 33,75%”)
+(Así reformado el cuadro anterior mediante sesión N° 1363 del 3 de octubre de 2017)
 ANEXO RCS-5
 CALCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA
 RIESGO DE REASEGURO CEDIDO
@@ -852,13 +920,140 @@ Asimismo, los diferentes sindicatos del Lloyd deben considerarse como un único 
 En caso de producirse un evento de tipo catastrófico que genere en forma excepcional un exceso de participación de un reasegurador en las provisiones técnicas, la entidad podrá solicitar a la SUGESE que suspenda en forma temporal la aplicación de los límites de concentración señalados. La SUGESE podrá autorizar de forma razonada dicha suspensión sujeta a las condiciones que estime pertinentes y por un periodo determinado. En este caso, la Superintendencia debe informar de este evento al CONASSIF.
 La nomenclatura de calificaciones utilizadas en este anexo corresponde a la escala internacional dispuesta por la agencia calificadora de riesgo Standard &Poor’s. La calificación de algún reasegurador por parte de otra agencia internacional debe homologarse a la calificación de Standard & Poor’s según las equivalencias dispuestas en las Tablas de riesgo de contraparte del Anexo RCS-1 de este Reglamento.
 Cuando el reasegurador esté calificado por más de una agencia calificadora, debe utilizarse la calificación que denote el mayor riesgo.
+(Nota de Sinalevi: Mediante sesión N° 1363 del 3 de octubre de 2017, se acordó reformar el anexo RCS-5 anterior. AL no ser clara la reforma la misma se transcribe a continuación:
+(…)
+Calificación de Riesgo Internacional | Factor de Capital
+AAA | 2%
+AA | 5%
+A | 7,5%
+BBB | 15%
+BB, inferior a BB o no calificadas | 100%
+Requerimiento de capital por Riesgo de Concentración del Reasegurador
+El requerimiento de capital por concentración del reaseguro, se determina aplicando un factor de capital del 100% sobre el exceso de la participación de un mismo reasegurador, en el monto total de la cuenta "participación del reaseguro en los diferentes tipos de provisiones técnicas" que mantiene la entidad a la fecha de cálculo de acuerdo a la siguiente tabla:”)
 ANEXO RCS-6
 CALCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA
 RIESGO CATASTRÓFICO
-El requerimiento de capital por riego catastrófico se calcula, para el ramo de incendio y líneas aliadas, de la siguiente forma:
-[imagen]
+El requerimiento de capital por riesgo catastrófico se calcula para las coberturas catastróficas del ramo de Incendio y líneas aliadas, de la siguiente forma:
+A. Para riesgos diferentes a terremoto y erupción volcánica se utiliza la siguiente fórmula:
+RCScat = [(Kt *FRcat ) − SrXL]
 Donde:
-[imagen] =Requerimiento de capital de riesgo catastrófico.
-[imagen] =Monto de las responsabilidades retenidas y vigentes a la fecha de su determinación, menos deducibles y coaseguro.
-[imagen] =Factor regulatorio = 8%
+RCScat𝑡=Requerimiento de capital de riesgo catastrófico.
+Kt=Monto de las responsabilidades retenidas y vigentes a la fecha de su determinación, menos deducibles y coaseguro.
+FRcat=Factor regulatorio = 8%
 SrXL = Suma reasegurada en los contratos de exceso de pérdida vigentes.
+B. Para los riesgos de temblor y terremoto (en adelante terremoto) y erupción volcánica se utiliza la siguiente metodología:
+I. El requerimiento de capital de solvencia de los seguros que cubran el riesgo de terremoto y erupción volcánica, (RCS t y e ) debe calcularse como la suma del requerimiento de capital por el riesgo técnico (RCRTec), el requerimiento de capital por el riesgo de contraparte por calidad de reaseguro (RCRCal) y el requerimiento de capital por el riesgo de concentración de reaseguro (RCRCom), disminuida dicha suma porcentualmente en una proporción (Div), y restando de dicha suma, el monto que tenga la provisión de riesgos catastróficos de terremoto y erupción volcánica (PRCAT), al momento del cálculo, es decir:
+RCS Ty E = (RCRTec + RC RCal + RC RCom ) ∗ (1 − Div) –PRCAT
+Div: es el factor de diversificación por la existencia de otros ramos o tipos de seguros.
+En caso de que el resultado de este cálculo sea negativo, para efectos regulatorios, el requerimiento de capital de solvencia de los seguros que cubran el riesgo de terremoto y erupción volcánica, (RCS T y E ), debe considerarse como cero.
+Los tipos de seguros que deben considerarse para efectos del cálculo son los siguientes:
+a) Seguros que cubran, en forma directa o como beneficio adicional, las pérdidas materiales o consecuenciales de bienes inmuebles y sus contenidos, causadas por la ocurrencia de eventos sísmicos de temblor y terremoto.
+b) Seguros que cubran, en forma directa o como beneficio adicional, pérdidas materiales o consecuenciales en bienes inmuebles y sus contenidos, causadas en forma directa por erupción volcánica.
+c) Contratos de reaseguro aceptado que cubran pérdidas materiales o consecuenciales, derivadas de pólizas de seguros de terremoto y erupción volcánica.
+Todo lo anterior no aplica cuando se trate de seguros distintos a aquellos que tienen por objeto cubrir los daños materiales que puedan sufrir bienes inmuebles, tales como casas o edificios y sus contenidos, carreteras, puentes, presas, estadios y demás estructuras similares que constituyen bienes inmuebles, que son susceptibles de sufrir daños por terremoto y erupción volcánica.
+II. Para efectos de lo dispuesto en la sección I anterior, cada uno de los referidos requerimientos debe calcularse como se indica a continuación:
+a) Requerimiento de capital por el riesgo técnico (RC RTec): debe calcularse como la pérdida máxima probable calculada a retención (PMLR), considerando las pólizas en vigor al cierre de cada trimestre, de los seguros de terremoto y erupción volcánica. Para este efecto, la pérdida máxima probable se debe calcular conforme a lo indicado en las secciones III y IV del presente anexo.
+b) Requerimiento de capital por el riesgo de contraparte por calidad de reaseguro (RC RCal): debe calcularse mediante el siguiente procedimiento:
+1. Se calcula el PML Bruto (PMLB), sin considerar el efecto de reaseguro, mediante el procedimiento indicado en las secciones III y IV.
+2. Se calcula el PML Retenido (PMLR), considerando el efecto de reaseguro, mediante el procedimiento indicado en las secciones III y IV.
+3. Se calcula el PML Cedido Total (PML c), como la diferencia entre el PML Bruto (PMLB) y el PML Retenido (PMLR) calculados mediante el procedimiento indicado en las secciones III y IV.
+PMLC = PMLB – PMLR
+4. Se calcula la parte de PML Cedido a una determinada entidad reaseguradora i (PML C,I), como la que resulte de multiplicar el PML cedido total (PMLC), indicado en el numeral 3 de la presente sección, por el porcentaje que represente la prima total cedida a dicha entidad reaseguradora i, (FPC, I), respecto de la prima total cedida a todos los reaseguradores.
+[imagen]
+Para estos efectos, el porcentaje de prima total cedida que debe aplicarse, es el que resulte de dividir, al cierre del trimestre de que se trate, la prima de las pólizas en vigor, cedidas a la entidad reaseguradora i (PCI), entre la prima cedida total de las pólizas en vigor al cierre del trimestre de que se trate (PCT), considerando para la determinación de la prima cedida, tanto contratos de reaseguro proporcionales, como contratos de reaseguro no proporcionales.
+[imagen]
+5. Se calcula el requerimiento por riesgo de contraparte proveniente de una determinada entidad reaseguradora i (RCRCAL, I), con que la entidad de seguros tenga riesgos cedidos de las pólizas en vigor, como el monto que resulta de multiplicar la probabilidad ponderada de incumplimiento de dicha entidad reaseguradora Pr (ri), por el monto de PML cedido a dicha entidad reaseguradora i (PML C,I,) obtenido conforme a lo indicado en el numeral 4 anterior.
+[imagen]
+Para estos efectos, la probabilidad ponderada de incumplimiento de cada entidad reaseguradora i, es la que le corresponde de acuerdo con la calificación última que tenga dicha entidad reaseguradora, dada por una calificadora internacional, conforme a lo que se indica en la siguiente tabla.
+Calificación de riesgo internacional | Probabilidad Ponderada de incumplimiento Pr(ri)
+AAA | 0,45%
+AA | 1,01%
+A | 2,29%
+BBB | 5,13%
+BB, inferior a BB o no calificadas | 100%
+La nomenclatura de calificaciones utilizadas en este anexo corresponde a la escala internacional dispuesta por la agencia calificadora de riesgo Standard &Poor’s. La calificación de algún reasegurador por parte de otra agencia internacional debe homologarse a la calificación de Standard & Poor’s según las equivalencias dispuestas en las tablas de riesgo de contraparte del Anexo RCS-1 de este Reglamento.
+6. Se calcula el requerimiento por el riesgo de contraparte por calidad de reaseguro (RC RCAL), como la suma de los requerimientos calculados para cada una de las entidades reaseguradoras i, que tengan participación de primas cedidas de las pólizas en vigor al cierre del trimestre de que se trate, conforme a lo indicado en el numeral 5 del presente inciso b):
+[imagen]
+∀ i: significa que debe sumarse para todas las entidades reaseguradoras i.
+c) Requerimiento de capital por el riesgo de concentración de reaseguro (RC RCOM): se calcula conforme al siguiente procedimiento:
+1. Se calcula el requerimiento por el riesgo de concentración de reaseguro cedido a una determinada reaseguradora i (RCRCON, I), con calificación j, con la que se tenga un grado de concentración k, como el monto que se obtiene de multiplicar el respectivo factor de requerimiento por concentración de reaseguro (FRCON, j, k), que le corresponde a la entidad de acuerdo a su índice de concentración de reaseguro cedido (F Pc, I) y de acuerdo a la calificación j de la entidad reaseguradora, aplicando los valores indicados en la siguiente tabla, por el monto de la diferencia entre el PML cedido a dicha entidad reaseguradora (PML C, I) y requerimiento por calidad de reaseguro correspondiente (RC RCAL, I).
+[imagen]
+Factores de requerimiento por concentración de reaseguro para el cálculo del RCS (F RCON, J,K)
+Calificación de la entidad reaseguradora | Concentración 𝑭𝑷𝑪,𝒊 de más de 10% y hasta 20% | Concentración 𝑭𝑷𝑪,𝒊 de más de 20% y hasta 40% | Concentración 𝑭𝑷𝑪,𝒊 de más de 40% y hasta 60% | Concentración 𝑭𝑷𝑪,𝒊 de más de 60% y hasta 80% | Concentración 𝑭𝑷𝑪,𝒊 de más de 80% y hasta 100%
+AAA | 5% | 10% | 15% | 20% | 30%
+AA | 7% | 12% | 17% | 22% | 31%
+A | 10% | 15% | 19% | 24% | 34%
+BBB | 15% | 19% | 24% | 28% | 37%
+2. Una vez obtenido el requerimiento por el riesgo de concentración de reaseguro cedido de cada una de las reaseguradoras i (RC RCON, i), el requerimiento de capital por el riesgo de concentración de reaseguro (RC RCON), se calcula como la suma de las cantidades (RC RCON ,i) determinadas conforme al numeral 1 del presente inciso c), para cada una de las entidades reaseguradoras i con que la aseguradora tenga contratos vigentes de reaseguro cedido.
+[imagen]
+∀ i: significa que debe sumarse lo obtenido para cada una de las entidades reaseguradoras i que participen en contratos de reaseguro cedido para las pólizas en vigor al momento del cálculo.
+3. Para estos efectos, el índice de concentración de reaseguro cedido a una determinada reaseguradora i (FPC, I), debe calcularse como el porcentaje que resulte de dividir la prima total cedida a esa entidad reaseguradora i, de los seguros de terremoto y erupción volcánica (PC i), entre la prima cedida total de los seguros de terremoto y erupción volcánica (PCT), es decir:
+[imagen]
+La prima cedida a una determinada reaseguradora i, (PC, i) debe ser la suma de las primas cedidas a dicha reaseguradora, de cada una de las pólizas en vigor al momento del cálculo, considerando tanto contratos de reaseguro proporcional como no proporcional.
+Asimismo, la prima cedida total (PCT) en los seguros de terremoto y erupción volcánica, es la suma de las primas cedidas a todas las entidades reaseguradoras i, que participan en dichos tipos de seguros, considerando como primas cedidas, tanto las correspondientes a contratos proporcionales como el costo correspondiente a los contratos de reaseguro no proporcional.
+Para efectos de lo indicado en esta sección, cuando un reasegurador esté calificado por más de una agencia calificadora, debe utilizarse la calificación que denote el mayor riesgo.
+III. Para efectos de calcular el RCS T y E conforme a los procedimientos indicados en los incisos a), b) y c) de la sección II anterior, la pérdida máxima probable bruta y retenida (PMLR), que se utilizan como base para aplicar los referidos procedimientos, deben calcularse conforme a lo siguiente:
+a) La entidad debe identificar el tipo de aseguramiento de cada uno de los bienes asegurados en las pólizas en vigor, de conformidad con lo siguiente:
+1. Aseguramiento estándar: Se refiere a los bienes que se ubican en territorio nacional y que no son asegurados a primera pérdida, conforme a lo que se describe en el párrafo siguiente.
+2. Aseguramiento a primera pérdida: Se refiere a los bienes para los cuales en el contrato de seguro se establece que la suma asegurada o límite de responsabilidad de la entidad de seguros no corresponde al valor de los bienes asegurados, sino a una estimación del valor esperado de las pérdidas que podrían producirse en el año o en el periodo de aseguramiento. Siempre que las partes lo hayan pactado de esa manera, sin caer en la figura del infraseguro según el artículo 66 de la Ley Reguladora del Contrato de Seguros, Ley 8956.
+3. Riesgo ubicado en el extranjero: Se refiere a aquellos bienes ubicados en el extranjero.
+b) La entidad debe identificar y clasificar cada uno de los bienes asegurados en las pólizas en vigor de acuerdo al tipo de estructura que tiene el bien asegurado,utilizando para ello los siguientes tipos de bienes:
+Código del bien Bi | Descripción del tipo de bien asegurado
+B1 | Casas o edificios de 1 a 3 pisos
+B2 | Casas o edificios de más de tres pisos
+B3 | Estructuras verticales como torres o antenas
+B4 | Puentes
+B5 | Carreteras
+B6 | Otros riesgos de estructura poco vulnerable como estadios, presas, diques.
+B7 | Otros riesgos considerados de estructura muy vulnerable.
+B8 | Riesgos ubicados en el extranjero de seguro directo o reaseguro aceptado
+B9 | Riesgos ubicados en territorio nacional en los que no se identificó su ubicación o sus características estructurales.
+Los bienes a ser clasificados en la categoría B7, deben ser todos aquellos que conforme a los criterios de análisis y selección del riesgo de la entidad de seguros, se identifique que tienen características de alta vulnerabilidad a sufrir daños relevantes en casos de terremoto o erupción volcánica. Aun cuando se trate de edificios, casas u otro bien que pueda ser clasificado en alguna de las otras categorías, si en el mismo se identifican características que lo hacen muy vulnerable debido a deterioro, antigüedad, irregularidad del terreno u otra característica similar, entonces debe clasificarse en esta categoría B7. De forma similar, deben tratarse aquellos bienes a clasificar en la categoría B6. En ambos casos, debe guardarse un expediente del análisis que se haya realizado de las características del bien, que justifique el haber clasificado el bien en las referidas categorías.
+c) La entidad debe clasificar los bienes de las pólizas en vigor, de acuerdo con las zonas sísmicas del Código Sísmico de Costa Rica, identificando las sumas aseguradas de las pólizas, de aquellos bienes que se ubiquen en cada una de las referidas zonas sísmicas (z). Las zonas sísmicas vigentes serán comunicadas por el Superintendente mediante los lineamientos generales de este Reglamento.
+d) Una vez clasificados los bienes asegurados de acuerdo a su estructura (Bi) y la zona (z) donde se ubican, se deben identificar los factores con que se calcula el PML de los riesgos expuestos en dicha zona (FPML, Bi, z), los cuales son los que se indican en la tabla siguiente:
+Zona (z) | Factores de PML (𝑭𝑷��,��,𝒛)
+B1 | B2 | B3 | B4 | B5 | B6 | B7 | B8 | B9
+II | 0,028 | 0,03 | 0,04 | 0,05 | 0,01 | 0,01 | 0,06 | 0,03 | 0,08
+III | 0,03 | 0,05 | 0,08 | 0,08 | 0,01 | 0,01 | 0,08 | 0,03 | 0,08
+IV | 0,038 | 0,08 | 0,10 | 0,10 | 0,01 | 0,01 | 0,10 | 0,03 | 0,08
+e) Se calcula el PML bruto de la cobertura de daños materiales de una determinada póliza que cubre un bien Bi, ubicado en una zona z (PML b, DM, Bi, z), como el producto del factor F Pml, bI, z por la suma asegurada bruta de la póliza (SAB, dm, Bi, z), es decir:
+[imagen]
+En el caso de la cobertura de contenidos, la pérdida máxima probable se calcula como el 50% del factor (FPml, Bi,z) por la suma asegurada de la cobertura de contenidos (SAcont,Bi,z).
+[imagen]
+En el caso de pérdidas consecuenciales o de beneficios, la pérdida máxima probable se calcula multiplicando el 25% del factor (FPML, Bi, z) por la suma asegurada de la cobertura de pérdidas consecuenciales o de beneficios (SApb, Bi,z).
+La suma asegurada de las coberturas deberá ser neta de deducible y coaseguro.
+[imagen]
+La suma asegurada de las coberturas deberá ser neta de deducible y coaseguro. Cuando en una póliza no se conozca el monto de la suma asegurada de las coberturas de contenidos o de pérdidas consecuenciales, entonces para efectos de calcular el PML de esas coberturas, mientras se regulariza la situación, la suma asegurada de contenidos se supondrá como el 50% de la suma asegurada de daños materiales y en el caso de pérdidas consecuenciales se supondrá como el 25% dela suma asegurada de daños materiales.
+En el caso de seguros que se contraten a primera pérdida, el PML bruto de dichas pólizas es el 100% de la suma asegurada para todos los efectos.
+f) El PML retenido (PMLR) se calcula de la siguiente forma:
+1. Para cada póliza k, el PML retenido del riesgo de daños materiales cubiertos por contratos de reaseguro proporcional (PML Rpr, dm), se calcula multiplicando el PML bruto del riesgo de daños materiales obtenido conforme al inciso d) de la presente sección IV, por el factor de retención que corresponda a contratos de reaseguro proporcional (FR), entendiendo que el factor de retención es la proporción que resulta de dividir la prima retenida
+PR) entre la prima total de la póliza de que se trate (PT).
+[imagen]
+El cálculo del PML retenido para las coberturas de contenidos y pérdidas consecuenciales o de beneficios se calcula análogamente como:
+[imagen]
+Cuando no se tenga contrato de reaseguro proporcional, se entenderá que el PML será el que se obtenga considerando la suma asegurada bruta sin efecto de reaseguro, para ese efecto:
+FR = 1
+2. Se calcula el PML retenido de riesgos cubiertos por contratos de reaseguro no proporcional (PMLRXL, K), para lo cual, cuando una póliza k tenga una cobertura específica de reaseguro de exceso de pérdida, la pérdida máxima probable a retención de dicha póliza k será el monto correspondiente a la diferencia positiva que exista entre el PMLRpr, k de dicha póliza, calculado conforme al párrafo anterior y el monto de la parte cubierta (PC XL, k) por la citada cobertura de reaseguro no proporcional de dicha póliza.
+[imagen]
+Prior (XL) es la prioridad del contrato de reaseguro XL de la póliza de que se trate, entendiendo como prioridad la cantidad que queda a cargo de la entidad aseguradora cedente.
+C XL, k es el monto de la cobertura del contrato XL de la póliza de que se trate, entendiendo como cobertura, el monto máximo de pérdida que le correspondería cubrir al reasegurador de acuerdo a lo previsto en el contrato, sin deducir la prioridad.
+En caso de que sobre la misma póliza se tenga más de una cobertura de reaseguro no proporcional de exceso de pérdida, entonces la pérdida máxima probable a retención de la póliza k será el monto correspondiente a la diferencia positiva que exista entre el PML Rpr, k de dicha póliza, y el monto de las partes cubiertas por las citadas coberturas de reaseguro no proporcional de dicha póliza, es decir:
+[imagen]
+[imagen] se refiere a la suma de los montos de las partes cubiertas por las coberturas de exceso de pérdida que tenga la póliza.
+Para este efecto el PML Rpr, k indicado en la fórmula anterior, se refiere al monto del PML obtenido para daños materiales, o alguna de las otras coberturas, en caso de que la cobertura de reaseguro cubra únicamente las pérdidas provenientes de una de las coberturas de la póliza, o será la suma de los PML de las coberturas de la póliza (PML Rpr, dm + PML Rpr, con + PML Rpr, pb) cuando la cobertura de reaseguro no proporcional C XL, k cubra la pérdida agregada proveniente de todas las coberturas de dicha póliza.
+Análogamente, cuando se trate de un contrato de reaseguro que cubra la pérdida asociada a un subconjunto de pólizas de la cartera, entonces el PML deberá ser la suma de los PML de cada una de las pólizas que constituyan el subconjunto de pólizas.
+3. Una vez realizado el cálculo indicado en los numerales anteriores, se suma el monto estimado para cada póliza o conjunto de pólizas, obteniendo de esa manera el PML retenido de la cartera total de contratos de reaseguro a nivel póliza (PML RXL). Es decir:
+[imagen]
+4. Finalmente, una vez determinado el monto PML RXL, , en caso de que adicionalmente exista una cobertura de reaseguro a nivel cartera total mediante contratos de exceso de pérdida (XLc), se debe calcular el PML retenido final (PML R) como la diferencia positiva que se obtenga entre, el PMLRXL determinado conforme al punto anterior y la parte cubierta (PC XLC) por la cobertura del contrato de reaseguro (C XLC).
+[imagen]
+Prior (XLc) es la prioridad del contrato global de reaseguro XLc, entendiendo como prioridad la cantidad que queda a cargo de la entidad aseguradora cedente.
+C XLC es la cobertura del contrato de reaseguro XLc global, entendiendo como cobertura, el monto máximo de pérdida que le correspondería cubrir al reasegurador de acuerdo a lo previsto en el contrato, sin deducir la prioridad.
+5. De esta forma, el requerimiento de capital por el riesgo técnico (RC RTec ) debe ser:
+𝑅𝐶𝑅𝑇𝑒𝑐 = 𝑃𝑀𝐿𝑅
+IV. Para efectos de lo establecido en la sección I, el factor de diversificación de riesgos Div, debe calcularse conforme al siguiente procedimiento:
+a) Se determina el monto del requerimiento de capital del riesgo técnico de los otros seguros generales que opere la institución (𝑅𝐶𝑅𝑇𝑒𝑐,𝑜𝑡𝑟𝑜𝑠). En caso de que no existan otros seguros generales, se debe entender que el valor del (𝑅𝐶𝑅𝑇𝑒𝑐,𝑜𝑡𝑟𝑜𝑠) será cero.
+Este requerimiento de capital será el calculado en el Anexo RCS-4 de este Reglamento.
+b) Se calcula el cociente entre 𝑅𝐶𝑇𝑒𝑐,𝑜𝑡𝑟𝑜𝑠 y 𝑅𝐶𝑅𝑇𝑒𝑐,, éste último calculado conforme a la sección III de este anexo.
+c) Se calcula el porcentaje de diversificación (Div), como el mínimo entre 0,1 y lo que resulte de multiplicar el valor del factor obtenido conforme al inciso b), multiplicado por el 0,1.
+[imagen]
+(Así reformado el anexo anterior mediante sesión N° 1363-2017 del 3 de octubre del 2017)
