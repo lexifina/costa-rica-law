@@ -39,7 +39,8 @@ c.- En el caso de que la tasa de interés técnico para el cálculo de primas qu
 d.- Para el cálculo de la provisión matemática, se deberá utilizar la tasa de interés regulatoria establecida por la Superintendencia. Si la rentabilidad obtenida de las inversiones asociadas a la provisión matemática en un periodo fuera inferior a la tasa de interés regulatoria, esta provisión se calculará aplicando un tipo de interés igual a la rentabilidad realmente obtenida.
 1.6.- Procedimientos y fundamentos de la prima de riesgo.
 Se indicarán los procedimientos, fórmulas y parámetros con los que se calculará la prima de riesgo y el recargo de seguridad, en su caso. Se entenderá por prima de riesgo aquella estimada para obtener los ingresos suficientes para afrontar los egresos necesarios para el pago de siniestros o rentas convenidas contractualmente. Deberá aportarse lo siguiente:
-a.- Fórmulas de primas de riesgo: Se deberá indicar en forma precisa la fórmula o procedimiento con que se calculará la prima de riesgo, así como la definición, el valor y la forma de cálculo de los parámetros que formen parte de dichas fórmulas o procedimientos.
+a. Fórmulas de primas de riesgo: Se deberá indicar en forma precisa la fórmula o procedimiento con que se calculará la prima de riesgo, así como la definición, el valor y la forma de cálculo de los parámetros que formen parte de dichas fórmulas o procedimientos. En el caso de los seguros con coberturas de terremoto y erupción volcánica, las primas y las sumas aseguradas correspondientes a estos riesgos, deben ser independientes de las demás coberturas que, en su caso, contenga el producto de que se trate.
+(Así reformado el inciso anterior mediante sesión N° 1363 del 3 de octubre de 2017)
 b.- Recargo de seguridad: En el caso de que la entidad considere necesario incluir en la prima de riesgo un recargo de seguridad, a efecto de incorporar las posibles desviaciones desfavorables de siniestralidad, se deberá indicar la fórmula o procedimiento con que se calculará dicho recargo. Adicionalmente, la entidad deberá solicitar autorización a la Superintendencia para constituir la reserva niveladora correspondiente, de conformidad con lo establecido en el Plan de Cuentas de las entidades aseguradoras. En la solicitud de autorización la entidad deberá explicar la metodología a utilizar para la constitución de dicha reserva, así como los mecanismos y situaciones en las que se aplicará ésta.
 c.- Deducibles, coaseguros y copagos: Deberá indicarse, en su caso, las fórmulas de cálculo o el valor de los deducibles, coaseguros o copagos que se aplicarán, así como la forma en que dichos deducibles y coaseguros se reflejarán en el cálculo de la prima de riesgo.
 d.- Recargos y descuentos basados en el riesgo: Deberá indicarse y justificarse cualquier recargo o descuento que se pretenda realizar como parte de la prima de riesgo, con base en el aumento o disminución del valor esperado del riesgo, como consecuencia de una determinada circunstancia.
@@ -100,7 +101,8 @@ g.- Obligaciones del Tomador, Asegurado y Beneficiario según corresponda. Debe 
 h.- Prima, aspectos relacionados con la prima, forma, periodicidad y lugar de pago.
 i.- Para seguros personales debe indicarse la forma en que se ajustará la prima en las prórrogas y en caso que condiciones individuales del asegurado puedan afectar esos ajustes, debe establecerse cuáles son esas condiciones, cómo se verificarán y en qué proporción afectan el ajuste de la prima.
 j.- Recargos y descuentos posibles así como criterios y parámetros de aplicación.
-k.- Procedimiento de notificación y atención de reclamos por siniestros. Indicación de las gestiones, plazos, instancias y centros de atención aplicables al procedimiento, así como los requisitos necesarios que podrán detallarse en documentación contractual independiente.
+k.- Procedimiento de notificación y atención de reclamos por siniestros. Indicación de las gestiones, plazos, instancias y centros de atención aplicables al procedimiento, así como los requisitos necesarios que podrán detallarse en documentación contractual independiente. En caso de que el seguro incluya coberturas de riesgos catastróficos, deberá indicarse un procedimiento diferenciado de atención de reclamos para situaciones de declaración de emergencia nacional que incluya al menos algún ajuste como los siguientes: i) Reducción de plazos en la respuesta del reclamo y su indemnización, ii) Adelanto de un porcentaje de la indemnización en un plazo reducido mientras se determina el monto total de la pérdida, iii) Medios alternativos para la demostración del siniestro y su magnitud, por ejemplo videos o fotografías, iv) Otros aspectos que tengan como fin agilizar la indemnización que reciba el asegurado.
+(Así reformado el inciso anterior mediante sesión N° 1363 del 3 de octubre de 2017)
 l.- Vigencia y posibilidad de prórrogas o renovaciones.
 m.- Condiciones varias. Se incluirán aquellas condiciones que no tengan conexidad con el resto de los apartados.
 n.- Instancias de solución de controversias.
@@ -111,7 +113,17 @@ a.- Encabezado.
 b.- Lugar y fecha en que se completa.
 c.- Cuando se trate de una póliza colectiva, su número y tomador.
 d.- Datos del solicitante.
-e.- Datos del objeto o interés que se solicita asegurar.
+e.- Datos del objeto o interés que se solicita asegurar. En el caso de los seguros con coberturas de terremoto y erupción volcánica, es obligatorio incluir los espacios correspondientes para completar al menos la siguiente información:
+i. Dirección exacta de la ubicación del bien asegurado en territorio costarricense, incluyendo la georreferenciación del bien.
+ii. País en que se ubica el bien asegurado en caso de reaseguro aceptado.
+iii. Número de pisos del bien asegurado.
+iv. Año aproximado de construcción.
+v. Características constructivas del bien asegurado, tales como tipo de mampostería, tipo de concreto, indicar si existe sobrepeso, si está en una esquina, si ha tenido daños previos y si estos fueron reparados.
+vi. Valor Estimado de los Contenidos (cuando la cobertura los incluya).vii. Descripción de la vulnerabilidad de los contenidos (cuando la cobertura los incluya), conforme a los siguientes criterios:
+• Baja: aplicable a contenidos que por sus características, son poco susceptibles de sufrir un daño significativo en caso de sismo.
+• Regular: aplicable a contenidos donde se considera que sí son susceptibles de llegar a sufrir daños, pero no se trata de objetos frágiles que pueden sufrir un alto grado de destrucción en caso de sismo.
+• Alta: aplicable a contenidos donde, debido a sus características de fragilidad, predominantemente son susceptibles de sufrir un daño significativo en casos de sismo.
+(Así reformado el inciso anterior mediante sesión N° 1363 del 3 de octubre de 2017)
 f.- Aspectos relacionados con el riesgo.
 g.- Designación de beneficiarios cuando proceda.
 h.- Plazo de vigencia solicitado.
