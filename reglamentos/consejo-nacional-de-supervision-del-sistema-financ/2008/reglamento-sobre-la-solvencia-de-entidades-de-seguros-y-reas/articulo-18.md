@@ -9,7 +9,10 @@ b) Pr visión por insuficiencia de prima (Anexo PT-2).
 c) Provisión de seguros personales (Anexo PT-3).
 d) Provisión para siniestros (Anexo PT-4).
 e) Provisión de participación en los beneficios (Anexo PT-5).
-f) Provisiones de seguros en los que el riego de inversión lo asume el tomador (Anexo PT-6).
+f) Provisión de seguros en los que el riesgo de inversión lo asume el tomador (Anexo PT-6).
+(Así reformado el inciso anterior mediante sesión N° 1363 del 3 de octubre de 2017)
+g) Provisión de riesgos catastróficos (Anexo PT-7).
+(Así adicionado el inciso anterior mediante sesión N° 1363 del 3 de octubre de 2017)
 Los parámetros específicos para cada provisión, se establecen en el anexo respectivo y forman parte integral de este reglamento.
 La entidad puede solicitar autorización para constituir otras provisiones o reservas de carácter técnico, a las que serán aplicables las regulaciones recogidas en este título.
 En cualquier caso, las provisiones se computarán en forma bruta, sin descontar reaseguro. En el caso de existir cesión de riesgos en reaseguro se debe reconocer un activo por dicha cesión, cuya metodología de determinación debe ser consistente con la aplicada en la constitución de la respectiva provisión.

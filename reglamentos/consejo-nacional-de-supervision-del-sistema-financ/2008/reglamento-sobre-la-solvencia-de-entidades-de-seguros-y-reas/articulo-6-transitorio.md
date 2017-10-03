@@ -1,0 +1,3 @@
+Transitorio VI. Las entidades que realicen operaciones de seguros y reaseguro aceptado de terremoto y erupción volcánica, deben comenzar a constituir la provisión de riesgos catastróficos de los seguros de terremoto y erupción volcánica, en términos de lo establecido en el Anexo PT-7 de este Reglamento, en un plazo máximo de un año desde la entrada en vigencia de esta modificación.
+El mismo plazo correrá para las entidades que a la entrada de vigencia tuvieren autorización de la Superintendencia para mantener la provisión de riesgos catastróficos para los seguros de terremoto y erupción volcánica.
+(Así adicionado mediante sesión N° 1363-2017 del 3 de octubre del 2017)

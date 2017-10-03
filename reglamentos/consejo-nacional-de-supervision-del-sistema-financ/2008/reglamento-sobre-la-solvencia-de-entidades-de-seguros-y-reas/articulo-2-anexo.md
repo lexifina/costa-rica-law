@@ -109,7 +109,6 @@ Capital en riesgo retenido = monto del capital en riesgo deducido la participaci
 FR= factor de capital regulatorio para cada una de las provisiones técnicas de acuerdo con la tabla contenida en este anexo
 PT = monto bruto de la correspondiente provisión técnica.
 Provisión técnica retenida= monto de la provisión técnica que corresponda deducido la participación del reasegurador en dicha provisión.
-[imagen]
 (Así reformada la tabla anterior en sesión N° 1253 del 17 de mayo de 2016)
 ANEXO RCS-4
 CALCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA
@@ -126,9 +125,12 @@ PT = monto bruto de la provisión técnica, de primas o de siniestros, que corre
 Provisión técnica retenida= monto de la provisión técnica, de primas o siniestros, que corresponda deducido la participación del reasegurador en dicha provisión.
 Ramos | Factor de Capital Regulatorio Provisión para Siniestros | Factor de Capital Regulatorio Provisión para prima no Devengada
 Seguro obligatorio de automóviles | 13,5% | 10%
-Automóviles, incendio y líneas aliadas excepto industrial o comercial, defensa jurídica. | 13,5% | 20,25%
-Incendio y líneas aliadas industrial o comercial, Aviación, vehículos marítimos y ferroviarios, mercancías transportadas, Agrícolas y Pecuarios, otros daños a los bienes. | 16,5% | 24,75%
-Crédito, Caución, Pérdidas pecuniarias, responsabilidad civil y otros no mencionados precedentemente. | 22,5% | 33,75%
+Automóviles, la línea de Hogar del ramo de Incendio y líneas aliadas, y Defensa jurídica. | 13,5% | 20,25%
+Las líneas de Industrial y Comercial del ramo de Incendio y líneas aliadas, Aviación, Vehículos marítimos y ferroviarios, Mercancías transportadas, Agrícolas y pecuarios, y Otros daños a los bienes. | 16,5% | 24,75%
+Crédito, Caución, Pérdidas pecuniarias, | |
+Ramos | Factor de Capital Regulatorio Provisión para Siniestros | Factor de Capital Regulatorio Provisión para prima no Devengada
+Responsabilidad civil y otros no mencionados precedentemente. | 22,5% | 33,75%
+(Así reformado el cuadro anterior mediante sesión N° 1363 del 3 de octubre de 2017)
 ANEXO RCS-5
 CALCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA
 RIESGO DE REASEGURO CEDIDO
@@ -165,13 +167,124 @@ Asimismo, los diferentes sindicatos del Lloyd deben considerarse como un único 
 En caso de producirse un evento de tipo catastrófico que genere en forma excepcional un exceso de participación de un reasegurador en las provisiones técnicas, la entidad podrá solicitar a la SUGESE que suspenda en forma temporal la aplicación de los límites de concentración señalados. La SUGESE podrá autorizar de forma razonada dicha suspensión sujeta a las condiciones que estime pertinentes y por un periodo determinado. En este caso, la Superintendencia debe informar de este evento al CONASSIF.
 La nomenclatura de calificaciones utilizadas en este anexo corresponde a la escala internacional dispuesta por la agencia calificadora de riesgo Standard &Poor’s. La calificación de algún reasegurador por parte de otra agencia internacional debe homologarse a la calificación de Standard & Poor’s según las equivalencias dispuestas en las Tablas de riesgo de contraparte del Anexo RCS-1 de este Reglamento.
 Cuando el reasegurador esté calificado por más de una agencia calificadora, debe utilizarse la calificación que denote el mayor riesgo.
+(Mediante sesión N° 1363 del 3 de octubre de 2017, se acordó reformar el anexo RCS-5 anterior. Al no ser clara la reforma la misma se transcribe a continuación: "El requerimiento de capital por riesgo de reaseguro cedido aplica a todos los seguros, salvo las coberturas de terremoto y erupción volcánica, y corresponde a la suma de los requerimientos de capital por riesgo de crédito del reasegurador y por concentración en un mismo reasegurador, según la siguiente fórmula:
+(.)
+Calificación de Riesgo Internacional | Factor de Capital
+AAA | 2%
+AA | 5%
+A | 7,5%
+BBB | 15%
+BB, inferior a BB o no calificadas | 100%
+Requerimiento de capital por Riesgo de Concentración del Reasegurador
+El requerimiento de capital por concentración del reaseguro, se determina aplicando un factor de capital del 100% sobre el exceso de la participación de un mismo reasegurador, en el monto total de la cuenta "participación del reaseguro en los diferentes tipos de provisiones técnicas" que mantiene la entidad a la fecha de cálculo de acuerdo a la siguiente tabla:")
 ANEXO RCS-6
 CALCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA
 RIESGO CATASTRÓFICO
-El requerimiento de capital por riego catastrófico se calcula, para el ramo de incendio y líneas aliadas, de la siguiente forma:
-[imagen]
+El requerimiento de capital por riesgo catastrófico se calcula para las coberturas catastróficas del ramo de Incendio y líneas aliadas, de la siguiente forma:
+A. Para riesgos diferentes a terremoto y erupción volcánica se utiliza la siguiente fórmula:
+RCScat = [(Kt *FRcat ) − SrXL]
 Donde:
-[imagen] =Requerimiento de capital de riesgo catastrófico.
-[imagen] =Monto de las responsabilidades retenidas y vigentes a la fecha de su determinación, menos deducibles y coaseguro.
-[imagen] =Factor regulatorio = 8%
+RCScat𝑡=Requerimiento de capital de riesgo catastrófico.
+Kt=Monto de las responsabilidades retenidas y vigentes a la fecha de su determinación, menos deducibles y coaseguro.
+FRcat=Factor regulatorio = 8%
 SrXL = Suma reasegurada en los contratos de exceso de pérdida vigentes.
+B. Para los riesgos de temblor y terremoto (en adelante terremoto) y erupción volcánica se utiliza la siguiente metodología:
+I. El requerimiento de capital de solvencia de los seguros que cubran el riesgo de terremoto y erupción volcánica, (RCS t y e ) debe calcularse como la suma del requerimiento de capital por el riesgo técnico (RCRTec), el requerimiento de capital por el riesgo de contraparte por calidad de reaseguro (RCRCal) y el requerimiento de capital por el riesgo de concentración de reaseguro (RCRCom), disminuida dicha suma porcentualmente en una proporción (Div), y restando de dicha suma, el monto que tenga la provisión de riesgos catastróficos de terremoto y erupción volcánica (PRCAT), al momento del cálculo, es decir:
+RCS Ty E = (RCRTec + RC RCal + RC RCom ) ∗ (1 − Div) –PRCAT
+Div: es el factor de diversificación por la existencia de otros ramos o tipos de seguros.
+En caso de que el resultado de este cálculo sea negativo, para efectos regulatorios, el requerimiento de capital de solvencia de los seguros que cubran el riesgo de terremoto y erupción volcánica, (RCS T y E ), debe considerarse como cero.
+Los tipos de seguros que deben considerarse para efectos del cálculo son los siguientes:
+a) Seguros que cubran, en forma directa o como beneficio adicional, las pérdidas materiales o consecuenciales de bienes inmuebles y sus contenidos, causadas por la ocurrencia de eventos sísmicos de temblor y terremoto.
+b) Seguros que cubran, en forma directa o como beneficio adicional, pérdidas materiales o consecuenciales en bienes inmuebles y sus contenidos, causadas en forma directa por erupción volcánica.
+c) Contratos de reaseguro aceptado que cubran pérdidas materiales o consecuenciales, derivadas de pólizas de seguros de terremoto y erupción volcánica.
+Todo lo anterior no aplica cuando se trate de seguros distintos a aquellos que tienen por objeto cubrir los daños materiales que puedan sufrir bienes inmuebles, tales como casas o edificios y sus contenidos, carreteras, puentes, presas, estadios y demás estructuras similares que constituyen bienes inmuebles, que son susceptibles de sufrir daños por terremoto y erupción volcánica.
+II. Para efectos de lo dispuesto en la sección I anterior, cada uno de los referidos requerimientos debe calcularse como se indica a continuación:
+a) Requerimiento de capital por el riesgo técnico (RC RTec): debe calcularse como la pérdida máxima probable calculada a retención (PMLR), considerando las pólizas en vigor al cierre de cada trimestre, de los seguros de terremoto y erupción volcánica. Para este efecto, la pérdida máxima probable se debe calcular conforme a lo indicado en las secciones III y IV del presente anexo.
+b) Requerimiento de capital por el riesgo de contraparte por calidad de reaseguro (RC RCal): debe calcularse mediante el siguiente procedimiento:
+1. Se calcula el PML Bruto (PMLB), sin considerar el efecto de reaseguro, mediante el procedimiento indicado en las secciones III y IV.
+2. Se calcula el PML Retenido (PMLR), considerando el efecto de reaseguro, mediante el procedimiento indicado en las secciones III y IV.
+3. Se calcula el PML Cedido Total (PML c), como la diferencia entre el PML Bruto (PMLB) y el PML Retenido (PMLR) calculados mediante el procedimiento indicado en las secciones III y IV.
+PMLC = PMLB – PMLR
+4. Se calcula la parte de PML Cedido a una determinada entidad reaseguradora i (PML C,I), como la que resulte de multiplicar el PML cedido total (PMLC), indicado en el numeral 3 de la presente sección, por el porcentaje que represente la prima total cedida a dicha entidad reaseguradora i, (FPC, I), respecto de la prima total cedida a todos los reaseguradores.
+Para estos efectos, el porcentaje de prima total cedida que debe aplicarse, es el que resulte de dividir, al cierre del trimestre de que se trate, la prima de las pólizas en vigor, cedidas a la entidad reaseguradora i (PCI), entre la prima cedida total de las pólizas en vigor al cierre del trimestre de que se trate (PCT), considerando para la determinación de la prima cedida, tanto contratos de reaseguro proporcionales, como contratos de reaseguro no proporcionales.
+5. Se calcula el requerimiento por riesgo de contraparte proveniente de una determinada entidad reaseguradora i (RCRCAL, I), con que la entidad de seguros tenga riesgos cedidos de las pólizas en vigor, como el monto que resulta de multiplicar la probabilidad ponderada de incumplimiento de dicha entidad reaseguradora Pr (ri), por el monto de PML cedido a dicha entidad reaseguradora i (PML C,I,) obtenido conforme a lo indicado en el numeral 4 anterior.
+Para estos efectos, la probabilidad ponderada de incumplimiento de cada entidad reaseguradora i, es la que le corresponde de acuerdo con la calificación última que tenga dicha entidad reaseguradora, dada por una calificadora internacional, conforme a lo que se indica en la siguiente tabla.
+Calificación de riesgo internacional | Probabilidad Ponderada de incumplimiento Pr(ri)
+AAA | 0,45%
+AA | 1,01%
+A | 2,29%
+BBB | 5,13%
+BB, inferior a BB o no calificadas | 100%
+La nomenclatura de calificaciones utilizadas en este anexo corresponde a la escala internacional dispuesta por la agencia calificadora de riesgo Standard &Poor’s. La calificación de algún reasegurador por parte de otra agencia internacional debe homologarse a la calificación de Standard & Poor’s según las equivalencias dispuestas en las tablas de riesgo de contraparte del Anexo RCS-1 de este Reglamento.
+6. Se calcula el requerimiento por el riesgo de contraparte por calidad de reaseguro (RC RCAL), como la suma de los requerimientos calculados para cada una de las entidades reaseguradoras i, que tengan participación de primas cedidas de las pólizas en vigor al cierre del trimestre de que se trate, conforme a lo indicado en el numeral 5 del presente inciso b):
+∀ i: significa que debe sumarse para todas las entidades reaseguradoras i.
+c) Requerimiento de capital por el riesgo de concentración de reaseguro (RC RCOM): se calcula conforme al siguiente procedimiento:
+1. Se calcula el requerimiento por el riesgo de concentración de reaseguro cedido a una determinada reaseguradora i (RCRCON, I), con calificación j, con la que se tenga un grado de concentración k, como el monto que se obtiene de multiplicar el respectivo factor de requerimiento por concentración de reaseguro (FRCON, j, k), que le corresponde a la entidad de acuerdo a su índice de concentración de reaseguro cedido (F Pc, I) y de acuerdo a la calificación j de la entidad reaseguradora, aplicando los valores indicados en la siguiente tabla, por el monto de la diferencia entre el PML cedido a dicha entidad reaseguradora (PML C, I) y requerimiento por calidad de reaseguro correspondiente (RC RCAL, I).
+Factores de requerimiento por concentración de reaseguro para el cálculo del RCS (F RCON, J,K)
+Calificación de la entidad reaseguradora | Concentración 𝑭𝑷𝑪,𝒊 de más de 10% y hasta 20% | Concentración 𝑭𝑷𝑪,𝒊 de más de 20% y hasta 40% | Concentración 𝑭𝑷𝑪,𝒊 de más de 40% y hasta 60% | Concentración 𝑭𝑷𝑪,𝒊 de más de 60% y hasta 80% | Concentración 𝑭𝑷𝑪,𝒊 de más de 80% y hasta 100%
+AAA | 5% | 10% | 15% | 20% | 30%
+AA | 7% | 12% | 17% | 22% | 31%
+A | 10% | 15% | 19% | 24% | 34%
+BBB | 15% | 19% | 24% | 28% | 37%
+2. Una vez obtenido el requerimiento por el riesgo de concentración de reaseguro cedido de cada una de las reaseguradoras i (RC RCON, i), el requerimiento de capital por el riesgo de concentración de reaseguro (RC RCON), se calcula como la suma de las cantidades (RC RCON ,i) determinadas conforme al numeral 1 del presente inciso c), para cada una de las entidades reaseguradoras i con que la aseguradora tenga contratos vigentes de reaseguro cedido.
+∀ i: significa que debe sumarse lo obtenido para cada una de las entidades reaseguradoras i que participen en contratos de reaseguro cedido para las pólizas en vigor al momento del cálculo.
+3. Para estos efectos, el índice de concentración de reaseguro cedido a una determinada reaseguradora i (FPC, I), debe calcularse como el porcentaje que resulte de dividir la prima total cedida a esa entidad reaseguradora i, de los seguros de terremoto y erupción volcánica (PC i), entre la prima cedida total de los seguros de terremoto y erupción volcánica (PCT), es decir:
+La prima cedida a una determinada reaseguradora i, (PC, i) debe ser la suma de las primas cedidas a dicha reaseguradora, de cada una de las pólizas en vigor al momento del cálculo, considerando tanto contratos de reaseguro proporcional como no proporcional.
+Asimismo, la prima cedida total (PCT) en los seguros de terremoto y erupción volcánica, es la suma de las primas cedidas a todas las entidades reaseguradoras i, que participan en dichos tipos de seguros, considerando como primas cedidas, tanto las correspondientes a contratos proporcionales como el costo correspondiente a los contratos de reaseguro no proporcional.
+Para efectos de lo indicado en esta sección, cuando un reasegurador esté calificado por más de una agencia calificadora, debe utilizarse la calificación que denote el mayor riesgo.
+III. Para efectos de calcular el RCS T y E conforme a los procedimientos indicados en los incisos a), b) y c) de la sección II anterior, la pérdida máxima probable bruta y retenida (PMLR), que se utilizan como base para aplicar los referidos procedimientos, deben calcularse conforme a lo siguiente:
+a) La entidad debe identificar el tipo de aseguramiento de cada uno de los bienes asegurados en las pólizas en vigor, de conformidad con lo siguiente:
+1. Aseguramiento estándar: Se refiere a los bienes que se ubican en territorio nacional y que no son asegurados a primera pérdida, conforme a lo que se describe en el párrafo siguiente.
+2. Aseguramiento a primera pérdida: Se refiere a los bienes para los cuales en el contrato de seguro se establece que la suma asegurada o límite de responsabilidad de la entidad de seguros no corresponde al valor de los bienes asegurados, sino a una estimación del valor esperado de las pérdidas que podrían producirse en el año o en el periodo de aseguramiento. Siempre que las partes lo hayan pactado de esa manera, sin caer en la figura del infraseguro según el artículo 66 de la Ley Reguladora del Contrato de Seguros, Ley 8956.
+3. Riesgo ubicado en el extranjero: Se refiere a aquellos bienes ubicados en el extranjero.
+b) La entidad debe identificar y clasificar cada uno de los bienes asegurados en las pólizas en vigor de acuerdo al tipo de estructura que tiene el bien asegurado,utilizando para ello los siguientes tipos de bienes:
+Código del bien Bi | Descripción del tipo de bien asegurado
+B1 | Casas o edificios de 1 a 3 pisos
+B2 | Casas o edificios de más de tres pisos
+B3 | Estructuras verticales como torres o antenas
+B4 | Puentes
+B5 | Carreteras
+B6 | Otros riesgos de estructura poco vulnerable como estadios, presas, diques.
+B7 | Otros riesgos considerados de estructura muy vulnerable.
+B8 | Riesgos ubicados en el extranjero de seguro directo o reaseguro aceptado
+B9 | Riesgos ubicados en territorio nacional en los que no se identificó su ubicación o sus características estructurales.
+Los bienes a ser clasificados en la categoría B7, deben ser todos aquellos que conforme a los criterios de análisis y selección del riesgo de la entidad de seguros, se identifique que tienen características de alta vulnerabilidad a sufrir daños relevantes en casos de terremoto o erupción volcánica. Aun cuando se trate de edificios, casas u otro bien que pueda ser clasificado en alguna de las otras categorías, si en el mismo se identifican características que lo hacen muy vulnerable debido a deterioro, antigüedad, irregularidad del terreno u otra característica similar, entonces debe clasificarse en esta categoría B7. De forma similar, deben tratarse aquellos bienes a clasificar en la categoría B6. En ambos casos, debe guardarse un expediente del análisis que se haya realizado de las características del bien, que justifique el haber clasificado el bien en las referidas categorías.
+c) La entidad debe clasificar los bienes de las pólizas en vigor, de acuerdo con las zonas sísmicas del Código Sísmico de Costa Rica, identificando las sumas aseguradas de las pólizas, de aquellos bienes que se ubiquen en cada una de las referidas zonas sísmicas (z). Las zonas sísmicas vigentes serán comunicadas por el Superintendente mediante los lineamientos generales de este Reglamento.
+d) Una vez clasificados los bienes asegurados de acuerdo a su estructura (Bi) y la zona (z) donde se ubican, se deben identificar los factores con que se calcula el PML de los riesgos expuestos en dicha zona (FPML, Bi, z), los cuales son los que se indican en la tabla siguiente:
+Zona (z) | Factores de PML (𝑭𝑷��,��,𝒛)
+B1 | B2 | B3 | B4 | B5 | B6 | B7 | B8 | B9
+II | 0,028 | 0,03 | 0,04 | 0,05 | 0,01 | 0,01 | 0,06 | 0,03 | 0,08
+III | 0,03 | 0,05 | 0,08 | 0,08 | 0,01 | 0,01 | 0,08 | 0,03 | 0,08
+IV | 0,038 | 0,08 | 0,10 | 0,10 | 0,01 | 0,01 | 0,10 | 0,03 | 0,08
+e) Se calcula el PML bruto de la cobertura de daños materiales de una determinada póliza que cubre un bien Bi, ubicado en una zona z (PML b, DM, Bi, z), como el producto del factor F Pml, bI, z por la suma asegurada bruta de la póliza (SAB, dm, Bi, z), es decir:
+En el caso de la cobertura de contenidos, la pérdida máxima probable se calcula como el 50% del factor (FPml, Bi,z) por la suma asegurada de la cobertura de contenidos (SAcont,Bi,z).
+En el caso de pérdidas consecuenciales o de beneficios, la pérdida máxima probable se calcula multiplicando el 25% del factor (FPML, Bi, z) por la suma asegurada de la cobertura de pérdidas consecuenciales o de beneficios (SApb, Bi,z).
+La suma asegurada de las coberturas deberá ser neta de deducible y coaseguro.
+La suma asegurada de las coberturas deberá ser neta de deducible y coaseguro. Cuando en una póliza no se conozca el monto de la suma asegurada de las coberturas de contenidos o de pérdidas consecuenciales, entonces para efectos de calcular el PML de esas coberturas, mientras se regulariza la situación, la suma asegurada de contenidos se supondrá como el 50% de la suma asegurada de daños materiales y en el caso de pérdidas consecuenciales se supondrá como el 25% dela suma asegurada de daños materiales.
+En el caso de seguros que se contraten a primera pérdida, el PML bruto de dichas pólizas es el 100% de la suma asegurada para todos los efectos.
+f) El PML retenido (PMLR) se calcula de la siguiente forma:
+1. Para cada póliza k, el PML retenido del riesgo de daños materiales cubiertos por contratos de reaseguro proporcional (PML Rpr, dm), se calcula multiplicando el PML bruto del riesgo de daños materiales obtenido conforme al inciso d) de la presente sección IV, por el factor de retención que corresponda a contratos de reaseguro proporcional (FR), entendiendo que el factor de retención es la proporción que resulta de dividir la prima retenida
+PR) entre la prima total de la póliza de que se trate (PT).
+El cálculo del PML retenido para las coberturas de contenidos y pérdidas consecuenciales o de beneficios se calcula análogamente como:
+Cuando no se tenga contrato de reaseguro proporcional, se entenderá que el PML será el que se obtenga considerando la suma asegurada bruta sin efecto de reaseguro, para ese efecto:
+FR = 1
+2. Se calcula el PML retenido de riesgos cubiertos por contratos de reaseguro no proporcional (PMLRXL, K), para lo cual, cuando una póliza k tenga una cobertura específica de reaseguro de exceso de pérdida, la pérdida máxima probable a retención de dicha póliza k será el monto correspondiente a la diferencia positiva que exista entre el PMLRpr, k de dicha póliza, calculado conforme al párrafo anterior y el monto de la parte cubierta (PC XL, k) por la citada cobertura de reaseguro no proporcional de dicha póliza.
+Prior (XL) es la prioridad del contrato de reaseguro XL de la póliza de que se trate, entendiendo como prioridad la cantidad que queda a cargo de la entidad aseguradora cedente.
+C XL, k es el monto de la cobertura del contrato XL de la póliza de que se trate, entendiendo como cobertura, el monto máximo de pérdida que le correspondería cubrir al reasegurador de acuerdo a lo previsto en el contrato, sin deducir la prioridad.
+En caso de que sobre la misma póliza se tenga más de una cobertura de reaseguro no proporcional de exceso de pérdida, entonces la pérdida máxima probable a retención de la póliza k será el monto correspondiente a la diferencia positiva que exista entre el PML Rpr, k de dicha póliza, y el monto de las partes cubiertas por las citadas coberturas de reaseguro no proporcional de dicha póliza, es decir:
+se refiere a la suma de los montos de las partes cubiertas por las coberturas de exceso de pérdida que tenga la póliza.
+Para este efecto el PML Rpr, k indicado en la fórmula anterior, se refiere al monto del PML obtenido para daños materiales, o alguna de las otras coberturas, en caso de que la cobertura de reaseguro cubra únicamente las pérdidas provenientes de una de las coberturas de la póliza, o será la suma de los PML de las coberturas de la póliza (PML Rpr, dm + PML Rpr, con + PML Rpr, pb) cuando la cobertura de reaseguro no proporcional C XL, k cubra la pérdida agregada proveniente de todas las coberturas de dicha póliza.
+Análogamente, cuando se trate de un contrato de reaseguro que cubra la pérdida asociada a un subconjunto de pólizas de la cartera, entonces el PML deberá ser la suma de los PML de cada una de las pólizas que constituyan el subconjunto de pólizas.
+3. Una vez realizado el cálculo indicado en los numerales anteriores, se suma el monto estimado para cada póliza o conjunto de pólizas, obteniendo de esa manera el PML retenido de la cartera total de contratos de reaseguro a nivel póliza (PML RXL). Es decir:
+4. Finalmente, una vez determinado el monto PML RXL, , en caso de que adicionalmente exista una cobertura de reaseguro a nivel cartera total mediante contratos de exceso de pérdida (XLc), se debe calcular el PML retenido final (PML R) como la diferencia positiva que se obtenga entre, el PMLRXL determinado conforme al punto anterior y la parte cubierta (PC XLC) por la cobertura del contrato de reaseguro (C XLC).
+Prior (XLc) es la prioridad del contrato global de reaseguro XLc, entendiendo como prioridad la cantidad que queda a cargo de la entidad aseguradora cedente.
+C XLC es la cobertura del contrato de reaseguro XLc global, entendiendo como cobertura, el monto máximo de pérdida que le correspondería cubrir al reasegurador de acuerdo a lo previsto en el contrato, sin deducir la prioridad.
+5. De esta forma, el requerimiento de capital por el riesgo técnico (RC RTec ) debe ser:
+𝑅𝐶𝑅𝑇𝑒𝑐 = 𝑃𝑀𝐿𝑅
+IV. Para efectos de lo establecido en la sección I, el factor de diversificación de riesgos Div, debe calcularse conforme al siguiente procedimiento:
+a) Se determina el monto del requerimiento de capital del riesgo técnico de los otros seguros generales que opere la institución (𝑅𝐶𝑅𝑇𝑒𝑐,𝑜𝑡𝑟𝑜𝑠). En caso de que no existan otros seguros generales, se debe entender que el valor del (𝑅𝐶𝑅𝑇𝑒𝑐,𝑜𝑡𝑟𝑜𝑠) será cero.
+Este requerimiento de capital será el calculado en el Anexo RCS-4 de este Reglamento.
+b) Se calcula el cociente entre 𝑅𝐶𝑇𝑒𝑐,𝑜𝑡𝑟𝑜𝑠 y 𝑅𝐶𝑅𝑇𝑒𝑐,, éste último calculado conforme a la sección III de este anexo.
+c) Se calcula el porcentaje de diversificación (Div), como el mínimo entre 0,1 y lo que resulte de multiplicar el valor del factor obtenido conforme al inciso b), multiplicado por el 0,1.
+[imagen]
+(Así reformado el ANEXO RCS-6 anterior mediante sesión N° 1363-2017 del 3 de octubre del 2017)

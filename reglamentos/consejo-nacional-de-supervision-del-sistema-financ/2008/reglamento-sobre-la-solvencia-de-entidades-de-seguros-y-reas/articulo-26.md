@@ -7,7 +7,8 @@ Las inversiones deben efectuarse de conformidad con los siguientes lineamientos:
 b) Custodia de valores
 Los valores susceptibles de ser custodiados deben mantenerse en una institución de custodia. La entidad debe autorizar el acceso directo de la Superintendencia , con propósitos de supervisión, a sus valores y cuentas en el custodio.
 Los custodios deben cumplir con los siguientes requisitos:
-a) En caso de custodios nacionales, estar autorizados por la Superintendencia General de Valores como custodios bancarios tipo “C”.
+a) En caso de custodios nacionales, ser bancos inscritos en el Registro Nacional de Valores e Intermediarios como custodios.
+(Así reformado el inciso anterior mediante sesión N° 1363 del 3 de octubre de 2017)
 b) En caso de custodios internacionales:
 i. Estar debidamente autorizado para ejercer la actividad en su país de domicilio.
 ii. Contar con quince años de experiencia en la prestación de servicios de custodia.
