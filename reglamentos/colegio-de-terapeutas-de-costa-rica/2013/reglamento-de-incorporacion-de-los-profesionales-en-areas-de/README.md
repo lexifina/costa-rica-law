@@ -14,3 +14,4 @@ Reglamento de Incorporación de los Profesionales en áreas de Terapia Física, 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-03 | la propia norma |
+| 2 | 2017-10-03 | Reglamento 0 (2017-10-03) |
