@@ -1,0 +1,3 @@
+Artículo 258.- Plazo para la entrega del bien o la prestación del servicio. El comerciante deberá respetar el plazo para la entrega del bien o la prestación del servicio, de no ser así, se entenderá que ha incumplido el contrato y deberá devolverle al consumidor la suma de dinero pagada, sin ninguna deducción.
+En caso de no informar dicho plazo, se entenderá que el contrato se cumplirá dentro de las veinticuatro horas siguientes, de conformidad con lo dispuesto en el artículo 465 del Código de Comercio.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 40703 del 3 de octubre de 2017)

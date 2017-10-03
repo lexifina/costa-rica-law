@@ -1,0 +1,2 @@
+Artículo 260.- Evaluaciones del Consumidor. El comerciante debe establecer un mecanismo gratuito y transparente para recibir y publicar las evaluaciones, tanto positivas como negativas, que los consumidores realicen acerca de la calidad de los bienes y servicios que han adquirido del comerciante. Este mecanismo deberá ser de fácil acceso y utilización para el consumidor; el cual deberá ser informado de su existencia.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 40703 del 3 de octubre de 2017)

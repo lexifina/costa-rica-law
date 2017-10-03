@@ -1,2 +1,2 @@
-Artículo 248.—Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta.
-Dado en la Presidencia de la República.—San José, a los ocho días del mes de julio del dos mil trece.
+Artículo 248.-Pertenencia a programas de autorregulación o buenas prácticas. Cuando un comerciante hace pública su pertenencia a un programa de autorregulación, asociación empresarial, organización de resolución de controversias u otro organismo, debe proporcionar información suficiente al consumidor para que este pueda contactar directamente al organismo. El comerciante debe brindar a los consumidores métodos de fácil uso para verificar esta membresía, acceder a los códigos y prácticas de la organización, y utilizar cualquier mecanismo de resolución de controversias que esta ofrezca.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 40703 del 3 de octubre de 2017)

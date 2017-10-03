@@ -1,0 +1,3 @@
+Artículo 259. -Reclamaciones del consumidor. El comerciante debe establecer un mecanismo gratuito, transparente y eficaz para recibir las quejas y reclamaciones de los consumidores. Para tales efectos, deberá utilizarse el mismo medio empleado de comercio electrónico empleado para completar la transacción.
+Dicho mecanismo deberá ser de fácil acceso y uso por parte del consumidor, y el comerciante deberá informar además los plazos de respuesta, que deberán ser razonables según el caso que se trate, así como los medios o las alternativas con que cuenta el consumidor para dar seguimiento a su reclamación.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 40703 del 3 de octubre de 2017)

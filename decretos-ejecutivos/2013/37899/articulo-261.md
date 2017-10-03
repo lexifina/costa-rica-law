@@ -1,0 +1,3 @@
+Artículo 261. Reglas para realizar la publicidad y el mercadeo. La publicidad y el mercadeo que efectúe el comerciante deben ser claramente identificables como tales. Asimismo, deben detallar la empresa en cuyo nombre se realizan, cuando el no hacerlo pueda resultar engañoso.
+El comerciante debe garantizar que cualquier publicidad o mercadeo de bienes o servicios sea consistente con sus características, acceso y uso reales. Asimismo, deberá informar el precio final del bien o servicio, de manera que no se tergiverse el costo total incluidos todos los rubros que lo componen, de conformidad con lo establecido por la Ley 74 72 y el presente reglamento.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 40703 del 3 de octubre de 2017)
