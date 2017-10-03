@@ -1,0 +1,2 @@
+Artículo 44.- Los acuerdos del Consejo Rector serán aprobados por mayoría simple de las personas miembros presentes.
+Para efectos de constancia en las actas, la persona en el cargo de la presidencia, o quien presida, leerá o le dará la palabra a quien considere, para que lea el acuerdo que se someterá a votación y para lo cual podrá realizar una lectura en lo conducente, indicando los documentos adjuntos, antecedentes, consideraciones de la propuesta de acuerdo, en los casos que el documento sea extenso.

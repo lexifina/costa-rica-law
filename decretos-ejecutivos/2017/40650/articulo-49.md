@@ -1,0 +1,1 @@
+Artículo 49.- La abstención es el comportamiento que exhibe la persona que integra el Consejo Rector cuando no estuvo presente en el momento en que se adoptó un acuerdo simple y se está ratificando en una sesión que si estuvo presente; no es un voto negativo.

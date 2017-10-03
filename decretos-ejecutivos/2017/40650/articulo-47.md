@@ -1,0 +1,1 @@
+Artículo 47.- Los votos positivos de las personas que integran el Consejo Rector son los que aprueban los acuerdos cuando suman al menos cinco constituyen la mayoría simple y seis constituyen la calificada.

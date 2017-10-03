@@ -1,0 +1,1 @@
+Artículo 73.- En caso de que la administración de los sistemas del SINIRUBE sean realizados por terceros, el SINIRUBE deberá establecer los parámetros de gestión de la seguridad de la información, de conformidad con el capítulo tercero de este reglamento y la Ley de Protección de la Persona Frente al Tratamiento de sus Datos Personales, Ley N° 8968.

@@ -1,0 +1,1 @@
+Artículo 18.- De la Secretaría del Consejo: La Secretaría estará integrada por una persona integrante del Consejo, designada por el Consejo Rector por mayoría de sus votos, por el periodo de un año el cual rige de enero a diciembre del año en curso, pudiendo ser reelecta por un periodo igual, por una sola vez.

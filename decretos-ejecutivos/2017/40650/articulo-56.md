@@ -1,0 +1,1 @@
+Artículo 56.- Las simples observaciones de forma, relativas a la redacción de acuerdos, no serán considerados como recurso de revisión y su trámite se realizará con la discusión normal del contenido del acta en el momento de su valoración para ser aprobada.

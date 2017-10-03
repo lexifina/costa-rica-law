@@ -1,0 +1,1 @@
+Artículo 2.- Adscripción y naturaleza: El SINIRUBE es un órgano de desconcentración máxima con personalidad jurídica instrumental, adscrito al Instituto Mixto de Ayuda Social (IMAS), por lo tanto puede obligarse válidamente en nombre propio en convenios y contratos para el logro de sus objetivos.

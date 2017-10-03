@@ -1,0 +1,1 @@
+Artículo 54.- Una vez que las actas son aprobadas y firmadas, se convierten en públicas, salvo que contengan acuerdos de temas específicos declarados confidenciales, en cuyo caso esos puntos serán de acceso restringido.

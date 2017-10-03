@@ -1,0 +1,1 @@
+Artículo 51.- La persona que ocupe el cargo de la Presidencia procederá a someter a votación el borrador del acta en una sesión ordinaria posterior, para su aprobación por parte de las personas miembros del Consejo Rector, salvo que circunstancias especiales de fuerza mayor que lo impidan, en cuyo caso la aprobación se pospondrá para la sesión ordinaria siguiente.

@@ -1,0 +1,1 @@
+Artículo 58.- En la aplicación de este reglamento para los casos de contrataciones que vaya a realizar el SINIRUBE, se aplicarán las prohibiciones que están establecidas en la Ley de Contratación Administrativa y su Reglamento, así como las que establezcan las disposiciones reglamentarias internas del IMAS.

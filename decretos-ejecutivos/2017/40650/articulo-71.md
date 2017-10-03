@@ -1,0 +1,1 @@
+Artículo 71.- El Consejo Rector y la Dirección Ejecutiva del SINIRUBE, deberán velar por el cumplimiento del marco jurídico que tiene incidencia sobre la gestión de TI con el propósito de evitar posibles conflictos legales que pudieran generarse.

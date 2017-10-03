@@ -1,0 +1,2 @@
+Artículo 22.- En las sesiones del Consejo Rector deberá participar la persona que ocupe la Dirección Ejecutiva del SINIRUBE.
+Se podrá acordar por mayoría simple de las personas miembros presentes, la participación de cualquier persona trabajadora de cualquiera de las instituciones representadas en el Consejo Rector, o bien, terceras personas que realicen exposiciones o planteamientos al órgano colegiado, así como para que comparezca a complementar la información suministrada sobre un punto específico del orden del día.

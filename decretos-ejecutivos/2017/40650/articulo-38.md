@@ -1,0 +1,1 @@
+Artículo 38.- Las personas miembros que integren el Consejo Rector podrán mocionar para trasladar asuntos que no hayan sido vistos o concluidos en una sesión para otra siguiente, por razones de oportunidad y conveniencia, siempre que para ello tomen el acuerdo de rigor por mayoría simple.

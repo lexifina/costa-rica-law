@@ -1,0 +1,3 @@
+Artículo 33.- Formulación de la agenda: Para la formulación de la agenda, se seguirán las siguientes disposiciones:
+a) La agenda será elaborada por la Dirección Ejecutiva del SINIRUBE con instrucciones de la persona que ocupe la Presidencia del Consejo Rector.
+b) Cuando alguna persona miembro del Consejo Rector solicite el conocimiento de algún asunto lo hará saber a la persona que ocupe la Presidencia del Consejo, quien valorará y decidirá sobre la procedencia de incluirlos como punto de agenda en una sesión posterior. Dicha solicitud debe presentarse por escrito o por correo electrónico. En caso de que la solicitud tenga lugar en el transcurso de la sesión podrá realizarse antes de la aprobación del orden del día.

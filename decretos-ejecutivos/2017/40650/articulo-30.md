@@ -1,0 +1,1 @@
+Artículo 30.- Si no se conforma el quórum, el Consejo Rector podrá sesionar válidamente en segunda convocatoria, veinticuatro horas después de la señalada para la primera sesión, salvo en casos de urgencia por motivos de interés público, debidamente declarada y demostrada, podrá sesionar en menos de veinticuatro horas, lo anterior sin que se considere una sesión extraordinaria

@@ -1,0 +1,2 @@
+Artículo 23.- Lugar para realizar las sesiones: El Consejo Rector se reunirá ordinariamente en el día y hora que el órgano colegiado determine por mayoría simple, normalmente sesionará en las oficinas centrales del IMAS y supletoriamente podrá utilizar las instalaciones del SINIRUBE y también, por mayoría simple, podrá acordar sesionar en otros lugares.
+Para reunirse en sesión ordinaria no hará falta convocatoria especial, bastará para estos efectos que la persona que ocupe la Presidencia del Consejo Rector realice la convocatoria.

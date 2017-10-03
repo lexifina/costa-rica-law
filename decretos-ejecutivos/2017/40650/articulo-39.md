@@ -1,0 +1,1 @@
+Artículo 39.- Asignación del uso de la palabra: La solicitud de uso de la palabra se hará levantando la mano, o en caso de sesión virtual por solicitud expresa por el sistema de videoconferencia que a los efectos se utilice para sesionar, y se autorizará expresamente por la persona que ocupe la Presidencia.

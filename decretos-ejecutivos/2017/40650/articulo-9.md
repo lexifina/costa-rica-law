@@ -1,0 +1,1 @@
+Artículo 9.- El Consejo Rector nombrará a la persona en el cargo de la Dirección Ejecutiva del Sistema Nacional de Información y Registro Único de Beneficiarios del Estado; que reúna las características y perfil de conformidad con el artículo 11 de la Ley de Creación del Sistema Nacional de Información y Registro Único de Beneficiarios del Estado, Ley N° 9137.

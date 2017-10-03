@@ -1,0 +1,2 @@
+Capítulo Cuarto: Estandarización de la Información
+Artículo 74.- El SINIRUBE realizará las acciones necesarias para que todas las bases de datos que integran el Sistema Nacional de Información y Registro Único de Beneficiarios del Estado, interoperen entre sí, con la respectiva seguridad de la información, de conformidad al capítulo tercero del presente reglamento; con la que brindará los servicios, tanto a la ciudadanía, como a las instituciones participantes.

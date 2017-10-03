@@ -1,0 +1,2 @@
+Artículo 26.- Naturaleza privada de las sesiones: Las sesiones tanto ordinarias como extraordinarias, se realizarán en forma privada, salvo que por unanimidad de las personas miembros presentes del Consejo Rector acuerden permitir el acceso del público en general, o algún grupo de personas específicas, a los cuales les podrá conceder el derecho a participar con voz, pero sin voto.
+Por vía de excepción y por unanimidad, el Consejo podrá declarar confidencial el tratamiento de temas que por su naturaleza así lo requieran.

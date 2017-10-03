@@ -1,0 +1,1 @@
+Artículo 24.- El Consejo Rector sesionará ordinariamente al menos una vez por mes, pudiendo acordar hacerlo de esta forma, hasta un máximo de cuatro veces al mes y podrá sesionar extraordinariamente en un máximo de dos veces por mes.

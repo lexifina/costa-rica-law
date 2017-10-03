@@ -1,0 +1,1 @@
+Artículo 37.- Las solicitudes de informes a la Dirección Ejecutiva del SINIRUBE que requieran las personas miembros del Consejo Rector para el ejercicio de su función, serán realizadas mediante acuerdo de Consejo Rector, aprobado por mayoría simple y podrá derivar de solicitudes o mociones.

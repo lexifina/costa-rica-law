@@ -1,0 +1,1 @@
+Artículo 57.- Cuando el recurso de revisión es declarado con lugar, el efecto jurídico consecuente será de eliminación o rectificación del acuerdo adoptado inicialmente y con esto el acuerdo quedará en firme.

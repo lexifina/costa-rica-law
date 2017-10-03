@@ -1,0 +1,1 @@
+Artículo 53.- En ningún momento podrán realizarse cambios de fondo en el texto de las actas, por lo que la revisión del Consejo Rector deberá velar porque la transcripción refleje en el fondo lo manifestado por todas las personas que intervinieron en la sesión.

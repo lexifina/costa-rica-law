@@ -1,0 +1,2 @@
+Artículo 43.- Todos los acuerdos que adopte el Consejo Rector deberán tener al menos el encabezado que describa someramente el asunto a que se refiere, los considerandos que constituyen la valoración de fondo en que se basa el Consejo Rector para tomar su decisión y el por tanto que contiene la decisión tomada.
+Una vez que la propuesta de acuerdo es votada y queda en firme requerirá la firma de la persona que funja como Presidente del Consejo Rector, para su ejecución y se trasladará a la Dirección Ejecutiva del SINURIBE para el seguimiento respectivo.

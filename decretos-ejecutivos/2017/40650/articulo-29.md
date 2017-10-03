@@ -1,0 +1,4 @@
+Artículo 29.- El quórum para que el Consejo Rector pueda sesionar válidamente será de mayoría simple de la totalidad de las personas miembros que componen el Consejo Rector, o sea con la presencia de no menos de cinco de sus miembros.
+Si verificada la asistencia de las personas miembros por parte de la persona que ocupe la Presidencia al inicio de la sesión, ésta determinare que no existe el quórum requerido, dará un término de quince minutos para que se conforme.
+Transcurridos los indicados quince minutos, de no haberse conformado el quórum, la persona que ocupe la Presidencia a su criterio, concederá un término de hasta una hora adicional para dicho fin, pero si después de esta hora no hay quórum, no se podrá sesionar.
+La decisión de no sesionar puede tomarse antes de que transcurra esa hora si se conocen motivos por los que se determine que no asistirán las personas miembros necesarias.

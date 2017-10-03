@@ -1,0 +1,1 @@
+Artículo 59.- En la ejecución de las acciones propias del SINIRUBE, se aplicarán las prohibiciones que establece la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Ley N° 8422 y sus reformas, así como cualquier disposición legal que regule la actuación de la función pública.

@@ -1,0 +1,1 @@
+Artículo 5.- Ámbito de aplicación: El Sistema Nacional de Información y Registro Único de Beneficiarios del Estado tiene alcance y aplicación nacional, abarca la información de las bases de datos de diferentes Ministerios y sus Órganos Adscritos, Instituciones Autónomas, Instituciones Semiautónomas, Gobiernos Locales y Empresas Públicas que comprenden el Estado Costarricense.
