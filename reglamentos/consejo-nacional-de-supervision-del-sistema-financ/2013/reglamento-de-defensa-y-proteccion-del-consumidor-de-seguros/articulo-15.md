@@ -12,3 +12,8 @@ j. Política institucional de protección de datos de los consumidores de confor
 k. Prevención y resolución de conflictos de competencia entre las distintas instancias administrativas internas.
 l. Perfil y duración del nombramiento del responsable de la instancia de atención al consumidor de seguros así como su horario, el cual deberá ser a tiempo completo.
 m. Causas de incompatibilidad, inelegibilidad y cese de ese responsable.
+n. Políticas y procedimientos específicos, para situaciones declaradas de emergencia nacional y definidas como catastróficas por la aseguradora, con el propósito de atender en forma ágil y adecuada los reclamos por siniestros, las consultas y las denuncias de sus asegurados. Lo indicado deberá disponerse al menos en cuanto a seguros residenciales y seguros personales y contemplará como mínimo los siguientes elementos:
+i. Procedimientos específicos para la atención de reclamos, liquidación de siniestros, consultas y denuncias de asegurados que procuren simplicidad y plazos de atención reducidos.
+ii. Posibilidad o no, y bajo cuáles términos, de otorgar adelantos parciales de indemnización cuando se constate la procedencia del reclamo pero se encuentre pendiente por parte de la aseguradora la determinación de su cuantía.
+iii. Acciones específicas para asegurar la continuidad del servicio de las áreas de atención de reclamos, liquidación de siniestros e instancia de atención al consumidor de seguros en especial en las zonas geográficas de mayor afectación si procede, así como para dotar de apoyo extraordinario a esas áreas en caso de ser necesario.
+(Así adicionado el inciso n) anterior mediante sesión N° 1363 del 3 de octubre de 2017)
