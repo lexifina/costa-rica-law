@@ -10,3 +10,4 @@ Rótulos Luminosos | 12% | 8.626,42 | 34.505,67
 Anuncios en predios sin edifi contiguo a vías públicas | 26% | 18.690,57 | 74.762,27
 Vallas Publicitarias | 35% | 25.168,38 | 100.641,52
 (Así reformado el cuadro anterior mediante sesión ordinaria N° 23 del 3 de octubre del 2016)
+(Nota de Sinalevi: Mediante sesión publicación en La Gaceta N° 187 del 3 de octubre del 2017, se acordó lo siguiente: “El Concejo Municipal de Limón, en uso de sus atribuciones y competencias define y establece el concepto de salario base para el año 2017, que corresponde al cobro de la tarifa por la instalación y colocación de Anuncios y Rótulos en la suma de cuatrocientos veintiséis mil doscientos colones”)

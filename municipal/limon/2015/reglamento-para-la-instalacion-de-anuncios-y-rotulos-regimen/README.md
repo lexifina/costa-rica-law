@@ -15,3 +15,4 @@ Reglamento para la Instalación de Anuncios y Rótulos. Régimen para la aplicac
 | --- | --- | --- |
 | 1 | 2015-03-03 | la propia norma |
 | 2 | 2016-10-03 | Reglamento municipal 23 (2016-10-03) |
+| 3 | 2017-10-03 | Reglamento municipal 0 (2017-10-03) |
