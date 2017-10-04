@@ -1,0 +1,19 @@
+N° 40646-MP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE LA PRESIDENCIA
+En uso de las facultades que les confieren los artículos 140 incisos 3), 18) y 20) y 146 de la Constitución Política y los artículos 25 inciso 1), 27 inciso 1), 28 inciso b) de la Ley General de Administración Pública, N° 6227 del 02 de mayo de 1978, la Aprobación del Tratado Marco del Mercado Eléctrico de América Central, N° 7848 del 20 de noviembre de 1998, la Ley del Uso Racional de la Energía, N°7447, del 13 de noviembre de 1994 y su respectivo reglamento N° 25584 del 24 de octubre de 1996.
+Considerando:
+I.—Que el artículo 50 de la Constitución Política asegura que “…toda persona tiene derecho a un ambiente sano y ecológicamente equilibrado” y además que “…El Estado garantizará, defenderá y preservará ese derecho…”.
+II.—Que mediante el inciso c) del artículo 2 del Tratado Marco del Mercado Eléctrico de América Central, Costa Rica asumió el compromiso de incentivar una mayor y competitiva participación privada en el sector eléctrico.
+III.—Que conforme se estipula en el objetivo sectorial 2, del “VII Plan Nacional de Energía 2015-2030”, promovido por el Ministerio de Ambiente y Energía y el Programa de Naciones Unidas
+para el Desarrollo (PNUD), la política energética debe estar basada en: “…Fomentar las acciones frente al cambio climático global, mediante la participación ciudadana, el cambio tecnológico, procesos de innovación, investigación y conocimiento para garantizar el bienestar, la seguridad humana y la competitividad del país…”.
+IV.—Que la política mencionada “…reafirma la responsabilidad del Estado de asegurar un abastecimiento energético bajo en emisiones, el cual respete los principios del desarrollo sostenible al procurar equilibrio entre objetivos económicos, ambientales y sociales, de manera que se alcance el bienestar de la población actual sin poner en riesgo ese mismo derecho para las futuras generaciones…”.
+V.—Que en la actualidad el funcionamiento de la economía mundial se basa en el consumo de energía, la misma pone en operación el sistema productivo para generar los bienes y servicios que la sociedad necesita. Sin embargo, un uso abusivo o poco eficiente del recurso, podría poner en riesgo la capacidad de consumo energético y por ende el nivel de vida de las poblaciones.
+VI.—En virtud de lo anterior resulta necesario que el Estado costarricense promueva y fomente capacitaciones en el sector eléctrico que devengan en el uso racional y consiente del recurso energético.
+VII.—Que la Asociación de Electricistas (ADE), cédula de persona jurídica N° 3-002-179600, como institución privada del sector eléctrico, tiene como objetivo la actualización técnica de los trabajadores en procura del mejoramiento de las instalaciones y sistemas eléctricos, en función de la seguridad de la vida, la propiedad y el uso racional de la energía.
+VIII.—Que dicha Asociación forma parte de la Organización Internacional de Técnicos (OITEC) y ha venido promoviendo la capacitación del sector en materia de energía, con la afluencia y colaboración de diversos países como Panamá, Colombia y Nicaragua.
+IX.—Que la Asociación de Electricistas ha solicitado a la Presidencia de la República la declaratoria de interés público del “XXI Seminario de Técnicos del Sector Eléctrico” a realizarse en el mes de noviembre del año en curso. Dicho evento que tiene como objetivo la actualización y capacitación de los participantes sobre los más recientes avances técnicos y empresariales del sector eléctrico. Por tanto,
+DECRETAN:
+DECLARATORIA DE INTERÉS PÚBLICO
+DEL “XXI SEMINARIO DE TÉCNICOS DEL SECTOR ELÉCTRICO”
+Artículo 1º—Declárase de Interés Público el “XXI Seminario de Técnicos del Sector Eléctrico”, a realizarse los días 10 y 11 de noviembre del 2017, en el Hotel Crowne Plaza Corobicí, San José.

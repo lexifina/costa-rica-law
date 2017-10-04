@@ -1,0 +1,1 @@
+Artículo 2º—Las dependencias del Sector Público y del Sector Privado dentro del marco legal respectivo, podrán contribuir, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, a fin de lograr la exitosa realización de las actividades proyectadas para esos días
