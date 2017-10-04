@@ -1,0 +1,2 @@
+12.INSPECCIÓN Y FISCALIZACIÓN DEL CONTRATO
+El Órgano Fiscalizador tiene como obligación velar porque el contratista se ajuste al estricto cumplimiento de todos los puntos y solicitudes pactadas en este reglamento, así como en la prestación del servicio. Se entenderá que el Órgano Fiscalizador lo constituye el Administrador del Reglamento, a quien le corresponden las atribuciones y obligaciones establecidas en el artículo 13 de la Ley de Contratación Administrativa.

@@ -1,0 +1,3 @@
+11.FORMALIZACIÓN DEL CONTRATO
+Cada vez que un interesado se inscriba deberá confeccionarse un contrato.
+Cada vez que se asigne un trabajo, el Banco extenderá una Orden de Pedido y que se constituirá en el documento que para todos los fines ordene la correspondiente ejecución contractual. El Banco entregará la Orden de pedido o la notificará mediante correo electrónico a más tardar un (1) día hábil posterior a la asignación; se entenderá por asignación, la llamada telefónica, mensaje de texto o correo electrónico que hará el Administrador del Reglamento al Contratista aprobando la razonabilidad del precio cotizado para el servicio requerido.

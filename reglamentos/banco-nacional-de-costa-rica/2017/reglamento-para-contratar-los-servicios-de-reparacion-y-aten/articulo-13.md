@@ -1,0 +1,2 @@
+13.MEJORAS A LO OFRECIDO
+El Banco por medio del Administrador del Reglamento estará facultado para aceptar las mejoras, cambios e innovaciones en los materiales y servicios que proponga el contratista y que se planteen con posterioridad al ofrecimiento presentado, siempre que no le represente ningún costo adicional al Banco o un aumento en el plazo de entrega y que se reviertan a favor del mejor beneficio para el Banco medido en función de incrementos en la capacidad, calidad o potencialidad de lo contratado.
