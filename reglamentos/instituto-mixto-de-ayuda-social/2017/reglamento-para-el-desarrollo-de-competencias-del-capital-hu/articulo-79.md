@@ -1,0 +1,2 @@
+ARTÍCULO 79 º—. DE LAS DISPOSICIONES SUPLETORIAS
+En todo aquello no previsto en este Reglamento se aplicarán las disposiciones de la Ley General de la Administración Pública, Estatuto del Servicio Civil y su Reglamento, el Reglamento Autónomo de Servicios, Reglamento Interno de Trabajo de las Empresas Comerciales del Instituto Mixto de Ayuda Social, las disposiciones conexas o complementarias, la jurisprudencia judicial y administrativa, así como los principios generales del derecho.

@@ -1,0 +1,3 @@
+ARTÍCULO 8 º—. NATURALEZA DE LOS PROCESOS DE FORMACIÓN PROFESIONAL
+Todos los beneficios de formación profesional que la institución ofrezca a las personas trabajadoras o las que apruebe a solicitud de éstas, deberán autorizarse bajo el entendido de que sólo se financiarán o se otorgarán beneficios respecto a la formación que se orienten a una especialización del recurso humano en temas de interés institucional relacionados con el puesto que desempeña la persona trabajadora.
+Deberá prevalecer como criterio de selección o adjudicación, que la carrera a cursar por la persona trabajadora sea de interés institucional.

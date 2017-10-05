@@ -1,0 +1,3 @@
+ARTÍCULO 70º—. DEL PROCEDIMIENTO PARA LA CANCELACIÓN DE BENEFICIOS
+El Proceso de Desarrollo de Competencias del Capital Humano de Desarrollo Humano, cuando corresponda, informará a la Comisión de los incumplimientos en que incurran las personas beneficiarias y adjuntará toda la prueba que conste del caso. La Gerencia o el Consejo Directivo, según corresponda, conocerán del asunto y si encuentra mérito, solicitará la instauración de un procedimiento ordinario contra la persona beneficiaria, a fin de asegurar su derecho de defensa.
+Para efectos de la tramitación del procedimiento ordinario señalado se aplicará en forma supletoria la Ley General de la Administración Pública, en todo aquello que no haya sido previsto.

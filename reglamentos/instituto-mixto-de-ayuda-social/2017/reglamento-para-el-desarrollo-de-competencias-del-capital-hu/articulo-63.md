@@ -1,0 +1,4 @@
+CAPÍTULO SEXTO
+Criterios técnicos de selección
+ARTÍCULO 63 º—. CRITERIOS APLICABLES A LOS CONCURSOS FORMACIÓN POR CARRERAS DE INTERÉS INSTITUCIONAL
+Aquellos beneficios que sean abiertos a concurso para participación de las personas trabajadoras serán valoradas por las instancias intervinientes en el proceso de selección de acuerdo con los criterios que sean establecidos en las respectivas convocatorias, tales como: interés institucional, carrera administrativa, historial disciplinario, perfil, experiencia, grado académico, relación con el cargo o funciones. A los criterios deberá asignársele, desde la convocatoria, el puntaje con que se calificarán en cada concurso. Se utilizará como referencia, con las variaciones pertinentes, lo establecido en los artículos siguientes para capacitación y formación no programada.

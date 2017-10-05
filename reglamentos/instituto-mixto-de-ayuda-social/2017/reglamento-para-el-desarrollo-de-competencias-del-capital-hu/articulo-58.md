@@ -1,0 +1,2 @@
+ARTÍCULO 58 º—. PARTICIPACIÓN EN LA CONVOCATORIA.
+En el plazo que indique la convocatoria las personas interesadas deberán aportar a Desarrollo Humano los requisitos y documentación respectiva. La presentación de los requisitos fuera del plazo establecido provoca que la persona interesada quede sin posibilidad de concursar para la beca o facilidad. Ante esta decisión la persona solicitante podrá impugnar la decisión conforme los recursos ordinarios que se establecen en la Ley General de la Administración Pública.

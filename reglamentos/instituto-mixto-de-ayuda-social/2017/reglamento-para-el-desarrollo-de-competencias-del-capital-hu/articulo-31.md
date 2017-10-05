@@ -1,0 +1,2 @@
+ARTÍCULO 31 º—. DE LOS VOTOS CONTRARIOS
+Las personas integrantes de la Comisión deberán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos que lo justifiquen e indicar porque motivo se aparta del criterio técnico o profesional si es que existiera como insumo para la toma de decisiones, quedando exentos de las responsabilidades que, en su caso, pudieren derivarse de tales acuerdos. En este supuesto deberán firmar el acta correspondiente.

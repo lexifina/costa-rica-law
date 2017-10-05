@@ -1,0 +1,2 @@
+ARTÍCULO 67 º—. DE LA ENFERMEDAD O MUERTE DE LA PERSONA BENEFICIARIA
+En caso de que durante el lapso de estudios o en el período de cumplimiento del compromiso laboral, sobrevenga incapacidad permanente o temporal mayor a tres meses, enfermedad grave debidamente comprobada o muerte de una persona trabajadora beneficiada con el Plan de Desarrollo de Competencias del Capital Humano, quedarán exentos de las obligaciones contraídas con el I.M.A.S., la persona trabajadora, sus familiares y las personas fiadoras.

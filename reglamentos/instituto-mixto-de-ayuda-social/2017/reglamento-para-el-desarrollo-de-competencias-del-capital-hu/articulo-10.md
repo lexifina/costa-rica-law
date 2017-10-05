@@ -1,0 +1,3 @@
+ARTÍCULO 10 º—. PROCESOS DE DIAGNÓSTICO
+Los superiores jerárquicos deberán presentar, en la primera quincena de junio de cada año, las necesidades de capacitación de su personal para ser contempladas en la elaboración del Plan. Lo anterior sin perjuicio de que Desarrollo Humano pueda realizar los diagnósticos institucionales que se requieran.
+Las jefaturas de cada unidad administrativa de la institución deberán colaborar en la aplicación de los instrumentos y cualquier otra acción dirigida por Desarrollo Humano para el levantamiento de las necesidades de capacitación y formación del personal. De no hacerlo se expondrán a sanciones disciplinarias por desacato, de acuerdo con la normativa vigente.

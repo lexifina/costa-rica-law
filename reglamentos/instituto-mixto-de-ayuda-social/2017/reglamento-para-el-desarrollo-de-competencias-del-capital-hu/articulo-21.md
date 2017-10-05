@@ -1,0 +1,2 @@
+ARTÍCULO 21 º—. DE LA ASISTENCIA
+Para garantizar quórum cada persona representante de la Comisión tendrá un suplente que la sustituirá en sus ausencias y deberá ser electa de la misma manera que las personas titulares. Cuando exista inasistencia injustificada, en más de tres sesiones consecutivas, de alguna de las personas que asisten a las sesiones de la Comisión, la persona que la preside comunicará el asunto a la Gerencia para que tome las acciones que considere oportunas.

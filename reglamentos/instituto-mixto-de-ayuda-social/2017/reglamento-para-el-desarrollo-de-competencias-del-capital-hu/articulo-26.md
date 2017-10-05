@@ -1,0 +1,2 @@
+ARTÍCULO 26 º—. DE LA NATURALEZA DE LAS SESIONES
+Las sesiones de la Comisión serán privadas. No obstante, por unanimidad de las personas integrante presentes, podrá acordarse que tengan acceso a ésta las personas trabajadoras o bien aquellas personas que hayan sido invitadas a hacerlo, y se les concederá a estas el derecho a participar en las deliberaciones con voz pero sin voto, si así lo acuerda la mayoría absoluta de las personas presentes.

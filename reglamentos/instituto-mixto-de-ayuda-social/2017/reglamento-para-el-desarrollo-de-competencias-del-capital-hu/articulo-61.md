@@ -1,0 +1,3 @@
+ARTÍCULO 61 º—. ESTUDIO DE LA COMISIÓN
+Recibido el expediente, la Comisión procederá al estudio detallado de las postulaciones, a la luz de la convocatoria realizada, los puntajes o porcentajes de evaluación ahí establecidos y este Reglamento. En caso de que falte información puede solicitar a Desarrollo Humano completar el expediente, que contará con el plazo de tres días hábiles para responder al requerimiento.
+Una vez que cuente con todos los elementos necesarios la Comisión procederá a emitir un acuerdo fundamentado con una recomendación a la Gerencia, para resolver el concurso, en un plazo máximo de quince días a partir del recibo del expediente.

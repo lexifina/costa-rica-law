@@ -1,0 +1,2 @@
+ARTÍCULO 12 º—. DE LA DESIGNACIÓN DE OFICIO
+Desarrollo Humano en conjunto con la Jefatura inmediata, considerando la importancia de la actualización del capital humano para el I.M.A.S. y el Plan de desarrollo de competencias, podrá designar una o más personas trabajadoras para asistir a una capacitación determinada de forma obligatoria y sólo se podrán exceptuar de esta obligación aquellas personas que se encuentren en situaciones de fuerza mayor o caso fortuito debidamente fundamentadas.

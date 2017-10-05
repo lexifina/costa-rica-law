@@ -1,0 +1,3 @@
+ARTÍCULO 62 º—. ADJUDICACIÓN DE BECAS
+La Gerencia estudiará la propuesta de asignación de becas u otras facilidades y procederá, en el plazo máximo de ocho días, a resolver su otorgamiento o podrá separarse del criterio de la Comisión cuando así lo considere pertinente, mediante auto motivado y notificará a la Comisión para que ésta comunique a la persona o personas participantes en el concurso dentro de los tres días siguientes.
+Lo resuelto por la Gerencia, puede ser recurrido mediante recurso de reconsideración que deberá interponerse dentro de los siguientes tres días a la notificación correspondiente.

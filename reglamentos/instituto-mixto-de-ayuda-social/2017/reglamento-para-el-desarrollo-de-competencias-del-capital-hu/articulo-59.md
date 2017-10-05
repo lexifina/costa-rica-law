@@ -1,0 +1,3 @@
+ARTÍCULO 59 º—. ANÁLISIS DE POSTULACIONES
+Desarrollo Humano deberá verificar el cumplimiento de requisitos establecidos en este Reglamento y los específicos contenidos en la convocatoria del concurso que establezca ésta. En caso de que alguno faltare o estuviere incompleto prevendrá a la persona interesada para que en un plazo no mayor a tres días hábiles proceda a completar la documentación o cualquier otro requisito. Asimismo verificará aquellos requisitos que obren en el expediente personal y los documentará, cuando corresponda, en el expediente del concurso.
+Para el análisis de postulaciones Desarrollo Humano tendrá un plazo máximo de diez días, dentro de los que debe contabilizarse el período de subsanación.

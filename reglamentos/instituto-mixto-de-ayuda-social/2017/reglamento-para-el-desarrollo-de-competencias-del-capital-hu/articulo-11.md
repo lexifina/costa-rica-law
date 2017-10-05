@@ -1,0 +1,2 @@
+ARTÍCULO 11 º—. DE LAS DIRECTRICES PARA EL DESARROLLO DE COMPETENCIAS DEL CAPITAL HUMANO
+Partiendo de las necesidades e intereses institucionales, la Gerencia definirá directrices para promover el Desarrollo de Competencias del Capital Humano, considerando para ello las políticas dictadas al respecto por el Consejo Directivo y priorizando los campos y las acciones generales de formación y capacitación de las personas trabajadoras.
