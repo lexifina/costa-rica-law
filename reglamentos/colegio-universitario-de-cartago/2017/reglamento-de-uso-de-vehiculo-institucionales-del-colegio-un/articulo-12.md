@@ -1,0 +1,1 @@
+Artículo 12.—El funcionario o conductor contratado, que fuere autorizado para conducir un vehículo de la Institución, solo lo podrá utilizar en funciones estrictamente oficiales y en cumplimiento riguroso de la ruta previamente definida. El cambio de ruta debe ser reportado a la Jefatura del Departamento de Servicios Operativos, al regreso de la gira.

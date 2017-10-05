@@ -1,0 +1,2 @@
+Artículo 4º—Los vehículos propiedad de la Institución, son de uso administrativo general y están destinados a cumplir exclusivamente gestiones oficiales de la Institución y atender las necesidades que surjan con ocasión de las labores que a su cargo tienen las distintas direcciones, coordinaciones, docentes, departamentos y unidades.
+Se exceptúan aquellas circunstancias especiales o en casos de fuerza mayor, para contribuir con el desarrollo de una función específica de un Ministerio o de una Institución Gubernamental.

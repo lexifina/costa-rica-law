@@ -1,0 +1,1 @@
+Artículo 21.—Para conducir un vehículo del Colegio Universitario de Cartago, es requisito poseer un permiso interno expedido por la Jefatura del Departamento de Servicios Operativos, el cual incluirá el nombre, número de cédula de la persona autorizada, motivo del viaje, lugar que el vehículo debe visitar, horas y fechas de expedición y vencimiento del permiso.

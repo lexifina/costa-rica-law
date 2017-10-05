@@ -1,0 +1,1 @@
+Artículo 5º—Si fuera necesario trasladar grupos ajenos a la Institución, para efectos de presentaciones deportivas o culturales, se deberá contar con la solicitud razonada por parte del solicitante y será autorizada por el Decano.

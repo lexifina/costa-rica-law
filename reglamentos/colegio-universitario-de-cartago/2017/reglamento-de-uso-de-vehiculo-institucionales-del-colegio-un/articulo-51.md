@@ -1,0 +1,1 @@
+Artículo 51.—El Operador móvil, Conductor o Usuario que no respete el presente Reglamento será acreedor a las sanciones disciplinarias, previo seguimiento del procedimiento administrativo, de conformidad con lo establecido por la Ley General de Administración Pública y lo contenido en el Reglamento Autónomo de Trabajo (RAT).

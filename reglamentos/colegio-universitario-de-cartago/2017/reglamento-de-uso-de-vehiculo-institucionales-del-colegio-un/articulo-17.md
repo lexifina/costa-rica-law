@@ -1,0 +1,13 @@
+Artículo 17.—Corresponde a la Jefatura del Departamento de Servicios Operativos lo siguiente:
+a. Atender y tramitar los asuntos administrativos relacionados con el uso de los vehículos institucionales.
+b. Agrupar todas aquellas giras a un mismo lugar o lugares vecinos, de modo que se minimice el gasto total, igual situación se aplicará para la entrega de correspondencia, salvo que sea de suma urgencia y notificada por el Decano o el Consejo Directivo.
+c. Supervisar las labores, del personal subalterno encargado del cuido y conducción de los vehículos, con el objeto de fomentar el buen trato, el respeto y las buenas relaciones entre compañeros.
+d. Suscribir las pólizas necesarias para que todos los vehículos de la Institución se mantengan cubiertos contra riesgo, dentro de las coberturas que determine la Dirección Administrativa-Financiera.
+e. Analizar todo accidente de tránsito en que haya participado un vehículo de la Institución, del cual rendirá un informe con la recomendación respectiva a la Dirección Administrativa Financiera. Si esta recomendación no es compartida por el responsable de conducir el vehículo, este podrá emitir por escrito su criterio, dentro del tercer día hábil posterior a la presentación del informe por parte de la Jefatura de Servicios Operativos.
+f. Formular con base en la información levantada al efecto, la denuncia ante el Instituto Nacional de Seguros, cuando los vehículos sufran daños o bien, para cubrir daños y lesiones provocadas por accidentes, de conformidad con las coberturas de las pólizas contratadas al efecto.
+g. Gestionar el pago de los derechos de circulación; revisión técnica y otros.
+h. Llevar un expediente de cada vehículo de la Institución, en donde conste la información necesaria para su identificación, la de sus accesorios (llantas, baterías, herramientas y otros), así como del mantenimiento y reparaciones efectuadas, revisiones periódicas o cualquier otra información necesaria para tener una historia completa del vehículo.
+i. Supervisar que se preste un adecuado servicio de mantenimiento preventivo y de reparación general a los vehículos, para lo cual se tomará las previsiones presupuestarias necesarias.
+j. Instruir al operador móvil y conductores a su cargo sobre la obligación de respetar las leyes de tránsito, zonas de estacionamiento, vías, altos, velocidades permitidas y otros; controlar que porten la licencia de conductor al día.
+k. Hacer los trámites necesarios para la renovación y cambio oportuno de placas de circulación.
+l. Recomendar excluir de circulación aquellos vehículos que han dejado de ser rentables, útiles o seguros para la Institución.

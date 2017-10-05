@@ -1,0 +1,1 @@
+Artículo 32.—El usuario será responsable de tomar únicamente el tiempo indispensable, para ingerir los alimentos y deberá cubrir los gastos que ocasione por tardar más tiempo del requerido, sin perjuicio de otras sanciones.

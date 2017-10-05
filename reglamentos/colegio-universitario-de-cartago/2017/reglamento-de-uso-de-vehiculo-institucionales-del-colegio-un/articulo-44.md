@@ -1,0 +1,2 @@
+Artículo 44.—El cálculo de kilometraje recorrido en una gira será únicamente en razón de las actividades propias de la Institución y tomará en cuenta el kilometraje de salida y el kilometraje de regreso. Se tomará como base la tabla de distancias por carreteras vigente, publicada por el Ministerio de Obras Públicas y Transporte.
+Para el ajuste final del pago se podrán tomar en cuenta factores imprevistos.

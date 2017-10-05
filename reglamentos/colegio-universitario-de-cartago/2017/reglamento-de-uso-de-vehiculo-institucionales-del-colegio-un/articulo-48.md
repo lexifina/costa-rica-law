@@ -1,0 +1,1 @@
+Artículo 48.—Una vez concluida la gira, el funcionario tendrá cinco días hábiles, para presentar la liquidación de los gastos por concepto de kilometraje, la cual, se realizará en la fórmula preestablecida, por el Departamento Financiero, para dichos efectos.

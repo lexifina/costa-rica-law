@@ -1,0 +1,1 @@
+Artículo 10.—El uso del servicio de transporte de la Institución queda restringido al territorio nacional. Se exceptúa esta disposición en el caso de una autorización expresa del Decano en la que se justifique razonablemente, la salida de un vehículo institucional fuera del país.

@@ -1,0 +1,1 @@
+Artículo 22.—La Jefatura del Departamento de Servicios Operativos, estará en la obligación de controlar que toda persona que conduzca un vehículo institucional posea el correspondiente permiso. El Oficial de Seguridad de la Institución, solicitará dicho permiso antes de permitir la salida del vehículo.

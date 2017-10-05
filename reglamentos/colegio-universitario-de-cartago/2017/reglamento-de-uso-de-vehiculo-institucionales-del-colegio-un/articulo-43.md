@@ -1,0 +1,1 @@
+Artículo 43.—La utilización de dichos vehículos se hará mediante el sistema de pago de kilometraje, el cual se regirá por la tabla de tarifas de la Contraloría General de la República, vigente en el momento del servicio. Bajo ninguna razón, la Institución pagará una tarifa mayor a la establecida por dicho ente contralor.

@@ -1,0 +1,1 @@
+Artículo 30.—Es responsabilidad del usuario acudir al sitio de partida a la hora indicada; después de dar un tiempo prudencial de 15 minutos, el Operador Móvil o conductor se marchará con los que estén presentes, sin responsabilidad alguna de su parte.

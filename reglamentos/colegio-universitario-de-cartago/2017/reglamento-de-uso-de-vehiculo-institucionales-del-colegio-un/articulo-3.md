@@ -1,0 +1,1 @@
+Artículo 3º—Los vehículos de la Institución podrán ser utilizados los siete días de la semana, lo cual incluye días feriados y vacaciones, siempre y cuando sea para el desempeño de las funciones propias del cargo, de quien solicita el servicio.

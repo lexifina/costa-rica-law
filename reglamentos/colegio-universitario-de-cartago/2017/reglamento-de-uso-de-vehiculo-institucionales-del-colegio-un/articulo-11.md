@@ -1,0 +1,1 @@
+Artículo 11.—Los vehículos de la Institución serán operados en el siguiente orden, en primera instancia, por el operador móvil nombrado por la Institución o por un conductor, según lo definido en inciso b, del artículo 2 del presente Reglamento, previa autorización y justificación concedida y avalada por la Jefatura del Departamento de Servicios Operativos.

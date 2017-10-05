@@ -1,0 +1,3 @@
+Artículo 40.—En el caso de solicitud de transporte de servicio externo en la que se requiere una unidad con capacidad para un grupo considerable de personas (microbús o bus) o para traslado de materiales cuyo peso sobrepase las unidades existentes, se procederá de la siguiente forma:
+a. La dependencia correspondiente hará la solicitud de vehículo al Departamento de Servicios Operativos.
+b. El Departamento de Servicios Operativos, le informará al solicitante, que deberá realizar la solicitud de bienes y servicios a la Proveeduría, para la contratación respectiva en caso de que no se pueda ejecutar la solicitud con vehículos institucionales.

@@ -1,0 +1,1 @@
+Artículo 26.—Una vez demostrado, la Jefatura del Departamento de Servicios Operativos Superior Jerárquico cancelará los permisos de utilización de vehículos Institucionales a los funcionarios que conduzcan con impericia, negligencia, imprudencia o en forma temeraria.
