@@ -1,0 +1,1 @@
+Artículo 9º—Le corresponde a la Agencia Nacional ISBN, suministrar a la Agencia Internacional del ISBN, los datos de registro de las Editoriales y de las publicaciones, cada vez que le sea solicitado.

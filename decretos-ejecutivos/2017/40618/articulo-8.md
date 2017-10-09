@@ -1,0 +1,1 @@
+Artículo 8º—Cuando exista duda respecto a la asignación del ISBN a una publicación, la Agencia Nacional ISBN podrá solicitar la obra física ya sea en formato digital o impreso para verificar su contenido.

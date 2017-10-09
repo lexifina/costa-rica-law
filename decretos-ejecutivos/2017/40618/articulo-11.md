@@ -1,0 +1,1 @@
+Artículo 11.—El editor debe proporcionar a la Agencia Nacional ISBN el máximo de información posible sobre todas las publicaciones disponibles de su fondo y debe informar a la agencia de todas las publicaciones presentes y futuras para la asignación de un identificador de editor del tamaño adecuado.

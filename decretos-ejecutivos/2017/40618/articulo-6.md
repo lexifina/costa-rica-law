@@ -1,0 +1,1 @@
+Artículo 6º—El plazo para la resolución del trámite de asignación de un ISBN, no podrá ser mayor a dos días hábiles, a partir del momento en que se recibe la solicitud y se aprueba, o a partir del momento en que se presenta la documentación correspondiente en el caso de los editores nuevos.
