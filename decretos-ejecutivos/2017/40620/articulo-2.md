@@ -1,0 +1,1 @@
+Artículo 2º—Conmemoración en la Comunidad de Barva. Las Carteras Ministeriales de Cultura y Juventud y de Educación Pública, en coordinación con la Municipalidad del cantón de Barva de Heredia, realizarán el día 10 de setiembre de cada año en dicha comunidad, actividades de conmemoración de la gesta heroica del Coronel Nicolás Aguilar Murillo.
