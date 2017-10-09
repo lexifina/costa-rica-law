@@ -14,3 +14,4 @@ Reglamento para control de activos del Comité Cantonal de Deportes y Recreació
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-10-01 | la propia norma |
+| 2 | 2017-10-09 | Reglamento municipal 76 (2017-10-09) |
