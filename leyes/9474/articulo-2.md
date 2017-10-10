@@ -1,0 +1,1 @@
+ARTÍCULO 2- El bien donado se destinará, exclusivamente, a la Asociación Cruz Roja Costarricense, para que el Comité Auxiliar de la Cruz Roja de Paraíso construya sus instalaciones, para la prestación del servicio de asistencia humanitaria y la realización de actividades propias del Comité Auxiliar de la Cruz Roja Costarricense de Paraíso.
