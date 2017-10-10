@@ -1,0 +1,1 @@
+ARTICULO 3- La Asociación Cruz Roja Costarricense no podrá traspasar, vender, arrendar ni gravar, de ninguna forma, el terreno donado. Esta disposición tendrá un plazo de diez años, contado a partir de la publicación de la presente ley.
