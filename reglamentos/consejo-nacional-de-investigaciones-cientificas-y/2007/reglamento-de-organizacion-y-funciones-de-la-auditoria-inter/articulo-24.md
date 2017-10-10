@@ -1,1 +1,0 @@
-Artículo 24.—Plan anual de trabajo. El Auditor Interno debe establecer un plan anual de trabajo congruente con la planificación estratégica, cuyo contenido abarque todas las actividades que se deben realizar durante el año, dicho plan ha de mantenerse actualizado y sustentarse adecuadamente en el presupuesto respectivo.

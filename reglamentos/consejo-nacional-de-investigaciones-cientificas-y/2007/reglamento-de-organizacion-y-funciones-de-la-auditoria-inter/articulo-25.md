@@ -1,1 +1,0 @@
-Artículo 25.—El Auditor Interno responderá por su gestión ante el Consejo Director y ante la Contraloría General de la República en lo que corresponda, presentará al menos un informe anual de su gestión, de acuerdo a lo previsto en la Ley General de Control Interno.

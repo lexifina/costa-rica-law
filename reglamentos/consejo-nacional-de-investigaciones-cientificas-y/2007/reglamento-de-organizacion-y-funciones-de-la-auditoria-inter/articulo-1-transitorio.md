@@ -1,1 +1,0 @@
-Transitorio único: La Auditoría interna contará con un plazo de tres meses a partir de la vigencia de este reglamento para actualizar el Manual de Políticas y Procedimientos de Auditoría, documento que se hará del conocimiento del Consejo Director y estará a disposición de cualquier interesado.

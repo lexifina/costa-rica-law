@@ -1,1 +1,0 @@
-Artículo 22.—Requisitos del Auditor Interno. El Auditor Interno deberá cumplir con todos los requisitos que exige la Ley General de Control Interno y otra normativa que al efecto emita la Contraloría General de la República. Además deberá conocer las disposiciones legales que rige la Administración Pública.
