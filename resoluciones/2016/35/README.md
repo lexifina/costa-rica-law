@@ -16,3 +16,4 @@ Metodología para la Fijación Ordinaria de Tarifas para el Servicio Remunerado 
 | 1 | 2016-03-07 | la propia norma |
 | 2 | 2016-11-17 | Resolución 174 (2016-11-17) |
 | 3 | 2016-11-23 | Resolución 131 (2016-11-23) |
+| 4 | 2017-10-10 | Resolución 207 (2017-10-10) |
