@@ -1,0 +1,2 @@
+TRANSITORIO 1: Todos los procesos de transferencia de fondos de la Municipalidad de Jiménez al Concejo Municipal de distrito de Tucurrique, al amparo de la Ley 9329, que se encuentren en proceso a la hora de entrar en vigencia el presente reglamento, deberán ajustarse a lo establecido en el presente reglamento. Finaliza la reunión a las diecisiete horas con treinta minutos exactos."
+Ciudad de Juan Viñas, 8 de agosto del 2017.

@@ -1,0 +1,3 @@
+CAPITULO CUARTO
+DE LA TRANSFERENCIA DE RECURSOS
+ARTÍCULO 7: Transferencia. Firme el acuerdo a que hace referencia el artículo cuatro del presente Reglamento, la administración municipal deberá realizar la gestión de desembolso en la cuenta que la Tesorería Nacional habilite específicamente para este fin, a nombre del Concejo de Distrito de Tucurrique. Se girará únicamente a esta cuenta. Esta cuenta ha de ser tramitada por parte del Concejo de Distrito de Tucurrique, realizando las gestiones pertinentes para su formalización y enviando la información necesaria para realizar la transferencia a la Municipalidad de Jiménez.
