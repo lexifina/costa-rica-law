@@ -1,0 +1,1 @@
+Artículo 3.-Entiéndase para los efectos del presente reglamento y de conformidad con la Ley General de Caminos Públicos la denominación vías de la red vial cantonal a aquellos Caminos Vecinales, Calles Locales y Caminos no clasificados del cantón de San Carlos.

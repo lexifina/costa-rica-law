@@ -1,0 +1,1 @@
+Articulo 5.- Todas aquellas solicitudes de recibo de un terreno para ser destinado a Vla de la Red Vial Cantonal en el Cantón de San Carlos, deberán realizar la gestión por escrito ante el Concejo Municipal de San Carlos, con la indicación del posible Interés Público que justifica la aceptación del terreno que se pretende donar.

@@ -1,0 +1,1 @@
+Articulo 18.-Aceptadas las donaciones de terrenos para la construcción de la Via de la Red Vial Cantonal por el Concejo Municipal de San Carlos, deberá indicar mediante acuerdo que se faculta al Alcalde Municipal a realizar todas y cada una de las gestiones legales y administrativas para la aceptación del terreno a dar en donación.

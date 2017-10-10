@@ -1,0 +1,1 @@
+Artículo 29.-La Resolución que emita la Administración, tendrá los Recursos Administrativos dentro de los tres días siguientes a la publicación de aquella en el Diario Oficial La Gaceta, sin que tal recurso impida la ejecutoriedad del acto administrativo.

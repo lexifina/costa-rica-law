@@ -1,0 +1,1 @@
+Artículo 9.- La superficie de rodamiento del terreno para ser destinado a la Vía Pública de la Red Vial Cantonal deberá ser acorde con lo que establezca la normativa relacionada con el fraccionamiento urbano y rural, según corresponda, se eximirá del cumplimiento del presente requisito únicamente en aquellos casos que así lo determine y autorice el Concejo Municipal.

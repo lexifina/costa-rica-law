@@ -1,0 +1,1 @@
+Artículo 20.-La entidad, persona física o jurídica donante contará con cuarenta y cinco días naturales a partir de la recepción del acuerdo para que haga efectiva la donación a la Municipalidad; caso contrario, se tendrá por desistida.

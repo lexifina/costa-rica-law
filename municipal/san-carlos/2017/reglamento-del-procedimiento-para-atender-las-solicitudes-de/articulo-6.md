@@ -1,0 +1,6 @@
+Artículo 6.- La solicitud deberá venir acompañada de la siguiente documentación:
+6.1 Si el donante es una persona física deberá indicar en la nota de solicitud de aceptación de donación sus calidades, exprese su ofrecimiento a favor de la Municipalidad para donar el inmueble, detallando el bien, fotocopia de la cédula de identidad certificada, así como lugar para oír notificaciones.
+a) Si el donante es una persona jurídica pública o privada deberá presentar Acuerdo de Asamblea de socios protocolizada, mediante la cual se autoriza al representante legal a realizar el ofrecimiento y donación de terreno destinado a calle pública a favor de la Municipalidad de San Carlos, Fotocopia de la cédula jurídica y fotocopia de la cédula de identidad del representante legal de la misma, así como lugar para oír notificaciones.
+b) Plano del terreno a donar para ser destinado a Vía Pública de la Red Vial Cantonal, debidamente inscrito ante el Catastro Nacional.
+c) Certificación registra! de la finca a la cual se habrá de segregar o destinar el terreno destinado a calle pública.
+d) En caso de que sea parte de una finca, la que va a donar, indicar que se requiere efectuar la segregación concomitantemente con la donación.

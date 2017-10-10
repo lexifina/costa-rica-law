@@ -1,0 +1,1 @@
+Articulo 21.-La elaboración y otorgamiento de las escrituras de traspaso de las donacíones1 en caso de que proceda, serán responsabilidad del Departamento Legal, para lo cual la sección o dirección correspondiente le remitirán los documentos necesarios.

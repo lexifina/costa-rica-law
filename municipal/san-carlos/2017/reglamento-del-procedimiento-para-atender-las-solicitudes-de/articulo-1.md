@@ -1,0 +1,10 @@
+MUNICIPALIDAD DE SAN CARLOS
+En virtud de que se ha cumplido con el plazo de los 10 días hábiles de consulta pública no vinculante, y al no existir consulta ni objeciones a la publicación de esta reforma en el Alcance Nº 212 del 1 º de setiembre del 2017, se procede a publicar de manera completa, íntegra y definitiva el siguiente Reglamento y sus Reformas el cual rige a partir de la presente publicación:
+REGLAMENTO DEL PROCEDIMIENTO PARA ATENDER LAS SOLICITUDES DE ACEPTACIÓN Y
+REAPERTURA DE VÍAS PÚBLICAS DE LA RED VIAL CANTONAL POR ESTRECHAMIENTO Y
+CIERRES DE LA MUNICIPALIDAD DE SAN CARLOS
+El Concejo Municipal del cantón de San Carlos, mediante Acta número 08, Artículo 04, en sesión celebrada el lunes, 11 de febrero del 2013, reformado mediante Acta número 41, Artículo 24, en sesión celebrada el lunes, lunes 26 de junio del 2017 y con fundamento en los artículos 169 y 170 de la Constitución Política, el inciso a) del artículo 4, inciso c) del artículo 13 y 43 de la ley 7794 del 30 de abril de 1998, denominado Código Municipal, ley 6227, llamada Ley General de la Administración Pública y el Decreto Ejecutivo 34624-MOPT, llamado Reglamento sobre el Manejo, Normalización y Responsabilidad para la Inversión Pública en la Red Vial Cantonal, establece el presente Reglamento del Procedimiento para atender las solicitudes de aceptación y Reapertura de Vías Públicas de la Red Vial Cantonal por estrechamiento y cierres de la Municipalidad de San Carlos, que se regirá por tas siguientes estipulaciones:
+CAPÍTULO/
+Requisitos y Tramitología para la presentación de solicitud de Aceptación de Terrenos
+Destinados a Calle Pública
+Articulo 1.-El Gobierno Local como parte de sus obligaciones y competencias debe accionar en el ordenamiento vial, crecimiento y distribución urbana, bajo el concepto de ciudades amigables, lo que genera la ineludible necesidad de consecución y apertura de nuevas vías de comunicación en el marco de una necesidad de interés público y no necesariamente de la iniciativa privada.

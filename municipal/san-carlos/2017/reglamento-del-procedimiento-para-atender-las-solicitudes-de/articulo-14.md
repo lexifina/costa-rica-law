@@ -1,0 +1,1 @@
+Artículo 14.-La Alcaldía Municipal con fundamente en la documentación contenida en el expediente administrativo, deberá elaborar una resolución administrativa mediante la cual remita el mismo ante el Concejo Municipal.

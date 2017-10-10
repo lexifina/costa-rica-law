@@ -1,0 +1,1 @@
+Articulo 2.-La ejecución del párrafo anterior, tiene una vía natural bajo el marco de la expropiación, proceso en el cual, ante la ausencia de la contención, se implementarla la figura de la donación pura y simple, por parte de los afectos del interés público, aspecto que se reglamenta mediante el presente capítulo del Reglamento.

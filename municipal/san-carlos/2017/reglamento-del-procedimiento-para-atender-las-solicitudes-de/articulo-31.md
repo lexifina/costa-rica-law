@@ -1,0 +1,2 @@
+Artículo 31.- La presente normativa entrará en vigencia a partir de su publicación como Procedimiento para atender las solicitudes de aceptación y Reapertura de Vías Públicas de la Red Vial Cantonal por estrechamiento y cierres de la Municipalidad de San Carlos y derogando y dejando sin efecto el anterior reglamento existente, así como cualquier otra reglamentación municipal que se le oponga.
+18 de setiembre de 2017.

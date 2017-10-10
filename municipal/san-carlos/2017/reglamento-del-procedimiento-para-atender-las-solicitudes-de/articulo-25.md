@@ -1,0 +1,1 @@
+Artículo 25.-La Administración a través de la Unidad Técnica de Gestión Vial Municipal deberá oír al supuesto infractor, por lo que habrá de conferírsele audiencia, para que en un plazo de quince días hábiles, se refiera a los hechos denunciados y aporte la prueba correspondiente.
