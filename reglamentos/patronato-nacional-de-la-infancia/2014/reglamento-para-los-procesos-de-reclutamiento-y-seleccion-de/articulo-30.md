@@ -1,1 +1,0 @@
-Artículo 30.—A juicio de la Administración podrá ser aplicable el período de prueba en los ascensos o traslados en que así convenga para garantizar mejor el servicio público. En tales casos, el funcionario (a) gozará de licencia de su puesto anterior durante el tiempo que dure dicho período de prueba, el cual será aplicable también a su sustituto.

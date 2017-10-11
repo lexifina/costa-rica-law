@@ -1,2 +1,0 @@
-Artículo 33.—Nombramiento por inopia. El nombramiento de tales funcionarios (as) será temporal, mientras no haya oferentes que reúnan la totalidad de los requisitos exigidos y sean declarados idóneos.
-En tales casos, el nombramiento deberá ser precedido por un acto administrativo motivado en el que se declare la condición de inopia, por parte de la Gerencia de Administración previa recomendación del Departamento de Recursos Humanos.
