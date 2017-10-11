@@ -1,0 +1,1 @@
+Artículo 5º—Como parte de la ejecución del Proyecto, el mismo destinará fondos para la formulación y ejecución de acciones que promuevan la compensación en forma directa e indirecta, por medio de alianzas con entes públicos o privados, sobre las cantidades diversas de árboles de la misma especie que requiera cortar para la construcción del Proyecto.
