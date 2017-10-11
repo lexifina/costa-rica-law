@@ -1,0 +1,1 @@
+Artículo 55 - Monto máximo de los proyectos a financiar. Para procurar una mayor equidad en la distribución de los recursos, el monto máximo a financiar a una pyme en particular es del 35% de último monto transferido anualmente al Fondo de Servicios de Desarrollo Empresarial.

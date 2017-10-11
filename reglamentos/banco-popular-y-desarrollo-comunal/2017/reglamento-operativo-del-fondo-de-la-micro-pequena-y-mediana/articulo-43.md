@@ -1,0 +1,1 @@
+Artículo 43. —De las readecuaciones y arreglos de pago. La Comisión Resolutiva de FODEMIPYME, conformado de la misma manera que se indica en el artículo 42 de este reglamento, podrá autorizar arreglos de pago, utilizando para dichos propósitos la normativa estipulada al respeto por el Banco y la Unidad Técnica.

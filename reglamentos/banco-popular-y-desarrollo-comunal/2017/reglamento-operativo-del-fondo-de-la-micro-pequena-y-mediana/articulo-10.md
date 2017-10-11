@@ -1,0 +1,1 @@
+Artículo 10: SOSTENIBILIDAD FINANCIERA DEL FODEMIPYME: A efectos de asegurar la estabilidad patrimonial del fondo, la Dirección Corporativa de Riesgo del Banco Popular establecerá un INDICE DE SUFICIENCIA PATRIMONIAL, bajo la mejores metodologías y técnicas al respecto.

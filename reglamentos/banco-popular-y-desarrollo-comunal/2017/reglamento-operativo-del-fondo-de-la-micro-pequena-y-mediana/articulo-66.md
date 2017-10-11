@@ -1,0 +1,1 @@
+Artículo 66. —Del sustituto. En caso de ausencia temporal del Director Ejecutivo, le sustituirá el Coordinador Operativo de la Unidad Técnica, con las mismas atribuciones y potestades del Director Ejecutivo.

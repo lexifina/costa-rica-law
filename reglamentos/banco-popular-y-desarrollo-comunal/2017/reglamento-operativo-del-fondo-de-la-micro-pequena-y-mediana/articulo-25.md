@@ -1,0 +1,1 @@
+Artículo 25. —Exenciones. Las operaciones que se realicen con recursos del FODEMIPYME, estarán exentas del tributo que pesa sobre la inscripción de documentos o garantías en el Registro Público; tal y como lo establece el artículo 50 de la Ley Nº 8634 “Ley Sistema Banca para Desarrollo”.

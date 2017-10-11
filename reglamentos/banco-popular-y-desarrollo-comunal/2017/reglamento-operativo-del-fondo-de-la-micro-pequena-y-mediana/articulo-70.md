@@ -1,0 +1,1 @@
+Artículo 70. —Facultades en Banca de Inversión. De conformidad con lo dispuesto por el artículo 8º de la Ley Nº 8262, la Unidad Técnica del FODEMIPYME podrá ejercer las actividades de la banca de inversión, al amparo de las mejores técnicas bancarias, procurando siempre el equilibrio necesario entre seguridad, rentabilidad y liquidez.

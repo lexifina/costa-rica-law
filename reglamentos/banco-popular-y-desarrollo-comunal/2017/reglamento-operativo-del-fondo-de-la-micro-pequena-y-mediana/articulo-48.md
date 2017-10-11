@@ -1,0 +1,9 @@
+Artículo 48. —Lineamientos para el uso del Fondo de Servicios de Desarrollo Empresarial.
+El Ministerio de Economía, Industria y Comercio, a través de la DIGEPYME, cada año fijará lineamientos claros en cuanto al direccionamiento de estos fondos y lo hará del conocimiento de la Unidad Técnica del FODEMIPYME a más tardar el 31 de enero de cada año, tal y como lo indica el artículo 38 del decreto 34.853.
+Con base en estos lineamientos la Unidad Técnica del FODEMIPYME deberá elaborar una metodología para la presentación y valoración de los programas o proyectos y elaborará una recomendación técnica a la Junta Directiva Nacional del Banco Popular, la cual es la responsable de aprobar la asignación de los recursos utilizando los documentos denominados Ficha del Proyecto y Opinión del Evaluador, que se incluyen en este reglamento como Anexo Nº 3 y Anexo Nº 4 respectivamente. La Unidad Técnica podrá solicitar información adicional a efecto de cumplir con la responsabilidad asignada de calificar a cada proyecto.
+Para la elaboración de los lineamientos se tomarán en consideración al menos los siguientes elementos:
+a) Los objetivos de la Ley Nº 8262, su Reglamento y modificaciones.
+b) Los objetivos de la Ley Nº 8634, su Reglamento y modificaciones.
+c) Los objetivos del Plan Nacional de Desarrollo en materia de apoyo a la micro, pequeña y mediana empresa.
+d) Los lineamientos emanados en el Consejo Asesor PYME, establecido en la Ley Nº 8262.
+e) Las necesidades que la Red de Apoyo a la PYME, conformada al amparo del artículo 2º, inciso b) de la Ley Nº 8262, visualice y recomiende como necesarios.

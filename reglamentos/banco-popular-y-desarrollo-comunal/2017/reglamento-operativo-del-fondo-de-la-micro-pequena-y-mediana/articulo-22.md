@@ -1,0 +1,2 @@
+Artículo 22 —Subrogación de derechos crediticios. Una vez pagado el aval, el FODEMIPYME, subrogará los derechos crediticios al ente que otorgó el crédito, en la proporción en que dicha operación fue avalada. Sin embargo, corresponderá al ente que otorgó el crédito realizar todas las gestiones de cobro judicial, con la debida diligencia, hasta la resolución final de este.
+Todos los gastos que genere el cobro serán a cargo del avalista.

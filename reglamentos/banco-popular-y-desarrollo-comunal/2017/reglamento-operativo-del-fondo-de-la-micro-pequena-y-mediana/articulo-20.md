@@ -1,0 +1,1 @@
+Artículo 20. —Confidencialidad. La Unidad Técnica garantizará la confidencialidad con respecto a la información de los clientes solicitantes de avales y garantías y de las entidades operadoras, sin perjuicio de lo establecido en la normativa costarricense.

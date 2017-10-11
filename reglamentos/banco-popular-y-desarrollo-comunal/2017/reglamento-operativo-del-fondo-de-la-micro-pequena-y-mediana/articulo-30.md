@@ -1,0 +1,1 @@
+Artículo 30. —Recuperaciones de montos honrados. De recuperarse parcial o totalmente el monto del aval por parte de la entidad operadora, esta deberá trasladar esos recursos al FODEMIPYME, dentro de los ocho días hábiles posteriores a que los haya recibido.

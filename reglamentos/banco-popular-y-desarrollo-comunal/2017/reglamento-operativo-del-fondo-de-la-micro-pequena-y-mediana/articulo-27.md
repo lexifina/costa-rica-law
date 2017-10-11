@@ -1,0 +1,2 @@
+Artículo 27. —Monitoreo y control. Con base en los informes mensuales que los operadores deben entregar a la Unidad Técnica, esta deberá elaborar los mecanismos de monitoreo que permitan prever siniestros, suspender el otorgamiento de nuevos avales, llevar un control estadístico y asegurar el cumplimiento de los objetivos de la Ley Nº 8262.
+La Unidad Técnica podrá realizar visitas de revisión y seguimiento y auditorías a los operadores en cualquier momento que lo considere pertinente.

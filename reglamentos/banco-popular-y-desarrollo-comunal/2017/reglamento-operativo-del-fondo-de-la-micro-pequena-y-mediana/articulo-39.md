@@ -1,0 +1,1 @@
+Artículo 39. —Seguimiento y cobro. La Unidad Técnica deberá establecer los mecanismos necesarios para controlar la morosidad de las operaciones de crédito, y tomar las acciones que correspondan, incluyendo la identificación y eventual otorgamiento de algún tipo de servicio no financiero, requerido por el cliente para mejorar su condición.
