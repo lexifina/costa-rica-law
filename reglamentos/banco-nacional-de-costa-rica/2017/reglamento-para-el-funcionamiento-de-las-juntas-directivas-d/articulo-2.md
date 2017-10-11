@@ -1,0 +1,1 @@
+Artículo 2.- De las subsidiarias. El Conglomerado Banco Nacional de Costa Rica (BNCR) está constituido por el Banco Nacional de Costa Rica y las subsidiarias de su exclusiva propiedad: BN Vital Operadora de Planes de Pensiones Complementarias S.A.; BN Valores Puesto de Bolsa S.A.; BN Sociedad Administradora de Fondos de Inversión y BN Sociedad Corredora de Seguros S.A.

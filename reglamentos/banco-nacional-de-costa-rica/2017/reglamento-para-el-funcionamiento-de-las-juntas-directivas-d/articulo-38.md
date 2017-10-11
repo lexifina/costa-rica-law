@@ -1,0 +1,1 @@
+Artículo 38.-Custodia del libro de actas. Una vez finalizado el libro de actas deberá ser debidamente encuadernado, empastado, rotulado y guardado en un lugar apropiado que asegure al máximo su debida custodia y conservación. Los tomos finalizados deberán contar con su respectivo respaldo electrónico.

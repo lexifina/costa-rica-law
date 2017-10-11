@@ -1,0 +1,1 @@
+Artículo 29.-Publicidad de las actas. Las actas de las juntas directivas son públicas, no obstante, cuando las actas contengan resoluciones o deliberaciones que hayan sido declaradas confidenciales, la sección respectiva del acta deberá ser suprimida de cualquier reproducción solicitada por terceros o publicada.

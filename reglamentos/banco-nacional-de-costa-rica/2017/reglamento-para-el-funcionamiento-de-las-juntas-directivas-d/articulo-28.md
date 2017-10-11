@@ -1,0 +1,1 @@
+Artículo 28.-Firmeza de los acuerdos. Todos los acuerdos que adopten las juntas directivas serán declarados firmes al momento de aprobarse el acta de la sesión correspondiente, salvo que de conformidad con el artículo 56° inciso 2) de la LGAP, en caso de estimarlo necesario o conveniente, dos tercios de la totalidad de sus miembros declaren la firmeza de un acuerdo.

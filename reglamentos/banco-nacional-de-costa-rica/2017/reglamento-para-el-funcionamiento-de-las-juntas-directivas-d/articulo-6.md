@@ -1,0 +1,1 @@
+Artículo 6.- Del nombramiento del auditor interno. Las juntas directivas deberán nombrar el auditor interno, de conformidad con lo dispuesto en la Ley General de Control Interno y la Ley Orgánica de la Contraloría General de la República.

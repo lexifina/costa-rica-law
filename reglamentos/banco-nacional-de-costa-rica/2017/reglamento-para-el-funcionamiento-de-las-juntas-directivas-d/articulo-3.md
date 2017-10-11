@@ -1,0 +1,1 @@
+Artículo 3.- De la conformación de las juntas directivas. Cada subsidiaria contará con una junta directiva integrada por cinco miembros (presidente, vicepresidente, secretario, tesorero y vocal) designados por la Junta Directiva General del Banco constituida en Asamblea de Accionistas, por un plazo de dos años, pudiendo ser reelectos.

@@ -1,0 +1,4 @@
+CAPITULO VI
+DE LAS ACTAS Y SU CONTENIDO
+Artículo 23.- De las Actas de las sesiones de las juntas directivas. La redacción de las actas de las sesiones estará a cargo del Secretario General del Banco, quien para ese efecto asistirá a todas las sesiones, salvo aquellos casos en que las juntas directivas dispongan otra cosa.
+De todos los acuerdos y resoluciones de las juntas directivas deberá quedar constancia clara y precisa en el libro de actas respectivo, al cuidado de la Gerencia de la subsidiaria respectiva, quien tendrá la obligación de hacer legalizar los libros antes de iniciar su uso, cuidar por que éstos se mantengan limpios, ordenados y completos, sin permitir en ellos borrones ni tachaduras, ya que cualquier corrección por error deberá hacerse por nota al final del acta respectiva. Asimismo, la Gerencia se encargará de recoger las firmas de los directores y funcionarios asistentes a las sesiones.

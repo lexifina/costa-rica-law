@@ -1,0 +1,1 @@
+Artículo 43.- De la interpretación e integración. El presente Reglamento se deberá interpretar e integrar tomando en cuenta lo dispuesto en el Reglamento para el Funcionamiento de la Junta Directiva General del Banco Nacional de Costa Rica y en las demás disposiciones del ordenamiento jurídico.
