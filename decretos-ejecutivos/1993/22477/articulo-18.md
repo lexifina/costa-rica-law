@@ -1,1 +1,0 @@
-Artículo 18.—El arribo por mar o desembarco solo se permite en los sitios provistos de un centro de vigilancia permanente. En casos de emergencia y al amparo de las leyes internacionales sobre este sentido, se harán las correspodientes excepciones.

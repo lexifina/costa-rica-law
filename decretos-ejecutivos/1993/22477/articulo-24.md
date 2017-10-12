@@ -1,1 +1,0 @@
-Artículo 24.—Las compañías turísticas y los visitantes deben sujetarse a lo estipulado en este Reglamento y a las indicaciones que oportunamente les hagan los funcionarios del áreas, acerca de la conservación de los recursos del Parque.

@@ -1,1 +1,0 @@
-Artículo 23.—Para operar como guía turístico en el área, deberá contarse con un carne especial que lo acredite como tal. Este será extendido por el Área de Conservación Osa. Estos guías tendrán la obligación de cumplir con lo que establece el presente reglamento y deberán informar a sus clientes sobre las disposiciones del mismo.

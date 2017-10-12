@@ -1,2 +1,0 @@
-Artículo 8°—En el área esta prohibido el uso de caballos u otros animales de tiro.
-Las excepciones del referido horario de caminatas, solo podrán ser autorizadas por el encargado del puesto de vigilancia, de acuerdo con las circunstancias del caso y la justificación de la salvedad, estando este y los funcionarios del puesto facultados para restringir las caminatas de los visitantes en todas las rutas, cuando medien condiciones climáticas o de otro tipo, que así lo ameriten.

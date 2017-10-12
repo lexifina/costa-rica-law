@@ -1,1 +1,0 @@
-Artículo 2°—Para ingresar al área y permanecer en ella es obligatorio cancelar la cuota diaria de admisión y las que correspondan, de acuerdo con los servicios recibidos. Las excepciones de este artículo serán exclusivamente las contempladas en los decretos tarifarios respectivos.

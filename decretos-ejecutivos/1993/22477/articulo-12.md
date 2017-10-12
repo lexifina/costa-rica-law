@@ -1,1 +1,0 @@
-Artículo 12.—En el área está prohibido el consumo de licor y otras drogas, de acuerdo con lo establecido en la Ley de Sicotrópicos. Cuando sea evidente que una persona está bajo el efecto de esos productos, se le negará el derecho de admisión.

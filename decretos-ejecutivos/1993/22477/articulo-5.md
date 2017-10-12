@@ -1,1 +1,0 @@
-Artículo 5°—Se permite pernoctar únicamente contiguo a los centros de vigilancia del área, en los sitios demarcados para tal fin, o en las propias casas cuando así se conviniera por parte de la administración. Acampar en la ruta de los senderos o en cualquier lugar distante en los citados centros, es prohibido.
