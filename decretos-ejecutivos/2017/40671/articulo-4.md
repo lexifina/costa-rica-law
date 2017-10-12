@@ -1,0 +1,1 @@
+Artículo 4º—Deróguese el inciso f) del artículo 17 del Decreto Ejecutivo número 35366-H de fecha 24 de junio de 2009 y sus reformas, publicado en el Diario Oficial La Gaceta número 136 de fecha 15 julio de 2009.

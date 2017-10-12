@@ -1,0 +1,2 @@
+Artículo 2º—Modificase los incisos d) del segundo párrafo, del tercer párrafo y del cuarto párrafo del artículo 20bis, del Decreto Ejecutivo número 35366-H de fecha 24 de junio de 2009 y sus reformas, publicado en el Diario Oficial La Gaceta número 136 de fecha 15 de julio de 2009, para que se lean de la siguiente manera:
+“d) Recopilar y analizar información estadística e indicadores de desempeño relacionados con el ámbito de acción del Área de Ingresos, así como de la gestión que realizan las dependencias que la conforman.”
