@@ -54,3 +54,4 @@ Reglamento del Seguro de Invalidez Vejez y Muerte de la Caja Costarricense de Se
 | 39 | 2016-07-28 | Reglamento 8856 (2016-07-28) |
 | 40 | 2017-06-01 | Reglamento 8908 (2017-06-01) |
 | 41 | 2017-06-29 | Reglamento 8913 (2017-06-29) |
+| 42 | 2017-10-12 | Reglamento 8931 (2017-10-12) |
