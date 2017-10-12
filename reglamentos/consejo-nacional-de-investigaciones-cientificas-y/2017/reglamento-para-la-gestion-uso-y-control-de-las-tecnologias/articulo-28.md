@@ -1,0 +1,7 @@
+Artículo 28. La institución podrá contratar servicios a terceros para la implementación y mantenimiento de software e infraestructura interna, siempre y cuando observe las siguientes condiciones:
+a. La política relativa a la contratación de productos de software e infraestructura, debe estar justificada en razones de fuerza mayor, tales como, la imposibilidad material de realizar dichas actividades por parte de la institución.
+b. La contratación debe estar precedida, de un procedimiento o guía para la definición de los "términos de referencia" que incluyan las especificaciones y requisitos o condiciones requeridas o aplicables, así como para la evaluación de ofertas.
+c. De antemano a la evaluación de las propuestas presentadas, deben establecerse, verificar y aprobar formalmente los criterios, términos y conjunto de pruebas de aceptación de lo contratado, ya sean instalaciones, hardware o software.
+d. Se debe implementar un proceso de transferencia tecnológica que minimice la dependencia de la organización respecto de terceros contratados para la implementación y mantenimiento de software e infraestructura tecnológica.
+e. Se debe vigilar que los servicios contratados sean congruentes con las políticas relativas a calidad, seguridad y seguimiento establecidas por la organización.
+f. Asignar a un responsable de la Unidad de Tecnologías de Información y Comunicación, con las competencias necesarias que evalúe periódicamente la calidad y cumplimiento oportuno de los servicios contratados.

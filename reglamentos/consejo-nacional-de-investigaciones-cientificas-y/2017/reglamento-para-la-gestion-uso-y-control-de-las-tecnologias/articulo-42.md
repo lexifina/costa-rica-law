@@ -1,0 +1,1 @@
+Artículo 42. El Secretario Ejecutivo, mediante solicitud por escrito al funcionario, podrá requerirle la clave de correo electrónico institucional, con el fin de accesar a la información contenida en este.

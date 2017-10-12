@@ -1,0 +1,1 @@
+Artículo 24. Para realizar las labores descritas en la norma anterior, el CGI deberá ajustarse a los procedimientos de contratación administrativa que legalmente sean procedentes, privilegiando que las condiciones de compra se basen en los postulados de oportunidad; continuidad y eficiencia en la prestación del servicio público y transparencia.

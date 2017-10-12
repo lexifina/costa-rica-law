@@ -1,0 +1,5 @@
+Artículo 45. Para el envío de mensajes se aplicarán las siguientes reglas:
+a) Se utilizará siempre el campo de asunto, a fin de resumir el tema del mensaje. No se enviarán mensajes a personas desconocidas, a menos que se trate de un asunto oficial que las involucre. No se enviarán mensajes a listas globales, a menos que el propietario sea la persona autorizada por el superior para enviar mensajes que involucren a toda la institución.
+b) Se evitará enviar mensajes con archivos adjuntos a grupos de usuarios. Para estos efectos se utilizarán las Carpetas Públicas autorizadas, sea en la Red o en el Servidor de correos, de acuerdo con las políticas establecidas.
+c) La divulgación de mensajes de interés general, como invitaciones a actividades internas, sociales, de capacitación u otras, deberá seguir el procedimiento de comunicación definido por el Equipo de Comunicación y disponible en Intranet.
+d) EL dueño de la cuenta asumirá la responsabilidad por el contenido de los correos y los problemas que ocasione el uso indebido de la herramienta

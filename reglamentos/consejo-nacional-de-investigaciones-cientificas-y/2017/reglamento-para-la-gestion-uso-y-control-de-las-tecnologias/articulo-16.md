@@ -1,0 +1,2 @@
+Artículo 16. De la Licencia del software de los equipos de cómputo.
+Todo software instalado debe contar con la licencia respectiva (GPL, Propietaria), la cual debe encontrarse al día. La Unidad de TIC's es la encargada de gestionar la renovación de las licencias del software base ante la Unidad de recursos Materiales y Servicios o ante quien corresponda. La adquisición del software diferente a la base deberá contar con la aprobación escrita de la Unidad de TIC's.

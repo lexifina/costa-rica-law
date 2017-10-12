@@ -1,0 +1,1 @@
+Artículo 40. La cuenta asignada a un usuario es personal, por lo tanto, no puede ser compartida o transferida a otro funcionario. El usuario será responsable del uso que haga cualquier otra persona sin su consentimiento.

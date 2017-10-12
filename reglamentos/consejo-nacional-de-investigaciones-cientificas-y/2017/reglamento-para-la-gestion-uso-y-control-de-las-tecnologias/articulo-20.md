@@ -1,0 +1,1 @@
+Artículo 20- Todos los equipos de cómputo de la Institución deberán utilizar como protector de pantalla las imágenes autorizadas oficialmente por la Unidad de Tecnologías de Información y Comunicación.

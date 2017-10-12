@@ -1,0 +1,2 @@
+Artículo 48. Del contenido de la navegación
+La Unidad de TICs, no ejercerá ningún control sobre el contenido de la información que transite por la red o el Internet de quien lo utilice, ni tampoco ejercerá ningún control sobre el contenido de los documentos electrónicos que podrían estar almacenados en la computadora, o dispositivos que son propiedad o han sido asignados a los usuarios, a excepción de programas o archivos perjudiciales que sean detectados y eliminados por el antivirus institucional. Queda bajo la entera responsabilidad del usuario el contenido de estos.

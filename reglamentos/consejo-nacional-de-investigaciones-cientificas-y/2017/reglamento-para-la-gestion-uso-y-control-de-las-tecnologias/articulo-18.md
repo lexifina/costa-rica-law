@@ -1,0 +1,1 @@
+Artículo 18. Los colaboradores deben solicitar todo software que requieren a la Unidad de TIC, que debe velar por el respeto a la legislación sobre propiedad intelectual y por la seguridad de las aplicaciones que se instalan.

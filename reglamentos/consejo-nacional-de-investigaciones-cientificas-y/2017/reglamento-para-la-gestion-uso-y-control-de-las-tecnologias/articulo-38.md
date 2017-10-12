@@ -1,0 +1,1 @@
+Artículo 38. El usuario debe cambiar su clave de acceso periódicamente para mayor seguridad, por lo cual esta caducará cada seis meses. Durante los tres días anteriores a la fecha de vencimiento, el usuario recibirá una notificación de alerta del sistema.

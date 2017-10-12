@@ -1,0 +1,1 @@
+Artículo 21- La Unidad de Tecnologías de Información y Comunicación podrá hacer auditoría de los equipos de cómputo, ya sea a solicitud del coordinador de la Unidad o por su propia iniciativa, siempre que esté presente la persona responsable del equipo.

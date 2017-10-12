@@ -1,0 +1,1 @@
+Artículo 52. Los funcionarios encargados de la administración de los servIc1os deberán guardar confidencialidad y discrecionalidad sobre la información de las actividades en línea. Por ningún motivo proporcionarán información a personas no autorizadas.

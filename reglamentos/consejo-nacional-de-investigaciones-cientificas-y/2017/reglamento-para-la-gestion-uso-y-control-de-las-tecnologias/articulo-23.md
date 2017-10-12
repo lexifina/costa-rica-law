@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la adquisición y mantenimiento del equipo de cómputo y aplicaciones informáticas
+Artículo 23. EL Comité Gerencial de Informática (CGI) descrito en el Capítulo IV de este reglamento, aprobará el presupuesto, las ampliaciones, modificaciones o adquisición de equipo de cómputo, así como la actualización y compra de programas informáticos, con base en las recomendaciones técnicas de la Unidad de Tecnologías de Información y Comunicación, única instancia organizacional autorizada para la distribución de versiones actualizadas. El detalle de los programas informáticos será actualizado conforme se adquieren nuevas versiones, lo cual se comunicará a las distintas unidades.

@@ -1,0 +1,1 @@
+Artículo 63. La imposición de las sanciones laborales administrativas descritas en los artículos anteriores que componen este capítulo, son independientes a la posible persecución penal que sea procedente en los órganos jurisdiccionales de la República, si se configurasen actividades delictivas de acuerdo a la ley.

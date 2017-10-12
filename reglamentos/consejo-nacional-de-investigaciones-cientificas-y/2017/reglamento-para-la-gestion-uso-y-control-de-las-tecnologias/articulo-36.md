@@ -1,0 +1,1 @@
+Artículo 36. Sólo el personal autorizado de la Unidad de Tecnologías de Información y Comunicación podrá instalar los servicios de Internet, correo electrónico y acceso a los servidores de archivo locales, para lo cual se llevarán los controles respectivos, siguiendo el procedimiento TC -003-02 Seguridad Informática.

@@ -1,0 +1,2 @@
+Artículo 25. En el caso de fallas técnicas del equipo de cómputo, la Unidad de Tecnologías de Información y Comunicación realizará un diagnóstico preliminar, con el objetivo de procurar la solución, o en su defecto, gestionar los trámites para su reparación ante la Unidad de Recursos Materiales y Servicios.
+Los equipos de cómputo no podrán ser cambiados, abiertos o reparados por funcionarios del CONICIT que no pertenezcan a la Unidad de Tecnologías de Información y Comunicación. Asimismo, sus componentes no podrán ser removidos por personal no autorizado por dicha Unidad.

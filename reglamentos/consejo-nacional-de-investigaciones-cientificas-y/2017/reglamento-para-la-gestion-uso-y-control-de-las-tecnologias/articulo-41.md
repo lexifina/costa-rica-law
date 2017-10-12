@@ -1,0 +1,1 @@
+Artículo 41. La asignación de una cuenta de correo electrónico institucional compromete y obliga al usuario propietario a aceptar las normas establecidas por la institución para su uso y a someterse a ellas.

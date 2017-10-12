@@ -1,0 +1,1 @@
+Artículo 10. El equipo de cómputo instalado en la Institución debe utilizarse únicamente para gestiones institucionales, no podrá ser utilizado para ejecutar aplicaciones informáticas ajenas al CONICIT, ni para reproducir información digitalizada que no corresponden a la institución.

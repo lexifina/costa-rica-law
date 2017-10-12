@@ -1,0 +1,1 @@
+Artículo 51. Ante una demanda de servicios que exceda la capacidad instalada, será responsabilidad de la Unidad de Tecnologías de Información y Comunicación recomendar al Comité Gerencial de Informática el establecimiento de prioridades, según su relación con actividades esenciales para las funciones sustantivas de la Institución.

@@ -1,0 +1,1 @@
+Artículo 59. El jerarca debe establecer y mantener el sistema de control interno asociado con la gestión de las TI, evaluar su efectividad y cumplimiento, manteniendo un registro de las excepciones que se presenten y de las medidas correctivas implementadas.

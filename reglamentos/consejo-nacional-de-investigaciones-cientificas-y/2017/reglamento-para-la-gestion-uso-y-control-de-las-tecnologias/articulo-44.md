@@ -1,0 +1,1 @@
+Artículo 44. El usuario es responsable del respaldo de sus correos. Para lo cual se puede consultar en la Intranet el "Instructivo para respaldo de correos". En caso de ser necesario, la Unidad de Tecnologías de Información y Comunicación brindará el soporte que requiera.

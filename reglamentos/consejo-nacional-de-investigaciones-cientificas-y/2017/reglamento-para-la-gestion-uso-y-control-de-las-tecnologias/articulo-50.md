@@ -1,0 +1,1 @@
+Artículo 50. La Unidad de Tecnologías de Información y Comunicación, pondrá en funcionamiento herramientas de control que permitan detectar, analizar y bloquear accesos no permitidos, (aquellos que no guarden relación con aspectos de trabajo), que pongan en riesgo la seguridad de los recursos informáticos y atenten contra su buen desempeño.
