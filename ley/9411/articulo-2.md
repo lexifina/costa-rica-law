@@ -17,3 +17,4 @@ Artículo 2°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 40528 del 14 de julio de 2017)
 (Modificado por el artículo 1° del decreto ejecutivo N° 40633 del 25 de agosto del 2017)
 (Modificado por el artículo 1° del decreto ejecutivo N° 40670 del 6 de setiembre de 2017)
+(Modificado por el artículo 1° del decreto ejecutivo N° 40660 del 11 de setiembre del 2017)
