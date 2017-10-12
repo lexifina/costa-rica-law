@@ -1,0 +1,15 @@
+Artículo 8º—Responsabilidades del Conapdis en cuanto al Modelo de Gestión. Por medio del Modelo de Gestión de la Ponadis, le corresponde al Conapdis en su calidad de ente rector en discapacidad, lo siguiente:
+a) Coordinar con el Ministerio de Planificación Nacional y Política Económica (Mideplan), la inclusión de acciones afirmativas estratégicas y recursos, en los instrumentos y diferentes ámbitos del Sistema de Planificación Nacional: nacional, sectorial, regional y local; dirigidos a mejorar la calidad de vida y el estado de goce de derechos por parte de la población con discapacidad.
+b) Coordinar con el Ministerio de Planificación Nacional y Política Económica la asesoría conjunta para que las políticas públicas incorporen el Enfoque de Derechos de las Personas con Discapacidad.
+c) Incidir en la incorporación del enfoque de derechos de las personas con discapacidad en las políticas, planes, programas, proyectos y servicios; para mejorar sistemáticamente el nivel de inclusividad de los mismos, en estricto apego al modelo social de la discapacidad; como una forma de impulsar el desarrollo inclusivo de esta población.
+d) Gestionar la Política Nacional en Discapacidad (Ponadis) como el marco político de largo plazo que establece el Estado costarricense, para lograr la efectiva promoción, respeto y garantía de los derechos de las personas con discapacidad.
+e) Garantizar la participación de la población con discapacidad en el proceso de gestión de la Ponadis.
+f) Articular y coordinar el accionar de los diferentes actores -públicos y privados-involucrados en los esfuerzos para el cumplimiento de derechos de la población con discapacidad, por medio de la implementación de la Ponadis.
+g) Diseñar e implementar estrategias para la transversalización del enfoque derechos de las personas con discapacidad y la incidencia para que el resto de las políticas públicas sean inclusivas respecto de esta población.
+h) Promover el incremento de la inversión estatal en discapacidad e incidir en su modulación, a favor del mejoramiento de las condiciones de vida y respeto de derechos de la población con discapacidad.
+i) Dar seguimiento a la ejecución de la Ponadis y su Plan de Acción, por medio del Sistema de Información Costarricense en Discapacidad - SICID, la batería de indicadores de la Ponadis y el Índice de Gestión en Discapacidad y Accesibilidad - IGEDA, para lo cual desarrollará las plataformas electrónicas y portales pertinentes.
+j) Asesorar a las entidades públicas para el cumplimiento de los compromisos adquiridos en el Plan de Acción de la Ponadis.
+k) Asesorar a las organizaciones de personas con discapacidad para la incidencia en el proceso de gestión de la Ponadis y la exigibilidad de cuentas sobre su cumplimiento.
+l) Solicitar a las entidades públicas informes de cumplimiento de la Ponadis y su Plan de Acción una vez al año.
+m) Elaborar los informes de cumplimiento de la Ponadis y su Plan de Acción
+n) Informar y rendir cuentas anualmente, a los habitantes del país, especialmente a la población con discapacidad; sobre los avances en la implementación de la Ponadis y su Plan de Acción.

@@ -1,0 +1,1 @@
+Artículo 2º—Propósito de la Ponadis. La Ponadis es el marco de referencia, articulación y orientación para incidir en la gestión de políticas públicas inclusivas, que permitan el cumplimiento de derechos de las personas con discapacidad.
