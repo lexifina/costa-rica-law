@@ -1,0 +1,1 @@
+Artículo 6º.-Prórroga del plazo para resolver permisos. Cuando el permiso solicitado lo amerite por su complejidad técnica, la Autoridad Administrativa CITES podrá dar una respuesta parcial al peticionario indicando dicha situación, pudiendo prorrogar de oficio un plazo adicional máximo de 10 días hábiles para la resolución definitiva del trámite.

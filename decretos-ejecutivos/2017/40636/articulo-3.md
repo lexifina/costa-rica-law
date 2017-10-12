@@ -1,0 +1,16 @@
+Artículo 3º.-Serán funciones de la Autoridad Administrativa las siguientes:
+a) Autorizar la importación, la exportación, reexportación, de especies de interés pesquero o acuícola que se encuentren en los Apéndices I, II y III de dicha Convención. En el caso de las especies incluidas en los apéndices I y II deberá contar con el dictamen o asesoramiento de la Autoridad Científica y la documentación de respaldo que el lncopesca suministre.
+b) Certificar, con base en la información que el Incopesca facilite, la introducción procedente del mar de las especies incluidas en los Apéndices I y II.
+c) Velar por el cumplimiento de las disposiciones CITES para las especies incluidas en el apéndice III.
+d) Inscribir ante la Secretaría de CITES en Ginebra los criaderos de especies de interés pesquero o acuícola incluidas en el Apéndice I.
+e) Determinar junto con las Direcciones del SENASA pertinentes, que los especímenes de especies de interés pesquero o acuícola que se encuentren en los Apéndices I y II, a importar fueron legalmente adquiridos con arreglo a las disposiciones de la Convención y que exista un permiso válido por el país exportador.
+f) Consultar a la Secretaría CITES cuando existan dudas acerca dictámenes de la Autoridad Científica.
+g) No aceptar ningún permiso de exportación o importación de especímenes de especies de interés pesquero o acuícola que se encuentren en los Apéndices I y II, de una Parte que no haya designado al menos una Autoridad Científica.
+h) Representar al país en todo lo relacionado con la Convención CITES y su implementación, cuando se trate de especies de interés pesquero y acuícola.
+i) Coordinar la comunicación con la Secretaría CITES, las Partes y agencias internacionales.
+j) Coordinar con otros departamentos gubernamentales y de observancia para la debida aplicación de la Convención CITES.
+k) Elaborar informes anuales a la Secretaría CITES sobre el número y la naturaleza de los permisos y certificados emitidos; los Estados con los cuales se realizó dicho comercio; las cantidades y los tipos de especímenes, los nombres de las especies incluidas en los Apéndices I, II, y III y, cuando sea apropiado, el tamaño y sexo de los especímenes de especies de interés pesquero o acuícola que se encuentren en los Apéndices I, II y III de dicha Convención.
+l) Elaborar informes bianuales a la Secretaría CITES sobre medidas legislativas, reglamentarias y administrativas adoptadas con el fin de cumplir con las disposiciones de la Convención de las especies de interés pesquero y acuícola.
+m) Coordinar con la Autoridad Científica todo lo relacionado con aquellas especies de interés pesquero o acuícola, que se encuentren en los Apéndices I, II y III, de conformidad con la Convención sobre el Comercio Internacional de Especies Amenazadas de Fauna y Flora Silvestres (Convención CITES).
+n) Proponer la emisión de normativa que permita, cuando así corresponda a la autoridad administrativa, velar por el cabal cumplimiento de la Convención y sus Resoluciones.
+o) Establecer los mecanismos de coordinación interinstitucional para la implementación de este Decreto. Dentro de esta coordinación se deberá tomar en cuenta la elaboración de los procedimientos generales de ejecución de las disposiciones de esta normativa, debiéndose contar necesariamente con la participación de la Autoridad Científica y del INCOPESCA.
