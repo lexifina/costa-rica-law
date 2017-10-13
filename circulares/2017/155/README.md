@@ -13,3 +13,4 @@ Obligación de enviar mensualmente al Patronato de Construcciones, Instalaciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-09-27 | la propia norma |
+| 2 | 2017-10-13 | Circular 169 (2017-10-13) |
