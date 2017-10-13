@@ -1,0 +1,10 @@
+Artículo 34.- Obligaciones de los usuarios del servicio de radioaficionado y de los operadores de la banda ciudadana. Todos los permisionarios de acuerdo a su clasificación, deber cumplir con las siguientes obligaciones:
+a. Operar de acuerdo con Jo dispuesto en el Plan Nacional de Atribución de Frecuencias, PN AF y sus reformas.
+b. Respetar lo establecido en el Manual del Radioaficionado de Costa Rica vigente.
+c. Pagar el respectivo canon de reserva del espectro radioeléctrico definido previamente por la SUTEL.
+d. Salvo casos de emergencia, las estaciones de radioaficionado solamente podrán comunicarse con otras de igual naturaleza.
+e. Las estaciones de radioaficionado no aceptarán ni transmitirán mensajes escritos o de palabra si de esta actividad se deriva algún beneficio indirecto o monetario.
+f. Los radioaficionados debidamente autorizados pueden facilitar el uso del micrófono de su estación a personas sin licencia siempre y cuando los cambios y la identificación de la estación estén a cargo del radioaficionado, y no se incumpla con lo establecido en los incisos e) del presente artículo y q) del artículo 35 de este Reglamento.
+g. La señal de transmisión de una estación debe ser estable y libre de cualquier tipo de radiación no esencial. Las radiaciones parásitas, armónicas o combinaciones de ambas deberán atenuarse en la medida de lo posible mediante la utilización de filtros u otros tipos de equipos que cumplan con ese fin, y en caso de interferencia a otros servicios, debe suspender las transmisiones sin más trámite que la notificación de la SUTEL, si se comprobare técnicamente que es la causante de la interferencia. El radioaficionado podrá reanudar la operación de su estación una vez que la SUTEL compruebe que la causa que ocasionaba la interferencia ha sido corregida.
+h. Las comunicaciones referentes a emergencias, tendrán prioridad sobre cualquier otra comunicación que se realice en esos momentos en cualquier frecuencia o canal.
+i. Cooperar en situaciones de emergencias con las instituciones encargadas de la atención de las mismas.

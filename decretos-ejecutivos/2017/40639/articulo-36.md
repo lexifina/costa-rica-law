@@ -1,0 +1,1 @@
+Artículo 36.- Régimen sancionatorio. En caso de no cumplirse con las disposiciones y obligaciones establecidas en este Reglamento, en el marco jurídico vigente y en el título habilitante respectivo, el administrado queda sujeto a lo dispuesto en el régimen sancionatorio establecido en la Ley N º 8642, Ley General de Telecomunicaciones.

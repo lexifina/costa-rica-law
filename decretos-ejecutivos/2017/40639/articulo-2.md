@@ -1,0 +1,1 @@
+Artículo 2.- Ámbito de aplicación. Se encuentran sometidas al presente Reglamento todas las personas físicas, jurídicas, públicas o privadas, nacionales o extranjeras que aspiren o utilicen las bandas de frecuencias para la operación de la banda ciudadana y el servido de radioaficionado en cualquiera de sus categorías dentro del territorio nacional.

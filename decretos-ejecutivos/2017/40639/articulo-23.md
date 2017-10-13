@@ -1,0 +1,7 @@
+CAPÍTULO IV
+PROCEDIMIENTO PARA OBTENER PERMISO DE USO DEL ESPECTRO
+RADIOELÉCTRICO
+Artículo 23.- Procedimiento para el otorgamiento del permiso de uso del espectro radioeléctrico para el servicio de radioaficionado y la operación de la banda ciudadana. El permiso de uso del espectro radioeléctrico será otorgado por el Poder Ejecutivo mediante Acuerdo Ejecutivo, previa recomendación de la SUTEL y el cumplimiento de los requisitos que se definen en los artículos 19 y 20 de este Reglamento.
+A partir del recibido de la solicitud completa, el Viceministerio de Telecomunicaciones en un plazo de cinco (5) días hábiles solicitará criterio técnico a la SUTEL, la cual en un plazo máximo de cuarenta y cinco ( 45) días hábiles remitirá al Viceministerio de Telecomunicaciones la recomendación técnica respectiva.
+El trámite de la solicitud de permiso de uso del espectro radioeléctrico será gestionado por el Viceministro de Telecomunicaciones o por quien éste delegue quien recomendará al Poder Ejecutivo, y no podrá exceder de sesenta (60) días hábiles contado a partir del recibido de la recomendación técnica por parte de SUTEL. EJ Acuerdo Ejecutivo a su vez deberá notificarse por el medio consignado en el expediente administrativo.
+Por motivos debidamente justificados, este plazo podrá ser prorrogado. En ningún caso podrá superar los ciento ochenta (180) días hábiles contados a partir de la presentación de la solicitud por parte del interesado.

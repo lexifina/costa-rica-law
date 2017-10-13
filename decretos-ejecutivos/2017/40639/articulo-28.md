@@ -1,0 +1,5 @@
+Artículo 28.- Obligaciones del titular del permiso para la instalación de una estación repetidora. Una vez autorizado el funcionamiento de la estación repetidora por parte de la SUTEL, el titular del permiso debe cumplir con lo siguiente:
+a. La estación repetidora debe ser instalada (puesta en marcha) y puesta en servido en un plazo no mayor a los noventa (90) días hábiles.
+b. Comunicar por escrito a Ja SUTEL cuando una estación repetidora en servicio salga de operación, en un plazo no mayor de cuarenta y ocho (48) horas a partir del hecho, e indicar el plazo requerido para reiniciar el servicio.
+c. Comunicar a la SUTEL la inactividad y/o fuera de servicio sea superior a los noventa (90) días hábiles.
+De no cumplirse con las obligaciones anteriores, o que J a SUTEL compruebe que una estación repetidora se encuentra fuera de servicio por un plazo mayor de noventa (90) días hábiles, así como se haya demostrado algún incumplimiento de las obligaciones establecidas en el marco legal que le aplica o en el título habilitante respectivo, el Poder Ejecutivo revocará previo cumplimiento del debido proceso el permiso concedido.
