@@ -14,3 +14,4 @@ Reglamento de sesiones del Consejo, deberes del Presidente, deberes del Secretar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-07-17 | la propia norma |
+| 2 | 2017-10-13 | Reglamento municipal 0 (2017-10-13) |
