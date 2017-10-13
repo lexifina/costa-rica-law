@@ -1,4 +1,4 @@
-ARTICULO 9º.-
-El Consejo Superior de Educación autorizará los planes de estudio y los programas de enseñanza para los diversos niveles y tipos de educación. Esos planes y programas serán flexibles y variarán conforme lo indiquen las condiciones y necesidades del país y el progreso de las ciencias de la educación y serán revisados periódicamente por el propio Consejo. Deberán concebirse y realizarse tomando en consideración:
+ARTICULO 9º.- El Consejo Superior de Educación autorizará los planes de estudio y los programas de enseñanza para los diversos niveles y tipos de educación. Esos planes y programas serán flexibles y variarán conforme lo indiquen las condiciones y necesidades del país y el progreso de las ciencias de la educación y serán revisados periódicamente por el propio Consejo. Deberán concebirse y realizarse tomando en consideración:
 a) Las correlaciones necesarias para asegurar la unidad y continuidad del proceso de la enseñanza; y
-b) Las necesidades e intereses psicobiológicos y sociales de los alumnos.
+b) Las necesidades e intereses psicobiológicos y sociales de los alumnos en una sociedad caracterizada por ser multiétnica y pluricultural, hacia la búsqueda de relaciones de interculturalidad.
+(Así reformado el inciso anterior por el artículo 2° de la ley N° 9456 del 6 de junio de 2017, “Reconocer el carácter multiétnico y pluricultural de Costa Rica”)
