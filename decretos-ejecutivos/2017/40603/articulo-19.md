@@ -1,0 +1,1 @@
+Artículo 19.—En todo lo demás, el Decreto Ejecutivo N° 38772-C del 26 de noviembre de 2014 denominado Reglamento a la Ley 9211 – Ley sobre Premios Nacionales de Cultura, publicado en el Diario Oficial La Gaceta N° 18 del 27 de enero de 2015, se mantiene incólume.

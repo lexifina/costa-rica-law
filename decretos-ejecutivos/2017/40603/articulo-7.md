@@ -1,0 +1,4 @@
+Artículo 7°—Reformar el artículo 10 del Decreto Ejecutivo N° 38772-C del 26 de noviembre de 2014 denominado Reglamento a la Ley 9211 – Ley sobre Premios Nacionales de Cultura, publicado en el Diario Oficial La Gaceta N° 18 del 27 de enero de 2015, para que en lo sucesivo se lea de la siguiente manera:
+“Artículo 10.—Inhibiciones para percibir dotaciones económicas. Se encuentran inhibidos e inhibidas para percibir las erogaciones económicas derivadas del otorgamiento de un Premio Nacional de Cultura, en cualquier categoría:
+a. Los grupos artísticos de los programas u órganos desconcentrados del Ministerio de Cultura y Juventud, que sean premiados en las categorías grupales.
+b. Los funcionarios del Ministerio de Cultura y Juventud, que hayan ejecutado total o parcialmente, las labores culturales consideradas para el premio, como producto de sus funciones ordinarias, por las cuales son remunerados salarialmente.”
