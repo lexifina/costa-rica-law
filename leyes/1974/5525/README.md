@@ -1,6 +1,6 @@
 # Ley de Planificación Nacional
 
-Ley N° 5525 del 1974-05-02. SINALEVI, ficha 34439: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=34439&param2=91172&param3=1>.
+Ley N° 5525 del 1974-05-02. SINALEVI, ficha 34439: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=34439&param2=109848&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -12,3 +12,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 4 de 9 | 2001-10-16 | Ley 8131 | 2001-09-18 |
 | 5 de 9 | 2008-08-13 | Ley 8660 | 2008-08-08 |
 | 6 de 9 | 2013-01-31 | Ley 9046 | 2012-06-25 |
+| 7 de 9 | 2017-10-13 | Ley 9456 | 2017-06-06 |
