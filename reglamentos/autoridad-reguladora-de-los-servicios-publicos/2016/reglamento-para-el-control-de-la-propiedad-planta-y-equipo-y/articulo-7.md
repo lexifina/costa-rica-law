@@ -10,9 +10,13 @@ Artículo 7- Funciones de Proveeduría. Competerá a Proveeduría:
 9) Llevar a cabo las evaluaciones operativas e inventarios de las bodegas a su cargo.
 10) Entregar el activo nuevo, contra firma del funcionario al que se le asignó. Elaborar, el documento de registro del activo y remitirlo debidamente firmado, a Finanzas.
 11) En el caso de la Aresep, determinar los activos susceptibles de donación y de desecho. Para tal efecto, deberá contar con el visto bueno de su jefatura inmediata y la autorización del Jerarca Superior Administrativo.
-12) En el caso de la Aresep, determinar los activos susceptibles de donación y de desecho. Para tal efecto, deberá contar con el visto bueno de su jefatura inmediata y la autorización del Jerarca Superior Administrativo.
-13) Llevar un control de la salida y entrada de los activos que por motivos de reparación deban salir de las instalaciones de la Institución.
-14) Velar por una apropiada conservación de los activos que tienen bajo su custodia, a fin de conservarlos en las condiciones apropiadas.
-15) Tramitar la solicitud de reparación de los activos reportados como dañados.
-16) Informar a Servicios Generales de la adquisición de activos tangibles e intangibles, con la respectiva documentación de respaldo, a efectos del respectivo aseguramiento.
-17) Informar a Servicios Generales de las gestiones de reparación de los activos tangibles, previa solicitud de diagnóstico de taller autorizado, con descripción del daño, causa o posible causa del daño, así como el valor de reparación con la cotización respectiva, a efectos de que realice las gestiones correspondientes ante la aseguradora.
+12) Llevar un control de la salida y entrada de los activos que por motivos de reparación deban salir de las instalaciones de la Institución.
+(Así reformado el inciso anterior mediante sesión N° 55-2017 del 13 de octubre del 2017)
+13) Velar por una apropiada conservación de los activos que tienen bajo su custodia, a fin de conservarlos en las condiciones apropiadas.
+(Así reformado el inciso anterior mediante sesión N° 55-2017 del 13 de octubre del 2017)
+14) Tramitar la solicitud de reparación de los activos reportados como dañados.
+(Así reformado el inciso anterior mediante sesión N° 55-2017 del 13 de octubre del 2017)
+15) Informar a Servicios Generales de la adquisición de activos tangibles e intangibles, con la respectiva documentación de respaldo, a efectos del respectivo aseguramiento.
+(Así reformado el inciso anterior mediante sesión N° 55-2017 del 13 de octubre del 2017)
+16) Informar a Servicios Generales de las gestiones de reparación de los activos tangibles, previa solicitud de diagnóstico de taller autorizado, con descripción del daño, causa o posible causa del daño, así como el valor de reparación con la cotización respectiva, a efectos de que realice las gestiones correspondientes ante la aseguradora.
+(Así reformado el inciso anterior mediante sesión N° 55-2017 del 13 de octubre del 2017)

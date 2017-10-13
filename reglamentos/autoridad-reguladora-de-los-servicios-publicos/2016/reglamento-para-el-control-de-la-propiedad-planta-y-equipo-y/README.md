@@ -14,3 +14,4 @@ Reglamento para el Control de la Propiedad, Planta y Equipo y Activos Intangible
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-04-12 | la propia norma |
+| 2 | 2017-10-13 | Reglamento 55 (2017-10-13) |
