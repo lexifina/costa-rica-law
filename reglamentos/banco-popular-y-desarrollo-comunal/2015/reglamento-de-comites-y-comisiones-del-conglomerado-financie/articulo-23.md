@@ -17,7 +17,8 @@ g) Monitorear que la Gerencia General Corporativa, las Subgerencias del Banco y 
 h) Confirmar que las prioridades para las inversiones en Tecnología de Información definidas por la Administración, están alineadas con lo establecido por la Junta Directiva Nacional en el Plan Estratégico Corporativo.
 i) Evaluar el avance del Plan Estratégico de Tecnología de Información y de los respectivos planes anuales relacionados con la gestión de Tecnología de Información.
 j) Analizar y recomendar a la Junta Directiva Nacional la aprobación del Plan Correctivo-Preventivo derivado de las recomendaciones emitidas por la Auditoria Externa y la supervisión externa en materia de gestión de Tecnología de Información y darle seguimiento al menos cada cuatro meses.
-k) Conocer los estudios de factibilidad de los nuevos proyectos informáticos presentados y velar porque que se ajusten en función a los objetivos estratégicos del Conglomerado y trimestralmente el estado de la cartera de proyectos y casos de negocio, con el propósito de determinar su avance.
+k) Conocer trimestralmente el estado de la cartera de proyectos, con el propósito de determinar su avance, y los nuevos casos de negocios.
+(Así reformado el inciso anterior mediante sesión N° 5502 del 17 de octubre del 2017)
 l) Conocer y recomendar a cada una de las Juntas, la aprobación de la Cartera de Proyectos de Tecnología de Información.
 m) Derogado mediante acuerdo No. 280 de la sesión No. 5457 de la Junta Directiva Nacional, celebrada el 25 de abril de 2017.
 n) Acatar las disposiciones que le señalen las Superintendencias.
