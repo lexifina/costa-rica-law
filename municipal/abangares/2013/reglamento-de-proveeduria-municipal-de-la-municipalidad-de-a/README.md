@@ -14,3 +14,4 @@ Reglamento de Proveeduría Municipal de la Municipalidad de Abangares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-04-19 | la propia norma |
+| 2 | 2017-10-17 | Reglamento municipal 42 (2017-10-17) |

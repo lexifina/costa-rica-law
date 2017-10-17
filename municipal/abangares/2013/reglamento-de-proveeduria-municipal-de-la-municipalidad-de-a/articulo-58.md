@@ -1,1 +1,2 @@
-Artículo 58.—Acuerdo de pago. El Alcalde Municipal queda autorizado para proceder al pago de contrataciones hasta por un millón de colones, los pagos de contrataciones superiores a un millón de colones, necesariamente requerirán el respectivo acuerdo de pago por parte del Concejo Municipal. Este monto podrá ser modificado todos los años por el Concejo Municipal, sin que esta autorización de pago dada al Alcalde Municipal, llegue a igualar o superar el monto máximo de las contrataciones directas.
+Artículo 58.—Acuerdo de pago. El Alcalde Municipal queda autorizado para proceder al pago de contrataciones directas y de escasa cuantía hasta por el monto máximo de tres millones de colones.
+(Así reformado mediante sesión ordinaria N° 42-2017 del 17 de octubre del 2017)
