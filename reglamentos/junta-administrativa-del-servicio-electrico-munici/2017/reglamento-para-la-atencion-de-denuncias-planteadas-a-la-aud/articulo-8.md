@@ -1,0 +1,1 @@
+Artículo 8.- De las denuncias anónimas: La Auditoría Interna analizará su contenido y razonabilidad. Si la misma contiene elementos suficientes y prueba idónea que permita valorar los hechos presentados, se aceptará. De no cumplir con dicho requisito, la Auditoría Interna la archivará, para ello emitirá una resolución escrita que debe estar adjunta a la denuncia.

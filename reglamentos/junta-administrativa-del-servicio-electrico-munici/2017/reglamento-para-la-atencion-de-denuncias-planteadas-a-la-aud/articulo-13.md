@@ -1,0 +1,1 @@
+Artículo 13.- Denuncias trasladadas por la Contraloría General de la República: Se actuará conforme a la política PO-EJE-01-042, del Instructivo I-EJE-08-01 “Recepción y análisis preliminar de la denuncia”.

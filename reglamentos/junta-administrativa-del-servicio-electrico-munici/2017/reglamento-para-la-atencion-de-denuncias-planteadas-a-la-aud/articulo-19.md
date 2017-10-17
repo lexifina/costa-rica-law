@@ -1,0 +1,1 @@
+Artículo 19.- De los procedimientos de auditoría: La Auditoría Interna utilizará en lo procedente los procedimientos P-EJE-08 “Atención de denuncias”, P-EJE-010 “Investigaciones preliminares” P-EJE-019 “Seguimiento a recomendaciones de AI), establecidos en el “Manual de Organización y Funciones de Auditoría”.

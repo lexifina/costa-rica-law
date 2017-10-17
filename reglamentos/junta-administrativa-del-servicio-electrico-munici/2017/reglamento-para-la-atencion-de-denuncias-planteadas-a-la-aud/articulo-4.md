@@ -1,0 +1,1 @@
+Artículo 4.- Principios generales: La admisión de denuncias se atenderá en concordancia con los principios de simplicidad, economía, eficacia, eficiencia y razonabilidad. En caso de admisibilidad se acatará lo establecido en el P-EJE-008 “Atención de denuncias”, para valorar si es procedente verificar los hechos que se denuncian.

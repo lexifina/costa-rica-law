@@ -1,0 +1,1 @@
+Artículo 15.- Del seguimiento de los resultados y atención de las denuncias: La Auditoría Interna, como unidad fiscalizadora del sistema de control interno, de acuerdo con los procedimientos establecidos, dará seguimiento a los resultados producto de las denuncias presentadas ante esta Unidad.
