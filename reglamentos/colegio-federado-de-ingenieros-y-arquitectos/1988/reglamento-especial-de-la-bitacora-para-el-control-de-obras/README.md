@@ -19,3 +19,4 @@ Reglamento Especial de la Bitácora para el Control de Obras
 | 4 | 2012-12-11 | Reglamento 6 (2012-12-11) |
 | 5 | 2013-10-08 | Reglamento 43 (2013-10-08) |
 | 6 | 2016-04-26 | Reglamento 20 (2016-04-26) |
+| 7 | 2017-10-17 | Reglamento 43 (2017-10-17) |
