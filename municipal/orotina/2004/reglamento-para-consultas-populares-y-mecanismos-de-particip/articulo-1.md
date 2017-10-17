@@ -1,7 +1,7 @@
 MUNICIPALIDAD DE OROTINA
 El Concejo Municipal de la Municipalidad del Cantón de Orotina, conforme a las potestades conferidas por los artículos 4º inciso a), 13 incisos c) y e) y 17 incisos a) y h) del Código Municipal, Ley número 7794 y el artículo 170 de la Constitución Política, acuerda emitir el siguiente:
-REGLAMENTO PARA CONSULTAS POPULARES
-DE LA MUNICIPALIDAD DE OROTINA
+Reglamento para Consultas Populares y Mecanismos de Participación Ciudadana de la Municipalidad de Orotina
+(Así modificada su denominación mediante sesión ordinaria N° 120 del 17 de octubre del 2017. Anteriormente indicaba “ REGLAMENTO PARA CONSULTAS POPULARES DE LA MUNICIPALIDAD DE OROTINA”)
 CAPÍTULO I
 Disposiciones generales
 Artículo 1º—Definiciones. Para los efectos del presente reglamento deben entenderse los siguientes términos como:

@@ -1,2 +1,5 @@
-CAPÍTULO VI
-Artículo 37.—Aplicación supletoria de las normas electorales. En lo que resulte pertinente se aplicarán a las consultas populares las normas y principios de derecho electoral contenidos en el Código Electoral, la Ley Orgánica del Tribunal Supremo de Elecciones y Registro Civil, y en los reglamentos dictados por el Tribunal Supremo de Elecciones.
+CAPÍTULO VII
+Mecanismos de participación ciudadana
+(Así adicionado el capítulo anterior mediante sesión ordinaria N° 120 del 17 de octubre del 2017)
+Artículo 37°—Participación ciudadana. La Municipalidad dispondrá los recursos y mecanismos que fomenten la participación activa, consciente y democrática de los ciudadanos en las dediciones del gobierno local.
+(Así adicionado mediante sesión ordinaria N° 120 del 17 de octubre del 2017)
