@@ -1,0 +1,1 @@
+Artículo 12.- Denuncias. Toda denuncia que se tramite en la Auditoría Interna de JASEC deberá acogerse a lo estipulado en el Reglamento Para la Atención de Denuncias Planteadas a la Auditoría Interna de JASEC.

@@ -1,0 +1,1 @@
+Artículo 8.- Independencia y objetividad. Los funcionarios de la Auditoría Interna deben mantener un criterio independiente en el desarrollo de su trabajo, y actuar de manera objetiva, profesional e imparcial, por lo cual deben estar libres de injerencias al determinar el alcance, la ejecución y la comunicación de resultados, evitando así cualquier conflicto de intereses.

@@ -1,0 +1,1 @@
+Artículo 31. Declaración de cumplimiento. Se debe incorporar en los informes que emita la Auditoría Interna tanto de servicios de auditoria como de planificación y mejoramiento continuo la declaración de cumplimiento respectiva, utilizando la siguiente declaración “las actividades fueron realizadas de conformidad con la normativa aplicable al ejercicio de la auditoría interna”.

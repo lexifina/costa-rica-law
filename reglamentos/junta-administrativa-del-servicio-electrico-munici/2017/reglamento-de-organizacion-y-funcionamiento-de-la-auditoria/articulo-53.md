@@ -1,0 +1,1 @@
+Artículo 53.- Comunicación especial de resultados. Cuando a criterio del Auditor Interno los resultados de los estudios se consideren de importancia especial, el Informe respectivo deberá ser comunicado directamente al Autoridad Superior de la Institución. Por medio de: reuniones, conferencias o el envío de informes parciales o finales.

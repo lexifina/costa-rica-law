@@ -1,0 +1,1 @@
+Artículo 36.- Contratación de Recursos Externos. La Auditoría Interna, de acuerdo a la planificación y la formulación operativa y justificadamente, podrá realizar la contratación de bienes y servicios necesarios para llevar a cabo tal gestión

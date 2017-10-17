@@ -1,0 +1,1 @@
+Artículo 50.- Estructura de los Informes. Se utilizarán los formularios F-EJE-058 “Informe detallado de servicios de aseguramiento” y F-EJE-059 “Informe ejecutivo de servicios de aseguramiento”. Y para los seguimientos se utilizará el FEJE-106 “Informe detallado (Seguimiento a recomendaciones de AI)”

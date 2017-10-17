@@ -1,0 +1,2 @@
+Artículo 22.- Área Tecnologías Información:
+Se enfoca en determinar la evaluación y aseguramiento de la calidad, seguridad, razonabilidad, y disponibilidad de la Información tratada y almacenada, así como de la eficiencia, eficacia y economía con que se están manejando dicha Información y todos los recursos físicos y humanos asociados para su adquisición, captura, procesamiento, transmisión, distribución, uso y almacenamiento, es decir el examen y análisis de los procedimientos administrativos y de los sistemas de control interno.

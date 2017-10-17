@@ -1,0 +1,3 @@
+CAPÍTULO II: COMPETENCIAS,
+DEBERES, POTESTADES
+Artículo 4. Competencias: La actuación de la Auditoría Interna se realizará, fundamentalmente, según disposiciones contenidas en el artículo 22 de la Ley Nº 8292, así como las normas, políticas, procedimientos y otras disposiciones que indica la Contraloría General de la República en el ámbito de su competencia, supletoriamente las normas y prácticas profesionales y técnicas pertinentes. También forman parte del ámbito de gestión de la Auditoría Interna, las instrucciones, metodologías, procedimientos y prácticas formalizadas por el Auditor Interno.

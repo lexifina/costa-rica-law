@@ -1,0 +1,1 @@
+Artículo 49.- Elaboración de informes internos. Los informes sobre los servicios de Auditoría Interna versarán sobre diversos asuntos de su competencia; y para el caso de los estudios de control interno y revisiones, se acatarán las indicaciones establecidas en la hoja de referencia HR-EJE-027 “Elaboración de Informes de Servicios de Control Interno”

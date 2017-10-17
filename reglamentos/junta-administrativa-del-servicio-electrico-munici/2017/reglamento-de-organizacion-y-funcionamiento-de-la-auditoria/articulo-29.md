@@ -1,0 +1,3 @@
+Artículo 29.- Administración de Auditoría y de recursos. Mediante la emisión de lineamientos, directrices, políticas e instrumentos pertinentes, conforme al ordenamiento jurídico, el Auditor Interno debe asegurar que los recursos de auditoría interna sean apropiados, suficientes y eficazmente asignados para cumplir con el plan de trabajo aprobado.
+Es decir, los recursos deben ser apropiados en cuanto a la mezcla de conocimientos, aptitudes y otras competencias necesarias para llevar a cabo el plan.
+Así mismo el Auditor Interno y los funcionarios de la Unidad, deben establecer, aplicar y evaluar los mecanismos necesarios para la debida planificación, organización, seguimiento y demás labores atinentes a la actividad de Auditoría.

@@ -1,0 +1,2 @@
+CAPÍTULO III: ORGANIZACIÓN DE LA AUDITORÍA INTERNA
+Artículo 7.- Concepto de Auditoría Interna. Constituye un proceso sistemático, independiente y profesional con el propósito de obtener y evaluar objetivamente evidencia relacionada con hechos y eventos de diversa naturaleza, así como comprobar su grado de correspondencia con un marco de referencia de criterios aplicables y comunicar los resultados, las conclusiones y recomendaciones a Administración Activa, con el fin de mejorar la gestión y la toma de decisiones y fortalecer el sistema de control interno.

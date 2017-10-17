@@ -1,0 +1,2 @@
+CAPÍTULO V: RELACIONES Y COORDINACIONES
+Artículo 33.- Relaciones con los auditados. Con la aplicación de las actividades determinadas en los programas generales para servicios de auditoria se establecen aspectos de relaciones y coordinaciones de la auditoria con los auditados. Lo anterior mediante los Procedimientos P-EJE-002 Evaluación de Control Interno, P-EJE-003 Revisión de Control Interno y P-EJE-019 Servicios de seguimiento de recomendaciones de AI.

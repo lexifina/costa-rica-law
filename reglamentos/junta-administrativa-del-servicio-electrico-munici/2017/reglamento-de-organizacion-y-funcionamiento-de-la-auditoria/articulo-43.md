@@ -1,0 +1,2 @@
+Artículo 43.- Establecimiento del programa de calidad. La Auditoría Interna asumirá su compromiso de calidad de sus procesos y productos mediante un Programa de Aseguramiento y Mejora de la Calidad del Servicio de Auditoría, el cual está concebido para permitir una evaluación del cumplimiento de las Normas para el Ejercicio de la Auditoría Interna en el Sector Público.
+Este programa también evalúa la eficiencia y eficacia de la actividad de auditoría interna e identifica oportunidades de mejora.

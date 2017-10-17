@@ -1,0 +1,1 @@
+Artículo 5. Deberes por ley. El Auditor Interno y el personal de la Auditoría Interna, para el desempeño de sus competencias, tendrán los deberes que se establecen, fundamentalmente, en el artículo 32 de la Ley Nº 8292.

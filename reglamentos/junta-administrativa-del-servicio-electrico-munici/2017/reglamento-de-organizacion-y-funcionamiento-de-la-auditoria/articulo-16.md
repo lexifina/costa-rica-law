@@ -1,0 +1,1 @@
+Artículo 16.- Ubicación. La Auditoría Interna es un órgano asesor de alto nivel de JASEC, que por su independencia funcional y de criterio con respecto a la actividad que ejerce, dependerá orgánicamente de la Autoridad Superior.

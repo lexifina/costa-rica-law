@@ -1,0 +1,1 @@
+Artículo 14.- Ética profesional. El Auditor Interno establecerá un Código de Ética que impulse una cultura ética en la práctica de auditoría, fundamentada en valores, principios y reglas de conducta previamente establecidos.

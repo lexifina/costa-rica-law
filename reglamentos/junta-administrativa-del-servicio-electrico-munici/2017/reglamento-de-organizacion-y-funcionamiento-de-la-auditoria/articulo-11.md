@@ -1,0 +1,1 @@
+Artículo 11.- Jornada Laboral. La jornada laboral para todos los funcionarios de Auditoría Interna será de tiempo completo, contemplando el horario establecido por la Institución. Sin embargo a favor del accionar de la Unidad y bajo coordinación y aprobación del Auditor Interno, la misma se puede variar, conforme al ordenamiento jurídico.
