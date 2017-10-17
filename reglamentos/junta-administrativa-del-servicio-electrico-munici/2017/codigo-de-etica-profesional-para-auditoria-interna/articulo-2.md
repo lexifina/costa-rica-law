@@ -1,0 +1,1 @@
+Artículo 2.- Objetivo: El objetivo de éste Código de Ética, es inculcar en los colaboradores de la Auditoría Interna de JASEC, indistintamente de su género, una actitud y comportamiento irreprochable, honesto y responsable, que lo concientice para el desempeño de su gestión.

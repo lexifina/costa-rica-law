@@ -1,0 +1,1 @@
+Artículo 3.- Justificación: El Código de Ética para la Auditoría Interna de JASEC es necesario debido a que los pilares de nuestra profesión se asientan en la confianza y el aseguramiento objetivo de la gestión de riesgos, control y dirección.

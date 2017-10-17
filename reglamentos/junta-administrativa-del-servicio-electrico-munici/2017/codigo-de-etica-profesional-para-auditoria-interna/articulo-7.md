@@ -1,0 +1,2 @@
+CAPITULO III: SOBRE INCUMPLIMIENTO
+Artículo 7.- Faltas al Reglamento: Toda infracción a las normas contenidas en este Código, generará responsabilidad disciplinaria para quién lo incumpla, por lo que estará sujeto a la imposición de las sanciones que correspondan en cada caso, de conformidad con lo dispuesto en la normativa interna o externa que resulte aplicable en JASEC, todo bajo el principio de legalidad.
