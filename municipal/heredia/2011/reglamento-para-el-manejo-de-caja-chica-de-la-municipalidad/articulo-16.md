@@ -1,1 +1,0 @@
-Artículo 16.—Las entregas de dinero o adelantos deben ser liquidados dentro de un lapso de 48 horas de efectuado el vale. Si se presenta atraso en la liquidación y presentación de los justificantes, el encargado del Fondo lo comunicará al jefe inmediatamente para lo que corresponda.

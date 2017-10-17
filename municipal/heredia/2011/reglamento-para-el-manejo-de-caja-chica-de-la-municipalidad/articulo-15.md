@@ -1,1 +1,0 @@
-Artículo 15.—De conformidad con lo establecido en el artículo 8 del Código Municipal, la Municipalidad de Heredia está exenta de toda clase de impuestos, por tanto el usuario del Fondo de Caja Chica deberá gestionar ante la Proveeduría Municipal la carta de exoneración del impuesto de ventas.
