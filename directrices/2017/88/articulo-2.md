@@ -1,0 +1,1 @@
+Artículo 2º—La presente directriz no autoriza la divulgación de información tendiente a generar opinión favorable acerca de la labor del Gobierno de la República y sus instituciones. Es de aplicación restrictiva y será responsabilidad de los jerarcas respectivos determinar que la contratación se apega a los límites establecidos en el artículo 142 del Código Electoral.
