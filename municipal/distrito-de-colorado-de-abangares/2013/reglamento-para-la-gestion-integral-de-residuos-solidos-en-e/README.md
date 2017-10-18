@@ -14,3 +14,4 @@ Reglamento para la Gestión Integral de Residuos Sólidos en el Distrito de Colo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-09-25 | la propia norma |
+| 2 | 2017-10-18 | Reglamento municipal 20 (2017-10-18) |
