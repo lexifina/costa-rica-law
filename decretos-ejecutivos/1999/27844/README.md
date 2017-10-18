@@ -14,3 +14,4 @@ Reglamento para el uso y administración de los Laboratorios de Informática Edu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-10 | la propia norma |
+| 2 | 2017-10-18 | Decreto Ejecutivo 40737 (2017-10-18) |
