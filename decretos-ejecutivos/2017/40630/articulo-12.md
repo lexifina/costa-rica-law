@@ -1,0 +1,1 @@
+Artículo 12.- Derogatoria. Deróguese el "Reglamento de las Condiciones Técnicas y de Uso de los Equipos de Registro y Detección de Infracciones a la Ley de Tránsito vigente por medio de Imágenes », Decreto Ejecutivo Nº 36724-MOPT, publicado en el diario oficial La Gaceta Nº 169, del 2 de setiembre del año dos mil once.

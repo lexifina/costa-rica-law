@@ -1,0 +1,2 @@
+Artículo 2.- Alcance. La presente normativa tiene implicancia en todos los tramos de vías públicas y privadas sujetas a las regulaciones de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, N º 9078, en las que se instalen equipos para el registro y detección automatizada de infracciones, por lo que afectará a los conductores de vehículos que circulen por ruchos tramos.
+Igualmente, será de acatamiento obligatorio para las autoridades cuyas competencias incluyan funciones relacionadas con la misma.

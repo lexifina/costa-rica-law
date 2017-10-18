@@ -1,0 +1,1 @@
+Artículo 9.- Información para los conductores de vehículos. El Consejo de Seguridad Vial debe realizar campañas de prevención de accidentes de tránsito y de información para concientizar a los conductores de vehículos, y sus acompañantes, sobre los factores de riesgo asociados a las infracciones con víctimas.
