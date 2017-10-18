@@ -1,1 +1,1 @@
-Artículo 5.- La estructura tarifaria de los operadores de sistemas de agua potable y saneamiento, debe tener una distribución uniforme de las tarifas sin diferenciación entre los distintos tipos de usuarios y niveles de consumo, respondiendo únicamente al costo medio de la prestación de cada servicio, siendo este el indicador del nivel de recuperación de costos de los operadores.
+Artículo 5.- (Derogado por el artículo 1° del decreto ejecutivo N° 40711 del 18 de octubre del 2017)

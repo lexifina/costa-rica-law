@@ -1,1 +1,1 @@
-Artículo 2.- Con el fin de asegurar la recuperación de los costos económicos, la definición de las metodologías tarifarias, deben basarse en los costos medios de los servicios prestados, con un horizonte tarifario no menor a 5 años.
+Artículo 2.- (Derogado por el artículo 1° del decreto ejecutivo N° 40711 del 18 de octubre del 2017)

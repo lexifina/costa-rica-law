@@ -1,1 +1,1 @@
-Artículo 13.- Los usuarios domiciliares de los servicios de agua potable y saneamiento, que están formalmente vinculados a las PYMES, podrán optar por un subsidio para uso domiciliar de esos servicios, siempre y cuando soliciten al Instituto Mixto de Ayuda Social y a las Instituciones involucradas, un estudio técnico social que permita ampliar y fundamentar los criterios de selección, con el fin de justificar técnicamente el otorgamiento del subsidio.
+Artículo 13.- (Derogado por el artículo 1° del decreto ejecutivo N° 40711 del 18 de octubre del 2017)

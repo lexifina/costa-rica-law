@@ -14,3 +14,4 @@ Política Tarifaria para los operadores de sistemas de agua potable y saneamient
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-06-30 | la propia norma |
+| 2 | 2017-10-18 | Decreto Ejecutivo 40711 (2017-10-18) |
