@@ -43,3 +43,4 @@ Directrices Generales de Política Presupuestaria, Salarial, Empleo, Inversión 
 | 28 | 2017-08-04 | Decreto Ejecutivo 40596 (2017-08-04) |
 | 29 | 2017-08-22 | Decreto Ejecutivo 40638 (2017-08-22) |
 | 30 | 2017-10-09 | Decreto Ejecutivo 40702 (2017-10-09) |
+| 31 | 2017-10-18 | Decreto Ejecutivo 40731 (2017-10-18) |
