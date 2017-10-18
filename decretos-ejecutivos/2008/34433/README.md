@@ -18,3 +18,4 @@ Reglamento a la Ley de Biodiversidad
 | 3 | 2016-08-31 | Decreto Ejecutivo 40043 (2016-08-31) |
 | 4 | 2016-10-19 | Decreto Ejecutivo 40054 (2016-10-19) |
 | 5 | 2017-06-29 | Decreto Ejecutivo 40479 (2017-06-29) |
+| 6 | 2017-10-18 | Decreto Ejecutivo 40725 (2017-10-18) |
