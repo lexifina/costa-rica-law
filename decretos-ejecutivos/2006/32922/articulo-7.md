@@ -1,1 +1,0 @@
-Artículo 7º—El jurado calificador deberá emitir su veredicto durante la última semana del mes de julio de cada año. Dicha adjudicación será inapelable. No obstante lo anterior, el Jurado podrá declarar desierto el concurso, si considera que ninguna de las obras presentadas, cumple con los estándares de calidad requeridos.
