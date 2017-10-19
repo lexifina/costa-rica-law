@@ -14,3 +14,4 @@ Directrices generales de política presupuestaria, salarial, empleo, inversión 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-03-27 | la propia norma |
+| 2 | 2017-10-19 | Decreto Ejecutivo 40722 (2017-10-19) |

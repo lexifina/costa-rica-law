@@ -31,3 +31,4 @@ PRESUPUESTARIA, PARA EL AÑO 2018
 CAPÍTULO I
 Disposiciones generales
 Artículo 1° -Estas directrices serán aplicables a las entidades públicas, ministerios y órganos desconcentrados, cubiertos por el ámbito de la AP, sin pe1juicio de lo establecido en otras disposiciones legales.
+(Mediante el artículo 1° del decreto ejecutivo N° 40722 del 19 de octubre de 2017, se amplia para el Programa Integral de Mercadeo Agropecuario (PIMA), el gasto presupuestario máximo para el año 2018, en la suma de ¢13.757.367.149,31 (trece mil setecientos cincuenta y siete millones trescientos sesenta y siete mil ciento cuarenta y nueve colones con treinta y un céntimos), para ese período.)
