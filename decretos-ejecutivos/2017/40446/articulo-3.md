@@ -1,0 +1,1 @@
+Artículo 3º—Se invita a las municipalidades, y al sector privado para que en la medida de sus posibilidades y dentro del marco jurídico respectivo, apoyen a su ejecución mediante cualquier tipo de recursos o alternativas, convenios de cooperación, iniciativas y asociaciones público privadas.

@@ -1,0 +1,2 @@
+Artículo 4°—Cooperación. Las instituciones del sector público, las instituciones autónomas y semiautónomas, las municipalidades, y al sector privado podrán gestionar mecanismos de apoyo y cooperación con los cantones de Golfito, Osa, Buenos Aires, Coto Brus y Corredores con el fin de promover el desarrollo económico y la creación de fuentes de empleo de calidad en la zona.
+Para ello, se seguirán las estipulaciones legales y constitucionales que regulan la materia según el ordenamiento jurídico costarricense.
