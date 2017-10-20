@@ -1,0 +1,1 @@
+Artículo 8º—La Dirección, Departamento o Unidad correspondiente llevará un expediente individual físico y digital por cada arrendatario, que deberá contener el contrato original firmado entre las partes y los documentos de respaldo indicados en el artículo 7º de este reglamento.

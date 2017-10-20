@@ -1,0 +1,1 @@
+Artículo 23.- El presente Reglamento deroga el “Reglamento para la Retribución por el Uso de Vehículos Propiedad de Funcionarios de JAPDEVA” aprobado por el Consejo de Administración en el Artículo III de la Sesión Ordinaria Nº 33-83 del 11 de Agosto de 1983

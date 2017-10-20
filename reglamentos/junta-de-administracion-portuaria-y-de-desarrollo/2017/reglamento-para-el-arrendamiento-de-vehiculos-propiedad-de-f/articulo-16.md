@@ -1,0 +1,1 @@
+Artículo 16.— Si la liquidación indicada en el artículo 15 no se presenta al Departamento Financiero correspondiente en el plazo establecido, los subsiguientes desplazamientos no se podrán realizar bajo este sistema.

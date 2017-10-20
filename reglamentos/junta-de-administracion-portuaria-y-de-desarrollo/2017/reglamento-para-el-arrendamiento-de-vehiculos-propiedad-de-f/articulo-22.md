@@ -1,0 +1,1 @@
+Artículo 22.- Modificaciones: Toda modificación al presente Reglamento es potestad exclusiva JAPDEVA que en cualquier tiempo podrá modificar las disposiciones del presente reglamento, sin que para evadir o excusar su aplicación, el funcionario pueda alegar derechos adquiridos o situaciones jurídicas consolidadas.

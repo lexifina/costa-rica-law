@@ -1,0 +1,1 @@
+Artículo 5°-Quedan excluidos de la posibilidad de acogerse a las disposiciones del presente reglamento los miembros de la Junta Directiva, quien ejerza la Presidencia Ejecutiva, el Auditor General y el Sub Auditor General, así como toda persona o asesor contratado por JAPDEVA sin que medie relación laboral con la Institución.

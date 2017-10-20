@@ -1,0 +1,1 @@
+Artículo 4°.-Bajo ninguna circunstancia, la remuneración que pueda representar el pago de kilometraje, será considerado como beneficio, mejora salarial, o salario en especie, ni dará lugar a derechos adquiridos a favor del funcionario arrendante, lo cual quedará expresamente establecido en el “Contrato de Pago de Kilometraje".
