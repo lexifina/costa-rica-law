@@ -1,0 +1,16 @@
+# Reglamento municipal (2017-09-26)
+
+Reglamento de procedimientos tributarios municipales de la Municipalidad de San José
+
+- Tipo: Reglamento municipal
+- Número: 74
+- Fecha: 2017-09-26
+- Ente emisor: Municipalidad de San José
+- Publicación: La Gaceta N° 198 del 2017-10-20, Alcance 251
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=85115&param2=109950&param3=1 (ficha 85115)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2017-10-20 | la propia norma |

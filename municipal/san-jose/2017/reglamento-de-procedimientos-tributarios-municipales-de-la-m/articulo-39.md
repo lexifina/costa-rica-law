@@ -1,0 +1,1 @@
+Artículo 39º: Sobre la documentación relacionada con los arreglos de pago. Toda la documentación que haya sido requerida por la Sección de Gestión de Cobros de la Municipalidad, para la suscripción del arreglo de pago, así como el documento del arreglo, serán agregados al expediente único y debidamente foliados.

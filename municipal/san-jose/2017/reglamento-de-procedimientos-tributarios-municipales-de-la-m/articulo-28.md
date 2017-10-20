@@ -1,0 +1,1 @@
+Artículo 28º: Alcance de las actuaciones de comprobación e investigación. Las actuaciones de comprobación e investigación podrán tener carácter total o parcial, según sea el objetivo de la situación tributaria del sujeto pasivo.

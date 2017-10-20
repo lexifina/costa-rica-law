@@ -1,0 +1,3 @@
+SECCIÓN IV
+RESOLUCIÓN DE LA CONTRATACIÓN DE ABOGADOS EXTERNOS
+Artículo 49º: Resolución y vencimiento de la Contratación. Los abogados externos que por alguna razón personal o profesional, quieran dejar de servir a la Municipalidad, deberán de comunicar esa decisión expresamente y por escrito al Proceso de Cobro Externo de la Sección de Gestión de Cobro, con treinta días naturales de antelación a la fecha en que requieren dejar de dirigir el proceso o los procesos a su cargo, quien deberá verificar la condición de los casos asignados al profesional y, de estar conforme, remitirá oficio al Departamento de Recursos Materiales y Servicios dando por aceptada la renuncia.

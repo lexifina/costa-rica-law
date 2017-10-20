@@ -1,0 +1,1 @@
+Artículo 20º.-Labores en el local o sede. Los funcionarios de la Administración Tributaria Municipal, que ejecuten sus labores en el local o sede del sujeto pasivo, contribuyente, responsable, declarante o de terceros relacionados con éstos, deberán practicar sus actuaciones, siguiendo los lineamientos que se les dicten al efecto.

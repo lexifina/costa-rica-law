@@ -1,0 +1,5 @@
+Artículo 7º: De la función de recaudación. La función de recaudación es el conjunto de actividades que realiza la Administración Tributaria Municipal, destinadas a percibir efectivamente el pago de todas las obligaciones tributarias municipales. Esta función no involucra la responsabilidad del manejo, captación y custodia del dinero, cuya responsabilidad está delegada en la Tesorería Municipal.
+La función recaudadora se realizará en tres etapas sucesivas: voluntaria, administrativa y ejecutiva.
+En la etapa voluntaria, el sujeto pasivo de la obligación tributaria municipal cancelará sus obligaciones sin necesidad de actuación alguna por parte la Administración Tributaria.
+En la etapa administrativa, la Administración Tributaria efectuará los requerimientos persuasivos de pago a los sujetos pasivos morosos.
+En etapa ejecutiva, la recaudación se efectúa coactivamente, utilizando los medios legales establecidos y recurriendo a los órganos jurisdiccionales respectivos. Esta etapa es la que ejecutan los abogados externos contratados por el municipio.

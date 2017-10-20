@@ -1,0 +1,4 @@
+SECCIÓN II
+FUNCIONES DE LA ADMINISTRACIÓN TRIBUTARIA MUNICIPAL
+Artículo 5º: De la función de gestión tributaria. La función de gestión tributaria tiene por objeto, administrar las bases de información que constituyen el censo de sujetos pasivos, contribuyentes, responsables o declarantes de los distintos tributos municipales, cuyo control ejerce la Administración Tributaria Municipal, verificando el cumplimiento que éstos hagan de las obligaciones formales establecidas por ley. Para tal efecto, la Administración Tributaria Municipal, gozará de amplias facultades de control, en los términos que establece este Reglamento.
+Asimismo, en virtud de la función de gestión indicada, se deberán realizar tareas de divulgación en materia tributaria municipal, al igual que resolver las consultas, reclamos por cobros debidos o indebidos, solicitudes de prescripción, arreglos de pago, condonación de intereses y multas que planteen los interesados.
