@@ -1,0 +1,1 @@
+Artículo 2º.—Creación. Créase la Unidad Asesora para la dirección y coordinación de la propiedad accionaria del Estado y la gestión de las Instituciones Autónomas, como una instancia asesora de la Presidencia de la República encargada de coordinar la propiedad accionaria de las empresas públicas y la gestión de las instituciones autónomas.

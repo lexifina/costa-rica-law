@@ -1,0 +1,1 @@
+Artículo 3º.—Naturaleza jurídica. Será una instancia asesora permanente que dependerá directamente de la Presidencia de la República y el Consejo de Gobierno. Ejercerá una función permanente y contará con la obligada colaboración de otros servidores públicos a los que se les requiera información o análisis de información en razón de sus especialidades y competencias.
