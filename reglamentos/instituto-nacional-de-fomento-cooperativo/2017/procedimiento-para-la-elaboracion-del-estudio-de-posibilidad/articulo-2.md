@@ -1,0 +1,5 @@
+CAPÍTULO II
+Sobre el Estudio de Posibilidad, Viabilidad y Utilidad
+Artículo 2º—Presentación del Estudio. El documento de Estudio de Posibilidad, Viabilidad y Utilidad (PVU) deberá contener además de la debida portada e índice respectivo, una presentación del Estudio indicando que el documento responde al Estudio de Posibilidad, Viabilidad y Utilidad o perfil de proyecto a presentar ante el Departamento de Promoción del INFOCOOP como requisito para la inscripción del organismo cooperativo ante el MTSS. Se debe indicar además el nombre de la cooperativa, su localización, modelo y clase y actividad productiva.
+El perfil de proyecto deberá ser elaborado por al menos un representante del grupo pre cooperativo con los aportes de los integrantes del grupo y firmado por el representante responsable de su elaboración. En caso de que haya contado con el apoyo de un profesional para la elaboración del estudio éste también deberá firmar conjuntamente con los representantes.
+Es necesario que dicho estudio, sea conocido, analizado y aprobado por todas las personas que participarán en la asamblea constitutiva.
