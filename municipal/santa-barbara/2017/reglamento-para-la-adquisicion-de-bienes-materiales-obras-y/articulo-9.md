@@ -15,3 +15,5 @@ La presentación incompleta o poco clara de la información, facultará a la Pro
 a) Para contrataciones directas: hasta el último día hábil del mes de octubre.
 b) Para procesos de licitación públicas: hasta la segunda semana del mes de agosto.
 c) Para procesos de licitación abreviada: hasta el último día hábil del mes de setiembre.
+Se exceptúa de los plazos anteriores aquellos procedimientos de contratación administrativa que se fundamenten en casos de urgencia administrativa, de la Alcaldía Municipal.
+(Así adicionado el párrafo anterior en sesión N° 78 del 23 de octubre de 2017)

@@ -14,3 +14,4 @@ Reglamento para la adquisición de bienes, materiales, obras y servicios de la M
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-09-14 | la propia norma |
+| 2 | 2017-10-23 | Reglamento municipal 78 (2017-10-23) |
