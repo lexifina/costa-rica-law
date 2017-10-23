@@ -1,1 +1,12 @@
-Artículo 3º—Objetivo. Este Reglamento tiene como propósito dar posibilidades de recuperación total o parcial de operaciones de crédito otorgadas por la Junta y que, presenten algún grado de morosidad.
+Artículo 3º—Definiciones: A continuación, se brinda una serie de definiciones de valor para el presente reglamento:
+- JUPEMA: Junta de Pensiones y Jubilaciones del Magisterio Nacional.
+- Afiliado: cotizante del Régimen de Pensiones y Jubilaciones del Magisterio Nacional.
+- Arreglo de pago: convenio para normalizar la morosidad en el pago de una operación crediticia en el cual, al menos una de las condiciones originales del crédito variará.
+- Sujeto de negociación: es todo afiliado de la Junta, deudor, codeudor, fiador o interesado en asumir una negociación de pago, independientemente que incumpliere las condiciones originalmente pactadas
+- Convenio de pago: documento formal mediante el cual, el deudor, codeudor o fiador, se comprometen con JUPEMA, a cumplir las condiciones del arreglo de pago acordadas.
+- Cobro Administrativo: es toda acción cobratoria que se realice por parte de JUPEMA, para normalizar situaciones de atraso en el pago de cuotas crediticias, antes de recurrir al cobro por vía judicial.
+- Cobro Judicial: es toda acción cobratoria que se realice por la vía judicial, para la recuperación de las obligaciones crediticias contraídas por los diferentes deudores.
+- Sujeto de negociación: es todo afiliado de la Junta, deudor, codeudor, fiador o interesado en asumir una negociación de pago, independientemente que incumpliere las condiciones originalmente pactadas.
+- Mora: es el incumplimiento del pago de capital, pólizas, cargos e intereses en las fechas establecidas según las responsabilidades pactadas en la formalización del crédito.
+- Interés corriente vencido: cargo financiero que devenga un principal otorgado en un crédito durante determinado tiempo, el cual no es cancelado en el tiempo establecido.
+- Interés moratorio: corresponde a la tasa de interés establecida en un crédito, como penalidad por el monto en mora adeudado en un periodo determinado.
