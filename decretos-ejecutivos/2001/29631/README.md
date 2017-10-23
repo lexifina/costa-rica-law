@@ -20,3 +20,4 @@ Reglamento General del Consejo Nacional de Enseñanza Superior Universitaria Pri
 | 5 | 2012-01-26 | Decreto Ejecutivo 37036 (2012-01-26) |
 | 6 | 2012-11-28 | Decreto Ejecutivo 37564 (2012-11-28) |
 | 7 | 2017-09-20 | Decreto Ejecutivo 40715 (2017-09-20) |
+| 8 | 2017-10-23 | Decreto Ejecutivo 40733 (2017-10-23) |
