@@ -1,0 +1,1 @@
+Artículo 9º—La liquidación de gastos de alimentación, hospedaje y transpone, por concepto de ejecución de funciones propias del cargo de regidor o síndico, fuera del cantón, deberá hacerse dentro de los siete días hábiles después de efectuada la erogación, aportando los comprobantes respectivos.

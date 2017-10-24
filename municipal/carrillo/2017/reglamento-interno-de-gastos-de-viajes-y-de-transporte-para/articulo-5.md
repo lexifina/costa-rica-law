@@ -1,0 +1,2 @@
+Artículo 5º—Punto de lejanía. De acuerdo al segundo párrafo del artículo 30 del código municipal, que establece que los gastos correspondientes a viáticos y transporte para regidores y síndicos propi etarios y suplentes, cuando residan lejos de la sede municipal, se pagarán con base en la tabla que fija la Contraloría General de la República.
+Por lo tanto este Concejo Municipal define como punto de lejanía cinco kilómetros de la sede municipal.
