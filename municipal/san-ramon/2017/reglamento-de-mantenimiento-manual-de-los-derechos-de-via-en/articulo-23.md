@@ -1,0 +1,2 @@
+TITULO III. Obligaciones conexas.-
+Artículo 23.- Pasos de alcantarilla. En los pasos de casas/fincas, ya sean entradas o salidas, los dueños de propiedades o servidumbres deberán instalar un paso de alcantarilla no inferior a los 45 centímetros de diámetro, siempre considerando los criterios técnicos que en última instancia deberán ser emitidos por la Unidad de Técnica de Gestión Vial Municipal. De igual manera, dichas entradas deberán construirse de la línea de propiedad hacia el interior de la misma.

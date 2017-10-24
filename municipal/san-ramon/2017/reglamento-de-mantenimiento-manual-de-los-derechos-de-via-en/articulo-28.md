@@ -1,0 +1,1 @@
+Artículo 28.- En caso de que el vecino haga caso omiso a la notificación, la Municipalidad realizará la ampliación del derecho de vía, con las cuadrillas municipales, siempre y cuando se hubiese notificado previamente al involucrado y se haya realizado el debido proceso.

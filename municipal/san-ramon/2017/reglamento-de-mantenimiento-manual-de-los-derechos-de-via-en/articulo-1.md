@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE SAN RAMÓN
+CONCEJO MUNICIPAL
+El Concejo Municipal de la Municipalidad de San Ramón por medio del Acuerdo N° 02 de la Sesión N° 106 Ordinaria del 04 de setiembre del 2017 de conformidad con lo establecido en el párrafo segundo del artículo 43 del Código Municipal y habiéndose publicado el Proyecto de Reglamento de Mantenimiento Manual de los Derechos de Vía de los caminos públicos vecinales de la Municipalidad de San Ramón en el Alcance N° 188 del jueves 03 de agosto del 2017 y no presentándose observación alguna dentro del tiempo establecido por ley, se aprueba en definitiva como Reglamento, tal y como fue publicado en el Alcance en mención, el cual rige a partir de su publicación y de cuyas especificaciones se deja constancia a continuación.
+REGLAMENTO DE MANTENIMIENTO MANUAL
+DE LOS DERECHOS DE VÍA EN LOS CAMINOS PÚBLICOS VECINALES
+DE LA MUNICIPALIDAD DE SAN RAMÓN
+TÍTULO 1. Disposiciones generales.
+Artículo 1.- NATURALEZA DEL REGLAMENTO. Este Reglamento rige, detalla, describe y tutela el cumplimiento de los deberes formales que deben de observar y cumplir todos los propietarios y poseedores por el hecho de su condición de titularidad sobre un bien inmueble localizado dentro de la circunscripción territorial del cantón de San Ramón. Tales deberes intrínsecos a su condición de titularidad, se motivan en principios de ordenamiento comunitario, solidaridad y responsabilidad económico social de los munícipes y en las políticas de desarrollo del gobierno local en ejercicio de las funciones y facultades que le designa la Constitución Política, el Código Municipal y las demás normas conexas.

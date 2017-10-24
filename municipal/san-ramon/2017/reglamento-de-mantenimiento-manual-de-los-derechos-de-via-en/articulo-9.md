@@ -1,0 +1,1 @@
+Artículo 9.- Código Municipal. En materia de la omisión de pagos por trabajos realizados por parte de la Municipalidad o de las organizaciones no gubernamentales autorizadas con ese fin por la institución municipal serán aplicables los artículos 70; 74; 75 incisos a), b), e), g) y j) y; 76 del Código Municipal.

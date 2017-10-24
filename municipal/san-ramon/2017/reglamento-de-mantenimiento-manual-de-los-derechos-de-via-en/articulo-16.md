@@ -1,0 +1,1 @@
+Artículo 16.- Realización de las Obras de Oficio. En caso de que el vecino rio realice las obras en el período establecido, la Municipalidad por cuenta propia o a través de convenio establecido para tal fin con los Comités de Caminos, o con las Asociaciones de Desarrollo, u otras ONG debidamente legalizadas, procederá a la realización del trabajo pendiente.
