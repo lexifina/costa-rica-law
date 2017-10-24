@@ -1,0 +1,2 @@
+Artículo 7º—Responsables. Corresponde a los jefes de los funcionarios que reciben esta retribución, informar de forma puntual y anticipada a la Dirección de Recursos Humanos, la fecha en que los ocupantes de los puestos afectados, dejen de realizar las actividades o tareas consideradas como peligrosas.
+La Dirección de Recursos Humanos deberá mantener un control de los puestos, cuyos ocupantes devengan la retribución.
