@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE CURRIDABAT
+(Nota de Sinalevi: La Municipalidad de Curridabat había emitido anteriormente el Reglamento para el Uso y Administración de Vehículos de la Municipalidad de Curridabat, en sesión N° 46 del 20 de marzo de 2003)
+En uso de la potestad reglamentaria conferida por el Código Municipal en su artículo 4 y, por acuerdo Nro. 3, que se consigna en el artículo 1º, capítulo 3º, del acta de la sesión ordinaria Nro. 074-2017, del 26 de septiembre de 2017, el Concejo de Curridabat resolvió promulgar la siguiente reforma al:
+REGLAMENTO PARA EL MANEJO, USO Y MANTENIMIENTO DE LA FLOTILLA DE VEHÍCULOS Y DE LA MAQUINARIA ESPECIAL DE LA MUNICIPALIDAD DE CURRIDABAT
+Capítulo I: Disposiciones Generales
+Artículo 1. Ámbito de Aplicación. El presente reglamento se emite bajo la potestad reglamentaria conferida por los artículos 4 inciso a), 13 inciso c) y e) y 17 incisos a) y h) del Código Municipal, artículo 140 de la Constitución Política y cumpliendo de conformidad las disposiciones emanadas de la Ley de Tránsito. Regula los procedimientos para la administración, custodia, uso, control y mantenimiento de todos los vehículos livianos, de carga pesada o maquinaria especial; así como la fijación de responsabilidades para el uso de vehículos que son propiedad de la Municipalidad de Curridabat, bajo cualquier modalidad de convenio o relación.

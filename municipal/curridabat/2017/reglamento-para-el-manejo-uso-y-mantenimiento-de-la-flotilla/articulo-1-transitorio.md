@@ -1,0 +1,3 @@
+Capítulo X: Transitorios
+Transitorio I: La Dependencia Administrativa, tendrá un plazo de 3 meses, para verificar que los vehículos municipales tengan odómetro u otro tipo de instrumentos de medición como, cronómetros adecuados (en el caso de la maquinaria especial) para el control, en razón del cumplimiento del nuevo programa de mantenimiento que establece el presente reglamento.
+Finalizada esta verificación, deberá presentar un informe a la Alcaldía Municipal con las necesidades con relación a este tipo de instrumentos de medición de la flotilla vehicular y de maquinaria especial, todo lo anterior dentro del mismo término de 3 meses.
