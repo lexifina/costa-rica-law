@@ -1,0 +1,1 @@
+Artículo 14.-Sobre el cumplimiento de horas. El departamento de Recursos Humanos de la Municipalidad de Carrillo será el encargado de verificar el cumplimiento de las horas establecidas, con base al reporte generado por los relojes marcadores.

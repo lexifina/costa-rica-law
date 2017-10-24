@@ -1,0 +1,3 @@
+Artículo 11.-Criterios de Selección. Los documentos citados en los artículos 10 y 9 del presente reglamento, deben ser presentados ante el Departamento de Recursos Humanos con copia a la Alcaldía Municipal de la Municipalidad de Carrillo.
+Para la aprobación de cada solicitud, las dependencias donde se realizarán las actividades deberá constatar y comunicar a la Alcaldía Municipal y al Departamento de Recursos Humanos que la actividad a desarrollarse por parte del solicitante corresponda con las necesidades y fines institucionales.
+Para la selección de los interesados, se deberá contemplar la equidad de género y la no discriminación.

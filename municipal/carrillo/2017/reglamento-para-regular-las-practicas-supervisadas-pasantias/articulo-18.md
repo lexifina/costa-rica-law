@@ -1,0 +1,1 @@
+Artículo 18.- De los funcionarios municipales supervisores. Cada dependencia, departamento, sección, área u oficina de la Municipalidad de Carrillo, designará un funcionario supervisor, quien será el o la encargado/a de velar por el efectivo desarrollo de las actividades que realizan estas personas.

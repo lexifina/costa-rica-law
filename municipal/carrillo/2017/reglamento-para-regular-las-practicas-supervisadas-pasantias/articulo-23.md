@@ -1,0 +1,4 @@
+CAPITULO VI
+DEL INFORME FINAL
+Artículo 23.-Informe Final. Una vez finalizado el período establecido para la realización de las actividades comprendidas en el presente reglamento y de previo al visto bueno de la Municipalidad de Carrillo, los pasantes, estudiantes que realicen trabajos comunales o prácticas supervisadas, deberán presentar ante el despacho, dirección, departamento, área u oficina en que realizó las actividades asignadas, un informe detallado, con copia al Departamento de Recursos Humanos y a la Alcaldía Municipal de la Municipalidad de Carrillo.
+Dicho informe deberá contener, al menos, la información correspondiente a las actividades asignadas, las fechas en que fueron realizadas, el número de horas y el período durante el cual se realizaron. Este documento deberá contar además con la firma de aprobación del funcionario municipal que supervisó.

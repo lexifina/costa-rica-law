@@ -1,0 +1,1 @@
+Artículo 5.- Trabajo Comunal Estudiantil. Es un requisito propio de programas académicos de educación diversificada (para los estudiantes típicamente ubicados entre 16 y 18 años aproximadamente), que comprende una serie de actividades previamente definidas y organizadas en función de los planes de estudio y las directrices del Ministerio de Educación Pública (MEP).

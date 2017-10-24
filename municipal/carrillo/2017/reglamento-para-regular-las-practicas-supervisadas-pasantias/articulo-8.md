@@ -1,0 +1,4 @@
+CAPITULO III
+DEL PROCEDIMIENTO DE ADMISIÓN
+Artículo 8.-Proceso de Admisión. La realización del voluntariado, pasantías, trabajos comunales y las prácticas supervisadas, será admitida únicamente cuando estas hayan sido debidamente gestionadas por la Municipalidad de Carrillo a través de la instancias pertinentes o a solicitud expresa de una institución ya sea educativa o de otra índole, nacional o internacional.
+La Alcaldía Municipal y el Departamento de Recursos Humanos de la Municipalidad de Carrillo en representación de la institución serán los responsables de gestionar la admisión de las personas interesadas, previa solicitud justificada de la Institución sea educativa o de otra índole, nacional o internacional y análisis de viabilidad del departamento municipal donde se recibirá a la persona.

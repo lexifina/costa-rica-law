@@ -1,0 +1,1 @@
+Artículo 16.-Estructura de Protección Social. El Departamento de Recursos Humanos tendrá la obligación de gestionar el ingreso de las personas aceptadas en las estructuras de protección social de acuerdo con la legislación vigente, sin que lo anterior genere relación laboral alguna.
