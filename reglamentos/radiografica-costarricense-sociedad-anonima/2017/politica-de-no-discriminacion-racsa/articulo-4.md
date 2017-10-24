@@ -1,0 +1,2 @@
+Artículo 4º—La Política de No Discriminación es de acatamiento obligatorio para todas las dependencias de la empresa.
+De igual manera, la Política tendrá alcance tanto para las personas funcionarias, como también para las personas clientes, socios o proveedores de los servicios empresariales. Su ámbito de aplicación comprende dos dimensiones: la prestación de los servicios y el trato y oportunidades, que se bridan a quienes laboran en RACSA.

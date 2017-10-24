@@ -1,0 +1,1 @@
+Artículo 2º—RACSA se compromete a velar para que las diferentes actividades y programas que se desarrollen dentro de la Empresa promuevan relaciones armónicas, basadas en el respeto y el trato justo en el lugar de trabajo.
