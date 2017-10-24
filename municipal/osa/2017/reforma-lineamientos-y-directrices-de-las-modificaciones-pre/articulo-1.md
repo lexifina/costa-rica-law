@@ -1,0 +1,11 @@
+MUNICIPALIDAD DE OSA
+MODIFICACIÓN A LOS LINEAMIENTOS Y DIRECTRICES
+DE LAS MODIFICACIONES PRESUPUESTARIAS Y
+PRESUPUESTOS EXTRAORDINARIOS DE LA
+MUNICIPALIDAD DE OSA
+Sección III, articulo N° 02, punto N° 04:
+4. Para solicitar la realización de una modificación la jefatura respectiva deberá remitir un oficio donde se indique las cuentas que deben ser incrementadas y disminuidas de la respectiva unidad o departamento, justificaciones amplias y claras por las cuales se requiere el movimiento presupuestario, indicar si afecta las metas del plan anual operativo, firma de la jefatura, sello de la respectiva unidad de trabajo, visto bueno de la jefatura inmediata y presentar la solicitud con un mínimo de tres días hábiles de anticipación, para verificar la viabilidad de los movimientos, de acuerdo al origen y aplicación de los fondos.
+El formato de modificación presupuestaria, que deberá confeccionar el Coordinador de Presupuesto, debe ser firmado por La Directora Financiera (revisado por), Coordinador de Presupuesto (hecho por) y Alcalde Municipal (autorizado por).
+La jefatura de cada departamento que suscriba el oficio de solicitud de modificación será responsable de justificar los movimientos propuestos solicitados y la Coordinación de Presupuesto verificará los fondos disponibles y procederá a continuar con el trámite de elaborar el movimiento en el formato pertinente y remitirlo al Concejo Municipal, como corresponde
+El Concejo Municipal de la Municipalidad de Osa por medio del Artículo VI. Lectura de correspondencia, Punto 5, de la Sesión Ordinaria número 35-2017 del 30 del mes de agosto del año 2017 y de conformidad con lo establecido en el párrafo segundo del artículo 43 del Código Municipal acuerda: Autorizar al señor Alcalde Publicar en el Diario Oficial La Gaceta la modificación del Reglamento Lineamientos y Directrices de las modificaciones Presupuestarias y Presupuesto Extraordinarios de la Municipalidad de Osa, sección III, articulo N° 02, punto N° 04 y por ende se le ordena al alcalde proceder a realizar las gestiones administrativas correspondientes para su publicación. Esta modificación al reglamento deja sin efecto cualquier otra disposición en contrario.
+Ciudad Cortes, Osa.
