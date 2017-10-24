@@ -1,0 +1,2 @@
+Artículo 11.—El Alcalde(sa) Municipal someterá a conocimiento del Concejo Municipal de Quepos el expediente con los estudios previos y la respectiva Resolución Administrativa para su aprobación del camino o la calle como pública. La donación del área privada, deberá ser aceptada y acordada por el Concejo Municipal de Quepos, para utilizarse como calle pública o camino
+público de la Red Vial Cantonal.
