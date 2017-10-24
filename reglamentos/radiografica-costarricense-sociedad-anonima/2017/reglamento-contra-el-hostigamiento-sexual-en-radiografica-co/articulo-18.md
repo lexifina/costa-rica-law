@@ -1,0 +1,6 @@
+Artículo 18: Instrucción del procedimiento.
+La Comisión Investigadora, procederá, en cumplimiento con lo que dicta la Ley, el presente Reglamento y de conformidad con el Libro Segundo de la Ley General de la Administración Pública y el Estatuto de Personal aplicable en RACSA.
+El procedimiento deberá finalizarse dentro del plazo ordenatorio de tres meses, contados a partir de la interposición de la denuncia, salvo circunstancias objetivas y excepcionales que permitan justificar un eventual retraso, el cual deberá ser motivado en todo caso por la Comisión Investigadora.
+La Administración y la Comisión Investigadora serán responsables por cualquier atraso grave e injustificado.
+A fin de garantizar la imparcialidad debida en el análisis de todos los elementos del caso, serán aplicables los motivos de abstención y recusación, establecidos en la Ley General de la Administración Pública.
+RACSA se reserva la posibilidad de contratar una organización o empresa externa especializada, tomando en cuenta los plazos correspondientes, para el conocimiento y la tramitación de la denuncia, en calidad de Comisión Investigadora, a solicitud del Departamento de Talento Humano con el aval de la Gerencia General, o por decisión unilateral de esta última, en apego a los procedimientos de contratación aplicables.

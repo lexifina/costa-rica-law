@@ -1,0 +1,2 @@
+Artículo 8: Causales de Despido de la persona denunciante.
+Quien formule una denuncia por hostigamiento sexual, sólo podrá ser despedido por causa justificada originada en falta grave a los deberes derivados del contrato laboral, según lo establecido en los artículos 81 y 369 del Código de Trabajo. De presentarse una de estas causales, la Empresa tramitará la autorización del despido ante la Dirección Nacional e Inspección General de Trabajo, donde deberá demostrar la existencia de la falta.

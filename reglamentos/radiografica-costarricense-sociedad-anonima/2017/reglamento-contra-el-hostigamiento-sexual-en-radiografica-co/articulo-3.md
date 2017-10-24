@@ -1,0 +1,2 @@
+Artículo 3: Finalidad de la Política Empresarial.
+La Gerencia General deberá elaborar una política empresarial en la materia de acoso sexual, que tendrá la finalidad de mantener en el lugar de trabajo, condiciones de respeto para quienes laboran ahí, para prevenir, desalentar, evitar y sancionar las conductas de hostigamiento sexual y tenderá a implementar la sensibilización de todos los trabajadores y las trabajadoras ante los valores empresariales de respeto a la dignidad humana y la igualdad de género.
