@@ -1,0 +1,1 @@
+Artículo 2º—El tiempo profiláctico es aquel tiempo en el que el trabajador estará ausente de su trabajo para realizar actividades recreativas, capacitaciones y descanso obligatorio para prevenir la posible aparición de enfermedades relacionadas a su puesto de trabajo.

@@ -1,0 +1,1 @@
+Artículo 14.—Las disposiciones contenidas en este Reglamento deben cumplirse en conformidad con lo dispuesto en la Constitución Política, el Código de Trabajo, la Convención Colectiva de la Municipalidad de San José y demás normas aplicadas.

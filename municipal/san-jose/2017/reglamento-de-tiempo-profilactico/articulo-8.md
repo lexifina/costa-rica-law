@@ -1,0 +1,1 @@
+Artículo 8º—Cada Dependencia será la responsable del presupuesto anual y la logística (lugares, administración, transporte, alimentación y otros), así como la administración del recurso humano durante dicho espacio profiláctico. El Proceso de Salud Ocupacional colaborará con capacitación sensibilización y apoyo requerido durante el desarrollo de las actividades profilácticas.

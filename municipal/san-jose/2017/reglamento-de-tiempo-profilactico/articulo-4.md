@@ -1,0 +1,1 @@
+Artículo 4º—Por ser el tiempo profiláctico un beneficio que no se puede posponer, fraccionar o acumular con otros periodos, si se presenta una incapacidad mientras está disfrutando de ese tiempo, no se deben considerar esos días como parte del periodo de profilaxis.

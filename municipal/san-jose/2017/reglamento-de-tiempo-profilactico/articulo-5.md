@@ -1,0 +1,1 @@
+Artículo 5º—Se pierde el beneficio cuando el trabajador es trasladado a otra actividad no contemplada en el artículo 26, inciso k) de la Convención Colectiva. Dicha información debe ser notificada de inmediato por la jefatura y Recursos Humanos al Proceso de Salud Ocupacional.

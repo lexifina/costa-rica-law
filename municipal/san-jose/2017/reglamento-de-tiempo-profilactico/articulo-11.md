@@ -1,0 +1,1 @@
+Artículo 11.—Si durante el periodo de tiempo profiláctico en el cual se esté realizando capacitación y sensibilización algún trabajador sufre un accidente, el mismo deberá ser comunicado de inmediato al supervisor y a alguno de los encargados que acompaña al grupo, para posteriormente realizar el proceso respectivo.
