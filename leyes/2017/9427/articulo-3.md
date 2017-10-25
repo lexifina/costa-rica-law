@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Los donatarios de los lotes no podrán vender o traspasar dichas propiedades más allá de sus familiares hasta tercer grado de afinidad o consanguineidad en un plazo de siete años, contado a partir de la fecha de la donación.
