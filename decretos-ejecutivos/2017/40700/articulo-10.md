@@ -1,0 +1,1 @@
+Artículo 10°. Con el objetivo de asegurar la protección de los procesos ecológicos esenciales del Parque, el administrador del área silvestre protegida mediante resolución administrativa podrá regular el ingreso y el desarrollo o no de ciertas actividades según la medición del impacto de la actividad turística en cada sitio.

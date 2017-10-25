@@ -1,0 +1,1 @@
+Artículo 2º. La atención al público es de las 8:00 a las 16:00 horas; sin embargo, puede haber excepciones generadas por las condiciones climáticas, de mareas y distancias, previa autorización de la Administración.

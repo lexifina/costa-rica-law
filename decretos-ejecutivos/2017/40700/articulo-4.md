@@ -1,0 +1,3 @@
+Artículo 4º. La colaboración y acatamiento del presente reglamento ayudarán a la
+protección de su biodiversidad y al manejo de los recursos por parte de los funcionarios del Parque.
+Todas las actividades que se realicen en Ja zona de uso público del Parque deberán ajustarse a las condiciones contenidas en el Plan General de Manejo de dicha área silvestre protegida, al presente reglamento de uso público, a las directrices e instrucciones técnicas y administrativas emanadas por el Sistema Nacional de Áreas de Conservación y en general a la normativa jurídica vigente a nivel nacional e internacional en materia ambiental.

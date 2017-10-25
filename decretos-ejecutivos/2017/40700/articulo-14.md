@@ -1,0 +1,1 @@
+Artículo 14°. Todo visitante, guía de turismo, capitán u tour operador, deberán acatar dentro de los límites del Parque, cualquier otra normativa o solicitud de los funcionarios que, con el fin de proteger los recursos naturales o la integridad física de los visitantes, se establezca.
