@@ -1,0 +1,1 @@
+ARTÍCULO 5.- Se excluyen de la aplicación de esta ley los casos de segregación y donación de la finca número uno-tres uno ocho cinco cuatro-cero cero cero (N.°1-31854-000), anteriores a esta ley y que son objeto de un proceso penal, hasta concluido el proceso y resolución en firme por las autoridades judiciales correspondientes.

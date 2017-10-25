@@ -1,0 +1,6 @@
+N° 9427
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+AUTORIZACIÓN A LA MUNICIPALIDAD DE ASERRÍ PARA QUE
+SEGREGUE Y DONE UN INMUEBLE DE SU PROPIEDAD
+ARTÍCULO 1.- Se autoriza a la Municipalidad del cantón de Aserrí, cédula jurídica número tres-cero uno cuatro-cero cuatro dos cero cuatro cinco (N.° 3-014- 042045), para que done y traspase lotes de un terreno de su propiedad, inscrito en el Registro Público, partido de San José, en el folio real número treinta y un mil ochocientos cincuenta y cuatro-cero cero cero (N.° 31.854-000), que es terreno de montaña, inculto, para agricultura y potreros; situado en el distrito 5°, Sabanillas, del cantón XII, Acosta, de la provincia de San José; lindante al norte con Gladys Prado Chavarría, Domingo Quirós Rodríguez, Gerardo Cascante Venegas y otro;al sur, con calle pública, quebrada, finca Pozo Azul, Domingo Arias Godínez y otros; al este, con quebrada, Edwin Chinchilla, Domingo Arias Rodríguez y otros, y al oeste, con río Candelaria, camino a Tirrí, Gerardo Cascante Venegas y Domingo Arias Rodríguez; mide catorce millones seiscientos setenta y cuatro mil ochocientos cincuenta y siete metros con setenta y seis decímetros cuadrados (14.674.857,76 m²). El plano catastrado no se indica por no constar en el Registro Nacional.
