@@ -1,1 +1,1 @@
-Artículo 4º—El acto final sobre la inscripción del Despacho será dictado por la junta directiva, y únicamente tendrá los recursos de revocatoria ante la junta directiva y apelación en subsidio ante la asamblea general.
+Artículo 4º: El acto final sobre la inscripción del Despacho será dictado por la Junta Directiva, y únicamente tendrá los recursos de revocatoria ante la Junta Directiva y apelación en subsidio ante la Asamblea General.

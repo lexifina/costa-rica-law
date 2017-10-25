@@ -15,3 +15,4 @@ Manual para el trámite de inscripción y actualización de despachos Contadores
 | --- | --- | --- |
 | 1 | 2014-09-04 | la propia norma |
 | 2 | 2015-07-27 | Reglamento 23 (2015-07-27) |
+| 3 | 2017-10-25 | Reglamento 21 (2017-10-25) |
