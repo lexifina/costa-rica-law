@@ -1,0 +1,1 @@
+Artículo 3º—Se autoriza a los funcionarios de las Administraciones Tributarias Territoriales, de Subgerencias distintas a Recaudación a realizar todos aquellos actos preparatorios de las actuaciones de cobro administrativo, por plazos no mayores a sesenta días consecutivos.

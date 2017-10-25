@@ -1,0 +1,1 @@
+Artículo 2º—Se autoriza a los responsables de las Administraciones Tributarias Territoriales para que asignen a los funcionarios de las Subgerencias distintas a Recaudación, casos de cobro administrativo.
