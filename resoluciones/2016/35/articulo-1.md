@@ -743,6 +743,9 @@ r = Ruta de transporte remunerado de personas.
 El valor del coeficiente de consumo de filtros de combustible, estará sujeto a variación de acuerdo con los estudios técnicos ejecutados, contratados o avalados por la Aresep. Este coeficiente técnico se actualizará como mínimo una vez cada cinco años, a partir de la entrada en vigencia de esta metodología.
 El plazo establecido permite la revisión periódica de la metodología de manera que se incorpore los cambios en el entorno financiero, así como los cambios tecnológicos y legales atinentes al servicio objeto de la presente metodología. En el momento que se decida incorporar en la metodología un nuevo coeficiente, este debe ser sometido al mecanismo de participación ciudadana que se considere pertinente.
 Los rubros de costos variables anteriormente descritos, utilizan los precios correspondientes que se encuentren vigentes al día de la audiencia pública de la aplicación de esta metodología.
+(Nota de Sinalevi: Mediante resolución RIT-066-2017 del 26 de octubre de 2017, se acordó actualizar el valor del precio del filtro de combustible para el reconocimiento del costo mensual del filtro de combustible en las fijaciones ordinarias de tarifas para el servicio de transporte remunerado de personas, modalidad autobús, según el siguiente detalle:
+Precio del filtro de combustible (PF)
+¢41.546.52")
 4.6 Rentabilidad del capital invertido
 La rentabilidad total mensual en la ruta "r" (RTr) se obtiene de la sumatoria de la rentabilidad del capital invertido en activos fijos y la rentabilidad del capital invertido en proveeduría.
 [imagen]
