@@ -15,3 +15,4 @@ Reglamento para los Sorteos que se realizan en el Programa La Rueda de la Fortun
 | --- | --- | --- |
 | 1 | 2017-02-10 | la propia norma |
 | 2 | 2017-04-24 | Reglamento 14 (2017-04-24) |
+| 3 | 2017-10-26 | Reglamento 19 (2017-10-26) |
