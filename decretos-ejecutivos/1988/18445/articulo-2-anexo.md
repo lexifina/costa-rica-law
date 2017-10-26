@@ -1,20 +1,10 @@
 ANEXO Nº 2
 METODOS Y PORCENTAJES DE DEPRECIACION
-En la presente tabla se indican los porcentajes anuales de
-depreciación, así como los años estimados de vida útil que deben ser
-usados para el cálculo de la depreciación de los diversos activos o
-grupos de activos, así como plantaciones, repastos y ganado, de las
-actividades agropecuarias y agroindustriales. En su aplicación deben
-observarse las siguientes normas:
-1º.- Para el cálculo de la depreciación, se permitirá el uso de los
-siguientes métodos:
+En la presente tabla se indican los porcentajes anuales de depreciación, así como los años estimados de vida útil que deben ser usados para el cálculo de la depreciación de los diversos activos o grupos de activos, así como plantaciones, repastos y ganado, de las actividades agropecuarias y agroindustriales. En su aplicación deben observarse las siguientes normas:
+1º.- Para el cálculo de la depreciación, se permitirá el uso de los siguientes métodos:
 a) De línea recta.
 b) la suma de los dígitos de los años.
-2º.- Cuando un activo se encuentre en la tabla en forma
-individualizada, puede usarse el porcentaje o los años de vida
-útil indicados expresamente para ese activo, independientemente
-de que también pudiera formar parte de un grupo de activos
-pertenecientes a determinada actividad.
+2º.- Cuando un activo se encuentre en la tabla en forma individualizada, puede usarse el porcentaje o los años de vida útil indicados expresamente para ese activo, independientemente de que también pudiera formar parte de un grupo de activos pertenecientes a determinada actividad.
 Porcentaje Años de vida
 anual (método suma
 Bien o actividad (método línea de los dígitos
@@ -410,6 +400,8 @@ Ordeñadoras mecánicas ...........................10 10
 Palas Mecánicas .................................15 7
 Panaderías (máquinas) .......................... 10 10
 Paneles y control de mando ...................... 7 15
+Bien o actividad | Porcentaje anual (método línea recta) | Años de vida (método suma de los dígitos de los años)
+Panel fotovoltaico (Así adicionado el bien anterior por el artículo 1° del decreto ejecutivo N° 40728 26 de octubre del 2017) | 5% (Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 40728 26 de octubre del 2017) | 20 (Así adicionado el punto anterior por el artículo 1° del decreto ejecutivo N° 40728 26 de octubre del 2017)
 Paredes o muros de concreto, piedra o
 mixto......................................... 2 50
 Pavimentadoras ..................................15 7
@@ -578,5 +570,4 @@ Rosas ornamentales (plantas madres) .............33 3
 Canales de drenaje ..............................16.66 6
 Canales de riego ................................12.50 8
 Ganado (de cría y de leche) .....................15 7
-(Así reformado por el inciso 15) del artículo 8 del
-Decreto Ejecutivo N° 29643 de 10 de julio del 2001).
+(Así reformado por el inciso 15) del artículo 8 del Decreto Ejecutivo N° 29643 de 10 de julio del 2001).

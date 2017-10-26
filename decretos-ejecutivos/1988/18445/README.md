@@ -28,3 +28,4 @@ Reglamento a Ley del Impuesto sobre la Renta
 | 13 | 2015-10-01 | Decreto Ejecutivo 39376 (2015-10-01) |
 | 14 | 2016-04-18 | Decreto Ejecutivo 39690 (2016-04-18) |
 | 15 | 2017-04-06 | Decreto Ejecutivo 40365 (2017-04-06) |
+| 16 | 2017-10-26 | Decreto Ejecutivo 40728 (2017-10-26) |
