@@ -1,0 +1,1 @@
+Artículo 15.- Deber de colaboración. Toda dependencia y trabajador de la Institución están en la obligación de brindar su colaboración cuando se lo solicite el órgano director del procedimiento o el órgano decisor para facilitar su labor y el buen desempeño del procedimiento.

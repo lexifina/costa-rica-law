@@ -1,0 +1,3 @@
+Artículo 16.- Medidas cautelares. El órgano decisor de oficio o a petición del órgano director, podrá ordenar en cualquier etapa del procedimiento, mediante resolución debidamente fundada, cualquier medida cautelar que estime necesaria para asegurar los fines del procedimiento.
+El órgano director de oficio o a solicitud expresa de parte, podrá gestionar, ante el órgano decisor la solicitud de medida cautelar.
+La medida cautelar se ejecutará con la urgencia y prevalencia que se estime necesaria y podrá ser aplicada a cualquiera de las partes. La vigencia de la medida será determinada por su instrumentalidad para el proceso.

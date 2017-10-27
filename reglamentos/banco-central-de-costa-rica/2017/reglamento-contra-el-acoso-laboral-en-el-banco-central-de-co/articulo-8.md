@@ -1,0 +1,8 @@
+CAPÍTULO III
+LA DENUNCIA Y LA INVESTIGACIÓN PRELIMINAR
+Artículo 8.- Instancias competentes para recibir las denuncias. Todo funcionario que se considere víctima de acoso laboral podrá interponer, ante alguna de las instancias que se indicarán en este Reglamento, una denuncia por eventual acoso laboral, ante las siguientes instancias:
+a) Ante el Jerarca Superior Administrativo del Banco Central o del órgano de desconcentración máxima en que labore el denunciado.
+b) En caso de que los denunciados sean el Gerente, Subgerente, Auditor y Subauditor Internos del Banco Central o los miembros del Consejo Nacional de Supervisión del Sistema Financiero, la Junta Directiva del Banco Central será el órgano competente para conocer la denuncia, la cual debe ser presentada ante el asesor jurídico del Banco Central.
+c) En caso de que los denunciados sean los Superintendentes, Intendentes o el Auditor Interno del Consejo Nacional de Supervisión del Sistema Financiero, este último Órgano será el competente para conocer la denuncia, la cuál debe ser presentada ante el asesor jurídico de ese Consejo.
+d) Si el denunciado es un director de la Junta Directiva del Banco Central, el competente para conocerla será el Consejo de Gobierno.
+En los casos de las denuncias contempladas en los incisos b) y c) de este artículo, los asesores jurídicos deberán informar de inmediato a los respectivos órganos colegiados superiores según sea el caso, en un plazo no mayor a diez días hábiles contados a partir del día siguiente hábil de recibida dicha comunicación, con el fin de que emitan el acuerdo que corresponda según las características del caso concreto, incluyendo una eventual medida cautelar.

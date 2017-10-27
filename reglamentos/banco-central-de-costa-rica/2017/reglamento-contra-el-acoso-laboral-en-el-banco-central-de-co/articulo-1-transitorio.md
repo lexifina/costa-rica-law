@@ -1,0 +1,1 @@
+Transitorio Único: Los procedimientos disciplinarios relativos a esta materia que con anterioridad a la publicación de este Reglamento se encuentren activos, se regirán en todos sus trámites y recursos conforme a esta normativa a partir de su entrada en vigencia.

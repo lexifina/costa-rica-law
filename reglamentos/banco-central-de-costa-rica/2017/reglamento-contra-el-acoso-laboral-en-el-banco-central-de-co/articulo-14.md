@@ -1,0 +1,1 @@
+Artículo 14.- Garantía para el denunciante y los testigos. Ningún trabajador que haya denunciado ser víctima de acoso laboral o haya comparecido como testigo de las partes, podrá ser objeto de represalias laborales por ese motivo.
