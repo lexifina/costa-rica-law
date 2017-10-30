@@ -1,11 +1,20 @@
-Artículo 23.—Sobre la liquidación Financiera a presentar por parte del receptor: Ejecutado el proyecto, receptor emitirá el informe correspondiente de la liquidación financiera dirigido al responsable del Inder, en el cual se detallará los siguientes aspectos:
-a) Contener un amplio detalle de cada uno de los giros realizados en relación con el cumplimiento de metas alcanzadas en concordancia con la información financiera presupuestaria reflejada en los Informes mensuales.
-b) Detalle de servicios especiales contratados, si existen
-c) Detalle de origen y aplicación de fondos para los recursos con finalidad especifica (cifras reales).
-d) En los casos en los que los sujetos públicos no pudieran ejecutar el proyecto dentro periodo presupuestario y por ende el presupuesto otorgado por el Inder o parte de este se convierta en superávit deberán rendir un resumen del resultado de la liquidación a más tardar al 31 de diciembre y otro posterior del siguiente periodo presupuestario.
-e) Gastos reales según la clasificación económica aprobada.
-f) Respecto a los ingresos y gastos por concepto de transferencias, incluir el nombre de las Institución que transfiere, sea el Instituto de Desarrollo Rural, clasificarlas en corrientes o de capital acorde con lo aprobado en los documentos presupuestarios y ubicarlas en los distintos sectores y subsectores.
-g) Conciliación de los saldos de caja determinados por la contabilidad y por la tesorería del ente receptor, así como el Estado de Cuenta Bancario para determinar que la suma de las cuentas de Caja, Banco e Inversiones Transitorias concilie con los recursos depositados en el banco.
-h) Determinación de Recursos Saldos Específicos, Gastos Corrientes y de Capital, Relación Ingreso Gasto en Servicios Públicos, Liquidación Deuda o financiamiento, Conciliación de Saldos de Caja Determinados por Contabilidad y Tesorería, Conciliaciones Bancarias, Estados de Cuenta, Detalle de Saldos Partidas Presupuestadas en la Transferencia, Estados financieros y de tesorería; y cualquier otra documentación que se requiera por solicitud del Instituto de Desarrollo Rural.
+Artículo 23.—Sobre la liquidación Financiera a presentar por parte del receptor:
+Ejecutado el proyecto, receptor emitirá el informe correspondiente de la liquidación financiera dirigido al responsable del Inder, en el cual se detallará los siguientes aspectos:
+a) Carta de remisión del expediente emitido por el Fondo de Desarrollo Rural donde soliciten el estudio de liquidación.
+b) El informe de liquidación debe contener un índice que muestre el detalle de los documentos que contiene el expediente, además cada página debe estar foliada.
+c) Acta de Recepción Final proyecto firmado por el representante del Inder y el representante de la organización donde se entrega y reciben la obra a satisfacción.
+d) Carta donde los beneficiarios del proyecto o representantes de la organización en la comunidad reciben a conformidad la obra.
+e) Transcripción del acuerdo del Superior Jerarca del receptor (Junta Directiva, Asamblea de Asociados, Concejo Municipal o similar) donde se conoce y aprueba el informe de ejecución presupuestaria con toda la información señalada en los puntos anteriores.
+f) Detalle de los intereses generados.
+g) Resumen de ingresos como se muestra a continuación
+[imagen]
+h) Resumen de ingresos y gastos según detalle con la siguiente información
+[imagen]
 i) En el caso de los sobrantes, deberá constar copia del depósito bancario donde se reintegra el monto más los intereses generados al Instituto de Desarrollo Rural.
-Transcripción del acuerdo del Superior Jerarca del receptor (Junta Directiva, Asamblea de Asociados, Concejo Municipal o similar) donde se conoce y aprueba el informe de ejecución presupuestaria con toda la información señalada en los puntos anteriores.
+j) Liquidación Presupuestaria por Objeto del Gasto por cada año y un total acumulado donde se reflejen los gastos del proyecto como se detalla a continuación:
+[imagen]
+k) Conciliaciones bancarias debidamente firmadas por el responsable competente. Que incluya el respaldo de la cuenta bancaria y los registros contables que muestre el saldo en libros.
+l) Estado de la cuenta bancaria donde se mantuvieron los recursos girados para el proyecto que refleje los movimientos mensuales de la obra que se ejecuta y que corresponden a lo firmado en el convenio.
+m)Detalle de los pagos efectuado (con el respectivo comprobante) listado con nombre del proveedor, fecha, concepto, monto y totales, con las justificaciones necesarias de los desembolsos como se detalla a continuación:
+[imagen]
+(Así reformado mediante sesión ordinaria N° 40 del 30 de octubre del 2017)

@@ -14,3 +14,4 @@ Reglamento para realizar transferencias de fondos públicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-18 | la propia norma |
+| 2 | 2017-10-30 | Reglamento 40 (2017-10-30) |
