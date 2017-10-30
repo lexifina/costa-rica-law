@@ -11,5 +11,6 @@ Autorízase al Poder ejecutivo para emitir hasta CUATRO BILLONES OCHENTA Y DOS M
 Pago de intereses de títulos de la deuda pública. En el marco de la renegociación de la deuda entre el Gobierno Central y las instituciones del Sector Público No Financiero, se autoriza al Ministerio de Hacienda a reconocer a éstas por el pago de intereses de los títulos de la deuda pública, una tasa de interés máxima igual a la suma del porcentaje de inflación, mas uno punto veinticinco porciento (1.25%).
 En caso de colocación con no residentes, de la Tesorería Nacional deberá publicar la información financiera de esas colocaciones
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance Digital N° 299 a La Gaceta N° 238 del 12 de diciembre del 2016)
+(Modificado el inciso B) anterior por el artículo 1° del decreto ejecutivo N° 40714 del 18 de octubre del 2017)
 (Así reformado por el artículo 1° de la ley N° 9461 del 7 de julio del 2017)
-(Modificado el inciso C) por el artículo 1° del decreto ejecutivo N° 40701 del 9 de octubre del 2017)
+(Modificado el inciso C) anterior por el artículo 1° del decreto ejecutivo N° 40701 del 9 de octubre del 2017)
