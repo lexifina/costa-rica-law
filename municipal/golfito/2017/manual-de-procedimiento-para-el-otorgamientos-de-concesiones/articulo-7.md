@@ -1,0 +1,5 @@
+Artículo 7°: Políticas específicas:
+7.i.-Se priorizará la coordinación para el amojonamiento y reposición de mojones por parte del Instituto Geográfico Nacional con la finalidad de delimitar la zona pública de la ZMT.
+7.ii.- Se priorizará la implementación de los Plan Regulador Vigente y la planificación de sectores costeros, atendiendo las características necesarias y reales que permitan el desarrollo de la comunidad y por ende la del cantón. Los Planes Reguladores, se articularán en un sistema integrado de información territorial, con el propósito de facilitar el control urbano y el seguimiento de la dinámica de ocupación de la ZMT.
+7.iii.-Se crearán y promulgará la normativa de autorregulación que sea indispensable para encausar adecuadamente los procesos internos de concesionamiento y mantenimiento de la zona marítimo terrestre.
+7.iv.-Se deberá rendir cuentas a la población del modo que se está administrando la zona marítimo terrestre, y del avance de todos los programas y procesos relacionados.

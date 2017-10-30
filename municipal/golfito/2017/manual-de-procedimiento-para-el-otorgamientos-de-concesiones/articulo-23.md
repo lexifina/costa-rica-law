@@ -1,0 +1,6 @@
+Artículo 23°: Perfil de Desarrollo Turístico
+En el caso de solicitudes que pretendan un desarrollo turístico, conforme dispone el artículo 56 del reglamento a la Ley N° 6043, el interesado deberá aportar un perfil de desarrollo turístico en el formato establecido por acuerdo de Junta Directiva del ICT N° SJD-318-2009 publicado en la Gaceta N° 126 del miércoles primero de julio del año 2009 y sus reformas.
+Este perfil deberá presentarse por parte del interesado en el transcurso de los 30 días hábiles posteriores a la firmeza del avalúo correspondiente.
+Para su revisión, el perfil será trasladado en el plazo máximo de 10 días naturales posteriores a su presentación al departamento de Control y Desarrollo Urbano para su revisión por parte del Ingeniero municipal, mismo que con arreglo de lo dispuesto por el ICT y el respectivo reglamento del PRZ, se manifestará sobre su procedencia o no.
+En caso de ser necesario prevenir sobre ajustes o dudas del mismo, quedará a cargo del citado departamento redactarlas y notificarlas al interesado.
+Una vez resueltas las dudas o aclarado lo necesario, partiendo del hecho que el perfil se ajusta a la normativa aplicable, el departamento de Control y Desarrollo Urbano remitirá atento oficio al departamento de ZMT para continuar con las gestiones de la concesión.

@@ -1,0 +1,2 @@
+Artículo 29°: Pago Canon e interés moratorio
+El canon se pagará por adelantado, tal y como sea pactado; por año o trimestre; durante los primeros cinco días del año o trimestre y su atraso generará interés moratorios del dos por ciento (2%) mensual y cuando dicho retraso fuere de DOS TRIMESTRES en forma injustificada, será causal suficiente para dar inicio del procedimiento de cancelación de la concesión, de conformidad con lo estipulado en el artículo 53 del Reglamento.

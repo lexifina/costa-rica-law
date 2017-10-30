@@ -1,0 +1,5 @@
+Artículo 3°: Objetivos específicos:
+3.i.-Propiciar el uso sostenible de la zona marítimo terrestre y el aprovechamiento de sus condiciones potenciales, para mejorar la calidad de vida de las poblaciones costeras, los índices de desarrollo económico y social local y convivir en equilibrio con la naturaleza, cumplir con lo que indica el patrimonio natural del estado al respecto.
+3.ii.-Ejercer una administración más eficiente de los territorios litorales de administración municipal, con fines catastrales y de incremento de la recaudación tributaria, así como de fortalecimiento de las capacidades del gobierno local de reinvertir en mejoras sociales e infraestructurales en todos esos sectores.
+3.iii.-Establecer procedimientos que garanticen los derechos de los administrados de manera pronta y eficiente. Y la transparencia de los procesos de adjudicación de concesiones, así como la correcta resolución de los conflictos que se generen en torno a éstas.
+3.iv.-Establecer controles eficaces que conlleven a generar confianza en los administrados, y un clima apropiado que atraiga y estimule la visitación y la inversión turística.
