@@ -1,0 +1,1 @@
+Artículo 2°- Se insta a las instituciones del Sector Público y el Sector Privado, a colaborar con el Ministerio de Economía, Industria y Comercio, en las actividades e iniciativas relacionadas con el día Nacional de la Competitividad.
