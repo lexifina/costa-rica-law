@@ -14,3 +14,4 @@ Aplicación de oficio de la "Metodología de fijación de tarifas para generador
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-01-24 | la propia norma |
+| 2 | 2017-10-31 | Resolución 110 (2017-10-31) |

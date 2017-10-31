@@ -24,7 +24,6 @@ l. Que del oficio 28-IE-2017, citado y que sirve de base para la presente resolu
 1. Aplicación de la metodología
 En este apartado se presenta el detalle de la aplicación de oficio de la "Metodología de fijación de tarifas para generadores privados (Ley 7200) que firmen un nuevo contrato de compra y venta de electricidad con el ICE" según la resolución RJ0-009-2010 y su modificación aprobada por la resolución RJ0- 027-2014.
 Según esta metodología tarifaria, la respectiva tarifa se calcula a partir de la siguiente ecuación:
-[imagen]
 A continuación se detalla la forma en que se realizó el cálculo de cada una de las variables de dicha ecuación.
 2. Costos de explotación (Ca)
 El cálculo de este valor parte de la determinación de una muestra de /os costos de explotación (operación, mantenimiento y administrativos) de plantas hidroeléctricas, en la medida de lo posible similares a las plantas que se pretende tarifar.
@@ -75,7 +74,6 @@ Por lo tanto, aplicando los métodos descritos, da como resultado un factor de p
 El factor de antigüedad mide la antigüedad promedio de las plantas, expresadas en función de su valor remanente, dado el tiempo en que las plantas han estado en operación.
 Para calcular el factor de antigüedad se considera únicamente las plantas de generación privada (nacionales) de las que se tenga información disponible para tos últimos tres años (2012-2014), según la base de datos de la Autoridad Reguladora. La antigüedad máxima es de 40 años debido a que es la vida útil contable de este tipo de activos.
 Según la metodología, el factor de antigüedad de las plantas de la muestra, se estima por medio de la siguiente fórmula:
-[imagen]
 Donde,
 Vu = es la vida útil de las plantas para generación eléctrica (40 años)
 Vo = es la vida en operación promedio
@@ -250,17 +248,15 @@ EL DIRECTOR CON RECARGO DE FUNCIONES DE LA INTENDENCIA DE ENERGÍA
 RESUELVE:
 l. Fijar las siguientes tarifas para los generadores privados existentes que firmen un nuevo contrato de compra venta de electricidad con el Instituto Costarricense de Electricidad (ICE) en:
 Cuadro No. 4
-Estructura tarifaría para plantas hidroeléctr icas existentes
-(dólares/kWh)
-Estación/Horario | Punta | Valle | Noche
-Alta Baja | 0,1721 0,0688 | 0,1721 0,0275 | 0,1033 0,0172
+Estructura tarifaria para plantas hidroeléctricas existentes (dólares/kWh)
+[imagen]
 Fuente: Intendencia de Energía
+(Así reformado la estructura tarifaria para plantas hidroeléctricas existentes anterior por resolución RIE-110-2017 del 31 de octubre de 2017)
 Cuadro No. 5
 Estructura tarifaria para plantas eólicas existentes (dólares/kWh)
-Estación | Parámetro
-Alta | 0,0956
-Baja | 0,0383
+[imagen]
 Fuente: Intendencia de Energía
+(Así reformado la estructura tarifaria para plantas eólicas existentes anterior por resolución RIE-110-2017 del 31 de octubre de 2017)
 I . Reiterar a los generadores privados que le vendan energía eléctrica al ICE al amparo de la Ley 7200, que de conformidad con lo establecido en la resolución RJD-009-2010, están en la obligación de presentar anualmente a la Aresep estados financieros auditados, en los cuales se detalle las subpartidas que componen: gastos operativos y de mantenimiento, administrativos y gastos de inversión individual; así como la debida justificación de la relación que cada gasto tiene con la prestación del servicio público, que permita a la Autoridad Reguladora disponer de la mayor y mejor cantidad de información necesaria para el ajuste del modelo a las condiciones operativas reales de este sector.
 III. Indicar a los generadores privados que le vendan energía eléctrica al ICE al amparo de la Ley 7200, que de no cumplir con lo establecido en la resolución RJD-009-2010, se remitirá a la Dirección General de Atención al Usuario (DGAU) la documentación respectiva, con el propósito de que se valore la posibilidad de iniciar los procedimientos administrativos correspondientes.
 IV. Tener como respuesta a las oposiciones, lo señalado en el "Considerando II" de esta resolución.
