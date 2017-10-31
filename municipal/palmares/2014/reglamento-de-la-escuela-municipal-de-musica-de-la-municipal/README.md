@@ -14,3 +14,4 @@ Reglamento de la Escuela Municipal de Música de la Municipalidad de Palmares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-06-16 | la propia norma |
+| 2 | 2017-10-31 | Reglamento municipal 77 (2017-10-31) |

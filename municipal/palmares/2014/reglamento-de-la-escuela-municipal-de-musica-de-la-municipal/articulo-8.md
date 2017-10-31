@@ -1,1 +1,1 @@
-Artículo 8º—La Municipalidad de Palmares incorporará en su presupuesto ordinario algunos gastos de mantenimiento para el edificio de la Escuela Municipal de Música.
+Artículo 8º—Los espacios de la Escuela Municipal de Música por ningún motivo serán cedidos para actividades de índole religiosa, política o con fines de lucro. Se podrán realizar, cuando así se solicite vía escrita a la Junta Administrativa, actividades académicas, conferencias, mesas redondas u otras similares.

@@ -1,2 +1,1 @@
-Artículo 6º—Los representantes designados en el artículo anterior, se reunirán para designar entre sí una Junta Directiva compuesta por un presidente, un secretario, un tesorero, un fiscal y un vocal.
-Los miembros de la Junta Directiva serán nombrados por dos años pudiendo ser reelectos.
+Artículo 6º—Los representantes designados en el artículo anterior, se reunirán para designar entre sí una Junta Directiva compuesta por un presidente, vicepresidente, secretario, fiscal y un vocal. Los miembros de la Junta Directiva serán nombrados por dos años pudiendo ser reelectos.
