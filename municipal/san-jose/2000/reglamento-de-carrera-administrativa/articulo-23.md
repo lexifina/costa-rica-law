@@ -1,1 +1,3 @@
-Artículo 23.—Del proceso de apelación. Una vez recibidos los resultados, los participantes que tengan razones fundamentadas en impugnar el procedimiento ejecutado y el nombramiento realizado, podrán presentar el correspondiente recurso, tal y como se menciona en el artículo 162 del Código Municipal.
+CAPÍTULO IV
+DISPOSICIONES FINALES
+ARTÍCULO 23. El presente Reglamento deroga todos aquellos Reglamentos y normas internas de su mismo rango o inferiores que se le opongan.

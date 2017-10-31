@@ -1,1 +1,2 @@
-Artículo 21.—De la declaración del ganador. Una vez con el informe el Alcalde procederá a declarar al ganador mediante la comunicación formal en un plazo no mayor de 5 días hábiles, a la Dirección de Recursos Humanos.
+ARTÍCULO 21. VIGENCIA DE LA CALIFICACIÓN OBTENIDA EN EL CONCURSO INTERNO.
+Los postulantes en un concurso interno que obtengan nota superior a 70% y no resulten seleccionados, podrán participar en futuros concursos internos manteniendo la misma calificación; siempre y cuando la plaza sea similar a la que había participado y que esté dentro de la misma dependencia. Dicha condición se mantendrá y aplicará por un lapso no mayor de 1 año, después de efectuado el concurso.

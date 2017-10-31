@@ -1,1 +1,9 @@
-Artículo 18.—De la integración de la terna. Aquellos participantes que obtengan una nota igual o superior a 70% integrarán la terna que alude el artículo 130 del Código Municipal.
+ARTÍCULO 18. EXAMEN TEÓRICO-PRÁCTICO.
+Responde al examen de carácter obligatorio que tiene por objetivo verificar los conocimientos teóricos y prácticos que posee el postulante, según aplique al cargo que se aspira; coadyuvando junto a los demás factores evaluativos, a comprobar la idoneidad, capacidad y conocimientos necesarios para desarrollar las funciones del puesto pretendido.
+Este factor evaluativo será considerado para valoraciones, concursos internos y externos.
+Según la calificación obtenida, se acreditarán un máximo de 35 pts. en el caso de valoraciones y concursos internos y un máximo de 40 pts. en el caso de concursos externos.
+Cuando algún participante no pueda presentarse el día convocado a la realización del examen mediando justa causa, éste será reprogramado por única vez. Para lo anterior dicha causa deberá necesariamente ser demostrada ante la oficina de Reclutamiento y Selección de Personal a más tardar al día hábil siguiente del programado para el examen teórico-práctico o la ausencia se tendrá como injustificada.
+Se entenderá por justa causa aquella que imposibilite de forma definitiva e imprevisible, el apersonamiento al examen, por caso fortuito y fuerza mayor.
+Cuando el examen sea reprogramado por causa que así lo amerite se aplicará uno diferente al aplicado a los demás postulantes.
+Ante la ausencia injustificada al examen la calificación será de 0 pts.
+Este factor evaluativo será considerado para valoraciones, concursos internos y externos.

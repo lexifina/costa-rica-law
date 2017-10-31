@@ -1,4 +1,3 @@
-CAPÍTULO II
-Del procedimiento para tramitar ascensos, reasignaciones
-y transformaciones de puestos
-Artículo 5º—Del ascenso directo. Para efectos del ascenso del inmediato inferior, a que alude el artículo 51, literal a) de la Convención Colectiva, se tomará en cuenta al trabajador que reúna idoneidad, experiencia, antigüedad, estudios formales y no formales, exigidos en el Manual de Puestos, para ocupar el cargo vacante.
+ARTÍCULO 5. PRINCIPIOS DE LA CARRERA ADMINISTRATIVA.
+El régimen de Carrera Administrativa se fundamenta en los principios de: justicia, objetividad, igualdad, equidad, legalidad, motivación, celeridad y economía procesal; utilizando criterios de razonabilidad y proporcionalidad.
+Tal régimen buscará la dignificación del servicio público y el mejor aprovechamiento del recurso humano, con el fin de cumplir con las competencias y atribuciones de la Municipalidad.

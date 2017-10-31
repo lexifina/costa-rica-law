@@ -1,4 +1,4 @@
-CAPÍTULO IV
-De la convocatoria a concurso interno y/o externos
-Artículo11.- De la posibilidad de la participación De demostrarse inopia en las instancias a las que se refiere el artículo 5 o se diera la situación enunciada en el artículo 6, la plaza será objeto de concurso interno, con participación de todos los trabajadores nombrados en propiedad e interinos. De estos solo participarán aquellos que se ajusten a lo solicitado en cuanto a requisitos y posibilidades de convalidación.
-(Así reformado en sesión N° 134 del 17 de agosto de 2015)
+ARTÍCULO 11. CONCURSO EXTERNO.
+Ante inopia en el procedimiento de concurso interno, la Municipalidad realizará un concurso externo con las mismas condiciones del concurso interno; éste será publicado al menos en un diario de circulación nacional.
+En éste procedimiento podrán participar tanto quienes sean funcionarios de la Municipalidad como quienes no lo sean. Todo lo anterior de acuerdo con el artículo 51 de la Convección Colectiva vigente.
+Los concursos externos deberán realizarse en un plazo no mayor a 2 meses calendario.

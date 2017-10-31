@@ -17,3 +17,4 @@ Reglamento de Carrera Administrativa
 | 2 | 2011-10-12 | SINALEVI (sin norma nombrada) |
 | 3 | 2015-08-17 | Reglamento municipal 134 (2015-08-17) |
 | 4 | 2016-07-26 | Reglamento municipal 13 (2016-07-26) |
+| 5 | 2017-10-31 | Reglamento municipal 79 (2017-10-31) |
