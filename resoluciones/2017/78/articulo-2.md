@@ -1,0 +1,1 @@
+Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución Nº RES-DGH-059-2017 del 07 de julio del 2017, publicada en La Gaceta Nº 141 del 26 de julio del 2017.
