@@ -1,0 +1,2 @@
+Artículo 5º—De la inspección municipal. La Municipalidad por medio de sus funcionarios y/o habilitados al efecto, podrá ejercer las labores de inspección que considere oportunas, para el fiel cumplimiento del presente Reglamento.
+CAPÍTULO III

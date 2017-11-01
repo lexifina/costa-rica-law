@@ -1,0 +1,5 @@
+Artículo 9º—Sanciones. Por incumplimiento de las disposiciones legales y reglamentarias, sin perjuicio de las demás estipuladas en este Reglamento, podrá la Municipalidad imponer las siguientes sanciones:
+a) Suspensión de la licencia, en caso de contar de contar con ella, de acuerdo a las reglas del debido proceso; esto será aplicable cuando realicen directamente la venta en la via publica, o indirectamente a través de un tercero mediante la venta ambulante; también será aplicable cuando el dueño, administrador o alguno de sus colaboradores la venta ambulante en vías públicas, o colaboren con ellas guardándoles las mercancías.
+b) Clausura de la actividad, de acuerdo a las reglas del debido proceso; salvo que se trate de venta de mercadería sin contar con una debida licencia comercial, en cuyo caso se procederá de acuerdo con lo establecido en el presente Reglamento y normas pertinentes.
+c) Imposición de multas. Por una primera vez, la suma equivalente a medio salario base previsto en el artículo 2º de la Ley Nº 7337.
+d) Denuncia ante los órganos judiciales competentes en los casos conducentes.

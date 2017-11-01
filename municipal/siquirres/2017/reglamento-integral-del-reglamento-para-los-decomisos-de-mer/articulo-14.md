@@ -1,0 +1,1 @@
+Artículo 14.—Denuncias ante los órganos jurisdiccionales. La Municipalidad procederá a denunciar ante los órganos jurisdiccionales competentes en los casos contemplados en el inciso b) del artículo 11 y 10 de este Reglamento.
