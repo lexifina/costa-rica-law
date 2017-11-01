@@ -1,0 +1,2 @@
+Artículo 2º—Se adiciona un inciso h) a las funciones de las Direcciones Regionales contenidas en el artículo 25 del Decreto Ejecutivo N° 27917-MOPT del 31 de mayo de 1999 “Reforma Organizativa y Funcional del Ministerio de Obras Públicas y Transportes”, cuyo texto dirá:
+“h. Las establecidas en el Reglamento a la Primera Ley Especial para la Transferencia de Competencias: Atención Plena y Exclusiva de la Red Vial Cantonal, Decreto Ejecutivo N° 40137 y demás normativa concordante.”

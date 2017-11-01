@@ -1,0 +1,1 @@
+Artículo 3º—Se deroga el artículo 22 y el inciso e) del artículo 18 del Decreto Ejecutivo N° 27917-MOPT del 31 de mayo de 1999 “Reforma Organizativa y Funcional del Ministerio de Obras Públicas y Transportes”.
