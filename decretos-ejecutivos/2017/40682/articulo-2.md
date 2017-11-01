@@ -1,0 +1,1 @@
+Artículo 2º—El Ministerio de Ciencia, Tecnología y Telecomunicaciones coordinará con el Ministerio de Hacienda, el Ministerio de Planificación Nacional y Política Económica y la Contraloría General de la República para la implementación y cumplimiento respectivo de las políticas públicas que en materia de Gobernanza Digital establezca el Poder Ejecutivo.
