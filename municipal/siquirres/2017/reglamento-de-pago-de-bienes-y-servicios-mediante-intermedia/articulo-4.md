@@ -1,0 +1,1 @@
+Artículo 4º—La Municipalidad a través del Alcalde (sa) Municipal podrá asumir en cualquier momento para reducir el riesgo de sub-ejecución o baja ejecución presupuestaria alternativas de custodia de fondos mediante la intermediación de entidades financieras y sus similares para garantizar el pago oportuno de bienes y servicios que el municipio se haya comprometido a cancelar.

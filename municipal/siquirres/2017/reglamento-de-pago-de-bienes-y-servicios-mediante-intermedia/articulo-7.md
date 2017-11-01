@@ -1,0 +1,1 @@
+Artículo 7º—Técnica presupuestario aplicable a la figura de las cartas de crédito, cheques de gerencia y tarjetas de combustible: Se dará como egreso debidamente realizado, en el momento en que dichos títulos valores se hayan suscrito, por lo cual los registros contables, y presupuestarios deben de reflejar dicha condición.

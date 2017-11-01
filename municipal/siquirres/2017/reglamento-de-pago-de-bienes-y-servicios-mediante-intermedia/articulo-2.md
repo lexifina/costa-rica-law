@@ -1,0 +1,10 @@
+Artículo 2º—Definiciones: Cuando en este reglamento se empleen términos y definiciones, debe dárseles las acepciones que se señalan a continuación:
+a) Custodia: Resguardo de valores.
+b) Municipalidad: La Municipalidad de Siquirres.
+c) Plazo: es el tiempo necesario para cumplir con la obligación adquirida asumiendo su respectivo coste.
+d) Riesgo: Probabilidad de que un factor, acción o acontecimiento de origen externo o interno perjudique el logro de los objetivos.
+f) Títulos valores: Documentos que se mantienen en custodia y que respaldan al propietario como acreedor del efectivo.
+g) Cartas de Crédito: Instrumento financiero de uso común que consiste en la suscripción mediante depósito previo por parte de solicitante, de un compromiso de pago; en dicha operación participan el solicitante, la entidad financiera como custodio y garante del pago del bien o servicio una vez entregado, y el beneficiario, el cual es el proveedor del servicio o del bien. Cuando se realicen pagos a un proveedor en el extranjero participaría un cuarto integrante el cual sería una entidad financiera responsable de recibir y realizar el pago final.
+h) Cheques de gerencia: Instrumento financiero en el que se suscribe un monto de dinero a un beneficiario, dicha emisión debida el dinero automáticamente de la cuenta del solicitante. Dicho cheque queda en custodia de la entidad financiera y solamente es girada al beneficiario en el momento que sea indicado por el solicitante.
+i) Tarjetas de combustible: Documento plástico vinculado con una cuenta administrada por la entidad financiera, en la cual el solicitante en forma previa asigna sumas de dinero, y cuando requiere el combustible procede a aplicar deducciones de las sumas custodiadas por la entidad financiera.
+j) Entidades financieras y sus similares: Instituciones del sector financiero y bancario del estado, así como aquellos que subsidiarias, franquicias y empresas con las cuales se creen alianzas comerciales para el pago óptimo de bienes y servicios.

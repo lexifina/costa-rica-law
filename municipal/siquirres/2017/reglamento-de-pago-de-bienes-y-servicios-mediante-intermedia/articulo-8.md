@@ -1,0 +1,1 @@
+Artículo 8º—El despacho de la Alcaldía presentara un informe detallado ante el Concejo Municipal, con motivo de las obligaciones cuyo pago hayan sido por el (ella) autorizados en aplicación de este reglamento.

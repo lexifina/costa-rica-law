@@ -1,0 +1,1 @@
+Artículo 6º—Los instrumentos financieros autorizados para pago mediante intermediación de las entidades financieras y sus similares son: La carta de crédito, cheques de gerencia, tarjetas de combustible y títulos valores similares.
