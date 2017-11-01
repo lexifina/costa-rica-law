@@ -1,0 +1,2 @@
+Artículo 4: Detalle de los premios
+Se otorgarán 4.000 carritos promocionales alusivos a las banderas de países que fueron campeones mundialistas de fútbol, Costa Rica y Rusia y de manera independiente 4 paquetes dobles para asistir a la Fiesta del Fútbol en Rusia. Cada persona que resulte favorecida con el premio de los carritos, automáticamente recibe una acción para participar en el sorteo de los 4 paquetes dobles para asistir a la Fiesta del Fútbol en Rusia.

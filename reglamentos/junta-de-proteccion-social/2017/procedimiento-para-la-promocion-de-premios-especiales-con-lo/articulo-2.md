@@ -1,0 +1,6 @@
+Artículo 2: Definiciones Para efectos del presente procedimiento, se utilizarán los siguientes conceptos:
+Junta: Junta de Protección Social.
+Premios especiales: Consisten en 4.000 carritos promocionales alusivos a las banderas de países que han sido campeones mundialistas de fútbol, Costa Rica y Rusia, y de manera independiente 4 paquetes dobles para asistir a la Fiesta del Fútbol en Rusia.
+Participantes: Toda persona física mayor de 18 años, que envíe en un sobre o active a través de la página web www.jps.go.cr, cinco fracciones de un mismo sorteo de Lotería Nacional o cinco fracciones de un mismo sorteo de Lotería Popular, de sorteos que se realicen a partir del 31 de octubre, 2017 (sorteo No. 6259 de Lotería Popular) y hasta el sorteo del 31 de diciembre, 2017 (sorteo No. 4473 de Lotería Nacional), exceptuando el sorteo del Gordo Navideño No. 4471 a realizarse el 17 de diciembre del 2017.
+Tómbola electrónica: Tómbola generada con las activaciones que realizan las personas a través de la página web www.jps.go.cr, los ganadores se determinan de manera aleatoria a través de un sistema informático.
+Sorteo: proceso de selección al azar de los favorecidos, el cual es debidamente fiscalizado por personal de la Junta de Protección Social y un funcionario judicial.
