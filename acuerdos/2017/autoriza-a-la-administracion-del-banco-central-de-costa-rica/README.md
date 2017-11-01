@@ -14,3 +14,4 @@ Autoriza a la Administración del Banco Central de Costa Rica para que en la pla
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-26 | la propia norma |
+| 2 | 2017-11-01 | Acuerdo 0 (2017-11-01) |
