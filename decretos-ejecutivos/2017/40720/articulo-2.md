@@ -1,0 +1,1 @@
+Artículo 2 º- Deróguese el Decreto Ejecutivo número 40521-H de fecha 7 de julio de 2017, publicado en el Alcance número 185 a La Gaceta número 144 de fecha 31 de julio de 2017, a partir de la vigencia del presente decreto.
