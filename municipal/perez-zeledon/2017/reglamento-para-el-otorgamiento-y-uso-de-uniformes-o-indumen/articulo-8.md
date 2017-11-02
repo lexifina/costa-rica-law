@@ -1,0 +1,1 @@
+Artículo 8º—La adquisición y entrega de los uniformes nuevos corresponde a la Proveeduría Municipal en coordinación con las Jefaturas respectivas, coordinadores de Sub-Procesos y el Departamento de Recursos Humanos, dicha entrega se realizará al funcionario previa devolución de los implementos que le fueran entregados anteriormente, cuando así corresponda.

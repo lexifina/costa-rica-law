@@ -1,0 +1,1 @@
+Artículo 12.—Los trabajadores deben responder ante la Municipalidad, por todos los daños y perjuicios que cause por culpa o dolo a la indumentaria asignada, además cualquier uniforme o pieza adicional que desee confeccionar un funcionario, correrá por su propia cuenta, no pudiendo variar los materiales ni las características del uniforme.

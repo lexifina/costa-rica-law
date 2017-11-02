@@ -1,0 +1,1 @@
+Artículo 10.—Los uniformes devueltos por los funcionarios municipales, ya sea por la entrega del nuevo uniforme o por la finalización de la relación laboral, deberá ser debidamente revisado para su reutilización o destrucción, según el estado de cada prenda.

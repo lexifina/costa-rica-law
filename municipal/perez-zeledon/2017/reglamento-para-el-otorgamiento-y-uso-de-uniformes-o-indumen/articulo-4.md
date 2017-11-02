@@ -1,0 +1,1 @@
+Artículo 4º—En el caso de los funcionarios que realicen actividades operativas y que por la naturaleza de sus funciones implique un deterioro mayor de sus uniformes, se deberá de facilitar uno adicional y un par de zapatos extra, previo visto bueno de la oficina de Salud Ocupacional.
