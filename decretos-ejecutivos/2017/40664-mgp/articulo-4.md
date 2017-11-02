@@ -1,0 +1,1 @@
+Artículo 4. La DOME concederá el tiempo necesario dentro de la jornada laboral —con goce de salario-a aquellas personas funcionarias que participen oficialmente como facilitadoras, a fin de que puedan organizar el curso, preparar los materiales, impartirlo, realizar las evaluaciones y elaborar los informes respectivos una vez concluidas las actividades.

@@ -1,0 +1,1 @@
+Artículo 29. A las personas funcionarias que ocupen puestos cuyos requisitos no exijan estudios universitarios o parauniversitarios, se les podrá conceder licencias para estudiar cualquier carrera que contribuya a su desarrollo profesional en el ámbito ocupacional de la DGME.

@@ -1,0 +1,1 @@
+Artículo 41. La suscripción de contratos será tramitada por el SD, oficina que llevará un registro de los diferentes contratos suscritos por las personas funcionarias de la DOME, con el propósito de verificar su cumplimiento y tomar las medidas administrativas que procedan para prevenir y subsanar irregularidades derivadas del incumplimiento o la rescisión de los mismos.

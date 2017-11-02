@@ -1,0 +1,3 @@
+CAPÍTULO II
+Disposiciones Generales
+Artículo 3. Es obligación de las personas funcionarias someterse a los programas de capacitación y perfeccionamiento técnico, requeridos para el buen desempeño de sus puestos, así como, contribuir a la transferencia de los conocimientos adquiridos. Igualmente, es deber de la DGME proporcionarles las condiciones y posibilidades 'que les permita dicha capacitación, perfeccionamiento y transferencia. Sin embargo, la obligación de las personas funcionarias no es extensiva a aquellos programas de capacitación desarrollados fuera de las jornadas ordinarias de trabajo, en cuyo caso, su participación es voluntaria.

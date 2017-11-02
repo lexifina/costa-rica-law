@@ -1,0 +1,1 @@
+Artículo 30. A las personas funcionarias que ocupen puestos en áreas afines con carreras universitarias o parauniversitarias, se les podrá conceder licencia para estudios, si la carrera escogida se relaciona directamente con las actividades del puesto desempeñado o con áreas ocupacionales en las que pueden ser promovidos.

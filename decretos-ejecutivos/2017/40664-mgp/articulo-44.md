@@ -1,0 +1,1 @@
+Artículo 44. No se tramitarán nuevos contratos para actividades de capacitación o estudios a la persona funcionaria que tenga responsabilidades pendientes por concepto de incumplimiento de contratos o reprobación de la actividad, a menos que haya logrado suscribir algún acuerdo con la DGME para resolver la responsabilidad pendiente.

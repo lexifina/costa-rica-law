@@ -1,0 +1,1 @@
+Artículo 9. Toda persona que ejerza un cargo de jefatura en la DGME, deberá permitir y propiciar la participación de las personas colaboradoras en el PIC anual, tomando las medidas que correspondan para que no se afecte el buen funcionamiento de las unidades de la DGME, a efectos de garantizar la continuidad y eficiencia en la prestación del servicio público.

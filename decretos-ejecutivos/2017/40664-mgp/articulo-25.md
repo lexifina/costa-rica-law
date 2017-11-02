@@ -1,0 +1,1 @@
+Artículo 25. No se autorizarán nuevas actividades de capacitación a la persona funcionaria que tenga responsabilidades pendientes por concepto de incumplimiento con actividades de capacitación previas.

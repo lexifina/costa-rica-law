@@ -1,0 +1,1 @@
+Artículo 39. La no firma del contrato invalidará cualquier autorización de la licencia, además en caso de que se hubiere disfrutado de la licencia sin firmar el contrato, esto no eximirá a la persona beneficiaria del cumplimiento de lo estipulado en este Reglamento.

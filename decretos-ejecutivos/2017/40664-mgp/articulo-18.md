@@ -1,0 +1,1 @@
+Artículo 18. La administración de los incentivos salariales de las personas funcionarias de la DGME cubiertos por el Régimen del Servicio Civil, se regirán por lo dispuesto en el Estatuto de este Régimen y su Reglamento, así como en las disposiciones que al efecto emita la Dirección General de Servicio Civil con relación a la Carrera Profesional.

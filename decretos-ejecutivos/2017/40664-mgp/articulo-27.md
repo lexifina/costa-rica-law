@@ -1,0 +1,3 @@
+Sección II
+Licencias de Estudios
+Artículo 27. Las licencias para que las personas funcionarias asistan a cursos de estudio en las instituciones educativas de nivel superior del país, se concederán de conformidad con lo estipulado en los artículos 37 y 38 del Reglamento del Estatuto de Servicio Civil, el Capítulo único del Título III denominado Derechos, Deberes, Obligaciones y Prohibiciones del Decreto N° 38756 MGP Reglamento de Organización y Servicio de la Policía Profesional de Migración y Extranjería y la Ley General Policía N° 7410, según corresponda, así como la Ley de Licencias para Adiestramiento de Servidores Públicos N° 1810 del 15 de octubre de 1954 y sus reformas.

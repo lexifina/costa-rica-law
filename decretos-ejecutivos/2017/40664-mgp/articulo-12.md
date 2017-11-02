@@ -1,0 +1,1 @@
+Artículo 12. Serán considerados para fines de reclutamiento, selección de personal, carrera administrativa e incentivos, los certificados que se otorguen en las modalidades de aprovechamiento y de participación.

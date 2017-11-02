@@ -1,0 +1,1 @@
+Artículo 11. En las actividades de aprovechamiento en las que las personas participantes cumplan con el 85% de asistencia, pero resultaren con una cantidad inferior a las 30 horas y superior a las 12 horas, y obtengan una calificación igual o superior a 70%, se les podrá otorgar un certificado de participación por el respectivo número de horas.

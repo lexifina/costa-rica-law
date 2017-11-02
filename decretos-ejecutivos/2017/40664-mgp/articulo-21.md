@@ -1,0 +1,1 @@
+Artículo 21. El tiempo requerido por la persona facilitadora para la preparación de los temas, contenidos y materiales de estudio del evento por impartir no será considerado para el reconocimiento de la capacitación impartida.

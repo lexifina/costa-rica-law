@@ -1,0 +1,3 @@
+Sección III
+Contratos para Estudios
+Artículo 31. La concesión de licencias para el aprovechamiento de becas y otras actividades de capacitación, a través de la invitación de organismos internacionales, gobiernos o empresas privadas, que demanden la representación oficial de la DOME, se regirá a través de la suscripción de un acuerdo de viaje y podrá sustentarse con un contrato para estudios, salvo otra disposición de la persona jerarca de la DOME. Artículo 30. A las personas funcionarias que ocupen puestos en áreas afines con carreras universitarias o parauniversitarias, se les podrá conceder licencia para estudios, si la carrera escogida se relaciona directamente con las actividades del puesto desempeñado o con áreas ocupacionales en las que pueden ser promovidos.

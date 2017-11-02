@@ -1,0 +1,1 @@
+Artículo 46. Todo contrato puede ser modificado por acuerdo de las partes. Ningún aspecto puede ser cambiado en forma unilateral salvo cuando prevalezca el interés público, en que la Administración podrá tomar las medidas que juzgue necesarias.
