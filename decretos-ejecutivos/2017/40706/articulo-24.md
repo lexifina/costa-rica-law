@@ -1,0 +1,2 @@
+Artículo 24.- Financiamiento. Cada institución con competencias y atribuciones afines al enfoque supracitado e integrante de las comisiones en cuestión, asignará presupuesto exclusivo para el efectivo cumplimiento de las funciones de Promoción de la Salud según el ámbito de competencia.
+El Ministerio de Salud asignará una partida presupuestaria para garantizar la implementación de los planes Estratégicos de las comisiones nacional, regionales y locales.

@@ -1,0 +1,1 @@
+Artículo 5.- Coordinación. Las CPS serán coordinadas por las personas encargadas de Promoción de la Salud de las direcciones rectoras en salud, según su nivel de gestión nacional, regional y local del Ministerio de Salud.

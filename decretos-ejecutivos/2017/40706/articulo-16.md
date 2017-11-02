@@ -1,0 +1,1 @@
+Artículo 16.- Cada representante y su suplente, serán designados por el respectivo Jerarca, Director Regional o Director Local, según corresponda, por espacio de tres años. Cumplido este plazo, el Jerarca respectivo definirá si prorroga o sustituye su nombramiento de acuerdo a los intereses de la institución y de la respectiva Comisión.

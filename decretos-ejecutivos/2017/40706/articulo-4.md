@@ -1,0 +1,1 @@
+Artículo 4.- Estas CPS constituirán parte de la estructura de los Comités Sectoriales Regionales y Locales del Sector Salud, Nutrición y Deporte, los cuales se encuentran articulados a las estructuras de coordinación interinstitucional e intersectorial, según lo establecido en el Decreto Ejecutivo No. 38536-MP-PLAN del 25 de julio de 2014. CAPÍTULO II

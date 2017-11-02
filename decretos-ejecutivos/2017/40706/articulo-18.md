@@ -1,0 +1,2 @@
+Artículo 18.- Cada CPS deberá contar con una persona titular y una suplente con funciones de Secretaría. Serán nombradas por la mayoría simple de sus integrantes mediante votación verbal o escrita.
+La Secretaría, en conjunto con la persona designada por el Ministerio de Salud para la función de Coordinación de la CPS, llevarán el control de convocatorias, elaboración de propuestas de agenda y seguimiento de acuerdos, para agilizar el efectivo funcionamiento de la correspondiente Comisión.
