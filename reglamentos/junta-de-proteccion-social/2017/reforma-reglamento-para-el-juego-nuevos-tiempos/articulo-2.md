@@ -1,0 +1,1 @@
+Artículo 2º—Se reforma el párrafo penúltimo del artículo 6º del Reglamento Nuevos Tiempos, para que en adelante diga: El juego permite a los jugadores realizar jugadas multi-sorteo y jugadas multi-sorteo en avance de conformidad con lo dispuesto en el artículo 1° de este Reglamento.
