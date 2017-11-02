@@ -1,0 +1,49 @@
+INSTITUTO DE DESARROLLO RURAL
+MODIFICACIÓN DEL ACUERDO DE JUNTA DIRECTIVA
+TOMADO POR MEDIO DEL ARTÍCULO 10, SESIÓN
+ORDINARIA 31-2008, CELEBRADA EL 01 DE
+SEPTIEMBRE DEL 2008; EN CUMPLIMIENTO
+A LA RECOMENDACIÓN 4.4 SOLICITADA
+POR LA AUDITORÍA INTERNA EN
+EL INFORME AIFI-008-2017
+A fin de que se sirva proceder a su ejecución, me permito comunicarle el acuerdo tomado por la junta directiva en el artículo N° 10 de la sesión ordinaria 36, celebrada el 25 de septiembre de 2017.
+ARTÍCULO DIEZ
+Se presenta para conocimiento y consideración de las y los señores Directores el oficio A-PE-1508-2017, suscrito por la Licda. Massiel González Álvarez, Presidencia Ejecutiva, el cual remite original del oficio AF-373-2017, suscrito por el Lic. Rigoberto Vargas Alfaro, Director Administración y Finanzas y copia del oficio TES-429-2017, suscrito por la Licda. Roxana Vargas Ramírez, Coordinadora a. i. Tesorería; referente a la solicitud para modificar el acuerdo de junta directiva tomado por medio del artículo 10, sesión ordinaria 31-2008, celebrada el 01 de septiembre del 2008; en cumplimiento a la recomendación 4.4 solicitada por la Auditoría Interna en el informe AIFI-008-2017 denominado –Auditoría Financiera sobre las inversiones realizadas por el Inder”; referente a “realizar una revisión integral del procedimiento establecido en el Manual de Normas y Procedimientos del Área de Tesorería, Capítulo VIII” De las inversiones transitorias...”.
+Ingresa a la Sala de Sesiones la Licda. Roxana Vargas Ramírez, Tesorería; a fin de brindar una explicación referente a la solicitud para modificar el acuerdo de junta directiva tomado por medio del artículo 10, sesión ordinaria 31-2008, celebrada el 01 de septiembre del 2008; en cumplimiento a la recomendación 4.4 solicitada por la Auditoría Interna en el informe AlF1-008-2017 denominado “Auditoría Financiera sobre las inversiones realizadas por el Inder”; referente a “realizar una revisión integral del procedimiento establecido en el Manual de Normas y Procedimientos del Área de Tesorería, Capítulo VIII De las inversiones transitorias...”; para lo cual realiza presentación.
+Analizado el caso:
+Acuerdo N° 10
+Se conoce el oficio A-PE-1508-2017, suscrito por la Licda. Massiel González Álvarez, Presidencia Ejecutiva y con fundamento en el oficio AF-373-2017, suscrito por el Lic. Rigoberto Vargas Alfaro, Director Administración y Finanzas y el oficio TES-429-2017, suscrito por la Licda. Roxana Vargas Ramírez, Coordinadora a.i. Tesorería, se acuerda:
+1) Modificar el Acuerdo de Junta Directiva tomado por medio del Artículo 10, Sesión Ordinaria 31-2008, celebrada el 01 de septiembre del 2008; en cumplimiento a la recomendación 4.4 solicitada por la Auditoría Interna en el informe AIFIN 008-2017 denominado “Auditoría Financiera sobre las inversiones realizadas por el Inder”; referente a “realizar una revisión integral del procedimiento establecido en el Manual de Normas y Procedimientos del Área de Tesorería, Capítulo VIII “De las inversiones transitorias...”; para que se lea todo el Capítulo VIII de la siguiente manera:
+“CAPÍTULO VIII
+De las inversiones transitorias
+Artículo 9
+Las inversiones transitorias se realizarán en concordancia con las “Directrices sobre la gestión de inversiones del Sector Público” emitidas por la Presidencia de la República y el Ministerio de Hacienda, criterios técnicos establecidos por la Contraloría General de la República, y el Manual sobre Normas Técnicas de la Auditoría y de Control Interno para la Contraloría de la República y las Entidades y Órganos Sujetos a su Fiscalización. Tiene como finalidad establecer las normas y procedimientos que tiendan a mantener un control adecuado y racional de las inversiones en valores, tanto de carácter transitorio como permanente que realice la Institución.
+Las inversiones se realizarán conforme al siguiente procedimiento:
+1. La emisión de políticas de inversión en los puestos de bolsa quedará bajo responsabilidad directa de la Dirección Administración y Finanzas o en su defecto del jefe del Departamento Financiero quienes acatando lineamientos específicos de la Autoridad Presupuestaria del Ministerio de Hacienda y de la Contraloría General de la República, girarán las respectivas órdenes al Coordinador (a) de la Tesorería, sobre las inversiones que pueda realizar el Instituto.
+2. La Dirección Administración y Finanzas, el Departamento Financiero y la Tesorería, serán responsables de la ejecución de las decisiones de inversión y brindarán a la Dirección Superior la información con el detalle de las inversiones realizadas, en forma periódica o cuando se soliciten. Lo anterior, a fin de formar criterios adecuados que redunden en políticas sanas de inversión, orientadas a proteger los fondos públicos que administra el Instituto.
+3. Las decisiones sobre inversiones serán dictadas por el Director de Administración y Finanzas, quien instruirá al Jefe del Departamento Financiero y al Tesorero (a) la puesta en ejecución de las mismas, considerando las directrices y lineamientos específicos definidos por las instancias del Gobierno Central. Las decisiones deberán comunicarse por escrito, así como cualquier directriz adicional sobre el particular.
+4. El Tesorero (a) será la persona responsable de la custodia de los títulos valores, producto de las inversiones efectuadas por el Instituto, pudiendo utilizar alternativamente, los servicios de custodia de valores que brinda el Sistema Bancario Nacional.
+5. En forma mensual se brindará un informe escrito a la dirección superior, con el detalle de las diferentes inversiones realizadas al cierre de cada periodo, indicando montos, fecha de inicio y vencimiento, tasas de interés de cada tipo de inversión y la institución bancaria o financiera que tiene la colocación.
+6. Conforme se produzcan los eventos de compra y liquidación de títulos, la Tesorería deberá enviar un reporte a la Contabilidad General con la información y detalle de cada caso. En el
+momento que el puesto de bolsa o el Ministerio de Hacienda suministre la documentación detallada de las inversiones realizadas, se trasladará en forma inmediata a la Contabilidad para los registros correspondientes.
+7. Para las decisiones sobre inversiones, necesariamente se deberá considerar entre otros elementos, lo siguiente:
+a. La inversión de recursos públicos deberá efectuarse bajo tres principios fundamentales: seguridad, rentabilidad y liquidez. Es decir, la inversión de recursos deberá realizarse bajo el menor riesgo posible de pérdida, procurando mayores utilidades y, a la vez, una fácil convertibilidad de la inversión en dinero en efectivo y en cualquier momento.
+b. Que no se deteriore la liquidez que necesita la Institución para cumplir con los fines propuestos y que no entorpezca los compromisos económicos pendientes.
+c. Que exista oportunidad para invertir y reinvertir los fondos ociosos.
+d. Las inversiones deberán realizarse en títulos emitidos por entidades autorizadas del sector público, exclusivamente, con la debida autorización del Ministerio de Hacienda, caso contrario no se procederá a la emisión de inversiones.
+e. Las inversiones deberán realizarse a corto plazo, dependiendo no solo de las condiciones del mercado sino también de las necesidades financieras de la institución y deberán ser a menos de seis meses. Si los recursos ociosos permiten una inversión a un plazo que exceda de un año, deberán disponer de autorización presupuestaria.
+f. Todos los títulos valores como los respectivos cupones de intereses, deberán ser emitidos “a la orden” y no “al portador”.
+8. El Tesorero (a), como parte del órgano ejecutor de las acciones de inversión, será responsable del proceso operativo final que haga efectiva las inversiones.
+9. En la Tesorería se llevará un registro auxiliar y los archivos necesarios, de todas las inversiones transitorias y permanentes para cada valor propiedad de la Institución, que deberá contener al menos la siguiente información:
+a. Fecha y número de cheque o solicitud de transferencia electrónica.
+b. Número, clase y valor nominal del título valor.
+c. Institución emisora.
+d. Tasa de interés, cuando la legislación lo permita o el tipo de inversión lo defina.
+e. Fecha de compra y de vencimiento.
+f. Número, montos y fechas en que deben cobrarse los cupones por intereses.
+g. Base para el cálculo de los intereses.
+10. La Tesorería dejará constancia por escrito, de las recomendaciones sobre nuevas inversiones o liquidaciones de valores, así como de la documentación que soporta la autorización de dichas inversiones, en todo momento dichas inversiones serán avaladas por el Jefe del Departamento Financiero.
+11. La Tesorería deberá conciliar periódicamente el saldo que indican los registros auxiliares, con el saldo que muestran las cuentas de balances de los estados financieros que se detallan en la Contabilidad General, a fin de cumplir con sanos principios de control interno. Deberá registrar en el auxiliar, los intereses ganados por cada uno de los títulos valores.
+12. La Tesorería deberá mantener un archivo mediante expedientes de los documentos sobre inversiones con un orden lógico, que incluya una separación física de los comprobantes de cada inversión. Tales documentos deberán ordenarse en forma cronológica y con referencias cruzadas entre sí, para que se facilite la localización de la información.
+13. Los intereses que se obtengan de las inversiones en títulos valores, deben pasar a engrosar los recursos de la Institución, con el mismo destino de los fondos que han sido invertidos.
+14. La Contabilidad General será responsable de realizar los registros contables de las diferentes inversiones realizadas, así como el producto en intereses generados por cada uno de los títulos valores. Así mismo, los diferentes asientos de diario para el registro de las inversiones, deben mostrar suficiente detalle respecto a la operación realizada”.
