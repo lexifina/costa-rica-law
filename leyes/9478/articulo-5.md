@@ -1,0 +1,3 @@
+ARTÍCULO 5- Se autoriza a la Notaría del Estado para que proceda a formalizar e inscribir en el Registro Público la escritura de la segregación del lote descrito en el artículo 1 de esta ley; además, queda facultada para actualizar y corregir la naturaleza y cualquier error, diferencia u omisión relacionados con los datos del inmueble, así como cualquier otro dato que sea necesario para su debida inscripción. Su inscripción estará exenta del pago de honorarios y de todo tipo de derechos y timbres.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los seis días del mes de setiembre del año dos mil diecisiete.

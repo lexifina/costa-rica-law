@@ -1,0 +1,1 @@
+ARTÍCULO 4- Al bien inmueble desafectado al uso de bien demanial sujeto a esta ley, se le aplicará la disposición contenida en el artículo 62 del Código Municipal. Cuando existan convenios y contratos, con el objeto de arrendar o dar en préstamo el bien objeto de este proyecto, deberá cumplir con los fines señalados en esta ley.
