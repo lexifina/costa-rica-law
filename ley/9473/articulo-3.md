@@ -1,0 +1,1 @@
+ARTICULO 3- Se desafecta del uso y dominio público dedicado a planta de tratamiento el terrero segregado, anteriormente descrito, y se afecta al nuevo uso de parque público de carácter recreativo, deportivo, educativo y de capacitación, orientado a la promoción y la protección del medio ambiente.
