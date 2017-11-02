@@ -1,0 +1,1 @@
+Artículo 17.—En caso de pérdida, extravío, olvido de la contraseña de la llave privada o que el certificado electrónico se encuentre comprometido por causas imputables, el costo por la reposición del mismo lo asumirá el funcionario.

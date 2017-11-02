@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este Reglamento se aplicará a toda clase de transacciones, actos jurídicos, administrativos y financieros relacionados con la operación de la Municipalidad para los trámites tanto internos como externos.

@@ -1,0 +1,1 @@
+Artículo 6º—Vigencia del certificado digital. La vigencia del certificado digital será de manera permanente, salvo directriz expresa de la Alcaldía Municipal que manifieste lo contrario o los casos de suspensión o revocación por parte del Departamento de Tecnologías de Información, previstos en el artículo 4º inciso 2) del presente Reglamento.

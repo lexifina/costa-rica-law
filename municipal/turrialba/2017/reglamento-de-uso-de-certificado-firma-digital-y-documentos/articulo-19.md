@@ -1,0 +1,1 @@
+Artículo 19.—El incumplimiento de las disposiciones de la Ley, así como del presente Reglamento, será sancionado de conformidad con la Ley Nº 9048 de Delitos Informáticos, aprobada el 07 de junio del 2012.
