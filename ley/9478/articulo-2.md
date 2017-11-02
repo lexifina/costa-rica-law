@@ -1,0 +1,1 @@
+ARTÍCULO 2- El lote segregado y desafectado del uso y dominio público será destinado, exclusivamente, para la instalación del Centro de Desarrollo Tecnológico de Formación y Capacitación para el Emprendedurismo Local, el cual permitirá desarrollar programas de formación y capacitación en diversas áreas.
