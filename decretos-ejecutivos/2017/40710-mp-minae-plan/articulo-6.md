@@ -1,0 +1,1 @@
+Artículo 6. El Consejo Nacional Sectorial de Ambiente, Energía, Mares y Ordenamiento Territorial estará integrado por el Ministro de Ambiente en su calidad de Ministro Rector, el máximo jerarca de cada institución citada en el artículo primero y el Director Ejecutivo de la Secretaría de Planificación Sectorial de Ambiente, Energía, Mares y Ordenamiento Territorial.

@@ -1,0 +1,5 @@
+Artículo 13: Además de las funciones indicadas en este decreto serán funciones del coordinador Sectorial de Cooperación Internacional las siguientes:
+a) Elaborar un inventario que contenga los proyectos y las acciones prioritarias en materia de cooperación conforme con las prioridades de cooperación internacional del país y el Plan Nacional de Desarrollo.
+b) Dar seguimiento a los proyectos de cooperación vinculados y priorizados en el ámbito de acción de la Secretaría de Planificación Sectorial de Ambiente, Energía, Mares y Ordenamiento Territorial Preparar informes técnicos sobre los proyectos de cooperación en ejecución y ejecutados por las instituciones públicas en el marco de acciones sectoriales e intersectoriales bajo el ámbito de la Secretaría de Ambiente.
+c) Brindar asesoría en la elaboración de proyectos, documentos e informes que se le asignen en relación a los diferentes temas de cooperación bajo el ámbito de la Secretaría de Planificación Sectorial de Ambiente, Energía, Mares y Ordenamiento Territorial.
+d) Otras que sean priorizadas por el Ministro del MINAE en su calidad de Rector para lograr la mejor gestión.

@@ -1,0 +1,1 @@
+Artículo 17. Le corresponde a las instituciones del Sector proporcionar las condiciones del espacio físico y operativas necesarias para el buen funcionamiento de la Secretaría de Planificación del Sector Ambiente, Energía, Mares y Ordenamiento Territorial, para lo cual se crearán las respectivas previsiones presupuestarias.

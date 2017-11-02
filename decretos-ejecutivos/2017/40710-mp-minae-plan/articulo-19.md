@@ -1,0 +1,5 @@
+Artículo 19. Refórmese el artículo 3 inciso f) y adiciónese un inciso k) al mismo artículo 3 y se corra la numeración, del decreto que Constituye el Centro Nacional de Información Geoambiental como un órgano de la Dirección General de Hidrocarburos del Ministerio de Ambiente y Energía, Decreto Ejecutivo N°29540-MINAE del 11 de mayo del 2001 y sus reformas para que se lea de la siguiente forma:
+"Artículo 3- De los objetivos: El Centro Nacional de Información Geoambiental tendrá los siguientes objetivos:
+f) El Centro Nacional de Información Geoambiental (CENIGA) será el responsable de diseñar, construir, desarrollar y administrar el Sistema Nacional de Información Ambiental (SINL4), para facilitar la toma de decisiones del Sector Ambiente, Energía, Mares y Ordenamiento Territorial establecido en el decreto 38536-MP-PLAN. Además deberá velar por el desarrollo de los informes nacionales sobre el estado del medio ambiente.
+(…)
+k) Apoyar a Secretaría de Planificación Sectorial de Ambiente, Energía, Mares y Ordenamiento Territorial (SEPLASA) en la producción y gestión de información que apoye la toma decisiones en el ámbito sectorial e intersectorial".
