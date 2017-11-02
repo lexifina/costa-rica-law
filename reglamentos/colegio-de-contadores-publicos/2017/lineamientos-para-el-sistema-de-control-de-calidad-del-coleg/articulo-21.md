@@ -1,0 +1,2 @@
+Vigésimo Primero:
+Al final de cada revisión, la Unidad de Control de Calidad, emitirá un informe en papel membretado del Colegio de Contadores Públicos de Costa Rica y deberá fecharse con el día en que se terminaron de aplicar los procedimientos de revisión, el cual deberá indicar el alcance de la revisión, incluyendo cualquier limitación en ésta, una conclusión sobre si el Sistema de Control de Calidad de la práctica revisada está de acuerdo con los objetivos establecidos por la normativa y si ésta fue cumplida satisfactoriamente durante el período revisado.

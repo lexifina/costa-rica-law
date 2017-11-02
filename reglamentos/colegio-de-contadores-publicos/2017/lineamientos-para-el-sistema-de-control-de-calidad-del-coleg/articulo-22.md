@@ -1,0 +1,2 @@
+Vigésimo Segundo:
+El informe emitido por la Unidad de Control de Calidad será revisado por el Jefe del Departamento de Fiscalía, y conocido por la Comisión de Control de Calidad. Posteriormente será enviado a la Junta Directiva para su conocimiento y aprobación. Luego de su aprobación, los informes serán distribuidos a los Despachos y Profesionales Independientes que fueron objeto de revisión, para que inicien el proceso de mejora para adecuar su Sistema de Control de Calidad a lo establecido por las Normas citadas en el punto número dos de este Lineamiento.

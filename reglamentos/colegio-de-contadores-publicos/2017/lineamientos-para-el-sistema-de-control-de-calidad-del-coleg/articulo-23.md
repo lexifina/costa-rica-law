@@ -1,0 +1,2 @@
+Vigésimo Tercero:
+El Departamento de Fiscalía, en conjunto con la Comisión de Control de Calidad, informarán a la Junta Directiva, mediante los informes que le son remitidos, sobre el incumplimiento de los despachos y profesionales independientes que han sido sujetos de revisión del control de calidad, con la normativa citada en el punto número dos del presente Lineamiento, con la recomendación al Órgano de tome las acciones correspondientes, con base en el Capítulo XV “Sanciones” del Código de Ética del Contador Público Autorizado.

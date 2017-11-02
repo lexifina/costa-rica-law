@@ -1,0 +1,2 @@
+Vigésimo Octavo:
+En caso que el equipo revisor o los integrantes de la Comisión de Control de Calidad, incumplan con lo establecido en el artículo 9 del Código de Ética del Contador Público Autorizado, relacionado con la conservación de los papeles de trabajo, se considerará como una violación al Código de Ética Profesional y, por lo tanto, el fiscal de la Junta Directiva, procederá informar a la Junta Directiva, para actuar en consecuencia.
