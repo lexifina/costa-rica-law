@@ -1,0 +1,1 @@
+Artículo 8º—Preservación de derechos para miembros ausentes o con permisos especiales. Cuando un miembro del Colegio sea declarado “Miembro Ausente” o con “Permiso”, podrá conservar los beneficios del Fondo, sujeto a la continuación del pago de las cuotas según lo dispone este reglamento.

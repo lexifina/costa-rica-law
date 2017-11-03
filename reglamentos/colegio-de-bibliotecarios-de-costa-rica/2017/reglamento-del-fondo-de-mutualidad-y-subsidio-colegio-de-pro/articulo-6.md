@@ -1,0 +1,1 @@
+Artículo 6º—Beneficiarios. Tendrán derecho a los beneficios que ofrece el Fondo de Mutualidad y Subsidios, las personas colegiadas activas con más de doce meses de colegiatura ininterrumpida y que se encuentren al día con las obligaciones financieras del Colegio, al momento de ocurrir el evento o derecho al beneficio.

@@ -1,0 +1,1 @@
+Artículo 12.—Lugar del pago. Todo pago por concepto de los beneficios que establece este Reglamento se efectuará en las oficinas del Colegio de Profesionales en Bibliotecología de Costa Rica. Todo recibo de dinero deberá necesariamente ser firmado por quien legalmente debe recibirlo.

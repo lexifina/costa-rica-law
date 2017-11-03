@@ -1,0 +1,1 @@
+Artículo 16.—Reserva del Fondo de Mutualidad. El fondo deberá contar con una reserva suficiente para cubrir la indemnización correspondiente de hasta 5 miembros del Colegio por año y deberán ser depositadas en una cuenta corriente, o en depósitos a la vista, en uno de los Bancos del Sistema Bancario Nacional.

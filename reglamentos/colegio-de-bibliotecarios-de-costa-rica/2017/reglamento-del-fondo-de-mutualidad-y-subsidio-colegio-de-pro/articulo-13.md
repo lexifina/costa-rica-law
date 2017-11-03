@@ -1,0 +1,1 @@
+Artículo 13.—Notificación de derechos. En caso de muerte de un miembro colegiado y una vez que la Junta Directica tenga conocimiento de ese hecho, solicitará a los interesados que se presenten ante ese órgano a formular su solicitud de pago.
