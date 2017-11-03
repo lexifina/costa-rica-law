@@ -1,0 +1,2 @@
+Artículo 5º—Se incluye en el inciso i) del artículo 10 lo siguiente:
+“...y autorizar al comité de inversiones de FOMUVEL para gestionar inversiones en los fondos de inversión a la vista, esto con el fin de maximizar los recursos y evitar mantener el dinero ocioso. Estas inversiones deberán ajustarse a los criterios que en cuanto a montos y otras condiciones deben ser previamente definidos por la Junta Directiva de FOMUVEL, mediante la aprobación de un reglamento interno y serán informadas mensualmente”.
