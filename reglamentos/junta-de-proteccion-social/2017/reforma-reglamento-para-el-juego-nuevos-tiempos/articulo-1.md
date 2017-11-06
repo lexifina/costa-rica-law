@@ -1,5 +1,7 @@
+(Suspendida)
 JUNTA DE PROTECCION SOCIAL
 INSTITUCIÓN BENEMÉRITA
+(Nota de Sinalevi: Mediante acuerdo JD-1171 de la sesión N° 42 del 6 de noviembre de 2017, la Junta de Protección Social, acordó dictar una medida de suspensión de la vigencia de las reformas parciales de los artículos 1° y 6° del Reglamento Nuevos Tiempos, publicadas en La Gaceta N° 207 del 02 de noviembre del 2017. Esta medida se mantendrá vigente hasta nuevo aviso.”)
 Comunica al público en general, que mediante acuerdo JD- 828 correspondiente al artículo VII), inciso 7) de la sesión ordinaria 32-2017 celebrada el 28 de agosto del 2017, que en lo conducente dice:
 La Junta Directiva ACUERDA:
 La Junta Directiva considerando:

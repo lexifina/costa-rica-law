@@ -14,3 +14,4 @@ Reforma Reglamento para el Juego Nuevos Tiempos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-11-02 | la propia norma |
+| 2 | 2017-11-06 | Reglamento 42 (2017-11-06) |
