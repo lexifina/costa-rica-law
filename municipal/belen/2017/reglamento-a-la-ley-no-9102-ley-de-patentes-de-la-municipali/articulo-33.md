@@ -1,0 +1,1 @@
+Artículo 33.-Facultades administrativas sobre las mercaderías decomisadas: Sera facultad de la Unidad responsable, resolver las solicitudes de devolución de mercaderías mediante el procedimiento establecido para tal fin. En el caso de la custodia, seguridad y devolución de las mercaderías decomisadas, así como el destino de las mercaderías no devueltas.

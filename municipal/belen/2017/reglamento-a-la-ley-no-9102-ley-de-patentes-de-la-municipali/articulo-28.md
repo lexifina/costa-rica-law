@@ -1,0 +1,2 @@
+Capítulo V.- Administración del impuesto de patentes municipales
+Artículo 28.- Aplicación de las tablas de valorización: En relación a la administración del impuesto de licencias municipales por parte de la Municipalidad, aplicará lo dispuesto en el Título III de la Ley de Patentes del cantón de Belén (número 9102), incluyendo tablas de valorización y otros insumos que se incluyen en dicho título.

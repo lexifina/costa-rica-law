@@ -1,0 +1,3 @@
+Capítulo VI.- Realización de operativos de los funcionarios municipales ligados al proceso de
+licencias
+Artículo 29.- Realización de operativos: La Municipalidad, en asocio de otras instituciones públicas afines con el interés público, podrá realizar operativos en este cantón para ejercer vigilancia y control de las normas de la Ley 9102, este reglamento y del ordenamiento jurídico, con el fin de verificar el cumplimiento de la normativa en relación a las ventas estacionarias, ambulantes y comercio en general. Los funcionarios designados para que participen en estos operativos actuarán con investidura de autoridad pública.

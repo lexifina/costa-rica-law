@@ -1,0 +1,1 @@
+Artículo 19.-Resolución administrativa: La resolución que concede o deniega la licencia municipal deberá contener, al menos, requisitos mínimos exigidos en los artículos 3 y 4 de la Ley de Patentes del cantón de Belén, número 9102.

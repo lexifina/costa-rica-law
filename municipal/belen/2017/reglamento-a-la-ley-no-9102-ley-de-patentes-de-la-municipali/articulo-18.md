@@ -1,0 +1,1 @@
+Artículo 18.-Condiciones en que se otorgan las licencias: Las actividades comerciales lucrativas y/o productivas que se pueden explotar con las licencias municipales otorgadas, son únicamente las que en ellas mismas se especifica y en las condiciones que establece la resolución administrativa que se dicte con ese fin.
