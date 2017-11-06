@@ -1,1 +1,0 @@
-Artículo 3°—Los miembros del Concejo de Distrito serán nombrados por el Concejo Municipal dentro de los tres meses siguientes a su instalación, por un período de dos años. Podrán ser reelectos en sus cargos por períodos iguales y desempeñarán éstos gratuitamente.

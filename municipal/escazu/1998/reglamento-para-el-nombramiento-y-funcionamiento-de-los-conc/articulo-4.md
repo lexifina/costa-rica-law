@@ -1,1 +1,0 @@
-Artículo 4°—La elección y juramentación de los miembros del Concejo de Distrito la hará el Concejo Municipal de una lista de al menos quince nombres que presente el Síndico del distrito respectivo, previa consulta a los pobladores del distrito. De preferencia, los distintos barrios y sectores del distrito quedarán representados en el Concejo.
