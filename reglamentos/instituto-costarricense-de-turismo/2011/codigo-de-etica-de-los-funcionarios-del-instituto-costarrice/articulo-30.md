@@ -1,1 +1,0 @@
-Artículo 30.—Gratuidad del Cargo. El cargo de miembro de la Comisión de Ética se ejercerá en forma ad-honorem. El Instituto Costarricense de Turismo aportará los recursos económicos y humanos que requiera la Comisión, para el fiel cumplimiento de sus fines.

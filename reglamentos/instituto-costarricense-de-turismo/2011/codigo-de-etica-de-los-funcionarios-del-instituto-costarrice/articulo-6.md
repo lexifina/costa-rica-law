@@ -1,1 +1,0 @@
-Artículo 6º—Deber de eficiencia. Todo servidor del Instituto Costarricense de Turismo debe realizar las funciones a su cargo, demostrando su mayor esfuerzo y eficiencia, así como en la forma, tiempo y lugar que sea necesario. Debe utilizar la jornada laboral en la forma más productiva posible, actuando en todo momento con el cuidado y esmero apropiados.

@@ -1,1 +1,0 @@
-Artículo 17.—Las jefaturas velarán porque sus funcionarios den cumplimiento a los mecanismos de control interno vigentes, como medio para alcanzar los objetivos formulados por la Gerencia y Junta Directiva; y para administrar adecuadamente los riesgos a los que se ve expuesta la Institución en el desarrollo de sus actividades.

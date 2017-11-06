@@ -1,2 +1,0 @@
-Artículo 7º—Deber de responsabilidad. Todo empleado del Instituto Costarricense de Turismo será responsable de las acciones u omisiones ilícitas relacionadas con el desempeño de sus funciones, debiendo tener clara conciencia del deber de coadyuvar en el logro de las metas institucionales.
-Todos los funcionarios del Instituto Costarricense de Turismo deberán ejecutar las responsabilidades y funciones asignadas y cumplir en la forma y periodicidad definida con los procedimientos de control que les compete aplicar de conformidad con el puesto desempeñado y la normativa vigente.
