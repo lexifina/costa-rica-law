@@ -15,3 +15,4 @@ Reglamento de Caja Recaudadora.
 | --- | --- | --- |
 | 1 | 2003-06-17 | la propia norma |
 | 2 | 2012-04-30 | Reglamento municipal 18 (2012-04-30) |
+| 3 | 2017-11-06 | Reglamento municipal 45 (2017-11-06) |
