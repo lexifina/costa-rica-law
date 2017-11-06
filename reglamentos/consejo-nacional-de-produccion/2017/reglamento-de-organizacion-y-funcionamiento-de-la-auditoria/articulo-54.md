@@ -1,0 +1,3 @@
+Artículo 54.—Confidencialidad. Las relaciones de hechos, y toda la información y documentación que las sustenten, son de acceso restringido hasta que la instancia competente dicte el acto final.
+Cuando la relación de hechos se genere por una investigación cuyo origen es una denuncia, la Auditoría Interna deberá tomar las medidas necesarias para que se guarde en todo momento y, sin sujeción a límite de tiempo, la confidencialidad sobre la identidad del denunciante.
+Todo lo anterior de conformidad con el artículo 6º de la Ley General de Control Interno y el artículo 8º de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.

@@ -1,0 +1,1 @@
+Artículo 13. —Jerarquía. El Auditor Interno es el superior jerárquico de la Auditoría Interna y como tal tendrá a su cargo la dirección y administración. El Auditor Interno recomendará a la Junta Directiva quien lo suple en sus ausencias temporales cuando estas sean iguales o superiores a un mes.

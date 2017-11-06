@@ -1,0 +1,1 @@
+Artículo 20. —Actualización de su ámbito de acción. La Auditoría Interna mantendrá actualizado y detallado su ámbito de acción por unidades y procesos, así como por los sujetos privados que administren o custodien fondos públicos provenientes de la institución.

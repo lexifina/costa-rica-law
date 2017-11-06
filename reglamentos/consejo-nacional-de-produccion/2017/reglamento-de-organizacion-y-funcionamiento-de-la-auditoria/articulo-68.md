@@ -1,0 +1,1 @@
+Artículo 68. —Resguardo de la identidad del denunciante. En ningún papel de trabajo, razón de archivo o comunicación a terceros generados por la Auditoría Interna, como resultado de la denuncia que recibiera, se debe consignar la identidad del denunciante.
