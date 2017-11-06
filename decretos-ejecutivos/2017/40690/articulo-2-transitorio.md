@@ -1,0 +1,1 @@
+TRANSITORIO II: A los servidores y servidoras que actualmente se les está pagando el zonaje, se les mantiene el porcentaje que en su momento se les concedió, de acuerdo al lugar donde realizan sus labores.

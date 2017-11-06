@@ -1,0 +1,1 @@
+Artículo 8. Los gastos de viaje y de transporte seguirán regulándose de manera independiente al zonaje de acuerdo con las disposiciones establecidas en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos emitido por la Contraloría General de la República.

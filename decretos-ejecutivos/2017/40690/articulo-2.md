@@ -1,0 +1,3 @@
+Artículo 2. Para los efectos del presente reglamento se entenderá por:
+a) Zonaje: Beneficio adicional al salario, que el Ministerio concede a sus servidores cuando se ve en la obligación de trasladar al funcionario a una zona distinta a dondeeste tiene su lugar de residencia habitual, para así poder compensar los gastos quepueda sufrir en relación al costo de vida, salud, familiar como consecuencia del desplazamiento.
+b) Domicilio Habitual: Es el lugar donde el servidor reside de manera permanente para el ejercicio de sus derechos y el cumplimiento de sus obligaciones, en unarelación con ánimo de nexo duradero en los aspectos familiares y patrimoniales.

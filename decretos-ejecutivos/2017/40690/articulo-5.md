@@ -1,0 +1,1 @@
+Artículo 5. Al funcionario que disfrutare del beneficio de zonaje y posteriormente varíe su domicilio legal-habitual al lugar donde tiene la sede de trabajo, deberá suprimírsele esta compensación económica por desaparecer los motivos que originaron el pago de esa compensación.
