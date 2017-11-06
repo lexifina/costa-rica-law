@@ -1,0 +1,1 @@
+Artículo 2°—Que según estipula la Convención Colectiva de Trabajo vigente, la Municipalidad, para el entero cumplimiento de los propósitos de este reglamento, obligatoriamente establecerá una partida anual en el Presupuesto Ordinario, en la que asignará una suma no menor al 0,15% sobre los ingresos propios.

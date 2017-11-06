@@ -1,0 +1,1 @@
+Artículo 31°—En caso de ser necesario, se aplicarán con carácter supletorio, las disposiciones afines contenidas en el Código Municipal, el Código de Trabajo, la Convención Colectiva de Trabajo vigente y el Reglamento Autónomo de Organización y Servicios.

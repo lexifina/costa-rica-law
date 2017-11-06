@@ -1,0 +1,1 @@
+Artículo 8°—Las solicitudes serán acompañadas de la mayor información posible respecto a materias de estudio, títulos o grados obtenibles, duración del estudio, criterio de la jefatura debidamente razonado; otras que se consideren convenientes para que se pueda evaluar la importancia institucional que representen.

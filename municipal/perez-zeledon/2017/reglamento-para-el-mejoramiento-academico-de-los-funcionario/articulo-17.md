@@ -1,0 +1,1 @@
+Artículo 17°— La concesión de becas, para estudios formales, solo se real izará cuando los estudios profesionales de formación técnica o administrativa, se realicen en Centros Educacionales que sean reconocidos por el Ministerio de Educación y el CONESUP.

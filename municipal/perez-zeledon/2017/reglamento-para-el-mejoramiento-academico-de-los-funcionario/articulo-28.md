@@ -1,0 +1,1 @@
+Artículo 28°—En caso de incumplimiento de las obligaciones contraídas en este reglamento, una vez finalizados los estudios, el ex beneficiado deberá pagar a la Municipalidad, el monto total del costo de la beca.

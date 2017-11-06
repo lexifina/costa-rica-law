@@ -1,0 +1,1 @@
+Artículo 25°—Todo beneficio concedido a la luz de este reglamento y cuando sea superior a tres meses, el servidor beneficiado deberá suscribir un contrato entre el funcionario y la Municipalidad. Este documento se adjuntará al presente reglamento como anexo, con el fin de que los solicitantes conozcan las generalidades del mismo.
