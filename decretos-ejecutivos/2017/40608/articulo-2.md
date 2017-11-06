@@ -1,0 +1,1 @@
+Artículo 2. Sustituir el término de “adiestramiento” por el de “Capacitación” en todos los documentos, instrumentos y normas de igual o inferior jerarquía al presente Reglamento, y de aplicación en el entorno institucional del SUCADES.
