@@ -1,0 +1,5 @@
+CAPITULO V
+Del Impuesto a la patente
+Artículo 25.—Del Impuesto de la patente y exenciones. Para los efectos de tasación, cobro y recalificación del Impuesto de patentes municipales se aplicar lo estipulado en la Ley de Impuestos de patentes de la Municipalidad de Oreamuno, todo ello dentro de los plazos y términos que dicha Ley señala, en sus artículos 10 y siguientes.
+Los patentados interesados en la aplicación de cualquier exención o beneficio tributario deber solicitarlo y demostrar dicho beneficio, la misma no se realizar de oficio, y en caso de aplicar la exoneración el solicitante estará obligado a contar con la licencia municipal mediante el trámite normal de solicitud de patente, por lo cual debe cumplir con los requisitos y solo estará exento del pago si califica para el mismo.
+En el caso de las actividades autorizadas en el CAPITULO IV, sea organizada y sus beneficios totales sean para instituciones educativas, religiosas o de bien social, se exonerar de los Impuestos municipales.

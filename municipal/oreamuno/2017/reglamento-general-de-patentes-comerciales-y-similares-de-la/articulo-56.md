@@ -1,0 +1,2 @@
+Artículo 56—De la vigencia de las reformas: De conformidad con lo establecido en el artículo 43 del Código Municipal, se acoge en forma definitiva el presente reglamento y será publicado por segunda vez en el Diario Oficial La Gaceta. Entrando en firme al día siguiente inmediato a su publicación. El presente reglamento deroga cualquier disposición municipal que se oponga.
+San Rafael de Oreamuno, 06 de octubre del 2017, publicación de segunda vez.

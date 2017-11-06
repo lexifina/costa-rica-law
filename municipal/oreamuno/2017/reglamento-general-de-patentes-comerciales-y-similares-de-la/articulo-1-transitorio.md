@@ -1,0 +1,1 @@
+Transitorio I.—En el caso de los establecimientos comerciales que estén prestando actividades, en estas materias se les otorga el plazo de dos meses para ajustar el local comercial a la presente normativa.

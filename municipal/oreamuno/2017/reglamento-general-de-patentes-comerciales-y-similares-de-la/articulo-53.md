@@ -1,0 +1,3 @@
+Artículo 53.—Definiciones: Para los efectos de este reglamento se establecen las siguientes definiciones:
+a. Locales de servicio Público de Internet. Local público o privado destinado para el uso público de computadoras a fin de tener acceso a Internet. Sin perjuicio de que se pueda brindar otro tipo de servicios comerciales, así como la venta de café.
+b. Pornografía: Es la presentación, exhibición, descripción o representación de actos sexuales, muestra explícita de los genitales de las personas en forma obscena y otros, que atenten contra la moral, las buenas costumbres y el general el orden público en general.

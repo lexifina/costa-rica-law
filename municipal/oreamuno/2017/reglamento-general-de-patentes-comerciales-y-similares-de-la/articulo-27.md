@@ -1,0 +1,1 @@
+Artículo 27.—De las recalificaciones operadas por el Tribunal Fiscal Administrativo. Cuando un patentado plantee un recurso de apelación a la Dirección General de la Tributación Directa, ante el Tribunal Fiscal Administrativo, y fuere declarado con lugar, la Administración Municipal realizará los ajustes correspondientes, estableciéndose el crédito fiscal a su favor.

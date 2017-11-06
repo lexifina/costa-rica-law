@@ -1,0 +1,3 @@
+CAPITULO III
+De los traslados, traspasos, recalificaciones y renuncias
+Artículo 14.—De los traslados y traspasos de las patentes. Para los efectos de traslados, traspasos y recalificación de patentes, se aplicará lo establecido en los artículos 4 al 8 del presente Reglamento. Para los efectos de la recalificación, se entenderá como el cambio o ampliación de las actividades para las cuales se posea patente. En los casos de la recalificación, la resolución que autorice o rechace la misma, deber ser notificada al interesado en el domicilio fiscal señalado para tal efecto. La misma podrá ser impugnada en el plazo de cinco días, a partir del día siguiente a su notificación.

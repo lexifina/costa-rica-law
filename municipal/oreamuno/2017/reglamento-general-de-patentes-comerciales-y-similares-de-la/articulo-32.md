@@ -1,0 +1,2 @@
+Artículo 32.—De los recursos contra resoluciones que ordenen la suspensión de patente y cierre de establecimientos por falta de pago. Las resoluciones de la administración que ordenen la suspensión de la patente y el cierre del negocio por falta de pago, no admitirán recurso alguno y su tramitación no admitirá prueba en contrario, salvo la excepción de pago. El plazo concebido al patentado será de cinco días hábiles a partir de la notificación de aviso de cierre para la cancelación de lo adeudado.
+Transcurrido dicho plazo, se proceder al cierre.

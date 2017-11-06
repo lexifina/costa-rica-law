@@ -1,0 +1,1 @@
+Artículo 42.—Del informe mensual. La Unidad Tributaria de Oreamuno efectuar las funciones relativas a la recaudación de este Impuesto y dar un informe mensual sobre lo recaudado al Alcalde Municipal, en el cual indicar el tipo de actividad, nombre del negocio y el propietario, calidades, cantidad de tiquetes sellados y valor de éstos.

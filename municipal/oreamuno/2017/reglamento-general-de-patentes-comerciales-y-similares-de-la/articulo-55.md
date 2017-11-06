@@ -1,0 +1,2 @@
+Artículo 55.—De la denegación de la patente. La patente podrá ser denegada cuando no se cumplan lo establecido en el artículo anterior. Así mismo cuando el local comercial no cumpla con las áreas diferenciadas entre mayores y menores de edad y el software de protección a los menores.
+La patente también podrá negarse cuando el local no permita el control adecuado de las autoridades de policía y municipales, para tal fin debe estar al frente de las vías públicas.
