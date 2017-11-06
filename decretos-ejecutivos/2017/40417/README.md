@@ -14,3 +14,4 @@ Reglamento a la Ley Impuesto a las Personas Jurídicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-09-01 | la propia norma |
+| 2 | 2017-11-06 | Resolución 51 (2017-11-06) |
