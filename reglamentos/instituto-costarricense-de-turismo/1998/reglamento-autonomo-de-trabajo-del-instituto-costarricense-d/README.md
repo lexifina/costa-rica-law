@@ -35,3 +35,4 @@ Reglamento Autónomo de Trabajo del Instituto Costarricense de Turismo
 | 20 | 2009-07-28 | Reglamento 5593 (2009-07-28) |
 | 21 | 2016-05-30 | Reglamento 5933 (2016-05-30) |
 | 22 | 2016-07-26 | Reglamento 5939 (2016-07-26) |
+| 23 | 2017-11-06 | Reglamento 6005 (2017-11-06) |
