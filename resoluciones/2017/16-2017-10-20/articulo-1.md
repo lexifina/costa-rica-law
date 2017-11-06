@@ -1,0 +1,11 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+AVISO
+Nº SC-016-2017.—San José, 20 de octubre del 2017.
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+DG-142-2017: Se modifica el artículo 4°, inciso c) de la Resolución DG-088-2017 del 14 de julio de 2017, según lo indica la presente resolución.
+DG-157-2017: Se modifican los artículos 6º y 7° de la Resolución DG-156-2015, reformados según Resolución
+DG-203-2016, para que se lean según se indica en la presente resolución.
+DG-158-2017: Se delega en la funcionaria Ingrid Obando Campos, cédula de identidad número 1-0725-0867, quien ocupa temporalmente la Jefatura de Gestión Institucional de Recursos Humanos del Ministerio de Trabajo y Seguridad Social, como responsable designada en esa Institución, y en tanto ocupe el cargo de Jefa de Gestión Institucional de Recursos Humanos a. í., para que suscriba los distintos trámites y actos que esta Dirección General debe aprobar en materia de Administración de Recursos Humanos, todo en concordancia con lo que dispone la Resolución Nº DG-347-2011 del 1º de julio del 2011 y su reforma, a excepción de lo dispuesto en la Resolución Nº DG-051-2011 del 21 de enero del 2011 y la Resolución Nº DG-201-2014 del 14 de noviembre del 2014, así como la aprobación de nombramientos y ascensos interinos en plaza vacante, los cuales requerirán el aval de la instancia pertinente de esta Dirección General.
+DG-162-2017: Se modifica el Manual Descriptivo de Especialidades Docentes (Resolución DG-399-2010), en particular las especialidades:, Informática en Desarrollo de Software, Informática en Programación, Informática en Redes de Computadoras, Informática en Soporte e Informática Empresarial, de manera que en el apartado “Atinencias Académicas” se incluya la carrera Bachillerato y Licenciatura en Tecnologías de Información para la Gestión de Negocios y la Licenciatura en Ingeniería en Informática con Énfasis en Administración, según se indica en la presente resolución.
+DG-165-2017: La presente resolución regula las distintas relaciones y actividades del Subsistema de Capacitación y Desarrollo (SUCADES) del Régimen de Servicio Civil, según lo indica la presente resolución.
+Publíquese.
