@@ -1,0 +1,3 @@
+ARTICULO 4–Condición de pobreza acreditada en la ficha del IMAS o SINIRUBE. La Ficha de Información Social del IMAS o la ficha de Integración Social del SINIRUBE, debe indicar que el solicitante se encuentra en Pobreza (Pobreza Básica) o Pobreza Extrema, caso contrario será causal para que la administración proceda a denegar el beneficio solicitado.
+En caso de que el analista no ubique al solicitante con ficha del IMAS o SINIRUBE a su nombre, deberá consultar los demás miembros del grupo familiar. La calificación que obtenga de esta consulta, será aplicable al solicitante, siempre y cuando éste se encuentre incluido en dicho grupo.
+La vigencia de la Ficha de Información Social o Ficha de Integración Social, está definida por lo que establezca el IMAS o el SINIRUBE.

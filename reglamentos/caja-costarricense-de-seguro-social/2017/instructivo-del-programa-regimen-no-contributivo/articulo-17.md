@@ -1,0 +1,6 @@
+ARTÍCULO 17-De la recepción de la solicitud de pensión y demás documentos. El funcionario que reciba la solicitud verificará que los documentos contengan la información requerida para el análisis de la situación económica del solicitante y de su grupo familiar, esto para poder identificar con claridad las siguientes condiciones:
+- La solicitud con carácter de declaración jurada y demás documentos, se encuentren debidamente llenos y firmado por el interesado (o su representante legal) y que la firma corresponda a la registrada en la cédula de identidad o de residencia.
+- En el caso de los bienes muebles e inmuebles deberá revisar que la información anotada en la Solicitud con Carácter de Declaración Jurada coincida con la que consta en la página web del Registro de la Propiedad.
+- La cédula de identidad o residencia se encuentre vigente.
+- Que no contengan tachaduras o alteraciones que hagan dudar de su veracidad (en caso de que se de esta situación, el funcionario deberá suministrar nuevamente los documentos para que sean llenados por el interesado o su representado).
+El funcionario encargado debe poner el sello de recibido (con fecha, nombre y firma de la persona que recibe) en todos los documentos entregados por parte del solicitante y proceder a incluirlo en el SIP.
