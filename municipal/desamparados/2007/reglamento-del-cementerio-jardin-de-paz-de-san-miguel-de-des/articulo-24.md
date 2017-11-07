@@ -1,1 +1,2 @@
-Artículo 24.—Cuando el titular del derecho posesorio sobre un lote en el cementerio fallezca, la posesión del derecho corresponderá a la persona o personas que mediante sentencia firme en proceso sucesorio judicial o notarial, sean declarados como herederos del mismo.
+Artículo 24: Cuando el titular del derecho posesorio sobre un lote en el cementerio, fallezca, y no estén definidos los derechos habientes, la posesión del derecho corresponderá a la persona o personas que mediante documentos demuestren la consanguinidad en primer grado con derecho al mismo o mediante sentencia firme en proceso sucesorio judicial o notarial, sean declarados como herederos del mismo.
+(Así reformado en sesión N° 117 del 7 de noviembre de 2017)
