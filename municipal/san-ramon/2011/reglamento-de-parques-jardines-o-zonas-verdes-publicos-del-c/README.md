@@ -14,3 +14,4 @@ Reglamento de Parques, Jardines o Zonas Verdes Públicos del Cantón de San Ram�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-10-02 | la propia norma |
+| 2 | 2017-11-07 | Reglamento municipal 119 (2017-11-07) |
