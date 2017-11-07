@@ -1,6 +1,0 @@
-ARTÍCULO 11.- Solicitante con necesidades básicas satisfechas (inciso c. del artículo 3 del Reglamento
-Para los efectos de este Instructivo, se entenderá como necesidades básicas satisfechas cuando el solicitante o pensionado cuenta en forma permanente con la alimentación, vivienda, servicios públicos, salud y vestido. El análisis de las necesidades básicas satisfechas procede cuando el IPP es inferior y existen indicios de que el solicitante cuenta con redes de apoyo externas que le brindan protección económica.
-Las necesidades básicas se dan como satisfechas si del resultado del análisis de las fuentes documentales a las que se tenga acceso, se comprueba que el solicitante se encuentra en alguna de las siguientes situaciones:
-- El solicitante cuenta con todas sus necesidades básicas satisfechas mediante la ayuda, en especie, que le brindan una o más personas ajenas a su grupo familiar, quienes se responsabilizan directamente del costo de dichas necesidades y tienen capacidad económica para hacerlo.
-- El solicitante tenga satisfechas todas sus necesidades básicas por Instituciones u organizaciones no gubernamentales, incluyendo la ayuda que recibe del IMAS.
-- En aquellos casos que el solicitante se encuentra en un hogar de ancianos o albergue que le satisface todas sus necesidades básicas y que el mismo está debidamente financiado.

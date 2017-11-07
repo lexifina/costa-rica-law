@@ -1,2 +1,0 @@
-ARTÍCULO 25.- De los convenios con hogares que albergan adultos mayores y otros pensionados del RNC.
-Tal y como lo dispone el Reglamento en su artículo 9, previo a la firma del convenio, se deberá tomar en cuenta lo dispuesto en el Manual de Normas y Procedimientos para la suscripción de Convenios Caja-Hogares (ver Anexo 21).
