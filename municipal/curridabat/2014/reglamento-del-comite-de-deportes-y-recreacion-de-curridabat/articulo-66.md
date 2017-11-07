@@ -1,1 +1,0 @@
-Artículo 66.—El Director de Deportes o los miembros del Concejo Municipal se podrán reunir con las Juntas Directivas de los comités y sub-comités comunales cuando lo deseen. Podrán visitarlos en compañía de algún otro miembro de la Municipalidad o solos.

@@ -1,1 +1,0 @@
-Artículo 65.—Dos veces al año, la Junta Directiva del Comité Cantonal, deberá convocar a los comités y sub-comités comunales para que envíen dos representantes a una reunión conjunta. Deberán presentar un informe escrito de las actividades realizadas, y las que no, dando una justificación del por qué no, con copia al Concejo Municipal y al Concejo de Distrito respectivo.

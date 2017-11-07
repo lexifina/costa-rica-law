@@ -1,1 +1,0 @@
-Artículo 19.—Cuando un miembro incurra en cualquiera de las causales indicadas en el artículo anterior, la Junta Directiva, deberá comunicarlo por escrito al Concejo Municipal, indicando las razones para hacer efectiva sus sustitución. El Concejo Municipal, procederá de inmediato a reponer el miembro separado aplicando el procedimiento legalmente establecido para tal efecto.

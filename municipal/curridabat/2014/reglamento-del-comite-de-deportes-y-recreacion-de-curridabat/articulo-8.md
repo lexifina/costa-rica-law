@@ -1,1 +1,0 @@
-Artículo 8º—El Comité Cantonal de Deportes y Recreación, en el ejercicio de sus funciones es el órgano superior encargado de la atención, vigilancia, mantenimiento y administración de las instalaciones deportivas y recreativas del cantón.

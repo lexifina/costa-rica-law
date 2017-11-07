@@ -1,1 +1,0 @@
-Artículo 60.—Los sub-comités subordinados a los comités comunales, se deberán reunir por lo menos dos meses al mes. Sus sesiones serán públicas, salvo aquellas que por su naturaleza deban ser privadas. El quórum se logrará con la presencia de tres de sus miembros.

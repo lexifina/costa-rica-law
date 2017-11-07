@@ -1,8 +1,0 @@
-Artículo 18.—Se pierde la condición de miembros de la Junta Directiva cuando concurra en alguna de las siguientes causas:
-a) Ausencia injustificada por más de dos meses.
-b) Ser contratado para desempeñar cualquier actividad económicamente remunerada o recibir cualquier clase de estipendio de parte del Comité Cantonal.
-c) Intervenir en la discusión y votación de los asuntos en que tengan interés directo a nivel personal su cónyuge o alguno de sus parientes, hasta el tercer grado de consanguinidad o de afinidad.
-d) Integrar cualquier comité comunal de deportes.
-e) Por inhabilitación judicial.
-f) Por el incumplimiento de deberes y obligaciones que este Reglamento le imponen.
-g) Por el uso inadecuado de bienes, equipo y mobiliario asignado a su cargo; así como la exoneración de cánones a equipos y/o personas, sin conocimiento previo por escrito a la Junta Directiva o a la Administración, debidamente fundamentado.
