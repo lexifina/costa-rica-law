@@ -1,4 +1,0 @@
-Disposiciones Transitorias:
-1º—Para efectos del periodo de transición hacia la entrada en ejecución del contrato de Concesión de Servicios No esenciales en el Parque Nacional Chirripó a partir del 20 de julio del 2014, se establece, por una única vez, un periodo extraordinario de reservaciones para ingreso al área protegida de la siguiente manera:
-Las personas que quieran ingresar al Parque Nacional Chirripó a partir del veinte de julio y hasta el treinta y uno de agosto del 2014 deberán hacer reservaciones de admisión a partir del veintitrés de junio del 2014 siguiendo los procedimientos establecidos en esta resolución para tal fin.
-Para efectos de reservación del cuarto periodo que comprende los meses de Setiembre, Octubre y Noviembre del 2014, se aplicará las disposiciones de esta resolución iniciando el periodo de reservaciones a partir del primer lunes hábil del mes de julio del 2014.
