@@ -18,3 +18,4 @@ Reglamento de fiscalización, regulación y comercialización de bebidas con con
 | 3 | 2015-10-20 | Reglamento municipal 286 (2015-10-20) |
 | 4 | 2016-01-26 | Reglamento municipal 300 (2016-01-26) |
 | 5 | 2017-07-27 | Reglamento municipal 65 (2017-07-27) |
+| 6 | 2017-11-08 | SINALEVI (sin norma nombrada) |
