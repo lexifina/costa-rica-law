@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Se exceptúan de la presente condonación tributaria las multas provenientes de la no presentación de declaraciones y por la falta de permisos de construcción. Tampoco se aplicará a los arreglos de pago suscritos antes de la entrada en vigencia de la presente ley, salvo que la deuda sea cancelada en su totalidad.
