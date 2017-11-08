@@ -28,3 +28,4 @@ Reglamento a la Ley de Contratación Administrativa
 | 13 | 2017-03-14 | Decreto Ejecutivo 40270 (2017-03-14) |
 | 14 | 2017-06-28 | Decreto Ejecutivo 40538 (2017-06-28) |
 | 15 | 2017-08-30 | Decreto Ejecutivo 40680 (2017-08-30) |
+| 16 | 2017-11-08 | SINALEVI (sin norma nombrada) |
