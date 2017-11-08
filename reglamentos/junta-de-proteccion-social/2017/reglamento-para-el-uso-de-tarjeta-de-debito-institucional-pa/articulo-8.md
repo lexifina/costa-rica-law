@@ -1,0 +1,1 @@
+Artículo 8º—Extravío, hurto o robo de la tarjeta. En caso de extravío, hurto o robo de la tarjeta, el tarjetahabiente deberá reportarlo en forma inmediata al Departamento de Tesorería, dependencia que a su vez deberá reportarlo Al Banco de Costa Rica a efecto de que sean llevados a cabo por dicha entidad bancaria, los trámites correspondientes en este tipo de situaciones.

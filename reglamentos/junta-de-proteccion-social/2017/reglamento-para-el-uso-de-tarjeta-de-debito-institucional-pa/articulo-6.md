@@ -1,0 +1,1 @@
+Artículo 6º—Montos máximos a utilizar. La Gerencia Administrativa Financiera establecerá el monto máximo a ser utilizado por los funcionarios tarjetahabientes para el pago de bienes y servicios autorizados.

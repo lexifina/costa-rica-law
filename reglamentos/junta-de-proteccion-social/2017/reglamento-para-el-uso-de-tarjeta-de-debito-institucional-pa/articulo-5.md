@@ -1,0 +1,1 @@
+Artículo 5º—Del uso de la tarjeta. El uso de la tarjeta asignada es intransferible, únicamente podrá ser utilizada por el funcionario tarjetahabiente al cual se le autorice, para el pago en la adquisición de bienes y servicios exclusivos de la Junta, que hayan sido previamente autorizados por ésta.

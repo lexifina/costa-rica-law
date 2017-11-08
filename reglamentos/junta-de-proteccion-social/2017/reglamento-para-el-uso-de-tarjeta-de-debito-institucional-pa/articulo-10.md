@@ -1,0 +1,1 @@
+Artículo 10.—Inhabilitación de la Tarjeta. En caso de conclusión de la relación laboral entre la Junta y el tarjetahabiente, éste debe regresar la tarjeta al Departamento de Tesorería, para que la misma se inhabilite de inmediato.

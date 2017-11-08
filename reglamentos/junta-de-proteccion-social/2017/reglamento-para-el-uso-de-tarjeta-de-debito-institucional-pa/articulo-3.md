@@ -1,0 +1,1 @@
+Artículo 3º—Del Sistema de Tarjeta de Débito Institucional para Compras. Es un sistema desarrollado por el Banco de Costa Rica, a partir del cual se otorga a la Junta la posibilidad de asignar una tarjeta a los funcionarios que previamente ésta designe, para que lleven a cabo diferentes tipos de transacciones financieras según sea la necesidad e interés institucional.

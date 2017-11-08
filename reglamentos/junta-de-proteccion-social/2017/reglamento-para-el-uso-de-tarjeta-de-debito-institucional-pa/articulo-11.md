@@ -1,0 +1,1 @@
+Artículo 11.—Suscripción de póliza. La Comisión de Cauciones de la Junta, determinará la procedencia o no de la suscripción de una póliza de fidelidad por parte de cada uno de los funcionarios a los cuales se les asigne una Tarjeta.
