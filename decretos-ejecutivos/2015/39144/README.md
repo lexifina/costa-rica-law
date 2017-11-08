@@ -14,3 +14,4 @@ Reforma Reglamento para la calidad del Agua Potable
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-01 | la propia norma |
+| 2 | 2017-11-08 | SINALEVI (sin norma nombrada) |
