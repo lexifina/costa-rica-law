@@ -1,0 +1,1 @@
+ARTÍCULO 4- Los costos por honorarios, timbres e impuestos para la confección de la escritura de segregación y donación para el traspaso de los terrenos corresponderán a cada uno de los beneficiarios.
