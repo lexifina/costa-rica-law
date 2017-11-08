@@ -1,0 +1,1 @@
+ARTICULO 3- Procederá, de pleno derecho, la inmediata reversión de la propiedad de cualquier bien inmueble donado a favor de la Municipalidad del cantón de Puntarenas, en caso de que el terreno correspondiente se destine a otra finalidad o uso no autorizado por la presente ley.
