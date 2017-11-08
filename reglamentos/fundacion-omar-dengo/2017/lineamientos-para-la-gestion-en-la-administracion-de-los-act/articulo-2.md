@@ -1,0 +1,1 @@
+Artículo 2º—Alcance del presente procedimiento. Debe ser observado por los funcionarios del MEP destacados en la FOD, los funcionarios y autoridades de dicha Fundación, por todas las Dependencias Administrativas (Oficinas Centrales), Direcciones Regionales e instituciones educativas parte de dicho programa.
