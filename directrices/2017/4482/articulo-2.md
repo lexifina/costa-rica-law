@@ -1,0 +1,1 @@
+Artículo 2º—En virtud de la extensión de plazos por la emisión de la Cuarta Campaña 2018-2019, se prorroga el plazo de vigencia de la Tercera Campaña 2016-2017 hasta dos meses después de iniciada la Cuarta Campaña. Se entiende que este plazo incluye los dos meses de coexistencia entre la Tercera y Cuarta Campaña.
