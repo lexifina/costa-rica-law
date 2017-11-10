@@ -9,14 +9,7 @@ Muelles, Centros de Acopio o Puestos de Recibo en Puerto Puntarenas, en el cant�
 Muelle de Puerto Quepos, Centros de Acopio o Puestos de Recibo en Boca Vieja de Quepos, en el cantón de Aguirre, provincia de Puntarenas.
 Muelle, Centros de Acopio o Puestos de Recibo en Puerto Golfito y Puerto Jiménez, en el cantón de Golfito, provincia de Puntarenas.
 Flota Semi-Industrial Camaronera y Sardinera:
-Muelle de Cuajiniquil, en el cantón de La Cruz , provincia de Guanacaste.
-Playas del Coco, en el cantón de Carrillo, provincia de Guanacaste.
-Playa Flamingo (en la zona que está contigua a Playa Potrero), en el cantón de Santa Cruz, provincia de Guanacaste.
-Playa Sámara, en el cantón de Nicoya, provincia de Guanacaste.
-Muelles, Centros de Acopio o Puestos de Recibo en Puerto Puntarenas, Playa Caldera y Playa Tambor, en el cantón de Puntarenas, provincia de Puntarenas.
-Playa Tárcoles y Playa Herradura, en el cantón de Garabito, provincia de Puntarenas.
-Muelle de Puerto Quepos, Centros de Acopio o Puestos de Recibo en Boca Vieja de Quepos y Playa Dominical, en el cantón de Aguirre, provincia de Puntarenas.
-Muelle, Centros de Acopio o Puestos de Recibo en Puerto Golfito, en el cantón de Golfito, provincia de Puntarenas.
+(Así derogado lo establecido en el título anterior mediante el acuerdo AJDIP/474-2017 del 10 de noviembre del 2017 “Establece una nueva Licencia de pesca comercial para el aprovechamiento sostenible del recurso camarón”)
 En el Litoral Caribe:
 Flota Artesanal Pequeña Escala:
 En cualquiera de los lugares o bases de operación, siempre y cuando cuenten con Centros de Acopio o Puesto de Recibo debidamente registrados y autorizados por el INCOPESCA, así como el Certificado Veterinario de Operación (SENASA) y en ambos casos, dichas autorizaciones deberán estar y mantenerse vigentes, sitios de Barra del Colorado, Parismina, Marina y Puerto Viejo.
