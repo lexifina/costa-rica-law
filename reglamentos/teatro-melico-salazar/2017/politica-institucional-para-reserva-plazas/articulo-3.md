@@ -1,0 +1,1 @@
+Artículo 3º—El Teatro Popular Melico Salazar junto con la CIAD-TPMS deberán velar por la realización de los cambios y ajustes necesarios en: infraestructura, servicios de apoyo, ayudas técnicas, programas de información y formación, tecnologías, visión administrativa, jurídica y en las normas y procedimientos del accionar institucional y en la actitud del personal y autoridades.
