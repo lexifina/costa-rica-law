@@ -15,3 +15,4 @@ Reforma Reglamento para la autorización de desembarques de productos pesqueros 
 | --- | --- | --- |
 | 1 | 2012-04-20 | la propia norma |
 | 2 | 2012-11-30 | Acuerdo 458 (2012-11-30) |
+| 3 | 2017-11-10 | Acuerdo 474 (2017-11-10) |
