@@ -1,1 +1,0 @@
-Artículo 4º—El INCOPESCA por intermedio del Centro de Monitoreo y Seguimiento Satelital, establecerá una geocerca de 15 metros de batimetría a partir de la línea de pleamar costera en el Océano Pacífico, a efectos de verificar el cumplimiento de la medida de alejamiento de la flota camaronera semi-industrial.

@@ -1,1 +1,0 @@
-Artículo 2º—Ningún barco de pesca semi-industrial de camarón, podrá realizar faenas de pesca en todas las zonas de la Costa Pacífica que estén por debajo de la línea batimétrica de 15 metros de profundidad.
