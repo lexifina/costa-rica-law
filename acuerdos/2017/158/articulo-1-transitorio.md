@@ -1,3 +1,0 @@
-TRANSITORIOS
-Transitorio I.—Los armadores de las embarcaciones camaroneras semi-industriales que faenan en el Pacífico contarán con un plazo máximo de 4 meses contados a partir de la publicación oficial de éste Acuerdo, para la instalación y operación de los dispositivos satelitales o balizas, así como la debida transmisión de información satelital al Centro de Monitoreo y Control Satelital del INCOPESCA.
-(Nota de Sinalevi: Mediante acuerdo N° AJDIP/368-2017 del 13 de setiembre del 2017, se acordó: “Extender el plazo para la implementación de balizas a la flota camaronera de arrastre por cuatro meses, contados a partir de la adopción Acuerdo AJDIP/368-2017 del 13 de setiembre del 2017”)
