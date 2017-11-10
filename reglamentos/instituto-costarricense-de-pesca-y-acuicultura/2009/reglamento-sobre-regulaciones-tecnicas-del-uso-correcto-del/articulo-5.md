@@ -1,1 +1,0 @@
-Artículo 5º—Del control y cumplimiento de la presente disposición. Los inspectores de INCOPESCA y el personal del Servicio Nacional de Guardacostas serán las únicas autoridades plenamente facultados para inspeccionar y comprobar en cualquier momento si las embarcaciones afectas a la presente regulación cumplen satisfactoriamente con lo regulado en la materia.
