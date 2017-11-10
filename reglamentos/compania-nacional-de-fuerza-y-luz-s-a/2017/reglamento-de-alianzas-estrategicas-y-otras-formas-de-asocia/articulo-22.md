@@ -1,0 +1,1 @@
+Artículo 22. Asesorías en la ejecución. La Asesoría Jurídica Empresarial y la Dirección Administración y Finanzas deben brindar la asesoría que se requiera durante la etapa de ejecución de la asociación empresarial, según sea necesario y de conformidad con los requerimientos formalizados.

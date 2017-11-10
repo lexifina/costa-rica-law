@@ -1,0 +1,4 @@
+Artículo 19. Aprobación del acuerdo de asociación empresarial. Una vez que el acuerdo respectivo cuente con el visto bueno de la Asesoría Jurídica Empresarial, la unidad gestora lo debe enviar conjuntamente con el expediente para su aprobación y consecuente firma del competente, según los topes establecidos al efecto por el Área Proveeduría Empresarial, considerando para ello el monto del poder que ostenta cada instancia.
+La unidad gestora debe coordinará la obtención de las firmas correspondientes, tanto a lo interno de la CNFL, como externo del socio.
+De no aprobarse el acuerdo, la unidad gestora debe comunicar motivadamente la negativa al proponente y se debe proceder al archivo de la solicitud.
+Una vez formalizado el acuerdo, la unidad gestora debe promover su implementación, cuando corresponda y rendir el informe de avance cada seis meses a la Gerencia General y a la Dirección Estrategia y Desarrollo del Negocio.
