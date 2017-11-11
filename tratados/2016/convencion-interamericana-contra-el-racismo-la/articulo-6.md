@@ -1,0 +1,2 @@
+Artículo 6
+Los Estados Partes se comprometen a formular y ,aplicar políticas que tengan por objetivo el trato equitativo y la generación de igualdad de oportunidades para todas las personas, de conformidad con el alcance de esta Convención, entre ellas, políticas de tipo educativo, medidas de carácter laboral o social, o de cualquier otra índole de promoción, y la difusión de la legislación sobre la materia por todos los medios posibles, incluida cualquier forma y medio de comunicación masiva e Internet.

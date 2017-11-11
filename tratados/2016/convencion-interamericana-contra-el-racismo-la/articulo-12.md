@@ -1,0 +1,2 @@
+Artículo 12
+Los Estados Partes se comprometen a llevar adelante estudios sobre la naturaleza, causas y manifestaciones del racismo, la discriminación racial y formas conexas de intolerancia en sus respectivos países, tanto en los ámbitos local, regional como nacional, y a recolectar, compilar y difundir datos sobre la situación de los grupos o individuos que son víctimas del racismo, la discriminación racial y formas conexas de intolerancia.

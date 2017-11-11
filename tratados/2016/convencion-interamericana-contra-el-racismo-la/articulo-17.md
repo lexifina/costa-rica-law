@@ -1,0 +1,2 @@
+Artículo 17. Depósito
+El instrumento original de la presente Convención, cuyos textos en español, francés, inglés y portugués son igualmente auténticos, será depositado en la Secretaría General de la Organización de los Estados Americanos.
