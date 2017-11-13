@@ -1,0 +1,1 @@
+Artículo 16.—El responsable de Reserva de Biosfera deberá contar conocimiento en áreas de conservación y desarrollo sostenible que labore o resida en el territorio de las reservas de biosfera y será designado según lo determinado en el artículo 14 del presente decreto.

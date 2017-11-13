@@ -1,0 +1,1 @@
+Artículo 9º—La Junta Directiva se integrará con al menos un representante de cada uno de los sectores convocados, y su funcionamiento se realizará según el Reglamento Operativo que se elabore y que debe ser aprobado por la Comisión Costarricense para la Cooperación con UNESCO.
