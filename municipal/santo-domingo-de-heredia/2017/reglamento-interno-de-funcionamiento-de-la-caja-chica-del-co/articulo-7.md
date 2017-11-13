@@ -1,0 +1,1 @@
+Artículo 7°—Fondo Especial. La Junta Directiva de El Comité Cantonal de Deportes podrá autorizar, por mayoría calificada, el funcionamiento de Fondos Especiales de Caja Chica bajo circunstancias muy calificadas y debidamente justificadas, respetando el monto establecido en el párrafo anterior.

@@ -1,0 +1,1 @@
+Artículo 8°—Asignaciones máximas. Las sumas a girar contra los fondos de caja chica a que se refiere este Reglamento son asignaciones máximas; y no se podrán realizar erogaciones por montos superiores a (¢125.000 (ciento veinticinco mil colones exactos) por transacción.

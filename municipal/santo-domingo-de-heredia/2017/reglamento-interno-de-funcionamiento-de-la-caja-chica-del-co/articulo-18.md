@@ -1,0 +1,1 @@
+Artículo 18.—El custodio del Fondo Fijo de Caja Chica deberá estar anuente a ser arqueado en cualquier momento, por el Tesorero de la Junta Directiva del CCDR, así como por los representantes de la Auditoría municipal, a fin de garantizar una seguridad razonable de la gestión y administración del Fondo.

@@ -1,0 +1,1 @@
+Artículo 14.—Gastos de mantenimiento, reparación de instalaciones y otros. En tales casos, el reconocimiento de las cuentas solamente podrá hacerse contra la presentación de las respectivas facturas timbradas o dispensadas por la DGTD y el formulario respectivo.

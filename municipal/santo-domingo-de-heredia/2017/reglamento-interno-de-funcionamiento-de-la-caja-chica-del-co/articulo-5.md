@@ -1,0 +1,1 @@
+Artículo 5°—Variación en el monto del fondo. El monto a que asciende el fondo de caja chica, podrá ser revisado una vez al año por la Junta Directiva del CCDR, a efecto de determinar la procedencia del ajuste.
