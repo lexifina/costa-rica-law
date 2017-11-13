@@ -15,3 +15,4 @@ Reglamento para el Consejo Nacional para la calidad (CONAC)
 | --- | --- | --- |
 | 1 | 2004-06-09 | la propia norma |
 | 2 | 2015-04-27 | Decreto Ejecutivo 39049 (2015-04-27) |
+| 3 | 2017-11-13 | Decreto Ejecutivo 40834 (2017-11-13) |
