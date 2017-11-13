@@ -1,19 +1,6 @@
-Artículo 11.— Instancia responsable del proceso de selección y asignación. Se establece el Jurado Seleccionador del Fondo de Fomento Audiovisual y Cinematográfico -El Fauno-, como órgano encargado de recomendar la selección de los beneficiarios y los montos de financiamiento para los proyectos. Estará compuesto por los siguientes integrantes, en cada una de las categorías:
-1. Animación y vídeo juegos:
-a. El Director del CCPC, o su representante.
-b. Un experto del campo audiovisual y cinematográfico respectivo, residente en el extranjero.
-c. Un representante del sector atinente a la categoría.
-2.- Ficción:
-a. El Director del CCPC, o su representante.
-b. Un experto del campo audiovisual y cinematográfico
-respectivo, residente en el extranjero.
-c. Un representante del sector atinente a la categoría.
-3. Documental:
-a. El Director del CCPC, o su representante.
-b. Un experto del campo audiovisual y cinematográfico respectivo, residente en el extranjero.
-c. Un representante del sector atinente a la categoría.
-El nombramiento de los representantes del sector atinentes a cada una de las categorías lo hará el Ministerio de Cultura y Juventud, con base en la candidatura propuesta por las televisoras públicas, las instituciones de educación técnica o superior en las que se impartan carreras afines al audiovisual y el gremio correspondiente.
-Los representantes propuestos, deberán tener experiencia en su campo, que se comprobará con la presentación de su Hoja de Vida y la revisión de sus atestados artísticos. En caso que alguno de ellos no atendiere la convocatoria, el Ministerio de Cultura y Juventud podrá nombrar a otra persona idónea, que tenga experiencia en el sector audiovisual y/o cinematográfico.
-Los expertos internacionales serán propuestos al Despacho del Ministro de Cultura y Juventud, por la Dirección General del CCPC, quien deberá presupuestar los gastos de traslado y estadía en el país, para la realización de esta labor.
-En caso de empate decidirá el Director del CCPC o su representante.
-(Así reformado por el artículo 4° del decreto ejecutivo N° 39814 del 2 de mayo de 2016)
+Artículo 11-Instancias responsables del proceso de selección y asignación. Para la valoración y selección de los proyectos presentados al Fondo de Fomento Audiovisual y Cinematográfico -El Fauno-, en las categorías de: 1-.Animación y vídeo juegos, 2. - Ficción y Documental, se nombrará un cuerpo colegiado de expertos internacionales residentes en el exterior, el cual estará encargado de recomendar la selección de los beneficiarios y los montos de financiamiento para los proyectos.
+Los expertos internacionales serán propuestos al Despacho del Ministro de Cultura y Juventud, por la Dirección General del CCPC, que deberá presupuestar el pago de los cánones por concepto de revisión de los proyectos. También se podrán reconocer gastos de traslado y estadía en el país para la realización de esta labor. únicamente en caso que se considere necesario y sea debidamente justificado por la Dirección General del CCPC.
+Este grupo colegiado calificará las propuestas con base en una ponderación de as pecios técnicos, de fondo y forma, y un juicio de valor artístico y les asignará un puntaje. Dicha ponderación deberá ser detallada en una rúbrica de evaluación, donde se establezcan o se prioricen los proyectos en un orden de mayor a menor puntaje y cuyos aspectos a ponderar hayan sido previamente comunicados a los participantes.
+La recomendación de este cuerpo colegiado será conocida pata efectos de aprobación por el Consejo Nacional de Cinematografía, que tendrá el deber de priorizar el otorgamiento de los fondos a los proyectos con puntajes más altos. No obstante, el Consejo podrá apartarse de la calificación mediante resolución motivada y fundamentada en aspectos técnicos y juicios de valor artístico.
+Dichos expertos deberán efectuar sus valoraciones por cada uno de los proyectos analizados de manera tal que quede constancia de las razones por las cuales se recomienda el apoyo para los proyectos seleccionados, o por el contrario, las razones que impidieron dicha selección. Estos razonamientos deberán ser comunicados a cada uno de los participantes de la selección.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40822 del 13 de noviembre del 2017)
