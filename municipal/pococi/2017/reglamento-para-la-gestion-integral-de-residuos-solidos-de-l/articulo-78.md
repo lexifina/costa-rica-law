@@ -1,0 +1,3 @@
+ARTICULO 78. En caso que se detecte la reincidencia por parte de un usuario comercial en el incumplimiento de las disposiciones presentes en este Reglamento sobre la separación de los residuos, condiciones de entrega, los horarios establecidos para recolección, entre otras, la Municipalidad procederá de la siguiente manera:
+a. En una primera reincidencia, se aplicará una sanción administrativa, correspondiente a la suspensión temporal de la patente o licencia comercial, por un plazo de 5 días hábiles.
+b. El incumplimiento o irrespeto de la sanción administrativa supra indicada, resultará en la apertura del expediente administrativo en cuyo caso se expone a la suspensión definitiva y retiro de la licencia municipal.

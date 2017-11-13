@@ -1,0 +1,1 @@
+ARTICULO 59. Una vez realizado el cambio de categoría, la Municipalidad mantendrá un sistema de evaluación periódico a los usuarios comerciales que hayan solicitado el cambio, con el objetivo de analizar la tasa de generación de residuos del usuario durante diferentes periodos anuales.

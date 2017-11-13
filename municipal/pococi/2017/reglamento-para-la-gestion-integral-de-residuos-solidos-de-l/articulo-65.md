@@ -1,0 +1,1 @@
+ARTICULO 65. Queda prohibido depositar animales muertos, sustancias líquidas, excretas, vómitos, o cualquier residuo que se considere como no tradicional y/o de manejo especial, en las bolsas, sacos y/o recipientes destinados al servicio de recolección selectiva de residuos valorizables y no valorizables por parte de la Municipalidad, o ente encargado del servicio.

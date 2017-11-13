@@ -1,0 +1,1 @@
+ARTICULO 79. Las actividades industriales, agrícolas, ganaderas, turísticas, y demás comerciales, deberán contar con un Programa de Manejo Integral de Residuos sólidos; de lo contrario se procederá a realizar la denuncia ante la autoridad competente.

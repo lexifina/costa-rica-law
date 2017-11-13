@@ -1,0 +1,2 @@
+ARTICULO 22. Los edificios de uso multifamiliar, condominios, establecimientos comerciales y centros comerciales estarán en la obligación de almacenar y separar en forma sanitaria los residuos generados, y entregarlos al momento en que se esté efectuando el servicio de recolección.
+Dichos complejos habitacionales y comerciales, deberán desarrollar o construir contenedores, casetillas o minicentros de acopio en los linderos frente a vía pública, siempre que estén dentro de su propiedad, para la colocación de los residuos sólidos que hayan generado.

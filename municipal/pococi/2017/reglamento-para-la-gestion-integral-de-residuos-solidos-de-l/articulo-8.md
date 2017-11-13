@@ -1,0 +1,1 @@
+ARTICULO 8. Los contratos o convenios que realice la Administración Municipal con empresas o con particulares, no exime a la Municipalidad de la responsabilidad sobre la recuperación, recolección, transporte, manejo, tratamiento y disposición final de residuos.

@@ -1,0 +1,1 @@
+ARTICULO 29. Las actividades comunales, comerciales, industriales, agrícolas, ganaderas, turísticas, de instituciones públicas y privadas, deberán contar con un Programa de Manejo Integral de Residuos, cuya implementación deberá incluir la separación y entrega de los materiales recuperados, aprobado por el MINSA y/o SENASA, que vigilarán el debido cumplimiento.

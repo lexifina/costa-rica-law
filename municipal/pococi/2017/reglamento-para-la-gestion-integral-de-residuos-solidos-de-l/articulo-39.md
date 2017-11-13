@@ -1,0 +1,1 @@
+ARTICULO 39. En caso de modificaciones de las rutas, horarios o la frecuencia del servicio de recolección y transporte, la Municipalidad deberá comunicar a los usuarios a través de los medios de información disponibles.

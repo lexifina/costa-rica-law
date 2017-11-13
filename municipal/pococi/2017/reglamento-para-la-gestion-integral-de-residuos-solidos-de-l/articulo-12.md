@@ -1,0 +1,1 @@
+ARTICULO 12. El personal del servicio municipal de recolección y transporte de residuos, no deberán ingresar a inmuebles y predios de propiedades privadas o de instituciones públicas con el fin de retirar los residuos.

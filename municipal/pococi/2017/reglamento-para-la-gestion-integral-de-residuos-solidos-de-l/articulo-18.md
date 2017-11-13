@@ -1,0 +1,1 @@
+ARTICULO 18. Al momento de realizar los trámites para obtención de la Licencia Municipal para desarrollar el evento, quien lo organice deberá haber presentado ante el órgano competente el Programa de Manejo Integral de Residuos para las actividades que se realizarán.

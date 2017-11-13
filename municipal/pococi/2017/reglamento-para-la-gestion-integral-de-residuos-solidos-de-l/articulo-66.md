@@ -1,0 +1,1 @@
+ARTICULO 66. Queda prohibido depositar animales muertos, sustancias líquidas, excretas, vómitos, o cualquier residuo que se considere como no tradicional y/o de manejo especial, en los recipientes para clasificación de residuos colocados en vías y/o áreas públicas.

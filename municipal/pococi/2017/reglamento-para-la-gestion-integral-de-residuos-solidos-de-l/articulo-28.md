@@ -1,0 +1,1 @@
+ARTICULO 28. Los residuos ordinarios provenientes de actividades domiciliares, familiares, comunales, comerciales y de instituciones públicas, privadas, entre otras, deberán ser separados en estado seco y limpio, para posteriormente ser entregados al programa de recuperación y reciclaje de la Municipalidad o ente autorizado por dicha entidad y por el MINSA.

@@ -1,0 +1,1 @@
+ARTICULO 9. Independientemente de quien realice el servicio de recuperación, recolección, transporte, manejo, tratamiento y disposición final, la gestión integral de residuos deberá obedecer todos los lineamientos y directrices presentes en este Reglamento y la legislación vigente.

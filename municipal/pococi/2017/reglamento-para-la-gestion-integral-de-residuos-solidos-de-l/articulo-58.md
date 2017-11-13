@@ -1,0 +1,2 @@
+ARTICULO 58. La Municipalidad con base en un estudio específico, podrá cambiar de categoría a usuarios comerciales del servicio de recolección de residuos, si la cantidad de residuos generados semanalmente por el usuario es inferior o superior a la establecida en el rango de generación donde se clasificó originalmente.
+En este estudio se deberán realizar al menos dos muestreos, de forma aleatoria al usuario, y el tiempo de respuesta se adecuara a los plazos establecidos por la legislación vinculante.

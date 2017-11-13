@@ -1,0 +1,1 @@
+ARTICULO 23. Los propietarios de dichos complejos habitacionales y comerciales deberán sacar a la vía pública los residuos sólidos que se mantienen en los contenedores, casetillas o minicentros de acopio de su propiedad.

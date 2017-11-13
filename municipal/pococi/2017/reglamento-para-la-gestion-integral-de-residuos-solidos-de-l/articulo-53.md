@@ -1,0 +1,2 @@
+ARTICULO 53. Todas las personas, físicas o jurídicas, públicas o privadas, que se dediquen a la gestión total o parcial de residuos, para poder operar deberán registrarse ante el MINSA y cumplir los requisitos que establezca dicha institución dentro del marco de la legislación vigente.
+Los Gestores Autorizados deberán indicar expresamente los sitios en donde se recuperarán, procesarán y manipularán los residuos para su posterior valorización, y deberán cumplir todos los requisitos legales de ubicación, construcción y operación pertinentes para los establecimientos.

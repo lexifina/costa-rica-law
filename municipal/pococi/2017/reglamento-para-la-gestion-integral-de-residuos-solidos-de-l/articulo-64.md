@@ -1,0 +1,1 @@
+ARTICULO 64. Queda prohibido sacar de sus propiedades los residuos para su recolección en los días distintos a los horarios y rutas establecidas por la Municipalidad. Igualmente se prohíbe la colocación de cualquier tipo de recipiente o contenedor de residuos en la vía pública de manera permanente.

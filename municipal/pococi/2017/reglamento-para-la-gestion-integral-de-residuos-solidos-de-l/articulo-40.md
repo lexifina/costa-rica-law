@@ -1,0 +1,1 @@
+ARTICULO 40. La Municipalidad y el MINSA establecerán y utilizarán distintos mecanismos para brindar información a los usuarios sobre las diferentes prácticas para almacenar y entregar los residuos para su recolección.

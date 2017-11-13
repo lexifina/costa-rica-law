@@ -1,0 +1,1 @@
+ARTICULO 30. La gestión integral de residuos orgánicos que se generan en la limpieza de áreas verdes como son césped y que sean de partículas pequeñas; será responsabilidad compartida entre el generador y la Municipalidad. Los residuos serán recolectados por el camión Municipal específico para estos residuos.

@@ -1,0 +1,1 @@
+ARTICULO 13. El personal del servicio municipal de recolección y transporte de residuos, así como a los colaboradores de aseo de vías, no podrá abrir y/o sustraer de las bolsas ningún tipo de residuo que sea entregado por los usuarios del servicio.

@@ -1,0 +1,1 @@
+ARTICULO 49. Quién preste la recolección y transporte de residuos, deberá garantizar el adecuado mantenimiento de los vehículos y equipos destinados a tal servicio, a fin de que no representen un peligro para la salud pública y/ o el ambiente.

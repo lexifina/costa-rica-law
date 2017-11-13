@@ -1,0 +1,1 @@
+ARTICULO 14. El MINSA y/o SENASA serán los responsables de dar el seguimiento de los Programas de Manejo Integral de Residuos Sólidos en establecimientos y actividades comerciales, agrícolas, ganaderas e industriales.

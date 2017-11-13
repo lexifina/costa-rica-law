@@ -1,0 +1,1 @@
+ARTICULO 38. Los horarios de recolección de residuos que prestados directamente por la administración Municipal o mediante contratos o convenios con empresas o particulares deberá ser oportuno, eficiente y continuo.

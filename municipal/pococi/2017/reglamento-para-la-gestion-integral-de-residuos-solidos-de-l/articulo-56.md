@@ -1,0 +1,1 @@
+ARTICULO 56. La Municipalidad creará categorías de acuerdo a las unidades generadoras de residuos: habitacionales, comerciales, instituciones públicas y privadas; según los resultados del estudio técnico expuesto en el artículo 55. El propósito de dichas categorías será clasificar el cobro por los servicios según el volumen de residuos que se generen para cada tipo de usuario.

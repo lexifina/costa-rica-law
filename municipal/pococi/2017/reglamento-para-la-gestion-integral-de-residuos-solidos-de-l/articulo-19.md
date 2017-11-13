@@ -1,0 +1,1 @@
+ARTICULO 19. Las empresas agrícolas, ganaderas, industriales y comerciales, incluyendo los centros de expendio de insumos agrícolas y veterinarios, deberán disponer de un Programa de Manejo Integral para los residuos provenientes de sus operaciones y actividades que realicen, aprobado por el MINSA y/o SENASA.

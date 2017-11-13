@@ -1,0 +1,2 @@
+ARTICULO 27. La Municipalidad conjuntamente con las autoridades respectivas de la Dirección Regional del Ministerio de Educación Pública (MEP) y con la colaboración de otras instituciones afines, como ACTo-SINAC-MINAE y el MINSA, establecerán y realizarán un programa permanente de sensibilización y capacitación en el manejo integral de Residuos.
+Igualmente, se podrá acudir a los servicios de Organizaciones No Gubernamentales.

@@ -1,0 +1,1 @@
+ARTICULO 48. Todo vehículo que se utilice para la recolección y trasporte de residuos, deberá estar debidamente identificado y rotulado, según lo especifique la Municipalidad, independientemente de si es un servicio que se presta directamente por administración propia o mediante contratos o convenios con empresas o particulares.

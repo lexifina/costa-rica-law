@@ -1,0 +1,1 @@
+ARTICULO 51. Para el funcionamiento de todo proyecto de Relleno Sanitario, independiente de su tipo o tamaño, el MINSA deberá emitir un permiso de funcionamiento, según el “Reglamento General sobre el Otorgamiento de Permisos Sanitario de Funcionamiento”, Decreto N°39472-S, y normativas anexas para Rellenos Sanitarios.

@@ -1,0 +1,1 @@
+ARTICULO 16. Toda persona física o jurídica está en la obligación de mantener almacenados en forma higiénica, sanitaria y responsable los residuos dentro de su propiedad, hasta que sean entregados a los servicios de recolección o recuperación en los horarios establecidos por la Municipalidad.

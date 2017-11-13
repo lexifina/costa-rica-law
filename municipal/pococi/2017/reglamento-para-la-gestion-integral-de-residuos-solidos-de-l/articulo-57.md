@@ -1,0 +1,1 @@
+ARTICULO 57. El patentado(a) podrá gestionar de forma escrita ante La Municipalidad, la reclasificación de su categoría, según la tasación del volumen de residuos que genere, cuando exista algún cambio en el giro comercial de la licencia municipal otorgada.

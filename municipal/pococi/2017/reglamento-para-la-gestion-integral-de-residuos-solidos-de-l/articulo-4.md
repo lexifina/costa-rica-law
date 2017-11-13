@@ -1,0 +1,1 @@
+ARTICULO 4. Toda persona física, jurídica, contribuyente y/o usuaria(o) de los servicios municipales, que se encuentre en forma temporal o permanente, dentro del territorio de Pococí, deberá cumplir con lo estipulado en el presente Reglamento.

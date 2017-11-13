@@ -1,0 +1,1 @@
+ARTICULO 11. Es responsabilidad de la Municipalidad o cualquier empresa autorizada a cargo del servicio, velar que en el momento de la recolección no quedarán residuos esparcidos en áreas públicas, condicionado al cumplimiento del artículo 33 del presente reglamento.

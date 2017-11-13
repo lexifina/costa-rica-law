@@ -1,0 +1,3 @@
+ARTICULO 6. Toda persona física, jurídica, contribuyente y/o usuaria(o) de los servicios municipales, que se encuentre en forma temporal o permanente, dentro del territorio de Pococí, deberá cumplir con las siguientes obligaciones:
+a. Contar con un sistema de separación de residuos sólidos provenientes de las actividades domiciliares, de acuerdo a los procedimientos definidos por la UTGAM.
+b. Contar con un sistema de separación y clasificación de residuos provenientes de las actividades no domiciliares, públicas, comunales, comerciales, religiosas, recreativas, eventos privados, operaciones agropecuarias, industriales y turísticas, aprobados por el Ministerio de Salud (MINSA) y/o Sistema Nacional de Salud Animal (SENASA), a través de su proceso especializado.
