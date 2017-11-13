@@ -15,3 +15,4 @@ Reglamento a la Ley Nacional de Emergencias y Prevención del Riesgo
 | --- | --- | --- |
 | 1 | 2008-03-13 | la propia norma |
 | 2 | 2016-04-28 | Decreto Ejecutivo 39681 (2016-04-28) |
+| 3 | 2017-11-13 | Decreto Ejecutivo 40762 (2017-11-13) |
