@@ -1,0 +1,2 @@
+Artículo 47.- De la Votación. Al dar por discutido un asunto, el o la presidente del CCPJSIH lo someterá a votación. Los miembros deberán dar su voto necesariamente en sentido afirmativo o negativo; no caben las abstenciones, y podrán razonar su voto, obligatoriamente en el caso de ser negativo.
+En aquellos casos en que se discuta o apruebe un asunto en el que tengan interés directo un miembro del CCPJSIH, su cónyuge o algún pariente hasta el tercer grado de consanguinidad, deberán recusarse.

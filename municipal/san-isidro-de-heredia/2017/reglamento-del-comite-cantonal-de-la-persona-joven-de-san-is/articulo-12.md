@@ -1,0 +1,1 @@
+Artículo 12.- Para efectos del presente Reglamento, serán deberes de la Municipalidad con las personas jóvenes los temas de salud, trabajo y educación, según lo establece la Ley General de la Persona Joven en su artículo N°6.

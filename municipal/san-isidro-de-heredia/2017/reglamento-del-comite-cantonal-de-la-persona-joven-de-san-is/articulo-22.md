@@ -1,0 +1,1 @@
+Artículo 22.- Es responsabilidad de las organizaciones juveniles, actualizar la información en caso que se modifiquen las mismas. Si la información no se encuentra actualizada al momento de realizar las asambleas, estas no podrán participar.

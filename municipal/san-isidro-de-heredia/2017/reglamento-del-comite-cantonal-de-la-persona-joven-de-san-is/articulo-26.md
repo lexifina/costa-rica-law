@@ -1,0 +1,1 @@
+Artículo 26. Duración: Los miembros del CCPJSIH durarán en sus cargos dos años y podrán ser reelectos, el nombramiento se hará a partir del 01 de enero de los años impares y se conformará en los meses de octubre y noviembre de cada año, en los años pares.

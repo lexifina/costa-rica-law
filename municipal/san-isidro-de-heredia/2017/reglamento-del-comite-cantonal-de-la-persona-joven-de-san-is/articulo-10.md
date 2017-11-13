@@ -1,0 +1,1 @@
+Artículo 10.- El CCPJSIH nombrará de su seno por mayoría simple de votos una persona como representante propietario para la Asamblea Nacional de la Red Consultiva de la Persona Joven, quienes fungirán en el puesto por un año y podrán ser reelectos.

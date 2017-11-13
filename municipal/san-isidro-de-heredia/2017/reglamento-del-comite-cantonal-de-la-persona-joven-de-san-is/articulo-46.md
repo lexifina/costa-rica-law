@@ -1,0 +1,3 @@
+Artículo 46.- Acuerdos: Las determinaciones o decisiones que tome el CCPJSIH se denominarán acuerdos. Los acuerdos se tomarán por mayoría simple de los votos, salvo casos en que de conformidad con la normativa vigente se requiera de mayoría calificada.
+En caso de empate en una votación, el o la presidente someterá nuevamente el asunto a votación en sesiones posteriores, si así fuese requerido.
+Los acuerdos tomados quedarán firmes al aprobarse el acta respectiva, salvo aquellos que se hubiesen declarado como definitivamente aprobados; solo en caso de excepción se tomarán los acuerdos definitivamente aprobados, en caso de urgencia del trámite del acuerdo.

@@ -1,0 +1,1 @@
+Artículo 38.- Funciones de los vocales primero, segundo y tercero: Son funciones del o la vocal primero, segundo y tercero las de sustituir al vicepresidente, secretario y/o tesorero en ausencia de uno o ambos, en estricto orden preferente, con las mismas obligaciones y atribuciones.

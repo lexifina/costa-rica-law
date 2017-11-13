@@ -1,0 +1,3 @@
+Artículo 41.-Sesiones Ordinarias: El CCPJSIH sesionará en forma ordinaria y pública, una vez al mes, en el día y hora acordados en la sesión inaugural.
+Dicho acuerdo deberá ser notificado al Concejo Municipal, a la Administración Municipal, a las organizaciones juveniles, comunales, religiosas, deportivas adscritas al CCPJSIH, así como a los Gobiernos Estudiantiles de los colegios del cantón y al CPJ.
+Por motivos especiales y por acuerdo de la mayoría simple de los miembros de la Junta Directiva, podrá variarse la fecha y hora establecida para las sesiones ordinarias, debiendo realizar la notificación correspondiente.

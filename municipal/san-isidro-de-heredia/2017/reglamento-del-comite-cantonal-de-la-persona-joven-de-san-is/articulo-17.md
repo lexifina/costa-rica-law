@@ -1,0 +1,1 @@
+Artículo 17.- La Municipalidad, por medio de sus órganos, administrará los recursos condestino específico a que se hace referencia en el artículo 26 de la Ley General de la Persona Joven, girados por el CPJ para el financiamiento del CCPJSIH.
