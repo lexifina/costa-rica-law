@@ -14,3 +14,4 @@ Reglamento a la Ley del Impuesto sobre la Propiedad de Vehículos Automotores, E
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-02-28 | la propia norma |
+| 2 | 2017-11-13 | Decreto Ejecutivo 40761 (2017-11-13) |
