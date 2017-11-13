@@ -1,0 +1,3 @@
+Artículo 55. Medidas provisionales.
+El Consejo de la SUTEL, de oficio o a instancia de los interesados, podrá ordenar provisionalmente el uso compartido solicitado, cuando considere que es técnicamente viable, y fijará las condiciones de la misma, de conformidad con lo establecido en el artículo 66 de la Ley N° 8642.
+Para tales fines, la SUTEL realizará las actuaciones estrictamente necesarias para proteger los intereses de los usuarios, la seguridad e integridad de los recursos escasos, garantizar el uso compartido de infraestructuras para telecomunicaciones, así como la continuidad en la prestación de los servicios de telecomunicaciones disponibles al público.

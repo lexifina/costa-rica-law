@@ -1,0 +1,2 @@
+Artículo 14. Responsabilidad del operador o proveedor de servicios de telecomunicaciones respecto a elementos de la red que no utilice.
+El operador o proveedor de servicios de telecomunicaciones que se niegue a remover elementos de la red que no respondan a un uso debidamente planificado podría incurrir en una infracción de conformidad con lo establecido el artículo 67 inciso a), subincisos 7) y 9) de la Ley 8642.

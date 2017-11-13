@@ -1,0 +1,3 @@
+Artículo 44. Replicabilidad de condiciones más favorables.
+De conformidad con el principio de no discriminación, los contratos de uso compartido deberán prever su adecuación o modificación inmediata, a requerimiento del operador o proveedor solicitante, cuando el propietario o administrador de infraestructura hubiere acordado con un tercer operador o proveedor de servicios de telecomunicaciones alguna condición más favorable.
+La replicabilidad se hará efectiva tratándose de condiciones más favorables relativas a los contenidos mínimos que deben tener los contratos de uso compartido, según lo dispuesto en este Reglamento.

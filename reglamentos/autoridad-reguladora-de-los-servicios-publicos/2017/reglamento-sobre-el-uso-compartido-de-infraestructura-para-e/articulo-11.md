@@ -1,0 +1,3 @@
+Artículo 11. Obligación de entregar información.
+Los propietarios de recursos escasos que soporten o puedan servir para el despliegue de redes públicas de telecomunicaciones estarán obligados a entregar la información requerida por la SUTEL para el cumplimiento de sus obligaciones, en la forma y con la periodicidad que ésta la solicite, a efecto de resguardar la garantía del uso compartido contemplada en la Ley 8642.
+Igualmente será obligatorio para los operadores y/o proveedores de servicios de telecomunicaciones entregar a la SUTEL la información relativa al recurso escaso utilizado para el despliegue de redes públicas de telecomunicaciones o la prestación de servicios de telecomunicaciones disponibles al público.

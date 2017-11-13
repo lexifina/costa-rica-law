@@ -1,0 +1,2 @@
+Artículo 26. Sobre el área transversal utilizable en los ductos y sub-ductos con presencia de infraestructura de telecomunicaciones.
+La suma de las áreas transversales de los cables en un ducto o sub-ducto no deberá sobrepasar el 50% del área transversal interior del ducto o sub-ducto, con el fin de evitar una saturación del espacio que dificulte las tareas de operación y mantenimiento de la red pública de telecomunicaciones que se encuentre instalada.

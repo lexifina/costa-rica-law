@@ -1,0 +1,3 @@
+Artículo 8. Obligación sobre los derechos de paso, uso compartido y colocalización.
+De conformidad con el alcance de este reglamento, es obligación de los propietarios de la infraestructura que soporta redes públicas de telecomunicaciones, conceder derechos de paso, uso compartido y colocalización de equipos, aplicar la normativa vigente y los lineamientos emitidos por la Superintendencia de Telecomunicaciones. Asimismo es su obligación garantizar y brindar el mantenimiento necesario a su recurso escaso para asegurar la operación adecuada y la continuidad del uso compartido.
+El uso compartido de la infraestructura no deberá causar daño alguno o afectar la continuidad o calidad de los servicios que ya se prestan.

@@ -1,0 +1,4 @@
+Artículo 66. Sobre otros cargos no recurrentes atribuibles al uso compartido de infraestructura.
+Los propietarios de recursos escasos tienen derecho a recibir una contraprestación razonable por los estudios de factibilidad técnica que deban realizar para poder ofrecer un determinado servicio. Estos cargos serán negociados entre las partes.
+Los estudios de factibilidad técnica deberán basarse en costos por hora técnica. Estos cargos deberán estar orientados a costos y estar definidos en condiciones no discriminatorias, razonables, transparentes, proporcionadas al uso pretendido y no implicarán más que lo necesario para la buena operación del servicio previsto.
+En caso de no llegar a un acuerdo entre las partes la SUTEL mediante resolución motivada establecerá los criterios sobre los cuales deberán cobrarse dichos cargos no recurrentes.

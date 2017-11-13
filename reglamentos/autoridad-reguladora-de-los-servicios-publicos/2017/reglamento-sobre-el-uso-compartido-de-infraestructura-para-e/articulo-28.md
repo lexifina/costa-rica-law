@@ -1,0 +1,3 @@
+Artículo 28. Sobre medios alternativos cuando se defina que existe escasez de espacio.
+En los casos donde el espacio disponible, sea igual o menor a los umbrales establecidos en el presente Reglamento (criterio de escasez), y técnicamente no sea viable la instalación de subconductos, se deberá evaluar la utilización de microductos, subconductación textil no rígida o cualquier otra tecnología que permita optimizar el uso del área transversal utilizable en este tipo de infraestructura.
+En estos casos, el operador que requiere hacer uso de estos medios alternativos, deberá asumir cualquier daño que se produzca durante su instalación.

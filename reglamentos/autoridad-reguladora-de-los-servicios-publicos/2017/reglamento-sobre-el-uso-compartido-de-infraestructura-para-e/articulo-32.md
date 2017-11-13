@@ -1,0 +1,4 @@
+Artículo 32. Sobre las alturas mínimas.
+En los tendidos de las redes de telecomunicaciones que atraviesan caminos, calles o carreteras, la distancia mínima, medida desde el suelo hasta el punto más bajo de la Página 21 de 39
+catenaria, deberá ser de 4,70 metros. En los tendidos que no atraviesen caminos, calles ni carreteras, la distancia mínima, medida desde el suelo hasta el punto más bajo de la catenaria, deberá ser de 4,60 metros. En relación con las redes eléctricas, se aplicará la normativa emitida por la ARESEP.
+Es responsabilidad del propietario de la infraestructura verificar que el uso sea conforme con la presente disposición. En el caso que exista incumplimiento a dicha disposición, y que el mismo genere un daño material los mismos serán indemnizados en la correspondiente vía legal.

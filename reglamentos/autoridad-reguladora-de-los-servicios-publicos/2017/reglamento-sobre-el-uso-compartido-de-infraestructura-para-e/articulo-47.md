@@ -1,0 +1,3 @@
+Artículo 47. Naturaleza de los contratos de uso compartido.
+Los contratos de uso compartido serán documentos formales que deberán constar por escrito y contener los requisitos esenciales para su validez de conformidad con lo establecido en la legislación vigente en materia de contratos.
+Ninguna de las partes podrá pactar cláusulas abusivas relativas a penalidades, desbalance en las obligaciones de las partes, modificaciones unilaterales de las condiciones contractuales, pagos anticipados, solicitudes mínimas de cantidades de infraestructura como condicionamiento a una posible negociación. Otras conductas también podrán considerarse abusivas y por lo tanto prohibidas, cuando así lo establezca la SUTEL.

@@ -1,0 +1,30 @@
+Artículo 6. Definiciones.
+Para efectos de este Reglamento se definen los siguientes conceptos:
+Acceso: puesta a disposición de terceros por parte de un operador de redes públicas o proveedor de servicios de telecomunicaciones disponibles al público, de sus instalaciones o servicios con fines de prestación de servicios.
+Acometida: los conductores, accesorios y equipo para la conexión de la red de distribución de la empresa de energía eléctrica o de telecomunicaciones con el sistema de alumbrado eléctrico o de telecomunicaciones del inmueble o de la propiedad servida.
+Antena: sistema radiante utilizado para la transmisión y/o recepción de señales radioeléctricas (ondas electromagnéticas).
+Armario: estructura tipo armazón metálico para exteriores y/o interiores fijada en el suelo, usualmente en la acera, cuya finalidad es la de alojar conexiones telefónicas y equipo electrónico y de comunicaciones.
+Caja de distribución: punto de distribución de la red secundaria. Cuando es aérea se le denomina caja de dispersión. Adicionalmente en desarrollos urbanísticos su colocación puede realizarse en pedestales.
+Canalización: es la red de ductos que sirven para enlazar dos registros entre sí, un registro y un armario, un registro y una caja de distribución.
+Catenaria: Curva que describe un cable de densidad uniforme que está fijo por sus dos extremos y no está sometido a otras fuerzas distintas que su propio peso.
+Colocalización: Uso de una misma torre o estructura de soporte para ubicar las antenas de varios operadores, evitando con ello que se instalen varias torres juntas, disminuyendo el impacto urbano.
+Derecho de paso: derecho de los operadores estipulado en el artículo 77 de la Ley 7593, a utilizar la infraestructura que sirve de soporte a las redes públicas de telecomunicaciones.
+Ducto: canalización cerrada que compone la canalización y sirve como vía a conductores eléctricos o cables de telecomunicaciones.
+Empalme: unión o acoplo mecánico, por fusión u otros métodos, de los cables de fibra óptica utilizados para el transporte de señales de telecomunicaciones.
+Estudio de Factibilidad: Es una herramienta que se utiliza para determinar sí existe la viabilidad, tanto técnica como física, para el soporte de redes de telecomunicaciones.
+Estación: Edificación que consta de espacio físico con facilidades necesarias para la instalación y operación de redes públicas de telecomunicaciones.
+Infraestructura esencial: Infraestructura que permite el soporte o instalación de redes que son exclusiva o predominantemente suministradas por un único o por un limitado número de propietarios; y que no resulta factible sustituirlas o duplicarlas.
+Operador: persona física o jurídica, pública o privada, que explota redes de telecomunicaciones con la debida concesión o autorización, los cuales podrán prestar o no servicios de telecomunicaciones disponibles al público en general.
+Poste: soporte largo troncocónico, sujeto por el terreno, para soportar cables y elementos de planta. Existen de diversos materiales como madera, hormigón o poliéster-fibra de vidrio.
+Recursos escasos: En el contexto del presente reglamento y de conformidad con el artículo 6 Ley General de Telecomunicaciones, Ley 8642, se entiende por recursos escasos, las instalaciones esenciales, los derechos de vía, las canalizaciones, los ductos, las torres, los postes y demás instalaciones requeridas para la operación de redes públicas de telecomunicaciones. No aplica este reglamento para las disposiciones relativas al espectro radioeléctrico y recursos de numeración.
+Red de telecomunicaciones: sistemas de transmisión y demás recursos que permiten la transmisión de señales entre puntos de terminación definidos mediante cables, ondas hertzianas, medios ópticos u otros medios radioeléctricos, con inclusión de las redes satelitales, redes terrestres fijas (de conmutación de circuitos o de paquetes, incluida Internet) y móviles, sistemas de tendido eléctrico, utilizadas para la transmisión de señales, redes utilizadas para la radiodifusión sonora y televisiva y redes de televisión por cable, con independencia del tipo de información transportada.
+Red pública de telecomunicaciones: red de telecomunicaciones que se utiliza, en su totalidad o principalmente, para la prestación de servicios de telecomunicaciones disponibles al público.
+Registro: Estructura subterránea donde se realiza la distribución de ductos, subductos y canalizaciones y donde se realizan empalmes, bifurcaciones y se albergan reservas de cables de telecomunicaciones.
+Salida lateral: Es el tramo o trayecto de la canalización que partiendo del último registro de la red accede a poste, fachada o al interior de un edificio.
+Servicios de telecomunicaciones: servicios que consisten, en su totalidad o principalmente, en el transporte de señales a través de redes de telecomunicaciones. Incluyen los servicios de telecomunicaciones que se prestan por las redes utilizadas para la radiodifusión sonora o televisiva.
+Sub-ducto: tubo de menor diámetro que el ducto de la canalización que se introduce en el interior de éste para facilitar el uso compartido.
+Superintendencia de Telecomunicaciones (SUTEL): órgano de la Autoridad Reguladora de los Servicios Públicos encargado de regular, supervisar, aplicar, vigilar y controlar el ordenamiento jurídico de las telecomunicaciones.
+Servicios de telecomunicaciones disponibles al público: servicios que se ofrecen al público en general, a cambio de una contraprestación económica.
+Torre: elemento estructural de acero que sirve para satisfacer los requerimientos de instalación de antenas y soporte de cableado de los equipos requeridos, para la operación de redes públicas de telecomunicaciones.
+Uso compartido: es el derecho que permite hacer uso de los recursos escasos bajo las condiciones previstas en el presente Reglamento.
+Usuario final: usuario que recibe un servicio de telecomunicaciones sin explotar redes públicas de telecomunicaciones y sin prestar servicios de telecomunicaciones disponibles al público.

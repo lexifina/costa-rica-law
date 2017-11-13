@@ -1,0 +1,2 @@
+Artículo 12. Sobre el uso eficiente de los elementos de la red en la infraestructura de telecomunicaciones por parte de los operadores y/o proveedores de servicios de telecomunicaciones.
+Los operadores y/o proveedores que brinden servicios de telecomunicaciones deberán dar un uso eficiente y razonable al espacio asignado por el propietario o administrador de la infraestructura, a su vez, tendrán la obligación de retirar cualquier elemento que sirva para dar soporte o bien forme parte de esta red de telecomunicaciones, que no responda a un uso debidamente planificado.

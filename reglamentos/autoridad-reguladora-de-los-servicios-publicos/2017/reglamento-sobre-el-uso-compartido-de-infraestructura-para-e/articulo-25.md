@@ -1,0 +1,2 @@
+Artículo 25. Sobre el uso compartido de las salidas laterales, registros, y otra infraestructura relacionada.
+El propietario de infraestructura tal como ductos y canalizaciones deberá garantizar, en consecuencia con el artículo 24, el uso compartido a su vez de las salidas laterales, registros y demás infraestructura relacionada que sirva para dar acceso a la fachada o interior de las edificaciones.

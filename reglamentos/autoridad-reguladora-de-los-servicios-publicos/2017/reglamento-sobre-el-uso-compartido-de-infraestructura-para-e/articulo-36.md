@@ -1,0 +1,7 @@
+CAPÍTULO V
+OTRAS INFRAESTRUCTURAS
+Artículo 36. Uso compartido en infraestructura de obra pública.
+Las administraciones públicas titulares de infraestructuras susceptibles de ser utilizadas para el despliegue de redes públicas de telecomunicaciones, procurarán facilitar el uso compartido de dichas infraestructuras, siempre que no se comprometa la continuidad y seguridad de la prestación de los servicios de carácter público para los que se utilizan esas infraestructuras.
+En el diseño y la construcción de proyectos de obra pública tales como aeropuertos, abastecimiento de agua, alcantarillado, transporte, distribución de gas y electricidad, puentes, carreteras, vías férreas y otros; sean estos de nivel nacional, cantonal o distrital, se procurará contemplar la infraestructura necesaria para el despliegue de redes de telecomunicaciones y respetarse las disposiciones incluidas en el presente reglamento a efecto de garantizar el uso compartido de la infraestructura.
+La nueva infraestructura procurará garantizar el establecimiento, la instalación, la ampliación, la renovación y la operación de redes públicas de telecomunicaciones o de cualquiera de sus elementos siempre que esto no comprometa la continuidad y seguridad de la prestación de los servicios que en dichas infraestructuras realiza su titular.
+El uso compartido de dicha infraestructura deberá facilitarse en condiciones de igualdad, transparencia y no discriminación.

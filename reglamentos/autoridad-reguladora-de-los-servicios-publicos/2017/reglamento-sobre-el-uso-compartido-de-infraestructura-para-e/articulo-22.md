@@ -1,0 +1,3 @@
+Artículo 22. Sobre niveles de emisiones electromagnéticas.
+De conformidad con el artículo 60 inciso g) y 73 inciso e) de la Ley 7593, le corresponde a la SUTEL controlar y comprobar el uso eficiente del espectro radioeléctrico, las emisiones radioeléctricas y la inspección, detección, identificación y eliminación de las interferencias perjudiciales, pudiendo establecer las penalizaciones correspondientes.
+En virtud de lo anterior, todos los operadores y proveedores de servicios de telecomunicaciones, así como todos los concesionarios de frecuencias del espectro radioeléctrico, deberán apegarse a los niveles máximos de exposición electromagnética normados por el Ministerio de Salud Pública, como órgano rector de la materia acorde con las normas aplicables de la UIT.

@@ -1,0 +1,2 @@
+Artículo 16. Uso Indebido.
+El propietario o administrador de la infraestructura estará facultado a retirar los elementos de las redes de telecomunicaciones que un operador o proveedor hayan instalado sin mediar acuerdo entre partes u orden de SUTEL, sin que esto le cause ninguna responsabilidad. Sutel tramitará las denuncias que se presenten por este motivo de acuerdo con lo que establece el artículo 65 de la Ley 8642.

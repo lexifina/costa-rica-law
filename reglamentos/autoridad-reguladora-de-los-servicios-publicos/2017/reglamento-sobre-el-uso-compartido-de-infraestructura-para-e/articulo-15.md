@@ -1,0 +1,2 @@
+Artículo 15. Traslado de elementos.
+Salvo acuerdo específico entre las partes, ante la instalación de nueva infraestructura que mantenga o mejore las condiciones de uso compartido que ofrece la infraestructura existente, los operadores deberán trasladar sus elementos de red a la nueva infraestructura, en el plazo máximo de un mes, a partir de que el propietario haya solicitado por escrito al operador el traslado de sus elementos de red y que la infraestructura esté completamente habilitada para su uso.
