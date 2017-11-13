@@ -1,0 +1,1 @@
+Artículo 5°—Conformidad de Recibido de Bienes o Servicios Contratados. Seleccionado el suplidor o contratista, el Administrador del Comité será el responsable de velar porque los bienes o servicios adquiridos sean entregados en los términos fijados en la contratación, pudiendo requerir, en caso necesario, el apoyo de cualquier Departamento Municipal para tal efecto.

@@ -1,0 +1,1 @@
+Artículo 17.—Orden de Compra. Adjudicada la contratación, el Administrador del Comité preparará la respectiva orden de compra. La orden de compra es el documento por el cual se compromete el monto presupuestado y, a la vez, genera el compromiso con la empresa para la adquisición del bien o del servicio seleccionado en los supuestos de contrataciones directas.
