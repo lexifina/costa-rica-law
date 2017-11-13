@@ -1,1 +1,2 @@
-Artículo 6º—Las licencias constituyen una autorización para comercializar al detalle bebidas con contenido alcohólico en el Cantón de Corredores, y serán otorgadas por el Alcalde o Alcaldesa Municipal, bajo los parámetros y límites establecidos por el Concejo Municipal en este reglamento, y se otorgara únicamente para el ejercicio de la actividad que ellas mismas determinan y en las condiciones que establece la resolución administrativa que se dicte con ese fin.
+Artículo 6º- Las licencias serán otorgadas por la Alcaldía, mediante resolución administrativa. Lo anterior, sin perjuicio de las excepciones previstas en este reglamento.
+(Así reformado en sesión N° 80 del 13 de noviembre de 2017)

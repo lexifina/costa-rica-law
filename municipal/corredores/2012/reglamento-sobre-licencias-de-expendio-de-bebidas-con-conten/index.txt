@@ -19,6 +19,7 @@ articulo-18.md
 articulo-19.md
 articulo-20.md
 articulo-21.md
+articulo-21-bis.md
 articulo-22.md
 articulo-23.md
 articulo-24.md
@@ -33,5 +34,6 @@ articulo-32.md
 articulo-33.md
 articulo-34.md
 articulo-35.md
+articulo-36.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md

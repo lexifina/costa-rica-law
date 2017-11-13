@@ -1,1 +1,2 @@
-Artículo 25.—Las licencias referidas en el artículo 3 de la Ley podrán suspenderse por falta de pago. Independientemente de la aplicación del artículo 81 Bis del Código Municipal en las demás patentes del local.
+Artículo 25.-Suspensión de licencias. La licencia concedida para la comercialización de bebidas con contenido alcohólico podrá suspenderse por falta de pago de dos o más trimestres, sin perjuicio de los demás requerimientos y consecuencias de ley (imposición de multas, clausura del negocio). Se prevendrá del pago al licenciatario, otorgándosele un plazo de cinco días hábiles para su cumplimiento, vencido el cual, se gestionará el respectivo proceso de cobro judicial.
+(Así reformado en sesión N° 80 del 13 de noviembre de 2017)

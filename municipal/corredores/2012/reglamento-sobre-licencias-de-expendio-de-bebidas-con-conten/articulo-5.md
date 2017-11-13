@@ -1,1 +1,3 @@
-Artículo 5º—Para ejercer la comercialización al detalle de bebidas con contenido alcohólico en el cantón de Corredores, los interesados deberán contar con la licencia municipal respectiva, la cual la obtendrán mediante el cumplimiento de los requisitos establecidos en presente reglamento. A su vez la obtención de la licencia generara la obligación del titular de pagar a favor de la Municipalidad un impuesto trimestral por adelantado de conformidad con la ley vigente.
+Artículo 5º- Para ejercer la comercialización al detalle de bebidas con contenido alcohólico, deberá contarse con la licencia municipal respectiva, que se obtendrá previo cumplimiento de los requisitos establecidos en este reglamento.
+La licencia generará un tributo trimestral a favor de la Municipalidad, que deberá cancelarse por adelantado, de conformidad con la normativa vigente.
+(Así reformado en sesión N° 80 del 13 de noviembre de 2017)

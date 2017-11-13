@@ -1,4 +1,3 @@
-Artículo 7º—Condiciones en que se otorgan las licencias. Las licencias de expendio de bebidas con contenido alcohólico deberán exhibirse en lugar visible del establecimiento e indicar en forma expresa.
-a) Que el derecho que se otorga por medio de la licencia esta directamente ligado al establecimiento comercial para el cual fue expedido, y no constituye un activo independiente a dicho establecimiento.
-b) Que las licencias no son susceptibles de embargo, de apropiación mediante remate o adjudicación vía sucesión, traspaso, arrendamiento o cualquier otra forma de enajenación.
-c) Que en caso de que el establecimiento comercial que goza de la licencia sea traspasado, ya sea mediante compraventa de establecimiento mercantil o bien mediante el traspaso del mas del cincuenta por ciento del Capital Social en el caso de personas jurídicas, el adquiriente deberá notificar del cambio de titularidad a la Municipalidad de Corredores, dentro de los cinco días hábiles a partir de la compra y aportar la información correspondiente a efectos del otorgamiento de una nueva licencia a su nombre.
+Artículo 7º- Para su explotación, las licencias estarán supeditadas a un establecimiento comercial determinado, no pudiendo alterarse dicha situación, sin previo aval municipal.
+Las licencias no constituyen activo o bien patrimonial, resultando entonces de cualquier forma, inembargables, imprescriptibles e intransferibles.
+(Así reformado en sesión N° 80 del 13 de noviembre de 2017)
