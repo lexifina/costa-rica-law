@@ -1,4 +1,10 @@
-Transitorio II.—Cotizantes con edades entre 50 y 69 años. Aquellos cotizantes que al entrar en vigencia este Reglamento, cuenten con una edad entre 50 años y un mes y 69 años y once meses, cuando cumplan los requisitos para pensionarse de acuerdo a la tabla establecida en el artículo 20 del presente Reglamento, tendrán derecho al siguiente monto de pensión:
-a) Un monto de lo que resulte del producto de 60% multiplicado por la proporcionalidad de cotización.
-b) Al monto que resulte del inciso anterior, se le suma el monto que resulta de multiplicar: un 2% por la proporcionalidad de cotización, por el número de años o fracción postergado por la proporcionalidad de cotización.
-c) El monto total resultante según el inciso b) anterior, no puede ser mayor al 100% del salario consignado en el artículo 20 del presente Reglamento.
+Transitorio II.—Los vendedores activos a la entrada en vigencia del Reglamento y que contaban con una edad entre 60 y 70 años, podrán acceder al beneficio de pensión, una vez que cumplan los 70 años, indistintamente del número de cuotas con que cuenten, para lo cual no debe haber renunciado a su condición de vendedor desde la entrada en vigencia de dicho Reglamento, el 07 de enero del 2011, hasta la fecha. El monto de pensión será un porcentaje del salario de referencia, según el artículo 26 del presente Reglamento.
+Dicho porcentaje dependerá de la edad a que decida el cotizante retirarse, de acuerdo con la siguiente tabla:
+Edad de Retiro | Porcentaje de Pensión
+70 | la proporcionalidad de cotización X 60%
+71 | la proporcionalidad de cotización X 62%
+72 | la proporcionalidad de cotización X 64%
+73 | la proporcionalidad de cotización X 66%
+74 | la proporcionalidad de cotización X 68%
+75 o más | la proporcionalidad de cotización X 70%
+(Así reformado y publicado en La Gaceta N° 214 del 13 de noviembre del 2017)
