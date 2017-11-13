@@ -1,1 +1,0 @@
-Artículo 33.—Requisitos del personal de la Auditoría. La Auditoría Interna, definirá en sus manuales de cargos y clases la descripción las funciones y los requisitos correspondientes para cada uno de los cargos, tomando en cuenta los lineamientos y requerimientos que emita al respecto la Contraloría General de la República o cualquier otro ente u órgano con facultad para hacerlo.

@@ -1,1 +1,0 @@
-Artículo 63.—Potestad para modificaciones. El Reglamento, así como sus modificaciones, debe ser elaboradas por el Auditor General y aprobadas por el jerarca y la Contraloría General de la República, cada cual según sus competencias.

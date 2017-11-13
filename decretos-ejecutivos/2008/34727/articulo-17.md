@@ -1,1 +1,0 @@
-Artículo 17.—Jornada Laboral. La jornada laboral del Auditor General y del Sub-Auditor General será de tiempo completo, de acuerdo a lo establecido en el artículo 30 de la Ley General de Control Interno.
