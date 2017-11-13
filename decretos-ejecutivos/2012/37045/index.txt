@@ -60,6 +60,7 @@ articulo-57.md
 articulo-58.md
 articulo-59.md
 articulo-60.md
+articulo-60-bis.md
 articulo-61.md
 articulo-62.md
 articulo-63.md
@@ -76,3 +77,4 @@ articulo-1-anexo.md
 articulo-2-anexo.md
 articulo-3-anexo.md
 articulo-4-anexo.md
+articulo-5-anexo.md

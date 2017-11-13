@@ -19,3 +19,4 @@ Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trám
 | 4 | 2016-03-17 | Decreto Ejecutivo 39617 (2016-03-17) |
 | 5 | 2016-05-24 | Decreto Ejecutivo 39726 (2016-05-24) |
 | 6 | 2017-02-27 | Decreto Ejecutivo 40387 (2017-02-27) |
+| 7 | 2017-11-13 | Decreto Ejecutivo 40923 (2017-11-13) |
