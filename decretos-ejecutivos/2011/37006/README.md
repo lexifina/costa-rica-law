@@ -14,3 +14,4 @@ Reglamento Técnico: RTCR 440: 2010. Reglamento de Inscripción y Control de Med
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-09-23 | la propia norma |
+| 2 | 2017-11-13 | Decreto Ejecutivo 40787 (2017-11-13) |
