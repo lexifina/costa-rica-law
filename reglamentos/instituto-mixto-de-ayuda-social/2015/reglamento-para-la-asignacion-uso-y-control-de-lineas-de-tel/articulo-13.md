@@ -1,4 +1,0 @@
-Artículo 13.—Del reintegro de las sumas pagadas. Para los casos en que el funcionario(a) suministre la línea telefónica de su propiedad así como el aparato, en lo que se refiere al reintegro por el pago autorizado, regirá lo siguiente:
-1. Los funcionarios de oficinas centrales, deben presentar al Área de Servicios Generales, la solicitud de reintegro del monto correspondiente autorizado a su persona, para que dependiendo del monto realice el trámite de pago por medio de caja chica, u otro medio debidamente autorizado.
-2. Para el caso de los(as) funcionarios(as) que se encuentren destacados en las Áreas Regionales, llevarán a cabo dicho trámite por medio del Jefe(a) de la Unidad Coordinación Administrativa Regional, quien deberá informar al Área de Servicios Generales.
-Junto a la solicitud de reintegro, deberá acompañarse el comprobante de pago correspondiente, o bien documento idóneo que demuestre la cancelación del recibo que solicita se reintegre.

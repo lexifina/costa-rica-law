@@ -1,1 +1,0 @@
-Artículo 4º—Definición de procedimientos. La Subgerencia de Soporte Administrativo será la encargada de establecer los procedimientos a seguir para la contratación, uso y control del servicio celular propiedad del IMAS, así como, establecer los procedimientos de control y pago cuando el servicio celular sea propiedad del funcionario.
