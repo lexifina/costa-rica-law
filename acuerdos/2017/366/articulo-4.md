@@ -1,0 +1,1 @@
+4º—Las presentes disposiciones son de carácter técnico y quien las incumpla le serán aplicados los procedimientos y sanciones de conformidad con lo establecido en la Ley de Pesca y Acuicultura (Ley 8436) y su Reglamento (Decreto N° 36782-MINAET-MAGMOPT- TUR-SP-S-MTSS).
