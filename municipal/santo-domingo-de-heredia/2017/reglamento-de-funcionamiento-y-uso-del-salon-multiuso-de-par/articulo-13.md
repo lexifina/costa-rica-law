@@ -1,0 +1,1 @@
+Artículo 13.—Los accesos y salidas del salón multiuso de Paracito podrán ser cerrados cuando a criterio de los responsables de la actividad se considere necesario para efectos de revisión y protección de los usuarios y de los usuarios en general, cuidando que las salidas de emergencia no sean obstruidas.

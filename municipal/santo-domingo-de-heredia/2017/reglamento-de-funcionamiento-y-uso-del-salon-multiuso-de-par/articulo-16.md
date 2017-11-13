@@ -1,0 +1,1 @@
+Artículo 16.—El horario de funcionamiento del salón multiuso de Paracito será de 7:00 a.m. a 10:00 p.m. de lunes a domingo. El arrendatario no podrá excederse de su actividad después de las 11:00 p.m., si lo hiciere automáticamente perderá el depósito de garantía por incumplimiento del contrato.

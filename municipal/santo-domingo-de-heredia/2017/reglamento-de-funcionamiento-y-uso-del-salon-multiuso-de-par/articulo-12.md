@@ -1,0 +1,1 @@
+Artículo 12.—No se permitirá el acceso a quien se encuentre en estado de ebriedad y/o bajo la influencia de drogas. Las personas que no guarden la compostura debida o causen molestias a los usuarios; serán desalojados del salón multiuso de Paracito.

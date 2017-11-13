@@ -1,0 +1,1 @@
+Artículo 25.—Los responsables de uso del salón multiuso de Paracito, para cada actividad deberán anotar sus entradas y salidas, así como las incidencias que se registren en el salón multiuso de Paracito, en el libro de actas que se dispondrá con tal fin.

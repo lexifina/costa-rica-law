@@ -1,0 +1,1 @@
+Artículo 14.—Para el eficaz y eficiente funcionamiento del salón multiuso de Paracito se nombrará un Comité Administrador compuesto por cinco miembros: dos delegados nombrados por el Concejo de Distrito de Paracito, dos delegados nombrados por la Asociación de Desarrollo Integral de Paracito y un delegado nombrado por el Comité Comunal de Deportes y Recreación de Paracito.

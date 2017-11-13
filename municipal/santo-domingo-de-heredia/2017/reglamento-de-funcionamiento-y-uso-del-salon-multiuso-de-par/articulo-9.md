@@ -1,0 +1,1 @@
+Artículo 9º—Los usuarios deberán acatar de manera estricta los controles internos que se establezcan para la salvaguarda el salón multiuso de Paracito, áreas externas, equipos, mobiliario, bajo su responsabilidad.

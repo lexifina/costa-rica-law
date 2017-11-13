@@ -1,0 +1,1 @@
+Artículo 10.—Es responsabilidad de los usuarios vigilar que las instalaciones eléctricas, el equipo, el mobiliario, áreas externas del salón multiuso de Paracito, se utilice adecuadamente a fin de conservarlas en buen estado.

@@ -1,0 +1,1 @@
+Artículo 23.—El mobiliario y equipo que se disponga en el salón multiuso de Paracito, deberá guardar un estilo y diseño acorde con el existente y estará bajo a responsabilidad de la persona física o jurídica a quien se autorice su uso.

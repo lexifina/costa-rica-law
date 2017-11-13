@@ -1,0 +1,1 @@
+Artículo 8º—Los usuarios estarán obligados a procurar la conservación de las instalaciones, tanto en su área de uso como en la totalidad del salón multiuso de Paracito, reportando inmediatamente a la Municipalidad de Santo Domingo las irregularidades que observen en su funcionamiento.

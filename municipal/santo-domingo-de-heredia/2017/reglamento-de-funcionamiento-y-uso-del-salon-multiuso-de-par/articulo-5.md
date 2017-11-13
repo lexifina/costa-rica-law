@@ -1,0 +1,1 @@
+Artículo 5º—Las remodelaciones que se realicen al salón multiuso de Paracito, se efectuarán respetando la arquitectura del salón multiuso de Paracito, que en ellas se proporcionan y de acuerdo con la opinión que al respecto emita la el Departamento de Ingeniería de la Municipalidad de Santo Domingo y entes competentes.

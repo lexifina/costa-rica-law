@@ -1,0 +1,1 @@
+Artículo 7º—Cuando el área del salón multiuso de Paracito requiera mantenimiento o reparación de las instalaciones, se afectará con presupuesto y se realizarán previa solicitud de las mismas o de acuerdo a programas establecidos para la revisión de las instalaciones.

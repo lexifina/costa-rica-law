@@ -1,0 +1,1 @@
+Artículo 26.—Es obligación de los usuarios observar las medidas preventivas de higiene que se dicten, con el objeto de salvaguardar su seguridad, así como participar en los grupos de uso, capacitación, simulacros y cualquier actividad que para tal efecto se programe.

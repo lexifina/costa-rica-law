@@ -1,0 +1,1 @@
+Artículo 18.—Las áreas del salón multiuso de Paracito, deberán encontrarse siempre en óptimas condiciones, siendo responsabilidad del Comité Administrador, su limpieza y mantenimiento, incluyendo un programa de inspección y mantenimiento a extinguidores y equipo de seguridad.

@@ -1,0 +1,1 @@
+Artículo 3º—El presente Reglamento se aplicará a las personas físicas y jurídicas que se ubiquen en el salón multiuso de Paracito, así como los usuarios, que utilice las instalaciones en cualesquiera de sus formas. Los usuarios que no acaten el presente ordenamiento serán sancionados conforme a las disposiciones legales aplicables.
