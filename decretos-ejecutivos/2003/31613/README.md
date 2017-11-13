@@ -14,3 +14,4 @@ Reglamento de Uso de Vehículos del Tribunal Registral Administrativo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-30 | la propia norma |
+| 2 | 2017-11-13 | Decreto Ejecutivo 40817 (2017-11-13) |

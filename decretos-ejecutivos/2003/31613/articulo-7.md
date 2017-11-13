@@ -1,2 +1,2 @@
-Artículo 7º—Solicitud de cupones de combustible. Para la solicitud de cupones se realizará el procedimiento que establezca al respecto la Dirección Administrativa.
-No se otorgarán los cupones de combustible solicitados, hasta tanto se hayan liquidado las facturas pendientes.
+Artículo 7º—De la compra de combustible: Para la compra de combustible que permita el adecuado funcionamiento de los vehículos del Tribunal, se deberá seguir el procedimiento que será definido por parte de la Dirección Administrativa y aprobado por el órgano colegiado del Tribunal Registral Administrativo, con base en el sistema de compras de combustible que a nivel estatal haya sido aprobado.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40817 del 13 de noviembre del 2017)
