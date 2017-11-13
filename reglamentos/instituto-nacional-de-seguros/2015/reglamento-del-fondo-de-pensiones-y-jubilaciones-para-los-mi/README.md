@@ -15,3 +15,4 @@ Reglamento del Fondo de Pensiones y Jubilaciones para los Miembros del Beneméri
 | --- | --- | --- |
 | 1 | 2015-09-25 | la propia norma |
 | 2 | 2017-01-16 | Reglamento 9375 (2017-01-16) |
+| 3 | 2017-11-13 | Reglamento 0 (2017-11-13) |

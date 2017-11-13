@@ -1,1 +1,1 @@
-Artículo 57: Las modificaciones al presente Reglamento rigen a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 57: Las modificaciones al presente Reglamento rigen a partir de su publicación en el Diario Oficial La Gaceta. Referencia: Modificación del artículo 51 aprobado por Junta Directiva en Acuerdo 9427-IX del 13 de noviembre del 2017, comunicado en oficio JD-00759-2017 del 15 de noviembre del 2017 (G-04301-2017 del 15/11/2017).
