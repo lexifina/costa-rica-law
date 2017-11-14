@@ -1,0 +1,2 @@
+Artículo 7°. Para el logro de los objetivos y funciones de la CIGECIB, las organizaciones e instituciones públicas o privadas, nacionales o internacionales, dentro del marco legal respectivo, podrán contribuir con cualquier tipo de recurso económico, logístico o técnico.
+Además cada organización e institución pública o privada, representada en esta Comisión, asumirá el pago de viáticos y transporte de sus representantes.

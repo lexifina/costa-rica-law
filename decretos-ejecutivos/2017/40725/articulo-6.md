@@ -1,0 +1,1 @@
+Artículo 6°. La información sobre los usos de la biodiversidad es de interés público. Se respetarán los derechos de propiedad intelectual que se encuentren vigentes. En todo momento se reconocerán los aportes que realicen las personas físicas o jurídicas, públicas o privadas, a la plataforma que permite el acceso y divulgación del conocimiento y la información.
