@@ -15,3 +15,4 @@ Reglamento para el Otorgamiento de Permisos de Construcción del Cantón de Grec
 | --- | --- | --- |
 | 1 | 2004-08-31 | la propia norma |
 | 2 | 2017-03-06 | Reglamento municipal 0 (2017-03-06) |
+| 3 | 2017-11-14 | Reglamento municipal 0 (2017-11-14) |
