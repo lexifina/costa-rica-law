@@ -1,0 +1,1 @@
+8º—La aplicación de la presente resolución rige a partir de su publicación en el Diario Oficial La Gaceta y para los efectos de su aplicación en el año en curso, la entrega la información solicitada en el punto 4 de la presente resolución, se hará en el mes de enero del año 2018, y así sucesivamente en adelante.

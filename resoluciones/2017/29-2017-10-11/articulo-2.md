@@ -1,0 +1,1 @@
+2º—Los transportistas aduaneros mantendrán el nivel de responsabilidad determinado en la legislación aduanera por los eventuales incumplimientos o inconsistencias legales y administrativas que se deriven o generen de la transmisión de información referente al manifiesto de carga y a la declaración de tránsito internacional.

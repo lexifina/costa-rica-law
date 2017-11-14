@@ -1,0 +1,1 @@
+3º—Los transportistas aduaneros, mantienen la obligación legal de transmitir la información correspondiente al manifiesto de carga y a la declaración única de tránsito, cuando la autoridad aduanera así lo requiera, conforme con los procedimientos aduaneros vigentes y por los medios que se han establecido.

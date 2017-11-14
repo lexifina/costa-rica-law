@@ -1,0 +1,1 @@
+9º—Todos aquellos Representantes de Transportistas que a la fecha se encuentran autorizados, que no cumplan en el tiempo establecido con lo solicitado en el punto 8 anterior, serán inactivados de oficio, por la Autoridad Aduanera.
