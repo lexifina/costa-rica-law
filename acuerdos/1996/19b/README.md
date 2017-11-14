@@ -13,3 +13,4 @@ SUGEF: Exime de su Fiscalización a las Asociaciones Solidaristas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-10-22 | la propia norma |
+| 2 | 2017-11-14 | Reglamento 1375 (2017-11-14) |
