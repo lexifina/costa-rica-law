@@ -1,0 +1,1 @@
+Artículo 43º. Si a criterio de la Presidencia, un asunto amerita amplia discusión, lo señalara previo a ser conocido por el Concejo; en estos casos cada miembro del Concejo municipal podrá hacer uso de la palabra hasta por cinco minutos.

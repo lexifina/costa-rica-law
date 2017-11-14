@@ -1,0 +1,1 @@
+Artículo 53º. Todo asunto tratado en el concejo que amerite un acuerdo deberá ser sometido a votación. Para que un acuerdo quede como definitivamente aprobado debe de contemplarse una votación de mayoría calificada.

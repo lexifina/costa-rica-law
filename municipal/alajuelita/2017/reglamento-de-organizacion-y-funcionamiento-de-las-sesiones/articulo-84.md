@@ -1,0 +1,1 @@
+Artículo 84º. Para el trámite de correspondencia al Concejo municipal, la misiva debe presentarse en la Plataforma de Servicio de la Municipalidad con una antelación mínima de un día hábil previo a la siguiente sesión. Es potestad de la Presidencia aplicar los artículos 32 y 33 del presente reglamento.

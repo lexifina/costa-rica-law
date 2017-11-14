@@ -1,0 +1,1 @@
+Artículo 48º. Durante una sesión ordinaria o extraordinaria, durante la discusión de un asunto; se podrá permitir una única intervención a personas que no pertenezcan al Gobierno Local; previo a un acuerdo tomado por mayoría calificada. El tiempo de exposición será hasta por tres minutos en su primera intervención y si fuera necesario un minuto para replica.

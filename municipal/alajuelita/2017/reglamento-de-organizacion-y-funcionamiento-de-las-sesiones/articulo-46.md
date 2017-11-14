@@ -1,0 +1,1 @@
+Artículo 46º. Las manifestaciones propias de los miembros del Concejo hechas en la sesión, no será necesario que consten en el acta, salvo que estos así lo deseen, haciéndolo saber con anticipación a la Secretaría Municipal. Si la previsión anterior no se hace, la Secretaría Municipal no deberá consignarlas en el acta respectiva, sin que sea posible posteriormente.

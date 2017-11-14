@@ -1,0 +1,1 @@
+Artículo 36º. Si un regidor propietario se retira temporalmente, una vez trascurrido los quince minutos, la presidencia solicitara al suplente respectivo para que continúe como propietario; lo anterior no implica que el suplente pueda devengar la dieta del propietario.

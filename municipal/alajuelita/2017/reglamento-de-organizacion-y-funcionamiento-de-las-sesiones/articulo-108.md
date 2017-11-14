@@ -1,0 +1,1 @@
+Artículo 108º. Es competencia del Concejo retrotraer asuntos que estén en conocimiento de alguna Comisión y direccionar su discusión o rechazo u aprobación mediante la dispensa del trámite de comisión. Para este procedimiento se requiere una votación de mayoría calificada.

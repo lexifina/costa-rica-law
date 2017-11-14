@@ -1,0 +1,1 @@
+Artículo 109º. Las Comisiones tomarán sus acuerdos por simple mayoría de los presentes, consignándose dicha votación en los dictámenes del Concejo. El o los miembros que estén en contra del acuerdo específico de la Comisión, podrán rendir un dictamen de minoría, siempre y cuando hayan estado presentes en la sesión de Comisión.

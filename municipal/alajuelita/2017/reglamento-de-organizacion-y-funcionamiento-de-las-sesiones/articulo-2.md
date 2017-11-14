@@ -1,0 +1,1 @@
+Artículo 2º. Será de acatamiento obligatorio, para todos los miembros del Gobierno Municipal, funcionarios municipales y vecinos del cantón que presencien o formen parte de una sesión del Concejo o de una Comisión.

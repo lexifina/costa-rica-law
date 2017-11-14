@@ -1,0 +1,1 @@
+Artículo 9º. En concordancia con la Constitución Política de la República un miembro de una Fracción Municipal puede renunciar a esta y se podrá declarar “independiente”, o incorporarse a otra Fracción, pero no se reconocerá ante el Concejo municipal como representante de la Fracción a la que se incorporare.

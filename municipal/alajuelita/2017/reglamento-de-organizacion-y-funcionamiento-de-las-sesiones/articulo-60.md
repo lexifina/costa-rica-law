@@ -1,0 +1,1 @@
+Artículo 60º. En casos especiales de urgencia, emergencia, necesidad o a solicitud del algún regidor propietario, el Concejo por mayoría calificada, podrá declarar sus acuerdos como definitivamente aprobados. Si el acta no se ha presentado para su aprobación, se podrá pedir firmeza de un acuerdo, mediante moción de orden, pero debe aprobarse mediante mayoría calificada.

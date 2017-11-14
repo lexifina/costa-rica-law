@@ -1,0 +1,1 @@
+Artículo 80º. En cada audiencia, se otorgará el uso de la palabra, si es para una PERSONA FÍSICA por un máximo de diez minutos, en el caso de una representación de PERSONA JURÍDICA por un máximo de quince minutos. Plazos que se pueden ampliar mediante moción de orden, aprobada por mayoría simple del Concejo municipal.

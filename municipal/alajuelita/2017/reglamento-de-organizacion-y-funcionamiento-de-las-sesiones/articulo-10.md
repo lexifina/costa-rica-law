@@ -1,0 +1,1 @@
+Artículo 10º. En el caso de renuncia de algún miembro de una Fracción Municipal, este deberá notificarlo por escrito a la Presidencia del Concejo, la cual incluirá dicha renuncia en el punto de correspondencia en sesión ordinaria.

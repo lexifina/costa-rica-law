@@ -1,0 +1,1 @@
+Artículo 6º. En la segunda sesión ordinaria posterior a la toma de posesión del Concejo municipal, cada Fracción Municipal, deberá presentar por escrito el nombre de la Jefatura y Sub jefatura de dicha Fracción. Si se tratase de una Fracción de representación unipersonal, se omitirá dicho procedimiento y se dará por hecho que el representante ostentara la jefatura.

@@ -1,0 +1,1 @@
+Artículo 94º. Las Comisiones permanentes se integrarán con un mínimo de tres regidores propietarios, ya que únicamente los regidores propietarios podrán conformarlas. Los regidores suplentes podrán participar únicamente en calidad de asesores, con derecho a voz, pero sin voto.

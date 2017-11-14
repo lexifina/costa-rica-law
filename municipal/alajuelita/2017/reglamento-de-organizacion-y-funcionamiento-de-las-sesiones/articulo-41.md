@@ -1,0 +1,1 @@
+Artículo 41º. Los síndicos tienen derecho de hacer uso de la palabra para referirse, por una única vez hasta por tres minutos, cuando sean asuntos referentes al distrito que representan o si a criterio de la Presidencia, se tratase de un asunto de interés cantonal.

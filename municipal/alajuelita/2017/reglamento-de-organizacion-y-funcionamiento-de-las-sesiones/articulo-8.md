@@ -1,0 +1,1 @@
+Artículo 8º. Cada Fracción Municipal establecerá, a lo interno, el periodo de nombramiento de la Jefatura y Sub jefatura, pudiendo realizar cambios durante ese periodo; lo cual debe comunicar formalmente ante el Concejo municipal.

@@ -1,0 +1,1 @@
+Artículo 7º. En caso de que una Fracción Municipal no realice la elección, no tendrá derecho a la aplicación de los artículos en los que se mencionan derechos y responsabilidades de las Jefaturas de Fracción.

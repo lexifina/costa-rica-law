@@ -1,0 +1,1 @@
+Artículo 114º. Las comisiones de trabajo del Concejo municipal son nombradas por periodos anuales, no obstante, en caso de que un miembro se ausente sin justificación de las sesiones de comisión durante tres sesiones consecutivas podrá ser sustituido por la presidencia del concejo.

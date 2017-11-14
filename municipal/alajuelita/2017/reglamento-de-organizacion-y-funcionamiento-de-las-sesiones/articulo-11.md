@@ -1,0 +1,1 @@
+Artículo 11º. Las Fracciones Municipales establecerán el o los días que sesionarán, para conocimiento, debate y resolución de asuntos de interés municipal. Dichas sesiones podrán ser privadas o públicas, según los intereses de cada Fracción.

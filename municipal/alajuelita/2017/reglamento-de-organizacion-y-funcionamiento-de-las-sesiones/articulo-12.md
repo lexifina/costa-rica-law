@@ -1,0 +1,1 @@
+Artículo 12º. Las reuniones de las Jefaturas de Fracción con la Presidencia Municipal, se celebrarán previa solicitud de alguna de las partes. Dichas reuniones podrán ser privadas; con la presencia de todos los miembros de la Fracción o incluso de carácter público.

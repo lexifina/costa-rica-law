@@ -1,0 +1,1 @@
+Artículo 47º. Es competencia de la Presidencia Municipal el ejercer el control del uso de la palabra con los medios que considere pertinentes. Pudiendo retirarla la misma al orador que haga uso de ella sin permiso, se desviara del tema, repita conceptos o se exceda en sus expresiones.

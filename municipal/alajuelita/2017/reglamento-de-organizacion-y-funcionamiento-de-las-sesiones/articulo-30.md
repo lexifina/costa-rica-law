@@ -1,0 +1,1 @@
+Artículo 30º. El orden del día podrá modificarse o alterarse luego de ser conocido por los miembros del concejo, mediante acuerdo tomado por mayoría calificada; salvo el caso de las sesiones extraordinarias que deberá ser por unanimidad de quienes tienen derecho a voto.

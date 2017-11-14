@@ -1,0 +1,1 @@
+Artículo 33º. Se faculta a la Presidencia para que dé previo analice la documentación enviada al Concejo municipal y proceda a dirigirla a las comisiones que son atinentes al tema, o al alcalde cuando se trate de asuntos de orden administrativo.

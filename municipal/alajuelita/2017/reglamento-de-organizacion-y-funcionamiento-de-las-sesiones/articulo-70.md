@@ -1,0 +1,1 @@
+Artículo 70º. Queda excluido del artículo anterior los dictámenes de comisión, que por urgencia fueran emitidos previo a la sesión; quedando a criterio de la presidencia recibirlos antes de iniciar la lectura de este punto en el orden del día.

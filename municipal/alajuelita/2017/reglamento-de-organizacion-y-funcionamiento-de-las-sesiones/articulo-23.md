@@ -1,0 +1,1 @@
+Artículo 23º. La presidencia podrá dar por terminada o suspender la sesión en casos que se altere el orden público o que se esté ante inminente peligro de los miembros o asistentes a la sesión municipal. Pudiendo solicitar a las autoridades respectivas la aplicación del artículo 308 del Código Penal.

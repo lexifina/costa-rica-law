@@ -1,0 +1,1 @@
+Artículo 37º. Cuando el regidor propietario tuviere que salir momentáneamente excusado de conocer algún asunto en que se considere interesado directo, o bien, que haya sido recusado; el regidor propietario no pierde la dieta y además, una vez cesada la circunstancia, podrá entrar nuevamente y sustituir al suplente.

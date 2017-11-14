@@ -1,0 +1,3 @@
+CAPITULO VI
+Sobre el Quórum
+Artículo 25º. Para iniciar sus sesiones el pleno del Concejo municipal deberá contar con el quórum de ley. Si al momento en que la Presidencia Municipal disponga iniciar la sesión no se contare con quórum, se procederá a sustituir a los ausentes, con el procedimiento que se establece en el Código Municipal. En caso de que aun así no se lograra conformar el quórum, la Presidencia Municipal, una vez transcurridos los quince minutos de gracia, ordenará cerrar las puertas de la sala de sesiones e instruirá a la Secretaría Municipal que levante una nómina de los presentes, para acreditar el pago de dietas. Los miembros del concejo que no se encuentren dentro del recinto se tendrán como ausentes para efectos del pago de dieta.

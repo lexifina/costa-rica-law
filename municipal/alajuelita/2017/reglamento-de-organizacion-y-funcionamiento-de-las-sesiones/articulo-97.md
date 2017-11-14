@@ -1,0 +1,1 @@
+Artículo 97º. Cualquier miembro del Gobierno Municipal, podrá asistir a las sesiones de comisión en calidad de oyente. Sera decisión de la presidencia de la comisión otorgar el uso de la palabra a quienes estén en calidad de oyentes, pero en ninguna circunstancia podrá permitírseles emitir voto.

@@ -1,0 +1,1 @@
+Artículo 56º. Los regidores deberán dar su voto necesariamente en sentido afirmativo o negativo. El regidor que razone su voto lo podrá hacer de forma escrita o verbal y deberá circunscribirse al tema objeto de la votación, utilizando el tiempo establecido en el artículo 38 de presente reglamento.

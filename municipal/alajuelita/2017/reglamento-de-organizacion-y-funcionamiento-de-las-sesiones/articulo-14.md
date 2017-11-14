@@ -1,0 +1,1 @@
+Artículo 14º. Todas las sesiones del Concejo municipal son públicas y se llevarán a cabo la fecha y hora acordada por el Concejo Municipal de Alajuelita de conformidad con lo establecido por el Código Municipal.

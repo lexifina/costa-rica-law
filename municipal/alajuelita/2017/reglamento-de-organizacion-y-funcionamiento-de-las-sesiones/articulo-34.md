@@ -1,0 +1,1 @@
+Artículo 34º. A todos los miembros del Concejo municipal se les serán trasferidas la agenda del día, el acta anterior y toda demás documentación pertinente para conocimiento en cada sesión municipal. Para lo cual cada miembro del concejo suministrará un correo electrónico, al cual Secretaría Municipal enviará dicha información mínimo una hora antes del inicio de cada sesión.

@@ -1,0 +1,1 @@
+Artículo 123º. Para el control correspondiente al pago de la dieta, todo regidor y síndico debe obligatoriamente registrar su ingreso a la sesión, por el medio dispuesto para tal fin por la administración municipal. Dicho registro debe realizarse dentro de los primeros quince minutos después de la hora en que se convocó a la sesión.

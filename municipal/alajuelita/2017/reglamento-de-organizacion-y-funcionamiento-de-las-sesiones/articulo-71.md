@@ -1,0 +1,1 @@
+Artículo 71º. Las mociones e iniciativas se presentarán por escrito y deberán contar con al menos: Fecha, justificación, acuerdo propuesto, nombre y firma del proponente y nombre y firma de quien secunda o lo acoge en caso necesario.

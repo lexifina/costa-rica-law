@@ -1,0 +1,4 @@
+CAPITULO X
+Dictámenes de Comisión, Mociones e Iniciativas
+Artículo 69º. Para que un dictamen de comisión, una moción y/o iniciativa de los miembros del concejo o de la Alcaldía sea conocida en una determinada sesión, debe ser presentada a la Secretaria Municipal, por su proponente a más tardar a la hora de cierre oficial de la Secretaría Municipal, sea las dieciséis horas con cero minutos. Se consignará la hora y fecha de presentación en cada documento y serán incluidos en la orden del día, siguiendo el orden cronológico en que fueron presentados.
+El orden de presentación será el mismo que se seguirá para conocerlas en el Concejo, salvo que por razones de extrema urgencia se deba variar dicho orden, quedando a criterio día Presidencia. Las mociones que registren una hora de recibo, posterior a la permitida para su entrega, se reservarán, sin excepción, para ser conocidas en el capítulo correspondiente en la sesión ordinaria inmediata posterior.

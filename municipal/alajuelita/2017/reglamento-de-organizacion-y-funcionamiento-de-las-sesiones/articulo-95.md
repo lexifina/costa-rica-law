@@ -1,0 +1,1 @@
+Artículo 95º. Las comisiones especiales se integraran al menos de tres miembros, dos de los cuales deberán ser regidores propietarios o suplentes, pudiendo integrar éstas los síndicos propietarios y suplentes.

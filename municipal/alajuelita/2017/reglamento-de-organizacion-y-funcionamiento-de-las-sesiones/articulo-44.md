@@ -1,0 +1,1 @@
+Artículo 44º. Cualquier miembro del Concejo en uso de la palabra, podrá si lo tiene a bien, permitir una única interrupción para efectos de aclaración o adición del tema que trata. El tiempo que dure la interrupción se considerará como suyo, sin que la interrupción sea superior a un minuto.

@@ -1,0 +1,1 @@
+Artículo 62º. El Concejo municipal podrá tomar sus acuerdos contrario a lo recomendado en los dictámenes de comisión, sean estos de mayoría o de minoría, no obstante la posición contraria que asuma el Concejo debe ser de previo debidamente justificada.

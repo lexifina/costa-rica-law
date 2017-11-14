@@ -1,0 +1,1 @@
+Artículo 58º. Para la votación de las mociones de orden, estas se tendrán por dispensadas del trámite de análisis y dictamen de comisión; se requiere del voto de la mitad más uno de los regidores presentes. Por sus características, las mociones de orden no requieren ser sometida a la votación de firmeza.

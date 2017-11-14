@@ -1,0 +1,1 @@
+Artículo 24º. Cuando la Presidencia Municipal, estando en debate un asunto, levante la sesión, este deberá ser incluido en el primer lugar del capítulo correspondiente de la siguiente sesión. Al iniciar la discusión pospuesta, la Presidencia Municipal concederá el uso de la palabra según el orden que había quedado al momento en que se suspendió la discusión.

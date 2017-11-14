@@ -1,0 +1,1 @@
+Artículo 66º. VOTACIÓN ORDINARIA: Para aprobar una moción de orden los regidores expresarán su voluntad levantando su mano de ser afirmativo su voto, de votar negativamente no alzará la mano simplemente.

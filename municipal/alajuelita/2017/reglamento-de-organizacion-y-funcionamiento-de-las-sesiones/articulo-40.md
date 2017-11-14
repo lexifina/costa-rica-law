@@ -1,0 +1,1 @@
+Artículo 40º. Cada orador administrará su tiempo como considere pertinente, podrá reservar parte de su tiempo para hacer uso de la palabra luego. El derecho al tiempo de las intervenciones únicamente es transferible entre los regidores propietarios, pudiendo ser total o parcial. En los demás casos el tiempo establecido caduca con el uso de la palabra por parte del orador.

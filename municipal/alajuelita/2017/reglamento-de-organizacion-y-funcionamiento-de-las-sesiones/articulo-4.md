@@ -1,0 +1,1 @@
+Artículo 4º. El Concejo tendrá una Presidencia y una Vicepresidencia; los cuales cumplirán las funciones que establece el artículo 34 del Código Municipal, este reglamento, y aquellas que determine el Concejo.

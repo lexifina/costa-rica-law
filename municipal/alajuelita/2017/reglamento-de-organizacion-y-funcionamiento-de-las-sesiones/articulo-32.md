@@ -1,0 +1,1 @@
+Artículo 32º. La Presidencia del Concejo, a discreción y bajo su entera responsabilidad categorizará todos los asuntos que considere como urgentes y que deben ser conocidos en la respectiva sesión; ordenando a la secretaría incluirlos en el orden del día previa calificación. No podrá someter en este punto asuntos que deben ser conocidos por vía ordinaria.
