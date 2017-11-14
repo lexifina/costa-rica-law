@@ -1,0 +1,3 @@
+ARTÍCULO DECIMO SEXTO: Apoyo de la Fiscalía y Dirección Ejecutiva.
+El Tribunal de Honor o el miembro instructor del procedimiento disciplinario, cuando lo estime pertinente solicitará a la Fiscalía del Colegio que se adicione y aclare sus informes, o bien participe en los actos procedimentales que estime pertinente para averiguar la Verdad Real de los hechos. Igualmente podrá requerir la opinión de los órganos del colegio que estime pertinentes recabar para la atención de los asuntos que están a su cargo.
+Podrá además solicitar colaboración de la Dirección Ejecutiva para asuntos de apoyo logístico o administrativo.

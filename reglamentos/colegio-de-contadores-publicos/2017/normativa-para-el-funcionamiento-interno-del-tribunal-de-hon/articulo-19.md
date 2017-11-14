@@ -1,0 +1,2 @@
+ARTÍCULO DECIMO NOVENO: Normas Supletorias.
+En lo no regulado expresamente en este NORMATIVA, regirá la Ley General de la Administración Pública, el Código Procesal Civil, el Código de Procesal Contencioso Administrativo y demás normativa concordante, además de las resoluciones judiciales sobre el Debido Proceso y Derecho de Defensa. Sin excluir el NORMATIVA de Manejo de Procedimientos Disciplinarios e Imposición de Sanciones Disciplinarias Del Colegio De Contadores Públicos De Costa Rica que esté en vigencia, NORMATIVA de Comisiones Permanentes de Trabajo.

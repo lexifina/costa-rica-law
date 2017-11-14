@@ -1,0 +1,2 @@
+ARTÍCULO DECIMO PRIMERO: Confidencialidad.
+Los funcionarios que colaboren con el Tribunal de Honor asistirán a las sesiones de trabajo y audiencias orales y privadas, bajo confidencialidad y secreto profesional, no podrán por ningún motivo transmitir o publicitar información conocida o relacionada con los casos de ética que se tramitan, todo de conformidad con la normativa interna y el Bloque de Legalidad.

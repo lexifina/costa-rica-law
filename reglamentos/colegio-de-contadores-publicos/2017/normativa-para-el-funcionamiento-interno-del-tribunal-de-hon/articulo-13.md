@@ -1,0 +1,4 @@
+ARTÍCULO DECIMO TERCERO: Apoyo Secretarial.
+El manejo de los expedientes estará a cargo de la Secretaría del Tribunal, quien se encargará de conformar el expediente administrativo disciplinario, iniciando con la denuncia o investigación preliminar remitida por la Fiscalía y todos sus anexos, debidamente foliados y con índice.
+Se incluirá además el acuerdo de Junta Directiva que dispuso trasladar el caso a conocimiento y resolución de Tribunal de Honor, y todo acto procesal que se dicte para la instrucción del debido proceso.
+El expediente deberá ser llevado en forma cronológica y foliado e identificado en su carátula con el nombre del o los agremiados investigados y otras partes, número de carné, dirección para notificaciones, el número de acuerdo y sesión de Junta Directiva en que se dispuso el traslado al Tribunal de Honor, el mes y el año en que se abrió el expediente y demás datos de interés.

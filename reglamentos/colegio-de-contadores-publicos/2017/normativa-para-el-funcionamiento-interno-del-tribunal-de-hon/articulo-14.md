@@ -1,0 +1,3 @@
+ARTÍCULO DECIMO CUARTO: Acceso y Fotocopias de Expedientes.
+El acceso y fotocopias del expediente de ética, será dado por la Secretaría del Tribunal únicamente a las partes en el expediente. El horario de fotocopiado será el que defina el colegio en sus jornadas administrativas.
+Cuando se soliciten copias por personas ajenas al expediente, el Presidente del Tribunal de Honor deberá resolver en forma previa la petición, para lo cual se le informará de inmediato de la petición, misma que deberá ser resuelta y comunicado al interesado, en un plazo no mayor a diez días. Se deberá garantizar el derecho a la confidencialidad de las partes.

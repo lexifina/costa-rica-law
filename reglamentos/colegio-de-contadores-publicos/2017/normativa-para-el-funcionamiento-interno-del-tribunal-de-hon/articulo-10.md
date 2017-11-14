@@ -1,0 +1,2 @@
+ARTÍCULO DECIMO: Apoyo Legal.
+El Tribunal de Honor contará con el apoyo de la Asesoría Legal Interna del Colegio, sin perjuicio de utilizar servicio externos legales y de peritos, previa autorización de la Junta Directiva, para aquellos casos en que la Asesoría Legal Interna se vea inhibida legalmente de atender un asunto o se requiera la opinión profesional de otros peritos. Igualmente contará con la asistencia de una secretaria, para efectos de digitación de informes, cartas, convocatorias, notificaciones, entre otros tipos de apoyo logístico que se requiera.
