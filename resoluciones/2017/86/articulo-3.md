@@ -1,0 +1,2 @@
+Artículo 3º—Plazos para resolver. Una vez recibida la solicitud, en físico o mediante correo electrónico notiexonera@ hacienda.go.cr, la Administración contará con el plazo de 10 días hábiles establecido por Ley, para resolver la solicitud planteada.
+Dicho plazo podrá ser suspendido por falta o defecto de algún requisito, en cuyo caso deberá constar esa situación en la respuesta que se brinde al solicitante.
