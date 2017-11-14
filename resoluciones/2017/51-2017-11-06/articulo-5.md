@@ -1,0 +1,1 @@
+Artículo 5º—Todas las personas jurídicas que incumplieron la obligación de presentar el formulario de Declaración de Modificación de Datos de Inscripción durante el mes de octubre de 2017, de acuerdo con lo indicado en el inciso a) del Transitorio I del Decreto Ejecutivo N° 40417, serán sancionadas de conformidad con lo dispuesto en el artículo 78 del Código Tributario.

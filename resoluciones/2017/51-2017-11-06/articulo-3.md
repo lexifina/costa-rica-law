@@ -1,0 +1,1 @@
+Artículo 3º—La Administración Tributaria no recibirá solicitudes de actualización de datos de personas jurídicas desde la fecha de vigencia de la presente resolución hasta el día 31 de enero del 2018. Asimismo las solicitudes que se presenten en un mes anterior al designado conforme el artículo 1º de esta resolución, no serán tramitadas sino en el mes que corresponda.
