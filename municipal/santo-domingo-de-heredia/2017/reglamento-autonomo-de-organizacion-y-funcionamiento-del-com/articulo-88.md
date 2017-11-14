@@ -1,0 +1,2 @@
+Artículo 88°— Registro de Dineros
+Todo alquiler de instalaciones o captación de dinero por parte del Comité o Subcomité, debe ser respaldado con la expedición de recibo de dinero, cuyos formularios serán proporcionados por el Comité Cantonal. El dinero debe ser depositado de manera íntegra en la cuenta que al efecto mantiene el Comité Comunal. Las erogaciones serán efectuadas por el Comité Cantonal.

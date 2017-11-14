@@ -1,0 +1,2 @@
+Artículo 87°— Costos de Operación
+Para cubrir los costos de operación, mantenimiento ordinario y mejoras de las instalaciones deportivas, así como para las actividades de recreación, los Comités Comunales deben generar recursos por medio de la administración de las instalaciones y organización de actividades para recaudar fondos, pudiendo solicitar para ello la colaboración de la empresa privada y de las instituciones públicas. Esas actividades deberán ser sometidas previamente a la aprobación del Comité Cantonal.

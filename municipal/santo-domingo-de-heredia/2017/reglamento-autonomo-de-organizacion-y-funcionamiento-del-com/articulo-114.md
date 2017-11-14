@@ -1,0 +1,2 @@
+Artículo 114°— Usuarios
+En el uso de las instalaciones deportivas existentes en terrenos de la Municipalidad, los Comités Comunales y Subcomités Comunales, podrán ser utilizadas por todo público, en especial los residentes del Cantón. Sobre éstos últimos, tendrán prioridad en el uso de las instalaciones y equipos deberán dar participación a todos los equipos y/o grupos deportivos organizados de la comunidad, debidamente registrados y que teniendo preferencia en tal uso, los equipos o grupos que representen a la comunidad o al cantón en campeonatos oficiales.

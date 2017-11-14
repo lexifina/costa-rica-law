@@ -1,0 +1,2 @@
+Artículo 28°— Prohibición de Contratar
+Los miembros de la Junta Directiva no podrán celebrar contratos ni convenios con el Comité y le es absolutamente prohibido intervenir en la discusión y votación de los asuntos en que tengan interés personal directo o indirecto, al igual que cuando el mismo sea de interés de su cónyuge o parientes por consanguinidad o afinidad hasta el cuarto grado. El incumplimiento de lo aquí dispuesto será causal de remoción inmediata.

@@ -1,0 +1,2 @@
+Artículo 51°— Recurso de Revisión
+El directivo que plantee revisión, deberá hacerlo por escrito antes de la aprobación del acta respectiva y en esa misma sesión deberá ser conocida por la Junta Directiva. Si la revisión fuese acogida, el asunto revisado volverá al estado en que se encontraba al momento de votarse. La misma mayoría requerida para votar el acuerdo, será necesaria para acordar su revisión.

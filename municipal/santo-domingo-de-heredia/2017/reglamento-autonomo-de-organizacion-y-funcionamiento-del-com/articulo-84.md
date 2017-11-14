@@ -1,0 +1,2 @@
+Artículo84°— Comisiones Específicas y Especiales
+Los Comités Comunales deberán organizar las Comisiones Específicas y las Comisiones Especiales de cada disciplina deportiva o programas recreativos según las necesidades de cada distrito. Las Comisiones Específicas deberán ser integradas en el plazo improrrogable de quince días naturales, contados a partir de la fecha en que inicien sus funciones. Las Comisiones especiales se integrarán cuando sea considerado necesario. En unas y otras deberá estar presente al menos un miembro de la Junta Administradora del Comité Comunal.

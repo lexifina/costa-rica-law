@@ -1,0 +1,3 @@
+Artículo 47°— Comunicación de la Causal
+Cuando algún miembro del Comité Cantonal incurra en cualesquiera de las causales indicadas en el artículo anterior, la secretaria de la Junta Directiva del Comité deberá comunicarlo por escrito al Concejo Municipal, indicando la o las causales para aplicar la sanción, en el plazo improrrogable de tres días hábiles contados a partir la constitución de la causal.
+El Concejo deberá conocer esa comunicación en la sesión ordinaria o extraordinaria inmediatamente siguiente a la fecha en que la recibe y en esa misma sesión procederá a disponer el procedimiento de remoción establecido en el artículo 24° del presente reglamento.

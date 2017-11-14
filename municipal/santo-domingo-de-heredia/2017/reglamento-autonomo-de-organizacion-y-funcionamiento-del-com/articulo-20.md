@@ -1,0 +1,2 @@
+Artículo 20°— Designación de Cargos Junta Directiva
+Una vez que el Comité Cantonal haya sido nombrado y juramentado por el Concejo, en su primera reunión deberá designar la integración de la Junta Directiva, la cual estará constituida, por el período de un año, por cinco miembros, quienes ocuparán los siguientes cargos: un presidente, un vicepresidente, un secretario, un tesorero y un vocal. El Comité deberá comunicar por escrito dicha integración al Concejo en el plazo de cinco días hábiles a partir de su nombramiento.

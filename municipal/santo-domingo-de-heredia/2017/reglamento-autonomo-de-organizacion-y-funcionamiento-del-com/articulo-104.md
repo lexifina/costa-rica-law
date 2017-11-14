@@ -1,0 +1,2 @@
+Artículo 104°— Aprobación del Presupuesto
+El Comité Cantonal deberá presentar para la aprobación del Concejo, tanto el presupuesto ordinario como sus modificaciones, lo cual deberá sujetarse a las disposiciones que en tal sentido dicte la Contraloría General de la República y acorde con los programas incluidos en el plan de trabajo anual o en sus modificaciones, previamente autorizadas por el Concejo.

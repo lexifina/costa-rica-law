@@ -1,0 +1,2 @@
+Artículo 96°— Personal
+El personal permanente del Comité Cantonal será, como mínimo: Un administrador, que será el superior jerárquico, una secretaria o un secretario, un promotor deportivo, personal de limpieza y personal de mantenimiento de las instalaciones deportiva. Este personal será contratado por la Junta Directiva y se regirá por lo establecido en el contrato individual de trabajo suscrito entre las partes y la normativa vigente en materia de derecho municipal y laboral.

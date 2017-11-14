@@ -1,0 +1,2 @@
+Artículo 44°— Mociones de orden. Uso de la Palabra
+Presentada una moción de orden, el Presidente postergará el uso de la palabra a quienes previamente la haya solicitado y dará la palabra al proponente de dicha moción, seguido de un miembro que lo apoye y un máximo de dos que lo adversen. Ninguno podrá exceder de cinco minutos en sus intervenciones, lapso en el que no podrán ser interrumpidos excepto que quien esté en uso de la palabra expresamente lo permita.

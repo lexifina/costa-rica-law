@@ -1,0 +1,2 @@
+Artículo 65°— Plan de Trabajo e Informe Mensual
+Cada Comisión deberá elaborar un plan de trabajo anual acompañado de un cronograma de acciones, que someterán a aprobación del Comité, dentro de los 10 días siguientes a su integración. Autorizado dicho plan, ejecutarán las acciones aprobadas y rendirán un informe mensual, por escrito, a la Junta Directiva del Comité, en el que reporten, las actividades realizadas y los resultados obtenidos.

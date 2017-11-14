@@ -1,0 +1,3 @@
+Artículo 123°— Uso de Instalaciones para Eventos con Fines de Lucro
+Según disponibilidad, se podrá facilitar el uso de instalaciones para la realización de eventos deportivos o recreativos con fines de lucro, como clases de aeróbicos, zumba, taichí o cualquier otra disciplina. Si se tratara de una actividad para una única fecha se cobrará la tarifa que corresponda según el tarifa rio.
+Si fuera una actividad a realizarse una o más veces a la semana, por un mes o más, deberá celebrarse un convenio con el instructor o entrenador y se cobrará la suma que resulte mayor entre un porcentaje de los ingresos proyectados o un monto mínimo que fijará la Junta Directiva del Concejo.

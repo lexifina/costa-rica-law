@@ -1,0 +1,2 @@
+Artículo85°— Otras Obligaciones y Facultades
+Otras obligaciones y facultades de los Comités Comunales serán determinadas por el Comité Cantonal, siempre que no contradigan este Reglamento, las leyes o decretos vigentes relacionados con esta materia.
