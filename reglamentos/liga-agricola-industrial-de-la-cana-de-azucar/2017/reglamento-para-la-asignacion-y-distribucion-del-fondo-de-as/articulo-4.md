@@ -1,0 +1,2 @@
+Artículo 4º—Del pago del Fondo. El pago efectivo para los productores destinatarios del Fondo de Asistencia Económica de Productores en Régimen de Excedentes se realizará en los ochos días naturales siguientes a la fecha en que LAICA le gire a los respectivos ingenios los importes correspondientes y las respectivas nóminas de distribución definitivas.
+Tratándose de ingenios que no vendan su azúcar a LAICA, deberán depositar en dicha Corporación los montos que ella fije para los fines establecidos en el presente ordenamiento.
