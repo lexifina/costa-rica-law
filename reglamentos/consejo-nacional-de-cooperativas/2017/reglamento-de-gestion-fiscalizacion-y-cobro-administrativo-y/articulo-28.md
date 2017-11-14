@@ -1,0 +1,3 @@
+SECCION III
+Del proceso de cobro judicial
+Artículo 28.-Una vez recibido el requerimiento cobratorio y la certificación respectiva, la asesoría jurídica deberá interponer el proceso judicial ejecutivo, a más tardar dentro del término de 15 días naturales, salvo que razones debidamente justificadas ameriten dicho planteamiento en un plazo mayor. En cuanto al planteamiento, dirección, consecución y finalización del proceso el abogado director contará con todas las facultades y obligaciones que al efecto confiere la legislación vigente. El abogado no podrá transar, conciliar o comprometer sin la autorización de la Secretaría Ejecutiva o del Directorio.

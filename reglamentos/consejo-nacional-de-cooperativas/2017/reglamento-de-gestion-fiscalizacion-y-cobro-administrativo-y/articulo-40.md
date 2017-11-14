@@ -1,0 +1,1 @@
+Artículo 40.-La terminación de proceso judicial a instancia de la cooperativa, procederá solo cuando la misma formalice arreglo de pago con el CONACOOP o cancele la forma total de la deuda por concepto de la contribución parafiscal que determina la Ley 4179 y sus reformas.

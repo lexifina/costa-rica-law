@@ -1,0 +1,1 @@
+Artículo 8.- Las actuaciones del CONACOOP, como administrador tributario se notificarán a tenor de lo dispuesto por el artículo 137 del Código de Normas y Procedimientos Tributarios y de conformidad con la Ley de Notificaciones, Citaciones y otros Comunicaciones Judiciales, Ley General de Administración Pública y el Código Procesal Civil.

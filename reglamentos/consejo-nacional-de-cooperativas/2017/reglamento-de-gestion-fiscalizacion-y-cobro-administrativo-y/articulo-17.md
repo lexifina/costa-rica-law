@@ -1,0 +1,1 @@
+Artículo 17- El Directorio resolverá el Recurso de revocatoria y Apelación conforme los plazos que señala el artículo No. 352 de la Ley General de Administración Pública, luego de recibida la documentación correspondiente por parte de la Secretaría Ejecutiva, salvo situación de fuerza mayor que imposibilite a ello.

@@ -1,0 +1,1 @@
+Artículo 16.- La Secretaría Ejecutiva resolverá dentro del quinto día hábil, lo concerniente al fondo o admisión del recurso de revocatoria, y elevará el asunto ante el Directorio para su resolución, esta última agotará la vía administrativa. El Directorio remitirá lo resuelto a la Sección de Cobro, la que procederá a remitirlo a la asesoría jurídica para lo que corresponda.

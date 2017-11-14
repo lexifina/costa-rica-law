@@ -1,0 +1,1 @@
+Artículo 6.- Todas las funciones del CONACOOP, como administrador tributario se realizarán en horas y días hábiles, requiriéndose de habilitación expresa del respectivo superior jerárquico, en caso de que se requiera la actuación administrativa en días u horas distintos de los anteriores.

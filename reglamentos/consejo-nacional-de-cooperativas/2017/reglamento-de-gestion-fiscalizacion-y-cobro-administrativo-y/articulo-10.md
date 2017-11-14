@@ -1,0 +1,1 @@
+Artículo 10.-, La Secretaría Ejecutiva, así como la Asesoría Jurídica podrán participar activamente en las funciones de gestión tributaria, de acuerdo a sus respectivas competencias en coordinación con la Sección de Cobro.
