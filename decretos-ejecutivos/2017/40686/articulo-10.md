@@ -1,0 +1,1 @@
+Artículo 10.—Derogatoria. Se deroga el Decreto Ejecutivo N° 37812-MOPT del 19 de junio del 2013 “Coordinación Interinstitucional del Sector Transporte”, publicado en La Gaceta N° 161 del 23 de agosto del 2013.

@@ -1,0 +1,2 @@
+Artículo 7°—Informes al Consejo Nacional Sectorial. La Secretaría de Planificación Sectorial deberá informar periódicamente al Ministro Rector del Sector Transporte e Infraestructura y al Consejo Nacional Sectorial, sobre el avance de los planes y proyectos sectoriales.
+Se insta a los órganos y entes que conforman el Sector a brindar a la Secretaría de Planificación Sectorial toda la colaboración que sea necesaria y a remitir, de manera oportuna, la información que requiera dicha Secretaría para tales efectos.
