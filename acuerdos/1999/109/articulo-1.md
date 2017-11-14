@@ -1,4 +1,6 @@
+(Derogado)
 BANCO CENTRAL DE COSTA RICA
+(Esta norma fue derogada en sesión N° 1375 del 14 de noviembre de 2017, “Las asociaciones solidaritas y a las cooperativas de ahorro y crédito estarán sometidas a la regulación y supervisión de la SUGEF independientemente de su naturaleza abierta o cerrada y del volumen de operaciones o nivel de activos”)
 El Consejo Nacional de Supervisión del Sistema Financiero, mediante Articulo 15, del Acta de la Sesion 109-99, celebrada el 16 de agosto de 1999, con fundamento en la recomendación de la Superintendencia General de Entidades Financieras contenida en su carta SUGEF-4039/99 del 6 de agosto de 1999, y
 Considerando:
 a. que el Articulo 117 de la Ley Orgánica del Banco Central de Costa Rica faculta al Consejo Nacional de Supervisión del Sistema Financiero, a eximir de la fiscalizacion a las cooperativas de ahorro y crédito, en función del tamaño de sus activos, el número de asociados o cuando realicen operaciones con un grupo cerrado de asociados.
