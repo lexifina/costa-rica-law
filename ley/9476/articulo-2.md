@@ -1,0 +1,4 @@
+ARTÍCULO 2- La Municipalidad de Belén compensará el terreno desafectado en el artículo anterior, con el bien inmueble de su propiedad inscrito en el Registro Público, partido de Heredia matrícula de folio real número uno dos nueve dos cuatro cinco- cero cero cero (N.° 129245-000) con el plano catastrado número H-ocho seis ocho ocho nueve tres — nueve cero (N.° H-868893-90), cuya medida es de dos mil doscientos sesenta y seis con veintiséis metros cuadrados (2266,26 m2).
+El bien inmueble, indicado en el párrafo anterior, se desafecta del uso público de reserva y se afecta al nuevo uso público de parque y zona verde. La Municipalidad de Belén deberá inscribir esta modificación en el Registro Nacional.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los seis días del mes de setiembre del año dos mil diecisiete.
