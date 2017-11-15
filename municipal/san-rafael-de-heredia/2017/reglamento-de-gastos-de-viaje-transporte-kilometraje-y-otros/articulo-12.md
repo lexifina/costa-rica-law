@@ -1,0 +1,1 @@
+Artículo 12.-Liquidación de cuentas. Los trabajadores municipales así como los miembros del Concejo Municipal de San Rafael de Heredia, tendrán siete días hábiles para realizar las liquidaciones correspondientes, acompañando la misma mediante los comprobantes correspondientes.

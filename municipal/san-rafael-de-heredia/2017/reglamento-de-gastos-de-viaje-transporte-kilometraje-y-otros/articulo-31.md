@@ -1,0 +1,3 @@
+CAPÍTULO V
+GASTOS DE REPRESENTACIÓN OCASIONALES EN EL EXTERIOR
+Artículo 31º.- Concepto. Por gastos de representación ocasionales se entiende aquellas erogaciones en que incurren ciertos funcionarios en el ejercicio de su cargo, con el objeto de brindar atenciones de carácter oficial a personas o instituciones, en el exterior, ajenas a la entidad que otorga la atención. En caso de darse este tipo de representaciones se estará sujeto a lo que se establece en el capítulo V del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, emitido por la Contraloría General de la Republica.

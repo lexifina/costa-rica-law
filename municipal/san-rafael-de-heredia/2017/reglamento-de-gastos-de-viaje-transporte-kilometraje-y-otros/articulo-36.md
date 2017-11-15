@@ -1,0 +1,1 @@
+Artículo 36°-Ante cualquier duda en el “Reglamento de Gastos de viaje, transporte, kilometraje y otros afines, aplicables a los funcionarios de la Municipalidad de San Rafael de Heredia” siempre se consultará lo que dice el Reglamento de Gastos de Viaje y de transporte de la CGR, su última versión y se aplicará lo que indique el mismo.

@@ -1,0 +1,1 @@
+Artículo 4º-Concepto. Por viático se entenderá aquella suma destinada a la atención de gastos de transporte, alimentación u hospedaje, que la Municipalidad de San Rafael de Heredia reconoce a los trabajadores de la Municipalidad de San Rafael de Heredia, así como a los Regidores, Síndicos, propietarios y/o suplentes que formen parte del Concejo Municipal de San Rafael de Heredia.
