@@ -14,3 +14,4 @@ Reglamento de Concursos y Selección de Personal del Colegio Universitario de Ca
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-02-02 | la propia norma |
+| 2 | 2017-11-15 | Reglamento 3465 (2017-11-15) |
