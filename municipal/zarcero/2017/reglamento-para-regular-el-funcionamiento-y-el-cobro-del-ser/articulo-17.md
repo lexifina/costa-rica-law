@@ -1,0 +1,2 @@
+Artículo 17—Vigencia: Este reglamento rige a partir de su segunda publicación en el Diario Oficial La Gaceta de conformidad con lo establecido en el artículo 43 del Código Municipal, vencido el lapso de diez días hábiles de consulta pública y al no presentarse oposiciones se solicita se realice la segunda publicación del reglamento de limpieza de vías y sitios públicos del Cantón de Zarcero.
+Zarcero, 08 de noviembre del 2017.
