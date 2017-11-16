@@ -1,0 +1,1 @@
+Artículo 4°. La Subdirección General asumirá la coordinación directa para satisfacer de manera oportuna las necesidades de fortalecimiento que la gestión de cobro requiera. De esta forma, apoyará y promoverá los procesos de contratación correspondientes. Para llevar a cabo esta coordinación la Subdirección General podrá disponer de todo el apoyo del MTSS.

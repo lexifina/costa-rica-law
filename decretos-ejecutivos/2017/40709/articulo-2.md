@@ -1,0 +1,15 @@
+Artículo 2°. De las Definiciones. Para los efectos del presente Reglamento se entenderá por:
+- Abogado externo: Profesional en Derecho o Empresa, Consorcio o Bufete especializado en Cobro Judicial contratado por la DESAF, debidamente acreditado para dirigir los procesos judiciales contra patronos morosos del FODESAF.
+- ASEA: Rubro denominado por la CCSS para el cobro del 5% del total de las planillas correspondientes al Fodesaf.
+- CCSS: Caja Costarricense de Seguro Social.
+- Cobro Administrativo: Se entiende como toda aquella gestión que se realice para normalizar operaciones en estado irregular, que presenten las cotizaciones de los patronos o los arreglos de pago suscritos, previo a recurrir a la vía judicial.
+- Cobro Judicial: Se entiende como toda aquella gestión que se realice para la recuperación de las cuotas dejadas de cancelar por los patronos, utilizando la vía ejecutiva, entendida esta, desde el momento en que el caso le es asignado al profesional en derecho, para su respectivo trámite ante los Tribunales de Justicia, según artículo 11 de la Ley N° 5662, Ley de Desarrollo Social y Asignaciones Familiares y su reforma, Ley N° 8783, Ley Reforma de la Ley de Desarrollo Social y Asignaciones Familiares, N° 5662.
+- Desat Dirección General de Desarrollo Social y Asignaciones Familiares.
+- Fodesaf: Fondo de Desarrollo Social y Asignaciones Familiares.
+- Ley N° 5662: Ley de Desarrollo Social y Asignaciones Familiares, del 23 de diciembre de 1974.
+- Ley N° 8783: Ley Reforma de la Ley de Desarrollo Social y Asignaciones Familiares, N° 5662, del 13 de octubre del 2009, y publicada al Alcance N° 42 a La Gaceta N° 199, del 14 de octubre del 2009.
+- MTSS: Ministerio de Trabajo y Seguridad Social.
+- Patrono Moroso: El patrono obligado al pago del tributo establecido en la Ley N° 5662 y su reforma, según Ley N° 8783, que se encuentre en situación de mora.
+- Planilla Ordinaria: Información sobre salarios pagados declarada ante la Caja Costarricense de Seguro Social por los mismos patronos.
+- Planilla Extraordinaria: Ajustes en la planilla ordinaria producto de un estudio de técnico de la Inspección de la CCSS.
+- Sicere: Sistema Centralizado de Recaudación de la Caja Costarricense de Seguro Social.

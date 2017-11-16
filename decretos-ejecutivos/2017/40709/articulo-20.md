@@ -1,0 +1,1 @@
+Artículo 20. Honorarios. Todo caso trasladado por la Unidad de Cobro Administrativo a la Unidad de Cobro Judicial genera el cobro de honorarios de abogado para el patrono moroso, el cual se regirá por las reglas del Decreto de Honorarios de Abogado dictado por el Colegio de Abogados y Abogadas de Costa Rica vigente al momento del traslado.

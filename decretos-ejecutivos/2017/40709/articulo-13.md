@@ -1,0 +1,1 @@
+Artículo 13. La Desaf con asesoría técnica de los peritos autorizados podrá aceptar las garantías como pago inicial siempre y cuando por razones de oportunidad, conveniencia e interés institucional le sean más favorables.

@@ -1,0 +1,1 @@
+Artículo 15. No se podrá formalizar un nuevo arreglo de pago con base en la suma originada en el incumplimiento de otro arreglo de pago. Se autoriza la readecuación del plazo del arreglo por única ocasión siempre y cuando el deudor se encuentra al día con el pago de las mensualidades del arreglo de pago.

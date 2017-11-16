@@ -1,0 +1,1 @@
+Artículo 35. Previo a interponer un proceso judicial, los abogados internos y/o externos de la Desaf, deberán verificar la factibilidad de recuperación de los montos adeudados al Fodesaf, en relación con los bienes embargables que posean los patronos deudores.
