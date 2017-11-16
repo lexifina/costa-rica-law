@@ -1,0 +1,1 @@
+Artículo 27.-Para cumplir adecuadamente con sus funciones, cada planta someterá anualmente al Administrador General sus requerimientos de materia prima, de personal, incluida la capacitación de éste y reposición de equipos. Con base en el presupuesto y programas aprobados el Administrador gestionará lo que corresponda.

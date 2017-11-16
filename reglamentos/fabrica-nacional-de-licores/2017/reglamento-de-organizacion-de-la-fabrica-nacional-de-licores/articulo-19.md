@@ -1,0 +1,1 @@
+Artículo 19.-FANAL mantendrá su propio sistema contable para el control registro de las operaciones, debiendo el Departamento Financiero presentar en forma mensual los estados financieros al Administrador General, con copia a la Auditoria Interna de FANAL.

@@ -1,0 +1,1 @@
+Artículo 26.-Las plantas estarán dirigidas por profesionales con por lo menos el grado de licenciatura en una carrera a fin a sus actividades, bajo la superior vigilancia de la Administración y contarán con la estructura indispensable para llevar a cabo el proceso productivo.
