@@ -1,0 +1,1 @@
+Artículo 7.-El Especialista en Medicina Interna integra y coordina grupos de trabajo relacionados con su especialidad en su servicio o departamento, intra e interinstitucionales, así como intersectoriales.

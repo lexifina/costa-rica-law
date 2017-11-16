@@ -1,0 +1,2 @@
+Artículo 22.- Tribunales evaluadores:
+El Médico Especialista en Medicina Interna deberá participar activamente cuando el Colegio de Médicos y Cirujanos de la República de Costa Rica así lo requiera, así como en la conformación de tribunales para la evaluación de médicos nacionales o extranjeros, que hayan realizado estudios en el exterior y que soliciten su respectiva incorporación como médicos especialistas en Medicina Interna.
