@@ -1,0 +1,13 @@
+CAPITULO IV
+LIQUIDACIÓN DEL VALE DE CAJA CHICA
+Articulo 17.- Liquidación. El vale de caja chica será liquidado por medio de factura timbrada, tiquete de caja original, depósito bancario u otro documento oficial que justifique la ejecución del egreso, para ello dichos comprobantes deberán cumplir con los siguientes requisitos:
+a. Ser un documento emitido a nombre de la Municipalidad de Heredia.
+b. Indicar la fecha de emisión, la cual no podrá ser bajo ninguna circunstancia anterior al día en que se tramito el vale de caja chica.
+c. Indicar el desglose y especificación clara de los bienes o servicios adquiridos, los cuales deben tener vinculación directa con las líneas presupuestarias del egreso autorizado. No se aceptarán comprobantes cuya descripción utilice descripciones generales como artículos varios, gasto de viaje, trasporte o gastos de representación o cualquier otro que no indique de forma detallada y legible lo adquirido.
+d. Indicar en números o letras el monto en colones del bien o servicio adquirido. Si la comprase realiza en moneda extranjera la factura debe indicar el tipo de cambio utilizado para la conversión.
+e. Cumplir con los requerimientos establecidos por la Dirección General de Tributación Directa. Si la factura no tuviera logotipo por estar inscrito el proveedor al régimen simplificado, deberá entonces indicarse el nombre, el número de cédula de la persona física o jurídica que suministra el bien o servicio y las especificaciones correspondientes junto con el número de resolución otorgado por la Dirección General de Tributación Directa.
+f. No contener correcciones o tachaduras.
+g. Que el comprobante este firmado por la jefatura inmediata, como requisito de comprobación de la adquisición del bien o servicio correspondiente.
+h. En cuanto a la liquidación de viáticos o transporte, debe aportarse el formulario de liquidación de viáticos completo con las firmas correspondientes y, al igual que las facturas el formulario deberá tener fecha igual o posterior a la fecha de confección de la caja chica.
+i. El monto de lo gastado sin excepción alguna no podrá superar el monto autorizado en el vale de caja chica. De presentarse esta situación, el funcionario solicitante deberá asumir la diferencia que resulte entre lo girado por la Tesorería y el monto realmente ejecutado.
+El encargado del fondo rechazará cualquier comprobante que no se ajuste a los lineamientos anteriores; por lo que, el solicitante deberá realizar en el plazo señalado en el artículo 15 las gestiones pertinentes para liquidar como corresponde el vale de caja chica, en su defecto deberá reintegrar la totalidad del dinero otorgado por la Tesorería Municipal.

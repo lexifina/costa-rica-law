@@ -1,0 +1,8 @@
+Articulo 3.- Definiciones. Para una mejor comprensión y en procura del correcto cumplimiento de las disposiciones de este Reglamento, deberán entenderse por:
+a. Arqueo de Caja Chica: Verificación del cumplimiento de la normativa y reglamentación que rige el fondo de caja chica. Procedimiento que determina que el efectivo y la suma de los comprobantes que dan soporte a los egresos, concuerden con la suma autorizada para el fondo de caja chica.
+b. Fondo de Caja Chica: Fondo autorizado por el Concejo Municipal, para la adquisición de bienes o servicios, y cancelar gastos que por su escasa cuantía no ameritan la promoción de los procedimientos establecidos en la Ley de Contratación Administrativa y su Reglamento.
+c. Encargado del Fondo de Caja Chica: Funcionario que ocupe el puesto de Tesorero Municipal o, en su ausencia, el que se designe formalmente por el Alcalde Municipal.
+d. Liquidación: Rendición de cuentas que efectúa el funcionario responsable del vale de caja chica, mediante presentación de los comprobantes originales que sustentan los bienes y servicios adquiridos.
+e. Reintegro del Fondo de Caja Chica: Reposición de dinero en efectivo al fondo de caja chica hasta la suma que complete el total del fondo autorizado, la cual fue disminuida como consecuencia de los egresos efectuados por medio de los vales de caja chica con sus respectivos comprobantes.
+f. Vale de Caja Chica: Documento administrativo, a través del cual un funcionario solicita dinero del fondo de caja chica, para la compra de bienes o servicios, siempre que sean justificados, y autorizados por el Alcalde Municipal o en el funcionario que él designe formalmente.
+g. SIAM: Sistema Integrado de Administración Municipal.

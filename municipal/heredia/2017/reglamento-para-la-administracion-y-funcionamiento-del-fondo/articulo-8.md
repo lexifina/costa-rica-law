@@ -1,0 +1,1 @@
+Articulo 8.- Conformación del fondo. El fondo de caja chica deberá contener siempre el total del monto autorizado, que corresponderá a la suma del dinero en efectivo, más la suma del gasto real de los vales de caja chica liquidados, más los vales de caja chica pendientes de liquidación.

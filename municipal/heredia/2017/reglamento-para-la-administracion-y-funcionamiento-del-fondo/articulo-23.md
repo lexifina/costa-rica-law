@@ -1,0 +1,1 @@
+Articulo 23.- Faltantes de dinero. Los faltantes de dinero determinados en los arqueos al fondo de caja chica serán cubiertos de inmediato por el encargado de su custodia y administración. Se exceptúan los faltantes por denominaciones menores a cinco colones.

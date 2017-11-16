@@ -1,0 +1,3 @@
+CAPITULO VII
+DISPOSICIONES FINALES
+Articulo 29.- Normativa supletoria. En todo aquello no previsto en el presente reglamento, se aplicará supletoriamente la Constitución Política, Código Municipal, Ley General de Administración Pública, Ley de Contratación Administrativa y su Reglamento, Código de Trabajo, Ley General de Control Interno, Reglamento Autónomo de Organización y Servicio de la Municipalidad de Heredia. Reglamento de principios, valores y conductas éticas a observar por parte del Concejo Municipal, Titular de Alcaldía, demás autoridades administrativas y personal de la Municipalidad de Heredia, Reglamento de gastos de viaje y de trasporte para funcionarios públicos de la Contraloría General de la República y cualquier otra normativa conexa.

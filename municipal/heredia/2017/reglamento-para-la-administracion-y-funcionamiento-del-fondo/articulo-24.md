@@ -1,0 +1,1 @@
+Articulo 24.- Sobrantes de dinero. Los sobrantes de dinero determinados en los arqueos al fondo de caja chica deben ser depositados en la cuenta corriente de la Municipalidad y registrados como un reintegro en efectivo.

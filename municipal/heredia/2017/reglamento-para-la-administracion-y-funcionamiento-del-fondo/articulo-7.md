@@ -1,0 +1,1 @@
+Articulo 7.- Establecimiento del fondo. El fondo de caja chica, así como sus aumentos y disminuciones, deberán ser autorizados por el Concejo Municipal, previo estudio de la Dirección Financiera Administrativa y la Tesorería Municipal

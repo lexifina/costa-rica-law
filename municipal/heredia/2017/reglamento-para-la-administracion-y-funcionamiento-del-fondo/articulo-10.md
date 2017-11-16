@@ -1,0 +1,1 @@
+Artículo 10.- Prohibiciones. El número de vales de caja chica por un mismo objeto de gasto no podrá ser mayor a dos vales de caja chica por mes. Adicionalmente, no se entregará un segundo vale de caja chica al funcionario que tenga pendiente la liquidación del primero.

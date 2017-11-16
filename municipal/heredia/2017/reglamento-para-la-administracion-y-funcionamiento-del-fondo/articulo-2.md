@@ -1,0 +1,1 @@
+Articulo 2.- Ámbito de aplicación. Las disposiciones contenidas en este Reglamento serán aplicables a todos los funcionarios municipales que gestionen compras con el fondo de caja chica y al encargado del fondo de caja chica.
