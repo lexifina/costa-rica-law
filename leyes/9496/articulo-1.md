@@ -1,0 +1,13 @@
+N° 9496
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+AUTORIZACIÓN A LA MUNICIPALIDAD DE FLORES PARA QUE RECTIFIQUE LA MEDIDA,
+SEGREGUE UN LOTE DE UNA FINCA DE SU PROPIEDAD, EL CUAL SE DESAFECTA
+DEL USO PÚBLICO, Y LO DONE A LA ASOCIACIÓN PRO CLÍNICA DEL DOLOR Y
+CUIDADOS PALIATIVOS DEL ÁREA DE SALUD BELÉN, FLORES, SANTA
+BÁRBARA, PROVINCIA DE HEREDIA, PARA UBICAR LAS
+INSTALACIONES DE LA CLÍNICA DEL DOLOR
+Y CUIDADOS PALIATIVOS
+ARTICULO 1- Se autoriza a la Municipalidad de Flores, cédula jurídica número tres - cero catorce- cero cuarenta y dos mil noventa y uno (3-014-042091), para que rectifique la medida del inmueble de su propiedad inscrita en el Registro Público de la Propiedad, partido de Heredia, bajo el sistema de folio real matrícula número veintiocho mil setecientos setenta-cero cero cero (28770-000), situada en el distrito primero, San Joaquín; cantón octavo, Flores, de la provincia de Heredia, la cual se describe actualmente en el Registro inmueble así: terreno para construir; linda al norte con calle pública y un lote de la Junta de Educación de la Escuela Estados Unidos de América de San Joaquín de Flores; al sur, con el río Quebrada Seca y un lote de la Junta de Educación de la Escuela
+Estados Unidos de América de San Joaquín de Flores; al este, con el río Quebrada Seca y un lote de la Junta de Educación de la Escuela Estados Unidos de América de San Joaquín de Flores y, al oeste, con calle pública; mide (según registro) veintinueve mil quinientos cincuenta y un metros con ochenta y siete decímetros cuadrados (29.551,87m2).
+Según el plano de catastro visado por el mismo municipio, levantado al efecto, número H - quinientos setenta mil doscientos setenta y seis - noventa y nueve (H-570276-99), dicho terreno mide correctamente veintidós mil doscientos cincuenta y nueve metros con setenta y tres decímetros cuadrados (22.259,73m2), indicando los siguientes linderos actuales: al norte con calle pública, María Berenice Rojas Ugalde, Beatriz Rojas Ugalde, Nicolás Portugués Víquez y la Junta de Educación de la Escuela Estados Unidos de América de San Joaquín de Flores; al sur con el río Quebrada Seca y la Caja Costarricense de Seguro Social; al este con el río Quebrada Seca, la Junta de Educación de la Escuela Estados Unidos de América de San Joaquín de Flores y Mosoalpa S.A., y al oeste Caja Costarricense de Seguro Social, calle pública y Nicolás Portugués Víquez; por lo que se instruye al Registro para que inscriba en dicha matrícula el plano supra citado, rectifique los linderos y la medida de la matrícula mencionada, eximiendo de toda responsabilidad al citado Registro.
