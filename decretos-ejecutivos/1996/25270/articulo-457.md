@@ -1,3 +1,6 @@
-Artículo 457.- Permanencia temporal de unidades de transporte comercial y vehículo comercial por carretera. La Aduana autorizará la permanencia temporal de unidades que se utilizan para el transporte comercial de mercancías y vehículos comerciales por carretera hasta por un plazo máximo e improrrogable de tres meses.
-Las partes y piezas sustituidas que al vencimiento del plazo de permanencia no hayan sido destinadas a ningún régimen aduanero, deberán entregarse a la aduana para su respectiva destrucción, mediante el procedimiento correspondiente y el levantamiento de un acta de destrucción.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40298 del 22 de marzo de 2017)
+Artículo 457.- Permanencia temporal de unidades de transporte comercial y vehículo comercial por carretera.
+La Aduana autorizará la permanencia temporal de unidades que se utilizan para el transporte comercial de mercancía y vehículos comerciales por carretera, hasta por un plazo máximo e improrrogable de tres meses.
+Cuando se trate de la importación temporal de contenedores que ingresan y son reexportados por vía marítima, el plazo máximo de permanencia será de seis meses.
+La importación temporal de material especial, envases y elementos de transporte que sirve para la carga, descarga, manipulación y protección de mercancías; partes, pieza y equipos ele tinados para la reparación de transportes comerciales, los que deberán ser incorporados en una unidad de transporte, tendrán un plazo máximo de permanencia dentro del territorio aduanero de seis me es, contado a partir de u ingre o.
+La partes y piezas sustituidas que al vencimiento del plazo de permanencia no hayan sido de tinadas a ningún régimen aduanero, deberán entregarse a la aduana para su respectiva destrucción, mediante el procedimiento correspondiente y el levantamiento de un acta de destrucción.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40911 del 17 de noviembre del 2017)

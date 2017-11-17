@@ -45,3 +45,4 @@ Reglamento a la Ley General de Aduanas
 | 30 | 2015-10-19 | Decreto Ejecutivo 39267 (2015-10-19) |
 | 31 | 2016-12-09 | Decreto Ejecutivo 40119 (2016-12-09) |
 | 32 | 2017-03-22 | Decreto Ejecutivo 40298 (2017-03-22) |
+| 33 | 2017-11-17 | Decreto Ejecutivo 40911 (2017-11-17) |
