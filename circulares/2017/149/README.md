@@ -13,3 +13,4 @@ A partir del 25 de julio de 2017, la ejecución de las sanciones, deberá operar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-25 | la propia norma |
+| 2 | 2017-11-17 | Circular 182 (2017-11-17) |
