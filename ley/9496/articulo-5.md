@@ -1,0 +1,1 @@
+ARTICULO 5- En caso de que se disuelva la persona jurídica donataria, la propiedad del terreno donado volverá a ser de la Municipalidad de Flores, y deberá inscribirse esta condición y limitación como un gravamen sobre ese inmueble.
