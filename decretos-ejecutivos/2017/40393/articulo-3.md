@@ -1,0 +1,1 @@
+Artículo 3º- El Ministerio de Salud, con base en la Ley No. 5395 del 30 de octubre de 1973, “Ley General de Salud”, procederá a ejecutar las medidas correspondientes según se trate de un incumplimiento que origine consecuencias en la salud humana, o bien incumplimiento de los requisitos regulados en el presente reglamento.

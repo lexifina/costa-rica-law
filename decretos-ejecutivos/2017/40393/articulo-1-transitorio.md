@@ -1,0 +1,1 @@
+Transitorio: Se otorga un plazo de nueve meses, para que los organismos de evaluación de la conformidad puedan estar debidamente acreditados para la verificación del cumplimiento del presente reglamento técnico, por parte de los interesados.
