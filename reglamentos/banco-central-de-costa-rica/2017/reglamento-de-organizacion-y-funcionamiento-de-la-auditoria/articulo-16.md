@@ -1,0 +1,1 @@
+Artículo 16.—El descriptivo de puestos del BCCR deberá establecer y mantener actualizadas las funciones para los cargos de auditor y subauditor internos de conformidad con las disposiciones de la CGR al respecto.

@@ -1,0 +1,1 @@
+Artículo 11.—El Auditor Interno establecerá en los procedimientos operativos, las medidas formales necesarias para prevenir los conflictos de intereses del personal de auditoría al ejecutar sus trabajos, que puedan poner en duda o en peligro, de hecho o apariencia, la objetividad e independencia de la Auditoría Interna.

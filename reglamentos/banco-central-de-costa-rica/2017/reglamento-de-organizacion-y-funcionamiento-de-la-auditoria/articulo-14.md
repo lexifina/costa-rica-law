@@ -1,0 +1,1 @@
+Artículo 14.—La Auditoría Interna dependerá orgánicamente de la Junta Directiva del BCCR. Su estructura la definirá el Auditor Interno y será aprobada por la Junta Directiva del BCCR, de conformidad con las disposiciones, normas, políticas y directrices aplicables que emita la CGR.

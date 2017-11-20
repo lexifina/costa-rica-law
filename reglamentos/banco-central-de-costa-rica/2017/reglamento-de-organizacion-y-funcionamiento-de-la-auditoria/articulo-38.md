@@ -1,0 +1,1 @@
+Artículo 38.—La Auditoría Interna aplicará las disposiciones legales y normativas emitidas por la CGR y otros órganos competentes para regular el trámite de denuncias; asimismo, en lo que sean aplicables se considerarán las disposiciones que apruebe la Junta Directiva en este mismo sentido y las modificaciones y nuevas normas que se emitan en el futuro.

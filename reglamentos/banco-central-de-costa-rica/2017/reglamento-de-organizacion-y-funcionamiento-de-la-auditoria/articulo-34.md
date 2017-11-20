@@ -1,0 +1,1 @@
+Artículo 34.—Las comunicaciones relacionadas con asesorías y advertencias se remitirán a la Gerencia o a la Junta Directiva; las correspondientes a legalización de libros se remitirán a los responsables de las unidades administrativas encargados de esos libros. Su forma y contenido los definirá el Auditor Interno de acuerdo con las circunstancias.

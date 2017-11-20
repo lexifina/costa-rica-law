@@ -1,0 +1,1 @@
+Artículo 10.—El Auditor Interno y los demás funcionarios de la Auditoría Interna observarán las prohibiciones estipuladas en la LGCI y cualesquiera otras disposiciones que le apliquen. El detalle de las prohibiciones se mantendrá actualizado en los medios de consulta electrónicos de que dispone la Auditoría Interna.
