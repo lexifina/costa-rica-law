@@ -1,0 +1,1 @@
+Artículo 7º. - La implementación de la Base de Datos de Empleo para el Sector Público, se realizará en cinco Fases, a partir de la entrada en vigencia del presente decreto. El Grupo de Trabajo conformado por la STAP, MIDEPLAN y la DGSC comunicará cuáles entidades integrarán cada fase y definirá los plazos para que las mismas reporten la información.

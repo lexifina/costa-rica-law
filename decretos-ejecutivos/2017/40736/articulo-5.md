@@ -1,0 +1,1 @@
+Artículo 5°.- El resguardo de la información contenida en la Base de Datos de Empleo del Sector Público, será responsabilidad de la Dirección de Tecnologías de Información y Comunicación (DTIC) del Ministerio de Hacienda.
