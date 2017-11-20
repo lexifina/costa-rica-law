@@ -1,0 +1,54 @@
+BANCO NACIONAL DE COSTA RICA
+El Banco Nacional de Costa Rica comunica la parte resolutiva del acuerdo tomado por la Junta Directiva General, en la Sesión N° 12.201, artículo 11º, celebrada el 23 de octubre del 2017, en el cual acordó aprobar la modificación al Reglamento para la Prestación de Servicios de Abogacía para el Cobro Judicial de Préstamos en el Banco Nacional de Costa Rica, específicamente en lo que respecta al Artículo 7. Evaluación y calificación de los servicios prestados, y al Artículo 12. - Deberes y obligaciones del abogado externo, para que, en lo sucesivo, se lea de conformidad con el siguiente texto:
+Artículo 7º—Evaluación y calificación de los servicios prestados. El Banco realizará una evaluación y calificación del servicio que preste el abogado externo, según el cronograma que establecerá para tales efectos la Unidad de Fiscalización Legal y Notarial. Dicha evaluación y calificación estará a cargo de la Unidad Institucional de Cobro Judicial conjuntamente con la Unidad de Fiscalización Legal y Notarial, de la siguiente forma:
+El 30 % de la calificación corresponderá ser establecida por la Unidad Institucional de Cobro Judicial, con base en el siguiente criterio:
+• Cumplimiento de la presentación de demanda por parte del abogado externo en el plazo estipulado y cumpliendo con todas las formalidades y requisitos establecidos en el artículo 16 del presente Reglamento. La calificación por este criterio se obtendrá a partir de la siguiente fórmula:
+X= 〖((TDD x 100)〗^ ÷TDP) x ( 30 ÷100).
+En donde:
+TDD= Total de Demandas Defectuosas
+TDP= Total de Demandas Presentadas en el año anterior a la fiscalización.
+X= Porcentaje calificación final obtenida.
+El 70% de la calificación corresponderá ser establecida por la Unidad de Fiscalización Legal y Notarial, con base en los siguientes criterios:
+• Un 60 % corresponderá a la revisión de la muestra de procesos judiciales asignados al abogado fiscalizado. Del total de procesos analizados en la muestra de fiscalización, se identificarán aquellos en los cuales el abogado externo ha ejercido una debida prosecución procesal, es decir, aquellos cuyo estado procesal es “En Trámite”. La calificación por este criterio se obtendrá a partir de la siguiente fórmula:
+X= 〖((TPT x 100)〗^ ÷TPM) x (60 ÷100).
+En donde:
+X= Porcentaje de calificación final obtenida.
+TM= Total de la muestra.
+Para calcular el tamaño de la muestra se utilizará la siguiente fórmula:
+n=(N σ^(2 ) Z^2)/((N-1) e^2+σ^(2 ) Z^2 )
+En donde:
+n= el tamaño de la muestra.
+N= tamaño de la población.
+σ= Desviación estándar de la población que, generalmente cuando no se tiene su valor, suele utilizarse un valor constante de 0,5.
+Z= Valor obtenido mediante niveles de confianza. Es un valor constante que, si no se tiene su valor, se lo toma en relación al 95% de confianza equivale a 1,96 (como más usual) o en relación al 99% de confianza equivale 2,58, valor que queda a criterio del investigador.
+e= Límite aceptable de error en la muestra que, generalmente cuando no se tiene su valor, suele utilizarse un valor que varía entre el 1% (0,01) y 9% (0,09), valor que queda a criterio del investigador.
+TPT: Total de Procesos en Trámite (La cantidad de TPT se obtiene a partir de restar al TM, el total de procesos “inactivos” constatados dentro del proceso de fiscalización; entendiendo por “inactivos” todos aquellos procesos judiciales en los cuales no se ha ejercido una debida prosecución procesal por parte del abogado externo, por ejemplo y no limitado a ello, todos aquellos procesos declarados inadmisibles, desiertos, prescritos o bien se encuentren en estado de abandono, por causas atribuibles al abogado director del proceso)
+• Un 10 % corresponderá al cumplimiento por parte del abogado externo en relación con los plazos otorgados en el proceso de fiscalización, para ello la Unidad de Fiscalización Legal y Notarial, deberá llevar un adecuado control de los plazos que otorga cada profesional durante el año anterior al proceso de fiscalización. La calificación por este criterio se obtendrá a partir de la siguiente fórmula:
+X= 〖((TPC x 100)〗^ ÷TPO) x (10 ÷100).
+En donde:
+X= Porcentaje de calificación total obtenida
+TPC= Total de Plazos Cumplidos (en tiempo y forma)
+TPO= Total de Pazos Otorgados
+La calificación total obtenida luego de aplicar los anteriores criterios de avaluación, será expresada bajo las siguientes categorías:
+Excelente con nota obtenida de 100 a 90.
+Satisfactorio con nota obtenida de 89 a 80.
+Regular con nota obtenida de 79 a 70.
+Deficiente con nota obtenida de 69 a 0.
+En caso de que la calificación total obtenida por el abogado externo evaluado se ubique en la categoría de regular, éste será sancionado con un año de suspensión en la asignación de nuevos casos.
+En caso de que la calificación total obtenida por el abogado externo evaluado se ubique en la categoría de deficiente, se procederá a resolver el contrato respectivo.
+Tanto para suspender del rol de asignación de casos como para resolver el contrato con ocasión de la calificación total obtenida por el abogado externo evaluado, la Administración deberá garantizar el debido proceso mediante el trámite del procedimiento administrativo ordinario, establecido en el artículo 308 y siguientes de la Ley General de la Administración Pública.
+Artículo 12.—Deberes y obligaciones del abogado externo. Los abogados externos al servicio del Banco deberán observar y cumplir con los siguientes deberes adicionales a los que les impongan las leyes y reglamentos que rigen el ejercicio legal de su profesión:
+12.1. Tramitar en forma ágil, eficiente y correcta salvaguardando los mejores intereses del Banco, todos los casos judiciales que le fueren asignados, cumpliendo con las formalidades establecidas en el ordenamiento jurídico; siendo responsables administrativa, civil y penalmente de cualquier pérdida, daño o perjuicio que ocasionen al Banco por sus acciones u omisiones, ya sea mediando dolo, culpa o negligencia.
+12.2. Estar al día en el pago y cumplimiento de todas las obligaciones u operaciones activas directas o indirectas que mantengan con el Banco, así como en el pago de las pólizas.
+Deberán presentar al Banco en los plazos establecidos los estados financieros y demás información que se requiera, cumplir con el plan de inversión y hacer buen uso de las cuentas y, en general, de los servicios bancarios que le brinde el Banco.
+12.3. Deberán contar con oficina abierta dentro del territorio nacional y contar con los medios adecuados para la buena ejecución de los servicios profesionales contratados, para una efectiva comunicación con el Banco y las autoridades judiciales, además de asegurar la autoría, la integridad, y la custodia de los documentos; para lo cual deberá contar con firma digital, fax y correo electrónico registrado en el Banco, número de teléfono fijo y un número de teléfono celular donde pueda ser ubicado en cualquier momento que se le requiera. Adicionalmente deberá contar con una cuenta bancaria en colones y otra en dólares a su nombre con el Banco Nacional para el respectivo pago de honorarios y gastos.
+12.4. Prestar toda la colaboración y brindar en los plazos establecidos todos los informes y la información que requieran las diversas dependencias del Banco.
+12.5 Brindar asesoría profesional y oportuna a la UICJ y otras dependencias del Banco, en los casos que tengan bajo su dirección profesional. Reiterándose por tanto su deber inexcusable de asesorar oportunamente al Banco, según lo dispone el artículo 14 del Código de Deberes Jurídicos, Morales y Éticos del Profesional en Derecho. Deberá atender y contestar en los plazos que se les indique todos los requerimientos de información que solicite la UICJ, UFLN, la Dirección Jurídica, y la Proveeduría, acerca de información y estado de los procesos que tenga asignados.
+12.6. Deberá tener la información actualizada en la plataforma web de cada uno de los procesos a su cargo, de acuerdo a los lineamientos que se establezcan por el Banco.
+12.7. Cumplir puntualmente con todos los plazos y labores previstos en este reglamento, leyes especiales, normativa procesal o en sus contratos.
+12.8. Cumplir con los deberes establecidos en el Código de Deberes Jurídicos, Morales y Éticos del Profesional en Derecho, dictado por el Colegio de Abogados. En consecuencia, a los abogados externos que presten sus servicios al Banco, les asiste el deber y la obligación de tramitar en forma correcta los casos asignados, con estricto apego a la normativa tanto procesal como sustantiva, no siendo de recibo desde ningún punto de vista que el abogado excuse su proceder contrario a derecho, de haber recibido del Banco instrucciones erróneas, tal y como lo establece el numeral 36 del Código de Deberes Jurídicos, Morales y Éticos del Profesional en Derecho.
+12.9. Sin excepción alguna deberá dirigir toda documentación y comunicación al Banco a través del correo electrónico oficial asignado, debiendo por tanto venir firmado digitalmente por el profesional asignado, sin dicho requisito no se le dará trámite, o se atenderá gestión alguna.
+12.10. Cuando un profesional tenga que ausentarse de su oficina por cualquier motivo, y por un periodo no mayor de un mes, deberá comunicarlo en forma previa y por escrito con una anticipación de ocho días hábiles a través del correo oficial, indicando el nombre del colega, quien además deberá ser abogado externo del Banco, que atenderá temporalmente sus obligaciones y el lugar donde se le puede localizar, además de demostrar la aceptación del abogado designado, y contar expresamente con la autorización de la UICJ. La remuneración de la actividad desplegada por el sustituto corre por cuenta y riesgo del profesional al que originalmente se le asignó el caso. No obstante, en caso de que el profesional sustituto cometa una falta responderá personalmente ante el Banco. Cuando el profesional se ausentare voluntariamente por un periodo igual o mayor a un mes deberá remitir formal nota dirigida a la Proveeduría del Banco indicando las razones por las cuales se ausentará de su oficina, la Proveeduría determinará y pronunciará al respecto, valorando si lo que corresponde es un permiso temporal o bien la resolución contractual. Durante las ausencias del abogado externo no se le asignarán casos, independientemente del plazo de la misma.
+12.11 En el caso de que al asignarse un proceso de ejecución el Abogado Director determine la existencia de gravámenes hipotecarios de varios grados otorgados a favor del Banco deberá proceder, previo a la presentación de la demanda, a comunicar a la UICJ sobre la existencia de dicha situación, a fin de que ésta en un plazo máximo de tres días hábiles, verifique el estado de todas las operaciones garantizadas y le instruya al abogador director como proceder.
+El resto de los artículos del citado Reglamento permanecen invariables.
+La Uruca 14 de noviembre del 2017.
