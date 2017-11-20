@@ -14,3 +14,4 @@ Implementación y articulación de la estrategia puente al desarrollo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-06-03 | la propia norma |
+| 2 | 2017-11-20 | Decreto Ejecutivo 40836 (2017-11-20) |

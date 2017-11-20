@@ -1,1 +1,2 @@
-Artículo 26°.- Se declara de interés público la Estrategia de Atención a la Pobreza en Costa Rica “Puente al Desarrollo” y todo lo referente con su implementación.
+Artículo 26°.- Instruir a los Comités Intersectoriales Regionales Sociales, instancia de los COREDES, para que incluyan en sus agendas regulares la coordinación de acciones y seguimiento de procesos a nivel regional, atención de procesos colectivos de nivel local, búsqueda activa de propuestas para la atención de necesidades de las familias de la región y definición de acciones regionales para la implementación de la Estrategia Puente al Desarrollo.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 40836 del 20 de noviembre de 2017)

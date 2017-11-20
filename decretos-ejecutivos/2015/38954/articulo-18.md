@@ -1,78 +1,80 @@
-ARTÍCULO 18°.- Las instituciones señaladas en el artículo 21 de este decreto deberán priorizar la atención de las personas en condición de pobreza extrema según los 75 distritos con mayores índices de pobreza.
-Cantón | Distrito
-701 | Limón | Limón | 70101
-702 | Pococi | Cariari | 70205
-701 | Limón | Valle La Estrella | 70102
-501 | Liberia | Liberia | 50101
-702 | Pococi | Rita | 70203
-703 | Siquirres | Siquirres | 70301
-410 | Sarapiquí | Las Horquetas | 41003
-119 | Pérez Zeledón | San Isidro de El General | 11901
-101 | San José | Uruca | 10107
-603 | Buenos Aires | Buenos Aires | 60301
-214 | Los Chiles | Los Chiles | 21401
-101 | San José | Pavas | 10109
-601 | Puntarenas | Barranca | 60108
-119 | Pérez Zeledón | Daniel Flores | 11903
-702 | Pococi | Guápiles | 70201
-705 | Matina | Batán | 70502
-210 | San Carlos | Pocosol | 21013
-103 | Desamparados | Los Guido | 10313
-213 | Upala | Upala | 21301
-110 | Alajuelita | San Felipe | 11005
-702 | Pococi | Roxana | 70204
-410 | Sarapiquí | Puerto Viejo | 41001
-401 | Heredia | San Francisco | 40103
-601 | Puntarenas | Chacarita | 60112
-502 | Nicoya | Nicoya | 50201
-706 | Guácimo | Guácimo | 70601
-704 | Talamanca | Sixaola | 70402
-503 | Santa Cruz | Santa Cruz | 50301
-704 | Talamanca | Telire | 70404
-210 | San Carlos | Cutris | 21011
-606 | Aguirre | Quepos | 60601
-504 | Bagaces | Bagaces | 50401
-609 | Parrita | Parrita | 60901
-506 | Cañas | Cañas | 50601
-705 | Matina | Carrandi | 70503
-108 | Goicoechea | Purral | 10807
-608 | Coto Brus | Sabalito | 60802
-213 | Upala | San José o Pizote | 21303
-705 | Matina | Matina | 70501
-510 | La Cruz | La Cruz | 51001
-608 | Coto Brus | San Vito | 60801
-510 | La Cruz | Santa Cecilia | 51002
-210 | San Carlos | Pital | 21006
-Cantón | Distrito
-704 | Talamanca | Bratsi | 70401
-301 | Cartago | San Nicolás | 30104
-119 | Pérez Zeledón | San Pedro | 11905
-603 | Buenos Aires | Potrero Grande | 60303
-607 | Golfito | Guaycará | 60703
-305 | Turrialba | Chirripo | 30512
-505 | Carrillo | Sardinal | 50503
-601 | Puntarenas | El Roble | 60115
-118 | Curridabat | Tirrases | 11804
-119 | Pérez Zeledón | Pejibaye | 11907
-704 | Talamanca | Cahuita | 70403
-113 | Tibás | León XIII | 11304
-610 | Corredores | Laurel | 61004
-607 | Golfito | Pavón | 60704
-201 | Alajuela | San José | 20102
-210 | San Carlos | Quesada | 21001
-301 | Cartago | Aguacaliente o San Francisco | 30105
-210 | San Carlos | Aguas Zarcas | 21004
-119 | Pérez Zeledón | Cajón | 11908
-611 | Garabito | Jaco | 61101
-302 | Paraíso | Llanos de Santa Lucía | 30205
-610 | Corredores | Corredor | 61001
-410 | Sarapiquí | La Virgen | 41002
-101 | San José | Hatillo | 10110
-103 | Desamparados | San Miguel | 10302
-706 | Guácimo | Río Jiménez | 70604
-203 | Grecia | Río Cuarto | 20306
-701 | Limón | Río Blanco | 70103
-703 | Siquirres | Pacuarito | 70302
-601 | Puntarenas | Lepanto | 60104
-605 | Osa | Palmar | 60502
-213 | Upala | Delicias | 21305
+ARTÍCULO 18°.- Las instituciones señaladas en el artículo 21 de este decreto deberán priorizar la atención de las personas en condición de pobreza extrema según los 76 distritos con mayores índices de pobreza.
+REGIÓN | CANTÓN | DISTRITO
+CENTRAL | 101 | San José | 10107 | Uruca
+| | | 10109 | Pavas
+| | | 10110 | Hatillo
+| 103 | Desamparados | 10302 | San Miguel
+| | | 10303 | Los Guidos
+| 108 | Goicoechea | 10807 | Purral
+| 110 | Alajuelita | 11005 | San Felipe
+| 113 | Tibás | 11304 | León XIII
+| 118 | Curridabat | 11804 | Tirrases
+| 301 | Cartago | 30104 | San Nicolás
+| | | 30105 | Aguacaliente o San Francisco
+| 302 | Paraíso | 30205 | Llanos de Santa Lucía
+| 305 | Turrialba | 30512 | Chirripó
+| 401 | Heredia | 40103 | San Francisco
+BRUNCA | 119 | Pérez Zeledón | 11901 | San Isidro de El General
+| | | 11903 | Daniel Flores
+| | | 11905 | San Pedro
+| | | 11907 | Pejibaye
+| | | 11908 | Cajón
+| | | 11912 | La Amistad
+| 603 | Buenos Aires | 60301 | Buenos Aires
+| | | 60303 | Potrero Grande
+| 605 | Osa | 60502 | Palmar
+| 606 | Aguirre | 60601 | Quepos
+| 607 | Golfito | 60703 | Guaycará
+| | | 60704 | Pavón
+| 608 | Coto Brus | 60801 | San Vito
+| | | 60802 | Sabalito
+| 610 | Corredores | 61001 | Corredor
+| | | 61004 | Laurel
+CHOROTEGA | 501 | Liberia | 50101 | Liberia
+| 502 | Nicoya | 50201 | Nicoya
+| 503 | Santa Cruz | 50301 | Santa Cruz
+| 504 | Bagaces | 50401 | Bagaces
+| 505 | Carrillo | 50503 | Sardinal
+| 506 | Cañas | 50601 | Cañas
+| 510 | La Cruz | 51001 | La Cruz
+| | | 51002 | Santa Cecilia
+HUETAR CARIBE | 703 | Siquirres | 70301 | Siquirres
+| 701 | Limón | 70101 | Limón
+| | | 70102 | Valle La Estrella
+| | | 70103 | Río Blanco
+| 702 | Pococí | 70201 | Guápiles
+| | | 70203 | Rita
+| | | 70204 | Roxana
+| | | 70205 | Cariari
+| 703 | Siquirres | 70302 | Pacuarito
+| 704 | Talamanca | 70401 | Bratsi
+| | | 70402 | Sixaola
+| | | 70403 | Cahuita
+| | | 70404 | Telire
+| 705 | Matina | 70501 | Matina
+| | | 70502 | Batán
+| | | 70503 | Carrandi
+| 706 | Guácimo | 70601 | Guácimo
+| | | 70604 | Río Jiménez
+HUETAR NORTE | 210 | San Carlos | 21001 | Quesada
+| | | 21004 | Aguas Zarcas
+| | | 21006 | Pital
+| | | 21011 | Cutris
+| | | 21013 | Pocosol
+| 213 | Upala | 21301 | Upala
+| | | 21303 | San José o Pizote
+| | | 21305 | Delicias
+| 214 | Los Chiles | 21401 | Los Chiles
+| 216 | Río Cuarto | 21601 | Río Cuarto
+| 410 | Sarapiquí | 41001 | Puerto Viejo
+| | | 41002 | La Virgen
+| | | 41003 | Horquetas
+PACÍFICO CENTRAL | 601 | Puntarenas | 60104 | Lepanto
+| | | 60108 | Barranca
+| | | 60112 | Chacarita
+| | | 60115 | El Roble
+| 606 | Aguirre | 60601 | Quepos
+| 609 | Parrita | 60901 | Parrita
+| 611 | Garabito | 61101 | Jaco
+| 201 | Alajuela | 20102 | San José
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40836 del 20 de noviembre de 2017)
