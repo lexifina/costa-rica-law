@@ -1,0 +1,1 @@
+Artículo 2°—Las normas, reglas, disposiciones y procedimientos establecidos en este Reglamento y las políticas que se originan de los mismos, son de aplicación obligatoria para todos las personas receptoras de estos beneficios.
