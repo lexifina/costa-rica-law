@@ -1,1 +1,0 @@
-Artículo 5°.- Dependencia encargada de aplicar el incentivo. El Departamento de Rentas de la municipalidad de Siquirres será el encargado de aplicar el incentivo y de actualizar el porcentaje que se utilizará en la aplicación de éste.
