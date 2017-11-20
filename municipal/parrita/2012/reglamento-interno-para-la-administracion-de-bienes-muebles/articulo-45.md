@@ -1,1 +1,0 @@
-Artículo 45.—De considerarse que el activo dañado no es susceptible de ser reparado, la Unidad de Proveeduría enviará nota a la Unidad de Contabilidad, solicitando el descargo del activo, comunicando tal situación a la Alcaldía Municipal.

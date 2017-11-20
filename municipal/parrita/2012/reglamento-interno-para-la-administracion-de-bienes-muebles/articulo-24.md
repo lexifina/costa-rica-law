@@ -1,1 +1,0 @@
-Artículo 24.—Los bienes muebles de uso individual deben ser asignados a cada Funcionario para su utilización personal. Los bienes de uso general, serán asignados al jefe de la unidad administrativa en que se encuentren localizados.

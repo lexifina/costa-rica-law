@@ -1,1 +1,0 @@
-Artículo 9º—Todo funcionario es responsable de mantener en buen estado la placa adhesiva o metálica. En caso de que se despegue de su sitio o que se deteriore, se comunicará de forma inmediata a la unidad de Proveeduría para que esta le brinde la solución.

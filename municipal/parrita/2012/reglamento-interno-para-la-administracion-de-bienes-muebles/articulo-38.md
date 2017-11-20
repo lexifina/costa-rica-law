@@ -1,1 +1,0 @@
-Artículo 38.—La Unidad de Proveeduría y La Unidad de Servicio Jurídicos, realizaran el trámite para el registro, ante los distintos organismos, de aquellos activos que por sus características requieran ser inscritos. Lo anterior antes de la asignación de los mismos.
