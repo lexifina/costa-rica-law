@@ -1,0 +1,1 @@
+Artículo 8º—Autoridad responsable: La fiscalización corresponde al personal asignado por la municipalidad, con la colaboración de la Fuerza Pública. Esas autoridades realizarán los informes respectivos ante los incumplimientos detectados a las disposiciones del presente Reglamento, mediante un informe que será remitido a la Alcaldía Municipal para el trámite respectivo.

@@ -1,0 +1,1 @@
+Artículo 2.-Objeto. Regular el uso, mantenimiento y protección de los parques y demás espacios públicos del cantón de Orotina, incluyendo la infraestructura, equipamiento urbano, flora, fauna y demás elementos que se encuentren en los mismos, para su preservación y propiciar el disfrute familiar así como el mejoramiento de la calidad de vida de las y los habitantes del cantón.
