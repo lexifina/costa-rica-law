@@ -1,0 +1,1 @@
+Artículo 31º.-Responsables de verificar el cumplimiento. Los responsables de verificar el cumplimiento del informe de Fin de Gestión por parte de los titulares subordinados, de conformidad con las directrices vigentes sobre esta materia, es el Departamento de Recursos Humano.

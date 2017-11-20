@@ -1,0 +1,2 @@
+Artículo 11º.-Funciones del secretario (a) de actas. El secretario de actas será el responsable de las convocatorias, las que se realizarán con una semana de anticipación. Además, deberá llevar un orden de actas en cada una de las reuniones ordinarias o extraordinarias. Tendrá bajo su cargo la custodia del libro de actas, el cual debe entregar a quien preside, al término de su función, con nota explicativa.
+Esta función se asignará a una secretaria del despacho del Alcalde o su representante.

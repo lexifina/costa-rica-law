@@ -1,0 +1,3 @@
+CAPITULO VI
+Del informe de fin de gestión
+Artículo 28º.-EI Jerarca y los Titulares Subordinados que se han desempeñado en el puesto de trabajo por un período mínimo de 6 meses, ante un traslado o fin de gestión, deberán obligatoriamente entregar a más tardar el último día hábil de labores, el informe de fin de gestión, indistintamente de la causa por la que deja su cargo. En caso de que la salida del funcionario se produzca en forma repentina deberá presentar el informe en un plazo máximo de 10 días hábiles, contados a partir del día siguiente en que deja el puesto. Dicho informe debe ser entregado a su superior inmediato, con copia para el funcionario sucesor.

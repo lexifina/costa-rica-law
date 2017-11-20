@@ -1,0 +1,1 @@
+Artículo 6°-Comisión de Control Interno. Se crea la Comisión de Control Interno (en adelante se identifica con las siglas COCJ), con el fin de liderar, y conducir el proceso de control interno institucional, con el apoyo de la Alcaldía Municipal.

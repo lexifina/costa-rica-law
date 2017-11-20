@@ -1,0 +1,1 @@
+Artículo 16º.-Implementación y periodicidad de Autoevaluaciones. Se aplican las autoevaluaciones del SCII en cumplimiento de lo dispuesto en el artículo 17 inciso c) de la LGCI; que obliga a la administración activa a ejecutar esta, por lo menos una vez al año.

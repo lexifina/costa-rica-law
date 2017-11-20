@@ -1,0 +1,1 @@
+Artículo 13°.-Resultado de evaluaciones. Es responsabilidad del Jerarca y titulares Subordinados incorporar dentro de su plan de trabajo, las recomendaciones y acciones correctivas resultantes de la evaluaciones realizadas por la Administración Activa, las Auditorías Internas y Externa, la Contraloría General de la República y demás entidades de fiscalización y control.

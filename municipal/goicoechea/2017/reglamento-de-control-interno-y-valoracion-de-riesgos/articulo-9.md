@@ -1,0 +1,3 @@
+Artículo 9°-Conformación de la COCI. Estará integrada por el titular de la Alcaldía o su representante, los integrantes de la Comisión Coordinadora y el Equipo Gerencial. En sus sesiones de la COCI estará presidida por el Alcalde (sa) o su representante.
+Para que exista quórum, es necesaria la mayoría simple de sus miembros.
+Los nombramientos de los miembros de la COCI tendrán una vigencia de cuatro años, contados a partir de la fecha de toma de posesión del cargo del Alcalde (sa). Para el presente periodo los nombramientos se mantendrán hasta finalizar el presente periodo de nombramiento de Alcaldesa.

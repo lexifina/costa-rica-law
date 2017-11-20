@@ -1,0 +1,4 @@
+Artículo 8°-Sesiones de la Comisión de Control Interno. Dicha Comisión sesionará ordinariamente al menos una vez al mes.
+La agenda de la sesión ordinaria, la fecha propuesta y toda la documentación por conocer será remitida por la Alcaldía o su representante, como coordinador de la misma, a los integrantes de la COCI para su conocimiento y análisis, por medio de correo electrónico u algún otro medio que se determine.
+Además, la COCl sesionará de forma extraordinaria para conocer los temas que tengan relación con la materia de Control Interno como conflictos u otros asuntos importantes por definir (situaciones de emergencia, fuerza mayor), lo cual se convocará con al menos tres días de antelación a la fecha propuesta de la sesión.
+Los miembros de la COCJ podrán incorporar en la agenda de las sesiones ordinarias temas de trascendental importancia en materia de Control Interno, con al menos dos días de anticipación a la fecha de la sesión.

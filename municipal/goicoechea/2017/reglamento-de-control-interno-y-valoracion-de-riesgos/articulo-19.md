@@ -1,0 +1,1 @@
+Artículo 19º.-Cuestionario para la Autoevaluación. El diseño del cuestionario de autoevaluación podrá ser modificado y adaptado año con año de acuerdo con la realidad institucional o el interés del máximo Jerarca Administrativo.
