@@ -14,3 +14,4 @@ Reglamento del programa bicipublicicartago V etapa programa movilidad sana y sos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-03-02 | la propia norma |
+| 2 | 2017-11-21 | Reglamento municipal 0 (2017-11-21) |

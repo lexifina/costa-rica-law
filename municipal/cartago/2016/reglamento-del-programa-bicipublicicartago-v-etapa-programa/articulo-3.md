@@ -1,2 +1,3 @@
-Artículo 3°—Plazo de la Segunda Fase del Plan Piloto Programa BicipubliCartago.
-Esta segunda fase del Plan Piloto, tendrá una duración de 1 año contado a partir de la entrada en vigencia de este reglamento.
+Artículo 3.- Permanencia del Programa BicipubliCartago y sus modificaciones. El Programa BicipubliCartago será un programa permanente de la Municipalidad de Cartago, cuyo impacto de valor público en la calidad de vida de la población cartaginesa deberá ser medido periódicamente.
+Las condiciones de operación del Programa BicipubliCartago podrán ser modificadas en cualquier momento por la Administración, en aras de lograr las mejores prácticas de gestión pública. La operación del Programa podrá coadministrarse, automatizarse o eliminarse en cualquier momento en beneficio del interés público.
+La persona usuaria afiliada será informada con anticipación de los cambios, por el medio que la Administración considere más efectivo.

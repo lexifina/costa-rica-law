@@ -1,4 +1,4 @@
-Artículo 10.—Prohibiciones. La persona usuaria no podrá:
+Artículo 10.- Prohibiciones. La persona usuaria no podrá:
 a. Descender gradas conduciendo la bicicleta o realizar actividades como saltos, piruetas, malabares u otros que puedan afectar la integridad de sí mismo, de terceras personas o de la unidad
 b. Circular sobre las aceras.
 c. Transportar la bicicleta en cualquier otro medio de transporte, a excepción de casos fortuitos de avería o fuerza mayor.
