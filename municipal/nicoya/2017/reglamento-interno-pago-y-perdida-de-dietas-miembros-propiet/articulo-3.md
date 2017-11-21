@@ -1,0 +1,1 @@
+Artículo 3°—Los viáticos correspondientes a transporte, hospedaje y alimentación para regidores y síndicos, propietarios y suplentes, cuando residan lejos de la sede municipal, se pagarán con base en la tabla de la Contraloría General de la República.

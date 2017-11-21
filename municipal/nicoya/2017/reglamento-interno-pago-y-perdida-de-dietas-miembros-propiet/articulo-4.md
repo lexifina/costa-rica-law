@@ -1,0 +1,1 @@
+Artículo 4°—Las dietas de los regidores y síndicos municipales podrán aumentarse anualmente hasta en un veinte por ciento (20%), siempre que el presupuesto municipal ordinario haya aumentado en relación con el precedente, en una proporción igual o superior al porcentaje fijado.
