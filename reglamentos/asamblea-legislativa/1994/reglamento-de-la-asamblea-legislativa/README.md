@@ -43,3 +43,4 @@ Reglamento de la Asamblea Legislativa
 | 28 | 2016-03-14 | Reglamento 158 (2016-03-14) |
 | 29 | 2016-06-09 | Reglamento 25 (2016-06-09) |
 | 30 | 2017-04-25 | Reglamento 176 (2017-04-25) |
+| 31 | 2017-11-21 | Reglamento 99 (2017-11-21) |
