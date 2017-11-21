@@ -15,3 +15,4 @@ Reglamento de Modificaciones Presupuestarias de la Municipalidad del Cantón Cen
 | --- | --- | --- |
 | 1 | 2013-12-17 | la propia norma |
 | 2 | 2016-03-20 | Reglamento municipal 0 (2016-03-20) |
+| 3 | 2017-11-21 | Reglamento municipal 0 (2017-11-21) |

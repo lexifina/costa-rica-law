@@ -1,1 +1,1 @@
-Artículo 6º—Las solicitudes de modificación al presupuesto que se requieran deben presentarse para su conocimiento y aprobación en el periodo de enero hasta la primera semana del mes de diciembre.
+Artículo 6º—(Eliminado en acta N° 119-2017 del 21 de noviembre de 2017)
