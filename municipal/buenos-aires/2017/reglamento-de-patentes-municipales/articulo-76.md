@@ -1,0 +1,1 @@
+ARTÍCULO 76 - Los vendedores ambulantes no podrán permanecer estacionados en un mismo sitio, salvo el tiempo necesario que lo requiera el cliente, el tiempo mencionado para atender al cliente comprador no podrá ser superior a los 15 minutos.

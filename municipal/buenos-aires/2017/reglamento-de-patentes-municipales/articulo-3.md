@@ -1,0 +1,1 @@
+ARTÍCULO 3 - PRINCIPIOS RECTORES DEL PROCEDIMIENTO. En relación a los principios rectores del procedimiento para conferir licencias operan los indicados en la Ley de Patentes de la Municipalidad de Buenos Aires y reglamento.

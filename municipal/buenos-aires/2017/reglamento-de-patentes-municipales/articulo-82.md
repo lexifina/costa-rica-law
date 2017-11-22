@@ -1,0 +1,1 @@
+ARTÍCULO 82 - Queda terminantemente prohibido al vendedor ambulante la cesión, donación, venta o cualquier forma de traspaso de su licencia. Al que se le comprobase tal negociación se le cancelará la licencia

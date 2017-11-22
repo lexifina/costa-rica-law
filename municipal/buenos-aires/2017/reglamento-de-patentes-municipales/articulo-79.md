@@ -1,0 +1,1 @@
+ARTÍCULO 79 - Los vendedores de lotería y chances, deberán solicitar la respectiva licencia. Todos los vendedores contemplados en este artículo serán eximidos de los requisitos del estudio socioeconómico para la obtención de la licencia y no podrán hacer uso de ningún tipo de mobiliario para ejercer la actividad en vías pública.

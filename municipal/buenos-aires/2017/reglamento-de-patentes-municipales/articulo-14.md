@@ -1,0 +1,10 @@
+ARTÍCULO 14-REQUISITOS GENERALES. Bajo pena de inadmisibilidad todas las solicitudes para los trámites de licencias o patentes municipales deberán contener los siguientes requisitos generales:
+a) Presentar el formulario de solicitud debidamente lleno y firmado por el solicitante o por el representante legal, donde se indique, nombre o razón social del solicitante, descripción de la actividad, dirección, número de teléfono, número de fax, correo electrónico, apartado postal y lugar para notificaciones. En caso de sociedades anónimas debe indicar, además, el nombre de su representante legal y su domicilio social.
+b) Adjuntar copia del Permiso Sanitario de Funcionamiento emitido por el Ministerio de Salud.
+c) Documentos que demuestren la identidad del solicitante: si se tratare de persona física será la cédula de identidad, el pasaporte, la cédula de residencia o cualquier otro idóneo al efecto. Si se tratare de personas jurídicas deberán aportar la certificación de personería jurídica y además una copia certificada de la cédula de persona jurídica.
+d) Señalar un medio idóneo, conforme a la práctica judicial en esta materia, para atender notificaciones, conforme a lo que establece la Ley No 8687 que es la Ley de Notificaciones Judiciales. De no hacerlo, las resoluciones que se dicten se tendrán como notificadas con el solo transcurso de veinticuatro horas.
+e) Estar al día en la Caja Costarricense de Seguro Social y Asignaciones Familiares.
+f) Adjunta copia del contrato de arrendamiento o documento que lo acredite como dueño de la propiedad.
+g) El solicitante y el propietario del inmueble deben estar al día en la cancelación de los tributos municipales (servicios, impuestos), así mismo no debe contar pendientes por patentes anteriores a la solicitada en el momento.
+h) El solicitante y el propietario del inmueble deben tener actualizadas sus declaraciones de Bienes Inmuebles según lo establece la Ley 7509, para cualquier tipo de patente que solicite.
+i) Copia de Certificado de Uso de suelo aprobado

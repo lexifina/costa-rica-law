@@ -1,0 +1,1 @@
+ARTÍCULO 33 - VIGENCIA Y FORMA DE PAGO DEL IMPUESTO DE PATENTES El impuesto de patente tendrá vigencia para el año natural siguiente a la declaración. El impuesto se pagará por trimestres adelantados, durante los meses de marzo, junio, setiembre y diciembre.

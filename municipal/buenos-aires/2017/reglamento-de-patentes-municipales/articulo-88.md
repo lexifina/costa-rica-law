@@ -1,0 +1,1 @@
+ARTÍCULO 88 - Las resoluciones del Departamento de Patentes que ordenen la caducidad de la licencia por falta de pago, no tendrán recurso alguno y su tramitación no admitirá prueba en contrario, salvo la excepción de pago. Las demás resoluciones se regirán por lo que dispone el artículo 162 del Código Municipal.

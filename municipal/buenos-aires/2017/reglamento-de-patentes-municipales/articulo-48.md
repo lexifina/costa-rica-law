@@ -1,0 +1,7 @@
+ARTÍCULO 48-CLAUSURA DE LA ACTIVIDAD. En los casos que se detallan a continuación quedan facultadas las autoridades municipales para acudir a la Fuerza Pública para proceder a la clausura de la actividad en los términos establecidos en el Ordenamiento Jurídico sin responsabilidad para esta Municipalidad.
+a) Para los efectos que conciernen a la ejecución de esta clausura los funcionarios municipales podrán proceder a marcar con sellos o cinta de seguridad el área del inmueble que sea necesario restringir, y de ese modo el patentado no pueda seguir explotando la actividad.
+b) En cualquier caso, que la Municipalidad conozca y confirme que existe una actividad lucrativa que se ejerce dentro del Cantón de Buenos Aires sin la correspondiente patente municipal.
+c) En cualquier caso, que la Municipalidad conozca y confirme el no cumplimiento de alguno (s) de los requisitos establecidos en este Reglamento y en la Ley, o cualquier otra norma jurídica vigente a la fecha, por parte de aquel a quien se haya otorgado un permiso o patente en los términos regulados por este Reglamento.
+d) En los casos en que se conozca y confirme por parte de las autoridades municipales que el patentado está desarrollando actividades lucrativas en los inmuebles o muebles en que explota la licencia que no hayan sido expresamente autorizados por la Municipalidad.
+e) En los casos de que no exista o no se exhiba el certificado de la tenencia de la licencia municipal.
+f) En los casos de que se declare un acto de suspensión de patentes.

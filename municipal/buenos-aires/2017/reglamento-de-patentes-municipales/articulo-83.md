@@ -1,0 +1,1 @@
+ARTÍCULO 83 - La solicitud de cambio de línea comercial deberá ser tramitada de forma escrita dirigida al Departamento de Patentes de la Municipalidad de Buenos Aires. La Administración tendrá un plazo de 10 días hábiles para resolver la solicitud realizada por el patentado.

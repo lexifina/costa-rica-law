@@ -1,0 +1,1 @@
+ARTÍCULO 2 - ÁREA DE INFLUENCIA GEOGRÁFICA DE APLICACIÓN. Este Reglamento podrá ser aplicado para todas aquellas actividades lucrativas y productivas que requieran licencias municipales ubicadas en el cantón de Buenos Aires.

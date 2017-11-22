@@ -1,0 +1,1 @@
+ARTÍCULO 96 - El requisito de la declaración jurada que se indica en el artículo anterior deberá presentarse en casos de trámite de solicitud nueva, renovación o cuando la Administración Tributaria así lo requiera para verificar tal condición.

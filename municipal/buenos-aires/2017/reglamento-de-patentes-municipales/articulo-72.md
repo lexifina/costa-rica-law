@@ -1,0 +1,2 @@
+ARTÍCULO 72 - Se concederá únicamente una licencia para este tipo de actividad de familia, entendiendo por familia a la pareja de esposos o compañeros y sus hijos no casados o en estado de unión libre.
+En caso de muerte o incapacidad permanente del concesionario, dentro del mes del fallecimiento deberá solicitarse una nueva licencia y tendrá prioridad el cónyuge sobreviviente o compañera (o), o alguno de sus hijos mayores siempre que no sea casado o en estado de unión libre y siempre y cuando reúna las condiciones del estudio socioeconómico.

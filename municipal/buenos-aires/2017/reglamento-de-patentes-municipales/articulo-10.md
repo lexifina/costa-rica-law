@@ -1,0 +1,1 @@
+ARTÍCULO 10 - OBLIGACIONES DE LA MUNICIPALIDAD. La Municipalidad deberá hacer cumplir la Ley y las otras normas relacionadas con ella, para el ejercicio de un efectivo, eficaz y oportuno cumplimiento de esta obligación y podrá acudir a las otras Instituciones del Estado, las cuales están obligadas a colaborar en este sentido, y coordinar con ellas la ejecución de esta normativa.

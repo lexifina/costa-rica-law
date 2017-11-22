@@ -1,0 +1,1 @@
+ARTÍCULO 64 - Las personas físicas y jurídicas que en este momento ya cuenten con la licencia municipal para máquinas, se les otorga un plazo de sesenta días naturales a partir de la publicación del presente Reglamento, para que se ajusten al mismo, caso contrario se procederá con la clausura automática del local comercial y posterior cancelación de la licencia.

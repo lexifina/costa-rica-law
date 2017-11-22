@@ -1,0 +1,6 @@
+ARTÍCULO 67-AUTORIZACION PARA EL COMISO DE LAS MAQUINAS DE JUEGO U OTROS SIMILARES. En los casos que se decomisen máquinas por parte de la Municipalidad de este cantón y en el ejercicio propio de sus funciones y facultades, se podrá optar por el comiso dela mercadería según las siguientes indicaciones:
+a) Para ejecutar lo establecido en artículo la Administración Municipal deberá acondicionar un espacio con el propósito de guardar y custodiar dichas máquinas.
+b) La Municipalidad no se hará responsable por el deterioro normal del paso del tiempo o naturales y dicho deterioro correrá por cuenta de quien se diga dueño de las máquinas.
+c) Las máquinas que sean decomisadas en atención de lo dispuesto en el artículo anterior, será custodiada en el lugar que al efecto la municipalidad disponga para ello.
+d) El retiro de dichas máquinas deberá realizarlo la persona que se identifique, mediante documentos idóneos u otros medios de prueba, presentados a satisfacción de la autoridad municipal responsable, ser la titular de dicha máquinas.
+e) Pasado los 30 días, la municipalidad podrá disponer de dichos bienes, para lo cual el Concejo Municipal nombrará una comisión especial que se encargue de las acciones de disponer las máquinas.

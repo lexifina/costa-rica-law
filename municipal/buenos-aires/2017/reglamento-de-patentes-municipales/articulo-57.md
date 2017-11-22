@@ -1,0 +1,8 @@
+ARTÍCULO 57-TRAMITE DE DEVOLUCION DE MERCADERIAS Las mercaderías decomisadas por la Municipalidad de Buenos Aires, las cuales podrán ser devueltas a los interesados, cumpliendo con la presentación de los siguientes aspectos:
+a) Se debe presentar la solicitud por escrito de la devolución de las mercaderías, dentro del plazo de veinticuatro horas después de realizado decomiso.
+b) Se debe aportar los documentos de identidad de la persona a quien se le practicó el acto de decomiso.
+c) Se debe presentar los documentos pertinentes que acrediten la titularidad delas mercaderías decomisadas. El documento idóneo y válido en este caso serán las facturas Timbradas en donde se especifica la adquisición y características de la mercadería. La administración municipal analizará y validará la solicitud y documentos presentados y determinará la viabilidad de devolución de la mercadería decomisada.
+d) En caso de ser aprobada la respectiva devolución, se procederá al cálculo y cobro de la Multa por Decomiso plasmada en la Ley.
+e) Posterior al pago de la Multa por parte del infractor, se procederá a la devolución de la mercadería decomisada, la cual debe ser retirada por la persona facultada para tal gestión, dentro de un plazo no mayor a 30 días naturales.
+f) La mercadería decomisada será devuelta por única vez al dueño de la mercadería, de ser reincidente se traslada el caso a la Asesoría Jurídica para que se realice el proceso administrativo correspondiente.
+g) Para el trámite de devolución de las mercaderías establecidas en los incisos anteriores solo será posible por una única vez. En casos de reincidencia no procede el trámite de devolución establecido en este artículo.

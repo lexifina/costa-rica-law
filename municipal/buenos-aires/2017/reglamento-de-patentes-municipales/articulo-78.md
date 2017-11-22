@@ -1,0 +1,1 @@
+ARTÍCULO 78 - Quedan terminantemente prohibidas para los vendedores ambulantes las ventas en escaparates de comercios establecidos cuyos dependientes y/o productos ocupen la vía pública para ejercer la actividad.

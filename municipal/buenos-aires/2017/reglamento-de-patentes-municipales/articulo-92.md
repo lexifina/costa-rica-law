@@ -1,0 +1,1 @@
+ARTÍCULO 92 - El no pago del impuesto de patentes en los términos fijados en la ley y este Reglamento, generará intereses de acuerdo al procedimiento aplicado para el cobro de los mismos, por parte de la Municipalidad. Para tal procedimiento se aplicará lo establecido en el último párrafo del Artículo 69 del Código Municipal.

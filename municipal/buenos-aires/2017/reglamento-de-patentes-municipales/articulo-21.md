@@ -1,0 +1,1 @@
+ARTÍCULO 21 - RESOLUCIÓN ADMINISTRATIVA La resolución que concede o deniega la licencia municipal deberá contener, al menos, requisitos mínimos exigidos en la Ley y Reglamento de Regulación de Licencias y Patentes del cantón de Buenos Aires,

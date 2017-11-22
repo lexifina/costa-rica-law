@@ -1,0 +1,1 @@
+ARTÍCULO 24 - RECURSO EXTRAORDINARIO DE REVISIÓN El administrado podrá interponer recurso extraordinario de revisión contra la resolución administrativa que resuelva su gestión, de conformidad con lo que establece el artículo 163 del Código Municipal

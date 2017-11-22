@@ -1,0 +1,1 @@
+ARTÍCULO 46 - En el caso que una patente deje de funcionar o se encuentre el local cerrado, la municipalidad puede de oficio suspenderla y revocarla con previa acta de inspección aportada por el inspector municipal verificando el cierre del establecimiento.
