@@ -1,0 +1,1 @@
+Artículo 17.-Coordinación Interdepartamental: La Oficina de Gestión Institucional de Recursos Humanos informará a la Proveeduría Institucional, con base en la lista que ésta le remitirá, cualquier movimiento de personal que involucre personas servidoras a los que se les ha asignado teléfono celular, con el fin de coordinar lo indicado en el presente Reglamento.

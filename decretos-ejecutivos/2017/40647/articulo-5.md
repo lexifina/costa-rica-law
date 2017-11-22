@@ -1,0 +1,1 @@
+Artículo 5°-Uso Exclusivo: El teléfono celular asignado es un beneficio de uso exclusivo de la persona servidora que se le asigna, con el fin único de atender y realizar llamadas, revisar y remitir mensajes o correos electrónicos, relativos al cumplimiento de las funciones, tareas y actividades propias de su cargo.
