@@ -1,0 +1,1 @@
+Artículo 2.- Objetivo General.- El Programa "Érase una vez" tiene como objetivo general fomentar, incentivar, apoyar y propiciar la producción de obras de arte escénico, de claro y evidente interés cultural y educativo y garantizar el acceso de la población estudiantil a las puestas en escena de este programa.
