@@ -1,0 +1,18 @@
+CIRCULAR Nº 187-2017
+Asunto: Informe relacionado con la “Evaluación de los Planes Anuales Operativos 2016 y 2017”
+A LOS DESPACHOS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 103- 17 celebrada el 14 de noviembre de 2017, artículo LXX, como recomendación de los resultados obtenidos del informe N° 1485- PLA-2017, relacionado con la “Evaluación de los Planes Anuales Operativos 2016 y 2017” de la Dirección de Planificación, dispuso comunicar a todas las oficinas y despachos judiciales del país, lo que se dirá:
+“a. Ejecutar lo señalado mediante la Circular N° 5-2017 en la que se solicita a todos los despachos y oficinas judiciales del país que elaboraron sus Planes Anuales Operativos en el nuevo Sistema de Formulación y Seguimiento a los Planes Anuales Operativos, el deber de mantener actualizado el avance logrado en cada una de las metas formuladas.
+b. Procurar que la formulación de los objetivos y metas sean realizables a lo largo de todo el año, y evitar consignar que el plazo de todas las metas sean concretadas al finalizar el año.
+c. Gestionar la inclusión de avances en el Sistema PAO para poder generar el panorama completo del nivel del cumplimiento de cada oficina judicial que aún no han registrado ningún avance.
+Además, deberán las Administraciones Regionales y Centros de Responsabilidad:
+1. Mejorar el apoyo y revisión del proceso de Formulación y Seguimiento de Planes Anuales Operativos. Algunos puntos que deben fortalecer son los siguientes: a.-La utilización de datos históricos de variables que produce la oficina, para que la elaboración de la meta sea acorde a la realidad y se pueda alcanzar efectivamente. b.-La importancia de tomar en cuenta la capacidad instalada de la oficina, para cumplir con las metas que se proponen. c.-La utilización efectiva de la programación de actividades, para dar seguimiento mensual, garantizando el avance de las metas y la efectiva distribución de los recursos programados para su cumplimiento. d.-La importancia de realizar de manera anticipada la coordinación con instancias relacionadas a la ejecución de las metas propuestas y presupuesto formulado, en procura de lograr el compromiso de las mismas. e.-La debida inclusión de indicadores en la gestión de las oficinas (producto de estudios e informes técnicos de la Dirección de Planificación).
+2. Llevar a cabo una revisión de los registros de avances de las oficinas que reportan porcentajes totales de cumplimiento por debajo del parámetro de 30% en el alcance de sus objetivos, lo que implica una atención prioritaria a los avances de las metas que no registran aún ninguna acción. Esta situación puede sugerir dificultades en la organización interna por lo que se hace necesario informar porque razones sus objetivos y metas se encuentran con tan bajo nivel de avances, ya sea porque no se atendió a la Circular N° 5-17 o porque se están llevando a cabo otras actividades no programadas en el Plan Anual Operativo de sus oficinas.
+Asimismo, deberán las oficinas en las cuales no se formuló PAO del 2017, contar con el apoyo y guía de las Unidades Administrativas y los Centros de Responsabilidad para que en el momento en que entre en funcionamiento, se les proporcione la inducción para elaborar los PAO´s correspondientes, se incorporen al Sistema PAO y se les brinde el seguimiento y avances oportunos.”
+El citado informe, se encuentra en las direcciones electrónicas adjuntas:
+Intranet:
+http://intranet/secretaria/images/documentos/informe-evaluacion-pao2016-2017.doc
+Internet:
+http://www.poder-judicial.go.cr/secretaria/images/ documentos/informe-evaluacionpao2016-2017.doc
+San José, 22 de noviembre del 2017.
