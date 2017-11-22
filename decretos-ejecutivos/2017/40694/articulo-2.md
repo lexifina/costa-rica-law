@@ -1,0 +1,1 @@
+Artículo 2º.· Se declara de interés público la ejecución de las acciones establecidas en la "Estrategia en materia de inserción de los padres y las madres al mercado laboral o educativo, de acuerdo con lo establecido en la Ley Nº 9220".
