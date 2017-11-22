@@ -1,1 +1,1 @@
-Artículo 12.-Conjuntamente con el presupuesto, el Administrador General presentará a la Junta Administrativa el proyecto del Plan Anual Operativo para cada periodo fiscal. Una vez constatado el cumplimiento de todos los requisitos, se enviará para su aprobación a la Junta Directiva.
+Artículo 12.—Conjuntamente con el presupuesto, el Administrador General presentará a la Junta Administrativa el proyecto del Plan Anual Operativo para cada periodo fiscal. Una vez constatado el cumplimiento de todos los requisitos, se enviará para su aprobación a la Junta Directiva.

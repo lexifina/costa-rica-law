@@ -14,3 +14,4 @@ Reglamento de organización de la Fábrica Nacional de Licores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-11-16 | la propia norma |
+| 2 | 2017-11-22 | Reglamento 0 (2017-11-22) |

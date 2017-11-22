@@ -1,4 +1,4 @@
-Artículo 40.-EI Departamento de Recursos Humanos tendrá las siguientes atribuciones:
+Artículo 40.—El Departamento de Recursos Humanos tendrá las siguientes atribuciones:
 a) Realizar todos los trámites y registros que generen los movimientos del personal de FANAL.
 b) Velar por la constante actualización del sistema de clasificación y valoración de puestos.
 c) Mantener sistemas de reclutamiento y selección de personal adecuados al medio de trabajo de FANAL.

@@ -1,1 +1,1 @@
-Artículo 29.-Los responsables de las plantas productoras de alcohol y elaboración de licores velarán por el cumplimiento de las normas de producción y los rendimientos y eficiencias que se establezcan conforme con el diseño de los equipos y la experiencia.
+Artículo 29.—Los responsables de las plantas productoras de alcohol y elaboración de licores velarán por el cumplimiento de las normas de producción y los rendimientos y eficiencias que se establezcan conforme con el diseño de los equipos y la experiencia.
