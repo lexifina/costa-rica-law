@@ -1,0 +1,1 @@
+Artículo 8º—Las obras podrán ser retiradas en el transcurso de los quince días naturales posteriores a la emisión del resultado del concurso. Transcurrido este tiempo, el Teatro Nacional de Costa Rica procederá a la destrucción de los materiales presentados al concurso.

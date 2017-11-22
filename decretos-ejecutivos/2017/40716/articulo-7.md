@@ -1,0 +1,1 @@
+Artículo 7º—El sobre que contenga los datos personales del autor, serán abiertos por los miembros del Jurado, una vez que éste haya establecido por resolución motivada, quién es el ganador del Concurso.

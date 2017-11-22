@@ -1,0 +1,1 @@
+Artículo 5º—Las fechas de las convocatorias se publicarán en algún medio de comunicación colectivo impreso, en el sitio web del Teatro Nacional de Costa Rica, en redes sociales y en otros medios de información que se consideren pertinentes.
