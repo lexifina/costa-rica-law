@@ -1,0 +1,3 @@
+CAPÍTULO III
+DEL REGLAMENTO DE VIDA ESTUDIANTIL
+Artículo 65.- Es obligación de los estudiantes mantener una conducta que se conforme con las normas morales, sociales y jurídicas vigentes en la sociedad costarricense, en todas y cada una de las actividades en las que participe como estudiante, así como en sus relaciones con los docentes, autoridades de la Institución, y sus compañeros. Mediante el Reglamento de Vida Estudiantil, se establecerán las acciones correctivas por aplicar ante las faltas, según su gravedad, en que incurran los estudiantes, así como el procedimiento conducente a su aplicación.

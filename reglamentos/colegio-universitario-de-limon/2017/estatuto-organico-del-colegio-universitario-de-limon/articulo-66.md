@@ -1,0 +1,1 @@
+Artículo 66.- El reglamento regula la participación del estudiante dentro de la comunidad estudiantil, definiendo sus deberes y derechos, representación y participación estudiantil, orientación y asesoría, así como las normas de convivencia.

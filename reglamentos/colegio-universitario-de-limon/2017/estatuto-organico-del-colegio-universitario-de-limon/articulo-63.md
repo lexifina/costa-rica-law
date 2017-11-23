@@ -1,0 +1,1 @@
+Artículo 63.- Los planes de estudios conducentes a las Carreras de Diplomado Parauniversitario (Pregrado) deben armonizar con las definiciones en crédito, duración, evaluación final de graduación y otros, que el Consejo Superior de Educación establezca en la Ley y sus reglamentos.

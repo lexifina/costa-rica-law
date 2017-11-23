@@ -1,0 +1,1 @@
+Artículo 21.- Cualquier funcionario del Colegio Universitario de Limón podrá ser llamado a las sesiones del Consejo Directivo cuando éste lo acuerde, sin que por ello deba recibir remuneración alguna.

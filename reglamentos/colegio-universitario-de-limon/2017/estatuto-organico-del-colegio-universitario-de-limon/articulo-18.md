@@ -1,0 +1,1 @@
+Artículo 18.- Las sesiones deberán iniciarse dentro de los quince minutos siguientes a la hora señalada, conforme al reloj institucional. Si, pasados los quince minutos, no hubiere quórum, se dejará constancia en el libro de actas y se tomará la nómina de los miembros presentes, a fin de acreditarles su asistencia para efecto ausencias justificadas e injustificadas.

@@ -1,0 +1,2 @@
+Artículo 26.- El Consejo Directivo nombrará al Decano por un periodo de dos años, pudiendo ser reelecto por periodos iguales.
+Los nombramientos, cambios o reelecciones deberán ser comunicados al Consejo Superior en el término de 15 días hábiles. Para todo lo referente al nombramiento del Decano se observaran las disposiciones del Reglamento para el Nombramiento del Jerarca y de los Titulares Subordinados del CUNLIMON.

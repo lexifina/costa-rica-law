@@ -1,0 +1,2 @@
+Artículo 50.- En cuanto a las prohibiciones, tipicidad de las faltas, tipo de sanción, así como la instrucción de las faltas se tomaran en cuenta las disposiciones del Reglamento Autónomo de Organización y Servicio del CUNLIMON, así como lo dispuesto en el Libro Segundo de la Ley General de Administración Publica.-
+Para aquellas situaciones no contempladas dentro del Reglamento Autónomo de Organización y Servicio, serán observables por analogía las disposiciones establecidas en la normativa de la materia que se trate y del régimen de empleo público.

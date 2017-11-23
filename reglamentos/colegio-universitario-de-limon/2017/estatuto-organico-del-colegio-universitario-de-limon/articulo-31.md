@@ -1,0 +1,1 @@
+Artículo 31.- El CUNLIMON además del Consejo Directivo y el Decano, quienes ejercen la dirección y administración del Colegio, contará con las direcciones Administrativas-Financiera, Académica, de Planificación y Desarrollo, de Educación Comunitaria y Asistencia técnica; y con un Consejo de Decanatura.

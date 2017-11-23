@@ -1,0 +1,1 @@
+Artículo 47.- El CUNLIMON queda facultado para nombrar el personal necesario a fin de poder cumplir con las metas, fines y funciones descritos en la Ley y este Estatuto Orgánico, de conformidad con las disposiciones legales, presupuestarias y reglamentarias correspondientes.

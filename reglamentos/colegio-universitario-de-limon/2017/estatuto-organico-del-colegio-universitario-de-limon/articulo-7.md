@@ -1,0 +1,2 @@
+Artículo 7.- Para lograr los fines propuestos el CUNLIMON, impartirá carreras a nivel de diplomado parauniversitario, los cuales tendrán carácter de pregrado, contextualizados con las características de la Región, las necesidades del sector productivo, promoviendo la formación integral del estudiantado.
+Pudiendo además, celebrar todo tipo de convenios con universidades públicas y privadas, nacionales y extranjeras, dentro del marco jurídico generado por los convenios de articulación y cooperación.

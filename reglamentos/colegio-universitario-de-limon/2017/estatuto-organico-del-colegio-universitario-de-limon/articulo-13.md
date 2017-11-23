@@ -1,0 +1,1 @@
+Artículo 13.- Los miembros del Consejo que por aspectos personales, familiares, de enfermedad o labores deban ausentarse por tiempos prolongados, comunicaran tal situación al presidente del Consejo, el cual notificara y solicitara al Jerarca de la Institución representada la remoción y sustitución del miembro, por el plazo que este deba ausentarse.

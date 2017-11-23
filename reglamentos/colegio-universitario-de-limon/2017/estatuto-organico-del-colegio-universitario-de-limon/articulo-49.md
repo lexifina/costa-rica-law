@@ -1,0 +1,1 @@
+Artículo 49.- En la valoración de las faltas cometidas por el servidor se tomaran en cuenta factores como el grado de culpabilidad, el grado de perturbación del servicio, la cuantía de los daños y perjuicios producidos por la conducta, la jerarquía y mando que el servidor tenga, la trascendencia de la falta o el perjuicio causado.

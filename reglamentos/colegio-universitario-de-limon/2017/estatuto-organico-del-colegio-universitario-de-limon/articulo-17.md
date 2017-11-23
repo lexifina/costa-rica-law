@@ -1,0 +1,1 @@
+Artículo 17.- Las sesiones serán privadas y se efectuaran en la Sede Central del Colegio Universitario de Limón. Sin embargo, podrán celebrarse sesiones en cualquiera de los recintos académicos que dispone el CUNLIMON en las distintas zonas de la provincia de Limón, cuando vayan a tratarse asuntos relativos a la región.

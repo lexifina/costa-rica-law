@@ -1,0 +1,1 @@
+Artículo 52.- Para la fijación del límite de gasto únicamente serán consideradas las transferencias asignadas en la Ley de Presupuesto Nacional de la Republica. El CUNLIMON, no podrá hacer uso o disponer de su hacienda, para fines distintos de los encomendados por La Ley 7941, la Ley 6541, el presente Estatuto Orgánico y las disposiciones, directrices y normativa presupuestaria.

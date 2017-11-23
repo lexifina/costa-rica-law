@@ -1,0 +1,1 @@
+Artículo 64.- Serán estudiantes regulares del Colegio Universitario todas aquellas personas que cumplan con los requisitos de matrícula y que ostenten la condición de graduados de la educación diversificada, o con un título equivalente oficialmente reconocido.

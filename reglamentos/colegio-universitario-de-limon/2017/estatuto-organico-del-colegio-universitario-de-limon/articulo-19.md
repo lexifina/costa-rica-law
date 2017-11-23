@@ -1,0 +1,1 @@
+Artículo 19.- Las sesiones se desarrollarán conforme al orden del día previamente elaborada y aprobada, sin embargo podrá modificarse o alterarse mediante acuerdo tomado por la mayoría de miembros presentes. No podrá ser objeto de acuerdo ningún asunto que no figure en la orden del día, salvo que sea declarada la urgencia del asunto por el voto favorable de todos ellos.

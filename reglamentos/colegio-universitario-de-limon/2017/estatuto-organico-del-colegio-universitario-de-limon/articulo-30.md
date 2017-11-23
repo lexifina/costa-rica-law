@@ -1,0 +1,1 @@
+Artículo 30.- Cuando el Decano faltare a las obligaciones y funciones inherentes al cargo, podrá ser sancionado o destituido del puesto por acuerdo del Consejo Directivo no inferior a las dos terceras partes del total de los miembros; previa aplicación de lo establecido en el artículo 211 inciso 3 de la Ley General de la Administración Publica.

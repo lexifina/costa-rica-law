@@ -1,0 +1,1 @@
+Artículo 55.- Todas las compras de bienes o servicios del CUNLIMON, se harán bajo lo estipulado en el artículo 181 de la Constitución Publica, y la Ley 7494 Ley de Contratación Administrativa y su Reglamento, así como las disposiciones que en materia de contratación administrativa sean dispuestas por la Decanatura y la Dirección Administrativa Financiera.

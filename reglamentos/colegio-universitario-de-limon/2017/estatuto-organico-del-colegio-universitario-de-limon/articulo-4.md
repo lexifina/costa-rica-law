@@ -1,0 +1,1 @@
+Artículo 4.- CUNLIMON impulsará el desarrollo humano, socioeconómico y cultural de la Provincia de Limón, a través de la excelencia académica, formación de recurso humano de alta calidad, mediante la docencia, la investigación, la acción social e investigación comunitaria.

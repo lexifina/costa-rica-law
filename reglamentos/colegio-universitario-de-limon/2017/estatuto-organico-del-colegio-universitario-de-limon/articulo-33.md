@@ -1,0 +1,1 @@
+Artículo 33.- El Consejo de Decanatura sesionara al menos una vez al mes, los miembros que faltaren a la convocatoria en tres ocasiones consecutivas e injustificadas serán objeto de las sanciones establecidas en el Capítulo XXIII del Reglamento Autónomo de Organización y Servicio del CUNLIMON.

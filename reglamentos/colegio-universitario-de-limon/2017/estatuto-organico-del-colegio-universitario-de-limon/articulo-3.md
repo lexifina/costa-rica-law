@@ -1,0 +1,1 @@
+Artículo 3.- Como institución semiautónoma de educación parauniversitaria, el CUNLIMON gozará de plena capacidad jurídica para adquirir derechos y contraer obligaciones para el cumplimiento de sus fines. El Decano le corresponderá representar judicial y extrajudicialmente al Colegio.

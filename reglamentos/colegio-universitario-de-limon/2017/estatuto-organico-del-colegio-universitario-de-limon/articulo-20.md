@@ -1,0 +1,1 @@
+Artículo 20.- Los acuerdos serán adoptados por mayoría absoluta de los miembros asistentes. En caso de empate, decidiría quien presida el Consejo. Los acuerdos tomados por la mayoría absoluta, serán de acatamiento obligatorio para el resto de los miembros.
