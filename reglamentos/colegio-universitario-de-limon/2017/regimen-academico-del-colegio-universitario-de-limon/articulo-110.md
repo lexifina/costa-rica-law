@@ -1,0 +1,1 @@
+Artículo 110.- DE LAS LLEGADAS TARDÍAS JUSTIFICADAS. La llegada tardía justificada es aquella provocada por razones de fuerza mayor ajenas a la voluntad del estudiante y que le impiden presentarse puntualmente a la hora previamente definida, a juicio del docente.

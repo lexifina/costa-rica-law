@@ -1,0 +1,2 @@
+Artículo 105.- DEL CONTROL DE ASISTENCIA. El docente será el responsable de registrar la asistencia de los estudiantes al curso.
+Debe consignar las ausencias justificadas de aquellos alumnos que así lo planteen por escrito. Para ello el docente utilizará un formulario de asistencia que permita comprobar y registrar la asistencia del estudiante. La Coordinación de Carrera o autoridades del CUNLIMON, podrán solicitar en el momento que lo consideren oportuno los documentos probatorios del control de asistencia.

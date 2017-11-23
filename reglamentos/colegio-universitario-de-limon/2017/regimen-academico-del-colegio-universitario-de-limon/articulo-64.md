@@ -1,0 +1,2 @@
+Artículo 64.- OTORGAMIENTO DEL BENEFICIO. Para la ejecución de los objetivos establecidos, el Consejo de Decanatura determinara el porcentaje anual que se asignara al programa de exoneraciones, con respecto de las metas, proporcionalidad y razonabilidad presupuestaria.
+La revisión, estudio y aplicación del beneficio se normará por las disposiciones establecidas en el Reglamento Institucional para el Sistema de Exoneración del CUNLIMON, aprobado por el Consejo Directivo en sesión extraordinaria # 306, del 25de marzo del 2015.

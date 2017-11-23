@@ -1,0 +1,1 @@
+Artículo 100.- ENTREGA DEL PLAN Y CRONOGRAMA DE CURSO. Es obligación del docente entregar una copia del plan definitivo en versión digital y una impresa a la Coordinación de Carrera para el archivo correspondiente.

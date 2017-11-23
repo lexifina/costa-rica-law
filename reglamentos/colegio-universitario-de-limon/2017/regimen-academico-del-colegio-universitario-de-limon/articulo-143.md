@@ -1,0 +1,1 @@
+Artículo 143.- ARANCEL DE LA SUFICIENCIA. El estudiante deberá pagar los costos fijados por la institución para este tipo de pruebas, previa realización de ésta. El monto pagado no es rembolsable, ni se reprogramara la prueba, si el estudiante no acude a la prueba; salvo caso fortuito o fuerza mayor, debidamente comprobado.

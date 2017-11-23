@@ -1,0 +1,2 @@
+Artículo 67.- .La orientación académica consiste en el análisis del expediente académico, que se realiza de forma conjunta entre el estudiante y la Coordinación de Carrera o la Unidad de Bienestar Estudiantil, para determinar la carga académica más aconsejable para el cuatrimestre siguiente. Este proceso se intensifica en el periodo de matrícula; en los casos necesarios se dará en cualquier época del año.
+Sólo se puede autorizar matrícula en curso del plan de estudios para los cuales se cuente con los requisitos académicos aprobados.

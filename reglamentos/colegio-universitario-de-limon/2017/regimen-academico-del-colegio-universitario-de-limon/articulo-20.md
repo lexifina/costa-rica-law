@@ -1,0 +1,1 @@
+Artículo 20.- EQUIPARACIÓN DE PLANES DE ESTUDIOS. Concierne a los cursos aprobados en una misma carrera, y que a efectos de modificación o actualización del plan de estudios, se solicite el reconocimiento.

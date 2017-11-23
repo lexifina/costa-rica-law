@@ -1,0 +1,1 @@
+Artículo 66.- .Los estudiantes recibirán orientación y seguimiento de carácter transversal sobre su titulación. Dicha información atenderá, entre otros, aspectos como: descripción y objetivos del plan de estudios, perfil de salida, estructura y programación del plan de estudios y cursos, rendimiento académico, incorporación laboral de egresados.

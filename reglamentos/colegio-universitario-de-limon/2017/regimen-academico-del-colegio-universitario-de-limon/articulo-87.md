@@ -1,0 +1,2 @@
+Artículo 87.- .Para la apertura de los cursos en las diferentes carreras se deberá contar con un mínimo de 15 estudiantes hasta un máximo de 30 estudiantes en caso de cursos de primer nivel. Para los cursos regulares que no sean del primer nivel el mínimo requerido para la apertura del curso será de 10 estudiantes hasta un máximo de 30 estudiantes.
+Para los cursos que en su desarrollo requieren el uso de laboratorio, el número de estudiantes no deberá sobrepasar la capacidad en equipo instalado.

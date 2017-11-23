@@ -1,0 +1,2 @@
+Artículo 138.- RESULTADOS DE PRUEBAS DE AMPLIACIÓN. Después de la realización de las pruebas de ampliación, el docente deberá entregar a los estudiantes y el Coordinador de Carrera, dentro de los dos días hábiles posteriores a su aplicación, las pruebas respectivas debidamente calificadas y con el señalamiento de los errores cometidos por el estudiante. La fecha y hora de la devolución del resultado de esta prueba deberá aparecer en el programa del curso del cuatrimestre respectivo.
+Las pruebas que no sean retiradas deberán ser custodiadas por el docente por un cuatrimestre.

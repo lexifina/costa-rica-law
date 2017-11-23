@@ -1,0 +1,1 @@
+Artículo 73.- LEVANTAMIENTO DE REQUISITOS y COREQUISITOS. Salvo casos excepcionales, motivados y debidamente aprobados por la Coordinación de la Carrera, el CUNLIMON por medio de la Unidad de Registro no podrá levantar los requisitos de admisibilidad para adelantar cursos dentro del cuatrimestre.

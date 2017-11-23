@@ -1,0 +1,5 @@
+Artículo 58.- CONDICIONES GENERALES.
+a. Los estudiantes deben permanecer en el Departamento que la Empresa-Receptora le haya asignado, salvo que por naturaleza del trabajo que esté realizando, la empresa solicite al estudiante que se desplace por otros Centro de Trabajo dentro o fuera de las mismas.
+b. Las horas, serán certificadas por el profesional asignado por la empresa, quién supervisará el estudiante y por el Docente-Tutor nombrado por el Colegio Universitario de Limón.
+c. Durante el período de Práctica Supervisada, los estudiantes pueden recibir subsidio que cubra los costos de traslado hacia los lugares de trabajo, así como su permanencia. Este reconocimiento es un beneficio no obligatorio por parte de la empresa.
+d. En caso, que la Empresa-Receptora, por razones de fuerza mayor, no pueda dar cumplimiento al período de Práctica Supervisada de los estudiantes, presentará a la Coordinación de Carrera, una constancia del tiempo de Práctica cubierto por el estudiante. Si el estudiante por razones especiales no pueda continuar, deberá presentar a la Coordinación Carrera, una nota justificando tal situación.

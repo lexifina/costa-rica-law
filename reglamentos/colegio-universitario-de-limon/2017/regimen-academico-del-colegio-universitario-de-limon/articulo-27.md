@@ -1,0 +1,1 @@
+Artículo 27.- .Los estudiantes que cumplan los requisitos exigidos por la legislación de la educación superior parauniversitaria y del Colegio Universitario de Limón, tienen derecho a acceder y a solicitar la admisión en el sistema académico conforme a los procedimientos previstos en la normativa vigente.

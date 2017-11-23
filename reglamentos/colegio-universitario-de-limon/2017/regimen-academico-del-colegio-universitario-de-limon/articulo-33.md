@@ -1,0 +1,2 @@
+Artículo 33.- RESPONSABLE DE LA INSCRIPCIÓN. El proceso de inscripción es responsabilidad de la Unidad de Registro, bajo la orientación de la Coordinación de Carrera, Dirección Académica y el apoyo del Departamento Administrativo-Financiero.
+La inscripción se considera oficial una vez que el estudiante ha cumplido con los requisitos establecidos. El estudiante debe inscribirse en la fecha establecida en el calendario académico.

@@ -1,0 +1,4 @@
+Artículo 160.- DE LOS RECURSOS. A falta de un arreglo directo, los estudiantes tendrán derecho a ejercer por escrito y debidamente motivados, los recursos que se indican a continuación, sin perjuicio de otras disposiciones específicas señaladas en este reglamento:
+a. Contra cualquier acción correctiva, (ver Reglamento de Vida Estudiantil del CUNLIMON) procederá recurso revocatoria debidamente fundamentado ante el Coordinador de Carrera, que no podrá ser ejecutada mientras no venza el periodo indicado para impugnarlo.
+b. Contra resolución emitida por parte del docente, el estudiante procederá con la acción recursiva cuando se encuentre inconforme con la estructura, instrumento, aplicación, revisión o calificación de la evaluación realizada.
+Podrán requerir la revisión siempre y cuando se sustente en hechos concretos, específicos y verificables.

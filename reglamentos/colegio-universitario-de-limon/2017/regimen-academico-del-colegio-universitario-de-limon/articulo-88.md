@@ -1,0 +1,1 @@
+Artículo 88.- .El CUNLIMON garantizara la apertura de los cursos y la continuidad de sus estudiantes, en aquellos cursos en los que no se cumpla los requisitos del artículo anterior, siempre y cuando estos sean del último nivel de carrera. Cualquier otra situación especial al respecto la resolverá la Dirección Académica a solicitud de la Coordinación de Carrera.

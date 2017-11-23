@@ -1,0 +1,1 @@
+Artículo 164.- . En caso de existir conflictos de interés por la duplicidad funciones del Coordinador de Carrera, la Dirección Académica nombrará Coordinador de Carrera distinto a efecto de que éste conozca y resuelva los recursos que se presenten.

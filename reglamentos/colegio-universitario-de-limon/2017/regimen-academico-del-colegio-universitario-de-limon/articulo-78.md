@@ -1,0 +1,3 @@
+Artículo 78.- CAMBIOS EN LA MATRICULA O CARRERA. El estudiante podrá solicitar ajustes (retiro o adiciones de cursos o cambio de carrera) en su matrícula, pero deberá hacerlo antes del cierre del período de matrícula extraordinaria. Los ajustes estarán sujetos a la disponibilidad de cupos y horarios. En caso de que no haya disponibilidad de cupos, los estudiantes quedarán en lista de espera, sin que esto signifique una obligación para el CUNLIMON.
+El CUNLIMON no hará devolución ni acreditaciones de dinero por el retiro de cursos o créditos justificados o no justificados.
+Los cursos retirados se considerarán como “no cursados” y deberán ser matriculados por los estudiantes en los períodos posteriores.

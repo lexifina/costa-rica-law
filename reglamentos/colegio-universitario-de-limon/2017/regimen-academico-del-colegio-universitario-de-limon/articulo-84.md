@@ -1,0 +1,1 @@
+Artículo 84.- DEBER DE INFORMACIÓN. El docente debe informar a la Coordinación de Carrera sobre la deserción de los estudiantes, para que con apoyo de la Unidad de Bienestar Estudiantil brinde el seguimiento correspondiente.

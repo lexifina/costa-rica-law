@@ -1,0 +1,1 @@
+Artículo 82.- RETIRO INJUSTIFICADO. Si un estudiante hace abandono de algún curso matriculado sin haberlo justificado en el plazo establecido, será calificado por el docente con las evaluaciones parciales que haya obtenido hasta el momento de su retiro.

@@ -1,0 +1,1 @@
+Artículo 32.- DE LA FALSEDAD DE DOCUMENTOS. Si se descubre falsedad en la información o documentación suministrada por el estudiante admitido, la admisión ya otorgada queda anulada. En este orden no importa el tiempo de permanencia que tenga el estudiante en la institución, sin perjuicio que el CUNLIMON inicie una denuncia penal por falsedad ideológica.

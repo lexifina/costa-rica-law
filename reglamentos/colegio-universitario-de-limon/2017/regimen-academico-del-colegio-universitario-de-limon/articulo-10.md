@@ -1,0 +1,3 @@
+CAPÍTULO II
+DE LOS CRÉDITOS
+Artículo 10.-DE LAS CARRERAS. CUNLIMON ofrecerá carreras a nivel de Diplomado Parauniversitario, las cuales tendrán unaduración de dos o tres años, organizados en ciclos cuatrimestrales de quince semanas, concluyendo con la entrega del título de diplomado parauniversitario a nivel de pregrado en la carrera respectiva. Las carreras deberán cumplir con un mínimo de 60 hasta un máximo de 96 créditos, la carga académica no podrá exceder de 19 créditos por cuatrimestre y la cantidad de cursos de un plan de estudios no será inferior a los 18 cursos. ARTICULO 34, DECRETO EJECUTIVO N° 38639-MEP DEL 25 DE JUNIO DE 2014

@@ -1,0 +1,2 @@
+Artículo 25.- DE LA RESOLUCIÓN DE LAS SOLICITUDES. Corresponde a la Coordinación de Carrera responder a la solicitud de equiparación o reconocimiento de cursos, previo análisis exhaustivo, comprobación de la equivalencia y dictamen escrito.
+La resolución de la solicitud de reconocimiento de curso deberá ser comunicada al interesado en un plazo máximo de quince (15) días naturales posteriores a su recibo. El Coordinador deberá enviar copia de lo acordado a la Dirección Académica.

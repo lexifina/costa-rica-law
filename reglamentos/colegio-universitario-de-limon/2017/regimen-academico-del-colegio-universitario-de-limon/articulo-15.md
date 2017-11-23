@@ -1,0 +1,1 @@
+Artículo 15.- .El estudiante que se ha separado de su carrera por un periodo prolongado, queda sujeto al plan de estudios vigente al momento de su reingreso. La Coordinación de Carrera analizará el caso particular para los efectos de equiparación o reconocimiento de cursos aprobados antes de su retiro.

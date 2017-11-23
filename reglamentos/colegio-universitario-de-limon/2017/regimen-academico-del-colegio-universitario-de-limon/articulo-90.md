@@ -1,0 +1,1 @@
+Artículo 90.- DURACIÓN DE HORA LECTIVA. La lección tendrá una duración de cincuenta minutos. Para jornadas de tres horas lectivas se dará un receso de 15 minutos; para las jornadas de más de tres horas lectivas, el receso será de 20 minutos. El receso es obligatorio y se cumplirá a mitad de la jornada lectiva.

@@ -1,0 +1,1 @@
+Artículo 118.- DE LA REPETICIÓN DE CURSOS. El estudiante que pierda un curso por segunda vez, solo tendrá derecho a matricular como único para el siguiente cuatrimestre, el curso perdido. Si reprueba de nuevo el curso, su caso será estudiado integralmente por la Coordinación de Carrera con el propósito de hacer las recomendaciones pertinentes.

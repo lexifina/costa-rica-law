@@ -1,0 +1,1 @@
+Artículo 154.- PLAN DE ACCIÓN INDIVIDUAL. Es el conjunto de actividades académicas y de procesos de aprendizaje, relaciones con un curso específico, como medida preventiva a que el estudiante mejore su condición académica.

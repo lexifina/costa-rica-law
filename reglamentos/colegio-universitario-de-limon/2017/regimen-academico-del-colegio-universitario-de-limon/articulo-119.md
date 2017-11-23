@@ -1,0 +1,1 @@
+Artículo 119.- CONDICIÓN DE EXIMIDO. Dentro del sistema de evaluación del CUNLIMON, no existe la condición de “eximido”, por lo que el docente no podrá exonerar a ningún estudiante de la aplicación de uno o varios componentes de la evaluación de aprendizaje.

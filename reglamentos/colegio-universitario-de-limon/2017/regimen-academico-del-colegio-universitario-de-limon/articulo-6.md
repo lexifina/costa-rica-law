@@ -1,0 +1,1 @@
+Artículo 6.- CICLO LECTIVO. CUNLIMON basa sus procesos educativos en tres (3) ciclos lectivos por año, denominados como cuatrimestres. El cuatrimestre es una unidad cronológica que equivale a quince (15) semanas, dentro de las cuales se realizan las evaluaciones ordinarias correspondientes.

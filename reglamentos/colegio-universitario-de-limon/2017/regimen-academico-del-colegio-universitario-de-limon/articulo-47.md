@@ -1,0 +1,1 @@
+Artículo 47.- CONSIGNACIÓN DE RESULTADOS. Concluido el proceso de calificación de la prueba y establecido el resultado final de cada estudiante, el Delegado del Consejo Superior de Educación, procederá a elaborar las actas e informes respectivos.

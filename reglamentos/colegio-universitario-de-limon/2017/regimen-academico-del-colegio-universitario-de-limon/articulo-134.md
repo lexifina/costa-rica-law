@@ -1,0 +1,1 @@
+Artículo 134.- DERECHO A LA PRUEBA DE AMPLIACIÓN. Los estudiantes que obtengan al cierre de la semana 14, una calificación igual o superior a sesenta (60) y menor a setenta (70) tendrán derecho a la programación de la Prueba Ampliación del curso en un mismo periodo cuatrimestral.

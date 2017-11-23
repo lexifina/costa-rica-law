@@ -1,0 +1,1 @@
+Artículo 43.- ESTRUCTURA DE LA PRUEBA COMPRENSIVA. Los programas de estudio aprobados por el Consejo Superior de Educación, delimitarán el ámbito para la elaboración y estructuración de la prueba, sus objetivos y contenidos constituyen la guía básica para la Coordinación de Carrera, Docentes y Estudiantes.

@@ -1,0 +1,1 @@
+Artículo 177.- FACTORES DE LA EVALUACIÓN DOCENTE. Los factores de evaluación se definirán por lo dispuesto en la normativa interna del CUNLIMON, correspondiente a la evaluación de desempeño de funcionarios y docentes.

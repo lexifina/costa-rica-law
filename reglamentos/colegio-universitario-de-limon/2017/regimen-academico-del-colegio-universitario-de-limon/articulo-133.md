@@ -1,0 +1,3 @@
+CAPÍTULO IV
+DE LAS PRUEBAS DE AMPLIACIÓN
+Artículo 133.- DEFINICIÓN. La Prueba de Ampliación, es aquella que se aplica a un estudiante que al cierre de la semana 14 del cuatrimestre no haya alcanzado, en la sumatoria de los componentes de evaluación la calificación mínima requerida para la aprobación del curso. Los objetivos y contenidos de las pruebas de ampliación serán seleccionados y definidos por el respectivo docente entre aquellos establecidos en el programa de estudio vigente y tratados durante el cuatrimestre. El docente deberá comunicar a los estudiantes por escrito estos objetivos y contenidos con al menos ocho días naturales de antelación a la aplicación de la prueba.

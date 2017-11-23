@@ -1,0 +1,1 @@
+Artículo 42.- ELABORACIÓN DE LA PRUEBA COMPRENSIVA. Las pruebas comprensivas serán elaboradas por la Coordinación de Carrera, en colaboración con los docentes del área o profesionales especializados en los campos de la medición y evaluación educativa. La evaluación pretende medir los conocimientos adquiridos por el estudiante con base al plan de estudios de la carrera respectiva.

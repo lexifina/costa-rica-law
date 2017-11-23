@@ -1,0 +1,1 @@
+Artículo 8.- ELABORACIÓN DEL CALENDARIO ACADÉMICO. La Dirección Académica elabora - con base a las propuestas presentadas por el personal académico y administrativo del CUNLIMON – cada año el calendario académico. El cual debe ser aprobado por la Decanatura. Cualquier modificación en las fechas debe ser aprobado por la Decanatura.

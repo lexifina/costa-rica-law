@@ -1,0 +1,1 @@
+Artículo 54.- NOMBRAMIENTO DE LOS DELEGADOS. En la opción de práctica supervisada el Decano debe solicitar, a la Secretaría General del Consejo, el aval de los profesores tutores, que actuarán como delegados del Consejo. Estos deben pertenecer al Colegio Profesional respectivo. (ARTICULO 46, DECRETO EJECUTIVO N° 38639-MEP DEL 25 DE JUNIO DE 2014).

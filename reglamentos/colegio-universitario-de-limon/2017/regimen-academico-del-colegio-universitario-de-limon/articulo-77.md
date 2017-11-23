@@ -1,0 +1,1 @@
+Artículo 77.- VIGENCIA DE LA MATRICULA. La matrícula que realice el estudiante tendrá vigencia solamente por el período académico al que corresponde. Deberá renovarse durante cada período académico en los términos y plazos definidos por la institución.

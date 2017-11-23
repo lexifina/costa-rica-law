@@ -1,0 +1,1 @@
+Artículo 30.- CUPO DE ADMISIÓN. Anualmente, el Consejo Académico establecerá, la cantidad de cupos programados para matrícula de nuevo ingreso a carrera, por carrera y sede. El número de cupos de una carrera debe garantizar para la totalidad de estudiantes admitidos, la oferta académica de todos los cursos del primer nivel de carrera.

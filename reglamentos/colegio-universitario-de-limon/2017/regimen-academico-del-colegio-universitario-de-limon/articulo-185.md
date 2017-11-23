@@ -1,0 +1,1 @@
+Artículo 185.- DE LAS OPORTUNIDADES DE EMPLEO. El CUNLIMON brindará a los estudiantes información sobre oportunidades de empleo y concursos de los programas de selección de personal en empresas e instituciones relacionadas con la temática de la carrera.

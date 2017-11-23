@@ -1,0 +1,1 @@
+Artículo 165.- .En el caso que un estudiante obtenga como resultado de un recurso de apelación el derecho a repetir un instrumento de evaluación o a realizar la prueba de reposición, esta deberá ser ejecutada en un período máximo de ocho días naturales siguientes a la resolución. La misma deberá ser aplicada por otro docente de la carrera.

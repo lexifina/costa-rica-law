@@ -1,0 +1,1 @@
+Artículo 75.- MATRICULA DE ACTIVIDADES EXTRACURRICULARES. La Coordinación de Carrera, en coordinación con la Unidad de Registro, será la responsable de autorizar la matrícula de actividades extracurriculares que la institución ofrezca. Los estudiantes que matriculen actividades extracurriculares o programas especiales deben ajustarse a las normas establecidas para estos efectos.

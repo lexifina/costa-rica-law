@@ -1,0 +1,1 @@
+Artículo 81.- PROCESO DE TRÁMITE DEL RETIRO JUSTIFICADO. El estudiante deberá realizar el trámite de retiro ante la Coordinación de la Carrera; la cual en un plazo de tres días hábiles deberá recopilar las evidencias de prueba que estime pertinentes y mediante las investigaciones que correspondan, emitirá la resolución del caso a la Unidad de Registro.

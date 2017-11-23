@@ -1,0 +1,1 @@
+Artículo 176.- COMPONENTES DE LA EVALUACIÓN DOCENTE. La evaluación de los docentes está conformada por dos componentes: a) La evaluación realizada por la Coordinación de carrera, y b) la evaluación aplicada por los estudiantes.

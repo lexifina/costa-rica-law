@@ -1,0 +1,4 @@
+CAPÍTULO III
+DE LA EVALUACIÓN DE CARRERAS Y CURSOS
+Artículo 12.- EL PLAN DE ESTUDIOS. Es un documento académico de carácter oficial que establece la organización curricular de cada Carrera. El Consejo de Carrera podrá solicitar actualizaciones o modificaciones parciales o totales, que se someterá a conocimiento de la Unidad de Diseño Curricular, y posteriormente al Consejo Académico para las recomendaciones.
+La propuesta de actualización o modificación debe presentarse ante el Consejo Superior de Educación, se debe adjuntar un documento completo de la carrera, con las explicaciones y justificaciones del caso, adicionando un cuadro comparativo del plan de estudios de la carrera vigente y la nueva propuesta. Asimismo, se deberá someter la carrera a un proceso de evaluación, aportando una breve descripción de los principales indicadores que se obtuvieron como resultado.(ARTICULO 40, DECRETO EJECUTIVO N° 38639-MEP DEL 25 DE JUNIO DE 2014).

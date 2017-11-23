@@ -1,0 +1,2 @@
+Artículo 83.- DESERCIÓN ESTUDIANTIL. Sera calificada y considerada, como deserción estudiantil, el retiro por parte del estudiante de las actividades académicas. El tiempo computable para declarar la deserción del estudiante será de un cuatrimestre o más.
+Para impedir ese fenómeno el CUNLIMON, por medio de los Coordinadores de Carrera establecerá medidas de aproximación e intervención institucional.

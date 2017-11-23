@@ -1,0 +1,2 @@
+Artículo 101.- .De igual forma es obligación del docente entregar el plan, el cronograma y el sistema de evaluación del curso a cada estudiante matriculado y presente en su grupo. El Docente deberá entregar a cada estudiante una copia del programa, en la primera semana de clases, para su conocimiento y observaciones.
+La entrega final se hará a más tardar el segundo día de lecciones de cada cuatrimestre contra firma de cada estudiante, dejándose el docente una constancia de recibido para ser entregada a la Coordinación de la Carrera.

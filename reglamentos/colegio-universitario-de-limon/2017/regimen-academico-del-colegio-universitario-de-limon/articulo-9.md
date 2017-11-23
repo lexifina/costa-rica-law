@@ -1,0 +1,1 @@
+Artículo 9.- RESPONSABILIDAD Y DIVULGACIÓN. La Dirección Académica será la responsable de la divulgación del contenido del calendario académico a la Comunidad Educativa del CUNLIMON, previo a la iniciación del año académico. Las actividades son de acatamiento y participación de toda la comunidad educativa.

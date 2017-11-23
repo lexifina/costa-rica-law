@@ -1,0 +1,14 @@
+Artículo 2.- DEFINICIONES.
+a. Consejo Superior de Educación: Es un órgano de naturaleza jurídica constitucional, tiene a su cargo la dirección general de la enseñanza oficial, de acuerdo con el artículo 81 de la Constitución Política de la República.
+b. Consejo Directivo: El Consejo Directivo será el órgano superior de la Institución y lo integrará: Un delegado del Consejo Superior de Educación, El Decano del CUNLIMON, Un representante estudiantil del Colegio, Un delegado designado por cada una de las Universidades Públicas de Educación Superior.
+c. Decanatura: Nivel de mayor jerarquía, encargado de la dirección y administración del CUNLIMON.
+d. Consejo Académico: Órgano de carácter técnico que asesora a la Dirección Académica, en materia de docencia y académica.
+e. Dirección Académica: Tiene a su cargo la dirección, organización y orientación de las carreras cortas completas a nivel de diplomado parauniversitario a nivel de pregrado; así como los procesos de diseño y rediseño curricular. Cada carrera estará a cargo de un coordinador, el cual será asignado por áreas afines. (ARTICULO 22, DECRETO EJECUTIVO N° 38639- MEP DEL 25 DE JUNIO DE 2014).
+f. Dirección de Planificación y Desarrollo: Realizará los estudios que sean necesarios para justificar la apertura, desarrollo, congelamiento y cierre de carreras; así como la elaboración de aquellos proyectos tendientes al desarrollo integral de la institución.
+g. Dirección Administrativa-Financiera: Dirección operativa encargada de realizar los procesos propios de los servicios de registro, administración de recursos humanos, financiero, presupuesto, bienestar estudiantil, proveeduría, servicios operativos, publicaciones, biblioteca y otros que se lo requieran para la gestión administrativa.
+h. Otras Direcciones: Que se regirán por normativa interna.
+i. Coordinadores de Carrera: Instancia encargada de articular e integrar los procesos académicos que se producen durante el periodo de formación de los estudiantes, además de atender necesidades académico-administrativas relacionadas con las carreras respectivas. Cada carrera estará a cargo de un coordinador, el cual se asigna por áreas afines.
+j. Consejo de Carrera: Es un órgano de carácter técnico que asesora a la Coordinación de Carrera. Está integrado por el Coordinador de Carrera, quién preside, y por el cuerpo docente de la misma.
+k. Docente: Funcionarios del CUNLIMON, que se dedica de forma profesional a facilitar la enseñanza de un área específica a los estudiantes.
+l. Unidad de Registro: Es el responsable de coordinar y garantizar el desarrollo de los procesos de admisión, reconocimiento y equiparación de cursos y títulos, además de la generación y gestión de los expedientes de los estudiantes.
+m. Representante Estudiantil: Ejerce su representación ante el Consejo Directivo.

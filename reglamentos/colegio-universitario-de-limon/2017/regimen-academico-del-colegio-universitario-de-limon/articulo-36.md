@@ -1,0 +1,1 @@
+Artículo 36.- TITULACIÓN. En los diplomas otorgados por el CUNLIMON, aparecerán en forma explícita el pregrado y título correspondiente. Los nombres de los títulos se consignarán tal como han sido aprobados por el Consejo Superior de Educación.

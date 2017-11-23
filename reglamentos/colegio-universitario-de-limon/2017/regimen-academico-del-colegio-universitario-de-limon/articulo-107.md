@@ -1,0 +1,1 @@
+Artículo 107.- DE LA JUSTIFICACIÓN DE LA AUSENCIA. El estudiante tendrá tres (3) días hábiles posteriores a su ausencia, para comunicarle al Docente por escrito las razones de su inasistencia, para lo que utilizará los medios de comunicación dispuestos para estos casos, y aportando la documentación idónea que motiven su ausencia al curso.

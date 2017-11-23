@@ -1,0 +1,1 @@
+Artículo 52.- PERIODO DE LA EVALUACIÓN. La Práctica Supervisada deberá efectuarse en un tiempo mínimo de 320 horas efectivas, a realizarse según los periodos establecidos en el Calendario Académico. La práctica será desarrollará en Jornada Diurna, mínimo 8 horas – máximo 9 horas, y en días hábiles.
