@@ -1,0 +1,1 @@
+Artículo 19: Firma de la Orden de Compra: Las Órdenes de Compra serán suscritas por el Proveedor(a) Municipal, el Coordinador (a) de Formulación y Ejecución Presupuestaria, y el Alcalde o Alcaldesa Municipal.
