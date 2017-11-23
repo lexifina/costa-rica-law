@@ -1,0 +1,1 @@
+Artículo 7°- Los propietarios de dicho inmueble se comprometen a no desarrollar ninguna actividad que ponga en peligro la existencia de la flora y fauna y darán toda la colaboración necesaria a investigadores, guardaparques y técnicos del SINAC, que visiten dicha área en labores oficiales a su cargo.

@@ -1,0 +1,1 @@
+Artículo 6°- El manejo y uso de los recursos naturales, estarán sujetos a lo establecido en el Plan de Manejo aprobado por el Sistema Nacional de Áreas de Conservación, quien supervisará su ejecución y podrá emitir disposiciones técnicas y científicas que deberán seguir los propietarios.

@@ -1,0 +1,1 @@
+Artículo 3 °- La propietaria del inmueble Folio Real Nº 6020175-000 se compromete a no apartarse de lo establecido en el Plan de Manejo, y realizar actividades que permitan la existencia de la flora y fauna, así como a brindar la colaboración necesaria a investigadores, y funcionarios del MINAE que visiten dicha área en funciones oficiales.
