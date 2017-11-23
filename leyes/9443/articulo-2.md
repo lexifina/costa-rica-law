@@ -1,0 +1,1 @@
+ARTÍCULO 2.- La donataria no podrá cambiar el destino de dicho inmueble por ninguna razón, en cuyo caso el bien inmueble volverá automáticamente a formar parte del patrimonio de la Municipalidad de Tibás.
