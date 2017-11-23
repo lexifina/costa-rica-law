@@ -1,0 +1,1 @@
+Artículo 12. —De las pruebas Toxicológicas al oficial del Servicio de Control y Seguridad Ciudadana de Pérez Zeledón. Toda persona que desea ingresar a este cuerpo policial deberá someterse a un examen, el cual consiste en la toma de orina que será obligatoria en todos los casos.

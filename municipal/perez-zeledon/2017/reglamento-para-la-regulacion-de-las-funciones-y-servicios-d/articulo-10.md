@@ -1,0 +1,1 @@
+Artículo 10°—Para la realización de la prueba, en el caso de los oficiales del Servicio de Control y Seguridad Ciudadana, se seleccionará de forma aleatoria a quienes serán sometidas a la misma. Dicha selección será efectuada por la Coordinación del Proceso de Recursos Humanos.

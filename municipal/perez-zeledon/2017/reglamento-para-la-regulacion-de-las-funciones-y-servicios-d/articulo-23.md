@@ -1,0 +1,1 @@
+Artículo 23. —Los oficiales del servicio de Control y Seguridad Ciudadana deben asumir la responsabilidad del equipo, chaleco, arma, funda, radio, esposas, cargador, cinturón y demás accesorios suministrados, durante el tiempo que permanezcan bajo su cuidado responderán por cualquier pérdida o daño ocasionado por culpa o dolo.

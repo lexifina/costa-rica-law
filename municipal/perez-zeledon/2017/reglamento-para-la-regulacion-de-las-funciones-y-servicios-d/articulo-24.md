@@ -1,0 +1,1 @@
+Artículo 24.—Si un funcionario del servicio, se desliga permanentemente de su cargo, o por cualquier razón ya no utiliza el uniforme, deberá hacer entrega del mismo a su jefatura inmediata, para lo que corresponda, junto con los demás equipos e implementos que la institución le diera bajo su cargo en cumplimiento de sus funciones.

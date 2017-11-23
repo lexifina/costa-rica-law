@@ -1,0 +1,1 @@
+Artículo 3°—Del cumplimiento. Para el cumplimiento de sus funciones, el Servicio de Control y Seguridad Ciudadana, puede adquirir y hacer uso de los bienes municipales y de la tecnología avanzada, así como de cualquier otro medio especializado, siempre y cuando no atrase, suprima o afecte otros servicios.

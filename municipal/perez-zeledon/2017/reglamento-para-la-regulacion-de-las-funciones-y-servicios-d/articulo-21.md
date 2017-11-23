@@ -1,0 +1,1 @@
+Artículo 21. —Los distintivos de los oficiales del Servicio de Control y Seguridad Ciudadana son patrimonio institucional y ninguna persona particular podrá copiarlos ni usarlos para ningún beneficio personal.

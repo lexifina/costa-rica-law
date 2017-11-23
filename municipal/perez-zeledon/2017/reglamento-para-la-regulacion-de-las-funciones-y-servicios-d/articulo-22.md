@@ -1,0 +1,1 @@
+Artículo 22. —Fuera de la jornada laboral queda terminantemente prohibido el uso del uniforme, junto con el chaleco de seguridad suministrado por la Institución, de acuerdo a lo establecido en el artículo 18 de este reglamento.
