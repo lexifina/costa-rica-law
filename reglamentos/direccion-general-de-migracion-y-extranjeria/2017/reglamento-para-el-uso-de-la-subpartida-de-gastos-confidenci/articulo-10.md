@@ -1,0 +1,1 @@
+Artículo 10.-Del incumplimiento del presente reglamento. Cualquier infracción a las disposiciones contenidas en este Reglamento dará lugar a responsabilidad administrativa, civil o penal, según corresponda.
