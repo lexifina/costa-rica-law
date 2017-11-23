@@ -14,3 +14,4 @@ Reglamento para regular el funcionamiento y el cobro del servicio de aseo de ví
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-11-15 | la propia norma |
+| 2 | 2017-11-23 | Reglamento municipal 0 (2017-11-23) |
