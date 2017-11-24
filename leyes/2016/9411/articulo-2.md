@@ -21,3 +21,4 @@ Artículo 2°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 2° del decreto ejecutivo N° 40701 del 9 de octubre del 2017)
 (Modificado por el artículo 3° del decreto ejecutivo N° 40701 del 9 de octubre del 2017)
 (Modificado por el artículo 2° del decreto ejecutivo N° 40714 del 18 de octubre del 2017)
+(Modificado por el artículo 1° del decreto ejecutivo N° 40739 del 13 de noviembre de 2017)
