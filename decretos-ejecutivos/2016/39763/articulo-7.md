@@ -1,2 +1,3 @@
-Artículo 7°.-A la suma de todos los costos se le aplicará una utilidad del 7% para obtener el precio del industrial al mayorista. Para el cálculo del precio de mayorista a detallista se le adicionará un 5% y un 7% para obtener finalmente el precio del detallista al consumidor final.
+Artículo 7º. – El margen de utilidad (margen por compensación de riesgo e incertidumbre) corresponde al 7% sobre los costos variables de la industrialización del arroz pilado. Se definirá el precio del industrial al mayorista como la sumatoria del costo variable, el costo fijo y el margen de utilidad. Para el cálculo del precio del mayorista al detallista se le adicionará un 5% al precio del industrial y finalmente, para obtener el precio del detallista al consumidor final, se le adicionará un 7% al precio del mayorista.
 [imagen]
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40820 del 24 de noviembre de 2017)
