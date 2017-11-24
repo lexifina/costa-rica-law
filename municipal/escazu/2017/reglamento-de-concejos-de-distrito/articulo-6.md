@@ -1,0 +1,1 @@
+Artículo 6º—Las personas Concejales suplentes sustituirán a las personas propietarias de su mismo partido político según el orden de elección, en los casos de ausencia temporal u ocasional, serán sustituidos para dicho efecto por la persona Presidente del Concejo de Distrito. Desempeñarán sus cargos en forma gratuita.

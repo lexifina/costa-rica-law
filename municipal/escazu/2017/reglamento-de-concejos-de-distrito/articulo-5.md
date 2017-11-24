@@ -1,0 +1,1 @@
+Artículo 5º—La persona síndica propietaria o en su efecto la persona síndica suplente será la encargada de dar a conocer en las sesiones del Concejo Municipal los asuntos tratados en el Concejo de Distrito.

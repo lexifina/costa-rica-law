@@ -1,0 +1,1 @@
+Artículo 11.—La Municipalidad ejecutará sus obras o servicios públicos en cada distrito, atendiendo las solicitudes del Concejo de Distrito, y atendiendo las recomendaciones en el Programa de Gobierno de la Alcaldía Municipal y en el Plan de Desarrollo Cantonal de la Municipalidad de Escazú.

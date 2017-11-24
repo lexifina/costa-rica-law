@@ -1,0 +1,1 @@
+Artículo 3º—Los Concejos de Distrito se preocuparán por fomentar la participación democrática de los pobladores del Cantón en decisiones del Gobierno Local, para lo cual deberán realizar reuniones, visitas de campo.

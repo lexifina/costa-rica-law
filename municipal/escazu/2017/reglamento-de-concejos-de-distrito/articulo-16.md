@@ -1,0 +1,1 @@
+Artículo 16.—Los Concejos de Distrito deberán reunirse ordinariamente al menos dos veces por mes. Se debe comunicar a la Municipalidad, el día, hora y lugar que designen para tal efecto. Pueden celebrar sesiones extraordinarias previa convocatoria de la persona presidente con 24 horas de antelación o cuando así la convoquen por escrito tres de las personas que lo conforman.

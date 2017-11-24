@@ -1,0 +1,1 @@
+Artículo 14.—La Jurisdicción territorial del Concejo de Distrito, es el distrito y deberá aprobar un domicilio exacto para sus reuniones y notificaciones, que comunicarán a la Municipalidad, sin perjuicio de realizar reuniones y actividades en cualquier dirección, previo acuerdo y conocimiento de las personas que lo integran.

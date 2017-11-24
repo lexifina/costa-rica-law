@@ -1,0 +1,1 @@
+Artículo 26.—En la primera sesión del Concejo de Distrito se elegirá de entre las personas miembros que constituyan dicho órgano a una persona para que cumpla con la función de secretario(a). Los restantes miembros fungirán como vocales.
