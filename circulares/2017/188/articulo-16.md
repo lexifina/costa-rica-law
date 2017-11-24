@@ -1,0 +1,1 @@
+Artículo 16.—No obstante lo indicado en el artículo anterior, el Deposito de Objetos Decomisados podrá recibir armas de fuego según lo disponga la Dirección General del Organismo de Investigación Judicial.

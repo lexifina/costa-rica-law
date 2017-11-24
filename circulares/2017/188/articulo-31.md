@@ -1,0 +1,1 @@
+Artículo 31.—Cuando se requiera la realización de una pericia, se procederá a la remisión de los materiales indicados en el artículo anterior, al Departamento de Ciencias Forenses, con la finalidad de que éste coordine los análisis pertinentes para determinar la naturaleza y cantidad del contenido de los cilindros, contenedores o tanques.

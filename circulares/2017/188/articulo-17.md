@@ -1,0 +1,2 @@
+Artículo 17.—Las piezas decomisadas por supuestas infracciones a la Ley de Patrimonio Arqueológico, deberán ser sometidas a peritaje por un funcionario del Museo Nacional debidamente acreditado.
+En caso de que el perito determine la autenticidad de las mismas, éstas deberán entregarse al Museo Nacional, en condición de depositario judicial. Caso contrario, las piezas deberán ser remitidas a las instalaciones del Depósito de Objetos Decomisados para su custodia.

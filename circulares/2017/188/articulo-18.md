@@ -1,0 +1,1 @@
+Artículo 18.—De conformidad con lo dispuesto en la legislación aduanera, las evidencias decomisadas con ocasión de los delitos de contrabando o defraudación fiscal, deberán pasar a la orden del Ministerio de Hacienda.

@@ -1,0 +1,1 @@
+Artículo 25.—Una vez que se registre el ingreso de las evidencias al Depósito de Objetos Decomisados, éstas pasan a ser responsabilidad de esa oficina, motivo por el cual es importante que los servidores que la reciben tengan certeza del tipo de evidencia, con el propósito de procurar su almacenamiento en un lugar apropiado, de forma que se garantice la preservación de la misma.

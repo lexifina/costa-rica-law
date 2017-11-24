@@ -1,0 +1,3 @@
+Artículo 7º—En caso de que no se disponga de un Sistema de Registro de Evidencias informático, deberá llevarse un libro el cual deberá contar con todos sus folios numerados de forma consecutiva. Los diferentes volúmenes utilizados también deben estar numerados de forma que se pueda seguir la secuencia cronológica (fecha de inicio y finalización del libro de registro).
+En caso de que sea necesario realizar algún tipo de corrección, no se admitirán tachaduras, de forma que deberán realizarse por medio de una nota o comentario.
+Los libros terminados deberán almacenarse en un lugar seguro y de acceso restringido.

@@ -1,0 +1,1 @@
+Artículo 19.—Los bienes decomisados por infracciones a la Ley de Vida Silvestre, deberán ser entregados a la oficina regional del Ministerio del Ambiente y Energía más cercana, por ser éste a quien corresponde la condición de depositario judicial en este tipo de procesos. El retiro de los bienes deberá coordinarse con el representante de ese Ministerio.

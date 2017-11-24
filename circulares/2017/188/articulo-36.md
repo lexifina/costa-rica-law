@@ -1,0 +1,1 @@
+Artículo 36.—La distancia que debe existir entre el edificio principal y la bodega de cilindros de gases, deberá estar dentro del rango de 7 a 10 metros de distancia del edificio principal, con el fin de evitar la afectación en caso de un incidente de explosión y minimizar los daños.

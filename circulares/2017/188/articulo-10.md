@@ -1,0 +1,3 @@
+Artículo 10.—El tipo de embalaje seleccionado va a responder a las necesidades en particular, debiendo tener en consideración que lo ideal es que el embalaje posibilite acceso visual a la evidencia, siempre que las características del bien lo permitan. Lo anterior, con el fin de determinar el tipo de lugar en que se debe almacenar la misma.
+En ese sentido, las joyas deberán almacenarse en la caja fuerte y los artículos fr ágiles deberán permanecer en un área acondicionada para ese tipo de bienes.
+De ser posible, el despacho procurar á estandarizar los embalajes utilizados, por ejemplo: contando con varios tamaños de bolsas plásticas, de preferencia transparentes, sobres de papel y cajas de cartón pequeñas, medianas y grandes.

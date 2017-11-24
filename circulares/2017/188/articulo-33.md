@@ -1,0 +1,2 @@
+Sobre la bodega de materiales peligrosos e inflamables
+Artículo 33.—Los cilindros de gas que resulte necesario mantener para los fines del proceso, deben ser almacenados en condiciones plenas de seguridad, tomando en consideración el tipo y grado de peligrosidad de cada uno de ellos. Para tales efectos, el Depósito de Objetos Decomisados contará con una bodega acondicionada especialmente para albergar los materiales peligrosos e inflamables, la cual deberá reunir los requerimientos que se indican en los artículos siguientes.

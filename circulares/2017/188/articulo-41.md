@@ -1,0 +1,2 @@
+Destrucción o donación de bienes pertenecientes a causas fenecidas
+Artículo 41.—Los despachos judiciales que tengan bajo su custodia bienes que pertenezcan a causas desestimadas, sobreseídas, as í como correspondientes a causas que finalizaron en la etapa investigativa, deberán realizar las gestiones correspondientes para proceder, según sea el caso, a su donación o destrucción. Para otros casos deberá observarse lo dispuesto en la Ley N° 6106 “Ley de Distribución de Bienes Confiscados o Caídos en Comiso”.

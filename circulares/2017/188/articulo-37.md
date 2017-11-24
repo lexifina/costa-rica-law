@@ -1,0 +1,1 @@
+Artículo 37.—Cuando se estime necesario realizar la destrucción de cualquier tipo de material peligroso, se proceder á a realizar previa consulta a la regencia química institucional para que se defina el procedimiento a seguir para el caso en específico.
