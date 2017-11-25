@@ -1,1 +1,6 @@
-Artículo 64.—Se establece como horario de funcionamiento de ventas ambulantes y ventas estacionarias, de las seis horas a las veinte horas, no pudiendo realizarse la actividad fuera de dicho horario.
+Artículo 64.- Para la obtención de la autorización para la actividad de karaoke y/o discomóvil, se deberá cumplir con los siguientes requisitos:
+a) Formulario de solicitud presentado diez días hábiles previo al evento. En el caso de personas físicas, deberá aportar copia de la cédula de identidad del solicitante o documento DIMEX (Documento De Identidad Migratoria Para Extranjeros) vigente, dirección física de su domicilio.
+En caso de personas jurídicas, deberá aportar personería jurídica original y vigente, no mayor a un mes de emitida y copia de la cédula de identidad del representante legal.
+La firma que se consigne en la solicitud deberá estar autenticada por un abogado, o firmarlo ante el funcionario municipal de la Plataforma de Servicios, el cual verificará que el solicitante firmó ante él, debiendo estampar el sello correspondiente en el formulario de solicitud.
+b) Plan de confinamiento sónico y permiso sanitario de funcionamiento del Ministerio de Salud.
+c) Autorización del uso del repertorio musical, o su exoneración, extendido por los autores o por sus representantes, de conformidad con el artículo 3 del Decreto Ejecutivo Nº 23485- MP del 5 de julio de 1994, Reglamenta Artículo 50 de Ley de Derechos de Autor y Derechos Conexos

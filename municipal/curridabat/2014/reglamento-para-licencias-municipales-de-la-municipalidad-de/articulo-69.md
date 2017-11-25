@@ -1,4 +1,12 @@
-Artículo 69.—Para la suspensión de la licencia comercial para ventas ambulantes, se seguirá el procedimiento ordinario que indica la Ley General de la Administración Pública. De comprobarse la veracidad de las causales se aplicarán los siguientes plazos de suspensión:
-a) La primera vez, se aplicará una suspensión de la Licencia de hasta por tres meses.
-b) La segunda vez, se aplicará una suspensión de la Licencia de hasta seis meses.
-c) La tercera vez, se cancelará permanentemente la Licencia, sin embargo, si con el incumplimiento del patentado o patentada perjudica el orden público, podrá cancelarse la licencia, sin previa suspensión, siguiendo el procedimiento ordinario que establece la Ley General de la Administración Pública.
+Artículo 69.- Queda prohibido realizar el comercio en forma ambulante o estacionariamente, en las vías públicas sin contar con la respectiva licencia municipal.
+Asimismo, queda prohibida la realización de ventas ambulantes y estacionarias, en los siguientes lugares:
+a) Áreas no permitidas de conformidad con lo que establece la Ley de Tránsito.
+b) En las zonas de alto tránsito vehicular.
+c) En las vías públicas de alto tránsito vehicular o nacionales.
+d) En las zonas en que se pueda poner en peligro la seguridad de los peatones.
+e) En las paradas de autobuses o taxis.
+f) En aceras con un ancho mínimo menor de un metro y medio.
+g) No podrán ubicarse obstruyendo ventanas, entradas, esquinas, ni a una distancia menor de un metro cincuenta centímetros de la línea de la pared.
+h) En ningún parque público.
+i) No podrán ubicarse en el cordón y caño.
+j) Queda prohibido que las ventas ambulantes puedan estacionarse más de quince minutos en un mismo lugar.

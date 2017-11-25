@@ -1,5 +1,4 @@
-Artículo 68.—Suspensión de la Licencia comercial ambulante o estacionaria: Se procederá a la suspensión de la licencia comercial cuando el patentado o patentada incurra en alguna de las siguientes causales:
-a) No conservar el ornato y limpieza donde desarrolla la venta ambulante.
-b) Contaminación del área y del medio ambiente.
-c) El incumplir con la normativa de la Ley General de Salud y cualquier otra norma que regule la actividad desarrollada.
-d) Incumplir con lo que establece este Reglamento, así como otras leyes y reglamentos conexos, que regulan la explotación de este tipo de actividades.
+CAPÍTULO VIII
+Sección Única
+De las licencias para ventas ambulantes y ventas estacionarias
+Artículo 68.- Para el otorgamiento de las licencias tanto para venta ambulante como estacionaria, la Municipalidad dará preferencia a personas minusválidas o de la tercera edad, esta licencia deberá estar precedida de un estudio social realizado por la Dirección de Desarrollo Humano, que emitirá un informe al Sección de Patentes Municipales. La resolución de ésta, por medio de la cual se conceda una licencia debe ser razonada, con indicación de los datos completos del beneficiario, su domicilio, las causas por las que la ha solicitado, la comprobación de esas causas y un extracto del estudio social.

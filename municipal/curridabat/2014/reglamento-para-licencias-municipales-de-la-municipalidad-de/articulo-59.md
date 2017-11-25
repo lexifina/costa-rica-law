@@ -1,4 +1,1 @@
-Artículo 59.—Las sanciones por no entregar a los clientes los tiquetes vendidos serán las siguientes:
-a) Por primera vez: cinco veces el último impuesto pagado o la estimación correspondiente.
-b) Por segunda vez: diez veces el último impuesto pagado o la estimación correspondiente.
-c) Por tercera vez: Cancelación de la licencia previa realización del procedimiento ordinario que regula la Ley General de la Administración Pública.
+Artículo 59.- La Sección de Patentes a través de su Encargado y la Sección de Inspecciones a través de los inspectores verificarán el correcto uso de los tiquetes o boletos sellados mediante inspecciones físicas en los locales autorizados. Cuando se compruebe que en un local no se está haciendo uso correcto de los tiquetes se procederá a levantar el acta y la Municipalidad iniciará el procedimiento que corresponde a fin de determinar si procede cancelar la licencia respectiva.

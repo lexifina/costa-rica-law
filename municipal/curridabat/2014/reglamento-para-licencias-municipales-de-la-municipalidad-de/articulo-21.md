@@ -1,9 +1,6 @@
-CAPÍTULO III
-Procedimiento administrativo para el cierre de negocios
-comerciales y cancelación de una Licencias Municipal
+CAPÍTULO II
+De la Sección de Patentes Municipales
 SECCIÓN I
-Del procedimiento de cierre de negocios
-Artículo 21.—Procederá el cierre temporal del establecimiento comercial, cuando se incurran en las siguientes causales:
-a) Cuando se haya suspendido la licencia Municipal por falta de pago de dos o más trimestres, o bien, por el incumplimiento sobreviniente de los requisitos ordenados en las leyes y reglamentos respectivos para el desarrollo de esta actividad, de conformidad con el artículo 81 bis del Código Municipal. La mera constatación por parte de la Sección de Licencias Municipales de haberse incurrido en esta causal, la facultará para notificar de inmediato la suspensión de la licencia Municipal y en consecuencia, el cierre temporal del mismo. La notificación en cuestión se realizará efectivamente en el domicilió aportado por el patentado para tales efectos al expediente, o en su defecto, en el local comercial respectivo.
-Previo a ejecutar dicho cierre se otorgara un plazo de 24 horas al patentado para aportar la prueba en contrario, o cumplir con la obligación respectiva, vencido dicho plazo, el cierre se ejecutará y no podrá suspenderse la actuación hasta tanto no se haya cumplido con lo omitido por el patentado.
-b) Cuando un establecimiento comercial produzca escándalo, alteración al orden y la tranquilidad pública, cuando se violaren disposiciones legales o reglamentarias que regulen su funcionamiento. La Municipalidad estará facultada para suspender temporal o permanentemente la actividad que se desarrolle en el mismo, según corresponda, y considerando la gravedad de las faltas producidas. Sin embargo aquellos establecimientos comerciales que se encuentren explotando una actividad lucrativa sin las licencias respectivas, serán objeto de cierre inmediato notificándoles en el mismo momento el acto de cierre, toda vez que la actividad se estaría ejerciendo al margen de la ley.
+Normas generales
+Artículo 21.- La Sección de Patentes Municipales, deberá conocer tanto las solicitudes de licencias para establecimientos comerciales, como traslados, traspasos, ampliaciones o cambios de las actividades comerciales, y toda aquella materia que se relacione con licencias municipales.
+Asimismo, estará a cargo de conocer las solicitudes de las licencias para la comercialización de bebidas con contenido alcohólico, las cuales se regularán de conformidad con el Reglamento a la Ley de Regulación y Comercialización de Bebidas con contenido Alcohólico de la Municipalidad de Curridabat

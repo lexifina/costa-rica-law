@@ -1,3 +1,4 @@
-CAPÍTULO IX
-Disposiciones finales
-Artículo 73.—El impuesto de patentes y las Licencias para la venta de licores al menudeo, se regulará por la Ley respectiva y el reglamento municipal. Además del pago de la licencia establecida en la Ley N° 9047, Regulación y Comercialización de Bebidas con Contenido Alcohólico, de 25 de junio del 2012, publicada en el diario oficial La Gaceta en su Alcance digital N° 109, de 8 de agosto del 2012, deberán pagar los licenciatarios o patentados de este rubro de negocios la respectiva Licencias Municipales de acuerdo con los parámetros establecidos en este numeral y en los Artículos 3 y 4, todos de esta ley. La licencia otorgada al patentado conforme a la Ley N° 9047 y su reglamento de la Municipalidad de Curridabat, es para poder expender bebidas de contenido alcohólico, siendo lo que se cobra por la presente ley, las ventas o los ingresos brutos anuales y la renta líquida gravable, producto de la actividad económica realizada o ejecutada por el patentado o licenciatario, según lo ordenado por el Artículo 4, párrafo final de la Ley N° 9047.
+Artículo 73.- Son causales que motivan la denegatoria de estas licencias:
+a) El incumplimiento de alguno de los requisitos exigidos para su otorgamiento.
+b) La inobservancia, a criterio del Ministerio de Salud, de las medidas necesarias para la conservación de la higiene y la seguridad.
+c) El incumplimiento con los elementos de ornato necesarios, determinados por la Dirección de Servicios Ambientales.

@@ -1,4 +1,12 @@
-Artículo 50.—La Municipalidad mediante resolución de la Alcaldía y previo al cumplimiento de los requisitos establecidos en el presente Reglamento, podrá exonerar del pago del impuesto de espectáculo público a aquellas actividades que se realicen sin fines de lucro y cuando el producto íntegro de esa actividad se destine a fines escolares, de beneficencia, religiosos o sociales, acción que deberán demostrar ante ese mismo órgano aportando los mecanismos de distribución de los ingresos y que deberán liquidar en un plazo máximo de quince días hábiles ante ellos mismos.
-Igualmente se procederá cuando se trate de actividades organizadas por asociaciones deportivas debidamente inscritas en el registro de asociaciones deportivas. Todo trámite para la obtención de este beneficio deberá ser presentado al menos quince días hábiles antes del inicio del evento para que el Concejo Municipal proceda a conocerlo y valorar su aprobación, una vez tomado el acuerdo correspondiente se comunicará lo resuelto tanto a la persona interesada como al Proceso de Licencias Municipales.
-Artículo 66.—Para toda presentación de espectáculos públicos y de diversión se requiere el permiso extendido por el Teatro Nacional.
-(Nota de Sinalevi: En la publicación de este reglamento se consignó el numeral 66 después del artículo 50)
+SECCIÓN IV
+Publicidad
+Artículo 50.- Publicidad. Las personas físicas o jurídicas que deseen colocar anuncios, letreros, avisos o rótulos permitidos y regulados en el Reglamento para la Regulación de la Publicidad Exterior en el Cantón de Curridabat, deberán contar con la licencia extendida por la Municipalidad, entendiéndose por ésta como la autorización emitida para la instalación de cualquier tipo de publicidad. La tarifa anual por tal concepto, pagadera en tractos trimestrales. Será la establecida de la siguiente forma:
+a) Rótulos metálicos: dos coma cinco por ciento (2,5%) sobre el salario base mínimo (SBM) de un auxiliar administrativo N° 1 del Poder Judicial por metro cuadrado impreso.
+b) Rótulos luminosos: cinco por ciento (5%) sobre el salario base mínimo (SBM) de un auxiliar administrativo N° 1 del Poder Judicial por metro cuadrado impreso.
+c) Rótulos no luminosos: tres coma cinco por ciento (3,5%) sobre el salario base mínimo (SBM) de un auxiliar administrativo N° 1 del Poder Judicial, por metro cuadrado impreso.
+d) Rótulos cuya medida sea inferior a un metro cuadrado, la tarifa correspondiente a un metro cuadrado según cada tipo de rótulo detallado anteriormente.
+e) La publicidad ambulante o removible de cualquier naturaleza pagará el veinticinco por ciento (25%) sobre el SBM por semana.
+f) Las ventas ambulantes autorizadas por la reglamentación de esta Municipalidad pagarán el mínimo establecido en el artículo 4 de la Ley N° 9185.
+g) Los propietarios de los fundos o inmuebles en donde se instale la publicidad indicada en los incisos precedentes de este artículo deberán cancelar el impuesto de patente según las reglas de los artículos 3 y 4 de la Ley N° 9185.
+Los rótulos pintados en la pared y los cerramientos se encuentran prohibidos.
+Las personas físicas o jurídicas que en los inmuebles de su propiedad faciliten, alquilen, arrienden, den en préstamo, ya sea gratuita y onerosamente, deberán cancelar el respectivo impuesto correspondiente el cual se le cargara a los tributos municipales.

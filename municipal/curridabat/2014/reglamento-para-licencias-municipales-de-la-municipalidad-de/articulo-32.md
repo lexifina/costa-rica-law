@@ -1,1 +1,5 @@
-Artículo 32.—Todas aquellas personas físicas o jurídicas cuya actividad esté distribuida en uno o más cantones, aparte del Cantón de Curridabat, y que por tal motivo estén sujetas al pago del impuesto de patentes en esos Cantones, deberán determinar y demostrar mediante documentos fehacientes, la proporción del volumen de sus ingresos que se genera en la jurisdicción del cantón de Curridabat, para efectos del pago del impuesto respectivo.
+CAPÍTULO IV
+Del procedimiento de cobro del impuesto de patentes
+SECCIÓN I
+Aspectos generales
+Artículo 32.- Las personas físicas o jurídicas que se dediquen al ejercicio de cualquier tipo de actividad lucrativa en el Cantón de Curridabat, estarán obligadas a pagar a la Municipalidad un impuesto de patentes de conformidad con lo que establece la Ley de Patentes del Cantón de Curridabat N° 9185 del 29 de noviembre de 2013 y el Artículo 1º de este Reglamento.

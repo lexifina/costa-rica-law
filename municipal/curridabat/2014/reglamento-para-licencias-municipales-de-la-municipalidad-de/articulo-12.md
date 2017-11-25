@@ -1,3 +1,1 @@
-SECCIÓN III
-Traspasos de licencias municipales
-Artículo 12.—Para realizar traspasos de licencias municipales, se deberá obtener aprobación del Municipio. De igual manera se procederá cuando se dé un cambio en el giro comercial del local comercial que se está explotando.
+Artículo 12.- Requisitos. Para solicitar un traslado de la actividad comercial ya autorizada, se requiere completar el formulario respectivo, junto con los documentos señalados en los puntos 1, 2, 5, 7, 9, 10, 11 y 12 del artículo 6 de este reglamento.

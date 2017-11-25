@@ -1,1 +1,6 @@
-Artículo 5º—La licencia municipal para ejercer una actividad lucrativa, sólo podrá ser denegada cuando la actividad es contraria a la Ley, la moral o las buenas costumbres, cuando el solicitante de la licencia haya incurrido en violaciones reiteradas a la ley, la moral o las buenas costumbres o cuando el establecimiento no haya llenado los requisitos legales y reglamentarios o cuando la actividad en razón de su ubicación física, no este permitida por las leyes o reglamentos vigentes, o no sea conforme con el uso del suelo de la zona, de acuerdo al Plan Regulador del Cantón de Curridabat.
+SECCIÓN II
+Procedimiento para el otorgamiento de las licencias comerciales
+Artículo 5.- Las solicitudes de licencias comerciales serán tramitadas por la Sección de Patentes de la Municipalidad, la cual constatará si la explotación de la actividad comercial sea lucrativa o no, solicitada por el interesado, cuenta con todos los requisitos legales reglamentarios necesarios para su explotación, de lo contrario prevendrá el incumplimiento de los requisitos omisos.
+La prevención deberá ser realizada una sola vez por parte de la Administración Municipal, de conformidad con la normativa que regule el derecho de petición, señalando todos los defectos que deban subsanarse por parte del gestionante.
+En caso de incumplimiento de requisitos, se procederá al rechazo de la solicitud, mediante acto motivado.
+La autorización final de la explotación de la licencia comercial respectiva se otorgará por medio del certificado correspondiente.

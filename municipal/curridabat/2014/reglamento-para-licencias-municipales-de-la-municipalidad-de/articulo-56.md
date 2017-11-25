@@ -1,1 +1,4 @@
-Artículo 56.—La no cancelación del impuesto dentro del plazo señalado hará que la Municipalidad imponga una multa de uno a diez veces el monto dejado de pagar, el cual deberá ser cancelado en el mismo mes.
+SECCIÓN II
+De las licencias de espectáculo público permanentes en locales comerciales
+Artículo 56.- La Municipalidad podrá autorizar licencia permanente para la presentación de espectáculos públicos en los locales que cuenten con una licencia municipal para salones de baile, cines y discotecas.
+Queda prohibida la presentación de espectáculos públicos en bares, cantinas, tabernas y restaurantes.

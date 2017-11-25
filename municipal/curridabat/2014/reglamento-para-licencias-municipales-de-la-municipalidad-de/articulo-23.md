@@ -1,1 +1,3 @@
-Artículo 23.—En los procedimientos anteriormente señalados, los vecinos de un establecimiento, las Asociaciones de Desarrollo y otros grupos similares que se consideren afectados por alguna circunstancia, podrán intervenir como parte interesada, Para los efectos de comparecencias orales y privadas, cuando fuere un grupo numeroso a criterio del Alcalde se les indicará que nombren no más de tres representantes, quienes participarán en la audiencia citada.
+SECCIÓN II
+De los inspectores
+Artículo 23.- La municipalidad contará con un cuerpo de inspectores municipales, debidamente identificados quienes realizarán las visitas a aquellos locales que soliciten licencia para actividades comerciales, así como de aquellos que ya se encuentren funcionando. Este cuerpo de inspectores contará con un Encargado de Inspectores quien fiscalizará el cumplimiento debido de sus funciones.

@@ -1,1 +1,1 @@
-Artículo 33.—La información suministrada por los contribuyentes del impuesto de patentes a la Municipalidad, tiene el carácter confidencial al que se refiere el artículo 117 del Código de Normas y Procedimientos Tributarios.
+Artículo 33.- El impuesto se pagará durante todo el tiempo en que se haya ejercido la actividad lucrativa o por el tiempo que se haya poseído la licencia, aunque la actividad no se haya realizado.

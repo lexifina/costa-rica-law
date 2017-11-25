@@ -1,5 +1,6 @@
-Artículo 62.—Requisitos: Para obtener una Licencia Comercial de venta ambulante, se requiere:
-a) Formulario debidamente lleno de solicitud de licencia municipal ambulante, con todos los datos requeridos para su trámite debidamente firmado por la persona interesada, en caso que él o la solicitante no efectúe el trámite de manera personal, la firma deberá estar autenticada por Abogado. En caso que él o la solicitante sea de nacionalidad extranjera, deberá aportar, el permiso de trabajo respectivo para laborar en Costa Rica o cédula de residencia al día o carné de refugiado.
-b) Estar al día en el caso de vehículos con revisiones, requisitos y seguros que solicite el Ministerio de Obras Públicas y Transportes.
-c) Presentar título de propiedad del vehículo mediante el cual se realizará la actividad lucrativa respectiva.
-d) Copia de Permiso sanitario de funcionamiento emitido por el Ministerio de Salud y original para ser confrontado por funcionario municipal.
+CAPÍTULO VII
+Sección Única
+De las licencias para funcionamiento de karaoke, discomóviles y actividades bailables
+ocasionales
+Artículo 62.- Entiéndase por karaoke como la actividad de diversión consistente en interpretar una canción sobre un fondo musical grabado, mientras se sigue la letra que aparece en una pantalla, así como el equipo técnico compuesto por amplificador de sonido, micrófono, etc., que se usa para dicho fin.
+Entiéndase por discomóvil equipo musical de gran potencia que se utiliza para amenizar una fiesta o actividad social, el cual también incluye a la persona que selecciona y mezcla música grabada propia o de otros compositores y artistas, para ser escuchada por una audiencia.

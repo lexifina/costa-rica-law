@@ -1,3 +1,1 @@
-CAPÍTULO VIII
-De las empresas adscritas a Programas del IMAS y otras instituciones de bien social.
-Artículo 72.—Durante los primeros tres años de desarrollo de empresas o actividades económicas financiadas por programas del Instituto Mixto de Ayuda Social u otras entidades públicas de bien social, tendrán la obligación de cancelar, por concepto de patente comercial, el monto mínimo establecido en el párrafo segundo del artículo 4 de la Ley de Patentes de la Municipalidad de Curridabat. Pasado ese lapso, deberá adecuar la información, como el resto de quienes desarrollar actividad económica en el Cantón de Curridabat.
+Artículo 72.- Se establece como horario de funcionamiento de ventas ambulantes y ventas estacionarias, de las seis horas a las veinte horas, no pudiendo realizarse la actividad fuera de dicho horario.
