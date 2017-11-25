@@ -1,0 +1,1 @@
+Artículo 10.—Todo establecimiento debe habilitar un registro físico o con soporte electrónico donde se registre de forma secuencial la información de todos los porcinos que ingresen o salgan del mismo.

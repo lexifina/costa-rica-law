@@ -1,0 +1,1 @@
+Artículo 5º—La movilización de ganado porcino por vía pública deberá de hacerse amparada a la guía oficial de movilización, este documento será además requerido para el ingreso de ganado porcino a los establecimientos de sacrificio, o a cualquier otro establecimiento de los regulados en el artículo 56 de la Ley General del Servicio Nacional de Salud Animal.

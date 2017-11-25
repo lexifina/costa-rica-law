@@ -1,0 +1,1 @@
+Artículo 12.—El registro de salidas debe de llevarse de forma cronológica registrando el número de guía con la que sale cada embarque y la cantidad de animales egresados. Forman parte del registro de salidas del establecimiento, las copias de las Guías de Movilización emitidas.

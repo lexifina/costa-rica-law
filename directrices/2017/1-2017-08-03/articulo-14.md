@@ -1,0 +1,1 @@
+Artículo 14.—Cuando la movilización de los animales se haya originado fuera del país, el responsable de la importación o su representante debe solicitar en el puesto de inspección fronterizo, la guía de movilización y completarla con los datos pertinentes.

@@ -1,0 +1,1 @@
+Artículo 3º—Se oficializa como instrumento documental para la movilización de ganado porcino en todo el país el documento denominado “Guía Oficial de Movilización de Ganado Porcino” (ANEXO 1), el cual para todos los efectos será el documento oficial mediante el cual se movilizará el ganado porcino.

@@ -1,0 +1,1 @@
+Artículo 19.—Los médicos veterinarios destacados en los establecimientos de sacrificio deben completar la información de las tarjetas ante-mortem, para lo cual deben necesariamente requerir la guía oficial de movilización.

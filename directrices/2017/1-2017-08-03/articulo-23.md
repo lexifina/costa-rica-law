@@ -1,0 +1,1 @@
+Artículo 23.—El SENASA, en cualquier momento, podrá verificar las Guías Oficiales de Movilización de Ganado Porcino en puestos de control que constituya al efecto, con el propósito de corroborar la correspondencia de los datos consignados en la guía y los animales que se movilizan.
