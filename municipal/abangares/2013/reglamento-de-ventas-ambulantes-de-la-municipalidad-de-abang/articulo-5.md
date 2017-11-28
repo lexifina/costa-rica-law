@@ -1,8 +1,12 @@
-Artículo 5º—Para obtener la Licencia Municipal se requiere:
-Ser mayor de 18 años, y aportar copia de la cédula de identidad. En el caso de los extranjeros, su cédula de residencia vigente y que su condición migratoria sea regular y legal en Costa Rica.
+ARTICULO 5º : Para obtener la Licencia Municipal se requiere presentar la solicitud respectiva ante el departamento de patentes o en su defecto ante el mostrador:
+Debe establecer el nombre completo y calidades, dirección exacta de donde se le podrá ubicar, teléfono, correo electrónico si contara con este medio.
+Ser mayor de 18 años, y aportar copia de la cédula de Identidad o cédula de residencia vigente, y carné de salud. ( no se para que se le pide esto si no se autoriza ventas de alimentos)
+Ser costarricense, y si es extranjero tener una condición migratoria regular y legal en Costa Rica, y ser vecino del Cantón de Abangares.
 Llenar formulario facilitado por el Departamento de Patentes el cual será determinante para el otorgamiento o no de la licencia.
 Aportar una foto tamaño pasaporte para el expediente.
 Llenar el Formulario de Declaración Jurada del Impuesto de Patentes.
-Indicar cuál será la actividad comercial ambulante que realizará. La que deberá realizar por calles aceras y zonas públicas. Queda totalmente prohibido la venta de alimentos (artículo 218 párrafo segundo de la Ley General de salud) excepto cuando se trate de ferias debidamente autorizadas por los organismos competentes.
-La resolución que deniega la patente tendrá recurso de revocatoria para ante el Alcalde Municipal, apelación ara el Concejo y recurso jerárquico impropio para ante el Tribunal
-Contencioso.
+Indicar cuál será la actividad comercial ambulante que realizará. La que deberá realizar por calles aceras y zonas públicas. Queda totalmente prohibido la venta de alimentos (artículo 218 párrafo segundo de la Ley General de salud) y bebidas de contenido alcohólicos, excepto cuando se trate de ferias debidamente autorizadas por los organismos competentes, por lo tanto esta Municipalidad no otorgará patentes a esta actividad.
+Presentar que se encuentra debidamente inscrito ante el Ministerio de Hacienda.
+Plan de manejo de desechos sólidos cuando la actividad lo amerite o los genere y de conformidad con el reglamento de recolección y manejo de desechos sólidos de esta Municipalidad.
+Firme la resolución que concede la Patente, el departamento de patente entregará al concesionario un certificado donde se hará constar nombre completo del patentado, fotografía, la actividad permitida ruta autorizado para realizar la venta ambulante, numero de patente, fecha de vencimiento, firmas y sellos, este certificado deberá de portarlo el patentado siempre, para cuando las autoridades policiales y administrativas Municipales lo solicitan.
+La resolución que otorgue o deniega la licencia deberá ser fundamentada e indicará de forma técnica por que se otorga tomando en cuenta cuantos vendedores de esa actividad ya existen, y demás aspectos como si son ventas licitas, esto tomando en cuenta las razones de oportunidad y conveniencia, y cuando se deniegue se debe indicar conforme a la normativa y debidamente fundamentada por que se emite tal resolución, y esta tendrá recurso de revocatoria para ante el funcionario que dicta la resolución, apelación para el Alcalde (sa) y recurso jerárquico impropio para ante el Tribunal Contencioso.

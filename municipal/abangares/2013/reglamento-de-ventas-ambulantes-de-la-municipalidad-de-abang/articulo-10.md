@@ -1,1 +1,1 @@
-Artículo 10.—En los puestos ambulantes el horario de funcionamiento será de las seis horas hasta las dieciocho horas, debiendo dejar totalmente limpia el área ocupada
+ARTICULO 10º : Las Licencias de ventas ambulantes el horario de funcionamiento será de las seis de horas hasta las diecisiete horas, debiendo dejar totalmente limpia las áreas ocupadas durante sus recorridos.

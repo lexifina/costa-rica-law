@@ -1,1 +1,1 @@
-Artículo 9º—Las ventas ambulantes funcionarán en vías públicas o zonas Públicas. Quedan a salvo las prohibiciones establecidas por otras leyes y aquellos lugares que u renten contra la seguridad del peatón y el tránsito de vehículos.
+ARTICULO 9°: Las ventas ambulantes funcionarán en vías públicas o zonas Públicas. Quedan a salvo las prohibiciones establecidas por otras leyes y aquellos lugares que atenten contra la seguridad del peatón y el tránsito de vehículos

@@ -1,1 +1,3 @@
-Artículo 25.—El plazo de custodia, de dichas mercancías no podrá sobrepasar los 30 días naturales. Transcurrido el plazo, y de no ser retiradas las mercancías por su propietario o titular; queda facultada la Administración, para rematarlas o donarlas a instituciones de beneficencia del cantón; siguiendo el debido proceso. En el caso de productos perecederos se dispondrá de inmediato de ellos.
+ARTICULO 25º : Por incumplimiento a las disposiciones legales y reglamentarias podrá la Municipalidad de Abangares imponer las siguientes sanciones:
+a) clausura de la actividad,
+b) revocar la licencia de forma inmediata y oficio

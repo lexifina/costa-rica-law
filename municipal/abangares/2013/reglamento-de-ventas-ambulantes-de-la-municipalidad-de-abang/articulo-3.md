@@ -1,3 +1,1 @@
-CAPÍTULO II
-Licencias
-Artículo 3º—Únicamente se podrá realizar el comercio en forma ambulante en las vías públicas y demás zonas enunciadas cuando se cuente con la respectiva licencia Municipal.
+ARTICULO 3º: Únicamente se podrá realizar el comercio en forma ambulante en las vías públicas cuando se cuente con la respectiva licencia Municipal, y que no sea contraria a la Ley General de Salud, la Ley 904 7 ley de Comercialización y distribución de Bebidas con contenido Alcohólico.

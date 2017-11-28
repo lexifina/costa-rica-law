@@ -1,1 +1,1 @@
-Artículo 28.—Este reglamento entrará en vigencia el mismo día que se publique en el Diario Oficial La Gaceta.
+ARTÍCULO 28º : El plazo de custodia, de dichas mercancías no podrá sobrepasar los 15 días naturales, la Administración deberá de presentar la denuncia correspondiente ante los estrados Judiciales, y una vez obtenida la sentencia y si la mercadería no hubiese sido retirada de conformidad con lo que indica el artículo 27 de este reglamento, se procederá conforme lo indica el artículo 2 7 siguiente.

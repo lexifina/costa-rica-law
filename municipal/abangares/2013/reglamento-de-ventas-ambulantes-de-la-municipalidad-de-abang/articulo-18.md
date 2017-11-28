@@ -1,1 +1,3 @@
-Artículo 18.—El Departamento de Administración Tributaria y Catastro, elaborará y enviará a los inspectores generales la lista actualizada de las personas a quienes se les ha otorgado Licencia do vendedor ambulante; para que fiscalicen si están a derecho, así como el cumplimiento de este reglamento.
+CAPITULO III
+PROCEDIMIENTOS ESPECIALES
+ARTICULO 18º : Para la aplicación de este Reglamento el Alcalde Municipal o en su caso el Departamento de Administración tributaria coordinará con las autoridades policiales quienes estarán obligadas a prestar auxilio y denunciar a los vendedores que no cuenten con patente o se encuentren violando los términos de este reglamento.

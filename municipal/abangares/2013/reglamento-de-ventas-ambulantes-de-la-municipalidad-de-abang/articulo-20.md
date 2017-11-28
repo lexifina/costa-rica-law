@@ -1,3 +1,7 @@
-CAPÍTULO VI
-Costo de la patente
-Artículo 20.—El costo de la Patente de vendedores ambulantes, será el equivalente al salario diario de una servidora doméstica y los ajustes se aplicarán en forma automática como así lo establezcan el Ministerio de Trabajo.
+CAPITULO IV
+RECURSOS Y SANCIONES
+ARTÍCULO 20 °: DEBIDO PROCESO. Cualquier infracción a la presente reglamentación y su ley, se procederá del siguiente modo:
+Los inspectores, el encargado ele patentes todos ele la Administración tributaria levantarán una información sumaria, apoyándose en medios científicos si fuese necesario como fotografías y videos.
+Concluida la información se emitirá la recomendación respectiva al señor Alcalde Mu1úcipal quien en aplicación del debido proceso, conformará un órgano para dar el debido proceso mediante una investigación sumaria y correrá audiencia por tres días al infractor, oído éste y recibida la prueba, dentro de los siguientes ocho días hábiles, emitirá la resolución respectiva, declarando caduca la licencia o exonerándolo del cargo.
+La resolución adoptada, tendrá recurso de revocatoria y apelación, la revocatoria ante el Alcalde Municipal, y apelación jerarquía impropia para la Sección Tercera del Tribunal Contencioso Administrativo.
+La apelación debe ser interpuesta, dentro de tercer día a partir de la notificación so pena; de que se le tenga por notificadas las resoluciones futuras en el plazo de veinticuatro horas, para lo cual debe usar medio para atender notificaciones; sea lugar dentro del perímetro del Edificio Municipal que para tales efectos de equidad para el del Poder Judicial, fax correo electrónico y presentar personalmente el escrito de impugnación de la secretaría.

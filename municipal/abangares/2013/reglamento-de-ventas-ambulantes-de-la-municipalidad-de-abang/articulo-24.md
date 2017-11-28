@@ -1,1 +1,1 @@
-Artículo 24.—Debe la Administración definir un lugar dentro del perímetro de sus oficinas, para la custodia de las mercancías decomisadas.
+ARTÍCULO 24°: La forma de pago de éste impuesto será trimestralmente y el atraso en los pagos generará multas e intereses moratorias que se cancelarán con base al artículo 57 y 76 del Código de Normas y Procedimientos Tributarios, así mismo como ya se indicó en el artículo 6 punto a) el atraso será causal de caducidad.

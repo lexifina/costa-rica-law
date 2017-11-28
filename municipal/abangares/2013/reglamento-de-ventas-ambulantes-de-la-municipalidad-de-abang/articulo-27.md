@@ -1,1 +1,1 @@
-Artículo 27.—Lo no previsto en este reglamento, se aplicará la Ley 8260 Tarifa de Impuestos Municipales del Cantón de Abangares, el Código Municipal, el Código de Normas y Procedimientos Tributarios, la Ley General de Administración pública y cualquier otra disposición compatible.
+ARTICULO 27° : Debe la Administración definir un lugar dentro del perímetro de sus Oficinas, para la custodia de las mercancías decomisadas

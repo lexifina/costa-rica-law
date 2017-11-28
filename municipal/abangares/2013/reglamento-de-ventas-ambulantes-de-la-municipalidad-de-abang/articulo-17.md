@@ -1,3 +1,1 @@
-CAPÍTULO IV
-Procedimientos especiales
-Artículo 17.—Para la aplicación de este Reglamento el Alcalde o Alcaldesa o en su caso el Departamento de Administración tributaria coordinará con las autoridades policiales quienes estarán obligadas a prestar auxilio y denunciar a los vendedores que no cuenten con patente o se encuentren violando los términos de este reglamento.
+ARTICULO 17 º: L1s denuncias deberán ser presentadas a la oficina de la Alcaldía quien a su vez las dirigirá ante el Encargado de Pt1tentes, y este deberá de solicitar y realizar la supervisión respectiva para proceder como corresponda cumpliendo un debido proceso, a su vez dará la recomendación a su jefe inmediato.

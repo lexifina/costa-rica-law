@@ -1,1 +1,5 @@
-Artículo 21.—La forma de pago de éste impuesto será trimestralmente y el atraso en los pagos generará multas e intereses moratorios que se cancelarán con base al artículo 57 y 75 del Código de Normas y Procedimientos Tributarios.
+ARTÍCULO 21 º:-Por incumplimiento de las disposiciones legales y reglamentarias, podrá la Municipalidad imponer las siguientes sanciones:
+a. Caducidad.
+b. Suspensión.
+c. Extinción por revocatoria.
+Lo anterior, sin perjuicio, de las denuncias civiles o penales, que se puedan interponer ante los órganos jurisdiccionales competentes o las instituciones de gobiernos encargadas de velar por el cumplimiento de las leyes citadas en el presente reglamento.
