@@ -1,1 +1,0 @@
-Artículo 41.—Comisión de donación. Cada Ministerio o institución adscrita, contará con una Comisión de Donación, de nombramiento del máximo Jerarca de la institución; conformada por lo menos por el Director Administrativo, el Proveedor Institucional y el Encargado del Control de Bienes de la Institución; la que se encargará de recomendar las donaciones.

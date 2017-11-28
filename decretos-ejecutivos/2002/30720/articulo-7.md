@@ -1,3 +1,0 @@
-Artículo 7º—Firma de Inventarios. La firma de inventarios por parte de las personas a que se refiere el artículo anterior, implica la responsabilidad administrativa y civil, en cuanto a los bienes encomendados a su cargo, por lo que serán responsables directa o indirectamente por la pérdida, daño o depreciación de los mismos, salvo que provengan del deterioro natural por razones del uso legítimo o de otra causa justificada.
-A ninguna persona se le puede hacer firmar un inventario de bienes si éstos no están bajo su inmediato control o responsabilidad, ya sea que los tenga a su cargo para su uso, custodia o administración o para el desarrollo de su trabajo.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 32815 del 9 de noviembre del 2005)

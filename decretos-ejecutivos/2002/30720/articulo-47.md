@@ -1,3 +1,0 @@
-Artículo 47.—Notificación de donación aprobada. La Comisión recomendará la o las instituciones que recibirán la donación. El Acta de Donación será emitida de acuerdo con el artículo 42 de este reglamento. El Acta deberá ser notificada expresamente al interesado y a la Dirección General de Administración de Bienes y Contratación Administrativa.
-La entidad donataria deberá proceder al retiro de los bienes en el término improrrogable de 8 días naturales. Caso contrario, la Administración podrá de oficio dejar sin efecto la misma, procediendo a donarlo a otra Institución.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por el Decreto Ejecutivo No. 31194 de 03 de abril del 2003, publicado en La Gaceta No. 111 de 11 de junio del 2003)

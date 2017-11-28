@@ -1,3 +1,0 @@
-Artículo 26.—Baja de bienes. Para dar de baja bienes públicos, por agotamiento, inservibilidad, rotura o desuso, la Administración debe demostrar que los bienes ya no son de utilidad. Se pueden utilizar los siguientes mecanismos para dar de baja: venta, permuta, donación, desmantelamiento, destrucción.
-Asimismo, cuando por desaparición, pérdida, hurto o robo, por caso fortuito o fuerza mayor, vencimiento, muerte de semovientes y otros conceptos que extingan el valor del bien de que se trate, se requiere su destrucción, se deberá seguir con los procedimientos establecidos en el presente Reglamento.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por el Decreto Ejecutivo No. 31194 de 03 de abril del 2003, publicado en La Gaceta No. 111 de 11 de junio del 2003)

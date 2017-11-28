@@ -1,2 +1,0 @@
-Artículo 49.—Deber de informar. La institución beneficiada con la donación, deberá comunicar al donante en un plazo no mayor de treinta días naturales, contados a partir del acto de entrega de la donación, un detalle del beneficio o destino final de los bienes donados.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por el Decreto Ejecutivo No. 31194 de 03 de abril del 2003, publicado en La Gaceta No. 111 de 11 de junio del 2003)

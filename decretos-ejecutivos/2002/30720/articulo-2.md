@@ -1,3 +1,0 @@
-Artículo 2º—Registro de bienes. Es responsabilidad de la Unidad de Administración de Bienes Institucionales de cada Ministerio u Órgano Adscrito, mantener un registro actualizado del patrimonio de la Institución, debiendo valorar cada uno de los bienes o elementos que en ellos figuren, con el precio que corresponda de acuerdo con las disposiciones técnicas que al respecto dicte la Contabilidad Nacional.
-Los materiales y suministros serán controlados de acuerdo con las normas de control interno aplicables y las que al respecto dicte la Institución.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 32815 del 9 de noviembre del 2005)

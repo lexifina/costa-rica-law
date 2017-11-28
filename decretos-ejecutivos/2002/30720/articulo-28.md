@@ -1,2 +1,0 @@
-Artículo 28.—Baja de bienes en poder de funcionarios por pérdidas. En caso de bajas de bienes con o sin responsabilidad atribuible a los funcionarios, además de los requisitos señalados en el artículo 27 y obligaciones estipuladas en el artículo 13 de este Reglamento, deberá incluirse en el expediente administrativo que se levante al efecto, el valor de mercado del bien.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por el Decreto Ejecutivo No. 31194 de 03 de abril del 2003, publicado en La Gaceta No. 111 de 11 de junio del 2003)

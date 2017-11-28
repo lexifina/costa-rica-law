@@ -1,2 +1,0 @@
-Artículo 10.—Verificación de inventarios. La Dirección de Administración de Bienes y Contratación Administrativa podrá verificar la existencia de los bienes inventariados a cargo de las distintas dependencias de la Administración Central y exigir el cumplimiento de las normas establecidas en este reglamento o instrucciones que en esta materia se hayan emitido.
-La verificación de existencias se hará mediante prueba selectiva periódica, excepto en casos especiales que ameriten una verificación total.

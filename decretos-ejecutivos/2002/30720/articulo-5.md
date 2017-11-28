@@ -1,2 +1,0 @@
-Artículo 5º—Inscripción de bienes. Las Unidades de Administración de Bienes Institucionales velarán para que se realicen las gestiones necesarias, para inscribir los bienes que por su naturaleza requieran ser inscritos en los respectivos registros públicos existentes.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por el Decreto Ejecutivo No. 31194 de 03 de abril del 2003, publicado en La Gaceta No. 111 de 11 de junio del 2003)
