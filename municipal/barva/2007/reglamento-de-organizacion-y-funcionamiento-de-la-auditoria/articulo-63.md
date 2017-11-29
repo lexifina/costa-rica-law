@@ -1,0 +1,2 @@
+Artículo 63.—Modificaciones al Manual Descriptivo de puestos. El Auditor Interno deberá gestionar ante la administración activa las modificaciones correspondientes al Manual Descriptivo de Puestos, para que el mismo sea ajustado conforme a los lineamientos que al respeto emita la Contraloría General de la República.
+(Corrida su numeración mediante publicación en La Gaceta N° 226 del 29 de noviembre del 2017, que lo traspasó del antiguo 49 al 63)

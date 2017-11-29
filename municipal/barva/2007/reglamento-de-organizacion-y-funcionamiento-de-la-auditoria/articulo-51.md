@@ -1,0 +1,2 @@
+Artículo 51.—La denuncia verbal. Este tipo de denuncia será admitida excepcionalmente. El denunciante comparecerá personalmente a las oficinas de la Auditoría Interna, y expresará de modo oral la presunta situación irregular, cumpliendo además con los requisitos e información propios de la denuncia escrita. Si el denunciante no quisiere firmarla, se valorará en los mismos términos que la denuncia anónima.
+(Así adicionado mediante publicación en La Gaceta N° 226 del 29 de noviembre del 2017)

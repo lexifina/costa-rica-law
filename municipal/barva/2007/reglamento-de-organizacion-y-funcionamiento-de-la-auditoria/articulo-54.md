@@ -1,0 +1,2 @@
+Artículo 54.—Traslado de la denuncia a la administración. Si el asunto planteado en la denuncia, es propio de la competencia de la administración, el Auditor Interno lo trasladará para conocimiento de la instancia interna respectiva. El traslado se dará en sobre cerrado con indicación de que en su trámite se debe tener presente las reglas sobre confidencialidad. Asimismo, la Auditoría guardará en todo momento, la confidencialidad del denunciante.
+(Así adicionado mediante publicación en La Gaceta N° 226 del 29 de noviembre del 2017)

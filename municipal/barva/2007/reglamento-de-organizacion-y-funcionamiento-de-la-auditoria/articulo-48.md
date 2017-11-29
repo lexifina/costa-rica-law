@@ -1,1 +1,2 @@
-Artículo 48.—Modificaciones al Reglamento. El Auditor Interno, podrá proponer las modificaciones que considere oportunas al presente reglamento.
+Artículo 48.—Ámbito de Competencia. La Auditoría Interna dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales cometidos por los funcionarios municipales, personas u organizaciones privadas en relación con fondos públicos transferidos por la Municipalidad. Toda denuncia recibida será numerada consecutivamente.
+(Así adicionado mediante publicación en La Gaceta N° 226 del 29 de noviembre del 2017)

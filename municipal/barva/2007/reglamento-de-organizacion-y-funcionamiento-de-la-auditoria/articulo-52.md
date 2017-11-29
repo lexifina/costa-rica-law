@@ -1,0 +1,2 @@
+Artículo 52.—Solicitud de Aclaración. En caso de determinar la Auditoría interna que existe imprecisión de los hechos, se otorgará al denunciante un plazo no menor de 10 días hábiles para que complete su información. Solo en caso de que esa información le impida a la auditoría a continuar oficiosamente con la investigación se archivará o desestimará la gestión sin perjuicio de que sea presentada con mayores elementos posteriormente.
+(Así adicionado mediante publicación en La Gaceta N° 226 del 29 de noviembre del 2017)
