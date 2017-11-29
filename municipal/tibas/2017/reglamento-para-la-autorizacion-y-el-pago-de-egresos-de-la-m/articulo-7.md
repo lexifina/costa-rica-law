@@ -1,0 +1,1 @@
+Artículo 7°—Todos los pagos por concepto de órdenes de compra, planillas o resoluciones se efectuarán mediante cheque o transferencia electrónica, excepto aquellos que se realicen a través de Caja Chica, de acuerdo con las normas que dicte la Municipalidad, a través del Reglamento que ha emitido al efecto, según lo consignado en el artículo 109 del Código Municipal.

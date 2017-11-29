@@ -1,0 +1,1 @@
+Artículo 4°—En todos los demás casos, el Alcalde Municipal deberá solicitar la autorización del Concejo Municipal previo a la realización del desembolso, de lo contrario contraviene las disposiciones incluidas en los artículos 6. 7. y 8 de la Ley de Administración Financiera de la República.

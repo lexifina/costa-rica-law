@@ -1,0 +1,2 @@
+Pagos Municipales
+Artículo 6°—Los pagos por los egresas contemplados en los artículos anteriores, se efectuarán por medio de cheque o transferencia electrónica, de acuerdo con el trámite realizado por el Contador, con las firmas mancomunadas autorizadas previamente. En casos de urgente necesidad o fuerza mayor que hagan impostergable la firma de un cheque, o una transferencia, el o la vicealcalde (sa) queda autorizado por el Alcalde, para poder firmar en sustitución de éste, mediante la respectiva justificación al respecto.

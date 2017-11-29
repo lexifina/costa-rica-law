@@ -1,0 +1,2 @@
+Atribuciones del Concejo
+Artículo 5°—Corresponderá al Concejo Municipal, por la vía del acuerdo municipal que se emane al efecto y con base en lo dispuesto en el artículo 13, inciso e) del Código Municipal, autorizar los egresos de la municipalidad, por gastos fijos y la adquisición de bienes y ser-vicios, cuando éstos superen el monto máximo de egresos que puede autorizar el Alcalde Municipal conforme al artículo 2° de este reglamento.
