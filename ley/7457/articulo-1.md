@@ -1,7 +1,6 @@
+N° 7457
 TARIFA DE IMPUESTOS MUNICIPALES
-DEL CANTON DE AGUIRRE
+DEL CANTON DE QUEPOS (*)
+(*)(Así modificada su denominación por el artículo 2° de la ley N° 9490 del 25 de octubre del 2017. Anteriormente indicaba “Aguirre”)
 ARTICULO 1.- Obligatoriedad del pago del impuesto.
-Las personas físicas o jurídicas que se dediquen al ejercicio de
-actividades lucrativas de cualquier tipo en el cantón de Aguirre, estarán
-obligadas a pagar a la Municipalidad un impuesto de patentes, conforme a
-esta Ley.
+Las personas físicas o jurídicas que se dediquen al ejercicio de actividades lucrativas de cualquier tipo en el cantón de Aguirre, estarán obligadas a pagar a la Municipalidad un impuesto de patentes, conforme a esta Ley.
