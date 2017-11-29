@@ -14,3 +14,4 @@ Política y procedimiento Control de Ejercicio Legal de los Profesionales en Edu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-07-31 | la propia norma |
+| 2 | 2017-11-29 | Acuerdo 0 (2017-11-29) |

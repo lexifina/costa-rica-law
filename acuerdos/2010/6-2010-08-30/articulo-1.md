@@ -1,64 +1,42 @@
-COLEGIO DE LICENCIADOS Y PROFESORES
-DEPARTAMENTO FISCALÍA
+COLEGIO DE LICENCIADOS Y PROFESORES DEPARTAMENTO FISCALÍA
 POLÍTICA Y PROCEDIMIENTO: CONTROL DEL EJERCICIO LEGAL DE LOS PROFESIONALES EN EDUCACIÓN. | Número: POL/PRO-FEL03 Versión: 1 Agosto 2010
 Dirigido a: Colegiados, Órganos, Colaboradores, Órganos del Colegio, Auxiliares de Fiscalía; Terceros Interesados. |
 Elaborado por: Abogados Fiscalizadores 1 y 2 |
 Fecha de emisión: 21-07-2010 | Reemplaza a: Ninguna
 Revisado por: Comisión de revisión de políticas | Aprobado para entrar en vigencia: Sesión ordinaria 078-2010 celebrada el 30-08-10, Acuerdo Nº 06
-OBJETIVO:
+(Nota de Sinalevi: La presente norma fue reformada parcialmente y publicada de forma íntegra mediante publicación en La Gaceta N° 226 del 29 de noviembre del 2017, y se transcribe a continuación:)
+Objetivo:
 Establecer los lineamientos necesarios para el control del ejercicio legal de los profesionales en educación.
-POLÍTICAS GENERALES:
-1) El Departamento de Fiscalía, a través de la Unidad de Fiscalización, es la responsable de resguardar el ejercicio legal de la profesión.
-2) La incorporación al Colegio de Licenciados y Profesores es un requisito para ejercer legalmente la profesión docente y para que el funcionario pueda percibir el pago de pluses salariales establecidos por el Estado o institución contratante.
-3) El ejercicio legal de la profesión, se hará mediante el cotejo de nóminas, denuncias u otras acciones, por tal motivo, éste Colegio Profesional, se encuentra facultado por ley, para exigir las nóminas del personal a todas las Instituciones Educativas públicas o privadas que se requieran; así como, otras gestiones relacionadas con esta acción.
-POLÍTICAS ESPECÍFICAS:
-1) La solicitud de nómina se realizará a la persona que ostente la Dirección de la Institución o en su defecto al Asistente; y será solicitada por el o la Fiscal de Junta Directiva en forma escrita. El escrito deberá contener:
-a) Nombre, puesto e institución de la persona encargada.
-b) Motivo de la solicitud de la nómina.
-c) Descripción de la nómina para que se detalle: Nombre, número de cédula, puesto desempeñado, categoría profesional, condición del nombramiento (propiedad o interino) del profesional en educación.
-d) Lugar señalado para recibir notificaciones.
-e) Indicación del plazo para dar respuesta según la normativa vigente;
-f) Nombre y firma del o de la Fiscal.
+Alcance:
+Dirigido a Colegiados, Colaboradores, Órganos del Colegio, Gestores Regionales y terceros interesados.
+Políticas:
+Generales
+1) El Departamento de Fiscalía, a través de la Unidad de Fiscalización, es la responsable de vigilar el ejercicio legal de la profesión docente.
+2) La incorporación al Colegio de Licenciados y Profesores es un requisito para ejercer legalmente la profesión docente según la Ley 4770 y sus reformas y para que el funcionario pueda percibir el pago de pluses salariales establecidos por el Estado o institución contratante.
+3) El control del ejercicio legal de la profesión, se hará mediante el cotejo de nómina de personal y la notificación, denuncias u otras acciones dirigidas a la verificación del ejercicio profesional de los educadores, por tal motivo, este Colegio Profesional se encuentra facultado por la Ley 4770 y sus reformas para solicitar las nóminas del personal a todas las Instituciones Educativas públicas y privadas que se requieran, así como solicitar la nómina general al M.E.P.
+Específicas
+1) La Unidad de Fiscalización solicitará la nómina por medio de una oficina especializada del M.E.P o ante quien ostente la Dirección de la Institución Educativa o quien lo represente; cuando la nómina sea solicitada a la Institución Educativa deberá contener por medio escrito:
+a) Motivo de la solicitud de la nómina.
+b) Descripción de la nómina para que se detalle: nombre, número de cédula, puesto desempeñado, categoría profesional, del profesional en educación.
+c) Lugar señalado para recibir notificaciones.
+d) Nombre y firma del o de la Fiscal.
 2) El documento de respuesta será un documento oficial de la institución educativa, con la responsabilidad que acarrea la omisión o falsedad de la información.
-3) La Unidad de Fiscalización realizará visitas al Centro Educativo, cuando así se requiera para verificar la información. Para el caso de la Instituciones Privadas se coordinará de previo con el encargado de la Institución.
-4) En caso que el Encargado de la Institución omitiera dar respuesta a la solicitud, se procederá a agotar la vía administrativa para luego presentar el Recurso de Amparo por violación al derecho constitucional de debida y pronta respuesta. Cuando se trate de Instituciones privadas, se deberá recurrir al Departamento de Centros Privados de ese Ministerio.
-*** FIN DE LA POLÍTICA ***
-DESCRIPCIÓN DEL PROCEDIMIENTO:
-Nº | Actividades | Responsable:
-1. | Elabora de oficio o a instancia de parta, según el documento existente para ese fin, la solicitud de nómina de personal para ser firmada por (la) Auxiliar de Fiscalía o del (la) Fiscal Regional. | Abogado Fiscalizador 2
-2. | Traslada el oficio, vía correo electrónico a los Auxiliares de Fiscalía y/o Fiscales Regionales, para firma de la solicitud de nómina. | Secretaria de Fiscalización
-3. | Notifica al responsable de la Institución Educativa, la solicitud de nómina suscrita. | Auxiliares de Fiscalía y/o Fiscales Regionales
-4. | Remite en plazo de Ley la nómina de personal detallando nombre, cédula de identidad, puesto desempeñado, categoría profesional, situación del nombramiento (propiedad o interino) de los funcionarios de la Institución. | Encargado del Centro Educativo
-5. | Envía la nómina de personal recibida por diferentes instituciones, a la secretaria de Fiscalización. | Auxiliares de Fiscalía y/o Fiscales Regionales
-Nº | Actividades | Responsable:
-6. | Recibe las nóminas de personal enviadas por las diferentes instituciones que la remiten directamente a la unidad y las recibidas por los Auxiliares de Fiscalía y/o Fiscales Regionales | Secretaria de Fiscalización
-7. | Comunica constantemente a los Auxiliares de Fiscalía y/o Fiscales Regionales para controlar las nóminas recibidas directamente por las instituciones, con el fin que lleven el control de las instituciones que no contestaron. | Secretaria de Fiscalización
-8. | Solicita a los Auxiliares la lista de los Colegios que no hicieron respuestas 15 días después de la solicitud. | Secretaria de Fiscalización
-9. | Elabora los Recursos de Amparo, pertinentes contra las instituciones que no cumplen con lo solicitado | Abogados Fiscalizadores
-10. | Elabora un listado con todos los docentes ingresados en cada nomina para realizar el cotejo respectivo con el sistema de Colegiados | Secretaria de Fiscalización
-11. | Envía al Encargado de la Unidad de Cobros, el listado para realizar el cruce en el sistema de Colegiados, con el fin de determinar la condición de cada docente que labora. | Secretaria de Fiscalización
-12. | Realiza el cruce en el sistema de colegiados para determinar la condición del docente | Encargado de la Unidad de Cobros
-13. | Envía a la secretaria del Fiscalización el proceso concluido del cruce del sistema de colegiados | Encargado de la Unidad de Cobros
-14. | Elabora la respectiva prevención para los funcionarios que laboran sin estar incorporados, suspendidos o retirados; | Asistente de Fiscalización
-15. | Filtra los docentes no colegiados y monta la combinación de correspondencia, según oficio redactado en el punto N°14 de los casos detectados para su notificación. | Secretaria de Fiscalización
-16. | Traslada a la Secretaria de Fiscalía para la revisión y firma del Fiscal la prevención realizada. | Secretaria de Fiscalización
-17. | Revisa y firmar las prevenciones. | Fiscal
-18. | Traslada a la Secretaria de Fiscalización la prevención firmada por el o la Fiscal. | Secretaria de Fiscalia
-19. | Monta un control digital de notificaciones, para el debido seguimiento de vencimientos, despacho de notificaciones y otros. | Secretaria de Fiscalización
-20. | Recibe las notificaciones debidamente firmadas por los interesados y por parte del los Auxiliar de Fiscalía y/o Fiscal Regional, con el fin de ser ingresados en el control digital de notificaciones. | Secretaria de Fiscalización
-21. | Recibe e ingresa en el control digital de notificaciones las justificaciones y solicitudes de prórroga, enviadas por los docentes que fueron notificados. | Secretaria de Fiscalización
-23. | Traslada a la secretaria de la Fiscalía para que entregue al Fiscal de la Corporación las prórrogas con el fin que de el visto bueno para la misma | Secretaria de Fiscalización
-24. | Revisa y autorizar, las prórrogas presentadas por los docentes y dar el visto bueno de las prórrogas presentadas por los docentes, para que se confecciones el documento correspondiente. | Fiscal General
-25. | Traslada las justificaciones con el debido visto bueno del Fiscal a la secretaria de Fiscalización. | Secretaria de Fiscalía
-26. | Elabora las cartas de aprobación de prórrogas. | Asistente de Fiscalía y Abogado Fiscalizador 2
-27. | Notifica a los interesados por medio de Correo Electrónico, Correo Certificado o en su defecto por medio de los Auxiliares de Fiscalía y/o Fiscales Regionales. Ingresa en el control digital de notificaciones el oficio respectivo y la prorroga aprobada para su debido seguimiento. | Secretaria de Fiscalización
-28. | Realza, dos veces al año el corte de prórrogas con el fin de determinar si las mismas se respetaron o no, realizando el cruce nuevamente en el sistema de colegiados. | Secretaria de Fiscalización
-29. | Envía al Encargado de la Unidad de Cobros el cruce en el sistema de Colegiados, con el fin de determinar la condición de cada docente que labora. | Secretaria de Fiscalización
-30. | Realiza el cruce en el sistema de colegiados para determinar la condición del docente | Encargado de la Unidad de Cobros
-31. | Elabora la segunda Prevención, a los docentes que no se incorporaron durante la prórroga concedida | Abogada Fiscalizadora 2
-Nº | Actividades | Responsable: |
-32. | Notifica la prevención de incorporación a la persona respectiva; y da seguimiento al plazo otorgado. | Secretaria de Fiscalización |
-33. | Retoma el procedimiento de notificación establecido en los puntos antes señalados | Secretaria de Fiscalización |
-34. | En caso de requerir la presentación de denuncia, se rige con la política de interposición de denuncias. |
-| | | | | |
-*** FIN DEL PROCEDIMIENTO ***
+3) El proceso de notificación a los profesionales en condición irregular y/o no incorporados a este Colegio Profesional, se hará mediante oficio de notificación debidamente fundamentado, el cual se enviará a cada profesional mediante correo certificado con acuse de recibo a través de Correos de Costa Rica o cualquier otro medio legalmente autorizado según la Ley de Notificaciones, estableciéndole al profesional notificado un plazo de 30 días hábiles para que proceda con la incorporación.
+N° | Actividades | Responsable
+1 | Coordina con el MEP e instituciones privadas el envío de la nómina de cada curso lectivo, así como las acciones de personal necesarias. | El abogado de Fiscalización
+2 | Traslada la Nómina General del MEP e instituciones privadas a la Unidad de Cobros y TI para diferentes estudios corporativos. | El abogado de Fiscalización y /o asistente de Fiscalización
+3 | Recibe el listado de la nómina del M.E.P. e instituciones privadas para realizar el cruce correspondiente con las condiciones en el sistema de Colegiados y envía el resultado a la Unidad de Fiscalización. | Encargado de la Unidad de Cobros
+4 | Recibe de la Unidad de Cobros el listado con el cruce de condiciones según lo establece la base de datos del sistema de colegiados: realiza el filtro de los docentes no colegiados, suspendidos y retirados, no juramentados e inopias, para determinar cuáles cumplen requisitos para ser notificados según lo establece la Ley 4770 y sus reformas. | Abogado (a)
+5 | Envía la lista de excel debidamente filtrada con los datos necesarios para completar la combinación de correspondencia a la secretaria de Fiscalización para que realice la combinación de correspondencia. | Abogado (a)
+6 | Una vez redactado el oficio de notificación se asigna consecutivo y elabora la combinación de correspondencia, en los casos detectados para notificación, traslada los oficios al Fiscal para sus respectivas firmas. | Secretaria de Fiscalización
+7 | Imprime las notificaciones firmadas digitalmente y prepara los sobres con el detalle del destinatario así como los acuse de recibo suministrado por Correos de Costa Rica, el cual se debe adjuntar a cada sobre. Gestiona el envío a la sucursal de Correos de Costa Rica mediante mensajería interna. | Secretaria de Fiscalización
+8 | Gestiona ante Correos de Costa Rica, la entrega de los oficios de notificación y devuelve a la Secretaria de Fiscalización el oficio recibido con el sello del Correo. | Servicios Generales
+9 | Las copias de oficios de notificación los recibe y archiva. Una vez que recibe los acuse de recibo por parte de Correos de Costa Rica los adjunta a cada una de las copias de notificaciones. | Secretaria de Fiscalización
+10 | Elabora un control digital de notificaciones, para su debido seguimiento. El seguimiento será continuo y posterior al vencimiento del plazo otorgado en un lapso de 15 días hábiles se procederá a la denuncia al superior. | Abogado (a) y/o asistente de Fiscalización
+11 | Recibe e ingresa en el control digital de notificaciones las justificaciones y solicitudes de prórroga, enviadas por los docentes que fueron notificados. | Abogado (a)
+12 | Revisa y autoriza, las prórrogas solicitadas por los docentes y da el visto bueno, para otorgar las mismas, las registra y da seguimiento. | Encargado de la Unidad y el Abogado (a) Fiscalización
+13 | Realiza el corte de prórrogas con el fin de determinar si las mismas se respetaron o no. Las prórrogas que no se cumplen serán comunicadas al M.E.P o al superior, para que se tomen las acciones pertinentes por ejercicio ilegal de la profesión. | Abogado (a)
+14 | En caso que una Institución Educativa pública o privada solicite la revisión de su nómina, recibe y revisa contra el sistema de Colegiados o traslada a la Unidad de Cobros para el cruce en caso de ser muy extensa. | Abogado de Fiscalización
+15 | Recibe del encargado de la Unidad de Cobros el cruce en el sistema de Colegiados, con el fin de determinar la condición de cada docente que labora. | Abogado de Fiscalización
+16 | Una vez revisada la nómina, realiza el oficio de respuesta al Centro Educativo. | Abogado de Fiscalización
+17 | En caso de requerir la presentación de denuncia, se rige con las normas administrativas o penales vigentes según sea el caso. | Encargada de Unidad y Abogado (a)
