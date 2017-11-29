@@ -16,6 +16,7 @@ Artículo 1º—Integrar la Junta Directiva del Patronato Nacional de Ciegos con
 2. Roberto Sancho Álvarez, cédula de identidad N° 1-0562- 0657, periodista, vecino de Ipís, cantón de Goicoechea, como representante de la Caja Costarricense de Seguro Social.
 3. Eduardo Gamboa Valverde, cédula de identidad número 6-0193-0571, educador, vecino de San Ramón, cantón de San Ramón de Alajuela, como representante del Ministerio de Trabajo y Seguridad Social.
 4. Walter Montero Bonilla, cédula de identidad N° 1-0465- 0736, administrador de negocios, vecino de San Francisco de Dos Ríos, cantón de San José, como representante del Ministerio de Salud.
-5. Mónica Mayorga López, cédula de identidad N° 1-0787- 0435, médica oftalmóloga, vecina de San Isidro, cantón de San Isidro de Heredia, como representante del Colegio de Médicos y Cirujanos de Costa Rica.
+5. Raouf Chamil Kourbanov Gaizatulova, cédula de identidad Nº 8-0079-0929, médico oftalmólogo, vecino de Getsemaní de Heredia, provincia de Heredia, como representante del Colegio de Médicos y Cirujanos de Costa Rica ante la Junta Directiva del Patronato Nacional de Ciegos
+(Así reformado el inciso anterior por artículo 1° del decreto ejecutivo N° 40747 del 29 de noviembre del 2017)
 6. Ileana Chacón Chacón, cédula de identidad N° 4-0134- 0208, consultora en Derechos Humanos, vecina de Ciudad Colón, cantón de Mora, como representante de las organizaciones de personas con discapacidad visual.
 7. Juan Piedra Miranda, cédula de identidad N° 2-0464-0346, comerciante, vecino de Venecia, cantón de San Carlos, como representante de las organizaciones de personas con discapacidad visual.

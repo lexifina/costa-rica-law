@@ -14,3 +14,4 @@ Integración de la Junta Directiva del Patronato Nacional de Ciegos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-10-31 | la propia norma |
+| 2 | 2017-11-29 | Decreto Ejecutivo 40747 (2017-11-29) |
