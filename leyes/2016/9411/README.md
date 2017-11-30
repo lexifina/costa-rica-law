@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2017
 
-Ley N° 9411 del 2016-11-30. SINALEVI, ficha 83249: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=83249&param2=110379&param3=1>.
+Ley N° 9411 del 2016-11-30. SINALEVI, ficha 83249: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=83249&param2=110437&param3=1>.
 
 Publicada en La Gaceta N° 238 del 2016-12-12.
 
@@ -30,3 +30,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 20 de 29 | 2017-10-30 | Decreto Ejecutivo 40701 (2017-10-09) | 2017-10-09 |
 | 21 de 29 | 2017-10-30 | Decreto Ejecutivo 40714 (2017-10-18) | 2017-10-18 |
 | 22 de 29 | 2017-11-24 | Decreto Ejecutivo 40739 (2017-11-13) | 2017-11-13 |
+| 23 de 29 | 2017-11-30 | Decreto Ejecutivo 40742 (2017-11-16) | 2017-11-16 |
