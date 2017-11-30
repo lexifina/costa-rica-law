@@ -13,4 +13,5 @@ En caso de colocación con no residentes, de la Tesorería Nacional deberá publ
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance Digital N° 299 a La Gaceta N° 238 del 12 de diciembre del 2016)
 (Modificado el inciso B) anterior por el artículo 1° del decreto ejecutivo N° 40714 del 18 de octubre del 2017)
 (Así reformado por el artículo 1° de la ley N° 9461 del 7 de julio del 2017)
+(Modificado el inciso B) anterior por el artículo 1° del decreto ejecutivo N° 40781 del 30 de noviembre del 2017)
 (Modificado el inciso C) anterior por el artículo 1° del decreto ejecutivo N° 40701 del 9 de octubre del 2017)
