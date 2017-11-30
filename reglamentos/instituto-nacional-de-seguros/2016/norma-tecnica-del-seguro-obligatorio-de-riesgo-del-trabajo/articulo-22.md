@@ -13,7 +13,8 @@ Están excluidos de este costo, aquellos reclamos donde el trabajador falleció 
 b. Puntos acumulados por experiencia
 - Coeficiente de variación: Se calcula utilizando la siguiente fórmula:
 [imagen]
-- Porcentaje a aplicar por siniestralidad: Se determina sobre la Tarifa Promedio, con base en el coeficiente de variación obtenido en el punto anterior, y ubicando el valor correspondiente en la siguiente tabla:
+- Porcentaje a aplicar por siniestralidad: Se determina con base en el coeficiente de variación
+obtenido en el punto anterior, ubicando el valor correspondiente en la siguiente tabla:
 Tabla No. 1
 Porcentaje a aplicar por siniestralidad
 Coeficiente de variación | Porcentaje a utilizar
@@ -23,37 +24,39 @@ de 25 a menos de 50 | 15%
 de 50 a menos de 100 | 20%
 de 100 a menos 200 | 25%
 de 200 o más | 30%
-Si en el Período de Estudio la póliza posee buena siniestralidad, el coeficiente de variación resultará negativo (-) y para determinar el porcentaje a aplicar se debe tomar el valor absoluto.
-- Puntos acumulados por experiencia: Se obtiene de multiplicar la Tarifa Promedio por el porcentaje determinado en el punto anterior. Si el coeficiente de variación es negativo (-) el resultado final debe multiplicarse por uno negativo (-1).
+Si en el Período de Estudio la póliza posee buena siniestralidad, el coeficiente de variación resultará negativo (-); no obstante, para determinar el porcentaje a aplicar se debe tomar el valor absoluto.
+- Puntos acumulados por experiencia: Se obtiene de multiplicar la Tarifa Promedio por el
+porcentaje determinado en el punto anterior. Si el coeficiente de variación es negativo (-) el
+resultado final debe multiplicarse por uno negativo (-1).
 2. Pólizas Sector Público
 a. Tarifa de riesgo
-- Se realiza estudio del costo y monto asegurado de cada póliza en los últimos cinco (5) años o menos, si no tuviera esos años, mediante la siguiente fórmula:
+Se realiza estudio del costo y monto asegurado de cada póliza en los últimos cinco (5) años o
+menos, si no tuviera esos años, mediante la siguiente fórmula:
 [imagen]
 Dónde:
 TRi = Tarifa de riesgo
 CAM = Costo anual medio de los años considerados
 MAAM = Monto asegurado anual medio de los años considerados
-- Si la Institución paga directamente el subsidio por Incapacidad Temporal, el monto asegurado anual que se debe utilizar es el "monto asegurado descontado" (es decir monto asegurado multiplicado por 0.76) y por consiguiente, se le ha otorgado un descuento equivalente al 24% de las primas.
+Si la Institución paga directamente el subsidio por Incapacidad Temporal, el monto segurado anual que se debe utilizar es el "monto asegurado descontado" (es decir monto asegurado multiplicado por 0.76) y por consiguiente, se le ha otorgado un descuento equivalente al 24% de las primas.
 b. Coeficiente de variación
-- Se compara la tarifa de riesgo con la tarifa que tiene vigente y se calcula el coeficiente de variación, mediante la siguiente fórmula:
+Se compara la tarifa de riesgo con la tarifa que tiene vigente y se calcula el coeficiente de variación, mediante la siguiente fórmula:
 [imagen]
 Dónde:
 CV = Coeficiente de variación
 TRi = Tarifa de riesgo
 TV = Tarifa vigente
-Para los efectos de un descuento por buena experiencia el resultado de esta fórmula es un valor en términos negativos (-); sin embargo, para su cálculo se toma su valor absoluto.
-- Con este coeficiente de variación se obtiene el recargo o descuento, mediante la tabla siguiente:
+c. Porcentaje a aplicar por siniestralidad
+Se determina con base en el coeficiente de variación obtenido en el punto anterior, ubicando el valor correspondiente en la siguiente tabla:
 Tabla No. 2
 Porcentaje a aplicar por siniestralidad
 Coeficiente de variación | Porcentaje a utilizar
-De 0 a menos de 10 | Igual al coeficiente de variación obtenido
-De 10 a menos de 20 | 10%
-De 20 a menos de 30 | 15%
-De 30 a menos de 40 | 20%
-De 40 a menos de 50 | 25%
-De 50 o más | 30%
-- Ese descuento o recargo se aplica a la tarifa vigente para obtener la tarifa calculada.
-- Esa tarifa calculada se toma para renovar el siguiente período, sujeto a las condiciones siguientes:
-i. Si la tarifa vigente es mayor que la mínima de grupo, pero la tarifa calculada resultante es inferior que la mínima de grupo, la tarifa que se aplica a la renovación es la mínima de grupo.
-ii. Si la tarifa vigente es menor que la mínima de grupo y además, la tarifa calculada resultante (por aplicación de descuento) es aún más baja, la tarifa que se aplica a la renovación es la que tiene vigente.
-iii. En los demás casos la tarifa calculada es la que se emplea para la renovación.
+de 0 a menos de 10 | Igual al coeficiente de variación obtenido
+de 10 a menos de 20 | 10%
+de 20 a menos de 30 | 15%
+de 30 a menos de 40 | 20%
+de 40 a menos 50 | 25%
+de 50 o más | 30%
+Si en el Período de Estudio la póliza posee buena siniestralidad, el coeficiente de variación resultará negativo (-); no obstante, para determinar el porcentaje a aplicar se debe tomar el valor absoluto.
+d. Puntos acumulados por experiencia:
+Se obtiene de multiplicar la Tarifa Vigente por el porcentaje determinado en el punto anterior. Si el coeficiente de variación es negativo (-) el resultado final debe multiplicarse por uno negativo (-1).
+(Así reformado mediante publicación en el Alcance Digital N° 289 a La Gaceta N° 227 del 30 de noviembre del 2017)
