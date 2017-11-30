@@ -1,1 +1,0 @@
-Artículo 20.—Modificaciones al cartel y prórrogas en tiempos para recepción de ofertas: Este apartado se regirá por lo preceptuado en el artículo 60 siguientes y concordantes del Reglamento a la Ley de Contratación Administrativa.

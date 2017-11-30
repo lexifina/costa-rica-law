@@ -1,1 +1,0 @@
-Artículo 28.—Dependencia encargada de la elaboración de contratos: La dependencia encargada de elaborar contratos, será la Proveeduría Municipal. La aprobación interna será otorgada por el profesional en derecho que funja como abogado de la municipalidad, todo de conformidad con el Reglamento de Refrendos que la Contraloría dicte al efecto.
