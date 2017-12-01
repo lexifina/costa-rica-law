@@ -1,0 +1,2 @@
+Artículo 14º. De la falsedad de los documentos e informaciones.
+Cualquier información o documento refiriéndose a títulos, certificados y exámenes, que demuestren la asistencia y aprobación del curso según lo contratado y presentado por los socios laborales ante la Sección Gestión de Talento Humano cuya falsedad se demuestre antes, durante o después de la formación, dará lugar para la suspensión inmediata del beneficio, así como la apertura de un procedimiento administrativo y/o patrimonial, sin perjuicio de las responsabilidades civiles o penales.

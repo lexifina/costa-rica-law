@@ -1,0 +1,4 @@
+Artículo 12°. De los cursos virtuales.
+Adicional a las obligaciones establecidas en este reglamento, también se deberá cumplir con:
+a. Brindar por parte de CONAPE, la tecnología requerida para poder cumplir exitosamente con lo establecido en dichos cursos, siempre y cuando esté enmarcada dentro de las políticas de la Sección de Informática, por ende, la Sección de Informática de CONAPE coadyuvará al logro de los objetivos, facilitando lo necesario con respecto a los aspectos tecnológicos requeridos.
+b. Utilizar el tiempo requerido en el programa dentro de la jornada laboral, siempre y cuando no exista un horario establecido por el proveedor fuera de ésta, siendo que para efectos de compromiso laboral se tomará lo establecido en las áreas respectivas; esto cuando los socios laborales participen en programas de formación bajo las metodologías indicadas (virtual bimodal y mixta), cuya participación sea avalada por la institución.

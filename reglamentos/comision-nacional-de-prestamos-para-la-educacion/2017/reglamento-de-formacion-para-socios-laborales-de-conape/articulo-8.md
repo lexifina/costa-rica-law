@@ -1,0 +1,4 @@
+Artículo 8º. Recursos financieros para formación.
+En el presupuesto de la Institución se incluirán las partidas que resulten necesarias para la ejecución del Plan de Formación de los Socios Laborales, siempre y cuando la situación financiera de la Institución lo permita.
+La Sección Gestión de Talento Humano verifica la disponibilidad de contenido económico, que dará soporte a la gestión de contratación de curso requerido y será el responsable de administrar y garantizar la eficiente ejecución del Plan de Formación de los Socios Laborales, para lo cual utilizará factores, siguiendo la priorización establecida en el proceso de gestión de la formación.
+Cuando no se apruebe contenido presupuestario para actividades de formación, se procedería a programar, con base en la priorización establecida, actividades de formación internas, las cuales podrían coordinarse por medio del CECADES o mediante convenios con otras instituciones.

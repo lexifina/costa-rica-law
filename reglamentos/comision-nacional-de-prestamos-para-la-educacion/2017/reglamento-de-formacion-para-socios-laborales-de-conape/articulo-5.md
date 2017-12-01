@@ -1,0 +1,2 @@
+Artículo 5º. Actividades de formación de insoslayable necesidad.
+La Secretaría Ejecutiva mediante acto motivado, podrán aprobar solicitudes de formación de insoslayable necesidad las cuales deben guardar un interés particular para la institución. De igual forma en los casos en que los socios laborales no cumplan con los requisitos establecidos en el artículo siete. Igual facultad corresponderá a la Auditoría Interna para las actividades de formación de su competencia. Ambas instancias deberán informar ante el Consejo Directivo con posterioridad a su aprobación.

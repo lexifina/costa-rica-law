@@ -1,0 +1,22 @@
+ANEXO 3
+CONTRATO DE CAPACITACIÓN
+Nosotros: ______________________________, mayor, estado civil, de
+profesión_________________________________ , vecino de_____________________________, cédula de
+identidad número _______________ en condición de Secretario Ejecutivo de la Comisión Nacional de
+Préstamos para Educación (CONAPE), denominada en lo sucesivo en este contrato LA INSTITUCION,
+y__________________________________ , cédula de identidad número ______________, vecino de
+__________________________, quien se desempeña como _______________________________ en el
+Departamento de ________________, Sección __________________ denominado en lo sucesivo en este
+contrato El SERVIDOR ,hemos convenido el siguiente contrato:
+PRIMERO: LA INSTITUCIÓN se compromete a financiar y/o otorgar licencia para asistir al curso:
+_____________________________________ impartido por __________________ a realizarse los días
+________ del mes de _________ 20__, con un horario de _____. a ______, en
+_______________________________________.
+SEGUNDO: El servidor se compromete a: a) Asistir puntualmente a todo el proceso de capacitación. La no observancia de este punto será tomado como abandono del trabajo y se aplicará lo correspondiente en esta materia según Reglamento Interior de Trabajo b) Dedicar toda su capacidad intelectual y física al estudio y aprobación de la actividad a que se refiere este contrato, c) Remitir a la Sección de Recursos Humanos, copia del certificado que obtenga por la actividad de capacitación aquí contratada, d) Informar con suficiente anticipación a esta sección en caso de que se presenten dificultades en sus estudios, dentro de esos la justificación por ausencia o llegada tardía al curso. e) De considerarse necesario, por parte de su superior jerárquico, impartir una charla a los funcionarios de la institución en la cual transmita los conocimientos adquiridos. Además, el servidor estará obligado a suministrar cualquier información, o desempeñar cualquier cometido, compatible con su calidad de estudiante y sus actividades profesionales que le fuere solicitado o encargado por la Institución.
+TERCERO: LA INSTITUCIÓN podrá rescindir este contrato si estima que existen razones para considerar al servidor no apto para seguir recibiendo las ventajas concebidas. Se tendrán por razones suficientes: la mala conducta, la indisciplina, la negligencia manifiesta y cualquier otra causa análoga. Salvo la causal de “falta de idoneidad para el estudio” por causas de fuerza mayor o caso fortuito, la rescisión del contrato por culpa del servidor, se considerará como una infracción al Reglamento Interior de Trabajo y por tanto se podrá iniciar causa disciplinaria en contra del funcionario y solicitarle el reintegro de las sumas pagadas por la institución, apegado a criterio técnico elaborado por Recursos Humanos y avalados con la Secretaría Ejecutiva.
+CUARTO: El servidor se obliga a laborar para la Institución durante ________, según la metodología de cálculo establecida en el anexo N°4 del Reglamento de Capacitación) para funcionarios de CONAPE. Este compromiso laboral debe cumplirse a partir del momento en que se incorpora en el trabajo.
+QUINTA: Cuando el servidor beneficiario de actividades de capacitación, incumpla el Contrato de Capacitación y la Institución decida rescindirlo, o cuando el servidor, una vez concluido sus estudios, decide renunciar a la Institución sin haber cumplido el tiempo de permanencia requerido, deberá reintegrar las sumas a CONAPE según la tabla establecida en el anexo 4 del Reglamento de Capacitación.
+En fe de lo anterior, firmamos dos documentos originales con igual contenido y fuerza probatoria, uno para cada una de las partes contratantes, en la ciudad de San José, a los___ días del mes de ________ del dos mil doce.
+Funcionario: _________________
+Secretario Ejecutivo___________________ Cargo:_______________________
+Cédula: ______________________ Cédula: _______________________

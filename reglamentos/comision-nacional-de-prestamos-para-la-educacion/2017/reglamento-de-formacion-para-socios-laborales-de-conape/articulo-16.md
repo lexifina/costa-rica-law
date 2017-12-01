@@ -1,0 +1,2 @@
+Artículo 16º. De las responsabilidades por incumplimiento.
+El incumplimiento sin justa causa de las obligaciones contempladas en este Reglamento y las definidas en el respectivo Contrato de Formación, será causal suficiente para que CONAPE revoque el beneficio otorgado y exija el reintegro de la totalidad de las sumas giradas en dicha formación, conforme a las reglas expuestas en los artículos anteriores. De igual forma CONAPE se reserva el derecho de acudir a la sede jurisdiccional en amparo de sus intereses.
