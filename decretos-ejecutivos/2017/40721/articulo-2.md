@@ -1,0 +1,1 @@
+Artículo 2°-Cálculo del impuesto. El Impuesto sobre la Propiedad se debe calcular utilizando la tabla definida en el artículo 1 del presente Decreto, la cual se debe aplicar al valor de los vehículos conforme corresponda según los rangos y la tasa indicada en forma progresiva.
