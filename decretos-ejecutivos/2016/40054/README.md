@@ -15,3 +15,4 @@ Regionalización del Ministerio de Ambiente y Energía y reforma Reglamento a la
 | --- | --- | --- |
 | 1 | 2016-12-21 | la propia norma |
 | 2 | 2017-06-29 | Decreto Ejecutivo 40479 (2017-06-29) |
+| 3 | 2017-12-01 | Decreto Ejecutivo 40810 (2017-12-01) |
