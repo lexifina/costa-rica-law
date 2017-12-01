@@ -1,0 +1,24 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica en el artículo 3, del acta de la sesión 5801-2017, celebrada el 30 de noviembre del 2017,
+considerando que:
+A. El artículo 2 de la Ley Orgánica del Banco Central de Costa Rica establece como principales objetivos de esta Entidad, mantener la estabilidad interna y externa de la moneda nacional y asegurar su conversión a otras monedas y, como uno de sus objetivos subsidiarios, promover un sistema de intermediación financiera estable, eficiente y competitivo.
+Además, el literal e), del artículo 3, dispone, como una de sus funciones esenciales, la promoción de condiciones favorables al robustecimiento, la liquidez, la solvencia y el buen funcionamiento del Sistema Financiero Nacional.
+B. Este Directorio, para el cumplimiento de los objetivos y funciones del Banco Central, tiene la potestad legal de definir el alcance del uso de los instrumentos que dispone y de las operaciones que puede realizar. Esto incluye lo relativo a las facilidades crediticias para las entidades financieras.
+C. En cumplimiento de sus funciones, este órgano colegiado considera necesario que la provisión de recursos al Sistema Financiero Nacional se desarrolle en un marco ágil, eficiente y acorde con las condiciones y requerimientos del Sistema Financiero Nacional, sin que ello vaya en detrimento de la situación patrimonial del Banco Central ni de los objetivos prioritarios asignados por la legislación.
+D. El Banco Central tiene a disposición del Sistema Financiero Nacional el servicio del Mercado Integrado de Liquidez (MIL) y participa en éste como parte de su gestión de política monetaria y en procura de coadyuvar a la estabilidad del Sistema Financiero Nacional.
+E. En términos operativos, esta Junta Directiva definió características para las operaciones en el MIL, de las cuales destacan las siguientes:
+a) El Banco Central puede realizar operaciones en el MIL, tanto de contracción como de inyección de liquidez, bajo el mecanismo de subasta y mediante las facilidades permanentes de crédito y depósito.
+b) Las operaciones en subasta son a 1, 7 y 14 días, mayoritariamente concentradas a un día plazo y se realizan a iniciativa del Banco Central, tomando en consideración las condiciones objetivas de la situación de liquidez sistémica.
+c) Las facilidades permanentes están disponibles para el Sistema Financiero Nacional durante el horario bancario y tienen plazos diferenciados. Las de captación se ofrecen a 1, 7, 14, 28, 56 y 84 días, en tanto que las facilidades permanentes de crédito están disponibles, únicamente, a 1 día plazo.
+d) Las tasas de interés aplicables para las facilidades permanentes de crédito y depósito a un día plazo las define esta Junta Directiva y, para plazos mayores, en el caso de los pasivos, la Junta Directiva le encomendó a la Comisión de Mercados establecerlas siguiendo lo definido en la Metodología para fijar las tasas de colocación de los pasivos, aprobada por este Directorio.
+F. Consecuente con las discusiones sostenidas, en razón del acuerdo de enviar en consulta pública la propuesta de Reglamento para las operaciones de crédito de última instancia en moneda nacional del Banco Central de Costa Rica, adoptado en el artículo 5, de la sesión 5796-2017, del 8 de noviembre último, este Directorio estima que una mayor oferta de plazos para instrumentos permanentes de inyección de liquidez, da flexibilidad para gestionar modificaciones en la postura de política monetaria y para atenuar tensiones en los mercados de liquidez.
+G. En procura de la neutralidad de la participación del Banco Central en el MIL, es recomendable la simetría en cuanto al plazo de los instrumentos ofrecidos para la captación e inyección de liquidez.
+H. Las tasas de interés para los nuevos plazos de la facilidad permanente de crédito deben ser consecuentes con las tasas de interés del mercado.
+dispuso, por unanimidad y en firme:
+1. Ofrecer Operaciones diferidas de liquidez mediante la facilidad permanente de crédito en el Mercado Integrado de Liquidez a los plazos de 1, 7, 14, 28, 56 y 84 días.
+2. Establecer la metodología para la fijación de las tasas de interés de las Operaciones diferidas de liquidez mediante la facilidad permanente de crédito, a plazos superiores a un día, designando para su aplicación a la Comisión de Mercados.
+La metodología debe considerar lo siguiente:
+a) Tomará como referencia, para cada plazo especifico, la curva de rendimiento soberana que se calcula semanalmente, de acuerdo con lo establecido en el artículo 8, del acta de la sesión 5701-2015, del 23 de setiembre de 2015.
+b) Contará con un rango definido por un mínimo de 200 y un máximo de 700 puntos base sobre esa curva de referencia para establecer la tasa aplicable a cada plazo.
+c) La tasa de interés aplicable a estas operaciones será revisada al menos una vez a la semana.
+3. Rige a partir del 1° de diciembre de 2017.
