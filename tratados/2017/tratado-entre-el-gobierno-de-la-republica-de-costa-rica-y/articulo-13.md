@@ -1,0 +1,6 @@
+ARTÍCULO XIII
+APLICACIÓN DEL TRATADO EN CASOS ESPECIALES
+1.- El presente Tratado también podrá aplicarse a personas sujetas a vigilancia u otras medidas de acuerdo con las leyes de cualquiera de las Partes, relacionadas con infractores menores de edad, siempre que se demuestre la conveniencia de traslado para fines de readaptación. Para el traslado deberá obtenerse el consentimiento de quien está legalmente facultado para otorgarlo.
+2.- Si así lo acordaren las Partes y a efecto de su tratamiento en el Estado Receptor, el presente Tratado podrá aplicarse a personas a las cuales la autoridad competente hubiera declarado inimputables. Las Partes acordarán, de conformidad con su derecho interno, el tipo de tratamiento a dar a las personas trasladadas. Para el traslado deberá obtenerse el consentimiento de quien legalmente esté facultado para otorgarlo.
+3.- Por acuerdo especial entre las Partes y por razones humanitarias, los reos de quienes se haya comprobado plenamente que sufren una enfermedad que se encuentre en fase terminal, o sean de edad muy avanzada, podrán ser trasladados para su tratamiento en instituciones del país de su nacionalidad.
+4.- Ninguna disposición de este Tratado se interpretará en el sentido de limitar la facultad que las Partes pueden tener para conceder o negar el traslado del reo.

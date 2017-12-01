@@ -1,0 +1,5 @@
+ARTÍCULO II
+ALCANCE
+1.- Las penas impuestas en los Estados Unidos Mexicanos a nacionales de Costa Rica, podrán ser ejecutadas en establecimientos penales de ese país o bajo la vigilancia de sus autoridades, de conformidad con las disposiciones del presente Tratado y de la legislación costarricense.
+(Nota de Sinalevi: Mediante el artículo 2° de la ley N° 9498 del 6 de noviembre del 2017, “Aprueba el Tratado entre el Gobierno de la República de Costa Rica y el Gobierno de los Estados Unidos Mexicanos sobre la ejecución de sentencias Penales” se interpreta el inciso anterior en el sentido de que las sentencias penales impuestas por los Estados Unidos Mexicanos a nacionales costarricenses podrán ser ejecutadas en establecimientos penales o bajo la vigilancia de autoridades de nuestro país, a efectos de garantizar la reciprocidad entre ambos Estados”)
+2.- Las penas impuestas en Costa Rica a nacionales de los Estados Unidos Mexicanos, podrán ser ejecutadas en establecimientos penales de este último país o bajo la vigilancia de sus autoridades, de conformidad con las disposiciones del presente Tratado y la legislación mexicana.
