@@ -1,1 +1,0 @@
-Artículo 6°: En dicha aprobación por parte del Concejo Municipal se ordenará otorgar un plazo de 30 días naturales contados a partir de la publicación, para recibir observaciones u objeciones al proyecto tarifario de los servicios.

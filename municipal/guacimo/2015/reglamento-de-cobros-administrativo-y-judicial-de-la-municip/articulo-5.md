@@ -1,1 +1,0 @@
-Artículo 5. A excepción de los impuestos por actividades lucrativas (Patentes), que ya tienen definido los procedimientos por Ley; Una vez elevado a la Comisión de Asuntos Hacendarios, el proyecto de tarifas por los servicios municipales esta comisión recomendará al Concejo Municipal, quien a su vez lo aprobará como proyecto para ser publicado en el Diario Oficial "La Gaceta".
