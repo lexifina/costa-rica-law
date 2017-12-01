@@ -1,0 +1,1 @@
+Artículo 23. -Potestades: Las potestades del Auditor Interno y los demás funcionarios de la Auditoría Interna se encuentran estipuladas en el artículo 33 de la Ley General de Control Interno. Es un deber de todo el personal de la Auditoría General hacer efectivas esas potestades otorgadas por ley.

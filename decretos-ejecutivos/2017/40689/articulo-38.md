@@ -1,0 +1,1 @@
+Artículo 38. -Estructura de los informes: La estructura de los informes de auditoría se constituirá de aquellas partes que defina el Auditor General en concordancia con las normas emitidas por la Contraloría General y otras regulaciones aplicables.

@@ -1,0 +1,1 @@
+Artículo 44. -Derogatoria: Este reglamento deroga el Reglamento de Organización y Funcionamiento de la Auditoría General del Ministerio de Relaciones Exteriores y Culto, Decreto Ejecutivo Nº 34070-RREE del 21 de setiembre de 2007.

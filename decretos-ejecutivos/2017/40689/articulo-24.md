@@ -1,0 +1,1 @@
+Artículo 24.-Deberes : Los deberes del Auditor, Subauditor y demás funcionarios de la Auditoría General están establecidos en el artículo 32 de la Ley General de Control Interno y en la normativa emitida por la Contraloría General de la República.

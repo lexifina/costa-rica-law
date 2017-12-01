@@ -1,0 +1,18 @@
+No 40689 -RE
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE RELACIONES EXTERIORES Y CULTO
+El Poder Ejecutivo de conformidad con lo dispuesto en la Constitución Política de la República, Ley Orgánica del Ministerio de Relaciones Exteriores y Culto N º 3008, Ley General de la Administración Pública Nº 6227, Ley de la Administración Financiera de la República y Presupuestos Públicos Nº 8131, Ley General de Control Interno Nº 8292 y en concordancia con las NORMAS PARA EL EJERCICIO DE LA AUDITORÍA INTERNA EN EL SECTOR PÚBLICO, las Normas Generales de Auditoría para el Sector Público, emitidas por la Contraloría General de la República, dicta el presente Reglamento de Organización y Funcionamiento de la Auditoría General del Ministerio de Relaciones Exteriores y Culto.
+Considerando:
+l. -Que el marco legal que rige la actividad de la Auditoría Interna ha tenido cambios significativos desde la emisión de la Ley Nº 7428, Ley Orgánica de la Contraloría General de la República del 7 de setiembre de 1994, y fundamentalmente con la emisión de la Ley General de Control Interno, del 31 de julio del 2002, así como con las NORMAS PARA EL EJERCICIO DE LA AUDITORÍA INTERNA EN EL SECTOR PÚBLICO, Resolución No. R-DC-119-2009 del 16 de diciembre del 2009 y las Normas Generales de Auditoría para el Sector Público, Resolución No. R-DC-064-2014 del 11 de agosto del 2014, emitidas por la Contraloría General de la República y con la promulgación de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Ley N º 8422 del 6 de octubre del 2004.
+II. -Que el inciso h) del artículo 22 de la Ley General de Control Interno, establece literalmente como parte de las competencias de la Auditoría Interna el "Mantener debidamente actualizado el Reglamento de Organización y Funcionamiento de la Auditoría Interna."
+III. -Que la Auditoría Interna es parte fundamental del sistema de control interno institucional y del Sistema de Control y Fiscalización Superiores de la Hacienda Pública y su acción fiscalizadora requiere ser reforzada conforme con el marco legal y técnico que regula su gestión, en defensa del interés público; por lo que es necesario que disponga de un Reglamento de Organización y Funcionamiento actualizado, acorde con la normativa que rige su actividad.
+IV. -Que la elaboración del presente reglamento se realizó conforme con lo establecido en la Ley General de Control Interno, las NORMAS PARA EL EJERCICIO DE LA AUDITORÍA INTERNA EN EL SECTOR PÚBLICO, Resolución No. R-DC-119-2009 del 16 de diciembre del 2009 y las Normas Generales de Auditoría para el Sector Público, Resolución No. R-DC-064-2014 del 11 de agosto del 2014.
+V. -Que de acuerdo con el artículo 23 de la Ley General de Control Interno, dicho Reglamento deberá ser aprobado por la Contraloría General de la República, publicarse en el Diario Oficial y divulgarse en el ámbito institucional.
+VI. -Que la Contraloría General de la República, mediante oficio Nº DFOE-PG-0175 de fecha 02 de mayo de 2017 dio su aprobación al presente Reglamento.
+Por tanto,
+DECRETAN:
+"REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO DE LA AUDITORÍA
+GENERAL DEL MINISTERIO DE RELACIONES EXTERIORES Y CULTO"
+CAPÍTULO l.
+Disposiciones generales
+Artículo 1 -Objetivo: El presente Reglamento, en forma conjunta con las disposiciones contenidas en la Ley General de Control Interno, la Ley Orgánica de la Contraloría General de la República y los manuales técnicos, las disposiciones, normas, políticas y directrices emitidas por el órgano contralor, constituye el marco de organización y funcionamiento de la Auditoría General del Ministerio de Relaciones Exteriores y Culto.

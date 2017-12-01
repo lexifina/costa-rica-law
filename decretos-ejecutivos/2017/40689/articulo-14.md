@@ -1,0 +1,2 @@
+SECCIÓN C. Del personal de la Auditoría General
+Artículo 14. - Perfil de competencias: El personal de la Auditoría General debe poseer suficiente conocimiento en auditoría, contabilidad, administración, tecnología de información, materias y marco legal relacionado con la Administración Pública y el Ministerio, que lo califique para ejercer en forma apropiada las funciones encomendadas, así como reunir la experiencia necesaria para el cargo, las aptitudes y competencias necesarias para cumplir con sus responsabilidades.

@@ -1,0 +1,1 @@
+Artículo 29. -Relaciones con otros profesionales o técnicos: En la Auditoría General podrán incorporarse profesionales o técnicos de diferentes disciplinas, funcionarios o no de la institución, para que lleven a cabo labores de su especialidad en apoyo a las auditorías o actividades que realice.
