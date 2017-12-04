@@ -14,3 +14,4 @@ Modificación incisos c) y d) del art. 25. Requisitos de forma de admisibilidad 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-12-04 | la propia norma |
+| 2 | 2017-12-04 | Directriz 0 (2017-11-10) |

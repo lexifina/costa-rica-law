@@ -13,3 +13,8 @@ FECHA: 14 de setiembre del 2017.
 c) Deberá cancelar las tasas y timbres correspondientes al acto notarial y registral. Cuando eso se realice de forma física debe adherir al documento, el entero bancario original con goma en forma completa, sin doblar y en hoja independiente al texto o consignar mediante razón notarial la transacción electrónica; en tratándose de planos, impreso el número del comprobante de pago en el marco del plano. Excepto los actos que por su naturaleza se encuentren exentos.
 d) Todos los documentos que ingresen deben presentarse con una grapa, en el extremo superior izquierdo.
 4º—El cambio de los requisitos, señalados anteriormente, regirán 15 días después de su publicación en La Gaceta.
+(Nota de Sinalevi: Mediante directriz publicada en La Gaceta N° 216 del 15 de noviembre del 2017, se reforma la presente norma estableciéndose lo siguiente: “1. La fecha de rige de la Directriz DSE-01-2017 será el 04 de diciembre del 2017.
+2. Los documentos con más de 20 hojas se deberán presentar con una prensa para folder de dos agujeros en el costado izquierdo del testimonio.
+3. La boleta de seguridad de notario deberá adherirse con goma de manera total al testimonio, en la parte superior del primer folio, en forma horizontal. Sin cubrir texto de la escritura.
+4. Los enteros de timbres, originales, se deben de adherir con goma en hoja blanca o papel de seguridad. El entero debe pegarse en forma completa, sin estar sobrepuestos y sin doblar, exceptuando cuando el entero exceda el tamaño de la hoja.
+5. Los documentos engomados que ingresaron al Diario antes de la fecha de rige de esta Directriz seguirán tramitándose de igual forma; es decir, con goma. Esto incluirá los documentos que sean cancelados y presentados nuevamente al Diario”)
