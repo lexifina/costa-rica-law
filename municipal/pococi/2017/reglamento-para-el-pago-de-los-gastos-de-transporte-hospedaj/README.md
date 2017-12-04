@@ -15,3 +15,4 @@ Reglamento para el pago de los Gastos de Transporte, Hospedaje y Alimentación a
 | --- | --- | --- |
 | 1 | 2017-02-10 | la propia norma |
 | 2 | 2017-10-16 | Reglamento municipal 85 (2017-10-16) |
+| 3 | 2017-12-04 | Reglamento municipal 100 (2017-12-04) |
