@@ -1,0 +1,15 @@
+JUNTA ADMINISTRATIVA DEL REGISTRO NACIONAL
+DIRECTRIZ DSE-001-2017
+DE: MPA Kattia Salazar Villalobos
+Directora de Servicios
+PARA: Notarios Públicos, Subprocesos de Recepción y Entrega de documentos, Dirección Inmobiliaria, Dirección B.
+Muebles, Dirección Personas Jurídicas.
+ASUNTO: Modificación incisos c) y d) del art. 25. Requisitos de forma de admisibilidad de la Guía de Procedimientos, Requisitos y Servicios.
+FECHA: 14 de setiembre del 2017.
+1º—Que como compromiso ineludible por parte de esta Dirección en la búsqueda de perfeccionar sus procesos, mejorar y optimizar el servicio, es indispensable examinar los requisitos de forma en la admisibilidad de documentos presentados ante el subproceso de recepción y entrega de documentos, siempre con respeto del Principio de Seguridad Jurídica Registral -en equilibrio con el principio de celeridad de los trámites-, el Principio de Legalidad y el Principio de Rogación, la Ley Nº 8220 y su reforma 8990 y toda aquella normativa a nivel legal e interna que cubre las competencias del Registro Nacional (RN) como pilares fundamentales operativos.
+2º—Contemporáneamente los equipos de digitalización masiva de imágenes vienen abandonado progresivamente los sistemas “cama plana” para la digitalización manual e individual por dispositivos con “Alimentadores Automáticos de Documentos” (o ADF por sus siglas en inglés) los cuales poseen un sistema de transporte que les permite tomar varias páginas y alimentarlas una a una, permitiendo una mayor automatización del servicio que tiende a mejorar los tiempos de respuesta y la correcta administración del recurso humano competente.
+3º—Que actualmente los documentos son presentados pegados con goma, siendo que para proceder a su digitalización es requerido primero despegarlos con la consiguiente pérdida de tiempo y el peligro de su deterioro, por lo que se hace necesario que en su presentación los documentos se presenten con una sola grapa para facilitar y garantizar un ágil y correcto procedimiento de digitalización del mismo.
+4º—Con el objetivo principal de alcanzar una mayor eficiencia en la tramitación de documentos, y acorde con las nuevas posibilidades tecnológicas, se modifican los incisos c) y d) del artículo 25, Requisitos de forma de admisibilidad, de la Guía de Procedimientos, Requisitos y Servicios los cuales se sustituyen por los siguientes:
+c) Deberá cancelar las tasas y timbres correspondientes al acto notarial y registral. Cuando eso se realice de forma física debe adherir al documento, el entero bancario original con goma en forma completa, sin doblar y en hoja independiente al texto o consignar mediante razón notarial la transacción electrónica; en tratándose de planos, impreso el número del comprobante de pago en el marco del plano. Excepto los actos que por su naturaleza se encuentren exentos.
+d) Todos los documentos que ingresen deben presentarse con una grapa, en el extremo superior izquierdo.
+4º—El cambio de los requisitos, señalados anteriormente, regirán 15 días después de su publicación en La Gaceta.
