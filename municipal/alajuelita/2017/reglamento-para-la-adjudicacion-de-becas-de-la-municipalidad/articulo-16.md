@@ -1,0 +1,1 @@
+Artículo 16. En caso de cancelarle la beca a un estudiante, por las causales anteriores, la Comisión Municipal de Becas procederá a ocupar el cupo vacante siguiendo el procedimiento antes establecido y tomando prioritariamente los formularios que hayan cumplido con los requisitos y que quedaron pendientes, debido a falta de recursos económicos del Programa de Becas.

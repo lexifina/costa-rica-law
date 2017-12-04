@@ -1,0 +1,2 @@
+Artículo 20. La Comisión de Becas municipales reservará un fondo de contingencia, correspondiente a un 1% del presupuesto asignado a becas. El cual será destinado para casos especiales, es decir riesgo social, en los cuales él o la estudiante becada por la Municipalidad requieran el apoyo de la institución y que sea técnicamente justificada ante la comisión.
+(Presentar documentos probatorios correspondientes).

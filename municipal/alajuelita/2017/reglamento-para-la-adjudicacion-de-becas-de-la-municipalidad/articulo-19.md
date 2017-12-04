@@ -1,0 +1,1 @@
+Artículo 19. Las fechas para el depósito de la beca, quedará sujeto a la calendarización para estos efectos realice el Departamento de Tesorería, las becas serán depositadas mensualmente desde el mes de febrero al mes de Diciembre de cada año.

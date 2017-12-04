@@ -1,0 +1,2 @@
+Artículo 9º—La Comisión de Becas Municipales, será la encargada de analizar la información presentada, con base al estudio técnico que elabore la Oficina de Mujer, como encargada del programa de becas y recomendará en última instancia quiénes obtendrán el derecho a beca.
+Sera responsabilidad de la oficina de la Mujer, resguardar los expedientes de solicitantes a becas debidamente firmados y con la documentación requerida.
