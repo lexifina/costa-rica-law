@@ -30,3 +30,4 @@ Reglamento Autónomo de Servicios del Ministerio de Hacienda
 | 15 | 2012-03-07 | SINALEVI (sin norma nombrada) |
 | 16 | 2015-06-19 | Decreto Ejecutivo 39174 (2015-06-19) |
 | 17 | 2015-11-27 | Decreto Ejecutivo 39475 (2015-11-27) |
+| 18 | 2017-12-04 | Decreto Ejecutivo 40880 (2017-12-04) |
