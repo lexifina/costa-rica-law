@@ -1,1 +1,0 @@
-Artículo 34.—DE LAS EXCEPCIONES A LOS PLAZOS DE LIQUIDACIÓN. Se exceptúan del artículo anterior, aquellos casos que, la persona funcionaria solicitante, le sea imposible liquidar en los plazos establecidos. Por tanto, al momento de presentar la liquidación, debe adjuntar fotocopia de la incapacidad médica o documento probatorio de la ausencia.

@@ -1,1 +1,0 @@
-Artículo 41.—DEL TIPO DE MONEDA. En el caso de que las y los Proveedores tengan los precios establecidos en otro tipo de moneda que no sea la moneda de curso legal vigente (colones costarricenses) se les debe solicitar que indiquen en la factura el tipo de cambio aplicado y/o el importe en colones.

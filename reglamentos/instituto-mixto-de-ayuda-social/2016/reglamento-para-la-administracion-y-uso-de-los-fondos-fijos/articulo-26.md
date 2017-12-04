@@ -1,1 +1,0 @@
-Artículo 26.—DE LA DISPONIBILIDAD PRESUPUESTARIA PARA EL RECONOCIMIENTO DE GASTOS IMPREVISTOS. El reconocimiento de los gastos imprevistos, quedan sujetos a que exista disponibilidad presupuestaria cuando se solicita el reintegro, para que puedan hacerse efectivos. De lo contrario la institución reconocerá el gasto hasta que cuente con disponibilidad presupuestaria requerida.

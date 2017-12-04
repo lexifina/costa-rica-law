@@ -1,1 +1,0 @@
-Artículo 18.—DEL NO RECONOCIMIENTO DE GASTOS PARA LA ADQUISICIÓN DE BIENES Y SERVICIOS SIN ADELANTO DE EFECTIVO PARA GASTOS POR CAJA CHICA. Sin excepción, en la adquisición de bienes y servicios no se reconocerán gastos por medio de Caja Chica, cuando no se haya gestionado el respectivo Adelanto de Efectivo para Gastos por Caja Chica.

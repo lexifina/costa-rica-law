@@ -1,2 +1,0 @@
-Artículo 37.—DE LOS DOCUMENTOS RESPALDO. Debe presentar las facturas, facturas electrónicas, tiquetes y los formularios que se establezcan en el Manual, así como las justificaciones expresas solicitadas en este Reglamento.
-Solo los formularios y justificaciones expresas deben ser firmados por la persona funcionaria y la o el titular subordinado. Estos se firmarán digitalmente, cuando la institución posea la infraestructura tecnológica que lo permita.

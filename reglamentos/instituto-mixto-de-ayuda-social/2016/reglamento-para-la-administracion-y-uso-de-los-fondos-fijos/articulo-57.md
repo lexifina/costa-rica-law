@@ -1,1 +1,0 @@
-Artículo 57.—DE LA UNIDAD DE CONTABILIDAD. Tiene la responsabilidad de atender en tiempo y forma las acciones de control y supervisión, establecidas en el presente Reglamento, y de asesorar en su competencia a las personas administradoras de los fondos fijos institucionales.

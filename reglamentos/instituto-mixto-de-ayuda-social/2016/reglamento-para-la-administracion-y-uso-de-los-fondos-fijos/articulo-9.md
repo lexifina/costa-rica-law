@@ -1,1 +1,0 @@
-Artículo 9º— DE LAS CUENTAS CORRIENTES DESTINADAS A LA ADMINISTRACIÓN DE LOS FONDOS FIJOS. La correcta administración de las cuentas corrientes donde se custodian los recursos de los Fondos Fijos, serán responsabilidad de la persona administradora de dicho Fondo Fijo.

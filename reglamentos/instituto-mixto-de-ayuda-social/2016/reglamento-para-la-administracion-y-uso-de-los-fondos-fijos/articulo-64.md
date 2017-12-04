@@ -1,1 +1,0 @@
-Artículo 64.—DE LAS DEROGACIONES. A partir de la entrada en vigencia del presente Reglamento, queda derogado el “Reglamento de las Cajas Chicas Institucionales”, publicado en el diario Oficial La Gaceta N° 64 del miércoles 2 de abril de 2008 y sus reformas; así como toda normativa interna de igual o menor rango que se le contraponga.

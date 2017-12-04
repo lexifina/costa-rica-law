@@ -1,1 +1,0 @@
-Artículo 40.—DE LAS FECHAS DE LAS FACTURAS. Las facturas o los comprobantes y en general todos los documentos que respalden la liquidación de un Adelanto de Efectivo para Gastos por Caja Chica, no deben tener fecha anterior a la del recibido del dinero adelantado.
