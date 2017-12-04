@@ -15,3 +15,4 @@ Contingencia Fiscal
 | --- | --- | --- |
 | 1 | 2017-08-07 | la propia norma |
 | 2 | 2017-11-22 | Decreto Ejecutivo 40839 (2017-11-22) |
+| 3 | 2017-12-04 | Decreto Ejecutivo 40808 (2017-12-04) |

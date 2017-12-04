@@ -1,1 +1,2 @@
 ARTÍCULO 6. Se autoriza a las instituciones que reciben transferencias del Presupuesto Nacional para que en lo que resta del 2017 puedan financiar gastos operativos con recursos de superávit libre.
+(Mediante el artículo 1° del decreto ejecutivo N° 40808 del 4 de diciembre del 2017 se prorroga el presente artículo de manera tal que se autoriza a las instituciones que reciben transferencias del Presupuesto Nacional para que durante el 2018 puedan financiar gastos operativos con recursos de superávit libre)
