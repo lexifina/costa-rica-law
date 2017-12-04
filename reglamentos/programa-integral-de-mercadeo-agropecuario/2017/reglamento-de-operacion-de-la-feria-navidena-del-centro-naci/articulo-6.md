@@ -1,0 +1,1 @@
+Artículo 6: La formulación de quejas o diferencias que llegasen a presentarse, serán atendidas y resueltas por la comisión organizadora de la Feria Navideña, todo lo cual tendrá apelación ante la Gerencia General.

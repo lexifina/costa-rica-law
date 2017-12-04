@@ -1,0 +1,1 @@
+Artículo 19: El manejo de los productos y/o servicios exhibidos será de responsabilidad de las empresas que los exhiben. Además se deja a libertad de los expositores el adquirir por sus propios medios: seguros contra robo, incendio, sustracción etc. Así como la contratación de agentes de seguridad extras a los que provee LA Feria Navideña CENADA 2017.

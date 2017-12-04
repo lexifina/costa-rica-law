@@ -1,0 +1,1 @@
+Artículo 3: El Director de CENADA será quien presida esta comisión, su ausencia será suplida por el Encargado del área de comunicación. Para todos los efectos se entenderá que es el presidente del órgano colegiado de conformidad con la Ley General de la Administración Pública, el cual aplicará este reglamento para los contratos o convenios celebrados con los participantes.
