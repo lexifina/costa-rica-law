@@ -1,4 +1,6 @@
+(Suspendida)
 DIRECCIÓN GENERAL DE ADUANAS
+(Esta norma fue suspendida por resolución RES-DGA-DGT-035-2017 del 4 de diciembre de 2017.Dicha suspensión es hasta el último día hábil de julio del año 2018)
 RES-DGA-DGT-029-2017.—Dirección General de Aduanas.—San José, a las catorce horas treinta minutos del día once de octubre del dos mil diecisiete.
 Considerando:
 I.—Que el artículo 14 del CAUCA establece las obligaciones generales de los Auxiliares de la Función Pública Aduanera, estableciendo como una de ellas el transmitir electrónicamente o por otros medios, las declaraciones aduaneras e información complementaria relativa a los actos, operaciones y regímenes aduaneros en que participe. Asimismo se establece que se debe cumplir con los formatos y procedimientos para la transmisión electrónica de datos siguiendo los requerimientos de integración con los sistemas informáticos utilizados por el Servicio Aduanero.
