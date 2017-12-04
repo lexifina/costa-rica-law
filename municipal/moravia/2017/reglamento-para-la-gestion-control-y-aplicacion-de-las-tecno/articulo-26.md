@@ -1,0 +1,3 @@
+CAPITULO IV
+Implementación, mantenimiento y desecho o reutilización de tecnologías de información
+Artículo 26—Adquisición de software y hardware y su implementación. La Institución promoverá la independencia de proveedores de software, instalaciones y servicios. El Departamento de Tecnologías de Información deberá realizar un análisis de los requerimientos junto con las propuestas de los funcionarios y se escogerá aquello que beneficie a la Institución municipal en conjunto con la Alcaldía. Si fuese necesario un cambio de hardware o software antes, por razones justificadas, se procederá con la compra del mismo siempre y cuando haya contenido presupuestario para tal fin y siguiendo los lineamientos de la contratación administrativa.

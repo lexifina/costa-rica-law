@@ -1,0 +1,1 @@
+Artículo 36—Usuario. Este se entiende como aquel que es responsable de enviar y recibir mensajes de carácter institucional, los cuales atiende mediante el servicio de correo electrónico y que el Departamento de Tecnologías de Información no es responsable por la pérdida o la no disposición de datos transmitidos por medio de este, salvo cuando exista una falla técnica comprobada.

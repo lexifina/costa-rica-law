@@ -1,0 +1,3 @@
+SECCIÓN VI
+Redes sociales
+Artículo 42—Uso. Las redes sociales quedarán habilitadas para uso municipal exclusivamente y será usadas por aquellos funcionarios que por motivo de sus funciones y acorde con el desarrollo estratégico de la Municipalidad, tenga lo potestad de publicar información pertinente al interés cantonal. Para ello se deberá contar con el visto bueno por escrito o por medios electrónicos de la Alcaldía o Vice Alcaldía. El bloqueo de estas se hará siempre y cuando se posea la capacidad tecnológica para dicho fin, de lo contrario se dotara de los recursos económicos necesarios para la adquisición de las herramientas que correspondan.

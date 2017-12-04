@@ -1,0 +1,1 @@
+Artículo 7º—Informes. El encargado del Departamento de Tecnologías de Información será el responsable de presentar por escrito los estudios y recomendaciones técnicas en materia tecnológica, con sus alternativas. Dichos documentos deberán guardar estrecha relación con lo establecido en el PAO TI.

@@ -1,0 +1,6 @@
+Artículo 41—De las obligaciones y atribuciones de TI.
+• Definir de manera exclusiva las capacidades de almacenamiento de los buzones de cada usuario. Estas capacidades incluyen: almacenamiento total de correos (bandeja de entrada, bandeja de salida, elementos enviados, borradores y elementos eliminados) en el buzón y tamaño máximo de los correos de envío y recepción cuando estos contengan archivos adjuntos.
+• Definir las capacidades de correo óptimas que permitan el funcionamiento más eficaz y eficiente del posible servicio.
+• Suspender de manera preventiva o permanente el servicio de correo electrónico a aquellos usuarios que entorpecen el uso adecuado de la herramienta y que por su particular manipulación pongan en riesgo la seguridad del servicio de correo mientras se tramita el procedimiento disciplinario correspondiente.
+• Optimizar las configuraciones del servidor de correo y el software para usuarios finales con el objetivo de asegurar la integridad, la privacidad de la información y la disponibilidad del servicio, tanto dentro como fuera de las instalaciones.
+• Se debe garantizar el respaldo periódico de los correos institucionales por medios seguros como una plataforma de la nube.

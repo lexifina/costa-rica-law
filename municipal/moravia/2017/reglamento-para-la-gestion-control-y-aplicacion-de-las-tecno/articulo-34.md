@@ -1,0 +1,1 @@
+Artículo 34—Innovación. El departamento de Tecnologías de Información está habilitado a promover cualquier mejora de índole tecnológica que redunde en beneficios a la Administración Municipal, preparando para ello una propuesta del proyecto a desarrollar

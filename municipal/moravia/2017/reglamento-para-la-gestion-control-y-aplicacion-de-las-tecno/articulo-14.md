@@ -1,0 +1,1 @@
+Artículo 14—Almacenamiento de programas. Todo software original, CD, DVD y otros medios de almacenamiento deberán ser custodiados por el Departamento de Tecnologías de Información, quien a su vez debe tener claramente especificado a qué departamento pertenece cada medio.

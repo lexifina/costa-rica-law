@@ -1,0 +1,2 @@
+Artículo 22—Políticas en cuanto a "software malicioso". Corresponderá al Departamento de Tecnologías de Información definir las políticas de "firewall" y antivirus, que reduzcan al máximo posible el riesgo planteado por el "software malicioso".
+El Departamento de Tecnologías de Información propondrá el desglose presupuestario que facilite implementar a corto, mediano y largo plazo las medidas requeridas, con el fin de que sea valorado su contenido en los presupuestos municipales.

@@ -1,0 +1,4 @@
+SECCIÓN VII
+Sanciones
+Artículo 43—Incumplimiento. El incumplimiento de cualquiera de las disposiciones establecidas en el presente Reglamento, podrá considerarse como falta laboral y por ende generar responsabilidad disciplinaria. Según la gravedad de la falta, podrán aplicarse las sanciones señaladas por el artículo 149 del Código Municipal, todo con ajuste al debido proceso y derecho de defensa y bajo los presupuestos procesales señalados por el referido numeral 149 y 150 del Código Municipal.
+Dada la especialidad del tema que se regula mediante el presente reglamento de previo a abrir un procedimiento administrativo, será necesario que exista un informe técnico del Departamento de Tecnologías de Información, a fin de determinar el mérito para la apertura de un procedimiento administrativo.

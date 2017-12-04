@@ -1,0 +1,7 @@
+Artículo 18—Manejo de la información. El manejo de la información almacenada en los diferentes equipos de cómputo, cumplirá las siguientes políticas de seguridad:
+a) El usuario es el responsable de la información almacenada en el equipo de que dispone.
+b) El usuario es el responsable de hacer y mantener al día los respaldos necesarios para salvaguardar la información crítica de sus áreas usando las herramientas técnicas que la administración facilite.
+c) El usuario deberá de mantener un respaldo exclusivamente de información de índole laboral en la herramienta proporcionada por la administración. Esto podrá ser verificado por medio de visitas aleatorias de los usuarios de TI a los equipos de los usuarios y en presencia de ellos.
+d) Si por cualquier circunstancia el usuario debe entregar su equipo de cómputo, será responsable por la información sensible, confidencial o crítica que el equipo pueda contener. De ser factible moverá esa información, sea por medio físico o electrónico, a otro medio de almacenamiento. Para hacerlo solicitará al Departamento de Tecnologías de Información la asesoría pertinente.
+e) Ninguna jefatura de la Municipalidad podrá copiar la información de índole personal almacenada en el equipo de cómputo, sin permiso por escrito del usuario de este.
+f) El Departamento de Tecnologías de Información promoverá que la administración utilice herramientas que permita mantener la información debidamente respaldada en un entorno seguro y robusto.
