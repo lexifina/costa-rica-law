@@ -14,3 +14,4 @@ Reglamento para el Otorgamiento de Becas para Estudio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-27 | la propia norma |
+| 2 | 2017-12-05 | Reglamento municipal 71 (2017-12-05) |
