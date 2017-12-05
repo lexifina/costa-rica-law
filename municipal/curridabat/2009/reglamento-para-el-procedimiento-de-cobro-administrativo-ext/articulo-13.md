@@ -1,3 +1,4 @@
-Artículo 13.—Condiciones para otorgar arreglos de pago. El arreglo de pago se otorgará por parte de la Dirección, para lo cual serán valoradas las siguientes condiciones del sujeto pasivo:
-a. Capacidad económica: El sujeto pasivo debe comprobar a la Dirección, que su situación económica impide cancelar, en forma total e inmediata, las obligaciones vencidas.
-b. Monto adeudado: De proceder el arreglo de pago, ambas partes pactarán el monto a cancelar mensualmente, y el plazo para la cancelación total de la obligación vencida, no podrá exceder de seis meses. Solo en casos calificados se podrá con el visto bueno del Director Tributario, extender plazo no mayor a un año.
+Artículo 13.—Condiciones para otorgar Arreglos de Pago. Para otorgar un arreglo de pago, se valorará por parte de la oficina municipal competente la condición económica del sujeto pasivo para lo cual éste deberá comprobar, que su situación económica impide cancelar en forma total e inmediata las obligaciones vencidas.
+En el caso de personas que han completado los procesos formativos en materia de emprededurismo que brinda la Municipalidad de Curridabat o alguna otra institución pública, deberá aportar la documentación que así lo compruebe.
+Sólo se podrá aplicar arreglos de pago, para períodos vencidos.
+(Así reformado mediante sesión ordinaria N° 086-2017 del 5 de diciembre del 2017)
