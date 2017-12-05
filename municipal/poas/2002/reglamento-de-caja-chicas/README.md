@@ -15,3 +15,4 @@ Reglamento de Caja Chicas
 | --- | --- | --- |
 | 1 | 2002-06-24 | la propia norma |
 | 2 | 2007-07-16 | Reglamento municipal 64 (2007-07-16) |
+| 3 | 2017-12-05 | Reglamento municipal 84 (2017-12-05) |
