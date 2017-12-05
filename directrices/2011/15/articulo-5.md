@@ -1,1 +1,0 @@
-Artículo 5º—Solicitar a la Refinadora Costarricense de Petróleo (RECOPE), que presente ante el Rector del Sector Energía, en el plazo de 2 meses, un plan revisado para dar cumplimiento a lo dispuesto en el Reglamento de Biocombustibles, y se avance en el proceso de introducción de los biocombustibles en el mercado nacional.
