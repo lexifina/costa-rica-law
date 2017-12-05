@@ -14,3 +14,4 @@ Reglamento para la integración de la comisión general de actualización profes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-06-09 | la propia norma |
+| 2 | 2017-12-05 | Reglamento 7 (2017-12-05) |
