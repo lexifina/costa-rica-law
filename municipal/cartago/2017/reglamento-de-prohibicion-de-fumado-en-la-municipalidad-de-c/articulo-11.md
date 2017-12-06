@@ -1,0 +1,1 @@
+Artículo 11.—Denuncias por infracción a esta reglamentación. Las denuncias podrán ser presentadas de forma verbal o escrita, en físico o en digital, ante la Administración Activa, las personas Encargadas de Área, las Jefaturas Municipales, las personas Encargadas de Unidad y la Unidad de Salud Ocupacional.

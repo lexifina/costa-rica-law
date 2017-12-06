@@ -1,0 +1,2 @@
+Artículo 5°—Prohibición de fumado. Queda absolutamente prohibido consumir o mantener encendidos productos de tabaco dentro de las instalaciones de la Municipalidad de Cartago y de aquellas áreas designadas como espacios cien por ciento (100%) libres de la exposición al humo de tabaco por la Ley N° 9028, que estén bajo control municipal.
+De igual forma, queda absolutamente prohibido realizar acciones contrarias a los objetivos de la Ley N° 9028 y de este reglamento.

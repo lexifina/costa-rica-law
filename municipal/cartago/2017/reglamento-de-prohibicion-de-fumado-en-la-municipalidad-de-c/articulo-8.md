@@ -1,0 +1,1 @@
+Artículo 8°—Programas de cesación de fumado. La Municipalidad de Cartago coordinará con el IAFA, programas dedicados a la atención terapéutica que permitan a las personas de la Institución con dependencia al tabaco, cesar su consumo.
