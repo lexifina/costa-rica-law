@@ -1,0 +1,1 @@
+Artículo 7º—A la cita en cuestión, debe asistir el colegiado personalmente. En ningún caso se podrá realizar el trámite por parte de terceros, en tanto que se trata de documentación referente a un derecho personalísimo (la autorización para el tratamiento de datos personales). Además, no se atenderá sin cita previa.

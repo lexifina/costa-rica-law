@@ -1,0 +1,1 @@
+Artículo 5º—Una vez recibidos los datos del formulario, el personal designado por el CTCR verificará que los mismos correspondan a un profesional incorporado y que cumpla con los requisitos estipulados.

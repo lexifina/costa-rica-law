@@ -1,0 +1,1 @@
+Artículo 13.—Únicamente se publicarán en la Plataforma de Directorio Profesional, los datos que el colegiado haya consentido expresamente mediante el formulario de consentimiento informado. En caso de duda con respecto a la autorización para publicar alguno de los datos, el CTCR se abstendrá de publicarlo.

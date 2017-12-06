@@ -1,0 +1,1 @@
+Artículo 11.—El colegiado deberá comunicar al CTCR cualquier cambio que se suscite en los datos proporcionados, con el fin de que los mismos sean modificados dentro de la Plataforma de Directorio Profesional.

@@ -1,0 +1,2 @@
+Artículo 14.—El CTCR no tendrá responsabilidad alguna por el acceso y tratamiento que puedan tener terceras personas sobre los datos personales que el agremiado autorizó publicar en la Plataforma de Directorio Profesional.
+El CTCR tampoco tendrá responsabilidad alguna en caso de que personas ajenas al Colegio, utilicen o manipulen para fines distintos que los dispuestos en el presente Reglamento, los datos personales brindados por los agremiados.
