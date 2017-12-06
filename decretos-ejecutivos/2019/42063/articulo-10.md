@@ -1,0 +1,1 @@
+Artículo 10°— El Ministerio de Agricultura y Ganadería promoverá convenios y acuerdos con el sector privado para fomentar el empleo de jóvenes y mujeres, que hayan llevado el curso y obtenido el carnet que les autoriza para laborar en estos establecimientos.

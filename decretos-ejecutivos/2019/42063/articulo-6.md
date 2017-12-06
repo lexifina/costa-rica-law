@@ -1,0 +1,1 @@
+Artículo 6°— El SFE establecerá un curso de refrescamiento anual el cual se estará impartiendo entre los meses de febrero y noviembre de cada año para aquellos expendedores que se encuentren activos con el fin de actualizar conocimientos en materia de manejo seguro, eficaz y racional de las sustancias químicas, biológicas o afines de uso en la agricultura.

@@ -1,0 +1,1 @@
+Artículo 11°— Los funcionarios del Servicio Fitosanitario del Estado podrán solicitar durante las visitas de fiscalización a los establecimientos el carnet respectivo al personal de ventas o despacho de dichos establecimientos, quienes deberán portarlo en un lugar visible.

@@ -1,0 +1,1 @@
+Artículo 12°— El permiso o licencia, podrá ser cancelado por el Servicio Fitosanitario del Estado, previo dictado del acto administrativo correspondiente, si se incumple con cualquiera de los requisitos señalados en el presente Decreto.
