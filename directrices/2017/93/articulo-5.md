@@ -1,0 +1,1 @@
+Artículo 5º—Las demás instituciones públicas que por iniciativa propia decidan aplicar los instrumentos y guías que publiquen MIDEPLAN y MH, podrán hacerlo, sin necesidad de que sean incluidos en planes pilotos, para lo cual se les instruye que informen al MIDEPLAN y MH para su seguimiento en avances y logros.

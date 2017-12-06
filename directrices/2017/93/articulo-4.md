@@ -1,0 +1,1 @@
+Artículo 4º—La implementación gradual de la GpRD iniciará con un Plan Piloto, a ser desarrollado por el Ministerio de Seguridad Pública, el Ministerio de Justicia y Paz, el Instituto Costarricense sobre Drogas y el Instituto Nacional de las Mujeres. Con la anuencia de sus jerarcas se tendrán como prioritarios los procesos necesarios para la implementación del modelo.

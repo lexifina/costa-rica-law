@@ -1,0 +1,1 @@
+Artículo 3º—El MIDEPLAN y el MH, diseñarán los instrumentos y guías que permitirán la aplicación del modelo de la GpRD en el sector público, con la inclusión de medidas de rectificación, corrección o ajuste. Dichos instrumentos y guías serán comunicados y publicados en las páginas electrónicas de ambos ministerios.
