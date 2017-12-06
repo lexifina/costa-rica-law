@@ -1,0 +1,1 @@
+Artículo 6°—Monto del Adelanto. El monto del adelanto mensual para gastos de representación del alcalde municipal, será de ¢300.000.00 (trescientos mil colones netos) mensuales. Igual suma se le girará al Presidente del Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 9°—Forma de efectuar el Adelanto. Mensualmente se depositará en la cuenta destinada para tal fin (gastos de representación y de atención) del Alcalde Municipal y el presidente del Concejo, la suma indicada en el artículo anterior, el cual estará sujeto a liquidación.
