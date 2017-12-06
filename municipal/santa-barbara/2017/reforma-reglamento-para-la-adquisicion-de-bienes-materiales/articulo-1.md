@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE SANTA BÁRBARA
+La Municipalidad de Santa Bárbara de Heredia, informa que mediante el acuerdo municipal N° 1416-2017, adoptado en la sesión ordinaria N° 78-2017 celebrada en el salón de sesiones de la Municipalidad de Santa Bárbara de Heredia el día 23 de octubre del 2017, el Concejo Municipal de Santa Bárbara de Heredia acuerda Primero: a) Modificar el artículo número 92 del “Reglamento de Adquisiciones de Bienes Materiales, Obras y Servicios de la Municipalidad de Santa Bárbara”, adicionando un párrafo final que indique: “(...) se exceptúa de los plazos anteriores aquellos procedimientos de contratación administrativa que se fundamenten en casos de urgencia administrativa, de la Alcaldía Municipal.
+Santa Bárbara, 24 de noviembre de 2017.
