@@ -1,0 +1,4 @@
+ARTÍCULO 15- Agréguese un inciso n) al artículo 165, del Decreto Ejecutivo Nº 26831, "Reglamento de la Ley de Igualdad de Oportunidades para Personas con Discapacidad", publicado en La Gaceta Nº 75 del 20 de abril de 1998, que indique lo siguiente:
+n) Para rampas o elevadores se deberá contar con la especificación de fabricación que indique una capacidad de trabajo normal no menor a 300 kg y máximo de 300 kg, sin sufrir deformaciones o fallos. Se deberá contar un rótulo que indique la carga de trabajo máxima permitida, colocado en un espacio visible para el conductor y las personas usuarias.
+La rampa o elevador deberá contar con un bordillo de seguridad en los lados no transitables, contrastantes y con una altura no menor a 10 cm.
+Cuando la rampa o elevador sea mecánico, deberá permitir ser operado manualmente en caso de fallo.

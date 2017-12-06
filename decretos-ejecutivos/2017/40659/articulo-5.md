@@ -1,0 +1,2 @@
+ARTÍCULO 5- Modifíquese el artículo 159, del Decreto Ejecutivo Nº 26831, "Reglamento de la Ley de Igualdad de Oportunidades para Personas con Discapacidad", publicado en La Gaceta Nº 75 del 20 de abril de 1998, para que se lea de la siguiente manera:
+Artículo 159.- Identificación oficial. La persona acreedora de dicha identificación deberá ubicarla, en un lugar visible del vehículo, para poder beneficiarse de las disposiciones contenidas en este reglamento.

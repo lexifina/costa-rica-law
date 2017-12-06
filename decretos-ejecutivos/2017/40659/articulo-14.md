@@ -1,0 +1,2 @@
+ARTÍCULO 14- Agréguese un inciso m) al artículo 165, del Decreto Ejecutivo Nº 26831, "Reglamento de la Ley de Igualdad de Oportunidades para Personas con Discapacidad", publicado en La. Gaceta Nº 75 del 20 de abril de 1998, que indique lo siguiente:
+m) Para el ingreso de personas usuarias de productos de apoyo, todas las unidades presentarán algún dispositivo accesible para el ingreso y egreso de pasajeros, entre los que se consideran los vehículos de piso bajo, con sistema de arrodillamiento, o bien, con elevadores o rampas.

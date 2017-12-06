@@ -1,0 +1,6 @@
+ARTÍCULO 12- Agréguese un inciso k) al artículo 165, del Decreto Ejecutivo Nº 26831, "Reglamento de la Ley de Igualdad de Oportunidades para Personas con Discapacidad", publicado en La Gaceta Nº 75 del 20 de abril de 1998, que indique lo siguiente:
+k) Con respecto a los requerimientos para asientos, se establece lo siguiente:
+1. El espacio libre necesario frente a cualquier asiento no deberá estar dentro del espacio de la silla de ruedas.
+2. Los espacios entre los demás asientos que no sean preferenciales deberán cumplir la especificación, según el tipo de línea, establecida por la instancia designado por el Consejo de Transporte Público o en su defecto por el Ministerio de Obras Públicas y Transportes para la fiscalización al transporte público de personas.
+3. Las dimensiones de todos los asientos deberán cumplir la especificación, según el tipo de línea, establecida por el Consejo de Transporte Pública o por la instancia designada por el Ministerio de Obras Públicas y Transportes para la fiscalización al transporte público de personas.
+4. Para la cantidad de asientos se deberá cumplir exactamente con la capacidad de personas sentadas indicada en la tarjeta de capacidad otorgada por la instancia designada por el Ministerio de Obras Públicas y Transportes para la fiscalización al transporte público de personas.

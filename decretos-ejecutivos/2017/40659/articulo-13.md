@@ -1,0 +1,6 @@
+ARTÍCULO 13- Agréguese un inciso 1) al artículo 165, del Decreto Ejecutivo Nº 26831, "Reglamento de la Ley de Igualdad de Oportunidades para Personas con Discapacidad", publicado en La Gaceta Nº 75 del 20 de abril de 1998, que indique lo siguiente:
+l) El espacio para el viaje de la persona usuaria de silla de ruedas deberá cumplir con los siguientes requerimientos:
+i) Deberá estar ubicado sobre una superficie plana y cerca del acceso de personas pasajeras usuarias de productos de apoyo, estar orientado en el sentido de marcha del vehículo, presentar una dimensión no menor a 1,30 m medidos en el plano longitudinal, 0,80 m en el plano transversal y 1,50 m de altura.
+ii) Deberá tener un respaldo para la persona usuaria de silla de ruedas, centrado, acolchonado, el cual debe de iniciar a partir de los 0,35 m y 0,48 m del piso del espacio de silla de ruedas, con dimensiones de 0,42 m de ancho por una longitud entre 0,82 m y 0,95 m.
+iii) Deberá contar con un sistema de sujeción para la silla de ruedas adaptable a un amplio rango de diseños, además de contar con un cinturón de seguridad para el usuario de silla de ruedas, con tres puntos de apoyo.
+iv) Deberá contar con un pasamanos horizontal en la pared contigua. Este pasamanos deberá tener una longitud de 0,90 m y estar ubicado a una altura entre 0,70 m y 1 m, medidos desde el piso de este espacio.
