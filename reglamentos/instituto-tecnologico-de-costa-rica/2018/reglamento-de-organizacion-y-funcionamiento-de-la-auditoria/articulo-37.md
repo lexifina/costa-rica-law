@@ -1,0 +1,3 @@
+Artículo 37. Audiencia para la conferencia final
+La Auditoría Interna solicitará audiencia para efectuar la conferencia final al funcionario al cual se dirige el informe, quien deberá dársela en un plazo no mayor a cinco días hábiles, salvo situación de manifiesta excepción la cual deberá ser puesta, por escrito, en conocimiento de la Auditoría Interna dentro de los dos primeros días hábiles siguientes al recibo de esa solicitud, para la concesión de una prórroga por una única vez.
+El borrador del informe de auditoría se suministrará con la solicitud de audiencia de la conferencia final, con la finalidad de propiciar una mayor comprensión y análisis de su contenido.

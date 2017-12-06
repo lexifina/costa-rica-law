@@ -1,0 +1,2 @@
+Artículo 8. Objetividad individual
+Es obligación de los funcionarios de la Auditoría Interna mantener una actitud imparcial y objetiva, evitando conflictos de intereses, por lo que deben atenerse a lo dispuesto sobre el particular en las distintas normas aplicables, básicamente en la Ley General de Control Interno; Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, las Normas Generales de Auditoría para el Sector Público y las Normas para el ejercicio de la Auditoría Interna en el Sector Público.

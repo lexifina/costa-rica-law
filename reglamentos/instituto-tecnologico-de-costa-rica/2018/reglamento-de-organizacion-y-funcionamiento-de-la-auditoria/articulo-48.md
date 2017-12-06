@@ -1,0 +1,1 @@
+Artículo 48. Solicitud de aclaración o información adicional Ante requerimiento de la Auditoría Interna, el denunciante deberá prestar colaboración para aclarar o brindar información complementaria que permita sustentar los hechos denunciados.

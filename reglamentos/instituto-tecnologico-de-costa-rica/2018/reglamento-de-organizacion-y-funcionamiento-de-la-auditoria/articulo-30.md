@@ -1,0 +1,3 @@
+Artículo 30. Señalamiento de plazos
+La Auditoría Interna señalará en cada caso el plazo en el que la administración activa debe suministrar la información requerida. Este plazo será establecido considerando la complejidad del asunto en cuestión, así como la importancia y urgencia que representa para la oportuna ejecución de sus funciones. Tal plazo empezará a contar a partir del día siguiente del recibo de la solicitud por la instancia correspondiente.
+Cuando la solicitud no pueda ser atendida dentro del plazo establecido, el responsable deberá comunicarlo para su resolución a la Auditoría Interna dentro de los cinco días hábiles siguientes al recibo de la petición.

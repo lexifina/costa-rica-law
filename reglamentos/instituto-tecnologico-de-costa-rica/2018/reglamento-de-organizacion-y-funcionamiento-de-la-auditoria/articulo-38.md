@@ -1,0 +1,3 @@
+Artículo 38. Respuesta a los informes de auditoría
+El órgano colegiado o el funcionario al cual se dirige el informe deberán, en los plazos improrrogables que establecen los artículos 36 y 37 de la Ley General de Control Interno, ordenar la implementación de las recomendaciones o manifestarse, si discrepa de ellas.
+Vencidos esos plazos sin producirse las manifestaciones de ley y, sin perjuicio de las responsabilidades que tal actuación genere, el informe de auditoría adquiere eficacia y firmeza y por tanto se vuelve obligatoria la implementación de las recomendaciones, bajo pena de incurrir, en caso de incumplimiento injustificado, en responsabilidad administrativa y eventualmente civil o penal, de conformidad con el artículo 39 de la Ley General de Control Interno.

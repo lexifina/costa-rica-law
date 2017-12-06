@@ -1,0 +1,1 @@
+Artículo 47. Requisitos esenciales que deben reunir las denuncias que se presenten a la Auditoría Interna Los hechos denunciados deben ser expuestos en forma clara, precisa y circunstanciada, brindando la evidencia suficiente que permita orientar la investigación para determinar el momento y lugar en que ocurrieron tales hechos y el sujeto que presuntamente los realizó.

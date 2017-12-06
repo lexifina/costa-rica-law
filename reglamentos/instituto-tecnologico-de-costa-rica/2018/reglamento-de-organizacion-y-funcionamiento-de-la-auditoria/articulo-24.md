@@ -1,0 +1,7 @@
+CAPITULO IV
+Funcionamiento de la Auditoría Interna
+SECCIÓN A
+Ámbito de acción
+Artículo 24. Ámbito de acción
+La Auditoría Interna ejercerá su competencia en los órganos y dependencias del Instituto Tecnológico de Costa Rica, fiscalizando el uso de los fondos públicos destinados al cumplimiento de las actividades sustantivas, así como los fondos públicos destinados a instancias privadas tales como la Asociación de Funcionarios del Instituto Tecnológico de Costa Rica (AFITEC), la Asociación de Empleados del Instituto Tecnológico de Costa Rica (ASETEC), la Asociación Deportiva y Recreativa del Instituto Tecnológico de Costa Rica (ADERTEC), la Federación de Estudiantes del Instituto Tecnológico de Costa Rica (FEITEC), la Asociación Taller Infantil Psicopedagógico del Instituto Tecnológico de Costa Rica (ATIPTEC) o cualquier otra que se organice en el futuro.
+También, podrá fiscalizar los fondos públicos que administre la Fundación Tecnológica de Costa Rica (FUNDATEC), como producto de los programas de vinculación externa que desarrolle el Instituto Tecnológico de Costa Rica con la coadyuvancia de esa Fundación, de acuerdo con el ámbito de su competencia o de otras fundaciones y empresas auxiliares que en el futuro se organicen en el marco de la Ley para la promoción del desarrollo científico tecnológico o en las sociedades en las que participe el Instituto Tecnológico de Costa Rica conforme al artículo 5 de su Ley Orgánica.

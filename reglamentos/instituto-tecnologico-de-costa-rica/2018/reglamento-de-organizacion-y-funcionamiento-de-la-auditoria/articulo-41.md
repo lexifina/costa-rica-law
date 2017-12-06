@@ -1,0 +1,3 @@
+SECCION E
+De los informes de carácter especial sobre eventuales responsabilidades
+Artículo 41. Informes sobre eventuales responsabilidades El informe sobre eventuales responsabilidades comunicará, a la instancia competente de la administración activa, los asuntos que puedan llevar a establecer posibles responsabilidades administrativas, civiles o penales, considerando los elementos necesarios para la identificación de presuntos responsables y hechos anómalos o irregulares que se les atribuyan; a efecto que sean utilizados como insumo en las investigaciones preliminares o los procesos administrativos que se generen.

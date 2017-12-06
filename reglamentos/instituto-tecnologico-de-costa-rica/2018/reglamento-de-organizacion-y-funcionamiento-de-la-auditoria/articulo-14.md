@@ -1,0 +1,2 @@
+Artículo 14. Relaciones externas
+Es facultad del Auditor Interno o en quien él delegue, solicitar, proveer e intercambiar información con entes externos que conforme a la ley corresponda, sin perjuicio de la coordinación que se requiera con las autoridades superiores del Instituto Tecnológico de Costa Rica, en tanto se cumpla con el artículo 6º de la Ley General de Control Interno y 8º de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.

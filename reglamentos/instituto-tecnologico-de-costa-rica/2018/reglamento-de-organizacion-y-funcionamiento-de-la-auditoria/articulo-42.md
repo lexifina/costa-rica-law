@@ -1,0 +1,3 @@
+Artículo 42. Confidencialidad
+El informe y la documentación que sustenta el estudio, son de acceso restringido durante la investigación, la elaboración del informe y el traslado al jerarca u órgano competente y, aún posterior a ello, hasta que se dicte el acto final.
+Cuando el informe tenga su origen en una denuncia, la Auditoría Interna tomará las medidas necesarias para que se guarde sin sujeción a límite de tiempo la confidencialidad sobre la identidad del denunciante, de conformidad con el artículo 6º de la Ley General de Control Interno y 8º de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.

@@ -1,0 +1,1 @@
+Artículo 51. Fundamentación del acto de desestimación y archivo de denuncias La desestimación y archivo de las denuncias se realizará mediante un acto debidamente motivado en el que se acredite los argumentos valorados para tomar esa decisión.

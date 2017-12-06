@@ -1,0 +1,2 @@
+Artículo 15. Solicitudes de la Asamblea Legislativa
+Las solicitudes de información planteadas por la Asamblea Legislativa, referidas a productos y servicios de la Auditoría Interna, documentación y pruebas que se encuentren en su poder, serán satisfechas cuando sean formuladas por una comisión legislativa debidamente acreditada, de conformidad con el inciso 23) del artículo 121 de la Constitución Política y éstas no formen parte de una denuncia trasladada al Ministerio Público.

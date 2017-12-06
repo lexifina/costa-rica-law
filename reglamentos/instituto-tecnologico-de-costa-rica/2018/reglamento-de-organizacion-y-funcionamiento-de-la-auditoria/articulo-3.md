@@ -1,0 +1,1 @@
+Artículo 3. Del mecanismo de formulación, modificación y aprobación La formulación, modificación, aprobación y promulgación de este Reglamento se realizará conforme a la normativa dispuesta por la Contraloría General de la República.

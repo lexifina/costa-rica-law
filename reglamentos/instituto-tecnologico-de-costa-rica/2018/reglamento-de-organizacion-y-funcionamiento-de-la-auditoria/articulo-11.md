@@ -1,0 +1,2 @@
+Artículo 11. Superior jerárquico
+El Auditor Interno es el superior jerárquico de la Auditoría Interna y tiene a su cargo la dirección superior y administración de ésta. En sus ausencias temporales le sustituirá, con todas sus competencias, el Subauditor Interno o el funcionario que se designe, de conformidad con los “Lineamientos para la sustitución temporal del Auditor Interno del Instituto Tecnológico de Costa Rica”, aprobados por el Consejo Institucional.
