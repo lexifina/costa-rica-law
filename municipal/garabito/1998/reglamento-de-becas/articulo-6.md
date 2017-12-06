@@ -1,1 +1,2 @@
-Artículo 6º—El estudiante deberá presentar original y fotocopia de la tarjeta de calificación al realizar su solicitud de beca, para que los miembros de la Comisión de Becas a su vez, informen al Concejo lo que corresponda y una vez que las becas sean aprobadas se devolverá la nota original al interesado.
+Artículo 6º—El estudiante deberá presentar fotocopia de la tarjeta de calificación y además una constancia emitida por la dirección de cada colegio, correspondiente de la tarjeta de calificación, al realizar su solicitud de beca, para que los miembros de la Comisión de Becas a su vez, informen al Concejo lo que corresponda.
+(Así reformado mediante sesión ordinaria N° 84 del 6 de diciembre del 2017)
