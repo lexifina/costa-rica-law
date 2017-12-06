@@ -14,3 +14,4 @@ Manual sobre la metodología para la aplicación del Sistema de Contabilidad de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-09-11 | la propia norma |
+| 2 | 2017-12-06 | Resolución 319 (2017-12-06) |

@@ -1,15 +1,15 @@
 Artículo 24° ̶ Mecanismo de implementación inicial
 Una vez publicado el presente Manual o bien, una vez que un operador sea declarado como operador importante en algún mercado, se deberá llevar acabo el siguiente proceso que comprende la implementación inicial del Sistema:
 Primera Fase: Propuesta de Implementación Sistema de Contabilidad de Costos Separada presentada por el operador:
-• En la primera fase del proceso el operador deberá presentar una propuesta de implementación del Sistema según los parámetros dados por este Manual mediante el estándar de Costos Históricos, adjuntando los estudios que se dirán.
+• En la primera fase del proceso el operador deberá presentar una propuesta de implementación del Sistema según los parámetros dados por este Manual mediante el estándar de Costos Históricos,
+adjuntando los estudios que se dirán.
 • En esta primera fase el operador deberá presentar los siguientes estudios:
 o Listado con los servicios objeto de separación contable, junto con su descripción
 o Plan de cuentas, incluyendo justificación y descripción de las cuentas de costos e ingresos desagregadas en cada uno de los niveles de la Contabilidad Regulatoria presentados en el artículo 16.
 o Propuesta de vidas útiles correspondiente al primer ejercicio de implementación.
 o Detalle de los costos asociados al capital (amortización anual y costo de capital) a nivel de activo, incluyendo el valor bruto y el valor neto de cada uno de ellos.
 o Motivos de cargo y abono para cada cuenta y los criterios de valoración, reparto y asignación en que se basan.
-o Descripción de las reglas específicas a emplear para los precios de transferencia de los diferentes servicios con base en lo estipulado en el artículo 19.
-Segunda Fase: Resultados de la implementación propuesta
+o Descripción de las reglas específicas a emplear para los precios de transferencia de los diferentes servicios con base en lo estipulado en el artículo 19. Segunda Fase: Resultados de la implementación propuesta
 • Una vez aprobado por la Sutel la propuesta de implementación, el operador deberá implementar el Sistema y generar una Contabilidad de Costos Separada que representara una revisión de la adecuada aplicación de la metodología aprobada en la primera fase. Los resultados deberán ser indicados en todos los reportes solicitados en el artículo 23 de este Manual. Esta implementación se realizará únicamente utilizando el estándar de Costos Históricos y no se tomará la aprobación por parte de la Sutel de los resultados finales de la aplicación de esta metodología.
 Los plazos que se deben cumplir son los siguientes:
 1. Presentación de Propuesta de Implementación Sistema de Contabilidad de Costos Separada: el operador tiene 100 días hábiles para presentar la propuesta de implementación junto con los estudios solicitados. El plazo empezará a correr después de publicado el presente Manual o luego de que el operador sea declarado como operador y/o proveedor importante en algún mercado relevante definido por la Sutel.

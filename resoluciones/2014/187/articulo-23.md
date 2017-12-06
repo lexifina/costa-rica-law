@@ -1,6 +1,6 @@
 Artículo 23° ̶ Reportes y Estudios Técnicos
-Los operadores obligados a llevar una Contabilidad Regulatoria deberán presentar utilizando ambos estándares (Costos Históricos y Costos Corrientes) en un formato que facilite su tratamiento (por ejemplo Excel o Word), los siguientes reportes5:
-5 Para más información al respecto de los contenidos que deberán incluir estos reportes puede consultarse el Anexo “Formularios y Guías para la presentación de los resultados del sistema de Contabilidad de Costos Separado”.
+Los operadores obligados a llevar una Contabilidad Regulatoria deberán presentar utilizando ambos estándares (Costos Históricos y Costos Corrientes) en un formato que facilite su tratamiento (por ejemplo Excel o Word), los siguientes reportes10:
+10Para más información al respecto de los contenidos que deberán incluir estos reportes puede consultarse el Anexo “Formularios y Guías para la presentación de los resultados del sistema de Contabilidad de Costos Separado”.
  Informe de conciliación entre la Contabilidad Regulatoria y la Contabilidad Financiera
  Matrices de asignación y distribución de costos e ingresos, al menos los siguientes en línea con lo establecido en referencia al proceso de asignación de costos e ingresos:
 o Matriz de asignación de ingresos de los registros financieros a ingresos reflejados
@@ -30,10 +30,13 @@ o Valor neto por categorías de activos
 o Planta totalmente amortizada por categorías de activos
 o Indicadores de amortización y renovación (altas) por categorías de activos
 Por otro lado, se deberán presentar los siguientes informes de soporte que permitan obtener una mejor comprensión de la metodología empleada en el desarrollo del sistema de Contabilidad Regulatoria:
+ Estados Financieros y sus notas del Sector de Telecomunicaciones del periodo en revisión, preferiblemente auditados por un tercero.
+ Documento con la justificación de los criterios para asignar los costos y factores de enrutamiento utilizados en todas las etapas del sistema.
  Cuentas anuales e informe de gestión del operador
  Informes de auditoría:
 o Informe de auditoría sobre la revisión de la Contabilidad Financiera.
-o Informe de auditoría sobre los resultados del Modelo de Separación Contable bajo el estándar de costos históricos.
+o Informe de auditoría sobre los resultados del Modelo de Separación Contable bajo el estándar
+de costos históricos.
 o Informe de auditoría sobre los resultados del Modelo de Separación Contable bajo el estándar de costos corrientes.
  Manual Interno de Contabilidad de Costos (MICC) que deberá contener, como mínimo, la siguiente información:
 o Plan de Cuentas de todas las etapas del Modelo.
