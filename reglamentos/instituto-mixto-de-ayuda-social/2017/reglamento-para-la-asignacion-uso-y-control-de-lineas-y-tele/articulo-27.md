@@ -1,0 +1,1 @@
+Artículo 27—(Nota de Sinalevi: En la publicación de este reglamento no aparece este artículo. No obstante, el sistema exige una numeración consecutiva, por lo que el mismo se ha creado pero sin texto.)

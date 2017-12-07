@@ -1,0 +1,1 @@
+Artículo 20—De la devolución del equipo. En aquellos casos previstos en los artículos N° 15 y 16 del presente Reglamento la persona funcionaria responsable del equipo deberá devolverlo con sus accesorios de forma inmediata, quien comunicará al Área de Servicios Generales, para la actualización de los registros y la respectiva suspensión del pago del servicio

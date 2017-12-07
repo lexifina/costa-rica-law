@@ -1,0 +1,2 @@
+Artículo 25—De la resolución del pago: En caso de que la persona servidora manifestare su disconformidad, el Área de Servicios Generales valorará los argumentos esgrimidos y mediante resolución razonada resolverá lo correspondiente.
+En contra de lo resuelto, procederá el recurso de revocatoria ante la Jefatura del Área de Servicios Generales con apelación en subsidio ante la Subgerencia de Soporte Administrativo.

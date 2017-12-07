@@ -1,0 +1,2 @@
+Artículo 26—Del cobro de los excedentes del servicio máximo reconocido por el presente reglamento: Una vez firme la respectiva resolución o en caso de que la persona servidora no impugnare el cobro ni reintegrare las sumas pagadas en exceso, el Área de Servicios Generales procederá a solicitar a la Unidad de Desarrollo Humano que realice la deducción respectiva en los salarios devengados en la quincena inmediata siguiente.
+Dicha deducción se realizará de conformidad con la autorización que emita la persona servidora en el respectivo contrato
