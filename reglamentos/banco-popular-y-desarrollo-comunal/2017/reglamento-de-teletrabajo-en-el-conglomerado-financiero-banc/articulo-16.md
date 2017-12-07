@@ -1,0 +1,2 @@
+CAPÍTULO VI
+Artículo 16- Sistemas de Información de teletrabajo. La Dirección de Capital Humano del Banco Popular, en conjunto con las dependencias encargadas de administrar el teletrabajo en cada entidad, definirán el contenido del informe de gestión del teletrabajo de conformidad con los requerimientos de los distintos usuarios (Juntas Directivas, Gerencias Generales y Comisión de Pautas, Políticas y Juntas de Crédito Local y cualquier otro que así lo justifique).

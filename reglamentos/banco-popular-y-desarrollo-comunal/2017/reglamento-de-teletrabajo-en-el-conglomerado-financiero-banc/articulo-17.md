@@ -1,0 +1,2 @@
+Artículo 17- Periodicidad. La Dirección de Capital Humano del Banco Popular, en conjunto con las dependencias encargadas de administrar el teletrabajo en cada entidad, definirán la periodicidad del informe de gestión del teletrabajo de conformidad con los requerimientos de los distintos usuarios, el cual deberá realizarse al menos una vez al año.
+Rige a partir de su adopción en firme por parte de la Junta Directiva Nacional, debiendo en todo caso publicarse en el diario oficial La Gaceta."

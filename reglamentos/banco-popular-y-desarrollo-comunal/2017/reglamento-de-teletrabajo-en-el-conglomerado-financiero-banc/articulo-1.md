@@ -1,0 +1,5 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+"REGLAMENTO DE TELETRABAJO EN EL CONGLOMERADO FINANCIERO BANCO POPULAR Y SUBSIDIARIAS
+CAPITULO I
+DISPOSICIONES GENERALES
+Artículo 1.-Objetivo. El presente reglamento se dicta con fundamento en el artículo 24, inciso 2 de la Ley Orgánica del Banco Popular y tiene por objetivo establecer las condiciones jurídicas, técnicas y administrativas que regulan el teletrabajo en el Conglomerado, el cual tiene como modalidad de prestación de servicio no presencial, en procura de responder prioritariamente a la modernización de la gestión, al aumento y medición de la productividad, al aprovechamiento de las tecnologías de la información y comunicación, a la promoción de la calidad de vida del personal, a la protección al medio ambiente y a la inclusión laboral, lo cual se llevará a cabo según lo indicado en la Ley, en el Decreto del Poder Ejecutivo Nº 39225-MP-MTSS-MICITT, en las disposiciones especiales emitidas por la Junta Directiva Nacional y en el presente reglamento.

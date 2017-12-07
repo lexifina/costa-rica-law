@@ -1,0 +1,2 @@
+Artículo 8.-Acuerdo de teletrabajo. El addendum al contrato laboral de teletrabajo contendrá los criterios de medición, evaluación y control de la persona teletrabajadora. Dichos criterios deben procurar el cumplimiento de los objetivos y metas de la dependencia, los cuales serán previamente determinados por la jefatura inmediata o persona que esta designe.
+Dicho addendum tendrá una vigencia no menor a seis meses, renovable automáticamente e indefinidamente por el mismo periodo, a menos que alguna de las partes, en forma motivada, indique lo contrario.

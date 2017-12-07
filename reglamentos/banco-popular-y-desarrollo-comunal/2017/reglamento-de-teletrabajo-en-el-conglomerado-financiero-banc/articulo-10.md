@@ -1,0 +1,1 @@
+Artículo 10.-Suspensión o terminación del contrato de teletrabajo. El patrono podrá suspender o dejar sin efecto el contrato de teletrabajo en forma justificada y con observancia del debido proceso, todo sin perjuicio de las eventuales sanciones que procedan de conformidad con las disposiciones aplicables.
