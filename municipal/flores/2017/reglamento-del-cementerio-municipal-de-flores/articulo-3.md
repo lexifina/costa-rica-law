@@ -1,0 +1,1 @@
+Artículo 3.- En todas las materias que este Reglamento no deja a decisión del Concejo Municipal, es vinculante la decisión de la Alcaldía Municipal la cual puede, sin embargo, ser recurrida ante aquél.

@@ -1,0 +1,1 @@
+Artículo 19.- La presentación de la orden de inhumación deberá hacerse al menos dos horas antes de la misma con el fin de determinar el sitio exacto y la ausencia de restos con menos de cinco años de inhumados y en caso de cruces deberá hacerse al menos 4 horas antes de la misma.

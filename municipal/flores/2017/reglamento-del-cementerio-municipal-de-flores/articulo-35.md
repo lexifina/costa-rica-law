@@ -1,0 +1,1 @@
+Artículo 35.- Los derechos de parcelas sólo se adjudicarán con el compromiso formal de construir en ellos nichos subterráneos conforme se define en el artículo 40 y siguientes del presente reglamento, la cual tendrá un lapso de un año para construir y un máximo de 90 días para terminar la bóveda y por el no cumplimiento de esta obligación será causal para perder el derecho.

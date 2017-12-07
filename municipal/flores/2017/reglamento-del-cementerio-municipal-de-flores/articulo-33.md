@@ -1,0 +1,2 @@
+Artículo 33.- Los traspasos de derechos se harán ante el Departamento del Cementerio mediante documento idóneo de traspaso debidamente autenticado por abogado o ejecutoria de sentencia judicial y cancelar los timbres y derechos que indique el departamento del Cementerio, para sufragar los gastos de la nueva inscripción. En caso de existencia de restos en el derecho, el documento deberá hacer constar el vínculo familiar respectivo entre los contratantes. Todo traspaso debe tener visto bueno de Departamento del Cementerio.
+Todo traspaso que no llene este requisito será nulo.

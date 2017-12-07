@@ -1,0 +1,1 @@
+Artículo 46.- Cualquier daño o deterioro ocasionado por la construcción de una bóveda deberá ser reparado de inmediato por el interesado dentro del plazo de los siguientes 10 días naturales contados a partir de su notificación. En caso contrario el costo de la reparación será cargado a su cuenta por la Municipalidad

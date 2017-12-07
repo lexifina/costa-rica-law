@@ -1,0 +1,1 @@
+Artículo 64.- Costo por permiso de reparación. El costo del permiso de reparación o remodelación que no implique levantamiento de nuevas edificaciones sino mejoras de las existentes, será el equivalente a un 50% de una cuota mantenimiento anual

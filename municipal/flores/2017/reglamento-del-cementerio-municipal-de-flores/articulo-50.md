@@ -1,0 +1,1 @@
+Artículo 50.- La Municipalidad no se responsabiliza por ningún accidente que suceda al realizarse trabajos de cualquier clase en las bóvedas, salvo aquellos casos en que resultaren afectados sus propios empleados; las construcciones, reparaciones u otros trabajos serán por cuenta y riesgo de los arrendatarios.

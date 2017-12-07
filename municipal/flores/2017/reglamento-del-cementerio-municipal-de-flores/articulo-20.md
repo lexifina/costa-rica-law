@@ -1,0 +1,2 @@
+Artículo 20.- Cuando se desee una inhumación en una bóveda que contenga restos de más de cinco años de anterioridad que se debe disponer de una fosa, nicho u osario municipal que los contendrá.
+Esta inhumación deberá realizarse mediante la autorización del propietario. En caso de que al abrirse el nicho se determine que contiene una momia cuyo estado no deja espacio para la nueva inhumación, se dará prioridad a la momia y el cadáver se inhumará en otro lugar.

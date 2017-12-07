@@ -1,0 +1,1 @@
+Artículo 28.- El acta para traslados de restos deberá contener la autorización de los propietarios de ambas bóvedas, en casos de traslado dentro del cementerio, o del propietario de la bóveda que contenga los restos en caso de traslado a otro cementerio. En este último caso se requerirá que sea reservado el espacio para tal fin.

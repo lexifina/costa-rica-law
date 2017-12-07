@@ -1,0 +1,1 @@
+Artículo 2.- Las materias tratadas en este Reglamento están sujetas al previo cumplimiento de todo lo dispuesto en el Reglamento General de Cementerio, en los artículos del 327 al 330 de la Ley General de Salud 5395 (referente a inhumaciones y exhumaciones) y el resto de la legislación conexa.

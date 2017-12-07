@@ -1,0 +1,1 @@
+Artículo 4.- Se declara la demanialidad del terreno en el cual se ubica el cementerio de Flores, de modo tal que el derecho funerario sobre una sepultura no constituye derecho de propiedad, ya que están construidas sobre solares o parcelas que son de dominio público y por tanto están fuera del comercio de los hombres.

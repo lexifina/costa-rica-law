@@ -1,0 +1,1 @@
+Artículo 9.- Obligación de dar mantenimiento: Corresponde a los arrendatarios de bóvedas y parcelas de su propio peculio la conservación de las construcciones y monumentos erigidos en ellas de acuerdo a las disposiciones contenidas en el procedimiento respectivo y demás directrices emitidas al efecto.

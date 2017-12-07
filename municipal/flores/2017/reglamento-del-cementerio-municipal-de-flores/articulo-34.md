@@ -1,0 +1,2 @@
+Artículo 34.- Para adquirir un derecho en el Cementerio Municipal se requiere ser residente del Cantón de Flores. Ninguna persona física podrá tener más de un derecho individual en este cementerio. Estos derechos no podrán tener más de tres parcelas juntas, definidas éstas como espacios de 1 por 2,50 metros.
+Ninguna persona jurídica podrá ser adquirente de un derecho en el Cementerio Municipal, salvo por ejecutoria de sentencia judicial.

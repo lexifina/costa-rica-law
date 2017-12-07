@@ -1,0 +1,1 @@
+Artículo 27.- Para todos los efectos de exhumación, se considerarán interesados con derecho ante la administración, los parientes hasta tercer grado de consanguinidad o afinidad pero en caso de conflicto con el propietario de la bóveda que contuviere restos, sus derechos deberán definirse por mandamiento judicial.

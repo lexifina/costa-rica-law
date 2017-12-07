@@ -1,0 +1,1 @@
+Artículo 68-.Todos los dineros provenientes de arrendamientos de parcelas o derechos en el cementerio, deberán invertirse en mejoras del mismo, gastos administrativos para dar un servicio acorde con las necesidades vigentes y planes futuros.

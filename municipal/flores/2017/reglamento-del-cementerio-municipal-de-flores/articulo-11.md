@@ -1,0 +1,4 @@
+CAPÍTULO IV
+DE LA PRESTACIÓN DE SERVICIOS.
+Artículo 11.-Confección de contratos: Cada vez que el Departamento de Cementerio entregue en arrendamiento una parcela, un nicho o cualquier otro, se deberá confeccionar un contrato, en el cual se establecerán en forma clara y concisa, los derechos y obligaciones de ambas partes, precio del arrendamiento y los parámetros para la actualización de tarifas y demás condiciones de término, modo y causales de resolución. Dicho contrato debe estar vigente para realizar cualquier trámite o servicio relacionado con el derecho y deberá exigirse el monto a cancelar por el arriendo el cual debe de realizarse en el plazo de dos días hábiles una vez adjudicado el derecho. Si el pago no se realiza en el plazo estipulado se procederá a readjudicar el derecho en el orden ya dispuesto.
+El mismo contrato deberá efectuarse para los antiguos arrendatarios, de conformidad con lo establecido en el numeral 70 de este Reglamento.

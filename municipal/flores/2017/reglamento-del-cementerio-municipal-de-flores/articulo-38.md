@@ -1,0 +1,1 @@
+Artículo 38.- Todo propietario de derecho se compromete en el acto mismo de adquisición al pago de la cuota trimestral de mantenimiento, la cual deberá estar aprobada por el Concejo Municipal y revisada anualmente conforme se dispone en artículo 74 del Código Municipal. La omisión de pago de la cuota de mantenimiento constituirá causa de resolución del contrato de arrendamiento.

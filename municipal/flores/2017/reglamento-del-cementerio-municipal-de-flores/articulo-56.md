@@ -1,0 +1,1 @@
+Artículo 56.- Las tarifas a cobrar serán aprobadas por el Concejo Municipal tomando en consideración los costos de oportunidad y de mantenimiento, más un 10 por ciento de utilidad para desarrollo, previa propuesta formal presentada por la Administración.

@@ -1,0 +1,1 @@
+Artículo 59.- Costo del servicio. La Municipalidad cobrará una cuota de mantenimiento anual (que podrá ser cancelada trimestralmente) a los titulares de nichos, misma que se determinará tomando en cuenta el costo real de la prestación del servicio, más un 10 por ciento que se considera como ingreso libre.

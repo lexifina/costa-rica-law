@@ -1,0 +1,1 @@
+Artículo 45.- Las construcciones de bóvedas quedan sujetas al pago del impuesto de construcciones, cuyo monto será objeto de determinación de parte de la Alcaldía Municipal, de acuerdo con el valor de la obra.
