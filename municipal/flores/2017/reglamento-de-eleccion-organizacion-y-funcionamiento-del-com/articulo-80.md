@@ -1,0 +1,1 @@
+Artículo 80.—Asamblea general de nombramiento de Comités Comunales. La Asamblea General estará conformada por dos representantes (un hombre y una mujer) de cada una de las asociaciones deportivas, recreativas y de desarrollo comunal existentes en el distrito las cuales deben estar adscritas al CCDRF con personería jurídica vigente.

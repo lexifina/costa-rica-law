@@ -1,0 +1,1 @@
+Artículo 82.—Junta Directiva de los Comités Comunales. Los Comités Comunales de Deportes los conformarán una Junta Directiva compuesta por cinco miembros: Presidente (a),Vicepresidente (a), Secretario (a), Tesorero (a) y Vocal.

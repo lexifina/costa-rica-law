@@ -1,0 +1,1 @@
+Artículo 105.—Derogatoria. Este Reglamento deroga el actual Reglamento de Organización, Funcionamiento y Elección del Comité Cantonal de Deportes y Recreación de Flores, publicado en La Gaceta Nº 96 del 19 de mayo del 2006, así como cualquier otra normativa reglamentaria que se leoponga.

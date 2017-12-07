@@ -1,0 +1,1 @@
+Artículo 73—Presupuestos extraordinarios y modificaciones presupuestarias. Todo la materia relativa a presupuestos extraordinarios y modificaciones presupuestarias se regirá por los principios dispuestos en el Reglamento para Regular el Trámite y Aprobación de Modificaciones Presupuestarias para la Municipalidad de Flores publicado en la Gaceta 230 del 29 de noviembre del 2007.

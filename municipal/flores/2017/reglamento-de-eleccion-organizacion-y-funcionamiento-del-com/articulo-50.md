@@ -1,0 +1,1 @@
+Artículo 50.—Comisión Electoral. Para supervisar y dirigir el proceso de elección de las listas de candidatos en las Asambleas descritas, se constituirá una Comisión Electoral conformada por: dos miembros del Concejo Municipal (regidores (as) o síndicos (as), propietarios (as) o suplentes) y dos miembros de la Junta Directiva del CCDRF vigente.

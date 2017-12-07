@@ -1,0 +1,1 @@
+Artículo 72.—Aprobación del presupuesto. El presupuesto ordinario del CCDRF, así como sus respectivos planes, deben ser aprobados por la Junta Directiva del CCDRF a más tardar en la segunda quincena del mes de junio y ser presentados para su conocimiento al Concejo Municipal, en la primer semana del mes de julio, de conformidad con lo establecido en el Código Municipal.
