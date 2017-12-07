@@ -1,0 +1,2 @@
+Artículo 48.- El Comité Cantonal podrá apoyar el funcionamiento de los Comités Comunales y Vecinales con asignación de recursos, siempre y cuando dicho apoyo sea motivado y esté debidamente presupuestado.
+De los fondos disponibles en el presupuesto para cada Comité Comunal o Vecinal, la Junta Directiva del Comité Cantonal, podrá autorizar el funcionamiento de una caja chica, contemplando para ello las normas básicas para la correcta utilización de esos recursos en la comunidad.

@@ -1,0 +1,5 @@
+SECCIÓN III
+De las Comisiones Consultivas
+Artículo 25.- El Comité Cantonal podrá constituir Comisiones Consultivas como órganos asesores técnicos en materia deportiva y recreativa, con funciones de prever, planificar, organizar, controlar, evaluar y coordinar los planes de iniciación deportiva y desarrollo deportivo de las distintas disciplinas deportivas y además coordinar con el subproceso de recreación los eventos recreativos.
+Las Comisiones Consultivas pueden ser unipersonales o colegiadas, dependiendo de las necesidades del Comité Cantonal; estarán sometidas jerárquicamente a este último órgano, quien tiene la potestad de nombrarles y removerles según las necesidades de ejecución de la planificación del deporte y la recreación en el cantón. La Comisión fenece con el cumplimiento de su objetivo, para cuyo efecto siempre tendrá un plazo.
+Quienes integren las Comisiones Consultivas desempeñaran sus funciones de forma gratuita, y no mediará relación laboral entre ellos y el Comité Cantonal.

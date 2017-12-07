@@ -1,0 +1,1 @@
+Artículo 31-. La Municipalidad Vázquez de Coronado, brindará un local al Comité Cantonal de Deportes y Recreación, para operar y sesionar. El Comité Cantonal podrá sesionar en cualquier lugar del cantón, siempre y cuando así lo decida el Comité por simple mayoría de votos, y lo comunique adecuadamente a la comunidad.

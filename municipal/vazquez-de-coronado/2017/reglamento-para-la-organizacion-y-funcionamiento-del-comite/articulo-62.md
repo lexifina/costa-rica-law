@@ -1,0 +1,1 @@
+Artículo 62.- Los colores oficiales del deporte en el cantón de Vázquez de Coronado son el blanco, celeste, verde, amarillo pudiendo usar el negro sin perjuicio del diseño artístico y/o estética con los colores anteriores, como un complemento.

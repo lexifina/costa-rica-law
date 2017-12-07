@@ -1,0 +1,1 @@
+Artículo 8.- Los miembros de la Junta Directiva a que se refiere el artículo 5 inciso a) del presente Reglamento, serán de nombramiento directo por el Concejo Municipal. Quienes serán escogidos mediante votación secreta con al menos un mes de antelación al vencimiento del periodo reglamentario de la Junta Directiva.

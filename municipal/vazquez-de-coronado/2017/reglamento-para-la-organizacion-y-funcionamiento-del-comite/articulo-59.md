@@ -1,0 +1,3 @@
+Artículo 59.- El alquiler de instalaciones municipales deportivas y recreativas es de cobro obligatorio. Estos montos serán ajustados, previo estudio de costos, por el Concejo Municipal, a solicitud del Comité Cantonal, órgano que debe velar por su actualización.
+Para la realización de eventos o actividades no establecidas en el cronograma anual oficial aprobado por el Comité Cantonal, dentro de las instalaciones municipales deportivas o en los alrededores de las mismas, debe contarse con la autorización escrita y la recaudación de laJ unta Directiva.
+Para tal fin se podrá exigir un depósito de garantía en dinero efectivo, por un monto suficiente a discreción de la Junta Directiva, para resarcir el pago de los eventuales daños que puedan ocasionarse al inmueble.

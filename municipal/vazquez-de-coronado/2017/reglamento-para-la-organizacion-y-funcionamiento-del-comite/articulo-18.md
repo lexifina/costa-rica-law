@@ -1,0 +1,1 @@
+Artículo 18.- Los Comités Comunales y Vecinales serán los responsables de organizar, dirigir, promover y divulgar toda la actividad deportiva y recreativa de su comunidad. Asimismo, promoverán la construcción, y administrarán y mantendrán las instalaciones deportivas y recreativas de la comunidad otorgadas en administración, previo convenio respectivo con el Comité Cantonal.

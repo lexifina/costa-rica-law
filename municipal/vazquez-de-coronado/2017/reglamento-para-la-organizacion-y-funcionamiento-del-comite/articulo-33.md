@@ -1,0 +1,1 @@
+Artículo 33.- El Comité Cantonal podrá solicitar, en cualquier momento, para revisión los libros de actas y contables de los Comités Comunales, y para esto les podrá convocar a reuniones de trabajo y revisión de su labor.

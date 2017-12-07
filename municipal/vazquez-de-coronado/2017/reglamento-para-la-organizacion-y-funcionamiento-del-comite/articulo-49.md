@@ -1,0 +1,6 @@
+Artículo 49.- Los cánones por el uso de las instalaciones deportivas o recreativas son de cobro obligatorio y serán aprobadas por el Concejo Municipal de conformidad con la recomendación de la Junta Directiva del Comité Cantonal para tal efecto.
+Se podrá otorgar un descuento de hasta un 30% menos en la tarifa para todos aquellos grupos que están integrados dentro del desarrollo de los programas deportivos o recreativos del cantón, a juicio de la Junta Directiva del Comité Cantonal.
+Dichos grupos deben inscribirse en el padrón deportivo cantonal que llevará la Secretaría del Comité Cantonal de Deportes y Recreación de Vázquez de Coronado.
+Los usuarios de los programas propios, directamente coordinados por el Comité Cantonal están exentos del pago de los cánones establecidos en este artículo.
+Los grupos afiliados, los equipos de liga menor, así como los equipos de juegos nacionales y selecciones locales que representen oficialmente a la comunidad y que estén reconocidos o inscritos en el padrón deportivo Cantonal; tendrán prioridad para el uso de instalaciones deportivas.
+Las competencias y campeonatos promovidos por órganos u organismos deportivos nacionales, deberán incluirse en la programación anual del uso de instalaciones; siempre y cuando el uso de las instalaciones sea temporal y resulte beneficioso para el Comité Cantonal de Deportes.

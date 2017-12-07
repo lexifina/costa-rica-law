@@ -1,0 +1,1 @@
+Artículo 43.- La Junta Directiva del Comité Cantonal podrá autorizar el manejo de una caja chica hasta por la suma del 0,3% del aporte municipal al Comité Cantonal. La caja chica deberá ser autorizada y supervisada por el tesorero y el presidente.

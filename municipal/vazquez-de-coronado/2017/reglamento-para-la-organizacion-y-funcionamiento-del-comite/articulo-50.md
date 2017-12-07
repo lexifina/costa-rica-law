@@ -1,0 +1,2 @@
+Artículo 50.- El Comité Cantonal podrá suscribir convenios de cooperación con las organizaciones deportivas, culturales, recreativas, entidades privadas y comunales.
+Para estos efectos el domicilio legal del Comité Cantonal será siempre el cantón de Vázquez de Coronado, pudiendo variarse para casos excepcionales la representación o sede en forma temporal para eventos deportivos o recreativos, previo acuerdo tomado por mayoría de dos terceras partes de los miembros de la Junta Directiva.

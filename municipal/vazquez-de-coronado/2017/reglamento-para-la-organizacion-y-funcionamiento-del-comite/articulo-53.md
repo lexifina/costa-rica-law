@@ -1,0 +1,1 @@
+Artículo 53.- Para los efectos del artículo anterior, la Auditoría Municipal realizará estudios contables y de aplicación de recursos semestralmente, debiendo informar al Concejo Municipal y a la Contraloría General de la República sobre el resultado de dichos estudios.

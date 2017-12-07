@@ -1,0 +1,5 @@
+Artículo 29.- Los miembros de los órganos colegiados tienen la facultad de ejercer recursos de revisión o apelación, en contra de los acuerdos que adopte el órgano o las decisiones y/o resoluciones que emita la Presidencia respectivamente:
+a) Recurso de revisión: Antes de la aprobación del acta, cualquier miembro podrá plantear recurso de revisión en contra de un acuerdo tomado por el órgano colegiado, salvo respecto de los acuerdos aprobados definitivamente. El recurso se presentará por escrito, y para aceptar el recurso de revisión y declararlo con lugar, se necesita la misma mayoría que requirió el acuerdo para ser aprobado.
+b) Recurso de apelación: Contra las decisiones o resoluciones de la Presidencia, el miembro del órgano colegiado podrá apelar ante el pleno dicho acto. La presentación del recurso será por escrito y deberá resolverse por mayoría simple de los integrantes de la misma.
+Los miembros de los Comités Comunales podrán apelar ante el Comité Cantonal los acuerdos de sus respectivos órganos.
+Ningún acuerdo, decisión o resolución que haya sido recurrida surtirá efectos, mientras no haya sido resuelto el recurso.

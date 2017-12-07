@@ -1,0 +1,1 @@
+Artículo 24.- Los Comités Comunales sesionarán ordinariamente cada quince días naturales, y extraordinariamente siempre que sea necesario, los Vecinales con la periodicidad que determinen a lo interno. Los miembros que pierdan su credencial serán sustituidos por el Comité Cantonal de una terna que presenten los restantes miembros del órgano comunal.

@@ -1,0 +1,2 @@
+Artículo 28.- La Presidencia del órgano es la encargada de conceder la palabra y mantener el mutuo respeto en las sesiones, dará la palabra siguiendo el orden en que esta se solicite, salvo moción de orden que se presente, caso en el cual se dará la palabra al proponente de la moción y a cualquier otro miembro que la apoye y luego a los miembros que se opongan.
+Podrá concederse la palabra al público que se apersone a las sesiones, siempre y cuando se encuentre dentro de las posibilidades de gestión de la agenda del día, y cuando así lo considere pertinente la Presidencia.

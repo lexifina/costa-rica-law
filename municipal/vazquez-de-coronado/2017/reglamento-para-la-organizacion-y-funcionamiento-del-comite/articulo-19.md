@@ -1,0 +1,2 @@
+Artículo 19.- Los Comités Comunales estarán integrados por cinco miembros residentes en su distrito. Serán nombrados por la Asamblea General convocada para tal efecto por el Comité Cantonal, mediante acuerdo de su Junta Directiva.
+La Asamblea General estará conformada por dos representantes de cada una de las organizaciones deportivas, recreativas y de desarrollo comunal existentes en el distrito, y que se encuentren inscritas o adscritas al Comité Cantonal con personería jurídica vigente.

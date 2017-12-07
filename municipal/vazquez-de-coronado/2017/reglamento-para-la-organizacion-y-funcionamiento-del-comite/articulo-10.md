@@ -1,0 +1,2 @@
+Artículo 10.- Los miembros de la Junta Directiva a que se refiere el artículo 5 inciso c) del presente Reglamento, será solicitado por la Junta Directiva saliente a la Unión Cantonal en el mes de setiembre, quien de acuerdo con el procedimiento de elección que determine a lo interno, procederá a comunicar al Concejo Municipal la persona que haya resultado electa.
+Una vez recibida la solicitud la Unión Cantonal tendrá un mes para realizar la elección.

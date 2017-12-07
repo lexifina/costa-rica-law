@@ -1,0 +1,1 @@
+Artículo 30.- Cuando un integrante del órgano colegiado no asista a una sesión, debe comunicar a la Secretaría del órgano la justificación de su inasistencia. Para hacerlo por escrito contará con un plazo máximo de veinticuatro horas con posterioridad a la sesión, de no hacerlo su ausencia se tomará como injustificada para los efectos correspondientes.

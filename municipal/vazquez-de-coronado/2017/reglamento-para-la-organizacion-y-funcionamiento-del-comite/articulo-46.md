@@ -1,0 +1,1 @@
+Artículo 46.- En el presupuesto ordinario del Comité Cantonal debe reflejarse el plan operativo anual, así como los programas que se ejecutarán en el período anual al que corresponde el presupuesto. Los gastos presupuestarios no pueden exceder los ingresos probables.

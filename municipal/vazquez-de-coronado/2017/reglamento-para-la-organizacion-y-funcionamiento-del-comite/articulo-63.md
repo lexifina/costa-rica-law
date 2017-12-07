@@ -1,0 +1,1 @@
+Artículo 63.- Cualquier reforma que se proponga a este Reglamento, deberá seguir el proceso establecido para todo reglamento municipal y ser fiel reflejo de las políticas institucionales de la Municipalidad Vázquez de Coronado.

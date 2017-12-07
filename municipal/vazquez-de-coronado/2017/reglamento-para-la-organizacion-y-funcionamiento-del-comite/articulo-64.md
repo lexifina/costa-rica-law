@@ -1,0 +1,1 @@
+Artículo 64.- El Comité Cantonal deberá crear y mantener un listado de organizaciones comunales, deportivas y recreativas, formales y no formales, del cantón, en aras de censar los esfuerzos que se realizan en dichas materias, y con el objetivo de fomentar su formalización.
