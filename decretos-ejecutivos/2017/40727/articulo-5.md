@@ -1,0 +1,1 @@
+Artículo 5°—Funcionamiento del SECDIS. El Consejo Nacional de las Personas con Discapacidad, según la organización interna que así determine, procederá a regular el procedimiento para la emisión de la certificación de discapacidad.

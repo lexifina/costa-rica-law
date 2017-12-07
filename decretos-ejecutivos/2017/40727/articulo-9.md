@@ -1,0 +1,1 @@
+Artículo 9°—Autorización de contenido presupuestario. Se autoriza al Ministerio de Hacienda para que asigne y autorice los recursos necesarios para dotar al CONAPDIS del personal técnico, profesional, de apoyo y de coordinación que se requiera.

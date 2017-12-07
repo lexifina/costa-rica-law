@@ -1,0 +1,1 @@
+Artículo 8°—Reconocimiento del derecho del paciente a su expediente médico. El Estado Costarricense en su conjunto reconoce el derecho de los asegurados a conocer su expediente médico y, por esto, el certificado médico en cuestión deberá ser emitido conforme a la normativa vigente al respecto, en el marco del derecho de los pacientes al acceso de su expediente médico.
