@@ -1,0 +1,3 @@
+Artículo 13°—Las sanciones que correspondan, según lo indicado en artículo anterior, serán aplicadas por el Despacho del Alcalde Municipal, a través de la Dirección de Recursos Humanos, conforme lo establece la Convención Colectiva, el Código Municipal, el Código de Trabajo y el Reglamento Autónomo de Organización y Servicio de esta Municipalidad.
+Enviar en consulta pública no vinculante por el plazo correspondiente conforme al artículo 43 del Código Municipal.
+Una vez realizada la consulta solicitar a la Administración Municipal que lo envíe al Concejo Municipal para aprobar como Reglamento y no como proyecto.

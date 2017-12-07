@@ -1,0 +1,1 @@
+Artículo 8°—De las partidas invertidas: Salvo las partidas de fondos propios, todo recurso con destino específico que se invierta debe quedar debidamente registrada en la ejecución presupuestaria sujeta a liberación de la inversión o sea que no puede ser ejecutada mientras se encuentre invertida y para la ejecución debe acreditarse los intereses ganados a la fecha.
