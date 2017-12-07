@@ -1,0 +1,1 @@
+Artículo 19: PROHIBICIÓN DE VERTIDO: Queda expresamente prohibido utilizar los sistemas de canalización y transporte pluvial públicos para disponer y depositar las aguas sanitarias; no obstante, si el diseño del sistema sanitario lo permite, podrá permitirse la mezcla de las aguas sanitarias con las aguas jabonosas.

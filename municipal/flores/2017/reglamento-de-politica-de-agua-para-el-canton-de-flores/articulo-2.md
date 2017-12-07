@@ -1,0 +1,1 @@
+Artículo 2° OBJETO DE LA POLÍTICA: Como el componente agua se encuentra presente en todas las actividades humanas, se convierte en un tema de control de ordenamiento territorial, por lo que el objeto de esta política es el control de: disponibilidad de agua, protección de pozos, aguas pluviales y sanitarias.

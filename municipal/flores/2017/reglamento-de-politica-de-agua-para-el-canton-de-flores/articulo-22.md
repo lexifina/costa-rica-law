@@ -1,0 +1,3 @@
+CAPÍTULO VII
+REGULACIÓN TARIFARIA DEL AGUA POTABLE
+Artículo 22: ACTUALIZACIÓN TARIFARIA: Conforme lo determina el Código Municipal, de manera anual el Concejo Municipal, de oficio o a petición de la Administración Municipal, iniciará la revisión de la tarifa vigente para las diferentes categorías de agua potable; para ello, se solicitará el estudio financiero de costos a efectos de determinar la confirmación del precio a cobrar o la modificación de las tarifas vigentes. Una vez aprobadala tarifa por parte del Concejo Municipal, esta empezará a regir a partir del mes siguiente a la publicación en el Diario Oficial La Gaceta.

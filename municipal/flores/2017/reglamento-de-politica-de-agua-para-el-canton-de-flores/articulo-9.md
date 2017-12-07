@@ -1,0 +1,13 @@
+Artículo 9°: REQUISITOS DEL ANTEPROYECTO: Todo anteproyecto deberá contener lo siguiente como mínimo:
+a. Nota con la solicitud de aprobación y descripción del proyecto (finca, propietario, desarrollador, cantidad de unidades habitacionales, tipo de régimen urbanístico al que se someterá, tabla de áreas, punto de descarga (pluvial y/o sanitaria), detalle de materiales a usar en pavimentos y aceras, etc.)
+b. Copia de plano de catastro, solo para planos generados en el semestre anterior a la fecha de presentación del anteproyecto, para la fecha de emisión de esta directriz primer semestre 2015
+c. Diseño de sitio mostrando la ubicación de los componentes del proyecto (huellas de edificaciones, planta de tratamiento, laguna de retardo, etc.), se debe aportar en físico impreso (11x17” máximo) y en digital en formato PDF, por medio de un disco compacto.
+d. En caso de no ser el propietario quien realice el trámite, deberá presentar un documento autenticado en el cual se legitime a la persona que realiza el trámite para ese efecto.
+e. Memoria de cálculo pluvial, sanitario y potable según se indica en esta política.
+f. En caso de requerirse: ubicación aproximada de la Planta de Tratamiento de Aguas Residuales.
+g. Las construcciones que pretendan encauzar las aguas hacia un sistema de alcantarillado pluvial situado en rutas nacionales, además de obtener el visto bueno del sistema de mitigación pluvial por parte del municipio, deberán contar con la aprobación del vertido por parte del Ministerio de Obras Públicas y Transportes.
+h. Los proyectos constructivos que colinden con ríos, quebradas o arroyos no podrán realizar ningún tipo de obra dentro de la zona de protección establecida en la Ley Forestal.
+i. Los desfogues pluviales por medio de servidumbre pluvial serán procedentes únicamente cuando esta última esté formalmente constituida.
+j. Salidas de tuberías de desfogue a cuerpos de agua. Todas las salidas de alcantarillas pluviales de las urbanizaciones y proyectos en general, deberán ser protegidas contra los procesos erosivos que puedan ser ocasionados por la salida de las aguas al río y evitar la socavación por medio de una conexión de la alcantarilla al río con un ángulo de 45º respecto a la margen.
+k. La salida de la alcantarilla no debe quedar por debajo del nivel medio del río, ya que en caso de tormenta se impediría la salida del agua de las alcantarillas. Además, respecto a la entrada del agua al río, deberá protegerse la caída del agua con estructuras de disipación de energía para evitar la socavación.
+l. El análisis de los niveles medios se realizará para los caudales con un período de retorno de50 años.

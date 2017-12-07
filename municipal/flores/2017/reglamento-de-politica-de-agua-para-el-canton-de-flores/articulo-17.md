@@ -1,0 +1,1 @@
+Artículo 17: PROHIBICIÓN DE MEZCLADO DE AGUAS JABONOSAS: Queda expresamente prohibido utilizar los sistemas de canalización y transporte pluvial públicos para disponer y depositar las aguas jabonosas; éstas deberán de ser tratadas por los mecanismos de control respectivo.
