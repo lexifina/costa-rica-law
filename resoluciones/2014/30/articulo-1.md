@@ -12,4 +12,20 @@ VI.—Que los avances en materia de tecnología y comunicaciones permiten a la A
 VII.—Que el objetivo fundamental de la presente resolución es potenciar el uso de la herramienta “AMPO”, como un medio digital de almacenamiento de información, acorde con el uso de modernas tecnologías de información y comunicación que, de una parte, facilite a los sujetos pasivos clasificados como “grandes contribuyentes nacionales” el cumplimiento de su deber legal de suministrar, correcta y oportunamente, información de trascendencia tributaria y, de otra, permita a la Administración contar con información de calidad que posibilite mayor efectividad en el ejercicio de sus facultades de control tributario.
 VIII.—Que el artículo 4 de la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, N° 8220 de 4 de marzo del 2002, publicada en el Alcance 22 a La Gaceta N° 49 de 11 de marzo del 2002, establece que todo trámite o requisito con independencia de su fuente normativa, deberá publicarse en el Diario Oficial La Gaceta. Por tanto,
 RESUELVE:
-Artículo 1º—Obligatoriedad en el uso de la herramienta AMPO. Se establece la obligatoriedad, a todos aquellos sujetos pasivos clasificados como “grandes contribuyentes nacionales” de actualizar electrónicamente la información de transcendencia tributaria que la Administración Tributaria requiera a través de la herramienta “AMPO”.
+Artículo 1º—Obligatoriedad en el uso de la herramienta AMPO. Se establece la obligatoriedad, para todos aquellos obligados tributarios clasificados como Grandes Contribuyentes Nacionales, de actualizar electrónicamente la información de trascendencia tributaria que la Administración Tributaria requiera a través de la herramienta “AMPO”. Por no estar sujetas al impuesto sobre las utilidades, conforme el artículo 3 de la Ley del Impuesto sobre la Renta, y por no constituir información de trascendencia tributaria para la ejecución de las labores de control de sus obligaciones tributarias materiales, se exceptúa de esta obligación a las siguientes entidades:
+· Caja Costarricense del Seguro Social.
+· Consejo Nacional de Producción.
+· Consejo Nacional de Vialidad.
+· Corte Suprema de Justicia.
+· Instituto Nacional de Aprendizaje.
+· Junta de Protección Social.
+· Los Ministerios de Gobierno.
+· Las Municipalidades.
+· Las Universidades Estatales.
+· Las Asociaciones Solidaristas.
+De igual manera, por considerarse que no constituye información de trascendencia tributaria para la ejecución de las labores de control de sus obligaciones tributarias materiales, se exime de la presentación de la información de los apartados 16 (Bienes Inmuebles), 17 (Bienes Muebles Registrales) y 18 (Bienes Muebles No Registrales), a las entidades señaladas de seguido
+· Instituto Costarricense de Acueductos y Alcantarillados.
+· Instituto Costarricense de Electricidad.
+· Compañía Nacional de Fuerza y Luz.
+· Banco Central de Costa Rica.
+(Así reformado por el artículo 1° de la resolución DGT-R-54-2017 del 7 de diciembre de 2017)
