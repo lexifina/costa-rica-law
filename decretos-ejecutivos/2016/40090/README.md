@@ -14,3 +14,4 @@ Modifica ley N° 8683 "Impuesto Solidario para el Fortalecimiento de Programas d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-01-01 | la propia norma |
+| 2 | 2017-12-07 | Decreto Ejecutivo 40786 (2017-12-07) |
