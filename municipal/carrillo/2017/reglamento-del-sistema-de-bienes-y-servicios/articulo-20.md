@@ -1,0 +1,4 @@
+Artículo 20.-Competencia de la Comisión de Recomendación de Adjudicaciones. La Comisión de Recomendación de Adjudicaciones, tendrá las siguientes funciones: Recomendar al Concejo Municipal los actos de adjudicación de todas las contrataciones dentro de sus rangos de acción, donaciones.
+Recomendar la aprobación y aceptación de las donaciones de bienes muebles cuando la Municipalidad de Carrillo sea sujeto donante o beneficiario, en este último caso será indispensable contar con un dictamen técnico favorable que manifieste la utilidad que ésta tendrá para la Municipalidad.
+Convocar a cualquier funcionario de la Municipalidad de Carrillo con carácter de invitado y con el fin de obtener su criterio técnico en asuntos de su competencia.
+Conocer cualquier otro asunto que se considere afín con sus funciones.

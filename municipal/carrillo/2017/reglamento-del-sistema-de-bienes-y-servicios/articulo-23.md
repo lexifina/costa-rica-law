@@ -1,0 +1,1 @@
+Artículo 23.- Este reglamento deroga el Reglamento General de la Proveeduría Municipal, publicado en la publicado en Diario Oficial La Gaceta N° 167 del jueves 26 de agosto de 2004 y sus modificaciones al mismo.

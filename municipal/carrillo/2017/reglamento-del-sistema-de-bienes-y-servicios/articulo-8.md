@@ -1,0 +1,4 @@
+CAPITULO III
+Planificación y programación de los procesos de contratación
+Artículo 8°- Programación anual de las secciones ó departamentos municipales, Consejos de Distritos. Las secciones o departamentos, Consejo de Distritos deberán incluir en la formulación del plan-presupuesto sus requerimientos de bienes y servicios del año correspondiente, en el mes de julio de cada año. En lo referente a la contratación de servicios que pertenezcan al rubro de objeto gasto de servicios y la compra de bienes que pertenezcan al rubro de objeto gasto de materiales y suministros y bienes duraderos, deberán en la formulación del plan-presupuesto determinar el tipo de bien a adquirir.
+Lo anterior, con el propósito de que la PI proceda a preparar la publicación del Programa de Adquisiciones en el Diario Oficial La Gaceta, en el mes de enero de cada año.
