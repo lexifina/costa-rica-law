@@ -15,3 +15,4 @@ Reglamento del Proceso de Contratación de la Dirección Nacional de Notariado
 | --- | --- | --- |
 | 1 | 2012-05-21 | la propia norma |
 | 2 | 2013-06-18 | Reglamento 13 (2013-06-18) |
+| 3 | 2017-12-07 | Reglamento 32 (2017-12-07) |
