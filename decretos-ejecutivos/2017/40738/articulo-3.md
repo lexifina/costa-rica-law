@@ -1,0 +1,2 @@
+ARTÍCULO III.—IMPLEMENTACIÓN DE ACUERDOS
+Las condiciones detalladas y específicas, de carácter técnico y financiero, relativas a las actividades de colaboración en virtud del presente MdE serán definidas y establecidas en acuerdos separados, elaborados y celebrados de manera conjunta en función de cada caso entre el Gobierno de Costa Rica, la FAO, el país beneficiario y un socio que proporcione recursos.

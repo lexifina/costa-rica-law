@@ -1,0 +1,2 @@
+ARTÍCULO VII.—ENTRADA EN VIGOR Y DURACIÓN
+El presente MdE entrará en vigor en la fecha en que la República de Costa Rica comunique, por la vía diplomática, el cumplimento de los requisitos internos para su entrada en vigencia. El MdE permanecerá en vigor durante un período de tres años. Sujeto al cumplimiento satisfactorio previo, el MdE se podrá renovar posteriormente por períodos sucesivos de tres años previo acuerdo por escrito de las Partes.
