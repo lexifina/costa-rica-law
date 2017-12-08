@@ -1,0 +1,1 @@
+Artículo 71. El Departamento de Conservación es el responsable de preservar y restaurar los documentos que custodia la Institución, brindar los servicios de reprografía documental y asesorar y capacitar en conservación documental al Sistema Nacional de Archivos.

@@ -1,0 +1,1 @@
+Artículo 18. El Presidente, el Vicepresidente, el Tesorero, el Secretario y el Director Ejecutivo de la Junta serán los personeros autorizados para firmar transacciones financieras y bancarias en nombre de la Junta, tales como cheques, órdenes de débito y pago, transferencias de fondos, planillas.

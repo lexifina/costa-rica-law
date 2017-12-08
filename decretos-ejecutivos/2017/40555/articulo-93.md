@@ -1,0 +1,1 @@
+Artículo 93. Los documentos que se encuentran microfilmados o digitalizados serán reproducidos únicamente a partir de estos medios de reproducción y sin utilizar los documentos originales, salvo casos muy calificados, justificados por escrito que requieren la autorización de la Dirección.

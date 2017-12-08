@@ -1,0 +1,1 @@
+Artículo 96. En cuanto a la expedición de certificaciones y testimonios de instrumentos públicos, insertos en los protocolos notariales, se actuará de acuerdo con lo que dispone la legislación notarial vigente.

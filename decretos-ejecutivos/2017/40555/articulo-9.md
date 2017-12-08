@@ -1,0 +1,1 @@
+Artículo 9. La Junta está constituida de acuerdo con lo dispuesto en el artículo 12 de la Ley del Sistema Nacional de Archivos N° 7202. Una vez nombrados todos los miembros de la Junta se integrará su Directorio.

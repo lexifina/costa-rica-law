@@ -1,0 +1,1 @@
+Artículo 84. Los documentos originales que se encuentran microfilmados o digitalizados solamente se facilitarán para su consulta en estos soportes, salvo casos muy calificados justificados por escrito y que requieren la autorización de la Dirección.

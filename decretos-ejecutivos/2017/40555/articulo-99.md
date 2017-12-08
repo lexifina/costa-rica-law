@@ -1,0 +1,1 @@
+Artículo 99. Exposiciones. El Archivo Nacional tendrá en sus Instalaciones Salas para Exposiciones temporales de documentos. Esto con el fin de colaborar con la cultura del país, la celebración de efemérides importantes o atendiendo a razones de divulgación y promoción de los documentos que custodia.

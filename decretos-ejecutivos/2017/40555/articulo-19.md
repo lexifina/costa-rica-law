@@ -1,0 +1,1 @@
+Artículo 19. Los miembros de la Junta cubrirán su responsabilidad mediante pólizas de fidelidad, de conformidad con el Reglamento sobre las Garantías que deben rendir los funcionarios públicos del Archivo Nacional, dado por Decreto No. 37937-C de 1 de agosto de 2013 y sus Reformas.

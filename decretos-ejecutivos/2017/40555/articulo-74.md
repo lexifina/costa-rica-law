@@ -1,0 +1,2 @@
+Artículo 74. El Departamento de Servicios Archivísticos Externos es el encargado de ejecutar las acciones de apoyo técnico a las Instituciones que integran el Sistema.
+Este Departamento tiene a cargo el Archivo Intermedio, donde se reúnen, organizan y facilitan los documentos con valor administrativo y legal que han sido transferidos de Instituciones que han cerrado, así como los documentos más relevantes de los Despachos de Ministros, Presidencia de la República y del Consejo de Gobierno, de acuerdo con lo que establece el artículo 53 de la Ley No. 7202.

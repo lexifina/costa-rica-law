@@ -1,0 +1,1 @@
+Artículo 86. El Director General autorizará la salida de documentos para ser reproducidos fuera de sus Instalaciones, en el caso de que no se cuente con el equipo necesario para hacerlo y atendiendo las restricciones estipuladas en los artículos 84 y 85 del presente Reglamento y otras Resoluciones internas.

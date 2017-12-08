@@ -1,0 +1,1 @@
+Artículo 55: Por delegación de la Junta, al Proveedor Institucional le corresponde la emisión de la Resolución Final de Adjudicación, Declaratoria de Deserción o de Infructuosa en los procedimientos de Contratación Directa que promueve la Junta. En ausencia de este, la delegación recae sobre el titular del Departamento Administrativo-Financiero.

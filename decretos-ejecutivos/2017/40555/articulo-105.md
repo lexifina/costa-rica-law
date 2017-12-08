@@ -1,0 +1,1 @@
+Artículo 105. Visitas Guiadas. La Dirección contará con personal capacitado para dirigir visitas de grupos, que se interesen por conocer el funcionamiento y la organización de esta Institución y el patrimonio que custodia.

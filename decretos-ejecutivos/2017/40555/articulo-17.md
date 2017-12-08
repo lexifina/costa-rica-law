@@ -1,0 +1,1 @@
+Artículo 17. La revisión y revocatoria de los acuerdos, mociones y demás disposiciones aprobadas o rechazadas por la Junta, se regirán por las regulaciones de la Ley General de la Administración Pública.

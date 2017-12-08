@@ -1,0 +1,1 @@
+Artículo 104. Publicaciones. Los fondos documentales y temas de interés archivístico se divulgarán también por medio de publicaciones periódicas, según lo establecido en los artículos 43 y siguientes del presente Reglamento.

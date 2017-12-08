@@ -1,0 +1,1 @@
+Artículo 21. En caso de ausencia temporal, el Presidente será sustituido por el Vicepresidente con las mismas funciones y atribuciones. En caso de no estar presente ninguno de los anteriores, presidirá el Vocal.

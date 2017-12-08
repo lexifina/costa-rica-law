@@ -1,0 +1,2 @@
+Artículo 11. A la Asamblea que convoca la Junta para integrar una terna de archivistas, se convocará a los archivistas graduados de un Centro de Educación Superior y a aquellos que laboran en archivos públicos y privados.
+La terna únicamente la podrán integrar los archivistas graduados de un Centro de Educación Superior, que se desempeñan como tales en alguno de los archivos de las Instituciones a las que se refiere el artículo 2 de la Ley No. 7202 y por lo menos uno de los integrantes de esta terna será miembro de la Asociación Costarricense de Archivistas.

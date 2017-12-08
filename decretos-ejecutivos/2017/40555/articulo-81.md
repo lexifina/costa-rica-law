@@ -1,0 +1,1 @@
+Artículo 81. Consulta de Documentos. El Archivo Nacional, contará con las Salas de Consulta y Despachos de Atención al Público que sean necesarios para prestar el servicio de consulta de documentos, con el horario que establezca la Dirección. También se facilitará la consulta de los documentos que custodia a través de Internet.

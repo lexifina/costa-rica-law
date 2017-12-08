@@ -1,0 +1,2 @@
+SECCIÓN IV
+Artículo 49. De los Departamentos. Los Departamentos son las Unidades Administrativas responsables de la gestión y prestación de servicios en las áreas sustantivas y de apoyo del Archivo Nacional y son Departamento Administrativo Financiero, Departamento Archivo Histórico, Departamento Archivo Notarial, Departamento de Conservación, Departamento Servicios Archivísticos Externos y Departamento de Tecnologías de la Información

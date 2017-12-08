@@ -1,0 +1,2 @@
+Artículo 3. El Archivo Nacional es una Institución desconcentrada del Ministerio de Cultura y Juventud, rectora del Sistema Nacional de Archivos, que promueve el desarrollo archivístico de las Instituciones para una administración pública transparente y eficiente.
+Así mismo, reúne, organiza, conserva, facilita, y divulga el patrimonio documental de la Nación en cualquier soporte, para acrecentar la identidad nacional. En la actividad notarial custodia, organiza y facilita la documentación notarial y coadyuva en el control del ejercicio del notariado en Costa Rica.

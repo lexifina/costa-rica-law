@@ -1,0 +1,1 @@
+Artículo 5. Organización. El Archivo Nacional está constituido por: la Junta, la Dirección y los Departamentos necesarios para la consecución de sus fines. Asimismo contará con una Auditoría Interna, la CNSED, el CISED, las Comisiones y Comités Internos y Unidades de Apoyo necesarias.

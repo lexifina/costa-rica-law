@@ -1,0 +1,1 @@
+Artículo 45. La Comisión Editora se reunirá como mínimo una vez al año. Será convocada por el Coordinador quien preparará el orden del día, los documentos que se revisarán, y levantará y firmará, conjuntamente con el Presidente, las actas.

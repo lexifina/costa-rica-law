@@ -1,0 +1,1 @@
+Artículo 68. El Departamento de Tecnologías de la Información es la Unidad encargada de brindar y ofrecer servicios de tecnologías de información y comunicación eficientes y de calidad para apoyar las áreas estratégicas del Archivo Nacional y sus funciones rectoras, así como satisfacer las necesidades de información y de servicios en línea de sus usuarios.

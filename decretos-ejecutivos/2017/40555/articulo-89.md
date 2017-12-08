@@ -1,0 +1,1 @@
+Artículo 89. Reproducción de Documentos. La Direccion, facilitará al usuario los servicios de reprografía para documentos textuales, gráficos, audiovisuales y automatizados. El usuario deberá cancelar el costo de las reproducciones fijado por la Junta.

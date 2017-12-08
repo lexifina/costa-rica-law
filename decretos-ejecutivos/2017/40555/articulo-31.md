@@ -1,0 +1,1 @@
+Artículo 31. La Auditoría Interna, dependerá jerárquicamente de la Junta y le corresponde ejecutar las funciones que establece la Ley General de Control Interno y demás normativa atinente a sus funciones.

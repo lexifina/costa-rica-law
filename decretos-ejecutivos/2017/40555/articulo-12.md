@@ -1,0 +1,1 @@
+Artículo 12. La dieta devengada por los miembros de la Junta a que se refiere el artículo 13 de la Ley No. 7202, es de ¢21.528.39 (veintiún mil quinientos veintiocho colones con treinta y nueve céntimos), se actualizará anualmente de conformidad con el índice de inflación que determine el Banco Central de Costa Rica.

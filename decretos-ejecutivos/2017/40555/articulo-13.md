@@ -1,0 +1,1 @@
+Artículo 13. Los funcionarios públicos que integren la Junta sólo tendrán derecho a devengar dietas, de acuerdo con lo que establece la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, No. 8422 de 6 de octubre de 2004.

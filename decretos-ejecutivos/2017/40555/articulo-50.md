@@ -1,0 +1,1 @@
+Artículo 50. Los Departamentos del Archivo Nacional estarán a cargo de un Jefe que es el responsable de la planificación, organización, dirección, coordinación, supervisión, control y evaluación de la gestión y prestación de servicios en las áreas sustantivas y de apoyo.

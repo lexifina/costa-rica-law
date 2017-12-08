@@ -1,0 +1,1 @@
+Artículo 90. Cuando el usuario utilice reproducciones de documentación textual, audiovisual, fotografías, cassettes, filmaciones, entre otros, con fines de investigación y publicación, estará obligado a dar los créditos correspondientes al Archivo Nacional.

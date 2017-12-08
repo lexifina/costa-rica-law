@@ -1,0 +1,1 @@
+Artículo 29. Los precios de las publicaciones, bienes y servicios que vende el Archivo Nacional serán fijados por la Junta y se revisarán por lo menos dos veces al año y decidirá qué porcentaje de las publicaciones serán obsequiadas o canjeadas.

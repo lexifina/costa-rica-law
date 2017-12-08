@@ -1,0 +1,1 @@
+Artículo 10. Para el nombramiento del archivista representante de los archivos de las Instituciones que conforman el Sistema, referido en el artículo 12 de la Ley No. 7202, se convocará a una Asamblea General de Archivistas en el mes de febrero, cada dos años o cuando sea necesario integrar una nueva terna. La convocatoria se hará por los medios que elija la Junta.

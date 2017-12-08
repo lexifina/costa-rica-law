@@ -1,0 +1,1 @@
+Artículo 94. La Dirección podrá prohibir la reproducción, temporal o permanentemente, de los documentos cuando el deterioro es evidente y de conformidad con el criterio técnico que emita el Departamento de Conservación.

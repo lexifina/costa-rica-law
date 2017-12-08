@@ -1,0 +1,1 @@
+Artículo 88. Si se incumplieran las normas anteriores y las establecidas en Resoluciones y Manuales Internos, el usuario podrá ser retirado de las Salas de Consulta y Despachos de Atención. En caso de destrucción, robo, hurto, pérdida o daño de un documento se procederá con los Procedimientos Administrativos y Denuncias Judiciales.

@@ -1,0 +1,1 @@
+Artículo 92. Los documentos textuales posteriores a 1821, que custodia el Archivo Nacional podrán ser reproducidos por diversos medios que ofrece la Institución, dependiendo de su estado de conservación y de las restricciones legales vigentes.

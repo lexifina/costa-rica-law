@@ -1,0 +1,1 @@
+Artículo 2. Naturaleza Jurídica. El Archivo Nacional es una entidad de servicio público que funciona como un Órgano con desconcentración en grado de mínima del Ministerio de Cultura y Juventud, tiene independencia funcional, al otorgarle la Ley No. 7202, la función técnica especial de ejecutar las políticas archivísticas a nivel nacional.
