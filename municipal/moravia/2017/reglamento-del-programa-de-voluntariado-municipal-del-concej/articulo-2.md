@@ -1,0 +1,1 @@
+Artículo 2º—Alcances y aplicación. Este reglamento brinda un marco legal que aplicará sobre las acciones de se ejecuten a través del Programa de Voluntariado Municipal impulsado por la Comisión de Asuntos Sociales del Concejo Municipal de Moravia.
