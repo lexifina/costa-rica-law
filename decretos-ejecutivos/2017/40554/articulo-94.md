@@ -1,0 +1,3 @@
+SECCIÓN IV
+FACILITACIÓN DE DOCUMENTOS
+Artículo 94. Acceso a la Información. Los archivos están en la obligación de facilitar sus documentos a las Oficinas Oroductoras, investigadores y ciudadanos en general, de acuerdo con lo que establecen los artículos 11, 24, 27 y 30 de la Constitución Política, los artículos 10, 23 inciso i) y 42 inciso c) de la Ley que se reglamenta, y legislación conexa; para lo cual establecerán en sus respectivas Instituciones los procedimientos para garantizar el acceso a la información pública, la transparencia de la administración, la rendición de cuentas de los funcionarios públicos, y la investigación de carácter científico cultural.

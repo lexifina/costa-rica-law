@@ -1,0 +1,1 @@
+Artículo 102. Salida Temporal del País de Documentos con Valor Científico Cultural. Tratándose de la salida temporal de documentos con valor científico cultural fuera del territorio nacional, sólo el Archivo Nacional podrá gestionar el Decreto regulado en el artículo 5 de la Ley que se reglamenta, previa autorización de la CNSED.

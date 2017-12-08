@@ -1,0 +1,2 @@
+Artículo 85. Digitalización. Se entiende por digitalización el proceso de convertir información analógica o en soporte físico, en información digital que contiene la imagen fiel e íntegra del documento original. El uso de la digitalización no implica de ninguna manera la eliminación del documento original sin la autorización correspondiente y emitida por la CNSED.
+Es recomendable el uso de procesos de digitalización de documentos originales en soportes físicos o analógicos como estrategia de conservación, así como para facilitar el acceso y difusión de la información.

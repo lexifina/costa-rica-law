@@ -1,0 +1,1 @@
+Artículo 121. Informes de Fiscalización. Los informes finales de las inspecciones serán remitidos por el Director General del Archivo Nacional al máximo Jerarca de la Institución inspeccionada, con copia al Archivo Central y otras Unidades Administrativas, entre ellas la Auditoría Interna.

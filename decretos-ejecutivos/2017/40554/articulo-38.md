@@ -1,0 +1,1 @@
+Artículo 38. Denuncias Administrativas. El Director General del Archivo Nacional y los Jefes o Encargados de los Archivos Públicos, deberán denunciar y dar seguimiento ante las instancias administrativas competentes, del incumplimiento de los deberes relativos a la administración de documentos.

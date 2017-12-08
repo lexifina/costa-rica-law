@@ -1,0 +1,1 @@
+Artículo 75. Expropiación. El Archivo Nacional podrá adquirir mediante expropiación documentos pertenecientes a colecciones privadas o particulares, que posean valor científico cultural, de conformidad con las regulaciones de la Ley que se reglamenta y la Ley de Expropiaciones No. 7495 y cualquier otra Ley que regule esta materia.

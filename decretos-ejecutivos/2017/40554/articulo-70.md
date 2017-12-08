@@ -1,0 +1,2 @@
+Artículo 70. Organización y Conservación de Documentos Donados. Los documentos donados al Archivo Nacional serán conservados y organizados en series, llevarán el nombre del donante o de quien él indicare, salvo su manifestación en contrario. El donante podrá establecer condiciones de restricción de acceso a los documentos donados, por un plazo máximo de 30 años contados a partir de la fecha de la donación.
+En caso de entrega de documentos públicos, en la asignación del nombre se respetará la denominación del fondo.

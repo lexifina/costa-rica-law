@@ -1,0 +1,1 @@
+Artículo 46. Cooperación Internacional. Los archivistas deberán investigar sobre las ayudas que prestan Organismos Internacionales para los archivos y elevar ante los Jerarcas de su Institución las propuestas de posibles Convenios de Cooperación Internacional.

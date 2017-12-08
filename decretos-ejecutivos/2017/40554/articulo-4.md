@@ -1,0 +1,1 @@
+Artículo 4. Naturaleza y fines. El Sistema es el conjunto integrado de los archivos públicos, así como los archivos privados y particulares que se adhieran a él, con el fin de establecer relaciones de cooperación y comunicación institucional para alcanzar objetivos comunes de desarrollo y consolidación del sector archivístico.

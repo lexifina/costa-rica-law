@@ -1,0 +1,3 @@
+Artículo 32. Archivos Centrales. Los Archivos Centrales que conforman el Sistema dependerán de la máxima autoridad administrativa de la Institución a la que pertenecen, de manera que los lineamientos y directrices que emitan en materia archivística, cuenten con el respaldo al más alto nivel político.
+Estos archivos son los responsables de reunir, conservar, clasificar, ordenar, describir, seleccionar, administrar y facilitar los documentos que custodian, en cualquier soporte, gestionados por la Institución de la cual forman parte.
+Además, agrupan documentos transferidos por los distintos archivos de gestión, una vez finalizado su trámite, y son objeto de consulta por las propias oficinas y los particulares en general.

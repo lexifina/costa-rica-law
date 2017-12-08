@@ -1,0 +1,1 @@
+Artículo 106. Costos de las Reproducciones. Cuando el usuario requiera reproducciones deberá cancelar el costo de la reproducción y el monto de las especies fiscales u otros tributos establecidos en la legislación vigente, salvo aquellos trámites e Instituciones que se encuentren exentas de estos pagos.

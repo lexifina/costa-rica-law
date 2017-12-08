@@ -1,0 +1,1 @@
+Artículo 25. Solicitudes de Valoración. Las solicitudes para valorar documentos y determinar su valor científico cultural a través de las tablas de plazos, valoraciones parciales o cualquier otro instrumento que determine la CNSED, deben cumplir los requisitos que indique la Guía de Trámites del Archivo Nacional.

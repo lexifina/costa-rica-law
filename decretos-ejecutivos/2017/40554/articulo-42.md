@@ -1,0 +1,3 @@
+Artículo 42. Obligaciones de los Funcionarios de Archivos. Los encargados de los Archivos Centrales y demás funcionarios de archivos tienen la obligación de velar por la integridad, autenticidad y fidelidad de la información contenida en los documentos de
+archivo, cualquiera que sea su soporte; son responsables de su organización y conservación, así como de la prestación de los servicios archivísticos.
+Asimismo, los encargados de los Archivos Centrales deberán comunicar las normas, directrices, acuerdos que la Junta Administrativa y la CNSED, emitan en materia de gestión y valoración documental a lo interno de sus Instituciones.

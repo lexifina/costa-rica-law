@@ -1,0 +1,1 @@
+Artículo 115. Firma y Objetivos de la Solicitud de Asesorías. Las solicitudes de asesorías para la organización de un archivo central o sistemas institucionales de archivos que se presenten al Archivo Nacional deben estar suscritas por el máximo Jerarca de la Entidad o el Superior Administrativo y debe especificar con claridad sobre cuáles aspectos se requiere.

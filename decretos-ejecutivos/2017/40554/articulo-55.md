@@ -1,0 +1,2 @@
+Artículo 55. La Función de Valorar y Seleccionar. Valorar es el proceso intelectual mediante el cual se analiza el valor administrativo, legal, científico, histórico y cultural de los documentos en las diferentes etapas de archivo, y se determina su conservación o eliminación, de acuerdo con lo establecido en el artículo 10 del presente Reglamento.
+La selección es el proceso intelectual y material de identificación y localización de las series documentales que han de ser conservadas o eliminadas según los criterios establecidos a través de la valoración.

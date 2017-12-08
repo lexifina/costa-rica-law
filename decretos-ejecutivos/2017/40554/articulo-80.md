@@ -1,0 +1,1 @@
+Artículo 80. Plan de Conservación. Los archivos del Sistema deberán diseñar e implementar un plan integrado de conservación, para asegurar el adecuado mantenimiento de los documentos, de tal forma que se garantice la integridad física, lógica, funcional, la autenticidad y confiabilidad de toda la documentación desde el momento de su gestión hasta su disposición final.

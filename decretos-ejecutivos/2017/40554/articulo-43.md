@@ -1,0 +1,2 @@
+Artículo 43. Capacitación para los Funcionarios de Archivos. Las entidades tienen la obligación de capacitar y actualizar los conocimientos de los funcionarios de archivo.
+Deberán facilitar y financiar su participación en los eventos programados por el Archivo Nacional y otras Instituciones que propicien dichas actividades, con el fin de que puedan realizar un trabajo óptimo, y apliquen los conocimientos adquiridos en estos eventos.

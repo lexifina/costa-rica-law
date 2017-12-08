@@ -1,0 +1,4 @@
+Artículo 61. Plazos de Transferencia. Para establecer los plazos de transferencia documental se tomarán en cuenta los siguientes parámetros:
+a-. Archivos de Gestión: Los documentos permanecerán en las Oficinas Administrativas Productoras, de acuerdo con lo establecido en las tablas de plazos de conservación.
+b-. Archivo Central: Una vez cumplida la etapa anterior, los documentos pasarán a los Archivos Centrales de cada entidad, en donde permanecerán de acuerdo con lo establecido en las tablas de plazos de conservación. Posteriormente serán transferidos al Archivo Nacional aquellos que tengan valor científico-cultural, previa determinación de la CNSED.
+c-. Archivo Histórico o Final: Los documentos que tengan como mínimo 20 años de antigüedad y sean de valor científico-cultural, pasarán a ser custodiados en forma permanente por el Archivo Nacional, previa autorización de la Dirección.

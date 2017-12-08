@@ -1,0 +1,1 @@
+Artículo 58. La Función de Facilitar. Facilitar es el proceso mediante el cual se pone a disposición de los usuarios la documentación de una entidad, con fines diversos, para lo cual se deben tomar en cuenta las medidas de control interno necesarias.

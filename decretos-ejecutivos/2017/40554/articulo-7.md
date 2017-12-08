@@ -1,0 +1,1 @@
+Artículo 7. Dirección Ejecutiva. Al Director General del Archivo Nacional le corresponde ejercer la función ejecutiva de la Junta, así como realizar las actividades que este Órgano le delegue como máxima autoridad del Sistema.

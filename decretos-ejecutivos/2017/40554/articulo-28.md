@@ -1,0 +1,2 @@
+Artículo 28. Medios de Eliminación. Las series y tipos documentales cuya eliminación se autoriza deben ser transformados en material no legible, utilizando las técnicas de eliminación acordes con sanas prácticas ambientales.
+Respecto de los documentos electrónicos, el acto de eliminar o borrar en cualquier sistema de almacenamiento, debe cumplir con los mismos requerimientos establecidos para los soportes tradicionales, sin dejar rastro o pistas, copias no autorizadas o metadatos improcedentes.

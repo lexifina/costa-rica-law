@@ -1,0 +1,1 @@
+Artículo 92. Normas de Conservación de otros Soportes. Los archivos del Sistema podrán consultar al Departamento de Conservación del Archivo Nacional, normas específicas para la conservación de otros soportes de información, tales como negativos fotográficos, diapositivas, daguerrotipos, fotografías en vidrio, entre otros.

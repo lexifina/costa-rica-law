@@ -1,0 +1,1 @@
+Artículo 104. Obligatoriedad de Citar la Fuente. Cuando el usuario utilice reproducciones de documentos con fines de investigación y publicación, estará obligado a dar los créditos correspondientes al archivo del cual obtuvo la reproducción.

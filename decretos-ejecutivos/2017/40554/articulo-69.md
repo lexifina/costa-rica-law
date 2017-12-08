@@ -1,0 +1,3 @@
+Artículo 69. Donación. El Archivo Nacional recibirá la donación de documentos privados y particulares para su custodia, organización y facilitación. Una vez recibida la oferta de donación y realizada una revisión preliminar de los documentos, el Jefe del Departamento Archivo Histórico presentará la solicitud de valoración ante la CNSED. Los documentos declarados con valor científico cultural por parte de esta CNSED, serán los que finalmente ingresarán al Archivo Nacional.
+Las donaciones de documentos se formalizarán mediante la emisión de un Contrato, donde se establecerán plazos de acceso y las condiciones pactadas entre las partes.
+Otros archivos del Sistema podrán recibir documentos en donación de acuerdo con el procedimiento establecido en cada Institución.

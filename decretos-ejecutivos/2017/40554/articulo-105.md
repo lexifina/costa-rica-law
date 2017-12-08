@@ -1,0 +1,1 @@
+Artículo 105. Reproducción de Documentos Deteriorados. Cuando el deterioro de los documentos sea evidente, el encargado del archivo podrá denegar la reproducción mediante fotocopia de los documentos temporal o permanentemente mediante acto debidamente justificado y deberá valorar otras alternativas de reproducción que no dañen los documentos.

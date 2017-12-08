@@ -1,0 +1,1 @@
+Artículo 108. Plazo de Entrega de las Reproducciones Legales. El plazo para la entrega de las reproducciones legales será definido por cada Institución que forma parte del Sistema, de conformidad con la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos N° 8220 y su Reglamento.

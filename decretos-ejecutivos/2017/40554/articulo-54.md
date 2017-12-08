@@ -1,0 +1,2 @@
+Artículo 54. Auxiliares de Control e Instrumentos de Descripción. En los archivos del Sistema deben existir auxiliares de control e instrumentos de descripción y consulta de documentos. Los archivos elaborarán guías, inventarios y catálogos de sus fondos documentales, de acuerdo con la naturaleza de estos y con las prioridades del servicio.
+Asimismo se llevarán los auxiliares de control, como registros de transferencias, listas de remisión, índices y aquellos documentos que apoyen el control.

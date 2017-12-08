@@ -1,0 +1,1 @@
+Artículo 110. Capacitación en Materia de Difusión. Los archivistas del Sistema se capacitarán en elementos básicos de comunicación que les permitan conocer a sus diferentes públicos y diseñar estrategias para divulgar su quehacer entre ellos. En esta tarea procurarán coordinar con las Oficinas de Comunicación, Prensa o Relaciones Públicas de sus respectivas Instituciones.

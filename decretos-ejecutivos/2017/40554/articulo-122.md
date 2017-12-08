@@ -1,0 +1,1 @@
+Artículo 122. Capacitación. El Órgano Rector organizará actividades de capacitación y actualización profesional dirigida a funcionarios que laboran en los archivos del Sistema, tales como charlas, cursos, congresos, seminarios, talleres, entre otros, reconocidos por la Dirección General del Servicio Civil cuando corresponda.

@@ -1,0 +1,1 @@
+Artículo 79. Reprografía. La reprografía es la reproducción de un documento por cualquier medio disponible, con el fin de asegurar su conservación a largo plazo, mantener respaldos de seguridad, proteger a los documentos en su soporte original y facilitar el acceso a la información.

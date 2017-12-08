@@ -1,0 +1,1 @@
+Artículo 112. Programa de Actividades. Los encargados de los archivos del Sistema procurarán contar con un programa de actividades de difusión de carácter educativo y cultural, sobre los documentos que custodian, para lo cual podrán establecer Convenios de Cooperación con archivistas de otras Instituciones, o establecer alianzas estratégicas para este fin.

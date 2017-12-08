@@ -1,0 +1,1 @@
+Artículo 48. La Función de Reunir. Reunir es la función de acumular sistemáticamente documentos producto de las funciones y actividades ejecutadas por las Unidades Administrativas e Instituciones, de acuerdo con los plazos y requisitos de transferencia que establece este Reglamento. La reunión de documentos se hará en los lugares adecuados para su conservación.

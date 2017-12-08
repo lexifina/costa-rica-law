@@ -1,0 +1,1 @@
+Artículo 83. Conservación en Archivos de Gestión. Los Archivos de Gestión deberán contar con los materiales, equipo y mobiliario que garanticen una buena conservación de los documentos en sus diferentes soportes.

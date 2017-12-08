@@ -1,0 +1,1 @@
+Artículo 64. Transferencia de Instrumentos Descriptivos. Cuando los Archivos Centrales transfieran documentos al Archivo Nacional, deberán entregar los instrumentos descriptivos que pertenecen a aquellos calificados por la CNSED, como de valor científico-cultural. La transferencia de los instrumentos y documentos se realizará en forma conjunta.

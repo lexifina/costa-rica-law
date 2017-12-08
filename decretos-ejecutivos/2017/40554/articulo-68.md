@@ -1,0 +1,1 @@
+Artículo 68. Registro General de Ingreso. Las Instituciones o Dependencias que reciban documentos de otras deberán llevar un Registro General de Ingreso de Fondos, Subfondos o Series Documentales, que corresponda a los documentos que ingresen, en virtud de las listas de remisión.

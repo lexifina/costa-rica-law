@@ -1,0 +1,1 @@
+Artículo 16. Quórum. El Quórum mínimo para todas las reuniones será de tres miembros y los Acuerdos serán tomados por la mayoría de votos de los presentes; en caso de empate decidirá quien preside, con su doble voto.

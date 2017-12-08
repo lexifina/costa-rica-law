@@ -1,0 +1,1 @@
+Artículo 53. Programa de Descripción. En todas las Instituciones se elaborará un programa de descripción de documentos, de acuerdo con la naturaleza del archivo respectivo, sus fondos documentales y el servicio que presta. La descripción se realizará de conformidad con las normas internacionales y nacionales vigentes.

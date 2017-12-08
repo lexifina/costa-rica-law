@@ -1,0 +1,1 @@
+Artículo 99. Facilitación de Documentos con Reproducción en otros Soportes. Si los documentos originales se encuentran reproducidos en otro tipo de soporte legalmente reconocido, como la microfilmación o digitalización, por razones de seguridad y conservación, se facilitarán únicamente las reproducciones.

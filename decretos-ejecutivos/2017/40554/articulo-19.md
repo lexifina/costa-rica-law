@@ -1,0 +1,2 @@
+Artículo 19. Consultas. Las consultas establecidas en el artículo 3 de la Ley de Microfilmación N°4278 del 11 de diciembre de 1968 y artículo 6 de la Ley de Certificados, Firmas Digitales y Documentos Electrónicos N° 8454 del 30 de agosto de 2005, serán atendidas por la CNSED, de conformidad con lo establecido en los artículos anteriores.
+Para la eliminación de los documentos electrónicos, microfilmados, digitalizados y otros se deberá solicitar la autorización de la CNSED. En caso de que se autorice la eliminación, la realizará el ente productor.

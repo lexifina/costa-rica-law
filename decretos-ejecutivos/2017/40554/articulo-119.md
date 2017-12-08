@@ -1,0 +1,1 @@
+Artículo 119. Fiscalización por Denuncias. La Dirección ordenará inspecciones cuando se reciban denuncias sobre el incumplimiento de la normativa archivística vigente en las Instituciones del Sistema, recibidas por cualquier medio.

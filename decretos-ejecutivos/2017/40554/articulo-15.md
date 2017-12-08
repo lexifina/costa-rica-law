@@ -1,0 +1,1 @@
+Artículo 15. Convocatoria a Sesiones. La convocatoria a las Sesiones Ordinarias se hará por escrito o por otro medio de comunicación de común acuerdo entre los miembros, con un mínimo de dos días hábiles de anticipación a la fecha señalada y las extraordinarias de conformidad con lo que establece la Ley General de la Administración Pública.

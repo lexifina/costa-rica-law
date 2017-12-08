@@ -1,0 +1,2 @@
+Artículo 65. Transferencias de Documentos en Situaciones Excepcionales. El Archivo Nacional brindará asesoría en cuanto a la transferencia y conservación del material archivístico, a las Instituciones que vayan a ser absorbidas por otra, se conviertan en una entidad de derecho privado o desaparezcan, siempre y cuando sea informado sobre esos eventos con un plazo mínimo de tres meses de antelación a la fecha en que ocurrirán.
+El Archivo Nacional solamente recibirá los documentos previamente declarados con valor científico cultural.

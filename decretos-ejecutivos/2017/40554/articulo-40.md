@@ -1,0 +1,1 @@
+Artículo 40. Respaldo Institucional. Los Jerarcas de las Instituciones que forman parte del Sistema, deberán vigilar porque el sistema institucional de archivos y su recurso humano, cuenten con las condiciones óptimas para ejercer la función archivística con excelencia y cumplir con la legislación vigente.

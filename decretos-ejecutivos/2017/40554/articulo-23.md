@@ -1,0 +1,1 @@
+Artículo 23. Competencia Los CISED de las instituciones son los responsables de fijar la vigencia administrativa y legal de cada tipo o serie documental. La CNSED únicamente determinará cuáles documentos se consideran con valor científico-cultural y autorizará la eliminación de los documentos que carezcan de ese valor una vez caducada la vigencia administrativa y legal.

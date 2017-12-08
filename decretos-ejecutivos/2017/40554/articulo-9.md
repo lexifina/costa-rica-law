@@ -1,0 +1,1 @@
+Artículo 9. Periodo de nombramiento de los cargos no sujetos a plazo. El Técnico nombrado por el Director General del Archivo Nacional, así como el Historiador que forman parte de la CNSED, permanecerán en su cargo cuatro años, pudiendo ser reelectos.

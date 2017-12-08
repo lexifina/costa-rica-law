@@ -1,0 +1,1 @@
+Artículo 100. Uso de Tecnologías en la Facilitación. Para agilizar la localización de documentos se recomienda la descripción normalizada en bases de datos relacionales y su publicidad a través de páginas web institucionales. Igualmente para facilitar el acceso a la información que contienen los documentos estratégicos se recomienda su digitalización y publicación en la red.

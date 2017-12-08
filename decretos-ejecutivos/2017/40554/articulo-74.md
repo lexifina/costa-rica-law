@@ -1,0 +1,1 @@
+Artículo 74. Compra. El Archivo Nacional y los demás archivos del sistema podrán adquirir mediante compra documentos pertenecientes a colecciones privadas o particulares, declaradas con valor científico cultural, exentas de impuestos, tasas y timbres o cualquier otro tipo de gravamen, de conformidad con las regulaciones de la Ley que se reglamenta.

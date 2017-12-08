@@ -1,0 +1,1 @@
+Artículo 30. Archivo Histórico o Final. El Archivo Histórico o Final de carácter público es el Archivo Nacional, donde se custodian los documentos con valor científico cultural y que forman parte del patrimonio documental de la Nación. Se regirá por la Ley No. 7202, el Reglamento de Organización y Servicios del Archivo Nacional, y el presente Reglamento.

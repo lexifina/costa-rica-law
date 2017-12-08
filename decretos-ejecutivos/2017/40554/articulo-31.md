@@ -1,0 +1,2 @@
+Artículo 31. Archivo Intermedio. El Archivo Intermedio es la unidad del Archivo Nacional responsable de custodiar documentos con vigencia administrativa y legal, transferidos por las Instituciones de conformidad con la Ley que se reglamenta y otras Leyes vigentes y que son objeto de consulta por las Oficinas productoras y particulares.
+Parte de estos documentos serán transferidos al Archivo Histórico o Final una vez que se les declare con valor científico cultural.
