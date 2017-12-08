@@ -1,0 +1,3 @@
+Artículo 23.—Del carácter de los acuerdos o recomendaciones del Equipo. Sus recomendaciones o acuerdos tienen el carácter de vinculantes para el Alcalde a menos que éste logre un criterio técnico de igual o superior valor al emitido por el Equipo y que de alguna manera se oponga total o parcialmente a aquel.
+En caso de que el alcalde se separe de una recomendación de inversión emanada del EII, deberá hacerlo a través de un acto administrativo motivado y adecuadamente sustentado y por medio del mismo liberará de toda responsabilidad acerca de esa inversión a los miembros del EII.
+Sus recomendaciones y acuerdos serán a título de criterio técnico calificado y vinculante para el Tesorero Municipal.

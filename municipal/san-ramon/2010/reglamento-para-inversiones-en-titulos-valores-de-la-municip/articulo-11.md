@@ -1,0 +1,1 @@
+Artículo 11.—De la no presupuestaron de las inversiones a corto plazo Las inversiones a corto plazo se consideran operaciones de caja o Tesorería y por consiguiente no estarán sujetas a los procedimientos de presupuestación.

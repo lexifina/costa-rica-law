@@ -1,0 +1,3 @@
+Artículo 6°—De la responsabilidad de la gestión de inversión en títulos valores. La responsabilidad de llevar a cabo el proceso de gestión de las inversiones en títulos valores corresponde a la Oficina Administrativa denominada Tesorería Municipal, implementando las políticas y las acciones estratégicas dispuestas en esta materia por el Equipo Institucional de Inversiones.
+La Tesorería deberá llevar un adecuado y actualizado flujo de efectivo con el fin de garantizar el carácter de excedente de los recursos que se invertirán.
+Con el fin de lograr este flujo de efectivo por parte de la Tesorería el resto de los órganos municipales que compartan información relevante a este cometido estarán en obligación de brindar colaboración efectiva y oportuna a la Tesorería.
