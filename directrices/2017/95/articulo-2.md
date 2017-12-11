@@ -1,0 +1,3 @@
+Artículo 2°.-Definiciones. Para efectos de claridad e interpretación de la presente Directriz se definen los siguientes conceptos:
+a) Institución Pública: Institución del sector público que facilita la reubicación transitoria, en calidad de préstamo, de funcionarios para que colaboren con la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias (CNE), en la atención del estado de emergencia nacional provocado por la Tormenta Tropical Nate.
+b) Funcionario: persona física que presta sus servicios en forma material, intelectual o ambos a la Institución Pública por los cuales recibe una remuneración o salario, en virtud de un acto válido y eficaz de investidura.
