@@ -10,4 +10,6 @@ iv. Tipo de retención efectuada según los códigos que se detallan a continuac
 TC: por transportes, comunicaciones, reaseguros, etc. (3%).
 EN: por licitaciones, contratos, negocios, etc., con el Estado (2%).
 PT: por los servicios profesionales prestados en los procesos de formalización de cualquier producto financiero (2%).
+AS: por servicios técnicos o profesionales prestados a las aseguradoras por contratación directa de la aseguradora o por los asegurados (2%).
+(Así adicionado el párrafo anterior por el artículo 8° de la resolución N° DGT-R-55-2017 del 11 de diciembre de 2017, “Retención del dos por ciento a personas físicas o jurídicas que vendan sus servicios a las aseguradoras sea por contratación directa de la aseguradora o a través de asegurados que requieran los servicios técnicos o profesionales”)
 Para todos los efectos, con relación a la información de los montos a reportar, prevalecerá el criterio del devengado, salvo que el informante cuente con autorización de la Dirección General de Tributación para la utilización de otro sistema de registro contable.

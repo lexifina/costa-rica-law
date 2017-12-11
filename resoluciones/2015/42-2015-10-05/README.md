@@ -15,3 +15,4 @@ Suministro general de la información previsiblemente pertinente, derivada de la
 | --- | --- | --- |
 | 1 | 2015-10-14 | la propia norma |
 | 2 | 2016-05-18 | Resolución 29 (2016-05-18) |
+| 3 | 2017-12-11 | Resolución 55 (2017-12-11) |
