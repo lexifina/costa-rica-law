@@ -14,3 +14,4 @@ Reglamento para la administración, uso y control de las armas de fuego en el Mi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-30 | la propia norma |
+| 2 | 2017-12-12 | Decreto Ejecutivo 40799 (2017-12-12) |
