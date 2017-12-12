@@ -1,0 +1,1 @@
+Artículo 2º—Nombrar a Anallancy Morera Gutiérrez, cédula Nº 1-0636-0608, en sustitución de Ana Luisa Calvo Monney ante la Junta Interventora del Instituto Nacional de Fomento Cooperativo, a partir del día 16 de diciembre de 2017.
