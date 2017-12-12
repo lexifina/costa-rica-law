@@ -1,1 +1,0 @@
-Artículo 2º—Las funciones atribuidas a las Direcciones de la División Marítimo Portuaria del Ministerio de Obras Públicas y Transportes, se establecen sin detrimento de las facultades y prerrogativas que por Ley Especial corresponden, en razón de autonomía, a instituciones autónomas, tales como ICT, JAPDEVA, INCOP, INCOPESCA, ARESEP u otras.

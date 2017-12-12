@@ -1,1 +1,0 @@
-Artículo 3º—Sometimiento al ordenamiento jurídico. En su actividad, la División Marítimo Portuaria y sus Direcciones deberán someterse a las normas constitucionales, internacionales, legales y reglamentarias vigentes, que le resulten aplicables, para el óptimo y debido ejercicio de sus funciones.
