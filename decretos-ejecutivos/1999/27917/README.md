@@ -22,3 +22,4 @@ Reforma Organizativa y Funcional del Ministerio de Obras Públicas y Transportes
 | 7 | 2015-07-09 | Decreto Ejecutivo 39173 (2015-07-09) |
 | 8 | 2016-04-27 | Decreto Ejecutivo 39702 (2016-04-27) |
 | 9 | 2017-09-14 | Decreto Ejecutivo 40687 (2017-09-14) |
+| 10 | 2017-12-12 | Decreto Ejecutivo 40803 (2017-12-12) |
