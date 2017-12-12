@@ -15,3 +15,4 @@ Reglamento sobre Características del Servicio Público Modalidad Taxi
 | --- | --- | --- |
 | 1 | 2007-01-19 | la propia norma |
 | 2 | 2007-11-08 | Decreto Ejecutivo 34095 (2007-11-08) |
+| 3 | 2017-12-12 | Decreto Ejecutivo 40806 (2017-12-12) |
