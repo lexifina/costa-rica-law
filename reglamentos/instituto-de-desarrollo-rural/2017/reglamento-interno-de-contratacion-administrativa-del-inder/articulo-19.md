@@ -1,0 +1,1 @@
+Artículo 19°.- De la verificación de los requisitos previos de la contratación. La Proveeduría Institucional deberá recibir, revisar, registrar y consolidar las Decisiones Iniciales. de conforn1idad con la normativa vigente y las directrices establecidas. Aquellas que presenten inconsistencias serán devueltas a la unidad solicitante con un plazo máximo para su corrección.

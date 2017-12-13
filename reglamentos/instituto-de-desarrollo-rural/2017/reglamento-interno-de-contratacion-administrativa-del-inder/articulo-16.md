@@ -1,0 +1,1 @@
+Artículo 16º.- Calendarización Anual de Compras. La Proveeduría Institucional dará a conocer mediante Circular Interna los plazos para que los responsables de las unidades solicitantes, presenten las necesidades de compra de bienes. obras y servicios que requerirán para el periodo presupuestario respectivo .

@@ -1,0 +1,1 @@
+Artículo 33 º.- Vigencia. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta. Los procesos anteriores a la creación de este reglamento se regirán para efectos de adjudicación por lo indicado en este reglamento. Este reglamento deroga cualquier otra norma interna o manual de procedimientos emitido con anterioridad.

@@ -1,0 +1,1 @@
+Artículo 4°.- Régimen jurídico. La adquisición de bienes, obras y servicios que realice el Inder, se regularán por la Constitución Política, la LCA y su Reglamento, leyes conexas por razón de la materia, normas contenidas en este Reglamento Interno y por las disposiciones contenidas en los respectivos carteles o pliegos de condicione .

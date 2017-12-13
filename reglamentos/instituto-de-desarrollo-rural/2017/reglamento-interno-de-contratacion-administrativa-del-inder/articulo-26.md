@@ -1,0 +1,1 @@
+Artículo 26º.- Ejecución Contractual: La responsabilidad de fiscalizar y asegurar la correcta ejecución del objeto contractual recae en la figura del Encargado General del Contrato; para lo cual contará con el apoyo de la Proveeduría Institucional

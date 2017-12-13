@@ -1,0 +1,1 @@
+Articulo 25 °.- Formalización contractual. Salvo en los casos que la ley lo contemple, queda a criterio de la Proveeduría, si formaliza la contratación por medio de un contrato o una Orden de Compra, para lo cual deberá tomar en cuenta las respectivas resoluciones d la adjudicación y lo establecido en el pliego de condiciones .

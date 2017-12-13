@@ -1,0 +1,1 @@
+Artículo 22°.- Recepción y apertura de aferras. Con excepción de los cartel que se lleven a cabo a través de la plataforma informática, el lugar de recepción de las ofertas será determinado por la Proveeduría Institucional en conjunto con la unidad solicitante .
