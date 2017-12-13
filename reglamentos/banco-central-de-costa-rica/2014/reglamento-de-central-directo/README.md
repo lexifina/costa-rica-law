@@ -15,3 +15,4 @@ Reglamento de Central Directo
 | --- | --- | --- |
 | 1 | 2017-07-19 | la propia norma |
 | 2 | 2017-07-19 | Reglamento 5778 (2017-07-11) |
+| 3 | 2017-12-13 | Reglamento 5804 (2017-12-13) |
