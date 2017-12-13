@@ -14,3 +14,4 @@ Reglamento de Cobro y Arreglos de Pago de Cuotas Obrero Patronales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-09-20 | la propia norma |
+| 2 | 2017-12-13 | Reglamento 5520 (2017-12-13) |
