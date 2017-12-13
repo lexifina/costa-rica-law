@@ -1,1 +1,2 @@
-Artículo 10º.- Para la aprobación de las Estaciones de Bombeos de Aguas Residuales se dará en apego a lo dispuesto en la Normativa Técnica del AyA que se encuentre vigente.
+ARTÍCULO 10º.- Para la aprobación de las Estaciones de Bombeos de Aguas Residuales se dará en apego a lo dispuesto en el Acuerdo Junta Directiva AyA No 2017-281 "Aprobación de la norma técnica para diseño y construcción de sistemas de abastecimiento de agua potable, de saneamiento y pluvial", publicado en la Gaceta del viernes 22 de setiembre del 2017, Alcance N° 227 y el Reglamento de Aprobación de Sistemas de Tratamiento de Aguas Residuales Decreto N° 39887-S-MINAE publicado en La Gaceta N° 179 – 19 de setiembre del 2016 .
+(Así reformado en sesión N° 82-2017 del 13 de diciembre de 2017)

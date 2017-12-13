@@ -14,3 +14,4 @@ Reglamento de aprobación y recepción de sistemas de saneamiento por parte del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-03-08 | la propia norma |
+| 2 | 2017-12-13 | Reglamento 82 (2017-12-13) |
