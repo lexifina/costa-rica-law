@@ -1,1 +1,2 @@
-Artículo 18.—Calificaciones. Los resultados de los exámenes escritos deberán estar disponibles en un plazo no mayor de treinta días naturales contados a partir de su realización y se harán del conocimiento de los concursantes mediante una comunicación que realizará la Secretaría de la Comisión Ad Hoc a la dirección de correo electrónico señalado para recibir notificaciones por el concursante.
+Artículo 18.- Aprobación de la primera fase. Solamente los concursantes que aprueben todos los exámenes escritos con una nota no inferior a 70% podrán pasar a la segunda fase del concurso.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40823 del 13 de diciembre del 2017)

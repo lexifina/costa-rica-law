@@ -14,5 +14,6 @@ Reglamento del Concurso de Oposición
 y el Ingreso a la Carrera del Servicio Exterior
 CAPÍTULO I
 Disposiciones generales
-Artículo 1º—Objeto. El presente reglamento tiene por objeto regular los concursos de oposición que debe realizar el Ministerio para la selección de los candidatos a ingresar a la Carrera del Servicio Exterior, según lo establecen los artículos 13 y 16 del Estatuto.
-Es un concurso abierto para todos los ciudadanos costarricenses, que se encuentren dentro o fuera del país, por nacimiento o naturalización, con más de cuatro años de naturalizados, que reúnan los requisitos del artículo 14 del Estatuto, cuyo fin es comprobar la idoneidad de los aspirantes.
+Artículo 1º- Objeto. El presente reglamento tiene por objeto regular los concursos de oposición que realice el Ministerio de Relaciones Exteriores y Culto para la selección de candidatos a ingresar a la Carrera Diplomática, según lo establecen los artículos 13 y 16 del Estatuto.
+Es un concurso abierto para todos los ciudadanos costarricenses que se encuentren dentro o fuera del país, que reúnan los requisitos del artículo 14 del Estatuto, cuyo fin es comprobar la idoneidad de los aspirantes.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40823 del 13 de diciembre del 2017)
