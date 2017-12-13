@@ -13,3 +13,4 @@ Sobre la responsabilidad que tienen las diferentes jefaturas del Poder Judicial 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-09-05 | la propia norma |
+| 2 | 2017-12-13 | Circular 195 (2017-12-13) |
