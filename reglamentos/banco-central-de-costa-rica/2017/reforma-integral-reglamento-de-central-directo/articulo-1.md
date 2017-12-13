@@ -247,9 +247,10 @@ Artículo 76. Criterio de tasa de interés. La tasa de interés aplicable a una 
 CAPÍTULO VI
 DE LA CONSTITUCIÓN DE INVERSIONES
 Artículo 77. Horario para la constitución de inversiones. La constitución de una inversión siempre debe ocurrir en un día hábil de operaciones, dentro de los siguientes horarios:
-a) Órdenes de inversión calendarizadas e inversiones renovables: a las 12:00 a.m. del día hábil que corresponda para la fecha valor.
+a) Órdenes de inversión calendarizadas e inversiones renovables el día hábil que corresponda para la fecha valor a la hora publicada en el portal de Central Directo.
 b) Órdenes de inversión no calendarizadas: en tiempo real, dentro del horario bancario de los días hábiles en que opera Central Directo.
 Toda orden de inversión es liquidada por Central Directo bajo el mecanismo de entrega contra pago del SINPE.
+(Así reformado en sesión N° 5804 del 13 de diciembre de 2017)
 Artículo 78. Prioridad de constitución. La constitución de una inversión renovada, tiene prioridad por sobre la constitución de las demás órdenes de inversión calendarizadas que se liquiden en un mismo día de operaciones.
 Artículo 79. Tasa de interés de las inversiones. Las inversiones en Central Directo se constituyen con la tasa de interés que, para el plazo de constitución, se encuentre vigente en su fecha valor.
 Artículo 80. Cambios de tasa por plazo efectivo. En el momento del registro de la orden de inversión, si el plazo originalmente dado por el participante es aplazado uno o más días para hacer coincidir la fecha de vencimiento con un día hábil, el plazo efectivo de la inversión computará los días aplazados y la inversión deberá constituirse con la tasa de interés vigente para ese plazo efectivo.
@@ -265,9 +266,10 @@ Artículo 85. Restricciones de la renovación automática. Cualquier cambio en e
 Artículo 86. Edición de la renovación automática. El participante puede activar o desactivar la condición de renovación automática de una inversión mientras la misma se encuentre vigente.
 CAPÍTULO VIII
 DE LA LIQUIDACIÓN DE VENCIMIENTOS
-Artículo 87. Acreditación de vencimientos. En la fecha que corresponda pagar un vencimiento, Central Directo acreditará en forma automática el capital de la inversión, y los rendimientos generados, directamente en la CCD del participante, efectuándose dicha acreditación en la misma moneda del instrumento financiero utilizado para constituir la inversión.
+Artículo 87. Acreditación de vencimientos. En la fecha que corresponda pagar un vencimiento, Central Directo acreditará en forma automática el capital de la inversión y los rendimientos generados, directamente en la CCD del participante, efectuándose dicha acreditación en la misma moneda del instrumento financiero utilizado para constituir la inversión.
 De igual forma la liquidación se estaría realizando en las cuentas de Caja Única, cuando así corresponda.
-La liquidación efectiva de los vencimientos se hará a las 12:00 a.m.
+La liquidación efectiva de los vencimientos se hará el día hábil que corresponda para la fecha de vencimiento, a la hora publicada en el portal de Central Directo.
+(Así reformado en sesión N° 5804 del 13 de diciembre de 2017)
 CAPÍTULO IX
 DE LA REDENCIÓN ANTICIPADA
 Artículo 88. Redención anticipada de una inversión. Las inversiones podrán ser redimidas anticipadamente siempre que el instrumento financiero al cual pertenece la inversión tenga activada la cláusula de redención. La condición de redención en los instrumentos de inversión podrá activarse y desactivarse cuando el Emisor así lo considere; y las condiciones de plazo aplicable, plazo mínimo de tenencia y comisión para aplicar la redención, podrán ser cambiadas.

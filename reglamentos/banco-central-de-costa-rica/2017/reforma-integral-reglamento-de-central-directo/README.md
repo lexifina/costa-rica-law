@@ -14,3 +14,4 @@ Reforma integral Reglamento de Central Directo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-19 | la propia norma |
+| 2 | 2017-12-13 | Reglamento 5804 (2017-12-13) |
