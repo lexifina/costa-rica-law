@@ -1,0 +1,1 @@
+Artículo 2º—Las dependencias del Sector Público y del Sector Privado dentro del marco legal respectivo, podrán contribuir con logística y con recursos económicos, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, para la exitosa realización de este proyecto y sus actividades indicadas.
