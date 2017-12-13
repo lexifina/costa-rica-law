@@ -1,0 +1,3 @@
+Artículo 4° -Trámite para la asignación del servicio telefónico celular:
+La persona que funja como Director Ejecutivo del CONAPDIS, al amparo del presente Reglamento, por medio de oficio, asignará a cada una de las personas mencionadas en el artículo 3°, el servicio telefónico celular y junto con dicho oficio adjuntará una copia del presente Reglamento.
+Dicho oficio de asignación lo deberá consignar la Dirección Ejecutiva con copia a la Unidad de Recursos Humanos, Unidad Financiero Contable, Dirección Administrativa y a la Unidad de Proveeduría Institucional, ya que todas estas instancias tienen obligaciones para con el servicio telefónico celular, en los términos establecidos por el Reglamento.

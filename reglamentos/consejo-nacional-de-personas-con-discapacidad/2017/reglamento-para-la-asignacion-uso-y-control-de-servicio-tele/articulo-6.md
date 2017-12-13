@@ -1,0 +1,3 @@
+Artículo 6° - Condiciones mínimas para el uso del servicio telefónico celular:
+Las personas funcionarias a la que se le asigna el servicio telefónico celular, deberán observar rigurosamente medidas preventivas para propiciar la seguridad y protección de dicho servicio.
+No obstante lo anterior, las personas funcionarias a la que se le asigna el servicio, no serán responsables por el deterioro normal del servicio ni los que se deban a fuerza mayor o caso fortuito, mala calidad o defectuosa confección, lo cual deberá ser comunicado, a la brevedad y por medio de oficio, a la Dirección Ejecutiva.

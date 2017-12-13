@@ -1,0 +1,3 @@
+Artículo 5°-Naturaleza jurídica del uso y asignación del servicio telefónico celular:
+El uso del servicio telefónico celular es exclusivo de la persona funcionaria a la que se le asignó, para la atención de las funciones propias del CONAPDIS.
+La asignación del servicio telefónico celular corresponde al otorgamiento de un instrumento de trabajo más, para contribuir en el mejoramiento del desempeño de las labores propias del CONAPDIS, por lo que su asignación no implica un beneficio personal, no es parte del salario ni confiere estatus.

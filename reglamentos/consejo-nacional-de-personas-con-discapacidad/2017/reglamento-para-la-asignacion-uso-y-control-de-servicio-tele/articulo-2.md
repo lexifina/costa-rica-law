@@ -1,0 +1,12 @@
+Artículo 2º -Definiciones: Para efectos de este Reglamento se entiende por:
+a) CONAPDIS: Consejo Nacional de Personas con Discapacidad.
+b) Junta Directiva: Máximo Jerarca colegiado deliberante y superior jerárquico en materia de gobierno del CONAPDIS.
+c) Director Ejecutivo o Directora Ejecutiva: Es el órgano unipersonal, encargado de la operación y funcionamiento cotidiano de la Administración del CONAPDIS.
+d) Funciones propias del CONAPDIS: Todas las acciones que las personas funcionarias del CONAPDIS y las personas delegadas de la Junta Directiva, de acuerdo a las funciones propias de su cargo, llevan a cabo en nombre de la Institución, para el cumplimiento de sus fines y competencias legalmente establecidas, así como para la satisfacción del interés público.
+e) Fuerza mayor o caso fortuito: Es la fuerza o hecho que acontece inesperadamente, produciendo un resultado dañoso y que debido a su naturaleza, para el funcionario o funcionaria era imposible haber tomado las precauciones y medidas razonables que evitaran el surgimiento del resultado dañoso.
+f) Persona funcionaria a la que se les asigna el servicio telefónico celular:
+Persona física que presta sus servicios al CONAPDIS a su nombre y por cuenta de éste, como parte de su organización, en virtud de acto válido y eficaz de investidura, nombrado en propiedad o interinamente, a la que se le asigna el servicio telefónico celular propiedad del CONAPDIS.
+g) Reglamento: Se refiere al Reglamento para la Asignación, Uso y Control del Servicio Telefónico Celular Propiedad del CONAPDIS.
+h) Servicio telefónico celular: Se compone del aparato telefónico el cual será reemplazado cada dos años por un dispositivo de última tecnología de tal manera se dispongan de las herramientas y avances tecnológicos que propicien eficacia y eficiencia en las labores encomendadas, accesorios, la línea activa, paquete de voz y datos, provista por el proveedor del servicio al CONAPDIS, para ser usada en llamadas telefónicas a lo interno del país, salvo disposición expresa que autorice llamadas internacionales.
+i) Servicio celular postpago: Sistema de consumo por planes de acuerdo al uso del servicio telefónico celular que ofrezca el operador.
+j) Tarifa telefónica básica: Monto mínimo mensual establecida por el proveedor del servicio por el uso del servicio telefónico celular, más los cargos fijos mensuales.
