@@ -1,0 +1,1 @@
+2°—Que los beneficiarios que se acojan a este procedimiento, al finalizar el plazo indicado en el inciso anterior, podrán gestionar una nueva resolución, en caso de requerir el beneficio fiscal en forma sucesiva, con al menos un mes de anticipación al vencimiento del plazo.

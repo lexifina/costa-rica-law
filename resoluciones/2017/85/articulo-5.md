@@ -1,0 +1,4 @@
+5°—Que durante el período de vigencia de la autorización genérica, sobre el mismo tipo de bien no podrán gestionarse nuevas solicitudes para este beneficio fiscal.
+La vigencia de la presente Resolución queda sujeta a que mediante leyes aprobadas con posterioridad, se deje sin efecto o se disminuya la exención reconocida o bien por criterios de oportunidad y conveniencia que el Ministerio de Hacienda, previa publicación en el Diario Oficial La Gaceta, determine dejarla sin efecto. La Subdirección de Supervisión Operativa deberá realizar revisiones trimestrales de las autorizaciones de exención genéricas para verificar los lineamientos indicados en la presente resolución e informará por correo electrónico los resultados.
+Esta resolución deja sin efecto la RES-DGH-056-2017 de 3 de julio de 2017.
+Publíquese.
