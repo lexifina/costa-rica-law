@@ -1,0 +1,1 @@
+Artículo 19.-Jornada. La modalidad de teletrabajo se podrá realizar uno, dos o tres días por semana, mismos que se definirán mediante acuerdo mutuo entre la persona teletrabajadora y la Jefatura. En los demás días, la persona funcionaria deberá desempeñar sus labores presenciales en las instalaciones del INAMU.

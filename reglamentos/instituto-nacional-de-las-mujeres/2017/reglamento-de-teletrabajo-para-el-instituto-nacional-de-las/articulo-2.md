@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de Aplicación. Este reglamento es aplicable a las personas trabajadoras del Instituto Nacional de las Mujeres que realizan labores que la institución determine como teletrabajables en el lugar donde existan las condiciones tecnológicas requeridas.

@@ -1,0 +1,1 @@
+Artículo 12.-Domicilio de la persona teletrabajadora. El domicilio o lugar establecido previamente para teletrabajar, debe reunir un espacio acondicionado con las condiciones mínimas para realizar la labor de teletrabajo. En caso de modificar el lugar indicado en el contrato o acuerdo inicial, la persona teletrabajadora deberá comunicarlo a la Jefatura con un mes de anticipación.

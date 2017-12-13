@@ -1,0 +1,2 @@
+Artículo 24.-Responsabilidad en caso de daño o pérdida de los recursos informáticos institucionales.
+Las personas teletrabajadoras incurrirán en responsabilidad civil en caso de deterioro o pérdida de los equipos de trabajo institucionales, siempre y cuando lo anterior haya sido causado por dolo o culpa grave debidamente comprobada. Conforme lo dicta el Reglamento de Administración de Activos del INAMU.

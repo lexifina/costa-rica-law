@@ -1,0 +1,1 @@
+Artículo 8º-Medición de la eficiencia y cumplimiento de la persona teletrabajadora. La eficiencia y cumplimiento en las labores encomendadas a las personas teletrabajadoras se medirá de acuerdo con los resultados según la meta u objetivo a cumplir, y según los informes que al efecto se presentarán y aprobarán oportunamente por la Jefatura.

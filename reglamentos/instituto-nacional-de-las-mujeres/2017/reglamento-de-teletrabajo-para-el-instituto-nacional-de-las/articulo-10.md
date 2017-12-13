@@ -1,0 +1,1 @@
+Artículo 10.-De la Rescisión del Contrato de Teletrabajo. La Jefatura debe comunicar a la Comisión (CIT) cuando deba de excluirse alguna persona teletrabajadora; sea por mutuo acuerdo, por conveniencia institucional, por decisión de la persona teletrabajadora o cuando la persona funcionaria incumpla con las disposiciones establecidas en este Reglamento.
