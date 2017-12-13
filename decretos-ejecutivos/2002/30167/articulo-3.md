@@ -1,1 +1,0 @@
-Artículo 3º—Nombramiento. El Traductor o Intérprete Oficial una vez que ha cumplido con los requisitos establecidos mediante la ley y el presente Reglamento, deberá solicitar en forma escrita a la Asesoría Jurídica del Ministerio de Relaciones Exteriores y Culto el Acuerdo Ejecutivo de nombramiento.

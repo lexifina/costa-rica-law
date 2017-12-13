@@ -1,1 +1,0 @@
-Artículo 27.—Evacuación de prueba. Contestada la queja por el traductor o intérprete oficial, o transcurrido el término conferido para ello, la Asesoría Jurídica del Ministerio de Relaciones Exteriores y Culto procederá a evacuar la prueba ofrecida, dentro del término de diez días hábiles.

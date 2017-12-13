@@ -1,1 +1,0 @@
-Artículo 18.—Del sello. El sello del Traductor Oficial deberá llevar una leyenda con la siguiente información: Nombre Completo, número de cédula, número de acuerdo, idioma (s) y el establecimiento del nombre del país (Costa Rica).

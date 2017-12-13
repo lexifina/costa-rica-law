@@ -1,2 +1,0 @@
-Artículo 5º—Credencial. Una vez realizada la publicación del Acuerdo de nombramiento, el interesado deberá presentarla a la Asesoría Jurídica del Ministerio de Relaciones Exteriores y Culto junto con una solicitud por escrito para que dicha Asesoría proceda a la elaboración de la credencial que autoriza al interesado para realizar traducciones y/o interpretaciones oficiales.
-La Asesoría Jurídica contará con un plazo de 5 días naturales contados a partir de la presentación de la solicitud del interesado para entregar la credencial.

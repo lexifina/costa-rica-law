@@ -1,1 +1,0 @@
-Artículo 9º—Cumplimiento de Directrices. El traductor y/o intérprete oficial debe cumplir con las directrices dictadas por el Ministerio de Relaciones Exteriores y Culto, por medio de la Asesoría Jurídica. El incumplimiento de las directrices será motivo para que se impongan las respectivas sanciones disciplinarias de conformidad con el presente Reglamento.

@@ -1,4 +1,0 @@
-Artículo 17.—Conclusión del texto. Al final del texto debe escribirse:
-"En fe de lo cual se expide la presenta Traducción Oficial del ____________al español (o viceversa), comprensiva de _____ folios. Firmo y sello en la ciudad de _____ a los ____ días del mes de _____del año dos mil ________. Se agregan y cancelan los timbres de ley".
-En las traducciones oficiales a un idioma extranjero, la misma leyenda debe ir en el idioma en que se traduce el documento.
-El Traductor Oficial debe firmar la traducción oficial en la línea inmediata al cierre, al lado derecho junto con un juego completo de timbres para certificación colocado al lado izquierdo, que deberán quedar cancelados con el sello del Traductor Oficial. Además, cada folio deberá llevar el timbre correspondiente en la parte superior de la hoja, y debe quedar también claramente cancelado.

@@ -1,1 +1,0 @@
-Artículo 4º—Publicación. El interesado deberá publicar por una sola vez el Acuerdo Ejecutivo de nombramiento en el Diario Oficial La Gaceta en un plazo de 30 días naturales contados a partir de que se le ha notificado el acuerdo de nombramiento.
