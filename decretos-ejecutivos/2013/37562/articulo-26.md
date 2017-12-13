@@ -1,5 +1,5 @@
-Artículo 26.—Gastroenterología. Se reconoce como sinónimo de la Especialidad en Gastroenterología el siguiente término: Aparato Digestivo.
+Artículo 26.—Gastroenterología. Se reconocen como sinónimos de esta especialidad, los siguientes términos: Aparato Digestivo; Gastroenterología y Endoscopía Digestiva.
 Requisitos específicos:
-a. Aprobación de dos (2) años en un programa de estudios de posgrado (residencia médica) en la Especialidad de Medicina Interna, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad de reconocido prestigio.
-b. Aprobación de dos (2) años en un programa de estudios posgrado (residencia médica) en la Especialidad de Gastroenterología, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad de reconocido prestigio.
-(Así reformado mediante sesión ordinaria N° 2016-03-30 del 30 de marzo del 2016)
+a. Aprobación de dos (2) años en un programa de estudios de posgrado (residencia médica) en la Especialidad de Medicina Interna, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
+b. Aprobación de dos (2) años en un programa de estudios de posgrado (residencia médica) en la Especialidad de Gastroenterología, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad.
+(Así reformado mediante publicación en La Gaceta N° 236 del 13 de diciembre del 2017)
