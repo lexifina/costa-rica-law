@@ -1,0 +1,1 @@
+Artículo 25. Colaboración del Tribunal Supremo de Elecciones.. Para el debido cumplimiento del proceso de votación, la Inspección de Trabajo podrá solicitar la asesoría y colaboración del personal del Tribunal Supremo de Elecciones.

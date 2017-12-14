@@ -1,0 +1,6 @@
+Artículo 10. Comunicación de la persona empleadora. Cumpliendo el escrito de solicitud los requisitos indicados en el artículo 9, el personal de la Inspección de Trabajo a cargo del proceso y dentro del día siguiente hábil la pondrá en conocimiento de la persona empleadora.
+En la misma comunicación dirigida a la persona empleadora se le otorgará un plazo de dos días hábiles para que entregue al personal de la Inspección de Trabajo a cargo del proceso, la siguiente información respecto de las personas votantes descritas en el artículo 6 supra:
+a) Nombre completo y número del documento de identidad.
+b) Correo electrónico y en subsidio, el teléfono donde puedan ser localizados por la persona inspectora.
+Adicionalmente, la persona empleadora deberá indicar: Nombre completo, número del documento de identidad y medios para localizar a un representante suyo con el cual el personal de la Inspección de Trabajo a cargo del proceso, podrá coordinar.
+En casos debidamente justificados, el empleador podrá solicitar la ampliación del plazo por otro igual. La no presentación de la información sin causa justificada podrá ser considerada una práctica laboral desleal de acuerdo al artículo 4 de este decreto.

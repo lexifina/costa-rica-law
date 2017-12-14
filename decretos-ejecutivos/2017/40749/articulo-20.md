@@ -1,0 +1,1 @@
+Artículo 20. Prohibición de agruparse alrededor del lugar de votación. Es prohibido a cualquier persona agruparse en un radio de 20 metros alrededor de los lugares donde se encuentren las Juntas receptoras de votos. Podrán hacerlo, sin perjuicio de lo anterior, en fila y por orden de su llegada, solamente quienes esperen turno para emitir su voto en las Juntas.

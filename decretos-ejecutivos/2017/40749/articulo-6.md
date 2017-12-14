@@ -1,0 +1,3 @@
+Artículo 6. Votante. Tiene la condición de votante toda persona trabajadora mayor de 15 años que preste su servicio por cuenta ajena y subordinada en el ámbito descrito en el artículo 2, con las siguientes excepciones que señala el artículo 382 del Código de Trabajo:
+a) La que ingresó a laborar luego del inicio del proceso de conciliación, la que se encuentre en período de prueba, la que ocupe puesto de confianza y aquella cuyo contrato se encuentre suspendido por motivos distintos a los previstos en el artículo 74 del Código de Trabajo, la que tiene contrato a plazo fijo o por obra determinada, siempre y cuando no realice trabajo permanente de contratación discontinua.
+b) La que figure como representante patronal.
