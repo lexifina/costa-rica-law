@@ -1,0 +1,3 @@
+SECCIÓN III
+Del Personal de Auditoría Interna
+Artículo 28.—Subordinación del Personal de Auditoría. El personal de la Auditoría depende directamente del Auditor General y es responsable ante él por el desempeño de sus funciones, las cuales serán ejercidas de conformidad con lo dispuesto en este Reglamento, las Normas Generales de Auditoría para el sector Público (R-DC-064-2014) Publicadas en La Gaceta No. 184 del 25 de setiembre de 2014 y las instrucciones recibidas de sus superiores. El (la) Auditor (a) General actuará como Jefe (a) de personal de la Auditoría Interna, sujeto al ordenamiento que regula la relación de servicio de la Institución.

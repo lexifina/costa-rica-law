@@ -1,0 +1,1 @@
+Artículo 19.—Del Auditor (a) General. La Auditoría Interna estará bajo la responsabilidad de un (a) Auditor (a) General, quién deberá cumplir con todos los requisitos que exige la Ley General de Control Interno. Además deberá conocer las disposiciones legales que rige la Administración Pública.

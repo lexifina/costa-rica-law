@@ -1,0 +1,2 @@
+Artículo 63.—Presentación, Admisibilidad o Rechazo de las denuncias. Para la admisibilidad o rechazo de denuncias, la Auditoría Interna contará con un procedimiento que regulará los aspectos más relevantes de este tipo de actividad, tales como, formas de presentación, contenido, valoración de evidencia, confidencialidad, oportunidad, comunicaciones con el denunciante.
+Sin perjuicio de lo antes dispuesto, la admisibilidad y trámite de las denuncias por parte de la Auditoría Interna se resolverá conforme a los criterios y parámetros que dispone el Reglamento a la Ley Nº 8422.

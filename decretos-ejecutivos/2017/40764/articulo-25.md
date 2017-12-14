@@ -1,0 +1,5 @@
+Artículo 25.—Requisitos para ocupar los puestos de Auditor y Subauditor. El (la) Auditor (a) General y Subauditor (a), deberán cumplir en todo momento con los siguientes requisitos:
+a) Ser contador (a) público autorizado.
+b) Cumplir con los requisitos establecidos en los Lineamientos sobre los requisitos de los cargos de auditor y subauditor internos, las condiciones para las gestiones de nombramiento, suspensión y destitución de dichos cargos, y la aprobación del reglamento de organización y funcionamiento de las auditorías internas del Sector Público, emitido por la Contraloría General de la República.
+c) Deberá caracterizarse por su idoneidad para el puesto correspondiente. Serán profesionales que reúnan los conocimientos, actitudes, aptitudes, habilidades para administrar la unidad de Auditoría Interna y cumplir con los demás requisitos establecidos en los perfiles de la institución.
+d) Será un (a) profesional altamente capacitado (a) en materia de auditoría que cuenten con cinco años de experiencia en la materia atinente al cargo, y al menos dos de ellos en cargos de jefatura.

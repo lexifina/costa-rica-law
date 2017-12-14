@@ -1,0 +1,1 @@
+Artículo 70.-Potestad para modificaciones. El Reglamento, así como sus modificaciones, debe ser elaboradas por el (la) Auditor (a) General y aprobadas por el jerarca y la Contraloría General de la República, cada cual según sus competencias.

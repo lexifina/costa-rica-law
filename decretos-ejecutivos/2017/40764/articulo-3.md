@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación. El presente Reglamento es de acatamiento obligatorio para todos los (las) funcionarios (as) de la Auditoría Interna y para el resto de los (las) funcionarios (as) de la Administración Activa en la materia que les resulte aplicable.

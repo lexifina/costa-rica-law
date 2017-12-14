@@ -1,0 +1,4 @@
+SECCIÓN V
+De la asignación y administración de recursos
+Artículo 39.—El control y administración. El control y administración del presupuesto de la Auditoría, así como los bienes asignados a la misma, estarán bajo la responsabilidad del Auditor (a) General de conformidad con lo establecido por el artículo 27 de la Ley General de Control Interno, por cuanto esta última otorga a la auditoría interna categoría programática, es decir, ejecutor del respectivo presupuesto.
+La Auditoría Interna tiene la libertad para ejecutar sus recursos presupuestarios, de personal y de otra naturaleza, conforme lo dicten sus necesidades para cumplir con su plan de trabajo, de conformidad con lo establecido en las Directrices para la Solicitud y Asignación de Recursos a las Auditorías Internas Resolución de la Contraloría General de la República RDC-010-2015.

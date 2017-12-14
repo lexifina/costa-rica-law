@@ -1,0 +1,5 @@
+SECCIÓN VI
+Del seguimiento a la aplicación de disposiciones
+y recomendaciones
+Artículo 59.—Seguimiento y recomendaciones. El Auditor General deberá establecer y mantener, como parte vital y permanente de la actividad de la Auditoría Interna, un programa de seguimiento a las recomendaciones, observaciones y demás resultantes de su gestión, para asegurarse de su oportuna, adecuada y eficaz atención por parte de la administración.
+Ese programa deberá incluir los resultados de las evaluaciones realizadas por los auditores externos, la Contraloría General de la República y demás instituciones de control y fiscalización cuando corresponda. El resultado de esta labor será comunicado por el Auditor General al CETAC anualmente, de conformidad con lo dispuesto en el inciso g) del artículo 22 de la Ley General de Control Interno, sin perjuicio de otros informes relacionados, a juicio del Auditor General, cuando lo considere pertinente, igualmente debe comunicar a la Contraloría General de la República.

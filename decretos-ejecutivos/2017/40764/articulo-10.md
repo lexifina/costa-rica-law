@@ -1,0 +1,1 @@
+Artículo 10.—Independencia y Objetividad. La independencia de la Auditoría se establecerá por la estructura de la organización y las líneas de reporte, por tanto, en la labor de Auditoría se tendrá independencia funcional y de criterio. La objetividad se mantendrá mediante una apropiada actitud mental responsable ante el quehacer institucional.

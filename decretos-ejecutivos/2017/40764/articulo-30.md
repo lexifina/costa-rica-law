@@ -1,0 +1,1 @@
+Artículo 30.—Deberes y prohibiciones de los funcionarios de Auditoría Interna. Los (las) funcionarios (as) de la Auditoría Interna, tendrán los deberes y prohibiciones que se estipulan en la Ley General de Control Interno, en sus artículos 32 y 34 respectivamente.

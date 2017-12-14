@@ -1,0 +1,1 @@
+Artículo 69.-Obligatoriedad. Las disposiciones de este Reglamento son de aplicación obligatoria para todas las dependencias que conforman la organización del CET AC y de la Dirección General de Aviación Civil.

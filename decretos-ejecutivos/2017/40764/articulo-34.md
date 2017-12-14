@@ -1,0 +1,1 @@
+Artículo 34.—Objetividad individual y ética profesional. Los (las) funcionarios (as) de la Auditoría Interna deberán tener una actitud imparcial y neutral para evitar conflictos de intereses y proteger su independencia.

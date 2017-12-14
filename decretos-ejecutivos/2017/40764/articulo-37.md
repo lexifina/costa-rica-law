@@ -1,0 +1,4 @@
+SECCIÓN IV
+Del Ámbito de Acción
+Artículo 37.—Ámbito de Acción. La Auditoría Interna cumplirá su función en relación con los fondos públicos y cualquier otro tipo de actividad sujetos al ámbito de competencia de la organización, incluyendo fideicomisos, fondos especiales y otros de naturaleza similar, o sobre fondos y actividades privadas de acuerdo con los artículos 5 y 6 de la Ley Orgánica de la Contraloría General de la República, en el tanto éstos se originen en transferencias efectuadas por la organización, ya sean estos a nivel nacional e internacional.
+Además de otras competencias estipuladas en el artículo 22 de la Ley General de Control Interno, las que le asigne la normativa legal, reglamentaria y técnica aplicable, y con las limitaciones que establece el artículo 34 de la Ley General de Control Interno.

@@ -1,0 +1,1 @@
+Artículo 27.—Régimen Jurídico Laboral del Auditor(a) y Subauditor(a) Generales. El (la) Auditor (a) General y el (la) Subauditor (a), están exceptuados del Régimen de Servicio Civil, de acuerdo con el artículo 5 del Estatuto del Servicio Civil.

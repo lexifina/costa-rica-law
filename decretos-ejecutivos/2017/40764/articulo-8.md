@@ -1,0 +1,1 @@
+Artículo 8º—Planeamiento estratégico. Mediante la implementación de un Plan estratégico, deberá establecer y mantener actualizada la visión, misión y principales políticas, que regirán el accionar de la función de Auditoría Interna.
