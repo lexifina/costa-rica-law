@@ -1,0 +1,1 @@
+Artículo 2º—Incluir a la Casa Saborío González, dentro de la lista de inmuebles declarados como Patrimonio Histórico Arquitectónico de la Nación, por conservar una gran autenticidad e integridad a nivel formal con respecto a su diseño original.

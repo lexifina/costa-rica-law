@@ -1,0 +1,1 @@
+Artículo 4º—Esta Declaratoria prohíbe su demolición, o remodelación parcial o total, sin la autorización previa del Centro de Investigación y Conservación del Patrimonio Cultural de esta Cartera Ministerial.
