@@ -1,0 +1,1 @@
+Artículo 2º—Las Instituciones del sector público y del sector privado, podrán contribuir en la medida de sus posibilidades, a la realización anual y, por ende, a la salvaguardia de esta importante manifestación cultural de las comunidades de Boruca y Rey Curré.
