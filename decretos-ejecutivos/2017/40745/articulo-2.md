@@ -1,0 +1,9 @@
+Artículo 2.- Definiciones.
+Para los efectos de este Reglamento se entenderá por:
+a) DOS: Departamento de Organizaciones Sociales de la Dirección de Asuntos Laborales del Ministerio de Trabajo y Seguridad Social.
+b) Asesor Registral: Persona funcionaria del Departamento de Organizaciones Sociales del Ministerio de Trabajo y Seguridad Social encargada de la calificación, análisis y registro de los documentos de las organizaciones sociales objeto de registro.
+Aunque se utilice el término en singular, debe entenderse que podrá tratarse de varias personas Asesoras Registrales, quienes en caso de ser necesario actuarán de forma conjunta para la realización de los trámites contemplados en este Reglamento.
+c) Sindicato: Asociación permanente de trabajadores o de patronos o de personas de profesión u oficio independiente, constituida exclusivamente para el estudio, mejoramiento y protección de sus respectivos intereses económicos y sociales, comunes, debidamente inscrita en el Registro del Departamento de Organizaciones Sociales de la Dirección de Asuntos Laborales del Ministerio de Trabajo y Seguridad Social.
+d) Membresía sindical: cantidad de afiliados a un sindicato de los que menciona el artículo 342 del Código de Trabajo, de acuerdo con los estudios que prevé este reglamento. En la determinación de la cantidad de afiliados de un sindicato prevalecerá la voluntad libremente expresada por los trabajadores, por encima de las formas en que se pueda expresar dicha voluntad.
+e) Representatividad sindical: condición o estatus de un sindicato que le permite realizar determinadas acciones y actividades procesales, en representación de sus propios afiliados y de otros trabajadores.
+f) Partes: Se refiere a uno o varios sindicatos interesados en determinar la representatividad de los mismos, así como a uno o varios empleadores igualmente interesados en dicha determinación.

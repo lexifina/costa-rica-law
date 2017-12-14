@@ -1,0 +1,4 @@
+Artículo 9.- Del estudio en caso de convenciones colectivas por sector.
+Cuando se trate de una convención colectiva por sector que vaya a regir en más de una empresa o institución, cada parte interesada en que se realice el estudio de membresía sindical, deberá realizar la solicitud correspondiente cumpliendo con los requisitos establecidos en el artículo 3 de este Reglamento.
+La persona asesora registral se trasladará a las empresas o instituciones en las que regirá la convención colectiva, para obtener la información que será de insumo para el estudio de membresía y verificará el cumplimiento del porcentaje de afiliación indicado en el artículo 697 del Código de Trabajo.
+El estudio de membresía, se realizará en cada uno de los centros de trabajo o instituciones, con la documentación aportada por cada una de las partes interesadas en la participación para realizar la negociación, de conformidad con lo dispuesto en este Reglamento.

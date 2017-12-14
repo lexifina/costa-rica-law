@@ -1,0 +1,2 @@
+Artículo 11.- Vigencia de la certificación.
+La certificación emitida por el DOS tendrá una vigencia de un año, transcurrido el cual, cualquier sindicato existente en la unidad de negociación, según los términos del artículo 696 del Código de Trabajo Reformado, podrá solicitar la revisión del estudio, cumpliendo con los mismos requisitos y formalidades que se establecen en este Reglamento para la solicitud inicial.
