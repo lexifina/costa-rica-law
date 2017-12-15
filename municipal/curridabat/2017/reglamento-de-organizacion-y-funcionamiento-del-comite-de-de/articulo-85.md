@@ -1,0 +1,1 @@
+ARTÍCULO 85.- Para ejercer el derecho de voto en las organizaciones y asociaciones deportivas y recreativas, deberán encontrarse por lo menos cinco años de inscritas ante el Comité Cantonal de Deportes y Recreación.
