@@ -1,4 +1,6 @@
+(Derogado)
 GOBERNACION Y POLICIA
+(Esta norma fue derogada en sesión N° 09 del 15 de diciembre de 2017)
 JUNTA ADMINISTRATIVA IMPRENTA NACIONAL
 La Junta Administrativa de la Imprenta Nacional,
 Considerando:

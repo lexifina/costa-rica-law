@@ -14,3 +14,4 @@ Reglamento de Contratación Administrativa de la Imprenta Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-12-25 | la propia norma |
+| 2 | 2017-12-15 | Reglamento 9 (2017-12-15) |
