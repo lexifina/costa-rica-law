@@ -1,0 +1,1 @@
+Artículo 62. Índice. El índice debe contener la lista en detalle de cada documento que conforma el expediente y su número de folio. Las páginas que se utilicen para el índice, se identificarán con número romano y en minúscula y se ubicarán inmediatamente después de la caratula.

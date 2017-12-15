@@ -1,0 +1,1 @@
+Artículo 35. Gestión de Cobro persuasiva. Una vez que el funcionario de cobros comprueba que la deuda es líquida y exigible del O.T.; se inicia la gestión de cobro persuasiva mediante los medios idóneos para hacer efectiva la recuperación de los montos adeudados.

@@ -1,0 +1,1 @@
+Artículo 54. Resolución del arreglo de pago. El convenio de arreglo de pago se resolverá únicamente, ante el pago total que realice el sujeto pasivo de la obligación vencido, o cuando se haya retrasado 30 días naturales en el cumplimiento de su obligación.

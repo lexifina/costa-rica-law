@@ -1,0 +1,2 @@
+Artículo 52. Formalización del arreglo de pago. La formalización del arreglo de pago se realizará ante la Unidad de Cobros de la Municipalidad y/o Plataforma de Servicios, mediante la suscripción del documento idóneo que tendrá dicha oficina para tales efectos, siempre y cuando el sujeto pasivo haya cumplido con los requisitos que la Unidad de Cobros exija para tal gestión.
+Se formalizará con la cuota inicial (prima) equivalente al 25% de la deuda total

@@ -1,0 +1,3 @@
+Artículo 38. Constancia de Acuse de Recibo, si se notifica por correo certificado.
+Este documento es emitido por la Administración Tributaria, y debe ir junto con el requerimiento de pago, el cual es enviado a las oficinas de Correos de Costa Rica, o quien se encargue realizar el cobro y se adjunta un listado, para que los funcionarios de dicha Institución notifiquen al O.T., en el domicilio indicado en la Constancia de Acuse de Recibo.
+Posteriormente esa empresa debe informar a la A.T. de ocho a quince días después la entrega de las constancias de acuse de recibo y demás documentos que fueron notificados y los que no pudieron ser notificados.

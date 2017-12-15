@@ -1,0 +1,1 @@
+Artículo 63. Control de llamadas telefónicas. Para obtener un correcto control con referencia a la comunicación que se mantiene con el O.T., es necesario adicionar la hoja de control de llamadas telefónicas en el expediente debe existir registro de ellas.

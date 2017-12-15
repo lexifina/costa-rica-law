@@ -1,0 +1,1 @@
+Artículo 43. Seguimiento de la gestión cobratoria. El funcionario de cobros debe controlar y esperar que se cumpla el término estipulado de acuerdo a la fecha de notificación, para que el O.T. cancele su deuda, o bien presente las pruebas de descargo del cobro.

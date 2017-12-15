@@ -1,0 +1,1 @@
+Artículo 19. Informes trimestrales y su Contenido. Los informes trimestrales generados por la Unidad de cobros serán responsabilidad del Encargado (a) de cobros y remitidos al Coordinador del área de servicios Tributarios y a la Alcaldía.

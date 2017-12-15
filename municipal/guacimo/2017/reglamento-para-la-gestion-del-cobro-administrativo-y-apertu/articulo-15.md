@@ -1,0 +1,1 @@
+Artículo 15. Carga de la prueba. Corresponderá al O.T. demostrar la veracidad de la obligación tributaria material manifestada en sus declaraciones, así como de los hechos impeditivos, modificativos o extintivos de la obligación tributaria y será de la Administración Tributaria respecto de los hechos constitutivos de la obligación tributaria material.

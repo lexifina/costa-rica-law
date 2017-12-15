@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de aplicación. Este Reglamento será de aplicación obligatoria tanto para el área de la Administración Tributaria Municipal como para las abogadas y abogados externos que sean contratados por la Municipalidad de Guácimo.

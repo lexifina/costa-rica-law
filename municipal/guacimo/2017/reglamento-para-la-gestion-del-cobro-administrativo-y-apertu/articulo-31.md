@@ -1,0 +1,1 @@
+Artículo 31. Cartera morosa por validar. Se refiere al listado de las deudas tributarias de los O.T. indicados en el punto anterior, de los cuales no se tiene certeza si son deudas líquidas y exigibles, por lo que se requiere su respectiva revisión y validación por parte del funcionario de cobros.

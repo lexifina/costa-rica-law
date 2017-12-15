@@ -1,0 +1,1 @@
+Artículo 37. Acta de Notificación. Mediante el acta de notificación se le notifica al O.T. personalmente cuando éste concurre a la Administración Tributaria, o por medio del funcionario de cobros o en plataforma, quién le notifica en su domicilio fiscal o lugar para recibir notificaciones u otro medio autorizado por éste, para recibir un determinado acto administrativo.
