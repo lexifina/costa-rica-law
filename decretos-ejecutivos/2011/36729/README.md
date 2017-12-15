@@ -14,3 +14,4 @@ Reglamento para la Administración de los contingentes arancelarios de importaci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-01 | la propia norma |
+| 2 | 2017-12-15 | Decreto Ejecutivo 40809 (2017-12-15) |
