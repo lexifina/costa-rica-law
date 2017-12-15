@@ -1,7 +1,0 @@
-Artículo 4º—Todas las instituciones y dependencias públicas estatales de la Administración Central y Descentralizada deberán otorgar la ayuda necesaria para la implementación de lo dispuesto en esta Directriz. Específicamente, se dispone para las siguientes dependencias de la Administración Central y se insta para las que corresponden a la Descentralizada a:
-- Policía Fiscal: coadyuvar de manera permanente a la actividad que el Servicio Fitosanitario del Estado realizará en razón del escaneo de los contenedores de carga.
-- Autoridad Presupuestaria: dotar de los recursos presupuestarios y de personal que sean solicitados por las instituciones competentes para poner en práctica los fines de la presente Directriz.
-- Dirección General de la Fuerza Pública: designar al personal de policía que sea necesario para el resguardo de los perímetros en los que se encuentren funcionando los escáneres.
-- Ministerio de Comercio Exterior: colaborar para que las unidades de escáneres funcionen plenamente cuando se encuentren destacadas en los predios fronterizos.
-- Junta de Administración Portuaria y Desarrollo Económico de la Vertiente Atlántica y el Instituto de Puertos del Pacífico: otorgar todas las facilidades para la colocación y operación de los escáneres que sean destacados en los puertos bajo la administración de ambos entes.
-- Ministerio de Salud: resguardar las condiciones de salud de los operarios y usuarios de los escáneres.
