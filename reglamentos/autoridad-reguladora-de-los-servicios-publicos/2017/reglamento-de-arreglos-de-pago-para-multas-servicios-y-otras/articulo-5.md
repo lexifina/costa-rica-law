@@ -1,0 +1,1 @@
+Artículo 5.- Procedencia del arreglo de pago. Procederá el arreglo de pago en toda aquella gestión de cobro administrativo o judicial que se realice por deudas que terceros tengan con la Autoridad Reguladora, originadas en multas, servicios o cualquier otra cuenta por cobrar, diferentes a los cánones de regulación.
