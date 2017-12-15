@@ -1,0 +1,1 @@
+Artículo 4.- Responsabilidades de la CCSS: Para el fortalecimiento de la atención a las personas con enfermedad celiaca, la CCSS, en el marco de la Ley No. 8975 y de conformidad con su ley constitutiva, realizará las acciones pertinentes de salud, en procura del bienestar de esta población.

@@ -1,0 +1,1 @@
+Artículo 5.- Comisión Asesora. Para el funcionamiento de la comisión asesora creada mediante el artículo 5 de la Ley, se aplicará lo estipulado en el Decreto Ejecutivo No. 37716-S del 10 de mayo de 2013, “Crea Comisión Asesora en Celiaquía”.
