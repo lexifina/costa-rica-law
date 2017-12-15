@@ -7,3 +7,4 @@ Artículo 6°:(Nota de Sinalevi: El presente artículo no fue publicado en el Al
 (Así reformado por el artículo 1° de la ley N° 9461 del 7 de julio del 2017)
 (Modificado por el artículo 2° del decreto ejecutivo N° 40714 del 18 de octubre del 2017)
 (Modificado por el artículo 1° del decreto ejecutivo N° 40742 del 16 de noviembre del 2017)
+(Modificado por el artículo 2° del decreto ejecutivo N° 40781 del 30 de noviembre de 2017)
