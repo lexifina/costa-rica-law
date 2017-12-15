@@ -1,6 +1,0 @@
-(Derogado)
-(Esta norma fue deroga por el artículo 29 de la ley de Licencias para actividades lucrativas y no lucrativas del Cantón de Guácimo, N° 9504 del 14 de noviembre del 2017)
-TARIFA DE IMPUESTOS MUNICIPALES
-DEL CANTON DE GUACIMO
-ARTICULO 1.- Obligatoriedad de pago del impuesto.
-Las personas físicas o jurídicas que se dediquen al ejercicio de actividades lucrativas de cualquier tipo, en el cantón de Guácimo, estarán obligadas a pagar a la Municipalidad un impuesto de patentes, conforme a esta ley.
