@@ -1,0 +1,1 @@
+ARTÍCULO 23°: En el caso de activos que no estén en uso, el funcionario lo comunicará al jefe inmediato para su respectiva reasignación o comunicará a la Unidad de Proveeduría para que tome las acciones del caso.

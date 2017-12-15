@@ -1,0 +1,1 @@
+ARTÍCULO 39°: De existir equipo dañado en un departamento y que requiera su reparación, la jefatura interesada deberá tramitar la reparación ya sea mediante Caja Chica o por procedimiento de compra que por monto corresponda.

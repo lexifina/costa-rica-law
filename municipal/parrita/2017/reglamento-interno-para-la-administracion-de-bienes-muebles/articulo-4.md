@@ -1,0 +1,1 @@
+ARTÍCULO 4°: Se exceptúa de lo dispuesto en este Reglamento a todos los vehículos de la Municipalidad de uso general y discrecional, por estar regulados por el Reglamento de Uso de Vehículos de la Municipalidad.

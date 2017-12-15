@@ -1,0 +1,1 @@
+ARTÍCULO 46°: Cualquier incumplimiento a las obligaciones y deberes de las jefaturas y Funcionarios contenidos en este Reglamento será sancionado de acuerdo con lo que dispone el Reglamento Institucional y el Código Municipal.

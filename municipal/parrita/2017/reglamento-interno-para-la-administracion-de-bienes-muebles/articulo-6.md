@@ -1,0 +1,1 @@
+ARTÍCULO 6°: Todo funcionario recibe en calidad de préstamo y por tiempo indefinido, los activos necesarios para el cumplimiento de sus labores y custodiar las placas de identificación del activo que por su naturaleza el activo que se le asignó la placa sea muy frágil o sea muy pequeño para adherirle la placa de identificación del activo.

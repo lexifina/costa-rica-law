@@ -1,0 +1,1 @@
+ARTÍCULO 40°: Cuando los bienes deban salir temporalmente de las instalaciones de la Municipalidad para ser objeto de reparación, la jefatura interesada deberá coordinar la salida respectiva ante la Unidad de Proveeduría, para lo cual deberá llenar el formulario "Movimiento de Activo".

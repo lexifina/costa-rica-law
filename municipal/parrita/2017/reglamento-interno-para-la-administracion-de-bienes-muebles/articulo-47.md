@@ -1,0 +1,1 @@
+ARTÍCULO 47°. – Derogatoria. El presente reglamento deroga el Reglamento Interno para la Administración de Bienes Muebles asignados a los funcionarios municipales en el desempeño de sus labores vigente y cualquier reforma.

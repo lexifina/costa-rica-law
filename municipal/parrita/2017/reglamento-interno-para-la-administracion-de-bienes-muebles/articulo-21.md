@@ -1,0 +1,1 @@
+ARTÍCULO 21°: El control administrativo de los activos asignados a un Departamento o Unidad Administrativa, corresponde a las jefaturas correspondientes. Deberá establecerlo según su criterio asumiendo toda responsabilidad al respecto.

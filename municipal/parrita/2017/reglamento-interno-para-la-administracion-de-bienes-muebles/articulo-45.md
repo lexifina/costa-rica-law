@@ -1,0 +1,1 @@
+ARTÍCULO 45°: Para entregar activos en calidad de préstamo a otras instituciones, se deberá realizar mediante aprobación por escrito de la Alcaldía Municipal y confección de acta de entrega de activos por parte de la dependencia respectiva o funcionario autorizado. Además de completar la boleta de “Movimiento de Activos”.

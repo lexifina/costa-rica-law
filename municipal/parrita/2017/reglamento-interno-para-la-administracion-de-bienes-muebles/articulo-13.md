@@ -1,0 +1,1 @@
+ARTÍCULO 13°: Ninguna jefatura podrá ordenar el movimiento de un activo, sin antes cumplir con lo estipulado en los artículos anteriores y contar con el respectivo aval o visto bueno del Gestor del Área a cargo.
