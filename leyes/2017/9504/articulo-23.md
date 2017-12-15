@@ -1,0 +1,1 @@
+ARTÍCULO 23- La Municipalidad de Guácimo suministrará a los licenciatarios los formularios y la información necesarios para que puedan presentar la declaración jurada del impuesto. Los licenciatarios deberán retirar los formularios respectivos en la Municipalidad de Guácimo a partir del 1 ° de octubre de cada año.

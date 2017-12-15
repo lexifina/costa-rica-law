@@ -1,0 +1,1 @@
+ARTÍCULO 7- Para realizar todo trámite de licencias como las solicitudes, los traspasos, los traslados, los cambios o la ampliación de actividades y otros, la persona solicitante deberá cumplir los requisitos establecidos en el reglamento de licencias municipales que al efecto dictará la Municipalidad de Guácimo.
