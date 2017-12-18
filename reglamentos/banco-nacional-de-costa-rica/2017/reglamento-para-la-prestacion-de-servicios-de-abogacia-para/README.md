@@ -15,3 +15,4 @@ Reglamento para la Prestación de Servicios de Abogacía para el Cobro Judicial 
 | --- | --- | --- |
 | 1 | 2017-04-27 | la propia norma |
 | 2 | 2017-10-23 | Reglamento 12201 (2017-10-23) |
+| 3 | 2017-12-18 | Reglamento 12213 (2017-12-18) |
