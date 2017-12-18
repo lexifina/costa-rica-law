@@ -1,0 +1,1 @@
+Artículo 3 º- La Municipalidad de San Pablo de Heredia, fomentará la participación activa y democrática de la personas y reconocerá el derecho pleno de los vecinos del municipio a ser recibidos y escuchados por parte del Concejo, el Alcalde Municipal, a efecto de ser informados con transparencia acerca de asuntos que resulten de interés para ellos.
