@@ -1,1 +1,0 @@
-Artículo 4: La Municipalidad coordinará y resolverá lodos los asuntos aquí regulados por medio de la Administración del Mercado. En caso de desacuerdo entre las partes se elevará al Ejecutivo Municipal y si persiste el desacuerdo o desacuerdos resolverá el Concejo Municipal.

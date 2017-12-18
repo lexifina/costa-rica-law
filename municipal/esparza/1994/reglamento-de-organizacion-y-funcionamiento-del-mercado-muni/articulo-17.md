@@ -1,1 +1,0 @@
-Artículo 17: En caso de daños o reparaciones en los servicios públicos de electricidad, agua u otros, los inquilinos están en la obligación de facilitar la entrada al puesto a los operarios municipales o de otras entidades para las labores respectivas y serán responsables por el pago y reparación de los daños ocasionados al inmueble.

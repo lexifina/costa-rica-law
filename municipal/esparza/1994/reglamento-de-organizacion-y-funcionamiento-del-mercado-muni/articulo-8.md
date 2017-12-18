@@ -1,1 +1,0 @@
-Artículo 8: Ostentarán la calidad de inquilinos las personas físicas que aparezcan registradas como tales en los registros municipales que se llevarán para tal fin y los cesionarios cuyo traspaso haya sido aprobado por el Concejo Municipal. Sin la aprobación citada de la cesión, carece de valor y no será oponible a terceros.

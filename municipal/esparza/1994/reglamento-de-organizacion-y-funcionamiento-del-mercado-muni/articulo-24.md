@@ -1,3 +1,0 @@
-CAPITULO SEXTO
-De la fijación y forma de pago de los alquileres
-Artículo 24: El Concejo Municipal fijará los precios del alquiler de los locales del Mercado Municipal, con base en los criterios y técnicas utilizados en el estudio de factibilidad que dio origen al proyecto de construcción del Mercado. EÍ precio será ajustado anualmente para que permita un coeficiente de recuperación de al menos 100%, (cien por ciento) de los costos reales de operación y funcionamiento y 100%, (cien por ciento) de los costos nominales de la inversión, de conformidad con lo dispuesto en la cláusula 6. 06 de la Ley No 6888 del 14 de setiembre de 1993.

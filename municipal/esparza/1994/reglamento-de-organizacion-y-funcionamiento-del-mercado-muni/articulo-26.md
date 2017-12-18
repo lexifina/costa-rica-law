@@ -1,1 +1,0 @@
-Artículo 26: Los alquileres deberán ser pagados por mensualidades anticipadas cada primero de mes en el lugar que la Municipalidad designe. La falta de pago de una mensualidad en el término establecido será motivo suficiente para tener por rescindido de pleno derecho el contrato.

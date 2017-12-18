@@ -1,1 +1,0 @@
-II.—Existiendo inquilinos anteriores cuya actividad principal es la venta de loterías se autoriza por vía de excepción que los nuevos locales sean destinados para el mismo fin que tenían antes de producirse el incendio que destruyó el antiguo mercado.
