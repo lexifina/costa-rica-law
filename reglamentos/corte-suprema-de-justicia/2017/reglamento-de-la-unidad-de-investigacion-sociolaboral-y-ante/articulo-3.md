@@ -1,0 +1,2 @@
+Artículo 3º—Sobre la creación de la UISA. La Unidad de Investigación Sociolaboral y Antecedentes (UISA) es una oficina adscrita a la Sección de Reclutamiento y Selección de la Dirección de Gestión Humana del Poder Judicial.
+Fue creada en respuesta a las recomendaciones de la Comisión para Investigar la Penetración del Crimen Organizado y el Narcotráfico en el Poder Judicial, cuyo informe final fue aprobado mediante acuerdo de Corte Plena en la sesión N° 55-14 celebrada el 24 de noviembre de 2014, artículo XVIII.

@@ -1,0 +1,1 @@
+Artículo 14.—Comunicación final. En caso de apelación, lo resuelto por el Consejo de Personal tendrá carácter definitivo e inapelable. Tal disposición se notificará a la personacon resultado desfavorable, a la jefatura inmediata si la hubiere y ala UISA.

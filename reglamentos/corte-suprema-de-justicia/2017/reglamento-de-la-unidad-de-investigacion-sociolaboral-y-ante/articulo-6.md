@@ -1,0 +1,6 @@
+CAPITULO II
+De las Personas Sujetos de Investigación
+Artículo 6º—Sujetos de investigación. Serán sujetos de investigación por medio de un estudio sociolaboral y de antecedentes realizado por la UISA, todas las personas externas a la Institución que oferten para participar en procesos selectivos para nuevo ingreso al Poder Judicial, con las excepciones que las leyes especiales establezcan.
+Asimismo, deberán someterse a este proceso todas las personas empleadas judiciales que participen en procesos selectivos para nombramientos en forma meritoria o interina, así como cualquier movimiento de puestos que se den de personas en propiedad, en cualquiera de sus ámbitos o niveles ocupacionales contemplados en el Manual Descriptivo de Clases de Puestos del Poder Judicial.
+También se consideran en este apartado los cargos de elección de Corte, los definidos en el Reglamento de Puestos de Confianza y cualquier otro que las instancias competentes establezcan, salvo los que operen bajo un modelo selectivo especial, autorizado por ley.
+Sin excepción, toda persona propuesta para formar parte del equipo de trabajo de dicha Unidad (indistintamente el tipo de nombramiento, la clase de puesto o el período), deberá obtener un resultado favorable en el estudio sociolaboral y de antecedentes, previo a la tramitación del nombramiento.
