@@ -1,0 +1,2 @@
+Artículo 6: Modifíquese el artículo 10º, para que se lea así: Disfrute de otros beneficios: Las personas solicitantes o beneficiarias de becas pueden gozar de otros beneficios asistenciales pero no otra beca de estudios, siempre y cuando el diagnóstico muestre que este aporte está incluidoen
+los ingresos familiares y los mismos no sobrepasen la línea de pobreza, o se continúe presentando una insatisfacción de necesidades básicas.

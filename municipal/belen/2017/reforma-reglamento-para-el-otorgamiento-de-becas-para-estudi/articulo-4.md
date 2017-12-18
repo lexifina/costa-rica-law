@@ -1,0 +1,2 @@
+Artículo 4: Modifíquese el artículo 7º, para que en lo sucesivo se lea así: Recepción de solicitudes: Las personas interesadas entregarán la solicitud completa, con los documentos y datos que se soliciten, en la segunda semana de noviembre en la Unidad de Servicio al Cliente. No se tramitarán
+solicitudes incompletas, tampoco las presentadas fuera de los plazos establecidos o las que no sean tramitadas utilizando el correspondiente formulario.
