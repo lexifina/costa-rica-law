@@ -1,0 +1,1 @@
+Artículo 33º.—La demolición sólo se ordenará previa tramitación del Procedimiento Administrativo establecido en el presente Reglamento y cuando al final de dicho procedimiento se verifiqué la renuencia del infractor para regularizar su situación o la imposibilidad jurídica o material de hacerlo.

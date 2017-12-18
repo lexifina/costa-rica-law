@@ -1,0 +1,1 @@
+Artículo 6°—Deber de exhibir el permiso de construcción en el lugar. Todo permiso de construcción deberá de mantenerse ya sea original o copia del mismo, en el lugar donde se encuentre realizando la construcción para la cual fue otorgado, a efectos de ser mostrado exhibido a la Autoridad Municipal que así lo requiera.

@@ -1,0 +1,3 @@
+CAPITULO II
+LICENCIAS Y PERMISOS DE CONSTRUCCIÓN
+Artículo 4º—Facultad legal de la Municipalidad para otorgar permisos de construcción. Los artículos 20, 21, 24, 28 de la Ley de Planificación Urbana y 74 de la Ley de Construcciones le otorgan a las Municipalidades la potestad de imperio para exigir a los administrados el cumplimiento de las normas y procedimientos establecidos en el Ordenamiento Jurídico vigente con el fin de establecer los criterios que regirán en las construcciones que se realicen dentro de su territorio. Estas normas y procedimientos son de cumplimiento obligatorio para los administrados bajo pena de ser sancionados con las sanciones establecidas en las leyes y los reglamentos existentes al efecto.

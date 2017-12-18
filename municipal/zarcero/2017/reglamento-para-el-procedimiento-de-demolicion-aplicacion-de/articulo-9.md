@@ -1,0 +1,3 @@
+CAPITULO III
+FACULTADES Y FUNCIONES DE LA DIRECCION DE GESTION URBANA
+Artículo 9º— Funcionarios responsables La Dirección encargada de la aplicación de este reglamento, será la Dirección de Gestión Urbana, quien deberá designar presupuesto para velar el cumplimiento, como parte de sus funciones faculta a los Inspectores Municipales, Notificador de Cobros, Departamento de Construcciones, así como al Alcalde Municipal, y a quienes éste último designe en resolución motivada, para realizarlas inspecciones, actas y demás actos en aras de la regulación, fiscalización y función sancionatoria del presente reglamento.

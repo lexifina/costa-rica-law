@@ -1,0 +1,1 @@
+Artículo 18º.—Si vencido el plazo fijado, el infractor no pudiere cumplir con la presentación de los requisitos para obtener el permiso, o bien no haya subsanado en el plazo otorgado, se procederá con el proceso de demolición establecido en este reglamento.

@@ -1,0 +1,1 @@
+Artículo 41º.—Imposibilidad de recursos. Si el administrado cancelará: multa, impuesto o licencia o cualquier otro cobro por la Dirección de Gestion Urbana, no podrá el mismo interponer algún recurso señalado en el artículo anterior debido a que con esa actuación estaría avalando el acto de la Municipalidad.

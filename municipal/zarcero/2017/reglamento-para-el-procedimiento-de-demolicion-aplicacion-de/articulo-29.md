@@ -1,0 +1,1 @@
+Artículo 29º.—Permiso de Salud. Toda obra provisional deberá contar con el respectivo permiso del Ministerio de Salud cuando la municipalidad lo considere, tal y como lo estipula La Ley General de Salud y el Reglamento General para el Otorgamiento de Permisos Sanitarios de Funcionamiento del Ministerio de Salud.

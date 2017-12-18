@@ -1,0 +1,1 @@
+Artículo 5º—Licencia de obra civil. Para poder ejecutar una obra, sea de carácter provisional o permanente debe poseer Licencia de obra civil otorgado por la Municipalidad y los demás órganos responsables.

@@ -1,0 +1,2 @@
+Artículo 34º.— Una vez agotada la vía administrativa, la Dirección de Gestión Urbana, presentara un informe detallado con el expediente administrativo, al Alcalde Municipal para que este en un plazo máximo de quince días hábiles, emita la orden de demolición de la obra.
+Se procederá a notificar al administrado sobre la orden de demolición, el cual deberá proceder con la demolición dentro del plazo de 10 días naturales.

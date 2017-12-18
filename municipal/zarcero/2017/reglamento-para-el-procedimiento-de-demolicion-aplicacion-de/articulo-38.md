@@ -1,0 +1,1 @@
+Artículo 38º.—Se cobrará al propietario cargándose así automáticamente al Sistema Municipal, sobre el cual aplicará la misma forma de los intereses moratorios que indica este Reglamento. El monto lo determinará la Dirección de Gestión Urbana bajo un cálculo determinado de costos, al cual se le sumará una multa igual a un 50% sobre el costo calculado.
