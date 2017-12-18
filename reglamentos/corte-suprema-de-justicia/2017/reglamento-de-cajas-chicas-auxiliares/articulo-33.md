@@ -1,0 +1,2 @@
+Artículo 33.—Responsabilidad. Será responsabilidad de la jefatura de la oficina y de la persona encargada directa de la Caja Chica Auxiliar, el cumplimiento de las disposiciones contempladas en este Reglamento, en el Manual de Procedimientos y los demás instructivos y circulares que se emitan al respecto.
+Corresponde al Macroproceso Financiero Contable y a las Administraciones Regionales velar por el cumplimiento de las disposiciones estipuladas establecidas en este Reglamento

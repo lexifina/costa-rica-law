@@ -1,0 +1,1 @@
+Artículo 36.—Derogaciones. Se deroga el Reglamento de Cajas Chicas aprobado por el Consejo Superior en sesión N° 22-01celebrada el 02 de julio 2001 artículo XVI y sus reformas, así como cualquier otra disposición que se le oponga.

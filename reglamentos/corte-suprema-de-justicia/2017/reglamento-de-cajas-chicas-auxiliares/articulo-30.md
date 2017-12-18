@@ -1,0 +1,1 @@
+Artículo 30.—Capacitación. El Macroproceso Financiero Contable brindará capacitación y asesoría para todas aquellas personas servidoras que tengan relación con el manejo y control de las Cajas Chicas Auxiliares en los casos que se requiera y en las visitas que realice a las diferentes oficinas.
