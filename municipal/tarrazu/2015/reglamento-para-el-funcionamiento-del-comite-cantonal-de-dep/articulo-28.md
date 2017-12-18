@@ -1,1 +1,2 @@
-Artículo 28- Los Comités Comunales de Deportes los conformarán una Junta Directiva compuesta por 5 miembros: Presidente, Vicepresidente, Secretario, Tesorero y Vocal.
+Artículo 28- Los Comités Comunales de Deportes los conformarán una Junta Directiva compuesta por 5 miembros: presidente, Vicepresidente, Secretario, Tesorero y Vocal. La elección de las y los miembros de la Junta Directiva del Comité Comunal se realizará a través de una Asamblea de vecinos convocada por la Junta Directiva del CCDRT, los asambleístas procederán a la elección de los puestos de la Junta Directiva del Comité Comunal de entre las personas propuestas en dicha asamblea.
+(Así reformado en sesión N° 038-E-2017 y publicado en el Alcance Digital N° 305 a La Gaceta N° 239 del 18 de diciembre de 2017)

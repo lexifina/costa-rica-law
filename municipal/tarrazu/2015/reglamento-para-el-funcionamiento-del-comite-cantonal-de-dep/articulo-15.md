@@ -19,3 +19,5 @@ p) Rendir ante el Consejo Municipal un informe anual de los ingresos y egresos d
 q) Nombrar y sancionar en su oportunidad los empleados del Comité conforme a las leyes laborales vigentes.
 r) Recomendar ante el Consejo Municipal la designación de atleta, entrenador o dirigente distinguido del cantón, para su estímulo correspondiente.
 s) Aprobar los programas de trabajo de los entrenadores de aquellos programas recomendados por la Comisión Técnica.
+t) Actualizar las listas de asociaciones, organizaciones, fundaciones y otras formas de sociedad civil organizada con personería jurídica vigente, tanto de las adscritas deportivas y recreativa como el resto inscritas de la sociedad civil del Cantón adscritas al CCDRT.
+(Así adicionado el inciso anterior en sesión N° 038-E-2017 y publicado en el Alcance Digital N° 305 a La Gaceta N° 239 del 18 de diciembre de 2017)
