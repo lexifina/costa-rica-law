@@ -1,0 +1,3 @@
+Artículo 10.- Acuerdo de inicio e invitación a proveedores precalificados por parte del Comité de CEN-CINAI.
+Con base en el presupuesto asignado, los tipos de contrataciones a realizar, las necesidades de suministros de cada establecimiento y el registro de proveedores precalificado, el Comité de CEN-CINAI toma el acuerdo de iniciar el proceso de contratación.
+El Comité procede a invitar a los proveedores ya precalificados por rubro o tipo de compra autorizados a realizar, con el detalle específico de la contratación, tales como cantidades, horarios, plazo de contrato, entre otros. La invitación puede realizarse por medio de Fax, correo electrónico o carta a los proveedores precalificados, indicando fecha, día y hora de recepción de las ofertas.

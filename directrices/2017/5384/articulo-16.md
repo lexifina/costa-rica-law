@@ -1,0 +1,2 @@
+Artículo 16.- Comunicación a la Dirección de Gestión de la contratación
+El representante legal del Comité de CEN-CINAI envía original del contrato a la Dirección Regional de CEN-CINAI, quienes lo trasladan a la Comisión Interna de Aprobación de Contratos donde revisan, supervisan y se fiscaliza la contratación. La Dirección de Gestión comunican a la Unidad Financiero Contable de la Dirección Nacional el rige del contrato para la ejecución del presupuesto.

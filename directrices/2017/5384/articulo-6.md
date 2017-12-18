@@ -1,0 +1,2 @@
+Artículo 6.- Aptitud para contratar
+De conformidad con el artículo 16 del Reglamento a la Ley de Contratación Administrativa, “sólo podrán contratar con la Administración las personas físicas o jurídicas que cuenten con plena capacidad de actuar, que no tengan impedimento por alguna de las causales de incapacidad para contratar con la Administración, y que demuestren su idoneidad legal, técnica y financiera, según el objeto a contratar
