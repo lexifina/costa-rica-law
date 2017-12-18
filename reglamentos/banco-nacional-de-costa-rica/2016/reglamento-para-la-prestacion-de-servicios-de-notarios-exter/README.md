@@ -15,3 +15,4 @@ Reglamento para la prestación de servicios de Notarios Externos del Banco Nacio
 | --- | --- | --- |
 | 1 | 2016-08-12 | la propia norma |
 | 2 | 2016-11-21 | Reglamento 12118 (2016-11-21) |
+| 3 | 2017-12-18 | Reglamento 12213 (2017-12-18) |
