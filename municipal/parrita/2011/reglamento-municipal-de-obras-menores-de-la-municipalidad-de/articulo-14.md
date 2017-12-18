@@ -1,1 +1,0 @@
-Artículo 14.—Toda Construcción Menor que no cuente con el permiso respectivo, o no cuente con un profesional debidamente acreditado a cargo de ella será clausurada, para lo cual el profesional responsable a cargo del Departamento de Ingeniería Municipal, y el inspector de construcciones de la Municipalidad serán los encargados de que se cumpla lo estipulado en este Reglamento.

@@ -1,1 +1,0 @@
-Artículo 2º—Este Reglamento rige en todo el cantón de Parrita, ninguna de las construcciones que se denominarán Obras Menores serán construidas sin las condiciones que se detallan en el Reglamento de Construcciones Generales, publicado en La Gaceta Nº 56, Alcance Nº 17 del 22 de marzo de 1983, por parte del INVU, así como sus reformas.
