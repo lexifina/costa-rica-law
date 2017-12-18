@@ -1,0 +1,1 @@
+Artículo 2: Finalidad: El presente reglamento tiene como fin el establecimiento de las normas que regularán la administración, funcionamiento y organización del Cementerio Municipal. Sus normas serán de acatamiento obligatorio para todas las personas que prestan servicios a la Municipal de Belén.

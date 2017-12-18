@@ -1,0 +1,1 @@
+Artículo 23: Servicio del cementerio los fines de semana o feriados: Los fines de semana o días feriados, el Proceso de Cementerio deberá garantizar la efectiva prestación del servicio de inhumación. El interesado queda en la ineludible obligación de presentar todos los requisitos requeridos para este servicio, establecidos en el presente reglamento.

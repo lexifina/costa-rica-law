@@ -1,0 +1,1 @@
+Artículo 20: Cobro de Servicios: La Municipalidad queda facultada para cobrar precios por los servicios de inhumación, exhumación, mantenimiento, arrendamiento de derechos, así como cualquier otro servicio que en el futuro se brinde, de acuerdo con las tarifas que fije la autoridad competente.

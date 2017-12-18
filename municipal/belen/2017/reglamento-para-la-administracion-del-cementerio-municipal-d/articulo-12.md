@@ -1,0 +1,1 @@
+Artículo 12: Arrendamiento y vigencia: Los derechos en arrendamiento sobre bóvedas, nichos o cruces del cementerio municipal, se darán exclusivamente a personas físicas por un plazo de cinco años, prorrogables por períodos iguales, en cuyo caso se requerirá estar al día con las obligaciones relacionadas con el servicio del cementerio.

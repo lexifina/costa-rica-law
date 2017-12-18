@@ -1,0 +1,1 @@
+Artículo 27: Vigencia y derogatoria: El presente Reglamento entrara en vigencia después de su publicación definitiva en el Diario Oficial La Gaceta y deroga el Reglamento para la Administración del Cementerio de Belén, publicado del 12 de diciembre del 2003.

@@ -1,0 +1,1 @@
+Artículo 17: Inhumación: Los cadáveres serán inmediatamente inhumados por el encargado del Proceso de cementerio, en presencia de las personas que integren el séquito mortuorio, o al menos ante un testigo.

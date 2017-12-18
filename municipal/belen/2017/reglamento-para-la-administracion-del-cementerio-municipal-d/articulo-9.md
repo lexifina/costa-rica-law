@@ -1,0 +1,1 @@
+Artículo 9: Titularidad del derecho de cementerio: Solo los arrendatarios de los derechos de cementerio, podrán presentar las distintas gestiones, trámites, quejas, denuncias o recursos administrativos, ante la Administración Municipal, respecto de la administración, funcionamiento y organización del cementerio.
