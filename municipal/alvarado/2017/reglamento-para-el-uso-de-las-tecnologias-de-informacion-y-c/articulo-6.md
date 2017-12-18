@@ -1,0 +1,1 @@
+Artículo 6º: Director de proyectos. Salvo situaciones que por su naturaleza así lo ameriten, El personal de TI será quien dirija los proyectos en materia de Tecnologías de Información, con las responsabilidades y autoridad que esto conlleva.

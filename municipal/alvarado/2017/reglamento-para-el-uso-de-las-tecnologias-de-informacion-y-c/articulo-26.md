@@ -1,0 +1,1 @@
+Artículo 26°: Políticas de capacitación del personal. Como parte del enfoque de eficiencia y mejoramiento continuo en TI, el Plan Estratégico de la Municipalidad, contemplará la capacitación técnica especializada para el personal de TI.

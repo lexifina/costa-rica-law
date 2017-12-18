@@ -1,0 +1,2 @@
+Artículo 28°: Del software y hardware permitido. El único software que debe estar instalado en el disco duro de cada computador y el único hardware que podrá utilizar el personal, es aquel que haya sido instalado por el personal de TI de la Municipalidad; y/o algunos otros que provengan de otras instituciones públicas o privadas que previamente hayan sido autorizados por dicho personal.
+(Respetándose así el inciso 7.2 de las Políticas Relativas al Software del Documento de Políticas para los servicios de tecnologías de información y comunicación).

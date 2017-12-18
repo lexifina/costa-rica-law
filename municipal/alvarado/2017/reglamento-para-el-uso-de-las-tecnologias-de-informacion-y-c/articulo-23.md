@@ -1,0 +1,4 @@
+Artículo 23°: Del uso de antivirus.
+23.1. Programa antivirus. Todas las computadoras, en todas las plataformas, que estén conectadas a la red de la Municipalidad de Alvarado o a sus recursos de red, deben contar con la protección del antivirus que la municipalidad proveerá, correctamente instalada, configurada, actualizada y activada por el área de Tecnologías de Información.
+23.2. Aislamiento. De ser necesario para prevenir la propagación viral a otros dispositivos o evitar efectos perjudiciales, las computadoras infectadas con virus u otras formas de código malicioso deben ser desconectados de la red por el área de tecnología autorizada hasta que se haya eliminado la infección.
+23.3. Notificaciones. Si un servidor tiene sospecha de una infección de virus en su computadora debe hacer el reporte respectivo inmediato al personal de TI.

@@ -1,0 +1,2 @@
+Artículo 22°: Conceder las claves de acceso. Bajo ninguna circunstancia un funcionario dará a conocer el usuario y clave de acceso a los sistemas de información municipales. El usuario que facilite sus datos de accesos a dichos sistemas, será el responsable directo sobre toda transacción que sea llevada a cabo. Y bajo esta situación, se establecerán las penas según lo establece la ley.
+(Respetándose así el inciso 4.1 de las Políticas relativas a redes y telecomunicaciones del Documento de Políticas para los servicios de tecnologías de información y comunicación).

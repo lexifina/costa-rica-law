@@ -1,0 +1,2 @@
+Artículo 13°: Administración de los recursos informáticos. El personal de TI, será quien administre todos los recursos informáticos de ésta Municipalidad y será quien distribuya de la mejor manera, de acuerdo a las necesidades de cada uno de los procesos, los recursos con los que se cuenta, esto nos permitirá a no incurrir en gastos superfluos e innecesarios, aplicando una planificada economía a escala.
+(Respetándose así el inciso 2.5 de las Políticas Administrativas del Documento de Políticas para los servicios de tecnologías de información y comunicación).
