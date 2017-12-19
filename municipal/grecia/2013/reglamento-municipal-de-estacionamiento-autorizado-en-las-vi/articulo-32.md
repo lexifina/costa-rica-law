@@ -1,2 +1,0 @@
-Artículo 32.—Responsabilidad penal: Quedarán sujetos a las correspondientes sanciones que indica la normativa penal, aquellos propietarios o conductores de vehículos que cometan alteraciones o fraudes en las boletas de estacionamiento.
-Los parquimetristas que detecten dichas anomalías, darán lugar al inmediato decomiso de las boletas y elevarán dentro del plazo de tres días hábiles ante la Alcaldía Municipal para que proceda a interponer las acciones judiciales que correspondan.

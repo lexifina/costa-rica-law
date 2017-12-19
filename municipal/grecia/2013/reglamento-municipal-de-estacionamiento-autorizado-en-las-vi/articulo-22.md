@@ -1,1 +1,0 @@
-Artículo 22.—Costo del marchamo. El valor del marchamo se determinará multiplicando el valor de una hora de estacionamiento por el tiempo habilitado para el cobro del precio de estacionamiento durante el respectivo mes, con un treinta por ciento de descuento.

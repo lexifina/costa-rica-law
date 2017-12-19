@@ -1,1 +1,0 @@
-Artículo 9°—De las zonas destinadas al transporte colectivo y uso oficial: La Alcaldía Municipal ordenará la regulación en las zonas de estacionamiento establecerá los espacios dedicados al transporte remunerado de personas y los necesarios para zonas oficiales, bajo criterio técnico de la Dirección de Tránsito del Ministerio de Obras Públicas y Transportes.

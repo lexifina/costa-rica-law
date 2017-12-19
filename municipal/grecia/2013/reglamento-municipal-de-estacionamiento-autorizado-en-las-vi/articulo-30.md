@@ -1,2 +1,0 @@
-Artículo 30.—Pago de la multa. La multa podrá ser pagada sin recargos dentro de las cuarenta y ocho horas siguientes a su imposición según el boleta de infracción, en la Municipalidad o en los recaudadores autorizados.
-En caso de no pagarse la multa según lo anteriormente estipulado, esta tendrá un recargo por intereses de conformidad al artículo 3 de la Ley Nº 6852, a razón de un dos por ciento mensual, que no podrá exceder en ningún caso un veinticuatro por ciento del monto adeudado.
