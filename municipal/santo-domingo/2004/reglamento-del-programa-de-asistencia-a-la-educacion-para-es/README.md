@@ -15,3 +15,4 @@ Reglamento del Programa de Asistencia a la Educación para Estudiantes de Escaso
 | --- | --- | --- |
 | 1 | 2004-02-13 | la propia norma |
 | 2 | 2010-04-29 | Reglamento municipal 183 (2010-04-29) |
+| 3 | 2017-12-19 | Reglamento municipal 138 (2017-12-19) |
