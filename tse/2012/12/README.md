@@ -20,3 +20,4 @@ Reglamento relativo a los trámites, requisitos y criterios de resolución en ma
 | 5 | 2016-02-04 | Decreto TSE 1 (2016-02-04) |
 | 6 | 2016-11-29 | Decreto TSE 13 (2016-11-29) |
 | 7 | 2017-03-03 | Decreto TSE 2 (2017-03-03) |
+| 8 | 2017-12-19 | Decreto TSE 13 (2017-12-19) |
