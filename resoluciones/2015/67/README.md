@@ -14,3 +14,4 @@ Requisitos de inscripción, modificación de datos y desincripción en el regist
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-11-03 | la propia norma |
+| 2 | 2017-12-20 | Resolución 60 (2017-12-20) |

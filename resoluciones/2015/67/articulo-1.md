@@ -1,4 +1,6 @@
+(Derogado)
 DIRECCIÓN GENERAL DE TRIBUTACIÓN
+(Esta norma fue derogada por el artículo 14 de la resolución N° DGT-R-060 del 20 de diciembre de 2017, “Inscripción, modificación de datos y desinscripción en el registro único tributario”)
 RESOLUCIÓN DE REQUISITOS DE INSCRIPCIÓN,
 MODIFICACIÓN DE DATOS Y DESINSCRIPCIÓN
 EN EL REGISTRO ÚNICO TRIBUTARIO
