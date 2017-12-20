@@ -1,4 +1,0 @@
-Artículo 12.—Kioscos o miniventas (K): Rango de 1 a 37 kg/mes (Ponderación = 0,5). Estos se constituyen en lo que se pueden denominar kioscos o mini ventas de productos como celulares, artesanías y venta al detalle. Se asigna una ponderación equivalente a la mitad de lo que genera una vivienda (0,5).
-Cabina 1 (CAB-1): Rango de 1 a 37 kg/mes (Ponderación= 0,5). Cabinas sin equipar. En este tipo de hospedaje se ofrece al huésped la cama, abanico con baño y en algunos lugares un televisor, por lo tanto aquí no hay posibilidad de preparar alimentos.
-Cabina 2 (CAB-2): Rango de 1 a 73,4 kg/mes (Ponderación = 1). Cabinas equipadas. Es un tipo de hospedaje en el cuál el inmueble o habitación que se alquile incluye un refrigerador también y a veces hasta una cocina.
-(Así reformado en sesión N° 253 del 4 de marzo de 2015)

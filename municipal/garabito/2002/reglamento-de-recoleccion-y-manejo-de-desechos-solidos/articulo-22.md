@@ -1,2 +1,0 @@
-Artículo 22.—El cobro de desechos voluminosos se hará por tonelada métrica a tratar. El tonelaje a depositar, corresponderá a la capacidad de los vehículos que transportan los desechos y conforme a la capacidad de llenado del mismo, así como las características técnicas del depósito, si son desechos sueltos o compactados, o por el tipo de desechos a compactar (chatarra, escombros, vegetales).
-(Así reformado en sesión N° 4 del 24 de mayo de 2006)

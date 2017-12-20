@@ -1,3 +1,0 @@
-Artículo 39.—La frecuencia mínima de recolección de residuos se establece de acuerdo con normas técnicas que se basan en la descomposición de algunos componentes de la basura y la práctica establece que la frecuencia puede variar hasta dos veces por semana. Por situaciones especiales de incremento en el grado de desechos y por ser una zona meramente turística se puede variar la frecuencia a más de dos veces por semana.
-Debe tomarse en cuenta que una frecuencia de más de dos veces por semana aumenta los costos de operación.
-Las zonas alejadas que están afectadas por la generación de basura producto de la afluencia de turistas en ciertas épocas del año se debe establecer un "servicio ocasional".

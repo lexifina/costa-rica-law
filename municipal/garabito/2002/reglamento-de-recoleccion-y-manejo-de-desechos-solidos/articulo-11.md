@@ -1,2 +1,0 @@
-Artículo 11.—Se toma como Tarifa residencial, la tasa a aplicar a toda unidad habitacional en donde no exista o se posea una patente, y en donde el promedio estimado en generación de basura sea inferior a 73,40 kg./vivienda/mes. En la tarifa doméstica el factor de generación es de 1. Para la tarifa doméstica se toma como factor de ponderación 1.
-(Así reformado en sesión N° 253 del 4 de marzo de 2015)

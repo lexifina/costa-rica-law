@@ -1,1 +1,0 @@
-Artículo 41.—Para variar las rutas, o la frecuencia del servicio previo estudio de la unidad técnica de manejo de desechos sólidos, debe hacerse pública con la antelación suficiente, mediante volantes, carteles, megafoneo, y otros.
