@@ -18,3 +18,4 @@ Reglamento para la Gestión y Administración del Crédito
 | 3 | 2012-01-25 | Reglamento 4103 (2012-01-25) |
 | 4 | 2012-09-24 | Reglamento 4166 (2012-09-24) |
 | 5 | 2012-12-12 | Reglamento 4190 (2012-12-12) |
+| 6 | 2017-12-20 | Reglamento 4437 (2017-12-20) |
