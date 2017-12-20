@@ -1,0 +1,1 @@
+Artículo 45º.-Los funcionarios y funcionarias municipales serán sancionados disciplinariamente cuando se verifique la omisión de una conducta que ordene este reglamento, o la ejecución de una conducta que deba inhibir de conformidad con estas disposiciones reglamentarias.

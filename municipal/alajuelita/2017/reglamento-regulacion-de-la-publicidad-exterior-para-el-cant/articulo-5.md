@@ -1,0 +1,3 @@
+CAPÍTULO II
+Requisitos para solicitar Permiso de Construcción para Rótulo
+Artículo 5º.- Será requisito indispensable para la persona física o jurídica que pretenda instalar o construir, reconstruir, trasladar, exhibir, fijar publicidad exterior con fines comerciales, contar con el respectivo permiso de construcción respectivo, cuando la estructura constructiva lo requiera, para la cual deberá presentar debidamente lleno el formulario original que provee la Plataforma de Servicios para la instalación de publicidad exterior, así como los requisitos técnicos que de conformidad con este Reglamento debe adjuntar.

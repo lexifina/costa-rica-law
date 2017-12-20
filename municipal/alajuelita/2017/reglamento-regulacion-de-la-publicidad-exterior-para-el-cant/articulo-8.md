@@ -1,0 +1,2 @@
+Artículo 8º.- La Municipalidad se reserva el derecho de otorgar o denegar el permiso de construcción de publicidad exterior, al tenor de la Ley General de Administración Pública, La Ley de Construcciones y su reglamento, la Ley de Planificación Urbana y el presente Reglamento.
+Cuando se rechace la solicitud deberá establecer claramente las razones de hecho y derecho, por las cuales procede con tal decisión.
