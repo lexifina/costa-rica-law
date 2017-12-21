@@ -1,1 +1,0 @@
-Artículo 27.—Los (as) dueños (as) de los vehículos deberán acatar en todo momento lo dispuesto en la Ley de Tránsito por Vías Públicas Terrestres, así como cualquier otra normativa que resulte aplicable en materia de tránsito y aquellas disposiciones internas que pueden ser consideradas dentro de los procedimientos que sobre el particular emitan las áreas competentes.

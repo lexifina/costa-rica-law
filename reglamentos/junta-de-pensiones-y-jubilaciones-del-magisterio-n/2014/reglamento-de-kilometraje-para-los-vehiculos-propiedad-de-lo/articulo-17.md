@@ -1,4 +1,2 @@
-CAPÍTULO III
-Condiciones Específicas
-Artículo 17.—El pago de kilometraje se calculará de acuerdo a las tarifas de arrendamiento de vehículos a funcionarios (as) de la Administración autorizados por la Contraloría General de la República, y en cuanto a distancias, la Tabla Oficial de distancias emitida por el MOPT.
-Sin embargo, cuando la Tabla Oficial de Distancias no contemple el recorrido realizado, se tomará la lectura obtenida del odómetro del vehículo. Para la lectura del odómetro de los vehículos habilitados dentro del sistema se designará un (una) responsable de registrar el kilometraje inicial y final del vehículo.
+Artículo 17.—JUPEMA no se hace responsable en caso de robo del vehículo, por lo cual la póliza referida debe tener cobertura contra robo, o en su defecto el trabajador debe rendir la declaración indicada en el procedimiento.
+JUPEMA tampoco es responsable de ningún daño o perjuicio que sobrevenga por robo, hurto, accidentes, o cualquier otra situación que se genere por la utilización del vehículo dentro del sistema de arrendamiento descrito.

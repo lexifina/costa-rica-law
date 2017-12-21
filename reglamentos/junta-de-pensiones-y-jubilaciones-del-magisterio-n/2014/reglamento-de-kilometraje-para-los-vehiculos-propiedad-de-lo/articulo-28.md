@@ -1,1 +1,0 @@
-Artículo 28.—Cuando se determine que en la ejecución del contrato se incurre en violación de las disposiciones reglamentarias, el (la) funcionario(a) responsable podrá ser corregido disciplinariamente por la Junta, según corresponda.

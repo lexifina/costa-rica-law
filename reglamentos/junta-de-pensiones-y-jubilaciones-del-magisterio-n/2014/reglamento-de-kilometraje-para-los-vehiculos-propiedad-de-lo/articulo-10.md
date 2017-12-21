@@ -1,2 +1,4 @@
-Artículo 10.—Una vez que el Departamento Administrativo ha verificado el cumplimiento de los anteriores requisitos y conformado el expediente respectivo, lo comunicará a la Dirección Ejecutiva, indicándole si es posible o no suscribir el respectivo contrato.
-En caso de aprobarse la suscripción del contrato, este tendrá una vigencia de un año, prorrogable en forma anual previa presentación y verificación de los requisitos establecidos en el artículo 9 de ese reglamento. Será causal de terminación del contrato, el incumplimiento de los requisitos establecidos en este artículo, así como también se entenderá por finalizado en caso de renuncia del (de la) servidor(a), despido, jubilación y permisos con o sin goce de salario.
+CAPÍTULO III
+Condiciones Específicas
+Artículo 10.—El pago de kilometraje se calcula de acuerdo con las tarifas de arrendamiento de vehículos a trabajadores de la Administración autorizados por la Contraloría General de la República, y en cuanto a distancias, la Tabla Oficial de distancias emitida por el MOPT.
+Sin embargo, cuando la Tabla Oficial de Distancias no contemple el recorrido realizado, se toma la lectura obtenida del odómetro del vehículo. Para la lectura del odómetro de los vehículos habilitados dentro del sistema se designa un responsable de registrar el kilometraje inicial y final del vehículo.

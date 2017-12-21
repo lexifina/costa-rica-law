@@ -1,2 +1,1 @@
-Artículo 21.—El (La) propietario(a) solamente deberá usar su vehículo para el propósito para el que fue autorizado en forma específica.
-Cuando sea necesario transportar a otros (as) servidores (as), así como materiales y equipos que no excedan la capacidad del vehículo, el (la) propietario(a) que arriende su vehículo a la Junta bajo el sistema, deberá transportarlos bajo los términos del contrato.
+Artículo 21.—Cuando se determine que en la ejecución del contrato se incurre en violación de las disposiciones reglamentarias, el trabajador responsable puede ser corregido disciplinariamente por JUPEMA, según corresponda.

@@ -1,2 +1,1 @@
-Artículo 13.—Para hacer efectivo el cobro por Kilometraje recorrido, cada interesado.
-(a) deberá confeccionar una liquidación en la fórmula y/o boleta denominada “Liquidación de Gastos de kilometraje”, para la cual cuenta con un mes calendario máximo finalizada la gira.
+Artículo 13.—Los gastos en que incurra el propietario al hacer uso del vehículo, como por ejemplo, el pago de lubricantes, combustibles, materiales, mantenimiento, reparaciones, repuestos, derechos de circulación, infracciones de tránsito, seguro obligatorio y otros seguros, así como el pago del deducible en caso de accidentes, gastos legales y otros no cubiertos por las pólizas, corren por cuenta del propietario.
