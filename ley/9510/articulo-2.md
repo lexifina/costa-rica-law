@@ -1,0 +1,4 @@
+ARTÍCULO 2- Requisitos y trámite
+El solicitante deberá realizar por escrito solicitud formal de donación y firma de escritura ante el alcalde municipal; indicar en dicho escrito las calidades y los medios formales para ser localizado y recibir notificaciones, y aportar copia de la cédula de identidad del solicitante y de los testigos; en este último caso si presenta declaración jurada, igualmente deberá adjuntar los documentos descritos en el artículo anterior, además del plano catastrado de la propiedad.
+El alcalde solicitará, al Departamento de Planificación Urbana, que realice el estudio del plano respectivo y, además, indique en dicho estudio si la propiedad pertenece al folio real que afecta la presente ley.
+Una vez verificado positivamente lo anterior, el alcalde solicitará al Concejo Municipal, con base en el expediente conformado al efecto, que mediante acuerdo se autorice la donación y la respectiva firma de la escritura.
