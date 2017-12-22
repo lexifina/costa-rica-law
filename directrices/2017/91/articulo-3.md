@@ -1,0 +1,1 @@
+Artículo 3º. En caso de duda sobre la procedencia de una consulta o la afectación directa o indirecta de los pueblos indígenas por un proyecto o medida administrativa determinada, se solicita incluirlo dentro del informe en cuestión, con la salvedad correspondiente.
