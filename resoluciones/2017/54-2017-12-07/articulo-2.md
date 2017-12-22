@@ -1,0 +1,1 @@
+Artículo 2º—Modifíquese el Anexo que se menciona en el Artículo 2º de la resolución DGT-R-30-2014 de las nueve horas y cuarenta minutos del veinticuatro de julio del dos mil catorce, para que este se lea según lo señalado en la presente resolución.
