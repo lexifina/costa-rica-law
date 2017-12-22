@@ -1,0 +1,2 @@
+Artículo 3°-. En concordancia con lo dispuesto en el artículo 1, inciso o) del Decreto Ejecutivo N°25925-H de 13 de marzo de 1997 y sus reformas, también podrán ser sometidos a procesos fiscalizadores, los sujetos pasivos que realicen la siguiente conducta:
+1) Sujetos pasivos de cualquier sector o actividad económica que, estando en el proceso de liquidación previa, hubieren presentado las declaraciones tributarias o hubieren rectificado las presentadas inicialmente.
