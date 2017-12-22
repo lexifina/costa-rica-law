@@ -1,0 +1,1 @@
+Artículo 2.- Alcance. El presente reglamento podrá ser aplicado a los miembros del Consejo Nacional de Cinematografía y el Director General, cuando deban atender actividades de esta naturaleza en el cumplimiento de objetivos institucionales.

@@ -1,0 +1,1 @@
+Artículo 3.- Responsable de la verificación. Corresponde al Coordinador del Área Administrativa del CCPC verificar el correcto cumplimiento de este Acuerdo, atendiendo el origen de los recursos del gasto por cubrir, y según el medio de compra idóneo que corresponda.

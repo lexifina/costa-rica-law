@@ -1,0 +1,2 @@
+Artículo 16.- Adelanto de viáticos. La Dirección del Centro, podrá girar adelantos de dinero para cubrir viáticos, siempre que la solicitud sea hecha por el funcionario que vaya a participar en la actividad, el cual, debe llenar el formulario que para tal efecto se establezca.
+Este formulario debe contener las cualidades del funcionario, el lugar a visitar, el propósito del viaje, el periodo estimado de duración, el monto del adelanto solicitado y la firma del funcionario que autoriza el viaje.

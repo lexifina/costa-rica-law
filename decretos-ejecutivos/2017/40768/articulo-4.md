@@ -1,0 +1,1 @@
+Artículo 4.- Fundamento legal. Los Gastos de Representación Institucional, Alimentación y Viáticos, se fundamentan en lo establecido en el presente Reglamento y en el Reglamento de Gastos de Viaje y Transportes para funcionarios públicos de la Contraloría General de la República. Se tramitan con cargo al Fondo Fijo de Caja Chica, únicamente en los casos aquí normados.

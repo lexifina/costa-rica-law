@@ -1,0 +1,1 @@
+Artículo 7.- Disponibilidad presupuestaria. En el proyecto de presupuesto ordinario que elabora el Centro cada año, se considerará una suma estimada para cubrir los gastos de representación institucional, que siempre, durante su ejecución, estarán sujetos a la disponibilidad presupuestaria.
