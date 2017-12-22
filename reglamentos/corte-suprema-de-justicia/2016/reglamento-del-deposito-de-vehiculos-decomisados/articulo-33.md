@@ -1,0 +1,1 @@
+ARTÍCULO 33.- La autoridad judicial competente debe informar a la persona encargada del Depósito las medidas que tomen sobre los vehículos decomisados a su orden y que permanezcan en custodio de esa Dependencia.

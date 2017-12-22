@@ -1,0 +1,1 @@
+ARTÍCULO 30.- No se permitir á el ingreso al Depósito de personas particulares a la institución portando armas de fuego, por lo que deberán entregarlas al personal de seguridad al ingresar, quien las custodiará hasta que los particulares abandonen la Ciudad Judicial de San Joaquín de Flores.

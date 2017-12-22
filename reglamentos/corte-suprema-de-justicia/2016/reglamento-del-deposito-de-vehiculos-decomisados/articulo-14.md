@@ -1,0 +1,1 @@
+ARTÍCULO 14.- Para tramitar la entrega de un bien decomisado, el despacho judicial enviará al Depósito la fórmula de entrega del vehículo, vía fax o por cualquier otro medio idóneo. La persona interesada consultará al Depósito y concertará una cita para la entrega de cualquier tipo de vehículo o de las partes de éstos.

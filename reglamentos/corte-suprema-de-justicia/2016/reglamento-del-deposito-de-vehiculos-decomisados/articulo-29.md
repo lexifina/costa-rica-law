@@ -1,0 +1,1 @@
+ARTÍCULO 29.La persona encargada del Depósito dispondrá, junto a la persona coordinadora del área de seguridad de la Administración de la Ciudad Judicial, la ubicación y ó funciones de los oficiales de seguridad que resguarden el Depósito.

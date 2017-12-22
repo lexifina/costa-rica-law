@@ -1,0 +1,2 @@
+ARTÍCULO 5.- Toda persona que ingrese al Depósito, para tratar de identificar un vehículo de su propiedad, lo hará dentro del horario de visita de ingreso que establezca la persona encargada del Depósito.
+Solamente ingresará una persona por vehículo, sea la persona denunciante, dueña registral o quien obstente el poder legal para representarlas, estableciéndose las medidas de seguridad correspondientes para su debido control. Se prohibe expresamente la toma de fotografías y de cualquiera otra información de los vehículos que se encuentran dentro del Depósito.

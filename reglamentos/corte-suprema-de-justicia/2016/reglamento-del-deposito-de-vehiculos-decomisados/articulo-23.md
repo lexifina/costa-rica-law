@@ -1,0 +1,1 @@
+ARTÍCULO 23.- Cuando el Depósito recibe el comunicado de la disposición del bien, por parte de la autoridad judicial, mediante resolución u oficio, la persona encargada del Depósito deberá coordinaren forma inmediata con el Departamento de Proveeduría, a efecto de que el Perito Automotriz valore los bienes, de manera que no se corra el riesgo de que se produzca mayor deterioro.

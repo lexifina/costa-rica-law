@@ -1,0 +1,1 @@
+ARTÍCULO 35.- Semestralmente la persona encargada del Depósito, enviará a la Administración de la Ciudad Judicial, un informe sobre los vehículos que de manera excepcional ingresan sin reporte de causa o motivo por el cual se encuentran decomisados.

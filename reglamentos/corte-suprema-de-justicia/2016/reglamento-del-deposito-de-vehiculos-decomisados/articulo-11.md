@@ -1,0 +1,1 @@
+ARTÍCULO 11.- Ante indicio o sospecha de que un vehículo pueda transportar un material explosivo, se coordinar á con la autoridad respectiva para la desactivación inmediata. Lo anterior previa comunicación a la autoridad competente que tiene a la orden el bien custodiado.

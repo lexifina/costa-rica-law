@@ -1,0 +1,4 @@
+CAPÍTULO SEGUNDO
+DEL INGRESO AL DEPÓSITO Y RECONOCIMIENTO DE
+VEHÍCULOS DECOMISADOS
+ARTÍCULO 4.- El ingreso de personas a las instalaciones del Depósito es restringido. Las personas servidoras judiciales sin excepción, deberán informar al encargado del depósito, el motivo de su ingreso. Las personas particulares deberán ser autorizadas por la persona encargada del depósito, previa comprobación por parte de éste de la denuncia que hallan formulado ante el Organismo de Investigación Judicial, o cualquier otra dependencia del Ministerio Público, por robo de su vehículo u otros delitos similares, y deberán presentar copia de la denuncia o bien nota sellada por la Autoridad Judicial, autorizando a la persona interesada para el reconocimiento del bien. No se permitir á el ingreso de vehículos particulares a los patios del Depósito y los vehículos oficiales ingresarán únicamente con autorización de la persona encargada.

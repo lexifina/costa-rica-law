@@ -1,0 +1,1 @@
+ARTÍCULO 12.- La persona encargada del Depósito autorizar á a las personas propietarias de vehículos que quieran protegerlos de las inclemencias del tiempo, a utilizar un plástico o cualquier otro dispositivo transparente sobre ellos, el cual deberán de sujetarlo adecuadamente, siempre haciéndose acompañar de una persona funcionaria del Depósito.

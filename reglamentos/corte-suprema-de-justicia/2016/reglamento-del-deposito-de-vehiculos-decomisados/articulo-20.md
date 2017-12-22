@@ -1,0 +1,1 @@
+ARTÍCULO 20.- Si el vehículo hallado, presenta alteraciones en el número de chasis, VIN, motor, marco, podrá ser enviado al Depósito y ala espera que la persona encargada de la investigación ordene, dentro delos ocho días hábiles siguientes la realización de la pericia físico química correspondiente.
