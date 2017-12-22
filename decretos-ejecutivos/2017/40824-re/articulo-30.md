@@ -1,0 +1,1 @@
+Artículo 30.- Evacuación de prueba. De conformidad con el artículo 11 de la Ley N° 8142, del 5 de noviembre de 2001, una vez contestada la queja por el traductor o intérprete oficial, o transcurrido el término conferido para ello, la Dirección Jurídica del Ministerio de Relaciones Exteriores y Culto procederá a evacuar la prueba ofrecida, dentro del término de diez días hábiles.

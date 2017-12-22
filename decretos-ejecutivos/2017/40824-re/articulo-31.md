@@ -1,0 +1,1 @@
+Artículo 31.- Resolución. Una vez evacuada la prueba de ambas partes, la Dirección Jurídica dictará la resolución final en el plazo de un mes, la cual será apelable ante el Ministro de Relaciones Exteriores y Culto, dentro del término de tres días hábiles. Una vez dictado el fallo por el superior, se tendrá por agotada la vía administrativa.

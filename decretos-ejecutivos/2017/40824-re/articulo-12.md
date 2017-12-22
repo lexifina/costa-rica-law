@@ -1,0 +1,1 @@
+Artículo 12.- Calidad del trabajo. El Traductor o Intérprete Oficial debe realizar personalmente el trabajo al que se compromete con la capacidad, dedicación, responsabilidad, diligencia y con la mayor calidad posible.

@@ -1,0 +1,11 @@
+CAPÍTULO II
+Selección y Nombramiento
+Artículo 4.- Requisitos para ser autorizado a realizar el examen técnico. El aspirante a Traductor o Intérprete Oficial deberá presentar ante la Dirección Jurídica del Ministerio de Relaciones Exteriores y Culto:
+a) Formulario de solicitud de autorización para realizar los exámenes que lo acrediten como Traductor o Intérprete Oficial, indicando las lenguas en las cuales desea realizar las pruebas, el cual se encuentra disponible en el anexo 1 de este Reglamento, cuyo formato podrá ser objeto de futuras modificaciones, no así su contenido.
+b) Original del documento de identidad vigente, el cual será confrontado y se dejará constancia que se tuvo a la vista, y que éste coincide en todo con los datos del interesado.
+c) Certificación expedida por la Dirección General de Migración y Extranjería de que tiene al menos 5 años de residir en el país en forma continúa.
+d) Dos fotografías tamaño pasaporte. e) Fotocopia, que será confrontada con el original, de títulos universitarios o parauniversitarios que comprueben su capacidad y conocimiento como traductor o intérprete profesional en las lenguas en las que solicita realizar las pruebas. Se acreditarán solamente niveles superiores al técnico, éste inclusive.
+f) Certificación del idioma en donde se indique que posee un nivel C1 en el caso de solicitar autorización para realizar el examen en los idiomas inglés o francés y nivel C2 en el caso de alemán, italiano o portugués. Se levanta este requisito para otros idiomas, siempre y cuando los otros atestados de la persona interesada demuestren su experiencia como traductor y/o intérprete.
+g) Documentación, que compruebe que el interesado cuenta con al menos cinco años de experiencia continua en el ejercicio de la traducción o interpretación profesional en cada una de las lenguas en que solicita el nombramiento y que conoce el manejo de las herramientas informáticas, materiales y equipos requeridos para el óptimo desempeño de las labores como Traductor o Intérprete Oficial.
+h) Referencias de tres personas, que no sean familiares hasta segundo grado por consanguinidad o afinidad del aspirante, que puedan informar sobre mínimo tres traducciones o interpretaciones realizadas en los últimos cinco años por la persona interesada.
+i) Currículum actualizado.

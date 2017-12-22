@@ -1,0 +1,2 @@
+Artículo 28.- Presentación de queja. La persona que considere que ha sido perjudicada por el servicio prestado por un traductor y/o intérprete oficial podrá presentar queja, por escrito, ante la Dirección Jurídica del Ministerio de Relaciones Exteriores y Culto.
+La queja deberá indicar nombre y calidades del gestionante, el nombre del traductor o intérprete oficial a quien se refiere, los hechos en que se basa, la prueba en que se apoya y lugar para oír notificaciones.

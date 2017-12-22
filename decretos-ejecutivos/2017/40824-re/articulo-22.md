@@ -1,0 +1,3 @@
+Artículo 22.- Cierre. Después del final del texto traducido debe incluirse la leyenda: "En fe de lo cual se expide la presente Traducción Oficial del ____________al español, comprensiva de _____ páginas. Firmo y sello en la ciudad de _____ a los ____ días del mes de _____del año ________. Se cancelan las especies fiscales de ley".
+En las traducciones oficiales a un idioma extranjero, la misma leyenda debe plasmarse en el idioma en que se traduce el documento.
+El Traductor Oficial debe firmar su traducción en la línea inmediata posterior al cierre y estampar el sello de Traductor Oficial. Asimismo, deberá acreditarse la cancelación de las especies fiscales para certificación.

@@ -1,0 +1,1 @@
+Artículo 13.- Cumplimiento de directrices. El Traductor o Intérprete Oficial debe cumplir con las directrices emitidas por el Ministerio de Relaciones Exteriores y Culto, por medio de la Dirección Jurídica. El incumplimiento de las directrices le hará merecedor de las sanciones disciplinarias respectivas, de conformidad con las disposiciones del presente Reglamento.

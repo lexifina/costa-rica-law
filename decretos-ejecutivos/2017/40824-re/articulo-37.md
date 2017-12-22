@@ -1,0 +1,1 @@
+Artículo 37.- Habilitación de Traductor Inhabilitado. En caso de que un Traductor o Intérprete Oficial haya sido inhabilitado por la causal establecida en el artículo 34 inciso C del presente Reglamento, deberá solicitar a la Dirección Jurídica su habilitación, una vez cumplido el plazo de inhabilitación dispuesto por la autoridad competente.

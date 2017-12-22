@@ -1,0 +1,1 @@
+Artículo 24.- Abreviaturas, cifras, nombres propios y direcciones. En las traducciones oficiales el profesional deberá respetar, según las convenciones lingüísticas y traductológicas, el uso de abreviaturas, cifras y nombres propios y direcciones, cuando unas y otras figuren en los documentos originales, a menos que existan equivalencias debidamente aceptadas.

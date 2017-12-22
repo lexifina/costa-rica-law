@@ -1,0 +1,1 @@
+Artículo 5.- Verificación de requisitos. Presentados los requisitos anteriormente citados la administración verificará que se cumplan y se le prevendrá por una única vez para que dentro del plazo de tres días hábiles complete los requisitos omitidos en el trámite o que aclare o subsane la información presentada.

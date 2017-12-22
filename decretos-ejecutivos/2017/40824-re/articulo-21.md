@@ -1,0 +1,4 @@
+Artículo 21.- Texto de la traducción. Inmediatamente después del encabezado antes señalado, se escribe el texto de la Traducción Oficial, que deberá atender a las características establecidas en el artículo 19 del presente Reglamento.
+El Traductor Oficial podrá realizar, a su discreción, cualquier aclaración u observación pertinente con una Nota de Traductor. Dichas notas deben aparecer antes de cerrar la traducción.
+Al final del texto de la traducción, en el renglón siguiente, se indicará la leyenda: "Última línea de la traducción".
+A solicitud de parte o cuando así lo considere el Traductor Oficial, se anexará a los textos de la traducción impresa una copia del texto original en la lengua fuente, con el sello y rúbrica del Traductor Oficial. En caso de que la Traducción Oficial sea digital, la copia del texto original se puede anexar en un archivo separado en formato pdf.

@@ -1,0 +1,1 @@
+Artículo 16.- Autenticación de la firma del traductor. Las Traducciones Oficiales destinadas al exterior requieren la autenticación de la firma del Traductor Oficial por la Oficina de Autenticaciones del Ministerio de Relaciones Exteriores y Culto.
