@@ -1,0 +1,1 @@
+Artículo 9°.-De los delitos aduaneros, infracciones administrativas y tributarias aduaneras. Al Gestor Interesado de la Terminal de Contenedores de Moín le serán aplicables las disposiciones establecidas en el Título X de la Ley General de Aduanas, Ley N° 7557.

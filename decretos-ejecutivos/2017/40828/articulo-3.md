@@ -1,0 +1,3 @@
+CAPÍTULO II
+Del Gestor Interesado de la Terminal de Contenedores de Moín
+Artículo 3°.-Requisitos generales. En su condición de concesionario, el Gestor Interesado de los Servicios Públicos de la Terminal de Contenedores de Moín, deberá cumplir con las responsabilidades, requisitos y obligaciones de los Auxiliares de la Función Pública Aduanera, contenidos en los artículos 28, 29, 29 bis, 30, 31, 32,49 y 50, siguientes y concordantes de la Ley General de Aduanas, Ley N° 7557; y lo dispuesto en los artículos del 77 al 103, siguientes y concordantes del Reglamento a la Ley General de Aduanas, Decreto Ejecutivo N° 25270-H.

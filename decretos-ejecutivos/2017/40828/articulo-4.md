@@ -1,0 +1,1 @@
+Artículo 4°.-Garantía. El Gestor Interesado de los Servicios Públicos de la Terminal de Contenedores de Moín, deberá rendir una garantía anual de cien mil pesos centroamericanos o su equivalente en moneda nacional, la que deberá ser renovada anualmente en el mes de agosto, en los términos de los artículos 89 al 93 del Reglamento a la Ley General de Aduanas.

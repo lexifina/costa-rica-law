@@ -1,0 +1,1 @@
+Artículo 5°.-Horario de servicio. En su calidad de Auxiliar de la Función Pública Aduanera, el Gestor Interesado de los Servicios Públicos de la Terminal de Contenedores de Moín, deberá prestar sus servicios las 24 horas del día durante los 365 días del año.
