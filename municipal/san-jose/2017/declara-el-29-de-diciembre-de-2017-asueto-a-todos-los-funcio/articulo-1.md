@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE SAN JOSÉ
+DECLARACIÓN DE ASUETO EN SAN JOSÉ
+EL DÍA 29 DE DICIEMBRE DE 2017
+El Concejo Municipal de San José declara asueto el día 29 de diciembre de 2017, a todos los funcionarios públicos del cantón Central de San José. Esto por celebrarse las fiestas cívico patronales según lo dispuesto por el artículo 2 de la Ley 6725 de fecha 10 de marzo de 1982 y sus reformas. La decisión se adoptó mediante acuerdo 2, artículo IV de la sesión ordinaria Nº 078, celebrada por la Corporación Municipal del cantón Central de San José, el 24 de octubre de dos mil diecisiete. Se exceptúan aquellos servidores que por la índole de sus funciones deben laborar en esa fecha, según lo indicado en el Decreto 40756-MPG del 23 de noviembre de dos mil diecisiete, firmado por el Presidente de la República y el Ministro de Gobernación y Policía.
