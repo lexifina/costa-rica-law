@@ -1,0 +1,1 @@
+TRANSITORIO I. Para aquellos productos que ya se comercializan en el mercado nacional que se encuentran debidamente registrados, se otorga un plazo de cinco años, a partir de la vigencia de este decreto, para agotar la existencia de las etiquetas ya impresas.

@@ -1,0 +1,1 @@
+TRANSITORIO II. Si en el momento de la renovación del registro sanitario no se han agotado las etiquetas impresas, debe presentar para la renovación del registro, el proyecto de etiqueta según los requisitos establecidos en este reglamento, aunque pueda continuar utilizando las etiquetas impresas hasta que se cumpla el período de los cinco años dado en el Transitorio 1.

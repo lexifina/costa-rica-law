@@ -1,0 +1,1 @@
+Artículo 3.- Deróguese el artículo 9 y los anexos 4 y 5 del Decreto Ejecutivo N° 28113-S del 10 de setiembre de 1999 "Reglamento para el Registro de Productos químicos peligrosos" publicado en el Alcance N° 74 a La Gaceta N° 194 del 6 de octubre de 1999.
