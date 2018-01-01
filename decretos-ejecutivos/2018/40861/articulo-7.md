@@ -1,0 +1,1 @@
+Artículo 7°-Se ratifica el derecho de los trabajadores y trabajadoras públicas, a continuar percibiendo el salario escolar, en las condiciones legales que hasta la fecha han prevalecido, por lo tanto se otorga un 8,33% por concepto de salarios escolar de conformidad con el artículo 1 inciso c) de la resolución DG-11-20 I 6 de fecha 19 de enero del 2016.

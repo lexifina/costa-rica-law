@@ -1,0 +1,1 @@
+Artículo 5º-Se excluye de este aumento al Presidente de la República, Vicepresidentes, Ministros (as), Vicerninistros (as), Presidentes (as) Ejecutivos (as), Gerentes (as) y Subgerentes (as) del Sector Público Descentralizado.
