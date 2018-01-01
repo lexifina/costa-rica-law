@@ -1,0 +1,1 @@
+Artículo 2º—Las retenciones reguladas en la presente resolución no se aplicarán a las entidades no sujetas de conformidad con el artículo 3º de la Ley del Impuesto sobre la Renta, ni a los contribuyentes del Régimen de Tributación Simplificada. Para estos efectos, la Administración Tributaria pondrá a disposición de las empresas aseguradoras el listado respectivo.
