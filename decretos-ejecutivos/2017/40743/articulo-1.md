@@ -15,7 +15,7 @@ EL SECTOR PRIVADO QUE REGIRÁN A
 PARTIR DEL l º DE ENERO DE 2018
 Artículo 1 º-Fíjense los salarios mínimos que regirán en todo el país a partir del 1 º de enero de 2018, de la siguiente manera:
 1 A- AGRICULTURA, (Subsectores: Agrícola, Ganadero, Silvícola, Pesquero, Acuícola), EXPLOTACIÓN DE MINAS Y CANTERAS, INDUSTRIAS MANUFACTURERAS, CONSTRUCCIÓN, ELECTRICIDAD, COMERCIO, TURISMO, SERVICIOS, TRANSPORTES Y ALMACENAMIENTOS. (Por jornada ordinaria)
-Trabajadores no Calificados ¢10.060,75 (Nota de Sinalevi: mediante resolución N° CNS-RG-3-2017 del 13 de noviembre de 2017, se acordó lo siguiente: “que el Puesto de Recolector de Coyol, se excluya del Decreto de Salarios Mínimos como un reglón especifico y se ubique en el reglón ocupacional de Trabajador No Calificado, con un salario mínimo de ¢9.822,07 por jornada ordinaria.”)
+Trabajadores no Calificados ¢10.060,75 (Nota de Sinalevi: Mediante resolución N° CNS-RG-3-2017 del 13 de noviembre de 2017, se acordó lo siguiente: "que el Puesto de Recolector de Coyol, se excluya del Decreto de Salarios Mínimos como un reglón especifico y se ubique en el reglón ocupacional de Trabajador No Calificado, con un salario mínimo de ¢9.822,07 por jornada ordinaria.")
 Trabajadores Semicalificados | ¢10.940,34
 Trabajadores Calificados | ¢11.141,73
 Trabajadores Especializados | ¢13.141,39
@@ -32,7 +32,7 @@ Los salarios para profesionales aquí incluidos rigen para aquellos trabajadores
 Los profesionales contratados en las condiciones señaladas en los dos párrafos anteriores, que estén sujetos a disponibilidad, bajo los límites señalados en el artículo 143 del Código de Trabajo, tendrán derecho a percibir un 23% adicional sobre el salario mínimo estipulado según su grado académico de Bachilleres o Licenciados universitarios.
 C-RELATIVO A FIJACIONES ESPECÍFICAS
 Recolectores de café (por cajuela) | ¢957,92
-Recolectores de coyol (por kilo) (Nota de Sinalevi: Mediante resolución N° CNS-RG-3-2017 del 13 de noviembre de 2017, se acordó lo siguiente: “que el Puesto de Recolector de Coyol, se excluya del Decreto de Salarios Mínimos como un reglón especifico y se ubique en el reglón ocupacional de Trabajador No Calificado, con un salario mínimo de ¢9.822,07 por jornada ordinaria.”) Servicio doméstico (por mes) | ¢ 31,50 ¢183.046,00
+Recolectores de coyol (por kilo) (Nota de Sinalevi: Mediante resolución N° CNS-RG-3-2017 del 13 de noviembre de 2017, se acordó lo siguiente: "que el Puesto de Recolector de Coyol, se excluya del Decreto de Salarios Mínimos como un reglón especifico y se ubique en el reglón ocupacional de Trabajador No Calificado, con un salario mínimo de ¢9.822,07 por jornada ordinaria.") Servicio doméstico (por mes) (Nota de Sinalevi: Mediante resolución N° CNS-RG-4-2017 del 4 de diciembre de 2017, se acordó otorgar al Puesto de Servicio Doméstico un incremento adicional de 0,50%, quedando fijado un incremento total de 2,93% para el salario mínimo de dicho puesto a partir de enero del 2018.) | ¢ 31,50 ¢183.046,00
 Trabajadores de especialización superior 1 | ¢20.394, 1 O
 Periodistas contratados como tales (incluye el 23% en razón de disponibilidad) (por mes) Estibadores por kilo de frutas y vegetales | ¢793.998.07 ¢0,0691 (Corregido el monto anterior mediante Fe de Erratas y publicada en la Gaceta N° 235 del 12 de diciembre de 2017, página N° 32. Anteriormente se indicaba: “¢0,07”)
 Estibadores por tonelada | ¢85,47
