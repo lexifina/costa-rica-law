@@ -1,0 +1,1 @@
+ARTÍCULO 2. De conformidad con la autorización conferida en el artículo que antecede las instituciones que vayan a hacer uso de su superávit libre deberán informar a la Tesorería Nacional con copia de la Secretaria Técnica de la Autoridad Presupuestaria, más tardar al 16 de febrero del 2018 del saldo del mismo.
