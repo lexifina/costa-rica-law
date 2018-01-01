@@ -1,0 +1,3 @@
+Título 2.
+Delitos informáticos
+Artículo 7. Falsificación informática. Cada Parte adoptará las medidas legislativas y de otro tipo que resulten necesarias para tipificar como delito penal en su derecho interno, cuando se cometa de forma deliberada e ilegítima, la introducción, alteración, borrado o supresión de datos informáticos que dé lugar a datos no auténticos, con la intención de que sean tenidos en cuenta o utilizados a efectos legales como si se tratara de datos auténticos, con independencia de que los datos sean directamente legibles e inteligibles. Cualquier parte podrá exigir que exista una intención fraudulenta o una intención delictiva similar para que se considere que existe responsabilidad penal.

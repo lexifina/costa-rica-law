@@ -1,0 +1,7 @@
+Artículo 28 - Confidencialidad y restricción de la utilización
+1. En ausencia de un tratado de asistencia mutua o de un acuerdo basado en legislación uniforme o recíproca que esté vigente entre las Partes requirente y requerida, serán de aplicación las disposiciones del presente artículo. Las disposiciones del presente artículo no serán de aplicación cuando exista un tratado, acuerdo o legislación de este tipo, salvo que las Partes interesadas convengan en aplicar en su lugar la totalidad o una parte del resto del presente artículo.
+2. La Parte requerida podrá supeditar la entrega de información o material en respuesta a una solicitud a la condición de que:
+a. se preserve su confidencialidad cuando la solicitud de asistencia judicial mutua no pueda ser atendida en ausencia de esta condición, o
+b. no se utilicen para investigaciones o procedimientos distintos de los indicados en la solicitud.
+3. Si la Parte requirente no puede cumplir alguna condición de las mencionadas en el apartado 2, informar de ello sin demora a la otra Parte, que determinará en tal caso si pese a ello debe facilitarse la información. Cuando la Parte requirente acepte la condición, quedar· vinculada por ella.
+4. Cualquier Parte que facilite información o material con sujeción a una condición con arreglo a lo dispuesto en el apartado 2 podrá requerir a la otra Parte que explique, en relación con dicha condición, el uso dado a dicha información o material.

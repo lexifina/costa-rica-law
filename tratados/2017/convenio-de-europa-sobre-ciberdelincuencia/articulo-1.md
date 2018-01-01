@@ -1,0 +1,39 @@
+N° 9452
+(Nota de Sinalevi: Mediante decreto ejecutivo N° 40546 del 3 de julio de 2017, Costa Rica se adhiere al presente Convenio.)
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+APROBACIÓN DE LA ADHESIÓN AL CONVENIO
+SOBRE LA CIBERDELINCUENCIA
+ARTÍCULO 1.-Aprobación. Se aprueba, en cada una de sus partes, la Aprobación de la Adhesión al Convenio sobre la Ciberdelincuencia, hecha en Budapest el 23 de noviembre de 2001. El texto es el siguiente:
+Convenio sobre la Ciberdelincuencia --
+[Budapest, 23.XI. 2001]
+Preámbulo
+Cada Parte miembros del Consejo de Europa y los otros Estados signatarios del presente Convenio,
+Considerando que el objetivo del Consejo de Europa es conseguir una unión más estrecha entre sus miembros;
+Reconociendo el interés de intensificar la cooperación con Cada Parte parte en el presente Convenio;
+Convencidos de la necesidad de aplicar, con carácter prioritario, una política penal común destinada a proteger a la sociedad frente a la ciberdelincuencia, entre otras formas, mediante la adopción de la legislación apropiada y el fomento de la cooperación internacional;
+Conscientes de los profundos cambios suscitados por la digitalización, la convergencia y la globalización continua de las redes informáticas;
+Preocupados por el riesgo de que las redes informáticas y la información electrónica sean utilizadas igualmente para cometer delitos y que las pruebas relativas a dichos delitos sean almacenadas y transmitidas por medio de esas redes;
+Reconociendo la necesidad de una cooperación entre Cada Parte y el sector privado en la lucha contra la ciberdelincuencia, así como la necesidad de proteger los legítimos intereses en la utilización y el desarrollo de las tecnologías de la información;
+En la creencia de que la lucha efectiva contra la ciberdelincuencia requiere una cooperación internacional en materia penal reforzada, rápida y operativa;
+Convencidos de que el presente Convenio resulta necesario para prevenir los actos dirigidos contra la confidencialidad, la integridad y la disponibilidad de los sistemas informáticos, redes y datos informáticos, así como el abuso de dichos sistemas, redes y datos, mediante la tipificación de esos actos, tal y como se definen en el presente Convenio, y la asunción de poderes suficientes para luchar de forma efectiva contra dichos delitos, facilitando su detección, investigación y sanción, tanto a nivel nacional como internacional, y estableciendo disposiciones que permitan una cooperación internacional rápida y fiable;
+Conscientes de la necesidad de garantizar el debido equilibrio entre los intereses de la acción penal y el respeto de los derechos humanos fundamentales consagrados en el Convenio del Consejo de Europa para la Protección de los Derechos Humanos y de las Libertades Fundamentales (1950), el Pacto Internacional de Derechos Civiles y Políticos de las Naciones Unidas (1966), y otros tratados internacionales aplicables en materia de derechos humanos, que reafirman el derecho de todos a defender sus opiniones sin interferencia alguna, así como la libertad de expresión, que comprende la libertad de buscar, obtener y comunicar información e ideas de todo tipo, sin consideración de fronteras, así como el derecho al respeto a la intimidad;
+Conscientes igualmente del derecho a la protección de los datos personales, tal y como se reconoce, por ejemplo, el Convenio de 1981 del Consejo de Europa para la protección de las personas con respecto al tratamiento informatizado de datos personales;
+Considerando la Convención de las Naciones Unidas sobre los Derechos del Niño (1989) y el Convenio de la Organización Internacional del Trabajo sobre las peores formas de trabajo de menores (1999);
+Teniendo en cuenta los convenios existentes del Consejo de Europa sobre cooperación en materia penal, así como otros tratados similares celebrados entre Cada Parte miembros del Consejo de Europa y otros Estados, y subrayando que el presente Convenio pretende completar dichos Convenios con objeto de dotar de mayor eficacia las investigaciones y los procedimientos penales relativos a los delitos relacionados con los sistemas y datos informáticos, así como facilitar la obtención de pruebas electrónicas de los delitos;
+Congratulándose de las recientes iniciativas encaminadas a mejorar el entendimiento y la cooperación internacional en la lucha contra la ciberdelincuencia incluidas las medidas adoptadas por las Naciones Unidas, la OCDE, la Unión Europea y el G8;
+Recordando las recomendaciones del Comité de Ministros N.º (85) 10 relativa a la aplicación práctica del Convenio europeo de asistencia judicial en materia penal en relación con las comisiones rogatorias para la vigilancia de las telecomunicaciones, N.º R (88) 2 sobre medidas encaminadas a luchar contra la piratería en materia de propiedad intelectual y derechos afines, N.º R (87) 15 relativa a la regulación de la utilización de datos personales por la policía, N.º R
+(95) 4 sobre la protección de los datos personales en el ámbito de los servicios de telecomunicación, con especial referencia a los servicios telefónicos, así como N.º R (89) 9 sobre la delincuencia relacionada con la informática, que ofrece directrices a los legisladores nacionales para la definición de delitos informáticos, y N.º R (95) 13 relativa a las cuestiones de procedimiento penal vinculadas a la tecnología de la información;
+Teniendo en cuenta la Resolución N.º 1, adoptada por los Ministros europeos de Justicia, en su XXI Conferencia (Praga, 10 y 11 de junio 1997), que recomendaba al Comité de Ministros apoyar las actividades relativas a la ciberdelincuencia desarrolladas por el Comité Europeo de Problemas Penales (CDPC) para aproximar las legislaciones penales nacionales y permitir la utilización de medios de investigación eficaces en materia de delitos informáticos, así como la Resolución N.º 3, adoptada en la XXIII Conferencia de Ministros europeos de Justicia (Londres, 8 y 9 de junio de 2000), que animaba a las Partes negociadoras a proseguir sus esfuerzos para encontrar soluciones que permitan que el mayor número posible de Estados pasen a ser partes en el Convenio, y reconocía la necesidad de disponer de un sistema rápido y eficaz de cooperación internacional que refleje debidamente las exigencias específicas de la lucha contra la ciberdelincuencia;
+Teniendo asimismo en cuenta el Plan de Acción adoptado por los Jefes de Estado y de Gobierno del Consejo de Europa con ocasión de su Segunda Cumbre (Estrasburgo, 10 y 11 de octubre de 1997), para buscar respuestas comunes ante el desarrollo de las nuevas tecnologías de la información, basadas en las normas y los valores del Consejo de Europa;
+- Han convenido lo siguiente:
+Capítulo I.
+Terminología
+Artículo 1. Definiciones -
+A los efectos del presente Convenio,
+a) por «sistema informático» se entenderá todo dispositivo aislado o conjunto de dispositivos interconectados o relacionados entre sí, siempre que uno o varios de ellos permitan en ejecución de un programa;
+b) por «datos informáticos» se entenderá cualquier representación de hechos, información o conceptos de una forma que permita el tratamiento informático, incluido un programa destinado a hacer que un sistema informático ejecute una función;
+c) por «proveedor de servicios» se entenderá:
+i. toda entidad pública o privada que ofrezca a los usuarios de sus servicios la posibilidad de comunicar por medio de un sistema informático; y
+ii. cualquier otra entidad que procese o almacene datos informáticos para dicho servicio de comunicación o para los usuarios de ese servicio; --
+d) por «datos sobre el tráfico» se entenderá cualesquiera datos informáticos relativos a una comunicación por medio de un sistema informático, generados por un sistema informático como elemento de la cadena de comunicación, que indiquen el origen, destino, ruta, hora, fecha, tamaño y duración de la comunicación o el tipo de servicio subyacente

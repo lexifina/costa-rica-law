@@ -1,0 +1,1 @@
+Artículo 34 - Asistencia mutua relativa a la interceptación de datos sobre el contenido . Las Partes se prestarán asistencia mutua para la obtención o grabación en tiempo real de datos sobre el contenido de comunicaciones específicas transmitidas por medio de un sistema informático en la medida en que lo permitan sus tratados y el derecho interno aplicables.

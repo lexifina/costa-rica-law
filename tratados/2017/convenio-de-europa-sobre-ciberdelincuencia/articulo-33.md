@@ -1,0 +1,3 @@
+Artículo 33 - Asistencia mutua para la obtención en tiempo real de datos sobre el tráfico
+1. Las Partes se prestarán asistencia mutua para la obtención en tiempo real de datos sobre el tráfico asociados a comunicaciones específicas en su territorio transmitidas por medio de un sistema informático. Con sujeción a lo dispuesto en el apartado 2, dicha asistencia se regir· por las condiciones y procedimientos establecidos en el derecho interno.
+2. Cada Parte prestará dicha asistencia como mínimo respecto de los delitos por los que se podría conseguir la obtención en tiempo real de datos sobre el tráfico en un caso similar en su país.

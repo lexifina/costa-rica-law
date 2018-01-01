@@ -1,0 +1,6 @@
+Artículo 44 – Enmiendas
+1. Cualquier Estado Parte podrá· proponer enmiendas al presente Convenio, que serán comunicadas por el Secretario General del Consejo de Europa a los Estados miembros del Consejo de Europa, a los Estados no miembros que hayan participado en la elaboración del presente Convenio así como a cualquier Estado que se haya adherido al presente Convenio o que haya sido invitado a adherirse al mismo de conformidad con lo dispuesto en el artículo 37.
+2. Las enmiendas propuestas por una Parte serán comunicadas al Comité Europeo de Problemas Penales (CDPC), que presentar· al Comité de Ministros su opinión sobre la enmienda propuesta
+3. El Comité de Ministros examinará la enmienda propuesta y la opinión presentada por el CDPC y, previa consulta con los Estados Partes no miembros en el presente Convenio, podrá adoptar la enmienda.
+4. El texto de cualquier enmienda adoptada por el Comité de Ministros de conformidad con el apartado 3 del presente artículo será remitido a las Partes para su aceptación.
+5. Cualquier enmienda adoptada de conformidad con el apartado 3 del presente artículo entrar· en vigor treinta días después de que las Partes hayan comunicado su aceptación de la misma al Secretario General.
