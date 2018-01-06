@@ -1,0 +1,1 @@
+Artículo 15. — Servicio de electricidad y agua potable: Cada arrendatario de un parque, será responsable de solicitar al Instituto correspondiente y por su cuenta, el servicio que requiera para llevar a cabo la actividad, el servicio de electricidad y agua potable no se encuentran incluidos dentro de la tarifa de arrendamiento.

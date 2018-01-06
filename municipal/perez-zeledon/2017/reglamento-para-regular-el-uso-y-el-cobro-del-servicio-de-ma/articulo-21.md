@@ -1,0 +1,1 @@
+ARTÍCULO 21. — Todo el dinero recaudado por concepto de arriendo de parques municipales, se DEBERÁ restar de la tasa que según el distrito en que se encuentren, deberán cancelar por concepto de MANTENIMIENTO Y LIMPIEZA DE PARQUES, SITIOS PÚBLICOS Y ZONAS VERDES, los contribuyentes.

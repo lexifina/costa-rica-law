@@ -1,0 +1,1 @@
+Artículo 8. — A la tasa por concepto de mantenimiento y limpieza de parques, sitios públicos y zonas verdes, correspondiente, deberá descontarse el monto percibido por concepto de arrendamiento de parques, según el distrito en el cual se encuentre el parque arrendado, tal y como se verá más adelante.

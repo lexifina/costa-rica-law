@@ -1,0 +1,2 @@
+ARTÍCULO 22. — DE LAS DEVOLUCIONES DE DINEROS.
+La Municipalidad de Pérez Zeledón no realizará devolución alguna de dineros que fueran pagados por concepto de arrendamiento de parques, a excepción de lo anterior, se realizará la respectiva devolución en aquellos casos debidamente demostrados donde el monto pagado fuera superior al cálculo correcto, o cuando la actividad no pudiera realizarse por motivos de caso fortuito o fuerza mayor.

@@ -1,0 +1,1 @@
+Artículo 27. —Normas y leyes complementarias: En todo lo no previsto en este reglamento, se aplicarán supletoriamente las disposiciones del Código Municipal y cualquier otra ley o reglamento relacionado con el tema.
