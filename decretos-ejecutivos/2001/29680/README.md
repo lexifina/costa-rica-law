@@ -14,3 +14,4 @@ Reglamento de funcionamiento de la Comsión Nacional de Gestión para la Biodive
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-07 | la propia norma |
+| 2 | 2018-01-08 | Decreto Ejecutivo 40885 (2018-01-08) |
