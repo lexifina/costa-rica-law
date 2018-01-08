@@ -1,0 +1,1 @@
+Artículo 28°. Sanciones relativas a la venta ilegal. Quien comercialice bebidas con contenido alcohólico, sin contar con una licencia vigente y expedida por la Municipalidad de Turrialba, recibirá una sanción de sesenta días multa.

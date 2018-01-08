@@ -1,0 +1,1 @@
+Artículo 13°. En Caso de que la solicitud de licencia sea denegada, por el Departamento Patentes y la Alcaldía, el representante legal, puede solicitar que el Concejo Municipal asuma dicha solicitud como última instancia. Según con dictamen PGR C-221-2014.

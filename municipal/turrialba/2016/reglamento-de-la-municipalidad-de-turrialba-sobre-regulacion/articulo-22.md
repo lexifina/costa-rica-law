@@ -1,0 +1,4 @@
+Artículo 22.° Pago de derechos. En caso de autorizarse la licencia temporal, cuando proceda, previo informe técnico, se prevendrá por una única vez al solicitante de realizar el pago de los derechos de dicha licencia, como condición para el otorgamiento de la misma, si en cinco días hábiles antes del evento no se ha pagado dicho monto se rechazará la solicitud.
+La obtención de licencias temporales para la comercialización de bebidas con contenido¿ alcohólico, conllevará un pago que se determinara de la siguiente forma:
+a) Las personas jurídicas sin fines de lucro, Asociaciones de Desarrollo, Cruz Roja, Hogar de Ancianos, pagarán: 5% de un salario base por puesto, por cada día que dure la actividad.
+b) Las personas físicas jurídicas con actividades económicas lucrativas pagarán: 10 % de un salario base por cada día que dure la actividad.

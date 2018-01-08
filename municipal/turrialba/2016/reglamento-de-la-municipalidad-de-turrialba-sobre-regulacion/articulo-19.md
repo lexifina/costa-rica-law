@@ -1,0 +1,5 @@
+SECCIÓN TERCERA
+De las licencias temporales
+Artículo 19°. Otorgamiento. El Concejo Municipal por acuerdo simple otorgará la licencia temporal de expendio de bebidas con contenido alcohólico. El otorgamiento o su negativa serán resueltos en 8 días hábiles máximo desde la fecha de la aprobación interna del Departamento de Patentes quien verificará el cumplimiento de todos los requisitos estipulados en la ley 9047 y el presente Reglamento, en un plazo de 5 días hábiles. Las prevenciones por falta de requisitos se realizarán conforme el artículo 10 del presente reglamento.
+Estas licencias serán otorgadas con el fin de habilitar el expendio de bebidas con contenido alcohólico en envase abierto para consumo dentro de la zona establecida en ocasiones específicas, tales como fiestas cívicas, populares, ferias y afines.
+Deberán ser solicitadas específicamente por la persona o entidad que va a ejecutar la explotación en forma directa, indistintamente si se trata del ente organizador de la actividad o del adjudicatario del derecho mediante remate de puestos.
