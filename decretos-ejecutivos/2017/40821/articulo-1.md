@@ -1,0 +1,44 @@
+No. 40821-S
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+En ejercicio de las facultades y atribuciones contenidas en los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; 25, 27 párrafo primero, 28 párrafo segundo, inciso b) de la Ley No. 6227 del 2 de mayo de 1978, "Ley General de la Administración Pública"; 1, 2, 4, 28, 125, 128, 129, 130, 131, 132, 133, 134, 135, 136, 137, 345 y 356 de la Ley No. 5395 del 30 de octubre de 1973, " Ley General de Salud"; 18, 19 y 52 de la Ley No. 5412 del 8 de noviembre de 1973 "Ley Orgánica del Ministerio de Salud", 1, 2, 3, 65, 118 inciso d) y 119 de la Ley No. 8204 del 26 de diciembre de 2001, "Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, actividades conexas, legitimación de capitales y financiamiento al terrorismo".
+CONSIDERANDO:
+1. Que la salud de la población es tanto un derecho fundamental, como un bien de interés público tutelado por el Estado.
+2. Que el artículo 18 de la Ley Orgánica del Ministerio de Salud establece que la Junta de Vigilancia de Drogas Estupefacientes será el órgano encargado de vigilar y controlar la importación, existencia y venta de cualquier droga estupefaciente y de los productos que por su uso puedan producir dependencia física o psíquica en las personas. DAJ-SM-1465-2017
+3. Que mediante el Decreto Ejecutivo No. 37111-S del 12 de enero de 2012, se publicó en el Alcance No. 72 a La Gaceta No. 108 del 05 de junio de 2012, el Reglamento para el Control de Drogas Estupefacientes y Psicotrópicas.
+4. Que el artículo 2 inciso g) del Reglamento para el Control de Drogas Estupefacientes y Psicotrópicas, Decreto Ejecutivo No. 37111-S, señala que le corresponde a la Junta de Vigilancia de Drogas realizar las acciones operativas de control y fiscalización a través de la Dirección, en coordinación con las Áreas Rectoras de Salud, mediante inspecciones, verificaciones, análisis de informes o cualquier otra medida especial que se considere procedente.
+5. Que el artículo 59 de ese mismo Reglamento indica que las Direcciones de las Áreas Rectoras de Salud a solicitud de la Junta y en coordinación con la Dirección, realizarán las inspecciones y verificaciones de los inventarios y las condiciones de manejo de los estupefacientes y los psicotrópicos en los establecimientos farmacéuticos autorizados para su depósito, venta, distribución, despacho, uso en producción y manejo en general.
+6. Que el artículo 62 de ese mismo cuerpo normativo, a pesar de que autoriza a que en caso de demostrarse el incumplimiento al Reglamento citado, se apliquen las medidas especiales establecidas en el artículo 356 de la Ley General de Salud, no se establecen las condiciones o plazos que se aplicarán para las faltas cometidas.
+7. Que las medidas especiales son medidas que el Ministerio de Salud establece a fin de reforzar el respeto de las normas vigentes y, en su caso, corregir los efectos de su incumplimiento.
+8. Que dichas medidas son proporcionales a la gravedad de la falta cometida.
+9. Que el principio de proporcionalidad en materia de medidas especiales se centra en la búsqueda de un equilibrio entre la falta cometida y la medida impuesta.
+10. Que las medidas especiales no pueden apartarse de los criterios de finalidad, necesidad y proporcionalidad en estricto sentido.
+11. Que mediante el Decreto Ejecutivo No. 16765-S del 13 de diciembre de 1985, se publicó en La Gaceta No. 10 del 15 de enero de 1986 el Reglamento de Establecimientos Farmacéuticos Privados, en el cual entre otras cosas, se establecen las funciones de los farmacéuticos en los distintos establecimientos farmacéuticos.
+12. Que mediante el Decreto Ejecutivo No. 31969-S del 26 de mayo de 2004, publicado en La Gaceta No. 175 del 07 de setiembre de 2004 se emitió el Manual de Normas para la Habilitación de Farmacias, que rige las condiciones y requisitos mínimos que deben cumplir las farmacias encargadas de dispensar medicamentos, con el objetivo de garantizar un servicio de calidad, seguridad, igualdad, equidad y accesibilidad, para ser habilitados por el Ministerio de Salud. Dicha norma aplica para todas las farmacias públicas, privadas o mixtas.
+13. Que mediante el Decreto Ejecutivo No. 39984-S del 01 de setiembre de 2016, se publicó en el Alcance No. 252 a La Gaceta No. 215 del 09 de noviembre de 2016, el Reglamento de Utilización y Funcionamiento del Sistema Automatizado de Receta Digital de Psicotrópicos y estupefacientes, el cual implementa el Sistema Automatizado de Receta Digital de Psicotrópicos y Estupefacientes o Receta Digital de Psicotrópicos y Estupefacientes, lo que permite la gestión y control de la prescripción, la comercialización y el despacho de medicamentos psicotrópicos y estupefacientes, lo que permite efectuar en línea trámites, tales como: Registro de Profesionales en Medicina y Odontología, como prescriptores de este tipo de recetas, registro de Profesionales Farmacéuticos como los facultados a despachar dichas prescripciones, registro de Farmacias, Centros Hospitalarios públicos y privados, así como droguerías y laboratorios fabricantes como los establecimientos involucrados en la comercialización de este tipo de medicamentos, elaboración de la prescripción, registro automatizado de los movimientos de establecimientos comerciales de despacho de recetas, integración de información relativa a esta materia proveniente de los grupos de interés antes definidos, entre otras cosas.
+14. Que las funciones administrativas de la Junta de Vigilancia de Drogas son realizadas por la Dirección de Regulación de Productos de Interés Sanitario y la Dirección de Atención al Cliente.
+15. Que a solicitud de la Junta, se procedió a revisar dicho reglamento, determinándose que requiere modificaciones con el fin de actualizarlo y facilitar el control y la fiscalización sobre los estupefacientes y psicotrópicos de uso médico y científico.
+16. Que de conformidad con el artículo 12 bis del Decreto Ejecutivo No. 37045- MP-MEIC del 22 de febrero de 2012 “Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos” y su reforma, se considera que por la naturaleza del presente reglamento no es necesario completar la Sección I denominada Control Previo de Mejora Regulatoria, que conforma el formulario de Evaluación Costo Beneficio, toda vez que el mismo no establece trámites ni requerimientos para el administrado.
+POR TANTO,
+DECRETAN:
+MODIFICACIONES, ADICIONES Y DEROGATORIAS AL DECRETO
+EJECUTIVO No. 37111-S DEL 12 DE ENERO DE 2012, “REGLAMENTO PARA
+EL CONTROL DE DROGAS ESTUPEFACIENTES Y PSICOTRÓPICAS” Y
+MODIFICACIONES AL DECRETO EJECUTIVO No. 39984-S DEL 01 DE
+SETIEMBRE DE 2016, “REGLAMENTO DE UTILIZACIÓN Y
+FUNCIONAMIENTO DEL SISTEMA AUTOMATIZADO DE RECETA DIGITAL
+DE PSICOTRÓPICOS Y ESTUPEFACIENTES”
+Artículo 1.- Modifíquense los artículos 28 inciso e), 31, 62, 63 y 64 del Decreto Ejecutivo No. 37111-S del 12 de enero de 2012, publicado en el Alcance No. 72 a La Gaceta No. 108 del 05 de junio de 2012, “Reglamento para el Control de Drogas Estupefacientes y Psicotrópicas”, para que en lo sucesivo se lean así:
+“Artículo 28.- Los datos consignados en las recetas tendrán carácter de declaración jurada del facultativo y deberán ajustarse a las siguientes condiciones:
+“[...]”
+e. Contener instrucciones precisas para su administración: nombre del medicamento, concentración, dosis, vía de administración, período de administración y cantidad total a despachar en números y letras.”
+“Artículo 31.- El plazo máximo de presentación para el despacho de una receta de estupefacientes o de psicotrópicos en la farmacia es de siete días naturales a partir de la fecha de su emisión por el prescriptor.”
+“CAPÍTULO IX
+MEDIDAS ESPECIALES
+Artículo 62.- La Junta de Vigilancia de Drogas previa verificación del incumplimiento a lo establecido en el presente reglamento, aplicará las medidas especiales establecidas en los artículos 356 y 364 de la Ley General de Salud, sin menoscabo de la responsabilidad civil o penal en que hayan incurrido las personas físicas o jurídicas responsables de tal incumplimiento; y sin perjuicio de cualquier otra sanción que proceda de conformidad con la legislación vigente.
+Artículo 63.- La Junta de Vigilancia de Drogas, previo cumplimiento del debido proceso, podrá aplicar las medidas especiales según corresponda:
+1. Amonestación por escrito.
+2. Suspensión de la compra y venta de medicamentos psicotrópicos y estupefacientes, en el establecimiento farmacéutico.
+3. Suspensión de la compra y utilización de recetarios a los profesionales establecidos en el artículo 18 del presente reglamento.
+Lo anterior, sin perjuicio de la aplicación de otras medidas especiales establecidas en la Ley General de Salud.
+Artículo 64.- Las faltas que pueden ser sancionadas conformes al artículo 63 de este Reglamento, se clasifican en leves, graves y muy graves”.
