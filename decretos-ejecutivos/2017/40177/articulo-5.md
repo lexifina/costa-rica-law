@@ -1,1 +1,0 @@
-Artículo 5: El centro de monitoreo desde donde se dará seguimiento a las personas sentenciadas o indiciadas, a las que la autoridad jurisdiccional ordene la colocación de un mecanismo electrónico alternativo al cumplimiento de la privación de libertad, se ubicará en la Dirección de la Policía Penitenciaria o donde lo determine la Dirección General de Adaptación Social.

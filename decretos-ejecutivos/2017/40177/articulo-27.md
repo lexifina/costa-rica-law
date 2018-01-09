@@ -1,1 +1,0 @@
-Artículo 27: En caso de que la autoridad jurisdiccional disponga la revocatoria del seguimiento con mecanismos electrónicos, se notificará a la Fuerza Pública para la inmediata detención de la persona infractora y a la Dirección General de Adaptación Social para el registro correspondiente.

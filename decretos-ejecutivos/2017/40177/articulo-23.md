@@ -1,1 +1,0 @@
-Artículo 23: Cuando se ordene el enlace con la persona afectada por violencia de género, la Dirección General de Adaptación Social deberá informar a la Fuerza Pública de manera inmediata, en caso de infracción del perímetro o distancia establecidos, a efectos de activar los protocolos de actuación y resguardar la integridad de la víctima.

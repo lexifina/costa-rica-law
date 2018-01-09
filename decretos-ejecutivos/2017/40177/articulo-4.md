@@ -1,1 +1,0 @@
-Artículo 4: La Dirección General de Adaptación Social, a través de los niveles institucionales de atención a las personas en conflicto con la ley penal, dará acompañamiento a quienes se les aplique un mecanismo electrónico.

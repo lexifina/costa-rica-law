@@ -1,1 +1,0 @@
-Artículo 15: La modificación de las medidas cautelares de localización permanente con seguimiento electrónico se regirá por lo dispuesto en el Código Procesal Penal. En casos de urgencia, se procederá con arreglo al artículo 11 de este reglamento.
