@@ -1,3 +1,0 @@
-Artículo 53.—Definición. El Programa Nacional de Atención a Mujeres Sujetas a Sanción Penal es la unidad técnica y administrativa de la Dirección General de Adaptación Social encargada de brindar atención particularizada a las mujeres sujetas a sanción penal, de acuerdo con criterios técnicos y al principio de no discriminación.
-Tendrá competencia conformada por diversos centros penitenciarios y oficinas, de acuerdo con criterios técnicos y de atención a las mujeres sujetas a sanción penal.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 38139 del 27 de noviembre del 2013 "Crea el Programa Nacional de Atención a mujeres sujetas a sanción penal")

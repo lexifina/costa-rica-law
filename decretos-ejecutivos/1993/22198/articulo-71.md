@@ -1,4 +1,0 @@
-Artículo 71.—Ejecución de los Acuerdos. Una vez recibido el acuerdo del Instituto Nacional de Criminología, el Director dé Centro o Ámbito procederá a su ejecución inmediata, previo cumplimiento de lo dispuesto en el artículo anterior.
-Los traslados quedan sujetos a la coordinación entre los Directores de Centro y la comunicación previa al o los coordinadores de Nivel, debiendo enviarse el expediente del privado o privada de libertad con su respectivo cierre de proceso
-(Así reformado mediante el artículo 1° del Decreto Ejecutivo No. 27510, del 17 de noviembre de 1998.)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38139 del 27 de noviembre del 2013 "Crea el Programa Nacional de Atención a mujeres sujetas a sanción penal", que lo traspasó del antiguo artículo 67 al 71)

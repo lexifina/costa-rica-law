@@ -1,3 +1,0 @@
-Artículo 61: De los Directores o Directoras de Ambito
-El director o la directora de ámbito es el responsable del desarrollo y ejecución de las políticas técnico administrativas emanadas por los órganos competentes en el espacio físico en donde le corresponde ejercer su función. Presidirá el Consejo de Valoración de Ambito y deberá mantener una estrecha vinculación con el director o directora del Centro, verificando el efectivo cumplimiento de las directrices que éste emita.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38139 del 27 de noviembre del 2013 "Crea el Programa Nacional de Atención a mujeres sujetas a sanción penal", que lo traspasó del antiguo artículo 57 al 61)

@@ -1,2 +1,0 @@
-Artículo 57: De la Oficina Técnica del Nivel de Atención en Comunidad El responsable de la Oficina Técnica coordinará con la comunidad y sus instituciones públicas y privadas, la atención del privado o privada de libertad en estrecha relación con el Coordinador de Nivel.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38139 del 27 de noviembre del 2013 "Crea el Programa Nacional de Atención a mujeres sujetas a sanción penal", que lo traspasó del antiguo artículo 53 al 57)

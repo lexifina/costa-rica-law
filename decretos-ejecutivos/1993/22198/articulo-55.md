@@ -1,2 +1,0 @@
-Artículo 55.—Los procesos de atención particularizada para la población de mujeres sujetas a sanción penal serán creados y propuestos por el Programa, para la aprobación del Instituto Nacional de Criminología, que deberán ser puestos en vigencia mediante circulares y otras disposiciones.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 38139 del 27 de noviembre del 2013 "Crea el Programa Nacional de Atención a mujeres sujetas a sanción penal")

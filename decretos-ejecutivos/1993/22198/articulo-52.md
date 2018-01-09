@@ -1,2 +1,0 @@
-Artículo 52.—De los niveles y fases de atención. Para el cumplimiento del proyecto institucional se establecen cinco niveles de intervención: Atención Institucional, Atención Semi-institucional, Atención en Comunidad, Programa de Atención a Niños, Niñas y Adolescentes y Programa de Mujeres Sujetas a Sanciones Penales.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 38139 del 27 de noviembre del 2013 "Crea el Programa Nacional de Atención a mujeres sujetas a sanción penal")
