@@ -1,0 +1,4 @@
+ARTÍCULO 21
+IDIOMAS DEL TRATADO
+1. El presente Tratado se firmará en un solo ejemplar original en español, árabe, chino, francés, inglés y ruso, considerándose igualmente auténticos todos los textos.
+2. A petición de una parte interesada, el Director General de la OMPI establecerá un texto oficial en un idioma no mencionado en el artículo 21.1), previa consulta con todas las partes interesadas. A los efectos del presente párrafo, se entenderá por “parte interesada” todo Estado miembro de la OMPI si de su idioma oficial se tratara, o si de uno de sus idiomas oficiales se tratara, y la Unión Europea y cualquier otra organización intergubernamental que pueda llegar a ser parte en el presente Tratado si de uno de sus idiomas oficiales se tratara.

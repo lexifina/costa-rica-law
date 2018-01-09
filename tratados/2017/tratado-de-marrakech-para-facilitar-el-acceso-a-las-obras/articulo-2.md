@@ -1,0 +1,13 @@
+ARTÍCULO 2
+DEFINICIONES
+A los efectos del presente Tratado:
+a) Por "obras" se entenderán las obras literarias y artísticas en el sentido del artículo 2.1) del Convenio de Berna para la Protección de las Obras Literarias y Artísticas, en forma de texto, notación y/o ilustraciones conexas con independencia de que hayan sido publicadas o puestas a disposición del público por cualquiermedio.2
+2Declaración concertada relativa al artículo 2.a): A los efectos del presente Tratado, queda entendido que en esta definición se encuentran comprendidas las obras en formato audio, como los audiolibros.
+b) Por "ejemplar en formato accesible" se entenderá la reproducción de una obra, de una manera o forma alternativa que dé a los beneficiarios acceso a ella, siendo dicho acceso tan viable y cómodo como el de las personas sin discapacidad visual o sin otras dificultades para acceder al texto impreso. El ejemplar en formato accesible será utilizado exclusivamente por los beneficiarios y debe respetar la integridad de la obra original, tomando en debida consideración los cambios necesarios para hacer que la obra sea accesible en el formato alternativo y las necesidades de accesibilidad de los beneficiarios.
+c) Por "entidad autorizada" se entenderá toda entidad autorizada o reconocida por el gobierno para proporcionar a los beneficiarios, sin ánimo de lucro, educación, formación pedagógica, lectura adaptada o acceso a la información. Se entenderá también toda institución gubernamental u organización sin ánimo de lucro que proporcione los mismos servicios a los beneficiarios, como una de sus actividades principales u obligaciones institucionales.3
+3Declaración concertada relativa al artículo 2.c): A los efectos del presente Tratado, queda entendido que “entidades reconocidas por el gobierno”, podrá incluir entidades que reciban apoyo financiero de este último para proporcionar a los beneficiarios, sin ánimo de lucro, educación, formación pedagógica, lectura adaptada o acceso a la información
+Una entidad autorizada establecerá sus propias prácticas y las aplicará
+i) a fin de determinar que las personas a las que sirve sean beneficiarios;
+ii) a fin de limitar a los beneficiarios y/o a las entidades autorizadas la distribución y puesta a disposición de ejemplares en formato accesible;
+iii) a fin de desalentar la reproducción, distribución y puesta a disposición de ejemplares no autorizados; y
+iv) a fin de ejercer la diligencia debida en el uso de los ejemplares de las obras, y mantener registros de dicho uso, respetando la intimidad de los beneficiarios de conformidad con el artículo 8.

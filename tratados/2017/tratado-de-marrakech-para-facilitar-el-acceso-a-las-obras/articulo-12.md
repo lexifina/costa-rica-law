@@ -1,0 +1,4 @@
+ARTÍCULO 12
+OTRAS LIMITACIONES Y EXCEPCIONES
+1. Las Partes Contratantes reconocen que una Parte Contratante podrá disponer en su legislación nacional, en favor de los beneficiarios, otras limitaciones y excepciones al derecho de autor distintas de las que contempla el presente Tratado, teniendo en cuenta la situación económica y las necesidades sociales y culturales de esa Parte Contratante, de conformidad con sus derechos y obligaciones internacionales, y en el caso de un país menos adelantado, teniendo en cuenta sus necesidades especiales, sus derechos y obligaciones internacionales específicos y las flexibilidades derivadas de estos últimos.
+2. El presente Tratado se entiende sin perjuicio de otras limitaciones y excepciones que se contemplen en la legislación nacional en relación con las personas con discapacidades.

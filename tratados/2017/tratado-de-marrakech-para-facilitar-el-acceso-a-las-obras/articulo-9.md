@@ -1,0 +1,8 @@
+ARTÍCULO 9
+COOPERACIÓN ENCAMINADA A FACILITAR EL
+INTERCAMBIO TRANSFRONTERIZO
+1. Las Partes Contratantes harán todo lo posible por facilitar el intercambio transfronterizo de ejemplares en formato accesible, alentando el intercambio voluntario de información para ayudar a las entidades autorizadas a identificarse. La Oficina Internacional de la OMPI establecerá a tal fin un punto de acceso a la información.
+2. Las Partes Contratantes se comprometen a prestar asistencia a sus entidades autorizadas que realicen actividades contempladas en el artículo 5 para poner a disposición información sobre sus prácticas conforme a lo dispuesto en el artículo 2.c), tanto mediante el intercambio de información entre entidades autorizadas como mediante la puesta a disposición, de información sobre sus políticas y prácticas, con inclusión de información relativa al intercambio transfronterizo de ejemplares en formato accesible a las partes interesadas y miembros del público, como proceda.
+3. Se invita a la Oficina Internacional de la OMPI a compartir la información disponible acerca del funcionamiento del presente Tratado.
+4. Las Partes Contratantes reconocen la importancia de la cooperación internacional y su promoción, en apoyo de los esfuerzos nacionales para hacer efectivos el propósito y los objetivos del presente Tratado.13
+13Declaración concertada relativa al artículo 9: Queda entendido que el artículo 9 no implica registro obligatorio para las entidades autorizadas ni constituye un requisito previo para que las entidades autorizadas realicen actividades contempladas en el presente Tratado; pero en él se prevé la posibilidad de compartir información para facilitar el intercambio transfronterizo de ejemplares en formato accesible.

@@ -1,0 +1,4 @@
+ARTÍCULO 7
+OBLIGACIONES RELATIVAS A LAS MEDIDAS TECNOLÓGICAS
+Las Partes Contratantes adoptarán las medidas adecuadas que sean necesarias para garantizar que, cuando establezcan una protección jurídica adecuada y unos recursos jurídicos efectivos contra la elusión de medidas tecnológicas efectivas, dicha protección jurídica no impida que los beneficiarios gocen de las limitaciones y excepciones contempladas en el presente Tratado.12
+12Declaración concertada relativa al artículo 7: Queda entendido que, en diversas circunstancias, las entidades autorizadas deciden aplicar medidas tecnológicas en la realización, la distribución y la puesta a disposición de ejemplares en formato accesible y nada de lo dispuesto en el presente Tratado afecta dichas prácticas si están en conformidad con la legislación nacional.
