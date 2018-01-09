@@ -1,4 +1,0 @@
-Artículo 14.—Requisa de grupos de voluntariado, profesionales y de otros funcionarios públicos.
-Los Grupos de Voluntariado debidamente autorizados para ejercer su labor en el Centro, los profesionales y los funcionarios públicos que se presenten al Penal en virtud del ejercicio de funciones propias de su cargo, podrán ser sometidos a los procedimientos de observación o revista o al desprendimiento de prendas exteriores.
-Para la efectividad de esta disposición, de previo a su ingreso al Centro deben presentar documento idóneo que los identifique como tales. En caso contrario deben someterse a los procedimientos aplicables a los demás visitantes.
-En caso de que existan indicios graves de su participación en el ‘ trasiego interno de sustancias, productos u objetos prohibidos o no autorizados, se aplicará en lo conducente, lo que indica el artículo 12.

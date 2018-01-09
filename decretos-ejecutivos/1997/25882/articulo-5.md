@@ -1,8 +1,0 @@
-Artículo 5°— Deberes de la administración penitenciaria.
-a) De la prohibición de trato denigrante. Se prohibe toda práctica institucional que atente contra la dignidad de los visitantes, y de las personas privadas de libertad y personal penitenciario. Los procedimientos de requisa deben ejecutarse dentro del más estricto respeto a la persona requisada, cuidándose de no inferirle tratos crueles, degradantes o inhumanos.
-b) Deber de cuidado. La inspección de los bienes de los visitantes, de las personas privadas de libertad y del personal penitenciario, debe efectuarse con el cuidado necesario para no destruirlos, inutilizarlos o contaminarlos.
-c) Deberes de divulgación e información. En las zonas de acceso de los establecimientos penitenciarios deben exhibirse permanentemente, las disposiciones reglamentarias relativas a los procedimientos de requisa e inspección de bienes. Para tal efecto, han de utilizarse letreros claros y visibles.
-Toda consulta sobre los alcances de las regulaciones deberán ser atendidas por el personal penitenciario.
-d) Deber de identificarse. El personal del Centro que realice la requisa de personas o la inspección de bienes, debe portar en un lugar a la vista, un distintivo que le identifique.
-Cuando exista solicitud en ese sentido, el funcionario debe manifestar su nombre completo e identificar a su superior inmediato, así como a la persona ante quien puede el interesado dirigir las quejas u objeciones que tenga sobre los procedimientos practicados.
-e) Deber de capacitación. La Administración Penitenciaria deberá capacitar al personal encargado de poner en práctica la requisa de personas y la inspección de bienes y mantenerlo actualizado sobre la materia.

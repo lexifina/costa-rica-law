@@ -1,3 +1,0 @@
-Artículo 12.—Procedimiento en caso de sospechas fundadas.
-Cuando existan sospechas fundadas o pruebas suficientes de que la persona mantiene en su cuerpo objetos o sustancias prohibidas, se le conminará para que los extraiga y los entregue al personal del Centro. Si no cumple con esa petición se pondrá la situación en conocimiento de la Policía Judicial, del Ministerio Público o de un juez competente, a fin de coordinar acciones tendientes al descubrimiento efectivo de los hechos.
-En estos casos, es deber de los funcionarios del Centro respectivo colaborar con las autoridades judiciales en el desarrollo de la investigación. Si un juez así lo ordenare, se procederá a efectuar la requisa profunda en los términos previstos en el Código de Procedimientos Penales.

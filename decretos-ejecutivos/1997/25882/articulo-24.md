@@ -1,2 +1,0 @@
-Artículo 24.—Inspección de paquetes.
-La recepción de paquetes se hará previa comprobación de la identidad de la persona que los deposita, quien deberá detallar el contenido de los mismos en caso de conocerlo. Cuando se reciban paquetes destinados a una persona privada de libertad, el personal penitenciario deberá inspeccionarlos en presencia de quien los porta, y podrá solicitar que sean abiertos por el portador en caso de que sea el mismo remitente o sino por el destinatario, a efecto de impedir el ingreso de objetos y sustancias ilícitas o no permitidas.

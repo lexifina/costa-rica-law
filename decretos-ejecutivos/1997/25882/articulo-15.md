@@ -1,3 +1,0 @@
-Artículo 15.—Requisa de menores de edad.
-Sobre los menores de edad debe aplicarse en principio únicamente el procedimiento de observaciones.
-Cuando se requiera el desprendimiento de prendas exteriores, se realizará en presencia del adulto que los acompaña, u otra persona mayor autorizada por él, de conformidad con lo previsto en el artículo 11, salvo que se esté en la situación contemplada por el articulo 12 de este Reglamento. Ello teniendo en consideración además, que de acuerdo con el artículo 33 de la Convención sobre los Derechos del Niño, es obligación del Estado tomar las medidas pertinentes para protegerlos contra el uso ilícito de estupefacientes y sustancias psicotrópicas, e impedir que se les utilice en la producción o tráfico de las mismas.

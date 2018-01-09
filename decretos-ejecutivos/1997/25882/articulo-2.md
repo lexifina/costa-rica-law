@@ -1,4 +1,0 @@
-Artículo 2°—Objetivo y alcances de los procedimientos de requisa e inspección de bienes.
-Los procedimientos de requisa de personas e inspección de bienes tienen como objetivo detectar e impedir el ingreso y la permanencia en los Centros y Oficinas del Sistema Penitenciario de sustancias u objetos cuya utilización por la población privada de libertad estén prohibidas por nuestro Ordenamiento Jurídico, o no hayan sido autorizados por la Dirección General de Adaptación Social cuando así se requiera.
-La requisa podrá consistir en la revisión visual o por palpamientos, que se hacen sobre la vestimenta, aflojamiento de ropa, desprendimiento de prendas exteriores, que se hace del visitante, persona privada de libertad y personal penitenciario.
-La inspección es la revisión cuidadosa y diligente de los objetos y bienes que ingresan, permanecen o egresan de cualquiera de las instalaciones de los Centros Penitenciarios.
