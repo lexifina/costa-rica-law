@@ -1,1 +1,0 @@
-Artículo 6º—Al momento de realizar el depósito debe indicarse a qué persona o personas se autoriza para el retiro de los bienes depositados en valores en custodia, así como a quien designa como beneficiario en caso de fallecimiento. Se mantendrá un Registro actualizado con el nombre de las personas autorizadas.

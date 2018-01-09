@@ -1,1 +1,0 @@
-Artículo 10.—La Administración en coordinación con la Dirección del Centro debe velar porque los bienes se mantengan en un lugar seguro, en el que se garantice el cuidado debido. Los paquetes de bienes deben estar claramente identificadas con el formulario en su interior, y debe asegurarse la integridad de los sellos.

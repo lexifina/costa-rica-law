@@ -1,1 +1,0 @@
-Artículo 16.—En caso de fallecimiento de la persona privada de libertad, se procederá a la entrega de los bienes depositados en valores en custodia, al particular que haya designado como beneficiario, siguiendo los procedimientos indicados en el artículo 12 del presente reglamento.

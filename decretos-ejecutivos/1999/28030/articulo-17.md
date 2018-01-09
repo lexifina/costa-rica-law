@@ -1,2 +1,0 @@
-Artículo 17: Para la devolución de los valores dejados en comiso en la Administración del Centro Penal, el egresado o la persona autorizada para el reclamo y retiro de los mismos dispondrán de un plazo de seis meses. Pasado este plazo, sin que se hubiere hecho retiro de los valores, éstos serán depositados a la orden del Patronato de Construcciones, Instalaciones y Adquisición de Bienes, para ser invertidos en infraestructura Penitenciaria.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 37275 del 3 de agosto del 2012)

@@ -1,1 +1,0 @@
-Artículo 9º—En lo correspondiente a la custodia de los dineros de Comités de las personas privadas de libertad, se aplicarán en lo conducente las disposiciones del “Instructivo para regular las organizaciones de personas privadas de libertad y su relación con la Administración Penitenciaria”, y las directrices que al efecto emitan las instancias respectivas.

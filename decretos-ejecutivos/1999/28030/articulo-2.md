@@ -1,1 +1,0 @@
-Artículo 2º—Los visitantes deben respetar la reglamentación que regula su ingreso a los Centros Penitenciarios, no se podrá introducir bienes no autorizados y será permitido el depósito de dineros para los privados de libertad en los Centros Penitenciarios de acuerdo al monto estipulado en este Reglamento.
