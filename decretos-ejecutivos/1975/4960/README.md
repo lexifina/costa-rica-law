@@ -15,3 +15,4 @@ Establece Reserva Forestal de San Ramón
 | --- | --- | --- |
 | 1 | 1975-07-09 | la propia norma |
 | 2 | 1990-10-29 | Decreto Ejecutivo 20172 (1990-10-29) |
+| 3 | 2018-01-09 | Decreto Ejecutivo 40916 (2018-01-09) |
