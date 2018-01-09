@@ -1,6 +1,3 @@
-Artículo 16.—Clasificación de los servicios especiales. La numeración de servicios especiales esquema 1XY o 1XYZ, está destinada a los siguientes servicios:
-(a) Relaciones de los usuarios con el proveedor del servicio.
-(b) Establecimiento de comunicaciones a través de la asistencia del personal del proveedor de servicio.
-(c) Servicios operacionales.
-(d) Establecimiento de comunicaciones con los servicios de emergencias (9-1-1).
-El acápite d) relativo a los servicios de emergencias será la única excepción al formato 1XY establecido para los servicios aquí contemplados. Asimismo, se reserva el número 112 para emergencias. Cada operador deberá enrutar las llamadas al 112 hacia el servicio de emergencias 9-1-1.
+Artículo 16.- Estructura del número nacional para servicios de mensajería SMS de contenido y MMS. El número nacional para servicios de mensajería de texto SMS y multimedia MMS utilizados para la prestación de servicios de contenido se compone de cifras decimales, dispuesto en un campo de código: el indicativo de servicio de mensajería (MS), con una longitud total de cuatro (4) cifras, según la figura 7.
+[imagen]
+Figura 7. Estructura del número nacional para servicios de mensajería SMS y MMS de contenido.

@@ -1,0 +1,1 @@
+Transitorio II.- En un plazo no mayor a dos (2) meses, contado a partir de la entrada en vigencia del presente Decreto Ejecutivo de Reforma Total del Plan Nacional de Numeración, los operadores y proveedores deberán remitir a la SUTEL los códigos de puntos de señalización nacional e internacional, para su inscripción en el Registro Nacional de Telecomunicaciones.

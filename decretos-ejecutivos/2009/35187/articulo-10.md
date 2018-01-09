@@ -1,4 +1,4 @@
-CAPÍTULO III
-Estructura de numeración
-Artículo 10.—Estructura nacional de numeración. En Costa Rica la estructura debe operar bajo una numeración uniforme, integrada por una única área de numeración para el país entero. La estructura debe tener la capacidad para administrar y proveer de manera efectiva la numeración nacional de telecomunicaciones por un plazo determinado.
-La estructura de numeración incluye las áreas de redes y las áreas de servicios tales como cobro revertido, tarifa con prima y los demás que el administrador y la Unión Internacional de Telecomunicaciones incluyan en el futuro y que por sus características no correspondan a ninguna de las categorías anteriores. Adicionalmente se define una numeración que hace uso de los símbolos * y #, destinada a la prestación de los servicios suplementarios especiales según el articulo 16, la cual hace parte integral del presente plan.
+Artículo 10.-Estructura del número nacional para telefonía fija o IP. El número nacional para telefonía fija o IP se compone de cifras decimales, dispuesto en un campo de código (SN) que permite la identificación del usuario final, con una longitud total de ocho (8) cifras, según la figura 2.
+[imagen]
+Figura 2. Estructura del número nacional para telefonía fija o IP
+Dicha numeración será distribuida libremente por los proveedores de servicios de telefonía fija o IP a sus usuarios, según los bloques de numeración asignados por la SUTEL.

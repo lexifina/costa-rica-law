@@ -1,9 +1,4 @@
-Artículo 11.—Estructura del número internacional. El número internacional se compone de: código de país (CC), indicativo nacional de destino (IND) y del número de abonado (NA), con una longitud total de once (11) dígitos (Figura 1).
-En Costa Rica se mantendrá el siguiente formato de número internacional. El mismo formato aplicará en caso de obtener un nuevo APN.
-Figura 1:
-Código País (Tres dígitos) | IND (Cuatro dígitos) | NA (Cuatro dígitos)
-506 | NXXX | XXXX
-NÚMERO INTERNACIONAL
-Donde:
-N: Cualquier dígito del 2 al 9, ambos inclusive.
-X: Cualquier dígito del 0 al 9, ambos inclusive.
+Artículo 11.-Estructura del número nacional para telefonía móvil. El número nacional para telefonía móvil se compone de cifras decimales, dispuesto en uncampo de código (MSIN) que permite la identificación del usuario final, con una longitud total de ocho (8) cifras, según la figura 3.
+[imagen]
+Dicha numeración será distribuida libremente por los proveedores de servicios móviles a sus usuarios, según los bloques de numeración asignados por la SUTEL.
+La aplicación del plan de numeración para el número de identidad internacional de suscripción al servicio móvil (IMSI) se regirá conforme lo establecido en la Recomendación UIT-T E.212. La estructura de numeración IMSI está conformada por el número indicativo de país para el servicio móvil (MCC), el número indicativo de red para el servicio móvil (MNC) y el número de identificación de suscripción al servicio móvil (MSIN). El MCC es asignado por la UIT al país. ElMNC es asignado por la SUTEL a cada uno de los proveedores de servicios móviles, y se regirá conforme al procedimiento que establezca para tales efectos.

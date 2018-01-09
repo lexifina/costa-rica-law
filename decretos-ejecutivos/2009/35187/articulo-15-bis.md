@@ -1,3 +1,0 @@
-Artículo 15 bis. Servicio internacional de cobro revertido. La numeración del servicio internacional de cobro revertido automático estará compuesta de once (11) dígitos, según la estructura 0800XXXXXXX, donde X es cualquier dígito del 0 al 9, ambos inclusive.
-Cuando un operador o proveedor de servicios de telecomunicaciones requiera la asignación de números para el servicio internacional de cobro revertido, deberá solicitar/o a la SUTEL, de conformidad con los procedimientos establecidos en el artículo 24, inciso 24.1 del presente Plan.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 40107 del 8 de diciembre de 2016)

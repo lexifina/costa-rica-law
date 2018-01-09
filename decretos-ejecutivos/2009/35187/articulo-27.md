@@ -1,1 +1,0 @@
-Artículo 27.—Régimen sancionatorio. Para efectos del incumplimiento de las obligaciones derivadas del presente Plan, se estará a lo dispuesto en lo previsto en los artículos 45, 67 y 68 de la Ley General de Telecomunicaciones, numero 8642.

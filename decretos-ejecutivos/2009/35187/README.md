@@ -16,3 +16,4 @@ Plan Nacional de Numeración
 | 1 | 2009-05-04 | la propia norma |
 | 2 | 2012-06-25 | Ley 9046 |
 | 3 | 2016-12-08 | Decreto Ejecutivo 40107 (2016-12-08) |
+| 4 | 2018-01-09 | Decreto Ejecutivo 40943 (2018-01-09) |

@@ -1,3 +1,0 @@
-CAPÍTULO VII
-Portabilidad numérica
-Artículo 28.—Principios. Con el objeto de cumplir con los principios de competencia efectiva, la interoperabilidad de las redes, las obligaciones de acceso e interconexión, y evitar la imposición de barreras de entrada al mercado, los operadores de redes y proveedores de servicios de telecomunicaciones están obligados a garantizar el derecho a la portabilidad numérica, entendida ésta como la posibilidad del usuario de conservar su número telefónico aún en el evento de que cambie de un proveedor a otro que preste el mismo servicio de telecomunicaciones.
