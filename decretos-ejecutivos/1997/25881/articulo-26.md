@@ -1,4 +1,0 @@
-Artículo 26. — Del procedimiento de suspensión de la visita.
-De presentarse alguna de las causales de las contempladas en el presente reglamento que amerite suspender el ingreso de una persona en calidad de visitante, el responsable de atender las solicitudes de visita o quien realice esa función, deberá remitir dentro de las cuarenta y ocho horas posteriores a la acción ejecutada, un informe por escrito a la Dirección del Centro, para llevar a cabo el debido proceso, quien deberá resolver lo que corresponda dentro del plazo de un mes.
-Cuando se presenten las circunstancias del inciso e) del artículo 25; y el objeto se encuentre de manera visible y por ende resulte evidente que la infracción es por olvido involuntario o desconocimiento, se prohibirá el ingreso a la visita.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 37275 del 3 de agosto del 2012)

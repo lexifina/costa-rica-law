@@ -1,1 +1,0 @@
-Artículo 13.—Del cuidado de los menores de edad en el Centro. Las madres, padres o encargados de los menores de edad visitantes que ingresen con ellos al Centro, serán responsables de su cuidado durante la permanencia y de acompañarlos en su egreso del lugar.

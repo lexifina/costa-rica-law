@@ -1,1 +1,0 @@
-Artículo 15.—De los espacios para recibir la visita general. Todos los Centros Penitenciarios destinarán espacios para el desarrollo de la visita, los cuales deben reunir las condiciones de higiene y de seguridad necesarias. A tales espacios sólo tendrán acceso las personas privadas de libertad que vayan a recibir visita.

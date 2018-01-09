@@ -1,9 +1,0 @@
-Artículo 29: De la suspensión de la visita como medida cautelar.
-En caso de que la visita porte un objeto prohibido así definido por cualquiera de la normativa penitenciaria de manera oculta, se le impedirá de manera inmediata el ingreso y como medida cautelar se decomisará el objeto prohibido y se prohibirá su ingreso por el plazo de un mes, mientras se investiga el hecho.
-El objeto decomisado se identificará mediante acta, con la descripción detallada de los mismos y el informe de las circunstancias del hecho, que se remitirá a la Autoridades Judiciales y Administrativas para su debida investigación, entiéndase a la Dirección de la Policía Penitenciaria y/o al Organismo de Investigación judicial, según sea el caso.
-Una vez finalizada la investigación, el objeto decomisado deberá ser devuelto a la persona que demuestre ser su legítimo dueño, con documento que así lo acredite.
-En caso de que el objeto no sea retirado, en un plazo de tres meses por su legítimo dueño, se procederá a remitir tales dispositivos y sus accesorios a entidades públicas o privadas sin fines de lucro dedicadas a la actividad de reciclaje, para apoyar las campañas gubernamentales de protección al ambiente.
-Para lo anterior, la Dirección de la Policía Penitenciaria levantará de forma mensual un acta en la que conste enumeración y características de los objetos remitidos a dichas entidades para su destrucción y reciclaje.
-Una vez efectuada la remisión de bienes, se deberá remitir a la Dirección General de Adaptación Social y a la Dirección Administrativa copia del acta y constancia de recibido de esos bienes por parte de las entidades.
-Además, se deberá exigir a la entidad recicladora un acta levantada por la persona responsable donde se acredite la destrucción total de los bienes remitidos.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 37275 del 3 de agosto del 2012)

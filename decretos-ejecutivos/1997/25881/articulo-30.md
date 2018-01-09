@@ -1,2 +1,0 @@
-Artículo 30.—De los recursos contra las resoluciones de la Dirección del Centro que suspenden la visita.
-Contra las resoluciones de la Dirección del Centro que acuerden suspender ó mantener la suspensión del ingreso de una persona en calidad de visitante al Centro, podrán interponerse los Recursos de Revocatoria y de Apelación ante el Instituto Nacional de Criminología, dentro de los tres días posteriores a la notificación.

@@ -1,2 +1,0 @@
-Artículo 12--- Del estudio de la visita de menores de edad a los Centros.
-La oficina que atienda los asuntos comunitarios del Centro, estudiará cuando así se requiera, la conveniencia de que el menor ingrese al Centro en calidad de visitante, debiendo rendir inmediatamente informe detallado con recomendación al Director del Centro, el que resolverá lo correspondiente emitiendo comunicado a los interesados.

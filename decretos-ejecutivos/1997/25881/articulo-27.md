@@ -1,3 +1,0 @@
-Artículo 27.—De la duración de la suspensión acordada por la Dirección del Centro.
-La suspensión del ingreso a una persona en calidad de visitante a un Centro, podrá durar hasta seis meses consecutivos, pudiendo prorrogarse la medida hasta por un periodo igual, previo otorgamiento del debido proceso y mediante acuerdo de la Dirección del Centro respectivo.
-La oficina que atienda los asuntos comunitarios deberá rendir, cuando así se requiera, un informe con recomendaciones, referente a la suspensión del ingreso de una persona en calidad de visitante, a efecto de que se determine si tal medida debe mantenerse.

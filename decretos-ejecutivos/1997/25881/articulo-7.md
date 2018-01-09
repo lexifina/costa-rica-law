@@ -1,3 +1,0 @@
-Artículo 7°—Del procedimiento para autorizar el ingreso del visitante.
-La oficina que atienda los asuntos comunitarios de cada centro, deberá realizar un estudio social de previo a que se le otorgue a cada persona el ingreso al centro respectivo en calidad de visitante, evaluando si se presentan razones de seguridad personal o institucional que imposibiliten el ingreso de esa persona al Centro respectivo, en cuyo caso informará al Director del Centro, quien resolverá al respecto. En caso de menores de edad, aquella área u oficina, deberá considerar además el mayor bienestar del menor.
-Si mediante el respectivo estudio social, se determina la procedencia de que la persona ingrese al Centro en calidad de visitante, se incluirá en el Registro de Visitantes.
