@@ -1,2 +1,0 @@
-Artículo 61.—Homologación del informe ocupacional para el trámite de egreso por cumplimiento con descuento. La Dirección de Centro o Ámbito someterá al Consejo Técnico Interdisciplinario el informe ocupacional elaborado por los funcionarios de las disciplinas de Orientación y Educación, con al menos 4 meses de antelación a la fecha de cumplimiento de la pena con descuento, para que éste homologue los periodos laborados o no laborados por la persona privada de libertad.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 39418 del 4 de noviembre del 2015)

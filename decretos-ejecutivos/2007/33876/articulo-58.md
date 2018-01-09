@@ -1,2 +1,0 @@
-Artículo 58.—Ficha de información sobre el cumplimiento de la pena. Con base en el cómputo o liquidación de la pena emitido por el Tribunal Sentenciador, o el Juzgado de Ejecución de la Pena, la Oficina de Cómputo de Penas confeccionará una ficha de información en que consten las fechas de cumplimiento de la pena de la persona sentenciada.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 39418 del 4 de noviembre del 2015)

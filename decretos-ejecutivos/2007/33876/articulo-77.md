@@ -1,1 +1,0 @@
-Artículo 77.—Objetivo. El régimen de máxima seguridad tiene como principal objetivo contener y atender a aquellas personas privadas de libertad con escasa capacidad de convivencia, con significativos niveles de conducta violenta o cuando razones de seguridad institucional lo requieran.

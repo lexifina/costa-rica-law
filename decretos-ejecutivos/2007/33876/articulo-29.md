@@ -1,1 +1,0 @@
-Artículo 29.—Valoraciones de otras medidas. Para la población con medidas de seguridad curativas, suspensión del proceso a prueba, libertades condicionales e incidentes por enfermedad, la valoración se regirá por los plazos establecidos por la ley y disposiciones de autoridades jurisdiccionales.

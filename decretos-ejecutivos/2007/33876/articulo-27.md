@@ -1,3 +1,0 @@
-Artículo 27.—Periodicidad de la valoración en centros del Programa Semi-Institucional. La valoración del Plan de Atención Técnica de las personas ubicadas en los centros del Programa Semi-Institucional, se realizará al menos cada año y se registrará en el Sistema de Información de la Administración Penitenciaria en un plazo máximo de 5 días hábiles.
-Las modalidades de pernoctación o presentación serán definidas por el Instituto Nacional de Criminología, pero podrán ser modificadas por los Consejos Técnicos Interdisciplinarios del Programa Semi-Institucional, de conformidad con los lineamientos dictados por dicho Instituto.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 39418 del 4 de noviembre del 2015)

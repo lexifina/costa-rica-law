@@ -1,5 +1,0 @@
-Artículo 6º—Actas. De cada sesión se levantará un acta que contendrá la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, la forma y resultado de la votación y el contenido de los acuerdos.
-Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación, los acuerdos tomados en la respectiva sesión, carecerán de firmeza a menos que los miembros presentes acuerden su firmeza por votación de 2 tercios de la totalidad de los miembros del órgano.
-Deberán consignarse los votos disidentes. Cuando al darse lectura del acta anterior uno de sus miembros no haya asistido a la sesión respectiva, podrá abstenerse de emitir su voto en el acto de aprobación.
-Las actas serán firmadas por el Director del órgano y por aquellos miembros que hubieren hecho constar su voto disidente. Las Actas deberán ser conservadas en las secretarías de los Ámbitos o Centros.”
-(Así reformado por el artículo 1° del decreto ejecutivo N° 39418 del 4 de noviembre del 2015)

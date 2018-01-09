@@ -1,4 +1,0 @@
-Artículo 17.—Egreso por traslado. Es el egreso de la persona privada de libertad de un Centro del Programa Institucional para ser trasladado a otro Centro del mismo Programa. Deberá acompañarse de un informe técnico sobre el cumplimiento del Plan de Acciones Inmediatas o Plan de Atención Técnica, según corresponda.
-El traslado se debe realizar de manera que se logre la continuidad de la ejecución del Plan de Acciones Inmediatas o Plan de Atención Técnica. También se remitirá el expediente médico.
-La Dirección del Centro remitente, o quien ésta designe, registrará el egreso por traslado en el Sistema de Información de la Administración Penitenciaria, en un plazo máximo de 1 día hábil posterior al traslado.”
-(Así reformado por el artículo 1° del decreto ejecutivo N° 39418 del 4 de noviembre del 2015)

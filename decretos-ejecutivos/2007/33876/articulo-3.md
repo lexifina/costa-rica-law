@@ -1,1 +1,0 @@
-Artículo 3º—Integración. El Consejo Técnico Interdisciplinario está integrado por un representante de cada disciplina existente en el centro, la jefatura de seguridad del centro y el Director o Directora del centro o ámbito según corresponda, o en ausencia por quién lo sustituya, quien presidirá.

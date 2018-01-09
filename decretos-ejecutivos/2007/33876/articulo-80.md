@@ -1,3 +1,0 @@
-Artículo 80.—Del Consejo de ubicación. Estará integrado por el Director o Subdirector General de la Dirección General de Adaptación Social, el Director de la Policía Penitenciaria y el Director del Centro de Atención Institucional La Reforma. El Director del Ámbito del Régimen de Máxima Seguridad participará con voz.
-Ese órgano decidirá, mediante acuerdo fundado adoptado por mayoría de sus miembros, la ubicación de personas privadas de libertad en el régimen de máxima seguridad e informará a las autoridades superiores del Centro penitenciario y del Ámbito, para coordinar lo correspondiente.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 39418 del 4 de noviembre del 2015)

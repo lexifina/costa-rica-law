@@ -1,1 +1,0 @@
-Artículo 11.—De la atención técnica en materia penal juvenil. Los procesos de atención técnica en materia penal juvenil, serán definidos de conformidad con lo establecido en la Ley de Justicia Penal Juvenil y en la Ley de Ejecución de las Sanciones Penales Juveniles. Este Reglamento se aplicará en lo no regulado por dicha normativa.
