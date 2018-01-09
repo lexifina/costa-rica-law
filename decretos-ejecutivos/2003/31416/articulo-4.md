@@ -1,1 +1,0 @@
-Artículo 4º—La Dirección del Centro de Atención Institucional se compromete a facilitar a los representantes religiosos un espacio físico para que desempeñen su labor durante las horas y lugares así determinados por cada institución.

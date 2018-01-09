@@ -1,3 +1,0 @@
-Artículo 3º—Cada entidad religiosa acreditará ante la Dirección del Centro de Atención Institucional los datos de las personas autorizadas para proporcionar la asistencia religiosa descrita en el presente decreto, los cuales deberán ser actualizados anualmente. La Dirección del Centro de Atención Institucional podrá cancelar la autorización de ingreso a los centros penitenciarios cuando:
-a)el adjudicante del respectivo permiso irrespetare alguna de las normas que dicte esta institución en relación con el ingreso y permanencia de los representantes religiosos dentro de los centros respectivos, y
-b)cuando así se lo solicite quien acreditó a dicho representante.

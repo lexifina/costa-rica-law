@@ -1,1 +1,0 @@
-Artículo 5º—La Dirección del Centro de Atención Institucional permitirá el ingreso de los representantes religiosos debidamente autorizados, en horas y días fuera del tiempo normal de visita, así como también en tiempo de visita, respetando las regulaciones establecidas en cada Centro de Atención Institucional.
