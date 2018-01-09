@@ -15,3 +15,4 @@ Organizaci√≥n administrativa de la oficinas centrales del Ministerio de Educaci√
 | --- | --- | --- |
 | 1 | 2014-02-13 | la propia norma |
 | 2 | 2015-01-26 | Decreto Ejecutivo 38926 (2015-01-26) |
+| 3 | 2018-01-09 | Decreto Ejecutivo 40953 (2018-01-09) |
