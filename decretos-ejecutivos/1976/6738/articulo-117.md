@@ -1,1 +1,0 @@
-Articulo 117.—En los casos de faltas de extrema gravedad y graves contempladas en el Código Penal como delitos o contravenciones, aparte de la regresión con objetivos de tratamiento, procederá la acción judicial correspondiente.

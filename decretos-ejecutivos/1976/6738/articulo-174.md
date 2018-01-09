@@ -1,1 +1,0 @@
-Artículo 174.—Deberán concurrir a las reuniones del Consejo Asesor, el Director del Centro de Diagnóstico y los Coordinadores de Etapa, así como todos aquellos miembros del personal o invitados especiales, cuya presencia la Dirección estime necesaria. Todos los miembros mencionados en el presente artículo tendrán derecho a voz pero no a voto.

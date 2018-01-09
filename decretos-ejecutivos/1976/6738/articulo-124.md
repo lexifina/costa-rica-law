@@ -1,1 +1,0 @@
-Articulo 124.—Las resoluciones del Director, de los Coordinadores de Etapa o del Consejo de Evaluación del Tratamiento, conforme a los artículos 122 y 123, no tendrán ulterior recurso y serán aplicadas inmediatamente. Con todo, el Consejo de Evaluación del Tratamiento puede revisar los dictámenes si en razón de nuevos hechos, el caso lo ameritare.

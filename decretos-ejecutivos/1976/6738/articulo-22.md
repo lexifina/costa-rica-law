@@ -1,1 +1,0 @@
-Artículo 22.—La educación de los internos estará coordinada con los sistemas oficiales a fin de que al ser puestos en libertad puedan continuar sus estudios. Los certificados de estudio que se expidan a los internos no harán mención del Centro de Adaptación Social.

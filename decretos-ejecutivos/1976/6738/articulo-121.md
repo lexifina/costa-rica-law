@@ -1,1 +1,0 @@
-Artículo 121.—Intentar cometer cualquiera de las faltas señaladas en los artículos 118, 119, y 120, ayudar a cualquier persona a cometerlas o hacer planes para realizarlas será considerado tan grave como la falta misma.

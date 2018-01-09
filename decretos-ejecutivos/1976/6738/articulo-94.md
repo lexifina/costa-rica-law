@@ -1,1 +1,0 @@
-Articulo 94.—Todo interno tiene derecho a recibir asesoría legal de parte de su defensor, por medio de entrevistas y correspondencia. Tiene también derecho a recibir la asesoría de las consultorías jurídicas del Centro.

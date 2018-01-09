@@ -1,1 +1,0 @@
-Articulo 125.—El Consejo de Evaluación del Tratamiento tiene la facultad de juzgar y sancionar disciplinariamente todos los hechos delictivos, contravenciones y demás transgresiones a las normas del Centro y a este Reglamento que no se hayan tipificado en el presente capítulo.

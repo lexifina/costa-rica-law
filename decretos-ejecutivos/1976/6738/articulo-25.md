@@ -1,2 +1,0 @@
-Artículo 25.—Educación Física. Como parte del tratamiento en el Centro, todos los internos, habida cuenta de su condición física, están obligados a participar en los programas de Educación Física y Deportiva que les sean asignados.
-Con el objeto de promover la cultura física, el Centro ofrecerá una amplia gama de oportunidades para práctica de deportes, atletismo y gimnasia. Estas actividades estarán orientadas a un mejoramiento de la condición física de los internos y serán organizadas y supervisadas por instructores calificados.

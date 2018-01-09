@@ -1,1 +1,0 @@
-Artículo 67.—La Dirección del Centro podrá conceder visita extraordinaria a los internos, fuera de los días y horas de la visita general, cuando la gravedad o la urgencia del caso así lo ameriten. También podrá autorizar el ingreso de menores de 15 años cuando las circunstancias así lo requieran.

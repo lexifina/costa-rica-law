@@ -1,1 +1,0 @@
-Artículo 9°—Regularmente y cuando las circunstancias lo ameriten, se procederá a evaluar al interno desde los puntos de vista educativo, social, laboral- vocacional, disciplinario y médico. Como resultado de esta evaluación se fijarán nuevas pautas de tratamiento y, en su caso, se determinará el traslado del interno a otra unidad del régimen, en sentido progresivo o regresivo.

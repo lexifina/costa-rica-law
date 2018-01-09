@@ -1,1 +1,0 @@
-Artículo 185.—Será tarea del Consejo de Evaluación del Tratamiento la elaboración del informe mensual del conjunto de las Etapas, que se presentará al Consejo Asesor. Dicho informe será aprobado por el Consejo de Evaluación del Tratamiento por simple mayoría de votos, elevándose a la Dirección.

@@ -1,1 +1,0 @@
-Articulo 46.—La convivencia de los internos debe ser también ocasión propicia para su recreación y expansión personal. Los internos podrán utilizar juegos recreativos grupales y medios audiovisuales para su entretenimiento y diversión, de acuerdo a lo establecido en el Sistema Progresivo.

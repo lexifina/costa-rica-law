@@ -1,1 +1,0 @@
-Artículo 110.—Los internos tienen la responsabilidad de no desperdiciar la comida, respetar los horarios de lavandería y baños, mantener ordenados y limpios los locales, jardines y el conjunto de las instalaciones del Centro, y solicitar atención médica y dental en la medida que la necesiten.

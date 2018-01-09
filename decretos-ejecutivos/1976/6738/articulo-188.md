@@ -1,1 +1,0 @@
-Artículo 188—Las reuniones se celebrarán quincenalmente y en ellas se abordarán todos los temas referidos a producción, canalización, almacenaje y comercialización de lo elaborado en el Centro, así como las adquisiciones necesarias para el normal funcionamiento del mismo.

@@ -1,3 +1,0 @@
-CAPITULO IV
-Del Trabajo
-Artículo 30.—El trabajo es un elemento esencial del tratamiento del interno en el Centro. No constituye en modo alguno una pena adicional, sino un medio para promover la adaptación social del interno. Le permite atender a su sostenimiento, al de su familia y reparar el daño privado causado por el delito; lo prepara para la libertad y le inculca hábitos de laboriosidad alejándole del ocio y el desorden. Además, contribuye a desarrollar en los internos el espíritu de cooperación y la responsabilidad personal ante una obra común; les permite perfeccionar su capacitación laboral en función de sus aptitudes y constituye un gran incentivo para su constante mejoramiento y realización personal.

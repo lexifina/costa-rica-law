@@ -1,1 +1,0 @@
-Artículo 60.—Los internos colaborarán con el objeto de que el Centro constituya un ambiente saludable y una Escuela en la que adquieran los principios de la higiene, la correcta nutrición y la prevención en el área de la salud.

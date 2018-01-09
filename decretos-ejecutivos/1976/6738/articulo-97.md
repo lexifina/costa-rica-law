@@ -1,1 +1,0 @@
-Artículo 97.—Los internos tienen derecho a la atención de su salud que incluye: comidas nutritivas, cama y vestido apropiados, baño diario, ventilación adecuada, ejercicio físico, acceso a artículos de aseo y tratamiento médico y dental.

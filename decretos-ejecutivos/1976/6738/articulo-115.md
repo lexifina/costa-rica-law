@@ -1,1 +1,0 @@
-Articulo 115.—Se considera reiteración de falta leve cuando en un mes calendario el número de éstas sea superior a tres. Esta reiteración transforma la falta leve en grave con la consecuente regresión.

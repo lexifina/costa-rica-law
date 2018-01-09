@@ -1,1 +1,0 @@
-Artículo 75.- Realizados los trámites y estudios a que se refiere el artículo anterior, la Dirección expedirpa a nombre de la esposa o concubina un carné de visia conyugal que deberá ser renovado trimestralmente, mediando para esta renovación la actualización de los exámenes mpedicos y de laboratorio. En casos de faltas a la higiene o a la moral, el carné podrá ser cancelado.

@@ -1,1 +1,0 @@
-Articulo 85.—Se informará sin demora al interno acerca de la enfermedad grave o fallecimiento de un pariente cercano con derecho a visita. En este caso se le podrá autorizar, cuando las circunstancias lo permitan, para que visite al enfermo o asista al funeral, sólo o con custodia.

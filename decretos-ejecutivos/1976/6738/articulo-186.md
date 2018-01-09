@@ -1,1 +1,0 @@
-Artículo 186.—La Sesión del Consejo de Evaluación del Tratamiento se ajustará al orden del día fijado por la Dirección, que deberá contar con los siguientes temas: a) Estado general de la Etapa; b) Análisis de situación de los internos y c) Otros.

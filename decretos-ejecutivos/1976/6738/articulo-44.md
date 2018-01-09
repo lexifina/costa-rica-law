@@ -1,3 +1,0 @@
-Artículo 44.—La convivencia se convierte en factor terapéutico y socializador cuando existe un ambiente de buenas relaciones humanas. Por este motivo, el Centro intentará perfeccionar constantemente la calidad de las relaciones entre los internos v entre éstos y el personal, utilizando todos los medios socializadores a su alcance para lograr establecer óptimas comunicaciones interpersonales.
-Los internos, a lo largo de su permanencia en el Centro, aprenderán el difícil arte de expresar correctamente sus ideas y de escuchar con atención las comunicaciones que reciben de parte de los demás.
-De este modo se capacitarán para establecer un diálogo abierto y constructivo que les permita convivir adecuadamente en sociedad.

@@ -1,1 +1,0 @@
-Articulo 92.—Todo interno está autorizado para dirigir peticiones o quejas a las autoridades de la Dirección General de Adaptación Social y Prevención del Delito, del Ministerio de Gobernación y a los miembros de los Supremos Poderes, sin censura en cuanto al fondo, pero en debida forma.

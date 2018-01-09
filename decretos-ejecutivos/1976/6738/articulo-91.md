@@ -1,1 +1,0 @@
-Artículo 91.—Los internos tienen derecho a hablar libre y reservadamente con los funcionarios del exterior cuando éstos realicen visitas en el ejercicio de sus funciones y para inspeccionar el Centro.

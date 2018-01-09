@@ -1,1 +1,0 @@
-Artículo 181.—Este Consejo entenderá de todo aquello que se refiera al tratamiento y la aplicación, en cada caso, de la progresividad del Sistema, elevando sus recomendaciones a la Dirección. Decidirá, también, sobre las regresiones que se impongan en el tratamiento del interno.

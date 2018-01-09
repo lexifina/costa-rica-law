@@ -1,1 +1,0 @@
-Articulo 59.—La prohibición de bebidas alcohólicas o embriagantes, así como de cualquier tipo de droga o alucinógeno, es absoluta en el Centro. Su posesión o uso será considerado como una falta grave.
