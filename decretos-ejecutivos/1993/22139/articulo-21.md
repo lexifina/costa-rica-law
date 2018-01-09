@@ -1,1 +1,0 @@
-Artículo 21.— Deber de conservación de las instalaciones. Los privados y privadas de libertad deben velar por el orden, aseo y conservación de las instalaciones y bienes de la Institución en donde se encuentren ubicados o sean atendidos.

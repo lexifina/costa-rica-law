@@ -1,1 +1,0 @@
-Artículo 36.— Grados de participación. Toda privada o privado de libertad que instigue o preste auxilio o cooperación al autor para la realización de cualquiera de las faltas descritas en los artículos anteriores podrá ser acreedor de la misma sanción que se imponga al autor o coautor.

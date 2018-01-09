@@ -1,3 +1,0 @@
-Artículo 60.—Ejecución del acto. La decisión emanada de la Comisión Disciplinaria se ejecutará una vez notificado al privado o privada de libertad. La interposición de los recursos procedentes no suspenderá su ejecución, excepto en aquellos casos en que, de oficio o a petición de parte, la Comisión o el Instituto Nacional de Criminología decidan suspenderlo para evitar un perjuicio irreparable.
-(Así reformado mediante artículo N° 103 del decreto ejecutivo N° 33876 del 11 de julio de 2007).
-(Así corrida su numeración mediante artículo N° 103 del decreto ejecutivo N° 33876 del 11 de julio de 2007, que lo traspasó del anterior artículo 58 al 60 actual).

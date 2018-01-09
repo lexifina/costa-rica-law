@@ -1,1 +1,0 @@
-Artículo 11. — Acceso a los reglamentos y otras disposiciones. Todo privado o privada de libertad tendrá acceso a los reglamentos y disposiciones generales anudas por las autoridades competentes que regulen la ejecución de las medidas privativas de libertad.

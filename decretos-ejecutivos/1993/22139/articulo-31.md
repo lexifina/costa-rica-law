@@ -1,2 +1,0 @@
-Artículo 31.— Conocimiento por parte del Consejo de Valoración El Director deberá someter a conocimiento del Consejo de Valoración el documento que hace referencia el Artículo 28, en un plazo máximo de ocho días hábiles.
-El Consejo de Valoración analizará la medida cautelar y definirá las acciones técnicas pertinentes, tomando en consideración cuando existan, las objeciones planteadas por el privado o privada de libertad.

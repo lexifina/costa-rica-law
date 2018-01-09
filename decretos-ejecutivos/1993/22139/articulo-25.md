@@ -1,1 +1,0 @@
-Artículo 25.— Deber de propiciarla convivencia. En los diferentes Centros de Adaptación Social se deberá propiciar un nivel de convivencia que facilite en la medida de lo posible, la interacción social, el desarrollo de las potencialidades de los privados y privadas de libertad, así como su integración al entorno social.

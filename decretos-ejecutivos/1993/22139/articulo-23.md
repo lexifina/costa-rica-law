@@ -1,1 +1,0 @@
-Artículo 23.— Deber de depositar valores. Los privados y privadas de libertad tendrán la obligación de depositar bajo la custodia de la administración del Centro sus objetos de valor y dinero efectivo, de conformidad con lo establecido en las disposiciones vigentes.

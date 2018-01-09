@@ -1,1 +1,0 @@
-Artículo 37.— De la tentativa. Cuando por razones ajenas a la voluntad del autor la falla no pueda ser consumada, podrá imponerse la sanción prevista para aquella, tomando en cuenta las circunstancias de tiempo, modo y lugar.

@@ -1,1 +1,0 @@
-Artículo 3°.— Principio de igualdad. Todos los privados y privadas de libertad tendrán los mismos derechos y obligaciones, sin más distinciones que las derivadas de la modalidad de custodia o de ejecución de la pena en la que se encuentren ubicados y ubicadas.

@@ -1,1 +1,0 @@
-Artículo 5°.— Prácticas prohibidas. Se prohíbe el maltrato físico como práctica institucional, la aplicación automática de las sanciones y todo procedimiento vejatorio de la persona sometida a privación de libertad.

@@ -1,6 +1,0 @@
-Artículo 57.—Casos de competencia exclusiva del Instituto Nacional de Criminología y procedimiento a aplicar. Cuando la sanción disciplinaria implique la reubicación del privado o privada de libertad, del Programa Semi Institucional al Programa Institucional, el pronunciamiento de la Comisión Disciplinaria tendrá el carácter de recomendación y deberá elevarse ante el Instituto Nacional de Criminología para su decisión.
-Para tal efecto, el Director del Centro o ámbito de convivencia respectivo deberá remitir la recomendación del caso al Instituto Nacional de Criminología en un lapso no mayor de cinco días hábiles.
-Para el Programa en Comunidad, será el responsable de la Oficina quién elevará al Instituto Nacional de Criminología una recomendación acerca de la reubicación en el Nivel Semi Institucional o Institucional.
-Recibida la recomendación, el Instituto Nacional de Criminología deberá emitir su decisión en un plazo máximo de quince días naturales tratándose de medidas cautelares. En los demás casos deberá ajustarse al período máximo para concluir el procedimiento.
-(Así reformado mediante artículo N° 103 del decreto ejecutivo N° 33876 del 11 de julio de 2007)
-(Así corrida su numeración mediante artículo 103 del decreto ejecutivo N° 33876 del 11 de julio de 2007, que lo traspasó del anterior artículo 55 al 57 actual).

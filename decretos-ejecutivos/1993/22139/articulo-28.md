@@ -1,1 +1,0 @@
-Artículo 28.— Requisitos para su aplicación. Las medidas cautelares utilizarán únicamente como forma excepcional de prevención y solución temporal de situaciones de inminente peligro personal o institucional Deben ser fundamentadas por escrito y comunicadas oportunamente al privado o privada de libertad.

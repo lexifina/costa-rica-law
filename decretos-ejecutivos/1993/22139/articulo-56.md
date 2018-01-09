@@ -1,3 +1,0 @@
-Artículo 56.—Contenido del acuerdo. El pronunciamiento de la Comisión Disciplinaria consignará, al menos, la fecha y número de sesión, el nombre del privado o privada de libertad, la fecha del reporte, el tipo de falta cometido, la sanción a imponer u otra medida de atención técnica si existió, o la absolutoria si fuere del caso, el voto o votos salvados, en caso de que los hubiere y firma de quien preside la sesión.
-(Así reformado mediante artículo N° 103 del decreto ejecutivo N° 33876 del 11 de julio de 2007)
-(Así corrida su numeración mediante artículo 103 del decreto ejecutivo N° 33876 del 11 de julio de 2007, que lo traspasó del anterior artículo 54 al 56 actual).

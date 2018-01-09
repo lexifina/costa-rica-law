@@ -1,1 +1,0 @@
-Artículo 12.—Derecho a la comunicación. Todo privado o privada de libertad tiene derecho a comunicarse mediante la correspondencia, los teléfonos públicos instalados en el Centro y la recepción de visitas ordinarias y extraordinarias en el Centro, de acuerdo con las disposiciones vigentes.

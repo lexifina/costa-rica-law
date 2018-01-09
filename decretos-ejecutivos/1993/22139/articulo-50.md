@@ -1,2 +1,0 @@
-Artículo 50.—Recepción de prueba documental. La prueba documental ofrecida deberá ser aportada por el privado o privada de libertad en un plazo máximo de cinco días hábiles a partir de la comunicación del reporte, los cuales podrán ampliarse por otro tanto igual cuando el funcionario instructor considere que existen circunstancias extraordinarias que impidieron la entrega de los documentos pertinentes.
-(Así reformado mediante artículo N° 103 del decreto ejecutivo N° 33876 del 11 de julio de 2007)

@@ -1,1 +1,0 @@
-Artículo 8°.— Derecho a la Salud. Todo privado o privada de libertad tiene derecho a recibir atención a su salud. Tendrá derecho a que se le traslade al Centro de Salud en donde deba recibirla. Cuando su modalidad de custodia lo permita lo hará por sus propios medios.

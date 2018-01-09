@@ -1,1 +1,0 @@
-Artículo 17.— Derecho a la organización. Los privados y privadas de libertad podrán organizarse para fines lícitos que contribuyan a desarrollar sus potencialidades y sus aptitudes culturales, educativas, deportivas y artísticas y a asumir roles y responsabilidades sociales, siempre que su ubicación y situación institucionales lo permitan, dentro las regulaciones existentes.

@@ -1,1 +1,0 @@
-Artículo 10.—Comunicación de su ingreso. Los privados y privadas de libertad tendrán derecho a informar de su ingreso o egreso a su familia, a su abogado o abogada y a la representación diplomática de su país en caso de ser extranjero. Tratándose de traslados, tendrá derecho a que se le informe de los mismos en forma previa a la ejecución.

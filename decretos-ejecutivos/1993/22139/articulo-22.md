@@ -1,1 +1,0 @@
-Artículo 22.— Deber de informar irregularidades. Los privados y privadas de libertad tienen el deber de comunicar a las autoridades del Centro las irregularidades que puedan perjudicar a terceros, a ellos mismos, a los funcionarios, funcionarías y a la Administración en general.

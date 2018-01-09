@@ -1,1 +1,0 @@
-Artículo 15.— Derecho a la educación y al trabajo. Todo privado o privada de libertad tendrá derecho a la educación, a recibir capacitación para el trabajo y a que se le asigne un trabajo, sin más limitaciones que las derivadas de su situación personal e institucional.
