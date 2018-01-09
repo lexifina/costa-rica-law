@@ -1,1 +1,0 @@
-Artículo 3º- Las competencias, planes y programas de atención, funcionalidad, derechos, obligaciones y régimen disciplinario en el Nivel de Unidades de Atención Integral, deberán ser reglamentadas por la administración en un plazo no mayor a seis meses a partir de la entrada en vigencia del presente decreto.
