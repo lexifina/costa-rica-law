@@ -1,2 +1,0 @@
-Artículo 24.—En casos excepcionales, si por razones médicas es necesario que el visitante porte consigo los medicamentos, deberá ponerlo en conocimiento de la Dirección del Centro de previo, para que esta en consulta con el personal médico autorice por escrito el ingreso, con las especificaciones pertinentes.
-Esta autorización será anotada en el registro de visitantes que al efecto maneja el Centro respectivo y será revisada trimestralmente o en plazos menores si el caso lo amerita.

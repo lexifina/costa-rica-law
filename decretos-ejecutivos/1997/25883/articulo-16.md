@@ -1,1 +1,0 @@
-Artículo 16.—Conocido el informe de los hechos, la Dirección del Centro deberá como máximo dentro de las 24 horas siguientes, poner el asunto en conocimientos de los jerarcas de la Institución, a efecto de determinar si corresponde el inicio de los procedimientos disciplinarios y administrativos respectivos.

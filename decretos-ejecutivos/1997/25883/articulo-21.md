@@ -1,3 +1,0 @@
-CAPITULO III
-Del control de medicamentos
-Artículo 21.—Todos los medicamentos usados por la población privada de libertad dentro de los Centros Penitenciarios deben ser suministrados por la Caja Costarricense de Seguro Social según el convenio vigente con el Ministerio de Justicia, siempre y cuando estén incluidas en el cuadro básico de medicamentos de la primera. En caso contrario debe mediar una valoración médica previa por parte del personal asignado al Centro, quien podrá solicitar las opiniones profesionales externas que considere pertinentes. En los Centros en que se utilizan los servicios de los establecimientos de Salud de la Caja Costarricense de Seguro Social la valoración médica provendrá de los personeros de dicha institución.

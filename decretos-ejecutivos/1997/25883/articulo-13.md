@@ -1,1 +1,0 @@
-Artículo 13.—Ante el hallazgo o incautación de sustancias, objetos o instrumentos no autorizados o ilícitos al interior de los Centros en todos los casos, procede de rigor el levantamiento de un acta de acuerdo con las disposiciones de este Reglamento.

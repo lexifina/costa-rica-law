@@ -1,1 +1,0 @@
-Artículo 6°—En las zonas de ingreso a los centros penitenciarios deberán exhibirse permanentemente las presentes disposiciones reglamentarias de forma clara y visible para los visitantes y el personal penitenciario estará en la obligación de explicar los alcances de las mismas en caso de duda.

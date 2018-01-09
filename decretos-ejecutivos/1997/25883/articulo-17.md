@@ -1,1 +1,0 @@
-Artículo 17.—Cuando el presunto responsable sea persona ajena a la institución o sea alguno de sus funcionarios(as), el responsable del Centro deberá dar aviso inmediato a la autoridad judicial competente.

@@ -1,1 +1,0 @@
-Artículo 5°—La Dirección General de Adaptación Social, a través de la Escuela de Capacitación Penitenciaria, deberá capacitar al personal encargado de poner en práctica este reglamento y mantenerlo actualizado sobre la materia.

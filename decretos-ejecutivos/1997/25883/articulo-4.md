@@ -1,1 +1,0 @@
-Artículo 4°—La Policía Penitenciaria de los Centros Penales será responsable de ejecutar diligentemente la correspondiente requisa e incautación de dichas sustancias, objetos o instrumentos en el Sistema Penitenciario, cuando así proceda, de conformidad con lo que establece el "Reglamento de Requisa de Personas e Inspección de Bienes en el Sistema Penitenciario Nacional".
