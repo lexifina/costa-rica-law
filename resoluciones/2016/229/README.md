@@ -14,3 +14,4 @@ Procedimiento para el cálculo del canon de reserva del Espectro Radioeléctrico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-11-08 | la propia norma |
+| 2 | 2018-01-10 | Resolución 4 (2018-01-10) |

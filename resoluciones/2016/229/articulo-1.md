@@ -1,4 +1,6 @@
+(Revocada)
 SUPERINTENDENCIA DE TELECOMUNICACIONES
+(Esta norma fue revocada por el punto 5 del por tanto de la resolución RCS-004-2018 10 de enero de 2018, “Del Procedimiento para el cálculo del canon de reserva del Espectro Radioeléctrico”)
 8009-SUTEL-SCS-2016
 El suscrito, Secretario del Consejo de la Superintendencia de Telecomunicaciones, en ejercicio de las competencias que le atribuye el inciso b) del artículo 50 de la Ley General de la Administración Pública, ley 6227, y el artículo 35 del Reglamento interno de organización y funciones de la Autoridad Reguladora de los Servicios Públicos y su órgano desconcentrado, me permito comunicarle(s) que en sesión extraordinaria 061-2016, celebrada el 20 de octubre del 2016, mediante acuerdo 033-061-2016, de las 18:35 horas, el Consejo de la Superintendencia de Telecomunicaciones aprobó por unanimidad, la siguiente resolución:
 RCS-229-2016
