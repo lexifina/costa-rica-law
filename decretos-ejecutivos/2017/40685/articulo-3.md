@@ -1,0 +1,1 @@
+Artículo 3°-A partir de la vigencia de esta modificación, toda disposición del presente decreto, reglamentaria o administrativa, que haga referencia al Sistema, deberá leerse como “SISTEMA NACIONAL DE INVESTIGACIÓN, INNOVACIÓN Y TRANSFERENCIA DE TECNOLOGÍA AGROPECAURIA DE COSTA RICA (SNITTA””.

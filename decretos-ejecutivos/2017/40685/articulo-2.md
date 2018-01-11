@@ -1,0 +1,1 @@
+Artículo 2°-Los PITTAs, tendrán un período de tres meses a partir de la vigencia de este Decreto para que elaboren y/o actualicen sus Planes estratégicos, utilizando el formato aprobado por la CONITTA que se encuentra en la página web del SNITTA.
