@@ -14,3 +14,4 @@ Reglamento de Sesiones y Acuerdos del Concejo Municipal de La Unión y sus Comis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-09-16 | la propia norma |
+| 2 | 2018-01-11 | Reglamento municipal 141 (2018-01-11) |
