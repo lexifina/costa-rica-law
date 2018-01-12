@@ -1,2 +1,0 @@
-Artículo 134.—Del informe cualitativo de desempeño. En el primer año de la Educación General Básica, al finalizar cada uno de los períodos en que se divide el año escolar, el docente a cargo entregará al padre de familia o encargado del estudiante, el documento denominado “Informe Cualitativo de Desempeño”, que consiste en la sistematización de la información recopilada por el docente, respecto del nivel de logro alcanzado por el estudiante, así como sus dificultades y avances.
-(Así adicionado por el artículo 12 del decreto ejecutivo N° 38155 del 14 de enero del 2014)

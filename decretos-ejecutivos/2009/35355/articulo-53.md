@@ -1,2 +1,0 @@
-Artículo 53. —De los requisitos para optar por un curso por tutoría. Los cursos por tutoría se podrán autorizar exclusivamente a aquellos estudiantes que demuestren de manera fehaciente, a juicio del director o directora del centro educativo, estar claramente imposibilitados para asistir a las subáreas, cursos, asignaturas, periodos o módulos regulares por razones geográficas, familiares, sociales, económicas o condiciones de salud o discapacidad.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40213 del 13 de enero de 2017)

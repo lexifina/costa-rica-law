@@ -1,1 +1,0 @@
-Artículo 65.—De la Nota de Conducta Mínima para Promoción. La nota de conducta mínima para la promoción de los estudiantes será de 65 en I, II y III Ciclos de la Educación General Básica y de 70 en la Educación Diversificada.

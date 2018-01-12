@@ -1,1 +1,0 @@
-Artículo 119.—Bachillerato de Excelencia. El título de Bachiller en Enseñanza Media se hará acompañar de la mención de BACHILLER CON EXCELENCIA, cuando el postulante hubiere obtenido una calificación igual o superior a noventa en cada uno de los exámenes de bachillerato.

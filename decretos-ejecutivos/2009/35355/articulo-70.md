@@ -1,1 +1,0 @@
-Artículo 70.—De la Valoración de las Faltas. Las faltas de conducta que cometan los estudiantes se valorarán como muy leves, leves, graves, muy graves y gravísimas, para todos los efectos de este Reglamento.

@@ -1,2 +1,0 @@
-Artículo 137.—De la Facultad y el Deber de Rectificar Errores. Los docentes tienen la facultad y el deber de rectificar en forma inmediata y de oficio, los errores de hecho y de derecho en que incurrieren dentro del proceso de evaluación, tanto cuando se percaten de aquellos o bien por la oportuna y respetuosa observación de sus alumnos.
-(Así corrida su numeración por el artículo 12 del decreto ejecutivo N° 38155 del 14 de enero del 2014, que lo traspasó del antiguo artículo 136 al 137)

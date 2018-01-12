@@ -1,3 +1,0 @@
-Artículo 18.—De los Deberes de los Coordinadores de Departamento o Nivel en Materia de Evaluación de los Aprendizajes. Los coordinadores de departamento o de nivel tienen, en relación con la evaluación de los aprendizajes, los siguientes deberes:
-a) Analizar con el docente las estrategias de evaluación planteadas por éste, en los planes regulares de trabajo anual.
-b) Asesorar al Comité de Evaluación y al Director de la institución, a solicitud de éste, para la correcta resolución de las objeciones que formulen los estudiantes o los padres de familia o encargados, en materia de evaluación del aprendizaje.
