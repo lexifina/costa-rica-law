@@ -1,1 +1,0 @@
-Transitorio 1.—Para el caso de la especie “Lutjanus peru” cuyo nombre común es pago seda, se establece que durante los primeros 8 meses contados a partir de la entrada en vigencia del presente acuerdo la talla legal de primera captura será de 280.0 mm, cumplido dicho plazo la talla legal de primera captura será de 340.0 mm.

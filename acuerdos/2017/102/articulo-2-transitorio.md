@@ -1,1 +1,0 @@
-Transitorio 2º—Se solicita a la Presidencia Ejecutiva del Incopesca girar todas las instrucciones y destinar los recursos necesarios, para que en el plazo de un mes contado a partir de la aprobación del presente acuerdo se proceda a divulgar este acuerdo entre el sector pesquero así como capacitar a todos los funcionarios que deban velar por el cumplimiento de esta disposición..
