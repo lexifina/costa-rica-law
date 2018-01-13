@@ -1,0 +1,1 @@
+ARTÍCULO 3- La Municipalidad de Puntarenas y las intendencias de Paquera, Cóbano, Lepanto y Monteverde deberán realizar una adecuada campaña de divulgación de la condonación tributaria y ofrecer a sus contribuyentes otras facilidades, dentro del marco legal aplicable, que permita alcanzar el objeto de disminuir el pendiente y procurar el pago del principal adeudado.
