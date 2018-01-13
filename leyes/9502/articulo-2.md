@@ -1,0 +1,1 @@
+ARTÍCULO 2- La condonación dispuesta en el artículo anterior solo podrá ser efectiva si el contribuyente o el deudor cancela la totalidad del principal de la deuda existente, durante el período de la vigencia de la presente ley.
