@@ -16,7 +16,8 @@ n) Cumplir con los horarios.
 o) Ser respetuoso en el trato con los clientes, demás arrendatarios, empleados del mercado y funcionarios municipales.
 p) No mantener ni distribuir pornografía.
 q) No mantener niños laborando.
-r) Atender personalmente su negocio de manera directa, o por medio de un encargado en caso de incapacidad temporal del arrendatario debidamente acreditada.
+r) Atender personalmente su negocio, de manera directa o por medio de un encargado.
+(Así reformado el inciso anterior en sesión N° 139 del 15 de enero de 2018)
 s) Exhibir en lugares visibles para el público, los precios de los artículos que comercialice.
 t) No usar pesas y medidas que resulten fraudulentas, ni expender artículos alterados.
 u) Participar del proceso operativo y funcional del plan de emergencias y seguridad del mercado.

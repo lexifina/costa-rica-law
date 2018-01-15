@@ -14,3 +14,4 @@ Reglamento del mercado municipal de Orotina
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-09-14 | la propia norma |
+| 2 | 2018-01-15 | Reglamento municipal 139 (2018-01-15) |
