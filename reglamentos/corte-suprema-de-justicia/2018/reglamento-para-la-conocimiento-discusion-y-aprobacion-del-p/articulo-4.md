@@ -1,0 +1,1 @@
+Artículo 4º—Las sesiones para la discusión y aprobación, tanto del cronograma como de los productos finales de los grupos de trabajo, deberán realizarse tomando en consideración el interés institucional y la necesidad que inspiran el programa de medidas urgentes de reformas al Poder Judicial.

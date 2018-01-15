@@ -1,0 +1,1 @@
+Artículo 5º—Cuando el producto final de un grupo de trabajo sea discutido de manera parcial o segmentada, una vez aprobado un avance, artículo o apartado, no podrá volverse a discutir; salvo que una nueva disposición incida en una anterior aprobada.

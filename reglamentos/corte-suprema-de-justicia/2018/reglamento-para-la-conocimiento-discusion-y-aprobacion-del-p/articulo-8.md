@@ -1,0 +1,5 @@
+CAPÍTULO IV
+De la preparación de las sesiones
+Artículo 8º—I. El Presidente de la Corte junto con las magistradas y magistrados coordinadores de grupo realizarán el cronograma de trabajo de las sesiones de revisión de productos finales, en los términos que indica el artículo 10.I de este reglamento.
+II. Las magistradas y los magistrados deben contar con los insumos que les permitan cumplir su obligación de conocer con propiedad los contenidos de los productos finales para su discusión en Corte Plena. Para ello, la Presidencia de la Corte les remitirá por correo electrónico, la documentación correspondiente sobre los temas agendados para estas sesiones de Corte Plena. En los casos de propuestas de reformas normativas, estos documentos incluirán una sinopsis o un cuadro comparativo de la normativa vigente y la propuesta de reforma.
+III. Las magistradas y magistrados contarán además con una herramienta electrónica que permitirá conocer y anotar previo a su discusión en Corte Plena, la conformidad o disconformidad sobre el producto final y hacerle observaciones, según dispone el artículo 6 de este reglamento.

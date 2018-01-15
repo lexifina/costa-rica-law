@@ -1,0 +1,1 @@
+Artículo 9º—El Presidente por sí, o a solicitud de cualquier magistrada o magistrado, podrá llamar a las jefaturas del Poder Judicial para que expresen su criterio técnico respecto de algún punto sobre el que pueda ser necesaria alguna aclaración.

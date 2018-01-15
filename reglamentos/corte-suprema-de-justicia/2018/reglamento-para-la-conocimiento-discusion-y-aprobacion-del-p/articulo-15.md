@@ -1,0 +1,1 @@
+Artículo 15.—Los aspectos no contemplados en este reglamento serán resueltos conforme: a) los principios indicados en el artículo 2 del mismo; b) los términos de las actas de constitución del Proyecto general y proyectos específicos; c) las disposiciones de la Ley Orgánica del Poder Judicial, y d) la Ley General de la Administración Pública.
