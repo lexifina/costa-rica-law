@@ -1,1 +1,0 @@
-Artículo 18.—Plazo del procedimiento. El plazo para concluir el procedimiento será de dos meses, tal como lo tiene establecido la Ley General de la Administración Pública. Si el procedimiento no fuere concluido en este plazo, acarreará para los miembros del Órgano Director, las sanciones previstas en la precitada Ley.

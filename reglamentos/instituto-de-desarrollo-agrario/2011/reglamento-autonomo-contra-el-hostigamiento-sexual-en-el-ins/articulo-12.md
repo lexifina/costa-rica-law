@@ -1,2 +1,0 @@
-Artículo 12.—Órgano facultado para recibir las denuncias e investigarlas. La instancia para recibir la denuncia es la Jefatura del Área de Recursos Humanos. Recibida la denuncia, deberá remitirla a la Unidad de Relaciones Laborales, responsable de tramitar la investigación administrativa, con copia al jerarca para que tenga la debida información.
-En caso de inhibitoria o recusación debidamente fundadas, el Jerarca, en el menor plazo posible, deberá conformar un Órgano Director ad hoc.
