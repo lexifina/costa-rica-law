@@ -1,0 +1,4 @@
+Artículo 30._ Transferencia electrónica. Cuando la cancelación del bien o servicio se realice con cargo a una transferencia electrónica, deberán tenerse en cuenta los siguientes aspectos:
+a. Solamente podrá realizarse pago a través de transferencia electrónica si se cuenta con un sistema de información computarizado que garantice la adecuada funcionalidad y seguridad.
+b. Los comprobantes girados mediante transferencias electrónicas, deberán contar con las firmas mancomunadas de al menos dos de las personas autorizadas para firmar los movimientos de cuentas.
+c. Las respectivas transferencias electrónicas se realizaran a una cuenta cliente que se encuentra a nombre de la persona física o jurídica beneficiaria del pago por concepto de compra de suministros y servicios adquiridos por la Administración.

@@ -1,0 +1,1 @@
+Transitorio III: La Gestión de Tecnologías de la Información, en conjunto con la GRF, contará con un plazo de seis meses para la implementación del sistema informático integrado para compras por caja chica. Mientras tanto las solicitudes de adelanto de caja chica, deberán ser presentadas de manera directa en esa Gestión o en respectivas cajas auxiliares.

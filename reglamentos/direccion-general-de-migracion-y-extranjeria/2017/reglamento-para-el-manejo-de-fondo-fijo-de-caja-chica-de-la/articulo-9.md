@@ -1,0 +1,3 @@
+CAPÍTULO II
+DE LOS MONTOS DE GASTOS
+Artículo 9._ Monto de Caja Chica. La Gestión de Recursos Financieros, realizará un estudio anualmente para determinar la procedencia o no de aumentar el monto máximo del fondo de caja chica y las cajas auxiliares, así como los montos máximos autorizados para adquisición de suministros o servicios. Concluido este estudio trasladará la información al superior jerárquico, para que éste proceda al trámite correspondiente de solicitud de recursos financieros para la conformación o incremento de dicho Fondo ante la Tesorería Nacional, el cual será comunicado a la Junta Administrativa de la Dirección General de Migración y Extranjería..

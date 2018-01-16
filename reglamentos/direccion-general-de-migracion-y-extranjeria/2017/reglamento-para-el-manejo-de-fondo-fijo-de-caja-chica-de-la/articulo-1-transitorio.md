@@ -1,0 +1,1 @@
+Transitorio I: La GRF contará con el plazo de un mes contado a partir de la publicación del presente reglamento, para emitir el formulario de caja chica, el cual deberá ser avalado por la UPI, la DAF y la JADGME.

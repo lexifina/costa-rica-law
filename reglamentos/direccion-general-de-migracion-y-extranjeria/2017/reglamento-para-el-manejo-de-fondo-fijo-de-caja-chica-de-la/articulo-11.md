@@ -1,0 +1,1 @@
+Artículo 11._ Límite del Gasto. Las compras de suministros o servicios realizadas a través del Fondo Fijo de Caja Chica no podrán superar los límites económicos establecidos por la Tesorería Nacional.

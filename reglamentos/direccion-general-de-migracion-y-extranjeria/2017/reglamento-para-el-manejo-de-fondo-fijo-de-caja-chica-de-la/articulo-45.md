@@ -1,0 +1,1 @@
+Artículo 45._ Arqueos de las Sub Cajas Chicas Auxiliares. Las cajas auxiliares estarán sujetas a arqueos periódicos, sin previo aviso, por parte de la GRF, debiendo realizar al menos un arqueo mensual a cada caja auxiliar.

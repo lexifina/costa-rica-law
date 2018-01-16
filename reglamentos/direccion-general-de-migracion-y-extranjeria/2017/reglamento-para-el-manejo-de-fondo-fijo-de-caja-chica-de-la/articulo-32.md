@@ -1,0 +1,4 @@
+CAPÍTULO VII
+DE LOS REINTEGROS AL FONDO DE CAJA CHICA
+Artículo 32._ Responsable de efectuar los reintegros. El responsable de la administración del Fondo Fijo de Caja Chica deberá procurar que de manera periódica se realicen los reintegros de las sumas erogadas, para lo cual realizara una solicitud de rembolso a la Tesorería Nacional sumas que serán depositadas en la cuenta corriente autorizada para la operación del Fondo Fijo de Caja Chica, la solicitud se hará a través de un formulario denominado “Reintegro al Fondo Fijo de Caja Chica de la JADGME”.
+Este formulario deberá contener el detalle de las subpartidas presupuestarias, subprograma (si lo hubiere) y los respectivos montos, además deberá adjuntar copias de los justificantes de gasto. La periodicidad a la que se refiere el presente artículo será determinada por la GRF.

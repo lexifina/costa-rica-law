@@ -1,0 +1,1 @@
+Artículo 10._ Comunicación de los límites. La JADGME comunicará a la GRF en la primera semana del mes de diciembre de cada año, los límites del Fondo Fijo de Caja Chica correspondientes al periodo económico siguiente.

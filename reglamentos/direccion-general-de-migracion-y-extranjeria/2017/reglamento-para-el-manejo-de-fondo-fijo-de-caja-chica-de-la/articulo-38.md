@@ -1,0 +1,1 @@
+Artículo 38._ Sobrantes y faltantes en las cajas auxiliares. Cuando se produzca un sobrante o faltante se procederá de conformidad con las disposiciones emitidas al respecto en los artículos 45 y 46 del presente reglamento.

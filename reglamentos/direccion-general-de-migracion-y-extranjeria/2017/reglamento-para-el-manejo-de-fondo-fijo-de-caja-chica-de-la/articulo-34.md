@@ -1,0 +1,2 @@
+Artículo 34._ Emisión de Reintegros. Los reintegros se deben emitir a nombre de la JADGME y se depositarán en la cuenta corriente autorizada para la operación del Fondo Fijo de Caja Chica.
+Cuando los reintegros se realicen a través de cheques, la JADGME mediante acuerdo decidirá si emite el respectivo documento a su favor y luego se endosa el mismo, o lo emite a nombre del encargado del fondo o el tercero que lo supla en caso de ausencia, con el fin de que este realice el reintegro en efectivo al Fondo Fijo de Caja Chica.

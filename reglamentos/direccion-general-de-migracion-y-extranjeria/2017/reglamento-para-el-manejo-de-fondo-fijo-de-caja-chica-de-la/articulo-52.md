@@ -1,0 +1,9 @@
+Artículo 52._ Procedimiento de cierre del Fondo Fijo-Caja Chica o cajas chicas auxiliares por parte de la institución. En caso de que el responsable del Fondo Fijo- Caja Chica central considere procedente el cierre, procederá de acuerdo a los lineamientos que establezca la Tesorería Nacional al respecto.
+Para el cierre de una caja chica auxiliar sea en cuenta corriente o en efectivo deberá atender lo siguiente:
+a) Deberá existir un acuerdo escrito entre el jerarca y el responsable e informar a la Tesorería Nacional.
+b) Realizar un arqueo por parte de la Unidad Financiera y de los funcionarios independientes a los de la administración del fondo.
+c) Reposición de faltantes por parte del responsable de la caja auxiliar al momento del arqueo o cuando se determine su responsabilidad. En caso de negativa por parte del responsable se aplicará lo establecido en el artículo 37 de este Reglamento.
+d) Los sobrantes que resulten del arqueo, deberán ser depositados al día siguiente por el responsable de la Unidad Financiera en el Fondo General del Gobierno, según el mecanismo que establezca la Tesorería Nacional, de lo contrario se aplicará lo establecido en el artículo 37 de este Reglamento.
+e) Cierre de la cuenta corriente, anulación de fórmulas de cheques o chequeras según corresponda, depósito del disponible del Fondo Fijo-Caja Chica y el traslado de documentos de operaciones pendientes al responsable en la Unidad Financiera, a fin de liquidar el fondo.
+f) El efectivo y los documentos que conforman el arqueo de una caja auxiliar deberán ser entregados por el responsable al encargado en la Unidad Financiera, el efectivo deberá ser depositado en el Fondo Fijo-Caja Chica de la institución.
+g) El responsable deberá rendir informe sobre lo actuado, archivar de acuerdo con lo establecido por la Ley General de Archivo y mantener la documentación al alcance de los entes de control y fiscalización.

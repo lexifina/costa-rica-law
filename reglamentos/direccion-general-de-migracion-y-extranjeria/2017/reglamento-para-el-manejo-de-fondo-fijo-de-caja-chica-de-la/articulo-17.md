@@ -1,0 +1,5 @@
+CAPÍTULO IV
+DE LAS COMPRAS DE SUMINISTROS Y SERVICIOS POR CAJA CHICA
+Artículo 17._ Unidad responsable de las compras. Las solicitudes de compras de suministros y servicios a través del Fondo Fijo de Caja Chica, serán tramitadas de manera directa por el departamento interesado en realizar la adquisición para lo cual el máximo jefe de cada unidad deberá suscribir la petición, la cual deberá ser presentada ante el departamento de Tesorería de la GRF de la DGME o ante el encargado de la Subcaja auxiliar.
+Ante la ausencia del Jefe de departamento la petición podrá ser suscrita por quien haya sido nombrado para sustituirlo, aportando copia de la respectiva designación; en caso de que esta no exista la solicitud podrá ser firmada por las personas que ocupen el cargo Director o Subdirector General de Migración y Extranjería.
+Para los efectos el departamento interesado debe presentará la solicitud ante la Tesorería si es adquisición de un servicio, y de ser la compra de un bien deberá presentarse ante la PI para que se valide dicha compra contra el inventario existente.

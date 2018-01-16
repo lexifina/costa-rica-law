@@ -1,0 +1,1 @@
+Artículo 27._ Liquidación de gastos por deportaciones: El funcionario que ha realizado una gira, deberá presentarse a la Unidad Financiera para la liquidación correspondiente dentro de los siete días hábiles posteriores al regreso de la gira, de no ser así, se procederá conforme lo dispuesto en el artículo 58 de este Reglamento y en la normativa atinente al pago de viáticos.

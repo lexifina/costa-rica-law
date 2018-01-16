@@ -1,0 +1,14 @@
+Artículo 3._ Definiciones. Para los efectos legales que se deriven de este Reglamento se entenderán:
+- Arqueo: Mecanismo de control que consiste en la verificación física y análisis de las transacciones del dinero en efectivo, cheques y vales, con el objeto de comprobar si se ha contabilizado todas las transacciones realizadas, y si el saldo que arroja la cuenta corresponde con lo que se encuentra físicamente en la caja.
+- Cajas Auxiliares: Son subcajas cuya apertura es autorizada por la Tesorería Nacional y que dependen del Fondo General de Caja Chica, a las que se le asigna un determinado monto, que será administrado por parte del departamento solicitante de la apertura de la caja y solamente pueden ser utilizado para los fines que fue creada.
+- Comprobante de Pago: cualquier documento que respalde la cancelación de una erogación realizada a través del Fondo Fijo de Caja Chicas, siempre que cumpla con los requisitos establecidos por la Dirección General de Tributación y la Tesorería Nacional, conforme al artículo 26 del Reglamento General del Fondo Cajas Chicas.
+- Fondo Fijo de Caja Chica de la Dirección General de Migración y Extranjería: está constituido por los anticipos de recursos que concede la Tesorería Nacional a la Dirección General de Migración y Extranjería, para realizar gastos menores, atendiendo a situaciones no previsibles oportunamente y para adquirir suministros y servicios de carácter indispensable y urgente, según las partidas, grupos y subpartidas presupuestarias autorizadas por la misma.
+- Gastos menores indispensables y urgentes: son aquellos gastos excepcionales que se requieren para cubrir una necesidad de manera inmediata, siendo que la solución no puede esperar a que se realicen los respectivos trámites de contratación administrativa ya que la dilación en el tiempo puede ocasionar perjuicios al servicio público que se brinda, no pueden superar el monto máximo fijado según el presente reglamento.
+- Reintegro: Reembolso al Fondo Fijo de Caja Chica, incluyendo cajas auxiliares, de los dineros utilizados en la compra de suministros y servicios.
+- Vale para Desembolso: Documento temporal que se utiliza en adelantos de dinero para la compra de algún bien o servicio a través del Fondo Fijo de Caja Chica o cajas auxiliares.
+Además, en adelante, para efectos del presente Reglamento, se entenderá por:
+ Dirección Administrativa Financiera de la Dirección General de Migración y Extranjería: las siglas DAF.
+ Dirección General de Migración y Extranjería, las siglas DGME.
+ Gestión de Recursos Financieros de la Dirección General de Migración y Extranjería, las siglas GRF.
+ Junta Administrativa de la Dirección General de Migración y Extranjería, las siglas JADGME.
+ Unidad de Planificación Institucional de la Dirección General de Migración y Extranjería, las siglas UPI.

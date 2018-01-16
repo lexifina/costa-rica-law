@@ -1,0 +1,1 @@
+Artículo 12._ Montos superiores al límite. Para las compras de suministros o servicios cuyo valor supere el monto máximo establecido como límite de gasto, la unidad solicitante, previo a la aprobación de la compra, deberá gestionar el visto bueno de la JADGME, deberá adjuntar a su solicitud el respectivo acuerdo de aprobación.

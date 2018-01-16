@@ -1,0 +1,1 @@
+Artículo 39._ Uso de los recursos de cajas auxiliares. Los recursos asignados a las cajas auxiliares deberán utilizarse solamente para los fines definidos por la JADGME al momento de su creación, por lo cual no podrán ser utilizadas para cambios de cheques u operaciones distintas a las indicadas en la creación de dicho fondo.

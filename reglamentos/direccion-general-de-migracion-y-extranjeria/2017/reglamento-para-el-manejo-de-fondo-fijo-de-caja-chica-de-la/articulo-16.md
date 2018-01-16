@@ -1,0 +1,1 @@
+Artículo 16._ Garantía a favor de Hacienda Pública. Todo el personal de la DGME que participe en el manejo y administración del Fondo Fijo de Caja Chica y las subcajas auxiliares, deberá rendir garantía a favor de la Hacienda Pública, por el desempeño de sus funciones, cuando sus funcionarios recauden, custodien y administren fondos y valores públicos.

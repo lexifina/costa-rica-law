@@ -1,0 +1,2 @@
+Artículo 42._ Respaldo de compras. Toda compra realizada a través de una caja auxiliar deberá quedar respaldada por el comprobante de pago emitido por el proveedor respectivo. En los casos de viáticos, la solicitud de compra debe tener el respaldo de las liquidaciones de gastos de viaje respectivos y la copia del documento que respalde la cancelación del bien o servicio contratado.
+Una vez finalizado el proceso, estos documentos deberán ser remitidos a la GRF para su custodia.

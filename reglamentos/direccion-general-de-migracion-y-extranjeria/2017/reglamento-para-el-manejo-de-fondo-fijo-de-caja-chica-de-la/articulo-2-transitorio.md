@@ -1,0 +1,1 @@
+Transitorio II: La UPI, en conjunto con la GRF, emitirá el Manual Descriptivo de Procedimientos, con el fin de desarrollar particularidades de ejecución del presente reglamento. Para esos efectos dichas unidades contarán con el plazo de seis meses, contado a partir de la publicación del presente reglamento. Dicho manual deberá ser avalado por la DAF y la JADGME.

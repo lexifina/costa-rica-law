@@ -1,0 +1,1 @@
+Artículo 48._ Intereses generados. Los intereses generados por el saldo de la cuenta bancaria del Fondo Fijo de Caja Chica, deberán ser depositados al Fondo General de Gobierno, atendiendo lo establecido en el numeral 38 del Reglamento General del Fondo Fijo de Caja Chica.
