@@ -1,1 +1,0 @@
-Artículo 8º—Para llevar a la práctica las estrategias de acción formuladas por cada Programa Nacional, las instituciones del Sector Agropecuario deberán considerarlas en sus planes de acción y ser respaldadas en los respectivos programas anuales, en los niveles nacional, regional y local.

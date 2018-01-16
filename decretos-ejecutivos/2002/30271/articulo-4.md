@@ -1,1 +1,0 @@
-Artículo 4º—La Dirección de los Programas Nacionales Sectoriales, al más alto nivel, estará bajo la coordinación del Coordinador Nacional Agropecuario (Director Superior de Operaciones), el cual fungirá como enlace entre el Despacho Ministerial y los Gerentes de Programa.

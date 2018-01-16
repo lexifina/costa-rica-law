@@ -1,1 +1,0 @@
-Artículo 2º—Cada uno de los Programas Nacionales Sectoriales estarán a cargo de un profesional de amplia experiencia, bajo la categoría de Gerente, quien facilitará la toma de decisiones y la aplicación de las medidas necesarias por parte de las Instituciones Públicas, relacionadas con el respectivo Programa.
