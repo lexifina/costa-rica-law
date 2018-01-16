@@ -1,0 +1,2 @@
+Artículo 21.- Temas objeto de deliberación.
+Los acuerdos de Junta Directiva se tomarán sobre la base de los asuntos sometidos a conocimiento por parte de la administración o por parte de los directores, y que han sido incluidos en el orden del día, o bien que se tramiten como mociones, escritas o verbales, por parte de los directores. Las propuestas que no se refieren al tema objeto de deliberación serán eliminadas de la discusión.

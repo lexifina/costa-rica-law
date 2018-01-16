@@ -1,0 +1,3 @@
+Artículo 18.- Privacidad de las Sesiones
+Las sesiones de la Junta Directiva serán siempre privadas salvo que, los miembros presentes acuerden por unanimidad, que el público en general, o determinadas personas o funcionarios de la Institución, puedan tener acceso a la sesión, concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.
+Deberán asistir con voz pero sin voto el Gerente, el Subgerente y el Asesor Jurídico de Junta Directiva, así como cualquier otro funcionario o empleado del SENARA que convoque la Junta Directiva en forma permanente o para un caso especial.

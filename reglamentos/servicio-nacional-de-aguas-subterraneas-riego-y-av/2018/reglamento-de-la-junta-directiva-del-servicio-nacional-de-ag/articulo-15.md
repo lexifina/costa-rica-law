@@ -1,0 +1,4 @@
+Artículo 15.- Orden del Día
+El orden del día para cada sesión será confeccionado por el Presidente de la Junta Directiva en coordinación con el Gerente de la Institución, con la antelación necesaria para ser comunicada.
+Los asuntos deben ser sometidos a conocimiento y votación en el orden en que se encuentran agendados, de igual forma se procederá con las propuestas y mociones, salvo que se trate de una moción de orden, en cuyo caso se tramitará esta de forma preferente.
+No podrá ser objeto de acuerdo, ningún asunto que no figure en el orden del día, salvo que, estando presentes los dos tercios de los miembros de la Junta Directiva (5 miembros) y sea declarada la urgencia del asunto por el voto favorable de todos ellos y así procedan a incluirlo en el orden del día. El fondo del asunto se resolverá siguiendo las normas de mayoría que correspondan, según el presente reglamento.

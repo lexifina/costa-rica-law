@@ -1,0 +1,3 @@
+Artículo 17: Hora de inicio de las sesiones
+Las sesiones de la Junta Directiva deberán iniciarse dentro de los treinta minutos siguientes a la hora señalada al efecto, conforme al reloj oficial de la Junta.
+Pasados los treinta minutos indicados, si no hubiere quórum, se dejará constando en el libro de actas el nombre de los miembros de Junta Directiva presentes. Verificado lo anterior, la Junta Directiva podrá sesionar válidamente en segunda convocatoria veinticuatro horas después de la señalada para la primera, salvo casos de urgencia, en que podrá sesionar después de media hora y para ello será suficiente la asistencia de la tercera parte de sus miembros, pero en tal caso no podrán tomarse acuerdos firmes.

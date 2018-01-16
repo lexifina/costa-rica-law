@@ -1,0 +1,3 @@
+Artículo 14.- De las sesiones Extraordinarias
+Para reunirse en sesión extraordinaria será siempre necesaria una convocatoria por escrito con una antelación mínima de veinticuatro horas, salvo en los casos de extrema urgencia en los cuales será válido cualquier tipo de convocatoria. A toda convocatoria se acompañará copia del orden del día, salvo en casos de urgencia. No obstante, quedará válidamente constituida la Junta Directiva, sin cumplir con todos los requisitos referentes a la convocatoria o del orden del día, cuando asisten todos sus miembros y así lo acuerden por unanimidad.
+En las sesiones extraordinarias, solo se conocerán aquellos asuntos expresamente incluidos en la convocatoria.
