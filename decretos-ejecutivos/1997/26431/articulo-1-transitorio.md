@@ -1,3 +1,0 @@
-TRANSITORIO PRIMERO
-Considerando que para el logro de una eficiente organización acorde con los objetivos legales y reglamentarios propuestos es necesario un cambio estructural, el Despacho Ministerial ordenará los movimientos de personas que correspondan de conformidad con la legislación vigente en el régimen de empleo público.' No se concretará ninguna supresión de puestos hasta tanto no se haya cumplido con los procedimientos constitucionales y legales existentes.
-En un término no mayor a seis meses deberán haberse realizado los traslados de plaza cuando corresponda a efecto de cumplir con la estructura y las funciones establecidas para cada una de las estructuras.
