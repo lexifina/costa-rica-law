@@ -1,0 +1,3 @@
+Artículo No. 09.- De la Supervisión: El Colegio de Médicos verificará el cumplimiento y la veracidad de los requisitos, establecidos en este reglamento. El cumplimiento de los requisitos establecidos en el artículo No. 04 le corresponderá a los departamentos de la Dirección Académica y la Fiscalía del Colegio o a quien designe la Junta de Gobierno.
+La verificación de campo se realizará en forma aleatoria durante el curso de internado, o bien, cuando exista alguna denuncia o irregularidad.
+Dicha verificación se podrá realizar mediante visitas a los espacios físicos, entrevistas o cualquier otro método que permita la comprobación de la idoneidad de los sitios para la realización del año de internado universitario.

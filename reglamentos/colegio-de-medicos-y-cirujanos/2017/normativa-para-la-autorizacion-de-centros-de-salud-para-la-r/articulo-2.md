@@ -1,0 +1,1 @@
+Artículo 02.- Esta normativa regula los requisitos mínimos necesarios para la autorización de los centros de salud, nacionales o internacionales, donde se realiza el internado universitario en Medicina y Cirugía.

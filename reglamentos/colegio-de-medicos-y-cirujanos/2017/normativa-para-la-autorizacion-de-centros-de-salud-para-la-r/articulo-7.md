@@ -1,0 +1,5 @@
+Artículo No. 07.- De la gestión administrativa de la solicitud de autorización del sitio de internado universitario:
+Una vez presentada la solicitud por parte del gestionante, la verificación del cumplimiento de los requisitos antes indicados estará a cargo de una comisión integrada por la Dirección Académica o su delegado, quien fungirá como su coordinador, la Fiscalía General o su delegado y un miembro nombrado por la Junta de Gobierno.
+La Comisión tendrá un plazo de treinta días naturales para presentar su informe y recomendaciones ante la Junta de Gobierno.
+La Junta de Gobierno en un plazo máximo de quince días naturales resolverá la procedencia o no de la solicitud planteada, de lo cual se le comunicará al gestionante en el lugar señalado para notificaciones, dentro del plazo de cinco días hábiles siguientes a su emisión.
+Contra lo resuelto cabrá el recurso de revocatoria ante la misma Junta de Gobierno y el recurso de apelación ante la Asamblea General. Cuando se interpusiere ambos recursos estos deberán presentarse ante la secretaría de la Junta de Gobierno dentro del plazo de cinco días hábiles a partir de su notificación.
