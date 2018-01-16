@@ -15,3 +15,4 @@ Reglamento de creación de la Comisión de Coordinación de la Administración F
 | --- | --- | --- |
 | 1 | 2008-06-05 | la propia norma |
 | 2 | 2017-05-25 | Decreto Ejecutivo 40494 (2017-05-25) |
+| 3 | 2018-01-16 | Decreto Ejecutivo 40961 (2018-01-16) |
