@@ -1,0 +1,14 @@
+MUNICIPALIDAD DE SIQUIRRES
+REGLAMENTO PARA LA REGULACIÓN DE BENEFICIOS TRIBUTARIOS
+La Municipalidad de Siquirres, de conformidad con lo que establece el Código Municipal, en su artículo 13 inciso c), a través del Acuerdo 2165-20-11-2017, emitido en la sesión ordinaria N° 82, celebrada el 20 de noviembre del 2017.
+Considerando
+1) Que el otorgamiento de incentivos por pronto pago de los tributos municipales beneficia al contribuyente en forma económica, disminuyendo la carga tributaria.
+2) Que la Municipalidad de Siquirres, se beneficia desde el punto de económico al recaudar por adelantado sus ingresos por concepto de tributos municipales.
+3) Que la aplicación, del incentivo económico fortalece la acción financiera y disminuye el pendiente de cobro, lo que a su vez reduce los costos operativos destinados a la gestión y recaudación de tributos.
+4) Que se incrementará la eficiencia y la eficacia en la gestión de cobro y recaudación de los tributos municipales, si la actividad operacional disminuyera, optimizando y maximizando los recursos humanos y técnicos.
+5) Que el artículo 69 del Código Municipal establece la facultad de otorgar incentivos a los contribuyentes que en el primer trimestre, cancelen por adelantado los tributos de todo el año.
+6) Que el Código de Normas y Procedimientos Tributarios es aplicable a la Administración Tributaria del Municipio, pero en algunos casos requiere para su mejor aplicación, de normas reglamentarias que precisen y desarrollen el contenido de sus disposiciones.
+7) Que conforme con la misión de la Administración Tributaria y en cumplimiento del mandato legal establecido en el artículo 99 del Código de Normas y Procedimientos Tributarios que faculta a la Administración Tributaria para gestionar y fiscalizar los tributos y de conformidad con las modernas tendencias del Derecho Tributario y la teoría de la Hacienda Pública, la Administración Tributaria ha de contar con instrumentos ágiles y efectivos para el cumplimiento de sus funciones, garantizando el respeto de los derechos constitucionales y legales de los contribuyentes y demás obligados tributarios.
+De conformidad con las anteriores consideraciones y las disposiciones de los artículos 169 y 170 de la Constitución Política, en relación con el numeral 4, párrafo primero e inciso a) y 13, incisos c) y d), 43 y 62, párrafo tercero del Código Municipal vigente, se emite el presente Reglamento para la regulación de beneficios tributarios a los Contribuyentes de la Municipalidad del Cantón de Siquirres, que se regirá por las siguientes disposiciones:
+Artículo 1º—Alcance:
+Se considera como beneficio tributario las condonaciones, amnistías, exoneraciones, exenciones, no sujeciones de impuesto y descuentos por pronto pago que disponga la Municipalidad de Siquirres en favor de sus administrados.
