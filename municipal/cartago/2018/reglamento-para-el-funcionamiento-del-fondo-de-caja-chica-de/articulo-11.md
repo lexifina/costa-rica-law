@@ -1,0 +1,1 @@
+Artículo 11 º -El encargado de la caja chica preparará el reembolso correspondiente a los formularios diseñados al efecto, en el que constan número de factura, fecha, monto, departamento que efectuó el gasto, número de la solicitud de caja chica, el detalle del servicio y el bien adquirido.
