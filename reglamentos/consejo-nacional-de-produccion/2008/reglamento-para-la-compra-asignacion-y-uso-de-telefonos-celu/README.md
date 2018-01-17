@@ -14,3 +14,4 @@ Reglamento para la Compra, Asignación y Uso de Teléfonos Celulares Propiedad d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-06 | la propia norma |
+| 2 | 2018-01-17 | Reglamento 2982 (2018-01-17) |
