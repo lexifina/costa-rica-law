@@ -1,0 +1,3 @@
+CAPÍTULO V
+DEL ALMACENAMIENTO COLECTIVO DE RESIDUOS
+Artículo 19°: Disposiciones para edificaciones múltiples. Toda edificación multifamiliar de cualquier tipo institucional, comercial u otras que la Municipalidad determine, tendrán un sistema de almacenamiento colectivo de residuos diseñado de acuerdo a las disposiciones de la Unidad de Gestión Ambiental de la Municipalidad y las que técnicamente a juicio del Ministerio de Salud sean aplicables. En caso que la entrega colectiva de los residuos sólidos, no guarde los lineamientos establecidos en este reglamento las sanciones recaerán sobre el poseedor por cualquier título del inmueble.

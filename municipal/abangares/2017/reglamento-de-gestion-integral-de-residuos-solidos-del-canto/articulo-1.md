@@ -1,0 +1,17 @@
+EL CONCEJO MUNICIPAL DE ABANGARES
+Comunica a todo el Público en General, el acuerdo CMA-0483-2017; adoptado y emitido en la sesión ordinaria Nº 47-2017, Capítulo LX, Artículo 10°; celebrada el día veintiocho de noviembre del año dos mil diecisiete, en la sala de sesiones del Concejo Municipal, el cual en su texto dice:
+SE ACUERDA: "AUTORIZAR Y APROBAR A LA ADMINISTRACIÓN MUNICIPAL; LA PUBLICACIÓN EN DEFINITIVO DEL REGLAMENTO DE GESTIÓN INTEGRAL DE RESIDUOS SÓLIDOS DEL CANTÓN DE ABANGARES; EL CUAL SE LEERÁ ASÍ: REGLAMENTO DE GESTION INTEGRAL DE LOS RESIDUOS SOLIDOS Y TARIFARIO, DE LA MUNICIPALIDAD DE ABANGARES LEY 8839
+La Municipalidad de Abangares, en uso de sus facultades conferidas en el artículo 140 incisos 3) y 18) y artículo 169 de la Constitución Política, el artículo 28 inciso b) de la Ley General de la Administración Pública; los artículos 60, inciso c) y 69 de la Ley Orgánica del Ambiente y el artículo 8, inciso b) de la Ley para la Gestión Integral de Residuo, capítulo II de la Ley General de Salud y el artículo 13, inciso c) del Código Municipal, emite el presente reglamento de recolección, manejo, transporte, disposición final y tarifario de los residuos sólidos, aseo de vías, sitios públicos y privados para el Cantón de Abangares
+Considerando:
+Que el artículo 50 de la Constitución Política reconoce el derecho de toda persona a gozar de un ambiente sano y ecológicamente equilibrado, así como el deber del Estado de garantizar, defender y preservar dicho derecho.
+Que de conformidad con el artículo 169 de la Constitución Política, corresponde a las Municipalidades la administración de los intereses y servicios locales.
+Que de conformidad con la Ley para la Gestión Integral de Residuos Ley No 8839, corresponde a las municipalidades la gestión integral de residuos sólidos en su cantón.
+Que de conformidad con el Código Municipal, el Concejo puede organizar mediante reglamento, la prestación de los servicios públicos municipales.
+Que el Plan Nacional de Residuos Sólidos (PRESOL), orienta las acciones en materia de gestión integral de residuos sólidos y promueve los planes y reglamentos municipales en la materia.
+Que el cantón cuenta con el Plan Municipal de Gestión Integral de Residuos sólidos como instrumento para la planificación y ejecución del manejo de los residuos a nivel local.
+Que se hace necesario regular los diferentes aspectos del manejo de los residuos sólidos con el fin de promover la gestión integral de los mismos en el cantón.
+SE DECRETA:
+El siguiente Reglamento de Gestión Integral de los Residuos Sólidos y tarifaría de los residuos sólidos, aseo de vías y sitios públicos para el Cantón de Abangares.
+CAPITULO I
+DISPOSICIONES GENERALES
+Artículo 1°:Objeto General. Este reglamento municipal tiene por objeto regular en forma integral la gestión de residuos sólidos que se generan en el cantón de Abangares y que por ley son responsabilidad de esta Municipalidad. Por tanto, define las responsabilidades de los diferentes actores y generadores del cantón; establece el marco jurídico para la elaboración, actualización, implementación y monitoreo del Plan Municipal para la Gestión integral de Residuos Sólidos del cantón de Abangares; regula la entrega, la recolección, el transporte, almacenamiento temporal, valorización, tratamiento y disposición final adecuada de residuos sólidos; define y establece la estructura institucional y operativa necesaria para cumplir la gestión integral de residuos sólidos y complementa su regulaciones nacionales.

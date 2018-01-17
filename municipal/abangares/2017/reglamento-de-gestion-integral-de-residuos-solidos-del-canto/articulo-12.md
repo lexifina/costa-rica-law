@@ -1,0 +1,1 @@
+Artículo 12°:Responsabilidad de los patentados de puestos fijos. Los patentados de puestos fijos que se ubique en las vías o en áreas públicas cuando por naturaleza de los productos que ofrecen los vendedores generen residuos, deberán de disponer recipientes para el depósito de éstos, accesible al público, los cuales deberán adquirir las bolsas rotuladas en las cajas municipales.

@@ -1,0 +1,1 @@
+Artículo 38°: En todos los casos anteriores en caso de reincidencia demostrada se le dará la audiencia al infractor para cumplir con el debido proceso y la sanción que se establecerá en caso de demostrarse su responsabilidad será de dos salarios bases de un profesional licenciado universitario más sobre la multa establecida en el caso anterior.

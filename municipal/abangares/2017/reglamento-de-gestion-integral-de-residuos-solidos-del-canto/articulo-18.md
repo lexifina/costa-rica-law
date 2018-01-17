@@ -1,0 +1,1 @@
+Artículo 18°: Para la recolección en el sitio de residuos ordinarios de eventos especiales: como fiestas públicas y privadas, las personas físicas o jurídicas deberán de contar con un Plan de Manejo GIRS debidamente aprobado por el departamento de Obras y Servicios Municipales, el cual se deberá de aportar al Comité Cantonal de Eventos Masivos.

@@ -1,0 +1,1 @@
+Artículo 9°:Residuos especiales domésticos. Cuando los residuos por su contenido representen un riesgo inminente para la integridad física de trabajadores de la recolección (vidrios quebrados y materiales punzo-cortantes), deberán de empacarse con envolturas protectoras de cartón o papel y se indicará en el empaque por su parte exterior que se trata de residuo punzo-cortantes.

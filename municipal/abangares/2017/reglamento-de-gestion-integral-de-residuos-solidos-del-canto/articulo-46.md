@@ -1,0 +1,2 @@
+Artículo 46º:La Municipalidad podrá realizar un estudio específico a cargo del Departamento obras y Servicios, donde se considere que la cantidad de residuos tradicionales generados por mes sea diferente a la establecida en el rango de generación, donde se clasificó originalmente.
+En este estudio se deberán realizar cuando menos tres muestreos durante el mismo mes, sin que exista la necesidad de que el usuario se entere de la fecha en que se realizarán los muestreos.

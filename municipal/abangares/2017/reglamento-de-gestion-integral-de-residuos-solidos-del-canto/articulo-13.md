@@ -1,0 +1,1 @@
+Artículo 13°: Residuos producto de carga y descarga. Los responsables de la descarga, carga y transporte de cualquier tipo de mercancía o materiales, deberán de recoger los residuos originados por esas actividades.

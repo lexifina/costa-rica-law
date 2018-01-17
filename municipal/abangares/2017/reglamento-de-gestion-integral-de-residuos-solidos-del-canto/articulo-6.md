@@ -1,0 +1,1 @@
+Artículo 6°: Propiedad de los residuos. Los residuos sólidos generados serán propiedad y responsabilidad de la Municipalidad en el momento de que los usuarios del servicio público sitúan o entregan los residuos para su recolección, de conformidad con el reglamento respectivo. Será responsabilidad del usuario hacer una correcta disposición de los residuos que genera o entrega.
