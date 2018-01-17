@@ -1,1 +1,0 @@
-Artículo 3º—El capítulo se regirá por un Comité Coordinador el cual representará éste sector ante la Junta de Gobierno, la Asamblea General y dependencias administrativas del Colegio de Médicos y Cirujanos, y demás instituciones a nivel nacional.

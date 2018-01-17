@@ -1,2 +1,0 @@
-De la asamblea general
-Artículo 21.—A la Asamblea General de Profesionales en Ramas Dependientes de las Ciencias Médicas corresponde la Regencia de los Profesionales en Ramas Dependientes de las Ciencias Médicas y del Comité Coordinador, adscrita al Colegio de Médicos y Cirujanos de Costa Rica. Sus resoluciones obligan a los miembros del Comité Coordinador, siempre y cuando no sean contrarias a la Ley, los Decretos y las disposiciones que dicte el Colegio de Médicos y Cirujanos de Costa Rica y no obligan a éste o a sus órganos.

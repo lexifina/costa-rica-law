@@ -1,1 +1,0 @@
-Artículo 27.—Los Profesionales en Ramas Dependientes de las Ciencias Médicas debidamente autorizados y al día en sus obligaciones con el Colegio, serán los únicos con derecho a voz y voto en Asambleas Generales y los únicos que contarán para determinar el quórum.

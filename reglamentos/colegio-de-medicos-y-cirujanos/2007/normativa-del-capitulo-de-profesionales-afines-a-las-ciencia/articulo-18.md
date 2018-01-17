@@ -1,2 +1,0 @@
-De los recursos económicos presupuestarios
-Artículo 18.—Los recursos económicos presupuestarios para el funcionamiento del Capítulo de Profesionales en Ramas Dependientes de las Ciencias Médicas, estarán conformados por aquellos que la Junta de Gobierno del Colegio de Médicos y Cirujanos asigne, de conformidad con el presupuesto presentado por el Comité Coordinador y que sea aprobado por la Junta de Gobierno.

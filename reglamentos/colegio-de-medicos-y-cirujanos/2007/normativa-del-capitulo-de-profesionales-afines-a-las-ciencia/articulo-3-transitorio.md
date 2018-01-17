@@ -1,1 +1,0 @@
-Transitorio III.—La primera elección del Comité de Profesionales, se realizará en marzo del dos mil ocho. Después de la elección de marzo del dos mil ocho, las elecciones de los miembros del Comité se harán de conformidad con lo establecido en la presente Normativa.

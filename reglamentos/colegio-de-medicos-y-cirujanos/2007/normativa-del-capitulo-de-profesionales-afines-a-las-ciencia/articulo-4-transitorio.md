@@ -1,2 +1,0 @@
-Transitorio IV.—Los profesionales electos en marzo del dos mil ocho, en los puestos de Vicepresidente, Vocal I y Vocal III, así como el puesto de Fiscal, actuarán en el cargo hasta enero del dos mil nueve, fecha en la cual dichos puestos saldrán a elección, de conformidad con lo establecido en la presente normativa.
-El presente Reglamento entrará en vigencia a partir de su publicación en el Diario Oficial La Gaceta.

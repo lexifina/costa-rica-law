@@ -1,4 +1,0 @@
-Artículo 25.—Las Asambleas Extraordinarias se realizarán:
-a) Cada vez que el Comité Coordinador la convoque.
-b) A más tardar veinte días naturales hábiles después de que un número no menor de cincuenta Profesionales en Ramas Dependientes de las Ciencias Médicas, debidamente autorizados y al día en sus obligaciones con el Colegio, lo solicite por escrito en sesión del Comité Coordinador de Profesionales en Ramas Dependientes de la Medicina.
-c) Cuando queden vacantes tres o más puestos del Comité Coordinador antes de concluir su período. En este caso deberán reunirse en el lugar, hora y fecha que se indiquen, a más tardar 20 días naturales después de que ocurriera la última renuncia, con el objeto de elegir a las personas que deben integrar el nuevo Comité Coordinador hasta el vencimiento del período respectivo.

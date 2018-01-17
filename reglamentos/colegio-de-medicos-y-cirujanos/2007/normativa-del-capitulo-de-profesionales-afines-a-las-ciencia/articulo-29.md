@@ -1,1 +1,0 @@
-Artículo 29.—La votación se realizará de manera pública o por votación secreta de acuerdo a lo que determine la misma Asamblea General. Los miembros del Comité Coordinador tendrán iguales derechos y obligaciones que los demás Asambleístas, con excepción del Presidente (a) que en caso de empate tiene derecho al doble voto.
