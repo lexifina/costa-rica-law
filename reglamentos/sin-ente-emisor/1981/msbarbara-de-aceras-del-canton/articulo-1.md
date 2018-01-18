@@ -1,0 +1,1 @@
+(Este reglamento fue derogado por el artículo 22 del Reglamento de Aceras y Obras Complementarias del Cantón de Santa Bárbara de Heredia, publicado en el alcance Digital N° 23 a La Gaceta N° 19 del 1° de febrero del 2018)

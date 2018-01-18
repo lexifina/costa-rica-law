@@ -13,3 +13,4 @@ MSBARBARA: De Aceras del Cantón
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-03-01 | la propia norma |
+| 2 | 2018-01-18 | SINALEVI (sin norma nombrada) |
