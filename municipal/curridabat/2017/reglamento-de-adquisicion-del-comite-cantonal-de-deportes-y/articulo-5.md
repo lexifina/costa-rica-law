@@ -1,0 +1,2 @@
+Sobre los egresos que autoriza el Concejo Municipal
+Artículo 5º—Corresponderá al Concejo Municipal, por la vía del acuerdo municipal que se emane al efecto, autorizar los egresos del Comité Cantonal de Deportes y Recreación, por gastos fijos y la adquisición de bienes y servicios, cuando los montos se ubiquen dentro de los límites económicos establecidos por la Contraloría General de la República para la licitación abreviada y la licitación pública.

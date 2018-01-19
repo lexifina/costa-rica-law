@@ -1,0 +1,1 @@
+Artículo 9º—Todos los pagos por concepto de órdenes de compra y pagos por servicios se efectuarán mediante cheque, excepto aquellos que se realicen a través de Caja Chica, de acuerdo con las normas que dicte la Municipalidad, a través del Reglamento que emita al efecto, según lo consignado en el artículo 109 del Código Municipal.

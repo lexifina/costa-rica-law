@@ -1,0 +1,1 @@
+Artículo 6º—Tanto en caso de los gastos que se aprueben directamente por el Comité Cantonal de Deportes y Recreación como aquellos que son aprobados por el Concejo Municipal, los pagos deberán ser aquellos que sean parte del plan operativo previamente aprobado para el Comité Cantonal de Deportes y Recreación.
