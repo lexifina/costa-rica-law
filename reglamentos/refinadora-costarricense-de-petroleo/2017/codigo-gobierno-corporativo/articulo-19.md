@@ -1,0 +1,6 @@
+Artículo 19. Perfiles de los miembros de la Junta Directiva. Los miembros de la Junta Directiva deben estar comprometidos con la visión corporativa de la Empresa y deben como mínimo cumplir con los siguientes requisitos:
+a. Tener conocimiento y experiencia en las actividades propias del objeto social de la Empresa y/o tener conocimiento y experiencia en el campo de la actividad industrial y/o comercial, financiera, bursátil, administrativa, jurídica o ciencias afines.
+b. Gozar de buen nombre y reconocimiento por su idoneidad profesional e integridad.
+c. Conocer el Reglamento de Gobierno Corporativo, entender sus alcances en la gestión que realizarán y no estar en una situación que configure un conflicto de interés al momento de su nombramiento.
+Las incompatibilidades en el nombramiento de los miembros de la Junta Directiva se encuentran contempladas en la Ley Nº 8422 “Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública”, así como lo normado por el Código de Ética y las políticas de gestión ética de la Empresa.
+Los miembros deben rendir una declaración jurada, debidamente firmada y autenticada por Notario Público, en donde conste el cumplimiento de los requisitos, la cual se debe requerir en el momento del nombramiento y ser actualizada ante cualquier cambio.

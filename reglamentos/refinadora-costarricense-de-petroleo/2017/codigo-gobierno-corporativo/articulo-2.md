@@ -1,0 +1,1 @@
+Artículo 2. Alcance. Todas las actuaciones de los miembros de la Junta Directiva, Gerente General, empleados de la Empresa, contratistas, acreedores e inversionistas, están enmarcadas en las disposiciones de este Código para que el gobierno de la Empresa pueda desarrollar su actividad empresarial dentro del buen manejo societario y los principios éticos.

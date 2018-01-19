@@ -1,0 +1,2 @@
+Artículo 38. Revelación de los Conflictos de Interés
+Los miembros de la Junta Directiva, los Titulares Subordinados y todos los demás empleados de RECOPE S.A. deben revelar cualquier conflicto entre sus intereses personales y los intereses de la Empresa, al tratar con clientes, proveedores, contratistas inversionistas, acreedores y cualquier persona que realice o pretenda ejecutar negocios con la Empresa.

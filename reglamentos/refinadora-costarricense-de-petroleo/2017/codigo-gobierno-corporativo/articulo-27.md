@@ -1,0 +1,1 @@
+Artículo 27. Evaluación de la Junta Directiva. La Junta Directiva realizará auto evaluaciones acerca de su gestión y la de sus miembros según mecanismo definido por la misma Junta. De igual forma, se evalúa el desempeño de los comités que haya conformado.

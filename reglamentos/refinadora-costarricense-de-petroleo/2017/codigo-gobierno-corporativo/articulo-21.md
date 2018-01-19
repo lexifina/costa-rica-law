@@ -1,0 +1,1 @@
+Artículo 21. Quórum. Para las reuniones ordinarias y extraordinarias constituye quórum deliberativo y decisorio el establecido en los Estatutos Sociales y el Reglamento de la Junta Directiva de RECOPE S.A.

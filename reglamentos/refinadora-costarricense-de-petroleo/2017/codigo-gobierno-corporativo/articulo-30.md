@@ -1,0 +1,4 @@
+Capítulo 5 – Transparencia, fluidez e integridad de la comunicación y la información
+RECOPE S.A. considera que la comunicación es un proceso integral y estratégico para la gestión empresarial, que debe ser clara, transparente y oportuna.
+La Empresa manifiesta que la información que suministra debe ser precisa, veraz, completa y respaldada en hechos reales y comprobables. Para cumplir este objetivo, RECOPE S.A. define políticas para la preservación, protección, administración y disposición de la información, incluyendo la información confidencial, de uso restringido y privilegiada.
+Artículo 30. Destinatarios de la información. Los destinatarios de la información de RECOPE S.A. son los Sujetos Interesados: empleados, contratistas, acreedores, clientes, el Estado, órganos de fiscalización y regulación, medios de comunicación, comunidades, sociedad en general, entre otros.

@@ -1,0 +1,28 @@
+Artículo 36. Sistema de gestión de riesgos
+La gestión de riesgos en RECOPE S.A. se fundamenta en el fortalecimiento de una cultura organizacional que permite la identificación y valoración de los riesgos, y la implementación de acciones para su prevención y mitigación.
+Se dispone de un Sistema Específico de Valoración de Riesgo (SEVRI), fundamentado en la Ley N°8292 “Ley General de Control Interno”, que permite la clasificación de riesgos por niveles en las diferentes actividades y procesos empresariales, a efecto de tomar decisiones informadas, contemplar los posibles eventos que impacten positiva o negativamente los objetivos empresariales, y minimizar el riesgo de afectar recursos valiosos para la Empresa.
+36.1. Valoración de riesgos
+La valoración de riesgos se realiza a nivel estratégico, táctico y operativo, y los riesgos se categorizan en función de su nivel de aceptabilidad. La categoría de los riesgos se determina considerando la probabilidad de ocurrencia y la magnitud de la consecuencia esperada ante la ocurrencia de los eventos que conforman los riesgos.
+Con la información anterior, se construyen los mapas de riesgos empresariales, que se actualizan periódicamente.
+36.2. Tratamiento de riesgos
+RECOPE S.A. aplica diferentes estrategias que permiten llevar sus riesgos hacia niveles aceptables. Entre las estrategias posibles se encuentran las de mitigar, transferir, eliminar y aceptar los riesgos. Para este propósito se definen actividades y acciones, que se incluyen como parte del Plan Operativo Institucional.
+36.3. Monitoreo de la gestión de riesgos
+RECOPE S.A. tiene definida una estructura de reporte y seguimiento a la gestión de riesgos en cada una de las dependencias de la Empresa. Se cuenta con una Unidad de Control Interno y Valoración de Riesgo, adscrita a la Gerencia General, que coordina el funcionamiento del SEVRI y promueve los mecanismos de auto-evaluación.
+Dicha Unidad presenta a la Junta Directiva, de manera semestral, el estado actual del manejo de los riesgos de la Empresa.
+36.4. Declaración de apetito de riesgo
+RECOPE S.A. dispone de un Plan Estratégico que es actualizado periódicamente, para considerar los cambios en el entorno, la situación empresarial imperante, los desafíos y oportunidades previsibles. Su construcción toma en consideración la naturaleza jurídica de la empresa, los objetivos funcionales que le han sido asignados por ley, las disposiciones del Plan Nacional de Desarrollo y Plan Nacional de Energía; así como el hecho de que la energía es un componente fundamental para la prosperidad, el crecimiento económico y el bienestar del país.
+La estrategia empresarial persigue garantizar el abastecimiento de combustibles, de forma social y ambientalmente responsable, apalancándose en un modelo de gestión integrado, en la efectividad del Sistema Nacional de Combustibles, la innovación y la incorporación de combustibles alternativos más limpios, para contribuir con la seguridad energética y el desarrollo del país.
+RECOPE S.A. reconoce la existencia de riesgos que pueden afectar el logro de sus objetivos, por lo que realiza la siguiente declaración de apetito de riesgo:
+a) Bajo: Se considera aceptable, por lo que no se requiere el establecimiento de medidas de administración.
+b) Moderado: Se considera aceptable, pero debe mantenerse un monitoreo permanente de estos riesgos, a fin de actuar oportunamente ante una posible modificación del mismo.
+c) Alto: Se considera aceptable sólo cuando el costo de implantación de las medidas de administración excede los beneficios que se espera obtener, o cuando se imposibilite el planteamiento de acciones para su administración.
+d) Extremo: Se considera aceptable únicamente en casos extraordinarios que deberán estar formalmente justificados. RECOPE no aceptará un nivel de riesgo que amenace la continuidad y sostenibilidad del abastecimiento nacional de combustibles.
+En el caso de los riesgos positivos – es decir, aquellos que representen oportunidades para la Empresa – los parámetros se invierten y se potenciarán los que califiquen como extremos y altos, si la relación beneficio-costo es positiva.
+36.5. Función de la Auditoría Interna
+Proporcionar criterio independiente a la Junta Directiva y apoyar a éste y a la Alta Gerencia en la promoción de un proceso de Gobierno Corporativo eficaz, para mantener la solidez a largo plazo de la entidad.
+Evaluar de manera independiente, objetiva y oportuna el Sistema de Control Interno de RECOPE S.A., para alcanzar los objetivos empresariales y garantizar, de manera razonable, que las actuaciones de la Empresa se realizan con apego al ordenamiento jurídico, técnico y las sanas prácticas.
+Coadyuvar a la Administración Activa en el monitoreo, desarrollo y mejoramiento del Sistema de Control Interno, mediante el desarrollo de los servicios de auditoría interna, sobre la administración del riesgo, el control y los procesos de dirección.
+36.6. Autonomía de la Auditoría Interna
+La Auditoría Interna reporta directamente a la Junta Directiva con el fin garantizar su independencia. El Auditor Interno y sus colaboradores, no podrán ejercer funciones o roles propios de la Administración Activa, ni participar en procesos administrativos o de toma de decisiones que impliquen autorizaciones - salvo las correspondientes a la apertura y cierre de los libros legales de la Empresa -, aprobaciones o refrendaciones de su parte.
+36.7. Acceso a la información
+El personal de la Auditoría Interna, en ejercicio de sus funciones, tendrá acceso a los registros, instalaciones e información necesaria para ejecutar los procesos de auditoría, según lo establece la Ley N°8292 “Ley General de Control Interno”.

@@ -1,0 +1,1 @@
+Artículo 11. Visión. RECOPE S.A. tiene como visión ser referente para la competitividad y desarrollo del país, por la efectividad del Sistema Nacional de Combustibles, la incorporación de combustibles alternativos más limpios y la innovación.
