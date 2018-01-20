@@ -1,1 +1,0 @@
-Artículo 4º—No podrán formar parte de la Comisión, los Directores(as) de la Junta Directiva del Colegio, integrantes de los órganos nombrados por la Asamblea, los miembros de comisiones de trabajo y funcionarios del colegio.

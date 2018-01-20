@@ -1,2 +1,0 @@
-Artículo 15.—Tendrán derecho al voto aquellos colegiados que se encuentren debidamente inscritos y al día en la fecha de la asamblea de elección. Para realizar la votación la comisión electoral tomará las medidas pertinentes para que el colegiado inscrito que se encuentre al día dentro del recinto pueda ejercer su voto en coordinación con la administración.
-El Colegiado que se encuentre en estado de morosidad el día de las elecciones, podrá cancelar su deuda y así ser habilitado para ejercer su derecho al voto.

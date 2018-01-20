@@ -1,1 +1,0 @@
-Artículo 8º—Una vez recibida la solicitud de inscripción, la comisión procederá a emitir la resolución correspondiente. Las tendencias tendrán tres días naturales siempre y cuando se encuentre dentro del periodo de inscripción para corregir las deficiencias señaladas por la Comisión.
