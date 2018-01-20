@@ -1,3 +1,0 @@
-CAPÍTULO IV
-Las votaciones
-Artículo 14.—La elección de puestos de Junta Directiva del CCPCR se llevará a cabo en La Asamblea General Ordinaria que se realizará en la tercera semana del mes de marzo de cada año, de conformidad con lo dispuesto en el artículo segundo del Reglamento de asambleas generales; el proceso de elección dará inicio en el momento que concluya la presentación, discusión y votación de los Informes de Junta Directiva del CCPCR. Emitirán el voto todos los contadores y contadoras presentes en la Asamblea. La Comisión Electoral establecerá los mecanismos apropiados para el cumplimiento del presente artículo.

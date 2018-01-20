@@ -1,1 +1,0 @@
-Artículo 21.—Una vez emitido el voto, el secretario de la Junta Receptora marcará en el margen derecho del padrón electoral y a la par del nombre del colegiado escribirá la frase “sí”, lo cual dará fe de que el sufragio fue emitido.

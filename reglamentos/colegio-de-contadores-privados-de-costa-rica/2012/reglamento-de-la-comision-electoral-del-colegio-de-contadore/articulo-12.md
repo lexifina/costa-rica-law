@@ -1,1 +1,0 @@
-Artículo 12.—Durante el período pre-electoral la Comisión Electoral en coordinación con la Administración del Colegio estará facultada para autorizar la colocación de propaganda y la realización de actividades proselitistas en las instalaciones del Colegio. Garantizando la imparcialidad del caso y el cuido del ornato del Colegio.
