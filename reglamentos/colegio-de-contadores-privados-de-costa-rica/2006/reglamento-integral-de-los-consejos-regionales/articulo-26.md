@@ -1,1 +1,0 @@
-Artículo 26.—La Junta Directiva del Consejo Regional se reunirá ordinariamente dos veces al mes, y extraordinariamente cuando así lo soliciten un mínimo de tres de sus miembros, o a petición del FOCORE, para conocer asuntos de interés.

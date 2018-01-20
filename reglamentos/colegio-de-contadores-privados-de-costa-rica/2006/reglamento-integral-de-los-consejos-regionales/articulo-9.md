@@ -1,1 +1,0 @@
-Artículo 9º—Tres de los miembros del Consejo de Administración harán quórum, por lo que los acuerdos se tomarán por mayoría absoluta de sus miembros. Los acuerdos que tomen quedarán en firme en la sesión siguiente, pero en casos especiales podrán declararse acuerdo firme.

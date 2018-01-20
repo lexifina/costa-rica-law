@@ -1,1 +1,0 @@
-Artículo 11.—Los miembros del Consejo de Administración y el fiscal, devengarán dieta por asistencia a sesión, equivalente al 75% (setenta y cinco por ciento) de la dieta ordinaria que por ese concepto perciben los miembros de la Junta Directiva del Colegio de acuerdo al puesto.

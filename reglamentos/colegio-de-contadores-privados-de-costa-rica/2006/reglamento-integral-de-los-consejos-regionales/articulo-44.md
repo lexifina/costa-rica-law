@@ -1,1 +1,0 @@
-Artículo 44.—En asamblea general ordinaria de cada Consejo Regional, la Junta Directiva informará a sus afiliados sobre el estado general de los recursos financieros y económicos que provengan del los fondos asignados y generados.

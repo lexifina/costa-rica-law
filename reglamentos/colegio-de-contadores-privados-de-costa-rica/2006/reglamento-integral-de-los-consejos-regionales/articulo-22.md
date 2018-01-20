@@ -1,1 +1,0 @@
-Artículo 22.—La asamblea general ordinaria en que los Consejos Regionales deban elegir a su respectiva junta directiva, deberá ser convocada con al menos quince días de anticipación a la fecha en que vence el período de la misma.

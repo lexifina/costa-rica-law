@@ -1,1 +1,0 @@
-Artículo 6º—Los miembros del Consejo de Administración y el fiscal ejercerán sus funciones por un periodo de dos años, a partir de su nombramiento y se renovarán parcialmente de la siguiente manera: presidente, el tesorero y el fiscal en los años pares; el secretario, 1er y 2do vocal en los años impares.
