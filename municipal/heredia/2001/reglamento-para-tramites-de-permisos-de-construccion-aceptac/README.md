@@ -14,3 +14,4 @@ Reglamento para trámites de permisos de construcción, aceptación de obras y v
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-18 | la propia norma |
+| 2 | 2018-01-22 | Reglamento municipal 138 (2018-01-22) |
