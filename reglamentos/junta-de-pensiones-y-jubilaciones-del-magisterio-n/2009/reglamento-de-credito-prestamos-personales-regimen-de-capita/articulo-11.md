@@ -14,7 +14,8 @@ En caso de fianza solidaria, para esta línea específica se aplica la siguiente
 Pensionados
 Hasta | ¢6.000.000.00 | 1 fiador, hipoteca o Seguro de caución
 ¢6.000.001.00 | ¢15.000.000.00 | 2 fiadores, hipoteca o seguro de caución
-Trabajadores en Servicio: MEP, INA, CUC, CUN Limón y Universidades estatales con nombramiento en Propiedad, o bien, interino con 48 o más cotizaciones al Régimen, en los últimos 5 años.
+(*) Trabajadores en Servicio: MEP, INA, CUC, CUNLIMON y Universidades estatales con nombramiento en Propiedad, o bien, interino con 48 o más cotizaciones al Régimen, en los últimos 5 años.
 Hasta | ¢3.000.000.00 | 1 fiador, hipoteca o seguro de caución
 ¢3.000.001.000 | ¢6.000.000.00 | 2 fiadores, hipoteca o seguro de caución
 ¢6.000.001.000 | ¢15.000.000.00 | 3 fiadores, hipoteca o seguro de caución
+(*) (Así reformado en sesión N° 009 del 22 de enero de 2018)
