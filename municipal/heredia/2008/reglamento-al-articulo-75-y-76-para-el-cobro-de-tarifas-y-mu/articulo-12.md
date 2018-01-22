@@ -1,1 +1,0 @@
-Artículo 12.—Una vez aplicada la multa en el sistema de cómputo, esta se reflejará en el sistema de cobros de la Municipalidad, junto con los tributos municipales que trimestralmente deba cancelar el propietario, hasta tanto este no cumpla con el precepto. Una vez que este cumpla con su deber, el interesado debe comunicarlo por escrito a la Dirección de Operaciones.

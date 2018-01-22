@@ -1,1 +1,0 @@
-Artículo 8º—Para la determinación del costo efectivo, la Municipalidad tomará como base el gasto real que tenga la realización de las obras y servicios, mediante los costos reales que brinde la Dirección de Operaciones el cual es el encargado de contratar las obras o bien ejecutar el trabajo.
