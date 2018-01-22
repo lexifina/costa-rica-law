@@ -14,3 +14,4 @@ Fijación del monto mínimo de la hora profesional de los miembros del Colegio d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-07-18 | la propia norma |
+| 2 | 2018-01-22 | Acuerdo 6 (2018-01-22) |
