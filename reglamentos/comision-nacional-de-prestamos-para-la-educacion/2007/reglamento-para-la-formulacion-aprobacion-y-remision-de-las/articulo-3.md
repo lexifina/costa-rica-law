@@ -1,1 +1,0 @@
-Artículo 3º—Justificación de las modificaciones presupuestarias y su relación con el Plan Anual Operativo. Las modificaciones que se realicen al presupuesto, deberán estar debidamente justificadas e incorporar, como parte de la información que las sustenta, su relación con el cumplimiento de los objetivos y metas del Plan Anual Operativo.

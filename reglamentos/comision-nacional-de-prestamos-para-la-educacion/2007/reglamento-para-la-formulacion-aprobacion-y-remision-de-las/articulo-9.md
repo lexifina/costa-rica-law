@@ -1,1 +1,0 @@
-Artículo 9º—Procedimiento de aprobación de las modificaciones presupuestarias. El procedimiento de aprobación está contenido en el Manual de Procedimientos de CONAPE aprobado por el Consejo Directivo.
