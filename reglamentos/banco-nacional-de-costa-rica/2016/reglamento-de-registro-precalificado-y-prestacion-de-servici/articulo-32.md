@@ -1,6 +1,6 @@
 Artículo 32° Causales de exclusión. Serán causales para excluir un perito o empresa de peritaje del Registro Precalificado regulado por el presente reglamento las siguientes:
-a. El no cumplimiento con los requisitos y condiciones que establecen la Ley de Contratación Administrativa y su Reglamento.
-b. El no cumplir o haber dejado de cumplir alguno de los requisitos detallados en el Artículo 3 del presente Reglamento.
+a. El no cumplimiento con los requisitos y condiciones que establecen la Ley de Contratación Administrativa y su Reglamento
+b. El no cumplir o haber dejado de cumplir alguno de los requisitos detallados en el Artículo 3 del presente Reglamento
 c. Cuando por el incumplimiento de las obligaciones legales y contractuales dictadas por los Colegios Profesionales respectivos, se causen daños o perjuicios por su cuenta o por sus colaboradores, al Banco o a sus clientes.
 d. El no mantener vigente la póliza de Responsabilidad Civil Profesional Individual detallada en el Artículo 9 de este Reglamento.
 e. El no mantener actualizados sus atestados en forma anual según se detalla en el Artículo 10 del Reglamento.

@@ -1,2 +1,1 @@
-Artículo 35° Vigencia. El presente reglamento entrará en vigencia tres meses a partir de la fecha de su publicación en el Diario Oficial La Gaceta.
-La Uruca 22 de julio del 2016.
+Artículo 35° Vigencia. El presente reglamento entrará a regir un mes después de su publicación en el Diario Oficial La Gaceta y estará vigente por un plazo de tres años, de conformidad con la autorización otorgada por la Contraloría General de la República en el oficio No. 14485 del 22 de noviembre del 2017.
