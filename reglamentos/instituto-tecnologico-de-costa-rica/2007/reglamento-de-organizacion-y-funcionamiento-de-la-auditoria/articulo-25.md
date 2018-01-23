@@ -1,1 +1,0 @@
-Artículo 25.—Actualización de su ámbito de acción. La Auditoría Interna mantendrá actualizado y detallado su ámbito de acción por órganos o por procesos, según convenga, así como por los sujetos privados que administren o custodien fondos públicos provenientes de la entidad.

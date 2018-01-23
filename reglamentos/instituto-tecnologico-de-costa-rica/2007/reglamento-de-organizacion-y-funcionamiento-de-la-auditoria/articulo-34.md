@@ -1,1 +1,0 @@
-Artículo 34.—Servicios preventivos. Los servicios preventivos contemplarán las asesorías, advertencias y autorización de libros. Las dos primeras deberán versar sobre asuntos que sean estrictamente de la competencia de la Auditoría Interna y deberán darse sin que se comprometa su independencia y objetividad en el desarrollo posterior de sus competencias.

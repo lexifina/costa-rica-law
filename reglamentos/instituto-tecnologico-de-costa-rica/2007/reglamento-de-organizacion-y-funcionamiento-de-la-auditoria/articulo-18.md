@@ -1,1 +1,0 @@
-Artículo 18.—Asesoría. Es obligación de la Asesoría Legal del Instituto brindar a la Auditoría Interna un oportuno y efectivo servicio de asesoría legal, cuando así lo requiera. Esta obligación es extensiva a las demás instancias institucionales, cuando así se requiera.

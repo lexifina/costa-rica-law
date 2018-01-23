@@ -1,1 +1,0 @@
-Artículo 12.—Jerarquía. El Auditor Interno es el superior jerárquico de la Auditoría Interna y como tal tendrá a su cargo la dirección superior y administración de ésta. En sus ausencias temporales le sustituirá, con todas sus competencias, el Subauditor Interno.
