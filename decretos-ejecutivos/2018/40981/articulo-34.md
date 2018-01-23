@@ -1,0 +1,2 @@
+Artículo 34.—Las entidades públicas y órganos desconcentrados que generen recursos provenientes de la venta de bienes y servicios y/o cooperaciones no reembolsables, cubrirán con
+estos los estudios de perfiles, prefactibilidad, factibilidad y diseños, así como los gastos de contrapartida local, que se requieran para la ejecución de proyectos financiados con endeudamiento.

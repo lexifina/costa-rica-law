@@ -1,0 +1,1 @@
+Artículo 68.—Las entidades públicas, ministerios y órganos desconcentrados, observarán los “Procedimientos de las Directrices Generales de Política Presupuestaria, Salarial, Empleo, Inversión y Endeudamiento para Entidades Públicas, Ministerios y Órganos Desconcentrados, según corresponda, cubiertos por el Ámbito de la Autoridad Presupuestaria”, vigentes.

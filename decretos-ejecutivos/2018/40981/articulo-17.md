@@ -1,0 +1,1 @@
+Artículo 17.—Los ministerios en la formulación de sus presupuestos deberán valorar la continuidad de la asignación de las transferencias, asignadas a sus órganos desconcentrados considerando los recursos que disponen y el cumplimiento de metas.

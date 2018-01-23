@@ -1,0 +1,1 @@
+Artículo 11.—Las entidades públicas y órganos desconcentrados podrán solicitar modificaciones al gasto presupuestario máximo. Las ampliaciones proceden cuando tengan ingresos adicionales (transferencias, superávit libre y específico, entre otros) a los contemplados en el artículo 10 de estas Directrices.
