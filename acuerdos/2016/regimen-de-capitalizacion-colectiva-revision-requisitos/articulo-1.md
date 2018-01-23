@@ -5,7 +5,8 @@ REVISIÓN
 -Formulario debidamente lleno. (Incluye declaraciones juradas según corresponda)
 -Carta de autorización a JUPEMA para solicitar documentos en caso de ser necesario.
 -Carta de autorización en caso de que terceros entreguen la documentación( copia de ambas cédulas)
--Fotocopia vigente de la cedula por ambos lados.
+-Presentación de la cédula de identidad vigente.
+(Así reformado el párrafo anterior y publicado en el Alcance Digital N° 12 a La Gaceta N° 12 del 23 de enero de 2018)
 -Constancias indicando si es pensionado o tramita pensión por algún otro régimen, en el caso de tener pensión por algún otro régimen :
 • CCSS (JUPEMA)
 • MTSS ( JUPEMA)
@@ -23,3 +24,5 @@ Para determinar cuándo empezó a laborar por primera vez en el Magisterio:
 (Así adicionado el párrafo anterior mediante Fe de Erratas y publicada en La Gaceta N° 229 del 29 de noviembre de 2016, página 28.)
 De no aportarse este documento deberá llenar en JUPEMA declaración jurada indicando si antes del 15 de julio de 1992 laboró para alguna institución del magisterio nacional; en el caso de que esta declaración sea aportada por el solicitante, deberá cumplir con la autenticación de la firma por medio de notario público.
 En caso de que el solicitante desee reconocimiento de cuotas del régimen del IVM se debe aportar el reporte de cuotas activas (mensuales) de la CCSS el cual se emite en JUPEMA.
+Cuenta Cedular (Registro Civil), en caso de no constar en trámites anteriores.
+(Así adicionado el párrafo anterior y publicado en el Alcance Digital N° 12 a La Gaceta N° 12 del 23 de enero de 2018)
