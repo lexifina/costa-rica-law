@@ -13,7 +13,7 @@ PENSIÓN SOBREVIVENCIA HIJOS MAYORES DE 55 AÑOS
 -Certificación de estado civil del solicitante y del causante (Registro Civil).
 -Cuenta cedular del solicitante y del causante. (Registro Civil).
 -Estudio socioeconómico (para demostrar la dependencia económica con respecto al causante realizado por la trabajadora social de la Junta).
--En caso de gozar de pensión alimenticia respecto al causante, presentar la certificación del Juzgado de Pensiones Alimentarias.
+-(Eliminado este párrafo y publicado en el Alcance Digital N° 12 La Gaceta N° 12 del 23 de enero de 2018)
 -En caso de estar trabajando o recibir otros ingresos, debe presentar las certificaciones o documentos que comprueben los mismos. (SICERE, algún otro que se estime necesario de acuerdo a los datos indicados en el formulario.) constancias indicando si es pensionado o tramita pensión por algún otro régimen, en el caso de tener pensión por algún otro régimen del causante y solicitante:
 • CCSS ( JUPEMA)
 • MTSS (JUPEMA)
