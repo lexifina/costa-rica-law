@@ -27,4 +27,5 @@ En las declaraciones juradas es indispensable indicar el nombre y cédula del ca
 -Certificación de nacimiento de los padres para demostrar el parentesco con el causante. (únicamente en el caso de los nietos)
 -En caso de mayores de edad, certificación de estudios (universitaria, parauniversitaria, técnicos o religiosos), extendida por la institución correspondiente, matrícula reciente, materias que cursa y últimas calificaciones con un rendimiento académico aceptable (este documento debe actualizarse cada período lectivo). en cada hoja debe constar el nombre y cedula del solicitante, así como los sellos y firmas autorizadas. (con excepción de aquellos que demuestran la invalidez).
 -En caso de hermanos o nietos discapacitados aportar documentos para la respectiva valoración médica por parte de la CCSS (se retira en Plataforma de Servicios de la Junta de Pensiones).
--En el caso de personas con discapacidad cognoscitiva (mental) debidamente comprobada, presentar la sentencia judicial sobre el nombramiento del curador.
+-En el caso de personas con discapacidad cognoscitiva (mental) debidamente comprobada, presentar la sentencia judicial sobre el nombramiento del Garante(*).
+(*) (Así reformado el párrafo anterior y publicado en el Alcance Digital N° 12 a La Gaceta N° 12 del 23 de enero de 2018)
