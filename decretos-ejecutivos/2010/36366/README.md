@@ -25,3 +25,4 @@ Reglamento de Organización del Ministerio de Seguridad Pública
 | 10 | 2015-09-10 | Decreto Ejecutivo 39477 (2015-09-10) |
 | 11 | 2015-10-09 | Decreto Ejecutivo 39426 (2015-10-09) |
 | 12 | 2016-11-11 | Decreto Ejecutivo 40106 (2016-11-11) |
+| 13 | 2018-01-23 | Decreto Ejecutivo 41105 (2018-01-23) |

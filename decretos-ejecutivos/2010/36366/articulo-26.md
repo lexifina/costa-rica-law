@@ -1,5 +1,7 @@
 Artículo 26.—El Consejo Superior de Oficiales está adscrito al Despacho del (de la) Ministro (a) y será el órgano asesor que facilite la toma de decisiones que el (la) Ministro (a) haga en materia de seguridad ciudadana y que se encargue de coordinar directamente con el Consejo Nacional de Seguridad para la operacionalización de las políticas que éste dicte y que correspondan al accionar del Ministerio.
 El Consejo Superior de Oficiales estará integrado por los siguientes Directores: Director General de la Fuerza Pública, Director de la Policía de Control de Drogas, Director del Servicio Nacional de Guardacostas, Director del Servicio de Vigilancia Aérea, Director de la Escuela Nacional de Policía, Director General de Armamento y Director de la Policía de Fronteras.
+Podrá contarse con la colaboración de oficiales de policía necesarios, designados por el Ministro, para facilitar la producción de información estratégica de interés para el Consejo.
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 41105 del 23 de enero del 2018)
 (Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N°40106 del 11 de noviembre del 2016)
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 23 al 24)
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 24 al 26)

@@ -6,6 +6,8 @@ Artículo 35.—La Dirección General Administrativa y Financiera estará confor
 3) Dirección Financiera.
 4) Dirección de Proveeduría Institucional.
 5) Dirección de Tecnologías de Información
+6)Dirección de Transportes.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 41105 del 23 de enero del 2018)
 Además, contará con los siguientes departamentos:
 1) Departamento de Salud Ocupacional.
 2) Departamento de Archivo Central.
