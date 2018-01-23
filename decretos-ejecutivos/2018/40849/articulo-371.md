@@ -1,0 +1,1 @@
+Artículo 371.- Grados de participación. Los autores e instigadores serán reprimidos con la sanción disciplinaria que el presente reglamento señala. Al cómplice le será impuesta la sanción prevista para la falta disciplinaria, pero ésta podrá ser rebajada discrecionalmente conforme al grado de participación y circunstancias del hecho.

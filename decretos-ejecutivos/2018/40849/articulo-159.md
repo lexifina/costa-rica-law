@@ -1,0 +1,1 @@
+Artículo 159.- Deber de conservación de las instalaciones. Toda persona privada de libertad debe velar por el orden, aseo e integridad de las instalaciones y bienes de la institución en donde se encuentre ubicada o sea atendida.

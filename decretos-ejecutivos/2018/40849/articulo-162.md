@@ -1,0 +1,1 @@
+Artículo 162.- Deber de informar irregularidades. Las personas privadas de libertad tienen el deber de comunicar a las autoridades penitenciarias las irregularidades que puedan perjudicar a personas o a la Administración en general. Esta información deberá ser tratada con carácter confidencial.

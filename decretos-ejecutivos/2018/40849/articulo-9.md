@@ -1,0 +1,1 @@
+Artículo 9.- Principio de inserción y atención de calidad. La administración penitenciaria buscará la inserción social de las personas privadas de libertad. Para ello, tomará las medidas necesarias a efecto de poder ofrecerles a las personas educación, cultura, formación profesional, trabajo, salud, deporte, arte y cualquier otra que tenga el mismo fin.

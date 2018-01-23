@@ -1,0 +1,1 @@
+Artículo 107.- Informe anual. La jefatura administrativa del centro deberá remitir al Consejo Interdisciplinario un informe de diagnóstico anual, en el cual se detallen los recursos económicos destinados a las instalaciones físicas del módulo Materno Infantil.

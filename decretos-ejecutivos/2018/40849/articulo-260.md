@@ -1,0 +1,1 @@
+Artículo 260.- Derechos de las personas visitantes. Las personas visitantes tienen derecho a que la estadía en el centro o unidad se desarrolle en condiciones adecuadas de orden, respeto, higiene y seguridad.

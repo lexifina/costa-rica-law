@@ -1,0 +1,2 @@
+Artículo 148.- Derecho al traslado en condiciones adecuadas. Los traslados de las personas privadas de libertad se realizarán de forma que se garantice el respeto a su dignidad, integridad física e imagen, sin exponerle a la curiosidad del público.
+Para el traslado de personas menores de edad, población femenina, población adulta mayor, personas con limitaciones físicas, enfermedades graves, o alguna otra condición especial, se atenderán las circunstancias específicas. La población femenina será trasladada por personal femenino.

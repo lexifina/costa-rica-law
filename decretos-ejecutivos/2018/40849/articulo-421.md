@@ -1,0 +1,1 @@
+Artículo 421.- Descuento de la pena. De conformidad con la ley, un día bajo localización permanente con dispositivo electrónico equivale a un día de prisión preventiva o de prisión, según corresponda, sin perjuicio de los beneficios que establece el Código Penal y este reglamento.

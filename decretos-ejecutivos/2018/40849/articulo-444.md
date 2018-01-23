@@ -1,0 +1,1 @@
+Artículo 444.- Agotamiento de la vía administrativa. Cualquiera que fuere la procedencia del acto recurrido, el Instituto Nacional de Criminología se constituye en la única instancia de alzada y su resolución agota la vía administrativa.

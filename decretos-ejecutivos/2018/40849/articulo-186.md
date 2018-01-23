@@ -1,0 +1,1 @@
+Artículo 186.- Selección de las personas. Cuando la solicitud no esté dirigida a gestionar la participación de personas específicas, la selección de quienes participen en la actividad será realizada por los profesionales de las secciones de Orientación y Educación, contando con el criterio de la Policía Penitenciaria.

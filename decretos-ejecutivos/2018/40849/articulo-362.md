@@ -1,0 +1,1 @@
+Artículo 362.- Comisión Disciplinaria. Es el órgano colegiado del ámbito, centro o unidad, encargado de resolver sobre el régimen disciplinario, en atención al reporte debidamente fundamentado y conforme la investigación e instrucción realizada por el funcionario designado al efecto.

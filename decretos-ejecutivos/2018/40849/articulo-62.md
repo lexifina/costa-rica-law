@@ -1,0 +1,1 @@
+Artículo 62.- Remisión de las actas. A solicitud de la Dirección General de Adaptación Social, del Instituto Nacional de Criminología o de la Dirección de la Policía Penitenciaria, deberá remitirse copia digital del acta por medio electrónico y en un plazo no mayor de tres días hábiles a partir de la solicitud.

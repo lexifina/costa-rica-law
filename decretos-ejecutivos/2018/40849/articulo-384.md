@@ -1,0 +1,1 @@
+Artículo 384.- Acceso al expediente. Las partes y sus representantes legales con previa identificación y acreditación, tendrán derecho a examinar, leer y copiar piezas del expediente, así como a pedir certificación de estas, con las salvedades que indica el artículo siguiente. El costo de las copias y certificaciones correrá por cuenta de la persona interesada.

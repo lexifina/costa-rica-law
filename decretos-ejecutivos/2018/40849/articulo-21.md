@@ -1,0 +1,2 @@
+Artículo 21.- Subdirector General. El Subdirector General sustituirá al Director General y ejercerá todas aquellas funciones que este y el presente reglamento le deleguen.
+Deberá tener los mismos requisitos exigidos para el Director General. Estos requisitos son: poseer título universitario y tener al menos cinco años de experiencia administrativa en sistemas penitenciarios. Al menos uno de ellos deberá ser un profesional en Derecho, con formación en Derechos Humanos y estar debidamente incorporado al Colegio de Abogados y Abogadas de Costa Rica.

@@ -1,0 +1,2 @@
+Artículo 313.- Supervisión de trabajo voluntario. Los coordinadores de las disciplinas de los centros, ámbitos o unidades de los establecimientos penitenciarios o la unidad administrativa, serán los encargados de asignar y supervisar las labores que desempeñen los estudiantes y profesionales voluntarios.
+También, brindarán el proceso de inducción a los estudiantes y profesionales en relación con la materia propia de las labores que desarrollará en el centro, ámbitos o unidad del sistema penitenciario nacional.

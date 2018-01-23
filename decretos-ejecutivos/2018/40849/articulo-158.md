@@ -1,0 +1,1 @@
+Artículo 158.- Deber de convivencia adecuada. Las personas privadas de libertad deben mantener relaciones de respeto, disciplina y buen trato, facilitadoras de una adecuada convivencia. Deben respetar los horarios, el descanso, las actividades programadas por el sistema penitenciario nacional y los momentos de recreación de la población penal.

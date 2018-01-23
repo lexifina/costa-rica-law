@@ -1,0 +1,1 @@
+Artículo 108.- Actividades sociales y culturales. A efecto de impulsar la interacción social y cultural de las madres e hijos o hijas que se encuentren en un módulo Materno Infantil, la dirección del centro, según sus potestades y competencias, coordinará actividades junto a organizaciones de la sociedad civil, instituciones públicas.

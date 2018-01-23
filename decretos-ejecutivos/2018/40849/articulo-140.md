@@ -1,0 +1,1 @@
+Artículo 140.- Derecho a la identidad de género, expresión de género y orientación sexual. La identidad de género, expresión de género y orientación sexual son derechos humanos que se reconocen a todas las personas privadas de libertad. No se podrán interponer sanciones o discriminar de cualquier manera por el solo ejercicio de estos derechos.

@@ -1,0 +1,1 @@
+Artículo 411.- Devolución de escritos y documentos. Una vez finalizado cada proceso de mediación, el Equipo MER deberá garantizar la destrucción de las notas visibles en el expediente una vez que se haya firmado el acuerdo de mediación, o bien el proceso haya concluido sin acuerdo. Permanecerán en el expediente únicamente los protocolos establecidos por la DINARAC y el acuerdo.

@@ -1,0 +1,7 @@
+Artículo 435.- Fase de egreso. Cuando la persona cuenta con una medida con dispositivo electrónico, puede realizarse el egreso por cumplimiento de la sentencia, por cambio de medidas o por revocatoria. Los procedimientos y acciones a realizar en esta fase son:
+a) Verificación de la legalidad del egreso.
+b) Identificación de la causa del egreso.
+c) Devolución del dispositivo: la persona usuaria deberá entregar el dispositivo donde la Unidad de Atención a Personas Sujetas a Monitoreo con Dispositivos Electrónicos le indique y, además, deberá firmar la boleta de devolución. Cuando se trate de una revocación por incumplimiento, las autoridades jurisdiccionales o penitenciarias coordinarán con la persona infractora la devolución del dispositivo.
+d) Comunicado de egreso: se hará el comunicado escrito al Instituto Nacional de Criminología, así como a la autoridad jurisdiccional que ordenó el egreso.
+e) Cuando la persona con un dispositivo electrónico haya cumplido con el periodo de la medida cautelar o descontado sentencia por un delito de violencia sexual o doméstica, al momento de su egreso se informará a la delegación de Fuerza Pública de la comunidad donde esta resida y donde habita la víctima.
+f) La Unidad de Atención a Personas Sujetas a Monitoreo con Dispositivos Electrónicos registrará el egreso en el sistema informático que se encuentre vigente, así como la cancelación de la causa que descontaba.

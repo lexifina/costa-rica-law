@@ -1,0 +1,2 @@
+Artículo 311.- Relación del trabajo voluntario con la disciplina profesional. El trabajo voluntario estará relacionado con labores propias de las disciplinas profesionales, establecidas para atender la demanda en los diferentes procesos institucionales orientados al cumplimiento de los fines legalmente asignados a la Dirección General de Adaptación Social y al Instituto Nacional de Criminología.
+En caso de suspensión o revocatoria del permiso para brindar sus servicios voluntarios tendrán derecho a ser informados de las causas que motivan estas decisiones administrativas.

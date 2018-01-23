@@ -1,0 +1,1 @@
+Artículo 357.- Plazo para resolver medidas cautelares basadas en una falta disciplinaria. La instrucción y conocimiento del procedimiento disciplinario en que haya mediado una medida cautelar deberá resolverse en un plazo de dos meses. Una vez resuelto el procedimiento disciplinario, el Consejo respectivo deberá pronunciarse en definitiva.

@@ -1,0 +1,1 @@
+Artículo 448.- Descuento de la pena. A las personas privadas de libertad sentenciadas por hechos acaecidos con anterioridad al día 10 de mayo de 1994, se les aplicará el descuento de la pena por todo el período de prisionalización de conformidad con lo establecido en el texto anterior del Código Penal.

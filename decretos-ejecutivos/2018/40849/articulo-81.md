@@ -1,0 +1,1 @@
+Artículo 81.- Arquitectura del espacio de Atención Específica. Su diseño arquitectónico permite la ubicación de personas privadas de libertad en espacios, preferiblemente, colectivos. En todo caso, se respetará la separación por condición jurídica.

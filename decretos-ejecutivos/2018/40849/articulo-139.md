@@ -1,0 +1,1 @@
+Artículo 139.- Derecho a la confidencialidad y tratamiento adecuado de los datos personales. En todo momento, se respetará el derecho de las personas privadas de libertad a la confidencialidad de su historial médico y se acatará todo lo establecido en la normativa relacionada con el tratamiento de los datos personales.

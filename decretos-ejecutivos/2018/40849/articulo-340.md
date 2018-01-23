@@ -1,0 +1,3 @@
+CAPÍTULO IV
+CONTROL DE MEDICAMENTOS
+Artículo 340.- Registro y coordinación. La Dirección General de Adaptación Social en coordinación con las direcciones de los centros, ámbitos y unidades, Policía Penitenciaria y la sección de Salud, establecerá cuáles medicamentos, así como cuáles objetos o instrumentos relacionados con el manejo de los mismos son autorizados, para lo cual se llevará un registro que será revisado semestralmente, o en un plazo menor cuando las circunstancias así lo requieran. Para la revisión de este registro se podrá contar con la participación o colaboración de las instituciones públicas relacionadas con la materia.

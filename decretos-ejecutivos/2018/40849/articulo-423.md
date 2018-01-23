@@ -1,0 +1,1 @@
+Artículo 423.- Atención a personas en situación de vulnerabilidad o pertenecientes a grupos en condiciones de desigualdad. En los casos indicados, se brindará el seguimiento a la atención de las necesidades de esta población, identificando los aspectos fundamentales desde la interseccionalidad, que permitan el acceso a espacios, servicios y oportunidades.

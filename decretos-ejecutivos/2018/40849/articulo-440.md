@@ -1,0 +1,5 @@
+TÍTULO XIV
+RECURSOS
+Artículo 440.- Clases de recursos. Cuando se trate de actos recurribles de acuerdo a la Ley General de la Administración Pública, contra las resoluciones procede el recurso de revocatoria ante la misma instancia y el recurso de apelación ante el Instituto Nacional de Criminología. Contra las resoluciones del Instituto Nacional de Criminología que constituyan un acto final solo se podrá interponer el recurso de revocatoria.
+En ambos casos, procederá el recurso extraordinario de revisión ante el Instituto Nacional de Criminología en los siguientes casos: por manifiesto error de hecho, por la aparición de elementos de prueba esenciales que fueran de imposible aportación o ignorados al momento de dictar el acto o cuando por otros acontecimientos posteriores se dudase del acto.
+Las medidas cautelares tomadas a raíz de hechos por los que existan procesos disciplinarios de por medio, son actos temporales y no definitivos, razón por la cual no podrán ser objeto de impugnación, no obstante podrán ser revisadas vía incidente de queja por el juez competente, sin necesidad que se encuentre agotada la vía administrativa.

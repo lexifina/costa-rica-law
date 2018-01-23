@@ -1,0 +1,1 @@
+Artículo 437.- Ejecución de la medida cautelar con mecanismo electrónico. Una vez ordenada la medida cautelar por el órgano jurisdiccional, deberá ser comunicada a la Unidad de Atención a Personas Sujetas a Monitoreo con Dispositivos Electrónicos y la persona indiciada deberá presentarse ante esta para completar el procedimiento.

@@ -1,0 +1,1 @@
+Artículo 376.- Independencia del procedimiento disciplinario. La medida disciplinaria de índole administrativa es independiente del resultado de la acción jurisdiccional; el desarrollo del proceso en una sede no debe incidir en el trámite del proceso en la otra.

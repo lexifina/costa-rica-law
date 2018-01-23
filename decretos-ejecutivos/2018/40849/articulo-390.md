@@ -1,0 +1,1 @@
+Artículo 390.- Ejecución del acto. El acto se ejecutará una vez que se haya notificado a la persona privada de libertad. La interposición de los recursos no suspenderá su ejecución, excepto en aquellos casos en que, de oficio o a petición de parte, la Comisión Disciplinaria o el Instituto Nacional de Criminología decidan suspenderlo para evitar un perjuicio irreparable.

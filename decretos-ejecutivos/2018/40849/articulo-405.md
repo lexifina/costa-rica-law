@@ -1,0 +1,2 @@
+Artículo 405.- Sesión de filtro. La persona facilitadora realizará al menos una sesión de filtro individual con cada una de las partes implicadas en la diferencia, donde explicará a las partes en que consiste el proceso y sus alcances. Asimismo, determinará conciliabilidad y levantará información fundamental sobre el caso.
+Una vez determinada la admisibilidad y la conciliabilidad del caso, asignará la fecha para la sesión conjunta y designará al o los neutrales que llevarán el caso, a quienes entregará la información levantada en el filtro.

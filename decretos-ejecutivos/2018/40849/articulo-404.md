@@ -1,0 +1,2 @@
+Artículo 404.- Análisis de la solicitud. La persona facilitadora analizará la solicitud, determinará la admisibilidad del proceso y de proceder señalará las fechas de realización de las sesiones de filtro.
+En caso de que considere que la Mediación con Enfoque Restaurativo no resulte apropiada para resolver la discrepancia, podrá recomendar acciones previas para luego presentarse en óptimas condiciones al proceso solicitado.

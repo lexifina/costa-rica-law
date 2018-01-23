@@ -1,0 +1,1 @@
+Artículo 137.- Derecho a actividades recreativas, deportivas, culturales y artísticas. La Dirección General de Adaptación Social desarrollará, en todos los niveles de atención, proyectos de acceso a actividades recreativas, deportivas, culturales y artísticas, procurando el desarrollo de la persona privada de libertad a través del estímulo de sus habilidades y destrezas.

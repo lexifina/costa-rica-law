@@ -1,0 +1,1 @@
+Artículo 322.- Uso de sistemas tecnológicos de detección y animales amaestrados. Para detectar el posible ingreso, permanencia y egreso de objetos o sustancias prohibidas o no autorizadas, se podrán utilizar instrumentos tecnológicos y animales amaestrados, tanto en áreas comunes, como a lo interno de las diferentes dependencias, respetando siempre la normativa vigente.

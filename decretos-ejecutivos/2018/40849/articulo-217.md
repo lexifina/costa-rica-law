@@ -1,0 +1,3 @@
+SUB-SECCIÓN III
+APLICACIÓN DEL DESCUENTO PARA PERSONAS SENTENCIADAS
+Artículo 217.- Descuento para personas sentenciadas. A la persona sentenciada, podrá autorizarse previamente el beneficio del Código Penal para que se le aplique después del cumplimiento de la mitad de la pena con descuento, con base en el cómputo inicial elaborado por la autoridad jurisdiccional competente. No obstante, el tiempo utilizado por la persona privada de libertad en actividades de formación, ocupación y capacitación antes del cumplimiento de la primera mitad de la pena deberá valorarse para la concesión de otros beneficios penitenciarios como la ubicación, el otorgamiento de permisos de salidas o la promoción de nivel de atención.

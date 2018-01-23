@@ -1,0 +1,1 @@
+Artículo 327.- Revisión de alimentos y bienes perecederos. La revisión de alimentos y bienes perecederos que ingresen a un centro, ámbito o unidad debe realizarse en presencia de su portador o destinatario, guardando las medidas de higiene y normas de manipulación de alimentos que sean necesarias.

@@ -1,0 +1,1 @@
+Artículo 171.- Ubicación por condición jurídica. Las personas privadas de libertad indiciadas, deberán estar separadas de quienes ya tengan sentencia firme. La población primaria en delitos –indiciada o sentenciada- deberá estar en espacios distintos a los de la población con antecedentes penales.

@@ -1,0 +1,3 @@
+SECCIÓN II
+ACTIVIDADES OCUPACIONALES Y DEPORTIVAS EN ESPACIOS DE MENOR CONTENCIÓN
+Artículo 205.- Procedimiento. Es responsabilidad de las secciones de Educación y Orientación, realizar la selección de las personas privadas de libertad en las distintas ubicaciones ocupacionales y educativas que puedan desarrollar. Cuando se trate de actividades ocupacionales que de manera permanente o de forma temporal se han de desarrollar en espacios abiertos o con pocas barreras de contención, las recomendaciones de las secciones de Educación y Orientación deberán ser puestas en conocimiento del Consejo Interdisciplinario o del Consejo de Intervención Profesional, que será el encargado de autorizarla o denegarla.

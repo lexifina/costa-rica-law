@@ -1,0 +1,5 @@
+Artículo 410.- Confidencialidad. Salvo por lo dispuesto en el artículo anterior, el Equipo MER no divulgará -sin la autorización escrita de las partes- la existencia ni el resultado del proceso. No obstante, podrá tomar en cuenta esa información para las estadísticas que requiera manejar sobre sus actividades, a condición de que mediante esa información no sea posible revelar la identidad de las partes, ni detalles particulares de la controversia o la solución del caso. Lo anterior también aplica para las estadísticas que periódicamente se deben enviar a la DINARAC y el informe de valoración profesional de la persona privada de libertad.
+La información que podrá ser remitida obedece a:
+a) Participación de la persona privada de libertad en un proceso de Mediación con Enfoque Restaurativo; e
+b) Información referida a la conclusión del proceso con o sin acuerdo, o también, en proceso de reprogramación de una nueva audiencia de mediación para clarificar el no cumplimiento de un acuerdo anterior.
+En caso de recurrir a actas de confidencialidad estas serán resguardadas por la persona facilitadora.

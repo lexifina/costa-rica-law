@@ -1,0 +1,5 @@
+Artículo 329.- Supervisión de espacios. Las instalaciones destinadas a la población privada de libertad, incluyendo los dormitorios, podrán ser sometidos a supervisión y revisión por parte de los funcionarios de la Policía Penitenciaria. Esta supervisión consiste en revisiones de las pertenencias y dormitorios de las personas privadas de libertad, respetando las siguientes reglas:
+a) La supervisión de espacios y revisión de bienes se hará cuidando al máximo las pertenencias de las personas privadas de libertad, procurando no dañarlas con la intervención policial;
+b) Tratándose de pertenencias personales de mujeres privadas de la libertad, la supervisión se hará por personal femenino; en caso de fuerza mayor contarán con el apoyo del personal masculino;
+c) En el caso de las pertenencias de personas transexuales y transgénero la supervisión se hará por personal acorde al género, en la medida delas posibilidades; y
+d) De todas las acciones de supervisión de las instalaciones y revisión delas pertenencias, se levantará un informe en donde conste el cumplimiento, los resultados y la lista de la población privada de libertad que ocupa la dependencia intervenida.

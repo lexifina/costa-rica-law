@@ -1,0 +1,1 @@
+Artículo 59.- Convocatoria. Se reunirán con la frecuencia que se establece para cada órgano colegiado. Para las sesiones ordinarias no hará falta convocatoria especial. Para las sesiones extraordinarias siempre será necesaria la convocatoria por quien preside, con una antelación mínima de veinticuatro horas, salvo los casos de urgencia.

@@ -1,0 +1,1 @@
+Artículo 84.- Consejo de Atención Específica. El seguimiento y valoración de la persona ubicada en este espacio se realizará mediante el Consejo de Atención Específica, integrado por la dirección del centro, las disciplinas profesionales asignadas a la atención y el superior de la Policía Penitenciaria del centro.

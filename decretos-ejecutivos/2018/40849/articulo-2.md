@@ -1,0 +1,2 @@
+Artículo 2.- Ámbito de aplicación. Este reglamento se aplicará, salvo que exista alguna regulación especial, a las personas sentenciadas, indiciadas, contraventoras o sujetas a un procedimiento de extradición, entre quienes se promoverá su participación en los procesos de atención profesional de sus vulnerabilidades personales y aquellos otros que se consideren necesarios para el desarrollo de destrezas y habilidades para una vida responsable en comunidad.
+En materia penal juvenil prevalece la ley especial y este reglamento se aplicará de manera supletoria.

@@ -1,0 +1,1 @@
+Artículo 438.- Modificación de la medida cautelar. La modificación de la medida cautelar de localización permanente con seguimiento electrónico se regirá por lo dispuesto en el Código Procesal Penal. En casos de urgencia, se procederá con lo que establece este título.

@@ -1,0 +1,1 @@
+Artículo 124.- Objetivo del Programa de Justicia Restaurativa. El objetivo del Programa de Justicia Restaurativa consiste en lograr una efectiva inserción socio-laboral de la población penal que manifieste su deseo de ingresar voluntariamente y cumplir con los reglamentos y directrices propios del programa.

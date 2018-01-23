@@ -1,0 +1,1 @@
+Artículo 149.- Derecho a recibir atención profesional. La persona privada de libertad tiene derecho a recibir la atención profesional, en forma individual o grupal, disciplinaria e interdisciplinaria, según sus condiciones de vulnerabilidad e intereses y conforme lo disponga su plan de atención, con respeto a su libre autodeterminación y derechos fundamentales.

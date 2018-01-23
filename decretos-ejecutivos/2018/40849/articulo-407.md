@@ -1,0 +1,1 @@
+Artículo 407.- Sesiones separadas. Durante el desarrollo de la sesión conjunta, en aquellos casos donde el neutral lo considere pertinente podrán realizarse sesiones separadas. La información facilitada a la persona neutral por las partes en estas sesiones, no será divulgada en las sesiones conjuntas sin su autorización expresa.

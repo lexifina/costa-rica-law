@@ -1,0 +1,1 @@
+Artículo 395.- Fiscalización. La DINARAC fiscalizará, según sus criterios, el desarrollo de los programas que se ejecuten en cada Centro MER. Podrá emitir recomendaciones, observaciones y correcciones referentes al desarrollo de los procesos Mediación con Enfoque Restaurativo, según potestades otorgadas por la Ley RAC y su reglamento.

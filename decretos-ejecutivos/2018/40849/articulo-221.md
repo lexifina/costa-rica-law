@@ -1,0 +1,2 @@
+Artículo 221.- Trámites en sentencias cortas. En el caso de personas sentenciadas que ingresen faltando por descontar seis meses o menos de prisión con descuento, los trámites para la autorización del beneficio del Código Penal se iniciarán a partir del momento de su ingreso al centro o cancelación de sentencia anterior.
+Dicha autorización surtiría efectos a partir del momento en que se cumpla la mitad de la pena, salvo que haya descontado prisión preventiva y sea necesario hacer los ajustes correspondientes.

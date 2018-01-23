@@ -1,0 +1,1 @@
+Artículo 259.- Objetivo de la visita. La recepción de personas visitantes tiene por objeto mantener el contacto de la persona privada de libertad con su medio social, así como propiciar el respeto de los derechos fundamentales.

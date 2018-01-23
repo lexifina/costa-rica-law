@@ -1,0 +1,1 @@
+Artículo 144.- Derecho a la libertad de pensamiento, de conciencia y religión. Se garantizará la libertad de pensamiento, conciencia y religión de la persona privada de libertad, con la única limitante que impone el respeto por los derechos de las demás personas.

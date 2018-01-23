@@ -1,0 +1,1 @@
+Artículo 183.- Valoraciones en materia penal juvenil. Para la población sometida a la Ley de Justicia Penal Juvenil, la valoración se regirá por los plazos establecidos por esa ley y por la Ley de Ejecución de las Sanciones Penales Juveniles.

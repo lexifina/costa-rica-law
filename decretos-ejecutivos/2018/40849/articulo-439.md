@@ -1,0 +1,1 @@
+Artículo 439.- Comunicación a la autoridad jurisdiccional. Cuando se trate de condiciones de salud o trámites judiciales, se comunicará a la autoridad jurisdiccional sobre las necesidades que está presentando la persona monitoreada a fin de resolver de forma oportuna la situación.

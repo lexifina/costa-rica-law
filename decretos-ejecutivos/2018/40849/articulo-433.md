@@ -1,0 +1,1 @@
+Artículo 433.- Plan de Acciones Inmediatas. Es el proceso de acompañamiento profesional que consiste en la atención de las necesidades inmediatas para las personas que cumplen medida cautelar, mediante el uso de mecanismos de monitoreo electrónico.

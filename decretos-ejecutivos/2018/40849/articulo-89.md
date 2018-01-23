@@ -1,0 +1,1 @@
+Artículo 89.- Actividades ocupacionales. La educación y el trabajo son los principales instrumentos de atención profesional en este espacio. Se desarrollará en forma individual o grupal, de manera sistemática, programada y en condiciones adecuadas de seguridad.

@@ -1,0 +1,2 @@
+Artículo 133.- Principio general. Toda persona privada de libertad goza de los mismos derechos y garantías individuales, sociales, culturales, económicas y políticas, de los que son titulares los habitantes de la República, salvo aquellos que sean incompatibles con la modalidad de ejecución de la pena o custodia en que se encuentre.
+Sus condiciones de vida deberán tener como referencia la vida en libertad bajo un principio de normalidad, procurando reducir al máximo los efectos negativos y de deterioro de los distintos grados de privación de libertad.

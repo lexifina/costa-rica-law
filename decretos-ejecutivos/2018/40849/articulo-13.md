@@ -1,0 +1,2 @@
+Artículo 13.- Principio de idoneidad del personal penitenciario. La administración penitenciaria, bajo criterios rigurosos de idoneidad, escogerá al personal del sistema penitenciario nacional.
+El personal profesional, técnico y de la Policía Penitenciaria que tenga contacto con personas privadas de libertad, particularmente aquellas que pertenezcan a los sectores más vulnerables, debe ser especializado. Para esto, la Escuela de Capacitación Penitenciaria será la encargada de brindar los cursos correspondientes.

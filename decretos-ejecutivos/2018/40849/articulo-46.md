@@ -1,0 +1,1 @@
+Artículo 46.- Área de Educación. Es la responsable de coordinar o ejecutar los procesos educativos establecidos en cada unidad, de manera que se logre el máximo provecho de la infraestructura disponible y la implementación de las actividades necesarias para el cumplimiento del Plan de Intervención Profesional.

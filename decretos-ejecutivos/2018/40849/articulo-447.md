@@ -1,0 +1,1 @@
+Artículo 447.- Política de cero dinero. Las personas privadas de libertad podrán seguir circulando dinero en efectivo en los centros penitenciarios y en la cantidad determinada por la Dirección General de Adaptación Social hasta que sea posible la implementación de la política de cero dinero en efectivo en el sistema penitenciario nacional.

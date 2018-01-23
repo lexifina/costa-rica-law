@@ -1,0 +1,1 @@
+Artículo 370.- Tentativa. Cuando por razones ajenas a la voluntad del autor la falta no pueda ser consumada, podrá imponerse la sanción prevista para aquella, tomando en cuenta las circunstancias de tiempo, modo y lugar.

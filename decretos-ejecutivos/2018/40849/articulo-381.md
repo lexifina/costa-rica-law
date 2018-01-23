@@ -1,0 +1,7 @@
+Artículo 381.- Instrucción del reporte. Una vez que la dirección determine dar trámite al procedimiento disciplinario, deberá trasladar el caso al profesional en derecho que se encargará de su instrucción, salvo cuando no se disponga de tal recurso, en cuyo caso la instrucción le corresponderá a otro profesional designado por la dirección.
+La persona encargada de la instrucción realizará una entrevista a la persona privada de libertad, en la cual deberá cumplir con lo siguiente:
+a) Le informará de los hechos que se le imputan mediante la lectura integral del reporte, con especial referencia a los elementos probatorios;
+b) Le hará mención de los derechos que le asisten, de ofrecer prueba, de declarar o abstenerse a hacerlo y así como de nombrar bajo su peculioun defensor que le represente; y
+c) Le invitará a rendir declaración sobre los hechos que se le imputan, consignando en un acta lo dicho por esta. En caso de que se niegue a declarar o firmar el acta, así lo hará constar.
+Si la persona privada de libertad acepta su responsabilidad, se elevará el caso ante la Comisión Disciplinaria para que resuelva sin necesidad de evacuar más prueba.
+En los casos en que la persona privada de libertad haya sido trasladada lejos del recinto penitenciario donde se encontraba, el responsable de la instrucción podrá delegar la entrevista, así como utilizar mecanismos de videoconferencia u otros medios electrónicos.

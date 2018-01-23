@@ -1,0 +1,1 @@
+Artículo 178.- Valoración inicial para las personas indiciadas, contraventoras o sujetas a procedimientos de extradición. La valoración inicial le corresponderá al Consejo Interdisciplinario, se realizará desde que la persona ingresa a un centro del sistema penitenciario nacional, y permitirá determinar la legalidad del ingreso y establecer el Plan de Acciones Inmediatas.

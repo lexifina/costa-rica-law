@@ -1,0 +1,1 @@
+Artículo 45.- Área de Atención Profesional. Es la responsable de desarrollar la oferta de servicios profesionales necesarios para el cumplimiento del Plan de Intervención Profesional definido para cada uno de los residentes en cada unidad.

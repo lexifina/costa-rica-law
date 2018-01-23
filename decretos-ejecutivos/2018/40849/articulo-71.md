@@ -1,0 +1,12 @@
+Artículo 71.- Funciones. Son funciones del Consejo de Seguridad las siguientes:
+a) Analizar los asuntos relevantes en materia de seguridad, que acontecieron durante la semana y fueron puestos en conocimiento de manera verbal o escrita por las supervisiones de la Policía Penitenciaria que laboraron durante ese periodo de tiempo, a efecto de brindarles continuidad y observancia. En ellos, se detallarán aspectos relacionados con la seguridad perimetral y de infraestructura, situaciones presentadas en el relevo y entrega de puestos, además de acontecimientos tales como: evasiones, muertes, agresiones, decomisos de sustancias psicoactivas, armas;
+b) Valorar la continuidad de acciones realizadas por la escuadra de la Policía Penitenciaria durante su semana de servicio, detallando y priorizando las acciones inmediatas a seguir por el personal de relevo;
+c)Analizar situaciones de convivencia de la población penal del centro;
+d) Realizar informe de entrega de equipo móvil, arsenal y equipo de seguridad disponible;
+e) Definir planes de seguridad a implementar en el centro, a partir de la consecuente labor de inteligencia y trabajo proactivo;
+f) Recomendar al Consejo de Análisis, las medidas de seguridad a implementar en actividades propias del área profesional, con el fin de garantizar la seguridad;
+g) Conocer los acuerdos tomados por el Consejo Interdisciplinario, el Consejo de Análisis o la dirección del centro, que requieran la coordinación con la Policía Penitenciaria para su ejecución;
+h) Realizar y transmitir las recomendaciones que considere necesarias para el mejoramiento de la seguridad ante otras instancias, tanto institucionales como externas;
+i) Recomendar al Consejo Interdisciplinario o a la dirección del centro, el cambio de la ubicación física de las personas privadas de libertad en los distintos ámbitos o módulos del centro según el perfil definido; y
+j) Proponer a la coordinación del nivel de atención, por motivos de seguridad, el acuerdo de traslado entre establecimientos del mismo nivel, según los criterios definidos por el Instituto Nacional de Criminología. En caso de desacuerdo, el traslado deberá ser dirimido por el Instituto Nacional de Criminología.
+Cuando sus acuerdos sean en razón de lo señalado en los incisos i) y j), o cuando traten de personas privadas de libertad específicas, deberán notificarse siguiendo el mismo procedimiento establecido para la notificación de las recomendaciones y acuerdos del Consejo Interdisciplinario.

@@ -1,0 +1,1 @@
+Artículo 48.- Área de la Policía Penitenciaria. Es la responsable de la vigilancia, custodia y seguridad de los residentes, funcionarios, visitantes, bienes muebles e inmuebles de la unidad, a partir de un modelo policial de seguridad dinámica e integral. Tiene una jefatura policial que tendrá una relación de coordinación directa y estrecha con la dirección de la unidad.

@@ -1,0 +1,1 @@
+Artículo 131.- Seguimiento posterior al cambio de nivel. En caso de que la persona privada de libertad sea trasladada del Programa de Justicia Restaurativa a un Centro de Atención Seminstitucional, deberá cumplir con un plan de seguimiento por parte de dicho programa por un plazo mínimo de seis meses.

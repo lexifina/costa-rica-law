@@ -1,0 +1,4 @@
+SECCIÓN VII
+NIVEL DE ATENCIÓN SEMINSTITUCIONAL
+Artículo 49.- Nivel de Atención Seminstitucional. El Nivel de Atención Seminstitucional atiende y controla el plan de ejecución penal de las personas privadas de libertad sentenciadas, con una modalidad de ejecución de la pena en condiciones de menor contención física y con el soporte de redes externas de apoyo. Para la población penal sin recurso externo idóneo o suficiente, se desarrollarán proyectos alternativos que faciliten su paulatina desinstitucionalización.
+Este nivel se caracteriza por el establecimiento de una red de interacción con instituciones públicas, privadas, organizaciones comunales y grupos de autoayuda, con la finalidad de movilizar recursos de apoyo para favorecer los procesos de atención y seguimiento de la población beneficiada.

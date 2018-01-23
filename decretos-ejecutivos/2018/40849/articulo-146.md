@@ -1,0 +1,1 @@
+Artículo 146.- Derecho al sufragio. Toda persona privada de libertad tendrá derecho a emitir su voto libremente. El Tribunal Supremo de Elecciones, el Ministerio de Justicia y Paz, la Dirección General de Adaptación Social y la Dirección de la Policía Penitenciaria, de manera coordinada, dispondrán de todas las medidas necesarias para el cumplimiento de este derecho.

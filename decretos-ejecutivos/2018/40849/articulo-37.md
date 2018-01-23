@@ -1,0 +1,3 @@
+SECCIÓN III
+NIVEL DE ATENCIÓN A LA POBLACIÓN PENAL JUVENIL
+Artículo 37.- Nivel de Atención a la Población Penal Juvenil. El Nivel de Atención a la Población Penal Juvenil atiende, custodia y controla el plan de ejecución penal de las personas sometidas a la justicia penal juvenil. También, le corresponde asegurar el cumplimiento de la detención provisional y las sanciones penales juveniles, garantizando la integridad física, moral y emocional de su población, promoviendo su desarrollo personal y sentido de la responsabilidad para facilitar su inserción en el ámbito comunitario, mediante la participación interinstitucional y de órganos de apoyo.

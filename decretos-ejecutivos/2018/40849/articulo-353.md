@@ -1,0 +1,1 @@
+Artículo 353.- Requisitos para su aplicación. Las medidas cautelares se utilizarán únicamente como forma excepcional de prevención y solución temporal, en situaciones de inminente peligro personal o institucional. Deben ser fundamentadas por escrito y comunicadas en el plazo máximo de veinticuatro horas a la persona privada de libertad.

@@ -1,0 +1,1 @@
+Artículo 12.- Principio de reconocimiento de méritos. La administración penitenciaria registrará en el expediente de las personas privadas de libertad su buen desempeño y el progreso que obtengan. El reconocimiento de méritos será tomando en cuenta para las valoraciones y la aplicación de beneficios penitenciarios.

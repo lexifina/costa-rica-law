@@ -1,0 +1,1 @@
+Artículo 449.- Capacitación y comunicación. La Dirección General de Adaptación Social y la Dirección de la Policía Penitenciaria, a través de la Escuela de Capacitación Penitenciaria, deberán capacitar al personal encargado de poner en práctica este reglamento. También, deberá comunicarse el reglamento a las personas privadas de libertad.

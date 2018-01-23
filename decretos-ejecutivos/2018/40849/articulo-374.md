@@ -1,0 +1,1 @@
+Artículo 374.- Prórroga del plazo del proceso. En casos calificados, por la complejidad de los hechos o por situaciones ajenas al órgano instructor del procedimiento, la Comisión Disciplinaria podrá acordar la prórroga del plazo hasta por un mes. La prórroga deberá ser fundamentada y notificada a la persona interesada antes del vencimiento del plazo ordinario.

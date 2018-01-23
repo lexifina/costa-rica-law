@@ -1,0 +1,1 @@
+Artículo 152.- Derecho al acceso a las leyes, reglamentos y otras disposiciones. Toda persona privada de libertad tendrá acceso a las leyes, reglamentos y disposiciones generales emitidas por las autoridades competentes, que regulen la ejecución de las medidas privativas de libertad.

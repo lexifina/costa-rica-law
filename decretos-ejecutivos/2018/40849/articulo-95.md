@@ -1,0 +1,1 @@
+Artículo 95.- Finalidad. Los módulos Materno Infantil están destinados a fomentar el vínculo materno parental, logrando la atención integral del niño y de la niña en las áreas psicosocial, de salud, nutrición y prevención potencial del abandono, maltrato o abuso.

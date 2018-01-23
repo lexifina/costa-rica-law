@@ -1,0 +1,1 @@
+Artículo 253.- Intervención individual. Es el abordaje individual que realizan los profesionales del Equipo de Intervención de cada uno de los residentes a partir de necesidades personales básicas: individuales, sociales y participativas, y que permitirá evaluar el Plan de Intervención Profesional.

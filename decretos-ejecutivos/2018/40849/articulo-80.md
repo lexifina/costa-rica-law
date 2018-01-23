@@ -1,0 +1,2 @@
+Artículo 80.- Ubicación geográfica del Centro Nacional de Atención Específica. El sistema penitenciario nacional contará con un Centro Nacional de Atención Específica, el cual pertenecerá al Nivel de Atención Institucional y estará ubicado en San Rafael de Ojo de Agua, Alajuela.
+No obstante, los principios y reglas de este tipo de atención también podrán ser aplicados en cualquier otro espacio penitenciario que así sea definido por resolución motivada del Director General de Adaptación Social.

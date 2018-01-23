@@ -1,0 +1,1 @@
+Artículo 430.- Fases. En la Unidad de Atención a Personas Sujetas a Monitoreo con Dispositivos Electrónicos, la atención profesional a la población se realizará a través de tres fases: ingreso, acompañamiento y egreso.

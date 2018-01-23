@@ -1,0 +1,1 @@
+Artículo 377.- Obligatoriedad de elaborar el reporte. El reporte debe ser elaborado por los funcionarios que conozcan del hecho, dentro de las cuarenta y ocho horas posteriores al conocimiento de la presunta falta.

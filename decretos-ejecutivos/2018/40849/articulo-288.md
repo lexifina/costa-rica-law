@@ -1,0 +1,4 @@
+SECCIÓN IV
+VISITA DE PROFESIONALES EN DERECHO
+Artículo 288.- Ingreso de abogados, defensa pública y privada y asistentes de abogacía. Durante el desarrollo de las distintas fases del proceso penal, toda persona privada de libertad tendrá derecho a realizar su defensa técnica hasta por dos profesionales en derecho al mismo tiempo. En lo que respecta a materias distintas al derecho penal, las personas privadas de libertad podrán ser representadas por la misma cantidad de profesionales.
+Se podrá autorizar su ingreso si demuestran que están prestando o prestarán sus servicios a la persona privada de libertad; no obstante, por razones de espacio y de seguridad, por cada privado de libertad no podrán estar más de dos representantes legales de manera simultánea en el locutorio o espacio para profesionales en Derecho.

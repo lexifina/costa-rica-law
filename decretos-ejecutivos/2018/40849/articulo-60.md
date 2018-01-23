@@ -1,0 +1,2 @@
+Artículo 60.- Quórum y forma de votación. Para que estos órganos colegiados funcionen válidamente, se requiere la participación de por lo menos dos terceras partes de sus integrantes, que podrán ser sustituidos por otras personas, siempre que cumplan con los requisitos para el puesto y estén debidamente juramentadas.
+Los acuerdos se tomarán por votación de mayoría simple de los presentes. En caso de empate quien preside tendrá doble voto.

@@ -1,0 +1,1 @@
+Artículo 14.- Principio de Resolución Alternativa de Conflictos. Para solucionar las diferencias entre las personas privadas de libertad, se privilegiará el diálogo, la negociación, la mediación, la conciliación y otras técnicas similares de Resolución Alternativa de Conflictos.

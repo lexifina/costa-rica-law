@@ -1,0 +1,1 @@
+Artículo 312.- Autorización para la investigación académica. Los profesionales y estudiantes universitarios podrán aprovechar su experiencia y conocimiento adquirido para realizar sus Trabajos Finales de Graduación u otros trabajos de investigación en el sistema penitenciario nacional, siempre que haya sido autorizado por la Dirección General de Adaptación Social.

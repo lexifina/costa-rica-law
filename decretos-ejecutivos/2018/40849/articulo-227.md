@@ -1,0 +1,2 @@
+Artículo 227.- Plan de Acciones Inmediatas. Consiste en la atención de las necesidades inmediatas para personas indiciadas, contraventoras o sujetas a un procedimiento de extradición, durante su estancia en un Centro de Atención Institucional y la determinación de la legalidad de la privación de libertad.
+Una vez definido, este plan deberá registrarse en el sistema informático en un plazo máximo de dos días hábiles.

@@ -1,0 +1,1 @@
+Artículo 8.- Principio de irretroactividad de las normas. La modificación de las normas en esta materia no podrá ser aplicada retroactivamente, salvo en lo que resulte más favorable para la persona privada de libertad.

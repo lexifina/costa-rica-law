@@ -1,0 +1,3 @@
+Artículo 65.- Contenido de los acuerdos del Consejo Interdisciplinario. En cada acuerdo se establecerá claramente la identificación de la persona privada de libertad, con su nombre completo y calidades, situación jurídica, los fundamentos de hecho y de derecho, la decisión tomada, fecha de la primera y última valoración, y demás aspectos que sean necesarios.
+Los acuerdos correspondientes a valoraciones que recomienden un cambio en el nivel de atención, serán remitidos vía electrónica al Instituto Nacional de
+Criminología, acompañados de la documentación respectiva y en un plazo no mayor a dos días hábiles a partir de la firmeza.

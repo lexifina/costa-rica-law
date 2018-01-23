@@ -1,0 +1,2 @@
+Artículo 128.- Atención de la población privada de libertad en el Programa de Justicia Restaurativa. El desarrollo del Programa de Justicia Restaurativa podrá encargársele a una organización privada sin fines de lucro con la que se deberá suscribir un convenio. Esta organización deberá rendir informes al Consejo Interdisciplinario del centro donde se ubique.
+Se podrá aplicar la normativa y los procedimientos propios del Programa de Justicia Restaurativa siempre que no se contrapongan a la normativa establecida para la administración penitenciaria.

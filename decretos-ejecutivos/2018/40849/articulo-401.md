@@ -1,0 +1,1 @@
+Artículo 401.- Prohibiciones. Queda absolutamente prohibido, instruir o servir de testigo en un proceso disciplinario relativo a una controversia en la cual se haya actuado como neutral, salvo que sea para aclarar los alcances del acuerdo o las que establezca la ley.

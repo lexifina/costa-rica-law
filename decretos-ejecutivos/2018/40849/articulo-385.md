@@ -1,0 +1,1 @@
+Artículo 385.- Acceso restringido. Serán de acceso restringido las piezas del expediente que contengan informaciones confidenciales, o en general aquellas cuyo conocimiento pueda conferir una oportunidad para dañar ilegítimamente a ofendidos, a la administración penitenciaria, a otras personas privadas de libertad o terceros, o confiera a la parte de un privilegio.

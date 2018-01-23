@@ -1,0 +1,1 @@
+Artículo 422.- Obligación para los cuerpos de policía. De conformidad con la ley, en caso de alerta por incumplimiento injustificado de la medida por parte de la persona usuaria del mecanismo electrónico, todos los cuerpos de policía están en la obligación de colaborar.

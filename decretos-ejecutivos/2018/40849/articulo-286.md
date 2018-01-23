@@ -1,0 +1,7 @@
+SECCIÓN III
+SITUACIONES ESPECIALES
+Artículo 286- Requisitos de ingreso de funcionarios en calidad de visitantes. En aquellos casos, donde los funcionarios de la institución cuenten con un amigo o familiar en privación de libertad, ya sea del grupo de origen, propio o recurso de apoyo sustituto establecido previo al proceso de prisionalización, se deben cumplir los siguientes lineamientos:
+a) El funcionario debe informar por escrito a la dirección del centro, unidad u oficina donde labora, que cuenta con un familiar o amigo en condición de privación de libertad y que es su interés mantener y fortalecer el vínculo previamente establecido al ingreso a prisión;
+b) En el establecimiento donde se encuentra recluido el familiar o amigo, se deben tomar las medidas de seguridad necesarias, a efectos de salvaguardar la integridad física de estas personas por su investidura de funcionario penitenciario; y
+c) Por razones de seguridad, la dirección y el superior de la Policía Penitenciaria del centro, ámbito o unidad, deben establecer un horario distinto al resto de los visitantes.
+En la medida de las posibilidades, deberá evitarse la ubicación de personas privadas de libertad en unidades de trabajo donde se encuentren funcionarios con los cuales mantenga una vinculación hasta en segundo grado de afinidad o consanguinidad. Caso contrario, deberá evitarse que el funcionario intervenga con la persona privada de libertad.

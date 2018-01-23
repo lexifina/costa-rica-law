@@ -1,0 +1,1 @@
+Artículo 188.- Informe. En caso de haberse asignado profesionales responsables del acompañamiento durante la salida, deberán rendir un informe a la dirección del centro o unidad, sobre el desenvolvimiento de la persona o grupo, a efectos de su análisis respectivo en la valoración de su plan de atención.

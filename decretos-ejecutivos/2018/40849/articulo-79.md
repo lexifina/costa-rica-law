@@ -1,0 +1,1 @@
+Artículo 79.- Derechos y deberes en el espacio de Atención Específica. Las personas ubicadas en este espacio gozarán de los mismos derechos y deberes de las demás personas privadas de libertad, incluidas la realización de actividades culturales, ocupacionales, educativas, recreativas y deportivas, adecuándose a las condiciones y características de la Atención Específica.

@@ -1,0 +1,2 @@
+Artículo 160.- Deber de aseo e higiene. Las personas privadas de libertad deberán velar por el aseo y cuidar su higiene personal, de forma que no se provoque riesgo a su salud o a la colectividad.
+En las Unidades de Atención Integral está totalmente prohibido ingresar alimentos a las residencias. Los alimentos podrán ingresar para su consumo únicamente en las áreas determinadas por la dirección de la unidad.

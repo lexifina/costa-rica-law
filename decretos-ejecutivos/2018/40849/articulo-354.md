@@ -1,0 +1,1 @@
+Artículo 354.- Uso de información confidencial. Podrán aplicarse medidas cautelares basadas en información confidencial, sin embargo, la autoridad competente deberá verificar la información a través de la investigación correspondiente.

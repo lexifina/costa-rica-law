@@ -1,0 +1,1 @@
+Artículo 237.- Selección. Los Consejos Interdisciplinarios de los centros, atendiendo el perfil diseñado por el Instituto Nacional de Criminología, seleccionarán a las personas privadas de libertad que eventualmente podrían ser ubicadas en el Nivel de Unidades de Atención Integral.

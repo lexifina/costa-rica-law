@@ -1,0 +1,3 @@
+SECCIÓN II
+MODALIDADES DE VISITAS ESPECIALES
+Artículo 281.- Profesionales que ejercen liberalmente y los funcionarios públicos. Los profesionales que ejercen liberalmente una profesión, en tanto se encuentren prestando sus servicios a una o varias personas privadas de libertad, así como los funcionarios públicos en el ejercicio de sus funciones, podrán visitar los centros y unidades del sistema penitenciario nacional, dentro del horario establecido por la dirección del centro o unidad, debiendo acreditar su condición mediante la presentación del carné vigente expedido por el Colegio Profesional al que están incorporados o por la institución para la que prestan sus servicios, según sea el caso.

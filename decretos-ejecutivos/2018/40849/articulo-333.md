@@ -1,0 +1,1 @@
+Artículo 333.- Registro y secuestro de documentos. En caso de que sea necesario proceder con el registro, secuestro y examen de documentos privados, o la intervención de las comunicaciones, deberá seguirse el procedimiento establecido en la ley.

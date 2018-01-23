@@ -1,0 +1,1 @@
+Artículo 241.- Plan de Intervención Profesional Provisional. Corresponde al plan elaborado provisionalmente por el Consejo de Intervención Profesional al momento de la selección de los residentes, a partir de sus fortalezas y debilidades, y en el que se indican al menos las responsabilidades asignadas y su ubicación temporal.

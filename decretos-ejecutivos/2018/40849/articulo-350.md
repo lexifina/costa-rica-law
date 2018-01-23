@@ -1,0 +1,1 @@
+Artículo 350.- Entrega de valores en custodia a beneficiarios. En caso de fallecimiento de la persona privada de libertad, se procederá a la entrega de los bienes depositados en valores en custodia al particular que haya designado como beneficiario, siguiendo los procedimientos indicados en este reglamento.

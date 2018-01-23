@@ -1,0 +1,2 @@
+Artículo 67.- Ejecución de los acuerdos y recomendaciones del Consejo Interdisciplinario y del Instituto Nacional de Criminología. Los acuerdos serán ejecutados una vez que adquieran firmeza y estén debidamente notificados.
+Una vez recibido el acuerdo del Instituto Nacional de Criminología que autoriza el cambio de nivel de atención, la dirección del centro remitente procederá a coordinar con la dirección del centro u oficina receptor para ejecutar el traslado.

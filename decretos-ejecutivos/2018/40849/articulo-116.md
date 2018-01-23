@@ -1,0 +1,1 @@
+Artículo 116.- Espacios conjuntos. El centro fomentará la presencia de las madres en espacios conjuntos con su hijo e hija, participando de actividades dirigidas al aprendizaje, el juego, la interacción cultural y recreativa.

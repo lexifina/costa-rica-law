@@ -1,0 +1,1 @@
+Artículo 198.- Organización y funcionamiento. El Instituto Nacional de Criminología, por medio de los Consejos Interdisciplinarios y los Consejos de Intervención Profesional, organizará, dirigirá y supervisará las actividades que realice la persona privada de libertad, tomando en cuenta las posibilidades ocupacionales y las habilidades, destrezas y conocimientos de la persona.

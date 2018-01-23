@@ -1,0 +1,1 @@
+Artículo 271.- Registro digital de información. Una vez autorizada la visita, la Policía Penitenciaria registrará por medios digitales, el nombre completo y el número de identificación de la persona privada de libertad, de la persona menor de edad y de la persona responsable.

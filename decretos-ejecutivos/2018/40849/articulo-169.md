@@ -1,0 +1,2 @@
+Artículo 169.- Ubicación por género. La ubicación de las personas privadas de libertad se realizará en espacios que contemplen su diversidad y particularidad. Podrán compartir espacios comunes durante la realización de actividades diversas, tales como educación, recreación, trabajo, capacitación.
+Para determinar su ubicación se han de tomar en cuenta su diversidad sexual, sus características socio personales y el respeto a otros derechos que le asistan.

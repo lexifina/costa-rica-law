@@ -1,0 +1,1 @@
+Artículo 156.- Derecho de recibir y poseer objetos y bienes. Toda persona privada de libertad tendrá derecho a poseer objetos, dinero y otro medio de pago autorizado para sus gastos y pertenencias para su uso personal, siempre y cuando se cumplan con las condiciones y requisitos fijados por la administración penitenciaria y la normativa vigente.

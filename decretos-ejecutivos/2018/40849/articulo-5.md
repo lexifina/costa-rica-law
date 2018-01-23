@@ -1,0 +1,1 @@
+Artículo 5.- Principio de respeto a la dignidad humana. A toda persona privada de libertad se le garantizará su integridad física, psíquica, moral y el respeto a su dignidad humana, conforme a los derechos y garantías fundamentales establecidas en la Constitución Política, los instrumentos internacionales sobre derechos humanos y la normativa nacional.

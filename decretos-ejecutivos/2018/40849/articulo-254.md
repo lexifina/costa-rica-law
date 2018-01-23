@@ -1,0 +1,1 @@
+Artículo 254.- Intervención colectiva. Es el abordaje colectivo que realizan los profesionales del Equipo de Intervención a los residentes para valorar su desarrollo personal a partir de los ejes colectivos (educacional, psicosocial, socio-laboral y productivo y de actividades complementarias).
