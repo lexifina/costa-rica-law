@@ -20,3 +20,4 @@ Reglamento de operación del Centro Nacional de Abastecimiento y Distribución d
 | 5 | 2008-12-16 | Reglamento 0 (2008-12-16) |
 | 6 | 2012-12-11 | Reglamento 0 (2012-12-11) |
 | 7 | 2014-08-06 | Reglamento 0 (2014-08-06) |
+| 8 | 2018-01-23 | Reglamento 0 (2018-01-23) |
