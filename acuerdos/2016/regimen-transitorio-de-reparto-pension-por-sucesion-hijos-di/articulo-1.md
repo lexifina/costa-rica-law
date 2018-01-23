@@ -21,4 +21,5 @@ Declaración jurada: debe ser autenticada por notario únicamente (no protocoliz
 En las declaraciones juradas es indispensable indicar el nombre y cédula del causante. Asimismo de conformidad con el artículo 10 del código de trabajo se pueden eximir de la presentación de timbres indicándolo expresamente.
 Estudio socioeconómico solo ley 7531(ley del causante). En el caso de las leyes 2248 y 7268 se requerirá este estudio cuando se resuelva en aplicación retroactiva de la ley 7531(invalidez acaecida después de la mayoría de edad) (realizado por JUPEMA)
 -Aportar documentos para la respectiva valoración médica por parte de la CCSS (se retira en la plataforma de servicios de la Junta de Pensiones)
--Presentar la sentencia judicial sobre el nombramiento del curador para las personas con discapacidad cognoscitiva (mental), debidamente comprobada.
+-Presentar la sentencia judicial sobre el nombramiento del Garante(*) para las personas con discapacidad cognoscitiva (mental), debidamente comprobada.
+(*) (Así reformado el párrafo anterior y publicado en el Alcance Digital N° 12 a La Gaceta N° 12 del 23 de enero de 2018)
