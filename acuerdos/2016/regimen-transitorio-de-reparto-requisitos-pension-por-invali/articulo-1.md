@@ -7,9 +7,11 @@ Información general
 -Carta de autorización a JUPEMA para solicitar documentos en caso de ser necesario.
 -Carta de autorización en caso de que terceros entreguen la documentación (copia de ambas cédulas).
 -Cuenta cedular (Registro Civil).
--Fotocopia de la cédula vigente por ambos lados.
+- Presentación de la cédula de identidad vigente
+(Así reformado el párrafo anterior y publicado en el Alcance Digital N° 12 a La Gaceta N° 12 del 23 de enero de 2018)
 -Certificación de Migración y Extranjería, documento DIMEX, (en el caso de ser extranjero no nacionalizado).
--En caso de que el solicitante sea extranjero, aportar fotocopia de carné de asegurado.
+-En caso de extranjeros residentes en el país, aportar constancia de número de asegurado social (CCSS); y los extranjeros no residentes en el país aportar pasaporte vigente.
+(Así reformado el párrafo anterior y publicado en el Alcance Digital N° 12 a La Gaceta N° 12 del 23 de enero de 2018)
 -Constancias indicando si es pensionado o tramita pensión por algún otro régimen :
 • CCSS ( JUPEMA)
 •Poder Judicial (JUPEMA)
@@ -59,3 +61,5 @@ Para la valoración médica:
 -En caso de contar con los dictámenes que den referencia de laenfermedad, aportar fotocopias.
 En caso de tener una pensión por invalidez con la CCSS aportar:
 -Copia certificada del expediente médico de la CCSS.
+En caso de que el solicitante se encuentre incapacitado debe aportar el reporte que emite la CCSS o INS con el desglose de sus incapacidades. (Sólo para funcionarios activos del MEP).
+(Así adicionado el párrafo anterior y publicado en el Alcance Digital N° 12 a La Gaceta N° 12 del 23 de enero de 2018)
