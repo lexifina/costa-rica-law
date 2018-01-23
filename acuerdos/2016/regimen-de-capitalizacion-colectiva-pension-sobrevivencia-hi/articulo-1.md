@@ -2,11 +2,15 @@ JUNTA DE PENSIONES Y JUBILACIONES DEL MAGISTERIO NACIONAL
 REGIMEN DE CAPITALIZACIÓN COLECTIVA
 REQUISITOS
 PENSIÓN SOBREVIVENCIA HIJOS MAYORES DE EDAD DISCAPACITADOS
--Formulario debidamente lleno. En el caso de que el solicitante presente discapacidad cognoscitiva declarada (mental), debe firmar el representante o curador (adjuntar documento que lo acredite) (incluye declaraciones juradas según corresponda).
--Carta de autorización a JUPEMA para solicitar documentos en caso de ser necesario. en el caso de que el solicitante presente discapacidad cognoscitiva declarada (mental), debe firmar el representante o curador (adjuntar documento que lo acredite)
+-Formulario debidamente lleno. En el caso de que el solicitante presente discapacidad cognoscitiva declarada (mental), debe firmar el representante o Garante(*) (adjuntar documento que lo acredite) (incluye declaraciones juradas según corresponda).
+(*) (Así reformado el párrafo anterior y publicado en el Alcance Digital N° 12 a La Gaceta N° 12 del 23 de enero de 2018)
+-Carta de autorización a JUPEMA para solicitar documentos en caso de ser necesario. en el caso de que el solicitante presente discapacidad cognoscitiva declarada (mental), debe firmar el representante o Garante(*) (adjuntar documento que lo acredite)
+(*) (Así reformado el párrafo anterior y publicado en el Alcance Digital N° 12 a La Gaceta N° 12 del 23 de enero de 2018)
 -Fotocopia vigente de la cédula del solicitante y del causante.
--Fotocopia vigente de la cedula del representante o curador.
--Carta de autorización en caso de que terceros entreguen la documentación( copia de ambas cédulas) en el caso de que el solicitante presente discapacidad cognoscitiva declarada (mental), debe firmar el representante o curador (adjuntar documento que lo acredite)
+-Fotocopia vigente de la cedula del representante o Garante(*).
+(*) (Así reformado el párrafo anterior y publicado en el Alcance Digital N° 12 a La Gaceta N° 12 del 23 de enero de 2018)
+-Carta de autorización en caso de que terceros entreguen la documentación( copia de ambas cédulas) en el caso de que el solicitante presente discapacidad cognoscitiva declarada (mental), debe firmar el representante o Garante(*) (adjuntar documento que lo acredite)
+(*) (Así reformado el párrafo anterior y publicado en el Alcance Digital N° 12 a La Gaceta N° 12 del 23 de enero de 2018)
 -Certificación de migración y extranjería del solicitante y del causante (en el caso de ser extranjero no nacionalizado documento DIMEX).
 -En caso de que el solicitante y el causante sean extranjeros, aportar fotocopia de carné de asegurados.
 -Certificación cotizaciones del causante (JUPEMA).
@@ -22,7 +26,8 @@ Para la valoración médica:
 -En caso de contar con los dictámenes que den referencia de la enfermedad, aportar Fotocopias.
 En caso de tener una pensión por invalidez con la CCSS aportar:
 -Copia certificada del expediente médico de la CCSS.
--En caso de no contar con la capacidad volitiva y cognoscitiva debe presentar la correspondiente representación legal (curador). Resolución del Juzgado de Familia.
+-En caso de no contar con la capacidad volitiva y cognoscitiva debe presentar la correspondiente representación legal (Garante(*)). Resolución del Juzgado de Familia.
+(*) (Así reformado el párrafo anterior y publicado en el Alcance Digital N° 12 a La Gaceta N° 12 del 23 de enero de 2018)
 En caso de estar trabajando o recibir otros ingresos, debe presentar las certificaciones o documentos que comprueben los mismos. (SICERE, algún otro que se estime necesario de acuerdo a los datos indicados en el formulario.)
 -Constancias indicando si es pensionado o tramita pensión por algún otro régimen, en el caso de tener pensión por algún otro régimen del causante y solicitante:
 •CCSS ( JUPEMA)
