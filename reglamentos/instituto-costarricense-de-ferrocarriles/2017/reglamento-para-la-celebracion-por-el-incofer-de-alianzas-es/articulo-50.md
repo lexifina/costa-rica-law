@@ -1,0 +1,3 @@
+Sección IV. De la Adjudicación y firma del contrato de APP
+Artículo 50. De la adjudicación de la APP. Dependiendo de la normativa que se aplique, si la adjudicación de una APP corresponde hacerla al Poder Ejecutivo, entendido como el Presidente de la República y el Ministro de Obras Públicas y Transportes, a quienes se trasladará el expediente respectivo y el acuerdo del Consejo Directivo acogiendo la recomendación de adjudicación, a efectos de proceder a adjudicar según la recomendación que le haga el INCOFER.
+En los casos en que lo dispuesto en el párrafo anterior no aplique, corresponderá al Consejo Directivo hacer la respectiva adjudicación del contrato de APP.

@@ -1,0 +1,1 @@
+Artículo 28. Del proceso de licitación. Para la selección del contratista, el INCOFER se sujetará a los procedimientos ordinarios y su régimen recursivo de conformidad con las disposiciones de la normativa que regula cada tipo de contratación, así como del Reglamento del Régimen Especial de Contratación autorizado por la Ley No. 9366.

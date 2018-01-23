@@ -1,0 +1,7 @@
+Sección III. De las APP de iniciativa privada
+Artículo 31. De la posibilidad de desarrollar APP por iniciativa de un tercero privado. Los terceros privados podrán presentar al INCOFER, sus propuestas de nuevas APP, las cuales para ser aceptadas y concursadas requerirán:
+a. Estar investidas de interés público.
+b. Estar acompañadas de estudios de factibilidad técnica, ambiental y económica, y de un plan de construcción y explotación, según el caso.
+El INCOFER examinará las propuestas de APP, y de considerarlas factibles, de interés público y acordes con el Plan Nacional de Desarrollo, procederá a ejecutar el proceso de contratación en el plazo que esta establezca.
+El proponente de una idea de APP participará en la licitación en los mismos términos y condiciones que otros particulares y será admitido de pleno derecho, cuando se efectúe la precalificación.
+El proponente privado cuya iniciativa haya sido aceptada por el INCOFER, no estará inhibido de participar en la licitación pública, mediante los mecanismos autorizados por el régimen jurídico aplicable, y tendrá el derecho de recuperar los costos invertidos directamente en el proyecto y en la preparación de los estudios solicitados por el INCOFER, debidamente justificados, siempre y cuando el proyecto resulte ser adjudicado y refrenda7do el respectivo contrato. El cartel de licitación deberá establecer el monto que el adjudicatario estará obligado a reembolsarle al proponente privado, así como el plazo en que deberá hacerlo, en caso de que este no resulte adjudicado.

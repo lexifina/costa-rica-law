@@ -1,0 +1,9 @@
+Artículo 30. De la ejecución del contrato de APP. El INCOFER, por medio de la Presidencia Ejecutiva elevará al Consejo Directivo para su aprobación la constitución de la estructura administrativa conformada con su propio personal o por medio de una unidad ejecutora de proyecto contratada al efecto, que se encargue de fiscalizar la ejecución del contrato de AAP, de manera que se asegure el cumplimiento, entre otras, de las siguientes obligaciones:
+a. Fiscalizar el cumplimiento de la fase de diseño del proyecto, asegurándose de la inclusión de todos los requerimientos establecidos en los términos de la contratación.
+b. Fiscalizar el cumplimiento de las normas de calidad y seguridad requeridas según la normativa nacional e internacional atinente al objeto del contrato.
+c. Fiscalizar el cumplimiento de los nivel es de servicio, la correcta aplicación de la estructura tarifaria aprobada por la Autoridad Reguladora de los Servicios Públicos y los estándares técnicos acordados en el contrato de APP.
+d. Garantizar en la fase de explotación el acceso oportuno a la información veraz, completa y actualizada de la gestión de los servicios públicos derivados del contrato de APP.
+e. Requerir información al contratista de cualquier aspecto que sea necesario documentar o clarificar por solicitud de diferentes instancias técnicas, políticas, financieras o de la sociedad civil.
+f. Proponer a la instancia competente la aplicación de las multas que correspondan en virtud del cartel de licitación y del contrato de APP.
+g. Apoyar en el proceso de recepción provisional y definitiva de la obra objeto del contrato de APP y en la etapa de terminación del mismo contrato.
+h. Cualquier otra que se establezca en el cartel de licitación, el contrato de APP, la normativa interna del INCOFER , y en caso de ser contratado externamente en su contrato de prestación de estos servicios.

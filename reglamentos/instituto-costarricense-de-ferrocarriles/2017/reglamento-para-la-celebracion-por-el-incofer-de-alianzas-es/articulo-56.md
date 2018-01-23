@@ -1,0 +1,1 @@
+Artículo 56. De la suscripción del contrato de APPD. El contrato de APPD será suscrit o por la Presidencia Ejecutiva, quien designará o contratará un responsable del seguimiento de la ejecución del contrato.

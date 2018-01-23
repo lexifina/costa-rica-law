@@ -1,0 +1,1 @@
+Artículo 61. Normas supletorias. En aquellos casos que la APP cuenta con su propia normativa, serán estas las reglas a aplicar en lo no regulado en este Reglamento, en los demás casos se acudirá en primera instancia al Reglamento del Régimen Especial de Contratación para el INCOFER autorizado por la Ley No. 9366 y a la normativa a que este remita.
