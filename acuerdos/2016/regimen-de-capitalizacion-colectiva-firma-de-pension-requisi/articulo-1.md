@@ -2,7 +2,8 @@ JUNTA DE PENSIONES Y JUBILACIONES DEL MAGISTERIO NACIONAL
 REGIMEN DE CAPITALIZACIÓN COLECTIVA
 REQUISITOS
 FIRMA DE PENSIÓN
--Constancia o certificación expedida por la institución que se designe para el depósito de su pensión, debe incluir el número de cuenta cliente (17 dígitos, no inicia con cero), firma, sello de la institución bancaria, nombre, número de cédula del interesado.
+-Constancia o certificación expedida por la institución que se designe para el depósito de su pensión, debe incluir el número de cuenta cliente (17 dígitos, no inicia con cero), IBAN (20 dígitos) firma, sello de la institución bancaria, nombre, número de cédula del interesado.
+(Así reformado el párrafo anterior y publicado en el Alcance Digital N° 12 a La Gaceta N° 12 del 23 de enero de 2018)
 -Constancias indicando si es pensionado o tramita pensión por algún otro régimen (vigencia de 1 mes después de la fecha de emisión) :
 • CCSS(JUPEMA)
 • MTSS (JUPEMA)
