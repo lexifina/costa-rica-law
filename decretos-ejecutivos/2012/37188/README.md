@@ -19,3 +19,4 @@ Reglamento de Uso de Uniformes y Distintivos de los Cuerpos Policiales Adscritos
 | 4 | 2014-08-13 | Decreto Ejecutivo 38675 (2014-08-13) |
 | 5 | 2016-08-24 | Decreto Ejecutivo 40044 (2016-08-24) |
 | 6 | 2017-08-22 | Decreto Ejecutivo 40669 (2017-08-22) |
+| 7 | 2018-01-23 | Decreto Ejecutivo 40832 (2018-01-23) |
