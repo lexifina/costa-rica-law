@@ -4,9 +4,11 @@ REQUISITOS
 PENSIÓN SOBREVIVENCIA HERMANOS
 • HERMANOS MAYORES DE EDAD (QUE DEPENDAN ECONÓMICAMENTE DEL CAUSANTE Y QUE SEAN DECLARADOS INVÁLIDOS PREVIO A LA DEFUNCIÓN DEL CAUSANTE )
 • HERMANOS MENORES DE EDAD DEPENDIENTES
--Formulario debidamente lleno. Si el solicitante presenta discapacidad cognoscitiva declarada (mental), debe firmar el representante o curador (adjuntar documento que lo acredite) incluye declaraciones juradas según corresponda. Si el solicitante es menor de edad debe firmar quien lo represente.
--Carta de autorización a JUPEMA para solicitar documentos en caso de ser necesario. Si el solicitante presenta discapacidad cognoscitiva declarada (mental), debe firmar el representante o curador adjuntar documento que lo acredite. Si el solicitante es menor de edad debe firmar quien lo represente.
--Carta de autorización en caso de que terceros entreguen la documentación (copia de ambas cedulas). Si el solicitante presenta discapacidad cognoscitiva declarada (mental), debe firmar el representante o curador (adjuntar documento que lo acredite). Si el solicitante es menor de edad debe firmar quien lo represente.
+-Formulario debidamente lleno. Si el solicitante presenta discapacidad cognoscitiva declarada (mental), debe firmar el representante o Garante(*) (adjuntar documento que lo acredite) incluye declaraciones juradas según corresponda. Si el solicitante es menor de edad debe firmar quien lo represente.
+(*) (Así reformado el párrafo anterior y publicado en el Alcance Digital N° 12 a La Gaceta N° 12 del 23 de enero de 2018)
+-Carta de autorización a JUPEMA para solicitar documentos en caso de ser necesario. Si el solicitante presenta discapacidad cognoscitiva declarada (mental), debe firmar el representante o Garante(*) adjuntar documento que lo acredite. Si el solicitante es menor de edad debe firmar quien lo represente.
+(*) (Así reformado el párrafo anterior y publicado en el Alcance Digital N° 12 a La Gaceta N° 12 del 23 de enero de 2018)
+-Carta de autorización en caso de que terceros entreguen la documentación (copia de ambas cedulas). Si el solicitante presenta discapacidad cognoscitiva declarada (mental), debe firmar el representante o Garante(*) (adjuntar documento que lo acredite). Si el solicitante es menor de edad debe firmar quien lo represente.
 -Fotocopia vigente de la cédula del solicitante, del causante y si corresponde del representante.
 -Certificación de Migración y Extranjería del solicitante y del causante (en el caso de ser extranjero no nacionalizado documento DIMEX).
 -En caso de que el solicitante y el causante sean extranjeros, aportar fotocopia de carné de asegurados.
