@@ -14,3 +14,4 @@ Reglamento al inciso b) del artículo 5 de la Ley N° 8114 "Ley de Simplificaci�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-02-23 | la propia norma |
+| 2 | 2018-01-23 | Decreto Ejecutivo 40914 (2018-01-23) |
