@@ -14,3 +14,4 @@ Procedimiento gestión y revisión de perfiles de usuarios, perfiles de usuario 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-12-01 | la propia norma |
+| 2 | 2018-01-24 | Resolución 2 (2018-01-24) |

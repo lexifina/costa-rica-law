@@ -19,7 +19,8 @@ VI. Que la Dirección General de Auditoría Interna, mediante el informe, númer
 VII. Por encontrase el Director General de Aduanas de vacaciones, el señor José Ramón Arce Bustos, en carácter de Subdirector General de Aduanas a.i., firma el presente acto.
 POR TANTO:
 La Dirección General de Aduanas con fundamento en las consideraciones de hecho y derecho de cita, potestades y demás atribuciones aduaneras que otorgan los artículos 6, 9, 11, de la Ley General de Aduanas No.7557 del 20 de octubre 1995 y sus reformas y 6, 7 y 270 del Reglamento a Ley General de Aduanas, resuelve:
-I. Aprobar el Procedimiento para el Control y Revisión de Perfiles de Usuario del Sistema de Información TICA.
+I. Aprobar el Procedimiento Gestión y Revisión de Perfiles de Usuarios, Perfiles de Usuario y Contraseñas del Sistema de Información TICA.
+(Así reformado el párrafo anterior por resolución N° RES-DGA-DGT-002-2018 del 24 de enero del 2018)
 (Nota de Sinalevi: El presente procedimiento fue proporcionado por la Dirección General de Aduanas y se transcribe a continuación:)
 PROCEDIMIENTO GESTION Y REVISION DE USUARIOS,
 PERFILES DE USUARIO Y CONTRASEÑAS
@@ -84,7 +85,6 @@ Los perfiles están compuestos por ambientes los cuales tienen asignado un nivel
 ambiente, e incluyen la Descripción Ambiente Nivel, la cual indica que permiten hacer cada uno de los ambientes en combinación con el nivel asignado.
 Ambiente: opciones por módulo o proceso que están habilitadas para un grupo de usuarios, los cuales únicamente podrán acceder cuando previamente se les asignado el perfil.
 Niveles: restricciones definidas en el sistema informático por cada ambiente para regular los accesos de los usuarios a las aplicaciones. Los niveles de acceso van de 1 a 9 donde el nivel más alto acumula el más bajo, de tal forma que:
-[imagen]
 Primera clave (AD): su registro y creación es realizada por el área de Seguridad TIC de la Dirección de Tecnologías de Información y Comunicación DTIC, y permite el acceso al registro Active Director y conformado por los usuarios de los Sistemas de información de¡ Ministerio de Hacienda.
 Segunda clave (GL): su registro y creación es realizada por el Departamento de Estadística y Registros de la Dirección General de Aduanas, y permite el acceso al Sistema de Información TICA.
 Funcionalidad: resultado de la operación de una función, entendiéndose esta como una pequeña parte de un programa o software que realiza una tarea particular, ya sea de manera independiente o como parte de un programa mayor.
@@ -292,9 +292,3 @@ h. De ser necesario corregir la foliatura existente utilizará el formato de raz
 i. Cuando la caratulas y carpetas se encuentra deterioradas, se hará el reemplazo y se dará la correspondiente rotulación e identificación, según lo indicado anteriormente.
 j. Trasladará el expediente o carpeta a custodia, hacia el área de archivo y conservación de la documentación correspondiente.
 k. El área de archivo y conservación de documentos, solo podrá ser accedida por el personal autorizado para las labores de la gestión de perfiles de usuarios, códigos de usuario, contraseñas, y con revisión de perfiles y ubicación de usuarios, del Sistema de Información TICA.
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
