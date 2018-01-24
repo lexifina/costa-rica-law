@@ -17,3 +17,4 @@ Código de ética profesional del Contador Público autorizado y de la Contadora
 | 2 | 2016-11-14 | Reglamento 14 (2016-11-14) |
 | 3 | 2017-03-22 | Reglamento 7 (2017-03-22) |
 | 4 | 2017-08-09 | Reglamento 16 (2017-08-09) |
+| 5 | 2018-01-24 | Reglamento 2 (2018-01-24) |
