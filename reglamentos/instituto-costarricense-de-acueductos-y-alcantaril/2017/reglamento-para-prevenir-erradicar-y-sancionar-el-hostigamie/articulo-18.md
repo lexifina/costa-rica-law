@@ -1,0 +1,1 @@
+Artículo 18.- Sobre los Recursos. El denunciante tendrá derecho de presentar los recursos ordinarios de Revocatoria y/o Apelación, los cuales cabrán únicamente contra el acto que lo inicie, contra el que deniega la comparecencia oral o cualquier prueba y contra el acto final.

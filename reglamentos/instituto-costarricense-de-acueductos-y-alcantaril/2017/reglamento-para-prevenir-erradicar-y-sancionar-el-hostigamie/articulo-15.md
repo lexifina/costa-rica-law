@@ -1,0 +1,1 @@
+Artículo 15.- Plazo de la Medida Cautelar. La Medida Cautelar podrá interponerse en cualquier fase de la Investigación. Una vez presentada ante la Gerencia General, éste órgano contará con un plazo de 5 días hábiles para emitir la Resolución respectiva.

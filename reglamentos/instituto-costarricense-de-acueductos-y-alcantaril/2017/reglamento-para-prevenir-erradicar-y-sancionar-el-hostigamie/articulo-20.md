@@ -1,0 +1,1 @@
+Artículo 20.- Ampliación de la denuncia. La persona ofendida, su representante legal o el tercero, tienen la facultad de presentar la ampliación de la denuncia, en caso de que se susciten hechos nuevos y de la misma naturaleza. Lo anterior deberá presentarse en un plazo de diez días hábiles del día siguiente de la interposición de la denuncia ya interpuesta.

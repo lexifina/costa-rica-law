@@ -1,0 +1,1 @@
+Artículo 12.- Traslado de la denuncia. Una vez recibida la denuncia en la Gerencia General, éste órgano decisor dictará Resolución para el nombramiento del Órgano Director, el cual, una vez nombrado deberá regirse por el Procedimiento de Investigación Disciplinaria, contenido en el Libro Segundo de la Ley General de Administración Pública.

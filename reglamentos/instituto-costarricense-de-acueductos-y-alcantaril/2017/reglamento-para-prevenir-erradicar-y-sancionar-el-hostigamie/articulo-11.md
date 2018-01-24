@@ -1,0 +1,1 @@
+Artículo 11.-Presentación de la Denuncia. Podrán presentar la denuncia por Hostigamiento Laboral, la supuesta víctima, su representante legal, sindical y/o técnico, deberán plantear la denuncia en forma escrita y ante la Gerencia General.

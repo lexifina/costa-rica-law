@@ -1,0 +1,1 @@
+Artículo 19.- Plazo para interponer los Recursos Ordinarios. Contra el acto final deberán interponerse dentro del término de tres días y en los demás casos en el término de veinticuatro horas, ambos plazos, contados a partir del día siguiente de la notificación del acto que se recurre.

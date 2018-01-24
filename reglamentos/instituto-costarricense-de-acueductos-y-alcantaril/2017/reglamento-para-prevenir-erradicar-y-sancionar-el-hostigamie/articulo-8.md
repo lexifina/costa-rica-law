@@ -1,0 +1,10 @@
+CAPITULO IV
+CONDUCTAS DEL HOSTIGAMIENTO LABORAL
+Artículo 8.- Conductas que materializan el Hostigamiento Laboral
+a) Cuando el hostigador (as) tenga de manera reiterada, para con su jefatura o compañeros de trabajo, o viceversa; conductas abusivas, palabras ofensivas, gestos, descalificación profesional e intelectual, escritos, burlas y discriminación relativa a sus orígenes, nacionalidad, sexo, raza, rasgos o defectos físicos, religión y convicciones políticas, así como críticas que desvaloricen a la persona trabajadora; que atenten contra la personalidad, dignidad, autoestima e integridad, generando un riesgo en su relación laboral.
+b) Cuando el (los) hostigador (es) (as) que ocupen un cargo de jefatura, muestren un comportamiento reiterativo, con la intención de provocar daño, afectar a la estabilidad física y/o emocional, en perjuicio de su estabilidad laboral y personal.
+c) Cuando la Jefatura obstaculice el cumplimiento de las tareas, de manera claramente intencional, para lesionar a la persona trabajadora; por medio del aislamiento e incomunicación, restricción de la autonomía, cambio de ubicación denigrante del espacio físico, cuando limite sin justificación el acceso a herramientas necesarias para realizar su labor, forzar a realizar tareas denigrantes para la dignidad humana, incongruente con sus conocimientos.
+d) Cuando la Jefatura impida dirigirse a terceras personas, prohibiendo a los (as) demás compañeros(as) de trabajo que le hablen a determinado compañero (a).
+e) Cuando el hostigador (es) (as) realiza amenazas expresas o solapadas en forma verbal, escrita o física, personal o hacia la familia de la víctima.
+f) Cuando el hostigador (es) (as) intervienen en la vida privada de la persona hostigada.
+g) Cuando la Jefatura provoque la exigencia de laborar en horarios excesivos respecto a la jornada contratada o legalmente establecida, los cambios sorpresivos del turno laboral y la exigencia permanente de laborar los domingos y días festivos, sin ningún fundamento objetivo en las necesidades de la Institución, o en forma discriminatoria respecto a las demás personas trabajadoras.

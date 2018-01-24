@@ -1,0 +1,1 @@
+Artículo 7.-Asesoramiento y Atención. En el momento en que una funcionaria (o) considere que hay manifestaciones de posible hostigamiento laboral en su área de trabajo, sin que medie una denuncia formal, puede acudir a las instancias competentes que son: Gerencia General, Dirección Jurídica, Dirección de Igualdad y Equidad de Género y Dirección Gestión de Capital Humano.
