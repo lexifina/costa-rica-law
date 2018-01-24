@@ -15,3 +15,4 @@ Reforma Integral Reglamento para la aprobación de los actos de adjudicación de
 | --- | --- | --- |
 | 1 | 2015-09-18 | la propia norma |
 | 2 | 2015-10-26 | Reglamento 5025 (2015-10-26) |
+| 3 | 2018-01-24 | Reglamento 5244 (2018-01-24) |
