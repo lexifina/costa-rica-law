@@ -14,3 +14,4 @@ Creación de la Comisión Interinstitucional del Centro Acuático y el Pabellón
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-08-31 | la propia norma |
+| 2 | 2018-01-24 | Decreto Ejecutivo 40833 (2018-01-24) |
