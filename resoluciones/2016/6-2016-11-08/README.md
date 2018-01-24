@@ -14,3 +14,4 @@ Horario de aduanas por tipo de proceso
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-02-02 | la propia norma |
+| 2 | 2018-01-24 | Resolución 58 (2018-01-24) |

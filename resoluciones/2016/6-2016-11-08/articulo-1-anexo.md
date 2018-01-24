@@ -51,7 +51,7 @@ PROCESO | ADUANA |
 DIAS | CENTRAL | CALDERA | PEÑAS BLANCAS | SANTAMARIA | LIMON | PASO CANOAS | LA ANEXION |
 | | FERIADOS | NA | NA | Únicamente perecederos y animales vivos | NA | NA | NA | 08:00 a 16:00 |
 Puesto Aduanero | Proceso | De Lunes a Viernes | Sábados | Domingos y Feriados |
-POSTAL | Horario Habitual, incluída la Revisión Física de Mercancías | 08:00 a 17:00 (13) | NA | NA |
+POSTAL (Así reformado el punto anterior mediante el punto1° y 2° de la resolución Re-DGA-0058-2018 del 24 de enero del 2018) | Horario Habitual, incluída la Revisión Física de Mercancías | 08.00 a las 16:00 horas (8:00 a. m. a 4:00 p. m.). La Gerencia de la Aduana podrá ampliar el horario de manera excepcional. (Así reformado el punto anterior mediante el punto1° y 2° de la resolución Re-DGA-0058-2018 del 24 de enero del 2018) | NA | NA |
 SIXAOLA | Horario Habitual incluída la Revisión Física de Mercancías | 07:00 a 17:00 | 07:00 a 17:00 | 07:00 a 17:00 |
 TOBÍAS BOLAÑOS | Horario Habitual, incluída la Revisión Física de Mercancías | 06:00 a 18:00 | 06:00 a 18:00 | 06:00 a 18:00 |
 GOLFITO (14) | Horario Habitual de Oficina: Martes, Miércoles, Jueves, Viernes y Sábados | 8:00 a 16:00 | 08:00 a 16:00 | NA |
