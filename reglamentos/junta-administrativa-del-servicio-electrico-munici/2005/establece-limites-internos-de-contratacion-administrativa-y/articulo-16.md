@@ -1,4 +1,4 @@
-Artículo 16.—Contenido de la Orden de Compra. Las órdenes de compra, deberá contener al menos los siguientes aspectos:
+Artículo 16: Contenido de la Orden de Compra. Las órdenes de compra, deberá contener al menos los siguientes aspectos:
 a) Objeto general de la contratación.
 b) Estimación económica.
 c) Alcances detallados del objeto de la contratación.
