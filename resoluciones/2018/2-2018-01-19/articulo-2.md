@@ -1,0 +1,1 @@
+II. Lo requerido en el “Por Tanto” anterior debe de ser remitido a la Aresep, por el concesionario o el permisionario del servicio público de transporte remunerado de personas, modalidad autobús. Para tal efecto el respectivo concesionario o el permisionario puede autorizar, por los medios legales correspondientes, a un tercero la remisión de lo requerido en esta resolución.
