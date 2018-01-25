@@ -1,1 +1,0 @@
-ARTICULO 15°.- Faltas graves de un funcionario. En aquellos casos en que la Contraloría de Servicios detecte faltas sumamente graves de un funcionario, lo informará inmediatamente a la Gerencia General para que inicie el procedimiento disciplinario.

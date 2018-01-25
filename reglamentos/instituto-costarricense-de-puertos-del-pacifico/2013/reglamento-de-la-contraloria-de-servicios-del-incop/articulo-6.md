@@ -1,2 +1,0 @@
-ARTICULO 6°.- De los trámites de quejas y denuncias. El Contralor de Servicios tendrá a su cargo tramitar las denuncias y quejas que se presenten por cualquier persona física o jurídica, que en forma directa o indirecta utilice los servicios del INCOP, incluyendo los servicios concesionados.
-Para el trámite de estas, podrán plantearse por escrito o en forma verbal y deberán referirse a la prestación de servicios y actuaciones de funcionarios, cuando con ellos se vean afectados los intereses de un particular.

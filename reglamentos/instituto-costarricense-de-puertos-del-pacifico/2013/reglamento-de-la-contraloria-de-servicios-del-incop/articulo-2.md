@@ -1,1 +1,0 @@
-ARTICULO 2°.- Del Contralor de Servicios. La Contraloría de Servicios estará a cargo de un Contralor de Servicios, el cual será por tiempo indefinido y no podrá recaer en un puesto de confianza. Además desempeñará su puesto sin recargo de funciones.
