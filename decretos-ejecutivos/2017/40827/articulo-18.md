@@ -1,0 +1,9 @@
+Artículo 18.- Exclusión por razones de complejidad o alta especialización: ámbito de aplicación.
+El INCOFER podrá contratar de manera directa la adquisición de bienes, obras o servicios que, por su gran complejidad o su carácter especializado, solo puedan obtenerse cuando exista un número limitado de proveedores o contratistas, de manera que por razones de economía y eficiencia, no resulte adecuada la aplicación de los procedimientos ordinarios.
+Sin perjuicio del análisis específico para otros casos, esta causal podrá ser aplicada en las adquisiciones de los siguientes bienes y servicios complejos o especializados en las siguientes áreas exclusivas y propias del servicio a cargo del INCOFER:
+a) Bienes relativos a las vías, tales como rieles, cambia vías, eclisas, tornillos de vía, herrajes, traviesas de concreto, traviesas de madera tratada, piedra balasto, candados de vía.
+b) Equipo ferroviario, como por ejemplo locomotoras y demás equipo rodante.
+c) Bienes relativos a la reparación de equipo ferroviario tales como balonas, compensadores, discos de freno, ruedas y ejes, zapatas de freno compresores, motores y generadores eléctricos, motores diesel, vidrios y ventanas, repuestos electrónicos, repuestos mecánicos, cojinetes y rodamientos, acordeones y pisos.
+d) Servicios para vías, tales como estudios topográficos, estudios geológicos, estudios hidrológicos, diseño de puentes, diseño de gaviones y diseño de cunetas.
+e) Servicios de reparación de equipo ferroviario, tales como reparación de generadores y motores eléctricos, de carrocería, de equipos electrónicos, de metalmecánicos, de motores diesel, de turbos y de bombas de diesel.
+f) Suministro de soluciones tecnológicas para gestión de cobro a los usuarios, control de operaciones, entre otras específicas y relativas al servicio ferroviario.

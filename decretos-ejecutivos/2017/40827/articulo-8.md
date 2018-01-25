@@ -1,0 +1,2 @@
+Artículo 8.- Trámite de los procedimientos ordinarios.
+El INCOFER para todo procedimiento de concurso dará inicio con la decisión administrativa de promoverlo, que será emitida por el funcionario competente y deberá contener la justificación de su procedencia, la descripción del objeto, la estimación del costo del objeto, la duración estimada del procedimiento, así como los recursos humanos, administrativos y presupuestarios suficientes para la ejecución del contrato. Esta decisión administrativa deberá quedar consignada en el expediente del concurso respectivo.

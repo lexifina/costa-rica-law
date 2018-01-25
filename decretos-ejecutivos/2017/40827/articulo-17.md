@@ -1,0 +1,8 @@
+Artículo 17.- Exclusión por razones de ayuda desinteresada.
+El INCOFER podrá contratar de manera directa en casos de ayuda desinteresada con personas físicas, organizaciones no gubernamentales o entidades privadas o públicas, nacionales o extranjeras.
+Por ayuda desinteresada se entiende la ausencia o reducción sustancial de la utilidad, que implique necesariamente a su vez una disminución del precio de al menos un 20% con respecto al valor de mercado o al valor real definido por los peritos designados por el INCOFER.
+Esta causal será aplicable para el caso de contratos de asociación público privada exclusivamente de desarrollo o cooperación, que se otorguen según la reglamentación especial que sea emitida de conformidad con las disposiciones de la Ley N° 9366 del 28 de junio del 2016, Ley de Fortalecimiento del Instituto Costarricense de Ferrocarriles (INCOFER) y Promoción del Tren Eléctrico Interurbano de la Gran Área Metropolitana. En estos casos la excepción será aplicable en razón de la naturaleza de cooperación y de fines no comerciales de ese tipo específico de asociaciones público privadas, por lo que no será requerido el porcentaje de disminución de precio previsto en el párrafo anterior.
+En el expediente respectivo deberá dejarse constancia como mínimo de lo siguiente:
+i. La justificación jurídica de la procedencia de la aplicación de esta causal de exclusión para el caso concreto.
+ii. La identificación de la necesidad a ser atendida y la acreditación técnica de la idoneidad del objeto contractual con el que se pretende satisfacerla.
+iii. La razonabilidad de las demás condiciones de la contratación, así como la idoneidad del contratista propuesto.

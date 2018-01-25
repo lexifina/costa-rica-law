@@ -1,0 +1,2 @@
+Transitorio II.- La aplicación de los nuevos límites económicos especiales previstos en el artículo 6 de este Reglamento, se hará efectiva a partir de la actualización de los límites económicos que publique la Contraloría General de la República para el ejercicio económico 2018, para lo que el INCOFER establecerá las acciones de coordinación pertinentes con el órgano contralor.
+Dado en la Presidencia de la República, a los veinte días del mes de diciembre de dos mil diecisiete.

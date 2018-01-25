@@ -1,0 +1,28 @@
+Nº 40827-MOPT
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+En ejercicio de las facultades que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política, y los artículos 25, inciso 1), 27, inciso 1) y 28, inciso 2), acápite b) de la Ley Nº 6227 del 2 de mayo de 1978, Ley General de la Administración Pública; y de conformidad con el inciso ch) del artículo 16 de la de la Ley Nº 7001 del 19 de setiembre de 1985, Ley Orgánica Instituto Costarricense de Ferrocarriles (INCOFER), reformado por la Ley N° 9366 del 28 de junio del 2016, Ley de Fortalecimiento del Instituto Costarricense de Ferrocarriles (INCOFER) y Promoción del Tren Eléctrico Interurbano de la Gran Área Metropolitana.
+Considerando:
+1º- Que la Asamblea Legislativa aprobó la Ley N° 9366 del 28 de junio del 2016, Ley de Fortalecimiento del Instituto Costarricense de Ferrocarriles (INCOFER) y Promoción del Tren Eléctrico Interurbano de la Gran Área Metropolitana, como un instrumento normativo estratégico para la modernización del Instituto y de los servicios a su cargo.
+2º- Que para el Poder Ejecutivo resulta prioritario, a partir de la Ley N° 9366, emitir la reglamentación necesaria para impulsar el objetivo de que el nuevo marco normativo del INCOFER permita que el país desarrolle un sistema de transporte ferroviario moderno, eficiente y ambientalmente sustentable. Lo anterior implica, necesariamente, adoptar las medidas reglamentarias que permitan al INCOFER contar con el marco normativo en contratación administrativa que le permita el más oportuno, eficiente y eficaz cumplimiento de sus finalidades públicas.
+3º- Que mediante el artículo 1 de la Ley N° 9366, se modificó el inciso ch) del artículo 16 de la Ley Nº 7001 del 19 de setiembre de 1985, Ley Orgánica Instituto Costarricense Ferrocarriles INCOFER, con lo que se dispuso que la actividad de adquisición de bienes y servicios que lleve a cabo el INCOFER está sujeta al régimen especial de contratación administrativa establecido en el capítulo IV del Título II de la Ley N° 8660 del 8 de agosto de 2008, Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector de Telecomunicaciones, así como al reglamento que se emita al efecto, siendo que para tales efectos el INCOFER se regirá por las disposiciones de dicha normativa, ostentará las mismas competencias y potestades que dicha ley atribuye al Instituto Costarricense de Electricidad.
+4º- Que según lo dispuesto en el referido inciso ch) del artículo 16 de la Ley Nº 7001 del 19 de setiembre de 1985, Ley Orgánica del Instituto Costarricense de Ferrocarriles (INCOFER), es necesario reglamentar lo dispuesto en ese numeral ch) y la consecuente aplicación de las disposiciones contenidas en el capítulo IV del Título II de la Ley N° 8660 del 8 de agosto de 2008, Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector de Telecomunicaciones, para el caso específico del INCOFER.
+5°- Que mediante la Ley de Creación del Ministerio de Obras Públicas y Transportes, N° 3155, reformada mediante Ley N° 4786 del 5 de julio de 1971 y sus reformas corresponde al Ministerio a través de la figura del Ministro de obras Públicas y Transportes ser suscriptor del presente reglamento.
+Por tanto,
+DECRETAN:
+Reglamento del Régimen Especial de Contratación Administrativa del Instituto
+Costarricense de Ferrocarriles (INCOFER)
+Capítulo I
+Alcances del Régimen Especial de Contratación Administrativa
+Artículo 1.- Alcances del régimen especial de contratación administrativa.
+La actividad de contratación administrativa que lleve a cabo el INCOFER se rige por las normas y principios del ordenamiento jurídico administrativo, según la siguiente jerarquía de las normas que le son aplicables:
+a) Constitución Política.
+b) Instrumentos Internacionales vigentes en Costa Rica que acuerden aspectos propios de la contratación administrativa.
+c) Ley Nº 7001 del 19 de setiembre de 1985, Ley Orgánica del Instituto Costarricense de Ferrocarriles (INCOFER) y sus reformas.
+d) Ley N° 9366 del 28 de junio del 2016, Ley de Fortalecimiento del Instituto Costarricense de Ferrocarriles (INCOFER) y Promoción del Tren Eléctrico Interurbano de la Gran Área Metropolitana.
+e) Las disposiciones normativas contenidas en el Capítulo IV del Título II de la Ley N° 8660 del 8 de agosto de 2008, según los términos dispuestos en este Reglamento de implementación.
+f) Ley N° 7494 del 2 de mayo de 1995 y sus reformas, Ley de Contratación Administrativa, así como al Decreto Ejecutivo N° 33411 del 27 de setiembre de 2006 y sus reformas, Reglamento a la Ley de Contratación Administrativa. La Ley y el Reglamento referidos en este inciso serán plenamente aplicables a la actividad general de contratación administrativa del INCOFER, salvo en los aspectos que tengan regulación expresa en las fuentes normativas previstas en los incisos anteriores o cuya regulación sea incompatible con la contenida en dichas fuentes que son prevalentes.
+g) Las otras leyes de aplicación general a la Administración Pública Descentralizada que contengan disposiciones aplicables a la materia de contratación administrativa.
+h) Ley General de la Administración Pública. Las normas y principios consagrados en el Libro Primero de la Ley General de la Administración Pública respecto de la validez de la actividad administrativa, se aplicarán en toda su extensión en la valoración de los actos de la contratación administrativa del INCOFER.
+i) El cartel o pliego de condiciones de cada procedimiento específico de selección de contratistas.
+j) El contrato administrativo derivado de cada procedimiento específico de selección de contratistas.

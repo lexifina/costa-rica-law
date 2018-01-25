@@ -1,0 +1,2 @@
+Artículo 7.- Publicidad de los actos de procedimientos ordinarios.
+En los procedimientos ordinarios referidos en el artículo 5 de este Reglamento, la invitación a participar, las modificaciones al cartel, el acto de precalificación en caso de concursos que sigan ese esquema, el acto de adjudicación, así como cualquier otro acto con efectos externos de procedimiento, se publicarán en la página Web del Instituto, o bien por medio de la plataforma tecnológica que el INCOFER decida utilizar para el desarrollo de su actividad de contratación administrativa.
