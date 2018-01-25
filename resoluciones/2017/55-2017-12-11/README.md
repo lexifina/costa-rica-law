@@ -14,3 +14,4 @@ Retención del dos por ciento a personas físicas o jurídicas que vendan sus se
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-01-01 | la propia norma |
+| 2 | 2018-01-25 | Resolución 3 (2018-01-25) |
