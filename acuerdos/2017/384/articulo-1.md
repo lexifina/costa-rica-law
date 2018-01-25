@@ -10,17 +10,107 @@ Que la Comisión de Tarifas realizó en análisis del incremento general de las 
 ACUERDA:
 1º—Aprobar las tarifas establecidas y aprobadas para el periodo 2018, en los siguientes términos y condiciones:
 condiciones:
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
+| CONCEPTO | UNIDAD DE MEDIDA | MONEDA | TARIFA 2018
+| BIENES ACUÍCOLAS
+1 | Alevín de carpa Coi hasta 10.0 gramos | Semilla | colones | 579.00
+2 | Reproductor de tilapia cualquier tipo, hasta 10.0 gramos | Reproductor | colones | 3.400.00
+3 | Alevín tilapia monosexo (machos) hasta 10.0 gramos. Excepto tilapia roja | Alevín | colones | 48.00
+4 | Alevin de tilapia, monosexo (macho) de 10.1 a 40 gramos. Excepto tilapia roja | Alevín | colones | 140.00
+5 | Tilapia esvicerada | kilo | colones | 3.500.00
+6 | Almeja gigante hasta 150.0 gramos | Semilla | colones | 330.00
+7 | Alevines de guapote hasta 10.0 gramos | Alevín | colones | 250.00
+8 | Alevines de trucha Arco Iris de 2.0 a 3.5 cm | Alevín | colones | 48.00
+9 | Trucha Arco Iris esvicerada | kilo | colones | 5.700.00
+| AUTORIZACIONES ACUICOLAS
+10 | Autorización de proyectos acuícolas ( hasta 10000 metros cuadrados) | Metro cuadrado | colones | Costos fijos (A) = ¢ 14.750.00 Porcentaje por derecho cultivo (B)= 0.15 % Costo metro 2 por derecho cultivo (A*B) = ¢ 22.50 TARIFA = A+(A*B) m2 de espejo de agua
+11 | Autorización de proyectos acuícolas (más de una hectárea) | Metro cuadrado | colones | Costos fijos (A) = ¢ 14.750.00 Costo autor primera hectárea (B) = ¢ 225.000 TARIFA = B+A *cada hectárea o fracción adicional de espejo de agua
+12 | Autorización de proyectos acuícolas (jaulas flotantes en aguas marinas o continentales) | Metro cúbico | colones | Costos fijos (A) = ¢ 14.750 Porcentaje por derecho cultivo (B) = 0.15 % Costo m3por derecho cultivo (A*B) = ¢ 22.50 TARIFA= A+(A*B)*m3
+LICENCIA PESCA COMERCIAL
+13 | Licencia Pesca Comercial Pequeña Escala (Primera vez o renovación) | Licencia anual | colones | 24.500.00
+14 | Licencia Pesca Comercial Mediana Escala (Primera vez o renovación) | Licencia anual | colones | 73.200.00
+15 | Licencia Pesca Comercial Avanzada (Primera vez o renovación) | Licencia anual | colones | 268.700.00
+16 | Licencia Pesca Comercial Semiindustrial (Primera vez o renovación) | Licencia anual | colones | 302.000.00
+17 | Licencia Pesca Comercial Pequeña Escala embarcación inactiva | Licencia inactiva anual | colones | 12.300
+18 | Licencia Pesca Comercial Mediana Escala embarcación inactiva | Licencia inactiva anual | colones | 32.500.00
+19 | Licencia Pesca Comercial avanzada o semiindustrial Escala embarcación inactiva | Licencia inactiva anual | colones | 81.100.00
+20 | Licencia extracción de Moluscos (con embarcación) | Licencia anual | colones | 15.800.00
+21 | Licencia Pesca subacuática comercial (con embarcación) | Licencia anual | colones | 24.500.00
+22 | Duplicado de licencia de pesca o autorización | duplicado | colones | 8.300.00
+23 | Licencia por primera vez por traspaso | licencia | colones | 8.300.00
+24 | Emisión y prórroga, licencia pesca de atún, embarcación extranjera | Licencia por trámite | colones | 437.000.00
+25 | Licencia embarcación nacional, autonomía menor o igual a 5 millas | Licencia anual | colones | 92.700.00
+26 | Licencia embarcación nacional. Autonomía menor o igual a 40 millas | Licencia anual | colones | 278.100.00
+27 | Licencia embarcaciones nacional, autonomía mayor a 40 millas | Licencia anual | colones | 473.800.00
+28 | Licencia embarcación extranjera, toda eslora ( 3 meses) | Licencia trimestral | dólares | 400.00
+29 | Licencia embarcación nacional dedicada a la observación de cetáceos | Licencia anual | colones | 85.500.00
+AUTORIZACIONES VARIAS POR SERVICIOS
+30 | Autorización sustitución por importación , para embarcaciones que se importen | Autorización | Colones | 18.200.00
+31 | Autorización de sustitución por construcción, adquisición o ampliación de embarcación | Autorización | Colones | 18.200.00
+32 | Autorización por sustitución de motor | Autorización | Colones | 9.700.00
+33 | Autorización por traspaso | Autorización | colones | 18.200.00
+34 | Autorización por exoneración de insumos pequeros y acuícolas | Autorización | colones | 3.600.00
+35 | Autorización por trasbordo de productos pequeros, de una a otra embarcación pesquera | Autorización | colones | 10.000.00
+36 | Autorización comercialización puesto de recibo | Autorización | colones | 24.500.00
+37 | Autorización centro de acopio huevos tortuga | Autorización | colones | 57.900.00
+38 | Autorización comercialización huevos de tortuga (persona física) | Autorización | | 24.500.00
+39 | Autorización comercialización pescaderías/personal | Autorización | colones | 72.500.00
+40 | Autorización planta industrial y/o procesadora | Autorización | colones | 135.600.00
+41 | Autorización transporte productos pesqueros (vehículo tipo pickup según tarjeta de matrícula del Registro Público) | Autorización | Colones | 41.900.00
+42 | Autorización transporte producto pesqueros (vehículo tipo camión, hasta 5 toneladas según carga útil de acuerdo con la tarjeta de especificaciones de pesos y dimensiones del MOPT) | Autorización | Colones | 61.300.00
+43 | Autorización transporte productos pesqueros (vehículos tipo camión, más de 5 toneladas según carga útil de acuerdo con la tarjeta de especificaciones de pesos y dimensiones del MOPT) | autorización | colones | 96.500.00
+44 | Autorización exportación de Productos pequeros (por cada exportación) | autorización | colones | 23.100.00
+45 | Autorización importación de productos pesqueros (por cada importación) | autorización | colones | 29.300.00
+46 | Boleta o guía para el transporte de productos pesqueros (por mes) | autorización | colones | 7.200.00
+47 | Autorización extracción de moluscos (sin embarcación) | autorización | colones | 9.400.00
+48 | Autorización pesca subacúatica comercial (sin embarcación) | autorización | colones | 24.500.00
+49 | Emisión orden de compra para combustible (individual o consolidado) | orden | colones | 2.700.00
+50 | Libro de combustible autorizado | litro | colones | 5.00
+INSPECCIONES NACIONALES O EXTRANJERAS
+51 | Inspección descarga de embarcación extranjera por hora o fracción (horario ordinario) | Por hora | dólares | 70.00
+52 | Inspección descarga de embarcación extranjera. Por hora o fracción (horario extraordinario) | Por hora | dólares | 80.00
+53 | Inspección embarcación nacional- Por primera hora o fracción (horario ordinario) | Primera hora o fracción | colones | 10.300.00
+54 | Inspección embarcación nacional por hora o fracción adicional (horario ordinario) | Por hora | colones | 4.000.00
+55 | Inspección embarcación nacional por primero hora o fracción (horario extraordinario) | Primera hora o fracción | colones | 12.300.00
+56 | Inspección embarcación nacional por hora o fracción adicional (horario extraordinario) | Por hora | colones | 5.800.00
+57 | Inspección a centro de acopio, plantas de proceso y otros para comercialización de productos | Por hora | colones | 10.300.00
+CARNE DE INDENTIFICACIÓN DE PESCA COMERCIAL
+58 | Carné capitán, tripulante o ayudante, todo tipo de embarcación comercial (nacional o residente) | Carné anual | colones | 5.500.00
+59 | Carné pesca subacuática o extracción manual, comercial (nacional o residente) | Carné anual | Colones | 5.500.00
+60 | Carné Nacional, residente o extranjero que practica pesca deportiva desde embarcación ( 8 días) | Carné 8 días | dólares | 15.00
+61 | Carné Nacional, Residente o Extranjero que practica pesca deportiva desde embarcación (un mes) | Carné 30 días | dólares | 25.00
+62 | Carné Nacional, Residente o Extranjero que practica pesca deportiva desde embarcación (un año) | Carné anual | dólares | 50.00
+63 | Carné Nacional, Residente o Extranjero que practica pesca subacuática (un año) | Carné anual | dólares | 50.00
+64 | Carné Nacional o Residente que practica pesca deportiva des tierra (un año) | Carné anual | colones | 5.500.00
+65 | Carné Nacional, Residente o Extranjero para realizar observación de cetáceos (por año) | Carné anual | dólares | 30.00
+66 | Nacional, Residente o Extranjero para realizar observación de cetáceos (por día) | Carné diario | dólares | 5.00
+67 | Capitán, tripulante o ayudante, embarcación pesca deportiva turística u observación de cetáceos, continental o marina (un año) | Carné anual | colones | 5.500.00
+Carné de pesca deportiva desde tierra, para torneos o eventos de pesca similares
+| Carné Nacional o Residente que practica pesca deportiva marina o continental, desde tierra, durante torneo o evento de pesca similar (cinco días). (Así adicionada la categoría anterior mediante acuerdo N° AJDIP-044-2018 de 25 de enero del 2018 | Carné (Así adicionada la categoría anterior mediante acuerdo N° AJDIP-044-2018 de 25 de enero del 2018 | Colones (Así adicionada la tarifa anterior mediante acuerdo N° AJDIP-044-2018 de 25 de enero del 2018 | 2,500.00 (Así adicionada la tarifa anterior mediante acuerdo N° AJDIP-044-2018 de 25 de enero del 2018
+DOCUMENTOS INFORMATIVOS Y OTROS
+68 | Información técnica (por hora profesional invertida en la preparación de la información solicitada) | Por hora | colones | 19.800.00
+69 | Constancia asuntos varios | Por constancia | colones | 4.700.00
+70 | Certificado atún dolphin Safe | Por certificación | colones | 56.800.00
+71 | Certificación (otros tipos) | Por certificación | colones | 9.100.00
+73 | Libro de Registro Operaciones Pesca | block | colones | 10.300.00
+74 | Formulario lances | block | colones | 5.200.00
+75 | Formulario de trasbordos | block | colones | 5.200.00
+76 | Fotocopias | por hoja | colones | 35.00
+| | | |
+78 | Estadía y descarga de embarcaciones de pesca comercial nacional, no turística ni deportiva | (tarifa * metro eslora * hora o fracción) + costo advo | colones | (46.50 * metro eslora hora o fracción ) + 7750
+79 | Estadía y descarga de embarcaciones de pesca comercial extranjera | (tarifa * metro eslora * hora o fracción) + costo advo | dólares | ($0.47*metro eslora*hora o fracción)+ 7750
+80 | Estadía de embarcaciones de pesca comercial nacional, no turística ni deportiva para avituallamiento (hielo y dieses con Coopeinpesa R.L) | Tarifa*metro*hora fracción) + costo advo | colones | (¢46.50*metro eslora*hora o fracción)+3875
+81 | Suministro de agua potable | Tarifa ARESEP para agua *m3+costo advo) | colones | (tarifa establecida por ARESEP para agua según m3*m3)+7750
+82 | Utilización del muelle para yates y embarcaciones de pesca deportiva o placer | Metro eslora*hora | colones | 580.00+metro eslora * hora
+83 | Estadía embarcación con fines científicos, investigación, didácticos y de fomento | Metro eslora*hora | colones | ¢290.00*metro eslora*hora
+84 | Estadía embarcación nacional o extranjera comercial, con fines distintos a descarga de productos pequeros o avituallamiento | Metro eslora*hora | colones | ¢290.00+metro eslora*hora
+85 | Movilización para carga de vehículos | Por entrada | colones | 800.00
 NOTAS EXPLICATIVAS
 1) Para efecto del cobro de las licencias de pesca comercial a embarcaciones, deberá tenerse en cuenta la clasificación dispuesta en el artículo 43 de la Ley N° 8436 Ley de Pesca y Acuicultura, así como la autonomía autorizada por el MOPT.
 2) En cuanto a los carné para capitanes, tripulantes y ayudantes de embarcaciones de pesca deportiva o turística extranjeros en condición de turistas, les estará prohibido el ejercicio como tal en embarcaciones de pesca turística de bandera nacional.
 3) En el caso de una inactividad, el permisionario solamente deberá realizar el pago anual de la licencia de pesca comercial de embarcación inactiva correspondiente, para mantener su vigencia. Si estando la embarcación inactiva, el permisionario solicita la activación, se reconocerán los meses no trascurridos, como parte del pago de la licencia comercial correspondiente y por lo tanto, el usuario solamente pagará la diferencia.
 4) Los permisionarios o armadores físicos a nombre de quienes estén otorgadas las licencias de pesca comercial, no estarán obligados a cancelar el rubro correspondiente por concepto del carné establecido en el artículo 44 de la Ley N° 8436 Ley de Pesca y Acuicultura, en razón de tenerse por acreditada su condición en la licencia de pesca correspondiente, sin embargo, la institución deberá emitirlo sin costo alguno.
-5) No se cobrará el monto de la emisión por carné de identificación de pesca comercial y pesca deportiva o turística continental o marina en los casos de solicitantes, permisionarios o autorizados que sean costarricenses mayores de 65 años, debidamente verificado contra su cédula de identidad o certificación de nacimiento.
+5-No se cobrará el monto de la emisión por carné de identificación de pesca comercial y pesca deportiva o turística continental o marina en los casos de solicitantes, permisionarios o autorizados que sean costarricenses mayores de 65 años, debidamente verificado contra su cédula de identidad o certificación de nacimiento. El carné tendrá una vigencia de cinco años. En caso de pérdida o deterioro, antes del vencimiento de este plazo, el usuario deberá asumir el costo de emisión con base en la tarifa vigente.
+(Así reformado el punto anterior mediante acuerdo N° AJDIP-044-2018 de 25 de enero del 2018)
 6) En aquellos servicios relacionados con inspecciones por descarga de productos hidrobiológicos, estadía en muelle o movilización de carga en vehículos, se aplicará el término fracción de la siguiente manera:
 a. Cuando el tiempo de permanencia de la embarcación o vehículo es igual o menor a treinta minutos (30 min o menos), se cobrará el equivalente a 30 minutos.
 b. Sí el tiempo de permanencia de la embarcación o vehículo es mayor a treinta minutos o igual a 60 minutos (31 min o 60 min), se cobrará el equivalente a 1 hora.
