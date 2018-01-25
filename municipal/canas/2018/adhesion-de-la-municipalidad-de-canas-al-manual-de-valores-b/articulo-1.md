@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE CAÑAS
+Acuerdo 8-84-2017.—La Municipalidad de Cañas, con el fin de que sea utilizada en valoraciones de construcciones de todo tipo, Acuerda adherirse a la publicación del documento “Manual de Valores Base Unitarios por Tipología Constructiva año 2017” publicado en el Alcance Digital N° 288, de La Gaceta N° 226 del 29 de noviembre del 2017, por parte del Órgano de Normalización Técnica del Ministerio de Hacienda. Lo anterior sea publicado en el Diario Oficial La Gaceta, para su respectiva aplicación. Acuerdo unánime definitivamente aprobado y en firme con cinco votos de los Regidores(as) Vargas Segura, Briceño Saborío, Brenes Quesada,
+Cerdas Jiménez, Bolívar Jiménez.
