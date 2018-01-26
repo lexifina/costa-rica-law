@@ -13,3 +13,4 @@ Protocolo para la recepción, custodia y disposición de objetos decomisados y c
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-11-24 | la propia norma |
+| 2 | 2018-01-26 | Circular 5 (2018-01-26) |
