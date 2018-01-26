@@ -14,3 +14,4 @@ Procedimiento para la promoción de premios especiales con los "Sorteos de Loter
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-11-01 | la propia norma |
+| 2 | 2018-01-26 | Reglamento 0 (2018-01-26) |
