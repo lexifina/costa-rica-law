@@ -1,0 +1,4 @@
+Artículo 11.—Los ministerios, órganos desconcentrados y entidades públicas, deberán seguir una política austera de adquisición de vehículos para uso del jerarca institucional, de manera que no podrán comprar vehículos ni sustituir aquellos que tengan menos de cinco años de haber salido al mercado.
+Para la compra y sustitución de vehículos de trabajo deberá seguirse la misma política restrictiva y que sean acordes con las tareas a realizar.
+Se exceptúan de esta disposición los vehículos de emergencia, los vehículos policiales de cualquier índole, los vehículos adquiridos por el Ministerio de Relaciones Exteriores para el uso de las embajadas fuera del país; así como el equipo necesario para el transporte de agua y combustible.
+Si al entrar en vigencia la presente directriz existiese una obligación con terceros debidamente formalizada, esta deberá atenderse, con el fin de resguardar el derecho de estos.

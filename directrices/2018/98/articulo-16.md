@@ -1,0 +1,2 @@
+Artículo 16.— Los Ministerios podrán solicitar a la DGPN información relativa a la cantidad total de plazas vacantes existentes.
+A partir de esta información, se instruye a los Ministros, que negocien entre sí el traslado de plazas para su adecuada redistribución dentro de la Administración Pública con prioridad las relacionadas con el área de Gobernanza Digital del Ente Rector. Aquellas plazas vacantes que sean objeto de esta redistribución quedarán descongeladas.

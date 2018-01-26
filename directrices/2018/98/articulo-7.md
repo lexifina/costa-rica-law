@@ -1,0 +1,1 @@
+Artículo 7°.—Los salarios únicos o compuestos, según corresponda del presidente y vicepresidentes de la República, ministros, viceministros, presidentes ejecutivos, gerentes y subgerentes del Sector Descentralizado, se mantendrán fijos, no recibiendo aumentos salariales.
