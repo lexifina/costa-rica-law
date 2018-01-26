@@ -14,3 +14,4 @@ Reglamento sobre disposiciones para personas ocupacionalmente expuestas a Plagui
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-20 | la propia norma |
+| 2 | 2018-01-26 | Decreto Ejecutivo 40957 (2018-01-26) |
