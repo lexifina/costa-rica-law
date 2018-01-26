@@ -1,0 +1,1 @@
+ARTÍCULO 2- La condonación señalada en el artículo anterior será efectiva solo en el caso en que los sujetos pasivos paguen la totalidad del principal; de no ser así, el saldo insoluto de la obligación del principal será sujeto de los recargos, las multas y los intereses calculados desde el momento en que surgió la deuda.
