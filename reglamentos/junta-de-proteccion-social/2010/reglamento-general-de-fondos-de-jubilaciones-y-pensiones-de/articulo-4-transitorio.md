@@ -1,0 +1,3 @@
+Transitorio IV.—Preparación para el cálculo de la proporcionalidad de cotización por parte de FOMUVEL.
+Al tenor de lo indicado en el artículo 28 del presente Reglamento, FOMUVEL dispondrá de un plazo de hasta 30 días naturales para iniciar la ejecución del cálculo de la proporcionalidad, periodo que corre a partir de la fecha en que la JPS remita el insumo de información necesario para llevar a cabo dicha labor Por su parte. la JPS tendrá un plazo máximo de 30 días naturales contados a partir de la publicación correspondiente a la modificación del artículo 28 de este reglamento, para que remita a FOMUVEL la información requerida.
+(Así adicionado en sesión 04-2018 del 29 de enero de 2018)
