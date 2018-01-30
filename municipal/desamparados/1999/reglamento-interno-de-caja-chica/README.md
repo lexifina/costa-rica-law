@@ -15,3 +15,4 @@ Reglamento Interno de Caja Chica
 | --- | --- | --- |
 | 1 | 1999-07-09 | la propia norma |
 | 2 | 2011-04-15 | Reglamento municipal 24 (2011-04-15) |
+| 3 | 2018-01-30 | Reglamento municipal 7 (2018-01-30) |
