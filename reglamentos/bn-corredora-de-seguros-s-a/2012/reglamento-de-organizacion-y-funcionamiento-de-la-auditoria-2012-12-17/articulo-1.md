@@ -17,6 +17,7 @@ El Capítulo II comprende la estructura organizativa de la auditoría interna as
 En el Capítulo III se desarrollan los aspectos relacionados con el ámbito de acción y las competencias de la auditoría interna de conformidad con la normativa legal, reglamentaria y técnica aplicable.
 El Capítulo IV se refiere a las relaciones y coordinaciones.
 El Capítulo V se refiere a las disposiciones finales de la reglamentación, en cuanto a la derogatoria del Reglamento actual y la vigencia del presente.
+(Nota de Sinalevi: La reforma practicada a esta norma en sesión N° 188 del 30 de enero del 2018, publicada en La Gaceta N° 49 del 15 de marzo del 2018, posteriormente fue derogada por el artículo 23 del Reglamento de organización y funcionamiento de la auditoría interna de BN Sociedad Corredora de Seguros S.A, aprobado en sesión N° 296 del 14 de diciembre de 2021. Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma).
 CAPÍTULO I
 Naturaleza
-Artículo 1º—El presente Reglamento define las competencias, funciones y potestades de la Auditoría Interna de BN Sociedad Corredora de Seguros S. A.
+Artículo 1º—El presente Reglamento define las competencias, funciones y potestades de la Auditoría Interna de BN Corredora de Seguros S. A.

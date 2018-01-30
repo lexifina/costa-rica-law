@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la auditoría interna de BN Soci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-04-29 | la propia norma |
+| 2 | 2018-01-30 | Reglamento 188 (2018-01-30) |
