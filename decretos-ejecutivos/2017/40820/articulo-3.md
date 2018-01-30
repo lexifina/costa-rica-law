@@ -1,0 +1,1 @@
+Artículo 3°.- Derogatorias. Deróguese el artículo 5º del Decreto Ejecutivo Nº 38.884-MEIC del 24 de febrero del 2015, publicado en el Diario Oficial La Gaceta Digital Nº 41 del 27 de febrero de 2015, Alcance Nº 12; reformado mediante el artículo 1 del Decreto Ejecutivo Nª 39889-MEIC del 22 de julio de 2016.
