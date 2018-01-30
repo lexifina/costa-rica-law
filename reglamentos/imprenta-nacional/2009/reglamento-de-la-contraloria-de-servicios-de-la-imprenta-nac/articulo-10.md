@@ -1,1 +1,0 @@
-Artículo 10.—Ubicación física de la Contraloría de Servicios. La Contraloría de Servicios de la Imprenta Nacional se ubicará en un área cercana a las oficinas que brindan servicio al cliente. Asimismo, el espacio físico asignado debe contar con adecuadas condiciones de ventilación, limpieza, iluminación, comodidad, privacidad y accesibilidad para el usuario.

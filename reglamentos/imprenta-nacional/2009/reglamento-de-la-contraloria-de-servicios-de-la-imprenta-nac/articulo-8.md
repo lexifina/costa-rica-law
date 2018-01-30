@@ -1,2 +1,0 @@
-Artículo 8º—Apoyo institucional. Todas las áreas y funcionarios de la Imprenta Nacional, deberán prestar la colaboración que requiera la Contraloría de Servicios, en el cumplimiento de sus funciones.
-En caso de negativa o negligencia de un funcionario o unidad administrativa, de atender las solicitudes y recomendaciones de la Contraloría de Servicios, se podrá solicitar el respaldo del Director General de la Imprenta Nacional, quien deberá prestar atención inmediata y determinar en conjunto con la Sección de Recursos Humanos, cualquier responsabilidad que proceda.

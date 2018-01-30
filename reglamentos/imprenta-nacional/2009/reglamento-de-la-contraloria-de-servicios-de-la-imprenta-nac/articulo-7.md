@@ -1,5 +1,0 @@
-Artículo 7º—Potestades de la Contraloría de Servicios. El Contralor (a) de Servicios, para cumplir sus funciones tendrán las siguientes potestades:
-a) Libre acceso en cualquier momento, a todos los archivos y documentos de la institución, así como a otras fuentes de información relacionadas con la prestación de los servicios, excepto secretos de Estado e informes técnicos que puedan servir para la sustentación de procedimientos administrativos que estén pendientes de ser firmados, o de resolución e información personalísima de funcionarios.
-b) Podrá solicitar a los funcionarios de la institución, pertenecientes al nivel administrativo y productivo, los informes, datos y documentos necesarios para el cabal cumplimiento de sus funciones.
-c) De toda inconformidad respecto a la prestación de servicios tramitada en cualquier oficina o unidad administrativa, se dará cuenta a la Contraloría de Servicios.
-d) Podrá solicitar a cualquier instancia administrativa o productiva, la colaboración, el asesoramiento y las facilidades que demande el ejercicio de la Contraloría de Servicios.

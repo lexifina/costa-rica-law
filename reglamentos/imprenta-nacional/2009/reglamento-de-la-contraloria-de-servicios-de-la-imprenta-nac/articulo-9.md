@@ -1,1 +1,0 @@
-Artículo 9º—Dotación de recursos. Para garantizar el óptimo funcionamiento de la Contraloría de Servicios de la Imprenta Nacional, se procurará dotar de los recursos que justificadamente requiera. Sus necesidades serán contempladas en el presupuesto institucional, a efecto de que se le permita programar adecuadamente su gestión.

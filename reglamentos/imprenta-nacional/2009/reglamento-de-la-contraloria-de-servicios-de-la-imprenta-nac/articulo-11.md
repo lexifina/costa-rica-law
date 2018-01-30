@@ -1,2 +1,0 @@
-Artículo 11.—Sobre la presentación de inconformidades, denuncias y sugerencias. Toda persona física o jurídica podrá interponer ante la Contraloría de Servicios de la Imprenta Nacional, inconformidades, denuncias y sugerencias, respecto a la prestación de sus servicios y sobre las actuaciones de funcionarios en el ejercicio de sus labores, cuando se estime que afecten directa o indirectamente los servicios prestados y la imagen institucional; lo cual podría generar responsabilidad disciplinaria.
-Podrá mantenerse en secreto la identidad del gestionante, si así lo solicita.

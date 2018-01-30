@@ -1,1 +1,0 @@
-Artículo 2º—Creación. Se constituyó la Contraloría de Servicios de la Imprenta Nacional, como un componente esencial de la modernización de la institución, cuyo fin principal es promover el mejoramiento continuo en la prestación de los servicios, incrementando su eficiencia y eficacia en busca de la plena satisfacción de los usuarios.
