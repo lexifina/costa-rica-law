@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se autoriza a la Notaría del Estado para que confeccione la escritura de donación y traspaso; asimismo, se autoriza a la Procuraduría General de la República para que corrija los defectos que señale el Registro Nacional.
