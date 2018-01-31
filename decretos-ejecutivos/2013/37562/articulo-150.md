@@ -1,10 +1,5 @@
-Artículo 150°- Deróguese el Decreto Ejecutivo Nº 10538-SPPS- del 18 de setiembre de 1979, publicado en La Gaceta Nº 181 del 27 de setiembre de 1979 “Reglamento de Especialidades Médicas”.
-(Corrida su numeración mediante sesión ordinaria N° 2015-12-02 del 2 de diciembre del 2015, que lo traspasó del antiguo 140 al 141)
-(Corrida su numeración mediante sesión ordinaria N° 2016-03-09 del 9 de marzo de 2016, que lo traspasó del antiguo 141 al 142)
-(Corrida su numeración mediante sesión ordinaria N° 2016-07-13 del 13 de julio del 2016, que lo traspasó del antiguo 142 al 143)
-(Corrida su numeración mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016, que lo traspasó del antiguo 143 al 144)
-(Corrida su numeración mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016, que lo traspasó del antiguo 144 al 146)
-(Corrida su numeración mediante sesión ordinaria N° 2016- 09-07 del 07 de setiembre del 2016, que lo traspasó del antiguo 146 al 147)
-(Corrida su numeración mediante sesión ordinaria N° 2016-10-19 del 19 de octubre de 2016, que lo traspasó del antiguo 147 al 148)
-(Corrida su numeración mediante sesión ordinaria N° 2016-11-30 del 30 de noviembre del 2016, que lo traspasó del antiguo 148 al 149)
-(Corrida su numeración mediante sesión ordinaria N° 2017-06-14 del 14 de junio del 2017, que lo traspasó del antiguo 149 al 150)
+Artículo 150º.—Medicina Preventiva y Salud Pública. Requisitos específicos:
+a. Aprobación de tres (3) años en un programa de estudios de posgrado (residencia médica) en la Especialidad de Medicina Preventiva y Salud Pública en un Hospital de Tercer Nivelo Centro Especializado, perteneciente o adscrito a una Universidad.
+Los Médicos interesados en completar la residencia en Medicina Preventiva y Salud Pública en Costa Rica, que demuestren tener debidamente incorporado; al menos una maestría profesional o académica en Salud Pública o Administración de Servicios de Salud, Economía de la Salud y las Políticas Públicas, Epidemiología, Epidemiología Clínica, Gerencia de la Salud o Informática Médica, en el registro oficial de maestrías profesionales y académicas en áreas delas Ciencias Médicas del Colegio de Médicos y Cirujanos de Costa Rica, quedarán exentos de cumplir con el requisito de la Maestría Académica en Salud Pública para solicitar el reconocimiento como especialistas en Medicina Preventiva y Salud Pública en Costa Rica.
+La anterior exención tendrá vigencia hasta finalizar el año 2025. Pasado dicho plazo la inscripción ante el Colegio de Médicos y Cirujanos de Costa Rica de la Maestría Académica en Salud Pública será absolutamente obligatoria para la obtención de la Especialidad Médica en Medicina Preventiva y Salud Pública.
+(Así adicionado mediante sesión ordinaria N° 2018- 01-31 del 31 de enero del 2018)

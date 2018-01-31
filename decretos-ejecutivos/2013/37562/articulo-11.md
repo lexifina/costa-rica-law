@@ -40,6 +40,7 @@ Medicina Interna. | Artículo No. 43
 Medicina Legal. | Artículo No. 44
 Medicina Nuclear. | Artículo No. 45
 Medicina Paliativa en Adultos. | Artículo No. 46
+Medicina Preventiva y Salud Pública (Así adicionada la especialidad anterior mediante sesión ordinaria N° 2018- 01-31 del 31 de enero del 2018) | Artículo N° 150 (Así adicionado el requisito anterior mediante sesión ordinaria N° 2018- 01-31 del 31 de enero del 2018)
 Medicina Tropical. | Artículo No. 47
 Nefrología. | Artículo No. 48
 Neumología. | Artículo No. 49

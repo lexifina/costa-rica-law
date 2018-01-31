@@ -50,3 +50,4 @@ Reglamento de Especialidades y Subespecialidades Médicas
 | 35 | 2017-08-16 | Reglamento 0 (2017-08-16) |
 | 36 | 2017-12-13 | Acuerdo 0 (2017-12-13) |
 | 37 | 2018-01-10 | Reglamento 0 (2018-01-10) |
+| 38 | 2018-01-31 | Acuerdo 0 (2018-01-31) |
