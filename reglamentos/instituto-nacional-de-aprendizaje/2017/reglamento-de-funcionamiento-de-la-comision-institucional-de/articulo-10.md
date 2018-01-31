@@ -1,0 +1,1 @@
+Artículo 10.—Vigencia. El presente reglamento de funcionamiento entrará en vigencia a partir de su publicación y en lo no dispuesto se regirá por Ley General de la Administración Pública. Dado en San José, al día veintisiete de noviembre del año dos mil diecisiete.

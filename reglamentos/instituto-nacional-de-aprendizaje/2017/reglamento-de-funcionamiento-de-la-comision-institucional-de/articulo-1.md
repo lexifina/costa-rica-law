@@ -1,0 +1,16 @@
+INSTITUTO NACIONAL DE APRENDIZAJE
+REGLAMENTO DE FUNCIONAMIENTO
+DE LA COMISIÓN INSTITUCIONAL
+DE ÉTICA Y VALORES
+En la sesión Nº 4824 celebrada el 27 de noviembre del 2017, la Junta Directiva, acordó aprobar el Reglamento de funcionamiento de la Comisión Institucional de Ética y Valores del INA, según consta en el acta de esa sesión, artículo IX, para que en adelante diga así:
+“Reglamento de funcionamiento de la Comisión Institucional de
+Ética y Valores del INA”
+Considerando:
+I.—Que el Instituto Nacional de Aprendizaje fue creado para cumplir con los principios constitucionales consagrados en los artículos 50 y 67 de la Constitución Política, de procurar mayor bienestar a la clase trabajadora costarricense mediante la formación y capacitación.
+II.—Que todos los actos de la Administración Pública deben de apegarse al principio de legalidad establecido en el artículo 11 de la Constitución Política y la Ley General de Administración Pública, respectivamente.
+III.—Que la Ley General de Control Interno, Ley N° 8292, publicada en La Gaceta N° 169 del día 4 de setiembre del 2002, establece la obligación de las instituciones del estado de procurar un sistema de control interno en la serie de acciones ejecutadas por la administración activa, para proporcionar seguridad en la consecución de proteger y conservar el patrimonio público contra cualquier pérdida, despilfarro, uso indebido, irregularidad o acto ilegal; exigir la confiabilidad y oportunidad de la información; garantizar eficiencia y eficacia de las operaciones y cumplir con el ordenamiento jurídico y técnico.
+IV.—Que mediante el Decreto Ejecutivo N° 17908-J del 3 de diciembre del 1987, publicado en La Gaceta N° 244 del 22 de diciembre de 1987, se creó la Comisión Nacional de Formación y Rescate de Valores.
+V.—Que el Decreto N° 23944-J-C, del 12 de diciembre del 1994, publicado en La Gaceta N° 25 del 03 de febrero de 1995, dispuso la conformación de Comisiones Institucionales de Valores, con el objetivo de promover la ética en el servicio y contribuir a la eficiencia en el sector público y le asignó a la Comisión Nacional de Valores, la potestad de dictar las políticas y objetivos generales a los que estarán sometidas las comisiones ministeriales e institucionales; así mismo insta a las instituciones descentralizadas a conformar las respectiva Comisiones de Rescate y Formación de Valores.
+VI.—Que la Comisión Nacional de Rescate de Valores, dictó en el año 2014 los “Lineamientos para las Comisiones Institucionales de Ética y Valores en la Gestión Ética”; el cual dispuso entre otros aspectos, la obligación de las Instituciones del Estado de conformar Comisiones de Ética y Valores; su integración y funciones.
+VII.—La Junta Directiva del Instituto Nacional de Aprendizaje, considerando lo señalado anteriormente, mediante Acuerdo N° 470-2017-JD, tomado en la sesión Nº 4824 celebrada el 27 de noviembre del 2017, aprueba el Reglamento de funcionamiento de la Comisión Institucional de Ética y Valores del INA de acuerdo con sus facultades legales establecidas en el artículo 7º inciso d) de la Ley Nº 6868, que se regirá por las siguientes disposiciones.
+Artículo 1º—Objetivo. Regular la organización y funcionamiento de la Comisión Institucional de Ética y Valores del Instituto Nacional de Aprendizaje.
