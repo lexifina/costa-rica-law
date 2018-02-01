@@ -1,0 +1,9 @@
+MUNICIPALIDAD DE CURRIDABAT
+MODIFICACIÓN DE LOS ARTÍCULOS 28 Y 29
+DEL REGLAMENTO MUNICIPAL DE AYUDAS
+Y SUBVENCIONES
+En uso de la potestad reglamentaria conferida por el Código Municipal en su artículo 4 y, por acuerdo Nro. 19, que se consigna en el artículo 2º, capítulo 6º, del acta de la sesión ordinaria Nro. 082-2017, del 21 de noviembre de 2017, el Concejo de Curridabat aprobó la modificación de los artículos 28 y 29 del Reglamento Municipal de Ayudas y Subvenciones, para que en adelante se lean así:
+Artículo 28.—Sobre la condición jurídica de los subsidiados para con la Municipalidad de Curridabat y la empresa participante. Los beneficiarios del subsidio deberán firmar un acuerdo con la Municipalidad de Curridabat, en el que, además de las calidades de las partes, se deberá estipular el puesto, plazo, la empresa donde se desempeñará el beneficiario, monto del subsidio, así como sobre la inexistencia de una relación laboral, pues al tratarse de un subsidio no representará trabajo remunerado.
+El municipio, y la empresa participante, no asumen ni asumirán responsabilidad alguna en el orden laboral. La empresa o el estudiante beneficiario deberán pagar a favor de éste, la respectiva póliza de riesgos de conformidad con el puesto que éste ocupe. El beneficiado deberá respetar las normas, reglamentos, lineamientos y/o directrices de la empresa.
+Artículo 29.—Tiempo de la subvención. Aquellas personas que sean beneficiarias de este programa podrán recibir la subvención por un período no mayor seis meses, período que no podrá ser fraccionado ni prorrogable. Una vez cumplido el plazo de seis meses, el beneficiario dejará de ejecutar las labores encomendadas en la empresa participante, no siendo obligatorio para ésta última contratar al beneficiario. El plazo de seis meses iniciará una vez que se demuestre que el beneficiario del subsidio cuenta con la respectiva póliza de riesgos.
+Rige a partir de la presente publicación
