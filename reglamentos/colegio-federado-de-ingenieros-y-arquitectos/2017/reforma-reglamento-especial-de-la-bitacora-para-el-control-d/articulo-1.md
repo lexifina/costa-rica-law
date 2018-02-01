@@ -1,0 +1,7 @@
+COLEGIO FEDERADO DE INGENIEROS Y ARQUITECTOS DE COSTA RICA
+JDG-0269-17/18
+La Junta Directiva General del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica mediante acuerdo N°16 de la sesión N° 43-16/17-G.E. de fecha 17 de octubre de 2017, dispuso modificar el artículo 5 Bis del Reglamento Especial de la Bitácora para el Control de Obras.
+Por tanto.
+Artículo 1.
+Se modifica el artículo 5 Bis del Reglamento Especial de la Bitácora para el Control de Obras, para que en lo sucesivo se lean de la siguiente manera:
+“Artículo 5 Bis-. Antes de iniciarse cualquier construcción, el profesional responsable deberá dejar una razón de apertura en la Bitácora para el Control de Obras, indicando expresamente la fecha en que da inicio la obra y dejando constancia de que se han cumplido con todos los requisitos legales para iniciar esa construcción. Esa razón de apertura deberá ser firmada física o digitalmente, por todos aquellos profesionales del CFIA registrados como profesionales responsables en las respectivas áreas del ejercicio profesional. Estas áreas comprenden, entre otras, la parte constructiva, mecánica, eléctrica, topográfica y toda aquella en atención a la complejidad y alcance del proyecto. El profesional responsable tendrá la responsabilidad de informar a todos los profesionales que estén reportados como responsables en alguna área de especialidad del proyecto, de la fecha de inicio del mismo.”
