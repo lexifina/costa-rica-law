@@ -1,0 +1,1 @@
+Artículo 5º . Nombramiento y facultades del Vicepresidente. El Vicepresidente de la Junta Directiva deberá sustituir en caso de ausencia o enfermedad temporal al Presidente, asumiendo las mismas obligaciones y responsabilidades del puesto al que sustituye. El Vicepresidente será designado por la Asamblea General de Accionistas y fungirá en dicho puesto durante dos años.

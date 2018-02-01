@@ -1,0 +1,1 @@
+Artículo 21 º. Acuerdos y su comunicac1on. Las decisiones que tome la Junta Directiva durante sus sesiones, sea por mayoría absoluta o calificada o incluso por unanimidad se denominan acuerdos. Los acuerdos serán plasmados en el acta respectiva y comunicados una vez que hayan sido aprobada el acta o bien los acuerdos que se hayan tomado firmes.

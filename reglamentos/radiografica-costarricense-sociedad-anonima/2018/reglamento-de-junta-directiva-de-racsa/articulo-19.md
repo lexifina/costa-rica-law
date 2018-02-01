@@ -1,0 +1,1 @@
+Artículo 19 º . Carácter privado y logística de las sesiones. Todas las sesiones de la Junta Directiva son privadas, salvo que se acuerde permitir el acceso del público en general, o algún grupo o personas específicas. Asimismo, participará de las sesiones con voz, pero sin voto la Asesoría Jurídica.

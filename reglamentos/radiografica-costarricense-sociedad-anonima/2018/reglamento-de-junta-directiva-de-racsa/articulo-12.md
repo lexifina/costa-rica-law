@@ -1,0 +1,3 @@
+CAPÍTULO III. FUNCIONAMIENTO DE LA JUNTA DIRECTIVA
+Sección l. Sesiones
+Artículo 12º. Sesiones ordinarias. Las sesiones ordinarias deben tener un carácter permanente, de regularidad o normalidad para conocer, discutir y votar los asuntos ordinarios que le competen y, excepcionalmente, asuntos de naturaleza extraordinaria o especial. Serán celebradas por lo menos una vez al mes, los días que la misma defina en su primera sesión o cuando así lo convenga la mayoría, previa convocatoria aprobada por el Presidente, con una antelación mínima de cuarenta y ocho horas, corresponde a la Secretaría de la Junta Directiva realizar la comunicación respectiva en los términos establecidos en el artículo 15 de este Reglamento.

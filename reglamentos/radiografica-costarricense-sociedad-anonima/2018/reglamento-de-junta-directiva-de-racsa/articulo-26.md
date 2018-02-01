@@ -1,0 +1,1 @@
+Artículo 26º . Recepción de información por parte de particulares. La entrega de información solicitada por particulares a la Secretaría de la Junta Directiva, relacionada con actas u otros documentos propios, queda supeditada a la autorización del Órgano Colegiado.

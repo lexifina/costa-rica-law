@@ -1,0 +1,4 @@
+Artículo 15 º . Las convocatorias de las sesiones. Tanto ordinarias como extraordinarias, presenciales o virtuales, serán realizadas por la Secretaría de la Junta Directiva, con autorización del Presidente, mediante correo electrónico.
+La convocatoria para las sesiones ordinarias se efectuará con una antelación de cuarenta y ocho ( 48) horas y las extraordinarias de veinticuatro (24) horas a la realización de la sesión, salvo en casos de urgencia.
+Toda convocatoria debe hacerse por escrito con copia del orden del día y la documentación respectiva se colocará a disposición de los miembros de la Junta Directiva en los medios definidos.
+No obstante, lo establecido en los artículos precedentes, la Junta Directiva sesionará válidamente, sin cumplir todos los requisitos referentes a la convocatoria o a la agenda, cuando asistan todos sus miembros y así lo acuerden por unanimidad, ya sea de manera presencial o virtual.
