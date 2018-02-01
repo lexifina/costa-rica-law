@@ -1,0 +1,9 @@
+Artículo 21 Integración de la Comisión Investigadora.
+En el plazo de tres días hábiles siguientes a la denuncia realizada por la persona afectada, la Gerencia General en su rango de máxima autoridad en la institución procederá a la integración de la Comisión Investigadora que debe tener representación de ambos géneros y debe ser integrada por tres personas como mínimo que laboren para BN Fondos, los cuales tendrán bajo su responsabilidad la gestión del procedimiento administrativo y disciplinario.
+Dentro de la Comisión Investigadora siempre deberá incorporarse una persona representante del área de Talento Humano. Cuando exista una incompatibilidad para que alguna persona del área de Talento Humano participe en dicha comisión, la Gerencia General, contará con un plazo de diez días hábiles para emitir el acuerdo de integración de la Comisión investigadora sin que haya representación de personal del área de Talento Humano, ampliando la justificación de las razones en caso de que sea necesario.
+Ninguna de las personas que formen parte de la Comisión Investigadora pueden brindar su testimonio en favor de alguna de las partes, y deben cumplir con las consideraciones que se detallan a continuación:
+I. Formar parte de una dependencia diferente a la de las personas involucradas(Tanto víctima como persona denunciada).
+II. No pueden haber trabajado en la misma área y/o gerencia de las personas involucradas (Tanto víctima como persona denunciada) en los últimos 12 meses.
+III. Tener conocimiento en materia de Hostigamiento y Acoso Sexual.
+IV. No debe contar con lazos de consanguinidad, afinidad y/o colateral hasta tercer grado con ninguna de las partes involucradas.
+Adicionalmente se podrá solicitar el apoyo necesario en el proceso de alguna persona representante de la Dirección Jurídica del Banco Nacional de Costa Rica.

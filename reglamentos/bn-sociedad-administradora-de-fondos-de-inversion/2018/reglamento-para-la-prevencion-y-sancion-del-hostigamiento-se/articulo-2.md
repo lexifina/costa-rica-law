@@ -1,0 +1,2 @@
+Artículo 2 Ámbito de aplicación
+Las disposiciones contenidas en este Reglamento son aplicables a todas las personas que laboran para BN Fondos, a nombre y por cuenta de está. Para el caso de personal del Banco Nacional que presté servicios a nombre de BN Fondos se gestionará conforme al RG01-CGRH01 Reglamento para la prevención y sanción del acoso u hostigamiento sexual con el que se regula dicha entidad.

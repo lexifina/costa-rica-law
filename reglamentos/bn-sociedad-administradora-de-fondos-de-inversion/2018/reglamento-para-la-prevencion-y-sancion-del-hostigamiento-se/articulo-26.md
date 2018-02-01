@@ -1,0 +1,3 @@
+Artículo 26 Sobre el expediente administrativo.
+El expediente administrativo contendrá como mínimo toda la documentación relativa a la denuncia, la prueba recabada durante la investigación, las actas, las resoluciones pertinentes, entre otra información relacionada. Dicho expediente deberá estar debidamente foliado, enumerado y en orden cronológico.
+El expediente podrá ser consultado exclusivamente por las partes y quién le represente legalmente, siempre y cuando cuenten con la debida identificación y autorización por la parte interesada, por el personal que tengan a cargo la custodia del mismo y por la comisión investigadora y el órgano decisor, en garantía al principio de confidencialidad.

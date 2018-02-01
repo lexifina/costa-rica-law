@@ -1,0 +1,2 @@
+Artículo 12 Obligatoriedad de informar a la Defensoría de los Habitantes y al Ministerio de Trabajo y Seguridad Social.
+Dentro del plazo de cinco días hábiles máximo posterior de que sea recibida la denuncia se procederá a informar a la Defensoría de los Habitantes y a la Dirección Nacional e Inspección de Trabajo del Ministerio de Trabajo y Seguridad Social, con el objeto de que tengan conocimiento formal de esta, y ejerzan sus competencias velando así por el cumplimiento de lo dispuesto en la ley.

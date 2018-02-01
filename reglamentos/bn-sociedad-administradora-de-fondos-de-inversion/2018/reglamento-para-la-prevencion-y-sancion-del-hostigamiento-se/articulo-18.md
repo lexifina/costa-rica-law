@@ -1,0 +1,3 @@
+Artículo 18 Causales de Despido de la Persona Denunciante.
+La persona denunciante que haya interpuesto un caso de hostigamiento sexual, solo podrá despedírsele por causa justificada originada en falta grave a sus deberes según lo detalla el artículo 81 del Código de Trabajo, el Código de Conducta del Conglomerado Banco Nacional u otra normativa interna que regule su relación laboral con BN Fondos.
+De presentarse una de esas causales, BN Fondos deberá tramitar el despido ante la Dirección Nacional e Inspección General de Trabajo, donde deberá demostrar la existencia de causa justa para ello. Esta Dirección será la única que podrá autorizar que se proceda con la desvinculación si es que así corresponde.

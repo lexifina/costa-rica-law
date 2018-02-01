@@ -1,0 +1,5 @@
+Artículo 11 Instancias Facultadas para recibir las denuncias.
+La instancia para recibir la denuncia por hostigamiento sexual en BN Fondos será el área de Talento Humano, cualquier otra dependencia no estará facultada para recibir estas denuncias sino que las referirá a la ya mencionada, sin entrar en detalle ni averiguaciones, por ser de índole confidencial para la persona afectada.
+Recibida la denuncia, se pondrá en conocimiento de la Gerencia General o quién represente la máxima autoridad en la institución, en las veinticuatro horas siguientes, con una copia para que tenga la debida información.
+Cuando exista una incompatibilidad con la instancia facultada para recibir y/o investigar la denuncia esta deberá ser obligatoriamente trasladada a la Gerencia General o quién represente la máxima autoridad en la institución.
+Previo agotamiento de los procedimientos establecidos en el presente reglamento o en caso de que BN Fondos incumpla con los mismos, la persona denunciante podrá acudir directamente al Ministerio de Trabajo o bien a la vía judicial, si así lo estimase conveniente a sus intereses para la presentación de la denuncia.
