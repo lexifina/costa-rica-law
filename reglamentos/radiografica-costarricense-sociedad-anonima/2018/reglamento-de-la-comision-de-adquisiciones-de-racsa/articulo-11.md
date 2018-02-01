@@ -1,0 +1,3 @@
+SECCIÓN II
+Del acta
+Artículo 11º . El {la) Secretario (a) levantará un borrador de acta de cada sesión, el cual indicará el nombre de los miembros asistentes, el lugar, fecha y hora de inicio y finalización, los puntos principales de discusión, la forma y resultado de las votaciones y el contenido de los acuerdos. Cuando algún miembro de la Comisión quiera razonar su voto o hacer algún comentario y así lo quiera hacer constar en el acta respectiva, lo señalará al (la) Secretario(a) en el momento de su intervención, para que así lo consigne, debiendo éste(a) transcribir literalmente lo incorporado en la grabación que se esté realizando.

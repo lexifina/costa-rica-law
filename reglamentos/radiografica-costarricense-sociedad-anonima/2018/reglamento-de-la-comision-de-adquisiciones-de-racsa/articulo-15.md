@@ -1,0 +1,1 @@
+Artículo 15º Los miembros de la Comisión podrán hacer constar en la respectiva acta, su voto contrario al acuerdo emitido y los motivos que lo justifiquen, quedando exento de las responsabilidades que en su caso pudieren derivarse de los acuerdos.

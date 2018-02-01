@@ -1,0 +1,1 @@
+Artículo 12º . Las actas se aprobarán en la siguiente sesión ordinaria. Para tal efecto, el borrador del acta deberá someterse al conocimiento de todos los miembros de la Comisión, con al menos veinticuatro horas de antelación a la próxima sesión ordinaria.
