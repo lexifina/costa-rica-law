@@ -14,3 +14,4 @@ Reforma Regionalización del Ministerio de Ambiente y Energía y Reglamento a la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-26 | la propia norma |
+| 2 | 2018-02-01 | Decreto Ejecutivo 40960 (2018-02-01) |
