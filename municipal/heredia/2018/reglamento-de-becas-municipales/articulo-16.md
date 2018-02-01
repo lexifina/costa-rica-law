@@ -1,0 +1,1 @@
+Artículo 16.—Las becas las girará la Municipalidad durante el año lectivo, durante once meses que abarcan del mes de febrero al mes de diciembre; salvo aquellos casos que se reasignen el beneficio, se girará a partir del momento en que se apruebe la beca hasta finalizar el curso lectivo.

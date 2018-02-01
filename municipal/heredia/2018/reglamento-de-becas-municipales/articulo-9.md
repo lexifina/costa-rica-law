@@ -1,0 +1,1 @@
+Artículo 9º—La Comisión de Becas se reunirá dentro de los siguientes quince días hábiles, a partir del cierre de recibido de las solicitudes de becas y procederá minuciosamente a realizar las adjudicaciones preliminares de las mismas.
