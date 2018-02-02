@@ -1,0 +1,2 @@
+Artículo 65º. —De la Competencia para Dictar las Correcciones:
+Corresponderá a la Junta de Gobierno, de conformidad con su Ley Orgánica y su reglamento, corregir disciplinariamente a los Profesionales Afines a las Ciencias de la Salud, debiendo en todo momento asegurarse el debido proceso. Toda sanción deberá ser comunicada al Comité de Profesionales Afines y tramitada según corresponda a la luz de la Normativa de Sanciones que se encuentre vigente o sus reformas, así como del Código de Ética Médica y sus reformas en cuanto aplique para los Profesionales Afines.

@@ -1,0 +1,3 @@
+Artículo 9°.—De la solicitud de inscripción en nuevas disciplinas:
+Los solicitantes que deseen inscribirse en una de las disciplinas recién creadas y que hayan obtenido su diploma en una universidad costarricense, lo podrán hacer sin cumplir con el requisito de examen de suficiencia teórico-práctico. Lo anterior hasta el momento en que existan cinco (5) Profesionales Afines debidamente inscritos en el Colegio de Médicos y Cirujanos.
+Cuando el solicitante haya realizado estudios en el extranjero o vía internet, la Junta de Gobierno del Colegio de Médicos y Cirujanos, integrará un Jurado Calificador en la disciplina, ante el cual el solicitante se someterá a examen de suficiencia teórico y práctico.

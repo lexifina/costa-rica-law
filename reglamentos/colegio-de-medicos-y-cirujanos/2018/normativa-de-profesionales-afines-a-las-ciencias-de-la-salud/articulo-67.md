@@ -1,0 +1,3 @@
+CAPÍTULO X
+De los Recursos
+Artículo 67º. —De los Recursos Contra el Comité de Profesionales Afines: Contra las resoluciones del Comité de Profesionales Afines procede el recurso de revocatoria que resolverá el mismo Comité de Profesionales Afines, y el de apelación para ante la Asamblea General de Profesionales Afines. Ambos recursos podrán establecerse conjunta o separadamente, en un plazo no mayor a tres días hábiles de la notificación del acuerdo. El Comité de Profesionales Afines en caso de confirmar lo resuelto, convocará a la Asamblea General de Profesionales Afines en caso de apelación.

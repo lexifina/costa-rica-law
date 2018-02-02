@@ -1,0 +1,2 @@
+Artículo 63º. —De los Beneficios por Defunción:
+Es derecho de los familiares o beneficiarios de primer grado de consanguinidad o afinidad que así lo demuestren, o su albacea, de conformidad con lo establecido en la Normativa del Beneficio de Gastos Funerarios vigente al momento del deceso, solicitar el auxilio económico para los gastos de sepelio o incineración de los autorizados al Colegio de Médicos en el momento de su fallecimiento.

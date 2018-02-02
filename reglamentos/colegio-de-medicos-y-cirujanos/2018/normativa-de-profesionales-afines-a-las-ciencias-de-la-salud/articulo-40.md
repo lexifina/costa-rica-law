@@ -1,0 +1,2 @@
+Artículo 40º. —Del Derecho al Voto:
+Los Profesionales Afines activos, debidamente autorizados y al día en sus obligaciones con el Colegio de Médicos y Cirujanos serán los únicos con derecho a voz y voto en las Asambleas Generales Ordinarias o Extraordinarias y los únicos que contarán para determinar el quórum. La verificación del estar activo y al día con el pago de las obligaciones, se constatará con la identificación del Profesional Afín, confrontada con la lista o programa que para tal fin aporte el Departamento Financiero Contable del Colegio de Médicos.

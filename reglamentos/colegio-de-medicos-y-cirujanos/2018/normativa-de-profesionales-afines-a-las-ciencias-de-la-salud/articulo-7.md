@@ -1,0 +1,12 @@
+Artículo 7°. —Procedimiento para incluir una nueva disciplina:
+Para incluir una nueva disciplina en la lista oficial autorizada y reconocida por el Colegio de Médicos, el interesado presentará obligatoriamente todos los siguientes requisitos ante la Plataforma de Servicios:
+a) Solicitud por escrito indicando el nombre de la nueva disciplina que requiere se incluya en la lista oficial reconocida por el Colegio de Médicos y Cirujanos.
+b) Razones por las cuales se solicita la autorización de la nueva disciplina.
+c) Fundamentos que demuestren la utilización de la nueva disciplina a nivel nacional o internacional, por las diferentes entidades pertinentes relacionadas con la autorización del ejercicio profesional. Se debe aportar toda la documentación que sustente la solicitud.
+d) Plan o programa de estudios de la carrera en la que se sustenta la nueva disciplina propuesta.
+e) Certificación de estudios o equivalente, donde se especifique la duración del plan o programa de estudios, carga académica (por horas o créditos). Para las instituciones formadoras extranjeras que indiquen la carga académica en créditos deben certificar la equivalencia de creditaje (es decir el valor del crédito expresado en horas de la actividad académica realizada por el estudiante).
+f) Título y grado académico que se otorga al culminar el plan o programa de estudios.
+g) Todos los documentos aportados en idioma distinto al español sin excepción, deberá venir con la traducción respectiva al español, hecha por un traductor oficial autorizado por el Ministerio de Relaciones Exteriores y Culto de la República de Costa Rica.
+h) Tratándose de la inclusión de una nueva disciplina en la lista oficial reconocida, el Colegio tendrá un plazo de seis meses a partir de la recepción de documentos por la Dirección Académica, para aceptar o denegar la solicitud, el cual podrá prorrogarse hasta por un mes adicional, cuando se considere procedente pedir criterio a las asociaciones médicas, expertos u otros órganos consultivos.
+Sólo la Junta de Gobierno, está facultada y tiene potestad legal, para aprobar o denegar las solicitudes de inclusión de nuevas disciplinas en Ciencias de la Salud al Colegio de Médicos y Cirujanos. Una vez que el acuerdo tomado por la Junta de Gobierno quede en firme, debe ser comunicado a la Dirección Académica y al Comité de Profesionales Afines.
+La Junta de Gobierno, posterior a la aprobación de la nueva disciplina en la lista oficial reconocida por el Colegio de Médicos y Cirujanos, procederá a su inclusión en el respectivo reglamento.

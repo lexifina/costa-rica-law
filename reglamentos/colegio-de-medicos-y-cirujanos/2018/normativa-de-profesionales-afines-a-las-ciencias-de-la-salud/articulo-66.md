@@ -1,0 +1,6 @@
+Artículo 66º. —De las Sanciones de los integrantes del Comité de Profesionales Afines por Ausencias Injustificadas:
+Los integrantes del Comité de Profesionales Afines serán removidos de su cargo, siempre y cuando se asegure en todo momento el debido proceso según corresponda, cuando incurran en una de las siguientes causales:
+a) Cuando un integrante del Comité de Profesionales Afines faltare de forma injustificada a cuatro sesiones consecutivas, o no consecutivas, en un mismo trimestre.
+b) Cuando se ausentare aún con justificación a seis de las convocatorias ordinarias señaladas de manera reiterada o alterna en un mismo año. Siempre y cuando la justificación no se trate de enfermedad o incapacidad demostrada.
+c) Cuando presente llegadas tardías, con más de cuarenta y cinco minutos una vez iniciada la sesión, en por lo menos seis de las convocatorias a sesiones ordinarias de manera reiterada o alterna en un mismo año.
+d) Aquellos Profesionales Afines que no se encuentren en pleno uso de sus derechos o bien que hayan sido suspendidos del ejercicio de la profesión por los Tribunales de Justicia o por la Junta de Gobierno por violación al Código de Ética durante el ejercicio de su cargo.

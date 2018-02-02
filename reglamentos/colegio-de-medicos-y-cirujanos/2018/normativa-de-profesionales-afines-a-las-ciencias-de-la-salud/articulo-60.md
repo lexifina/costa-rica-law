@@ -1,0 +1,2 @@
+Artículo 60º. —Cambio de Estatus de Tecnólogo a Profesional Afín:
+El Tecnólogo que se encuentre debidamente autorizado y al día para el ejercicio de una disciplina autorizada por el Colegio de Médicos y Cirujanos y que haya finalizado un plan de estudios con un grado de Licenciatura o superior podrá optar por solicitar la autorización al Comité de Profesionales Afines a las Ciencias de la Salud, siempre y cuando cumpla con los requisitos de esta normativa en una misma disciplina y no renuncie a su código anterior.

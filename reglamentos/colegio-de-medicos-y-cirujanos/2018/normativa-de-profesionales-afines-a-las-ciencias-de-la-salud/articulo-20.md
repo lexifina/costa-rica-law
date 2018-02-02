@@ -1,0 +1,2 @@
+Artículo 20°. —Sesiones del Comité Coordinador y quórum:
+El Comité Coordinador de Profesionales Afines sesionará de forma ordinaria dos veces al mes los días y horas que se indiquen en la primera sesión del año y sesionará extraordinariamente cuantas veces sea necesaria previa convocatoria por el Presidente o el Vicepresidente con al menos cuarenta y ocho horas de antelación a la fecha señalada para la sesión. Conformarán quórum la mitad más uno de sus integrantes.

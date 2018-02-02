@@ -1,0 +1,2 @@
+Artículo 68º. —De los Recursos Contra la Asamblea General:
+Contra las resoluciones de la Asamblea General, cabe recurso de revisión ante la Junta de Gobierno, recurso que deberá plantearse a más tardar en los tres días hábiles siguientes al de la Asamblea en que se tomó el acuerdo apelado. Ningún asunto podrá revisarse más de una vez. Las resoluciones de la Junta de Gobierno, en lo referente a la materia de Profesionales Afines, darán por agotada la vía administrativa.

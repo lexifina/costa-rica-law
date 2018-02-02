@@ -1,0 +1,3 @@
+Artículo 24º. —Sobre los Permisos, Ausencias y Renuncias de los integrantes del Comité de Profesionales Afines:
+a) Los permisos por ausencia, incapacidad o licencias a las sesiones o actos formales debidamente convocados con antelación, deberán presentarse por escrito ante el Comité de Profesionales Afines y estar debidamente justificados notificando dicha situación a la Junta Directiva a la brevedad posible.
+b) En caso de renuncia de dos de sus integrantes con voto y/o el fiscal deberá el Comité de Profesionales Afines convocar sin más dilación a Asamblea General Extraordinaria para elegir sustituto por el resto del periodo que corresponda.

@@ -1,0 +1,3 @@
+Artículo 4°. — Vigencia de la Autorización:
+La autorización se mantiene mientras el Profesional cumpla con lo dispuesto en las distintas normativas que regulan el ejercicio de su profesión; las disposiciones del Comité de Profesionales Afines o la Junta de Gobierno, y mientras no haya sido suspendido del ejercicio profesional y satisfaga las cuotas de colegiatura.
+Se suspenderá en el ejercicio de la profesión, al que faltare en el pago de tres o más cuotas de colegiatura con las consecuencias que señala la ley. La suspensión se levantará con el pago de las cuotas atrasadas. La Junta de Gobierno procederá a la debida suspensión del ejercicio profesional a partir de la publicación de dicha suspensión en el Diario Oficial la Gaceta.

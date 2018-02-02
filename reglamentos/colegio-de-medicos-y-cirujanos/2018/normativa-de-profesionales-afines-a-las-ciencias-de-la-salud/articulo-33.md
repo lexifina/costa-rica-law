@@ -1,0 +1,2 @@
+Artículo 33º. —De los Delegados:
+Son Profesionales Afines activos, nombrados ad honorem por el Comité de Profesionales Afines con representatividad en todo el territorio nacional, que podrán velar por la correcta transmisión y difusión de la información (proyectos, actividades y asuntos relevantes) a todos los Profesionales Afines autorizados por el Colegio de Médicos de zonas rurales o vecinas en los casos que se requiera.

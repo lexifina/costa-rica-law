@@ -1,0 +1,2 @@
+Artículo 35º. —De las Comisiones:
+El Comité de Profesionales Afines podrá crear comisiones permanentes o temporales para un determinado asunto previa aprobación de las dos terceras partes de los miembros de la Junta Directiva del Comité. Estas comisiones estarán integradas por cualquier miembro activo, y deberán reportar a la Junta Directiva del Comité de Profesionales Afines sus acuerdos y logros de forma mensual.

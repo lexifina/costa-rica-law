@@ -1,0 +1,4 @@
+Artículo 57º. —De los Estados o Condiciones de Autorización:
+Los Profesionales Afines gozarán de diferentes condiciones y estados de su autorización en el ejercicio de su profesión, entre los cuales se encuentran: activo inscrito, inactivo, moroso suspendido, mayores de 65 años activo, pensionado por vejez activo, pensionado por vejez inactivo, ausente, y cualquier otro que la Junta de Gobierno designe a futuro, con las disposiciones que para cada caso particular aplique.
+Para cumplir con esta disposición no solamente deberá ajustarse en uno de los supuestos antes dichos, sino que también, deberá obligatoriamente comunicar por escrito su cambio de condición, a la junta de Gobierno.
+El Colegio podrá reformar los estados o condiciones antes dichos en cualquier tiempo sin que requiera la aprobación previa del Comité de Profesionales Afines o de su Asamblea General.
