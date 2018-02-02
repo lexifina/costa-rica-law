@@ -1,0 +1,2 @@
+Artículo 32°—Horario de funcionamiento. Para el cobro de la tarifa y la imposición de las multas a que hace referencia este reglamento, se establece el horario de lunes a sábados entre las seis horas hasta las dieciocho horas.
+No están sujetas a estas regulaciones, el aparcamiento de vehículos en las áreas de estacionamiento durante los días domingos, feriados, fiestas y similares del cantón, debidamente autorizadas por el Concejo Municipal de Grecia.

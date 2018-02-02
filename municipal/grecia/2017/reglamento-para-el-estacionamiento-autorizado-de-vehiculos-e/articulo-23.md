@@ -1,0 +1,2 @@
+Artículo 23°—Sanciones. La verificación de infracciones indicadas en el presente reglamento, se sancionará con una multa equivalente a diez veces el valor del precio por hora de estacionamiento, y se le impondrá mediante la respectiva boleta de infracción que será confeccionada por los inspectores viales como funcionarios autorizados
+Una vez sancionado un vehículo por aplicación de las presentes disposiciones normativas, los inspectores coordinarán con las autoridades de tránsito la remoción del vehículo de la zona respectiva.

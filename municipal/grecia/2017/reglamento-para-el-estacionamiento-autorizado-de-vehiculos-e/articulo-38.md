@@ -1,0 +1,1 @@
+Artículo 38 - En cuanto a los vehículos de transporte público, carga pesada y demás aspectos relacionados con el aparcamiento de vehículos automotores, deberá respetarse lo dispuesto en el Plan Regulador del Cantón, que constituye parte integral del presente reglamento, así como las leyes que regulan la materia.

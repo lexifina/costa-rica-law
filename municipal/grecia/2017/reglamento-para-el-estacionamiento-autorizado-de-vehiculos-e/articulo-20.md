@@ -1,0 +1,1 @@
+Artículo 20°—De los Inspectores Viales. Corresponderá a los inspectores viales, vigilar por el adecuado cumplimiento de las disposiciones de este Reglamento y reportar los vehículos que infrinjan la ley, así como dar seguimiento a las sanciones impuestas.

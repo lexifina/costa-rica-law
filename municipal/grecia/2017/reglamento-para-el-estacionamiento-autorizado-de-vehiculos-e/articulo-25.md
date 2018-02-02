@@ -1,0 +1,2 @@
+Artículo 25°—Gravamen. Las multas no canceladas se constituirán en gravamen sobre el vehículo con el cual se cometió la infracción, el que responderá por los montos adeudados, intereses y demás gastos que demande la acción judicial cobratoria, siendo posible su remate para tal efecto.
+El gravamen se anotará mediante oficio que enviará la Unidad de Parquímetros al Registro Público de la Propiedad Mueble, Sección de Vehículos.

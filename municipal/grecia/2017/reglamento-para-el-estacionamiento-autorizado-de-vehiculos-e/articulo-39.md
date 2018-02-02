@@ -1,0 +1,1 @@
+Artículo 39°—Derogatoria. Este reglamento deroga el anterior Reglamento Municipal de Estacionamiento autorizado en las vías públicas dentro de la jurisdicción del cantón de Grecia, publicado en la Gaceta número: 252 del treinta y uno de diciembre del 2014, así como cualquier disposición o acuerdo municipal anterior que se le oponga.

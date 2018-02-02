@@ -1,0 +1,1 @@
+Artículo 35°—Motocicletas. Las motocicletas que se estacionen en espacios de estacionamiento autorizado distintos de aquellos especialmente demarcados para vehículos de dos ruedas, quedarán sujetas al pago de la tarifa correspondiente y las sanciones que prevé este reglamento.

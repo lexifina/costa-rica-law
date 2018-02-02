@@ -1,0 +1,2 @@
+Artículo 17°—Del aparcamiento. Los propietarios o conductores de vehículos podrán ocupar las áreas de estacionamiento por el tiempo que indique la boleta o el sistema tecnológico utilizado para dicho control.
+Cuando el conductor retire su vehículo antes de vencerse el tiempo registrado por el cual pagó, renuncia de hecho al tiempo restante y no podrá hacer reclamación alguna, ya que el mismo corre de manera continuada y por tanto no podrá suspenderse para utilizar saldos con posterioridad.

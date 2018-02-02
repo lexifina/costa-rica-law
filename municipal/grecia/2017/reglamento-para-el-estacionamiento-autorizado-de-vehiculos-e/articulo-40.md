@@ -1,0 +1,1 @@
+Artículo 40°—Vigencia. El contenido del Reglamento será supletorio y no sustitutivo de cualquier norma legal de aplicación obligatoria y rige a partir del día hábil inmediato siguiente a su publicación en el Diario Oficial La Gaceta.

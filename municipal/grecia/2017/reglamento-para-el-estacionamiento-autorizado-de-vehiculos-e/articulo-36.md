@@ -1,0 +1,1 @@
+Artículo 36°—Anulación de boletas de infracción. La competencia municipal para la anulación de boletas será de la Unidad de Parquímetros al resolver los recursos de revocatoria y del Alcalde al resolver los recursos de apelación presentados en tiempo y forma debidos.

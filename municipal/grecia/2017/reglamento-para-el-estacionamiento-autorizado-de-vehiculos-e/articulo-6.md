@@ -1,0 +1,1 @@
+Artículo 6°—Financiamiento del sistema de estacionómetros. El sistema de estacionómetros será financiado con los recursos que se obtengan por la venta de boletas o permisos, por el importe de las multas impuestas por infracciones, así como otros recursos que leyes especiales o el presupuesto municipal destinen al efecto.
