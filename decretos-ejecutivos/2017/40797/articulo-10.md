@@ -1,0 +1,4 @@
+Artículo 10.- Alta por inventario inicial. Para incluir un bien por inventario inicial se debe cumplir con lo siguiente:
+a) La UABI identificará los bienes que deben ser registrados, ya sea por estar pendientes, por haber sido hallados u otras razones.
+b) En el caso de bienes encontrados o que no fueron registrados oportunamente, para los cuales no se cuenta con documentos que respalden su adquisición, la UABI, procederá a solicitar el avalúo del bien. Una vez que se cuente con esta información, que brinda el valor del bien, deberá proceder inmediatamente al registro en el sistema informático para el registro y control de bienes, según los datos proporcionados en el avalúo.
+c) En el caso del registro de bienes por otras razones (arrendamiento financiero, fideicomiso, revaloraciones, entre otros), se procederá conforn1e se detalla en el presente Reglamento para el caso específico.

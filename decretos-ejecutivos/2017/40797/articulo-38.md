@@ -1,0 +1,8 @@
+Artículo 38.- Solicitud de inscripción. Exceptuando las Juntas de Educación y Administrativas de escuelas y colegios, Municipalidades y los Concejos Municipales de Distrito, las demás instituciones declaradas de interés público, interés social o sin fines de lucro u otras dependencias del Estado que soliciten su inscripción en el RIARD, deberán presentar una solicitud formal ante la DGABCA a efectos de ser inscritas. Dicho procedimiento deberá concluirse dentro de los dos meses posteriores a la presentación de la petición con todos los requisitos completos, una vez verificados y debidamente aprobados por la DGABCA.
+Junto con la solicitud suscrita por el representante legal de la entidad, se deberán presentar los siguientes documentos:
+a) Copia simple de los estatutos de la entidad.
+b) Certificación de la personería jurídica vigente.
+c) En caso de que se le haya otorgado el carácter de "Bienestar social' por parte del Instituto Mixto de Ayuda Social, ce11ificación o constancia emitida por esa institución confirmando dicha condición o copia certificada del documento vigente.
+d) En caso que se les haya declarado "De interés Público" por parte del Poder Ejecutivo, deberá indicar el número del Decreto.
+e) En caso de fundaciones se deberá demostrar su condición de activa y cumplir con los requisitos establecidos en la Ley de Fundaciones para poder recibir donaciones por parte de las entidades u órganos de la Administración.
+Cuando se realice una donación, corresponderá a las instituciones donantes verificar la legitimación del solicitante, revisando su debido registro en el RlARD y demás requisitos establecidos por la DGABCA, previo a proceder con la entrega.

@@ -1,0 +1,7 @@
+TÍTULO V
+BAJA DE BIENES
+CAPÍTULO I
+Autorización del Máximo Jerarca en la Baja de Bienes
+Artículo 20.- Baja de bienes que debe realizar la UABI con autorización del máximo jerarca. El máximo jerarca podrá delegar formalmente esta función, siguiendo al efecto las disposiciones y observando los límites que establecen la Ley General de la Administración Pública y la Ley Nº 8131, en materia de delegación de competencias. Será indelegable la autorización en el caso de la baja de bienes inmuebles.
+Los casos de bajas que requerirán la autorización del máximo jerarca, mediante una resolución motivada o acto administrativo, son los siguientes: para destrucción de bienes (inservibles, no registrados en el sistema informático, en el exterior); para donación de bienes; por robo o hurto; por pérdida o desaparición de bienes; para premios; venta y permuta (mediante el proceso de contratación); bienes registrados en el sistema que en realidad no existen físicamente; desmantelamiento; muerte o sacrificio de semovientes; asignación de bienes muebles del Ministerio de Educación Pública a las juntas de educación y administrativas de escuelas y colegios; bienes inmuebles (por la razón que sea); traslados (el cual se expone en un apartado posterior).
+En todos los casos, la UABI deberá elaborar un expediente donde conste la justificación y toda la documentación y reportes que respalden el acto, el cual una vez ejecutado, deberá ser remitido digitalmente a la DGABCA y la CN, para la correspondiente verificación.

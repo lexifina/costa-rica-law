@@ -1,0 +1,1 @@
+Artículo 9.- Alta por compra en moneda extranjera. Todo ingreso por compra en moneda extranjera se registrará en el momento de su recibido conforme, utilizando el tipo de cambio de referencia para la venta oficial establecido por el Banco Central de Costa Rica, información que debe ser coincidente con los estados financieros que se presentan a la Contabilidad Nacional.
