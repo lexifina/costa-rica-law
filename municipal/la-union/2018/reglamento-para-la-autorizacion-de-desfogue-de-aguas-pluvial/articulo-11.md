@@ -1,0 +1,1 @@
+Artículo 11. El Estudio Hidrológico y Memoria de Cálculo deberá incluir un plan de manejo y mantenimiento del sistema de retención o amortiguamiento propuesto, con el cual periódicamente se de limpieza de sedimentos, y con el cual el sistema trabaje permanentemente de forma apropiada.

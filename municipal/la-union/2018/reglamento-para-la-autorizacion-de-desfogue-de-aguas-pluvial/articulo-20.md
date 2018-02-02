@@ -1,0 +1,1 @@
+Artículo 20. Se prohíbe el vertido de sedimentos del sistema de retardo o amortiguamiento al cuerpo receptor. Durante las labores de mantenimiento, todo material captado, ya sea sedimento u otro tipo de residuos, deberán ser acopiados dentro de un botadero o sitio autorizado.

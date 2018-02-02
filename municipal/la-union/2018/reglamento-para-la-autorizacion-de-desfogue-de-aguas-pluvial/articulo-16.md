@@ -1,0 +1,1 @@
+Artículo 16. Se prohíbe totalmente el desfogue de aguas pluviales de cualquier proyecto nuevo, remodelación o rehabilitación a la acequia Sin Nombre, afluente del Río Chagüite, ubicada entre las coordenadas E 501 511 – N 1 095 729, y E 501 536 – N 1 095 966, proyección CRTM-05.

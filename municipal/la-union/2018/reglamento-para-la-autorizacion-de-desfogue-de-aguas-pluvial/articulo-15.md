@@ -1,0 +1,1 @@
+Artículo 15. El desarrollador del Proyecto deberá informar a la Municipalidad de la terminación de las obras de desfogue pluvial, de acuerdo con el Artículo 89 de la Ley de Construcciones. En el caso de fraccionamientos, no se otorgarán licencias constructivas de las fincas fraccionadas hasta que las obras de desfogue pluvial estén finalizadas.
