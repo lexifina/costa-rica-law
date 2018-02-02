@@ -1,0 +1,1 @@
+Artículo 6º—Sanción. El incumplimiento del suministro de la información requerida en esta resolución correspondiente al reporte país por país será sancionado de conformidad con el artículo 83 del Código de Normas y Procedimientos Tributarios.
