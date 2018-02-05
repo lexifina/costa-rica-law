@@ -1,0 +1,1 @@
+Artículo 5.- Vínculo con el Consejo Asesor de Responsabilidad Social. Para efectos de difusión de las Directrices y promoción de la agenda proactiva, el PNC trabajará de forma coordinada con el Consejo Asesor de Responsabilidad Social(CARS), órgano máximo para coordinar las acciones dirigidas a la implementación y seguimiento de la Política Nacional de Responsabilidad Social.

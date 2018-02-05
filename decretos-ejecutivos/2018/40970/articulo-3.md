@@ -1,0 +1,1 @@
+Artículo 3.- Criterios fundamentales de la función. En el ejercicio de sus funciones, el PNC se regirá por los criterios fundamentales de visibilidad, accesibilidad, transparencia, responsabilidad e imparcialidad establecidos en las Directrices.
