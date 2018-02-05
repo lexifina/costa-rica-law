@@ -1,0 +1,3 @@
+TRANSITORIO IV:
+La Administración de PROCOMER deberá preparar, en un plazo máximo de tres meses, la documentación relativa al esquema de certificación de personas de la Marca País, el cual se incorporará como un Procedimiento en el Sistema de Gestión de Calidad de PROCOMER. Dicho Procedimiento detallará las condiciones que deben cumplir las personas interesadas en certificarse y se basará en la Norma INTE/ISO/IEC 17024, denominada Evaluación de la conformidad – Requisitos generales para los organismos que realizan certificación de personas.
+Así agregado el transitorio IV por la Junta Directiva de PROCOMER en la sesión 335-2016 del 22 de agosto del 2016

@@ -1,4 +1,4 @@
-CAPITULO III
+CAPÍTULO III
 Del uso de la Marca País Costa Rica
 Artículo 11.- Objetivos del uso de la Marca País
 El uso de la Marca País Costa Rica busca:

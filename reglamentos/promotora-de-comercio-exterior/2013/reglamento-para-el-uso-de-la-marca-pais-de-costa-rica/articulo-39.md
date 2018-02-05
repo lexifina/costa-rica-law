@@ -1,3 +1,9 @@
-Artículo 39.- Domicilio electrónico permanente.
-Los licenciatarios deberán señalar una dirección de correo electrónico como su domicilio legal para la recepción de notificaciones relacionadas con los trámites. Este señalamiento deberá realizarse mediante una manifestación expresa y por escrito. La seguridad y la seriedad de la cuenta seleccionada son responsabilidad del solicitante.
-El señalamiento de domicilio electrónico podrá ser variado o revocado en cualquier tiempo, previa notificación por escrito a PROCOMER, sin perjuicio de las consecuencias jurídicas surgidas hasta ese momento.
+CAPÍTULO IX
+De la fiscalización(5)
+(5) Así modificada la ubicación del Capítulo IX y la numeración correspondiente, según el acuerdo de la Junta Directiva de la sesión No.335-2016 del 22 de agosto del 2016.
+Artículo 39.- De la supervisión de uso
+La Dirección de Marca País de PROCOMER supervisará el correcto uso de la Marca País esencial COSTA RICA, para lo cual podrá:
+a) Observar la correcta utilización de la Marca País esencial COSTA RICA.
+b) Verificar el cumplimiento de las condiciones de uso otorgadas a un licenciatario.
+c) Requerir información a fin de verificar el correcto uso de la Marca País esencial COSTA RICA según este Reglamento.
+Así reformado por la Junta Directiva de PROCOMER en la sesión 335-2016 del 22 de agosto del 2016.

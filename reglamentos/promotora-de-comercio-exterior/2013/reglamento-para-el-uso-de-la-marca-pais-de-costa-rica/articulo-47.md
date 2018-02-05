@@ -1,7 +1,5 @@
-CAPITULO X
-De la fiscalización
-Artículo 47.- De la supervisión
-La Gerencia de Marca País de PROCOMER supervisará el correcto uso de la Marca País Costa Rica, para lo cual podrá:
-a) Observar la correcta utilización de la Marca País Costa Rica.
-b) Verificar el cumplimiento de las condiciones de uso otorgadas a un licenciatario.
-c) Requerir información a fin de verificar el correcto uso de la Marca País Costa Rica.
+CAPÍTULO XII
+Disposiciones finales(8)
+(8) Así modificada la ubicación del Capítulo XII y la numeración correspondiente, según el acuerdo de la Junta Directiva de la sesión No.335-2016 del 22 de agosto del 2016.
+Artículo 47.- Del registro de las licencias
+La Dirección de Marca País llevará un control sistematizado del registro de las licencias otorgadas, indicando el plazo, su objeto y demás información que PROCOMER considere conveniente. Asimismo, PROCOMER publicará, a través de su página web, la base de datos de licenciatarios indicando sus datos básicos de contacto.

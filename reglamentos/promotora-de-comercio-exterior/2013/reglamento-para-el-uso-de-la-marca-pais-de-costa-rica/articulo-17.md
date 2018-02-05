@@ -1,2 +1,3 @@
-Artículo 17.- Aprobación del diseño
-El diseño de todos los materiales que vayan a utilizar la marca país debe ser aprobado por PROCOMER previo a su impresión, publicación y circulación por el licenciatario, para lo cual deberá coordinar su entrega electrónica ante la Gerencia de Marca País de PROCOMER.
+Artículo 17.- Uso del diseño
+El licenciatario deberá cumplir con los lineamientos previstos en el libro de marcas referentes al uso de la marca país en los materiales que utilicen la marca país. De previo a su impresión, publicación y circulación por el licenciatario, deberá facilitar su entrega electrónica a la Gerencia de Marca País de PROCOMER, quien se reserva la facultad de verificar el buen uso del diseño. El incumplimiento a la obligación anterior podrá implicar el retiro de la licencia de uso otorgada.
+Así reformado por la Junta Directiva de PROCOMER en la sesión 330-2015 del 30 de noviembre del 2015

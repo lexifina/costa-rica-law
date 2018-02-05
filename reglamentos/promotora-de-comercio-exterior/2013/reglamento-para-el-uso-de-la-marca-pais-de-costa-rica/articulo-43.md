@@ -1,5 +1,6 @@
-CAPÍTULO IX
-De la extinción y revocatoria de la licencia de uso
-Artículo 43.- De la extinción
-La licencia de uso de la Marca País Costa Rica concluirá al término del plazo de vigencia que figurará en el certificado de licencia de uso otorgado por PROCOMER
-No obstante, la licencia de uso podrá concluir anticipadamente, en caso de revocatoria, en los términos dispuestos por el presente reglamento.
+Artículo 43.- Ausencia de conflicto de intereses
+Los evaluadores certificados deberán rendir una declaración jurada, en el formato diseñado al efecto por PROCOMER, en la cual se indique que no existe conflicto de intereses con la persona física o jurídica que será evaluada.
+Se considerará conflicto de interés lo siguiente:
+a) Tener o haber tenido alguna relación con la persona física o jurídica que se va a evaluar, así como su organización, por ejemplo, empleados, propietarios, socios, representantes legales, proveedores, consultores, entre otros.
+b) Haber trabajado o haber otorgado algún servicio a la persona física o jurídica a evaluar en los últimos 2 años.
+c) Tener alguna relación de parentesco, por afinidad o consanguinidad hasta el segundo grado inclusive, con algún miembro, socio o representante de la persona física o jurídica a evaluar.

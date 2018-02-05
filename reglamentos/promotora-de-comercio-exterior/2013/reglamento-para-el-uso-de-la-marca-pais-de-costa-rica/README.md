@@ -14,3 +14,4 @@ Reglamento para el uso de la Marca País de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-21 | la propia norma |
+| 2 | 2018-02-05 | Reglamento 350 (2018-02-05) |

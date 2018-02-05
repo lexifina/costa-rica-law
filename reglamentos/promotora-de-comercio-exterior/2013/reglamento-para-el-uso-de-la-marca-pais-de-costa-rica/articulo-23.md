@@ -1,12 +1,30 @@
-CAPITULO VI
-De las obligaciones de organismos certificadores y evaluadores del Protocolo de Marca País
-Artículo 23.- De las obligaciones de los organismos certificadores
-Los organismos certificadores facultados para habilitar a los evaluadores del Protocolo de Marca País Costa Rica deben cumplir con los requisitos que se indican a continuación:
-a) Estar acreditado ante el Ente Costarricense de Acreditación, ECA, organización responsable de otorgar y emitir las acreditaciones en el país, bajo la norma ISO-17024.
-b) Contar con un examinador que cumpla con los requisitos mínimos definidos por el evaluador en el artículo 25 del presente reglamento.
-c) Estar constituido como una persona jurídica.
-d) Verificar el trabajo realizado por los evaluadores certificados, a través de muestras, con el objetivo de validar que las evaluaciones realizadas cumplan con los estándares de calidad y de normas éticas requeridos en el proceso de evaluación de la marca país.
-e) Suministrar a PROCOMER toda la información que esa entidad les solicite en forma oportuna.
-f) Permitir que PROCOMER participe en los procesos de evaluación de los evaluadores, cuando sea requerido por PROCOMER.
-g) Comunicar a PROCOMER la lista de personas autorizadas como evaluadores e informar a PROCOMER cualquier cambio en dicha lista.
-h) Cualquier otra que le corresponda según la normativa que rige la norma ISO-17024, el presente reglamento y las leyes y reglamentos aplicables.
+CAPÍTULO VI
+Trámite de la solicitud de licencia de Marca País(2)
+(2)Así modificada la ubicación del Capítulo VI y la numeración correspondiente, según el acuerdo de la Junta Directiva de la sesión No.335-2016 del 22 de agosto del 2016. También se eliminó el anterior artículo 32, pues era prácticamente igual al anterior artículo 31, fusionándose en la versión actual de la norma en artículo 24.
+Artículo 23.- Requisitos de la solicitud
+Todo interesado en obtener la licencia de uso de la marca país deberá presentar la solicitud ante PROCOMER en el formulario elaborado al efecto. En dicho formulario deberá constar al menos la siguiente información y acompañarse de la documentación que de seguido se indica:
+I. Información general del solicitante:
+a. Nombre del solicitante.
+b. Documento de identificación.
+c. Dirección o medio para atender notificaciones.
+d. Dirección exacta de las instalaciones.
+e. Detalle de la actividad a la cual se dedica la organización o el interesado.
+f. Tipo de licencia de uso solicitada.
+g. En el caso de la licencia de uso de productos, detalle de tales productos.
+h. Número de teléfono, fax y correo electrónico.
+i. Nombre del representante legal, documento y número de identificación en caso de persona jurídica
+II. Documentación para las licencias de uso corporativo
+a. Informe técnico de cumplimiento de la evaluación de los requisitos establecidos en este reglamento, emitido por un evaluador certificado bajo el esquema de certificación de personas de marca país, en los términos previstos en el presente reglamento, en la cual se indique que el solicitante cumple con los porcentajes mínimos establecidos por PROCOMER para cada uno de los valores de la marca país. Dicho informe deberá tener una vigencia máxima de un mes al momento de ser presentada a la solicitud ante PROCOMER.
+b. Declaración jurada de no conflicto de intereses rendida por el evaluador certificado en el formato diseñado al efecto por PROCOMER.
+c. Declaración jurada suscrita por el solicitante o su representante legal, en la cual se indique que: i) la información suministrada y las evidencias aportadas durante la evaluación de la marca país son verídicas y representan realmente la realidad de la persona física o jurídica evaluada. ii) Declaración jurada indicando que se encuentra al día en el pago de los tributos nacionales y municipales y demás obligaciones tributarias.
+d. Dependiendo del uso solicitado, se adjuntarán copias de los documentos que certifiquen la trayectoria del solicitante, la calidad de los servicios y/o productos que ofrece tales como: comunicaciones de clientes, de instituciones públicas y gremios a los que pudieran pertenecer, premios, certificaciones, acreditaciones, reconocimientos o cualquier otro documento que sirva como referencia para la evaluación de la solicitud presentada.
+e. Certificación de personería con no más de tres meses de emitida, en caso de personas jurídicas. Copia de la cédula de identidad del representante legal si es persona jurídica. En caso de personas físicas copia de la cédula de identidad.
+f. Estar al día con la Caja Costarricense del Seguro Social, según los términos del artículo 74 de la Ley Constitutiva de la Caja y su reglamento.
+III. Documentación para las licencias de uso en productos
+Todo interesado que deseen obtener la licencia de uso en productos deberá presentar lo siguiente:
+a) Completar el formulario para la licencia de uso en productos en el cual se detallen los productos que utilizarán la marca país. Este formulario está constituido por una serie de preguntas mediante las cuales el solicitante debe justificar por qué su producto o familia de productos puede portar la marca país, tomando como criterios, el marco de atributos y valores de la marca esencial COSTA RICA.
+b) Declaración jurada en los términos siguientes:
+i. Que el solicitante es titular de los derechos de propiedad industrial, derechos de autor y/o conexos sobre todas y cada una de las obras que serán utilizadas en conjunto con la Marca País Costa Rica.
+ii. Que, en caso de utilizar derechos industriales de terceros, se cuenta con las respectivas licencias o autorizaciones para el efecto.
+iii. Que exime de cualquier tipo de responsabilidad a la Promotora del Comercio Exterior de Costa Rica (PROCOMER) por eventuales daños o perjuicios que pudieran derivarse de las infracciones a los derechos de propiedad intelectual, con ocasión de la utilización de los derechos referidos en los puntos i y ii anteriores.
+Así reformado por la Junta Directiva de PROCOMER en la sesión 335-2016 del 22 de agosto del 2016.

@@ -1,4 +1,1 @@
-CAPITULO XI
-Disposiciones finales
-Artículo 48.- Del registro de las licencias
-La Gerencia de la Marca País llevará un control sistematizado del registro de las licencias otorgadas, indicando el plazo, su objeto y demás información que PROCOMER considere conveniente. Asimismo, PROCOMER publicará, a través de su página web, la base de datos de licenciatarios indicando sus datos básicos de contacto.
+Artículo 48.-Vigencia. Rige a partir de su aprobación por parte de la Junta Directiva de PROCOMER y su publicación en el diario oficial La Gaceta.

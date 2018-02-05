@@ -1,5 +1,6 @@
-Artículo 38.-Uso de medios electrónicos
-PROCOMER podrá autorizar que determinados trámites establecidos en el presente reglamento se realicen a través de los medios electrónicos implementados.
-Asimismo, en los diferentes trámites contemplados en el presente Reglamento en los cuales se exija la presentación de documentos físicos, debe entenderse que, si los medios tecnológicos lo permiten, el documento electrónico podrá sustituir el documento físico.
-En tales casos, cualquier manifestación con carácter representativo o declarativo, expresada o transmitida por un medio electrónico o informático, se tendrá por jurídicamente equivalente a los documentos que se otorguen, reciban o transmitan por medios físicos.
-Asimismo, en aquellos casos en que PROCOMER decida realizar la implementación de los trámites electrónicos por etapas se podrá sustituir la presentación física de tales documentos por una remisión electrónica del documento digitalizado. En estos casos los interesados deberán mantener debidamente archivados los documentos físicos originales.
+Artículo 38.- Efectos de la revocatoria de la licencia
+La revocatoria en firme de la Licencia de Uso obliga al licenciatario a lo siguiente:
+a. Cesar el uso de la Marca País Costa Rica en todas sus manifestaciones.
+b. Retirar del mercado los productos que utilizan la Marca País.
+c. Destruir el material relacionado con la marca país que hubiera venido utilizando.
+d. Devolver a PROCOMER los diseños, aplicaciones o cualquier otro material relacionado con la Marca País Costa Rica entregado por PROCOMER y que estén en su poder.
