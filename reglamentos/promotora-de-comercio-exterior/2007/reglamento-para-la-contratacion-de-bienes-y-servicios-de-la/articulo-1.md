@@ -1,4 +1,4 @@
-(Nota de Sinalevi: Este reglamento fue reformado parcialmente y reproducido su texto en forma íntegra, mediante sesión N° 307 del 14 de junio del 2013, publicado en La Gaceta N° 138 del 18 de julio del 2013, por lo que se reproduce a continuación:)
+(Nota de Sinalevi: El texto de esta norma fue reformado parcialmente y reproducido su texto en forma íntegra en sesión N° 350 del 5 de febrero de 2018, y publicado en La Gaceta N° 54 del 22 de marzo de 2018, por lo que se transcribe a continuación:)
 ÍNDICE GENERAL
 CAPÍTULO I
 Disposiciones generales
@@ -29,7 +29,6 @@ Artículo 22.- Efectos de la resolución
 CAPÍTULO III
 Aspectos económicos
 SECCIÓN PRIMERA
-Precio
 Artículo 23.- Precio
 Artículo 24.- Desglose del precio
 Artículo 25.- Precios unitarios y totales
@@ -148,6 +147,9 @@ SECCIÓN SEXTA
 Remate
 Artículo 113.-Procedimiento
 Artículo 114.- Modificación del procedimiento de contratación infructuoso
+SECCIÓN SÉTIMA
+Precalificación
+Artículo 114 bis. - Precalificación
 CAPÍTULO VII
 De la adjudicación
 Artículo 115.- De la Adjudicación
@@ -200,6 +202,7 @@ Artículo 144.-Prórroga del plazo
 Artículo 145-Suspensión del plazo
 Artículo 146.-Modificación unilateral de la contratación
 Artículo 147.-Contratación adicional
+Artículo 147 bis.- Modificación de la modalidad de entrega según demanda.
 Artículo 148.- Suspensión del contrato
 Artículo 149.-Extinción del contrato
 Artículo 150.-Resolución contractual

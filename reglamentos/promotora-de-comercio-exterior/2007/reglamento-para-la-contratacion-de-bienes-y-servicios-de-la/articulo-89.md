@@ -18,4 +18,4 @@ o) Cualquier otro, a juicio de PROCOMER.
 El Cartel no podrá imponer restricciones ni exigir el cumplimiento de requisitos que no sean técnicamente indispensables, si con ello limita las posibilidades de concurrencia a eventuales participantes.
 La Gerencia o Dirección responsable de la contratación será la responsable de garantizar que en el cartel únicamente se exijan requisitos que sean técnicamente indispensables.
 El cartel de la Contratación Pública debe contar con el visto bueno de la Gerencia Administrativa –Financiera y la Dirección de Asesoría Legal.
-Así reformado en la sesión 304-2013 del 22 de marzo del 2013, publicado en la Gaceta N °82 del 30 de abril de 2013.
+Así reformado en la sesión 304-2013 del 22 de marzo del 2013, publicado en la Gaceta N°82 del 30 de abril de 2013.

@@ -3,4 +3,4 @@ Los proveedores interesados deberán acreditar, entre otros, los siguientes aspe
 Además, contendrá una descripción detallada de los bienes o servicios que ofrece cada proveedor. El interesado deberá demostrar la afinidad de su giro comercial con el bien o servicio que pretende ofrecer, a través de contrataciones que haya celebrado ya sea con el sector público o con el sector privado.
 En los casos que así resulte más conveniente, el Departamento de Proveeduría podrá contar con registros precalificados, ya sea en su totalidad o para ciertos bienes o servicios.
 En los registros precalificados se evaluarán aspectos legales, técnicos y financieros del proveedor.
-Así reformado en la sesión 304-2013 del 22 de marzo del 2013, publicado en la Gaceta N °82 del 30 de abril de 2013.
+Así reformado en la sesión 304-2013 del 22 de marzo del 2013, publicado en la Gaceta N°82 del 30 de abril de 2013.

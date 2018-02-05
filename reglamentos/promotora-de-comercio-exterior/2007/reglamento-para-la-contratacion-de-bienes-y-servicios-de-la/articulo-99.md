@@ -8,4 +8,4 @@ Una vez que se ha determinado que procede el proceso de Contratación General, e
 6. La cláusula penal o multas, en caso de que el Departamento de Proveeduría, o bien, la Unidad solicitante, considere oportuno la exigencia de este requisito.
 7. Cualquier otra condición que el Departamento de Proveeduría, o bien, la Unidad solicitante, considere necesaria.
 8. Cualquier otra condición que la Gerencia o Dirección responsable de la contratación considere necesaria.
-Así reformado en la sesión 304-2013 del 22 de marzo del 2013, publicado en la Gaceta N °82 del 30 de abril de 2013.
+Así reformado en la sesión 304-2013 del 22 de marzo del 2013, publicado en la Gaceta N°82 del 30 de abril de 2013.

@@ -10,4 +10,4 @@ Las garantías que se rindan serán independientemente para cada negocio, median
 La garantía deberá rendirse en colones o dólares estadounidenses, PROCOMER está facultado para exigir a los oferentes o contratistas ajustar los montos de las garantías cuando ocurran variaciones en los tipos de cambio del dólar estadounidense que desmejoren la cobertura que se percibe con dichos instrumentos. En caso de negativa de efectuar dichos ajustes PROCOMER podrá proceder a la ejecución de las mismas.
 No se reconocerán intereses por las garantías depositadas en efectivo en PROCOMER.
 El plazo de vigencia de las garantías será definido en el cartel o pliego de condiciones.
-Así reformado en la sesión 304-2013 del 22 de marzo del 2013, publicado en la Gaceta N °82 del 30 de abril de 2013.
+Así reformado en la sesión 304-2013 del 22 de marzo del 2013, publicado en la Gaceta N°82 del 30 de abril de 2013.

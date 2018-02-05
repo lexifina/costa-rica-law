@@ -4,4 +4,4 @@ PROCOMER procurará en todo momento que la inscripción en el registro de provee
 Quienes ya formen parte del registro de proveedores no se verán obligados a acreditar, documentalmente, ningún requisito relativo a la persona física o jurídica que participa; salvo en los casos de sustitución de personeros o de información adicional solicitada en el cartel.
 Es entendido que en cualquier momento un sujeto interesado podrá incorporarse al Registro de Proveedores, siempre y cuando suministre la información que al efecto le solicite.
 Finalmente, en caso que esté debidamente justificado y por motivos de eficiencia, la Administración está facultada para utilizar el registro de proveedores de otras instituciones públicas, tal como el contemplado en el sistema de Compras Públicas en Línea Mer-Link.
-Así reformado en la sesión 291-2012 del 12 de marzo del 2012 y en la sesión 304-2013 del 22 de marzo del 2013, publicado en la Gaceta N °82 del 30 de abril de 2013.
+Así reformado en la sesión 291-2012 del 12 de marzo del 2012 y en la sesión 304-2013 del 22 de marzo del 2013, publicado en la Gaceta N°82 del 30 de abril de 2013.

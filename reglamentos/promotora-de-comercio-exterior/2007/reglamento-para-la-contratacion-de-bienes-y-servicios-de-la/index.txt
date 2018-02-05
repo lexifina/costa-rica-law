@@ -113,6 +113,7 @@ articulo-111-bis.md
 articulo-112.md
 articulo-113.md
 articulo-114.md
+articulo-114-bis.md
 articulo-115.md
 articulo-116.md
 articulo-117.md
@@ -147,6 +148,7 @@ articulo-144.md
 articulo-145.md
 articulo-146.md
 articulo-147.md
+articulo-147-bis.md
 articulo-148.md
 articulo-149.md
 articulo-150.md
@@ -171,3 +173,4 @@ articulo-166.md
 articulo-167.md
 articulo-168.md
 articulo-1-transitorio.md
+articulo-2-transitorio.md

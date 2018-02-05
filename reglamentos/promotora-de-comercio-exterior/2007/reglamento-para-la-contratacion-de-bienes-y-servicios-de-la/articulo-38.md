@@ -1,6 +1,6 @@
 Artículo 38.-Garantía de cumplimiento
 PROCOMER exigirá en las Contrataciones Públicas y facultativamente en los demás procedimientos, una garantía de cumplimiento, con el objeto de asegurar el resarcimiento de cualquier daño eventual o perjuicio ocasionado por el adjudicatario. El monto o porcentaje respectivo deberá indicarse en el Requerimiento, en atención a la complejidad del contrato.
-Si se omitiere indicarlo en el cartel de la Contratación Pública , se tendrá como fijado el diez por ciento del monto de la contratación.
+Si se omitiere indicarlo en el cartel de la Contratación Pública, se tendrá como fijado el diez por ciento del monto de la contratación.
 El adjudicatario deberá aportar la garantía de cumplimiento dentro del plazo establecido en el Requerimiento, o en caso de omisión de este plazo, dentro de los diez días hábiles siguientes al comunicado de la firmeza del acto de adjudicación.
 Queda facultado PROCOMER para que cuando la naturaleza de la prestación sea por tiempo indefinido o inestimable, establezca garantías de cumplimiento por un monto fijo.
 Si PROCOMER se viera obligada a ejecutar anticipadamente la garantía de cumplimiento, el contratista deberá rendir una nueva por el mismo monto, de tal forma que el contrato quede garantizado hasta la ejecución total.
@@ -8,4 +8,4 @@ Al menos cinco días hábiles antes del vencimiento de la garantía y si se encu
 En los casos que se omitiere indicar en el Requerimiento el plazo exigido para la garantía de cumplimiento, se entenderá este por el término de dos meses posterior a la fecha de vencimiento del contrato.
 Si de previo a la firma del contrato el adjudicado rinde una garantía de cumplimiento con un monto o plazo inferior del exigido en el Cartel o Pliego de Condiciones, el Departamento de Proveeduría lo prevendrá para que en un plazo no mayor de tres días hábiles, subsane la misma, en caso de no cumplir con ello la Junta Directiva o la Gerencia General según corresponda valorara la conveniencia institucional de mantener o anular la adjudicación, en este ultimo caso se ejecutara la garantía de participación.
 Corresponde a la Unidad solicitante establecer si se exigirán garantías, en aquellos casos en que las mismas sean facultativas. Aun cuando no se indicara por parte de la Unidad solicitante la necesidad de exigir garantías de cumplimiento, el Departamento de Proveeduría podrá incorporarlas en el cartel si lo considera necesario.
-Así reformado en la sesión 304-2013 del 22 de marzo del 2013, publicado en la Gaceta N °82 del 30 de abril de 2013.
+Así reformado en la sesión 304-2013 del 22 de marzo del 2013, publicado en la Gaceta N°82 del 30 de abril de 2013.

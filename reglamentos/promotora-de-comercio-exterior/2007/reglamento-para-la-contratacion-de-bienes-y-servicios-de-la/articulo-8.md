@@ -9,5 +9,5 @@ d) Período estimado del inicio de los procedimientos de contratación.
 e) Fuente de financiamiento.
 f) Cualquier otra información complementaria que contribuya a la identificación del bien o servicio.
 Quedan excluidas de la obligación de publicación, las contrataciones efectuadas con prescindencia de los procedimientos ordinarios y las efectuadas con fundamento en los supuestos de urgencia.
-La Administración , podrá divulgar el respectivo programa de adquisiciones y sus modificaciones en los Sistemas Electrónicos, a través de Internet. De utilizarse medios distintos de la publicación en el Diario Oficial La Gaceta , se deberá informar, en el citado Diario, o en dos diarios de circulación nacional, acerca del medio empleado para dar a conocer su programa de adquisiciones.
-Así reformado en la sesión 304-2013 del 22 de marzo del 2013, publicado en la Gaceta N °82 del 30 de abril de 2013.
+La Administración, podrá divulgar el respectivo programa de adquisiciones y sus modificaciones en los Sistemas Electrónicos, a través de Internet. De utilizarse medios distintos de la publicación en el Diario Oficial La Gaceta, se deberá informar, en el citado Diario, o en dos diarios de circulación nacional, acerca del medio empleado para dar a conocer su programa de adquisiciones.
+Así reformado en la sesión 304-2013 del 22 de marzo del 2013, publicado en la Gaceta N°82 del 30 de abril de 2013.
