@@ -1,0 +1,2 @@
+ARTÍCULO 39-Otras tecnologías eficientes. El Ministerio de Ambiente y Energía (Minae) queda facultado para incluir otras tecnologías eficientes en sus planes, proyectos y políticas para promover el uso de transportes amigables con el medio ambiente.
+La vigencia de la presente ley no derogará las normas promulgadas por el Poder Ejecutivo que regulan a otras tecnologías automotrices limpias que no estén expresamente contempladas en esta ley, las cuales deberán seguirse aplicando, dado su aporte en la disminución de emisiones contaminantes.

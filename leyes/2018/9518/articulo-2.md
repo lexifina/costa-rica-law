@@ -1,0 +1,3 @@
+ARTÍCULO 2-Definiciones. Para los efectos de esta ley se entenderá lo siguiente:
+a) Centro de recarga: estación de suministro o comercialización de energía eléctrica para la recarga de las baterías de los vehículos eléctricos. Los dispensadores para carga pueden ser del tipo estación, en poste, empotrado o parche, entre otros. Su funcionamiento se regirá por los estándares internacionales y sus tipos se definirán en el reglamento de esta ley.
+b) Vehículo eléctrico: todo bien mueble impulsado con energía cien por ciento eléctrica o con tecnología de cero emisiones y que no contenga motor decombustión, nuevo, en su versión de automóviles, motocicletas, bicicletas, microbuses, buses, trenes y cualquier otro definido en el reglamento de esta ley.

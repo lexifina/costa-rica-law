@@ -1,0 +1,1 @@
+TRANSITORIO IV- El Ministerio de Ambiente y Energía (Minae) pondrá a disposición del público los primeros resultados sobre la gestión en el transporte eléctrico, dentro de los doce meses posteriores a la publicación de esta ley.

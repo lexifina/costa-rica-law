@@ -1,0 +1,1 @@
+TRANSITORIO III- Las instituciones o empresas distribuidoras de electricidad, autorizadas por ley, deberán instalar y poner en funcionamiento los centros de recarga en cada lugar que les corresponda, en un plazo de doce meses impostergables.

@@ -1,0 +1,1 @@
+ARTÍCULO 27-Servicio de trenes. Se promoverá el fortalecimiento y la construcción de los servicios de trenes eléctricos en todo el país, acorde al Plan Nacional de Transporte Eléctrico. Para esos efectos, las iniciativas que tengan como objetivo financiar estas inversiones se considerarán prioritarias en los diferentes programas de la Administración.

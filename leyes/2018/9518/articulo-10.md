@@ -1,0 +1,1 @@
+ARTÍCULO 10-Límite de exoneración. La suma de exoneraciones establecidas en el artículo 9 de la presente ley no podrá exceder el monto equivalente a veinticuatro salarios base, según el salario base establecido anualmente por el Consejo Superior del Poder Judicial. Este límite no se aplicará a vehículos de transporte público o transporte de carga.

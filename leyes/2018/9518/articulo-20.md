@@ -1,0 +1,1 @@
+ARTÍCULO 20-Educación sobre el uso de transporte eficiente. La Administración Pública, las empresas públicas y las municipalidades deberán realizar campañas de educación sobre los beneficios del transporte eléctrico y otras modalidades de transporte eficiente.

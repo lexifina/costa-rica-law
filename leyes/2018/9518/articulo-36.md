@@ -1,0 +1,1 @@
+ARTÍCULO 36-Sistema Bancario Nacional. Se faculta al Sistema Bancario Nacional para que implemente las líneas de financiamiento del transporte eléctrico. Estas líneas incluirán facilidades en sus plazos, tasas de interés, garantías y trámites, siempre y cuando estas no representen situaciones riesgosas para las entidades.

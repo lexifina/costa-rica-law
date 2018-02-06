@@ -1,0 +1,1 @@
+ARTÍCULO 37-Inversión para obra pública. Los bancos del Sistema Bancario Nacional quedan autorizados para que utilicen fondos de inversión para el financiamiento de obra pública dirigida al fortalecimiento y la promoción del transporte eléctrico, según especifica el artículo 19 de la presente ley.
