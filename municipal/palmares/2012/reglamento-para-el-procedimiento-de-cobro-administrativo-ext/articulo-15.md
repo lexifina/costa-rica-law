@@ -1,6 +1,0 @@
-SUBSECCIÓN II
-De los arreglos de pago
-Artículo 15.—Arreglos de Pago. Únicamente procederá el arreglo de pago, cuando el cobro se encuentre en la etapa de cobro administrativo o extrajudicial. Las personas interesadas en un arreglo de pago, como mínimo deberán cumplir con los siguientes requisitos:
-a. El compromiso lo debe formalizar el sujeto pasivo y debe presentar original y copia del documento de identificación. En caso de que el contribuyente no se pueda presentar a la formalización del compromiso será necesaria la presentación de una autorización autenticada por un abogado, copia de la identificación del sujeto pasivo así como original y copia del documento de identificación del autorizado.
-b. En el caso de personas jurídicas, debe presentarse a formalizar el arreglo de pago el representante legal o apoderado generalísimo, aportar la personería jurídica respectiva con un máximo de un mes de haberse efectuado así como original y copia del documento de identificación del representante legal.
-c. Al momento de formalizarse el arreglo de pago, el contribuyente debe cancelar el 30% del monto total adeudado, este porcentaje puede presentar variaciones según las posibilidades económicas del contribuyente y se requerirá la aprobación del Administrador(a) Tributario(a) o del Alcalde (sa).
