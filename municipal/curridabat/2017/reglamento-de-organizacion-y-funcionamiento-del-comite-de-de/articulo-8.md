@@ -13,7 +13,8 @@ g) Programar, divulgar e informar, acerca de la realización de actividades depo
 h) Rendir ante el Concejo Municipal, en la primera semana del mes de julio, un informe anual del Plan Operativo, el cual contemplará el Informe de Rendición de Cuentas, así como los ingresos y egresos de los recursos que le fueron asignados, de conformidad con el artículo 172 del Código Municipal;
 i) Nombrar y remover en su oportunidad al Director Administrativo del Comité, de acuerdo con la legislación vigente;
 j) Estimular la participación de personas no practicantes de deportes o actividades recreativas, en el marco de proyectos, programas y metas concretas; en los cuatro Distritos del Cantón;
-k) Estimular y apoyar la participación de personas con discapacidad en cualquier deporte, en el marco de proyectos, programas y metas concretas; en los cuatro Distritos del Cantón;
+k) Estimular y apoyar la participación de personas con discapacidad en cualquier deporte y actividades recreativas, en el marco de proyectos, programas y metas concretas; en los cuatro Distritos del Cantón;
+(Así reformado el inciso anterior en sesión N° 097 del 6 de febrero de 2018)
 l) Gestionar la consecución de recursos económicos, materiales y humanos, que le permitan alcanzar sus fines;
 m) Designación anual del atleta, entrenador o dirigente deportivo;
 n) Proponer y otorgar las menciones honoríficas que considere pertinentes a atletas o ciudadanos que han demostrado ser un ejemplo en el campo ciudadano y deportivo para el cantón.
