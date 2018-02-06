@@ -1,0 +1,1 @@
+Artículo 159°.-Envío de los instrumentos de evaluación. Los instrumentos de evaluación debidamente calificados deben ser entregados al estudiantado mayor de edad o ser remitidos a la persona encargada legal de la persona estudiante, para su conocimiento y firma.

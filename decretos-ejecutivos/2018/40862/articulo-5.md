@@ -1,0 +1,1 @@
+Artículo 5°.-Responsabilidad directa del proceso de evaluación de los aprendizajes. El desarrollo del proceso de evaluación de los aprendizajes en el aula es responsabilidad profesional y esencial de la persona docente que está directamente vinculada con el respectivo estudiantado en sus procesos de aprendizaje.

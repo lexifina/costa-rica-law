@@ -1,0 +1,1 @@
+Artículo 105°.-Criterios de aprobación de las pruebas de Bachillerato en Educación Media. Los postulantes que alcancen, según el procedimiento descrito en los artículos 102 y 103 de este reglamento; una calificación final igual o superior a 70, se tendrán por aprobados en la respectiva asignatura.

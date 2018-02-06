@@ -1,0 +1,3 @@
+Artículo 147.-Garantías de comunicación y defensa en la aplicación de acciones correctivas. En atención al derecho de la persona estudiante a ser comunicado, de manera individualizada y concreta, de los hechos y la falta que se le atribuye así como a tener acceso al respectivo expediente, la decisión de aplicar acciones correctivas deberá efectuarse dando garantías claras de comunicación a la persona estudiante y sus encargados legales.
+De manera análoga, la aplicación de acciones correctivas debe garantizar el
+derecho de defensa de la persona estudiante, su derecho a declarar libremente sin ningún tipo de coacción y a ser acompañado por un adulto de su elección, o bien, su derecho a no declarar y a no ofrecer prueba contra sí mismo.

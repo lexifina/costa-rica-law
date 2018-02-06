@@ -1,0 +1,4 @@
+Artículo 27°.-Tareas. Consisten en trabajos cortos que se asignan al estudiantado con el propósito de reforzar aprendizajes esperados, de acuerdo con la información recopilada durante el trabajo cotidiano.
+Mediante las tareas, el estudiantado puede repasar o reforzar los aprendizajes esperados. Por ello es indispensable que sean ejecutadas por el estudiantado exclusivamente para que así puedan fortalecer su propio aprendizaje.
+Las tareas no deben asignarse para ser desarrolladas en horario lectivo y en períodos de vacaciones, entiéndase Semana Santa y medio año, o período de pruebas calendarizadas en el centro educativo.
+Se exceptúan de la disposición anterior las asignaturas, módulos, periodos y cursos de las modalidades de Educación de Personas Jóvenes y Adultas, en los cuales las tareas pueden ser desarrolladas, durante las tutorías o fuera de este horario.

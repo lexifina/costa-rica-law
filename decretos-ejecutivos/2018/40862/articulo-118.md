@@ -1,0 +1,1 @@
+Artículo 118°-Envío de información. Será obligación del director o la directora de cada centro educativo, en las fechas, la forma y mediante el procedimiento que disponga la Dirección de Gestión y Evaluación de la Calidad, remitir toda la información requerida para la adecuada administración del proceso.

@@ -1,0 +1,30 @@
+Artículo 15°.-Deberes de la persona docente en relación con la evaluación de los aprendizajes. El personal docente responsable y vinculado directamente con el estudiantado en sus procesos de aprendizaje, tiene en materia de evaluación de los aprendizajes, la implementación del sistema de convivencia estudiantil y la evaluación de la conducta, los siguientes deberes:
+a) Desarrollar el proceso de evaluación de los aprendizajes de acuerdo con lo establecido en este reglamento.
+b) Divulgar entre el estudiantado y las personas encargadas legales, el presente reglamento, así como, la normativa interna que el centro educativo haya establecido en materia de evaluación de los aprendizajes.
+c) Comunicar por escrito a sus estudiantes, al inicio y durante el proceso de enseñanza y aprendizaje, los procedimientos que se seguirán en materia de evaluación de los aprendizajes de los componentes de la calificación.
+d) Entregar al estudiantado por escrito y en forma detallada, con al menos ocho días naturales antes de la aplicación de la prueba, los aprendizajes esperados e indicadores del planeamiento didáctico seleccionados para la medición, en concordancia con el programa de estudio.
+e) Elaborar los instrumentos para la evaluación de los aprendizajes que aplicará al grupo o grupos que tiene a su cargo, de acuerdo con la naturaleza de la asignatura y los lineamientos técnicos establecidos por el Departamento de Evaluación de los Aprendizajes.
+f) Brindar y dar seguimiento a los apoyos educativos, que en materia de evaluación de los aprendizajes requiera el estudiantado, estos deben estar justificados y consignados en el expediente e informarse por escrito a la persona encargada legal, a partir de su implementación.
+g) Calificar las pruebas, tareas y proyectos que realice el estudiantado y devolverlas en un tiempo máximo de ocho días hábiles, posteriores a su aplicación.
+h) Solicitar asesoría técnica al Comité de Evaluación de los Aprendizajes, en temas relacionados con la evaluación de los aprendizajes.
+i) Informar por escrito al estudiantado, los aprendizajes esperados y los respectivos indicadores, que se utilizarán para calificar las tareas y establecer la fecha de entrega de las mismas, en un plazo máximo de ocho días naturales, a partir de su asignación.
+j) Analizar con el estudiantado las respuestas a las preguntas y ejercicios de las pruebas y tareas, según correspondan; así como las calificaciones de las etapas del proyecto previsto en los artículos 27, 28 y 29 de este reglamento, en el acto de entrega de estos, como parte de la realimentación del proceso de enseñanza y aprendizaje.
+k) Resolver y comunicar por escrito las resoluciones a las objeciones que le formule el estudiantado o la persona encargada legal, con respecto a los componentes de la calificación, las pruebas de ampliación y la estrategia de promoción, en un plazo no mayor a tres días hábiles posteriores a su recibo.
+l) Resolver los recursos que ante él se formulen en materia de evaluación de los aprendizajes y calificación de la conducta, de acuerdo con el artículo 166 de este reglamento.
+m) Participar en la implementación del Sistema de Convivencia Estudiantil y la evaluación de la conducta, según las disposiciones contenidas en el Capítulo VI de este reglamento.
+n) Informar al estudiantado o la persona encargada legal, durante el desarrollo de cada periodo lectivo, los detalles del progreso y asistencia, mediante el cuaderno de comunicaciones y otro medio escrito, debidamente establecido en el centro educativo.
+o) Entregar al estudiantado mayor de edad y a la persona encargada legal, las notas de cada período y el promedio ponderado anual. Se exceptúa de esta disposición lo establecido en el artículo 24 de este reglamento.
+p) Informar y explicar oportunamente al estudiantado mayor de edad o a la persona encargada legal, el desglose de las calificaciones de cada período y los instrumentos utilizados.
+q) Registrar la puntualidad y la asistencia diaria y acumulativa de la persona estudiante e informar por escrito, según corresponda, al estudiantado mayor de edad o a la persona encargada legal, la inasistencia e impuntualidad, durante el desarrollo del período lectivo.
+r) Consignar la justificación de las llegadas tardías y de las ausencias de la persona estudiante que así lo solicite por escrito.
+s) Entregar al Comité de Evaluación de los aprendizajes:
+• Una copia de la prueba con su respectiva tabla de especificaciones en un plazo máximo de tres días hábiles posteriores a su aplicación. En el caso de las pruebas de ejecución y la oral para medir la producción oral en lenguas extranjeras solo se entrega la prueba.
+• Una copia de los instrumentos utilizados para calificar el trabajo cotidiano, las tareas y el proyecto, cuando así lo solicite.
+• Las estrategias evaluativas que se aplicarán para el estudiantado que requiere apoyos educativos, en el momento que se implementen.
+t) Utilizar durante las lecciones los instrumentos técnicamente elaborados para el registro de información en relación con el proceso evaluativo.
+u) Realizar acciones educativas que realimenten el aprendizaje con base en los resultados obtenidos por el estudiantado durante el proceso evaluativo.
+v) Elaborar, administrar y calificar las pruebas de ampliación, de la persona estudiante a su cargo, las que una vez analizadas con estos, serán entregadas a la dirección del centro educativo para su custodia.
+w) Aplicar durante los quince días hábiles posteriores a la última prueba de ampliación, la estrategia de promoción definida por el Comité de Evaluación Ampliado.
+x) Calificar la estrategia de promoción y definir la condición de la persona estudiante, consignando el resultado en el acta respectiva.
+y) Entregar a la dirección del centro educativo, la segunda prueba de ampliación con el respectivo solucionario y tabla de especificaciones, para aquellas que por su naturaleza así la requieran, esta entrega se realiza una semana antes de finalizar el curso lectivo.
+z) Otras, inherentes a su cargo, que expresamente le encomiende el director o la directora, o que le señale este reglamento.

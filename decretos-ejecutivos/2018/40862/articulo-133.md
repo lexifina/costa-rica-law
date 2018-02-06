@@ -1,0 +1,1 @@
+Artículo 133.-Condición de aplazado en conducta. La persona estudiante que en el promedio anual ponderado obtuviere una calificación de conducta inferior al mínimo establecido en el artículo anterior de este reglamento, tendrá la condición de aplazado en conducta.

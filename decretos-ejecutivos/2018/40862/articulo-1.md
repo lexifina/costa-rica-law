@@ -1,0 +1,21 @@
+N° 40862 –MEP
+El PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE EDUCACIÓN PÚBLICA
+Con fundamento en las facultades y atribuciones conferidas por los artículos 77, 81, 140 incisos 8), y 18), 146 de la Constitución Política, en la Ley Fundamental de Educación, Ley N° 2160 del 25 de setiembre de 1957, el artículo 346 de la Ley N° 181, del 18 de agosto de 1944, Código de Educación, el artículo 2 de la Ley Orgánica del Ministerio de Educación Pública, Ley N° 3481 del 13 de enero de 1965, y los artículos 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b, de la Ley N° 6727 del 2 de mayo de 1978, Ley General de la Administración Publica y;
+Considerando
+I. Que el actual Reglamento de Evaluación de los Aprendizajes, Decreto Ejecutivo N° 35355 del 02 de junio de 2009, amerita la revisión total de su contenido y actualización, esto con el fin de adaptar la norma rectora de la evaluación de los aprendizajes en el sistema educativo costarricense, tanto a las necesidades propias de contexto educativo nacional como a las nuevas tendencias académicas en el campo de la evaluación de los aprendizajes.
+II. Que la adaptación del Reglamento de Evaluación de los Aprendizajes en el contexto de las recientes transformaciones curriculares y aprobación de nuevos programas de estudios, en conjunto con la necesidad de fortalecer la evaluación formativa, tornan imperativa la modificación integral del actual reglamento.
+III. Que la inclusión del nuevo Sistema de Convivencia Estudiantil y su integración al área de conducta, se presenta como una herramienta para lograr la correcta coordinación entre la labor de la persona docente de formar y el derecho de la persona estudiante de desarrollar todo su potencial y la consecuente conclusión de sus estudios, en un ambiente de sana convivencia y respeto.
+IV. Que dentro de las principales reformas que motivan la promulgación del presente decreto, deben incluirse las experiencias internacionales exitosas e innovadoras, entre estas las del sistema de Bachillerato internacional, las cuales establecen una evaluación formativa, que permite hacer reajustes a la planificación del proceso educativo, de acuerdo al nivel de desempeño de la persona estudiante.
+V. Que el Consejo Superior de Educación mediante acuerdo N° 02-64-2017 de la sesión ordinaria Nº 64-2017 celebrada el 13 de noviembre de 2017, acogió y aprobó en forma unánime y en firme la Política Educativa: “La persona centro del proceso educativo y sujeto transformador de la sociedad”, instrumento que define el rumbo del sistema educativo costarricense y por lo tanto amerita la adaptación del Reglamento de Evaluación de los Aprendizajes a esta Política.
+VI. Que el Consejo Superior de Educación mediante acuerdo N° 06-72-2017 dela sesión ordinaria Nº 72-2017 celebrada el 18 de diciembre de 2017, acogió y aprobó en forma unánime y en firme la reforma integral del Reglamento de Evaluación de los Aprendizajes, autorizando la misma para su publicación e implementación en el sistema educativo costarricense.
+VII. Que de conformidad con el artículo 12 del Decreto Ejecutivo N° 37045-MPMEIC, “Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos”, adicionado por el Decreto Ejecutivo N° 38898-MP-MEIC, artículo 12 bis y, en virtud de que este instrumento jurídico no contiene trámites, requisitos ni obligaciones que perjudiquen al administrado, se exonera este reglamento del trámite de la evaluación costo beneficio de la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio.
+VIII. Que se dispone promulgar el presente Reglamento de Evaluación de los Aprendizajes aprobado por el Consejo Superior de Educación y, consecuentemente, sustituir el Decreto Ejecutivo Nº 35355-MEP.
+Por Tanto:
+DECRETAN:
+Reglamento de Evaluación de los Aprendizajes
+CAPÍTULO I
+Conceptualización y Organización de la Evaluación de los Aprendizajes
+SECCIÓN I
+Disposiciones y Principios Generales
+Artículo 1°.-Objeto. Las presentes disposiciones reglamentarias tienen como fin regular el proceso de evaluación de los aprendizajes y la implementación del sistema de convivencia estudiantil en el sistema educativo costarricense, sin perjuicio de la normativa que regula el acceso a la educación de la persona estudiante que requiere apoyos educativos.

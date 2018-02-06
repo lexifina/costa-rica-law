@@ -1,0 +1,1 @@
+Artículo 128.- Normas de Conducta. Se entiende por Normas de Conducta, los límites que regulan las relaciones interpersonales y el ejercicio responsable de los derechos y responsabilidades de la persona estudiante en la comunidad educativa, así como el cumplimiento de las normas y los reglamentos institucionales y los deberes inherentes a su condición de estudiante.

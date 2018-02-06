@@ -1,0 +1,5 @@
+SECCIÓN VI
+Certificados de II y III Ciclo de Educación General Básica y del
+I y II Nivel del Plan de Estudios de Educación de Adultos
+Artículo 61°.-Obtención de los certificados de II y III Ciclos de la Educación General Básica y el I y II Nivel del Plan de Estudios de Educación de Adultos. Se hará acreedor al Certificado de Conclusión de Estudios del II Ciclo de la Educación General Básica, la persona estudiante que apruebe la totalidad de las asignaturas de sexto año, según lo establecen los artículos 41 a 44 y 47 a 52 de este reglamento. Para el caso del Plan de Estudios de Educación de Adultos será preciso que la persona estudiante apruebe 127 créditos del Primer Nivel del plan modular respectivo.
+Se hará acreedor al Certificado de Conclusión de Estudios de la Educación General Básica; la persona estudiante que apruebe la totalidad de las asignaturas de noveno año de acuerdo con lo que establecen los artículos 41 a 56 de este Reglamento. Para el caso de la persona estudiante del Plan de Estudios de Educación de Adultos será preciso, haber aprobado los 118 créditos del segundo Nivel.

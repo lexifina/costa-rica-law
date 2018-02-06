@@ -1,0 +1,3 @@
+SECCIÓN IV
+Tutorías
+Artículo 76°.-Cursos por tutoría. Cuando la naturaleza de los cursos, las asignaturas, los periodos o los módulos, las condiciones de infraestructura y las contrataciones de personal así lo permitan, los centros educativos podrán autorizar y organizar cursos por tutoría, por solicitud escrita previa de la persona estudiante. Estos cursos tendrán exactamente los mismos requisitos, aprendizajes esperados e indicadores de desempeño de los cursos regulares y deberán ejecutarse en el respectivo período lectivo. En la autorización, la dirección del centro educativo deberá consignar expresamente las condiciones, los compromisos y los controles que regirán la oferta de la respectiva tutoría.

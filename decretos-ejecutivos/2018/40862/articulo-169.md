@@ -1,0 +1,1 @@
+Artículo 169º-Derogatoria. Mediante la emisión del presente Reglamento, deróguese la siguiente normativa: Decreto Ejecutivo Nº 35355-MEP del 02 de junio de 2009 y sus reformas, denominado Reglamento de Evaluación de los Aprendizajes .

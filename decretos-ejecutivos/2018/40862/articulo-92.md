@@ -1,0 +1,5 @@
+Artículo 92°.-Deberes de los delegados ejecutivos, los asistentes, los aplicadores y los tutores de las Pruebas Nacionales. Los delegados ejecutivos y los asistentes, los aplicadores y los tutores de las pruebas nacionales tienen, los siguientes deberes:
+a) Presentarse al respectivo centro educativo con una antelación no inferior a noventa minutos los primeros y sesenta minutos los segundos, en relación con la hora a la que hayan sido convocados los estudiantes examinados.
+b) Informar, en la oportunidad y por el medio que previamente se le indique, a las autoridades competentes sobre asuntos referentes a la prueba.
+c) Abstenerse de suministrar datos o informes sobre el desarrollo de la actividad a funcionarios, personas o agentes que no estén previamente autorizados por la Dirección de Gestión y Evaluación de la Calidad o por el Despacho ministerial para requerir y obtener la información.
+d) Cualquier otra que se señale en este reglamento o que deriven de la naturaleza de sus funciones.

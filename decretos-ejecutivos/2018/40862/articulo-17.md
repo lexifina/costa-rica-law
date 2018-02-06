@@ -1,0 +1,4 @@
+Artículo 17°.-Deberes del Comité de Evaluación Ampliado. Para efectos de la definición de la estrategia de promoción, para las personas estudiantes de los centros educativos de III Ciclo de la Educación General Básica y la Educación Diversificada, a este comité le corresponden los siguientes deberes:
+a) Analizar cada caso en particular y, de acuerdo con la valoración realizada, determinar la estrategia de promoción a implementar para definir la condición final en la asignatura reprobada, según el artículo 54 de este reglamento.
+b) Establecer la estrategia de promoción del estudiantado, durante los tres días hábiles posteriores a la firmeza de los resultados de la última prueba de ampliación, de acuerdo con el artículo 55 de este reglamento.
+c) Informar a la persona estudiante sobre la estrategia de promoción que se le aplicará y la fecha de presentación de la misma.

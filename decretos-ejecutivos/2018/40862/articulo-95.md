@@ -1,0 +1,1 @@
+Artículo 95°.-Información a los centros educativos seleccionados para las Pruebas Diagnósticas. La Dirección de Gestión y Evaluación de la Calidad informará tanto a los centros educativos incluidos en la muestra como a las respectivas direcciones regionales, las características y los procedimientos para la aplicación de las pruebas nacionales diagnósticas.
