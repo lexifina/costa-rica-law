@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE LA UNIÓN
+La Alcaldía Municipal de La Unión, comunica que de acuerdo a Resolución Administrativa Nº MLU-DAM-RES-002-2018 del 08 de enero del 2018, “Se resuelve aprobar la Adhesión al Manual de Valores Base Unitarios por Tipología Constructiva, publicado por el Ministerio de Hacienda, Dirección General de Tributación, Órgano de Normalización Técnica, en el Diario Oficial La Gaceta del 29 de noviembre del 2017, Alcance Nº 288.”
