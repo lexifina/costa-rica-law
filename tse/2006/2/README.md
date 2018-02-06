@@ -15,3 +15,4 @@ Reglamento de Concurso Público para el Proceso de Reclutamiento, Selección y N
 | --- | --- | --- |
 | 1 | 2006-02-10 | la propia norma |
 | 2 | 2008-07-01 | Decreto TSE 3 (2008-07-01) |
+| 3 | 2018-02-06 | Decreto TSE 3 (2018-02-06) |
