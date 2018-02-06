@@ -1,0 +1,1 @@
+ARTÍCULO 22-Deber de mantener y ofrecer tecnología de punta. Los importadores de vehículos eléctricos ofrecerán los modelos más recientes y actualizados del mercado, así como los accesorios y repuestos. El Ministerio de Ambiente y Energía (Minae) reglamentará sobre el cumplimiento de esta disposición.

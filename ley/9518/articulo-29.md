@@ -1,0 +1,1 @@
+ARTÍCULO 29-Transporte escolar y turístico. El Ministerio de Obras Públicas y Transportes (MOPT) deberá fijar las acciones, las prioridades y las metas para extender los permisos de transporte escolar y de transporte turístico a los vehículos eléctricos.

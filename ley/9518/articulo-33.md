@@ -1,0 +1,2 @@
+ARTÍCULO 33-Recarga en parqueos. El Ministerio de Ambiente y Energía (Minae), en coordinación con el Ministerio de Obras Públicas y Transportes (MOPT), emitirá los lineamientos correspondientes para que se contemple la implementación de centros de recarga para vehículos eléctricos en la construcción de nuevos parqueos públicos y centros comerciales.
+Los estacionamientos de las instituciones públicas deberán contar con puestos de recarga, según lo disponga el reglamento de esta ley.

@@ -1,0 +1,1 @@
+ARTÍCULO 14-Restricción vehicular. Los vehículos eléctricos que porten el distintivo emitido por el Ministerio de Ambiente y Energía (Minae), de conformidad con esta ley, no estarán sujetos a la restricción vehicular de circulación en el área metropolitana, definida por el Ministerio de Obras Públicas y Transportes (MOPT).
