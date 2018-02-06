@@ -14,3 +14,4 @@ Diligencia en el suministro de las Entidades Financieras y no Financiera, ara el
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-02-21 | la propia norma |
+| 2 | 2018-02-06 | Resolución 6 (2018-02-06) |
