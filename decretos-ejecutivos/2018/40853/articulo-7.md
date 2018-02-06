@@ -1,0 +1,1 @@
+ARTÍCULO 7. La decisión de la Comisión será inapelable y se hará de conocimiento público en la semana del día 15 de enero del año que corresponda, coincidiendo con el natalicio de la educadora Carmen Lyra.

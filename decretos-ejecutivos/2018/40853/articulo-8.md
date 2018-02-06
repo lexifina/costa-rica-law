@@ -1,0 +1,1 @@
+ARTÍCULO 8. La logística, organización y apoyo al trabajo de la Comisión, será asumida por el Viceministerio Académico del Ministerio de Educación Pública, mediante la conformación de un equipo de trabajo, el cual será liderado por la Dirección de Vida Estudiantil del Ministerio de Educación Pública.
