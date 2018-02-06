@@ -1,0 +1,1 @@
+Artículo 3º.-Con el propósito de lograr una mayor coordinación de objetivos comunes y complementarios entre las instituciones, se podrán firmar convenios que fortalezcan las potestades legales e institucionales de cada uno, así como aprovechar mejor los recursos para un ejercicio más eficaz y eficiente de las competencias de cada una de éstas.

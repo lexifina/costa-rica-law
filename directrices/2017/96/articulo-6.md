@@ -1,0 +1,1 @@
+Artículo 6º.-Todas las instituciones y dependencias públicas estatales de la Administración Central, deberán dentro de su ámbito de competencia, colaborar con el diseño e implementación de los procedimientos operativos en los puestos de ingreso fronterizo al país necesarios para la efectiva ejecución del proyecto.

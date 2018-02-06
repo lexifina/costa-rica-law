@@ -1,0 +1,2 @@
+Artículo 7º.-El MAG y sus instituciones adscritas, con el apoyo de las instituciones competentes, someterá a conocimiento y aprobación del CONAFAC los aspectos que le correspondan de acuerdo a su competencia.
+El MAG y sus órganos adscritos, en el marco de sus competencias, respetando los lineamientos aprobados por el CONAFAC, podrán tomar las acciones necesarias para asegurar el avance del proyecto.
