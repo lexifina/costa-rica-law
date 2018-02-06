@@ -15,3 +15,4 @@ Reglamento para el pago de servicio de transporte de taxi para los funcionarios 
 | --- | --- | --- |
 | 1 | 2012-11-28 | la propia norma |
 | 2 | 2012-12-11 | Acuerdo 52 (2012-12-11) |
+| 3 | 2018-02-06 | Reglamento 204 (2018-02-06) |
