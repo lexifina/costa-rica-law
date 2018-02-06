@@ -1,0 +1,7 @@
+Artículo 2º—Deber de colaboración. Todas las dependencias y funcionarios de la Municipalidad de Carrillo, están obligados a prestar colaboración a La Contraloría de Servicios, cuando está lo requiera,
+como parte de las responsabilidades derivadas de la relación laboral, en los siguientes aspectos:
+a) Los funcionarios municipales deberán rendir los informes, datos y documentos necesarios requeridos por la Contraloría de Servicios, en tiempo y forma dispuestos, con el fin de cumplir con sus funciones.
+De toda inconformidad tramitada hacia cualquier Departamento o proceso se notificará a la Contraloría de Servicios sobre la información relacionada con su competencia.
+b) La negligencia o negativa injustificada del funcionario de ejercer su deber de colaboración en los términos dichos, lo hará incurrir en responsabilidad disciplinaria,-según la gravedad del caso- la que será sancionada de conformidad con lo dispuesto en el Artículo 149, del Código Municipal en concordancia con el Reglamento Autónomo de Organización y Servicios de la Municipalidad de Carrillo.
+Dicha falta será sancionada no atendiendo estrictamente el orden señalado en la normativa supra citada, sino en razón de su gravedad.
+c) En el caso de ser aplicable lo dispuesto en este artículo, deberá la Contraloría de Servicios dentro del plazo de cinco días hábiles, después de vencido el plazo concedido al funcionario municipal, remitir el caso a la Dirección de Recursos Humanos, para que proceda como corresponda, contra la persona funcionaria atinente.

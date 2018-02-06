@@ -1,0 +1,1 @@
+Artículo 11º.-Acompañamiento en la generación de los manuales de Servicio al cliente producidos por cada departamento: La Contraloría de Servicios acompañará a las distintas instancias en la producción de un manual de servicio al cliente, que establezca las condiciones que deben cumplir sus funcionarios al atender a un usuario en actitud y aptitud.

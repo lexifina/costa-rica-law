@@ -1,0 +1,1 @@
+Artículo 9º-Área de Información al Ciudadano sobre contenidos de servicio público municipal. Constituirá un mecanismo de enlace entre la Administración, el departamento de relaciones públicas, prensa y protocolo y el ciudadano, con el objetivo de promover y auxiliar los procesos que cumplan el fin de que los ciudadanos se encuentren plenamente informados de la gestión pública.

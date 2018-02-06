@@ -1,0 +1,2 @@
+Artículo 24º.- Obligación de dar respuesta al usuario. La Contraloría de Servicios está obligada a comunicar al usuario, el resultado de su gestión por cualquier medio disponible. Como última instancia deberá realizar la comunicación vía telefónica, la persona funcionaria responsable deberá dejar constancia escrita de la comunicación y deberá existir la presencia de al menos un testigo de la comunicación hecha.
+En los casos atinentes, se dejará constancia de la imposibilidad de comunicación a la persona ciudadana si así fuese.

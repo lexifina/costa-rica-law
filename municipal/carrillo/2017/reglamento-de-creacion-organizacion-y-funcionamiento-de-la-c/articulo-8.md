@@ -1,0 +1,1 @@
+Artículo 8º-Área de Atención de reconocimientos positivos, quejas y denuncias sobre el servicio municipal a nivel local. Fortalecerá y coadyuvará la amplia participación ciudadana, estableciendo procedimientos de atención de reconocimientos positivos, quejas y denuncias sobre el servicio municipal a nivel local.

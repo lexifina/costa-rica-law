@@ -1,0 +1,1 @@
+Artículo 19º.-Interposición de denuncias ante el Ministerio Público. Si durante el desarrollo de sus funciones, la Contraloría de Servicios encuentra indicios suficientes de que los hechos examinados podrían acarrear responsabilidad penal a la Institución se trasladará el caso a conocimiento del Alcalde Municipal, para que valore su remisión al Ministerio Público.
