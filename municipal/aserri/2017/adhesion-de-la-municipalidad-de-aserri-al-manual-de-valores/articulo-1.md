@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE ASERRÍ
+La Municipalidad de Aserrí, comunica que mediante el oficio MA-1211-2017 de fecha 08 de diciembre del 2017, emitido por la Alcaldía Municipal, esta Municipalidad se adhiere a la publicación del Manual de Valores Base Unitarios por Tipología Constructiva, publicado por el Órgano de Normalización Técnica de la Dirección General de Tributación del Ministerio de Hacienda, en el Alcance Digital de La Gaceta Nº 288, del día miércoles 29 de noviembre del 2017, de conformidad con la Ley Nº 7509 y sus reformas, Ley de Impuesto sobre Bienes Inmuebles. La aplicación de dicho manual en la Municipalidad de Aserrí empezará a regir a partir de su publicación.
+Aserrí, 09 de enero del 2018
