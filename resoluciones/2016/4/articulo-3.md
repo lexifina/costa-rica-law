@@ -1,4 +1,0 @@
-Artículo 3°—Disposiciones finales.
-a) Las empresas que gozan de beneficios fiscales que les exonera el 100% del pago del impuesto sobre la renta, no deben realizar la solicitud de eliminación o disminución de pagos parciales, dado que no se les genera la obligación de realizar pagos parciales.
-b) Las solicitudes de eliminación y disminución de pagos parciales deberán presentarse ante la Administración Tributaria en la que se encuentre adscrito, con al menos 10 días hábiles de anticipación al vencimiento de los pagos parciales de conformidad con lo establecido en el inciso c) del artículo 22 de la Ley del Impuesto sobre la Renta y la misma debe de ser presentada ante la Administración Tributaria.
-c) Contra la resolución que deniega total o parcialmente la solicitud, se podrá interponer recurso de apelación ante el Tribunal Fiscal Administrativo, dentro de los 30 días siguientes a su notificación.
