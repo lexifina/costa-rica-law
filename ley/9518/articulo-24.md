@@ -1,0 +1,1 @@
+ARTÍCULO 24-Deber de gestionar el distintivo para vehículos eléctricos. Los importadores de vehículos eléctricos deberán gestionar, ante el Ministerio de Ambiente y Energía (Minae), la emisión de los distintivos para estos vehículos y deberán colocar un distintivo, por una única vez, en cada vehículo eléctrico que vendan.

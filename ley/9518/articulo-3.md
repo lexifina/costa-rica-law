@@ -1,0 +1,1 @@
+ARTÍCULO 3-Interés público. Se declara de interés público la promoción del transporte eléctrico, público y privado, para cumplir con los compromisos adquiridos en los convenios internacionales ratificados por el país y el artículo 50 de la Constitución Política.

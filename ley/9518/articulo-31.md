@@ -1,0 +1,5 @@
+CAPÍTULO VII
+CENTROS DE RECARGA
+ARTÍCULO 31-Implementación de los centros de recarga. La construcción y puesta en funcionamiento de los centros de recarga en el país le corresponde a las distribuidoras de electricidad. El Ministerio de Ambiente y Energía(Minae) tendrá la obligación de velar por la construcción y el funcionamiento de los centros de recarga, según lo define esta ley.
+De conformidad con los estándares internacionales, en carreteras nacionales deberá construirse y ponerse en funcionamiento por lo menos un centro de recarga cada ochenta kilómetros (80km), en caminos cantonales deberá construirse y ponerse en funcionamiento por lo menos un centro de recarga cada ciento veinte kilómetros (120km). Las distancias señaladas podrán ser ajustadas por el Ministerio de Ambiente y Energía, vía reglamento.
+Los centros de recarga deberán contar con una pizarra informativa sobre los puntos de recarga más cercanos o próximos, tiempos de recarga, estadísticas de consumo y demás información que defina el Minae, vía reglamento.

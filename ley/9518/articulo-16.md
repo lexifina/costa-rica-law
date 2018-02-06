@@ -1,0 +1,2 @@
+ARTÍCULO 16-Uso de parqueos azules para vehículos de transporte eléctrico. Los vehículos eléctricos podrán parquear en los espacios designados como azules dentro de los parqueos públicos, así como de supermercados, centros comerciales y demás parqueos privados, según las disposiciones del reglamento de la presente ley.
+Estos espacios preferenciales en ningún caso podrán sustituir o reemplazar los dispuestos para las personas con discapacidad, regulados en la Ley N.° 7600, Igualdad de Oportunidades para las Personas con Discapacidad, de 2 de mayo de 1996.
