@@ -1,0 +1,1 @@
+Artículo 3.- Término de validez de la cédula de identidad: Las cédulas de identidad, cuyo vencimiento haya ocurrido el 4 de febrero del año 2017 o en fecha posterior conservarán su validez, únicamente para efectos electorales, hasta el 1° de abril del año 2018.

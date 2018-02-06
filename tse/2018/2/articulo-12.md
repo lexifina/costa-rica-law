@@ -1,0 +1,1 @@
+Artículo 12.- Sobre las difusiones publicitarias del Poder Ejecutivo, la administración descentralizada y las empresas del Estado: Por tratarse de un proceso electoral no concluido, la prohibición contemplada en el artículo 142 del Código Electoral se mantiene vigente ininterrumpidamente hasta el 1° de abril del 2018, inclusive.

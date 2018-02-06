@@ -1,0 +1,1 @@
+Artículo 4.- Centros de votación: Se utilizarán los mismos centros de votación designados para la votación del 4 de febrero del 2018, tanto en el territorio nacional como en el extranjero, salvo que por situaciones excepcionales, debidamente justificadas por el Departamento de Programas Electorales, sea necesario realizar cambios de dichos centros de votación.

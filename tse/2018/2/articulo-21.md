@@ -1,0 +1,1 @@
+Artículo 21.- Declaratoria de elección: El escrutinio definitivo de las votaciones del 1° de abril del 2018 y la respectiva declaratoria de elección, deberán producirse dentro de los quince días hábiles siguientes.
