@@ -1,0 +1,1 @@
+Artículo 6.-De la liquidación de viáticos por excepción: La liquidación de viáticos por excepción se realizará de acuerdo con lo establecido en el artículo 9 del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos vigente.

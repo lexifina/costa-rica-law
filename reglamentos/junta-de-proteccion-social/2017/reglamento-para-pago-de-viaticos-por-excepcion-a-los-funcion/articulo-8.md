@@ -1,0 +1,1 @@
+Artículo 8.-Aplicación supletoria: Cualquier aspecto que no haya sido contemplado en este Reglamento, se regulará por las disposiciones contenidas en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos vigente.
