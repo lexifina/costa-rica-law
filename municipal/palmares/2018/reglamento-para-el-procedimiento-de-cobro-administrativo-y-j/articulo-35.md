@@ -1,0 +1,1 @@
+Artículo 35.-Formalización de la contratación. Los oferentes elegidos o nombrados firmarán un contrato con la municipalidad, así como cualquier otro documento que requiera la institución, necesario a la prestación eficiente de estos servicios, y para cumplir con las normas que regulan este tipo de contratación.
