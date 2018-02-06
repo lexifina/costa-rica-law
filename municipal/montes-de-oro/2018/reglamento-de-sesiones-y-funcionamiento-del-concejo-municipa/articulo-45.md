@@ -1,0 +1,1 @@
+Artículo 45º- Uso de la palabra: en el transcurso de la sesión ordinaria o extraordinaria, según el criterio del Presidente Municipal se le puede conceder la palabra a particulares por un periodo de tres minutos en cada capítulo del orden del día; intervención que será de acuerdo al temas que se tratando.

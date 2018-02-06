@@ -1,0 +1,1 @@
+Artículo 48º- Las comisiones podrán reunirse ordinaria y extraordinariamente cuando ellas mismas así lo decidan, siempre y cuando no interfieran con las sesiones ordinarias y extraordinarias del Concejo.

@@ -1,0 +1,1 @@
+Artículo 13º-Por cuestión de orden y buen manejo de los temas discutidos, durante las sesiones ordinarias y extraordinarias, los miembros del Concejo y asistentes, mantendrán sus aparatos celulares, localizadores o similares en silencio.

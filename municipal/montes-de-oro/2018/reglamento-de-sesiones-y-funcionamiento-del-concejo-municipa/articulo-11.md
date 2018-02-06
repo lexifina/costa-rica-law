@@ -1,0 +1,1 @@
+Artículo 11º-En el transcurso de la sesión: ordinaria o extraordinaria, no se podrá acercarse a interrumpir a los regidores propietarios y el Alcalde Municipal. Caso contrario que exista una consulta legal.

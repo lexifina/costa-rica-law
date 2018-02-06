@@ -1,0 +1,1 @@
+Artículo 10º-De la permanencia: los regidores propietarios, suplentes y síndicos, propietarios y suplentes, deberán permanecer durante el desarrollo de toda la sesión para acreditar el pago de la respectiva dieta. Su abandono en el transcurso, aún con justificación derivará la pérdida de la cancelación de la dieta.

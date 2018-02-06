@@ -1,0 +1,2 @@
+Artículo 33º- Cualquier otro asunto que de forma excepcional sea parte del orden del día, se regirá por sus reglas en cuanto a forma y fondo.
+Tratándose del informe de labores ordinarias del Alcalde Municipal, éste debe ser presentado ante el Concejo de manera verbal o escrita y dispone con tiempo máximo de exposición de treinta minutos, plazo prorrogable hasta por diez minutos, a criterio del Presidente Municipal.

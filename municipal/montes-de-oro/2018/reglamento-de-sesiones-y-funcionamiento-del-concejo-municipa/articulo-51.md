@@ -1,0 +1,1 @@
+Artículo 51º- Los dictámenes de las comisiones deberán presentarse por escrito y firmados por todos los miembros de la Comisión con derecho a voto que lo emiten y los miembros de la Comisión que no lo aprueben, podrán rendir dictamen por separado si lo estiman conveniente.
