@@ -1,5 +1,6 @@
 Artículo 4º—Requisitos específicos. Además de los requisitos generales, se deben aportar según corresponda los documentos que se indican a continuación en original o fotocopia para que pueda ser confrontada por el funcionario tributario, o en su defecto fotocopia certificada con no más de un mes de emitida.
-i. Acreditación de apoderados generalísimos sin límite de suma
+i. Acreditación de representante legal y, si lo desea, de apoderados generalísimos sin límite de suma
+(Así reformado el inciso anterior por el artículo 13 de la resolución N° DGT-R-08-2018 del 7 de febrero del 2018, “Requisitos para realizar todo tipo de trámite ante la Dirección General de Tributación relacionado con la acreditación representación y el mandato, y con la autenticación de firmas”)
 - Certificación del poder debidamente inscrito ante el Registro Nacional donde conste su vigencia con fecha de inicio y según corresponda con fecha de fin de actuación.
 - Documento de identificación respectivo.
 ii. Inscripción de cuentas en participación
