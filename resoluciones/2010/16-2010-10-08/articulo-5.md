@@ -1,1 +1,0 @@
-Artículo 5º—Actuación de apoderados no acreditados. Aún cuando no estén acreditados, podrán actuar ante la Administración Tributaria, en el procedimiento o trámite específico en que se apersonen, quienes demuestren poder suficiente.

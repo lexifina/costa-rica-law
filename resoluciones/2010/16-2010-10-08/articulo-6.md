@@ -1,1 +1,0 @@
-Artículo 6º—Derogatoria. Deróguese la resolución de la Dirección General de la Tributación Nº 12-97 de las ocho horas y cinco minutos del 12 de agosto de mil novecientos noventa y siete. Publicada en La Gaceta Nº 171 del 5-9-97.
