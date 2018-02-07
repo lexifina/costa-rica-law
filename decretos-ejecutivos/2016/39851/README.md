@@ -14,3 +14,4 @@ Crea Comisión Interinstitucional para la Implementación y Seguimiento del Marc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-09-06 | la propia norma |
+| 2 | 2018-02-07 | Decreto Ejecutivo 40874 (2018-02-07) |

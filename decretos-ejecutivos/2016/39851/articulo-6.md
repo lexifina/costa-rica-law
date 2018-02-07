@@ -1,1 +1,2 @@
-Artículo 6º — Se autoriza a las instituciones del Estado para destinar recursos, en la medida de sus posibilidades jurídicas y materiales, a fin de lograr los objetivos de esta Comisión.
+Artículo 6. - Se autoriza a las instituciones del Estado para destinar recursos, en la medida de sus posibilidades jurídicos y materiales, o fin de lograr los objetivos de la Comisión lnterinstitucional (CIIS). Los jerarcas integrantes de la Comisión podrán firmar convenios interinstitucionales para el cumplimiento del presente Decreto.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40874 del 7 de febrero del 2018)
