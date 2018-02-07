@@ -1,1 +1,2 @@
-Artículo 4º—Podrán realizar la Práctica Profesional todos los estudiantes que, al finalizar el último período del duodécimo año, cumplan con lo establecido en el Artículo 1, incisos a) y b); a excepción de los casos autorizados por el Departamento de Educación Técnica para realizar la Práctica Profesional en forma fraccionada.
+Artículo 4°- Podrán realizar la práctica profesional todos los estudiantes que, al finalizar el último período del duodécimo año, aprueben el plan de estudios establecido; a excepción de los casos autorizados por el Departamento de Educación Técnica para realizar la Práctica Profesional en forma fraccionada, además de los indicados el artículo 1 bis.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 40964 del 7 de febrero de 2018)

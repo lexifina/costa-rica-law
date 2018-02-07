@@ -1,1 +1,2 @@
-Artículo 28.—Podrán realizar la Prueba Escrita Comprensiva todos los estudiantes que cumplan con lo establecido en el artículo 1º, incisos a) y b de este Reglamento, para lo cual, cada Institución Educativa debe realizar la inscripción respectiva de acuerdo con las fechas y los procedimientos establecidos por la Dirección de Gestión y Evaluación de la Calidad.
+Artículo 28. - Podrán realizar la Prueba Escrita Comprensiva todos los estudiantes que sean inscritos de acuerdo con las fechas y los procedimientos establecidos por la Dirección de Gestión y Evaluación de Calidad, y que cumplan con lo indicado en el artículo 1 bis.
+(Así reformado por el artículo 4° del decreto ejecutivo N° 40964 del 7 de febrero de 2018)

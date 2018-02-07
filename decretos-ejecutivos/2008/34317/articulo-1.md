@@ -16,8 +16,5 @@ e Industrial a partir del inicio
 del Curso Lectivo del 2008
 CAPÍTULO I
 De los requisitos de graduación
-Artículo 1º—Para obtener el título de técnico en el Nivel Medio en las especialidades de la rama técnica y sus modalidades: Agropecuario, Industrial, Comercial y Servicios, los alumnos aspirantes deberán cumplir con los siguientes requisitos:
-a) Haber aprobado cada una de las asignaturas del área académica y las subáreas del área tecnológica de duodécimo año del Plan de Estudios de la Educación Diversificada en la especialidad y modalidad correspondiente.
-b) Tener como mínimo una nota de calificación de setenta (70) en conducta durante el duodécimo año, según se establece en el artículo 73 y 74 del Reglamento de Evaluación de los Aprendizajes.
-c) Realizar y aprobar una Práctica Profesional o un Proyecto Final, la cual será escogida por el alumno de acuerdo a su interés.
-d) Aprobar la Prueba Escrita Comprensiva estandarizada, que incluya los aspectos teóricos fundamentales de la especialidad cursada durante décimo, undécimo y duodécimo años.
+Artículo 1.- Para obtener el título de técnico en el Nivel Medio en las especialidades de la rama técnica y sus modalidades Agropecuario, Industrial, Comercial y de Servicios, la persona estudiante deberá haber cumplido satisfactoriamente con la práctica profesional o el proyecto final y haber aprobado la prueba escrita comprensiva en la especialidad que cursa. Además debe haber aprobado la totalidad del plan de estudios.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40964 del 7 de febrero de 2018)
