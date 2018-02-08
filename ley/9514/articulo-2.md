@@ -15,3 +15,4 @@ Artículo 2°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar, Alcance Digital N° 301 a La Gaceta N° 237 del 14 de diciembre de 2017, tomo XVI)
 (Modificado por el artículo 1° del decreto ejecutivo N° 40830 del 11 de enero de 2018)
 (Modificado por el artículo 1° del decreto ejecutivo N° 40852 del 12 de enero de 2018)
+(Modificado por el artículo 1° del decreto ejecutivo N° 40870 del 29 de enero de 2018)
