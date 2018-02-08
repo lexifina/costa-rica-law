@@ -1,0 +1,3 @@
+ARTICULO 16°-Los inquilinos de puestos no podrán entregar el puesto a ningún título de otra persona. Se exceptúa de lo anterior el caos de cesiones previamente autorizadas y que cumplan con los requisitos exigidos.
+El adjudicatario no podrá separarse de la atención del local salvo que, por enfermedad comprobada, fuerza mayor, caso fortuito u otra causa calificada de grave, a juicio del alcalde, se autorice licencia para hacerlo por un plazo no mayor de meses.
+La presencia ocasional del adjudicatario en el negocio, no es suficiente para demostrar la atención del mismo y cualquier intento para demostrar lo contrario, simulando condiciones que no se tiene y sin el respectivo permiso, serán motivos suficientes para que la municipalidad resuelva el contrato de pleno derecho.

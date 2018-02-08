@@ -1,0 +1,1 @@
+TRANSITORIO III. El mercado municipal tendrá sus zonas para descargas de limitadas, en horarios establecidos por la administración municipal fuera de los lineamientos de la ley de parquímetros municipales.

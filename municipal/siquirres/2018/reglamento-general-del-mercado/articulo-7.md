@@ -1,0 +1,1 @@
+ARTICULO 7°-Fuera de los casos expresamente señalados por este reglamento ninguna persona podrá permanecer dentro del mercado después del horario fijado o antes de este, exceptuando los empleados del mismo. Cuadrillas de aseo personas de vigilancia.

@@ -1,0 +1,1 @@
+ARTICULO 6°-Las variaciones en el horario del mercado serán notificadas al público mediante un aviso en unos de los periódicos de circulación cantonal o nacional, emisora local o mediante cualquier sistema de estime el administrador del mercado.
