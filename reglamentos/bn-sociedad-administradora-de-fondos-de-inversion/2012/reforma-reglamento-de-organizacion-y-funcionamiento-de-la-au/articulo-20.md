@@ -1,0 +1,1 @@
+ARTÍCULO 20°. En materia de las responsabilidades del Auditor Interno y la Junta Directiva de BN Sociedad Administradora de Fondos de Inversión, S.F.I., S.A., respecto al Reglamento de Organización y Funcionamiento de la Auditoría Interna, se regirán por lo establecido en las disposiciones, normas, políticas y directrices que emita la Contraloría General de la República.

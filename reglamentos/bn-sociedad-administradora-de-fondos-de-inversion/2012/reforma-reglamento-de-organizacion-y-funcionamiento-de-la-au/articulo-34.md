@@ -1,0 +1,1 @@
+ARTÍCULO 34°. Los hallazgos obtenidos en el transcurso de la auditoría o estudio especial de auditoría deben ser comentados con el jerarca o titulares subordinados responsables, de previo a emitir las conclusiones y recomendaciones definitivas, a efecto de obtener de ellos sus puntos de vista, opiniones y cualquier acción correctiva que sea necesaria.

@@ -14,3 +14,4 @@ Reforma Reglamento de Organización y Funcionamiento de la Auditoría Interna de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-03-06 | la propia norma |
+| 2 | 2018-02-08 | Reglamento 0 (2018-02-08) |

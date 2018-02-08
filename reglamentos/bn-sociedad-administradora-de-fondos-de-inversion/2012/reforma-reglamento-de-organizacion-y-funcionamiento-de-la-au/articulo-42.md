@@ -1,0 +1,2 @@
+ARTÍCULO 42°. La Auditoría Interna contará con la asesoría legal de la Dirección Jurídica del Banco Nacional de Costa Rica a fin de establecer adecuadamente su ámbito de acción y atender sus necesidades de orden jurídico.
+La Auditoría Interna podrá incorporar profesionales o técnicos de diferentes disciplinas, funcionarios o no de la institución, para que lleven a cabo labores de su especialidad en apoyo a las auditorías que se realicen.

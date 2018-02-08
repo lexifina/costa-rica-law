@@ -1,0 +1,1 @@
+ARTÍCULO 23°. La Auditoría Interna dará cumplimiento a los deberes establecidos en el artículo 32 de la Ley General de Control Interno así como a aquéllos que determine la normativa emitida por la Contraloría General de la República.

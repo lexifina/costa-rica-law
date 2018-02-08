@@ -1,0 +1,2 @@
+ARTÍCULO 13°. El Auditor Interno deberá cumplir con pericia y debido cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio, y serán vigilantes de que su personal responda de igual manera.
+El Auditor Interno podrá delegar en su personal sus funciones, utilizando criterios de idoneidad y conforme lo establece la Ley General de la Administración Pública.
