@@ -1,1 +1,0 @@
-Artículo 13.—El pago del alquiler se hará mediante la cancelación del respectivo recibo ante la Administración en el Departamento de Facturación de la Municipalidad de Siquírres o cualquier Agencia del Sistema Bancario Nacional, en este último caso deberá presentar el comprobante respectivo ante el Departamento de Tesorería de la Municipalidad a fin de acreditar su pago

@@ -1,1 +1,0 @@
-Artículo 2º—Se denomina Mercado, para los efectos de este Reglamento, el lugar construido o destinado por la municipalidad de Siquírres para servir de centro de expendio o abastecimiento de artículos de primera necesidad, consumo popular o uso doméstico.

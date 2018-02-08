@@ -1,1 +1,0 @@
-Artículo 20.—En caso de daños o reparaciones en los servicios públicos, los inquilinos están en la obligación de facilitar la entrada al puesto de los operarios designados por el Alcalde para las labores de reparación respectiva, ya sea en su puesto o en los de los demás inquilinos.

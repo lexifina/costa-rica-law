@@ -1,3 +1,0 @@
-CAPÍTULO IV
-Del funcionamiento de los locales
-Artículo 14.—Todo inquilino deberá atender personalmente su negocio y podrá ocupar los dependientes que estime necesario para la buena marcha del mismo. Los dependientes deberán cumplir los requisitos establecidos en los incisos b) c) y d) del artículo 11, en el caso de ser menor de edad, deberá presentar el permiso correspondiente del Patronato Nacional de la Infancia. El inquilino acompañará junto con una solicitud de registro toda la documentación solicitada a efecto de que la administración le provea de un carné, en el cual se hará constar el nombre del dependiente, el número y clase de puesto que le acredite, el nombre del inquilino y en él aparecerá su fotografía.
