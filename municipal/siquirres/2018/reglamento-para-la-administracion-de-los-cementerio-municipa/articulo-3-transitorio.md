@@ -1,0 +1,1 @@
+TRANSITORIO III. El presente reglamento entrará a regir para el cementerio municipal del Cantón de Siquirres, hasta que el Concejo Municipal apruebe el dictamen de la comisión administrativa de cementerios que así lo disponga y sea publicado dicho acuerdo, o en el plazo de un año a partir de la publicación de este reglamento.

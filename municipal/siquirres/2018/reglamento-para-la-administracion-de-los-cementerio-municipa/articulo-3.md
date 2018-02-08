@@ -1,0 +1,3 @@
+CAPITULO SEGUNDO:
+De la Junta Administrativa
+Artículo 3o—Las Juntas Administrativas de los Cementerios del cantón de Siquirres, serán nombradas bajo la dirección del Concejo de Distrito respectivo, escogiendo para su integración a personas de reconocida idoneidad y espíritu para garantizar el buen desempeño de sus funciones. Las Juntas deben de estar integradas por siete personas. El quorum estará formado por la mitad más uno de sus miembros y los acuerdos se tomarán por simple mayoría. En caso de empate, el asunto se decidirá en la próxima sesión ordinaria; si la situación persiste se dará por desechado.

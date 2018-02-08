@@ -1,0 +1,1 @@
+Artículo 17°. En cada cementerio deberá existir un osario general, debidamente protegido del ingreso y mirada de personas ajenas al cementerio, donde se depositarán los restos óseos provenientes de las exhumaciones. (Se podría diseñar en la tapia que rodea el cementerio un tipo de osario, en la parte superior).

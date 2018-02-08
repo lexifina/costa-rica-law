@@ -1,0 +1,1 @@
+Artículo 65°. El administrador del cementerio notificará, dos veces, personalmente al titular, la circunstancia del vencimiento del plazo, bajo apercibimiento de que el no pago de la tasa de prórroga dentro del término de un año, producirá la caducidad del derecho funerario.

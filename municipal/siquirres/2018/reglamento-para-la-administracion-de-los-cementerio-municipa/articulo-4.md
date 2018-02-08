@@ -1,0 +1,1 @@
+Artículo 4o—Los nombramientos de las Juntas deberán hacerse en el distrito o caserío donde haya cementerio, sus miembros durarán en el cargo, dos años pudiendo ser reelectos. El Concejo Municipal podrá revocar los nombramientos por simple mayoría cuando el caso lo amerite.

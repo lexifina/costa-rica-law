@@ -1,0 +1,1 @@
+Artículo 73°. La comisión administrativa de cementerios estará conformada por los administradores de todos los cementerios del cantón, el director de Desarrollo y Control Urbano o un representante en su defecto y el asesor legal de la Municipalidad o un representante en su defecto.

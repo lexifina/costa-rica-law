@@ -1,0 +1,1 @@
+Artículo 70°. La administración de cementerios únicamente recibirá aquellos traspasos que consten en escritura pública de donación cuyo testimonio será presentado a la comisión de cementerios para su aprobación. Los costos que demande el traspaso correrán por parte del interesado.
