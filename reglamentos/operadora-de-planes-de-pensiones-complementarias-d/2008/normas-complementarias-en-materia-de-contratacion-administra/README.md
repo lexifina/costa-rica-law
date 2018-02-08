@@ -19,3 +19,4 @@ Normas Complementarias en Materia de Contratación Administrativa para la Operad
 | 4 | 2015-04-16 | Reglamento 459 (2015-04-16) |
 | 5 | 2016-08-11 | Reglamento 493 (2016-08-11) |
 | 6 | 2017-03-09 | Reglamento 507 (2017-03-09) |
+| 7 | 2018-02-08 | Reglamento 529 (2018-02-08) |
