@@ -1,0 +1,1 @@
+Artículo 14.—En el caso de que se registre un sobrante en caja, el Tesorero depositará los recursos en un plazo no mayor a un día hábil, posterior a la determinación de su existencia. Éste se hará en la cuenta corriente Nº 100-01-024-000043-2 del Banco Nacional de Costa Rica. Mediante acuerdo del Concejo Municipal, se podrá variar la cuenta.

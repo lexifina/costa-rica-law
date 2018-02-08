@@ -1,0 +1,1 @@
+Artículo 8º—Las ausencias temporales del Cajero(a) Facturador(a), serán atendidas por un funcionario adiestrado. Quien sustituya al Cajero(a) Facturador(a), dispondrá del fondo fijo tal como se indica en el artículo diez.

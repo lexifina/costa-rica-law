@@ -1,0 +1,1 @@
+Artículo 11.—En el evento de que la recaudación supere el 50% de la póliza de fidelidad asignada al Cajero(a) Facturador(a), antes de la hora fijada para el cierre diario, El Cajero(a) Facturador(a) entregará el dinero al Tesorero (a), mediante documento “Remesas parciales a Tesorería”.
