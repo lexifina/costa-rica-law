@@ -1,2 +1,1 @@
-ARTÍCULO 43°
-Rige a partir de su publicación en el Diario Oficial La Gaceta.
+ARTÍCULO 43°. El Auditor Interno tendrá la facultad de proveer e intercambiar información con la Contraloría General de la República, así como con otros entes y órganos de control que conforme a la ley correspondan y en el ámbito de sus competencias. Sin perjuicio de la coordinación interna que al respecto deba darse, sin que ello implique limitación para la efectiva actuación de la auditoría interna.
