@@ -1,11 +1,8 @@
-Artículo 18.—Intermediación Bursátil en el Mercado Internacional. Para realizar la intermediación bursátil, se debe cumplir con los siguientes aspectos:
-1. El Comisión (*) de Inversiones definirá previamente los puestos de bolsa autorizados, de acuerdo con los criterios establecidos por la Dirección de Riesgo. Estos criterios deben incluir aspectos cualitativos y cuantitativos de cada uno de los participantes.
-(*) (Así modificada su denominación por el punto iii) del artículo 38) del Reglamento de Comités y Comisiones del Conglomerado Financiero Banco Popular y de Desarrollo Comunal y Subsidiarias, aprobado mediante sesión N° 5306 del 1° de setiembre del 2015. Anteriormente indicaba "Comité". No obstante se debe indicar que aunque la norma dice que se reforme el Reglamento de Inversiones Financieras del Conglomerado Banco Popular y de Desarrollo Comunal publicado en La Gaceta del 16 de agosto del 2010 el mismo se encuentra derogado por lo que las modificaciones se realizaron al presente reglemento)
-2. En el caso de que la División de Tesorería considere necesario cambiar o incluir un puesto de bolsa, se deberá de considerar el criterio del Comisión (*) de Inversiones en pleno.
-(*) (Así modificada su denominación por el punto iii) del artículo 38) del Reglamento de Comités y Comisiones del Conglomerado Financiero Banco Popular y de Desarrollo Comunal y Subsidiarias, aprobado mediante sesión N° 5306 del 1° de setiembre del 2015. Anteriormente indicaba "Comité". No obstante se debe indicar que aunque la norma dice que se reforme el Reglamento de Inversiones Financieras del Conglomerado Banco Popular y de Desarrollo Comunal publicado en La Gaceta del 16 de agosto del 2010 el mismo se encuentra derogado por lo que las modificaciones se realizaron al presente reglemento)
-El control de los criterios de la asignación de puestos de bolsa debe ser llevado por la División de Tesorería del Banco Popular y de Desarrollo Comunal, y deben ser evaluados, al menos, los siguientes criterios.
-- Costo de comisiones.
-- Acompañamiento y asesoría.
-- Aspectos relacionados con procedimientos y cumplimiento de normas por parte del puesto de bolsa.
-- Evaluación de los sistemas de información que se tenga con el cliente, donde se valide la transparencia de la información.
-- Experiencia del puesto de bolsa en mercados internacionales y de sus profesionales.
+Artículo 18.-Mecanismos de control de riesgos. El control de riesgo en mercados internacionales estará definido por los instrumentos de inversión definidos en el presente Reglamento.
+Para el caso de los ETF, la Dirección Gestión Riesgo Corporativo definirá los indicadores mínimos requeridos, entre los cuales se deben considerar los siguientes:
+- Indicador Beta
+- Ratio de Información
+- Alfa Jensen
+- R cuadrado
+- Tracking Error
+Estos indicadores se presentarán como parte del seguimiento periódico y se incluirán en el informe de resultados de ganancias y pérdidas obtenidas por la gestión activa de estos instrumentos. La responsabilidad de dicho control recaerá en la División de Tesorería Corporativa.

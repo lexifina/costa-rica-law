@@ -1,8 +1,2 @@
-Artículo 19.—Mecanismos de control de riesgos. El control de riesgo en mercados internacionales estará definido por los instrumentos de inversión definidos en la política aprobada por la Junta Directiva y en el presente reglamento.
-Para el caso de ETF, se definirán algunos indicadores, de los cuales debe informarse, al menos, acerca de los siguientes:
-- El indicador Beta.
-- Ratio de Información.
-- Alfa Jensen.
-- R cuadrado.
-- Tracking Error.
-Estos indicadores se presentarán como parte del seguimiento periódico y como parte del informe de los resultados de las ganancias y pérdidas obtenidas por la gestión activa de estos instrumentos. La responsabilidad de dicho control recaerá en la División de Tesorería.
+De las inversiones
+Artículo 19. - Inversiones autorizadas. Todo valor por adquirir debe estar autorizado para circular en una bolsa y tener al menos la escala de calificación de riesgo igual o superior a la de Costa Rica, emitida por una empresa calificadora de riesgo debidamente autorizada para operar en el mercado respectivo. No obstante, en el mercado local se podrá invertir en los valores indicados en el artículo 10 de la Ley Reguladora del Mercado de Valores.

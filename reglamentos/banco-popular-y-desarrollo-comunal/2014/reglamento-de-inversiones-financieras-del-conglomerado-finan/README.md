@@ -15,3 +15,4 @@ Reglamento de Inversiones Financieras del conglomerado financiero Banco Popular 
 | --- | --- | --- |
 | 1 | 2015-01-19 | la propia norma |
 | 2 | 2015-09-01 | Reglamento 5306 (2015-09-01) |
+| 3 | 2018-02-08 | Reglamento 5533 (2018-02-08) |
