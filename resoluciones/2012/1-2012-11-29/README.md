@@ -34,3 +34,4 @@ Establece que los fabricantes e importadores de jarabes utilizados para la elabo
 | 19 | 2017-05-11 | Resolución 2 (2017-05-11) |
 | 20 | 2017-08-14 | Resolución 4 (2017-08-14) |
 | 21 | 2017-11-08 | Resolución 5 (2017-11-08) |
+| 22 | 2018-02-08 | Resolución 2 (2018-02-08) |
