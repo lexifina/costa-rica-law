@@ -1,0 +1,2 @@
+Artículo 8. Conclusión del Procedimiento. Una vez que se concluya el presente procedimiento, la Propuesta, Ficha Técnica Evaluativa y anexos se trasladarán al Presidente y al Consejo de Gobierno, para propósitos de referencia, asesoría y consulta en el proceso de toma de decisiones.
+El Presidente y el Consejo de Gobierno podrán citar a las instituciones integrantes del Centro de Gobierno para una sesión de trabajo, con el propósito de discutir los elementos relevantes de la Propuesta y Ficha Técnica Evaluativa resultante.

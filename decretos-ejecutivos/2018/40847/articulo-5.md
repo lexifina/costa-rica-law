@@ -1,0 +1,1 @@
+Artículo 5. Alcance de la Revisión Multidimensional. El alcance de la presente revisión multidimensional incluye todos aquellos programas y propuestas de políticas públicas, de conformidad con la definición establecida en el Artículo 2.
