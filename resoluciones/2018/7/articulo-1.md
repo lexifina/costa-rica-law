@@ -1,0 +1,17 @@
+DIRECCIÓN GENERAL DE HACIENDA
+RES-DGH-007-2018.—Dirección General de Hacienda, a las quince horas con treinta minutos del diecinueve de enero del dos mil dieciocho.
+Considerando:
+I.—Que el inciso e) del artículo 7º de la Ley Nº 3022 de fecha 27 de agosto de 1962, denominada “Crea Dirección General de Hacienda en el Ministerio de Hacienda”, se establece, entre otras funciones de la Dirección General de Hacienda, es coordinar la labor de todas las oficinas administradoras de rentas públicas, revisar los procedimientos y sistemas empleados y tomar las medidas indispensables para su mejoramiento.
+II.—Que el artículo 99, de la Ley Nº 4755 de fecha 03 de mayo de 1971, denominado “Código de Normas y Procedimientos Tributarios”, establece que los órganos de la Administración Tributaria del Ministerio de Hacienda pueden dictar normas generales para la correcta aplicación de las leyes tributarias, dentro de los límites fijados por las normas legales y reglamentarias pertinentes.
+III.—Que el inciso i) del artículo 6 del Decreto Ejecutivo N° 35366-H de fecha 24 de junio de 2009, denominado “Reglamento de Organización y Funciones de la Dirección General de Hacienda”, determina como una de las funciones del Director (a) General de Hacienda, emitir las resoluciones, instrucciones o directrices para el logro de los objetivos de la Dirección.
+IV.—Que el artículo1 del Decreto Ejecutivo N° 31611 de fecha 07 de octubre de 2010, denominado “Autoriza al Departamento de Exenciones de la Dirección General de Hacienda, para que realice mediante un Sistema de Información Electrónico denominado EXONET el trámite de las solicitudes de exención de tributos para los beneficiarios de incentivos”, autoriza la Departamento de Gestión de Exenciones y a los órganos que recomienden el otorgamiento de exenciones ante la Administración Tributaria, la tramitación de las gestiones de exención mediante este Sistema.
+V.—Que el artículo 2 del Decreto Ejecutivo N° 31611 de fecha 07 de octubre de 2010, señala que el Sistema EXONET mantendrá a disposición de los usuarios un “Manual del Beneficiario” que describe los requisitos y pasos a seguir para el registro y trámites de las solicitudes de exención de tributos en el Sistema, por lo que resulta necesaria la oficialización y obligatoriedad de este manual y guía para todos los usuarios.
+VI.—Que el inciso b) del artículo 4 de la Ley Nº 8220 de fecha 04 de marzo de 2002, denominada “Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos”, se hace necesario dar publicidad a todo manuales nuevo que afecte a terceros. Por lo tanto,
+LA DIRECCIÓN GENERAL DE HACIENDA, ESTABLECE:
+“MANUAL Y GUÍA DEL BENEFICIARIO PARA
+EL SISTEMA DE EXONET”
+Artículo 1º—Alcances. El uso del “Manual y Guía del beneficiario para el sistema de EXONET” es de carácter obligatorio para todos los beneficiarios que tramiten exoneraciones ante el Departamento de Gestión de Exenciones, el cual está dirigido a entregar las pautas de operación del Sistema EXONET, con el fin de que el beneficiario pueda completar de manera ágil y efectiva los formularios de solicitud de exención, que para el efecto, están a disposición en la dirección electrónica http://www.hacienda.go.cr/ exenciones/exsolbnf.aspx?INS,0.
+(Nota de Sinalevi: Los formularios de solicitud de exención fueron descargados de la página Ministerio de Hacienda, y se transcriben a continuación:)
+[imagen]
+[imagen]
+[imagen]
