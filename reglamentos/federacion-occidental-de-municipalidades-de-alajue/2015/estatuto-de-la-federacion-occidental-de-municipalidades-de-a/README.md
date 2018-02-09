@@ -14,3 +14,4 @@ Estatuto de la Federación Occidental de Municipalidades de Alajuela (FEDOMA)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-12-01 | la propia norma |
+| 2 | 2018-02-09 | Reglamento 1 (2018-02-09) |

@@ -1,7 +1,8 @@
 TÍTULO II
-Estructura y atribuciones de los órganos de la federación
+ESTRUCTURA Y ATRIBUCIONES DE LOS ÓRGANOS
+DE LA FEDERACIÓN
 CAPÍTULO I
-De los órganos de la federación
+De los Órganos de la Federación
 Artículo 9º—La estructura orgánica de la Federación de Municipalidades queda definida de la siguiente forma:
 De los Órganos de Gobierno
 a) La Asamblea General.

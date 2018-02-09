@@ -1,5 +1,5 @@
 CAPÍTULO X
-Separación, disolución, afiliación y liquidación
+Separación, Disolución, Afiliación y Liquidación
 Artículo 47.—De la integración de nuevas Municipalidades. Para que una municipalidad se afilie, deberá cumplir con el siguiente procedimiento:
 - Contar con acuerdo de autorización del respectivo Concejo Municipal, adoptado con el voto de no menos de dos terceras partes de los Regidores.
 - Nombrar tres representantes a la Asamblea General, el Alcalde y dos Regidores.

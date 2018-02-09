@@ -1,5 +1,5 @@
 CAPÍTULO III
-Del consejo directivo
+Del Consejo Directivo
 Artículo 17.—Del Consejo Directivo. El Consejo Directivo estará integrado por todos los Alcaldes (as) en ejercicio en vista de que éstos ostentan la representación judicial y extrajudicial de la Municipalidad de conformidad con lo establecido en el Inciso n), Artículo 17 del Código Municipal y un 40% representantes de los Concejos Municipales designados en Asamblea General Ordinaria y Extraordinaria, los cuales deberán respectar la igualdad y equidad de género, para la conformación total del Consejo Directivo.
 Del seno del Consejo Directivo se conformará y nombrará una Junta Directiva que estará estructurada por un Presidente, Vicepresidente, Tesorero, Secretario y vocales; ocupando un puesto todos los integrantes de este Órgano Colegiado. Esta Junta Directiva será juramentada por el miembro de mayor edad presente del mismo.
-Esta Junta Directiva se nombrará en el mes de Mayo después de las elecciones de las Autoridades Municipales, y tendrá una vigencia de dos años calendario a partir de su nombramiento.
+Esta Junta Directiva se nombrará en el mes de mayo después de las elecciones de las Autoridades Municipales, y tendrá una vigencia de dos años calendario a partir de su nombramiento.

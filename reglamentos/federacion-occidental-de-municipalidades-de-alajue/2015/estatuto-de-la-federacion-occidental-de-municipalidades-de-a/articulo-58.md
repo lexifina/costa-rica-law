@@ -1,1 +1,1 @@
-Artículo 58.—Este Estatuto rige a partir de su publicación en el Diario Oficial La Gaceta, excepto la Reforma del Artículo 17, para respetar la elección de las nuevas autoridades. Esta Reforma al Artículo 17 se aplicará a partir de 1a mayo del 2016.
+Artículo 58.—Este Estatuto rige a partir de su publicación en el Diario Oficial La Gaceta, excepto la Reforma del Artículo 17, para respetar la elección de las nuevas autoridades. Esta Reforma al Artículo 17 se aplicará a partir de 1º mayo del 2016.
