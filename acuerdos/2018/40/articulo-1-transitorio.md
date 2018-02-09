@@ -1,0 +1,1 @@
+Transitorio 1º—La Presidencia Ejecutiva, ordenará se proceda a realizar inventario de las licencias autorizadas de pesca comercial, a efecto de brindar el debido proceso a aquellos casos de licencias de pesca que se hubiesen vencido y se determine la cancelación de las mismas.
