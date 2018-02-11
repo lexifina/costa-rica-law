@@ -1,0 +1,1 @@
+Transitorio III. La DIGECA en coordinación con el Ministerio ,de ·salud; deberá elaborar el Plan Nacional de Eliminación de PCB a que se refiere el artículo 15 de este reglamento, en los tres meses siguientes a la fecha de la entrada en vigencia de este Reglamento.

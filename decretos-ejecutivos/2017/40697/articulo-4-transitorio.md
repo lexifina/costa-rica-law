@@ -1,0 +1,1 @@
+Transitorio IV. En un plazo de cinco años contados a partir de la firma de este· decreto; se revisará este reglamento para ajustarlo a los nuevos requerimientos técnicos que se deriven de nuevas investigaciones científicas en procura de una mayor protección de la salud y el ambiente.

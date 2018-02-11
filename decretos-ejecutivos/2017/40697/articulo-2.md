@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. Este reglamento es aplicable para toda persona física o jurídica, pública o privada, que sea propietaria de equipos que contengan aceites dieléctricos y/ o aceites y residuos que contengan o estén contaminados con PCB.

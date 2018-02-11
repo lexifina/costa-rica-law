@@ -1,0 +1,1 @@
+Artículo 11º-Publicidad del inventario nacional de PCB. La DIGECA debe elaborar en forma anual un reporte del inventario nacional de PCB el cual podrá ser consultado a través del Sistema de Información de COP.

@@ -1,0 +1,1 @@
+Artículo 13º-Equipos descontaminados. Para el caso de equipos que han recibido un tratamiento de descontaminación o eliminación de PCB, el gestor autorizado responsable debe emitir un certificado de tratamiento respaldado con el resultado de análisis cromatográfico.

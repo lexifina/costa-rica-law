@@ -1,0 +1,1 @@
+Transitorio II. Las empresas distribuidoras de energía eléctrica, deben suministrar a la DIGECA la lista requerida en el artículo 6 de este Reglamento únicamente en los primeros cuatro años de vigencia de este reglamento.

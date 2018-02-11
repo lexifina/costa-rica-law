@@ -1,0 +1,28 @@
+Artículo 3º-Definiciones y abreviaturas. Para efectos de este reglamento se entenderá por:
+3.1. Aceites dieléctricos: aceite capaz de resistir un gradiente de potencial eléctrico, lo que le confiere propiedades aislantes.
+3.2. Análisis colorimétrico: análisis químico cualitativo, que permite identificar la presencia o no de PCB mediante la utilización de prueba o kit colorimétrico.
+3.3. Análisis cromatográfico: método analítico empleado para cuantificar compuestos mediante la separación física de las sustancias en una columna. Para la cuantificación de PCB se emplea la cromatografía de gases.
+3.4. Análisis semicuantitativo: ensayo analítico electroquímico de barrido, utilizadopara medir concentración de iones de cloruro y por ende la presencia o no de PCBen partes por millón en aceite dieléctrico.
+3.5. Bifenilos Policlorados: PCB por sus siglas en inglés. Son compuestos químicos que comprenden la molécula de bifenilo clorada de fórmula química C12H (10-n) Cln, cuyas propiedades dependen de la cantidad y posición de los átomos de cloro en la molécula.
+3.6. Contaminantes Orgánicos Persistentes (en adelante COP): sustancias orgánicas que poseen una combinación de propiedades físico-químicas que les permiten: a) mantenerse en el ambiente sin degradación durante períodos excepcionalmente largos; b) distribuirse a través del ambiente como resultado de los procesos naturales que ocurren en el suelo, agua y aire; c) acumularse en los tejidos grasos de organismos, incluyendo humanos, y aumentar en concentración a través de la cadena trófica; y d) presentar riesgos por toxicidad tanto a humanos como a la vida silvestre.
+3.7. DIGECA: Dirección de Gestión de Calidad Ambiental del Ministerio de Ambiente y Energía.
+3.8. Equipo: equipo industrial o eléctrico que utiliza aceite dieléctrico, tales como transformadores, capacitores, reconectores y reguladores.
+3.9. Equipo libre de PCB: aquellos equipos que su aceite no contiene PCB.
+3.10. Equipo que contiene PCB: equipo industrial o eléctrico, que utiliza aceite con PCB en su operación.
+3.11. Equipo contaminado con PCB: equipo eléctrico que utiliza aceite dieléctrico el cual fue contaminado con aceite PCB en operaciones de toma de muestra, regeneración, filtración, mantenimiento o reparación de transformadores. La concentración de PCB en estos equipos es igual o mayor a 50 mg/kg.
+3.12. Equipo o residuo NO PCB: aquellos equipos o residuos en los cuales se certifique que presentan concentraciones de PCB menor de 50 mg/kg.
+3.13. Equipo o residuo que puede contener PCB: aquellos equipos o residuos que por sus características o por el resultado positivo del análisis colorimétrico o semicuantitativo, se presume del contenido de PCB en concentraciones iguales o mayores a 50 mg/kg y por lo tanto deberá almacenarse según la normativa vigente en espera del resultado confirmatorio del análisis cromatográfico.
+3.14. Equipo con placa: equipo que cuenta con la información de su fabricante y sus características técnicas básicas, impresas en una lámina metálica o plástica adherida al equipo.
+3.15. Equipo sin placa: equipo que no cuenta con la información de su fabricante y sus características, impresas en una lámina metálica o plástica adherida al equipo. Se considerará equipo sin placa el que tenga una placa ilegible.
+3.16. Equipo con doble placa: equipo que tiene la placa original del fabricante y posteriormente por reconstrucción tiene una segunda placa.
+3.17. Gestor Autorizado: persona física o jurídica, pública o privada o de economía mixta, dedicada al manejo total o parcial de los residuos, que se encuentra registrada como gestor autorizado ante el Ministerio de Salud.
+3.18. Inventario total de equipos: es la identificación de todos los equipos en uso o desuso que utilizan aceites dieléctricos y su caracterización.
+3.19. Inventario de equipos y residuos contaminados con PCB: es la identificación y caracterización de equipos y residuos contaminados con PCB.
+3.20. MINAE: Ministerio de Ambiente y Energía.
+3.21. mg/kg: nomenclatura que se refiere a miligramo por kilogramo.
+3.22. MS: Ministerio de Salud.
+3.23. Persona propietaria: cualquier persona física o jurídica, pública o privada, poseedora y/o usuaria de equipos que contengan aceites dieléctricos, aceites o residuos que contengan o estén contaminados con PCB. Esta definición excluye a los importadores o comercializadores, gestores y talleres de mantenimiento de equipos y aceites dieléctricos, siempre y cuando no sean usuarios de éstos.
+3.24. Residuo contaminado con PCB: todos aquellos residuos en cualquier estado físico que contengan PCB en una concentración igual o mayor a 50 mg/kg, así como cualquier material que entre en contacto directo con PCB en alguna actividad, incluida la ropa de trabajo, solventes que se utilizan en la limpieza de herramientas y equipo de trabajo contaminado con PCB.
+3.25. Sistema de Información de COP: es un sistema de información creado y administrado por DIGECA con el objetivo de controlar el inventario total de equipos e inventario de equipos y residuos contaminados con PCB de las personas propietarias. Está disponible en el sitito web de la DIGECA y se accede al sistema en línea de forma restringida.
+3.26. Tratamiento de PCB: conjunto de operaciones, procesos o técnicas mediante las cuales se disminuye o elimina el grado de contaminación de los equipos y residuos que contienen PCB, a fin de que cumplan con los límites establecidos en este reglamento.
+3.27. Usuarios de equipos y aceites dieléctricos: persona física o jurídica, pública o privada que emplea continua y habitualmente equipos y aceites dieléctricos.

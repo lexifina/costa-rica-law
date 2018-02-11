@@ -1,0 +1,17 @@
+Nº 40697-MINAE-S
+EL PRESIDENTE DE LA REPÚBLICA, EL MINISTRO DE AMBIENTE Y
+ENERGÍA Y LA MINISTRA DE SALUD
+En uso de las facultades que les confieren los artículos 21, 50, 140, incisos 3) y 18) de la Constitución Política; artículos 25 inciso l), 27 inciso l), y 28 inciso 2 acápite b) de la Ley Nº 6227 de 2 de mayo de 1978, Ley General de la Administración Pública; artículos 1, 2, 239, 241, 252, 262, 263, y 345, inciso 7) de la Ley Nº 5395 del 30 de octubre de 1973, Ley General de Salud; artículos 1 y 2 inciso b) de la Ley N° 5412 del 8 de noviembre de 1973 “Ley Orgánica del Ministerio de Salud” artículos 60, 61, 68 y 69 de la Ley Nº 7554 de 4 de octubre de 1995, Ley Orgánica del Ambiente; artículos 5, incisos a) y c), 32, 43 y 44 de la Ley Nº 8839 del 24 de junio del 2010, Ley para la Gestión Integral de Residuos; artículo 1 de la Ley Nº 8538 de 23 de agosto de 2006, Aprobación del Convenio de Estocolmo sobre Contaminantes Orgánicos Persistentes y el artículo 1 de Decreto Ejecutivo Nº 33438 del 6 de noviembre de 2006, Ratificación de la República de Costa Rica al Convenio de Estocolmo sobre Contaminantes Orgánicos Persistentes.
+Considerando:
+1º- Que la salud de la población es un bien de interés público tutelado por el Estado, por lo que es potestad del Ministerio de Salud velar por la salud de la población y de las condiciones sanitarias y ambientales.
+2º- Que es deber del Estado adoptar las medidas que sean necesarias para prevenir o corregir la contaminación ambiental, por lo que es potestad del Ministerio de Salud y el Ministerio de Ambiente y Energía prevenir o solicitar las acciones correctivas para disminuir cualquier contaminación, alteración o modificación del ambiente que pueda atentar contra la salud de la población, los recursos naturales o afectar el ambiente.
+3º- Que los aceites, equipos y residuos contaminados con Bifenilos Policlorados pueden afectar el ambiente y la salud de las personas por sus características de persistencia, toxicidad y bioacumulación.
+4º- Que mediante Ley N° 8538 de 23 de agosto de 2006, Costa Rica aprobó el Convenio de Estocolmo sobre contaminantes orgánicos persistentes, por lo que el país adquirió la obligación de elaborar estrategias apropiadas para determinar las existencias de compuestos orgánicos persistentes, como los Bifenilos Policlorados y gestionarlas de manera segura, eficaz y ambientalmente racional. Por lo tanto, el país debe adoptar las medidas para que esos compuestos, incluidos los productos y artículos que los contengan, cuando se conviertan en residuos, se gestionen conforme a la normativa vigente.
+5º- Que de conformidad con el Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo Nº 37045-MPMEIC y sus reformas, la presente propuesta cumple con los principios de mejora regulatoria según el informe positivo DMR-DAR-INF-005-16 del 07 de octubre de 2016, emitido por el Departamento de Análisis Regulatorio de la Dirección de Mejora Regulatoria del MEIC.
+Por tanto,
+Decretan:
+Reglamento para la identificación y eliminación ambientalmente segura de los
+Bifenilos Policlorados
+CAPITULO 1
+Disposiciones Generales
+Artículo 1º-Objeto. Este reglamento tiene como objeto establecer los lineamientos para la identificación y eliminación ambientalmente segura de los Bifenilos Policlorados (PCB por sus siglas en inglés) presentes en los aceites dieléctricos y/ o aceites, equipos y residuos que contengan o estén contaminados con PCB con el fin de proteger el ambiente y la salud de las personas.
