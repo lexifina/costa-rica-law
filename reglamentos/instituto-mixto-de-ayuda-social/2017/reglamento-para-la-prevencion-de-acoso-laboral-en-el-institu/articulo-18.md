@@ -1,0 +1,7 @@
+Capítulo III:
+Del inicio del Procedimiento y conformación del órgano director del procedimiento.
+Artículo 18: Normativa aplicable: Todo el procedimiento administrativo se realizará bajo las regulaciones que establece la Ley General de la Administración Pública en su Libro Segundo, concretamente en cuanto al Procedimiento Ordinario.
+Los Convenios No. 100 y 111 de la Organización Internacional del Trabajo, así como el artículo 3 del Protocolo Adicional a la Convención Americana de Derechos Humanos en materia de Derechos Económicos, Sociales y Culturales.
+Aunado a ello, también serán aplicables las reglas sobre “Prohibición de discriminar”, establecidas en los artículos 404 al 410 del Código de Trabajo, artículos 476 a 486 del Código de Trabajo, en cuanto a la carga probatoria, 414 y 415, para definir los plazos de caducidad y prescripción del procedimiento artículos y los 682 al 687 de este mismo cuerpo normativo, en cuanto a la regulación especial establecida para los servidores del Estado y sus Instituciones.
+El Órgano Director del Procedimiento Administrativo deberá aplicar tanto la normativa indicada en el párrafo anterior y también lo que regula el presente reglamento y los cuerpos normativos que a lo interno y externo regulan concordantemente la materia.
+Finalmente, deberá ser tomado en consideración la jurisprudencia de los Tribunales de Justicia especializados en la materia.

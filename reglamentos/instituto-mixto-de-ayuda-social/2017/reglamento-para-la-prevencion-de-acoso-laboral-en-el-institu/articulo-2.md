@@ -1,0 +1,2 @@
+Artículo 2: Del Ámbito de aplicación: Este reglamento regula los procedimientos de prevención y sanciones de conductas y situaciones que constituyan acoso laboral en todas las relaciones de empleo que tienen las personas trabajadoras del Instituto Mixto de Ayuda Social, su aplicación incluye también a las personas que trabajan en las posiciones de confianza y del Consejo Directivo.
+Será de obligatoria observancia de todos los jerarcas, titulares subordinados y todas las personas trabajadoras del IMAS, el cumplimiento del presente reglamento.

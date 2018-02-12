@@ -1,0 +1,1 @@
+Artículo 40: De la comunicación de la resolución final: Una vez firme la resolución final que se dicte en el respectivo procedimiento disciplinario, será la Gerencia General, la que comunicará mediante copia a la Unidad de Desarrollo Humano con el fin de que se incluya en el respectivo expediente.

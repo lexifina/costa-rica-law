@@ -1,0 +1,1 @@
+Artículo 30: Del inicio e impulso procesal de oficio: El procedimiento disciplinario iniciará con la resolución de apertura, y las partes lo impulsarán salvo en los casos de trámites o audiencias que deba realizar el Órgano Director del Procedimiento Administrativo.

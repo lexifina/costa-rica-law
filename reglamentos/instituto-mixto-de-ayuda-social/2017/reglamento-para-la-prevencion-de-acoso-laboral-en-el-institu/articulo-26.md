@@ -1,0 +1,1 @@
+Artículo 26: Plazo para interponer la denuncia: El plazo para interponer la denuncia será de dos años y se computará a partir del último hecho consecuencia del acoso laboral o a partir de que cesó la causa justificada que le impidió a la persona denunciar.

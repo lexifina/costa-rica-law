@@ -1,0 +1,1 @@
+Artículo 20: Del nombramiento del Órgano Director de Procedimiento: El Órgano será colegiado y estará integrado por tres personas, una de las cuales, al menos, será de la Asesoría Jurídica y la persona que tenga a cargo el Órgano Director del Procedimiento siempre será el que presida.

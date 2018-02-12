@@ -1,0 +1,1 @@
+Artículo 37: De la prueba para mejor resolver: En cualquier fase del procedimiento, el Órgano Director podrá ordenar la práctica o el recibido de cualquier prueba pertinente y útil, o la ampliación de la que existe siempre que sea esencial al resultado de la investigación. El Órgano Director dará audiencia de esa prueba a las partes.

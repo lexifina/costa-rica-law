@@ -1,0 +1,1 @@
+Artículo 33: Del interrogatorio de las personas que fungen como testigos: Las personas testigos serán interrogados únicamente en relación con los hechos sobre los que versa la denuncia y nunca podrá versar sobre los antecedentes de la persona denunciante o de la persona denunciada.
