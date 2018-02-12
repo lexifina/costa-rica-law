@@ -1,2 +1,0 @@
-Artículo 15- Asistencia
-Para cada sesión que celebre la Comisión, se levantará un registro de asistencia, sobre la base de las convocatorias formuladas por el Coordinador General. En ese registro los asistentes deberán consignar su firma.

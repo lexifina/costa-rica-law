@@ -1,2 +1,0 @@
-Artículo 14.- Carácter de las sesiones
-Las sesiones de la Comisión serán siempre privadas, sin embargo la Comisión, por mayoría simple de sus miembros presentes, podrá acordar que para ciertos casos, se permita el acceso a representantes de otras entidades, instituciones, organizaciones o empresas públicas o privadas cuya labor guarde relación con las acciones, actividades, iniciativas, planes y proyectos que puedan contribuir al mejor desempeño del quehacer de la Comisión.
