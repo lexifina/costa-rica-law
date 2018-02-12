@@ -1,0 +1,1 @@
+Artículo 4º. Otros Fines. El plus salarial de disponibilidad no puede ser reputado como aumento salarial, ni servir como base de cálculo de complementos salariales, ni tampoco para aumentar el salario base.

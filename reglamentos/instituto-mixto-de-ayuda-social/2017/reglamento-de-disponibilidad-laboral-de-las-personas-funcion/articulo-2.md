@@ -1,0 +1,1 @@
+Artículo 2º. Marco legal. Este reglamento se fundamenta en los artículos 57 y 188 de la Constitución Política, así como los preceptos legales contemplados en el Código de Trabajo y el Reglamento Autónomo de Servicios del IMAS.

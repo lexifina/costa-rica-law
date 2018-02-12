@@ -1,0 +1,1 @@
+Artículo 20°. De las excepciones: Por causa justificada la persona funcionaria podrá solicitar en forma previa la no disponibilidad en cierto horario, en cuyo caso el superior jerárquico de éste determinará la posibilidad de acceder a dicha petición, comunicando su decisión en forma escrita tanto al tanto a la persona solicitante como a Desarrollo Humano.

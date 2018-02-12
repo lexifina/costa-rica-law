@@ -1,0 +1,1 @@
+Artículo 15°. De los recursos: Contra las resoluciones de Desarrollo Humano podrán formularse los recursos ordinarios de revocatoria y apelación en los términos contenidos en la Ley General de la Administración Pública, el recurso de revocatoria será resuelto por Desarrollo Humano y el de apelación será conocido y resuelto por la Gerencia General del IMAS.

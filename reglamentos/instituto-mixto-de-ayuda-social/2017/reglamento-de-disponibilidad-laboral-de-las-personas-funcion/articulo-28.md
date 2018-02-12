@@ -1,0 +1,1 @@
+Artículo 28°. De la aprobación: El presente Reglamento fue aprobado por acuerdo firme de Consejo Directivo, N° 346-08-2017, Artículo Cuarto del Acta N° 52-08-2017 de fecha 21 de agosto de 2017, y oficio STAP-1956-2017.
