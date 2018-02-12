@@ -1,1 +1,0 @@
-Transitorio I.—Los funcionarios que ocupan plazas de la Presidencia de la República, Programa Administración Superior, identificadas mediante el STAP-0582-08 del 31 de marzo 2008 que se encuentran asignados a la Secretaría de Gobierno Digital, ocuparán sus puestos hasta el 30 de junio del 2009, fecha máxima en la que el ICE los incorporará dentro de su relación de puestos.
