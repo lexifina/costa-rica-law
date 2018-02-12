@@ -1,3 +1,0 @@
-CAPITULO II
-FUNCIONES DEL DEPARTAMENTO DE INGENIERÍA
-Artículo II.—Es atribución u obligación del Departamento de Ingeniería crear e implementar los mecanismos y controles necesarios para que todas las construcciones que se lleven a cabo en cualquier lugar del cantón central de Heredia, reúnan las condiciones necesarias de seguridad, salubridad, comodidad y belleza, sin perjuicio de las facultades que las leyes concedan en estas materias a oíros órganos administrativos. Además de lo anterior, entre sus atribuciones, debe de recibir solicitud de cualquier propietario en el cantón para cumplir con la obligatoriedad de tener Permiso de Construcción Municipal para cualquier obra que pretenda realizar.
