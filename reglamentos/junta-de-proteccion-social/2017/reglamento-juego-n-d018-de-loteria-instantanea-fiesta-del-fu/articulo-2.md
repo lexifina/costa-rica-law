@@ -1,0 +1,2 @@
+Artículo N° 2: Restricciones
+No podrán participar los miembros de Junta Directiva, Gerente General, Gerente de Producción y Comercialización, Gerente Financiero Administrativo, el personal de las instancias asesoras (Auditoria Interna y Asesoría Jurídica), los fiscalizadores de los sorteos y las Jefaturas de las unidades administrativas de: Mercadeo, Pago de Premios, Administración de Loterías, Sorteos y Tecnologías de Información.

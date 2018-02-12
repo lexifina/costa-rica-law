@@ -1,0 +1,1 @@
+Artículo N°12: Se aprueba el presente reglamento según acuerdo de Junta Directiva JD-1338, correspondiente al artículo V), inciso 5) de la sesión ordinaria No. 49-2017 celebrada el día 21 de diciembre de 2017.

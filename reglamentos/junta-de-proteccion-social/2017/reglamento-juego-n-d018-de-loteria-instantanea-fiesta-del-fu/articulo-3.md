@@ -1,0 +1,1 @@
+Artículo Nº 3: Mecánica de Juego. El boleto presenta dos estilos de juego: 1. Raspar toda el área de juego, si una misma cantidad se repite tres veces, gana esa cantidad. 2. Raspar toda el área de juego, si una misma cantidad se repite tres veces, gana esa cantidad. Si encuentra tres veces el símbolo TROFEO, se gana un viaje para dos personas a Rusia.
