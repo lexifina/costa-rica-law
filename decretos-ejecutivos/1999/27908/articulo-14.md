@@ -1,3 +1,0 @@
-Artículo 14.—Objetivos y funciones de los Consejos Regionales de Desarrollo Sostenible. Los Consejos Regionales de Desarrollo Sostenible tendrán a nivel regional los mismos objetivos y funciones que el CONADES.
-Cada Consejo Regional de Desarrollo Sostenible deberá tener un representante y un suplente elegidos por sus integrantes, quien tendrá a nivel regional las mismas funciones que el Comité Directivo.
-Los Consejos Regionales podrán surgir de otras iniciativas ya existentes a nivel regional con objetivos y funciones similares, para lo cual el CONADES promoverá su unificación en los citados Consejos.
