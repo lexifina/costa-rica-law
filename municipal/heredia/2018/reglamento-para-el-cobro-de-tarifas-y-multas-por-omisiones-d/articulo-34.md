@@ -1,0 +1,1 @@
+Artículo 34 — Limpieza y cercado de predios. Las personas físicas o jurídicas, propietarias o poseedoras, por cualquier título de bienes inmuebles, deberán mantener los predio cercados, limpios de maleza, objetos, deshechos o materiales contaminantes.

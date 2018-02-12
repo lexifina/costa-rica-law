@@ -1,0 +1,1 @@
+Artículo 22 — Ancho de la Acera: El ancho de la acera lo establecerá la Municipalidad en la notificación correspondiente, conforme al estudio técnico respectivo realizado. En ningún caso del ancho mínimo podrá ser menor a 1.50 m. El ancho recomendado será de 2,50 metros.

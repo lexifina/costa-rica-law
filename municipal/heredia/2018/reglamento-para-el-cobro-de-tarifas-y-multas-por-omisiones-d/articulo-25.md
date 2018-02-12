@@ -1,0 +1,1 @@
+Artículo 25 —Las cajas, los registros, medidores del AyA, ESPH, CNFL o cualquier otro dispositivo en las aceras, no deben sobrepasar o estar inferiores al nivel final de la acera y deberán tener respectiva tapa.
