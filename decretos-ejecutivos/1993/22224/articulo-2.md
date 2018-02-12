@@ -1,1 +1,0 @@
-Artículo 2°— La Comisión estará integrada por los Ministros de la Presidencia , de Planificación Nacional y Política Económica, quien la presidirá, y de Hacienda, quienes podrán designar representantes.

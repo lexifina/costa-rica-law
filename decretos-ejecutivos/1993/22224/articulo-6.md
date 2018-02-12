@@ -1,1 +1,0 @@
-Artículo 6°—Las instituciones y empresas beneficiarías deberán suscribir con las empresas españolas seleccionadas por la Comisión Contratos Comerciales condicionados a la aprobación y formalización de los créditos, por ser requisito dispuesto por las autoridades españolas para la concesión de los mismos.

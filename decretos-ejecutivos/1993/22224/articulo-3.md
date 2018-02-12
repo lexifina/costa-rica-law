@@ -1,8 +1,0 @@
-Artículo 3°—Serán funciones de la Comisión :
-a) Informar y difundir las alternativas y condiciones de crédito que propone el "Programa Global de Cooperación Económica y Financiera entre la República de Costa Rica y el Reino de España".
-b) Definir las instituciones y empresas del Sector Productivo Costarricense que serán objeto de financiamiento bajo la modalidad de créditos para equipamiento del sector, en conformidad con las políticas nacionales de apoyo a la producción.
-c) Coordinar entre las instituciones y empresas beneficiarias y las autoridades nacionales competentes los trámites y gestiones necesarios para la autorización de los créditos externos, en observancia de las disposiciones legales vigentes.
-e) Coordinar entre las instituciones y empresas nacionales beneficiadas y las autoridades españolas competentes los trámites y gestiones necesarios para la formalización de los créditos, en concordancia con las disposiciones legales correspondientes.
-f) Practicar convocatorias que faculten ampliamente la participación de empresas españolas exportadoras de bienes y servicios, interesadas en los programas o proyectos de desarrollo definidos para cada financiamiento.
-g) Seleccionar las empresas españolas exportadoras que intervendrán en los programas o proyectos de desarrollo definidos para cada financiamiento, y
-h) Realizar todas las gestiones que sean necesarias para la realización del "Programa Global de Cooperación Económica y Financiera entre la República de Costa Rica y el Reino de España", manteniendo relaciones con las autoridades nacionales y españolas para asegurar su ejecución oportuna.
