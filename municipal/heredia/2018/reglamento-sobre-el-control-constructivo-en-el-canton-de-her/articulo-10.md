@@ -1,0 +1,1 @@
+Artículo 10 — Inspección de obras civiles. La inspección, seguimiento y fiscalización de todas las obras civiles que se desarrollen en el cantón de Heredia estará a cargo de los inspectores municipales de Control Fiscal y Urbano, quienes aplicaran las sanciones correspondientes en la ley.

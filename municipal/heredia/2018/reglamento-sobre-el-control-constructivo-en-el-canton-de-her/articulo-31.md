@@ -1,0 +1,1 @@
+Artículo 31 — Discrepancia: En caso de existir discrepancia de criterio técnico entre Control Fiscal y Fiscal y Desarrollo Territorial, privara lo determinado por Control Fiscal y Urbano al ser un tema de fiscalización, seguimiento y proceso administrativo de Control Fiscal y Urbano, no de autorización de licencia municipal.

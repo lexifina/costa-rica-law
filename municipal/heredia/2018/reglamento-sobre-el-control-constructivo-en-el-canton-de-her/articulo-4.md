@@ -1,0 +1,1 @@
+Artículo 4 — Aplicación. Las disposiciones de este reglamento son de aplicación obligatoria para todas las construcciones que se realicen dentro del cantón de Heredia y su ejecución estará a cargo de Control Fiscal y Urbano.
