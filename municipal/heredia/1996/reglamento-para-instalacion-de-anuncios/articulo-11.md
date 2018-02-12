@@ -1,2 +1,0 @@
-ANUNCIOS LUMINOSOS
-Artículo 11.-Los anuncios luminosos deben ser de materiales apropiados, artísticos y luminosos convenientemente. En estos anuncios o en los que se usen espejos, no se permitirá el deslumbrar, dañar o simplemente molestar la vista a las personas. Se prohíben reflejos o concentraciones de luz intensos, las alternativas de luz y oscuridad absoluta y los contrastes perjudiciales de colores vivos. La variación en la iluminación de los anuncios que tengan cambios de luz, no será mayor del 50% en las arterias comerciales y del 33% en las demás vías.
