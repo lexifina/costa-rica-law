@@ -1,1 +1,0 @@
-Artículo 8°—Sesiones. El Consejo sesionará al menos una vez semestralmente o cuando por caso de fuerza mayor así se requiera, previamente convocado por el Director Ejecutivo. Adicionalmente el quorum deberá ser mayor a la mitad más uno para poder sesionar válidamente, así como la cantidad de votos para tomar acuerdos será de la mitad más uno de los presentes.

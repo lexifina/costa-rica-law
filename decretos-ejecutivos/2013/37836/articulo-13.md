@@ -1,1 +1,0 @@
-Artículo 13.—Normas Supletorias. En lo no contemplado en este Decreto Ejecutivo, el Consejo de Competitividad y sus instancias organizativas, se regirán por las disposiciones que regulan a los Órganos Colegiados, contenidas en la Ley General de la Administración Pública, Ley N° 6227.
