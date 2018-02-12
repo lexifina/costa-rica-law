@@ -1,1 +1,0 @@
-Artículo 11.—Derogaciones. Se deroga el Decreto Ejecutivo Nº 30627-P- MEIC- MICIT- COMEX -MAG- MTSS- MOPT-TURMIDEPLAN- CE del 19 de agosto de 2002, publicado en el Diario Oficial La Gaceta Nº 163 del 27 de agosto de 2002.
