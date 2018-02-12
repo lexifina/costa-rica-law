@@ -1,1 +1,0 @@
-Artículo 4°—En el plazo de cuarenta y cinco (45) días hábiles a partir de su conformación, la Comisión deberá establecer tanto las acciones transitorias inmediatas que son necesarias para la agilización del proceso de revisión y aprobación de planes reguladores, como aquellas dirigidas a generar una solución integral a la parálisis e inseguridad jurídica existente en el tema.
