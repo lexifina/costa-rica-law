@@ -1,0 +1,2 @@
+Artículo 3°. RESPONSABILIDAD DE APLICACIÓN DEL REGLAMENTO. Las disposiciones del presente Reglamento serán aplicables a todos los procedimientos de adquisición de bienes y servicios, así como para el reconocimiento de viáticos y gastos de transporte.
+El Área de Administración Financiera se encargará de velar por el cumplimiento del presente Reglamento. Así mismo, se indica las responsabilidades de las Unidades Administrativas y funcionariado que interviene en cada una de las actividades administrativas necesarias para el cumplimiento del objeto del procedimiento.

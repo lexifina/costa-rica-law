@@ -1,0 +1,1 @@
+Artículo 38°. DE LOS DOCUMENTOS RESPALDO. Debe presentar las facturas, facturas electrónicas, tiquetes y los formularios que se establezcan en el Manual de Procedimientos para la Administración y uso de los Fondos Fijos Institucionales, así como las justificaciones expresas solicitadas en este Reglamento.

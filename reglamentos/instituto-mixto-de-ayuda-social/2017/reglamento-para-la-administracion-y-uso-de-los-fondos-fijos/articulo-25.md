@@ -1,0 +1,2 @@
+Artículo 25°. DEL RECONOCIMIENTO DE VIÁTICOS EN DÍAS FERIADOS, SÁBADOS Y DOMINGOS. Los Adelantos de Caja Chica y las liquidaciones de viáticos, que incluyan días feriados, sábados y domingos, deberán contener una justificación expresa.
+Se exceptúa de lo indicado en este artículo a las personas trabajadoras de Empresas Comerciales que en virtud de su horario particular deben laborar sábados, domingos y feriados.

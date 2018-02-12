@@ -1,0 +1,1 @@
+Artículo 8º. DE LA METODOLOGÍA DEL GIRO. Corresponde a la Jefatura del Área de Administración Financiera definir la metodología de giro que se utilizará para la entrega del dinero por concepto de Adelantos a las personas funcionarias, para tal fin aprovechará los avances tecnológicos del momento.

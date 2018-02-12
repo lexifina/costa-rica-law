@@ -1,0 +1,1 @@
+Artículo 9º. DEL MONTO MÁXIMO DEL ADELANTO DE CAJA CHICA. Corresponde a la Jefatura del Área de Administración Financiera, definir la suma máxima de dinero que se puede adelantar para realizar la adquisición de bienes y servicioso reconocimiento de viáticos. Dichas sumas y sus montos deberán ser sometidos a la valoración y aprobación de la Subgerencia de Soporte Administrativo.

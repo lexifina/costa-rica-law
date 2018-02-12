@@ -1,0 +1,1 @@
+Artículo 18°. DE LOS EXCESOS EN EL GASTOS PARA ADQUISICIÓN DE BIENES Y SERVICIOS. Ninguna persona funcionaria del Instituto Mixto de Ayuda Social, persona trabajadora de las Empresas Comerciales y a las personas funcionarias de los órganos adscritos al Instituto Mixto de Ayuda Social, podrán excederse en el gasto, con respecto al monto máxima autorizado del Fondo Fijo.

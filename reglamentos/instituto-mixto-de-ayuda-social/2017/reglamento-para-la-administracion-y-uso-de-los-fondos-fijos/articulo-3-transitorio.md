@@ -1,0 +1,2 @@
+Transitorio III. Hasta que la Institución cuente con la infraestructura tecnológica que permita el efectivo control y custodia de los documentos electrónicos, se continuará aplicando la metodología vigente de utilizar los documentos físicos. Una vez que se disponga de dicha infraestructura tecnológica, todas las aprobaciones serán digitales y los documentos electrónicos serán firmados digitalmente, cuando así se requiera.
+El presente Reglamento fue aprobado mediante acuerdo Consejo Directivo Nº 564-12-2017, Acta 81-12-2017, de fecha 04 de Diciembre del 2017.

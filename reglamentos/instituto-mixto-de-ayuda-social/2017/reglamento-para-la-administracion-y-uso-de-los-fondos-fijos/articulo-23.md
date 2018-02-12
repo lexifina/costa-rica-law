@@ -1,0 +1,1 @@
+Artículo 23°. AUTORIZACIÓN DE ADELANTOS PARA MÁS DE UNA GIRA: El titular subordinado o quien éste haya designado formalmente, podrá autorizar un Adelanto para más de una gira, siempre que el período que cubre el adelanto no exceda los quince días hábiles; todo conforme a la programación previamente establecida.

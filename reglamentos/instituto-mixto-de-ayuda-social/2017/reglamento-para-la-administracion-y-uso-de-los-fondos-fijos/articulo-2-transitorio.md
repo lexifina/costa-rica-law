@@ -1,0 +1,1 @@
+Transitorio II. El Manual de Procedimientos de este Reglamento deberá ser modificado por el Área de Administración Financiera y remitido a la Subgerencia de Soporte Administrativo y Gerencia General para su revisión, valoración y posterior aprobación.

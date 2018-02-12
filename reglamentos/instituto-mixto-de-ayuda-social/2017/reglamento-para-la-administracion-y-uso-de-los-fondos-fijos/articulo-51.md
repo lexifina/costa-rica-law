@@ -1,0 +1,2 @@
+Artículo 51°. DEL CONTROL, VERIFICACIÓN Y RESPONSABILIDAD EN EL USO DE LOS RECURSOS MEDIANTE ADELANTOS. Las personas Titulares Subordinados de las Unidades Ejecutoras que aprueben el uso del Fondo Fijo son responsables de verificar y controlar que el adelanto cumpla con las regulaciones establecidas en el presente Reglamento y demás normativa aplicable.
+La información consignada en la justificación expresa y liquidación de viáticos tiene carácter de declaración jurada. En el caso de compras de bienes y servicios debe indicar que no existe fragmentación.

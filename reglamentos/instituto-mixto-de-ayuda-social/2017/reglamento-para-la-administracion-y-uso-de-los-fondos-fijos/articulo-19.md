@@ -1,0 +1,1 @@
+Artículo 19°. DEL NO RECONOCIMIENTO DE GASTOS PARA LA ADQUISICIÓN DE BIENES Y SERVICIOS SIN ADELANTO. Sin excepción, en la adquisición de bienes y servicios no se reconocerán gastos por medio de Caja Chica, cuando no se haya gestionado el respectivo Adelanto.

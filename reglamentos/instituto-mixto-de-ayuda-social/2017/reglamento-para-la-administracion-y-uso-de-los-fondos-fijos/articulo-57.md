@@ -1,0 +1,1 @@
+Artículo 57°. DE LA UNIDAD DE PRESUPUESTO. La Unidad de Presupuesto es responsable de supervisar que las transacciones realizadas al amparo del presente Reglamento, se ejecuten apegadas a las disposiciones y procedimientos vigentes en materia de ejecución presupuestaria y de asesorar en su competencia a las personas Administradoras de los fondos fijos institucionales.

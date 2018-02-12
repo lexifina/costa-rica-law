@@ -1,0 +1,2 @@
+Artículo 2º. ALCANCE El presente Reglamento es aplicable a las personas funcionarias del Instituto Mixto de Ayuda Social, personas trabajadoras de las Empresas Comerciales y a las personas funcionarias de los órganos adscritos al Instituto Mixto de Ayuda Social.
+Los Fondos Fijos se usarán únicamente para Adelantos que se realicen para la adquisición de bienes y servicios, así como para el reconocimiento de viáticos y gastos de transporte, que estén en estricto apego a las regulaciones contenidas en el Reglamento de gastos de viaje y las contenidas en este Reglamento.

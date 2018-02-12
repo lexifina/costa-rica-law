@@ -1,0 +1,2 @@
+Artículo 16°. DEL MONTO AUTORIZADO PARA CUBRIR UNA NECESIDAD URGENTE O REPARACION MENOR: El artículo anterior aplica para erogaciones superiores al monto máximo autorizado de un adelanto para la adquisición de bienes y servicios, según artículo 8. El monto máximo autorizado para este tipo de erogaciones será referenciado al establecido en al artículo 2 de la Ley 7337 y al artículo 23 de la Ley N°7092.
+El monto máximo final autorizado para este tipo de erogaciones será definido por el Área de Administración Financiera y aprobado por la Subgerencia de Soporte Administrativo.

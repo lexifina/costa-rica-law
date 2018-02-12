@@ -1,0 +1,1 @@
+Artículo 35°. DE LAS EXCEPCIONES A LOS PLAZOS DE LIQUIDACIÓN. Se exceptúan del artículo anterior, aquellos casos en los que la persona funcionaria del Instituto Mixto de Ayuda Social, persona trabajadora de empresas comerciales o persona funcionaria de los órganos adscritos solicitante, cuente con una incapacidad médica o un documento probatorio de la ausencia.

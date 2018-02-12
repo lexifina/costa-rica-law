@@ -1,0 +1,1 @@
+Artículo 41°. DE LAS FECHAS DE LAS FACTURAS. Las facturas o los comprobantes y en general todos los documentos que respalden la liquidación de un Adelanto, no deben tener fecha anterior a la del recibido del dinero adelantado.

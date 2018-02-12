@@ -1,0 +1,1 @@
+Artículo 42°. DEL TIPO DE MONEDA. En el caso de los proveedores tengan los precios establecidos en otro tipo de moneda que no sea la moneda de curso legal vigente (colones costarricenses) se les debe solicitar que indiquen al dorso de la factura el tipo de cambio aplicado y/o el importe en colones.

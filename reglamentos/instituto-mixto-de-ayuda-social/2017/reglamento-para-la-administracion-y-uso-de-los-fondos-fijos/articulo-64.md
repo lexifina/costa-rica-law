@@ -1,0 +1,1 @@
+Artículo 64°. DE LAS DEROGACIONES. A partir de la entrada en vigencia del presente Reglamento, queda derogado el “Reglamento para la Administración y uso de los Fondos Fijos Institucionales”, publicado en el Alcance Digital N° 39 del jueves 10 marzo del 2016 y sus reformas; así como toda normativa interna de igual o menor rango que se le contraponga.
