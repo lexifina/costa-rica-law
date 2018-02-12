@@ -1,0 +1,1 @@
+Artículo 33. Durante las labores de demolición debe garantizarse la seguridad de las personas trabajadoras con respecto al riesgo de caídas, tanto individual como colectivamente, por el desprendimiento de materiales.

@@ -1,0 +1,1 @@
+Artículo 129. Se debe verificar que las gafas, monogafas y caretas de seguridad cumplan con el presente reglamento, la norma INTE 31-01-01: Buenas prácticas para la selección y el uso de equipos de protección ocular y facial, en su versión vigente y el anexo 3 del presente reglamento.

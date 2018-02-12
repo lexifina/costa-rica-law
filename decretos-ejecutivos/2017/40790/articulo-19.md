@@ -1,0 +1,1 @@
+Artículo 19. Se debe disponer de una alarma sonora y luminosa para alertar la proximidad del inicio de las explosiones y debe informarse al personal sobre la existencia de esta y que conozcan el sonido que emitirá.

@@ -1,0 +1,1 @@
+Artículo 132. Las personas trabajadoras que realicen labores de soldadura deben utilizar equipo de protección respiratoria. Como mínimo un respirador con carbón activado y filtro para partículas según norma NIOSH vigente para medios filtrantes no motorizados.

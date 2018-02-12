@@ -1,0 +1,1 @@
+Artículo 160. Debe de utilizarse un sistema de posicionamiento en operaciones donde la Persona Trabajadora requiera el uso de ambas manos al mismo tiempo para efectuar las labores. Éste debe estar respaldado, a su vez, por un sistema de detención de caídas conectado a la argolla (D) dorsal.

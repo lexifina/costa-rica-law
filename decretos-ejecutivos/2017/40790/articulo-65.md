@@ -1,0 +1,1 @@
+Artículo 65. El corte y doblado de varillas debe ser realizado en mesas de trabajo estables, separadas por divisiones que impidan la proyección de partículas que puedan afectar a las personas trabajadoras que se encuentra en los alrededores.

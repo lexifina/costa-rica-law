@@ -1,0 +1,1 @@
+Artículo 74. Para el manejo de atascamientos en ductos de concreto, en colocaciones de forma horizontal, los ductos flexibles deben estar sujetos en los extremos y en sus centros cada metro con cincuenta centímetros (1,50 m).

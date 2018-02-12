@@ -1,0 +1,1 @@
+Artículo 142. Los guantes que protejan a las personas trabajadoras ante los riesgos mecánicos deben contar con ficha técnica del fabricante que indique el nivel de resistencia a la abrasión, corte, rasgado y punción.

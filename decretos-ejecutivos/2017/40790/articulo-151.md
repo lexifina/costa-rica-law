@@ -1,0 +1,1 @@
+Artículo 151. La persona trabajadora está obligada a reportar el cambio del filtro o cartucho del respirador cuando experimente dificultad para respirar o bien conforme al criterio técnico de la ficha del fabricante o de la FDS de la sustancia química.

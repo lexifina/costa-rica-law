@@ -1,0 +1,1 @@
+Artículo 149. La selección del equipo de protección respiratoria debe estar basada en los análisis del ambiente, en el tiempo de exposición y características de la persona trabajadora, y los valores umbrales limites (TLV) del contaminante presente.

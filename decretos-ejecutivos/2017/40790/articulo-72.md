@@ -1,0 +1,1 @@
+Artículo 72. Cuando los equipos utilizados para la colocación de concreto presenten algún fallo que dificulte su uso, la operación debe detenerse hasta que la situación sea valorada por personal competente.

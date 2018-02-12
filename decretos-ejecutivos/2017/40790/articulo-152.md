@@ -1,0 +1,1 @@
+Artículo 152. Las personas trabajadoras que utilicen respiradores de tipo media cara y cara completa de presión negativa deben ser sometidas como mínimo a pruebas de ajuste cualitativas para validar el buen sellado y su uso.

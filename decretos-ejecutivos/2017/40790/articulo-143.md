@@ -1,0 +1,1 @@
+Artículo 143. Los guantes que protegen a las personas trabajadoras ante los riesgos químicos deben contar con la ficha técnica del fabricante que indique los valores de resistencia química a la que pueden ser sometidos.

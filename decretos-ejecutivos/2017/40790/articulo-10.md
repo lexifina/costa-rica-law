@@ -1,0 +1,1 @@
+Artículo 10. Los postes, tubos, cilindros y perfiles redondos deben ser agrupados en camadas con armazones de metal o de madera para impedir cualquier movimiento. Las piezas largas siempre se deben colocar al fondo.

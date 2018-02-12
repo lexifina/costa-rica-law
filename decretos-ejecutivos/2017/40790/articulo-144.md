@@ -1,0 +1,1 @@
+Artículo 144. Los guantes para proteger ante contactos con temperaturas bajas o altas, deben contar con ficha técnica del fabricante que indique las temperaturas máximas a las cuales se pueden exponer.

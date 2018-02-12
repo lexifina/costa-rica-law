@@ -1,0 +1,1 @@
+Artículo 34. Las aberturas para colocar los bajantes para escombros, hechos en paredes o pisos, deben estar protegidos con barandillas y rodapiés, además de disponer de protección con apantallamiento de la superficie existente alrededor de las mismas en cada piso.

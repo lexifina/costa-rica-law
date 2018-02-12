@@ -1,0 +1,1 @@
+Artículo 61. Las personas trabajadoras que ejecuten labores constructivas, a una altura igual o superior a un metro con ochenta centímetros (1,80 m), deben disponer de un sistema de protección contra caídas.

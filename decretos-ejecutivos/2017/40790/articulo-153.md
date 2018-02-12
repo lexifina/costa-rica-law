@@ -1,0 +1,1 @@
+Artículo 153. La medición de los contaminantes se debe realizar por medio de un equipo calibrado y con sensores acordes a las condiciones encontradas y referenciado a un método de muestreo reconocido a nivel mundial.

@@ -1,0 +1,1 @@
+Artículo 46. Los tablones o láminas metálicas deben estar en perfecto contacto con el terreno y, si hay cavidades, se deben ajustar con cuñas. Los arriostres no se apoyarán directamente sobre el suelo, se intercalarán cuñas y una base resistente.

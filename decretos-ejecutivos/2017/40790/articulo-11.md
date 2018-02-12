@@ -1,0 +1,1 @@
+Artículo 11. El criterio para el almacenamiento de materiales de construcción en lugares cercanos a zanjas o excavaciones debe ser emitido por el profesional responsable de la obra ante el Colegio Federado de Ingenieros y Arquitectos de Costa Rica (CFIA), según el tipo de proyecto y las características del suelo.

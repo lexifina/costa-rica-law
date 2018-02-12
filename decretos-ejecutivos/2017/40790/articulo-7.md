@@ -1,0 +1,1 @@
+Artículo 7. Los materiales empleados en construcción deben ser apilados de modo que no perjudiquen el tránsito de personas, la circulación de medios mecánicos con materiales, el ingreso de equipo para combate de incendios, atención de emergencias humanas, rutas de evacuación y salidas de emergencia.

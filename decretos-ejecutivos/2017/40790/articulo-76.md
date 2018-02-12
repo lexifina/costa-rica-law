@@ -1,0 +1,1 @@
+Artículo 76. La plataforma de protección contra caídas de materiales debe tener como mínimo dos metros con veinte centímetros (2,20 m) de plano y un complemento de ochenta centímetros (80 cm) de extensión con inclinación de cuarenta y cinco grados (45º) aproximadamente, a partir de sus bordes.

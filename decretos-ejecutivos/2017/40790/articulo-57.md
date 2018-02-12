@@ -1,0 +1,1 @@
+Artículo 57. Cuando se usen excavadoras para el movimiento de la tierra, la zona de peligrosidad, respecto a la máquina será, como mínimo, de cinco metros (5,00 m) más de radio, respecto al radio de giro de la máquina. Cuando el operador cuente con puntos ciegos, debe tener un ayudante que monitoree durante la duración del trabajo.

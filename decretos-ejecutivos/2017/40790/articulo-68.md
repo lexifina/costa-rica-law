@@ -1,0 +1,1 @@
+Artículo 68. Durante las operaciones de postensado de cables de acero se prohíbe la permanencia de personas trabajadoras atrás, a los lados o sobre los equipos de postensión, debiendo el área estar aislada con barreras y señalizarse.

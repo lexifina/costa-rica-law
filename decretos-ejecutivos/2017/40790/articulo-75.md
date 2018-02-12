@@ -1,0 +1,1 @@
+Artículo 75. Los cabos de unión de los vibradores de concreto deben estar protegidos. Además, durante los trabajos de colado y vibración del concreto las formaletas y sus arriostres deben ser inspeccionados por una persona calificada.

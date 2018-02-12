@@ -1,0 +1,1 @@
+Artículo 155. Las prendas de alta visibilidad deben estar compuestas por material de fondo fluorescente y material retrorreflectante, que sean resistente al lavado, dar el mantenimiento, sustituir cuando la capacidad protectora disminuya por decoloración o daño de la prenda y brindar capacitación sobre el lavado.

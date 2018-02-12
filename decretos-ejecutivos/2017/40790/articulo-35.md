@@ -1,0 +1,1 @@
+Artículo 35. En la demolición por tracción se deben utilizar dos cables en forma simultánea, por un eventual rompimiento de uno de ellos. Los cables deben ser revisados y avalados por la persona calificada para asegurar su estado y capacidad.

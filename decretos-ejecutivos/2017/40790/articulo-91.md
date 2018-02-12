@@ -1,0 +1,1 @@
+Artículo 91. Las personas que trabajan en andamios suspendidos a un metro con ochenta centímetros (1.80 m) de altura o más, deben utilizar un sistema de protección contra caídas, que contemple mecanismos con sujeción independiente al andamio.

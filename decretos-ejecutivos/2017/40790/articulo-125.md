@@ -1,0 +1,1 @@
+Artículo 125. Es obligación de las personas empleadoras, cuando las personas trabajadoras realicen su trabajo en lugares confinados, dotarlas de sistemas de protección respiratoria, cuando se determine que las concentraciones de contaminantes exceden los límites permisibles y los sistemas mecánicos para ventilación sean ineficaces para asegurar su salud y seguridad.

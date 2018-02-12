@@ -1,0 +1,1 @@
+Artículo 70. Cuando el punto de descarga del concreto no sea visible para el operador del equipo de transporte o la bomba de concreto, debe utilizarse un sistema de señalización sonoro o visual por una persona competente. Cuando esto no sea posible, se debe utilizar un sistema de comunicación por teléfono o radio para determinar el inicio o fin del transporte.

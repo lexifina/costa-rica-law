@@ -1,0 +1,5 @@
+Artículo 3. Las obras de construcción darán inicio, únicamente, cuando se hayan cumplido los siguientes requerimientos, según aplique:
+a) Habilitar los servicios sanitarios, agua potable, vestidores, casilleros, dormitorios y comedores.
+b) Constituir y registrar ante el Consejo de Salud Ocupacional, las estructuras preventivas en salud ocupacional que establecen los artículos 288 y 300 del Código de Trabajo vigente.
+c) Contar con una cobertura total de aseguramiento de las personas trabajadoras ante los regímenes de seguridad social. Dicha protección se mantendrá durante todo el plazo que dure la relación obrero-patronal. Esta obligación de la persona empleadora está establecida en la Constitución Política y en la normativa vigente.
+d) Contar con un aviso preventivo de seguridad, ubicado en un sitio visible e iluminado, en el cual se indique a las personas que tengan contacto con la construcción, la obligación del cumplimiento de las normas de seguridad durante la permanencia en el centro de trabajo.

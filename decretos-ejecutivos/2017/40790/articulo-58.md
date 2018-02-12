@@ -1,0 +1,1 @@
+Artículo 58. En aquellas excavaciones de gran envergadura, donde por las condiciones mismas de la excavación sea difícil o imposible ademar, se deben usar protecciones móviles en el punto exacto de trabajo.

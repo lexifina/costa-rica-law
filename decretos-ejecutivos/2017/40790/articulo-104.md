@@ -1,0 +1,1 @@
+Artículo 104. Las personas encargadas del manejo de grúas y de la dirección y señalamiento de maniobras, previamente deben conocer y aplicar el Código Internacional de señales manuales que permita la comunicación visual.

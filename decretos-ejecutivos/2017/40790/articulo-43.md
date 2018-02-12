@@ -1,0 +1,1 @@
+Artículo 43. En las excavaciones con más de un metro con cincuenta centímetros (1,50 m) de profundidad, las personas trabajadoras deben disponer de escaleras, rampas u otra manera segura de ingresar y salir del lugar ó área de trabajo. Estos accesos deben estar a una distancia no mayor de siete metros con cincuenta centímetros (7,50 m) entre uno y otro.

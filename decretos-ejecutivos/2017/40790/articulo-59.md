@@ -1,0 +1,1 @@
+Artículo 59. Se deben usar protecciones móviles, en excavaciones provisionales (24 horas ó menos) entre un metro con cincuenta centímetros (1,50 m) y los tres metros con cincuenta centímetros (3,50 m) de profundidad, cuando las personas trabajadoras están dentro de la excavación.

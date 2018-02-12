@@ -1,0 +1,1 @@
+Artículo 123. Las personas trabajadoras que realicen actividades en ambientes próximos al agua (canales, lanchas, balsas, plataformas flotantes u otros lugares análogos), deben utilizar chaleco salvavidas con materiales retrorreflectivos.

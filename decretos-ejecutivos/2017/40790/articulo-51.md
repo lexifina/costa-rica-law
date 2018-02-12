@@ -1,0 +1,1 @@
+Artículo 51. Cuando se empleen medios mecánicos (carritos de ferrocarril, tolvas autopropulsadas o por empuje manual) para el transporte de materiales en los túneles, se deben construir nichos de defensa cada treinta metros (30 m) máximo, preferiblemente en la roca.

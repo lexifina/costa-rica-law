@@ -1,0 +1,1 @@
+Artículo 50. Las bocas de los pozos y de las galerías de inclinación peligrosa deben ser protegidas mediante barandillas sólidas de noventa centímetros (90 cm) de altura y rodapiés de diez centímetros (10 cm) de altura como mínimo.

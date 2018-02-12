@@ -1,0 +1,1 @@
+Artículo 173. El presente Decreto Ejecutivo deroga en su totalidad al Decreto Ejecutivo No. 25235-MTSS del 05 de febrero de 1996, “Reglamento de Seguridad en Construcciones”, publicado en La Gaceta No. 122 del 27 de junio de 1996.

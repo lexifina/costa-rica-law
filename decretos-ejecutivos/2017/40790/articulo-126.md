@@ -1,0 +1,1 @@
+Artículo 126. Cuando las condiciones del equipo de protección personal ya no la protejan, la persona trabajadora debe informarlo a la persona empleadora, con el fin de que se le brinde mantenimiento o para que su equipo le sea reemplazado.

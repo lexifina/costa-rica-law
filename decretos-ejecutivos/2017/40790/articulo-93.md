@@ -1,0 +1,1 @@
+Artículo 93. Los andamios sobre ruedas no deben tener una altura superior a cuatro (4) veces el lado más pequeño entre los ejes verticales de las ruedas. Deben tener un sistema de freno en sus cuatro (4) ruedas.

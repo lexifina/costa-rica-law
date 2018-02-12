@@ -1,0 +1,1 @@
+Artículo 30. Cuando se utilice la bola de demolición debe mantenerse una zona de seguridad, alrededor del punto de choque, de un radio mínimo de uno coma cinco (1,5) veces la altura del punto de impacto.

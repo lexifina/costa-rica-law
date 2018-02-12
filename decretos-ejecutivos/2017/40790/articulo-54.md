@@ -1,0 +1,1 @@
+Artículo 54. Cuando se realicen trabajos de excavación o similares, aunque no sea mayor de metro con cincuenta centímetros (1,50 m) de profundidad, al pie de taludes inestables o cuyo ángulo de inclinación sea mayor que el ángulo de reposo natural del terreno, por razones constructivas, debe proporcionarse una protección colectiva a las personas trabajadoras.

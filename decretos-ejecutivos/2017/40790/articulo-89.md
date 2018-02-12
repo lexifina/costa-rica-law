@@ -1,0 +1,1 @@
+Artículo 89. Todo andamio debe ser capaz de soportar sin fallas su propio peso y por lo menos cuatro (4) veces la carga máxima aplicada o transmitida hacia el andamio. Se debe entender por carga máxima el total de peso de personas, equipos, herramientas y materiales, así como otras cargas posibles al mismo tiempo.

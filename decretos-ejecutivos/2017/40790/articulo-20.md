@@ -1,0 +1,1 @@
+Artículo 20. El equipo móvil, para transportar explosivos, debe cumplir con lo establecido en el Decreto Ejecutivo No. 24715- MOPT-MEIC-S del 06 de octubre de 1995 “Reglamento Para el Transporte Terrestre de Productos Peligrosos”, publicado en La Gaceta No. 207, del 01 de noviembre de 1995 y sus reformas.

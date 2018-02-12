@@ -1,0 +1,1 @@
+Artículo 150. La selección de los filtros y cartuchos del respirador a utilizar por la persona trabajadora debe ser basado en el criterio técnico que determine el análisis ambiental (tamaño, tipo de partícula), TLV y/o FDS del agente químico a utilizar.

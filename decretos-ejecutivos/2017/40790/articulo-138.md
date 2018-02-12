@@ -1,0 +1,1 @@
+Artículo 138. No se permiten zapatos de protección, seguridad o de trabajos destapados, con cortaduras o rotos que comprometan la seguridad y salud de las personas trabajadoras. La persona empleadora debe sustituirlos cuando el deterioro sea por causa relacionada al trabajo.

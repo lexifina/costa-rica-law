@@ -1,0 +1,1 @@
+Artículo 124. Las personas empleadoras deben adoptar e implementar medidas de protección y de seguridad personal para las personas trabajadoras que se expongan a la radiación ultravioleta, como consecuencia de las labores que realizan.

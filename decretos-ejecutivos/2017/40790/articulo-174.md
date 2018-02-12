@@ -1,0 +1,1 @@
+Artículo 174. El Consejo de Salud Ocupacional divulgará, con la obligada colaboración de todas las dependencias públicas e instituciones del Estado, entre todas las instituciones y gremios involucrados en el sector de la construcción, las normas del presente Reglamento en un plazo no mayor a los treinta días naturales posteriores a su entrada en vigencia.

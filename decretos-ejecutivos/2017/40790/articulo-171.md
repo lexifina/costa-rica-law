@@ -1,0 +1,1 @@
+Artículo 171. Toda empresa constructora podrá, en caso de que una actividad no esté regulada en el presente cuerpo normativo, disponer de un manual de Seguridad e Higiene en la Construcción de carácter autónomo, con la orientación técnica que le podrá brindar el Consejo, dentro de su especialidad Salud Ocupacional.

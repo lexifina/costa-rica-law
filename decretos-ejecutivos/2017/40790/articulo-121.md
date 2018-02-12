@@ -1,0 +1,1 @@
+Artículo 121. Los equipos y elementos de protección personal y de seguridad utilizados en el trabajo de las distintas fases del proceso constructivo deben ser, como mínimo, los indicados en el anexo 2 del presente reglamento.

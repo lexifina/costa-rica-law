@@ -1,0 +1,1 @@
+Artículo 47. Nunca se deben apuntalar fosos o zanjas de talud no vertical empleando codales horizontales. En estos casos se escalonará con gradas, tanto de anchura mínima como de altura máxima, de un metro con treinta centímetros (1,30 m), de manera que queden preferiblemente cortes verticales.

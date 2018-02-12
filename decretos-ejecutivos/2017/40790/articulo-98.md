@@ -1,0 +1,1 @@
+Artículo 98. Las pasarelas deben tener, como mínimo, ochenta centímetros (80 cm) de ancho, disponer de barandas resistentes de un mínimo de noventa centímetros (90 cm) de altura y construidas con barra intermedia.

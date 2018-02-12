@@ -1,0 +1,1 @@
+Artículo 15. En la construcción de los depósitos para el almacenamiento de explosivos, la distancia mínima respecto a los edificios habitados, ferrocarriles, carreteras y otros tipos de depósitos, debe ser la establecida en las tablas del anexo 1 del presente reglamento.

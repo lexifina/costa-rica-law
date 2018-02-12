@@ -1,0 +1,1 @@
+Artículo 62. Las áreas de trabajo y tránsito se mantendrán libres de clavos, remaches, de objetos punzantes. Además, deben mantener el lugar de trabajo ordenado, limpio y solamente con el equipo o material que se va a utilizar.
