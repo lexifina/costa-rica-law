@@ -1,3 +1,0 @@
-Capítulo III
-De la Secretaría Ejecutiva
-Artículo 7°—Funciones. La secretaría Ejecutiva tiene a su cargo la incidencia para el logro de los acuerdos del Consejo de Competitividad y el seguimiento de los avances en el cumplimiento de la agenda de competitividad regional, todo orientado a alcanzar los objetivos y metas trazados en materia del fortalecimiento del clima empresarial y la competitividad de las empresas, incluyendo cuando corresponda la generación de propuestas de acciones correctivas.
