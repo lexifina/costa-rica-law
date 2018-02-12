@@ -1,1 +1,0 @@
-Artículo 2°— La Comisión Ad Hoc se reunirá ordinariamente mediante convocatoria del Director Ejecutor de Proyectos del Ministerio de Planificación Nacional y Política Económica y extraordinariamente mediante convocatoria de la Segunda Vicepresidenta de la República.
