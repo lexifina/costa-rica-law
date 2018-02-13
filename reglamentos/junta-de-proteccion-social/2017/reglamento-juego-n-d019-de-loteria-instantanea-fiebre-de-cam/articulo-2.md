@@ -1,0 +1,1 @@
+Artículo Nº 2.—Mecánica de Juego. El boleto presenta dos estilos de juego diferentes: 1. Raspe toda el área de juego, si un mismo símbolo se repite tres veces gana el premio indicado. 2. Raspar el área desprendible y coleccione las letras que aparecen, si completa con ellas la palabra “Campeones”, gana ¢500.000.
