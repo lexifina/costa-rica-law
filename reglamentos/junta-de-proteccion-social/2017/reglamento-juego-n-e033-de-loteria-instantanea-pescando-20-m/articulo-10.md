@@ -1,0 +1,1 @@
+Artículo 10.—Se aprueba el presente reglamento según acuerdo de Junta Directiva JD-JD-1338, correspondiente al artículo V), inciso 5) de la sesión ordinaria Nº 49-2017 celebrada el día 21 de diciembre del 2017.
