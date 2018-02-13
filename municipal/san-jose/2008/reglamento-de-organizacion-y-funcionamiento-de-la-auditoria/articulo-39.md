@@ -1,1 +1,0 @@
-Artículo 39.-Los funcionarios de la Auditoría Interna, deben obtener asesoramiento y ayuda competente, en caso de que carezca de los conocimientos, las aptitudes y otras competencias necesarias para cumplir apropiadamente con su labor asesora.

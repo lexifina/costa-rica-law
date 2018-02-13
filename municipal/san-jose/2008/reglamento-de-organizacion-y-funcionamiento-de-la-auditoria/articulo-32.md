@@ -1,1 +1,0 @@
-Artículo 32.-De existir un impedimento que comprometa la independencia y objetividad, de hecho o de apariencia, se harán del conocimiento por escrito, del superior inmediato e interesados o partes que correspondan, para que se decida lo pertinente.

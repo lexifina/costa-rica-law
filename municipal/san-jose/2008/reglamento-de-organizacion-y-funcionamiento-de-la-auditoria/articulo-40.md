@@ -1,1 +1,0 @@
-Artículo 40.-Los funcionarios de la Auditoría Interna, harán advertencias a la Administración con adecuado fundamento; o bien, deberán obtener asesoramiento y ayuda competente en caso de que carezcan de los conocimientos, las aptitudes y otras competencias necesarias para fundamentar las advertencias con propiedad.

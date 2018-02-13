@@ -1,2 +1,0 @@
-Artículo 63.-EI incumplimiento a lo regulado en este Reglamento será causal de responsabilidad administrativa para el Auditor Interno, Subauditor y para los funcionarios de la Auditoria Interna, según lo normado en el Capítulo V de la Ley General de Control Interno.
-La determinación de las responsabilidades y aplicación de las sanciones administrativas, corresponderá al órgano competente, conforme a las disposiciones internas de la Municipalidad y la Contraloría.
