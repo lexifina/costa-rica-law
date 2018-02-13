@@ -1,0 +1,1 @@
+Artículo 2.- Se autoriza y recomienda la participación y colaboración de todas las instancias de la Administración Pública, así como todas las acciones que las mismas puedan disponer a favor del desarrollo de los Proyectos inherentes a esta declaratoria.
