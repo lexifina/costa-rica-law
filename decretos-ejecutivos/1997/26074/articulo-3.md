@@ -1,1 +1,0 @@
-Artículo 3°—La equiparación de los resultados de las pruebas rendidas en el Bachilléralo Internacional deberán referirse, exclusivamente, a las asignaturas o disciplinas: Ciencias, Matemática, Español, Estudios Sociales e idioma extranjero, que son las que se examinan en el Bachilléralo nacional.

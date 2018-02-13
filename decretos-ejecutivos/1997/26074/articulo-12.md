@@ -1,1 +1,0 @@
-Artículo 12.—Para los efectos de lograr un adecuado control sobre los procedimientos y el cabal ejercicio de la inspección del Estado, las instituciones que se acojan a estas disposiciones reglamentarias, deberán suscribir un convenio específico con el Ministerio de Educación Pública.

@@ -1,1 +1,0 @@
-Artículo 13.—El Ministerio de Educación, en ningún caso, tendrá por aprobado ni equiparará los resultados obtenidos en el Bachillerato Internacional, cuando, según la escala que utilice la agencia acreditadora, éstas se conceptualicen como POBRES o MUY POBRES.
