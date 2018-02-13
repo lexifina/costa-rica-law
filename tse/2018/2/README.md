@@ -14,3 +14,4 @@ Reglamento para la celebración de la segunda votación del proceso electoral 20
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-06 | la propia norma |
+| 2 | 2018-02-13 | Decreto TSE 5 (2018-02-13) |
