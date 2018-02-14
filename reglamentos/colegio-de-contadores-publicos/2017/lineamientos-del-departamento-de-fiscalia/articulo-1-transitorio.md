@@ -1,0 +1,4 @@
+Disposiciones Transitorias
+Transitorio I. –El presente Lineamiento cuenta con información relacionada con el Órgano Director del Procedimiento (ODP), la cual permanecerá hasta agotar los casos que examina esta vía. Una vez agotado este volumen, únicamente se hará referencia al Tribunal de Honor (TH) como órgano competente para determinar la verdad real de los hechos.
+Este Lineamiento fue aprobado por Junta Directiva en sesión ordinaria Nº24-2017, celebrada el 6 de diciembre de 2017, y deroga la Circular 02-2014 “Manual para Interposición y Trámites de Denuncias del Colegio de Contadores Públicos de Costa Rica”, emitida mediante acuerdo 706-2014 del 6 de octubre de 2014 y cualquier otra norma reglamentaria anterior que se le oponga.
+Publicado en el Diario Oficial La Gaceta N°28, página N°41, del miércoles 14 de febrero del 2018.

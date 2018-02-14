@@ -1,0 +1,3 @@
+CUADRAGÉSIMO
+El Departamento de Fiscalía, dará seguimiento durante el plazo que se estime conveniente y sin que éste supere los tres meses naturales, a los apercibimientos realizados, con el fin de asegurar, el acatamiento de la normativa vigente y aplicable del Colegio, el cual se menciona en el apartado primero del presente Lineamiento, por parte de los CPA.
+En caso de que se exceda el plazo de tres meses naturales y no existan acciones correctivas por parte del CPA, sobre el tema por el cual fue apercibido, el Departamento de Fiscalía procederá con la apertura de una investigación de oficio, la cual se regirá por lo indicado en el Título III del presente Lineamiento.

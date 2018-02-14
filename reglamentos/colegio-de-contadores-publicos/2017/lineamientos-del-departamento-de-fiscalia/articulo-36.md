@@ -1,0 +1,2 @@
+TRIGÉSIMO SEXTO
+El plazo para la emisión de los informes o memorandos por modificaciones es de treinta días hábiles, contado a partir de la valoración realizada por el Departamento de Fiscalía en el apartado trigésimo segundo del presente Lineamiento. Este plazo es improrrogable, salvo justificación debidamente fundada, la cual debe ser autorizada por la Fiscal de la Junta Directiva, previo envío del respectivo correo electrónico con 4 días de antelación al término del plazo de un mes natural, y se dará una única prórroga por hasta un plazo de 30 días hábiles adicionales.

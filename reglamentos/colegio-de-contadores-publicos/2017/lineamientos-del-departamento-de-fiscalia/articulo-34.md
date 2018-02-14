@@ -1,0 +1,3 @@
+TRIGÉSIMO CUARTO
+Al realizar una modificación de un informe de fiscalía en aspectos de fondo, es decir, que conlleve cambios sustanciales en la normativa técnica y/o ética en la cual se había sustentado, el profesional de fiscalía generará un nuevo informe fundamentado en la normativa técnica y/o ética que le resulte aplicable, el cual será revisado por el Jefe del Departamento de Fiscalía.
+Para aquellas modificaciones que tengan por objeto únicamente la contextualización de los hechos descritos en el Informe de Fiscalía, el profesional de fiscalía elaborará un memorando, con el desarrollo de los temas requeridos, el cual será revisado y firmado por el Jefe del Departamento, de manera física o digital.

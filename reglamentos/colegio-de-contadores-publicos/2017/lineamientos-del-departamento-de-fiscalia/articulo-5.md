@@ -1,0 +1,2 @@
+QUINTO
+Los casos recibidos por denuncia en el Departamento de Fiscalía, serán asignados por el jefe del Departamento, de conformidad con el consecutivo, a los profesionales de fiscalía, quienes realizarán una revisión de la información aportada por el denunciante, con el fin de efectuar las prevenciones correspondientes, para los casos en que fuere necesario el requerimiento, se realizará en un plazo máximo de dos días hábiles contados a partir de la asignación de la denuncia.

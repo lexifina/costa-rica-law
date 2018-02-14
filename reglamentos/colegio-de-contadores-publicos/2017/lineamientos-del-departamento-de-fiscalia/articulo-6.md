@@ -1,0 +1,3 @@
+SEXTO
+El requerimiento de información adicional detallado en el apartado anterior al denunciante, para iniciar con la investigación preliminar, será por medio del correo electrónico aportado. Si el denunciante es un CPA, la Fiscalía se reserva el derecho de hacer las notificaciones adicionalmente al correo electrónico registrado en el Colegio, además de los medios indicados previamente en la denuncia, y otorgará un plazo de dos días hábiles, para la entrega de la información requerida.
+En caso de no resultar conforme con la respuesta o datos suministrados, o de no ser posible subsanar el defecto señalado por el Departamento de Fiscalía, se emitirá un oficio rechazando la denuncia, previa consulta al Fiscal de la Junta Directiva.

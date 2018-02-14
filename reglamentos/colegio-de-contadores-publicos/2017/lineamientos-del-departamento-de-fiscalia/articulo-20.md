@@ -1,0 +1,5 @@
+SECCIÓN VII
+DE LA NOTIFICACIÓN EN CASOS POR OFICIO
+VIGÉSIMO
+La Asistente Administrativa de fiscalía, procederá con la notificación, en un plazo de tres días hábiles, dirigida al CPA, una vez conocido el caso. La efectividad de la notificación será confirmada por medio de llamada telefónica y agregando el resultado al expediente. El oficio deberá ser firmado, física o digitalmente, por el Jefe del Departamento, por medio de la cual, se le solicitarán al CPA los papeles de trabajo que respaldan su actuación profesional sobre el trabajo correspondiente, incluidas sus manifestaciones (si el CPA lo considera pertinente), así como la copia, física o electrónica, del Libro de Servicios Profesionales, copia de la factura emitida por concepto de honorarios profesionales cobrados a su cliente, y cualquier otra documentación relevante para el desarrollo de la investigación preliminar que se le requiera.
+De conformidad con el transitorio incluido en el artículo 15 del Reglamento a la Ley Nº1038, después del 17 de marzo de 2017, los CPA únicamente pueden llevar el Libro de Servicios Profesionales de manera digital.

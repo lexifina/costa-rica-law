@@ -1,0 +1,2 @@
+VIGÉSIMO SEXTO
+Los plazos para la emisión de los Informes de Fiscalía por oficio son improrrogables, salvo justificación debidamente fundamentada, la cual debe ser autorizada por el Fiscal de la Junta Directiva, previo envío del respectivo correo electrónico, con 4 días de antelación al término del plazo de sesenta días hábiles, según lo indicado en el apartado vigésimo cuarto, y se dará una única prórroga por hasta un plazo de 30 días hábiles adicionales.

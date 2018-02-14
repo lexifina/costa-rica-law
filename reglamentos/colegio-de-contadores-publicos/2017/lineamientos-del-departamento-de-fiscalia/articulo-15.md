@@ -1,0 +1,2 @@
+DÉCIMO QUINTO
+Los plazos para la emisión de los informes de fiscalía son improrrogables, salvo justificación debidamente fundamentada, la cual debe ser autorizada por el Fiscal de la Junta Directiva, previo envío del respectivo correo electrónico, con 4 días de antelación al término del plazo de treinta días hábiles, según lo indicado en el apartado décimo tercero, y se dará una única prórroga por hasta por un plazo de 30 días hábiles adicionales.
