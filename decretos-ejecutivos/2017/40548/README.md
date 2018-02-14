@@ -14,3 +14,4 @@ Reglamento a la Ley de Conservación de la Vida Silvestre N° 7317
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-08-09 | la propia norma |
+| 2 | 2018-02-14 | Decreto Ejecutivo 41126 (2018-02-14) |
