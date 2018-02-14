@@ -1,0 +1,7 @@
+BANCO NACIONAL DE COSTA RICA
+MODIFICACIÓN AL CÓDIGO DE CONDUCTA Y ÉTICA
+DEL CONGLOMERADO BANCO NACIONAL
+El Banco Nacional de Costa Rica comunica la parte resolutiva del acuerdo tomado por la Junta Directiva General, en la sesión N° 12.205, artículo 1º, celebrada el 04 de diciembre del 2018, en el cual acordó aprobar la modificación al Código de Conducta y Ética del Conglomerado Banco Nacional, específicamente en lo que respecta al apartado 3.3 Los Conflictos de Interés, en el punto Deber de abstención, con el propósito de adicionar el siguiente párrafo, para que, en lo sucesivo, se lea de conformidad con el siguiente texto:
+Con la salvedad de las operaciones relacionadas con inversión, ahorro y/o cuenta corriente, se prohíbe a los funcionarios y servidores del Banco Nacional de Costa Rica, en el ejercicio de sus funciones, autorizar operaciones activas directas o indirectas, o celebrar todo tipo de contratos, convenios y generar cualquier tipo de relación comercial en la que tenga interés directo las asociaciones, cooperativas o cualquier otra organización constituida por colaboradores del Banco Nacional. Los colaboradores indicados no podrán renovar, a su vencimiento, las relaciones de negocio existentes con cualquiera de esas organizaciones, una vez entrada en vigencia esta regulación.
+En lo demás, el citado Código de Conducta y Ética se mantiene invariable.
+La Uruca, 05 de febrero del 2018.
