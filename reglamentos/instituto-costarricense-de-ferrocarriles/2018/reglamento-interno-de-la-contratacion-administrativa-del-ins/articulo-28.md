@@ -1,0 +1,1 @@
+Artículo 28.- Corresponderá a la Proveeduría Institucional la determinación de la modalidad de compra que mejor se adapte a las necesidades institucionales. La Unidad Patrocinadora podrá sugerir una modalidad alternativa que a su criterio permita un resultado más eficiente y efectivo.

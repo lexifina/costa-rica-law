@@ -1,0 +1,1 @@
+Artículo 34. En caso de que el INCOFER opte por la utilización de un sistema público de contratación electrónica que contenga su propio registro de proveedores, el INCOFER usará ese registro. Caso contrario, la Proveeduría Institucional deberá dictar los lineamientos para el funcionamiento de un registro de proveedores propio.

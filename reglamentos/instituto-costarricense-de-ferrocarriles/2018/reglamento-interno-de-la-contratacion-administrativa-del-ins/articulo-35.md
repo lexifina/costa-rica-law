@@ -1,0 +1,3 @@
+Sección III
+Reglas Especiales para Materias Excluidas de los Procedimientos Ordinarios
+Artículo 35.-Corresponde a la Proveeduría Institucional, sin perjuicio de la recomendación que pueda hacer la Unidad Patrocinadora, determinar la procedencia de la aplicación a cada caso concreto de las causales de exclusión de los procedimientos ordinarios de selección y adjudicación debidamente reguladas en la Ley N° 7494 del 2 de mayo de 1995 y sus reformas, Ley de Contratación Administrativa, así como en el Decreto Ejecutivo N°33411 del 27 de setiembre de 2006 y sus reformas, Reglamento a la Ley de Contratación Administrativa.

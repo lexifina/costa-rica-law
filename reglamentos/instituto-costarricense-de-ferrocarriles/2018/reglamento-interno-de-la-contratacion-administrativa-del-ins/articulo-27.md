@@ -1,0 +1,1 @@
+Artículo 27. El INCOFER procurará desarrollar los procedimientos de contratación administrativa por medios electrónicos, ya sea utilizando su propia plataforma tecnológica o la que desarrollen otros entes u órganos públicos.

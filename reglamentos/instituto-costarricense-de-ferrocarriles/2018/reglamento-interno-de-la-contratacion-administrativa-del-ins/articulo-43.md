@@ -1,0 +1,1 @@
+Artículo 43.- La Proveeduría Institucional deberá atender los requerimientos de información y de ajustes contractuales que le solicite la Contraloría General de la República, para lo cual contará con la debida colaboración oportuna de la Unidad Patrocinadora y de las otras instancias internas del INCOFER según sea necesario.

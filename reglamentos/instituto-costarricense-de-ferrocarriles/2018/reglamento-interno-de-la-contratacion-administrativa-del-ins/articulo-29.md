@@ -1,0 +1,2 @@
+Artículo 29.- La elaboración del cartel será responsabilidad de la Proveeduría Institucional, con la obligada colaboración de la Unidad Patrocinadora y de cualquiera otra instancia interna cuya participación sea pertinente para la consecución de los objetivos institucionales.
+La Proveeduría Institucional procurará la estandarización de los carteles, adoptando las mejores prácticas en esta materia.

@@ -1,0 +1,2 @@
+Artículo 15.-Cualquiera de los miembros de la Junta podrá interponer recurso de revisión contra los acuerdos dicta dos que no estén firmes, en cuyo caso será interpuesto y resuelto al conocerse el borrador de acta en la sesión ordinaria siguiente, salvo que, por tratarse de un asunto que el Presidente juzgue urgente, se decida conocer en sesión extraordinaria.
+Las simples observaciones de forma, relativas a la redacción de los acuerdos, no serán consideradas como recursos de revisión.

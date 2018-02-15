@@ -1,0 +1,1 @@
+Artículo 2.- Sin perjuicio de las atribuciones que pudieran corresponder a otros órganos o instancias internas, los principales órganos que participan de la actividad de contratación administrativa del INCOFER son el Consejo Directivo, la Junta de Adquisiciones, la Proveeduría Institucional, las Unidades Solicitantes, la Unidad de Asesoría Legal y la Dirección Financiera.

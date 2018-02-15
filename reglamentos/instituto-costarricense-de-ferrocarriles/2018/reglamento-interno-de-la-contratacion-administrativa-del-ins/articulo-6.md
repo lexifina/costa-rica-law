@@ -1,0 +1,3 @@
+Artículo 6.-La Junta de Adquisiciones estará integrada por cuatro miembros titulares: El Presente Ejecutivo, los Gerentes Administrativo y de Operaciones, así como el Proveedor Institucional. En caso de que algún miembro de la Junta no pueda asistir de forma justificada a las sesiones, podrá ser sustituido por quien asume su cargo.
+La Junta de Adquisiciones podrá convocar a sus sesiones o pedir informes o peritajes a cualquier funcionario del INCOFER, cuando lo requiera.
+El Jefe de la Unidad de Asesoría Legal, o en su ausencia quien le sustituya en su cargo, fungirá como asesor de la Junta de Adquisiciones con voz pero sin voto.

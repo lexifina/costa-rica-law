@@ -1,0 +1,11 @@
+Artículo 47.- El análisis que realiza la Unidad de Asesoría Legal para determinar la
+procedencia o no de la aprobación interna de un contrato administrativo es de legalidad y no de oportunidad o conveniencia, quedando circunscrito a la verificación de los siguientes aspectos:
+1) Que exista contenido presupuestario.
+2) Que para la selección del contratista se haya seguido el procedimiento ordinario de concurso o la excepción de contratación directa que corresponda según el ordenamiento jurídico vigente.
+3) Que estén incorporados al expediente administrativo los estudios técnicos que amparen la adjudicación y los demás términos del cartel. Si no constan dichos estudios o no existen, en la nota de remisión de la solicitud de aprobación interna se deberá justificar la adjudicación en los términos sometidos al trámite de aprobación.
+4) La capacidad jurídica de las partes para acordar y suscribir las obligaciones contenidas en el contrato.
+5) Que en el expediente administrativo conste la certificación que acredite que el contratista se encontraba al día en sus obligaciones con la Caja Costarricense de Seguro Social y el pago del impuesto a las sociedades mercantiles, al momento de suscribir el contrato.
+6) Que se han rendido las garantías requeridas por la ley y el cartel, así como las especies fiscales que correspondan según la ley.
+7) Que exista un estricto ajuste de los términos, derechos, obligaciones y demás condiciones incluidas en el contrato respecto del clausulado del cartel y sus modificaciones si las hubiere, y en relación con la oferta adjudicada y sus aclaraciones, así como en cuanto al acto de adjudicación y estudios técnicos que lo sustentan, así como al régimen de contratación administrativa aplicable al INCOFER, de conformidad con lo dispuesto en el Decreto Ejecutivo No. 40827-MOPT , Reglamento del Régimen Especial de Contratación Administrativa del Instituto Costarricense de Ferrocarriles (INCOFER).
+8) Que el precio del contrato se ajuste a los términos del cartel, de la oferta o del avalúo administrativo, cuando corresponda.
+La Unidad de Asesoría Legal no asume responsabilidad, en el trámite de aprobación interna, por otros aspectos tales como la necesidad, oportunidad y conveniencia de la contratación, lo mismo que la razonabilidad del precio adjudicado y el mecanismo para su reajuste y revisión.

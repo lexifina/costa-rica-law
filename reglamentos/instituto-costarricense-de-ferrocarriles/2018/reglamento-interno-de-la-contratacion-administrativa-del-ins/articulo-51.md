@@ -1,0 +1,3 @@
+Artículo 51.- La Unidad Patrocinadora deberá remitir a la Proveeduría Institucional las solicitudes para modificar un contrato o tramitar un contrato adicional, con indicación de los criterios por medio de los cuales se determinó que se cumplen los requisitos para la ejecución del trámite correspondiente.
+Cuando se trate de un contrato adicional, la solicitud deberá ser planteada ante la Proveeduría Institucional con al menos dos meses de anticipación al vencimiento de los seis meses posteriores a la recepción provisional del objeto contractual.
+La Proveeduría Institucional tramitará las solicitudes ante la instancia competente para la aprobación de la modificación contractual.

@@ -1,0 +1,2 @@
+Artículo 50.- Durante la fase de ejecución contractual, las gestiones planteadas por el contratista serán atendidas por el administrador del contrato designado por la Unidad Patrocinadora, en coordinación con la Proveeduría Institucional.
+Todas esas gestiones deberán ser documentadas e incorporadas en el expediente de la contratación a cargo de la Proveeduría Institucional o en el expediente electrónico.

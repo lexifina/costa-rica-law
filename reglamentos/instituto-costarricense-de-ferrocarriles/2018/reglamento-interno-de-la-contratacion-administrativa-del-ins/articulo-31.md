@@ -1,0 +1,1 @@
+Artículo 31.- Las aclaraciones y modificaciones al cartel, así como las prórrogas al plazo de recepción de ofertas que se deriven de éstas, serán resueltas y comunicadas por la Proveeduría Institucional, en coordinación con la Unidad Patrocinadora.

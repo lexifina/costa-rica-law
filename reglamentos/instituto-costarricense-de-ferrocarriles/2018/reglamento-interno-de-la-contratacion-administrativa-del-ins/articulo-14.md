@@ -1,0 +1,3 @@
+Artículo 14.-Los acuerdos de la Junta, serán adoptados por mayoría absoluta de los miembros asistentes. En caso de empate se elevará al Consejo Directivo el asunto para la decisión correspondiente.
+Los acuerdos quedarán en firme en la sesión que se dicte, si así lo dispone la totalidad de sus miembros. En caso contrario, quedarán en firme en la siguiente sesión donde se apruebe el acta correspondiente.
+Los miembros de la Junta podrán hacer constar en la respectiva acta, su voto contrario al acuerdo emitido, y los motivos que lo justifiquen, quedando en tal caso exento de las responsabilidades que, en su caso, pudieren derivarse de los acuerdos.

@@ -1,0 +1,3 @@
+Artículo 25.- Al finalizar cada ejercicio presupuestario la Proveeduría Institucional deberá hacer una evaluación del Programa de Adquisiciones, documentando su porcentaje de cumplimiento, las modificaciones efectuadas y los aspectos de mejora.
+Igualmente, al finalizar cada ejercicio presupuestario la Dirección Financiera realizará una evaluación de la ejecución presupuestaria del Programa de Adquisiciones y formulará las recomendaciones que estime pertinentes.
+Copia de ambos informes de evaluación dispuestos en los párrafos anteriores, deberán ser remitidos al Comité Directivo, al Presidente Ejecutivo y a la Junta de Adquisiciones.
