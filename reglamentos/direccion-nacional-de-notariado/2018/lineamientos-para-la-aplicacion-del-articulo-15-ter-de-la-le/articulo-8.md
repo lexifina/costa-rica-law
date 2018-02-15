@@ -1,0 +1,1 @@
+Artículo 8º—En los casos previstos en el artículo anterior, el Notario Público que otorga el acto o contrato deberá conservar en su Archivo de Referencias el testimonio, si no fueran hechas ante el mismo Notario, o copia del mismo, si se hicieran ante el mismo Notario, de la escritura donde se hagan las declaraciones juradas.

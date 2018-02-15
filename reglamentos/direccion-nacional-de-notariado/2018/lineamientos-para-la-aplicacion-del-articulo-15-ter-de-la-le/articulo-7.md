@@ -1,0 +1,1 @@
+Artículo 7º—Cuando así lo soliciten los comparecientes, y en los casos en que el acto o contrato no sea realizado en escritura pública, la parte que origina el pago podrá hacer la declaración jurada en escritura separada.

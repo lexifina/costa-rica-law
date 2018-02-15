@@ -1,0 +1,1 @@
+Artículo 9º—En virtud de los controles existentes para las instituciones mencionadas en el artículo 14 de la Ley 7786, quedan excluidos del requisito de declaración jurada los contratos en que se formalicen operaciones de las indicadas en el artículo supra indicado.
