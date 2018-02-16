@@ -1,0 +1,10 @@
+Artículo 2.- Para efectos de interpretación del presente reglamento se establecen las siguientes definiciones y abreviaturas:
+a. Comprobante de pago: Copia del comprobante de depósito en el Banco Nacional de Costa Rica o del pago en línea de fondos que demuestre la cancelación del servicio requerido al Ministerio de Salud.
+b. Ley: Ley General de Salud.
+c. MEIC: Ministerio de Economía, Industria y Comercio.
+d. Producto químico peligroso: Todo producto, sustancias puras o soluciones, mezclas o preparados de carácter tóxico, combustible, comburente, inflamable, irritante, corrosivo, u otro declarado como tal por el Ministerio mediante decreto ejecutivo, y aquellos que clasifiquen en algún peligro físico, para la salud o el medio ambiente, de acuerdo con los criterios establecidos en el Sistema Globalmente Armonizado de Clasificación y Etiquetado de Productos Químicos (SGA), en su sexta edición en idioma español.
+e. Producto terminado: Producto químico peligroso fabricado que es destinado al consumo final o a su utilización por otra empresa.
+f. Registro de productos químicos peligrosos: Acto administrativo mediante el cual el Ministerio de Salud, después de analizar el cumplimiento de requisitos técnicos y legales establecidos, aprueba el uso y la comercialización de productos químicos peligrosos.
+g. Registro Pymes: Acto de registro en el Sistema de Información Empresarial (SIEC) como pequeña y mediana empresa (PYME), para obtener la condición de PYME y acceder a los beneficios de la Ley No. 8262 y sus reglamentos.
+h. Servicio: Actividades y acciones que ejecuta el Ministerio de Salud para el trámite de registros, renovaciones, cambios posteriores al registro y uso de registros, relacionadas con el registro de productos químicos peligrosos.
+i. Tarifa: Monto en dólares de los Estados Unidos de América o su equivalente en moneda nacional al tipo de cambio de venta de referencia del Banco Central de Costa Rica para el día en que se realiza la transacción, que debe pagar el administrado por el servicio de registros, renovaciones, cambios posteriores al registro, usos de registro y la vigilancia y control que realiza el Ministerio de Salud.
