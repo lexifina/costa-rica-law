@@ -1,0 +1,8 @@
+Artículo 56.- Prórrogas para la implementación de recomendaciones
+Para las recomendaciones cuyo plazo de implementación originalmente establecido no exceda los doce meses, la Auditoria Interna tendrá la potestad, a solicitud fundamentada de la administración mediante carta, de otorgar prórrogas a los plazos indicados por ésta para la implementación de las recomendaciones, siempre y cuando se cumplan las siguientes condiciones:
+a) Que no haya vencido el plazo del compromiso establecido según el artículo 55 y que la solicitud sea realizada al menos con 5 días hábiles de antelación al vencimiento del compromiso.
+b) Que se puedan verificar avances en la implementación de la acción correctiva.
+c) Que quien dirija la solicitud de prórroga sea un funcionario facultado para tal gestión, entiéndase, como la persona destinataria del informe o en su ausencia, su nivel jerárquico superior. No se atenderán solicitudes realizadas por niveles jerárquicos inferiores al destinatario del informe.
+d) Que la prórroga solicitada no prolongue la implementación más allá de doce meses, según los términos del articulo 54 de este Reglamento.
+Estas prórrogas no operarán de oficio y cada caso deberá ser debidamente analizado por la Auditoría Interna.
+De presentarse circunstancias especiales debidamente documentadas que asi lo justifiquen, podrá la implementación de las recomendaciones exceder el plazo de doce meses, siempre y cuando se evidencie la necesidad de un tiempo adicional razonable en función del avance logrado en la implementación y se establezca una nueva fecha de compromiso para su finalización. Esta excepción deberá quedar debidamente documentada en los informes que la Auditoría Interna debe presentar al Consejo Director, según lo indicado en el artículo 54.

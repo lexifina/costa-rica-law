@@ -1,0 +1,4 @@
+Artículo 54.- Plazos máximos para la implementación de las recomendaciones
+Las recomendaciones deberán ser implementadas en el plazo que el titular subordinado defina, el cual será máximo de doce meses, contados a partir del día siguiente al vencimiento del plazo de ley para discrepar, salvo en aquellos casos en que circunstancias especiales justifiquen un plazo mayor, de conformidad con lo establecido en el artículo 56.
+La Auditoría Interna presentará al Consejo Director, con la periodicidad que esté establezca, el estado de avance de la implementación de las recomendaciones, dando especial énfasis a aquellas recomendaciones que transcurridos doce meses, no se hayan implementado.
+Lo anterior, sin perjuicio de las acciones que la Auditoría Interna pueda desplegar para sentar las responsabilidades administrativas a que se refiere el artículo 39 de la Ley General de Control Interno.

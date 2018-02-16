@@ -1,0 +1,1 @@
+Transitorio 2 °-Los servicios de la Auditoria Interna iniciados con anterioridad a la entrada en vigencia del presente Reglamento, se regirán por el Reglamento de Organización y Funcionamiento de la Auditoría Interna del Conicit que se deroga en el artículo 60 de la presente reglamentación".

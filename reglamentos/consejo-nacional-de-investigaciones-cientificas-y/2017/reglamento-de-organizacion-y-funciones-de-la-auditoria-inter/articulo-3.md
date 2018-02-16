@@ -1,0 +1,3 @@
+Artículo 3.- Valores éticos
+El auditor interno establecerá un Código de Ética que promueva una cultura ética en la profesión y práctica de auditoría interna, que oriente sobre la independencia e imparcialidad en la actividad de auditoría interna, el que deberá estar debidamente alineado al código de ética de los distintos colegios profesionales a los que pertenecen sus funcionarios.
+Los funcionarios de la Auditoría Interna deberán conducirse en sus distintas relaciones, internas y externas, cumpliendo en todo momento con el Código de Ética de la Auditoría Interna, así como el de la Institución.

@@ -1,0 +1,2 @@
+Artículo 12.- Suspensión o remoción del Auditor interno
+La suspensión o remoción del auditor interno deberá realizarse de conformidad con lo que se dispone en los "Lineamientos sobre los requisitos de los cargos del auditor y subauditor internos, las condiciones para las gestiones de nombramiento, suspensión y destitución de dichos cargos, y la aprobación del reglamento de organización y funcionamiento de las auditorías internas del Sector Público".

@@ -1,0 +1,4 @@
+Artículo 53.- Del plazo para informar cómo se atenderán las recomendaciones
+En la carta de traslado del informe al destinatario, la Auditoría Interna, indicará el plazo con que cuenta el destinatario para informar las actividades, responsables y plazos de implementación, el cual empezará a contar a partir del día siguiente a la fecha de recepción de la carta de traslado del informe. Este plazo lo establecerá la Auditoría para cada caso en particular, considerando para ello criterios objetivos de viabilidad, complejidad y proporcionalidad.
+De requerirse, el destinatario del informe podrá solicitar a la Auditoría Interna una prórroga de este plazo, el cual deberá solicitarse en el transcurso de los tres días hábiles posteriores a la fecha de recibo del informe, acreditando las razones objetivas que justifican tal prórroga.
+La Auditoría resolverá la solicitud de prórroga y comunicará lo pertinente al gestionante.

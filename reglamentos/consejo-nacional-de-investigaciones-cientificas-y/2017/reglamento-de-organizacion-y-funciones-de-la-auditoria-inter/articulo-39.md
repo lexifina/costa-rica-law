@@ -1,0 +1,2 @@
+Artículo 39.- Acceso y custodía de la información
+El auditor interno definirá formalmente lineamientos para custodiar la documentación de los productos de los servicios de Auditoría Interna y los niveles de acceso a la misma, considerando lo que al respecto disponen la Ley General de Control Interno, la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, la Ley General de Administración Pública.

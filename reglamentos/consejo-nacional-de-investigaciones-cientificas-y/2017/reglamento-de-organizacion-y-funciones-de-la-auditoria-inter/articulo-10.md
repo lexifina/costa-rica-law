@@ -1,0 +1,2 @@
+Artículo 10.- Estructura organizativa de la Auditoría Interna del Conicit
+La Auditoría Interna se organizará conforme lo disponga el auditor interno a la luz del artículo 23 de la Ley General de Control Interno. Esta debe ser concordante con la razón de ser y la normativa que regula la Institución, a efecto de garantizar la administración eficaz, eficiente y económica de los recursos asignados, así como el cumplimiento de sus obligaciones legales y técnicas.
