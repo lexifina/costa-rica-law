@@ -1,0 +1,3 @@
+CAPÍTULO QUINTO
+Indicadores particulares para servicios de voz
+Artículo 34. Alcance. Los indicadores contenidos en el presente capítulo son aplicables a todos los servicios de voz incorporados dentro de este reglamento, incluyendo servicios de telefonía fija y servicios de telefonía móvil, independientemente de la tecnología utilizada para brindar estos servicios. Debido a su condición de operadores virtuales, los OMV no están en la obligación de aportar la información correspondiente a los indicadores de este capítulo, sin que esto constituya un eximente de responsabilidad de los OMV de cara al usuario final.

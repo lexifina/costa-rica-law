@@ -1,0 +1,8 @@
+Artículo 32. Disponibilidad del servicio asociada a la red de núcleo o “core” (IC-7). La disponibilidad del servicio asociada a la red núcleo o “core” (IC-7), será medida como la razón porcentual entre la cantidad de horas de disponibilidad mensual del servicio asociada a la red de núcleo, con respecto a la cantidad de horas del mes correspondiente, de acuerdo con la siguiente fórmula:
+[imagen]
+El total de horas de disponibilidad del servicio asociada a la red de núcleo o “core” se obtiene de restar el tiempo de no disponibilidad del servicio por interrupciones de la red núcleo, al tiempo total de horas del mes correspondiente.
+Las estadísticas de la disponibilidad de la red núcleo o “core” (IC-7) deben ser calculadas por los operadores/proveedores de forma mensual, quienes deberán reportarlas a la SUTEL trimestralmente de manera desagregada por área de prestación, por evento y servicio siguiendo los formatos dispuestos por la SUTEL. Los operadores/proveedores deben contar con sistemas de gestión para contabilizar de forma continua el tiempo de disponibilidad de la red de núcleo o “core”.
+En caso que el valor de IC-7 sea superior o igual al umbral que establezca la SUTEL, el cumplimiento de este indicador será del 100%; en caso contrario, el cumplimiento de este indicador se calculará de la siguiente forma:
+[imagen]
+En la formula anterior la abreviatura FR se refiere a Factor de Rigurosidad, y su valor se indica en el artículo 47 del presente reglamento.
+La información relacionada con este indicador común (IC-7) deberá ser proporcionada a la SUTEL por los OMR, sin que esto signifique un eximente de responsabilidad de cara al usuario por parte de los OMV.

@@ -1,0 +1,6 @@
+Artículo 40. Porcentaje de llamadas interrumpidas (IM-13). El porcentaje de llamadas interrumpidas (IM-13), para el cual se toma como referencia la norma ETSI EG 202 057-3, evalúa la retenibilidad del servicio móvil y será medido como la razón porcentual de llamadas entrantes y salientes, las cuales, una vez que han sido correctamente establecidas y por consiguiente tienen asignado un canal de comunicación, se caen o interrumpen antes de su terminación normal por parte del usuario, siendo dicha terminación temprana causada por la red del operador. Esta razón está dada por la siguiente ecuación:
+[imagen]
+Las estadísticas de llamadas interrumpidas deben reflejar adecuadamente las variaciones de tráfico a lo largo de las horas del día, los días de la semana y los meses del año, de acuerdo con los procedimientos de medición que adopte la SUTEL.
+En caso que el valor de IM-13 sea inferior o igual al umbral que establezca la SUTEL, el cumplimiento de este indicador será del 100%; en caso contrario, el cumplimiento de este indicador se calculará de la siguiente forma:
+[imagen]
+En la formula anterior la abreviatura FR se refiere a Factor de Rigurosidad, y su valor se indica en el artículo 47 del presente reglamento.

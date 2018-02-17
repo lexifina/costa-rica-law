@@ -1,0 +1,14 @@
+Artículo 33. Calidad de servicio percibida por el usuario (IC-8). La calidad de servicio percibida por el usuario (IC-8) será medida a partir de la calificación obtenida como resultado de la aplicación de al menos una encuesta anual efectuada por el operador/proveedor de servicios, para conocer la calidad de servicio percibida por el usuario respecto de cada uno de los servicios de telecomunicaciones comercializados por el operador/proveedor, y toma como referencia las normas ETSI EG 202 057-1 y ETSI EG 202 009-2.
+Las encuestas realizadas deben considerar, como mínimo, los siguientes aspectos en la medición de la percepción de la calidad por parte de los usuarios:
+1. Atención presencial: incluye el trato y profesionalismo que se le brinde al cliente de manera presencial sobre sus requerimientos, consultas y trámites.
+2. Atención remota: incluye el trato y profesionalismo que se le brinde al cliente vía telefónica, a través de chats en línea, correo electrónico u otro medio de atención no presencial, sobre sus requerimientos, consultas y trámites.
+3. Información sobre el servicio: incluye la asesoría que se le brinde al usuario al adquirir los servicios, proporcionándole información veraz, expedita y adecuada sobre la prestación del servicio, los costos asociados, indicadores de calidad, características generales, condiciones de uso, entre otros.
+4. Entrega del servicio: satisfacción del cliente respecto a la entrega oportuna y con las condiciones pactadas del servicio.
+5. Funcionamiento del servicio: grado de satisfacción en cuanto a la calidad en el funcionamiento del servicio, desde la perspectiva del usuario.
+Las encuestas realizadas deben contener un método de evaluación de los resultados para cada parámetro con la ponderación respectiva que permita obtener un resultado final del grado de satisfacción del cliente o usuario y la percepción general de la calidad de los servicios que se le brindan.
+La ponderación de los parámetros evaluados, los cuestionarios utilizados, así como la metodología de aplicación de la encuesta deberán presentarse a la SUTEL con una antelación mínima de dos meses a la fecha prevista de su aplicación, para su respectiva aprobación.
+En caso que los operadores/proveedores no realicen cambios a la ponderación de los parámetros evaluados, los cuestionarios utilizados, así como la metodología de aplicación de la encuesta aprobada anteriormente por la SUTEL, bastará con informar al ente regulador de la realización de las encuestas cinco días naturales de previo a su aplicación.
+En caso que el operador realice más de una encuesta anual, el resultado final del IC-8 será el promedio simple de las evaluaciones de las diferentes encuestas.
+El cumplimiento de este indicador se calculará de la siguiente forma:
+[imagen]
+En la formula anterior la abreviatura FR se refiere a Factor de Rigurosidad, y su valor se indica en el artículo 47 del presente reglamento.

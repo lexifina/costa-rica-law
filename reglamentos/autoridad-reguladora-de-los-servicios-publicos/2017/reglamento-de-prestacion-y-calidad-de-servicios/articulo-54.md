@@ -1,0 +1,1 @@
+Artículo 54: Derogatoria. Una vez entrado en vigencia el presente reglamento, se deroga el Reglamento de prestación y calidad de los servicios aprobado por la Junta Directiva de la Autoridad Reguladora de los Servicios Públicos, mediante acuerdo 003-23-2009, de la sesión extraordinaria 23-2009, celebrada el [SIC]

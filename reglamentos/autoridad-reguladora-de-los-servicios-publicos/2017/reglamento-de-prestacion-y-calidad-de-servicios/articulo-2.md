@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de Aplicación. Están sometidas al presente reglamento y a la jurisdicción costarricense, las personas físicas o jurídicas, públicas o privadas, nacionales o extranjeras que cuenten con un título habilitante otorgado dentro del territorio nacional; operadores y proveedores de servicios de telecomunicaciones.
