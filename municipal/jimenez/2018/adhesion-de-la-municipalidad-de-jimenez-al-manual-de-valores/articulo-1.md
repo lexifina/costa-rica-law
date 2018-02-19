@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE JIMÉNEZ
+La Alcaldía de la Municipalidad de Jiménez autoriza la adhesión a la publicación hecha por el órgano de Normalización Técnica (ONT) del Ministerio de Hacienda del Manual de valores Base Unitarios por Tipología Constructiva del año 2017, publicado en el Alcance Digital N° 288 de La Gaceta N° 226 del 29 de noviembre del 2017, así como todas las adendas que el ONT emita con el afán de corregir y/o aclarar los contenidos de dicho manual, el cual se utilizará en el cálculo de los valores unitarios de construcciones y/o instalaciones de los predios del cantón y estimar el monto correspondiente por concepto de impuesto sobre bienes inmuebles
+Juan Viñas, 8 de febrero del 2018.
