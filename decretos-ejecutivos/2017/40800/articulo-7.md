@@ -1,0 +1,1 @@
+Artículo 7.- Secretaría Técnica. La Secretaría Técnica estará a cargo de la Dirección de Desarrollo Científico y Tecnológico en Salud del Ministerio de Salud. Será un órgano de coordinación, dinamización y apoyo informativo para el Consejo Técnico, en apoyo al Grupo Técnico.
