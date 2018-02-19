@@ -22,13 +22,13 @@ Trabajadores Especializados | ¢13.141,39
 A los trabajadores que realicen labores ya reconocidas como pesadas, insalubres o peligrosas y las que llegasen a ser determinadas como tales por el organismo competente, se les fijará un salario por hora equivalente a la sexta parte del salario fijado por jornada para el trabajador no calificado.
 Las ocupaciones en Pesca y Transporte acuático, cuando impliquen imposibilidad para el trabajador de regresar al lugar de partida inicial al finalizar su jornada ordinaria, tienen derecho a la alimentación.
 1 B- GENÉRICOS (por mes)
-Trabajadores no Calificados | ¢ 300.255.79
+Trabajadores no Calificados (Nota de Sinalevi: Mediante el punto 2° de la resolución N° CNS-RG-1-2018 publicada en el Alcance Digital N° 69 a La Gaceta N° 59 del 5 de abril del 2018 se establece lo siguiente: “Se acuerda por unanimidad ubicar el puesto de circuladores de periódicos en la Clasificación de Trabajador No Calificado Genérico, tal como lo definen los perfiles ocupacionales para el puesto de mensajero, considerando el estudio técnico elaborado por el Departamento de Salarios Mínimos.”) | ¢ 300.255.79
 Trabajadores Semicalificados | ¢ 323.028.23
 Trabajadores Calificados | ¢ 339.572.06
 Técnicos Medios de Educación Diversificada | ¢ 355.847.32
 Trabajadores Especializados | ¢ 381.335.61
 En todo caso en que por disposición legal o administrativa se pida al trabajador determinado título académico de los aquí incluidos, se le debe pagar el salario mínimo correspondiente, excepto si las tareas que desempeña están catalogadas en una categoría ocupacional superior de cualquier capítulo salarial de este Decreto, en cuyo caso regirá el salario de esa categoría y no el correspondiente al título académico.
-Los salarios para profesionales aquí incluidos rigen para aquellos trabajadores debidamente incorporados y auto1izados por el Colegio Profesional respectivo, con excepción de los trabajadores y profesionales en enfem1ería, quienes se rigen en esta materia por la Ley Nº 7085 del 20 de octubre de 1987 y su Reglamento.
+Los salarios para profesionales aquí incluidos rigen para aquellos trabajadores debidamente incorporados y auto1izados por el Colegio Profesional respectivo, con excepción de los trabajadores y profesionales en enfermería, quienes se rigen en esta materia por la Ley Nº 7085 del 20 de octubre de 1987 y su Reglamento.
 Los profesionales contratados en las condiciones señaladas en los dos párrafos anteriores, que estén sujetos a disponibilidad, bajo los límites señalados en el artículo 143 del Código de Trabajo, tendrán derecho a percibir un 23% adicional sobre el salario mínimo estipulado según su grado académico de Bachilleres o Licenciados universitarios.
 C-RELATIVO A FIJACIONES ESPECÍFICAS
 Recolectores de café (por cajuela) | ¢957,92
@@ -40,4 +40,4 @@ Estibadores por movimiento | ¢364,49
 | |
 1 De conformidad con la clasificación aprobada en Acta 4185 del 11 de diciembre de 1995, modificada en Acta 4928 del 1 de noviembre del 2006.
 Los portaloneros y los wincheros devengan un salario mínimo de un 10% más de estas tarifas. Taxistas en participación, devengan el 30% de las entradas brutas del vehículo. En caso de que no funcione o se interrumpa el sistema en participación, el salario no podrá ser menor de once mil ochocientos noventa y siete colones con cincuenta y un céntimos (¢ 11.897 .51) por jornada ordinaria.
-Circuladores de pe1iódicos, el 15% del valor de los periódicos de edición diaria que distribuyan o vendan.
+(Eliminado el último párrafo del presente artículo por punto 1° de la resolución N° CNS-RG-1-2018 publicada en el Alcance Digital N° 69 a La Gaceta N° 59 del 5 de abril del 2018)
