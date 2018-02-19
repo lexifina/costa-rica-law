@@ -1,1 +1,0 @@
-Artículo 31.-Las disposiciones contenidas en el presente reglamento son aplicables a todos los funcionarios que en razón de sus cargos, usen, controlen y administren los recursos de transporte de la Municipalidad, incluyendo al Alcalde y los miembros del Concejo.

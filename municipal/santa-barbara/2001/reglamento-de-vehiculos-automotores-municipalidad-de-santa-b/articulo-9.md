@@ -1,2 +1,0 @@
-Artículo 9°-La Proveeduría o el Bodeguero deberá reportar al Alcalde Municipal mensualmente y en los formularios que al efecto se crearen, el consumo de combustible, lubricantes, repuestos y tros [SIC] accesorios de consumo de cada uno de los vehículos de la Municipalidad, con el objeto de evaluar su rendimiento.
-Este control tiene como objeto el evitar la pérdida o mal uso de tales implementos así como su recuperación oportuna en caso de extravío.

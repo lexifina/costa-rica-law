@@ -1,1 +1,0 @@
-Artículo 34.-EI presente reglamento deroga toda disposición de cualquier índole que se le oponga. Se presumirá de conocimiento de los usuarios de los vehículos municipales y será de observancia obligatoria para todos. Cualquier reforma o adición a este reglamento será aprobada por el Concejo.

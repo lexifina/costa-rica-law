@@ -1,1 +1,0 @@
-Artículo 32.-EI incumplimiento de las disposiciones comprendidas en este reglamento será sancionado con una amonestación, suspensión o el despido según la magnitud de la falta de acuerdo con lo que establece el Reglamento Interior de Trabajo y las leyes laborales conexas, sin perjuicio de lo dispuesto en la Ley de Tránsito.

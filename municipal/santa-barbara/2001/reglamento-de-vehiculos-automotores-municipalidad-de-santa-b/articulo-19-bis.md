@@ -1,2 +1,0 @@
-Artículo 19 BIS.—En casos de excepción, los vehículos municipales podrán ser utilizados por otros gobiernos locales, dependencias estatales, instituciones centralizadas o descentralizadas. Salvo norma expresa en contrario, el beneficiario asume la responsabilidad de su operación. En caso de pérdida total, por accidente o robo, los costos corresponden al beneficiario. El Alcalde será el encargado de autorizar el préstamo y establecer las condiciones del mismo.
-(Así adicionado en sesión N° 257 del 27 de abril de 2015)

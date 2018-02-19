@@ -1,2 +1,0 @@
-Artículo 17-Solo en casos excepcionales y con autorización del Alcalde, un funcionario o empleado de la Municipalidad, podrá llevarse un vehículo municipal para su casa al finalizar la jornada de trabajo o en fines de semana y días feriados, quedando a la exclusiva responsabilidad del Alcalde la procedencia de dicha autorización. No obstante, ello no exime al funcionario de la obligación de velar porque el vehículo esté en un lugar que reúna los requisitos de seguridad indispensables.
-(Así reformado en sesión N° 257 del 27 de abril de 2015)
