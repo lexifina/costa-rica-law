@@ -1,0 +1,2 @@
+Artículo 3°- Adiciónese el siguiente artículo y que a partir del mismo se corra la numeración:
+“Artículo 26°.- Instruir a los Comités Intersectoriales Regionales Sociales, instancia de los COREDES, para que incluyan en sus agendas regulares la coordinación de acciones y seguimiento de procesos a nivel regional, atención de procesos colectivos de nivel local, búsqueda activa de propuestas para la atención de necesidades de las familias de la región y definición de acciones regionales para la implementación de la Estrategia Puente al Desarrollo.”
