@@ -1,0 +1,2 @@
+Artículo 24 bis.—Sospechas de violencia contra la persona menor de edad. Con fundamento en el principio de interés superior del niño y la niña, y el artículo 49 del Código de la Niñez y la Adolescencia, el personal docente se encuentra en la obligación de denunciar ante el Ministerio Público, cualquier sospecha razonable de maltrato o abuso cometido contra la persona menor de edad usuaria de los servicios prestados en el Centro.
+(Así adicionado en sesión N° 12 del 19 de febrero de 2018)
