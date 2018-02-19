@@ -1,2 +1,3 @@
-Artículo 14.—La violación a lo dispuesto en este capítulo, dará lugar al cierre del local o la imposibilidad de comerciar ambulantemente medidas que se ejecutarán por medio de las autoridades de policía.
+Artículo 14.-La violación a lo dispuesto en este capítulo, dará lugar al cierre del local o la imposibilidad de comerciar ambulantemente medidas que se ejecutarán por medio de las autoridades de policía.
 La licencia caducará cuando se abandone la actividad y así sea comunicado en forma escrita al Departamento de Patentes por el interesado, tratándose de comercio o industrias temporales.
+(Nota de Sinalevi: Mediante sesión N° 90 del 19 de febrero del 2018, se acordó modificar este numeral. Al no ser clara la reforma, se transcribe la misma: ".3º-Que asimismo la reforma modifca el Artículo 14 para que en lo sucesivo disponga lo siguiente: "Se presentará un formulario" y el resto del texto permanece igual")
