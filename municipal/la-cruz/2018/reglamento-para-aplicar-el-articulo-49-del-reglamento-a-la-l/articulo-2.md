@@ -1,0 +1,1 @@
+Artículo 2º—Ningún canon anual a pagar por parte de los concesionarios y/o permisionarios de la Zona Marítimo Terrestre podrá ser menor al cuarto por ciento (0.25%) del monto del avalúo correspondiente, sin perjuicio de lo establecido en el inciso c) del artículo 6° de la Ley N° 7509 del nueve de mayo de 1995, Ley de Impuesto sobre Bienes Inmuebles, sus reformas y su reglamento.

@@ -1,0 +1,1 @@
+Artículo 8º—El presente Reglamento es de aplicación sólo para el Plan Regulador Integral Sector Costero Acantilados al norte de Playa El lobo —Punta Manzanillo, actualmente vigente, que se aplica en la Zona Marítimo Terrestre en la jurisdicción de la Municipalidad de La Cruz.
