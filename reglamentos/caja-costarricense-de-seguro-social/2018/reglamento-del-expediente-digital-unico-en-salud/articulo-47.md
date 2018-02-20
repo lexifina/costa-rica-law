@@ -1,0 +1,2 @@
+Artículo 47: Autorización para la inhabilitación de datos en EDUS
+La eventual inhabilitación selectiva de datos contenidos en las bases del EDUS, se regirá por la “Tabla de plazos para la inhabilitación de datos en el EDUS” aprobada para tal efecto en coordinación con la Comisión Institucional de Selección y Eliminación de Documentos, conforme con lo establecido al efecto por la Ley del Sistema Nacional de Archivos N° 7202 y su Reglamento.

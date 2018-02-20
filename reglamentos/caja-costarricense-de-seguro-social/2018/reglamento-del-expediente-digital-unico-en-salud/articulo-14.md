@@ -1,0 +1,2 @@
+Artículo 14: Identificación de los registros
+Toda actividad realizada en alguno de los Sistemas de Información EDUS debe quedar suscrita por el responsable o los responsables dentro del proceso de atención, con indicación de su nombre y cédula de identidad o DIMEX, código o número de carné del colegio profesional, si lo tuviera y la especialidad, disciplina o título profesional que ostente el responsable, nombre del establecimiento, servicio, especialidad, hora y fecha de la anotación, esto en ausencia de la firma digital certificada.

@@ -1,0 +1,2 @@
+Artículo 42: Integración del historial clínico
+La eventual integración del historial clínico de la persona, existente en medio físico o automatizado diferente del EDUS, dependerá de la calidad de los registros, la normativa que se defina, los medios tecnológicos a disposición, los costos involucrados y los procedimientos que establezcan las unidades competentes por parte de las Gerencias Médica y de Infraestructura y Tecnología.

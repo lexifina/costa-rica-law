@@ -1,0 +1,2 @@
+Artículo 55: Otra regulación relativa
+Cada Sistema de Información del EDUS deberá disponer de los manuales operativos necesarios para el adecuado funcionamiento y regulación, manteniendo concordancia con los lineamientos normativos relativos a la identificación, integridad, completitud, acceso, divulgación de datos y cualquier otro definido para salvaguardar el uso de la información en el proceso de toma de decisiones clínicas y administrativas.

@@ -1,0 +1,2 @@
+Artículo 31: De la completitud e integridad del registro clínico
+Es responsabilidad del usuario del EDUS dedicado a la prestación de servicios asegurar que la información ingresada en los aplicativos informáticos utilizados esté completa, integra y suficiente para la continuidad de la atención del paciente o usuario titular de la CAJA en apego a los protocolos y guías clínicas que regulan la atención. En aras de brindar una adecuada atención en salud, en protección tanto de los intereses del usuario y de la Institución.

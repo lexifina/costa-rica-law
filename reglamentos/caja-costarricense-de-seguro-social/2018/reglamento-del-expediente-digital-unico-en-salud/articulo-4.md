@@ -1,0 +1,2 @@
+Artículo 4: Ámbito de aplicación
+Las disposiciones del presente Reglamento son irrenunciables y de aplicación obligatoria para todo usuario del EDUS o empleado de entidad externa proveedora de servicios de salud que mediante contrato, convenio u otra forma de relación legítima con ésta, este autorizada para incluir o acceder a los datos contenidos en el EDUS. Así como para los usuarios que acceden a los servicios de salud en la CAJA.

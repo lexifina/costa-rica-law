@@ -1,0 +1,2 @@
+Artículo 30: De la completitud e integridad del registro administrativo
+Es responsabilidad del personal de REDES y los demás usuarios del EDUS que por la naturaleza de sus funciones les correspondan realizar el registro de datos administrativos de las personas, velar por el adecuado, completo e integral registro de los datos de las personas en el EDUS, velar por la calidad, actualización y veracidad del registro, según lo establecido en los procesos de adscripción e identificación de los usuarios.

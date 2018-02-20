@@ -1,0 +1,2 @@
+Artículo 22: Condiciones necesarias para el uso del EDUS
+La CAJA en conjunto con la Dirección de los establecimientos de salud tendrá la responsabilidad de velar por que en el establecimiento de salud existan las condiciones necesarias, tanto de equipamiento, medios de conexión y otros que el uso del EDUS requiera para su adecuado funcionamiento. Y que dichos elementos estén a disposición de los usuarios del EDUS en el proceso de atención en salud de las personas.

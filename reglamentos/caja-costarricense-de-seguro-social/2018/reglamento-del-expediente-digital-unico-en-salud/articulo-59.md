@@ -1,0 +1,2 @@
+Artículo 59: Medios de acceso para el usuario titular de los datos
+El responsable de la administración del Sistema de Información EDUS comunicará en los establecimientos de salud, la forma de acceder a los datos contenidos en el sistema por parte del titular de éstos y de terceros autorizados; así como los medios para la transferencia de los datos y requisitos correspondientes, con base en la clasificación de la información y su nivel de confidencialidad.

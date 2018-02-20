@@ -1,0 +1,3 @@
+Artículo 5: Sostenibilidad del EDUS
+La CAJA por medio de las diferentes Gerencias, definirá las estrategias necesarias para garantizar un adecuado proceso de sostenibilidad de los sistemas de información que conforman el EDUS en la operación ordinaria de la Institución, en concordancia con la gestión clínica del paciente considerada en el artículo número 36 de este reglamento.
+Deberá considerarse dentro los aspectos de sostenibilidad, los ajustes para el fortalecimiento de la organización, en los recursos que correspondan en función de las necesidades y evolución del Expediente Digital Único de Salud.

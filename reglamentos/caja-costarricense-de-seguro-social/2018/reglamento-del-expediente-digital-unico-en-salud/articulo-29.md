@@ -1,0 +1,3 @@
+Capítulo V: De los Responsables de la Atención
+Artículo 29: Del uso de los sistemas automatizados
+Todo usuario del EDUS dedicado a la prestación de servicios en salud y funciones de tipo administrativo, incluidos los modelos alternativos y proveedores de servicios externos a nombre de la Institución tienen la responsabilidad de registrar y actualizar las anotaciones pertinentes que respalden la atención de los usuarios de los servicios de salud de la CAJA, de conformidad con los principios científicos, técnicos y éticos que sustentan la práctica de prestación en salud y la profesión en cada disciplina en salud, en los aplicativos institucionales aprobados para tal efecto, respetando un llenado completo de los mismos.

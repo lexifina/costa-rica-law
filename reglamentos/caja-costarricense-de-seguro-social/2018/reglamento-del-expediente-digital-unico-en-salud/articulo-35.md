@@ -1,0 +1,3 @@
+Artículo 35: Comité técnico en apoyo EDUS
+Dependencia técnica de carácter auxiliar, temporal y, de apoyo, mismo formalmente conformado por parte de la unidad responsable de la administración del Sistema de Información del EDUS, dicho comité es encargado de emitir un determinado criterio de experto o de instrumentar cambios y procesos relacionados con el expediente de salud de conformidad con el o los objetivos establecidos en el acto administrativo mediante el cual se les designe. En todos los casos tendrá representación del AES conforme lo indicado en el artículo 7 de este reglamento.
+La descripción correspondiente a las funciones y forma de trabajo están consideradas en el Manual Operativo de este Reglamento.

@@ -1,0 +1,2 @@
+Artículo 11: Uso de firma digital
+El uso de la firma digital estará regulado conforme con lo establecido en la Ley 8454, Ley de Certificados, Firmas Digitales y Documentos Electrónicos, y el Reglamento de Firmas Digitales y Firmas Digitales Certificadas de la Caja Costarricense de Seguro Social, aprobado en el artículo 51° de la sesión Nº 8816, celebrada el 10 de diciembre del año 2015, publicado en “La Gaceta” Nº 15 del 22 de enero del año 2016. El uso de la firma digital certificada será sujeto a los lineamientos establecidos institucionalmente para tales efectos.

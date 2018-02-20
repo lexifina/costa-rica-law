@@ -1,0 +1,2 @@
+Artículo 23: Completitud de los registros
+Todos los usuarios del EDUS que participan en el proceso de atención de la salud de las personas son responsables de realizar el debido registro en el EDUS, velar por la calidad y veracidad del registro, según el ordenamiento dispuesto en este para tal fin, de forma que quede evidencia clara y fidedigna de todos los actos relacionados con la atención en salud que se realiza a las personas.

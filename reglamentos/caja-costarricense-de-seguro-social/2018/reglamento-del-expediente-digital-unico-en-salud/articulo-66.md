@@ -1,0 +1,2 @@
+Artículo 66: Administrador de aplicativo EDUS
+El administrador o responsable de un aplicativo EDUS tendrá dentro de sus funciones el coordinar activamente el desarrollo, mantenimiento y evolución de la solución informática de acuerdo con los requerimientos identificados, valorar la viabilidad técnica en apego a las normas y protocolos, monitoreando el avance y cumplimiento de los requerimientos en tiempo y forma así como la coordinación con el AES la necesidad de acceder a datos generados por otros Sistemas de Información del EDUS, respecto a su integración.

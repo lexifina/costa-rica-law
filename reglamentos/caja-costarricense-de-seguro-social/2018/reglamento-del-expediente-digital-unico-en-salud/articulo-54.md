@@ -1,0 +1,3 @@
+Artículo 54: Solicitudes de datos con identificación nominal
+Las solicitudes de datos con identificación nominal deben presentarse ante la máxima autoridad del establecimiento de salud para su debida autorización, toda vez que priva la confidencialidad de acuerdo con lo definido en los artículos 3 y 7 de la Ley de Protección de la Persona Frente al Tratamiento de sus Datos Personales (Ley 8968), el artículo 11 de la Ley 9162 del Expediente Digital Único en Salud y lo establecido en la Ley del Sistema de Estadísticas Nacionales. Considerando las excepciones dadas en el artículo 5 de este reglamento.
+Deberá conservarse la solicitud escrita, la autorización del titular y la constancia de envío y recepción a conformidad por el plazo de 10 años a partir de su recibo.

@@ -1,0 +1,2 @@
+Artículo 57: Acceso irrestricto
+La información contenida en el EDUS solo puede ser accedida en forma irrestricta por el usuario titular de la CAJA a partir de los doce años de edad, salvo que exista alerta médica en el sistema para que el acceso se brinde con apoyo de un profesional en salud calificado, sustentada en el bienestar emocional y físico del titular. Cuando el usuario titular de la CAJA en el EDUS sea un menor de doce años o incapaz, el acceso irrestricto a éstos corresponderá a sus representantes legales.

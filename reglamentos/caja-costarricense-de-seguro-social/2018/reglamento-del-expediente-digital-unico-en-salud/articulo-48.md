@@ -1,0 +1,2 @@
+Artículo 48: Inscripción de base de datos en Prodhab
+La inscripción de las bases de datos ante la Agencia de Protección de Datos de los Habitantes (Prodhab), conforme con lo establecido en el artículo 21 de la Ley de Protección de la Persona Frente al Tratamiento de sus Datos Personales y el artículo 44 de su Reglamento, formarán parte del trámite integral a cargo de la Gerencia Médica y Gerencia de Infraestructura y Tecnología y sus respectivas áreas técnicas según corresponda.

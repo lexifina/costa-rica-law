@@ -1,0 +1,2 @@
+Artículo 40: Oportunidad del registro
+El registro de datos en el EDUS deberá realizarse de forma oportuna y de acuerdo a la etapa del proceso de atención del usuario titular de la CAJA salvo cuando no existan medios para ello, ante lo cual, el registro deberá ser realizado por el profesional o técnico a cargo del proceso de atención de conforme se describe en el Manual Operativo de este Reglamento, y en cumplimiento a las medidas de seguridad que se encuentran establecidas a nivel institucional.

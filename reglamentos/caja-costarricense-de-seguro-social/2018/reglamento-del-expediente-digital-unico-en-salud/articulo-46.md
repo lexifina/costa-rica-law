@@ -1,0 +1,2 @@
+Artículo 46: Reactivación de datos clasificados como inactivos
+Los datos clasificados como pasivos en el EDUS solo podrán ser reclasificados a activos cuando el usuario titular de la CAJA requiera nuevamente de atención y cuando se comprobare un error de identificación de la persona viva o declarada como fallecida, siendo ésta la causa por la cual se clasificó el expediente como pasivo o inactivo. En tales casos, el funcionario de REDES facultado para ello, procederá conforme al procedimiento establecido en el Manual Operativo de este Reglamento.

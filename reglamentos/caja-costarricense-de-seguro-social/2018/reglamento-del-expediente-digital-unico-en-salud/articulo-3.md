@@ -1,0 +1,2 @@
+Artículo 3: Objetivo
+Este Reglamento regula la correcta ejecución de la Ley del Expediente Digital Único de Salud (EDUS), Nº 9162 así como el desarrollo, la implementación, la sostenibilidad y el tratamiento de los datos contenidos en los diferentes Sistemas de Información del EDUS, en protección y tutela de los derechos de la persona titular de éstos, de los integrantes del equipo técnico, profesionales en salud y de la misma Institución.

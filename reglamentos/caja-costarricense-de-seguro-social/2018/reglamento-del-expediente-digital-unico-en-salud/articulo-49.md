@@ -1,0 +1,2 @@
+Artículo 49: Conservación de piezas físicas
+La custodia y conservación de las piezas físicas no digitalizadas o conservadas electrónicamente, vinculadas con las bases de datos del EDUS mediante el número de identificación del usuario titular de la CAJA o llave primaria, será competencia de la dependencia de REDES especializada, conforme con la normativa que regula la custodia y conservación del expediente de salud en formato físico, respetando los plazos definidos para tal fin.

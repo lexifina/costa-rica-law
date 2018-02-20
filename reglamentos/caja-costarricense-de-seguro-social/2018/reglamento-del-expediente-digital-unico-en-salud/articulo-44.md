@@ -1,0 +1,2 @@
+Artículo 44: Bitácora por usuario
+Todo usuario de los aplicativos EDUS, sin distingo alguno, es responsable directo de la custodia e integridad de los datos que el mismo contiene, durante el tiempo que lo tenga en uso. Queda prohibido utilizar procedimientos de acceso, registro, modificación o eliminación de datos no autorizados o incompatibles con el nivel de acceso asignado. A tal efecto, la bitácora del EDUS registrará toda actividad ejecutada por el usuario.

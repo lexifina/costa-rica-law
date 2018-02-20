@@ -1,0 +1,2 @@
+Artículo 52: Estadísticas oficiales
+Los datos estadísticos oficiales derivados de la atención en salud a las personas que emita el EDUS, serán los que defina el AES, en razón de su competencia técnica en la rectoría y administración del sistema de estadísticas de salud. En ningún caso, los datos estadísticos contendrán el número de identificación, nombre y apellidos de los usuarios de los servicios de salud de la CAJA, en protección del principio de confidencialidad.

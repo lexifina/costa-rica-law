@@ -1,0 +1,5 @@
+Capítulo VII: De la Transferencia de Datos
+Artículo 56: Integración de datos de atención en salud dentro de la CAJA
+Los datos derivados de la atención de los pacientes y que se encuentren registrados en el EDUS deberán estar disponibles de forma automática para ser consultados por los usuarios del EDUS en virtud de su competencia y nivel de acceso asignado.
+La comunicación de datos entre los Sistemas de Información que conforman el EDUS deberá estar debidamente registrado y avalado por los respectivos administradores de los Sistemas de Información involucrados, esto en aras de mantener el control de acceso a los Sistemas de Información y el tipo de información que solicita o recibe de cada Sistema de Información que conforma el EDUS.
+En todos los Sistemas de Información que conforman el EDUS, se utilizará la identificación del paciente como identificador único de correlación de datos, facilitando la trazabilidad de los pacientes dentro del Sistema EDUS y siguiendo el modelo de datos autorizado según se indica en el Manual Operativo de este Reglamento.

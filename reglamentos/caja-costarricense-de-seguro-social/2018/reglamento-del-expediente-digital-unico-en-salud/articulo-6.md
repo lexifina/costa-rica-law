@@ -1,0 +1,2 @@
+Artículo 6: Consentimiento expreso
+Como excepción al consentimiento expreso, los datos que se recopilen en el EDUS, no requiere del consentimiento del titular o su representante legal; de conformidad con lo establecido en el artículo 8 incisos d), e) y f) de la Ley de Protección de la Persona Frente al Tratamiento de sus Datos Personales, N° 8968 y en el artículo 5 de la Ley General de Salud N° 5395.

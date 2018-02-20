@@ -1,0 +1,2 @@
+Artículo 74: Excepciones a documentos físicos
+En ausencia de medios tecnológicos para la integración o digitalización del resultado de exámenes o procedimientos relacionados con la atención al EDUS, sus originales deberán ser conservados en el expediente físico existente o abierto para tales efectos, en cuyo caso, la custodia, conservación y eventual destrucción se realizará con observación de lo establecido en la normativa del expediente físico.

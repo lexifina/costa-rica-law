@@ -1,0 +1,2 @@
+Artículo 65: Calidad en el desarrollo y mantenimientos
+La Dirección de Tecnologías de Información y Comunicación deberá cumplir con los criterios técnicos y normativos, que para tal efecto se establezcan en los ámbitos tecnológico, científico, ético, legal y administrativo, en aras de garantizar la integridad, confidencialidad, seguridad y disponibilidad en el uso, manejo, archivo, conservación y propiedad de los datos contenidos en éste.
