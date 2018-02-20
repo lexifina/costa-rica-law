@@ -1,0 +1,2 @@
+ARTÍCULO 5.- Efectos del compromiso arbitral.
+Una vez suscrito el compromiso, el Tribunal será el único competente para conocer del conflicto. El compromiso faculta a las partes para interponer la excepción previa de compromiso arbitral de conformidad con lo dispuesto en el artículo 503 inciso 1) del Código de Trabajo, si su contraparte o contrapartes acuden a la jurisdicción laboral común para resolver ese mismo conflicto.

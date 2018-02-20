@@ -1,0 +1,3 @@
+ARTÍCULO 40.- Recursos contra el laudo.
+Contra el laudo cabrá únicamente Recurso de Casación ante la Sala Segunda de la Corte Suprema de Justicia, por vicios de orden formal o por conculcación de derechos indisponibles, el cual deberá interponerse dentro del plazo de diez días que señala el artículo 586 del Código de Trabajo.
+Si procediera el recurso por la forma, la Sala reenviará el proceso nuevamente al Tribunal para que repita el juicio arbitral y dicte un nuevo laudo, para lo cual los integrantes del Tribunal no tendrán derecho a cobrar honorarios adicionales. Si la Sala comprobara la violación de derechos indisponibles, realizará en la misma sentencia, la reposición que corresponda, cuando sea procedente.

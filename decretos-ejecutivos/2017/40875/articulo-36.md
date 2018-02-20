@@ -1,0 +1,5 @@
+CAPÍTULO QUINTO
+El Laudo
+ARTÍCULO 36.- Dictado del laudo.
+Finalizada la fase de conclusiones, el Tribunal deliberará y dictará la parte dispositiva del laudo de inmediato, de forma oral, debiendo señalarse, en ese mismo acto, la hora y fecha, dentro de los cinco días siguientes, para la incorporación al expediente y entrega a las partes del texto integral del fallo, el cual será escrito. Cuando se utilice tecnología electrónica, el fallo deberá documentarse en el respaldo correspondiente, de manera que se pueda reproducir de forma escrita o entregarse a la parte por otro medio. En procesos complejos o con abundante prueba podrá postergarse por ese mismo lapso, improrrogablemente, el dictado completo de la sentencia, incluida su parte dispositiva. Los votos de minoría en tribunales colegiados deberán consignarse dentro de esos mismos términos y, si así no se hiciera, se tendrán por no puestos de pleno derecho.
+Cuando todas las partes se manifiesten satisfechas con la sentencia en su parte dispositiva, podrán relevar al Tribunal de la redacción de las otras partes de esa resolución, debiéndose dejar constancia, de forma expresa, de esa conformidad.

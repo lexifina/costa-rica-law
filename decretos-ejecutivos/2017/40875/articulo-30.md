@@ -1,0 +1,2 @@
+ARTÍCULO 30.- Demanda defectuosa.
+Si la demanda o la contrademanda tuvieren defectos que impiden su trámite o son omisas en los requisitos mínimos señalados para la solicitud de arbitraje, se prevendrá al interesado subsanarlo en el término de cinco días. De no subsanarse el defecto, se tendrá por no presentada la demanda o contrademanda. En el primer caso, se archivará el proceso sin pronunciamiento de fondo.

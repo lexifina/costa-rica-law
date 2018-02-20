@@ -1,0 +1,2 @@
+ARTÍCULO 17.- Comunicaciones procesales y notificaciones.
+Las comunicaciones procesales y notificaciones podrán hacerse por cualquier medio que permita determinar con certeza la fecha de su recepción por parte del destinatario, incluyendo medios electrónicos, facsímile, entrega personal en la residencia de la persona física o representante de la persona jurídica, sede empresarial, domicilio social o domicilio contractual.

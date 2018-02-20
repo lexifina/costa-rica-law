@@ -1,0 +1,2 @@
+ARTÍCULO 39.- Adiciones y correcciones.
+Dentro de los tres días siguientes a la notificación del laudo, las partes podrán pedir adiciones, aclaraciones o la corrección de errores materiales. Si resulta procedente, el Tribunal deberá adicionar, aclarar o corregir el laudo dentro de los diez días siguientes a la presentación de la solicitud. La falta de pronunciamiento en ese plazo presume su rechazo, sin perjuicio de la responsabilidad que incumba a los miembros del Tribunal por su omisión.
