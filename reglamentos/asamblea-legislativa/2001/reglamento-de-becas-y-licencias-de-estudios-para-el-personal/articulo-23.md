@@ -1,1 +1,0 @@
-ARTÍCULO 23.- De la liberación de las obligaciones. Transcurrido un año desde que adquirió la condición de graduado sin que la Asamblea Legislativa lo ubique en un puesto de nivel profesional, el becario queda liberado de la obligación señalada en el artículo 19 del presente Reglamento.
