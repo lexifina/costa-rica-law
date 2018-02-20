@@ -1,0 +1,1 @@
+Artículo 25. Foro de Juventudes. Con el propósito de fortalecer la participación y el empoderamiento de las personas jóvenes y abrir un espacio de escucha y diálogo que contribuya con el proceso de toma de decisiones en el marco del Programa, en congruencia con los enfoques y principios de El Modelo, cada CCP promoverá la conformación de un Foro de Juventudes.

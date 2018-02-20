@@ -1,0 +1,1 @@
+Artículo 23. Integración. Este Comité estará integrado por el/la Administrador/a, quien lo presidirá, el/la Coordinador/a Programático y el personal Administrativo de las Entidades Participantes que aporten a la sostenibilidad y gestión del CCP. Se reunirá al menos una vez al mes, así como las demás veces que se requiera.

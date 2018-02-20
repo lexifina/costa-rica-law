@@ -1,0 +1,3 @@
+CAPÍTULO III
+Estructura Nacional de los Centros Cívicos por la Paz
+Artículo 6. Consejo Nacional y Secretaría Técnica. Se crea el Consejo Nacional de Centros Cívicos por la Paz, cuyo objeto será definir, analizar, planificar y evaluar las políticas y acciones que realizan los diferentes entes participantes desde los diferentes programas, con el objetivo de prevenir la violencia y crear una cultura de paz, en apego y observancia de El Modelo de CCP. Este Consejo será presidido por el ministro/a de Justicia y Paz y contará con la dirección general para la Promoción de la Paz Social y Convivencia Ciudadana, adscrita al Viceministerio de Paz, que fungirá como Secretaría Técnica del Consejo, encargada de convocar y dar seguimiento a los acuerdos del Consejo.

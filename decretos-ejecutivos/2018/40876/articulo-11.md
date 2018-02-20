@@ -1,0 +1,1 @@
+Artículo 11. Comité Técnico Nacional de los Centros Cívicos. Se constituye el Comité Técnico Nacional de CCP como órgano técnico asesor del Consejo Nacional de Centros Cívicos para la deliberación y coordinación técnica requerida entre las instancias participantes para la implementación de El Modelo de los CCP.

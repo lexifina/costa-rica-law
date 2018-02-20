@@ -1,0 +1,1 @@
+Artículo 22. Comité Administrativo. Con el propósito de alcanzar una buena gestión administrativa que permita el desarrollo de los CCP de conformidad con El Modelo, se conformará un comité administrativo.

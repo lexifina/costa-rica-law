@@ -1,0 +1,1 @@
+Artículo 39. Declaratoria de interés público. Se declara de interés público los C CP. Se exhorta al sector privado y público a colaborar dentro de sus posibilidades en el cumplimiento de los fines de estos Centros.

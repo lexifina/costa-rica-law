@@ -1,0 +1,1 @@
+Artículo 15. Coordinación de los Centros Cívicos por la Paz. La gestión y coordinación de los equipos de trabajo de los CCP, estará a cargo del Viceministerio de Paz, por medio de la dirección general de Promoción de la Paz Social y Convivencia Ciudadana. La DIGEPAZ se desempeñará como secretaría técnica del Consejo Nacional de los CCP.
