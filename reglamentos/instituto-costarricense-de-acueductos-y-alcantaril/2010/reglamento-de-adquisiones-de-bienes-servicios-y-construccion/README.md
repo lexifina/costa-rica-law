@@ -16,3 +16,4 @@ Reglamento de Adquisiones de Bienes, Servicios y Construcción de Obras del Inst
 | 1 | 2010-04-07 | la propia norma |
 | 2 | 2014-01-28 | Reglamento 4 (2014-01-28) |
 | 3 | 2015-07-21 | Reglamento 0 (2015-07-21) |
+| 4 | 2018-02-21 | Reglamento 10 (2018-02-21) |

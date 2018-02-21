@@ -1,4 +1,1 @@
-Artículo Nº 6: Las adquisiciones de bienes, servicios y activos se podrán realizar mediante el procedimiento de compra especial establecido en AyA, que se denomina FT (estructura creada en el Sistema R/3 SAP para definir grupos de compras) según lo siguiente:
-(FT): Aplica únicamente para la adquisición de bienes, servicios y activos con cargo a las cuentas generales. El monto que se permitirá utilizar en esta modalidad de FT, no podrá exceder el 30% del límite económico máximo establecido por la Contraloría General de la República, para las contrataciones de escasa cuantía, redondeado a los cien mil inmediatos anteriores terminados en cero.
-Cuando se dé el caso de una única oferta presentada para el trámite de esta modalidad de compra, no se invalidará el trámite si el exceso en el precio no supera el 10% del límite máximo previsto para estas modalidades de compras y la administración dispone de los recursos presupuestarios suficientes para hacerle frente a esa erogación.
-(Así reformado mediante sesión ordinaria N° 2014-004 del 28 de enero del 2014)
+Artículo Nº 6: (Derogado en sesión N° 10 del 21 de febrero de 2018)
