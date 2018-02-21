@@ -1,1 +1,0 @@
-Artículo 9—El presente decreto ejecutivo deroga, el decreto ejecutivo No 21314-MIRENEM del 24 de junio de 1992 y el punto i) del mismo b) de la modificación al articulo 76 del Reglamento a la Ley forestal, contenida en el decreto ejecutivo N° 23109-MIRENEM del 18 de marzo de 1994.

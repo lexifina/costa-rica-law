@@ -1,1 +1,0 @@
-Artículo 2° Las resoluciones de permiso de uso para la instalación y mantenimiento; de estos puestos de telecomunicación en áreas protegidas, se otorgarán por un plazo máximo de cinco años prorrogables. El permisionario debe solicitar su renovación, de lo contrario, el Estado procederá de oficio a su cancelación.

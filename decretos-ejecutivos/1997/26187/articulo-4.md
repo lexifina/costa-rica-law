@@ -1,1 +1,0 @@
-Artículo 4°—Toda modificación estructural o de apariencia que se pretenda hacer a los puestos existentes requerirá de autorización previa de la Dirección del Área de Conservación; a la que le corresponderá de conformidad con la solicitud del interesado, determinar con cuales de los requisitos establecidos en el artículo anterior, debe cumplir el gestionante.

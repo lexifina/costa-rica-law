@@ -1,2 +1,0 @@
-Artículo 5°—Los permisionarios deberán mantener en buen estado las instalaciones, dándoles el debido mantenimiento, evitando su corrosión y manteniéndolas libres de basura, debiendo además dar el adecuado mantenimiento a los caminos de acceso a las instalaciones.
-En caso de abandono de las instalaciones, el Ministerio concederá un plazo de noventa días calendario al permisionario para que retire del lugar los bienes que haya instalado; vencido el plazo el Estado, procederá a retirarlos del lugar, quedando facultado para cobrar al permisionario. los gastos en que incurra.
