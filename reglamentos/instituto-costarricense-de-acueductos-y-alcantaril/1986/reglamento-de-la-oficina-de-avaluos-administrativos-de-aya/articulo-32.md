@@ -1,1 +1,0 @@
-Artículo 32.-Emitido el acuerdo por la Junta Directiva, se remitirá Departamento de Expropiaciones de la División Jurídica, para que proceda con la notificación y la publicación en los casos que corresponda.

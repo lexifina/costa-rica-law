@@ -1,1 +1,0 @@
-Artículo 4.-En los trámites de Adquisión de lotes, servidumbres, y cualquier derecho patrimonial, se aplicará la Ley de Expropiaciones N° 5313 del 4 de enero de 1979, aplicable en la especie al AyA por expreso mandato del Artículo 4 de la Ley 6622 del 27 de agosto de 1981, publicada en el Diario Oficial "La Gaceta" N° 178 del 17-9-1981.

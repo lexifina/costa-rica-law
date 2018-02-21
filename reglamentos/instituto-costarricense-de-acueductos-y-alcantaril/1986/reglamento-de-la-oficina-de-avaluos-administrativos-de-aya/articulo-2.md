@@ -1,2 +1,0 @@
-Artículo 2.-Esa Unidad, se integrará al menos con un profesional incorporado en el Colegio Federado de Ingenieros y Arquitectos de Costa Rica. Al menos un asistente de abogacía y notariado, dos asistentes de campo y una secretaria.
-Podrá integrarse con los profesionales de otras ciencias, según sea la naturaleza de la pericia involucrada, con los técnicos y cualquier otro personal, que sean necesarios a juicio de la División Jurídica en épocas de gran demanda institucional, serán propuestos a la Gerencia y contratados conforme con los procedimientos legales.

@@ -1,1 +1,0 @@
-Artículo 27 .-Se indemnizarán los yacimientos o concesiones, cualesquiera q sea su naturaleza, solamente cuando al momento de publicarse el acuerdo expropiación, cuenten con la concesión firme debidamente otorgada por la Dirección de Geología y Minas del MIRENEM o el S.N.E. en su caso, y se encuentren en explotación, en el caso contrario no se indemnizarán.

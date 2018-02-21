@@ -1,3 +1,0 @@
-REGLAMENTO DE LA OFICINA DE AVALUOS ADMINISTRATIVOS DE AYA
-(Nota de Sinalevi: El texto de esta norma fue reformado parcialmente y reproducido su texto en forma íntegra, en sesión N° 93 del 20 de julio de 1993, y publicado en La Gaceta N° 160 del 23 de agosto de 1993, por lo que se trascribe a continuación:)
-Artículo 1-Como Unidad del Departamento de Expropiaciones de la División Jurídica de AyA, se establece el área de Adquisión de Inmuebles y Avalúos; con el fin de que investigue, analice, recomiende y practique todos los avalúos de servidumbres, lotes, daños y cualesquiera otros derechos patrimoniales requeridos para los diversos proyectos o actividades Institucionales.

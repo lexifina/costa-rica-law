@@ -1,1 +1,0 @@
-Artículo 10.-Si el administrado, después de notificado impidiere el ingreso al inmueble que se trate, se le pedirá a la policía civil o administrativa el auxilio, para que protega la seguridad de los funcionarios y se ingrese al inmueble o predio a efectuar los estudios o investigaciones de interés Institucional.

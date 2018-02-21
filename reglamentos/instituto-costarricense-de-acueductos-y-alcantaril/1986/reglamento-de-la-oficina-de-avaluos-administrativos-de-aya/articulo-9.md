@@ -1,1 +1,0 @@
-Artículo 9.-Transcurrido el término otorgado en la notificación, los funcionarios encargados en realizar los estudios, investigaciones o reeplanteos de líneas, ingresarán al inmueble sin más formalidad y en caso de ser necesario acudirán a la Policía para que los acompañen para seguridad física de los mismos.

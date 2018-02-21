@@ -1,1 +1,0 @@
-Artículo 5.-La Gerencia ordenará a la respectiva División u Oficina Regional que realice los estudios pertinentes a efectos de determinar la viabilidad técnica de determinado proyecto de interés Institucional.
