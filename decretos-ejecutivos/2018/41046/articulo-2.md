@@ -1,0 +1,1 @@
+Artículo 2º—Acatamiento obligatorio. La presente política es de acatamiento obligatorio para el Sistema Nacional de Ciencia, Tecnología, Telecomunicaciones, Innovación y Gobernanza Digital durante todo su período de ejecución.
