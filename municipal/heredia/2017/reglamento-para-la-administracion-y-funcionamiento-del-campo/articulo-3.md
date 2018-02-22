@@ -10,3 +10,5 @@ h. Municipalidad: Municipalidad de Heredia.
 i. Mutuatario: Persona que recibe en préstamo las instalaciones del Campo Ferial.
 j. Personas arrendatarias o arrendatario: Persona que recibe en arriendo las instalaciones del Campo Ferial.
 k. Personas usuarias: Personas que asisten a las actividades realizadas en el Campo Ferial.
+l. Emprendedurismo: proceso en el que una persona lleva su idea a convertirse en un proyecto concreto, sea esta con fines de lucro o beneficencia social generando innovación y empleo.
+(Así adicionado el inciso anterior y publicado en La Gaceta N° 34 del 22 de febrero de 2018)

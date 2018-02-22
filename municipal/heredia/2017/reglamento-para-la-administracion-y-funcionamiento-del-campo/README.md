@@ -14,3 +14,4 @@ Reglamento para la Administración y Funcionamiento del Campo Ferial del Cantón
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-04-03 | la propia norma |
+| 2 | 2018-02-22 | Reglamento municipal 0 (2018-02-22) |
