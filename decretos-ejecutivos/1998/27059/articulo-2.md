@@ -1,1 +1,0 @@
-Artículo 2°.- Exceptuar de la anterior prohibición las siembras que con autorización y seguimiento del Ministerio de Agricultura y Ganadería realiza cualquier institución nacional o internacional para fines de investigación.
