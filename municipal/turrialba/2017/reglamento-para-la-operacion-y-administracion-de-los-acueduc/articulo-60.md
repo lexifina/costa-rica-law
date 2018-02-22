@@ -1,0 +1,1 @@
+Artículo 60. -Del personal autorizado. Se autorizará para la supervisión y notificación a todos los trabajadores pertenecientes a la Actividad General de Acueducto Municipal, así como a cualquier otro funcionario a quien la administración considere apto y necesario para el ágil desempeño de lo estipulado en este artículo.

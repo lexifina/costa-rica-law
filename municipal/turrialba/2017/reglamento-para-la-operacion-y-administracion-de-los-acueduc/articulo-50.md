@@ -1,0 +1,3 @@
+CAPÍTULO OCTAVO
+De las tarifas
+Artículo 50.- Componentes. Para el sostenimiento de la Actividad General de Acueducto Municipal establecerá una tarifa para cada una de las actividades que integran el servicio brindado, a saber: conexión y reconexión del servicio, venta de agua potable, sustitución de hidrómetros, estudios de consumos y fugas, los cuales se elaborarán previo estudio de costos de administración, operación, mantenimiento, desarrollo, inversión y servicio de la deuda y tomando como base el principio de servicio al costo más un rédito de desarrollo y criterios de justicia social distributiva, sostenibilidad ambiental, conservación, eficiencia económica y equilibrio financiero.

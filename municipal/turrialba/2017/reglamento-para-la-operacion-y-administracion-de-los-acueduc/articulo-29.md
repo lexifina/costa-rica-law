@@ -1,0 +1,2 @@
+Artículo 29.- Facturación en caso de usos diversos. Cuando de un servicio de agua medida se abastezcan varias unidades de consumo con diferente uso, se aplicará el tipo tarifario más alto, según las actividades realizadas. Sin embargo, el propietario puede en ese caso, solicitar que la Municipalidad individualice los servicios, siempre y cuando sea técnicamente posible.
+En el caso de que esa situación ocurra en un servicio fijo, la Municipalidad procederá de oficio a instalar los hidrómetros que sean necesarios para cada unidad de ocupación.

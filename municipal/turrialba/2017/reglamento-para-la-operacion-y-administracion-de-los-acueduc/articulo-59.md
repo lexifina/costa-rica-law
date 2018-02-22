@@ -1,0 +1,1 @@
+Artículo 59. -Del procedimiento. Cuando una persona sea sorprendida infringiendo la norma, se le instará, por medio de una notificación, para que no incurra más en la falta. En caso de reincidencias e procederá a la suspensión del servicio. Para la reconexión, el abonado deberá cancelar la multa más el costo estipulado para la reconexión.

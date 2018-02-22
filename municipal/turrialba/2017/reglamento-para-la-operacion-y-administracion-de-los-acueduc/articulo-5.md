@@ -1,0 +1,3 @@
+Artículo 5.-De los tipos de servicios. La Municipalidad prestará el servicio de agua potable bajo cualquiera de las siguientes modalidades:
+a) Servicio Medido: Aquel que se pagará de acuerdo con los consumos efectuados, medidos a través del hidrómetro y se cobrará de acuerdo a las tarifas aprobadas por el Concejo Municipal, con el efecto que el sistema sea rentable y genere su operatividad financiera y material del acueducto.
+b) Servicio Fijo: Aquel con consumo no controlado cuyo pago se efectuará de acuerdo a una tarifa fija, recomendada por un estudio técnico y aprobada por el Concejo Municipal.

@@ -1,0 +1,6 @@
+CAPÍTULO UNDÉCIMO
+Del recibimiento de nuevos acueductos en urbanizaciones y condominios
+Artículo 61.- Recibimiento de acueductos en proyectos urbanísticos conectados a la red municipal. Toda la infraestructura para la distribución de agua potable, existente en aquellos proyectos urbanísticos para los cuales la Municipalidad haya otorgado disponibilidad, deberá ser traspasada a la Municipalidad, para lo cual el desarrollador deberá cumplir los siguientes requisitos:
+1) Aportar copia de los planos constructivos actualizados del proyecto, correspondientes al diseño de sitio y de la red interna de distribución de agua potable.
+2) Cuando se trate de condominios, deberán crearse las respectivas servidumbres de acueducto y paso de funcionarios municipales, con el fin de facilitar a la institución la prestación y administración del servicio.
+3) Construir la caja e instalar el hidrómetro junto con sus accesorios en cada una de las previstas de agua potable. Los hidrómetros a colocarse deben ser aprobados por la Actividad General de Acueducto Municipal y para ello el desarrollador deberá entregar cinco juegos de los mismos a esta Actividad para realizarle las pruebas necesarias que garanticen su calidad.
