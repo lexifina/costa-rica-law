@@ -1,0 +1,2 @@
+Artículo 8.- De la Unidad Técnica de Investigación Biomédica (UTIB). Es la instancia técnica operativa del CONIS, su objetivo es planificar, armonizar y orientar los servicios técnicos con base en las funciones propias de esta unidad a fin de satisfacer las necesidades, expectativas y brechas identificadas mediante el análisis y control de los procesos de regulación de la investigación biomédica
+Depende jerárquicamente del CONIS. Y tendrá un jefe de unidad designado por el CONIS.

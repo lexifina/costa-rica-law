@@ -1,0 +1,2 @@
+Artículo 6.- De la Auditoría Interna. Es una instancia asesora y fiscalizadora del CONIS que cuenta con independencia funcional y de criterio. Su objetivo consiste en contribuir al logro de los objetivos institucionales mediante la práctica de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración del riesgo a fin de proporcionar seguridad razonable de que la actuación de los colaboradores del CONIS se ejecute conforme el marco estratégico institucional, el marco legal y las buenas prácticas.
+Depende jerárquicamente del CONIS.
