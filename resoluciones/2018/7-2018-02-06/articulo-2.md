@@ -1,0 +1,2 @@
+Artículo 2º—Presentación de solicitud. La solicitud de disminución o eliminación de los pagos parciales se efectuará mediante la presentación, debidamente cumplimentado, del modelo oficial que se anexa y de los requisitos que ahí se enumeran, el cual ha de entenderse como parte integral de esta resolución.
+Los obligados tributarios que se encuentren sujetos al Sistema de Tributación Digital, deberán realizar su solicitud por ese medio y adjuntar los documentos que considere pertinentes en formato PDF.

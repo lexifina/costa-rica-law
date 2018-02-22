@@ -1,0 +1,1 @@
+Artículo 5º—Deberes Formales y Materiales. El obligado tributario deberá estar al día con sus obligaciones tributarias formales y materiales, de conformidad con los artículos 103 y 128 del Código de Normas y Procedimientos Tributarios.
