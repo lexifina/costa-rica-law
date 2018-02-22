@@ -1,0 +1,9 @@
+N° 9519
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+ESTABLECIMIENTO DE LA SEDE DE LA ACADEMIA
+COSTARRICENSE DE LA LENGUA
+ARTÍCULO 1- Se establece la sede de la Academia Costarricense de la Lengua, cédula jurídica número tres - cero cero siete - uno cuatro cero cinco cero cuatro (N.º 3-007-140504). La sede ocupará, en conjunto con el Centro de Investigación y Conservación del Patrimonio Cultural, el primer piso del edificio propiedad del Ministerio de Cultura y Juventud, ubicado en la provincia de San José, distrito 4° Catedral, cantón Central, de conformidad con la Ley N.0 3191, Convenio Multilateral de la Asociación de Academias de la Lengua Española, de 17 de setiembre de 1963, cuyos cometidos contribuyen a desarrollar y fortalecer el patrimonio cultural del país.
+Dicha finca se encuentra inscrita bajo el sistema de folio real matrícula número ocho cuatro cuatro cinco tres - B - cero cero cero (N. 0 84453-B-000). Linda al norte con la Avenida Central con veinticuatro coma doce decímetros (24, 12 m); al sur, con un pasaje de uno coma ochenta y un centímetros (1,81 m) en parte otros; al este, con el Gran Hotel Costa Rica, y al oeste, con el Edificio Central S.A., según consta en el plano catastrado número SJ - cero cero dos cuatro siete uno cuatro -uno nueve cinco seis (N.º SJ-0024714-1956), su naturaleza es un edificio para albergar órganos por parte del Ministerio de Cultura y Juventud.
+Se autoriza el establecimiento de convenios de reciprocidad entre la Academia y el Ministerio de Cultura y Juventud, a fin de facilitar parte de las instalaciones del primer piso para otras actividades de índole cultural afines a la Academia.
+Asimismo, se autoriza para que suscriba convenios para que la Academia pueda hacer uso de la sala de actividades, ubicada en el segundo piso.
