@@ -1,0 +1,1 @@
+Artículo 22. Colaboración. El funcionario estará en disposición de brindar apoyo en aquellas tareas que por su naturaleza no sean estrictamente inherentes a su función, siempre que ello resulte necesario según el criterio del superior. Sin perjuicio de lo establecido en la Sección Segunda, artículo 107 siguientes y concordantes de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 21. Racionalidad. Deben proteger y conservar los bienes del Estado; debiendo utilizar los que les fueron asignados para el desempeño de sus funciones de manera racional, evitando abusos, derroche o desaprovechamiento.

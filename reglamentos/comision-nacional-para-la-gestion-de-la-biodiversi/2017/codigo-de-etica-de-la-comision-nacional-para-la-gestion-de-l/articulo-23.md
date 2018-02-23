@@ -1,0 +1,1 @@
+Artículo 23. Tolerancia. Observar frente a las críticas de los funcionarios, administrados, de la prensa y ciudadanos en general, un grado de tolerancia superior al que, razonablemente, pudiera esperarse de un ciudadano común; respetando las ideas, creencias o prácticas de los demás cuando sean diferentes o contrarias a las propias.

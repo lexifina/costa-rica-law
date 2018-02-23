@@ -1,0 +1,1 @@
+Artículo 20. Rendición de cuentas. Deben rendir cuentas ante los órganos públicos correspondientes, la prensa, las organizaciones de la sociedad civil y la ciudadanía en general por los actos y decisiones realizadas en el ejercicio del cargo, y someterse a cualquier forma de escrutinio que resulte apropiada para su cargo.

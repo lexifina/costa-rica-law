@@ -1,0 +1,1 @@
+Artículo 37. La violación a cualquiera de los principios, normas, o deberes éticos contenidos en el presente código, será considerado como falta grave y su sanción corresponderá a la que para tal efecto se establezca en el Reglamento Autónomo de servicios del Ministerio del Ambiente y Energía, Decreto Ejecutivo N°28409-MINAE.

@@ -1,0 +1,1 @@
+Artículo 17. Honestidad. Todo interés diferente al público, que pudiese ocasionar un conflicto de intereses, debe ser declarado por el funcionario público. De inmediato debe detenerse aquel actuar que potencialmente pueda comprometer la recta honestidad.

@@ -1,0 +1,1 @@
+Artículo 10. Puntualidad. Cumplir adecuadamente con las normas, horarios y jornadas de trabajo establecidos en la institución, de forma diligente con las tareas que le sean asignadas tanto dentro como fuera de la institución.

@@ -1,0 +1,1 @@
+Artículo 11. Legalidad constitucional. Principio que exige someter toda actuación pública al ordenamiento jurídico; sólo lo expresamente autorizado por la Constitución y la Leyes vigentes es válido; la no observancia de esto constituye el delito de fraude de ley, según artículo 58 de la Ley 8422 (Ley contra la corrupción y el enriquecimiento ilícito en la función pública).

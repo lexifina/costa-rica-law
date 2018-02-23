@@ -1,0 +1,2 @@
+Capítulo VI: DEL INCUMPLIMIENTO
+Artículo 32. El incumpliendo de cualquier artículo del presente Código de Ética constituye falta susceptible de sanción disciplinaria, dando origen a las sanciones contempladas en el Reglamento Autónomo de servicios del Ministerio del Ambiente y Energía, Decreto Ejecutivo N°28409-MINAE, para lo cual deberá seguirse el procedimiento ordinario establecido en la Ley General de la Administración Pública. Sin perjuicio de otras sanciones de orden civil y/o penal cuando resulten procedentes.

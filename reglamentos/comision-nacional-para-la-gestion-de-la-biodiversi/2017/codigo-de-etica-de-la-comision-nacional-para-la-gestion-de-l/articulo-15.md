@@ -1,0 +1,1 @@
+Artículo 15. Austeridad. La asignación, adquisición, conservación e inversión de los recursos y fondos públicos, deben orientarse a la satisfacción plena del interés público, según el mandato del Estado Social de Derecho, y al uso racional de éstos.

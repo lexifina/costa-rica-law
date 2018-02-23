@@ -1,0 +1,1 @@
+Artículo 30. Proselitismo político. Los funcionarios públicos tienen prohibido utilizar recursos institucionales para la promoción personal o del partido político al que pertenece en cualquiera de sus formas. Igualmente no deberá destinar su tiempo laboral para realizar trabajos o discusiones de carácter político electoral y usar su cargo para beneficiar a un partido político.

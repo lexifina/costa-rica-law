@@ -1,0 +1,1 @@
+Artículo 19. Objetividad. Al ejecutar sus funciones públicas, incluyendo la realización de nombramientos, el otorgamiento de contratos o la concesión de recomendaciones a personas para la obtención de recompensas y beneficios, deben tomar sus decisiones de acuerdo con criterios de mérito.
