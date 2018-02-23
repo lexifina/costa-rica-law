@@ -1,2 +1,3 @@
 Artículo 44.—Informe parcial y final. La Auditoría Interna, de acuerdo con su criterio, podrá emitir informes parciales durante la etapa de examen de sus auditorías. Toda auditoría siempre dará lugar a un informe final.
-El contenido y la estructura de los informes se definirán detalladamente en el Manual de Políticas y Procedimientos Técnicos y Administrativos de la Auditoría Interna, a que se hizo referencia en el párrafo segundo del inciso e) del artículo 24 de este Reglamento.
+El contenido y la estructura de los informes se definirán detalladamente en las regulaciones internas (políticas, lineamientos, directrices, procedimientos y circulares) establecidas por la Auditoría Interna para gestionar sus procesos técnicos y administrativos; lo anterior, de conformidad con lo señalado en el párrafo segundo del inciso e) del artículo 24 de este Reglamento.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 40986 del 23 de febrero de 2018)

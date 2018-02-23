@@ -1,2 +1,2 @@
-Artículo 4º—Emisión y modificaciones del presente Reglamento. La formulación, aprobación y promulgación del presente Reglamento se realizará conforme a lo dispuesto en la Norma 1.1.2 de las NEAI y a lo establecido en las Directrices Generales relativas al Reglamento de Organización y Funcionamiento de las Auditorías Internas del Sector Público emitidas por la Contraloría General de la República mediante Resolución R-CO-93-2006.
-Las modificaciones y las respectivas aprobaciones que se le efectúen al presente Reglamento, se realizarán conforme a la normativa técnica promulgada por la CGR.
+Artículo 4º—Emisión y modificaciones del presente Reglamento. La formulación, aprobación, promulgación y modificación del presente Reglamento, se realizará conforme a lo dispuesto en la normativa técnica emitida por la CGR la cual será de acatamiento obligatorio.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40986 del 23 de febrero de 2018)

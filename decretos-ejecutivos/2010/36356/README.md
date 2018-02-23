@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría Interna del Servic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-02-09 | la propia norma |
+| 2 | 2018-02-23 | Decreto Ejecutivo 40986 (2018-02-23) |
