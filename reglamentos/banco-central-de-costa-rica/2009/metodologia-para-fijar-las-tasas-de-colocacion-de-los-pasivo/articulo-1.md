@@ -20,11 +20,16 @@ III.- En la subasta competitiva, el uso del margen se medirá contra la tasa de 
 IV.- En el caso de la tasa de subasta no competitiva, la tasa se fijará a partir de la tasa promedio ponderada de captación de la subasta competitiva para el instrumento correspondiente menos un castigo. En todo caso, la tasa final deberá ubicarse dentro del margen de los +200 puntos base, con respecto a la tasa estimada en el punto I.
 V.- En el caso de los títulos a tasa variable, el uso del margen de +/-250 puntos base se evaluará a partir de la Tasa Básica Pasiva.
 (Así reformado el apartado V) anterior mediante sesión N° 5611-2013 del 28 de agosto del 2013)
-VI. Conindependencia de la curva de rendimiento antes señalada, para los títulosligados a la inflación, la Administración dispondrá de un margen entre 0 y450 puntos base para establecer la tasa real a la que se colocarán dichosinstrumentos.
+VI.- En el caso de los títulos a tasa flotante ligados a la curva de rendimiento soberana, la Administración contará con un margen de +/- 250 puntos base con respecto al rendimiento de referencia de la curva soberana indicada en el punto I para definir el rendimiento al vencimiento de colocación de los pasivos.
+(Adicionado el punto anterior en sesión N° 5816-2018 del 23 de febrero de 2018)
+VII. Conindependencia de la curva de rendimiento antes señalada, para los títulosligados a la inflación, la Administración dispondrá de un margen entre 0 y450 puntos base para establecer la tasa real a la que se colocarán dichosinstrumentos.
 (Así adicionado el punto anterior mediante sesión N° 5436 del 23 de setiembre de 2009)
 (Así reformado el punto anterior mediante sesión N° 5552-2012 del 11 de julio del 2012)
-VII. Para definir las tasas de captación de los pasivos del Banco Central de Costa Rica denominados en dólares de Estados Unidos de América, la Administración contará, para cada plazo, con un margen entre la tasa ofrecida a los depósitos en el mercado interbancario de Londres (Libid) en dólares de los Estados Unidos de América (EUA) y el máximo que resulte entre los siguientes dos valores: la tasa Libid más cien puntos básicos en dólares y la tasa de interés en dólares que el Ministerio de Hacienda reconoce en las captaciones realizadas por medio de la plataforma Tesoro Directo.
+(Corrida la numeración del inciso en sesión N° 5816-2018 del 23 de febrero de 2018, que lo traspaso del antiguo inciso VI al VII)
+VIII. Para definir las tasas de captación de los pasivos del Banco Central de Costa Rica denominados en dólares de Estados Unidos de América, la Administración contará, para cada plazo, con un margen entre la tasa ofrecida a los depósitos en el mercado interbancario de Londres (Libid) en dólares de los Estados Unidos de América (EUA) y el máximo que resulte entre los siguientes dos valores: la tasa Libid más cien puntos básicos en dólares y la tasa de interés en dólares que el Ministerio de Hacienda reconoce en las captaciones realizadas por medio de la plataforma Tesoro Directo.
 (Así adicionado el punto anterior en sesión N° 5779 del 17 de julio de 2017)
-VIII. Le corresponde a la Comisión de Mercados fijar los detalles operativos para la aplicación de esta metodología.
+(Corrida la numeración del inciso anterior en sesión N° 5816-2018 del 23 de febrero de 2018, que lo traspaso del antiguo inciso VII al VIII)
+IX. Le corresponde a la Comisión de Mercados fijar los detalles operativos para la aplicación de esta metodología.
 (Así reformado el punto anterior en sesión N° 5779 del 17 de julio de 2017)
 (Corrida la numeración del punto anterior en sesión N° 5779 del 17 de julio de 2017, que lo traspaso del punto VII) al punto VIII)
+(Corrida la numeración del inciso anterior en sesión N° 5816-2018 del 23 de febrero de 2018, que lo traspaso del antiguo inciso VIII al IX)
