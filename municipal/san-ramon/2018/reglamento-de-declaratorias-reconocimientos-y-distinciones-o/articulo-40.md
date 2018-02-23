@@ -1,0 +1,1 @@
+Artículo 40°- De la designación desierta. Si la Alcaldía considera que no hay persona alguna reúna las condiciones requeridas para recibir la distinción durante el año calendario, se tendrá por desierta la designación de ese periodo.-

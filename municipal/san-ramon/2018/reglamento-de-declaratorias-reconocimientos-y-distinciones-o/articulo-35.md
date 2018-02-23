@@ -1,0 +1,1 @@
+Artículo 35°.- De la declaratoria: En la última sesión extraordinaria del mes de agosto que corresponda, el Concejo Municipal entregará el premio Garabito de Oro a la persona designada en una sesión solemne en la que se ofrecerá un refrigerio al designado y a su núcleo familiar inmediato.

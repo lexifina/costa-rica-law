@@ -1,0 +1,1 @@
+Artículo 9°- De la designación. Recibido el dictamen con la recomendación de la Comisión, el Concejo Municipal tomará el acuerdo correspondiente, el cual deberá ser por mayoría absoluta de los regidores propietarios.

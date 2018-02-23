@@ -1,0 +1,1 @@
+Artículo 16- Frecuencia de la declaratoria. La Declaratoria como Ramonense Distinguido/a se otorgará como máximo, cada dos años.- La declaratoria de Ramonense Distinguido/a se llevará a cabo en una sesión del Concejo Municipal y requerirá la aprobación de las dos terceras partes de los regidores.

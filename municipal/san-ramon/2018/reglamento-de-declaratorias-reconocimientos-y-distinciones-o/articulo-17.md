@@ -1,0 +1,1 @@
+Artículo 17- De la designación. Recibido el dictamen con la recomendación de la Comisión de Cultura, el Concejo Municipal tomará el acuerdo correspondiente, el cual deberá ser por mayoría calificada de los regidores propietarios.
