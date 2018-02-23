@@ -1,0 +1,2 @@
+Artículo 32.- Cartel del arrendamiento.- El área administrativa de la URA confeccionará la resolución de proyección del bien y autorización para su arrendamiento. Una vez hecha esta resolución, el funcionario de la URA que sea designado como encargado de la contratación, procederá a confeccionar el cartel que deberá contener todos los detalles del proceso de arrendamiento.
+Dicho cartel será publicado en la página web del ICD, por el plazo que para cada bien se fije en la proyección hecha por la URA

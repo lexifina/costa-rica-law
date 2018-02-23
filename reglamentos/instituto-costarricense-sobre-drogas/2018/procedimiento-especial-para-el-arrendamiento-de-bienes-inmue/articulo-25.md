@@ -1,0 +1,1 @@
+Artículo 25.- Aseguramiento del Bien. Todos los bienes arrendados mediante este procedimiento deberán durante todo el plazo del contrato, ser asegurados sobre su valor real, por el arrendador con cargo al pago por arrendamiento que realiza el arrendatario, las coberturas que sean necesarias deberá quedar establecidas en el contrato de arrendamiento que suscriban las partes.

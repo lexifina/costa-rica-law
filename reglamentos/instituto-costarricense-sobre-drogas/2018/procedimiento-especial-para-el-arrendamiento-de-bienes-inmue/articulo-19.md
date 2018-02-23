@@ -1,0 +1,1 @@
+Artículo 19.- Recibo del bien.- Dentro del contrato deberá existir una descripción detallada del bien objeto del arrendamiento, de no describirse el estado de conservación del bien al inicio del arrendamiento, se presume que el arrendatario lo recibió en buen estado, salvo prueba en contrario que corresponde a este demostrar.

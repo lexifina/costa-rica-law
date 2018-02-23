@@ -1,0 +1,2 @@
+Artículo 37.-Acto final de adjudicación.- De acuerdo con lo que establezca el análisis comparativo de las ofertas, el Jefe de la URA dictará el acto final mediante resolución fundamentada dentro del plazo de 2 días a partir de la entrega del análisis comparativo.
+La comunicación de este acto será realizada a todos los oferentes participantes, por correo electrónico, en el plazo señalado en dicho documento. Para efectos de esa comunicación, se omitirá el nombre del participante y se utilizará el código que le fue asignado al momento de la entrega de la oferta.

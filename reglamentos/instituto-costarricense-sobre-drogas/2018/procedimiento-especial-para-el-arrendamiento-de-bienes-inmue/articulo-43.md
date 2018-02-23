@@ -1,0 +1,1 @@
+Artículo 43.-Vigencia. La vigencia del presente procedimiento será indefinida y el mismo rige a partir de su publicación en el Diario Oficial, todo cambio en este procedimiento requerirá de una nueva publicación para su vigencia.

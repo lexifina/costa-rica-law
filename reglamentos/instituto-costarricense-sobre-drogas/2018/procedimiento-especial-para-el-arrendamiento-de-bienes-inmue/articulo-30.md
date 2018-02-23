@@ -1,0 +1,1 @@
+Artículo 30.-Publicidad del Proceso de Arrendamiento: El ICD en un plazo prudencial anterior al inicio de cada procedimiento de arrendamientos, deberá publicitar el presente procedimiento de arrendamientos por los medios escritos, televisivos, radiales o electrónicos idóneos que puedan generar en impacto requerido en los potenciales interesados.

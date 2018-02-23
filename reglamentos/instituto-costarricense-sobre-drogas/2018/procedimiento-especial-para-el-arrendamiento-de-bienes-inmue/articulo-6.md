@@ -1,0 +1,1 @@
+Artículo 6.- Naturaleza de los Bienes. Todos los bienes arrendados mediante este procedimiento especial, deberán estar asumidos en depósito judicial por el ICD. El acta de depósito Judicial se equiparará al título de propiedad del inmueble durante el tiempo que dure la medida.

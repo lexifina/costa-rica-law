@@ -1,0 +1,1 @@
+Artículo 8.- De la disposición Jurídica de los Bienes. Los bienes dados en arrendamiento deben estar jurídicamente disponibles para el uso y disfrute por parte del arrendatario y los gravámenes que sobre ellos recaigan no podrán impedir su proyección de arrendamiento.

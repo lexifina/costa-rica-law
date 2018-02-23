@@ -1,0 +1,1 @@
+Artículo 15.- Del contrato de arrendamiento. Por tratarse de bienes decomisados y comisados por las leyes N° 8204 y N° 8754, la URA confeccionará un contrato de arrendamiento por tipo de bien, el arrendatario deberá aceptar y adherirse en su totalidad a las cláusulas del contrato.

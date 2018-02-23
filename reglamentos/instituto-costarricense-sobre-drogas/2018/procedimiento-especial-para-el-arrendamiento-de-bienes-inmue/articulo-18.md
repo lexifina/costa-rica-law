@@ -1,0 +1,1 @@
+Artículo 18.- Evicción.- Cuando, por causa de evicción, el arrendatario resulta privado del uso o goce de la cosa arrendada, el contrato se extingue automáticamente, sin ningún tipo de responsabilidad derivada para el ICD, por lo que el arrendatario pierde todo derecho para demandar daños y perjuicios, ya que este conocía del peligro de evicción.

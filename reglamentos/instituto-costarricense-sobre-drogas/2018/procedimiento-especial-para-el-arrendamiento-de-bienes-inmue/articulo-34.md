@@ -1,0 +1,2 @@
+Artículo 34.- Presentación de las ofertas. El interesado deberá presentar su oferta junto con todos los requisitos solicitados, en el plazo y fechas estipulados en el cartel, según las proyecciones del bien Administrado.
+Esta oferta deberá ser presentada en sobre cerrado, el cual deberá estar externamente identificado con el número asignado al proceso de arrendamiento, el nombre y número de cédula del oferente, así como el código asignado al momento de la entrega.

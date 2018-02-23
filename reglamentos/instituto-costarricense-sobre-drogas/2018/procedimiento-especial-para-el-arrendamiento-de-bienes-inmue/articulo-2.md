@@ -1,0 +1,1 @@
+Artículo 2.- Objeto.-El presente Procedimiento para el Arrendamiento de Bienes Inmuebles Decomisados y Comisados, establece las pautas a seguir por parte de la Administración Activa para el arrendamiento de los inmuebles decomisados y comisados entregados al ICD por infracción a la Ley N° 8204 y sus reformas y la Ley N° 8754 y sus reformas.

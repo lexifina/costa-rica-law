@@ -1,0 +1,1 @@
+Artículo 14.- De la eficacia del Negocio Jurídico. Por la naturaleza de los bienes arrendados y para los efectos del presente procedimiento solo serán válidos los contratos escritos debidamente firmados por ambas partes, igualmente sus prórrogas deberán ser expresadas por escrito, al menos con un mes de anticipación a la fecha de vencimiento.

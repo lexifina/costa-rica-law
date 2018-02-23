@@ -1,0 +1,1 @@
+Artículo 21.- Precio cierto y determinado.-La renta o precio del arrendamiento puede consistir en una suma de dinero o en cualquier otro valor equivalente, con tal que sea cierto y determinado. El arrendatario tiene el derecho irrenunciable de exigir la entrega del recibo o comprobante de pago, del cual la URA conservará una copia.
