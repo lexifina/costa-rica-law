@@ -1,2 +1,0 @@
-Artículo 130.—Los servidores, previa autorización de la Presidencia o del Ministerio podrán realizar actividades de formación humanística, intelectual, estética, deportiva y recreativa que les permita el desarrollo de sus aptitudes.
-(Así corrida la numeración por los artículos 4° y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 121 al 126 y posteriormente del numeral 126 al 130 actual)

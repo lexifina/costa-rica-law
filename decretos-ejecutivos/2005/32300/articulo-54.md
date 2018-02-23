@@ -1,2 +1,0 @@
-Artículo 54.—Cuando no funcione el reloj marcador de asistencia a labores, o el medio designado al efecto por la Administración, en alguno de los lugares de prestación de servicios, el Director General indicará la forma en que se llevará a cabo el control de asistencia y puntualidad.
-(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 49 al 54 actual)

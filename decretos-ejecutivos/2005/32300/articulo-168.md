@@ -1,3 +1,0 @@
-Artículo 168 (*).—Las funciones de las unidades organizativas descritas en el artículo anterior, se encuentran establecidas en el documento denominado “Criterio Técnico para actualizar la Estructura Organizacional de la Presidencia de la República y Ministerio de la Presidencia”, autorizado por el Ministerio de Planificación Nacional y Política Económica según oficio N° DM-651-13 de 26 de noviembre del 2013.
-(*)(Corregido mediante Fe de Erratas publicada en La Gaceta N° 163 del 26 de agosto del 2014, página N° 52. Anteriormente decía 180)
-(Así adicionado por el artículo 11 del decreto ejecutivo N° 38525 del 6 de junio del 2014)

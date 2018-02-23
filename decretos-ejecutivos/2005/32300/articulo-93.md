@@ -1,2 +1,0 @@
-Artículo 93.—Los servidores al servicio de la Presidencia o del Ministerio, incluidos o no en el Régimen de Servicio Civil, tendrán derecho a que se les reconozca las revaloraciones generales, que se decretan para los servidores del Poder Ejecutivo.
-(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 88 al 93 actual)

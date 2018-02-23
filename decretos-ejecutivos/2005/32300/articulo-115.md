@@ -1,2 +1,0 @@
-Artículo 115.—Quien haya denunciado acoso u hostigamiento sexual falso, podrá incurrir cuando así se tipifique, en cualquiera de las conductas propias de la difamación, la injuria o la calumnia, según el Código Penal.
-(Así corrida la numeración por los artículo 4º y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 106 al 111 y posteriormente del numeral 111 al 115 actual)

@@ -1,2 +1,0 @@
-Artículo 147.—En los casos de suspensión disciplinaria, una vez firme el acto final que la acuerde, se practicará la correspondiente reducción de salario, que en forma expresa determine y disponga dicho acto.
-(Así corrida la numeración por los artículos 4° y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 138 al 143 y posteriormente del numeral 143 al 147 actual)

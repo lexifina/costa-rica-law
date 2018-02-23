@@ -1,2 +1,0 @@
-Artículo 87.—Cuando un funcionario estime que han variado sustancial y permanentemente sus tareas y responsabilidades de un puesto, podrá solicitar a la Dirección de Recursos Humanos, previo visto bueno del superior inmediato, el trámite para el estudio de reasignación de dicho puesto y de acuerdo con lo que dispone el capítulo XI del Reglamento del Estatuto de Servicio Civil.
-(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 82 al 87 actual)

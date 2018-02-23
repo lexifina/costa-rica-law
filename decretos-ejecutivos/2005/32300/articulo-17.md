@@ -1,2 +1,0 @@
-Artículo 17.—La Presidencia de la República y el Ministerio de la Presidencia ofrecerán facilidades para que el servidor asista a programas de desintoxicación. El servidor que incumpla con el programa de desintoxicación y sea detectado infringiendo la prohibición de no fumar, en forma reiterada, podrá ser despedido sin responsabilidad patronal.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 37590 del 26 de febrero de 2013)

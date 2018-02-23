@@ -1,4 +1,0 @@
-Artículo 40.—Los servidores están obligados a desempeñar sus cargos todos los días hábiles y durante todas las horas reglamentarias.
-No podrá concederse privilegio, prerrogativa o ventaja que autorice una asistencia irregular, salvo lo establecido en disposiciones especiales de este Reglamento.
-El Viceministro Administrativo podrá conceder permiso de participación al funcionario cuya función sea la conducción de vehículos oficiales, para realizar un curso de sensibilización y reeducación vial, establecido en la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078, realizar un programa de tratamiento de adicciones para el control de consumo de alcohol, sustancias estupefacientes, psicotrópicas o drogas enervantes o un programa para el control de conductas violentas y tratamiento psicológico, cuando corresponda, durante la jornada laboral.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 38525 del 6 de junio del 2014)

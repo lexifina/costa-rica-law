@@ -1,2 +1,0 @@
-Artículo 81.—Las licencias para asistir a cursos de adiestramiento mediante el otorgamiento de becas y otras facilidades, se regularán por las disposiciones de la Ley Nº 3009 de 18 de julio de 1962 y sus reformas así como con las normas internas que al efecto dicte la Presidencia o el Ministerio y las cláusulas del respectivo convenio.
-(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 76 al 81 actual)

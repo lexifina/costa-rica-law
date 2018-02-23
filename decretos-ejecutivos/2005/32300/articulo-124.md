@@ -1,2 +1,0 @@
-Artículo 124.—La Dirección de Recursos Humanos tomará las medidas necesarias para incorporar personas con discapacidad a los servicios de la Presidencia y del Ministerio, adaptando las pruebas para selección de personal, adecuando los procedimientos y mecanismos de reclutamiento, en coordinación con la Dirección General de Servicio Civil.
-(Así corrida la numeración por los artículos 4° y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 115 al 120 y posteriormente del numeral 120 al 124 actual)

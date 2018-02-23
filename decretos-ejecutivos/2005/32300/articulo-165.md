@@ -1,3 +1,0 @@
-Artículo 165.—En todo caso de terminación de la relación de servicios, el interesado deberá plantear en tiempo el correspondiente reclamo para el pago de los derechos adeudados. Caso contrario, la Presidencia o el Ministerio declararán la prescripción legal, cuando proceda.
-(Así corrida la numeración por los artículos 4° y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 141 al 146 y posteriormente del numeral 146 al 150 actual)
-(Así corrida su numeración por el artículo 10 del decreto ejecutivo N° 38525 del 6 de junio del 2014, que lo traspasó del antiguo artículo 150 al 165)

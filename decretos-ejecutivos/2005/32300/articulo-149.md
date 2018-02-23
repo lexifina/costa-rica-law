@@ -1,2 +1,0 @@
-Artículo 149—El servicio público debe inspirar la confianza de los ciudadanos para fortalecer la credibilidad en el gobierno y sus gestores e instituciones. Los principios éticos del servicio público tienen como función fomentar esa confianza, para facilitar a los y las gobernantes el cumplimiento de los diversos fines estatales en beneficio de la comunidad.
-(Así adicionado por el artículo 9° del decreto ejecutivo N° 38525 del 6 de junio del 2014)

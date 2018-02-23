@@ -1,2 +1,0 @@
-Artículo 16.—La Dirección General deberá indicar dicha prohibición por medio de rótulos en lugares visibles, los cuales cumplirán con las especificaciones establecidas en el artículo nueve del Decreto N° 37185-S-MEIC-MTSS-MP-H-SP. El funcionario que infrinja la prohibición será reportado ante la Dirección General, quien gestionará ante la autoridad competente el procedimiento ordinario administrativo.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 37590 del 26 de febrero de 2013)

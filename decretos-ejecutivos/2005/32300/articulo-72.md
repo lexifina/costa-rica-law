@@ -1,2 +1,0 @@
-Artículo 72.—El servidor que hubiere adquirido derecho a las vacaciones y que antes de disfrutarlas cese en su contrato por cualquier causa, recibirá el importe correspondiente en dinero, de conformidad con el artículo 156 del Código de Trabajo. En los demás casos, las vacaciones son absolutamente incompensables.
-(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 67 al 72 actual)

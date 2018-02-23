@@ -1,4 +1,0 @@
-Artículo 128.—Todo lo referente a salud ocupacional es de interés público. La salud del servidor debe corresponder a un enfoque integral orientado a garantizar su mayor bienestar posible y engloba los ámbitos de promoción, prevención, mantenimiento, asistencia curativa y de rehabilitación.
-La salud ocupacional está dirigida a todos los servidores, independientemente de su actividad, oficio o profesión, del sitio de trabajo, de su ubicación urbana o rural, de su edad, sexo o forma de vinculación a labores.
-La Presidencia o el Ministerio adoptarán las medidas necesarias para proteger eficazmente la salud ocupacional de sus servidores, conforme con los términos de la normativa jurídica vigente y las recomendaciones que al respecto formulen las autoridades respectivas.
-(Así corrida la numeración por los artículos 4° y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 119 al 124 y posteriormente del numeral 124 al 128 actual)

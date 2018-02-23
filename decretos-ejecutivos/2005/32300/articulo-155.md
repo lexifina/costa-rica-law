@@ -1,2 +1,0 @@
-Artículo 155.—Deber de confidencialidad. El servidor (a) debe guardar discreción con respecto a todos los hechos e informaciones de los cuales tenga conocimiento en el ejercicio o con motivo del ejercicio de sus funciones, independientemente de que el asunto haya sido calificado no como confidencial por el (la) superior, salvo que sea autorizado para dar informaciones y sin perjuicio del derecho de información del administrado ejercido conforme al ordenamiento jurídico vigente.
-(Así adicionado por el artículo 9° del decreto ejecutivo N° 38525 del 6 de junio del 2014)

@@ -1,2 +1,0 @@
-Artículo 133.—Para efectos de las anteriores sanciones, las faltas se clasificarán como leves, de alguna gravedad o graves, según la trascendencia y las veces que se hayan cometido las mismas a juicio del Viceministro, previa consulta con el superior inmediato respectivo.
-(Así corrida la numeración por los artículos 4° y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 124 al 129 y posteriormente del numeral 129 al 133 actual)

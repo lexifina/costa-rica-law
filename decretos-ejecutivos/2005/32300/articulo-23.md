@@ -1,1 +1,0 @@
-Artículo 23.—Los servidores tienen derecho a que la Presidencia o el Ministerio, proporcione los medios y facilidades para efectuar las labores, así como la información e instrucciones claras y necesarias para comprender las actividades que se realicen y los objetivos que se buscan.

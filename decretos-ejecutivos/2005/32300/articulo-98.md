@@ -1,2 +1,0 @@
-Artículo 98.—La Dirección de Recursos Humanos, llevará y custodiará un expediente personal para cada servidor de la Presidencia o del Ministerio. Dicho expediente deberá contener todos aquellos documentos y datos que sirvan para determinar el historial de los servicios.
-(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 93 al 98 actual)

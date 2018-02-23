@@ -1,5 +1,0 @@
-Artículo 134.—La amonestación oral y la amonestación escrita, relacionadas con aspectos disciplinarios ajenos a la asistencia corresponderá aplicarlas al superior inmediato, y se dejará constancia en el expediente personal remitiendo copia a la Dirección de Recursos Humanos, para el caso de la amonestación escrita.
-Las advertencias sobre asistencia deberá hacerlas la Dirección de Recursos Humanos, conforme al artículo 143 de este reglamento.
-Las infracciones a la normativa regulada en este reglamento que amerite una suspensión o despido, será impuesta por el Viceministro, previo procedimiento ordinario administrativo llevado a cabo por el Órgano Director que se designe; las gestiones de despido las firmará el Ministro de la Presidencia con observación de los trámites que establece el Estatuto de Servicio Civil y su Reglamento.
-(Así reformado por el artículo 7º del decreto ejecutivo N° 35979 del 5 de abril del 2010)
-(Así corrida la numeración por los artículos 4° y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 125 al 130 y posteriormente del numeral 130 al 134 actual)

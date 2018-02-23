@@ -1,2 +1,0 @@
-Artículo 29.—El servidor que sea declarado incapacitado para laborar por enfermedad, gozará de un subsidio en proporción al tiempo servido, conforme con las disposiciones establecidas en el numeral 34 del Reglamento del Estatuto de Servicio Civil.
-Cuando el servidor sea incapacitado para prestar sus servicios por motivo de un riesgo del trabajo, la Presidencia o el Ministerio pagará el subsidio correspondiente hasta completar el cien por ciento de su salario durante el tiempo que dure la incapacidad.

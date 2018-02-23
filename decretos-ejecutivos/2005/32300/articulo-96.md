@@ -1,3 +1,0 @@
-Artículo 96.—Los servidores que, en el ejercicio de sus funciones, deban viajar dentro o fuera del país tendrán derecho a que se les reconozcan los gastos de transporte y viáticos, consistentes en pasajes, alimentación y hospedaje, de acuerdo con la tabla de viáticos vigente. Ese reconocimiento deberá efectuarse antes del inicio de la gira respectiva.
-Los pagos señalados en el párrafo anterior no se considerarán salario para ningún efecto legal.
-(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 91 al 96 actual)

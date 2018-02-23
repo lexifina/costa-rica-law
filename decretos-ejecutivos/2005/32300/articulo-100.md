@@ -1,2 +1,0 @@
-Artículo 100.—La Dirección de Recursos Humanos confeccionará un prontuario, que formará parte del expediente personal, a fin de llevar un control expedito de: sus calificaciones de servicio, asistencia y puntualidad, aplicación de medidas disciplinarias y todos aquellos datos de importancia provenientes de las acciones de personal iniciándose el prontuario con los datos del ingreso del servidor.
-(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 95 al 100 actual)

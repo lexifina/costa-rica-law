@@ -1,6 +1,0 @@
-Artículo 78.—La Presidencia o el Ministerio no aprobarán una nueva licencia para estudios:
-a) Si el interesado ha reprobado una o más materias de las comprendidas en el anterior contrato de licencia para estudios.
-b) Cuando no haya demostrado las condiciones indicadas en el artículo precedente.
-c) Después de concluido el término natural de la carrera por la que el servidor haya optado, salvo excepciones muy calificadas, a juicio del Ministro, siempre y cuando no se sobrepase el término de tres años a que se refiere el artículo 37 del Reglamento del Estatuto de Servicio Civil; lo anterior previa consulta a la Dirección General del Servicio Civil.
-d) Que no cuente con un período de nombramiento que permita concluir con sus estudios o su período de reciprocidad.
-(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 73 al 78 actual)

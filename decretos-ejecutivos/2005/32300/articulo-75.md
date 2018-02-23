@@ -1,3 +1,0 @@
-Artículo 75.—Las licencias concedidas de acuerdo con lo dispuesto en el artículo 74 de este Reglamento, tendrán vigencia por el período lectivo que se estipule en el convenio, cuyo tiempo será el necesario para asistir a las lecciones y para el traslado al centro educativo correspondiente, debiéndose asistir al trabajo durante el período en que oficialmente no debe asistir a clases.
-(Así reformado por el artículo 1º del decreto ejecutivo N° 36070 del 14 de junio del 2010)
-(Así corrida la numeración mediante el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo 70 al 75 actual)

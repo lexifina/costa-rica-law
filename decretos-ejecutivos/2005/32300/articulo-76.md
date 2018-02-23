@@ -1,2 +1,0 @@
-Artículo 76.—En caso que el servidor solicitara una licencia con goce de salario por motivo de estudio y con ausencia permanente al trabajo por tiempo determinado, deberá de contar con un nombramiento cuya duración contemple al menos el período de estudio, así como el lapso para la reciprocidad del caso a la institución.
-(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 71 al 76 actual)

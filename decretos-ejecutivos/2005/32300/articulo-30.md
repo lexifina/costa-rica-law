@@ -1,2 +1,0 @@
-Artículo 30.—Mediante el pago del preaviso y del auxilio de cesantía correspondientes, la Presidencia o el Ministerio podrá cesar al servidor que exceda los plazos previstos en el artículo 36 del Reglamento del Estatuto de Servicio Civil, en los términos y condiciones ahí señalados.
-La regla que precede no se aplicará al caso del servidor incapacitado por un riesgo del trabajo; en cuyo supuesto se observarán las disposiciones del artículo 254 del Código de Trabajo.

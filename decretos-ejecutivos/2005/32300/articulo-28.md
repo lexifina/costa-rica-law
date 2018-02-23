@@ -1,2 +1,0 @@
-Subsidios por enfermedad y maternidad
-Artículo 28.—Las justificaciones de ausencias por incapacidades laborales, por enfermedad común y por riesgos del trabajo, se aceptarán tanto si son certificadas por un médico particular o por un médico de la correspondiente institución aseguradora; igualmente, esa certificación servirá para efectos del pago del subsidio respectivo. Todo en los términos y condiciones señalados en el artículo 35 del Reglamento del Estatuto de Servicio Civil.

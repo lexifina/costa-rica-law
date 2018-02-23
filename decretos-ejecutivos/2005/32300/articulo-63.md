@@ -1,2 +1,0 @@
-Artículo 63.—Las ausencias al trabajo por enfermedad que excedan de cuatro días, deberán justificarlas el servidor incapacitado con certificación emitida por la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros. Si la enfermedad lo afectara solamente hasta por cuatro días, podrá justificar dicha ausencia, por incapacidad que extienda el ente asegurador o en su defecto, dictamen de un médico particular.
-(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 58 al 63 actual)

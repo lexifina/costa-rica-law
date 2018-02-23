@@ -1,2 +1,0 @@
-Artículo 153.—Deber de probidad. Todo servidor (a) debe actuar con honradez, en especial cuando haga uso de recursos públicos que le son confiados para el cumplimiento de los fines estatales, o cuando participe en actividades o negocios de la administración que comprometen esos recursos. La vulneración de este principio será sancionada de conformidad con lo que estipula la Ley Contra la Corrupción y enriquecimiento ilícito en la función Pública N° 8422.
-(Así adicionado por ela rtículo 9° del decreto ejecutivo N° 38525 del 6 de junio del 2014)

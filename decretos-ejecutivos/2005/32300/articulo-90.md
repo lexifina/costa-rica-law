@@ -1,2 +1,0 @@
-Artículo 90.—Los recargos de puestos de clase diferente y de mayor categoría, cuando excedan de un mes, estarán sujetos a la aprobación del Viceministro y serán acordados siempre que el servidor reúna los requisitos de la clase que se pretende recargar.
-(Así corrida la numeración por el artículo 4º del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo artículo 85 al 90 actual)

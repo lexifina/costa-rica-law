@@ -1,2 +1,0 @@
-Artículo 118.—Contra la resolución final que se dicte cabrá el recurso de reposición, el cual deberá interponerse ante el Despacho del Ministro, dentro de los dos meses siguientes al de su notificación y deberá ser resuelto dentro de los ocho días siguientes a su recibo.
-(Así corrida la numeración por los artículos 4º y 5° del decreto ejecutivo N° 35979 del 5 de abril de 2010, que lo traspasó del antiguo 109 al 114 y posteriormente del numeral 114 al 118 actual)
