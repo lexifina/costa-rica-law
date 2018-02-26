@@ -1,1 +1,0 @@
-Artículo 38.—Integración: Los Comités Comunales serán el órgano de enlace entre el Comité Cantonal y la comunidad respectiva y estarán integrados por cinco miembros residentes en la zona correspondiente, quienes serán electos en la Asamblea indicada en el artículo anterior.

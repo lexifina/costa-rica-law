@@ -1,1 +1,0 @@
-Artículo 42.—El archivo: Todos los Comités Comunales están en la obligación de llevar un archivo administrativo y financiero, en el que consten los informes referentes a su gestión, los cuales podrán ser solicitados por el Comité Cantonal en cualquier momento.

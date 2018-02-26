@@ -1,4 +1,0 @@
-CAPÍTULO VIII
-De las comisiones
-Artículo 34.—Integración: En la sesión del Comité posterior inmediata a la instalación de sus miembros, el Presidente nombrará a los integrantes de las Comisiones Permanentes, cuya conformación podrá variarse anualmente. Cada Comité integrará como mínimo tres comisiones Permanentes: Finanzas, Instalaciones Deportivas y Administración de Instalaciones Deportivas. Al integrarlas, se procurará que participen en ellas todos los órganos que conforman el Comité Cantonal.
-Podrán existir, además, todas las comisiones especiales que decida crear el Comité, correspondiéndole siempre al Presidente la integración de las mismas. Cada Comisión estará integrada al menos por tres miembros. Los deportistas y los particulares podrán participar en las comisiones con carácter de asesores.

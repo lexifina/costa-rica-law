@@ -1,1 +1,0 @@
-Artículo 31.—El proyecto: El proyecto de acta de cada sesión deberá entregarse a los miembros del Comité Cantonal a más tardar veinticuatro horas antes de la sesión en que serán discutidas y aprobadas. La secretaría del Comité será la responsable de levantar las actas teniendo el cuidado de consignar en ellas los acuerdos tomados y sucintamente las deliberaciones habidas.

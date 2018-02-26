@@ -1,1 +1,0 @@
-Artículo 36.—Aplicación supletoria: A las comisiones se les aplicará en lo que corresponde a sus funciones, deberes y atribuciones, las disposiciones contenidas en este reglamento para los comités comunales.

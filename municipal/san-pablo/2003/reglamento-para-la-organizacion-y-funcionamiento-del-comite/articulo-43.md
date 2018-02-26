@@ -1,1 +1,0 @@
-Artículo 43.—Realización de torneos: Cuando los Comités Comunales, en coordinación con el Comité Cantonal, realicen torneos deportivos o actividades recreativas, estarán en la obligación de confeccionar el respectivo reglamento, el que debe ser aprobado previamente por el Comité Cantonal.

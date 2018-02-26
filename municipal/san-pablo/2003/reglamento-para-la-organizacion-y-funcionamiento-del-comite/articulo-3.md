@@ -1,1 +1,0 @@
-Artículo 3º—Domicilio: El domicilio legal del Comité Cantonal de deportes será en la sede de dicho Comité, ubicado 150 metros al este de la Municipalidad de San Pablo de Heredia, pudiendo variarse para casos excepcionales la sede en forma temporal previo acuerdo tomado por mayoría de dos terceras partes de los miembros de la Junta Directiva.

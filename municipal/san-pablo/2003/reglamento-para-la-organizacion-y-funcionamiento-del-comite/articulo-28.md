@@ -1,1 +1,0 @@
-Artículo 28.—Revocación de acuerdos: La Junta Directiva del Comité Cantonal de Deportes podrá, por razones de oportunidad y conveniencia, revocar sus propios acuerdos. Para ello se requerirá dejar constancia expresa en el acta de las razones de oportunidad y conveniencia para revocar el acuerdo, y una mayoría calificada del total de sus miembros.
