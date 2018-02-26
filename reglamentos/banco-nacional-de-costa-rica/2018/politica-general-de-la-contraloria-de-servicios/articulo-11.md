@@ -1,0 +1,3 @@
+Artículo 11º-Coordinación de la Contraloría de Servicios del BN con otras instancias
+1) Las dependencias responsables deberán informar oportunamente a las partes interesadas el comportamiento de las gestiones, para que sean utilizados en la generación de acciones que permitan mejorar el servicio al cliente y contribuyan a la toma de decisiones.
+2) Los incumplimientos por parte de las oficinas en la atención de las gestiones presentadas, plazos de respuesta y omisiones a las recomendaciones emitidas por la Contraloría de Servicios del BN, serán comunicados oportunamente a la dependencia superior con el fin de que se tomen las medidas disciplinarias correspondientes.
