@@ -20,3 +20,4 @@ Reglamento de Fondos Rotativos de Caja Chica del INA
 | 5 | 2015-11-30 | Reglamento 4719 (2015-11-30) |
 | 6 | 2016-06-13 | Reglamento 4747 (2016-06-13) |
 | 7 | 2017-07-17 | Reglamento 4801 (2017-07-17) |
+| 8 | 2018-02-26 | Reglamento 4836 (2018-02-26) |
