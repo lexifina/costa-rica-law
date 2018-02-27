@@ -1,1 +1,0 @@
-Artículo 3°—El Regulador General en su condición representante legal de la Autoridad Reguladora, será el funcional encargado de autorizar arreglos de pago. En su ausencia, la jefatura de Dirección Administrativa Financiera asumirá esa función.
