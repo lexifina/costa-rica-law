@@ -330,7 +330,6 @@ Costa Rica podrá mantener, renovar, modificar o continuar aplicando sus impuest
 (b) café, según lo dispuesto por la Ley No. 2762 del 21 de junio de 1961, y sus reformas; y
 (c) carne de bovino, según lo dispuesto en la Ley No. 6247 del 2 de mayo de 1978 y ganado en pie, según la Ley No. 7837 del 5 de octubre de 1998, y sus reformas.
 [imagen]
-[imagen]
 [imagen] DIRECCIÓN DE ASESORÍA LEGAL MINISTERIO DE COMERCIO EXTERIOR
 ROBERTO GAMBOA CHAVERRI, DIRECTOR DE LA ASESORÍA LEGAL DEL MINISTERIO DE COMERCIO EXTERIOR, CERTIFICA:
 Que las fotocopias que anteceden, numeradas de la uno a la novecientos cuarenta y siete, las cuales llevan calzado el sello de la Dirección de Asesoría Legal del Ministerio de Comercio Exterior, son
