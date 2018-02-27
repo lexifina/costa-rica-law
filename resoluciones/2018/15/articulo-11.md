@@ -1,0 +1,13 @@
+XI. —Establecer para la aplicación de los límites actualizados en esta Resolución relativos al artículo 27 de la Ley de Contratación Administrativa, los montos presupuestarios promedios, en millones de colones, del período 2016–2018, para la adquisición de bienes y servicios no personales, utilizando los presupuestos institucionales correspondientes para los dos primeros periodos y el presupuesto inicial para el periodo vigente. La información que se utilizó corresponde a la registrada y aprobada en el SIPP. El listado final de las entidades y órganos de la Administración Pública es el siguiente:
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+[imagen]
