@@ -1,0 +1,2 @@
+Artículo 2- Alcance.
+El presente reglamento regirá para todas las personas funcionarias del Instituto de Desarrollo Rural, practicantes, personas usuarias y beneficiarias de los servicios del Instituto, personal de contratación externa, proveedores, contratistas y otros con quienes establezcan relación las personas funcionarias del Inder por las labores que estas realizan. Es decir, se contemplan a todas las personas expuestas a situaciones de hostigamiento sexual en el marco de las actividades que desarrolla el Inder.

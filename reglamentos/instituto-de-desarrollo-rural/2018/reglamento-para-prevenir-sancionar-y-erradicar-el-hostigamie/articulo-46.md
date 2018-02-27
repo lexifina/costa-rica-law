@@ -1,0 +1,2 @@
+Artículo 46- Cese del contrato laboral de la persona denunciante.
+Si se recibe una denuncia por hostigamiento sexual en tiempo y forma correctos y se demuestra que el Inder no lleva a cabo el procedimiento establecido en la Ley contra Hostigamiento o Acoso Sexual en el Empleo y la Docencia N° 7476 y en este Reglamento. La persona funcionaria afectada podrá dar por terminado el contrato de trabajo, con responsabilidad patronal.

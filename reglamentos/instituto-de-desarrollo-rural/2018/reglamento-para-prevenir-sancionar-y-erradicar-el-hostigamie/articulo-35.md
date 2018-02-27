@@ -1,0 +1,2 @@
+Artículo 35- Del carácter privado de la audiencia.
+Para garantizar la confidencialidad del proceso y de la audiencia, solo podrán comparecer las partes y sus representantes, así como los asesores jurídicos o personas de apoyo emocional designadas por las partes en el número que a criterio de la Comisión Investigadora se considere razonable y que no atente en contra de los principios de confidencialidad y de no re victimización que rige en esta materia.

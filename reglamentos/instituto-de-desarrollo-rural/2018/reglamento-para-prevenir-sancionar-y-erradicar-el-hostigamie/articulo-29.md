@@ -1,0 +1,3 @@
+Artículo 29- De la persona testigo.
+Las personas que sean propuestas como testigos en el procedimiento especial por presunto hostigamiento sexual no podrán sufrir por ello perjuicio personal indebido en su empleo o en el proceso de prestación de servicios.
+A cada testigo, previo a su declaración, se deberá leer textualmente la disposición contenida en el Artículo 14 de la Ley contra Hostigamiento o Acoso Sexual en el Empleo y la Docencia Nº 7476. Asimismo, se le deberá hacer el señalamiento legal de que existen penas de prisión por el delito de falso testimonio, así como realizarle las preguntas de ley previas a cualquier declaración como testigo.

@@ -1,0 +1,2 @@
+Artículo 39- De los aspectos que debe contener la resolución final y la entidad responsable de emitirla.
+Concluido el Procedimiento especial por presunto hostigamiento sexual y rendida la recomendación final por parte de la Comisión Investigadora, el Presidente Ejecutivo en su condición de Órgano Decisor dictará la resolución final, la cual contendrá la misma estructura del informe recomendativo de la Comisión Investigadora.

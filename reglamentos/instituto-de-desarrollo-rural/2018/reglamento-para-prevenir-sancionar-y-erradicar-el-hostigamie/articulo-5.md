@@ -1,0 +1,15 @@
+Artículo 5- Responsabilidades.
+El superior Jerárquico institucional o quien éste designe será el responsable de la labor de divulgación de este Reglamento, así como de la política institucional de prevención y de cumplimiento de la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia. Fungirá como órgano decisor del asunto con las competencias y obligaciones establecidas en el presente reglamento.
+La comisión investigadora tendrá las siguientes competencias y obligaciones:
+a) Iniciará sus actuaciones hasta que este formalmente nombrada por el Presidente Ejecutivo.
+b) Una vez asignada la denuncia, la Comisión Investigadora deberá proceder de conformidad, sin recurrir a la ratificación de la denuncia, ni a la investigación preliminar de los hechos. Sin embargo, en casos en los que la denuncia no sea clara u omita requisitos procederá la ampliación y aclaración de dicha denuncia por parte de la Comisión Investigadora, trámite que realizará de forma inmediata con la participación de la persona denunciante.
+c) Una vez recibida la denuncia y preliminarmente encontrando mérito para considerar que la conducta podría ser constitutiva de hostigamiento sexual, dará traslado a la persona denunciada, quien deberá ser notificada conforme a derecho. Convocará a las partes a la audiencia oral y privada donde la persona denunciada podrá ejercer su defensa y aportar u ofrecer las pruebas que considere oportunas. Asimismo, deberá comunicar a las partes sus derechos.
+d) Deberá mantener una constante comunicación con la Defensoría de los Habitantes sobre los trámites del procedimiento especial por presunto hostigamiento sexual.
+e) No podrá llamar a la persona denunciante a ratificar la denuncia, solo podrá solicitarle una aclaración de los hechos o algún otro requisito, en caso de alguna omisión.
+f) Verificará que no existan errores u omisiones en el procedimiento, capaces de producir nulidad o indefensión.
+g) Durante el procedimiento especial sobre el hostigamiento sexual se garantizará a las partes, el respeto de cada uno de los principios de debido proceso constitucional.
+h) No se empleará prueba tasada y se aplicará el principio de libertad probatoria y en la valoración de la misma se aplicarán los principios que rigen la sana crítica.
+i) Si durante la tramitación del procedimiento se da la desvinculación laboral con la Institución de la persona denunciada, deberá dictar igualmente la resolución fundada, aunque sobrevenga una sanción que no se aplique.
+j) Debe procurar que la víctima o persona hostigada, la persona denunciada o las personas testigos no sufran alguna represalia. De conocerlo deberá informarlo inmediatamente a la Presidencia Ejecutiva para que tome las medidas que correspondan.
+k) Recomendará la apertura de los procedimientos respectivos contra aquellas personas funcionarias que entorpezcan la investigación, incumplan el deber de confidencialidad o incumplan las obligaciones que derivan de la Ley y el Reglamento.
+La comisión de Prevención del Hostigamiento: tendrá como responsabilidad el cumplimiento de lo establecido en el capítulo II de este reglamento.

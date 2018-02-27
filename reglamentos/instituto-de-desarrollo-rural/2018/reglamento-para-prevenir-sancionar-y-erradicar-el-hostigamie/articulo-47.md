@@ -1,0 +1,3 @@
+Artículo 47- Denuncias falsas
+Quien denuncie hostigamiento sexual falso podrá incurrir, cuando así se tipifique, en cualquiera de las conductas propias de la difamación, la injuria o la calumnia, según el Código Penal.
+En la redacción de la recomendación final, la Comisión Investigadora en caso de tener pruebas contundentes de la falsedad de los hechos denunciados por la presunta víctima, podrá recomendar al Presidente Ejecutivo los procedimientos disciplinarios correspondientes contra la persona funcionaria del Inder que haya hecho dicha denuncia y contra las personas funcionarias que hayan sido testigos dentro del Procedimiento especial por presunto hostigamiento sexual y hayan declarado hechos falsos.

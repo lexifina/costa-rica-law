@@ -1,0 +1,3 @@
+Artículo 22- De la integración de la Comisión Investigadora.
+Esta comisión no será permanente, será nombrada cada vez que se reciba una denuncia por hostigamiento sexual. La integración será competencia del Presidente Ejecutivo, será integrada por tres personas, en las que estén representados los diferentes sexos, con conocimientos en materia de hostigamiento sexual y régimen disciplinario. La formación deseable de dicha comisión es de profesionales en derecho, psicología u otros afines a la temática.
+En caso de inhibitoria o recusación de alguno de los miembros de la Comisión Investigadora debidamente fundadas, el Presidente Ejecutivo, en el menor plazo posible, deberá realizar la sustitución o sustituciones correspondientes en la Comisión Investigadora.

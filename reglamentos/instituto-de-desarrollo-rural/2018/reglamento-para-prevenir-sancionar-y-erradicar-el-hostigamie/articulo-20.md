@@ -1,0 +1,2 @@
+Artículo 20- Del plazo para interponer la denuncia y prescripción del procedimiento.
+El plazo para interponer la denuncia se considerará de dos años y se computará a partir del último acto que constituya hostigamiento sexual o a partir de que cesó la causa justificada que le impidió denunciar. El plazo de prescripción una vez que se inicie el Procedimiento especial por presunto hostigamiento sexual se computará de conformidad con las disposiciones del Código de Trabajo y de la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia.

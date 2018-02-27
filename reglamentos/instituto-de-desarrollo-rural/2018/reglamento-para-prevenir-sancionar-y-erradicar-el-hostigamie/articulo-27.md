@@ -1,0 +1,11 @@
+Artículo 27- Sobre los derechos de las presuntas víctimas en el procedimiento especial por presunto hostigamiento sexual.
+Las presuntas víctimas de hostigamiento sexual, tendrán los siguientes derechos:
+a) Podrán hacerse representar por patrocinio letrado. También podrán hacerse acompañar del apoyo emocional o psicológico de su confianza (que no necesariamente será un profesional en psicología) en las diversas fases del procedimiento. La ausencia de la presunta víctima, de un patrocinio Legal y/o del acompañamiento emocional o psicológico no será una limitante para la realización de la audiencia respectiva.
+b) Podrá solicitar medidas cautelares en contra del encausado.
+c) Al ser parte del procedimiento tendrá acceso a las piezas del expediente, podrá consultarlo cuando lo considere necesario y solicitar fotocopias del mismo, ya sea personalmente o autorizando por escrito a un tercero debidamente identificado.
+d) Se le hace saber a presunta víctima de hostigamiento sexual que desde el día en que se le notifique la resolución de traslado de cargos del procedimiento hasta el día de la audiencia oral y privada puede realizar alegatos de hecho y de derecho, ofrecer y aportar toda la prueba que estime conveniente en defensa de sus derechos y en el caso de ser prueba testimonial, la presentación de esta corre por su cuenta y deben de comparecer en la misma fecha y hora de la Audiencia señalada, para lo cual debe presentarse debidamente identificada con cédula de identidad u otro documento de identificación.
+e) Ser informados sobre los recursos que podrá interponer contra el traslado de cargos, así como los órganos encargados de resolver dichos recursos.
+f) Puede declarar en el momento que lo desee o bien abstenerse de hacerlo, sin que ello implique desistimiento o abandono del procedimiento. Con el fin de evitar una re victimización.
+g) Se le deben informar los medios y el lugar establecido por la institución para presentar los escritos en defensa de sus intereses.
+h) Presentar los recursos que correspondan contra la resolución final que realice el Órgano Decisor dentro del procedimiento especial por presunto hostigamiento sexual, recursos que se le deben de informar en dicha resolución.
+i) Otros que el ordenamiento jurídico les otorgue.

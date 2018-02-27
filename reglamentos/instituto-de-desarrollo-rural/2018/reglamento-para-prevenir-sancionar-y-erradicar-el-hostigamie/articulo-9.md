@@ -1,0 +1,14 @@
+Artículo 9- De las atribuciones, deberes y funciones de la Comisión de Prevención del Hostigamiento.
+a) Crear un mecanismo eficaz de prevención del hostigamiento sexual en el Instituto de Desarrollo Rural.
+b) Encargarse de la prevención y sensibilización del personal en materia de hostigamiento sexual y laboral.
+c) Promover las condiciones necesarias que garanticen el respeto entre las personas funcionarias de la institución, independientemente de su posición jerárquica; y de las personas funcionarias en relación con otras personas, sean practicantes, contratación externa, proveedores y personas usuarias o beneficiarias de los servicios que presta el Inder, etc. Lo anterior con el fin particular de asegurar un ambiente libre de hostigamiento sexual.
+d) Dar a conocer dentro del ámbito institucional que el hostigamiento sexual constituye una conducta indeseable por quien la recibe, constituyéndose en una forma de violencia y en una práctica discriminatoria por razón de sexo o por otra condición social, que coloque a las personas en una situación de vulnerabilidad en las relaciones que se generan en el desarrollo de las actividades del Inder.
+e) Dar a conocer que existe una política a nivel institucional dirigida a prevenir, investigar y sancionar dicha práctica. Comunicando, en forma escrita y oral, a las personas supervisoras y personas funcionarias en general sobre la existencia de una política institucional contra el hostigamiento sexual. Asimismo, dará a conocer dicha política de prevención a terceras personas cuando así convenga al cumplimiento de los fines establecidos en la legislación nacional vigente.
+f) Impartir charlas, seminarios o talleres, sobre la normativa y la política interna de prevención, investigación y sanción del hostigamiento sexual a todas las personas funcionarias, este tema se debe incluir en los contenidos de los talleres de inducción para personas funcionarias de nuevo ingreso.
+g) Colocar en lugares visibles en Oficinas Centrales y Regionales, un ejemplar del presente reglamento y publicidad con los contenidos de este.
+h) Elaborar materiales informativos que fomenten el respeto entre las personas funcionarias y personas usuarias del servicio; y que a su vez informen el procedimiento para denunciar conductas constitutivas de hostigamiento sexual.
+i) Procurar la actualización periódica y objetiva de la normativa interna y políticas de prevención en materia de hostigamiento.
+j) Suscribir convenios con instituciones u organizaciones públicas o privadas en procura de obtener los conocimientos sobre los alcances de la normativa vigente sobre hostigamiento sexual.
+k) Brindar seguimiento de los casos, siempre y cuando la persona hostigada lo consienta.
+l) Conocer, analizar y emitir las recomendaciones en casos donde el presunto hostigador es una persona externa que se relaciona con el personal del Inder por razones laborales.
+m) Cualquier otro que se considere pertinente.

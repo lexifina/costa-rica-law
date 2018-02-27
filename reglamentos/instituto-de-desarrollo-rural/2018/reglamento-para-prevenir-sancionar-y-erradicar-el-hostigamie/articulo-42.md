@@ -1,0 +1,4 @@
+CAPITULO IV. Administración de faltas y sanciones.
+Artículo 42- Sanciones.
+Las sanciones por hostigamiento sexual para personas funcionarias del Inder son las indicadas en la Ley contra Hostigamiento o Acoso Sexual en el Empleo y la Docencia N° 7476: amonestación escrita, suspensión de días sin goce de salario y despido. Las sanciones serán aplicadas, según los principios constitucionales de razonabilidad y proporcionalidad, entre otros, de forma tal que las mismas correspondan a la gravedad del hecho.
+La Comisión Investigadora podrá clasificar las faltas como leves, graves o gravísimas. La clasificación de la falta dependerá del hecho cometido, clasificando como faltas leves las conductas del Artículo 4 inciso d) del presente reglamento, grave inciso a) y gravísimas el inciso b), c), e) y f), todas estas conductas establecidas en del artículo 4 del presente reglamento.

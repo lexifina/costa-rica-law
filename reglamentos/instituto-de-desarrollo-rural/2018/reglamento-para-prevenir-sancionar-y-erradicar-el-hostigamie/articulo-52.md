@@ -1,0 +1,2 @@
+Artículo 52- Normativa complementaria.
+En todo aquello no previsto en el presente reglamento se aplicará lo establecido en la Constitución Política, Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, Ley General de Administración Pública, Código de Trabajo, Reglamento Autónomo de Servicios del Inder, y demás leyes, decretos y reglamentos conexos en la materia que estén en vigencia en el país.

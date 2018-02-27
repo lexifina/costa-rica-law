@@ -1,0 +1,11 @@
+Artículo 15- Del apoyo a las funciones de la Comisión.
+a) La Presidencia Ejecutiva, brindará el seguimiento respectivo a las recomendaciones que emita esta Comisión.
+b) La Gerencia General girará directrices relacionadas con la prevención del hostigamiento sexual.
+c) Las personas nombradas en puestos de directores, jefaturas y coordinaciones, deben garantizar la participación de todo el personal a su cargo en las diferentes actividades que se lleven a cabo con el fin de prevenir las conductas de acoso u hostigamiento sexual.
+d) La Dirección de Asuntos Jurídicos debe apoyar a la Comisión en cuanto a la emisión de criterios jurídicos relacionados con la labor preventiva de esta comisión.
+e) Capital Humano debe reservar recursos y tiempo en los procesos de inducción y capacitación general a todas las personas abarcadas en el alcance de este reglamento, para que la Comisión de Prevención del Hostigamiento pueda generar procesos de sensibilización.
+f) Salud Ocupacional en conjunto con Prensa y Comunicación deben apoyar a la Comisión de prevención del hostigamiento en la promoción y ejecución de campañas preventivas del hostigamiento sexual y laboral, considerando que de acuerdo a la Ley de Riesgos del Trabajo, el patrono debe trabajar en la prevención de riesgos, y en este caso se trata de un riesgo psicosocial.
+g) La Comisión Investigadora del Procedimiento especial por presunto hostigamiento sexual, debe informar a todas las personas hostigadas sobre el papel preventivo de la Comisión, con el fin de que las personas hostigadas puedan decidir si aceptan un seguimiento del caso por parte de la Comisión de Prevención del Hostigamiento.
+h) Proveeduría Institucional debe incluir en los documentos que se generan para los diferentes procesos de contratación administrativa lo referente a promover las condiciones
+necesarias que garanticen el respeto entre las personas funcionarias y las contrataciones externas o proveedores, de manera que las personas externas estén enteradas de la Política institucional de prevención del hostigamiento.
+i) La Contraloría de Servicios debe apoyar las campañas de sensibilización, dando a conocer a los usuarios y beneficiarios la existencia de la normativa interna en materia de hostigamiento sexual.
