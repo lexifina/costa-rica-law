@@ -14,3 +14,4 @@ Reglamento para la Aplicación de Sanciones en Materia de Construcciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-01-11 | la propia norma |
+| 2 | 2018-02-27 | Reglamento municipal 141 (2018-02-27) |
