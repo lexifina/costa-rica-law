@@ -1,0 +1,2 @@
+Artículo 21 En caso de objeciones o correcciones solicitadas a los documentos aportados, la persona responsable de la obra queda autorizada para la modificación solicitada, siempre y cuando, se mantenga como obras menores. Lo anterior sin perjuicio de las responsabilidades penales y civiles inherentes al propietario del inmueble todo en apego a la Ley 8220 y su reglamento.
+Solidariamente, el propietario del inmueble donde se realice la obra, serán corresponsables de los datos que constan en el proyecto,

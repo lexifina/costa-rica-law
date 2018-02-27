@@ -1,0 +1,1 @@
+Artículo 2 Cumplimiento. Ninguna de las obras contempladas en este reglamento será ejecutadas sin cumplir los requerimientos que se detallan en el Reglamento de Construcciones, publicado en La Gaceta Nº 56, alcance Nº 17 del 22 de marzo de 1983, y sus reformas publicadas en La Gaceta Nº 117 del 22 de junio de 1987.

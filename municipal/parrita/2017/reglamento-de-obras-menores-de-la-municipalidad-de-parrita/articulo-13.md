@@ -1,0 +1,1 @@
+Artículo 13 No se considerarán obras menores según el criterio técnico especializado del funcionario municipal competente, las obras que incluyan modificaciones al sistema estructural, eléctrico o mecánico de un edificio y que pongan en riesgo la seguridad de sus ocupantes,

@@ -1,0 +1,1 @@
+Artículo 4 Este reglamento atiende el mandato de nuestros legisladores indicado en la modificación de la Ley de Construcciones N° 833 publicada en el Alcance N° 247 el día martes 17 de octubre del 2017.

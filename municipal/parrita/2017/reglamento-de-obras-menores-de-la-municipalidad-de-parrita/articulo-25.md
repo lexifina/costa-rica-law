@@ -1,0 +1,1 @@
+Artículo 25 Inspección preliminar. De previo al otorgamiento de la licencia respectiva, la Municipalidad podrá realizar una inspección a fin de verificar el cumplimiento y veracidad de los requisitos aportados por el interesado.

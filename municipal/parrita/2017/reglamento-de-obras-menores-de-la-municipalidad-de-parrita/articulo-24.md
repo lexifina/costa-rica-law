@@ -1,0 +1,1 @@
+Artículo 24 Revisión y plazo de resolución de la solicitud. Se realizará según lo determine la reglamentación vigente. La resolución de estas solicitudes se deberá dar a más tardar en diez días hábiles, previo cumplimiento de todos los requisitos y pago de los impuesto respectivos.

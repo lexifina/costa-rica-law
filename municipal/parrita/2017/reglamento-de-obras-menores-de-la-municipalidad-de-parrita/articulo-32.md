@@ -1,0 +1,1 @@
+Artículo 32 Recursos. Las actuaciones de los funcionarios municipales serán susceptibles, dentro de los cinco días hábiles contados a partir de su notificación, de los recursos de revocatoria y/o de apelación en de conformidad con lo dispuesto en el artículo 162 del Código Municipal.
