@@ -1,2 +1,1 @@
-Artículo 99.—De los Recursos. Cabrán los Recursos establecidos en la Ley General de la Administración Pública. En el procedimiento ordinario, cuando el acto final lo dicte el Director General, el Recurso de Apelación será resuelto por el Máximo Jerarca de la Institución. En ese mismo procedimiento, cuando el acto final lo dicte el Máximo Jerarca de la Institución o la Junta Administrativa, cabrá únicamente recurso de reposición.
-En el procedimiento sumario, el Recurso de Apelación contra el acto final deberá resolverlo el Director General, el Máximo Jerarca de la Institución o la Junta Administrativa, según sea el caso.
+Artículo 99.— (Eliminado por el artículo 2° del decreto ejecutivo N° 41066 del 27 de febrero de 2018)

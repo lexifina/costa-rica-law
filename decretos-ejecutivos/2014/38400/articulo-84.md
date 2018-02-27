@@ -1,1 +1,1 @@
-Artículo 84.—De la finalidad de la investigación preliminar. Esta investigación preliminar tiene como fin recabar los elementos de juicio para descartar o confirmar la necesidad de ordenar la apertura de un procedimiento administrativo, sea porque no existe claridad en lo acaecido, la identidad de los presuntos responsables o la fórmula adecuada para intimar de modo claro, preciso y circunstanciado los hechos.
+Artículo 84.— (Eliminado por el artículo 2° del decreto ejecutivo N° 41066 del 27 de febrero de 2018)

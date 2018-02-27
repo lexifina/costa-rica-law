@@ -15,3 +15,4 @@ Reglamento autónomo de servicio del Registro Nacional
 | --- | --- | --- |
 | 1 | 2014-08-15 | la propia norma |
 | 2 | 2016-02-29 | Decreto Ejecutivo 39656 (2016-02-29) |
+| 3 | 2018-02-27 | Decreto Ejecutivo 41066 (2018-02-27) |

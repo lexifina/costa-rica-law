@@ -1,1 +1,1 @@
-Artículo 96.—De los alegatos. Los interesados podrán, en cualquier momento del procedimiento hasta el trámite de audiencia o comparecencia, aportar documentos u otros elementos de juicio, mismos que serán tenidos en cuenta por el órgano competente al dictar la resolución final.
+Artículo 96.— (Eliminado por el artículo 2° del decreto ejecutivo N° 41066 del 27 de febrero de 2018)

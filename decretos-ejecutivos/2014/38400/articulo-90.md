@@ -1,1 +1,1 @@
-Artículo 90.—De los actos y conductas administrativas contenidas en la investigación. Todas las conductas administrativas que comprendan el trámite de la investigación preliminar, deben ser incorporadas en un expediente creado al efecto. En caso de que la Administración determine la necesidad de iniciar un procedimiento administrativo, el expediente de la investigación deberá quedar incorporado como un legajo aparte.
+Artículo 90.— (Eliminado por el artículo 2° del decreto ejecutivo N° 41066 del 27 de febrero de 2018)

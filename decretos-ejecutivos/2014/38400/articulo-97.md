@@ -1,1 +1,1 @@
-Artículo 97.—Conclusión del procedimiento. Podrán finalizar el procedimiento por resolución final, desistimiento y renuncia al derecho en que funde la solicitud el Jerarca.
+Artículo 97.— (Eliminado por el artículo 2° del decreto ejecutivo N° 41066 del 27 de febrero de 2018)

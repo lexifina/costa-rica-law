@@ -1,4 +1,5 @@
-Artículo 14. -Deberes de los funcionarios. Sin perjuicio de lo que disponga el Estatuto de Servicio Civil y su Reglamento, la Constitución Política, el Código de Trabajo, la Ley General de la Administración Pública, la Ley General de Control Interno, la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Negociación Colectiva de los Servidores del Registro Nacional y demás normativa relativa, son deberes de los funcionarios del Registro Nacional:
+Artículo 14.—Deberes de los funcionarios. Sin perjuicio de lo que disponga el Estatuto de Servicio Civil y su Reglamento, la Constitución Política, el Código de Trabajo, la Ley General de la Administración Pública, la Ley General de Control Interno, la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Negociación Colectiva de los Trabajadores del Registro Nacional y demás normativa relativa, son deberes de los funcionarios del Registro Nacional:
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 41066 del 27 de febrero de 2018)
 1) Desempeñar y ejecutar en forma regular y continua sus labores, cumpliendo con diligencia y buena voluntad las órdenes de sus Superiores Jerárquicos. Además debe auxiliar en su trabajo a cualquier funcionario, cuando así se disponga.
 2) Ejecutar las labores con la capacidad, dedicación y diligencia que el cargo requiera, aplicando todo su esfuerzo para el desempeño de sus funciones.
 3) Cumplir con todas las medidas lógicas y físicas en materia de seguridad, incluyendo lo relativo al acceso de las bases de datos y a los espacios físicos; así como las Políticas relativas al uso de información y de tecnología de la información.
@@ -27,4 +28,6 @@ Artículo 14. -Deberes de los funcionarios. Sin perjuicio de lo que disponga el 
 26) Consultar ante el Superior Jerárquico Inmediato, los casos complejos de carácter sustantivo y administrativo que lo ameriten.
 27) Velar para que la buena imagen del Registro Nacional no se deteriore.
 28) Utilizar de manera única y exclusiva la clave de acceso que le haya sido asignada, generando responsabilidad su utilización irregular.
+29) Será deber de todos los funcionarios registrar siempre cada licencia con o sin goce salarial establecida en la normativa aplicable a los funcionarios del Registro Nacional.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41066 del 27 de febrero de 2018)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 39656 del 29 de febrero del 2016)

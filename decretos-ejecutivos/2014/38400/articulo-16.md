@@ -1,5 +1,6 @@
-Artículo 16. -Prohibiciones a los funcionarios. Además de lo dispuesto en los artículos 40 del Estatuto de Servicio Civil y artículo 51 de su Reglamento, artículo 72 del Código de Trabajo, Ley General de Control Interno, Ley contra la Corrupción y el Enriquecimiento Ilícito y demás normativa relativa, son prohibiciones a funcionarios del Registro Nacional:
-1) Privilegiar o discriminar por motivo de género, preferencia sexual, identidad sexual, filiación política, credo, raza, condición socioeconómica, parentesco u otros criterios que sean incompatibles con los derechos humanos y con el mérito personal.
+Artículo 16.—Prohibiciones a los funcionarios. Además de lo dispuesto en los artículos 40 del Estatuto de Servicio Civil y artículo 51 de su Reglamento, artículo 72 del Código de Trabajo, Ley General de Control Interno, Ley contra la Corrupción y el Enriquecimiento Ilícito y demás normativa relativa, son prohibiciones a funcionarios del Registro Nacional:
+1) Privilegiar o discriminar por motivo de género, preferencia sexual, identidad sexual, condiciones físicas especiales, filiación política, credo, raza, condición socioeconómica, parentesco u otros criterios que sean incompatibles con los derechos humanos y con el mérito personal.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41066 del 27 de febrero de 2018)
 2) Ocupar tiempo dentro de la jornada laboral para asuntos ajenos a las funciones, actividades y tareas asignadas.
 3) Atender visitas, presentarse en otras oficinas que no sean aquellas en donde debe prestar sus servicios, hacer uso del teléfono o medios de comunicación electrónica para atender asuntos personales, salvo previa autorización por escrito del Superior Jerárquico Inmediato.
 4) Recibir dádivas o gratificaciones por servicios prestados como funcionarios del Registro Nacional.
@@ -13,7 +14,8 @@ Artículo 16. -Prohibiciones a los funcionarios. Además de lo dispuesto en los 
 12) Extralimitarse en sus funciones o deberes que le están encomendados y tomarse atribuciones que no le corresponden.
 13) Conducir los vehículos propiedad de la Junta Administrativa del Registro Nacional, para uso del Registro Nacional, sin estar autorizado o sin portar licencia al día, según las disposiciones administrativas de carácter general.
 14) Permitir que particulares viajen en los vehículos de la Institución sin autorización previa del funcionario responsable, según las disposiciones administrativas de carácter general.
-15) Alterar los registros de asistencia, realizar el registro de asistencia de otro funcionario, o consentir que otra persona registre la propia.
+15) Alterar los registros de asistencia dispuestos por el Departamento de Gestión Institucional de Recursos Humanos en aquellas dependencias en que dicho registro se lleve por mecanismos o sistemas distintos a los electrónicos y biométricos con que se cuenta en Sede Central.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41066 del 27 de febrero de 2018)
 16) Dejar sin cancelar las deudas adquiridas por la Institución, en aquellos casos en donde el Registro Nacional las haya autorizado.
 17) Atender negocios de carácter personal, o ejecutar trabajos de terceras personas durante la jornada laboral.
 18) Divulgar el contenido de informes o documentos confidenciales; además hacer público cualquier asunto de origen interno o privado de la oficina, sin previa autorización por escrito del Superior Jerárquico Inmediato.
@@ -24,7 +26,8 @@ Artículo 16. -Prohibiciones a los funcionarios. Además de lo dispuesto en los 
 23) Intervenir en la elaboración o redacción de documentos sujetos a registro en esta Institución, así como en la presentación y trámite del mismo. Esta prohibición comprende a todos los funcionarios que reciban o no pago por concepto de prohibición o dedicación exclusiva.
 24) Violar las disposiciones administrativas de carácter general que se establezcan en cuanto al contacto del funcionario con el público y sobre las consultas que formulen las partes interesadas.
 25) Alterar documentos o información con evidente intención de inducir a error a la Administración.
-26) Fumar dentro de los lugares de la Institución ubicados bajo techo y que se destinen al uso colectivo.
+26) Fumar dentro de la Institución.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41066 del 27 de febrero de 2018)
 27) Hostigar, presionar o tomar represalia contra los funcionarios para obtener un provecho personal.
 28) Cualquier proceder contrario a la moral y buenas costumbres que debe poseer todo funcionario de esta Institución.
 29) Ver, exhibir o difundir material pornográfico en cualquier lugar de la Institución.
@@ -33,4 +36,6 @@ Artículo 16. -Prohibiciones a los funcionarios. Además de lo dispuesto en los 
 32) Consignar en documento en que conste la fe pública registral, información diferente de la que conste en el Registro respectivo.
 33) Violentar las disposiciones que las Direcciones del Registro respectivo establezcan en cuanto al contacto del funcionario con el público, Y a las consultas que las partes interesadas formulen a los servidores.
 34) Negarse a atender o realizarlo de manera inadecuada a usuarios del Registro Nacional por pertenecer los mismos a una población sexual mente diversa.
+35) Mantener laborando en una misma oficina o departamento, a funcionarios en los que exista entre ellos relación jerárquica inmediata y que se encuentren ligados por parentesco de consanguinidad o afinidad hasta el tercer grado inclusive.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41066 del 27 de febrero de 2018)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 39656 del 29 de febrero del 2016)

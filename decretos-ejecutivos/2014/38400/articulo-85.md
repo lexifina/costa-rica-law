@@ -1,1 +1,1 @@
-Artículo 85.—Del inicio de la investigación preliminar. El competente iniciará la investigación preliminar por acto que contendrá la indicación expresa de la situación por indagar; misma que podrá realizarla el competente directamente o el órgano investigador que seleccione dentro de sus subordinados jerárquicos.
+Artículo 85.— (Eliminado por el artículo 2° del decreto ejecutivo N° 41066 del 27 de febrero de 2018)

@@ -1,3 +1,1 @@
-Artículo 86.—Del desarrollo de la investigación preliminar. Se deberán adoptar todas las medidas probatorias o necesarias que estén permitidas por el derecho común.
-Cuando la averiguación recaiga en el órgano investigador y este finalice de recabar la prueba, deberá emitir un informe que contendrá al menos; antecedentes de la investigación, hechos probados y no probados, relación de hechos y conclusiones.
-El informe deberá ser del conocimiento del órgano competente quien podrá ordenar: que sea adicionado o aclarado en aspectos específicos, el archivo del caso, el inicio de un procedimiento administrativo disciplinario o gestión de despido, según corresponda.
+Artículo 86.— (Eliminado por el artículo 2° del decreto ejecutivo N° 41066 del 27 de febrero de 2018)
