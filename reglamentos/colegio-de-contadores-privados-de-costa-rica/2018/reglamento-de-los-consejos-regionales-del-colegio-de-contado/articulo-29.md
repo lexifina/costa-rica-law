@@ -1,0 +1,1 @@
+Artículo 29: La Junta Directiva del Consejo Regional será la encargada de administrar los bienes muebles e inmuebles entregados a ellos, bajo cualquier título, para su custodia, los cuales serán patrimonio del Colegio de Contadores Privados de Costa Rica.

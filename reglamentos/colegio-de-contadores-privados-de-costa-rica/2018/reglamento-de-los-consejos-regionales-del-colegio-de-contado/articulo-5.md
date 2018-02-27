@@ -1,0 +1,2 @@
+Artículo 5: La comisión de Consejos Regionales sesionará ordinariamente dos veces al mes y extraordinariamente cuando las circunstancias así lo ameriten, previa autorización de la Junta Directiva y sus miembros tendrán la obligación de asistir a todas las sesiones, ya sean ordinarias o extraordinarias.
+La ausencia inmotivada de cualquiera de los miembros de la Comisión de Consejos Regionales a tres sesiones ordinarias consecutivas o a cinco en el término de cuatro meses, previa audiencia al interesado, dará lugar a su separación temporal como integrante de la Comisión.

@@ -1,0 +1,1 @@
+Artículo 33: Cada Consejo Regional deberá formular su proyecto de presupuesto anual y su plan de trabajo, que deberá contar con lo establecido por la Comisión de Presupuesto y Finanzas antes de la Asamblea Anual de Presupuesto para conocimiento y análisis de la Junta Directiva del Colegio, a fin de integrarlo en el presupuesto general.

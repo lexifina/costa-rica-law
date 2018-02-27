@@ -1,0 +1,1 @@
+Artículo 12: La Asamblea General ordinaria en que los consejos regionales deban elegir a su respectiva junta directiva, deberá ser convocada con al menos quince días de anticipación a la fecha en que vence el período de la misma. La Comisión velará por el cumplimiento de formalidades en esas elecciones.

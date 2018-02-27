@@ -1,0 +1,1 @@
+Artículo 26: Cuando la Junta Directiva de un Consejo Regional no se reúna durante cuatro sesiones ordinarias consecutivas o seis alternas en un lapso de tres meses dará lugar a la disolución del Consejo Regional previa aplicación del debido proceso.

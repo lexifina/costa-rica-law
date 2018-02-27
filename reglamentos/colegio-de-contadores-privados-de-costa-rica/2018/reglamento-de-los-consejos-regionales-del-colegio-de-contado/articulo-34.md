@@ -1,0 +1,1 @@
+Artículo 34: En Asamblea general ordinaria de cada Consejo Regional, la Junta Directiva informará a sus afiliados sobre el estado general de los recursos financieros y económicos que provengan de los fondos asignados y generados.

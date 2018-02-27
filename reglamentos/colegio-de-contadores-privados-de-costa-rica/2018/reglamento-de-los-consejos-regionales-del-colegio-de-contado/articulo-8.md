@@ -1,0 +1,1 @@
+Artículo 8: Las adquisiciones de bienes y/o servicios, se hará por medio de la Administración del Colegio y de ello será informado oportunamente, la Comisión de Consejos Regionales, ello con apego a lo establecido a través de los procedimientos internos del Colegio de Contadores Privados de Costa Rica.

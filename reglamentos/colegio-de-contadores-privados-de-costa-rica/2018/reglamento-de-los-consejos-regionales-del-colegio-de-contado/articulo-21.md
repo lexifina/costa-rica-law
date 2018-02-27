@@ -1,0 +1,1 @@
+Artículo 21: El Colegio a través de los Consejos Regionales suministrará los nombres de los contadores de su jurisdicción, de los cuales se les haya dado de baja o suspendido. Además, brindará la nómina de los contadores activos.

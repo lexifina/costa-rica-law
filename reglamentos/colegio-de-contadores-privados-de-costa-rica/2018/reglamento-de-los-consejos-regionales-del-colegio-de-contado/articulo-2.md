@@ -1,0 +1,2 @@
+Artículo 2: La Comisión de Consejos Regionales actuará de acuerdo al Reglamento de Comisiones. La Comisión de Consejos Regionales tendrá su domicilio en las oficinas centrales del Colegio de Contadores Privados de Costa Rica, sita en Calle Fallas de Desamparados, San José.
+Además, podrá reunirse en cualquier sede regional según lo estipulado en el Reglamento de Comisiones, cuando sea necesario, previa autorización de la Junta Directiva.

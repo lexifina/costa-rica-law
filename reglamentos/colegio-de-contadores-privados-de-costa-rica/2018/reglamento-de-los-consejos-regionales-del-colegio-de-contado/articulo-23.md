@@ -1,0 +1,1 @@
+Artículo 23: La elección de la Junta Directiva se hará bajo la responsabilidad de los Consejos. Será válida cuando haya sido convocada con la anticipación y la divulgación establecidas y asistan a la respectiva Asamblea no menor de diez miembros en pleno goce de sus derechos.

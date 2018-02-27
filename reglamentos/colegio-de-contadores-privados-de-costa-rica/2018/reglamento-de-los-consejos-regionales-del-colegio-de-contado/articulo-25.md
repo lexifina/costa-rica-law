@@ -1,0 +1,1 @@
+Artículo 25: Los consejos regionales deberán cumplir con los objetivos y responsabilidades que se establecen en el presente Reglamento. Además, estarán obligados a mostrar, cuando sea requerido, sus registros contables.

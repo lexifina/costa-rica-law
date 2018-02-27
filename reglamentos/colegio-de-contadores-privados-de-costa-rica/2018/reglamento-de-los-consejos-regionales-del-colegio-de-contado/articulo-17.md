@@ -1,0 +1,1 @@
+Artículo 17: Los integrantes de La Junta Directiva del Consejo Regional devengarán dieta por las sesiones mensuales ordinarias y extraordinarias, según presupuesto aprobado por la Asamblea General del Colegio.

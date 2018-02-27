@@ -1,0 +1,1 @@
+Artículo 7: La comisión de Consejos Regionales deberá presentar ante la Junta Directiva del Colegio los programas anuales de trabajo de los Consejos Regionales, a más tardar quince días hábiles después de su nombramiento.
