@@ -1,0 +1,2 @@
+Artículo 11: El Tribunal sesionará ordinariamente al menos una vez cada dos semanas durante el periodo electoral, que comprende dos meses antes y un mes después de las elecciones y extraordinariamente cuando sean convocados por el presidente o secretario. La sede del Tribunal estará en el domicilio legal del Colegio.
+Es valida la participación virtual de los miembros del Tribunal en las diferentes sesiones de trabajo, en cuyo caso deberá quedar constancia en el acta de dicha participación.

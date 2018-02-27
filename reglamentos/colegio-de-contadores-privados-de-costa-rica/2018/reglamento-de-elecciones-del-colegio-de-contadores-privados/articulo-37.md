@@ -1,0 +1,1 @@
+Artículo 37: Al finalizar la jornada electoral electrónica, el Tribunal y los Fiscales de cada tendencia previamente acreditados ante el tribunal, junto con el experto del sistema extraerán el reporte con el resultado de las elecciones, del cual se levantará un acta.

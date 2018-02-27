@@ -1,0 +1,1 @@
+Artículo 5: El Tribunal ejercerá sus funciones específicamente en el proceso electoral de integrantes de Junta Directiva, en Asamblea General Ordinaria y en casos excepcionales de elecciones parciales en Asamblea General Extraordinaria.

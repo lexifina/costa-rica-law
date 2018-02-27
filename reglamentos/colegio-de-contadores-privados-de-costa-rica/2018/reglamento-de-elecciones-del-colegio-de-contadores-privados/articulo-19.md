@@ -1,0 +1,2 @@
+Artículo 19: El Tribunal otorgará tres días hábiles posteriores a la recepción de los documentos de inscripción, para que las tendencias corrijan cualquier error material que se presente en el formulario de inscripción.
+En caso de que la tendencia no corrija el error en el tiempo estipulado, se tendrá por no presentada la solicitud, lo cual deberá El Tribunal resolver dentro del plazo de dos días siguientes al vencimiento del término anteriormente asignado.

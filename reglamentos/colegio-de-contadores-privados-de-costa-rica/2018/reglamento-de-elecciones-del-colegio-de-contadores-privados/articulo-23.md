@@ -1,0 +1,1 @@
+Artículo 23: Durante el período electoral el Tribunal, en coordinación con la Administración del Colegio, estará facultado para autorizar la colocación de propaganda y la realización de actividades proselitistas en las instalaciones del Colegio. Garantizando la imparcialidad del caso y el cuido del ornato del Colegio.

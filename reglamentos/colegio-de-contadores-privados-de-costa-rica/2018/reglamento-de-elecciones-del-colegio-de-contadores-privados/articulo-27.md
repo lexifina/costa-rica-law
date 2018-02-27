@@ -1,0 +1,1 @@
+Artículo 27: Quien o quienes incumplan lo establecido en el artículo 26 o alguna otra prohibición estipulada dentro de este reglamento, será considerado como falta grave de conformidad de lo que establece el Código de Ética del Colegio de Contadores Privados de Costa Rica.

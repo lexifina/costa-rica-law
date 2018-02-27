@@ -1,0 +1,1 @@
+Artículo 9: El quórum para sesionar se constituye con tres de sus miembros y los acuerdos se tomarán por mayoría simple de los votos. En caso de empate decidirá el Presidente, para lo cual tendrá voto de calidad.

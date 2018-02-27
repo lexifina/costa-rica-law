@@ -1,0 +1,1 @@
+Artículo 14: La administración enviara con un mes de antelación a las elecciones por el medio electrónico idóneo al menos en dos ocasiones la información relacionada con los datos de acceso a la plataforma electoral, para que el colegiado pueda verificar que esté debidamente incluido en el patrón electoral.

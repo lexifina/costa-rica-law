@@ -1,0 +1,1 @@
+Artículo 15: En caso de existir alguna inconsistencia el Colegiado deberá comunicarle a la Administración y ésta a su vez estará obligada a realizar las modificaciones necesarias para su empadronamiento. Esta responsabilidad recaerá en la Dirección Ejecutiva del Colegio.

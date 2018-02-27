@@ -1,0 +1,1 @@
+Artículo 28: Queda prohibido a todos los funcionarios, los miembros de Junta Directiva y Consejos Regionales, valerse de su posición o influencia para promover o permitir que los postulantes utilicen o se beneficien, de manera directa o indirecta, de los recursos y de la información del Colegio.

@@ -1,0 +1,2 @@
+Artículo 24: El Tribunal dará a conocer por los medios definidos por el Colegio la nómina con las candidaturas inscritas y aprobadas, con el propósito de informar a los Colegiados y motivar su participación en el proceso electoral.
+Para tal efecto El Tribunal habilitará el espacio en un correo electrónico masivo, durante el periodo electoral con la información de los postulantes, las veces que el tribunal considere pertinentes, pero no será más frecuente que una vez a la semana.

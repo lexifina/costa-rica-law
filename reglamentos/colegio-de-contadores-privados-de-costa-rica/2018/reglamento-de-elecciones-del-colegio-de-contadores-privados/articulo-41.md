@@ -1,0 +1,2 @@
+Artículo 41: La elección se hará de acuerdo a las diferentes tendencias existentes para las elecciones, ganará el candidato que obtenga el mayor número de votos a favor de acuerdo al puesto para el cual se esté postulando. En caso que se presente empate, se repetirá la elección entre los candidatos que obtuvieron el mayor número de votos. En segunda ronda quedará electo el candidato que obtenga mayoría, de persistir el empate quedará electo el candidato de mayor edad.
+En la segunda ronda se tendrán las mismas condiciones electorales para los Colegiados.

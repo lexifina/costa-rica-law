@@ -1,0 +1,3 @@
+Artículo 44: Salvo disposición expresa en este Reglamento, los términos por días se contarán como días hábiles y los términos por meses se contarán de fecha a fecha.
+Este Reglamento deroga las disposiciones normativas de igual o inferior rango sobre materia electoral del Colegio de Contadores Privados de Costa Rica incluido el Reglamento de Comisión Electoral del CCPCR y rige para efectos internos a partir de la fecha de su aprobación, y para efectos de terceros a partir de su publicación.
+Aprobado en Asamblea Extraordinaria 146-2018 del 20 de enero, 2018. Publicado en la Gaceta N°- ___ del día ___de ____ del año ____ Página N°- ___.

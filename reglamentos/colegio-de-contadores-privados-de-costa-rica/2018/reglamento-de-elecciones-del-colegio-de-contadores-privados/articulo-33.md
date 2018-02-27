@@ -1,0 +1,1 @@
+Artículo 33: Podrán votar públicamente los Colegiados con alguna limitación calificada que les imposibilite emitir su voto en forma secreta, para ello deberán solicitar al Tribunal Electoral, la asistencia de un colaborador, para que supervise la emisión del voto, en estos casos deberá quedar constancia que esa persona hizo voto público, por un medio escrito.

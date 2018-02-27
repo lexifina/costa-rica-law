@@ -1,0 +1,1 @@
+Artículo 13: La elaboración del Padrón Electoral será responsabilidad de la Administración del Colegio supervisado por El Tribunal, su información comprende el nombre, número de carné y número de cédula del colegiado, el mismo deberá ser avalado por la Fiscalía Administrativa.

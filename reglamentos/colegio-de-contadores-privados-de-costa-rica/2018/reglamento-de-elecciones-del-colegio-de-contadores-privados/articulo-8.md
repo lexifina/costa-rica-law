@@ -1,0 +1,2 @@
+Artículo 8: No podrán formar parte del Tribunal, los Directores(as) de la Junta Directiva del Colegio, integrantes de los órganos nombrados por la Asamblea, los miembros de comisiones de trabajo y funcionarios del Colegio.
+No podrán integrar el Tribunal quienes tengan parentesco hasta el tercer grado por consanguinidad o afinidad con un integrante de la Junta Directiva. Tampoco podrán formar parte del Tribunal parientes por afinidad y consanguineidad entre sí.

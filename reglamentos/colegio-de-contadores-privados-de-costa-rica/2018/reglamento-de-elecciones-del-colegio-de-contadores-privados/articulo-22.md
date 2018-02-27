@@ -1,0 +1,1 @@
+Artículo 22: El periodo para realizar campañas electorales iniciará a partir de la inscripción oficial de la tendencia y concluirá el día anterior a la elección. El día de la elección sólo se permitirá publicaciones invitando a los Colegiados a participar en el proceso electoral.
