@@ -1,1 +1,0 @@
-Artículo 26.—Podrán solicitar expedientes y otros documentos en calidad de préstamo, los coordinadores de aquellas áreas y unidades gestoras de los mismos, los cuales no podrán ser retenidos por más de 15 días, plazo que puede prorrogarse previa justificación del solicitante.
