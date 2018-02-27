@@ -458,7 +458,7 @@ CAPÍTULO 33: ACEITES ESENCIALES Y RESINOIDES; PREPARACIONES DE PERFUMERÍA, DE 
 33.03 – 33.07 | – Un cambio a la partida 33.03 a 33.07 desde cualquier otra partida.
 CAPÍTULO 34: JABÓN, AGENTES DE SUPERFICIE ORGÁNICOS, PREPARACIONES PARA LAVAR, PREPARACIONES LUBRICANTES, CERAS ARTIFICIALES, CERAS PREPARADAS, PRODUCTOS DE LIMPIEZA, VELAS (CANDELAS) Y ARTÍCULOS SIMILARES, PASTAS PARA MODELAR, “CERAS PARA ODONTOLOGÍA” Y PREPARACIONES PARA ODONTOLOGÍA A BASE DE YESO FRAGUABLE
 3401.11 – 3401.20 | – Un cambio a la subpartida 3401.11 a 3401.20 desde cualquier otra partida.
-3401.30 | – Un cambio a la subpartida 3401.30 desde cualquier otra subpartida, excepto de la partida 34.02.
+3401.30 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 40903 del 9 de enero del 2018 “Publica la Decisión Nº 10 de la Comisión de Libre Comercio del Tratado de Libre Comercio entre el Gobierno de la República de Costa Rica y el Gobierno de la República de Colombia, de fecha 30 de noviembre de 2017, y su Anexo "Reglas de Origen Específica”) | – Un cambio a la subpartida 3401.30 desde cualquier otra subpartida, excepto de la partida 34.02; o No se requiere cambio de clasificación arancelaria cumpliendo con un valor de contenido regional no menor a 50% (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 40903 del 9 de enero del 2018 “Publica la Decisión Nº 10 de la Comisión de Libre Comercio del Tratado de Libre Comercio entre el Gobierno de la República de Costa Rica y el Gobierno de la República de Colombia, de fecha 30 de noviembre de 2017, y su Anexo "Reglas de Origen Específica”)
 3402.11 – 3402.19 | – Un cambio a la subpartida 3402.11 a 3402.19 desde cualquier otra subpartida.
 3402.20 | – Un cambio a la subpartida 3402.20 desde cualquier otra partida.
 3402.90 | – Un cambio a la subpartida 3402.90 desde cualquier otra subpartida.
@@ -954,7 +954,7 @@ CAPÍTULO 90: INSTRUMENTOS Y APARATOS DE ÓPTICA, FOTOGRAFÍA O CINEMATOGRAFÍA,
 9015.90 – 9016.00 | – Un cambio a la subpartida 9015.90 a 9016.00 desde cualquier otra partida.
 9017.10 – 9017.80 | – Un cambio a la subpartida 9017.10 a 9017.80 desde cualquier otra subpartida.
 9017.90 | – Un cambio a la subpartida 9017.90 desde cualquier otra partida.
-90.18 – 90.22 | – Un cambio a la partida 90.18 a 90.22 desde cualquier otra subpartida.
+90.18 – 90.22 (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 40903 del 9 de enero del 2018 “Publica la Decisión Nº 10 de la Comisión de Libre Comercio del Tratado de Libre Comercio entre el Gobierno de la República de Costa Rica y el Gobierno de la República de Colombia, de fecha 30 de noviembre de 2017, y su Anexo "Reglas de Origen Específica”) | – Un cambio a la partida 90.18 a 90.22 desde cualquier otra subpartida; o No se requiere cambio de clasificación arancelaria, siempre que se cumpla con un calor de contenido regional no menor del 30% (Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 40903 del 9 de enero del 2018 “Publica la Decisión Nº 10 de la Comisión de Libre Comercio del Tratado de Libre Comercio entre el Gobierno de la República de Costa Rica y el Gobierno de la República de Colombia, de fecha 30 de noviembre de 2017, y su Anexo "Reglas de Origen Específica”)
 90.23 | – Un cambio a la partida 90.23 desde cualquier otra partida.
 9024.10 – 9024.80 | – Un cambio a la subpartida 9024.10 a 9024.80 desde cualquier otra subpartida.
 9024.90 | – Un cambio a la subpartida 9024.90 desde cualquier otra partida.
