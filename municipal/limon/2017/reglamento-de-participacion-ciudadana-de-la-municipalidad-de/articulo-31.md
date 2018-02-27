@@ -1,0 +1,1 @@
+Artículo 31. —Para toda audiencia deberá contarse con una agenda previa sobre el tema o los temas a tratar. Cuando se solicite una audiencia en un distrito deberá darse al Concejo y la Alcaldía Municipal un plazo prudencial no mayor a treinta días para que puedan prepararse con respecto a los temas de la misma.
