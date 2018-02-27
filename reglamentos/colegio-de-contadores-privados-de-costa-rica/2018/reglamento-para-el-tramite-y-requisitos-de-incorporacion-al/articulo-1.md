@@ -1,0 +1,28 @@
+COLEGIO DE CONTDORES PRIVADOS DE COSTA RICA
+(Nota de Sinalevi: Sobre este tema el Colegio de Contadores Privados, había emitido anteriormente el Reglamento para el Trámite y Requisitos de Incorporación al Colegio de Contadores Privados de Costa Rica, en sesión N° 90 del 14 de marzo de 2004)
+REGLAMENTO PARA EL TRÁMITE Y REQUISITOS DE INCORPORACIÓN
+Al Colegio de Contadores Privados de Costa Rica
+Exposición de Motivos
+El presente reglamento dará a conocer el Perfil del Contador de acuerdo a la necesidad de nuestra profesión, detallando las características y requisitos de carrera para poder incorporarse como Contador Privado a nuestro Colegio.
+El ejercicio de la contabilidad privada se estable en la Ley 1269 “Ley Orgánica del Colegio de Contadores Privados de Costa Rica. La finalidad del Colegio según el Artículo 3, literal a) de la ley de cita, es promover el desarrollo de la Ciencia Contable y proteger su ejercicio como Profesión. Por otra parte, el Artículo 6 establece las competencias que están referidas a ejercicio profesional de la contabilidad privada referida a planeamiento y formulación de presupuestos, la organización de sistemas contables en empresas privadas, prestación de servicios contables internos, verificación de cuentas para efectos internos de las empresas privadas, así como el asesoramiento a entes privados en relación con la contabilidad en la administración de negocios. De lo anterior se desprende que el Contador Privado debe tener una base de conocimiento que le permita desempeñarse como un profesional competente. Dichas competencias pueden ser normadas por el Colegio.
+La ley del Colegio establece en su artículo 2, y el Reglamento de la ley en su artículo 5 quiénes podrán ser miembros del Colegio, y en consecuencia ejercer la profesión de la contabilidad. Por lo tanto, el Colegio carece de competencia para incorporar en su seno a graduados del sistema de enseñanza parauniversitaria y universitaria cuya formación académica no sea en el ámbito de la contabilidad.
+El Colegio de Contadores Privados cuenta con un Centro de Capacitación, que ha acumulado años de experiencia y excelencia académica, cuyo objetivo es propiciar el desarrollo profesional continuo de sus miembros, con el fin de fortalecer su ejercicio profesional.
+Expuesto lo anterior es claro que un Contador Privado Incorporado debe satisfacer las necesidades de una sociedad que reclama y exige servicios de calidad, creíbles, oportunos y que genere valor agregado como consecuencia de un sano ejercicio profesional. Para lograr este objetivo se ha tomado como referencia lo regulado por otros colegios profesionales afines con la profesión de la contabilidad, así como, la referencia a organizaciones que regulan el ejercicio de la contabilidad a nivel internacional.
+Así, se toma como referencia lo que prescribe la Federación Internacional de Contadores (IFAC, por sus siglas en inglés), qué, aunque el Colegio de Contadores Privados no es miembro de dicha organización, ésta ha emitido las Normas Internacionales de Educación que entre otros aspectos prescribe aspectos de conocimientos y habilidades que debe poseer un contador. El IFAC también ha establecido la Norma Internacional de Educación 2 Desarrollo Profesional Inicial cuyo objetivo es prescribir los resultados del aprendizaje que se requiere a los aspirantes a contadores profesionales para demostrar que su educación y formación es apto, es decir, que tengan el suficiente conocimiento profesional avanzado, para que puedan desempeñarse como contadores profesionales competentes, para satisfacer las necesidades de la sociedad.
+Artículo 1:
+El presente Reglamento regulará los requisitos y trámites de las solicitudes de incorporación al Colegio de Contadores Privados de Costa Rica, en todos sus ámbitos.
+PERFIL DEL CONTADOR PRIVADO INCORPORADO
+Considerando:
+1. Que el ejercicio de la contabilidad privada busca satisfacer las necesidades de una sociedad que reclama y exige servicios de calidad, creíbles, oportunos y que genere valor agregado a sus clientes y empleadores.
+2. Que corresponde al Colegio de Contadores Privados promover el desarrollo de la Ciencia Contable y proteger su ejercicio como Profesión.
+3. Que corresponde al Colegio de Contadores Privados normar las competencias técnicas referidas al ejercicio profesional de la contabilidad como Profesión.
+Por tanto:
+Habiéndose aprobado por la Junta Directiva del Colegio de Contadores Privados de Costa Rica, se establece el “Perfil del Contador Privado Incorporado”.
+Características personales.
+El Contador Privado Incorporado es un profesional que debe satisfacer las necesidades de una sociedad que reclama y exige servicios de calidad, creíbles, oportunos y que genere valor agregado como consecuencia de un sano ejercicio profesional.
+Formación académica.
+Es requisito indispensable para ser Contador Privado Incorporado, de conformidad con lo que establece la Ley 1269 “Ley orgánica del Colegio de Contadores Privados de Costa Rica”.
+Aquellos contadores que hayan cumplido los requisitos de admisión y cuyo plan de estudios de su formación técnica y profesional obtenidos en establecimientos autorizados por el Estado y por el Consejo Nacional de Educación Superior (CONESUP), o el Consejo Nacional de Rectores (CONARE), según corresponda al grado académico obtenido, incluyan dentro de su formación académica los siguientes contenidos:
+[imagen]
+Actualización profesional continua.
+El Contador Privado Incorporado es un profesional que se esfuerza por mantener y desarrollar la competencia técnica necesaria para proveer servicios de alta calidad a sus clientes y empleadores, contribuyendo de este modo a fortalecer la confianza en la profesión.

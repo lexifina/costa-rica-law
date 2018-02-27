@@ -1,0 +1,3 @@
+Artículo 4:
+a) Corresponderá a la Comisión de Validación de Requisitos de Incorporación, recibir los expedientes con toda la documentación requerida para la incorporación. Esta revisión deberá de realizarse con base en los requisitos establecidos en las Leyes 1269 y 8220. En caso de detectarse alguna inconsistencia en algún documento, se coordinará con la Jefatura de Plataforma para que se realice la corrección pertinente.
+b) En cada expediente se deberá dejar constancia del número de sesión, fecha y firma del miembro de la Comisión que lo revisó, así como la del Director que lo da por aprobado. Además, se deberá dejar registro en el acta de las sesiones de trabajo, de cada uno de los expedientes aprobados. Así como de los no aprobados, con las justificaciones del caso.

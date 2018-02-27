@@ -1,0 +1,2 @@
+Artículo 2:
+Las solicitudes de incorporación deberán presentarse en fórmula original suministrada por el Colegio de Contadores Privados de Costa Rica, en las oficinas centrales del Colegio, o en los Consejos Regionales, en el horario establecido. El formulario deberá llenarse con letra legible y debidamente firmada por el interesado. La firma deberá ser igual a la estampada en la cédula de identidad, de existir diferencia la solicitud no tendrá validez.
