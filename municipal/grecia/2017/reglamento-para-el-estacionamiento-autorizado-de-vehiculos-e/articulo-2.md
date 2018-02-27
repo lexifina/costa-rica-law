@@ -17,3 +17,5 @@ o)Usuario: Aquel administrado que haga uso, o se vea afectado por el sistema de 
 p)Zona de Estacionamiento: Es la zona de calles, avenidas, vías públicas y de más lugares públicos, que se encuentran afectadas al sistema de estacionómetros.
 q)Zona Oficial: Es la zona de calles, avenidas, vías públicas y demás lugares públicos en los cuáles se admite únicamente el estacionamiento de vehículos oficiales del Estado central y descentralizado.
 r)Zona Prohibida: Es la zona de calles, avenidas, vías públicas y demás lugares públicos en los cuales se prohíbe el estacionamiento de vehículos.
+S) Zonas de carga y descarga: son aquellas zonas o áreas demarcadas dentro del proyecto de parquímetros en la ciudad de Grecia, que dentro del horario establecido se utilizarán exclusivamente para la actividad de carga y descarga de abarrotes, mercancías, productos o servicios en el abastecimiento de los diversos comercios.
+(Así adicionado el inciso anterior mediante acta N° 146 del 27 de febrero de 2018)

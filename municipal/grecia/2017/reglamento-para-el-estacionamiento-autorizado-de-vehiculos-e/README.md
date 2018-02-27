@@ -14,3 +14,4 @@ Reglamento para el estacionamiento autorizado de vehículos en las vías públic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-02 | la propia norma |
+| 2 | 2018-02-27 | Reglamento municipal 0 (2018-02-27) |
