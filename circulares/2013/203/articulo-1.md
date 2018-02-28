@@ -1,5 +1,6 @@
 CIRCULAR N° 203-2013
-(Nota de Sinalevi: Esta norma fue reiterada en sesión N° 12 del 12 de febrero de 2015, mediante circular N° 48 del 11 de marzo de 2015, y publicada en el Boletín Judicial N° 90 del 12 de mayo de 2015)
+(Nota de Sinalevi: esta norma fue reitera mediante circular N° 225-2020 del 8° de octubre del 2020 y publicada en el Boletín Judicial N° 213 del 5° de noviembre del 2020)
+(Nota de Sinalevi: Esta norma fue reiterada en sesión N° 12 del 12 de febrero de 2015, mediante circular N° 48 del 11 de marzo de 2015, y publicada en el Boletín Judicial N° 90 del 12 de mayo de 2015.
 ASUNTO: Directrices para el mejor aprovechamiento de las plazas de juezas y jueces supernumerarios.
 A LOS JUECES Y JUEZAS DEL PAÍS, DESPACHO DE LA
 PRESIDENCIA, CONSEJOS DE ADMINISTRACIÓN Y
@@ -54,4 +55,5 @@ IV Consideraciones para el trámite de los asuntos:
 5. Si en el momento en que en el Juzgado se reciben los expedientes ya con sentencia, se nota algún error material en ésta, antes de ser notificada, lo conveniente es que devuelvan el expediente al Despacho de la Presidencia o a la Administración Regional, según corresponda, mediante nota u oficio, y no mediante una resolución.
 6. En el caso de asuntos en apelación, se debe remitir el archivo electrónico de la sentencia apelada.
 7. Los expedientes deben estar acomodados en el mismo orden del listado, a efecto de agilizar el trabajo.
+(Nota de Sinalevi: Mediante circular N° 23-2018 del 28 de febrero del 018, publicada en el Boletín judicial N° 152 del 22 de agosto del 2018, se aclara la presente circular en el sentido de que las sustituciones de hasta por un día de las juezas y jueces de los Juzgados unipersonales, por incapacidad o vacaciones que incluya disponibilidad, deberá ser cubierta por el juez o jueza supernumeraria designada hasta las 7:00 ó 7:30 horas del día siguiente, según corresponda al circuito judicial.)
 San José, 22 de noviembre del 2013.

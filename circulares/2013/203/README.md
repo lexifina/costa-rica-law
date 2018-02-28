@@ -13,3 +13,4 @@ Directrices para el mejor aprovechamiento de las plazas de juezas y jueces super
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-22 | la propia norma |
+| 2 | 2018-02-28 | Circular 23 (2018-02-28) |
