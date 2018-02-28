@@ -1,0 +1,8 @@
+Artículo 5º- Avalúo Municipal. La Municipalidad realizará el avalúo correspondiente del bien de uso público aplicando los parámetros establecidos por la Dirección General de Tributación en el artículo anterior, conforme la aplicación de la siguiente tabla para postes de telecomunicación:
+Rangos de valores unitarios por metro cuadrado de las zonas homogéneas (donde se ubica el poste de telecomunicaciones) | Cánones anuales de los arrendamientos de las áreas públicas para la instalación de postes de telecomunicación.
+1. Hasta ¢50.000 | $2.400
+2. De ¢50.001 hasta ¢100.000 | $3.600
+3. Mayores de ¢100.001 | $4.800
+La Municipalidad informará al operador y/o proveedor, el monto de arrendamiento del bien de uso público y gestionará los trámites correspondientes para la instalación de redes públicas de telecomunicaciones (postes), según lo establecido en la normativa vigente.
+La Municipalidad podrá aplicar la discrecionalidad con respecto al cobro del canon anual que le corresponda cancelar al operador y/o proveedor, según sea el caso, no excediéndose del monto determinado para cada uno de los rangos que se presentan en la tabla de avalúos. Podrá, en su caso, reducir hasta en un 30% ese valor, según lo estime conveniente, previo estudio que ampare la decisión final.
+En apego a la autonomía municipal que le es otorgada por vía constitucional a los gobiernos locales, según lo establece el artículo 4 inciso a), del CÓDIGO MUNICIPAL, Ley No. 7794 de 30 de abril de 1998 y sus reformas, las municipalidades están facultadas para promulgar los procedimientos o reglamentos que consideren necesarios para normar la discrecionalidad en la reducción en el cobro de la tarifa de los cánones que se establece en el presente artículo.
