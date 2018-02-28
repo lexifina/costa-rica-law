@@ -1,0 +1,3 @@
+Sección VII
+Sanciones por incumplimiento
+Artículo 28: Consecuencia del incumplimiento. El incumplimiento de éste reglamento no vinculado a alguno de los procesos de investigación seguidos con base en sus disposiciones, dará lugar a la aplicación de una sanción disciplinaria según lo dispuesto por la legislación laboral costarricense. Para la aplicación de una sanción, se tomará en cuenta la gravedad de la falta y el perjuicio ocasionado por el incumplimiento del trabajador.

@@ -1,0 +1,1 @@
+Artículo 19: Posibilidad de acudir a la vía judicial. Una vez que se haya cerrado la investigación en Correos, quien no esté satisfecho con el resultado de la investigación, puede presentar la denuncia correspondiente ante los Tribunales de Trabajo.

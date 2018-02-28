@@ -1,0 +1,1 @@
+Artículo 29: Sanciones para quien haya incurrido en Hostigamiento Sexual. El hostigador cuya falta sea comprobada y atendiendo a la gravedad de la misma, será sancionado de conformidad con las particularidades del caso concreto y lo dispuesto en la legislación laboral aplicable.

@@ -1,0 +1,1 @@
+Artículo 22: Diligencias probatorias. La Comisión Investigadora Ad hoc ordenará y practicará todas las diligencias de prueba necesarias, para determinar la verdad real de los hechos relevantes en el proceso.

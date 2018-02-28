@@ -1,0 +1,6 @@
+Sección III
+De la Comisión Investigadora
+Artículo 8: De la Comisión Investigadora. El conocimiento de las denuncias y su trámite estará a cargo de una Comisión Investigadora Ad hoc integrada por tres miembros, asegurando la representación de ambos sexos, y que además posean conocimientos en la materia de hostigamiento sexual y aplicación del régimen disciplinario. Todos los miembros de la Comisión Investigadora Ad hoc estarán cubiertos por la obligación de confidencialidad.
+La Comisión Investigadora Ad hoc actuará con las facultades de gestor del procedimiento, siendo su función principal averiguar la verdad real de los hechos. Si el resultado de la investigación conlleva a desestimar la denuncia o se considera falta leve en consecuencia corresponde una llamada de atención verbal o escrita se formulará una recomendación a la Gerencia General.
+Si los resultados de la investigación conllevan a tomar medidas disciplinarias, catalogado como falta grave, en consecuencia la sanción disciplinaria podría ser una suspensión sin goce de salario o el despido sin responsabilidad patronal, deberá remitir la recomendación a la Junta de Relaciones Laborales de Correos de CR, siguiendo de ésta manera con el debido proceso.
+En principio la Comisión Investigadora Ad hoc estará conformada por personal de Correos y será nombrada por el Gerente General.

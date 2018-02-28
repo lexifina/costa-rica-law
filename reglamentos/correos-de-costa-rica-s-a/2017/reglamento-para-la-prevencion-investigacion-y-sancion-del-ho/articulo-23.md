@@ -1,0 +1,1 @@
+Artículo 23: Saneamiento del procedimiento. Sin perjuicio de las regulaciones internas aplicables, cualquier omisión en el procedimiento podrá ser subsanada por la Comisión Investigadora Ad hoc en procura del mejor interés de ambas partes y de la transparencia del proceso, sin perjuicio del derecho de defensa de las partes.

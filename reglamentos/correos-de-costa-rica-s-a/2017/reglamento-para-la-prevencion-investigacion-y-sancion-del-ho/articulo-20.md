@@ -1,0 +1,1 @@
+Artículo 20: Comunicación a la Defensoría de Los Habitantes. La Comisión Investigadora Ad hoc tiene la obligación de comunicar el resultado del procedimiento a la Defensoría de los Habitantes de la República de Costa Rica.

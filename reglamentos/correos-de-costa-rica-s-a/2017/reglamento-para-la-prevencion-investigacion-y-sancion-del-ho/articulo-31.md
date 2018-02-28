@@ -1,0 +1,1 @@
+Artículo 31: Sanciones para quienes no den trámite a las denuncias. Se considerará que incurre en una falta, quien, habiendo recibido una denuncia por hostigamiento sexual, no le dé el trámite previsto en éste Reglamento. De comprobarse la falta se tomarán las medidas disciplinarias correspondientes, previo cumplimiento del debido proceso que corresponda.

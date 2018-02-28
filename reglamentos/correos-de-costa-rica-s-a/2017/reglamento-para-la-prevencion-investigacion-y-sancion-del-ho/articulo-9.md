@@ -1,0 +1,2 @@
+Artículo 9: Trámite del Procedimiento. La designación de la Comisión respectiva, así como el trámite a seguirse para la debida investigación de las denuncias, se realizará conforme lo definido en las regulaciones internas aplicables para la realización del debido proceso ante supuestos que pueden generar un despido sin responsabilidad patronal o una suspensión sin goce de salario.
+La aplicación de las regulaciones internas mencionadas en el párrafo anterior, se aplicarán, tratándose de situaciones de acoso sexual, a todo el personal de Correos de Costa Rica.
