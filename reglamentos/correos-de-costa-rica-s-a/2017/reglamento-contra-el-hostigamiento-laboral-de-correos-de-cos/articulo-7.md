@@ -1,0 +1,1 @@
+Artículo 7: Responsabilidad del personal para la eliminación del acoso laboral. Los colaboradores de Correos son responsables de eliminar comportamientos de discriminación y hostigamiento laboral en el lugar de trabajo e informar de casos que, razonablemente, crea que violan éste Reglamento.

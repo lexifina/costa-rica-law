@@ -1,0 +1,1 @@
+Artículo 24: Sanciones para quienes no den trámite a las denuncias. Se considerará que incurre en una falta, quien, habiendo recibido una denuncia por hostigamiento laboral, no le den el trámite previsto en éste Reglamento. De comprobarse la falta se tomarán las medidas disciplinarias correspondientes.

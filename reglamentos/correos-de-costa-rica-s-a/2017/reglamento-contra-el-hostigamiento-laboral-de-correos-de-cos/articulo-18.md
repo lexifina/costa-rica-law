@@ -1,0 +1,2 @@
+Artículo 18: Valoración de las Pruebas. Las pruebas serán valoradas de conformidad con las reglas de la sana crítica, la lógica y la experiencia. El denunciante como el denunciado tienen la carga de la prueba y deben demostrar mediante prueba idónea sus alegatos, en aplicación de lo establecido en el artículo 317 del Código Procesal Civil.
+La Comisión Investigadora estudiará la prueba que conste en el procedimiento, para determinar la verdad material de los hechos relevantes y establecer la recomendación pertinente.

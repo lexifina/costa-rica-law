@@ -1,0 +1,1 @@
+Artículo 21: Consecuencias del Incumplimiento. El incumplimiento de éste Reglamento, dará lugar a la aplicación de una sanción disciplinaria según lo dispuesto por la legislación laboral costarricense. Para la aplicación de una sanción, se tomará en cuenta la gravedad de la falta y el perjuicio ocasionado por el incumplimiento del trabajador.

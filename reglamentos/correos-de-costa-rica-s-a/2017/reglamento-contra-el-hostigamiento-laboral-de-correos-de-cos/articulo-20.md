@@ -1,0 +1,1 @@
+Artículo 20: Disposiciones supletorias. Para todo lo que no se regule en el presente Reglamento, se aplicará lo dispuesto el Código de Trabajo y las leyes laborales conexas, así como el Código Civil; sin detrimento de las regulaciones aplicables en materia de debido proceso antes mencionadas.

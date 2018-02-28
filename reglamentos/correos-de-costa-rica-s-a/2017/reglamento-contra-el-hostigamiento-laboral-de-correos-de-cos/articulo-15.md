@@ -1,0 +1,1 @@
+Artículo 15: Plazos. Los plazos señalados para tramitar y resolver las denuncias que se presenten podrán ser ampliados, siempre y cuando exista justa causa para ello. Mientras dure la investigación y hasta la resolución final del caso, se suspenderán los términos de prescripción para sancionar a las personas involucradas en el caso específico.

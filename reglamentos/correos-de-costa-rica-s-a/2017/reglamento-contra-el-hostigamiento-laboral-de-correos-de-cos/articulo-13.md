@@ -1,0 +1,5 @@
+Sección IV
+De la tramitación del procedimiento
+Artículo 13: Recepción de las denuncias. El colaborador o ex colaborador que denuncie un hostigamiento laboral presuntamente cometido por un colaborador de Correos, cualquiera que sea su rango deberá hacerlo en forma escrita ante la persona que preside la Gerencia de Recursos Humanos o la Gerencia General de Correos, esta última instancia, exclusivamente, en caso de que la persona denunciada sea quien preside la Gerencia de Recursos Humanos.
+Al momento de la denuncia deberá adjuntar toda la prueba necesaria para respaldar sus argumentos. Asimismo, deberá indicar el medio (teléfono, fax, correo electrónico) a través del cual desea recibir las notificaciones pertinentes al caso.
+En caso que la denuncia sea interpuesta ante la persona que preside la Gerencia de Recursos Humanos, esta tendrá un plazo máximo de 3 días hábiles para trasladar la denuncia al Gerente General para que esta instancia proceda conforme corresponde, según las presente disposiciones y las demás regulaciones internas aplicables.

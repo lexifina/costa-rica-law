@@ -1,0 +1,1 @@
+Artículo 22: Sanciones para quien haya incurrido en acoso laboral. El hostigador cuya falta sea comprobada y atendiendo a la gravedad de la misma, será sancionado de conformidad con las previsiones del caso concreto y lo dispuesto en la legislación laboral aplicable.
