@@ -1,0 +1,1 @@
+Artículo 5º—Las sumas a pagar por gastos de alimentación, se calcularán de acuerdo con las tarifas establecidas en el “Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos”, emitido por la Contraloría General de la República.

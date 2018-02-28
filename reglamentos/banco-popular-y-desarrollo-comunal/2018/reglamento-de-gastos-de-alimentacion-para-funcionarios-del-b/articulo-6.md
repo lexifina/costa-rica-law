@@ -1,0 +1,1 @@
+Artículo 6º—Corresponderá a los jefes de las unidades administrativas del Banco, en donde se labore tiempo extraordinario, autorizar en el sistema respectivo los comprobantes de pago por concepto de alimentación.

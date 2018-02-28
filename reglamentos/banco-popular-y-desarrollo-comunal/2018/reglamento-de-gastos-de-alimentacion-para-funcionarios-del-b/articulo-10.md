@@ -1,0 +1,1 @@
+Artículo 10.—Los Jefes de las unidades administrativas del Banco, verificarán por medio del control de asistencia que el pago de alimentación se ajuste a lo estipulado en los artículos tercero y cuarto de este Reglamento.

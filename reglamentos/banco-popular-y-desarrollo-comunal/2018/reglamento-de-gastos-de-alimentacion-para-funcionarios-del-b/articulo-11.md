@@ -1,0 +1,1 @@
+Artículo 11.—Los Jefes de las unidades administrativas del Banco serán responsables del cumplimiento de las disposiciones de este Reglamento. El incumplimiento a alguna de estas normas se considerará como falta grave, pudiéndose aplicar al respecto como sanción lo establecido en el Reglamento Interior de Trabajo o en el Código de Trabajo.

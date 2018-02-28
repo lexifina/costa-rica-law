@@ -1,0 +1,1 @@
+Artículo 3º—Cuando la jornada extraordinaria diaria se ejecute de lunes a viernes, y siempre que dicha jornada supere en dos horas la jornada ordinaria, los funcionarios tendrán derecho a pago de gastos de alimentación.
