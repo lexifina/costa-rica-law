@@ -1,0 +1,6 @@
+Artículo 13.—Revisión del listado de funcionarios obligados a caucionar. Una vez al año, el Director Administrativo y el Departamento de Recursos Humanos revisarán el listado de funcionarias y funcionarios obligados a caucionar, para lo cual deberán considerar, entre otros, los siguientes aspectos:
+a) La existencia, en forma separada o combinada de las funciones y actividades de administrar, custodiar o recaudar fondos y valores públicos.
+b) La confiabilidad y eficacia del sistema de control interno y el grado de riesgo de acuerdo con la valorización realizada por la Administración.
+c) El nivel de responsabilidad y el monto o bienes a cargo o bajo la administración del o la funcionaria.
+d) La participación que tendrá la funcionaria o funcionario en procesos de contratación administrativa, de conformidad con el plan anual de adquisiciones.
+En el caso que se compruebe que algún funcionario o funcionaria que no ocupa alguno de los puestos mencionados anteriormente, realiza una o varias de las funciones previstas en el artículo 13 de la Ley de Administración Financiera de la República y Presupuestos Públicos, esto es, la de recaudar, custodiar o administrar fondos y valores públicos, deberá rendir la respectiva caución en favor de la Defensoría de los Habitantes.

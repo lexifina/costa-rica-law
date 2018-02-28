@@ -1,0 +1,1 @@
+Artículo 15.—Ajuste de la caución. La persona caucionante que por algún motivo sea trasladada de un puesto a otro que implique una nueva ubicación en la clasificación por niveles de responsabilidad, deberá ajustar la caución conforme a la nueva situación.

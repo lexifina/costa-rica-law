@@ -1,0 +1,3 @@
+Artículo 5º—Momento para rendir la caución. La caución deberá de ser rendida, cuando así corresponda, una vez conocida por la persona la designación en el puesto y antes de asumir el cargo.
+El o la funcionaria que sustituya al titular de un puesto sujeto a caución por un plazo mayor a dieciséis días consecutivos, deberá rendir la garantía correspondiente a través de alguno de los medios que contempla este Reglamento.
+El funcionario o funcionaria deberá presentar original y copia del comprobante de la garantía rendida ante el Departamento de Recursos Humanos, para que se incorpore un ejemplar dentro de su expediente personal.

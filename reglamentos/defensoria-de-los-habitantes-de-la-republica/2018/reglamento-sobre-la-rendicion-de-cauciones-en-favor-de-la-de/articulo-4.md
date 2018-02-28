@@ -1,0 +1,1 @@
+Artículo 4º—Deber de solventar la caución. Es deber de la funcionaria o funcionario que está obligado a rendir caución de acuerdo con la naturaleza del puesto, gestionar y sufragar de su propio peculio el costo de la garantía en favor de la Defensoría de los Habitantes.

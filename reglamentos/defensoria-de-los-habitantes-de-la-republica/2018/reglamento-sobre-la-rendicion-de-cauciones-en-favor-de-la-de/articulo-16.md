@@ -1,0 +1,7 @@
+CAPÍTULO III
+Del cálculo, administración y ejecución de las cauciones
+Artículo 16.—Cálculo y actualización de los montos de la caución. En la fijación y actualización de los montos de las cauciones, se utilizará como parámetro el salario base establecido en la Ley Nº 7337 del 5 de mayo de 1993, el cual actualiza y publica anualmente la Corte Suprema de Justicia en el Boletín Judicial a inicio de cada año. El monto por concepto de caución será actualizado anualmente, y dicha actualización deberá ser comunicada por escrito a las y los funcionarios caucionantes. Estos últimos contarán al efecto con un plazo máximo de cinco días hábiles contados a partir de la notificación de dicho comunicado, para ajustar el monto de la caución. Según el nivel de responsabilidad, el cálculo de los montos de las cauciones se hará de la siguiente manera:
+a) Nivel A: Quienes desempeñen puestos clasificados dentro del nivel A, deberán rendir una caución equivalente a cinco salarios base.
+b) Nivel B: Aquellos funcionarios que desempeñen puestos clasificados dentro del nivel B, deberán rendir una caución equivalente a cuatro salarios base.
+c) Nivel C: Quienes desempeñen puestos clasificados dentro del nivel C, deberán rendir una caución equivalente a tres salarios base.
+d) Nivel D: En el caso de los funcionarios que ocupen puestos clasificados dentro del nivel D, deberán rendir una caución equivalente a dos salarios base.
