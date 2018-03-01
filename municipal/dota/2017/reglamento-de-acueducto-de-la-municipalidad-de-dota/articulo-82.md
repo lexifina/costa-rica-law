@@ -1,0 +1,1 @@
+ARTICULO 82: Una vez aprobado este reglamento por el Consejo Municipal, sométase a consulta pública, según N°43 del consejo Municipal, por 10 días para luego ser publicado en la Gaceta. Acuerdo definitivamente aprobado.

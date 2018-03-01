@@ -1,0 +1,2 @@
+ARTÍCULO 41: Cuando una persona física o jurídica, adquiera un derecho de propiedad sobre un inmueble que ya cuenta con los servicios de La Municipalidad de Dota, debe solicitar el cambio de nombre de la cuenta. La solicitud debe acompañarse con atestados que demuestren que el solicitante es el dueño legítimo de la propiedad en cuestión.
+La Municipalidad de Dota puede de oficio proceder al cambio de nombre de los servicios cuando se entere de novación de propietarios mediante prueba pertinente.

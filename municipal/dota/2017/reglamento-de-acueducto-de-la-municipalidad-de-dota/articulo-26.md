@@ -1,0 +1,1 @@
+ARTÍCULO 26: Independientemente de las condiciones consideradas en el Art. 22, la Municipalidad de Dota podrá́ exigir en los casos que considere necesario, la instalación de interceptores de grasas o aceites o de materiales arenosos. Como parte del sistema interno privado, el cliente queda obligado a darle el mantenimiento necesario a dichas instalaciones.

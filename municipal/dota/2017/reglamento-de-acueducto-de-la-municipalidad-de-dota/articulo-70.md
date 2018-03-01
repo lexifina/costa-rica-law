@@ -1,0 +1,1 @@
+ARTÍCULO 70: La tasa de urbanismo es un monto que debe pagar toda nueva construcción (proyectos Urbanísticos) para poder disfrutar de los servicios que brinda la Municipalidad de Dota. Comprende los costos de las ampliaciones, mejoras, modificaciones y otros que debe realizar la Municipalidad de Dota en sus sistemas para ofrecer su servicios.

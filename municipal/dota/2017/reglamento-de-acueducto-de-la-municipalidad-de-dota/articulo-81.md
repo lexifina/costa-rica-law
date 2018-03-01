@@ -1,0 +1,1 @@
+ARTÍCULO 81: en los casos en los que el cliente solicite un arreglo de pago con la municipalidad de Dota, este se tramitará de conformidad con lo establecido en el Reglamento para el Procedimiento del cobro Administrativo y Judicial de la Municipalidad de Dota.

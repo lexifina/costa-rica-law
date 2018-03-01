@@ -1,0 +1,2 @@
+Servicios provisionales:
+ARTÍCULO 50: Cuando sean necesarias conexiones de carácter temporal, la Municipalidad de Dota podrá́ conceder servicios provisionales. Se consideran dos posibilidades: 1) cuando se van a realizar actividades como el caso de ferias, turnos, circos u otros similares, etc.; 2)cuando se realizan obras como es el caso de la construcción de urbanizaciones u otras obras que no requieran de un servicio permanente.

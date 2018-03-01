@@ -1,0 +1,2 @@
+CAPÍTULO III DISPOSICIONES GENERALES
+ARTÍCULO 13: Es potestad de la Municipalidad realizar extensiones, derivaciones, modificaciones y reparaciones a las redes e instalaciones de los sistemas que le pertenezcan, así como en las previstas de las conexiones de los abonados.

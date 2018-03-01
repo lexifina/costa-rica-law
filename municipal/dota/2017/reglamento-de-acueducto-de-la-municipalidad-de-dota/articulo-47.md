@@ -1,0 +1,1 @@
+ARTÍCULO 47: Para el pago de los servicios de agua potable y alcantarillado sanitario, la Municipalidad de Dota podrá́ recibir de cualquier persona el monto respectivo. Tratándose de inquilinos, su relación con el propietario del inmueble siendo de orden privado y ajena a la Municipalidad de Dota, se regulará de conformidad con la legislación correspondiente.

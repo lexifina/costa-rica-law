@@ -1,0 +1,1 @@
+ARTÍCULO 25: Cuando las aguas residuales no cumplan con las normas vigentes, el cliente está obligado a darles un tratamiento previo por su cuenta hasta que estén dentro de las normas y puedan ser aceptadas por el sistema público.

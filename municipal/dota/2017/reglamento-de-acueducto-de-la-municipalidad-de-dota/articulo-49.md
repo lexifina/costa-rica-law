@@ -1,0 +1,1 @@
+ARTÍCULO 49: Si transcurrido un plazo de 30 días hábiles después de suspendido el servicio, no se ha cancelado la deuda o normalizado la situación del mismo, la Municipalidad de Dota podrá retirar el hidrómetro y pasar la cuenta respectiva a cobro judicial, ejerciendo los mecanismos legales correspondientes.

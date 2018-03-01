@@ -1,0 +1,2 @@
+CAPÍTULO II: PRINCIPIOS BÁSICOS
+ARTÍCULO 4: La Municipalidad es un ente autónomo, encargada de la administración de los intereses y servicios locales (artículos 169 y 170 de la Constitución Política de Costa Rica), en lo que aquí interesa de la administración y prestación de los servicios públicos de agua potable y alcantarillado sanitario en todas aquellas comunidades o ciudades del territorio nacional que estén o llegaren a estar bajo su administración.

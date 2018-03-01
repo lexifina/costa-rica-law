@@ -1,0 +1,1 @@
+ARTÍCULO 80: Todo recibo vencido podrá́ ser cancelado en cualquiera de las agencias recaudadoras debidamente autorizadas por La Municipalidad de Dota para tales efectos, con un recargo del 2% mensual sobre el pendiente, (artículo 13 Ley General de Agua Potable).

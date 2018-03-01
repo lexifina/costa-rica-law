@@ -1,0 +1,1 @@
+ARTÍCULO 24: Para proteger el sistema público de alcantarillado sanitario, permitir el proceso biológico de purificación y proteger el ambiente de contaminaciones tóxicas, la Municipalidad de Dota deberá cumplir con los parámetros establecidos en el Decreto Ejecutivo 26042-S-MINAE, publicado en el diario oficial “La Gaceta” el 19 de junio de 1997.

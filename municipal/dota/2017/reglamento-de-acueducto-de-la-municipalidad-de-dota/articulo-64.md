@@ -1,0 +1,1 @@
+ARTÍCULO 64: Los servicios de acueductos y alcantarillados que presta la Municipalidad, no pueden ser gratuitos; así se trate de cualquier entidad pública nacional; salvo que alguna ley especial determine lo contrario.

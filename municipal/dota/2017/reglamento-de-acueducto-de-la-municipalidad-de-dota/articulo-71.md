@@ -1,0 +1,1 @@
+ARTÍCULO 71: La tasa de conexión comprende los costos en que debe incurrir la Municipalidad de Dota al conectar el sistema interno, propiedad del cliente, con la red principal de la Municipalidad de Dota, ya sea de acueducto y/o alcantarillado sanitario, según correspondan las características de cada caso.

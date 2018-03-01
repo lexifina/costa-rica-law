@@ -1,0 +1,1 @@
+ARTÍCULO 65: Para los servicios medidos de cada clase tarifaria se definen diferentes bloques de consumo, los cuales corresponderán a un precio específico por cada metro cubico para los servicios de acueducto y/o alcantarillado. Para los servicios sin medición se establece un precio fijo.

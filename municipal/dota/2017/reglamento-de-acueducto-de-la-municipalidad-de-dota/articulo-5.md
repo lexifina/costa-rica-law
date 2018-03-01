@@ -1,0 +1,1 @@
+ARTÍCULO 5: es responsabilidad de la Municipalidad de Dota establecer los trámites necesarios para la prestación de servicios de la manera más simple y confiable en beneficio de sus clientes, así ́ como cumplirlos o hacerlos cumplir con la mayor celeridad y eficiencia.

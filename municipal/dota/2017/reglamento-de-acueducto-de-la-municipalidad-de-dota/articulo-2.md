@@ -1,0 +1,1 @@
+ARTICULO 2°: Este Reglamento regulará las relaciones de los clientes con la Municipalidad, en los servicios de agua potable y alcantarillado sanitario que suministra y administra, además establece los derechos y deberes de las partes.
