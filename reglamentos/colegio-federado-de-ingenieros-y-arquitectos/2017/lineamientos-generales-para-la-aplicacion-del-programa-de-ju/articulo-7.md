@@ -1,0 +1,1 @@
+Artículo 7: No asistencia del miembro investigado. Si el miembro investigado no se presenta el día y hora de la reunión restaurativa, y no justifica razonablemente su no comparecencia en el término de veinticuatro horas, el proceso de justicia restaurativa se dará por concluido y se devolverá al órgano de origen o vía correspondiente.

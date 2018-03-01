@@ -1,0 +1,1 @@
+Artículo 4: Suspensión de plazos: Desde el momento que se remita la causa para la valoración de la aplicación del procedimiento restaurativo, hasta el momento que se resuelva en forma definitiva lo que corresponda, todos los plazos relacionados con la potestad disciplinaria del CFIA estarán suspendidos.
