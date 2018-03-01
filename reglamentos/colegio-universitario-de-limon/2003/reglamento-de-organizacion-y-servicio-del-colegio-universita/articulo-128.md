@@ -1,1 +1,2 @@
-Artículo 128.—El servidor debe notificar a su jefe inmediato verbalmente, por escrito o por cualquier otro medio idóneo, las causas que le impiden asistir al trabajo dentro de la jornada laboral en que se inicie su ausencia, salvo fuerza mayor o caso fortuito.
+Artículo 128.—Se considera como ausencia, la inasistencia injustificada al trabajo durante la jornada laboral completa. La inasistencia injustificada durante una fracción de la jornada laboral se computará como la mitad de una ausencia. No se pagará el salario que corresponde en caso de ausencias injustificadas.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 1271 al 128)

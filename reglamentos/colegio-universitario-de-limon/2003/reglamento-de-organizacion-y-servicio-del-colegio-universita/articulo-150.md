@@ -1,7 +1,8 @@
-Artículo 150.—Las llegadas tardías, computables al final de un mismo mes calendario, serán sancionadas de la siguiente forma:
-1. Hasta por dos: amonestación escrita.
-2. Por tres: suspensión sin goce de salario por un día.
-3. Por cuatro: suspensión sin goce de salario por tres días.
-4. Por cinco: suspensión sin goce de salario por ocho días.
-5. Por seis: suspensión sin goce de salario por quince días.
-6. Por siete o más: despido sin responsabilidad patronal.
+Artículo 150.—Las faltas injustificadas de asistencia, puntualidad, y permanencia en el trabajo, serán sancionadas de la siguiente forma:
+1. Por media ausencia: amonestación escrita.
+2. Por una ausencia, o dos medias ausencias dentro del mismo mes calendario: suspensión hasta por tres días.
+3. Por una y media ausencia, o tres medias ausencias dentro del mismo mes calendario: suspensión hasta por cinco días.
+4. Por cuatro medias ausencias o dos ausencias alternas: suspensión hasta por ocho días.
+5. Por cinco o más medias ausencias: suspensión hasta por quince días.
+6. Por dos ausencias consecutivas o tres alternas en un mismo mes calendario: despido sin responsabilidad patronal.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 149 al 150)

@@ -1,8 +1,2 @@
-Artículo 119.—El tiempo de servicio efectivo que exceda las jornadas ordinarias antes señaladas constituye tiempo extraordinario, y será remunerado atendiendo los siguientes aspectos:
-1. Que sea ocasional y nunca permanente.
-2. Que se encuentre debidamente autorizado por la Dirección correspondiente, siguiendo el procedimiento establecido al efecto.
-3. Que el tiempo extraordinario no sea utilizado para subsanar errores laborales del servidor.
-4. Que sea superior a treinta minutos por día.
-5. Que no sobrepase el salario ordinario del servidor.
-6. Que exista contenido presupuestario para la erogación.
-7.Que esté entre los casos autorizados, por la reglamentación o lineamientos establecidos al respecto.
+Artículo 119.—Los servidores tendrán derecho a un receso de 15 minutos por la mañana y 15 minutos por la tarde o noche según corresponda, para tomar su refrigerio. En el caso de funcionarios nombrados por jornada completa tendrán también derecho a una hora para almorzar. Cada jefatura regulará la forma en que sus subalternos pueden tomar dichos descansos, a efecto de que no se afecte el servicio, sin perjuicio de que las autoridades superiores dispongan otra cosa.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 118 al 119)

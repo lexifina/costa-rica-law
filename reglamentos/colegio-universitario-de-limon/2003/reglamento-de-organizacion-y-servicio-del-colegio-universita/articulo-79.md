@@ -1,1 +1,2 @@
-Artículo 79.—El disfrute de vacaciones podrá ser suspendido por la Administración únicamente cuando se presente un caso de emergencia o de urgencia en la institución y se considere que la solución del problema podría estar en el regreso inmediato del servidor. Los servidores así requeridos, deberán acatar la orden, salvo que exista una razón de fuerza mayor debidamente acreditada que lo impida.
+Artículo 79.—En el caso de los servidores nombrados a plazo definido o fijo, interinos o por inopia comprobada tendrán derecho al disfrute de sus vacaciones o al pago de las mismas en la eventualidad de una liquidación de los extremos laborales.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 78 al 79)

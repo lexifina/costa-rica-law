@@ -1,3 +1,2 @@
-CAPÍTULO XIVIII
-Del salario, aguinaldo y cesantía
-Artículo 107.—Las categorías de los puestos y la escala salarial correspondiente a los mismos, en ningún caso podrán ser inferiores a los establecidos y comunicados por la Autoridad Presupuestaria, todo ello de conformidad a las directrices de política salarial y empleo, aprobadas por la Autoridad Presupuestaria para el ejercicio presupuestario correspondiente.
+Artículo 107.—En lo no regulado expresamente, respecto a incapacidades y subsidios se aplicará supletoriamente el Reglamento del Seguro de Enfermedad y Maternidad, Reglamento para la extensión de incapacidades a los Trabajadores Beneficiarios del Régimen de Enfermedad y Maternidad, Reglamento General de Riesgos de Trabajo y las interpretaciones que de los mismos hagan la CCSS o INS, en su caso.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 106 al 107)

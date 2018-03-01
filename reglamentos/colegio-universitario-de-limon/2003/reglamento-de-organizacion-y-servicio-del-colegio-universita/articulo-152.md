@@ -1,3 +1,3 @@
-Artículo 152.—La presentación al trabajo bajo los efectos del licor o drogas enervantes, o la ingesta de estos durante el transcurso de la jornada, además del rebajo correspondiente dará lugar a la imposición de las siguientes sanciones:
-1. Por primera vez, apercibimiento escrito.
-2. Segunda vez, despido sin responsabilidad patronal.
+Artículo 152.—El abandono de trabajo sin causa justificada o sin permiso del superior inmediato, se sancionará de la siguiente manera:
+Amonestación escrita, cuando se trate de la primera vez. Suspensión de ocho días sin goce de salario, la segunda y Despido sin responsabilidad patronal, la tercera vez.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 151 al 152)

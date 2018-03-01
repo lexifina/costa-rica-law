@@ -1,1 +1,2 @@
-Artículo 164.—En casos muy calificados y cuando, por la naturaleza de la presunta falta, se considere perjudicial la permanencia del servidor en el puesto, el Decano, ordenará a la Unidad de Recursos Humanos, que mediante acción de personal, se proceda a la suspensión con goce de salario en el cargo, o su traslado temporal a otro puesto del funcionario investigado.
+Artículo 164.—Recibida por el Órgano Director la queja o denuncia, que informa de la presunta falta, procederá a levantar la información y resolverá lo conducente, a la mayor brevedad posible.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 163 al 164)

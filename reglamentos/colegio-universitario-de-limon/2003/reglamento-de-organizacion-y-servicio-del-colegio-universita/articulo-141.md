@@ -1,5 +1,2 @@
-TÍTULO V
-Del régimen disciplinario
-CAPÍTULO XXIX
-Régimen disciplinario
-Artículo 141.—La inobservancia demostrada de los deberes, obligaciones, o la violación de las prohibiciones establecidas en el presente reglamento y normativa vigente por parte de los funcionarios, se sancionará de acuerdo con la gravedad de la falta cometida, previo proceso administrativo.
+Artículo 141.—El incumplimiento de lo dispuesto en la ley de fumado y en este reglamento acarreará responsabilidad disciplinaria.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 140 al 141)

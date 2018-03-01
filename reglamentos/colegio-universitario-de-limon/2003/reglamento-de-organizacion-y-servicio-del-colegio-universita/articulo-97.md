@@ -1,3 +1,2 @@
-CAPÍTULO XVII
-De las incapacidades para trabajar y subsidios
-Artículo 97.—Se tendrá por justificadas las ausencias del servidor motivadas por incapacidad para trabajar, debidamente acreditada por la CCSS en caso de enfermedad, maternidad o por el INS en caso de riesgo profesional, bajo las siguientes disposiciones.
+Artículo 97.—El CUNLIMÓN deberá acatar las disposiciones que en materia de salud ocupacional establezca la Comisión, especialmente en cuanto al suministro de implementos, herramientas y equipo de protección a los servidores.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 96 al 97)

@@ -2,14 +2,22 @@ TÍTULO IV
 De los derechos y deberes de los servidores o funcionarios
 CAPÍTULO XIII
 De los derechos de los servidores o funcionarios del CUNLIMÓN
-Artículo 69.—Además de los derechos establecidos en las normas vigentes aplicables al régimen de empleo público, los servidores tendrán derecho a:
-1. Recibir capacitación cuando el desarrollo científico y tecnológico lo requiera para un mejor desempeño de sus funciones. Todo acorde con el interés institucional.
-2. Estabilidad en el puesto, con las excepciones contenidas en el presente reglamento y reglamentos específicos que se emitan en el futuro.
-3. Reasignación y reclasificación de los puestos conforme a las regulaciones establecidos en esta materia.
-4. Ingresar a la Carrera administrativa o docente, cuando se cumplan los requisitos establecidos al respecto.
-5. Recibir instrucciones claras y precisas y comprobables sobre sus funciones, deberes y responsabilidades, así como una debida inducción laboral.
-6. Aportar y recibir retroalimentación acerca de sus ideas en asuntos relacionados con las labores que desempeña.
-7. Contar con un local acondicionado y adecuado para ingerir sus alimentos y bebidas durante el tiempo estipulado.
-8. Contar con los instrumentos, equipos y materiales mínimos necesarios para realizar su trabajo; así como las condiciones físico - ambientales apropiadas para ello. Todo acorde con las posibilidades institucionales y la naturaleza de sus funciones.
-9. Ser escuchado y atendido por las instancias establecidas para resolver situaciones de hostigamiento laboral y acoso sexual, en la forma prescrita por la normativa vigente.
-10. Garantía al debido proceso y del derecho de defensa en toda acción de carácter disciplinario.
+Artículo 69.—Serán funciones de los Coordinadores de Carrera además de las señaladas en el Manual de Puestos las siguientes:
+a. Coadyuvar en los procesos de evaluación y seguimiento académico.
+b. Dirigir y coordinar todas las actividades académicas de la Carrera, impulsar su desarrollo y ejercer la representación de la Carrera.
+c. Colaborar, participar y orientar en los procesos de admisión y matrícula.
+d. Convocar y presidir el Consejo de Carrera.
+e. Adoptar las medidas que se requieren para la ejecución de las resoluciones o instrucciones del Consejo Decanatura o el Decano en el área de competencia.
+f. Elevar a las autoridades correspondientes, las cuestiones urgentes y graves que afecten el funcionamiento de la Carrera.
+g. Supervisar todas las actividades de la Carrera.
+h. Emitir criterio sobre las solicitudes de licencias o permisos del personal docente de su carrera, según los establece Reglamento Autónomo de Organización y Servicio del CUNLIMÓN.
+i. Elevar anualmente a las autoridades del CUNLIMÓN, una memoria relativa al desarrollo de la Carrera un informe sobre los proyecto y necesidades de la misma.
+j. Adoptar las medidas necesarias para la buena marcha de la Carrera.
+k. Asesorar a las autoridades jerárquicas, sobre las necesidades generales de la Carrera respecto de los planes, actividades y cuestiones docentes y de investigación que les sean pertinentes.
+l. Proponer al Consejo Decanatura, planes y actividades de docencia, extensión e investigación y proceder a la evaluación y el control de la gestión y ejecución de los mismos.
+m. Proponer, la designación del personal docente o visitantes en el área de sus actividades.
+n. Ejercer la potestad disciplinaria sobre los funcionarios y estudiantes que integren la Carrera, conforme a los Reglamentos respectivos.
+o. Ejecutar los programas de docencia.
+p. Resolver los recursos que le sean presentados en primera instancia en materia disciplinaria y segunda instancia en materia de evaluación. En caso de existir conflictos de interés por la duplicidad funciones del Coordinador de Carrera, la Dirección Académica nombrará Coordinador de Carrera distinto a efecto de que éste conozca y resuelva los recursos que se presenten
+q. Facilitar la vinculación con el sector socio-productivo y académico
+(Así reformado mediante sesión N° 004-2018 del 1° de marzo del 2018)

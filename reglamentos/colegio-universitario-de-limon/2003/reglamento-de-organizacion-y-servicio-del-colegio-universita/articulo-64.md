@@ -1,1 +1,4 @@
-Artículo 64.—Las calificaciones de servicio deben llevar adjunta, una explicación de las causas que las motivaron, las advertencias y observaciones formuladas al servidor, cuando correspondan a regular y deficiente.
+Artículo 64.—El personal nombrado tendrá la nomenclatura de:
+a. Coordinadores de carrera y programa:
+b. Coordinadores de Sedes Regionales
+(Así reformado mediante sesión N° 004-2018 del 1° de marzo del 2018)

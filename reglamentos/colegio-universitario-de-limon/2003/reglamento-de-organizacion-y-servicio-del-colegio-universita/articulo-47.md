@@ -1,11 +1,2 @@
-CAPÍTULO XI
-De las clasificaciones de puestos docentes
-Artículo 47.—El personal docente y administrativo – docente del CUNLIMÓN, se clasificará en:
-Profesor I
-Profesor II
-Profesor III
-Profesor IV
-Profesor V
-Profesor ad honoren
-Profesor visitante
-Profesor emérito
+Artículo 47.—Los servidores tendrán derecho al reconocimiento de la carrera administrativa y carrera docente según corresponda, que se regirá por lo que disponga este Reglamento y el Ordenamiento Jurídico aplicable al respecto.
+(Así reformado mediante sesión N° 004-2018 del 1° de marzo del 2018)

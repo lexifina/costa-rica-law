@@ -1,1 +1,2 @@
-Artículo 101.—Si como consecuencia de un accidente o enfermedad de trabajo el servidor no pudiera desempeñar el puesto que ocupaba antes de ocurrirle el hecho, el CUNLIMÓN procederá a reubicarlo en un nuevo puesto acorde con su capacidad actual y su formación profesional. Si no fuera posible la reubicación se procederá a su despido con responsabilidad institucional.
+Artículo 101.—El subsidio por riesgo o enfermedad profesional será pagado al servidor de acuerdo a lo dispuesto por la Ley sobre Riesgos de Trabajo y sus reformas, garantizando la institución en todo caso el pago del cien por ciento (100%) de su salario.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 100 al 101)

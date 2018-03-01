@@ -1,3 +1,10 @@
-Artículo 86.—Las licencias por razón de maternidad y lactancia se regularán por las disposiciones del artículo 95 y siguientes del Código de Trabajo, con las siguientes variaciones. En caso de embarazo se concederá a la funcionaria cuatro meses de incapacidad, la distribución de ésta, referente al pre y post parto, se realizará de acuerdo a la recomendación que emita el médico que la atiende durante el período de embarazo. En estos casos la institución pagará a la servidora el 50% de su salario como subsidio mientras dure la incapacidad y el otro 50% será el subsidio de la CCSS.
-Durante la lactancia del niño la madre podrá acogerse a lo que al respecto establece el artículo 97 del Código de Trabajo; previa presentación de la recomendación del médico especialista o pediatra.
-En caso de adopción la madre tendrá derecho a disfrutar de las licencias establecidas en los párrafos anteriores.
+Artículo 86.—Cuando un servidor sea declarado incapacitado para trabajar por enfermedad o riesgo profesional, se le concederá licencia y gozará de subsidio proporcional al tiempo servido, conforme a las siguientes regulaciones:
+1) Durante el primer semestre de servicios, el subsidio se reconocerá hasta por 15 días.
+2) Durante el segundo semestre de servicios, hasta por un mes.
+3) Durante el tercer semestre, hasta por dos meses.
+4) Durante el cuarto semestre de servicios, hasta por tres meses.
+5) Durante el quinto semestre de servicios, hasta por cuatro meses.
+6) Durante el sexto semestre de servicios, hasta por cinco meses; y.
+7) Después de tres años de servicio, hasta por un año.
+El monto de subsidio será un porcentaje del salario ordinario que está devengando el trabajador a fin de completar el 100% de su salario durante el tiempo en que permanezca incapacitado, dentro de los límites indicados.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 85 al 86)

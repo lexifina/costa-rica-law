@@ -1,1 +1,2 @@
-Artículo 94.—Todo servidor está en la ineludible obligación de dar aviso a la Unidad de Recursos Humanos o al Jefe inmediato, Director o Decano, de algún accidente que haya sufrido, al día siguiente hábil al accidente.
+Artículo 94.—La Unidad de Recursos Humanos, a través de la Comisión de Salud Ocupacional, será el responsable de promover, coordinar, ejecutar y fiscalizar las políticas y medidas que se adopten en materia de salud ocupacional y de la integración de las brigadas de salud ocupacional, las cuales recibirán la capacitación necesaria que las faculte para cumplir su cometido.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 93 al 94)

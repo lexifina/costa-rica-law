@@ -1,6 +1,11 @@
-Artículo 167.—En el caso de los funcionarios interinos la relación de servicio termina:
-1) Cuando el titular de un puesto se reintegre al mismo, por vencimiento de la causa que existía para alejarse del cargo.
-2) Cuando incurra en una falta o causal de despido.
-3) Renuncia.
-4) Fallecimiento o invalidez total o permanente debidamente declarada.
-5) Cuando se cumpla el plazo para el cual fue contratado.
+CAPÍTULO XXXII
+Terminación de la relación de servicio
+Artículo 167.—Los funcionarios regulares terminarán su relación de servicio, cuando se dé uno de los siguientes supuestos:
+1) Renuncia.
+2) Despido con responsabilidad patronal.
+3) Despido sin responsabilidad patronal.
+4) Fallecimiento.
+5) Invalidez total o permanente debidamente declarada.
+6) Reestructuración organizativa, congelamiento o cierre del curso o de la carrera en el caso de los docentes, o de la plaza correspondiente en el caso de los administrativos.
+7) Jubilación o pensión.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 166 al 167)

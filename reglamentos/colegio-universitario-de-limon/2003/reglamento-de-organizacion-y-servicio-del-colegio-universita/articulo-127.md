@@ -1,1 +1,2 @@
-Artículo 127.—Se considera como ausencia, la inasistencia injustificada al trabajo durante la jornada laboral completa. La inasistencia injustificada durante una fracción de la jornada laboral se computará como la mitad de una ausencia. No se pagará el salario que corresponde en caso de ausencias injustificadas.
+Artículo 127.—Incurrirá en falta grave el servidor que registre intencionalmente la asistencia de otra persona, altere o destruya los registros u otros medios de control.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 126 al 127)

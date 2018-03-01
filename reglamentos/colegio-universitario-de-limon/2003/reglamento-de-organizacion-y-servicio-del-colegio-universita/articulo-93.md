@@ -1,1 +1,2 @@
-Artículo 93.—La Unidad de Recursos Humanos, a través de la Comisión de Salud Ocupacional, será el responsable de promover, coordinar, ejecutar y fiscalizar las políticas y medidas que se adopten en materia de salud ocupacional y de la integración de las brigadas de salud ocupacional, las cuales recibirán la capacitación necesaria que las faculte para cumplir su cometido.
+Artículo 93.—Todo funcionario está obligado a prestar a la Comisión de Salud Ocupacional el apoyo y la colaboración necesarias para que esta cumpla su cometido.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 92 al 93)

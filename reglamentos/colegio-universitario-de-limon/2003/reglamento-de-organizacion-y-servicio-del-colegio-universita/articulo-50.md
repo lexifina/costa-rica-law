@@ -1,1 +1,3 @@
-Artículo 50.—El CUNLIMÓN podrá realizar nombramientos docentes interinos en puestos vacantes. El funcionario así nombrado permanecerá en su puesto mientras se realice el trámite normal de contratación o regrese el titular, según corresponda. Ningún nombramiento interino podrá ser superior a doce meses, salvo en el caso de permisos sin goce de sueldo del titular del puesto, que excedan dicho plazo.
+Artículo 50.—La Carrera Docente será el reconocimiento de méritos a los funcionarios docentes, por su esfuerzo en el desempeño de sus labores, por su desarrollo personal o profesional, así como por la participación y aportes en acción social e investigación de alto interés institucional.
+Tiene como propósito propiciar el ingreso, la permanencia y el desarrollo del personal profesional que, por la calidad y cantidad de su trabajo, haya demostrado mérito en su desempeño.
+(Así reformado mediante sesión N° 004-2018 del 1° de marzo del 2018)

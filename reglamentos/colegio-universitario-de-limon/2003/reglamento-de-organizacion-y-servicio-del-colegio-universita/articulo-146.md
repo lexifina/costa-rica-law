@@ -1,4 +1,4 @@
-Artículo 146.—La suspensión sin goce de sueldo se aplicará hasta por un periodo de quince días dependiendo de la gravedad de la falta en que hubiese incurrido. Dicha sanción se aplicará en los siguientes casos:
-1. Cuando el funcionario después de haber sido amonestado por escrito dentro de los seis meses anteriores, incurra de nuevo en la falta que motivó la amonestación.
-2. En los casos que así lo establezca la normativa vigente.
-3. En caso de faltas graves que no ameriten aplicar una sanción mayor.
+Artículo 146.—La amonestación escrita se aplicará:
+1. Cuando se haya amonestado verbalmente al servidor dentro de los seis meses anteriores e incurra nuevamente en la misma falta.
+2. En los casos previstos por este Reglamento.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 145 al 146)

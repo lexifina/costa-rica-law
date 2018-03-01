@@ -1,4 +1,2 @@
-Artículo 155.—Las faltas que no tienen una sanción específica, se conceptúan como leves, graves y muy graves, serán sancionadas no atendiendo estrictamente el orden señalado, sino en razón de su gravedad con:
-1. Amonestación escrita, que incluye el apercibimiento a que alude el artículo 72 del Código de Trabajo.
-2. Suspensión sin goce de salario por quince días.
-3. Despido sin responsabilidad patronal.
+Artículo 155.—Las sanciones descritas en este capítulo, serán aplicadas por el Jefe Inmediato las amonestaciones verbales y escritas quedando copia de la misma en el expediente del servidor. Las otras sanciones serán aplicadas por el Decano a través de la Unidad de Recursos Humanos, conforme al procedimiento que se establece en este Reglamento.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 154 al 155)

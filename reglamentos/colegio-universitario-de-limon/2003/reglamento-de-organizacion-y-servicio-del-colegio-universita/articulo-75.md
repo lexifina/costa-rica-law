@@ -1,1 +1,4 @@
-Artículo 75.—En caso que el interés público lo demande o se establezcan roles especiales, se podrá trabajar los días de descanso semanal, cuando lo autorice la Decanatura. Si se llega a exceder la jornada ordinaria correspondiente, se reconocerá el pago de salario extraordinario, de acuerdo a los parámetros establecidos por la Contraloría General de la República y en este reglamento.
+CAPÍTULO XIV
+Del descanso semanal, vacaciones y días feriados
+Artículo 75.—Todo servidor tiene derecho a disfrutar de un día de descanso absoluto, después de cada seis días de servicio continuo, o de completar las horas correspondientes a jornadas ordinarias en caso de jornada acumulativa.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 74 al 75)

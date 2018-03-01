@@ -1,3 +1,2 @@
-Artículo 145.—La amonestación escrita se aplicará:
-1. Cuando se haya amonestado verbalmente al servidor dentro de los seis meses anteriores e incurra nuevamente en la misma falta.
-2. En los casos previstos por este Reglamento.
+Artículo 145.—La amonestación verbal se aplicará cuando el servidor incurra en una falta leve.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 144 al 145)

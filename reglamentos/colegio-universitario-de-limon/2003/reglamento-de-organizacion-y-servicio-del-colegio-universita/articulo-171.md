@@ -1,5 +1,4 @@
-Artículo 171.—Se entiende por acoso u hostigamiento sexual, toda conducta sexual indeseada por quien la recibe, reiterada y que provoque efectos perjudiciales en los siguientes casos:
-1) Condiciones materiales de empleo.
-2) Desempeño y cumplimiento laboral.
-3) Estado general de bienestar personal.
-También se considera acoso sexual la conducta grave que habiendo ocurrido una sola vez, perjudique a la víctima en cualquiera de los aspectos indicados.
+CAPÍTULO XXXII
+Del acoso u hostigamiento sexual en el empleo
+Artículo 171.—De conformidad con lo dispuesto por la Ley Nº 7476 de 3 de enero de 1995, Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia, se prohíbe y sanciona, en el CUNLIMÓN, el acoso u hostigamiento sexual, contra la dignidad de la mujer y del hombre.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 170 al 171)

@@ -1,1 +1,2 @@
-Artículo 65.—Dos calificaciones sucesivas de regular o una de deficiente, una vez que adquieran firmeza y se haya cumplido lo que establecen los artículos siguientes, se considerarán falta grave para todo efecto legal, dando al CUNLIMÓN la posibilidad de despedir al funcionario previo aplicación del debido proceso.
+Artículo 65.—Los Coordinadores de Carrera y de Sedes serán nombrados por periodos de un año, dicho nombramiento podrá ser prorrogado por periodos iguales hasta completar un máximo de tres años, siempre y cuando la evaluación del desempeño sea de “muy bueno” a “excelente”.
+(Así reformado mediante sesión N° 004-2018 del 1° de marzo del 2018)

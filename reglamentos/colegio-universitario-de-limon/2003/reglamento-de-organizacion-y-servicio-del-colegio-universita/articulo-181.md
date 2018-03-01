@@ -1,1 +1,2 @@
-Artículo 181.—Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 181.—En defecto de disposiciones propias de este Reglamento deberán tenerse como supletorias las contenidas en el Estatuto de Servicio Civil y demás leyes, decretos y reglamentos conexos en la materia que esté en vigencia. Asimismo el Manual Descriptivo de Cargos del CUNLIMÓN.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 180 al 181)

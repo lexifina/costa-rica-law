@@ -179,5 +179,6 @@ articulo-178.md
 articulo-179.md
 articulo-180.md
 articulo-181.md
+articulo-182.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md

@@ -1,6 +1,2 @@
-Artículo 143.—De acuerdo con lo establecido en el artículo anterior, se establecen las siguientes sanciones:
-a. Amonestación verbal por el Jefe inmediato, dejando constancia de la misma en el expediente personal.
-b. Amonestación escrita por el Jefe inmediato.
-c. Suspensión sin goce de salario hasta por quince días hábiles.
-d. Despido sin responsabilidad patronal para el CUNLIMÓN.
-En la aplicación de las sanciones disciplinarias no se deberá seguir el orden que se establece en este artículo, sino que la sanción dependerá de lo reglado en cada caso y la gravedad de la falta.
+Artículo 143.—En la valoración de la falta y aplicación de la sanción correspondiente se tomarán en cuenta los principios de Equidad, Justicia, de Causalidad-Objetiva y Psicológica y de Proporcionalidad.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 142 al 143)

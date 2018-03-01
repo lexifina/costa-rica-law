@@ -1,7 +1,3 @@
-CAPÍTULO XVI
-De la salud ocupacional
-Artículo 89.—El CUNLIMÓN adoptará las medidas necesarias para garantizar el cumplimiento de las normas de Salud Ocupacional en sus sedes, con el objeto de lograr los siguientes objetivos:
-1. La protección y la preservación de la integridad física, moral y social de sus servidores.
-2. La prevención y control de los riesgos y enfermedades profesionales.
-3. El mantenimiento de condiciones adecuadas en edificaciones, instalaciones y condiciones ambientales, suministros, uso y mantenimiento de los equipos de protección personal.
-4. La capacitación de su personal en materia de salud ocupacional.
+Artículo 89.—Todas las quejas, peticiones, reclamos, sugerencias y otras nacidas de la relación de servicio, deberán ser dirigidas por escrito al Jefe Inmediato Superior, quien las resolverá dentro de los tres días siguientes y en la misma forma; no obstante cuando este se considere incompetente para resolver, o el servidor no esté de acuerdo con la resolución podrá recurrir a la autoridad inmediata superior.
+El funcionario también podrá recurrir ante el superior de su jefe inmediato si demuestra que este no ha atendido su gestión, o si por cualquier motivo se establece conflicto entre el servidor y el jefe inmediato. Los asuntos urgentes podrán gestionarse verbalmente y deberán resolverse del mismo modo y de inmediato, dejando una constancia escrita agregada al expediente personal.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 88 al 89)

@@ -1,1 +1,4 @@
-Artículo 108.—El salario será pagado en forma quincenal mediante depósito en la cuenta del servidor en un Banco del Sistema Bancario Nacional y en su defecto mediante cheque que se entregará al servidor en las cajas de la institución. El pago se efectuará dentro de las horas hábiles del día fijado al efecto en el calendario anual de pagos.
+CAPÍTULO XIVIII
+Del salario, aguinaldo y cesantía
+Artículo 108.—Las categorías de los puestos y la escala salarial correspondiente a los mismos, en ningún caso podrán ser inferiores a los establecidos y comunicados por la Autoridad Presupuestaria, todo ello de conformidad a las directrices de política salarial y empleo, aprobadas por la Autoridad Presupuestaria para el ejercicio presupuestario correspondiente.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 107 al 108)

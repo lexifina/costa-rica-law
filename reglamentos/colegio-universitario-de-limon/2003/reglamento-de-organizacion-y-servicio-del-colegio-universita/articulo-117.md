@@ -1,2 +1,4 @@
-Artículo 117.—Quedarán excluidos según el artículo 143 del Código de Trabajo, de la limitación de la jornada y horario que establezca este reglamento, los que ocupan puestos de jefatura (Directores, Jefes de Unidad y Coordinadores de Carreras) y todos aquellos que trabajan sin fiscalización superior inmediato; los que desempeñan funciones discontinuas o que requieran su sola presencia; y las personas que realizan funciones que por su indudable naturaleza no están sometidas a jornada de servicio.
-Sin embargo, estos funcionarios no estarán obligados a permanecer más de doce horas diarias en servicio y tendrán derecho dentro de esa jornada, a un descanso mínimo de una hora y media.
+Artículo 117.—El horario ordinario de servicio y atención al público es el siguiente: de lunes a sábado de las 8:00 horas a las 22:00 horas.
+Sin embargo, cuando existan circunstancias especiales debidamente determinadas por la Decanatura, dicho horario podrá ser variado, adecuándose a la necesidad institucional.
+El personal docente y docente-administrativo estarán sujetos a los horarios académicos que se determinen.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 116 al 117)

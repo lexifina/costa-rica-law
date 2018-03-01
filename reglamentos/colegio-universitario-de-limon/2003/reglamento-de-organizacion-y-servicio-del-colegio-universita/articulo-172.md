@@ -1,7 +1,6 @@
-Artículo 172.—El acoso sexual puede manifestarse por medio de los siguientes comportamientos:
-1. Requerimientos de favores sexuales que impliquen:
-a. Promesa, implícita o expresa, de un trato preferencial, respecto de la situación actual o futura, de empleo de quien la reciba.
-b. Amenazas, implícitas o expresas, físicas o morales, de daños o castigos referidos a la situación, actual o futura, de empleo de quien la reciba.
-c. Exigencia de una conducta cuya sujeción o rechazo sea, en forma implícita o explícita, condición para el empleo.
-2. Uso de palabras de naturaleza sexual, escritas u orales, que resulten hostiles, humillantes, u ofensivas para quien las reciba.
-3. Acercamientos corporales u otras conductas físicas de naturaleza sexual, indeseados y ofensivos para quien los reciba.
+Artículo 172.—Se entiende por acoso u hostigamiento sexual, toda conducta sexual indeseada por quien la recibe, reiterada y que provoque efectos perjudiciales en los siguientes casos:
+1) Condiciones materiales de empleo.
+2) Desempeño y cumplimiento laboral.
+3) Estado general de bienestar personal.
+También se considera acoso sexual la conducta grave que habiendo ocurrido una sola vez, perjudique a la víctima en cualquiera de los aspectos indicados.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 171 al 172)

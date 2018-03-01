@@ -1,10 +1,3 @@
-CAPÍTULO XXXII
-Terminación de la relación de servicio
-Artículo 166.—Los funcionarios regulares terminarán su relación de servicio, cuando se dé uno de los siguientes supuestos:
-1) Renuncia.
-2) Despido con responsabilidad patronal.
-3) Despido sin responsabilidad patronal.
-4) Fallecimiento.
-5) Invalidez total o permanente debidamente declarada.
-6) Reestructuración organizativa, congelamiento o cierre del curso o de la carrera en el caso de los docentes, o de la plaza correspondiente en el caso de los administrativos.
-7) Jubilación o pensión.
+Artículo 166.—De acuerdo con el artículo 211, inciso 3) de la Ley General de la Administración Pública, no se podrá imponer ninguna sanción a los funcionarios, sin previa formación del expediente y con amplia audiencia al servidor para que haga valer sus derechos y demuestre su inocencia.
+Para lograr lo anterior deberá aplicarse, en lo procedente, el Libro Segundo de la Ley General de la Administración Pública.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 165 al 166)

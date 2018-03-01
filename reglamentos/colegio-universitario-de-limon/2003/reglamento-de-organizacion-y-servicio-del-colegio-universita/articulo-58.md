@@ -1,3 +1,3 @@
-CAPÍTULO XII
-De la evaluación y calificación del desempeño
-Artículo 58.—El desempeño de los servidores administrativos con contrato a plazo indefinido o interino, será evaluado y calificado como mínimo una vez al año y la calificación se expresará en términos de excelente, muy bueno, bueno, regular y deficiente, según los parámetros de las escalas definidas para tal efecto.
+Artículo 58.—El CUNLIMÓN podrá contratar profesores por fracciones menores a tiempo docente completo. Ningún docente podrá ser remunerado por una jornada mayor a la definida como tiempo docente completo, excepto casos especiales autorizados por el Decano, en una jornada adicional máxima de 1/4 tiempo docente completo.
+Los servidores administrativos que a su vez se desempeñen como docentes del CUNLIMÓN, no podrán ser remunerados por una jornada mayor a la definida como un cuarto (1/4) de tiempo docente, salvo los casos de excepción indicados en el párrafo anterior.
+(Así reformado mediante sesión N° 004-2018 del 1° de marzo del 2018)

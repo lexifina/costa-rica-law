@@ -1,4 +1,2 @@
-CAPÍTULO XXX
-Instrucción de las faltas
-Artículo 161.—Instrucción de la falta es el procedimiento administrativo – laboral, que se siga para analizar y valorar las faltas disciplinarias en que incurran los servidores.
-La instrucción se orientará a definir y establecer las sanciones disciplinarias que correspondan en cada caso, atendiendo para ello los principios de: causalidad, actualidad y proporcionalidad de la falta.
+Artículo 161.—Los plazos para la reincidencia serán en un término de tres meses; y sancionados con la sanción inmediata posterior a la anterior aplicada.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 160 al 161)

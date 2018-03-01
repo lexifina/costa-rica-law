@@ -1,2 +1,2 @@
-Artículo 165.—De acuerdo con el artículo 211, inciso 3) de la Ley General de la Administración Pública, no se podrá imponer ninguna sanción a los funcionarios, sin previa formación del expediente y con amplia audiencia al servidor para que haga valer sus derechos y demuestre su inocencia.
-Para lograr lo anterior deberá aplicarse, en lo procedente, el Libro Segundo de la Ley General de la Administración Pública.
+Artículo 165.—En casos muy calificados y cuando, por la naturaleza de la presunta falta, se considere perjudicial la permanencia del servidor en el puesto, el Decano, ordenará a la Unidad de Recursos Humanos, que mediante acción de personal, se proceda a la suspensión con goce de salario en el cargo, o su traslado temporal a otro puesto del funcionario investigado.
+(Corrida su numeración mediante sesión N° 004-2018 del 1° de marzo del 2018, que lo traspasó del antiguo artículo 164 al 165)
