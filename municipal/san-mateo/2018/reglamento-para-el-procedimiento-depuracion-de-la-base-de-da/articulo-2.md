@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo General. Depurar la base de datos municipal mediante la actualización de datos inconsistentes en bienes inmuebles y contribuyentes, esto con el fin de contar con una base de datos más segura y real tanto para aplicar el pago por medio de conectividad con los bancos, así como traslados a futuros sistemas que adquiera la Municipalidad.

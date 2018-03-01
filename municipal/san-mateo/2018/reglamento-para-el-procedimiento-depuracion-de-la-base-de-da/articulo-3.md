@@ -1,0 +1,1 @@
+Artículo 3º—Objetivos específicos. Identificar contribuyentes con saldo de bienes inmuebles pero que no cuentan con finca ni en el SIM ni en el registro nacional, en estos casos se buscara si el contribuyente tuvo finca en algún momento y si esa finca y saldo fue trasladado al nuevo dueño, caso negativo se deberá hacer el traslado del pendiente al nuevo dueño.
