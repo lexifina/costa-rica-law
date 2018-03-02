@@ -1,0 +1,2 @@
+Artículo 30°
+De las resoluciones: Las resoluciones que tome el Comité Cantonal en las sesiones de Junta Directiva, se denominarán acuerdos y fallos. Son fallos todos aquellos que resuelven sobre cualquier controversia que se presente, son acuerdos todos los demás.

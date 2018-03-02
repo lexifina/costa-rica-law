@@ -1,0 +1,4 @@
+CAPÍTULO IX
+De los Comités Comunales
+Artículo 56°
+Los Comités Comunales, será el órgano de enlace entre el Comité Cantonal y la comunidad respectiva, estarán integrados por cinco miembros residentes de la misma (representantes) que serán nombrados en Asamblea General, convocada para tal efecto por el Comité Cantonal en conjunto con el Comité Comunal Saliente. La Asamblea General estará conformada por dos representantes mayores de edad, de cada una de las organizaciones deportivas, comunales, recreativas, juveniles existentes y vecinos de la comunidad respectiva. Dicha Asamblea debe contar con un quórum no menor de 10 personas en la primera convocatoria, si no se tuviese este quórum en la primera convocatoria se dará un tiempo de 30 minutos para la segunda convocatoria, en caso de que no exista quórum se deberá reprogramar en conjunto la nueva fecha para realizar la Asamblea General.

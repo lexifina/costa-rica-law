@@ -1,0 +1,2 @@
+Artículo 43°
+Dicho presupuesto debe ser consecuente con los planes en materia deportiva y recreativa y las políticas deportivas del Comité Cantonal, además debe de reflejar las necesidades de los Comités Comunales de acuerdo al artículo 7º de este Reglamento y las comisiones que existan, debiendo ser sometido para aprobación del Concejo Municipal, a más tardar en la primera semana del mes de julio de cada año.

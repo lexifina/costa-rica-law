@@ -1,0 +1,2 @@
+Artículo 72°
+De igual forma resultan aplicables las demás disposiciones previstas en los reglamentos respectivos relacionados a la jornada de trabajo, vacaciones, horario, obligaciones, prohibiciones, régimen disciplinario, derechos incentivos salariales, entre otros. Para tal fin el Comité Cantonal contará con la asesoría del Proceso de Recursos Humanos y el Proceso de Servicios Jurídicos de la Municipalidad.

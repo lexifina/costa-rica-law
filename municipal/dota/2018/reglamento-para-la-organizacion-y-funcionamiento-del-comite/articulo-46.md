@@ -1,0 +1,2 @@
+Artículo 46°
+Ningún miembro de los comités podrá hacer el uso de carácter personal de dineros provenientes de ingresos por actividades deportivas o recreativas o cualesquiera otros ingresos que perciba el Comité Cantonal de Deportes de Dota o Comités comunales. En caso de incumplimiento de esta disposición, el responsable será expulsado del organismo u órgano correspondiente, debiendo reintegrar el dinero sin perjuicio de las responsabilidades a que alude el artículo anterior.

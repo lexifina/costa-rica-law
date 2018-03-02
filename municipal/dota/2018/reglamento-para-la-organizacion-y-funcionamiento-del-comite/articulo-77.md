@@ -1,0 +1,2 @@
+Artículo 77°
+Cualquier reforma que se proponga a este Reglamento, se pondrá en conocimiento al Comité Cantonal para su análisis y recomendación, el que deberá brindar informe al Concejo en un plazo de un mes.

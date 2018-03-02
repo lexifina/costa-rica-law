@@ -1,0 +1,3 @@
+Artículo 7º
+Los Comités Comunales y Comisiones establecidas deberán entregar al Comité Cantonal en la primera semana del mes de junio de cada año, los planes de trabajo y su respectivo presupuesto para el año inmediato posterior, los cuales, serán sujetos de aprobación por parte del Comité Cantonal, el que ejercerá los controles debidos para su ejecución.
+Igualmente deberán entregar informes trimestrales de labores, de ingresos y egresos.

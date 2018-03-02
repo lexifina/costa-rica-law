@@ -1,0 +1,2 @@
+Artículo 42°
+El presupuesto debe contener una estimación de ingresos, incluyendo una descripción clara y concisa de lo que persigue hacer durante el año presupuestario de acuerdo con las exigencias legales y reglamentarias establecidas al efecto.

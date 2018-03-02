@@ -1,0 +1,2 @@
+Artículo 27°
+Cuando algún miembro del Comité Cantonal, incurra en cualquiera de las causales indicadas en el artículo anterior, la Junta Directiva deberá comunicarlo por escrito al Concejo Municipal y a la organización que representa, indicando las razones para hacer efectiva su sustitución. El Concejo y organización respectiva, procederá a reponer el miembro separado aplicando el procedimiento legalmente establecido al efecto.

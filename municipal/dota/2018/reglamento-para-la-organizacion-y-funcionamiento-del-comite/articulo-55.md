@@ -1,0 +1,3 @@
+Artículo 55°
+En relación con el ingreso de mascotas a las instalaciones del Comité Cantonal, con base en lo que establece el artículo 195 de la Ley General de Salud, el ingreso de animales sólo será permitida cuando no amenace la salud o la seguridad de las personas y cuando en el lugar en que se
+mantienen reúna las condiciones de saneamiento de manera que no ensucien o contaminen las instalaciones o bien en caso se realice en dichas instalaciones eventos destinados a mascotas, tomando de antemano las previsiones del caso para el correcto uso y cuido de las instalaciones, por lo anterior las mascotas permanecerán asidas con una correa a su dueño, y estos serán responsables de recoger los excrementos que generen dichas mascotas.
