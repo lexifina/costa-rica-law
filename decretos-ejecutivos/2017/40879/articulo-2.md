@@ -1,0 +1,1 @@
+Artículo 2°- Comisión Técnica Interinstitucional de Estadísticas de Convivencia y Seguridad Ciudadana. Créase la Comisión Técnica Interinstitucional de Estadísticas de Convivencia y Seguridad Ciudadana (COMESCO) para establecer la coordinación interinstitucional que permita la estandarización de datos relacionados con el tema.

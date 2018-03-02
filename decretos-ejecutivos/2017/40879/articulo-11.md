@@ -1,0 +1,1 @@
+Artículo 11°- Secretaría Técnica de la Comisión. La comisión contará con una Secretaría Técnica que será asumida por el Observatorio de la Violencia del Ministerio de Justicia y Paz, concebida como instancia ejecutora de las acciones que determine la comisión.
