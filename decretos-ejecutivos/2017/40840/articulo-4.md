@@ -1,0 +1,1 @@
+Artículo 4. El legitimado debe tramitar ante la SETENA la viabilidad ambiental del Plan General de Manejo. En el caso de que exista un delegado del trámite, se debe presentar un oficio donde se otorga dicha función delegada.

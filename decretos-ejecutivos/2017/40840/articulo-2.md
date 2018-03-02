@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de Aplicación. El presente Reglamento aplica para la valoración ambiental del Plan General de Manejo del Refugio Nacional de Vida Silvestre Ostional, según la Ley N°9348 del 08 de febrero de 2016.

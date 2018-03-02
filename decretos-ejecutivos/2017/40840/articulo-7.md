@@ -1,0 +1,3 @@
+Capítulo III
+Procedimiento para la zonificación del Área Silvestre Protegida
+Artículo 7. Como insumo base para desarrollar la zonificación del ASP (terrestre y marina), se utilizará la cartografía generada dentro de los factores. Esta cartografía será unificada en formato *.shp. El archivo se denominará "Mapa Unificado de los Factores-RNVSO". Este mapa se obtiene utilizando cualquier plataforma SIG y dentro de esta, a través del comando "UNION" o "UNIR", el cual corresponde a un análisis vectorial. El comando "UNION" viene a combinar o unificar los elementos geográficos y la información tabular presente en cada uno de los siete mapas en uno solo. El mapa resultante de esta fase, se le denominará Mapa Unificado de los Factores.

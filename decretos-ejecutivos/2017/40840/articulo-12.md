@@ -1,0 +1,1 @@
+Artículo 12. En lo dispuesto en el presente Decreto y que deba ser considerado para la valoración ambiental del Plan General de Manejo del Refugio Nacional de Vida Silvestre Ostional, el interesado deberá responder a lo que disponga la Secretaría Técnica Nacional Ambiental.
