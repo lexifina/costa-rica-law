@@ -1,1 +1,0 @@
-Artículo 7º—Por encontrarse la Directora Gestión Técnica de vacaciones legales del 28 de agosto al 18 de setiembre de 2017, la suscrita firma el presente acto en carácter de Directora de Gestión Técnica a.i. Lo anterior según resolución GAF-SNA-SAL-542-2017 del 28 de agosto de 2017.

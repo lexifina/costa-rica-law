@@ -1,1 +1,0 @@
-Artículo 5º—Se deja sin vigencia la resolución DGH-016-2017 y DGA-DGT-006-2017 de la Dirección General de Hacienda y de la Dirección General de Aduanas del Ministerio de Hacienda, San José, de las once horas del día 28 de febrero de dos mil diecisiete, publicada en el Alcance N°68 de La Gaceta Nº 61 del 27 de marzo de 2017.
