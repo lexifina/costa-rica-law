@@ -1,0 +1,2 @@
+Artículo 21°.- Recurso Humano:
+El MOPT, dentro de los dos años siguientes a la vigencia del presente decreto gestionará, interna y externamente ante los entes y órganos correspondientes, el recurso humano requerido para que la División Marítimo Portuaria cumpla con las funciones dispuestas en el presente Decreto Ejecutivo, conforme a las necesidades identificadas en el estudio que se elabore para tal efecto.
