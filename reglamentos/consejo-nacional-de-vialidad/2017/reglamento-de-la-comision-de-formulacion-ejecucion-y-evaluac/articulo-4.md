@@ -1,0 +1,1 @@
+Artículo 4º—Alcance y ámbito de aplicación. Este reglamento será de aplicación en todas las unidades organizativas del Conavi, incluyendo el Consejo de Administración, la Dirección Ejecutiva y la Auditoría Interna, esta última en lo que resulte de aplicación.

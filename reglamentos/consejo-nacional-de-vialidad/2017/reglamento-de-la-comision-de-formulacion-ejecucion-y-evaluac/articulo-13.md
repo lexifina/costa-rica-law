@@ -1,0 +1,1 @@
+Artículo 13.—Ejecución del POI-Presupuesto. La correcta ejecución y control del POI- Presupuesto es responsabilidad de cada titular subordinado. La ejecución del POI- Presupuesto se debe realizar acorde con los objetivos, metas, funciones, proyectos, actividades estratégicas establecidas y el presupuesto asignado a cada unidad organizativa.

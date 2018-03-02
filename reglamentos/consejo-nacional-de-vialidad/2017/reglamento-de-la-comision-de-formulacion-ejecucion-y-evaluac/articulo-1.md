@@ -1,0 +1,19 @@
+CONSEJO NACIONAL DE VIALIDAD
+REGLAMENTO DE LA COMISIÓN DE FORMULACIÓN,
+EJECUCIÓN Y EVALUACIÓN DEL PLAN-PRESUPUESTO
+INSTITUCIONAL DEL CONAVI
+Considerando
+1) Que tanto la Ley de Planificación Nacional, Nº 5525, como la Ley de Administración Financiera de la República y Presupuestos Públicos, Nº 8131, y sus respectivos reglamentos, constituyen el marco normativo en materia de planificación, programación y asignación presupuestaria.
+2) Que la Ley 8131, en su artículo 4, establece que: el Plan Nacional de Desarrollo (PND) constituye el marco global que orientará los Planes Operativos Institucionales (POI), según el nivel de autonomía de cada institución. Además, señala que todo presupuesto público debe responder en principio, a los Planes Operativos; específicamente los recursos del Estado deben ser presupuestados según la programación macroeconómica, reflejando las prioridades y actividades estratégicas del Gobierno, así como los objetivos y las metas del PND.
+3) Que el artículo 7 de la ley 8131, dispone que “en la formulación de los presupuestos se utilizarán las técnicas y los principios presupuestarios aceptados, con base en criterios funcionales que permitan evaluar el cumplimiento de las políticas y planes anuales, así como la incidencia y el impacto económico financiero de la ejecución”.
+4) Que el inciso a) del artículo 32 de la ley citada, establece que es función y deber de la Dirección General de Presupuesto Nacional, la de “elaborar, junto con la Contraloría General de la República, y dictar los criterios y lineamientos generales que informen las normas técnicas del proceso de programación, presupuestación y evaluación presupuestaria del sector público”. Y, el artículo 9 dispone que “los proyectos de presupuesto de los entes y órganos del sector público deberán prepararse acatando las normas técnicas y los lineamientos de política presupuestaria dictados por el órgano competente”.
+5) Que el artículo 53 de la ley citada dispone que los presupuestos serán presentados a la Contraloría General de la República, para su aprobación o improbación, “según las disposiciones constitucionales y legales vigentes, deberán preparar sus proyectos de presupuesto ordinarios o extraordinarios y sus modificaciones, atendiendo las normas técnicas dictadas por [ese ente], los criterios y lineamientos generales citados en el inciso a) del artículo 31 de esta ley y los lineamientos sobre política presupuestaria que emita el presidente de la República o el órgano competente”.
+6) Que el artículo 5, inciso b), de la Ley de Creación del Consejo Nacional de Vialidad (Conavi), Nº 7798, establece que es potestad del Consejo de Administración del Conavi, aprobar los presupuestos de la institución.
+7) Que el artículo 8, inciso a) de la Ley General de Control Interno, Nº 8292, establece el siguiente objetivo: a) Proteger y conservar el patrimonio público contra cualquier pérdida, despilfarro, uso indebido, irregularidad o acto ilegal.
+8) Que en la estructura organizativa del Conavi existe una Gerencia de Adquisición y Finanzas, responsable de la gestión presupuestaria; y una Dirección de Planificación Institucional, responsable de los planes y programas institucionales.
+9) Que es necesario establecer los mecanismos para la articulación entre el Plan Operativo Institucional y el presupuesto institucional.
+Aprueban el
+REGLAMENTO DE LA COMISIÓN DE FORMULACIÓN,
+SEGUIMIENTO Y EVALUACIÓN DEL PLAN-PRESUPUESTO
+INSTITUCIONAL DEL CONAVI
+Artículo 1º—Objetivo del reglamento. El presente reglamento tiene como objetivo normar los principales aspectos relacionados con la formulación, ejecución, seguimiento y evaluación del Plan Operativo Institucional, el presupuesto ordinario, las modificaciones presupuestarias y los presupuestos extraordinarios del Consejo Nacional de Vialidad (Conavi).

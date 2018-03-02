@@ -1,0 +1,1 @@
+Artículo 5º—Objetivo de la Comisión. El objetivo de la comisión será orientar la formulación, dar seguimiento y evaluar el POI, el presupuesto ordinario, los presupuestos extraordinarios y sus modificaciones.
