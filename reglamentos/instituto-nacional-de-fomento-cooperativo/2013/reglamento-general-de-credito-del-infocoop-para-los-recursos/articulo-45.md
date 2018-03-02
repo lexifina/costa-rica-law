@@ -1,1 +1,0 @@
-Artículo 45.—Desembolsos. Una vez cumplidas las condiciones previas de formalización y constituida o aportada la garantía correspondiente, de conformidad con el acuerdo de Junta Directiva y presentada la solicitud del desembolso firmada por el representante legal del organismo cooperativo, se procederá a realizar los desembolsos que correspondan.
