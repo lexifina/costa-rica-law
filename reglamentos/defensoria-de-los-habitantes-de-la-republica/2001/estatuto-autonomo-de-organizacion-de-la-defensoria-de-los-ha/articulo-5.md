@@ -2,37 +2,38 @@ TÍTULO II
 Estructura y funciones
 CAPÍTULO I
 De la estructura orgánica
-Artículo 5°—Organización de la Defensoría de los Habitantes.
-Para el cumplimiento de sus atribuciones, la Defensoría de los Habitantes de la República contará con los siguientes órganos:
+Artículo 5º—Organización de la Defensoría de los Habitantes. Para el cumplimiento de sus atribuciones, la Defensoría de los Habitantes de la República contará con los siguientes órganos:
 a) Despacho
-i) Dirección de despacho.
-ii) Departamento de prensa.
-iii) Unidad de asuntos internacionales.
-iv) el Mecanismo Nacional de Prevención de la Tortura.
-(Así adicionado el numeral anterior por acuerdo N° 00001434 del 16 de enero del 2009)
-v) Auditoría-Interna.
-(Corrida la numeración del numeral anterior por acuerdo N° 00001434 del 16 de enero del 2009, que adicionó un nuevo numeral iv)
-vi) Contraloría de servicios.
-(Corrida la numeración del numeral anterior por acuerdo N° 00001434 del 16 de enero del 2009, que adicionó un nuevo numeral iv)
-b) Consejo de directores.
-c) Dirección de admisibilidad.
-d) Direcciones de defensa.
-i) Dirección de la Defensoría de la mujer.
-ii) Dirección de protección especial.
-iii) Dirección de calidad de vida.
-iv) Dirección de control de gestión administrativa.
-v) Dirección de niñez y adolescencia.
-vi) Dirección de asuntos económicos.
-vii) Dirección de Asuntos Laborales.
-(Así adicionado el numeral anterior por acuerdo N° 00001429 del 9 de enero del 2009)
-e) Dirección de promoción y divulgación de derechos.
-f) Dirección de oficinas regionales.
-g) Dirección de asuntos jurídicos.
-h) Dirección administrativa.
-i) Departamento financiero-contablefi
-ii) Departamento de recursos humanos.
-iii) Departamento de proveeduría y servicios generales.
-iv) Departamento de informática.
-v) Departamento de archivo y correspondencia.
-i) Dirección de planificación institucional.
-(Así reformado por Artículo 1° del Acuerdo No 1042-DH de 29 de junio del 2005)
+i) Dirección de Despacho
+ii) Departamento de Prensa
+iii) Unidad de Asuntos Internacionales
+b) Consejo de Directores
+c) Dirección de Planificación Institucional
+d) Dirección de Asuntos Jurídicos
+e) Auditoría Interna
+f) Contraloría de Servicios
+g) Dirección Administrativa
+i) Departamento Financiero-Contable
+ii) Departamento de Recursos Humanos
+iii) Departamento de Proveeduría y Servicios Generales
+iv) Departamento de Informática
+v) Departamento de Archivo y Correspondencia
+vi) Unidad Médica y Salud Ocupacional (según Acuerdo N° 1675 del 25 de enero de 2012)
+h) Dirección de Admisibilidad
+i) Direcciones de Defensa
+i) Dirección de la Defensoría de la Mujer
+ii) Dirección de Protección Especial
+iii) Dirección de Calidad de Vida
+iv) Dirección de Control de Gestión Administrativa
+v) Dirección de Niñez y Adolescencia
+vi) Dirección de Asuntos Económicos
+vii) Dirección de Asuntos Laborales
+j) Dirección de Promoción y Divulgación de Derechos k) k) Dirección de Oficinas Regionales
+i) Oficina Regional Brunca
+ii) Oficina Regional Atlántica
+iii) Oficina Regional Huetar Norte
+iv) Oficina Regional Chorotega
+v) Oficina Regional Pacífico Central
+vi) Oficina Regional Sur Sur
+l) Mecanismo Nacional de Prevención de la Tortura (creado como órgano con desconcentración máxima de la Defensoría de los Habitantes mediante Ley N° 9204 del 12 de diciembre de 2013).
+(Así reformado mediante acuerdo N° 00002137 del 2 de marzo del 2018)
