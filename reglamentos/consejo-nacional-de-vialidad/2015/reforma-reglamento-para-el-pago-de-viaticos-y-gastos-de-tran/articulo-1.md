@@ -1,0 +1,4 @@
+CONSEJO NACIONAL DE VIALIDAD
+De conformidad con lo acordado por el Consejo de Administración en el artículo V de la sesión Nº 1245-15 de fecha 14 de setiembre de 2015, se modifica el artículo 15 del Reglamento para el Pago de Viáticos y Gastos de Transporte de Funcionarios del CONAVI, para que se lea de la siguiente manera:
+“Artículo 15.—Asignaciones máximas. Las sumas establecidas para gastos a que se refiere este Capítulo son asignaciones máximas establecidas mediante resolución por la Contraloría General de la República como “Reglamento de Gastos de Viaje y Transportes para Funcionarios Públicos”. Sin Embargo, el monto total acumulado durante un mes, que el CONAVI pagará por este concepto no deberá superar el monto total vigente para el Viático Vial, en más de un cincuenta por ciento. Salvo situaciones debidamente justificadas por las distintas Gerencias del CONAVI ante la Dirección Ejecutiva para su aprobación”.
+San José, 20 de febrero del 2018.
