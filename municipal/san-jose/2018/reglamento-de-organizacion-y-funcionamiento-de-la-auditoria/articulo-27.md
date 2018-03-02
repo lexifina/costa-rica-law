@@ -1,0 +1,2 @@
+Artículo 27.- Ética profesional. La organización de auditoría debe establecer y poner en práctica principios y valores que orienten la actuación diaria de su personal.
+Los participantes en el proceso de auditoría en el sector público deben observar las normas éticas que rigen su profesión, que se caracterizan por valores como integridad, probidad, objetividad, confidencialidad, imparcialidad, justicia, respecto, transparencia y excelencia, sin perjuicio de otros valores que la Municipalidad y la misma Auditoría Interna promuevan para guiar su actuación.

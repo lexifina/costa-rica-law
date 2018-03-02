@@ -1,0 +1,4 @@
+SECCIÓN SEPTIMA
+De las denuncias
+Artículo 51.- De las denuncias: Los estudios relacionados con denuncias que tramite la Auditoría Interna se enmarcan dentro del concepto de estudios especiales y estarán reguladas de conformidad con las directrices emitidas por el ente Contralor; no obstante previo al trámite de una denuncia en la Auditoría Interna, el Asesor Legal procederá a su valoración jurídica de conformidad como lo establecen las “Directrices para la tramitación de Denuncias a la Auditoría Interna”, de igual forma, se deberá cumplir con el procedimiento para el trámite de denuncias que mantienen vigencia la Auditoría Interna.
+Las denuncias de tipo penal serán estructuradas por el Asesor Legal, quien aporta la parte técnico-jurídica de conformidad con las directrices emitidas por el Ente Contralor y deberán contar con la revisión y firma del Auditor Interno para su presentación formal ante la instancia correspondiente.

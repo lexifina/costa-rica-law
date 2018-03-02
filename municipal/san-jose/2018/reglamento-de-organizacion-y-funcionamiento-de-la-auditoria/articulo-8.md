@@ -1,0 +1,1 @@
+Artículo 8.- Responsabilidad por el Sistema de Control Interno. Serán responsabilidades del jerarca y de los titulares subordinados establecer, mantener, perfeccionar y evaluar el sistema de control interno institucional. Asimismo, será responsabilidad de la administración activa realizar las acciones necesarias para garantizar su efectivo funcionamiento.

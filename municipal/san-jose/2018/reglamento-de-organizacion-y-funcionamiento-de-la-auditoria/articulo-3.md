@@ -1,0 +1,1 @@
+Artículo 3.- Del presente Reglamento. Para la formulación, modificaciones, aprobación y promulgación del presente Reglamento se estará a lo dispuesto en los Lineamientos Sobre los Requisitos de los Cargos de Auditor y Subauditor Internos.

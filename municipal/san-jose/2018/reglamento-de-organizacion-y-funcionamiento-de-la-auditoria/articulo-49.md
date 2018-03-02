@@ -1,0 +1,1 @@
+Artículo 49.- La comunicación de los servicios preventivos. Se hará conforme al procedimiento establecido por el Auditor Interno, quien definirá su contenido y la estructura de la misma, en razón de la naturaleza y su criterio profesional.

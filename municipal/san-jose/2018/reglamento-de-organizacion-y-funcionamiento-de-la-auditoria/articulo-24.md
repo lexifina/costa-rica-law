@@ -1,0 +1,5 @@
+Artículo 24.- Ausencia temporal del Auditor y del Sub auditor.
+Cuando se ausentare temporalmente el auditor interno, el jerarca recargará las funciones en el subauditor o, de no existir éste, podrá hacer el recargo en otro funcionario idóneo de la auditoría interna. Para efectos de proceder a ese recargo no se requerirá de la autorización de la Contraloría General, pero no deberá exceder el plazo de tres meses y dentro de ese periodo, en caso de requerirse, la Municipalidad de San José deberá nombrar al Auditor Interno interino, de conformidad con el trámite correspondiente, para lo cual sí requiere autorización de la Contraloría General.
+Cuando se ausentare temporalmente el Subauditor interno, el jerarca podrá recargar hasta por tres meses sus funciones en otro funcionario idóneo de la auditoría interna sin que para ello se requiera autorización del órgano contralor.
+En caso de requerirse nombrar en forma interina un Subauditor dentro de ese mismo plazo deberá nombrarlo previa autorización de la Contraloría General.
+Hechos los nombramientos interinos correspondientes, cesarán los recargos efectuados.

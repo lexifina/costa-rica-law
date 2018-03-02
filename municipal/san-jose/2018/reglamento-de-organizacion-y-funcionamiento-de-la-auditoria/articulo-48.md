@@ -1,0 +1,1 @@
+Artículo 48.- Aplicación de otras disposiciones. En la comunicación de resultados deberán aplicarse las Normas Generales de Auditoría para el Sector Público emitidas por Contraloría General de la República, así como cualquier otra normativa que se encuentre vigente.
