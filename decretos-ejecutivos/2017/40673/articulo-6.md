@@ -1,0 +1,1 @@
+Artículo 6.- Suspensión de la disponibilidad. Se le suspenderá al servidor el pago de la disponibilidad cuando por orden judicial el funcionario se encuentre inhabilitado de prestar servicio efectivo o cualquier otra circunstancia que implique la separación temporal del puesto, en razón de lo cual no podría ser llamado al cumplimiento expectante de la disponibilidad.

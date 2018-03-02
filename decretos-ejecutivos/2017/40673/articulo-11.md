@@ -1,0 +1,1 @@
+Artículo 11.- Rotación de los turnos. Corresponderá a la jefatura inmediata, asegurar a la Administración la disponibilidad efectiva en rol de servicio disponible, de al menos un oficial por turno de servicio.
