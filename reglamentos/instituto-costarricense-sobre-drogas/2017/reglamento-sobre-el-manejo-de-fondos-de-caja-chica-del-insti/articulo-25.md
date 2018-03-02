@@ -1,0 +1,1 @@
+Artículo 25°: Si el responsable del Fondo de Caja Chica recibe liquidaciones presentadas extemporáneamente y sin justificación, se hará acreedor a la sanción correspondiente, de acuerdo a los artículos 210 y 213 de la Ley General de la Administración Pública.

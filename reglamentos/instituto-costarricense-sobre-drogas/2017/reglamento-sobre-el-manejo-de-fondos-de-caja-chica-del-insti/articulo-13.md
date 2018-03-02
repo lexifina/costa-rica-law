@@ -1,0 +1,1 @@
+Artículo 13°: Bajo ninguna circunstancia, el responsable del Fondo de Caja Chica podrá cambiar con dineros de ésta, dineros o cheques personales o de terceras personas. Tampoco podrá mezclar dinero de la caja con dineros personales u otros.

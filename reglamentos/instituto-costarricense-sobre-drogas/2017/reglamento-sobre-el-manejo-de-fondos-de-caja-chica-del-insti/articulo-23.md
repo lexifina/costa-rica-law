@@ -1,0 +1,1 @@
+Artículo 23°: En caso de que el funcionario tenga una incapacidad imprevista, debe liquidar el día hábil en el que regrese a sus funciones. Se excluyen de la excepción anterior, las vacaciones, incapacidades por maternidad, permisos, amonestaciones y giras, debido a que son previsibles.

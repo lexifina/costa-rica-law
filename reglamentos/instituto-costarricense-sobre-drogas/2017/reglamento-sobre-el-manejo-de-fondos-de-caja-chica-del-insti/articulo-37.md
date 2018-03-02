@@ -1,0 +1,1 @@
+Artículo 37°: Las sanciones a las que se hace referencia en el presente Reglamento, se efectuarán de acuerdo a lo estipulado en el artículo 150 de la Ley 9 General de la Administración Pública y la Ley General de la Administración Financiera de la República y de Presupuestos Públicos.

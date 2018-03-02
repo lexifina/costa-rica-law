@@ -1,0 +1,1 @@
+Artículo 15°: Toda erogación del Fondo de Caja Chica debe poseer contenido presupuestario, antes de que se realice la compra, el servicio o se utilicen los viáticos. El responsable del Fondo de Caja Chica verificará que en el Adelanto de Caja Chica o Adelanto de Viáticos, esté consignado el contenido presupuestario.

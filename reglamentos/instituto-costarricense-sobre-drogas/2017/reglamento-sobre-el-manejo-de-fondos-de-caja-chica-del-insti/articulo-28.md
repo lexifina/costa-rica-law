@@ -1,0 +1,3 @@
+CAPITULO CUARTO
+Del Reintegro de Fondos:
+Artículo 28°: Todo reintegro al Fondo de Caja Chica deberá ser solicitado a la Tesorería Institucional por el responsable del Fondo de Caja Chica. En el oficio de detalle de reintegro de Caja Chica se deberán adjuntar los justificantes respectivos y debe estar respaldado por las facturas y documentos originales necesarios. Estos documentos deben ser de fechas posteriores al último reintegro efectuado. Los reintegros deberán ser tramitados por medio del formulario “Reintegro de Fondos”. Los reintegros se realizan de la cuenta de Caja Única a la Cuenta Bancaria asignada para tal efecto y mediante cheque al encargado del fondo de Caja Chica.

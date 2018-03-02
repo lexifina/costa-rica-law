@@ -1,0 +1,1 @@
+Artículo 31°: La Tesorería Institucional realizará el reintegro de acuerdo a los documentos presentados, en un término no mayor a dos días hábiles, salvo casos especiales. Posteriormente se trasladará la documentación al Área de la Contabilidad Institucional, para que realice los registros correspondientes.

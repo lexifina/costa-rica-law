@@ -1,0 +1,1 @@
+Artículo 24°: De no presentarse la liquidación en la forma y términos descritos en los artículos 20°, 21°, 22° y 23° de este Reglamento, la Institución no podrá reconocer los gastos efectuados y el importe tendrá que ser reintegrado en su totalidad. Además se procederá de conformidad con el artículo 37 de este Reglamento.
