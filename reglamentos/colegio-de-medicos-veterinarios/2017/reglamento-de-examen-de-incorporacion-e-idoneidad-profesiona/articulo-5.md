@@ -1,0 +1,2 @@
+Artículo 5. Del Seminario de Ética:
+Previo al examen de incorporación, los interesados deberán de asistir a un seminario de ética y buena práctica profesional que realizará el Colegio al menos dos veces al año, según lo establecido en el Procedimiento de Incorporación vigente. El Seminario de Ética tendrá un costo preestablecido por Junta Directiva que debe ser cancelado por el solicitante, por los medios que establezca la Junta Directiva.
