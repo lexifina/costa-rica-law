@@ -1,0 +1,2 @@
+Artículo 26.—Las Regiones deberán mantener actualizado el inventario de terrenos y servidumbres que se encuentren bajo su administración, debiendo presupuestar cada año, previa planificación, los montos necesarios para la adquisición de bienes que cuenten con todos los requisitos y estudios técnicos para su adquisición, conforme al presente reglamento.
+Para materializar el inventario las Regiones coordinarán con las oficinas cantonales y elaborarán un programa de adquisiciones anuales, considerando todos los terrenos con infraestructura u otras obras en operación por el AyA.

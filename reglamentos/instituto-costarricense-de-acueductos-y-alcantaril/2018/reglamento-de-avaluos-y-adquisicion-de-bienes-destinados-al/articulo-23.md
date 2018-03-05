@@ -1,0 +1,1 @@
+Artículo 23.—Los Notarios remitirán copia de la escritura al momento en que se otorgue y también al inscribirse, al Área Legal de Bienes Inmuebles para su custodia y registro, quienes a su vez, informará a las Regiones o a quien se encargará de la administración del sistema o acueducto; así como, a la Dirección Financiera para el respectivo registro del activo.

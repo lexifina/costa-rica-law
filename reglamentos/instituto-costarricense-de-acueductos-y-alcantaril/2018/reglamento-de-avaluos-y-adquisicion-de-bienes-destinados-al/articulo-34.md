@@ -1,0 +1,1 @@
+Artículo 34.—Se remitirá al Área Legal de Bienes Inmuebles, la documentación completa, conforme al artículo veintidós del presente reglamento, para su revisión y verificación. En caso de que falte algún requisito, se devolverá la solicitud sin más trámite, con indicación de los informes faltantes, a efecto de que sea completada la información técnica.

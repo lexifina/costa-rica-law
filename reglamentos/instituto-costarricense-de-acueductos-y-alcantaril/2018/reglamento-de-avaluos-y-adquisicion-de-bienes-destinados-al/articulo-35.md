@@ -1,0 +1,1 @@
+Artículo 35.—Corresponde al Área Legal de Bienes Inmuebles, someter a consideración y aprobación de Junta Directiva la respectiva declaratoria de interés público y necesidad social, y posterior, solicitud de designación de Notario para la confección e inscripción de la escritura de donación correspondiente.

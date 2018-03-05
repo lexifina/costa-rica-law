@@ -1,0 +1,1 @@
+Artículo 18.—Los peritos valorarán independientemente: el terreno, sus cultivos, construcciones, arrendamientos, derechos comerciales o patrimoniales, yacimientos en explotación y cualquiera otros bienes o daños, susceptibles de indemnización. Para cada titular de derechos o bienes se tramitará expediente separado.

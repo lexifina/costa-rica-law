@@ -1,0 +1,1 @@
+Artículo 22.—Emitido el acuerdo por la Junta Directiva, se remitirá al Área Legal de Bienes Inmuebles de la Dirección Jurídica, para que proceda con la publicación en los casos que corresponda, y coordinar con la Oficina de Avalúos Administrativos la notificación del acuerdo.

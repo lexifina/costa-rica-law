@@ -1,0 +1,1 @@
+Artículo 30.—Para efectos de pago de impuestos de bienes inmuebles, por ser la ASADA la poseedora y administradora de los inmuebles le corresponde dicho pago, aunque los inmuebles que se adquirieran vía expropiación deban inscribirse a nombre de AyA.

@@ -1,0 +1,1 @@
+Artículo 10.—Deberá el responsable del proyecto, antes de dar inicio a los estudios técnicos preliminares, realizar un inventario del estado actual del inmueble, para lo cual utilizará cualquier medio tecnológico idóneo que sirva como prueba, a efecto de verificar los daños se pudieren causar al inmueble, para su posible valoración.

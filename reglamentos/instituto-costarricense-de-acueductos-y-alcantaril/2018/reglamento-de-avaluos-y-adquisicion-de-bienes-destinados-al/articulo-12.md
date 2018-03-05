@@ -1,0 +1,1 @@
+Artículo 12.—En caso de que el inmueble se encuentre afectado por leyes, decretos u otras regulaciones especiales, deberá el funcionario encargado del proyecto, gestionar y aportar los permisos que correspondan.

@@ -1,0 +1,1 @@
+Artículo 17.—La Oficina de Avalúos Administrativos, deberá revisar la información técnica remitida junto con la expresa solicitud de avalúo, para la emisión del mismo conforme al manual de Avalúos. En caso de que falte algún informe técnico, lo comunicará al solicitante a la mayor brevedad.

@@ -1,0 +1,1 @@
+Artículo 28.—Las ASADAS deberán dirigir solicitud expresa a la Subgerencia de Sistemas Comunales, en la cual soliciten la adquisición del bien para lo cual dicha Subgerencia designará un ingeniero responsable y demás funcionarios, de coordinar los estudios técnicos para atender la solicitud.

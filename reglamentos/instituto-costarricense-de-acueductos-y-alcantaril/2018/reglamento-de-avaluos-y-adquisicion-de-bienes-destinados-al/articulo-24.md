@@ -1,0 +1,1 @@
+Artículo 24.—Las Direcciones Regionales se encuentran obligadas a informar a las Municipalidades sobre la adquisición de los inmuebles, para efectos de pago de impuestos; así mismo, deberán informar sobre la constitución de derechos de servidumbre a favor de AyA, para que sea tomado en consideración por parte de las Municipalidades.
