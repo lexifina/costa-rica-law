@@ -1,3 +1,3 @@
 CAPÍTULO II
 De la competencia de la administración pública
-Artículo 2º—Competencia de la Comisión Técnica de Exoneración de Insumos Agropecuarios. Cuando así proceda, le corresponderá a la Comisión Técnica de Exoneración de Insumos Agropecuarios, recomendar mediante acuerdo, ante el Ministerio de Hacienda, la exoneración del impuesto sobre la propiedad de Vehículos, a la maquinaria de uso agropecuario. La recomendación deberá ser fundamentada en aspectos técnicos y en el uso específico que se le dará a la maquinaria.
+Artículo 2º—(Derogado por el artículo 28 del Reglamento al artículo 5° de la Ley Reguladora de Exoneraciones Vigentes, Derogatorias y Excepciones y artículo 26 de Ley de Desarrollo, Promoción y Fomento de la Actividad Agropecuaria Orgánica, aprobado mediante decreto ejecutivo N° 41015 del 5 de marzo del 2018)
