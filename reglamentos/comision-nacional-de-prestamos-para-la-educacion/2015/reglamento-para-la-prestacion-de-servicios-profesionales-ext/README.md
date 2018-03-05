@@ -17,3 +17,4 @@ Reglamento para la prestación de servicios profesionales externos para la elabo
 | 2 | 2016-03-14 | Reglamento 10 (2016-03-14) |
 | 3 | 2016-03-14 | Reglamento 10 (2016-03-14) |
 | 4 | 2016-10-03 | Reglamento 35 (2016-10-03) |
+| 5 | 2018-03-05 | Reglamento 8 (2018-03-05) |

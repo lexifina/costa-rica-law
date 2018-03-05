@@ -12,4 +12,6 @@ Perito. Se define como perito al miembro del Colegio Federado de Ingenieros y de
 Peritaje. Es el informe donde el perito emite su opinión profesional sobre situaciones planteadas por los interesados o las partes. Este dictamen tiene como finalidad determinar el estado o condición de un bien.
 Avalúo. Es un dictamen emitido por un valuador con la finalidad de informar el valor de un bien para un determinado propósito referido a una moneda de curso legal y a una fecha determinada.
 Honorarios profesionales. Es la remuneración que percibe el profesional por el trabajo efectuado y la responsabilidad profesional que el acto o gestión implica al realizar un peritaje o avalúo de conformidad con el Arancel de Servicios de Peritaje y Avalúos, establecido por el Colegio Profesional respectivo.
+CONTRATISTA: Persona física o jurídica, que una vez presentada su oferta es seleccionada y formaliza los requisitos para brindar servicios de peritaje y avalúo conforme a lo establecido en el presente reglamento y al procedimiento de contratación administrativa en el cual participó.
+(Así adicionado la definición anterior en sesión N° 8-2018 del 5 de marzo de 2018)
 (Así reformado en sesión N° 35-10-2016 del 3 de octubre del 2016)
