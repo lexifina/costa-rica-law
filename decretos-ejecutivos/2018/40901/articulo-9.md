@@ -1,0 +1,1 @@
+Artículo 9º— Deróguese el Decreto Ejecutivo N° 39507-COMEX del 7 de enero de 2016; denominado “Ajuste de los umbrales establecidos en el Anexo 9.1.2. (b) (i) del Capítulo Nueve del Tratado de Libre Comercio República Dominicana – Centroamérica – Estados Unidos”, publicado en el Alcance N° 38 al Diario Oficial La Gaceta N° 48 del 9 de marzo de 2016.
