@@ -267,8 +267,12 @@ ANEXO 10-A COBERTURA
 ANEXO 10-A LISTA DE COLOMBIA
 SECCIÓN A: ENTIDADES DEL NIVEL CENTRAL DEL GOBIERNO
 El Capítulo se aplicará a las entidades del nivel central del gobierno listadas en la presente Sección, cuando el valor de la contratación que se ha estimado, de conformidad con el Artículo 10.1.4, sea igual o superior a los siguientes montos:
-(a) para la contratación de bienes y servicios: US$ 77,494; o
-(b) para la contratación de servicios de la construcción: US$ 7,777,000.
+(a) para las contrataciones de bienes y servicios:
+(i) US$80.317; (…)
+(Así reformado el punto (a) anterior por el artículo 5° del decreto ejecutivo N° 40901 del 15 de enero de 2018)
+(b) para contrataciones de servicios de construcción:
+(i) US$6.932.000;
+(Así reformado el punto (b) anterior por el artículo 5° del decreto ejecutivo N° 40901 del 15 de enero de 2018)
 Rama Ejecutiva
 1. Departamento Administrativo de Ciencia, Tecnología e Innovación
 2. Departamento Administrativo de la Función Pública
@@ -317,8 +321,12 @@ Notas
 7. Registraduría Nacional del Estado Civil. No están cubiertas por el Capítulo las contrataciones para la preparación y realización de elecciones.
 SECCIÓN B: ENTIDADES DEL NIVEL SUBCENTRAL DEL GOBIERNO
 El Capítulo se aplicará a las entidades del nivel subcentral del gobierno listadas en la presente Sección, cuando el valor de la contratación que se ha estimado, de conformidad con el Artículo 10.1.4, sea igual o superior a los siguientes montos:
-(a) para la contratación de bienes y servicios: US$ 552,000; o
-(b) para la contratación de servicios de la construcción: US$ 7,777,000.
+(a) para contrataciones de bienes y servicios:
+(i) US$492.000;
+(Así reformado el punto (a) anterior por el artículo 6° del decreto ejecutivo N° 40901 del 15 de enero de 2018)
+(b) para contrataciones de servicios de construcción:
+(i) US$6.932.000
+(Así reformado el punto (b) anterior por el artículo 6° del decreto ejecutivo N° 40901 del 15 de enero de 2018)
 Lista
 1. Todos los Departamentos
 2. Todos los Municipios
@@ -328,8 +336,12 @@ No están cubiertas por el Capítulo:
 (b) las contrataciones de bienes contenidas en la Sección 2 (Alimentos, Bebidas y Tabaco; Textil y Confección y Productos de Cuero) del CPC versión 1.0, dirigidas a programas de asistencia social.
 SECCIÓN C: OTRAS ENTIDADES CUBIERTAS
 El Capítulo se aplicará a las otras entidades listadas en la presente Sección, cuando el valor de la contratación que se ha estimado, de conformidad con el Artículo 10.1.4, sea igual o superior a los siguientes montos:
-(a) para la contratación de bienes y servicios: US$ 250,000; o
-(b) para la contratación de servicios de la construcción: US$ 7,777,000.
+(a) para la contratación de bienes y servicios:
+(ii) de entidades de la Lista B US$555.000
+(Así reformado el punto (a) anterior por el artículo 7° del decreto ejecutivo N° 40901 del 15 de enero de 2018)
+(b) para contrataciones de servicios de construcción de las Listas A y B:
+(ii) US$6.932.000;
+(Así reformado el punto (b) anterior por el artículo 7° del decreto ejecutivo N° 40901 del 15 de enero de 2018)
 2. A menos que se especifique lo contrario, el Capítulo se aplicará sólo a las entidades listadas en la presente Sección.
 Lista
 1. Agencia Logística de las Fuerzas Militares – Nota 1
