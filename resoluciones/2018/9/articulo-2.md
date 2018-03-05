@@ -1,0 +1,1 @@
+Artículo 2°—Le corresponde a la Dirección de Fiscalización coordinar y dar seguimiento a los procesos penales que se originen en cualquier área de la Dirección General de Tributación, ello dentro del marco de sus competencias y recursos asignados.
