@@ -1,0 +1,3 @@
+MUNICIPALIDAD DEL CANTON CENTRAL DE LIMON
+COMUNICA
+La Municipalidad de Limón comunica que mediante oficio AML-317-2018, de fecha 16 de febrero del 2018, emitido por la Alcaldía Municipal, esta Municipalidad se adhiere a la publicación del Manual de Valores Base Unitarios por Tipología Constructiva, publicado por el Órgano de Normalización Técnica en la Dirección General de Tributación del Ministerio de Hacienda, en el alcance Digital de La Gaceta N° 288 del día miércoles 29 de noviembre del 2017, de conformidad con la Ley N° 7509 y sus reformas, Ley de Impuesto sobre Bienes Inmuebles. La aplicación de dicho manual en la Municipalidad de Limón empezará a regir a partir de su publicación.
