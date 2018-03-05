@@ -1,0 +1,1 @@
+Artículo 3º—Ente Rector: El Ministerio de Economía, Industria y Comercio, por medio de la Dirección de Mejora Regulatoria, es el ente rector en materia de la Política de Mejora Regulatoria y el encargado de velar por que las instituciones del Estado cumplan a cabalidad con la ejecución de las herramientas que conforman la política.

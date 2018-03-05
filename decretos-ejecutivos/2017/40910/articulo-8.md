@@ -1,0 +1,1 @@
+Artículo 8º— Casos de Emergencia Nacional: En casos de emergencia nacional los Ministerios y las Instituciones Descentralizadas del Estado podrán emitir nuevas regulaciones que establezcan nuevos trámites, requisitos y procedimientos de conformidad con lo que establece la Ley Nacional de Emergencias.

@@ -1,0 +1,2 @@
+Artículo 7º— Informes ante el Consejo de Gobierno: El Ministerio de Economía, Industria y Comercio, rendirá cada tres meses un informe ante el Consejo de Gobierno de la República, sobre los avances y cumplimiento de las instituciones públicas en materia de Política Regulatoria.
+Asimismo, deberá presentarse ante los Consejos Presidenciales cuando estos así lo requieran a fin de exponer avances y cumplimiento en dicha materia.

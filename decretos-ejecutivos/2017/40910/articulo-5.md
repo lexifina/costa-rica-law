@@ -1,0 +1,2 @@
+Artículo 5º—Oficialización de Sistemas Digitales: Oficialícese para efectos de aplicación obligatoria, los Sistemas Digitales de Simplificación de Trámites y Mejora Regulatoria denominados “Trámites Costa Rica” con la dirección electrónica: http://www.tramitescr.meic.go.cr y “Control Previo” con la dirección electrónica: http://controlprevio.meic.go.cr.
+Le corresponde al Ministerio de Economía, Industria y Comercio a través de la Dirección de Mejora Regulatoria velar por el cumplimiento de dicha disposición.
