@@ -14,3 +14,4 @@ Autorización de importación de cuota de arroz en granza por desabastecimiento 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-12-15 | la propia norma |
+| 2 | 2018-03-05 | Decreto Ejecutivo 41067 (2018-03-05) |
