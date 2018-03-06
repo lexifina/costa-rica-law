@@ -54,6 +54,7 @@ En el evento de haberse trasladado al régimen de invalidez vejez y muerte que a
 -Certificación de cuenta individual emitida por la CCSS, donde se abarque todo el tiempo laborado con la institución con la cual labora y solicitó el traslado (se emite JUPEMA).
 -Presentar copia de la carta del traslado de régimen en el caso de existencia de la misma. (patrono, ministerio de hacienda o departamento Financiero Contable de la Junta (JUPEMA)).
 -Carta de reingreso( copia de la carta)
-Cuando se presente una solicitud de pensión ordinaria por edad bajo la ley 2248 inciso ch, se deberá llenar declaración jurada indicando:
+Para toda Solicitud de Pensión Ordinaria por Edad Cuando se presente una solicitud de pensión ordinaria por edad (bajo cualquier ley), se deberá llenar declaración jurada indicando:
+(Así reformado el párrafo anterior y publicado en La Gaceta N° 53 del 21 de marzo de 2018)
 1. Desde cuando no labora para educación nacional y si tiene nombramiento a nivel público o privado( este documento se confecciona en JUPEMA)
 En el caso de que la declaración no sea confeccionada por JUPEMA debe venir autenticada por notario (guía JUPEMA).
