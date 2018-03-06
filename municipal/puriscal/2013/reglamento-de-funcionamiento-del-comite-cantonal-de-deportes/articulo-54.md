@@ -1,1 +1,0 @@
-Artículo 54.—La Junta Administrativa nombrará un Administrador para las instalaciones deportivas municipales, dicho nombramiento será ratificado por el Comité Cantonal de Deportes y Recreación. El Administrador de las instalaciones deportivas deberán asistir a las reuniones de la Junta Administrativa, brindarán informes y su labor estará subordinada a la misma.

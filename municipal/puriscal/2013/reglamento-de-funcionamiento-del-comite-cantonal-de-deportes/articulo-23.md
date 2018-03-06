@@ -1,1 +1,0 @@
-Artículo 23.—En caso de que una institución o persona presente la apelación y esta no sea acogida por el Comité, ya sea por extemporánea o porque las razones aducidas no sean lo suficientemente satisfactorias, este deberá dar por agotada la vía administrativa.

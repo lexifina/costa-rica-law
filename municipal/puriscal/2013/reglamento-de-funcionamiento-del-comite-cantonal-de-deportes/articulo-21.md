@@ -1,1 +1,0 @@
-Artículo 21.—Una vez en firme el acto de la destitución, el Comité solicitará a la organización a la que representaba el miembro destituido la terna correspondiente para que el Concejo de la Municipalidad de Puriscal proceda a realizar la correspondiente reposición.

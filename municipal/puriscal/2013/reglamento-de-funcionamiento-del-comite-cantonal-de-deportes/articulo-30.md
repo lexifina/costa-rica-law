@@ -1,1 +1,0 @@
-Artículo 30.—El Comité Cantonal de Deportes y Recreación llevará registros contables. Los libros contables que debe llevar el Comité deben sujetarse a lo que disponga la Auditoría Interna de la Municipalidad de Puriscal.

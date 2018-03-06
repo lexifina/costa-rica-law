@@ -1,1 +1,0 @@
-Artículo 52.—La Junta Administrativa tendrá libro de actas y tesorería debidamente autorizada por el Comité Cantonal y en él deberán constar sus acuerdos y solicitudes de pago, ingresos y egresos de los bienes municipales que administran.

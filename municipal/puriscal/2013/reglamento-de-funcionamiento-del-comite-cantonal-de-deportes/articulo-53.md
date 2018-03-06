@@ -1,1 +1,0 @@
-Artículo 53.—La Junta Administrativa dictará los acuerdos concernientes sobre los bienes municipales que administran así como sobre erogaciones y pagos derivados de su labor. Dichos acuerdos serán enviados al Comité Cantonal de Deportes y Recreación para su rechazo o ratificación. Una vez ratificados mediante acuerdo del Comité serán ejecutados por el encargado de los mismos.

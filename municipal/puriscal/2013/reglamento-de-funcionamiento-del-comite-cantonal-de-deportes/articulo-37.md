@@ -1,1 +1,0 @@
-Artículo 37.—La asamblea general para el nombramiento de los Comités Distritales estará conformada por dos representantes de cada una de las organizaciones deportivas, recreativas y de desarrollo comunal existentes en el distrito.

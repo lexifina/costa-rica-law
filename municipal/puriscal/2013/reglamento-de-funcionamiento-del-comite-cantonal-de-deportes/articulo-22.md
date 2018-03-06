@@ -1,1 +1,0 @@
-Artículo 22.—La decisión de separación tendrá recurso de revocatoria y de apelación ante el ente superior inmediato en forma escrita y especificando las razones que tiene para oponerse a tal decisión. Para ello contará con cinco días hábiles después de haber recibido la notificación. Transcurrido ese tiempo y si no se recibe ninguna oposición el acto quedará en firme.
