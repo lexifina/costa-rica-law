@@ -1,0 +1,2 @@
+Artículo 18.- De la juramentación. Una vez aprobada la incorporación, se llevará a cabo un acto en el que el nuevo colegiado deberá prestar juramento ante la Junta Directiva, de cumplir con la Constitución Política, las leyes del país, el Código de Ética Profesional y los reglamentos pertinentes.
+En el mismo acto programado, se le entregará un diploma que lo acredite como miembro del Colegio de Terapeutas de Costa Rica y un carné en el que conste su número de inscripción.

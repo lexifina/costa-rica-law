@@ -1,0 +1,2 @@
+Artículo 55.- Una vez finalizado el proceso disciplinario sin existir responsabilidad por parte del agremiado y estando firme la resolución tomada, la Junta Directiva levantará la medida de suspensión referida en el artículo anterior y procederá a resolver lo que en derecho corresponda.
+En caso de faltas comprobadas, se tomará como prioridad la aplicación de la sanción disciplinaria. Las solicitudes de congelamiento y retiro voluntario, en caso de sanción disciplinaria, serán rechazadas de plano.

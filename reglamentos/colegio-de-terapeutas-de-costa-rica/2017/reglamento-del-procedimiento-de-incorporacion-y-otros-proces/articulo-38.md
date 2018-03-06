@@ -1,0 +1,1 @@
+Artículo 38.- En caso de que se presenten circunstancias diversas a las estipuladas en el presente Reglamento, por las cuales se requiera la reposición de cualquiera de las credenciales, corresponderá a la Junta Directiva del CTCR establecer los mecanismos por seguir y en caso necesario, promover la revisión y actualización de este documento.

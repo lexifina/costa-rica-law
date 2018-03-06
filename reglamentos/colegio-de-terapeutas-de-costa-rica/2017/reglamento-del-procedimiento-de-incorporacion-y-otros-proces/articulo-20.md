@@ -1,0 +1,3 @@
+Artículo 20.- Nomenclatura de uso social de Doctor o Doctora. Los colegiados incorporados con el grado académico mínimo de Licenciatura pueden solicitar en cualquier momento, que se autorice el uso y se les otorgue el certificado o diploma correspondiente a la nomenclatura de uso social de Doctor o Doctora.
+Dicha nomenclatura no modifica bajo ninguna circunstancia el grado académico que ostenta el colegiado. En el certificado que se le hará entrega por el uso social de Doctor o Doctora, se anotará el nombre del colegiado, número de identificación, el grado académico y la terapia correspondiente.
+La Junta Directiva del CTCR definirá el monto que corresponda cancelar para la obtención del título de uso social antes indicado.

@@ -1,0 +1,1 @@
+Artículo 47.- La desafiliación y sus efectos rigen a partir del día posterior a que el colegiado cumpla con la firma del documento de aprobación y entrega de las credenciales correspondientes. Mientras no se entreguen los documentos, la desafiliación no surte efectos y todas las obligaciones del colegiado se mantienen.

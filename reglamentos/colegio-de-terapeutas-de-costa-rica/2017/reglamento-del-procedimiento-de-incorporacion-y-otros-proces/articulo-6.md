@@ -1,0 +1,4 @@
+Artículo 6.- En los casos de extravío, pérdida, destrucción o recepción errónea de solicitudes incompletas, el órgano competente atenderá a las siguientes reglas:
+a) Ordenará al solicitante la reposición del requisito o documento original que falte, en un plazo razonable según el tipo de requisito y la dificultad de su reposición.
+b) El solicitante deberá guardar copias simples de documentos extranjeros o requisitos de difícil acceso o repetición, para presentarlas en caso de ordenarse su reposición, debido a la pérdida o destrucción de documentos que previamente hubieren sido recibidos. En este último supuesto, se dejará constancia de que se repone mediante copias simples por dificultad en su reposición.
+c) Los plazos del presente reglamento no corren hasta que se presente el nuevo documento o bien las copias señaladas.

@@ -1,0 +1,2 @@
+Artículo 48.- Nueva incorporación. A quienes se les apruebe la desafiliación y, posteriormente, deseen incorporarse de nuevo al Colegio de Terapeutas de Costa Rica, deberán realizar el trámite de incorporación de nuevo ingreso completo, así como cancelar el monto que para tal efecto disponga la Junta Directiva.
+No deberá realizar el curso de Ética nuevamente, siempre y cuando lo haya realizado con anterioridad y el agremiado posea los documentos idóneos que lo comprueben.

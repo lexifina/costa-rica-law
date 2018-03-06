@@ -1,0 +1,2 @@
+Artículo 11.-Profesionales exentos de realizar el curso de Ética. Están exentos de realizar el Curso de Ética aquellos profesionales terapeutas incorporados debidamente en el Colegio de Médicos y Cirujanos de Costa Rica, de previo a la entrada en funcionamiento del Colegio de Terapeutas de Costa Rica.
+Para convalidar el curso de Ética, estos profesionales deben demostrar con la documentación original respectiva, la realización del curso equivalente en el Colegio de Médicos y Cirujanos de Costa Rica.

@@ -1,0 +1,2 @@
+Artículo 15.- Comprobante de aprobación del curso de Ética Profesional. El Tribunal de Ética entregará un certificado de conclusión y aprobación del curso de Ética Profesional a quienes lo culminen con éxito y de forma completa. Dicho certificado será firmado y sellado por los miembros que el mismo Tribunal de Ética establezca para tales efectos.
+El área respectiva llevará un registro de quiénes aprobaron, abandonaron o reprobaron el curso de Ética. Junto con la solicitud de incorporación, deberá presentarse dicho certificado para que se coteje con el registro de aprobación.

@@ -1,0 +1,1 @@
+Artículo 58.- Se deroga en su totalidad el Reglamento de Incorporación 2013 del17/4/2013 aprobado por la Junta Directiva y publicado en el Diario Oficial La Gaceta nro. 84 del viernes 3 de mayo de 2013.

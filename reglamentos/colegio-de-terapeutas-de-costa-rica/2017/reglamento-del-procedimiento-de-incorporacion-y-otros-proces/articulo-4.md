@@ -1,0 +1,2 @@
+Artículo 4.- Los documentos emitidos por autoridad o entidad extranjera deberán venir debidamente legalizados y apostillados. Asimismo, cuando se trate de documentos emitidos en idioma extranjero, deberá presentarse la respectiva traducción oficial.
+En relación con documentos provenientes de países no adscritos al Convenio de la Apostilla, deberán acompañarse de una declaración jurada protocolizada ante notario público, en la que se señale dicha condición.

@@ -1,0 +1,1 @@
+Artículo 17.- Del acuerdo y el acto de incorporación. Una vez que se haya cumplido con todos los requisitos, la Junta Directiva resolverá, mediante el acuerdo respectivo, lo referente a la incorporación del solicitante. Lo resuelto será notificado al solicitante, en los medios señalados por este en el formulario de solicitud.
