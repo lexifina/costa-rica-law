@@ -14,3 +14,4 @@ Régimen transitorio de reparto. Pensión por sucesión hijos estudiantes mayore
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-09-02 | la propia norma |
+| 2 | 2018-03-06 | Acuerdo 0 (2018-03-06) |

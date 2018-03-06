@@ -21,4 +21,5 @@ Declaración jurada: debe de ser autenticada por notario únicamente (no protoco
 1. Indicando que “… desconoce de otras personas con igual o mejor derecho para el disfrute de la pensión…” de existir otras personas, debe de incluirse en la declaración; indicación textual; (guía JUPEMA)
 En las declaraciones juradas es indispensable indicar el nombre y cédula del causante. Asimismo de conformidad con el artículo 10 del código de trabajo se pueden eximir de la presentación de timbres indicándolo expresamente.
 -Certificación de estudios (universitaria, parauniversitaria, técnicos o religiosos), extendida por la institución correspondiente, matrícula reciente, materias que cursa y últimas calificaciones con un rendimiento académico aceptable (este documento debe actualizarse cada período lectivo). en cada hoja debe constar el nombre y cedula del solicitante, así como los sellos y firmas autorizadas.
-- Certificación de SICERE para verificar cotizaciones con algún patrono (edificio central CCSS).
+- Certificación de SICERE para verificar cotizaciones con algún patrono.
+(Así reformado el párrafo anterior y publicado en La Gaceta N° 53 del 21 de marzo de 2018)
