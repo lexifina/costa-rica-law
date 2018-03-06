@@ -1,0 +1,1 @@
+TERCERO: Una vez publicado el extracto de la Resolución cualquier otro interesado podrá utilizar la equivalencia reconocida para los efectos de la Declaración de Conformidad indicada en el apartado 8 del procedimiento establecido en el Decreto Ejecutivo 38849-MEIC, sin que requiera autorización de ninguna de las partes que dio origen a la equivalencia.

@@ -1,0 +1,1 @@
+CUARTO: La equivalencia tendrá una vigencia indefinida; no obstante las modificaciones a las disposiciones técnicas del documento normativo, las derogaciones así como las anulaciones invalidan la misma. En dichos casos, será obligación del interesado gestionar un nuevo proceso de equivalencia.
