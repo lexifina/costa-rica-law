@@ -1,0 +1,1 @@
+Artículo 2º—Este Reglamento rige para todo el cantón de Talamanca, con las excepciones que los convenios internacionales y leyes conexas nos obliga. Ningunas de las obras menores serán ejecutadas sin cumplir los requerimientos que se detallan en la ley y el presente reglamento.

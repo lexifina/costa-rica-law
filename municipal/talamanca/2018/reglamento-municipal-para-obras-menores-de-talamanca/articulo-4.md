@@ -1,0 +1,1 @@
+Artículo 4º—Se considerará obras menores aquellas reparaciones, remodelaciones, ampliaciones, y otras obras, que no excedan el equivalente a diez salarios bases, calculado conforme a lo dispuesto en el artículo 2 de la Ley 7337 de 5 de mayo de 1993.-

@@ -1,0 +1,1 @@
+Artículo 8º—La resolución de autorización de la obra por parte del Departamento Tributario deberá indicar la ubicación exacta de la misma, datos del responsable, título que acredite la propiedad o posesión del inmueble, descripción de las obras a realizar, medidas y deberá indicar que efectivamente se trata de una obra menor y no violenta lo establecido en el presente reglamento.

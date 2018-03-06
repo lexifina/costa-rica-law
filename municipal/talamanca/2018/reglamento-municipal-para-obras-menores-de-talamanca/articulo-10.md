@@ -1,0 +1,1 @@
+Artículo 10.—Si dentro del plazo de doce meses, contados a partir del otorgamiento de un permiso de obra menor, se presenta una nueva solicitud de obra menor sobre un mismo inmueble se procederá por parte del Departamento Tributario a realizar una inspección y determinar si es procedente el mismo.

@@ -1,0 +1,1 @@
+Artículo 6º—Para la solicitud de la licencia de construcción, el solicitante de obra menor se deberá presentar a la Municipalidad un croquis o dibujo con una descripción detallada de las obras a realizar, así como de acompañar los documentos legales de la propiedad, sea escritura pública, carta de venta protocolizada, autenticada o firmada por las partes.

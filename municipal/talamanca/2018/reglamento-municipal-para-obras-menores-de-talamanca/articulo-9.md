@@ -1,0 +1,1 @@
+Artículo 9º—Cualquier obra menor que se realice, deberá considerar la protección de la propiedad, la salud pública, la vida humana y animal que lo utilizarán, el respeto absoluto de la sostenibilidad ambiental y todas las regulaciones que considere el Municipio, en función del desarrollo integral que garantice el derecho a un ambiente sano y equilibrado, individual y colectivo.

@@ -1,0 +1,1 @@
+Artículo 7º—Las Licencias se otorgarán una vez realizada la inspección en el sitio de las obras, por parte del funcionario o funcionarios del Departamento de Rentas competentes en un plazo no mayor a ocho días hábiles, y se procederá a emitir la resolución respectiva por parte de la Jefatura de dicho departamento autorizando la realización de las obras.
