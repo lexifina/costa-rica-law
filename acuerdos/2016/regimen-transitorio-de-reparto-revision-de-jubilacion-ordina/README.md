@@ -15,3 +15,4 @@ Régimen transitorio de reparto. revisión de jubilación ordinaria o pensión. 
 | --- | --- | --- |
 | 1 | 2016-09-02 | la propia norma |
 | 2 | 2018-01-23 | Acuerdo 0 (2018-01-23) |
+| 3 | 2018-03-06 | Acuerdo 0 (2018-03-06) |

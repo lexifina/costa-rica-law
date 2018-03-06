@@ -19,6 +19,8 @@ Información general
 En caso de disfrutar pensión con otro régimen, o se encuentre en proceso de trámite, presentar:
 • Constancia de los periodos y patronos considerados para la misma (JUPEMA).
 • Detalle de los salarios considerados para el cálculo del monto de pensión (JUPEMA).
+-En el caso de reconocimiento de Resoluciones Administrativas emitidas por el Ministerio de Educación Pública, se debe aportar copia de dicha resolución.
+(Así adicionado el párrafo anterior y publicado en La Gaceta N° 53 del 21 de marzo de 2018)
 Si laboró para ministerio de educación pública:
 -Actualizar tiempo de servicio efectivo extendida por la sección de plataforma de servicios o la sección de pensiones del Departamento de Gestión de Trámites y Servicios, del MEP (únicamente para las leyes 2248 y 7268.)
 - Última acción de personal (p21)(JUPEMA)
