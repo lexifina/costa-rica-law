@@ -1,0 +1,2 @@
+Artículo 3. Prohibiciones.
+Están inhibidas a participar para conformar parte del registro de precalificados o para participar en una compra específica, aunque estén registrados como oferentes en el sistema SICOP, aquellas personas físicas o jurídicas comprendidas dentro de los supuestos regulados por los artículos 22 y 22 bis de la Ley de Contratación administrativa y los artículos 19 y 20 del Reglamento de la Ley de Contratación Administrativa.

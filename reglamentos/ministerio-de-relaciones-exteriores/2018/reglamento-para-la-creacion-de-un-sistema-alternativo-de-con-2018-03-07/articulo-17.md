@@ -1,0 +1,3 @@
+Artículo 17. Adjudicación.
+De conformidad con los criterios y condiciones indicadas, la Proveeduría Institucional, procederá con la adjudicación de las contrataciones de compra de boletos en las cuales se hayan recibido ofertas base, y se haya seleccionado la ruta más directa, económica y segura.
+En los casos, en los que se adjudiquen ofertas opcionales, deberá mediar una justificación por parte de la Dependencia Solicitante utilizando el formulario de recomendación de adjudicación en el Sistema SICOP, en el que se deberá acreditar que la oferta seleccionada permite alcanzar los objetivos del viaje de forma satisfactoria aun cuando no cumplieron estrictamente con los requerimientos.
