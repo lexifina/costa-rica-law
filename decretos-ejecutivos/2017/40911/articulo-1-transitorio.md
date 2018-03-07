@@ -1,0 +1,1 @@
+Transitorio I- La Dirección General de Aduanas, en un plazo no mayor a los seis meses contados a partir de la fecha de publicación del presente Decreto, deberá implementar lo aquí dispuesto en su respectivo si tema informático.
