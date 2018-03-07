@@ -14,3 +14,4 @@ Consulta sobre la asignación del monto de la contribución estatal a los partid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-02 | la propia norma |
+| 2 | 2018-03-07 | Resolución 1456 (2018-03-07) |
