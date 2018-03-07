@@ -37,3 +37,4 @@ Políticas Generales para la Administración de Pasivos
 | 22 | 2016-02-24 | Reglamento 5712 (2016-02-24) |
 | 23 | 2017-02-01 | Reglamento 5755 (2017-02-01) |
 | 24 | 2018-02-23 | Reglamento 5816 (2018-02-23) |
+| 25 | 2018-03-07 | Reglamento 5818 (2018-03-07) |
