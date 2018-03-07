@@ -1,3 +1,5 @@
 CAPÍTULO VI
-Disposiciones finales
-Artículo 29.—Disposiciones finales. En lo no dispuesto en el presente Reglamento se aplicará lo señalado por la Ley Orgánica del Instituto Nacional de Aprendizaje, Ley N° 6868 del 06 de mayo de 1983 y la Ley del Régimen de Zonas Francas, Ley N° 7210 del 23 de noviembre de 1990.
+Sobre la cooperación y colaboración interinstitucional
+(Así adicionado el capítulo anterior por el artículo 1° del decreto ejecutivo N° 41061 del 7 de marzo de 2018)
+Artículo 29.—Cooperación. Las empresas beneficiarías del Régimen de Zonas Francas y las instituciones participantes del Comité de Coordinación Interinstitucional, dentro del marco legal respectivo y de acuerdo con sus competencias, podrán gestionar los respectivos acuerdos o convenios de apoyo y cooperación entre sí, acorde con las áreas prioritarias de capacitación, entrenamiento y formación, que para tales efectos se hayan determinado, para cumplir efectivamente con los fines del presente Reglamento. Asimismo, podrán suscribir tales acuerdos o convenios con otras entidades públicas o privadas, previa autorización del Comité.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 41061 del 7 de marzo de 2018)

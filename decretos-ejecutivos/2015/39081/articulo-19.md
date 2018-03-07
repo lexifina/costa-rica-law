@@ -1,1 +1,1 @@
-Artículo 19.—Colaboración. Las dependencias del sector público y del sector privado dentro del marco legal respectivo, podrán contribuir con recursos económicos en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, para el diseño y ejecución de programas de capacitación, entrenamiento y formación del personal requerido por las empresas beneficiarias del Régimen de Zonas Francas.
+Artículo 19.— (Derogado por el artículo 3° del decreto ejecutivo N° 41061 del 7 de marzo de 2018)

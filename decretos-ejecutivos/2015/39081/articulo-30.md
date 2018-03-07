@@ -1,2 +1,2 @@
-Artículo 30.—Vigencia. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
-Dado en la Presidencia de la República.—San José, a los dieciséis días del mes de junio del año dos mil quince.
+Artículo 30.—Colaboración. Las empresas beneficiarias del Régimen de Zonas Francas y las instituciones participantes del Comité de Coordinación Interinstitucional, así como cualquier otra entidad del sector público o privado, dentro del marco legal respectivo, podrán contribuir con cualquier tipo de recurso económico, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, para el diseño y ejecución de programas de capacitación, entrenamiento y formación del personal requerido por las empresas beneficiarias del Régimen de Zonas Francas. Tales aportes podrán canalizarlos a la cuenta del Fideicomiso COMEX-Bancrédito 2016.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 41061 del 7 de marzo de 2018)
