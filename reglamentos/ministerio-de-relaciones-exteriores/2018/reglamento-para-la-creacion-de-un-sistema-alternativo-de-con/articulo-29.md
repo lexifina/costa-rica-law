@@ -1,0 +1,2 @@
+Artículo 29: Quejas y reclamos:
+MREC se reserva el derecho de enviar, vía correo electrónico al representante legal de la empresa o ejecutivo (a) de cuentas, las quejas que a lo interno del Ministerio se canalicen con los solicitantes, usuarios o funcionarios, con respecto a las contrataciones que ellos tramiten o realicen. Para lo cual, el contratista deberá informar a la Administración las gestiones respectivas que realizará para atender los reclamos o quejas, dentro de un periodo no mayor a 24 horas.

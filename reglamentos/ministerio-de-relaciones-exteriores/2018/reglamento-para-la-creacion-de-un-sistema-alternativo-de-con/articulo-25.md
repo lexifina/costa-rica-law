@@ -1,0 +1,4 @@
+Artículo 25: Condiciones de pago:
+El Ministerio de Relaciones Exteriores y Culto, procederá con el pago dentro del plazo establecido para ello en la normativa vigente, luego de la presentación de las facturas sin errores; una vez que se verifique que la ejecución contractual fue realizada dentro de los términos y condiciones previstos.
+En caso de que las facturas no cumplan con los requisitos citados, se procederá con la notificación para su retiro y sustitución, debiendo presentarse nuevamente el trámite dentro de los 3 días hábiles siguientes contados a partir de la notificación.
+Una vez subsanados o confirmados los requisitos de la factura, por parte de la Proveeduría Institucional, se procederá a trasladar la misma a la Dirección Financiera para iniciar los trámites internos de gestión de pagos respectivo.

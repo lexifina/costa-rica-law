@@ -1,0 +1,6 @@
+Artículo 16. Acto final
+La decisión final será emitida dentro de las 48 horas siguientes al proceso de apertura, según los plazos de vigencia de las ofertas o bien de la inmediatez requerida.
+Las contrataciones que se adjudiquen fuera de este plazo deberán estar debidamente motivadas por la unidad en la cual se generó el retraso.
+No procederá recurso de revocatoria en contra de los actos que determinen la decisión final de adjudicación, considerando que los criterios de selección han sido delimitados en los niveles previos del proceso y en atención al principio de eficiencia, siendo que se elegirá la oferta que cumpla con lo solicitado y sea la más económica.
+Con la emisión del acto final, el cual será comunicado a través del SICOP, se entenderá la contratación válida y eficaz, por lo que a partir de este momento puede procederse con la ejecución contractual en forma inmediata.
+En todo caso, la Administración dará seguimiento a la contratación y tomará todas las medidas posibles a fin de garantizar la correcta ejecución de la contratación, siendo que en caso contrario se adoptarán de inmediato todas las medidas o acciones legales que correspondan para proceder con el reclamo de alguna indemnización.

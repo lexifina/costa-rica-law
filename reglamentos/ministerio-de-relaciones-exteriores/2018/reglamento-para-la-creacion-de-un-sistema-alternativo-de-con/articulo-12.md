@@ -1,0 +1,2 @@
+Artículo 12. De la previsión presupuestaria
+Al momento en que la Proveeduría Institucional, cargue la solicitud de compra (remitida mediante el formulario para tales efectos) afectará directamente el presupuesto a través de la interfaz entre SICOP y SIGAF, y será autorizado por la Dirección Financiera, siendo que el compromiso final de recursos se formalizará al emitir el Acto de Adjudicación y la Orden de Compra.

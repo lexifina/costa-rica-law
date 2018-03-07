@@ -1,0 +1,2 @@
+Artículo 28. Control de documentos:
+Los formularios, procedimientos, instructivos y otros documentos emitidos a efectos de facilitar el proceso de ejecución de la presente contratación, serán comunicados por la Proveeduría Institucional una vez que se encuentren debidamente oficializados; en ese sentido, todo cambio, actualización o sustitución de dichos documentos, será tramitado de forma exclusiva a través de la Proveeduría Institucional; quien dispondrá un espacio en la intranet para los documentos, versiones oficiales y cambios generados en los documentos.
