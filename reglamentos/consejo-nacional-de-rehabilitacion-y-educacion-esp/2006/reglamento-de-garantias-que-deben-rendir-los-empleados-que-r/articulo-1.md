@@ -1,5 +1,6 @@
-CONSEJO NACIONAL DE REHABILITACIÓN
-Y EDUCACIÓN ESPECIAL
+(Derogado)
+CONSEJO NACIONAL DE REHABILITACIÓN Y EDUCACIÓN ESPECIAL
+(Esta norma fue derogada por el artículo 9° del Reglamento de garantías que deben rendir los funcionarios y funcionarias que recauden, custodien o administren fondos y valores públicos, aprobado en sesión N° 06 del 8 de marzo de 2018)
 REGLAMENTO DE GARANTÍAS QUE DEBEN RENDIR
 LOS EMPLEADOS QUE RECAUDEN, CUSTODIEN
 O ADMINISTREN FONDOS Y VALORES PÚBLICOS

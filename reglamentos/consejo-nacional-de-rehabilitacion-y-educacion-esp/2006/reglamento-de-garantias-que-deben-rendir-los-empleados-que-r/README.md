@@ -14,3 +14,4 @@ Reglamento de Garantías que deben Rendir los Empleados que Recauden, Custodien 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-05 | la propia norma |
+| 2 | 2018-03-08 | Reglamento 6 (2018-03-08) |
