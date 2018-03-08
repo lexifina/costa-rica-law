@@ -1,0 +1,1 @@
+Artículo 8°.- Propiedad Institucional. El Teatro Nacional de Costa Rica podrá ordenar a sus funcionarios, cuando las circunstancias lo requieran, que laboren de manera extraordinaria, independientemente de las obligaciones que tengan adquiridas como docentes.

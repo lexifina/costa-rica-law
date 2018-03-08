@@ -1,0 +1,1 @@
+Artículo 6°.- Disponibilidad del funcionario con el TNCR. Se entiende que el funcionario público que se acoja a este beneficio, tiene disponibilidad plena y prioritaria en relación con el Teatro nacional de Costa Rica.

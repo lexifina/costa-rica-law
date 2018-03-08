@@ -1,0 +1,1 @@
+Artículo 12°.- Acciones a seguir ante situaciones no previstas. Las situaciones no consideradas en este reglamento será dirimidas en primera instancia por el superior de la unidad correspondiente. Si persiste la diferencia de criterios será resuelta en última instancia por el ministerio de Cultura y juventud.

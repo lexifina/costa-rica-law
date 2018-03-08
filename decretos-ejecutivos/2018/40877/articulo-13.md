@@ -1,0 +1,1 @@
+Artículo 13°.- Incumplimiento. Los funcionarios que incumplan los términos del presente Reglamento serán sancionados de acuerdo con las disposiciones contenidas en el régimen de sanciones del Reglamento Autónomo de Servicio del Ministerio de Cultura, Juventud y Deportes, Decreto Ejecutivo Nº33270 y demás normativa estatutaria aplicable.
