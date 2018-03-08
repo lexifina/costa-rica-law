@@ -1,0 +1,1 @@
+Artículo 60.—Obligada colaboración. Para el eficiente y eficaz cumplimiento de las funciones de la Proveeduría Institucional, todas las unidades administrativas de la Defensoría de los Habitantes sin distingo están obligadas a brindarle asistencia en el cumplimiento de sus cometidos.

@@ -1,0 +1,1 @@
+Artículos 32.—Coordinación interna con respecto al cartel. Las aclaraciones, modificaciones y prórrogas al plazo de recepción de ofertas serán acordadas por la Proveeduría, la cual deberá coordinarlas previamente con la unidad solicitante.

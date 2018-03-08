@@ -1,0 +1,2 @@
+Artículo 34.—Prórrogas a los contratos. Las solicitudes que formulen los contratistas para prorrogar el plazo de ejecución contractual, deberán ser valoradas conjuntamente entre la unidad solicitante y el Departamento de Proveeduría.
+Solo serán admisibles aquellas solicitudes que se fundamenten en razones de fuerza mayor, en demoras ocasionadas por la propia Institución o por causas imprevisibles ajenas al contratista.

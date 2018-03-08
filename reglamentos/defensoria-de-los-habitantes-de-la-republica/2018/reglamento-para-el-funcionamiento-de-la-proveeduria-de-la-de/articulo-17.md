@@ -1,0 +1,2 @@
+Artículo 17.—Del Departamento Financiero. Corresponde al Departamento Financiero realizar los pagos respectivos a los proveedores de bienes y servicios no personales una vez que el Departamento de Proveeduría haya informado sobre el recibo a satisfacción de los mismos.
+Corresponderá igualmente a este Departamento llevar a cabo el cobro a los contratistas de multas o sanciones que se deriven de los procedimientos de contratación según corresponda, previa solicitud del Departamento de Proveeduría.

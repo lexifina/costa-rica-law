@@ -1,0 +1,1 @@
+Artículo 30.—Divulgación de los carteles. Todo cartel será divulgado en los medios previstos en la Ley de Contratación Administrativa y su Reglamento en la plataforma electrónica del Sistema Digital Unificado de Compras Públicas, así como en la página Web de la Defensoría de los Habitantes.

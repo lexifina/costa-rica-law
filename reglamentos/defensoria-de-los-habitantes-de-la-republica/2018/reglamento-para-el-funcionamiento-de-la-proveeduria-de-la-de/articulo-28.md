@@ -1,0 +1,1 @@
+Artículo 28.—Forma de adquisición de bienes por medio de la contratación directa. Para la adquisición de bienes o servicios por medio de compras directas, la Proveeduría debe solicitar como mínimo tres cotizaciones a proveedores diferentes.

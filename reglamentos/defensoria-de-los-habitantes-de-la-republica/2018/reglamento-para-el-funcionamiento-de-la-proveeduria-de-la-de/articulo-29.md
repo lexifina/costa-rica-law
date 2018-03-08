@@ -1,0 +1,1 @@
+Artículo 29.—Compra de equipo informático. La compra de equipos, programas, accesorios, servicios profesionales y todo lo que se relacione con la actividad informática, debe ser a solicitud y aprobación del Departamento de Informática.

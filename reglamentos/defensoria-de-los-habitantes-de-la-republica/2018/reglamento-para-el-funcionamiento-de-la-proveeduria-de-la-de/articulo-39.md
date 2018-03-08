@@ -1,0 +1,3 @@
+Artículo 39.—Aprobación de las adjudicaciones. La adjudicación de las licitaciones públicas y abreviadas serán aprobadas por el Defensor (a) de los Habitantes o por el o la Defensora Adjunta en caso de que tales funciones le hubieren sido delegadas.
+La adjudicación de compras directas será analizada y aprobada por el jefe(a) del Departamento de Proveeduría y el analista de contratación institucional y suscrita por el director(a) Administrativo de la Defensoría de los Habitantes.
+Las órdenes de pedido serán analizadas y revisadas por el director (a) Administrativo y el jefe(a) del Departamento de Proveeduría institucional.

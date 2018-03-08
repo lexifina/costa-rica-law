@@ -1,0 +1,3 @@
+Artículo 21.—Quórum y carácter no vinculante de las recomendaciones de la Comisión Técnica de Contratación Administrativa. El quórum para que la Comisión sesione válidamente será la totalidad de sus miembros y sus decisiones se tomarán por simple mayoría.
+El Proveedor Institucional, o quien le represente durante sus ausencias, será quien presida las reuniones de la Comisión.
+Por su naturaleza asesora, las recomendaciones que emita dicha Comisión no serán vinculantes, pero para apartarse de ellas el o la Jerarca de la institución deberá fundamentar ampliamente las razones por las que se aparta de la respectiva recomendación, asumiendo en tal caso la total y plena responsabilidad de dicho acto.

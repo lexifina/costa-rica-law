@@ -1,0 +1,1 @@
+Artículo 9º—Aptitud para contratar. El Departamento de Proveeduría verificará que sólo se formalicen contrataciones con personas físicas o jurídicas, que se encuentren a derecho según el ordenamiento jurídico costarricense.

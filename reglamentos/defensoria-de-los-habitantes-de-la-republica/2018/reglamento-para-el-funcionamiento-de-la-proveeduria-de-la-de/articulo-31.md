@@ -1,0 +1,1 @@
+Artículo 31.—Exclusión de carteles de licitación. No será necesaria la existencia de un cartel de licitación en los siguientes casos: contratación de servicios públicos, suscripciones a revistas y periódicos, servicios de capacitación abierta y adquisición de combustibles.

@@ -1,0 +1,1 @@
+Artículo 57.—Rebajo del costo de daños ocasionados por el proveedor. Cuando una empresa contratada ocasiona algún daño a los bienes de la institución, debe asumir su reparación íntegra a satisfacción, de lo contrario, los costos de la reparación le serán rebajados del pago del contrato.

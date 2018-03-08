@@ -1,0 +1,8 @@
+Artículo 53.—Rotación de proveedores. El Departamento de Proveeduría deberá garantizar una rotación de los proveedores inscritos en el Registro de Proveedores, así como en las invitaciones a los procedimientos de contratación de licitación abreviada y en las contrataciones directas por escasa cuantía no referidas a Caja Chica o a otras excepciones.
+La rotación se realizará conforme con las siguientes regulaciones:
+a) Los proveedores se invitarán en estricto orden cronológico, empezando por los proveedores más antiguos según la fecha de inscripción en el registro.
+b) El número de proveedores a invitar por cada procedimiento dependerá de las cantidades máxima y mínima establecidas para cada tipo de contratación, de acuerdo con la Ley de Contratación Administrativa y su Reglamento.
+c) En las contrataciones directas por escasa cuantía se invitará obligatoriamente como mínimo a tres proveedores, tomando como referencia su participación en procedimientos anteriores y siempre que se encuentren debidamente inscritos.
+d) En las licitaciones abreviadas se invitará obligatoriamente como mínimo a cinco proveedores, sin perjuicio de la incorporación adicional de los que sean necesarios tomando como referencia su participación en procedimientos de contratación anteriormente tramitados para la adquisición de bienes y servicios similares.
+e) No será permitida la invitación a proveedores que tengan sanciones de inhabilitación vigentes y en todo caso deberá tomarse en cuenta la recurrencia de la invitación.
+f) En caso de que existan proveedores catalogados como PYMES para una determinada mercancía, bien o servicio, éstos deberán ser invitados para el proceso de contratación respectivo.

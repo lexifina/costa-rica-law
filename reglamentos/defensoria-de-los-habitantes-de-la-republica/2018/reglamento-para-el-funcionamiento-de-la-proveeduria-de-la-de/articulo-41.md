@@ -1,0 +1,1 @@
+Artículo 41.—Invitación al registro. La Administración invitará por lo menos una vez al año, mediante una publicación en La Gaceta y posteriormente en los principales diarios de circulación del país, a aquellas personas físicas o jurídicas que deseen formar parte del Registro de Proveedores para las futuras contrataciones a realizar.

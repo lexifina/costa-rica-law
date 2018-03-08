@@ -1,0 +1,7 @@
+Artículo 14.—Funciones específicas de la Proveeduría Institucional en materia de almacenamiento y distribución. En el desempeño de sus cometidos, la Proveeduría institucional deberá:
+a) Recibir y verificar en cada caso que los proveedores entreguen los bienes adjudicados dentro del plazo contractual establecido, y cumplan con las respectivas condiciones de cantidad, calidad y especificaciones técnicas acordadas. A dichos efectos podrá obtener la asesoría y criterio técnico de los departamentos pertinentes de la Defensoría de los Habitantes.
+b) Almacenar y custodiar, en condiciones físicas, técnicas y de seguridad apropiadas y bajo un adecuado sistema de control e inventario, los bienes adquiridos a través de los diferentes procedimientos de contratación administrativa.
+c) Distribuir, con arreglo a un sistema de control eficiente y oportuno y en óptimas condiciones de traslado, los bienes señalados en el párrafo anterior.
+d) Elaborar un inventario permanente de todos los bienes propiedad de la Defensoría de los Habitantes y dar seguimiento a dicho inventario manteniéndolo actualizado, conforme a los criterios técnicos establecidos.
+e) Elaborar informes periódicos del inventario de bienes de la Defensoría de los Habitantes respectivo para su remisión a la Jefatura del Departamento de Proveeduría y Servicios Generales.
+f) Levantar el acta definitiva de ingreso de suministros y las actas provisional y definitiva cuando se trate de equipo de cómputo.

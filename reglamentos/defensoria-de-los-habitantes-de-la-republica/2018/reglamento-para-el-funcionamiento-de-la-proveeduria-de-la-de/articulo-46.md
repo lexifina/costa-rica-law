@@ -1,0 +1,3 @@
+Artículo 46.—Exclusión del Registro de Proveedores.
+Serán excluidas del Registro de Proveedores aquellas personas físicas o jurídicas que en forma reiterada, no respondan al llamado a concursar en los distintos procedimientos de contratación.
+Previamente, se le informará al proveedor registrado tal decisión, quien en caso de disconformidad, podrá recurrir la actuación por medio de los recursos ordinarios que establece la Ley General de la Administración Pública.

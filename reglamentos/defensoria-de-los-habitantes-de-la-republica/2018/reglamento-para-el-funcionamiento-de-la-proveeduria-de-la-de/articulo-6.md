@@ -1,0 +1,16 @@
+Artículo 6º—Funciones específicas de la Proveeduría. La Proveeduría Institucional tendrá además las siguientes funciones específicas:
+a) Dar trámite a las solicitudes que formulen las distintas unidades administrativas de la institución para el suministro de materiales, bienes y cualquier servicio que requiera la institución.
+b) Velar porque el suministro de materiales, equipo y servicios que requiera la institución, en general, se ajuste a las cantidades requeridas y las mejores condiciones posibles, conforme a las disposiciones legales y administrativas vigentes.
+c) Verificar que las contrataciones se efectúen atendiendo las disposiciones de carácter legal y administrativas vigentes para los procesos de licitación pública, abreviada o contratación directa.
+d) Mantener un registro actualizado e integral de proveedores nacionales y extranjeros para los trámites de adquisición de bienes y servicios. Esta actualización se deberá realizar por lo menos una vez al año, mediante un aviso que se publicará en “La Gaceta” y de ser posible en un diario de circulación nacional.
+e) Recibir los recursos de objeción al cartel, de revocatoria y apelación contra el acto de adjudicación y trasladarlos sin demora con el respectivo expediente para su análisis y resolución a la Dirección de Asuntos Jurídicos.
+f) Publicar en el Diario Oficial “La Gaceta”, en el primer mes de cada período presupuestario, el programa de adquisiciones, conforme a lo establecido en el artículo 7° del Reglamento de Contratación Administrativa.
+g) Elaborar, revisar y publicar los carteles de licitaciones en colaboración con la unidad solicitante. Coordinar con el Departamento Financiero de la institución la respectiva separación de fondos, como lo establece la legislación vigente.
+h) Llevar el control de la maquinaria, del equipo, del mobiliario y de los vehículos que se envían a reparación fuera de la institución, así como de los préstamos de bienes que se hacen a otras instituciones. El control debe llevarse a cabo mediante la confección de la boleta de “Salida de activos” elaborada para este fin.
+i) Solicitar cotizaciones a los potenciales oferentes en el mercado nacional, de acuerdo con las necesidades del bien o servicio a adquirir.
+j) Confeccionar la respectiva orden de pedido con los documentos necesarios, de acuerdo con los términos y condiciones de adjudicación.
+k) Efectuar los actos de apertura y análisis de las ofertas de acuerdo con las fechas establecidas, atendiendo las disposiciones reglamentarias que rigen la materia.
+l) Supervisar la presentación oportuna de las garantías, así como autorizar su devolución una vez finalizado el proceso y verificado el cumplimiento de lo requerido por la institución.
+Asimismo, le corresponderá coordinar con la Dirección de Asuntos Jurídicos la ejecución de garantías de cumplimiento cuando así corresponda, por eventuales incumplimientos imputables en forma directa al contratista.
+El manejo y control de las garantías, así como la custodia de los valores corresponden al Departamento Financiero de la institución.
+m) Realizar todos los trámites necesarios para mantener al día las distintas pólizas de seguros que debe suscribir la institución. La ejecución de estos trámites no requiere la solicitud de ningún jerarca.

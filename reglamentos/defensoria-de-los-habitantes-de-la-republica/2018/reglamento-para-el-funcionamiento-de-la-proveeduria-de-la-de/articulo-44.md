@@ -1,0 +1,1 @@
+Artículo 44.—Plazo de verificación para la inclusión en el Registro de Proveedores. Todo interesado en integrar el Registro de Proveedores estará obligado a verificar la inclusión de su empresa dentro del lapso de quince días hábiles posteriores a la presentación de la respectiva solicitud.

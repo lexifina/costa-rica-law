@@ -1,0 +1,1 @@
+Artículo 55.—Ejecución defectuosa del objeto del contrato o abandono del proveedor. En caso de que el proveedor al que se le adjudica una compra directa no cumpla con las condiciones establecidas en la orden de compra o en su oferta, o si la abandona, la Administración no cancelará el trabajo ni la parte proporcional realizada, hasta que no haya sido concluido en su totalidad.

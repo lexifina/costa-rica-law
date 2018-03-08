@@ -1,0 +1,1 @@
+Artículo 4º—Plataforma tecnológica. La Proveeduría Institucional deberá contar con la plataforma tecnológica suficiente y adecuada que le permita ejecutar los procedimientos de contratación administrativa en forma eficiente. Para tales efectos el Defensor(a) de los Habitantes deberá asignar permanentemente los recursos necesarios.
