@@ -1,0 +1,2 @@
+Artículo 13.- Capacitación en el exterior
+En caso que la actividad de formación o capacitación se efectúe fuera del país, el trámite por seguir será el dispuesto en el artículo 81 del Reglamento Autónomo de Organización y Servicio de la Presidencia de la República y Ministerio de la Presidencia, así como lo contemplado en la Ley de Licencias para Adiestramiento de Servidores Públicos, Ley número 1810.

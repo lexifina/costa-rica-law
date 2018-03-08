@@ -1,0 +1,2 @@
+Artículo 15.- Reintegro de gastos
+El servidor que abandone sin justificación válida o no asista a la actividad de formación o capacitación correspondiente, deberá reintegrar a la Presidencia de la República o Ministerio de la Presidencia, según sea el caso, los gastos incurridos con motivo de la actividad. Para ello, al aceptar su participación, deberá firmar un compromiso ante la Unidad de Capacitación de la OGIRH.

@@ -1,0 +1,8 @@
+Artículo 2°.- Conceptos básicos
+Para los efectos legales consecuentes de este Reglamento, se deberá entender por:
+a) Atinencia: Grado de relación o afinidad que la capacitación tiene con las funciones sustantivas del puesto del servidor.
+b) Beneficiario: El servidor que reciba una beca o sea participante de un proceso de capacitación.
+c) Capacitación: Procedimiento sistemático de acciones dirigidas a la dotación, perfeccionamiento y refrescamiento de conocimientos, habilidades, destrezas, actitudes y valores requeridos para el mejoramiento del desempeño del trabajador, considerando, tanto las exigencias específicas del trabajo asignado, como su desarrollo personal y el marco de la cultura organizacional. Se plasma en una determinada acción formativa.
+d) Formación: proceso estructurado para la adquisición de conocimientos, habilidades, destrezas, actitudes y valores requeridos para el mejoramiento del desempeño del trabajador, que contempla varias acciones formativas organizadas en una malla curricular.
+e) Oficina de Gestión Institucional de Recursos Humanos: es la oficina encargada de coordinar las acciones tendientes a captar el personal más idóneo y propiciar su formación y capacitación, de acuerdo con el artículo 167 del Reglamento Autónomo de Organización y Servicio de la Presidencia de la República y del Ministerio de la Presidencia, Decreto número 32300-MP.
+f) Servidor: Funcionarios públicos al servicio de la Presidencia de la República o del Ministerio de la Presidencia, como parte de su organización, a nombre y por cuenta de esta, en virtud de un acto válido y eficaz de investidura, con entera independencia del carácter imperativo, representativo, remunerado o permanente de la actividad respectiva.

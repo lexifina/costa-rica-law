@@ -1,0 +1,2 @@
+Artículo 6°.- Autorización para participar en la capacitación
+La participación de los servidores en actividades de capacitación será autorizada por el jefe inmediato de cada departamento o dirección, de acuerdo con la disponibilidad presupuestaria y la atinencia de las funciones del servidor solicitante. Asimismo, deberá respaldarse con el análisis técnico que realizará la OGIRH y la aprobación del Jerarca Institucional.
