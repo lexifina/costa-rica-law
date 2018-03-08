@@ -20,3 +20,4 @@ Reglamento para el Funcionamiento de los Fondos Especiales
 | 5 | 2015-10-20 | Reglamento 5318 (2015-10-20) |
 | 6 | 2016-05-10 | Reglamento 5369 (2016-05-10) |
 | 7 | 2017-09-26 | Reglamento 5497 (2017-09-26) |
+| 8 | 2018-03-08 | Reglamento 5541 (2018-03-08) |
