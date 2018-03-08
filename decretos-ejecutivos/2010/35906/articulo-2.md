@@ -1,9 +1,0 @@
-Artículo 2º—Definiciones. Para la interpretación y aplicación del presente reglamento, se definen los siguientes términos.
-a. Centro de recuperación de residuos valorizables: Es un sitio permanente de almacenamiento temporal de residuos para su valorización, donde los materiales recuperables son pesados y pueden ser clasificados y separados de acuerdo a su naturaleza.
-b. Ministerio: Ministerio de Salud
-c. Residuo: Material sólido, semi-sólido, líquido o gas, cuyo generador o poseedor debe o requiere deshacerse de él, y que puede o debe ser valorizado o tratado responsablemente, o en su defecto ser manejado por sistemas de disposición final.
-d. Residuo sólido ordinario: Residuo de origen principalmente domiciliario o que proviene de cualquier otra actividad comercial, de servicios, industrial, limpieza de vías y áreas públicas, que tengan características similares a los domiciliarios.
-e. Residuo de manejo especial: Son aquellos residuos sólidos ordinarios que por su volumen, cantidad, necesidades de transporte, condiciones de almacenaje o valor de recuperación requieren salir de la corriente normal de recolección de residuos ordinarios.
-f. Residuo peligroso: Son aquellos que por sus características físicas, químicas, biológicas, o la combinación de ellas pueden provocar reacciones tóxicas, explosivas, corrosivas, radioactivas, biológicas, bioinfecciosas, inflamables, combustibles u otras que puedan causar daños a la salud de las personas y al ambiente.
-g. Residuo valorizable: Son aquellos residuos que pueden ser recuperados de la corriente de los residuos para su valorización.
-h. Valorización: Conjunto de acciones asociadas cuyo objetivo es recuperar el valor de los residuos para los procesos productivos mediante la recuperación de materiales o el aprovechamiento energético para la protección de la salud y el uso racional de los recursos.

@@ -1,1 +1,0 @@
-Artículo 3º—Toda persona natural o jurídica que desee construir, ampliar o remodelar un centro de recuperación de residuos valorizables deberá cumplir con lo establecido en el Reglamento para el Trámite de Visado de Planos para la Construcción, en el Reglamento de Construcciones y en la Ley de Igualdad de Oportunidades para las Personas con Discapacidad, Ley Nº 7600.

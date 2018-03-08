@@ -1,1 +1,0 @@
-Artículo 9º—Todo centro de recuperación de residuos valorizables, deberá contar e implementar un plan de manejo de residuos sólidos y líquidos no recuperables debidamente documentado, conforme al instructivo que para tal efecto dispone el Ministerio, según lo señalado en el Reglamento General para el otorgamiento de Permisos de Funcionamiento del Ministerio de Salud.
