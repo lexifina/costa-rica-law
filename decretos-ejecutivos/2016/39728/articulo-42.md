@@ -1,1 +1,0 @@
-Artículo 42.- Del procedimiento administrativo: La aplicación de medidas sanitarias especiales deberá ser notificada al administrado mediante orden sanitaria, la cual se constituirá en el acto inicial del procedimiento administrativo.

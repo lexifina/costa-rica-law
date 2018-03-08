@@ -1,1 +1,0 @@
-Artículo 47.- Las solicitudes de habilitación y el control de los centros y servicios afines regulados por la Ley N° 8017 del 29 de agosto del 2000 "Ley General de Centros de Atención Integral" se regirán de acuerdo a lo dispuesto en dicha ley y en sus reglamentos.

@@ -1,1 +1,0 @@
-Artículo 26.- Informe técnico: Toda valoración que se realice de las solicitudes señaladas en este capítulo, deberá consignarse en informes técnicos emitidos por el funcionario del Ministerio de Salud competente, los cuales deberán formar parte del expediente administrativo del servicio de salud. Dichos informes servirán de sustento para la resolución correspondiente.

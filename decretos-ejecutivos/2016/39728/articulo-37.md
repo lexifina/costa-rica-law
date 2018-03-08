@@ -1,1 +1,0 @@
-Artículo 37.- Del plan de gestión integral de residuos: El Plan de Manejo Integral de Residuos deberá ajustarse a lo establecido en los artículos 23, 24 y en el Anexo II del Decreto Ejecutivo No. 37567-S-MINAET-H del 2 de noviembre del 2012 "Reglamento General a la Ley para la Gestión Integral de Residuos"

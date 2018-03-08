@@ -1,1 +1,0 @@
-Transitorio III- El requisito establecido en el artículo 10 inciso 1) del presente reglamento, sobre la presentación de la certificación de las condiciones eléctricas para solicitudes de renovación, regirá a partir del 16 de agosto de 2017.
