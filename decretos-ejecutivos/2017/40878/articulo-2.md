@@ -1,0 +1,1 @@
+Artículo 2°.- Derogación. Deróguese el Decreto Eejcutivo número 36762- MOPT “Reglamento para la Gestión de Información Aeronáutica (AIM) RAC 15, publicado en el Diario oficial La Gaceta el 23 de setiembre de 2011.
