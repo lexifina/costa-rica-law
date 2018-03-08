@@ -1,0 +1,2 @@
+ARTÍCULO 38.- Casos de traslado del servidor a otra institución
+Si para efectos de la aplicación del inciso 10) del artículo 40 del presente reglamento el servidor ha sido trasladado a otra institución, deberá efectuarse una modificación del contrato original, en la que conste que la obligación adquirida por el beneficiario será cumplida en otra dependencia. Dicha modificación será firmada por el beneficiario y el jerarca de la institución en la que prestaba sus servicios y tener, además, el visto bueno del nuevo jerarca que adquiere la obligación.

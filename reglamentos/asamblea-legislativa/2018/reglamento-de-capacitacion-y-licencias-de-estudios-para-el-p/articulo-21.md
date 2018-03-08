@@ -1,0 +1,2 @@
+ARTÍCULO 21.- Licencias para funcionarios interinos y de confianza
+Los funcionarios interinos y los servidores de confianza podrán disfrutar de licencias de capacitación, siempre y cuando tengan más de un año de desempeñar labores en la Asamblea Legislativa, que su nombramiento lo permita, que su evaluación de servicios del período anterior a la solicitud de la capacitación sea igual o superior al grado mínimo de bueno y que no afecte la prestación del servicio público.

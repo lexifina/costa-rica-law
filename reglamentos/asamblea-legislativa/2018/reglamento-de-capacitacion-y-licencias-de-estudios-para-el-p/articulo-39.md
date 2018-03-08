@@ -1,0 +1,3 @@
+ARTÍCULO 39.- Obligación de respetar el tiempo de capacitación
+La administración se compromete a conceder el tiempo necesario de la jornada laboral a aquellos servidores que participen oficialmente en capacitaciones autorizadas por la institución, y a tomar las medidas necesarias que permitan que los funcionarios que se encuentren en período de capacitación atiendan y finalicen dichos planes.
+Se excluyen de este artículo aquellos casos de necesidades urgentes e imprevistas que impliquen necesariamente la ausencia del funcionario en capacitación, los cuales deberán ser debidamente justificados por la autoridad competente, según sea el caso.

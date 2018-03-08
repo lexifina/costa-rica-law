@@ -1,0 +1,2 @@
+ARTÍCULO 17.- Obligación de atender los requerimientos de la actividad
+Todo servidor que se inscriba o sea beneficiario de una actividad de capacitación con el acto de aceptarla queda obligado a cumplir con los requerimientos que la actividad demande. En caso contrario, deberá asumir la responsabilidad que ello implique ante la institución para la cual trabaja, tales como reponer el costo de la actividad, incluyendo sus propios salarios devengados durante la asistencia y cualquier otro directamente relacionado.

@@ -1,0 +1,2 @@
+ARTÍCULO 46.- Casos no previstos
+Los casos no contemplados en el presente reglamento serán resueltos conforme a la Ley N.° 4556, Ley de Personal de la Asamblea Legislativa, el Reglamento Autónomo de Servicios de la Asamblea Legislativa, la Ley N.° 3009, Ley de Licencias de Adiestramiento de Servidores Públicos, y sus reformas, el Estatuto de Servicio Civil, su reglamento, y demás leyes y reglamentos conexos en materia de capacitación.

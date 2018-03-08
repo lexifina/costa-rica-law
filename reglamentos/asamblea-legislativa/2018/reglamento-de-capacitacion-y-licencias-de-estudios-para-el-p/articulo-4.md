@@ -1,0 +1,3 @@
+ARTÍCULO 4.- Obligaciones del beneficiario
+Es obligación de los servidores públicos de la Asamblea Legislativa someterse y cumplir satisfactoriamente los programas de capacitación y perfeccionamiento técnico, requeridos para el buen desempeño de sus puestos, así como contribuir a la transferencia de los conocimientos adquiridos. Se excepcionan aquellas actividades de capacitación desarrolladas fuera de las jornadas ordinarias de trabajo; en cuyo caso, la participación será voluntaria.
+El beneficiario deberá colaborar como facilitador en las actividades de transmisión de conocimiento que determine la administración.

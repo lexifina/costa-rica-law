@@ -1,0 +1,2 @@
+ARTÍCULO 28.- Continuidad de la relación laboral
+El servidor regular beneficiado con permiso con o sin goce de salario para estudios, dentro del país o fuera de él, gozará de continuidad en su relación de servicio en el puesto que ocupe, así como del reconocimiento de los aumentos salariales correspondientes y todos los pluses salariales aprobados por la institución, excepto cuando se compruebe falta grave de servicio.

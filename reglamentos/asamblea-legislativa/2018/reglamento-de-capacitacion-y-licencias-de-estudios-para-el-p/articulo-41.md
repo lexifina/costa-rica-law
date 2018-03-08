@@ -1,0 +1,7 @@
+ARTÍCULO 41.- Retribución del beneficio por cese de su relación
+Cuando a un funcionario de la Asamblea Legislativa se le hayan otorgado beneficios al amparo de este reglamento y se le dé por terminada su relación laboral estará sujeta a las siguientes disposiciones, para retribuir el beneficio disfrutado:
+1) La persona que al ser despedida sin responsabilidad patronal o al presentar su renuncia al cargo se encuentre disfrutando de los beneficios o esté en el período de retribución deberá reintegrar a la Asamblea Legislativa el monto correspondiente al tiempo que disfrutó del beneficio o que aún tenga pendiente de retribuir, sobre la base del beneficio económico erogado por la institución.
+2) Cuando el despido o la renuncia suceda durante la participación en un programa de capacitación, deberá reembolsarle a la institución el monto proporcional al tiempo en salario por la cancelación de su contrato
+3) La retribución del beneficio de capacitación o formación, en aquellos casos en que exista despido sin responsabilidad patronal o renuncia, se hará efectiva mediante el respectivo procedimiento de cobro.
+4) Cuando la separación del cargo ocurra con responsabilidad patronal, al servidor se le eximirá de la obligación de efectuar el reembolso.
+5) Los funcionarios legislativos estarán obligados a cumplir con todas aquellas condiciones consignadas en este reglamento y demás leyes aplicables.

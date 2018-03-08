@@ -1,0 +1,3 @@
+ARTÍCULO 14.- Requisitos para la emisión de certificados de aprovechamiento y capacitación
+Todo certificado de aprovechamiento o de participación se otorgará con base en el número de horas efectivas de instrucción recibida por el participante, siempre que este asista por lo menos al ochenta y cinco por ciento (85%) de las horas de que consta la actividad.
+Los participantes en actividades de aprovechamiento deberán, además, obtener al menos la nota mínima para medir conocimientos. En caso de que cumplan con el ochenta y cinco por ciento (85%) de asistencia, pero resulten con una cantidad inferior a las treinta horas requeridas para otorgar dicho certificado, se les otorgará certificado de participación por el respectivo número de horas asistidas.

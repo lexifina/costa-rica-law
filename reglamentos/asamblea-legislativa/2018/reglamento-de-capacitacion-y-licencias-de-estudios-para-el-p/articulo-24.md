@@ -1,0 +1,6 @@
+CAPÍTULO VI
+PERMISOS DE ESTUDIO
+ARTÍCULO 24.- Permisos de estudio y adecuación de horarios en instituciones educativas reconocidas por el Estado
+El Directorio legislativo y la Dirección Ejecutiva podrán autorizar, respectivamente, los permisos de estudio y los cambios de horario, para la realización de estudios en instituciones educativas reconocidas por el Estado, previo visto bueno del director departamental, cuando el horario de la institución educativa no le permita al servidor asistir a clases en horas fuera de su jornada laboral.
+La concesión de los permisos de estudio constituye una facultad discrecional del Directorio legislativo y deben otorgarse de conformidad con los artículos 43, 44 y 45 del Reglamento Autónomo de Servicios de la Asamblea Legislativa; en consecuencia, su otorgamiento no reviste el carácter de derecho para los servidores ni el de obligación para la Asamblea Legislativa.
+Los ajustes de horario los otorgará la Dirección Ejecutiva, siempre y cuando el funcionario reponga a la institución el tiempo invertido y no afecte el servicio público. Para tal efecto, el responsable de que se cumpla con esta disposición será su jefe inmediato, quien llevará el control del tiempo e indicará al servidor cuándo y cómo debe reponer el tiempo utilizado para estudiar.

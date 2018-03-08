@@ -1,0 +1,3 @@
+ARTÍCULO 35.- Registro de deudas por incumplimiento de capacitaciones
+El Departamento Financiero mantendrá un registro de deudas pendientes por incumplimiento o rescisión de contratos de actividades de capacitación.
+El Departamento de Recursos Humanos coordinará con el Departamento Financiero para que le informe sobre los funcionarios que posean deudas pendientes por concepto de capacitación. El Departamento Financiero deberá remitir dicha información en un plazo de tres días hábiles a partir de su conocimiento. Además, el Área de Desarrollo del Recurso Humano no tramitará nuevos contratos al servidor que tenga deudas pendientes por este concepto, hasta tanto este no haya efectuado su respectiva cancelación a la institución.

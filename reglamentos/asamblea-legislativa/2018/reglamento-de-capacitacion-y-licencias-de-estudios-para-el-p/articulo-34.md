@@ -1,0 +1,3 @@
+ARTÍCULO 34.- Casos de deudas por incumplimiento de capacitaciones
+El Área de Desarrollo del Recurso Humano deberá informar a la Dirección Ejecutiva los casos de incumplimiento de capacitación para que este proceda a la recuperación de los dineros.
+En caso de demostrarse el incumplimiento del contrato por parte del funcionario, previa audiencia del servidor investigado, la institución podrá tener por concluido el contrato y podrá recuperar los salarios o cualquier otro gasto en que se haya incurrido, así como reparar los daños y perjuicios ocasionados por el incumplimiento a la fecha en que se identifiquen las irregularidades.

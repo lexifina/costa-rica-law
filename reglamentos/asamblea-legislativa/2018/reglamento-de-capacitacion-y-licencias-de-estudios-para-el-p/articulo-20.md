@@ -1,0 +1,2 @@
+ARTÍCULO 20. Licencias para actividades de capacitación no otorgadas por la Asamblea Legislativa
+Todo funcionario regular podrá disfrutar de licencia para asistir a cursos o actividades de capacitación, que no sean impartidos u organizados por el Área de Desarrollo del Recurso Humano de la Asamblea Legislativa, ni estén previstos en el Programa Anual de Capacitación, siempre y cuando su participación sea aprobada por la Dirección Ejecutiva y no cause perjuicio al servicio público. El beneficio de la licencia será otorgado por el plazo que dure la capacitación.

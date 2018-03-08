@@ -1,0 +1,3 @@
+ARTÍCULO 10.- Planificación
+Para elaborar el Programa Anual de Capacitación de la Asamblea Legislativa, el Departamento de Recursos Humanos tomará en cuenta los requerimientos de capacitación del capital humano que cada departamento incluya en su Plan Anual Operativo, así como el diagnóstico de las necesidades de formación para los funcionarios legislativos.
+Los contenidos del Programa Anual de Capacitación deberán estar estrechamente relacionados con las necesidades institucionales y las funciones que los servidores desempeñan en esta institución, lo cual debe ser corroborado de manera coordinada entre el Área de Desarrollo de Recursos Humanos y la Dirección departamental respectiva.

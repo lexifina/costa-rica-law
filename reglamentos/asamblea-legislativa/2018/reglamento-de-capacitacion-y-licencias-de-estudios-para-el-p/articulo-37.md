@@ -1,0 +1,2 @@
+ARTÍCULO 37.-Plazos para solicitar prórrogas o ampliaciones
+Las prórrogas de la licencia o facilidad deberán tramitarse con anterioridad al vencimiento del beneficio, es decir, mientras esté vigente. En los casos de permisos de estudios fuera del país, el beneficiario debe designar a un apoderado para que se encargue de tramitar dicha prórroga o de suscribir un nuevo contrato, en caso de que el anterior haya vencido.

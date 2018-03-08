@@ -1,0 +1,2 @@
+ARTÍCULO 25.-Prórroga de permiso de estudio y adecuación horaria
+Si por razones de interés para la Asamblea Legislativa o de ampliación del programa de estudios se requiere prorrogar el permiso de estudio, o extender la adecuación de horario otorgado por la institución, la Dirección de Recursos Humanos estudiará el caso y comunicará su recomendación al Directorio legislativo o la Dirección Ejecutiva, según corresponda.
