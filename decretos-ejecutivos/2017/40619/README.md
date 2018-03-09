@@ -14,3 +14,4 @@ Reglamento de colaboradores del Ministerio de Cultura y Juventud y sus órganos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-10-01 | la propia norma |
+| 2 | 2018-03-09 | Decreto Ejecutivo 41049 (2018-03-09) |
