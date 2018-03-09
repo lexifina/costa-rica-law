@@ -1,0 +1,1 @@
+Artículo 7°—Tanto las personas físicas como jurídicas deberán aportar, según corresponda, el original del poder que ostenten, o fotocopia del mismo para que pueda ser confrontada con su original por el funcionario tributario, o fotocopia certificada por Notario Público con no más de un mes de emitida.
