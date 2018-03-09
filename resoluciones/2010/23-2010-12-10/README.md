@@ -29,3 +29,4 @@ Comunica emisión de resoluciones de la Dirección General del Servicio Civil:(D
 | 14 | 2017-11-24 | Resolución 19 (2017-11-24) |
 | 15 | 2017-12-13 | Resolución 20 (2017-12-13) |
 | 16 | 2018-02-02 | Resolución 2 (2018-02-02) |
+| 17 | 2018-03-09 | Resolución 4 (2018-03-09) |
