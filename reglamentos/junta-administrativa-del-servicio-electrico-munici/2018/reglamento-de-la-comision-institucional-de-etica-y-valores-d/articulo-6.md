@@ -1,0 +1,2 @@
+Artículo 6.- Objetivo de la Comisión Institucional de Ética y Valores
+El objetivo de la Comisión es la promoción, formación y fortalecimiento de la ética en la institución y contribuir a la eficiencia en el sector público. Les corresponde conducir técnicamente la gestión ética institucional con el liderazgo y responsabilidad del jerarca y los titulares subordinados y la participación de toda la administración activa.

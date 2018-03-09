@@ -1,0 +1,2 @@
+[imagen] Artículo 9.- Coordinación y secretaría de la Comisión
+La Comisión contará con una persona coordinadora designada por el jerarca por un periodo de dos años consecutivos y una persona secretaria. La segunda será elegida en una sesión de la CIEV por mayoría simple entre los integrantes presentes y por un periodo de dos años consecutivos. Ninguno de los puestos será reelegible con el propósito de rotar las responsabilidades.

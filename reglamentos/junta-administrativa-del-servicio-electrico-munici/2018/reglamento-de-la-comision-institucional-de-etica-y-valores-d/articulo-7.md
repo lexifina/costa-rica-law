@@ -1,0 +1,1 @@
+Artículo 7.—Alcance de la Comisión. El alcance de la CIEV cubre a todas las personas funcionarias de JASEC. La CIEV no constituye un Tribunal de Ética ni ningún tipo de órgano disciplinario. Cualquier asunto en materia disciplinaria o legal deberá resolverse por las vías correspondientes.

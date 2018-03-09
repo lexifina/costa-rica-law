@@ -1,0 +1,2 @@
+Artículo 3.- Marco Normativo
+El presente reglamento se fundamenta en los Lineamientos para las Comisiones institucionales de ética y valores en la gestión ética emitido por la Comisión Nacional de Recate y Formación de Valores Morales, Cívicos y Religiosos según lo estipulado en el Decreto Ejecutivo Nº 23944-J-C del 12 de diciembre de 1994 y las normas en las que dichos lineamientos se sustentan.
