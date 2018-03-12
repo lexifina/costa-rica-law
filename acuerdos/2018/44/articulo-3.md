@@ -1,0 +1,1 @@
+3º—Autorizar a la Dirección General Administrativa para que realicen el acondicionamiento de la unidad móvil para venta de carné de pesca deportiva, a fin de que sea equipada y acondicionada con los equipos e insumos necesarios para visitar los lugares donde se realiza torneos y eventos de pesca en el país, a efecto de suministrar el servicio in situ.
