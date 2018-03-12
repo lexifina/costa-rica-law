@@ -14,3 +14,4 @@ Reglamento para las Prácticas Profesionales en las instalaciones de la Municipa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-12-14 | la propia norma |
+| 2 | 2018-03-12 | Reglamento municipal 98 (2018-03-12) |
