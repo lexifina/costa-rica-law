@@ -1,0 +1,14 @@
+INSTITUTO COSTARRICENSE DE PESCA Y
+ACUICULTURA
+AJDIP/093-2018.—Puntarenas, a los veintitrés días del mes de febrero de dos mil dieciocho.
+Considerando:
+1º—Que el Sr. Álvaro Otárola Fallas, Director General Técnico a. í., presentó la propuesta de veda de sardina bolichera para el año 2018, para lo cual se tomó en consideración las recomendaciones que realizaron el Departamento de Desarrollo e Investigación según oficio DDI-011-02-18, suscrito por el Lic. Berny Marín Alpízar, la Comisión Nacional de Vedas para la veda del año 2016, la Comisión de Coordinación Científico Técnica (CCCT) ya la vez se consideró lo establecido en el procedimiento de establecimiento de vedas de la Contraloría General de la República.
+2º—Que para esta propuesta de veda de sardina para el 2018, lo más recomendable es establecer una veda con las mismas características de la que se estableció en el acuerdo AJDIP/043-2016 en razón de que a la fecha no existen nuevas investigaciones científicas, que determinen una modificación de fondo del acuerdo en mención.
+3º—Que con la puesta en marcha de esta veda, tal cual se ha concebido, se atiende la imperiosa necesidad de proteger el recurso sardina en su etapa de reproducción en procura de la sostenibilidad de este recurso pesquero, razón por la cual, la Junta Directiva; Por tanto;
+ACUERDA:
+1º—Establecer una veda para la pesca semi-industrial sardinera bolichera (de cerco), en el área comprendida por una línea imaginaria que va desde Punta Agujas (84°38’57’ ‘Longitud Oeste, 09°43’46” Latitud Norte) al Faro de la Isla Negritos afuera (84°49’35” Longitud Oeste, 09°49’14” Latitud Norte) y desde ahí hasta la parte este de Punta Cuchillo en la Península de Nicoya y de esta líneas aguas adentro hasta la desembocadura del río Tempisque; desde el 1° de marzo hasta el 31 de mayo del 2018.
+2º—Permitir al sector semi-industrial sardinero el ingreso a faenar a una embarcación, un día a la semana al área vedada, a efectos de que puedan suplir sardina para camada a la flota pesquera nacional. Exceptuando el área comprendida entre la línea imaginaria que va desde el Faro de la Isla Negritos afuera hasta Punta Cuchillo en la Península de Nicoya y de estas líneas aguas adentro hasta la desembocadura del río Tempisque.
+3º—Que la Dirección General Técnica adicionalmente establecerá las medidas correspondientes para efectos de que todas las descargas que se realicen como parte de este acuerdo sean debidamente inspeccionadas por inspectores de la Institución.
+A su vez el Departamento de Desarrollo e Investigación realizará muestreos biológicos de dichas capturas para evaluar el comportamiento reproductivo de las sardinas.
+4º—Establecer la veda de sardina de manera permanente, en los términos que se establecen en el presente acuerdo, hasta tanto, no se tengan nuevas investigaciones científicas, que determinen el cambio del acuerdo.
+5º—Acuerdo firme. Publíquese.
