@@ -1,0 +1,2 @@
+Artículo 22°- Etapa V. Declaratoria de elegible. Para la obtención de la condición de elegibilidad, los oferentes deberán aprobar satisfactoriamente las valoraciones teóricas, de competencias y psicológica.
+Todo oferente que apruebe con nota superior a la mínima las tres pruebas antes indicadas, será incluido inmediatamente por el Departamento de Recursos Humanos dentro del Registro de Elegibles, el cual estará ordenado de acuerdo a la nota final ponderada obtenida y según cada clase de puesto.

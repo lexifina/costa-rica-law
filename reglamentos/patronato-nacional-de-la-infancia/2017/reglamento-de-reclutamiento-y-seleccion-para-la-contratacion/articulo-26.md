@@ -1,0 +1,1 @@
+Artículo 26°- Etapa VI. Cierre del concurso: Una vez conformado el nomino, dupla, terna o nómina, el Departamento de Recursos Humanos procederá a declarar el cierre del concurso mediante un acta y a remitir el expediente del concurso y los expedientes personales de los oferentes incluidos en la misma a la Presidencia Ejecutiva para la resolución del proceso.

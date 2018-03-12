@@ -1,0 +1,1 @@
+Artículo 9°- Pedimentos de personal para nombramientos por vacantes permanentes a través del Registro de Elegibles: Cuando se presente una vacante permanente, la Presidencia Ejecutiva procederá a realizar el nombramiento respectivo, a través de un nomino, dupla, terna o nomina conformada por el Departamento de Recursos Humanos con oferentes del Registro de Elegibles.

@@ -1,0 +1,4 @@
+Artículo 16°. — Etapa I. Revisión de requisitos documentales: La documentación aportada por cada oferente mencionada en el artículo seis del presente reglamento, servirá para que el Departamento de Recursos Humanos acredite el cumplimiento de los requisitos exigidos para el puesto en concurso, establecidos en el Manual de Cargos institucional vigente.
+En el caso de oferentes que ya se encuentren dentro del Registro de Elegibles y que se hayan inscrito dentro de un concurso anterior, el Departamento de Recursos Humanos incorporará el expediente que se encuentra dentro del Registro de Elegibles dentro del concurso correspondiente.
+El Departamento de Recursos Humanos procederá a declarar en un acta, las ofertas desestimadas por incumplimiento de requisitos y aquellas que cumplen con los mismos.
+Únicamente los oferentes que cumplan con la totalidad de requisitos establecidos en el presente reglamento, podrán pasar a la siguiente etapa de Valoración Teórica.

@@ -1,0 +1,1 @@
+Artículo 34°- Periodo de Prueba en Ascensos. A todo funcionario o funcionaria que se le otorgue un ascenso, se le aplicará el período de prueba, para garantizar mejor el servicio público. En tales casos, el funcionario (a) gozará de licencia de su puesto anterior durante el tiempo que dure dicho período de prueba, el cual será aplicable también a su sustituto.

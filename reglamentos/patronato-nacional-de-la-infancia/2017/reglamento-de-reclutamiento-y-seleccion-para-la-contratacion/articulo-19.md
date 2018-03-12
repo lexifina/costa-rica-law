@@ -1,0 +1,3 @@
+Artículo 19°.- Valoración Psicológica: Esta valoración deberá ser aprobada con una calificación mínima de 70%, siendo la ponderación equivalente en relación al puntaje de 30 puntos asignado, un total de 21 puntos.
+Para la valoración de las pruebas psicológicas, el Patronato Nacional de la Infancia ha definido un perfil básico de las características del funcionario idóneo para laborar en la institución dada la especificidad y naturaleza de la misma y lo estipulado en el artículo 4 inciso 3 de la Convención sobre los Derechos del Niño.
+Esta valoración podrá implicar el análisis de la información o datos personales del oferente únicamente por parte del profesional en psicología encargado de la misma.

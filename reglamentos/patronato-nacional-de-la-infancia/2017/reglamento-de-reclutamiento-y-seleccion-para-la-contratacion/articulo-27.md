@@ -1,0 +1,2 @@
+Artículo 27°. Etapa VII. Resolución de nombramiento: Corresponderá al Presidente (a) Ejecutivo(a), en ejercicio de sus atribuciones legales, nombrar al oferente elegible incluido dentro del nomino, dupla, terna o nómina que, de acuerdo con su ponderación objetiva tenga las mejores condiciones para el puesto que se trate.
+Dicho nombramiento se hará constar mediante oficio que se enviará al Departamento de Recursos Humanos con el fin de que éste proceda a elaborar la acción de personal correspondiente.

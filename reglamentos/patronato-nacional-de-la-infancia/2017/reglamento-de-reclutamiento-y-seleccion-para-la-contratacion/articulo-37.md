@@ -1,0 +1,1 @@
+Artículo 37°.- Acción de Personal. Todo movimiento de personal, así como todo acto, disposición o resolución que afecte la situación legal de ocupación de los puestos cubiertos por este Reglamento y que deban figurar en el expediente personal del funcionario (a), se debe tramitar mediante el formulario denominado “Acción de Personal”.

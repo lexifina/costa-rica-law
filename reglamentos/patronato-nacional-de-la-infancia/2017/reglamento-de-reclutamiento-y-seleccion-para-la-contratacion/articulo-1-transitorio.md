@@ -1,0 +1,3 @@
+Transitorio I: Todos los oferentes participantes en los concursos realizados a partir del año 2013 y que adquirieron la condición de elegibles con el reglamento anterior, pasaran a formar parte del Registro de Elegibles que se conformará con este nuevo reglamento.
+El presente Reglamento fue aprobado por la Junta Directiva del Patronato Nacional de la Infancia mediante acuerdos tomados en sus sesiones ordinarias 2017-036 celebrada el 11 de octubre de 2017, articulo 010), aparte 01); 2017-040 celebrada el 7 de noviembre de 2017 articulo 010), aparte 01) y 2017-044, celebrada el 05 de diciembre del 2017, articulo 006) aparte 01).
+Publíquese solo una vez.
