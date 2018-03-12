@@ -15,3 +15,4 @@ Reglamento para el Trabajo Comunal de Estudiantes en las Instalaciones de la Mun
 | --- | --- | --- |
 | 1 | 2011-07-19 | la propia norma |
 | 2 | 2012-02-27 | Reglamento municipal 96 (2012-02-27) |
+| 3 | 2018-03-12 | Reglamento municipal 98 (2018-03-12) |
