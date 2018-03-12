@@ -1,0 +1,1 @@
+Artículo 5º—Misión. Promover el mejoramiento continuo en la prestación de los servicios que brinda la Imprenta Nacional, incrementando su eficiencia y eficacia en busca de la plena satisfacción de las PERSONAS USUARIAS, ejerciendo sus funciones con independencia funcional y de criterio, respecto del JERARCA y los demás componentes de la administración activa de la INSTITUCIÓN.

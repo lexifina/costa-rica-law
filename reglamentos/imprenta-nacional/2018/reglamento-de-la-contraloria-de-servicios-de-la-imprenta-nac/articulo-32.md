@@ -1,0 +1,1 @@
+Artículo 32.—Procesos de mejoramiento continuo e innovación de los servicios. La CONTRALORÍA, en su condición de unidad asesora del JERARCA, velará por que la INSTITUCIÓN desarrolle e implemente procesos de mejora continua y de innovación, en aras de mantener la calidad en los servicios y de satisfacer las necesidades y expectativas de las PERSONAS USUARIAS.

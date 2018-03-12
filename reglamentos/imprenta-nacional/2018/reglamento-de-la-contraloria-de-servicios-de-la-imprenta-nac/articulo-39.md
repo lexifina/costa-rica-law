@@ -1,0 +1,1 @@
+Artículo 39.—El presente Reglamento deroga el Reglamento de Contralorías, aprobado por la Junta Administrativa de la Imprenta Nacional mediante Acuerdo Nº 145-05-09 tomado en sesión extraordinaria Nº 121 del 04 de mayo del 2009, publicado en La Gaceta Nº 103 del 29 de mayo del 2009, así como toda aquella directriz o disposición interna que se le oponga.

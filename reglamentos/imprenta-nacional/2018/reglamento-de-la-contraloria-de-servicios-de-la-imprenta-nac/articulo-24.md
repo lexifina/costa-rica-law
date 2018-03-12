@@ -1,0 +1,2 @@
+Artículo 24.—Confidencialidad de la identidad de la PERSONA USUARIA. Al presentar su gestión ante la CONTRALORÍA, la PERSONA USUARIA podrá solicitar guardar confidencia sobre su identidad.
+La contraloría de servicios valorará, de forma discrecional, la posibilidad y conveniencia de brindar la confidencialidad, salvo cuando por disposición legal u orden judicial sea imperativo o, en su caso, no resulte posible.

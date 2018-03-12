@@ -1,0 +1,1 @@
+Artículo 6º—Relación jerárquica. La CONTRALORÍA dependerá orgánicamente de la Dirección General de la Imprenta Nacional, según lo establecido en el Organigrama institucional aprobado por MIDEPLAN, mediante oficio 402-13 de 29 de julio de 2013.

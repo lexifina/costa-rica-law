@@ -1,0 +1,1 @@
+Artículo 29.—Políticas de calidad. El JERARCA deberá implementar políticas de calidad, en los servicios que brindan a las PERSONAS USUARIAS. En el cumplimiento de esta responsabilidad, la CONTRALORÍA brindará la colaboración y asesoría para el desarrollo de esas políticas, para lo cual se les dotará de los recursos necesarios.

@@ -1,0 +1,6 @@
+Artículo 15º—Potestades de la PERSONA CONTRALORA. Para cumplir sus funciones tendrá las siguientes potestades:
+a) Libre acceso, en cualquier momento, a todos los archivos y documentos de la institución, así como a otras fuentes de información relacionadas con la prestación de los servicios, excepto secretos de Estado e informes técnicos que puedan servir para la sustentación de procedimientos administrativos que estén pendientes de ser firmados, o de resolución e información personalísima de las personas funcionarias o usuarias.
+b) Podrá solicitar a cualquier instancia interna de la INSTITUCIÓN, la información necesaria para el cumplimiento de sus funciones, en concordancia con el artículo 23, incisos 1 y 2 de la LEY. En caso de que no se atienda la solicitud, se aplicará lo establecido en el artículo 44 de la LEY.
+c) Actuar como persona mediadora en la búsqueda de una solución más adecuada a las gestiones planteadas, con el fin de hacer más ágil y eficiente la prestación de los servicios.
+d) Ejecutar sus funciones con libertad de criterio, con respecto a los demás órganos o dependencias de la administración activa.
+e) Requerir por parte de los diferentes órganos y unidades administrativas de la INSTITUCIÓN, la colaboración, el asesoramiento y las facilidades necesarias para el desempeño de sus funciones.

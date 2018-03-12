@@ -1,0 +1,1 @@
+Artículo 30.—Estándares de calidad. Es responsabilidad del jerarca establecer estándares de calidad en los servicios que brindan a las PERSONAS USUARIAS. En el cumplimiento de esta responsabilidad, la CONTRALORÍA brindará la colaboración y asesoría para el desarrollo de esos estándares, para lo cual se les dotará de los recursos necesarios.

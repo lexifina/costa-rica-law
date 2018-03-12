@@ -1,0 +1,1 @@
+Artículo 27.—Traslado de gestiones. Las gestiones que se presenten ante la CONTRALORÍA, y que se determine, luego de un análisis previo, que no corresponden a las funciones y atribuciones propias de ésta, serán trasladadas para su atención a las instancias internas o externas pertinentes, de conformidad con lo estipulado en el artículo 15 de la LEY.

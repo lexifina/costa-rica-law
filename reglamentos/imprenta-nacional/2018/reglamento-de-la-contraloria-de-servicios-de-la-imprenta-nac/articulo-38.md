@@ -1,0 +1,1 @@
+Artículo 38. —Sobre el contenido de este informe. Por ser la CONTRALORÍA un órgano asesor del JERARCA y tener independencia funcional y de criterio respecto del JERARCA y los demás componentes de la administración activa, no deberá intervenir en la formulación de este informe, no obstante podrá facilitar la información pertinente sobre este particular.

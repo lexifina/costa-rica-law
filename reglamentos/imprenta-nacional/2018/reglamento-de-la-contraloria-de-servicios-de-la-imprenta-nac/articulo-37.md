@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Obligaciones del Jerarca
+Artículo 37. — Informe anual del JERARCA. De conformidad con el artículo 37 de la LEY, el JERARCA de la INSTITUCIÓN deberá presentar un informe anual, ante la SECRETARÍA TÉCNICA sobre las acciones desarrolladas por la organización, como respuesta a las recomendaciones dirigidas a la administración activa por la CONTRALORÍA, tanto de las ejecutadas, como de las que no fueron avaladas. De estas últimas, debe indicar las razones que justifiquen tal decisión. Debe preparar este informe siguiendo la metodología creada por la SECRETARIA de MIDEPLAN y remitirlo durante el primer trimestre de cada año.

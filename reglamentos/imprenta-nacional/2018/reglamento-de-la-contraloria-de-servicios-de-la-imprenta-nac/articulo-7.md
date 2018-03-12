@@ -1,0 +1,1 @@
+Artículo 7º—Independencia de la CONTRALORÍA. Las contralorías de servicios ejercerán sus funciones con independencia funcional y de criterio respecto del jerarca y los demás componentes de la administración activa de la organización.
