@@ -1,4 +1,0 @@
-CAPÍTULO IV ANÁLISIS PRELIMINAR DEL NEGOCIO
-Artículo 11. Orientación de las Asociaciones Empresariales. Toda forma de asociación empresarial deberá ser congruente con los objetivos estratégicos del ICE y estar orientada a fortalecer su estrategia y/o participación relativa en el mercado, así como el mejor aprovechamiento posible de los recursos desde una perspectiva sectorial.
-Las asociaciones empresariales que realice el ICE deberán considerar aspectos tales como: a) retorno de la inversión y/o otros indicadores financieros; b) beneficios de la asociación empresarial, incluyendo fidelización y retención, c) valor agregado a los productos; d) potencial del negocio, etc.
-Las negociaciones se inspirarán en los principios de buena fe, ética, equilibrio de intereses, razonabilidad, colaboración, confianza, responsabilidad, probidad y eficiencia.

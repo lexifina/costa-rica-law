@@ -1,1 +1,0 @@
-Artículo 20. Refrendo en contratos administrativos bajo la modalidad de alianza estratégica. De conformidad con el artículo 3 del Reglamento sobre el Refrendo de las contrataciones de la Administración Pública (código R-44-2007-CO-DCA) y sus reformas, este tipo de contratos no requieren refrendo.

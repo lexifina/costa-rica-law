@@ -1,1 +1,0 @@
-Transitorio II: El presente Reglamento deja sin efecto el Reglamento de Alianzas Estratégicas y Otras Formas de Asociación y Colaboración Empresarial aprobado por el Consejo Directivo en el artículo 5 de la Sesión 5927 del 26 de octubre del 2010, así como cualquier otra normativa, directriz y lineamiento o circular que se le oponga.
