@@ -1,0 +1,1 @@
+Artículo 41: El ente generador deberá almacenar los residuos hasta que se realice la recolección por parte de la Municipalidad de Garabito, según las rutas y horarios establecidos en la página web del ente municipal.

@@ -1,0 +1,1 @@
+Artículo 19: Cada ente generador deberá manipular los residuos reciclables tipo latón, plástico, latas: eliminando todo material adherido o agregado al producto reciclable, eliminando restos de comida o líquidos, lavando y enjuagando, limpiando y secando los mismos previo a la segregación y compactando el residuo, siempre que su material lo permita.

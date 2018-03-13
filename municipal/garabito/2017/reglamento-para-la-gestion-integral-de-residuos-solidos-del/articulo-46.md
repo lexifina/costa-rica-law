@@ -1,0 +1,1 @@
+Artículo 46: El Departamento de Ingeniería Ambiental deberá realizar la planificación, ejecución presupuestaria y evaluación del servicio de recolección de manera que se realice una mejora continua del servicio. Además, deberá planificar las rutas y horarios de recolección de manera que garantice el cumplimiento del servicio.

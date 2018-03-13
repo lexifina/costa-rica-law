@@ -1,0 +1,1 @@
+Artículo 26: Cada ente generador deberá manipular los residuos especiales tipo chatarra liviana usando el equipo de protección personal en todo momento e identificando puntas o bordes filosos con pintura en aerosol o cinta amarilla de precaución.

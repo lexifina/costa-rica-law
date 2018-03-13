@@ -1,0 +1,1 @@
+Artículo 6: El Departamento de Ingeniería Ambiental tendrá a cargo la sub- área de Gestión Integral de Residuos que será la responsable de velar por la ejecución, cumplimiento y monitoreo del presente reglamento y la legislación vigente en materia de residuos.

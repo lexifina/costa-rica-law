@@ -1,0 +1,1 @@
+Artículo 69: La Alcaldía Municipal deberá solicitar y velar para que los departamentos Municipales cumplan con las responsabilidades que establece este reglamento así como las definidas mediante la legislación actual vigente para el cumplimiento del Plan de Gestión Integral de Residuos.

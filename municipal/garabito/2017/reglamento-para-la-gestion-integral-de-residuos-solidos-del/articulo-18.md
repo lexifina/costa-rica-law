@@ -1,0 +1,1 @@
+Artículo 18 Cada ente generador deberá manipular los residuos reciclables tipo cartón y papel, manteniendo limpio y seco el material, recuperando únicamente partes sin grasas y aceites, eliminando todo material adherido o agregado al producto reciclable y acondicionándolo en pacas atadas con cuerda o mecate.

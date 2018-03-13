@@ -1,0 +1,1 @@
+Artículo 30: Los entes generadores de residuos ordinarios deberán separar los residuos en tres categorías desechables, biodegradables y reciclables de manera diaria y constante en contenedores o bolsas que no pesen más de 15kg.

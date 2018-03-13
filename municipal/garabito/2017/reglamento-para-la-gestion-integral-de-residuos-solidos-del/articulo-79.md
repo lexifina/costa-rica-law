@@ -1,0 +1,1 @@
+Artículo 79: Residencial La tarifa residencial se aplica a toda unidad habitacional en donde no exista o se posea una patente, y en donde el promedio estimado de generación de residuos sea inferior a 73,4 kilogramos por mes. La tarifa residencial se toma como factor de ponderación1.

@@ -1,0 +1,1 @@
+Artículo 27: Cada ente generador deberá manipular los residuos especiales tipo metales eliminando líquidos de todo tipo (lubricantes, selladores, etc.), retirando filtros de aceite, removiendo, eliminando o desmontando almacenamientos o piezas con hidrocarburos (líquidos de freno, tuberías, pistones, bombas, depósitos de grasa auxiliar, sistemas de enfriamiento).

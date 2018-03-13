@@ -1,0 +1,1 @@
+Artículo 40: El área de almacenamiento de residuos deberá responder a la cantidad de residuos generada en un tiempo definido. Para el caso del Cantón de Garabito este tiempo deberá ser mínimo 3 días para residuos desechables, 2 días para biodegradables y 6 días para reciclables. Los especiales dependerán de cada ente generador ya que es el responsable de su gestión integral.

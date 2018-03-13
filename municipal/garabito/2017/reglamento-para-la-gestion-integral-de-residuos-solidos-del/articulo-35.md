@@ -1,0 +1,1 @@
+Artículo 35: Los entes generadores de residuos especiales deberán separar los residuos por tipo, sin mezclarlos con las categorías anteriores: escombro, madera, chatarra liviana, metales, hule y subproductos, eléctrico, bioinfecciosos y peligrosos.

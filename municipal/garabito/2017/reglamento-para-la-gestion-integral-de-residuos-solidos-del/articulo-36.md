@@ -1,0 +1,1 @@
+Artículo 36: Los entes generadores de residuos deberán colocar en el interior del comercio, institución, hogar u otro una estación completa (3 contenedores, de acuerdo a la clasificación definida en el Capítulo 3) en un sitio donde se encuentren constantemente las personas. Y eliminar otros recipientes de disposición final con el fin de fomentar la segregación de residuos.

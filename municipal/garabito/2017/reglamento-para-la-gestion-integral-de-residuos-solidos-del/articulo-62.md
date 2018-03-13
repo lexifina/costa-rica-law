@@ -1,0 +1,1 @@
+Artículo 62: Tratamiento de residuos desechables. La Municipalidad de Garabito será la responsable, mediante las facultades y cumplimiento de la legislación vigente, de tratar los residuos desechables. Durante el período del primer Plan de Gestión Integral de Residuos esto será realizado mediante la técnica del relleno sanitario.

@@ -1,0 +1,1 @@
+Artículo 21: Cada ente generador deberá manipular los residuos reciclables tipo tetrapak eliminando todo material adherido o agregado al producto reciclable, debiendo desarmar las esquinas pegadas y aplastar. Eliminar restos de comida o líquidos, lavar y enjuagar, limpiar y secar previo a la segregación y acondicionarlos en pacas atadas con cuerda o mecate.

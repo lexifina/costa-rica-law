@@ -1,0 +1,1 @@
+Artículo 53: La Municipalidad de Garabito deberá a mediano plazo (5 años o quinquenio) realizar la recolección y transporte de residuos de acuerdo a la categoría de residuos definida en el Capítulo 3.

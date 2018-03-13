@@ -1,0 +1,1 @@
+Artículo 33: Los entes generadores de residuos deberán separar los residuos reciclables en bolsas transparentes de tamaños al menos 30cmx30cmx50cm, bolsas identificadas como reciclables o contenedores independientes identificados como residuos reciclables.

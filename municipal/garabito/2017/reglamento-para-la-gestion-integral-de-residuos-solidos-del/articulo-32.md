@@ -1,0 +1,1 @@
+Artículo 32: Los entes generadores de residuos deberán separar los residuos biodegradables en bolsas verdes de tamaños al menos 30cmx30cmx50cm, identificadas o bien contenedores independientes identificados como residuos biodegradables.

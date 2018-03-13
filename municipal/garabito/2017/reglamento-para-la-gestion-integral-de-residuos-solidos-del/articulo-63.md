@@ -1,0 +1,1 @@
+Artículo 63: La Municipalidad de Garabito será la responsable durante este periodo de ejecución de plantear el análisis y determinación de factibilidades económicas, ambientales y sociales de tecnologías alternativas al relleno sanitario para los residuos generados en su cantón.

@@ -1,0 +1,1 @@
+Artículo 44: La Municipalidad de Garabito deberá recolectar únicamente los residuos que se encuentren en las condiciones de manipulación, segregación y almacenamiento estipuladas en los artículos anteriores.

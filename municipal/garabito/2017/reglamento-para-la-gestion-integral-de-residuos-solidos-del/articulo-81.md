@@ -1,0 +1,1 @@
+Artículo 81: Cabina 1 (CAB-1): Rango de 1 a 37 kg/mes (Ponderación = 0,5). Son cabinas sin equipar, se ofrece al huésped la cama, abanico con baño y en algunos lugares un televisor, por lo tanto no hay posibilidad de preparar alimentos.

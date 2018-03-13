@@ -1,0 +1,1 @@
+Artículo 68: La Alcaldía Municipal deberá de garantizar que el Departamento de Ingeniería Ambiental cuente con los recursos económicos, humanos, tecnológicos y materiales requeridos para desarrollar las responsabilidades legales y técnicas que conlleva la Gestión Integral de Residuos.

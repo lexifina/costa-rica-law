@@ -1,0 +1,1 @@
+Artículo 24: Cada ente generador deberá manipular los residuos especiales tipo escombro, eliminando objetos punzocortantes, colocando estos objetos en caja o bolsas con rotulación forrados con material aislante, usando el equipo de protección personal en todo momento, identificando puntas o bordes filosos con pintura en aerosol o cinta amarilla de precaución.

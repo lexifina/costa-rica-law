@@ -1,0 +1,1 @@
+Artículo 5: Formalícese el departamento de Ingeniería Ambiental de la Municipalidad de Garabito que formulará políticas, estrategias, ejecutará y evaluará soluciones ambientales requeridas para el desarrollo sostenible y adaptación al cambio climático en el Cantón de Garabito de acuerdo a las competencias y capacidades municipales.

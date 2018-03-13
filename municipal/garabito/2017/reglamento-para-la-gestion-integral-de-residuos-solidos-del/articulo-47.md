@@ -1,0 +1,1 @@
+Artículo 47: La Municipalidad de Garabito comunicará de manera oportuna a la comunidad cualquier fallo, inconveniente o problema asociado de los servicios prestados. Esto será realizado por medio del área, responsables de comunicación o bien mediante la persona designada por el alcalde.

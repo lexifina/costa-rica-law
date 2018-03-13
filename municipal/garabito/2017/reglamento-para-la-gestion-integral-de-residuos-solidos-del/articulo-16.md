@@ -1,0 +1,1 @@
+Artículo 16: Cada ente generador deberá manipular los residuos biodegrables tipo poda y jardín liberando los residuos de objetos y otros materiales. La corta y poda deberá ser de no más de 80cm de largo, reduciendo su volumen al máximo.

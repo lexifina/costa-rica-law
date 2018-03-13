@@ -1,0 +1,1 @@
+Artículo 59: Los entes generadores de residuos especiales deberán gestionar con terceros (debidamente autorizados) el tratamiento de los residuos tipo escombro, madera, chatarra liviana, metales, hule y subproductos, eléctrico, bioinfecciosos y peligrosos.

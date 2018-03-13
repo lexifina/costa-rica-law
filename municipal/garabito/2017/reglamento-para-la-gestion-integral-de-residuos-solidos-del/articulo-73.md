@@ -1,0 +1,1 @@
+Artículo 73: Tasa de generación Para la implementación de esta tasa de generación de residuos la Municipalidad de Garabito realizará, actualizará o revisará los estudios técnicos correspondientes anualmente. En estos se definirán entes generadores, categorías, tasas de generación, costos, inversiones, y tarifa para cada categoría entre otros.

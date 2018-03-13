@@ -1,0 +1,1 @@
+Artículo 8: A partir de los residuos identificados, el ente generador deberá tomar las acciones dispuestas en el presente reglamento y legislación nacional vigente en cuanto a la Gestión Integral de Residuos.

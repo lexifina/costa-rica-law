@@ -1,0 +1,3 @@
+Capítulo 3
+Identificación de residuos
+Artículo 7: Cada ente generador deberá identificar el tipo, cantidad y composición de los residuos que genera. En el caso de comercio, industria e instituciones público y privado deberán ser reportados en conjunto con su Programa de Manejo Integral de Residuos, aprobado por las instituciones competentes, al Departamento de Patentes. Esto deberá reportarse al solicitar, renovar, trasladar, modificar su patente o realizar solicitudes relacionadas a la Gestión Integral de Residuos. Finalmente, el Departamento de Patentes realizará su traslado al Departamento de Ingeniería Ambiental.

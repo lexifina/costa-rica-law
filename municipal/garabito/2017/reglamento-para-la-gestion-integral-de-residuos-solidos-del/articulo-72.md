@@ -1,0 +1,1 @@
+Artículo 72: Modelo de financiamiento El pago por los servicios asociados a la Gestión Integral de Residuos será realizado por medio de tasa de generación de residuos de cada ente generador. Esto de acuerdo al Capítulo 14 Factores de Ponderación.

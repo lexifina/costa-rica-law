@@ -1,0 +1,1 @@
+Artículo 20: Cada ente generador deberá manipular los residuos reciclables tipo vidrio eliminando todo material adherido o agregado al producto reciclable, eliminando restos de comida o líquidos, lavando y enjuagando, limpiando y secando previo a la segregación.

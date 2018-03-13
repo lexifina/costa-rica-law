@@ -1,0 +1,1 @@
+Artículo 75: Incorporación de verificación de categoría y servicios por medio del departamento de inspecciones y Departamento de policía municipal Se incorporará al proceso de inspecciones municipales y policía municipal la inspección de la categoría de servicios. De acuerdo al procedimiento definido en el capítulo Factores de ponderación, artículo 94

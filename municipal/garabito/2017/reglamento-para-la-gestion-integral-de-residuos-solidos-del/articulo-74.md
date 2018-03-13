@@ -1,0 +1,1 @@
+Artículo 74: Incorporación de tarifas desde el momento de la construcción El Departamento de Desarrollo Urbano incorporará al proceso de permiso de construcción la tarifa por la categoría que ocupará el inmueble desde el momento de la solicitud del permiso.

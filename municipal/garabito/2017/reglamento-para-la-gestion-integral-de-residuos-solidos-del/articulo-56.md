@@ -1,0 +1,1 @@
+Artículo 56: Los entes generadores que transporten sus residuos especiales al sitio de disposición final aprobado por el Ministerio de Salud o al Relleno Sanitario de Garabito por sus propios medios deberán cumplir con lo establecido en los artículos anteriores así como los lineamientos del Capítulo 11 de Disposición final.

@@ -1,0 +1,1 @@
+Artículo 65: Todo ente generador deberá realizar la disposición final de sus residuos por medio de la Municipalidad de Garabito o bien trasladarlos por sus propios medios hasta un sitio de disposición final con todos los requerimientos legales.

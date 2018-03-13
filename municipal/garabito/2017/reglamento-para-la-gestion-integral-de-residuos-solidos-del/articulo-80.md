@@ -1,0 +1,1 @@
+Artículo 80: Kioscos o miniventas (K): Rango de 1 a 37 kg/mes (Ponderación = 0,5). Estos se constituyen en lo que se pueden denominar kioscos o mini ventas de productos como celulares, artesanías y venta al detalle. Se asigna una ponderación equivalente a la mitad de lo que genera una vivienda (0,5).

@@ -1,0 +1,1 @@
+Artículo 91: Incentivos tarifarios para la reducción de residuos. La Municipalidad de Garabito fortalecerá el módelo tarifario de manera que se diferencie el cobro una vez que el ciudadano haya realizado las acciones preventivas, manipulación, clasificación, segregación, almaceneamiento y recolección de los residuos de manera óptima para cada tipo de material.

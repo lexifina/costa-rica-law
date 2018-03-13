@@ -1,0 +1,1 @@
+Artículo 9: La Municipalidad de Garabito contará con un registro de entes generadores de acuerdo a la categorización del Anexo 1. Adicionalmente contará con los tipos, cantidades y composiciones de los residuos generados.

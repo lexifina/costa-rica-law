@@ -1,0 +1,1 @@
+Artículo 60: Tratamiento de residuos reciclables. La Municipalidad de Garabito será la responsable, mediante las facultades y cumplimiento de la legislación vigente, de tratar los materiales reciclables de manera que sean separados y acondicionados de acuerdo a los requisitos de los compradores que los hagan aptos para su valorización.

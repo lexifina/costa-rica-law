@@ -1,0 +1,1 @@
+Artículo 31: Los entes generadores que utilicen bolsas deberán implementar bolsas que soporten la tensión ejercida por los residuos contenidos y la manipulación. Adicionalmente deben de permitir el cierre adecuado de manera que si está cerrado no permita la entrada de agua, insectos o roedores ni el escape de líquidos. De acuerdo a legislación vigente.

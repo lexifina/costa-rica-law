@@ -1,0 +1,1 @@
+Artículo 71: Responsabilidad La Dirección de Hacienda Municipal deberá realizar los estudios y análisis para la actualización de la tarifa de los servicios municipales asociados a la Gestión Integral de Residuos a partir de los requerimientos e insumos del Departamento de Ingeniería Ambiental.
