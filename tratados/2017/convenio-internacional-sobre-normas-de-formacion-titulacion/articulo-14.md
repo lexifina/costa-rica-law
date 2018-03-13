@@ -1,0 +1,7 @@
+ARTICULO XIV
+Entrada en vigor
+1) El Convenio entrará en vigor doce meses después de la fecha en que por lo menos veinticinco Estados cuyas flotas mercantes combinadas representen como mínimo el 50% por ciento del tonelaje bruto de la flota mundial de buques mercantes de arqueo bruto igual o superior a 100 toneladas de registro lo hayan firmado sin reserva en cuanto a ratificación, aceptación o aprobación, o hayan depositado los pertinentes instrumentos de ratificación, aceptación, aprobación o adhesión, de conformidad con el Artículo XIII.
+2) El Secretario General informará a todos los Estados que hayan firmado el Convenio o se hayan adherido al mismo de la fecha en que éste entre en vigor.
+3) Todo instrumento de ratificación, aceptación, aprobación o adhesión depositado durante los doce meses a que se hace referencia en el párrafo 1) adquirirá efectividad a partir de la fecha de entrada en vigor del Convenio o tres meses después de la fecha en que fue depositado el instrumento si esta fecha es posterior.
+4) Todo instrumento de ratificación, aceptación, aprobación o adhesión depositado con posterioridad a la fecha de entrada en vigor del Convenio adquirirá efectividad tres meses después de la fecha en que fue depositado.
+5) Todo instrumento de ratificación, aceptación, aprobación o adhesión depositada con posterioridad a la fecha en que se haya considerado aceptada una enmienda en virtud del Artículo XII se considerará referido al Convenio en su forma enmendada.

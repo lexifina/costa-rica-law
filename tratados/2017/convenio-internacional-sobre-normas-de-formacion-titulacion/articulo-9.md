@@ -1,0 +1,4 @@
+ARTICULO IX
+Equivalencias
+1) Lo dispuesto en el Convenio no impedirá que la Administración mantenga o adopte otros planes de instrucción y formación, incluidos los que entrañen periodos de embarco y una organización a bordo especialmente adaptados a adelantos técnicos y a clases especiales de buques y de tráfico, a condición de que el periodo de embarco, los conocimientos y la eficiencia exigidos en cuanto al gobierno del buque y a la manipulación de la carga, tanto en el aspecto náutico como en el técnico, sean tales que garanticen un grado de seguridad en el mar y de prevención de la contaminación que sea cuando menos equivalente al prescrito en el Convenio.
+2) A la mayor brevedad posible se pondrán en conocimiento del Secretario General los pormenores de tales planes y éste los hará llegar a todas las Partes.
