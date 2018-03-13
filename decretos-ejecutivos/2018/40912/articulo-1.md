@@ -1,0 +1,17 @@
+N° 40912-MOPT
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+Con fundamento en los artículos 140 incisos 3), 8) y 18), y 146 de la Constitución Política de la República de Costa Rica; 25 inciso 1) y 28 inciso 2, acápite b) de la Ley N° 6227, Ley General de la Administración Pública del 2 de mayo de 1978.
+Considerando:
+1º—Que el MOPT es el órgano rector del Sector Transporte e Infraestructura y mediante la planificación, coordinación, regulación, control y fiscalización de dicho Sector; participa en la promoción tanto a nivel público como privado de medidas que contribuyan a mejorar y reducir los impactos medioambientales ocasionados por el transporte.
+2º—Que Costa Rica, por su ubicación geográfica, cuenta con una riqueza natural que en parte del territorio nacional es conservada mediante Parques Nacionales y Reservas.
+3º—Que el Banco Mundial, en el 2012 reconoció a Costa Rica como líder mundial en medio ambiente por sus iniciativas de concientización de la población y el uso sostenible de los recursos naturales, protegiendo cerca del 12% mediante el Programa de Pago por Servicios Ambientales (PPSA).
+4º—Que existen compromisos a nivel nacional e internacional de proteger el medio ambiente, lo cual se ha plasmado formalmente en diferentes documentos y metas como la carbono neutralidad en el año 2021 y la estrategia planteada para eliminar los plásticos de un solo uso.
+5º—Que el Plan Nacional de Transportes de Costa Rica 2011- 2035, como una de las metas de la visión integrada de transportes en 2035 establece “Asegurar la sostenibilidad del sistema de transportes como una vía de minimizar su impacto en el ambiente...”
+6º—Que se requiere de la creación de espacios de aprendizaje a nivel nacional donde las empresas públicas y privadas puedan tener acceso a nuevo conocimiento, a través de ponencias y exposiciones de expertos nacionales e internacionales, y de mecanismos utilizados en el exterior, entre otros; con el fin de incorporar las acciones que se requieren a nivel nacional para el mejoramiento continuo de la temática ambiental en los proyectos de carreteras.
+7º—Que bajo la filosofía antes señalada nace el “Seminario Internacional sobre “Consideraciones Medioambientales en Proyectos y Operación de Carreteras”, promovido por la Asociación Mundial de la Carretera (PIARC) en coordinación con el Ministerio de Obras Públicas y Transportes (MOPT), y el Consejo Nacional de Vialidad (CONAVI).
+8º—Que el Seminario Internacional sobre “Consideraciones Medioambientales en Proyectos y Operación de Carreteras”, se llevará a cabo del 18 al 20 de abril del 2018, en Costa Rica, siendo un reconocimiento para el país ser acogido como sede de tan importante actividad.
+9º—Que es de interés nacional el intercambio de ideas y experiencias así como el seguimiento a los programas y proyectos en materia medioambiental.
+10.—Que en esta actividad se expondrán y analizarán un número importante de trabajos científicos y experiencias permitiendo de esta manera la adquisición e intercambio de nuevos conocimientos y la identificación de acciones a seguir, que sin duda alguna beneficiarán a nuestro país. Por tanto,
+Decretan:
+Artículo 1º—Declaratoria. Se declara de interés público y nacional el “Seminario Internacional sobre “Consideraciones Medioambientales en Proyectos y Operación de Carreteras” de la Asociación Mundial de la Carretera (PIARC), que se llevará a cabo en San José, Costa Rica del 18 al 20 de abril del 2018.
