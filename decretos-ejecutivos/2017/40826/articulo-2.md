@@ -1,1 +1,0 @@
-Artículo 2º—Deróguese el Decreto Ejecutivo número 40655-H del 18 de setiembre de 2017, publicado en el Alcance número 234 a La Gaceta número 183 del 27 de setiembre de 2017, a partir de la vigencia del presente decreto.
