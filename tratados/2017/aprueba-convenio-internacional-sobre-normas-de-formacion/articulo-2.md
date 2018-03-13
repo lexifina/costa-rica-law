@@ -1,0 +1,1 @@
+ARTÍCULO 2. -Se designa a la Dirección de Navegación y Seguridad de la División Marítimo Portuaria del Ministerio de Obras Públicas y Transportes, como Administración Marítima y órgano competente de la Administración Pública, para la implementación, aplicación y control del presente Convenio.

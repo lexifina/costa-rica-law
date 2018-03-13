@@ -1,0 +1,2 @@
+ARTÍCULO 4.- El Poder Ejecutivo, mediante decreto, fijará las tarifas a pagar por concepto de inscripción y acreditación de la gente de mar que realice la Dirección de Navegación y Seguridad de la División Marítimo Portuaria del Ministerio de Obras Públicas y Transportes.
+Dichas tarifas deberán ser canceladas en las instancias recaudadoras que determine el ordenamiento jurídico y deberán presupuestarse y ejecutarse, exclusivamente, para el cumplimiento de las competencias y funciones dispuestas en la presente ley.

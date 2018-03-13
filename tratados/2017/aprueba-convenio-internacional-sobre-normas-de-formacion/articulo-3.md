@@ -1,0 +1,1 @@
+ARTÍCULO 3.- El Gobierno de la República de Costa Rica interpreta, en relación con el artículo XII relativo a las enmiendas al Convenio Internacional sobre Normas de Formación, Titulación y Guardia para la Gente de Mar, 1978, que dichas enmiendas tendrán vigencia en el país, una vez que hayan sido aprobadas por la Asamblea Legislativa y ratificadas por el Poder Ejecutivo.
