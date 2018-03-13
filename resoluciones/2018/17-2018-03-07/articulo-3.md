@@ -1,0 +1,3 @@
+III. Las tarifas rigen a partir del día natural siguiente al de la publicación de este acto en el Diario Oficial La Gaceta.
+De conformidad con lo que ordena el artículo 245, en relación con el 345 de la Ley General de la Administración Pública, se indica que contra esta resolución pueden interponerse los recursos ordinarios de revocatoria y de apelación. El de revocatoria y apelación deberán interponerse ante la Intendencia de Transporte, resolviendo el primero de ellos y el segundo se eleva al superior jerárquico.
+Los recursos de revocatoria y de apelación deberán interponerse en el plazo de tres días hábiles contados a partir del día hábil siguiente a la notificación de esta resolución.
