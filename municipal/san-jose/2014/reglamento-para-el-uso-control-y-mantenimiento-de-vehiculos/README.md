@@ -15,3 +15,4 @@ Reglamento para el uso, control y mantenimiento de vehículos de la Municipalida
 | --- | --- | --- |
 | 1 | 2015-01-09 | la propia norma |
 | 2 | 2016-04-25 | Reglamento municipal 151 (2016-04-25) |
+| 3 | 2018-03-13 | Reglamento municipal 98 (2018-03-13) |
