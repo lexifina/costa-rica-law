@@ -1,0 +1,2 @@
+Artículo 12: Periodicidad de divulgación al jerarca
+La Secretaría Ejecutiva deberá entregar un informe trimestral al jerarca de la institución, sobre las modificaciones presupuestarias que hayan sido aprobadas en el trimestre respectivo por las instancias designadas, con amplia información sobre los principales ajustes efectuados por ese medio al presupuesto institucional y al plan anual, salvo en situaciones en las que por indicación previa del jerarca se requiera una comunicación inmediata sobre el movimiento realizado.

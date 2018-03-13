@@ -1,0 +1,2 @@
+Artículo 22: Remisión Externa de documentación
+La Secretaría Ejecutiva dispondrá de dos días hábiles para trasladar a la Sección de Programación y Evaluación el acuerdo de aprobación correspondiente. La Sección de Programación y Evaluación, una vez recibido el oficio de aprobación, dispondrá de tres días hábiles para remitir a la Autoridad Presupuestaria y a la Contraloría General de la República, las modificaciones y los presupuestos extraordinarios, así como para ingresar lo correspondiente al Sistema de Información de la Contraloría General de la República.

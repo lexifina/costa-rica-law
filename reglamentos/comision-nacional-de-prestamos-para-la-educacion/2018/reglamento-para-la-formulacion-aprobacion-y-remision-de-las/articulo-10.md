@@ -1,0 +1,3 @@
+Artículo 10: Cantidad anual de modificaciones presupuestarias
+Se establece en total para los diferentes niveles de aprobación un máximo de diez modificaciones presupuestarias al año, para atender las necesidades institucionales, sin embargo, se podrán realizar extraordinarias avaladas de previo por la Secretaría Ejecutiva.
+El monto máximo de recursos que se redistribuya sumando todas las modificaciones presupuestarias no podrá exceder el monto definido por la Contraloría General de la República para cada ejercicio presupuestario, tal como lo establecen las Normas Técnicas sobre Presupuestos Públicos.

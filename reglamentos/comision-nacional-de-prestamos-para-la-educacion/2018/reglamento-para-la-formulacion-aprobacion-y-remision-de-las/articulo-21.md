@@ -1,0 +1,2 @@
+Artículo 21: Formato de Remisión de documentación
+La Sección de Programación y Evaluación remitirá a la Autoridad Presupuestaria y la Contraloría General de la forma que esté definida por el ente fiscalizador, para el trámite de aprobación presupuestaria externa, según el detalle definido en el clasificador de ingresos vigente al periodo presupuestario que se trate. Por su parte, lo correspondiente a la sección de egresos se presentará en el nivel de subpartida de los programas presupuestarios y del resumen institucional.
