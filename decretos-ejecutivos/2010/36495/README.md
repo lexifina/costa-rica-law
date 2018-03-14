@@ -15,3 +15,4 @@ Reglamento para el Uso de los Recursos Tecnológicos de Información del Ministe
 | --- | --- | --- |
 | 1 | 2011-03-30 | la propia norma |
 | 2 | 2012-06-27 | Decreto Ejecutivo 37207 (2012-06-27) |
+| 3 | 2018-03-14 | Decreto Ejecutivo 41109 (2018-03-14) |
