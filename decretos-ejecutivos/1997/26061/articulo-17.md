@@ -1,4 +1,1 @@
-Artículo 17.—Del Departamento de Información Penitenciaria.
-Son funciones del Departamento de Información de la Policía Penitenciaria:
-a. Coordinar y planificar las acciones tendientes a la captación de información, que permitan tomar acciones que prevengan situaciones de emergencia, así como el favorecimiento de toma de decisiones oportunas, en los Centros Penitenciarios a nivel nacional; y,
-b. Todas las demás que le encomiende la Dirección de la Policía Penitenciaria.
+Artículo 17.— (Derogado por el artículo 155 del (actual 158) Reglamento de organización administrativa del Ministerio de Justicia y Paz, aprobado mediante decreto ejecutivo N° 41109 del 14 de marzo de 2018)

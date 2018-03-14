@@ -1,5 +1,1 @@
-Artículo 18.—Del Departamento de Atención Psicológica.
-Son funciones del Departamento de Atención Psicológica de la Policía Penitenciaria:
-a. Atención y apoyo en psicología grupal e institucional, orientada a la intervención con los equipos de trabajo de los miembros de la Policía Penitenciaría;
-b. Coordinar y detectar necesidades de capacitación para los miembros de la Policía Penitenciara; y,
-c. Todas aquéllas que le encomiende la Dirección de la Policía Penitenciaría.
+Artículo 18.— (Derogado por el artículo 155 (actual 158) del Reglamento de organización administrativa del Ministerio de Justicia y Paz, aprobado mediante decreto ejecutivo N° 41109 del 14 de marzo de 2018)

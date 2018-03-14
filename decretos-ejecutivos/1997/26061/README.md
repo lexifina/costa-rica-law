@@ -18,3 +18,4 @@ Reglamento General de la Policía Penitenciaria
 | 3 | 2002-05-02 | Decreto Ejecutivo 30360 (2002-05-02) |
 | 4 | 2014-11-18 | Decreto Ejecutivo 39046 (2014-11-18) |
 | 5 | 2016-05-13 | Decreto Ejecutivo 39864 (2016-05-13) |
+| 6 | 2018-03-14 | Decreto Ejecutivo 41109 (2018-03-14) |
