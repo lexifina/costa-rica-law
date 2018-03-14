@@ -1,1 +1,0 @@
-Artículo 3º—Las funciones de la Unidad para la Igualdad de Género del Ministerio de Justicia y Paz, son las que se establecen en el artículo 4° del Decreto Ejecutivo N° 37906-MP-MCM, así como todas aquellas que en el futuro lleguen a crearse.

@@ -1,1 +1,0 @@
-Artículo 4º—Es también competencia de la persona responsable de la Unidad para la Igualdad de Género del Ministerio de Justicia y Paz coordinar y participar en la red de unidades para la igualdad de género convocadas por el Instituto Nacional de las Mujeres (INAMU).
