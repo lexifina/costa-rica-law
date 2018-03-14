@@ -1,2 +1,0 @@
-Artículo 7°-El cargo de Viceministro/a de Gestión Estratégica será ejercido por el Oficial Mayor, como recargo. La organización que por esta vía se establece no supondrá incremento en el gasto público pues se redistribuirán los recursos materiales y humanos existentes."
-(Así adicionado por el artículo 3° del decreto ejecutivo N° 39967 del 3 de octubre de 2016. Anteriormente este artículo había sido derogado por el artículo 2° del decreto ejecutivo N° 38599 del 14 de agosto del 2014)
