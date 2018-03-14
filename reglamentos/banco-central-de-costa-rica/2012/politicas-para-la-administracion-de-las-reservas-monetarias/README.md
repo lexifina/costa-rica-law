@@ -19,3 +19,4 @@ Políticas para la Administración de las Reservas Monetarias Internacionales
 | 4 | 2013-07-10 | Reglamento 5602 (2013-07-10) |
 | 5 | 2014-06-25 | Reglamento 5651 (2014-06-25) |
 | 6 | 2017-03-22 | Reglamento 5763 (2017-03-22) |
+| 7 | 2018-03-14 | Reglamento 5819 (2018-03-14) |

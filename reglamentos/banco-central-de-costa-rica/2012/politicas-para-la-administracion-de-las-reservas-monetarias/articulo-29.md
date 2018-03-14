@@ -1,1 +1,3 @@
-Artículo 29.—Parámetro de referencia. El desempeño de esta cartera será contrastado con el índice de referencia de notas del tesoro de Estados Unidos de América con plazo al vencimiento entre 3 y 6 meses, calculado por la entidad Merrill Lynch (ticket de Bloomberg: G0B2).
+Artículo 29.—Parámetro de referencia.
+El desempeño de esta cartera será contrastado con el índice de referencia de bonos del Tesoro de los Estados Unidos con plazo al vencimiento entre uno y tres años, calculado por Bloomberg (ticker de Bloomberg: LT01TRUU).
+(Así reformado mediante sesión N° 5819-2018 del 14 de marzo de 2018)
