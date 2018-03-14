@@ -14,3 +14,4 @@ Procedimientos de las Directrices Generales de Política Presupuestaria, Salaria
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-01-01 | la propia norma |
+| 2 | 2018-03-14 | Decreto Ejecutivo 40980 (2018-03-14) |
