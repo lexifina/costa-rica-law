@@ -1,3 +1,0 @@
-Transitorio Segundo. —El Ministerio de (*)Justicia y Paz solicitará a la Dirección General de Servicio Civil, el estudio integral de las plazas que compondrán la Dirección Jurídica de la Institución, y asignará al régimen de Servicio Civil aquellas que no lo estén, debiendo en su oportunidad dicha Dirección General aplicar a quienes corresponda lo establecido en el artículo 11 del Reglamento al Estatuto de Servicio Civil y el Transitorio VII de la Ley de Salarios de la Administración Pública.
-(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
-Dado en la Presidencia de la República.—San José, a los cuatro días del mes de febrero de mil novecientos noventa y tres.

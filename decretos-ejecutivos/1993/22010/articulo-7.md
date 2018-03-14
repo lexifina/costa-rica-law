@@ -1,1 +1,0 @@
-Artículo Séptimo.—Los funcionarios de la Dirección dependerán del Director, de sus jefes departamentales, y serán responsables ante ellos en el desempeño de sus funciones; sin detrimento a lo dispuesto por el artículo 2, párrafo 2) de la Ley Orgánica del Ministerio de Justicia.

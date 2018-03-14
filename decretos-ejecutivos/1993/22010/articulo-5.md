@@ -1,1 +1,0 @@
-Artículo Quinto.—El Director podrá crear las comisiones que estime necesarias para estudiar asuntos de su competencia. Podrá además delegar funciones de conformidad con las disposiciones Constitucionales, Legales y Reglamentarias, excepto en los casos en que se requiera de su intervención personal.

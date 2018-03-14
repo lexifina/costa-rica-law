@@ -1,1 +1,0 @@
-Artículo Segundo.—La Dirección Jurídica estará a cargo de un Director, quien deberá ser Abogado, que dependerá del Despacho Ministerial y será el responsable de la organización y funcionamiento de la Dirección.
