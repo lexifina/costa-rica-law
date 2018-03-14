@@ -14,3 +14,4 @@ Reglamento para el uso de vehículos del Ministerio de Justicia y Paz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-22 | la propia norma |
+| 2 | 2018-03-14 | Decreto Ejecutivo 41109 (2018-03-14) |
