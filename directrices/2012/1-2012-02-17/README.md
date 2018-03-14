@@ -14,3 +14,4 @@ Crea Comisión para que actúe como grupo de gestión de riesgo de resistencia a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-02-20 | la propia norma |
+| 2 | 2018-03-14 | Directriz 1 (2018-03-14) |
