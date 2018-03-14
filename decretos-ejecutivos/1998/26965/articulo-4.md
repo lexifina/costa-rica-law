@@ -1,3 +1,0 @@
-Artículo 4°—Organización de la Contraloría de Servicios.
-El Departamento de Contraloría de Servicios, contará con los recursos y el apoyo necesarios para el cumplimiento de las funciones que le han sido encomendadas por la normativa atinente. Lo conformará el Contralor de Servicios del Ministerio de (*)Justicia y Paz, el Contralor de Servicios del Registro Nacional y el Contralor de Servicios de Adaptación Social, así como cualesquiera otras que en el futuro se considere necesario crear. Cada Contraloría de Servicios, podrá contar con el concurso de asistentes técnicos y con el personal administrativo de apoyo necesario.
-(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)

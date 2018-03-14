@@ -1,1 +1,0 @@
-Artículo 3°—El Departamento de Contraloría de Servicios podrá solicitar informes y documentación, realizar consultas, entrevistas e indagaciones, inspeccionar oficinas o establecimientos de las diferentes dependencias del Ministerio en donde se presten servicios a los usuarios, según estime pertinente, contando para ello con la obligada colaboración de todo el personal del mismo.
