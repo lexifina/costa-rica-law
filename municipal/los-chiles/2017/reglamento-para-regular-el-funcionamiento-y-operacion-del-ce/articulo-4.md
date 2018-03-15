@@ -1,0 +1,10 @@
+Artículo 4º—Población beneficiada: Serán admitidos niños y niñas entre los 2 y los 7 años cumplidos, en la cantidad que se determine técnicamente de conformidad con las Normas de Habilitación de los Centros de Atención Integral y, así sea establecido por el Consejo de Atención Integral, quien emitirá la respectiva habilitación del Centro.
+El Centro Infantil será de naturaleza mixta, lo que significa que atenderá población que por su cuenta paga por la prestación de servicios de cuido y familias subsidiadas por la Red Nacional de Cuido a través del Instituto Mixto de Ayuda Social, no obstante, cuando por situaciones sociales exista una demanda muy alta de población infantil en condiciones de pobreza y pobreza extrema el Centro Infantil podrá estar conformado con la totalidad de niños y niñas beneficiarios por parte del IMAS.
+Además, se atenderá de manera prioritaria a la población infantil que provenga de comunidades del Cantón de Los Chiles, que se encuentre en una situación de pobreza y pobreza extrema.
+Las y los beneficiarios del servicio serán seleccionados de acuerdo a los criterios técnicos que emplea el Instituto Mixto de Ayuda Social (IMAS).
+Los montos de referencia del costo del servicio, serán los establecidos por la Secretaria Técnica de la Red Nacional de Cuido y Desarrollo Infantil, del IMAS.
+Para efectos de la selección de las personas menores de edad, se tomarán en consideración de manera prioritaria, los siguientes grupos de población:
+a-Niños y niñas de familias que se ubican en los niveles uno, dos y tres de pobreza, en condiciones de riesgo o vulnerabilidad, según los parámetros del Instituto Mixto de Ayuda Social. De esta forma se determinará al menos el 80% de la totalidad de la matrícula del Centro.
+b-Niños y niñas de familias en grupo 4 que asuman el porcentaje de diferencia entre el subsidio y el costo de atención.
+c-Niños y niñas de familias que pueden costear, por sus propios medios, la totalidad del costo del servicio.
+Los montos de referencia del costo del servicio, serán los establecidos por la Secretaria Técnica de la Red Nacional de Cuido y Desarrollo Infantil del IMAS.
