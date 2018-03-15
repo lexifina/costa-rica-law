@@ -1,0 +1,1 @@
+Artículo 11.—Ajuste de la caución. La persona funcionaria que por algún motivo sea trasladada de un puesto a otro que implique una nueva ubicación en la clasificación por niveles de responsabilidad deberá ajustar la caución conforme a la nueva situación, para lo cual contará con un plazo de veinte días hábiles.

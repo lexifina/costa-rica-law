@@ -1,0 +1,2 @@
+Transitorio único.—Las personas que al momento de la entrada en vigencia de este reglamento estén obligadas a caucionar, contarán con un plazo de un mes calendario a partir de su comunicación para gestionar la caución y presentar una copia ante la Dirección Administrativa del CCDRC.
+Rige a partir de su publicación. Este reglamento fue aprobado por el Concejo Municipal de Cartago, en sesión ordinaria, del día 27 de febrero del 2018, mediante el artículo XXV del acta 140- 018.

@@ -1,0 +1,1 @@
+Artículo 15.—Responsabilidad por la no presentación de la caución. El no rendir o renovar la garantía dentro del plazo previsto al efecto, originará al servidor o servidora responsabilidad disciplinaria, que será establecida de acuerdo a la gravedad de la falta y según lo establecido en el Código de Trabajo, Código Municipal y leyes conexas.

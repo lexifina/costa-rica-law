@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación del reglamento. Las disposiciones contenidas en el presente reglamento son aplicables a todas aquellas personas funcionarias del Comité de Deportes y Recreación de Cartago (en adelante CCDRC) que administren, recauden y custodien fondos o valores públicos o que por la naturaleza de sus funciones y responsabilidades deban caucionar.
