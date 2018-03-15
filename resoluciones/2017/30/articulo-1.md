@@ -118,11 +118,13 @@ Todas las empresas interesadas en homologarse, deberán presentar ante la Direcc
 4º) Listado del recurso humano (nombre completo, número de cédula, puesto) que se encargará de la colocación y retiro de los dispositivos, según Aduana de jurisdicción. Y actualizar cuando se den cambios en la planilla.
 5º) Hoja de delincuencia vigente expedido por el Poder Judicial de cada una de las personas incluidas en el listado del recurso humano. Incluye al representante legal y gerente de la empresa.
 6º) Indicar la ubicación de las instalaciones donde la empresa tiene su centro de operaciones y custodia de los precintos electrónicos.
-7º) Certificación de la Dirección General de Tributación de estar al día con el pago de los tributos internos.
-8º) Certificación de la Caja Costarricense de Seguro Social (C.C.S.S.) de estar al día con sus obligaciones patronales.
+7º) (Eliminado por resolución RES-DGT-010-2018 del 15 de marzo de 2018)
+8º) (Eliminado por resolución RES-DGT-010-2018 del 15 de marzo de 2018)
 9º) Original y copia para su debida confrontación de la resolución de inscripción ante la Dirección de Servicios de Seguridad Privados del Ministerio de Seguridad Pública.
 10º) Protocolo de actuación que seguirá la empresa ante una alerta de robo, pérdida o extravío de una unidad de transporte con dispositivo electrónico.
 11º) Copia del contrato con la empresa de seguridad que apoyará el seguimiento de las unidades contenedoras.
+12.—Presentada la solicitud y los demás documentos, la Administración procederá a hacer la consulta tanto, al sistema informático de la Dirección General de Tributación, a fin de corroborar que está al día con el pago de tributos internos, como al sistema de consulta de la Caja Costarricense del Seguro Social, para determinar que no está moroso con dicha entidad.
+(Así adicionado el punto anterior por resolución RES-DGT-010-2018 del 15 de marzo de 2018)
 VII. Escenarios de prueba
 Para la homologación del dispositivo y su sistema de monitoreo, la empresa debe cumplir satisfactoriamente las pruebas definidas por la Dirección General de Aduanas, conforme se detalla en el apartado VIII, y que tienen por objetivo evaluar el buen desempeño del precinto electrónico y su sistema de monitoreo de acuerdo con las características exigidas y establecidas en la presente resolución y normativa conexa.
 Las pruebas técnicas que deben aprobar incluye entre otras cosas: el monitoreo real en distintos escenarios, propios del proceso de uso futuro del precinto electrónico que se prueba, así como el intercambio de información con el sistema aduanero desde distintos puntos geográficos del país y las pruebas de requerimientos técnicos de dispositivos definidos y vigentes al momento de efectuar la solicitud de homologación.

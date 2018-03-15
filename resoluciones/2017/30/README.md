@@ -14,3 +14,4 @@ Procedimiento para la solicitud de homologación y autorización de empresas enc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-01-25 | la propia norma |
+| 2 | 2018-03-15 | Resolución 10 (2018-03-15) |
