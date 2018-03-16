@@ -1,0 +1,1 @@
+Artículo 22.—Tanto el propietario de la patente del comercio que será anunciado por el rótulo, como el dueño del predio donde será ubicada la estructura, deberán estar al día en el pago de los tributos municipales y nacionales administrados por el municipio.

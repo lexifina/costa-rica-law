@@ -1,0 +1,4 @@
+CAPÍTULO X
+De las sanciones
+Artículo 34.—El Concejo, de acuerdo con el artículo 33 de la Ley de Construcciones, impondrá multas por las infracciones a este Reglamento y ordenará el desmantelamiento y retiro a costa del propietario del anuncio y estructura que considere inconvenientes y peligrosas o se le hayan realizado modificaciones sin permiso municipal. Sobre las costas del retiro de los anuncios o estructuras se cobrará el costo efectivo del servicio, el munícipe deberá reembolsar el costo efectivo en un plazo máximo de ocho días hábiles; de lo contrario, deberá cancelar por concepto de multa un cincuenta por ciento del valor del servicio, sin perjuicio del cobro de los intereses moratorios, según lo dispone el artículo 75 del Código Municipal.
+Al reincidirse por tercera vez, se le cancelará la patente comercial.

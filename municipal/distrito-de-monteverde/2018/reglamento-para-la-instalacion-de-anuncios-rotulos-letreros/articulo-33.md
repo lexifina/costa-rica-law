@@ -1,0 +1,1 @@
+Artículo 33.—Cuando los avisos, anuncios, rótulos, objetos, y cualquier tipo de obstáculo se encuentren sin la debida autorización municipal, se procederá a su retiro sin ningún tipo de responsabilidad y con cargo al propietario del inmueble donde se ubiquen o a la persona física o jurídica que los colocó.

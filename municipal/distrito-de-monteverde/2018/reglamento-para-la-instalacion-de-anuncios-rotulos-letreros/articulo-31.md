@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Cancelación de la licencia
+Artículo 31.—El Departamento de Patentes del CMDM podrá cancelar la licencia para un anuncio y ordenar su retiro a costa del propietario cuando se hayan agregado modificaciones no autorizadas o cuando el anuncio se encuentre en condiciones que afecten su estabilidad o la seguridad de las personas, previa comunicación al interesado para que corrija la anomalía en un plazo máximo de 15 días naturales contados a partir del recibo de la notificación. Igualmente cuando el título de la licencia se encuentre en mora de pago de dos o más trimestres, o se compruebe que ha infringido los incisos 1) y 2) del artículo 404, inciso 2) del artículo 405, del Código Penal.

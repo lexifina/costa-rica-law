@@ -1,0 +1,1 @@
+Artículo 6°—No se permitirá instalar ningún tipo de anuncio, aviso, rótulo, letrero o caseta, que a pesar de reunir los requisitos consignados en este Reglamento, representen un peligro para la seguridad pública, de acuerdo con el criterio técnico del CMDM.

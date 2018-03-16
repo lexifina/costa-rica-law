@@ -1,0 +1,5 @@
+Artículo 32.—Se procederá a cancelar las autorizaciones que otorguen para la colocación de anuncios, rótulos o avisos, sin responsabilidad alguna para el Concejo, previo, notificación y audiencia al interesado, cuando ocurran los siguientes hechos:
+a) Infracción a las disposiciones del presente Reglamento.
+b) Cambio en las condiciones originales de los sitios en que se tuviera instalados los anuncios, rótulos o avisos, o de su diseño, o de cualquier otra característica especial de la autorización extendida.
+c) Negativa del propietario del terreno a permitir la entrada a los correspondientes funcionarios del Concejo, encargados de inspeccionar y vigilar todo lo relacionado con el anuncio.
+En cualquiera de estos casos, se procederá a conferir una audiencia de 15 días hábiles para que el interesado se apersone a las diligencias necesarias. Notificada la resolución respectiva y trasladado su incumplimiento, se enviará a demoler o retirar los anuncios, rótulos o avisos, sin responsabilidad alguna, cobrando al infractor los gastos en que se incurra, más los daños y perjuicios que correspondan, todo sin perjuicio de las acciones penales correspondientes.

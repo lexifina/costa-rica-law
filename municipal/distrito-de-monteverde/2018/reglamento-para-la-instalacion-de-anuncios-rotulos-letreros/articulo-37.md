@@ -1,0 +1,1 @@
+Artículo 37.—El Concejo y sus funcionarios no se harán responsables en el caso de que los materiales decomisados se deterioren, se pudran o sufran cualquier situación análoga por el transcurso del tiempo.

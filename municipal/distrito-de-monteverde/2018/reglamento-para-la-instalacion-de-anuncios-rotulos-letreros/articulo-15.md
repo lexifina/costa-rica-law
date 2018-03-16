@@ -1,0 +1,2 @@
+Artículo 15.—En zonas residenciales los rótulos no podrán exceder de dos metros cuadrados y deberán colocarse paralelos a la calle. En zonas comerciales e industriales, podrán colocarse perpendicularmente a la calle, cuando no excedan de dos metros con cincuenta centímetros de largo; en todo caso, el largo no podrá sobrepasar la línea de cordón si el ancho de la acera fuera menor.
+La distancia vertical entre el borde inferior del rótulo y la acera no podrá ser menor de dos metros con sesenta centímetros.
