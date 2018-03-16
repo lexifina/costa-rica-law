@@ -1,0 +1,1 @@
+Artículo 25.—Destitución de suplentes. El plebiscito de revocatoria de mandato podrá extenderse al Vice Intendente, para lo cual se requerirá el acuerdo de tres cuartas partes de los Concejales. En tal caso, la pregunta sobre la destitución del suplente será independiente de la del Intendente.

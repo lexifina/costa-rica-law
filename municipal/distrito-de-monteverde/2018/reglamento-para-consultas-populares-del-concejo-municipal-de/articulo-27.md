@@ -1,0 +1,1 @@
+Artículo 27.—Reposición del intendente. Si el resultado de la consulta fuere la destitución del Intendente, el Concejo Municipal lo comunicará al Tribunal Supremo de Elecciones, el cual repondrá al Intendente por el resto del periodo, según el artículo 14 del Código Municipal.

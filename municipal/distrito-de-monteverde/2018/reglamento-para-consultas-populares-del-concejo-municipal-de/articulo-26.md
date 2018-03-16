@@ -1,0 +1,1 @@
+Artículo 26.—Requisito para destitución. Para destituir al Intendente se requiere dos tercios del total de votos emitidos en el plebiscito, y que esos dos tercios no sean inferiores al veinticinco por ciento del total de electores inscritos en el Distrito. De igual forma se procederá en el caso de la destitución del suplente, contemplado en el artículo 25.
