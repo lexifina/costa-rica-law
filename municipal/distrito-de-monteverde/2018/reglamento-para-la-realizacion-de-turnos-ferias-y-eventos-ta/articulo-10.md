@@ -1,0 +1,3 @@
+Artículo 10.—Forma de pago de Impuestos de Espectáculos Públicos. El presidente o representante de la organización, debidamente acreditado como tal, deberá presentar declaración jurada del número de entradas vendidas, así como el costo por entrada, en cada día de actividad.
+El total de entradas vendidas se multiplicará por el costo por entrada y sobre el total se calcularán el 5% y el 6% de Impuesto de Espectáculos Públicos.
+En el caso de actividades donde lo que se cobre sean derechos de inscripción, para efectos del pago del Impuesto de Espectáculo Públicos, aplicará el mismo procedimiento señalado en el presente artículo.

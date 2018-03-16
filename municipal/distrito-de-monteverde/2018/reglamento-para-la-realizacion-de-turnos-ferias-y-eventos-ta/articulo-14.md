@@ -1,0 +1,1 @@
+Artículo 14.—El responsable de la actividad, presentará a la Secretaría Municipal la solicitud de permiso con todos y cada uno de los requisitos, ésta revisará el cumplimiento de ellos y los remitirá al Concejo Municipal.

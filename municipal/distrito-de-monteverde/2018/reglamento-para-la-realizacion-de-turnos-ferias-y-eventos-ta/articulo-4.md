@@ -1,0 +1,1 @@
+Artículo 4º—Base imponible. La base imponible para la determinación de este impuesto, se establece a partir del resultado que se obtenga de la sumatoria del valor de cada uno de los tiquetes, boletas o entradas individuales al evento o espectáculo público y/o de recreación, cuya realización o salida sea en el distrito de Monte Verde.

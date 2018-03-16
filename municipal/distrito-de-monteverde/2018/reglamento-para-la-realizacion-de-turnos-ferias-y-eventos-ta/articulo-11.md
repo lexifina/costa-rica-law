@@ -1,0 +1,2 @@
+Artículo 11.—De los plazos para el pago de impuestos. El pago a que se refieren los artículos 9 de este Reglamento, deberán ser cancelados previo al inicio de la actividad que se pretenda realizar, lo que lo constituye un requisito de aprobación. Quienes no realicen dicho pago, no podrán iniciar los eventos planeados.
+El pago referido en el artículo 10 del presente reglamento, deberá ser cancelado a más tardar quince días hábiles posteriores a la finalización del evento. De no efectuarse el pago no podrá optar por futuros permisos.

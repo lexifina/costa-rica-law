@@ -1,0 +1,1 @@
+Artículo 9º—Determinación del pago de Impuestos Municipales de Patentes. El pago de Impuestos Municipales por licencias de espectáculos públicos, referido en el artículo 3 de este Reglamento, será de cinco mil colones por día de actividad.

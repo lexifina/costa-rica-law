@@ -1,0 +1,1 @@
+Artículo 2º—Hecho generador. Se constituye el hecho generador de la obligación tributaria, la realización de actividades que impliquen toda clase de espectáculos públicos y de diversiones por las cuales se cobren derechos de entrada o inscripción y todas aquellas actividades no gratuitas.

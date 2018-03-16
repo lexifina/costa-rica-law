@@ -1,0 +1,1 @@
+Artículo 8º—Del pago de Impuestos Municipales. Toda actividad a realizar, en donde se evidencie que medie un interés lucrativo, deberá cancelar los impuestos municipales correspondientes a patentes temporales y espectáculos públicos.

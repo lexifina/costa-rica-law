@@ -1,0 +1,1 @@
+Artículo 6.—Exenciones. Están exentos del pago de este impuesto, los espectáculos públicos y de diversiones no gratuitos que se realicen, siempre y cuando la totalidad de los ingresos tengan fines escolares, de beneficencia, o sociales, (que correspondan al sector público o estatal), aspecto que deberá gestionarse y demostrarse ante el Concejo Municipal y demostrarlo.
