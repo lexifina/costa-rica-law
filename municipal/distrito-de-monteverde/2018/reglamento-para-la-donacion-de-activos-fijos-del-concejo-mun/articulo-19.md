@@ -1,0 +1,2 @@
+Artículo 19.—Control e informe sobre donaciones. Cada cuatrimestre, (en los meses de abril, agosto y diciembre de cada año) el Departamento de Proveeduría, elaborará un informe con el número de Acta, nombre del beneficiado, ubicación por provincia y bienes donados. Este informe deberá ser enviado al Intendente Municipal con copia al Concejo Municipal, con la finalidad de que
+se verifique la forma en que han sido distribuidos los bienes.
