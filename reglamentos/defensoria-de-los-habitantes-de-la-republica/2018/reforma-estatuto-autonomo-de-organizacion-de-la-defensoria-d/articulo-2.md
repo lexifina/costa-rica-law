@@ -1,0 +1,26 @@
+Artículo 2º—Adiciónese al texto del Estatuto Autónomo de Organización de la Defensoría de los Habitantes, el siguiente artículo:
+“Artículo 8 bis.- Del Mecanismo Nacional de Supervisión de la Convención Sobre los Derechos de las Personas con Discapacidad. De conformidad con la Convención sobre los Derechos de las Personas con Discapacidad, corresponde al Mecanismo promover y monitorear el cumplimiento de la Convención así como proteger los derechos de las personas con discapacidad. Estas funciones serán desarrolladas e implementadas en los procesos de trabajo de la Defensoría de los Habitantes, por parte del personal técnico, profesional y de apoyo asignado al Mecanismo, bajo la dirección del Despacho y la articulación de un/a Coordinador/a.
+Asimismo, el Mecanismo tendrá a cargo las siguientes funciones y actividades:
+Coordinación:
+• Articular el proceso de promoción y protección de la Convención sobre los Derechos de las Personas con Discapacidad y demás normativa relacionada con los derechos de las personas con discapacidad.
+• Dirimir los conflictos de competencias entre las Direcciones de Defensa que pudieran surgir en la tramitación de denuncias relativas a los derechos de las personas con discapacidad.
+• Organizar consultas periódicas dirigidas a las personas con discapacidad para promover su integración y participación plena en los procesos de seguimiento de la Convención sobre los Derechos de las Personas con Discapacidad.
+• Elaborar informes solicitados por instancias internacionales, relativos al cumplimiento de la Convención sobre los Derechos de las Personas con Discapacidad y demás normativa relacionada con los derechos de las personas con discapacidad.
+Promoción:
+• Capacitar a la Dirección de Admisibilidad, las Direcciones de Defensa, la Dirección de Promoción y Divulgación, las Oficinas Regionales, y en general, al personal de la Defensoría de los Habitantes, sobre los contenidos de la Convención sobre los Derechos de las Personas con Discapacidad y demás normativa relacionada con los derechos de las personas con discapacidad.
+• Asesorar a la Dirección de Admisibilidad, las Direcciones de Defensa, la Dirección de Promoción y Divulgación, las Oficinas Regionales, y en general, al personal de la Defensoría de los Habitantes, sobre temas vinculados a la Convención sobre los Derechos de las Personas con Discapacidad y demás normativa relacionada con los derechos de las personas con discapacidad.
+• Divulgar observaciones generales, declaraciones y decisiones de los Órganos de Tratados de las Naciones Unidas, incluido el Comité de las Naciones Unidas sobre los Derechos de las Personas con Discapacidad.
+• Emprender acciones dirigidas a la información, divulgación y concientización de la importancia del cumplimiento de la Convención sobre los Derechos de las Personas con Discapacidad, incluyendo acciones tales como capacitar a funcionarios y funcionarias públicas, realizar campañas de sensibilización a la sociedad e impulsar cambios en los programas educativos para incorporar el tema de los derechos de las personas con discapacidad.
+Defensa:
+• Revisar los proyectos de Informes Finales de investigaciones de oficio y por denuncia que elaboren las Direcciones de Defensa en los que se aborden los derechos de las personas con discapacidad, a efecto de que el Mecanismo unifique y consolide las posiciones institucionales.
+• Diseñar un proceso de admisión específico para las denuncias que refieran a derechos de las personas con discapacidad, para su aplicación por parte del personal del Mecanismo destacado en la Dirección de Admisibilidad y del personal propio de las Oficinas Regionales de la institución.
+• Verter criterio sobre la interposición de acciones administrativas y/o judiciales para la protección de los derechos de las personas con discapacidad.
+• Evacuar, conjuntamente con las Direcciones de Defensa y/o otra unidad de la institución que pudiera ser competente, los criterios de proyectos de ley que involucren derechos de las personas con discapacidad.
+• Evacuar criterios solicitados por órganos jurisdiccionales sobre los derechos de las personas con discapacidad.
+• Preparar, en conjunto con la Dirección de Asuntos Jurídicos, acciones judiciales y/o administrativas en defensa de los derechos de las personas con discapacidad.
+Monitoreo:
+• Diseñar indicadores para medir el grado de cumplimiento de la Convención sobre los Derechos de las Personas con Discapacidad.
+• Evaluar el diseño y ejecución de las políticas públicas, programas y planes, con el propósito de determinar su cumplimiento y ajuste a la Convención sobre los Derechos de las personas con Discapacidad.
+• Llevar a cabo investigaciones formales y averiguaciones generales sobre temas relacionados con violaciones graves o sistemáticas de la Convención sobre los Derechos de las Personas con Discapacidad y formular recomendaciones al Estado para su reparación y evitación a futuro.
+• Elaborar informes periódicos sobre el grado de cumplimiento de la Convención sobre los Derechos de las Personas con Discapacidad.
+• Dar seguimiento a las decisiones del Comité de las Naciones Unidas sobre los Derechos de las Personas con Discapacidad, emitidas a partir de las denuncias individuales basadas en el Protocolo Facultativo en los Estados Partes.”
