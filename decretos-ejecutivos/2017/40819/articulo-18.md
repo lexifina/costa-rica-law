@@ -1,0 +1,2 @@
+Artículo 18.- La Dirección realizará los trámites correspondientes para que en el mes de julio de cada año se realicen los ascensos en el escalafón policial, así como los reconocimientos por años de servicio y menciones honoríficas, esto en el marco de la conmemoración del origen de la policía de tránsito, como lo establece el Decreto Ejecutivo N° 29703-MOPT.
+El acto formal de ascenso se efectuará el 20 de julio de cada año, para conmemorar el día nacional del oficial de tránsito.

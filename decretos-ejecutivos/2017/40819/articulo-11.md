@@ -1,0 +1,1 @@
+Artículo 11.- El grado policial por sí solo no representa jerarquía o jefatura dentro de la estructura de la policía de tránsito, por lo tanto, para que sea tomado como tal deberá estar respaldado por el puesto correspondiente.

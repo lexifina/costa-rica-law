@@ -1,0 +1,1 @@
+Artículo 25.- El ministerio de Obras Públicas y Transportes podrá firmar convenios de cooperación con otros Ministerios e Instituciones, con la finalidad de fortalecer la capacitación de sus miembros, esto sin menoscabo de las funciones de la Escuela Nacional de Capacitación de la Policía de Tránsito.

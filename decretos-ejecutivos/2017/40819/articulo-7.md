@@ -1,0 +1,2 @@
+Artículo 7.- Una vez al año y de acuerdo a la necesidad institucional, el Departamento de Operaciones Policiales remitirá a la Escuela la lista de elegibles para los diferentes cursos del escalafón policial.
+La Escuela impartirá estas capacitaciones sin entorpecer los otros adiestramientos que debe brindar, para lo cual podrá solicitar la colaboración de personal de la Dirección, quienes fungirán como instructores provisionales, también podrá solicitar la colaboración de funcionarios de la Academia Nacional de Policía u otros cuerpos policiales nacionales o extranjeros.

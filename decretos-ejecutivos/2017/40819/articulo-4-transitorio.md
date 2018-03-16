@@ -1,0 +1,1 @@
+TRANSITORIO IV.- El grado de Capitán de la Policía correspondiente a los Supervisores Nacionales, entrarán en vigencia hasta que se modifique el Manual Descriptivo de Clases para los Puestos Policiales de la Dirección General de la Policía de Tránsito, ubicando la Unidad de Supervisión Nacional directamente bajo las órdenes del Despacho del Director.

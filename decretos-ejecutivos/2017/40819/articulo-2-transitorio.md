@@ -1,0 +1,1 @@
+TRANSITORIO II.- La Dirección gestionará los correspondientes grados policiales a los policías de tránsito que a la entrada en vigencia de este reglamento, estén ocupando en propiedad o interinamente por más de 3 meses puestos a los que se refiere este reglamento.

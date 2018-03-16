@@ -1,0 +1,1 @@
+TRANSITORIO I.- Los funcionarios policiales que a la aprobación de este reglamento cuenten con grado policial otorgado anterior a la Ley N° 8096, Ley de Fortalecimiento de la Policía Civilista, actualizarán sus grados policiales concordados con los principios civilistas de la Ley N° 7410 y sus reformas.
