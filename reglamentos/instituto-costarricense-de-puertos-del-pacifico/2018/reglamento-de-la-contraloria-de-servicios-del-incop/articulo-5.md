@@ -1,0 +1,2 @@
+Artículo 5°—Impulso de las actuaciones de la Contraloría de Servicios. La Contraloría de Servicios del INCOP podrá actuar de oficio en procura del mejoramiento continuo e innovación de los servicios o a petición de parte, para realizar investigaciones, visitar las dependencias y requerir la información pertinente para el cumplimiento de sus funciones.
+Cuando una gestión no se refiera a las competencias propias de la Contraloría de Servicios del INCOP o cuando se trate de asuntos propios de la auditoría interna, se trasladará a la auditoria del INCOP.

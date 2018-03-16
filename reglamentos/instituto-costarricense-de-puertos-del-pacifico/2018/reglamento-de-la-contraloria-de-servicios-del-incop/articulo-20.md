@@ -1,0 +1,2 @@
+Artículo 20.—Procesos de mejora Continua e innovación de los servicios. La Contraloría de Servicios de INCOP de Servicios velará porque el INCOP desarrolle e implemente procesos de mejoramiento continuo e innovación que incrementen de forma progresiva, permanente y constante la calidad de los servicios que presta, considerando las necesidades y expectativas de los usuarios.
+En este proceso, la Contraloría de Servicios de INCOP de Servicios participará como asesora del Presidente Ejecutivo.

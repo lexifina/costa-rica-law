@@ -1,0 +1,5 @@
+Artículo 28.—Plazos para el trámite de gestiones en la Contraloría de Servicios del INCOP. Las gestiones interpuestas por los usuarios deberán ser tramitadas con la mayor diligencia por la Contraloría de Servicios de INCOP de Servicios.
+Las unidades administrativas ante la petición planteada por la Contraloría de Servicios de INCOP, en el ejercicio de sus funciones, deberán resolver esta en un plazo máximo de cinco días hábiles, excepto en los casos en que la resolución de la gestión sea de una mayor complejidad, se concederá un plazo máximo hasta de cincuenta días naturales para responder a la Contraloría de Servicios de INCOP.
+Una vez recibida la resolución de la administración, la Contraloría de Servicios de INCOP de Servicios responderá al usuario en un plazo máximo de diez días hábiles.
+En caso de que la administración no responda en dicho plazo, la Contraloría de Servicios de INCOP de Servicios del INCOP elevará el asunto al Presidente Ejecutivo, con la recomendación correspondiente para la toma de decisiones.
+Estos plazos podrán reducirse según la normativa interna del INCOP, de conformidad con el servicio que se brinda.

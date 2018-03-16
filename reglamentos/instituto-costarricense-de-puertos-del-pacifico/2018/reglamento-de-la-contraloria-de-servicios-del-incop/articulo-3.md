@@ -1,0 +1,2 @@
+Artículo 3°—Del Contralor de Servicios. La Contraloría de Servicios del INCOP, estará a cargo de un Contralor de Servicios nombrado por parte del Presidente Ejecutivo el cual será por tiempo indefinido y no podrá recaer en un puesto de confianza. Además, desempeñará su puesto sin recargo de funciones.
+Al Contralor de Servicios se le reconocerá los incentivos salariales profesionales respectivos, de acuerdo con las normas establecidas en el INCOP y conforme a las leyes que apliquen, según sea procedente.

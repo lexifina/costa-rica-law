@@ -1,0 +1,1 @@
+Artículo 23.—Justificación por ausencia de aval al Informe anual de labores. El Presidente Ejecutivo de INCOP, deberá justificar ante la Secretaría Técnica de MIDEPLAN las razones por las cuales no avala el Informe anual presentado por la Contraloría de Servicios; para lo cual contará con un plazo de 15 días, a partir de la fecha en que dicho informe le fue presentado.

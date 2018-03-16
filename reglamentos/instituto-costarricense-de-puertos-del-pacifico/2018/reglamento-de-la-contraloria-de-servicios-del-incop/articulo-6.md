@@ -1,0 +1,1 @@
+Artículo 6°—Conclusiones y recomendaciones de la Contraloría de Servicios del INCOP. La Contraloría de Servicios del INCOP podrá emitir conclusiones y recomendaciones como producto de las investigaciones que realice, de conformidad con sus competencias.

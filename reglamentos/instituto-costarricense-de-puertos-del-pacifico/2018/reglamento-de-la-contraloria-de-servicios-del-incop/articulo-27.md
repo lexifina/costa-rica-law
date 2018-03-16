@@ -1,0 +1,2 @@
+Artículo 27.—Medios para la presentación de una gestión ante la Contraloría de Servicios del INCOP. El INCOP deberá contar con medios disponibles para que los usuarios puedan presentar sus gestiones, producto del servicio, de manera personal, verbal, escrita, por vía telefónica o electrónica, correo convencional o cualquier otro medio.
+El INCOP deberá garantizar la accesibilidad para la presentación de dichas gestiones a todos los usuarios.
