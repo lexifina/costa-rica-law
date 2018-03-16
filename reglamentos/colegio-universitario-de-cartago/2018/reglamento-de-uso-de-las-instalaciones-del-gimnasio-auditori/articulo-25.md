@@ -1,0 +1,1 @@
+Artículo 25.—Cuando se incumpla con alguna de las prohibiciones establecidas en este Reglamento, la persona responsable del evento en conjunto con el personal de seguridad, tendrán autorización para que el o los causantes sean desalojados de las instalaciones, sin perjuicio de cualquier otra sanción que se les pueda imponer.

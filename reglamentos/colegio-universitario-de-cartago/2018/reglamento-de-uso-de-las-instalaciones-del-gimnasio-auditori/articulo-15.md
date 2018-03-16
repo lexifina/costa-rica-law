@@ -1,0 +1,1 @@
+Artículo 15.—El alquiler únicamente, cubrirá la utilización de la infraestructura, entiéndase, graderías, batería de sanitarios y gimnasio. No se incluye el uso de mobiliario, sonido, seguridad, personal de limpieza, parqueo u otros para el desarrollo de la actividad.

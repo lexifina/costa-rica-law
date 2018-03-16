@@ -1,0 +1,1 @@
+Artículo 3º—Se entiende por instalaciones del gimnasio - auditorio institucional, el edificio ubicado al oeste del campus del CUC, el cual cuenta con una zona de 936 metros cuadrados, que estará dedicado a actividades de índole académicas, culturales y deportivas y de interés institucional.

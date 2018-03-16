@@ -1,0 +1,1 @@
+Artículo 18.—Para el uso de las instalaciones del Gimnasio Auditorio se considerarán como prioridad las actividades institucionales sobre las externas, para cuyo trámite se seguirá un orden cronológico.

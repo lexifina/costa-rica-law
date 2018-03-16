@@ -1,0 +1,1 @@
+Artículo 33.—En el caso de que se requiera utilizar el área de piso para aumentar la capacidad del inmueble, el solicitante deberá coordinar con la Unidad de Seguridad e Higiene Ocupacional la ubicación de mobiliario, definición de pasillos y distancias entre elementos por colocar para garantizar la seguridad de los ocupantes.

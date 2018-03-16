@@ -1,0 +1,3 @@
+Artículo 13.—A quien se le alquile el gimnasio - auditorio, deberá realizar:
+● Depósito por concepto de pago al menos cinco días hábiles de antelación debe presentar comprobante a la Jefatura del Departamento de Servicios Operativos.
+● Depósito por concepto de garantía al menos cinco días hábiles de antelación, el cual corresponde al 100% del monto establecido en el artículo 12 y presentará el comprobante a la Jefatura del Departamento de Servicios Operativos, el cual se le devolverá una vez realizada la revisión de la inexistencia de daños en las instalaciones utilizadas por parte del Administrador.

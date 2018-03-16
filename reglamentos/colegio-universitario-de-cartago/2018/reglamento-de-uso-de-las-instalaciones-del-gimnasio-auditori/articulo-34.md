@@ -1,0 +1,1 @@
+Artículo 34.—En todas las actividades en las que se realice acto protocolario, se deberá brindar a los participantes las indicaciones de seguridad y en caso de emergencia, para lo cual se coordinará con la Unidad de Seguridad e Higiene Ocupacional.

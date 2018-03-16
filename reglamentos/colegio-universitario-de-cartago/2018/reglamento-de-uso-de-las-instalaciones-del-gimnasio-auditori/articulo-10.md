@@ -1,0 +1,1 @@
+Artículo 10.—Para la realización de cualquier tipo de actividades de carácter interno, el solicitante será el responsable de coordinar los requerimientos de sonido, limpieza y otros que se necesiten para el desarrollo de la actividad.

@@ -1,0 +1,1 @@
+Artículo 9º—La limpieza general ordinaria de las instalaciones del gimnasio – auditorio y sus alrededores estará a cargo del Departamento de Servicios Operativos. No obstante, en el desarrollo de actividades, el solicitante deberá garantizar que el lugar sea devuelto en las mismas condiciones que le fueron entregadas.

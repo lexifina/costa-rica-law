@@ -1,0 +1,1 @@
+Artículo 26.—El uso de equipos de sonido por parte de los usuarios, será permitido siempre y cuando no se perturbe la actividad ordinaria de la Institución, el mismo será regulado según las disposiciones internas, según criterio técnico del encargado del Centro de Tecnología Informática.

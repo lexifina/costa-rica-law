@@ -1,0 +1,1 @@
+Artículo 24.—Todo usuario está en la obligación de acatar las reglas básicas de la moral, de la decencia y del respeto mutuo, de forma que sus acciones no dañen el decoro o lesione la sensibilidad al resto de los usuarios.

@@ -1,0 +1,2 @@
+Artículo 22.—El espacio concedido para la actividad solicitada no podrá cederse bajo ninguna circunstancia a una persona u organización diferente a la solicitante. La actividad autorizada no podrá ser variada sin la aprobación previa del Administrador.
+De comprobarse el incumplimiento de esta condición se cancelará el evento, sin devolución del depósito de garantía de cumplimiento (si fuere el caso).
