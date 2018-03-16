@@ -14,3 +14,4 @@ Crea los incisos arancelarios 2933.99.00.00.60, 3808.93.00.00.11 y 3808.93.00.00
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-03-16 | la propia norma |
+| 2 | 2018-03-16 | Resolución 5 (2018-02-26) |
