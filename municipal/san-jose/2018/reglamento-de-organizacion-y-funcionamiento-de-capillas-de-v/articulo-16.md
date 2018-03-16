@@ -1,0 +1,1 @@
+Artículo 16.—La Junta Administrativa de la Capilla de Velación Municipal estará obligada a suministrar toda la información que solicite la Auditoría Municipal, Concejo Municipal o la Sección Administración de Mercados y Cementerios para el ejercicio de la fiscalización.

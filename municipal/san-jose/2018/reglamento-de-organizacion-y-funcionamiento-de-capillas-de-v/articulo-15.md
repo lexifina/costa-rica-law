@@ -1,0 +1,1 @@
+Artículo 15.—La Junta Administrativa estará sometida al proceso de fiscalización por parte de la Auditoría Municipal de conformidad con el plan anual de trabajo de la misma, o a solicitud de la Sección Administración de Mercados y Cementerios de la Municipalidad de San José.

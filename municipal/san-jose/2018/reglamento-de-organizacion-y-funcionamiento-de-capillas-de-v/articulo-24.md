@@ -1,0 +1,1 @@
+Artículo 24.—Las empresas particulares con licencia o autorización para prestar servicios funerarios, quedan obligadas al cumplimiento permanente de los requisitos establecidos en el presente reglamento, así como de las disposiciones vigentes en materia sanitaria, ambiental, administrativa y judicial del país.

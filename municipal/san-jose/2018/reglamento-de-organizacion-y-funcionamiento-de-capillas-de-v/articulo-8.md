@@ -1,0 +1,1 @@
+Artículo 8º—La escogencia de la organización sin fin de lucro que administrará la capilla de velación se realizará según las propuestas de administración que deberán presentar las organizaciones del distrito al Concejo Municipal de San José.

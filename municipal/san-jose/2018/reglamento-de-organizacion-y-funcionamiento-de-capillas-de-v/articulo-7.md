@@ -1,0 +1,1 @@
+Artículo 7º—La potestad para la selección de la organización social sin fin de lucro que administrará la capilla de velación corresponderá al Concejo Municipal de San José. Esta administración se realizará mediante la autorización de un convenio para la administración por parte del Concejo Municipal con la organización social designada, a la Alcaldía Municipal.

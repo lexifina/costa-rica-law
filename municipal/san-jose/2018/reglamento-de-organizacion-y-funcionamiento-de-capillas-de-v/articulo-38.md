@@ -1,0 +1,1 @@
+Artículo 38.—Será obligación de los usuarios velar por sus objetos y pertenencias personales de los dolientes y asistentes. La administración no se hace responsable bajo ninguna circunstancia por objetos olvidados, extraviados o faltantes en todas las áreas de la Capilla de Velación y parqueo.

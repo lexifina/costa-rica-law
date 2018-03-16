@@ -1,0 +1,1 @@
+Artículo 22.—El pago para el uso de la capilla de velación se realizará ante el tesorero de la Junta Administrativa la cual deberá presentar un informe semestral de la utilización de los dineros generados por el servicio a la Sección Administración de Mercados y Cementerios con copia a la Auditoria Interna de la Municipalidad de San José y al Concejo Municipal.

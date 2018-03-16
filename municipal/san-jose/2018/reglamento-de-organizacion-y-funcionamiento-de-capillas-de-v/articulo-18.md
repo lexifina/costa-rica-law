@@ -1,0 +1,1 @@
+Artículo 18.—La fiscalización que realizará la Municipalidad será sobre todo el Proceso Administrativo que ejecute la Junta Administrativa en su condición de administrador de la Capilla de Velación que se autorice.

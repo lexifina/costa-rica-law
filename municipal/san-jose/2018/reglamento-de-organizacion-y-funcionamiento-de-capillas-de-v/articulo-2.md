@@ -1,0 +1,1 @@
+Artículo 2º—La administración general le competerá a la Municipalidad de San José la cual coordinará y resolverá todos los asuntos pertinentes a través de la Sección Administración de Cementerios y Mercados.

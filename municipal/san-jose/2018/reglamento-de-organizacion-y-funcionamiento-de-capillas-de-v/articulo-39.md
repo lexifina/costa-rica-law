@@ -1,0 +1,1 @@
+Artículo 39.—El solicitante responsable queda obligado al pago correspondiente por la reparación de daños y desperfectos causados por negligencia, imprudencia, impericia o intención derivados del comportamiento de los asistentes, hacia la propiedad del inmueble o de las capillas de velación.

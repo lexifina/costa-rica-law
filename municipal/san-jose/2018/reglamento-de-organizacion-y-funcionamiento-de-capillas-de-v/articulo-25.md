@@ -1,0 +1,1 @@
+Artículo 25.—Los trámites ante las autoridades municipales, judiciales y sanitarias deberán ser realizados por el solicitante o las empresas particulares que presten servicios funerarios a pedimento de éste.

@@ -1,0 +1,1 @@
+Artículo 36.—La Junta Administrativa, los dolientes o cualquier persona presente procederán en cualquiera de los casos anteriores a comunicarse con la fuerza pública, policía municipal o policía judicial, para denunciar estos hechos.

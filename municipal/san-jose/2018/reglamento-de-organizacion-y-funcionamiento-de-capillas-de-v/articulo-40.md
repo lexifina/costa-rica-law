@@ -1,0 +1,1 @@
+Artículo 40.—El presente reglamento deberá publicarse en el Diario Oficial La Gaceta y colocarse en un lugar visible de cada una de las capillas de velación y deberá estar contenido en los contratos de uso de las capillas de velación municipales del Cantón Central de San José.

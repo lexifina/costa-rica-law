@@ -1,0 +1,1 @@
+Artículo 10.—La Municipalidad a través del Departamento de Participación Ciudadana convocará a las organizaciones sociales del distrito para que las mismas presenten sus propuestas de administración de las Capillas de Velación ante el Concejo Municipal.

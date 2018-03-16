@@ -1,0 +1,1 @@
+Artículo 21.—Toda solicitud de uso de la capilla de velación será recibida para su autorización a través de la Junta Administrativa encargada de su administración, debiendo firmar como responsable de los posibles daños que se pudieran ocasionar, un ciudadano mayor de edad nacional o extranjero o en su defecto y por caso excepcional un menor de edad mayor de quince años.

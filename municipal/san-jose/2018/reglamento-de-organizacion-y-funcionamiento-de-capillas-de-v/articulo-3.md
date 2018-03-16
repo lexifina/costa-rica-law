@@ -1,0 +1,1 @@
+Artículo 3º—Están sujetos a este reglamento todos aquellos ciudadanos nacionales y extranjeros mayores de edad o personas jóvenes sujetos a las edades establecidas en la Ley General de la Persona Joven, que soliciten el uso de la capilla de velación independientemente de su credo religioso.

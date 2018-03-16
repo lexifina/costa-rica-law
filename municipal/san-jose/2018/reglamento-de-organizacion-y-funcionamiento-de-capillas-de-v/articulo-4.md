@@ -1,0 +1,1 @@
+Artículo 4º—Se entiende como capilla de velación todo el conjunto de instalaciones que comprende: una sala de velación, áreas reservadas para velar a los fallecidos, un área de cocina, una batería de servicios sanitarios, área de estacionamiento, área perimetral e infraestructura propia, toda la infraestructura debe de cumplir con las especificaciones de la Ley 7600.
