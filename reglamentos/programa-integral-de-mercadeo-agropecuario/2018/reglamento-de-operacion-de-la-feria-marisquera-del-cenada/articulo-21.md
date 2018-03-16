@@ -1,0 +1,2 @@
+Artículo 21.—El expositor acepta, con su sola participación íntegramente la ubicación de sus instalaciones y las condiciones a las cuales tiene acceso a éstas para el evento ferial, así como los servicios básicos incluidos y demás documentos que rigen su participación. De igual manera, conoce y acepta las normas sobre servicios adicionales, condiciones disponibles. Las reglas sobre
+mejoras y construcciones son plenamente conocidas por el expositor y aceptadas en su integridad.

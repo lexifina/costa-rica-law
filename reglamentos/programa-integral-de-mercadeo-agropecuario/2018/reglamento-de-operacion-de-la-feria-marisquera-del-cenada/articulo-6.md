@@ -1,0 +1,1 @@
+Artículo 6º—La formulación de quejas o diferencias que llegasen a presentarse, serán atendidas y resueltas por la comisión organizadora de la Feria Marisquera, todo lo cual tendrá apelación ante la Gerencia General.

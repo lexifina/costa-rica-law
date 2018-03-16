@@ -1,0 +1,1 @@
+Artículo 8º—Los participantes eximirán de responsabilidad al PIMA por reclamaciones o discusiones manifestadas entre los participantes internos y externos con relación a la existencia a su favor de derechos de exclusividad o de cualquier otra índole.

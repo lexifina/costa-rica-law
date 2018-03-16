@@ -1,0 +1,2 @@
+Artículo 27.—La organización dispondrá la vigilancia necesaria pero es responsabilidad de cada uno de los expositores, cuidar el área interna del stand.
+La Feria Marisquera del CENADA ofrece a los expositores participantes, un horario de montaje estipulado el día viernes anterior al evento. El horario de la feria para el público visitante será el día sábado de 08:00 a. m. a 04:00 p. m. El desmontaje de stand y retiros de mercancías, será a partir de ese mismo sábado después de las 05:00 p. m., inclusive domingo hasta las 04:00 p. m.

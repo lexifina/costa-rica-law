@@ -1,0 +1,1 @@
+Artículo 19.—El manejo de los productos y/o servicios exhibidos será de responsabilidad del participante de la feria. Además, se deja a libertad de los expositores el adquirir por sus propios medios: seguros contra robo, incendio, sustracción etc. Así como la contratación de agentes de seguridad extras a los que provee la Feria Marisquera del Cenada.

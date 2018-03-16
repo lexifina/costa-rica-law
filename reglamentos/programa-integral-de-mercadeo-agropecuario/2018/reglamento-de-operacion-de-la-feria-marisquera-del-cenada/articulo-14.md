@@ -1,0 +1,1 @@
+Artículo 14.—Se prohíbe además: realizar exhibiciones o demostraciones escandalosas o cualquier tipo de ruido inadecuado para la tranquilidad de los expositores y visitantes; instalar material publicitario u objetos fuera del área asigna-da; ingresar bebidas alcohólicas en su totalidad.

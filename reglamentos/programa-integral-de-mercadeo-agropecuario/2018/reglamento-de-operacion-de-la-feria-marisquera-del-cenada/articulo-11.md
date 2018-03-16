@@ -1,0 +1,1 @@
+Artículo 11.—La Feria Marisquera del CENADA destinará un 15% de los puestos para que sean otorgados a individuos u organizaciones que represente emprendedurismo local, se les dará mayor prioridad a personas que cuenten con algún tipo de discapacidad. Así mismo se considerará mantener el equilibrio de género, en la mayoría de las posibilidades.

@@ -1,0 +1,1 @@
+Artículo 25.—Los expositores serán los únicos responsables de la mala utilización de las identificaciones, como engaños, fraudes y/o enmendaduras tanto de ellos como de sus empleados. Los expositores y el personal de montaje están obligados a portar en un lugar visible el correspondiente gafete que se le asigne.
