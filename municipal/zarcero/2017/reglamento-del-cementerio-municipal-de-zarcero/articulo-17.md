@@ -1,0 +1,1 @@
+Artículo 17: Las exhumaciones ordinarias por interés de particulares, solo se podrán efectuar dentro de la jornada ordinaria de los funcionarios del cementerio y quedarán sujetas al pago de los derechos oportunamente fijados por el Concejo Municipal.

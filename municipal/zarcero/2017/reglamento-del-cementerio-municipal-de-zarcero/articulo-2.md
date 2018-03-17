@@ -1,0 +1,1 @@
+Artículo 2: En lo correspondiente a la Administración del cementerio las decisiones serán tomadas por el Alcalde Municipal quien girará las directrices necesarias en relación a este reglamento y en conjunto con el departamento responsable. Todos los actos emanados por el Alcalde tendrán apelación ante el Concejo Municipal.

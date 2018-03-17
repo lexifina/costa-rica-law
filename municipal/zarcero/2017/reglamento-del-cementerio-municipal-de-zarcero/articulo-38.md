@@ -1,0 +1,1 @@
+Artículo 38: Cualquier daño o deterioro ocasionado por la construcción de una bóveda deberá ser reparada de inmediato por el responsable de la obra. En el caso, de que la reparación no se realice, la Municipalidad lo hará, y en cuyo caso los costos de reparación será cargado a la cuenta del responsable en la Municipalidad y constituirá gravamen sobre el derecho respectivo.

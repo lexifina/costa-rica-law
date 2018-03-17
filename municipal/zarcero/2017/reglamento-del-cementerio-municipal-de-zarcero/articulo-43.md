@@ -1,0 +1,1 @@
+Artículo 43: Las personas que van a construir podrán llevar a su maestro de obras, siempre y cuando cumpla con los lineamientos que se emitan en virtud de este reglamento. La Municipalidad será garante de que se cumpla con dicho reglamento.

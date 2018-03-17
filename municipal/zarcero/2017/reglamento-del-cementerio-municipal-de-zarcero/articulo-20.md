@@ -1,0 +1,1 @@
+Artículo 20: Los contratos de Concesión de nichos y el cobro de los derechos derivados de ellos, se regirán por las disposiciones del presente reglamento por lo que el concesionario, gozará de una concesión de derecho por el plazo de 5 años.

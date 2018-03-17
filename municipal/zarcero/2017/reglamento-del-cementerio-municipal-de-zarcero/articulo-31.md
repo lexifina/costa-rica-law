@@ -1,0 +1,1 @@
+Artículo 31: Todo concesionario de un derecho se compromete, en el mismo acto de adquisición, al pago de la cuota mensual de mantenimiento, la cual será fijada por la alcaldía. La falta de pago de la mensualidad dará derecho a rescindir sin responsabilidades el contrato por parte de la Municipalidad.

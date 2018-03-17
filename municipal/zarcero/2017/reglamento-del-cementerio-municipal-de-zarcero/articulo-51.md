@@ -1,0 +1,1 @@
+Artículo 51: Las tarifas a cobrar serán fijadas por el estudio que se realiza cada año y la previa aprobación del Concejo, tomando en cuenta los costos de oportunidad y de mantenimiento más un porcentaje de utilidad para desarrollo.

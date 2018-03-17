@@ -1,0 +1,1 @@
+Artículo 14: El acta para traslado de restos a otra bóveda en el mismo cementerio deberá contener la autorización de los arrendatarios de ambas bóvedas. En caso de traslado a otro Cementerio la autorización deberá indicar que se ha reservado el espacio en el otro cementerio para tal fin.

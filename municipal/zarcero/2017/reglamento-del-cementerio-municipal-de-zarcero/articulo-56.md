@@ -1,0 +1,1 @@
+Artículo 56: Las cesiones del derecho concesión, se harán ante la Administración en documento autenticado por un abogado o mediante ejecutoria de sentencia judicial. En caso de existencia de restos en el derecho, el documento deberá hacer constar el vínculo familiar respectivo entre los contratantes.

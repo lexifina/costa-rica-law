@@ -1,0 +1,1 @@
+Artículo 27: Para adquirir una concesión de derecho en el cementerio Municipal, se requiere ser oriundo del cantón, ninguna persona física podrá adquirir más de un derecho individual (en caso de que posea una bóveda ya construida) en este cementerio.

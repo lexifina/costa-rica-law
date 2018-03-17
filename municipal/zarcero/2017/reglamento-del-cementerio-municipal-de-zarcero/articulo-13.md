@@ -1,0 +1,1 @@
+Artículo 13: Para todos los efectos de exhumación, se consideran como interesados con derecho ante la Administración, los parientes indicados en el artículo 11, pero en caso de conflicto con el arrendatario de la bóveda que contuviere los restos, sus derechos deberán definirse por mandamiento judicial.

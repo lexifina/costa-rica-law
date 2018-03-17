@@ -1,0 +1,1 @@
+Artículo 59: La administración inspeccionará la colocación de cruces, bóvedas, y nichos, así como los colores a usarse que serán blanco y lo más semejante al blanco, a fin de que mantengan uniformidad en la estética del Cementerio.

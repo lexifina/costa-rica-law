@@ -1,0 +1,1 @@
+Artículo 23: El contrato de concesión tendrá un plazo de 5 años, contando a partir de la fecha en que se suscriba el contrato y se podrá prorrogar previo acuerdo del Alcalde Municipal, una vez que se haya verificado el buen mantenimiento y puntualidad de pago.
