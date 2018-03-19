@@ -1,0 +1,1 @@
+Artículo 47.- Los Comités Comunales deberán reunirse en sesión pública, cada ocho días ordinariamente y extraordinariamente cuando lo requieran. El CCDRSB debe capacitar a los miembros de los Comités Comunales en relación con el orden del manejo de correspondencia, actas, dineros, proyectos, planes, políticas, entre otros.
