@@ -1,1 +1,0 @@
-Artículo 36.—El presente Reglamento ha sido aprobado por el Concejo Municipal del cantón de Moravia, mediante acuerdo tomado en sesión ordinaria número sesenta y dos del diez de mayo de 1999 y rige diez días después de su publicación en el Diario Oficial "La Gaceta".
