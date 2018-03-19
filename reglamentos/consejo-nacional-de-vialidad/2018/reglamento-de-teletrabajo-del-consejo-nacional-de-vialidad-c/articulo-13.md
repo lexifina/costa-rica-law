@@ -1,0 +1,1 @@
+Artículo 13.—Los funcionarios de nuevo ingresó contratadas en un puesto teletrabajable deben mantener las condiciones acordadas mientras se mantenga la relación laboral. En caso de que dichas condiciones cambien, se analizará la situación siguiendo el debido proceso por parte de la jefatura correspondiente.

@@ -1,0 +1,1 @@
+Artículo 7º—Los teletrabajadores mantendrán su centro de trabajo en el cual han sido contratados, independientemente del lugar donde realice las actividades, y esto no implica que la institucióndeba reconocer o mantener algún tipo de incentivo económico tal como pago de zonaje, viáticos, pasajes, entre otros.

@@ -1,0 +1,2 @@
+Artículo 20.—La institución le brindará el soporte técnico a los sistemas informáticos y equipos aportados por ella para que el Teletrabajador desarrolle sus funciones.
+Cuando se presenten problemas en el equipo ocasionados por el mal uso, según las políticas establecidas por la Dirección de Tecnologías de la Información, el teletrabajador deberá devolver el equipo facilitado por la institución y se realizará la investigación correspondiente, para determinar la responsabilidad administrativa.

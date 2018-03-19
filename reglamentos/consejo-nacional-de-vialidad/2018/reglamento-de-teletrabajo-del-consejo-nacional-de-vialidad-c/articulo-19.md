@@ -1,0 +1,1 @@
+Artículo 19.—Las computadoras utilizadas para el teletrabajo deben cumplir con todas las características de seguridad indicadas en la normativa que se establezca a nivel Institucional por parte dela Dirección de Tecnologías de la Información, que se incorporen y establecidos en el acuerdo para ingresar al programa de teletrabajo.
