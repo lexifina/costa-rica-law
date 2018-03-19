@@ -1,0 +1,1 @@
+Artículo 12.- Servicio Comunal Estudiantil: Las horas cursadas por los estudiantes del PDBI en la asignatura Creatividad, Actividad y Servicio (CAS) se reconocerán como Servicio Comunal Estudiantil (SCE) en cumplimiento del requisito para optar por la equiparación o reconocimiento del título de Bachiller en Educación Media.
