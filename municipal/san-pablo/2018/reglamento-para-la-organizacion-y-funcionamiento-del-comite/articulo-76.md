@@ -1,0 +1,1 @@
+Artículo 76. Actas de las organizaciones deportivas y recreativas. Todas las organizaciones adscritas y que conforman el CCDRSP deberán llevar actas donde conste en forma sucinta las deliberaciones y los acuerdos que traten. Los libros contables y las actas debidamente firmadas deberán estar al día, así como las personerías jurídicas.

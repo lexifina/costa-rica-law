@@ -1,0 +1,1 @@
+Artículo 75. Atribuciones. Las Organizaciones Deportivas y/o Recreativas en coordinación con el CCDRSP podrán ser las encargadas de organizar, ejecutar, controlar y evaluar los planes de iniciación deportiva, juegos nacionales y desarrollo competitivo de las distintas disciplinas deportivas, igual responsabilidad cabrá para el desarrollo de eventos para la recreación.

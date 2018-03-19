@@ -1,0 +1,2 @@
+Artículo 4. Funcionamiento. El CCDRSP en ejercicio de sus funciones y para el desempeño de las gestiones que debe efectuar, actuará de conformidad con las facultades que la Ley y este Reglamento le señalen.
+Cada miembro desempeñará sus funciones de conformidad con las disposiciones de esa normativa y será responsable de cualquier actuación contraria a la misma, excepto aquellos casos en donde de manera expresa y manifiesta haya salvado su voto y así conste en actas.

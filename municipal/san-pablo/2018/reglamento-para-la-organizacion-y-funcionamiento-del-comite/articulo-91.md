@@ -1,0 +1,1 @@
+Artículo 91. Uso La caja Chica mantendrá dinero en efectivo para ser utilizado exclusivamente en la adquisición de bienes y servicios indispensables e imprevistos y que, en razón de su baja cuantía, se justifique por el beneficio que esto representa.

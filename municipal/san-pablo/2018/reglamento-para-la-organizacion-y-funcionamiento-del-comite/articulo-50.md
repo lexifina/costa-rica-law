@@ -1,0 +1,1 @@
+Artículo 50. Actas de las Comisiones. Las actas de las comisiones deberán ser conocidas y aprobadas en la siguiente reunión de la comisión a su elaboración. Una vez aprobadas la Comisión podrán transcribirse en las hojas foliadas por la Auditoría Interna.

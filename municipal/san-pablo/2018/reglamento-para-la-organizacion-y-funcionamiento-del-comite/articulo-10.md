@@ -1,0 +1,1 @@
+Artículo 10. Rendición de Cuentas. La Junta Directiva del CCDRSP presentará un informe de resultados de la gestión y la liquidación presupuestaria correspondientes al año anterior, en la primera semana de febrero de cada año, esto según el artículo N° 172 del Código Municipal.

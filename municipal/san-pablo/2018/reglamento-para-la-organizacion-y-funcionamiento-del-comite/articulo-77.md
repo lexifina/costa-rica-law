@@ -1,0 +1,1 @@
+Artículo 77. Informes. Las organizaciones deportivas y recreativas adscritas al CCDRSP deberán rendir un informe semestral de labores y de resultados de sus programas deportivas y/o recreativos, a más tardar una semana después de cerrado el semestre.

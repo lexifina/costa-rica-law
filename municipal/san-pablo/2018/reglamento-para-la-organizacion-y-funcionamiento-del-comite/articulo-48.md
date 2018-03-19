@@ -1,0 +1,1 @@
+Artículo 48. Regulación de las Comisiones. Para efectos de regulación de las comisiones del CCDRSP, se regularán por las disposiciones de los artículos 47, 49, 50, 51 y 52 que a efecto contiene el Reglamento de Sesiones del Concejo Municipal.

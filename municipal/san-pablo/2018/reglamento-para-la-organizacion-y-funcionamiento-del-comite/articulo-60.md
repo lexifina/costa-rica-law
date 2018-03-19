@@ -1,0 +1,1 @@
+Artículo 60. Integración. Los Comités Comunales estarán integrados por cinco miembros residentes del distrito o comunidad correspondiente, respetando la equidad y paridad de género, quienes nombrarán de su seno un Presidente(a), un Vicepresidente(a), un Secretario(a), un Tesorero(a) y un Vocal, que deberán ser juramentados por el Concejo Municipal.

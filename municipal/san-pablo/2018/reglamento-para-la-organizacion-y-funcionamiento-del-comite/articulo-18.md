@@ -1,0 +1,1 @@
+Artículo 18. Duración. Los miembros de la Junta Directiva del CCDRSP durarán en sus cargos dos años y podrán ser reelectos, el nombramiento se hará a partir del 01 de noviembre de los años pares. No devengarán dieta ni remuneración alguna proveniente de las arcas municipales, según el artículo 168 del Código Municipal.

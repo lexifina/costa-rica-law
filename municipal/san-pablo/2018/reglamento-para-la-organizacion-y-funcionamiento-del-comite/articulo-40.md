@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+De las actas y el orden del día.
+Artículo 40. Actas del CCDRSP. La Secretaría del CCDRSP, será la responsable de elaborar el acta de las sesiones ordinarias y extraordinarias así como las actas de las comisiones que conforme la Junta Directiva del CCDRSP; en ellas constará en forma sucinta las deliberaciones y los acuerdos que traten. El procedimiento para su elaboración y foliación será el mismo utilizado por la Secretaría del Concejo Municipal, para lo cual ese proceso le brindará la capacitación necesaria. Deberá entregarse a sus miembros con 48 horas de anticipación a la sesión ordinaria donde serán discutidas y aprobadas.

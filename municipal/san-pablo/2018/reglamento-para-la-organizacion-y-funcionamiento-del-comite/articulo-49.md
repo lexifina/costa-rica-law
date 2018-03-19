@@ -1,0 +1,1 @@
+Artículo 49. Reuniones de las Comisiones. Cada Comisión deberá llevar actas que transcriban de manera sucinta lo acontecido en sus reuniones. Cuando la comisión no tenga el quórum funcional para realizar la sesión se levantará una minuta con lo acontecido así como de las personas presentes.

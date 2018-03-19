@@ -1,0 +1,6 @@
+Artículo 88. Modificaciones. Las Modificaciones Presupuestarias se ejecutarán cuando impliquen:
+a) Aumentos de la subpartida de servicios especiales, excepto cuando estos aumentos sean destinados a financiar convenios suscritos y debidamente formalizados con otras instituciones.
+b) Aumentos de jornada de las plazas existentes por cargos fijos.
+c) Variaciones en los objetivos, las metas y el contenido presupuestario del comité, aprobado en el POA respectivo.
+d) Ajustes en los objetivos y metas del Plan de Trabajo Anual, según se acordó en la aprobación del Plan–Presupuesto.
+e) Situaciones excepcionales derivadas de la no aplicación de los límites establecidos en la cantidad máxima y el monto máximo de recursos a variar en las modificaciones presupuestarias (casos de obligación imprevista que deba cumplir la Administración en acatamiento de una orden judicial o de una disposición contenida en una ley, por requerimiento expreso de la CGR como consecuencia del ejercicio de sus competencias de fiscalización superior de la Hacienda Pública y por casos extraordinarios debidamente justificados, que pongan en peligro la eficiente gestión institucional o el logro de las metas y objetivos previstos por la Institución).

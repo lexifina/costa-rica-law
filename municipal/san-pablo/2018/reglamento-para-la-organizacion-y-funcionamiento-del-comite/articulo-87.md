@@ -1,0 +1,1 @@
+Artículo 87. Aprobación. En relación con los niveles de aprobación de estos documentos presupuestarios, corresponde a la Junta Directiva del CCDRSP, que deberá informar al Concejo Municipal de los cambios en el POA y presupuesto.

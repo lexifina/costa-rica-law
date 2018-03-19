@@ -1,0 +1,1 @@
+Artículo 30. De la Sede. Las sesiones de la Junta Directiva del CCDRSP deberán efectuarse en el local sede del CCDRSP. Sin embrago, podrán celebrarse sesiones en cualquier lugar del cantón, cuando se vayan a tratar asuntos relativos a los intereses de la comunidad, y deberá decidirse mediante acuerdo de Junta Directiva.

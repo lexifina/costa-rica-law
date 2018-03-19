@@ -1,0 +1,2 @@
+Artículo 80. Plan-Presupuesto. El Plan-Presupuesto Ordinario del CCDRSP y sus distintos órganos debe elaborarse alineando el PEDR, sus políticas, programas y proyectos; que se ejecutarán en el período que este cubre, incluyendo metas claras y precisas de lo que se persigue hacer durante el año presupuestario de acuerdo con las exigencias legales y reglamentarias establecidas al efecto.
+Debe contener una estimación de ingresos y gastos, los gastos presupuestados no podrán exceder los ingresos estimados.

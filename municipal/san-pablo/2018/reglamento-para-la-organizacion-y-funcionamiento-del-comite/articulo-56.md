@@ -1,0 +1,1 @@
+Artículo 56. Contador del CCDRSP. La Junta Directiva contará con un contador, contratado bajo la modalidad de servicios profesionales, y bajo el debido proceso de contratación, quien llevará las cuentas contables del CCDRSP, hasta que su presupuesto le permita crear la plaza. El tesorero coordinará los requerimientos del CCDRSP con el soporte de la Administración General.

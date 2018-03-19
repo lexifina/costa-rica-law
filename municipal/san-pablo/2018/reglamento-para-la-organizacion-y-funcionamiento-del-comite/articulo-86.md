@@ -1,0 +1,1 @@
+Artículo 86. Del monto. El monto total autorizado que se redistribuya sumando estas modificaciones presupuestarias, no podrá exceder del 25% del presupuesto total (Presupuesto Ordinario más presupuestos extraordinarios), salvo por situaciones excepcionales.

@@ -1,0 +1,1 @@
+Artículo 28. Sesiones Ordinarias. La Junta Directiva sesionará en forma ordinaria y pública, una vez a la semana, el día y hora acordados en la sesión inaugural por motivos especiales y por acuerdo de la mayoría simple de sus miembros de la Junta Directiva, podrá variarse la fecha y hora establecida para las sesiones ordinarias, debiendo realizar la notificación correspondiente.

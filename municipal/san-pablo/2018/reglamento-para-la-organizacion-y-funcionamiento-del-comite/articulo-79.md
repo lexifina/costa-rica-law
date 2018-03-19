@@ -1,0 +1,1 @@
+Artículo 79. Período Presupuestario. Para los efectos del CCDRSP, el período de Plan Anual Operativo y su respectivo Presupuesto Ordinario inicia el 1 de enero y finaliza el 31 de diciembre de cada año.

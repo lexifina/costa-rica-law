@@ -1,0 +1,1 @@
+Artículo 82. Destinos específicos. Los recursos del CCDRSP sólo se podrán destinar en obras, programas o proyectos deportivos y recreativos, según los límites fijados por el Título VII del Código Municipal o jurisprudencia nacional.
