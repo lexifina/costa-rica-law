@@ -1,0 +1,1 @@
+Artículo 12.- Ajuste de disposiciones y lineamientos ministeriales. Las dependencias del Ministerio de Educación Pública, en el plazo de tres meses a partir de la entrada en vigencia del presente decreto, procederán a revisar la normativa interna ministerial a efectos de plantear las reformas que permitan armonizarla con lo dispuesto en este Decreto.

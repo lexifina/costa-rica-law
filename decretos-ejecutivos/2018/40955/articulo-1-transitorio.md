@@ -1,0 +1,1 @@
+Transitorio I. El Ministerio de Educación Pública en el plazo de diez años a partir de la publicación de este decreto, transformará paulatinamente las Aulas Integradas de Retraso Mental (Discapacidad Intelectual o Cognitiva) en servicios de apoyo educativo en centros educativos regulares.

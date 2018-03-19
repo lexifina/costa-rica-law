@@ -1,0 +1,1 @@
+Transitorio III. El Ministerio de Educación Pública en un plazo de doce años a partir de la publicación de este decreto, transformará paulatinamente los centros de educación especial en centros de recursos y apoyo educativo.
