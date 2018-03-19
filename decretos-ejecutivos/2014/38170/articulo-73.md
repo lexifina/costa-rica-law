@@ -10,7 +10,8 @@ h) Verificar que las Direcciones Regionales de Educación mantengan un inventari
 i) Verificar que las Direcciones Regionales de Educación mantengan un registro actualizado de los funcionarios destacados en las distintas dependencias, así como de funcionarios reubicados, incluidas las Oficinas de Supervisión.
 j) Apoyar a la Dirección de Recursos Humanos en los procesos que corresponda, relacionados con la gestión del recurso humano destacado en las Direcciones Regionales de Educación.
 k) Brindar asesoría a funcionarios de las Direcciones Regionales de Educación sobre los procesos de arrendamiento de locales.
-l) Mantener un registro actualizado de la normativa aplicable a las Juntas de Educación y Juntas Administrativas, así como velar por su adecuada divulgación.
-m) Verificar, en coordinación con el Departamento de Gestión Financiera de Juntas, que las Direcciones Regionales de Educación presenten en los plazos establecidos, los informes trimestrales sobre la disponibilidad presupuestaria de las Juntas de Educación y Juntas Administrativas, según fuente de financiamiento.
-n) Establecer en coordinación con las Unidades Ejecutoras de Transferencias, la identificación de necesidades de capacitación y asesoría en materia de Juntas de Educación y Juntas Administrativas.
-o) Otras funciones inherentes, relacionadas con su ámbito de competencia, asignadas por el superior jerárquico.
+I) Otras funciones inherentes, relacionadas con su ámbito de competencia, asignadas por el superior jerárquico.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 41007 del 19 de marzo del 2018)
+m) (Derogado por el artículo 3° del decreto ejecutivo N° 41007 del 19 de marzo del 2018)
+n) (Derogado por el artículo 3° del decreto ejecutivo N° 41007 del 19 de marzo del 2018)
+o) (Derogado por el artículo 3° del decreto ejecutivo N° 41007 del 19 de marzo del 2018)

@@ -2,7 +2,8 @@ Artículo 76.—Son funciones de la Dirección de Desarrollo Curricular:
 a) Coordinar el proceso de formulación de las políticas curriculares y someterlas a consulta de las autoridades superiores, con el fin de que sean presentadas al Consejo Superior de Educación (CSE) para su autorización.
 b) Establecer directrices para la implementación de las políticas relacionadas con el desarrollo curricular en todos los ámbitos del sistema educativo, tanto al nivel nacional, regional como institucional, así como mantener un registro actualizado sobre las directrices vigentes.
 c) Coordinar las acciones relacionadas con el diseño y evaluación de los planes y los programas de estudio para los distintos ciclos y ofertas educativas, así como someterlos a consulta de las autoridades superiores, con el fin de que sean presentados al Consejo Superior de Educación (CSE) para su autorización.
-d) Promover el desarrollo de propuestas innovadoras para el mejoramiento curricular, en todos los ciclos y ofertas educativas.
+d) Promover el desarrollo de propuestas, programas y/o proyectos innovadores para el mejoramiento curricular, en todos los ciclos y ofertas educativas, según disponga la Administración Superior o el Consejo Superior de Educación.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 41007 del 19 de marzo del 2018)
 e) Promover la elaboración de recursos didácticos y guías metodológicas para el desarrollo curricular en todos los ciclos y ofertas educativas, incorporando el uso de las tecnologías de la información y la comunicación (TIC).
 f) Coordinar con la Fundación Omar Dengo (FOD) el desarrollo del Programa Nacional de Informática Educativa (PRONIE).
 g) Coordinar con la Dirección de Recursos Tecnológicos en Educación, los lineamientos de índole curricular que deben considerarse en la producción, introducción y experimentación de las tecnologías de la información y la comunicación para apoyar la labor del docente en el aula.
@@ -13,10 +14,14 @@ k) Coordinar con la Dirección de Gestión y Evaluación de la Calidad, el desar
 l) Coordinar con la Dirección de Planificación Institucional la realización de estudios e investigaciones sobre temas específicos relacionados con el currículo, en los distintos ciclos y ofertas educativas, para orientar la toma de decisiones.
 m) Programar y coordinar la asesoría técnica brindada al nivel regional por las distintas dependencias que integran la Dirección de Desarrollo Curricular.
 n) Formular directrices curriculares para la evaluación de los procesos de aprendizaje en todos los ciclos y ofertas educativas.
-o) Promover la cooperación de organismos nacionales e internacionales, públicos y privados, para el desarrollo curricular de todas las ofertas educativas del país, en coordinación con la Dirección de Asuntos Internacionales y Cooperación.
+o) Promover la cooperación de organismos nacionales e internacionales, públicos y privados, para el establecimiento de mecanismos de acción interinstitucional e intersectorial para el desarrollo curricular, acceso, la cobertura y calidad de todas las ofertas educativas del país, en coordinación con la Dirección de Asuntos Internacionales y Cooperación.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 41007 del 19 de marzo del 2018)
 p) Priorizar, en coordinación con las dependencias que integran la Dirección de Desarrollo Curricular, los programas y proyectos de cooperación que serán presentados a los cooperantes nacionales e internacionales, públicos y privados.
 q) Formular políticas de articulación y correlación entre las distintas asignaturas, ofertas, ciclos, niveles y modalidades del Sistema Educativo Costarricense.
 r) Establecer los lineamientos técnicos, directrices y manuales de procedimientos requeridos para orientar la asignación, uso, supervisión y control de los recursos públicos canalizados a la Juntas de Educación y Juntas Administrativas, en temas de su competencia.
 s) Formular el Plan Operativo Anual (POA) de la Dirección y el correspondiente anteproyecto de presupuesto, de acuerdo con las prioridades institucionales y del sector educación, así como remitirlos al Viceministro Académico para su aprobación.
 t) Establecer los Manuales de Procedimientos requeridos para el funcionamiento de la Dirección y sus dependencias, el manejo de información oficial, así como la prestación de servicios y la realización de trámites bajo su responsabilidad, previo visto bueno del Viceministro Académico.
-u) Otras funciones inherentes, relacionadas con su ámbito de competencia y atribuciones, asignadas por el superior jerárquico.
+u) Formular y coordinar el desarrollo de acciones que se realicen desde el ámbito técnico del Colegio Nacional Virtual Marco Tulio Salazar.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41007 del 19 de marzo del 2018)
+v) Otras funciones inherentes, relacionadas con su ámbito de competencia y atribuciones, asignadas por el superior jerárquico.
+(Corrida la numeración del inciso anterior por el artículo 1° del N° 41007 del 19 de marzo del 2018 que lo traspasó del antiguo inciso u) al v))

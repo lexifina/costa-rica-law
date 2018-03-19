@@ -1,0 +1,10 @@
+Artículo 86 Bis.-: Son funciones de la Unidad de Alta Dotación, Talentos y Creatividad:
+a) Proponer a la Dirección criterios técnicos para que las políticas curriculares incorporen la atención del estudiantado en condición de alta dotación.
+b) Brindar las directrices, los lineamientos y los protocolos nacionales para el cumplimiento e implementación de la Ley NºB899 y el Reglamento de la Promoción de la Alta Dotación, con el fin de que sean aplicados en el ámbito nacional, regional e institucional, en todos los niveles, modalidades del sistema educativo costarricense.
+c) Coordinar con las instancias institucionales encargadas, procesos de investigación, evaluación y sistematización sobre los diferentes aspectos relacionados con alta dotación, talento y creatividad, para orientar la toma de decisiones de conformidad con lo establecido por la Ley Nº8899.
+d) Coordinar con la Dirección de Desarrollo Curricular, acciones, recursos didácticos y proyectos relacionados con el uso de las tecnologías, vinculando a la Dirección de Recursos Tecnológicos en Educación y otras instancias, para la mejora de la atención de este estudiantado.
+e) Formular propuestas tendientes a la sensibilización, toma de conciencia e incorporación de la familia y la comunidad en los procesos educativos de esta población.
+f) Formular, en coordinación con el Departamento de Evaluación de los Aprendizajes, las directrices curriculares para la evaluación de los procesos de aprendizaje de los estudiantes en condición de alta dotación, en los diferentes niveles del sistema educativo costarricense; de conformidad con la normativa vigente.
+g) Coordinar con la Dirección de Desarrollo Curricular y la Dirección de Asuntos Internacionales y Cooperación, la promoción de vínculos de cooperación y coordinación con instituciones de educación superior nacionales e internacionales, en materia de alta dotación, talentos y creatividad.
+h) Otras funciones inherentes, relacionadas con su ámbito de competencia y atribuciones, asignadas por el/la superior.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 41007 del 19 de marzo del 2018)
