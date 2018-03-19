@@ -1,10 +1,15 @@
 ARTICULO 3
 Cálculo de los niveles de control
-A los fines de los artículos 2, 2A a 2 I y 5, cada Parte determinará, para cada Grupo de Sustancias que figuren en el Anexo A, el anexo B, el anexo C o el anexo E, sus niveles calculados de:
-(Así reformado el párrafo anterior por el artículo 1° punto E de la Ley N° 8670 de 9 de octubre de 2008).
+1. A los fines de los artículos 2, 2A a 2J y 5, cada Parte determinará, respecto de cada grupo de sustancias que figura en el anexo A, el anexo B, el anexo C, el anexo E o el anexo F, sus niveles calculados de:
+(Así reformado el preámbulo anterior por el artículo único del Tratado Internacional N° 9522 del 14 de febrero de 2018, “Aprobación de la enmienda al Protocolo de Montreal, relativo a las Sustancias Agotadoras de la Capa de Ozono (2016)”)
 a) Producción, mediante:
-i) La multiplicación de su producción anual de cada sustancia controlada por el potencial de agotamiento del ozono determinado respecto de esta sustancia en el Anexo A; o en el anexo B y
+i) La multiplicación de su producción anual de cada sustancia controlada por el potencial de agotamiento del ozono determinado respecto de esta sustancia en el Anexo A; a menos que se especifique otra cosa en el párrafo 2;
+(Así reformado el inciso anterior por el artículo único del Tratado Internacional N° 9522 del 14 de febrero de 2018, “Aprobación de la enmienda al Protocolo de Montreal, relativo a las Sustancias Agotadoras de la Capa de Ozono (2016)”)
 ii) La suma, para cada Grupo de sustancias, de las cifras correspondientes.
 b) Importaciones y exportaciones, respectivamente, aplicando, mutatis mutandis, el procedimiento establecido en el inciso a); y
 c) Consumo, mediante la suma de sus niveles calculados de producción y de importaciones y restando su nivel calculado de exportaciones, según se determine de conformidad con los incisos a) y b). No obstante, a partir del 1 de enero 1993 ninguna exportación de sustancias controladas a los Estados que no sean Parte en el Protocolo podrá deducirse a efectos de calcular el nivel de consumo de la Parte exportadora.
+d) Emisiones de sustancias del grupo 11 del anexo F generadas en cada instalación que produzca sustancias del grupo I del anexo C o del anexo F mediante la inclusión, entre otras cosas, de las cantidades emitidas debido a fugas de equipos, orificios de ventilación en los procesos y dispositivos de destrucción, pero excluyendo las cantidades capturadas para su uso, destrucción o almacenamiento.
+(Así adicionado el inciso d) anterior por el artículo único del Tratado Internacional N° 9522 del 14 de febrero de 2018, “Aprobación de la enmienda al Protocolo de Montreal, relativo a las Sustancias Agotadoras de la Capa de Ozono (2016)”)
+2. Al calcular los niveles de producción, consumo, importación, exportación y emisión de las sustancias que figuran en el anexo F y en el grupo I del anexo C, expresados en equivalentes de C02, a los fines del artículo 2J, el párrafo 5 bis del artículo 2 y el párrafo 1 d) del artículo 3,cada Parte utilizará los potenciales de calentamiento atmosférico de esas sustancias especificados en el grupo I del anexo A y en los anexos C y F.
+(Así adicionado el párrafo anterior por el artículo único del Tratado Internacional N° 9522 del 14 de febrero de 2018, “Aprobación de la enmienda al Protocolo de Montreal, relativo a las Sustancias Agotadoras de la Capa de Ozono (2016)”)
 (Así reformado por el artículo 2 de la Ley N° 7808 del 11 de junio de 1998, anexo III punto J)
