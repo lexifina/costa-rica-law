@@ -1,0 +1,1 @@
+Transitorio I.—En caso que se hayan designado suplentes conforme la norma que mediante este acto se está modificando, se tomarán las acciones que sean necesarias para efectuar el cese de tales designaciones y para realizar nuevos nombramiento de acuerdo con lo dispuesto en este Decreto Ejecutivo.

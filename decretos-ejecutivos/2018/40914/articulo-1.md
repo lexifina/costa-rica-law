@@ -1,0 +1,19 @@
+N° 40914-MOPT
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+En ejercicio de las facultades conferidas en los artículos 140, incisos 3) y 18) y 146 de la Constitución Política y con fundamento en la Ley de Simplificación y Eficiencia Tributaria N° 8114 del 9 de julio del 2001 y sus reformas; la Ley de Creación del Ministerio de Obras Públicas y Transportes, N° 3155 del 5 de agosto de 1963 y sus reformas; la Ley General de la Administración Pública, N° 6227 del 2 de mayo de 1978 y sus reformas y la Primera Ley Especial para la Transferencia de Competencias: Atención Plena y Exclusiva de la Red Vial Cantonal; N° 9329 del 15 de octubre del 2015.
+Considerando:
+I.—Que en el Alcance N° 41 a La Gaceta N° 39 del 23 de febrero del 2017, se publicó Decreto Ejecutivo N° 40138-MOPT del 12 de diciembre del 2016 “Reglamento al inciso b) del artículo 5 de la Ley N° 8114 “Ley de Simplificación y Eficiencia Tributarias.”
+II.—Que en el artículo 9 del citado Decreto Ejecutivo N° 40138-MOPT estableció la integración de las Juntas Viales Cantonales. Asimismo, dicha norma reguló lo atinente a la designación de los suplentes de los miembros propietarios de dichas Juntas. En tal sentido el penúltimo párrafo del citado artículo 9 dispuso lo siguiente:
+“Cada uno de los miembros propietarios nombrará a su suplente que lo representará en sus ausencias.”
+III.—Que lo establecido en el penúltimo párrafo del artículo 9 del Decreto Ejecutivo N° 40138-MOPT, fue objeto de una revisión por parte del Poder Ejecutivo, considerándose que lo pertinente es que el nombramiento de los suplentes de la Junta Vial Cantonal, quienes ostentan las mismas atribuciones del titular cuando ejercen las suplencias, se efectúe mediante el mismo mecanismo de nombramiento del propietario, por razones de lógica técnica-jurídica. Lo anterior a excepción del Alcalde, en cuyas ausencias debe aplicar lo dispuesto en el artículo 14 del Código Municipal.
+|IV.—Que asimismo, dicha normativa es omisa en cuanto a la suplencia de los miembros de las Juntas Viales Distritales, por lo que resulta necesario incorporar la respectiva regulación en cuanto a esta materia.
+V.—Que conforme lo dispuesto en el artículo 361 de la Ley General de la Administración Pública, mediante publicación en el Alcance N° 171 a La Gaceta N° 133 del 13 de julio del 2017, se confirió audiencia a las entidades representativas de interés corporativos o gremiales, así como a las personas físicas o jurídicas que pudieren resultar perjudicadas con la aplicación de la presente reforma, siendo que no se recibieron observaciones en el plazo de Ley.
+VI.—Que el presente Decreto Ejecutivo no establece ni modifica trámites, requisitos o procedimientos que el administrado deba cumplir, por lo que no requiere el control previo de revisión por parte de la Dirección de Mejora Regulatoria del MEIC, que establece el Decreto Ejecutivo N° 37045-MP-MEIC. Por tanto,
+Decretan:
+Reforma al penúltimo párrafo del artículo 9 del Decreto
+Ejecutivo N° 40138-MOPT Reglamento al inciso b) del
+artículo 5 de la Ley N° 8114 “Ley de
+Simplificación y Eficiencias Tributarias”
+Artículo 1º—Se modifica el penúltimo párrafo del artículo 9 del Decreto Ejecutivo N° 40138-MOPT “Reglamento al inciso b) del artículo 5 de la Ley N° 8114 “Ley de Simplificación y Eficiencia Tributarias”, para que en lo sucesivo se lea de la siguiente manera:
+“Cada miembro de la Junta Vial Cantonal deberá tener un suplente que lo representará en sus ausencias, nombrado de la misma forma en que se designó al propietario; en el caso del Alcalde Municipal, en sus ausencias aplicará lo dispuesto en el numeral 14 del Código Municipal. En lo que respecta a la Junta Vial Distrital que se establece en esta norma, cada miembro propietario también deberá tener un suplente que lo representará en sus ausencias, designado de la misma forma en que se designó al propietario; en el caso del Intendente su suplente será el Viceintendente.”
