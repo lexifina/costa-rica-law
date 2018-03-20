@@ -1,4 +1,0 @@
-CAPÍTULO III
-Presupuestación de los recursos y el apoyo financiero
-Artículo 9º—Anteproyecto de presupuesto. El Consejo elaborará el anteproyecto de presupuesto de los recursos recaudados por los tributos creados en el artículo 4° de la Ley N° 9154 del 3 de julio de 2013, de conformidad con las disposiciones de la Ley de la Administración Financiera de la República y Presupuestos Públicos, Ley N° 8131 del 18 de setiembre de 2001, su Reglamento y sus reformas, así como de otra normativa legal y técnica aplicable, teniendo presente el destino específico al que los mismos han sido destinados por la Ley.
-Procurará destinar recursos a cada uno de los puestos fronterizos proporcionalmente a la recaudación que cada uno genere y su importancia estratégica en términos de flujos comerciales y migratorios. Para tales efectos, contará con planes maestros para el desarrollo y crecimiento futuro de los puestos fronterizos.
