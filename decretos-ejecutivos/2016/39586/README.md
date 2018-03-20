@@ -14,3 +14,4 @@ Reglamento a los Impuestos de salidas del Territorio Nacional por vía Terrestre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-04-15 | la propia norma |
+| 2 | 2018-03-20 | Decreto Ejecutivo 41123 (2018-03-20) |
