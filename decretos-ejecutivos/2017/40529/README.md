@@ -14,3 +14,4 @@ Reglamento de matrícula y de traslados de los estudiantes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-31 | la propia norma |
+| 2 | 2018-03-20 | Decreto Ejecutivo 41048 (2018-03-20) |
