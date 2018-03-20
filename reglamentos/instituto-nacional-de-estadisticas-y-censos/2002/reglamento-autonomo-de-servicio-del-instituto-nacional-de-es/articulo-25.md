@@ -1,1 +1,0 @@
-Artículo 25.—El registro de asistencia será computado mensualmente, por lo que la Unidad de Recursos Humanos dispondrá del mes siguiente, para la aplicación de las sanciones administrativas que corresponda realizar.

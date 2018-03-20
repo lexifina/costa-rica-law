@@ -1,2 +1,0 @@
-Artículo 52.—El procedimiento deberá ser llevado a cabo, resguardando los principios del debido proceso, la proporcionalidad y la libertad probatoria, así como los específicos entendidos como la confidencialidad, que implica que las personas que comparecen como testigos y las partes que intervienen en la investigación y en la resolución, de no dar a conocer la identidad de las personas denunciantes ni de la persona denunciada y del principio províctima, so pena de incurrir en falta grave.
-(Así reformado en sesión N° 558 del 3 de agosto de 2010)
