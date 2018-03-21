@@ -1,0 +1,4 @@
+Artículo 4º—Términos y definiciones. Para los efectos de este Reglamento, se establecen los siguientes términos y definiciones:
+1. Autoridad Reguladora: Autoridad Reguladora de los Servicios Públicos o Aresep, sin incluir a la Superintendencia de Telecomunicaciones.
+2. Funcionario: Persona física que de acuerdo con los trámites establecidos haya sido o llegare a ser nombrado por el Regulador General o, por la Junta Directiva, en el caso del Auditor Interno y el Sub Auditor Interno, o por el Consejo de Gobierno, en el caso del Regulador General y el Regulador General Adjunto, y preste sus servicios a la Institución.
+3. Jerarca Superior Administrativo: Es el Regulador General para todos los funcionarios de la Autoridad Reguladora de los Servicios Públicos, con las siguientes excepciones: a) En el caso del auditor interno, del sub auditor el Jerarca Superior Administrativo es la Junta Directiva de la Autoridad Reguladora de los Servicios Públicos

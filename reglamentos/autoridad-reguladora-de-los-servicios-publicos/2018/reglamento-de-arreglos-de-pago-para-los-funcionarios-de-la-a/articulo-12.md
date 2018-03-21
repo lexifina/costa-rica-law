@@ -1,0 +1,1 @@
+Artículo 12.—Pago de intereses. Se cancelarán los intereses de conformidad con la tasa definida por el Banco Nacional de Costa Rica, para depósitos de ahorro a la vista vigentes a la fecha de la suscripción del arreglo de pago.

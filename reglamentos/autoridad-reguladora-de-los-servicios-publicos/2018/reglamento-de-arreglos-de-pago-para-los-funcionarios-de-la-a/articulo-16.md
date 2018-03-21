@@ -1,0 +1,1 @@
+Artículo 16.—Derogatoria. Se deroga el Reglamento autónomo de procedimientos de arreglos de pago, publicado en La Gaceta N° 40, del 26 de febrero de 1999, así como cualquier normativa o disposición vigente, que se contraponga a lo aquí reformado.

@@ -1,0 +1,2 @@
+Artículo 10.—Formalización del arreglo de pago. Una vez que se verifique el cumplimiento de los requisitos establecidos en el artículo anterior, la Dirección de Finanzas lo comunicará de forma inmediata a la Dirección General de Operaciones, para que proceda con la confección del documento de arreglo de pago y su correspondiente formalización.
+En respaldo de la deuda, el funcionario firmará un pagaré por el monto total adeudado, incluidos los intereses calculados de acuerdo con el plazo autorizado.

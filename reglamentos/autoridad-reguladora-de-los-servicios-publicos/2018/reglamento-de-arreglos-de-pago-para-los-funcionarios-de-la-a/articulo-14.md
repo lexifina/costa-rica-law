@@ -1,0 +1,2 @@
+Artículo 14.—Incumplimiento. Si el funcionario incumpliera el arreglo de pago, se le comunicará por escrito el atraso, y se le realizarán las intimaciones de ley. No se autorizará un nuevo arreglo de pago, con base en la suma originada en el incumplimiento de uno anterior.
+En caso de no cumplirse con la obligación luego de vencerse el plazo de la segunda intimación, se procederá a ejecutar judicialmente el pagaré, para lo cual la Dirección de Finanzas realizará el informe respectivo con la recomendación del caso al Jerarca Superior Administrativo.

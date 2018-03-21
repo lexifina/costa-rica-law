@@ -1,0 +1,1 @@
+Artículo 6º—Procedencia del arreglo de pago. Procederá el arreglo de pago en toda aquella gestión de cobro administrativo o judicial que se realice de las deudas que los funcionarios contraigan con la Autoridad Reguladora.

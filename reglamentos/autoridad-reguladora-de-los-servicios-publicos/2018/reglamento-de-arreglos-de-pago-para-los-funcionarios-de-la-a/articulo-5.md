@@ -1,0 +1,2 @@
+Artículo 5º—Deudas de los funcionarios. La deuda del funcionario para con la Institución será determinada mediante el debido procedimiento administrativo ordinario determinado en la Ley General de la Administración Pública, o mediante la aceptación implícita o explícita del deudor.
+En el caso de que se determine una obligación pecuniaria de un funcionario en favor de la Autoridad Reguladora, deberá cancelarse de inmediato o a más tardar en la fecha del siguiente pago de salario, o en caso contrario el funcionario podrá solicitar un arreglo de pago.

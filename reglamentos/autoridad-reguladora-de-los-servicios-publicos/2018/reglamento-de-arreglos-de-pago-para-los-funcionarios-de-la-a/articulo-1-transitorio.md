@@ -1,0 +1,1 @@
+Transitorio.—Los arreglos de pago que, a la entrada en vigencia del presente reglamento, se encuentren autorizados por el Jerarca Superior Administrativo, seguirán rigiéndose por la anterior normativa.

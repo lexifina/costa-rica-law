@@ -1,0 +1,2 @@
+Artículo 8º—Cálculo y trámite. Corresponderá a la Dirección de Finanzas realizar los cálculos para los arreglos de pago y enviar la información y el expediente completo al Jerarca Superior Administrativo para su autorización.
+La Dirección General de Operaciones será la encargada de confeccionar el documento en el que se formalice el arreglo de pago correspondiente. La Dirección de Finanzas deberá custodiar en el expediente dicho arreglo y todas las gestiones realizadas para su formalización, con el fin de darle seguimiento a su efectivo cumplimiento.
