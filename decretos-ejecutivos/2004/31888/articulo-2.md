@@ -1,1 +1,0 @@
-Artículo 2º—El Diccionario de Imputaciones Presupuestarias del Sector Público es complemento del "Clasificador por Objeto del Gasto del Sector Público" publicado mediante decreto Ejecutivo 31459-H publicado en La Gaceta Nº 223 del 19 de noviembre de 2003 y se pondrá en vigencia a partir de la adopción de dicho clasificador presupuestario
