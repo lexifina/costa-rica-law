@@ -1,3 +1,1 @@
-CAPITULO IX
-Responsabilidad de funcionarios
-Artículo .65°: Responsabilidad. El incumplimiento de los distintos deberes señalados en este reglamento a cargo de funcionarios de la Institución, comportará el inicio obligatorio del procedimiento disciplinario respectivo, con el fin de deducir las sanciones derivadas de tales omisiones. Las mismas resultarán agravadas, si su inacción comporta perjuicio para la Institución.
+Artículo 65º: Control sobre la vigencia de las inscripciones en el Registro: La Proveeduría será el responsable de verificar periódicamente la vigencia de las inscripciones en el Registro de Laboratorios de Ensayo de los servicios de verificación de la calidad, así como de implementar un sistema de control sobre la vigencia de los documentos legales aportados, con el fin de dotar de seguridad jurídica a la Administración respecto de la información ahí consignada. Además de vigilar el cumplimiento de lo indicado en el artículo 37° de este Reglamento.

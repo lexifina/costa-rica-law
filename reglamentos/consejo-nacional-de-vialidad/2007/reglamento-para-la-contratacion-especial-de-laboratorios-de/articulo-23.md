@@ -1,1 +1,1 @@
-Artículo 23°: Vigencia del período para recibir inscripciones. Las solicitudes de inscripción al Registro de Elegibles para prestar servicios de verificación de la calidad de proyectos viales del CONAVI, se pueden tramitar durante la vigencia del Reglamento y sus prórrogas.
+Artículo 23º: Vigencia del período para recibir inscripciones. Las solicitudes de inscripción al Registro de Elegibles para prestar servicios de verificación de la calidad de proyectos viales del CONAVI, se pueden tramitar durante la vigencia del Reglamento y sus prórrogas.

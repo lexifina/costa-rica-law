@@ -1,1 +1,1 @@
-Artículo 35°. Boletas de aceptación: Todas las boletas de aceptación o rechazo de lo requerido por CONAVI, deberán venir debidamente firmadas por el representante legal del Organismo de Ensayo, la cual tendrá una vigencia de 15 días hábiles, y serán archivadas en el expediente respectivo.
+Artículo 35º. Boletas de aceptación: Todas las boletas de aceptación o rechazo de lo requerido por CONAVI, deberán venir debidamente firmadas por el representante legal del Laboratorio de Ensayo, la cual tendrá una vigencia de 15 días hábiles, y serán archivadas en el expediente respectivo.

@@ -1,3 +1,3 @@
-CAPITULO X
-Disposiciones transitorias
-Artículo 66°: Normas supletorias aplicable. Para el sistema de contratación regulado en este reglamento, regirán todos los principios constitucionales y legales en materia de contratación administrativa, así como las prohibiciones y requisitos de ley.
+CAPITULO IX
+Responsabilidad de funcionarios
+Artículo 66º: Responsabilidad. El incumplimiento de los distintos deberes señalados en este reglamento a cargo de funcionarios de la Institución, comportará el inicio obligatorio del procedimiento disciplinario respectivo, con el fin de deducir las sanciones derivadas de tales omisiones. Las mismas resultarán agravadas, si su inacción comporta perjuicio para la Institución.

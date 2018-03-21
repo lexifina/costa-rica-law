@@ -1,3 +1,11 @@
-Artículo 63°: Resultado de la Evaluación: La evaluación del Organismo de Ensayo de servicios de verificación de la calidad será aceptable cuando en cuatro de los cinco aspectos que valora la unidad encargada de verificar el cumplimiento contractual, el resultado sea CUMPLE. Caso contrario el Resultado de la Evaluación será INCUMPLE.
-Si el resultado de Evaluación del Desempeño fuera INCUMPLE en tres de cuatro evaluaciones sucesivas o en cuatro de ocho evaluaciones sucesivas, el Organismo de Ensayo será excluido del Registro por el período de 1 (un) año; al cabo del cual podrá gestionar nuevamente su incorporación.
-Una vez que reingrese, si obtuviere un Resultado en su Evaluación del Desempeño de INCUMPLE, se dará el apercibimiento. Si volviese a obtener un resultado de INCUMPLE en alguna de las tres evaluaciones posteriores, el Organismo de Ensayo será excluido del Registro por el período de 3 (tres) años; al cabo del cual podrá gestionar nuevamente su incorporación.
+Artículo 63: Evaluación del Desempeño. El desempeño se evaluará por parte de la unidad encargada de verificar el cumplimiento contractual cada tres meses (a partir del inicio de los servicios).
+Dicha evaluación comprenderá los aspectos establecidos en el cuadro mostrado y deberá ser incorporada en el expediente respectivo en el transcurso del mes siguiente a la entrega del último informe de servicios que deba ser incluido dentro del periodo trimestral de evaluación.
+EVALUACIÓN DEL DESEMPEÑO
+Categoría | Aspectos a considerar | Resultado de la Evaluación
+Cumple | No cumple
+Informes mensuales de verificación de la calidad | Puntualidad en la entrega | |
+Contenido de la información requerida | |
+Calidad de la información requerida | |
+Calidad del servicio brindado | Eficacia y eficiencia de la prestación brindada | |
+Resultados de auditorías, fiscalizaciones y evaluaciones | Las no conformidades detectadas son menores y no ponen en riesgo el sistema de gestión de la calidad | |
+RESULTADO DE LA EVALUACIÓN DEL DESEMPEÑO | |
