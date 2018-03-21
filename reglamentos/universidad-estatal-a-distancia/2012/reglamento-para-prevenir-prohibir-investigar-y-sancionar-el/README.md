@@ -14,3 +14,4 @@ Reglamento para prevenir, prohibir, investigar y sancionar el Hostigamiento Sexu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-08-01 | la propia norma |
+| 2 | 2018-03-21 | Reglamento 2651 (2018-03-21) |
