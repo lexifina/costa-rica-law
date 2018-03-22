@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE POCOCÍ
+La Alcaldía de la Municipalidad de Pococí autoriza mediante la resolución DA-05-2018, la adhesión a la publicación hecha por el Órgano de Normalización Técnica (ONT) del Ministerio de Hacienda del Manual de Valores Base Unitarios por Tipología Constructiva del año 2017, publicado en el Alcance Digital N° 288de La Gaceta N° 226 del 29 de noviembre del 2017, así como todas las adeudas que el ONT emita, con el afán de corregir y/o aclararlos contenidos de dicho manual, el cual se utilizará en el cálculo de los valores unitarios de construcciones y/o instalaciones de los predios del cantón y estimar el monto correspondiente por concepto de Impuesto sobre Bienes Inmuebles.
+Pococí, 27 de febrero del 2018
