@@ -1,0 +1,1 @@
+Artículo 25.—Responsable de autorizar el préstamo de activos. La autorización para los préstamos de activos de la Institución a otros entes del Estado, corresponde al Director Administrativo.

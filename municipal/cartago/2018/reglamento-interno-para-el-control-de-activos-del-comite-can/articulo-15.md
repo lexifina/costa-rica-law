@@ -1,0 +1,3 @@
+Artículo 15.—Requisitos para excluir bienes del registro auxiliar. Para excluir del registro auxiliar bienes, cuya pérdida haya sido causada por hurto, robo o accidente, sin que medie culpa o dolo de la persona funcionaria que tiene asignado el bien, que sean obsoletos, estén en desuso o que requieran una reparación costosa, se deberán cumplir los siguientes requisitos:
+a. Elaboración de un informe señalando los hechos que será remitido a la Dirección Administrativa. Intervendrán en esta diligencia quien custodiaba el bien desaparecido y el Proveedor.
+b. Cuando corresponda, quien custodiaba el activo, presentará ala Dirección Administrativa, copia de la denuncia presentada ante el Organismo de Investigación Judicial.

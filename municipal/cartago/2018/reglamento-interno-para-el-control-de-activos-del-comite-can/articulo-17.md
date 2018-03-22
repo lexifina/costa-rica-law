@@ -1,0 +1,1 @@
+Artículo 17.—Obligación de entregar equipos dañados a la Oficina de Proveeduría. Todo equipo dañado será entregado por la persona responsable del activo, a la Proveeduría, dentro de las setenta y dos horas siguientes a la ocurrencia del daño, para que se proceda a la reparación o al desecho del bien.

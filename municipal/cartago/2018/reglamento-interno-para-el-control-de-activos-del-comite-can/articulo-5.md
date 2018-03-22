@@ -1,0 +1,1 @@
+Artículo 5°—Adquisición racional de activos. La Dirección Administrativa velará porque las solicitudes de adquisición de mobiliario y equipo que autoriza correspondan a lo que realmente requiere el personal a su cargo para el desempeño de sus funciones.

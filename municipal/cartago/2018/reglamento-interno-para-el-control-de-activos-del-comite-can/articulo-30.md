@@ -1,0 +1,1 @@
+Artículo 30.—Obligación de fijar placas a los activos. La Proveeduría está obligada en todas las circunstancias a fijar las placas de cada activo, antes de proceder a entregarlos al funcionario o funcionaria que lo requiera.

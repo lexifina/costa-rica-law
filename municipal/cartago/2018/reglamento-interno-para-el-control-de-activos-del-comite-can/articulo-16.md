@@ -1,0 +1,1 @@
+Artículo 16.—Descargo contable de activos, del registro auxiliar. Comprobada la pérdida de un activo sin culpa de quien lo custodiaba, la Contabilidad solicitará autorización a la Dirección Administrativa para que se proceda a descargar contablemente y del registro auxiliar, el bien de que se trate.

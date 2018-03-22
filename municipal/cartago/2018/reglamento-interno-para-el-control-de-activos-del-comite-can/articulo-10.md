@@ -1,0 +1,1 @@
+Artículo 10.—Obligación de la persona funcionaria de ofrecer explicaciones si faltan activos. Cuando de un inventario resulten activos faltantes, corresponde la persona funcionaria que los tenga asignados ofrecer las explicaciones del caso, que solicite la Dirección Administrativa.

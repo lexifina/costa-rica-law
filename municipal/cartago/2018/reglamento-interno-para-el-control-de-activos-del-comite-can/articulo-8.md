@@ -1,0 +1,2 @@
+Artículo 8°—Obligación de devolver activos. Los activos se entregarán a las personas funcionarias contra firma de un documento en que se acuse recibido y autorice al CCDRC, para que, en caso de daño, pérdida o destrucción por culpa o dolo que le sea atribuible, se le rebaje el valor de reposición el bien, del salario o de la liquidación final a que tenga derecho, según lo dispone la normativa vigente.
+Se procederá del mismo modo, en caso de renovación de activos.

@@ -1,0 +1,2 @@
+Artículo 27.—Responsabilidad del control de ingreso y salida de activos y vehículos de la Institución. Corresponde a los encargados de seguridad y vigilancia controlar la salida y entrada de activos y vehículos de las instalaciones de la Institución.
+La Proveeduría llevará un control sistemático y ordenado de la salida y entrada de los activos institucionales que salgan de las instalaciones de la Institución, para ser reparados.

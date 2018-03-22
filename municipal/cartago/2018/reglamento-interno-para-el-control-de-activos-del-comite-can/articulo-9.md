@@ -1,0 +1,2 @@
+Artículo 9°—Responsabilidad de los activos asignados en caso de finalización de la relación laboral. En caso de finalización de la relación laboral, la persona funcionaria que tenga activos asignados hará entrega de ellos a la Dirección Administrativa de manera inmediata, con copia a la Contabilidad.
+La Dirección Administrativa deberá asignar a esos bienes el mejor uso, y mientras no se hayan reasignado, los tendrá bajo su responsabilidad.
