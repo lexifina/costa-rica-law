@@ -1,0 +1,1 @@
+Artículo 18.—Si se requiere el uso de las pantallas de proyección, proyector o video beam, entre otros, se debe indicar en la solicitud para coordinar las instrucciones de su uso con la adecuada antelación.

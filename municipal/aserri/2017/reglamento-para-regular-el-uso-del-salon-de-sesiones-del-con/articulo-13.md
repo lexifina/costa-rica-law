@@ -1,0 +1,1 @@
+Artículo 13.—Durante las reuniones de las comisiones, no podrá ser prestado el Salón de Sesiones y/o la Sala de Comisiones para otros usos. De igual forma, en las fechas en que se realicen sesiones solemnes del Concejo, el Salón de Sesiones y/o la Sala de Comisiones no se prestará el propio día del evento ni el día hábil anterior.

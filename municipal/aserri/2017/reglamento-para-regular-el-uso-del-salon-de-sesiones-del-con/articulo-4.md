@@ -1,0 +1,5 @@
+CAPÍTULO II
+Destino y control de uso del salón de sesiones
+Artículo 4º—Consideraciones sobre el Uso de Salón de Sesiones.
+a) Los organizadores y responsables de los eventos, conferencias o reuniones que se autoricen realizar en el Salón de Sesiones, deberán velar porque en el contenido de dichas actividades y durante su desarrollo, en todo momento se respetan los principios y valores éticos y morales del Gobierno Local del Cantón de Aserrí, los cuales representan la forma buena y correcta de actuar de la sociedad aserriceña. Asimismo, las actividades debidamente autorizadas deben están en concordancia con los fines públicos que persigue el Municipio, y por tanto los fines perseguidos con tales eventos deben coincidir con esos fines municipales.
+b) Durante el uso del Salón de Sesiones debidamente autorizado, los usuarios de éste no podrán utilizar las enrules de la Presidencia, Vice-presidencia, Alcaldía y de los Regidores y Regidoras, ni el internet o WiFi municipal, ni de los equipos de grabación, audio y video instalados en el recinto, salvo si en la autorización otorgada para la actividad también se incluye el permiso expreso correspondiente para ello.

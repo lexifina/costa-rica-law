@@ -1,0 +1,1 @@
+Artículo 11.—El horario de uso del salón de sesiones cuando se autorice ordinariamente será en días y horas hábiles, o sea, de lunes a viernes de 7:00 a. m. a 3:00 p. m. Los permisos de uso del salón de sesiones eventualmente podrán también otorgarse en horas y días inhábiles, siempre que la actividad concluya a más tardar a las 9:00 p. m.

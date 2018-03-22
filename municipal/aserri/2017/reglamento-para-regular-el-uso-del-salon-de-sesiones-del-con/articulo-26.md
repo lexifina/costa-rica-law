@@ -1,0 +1,1 @@
+Artículo 26.—La ocupación de público durante las sesiones del Concejo Municipal que será permitida en el recinto del Salón de Sesiones, estará limitada a la capacidad de las áreas destinadas a tales efectos y con una densidad máxima es de 1.88 m2 por persona.

@@ -1,0 +1,12 @@
+CAPÍTULO IV
+Lineamientos de uso
+Artículo 10.—Una vez aprobada la solicitud de préstamo del salón de sesiones, la autoridad, persona o institución organizadora deberá sujetarse a los siguientes lineamientos:
+a) Antes y posterior a la utilización del salón de sesiones, se hará una revisión física del inmueble y demás activos municipales habidos en el lugar, por funcionarios de la Secretaría y/o Personal de Seguridad de turno, verificando que dicho inmueble quede en las mismas condiciones en que fue entregado para su uso; siendo responsabilidad del/la organizador/a reparar cualquier daño sufrido en el recinto por la realización del evento y reponer los activos municipales dañados.
+b) El número de participantes en el evento estará limitado a la capacidad del salón de sesiones (cuya densidad máxima es de 1.88 m2 por persona) en relación con el tipo de actividad a realizar.
+c) Es responsabilidad de los organizadores mantener o llamar al orden a los participantes en el evento.
+d) En el evento se tratarán única y exclusivamente la temática definida en la solicitud.
+e) En caso de incumplimiento a la normativa de este reglamento o alteración del orden se procederá a suspender la actividad.
+f) Las ideas expresadas durante el desarrollo de los eventos, conferencias y/o reuniones, serán responsabilidad exclusiva de los participantes, quedando a salvaguarda cualquier acción administrativa y/o judicial de la Municipalidad de Aserrí tendiente a restablecer, reivindicar o reparar el darlo que se le cause a su imagen institucional con ocasión de tales manifestaciones verbales.
+g) El material didáctico y de información que se utilice y distribuya durante el evento es responsabilidad de los organizadores, quedando a salvaguarda cualquier acción administrativa y/o judicial de la Municipalidad de Aserrí tendiente a restablecer, reivindicar o reparar el daño que se le cause a su imagen institucional por su utilización.
+h) Debe indicarse en la solicitud si en el evento se ofrecerá algún tipo de alimentación (café, almuerzo, etc.) y cuál es la propuesta de uso de espacio que requieren para los encargados de dicho servicio.
+i) La persona organizadora y/o la entidad pública o privada que representa, serán responsables directos y solidarios ante la Municipalidad de Aserrí en caso de surgir cualquier perjuicio derivado de la actividad y su desarrollo, así como de indemnizar los daños que lleguen a ocurrir en las instalaciones y bienes municipales como consecuencia de la actividad autorizada.

@@ -1,0 +1,1 @@
+Artículo 19.—El equipo de sonido, grabación de audio y video (micrófonos, planta sónica, parlantes, equipo de cómputo, equipo de video si existiere) son de uso exclusivo del Concejo Municipal y eventualmente de las Comisiones Municipales. Tampoco se podrán utilizar los espacios específicos donde están ubicados.

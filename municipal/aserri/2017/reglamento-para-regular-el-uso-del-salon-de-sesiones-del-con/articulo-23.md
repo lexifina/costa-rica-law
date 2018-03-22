@@ -1,0 +1,1 @@
+Artículo 23.—El uso del balcón podrá ser autorizado para la realización de actos protocolarios y para la instalación de signos distintivos propios de la conmemoración de festividades patrias, actos cívico-culturales, y navideñas, para lo cual se deberá obtener la aprobación del Concejo Municipal.
