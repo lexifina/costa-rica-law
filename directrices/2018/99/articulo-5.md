@@ -1,0 +1,20 @@
+Artículo 5°—Responsabilidades y funciones de la Presidencia de la Junta Directiva u Órgano de Dirección. Con base en las buenas prácticas internacionales sobre Gobierno Corporativo mencionadas en la parte considerativa, y en estricto apego de la estructura jurídica de cada institución, se espera del presidente de la junta directiva u órgano de dirección, cumplir con al menos las siguientes responsabilidades y funciones:
+1. Poseer la experiencia, competencias y cualidades personales necesarias a efecto de cumplir con las responsabilidades del puesto, que incluyen, pero no están limitadas
+a: ejercer liderazgo, hacer un manejo efectivo del tiempo, motivar a un equipo, entender distintos puntos de vista y solucionar conflictos.
+2. Dedicar el tiempo que la entidad demande para el cumplimiento de sus funciones.
+3. Fungir como funcionario de mayor jerarquía para efectos de gobierno de la institución y ser el principal responsable del manejo del buen Gobierno Corporativo de esta.
+4. Representar a la institución de acuerdo con el marco jurídico aplicable a cada entidad.
+5. Servir de intermediario entre la alta gerencia de la institución y el Estado representado en el Consejo de Gobierno como propietario.
+6. Presidir la Junta Directiva u órgano de dirección, y programar las actividades generales que se requieran para realizar las políticas y alcanzar los objetivos de la institución, dentro de los lineamientos de la política general del Estado dictada por el Poder Ejecutivo y el Plan Nacional de Desarrollo.
+7. Ser el enlace directo entre el Poder Ejecutivo y la institución que representa, y ser quien lleve a conocimiento de la junta directiva u órgano de dirección, para su aprobación, las iniciativas de aquel Poder, relacionadas con la definición, formulación y adaptación de la política de Gobierno de la entidad.
+8. Velar porque las decisiones del Órgano de Dirección sean tomadas sobre una base de información oportuna, sólida y correcta y asegurar su ejecución.
+9. Promover y motivar la discusión crítica y respetuosa, donde los criterios disidentes se puedan expresar y deliberar libremente dentro de un sano proceso de toma de decisiones debidamente informadas y discutidas.
+10. Otorgar el visto bueno a los proyectos de presupuesto anual y extraordinarios que se eleven a la Junta Directiva u órgano de dirección para su aprobación, así como vigilar su correcta ejecución, con el fin de asegurar la congruencia de dichos proyectos con la política de la institución.
+11. Proponer a la junta directiva u órgano de dirección, en ejercicio de sus funciones superiores de gobierno, la organización técnica y administrativa de la institución, a fin de garantizar la eficaz ejecución de sus políticas.
+12. Supervisar y evaluar periódicamente los programas de la entidad y, conforme a sus resultados, recomendar a la Junta Directiva u órgano de dirección lo que estime pertinente para el fortalecimiento, reajuste o terminación de los mismos.
+13. Asegurar y documentar la inducción formal y completa para los nuevos miembros de junta directiva u órgano de dirección, a efecto de que conozcan tanto el negocio y el entorno en el cual se desenvuelven, como sus responsabilidades y las mejores prácticas de Gobierno corporativo.
+14. No actuar como presidente en los comités que constituya la junta directiva u órgano de dirección con el fin de mantener el balance y el cumplimiento de las labores de esas instancias.
+15. Coordinar la acción de la entidad cuya junta directiva u órgano de dirección preside, con la de las demás instituciones del Estado.
+16. Formar parte del Consejo de Coordinación Interinstitucional a que se refiere el artículo 19 de la Ley de Planificación Nacional.
+17. Rendir informes escritos al ministro del ramo, sobre la marcha general de la institución cada tres meses, así como cualquier otro informe oral o escrito que de su cargo se requiera según lo dispuesto en la normativa vigente.
+18. Asumir las funciones que por ley están reservadas al presidente de la junta directiva u órgano de dirección, así como las otras que le asigne la propia junta directiva u órgano de dirección.

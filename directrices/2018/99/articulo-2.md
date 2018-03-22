@@ -1,0 +1,3 @@
+Artículo 2°—Ámbito de Aplicación. Se instruye a las entidades definidas en el artículo 4º del Decreto Ejecutivo N° 40696-MP del 23 de octubre de 2017, para aplicar las disposiciones de la presente directriz.
+También se instruye a cualquier otra entidad cuya naturaleza resulte en una EPE o institución autónoma, existente o por crearse. En razón de su naturaleza, se insta al Banco Popular y de Desarrollo Comunal, al cumplimiento de lo aquí dispuesto.
+Se instruye a aquellas instituciones que poseen subsidiarias a aplicar los mandatos de la presente Directriz a dichas entidades e integrar lo que corresponda dentro de los informes que debe rendir cada entidad de acuerdo con los artículos 4 y 5 de la presente Directriz.
