@@ -1,0 +1,4 @@
+Artículo 9 Bis.—Notificación en Zonas o Edificaciones de Acceso Restringido. La notificación será entregada a cualquier persona que aparente ser mayor de quince años.
+Cuando se trate de zonas o edificaciones de acceso restringido, exclusivamente para efectos de practicar la notificación judicial al destinatario, la notificación ordenará permitir el ingreso del funcionario notificador; si el ingreso fuera impedido, se tendrá por válida la notificación practicada a la persona encargada de regular la entrada.
+En el acta se hará constar la entrega de la cédula y el nombre de la persona que la recibe, quien firmará con el notificador. Si no sabe, no quiere o no puede firmar, el funcionario o la persona autorizada consignará esa circunstancia bajo su responsabilidad y con la presencia de un testigo. Al entregar la cédula, el notificador también consignará en ella la fecha y la hora.
+(Así adicionado mediante sesión ordinaria N° 158 del 22 de marzo del 2018)
