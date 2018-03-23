@@ -1,0 +1,1 @@
+Artículo 37. Los Concejos Distritales deberán durante la primera quincena del mes de febrero, comunicar a las diferentes Entidades Idóneas del distrito inscritas ante la Municipalidad, con el propósito de darles a conocer el monto que corresponde al distrito por concepto de partidas específicas.

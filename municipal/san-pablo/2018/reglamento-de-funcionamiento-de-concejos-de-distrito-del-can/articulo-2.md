@@ -1,0 +1,1 @@
+Artículo 2. Del propósito del presente reglamento: Regular el funcionamiento de los Concejos de Distrito del Cantón y la coordinación que debe existir entre éstos, las comunidades, la Administración Municipal y el Concejo Municipal.

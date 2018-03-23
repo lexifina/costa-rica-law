@@ -1,0 +1,1 @@
+Artículo 24. Rendición de Cuentas: Los Concejos de Distrito están en la obligación de rendir cuentas a las distintas organizaciones y comunidades, para cuyo efecto deberá convocar al menos a una reunión en el mes de marzo de cada año, de manera general o particular.
