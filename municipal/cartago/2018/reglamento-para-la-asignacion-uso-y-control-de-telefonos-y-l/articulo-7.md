@@ -1,0 +1,3 @@
+Artículo 7º—Tarifa telefónica a reconocer por el Comité Cantonal de Deportes y Recreación de Cartago.
+Quienes tengan asignado un teléfono celular del CCDRC tendrán acceso sin límite a llamadas nacionales, siempre que se trate de llamadas directamente relacionadas con las actividades propias del CCDRC.
+El CCDRC cancelará la tarifa básica del servicio telefónico, y cualquier excedente será pagado por la persona funcionaria que tiene asignado el teléfono, salvo mejor criterio de la Dirección Administrativa, la que deberá fundamentar la autorización de pago debidamente, excepto que se trate de su propio celular, en cuyo caso el pago del exceso deberá ser autorizado y justificado por la Junta Directiva del CCDRC.

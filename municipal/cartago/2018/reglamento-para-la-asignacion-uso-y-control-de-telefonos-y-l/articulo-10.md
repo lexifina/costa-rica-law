@@ -1,0 +1,5 @@
+Artículo 10.—Responsabilidades y prohibiciones. Las personas funcionarias a las que, de conformidad con este reglamento, les haya sido entregado un teléfono celular para su uso, tendrán responsabilidad exclusiva sobre la custodia, conservación y uso del bien asignado, así como de sus respectivos accesorios.
+El teléfono celular es de uso exclusivo de la persona funcionaria a quien se le asignó, para atender y realizar llamadas relativas al cumplimiento de las funciones propias de su cargo.
+En consecuencia, queda terminantemente prohibida la cesión o préstamo de los teléfonos celulares, de una persona a otra.
+En caso de extravío o robo del teléfono celular, la persona funcionaria responsable deberá presentar la respectiva denuncia ante el Organismo de Investigación Judicial (OIJ) e informar inmediatamente a la Dirección Administrativa para tramitar la suspensión del servicio al Instituto Costarricense de Electricidad (ICE).
+Cuando se compruebe que el deterioro o daño, robo o extravío del teléfono celular se produjo por falta de cuidado o por el uso anormal de los mismos, la persona funcionaria deberá cubrir el costo de la reparación o cambio del aparato.

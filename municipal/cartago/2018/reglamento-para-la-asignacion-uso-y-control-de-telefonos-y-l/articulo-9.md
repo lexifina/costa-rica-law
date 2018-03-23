@@ -1,0 +1,2 @@
+Artículo 9º—Uso del teléfono celular en vacaciones o incapacidad: Queda prohibido el uso del teléfono propiedad del CCDRC, cuando la persona funcionaria disfrute de licencias, permisos o vacaciones o se encuentre incapacitado, salvo que ésta lo considere conveniente para garantizar la comunicación y normal funcionamiento de la Institución.
+Cuando el periodo supere los cinco días naturales, se deberá entregar el aparato y los accesorios bajo custodia de la Dirección Administrativa.
