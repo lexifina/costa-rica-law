@@ -1,0 +1,1 @@
+Artículo 23.—Los montos establecidos dentro de este Reglamento, se indexarán de conformidad con arreglo a los aumentos establecidos por el Ministerio de Trabajo y Seguridad Social para el salario mínimo de un Licenciado.

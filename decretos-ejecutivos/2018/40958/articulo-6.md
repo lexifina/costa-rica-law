@@ -1,0 +1,1 @@
+Artículo 6°—Cuando el miembro del órgano colegiado haya asistido de manera parcial, sea por haber llegado tarde a la sesión, por retirarse antes de que ésta concluya, por ausentarse de manera justificada o por no haber concurrido con su voto afirmativo o negativo, no se generará derecho a pago de dietas.

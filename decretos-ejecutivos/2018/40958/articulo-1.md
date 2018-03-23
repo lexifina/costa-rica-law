@@ -1,0 +1,25 @@
+N° 40958-S
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+En uso de las facultades que les confiere los artículos 140, incisos 3) y 18); 146 de la Constitución Política; 25 inciso 1), 27 inciso 1) y 28 inciso 2 acápite b) de la Ley N° 6227 del 2 de mayo de 1978 “Ley General de la Administración Pública”; 2 inciso ch) de la Ley N° 5412 del 08 de noviembre de 1973 “Ley Orgánica del Ministerio de Salud”; y 17 inciso d) de la Ley N° 8989 del 13 de setiembre de 2011 “Ley del Colegio de Terapeutas”.
+Considerando:
+I.—Que mediante la Ley N° 8989 del 13 de setiembre de 2011 y publicada en La Gaceta N° 194 del 10 de octubre de 2011, se creó el Colegio de Terapeutas de Costa Rica, como una institución pública no estatal, responsable de vigilar, regular, controlar, supervisar y contribuir con el correcto ejercicio de las profesiones de Terapia Física, Terapia del Lenguaje, Audiología, Terapia Ocupacional, Terapia Respiratoria e Imagenología Diagnóstica y Terapéutica.
+II.—Que mediante acuerdo de la Junta Directiva en sesión ordinaria de fecha 30 de setiembre de 2015, según consta en el Acta N° 105, artículo 5, se acordó consultarle a la Procuraduría General de la República acerca de la procedencia del pago de dietas a los miembros de los órganos colegiados de esta institución, sea Junta Directiva, Tribunal de Ética, Tribunal de Elecciones, Comité Académico y Comités Consultivos.
+III.—Que mediante Dictamen N° C-117-2016 del 23 de mayo de 2016, la Procuraduría General de la República resolvió las consultas planteadas, indicando que en virtud de su potestad de auto organización, el Colegio de Terapeutas está habilitado para establecer, por medio de la Asamblea General, una regulación que otorgue el derecho a dietas para los miembros de sus órganos colegiados. E indicó también la Procuraduría, que este reglamento que acuerde la Asamblea General debe ser remitido al Poder Ejecutivo para su aprobación y promulgación.
+IV.—Que en la asamblea general ordinaria de fecha 06 de noviembre de 2016, según consta en el Acta N° 10, artículo 18, se acordó otorgar el pago de dietas para los miembros de los órganos colegiados de esta institución; emitir el reglamento del pago de dietas y elevarlo al Poder Ejecutivo para su aprobación, de conformidad con lo señalado por la Procuraduría General de la República.
+V.—Que de conformidad con el artículo 12 bis del Decreto Ejecutivo N° 37045 de 22 de febrero de 2012 “Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos” y su reforma, se considera que por la naturaleza del presente reglamento no es necesario completar la Sección I denominada Control Previo de Mejora Regulatoria, que conforma el formulario de Evaluación Costo Beneficio, toda vez que el mismo no establece trámites ni requerimientos para el administrado. Por tanto,
+Decretan:
+REGLAMENTO DE PAGO DE DIETAS PARA LOS
+MIEMBROS DE LOS ÓRGANOS COLEGIADOS
+DEL COLEGIO DE TERAPEUTAS
+DE COSTA RICA
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1°—Conceptos y Definiciones: Para los propósitos de aplicación e interpretación del presente Reglamento, los siguientes conceptos deberán entenderse de la siguiente forma:
+a) Colegio de Terapeutas de Costa Rica: En adelante “el Colegio”. Ente público no estatal con capacidad, personalidad jurídica y patrimonio propios que tiene la capacidad y competencia para dictar reglamentos para su organización, funcionamiento y administración de conformidad con la Ley N° 8989 y el Reglamento respectivo.
+b) Colegiado: Profesional en Terapia Física, Terapia de Lenguaje, Terapia Ocupacional, Terapia Respiratoria, Audiología, Imagenología Diagnóstica y Terapéutica, u otra profesión de conformidad con el numeral 17 inciso g) de la Ley N° 8989, que se encuentre debidamente incorporado a este Colegio.
+c) Órgano colegiado: Órgano constituido por una pluralidad de personas con el fin de coordinar, deliberar y adoptar acuerdos por mayoría, respecto de las temáticas que les han sido asignadas por las leyes o reglamentos. Para efectos de este Reglamento, se trata de la Junta Directiva, Comité Académico, Comités Consultivos, Tribunal de Ética y Tribunal de Elecciones, todos del Colegio.
+d) Miembro de órganos colegiados: Todo colegiado que haya sido elegido según la normativa respectiva, para formar parte de alguno de los órganos colegiados que constituyen el Colegio.
+e) Pago de dietas: Compensación económica establecida por la Asamblea General para el colegiado que forme parte de un órgano colegiado del Colegio en razón de la asistencia a las sesiones respectivas y labores llevadas a cabo en función de su puesto.
+f) Sesión Ordinaria: Reunión de las personas pertenecientes al órgano colegiado que se realiza con el fin de discutir y tomar acuerdos que permitan llevar a cabo sus funciones. La periodicidad de estas se encuentra establecida de previo.
+g) Sesión extraordinaria: Reunión de las personas pertenecientes al órgano colegiado, con el fin de discutir y tomar acuerdos referentes a temas de especial urgencia y necesidad. Tienen además, un carácter excepcional y en ellas solamente se pueden tratar los temas para los cuales se convocó.

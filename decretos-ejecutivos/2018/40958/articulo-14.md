@@ -1,0 +1,1 @@
+Artículo 14.—Los miembros del Tribunal de Elecciones del Colegio, recibirán por concepto de pago de dietas, el monto correspondiente al tres por ciento del salario mínimo para un Licenciado, establecido por el Ministerio de Trabajo y de Seguridad Social, por cada una de las sesiones a las que asistan.

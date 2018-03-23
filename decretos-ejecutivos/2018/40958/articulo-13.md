@@ -1,0 +1,1 @@
+Artículo 13.—Los miembros del Tribunal de Ética del Colegio, tendrán derecho a recibir un pago de dietas máximo de dos sesiones por mes, sin importar que sean éstas ordinarias o extraordinarias. Capítulo V De los montos de pago de dietas para los miembros del Tribunal de Elecciones.

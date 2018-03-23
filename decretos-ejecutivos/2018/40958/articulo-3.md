@@ -1,0 +1,1 @@
+Artículo 3°—Son sujetos de este Reglamento, los miembros que presten su tiempo y experiencia profesional a fin de asistir a las sesiones de los órganos colegiados del Colegio, de conformidad con los deberes establecidos en la normativa aplicable.
