@@ -1,0 +1,1 @@
+Artículo 10°.-Sobre la comunicación del resultado final: El resultado final será comunicado de forma individual a cada uno de los oferentes, mediante oficio remitido por correo electrónico institucional a la dirección de correo electrónico señalada por el interesado.

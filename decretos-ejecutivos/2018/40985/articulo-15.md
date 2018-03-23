@@ -1,0 +1,4 @@
+Artículo 15°.-Sobre la conformación de las nóminas y la selección: Para cada puesto vacante se confeccionará una nómina de máximo tres candidatos en estricto orden de calificación encabezando la nómina quien tiene la mejor nota.
+La Unidad de Reclutamiento y Selección enviará a la Sección de Recursos Humanos de la Gestoría de la Policía de Control Fiscal, la nómina para que coordinen la entrevista en conjunto con la Dirección o Subdirección de la Policía de Control Fiscal.
+Una vez realizadas las entrevistas, la Dirección o Subdirección de la Policía de Control Fiscal resolverá la nómina para la selección del candidato. La decisión de selección debe ser motivada formalmente en el documento correspondiente a la nómina.
+Dicho proceso debe ser efectuado dentro del plazo de 5 días hábiles una vez recibida la nómina.

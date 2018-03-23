@@ -1,0 +1,2 @@
+Artículo 9°. -Sobre el registro de las calificaciones: Corresponderá al Departamento de Gestión del Potencial Humano de la Dirección Administrativa y Financiera, específicamente a la Unidad de Reclutamiento y Selección, llevar a cabo el procedimiento para calificar y registrar las calificaciones.
+El procesamiento de todas las evaluaciones deberá registrarse en una base de datos y reportarse en cuadros resumen de concurso.

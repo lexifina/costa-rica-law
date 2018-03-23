@@ -1,0 +1,1 @@
+Artículo 14°.-Sobre la elaboración de nóminas: Será responsabilidad de la Unidad de Reclutamiento y Selección del Departamento de Gestión del Potencial Humano la elaboración de las nóminas para los puestos de la Policía de Control Fiscal.

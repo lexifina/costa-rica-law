@@ -1,0 +1,1 @@
+Artículo 19°.-Ascenso provisional: Si un funcionario se encuentra ascendido provisionalmente en un puesto que se resolvió por Concurso de Antecedentes y no fue el candidato seleccionado, deberá volver a ocupar su puesto.

@@ -1,0 +1,1 @@
+Artículo 17°.-Sobre la exclusión de candidatos del Registro de Elegibles: En caso de que convoque a entrevista la nómina y el candidato no justifique razonadamente la ausencia a ésta, o bien si el candidato no acepta el puesto, el Departamento de Gestión del Potencial Humano procederá a excluirlo del Registro de Elegibles para esa clase de puesto.
