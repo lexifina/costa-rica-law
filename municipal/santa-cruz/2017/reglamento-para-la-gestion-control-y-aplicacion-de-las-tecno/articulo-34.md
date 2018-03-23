@@ -1,0 +1,7 @@
+Artículo 34.—Procedimiento para reparación de hardware. Para la reparación de equipo de cómputo, se procederá de la siguiente forma:
+a) El Jefe de cada Departamento solicitará al Departamento de Tecnologías de la Información que valore y emita un dictamen técnico sobre la procedencia de la reparación. Dicha solicitud deberá estar firmada por el usurario del equipo e indicar la falla detectada.
+b) De determinarse la procedencia de la reparación y en el supuesto que el equipo se encuentre en garantía, corresponderá al Departamento de Proveeduría en su Área de Almacén de Bienes y Suministros comunicarse con el proveedor del equipo y velar que éste sea reparado o cambiado según corresponda.
+c) Cuando el equipo no se encuentre en garantía, el Jefe de Departamento responsable y el Jefe de TI, firmarán la solicitud de reparación y la remitirán al Departamento Proveeduría previa verificación de contenido presupuestario.
+El Departamento de Proveeduría gestionará la reparación del equipo mediante los procedimientos establecidos en materia de Contratación Administrativa.
+d) Adjudicada la contratación esta será notificada al Departamento de Tecnologías de la Información para que este se encargue de ejecutar las acciones que correspondan para reparar el equipo.
+e) Una vez realizada la reparación, corresponderá al Departamento de Tecnologías de la Información hacer la revisión respectiva y reubicación posterior del equipo.

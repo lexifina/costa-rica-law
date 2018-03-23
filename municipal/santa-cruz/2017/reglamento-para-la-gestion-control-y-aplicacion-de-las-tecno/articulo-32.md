@@ -1,0 +1,1 @@
+Artículo 32.—Licencias de software. El Departamento de Tecnologías de la Información garantizará que todo software que se instale en las máquinas propiedad de la Municipalidad, cuenten con la licencia respectiva.

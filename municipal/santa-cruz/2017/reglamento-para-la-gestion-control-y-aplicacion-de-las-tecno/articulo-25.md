@@ -1,0 +1,6 @@
+Artículo 25.—Del uso de antivirus.
+25.1. Programa antivirus. Todas las computadoras, en todas las plataformas, que permitan la instalación de programas antivirus y que estén conectadas a la red de la Municipalidad de Santa Cruz o a sus recursos de red, deben contar con protección antivirus correctamente instalada, configurada, actualizada y activada por el área de Tecnologías de Información antes de conectarse con la red.
+25.2. Actualización. Es responsabilidad del funcionario vigilar que la versión de su antivirus se encuentre actualizada y operando. En caso contrario deberá informar al Departamento de Tecnologías de la Información para proceder con la debida corrección. Además, es su responsabilidad informar al Departamento de TI en el momento de detectar algún virus o un comportamiento anormal sobre el equipo en uso.
+25.3. Aislamiento. Si se juzga necesario, para prevenir la propagación viral a otros dispositivos o evitar efectos perjudiciales, las computadoras infectadas con virus u otras formas de código malicioso deben ser desconectadas de la red por el área de tecnología autorizada hasta que se haya
+eliminado la infección.
+25.4. Notificaciones. Si un servidor tiene sospecha de una infección de virus en su computadora debe hacer el reporte respectivo inmediato al Departamento de Tecnología de la Información.

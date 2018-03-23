@@ -1,0 +1,1 @@
+Artículo 21.—Atención de solicitudes de los usuarios. En el caso de que algún usuario requiera ayuda del departamento de TI, deberá enviar una solicitud al correo: soporte@santacruz.go.cr, indicando en el asunto de forma resumida el problema que tiene, aquellas solicitudes que no tengan asunto no serán tramitadas por el departamento de TI.

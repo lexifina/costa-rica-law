@@ -1,0 +1,1 @@
+Artículo 17.—Estándares de configuración establecidos. Bajo ninguna circunstancia se deberá cambiar las configuraciones que el Departamento de Tecnologías de la Información ha predeterminado en el equipo de cómputo. Se deberá de respetar los estándares previamente establecidos por este Departamento.

@@ -1,0 +1,1 @@
+Artículo 7º—Informes. El encargado del Departamento de Tecnologías de la Información será el responsable de presentar los Estudios y Recomendaciones Técnicas por escrito, con sus alternativas. Dichos documentos deberán guardar estrecha relación con lo establecido en el Plan Estratégico de TI.

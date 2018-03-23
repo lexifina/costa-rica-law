@@ -1,0 +1,2 @@
+Artículo 35.—Desecho de hardware. Corresponderá al Departamento de Tecnologías de la Información determinar y emitir los informes de factibilidad correspondientes para desechar y dar de baja el equipo de cómputo; quien en última instancia requerirá de la autorización de la Alcaldesa para proceder a su desecho final.
+En estos casos, corresponderá al Jefe del Departamento respectivo, dirigir un memorando al Departamento de Proveeduría en su Área de Almacén de Bienes y Suministros, solicitando la salida del activo.
