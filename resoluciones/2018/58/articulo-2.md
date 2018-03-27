@@ -1,0 +1,1 @@
+2) Se fija para el Puesto de Aduana Postal, jurisdicción de la Aduana Central, un horario de lunes a viernes de las horas 08.00 a las 16:00 horas (8:00 a. m. a 4:00 p. m.). La Gerencia de la Aduana podrá ampliar el horario de manera excepcional.
