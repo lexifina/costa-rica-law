@@ -1,0 +1,2 @@
+Artículo 2º—Debe entenderse que la obligación contenida en el artículo 1 de la Ley N° 8690 del 19 de noviembre de 2008 se mantiene incólume, siendo que el pago de la contribución parafiscal se continuará trasladando a las cuentas de reserva de la Tesorería Nacional por parte de los obligados, conforme se ha venido realizando desde la publicación de la Ley, hasta tanto la Dirección General de Tributación habilite el uso del formulario antes citado.
+Vigencia. Esta resolución rige a partir del 1º de abril de 2018.
