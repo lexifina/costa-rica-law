@@ -1,1 +1,3 @@
-Artículo 49.- Se aplicarán a los empleados de confianza, las disposiciones de la presente ley, relativas al régimen de salarios; la calificación de los servicios para estos efectos, será hecha, en su caso, por el Presidente de la Asamblea o por el Jefe de la Fracción respectiva.
+Artículo 49- Se aplicarán a los empleados de confianza las disposiciones de la presente ley relativas al régimen de salarios; la calificación de los servicios para estos efectos será hecha, en su caso, por el presidente de la Asamblea o por el jefe de la fracción respectiva.
+El personal de confianza no podrá estar ligado por parentesco de consanguinidad o afinidad en línea directa o colateral, hasta el segundo grado inclusive, con cualquiera de los diputados de la fracción política por la cual fue contratado.
+(Así reformado por el artículo único de la ley N° 9523 del 13 de marzo de 2018, “Ley contra el nepotismo en la Asamblea Legislativa”)

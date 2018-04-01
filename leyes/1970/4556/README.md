@@ -1,6 +1,6 @@
 # Ley de Personal de la Asamblea Legislativa
 
-Ley N° 4556 del 1970-04-29. SINALEVI, ficha 5135: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=5135&param2=80302&param3=1>.
+Ley N° 4556 del 1970-04-29. SINALEVI, ficha 5135: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=5135&param2=111744&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -18,3 +18,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 10 de 13 | 2003-08-13 | Ley 8370 | 2003-07-30 |
 | 11 de 13 | 2006-02-20 | SINALEVI | 2006-02-20 |
 | 12 de 13 | 2010-04-19 | Ley 8802 | 2010-04-12 |
+| 13 de 13 | 2018-04-01 | Ley 9523 | 2018-03-13 |
