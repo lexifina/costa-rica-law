@@ -4,3 +4,4 @@ Artículo 6°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 40830 del 11 de enero de 2018)
 (Modificado por el artículo 1° del decreto ejecutivo N° 40904 del 31 de enero de 2018)
 (Modificado por el artículo 1° del decreto ejecutivo N° 40995 del 14 de marzo de 2018)
+(Modificado por el artículo 1° del decreto ejecutivo N° 41021 del 2 de abril de 2018)
