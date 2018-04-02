@@ -15,3 +15,4 @@ Reglamento a la Ley Orgánica del Colegio de Médicos y Cirujanos
 | 1 | 1994-04-21 | la propia norma |
 | 2 | 2009-11-17 | Decreto Ejecutivo 35696 (2009-11-17) |
 | 3 | 2015-07-20 | Decreto Ejecutivo 39206 (2015-07-20) |
+| 4 | 2018-04-02 | Decreto Ejecutivo 41116 (2018-04-02) |
