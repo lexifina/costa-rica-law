@@ -15,3 +15,4 @@ Reglamento del Título IV del Estatuto del Servicio Civil
 | --- | --- | --- |
 | 1 | 2009-01-12 | la propia norma |
 | 2 | 2014-11-27 | Decreto Ejecutivo 38807 (2014-11-27) |
+| 3 | 2018-04-03 | Decreto Ejecutivo 41072 (2018-04-03) |
