@@ -14,3 +14,4 @@ Prohibe la Importación, Distribución y Comercialización de Minigelatinas que 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-09-02 | la propia norma |
+| 2 | 2018-04-03 | Decreto Ejecutivo 41119 (2018-04-03) |

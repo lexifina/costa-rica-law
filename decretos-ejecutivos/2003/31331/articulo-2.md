@@ -1,2 +1,2 @@
-Artículo 2º—Rige a partir de su publicación.
-Dado en la Presidencia de la República.—San José, a los seis días del mes de agosto del dos mil tres.
+Artículo 2°—Para las minigelatinas que no contienen Konjac, que sí puedan ser comercializadas en el país y que tengan como mínimo las mismas medidas indicadas en el artículo 1°, se deberá informar como parte de las instrucciones para su consumo establecidas en el inciso 6 del decreto Nº 37280-COMEX-MEIC, que por riesgo de asfixia no se recomienda el consumo del producto en menores de 3 años de edad Dicha información deberá colocarse tanto en su etiquetado individual como en el envase que las contenga.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 41119 del 3 de abril del 2018)
