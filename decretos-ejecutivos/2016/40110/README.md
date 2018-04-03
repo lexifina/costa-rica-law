@@ -14,3 +14,4 @@ Reglamento del Modelo de Gobernanza Compartida del Parque Nacional Cahuita
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-01-20 | la propia norma |
+| 2 | 2018-04-03 | Decreto Ejecutivo 41075 (2018-04-03) |
