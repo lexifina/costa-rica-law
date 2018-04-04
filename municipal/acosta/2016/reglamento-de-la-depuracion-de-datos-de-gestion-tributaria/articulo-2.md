@@ -1,0 +1,5 @@
+Artículo 2º—De la creación de expediente especial. Para efectos de realizar estudios que conlleven la depuración del registro de cobro, se deberá elaborar un expediente especialmente creado para ese fin, el cual deberá contener al menos la siguiente información:
+1. Estado de cuenta del contribuyente.
+2. Estudio de Registro Nacional que demuestre la existencia de bienes inmuebles inscritos.
+3. En caso de tratarse de un bien sin inscribir se deberá aportar, el documento que evidencie la titularidad (escritura privada en donde conste el traspaso de la posesión del bien igual o mayor a un año, plano catastrado, título de reconocimiento de la posesión brindado por el INDER cuando corresponda, (artículo 6 inciso e Ley 7509), que se encuentre en trámite el proceso de información procesaría para lograr el reconocimiento de la posesión en los Tribunales de Justicia.
+4. Recomendación técnica que justifique la respectiva depuración donde el actualizador elaborará un documento o nota donde quede archivado los movimientos que realizó, sirviendo como respaldo ante algún reclamo o duda.
