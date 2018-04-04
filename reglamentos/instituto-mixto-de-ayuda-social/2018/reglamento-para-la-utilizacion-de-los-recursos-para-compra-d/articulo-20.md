@@ -1,0 +1,1 @@
+Artículo 20.—Derogatorias: Se deroga los Reglamentos de Servicios de Apoyo publicado en Gaceta N° 12 de la fecha 19 de enero del 2017y Reglamento para la utilización de recursos para gastos administrativos y sus reformas, publicadas en La Gaceta N°97 y sus reformas.

@@ -1,0 +1,1 @@
+Artículo 4º—NOMATIVA APLICABLE: La contratación de bienes y servicios estarán regulados por el presente reglamento, los principios establecidos en el presente reglamento y de forma suplementariamente en lo que sea omisiva los principios de Contratación Administrativa.

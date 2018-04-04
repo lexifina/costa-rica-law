@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo: El objetivo de este reglamento, es establecer las normas y procedimientos, que regirá la utilización de los recursos destinados para la operación del Fideicomiso y de conformidad con el Contrato de Fideicomiso.

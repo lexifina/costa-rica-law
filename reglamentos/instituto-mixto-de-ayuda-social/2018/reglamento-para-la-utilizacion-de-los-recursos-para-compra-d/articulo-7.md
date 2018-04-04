@@ -1,0 +1,1 @@
+Artículo 7º—Utilización de los recursos: Los recursos presupuestados anualmente, serán utilizados para el pago de bienes y servicios, según las partidas y subpartidas del presupuesto anual aprobado por la Contraloría General de la República y sus modificaciones debidamente aprobadas por el Comité Director del Fideicomiso.

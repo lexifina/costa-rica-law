@@ -1,0 +1,1 @@
+Artículo 19.—Modificaciones: Este reglamento podrá ser modificado todo o en parte por el Comité Director del Fideicomiso, siempre que las modificaciones realizadas se encuentren dentro de lo establecido en el Contrato de Fideicomiso y sean realizadas formalmente en los mismos términos que el presente.
