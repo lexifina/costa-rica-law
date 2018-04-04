@@ -1,0 +1,1 @@
+Artículo 23- Para la elección de los dos representantes de las organizaciones deportivas, el Concejo acordará con dos meses antes del vencimiento de los miembros del Comité, la hora, día y lugar en que debe llevarse a cabo la Asamblea de esas organizaciones, publicando en un medio de divulgación local dicho Acuerdo.

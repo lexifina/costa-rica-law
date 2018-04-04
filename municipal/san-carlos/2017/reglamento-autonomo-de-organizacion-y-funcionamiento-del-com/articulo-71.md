@@ -1,0 +1,1 @@
+Artículo 71- Cualquier persona que considere que sus derechos han sido lesionados por alguna disposición tomada por el Comité Cantonal, podrá presentar Recurso de Revocatoria ante el Comité Cantonal y de Apelación ante el Concejo, dentro del quinto día hábil en que el acuerdo quedó en firme y debe realizarlo en memorial razonado y fundamentado.

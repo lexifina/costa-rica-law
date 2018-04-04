@@ -1,0 +1,1 @@
+Artículo 118- Podrán ser beneficiarios de implementos deportivos todas aquellas organizaciones y/o personas que residan (que pertenezcan y vivan en el cantón de San Carlos) en el cantón de San Carlos, y se encuentren inscritas en el registro-padrón del Comité Cantonal y contando con la aprobación del CCDRSC.

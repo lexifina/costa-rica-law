@@ -1,0 +1,1 @@
+Artículo 131- Todos los miembros de las organizaciones deportivas, son responsables por el buen uso de los implementos deportivos entregados y tendrán la obligación de denunciar el mal uso de los mismos

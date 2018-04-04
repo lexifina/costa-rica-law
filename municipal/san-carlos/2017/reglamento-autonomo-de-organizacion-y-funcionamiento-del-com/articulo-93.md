@@ -1,0 +1,1 @@
+Artículo 93- Las sanciones a los miembros que no asistan a las reuniones sin causa justificada, serán las mismas que para los miembros del Comité Cantonal, con los mismos recursos y la reposición del miembro destituido estará a cargo del Comité Cantonal, ejecutando el mismo procedimiento estipulado en este Reglamento.

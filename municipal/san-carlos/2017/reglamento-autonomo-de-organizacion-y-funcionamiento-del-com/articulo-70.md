@@ -1,0 +1,1 @@
+Artículo 70- En caso de que el destituido presente el Recurso de Revocatoria y Apelación, y éstos no sean acogidos, deberá tener por agotada la vía administrativa para acudir a las instancias judiciales correspondientes.

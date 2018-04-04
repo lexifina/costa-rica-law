@@ -1,0 +1,1 @@
+Artículo 111- Dicho presupuesto, debe reflejar las necesidades de las Asociaciones Deportivas, los Comités Comunales y las comisiones que existan, debiendo ser sometido para aprobación de la Junta Directiva del CCDRSC a más tardar en la primera semana del mes de julio de cada año.

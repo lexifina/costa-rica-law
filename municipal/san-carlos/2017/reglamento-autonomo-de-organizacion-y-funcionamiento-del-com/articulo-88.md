@@ -1,0 +1,1 @@
+Artículo 88- El Comité Cantonal nombrará Comités Comunales en los distritos del cantón y en los barrios y comunidades que así se interesen y lo hagan saber al Comité, por solicitud escrita de sus organizaciones comunales y deportivas.

@@ -1,0 +1,1 @@
+Artículo 28- Si a las convocatorias realizadas por el Concejo, no se hicieren presentes representantes de las organizaciones indicadas, el Concejo queda facultado para establecer cualquier otro procedimiento sumario que garantice la integración del Comité Cantonal.

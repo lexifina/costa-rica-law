@@ -1,0 +1,1 @@
+Artículo 133- Para el control de los bienes entregados y alcances de este Reglamento, se le entregará a cada asociación, Comité o agrupación deportiva organizada, copia del mismo para su conocimiento y aplicación de los controles pertinentes y las sanciones a que queda sometido en caso de incumplimiento de este cuerpo normativo.

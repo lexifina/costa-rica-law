@@ -1,0 +1,1 @@
+Artículo 95-Todos los acuerdos deberán constar en el Libro de Actas. Los pagos e ingresos constarán en los Libros de Tesorería y deberán estar respaldados por los comprobantes respectivos, facturas de gastos y libro de recibo.

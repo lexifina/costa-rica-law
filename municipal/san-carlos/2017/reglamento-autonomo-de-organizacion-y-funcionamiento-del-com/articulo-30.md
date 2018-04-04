@@ -1,0 +1,1 @@
+Artículo 30- Los miembros del CCDRSC, durarán en sus cargos dos años, podrán ser reelectos y no devengarán dieta, ni remuneración alguna, por su servicio voluntario a favor del desarrollo del deporte y la recreación.

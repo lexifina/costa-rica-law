@@ -1,0 +1,1 @@
+Artículo 117- Todas aquellas organizaciones, que deseen ser Beneficiarios de Implementos Deportivos, deberá cumplir con todos los requisitos que se exigen en el presente reglamento, de previo a recibir cualquier tipo de beneficio.

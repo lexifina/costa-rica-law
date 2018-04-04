@@ -1,0 +1,1 @@
+Artículo 67- Cuando se produzca alguna recomendación de separación de uno de sus miembros, con fundamento al artículo 66 de este reglamento, el Comité Cantonal deberá comunicar su decisión por escrito a la persona afectada y a la organización que pertenece, dando las razones que fundamentaron la decisión.

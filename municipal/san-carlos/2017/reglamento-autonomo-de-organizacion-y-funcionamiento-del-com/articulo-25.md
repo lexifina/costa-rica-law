@@ -1,0 +1,1 @@
+Artículo 25- La acreditación del representante de las organizaciones deportivas y comunales, debe realizarse por escrito indicando el número de acuerdo y número de acta, se presentará ante la Secretaría Municipal durante el período de inscripción que acuerde el Concejo.

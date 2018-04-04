@@ -1,0 +1,1 @@
+Artículo 20- La Junta Directiva del CCDRSC, estará integrada por cinco miembros residentes en el cantón, nombrados para tal efecto, con quince días hábiles de antelación al vencimiento del período de junta directiva saliente, Dentro de estos cinco integrantes, al menos dos deben ser mujeres.

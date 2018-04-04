@@ -1,0 +1,1 @@
+Artículo 62- El Comité Cantonal de Deportes y Recreación podrá sesionar extraordinariamente en cualquier otro lugar del cantón, siempre y cuando así se decida en sesión y se les notifique a todos sus miembros.

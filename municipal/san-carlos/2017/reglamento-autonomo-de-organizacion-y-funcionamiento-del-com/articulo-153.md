@@ -1,0 +1,1 @@
+Artículo 153- Todo lo referente a la implementación de controles internos será regulado por la Ley de Control Interno, las leyes vigentes y aplicables, la jurisprudencia vigente y las normas y procedimientos emitidas por el Comité Cantonal de Deportes y Recreación de San Carlos.

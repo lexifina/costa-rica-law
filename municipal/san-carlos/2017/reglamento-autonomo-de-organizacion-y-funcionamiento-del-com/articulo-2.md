@@ -1,0 +1,1 @@
+Artículo 2- Que ante la emisión del Código Municipal (ley No. 7794 del 18 de mayo de 1998), y sus reformas contenidas en la Ley No. 8678 del 04 de diciembre del 2008, resulta necesario adecuar las disposiciones reglamentarias que regulen la organización y funcionamiento del Comité Cantonal de Deporte y Recreación a las nuevas exigencias legales.

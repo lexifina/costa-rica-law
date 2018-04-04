@@ -1,0 +1,1 @@
+Artículo 13- El CCDRSC, vigilará que su actuar se ajuste al Plan Operativo Anual, que haya aprobado el Concejo Municipal, según recomendación de la Junta Directiva del Comité Cantonal de Deportes y Recreación de San Carlos, y establecerá los controles que correspondan para que sus Comités y afiliados cumplan con el mismo.

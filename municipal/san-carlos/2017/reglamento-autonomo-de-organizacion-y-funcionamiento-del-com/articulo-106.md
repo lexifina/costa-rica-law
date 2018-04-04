@@ -1,0 +1,3 @@
+Artículo 106- Los ingresos del Comité Cantonal se invertirán de la siguiente forma:
+a) En primer término, se asignará los montos correspondientes a salarios, cargas sociales y aumentos salariales, siendo que este rubro no podrá superar el veinte por ciento del presupuesto ordinario.
+b) El remanente se distribuirá de la siguiente forma: i) treinta por ciento en el mantenimiento correctivo y preventivo de las instalaciones deportivas y recreativas del cantón de San Carlos ii) veinticinco por ciento en obras deportivas y recreativas nuevas en el cantón de San Carlos y iii) el quince por ciento en la preparación académica, deportiva, técnica y recreativa de los atletas sancarleños.

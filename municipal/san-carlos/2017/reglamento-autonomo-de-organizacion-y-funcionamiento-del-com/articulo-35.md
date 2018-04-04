@@ -1,0 +1,1 @@
+Artículo 35- Los miembros del Comité Cantonal, una vez electos y juramentados nombrarán una junta directiva que estará formada por un presidente, un vicepresidente, un secretario, un tesorero y un vocal.
