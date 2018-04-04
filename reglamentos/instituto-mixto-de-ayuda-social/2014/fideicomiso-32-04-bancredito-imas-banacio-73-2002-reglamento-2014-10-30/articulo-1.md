@@ -1,5 +1,6 @@
-FIDEICOMISO 32-04 BANCRÉTIDO-IMAS-
-BANACIO/73-2002
+(Derogado)
+FIDEICOMISO 32-04 BANCRÉTIDO-IMAS- BANACIO/73-2002
+(Esta norma fue derogada por el artículo 20 del Reglamento para la utilización de los recursos para compra de bienes y servicios (Fideicomiso 32-04 Bancrédito-IMAS-BANACIO/73-2002), aprobada en acta ordinaria N° 004 del 4 de abril de 2018)
 REGLAMENTO DE SERVICIOS DE APOYO
 CAPÍTULO I
 Disposiciones generales

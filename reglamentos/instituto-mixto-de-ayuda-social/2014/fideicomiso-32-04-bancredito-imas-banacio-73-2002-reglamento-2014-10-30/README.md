@@ -14,3 +14,4 @@ Fideicomiso 32-04 BANCREDITO-IMAS-BANACIO/73-2002 Reglamento de servicios de apo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-30 | la propia norma |
+| 2 | 2018-04-04 | Reglamento 0 (2018-04-04) |
