@@ -1,1 +1,0 @@
-Artículo 16.—El coordinador de la Comisión Nacional será nombrado por el o la jerarca ministerial del Ministerio de Salud, quien deberá comunicar por escrito su nombramiento a la Comisión Nacional y a la Jefatura de la Unidad Organizativa donde está ubicado.

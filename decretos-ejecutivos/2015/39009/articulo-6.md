@@ -1,1 +1,0 @@
-Artículo 6º—El Ministerio de Salud será, el ente rector y coordinador del Sistema Nacional de Evaluación y Análisis de la Mortalidad Materna, Perinatal e Infantil y tendrá la autoridad técnica y política para velar por el cumplimiento de normas nacionales de atención en salud sexual y reproductiva, en los servicios de salud públicos y privados en el territorio nacional.

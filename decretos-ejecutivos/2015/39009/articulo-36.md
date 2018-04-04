@@ -1,1 +1,0 @@
-Artículo 36.—Sobre las sedes de la Comisiones Hospitalarias. Las sedes de las Comisiones Hospitalarias estarán ubicadas en todos los hospitales con maternidad, sean públicos y privados del territorio nacional.

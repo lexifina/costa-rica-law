@@ -1,1 +1,0 @@
-Artículo 7º—La organización del Sistema Nacional de Evaluación de la Mortalidad Materna, perinatal e infantil se establecerá por comisiones interinstitucionales e interdisciplinarias en los diferentes niveles de atención, así como en los hospitales, tanto en el ámbito público como privado.
