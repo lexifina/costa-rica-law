@@ -1,0 +1,1 @@
+Artículo 2º. Del objeto: El presente reglamento tiene como objeto regular la prestación de servicios y el otorgamiento de los beneficios que brinda el Fideicomiso 32-04 BANCRÉDITO-IMAS-BANACIO/73-2002, en adelante FIDEIMAS, para el cumplimiento de sus fines establecidos en la Ley 8184.

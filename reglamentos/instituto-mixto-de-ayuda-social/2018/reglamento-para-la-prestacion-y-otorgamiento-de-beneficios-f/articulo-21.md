@@ -1,0 +1,1 @@
+Artículo 21º. Registro contable del pago de la garantía pagada y resultados de la gestión de cobro administrativo y judicial. El FIDUCIARIO en calidad de FIDUCIARIO recurrirá a las partidas presupuestarias para el pago de las garantías, realizando los ajustes patrimoniales que correspondan.

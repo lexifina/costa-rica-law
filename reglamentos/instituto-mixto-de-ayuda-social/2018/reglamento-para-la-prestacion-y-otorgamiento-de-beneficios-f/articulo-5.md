@@ -1,0 +1,1 @@
+Artículo 5º. De la unidad responsable de la aplicación del presente reglamento: La Subgerencia de Desarrollo Social, por medio de sus áreas estratégicas y sus unidades ejecutoras y la Unidad Ejecutora del Fideicomiso establecida en el Convenio Marco de Cooperación suscrito con el IMAS y el Banco Nacional de Costa Rica.

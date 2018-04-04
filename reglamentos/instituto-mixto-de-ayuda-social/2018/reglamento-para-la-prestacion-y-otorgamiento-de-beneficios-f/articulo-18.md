@@ -1,0 +1,4 @@
+Artículo 18º. Trámite de Arreglo de pago o adecuación de deuda:
+El fideicomisario garantizado podrá tramitar ante la Unidad Ejecutora la autorización de una nueva garantía de pago producto de un arreglo de pago o adecuación de deuda en favor de las personas beneficiarias, siempre que la garantía original no esté vencida.
+La Unidad Ejecutora dará curso al trámite con la presentación por parte del fideicomisario garantizado, de la FOGA que dio origen al crédito vigente, la justificación y nuevo análisis que respaldo el cambio de las condiciones originales y una nueva SOFAGA especificando las nuevas condiciones de crédito. Luego emitirá una nueva Resolución Administrativa, variando las condiciones del crédito.
+Posteriormente, el Fiduciario sustituirá la garantía de pago con instrucción de la Unidad Ejecutora.

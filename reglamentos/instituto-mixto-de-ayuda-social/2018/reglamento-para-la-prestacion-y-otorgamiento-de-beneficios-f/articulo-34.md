@@ -1,0 +1,3 @@
+Artículo 34º. De la función del Comité Director. Los miembros del Comité Director tienen la función de convocar a reunión, a la Unidad Ejecutora, cada vez que así se requiera, para realizar el seguimiento de las acciones cobratorias.
+Una vez que se le hayan remitido los estudios legales y recomendaciones técnicas, el Comité Director, podrá apartarse de la recomendación expresando formalmente las consideraciones que fundamentan tal decisión o bien podrá acogerla en cuyo caso deberá remitir a la Unidad Ejecutora, la documentación con la respectiva resolución de aprobación de declaratoria de incobrabilidad.
+El Comité Director podrá declarar la incobrabilidad, considerando aspectos de interés institucional.

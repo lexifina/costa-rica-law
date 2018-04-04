@@ -1,0 +1,5 @@
+CAPÍTULO SEGUNDO
+DEL SERVICIO DE GARANTÍAS
+SESIÓN I: OTORGAMIENTO Y REGISTRO DE GARANTÍAS A PERSONAS BENEFICIARIAS:
+Artículo 11º. Personas o grupos Beneficiarias de crédito y garantía. Constituyen las personas o grupos en condición de pobreza, calificadas como tales con los parámetros de pobreza e instrumentos establecidos por el IMAS. Deben contar con una actividad productiva según los criterios establecidos por la Unidad Ejecutora de FIDEIMAS; como antigüedad de la actividad productiva, experiencia de la actividad productiva, conocimiento del negocio, capacitación del usuario (a) y medios de producción (equipo que dispone).
+Para solicitar la garantía a FIDEIMAS el FIDEICOMISARIO GARANTIZADO deberá haber cumplido un proceso de análisis del crédito y haber establecido un faltante parcial o total de garantía. Determinado el faltante de garantía el FIDEICOMISARIO GARANTIZADO remitirá la solicitud de uso de garantía a la UNIDAD EJECUTORA, para su análisis y aprobación, antes de la formalización del crédito.

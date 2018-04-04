@@ -1,0 +1,1 @@
+Artículo 8º. Recursos. Los recursos financieros para la prestación de los servicios de FIDEIMAS, provienen de los aportes que traslada el IMAS sea con recursos propios o provenientes de Fondo de Asignaciones Familiares (FODESAF) y forman parte de los activos fideicometidos.
