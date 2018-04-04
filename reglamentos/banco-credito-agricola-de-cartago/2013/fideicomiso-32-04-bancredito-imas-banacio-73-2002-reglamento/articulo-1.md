@@ -1,5 +1,7 @@
+(Derogado)
 FIDEICOMISO 32-04 BANCRÉDITO-IMAS-
 BANACIO/73-2002
+(Esta norma fue derogada por el artículo 44 del Reglamento para la prestación y otorgamiento de beneficios (Fideicomiso 32-04 Bancrédito-IMAS-BANACIO/73-2002), aprobado mediante acta N° 004-2018 del 4 de abril del 2018)
 REGLAMENTO GESTIÓN ADMINISTRATIVA
 DE LAS CUENTAS POR COBRAR E
 INCOBRABILIDAD
