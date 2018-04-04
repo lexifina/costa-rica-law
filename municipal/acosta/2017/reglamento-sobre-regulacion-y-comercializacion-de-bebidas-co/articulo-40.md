@@ -1,0 +1,1 @@
+Artículo 40. Actualización de datos de las personas jurídicas. Es obligación de las personas jurídicas mantener actualizado ante el Departamento de Licencias y Cobros, todo tipo de modificación o cambio que se dé en las mismas.

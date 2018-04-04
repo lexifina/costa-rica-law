@@ -1,0 +1,5 @@
+Artículo 42. Fiscalización. La Administración Tributaria a través del Departamento de Licencias y Cobros y la Policía Municipal, se encargaran de vigilar, el adecuado cumplimiento de la Ley 9047 y de este reglamento, así como de fiscalizar el correcto funcionamiento de las actividades autorizadas en aras de controlar la normal explotación de la actividad, la revocatoria de la licencia, o la renovación de la misma, para lo cual la administración municipal, deberá destinar un (25%) de lo recaudado por concepto de licencias de licores, así como de lo recaudado por concepto de las multas estipuladas en el Capítulo X este reglamento, para proveer los recursos tecnológicos, económicos y humanos necesarios que le permitan realizar esta labor, la misma (25%), será distribuida de la siguiente forma; un (20%) al Departamento de Licencias y Cobros y un(20%) a la inspección y policía municipal y un (60%), para Prestaciones Laborales de los funcionarios municipales.
+Forma de distribución
+20% Departamento de Licencias,
+20% Inspección
+60% Prestaciones Laborales

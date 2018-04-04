@@ -1,0 +1,1 @@
+Artículo 28. De la aprobación. De aprobarse la licencia temporal por parte del Concejo Municipal, deberá enviarse copia del acuerdo correspondiente al Departamento de Licencias y Cobros de la Municipalidad.

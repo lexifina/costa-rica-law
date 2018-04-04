@@ -1,0 +1,4 @@
+CAPITULO VI
+DE LA REGULACIÓN DE BEBIDAS CON CONTENIDO ALCOHÓLICO
+Artículo 41. Responsabilidades. Compete a la Municipalidad de Acosta, velar por el adecuado cumplimiento de la Ley de Regulación y Comercialización de Bebidas con Contenido Alcohólico N° 9047 dentro de los límites territoriales de su jurisdicción. Para el trámite de cancelación de licencias, el Alcalde o Alcaldesa Municipal designarán el órgano respectivo que se encargará de llevar el procedimiento administrativo y recomendar lo pertinente, de conformidad con el Libro Segundo de la Ley General de la Administración Pública.
+Cuando la cancelación de este tipo de licencias se dé sobre un establecimiento declarado de interés turístico y que cuente con licencia clase E, el interesado dará aviso al Instituto Costarricense de Turismo (I.C.T.).

@@ -1,0 +1,1 @@
+Artículo 6. Plazo para resolver. La municipalidad deberá resolver las solicitudes de licencia en un plazo máximo de treinta días naturales, contados a partir de su presentación, una vez publicado este reglamento, en el diario oficial La Gaceta.
