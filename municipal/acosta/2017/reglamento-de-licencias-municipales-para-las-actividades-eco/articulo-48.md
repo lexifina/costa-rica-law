@@ -1,0 +1,1 @@
+Artículo 48. —No podrá ubicarse puestos obstruyendo ventanas, entradas, esquinas donde converjan las zonas de seguridad. Quedan terminantemente prohibido en ventanas de comercio establecidos cuyos dependientes o productos ocupen la vía pública para ejercer la actividad.

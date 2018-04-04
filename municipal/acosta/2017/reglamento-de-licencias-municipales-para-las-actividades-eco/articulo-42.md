@@ -1,0 +1,3 @@
+SUBSECCIÓN III
+De la responsabilidad
+Artículo 42.—La Municipalidad del cantón de Acosta, no se responsabilizará por los daños que se puedan derivar como producto de los permisos regulados en este Reglamento, ante el abuso del mismo y demás circunstancias que se produzcan en la actividad, tales como caso fortuito o fuerza mayor. En ningún caso, las actividades temporales que se regulan podrán desarrollarse después de las veinticuatro horas, caso contrario, la fuerza pública podrá hacer uso de la fuerza para cesar la actividad y la Administración Tributaria estará facultada a iniciar procedimiento establecido en este Reglamento.

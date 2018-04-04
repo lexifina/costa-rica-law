@@ -1,0 +1,1 @@
+Artículo 19. —Frente a las resoluciones de la Administración Tributaria, cabrán los recursos ordinarios de revocatoria y apelación ante la Alcaldía Municipal, de conformidad con el artículo 17 de la ley de licencias del cantón de acosta.

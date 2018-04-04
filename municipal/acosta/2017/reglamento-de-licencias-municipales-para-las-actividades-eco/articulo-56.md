@@ -1,0 +1,1 @@
+Artículo 56.—La Administración Tributaria con resolución debidamente razonada y circunstanciada se reservan el derecho de poder otorgar licencias municipales temporales a beneficio social, religioso, educativo, deportivo o cultural debidamente justificado y siempre cumpliéndose lo dispuesto en el presente Reglamento.

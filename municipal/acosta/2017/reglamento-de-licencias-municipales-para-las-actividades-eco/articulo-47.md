@@ -1,0 +1,1 @@
+Artículo 47. —Tanto en los puestos estacionarios como ambulantes el horario de funcionamiento será de las seis de la mañana hasta las dieciocho horas excepto aquellas que se otorgan para actividades ocasionales (turnos, ferias, fiestas cívicas, patronales).

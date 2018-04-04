@@ -1,0 +1,1 @@
+Artículo 57. —En caso de que se encuentre a una persona ejerciendo estas ventas ambulantes quebrantando este Reglamento, la Administración Tributaria Municipal procederá con el Reglamento de Decomiso de Ventas Ambulantes.

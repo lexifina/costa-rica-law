@@ -1,0 +1,1 @@
+Artículo 50. —Los vendedores ambulantes no podrán permanecer estacionados en un mismo sitio por más de cinco minutos. En cuanto a las demás regulaciones se exigen los mismos requisitos que para los estacionarios y en la licencia se definirá la ruta comercial que le da derecho la misma.

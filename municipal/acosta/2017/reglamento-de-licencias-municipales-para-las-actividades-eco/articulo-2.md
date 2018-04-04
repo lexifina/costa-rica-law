@@ -1,0 +1,1 @@
+2º—De conformidad con lo establecido en los artículos 79, 80, 81, 82 y 83 del Código Municipal, ley Nº 7794 del 16 de abril de 1998, es competencia de la Municipalidad establecer las políticas generales de las actividades económicas con fines lucrativos y no lucrativos, que se desarrollen en el Cantón.

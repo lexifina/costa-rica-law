@@ -1,0 +1,3 @@
+Artículo 21. —Para gravar las actividades lucrativas, que por su naturaleza, innovación u otro motivo razonado, no puedan sujetarse al procedimiento impositivo establecido en el presente Reglamento y la Ley, la Administración Tributaria, podrá determinar de oficio una estimación, tomándose como parámetro otros negocios o actividades lucrativas similares.
+Para tales efectos se consideran indicios, los señalados en el inciso b), del artículo 116 del Código de Normas y Procedimientos Tributarios.
+El procedimiento deberá incluir una inspección al local determinado, a la actividad lucrativa a explotar y la entrevista al solicitante y de acuerdo a lo que determina la Ley y este Reglamento.
