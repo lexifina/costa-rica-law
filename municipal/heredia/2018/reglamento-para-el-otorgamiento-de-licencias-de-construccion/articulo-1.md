@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE HEREDIA
+El Concejo Municipal del Cantón de Heredia en el uso de las facultades que le confieren los artículos 169 y 170 de la Constitución Política, artículos 4 inciso a), 13 inciso c) y 43 del Código Municipal, Ley 7794 del 30 de abril de 1998, 18 y 19 de la Ley de Construcciones y 32 siguientes de la Ley de Planificación Urbana, aprobó en Sesión Ordinaria No 143-2018, celebrada el 12 de febrero del 2018 este Reglamento para el Otorgamiento de Licencias de Construcción en el Cantón de Heredia.
+TÍTULO I
+DISPOSICIONES GENERALES
+Artículo 1º—Objeto. Este Reglamento tiene por objeto fijar las normas para la planificación, diseño y construcción de todo tipo de obras de arquitectura, ingeniería civil, ingeniería eléctrica, ingeniería mecánica e ingeniería sanitaria, en procura de la salud, economía, comodidad y bienestar común, mediante requisitos que garanticen en las obras su solidez, estabilidad, seguridad, salubridad, iluminación y ventilación adecuadas, sin perjuicio de las facultades que las leyes conceden en estas materias a otros órganos administrativos.
