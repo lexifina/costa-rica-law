@@ -1,0 +1,2 @@
+Artículo 5.- Variación en los montos de caja chica y vale.
+Mediante acuerdo razonado de la Junta Directiva del CCDRC, mismo que deberá constar literalmente en el acta, podrá variarse el monto máximo establecido al fondo de caja chica y el límite de libramiento del vale de caja chica, según solicitud escrita y justificada que haga la Dirección Administrativa, hasta por el doble del monto indicado en los artículos anteriores; superado este monto, solo se podrá variar mediante reforma reglamentaria.

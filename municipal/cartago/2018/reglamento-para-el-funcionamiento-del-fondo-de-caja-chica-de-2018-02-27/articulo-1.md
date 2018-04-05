@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE CARTAGO
+El Concejo Municipal de la Municipalidad de Cartago comunica que, en sesión ordinaria realizada el día 27 de febrero del 2018, en su artículo XXIV del acta N°140-2018, aprobó por unanimidad el Reglamento interno para el funcionamiento del fondo de caja chica del Comité Cantonal de Deportes y Recreación de Cartago, el cual dice de la siguiente manera:
+COMITÉ CANTONAL DE DEPORTES Y RECREACIÓN DE CARTAGO REGLAMENTO PARA EL FUNCIONAMIENTO DEL FONDO DE CAJA CHICA
+Artículo 1.- Objeto. El presente reglamento establece las disposiciones generales que regulan la operación y control del fondo de Caja Chica del Comité Cantonal de Deportes y Recreación de Cartago (en adelante CCDRC), así como la compra de bienes y/o servicios por este mecanismo, que la institución requiera. Corresponderá a la persona que ocupe el cargo de tesorería de la junta directiva del CCDRC y a quien ocupe la Dirección Administrativa, velar por el cumplimiento de este reglamento.
