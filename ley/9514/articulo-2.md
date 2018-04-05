@@ -20,3 +20,4 @@ Artículo 2°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 40948 del 20 de febrero del 2018)
 (Modificado por el artículo 1° del decreto ejecutivo N° 40949 del 2 de marzo de 2018)
 (Modificado por el artículo 1° del decreto ejecutivo N° 40995 del 14 de marzo de 2018)
+(Modificado por el artículo 1° del decreto ejecutivo N° 41100 del 5 de abril del 2018)
