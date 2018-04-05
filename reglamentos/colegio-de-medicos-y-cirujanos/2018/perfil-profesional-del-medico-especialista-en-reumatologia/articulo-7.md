@@ -1,0 +1,1 @@
+Artículo 7º—El Médico Especialista en Reumatología integra y coordina grupos de trabajo relacionados con su especialidad en su servicio o departamento, intra e interinstitucionales, así como intersectoriales.

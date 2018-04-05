@@ -1,0 +1,3 @@
+Artículo 3º—Médico Residente en Reumatología: Es un Médico y Cirujano debidamente inscrito en el Colegio de Médicos y Cirujanos de Costa Rica que se encuentra cursando el programa de Especialidades Médicas de la Universidad de Costa Rica o cualquier otra universidad autorizada en el país.
+Los residentes podrán realizar actividades inherentes a la especialidad en los centros médicos debidamente especializados, siempre y cuando se encuentren bajo la supervisión del médico especialista asistente.
+Para efecto del ejercicio en la práctica privada se le considerará en igual condición que un médico general, con las responsabilidades y alcances que este perfil otorga.
