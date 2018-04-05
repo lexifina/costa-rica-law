@@ -1,0 +1,1 @@
+Artículo 19.—En el desempeño de sus funciones y previa solicitud del ente rector en materia de Salud del país, o de la institución donde labora, le puede corresponder participar en las diferentes comisiones en relación a la atención del paciente y su familia.

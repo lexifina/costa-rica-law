@@ -1,0 +1,1 @@
+Artículo 7º—De acuerdo a los alcances de la especialidad, el Médico Especialista en Medicina Familiar y Comunitaria podrá realizar subespecializaciones en áreas que competen a su práctica médica, siempre y cuando estén reconocidas oficialmente por el Colegio de Médicos y Cirujanos de Costa Rica.

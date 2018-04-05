@@ -1,0 +1,1 @@
+Artículo 8º—Docencia: Podrá participar en la formación académica universitaria de pregrado, grado y posgrado de los Profesionales en Medicina, de la especialidad en Medicina Familiar y Comunitaria, así como de otras especialidades y Ciencias de la Salud.
