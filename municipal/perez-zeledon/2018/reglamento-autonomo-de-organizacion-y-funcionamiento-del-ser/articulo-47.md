@@ -1,0 +1,1 @@
+Artículo 47.—A más tardar la segunda semana de enero de cada año, deberá la Junta Administradora del respectivo cementerio municipal, presentar a la administración de los cementerios municipales, copia del informe de rendición de cuentas aprobado en sesión la Asamblea Anual, según detalle de rubros percibidos y la inversión realizada durante el periodo.

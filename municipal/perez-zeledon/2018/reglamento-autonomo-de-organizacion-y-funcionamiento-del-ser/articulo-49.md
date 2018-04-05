@@ -1,0 +1,1 @@
+Artículo 49.—Cualquier miembro de las comunidades beneficiarias podrá presentar por escrito ante la Administración de Cementerios Municipales, las denuncias sobre supuestos hechos anómalos de la Junta, con el fin de que se realice la investigación correspondiente.

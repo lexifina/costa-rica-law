@@ -1,0 +1,2 @@
+Artículo 14.—Del expediente administrativo. Todo trámite de derecho funerario y todo documento relacionado con las adjudicaciones se archivará físicamente en un expediente administrativo y digitalmente (de acuerdo a la normativa existente en la materia), todo conforme lo dispone el Reglamento de Procedimientos Internos de la Municipalidad de Pérez Zeledón.
+La custodia de estos expedientes corresponderá al órgano de Administración del Cementerio Municipal.

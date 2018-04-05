@@ -1,0 +1,2 @@
+Artículo 13.—Deberes y obligaciones derivados de la adjudicación. Son obligaciones inherentes al cargo de arrendamiento de un derecho funerario, las siguientes:
+En días no hábiles o en horario extraordinario se tramitarán directamente en el Campo Santo Municipal respectivo y deberá ser solicitada al menos con cuatro horas de anticipación al momento en que se realice la misma con el propósito de poder preparar las instalaciones para el efecto.

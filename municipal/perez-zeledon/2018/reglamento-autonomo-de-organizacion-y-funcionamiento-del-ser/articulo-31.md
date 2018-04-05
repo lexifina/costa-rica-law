@@ -1,0 +1,15 @@
+Artículo 31.—Criterios mínimos para las obras en Cementerios Municipales. En las Unidades de Enterramiento de cuatro nichos no se permitirá la construcción de más de dos nichos en forma paralela bajo el nivel del suelo y dos más en la misma forma sobre la superficie. En las de dos nichos se construirá uno bajo el nivel del suelo y otro arriba.
+Se podrá permitir la construcción de los respectivos osarios de las unidades de enterramiento bajo el nivel del suelo en la parte posterior de donde se encuentren las tapas de los nichos.
+Toda obra realizada en el cementerio será supervisada por los servidores operativos del cementerio, los cuales tendrán la autoridad de dar lineamientos, supervisiones y recomendaciones a los constructores o trabajadores privados que hayan sido contratados.
+Las construcciones básicas que se permitirán serán de hasta cuatro nichos, jardineras y osarios.
+En los nichos ubicados sobre el nivel del suelo, únicamente se podrán ubicar sobre ellos cabeceras, ornamentos tales como floreros, una cruz, placas e imágenes conforme a los criterios definidos en la normativa vigente.
+Las dimensiones de las unidades de enterramiento (bóvedas y nichos), serán las siguientes:
+Para personas menores de 10 años, medida mínima 0.50 metros de ancho por 1.10 metros de largo y máxima de 0.95 metros de ancho por 1.50 metros de largo, con una altura máxima de 0.30 metros para ambos casos.
+Para personas mayores de 10 años, medida mínima de 0.60 metros de ancho por 2.00 metros de largo y máxima de 1.80 metros de ancho por 2.40 metros de largo, con una altura máxima sobre el nivel del suelo de 0.60 metros para ambos casos.
+Los osarios y cenizarios tendrán como medida máxima 0.45 metro de ancho por 1.00 metro de largo, con una altura de 0.80 metro.
+Sin embargo, lo anterior no es impedimento para que el Cementerio Municipal provea a los usuarios de Unidades de Enterramiento adecuadas las dimensiones de las personas fallecidas cuando éstas requieran de este tipo de servicio especial fuera de la norma estándar.
+Las tapas de los nichos en las unidades de enterramiento deberán dar a los callejones de acceso y las placas de identificación se colocarán sobre las bóvedas en forma tal que denoten el nicho a que hacen referencia.
+La pintura para conservación de las unidades de enterramiento deberá ser color blanco. De la misma manera en los materiales no sujetos a ser pintados, como verjas, piedras, azulejos, mármol y similares.
+Ninguna unidad de enterramiento que se construya, deberá tener aceras ni salientes de ninguna especie sobre callejones de acceso.
+Los jarrones, macetas u otros recipientes que se coloquen sobre las unidades de enterramiento, deberán estar permanentemente drenados por medio de agujeros, conforme lo dispone el decreto Nº 22518 del 16 de setiembre de 1993.
+Queda exceptuado de todo lo anterior aquello que se disponga en el correspondiente Plan de Manejo del Cementerio respectivo con relación a potenciales Unidades de Enterramiento que se autoricen y que logren una mejora estructural en las instalaciones del Campo Santo.

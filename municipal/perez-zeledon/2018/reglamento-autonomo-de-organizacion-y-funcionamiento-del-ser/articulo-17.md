@@ -1,0 +1,8 @@
+Artículo 17.—Requisitos. Para poder realizar una inhumación, en su derecho funerario adjudicado, la persona adjudicada deberá:
+Estar al día en sus obligaciones tributarias con la Municipalidad.
+Presentar original y copia del certificado de defunción, para poder confeccionar el permiso de inhumación y el comprobante de ingreso por el monto que le corresponda pagar. Este permiso y comprobante deberá ser presentado en el Campo Santo correspondiente.
+Contar con la autorización requerida por parte de la
+Administración para que se realice la inhumación.
+Cancelar en el Centro Integrado de Atención Tributaria Municipal o por cualquier otro medio que ésta defina para este fin, el monto establecido por concepto de servicio de inhumación y los servicios adicionales correspondientes, en caso de ser en un día hábil. En caso de un día no hábil u horario extraordinario cancelará la inhumación a través del medio que la Municipalidad establezca al efecto.
+Si los trámites los realiza otra persona distinta del titular, quien tramite de esta manera deberá presentar una autorización firmada por la persona adjudicataria con una copia de ambas cédulas de identidad.
+En caso fortuito o fuerza mayor que la persona adjudicataria no pudiera firmar la autorización indicada en el párrafo anterior, el trámite únicamente podrá realizarlo quien posea afinidad o consanguinidad de hasta tercer grado con la persona adjudicataria, previa comunicación por un medio telefónico o electrónico de la adjudicataria que indique los motivos por los cuales se le imposibilita emitir el documento y mediante la declaración jurada de la tramitadora de que cuenta con la autorización respectiva.

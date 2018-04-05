@@ -1,0 +1,3 @@
+Artículo 22.—Nichos de emergencia. En caso de que algún arrendatario se le presente el inconveniente de no lograr utilizar un nicho de su bóveda, por estar este ocupado, podrá solicitar a la Administración Municipal la concesión de un nicho de emergencia por un período de cinco años prorrogable hasta 10 años para realizar la inhumación, una vez trascurrido el plazo de la concesión
+el interesado procederá a solicitar la exhumación en el nicho de emergencia para trasladar los restos a su respectivo derecho de cementerio.
+También se podrán autorizar concesiones a personas interesadas que no posean ningún derecho en los cementerios municipales y que deban trasladar restos exhumados de otros cementerios, igual período se aplicará para estos casos.

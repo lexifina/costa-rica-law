@@ -1,0 +1,1 @@
+Artículo 45.—Cuando por cualquier motivo fuere necesario sustituir, de manera permanente un miembro de la Junta que no hubiere cumplido la totalidad de su período, el primer vocal o el segundo vocal, en ese orden, se considerará nombrado en dicho cargo, únicamente por el período restante.

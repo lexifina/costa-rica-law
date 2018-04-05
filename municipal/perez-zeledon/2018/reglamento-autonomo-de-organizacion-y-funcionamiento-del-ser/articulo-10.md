@@ -1,0 +1,4 @@
+Artículo 10.—Del procedimiento de adjudicación.
+Los derechos de cementerio se adjudicarán previo pago de los importes correspondientes a las tarifas vigentes y condiciones de comercialización establecidas en las tablas de precios vigentes por los servicios adquiridos.
+Todo derecho funerario se inscribirá en la base de datos que al efecto lleve la Municipalidad correspondiente al Campo Santo respectivo, acreditándose de esta manera las concesiones mediante la expedición del título que proceda conforme a este Reglamento.
+El derecho funerario se reduce sólo a los derechos y obligaciones que regula el presente reglamento y consecuentemente al uso de las unidades de enterramiento del cementerio respectivo o bien los servicios integrales a los que se haya adherido voluntariamente y por los que haya pagado, la persona usuaria.
