@@ -1,4 +1,6 @@
+(Suspendida)
 N° 38953-MAG-MEIC-COMEX
+(Este decreto ejecutivo fue suspendido por el artículo 1° del decreto ejecutivo N° 41154 del 5 de abril del 2018. Asimismo en su artículo 2° se establece que la suspensión de los efectos del Decreto Ejecutivo N° 38953-MAG-MEIC-COMEX del 13 de marzo de 2015 rige a partir del 21 de febrero de 2018 fecha de la publicación de la resolución número 017-2018-1 de las quince horas cuarenta minutos del 18 de enero de 2018 del Tribunal de Apelaciones de lo Contencioso Administrativo y Civil de Hacienda (Sección Primera) en el Boletín Judicial N° 33 hasta tanto que, si varían las circunstancias de hecho que motivaron la adopción de la medida cautelar, el órgano jurisdiccional correspondiente, de oficio o a instancia de parte, la modifique o la suprima o bien considere nuevamente la procedencia de esta u otra medida cautelar, de conformidad con el artículo 29 del Código Procesal Contencioso-Administrativo.)
 EL PRESIDENTE DE LA REPÚBLICA,
 Y LOS MINISTROS DE AGRICULTURA Y GANADERÍA,
 DE ECONOMÍA INDUSTRIA Y COMERCIO

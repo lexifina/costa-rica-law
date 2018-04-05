@@ -14,3 +14,4 @@ Reglamento para la asignación de las medidas de compensación otorgadas a la Re
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-04-10 | la propia norma |
+| 2 | 2018-04-05 | Decreto Ejecutivo 41154 (2018-04-05) |
