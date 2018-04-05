@@ -1,0 +1,2 @@
+Artículo 10.- Trámite de asuntos del CCI. Quien ocupe la Dirección Administrativa preparará para cada sesión la agenda de asuntos por tratar. Todos los acuerdos, que se tomen en las sesiones deberán constar en las actas que levantará la persona funcionaria que se designe para tal efecto.
+Toda la correspondencia que emane de los acuerdos que sean tomados en las sesiones, deberá ser confeccionada y divulgada por la persona titular de la Dirección Administrativa y firmados por ella.

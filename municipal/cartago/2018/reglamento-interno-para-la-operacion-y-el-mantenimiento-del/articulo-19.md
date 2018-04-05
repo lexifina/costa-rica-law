@@ -1,0 +1,1 @@
+Artículo 19.- Seguimiento. Tanto las personas titulares subordinadas como las directoras y miembras de la CCI, darán seguimiento e informarán periódicamente sobre las gestiones realizadas para el fortalecimiento del SICI.

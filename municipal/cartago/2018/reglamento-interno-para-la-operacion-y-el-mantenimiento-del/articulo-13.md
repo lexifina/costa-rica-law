@@ -1,0 +1,1 @@
+Artículo 13.- Implementación y periodicidad de auto evaluaciones. Se aplican las auto evaluaciones del SICI en cumplimiento de lo dispuesto en el artículo 17 inciso c) de la LGCI; que obliga a la administración activa a ejecutar ésta, por lo menos una vez al año.

@@ -1,0 +1,2 @@
+Artículo 5.- Sesiones de la CCI. La CCI sesionará periódicamente, de conformidad con el cronograma que convengan sus miembros, de acuerdo con las necesidades administrativas, para cumplir con el mantenimiento y fortalecimiento del SICI, así como para el seguimiento de planes de acción correspondiente.
+Las sesiones serán convocadas por la persona titular de la Dirección Administrativa. En casos de excepción al cronograma, las demás personas miembras de la CCI podrán solicitar reuniones extraordinarias, previa autorización de la persona directora administrativa.
