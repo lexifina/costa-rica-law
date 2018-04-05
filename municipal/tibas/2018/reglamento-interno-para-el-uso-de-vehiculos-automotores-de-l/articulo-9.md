@@ -1,0 +1,1 @@
+Artículo 9. Cuando se vaya a requerir un vehículo en las condiciones que especifica el artículo anterior, la solicitud deberá llegar a manos del Alcalde/sa Municipal con no menos de dos días de anticipación, excepto si se tratara de imprevistos, emergencias o asuntos impostergables que podrían ser autorizados el mismo día, siempre por escrito.

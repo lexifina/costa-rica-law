@@ -1,0 +1,1 @@
+Artículo 17. El uso y transporte de vehículos municipales queda restringido al territorio nacional, salvo cuando exista mediante autorización expresa de la Alcaldía. En este último caso, se deberá cumplir con los trámites respectivos para la salida del país.

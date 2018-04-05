@@ -1,0 +1,1 @@
+Artículo 7. Cuando se realicen labores o se deba asistir a actos oficiales de la Municipalidad, fuera de horas de oficina, o bien en días no laborales, se requerirá la autorización escrita firmada por el Alcalde/sa Municipal, lo cual debe constar en la bitácora de los Oficiales de Seguridad Municipales.
