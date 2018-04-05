@@ -1,0 +1,1 @@
+Artículo 13.—Sobre la verificación en cuanto a la utilización de los fondos. La oficina encargada del sistema de becas verificará en el transcurso del periodo de la asignación del beneficio su correcta utilización, sea en gastos que son propios de la dinámica educativa. Siendo responsabilidad del beneficiario el resguardo de los comprobantes respectivos.
