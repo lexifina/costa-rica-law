@@ -1,0 +1,1 @@
+Artículo 42.- Todas las partes responsables del proceso de Consulta Indígena deben colaborar en la identificación de los asuntos que generen controversia y en la aplicación de mecanismos de diálogo que permitan resolver dichos asuntos.

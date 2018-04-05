@@ -1,0 +1,1 @@
+Transitorio IV: Los procesos de consulta que se encuentren en marcha no se verán afectados por la entrada en vigencia del presente decreto, sin detrimento de la aplicación y revisión de dicha consulta, a la luz de lo establecido en el presente decreto.

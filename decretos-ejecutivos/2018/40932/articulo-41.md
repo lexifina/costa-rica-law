@@ -1,0 +1,1 @@
+Artículo 41.- Todos los entes u órganos del Estado que tengan competencia para emitir criterio o colaborar en el proceso de consulta indígena, deberán hacerlo a solicitud de la UTCI en total cumplimiento con el ordenamiento jurídico vigente

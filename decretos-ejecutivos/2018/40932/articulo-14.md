@@ -1,0 +1,10 @@
+Artículo 14.- Medidas específicas a consultar contenidas en Declaraciones Internacionales.- Asimismo, deberán consultarse todas aquellas medidas administrativas específicas contenidas en la Declaración de Naciones Unidas sobre los Derechos de los Pueblos Indígenas, a saber:
+a. Medidas relacionadas con la adaptación de la legislación interna a la Declaración (Art. 38 de la DNUDPI);
+b. Medidas relacionadas con el combate de prejuicios, eliminación de la discriminación y promoción de la tolerancia (Art. 15 de la DNUDPI)
+c. Medidas relacionadas con la explotación laboral de los niños y niñas (Art. 17 de la DNUDPI) d. Medidas relativas a la reparación, restitución o, indemnización justa y equitativa por tierras, territorios y recursos que tradicionalmente hayan poseído u ocupado o utilizado y que hayan sido confiscados, tomados, ocupados, utilizados o dañados. (Art. 28. l de la DNUDPI)
+e. Medidas tendientes a disponer el almacenamiento o eliminación de materiales peligrosos en las tierras o territorios indígenas. (Art. 29.2 de la DNUDPI)
+f. Medidas relacionadas con el uso de territorios para actividades militares (Art. 30 de la
+DNUDPI)
+g. Medidas relacionadas con la afectación de tierras o territorios y otros recursos, relacionados con el desarrollo, la utilización o la explotación de recursos minerales, hídricos o de otro tipo.
+h. Medidas relacionadas con los derechos de los Pueblos Indígenas transfronterizos (Art. 36 de la DNUDPI).
+Sin perjuicio de las medidas consignadas previamente, deberán ser consultadas todas aquellas medidas administrativas o proyectos privados que tengan como efecto la afectación de los derechos colectivos de los pueblos indígenas contenidos en el Convenio 169 de la Organización Internacional del Trabajo sobre Pueblos Indígenas y Tribales y la Declaración de acciones Unidas sobre los Derechos de los Pueblos Indígenas, así como todas aquellas señaladas mediante sentencias de la Sala Constitucional de la Corte Suprema de Justicia o de la Corte Interamericana de Derechos Humanos.

@@ -1,0 +1,8 @@
+Artículo 32.- Intercambio de información. El intercambio de información es un proceso recíproco entre todas las partes involucradas en un proceso de consulta determinado. El objetivo de esta etapa es que, los pueblos indígenas, reciban toda la información de calidad necesaria para tomar una decisión informada y que la contraparte interesada, posea información sobre el pueblo ·indígena y su cosmovisión, en particular, sobre el tema objeto de consulta.
+La contraparte interesada, debe brindar toda la información de calidad existente sobre la medida administrativa, proyecto de ley promovido por el Poder Ejecutivo o proyecto privado que se esté consultando. La contraparte interesada debe someter información a los pueblos indígenas de la siguiente manera:
+a. Totalidad de la información (en idioma español)
+b. Versión resumida de la información (en español y en el idioma del pueblo indígena)
+c. Locución de la información y otros materiales didácticos. (en español y en el idioma del
+pueblo indígena)
+Los pueblos indígenas pueden transmitir toda aquella información de calidad sobre su cultura, que consideren de relevancia, para ampliar el conocimiento de la contraparte interesada. El intercambio se debe dar en ambas vías, a lo largo de todo el proceso.
+La información no debe entenderse como una entrega formal o única de materiales, sino que se trata de un proceso constante, que requiere de espacios de diálogo donde se presente la información ante espacios internos de decisión comunitaria y participativos, debidamente convocados o ante otro mecanismo tradicional propio, con intérpretes escogidos por el pueblo indígena y en espacios donde se permita la evacuación de dudas.

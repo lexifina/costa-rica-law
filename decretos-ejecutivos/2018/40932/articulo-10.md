@@ -1,0 +1,1 @@
+Artículo 10. Afectación a dos o más pueblos indígenas. Cuando la medida administrativa o proyecto privado afecte de forma diferente a dos o más pueblos indígenas, la consulta a cada uno de ellos deberá estar condicionada a la afectación provocada a cada pueblo indígena. La misma deberá adaptarse a las particularidades de cada pueblo indígena.

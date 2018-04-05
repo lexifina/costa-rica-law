@@ -1,0 +1,1 @@
+Transitorio II: Desde la entrada en vigencia del presente decreto y, hasta el 7 de mayo de 2018, el Viceministerio de la Presidencia en Asuntos Políticos y Diálogo Ciudadano asumirá temporalmente las labores de la Unidad Técnica de Consulta Indígena.

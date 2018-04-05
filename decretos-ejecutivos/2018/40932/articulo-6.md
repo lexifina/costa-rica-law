@@ -1,0 +1,1 @@
+Artículo 6.- Aplicación a pueblos indígenas. El Mecanismo General de Consulta a Pueblos Indígenas es de aplicación obligatoria para los asuntos tendientes a afectar los derechos colectivos de los pueblos indígenas.

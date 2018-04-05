@@ -1,0 +1,1 @@
+Transitorio V: Los territorios indígenas que a la fecha de la entrada en vigencia del presente decreto no hayan finalizado su proceso de participación en la cocreación del presente mecanismo podrán ser sujetos de este decreto, una vez se hayan subsanado los asuntos pendientes.

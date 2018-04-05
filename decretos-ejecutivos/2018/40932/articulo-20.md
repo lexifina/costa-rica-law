@@ -1,0 +1,1 @@
+Artículo 20.- Decisiones de la Unidad Técnica de Consulta Indígena. Aquellas resoluciones que emanen de la UTCI, tendrán recurso de revocatoria ante esta y recurso de apelación ante el Ministerio de Justicia y Paz.

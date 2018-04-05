@@ -1,0 +1,2 @@
+Artículo 39.- Reglamentación territorial del mecanismo. El presente decreto deberá ser respetuoso y aplicado en conjunto con el reglamento o reglas propias de cada territorio en caso de que estas existan.
+La ausencia de reglamento interno en un territorio determinado, no representará un impedimento para la realización de una Consulta. Ante esta situación, las partes involucradas establecerán las reglas aplicables a dicha consulta durante la Etapa de Acuerdos Preparatorios.

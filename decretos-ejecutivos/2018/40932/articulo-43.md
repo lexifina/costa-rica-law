@@ -1,0 +1,1 @@
+Artículo 43.- En todas las etapas del proceso se podrán prorrogar los plazos para todas las partes, siempre y cuando la solicitud de prórroga esté debidamente fundamentada, en las particularidades del proceso.
