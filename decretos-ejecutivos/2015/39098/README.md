@@ -14,3 +14,4 @@ Reglamento para el Cobro de Tarifas por Acarreo de Vehículos Detenidos por Infr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-19 | la propia norma |
+| 2 | 2018-04-05 | Decreto Ejecutivo 41063 (2018-04-05) |
