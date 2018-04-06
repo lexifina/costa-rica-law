@@ -1,6 +1,7 @@
 CAPÍTULO XIII
 Sanciones disciplinarias
-a. Las sanciones disciplinarias a que alude el capítulo IX de la Ley del Colegio de Bibliotecarios de Costa Rica, se impondrá sin perjuicio de las responsabilidades penales, civiles y laborales en que haya incurrido los profesionales en bibliotecología. En consecuencia, no será obstáculo para imponerlas el hecho de que esté pendiente la tramitación ante los tribunales comunes queja, juicio o causa sobre el motivo que sirva de fundamento a la corrección, ni tampoco el que haya recaído sobreseimiento o sentencia absoluta. De igual manera el pronunciamiento que hiciere el Tribunal de Honor, por referirse a cohesiones del régimen interno del Colegio, no podrá hacerse valer como elementos de prueba en el juicio, causa o queja pendiente ante los tribunales comunes.
+a. Las sanciones disciplinarias a que alude el capítulo IX de la Ley del Colegio de Profesionales en Bibliotecología de Costa Rica, se impondrá sin perjuicio de las responsabilidades penales, civiles y laborales en que haya incurrido los profesionales en bibliotecología. En consecuencia, no será obstáculo para imponerlas el hecho de que esté pendiente la tramitación ante los tribunales comunes queja, juicio o causa sobre el motivo que sirva de fundamento a la corrección, ni tampoco el que haya recaído sobreseimiento o sentencia absolutoria. De igual manera el pronunciamiento que hiciere el Tribunal de Honor, por referirse a cohesiones del régimen interno del Colegio, no podrá hacerse valer como elementos de prueba en el juicio, causa o queja pendiente ante los tribunales comunes.
+(Así reformado el inciso anterior en sesión N° 64 del 6 de abril del 2018)
 b. Toda falta cometida en contra de lo estipulado por este Código de Ética será sancionada de acuerdo con el Capítulo IX de la Ley Orgánica del Colegio de Profesionales en Bibliotecología de Costa Rica.
 c. El Tribunal de Honor puede, con base en el Art. 45 de la Ley, imponer por violación a las normas establecidas las siguientes sanciones:
 d. Amonestación escrita privada.
@@ -17,7 +18,7 @@ Colegio Bibliotecólogos de Colombia (2010) Proyecto de ley “por la cual se mo
 Cuvertino, P. (2005). Anteproyecto del código de ética del profesional bibliotecario. In C. M. Fragueiro (Ed.). Argentina. Recuperado de: http://www.aab.es/pdfs/gtbu_codigo_etica.pdf
 Abels, E., Jones, R., Latham, J., Magnoni, D., Marshall, J.G. (2003). Competencias para profesionales de la información del siglo XXI. SLA. Traducción por Jesús Lau. Recuperado de: http://www.sla.org/ documents/competencias_espanol.doc
 Sociedad de Bibliotecarios de Puerto Rico; (2002) Código de Ética. Recuperado de:
-http://wikitecaegcti.wetpaint.com/page/Codigo+de+Etica+de+la+S ociedad+de+Bibliotecarios+de+Puerto+Rico
+http://wikitecaegcti.wetpaint.com/page/Codigo+de+Etica+de+la+Sociedad+de+Bibliotecarios+de+Puerto+Rico
 Martínez García Sara (2009) La Ética y sus códigos en el contexto bibliotecario, implicaciones para el usuario y el profesional de la información
 Yanina Valeria Chandía (2005) Código de Ética profesional Colegio de Bibliotecarios de Chile recuperado de: http://www.sld. cu/galerias/pdf/sitios/bmn/serie_2.pdf
 Colegio Nacional de Bibliotecarios (1990) Código de Ética Profesional Recuperado de: www.ifla.org/en/faife/professional-codes-of-ethics-for-librarians

@@ -14,3 +14,4 @@ Código de Ética del Colegio de Profesionales en Bibliotecología de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-02-23 | la propia norma |
+| 2 | 2018-04-06 | Reglamento 64 (2018-04-06) |
