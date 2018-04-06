@@ -1,1 +1,0 @@
-Artículo 2°-Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución número RES-DGH-078-2017 del 09 de octubre de 2017, publicada en el Diario Oficial La Gaceta Nº 197 del 19 de octubre de 2017.
