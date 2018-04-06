@@ -1,1 +1,0 @@
-Artículo 2º- Deróguese el Decreto Ejecutivo número 40720-H de fecha 18 de octubre de 2017, publicado en el Alcance número 259 a La Gaceta número 204 de fecha 30 de octubre de 2017, a partir de la vigencia del presente decreto.
