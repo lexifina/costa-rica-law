@@ -1,0 +1,1 @@
+Artículo 3.- Deróguense los incisos m), n) y o) del artículo 73 del Decreto Ejecutivo 38170-MEP, Organización Administrativa de las Oficinas Centrales del Ministerio de Educación Pública, del treinta de enero del dos mil catorce, publicado en la Gaceta N º 31 del 13 de febrero de 2014.
