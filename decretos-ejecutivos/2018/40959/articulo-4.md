@@ -1,0 +1,1 @@
+Artículo 4º—La Dirección Ejecutiva de la Dirección Nacional de Notariado propondrá los requisitos de los funcionarios del APLCFT-DNN, mismos que deberán ser aprobados por el Consejo Superior Notarial, quien definirá los requisitos y procedimientos de selección de los funcionarios que formarán parte de la APLCFT-DNN.

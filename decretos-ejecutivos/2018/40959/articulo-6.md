@@ -1,0 +1,1 @@
+Artículo 6º—Procedimientos sancionatorios. Los procesos administrativos sancionatorios contra los notarios públicos, generados por la aplicación de la Ley N° 7786, se tramitarán siguiendo el procedimiento ordinario de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 7º—Disposiciones vinculantes. El Consejo Superior Notarial, como máximo jerarca de la Dirección Nacional de Notariado, emitirá todos los lineamientos, instrucciones y órdenes que deban seguirse para cumplir con lo establecido en la Ley 7786.
