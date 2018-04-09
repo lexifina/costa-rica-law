@@ -1,1 +1,1 @@
-ARTICULO 118. Para todos los efectos de este Reglamento de Cobro, rigen las normas que dictan: la Ley Nº 6041, el Reglamento de Crédito y las disposiciones y acuerdos tomados en las sesiones del Consejo Directivo
+ARTICULO 118. (Nota de Sinalevi: El texto de este numeral debe de ser consultado en el artículo 111, ya que por el artículo 11 del Reglamento de operaciones crediticias incobrables, aprobado en sesión N° 12 del 9 de abril de 2018, se ordenó derogar los artículos 103 al 109 original y correr la numeración de los restantes artículos)

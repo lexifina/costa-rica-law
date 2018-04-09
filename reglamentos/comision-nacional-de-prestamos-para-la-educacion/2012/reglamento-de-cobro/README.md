@@ -15,3 +15,4 @@ Reglamento de Cobro
 | --- | --- | --- |
 | 1 | 2012-08-08 | la propia norma |
 | 2 | 2017-02-20 | Reglamento 7 (2017-02-20) |
+| 3 | 2018-04-09 | Reglamento 12 (2018-04-09) |

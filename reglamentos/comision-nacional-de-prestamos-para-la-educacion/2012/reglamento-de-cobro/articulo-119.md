@@ -1,1 +1,1 @@
-ARTICULO 119. El presente Reglamento de Cobro puede ser modificado por el Consejo Directivo de CONAPE y entrará en vigencia una vez que se realicé la publicación correspondiente en el Diario Oficial.
+ARTICULO 119. (Nota de Sinalevi: El texto de este numeral debe de ser consultado en el artículo 112, ya que por el artículo 11 del Reglamento de operaciones crediticias incobrables, aprobado en sesión N° 12 del 9 de abril de 2018, se ordenó derogar los artículos 103 al 109 original y correr la numeración de los restantes artículos)

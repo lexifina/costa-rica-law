@@ -1,1 +1,1 @@
-ARTICULO 113. La Sección de Cobro podrá solicitar a la Sección de Tesorería la entrega del Contrato de Crédito para Estudios y addendum al fiador o un tercero, cuando éste efectúe ante la Sección de Cobro el trámite de subrogación de la deuda.
+ARTICULO 113. (Nota de Sinalevi: El texto de este numeral debe de ser consultado en el artículo 106, ya que por el artículo 11 del Reglamento de operaciones crediticias incobrables, aprobado en sesión N° 12 del 9 de abril de 2018, se ordenó derogar los artículos 103 al 109 original y correr la numeración de los restantes artículos)

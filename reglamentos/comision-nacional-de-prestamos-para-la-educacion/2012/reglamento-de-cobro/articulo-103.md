@@ -1,2 +1,4 @@
-SECCION XIX: INCOBRABLES
-ARTICULO 103. Será considerada una operación crediticia como incobrable cuando el Abogado Director determine que se han agotado las vías de cobro administrativo y cobro judicial y aún persisten saldos por cobrar del monto de la deuda.
+SECCION XIX CANCELACIÓN DE LA DEUDA
+(La sección denominada “sección xix: incobrales”, fue derogado por el artículo 11 del Reglamento de operaciones crediticias incobrables, aprobado en sesión N° 12 del 9 de abril de 2018, en dicha sesión se ordenó derogar los artículos 103 al 109 original y correr la numeración de los restantes artículos así como de sus secciones, por lo que la sección xx denominada: cancelación de la deuda, paso a ser ahora la sección XIX)
+ARTICULO 103. Posterior a la cancelación de la deuda de una operación crediticia, la Sección de Cobro autorizará a la Sección de Tesorería la entrega del Contrato de Crédito para Estudios y sus addendums y cuando corresponda, los títulos valores o la escritura de hipoteca con la respectiva carta de liberación de gravamen.
+(Corrida su numeración por el artículo 11 del Reglamento de operaciones crediticias incobrables, aprobado en sesión N° 12 del 9 de abril de 2018, que lo traspaso del antiguo artículo 110 al 103, ya que en dicha sesión se ordenó derogar los artículos 103 al 109 original y correr la numeración de los restantes artículos)

@@ -1,1 +1,2 @@
-ARTICULO 109. Si una operación fuera considerada incobrable y en fecha posterior a su declaratoria, la Institución recibe un pago parcial o total del saldo adeudado, la Sección de Cobro está facultada a reversar el registro contable realizado y proceder a realizar los ajustes necesarios en la base de datos automatizada.
+ARTICULO 109. Toda interpretación de los artículos de este Reglamento le corresponden al Consejo Directivo.
+(Corrida su numeración por el artículo 11 del Reglamento de operaciones crediticias incobrables, aprobado en sesión N° 12 del 9 de abril de 2018, que lo traspaso del antiguo artículo 116 al 109, ya que en dicha sesión se ordenó derogar los artículos 103 al 109 original y correr la numeración de los restantes artículos)
