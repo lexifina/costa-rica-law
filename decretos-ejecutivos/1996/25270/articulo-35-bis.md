@@ -26,5 +26,8 @@ x. Evaluar periódicamente los resultados de los diferentes procesos que se ejec
 y. Informar a la Dirección General los roles y rotación de trabajo de los funcionarios de la aduana, así como informar cuando se presenten irregularidades que se deriven de la incorrecta aplicación de los procedimientos y disposiciones técnicas y administrativas previstas por la normativa aduanera, o que emanen de la protección de los derechos relacionados con la propiedad industrial e intelectual, de conformidad con leyes especiales en la materia, para que se inicien los procedimientos administrativos y judiciales correspondientes.
 z. Certificar la documentación o información que se custodie en la Dirección de la aduana y sus Departamentos.
 aa. Facilitar a la Dirección de Gestión Técnica, los requerimientos específicos que se determinen para mejorar las funcionalidades y controles del sistema informático.
-bb. Otras que le encomiende la Dirección General.
+bb. Atender las actas, alertas, denuncias, informes y medidas cautelares administrativas que le sean trasladadas por los Órganos Fiscalizadores en el ejercicio de sus competencias, respecto de mercancías que se encuentren dentro del depositario aduanero tengan o no la autorización de levante.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41102 del 9 de abril de 2018).
+cc. Otras que le encomiende la Dirección General de Aduanas.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 41102 del 9 de abril de 2018).
 (Así adicionado por el artículo 1° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).
