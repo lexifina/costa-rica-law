@@ -1,1 +1,0 @@
-Artículo 26.—En la integración de los Consejos Territoriales y Regionales, deberá considerarse la equidad de género, con base en los criterios que define la Ley de Promoción de la Igualdad Social de la Mujer, Ley N° 7142, del 8 de marzo de 1990.

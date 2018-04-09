@@ -1,1 +1,0 @@
-Artículo 24.—Los miembros del Consejo, de los incisos c) y d) del Artículo 17, durarán en su cargo cuatro años y podrán ser reelectos por una única vez y de forma alterna indefinidamente. La duración en el cargo de los miembros pertenecientes al sector público se deja a criterio de la respectiva institución.

@@ -1,1 +1,0 @@
-Artículo 15.—El Comité Directivo elegirá entre sus miembros a la Presidencia, Vicepresidencia y los otros miembros según el número de ellos que se establezca en los estatutos del CTDR y considerando la equidad de género.

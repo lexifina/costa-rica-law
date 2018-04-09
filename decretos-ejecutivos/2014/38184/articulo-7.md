@@ -1,1 +1,0 @@
-Artículo 7°—La Asamblea General se constituirá como una instancia permanente y activa de participación y decisión de la población y estará conformada por todos los actores sociales del territorio con representación acreditada ante el Inder y podrá organizar comisiones y mesas temáticas de trabajo.

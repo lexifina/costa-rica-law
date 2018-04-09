@@ -1,1 +1,0 @@
-Artículo 4°—Los PDRT serán elaborados por el Consejo Directivo con el apoyo técnico que éste requiera y se seguirá un proceso participativo de los gobiernos locales, sociedad civil y sector privado, actuando el Inder como facilitador de estos procesos, apoyando la creación de espacios de participación sectorial e intersectorial.
