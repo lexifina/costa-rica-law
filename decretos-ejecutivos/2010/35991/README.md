@@ -15,3 +15,4 @@ Reglamento de Organización del Subsector Energía
 | --- | --- | --- |
 | 1 | 2010-06-01 | la propia norma |
 | 2 | 2017-05-19 | Decreto Ejecutivo 40495 (2017-05-19) |
+| 3 | 2018-04-09 | Decreto Ejecutivo 41135 (2018-04-09) |

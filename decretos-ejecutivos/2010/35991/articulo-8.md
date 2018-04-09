@@ -6,7 +6,8 @@ d) Proponer las normas y los procedimientos de trabajo para la coordinación, pr
 e) Coordinar los planes, programas y proyectos que presenten las instituciones involucradas en las actividades energéticas en estrecha relación con el Ministerio de Planificación Nacional y Política Económica.
 f) Proponer todas aquellas medidas conducentes para alcanzar un mejor funcionamiento del Subsector.
 g) Someter a la aprobación del Ministro Rector el presupuesto anual de la Secretaría de Planificación del Subsector Energía.
-h) Coordinar con los órganos e instituciones del sector, la vinculación de los Planes Operativos Institucionales con el Plan Nacional de Desarrollo y el Plan Nacional de Energía.
+h) Coordinar con los órganos e instituciones del Subsector Energía, la vinculación de los Planes Operativos Institucionales con el Plan Nacional de Desarrollo y el Plan Nacional de Energía.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41135 del 9 de abril del 2018)
 i) Adoptar los acuerdos necesarios para coadyuvar en la ejecución del Plan Nacional de Energía y velar por la ejecución de las políticas sectoriales dictadas por el Ministro Rector.
 j) Recomendar los cambios necesarios en la ejecución de planes, programas o acciones subsectoriales, a fin de ajustar los lineamientos políticos gubernamentales a la realidad del Subsector Energía.
 k) Asesorar y dar apoyo al Ministro Rector en la ejecución de la política y acción del Subsector Energía.
