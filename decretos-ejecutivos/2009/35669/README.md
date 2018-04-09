@@ -18,3 +18,4 @@ Reglamento Orgánico del Ministerio de Ambiente y Energía
 | 3 | 2012-06-25 | Ley 9046 |
 | 4 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
 | 5 | 2017-08-04 | Decreto Ejecutivo 40710 (2017-08-04) |
+| 6 | 2018-04-09 | Decreto Ejecutivo 41135 (2018-04-09) |
