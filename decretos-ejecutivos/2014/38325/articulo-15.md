@@ -1,0 +1,1 @@
+Artículo 15.—Grupos de trabajo o subcomisiones. La CONAPACI podrá solicitar colaboración a sus representantes y a otras personas especialistas para la conformación de grupos de trabajo sobre temáticas o aspectos particulares relacionados con la salvaguardia del patrimonio cultural inmaterial de alguna región o etnia del país, cuando así lo amerite.

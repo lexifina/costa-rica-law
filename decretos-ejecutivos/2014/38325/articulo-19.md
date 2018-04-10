@@ -1,0 +1,1 @@
+Artículo 19.—Trámite de la Solicitud Declaratoria de Patrimonio Cultural Inmaterial de Costa Rica. Recibida la solicitud de estudio de declaratoria de patrimonio cultural inmaterial, la CONAPACI emitirá una respuesta de admisibilidad al solicitante en un plazo no mayor a dos meses.

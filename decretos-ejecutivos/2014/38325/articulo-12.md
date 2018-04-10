@@ -1,0 +1,1 @@
+Artículo 12.—Quórum en las sesiones de la CONAPACI. Para que pueda sesionar la CONAPACI, se necesitará la presencia de una mayoría absoluta de sus miembros. Si no hubiere quórum a la hora convocada, podrá sesionar después de media hora, y para ello será suficiente la asistencia de la tercera parte de sus miembros.

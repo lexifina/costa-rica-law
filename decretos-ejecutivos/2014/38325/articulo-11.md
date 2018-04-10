@@ -1,2 +1,1 @@
-Artículo 11.—Rige a partir de su publicación.
-Dado en la Presidencia de la República.—San José, a los veintidós días del mes de enero del dos mil catorce.
+Artículo 11.—Sesiones de la CONAPACI La Comisión sesionará ordinariamente una vez al mes y extraordinariamente cuando el caso lo amerite, a solicitud de la Presidencia. Para esto deberá convocarse vía correo electrónico con una antelación mínima de veinticuatro horas.
