@@ -1,2 +1,4 @@
-ARTÍCULO 34.- Responsable de presentar el anteproyecto
-El titular de cada ente y órgano incluidos en los incisos a) y b) del artículo 1 será el responsable de presentar el anteproyecto de presupuesto al Ministerio de Hacienda, atendiendo las disposiciones en cuanto a la forma y los plazos que se definan para ese efecto.
+Artículo 34- Responsable de presentar el anteproyecto. El titular de cada ministerio y el de los sujetos incluidos en el inciso b) del artículo 1 será el responsable de presentar el anteproyecto de presupuesto al Ministerio de Hacienda. En el caso de los ministerios, el anteproyecto deberá incorporar también, con su anuencia expresa, el anteproyecto de presupuesto de los órganos desconcentrados que tenga adscritos.
+Para ello, los órganos desconcentrados deben remitir al ministro correspondiente su presupuesto, con la aprobación previa de sus máximos jerarcas.
+Para el cumplimiento de todo lo anterior, deberán atenderse las disposiciones que el Ministerio de Hacienda defina en cuanto a la forma y los plazos para ese efecto.
+(Así reformado por el artículo 2° aparte b) de la Ley Fortalecimiento del control presupuestario de los órganos desconcentrados del Gobierno Central, N° 9524 del 7 de marzo de 2018)

@@ -1,4 +1,1 @@
-ARTÍCULO 8.- Presupuesto
-La Junta Administrativa del Museo de Arte y Diseño Contemporáneos y
-la Fundación someterán a la aprobación de la Contraloría General de la
-República los presupuestos del Museo y sus correspondientes liquidaciones.
+ARTÍCULO 8.-(Derogado por el artículo 3° de la Ley Fortalecimiento del control presupuestario de los órganos desconcentrados del Gobierno Central, N° 9524 del 7 de marzo de 2018)

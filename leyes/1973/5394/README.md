@@ -1,6 +1,6 @@
 # Ley de Creación de la Junta Administrativa de la Imprenta Nacional
 
-Ley N° 5394 del 1973-11-05. SINALEVI, ficha 6544: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6544&param2=109733&param3=1>.
+Ley N° 5394 del 1973-11-05. SINALEVI, ficha 6544: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6544&param2=111838&param3=1>.
 
 Publicada en La Gaceta N° 211 del 1973-11-09.
 
@@ -14,3 +14,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 4 de 8 | 1985-07-24 | Ley 6995 | 1985-07-22 |
 | 5 de 8 | 2002-10-04 | Ley 8305 | 2002-09-19 |
 | 6 de 8 | 2017-10-10 | Ley 9465 | 2017-08-08 |
+| 7 de 8 | 2018-04-10 | Ley 9524 | 2018-03-07 |
