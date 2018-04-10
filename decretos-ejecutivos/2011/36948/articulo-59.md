@@ -1,6 +1,1 @@
-Artículo 59.- Operaciones únicas en efectivo.- Se entenderá por operaciones únicas aquellas
-transacciones individuales en efectivo (entendiéndose por efectivo billetes y/o monedas) iguales o
-superiores a los diez mil dólares estadounidenses (US$10.000,00) o su equivalente en otra moneda.
-Los sujetos obligados, deberán registrar en el formulario diseñado por la UIF, el ingreso o egreso de las transacciones en efectivo (incluidas las transferencias depositadas o retiradas, desde el
-exterior o hacia él) en moneda nacional o extranjera, iguales o superiores a los diez mil dólares estadounidenses (US$10.000,00) o su equivalente en colones u otras monedas extranjeras. Dicho formulario estará a disposición inmediata de la UIF o autoridad judicial competente cuando así lo
-requieran.
+Artículo 59.- (Derogado por el artículo 32 del Reglamentación de los artículos 15 bis y 15 ter de la ley N° 7786 Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, actividades conexas, legitimación de capitales y financiamiento al terrorismo, aprobado mediante decreto ejecutivo N° 41016 del 10 de abril del 2018)

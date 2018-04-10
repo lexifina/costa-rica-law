@@ -1,7 +1,1 @@
-Artículo 57.- Transacciones con instrumentos financieros.- Los sujetos obligados deberán prestar especial atención a los pagos realizados mediante instrumentos financieros tales como:
-a) Cheques de viajero.
-b) Certificados de inversión cuyo beneficiario es un tercero no identificado.
-c) Tarjetas de crédito emitidas fuera del territorio nacional.
-d) Bonos emitidos en el exterior.
-e) Pagos realizados con fuertes sumas de dinero en efectivo.
-f) Cualquier otro instrumento que defina la UIF.
+Artículo 57.- (Derogado por el artículo 32 del Reglamentación de los artículos 15 bis y 15 ter de la ley N° 7786 Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, actividades conexas, legitimación de capitales y financiamiento al terrorismo, aprobado mediante decreto ejecutivo N° 41016 del 10 de abril del 2018)

@@ -1,3 +1,1 @@
-Artículo 61.- Reporte de operaciones. Tanto las operaciones múltiples como las transacciones
-únicas deberán reportarse a la UIF por parte del sujeto obligado, al cierre de cada mes, bajo el formato que esta Unidad previamente defina.
-Para el control de las operaciones múltiples, el sujeto obligado deberá completar el respectivo formulario confeccionado por la UIF.
+Artículo 61.- (Derogado por el artículo 32 del Reglamentación de los artículos 15 bis y 15 ter de la ley N° 7786 Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, actividades conexas, legitimación de capitales y financiamiento al terrorismo, aprobado mediante decreto ejecutivo N° 41016 del 10 de abril del 2018)

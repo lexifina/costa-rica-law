@@ -18,3 +18,4 @@ Reglamento general sobre legislación contra el narcotráfico, actividades conex
 | 3 | 2015-04-22 | Decreto Ejecutivo 39000 (2015-04-22) |
 | 4 | 2016-11-14 | Decreto Ejecutivo 40018 (2016-11-14) |
 | 5 | 2017-04-20 | Decreto Ejecutivo 40457 (2017-04-20) |
+| 6 | 2018-04-10 | Decreto Ejecutivo 41016 (2018-04-10) |
