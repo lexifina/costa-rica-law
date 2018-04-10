@@ -1,1 +1,0 @@
-Artículo 6°-Impedimento para ser Jurado. No podrá ser miembro del Jurado la persona que tenga parentesco por consanguinidad o afinidad hasta segundo grado con alguno de los participantes; ante lo cual la instancia correspondiente deberá enviar nuevamente el nombre de un delegado, previo al inicio del proceso de análisis de los trabajos de investigación.

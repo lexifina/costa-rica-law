@@ -1,1 +1,0 @@
-Artículo 2°-Objetivo. Establecer los procedimientos necesarios para el otorgamiento y entrega de los Premios “Clodomiro Picado Twight”, con el fin de reconocer los mejores trabajos originales realizados únicamente por personas físicas en forma individual o colectiva, en las áreas de la investigación científica y del desarrollo tecnológico.

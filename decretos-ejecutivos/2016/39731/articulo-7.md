@@ -1,1 +1,0 @@
-Artículo 7°-Juramentación del jurado. Una vez integrada la totalidad de los miembros representantes para cada uno de los Jurados, serán juramentados por el (la) Ministro (a) de Ciencia, Tecnología y Telecomunicaciones y publicado en el sitio web oficial y redes sociales oficiales del Ministerio de Ciencia, Tecnología y Telecomunicaciones.
