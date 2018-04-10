@@ -1,6 +1,2 @@
-"Artículo 7º.- La Junta Administrativa deberá elaborar un presupuesto
-anual de sus gastos, que deberá someter al Ministerio de Cultura, Juventud
-y Deportes, quien lo enviará a la Contraloría General de la República, para
-su aprobación.
-Esta Institución queda autorizada para ejercer, además, los controles
-de otra naturaleza que, a su juicio, convengan al interés del Museo".
+Artículo 7- La Junta Administrativa deberá elaborar un anteproyecto de presupuesto anual de sus gastos, que deberá someter al Ministerio de Cultura y Juventud para lo que le compete. La Contraloría General de la República queda autorizada para ejercer los controles de otra naturaleza que, a su juicio, convengan al interés del Museo.
+(Así reformado por el artículo 2° aparte d) de la Ley Fortalecimiento del control presupuestario de los órganos desconcentrados del Gobierno Central, N° 9524 del 7 de marzo de 2018)

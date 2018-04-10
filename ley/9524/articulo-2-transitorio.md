@@ -1,0 +1,3 @@
+TRANSITORIO II- El Ministerio de Hacienda, los ministros rectores y los jerarcas de los órganos, las unidades ejecutoras, los fondos, los programas y las cuentas que administren recursos de manera independiente deberán tomar las medidas (ajustes en sistemas informáticos, requerimiento de recurso humano, infraestructura, capacitación, entre otros) que les correspondan de acuerdo con sus competencias técnicas, legales y administrativas, para asegurar que la formulación para el período económico 2021 se realice incorporando los recursos al presupuesto nacional.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República.—San José, a los siete días del mes de marzo del dos mil dieciocho.
