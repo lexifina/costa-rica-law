@@ -15,3 +15,4 @@ Reglamento del Consejo Nacional de Acreditación
 | --- | --- | --- |
 | 1 | 2002-09-13 | la propia norma |
 | 2 | 2011-05-26 | Reglamento 670 (2011-05-26) |
+| 3 | 2018-04-10 | Reglamento 0 (2018-04-10) |

@@ -1,2 +1,1 @@
-Disposiciones finales
-Artículo 32.—El Consejo Nacional de Acreditación podrá reformar este Reglamento con el voto de al menos tres cuartas partes de sus miembros, previo informe de la comisión que nombrará para este efecto.
+Artículo 32.—(Nota de Sinalevi: El texto de este numeral puede ser consultado en el artículo 30, ya que por el numeral 20 del Reglamento Orgánico del Sistema Nacional de Acreditación (SINAES), publicado en el Alcance N° 81 de La Gaceta N° 69 del 20 de abril del 2018, se indicó derogar los numerales 7 y 22 originales y correr la numeración de los restantes artículos)
