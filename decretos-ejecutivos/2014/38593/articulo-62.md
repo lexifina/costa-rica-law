@@ -1,2 +1,0 @@
-Artículo 62.- Responsabilidad de la evaluación
-Por las características de éste subcomponente, en una primera etapa, la decisión de la Comisión de Incentivos estará respaldada por la carta de aceptación de la propuesta al evento internacional en el que se dará a conocer a las aceleradoras. En una segunda etapa, la Comisión de Incentivos se apoyará en la carta de aceptación de la propuesta para ser acelerada internacionalmente.

@@ -1,2 +1,0 @@
-Artículo 80.- Beneficiarios potenciales
-Serán elegibles las empresas o grupos de empresas existentes en el mercado que operen en una de las áreas prioritarias y que cuenten con capacidad técnica, administrativa y económica suficiente para concretar los objetivos de este instrumento. Las empresas solicitantes deberán estar al día con sus obligaciones tributarias y patronales al momento de la presentación.

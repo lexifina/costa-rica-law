@@ -1,2 +1,0 @@
-Artículo 23°.- Auditorías Externas.
-El Programa ha previsto desde el punto de vista presupuestario y contable la realización de Auditorías externas. La primera auditoría deberá ser contratada en los seis meses del primer año de implementación del Programa y deberá incluir una fase de auditoría de gestión que permitirá garantizar que los procedimientos contables y administrativos implementados son los idóneos, los términos de referencia de la contratación recibirán la no objeción del BID, según lo estipulado en la Ley N° 9218.

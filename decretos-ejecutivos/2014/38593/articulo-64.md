@@ -1,3 +1,0 @@
-Artículo 64.- Cierre de los proyectos
-El beneficiario deberá presentar un informe final de resultados. La Dirección de Innovación del MICITT lo evaluará, emitirá un reporte y, en caso de conformidad, solicitará el cierre del proyecto a la UE del MICITT. El informe final será un informe recapitulativo de los resultados alcanzados y en el que se integrarán aquellos elementos nuevos que no fueron reportados en el último informe de seguimiento.
-En caso de disconformidad, la Dirección de Innovación del MICITT solicitará las aclaraciones del caso para dar el cierre definitivo del proyecto. En caso de no solventarse dicho requerimiento se procederá con lo establecido en el contrato.
