@@ -1,0 +1,7 @@
+Artículo 25.- Garantía fiduciaria
+La garantía fiduciaria se podrá aceptar cuando se cumplan con las siguientes condiciones:
+a) En toda operación crediticia en donde se otorgue fianza, ésta siempre será solidaria.
+b) Cuando haya un conflicto de interés entre el acreedor y el deudor o entre el deudor y sus fiadores, podrá acudirse a la fianza de otras empresas relacionadas por participaciones recíprocas, por participación de una en otra, o por ser propiedad mayoritaria de una misma tercera empresa.
+c) CORBANA, S. A. deberá realizar un estudio registral de los bienes patrimoniales de los fiadores solidarios y de su capacidad de pago, cuando esta garantía sea la principal.
+d) El respaldo de un crédito otorgado con garantía fiduciaria se hará mediante la emisión de un pagaré, el cual deberá contar con el visto bueno de la Sección Legal de CORBANA, S. A.
+e) El otorgamiento de fianzas por parte de personas jurídicas se regirá además por las siguientes reglas: si la correspondiente acta constitutiva contempla dentro de su objeto la posibilidad de otorgar fianzas a favor de terceros, bastará con que el respectivo representante acredite, aparte de la personería con que actúa, la facultad de rendir fianzas a favor de terceros. En caso contrario, será necesario el otorgamiento de un poder especial por parte del órgano competente, en cuyo caso se deberá presentar la protocolización del acta en escritura pública.

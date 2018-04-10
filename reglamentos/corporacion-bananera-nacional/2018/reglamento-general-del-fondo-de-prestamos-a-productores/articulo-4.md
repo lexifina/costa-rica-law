@@ -1,0 +1,2 @@
+Artículo 4.- Criterios éticos
+CORBANA, S. A., además de considerar indicadores financieros y económicos, al momento de resolver los créditos tomará en cuenta también factores de eficiencia administrativa y habilidad gerencial, así como el récord crediticio del solicitante ante CORBANA, S. A., de manera que la aprobación de cualquier crédito será discrecional para la Institución, apegada su decisión a criterios de la ciencia, técnica, riesgo, garantía, ética, profesionalismo y equidad.

@@ -1,0 +1,2 @@
+Artículo 29.- Crédito back to back
+Solo se aceptarán valores del Sistema Bancario Estatal. Para obtener el valor de mercado, CORBANA, S.A. deberá recurrir a los mecanismos autorizados para la Bolsa Nacional de Valores. Para el otorgamiento de esta línea de crédito no se requerirá el análisis financiero del productor solicitante, pero sí la elaboración de un flujo de caja que demuestre la capacidad de pago, y la valoración de los títulos.

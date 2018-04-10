@@ -1,0 +1,7 @@
+Artículo 46.- Vigencia del reglamento
+El presente Reglamento rige a partir del día 10 de abril del 2018.
+CONTROL DE VERSIONES
+Fecha de actualización | Órgano de aprobación | Documento de aprobación | Impresión/Digital
+09-12-2014 | Junta Directiva de CORBANA, S.A. | Versión inicial de referencia aprobada según artículo VI, inciso B, de la Sesión N°48-12-2014 del 09 de diciembre del 2014. | Digital
+10-04-2018 | Junta Directiva de CORBANA, S.A. | Revisión general del reglamento, dentro de la cual sobresalen los siguientes cambios: Artículo 10: Se establece la presentación de un formulario de solicitud de crédito para efectos de optimizar la información inicial que se requiere conocer por parte de la Sección de Crédito para dar trámite a una solicitud de crédito. Artículo 20: Se modifica el porcentaje de aceptación de garantías cuando estas garanticen operaciones de diferentes productores. Artículo 27: Se amplió la cobertura del crédito de inversión de manera que CORBANA, S.A. pueda refinanciar o abonar operaciones bancarias del productor, cuando el plan de inversión de tales operaciones esté asociado con inversiones en la unidad productiva. Anexo 1: Se modifica el cálculo del tope máximo al que pueden | Digital
+| | acceder los productores cuando forman parte de un grupo de interés económico vinculado a la actividad bananera. Anexo 2: Modificación del plazo del crédito de capital de trabajo. |
