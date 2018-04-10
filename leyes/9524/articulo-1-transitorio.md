@@ -1,0 +1,1 @@
+TRANSITORIO I- Los órganos desconcentrados a los que se refiere el artículo primero de esta ley seguirán presentando, para aprobación presupuestaria de la Contraloría General de la República, sus presupuestos institucionales y se mantendrán bajo dicho control presupuestario hasta la finalización de la ejecución de los recursos del período económico 2020.
