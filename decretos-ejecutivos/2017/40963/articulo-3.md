@@ -1,0 +1,1 @@
+Artículo 3º—Los apéndices que conforman el Plan Nacional de Contingencia, señalados como A, B, C, D, E, F, G, H, I, J, K, L, M, N, O, P, Q, R, S, T, U, V, W, X, Y y Z, podrán ser actualizados de parte de la Comisión Nacional de Derrames una vez convocada por el Ministro de Obras Públicas y Transportes o quien este delegue.
