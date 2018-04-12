@@ -15,3 +15,4 @@ Reglamento de Operación de la Red Frigorífica Nacional (REFRINA) del Programa 
 | --- | --- | --- |
 | 1 | 2012-01-01 | la propia norma |
 | 2 | 2016-11-23 | Reglamento 0 (2016-11-23) |
+| 3 | 2018-04-12 | Reglamento 0 (2018-04-12) |
