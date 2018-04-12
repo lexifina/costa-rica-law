@@ -1,0 +1,1 @@
+Artículo 3º—Para ejercer el voto electrónico el elector (a) deberá́ cumplir con los mecanismos de seguridad que determine El Tribunal Electoral acorde con el programa informático que se utilice. El sistema verificará los datos en el padrón y posterior a ello se podrá́ emitir el voto.
