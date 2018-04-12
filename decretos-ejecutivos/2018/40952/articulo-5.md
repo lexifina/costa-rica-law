@@ -1,0 +1,1 @@
+Artículo 5º—Extensión de los informes. Los informes parciales de los primeros tres años tendrán un máximo de 150 páginas y el informe final del cuarto año de gestión no deberá sobrepasar las 400 páginas.

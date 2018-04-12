@@ -1,0 +1,1 @@
+Artículo 3º—Conformación de equipo interdisciplinario. Con el mandato del Consejo Nacional Ambiental, el Ministro de Ambiente y Energía durante su gestión cuatrienal del gobierno de turno, deberá coordinar el equipo de trabajo responsable de elaborar año a año los informes parciales y el informe final del estado del Ambiente.
