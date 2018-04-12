@@ -1,2 +1,0 @@
-Artículo 2º—Creación. Créase la Comisión Mixta para la Construcción de la Ruta Nacional número 257, Sección Sandoval- Moín, provincia de Limón, como instancia del Poder Ejecutivo encargada de la unión de esfuerzos, promoción de la cooperación y coordinación de las acciones, para el cumplimiento de la obligación referida en el Contrato.
-La Comisión se disolverá una vez cumplidas sus funciones asignadas en el presente decreto.
