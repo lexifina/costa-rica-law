@@ -1,0 +1,1 @@
+Artículo 6°—Derogatorias. Se dejan sin efecto las siguientes resoluciones: DGT-003-2008 de las diez horas treinta minutos del 21 de febrero del 2008, publicada en La Gaceta N° 61 del 28 de marzo del 2008 y DGT-09-2008 del 27 de mayo del 2008, publicada en La Gaceta N° 120 del 23 de junio del 2008.
