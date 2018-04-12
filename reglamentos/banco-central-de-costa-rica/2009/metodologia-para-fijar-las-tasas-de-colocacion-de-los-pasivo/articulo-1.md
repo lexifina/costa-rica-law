@@ -26,9 +26,10 @@ VII. Conindependencia de la curva de rendimiento antes señalada, para los títu
 (Así adicionado el punto anterior mediante sesión N° 5436 del 23 de setiembre de 2009)
 (Así reformado el punto anterior mediante sesión N° 5552-2012 del 11 de julio del 2012)
 (Corrida la numeración del inciso en sesión N° 5816-2018 del 23 de febrero de 2018, que lo traspaso del antiguo inciso VI al VII)
-VIII. Para definir las tasas de captación de los pasivos del Banco Central de Costa Rica denominados en dólares de Estados Unidos de América, la Administración contará, para cada plazo, con un margen entre la tasa ofrecida a los depósitos en el mercado interbancario de Londres (Libid) en dólares de los Estados Unidos de América (EUA) y el máximo que resulte entre los siguientes dos valores: la tasa Libid más cien puntos básicos en dólares y la tasa de interés en dólares que el Ministerio de Hacienda reconoce en las captaciones realizadas por medio de la plataforma Tesoro Directo.
+VIII. Para definir las tasas de captación de los pasivos del Banco Central de Costa Rica denominados en dólares de Estados Unidos de América, la Administración contará, para cada plazo, con un margen entre cero y el máximo que resulte entre los siguientes dos valores: la tasa ofrecida por los depósitos en el mercado interbancario de Londres (Libid) en dólares de los Estados Unidos de América (EUA) más cien puntos básicos y la tasa de interés en dólares que el Ministerio de Hacienda reconoce en las captaciones realizadas por medio de la plataforma Tesoro Directo.
 (Así adicionado el punto anterior en sesión N° 5779 del 17 de julio de 2017)
 (Corrida la numeración del inciso anterior en sesión N° 5816-2018 del 23 de febrero de 2018, que lo traspaso del antiguo inciso VII al VIII)
+(Así reformado el punto VIII) anterior en sesión N° 5822 del 12 de abril de 2018)
 IX. Le corresponde a la Comisión de Mercados fijar los detalles operativos para la aplicación de esta metodología.
 (Así reformado el punto anterior en sesión N° 5779 del 17 de julio de 2017)
 (Corrida la numeración del punto anterior en sesión N° 5779 del 17 de julio de 2017, que lo traspaso del punto VII) al punto VIII)

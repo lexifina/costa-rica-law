@@ -23,3 +23,4 @@ Metodología para fijar las tasas de colocación de los pasivos
 | 8 | 2015-09-23 | Reglamento 5701 (2015-09-23) |
 | 9 | 2017-07-17 | Acuerdo 0 (2017-07-17) |
 | 10 | 2018-02-23 | Reglamento 5816 (2018-02-23) |
+| 11 | 2018-04-12 | Reglamento 5822 (2018-04-12) |
