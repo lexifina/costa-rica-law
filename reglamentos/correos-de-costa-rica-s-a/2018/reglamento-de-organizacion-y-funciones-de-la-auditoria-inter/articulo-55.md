@@ -1,0 +1,2 @@
+Artículo 55.—Cualidades de la información: Los hallazgos de auditoría contenidos en los informes deben estar sustentados en evidencia suficiente, competente, confiable, relevante, útil y pertinente, obtenida por los medios legales y técnicos aplicables de manera tal que les permita alcanzar los objetivos del trabajo.
+El criterio profesional de los auditores determinará la cantidad y el tipo de evidencia necesaria para respaldar sus hallazgos.

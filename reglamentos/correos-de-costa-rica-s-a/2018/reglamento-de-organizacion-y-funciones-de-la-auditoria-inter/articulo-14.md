@@ -1,0 +1,2 @@
+Artículo 14.—Remoción del Auditor Interno y Subauditor: Los puestos de Auditor Interno y Subauditor sólo podrán ser removidos del cargo por justa causa, conforme el artículo 15 de la Ley Orgánica de la Contraloría General de la República.
+Se deberá, para tales efectos, tramitar un procedimiento administrativo ordinario, conformar el respectivo expediente, otorgar al Auditor Interno oportunidad suficiente de audiencia y defensa en su favor, y observar la normativa aplicable.

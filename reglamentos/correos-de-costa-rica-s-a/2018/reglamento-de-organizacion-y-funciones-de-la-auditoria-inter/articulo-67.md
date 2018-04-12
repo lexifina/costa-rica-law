@@ -1,0 +1,2 @@
+Artículo 67.—Plazo para remitir información adicional a la conferencia final: Si lo considera necesario, la Auditoría Interna otorgará un plazo máximo de 2 días hábiles para que luego de realizar la conferencia final sobre los resultados de un estudio de auditoría, la Administración Activa remita información adicional de previo a emitir el informe final.
+Cualquier aspecto no tratado en los artículos 65, 66 y 67 de este Reglamento, se debe acudir al Procedimiento para la Conferencia Final aprobado por la Auditoría Interna y divulgado a la Administración Activa.

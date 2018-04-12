@@ -1,0 +1,1 @@
+Artículo 59.—Revisión de papeles de trabajo: Los documentos de trabajo serán revisados por el Auditor Interno o a quien designe para asegurar que sustentan adecuadamente los resultados del estudio y que todos los procedimientos de auditoría han sido correctamente aplicados. Deberán incorporarse al legajo del estudio de acuerdo con las normas establecidas.

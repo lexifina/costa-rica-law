@@ -1,0 +1,1 @@
+Artículo 86.—Información adicional: El denunciante deberá brindar información complementaria respecto a lo que estime del perjuicio económico producido a los fondos públicos en caso de conocerlo, indicar probables testigos y el lugar o medio para citarlos, así como la aportación o sugerencia de otras pruebas.

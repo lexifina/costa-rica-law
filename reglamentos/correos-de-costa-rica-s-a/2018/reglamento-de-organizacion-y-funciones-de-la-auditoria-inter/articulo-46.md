@@ -1,0 +1,1 @@
+Artículo 46.—De la Comunicación de Resultados: Esta fase se regirá por el procedimiento para la comunicación de resultados establecido por la Auditora General, con el fin de informar sobre los principales resultados y recomendaciones producto de la Auditoría; excepto los informes sobre relaciones de hechos.

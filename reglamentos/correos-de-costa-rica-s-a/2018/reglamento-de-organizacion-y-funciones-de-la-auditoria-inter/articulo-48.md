@@ -1,0 +1,1 @@
+Artículo 48.—Del “Realizado de acuerdo con las normas”: Se debe revelar en los informes que la auditoría fue efectuada de conformidad con las Normas para el ejercicio de la auditoría interna en el Sector Público dictadas por la Contraloría General de la República, así como cualquier otra normativa que resulte aplicable.

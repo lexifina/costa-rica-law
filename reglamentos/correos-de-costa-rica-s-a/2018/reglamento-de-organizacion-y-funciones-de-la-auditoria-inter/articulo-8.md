@@ -1,0 +1,1 @@
+Artículo 8º—Organización: La Auditoría Interna está bajo la autoridad y responsabilidad del Auditor Interno. Dicho funcionario debe reunir las condiciones de idoneidad profesional y moral requeridas para el cargo y debe conocer las disposiciones legales que rigen en general a la Administración Pública y en particular a Correos de Costa Rica.

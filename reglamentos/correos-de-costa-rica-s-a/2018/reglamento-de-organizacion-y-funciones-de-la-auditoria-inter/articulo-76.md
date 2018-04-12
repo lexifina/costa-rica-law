@@ -1,0 +1,1 @@
+Artículo 76.—Responsabilidad por incumplimiento de recomendaciones: El incumplimiento injustificado en la implementación de alguna recomendación de Auditoría podría derivar un informe de Relación de Hechos al colaborador que no haya tomado las acciones necesarias.

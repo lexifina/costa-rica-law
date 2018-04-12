@@ -1,0 +1,2 @@
+Artículo 20.—Participación en sesiones o reuniones del jerarca: El Auditor Interno podrá participar en las sesiones o reuniones de la Junta Directiva, la actuación debe ser conforme al nivel de órgano de línea de la Junta Directiva y de asesor en asuntos de su competencia y no con carácter permanente, según la normativa establecida por la Contraloría General de la República al respecto.
+Los colaboradores de la Auditoría Interna, por regla, incluyendo al Auditor Interno, asistirán a dichas reuniones, cuando sea necesario, con voz, pero sin voto.

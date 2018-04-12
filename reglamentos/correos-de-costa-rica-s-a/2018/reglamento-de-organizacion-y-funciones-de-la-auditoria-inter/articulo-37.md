@@ -1,0 +1,1 @@
+Artículo 37.—Registro separado del presupuesto de la Auditoría Interna: La Administración de Correos de Costa Rica S. A. deberá llevar un registro separado por objeto del gasto del presupuesto que se asigne a la Auditoría Interna, de manera que se controle con exactitud su ejecución y modificaciones.

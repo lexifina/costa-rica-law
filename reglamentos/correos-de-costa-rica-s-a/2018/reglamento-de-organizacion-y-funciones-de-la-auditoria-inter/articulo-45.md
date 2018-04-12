@@ -1,0 +1,3 @@
+CAPÍTULO XI
+Estudios de la Auditoría Interna
+Artículo 45.—De los estudios de Auditoría: Los estudios de Auditoría se llevan a cabo siguiendo la normativa y las mejores prácticas, con el fin de garantizar la calidad de sus productos. Las fases de los estudios de Auditoría son Planificación, Examen, Comunicación de Resultados y Seguimiento. Se debe utilizar para su desarrollo un sistema que automatiza los estudios de auditoría, del cual se deriva un expediente electrónico. El desarrollo de las diferentes fases se regirá por lo establecido en los manuales de procedimientos que emita la Auditora General y las normas de la Contraloría General de la República.

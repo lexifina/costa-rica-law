@@ -1,0 +1,1 @@
+Artículo 52.—Pericia y debido cuidado profesional: Los colaboradores de la Auditoría Interna deben realizar su trabajo con pericia y debido cuidado profesional. Deberán poseer, en conjunto, los conocimientos, técnicas y otras competencias para desempeñar cada trabajo adecuadamente.

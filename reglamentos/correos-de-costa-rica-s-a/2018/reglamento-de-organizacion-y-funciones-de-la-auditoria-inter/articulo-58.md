@@ -1,0 +1,1 @@
+Artículo 58.—Archivo permanente y de gestión de la Auditoría Interna: La Auditoría mantiene un archivo permanente actualizado, puede ser físico, digital o por cualquier otro medio electrónico que asegure su permanencia en el tiempo.

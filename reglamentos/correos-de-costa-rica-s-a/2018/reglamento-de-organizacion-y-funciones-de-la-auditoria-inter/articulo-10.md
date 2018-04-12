@@ -1,0 +1,1 @@
+Artículo 10.—Confidencialidad: El personal de la Auditoría Interna deberá mantener la información obtenida durante el estudio en forma confidencial, no debe revelarla a terceros, solo podrá brindarse cuando sea requerida por una autoridad judicial o a solicitud de terceros previa autorización de la Auditora General.

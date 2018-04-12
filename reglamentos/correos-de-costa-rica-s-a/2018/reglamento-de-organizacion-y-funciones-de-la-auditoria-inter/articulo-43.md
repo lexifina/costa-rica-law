@@ -1,0 +1,3 @@
+Artículo 43.—Plan Anual de Trabajo (PAT) de la Auditoría Interna: cada año la Auditoría define los servicios de auditoría a los que dedicará su equipo de trabajo, los cuales se toman del Universo Auditable, con un criterio de priorización de riesgos, conforme la metodología establecida por la Auditoría Interna. El PAT incluye los servicios de Auditoría (Financiero, Operativos, Especiales y de TI) y los de Asesoría (Asesoría, Advertencia y Autorización de Libros).
+El Auditor Interno somete a conocimiento de la Junta Directiva el PAT. Sus miembros podrán solicitar modificaciones y realizar las observaciones que consideren pertinentes.
+El PAT debe incluirse en el Sistema de Planes de Auditoría ubicado en el sitio web de la Contraloría General de la República.

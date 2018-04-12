@@ -1,0 +1,1 @@
+Artículo 75.—Control de avance de la implementación de recomendaciones: Corresponde al titular subordinado controlar el avance de la implementación de recomendaciones de la Auditoría Interna, en el plazo establecido.

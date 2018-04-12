@@ -1,0 +1,1 @@
+Artículo 70.—Informes de relaciones de hechos: La relación de hechos es un informe que compila hechos, actos, acciones y omisiones que se encuentran ligados por un nexo de causalidad a una falta de carácter administrativo o a la determinación de responsabilidades y que se constituye en insumo para acreditar dichas responsabilidades.

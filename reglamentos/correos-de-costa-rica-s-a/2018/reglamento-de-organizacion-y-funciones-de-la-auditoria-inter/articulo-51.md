@@ -1,0 +1,1 @@
+Artículo 51.—Acceso a los registros y papeles de trabajo de la Auditoría Interna: El Auditor Interno restringirá el acceso por parte de personas ajenas a la Auditoría Interna a los registros y papeles de trabajo de los estudios. Deberán tomarse las previsiones de modo que se requiera de su autorización o la de quien él designe para acceder a tal información.

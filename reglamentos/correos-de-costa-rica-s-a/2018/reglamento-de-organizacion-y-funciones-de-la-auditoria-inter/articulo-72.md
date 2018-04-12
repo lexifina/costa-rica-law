@@ -1,0 +1,1 @@
+Artículo 72.—Comparecencia: El personal de Auditoría responsable del estudio que derive en un informe de Relación de Hechos u otro informe, podrá comparecer en el procedimiento disciplinario en su carácter exclusivo de experto calificado y únicamente podrá ser consultado sobre el informe emitido.

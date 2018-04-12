@@ -1,0 +1,1 @@
+Artículo 6º—Ámbito de acción: El ámbito de acción está conformado por Correos de Costa Rica, y por los entes u órganos públicos y privados sujetos a la competencia institucional de la Auditoría Interna.
