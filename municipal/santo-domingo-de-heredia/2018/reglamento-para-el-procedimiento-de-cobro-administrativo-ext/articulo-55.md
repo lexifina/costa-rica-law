@@ -1,0 +1,1 @@
+Artículo 55.—Suspensión de paja de agua. Dentro de la suspensión de servicio se encuentra la suspensión del servicio o paja de agua por incumplimiento de pago, u omisión de registro y pago. De previo a la suspensión deberá realizarse una notificación de advertencia a la persona contribuyente de la suspensión del servicio por morosidad.

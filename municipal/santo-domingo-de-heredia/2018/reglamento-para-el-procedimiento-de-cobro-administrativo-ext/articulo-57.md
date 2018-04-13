@@ -1,0 +1,1 @@
+Artículo 57.—De la suspensión de servicios en casos de conexiones ilegales. Quedará bajo competencia de la Dirección de Acueducto, la atención inmediata de casos de conexión ilegal, para lo que deberá proceder a suspender los servicios, pajas de agua o conexiones ilegales, efectuar estudio de cargo de unidad e instalación de paja de agua y de los cobros pendientes.

@@ -1,0 +1,1 @@
+Artículo 13.—De la Dirección y control de las gestiones: La dirección y control, tanto de las acciones, como las gestiones de cobro judicial estarán a cargo del Departamento de Gestión de Cobro en coordinación con las personas asesoras legales externas o Internas según sea el caso.

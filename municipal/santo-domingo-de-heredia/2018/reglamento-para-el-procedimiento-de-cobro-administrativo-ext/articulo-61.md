@@ -1,0 +1,1 @@
+Artículo 61.—Derogaciones. Este Reglamento deroga el Reglamento de servicio de cobro judicial de impuesto, tasas y contribuciones especiales municipales publicado en La Gaceta 211 del 30 de octubre del 1998.

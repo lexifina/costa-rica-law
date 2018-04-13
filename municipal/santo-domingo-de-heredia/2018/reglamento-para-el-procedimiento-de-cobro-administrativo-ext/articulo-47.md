@@ -1,0 +1,1 @@
+Artículo 47.—Condonación de honorarios. Procederá únicamente la condonación de los honorarios profesionales, cuando así lo haya determinado la persona profesional que dirige el proceso, la cual, lo hará constar mediante nota dirigida al Departamento de Gestión de Cobro, así mismo, ésta se debe adicionar al expediente respectivo.

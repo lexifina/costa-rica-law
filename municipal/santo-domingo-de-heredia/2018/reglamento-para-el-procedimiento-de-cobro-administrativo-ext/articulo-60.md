@@ -1,0 +1,1 @@
+Artículo 60.—De las sanciones del funcionariado municipal. El incumplimiento a lo determinado por el presente reglamento sin causa justificada amparada en la ley de parte de las personas funcionadas municipales de cualquier dependencia de la Municipalidad, será considerado falta grave.

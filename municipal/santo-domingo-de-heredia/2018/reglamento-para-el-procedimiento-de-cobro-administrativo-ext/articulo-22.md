@@ -1,0 +1,1 @@
+Artículo 22.—Incumplimiento de arreglo de pago. En el caso de que la persona contribuyente morosa incumpliere el compromiso adquirido de arreglo de pago. La Municipalidad procederá de inmediato a pasar esa cuenta a cobro judicial.
