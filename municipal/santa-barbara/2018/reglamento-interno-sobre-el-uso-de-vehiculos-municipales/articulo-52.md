@@ -1,0 +1,1 @@
+Artículo 52.—La institución beneficiada con el préstamo del vehículo deberá asumir la responsabilidad del control sobre el uso y mantenimiento de igual forma como si se tratara de su propiedad.

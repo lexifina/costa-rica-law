@@ -1,0 +1,1 @@
+Artículo 15.—Cuando las necesidades institucionales así lo requieran o en casos excepcionales, dicho vehículo podrá ser utilizado por usuarios institucionales, para lo cual deberá contarse con el consentimiento escrito del titular de la Alcaldía.

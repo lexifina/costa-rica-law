@@ -1,0 +1,1 @@
+Artículo 39.—Los vehículos no deben dejarse estacionados en lugares donde se ponga en peligro la seguridad de estos, sus accesorios, materiales o equipos que transporta. En cumplimiento de lo anterior, se deberá actuar de conformidad con el artículo 20 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 12.—El vehículo de uso administrativo para los titulares de la Alcaldía solo podrán ser conducidos por el titular de la Alcaldía y por el titular de la Vicealcaldía o por el chofer institucional designado para conducirlos.

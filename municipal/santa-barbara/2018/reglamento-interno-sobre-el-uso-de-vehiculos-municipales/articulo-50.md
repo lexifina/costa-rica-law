@@ -1,0 +1,3 @@
+CAPÍTULO XIII
+Préstamo de vehículos entre Ministerios o Instituciones
+Artículo 50.—Mediante una justificación por escrito hecha por los jerarcas, los vehículos de todos los componentes de la Hacienda Pública pueden ser utilizados entre sí, en casos de excepción. Salvo norma expresa en contrario, el beneficiario asume toda la responsabilidad de su operación. Para los efectos del presente artículo, se entiende como beneficiario la autoridad pública que recibe el vehículo en calidad de préstamo.

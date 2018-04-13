@@ -1,0 +1,1 @@
+Artículo 5º—El uso de los vehículos de las categorías administrativo general y administrativo para los titulares de la Alcaldía estarán regulados por las disposiciones que para tal efecto están incluidas en el presente reglamento y en la Ley de Tránsito vigente.
