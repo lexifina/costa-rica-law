@@ -14,3 +14,4 @@ Comunica resoluciones de la Dirección General de Servicio Civil (DG-189-2017, D
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-09 | la propia norma |
+| 2 | 2018-04-13 | Resolución 5 (2018-04-13) |
