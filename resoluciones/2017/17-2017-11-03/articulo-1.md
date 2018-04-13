@@ -1,7 +1,7 @@
 DIRECCIÓN GENERAL DE SERVICIO CIVIL
 N° SC-017-2017.—San José, 3 de noviembre del 2017. Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
 DG-143-2017: Se modifica el Manual Descriptivo de Especialidades Docentes (Resolución DG-399-2010), en particular la Especialidad “Dibujo Arquitectónico”, de manera que en el apartado “Atinencias Académicas” se incluya la carrera Técnico Superior en Dibujo de Arquitectura e Ingeniería, según lo indica la presente resolución.
-DG-144-2017: Se modifica el Manual Descriptivo de Especialidades Docentes (Resolución DG-399-2010), en particular la Especialidad “Matemática” de manera que en el apartado “Atinencias Académicas” se incluyan las carreras Bachillerato y Licenciatura en Enseñanza de la Matemática en Entornos Tecnológicos según se indica, según se indica en la presente resolución.
+DG-144-2017: (Esta norma se dejó sin efecto por resolución DG-AV-005 -2018, publicada en La Gaceta N° 69 del 20 de abril de 2018, la cual emitió la norma DG-062-2018)
 DG-167-2017: Se autoriza la asignación de sobresueldos para puestos sujetos al Título II del Estatuto de Servicio Civil, correspondientes a las clases de puestos del Manual Descriptivo de
 Clases de Puestos Docentes, según se consigna en los artículos de la presente resolución.
 DG-170-2017: Se corrige el considerando décimo de la Resolución DG-167-2017, para que donde indica “y el Artículo 13 del Decreto N° 12915-E-P”, se lea “y los Artículos 10 y 13 del Decreto N° 12915-E-P”.
