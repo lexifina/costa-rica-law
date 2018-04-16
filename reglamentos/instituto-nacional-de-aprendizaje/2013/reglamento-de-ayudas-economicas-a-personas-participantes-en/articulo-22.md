@@ -13,7 +13,8 @@ h. Denegar o cancelar una ayuda económica cuando la persona solicitante no brin
 Para ello, se requerirá del informe técnico de Trabajo Social y deberá conformar el Órgano
 Director, según lo establecido en el artículo 32 del Reglamento de Participantes de SCFP del Instituto Nacional de Aprendizaje.
 i. Aprobar las solicitudes de becas al exterior que realizan las personas participantes y remitir al Consejo Institucional de Ayudas Económicas para su respectivo aval.
-j. Aprobar aquellas solicitudes de ayudas económicas referidas por Trabajo Social, que no cuenten con los criterios técnicos brindados por los Núcleos Tecnológicos que lo acrediten como servicios complementarios o transversales y que le permita a la persona participante continuar su formación técnica que se justifique para su desempeño laboral, por razones de reconversión laboral u otras.
+j) Resolver aquellas solicitudes de ayudas económicas referidas por el personal de Trabajo Social, que no cuenten con los criterios técnicos brindados por los Núcleos Tecnológicos que permitan tomar una decisión de los servicios complementarios o transversales, para lo cual el CRAE debe realizar las consultas necesarias al Núcleo Tecnológico correspondiente.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 4844 del 16 de abril del 2018)
 k. Fundamentar técnicamente los acuerdos tomados en las sesiones en el marco de la normativa vigente.
 l. Resolver las anomalías que se presenten en la ejecución del Programa de Ayudas Económicas.
 m. Llevar actas de los acuerdos tomados. Las mismas, se deben transcribir en hojas foliadas llevando toda la formalidad con la Ley General de la Administración Pública y el procedimiento interno establecido para el funcionamiento y manejo de libros de actas de los órganos colegiados.
