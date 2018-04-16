@@ -1,12 +1,14 @@
-Anexo 9: Financiamiento de equipo de cómputo y otros equipos. CONAPE financia la adquisición de computadora de escritorio o portátil, tableta, accesorios5, herramientas, instrumentos, suministros, materiales u otros equipos necesarios, para el proyecto de estudios, bajo las siguientes condiciones:
+Anexo 9: Financiamiento de equipo de cómputo y otros equipos. CONAPE financia la adquisición de computadora de escritorio o portátil, tableta, accesorios4, herramientas, instrumentos, suministros, materiales u otros equipos necesarios, para el proyecto de estudios, bajo las siguientes condiciones:
+(Así reformado el párrafo anterior en sesión N° 13 del 16 de abril del 2018)
 a. Debe adjuntar la Factura Proforma respectiva, la cual debe contener al menos:
 1. Nombre completo del propietario (persona física) o razón social o casa proveedora y nombre de fantasía si existe.
 2. Fecha de emisión.
-5 No incluye el financiamiento de equipos de entretenimiento como consola de juegos, teléfono móvil, teatro en casa, televisor, mobiliario y otros equipos similares no relacionados con los estudios, a criterio exclusivo de CONAPE.
 3. Descripción general de las características del equipo por adquirir.
 4. Monto total de la proforma.
-b. Cuando el solicitante vaya a realizar la adquisición a título personal o a través de un familiar o tercera persona en el exterior o a través de la Internet, el Departamento de Crédito, recibe el comprobante o proforma que aporta el solicitante.
-c. El solicitante o prestatario queda obligado a presentar la Factura de Compra de la computadora de escritorio o portátil, tableta, accesorios, herramientas, instrumentos, suministros, materiales u otros equipos.
+b. Cuando el prestatario haya realizado la adquisición entre personas físicas, debe presentar una Compra-Venta efectuada ante Notario Público / Abogado.
+(Así reformado el inciso anterior en sesión N° 13 del 16 de abril del 2018)
+c. Cuando el prestatario solicite renovar o adquirir otra computadora de escritorio o portátil, tableta, accesorios, herramientas, instrumentos, suministros, materiales u otros equipos, la Sección de Desembolsos y Control de Crédito, puede autorizar la compra del nuevo equipo, una vez transcurrido el período de un año, salvo casos excepcionales a juicio de la Jefatura de la Sección de Desembolsos y Control de Crédito.
+(Así reformado el inciso anterior en sesión N° 13 del 16 de abril del 2018)
 d. En caso de que la fecha de la Factura cancelada tenga una fecha de emisión anterior a la fecha de aprobación del préstamo y el solicitante incluyó también el financiamiento de los estudios, la Sección de Desembolsos y Control de Crédito, deduce del desembolso inmediato siguiente el monto girado por ese concepto.
 e. El tope del financiamiento máximo para esta línea crediticia es establecido en el Programa Anual de Crédito vigente, excepto casos especiales a juicio del Consejo Directivo.
 f. El financiamiento se otorga únicamente durante la etapa de estudios del interesado.

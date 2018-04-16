@@ -1,7 +1,11 @@
-Artículo 38.—Garantía fiduciaria insuficiente. En caso de que el solicitante o prestatario presente una garantía fiduciaria que no cumpla con los porcentajes de cobertura establecidos en el Plan Anual de Crédito, el Consejo Directivo puede aprobar dicho préstamo, siempre y cuando, el solicitante o prestatario, cumpla con las siguientes condiciones:
-1. Que el promedio académico sea igual o superior a 70 en la escala de 0 a 100.
-2. Que el ingreso líquido familiar sea insuficiente (igual o menor al salario del primer intervalo de la Tabla de Ingreso Líquido del Factor Ingreso que se encuentre vigente en CONAPE).
-3. Que proceda de una zona de menor desarrollo relativo (medio, bajo o muy bajo) o de una zona urbana marginal, salvo casos excepcionales a juicio del Consejo Directivo, previo análisis del Departamento de Crédito.
-4. Que presente una declaración jurada en la que manifieste que no tiene posibilidad alguna de aportar más garantía que la ofrecida.
-5. Que la solicitud sea para el nivel de pregrado y grado en Costa Rica.
-El Consejo Directivo establece en el Plan Anual de Crédito, un porcentaje de la cartera de préstamos que se puede autorizar con garantías inferiores y los mecanismos de aplicación correspondiente.
+ARTÍCULO 38: ACEPTACION DEL SOLICITANTE COMO GARANTE DE SU PROPIO CRÉDITO
+El solicitante de financiamiento puede ser garante de su propio crédito cuando cumpla con las siguientes condiciones:
+a. Que los estudios se realicen en Costa Rica. Se aceptará también programas en el exterior cuando se realicen en la modalidad virtual, pero en ambos casos que los estudios permitan al prestatario mantener sus condiciones laborales.
+b. Que el monto solicitado no supere el tope establecido para créditos en los cuales se acepta un solo fiador asalariado, según el Plan Anual de Gestión de Crédito.
+c. Que sea asalariado, con ingreso mensual bruto igual o superior al doble del salario menor establecido por el Consejo Nacional de Salarios y que el salario esté libre de embargos.
+d. Que cubra con el salario bruto al menos el 10% del monto de la solicitud de préstamo.
+e. Que tenga al menos un año de laborar con el mismo patrono.
+f. Que no otorgue fianza en otra operación de CONAPE.
+g. Que el salario líquido sea igual o mayor del monto estimado de la cuota del préstamo.
+(Corrida su numeración mediante sesión N° 13-2018 del 16 de abril del 2018 que lo traspasó del antiguo 39 al 38. Lo anterior ya que en dicha sesión se ordena derogar el artículo 29 original y correr la numeración de los siguientes)
+(Así reformado mediante sesión N° 13-2018 del 16 de abril del 2018)

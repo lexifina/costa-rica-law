@@ -15,3 +15,4 @@ Reglamento de Crédito de la Comisión Nacional de Préstamos para la Educación
 | --- | --- | --- |
 | 1 | 2014-07-30 | la propia norma |
 | 2 | 2016-12-12 | Reglamento 45 (2016-12-12) |
+| 3 | 2018-04-16 | Reglamento 13 (2018-04-16) |

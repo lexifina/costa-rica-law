@@ -1,1 +1,1 @@
-Artículo 76.—Vigencia. Este Reglamento de Crédito rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 76.—Vigencia. (El texto del presente artículo puede ser consultado en el artículo 75. Lo anterior ya que en sesión N° 13-2018 del 16 de abril del 2018 se ordena derogar el artículo 29 original y correr la numeración de los siguientes)

@@ -1,1 +1,2 @@
-Artículo 75.—Derogatoria. El presente reglamento deroga el Reglamento General de Crédito aprobado por el Consejo Directivo en sesión N° 20-5-2011, artículo 7, de fecha 31 de mayo de 2011 y publicado en La Gaceta N° 122, del 24 de junio de 2011.
+Artículo 75.-Vigencia. Este Reglamento de Crédito rige a partir de su publicación en el Diario Oficial La Gaceta.
+(Corrida su numeración mediante sesión N° 13-2018 del 16 de abril del 2018 que lo traspasó del antiguo 76 al 75. Lo anterior ya que en dicha sesión se ordena derogar el artículo 29 original y correr la numeración de los siguientes)

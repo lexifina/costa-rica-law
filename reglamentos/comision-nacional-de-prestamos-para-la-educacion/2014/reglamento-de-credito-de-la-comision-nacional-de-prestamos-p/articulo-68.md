@@ -1,3 +1,2 @@
-CAPÍTULO VII
-Variaciones en las condiciones crediticias
-Artículo 68.—Resolución por medio de acuerdo administrativo de cambios en las condiciones crediticias. La Sección de Desembolsos y Control de Crédito, por medio de sus profesionales o jefatura, resolverá mediante Acuerdo Administrativo, las situaciones crediticias establecidas en el Anexo 17 y que presente el prestatario por escrito.
+Artículo 68.-Autorización al prestatario para tramitar la solicitud de ampliación del monto del préstamo. La Sección de Desembolsos por medio de sus profesionales o jefatura autoriza o no, por medio de un Acuerdo Administrativo, el trámite de la Solicitud de Ampliación del monto del préstamo, en las situaciones establecidas en el Anexo 18.
+(Corrida su numeración mediante sesión N° 13-2018 del 16 de abril del 2018 que lo traspasó del antiguo 69 al 68. Lo anterior ya que en dicha sesión se ordena derogar el artículo 29 original y correr la numeración de los siguientes)

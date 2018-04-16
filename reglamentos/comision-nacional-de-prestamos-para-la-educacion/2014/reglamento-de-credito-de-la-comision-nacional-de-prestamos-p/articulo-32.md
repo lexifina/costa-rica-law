@@ -1,5 +1,3 @@
-Artículo 32.—Análisis de la solicitud de préstamo para pregrado, grado y posgrado en el exterior y posgrados en Costa Rica. Para estudios de pregrado, grado y posgrado en el exterior y posgrado en Costa Rica, el Departamento de Crédito analiza y calcula la disponibilidad financiera del solicitante comparando:
-1. Los totales de ingresos y egresos durante el período de estudios.
-2. El tope máximo anual que CONAPE concede para ese nivel de estudios y
-3. Los costos totales del proyecto académico.
-Al ingreso bruto del núcleo familiar se le aplican las deducciones autorizadas en este Reglamento.
+Artículo 32.-Desestimación de la solicitud de préstamo. La Sección de Gestión y Análisis de Crédito desestima la solicitud de préstamo al estudiante que no haya completado los requisitos o documentos adicionales, que se le haya solicitado en un plazo de 10 días hábiles transcurridos a partir de la fecha de la comunicación respectiva.
+Cuando el estudiante gestione la solicitud de préstamo por otros medios tecnológicos de información y comunicación habilitados en CONAPE, dispone de un plazo de 10 días hábiles para presentar la documentación física, caso contrario, se desestima la solicitud.
+(Corrida su numeración mediante sesión N° 13-2018 del 16 de abril del 2018 que lo traspasó del antiguo 33 al 32. Lo anterior ya que en dicha sesión se ordena derogar el artículo 29 original y correr la numeración de los siguientes)

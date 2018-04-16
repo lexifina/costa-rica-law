@@ -1,3 +1,3 @@
-Artículo 49.—Póliza de incendio y terremoto de edificaciones dadas en garantía hipotecaria.
-a. CONAPE exigirá al solicitante que asegure y presente el documento respectivo de la póliza de incendio y terremoto sobre las edificaciones, cuando el valor del terreno ofrecido en garantía hipotecaria, sea menor a los porcentajes establecidos en este reglamento.
-b. Dicha póliza debe cubrir el inmueble dado en garantía, salvo casos excepcionales que analiza y recomienda el Comité de Crédito ante el Consejo Directivo de CONAPE
+Artículo 49.-Garantía de título valor. CONAPE puede aceptar como garantía de un préstamo, mediante endoso o cesión a su favor títulos valores emitidos por instituciones estatales, bancos estatales, mutuales, el Banco Popular y Desarrollo Comunal y otros bancos del Sistema Bancario Nacional, a juicio del Consejo Directivo.
+El monto de los títulos valores ofrecidos en garantía, debe cubrir al menos el 150% del monto del préstamo aprobado.
+(Corrida su numeración mediante sesión N° 13-2018 del 16 de abril del 2018 que lo traspasó del antiguo 50 al 49. Lo anterior ya que en dicha sesión se ordena derogar el artículo 29 original y correr la numeración de los siguientes)

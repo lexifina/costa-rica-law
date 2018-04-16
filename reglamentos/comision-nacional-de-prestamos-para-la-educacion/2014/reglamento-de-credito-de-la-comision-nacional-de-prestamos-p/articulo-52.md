@@ -1,7 +1,10 @@
-CAPÍTULO V
-Formalización del contrato de crédito para
-estudios, obligaciones y sanciones
-ARTÍCULO 52: FIRMA DEL CONTRATO DE CREDITO PARA ESTUDIOS El prestatario, sus fiadores, o los apoderados legales, deben firmar el Contrato de Crédito para Estudios el cual es un Título Ejecutivo, de acuerdo con el artículo 24 de la Ley 6041 y así reconocido por las partes. Por tanto, produce acción ejecutiva para exigir a los obligados, de manera solidaria, el cumplimiento de los compromisos adquiridos y está sometido a las disposiciones legales que le sean aplicables.
-Cuando el prestatario sea menor de edad, el contrato debe ser firmado por él, sus fiadores y adicionalmente por el padre o la madre o su tutor legal.
-Cuando el prestatario cumple la mayoría de edad, debe presentar original de la cédula de identidad y firmar una adenda como ratificación al Contrato de Crédito para Estudios.
-(Así reformado en sesión N° 45 del 12 de diciembre de 2016)
+Artículo 52.- MONTO DEL CONTRATO DE CRÉDITO PARA ESTUDIOS
+El monto del préstamo por el que se firma el Contrato de Crédito para Estudios, incluye la suma del principal aprobado, más un 25% cuando el período de estudios es igual o menor a 42 meses o de un 40% si el período de estudios es superior a 42 meses, con el fin de que al momento de dar inicio a la amortización del préstamo, se efectúe la liquidación de la deuda, la cual incluye:
+a. Monto de los desembolsos
+b. Intereses sobre saldos desembolsados.
+c. Comisión de crédito por concepto de gastos administrativos.
+d. Costo de póliza sobre saldos deudores.
+Por medio de la firma del Contrato de Crédito para Estudios, deudor y fiadores autorizan expresamente a CONAPE a efectuar la liquidación mencionada, con el fin de contar con el monto real y definitivo del principal que deben cancelar.
+En caso de que la liquidación exceda el monto del contrato, deudor y fiadores deberán suscribir los documentos que solicita CONAPE, caso contrario se dará por vencido el plazo de la obligación y se hará exigible la deuda en su totalidad.
+(Corrida su numeración mediante sesión N° 13-2018 del 16 de abril del 2018 que lo traspasó del antiguo 53 al 52. Lo anterior ya que en dicha sesión se ordena derogar el artículo 29 original y correr la numeración de los siguientes)
+(Así reformado mediante sesión N° 13-2018 del 16 de abril del 2018)

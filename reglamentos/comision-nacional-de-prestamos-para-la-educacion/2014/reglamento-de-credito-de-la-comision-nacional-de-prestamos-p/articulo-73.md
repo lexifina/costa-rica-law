@@ -1,1 +1,2 @@
-Artículo 73.—Interpretación de los artículos del reglamento. Toda interpretación de los artículos de este Reglamento de Crédito le corresponde al Consejo Directivo.
+Artículo 73.-Acuerdos administrativos del Departamento de Crédito. La actuación del Departamento de Crédito en la aplicación de este Reglamento, en lo que corresponda, se realiza mediante Acuerdo Administrativo firmado por el funcionario autorizado en cada Sección.
+(Corrida su numeración mediante sesión N° 13-2018 del 16 de abril del 2018 que lo traspasó del antiguo 74 al 73. Lo anterior ya que en dicha sesión se ordena derogar el artículo 29 original y correr la numeración de los siguientes)

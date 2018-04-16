@@ -1,1 +1,9 @@
-Artículo 37.—Verificación de lugar de trabajo del fiador. A cada fiador asalariado propuesto, los Profesionales de la Sección de Gestión y Análisis de Crédito, debe verificar - por los medios que CONAPE determine -, que el fiador propuesto labora en el lugar indicado en la constancia de salario.
+ARTÍCULO 37: GARANTIA FIDUCIARIA INSUFICIENTE
+En caso de que el solicitante o prestatario presente una garantía fiduciaria que no cumpla con los porcentajes de cobertura establecidos en el Plan Anual de Gestión de Crédito, el préstamo se puede tramitar y aprobar de manera ordinaria, siempre y cuando, el solicitante o prestatario, cumpla con las siguientes condiciones:
+1. Que el promedio académico sea igual o superior a 70 en la escala de 0 a 100.
+2. Que el ingreso líquido familiar sea insuficiente (igual o menor al salario del primer intervalo de la Tabla de Ingreso Líquido del Factor Ingreso que se encuentre vigente en CONAPE).
+3. Que el estudiante manifieste expresamente que no tiene posibilidad alguna de aportar más garantía que la ofrecida, lo cual quedará evidenciado en el expediente de la solicitud.
+4. Que la solicitud sea para el nivel de pregrado y grado en Costa Rica.
+El Consejo Directivo establece en el Plan Anual de Gestión de Crédito, un porcentaje de la cartera de préstamos que se puede autorizar con garantías inferiores y los mecanismos de aplicación correspondiente.
+(Corrida su numeración mediante sesión N° 13-2018 del 16 de abril del 2018 que lo traspasó del antiguo 38 al 37. Lo anterior ya que en dicha sesión se ordena derogar el artículo 29 original y correr la numeración de los siguientes)
+(Así reformado mediante sesión N° 13-2018 del 16 de abril del 2018)

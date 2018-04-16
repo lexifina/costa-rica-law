@@ -1,4 +1,2 @@
-CAPÍTULO VIII
-Traslado de operaciones crediticias a la fase de cobro
-Artículo 70.—Cumplimiento del prestatario del proyecto de estudios. El cumplimiento o incumplimiento por parte del prestatario del Proyecto de estudios, lo dictamina y resuelve en el período de ejecución, los Asistentes de Proceso de la Sección de Desembolsos y Control de Crédito.
-Una operación crediticia se traslada a la fase de cobro en condición de cumplimiento del contrato de crédito para estudios en las situaciones establecidas en el Anexo 19.
+Artículo 70.-Plazo para trasladar la operación crediticia a la fase de cobro. El traslado de la operación crediticia a cobro, lo realiza la Sección de Desembolsos y Control de Crédito, después de que se cumpla la fecha de vencimiento del período de estudios establecida en el Contrato de Crédito para Estudios, en un plazo máximo de 60 días calendario.
+(Corrida su numeración mediante sesión N° 13-2018 del 16 de abril del 2018 que lo traspasó del antiguo 71 al 70. Lo anterior ya que en dicha sesión se ordena derogar el artículo 29 original y correr la numeración de los siguientes)

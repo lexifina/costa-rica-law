@@ -44,6 +44,8 @@ Núcleo familiar. El número de miembros que habitan bajo el mismo techo.
 Período de amortización. Período en el que el prestatario paga la deuda.
 Período de estudios o de ejecución. Período en el que el prestatario está estudiando y el préstamo se desembolsa, de acuerdo con el avance en el programa por parte del prestatario.
 Período financiado. El período que el solicitante desea ser sujeto de financiación, dentro del período de estudios.
+Plan Anual de Gestión de Crédito. Número de préstamos y montos por colocar por niveles de estudios y demás directrices crediticias que el Consejo Directivo aprueba cada año.
+(Así adicionada la definición anterior mediante sesión N° 13-2018 del 16 de abril del 2018)
 Plan de desembolsos. Distribución de los desembolsos por ciclos lectivos desde la aprobación del préstamo hasta la conclusión de los estudios.
 Plan de inversión. Descripción y detalle por rubros de utilización del préstamo por parte del solicitante.
 Posgrado académico. Especialidad, Maestría, Doctorado.
