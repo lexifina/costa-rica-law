@@ -1,6 +1,7 @@
 CAPITULO X
 Obligaciones y prohibiciones de los servidores
-Artículo 43.—Obligaciones. Son obligaciones de los funcionarios.
+Artículo 43.—Obligaciones. Son obligaciones de las personas funcionarias.
+(Así reformado el párrafo anterior en sesión N° 4844 del 16 de abril de 2018)
 1. Prestar sus servicios en forma personal, regular y continua, cumpliendo con la jornada laboral, dentro del horario que le corresponda y en el lugar designado por la institución, según las disposiciones de este Reglamento.
 2. Iniciar el trabajo a la hora señalada por su horario de trabajo, sin que lo pueda abandonar antes de que concluya su jornada, salvo causa justificada.
 3. Ejecutar las funciones y tareas de su puesto, aplicando toda su capacidad, dedicación, diligencia y esfuerzo, de acuerdo con sus aptitudes y los términos en que fue contratado; utilizando las mejores técnicas y procedimientos conocidos.
@@ -8,7 +9,8 @@ Artículo 43.—Obligaciones. Son obligaciones de los funcionarios.
 5. Auxiliar a los demás compañeros en el ejercicio de sus funciones, aún en aquellos casos en que pertenezcan a otras dependencias, siempre que esas tareas sean compatibles con sus capacidades y destrezas y sea requerido para ello por su jefatura inmediata.
 6. Atender con diligencia, cortesía, consideración y respeto al público que acuda a las oficinas del INA, y a sus superiores y compañeros; de modo que no se originen quejas por mal servicio, desatención, maltrato o irrespeto.
 7. Vestir correctamente durante las horas de trabajo y en general, mantener una presentación adecuada según las exigencias de su puesto y el cargo desempeñado. Cuando el INA provea uniformes, su uso será obligatorio durante toda la jornada de trabajo y con sujeción a las normas que se establezcan al respecto.
-8. Guardar la más absoluta reserva sobre los asuntos confidenciales del INA, independientemente de la forma en que haya tenido conocimiento de ellos; y la discreción necesaria sobre su trabajo.
+8. Guardar la más absoluta reserva sobre los asuntos del INA que contenga información: confidencial, Información técnica de acceso restringido, información que contiene propiedad intelectual y toda aquella información que contenga datos personales de acceso restringido y/o sensible, independientemente de la forma en que haya tenido conocimiento de ellos; así como la discreción necesaria sobre su trabajo.
+(Así reformado el inciso anterior en sesión N° 4844 del 16 de abril de 2018)
 9. Denunciar ante sus superiores inmediatos o autoridades competentes, los hechos incorrectos o ilícitos de que tuviera conocimiento en virtud de sus funciones.
 10. Informar a su jefe inmediato de cualquier error, deficiencia, anomalía o falta que descubra en ocasión del cumplimiento de sus funciones, así como de todo daño causado a los bienes o intereses institucionales.
 11. Comunicar a los representantes patronales las observaciones que su experiencia y conocimiento le sugieren para mejorar su trabajo y prevenir daños o perjuicios a sus compañeros, a los usuarios y a los bienes o intereses del INA.
@@ -28,7 +30,7 @@ Artículo 43.—Obligaciones. Son obligaciones de los funcionarios.
 25. Laborar jornada extraordinaria hasta por el máximo legal cuando sea requerido para ello, y prestar auxilio en caso de siniestro o riesgo inminente para las personas o para las instalaciones del INA.
 26. Pagar inmediatamente, o suscribir un arreglo de pago, por las indemnizaciones que deba cubrir al Instituto, por la pérdida o deterioro de equipos.
 27. Presentar las liquidaciones correspondientes a gasto de viaje y compra de bienes y servicios por caja chica, dentro del plazo reglamentario establecido para cada caso; y reintegrar a la institución cualquier suma no utilizada en el objeto de gasto autorizado.
-28. Portar en forma visible la identificación proporcionada por la institución durante toda su jornada de trabajo, tanto dentro de las instalaciones del INA como fuera de ellas, cuando se desempeñe como funcionario institucional.
+28. Portar en forma visible la identificación proporcionada por la institucióndurante toda su jornada de trabajo, tanto dentro de las instalaciones del INAcomo fuera de ellas, cuando se desempeñe como funcionario institucional.
 (Así reformado el inciso anterior en sesión N° 4710 del 15 de octubre de 2015)
 29. Presentar la constancia de incapacidad ante el jefe inmediato, dentro de los dos días hábiles siguientes a la fecha en que surgió el impedimento para laborar.
 30. Obtener autorización del jefe inmediato, en caso de que requiera retirarse de su centro de trabajo.

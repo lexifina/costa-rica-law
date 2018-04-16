@@ -32,3 +32,4 @@ Reglamento Autónomo de servicio del Instituto Nacional de Aprendizaje
 | 17 | 2016-07-11 | Reglamento 4749 (2016-07-11) |
 | 18 | 2016-10-10 | Reglamento 4765 (2016-10-10) |
 | 19 | 2017-08-23 | Reglamento 4808 (2017-08-23) |
+| 20 | 2018-04-16 | Reglamento 4844 (2018-04-16) |
