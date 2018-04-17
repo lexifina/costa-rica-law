@@ -1,0 +1,1 @@
+ARTÍCULO 6- Monto a pagar por inasistencia: La ausencia injustificada a las Asambleas del Colegio será cubierta por el profesional ausente sean estas ordinarias o extraordinarias, debiendo pagarse el monto de ₡8.800,00 por cada una.

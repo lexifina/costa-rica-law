@@ -1,0 +1,1 @@
+ARTÍCULO 4- Fijación del monto de Tasas: Para efectos de este reglamento, los montos de las tasas base se establecen en colones, con base al periodo de julio a Diciembre del 2012, debiéndose ajustar los montos conforme al artículo 3 de este Reglamento.

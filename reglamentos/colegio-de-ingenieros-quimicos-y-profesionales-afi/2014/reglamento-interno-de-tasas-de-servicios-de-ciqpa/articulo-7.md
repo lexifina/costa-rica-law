@@ -1,0 +1,1 @@
+ARTÍCULO 7- Trámite de pagos: Para todos los pagos por concepto de Tasas, el Colegio emitirá un comprobante de pago, conforme a la regulación tributaria a nombre del Colegiado o de quien requiera el servicio solicitado.
