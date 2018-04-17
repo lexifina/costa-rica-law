@@ -1,21 +1,10 @@
-CAPITULO V
-De la Junta Directiva
-ARTICULO 32.- La Junta Directiva estará compuesta por los siguientes
-siete miembros: un presidente, un vicepresidente, un tesorero, un
-secretario, dos vocales y un fiscal. Habrá dos suplentes que serán
-llamados a sustituir a aquellos miembros que se separen temporal o
-definitivamente antes del cese de sus funciones, excepto al presidente y
-al vicepresidente. La Junta Directiva será integrada, preferentemente,
-por lo menos con un miembro de cada especialización profesional en
-Ciencias Económicas de las aceptadas por el Colegio.
-La elección de los miembros de la Junta Directiva se hará por simple
-mayoría, en forma independiente para el presidente, el vicepresidente y el
-fiscal, y conjuntamente para el resto de los cargos. La votación será
-secreta y directa.
-Si se produjere empate, se repetirá la votación entre los candidatos
-que hubieran obtenido el mayor número de sufragios. De persistir el
-empate, la decisión corresponderá a la suerte.
-Los miembros de la Junta Directiva durarán dos años en funciones y
-podrán ser reelegidos por un período igual, en forma consecutiva. Su
-renovación se hará preferentemente en forma parcial.
-(Así reformado mediante resolución de la Sala Constitucional N° 10975-06, de las 18:07 horas.)
+CAPÍTULO VI
+PRESIDENTE Y DEMÁS DIRECTORES
+Artículo 32- Corresponde al presidente de la Junta Directiva:
+a) Presidir las sesiones de las asambleas generales ordinarias y extraordinarias, así como las de la Junta Directiva.
+b) Coordinar la preparación del informe anual.
+c) Proponer el orden en que deban tratarse los asuntos y dirigir los debates de las sesiones.
+d) Conceder licencia por justa causa a los demás directores para no concurrir a sesiones.
+e) Integrar las comisiones que han de desempeñar funciones especiales del Colegio.
+f) Firmar con el secretario las actas de las sesiones, y con el tesorero los libramientos contra los fondos del Colegio.
+g) Convocar a sesiones extraordinarias de la Junta Directiva y presidir los actos oficiales del Colegio.

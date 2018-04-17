@@ -1,2 +1,1 @@
-ARTICULO 24.- La Asamblea General es el órgano máximo del Colegio y está compuesta por todos los miembros de la Corporación.
-(Así reformado mediante resolución de la Sala Constitucional N° 10975-06, de las 18:07 horas.)
+Artículo 24- Las convocatorias a Asamblea General ordinaria o extraordinaria se publicarán en la página electrónica del Colegio, así como por los medios electrónicos que la Junta Directiva determine, o bien, a juicio de este último órgano, se publicarán también dichas convocatorias en un diario de circulación nacional. Las convocatorias deberán contener la agenda de temas a discutir, así como el sitio, el día y la hora de la reunión. Las convocatorias deberán realizarse con una anticipación no menor de diez días hábiles.

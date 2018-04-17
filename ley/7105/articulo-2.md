@@ -1,3 +1,2 @@
-ARTICULO 2.- El Colegio tendrá personalidad jurídica propia y su
-representante legal será el presidente de la Junta Directiva. El
-domicilio legal del Colegio será la ciudad de San José.
+Artículo 2- El Colegio tendrá personalidad jurídica propia y su representante legal será el presidente de la Junta Directiva, con facultades de apoderado generalísimo con límite de suma de hasta treinta salarios base, en los términos establecidos en el artículo 2 de la Ley N.° 7337, de 5 de mayo de 1993, sin perjuicio de los poderes generales y especiales que podrán otorgarse también por acuerdo de la Junta Directiva.
+El domicilio legal del Colegio será en la provincia de San José en el cantón décimo quinto Montes de Oca; además, con el fin de lograr una cobertura nacional de los servicios que brinda la corporación, la Junta Directiva podrá crear sedes regionales en otros puntos del territorio nacional, utilizando como marco de referencia la regionalización establecida por el Ministerio de Planificación Nacional y Política Económica (Mideplán).
