@@ -1,1 +1,3 @@
-Artículo 39.—La Administración deberá asignar el presupuesto necesario para hacer frente a las erogaciones por concepto de recursos humanos, materiales, tecnológicos, de capacitación y entrenamiento, transporte y otros necesarios y suficientes para que la Auditoría Interna pueda cumplir su gestión, de conformidad con el artículo 27 de la Ley Generalde Control Interno. Dicho presupuesto deberá ser detallado por objeto del gasto de manera que se controlen la ejecución y modificaciones de los recursos presupuestados para la Auditoría Interna.
+CAPÍTULO IV
+Relaciones y coordinaciones
+Artículo 39.—El Auditor Interno tendrá la obligación de establecer y regular a lo interno de la auditoría, las pautas principales sobre las relaciones y coordinaciones de los funcionarios de su unidad con los auditados.

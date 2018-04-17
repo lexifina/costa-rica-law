@@ -1,1 +1,1 @@
-Artículo 23.—La Auditoría Interna tendrá las potestades definidas en el artículo 33 de la Ley General del Control Interno así como aquéllas que determine la normativa emitida por la Contraloría General de la República.
+Artículo 23.—La Auditoría Interna dará cumplimiento a los deberes establecidos en el artículo 32 de la Ley General del Control Interno así como aquéllas que determine la normativa emitida por la Contraloría General de la República.

@@ -1,1 +1,1 @@
-Artículo 21.—La Auditoría Interna tendrá las competencias definidas en el artículo 22 de la Ley General de Control Interno y que se establezcan en la normativa emitida por la Contraloría General de la República.
+Artículo 21.—El Auditor Interno responderá por su gestión ante el jerarca, a quien le presentará al menos una vez al año, el informe de labores previsto en el artículo 22 de la Ley General de Control Interno.

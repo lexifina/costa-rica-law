@@ -1,3 +1,5 @@
+Reglamento de organización y funcionamiento de la Auditoría Interna de BN Vital Operadora de Pensiones del Banco Nacional de Costa Rica
+(Nota de Sinalevi: Sobre este tema BN Vital, Operadora de Pensiones Complementarias S.A., aprobó un nuevo Reglamento de organización y funcionamiento de la auditoría Interna del BN Vital Operadora de Pensiones Complementarias S. A., en sesión N° 502 del 14 de diciembre de 2021)
 BN VITAL OPERADORA DE PENSIONES
 COMPLEMENTARIAS DEL BANCO
 NACIONAL DE COSTA RICA
@@ -10,6 +12,7 @@ El Capítulo II comprende la estructura organizativa de la auditoría interna as
 En el Capítulo III se desarrollan los aspectos relacionados con el ámbito de acción y las competencias de la auditoría interna de conformidad con la normativa legal, reglamentaria y técnica aplicable.
 El Capítulo IV se refiere a las relaciones y coordinaciones.
 El Capítulo V se refiere a las disposiciones finales de la reglamentación, en cuanto a la derogatoria del Reglamento actual y la vigencia del presente.
-CAPITULO I
+(Nota de Sinalevi: La reforma practicada a esta norma mediante sesión N° 409 del 17 de abril del 2018, publicada en La Gaceta N° 134 del 24 de julio del 2018, posteriormente fue derogada por el artículo 23 del Reglamento de organización y funcionamiento de la auditoría Interna del BN Vital Operadora de Pensiones Complementarias S. A., aprobado en sesión N° 502 del 14 de diciembre de 2021. Se advierte que dicha reforma no se ha practicado a esta norma ya que el ente emisor no indica que como consecuencia de dicha reforma deba volver esta norma a su estado anterior a dicha afectación)
+CAPÍTULO I
 Naturaleza
-Artículo 1º—El presente Reglamento define las competencias, funciones y potestades de la Auditoría Interna de BN Vital Operadora de Pensiones Complementarias S. A.
+Artículo 1°—El presente Reglamento define las competencias, funciones y potestades de la Auditoría Interna de BN Vital Operadora de Pensiones Complementarias S. A.

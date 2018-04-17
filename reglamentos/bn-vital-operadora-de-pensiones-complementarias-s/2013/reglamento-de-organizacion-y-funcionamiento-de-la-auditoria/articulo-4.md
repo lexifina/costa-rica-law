@@ -1,12 +1,19 @@
-Artículo 4º—La Auditoría Interna se organizará y funcionará de acuerdo con lo que establezca el Auditor Interno, de conformidad con las, normas, disposiciones, políticas y directrices que emita la Contraloría General de la República y otros órganos que regulen la profesión, las cuales serán de acatamiento obligatorio y que de manera general, están contenidas en:
-a) Ley General de la Administración Pública Nº 6227.
+Artículo 4°—La Auditoría Interna se organizará y funcionará de acuerdo con lo que establezca el Auditor Interno, de conformidad con las, normas, disposiciones, políticas y directrices que emita la Contraloría General de la República y otros órganos que regulen la profesión, las cuales serán de acatamiento obligatorio y que de manera general, están contenidas en:
+a) Ley General de la Administración Pública N° 6227.
 b) Ley Orgánica de la Contraloría General de la República N° 7428.
-c) Ley General de Control Interno Nº 8292.
-d) Ley contra la Corrupción y el Enriquecimiento Ilícito de la Función Pública Nº 8422.
+c) Ley General de Control Interno N° 8292.
+d) Ley contra la Corrupción y el Enriquecimiento Ilícito de la Función Pública N° 8422.
 e) Reglamento de Organización y Funcionamiento de la Auditoría Interna de BN Vital Operadora de Pensiones Complementarias S. A.
 f) Normas de Control Interno para el Sector Público “N-2-2009-CO-DFOE”.
 g) Normas para el Ejercicio de la Auditoría Interna en el Sector Público “R-DC-119-2009”.
-h) Directrices que deben observar las auditorías internas para la verificación del cumplimiento y disposiciones emitidas por la Contraloría General de la República “D-3-2007-CO-DFOE”.
-i) Normas Internacionales de Auditoría.
-j) Otras disposiciones, normas, políticas y directrices emitidas por la Contraloría General de la República.
-k) Otras disposiciones internas de BN Vital Operadora de Pensiones Complementarias S. A. y de la Auditoría Interna.
+h) Normas Internacionales de Auditoría.
+i) Normas Generales de Auditoría para el Sector Público, “RDC-64-2014”.
+j) Normas Técnicas para la Gestión y el Control de las Tecnologías de Información, “R-CO-26-2007”.
+k) Lineamientos generales para el cumplimiento de las disposiciones y recomendaciones emitidas por la Contraloría General de la República en sus informes de auditoría “R-DC- 144-2015”.
+l) Lineamientos sobre los requisitos de los cargos de auditor y subauditor Internos, las condiciones para las gestiones de nombramiento, suspensión y destitución de dichos cargos y la aprobación del reglamento de organización y funcionamiento de las auditorías internas del Sector Público “L-1-2006-CO-DACJ”.
+m)Directrices para la solicitud y asignación de recursos a las auditorías internas “R-DC-010-2015”.
+n) Directrices sobre las regulaciones administrativas aplicables a los funcionarios de las auditorías internas del sector público “D-2-2015-DC-DFOE”.
+o) Directrices sobre la comunicación de Relaciones de Hechos y Denuncias Penales por las Auditorías Internas del Sector Público “D-1-2008-CO-DFOE”.
+p) Otras disposiciones, normas, políticas y directrices emitidas por la Contraloría General de la República.
+q) Otras disposiciones internas de BN Vital Operadora de Pensiones Complementarias S. A. y de la Auditoría Interna.
+r) Otras disposiciones, normas, políticas y directrices emitidas por la Superintendencia de Pensiones (SUPEN).

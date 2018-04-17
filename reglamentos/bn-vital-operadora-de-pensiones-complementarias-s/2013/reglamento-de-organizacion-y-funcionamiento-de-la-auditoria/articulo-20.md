@@ -1,1 +1,1 @@
-Artículo 20.—El auditor interno responderá por su gestión ante el jerarca, a quien le presentará al menos una vez al año, el informe de labores previsto en el artículo 22 de la Ley General de Control Interno.
+Artículo 20.—En materia de las responsabilidades del Auditor Interno y la Junta Directiva de BN Vital Operadora de Pensiones Complementarias S. A., respecto al Reglamento de Organización y Funcionamiento de la Auditoría Interna, se regirán por lo establecido en las disposiciones, normas, políticas y directrices que emita la Contraloría General de la República.

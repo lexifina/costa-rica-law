@@ -1,2 +1,4 @@
-Artículo 34.—La Auditoría Interna dispondrá de un programa de seguimiento de las recomendaciones aceptadas por la administración activa, que hayan sido formuladas en sus memorandos u oficios e informes de auditoría o estudios especiales de auditoría y en los de las firmas independientes de contadores públicos autorizados, con la finalidad de verificar si esas recomendaciones aceptadas han sido puestas en práctica.
-También deberá dársele seguimiento a las disposiciones y recomendaciones emitidas por la Contraloría General de la República y demás instituciones de control y fiscalización que correspondan.
+Artículo 34.—Cuando los informes de auditoría contengan recomendaciones dirigidas a los titulares subordinados, se procederá de acuerdo con el artículo 36 de la Ley General de Control Interno.
+En caso de contener recomendaciones dirigidas al jerarca, el proceder se realizará de conformidad con el artículo 37 de esa Ley.
+El incumplimiento de los plazos señalados será causal de responsabilidad administrativa conforme lo dispuesto en los artículos 39 y 40 de la Ley General de Control de Interno.
+En caso que se presenten discrepancias, se procederá con lo establecido en el artículo 38 de la Ley General de Control de Interno.

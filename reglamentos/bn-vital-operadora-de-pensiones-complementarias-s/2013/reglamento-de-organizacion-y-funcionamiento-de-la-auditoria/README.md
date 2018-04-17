@@ -14,3 +14,4 @@ Reglamento de organización y funcionamiento de la Auditoría Interna de BN Vita
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-02-15 | la propia norma |
+| 2 | 2018-04-17 | Reglamento 409 (2018-04-17) |

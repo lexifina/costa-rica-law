@@ -1,3 +1,2 @@
-CAPITULO V
-Disposiciones finales
-Artículo 42.—Se deroga el Reglamento de Organización y Funcionamiento de la Auditoría Interna de BN Vital Operadora de Pensiones Complementarias S. A., publicado en el Diario Oficial La Gaceta Nº 160 del 20 de agosto del 2008.
+Artículo 42.—El Auditor Interno tendrá la facultad de proveer e intercambiar información con la Contraloría General de la República, así como con otros entes y órganos de control que conforme a la ley correspondan y en el ámbito de sus competencias.
+Sin perjuicio de la coordinación interna que al respecto deba darse, sin que ello implique limitación para la efectiva actuación de la Auditoría Interna.
