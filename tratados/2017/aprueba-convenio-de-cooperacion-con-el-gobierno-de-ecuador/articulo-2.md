@@ -1,0 +1,4 @@
+ARTÍCULO 2- Cláusula Interpretativa
+La República de Costa Rica interpreta el artículo 12 del Convenio de Cooperación entre el Gobierno de la República de Costa Rica y el Gobierno de la República del Ecuador para la protección, la conservación, la recuperación y la restitución de los bienes del patrimonio cultural, que hayan sido materia de robo, hurto, saqueo, transporte, tráfico o comercialización ilícitos, en el sentido de que, para el caso de Costa Rica, cualquier modificación sustancial de las normas de dicho Convenio deberá cumplir con el procedimiento establecido en el inciso 4) del artículo 121 y el inciso 10) de los artículos 129 y 140 de la Constitución Política.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, a los veintiún días del mes de noviembre del año dos mil diecisiete.
