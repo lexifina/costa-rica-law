@@ -1,0 +1,4 @@
+ARTÍCULO 12
+Modificaciones
+El presente Convenio podrá ser modificado por consentimiento mutuo de los Estados Partes, a petición de uno de ellos, formalizado por escrito. Las modificaciones entrarán en vigor treinta (30) días después, contados a partir de la última notificación por escrito.
+(Nota de Sinalevi: Mediante el artículo 2° del Tratado Internación N° 9501 del 21 de noviembre del 2017 “Aprueba Convenio de Cooperación con el Gobierno de Ecuador para la protección, conservación, recuperación, restitución de bienes del Patrimonio Cultural que hayan sido materia de robo, hurto, saqueo, transporte, tráfico/ y comercialización ilícitos”, se interpretó este numeral en el sentido de que: “… para el caso de Costa Rica, cualquier modificación sustancial de las normas de dicho Convenio deberá cumplir con el procedimiento establecido en el inciso 4) del artículo 121 y el inciso 10) de los artículos 129 y 140 de la Constitución Política”.)
