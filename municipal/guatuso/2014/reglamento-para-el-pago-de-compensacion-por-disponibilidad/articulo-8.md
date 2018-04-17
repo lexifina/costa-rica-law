@@ -1,1 +1,0 @@
-Artículo 8°—Del incumplimiento: El incumplimiento de las disposiciones que se rigen el presente reglamento por parte del servidor obligado a la disponibilidad, tendrá como consecuencia el reintegro de las sumas que haya recibido por ese concepto, a partir de la fecha en que incurrió en el incumplimiento, con independencia de las sanciones que correspondan.
