@@ -1,0 +1,1 @@
+Transitorio Único.—Será responsabilidad de cada dependencia pública, la transformación de datos referenciados, atinentes a su competencia, del anterior sistema de referencia horizontal CR05 al nuevo sistema de referencia horizontal CR-SIRGAS.

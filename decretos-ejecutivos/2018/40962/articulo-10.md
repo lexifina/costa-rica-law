@@ -1,0 +1,1 @@
+Artículo 10.—El Instituto Geográfico Nacional se encargará de publicar oficialmente a través del Diario Oficial La Gaceta, y el geoportal del Sistema Nacional de Información Territorial (SNIT) los parámetros de actualización del sistema de referencia horizontal CR-SIRGAS en el tiempo, conforme se considere, para los fines geodésicos, topográficos, cartográficos y catastrales.

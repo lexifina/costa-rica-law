@@ -1,0 +1,1 @@
+Artículo 7º—Forman parte de la Red Geodésica Nacional de referencia horizontal de Primer Orden y sus densificaciones, las estaciones GNSS activas materializadas en Costa Rica mediante la red de estaciones GNSS del Registro Nacional administrada por el Instituto Geográfico Nacional que integran el Marco Geodésico Dinámico Nacional.

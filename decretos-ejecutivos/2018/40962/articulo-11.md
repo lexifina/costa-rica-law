@@ -1,0 +1,1 @@
+Artículo 11.—Para los diferentes fines de las delimitaciones oficiales y las coberturas de información y mapas que las representan, se establece la aplicación del sistema de referencia horizontal CR05, y su actualización a CR-SIRGAS.
