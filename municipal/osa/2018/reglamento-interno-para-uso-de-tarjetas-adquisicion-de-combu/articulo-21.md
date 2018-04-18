@@ -1,0 +1,1 @@
+Artículo 21.—Ningún usuario podrá presentarse a un centro de servicio, a solicitar el suministro de combustible con la tarjeta de pago de otro funcionario, ya que ésta tiene carácter personal, de igual forma se prohíbe el suministro de combustible con la tarjeta de pago para un vehículo distinto del asignado al conductor.

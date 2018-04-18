@@ -1,0 +1,1 @@
+Artículo 7º—La tarjeta de pago tendrá las siguientes características: intransferible, es de uso exclusiva de la Municipalidad de Osa. No podrá darse a otra persona para ser usada en nombre del usuario; no podrá utilizarse como medio de garantía u otra condición que permita ventajas de crédito.

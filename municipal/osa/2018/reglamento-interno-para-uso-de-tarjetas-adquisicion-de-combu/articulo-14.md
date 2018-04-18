@@ -1,0 +1,1 @@
+Artículo 14.—Para efecto de liquidaciones la unidad encargada de la administración de combustible, deberán remitir un informe al Departamento de Tesorería aportando todos los documentos detallados, conteniendo las facturas originales que respalden la compra de combustibles. Del cual la Tesorería realizará y aplicará el procedimiento respectivo para el pago correspondiente.

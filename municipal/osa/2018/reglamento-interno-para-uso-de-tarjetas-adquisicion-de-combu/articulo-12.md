@@ -1,0 +1,1 @@
+Artículo 12.—Es responsabilidad del usuario al hacer uso de la tarjeta, entregar, recibir y custodiar la factura por la adquisición de combustibles, con el respectivo baucher (comprobante de recibo por uso de la tarjeta).
