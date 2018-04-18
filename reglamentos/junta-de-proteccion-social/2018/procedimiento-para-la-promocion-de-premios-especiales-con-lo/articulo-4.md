@@ -1,0 +1,5 @@
+Artículo 4º—Detalle de los premios. Los premios especiales “Sorteos de Lotería Popular” consisten en:
+• 10 ganadores semanales de colección de 10 carritos promocionales a control remoto.
+• 10 ganadores semanales de 10 enteros de un mismo sorteo ordinario vigente de Lotería Popular.
+• 2 ganadores semanales de ¢1.000.000,00 + Colección de 10 carritos promocionales a control remoto.
+• 4 Ganadores al finalizar la promoción de ¢5.000.000,00 + Colección de 10 carritos promocionales a control remoto. Dichos premios serán sorteados a través de tómbola electrónica, se realizarán sorteos semanales y uno al finalizar la promoción, entre las personas que hayan efectuado la activación de lotería de los sorteos de Lotería Popular que se realicen en el período comprendido del 03 de abril del 2018 al 08 de junio del 2018, exceptuando los sorteos de 5 fracciones y Gran Chance a realizarse en las siguientes fechas: 27 de abril del 2018, 02 de mayo del 2018, 29 de mayo del 2018, 01 de junio del 2018, conforme la mecánica de participación definida para este sorteo que se indica en el artículo 3º de este procedimiento.
