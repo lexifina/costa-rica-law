@@ -21,3 +21,4 @@ Reglamento de Control Migratorio
 | 6 | 2015-12-11 | Decreto Ejecutivo 39398 (2015-12-11) |
 | 7 | 2016-12-15 | Decreto Ejecutivo 40073 (2016-12-15) |
 | 8 | 2017-12-14 | Decreto Ejecutivo 40791 (2017-12-14) |
+| 9 | 2018-04-18 | Decreto Ejecutivo 41033 (2018-04-18) |
