@@ -1,0 +1,4 @@
+Artículo 20.—De la colaboración institucional y delegación de funciones. De conformidad con lo dispuesto en el inciso I) del artículo 4 de la Ley del Régimen de Zonas Francas, Ley N° 7210,
+las instituciones públicas que intervengan en los diferentes trámites que se realicen en la VUI, relacionados con la instalación formal, operación y funcionamiento de las empresas en Costa Rica, estarán obligadas a prestar su colaboración a PROCOMER y deberán acreditar a representantes con suficientes facultades de decisión.
+Estas entidades podrán delegar sus atribuciones, en forma temporal o permanente, en los funcionarios de la VUI.
+Para tales efectos, dichas instituciones podrán celebrar convenios de cooperación con PROCOMER, en los cuales se deberán detallar las condiciones, compromisos y obligaciones, que serán asumidos por cada parte.

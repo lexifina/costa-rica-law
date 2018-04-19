@@ -1,0 +1,1 @@
+Artículo 5º—De la coordinación. La coordinación del Sistema de Ventanilla Única de Inversión se llevará a cabo por medio de un Consejo Director, denominado Consejo Director VUI, integrado por representantes de alto nivel de las instituciones y organismos indicados en el artículo 8 del presente reglamento.
