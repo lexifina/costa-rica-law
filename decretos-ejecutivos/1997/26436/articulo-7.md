@@ -1,17 +1,3 @@
-Artículo 7°-En los Colegios Humanísticos, se seguirá el siguiente plan mínimo de estudios, que comprende dos conjuntos o áreas de asignaturas: las del Área General y las del Área de Profundización, conforme a la siguiente organización:
-Área general | Área de profundización
-Español (5 lecciones) (1) | Idioma Inglés (2 lecciones) (2)
-Matemática (5 lecciones) | Historia y sociedad mundiales (2 lecciones)
-Física (3 lecciones) lecciones) | Lengua Española y Literatura (2 lecciones)
-Química (3 lecciones) | Pensamiento Contemporáneo (2 lecciones)
-Biología (3 lecciones) |
-Educación técnica (2 lecciones) |
-Estudios Sociales (5 lecciones) |
-Educación cívica (2 lecciones) |
-Inglés (5 lecciones) |
-Expresión artística (3 lecciones) |
-Educación religiosa (1 lección) |
-Educación física (2 lecciones) |
-Filosofía (3 lecciones) |
-(1) En todos los casos, corresponde a número de lecciones por semana
-(2) Inicialmente, se impartirá el idioma inglés. Posteriormente se podrá incluir el Francés y otros idiomas.
+Artículo 7.—En el sistema de colegios humanísticos, se seguirá el siguiente plan mínimo de estudios que comprende dos conjuntos o áreas de asignaturas. El Área General, que concuerda con los contenidos establecidos en el Plan Nacional del Ministerio de Educación (MEP) para la educación diversificada y rige para todos los colegios públicos académicos formales del país, así como el Área de Profundización conforme a la malla curricular del Centro de Estudios Generales de la Universidad Nacional (CEG).
+Así mismo el colegio complementará el área de profundización con materias de inglés y francés como una forma de enriquecer y fortalecer los idiomas en los educandos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41138 19 de abril del 2018)
