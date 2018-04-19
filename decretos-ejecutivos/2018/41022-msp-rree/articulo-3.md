@@ -1,0 +1,1 @@
+Artículo 3°—Se insta a todas las entidades del Sector Público a que en el marco de las potestades legales y reglamentarias, otorguen al Programa el apoyo que este requiera para el logro de sus objetivos.
