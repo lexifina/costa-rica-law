@@ -1,0 +1,1 @@
+Artículo 30.—Suspensión de la tramitación de una gestión. La Contraloría de Servicios suspenderá la instrucción o trámite de una gestión cuando tenga conocimiento de que es objeto de investigación por parte de otra instancia administrativa o judicial competente para resolver, o bien, por solicitud de la persona usuaria.

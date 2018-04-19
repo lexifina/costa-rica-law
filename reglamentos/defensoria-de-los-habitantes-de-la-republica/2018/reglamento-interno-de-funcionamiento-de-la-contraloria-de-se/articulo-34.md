@@ -1,0 +1,1 @@
+Artículo 34.—Asignación de recursos. Para el cumplimiento de sus funciones, el o la Defensora deberá dotar a la Contraloría de Servicios de los recursos necesarios que garanticen su óptimo funcionamiento. Asimismo, con el fin de garantizar la continuidad y calidad en el servicio que ésta brinda, le dotará de un mínimo de dos funcionarios, incluida el o la Contralora de Servicios.

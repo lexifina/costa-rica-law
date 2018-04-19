@@ -1,0 +1,1 @@
+Artículo 32.—Del seguimiento a las recomendaciones que emite la Contraloría de Servicios. La Contraloría de Servicios podrá realizar todos aquellos trámites y procedimientos necesarios para vigilar y garantizar el cumplimiento de las recomendaciones contenidas en los informes que emita y requieran seguimiento, conforme el presente reglamento y demás disposiciones vigentes.

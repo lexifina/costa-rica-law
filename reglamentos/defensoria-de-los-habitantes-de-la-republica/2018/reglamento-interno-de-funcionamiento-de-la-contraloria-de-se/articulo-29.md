@@ -1,0 +1,1 @@
+Artículo 29.—Del cierre de la investigación. Debidamente atendido el asunto o solucionado el problema planteado por la persona interesada, la Contraloría de Servicios procederá con el cierre de su intervención, dejando la debida constancia en el registro y disponiendo su archivo.

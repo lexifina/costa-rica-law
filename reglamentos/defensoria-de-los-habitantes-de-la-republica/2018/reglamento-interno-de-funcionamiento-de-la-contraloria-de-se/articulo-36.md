@@ -1,0 +1,1 @@
+Artículo 36.—De la aplicación supletoria de normativa vigente. Los aspectos que no se encuentren contemplados en el presente reglamento, serán regulados de manera supletoria por las disposiciones de la Ley Reguladora del Sistema Nacional de Contralorías de Servicios y su Reglamento.

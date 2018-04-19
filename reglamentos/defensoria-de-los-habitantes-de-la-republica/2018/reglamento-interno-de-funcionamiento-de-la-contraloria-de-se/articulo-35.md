@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Disposiciones finales
+Artículo 35.—De la presentación de informes de labores por parte de la Contraloría de Servicios ante el Defensor o Defensora de los Habitantes. Para conocimiento del Defensor o Defensora, la Contraloría de Servicios remitirá un informe de los casos atendidos y resueltos al final de cada mes. Asimismo, deberá presentar el informe anual de labores y demás instrumentos ante el o la Jerarca de la institución para su aval, así como ante la Secretaría Técnica del Sistema Nacional de Contralorías de Servicios, conforme lo establecido en la Ley Reguladora del Sistema Nacional de Contralorías de Servicios.
+La omisión en la presentación de los informes señalados, acarreará responsabilidad administrativa disciplinaria, según las circunstancias que deberán conocerse en respeto de las garantías del debido proceso.

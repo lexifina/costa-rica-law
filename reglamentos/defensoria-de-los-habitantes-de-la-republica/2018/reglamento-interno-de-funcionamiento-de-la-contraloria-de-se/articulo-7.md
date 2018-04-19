@@ -1,0 +1,2 @@
+Artículo 7º—Obligación de colaboración. Todas las servidoras y servidores de la institución, direcciones, departamentos, unidades u oficinas administrativas, sedes regionales, así como el Mecanismo Nacional de Prevención de la Tortura, deberán prestar su colaboración en forma prioritaria a la Contraloría de Servicios cuando ésta lo requiera en el ejercicio de sus funciones.
+La inobservancia injustificada de este deber de colaboración supone la comisión de una falta grave a las obligaciones estatutarias del servidor o servidora para con la Defensoría de los Habitantes.
