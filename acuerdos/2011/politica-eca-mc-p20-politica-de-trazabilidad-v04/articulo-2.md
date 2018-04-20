@@ -1,2 +1,0 @@
-2. ALCANCE
-Esta política de trazabilidad en mediciones aplica a todos los organismos de evaluación de la conformidad acreditados o en proceso de evaluación y acreditación que requieren mediciones trazables al Sistema Internacional de Unidades: laboratorios de calibración y/o ensayo, laboratorios clínicos. En las actividades de inspección y certificación de producto es obligatorio el cumplimiento del presente documento si existen ensayos o calibraciones involucradas en dichas actividades.

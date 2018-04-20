@@ -1,2 +1,0 @@
-11. REQUISITOS DE TRAZABILIDAD PARA ORGANISMOS DE INSPECCIÓN
-11.1 Cuando un organismo de inspección identifique un equipo crítico, es decir los equipos de medición que tienen una influencia significativa en los resultados de la inspección, se debe aplicar los requisitos establecidos en los apartados 7, 8, 9 o 10 de esta política, según corresponda, para obtener una adecuada trazabilidad para dichos equipos.

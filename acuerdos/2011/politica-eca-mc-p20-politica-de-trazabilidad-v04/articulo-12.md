@@ -1,5 +1,0 @@
-12. TRAZABILIDAD A TRAVÉS DE MATERIALES DE REFERENCIA (MR) Y MATERIALES DE REFERENCIA CERTIFICADOS (MRC)
-12.1 Los valores de MRC producidos por un INM, que se encuentre incorporado y con su CMC publicada en el BIPM KCDB, o producidos por un Proveedor de Materiales de Referencia, acreditado bajo la guía ISO 34:2009, son considerados que tienen trazabilidad debidamente establecida.
-12.2 Los valores asignados para MRC, por entidades que se encuentren dentro de la base de datos del JCTLM BIPM, son considerados como MRC con trazabilidad debidamente establecida.
-12.3 Otros MR y MRC, diferentes a los indicados en los aparatos 11.1 y 11.2, producidos por otros proveedores de Materiales de Referencia, se consideran como suministros críticos, por lo que el laboratorio debe aplicar lo indicado en el requisito 4.6.2 de las normas INTE-ISO/IEC 17025:2005 e INTE-ISO 15189:2012, según corresponda.
-12.4 En el caso de uso de materiales de referencia por parte de organismos de inspección, se aplica lo indicado en la clausula 6.2.10 de la norma INTE-ISO/IEC 17020:2012
