@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-P20 Política de Trazabilidad Versión 05
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-07-23 | la propia norma |
+| 2 | 2018-04-20 | Acuerdo 0 (2018-04-20) |
