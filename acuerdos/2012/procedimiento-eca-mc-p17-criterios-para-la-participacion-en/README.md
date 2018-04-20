@@ -18,3 +18,4 @@ Procedimiento ECA-MC-P17 Criterios para la Participación en Ensayos/Pruebas de 
 | 3 | 2014-03-24 | Acuerdo 0 (2014-03-24) |
 | 4 | 2015-07-16 | Acuerdo 0 (2015-07-16) |
 | 5 | 2016-02-04 | Acuerdo 0 (2016-02-04) |
+| 6 | 2018-04-20 | Acuerdo 0 (2018-04-20) |
