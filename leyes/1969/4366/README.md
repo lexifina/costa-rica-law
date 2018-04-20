@@ -1,6 +1,6 @@
 # Ley sobre División Territorial Administrativa
 
-Ley N° 4366 del 1969-08-05. SINALEVI, ficha 35441: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35441&param2=105120&param3=1>.
+Ley N° 4366 del 1969-08-05. SINALEVI, ficha 35441: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35441&param2=126882&param3=1>.
 
 Publicada en La Gaceta N° 190 del 1969-08-23.
 
@@ -17,3 +17,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 7 de 12 | 1974-02-04 | Ley 5373 | 1973-10-19 |
 | 8 de 12 | 1980-11-01 | Ley 6512 | 1980-11-01 |
 | 9 de 12 | 2015-07-06 | Ley 9291 | 2015-02-11 |
+| 10 de 12 | 2018-04-20 | Ley 9440 | 2017-05-20 |
