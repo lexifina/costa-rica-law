@@ -1,0 +1,5 @@
+ARTÍCULO 2.- Distritos del cantón y cabecera. La Comisión Nacional de División Territorial Administrativa asesorará al Poder Ejecutivo para la creación de los distritos del nuevo cantón. Dicha Comisión determinará los criterios técnicos que deberán aplicarse para estos efectos.
+Una vez que se acredite el cumplimiento de esos requerimientos técnicos, el Poder Ejecutivo acordará, mediante decreto ejecutivo, la creación de los distritos del cantón, indicando, para tales efectos, su cabecera, los poblados que los forman y sus límites detallados.
+Esos límites deberán seguir accidentes naturales del terreno, preferentemente, ríos, quebradas, caminos, divisorias de aguas, etc.
+El territorio de cada distrito deberá tener una población mínima del diez por ciento (10%) de la población total del respectivo cantón, siempre que no sea menor de dos mil habitantes.
+La cabecera del cantón será definida mediante consulta popular, que se realizará en los mismos comicios en los que se elijan las autoridades municipales del cantón.
