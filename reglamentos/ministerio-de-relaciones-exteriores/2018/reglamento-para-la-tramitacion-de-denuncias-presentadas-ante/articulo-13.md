@@ -1,0 +1,1 @@
+Artículo 13.-De la atención de denuncias trasladadas por la Contraloría General de la República: La Auditoría General atenderá. de acuerdo con sus posibilidades y con su plan de trabajo, las denuncias que le sean remitida. por el Órgano Contralor, podrá dar prioridad a su atención de conformidad con el contenido.

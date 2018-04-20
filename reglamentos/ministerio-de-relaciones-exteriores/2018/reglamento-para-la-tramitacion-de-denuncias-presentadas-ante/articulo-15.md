@@ -1,0 +1,1 @@
+Artículo 15.-Del seguimiento de los resultados y atención de las denuncias: La Auditoría General, de conformidad con sus potestades y competencias como ente fiscalizador y de acuerdo con los procedimientos establecidos, determinará en qué casos dará seguimiento a los resultados de las denuncias presentadas.

@@ -1,0 +1,1 @@
+Artículo 4.-Recibo de denuncias: La Auditoría General recibirá las denuncias que se presenten únicamente por escrito o digital -de acuerdo a la Ley de Certificados, Firmas Digitales y Documentos Electrónicos (Ley 8454)-, las cuales deberán venir dirigidas directamente a la Auditoría General. El Auditor General valorará la admisibilidad de las denuncias presentadas.

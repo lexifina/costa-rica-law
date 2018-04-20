@@ -1,0 +1,1 @@
+Artículo 2.-Ámbito de Competencia: La Auditoría General dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de fondos públicos, control interno y otros asuntos relacionados con su competencia.

@@ -1,0 +1,2 @@
+Artículo 5.-De la confidencialidad: La identidad del denunciante que, de buena fe, además de la información, la documentación y otras evidencias de la investigaciones que se efectúen serán confidenciales de conformidad con lo establecido en el artículo 6° de la Ley General de Control Interno y el artículo 8º de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
+Las infracciones a la obligación de mantener dicha confidencialidad por parte de los funcionarios de la Auditoría General podrán ser sancionadas según lo previsto en esas leyes.

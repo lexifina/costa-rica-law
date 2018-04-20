@@ -1,0 +1,2 @@
+Artículo 9.-(Nota de Sinalevi: En la publicación de este reglamento, no aparece este artículo. No obstante el sistema exige una numeración consecutiva, por lo que se ha creado el mismo, pero sin texto.)
+(Mediante Fe de Erratas y publicada en La Gaceta N° 84 del 15 de mayo de 2018, página N° 64 se indicó lo siguiente: “En el artículo N° 9. No se contempla el artículo N° 9. Lo anterior, no obedece a una omisión, sino a un error material al enumerarlos”.)

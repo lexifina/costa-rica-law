@@ -1,0 +1,1 @@
+Artículo 3.-Principios Generales: La admisión de denuncias que se presenten a la Auditoría General y que sean atinentes al ámbito de su competencia, respetarán serán atendidas en concordancia con los principios de simplicidad, economía, eficacia y eficiencia.

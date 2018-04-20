@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Comunicación de resultados
+Artículo 18.-De la comunicación al denunciante: Cuando la denuncia sea presentada con el nombre, calidades y dirección para notificaciones del denunciante, queda a criterio de la Auditoría General si le comunica el resultado de la investigación, lo que sí le tendría que informar es que se llevó a cabo la indagación donde se emitió un documento con los resultados, los cuales fueron informados al órgano competente además de cualquier gestión que se haya tomado en torno a la misma, sea ésta la de estimación, archivo o traslado de la misma a la Administración Activa u otras instancias.
