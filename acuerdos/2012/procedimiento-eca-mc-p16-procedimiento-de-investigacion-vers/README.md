@@ -21,3 +21,4 @@ Procedimiento ECA-MC-P16 Procedimiento de Investigación Versión 06
 | 6 | 2015-09-07 | Acuerdo 0 (2015-09-07) |
 | 7 | 2016-04-18 | Acuerdo 5 (2016-04-18) |
 | 8 | 2016-10-24 | Acuerdo 0 (2016-10-24) |
+| 9 | 2018-04-20 | Acuerdo 0 (2018-04-20) |
