@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-P16 Procedimiento de Investigación (Versión 13)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-11-08 | la propia norma |
+| 2 | 2018-04-20 | Acuerdo 0 (2018-04-20) |
