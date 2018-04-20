@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-P17 Política y criterios para la participación en
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-03-04 | la propia norma |
+| 2 | 2018-04-20 | Acuerdo 0 (2018-04-20) |
