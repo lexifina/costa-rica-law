@@ -1,0 +1,1 @@
+TRANSITORIO ÚNICO. - En el caso de personas que viajen por vía terrestre, el cobro de la tarifa antes señalada se aplicará un mes calendario posterior a la entrada en vigencia del presente Decreto. Para el caso de personas que viajen por vía aérea, dicho cobro empezará a hacerse efectivo cuatro meses calendario posteriores a la entrada en vigencia del presente Decreto.
