@@ -1,0 +1,11 @@
+Artículo 7.- Funciones y atribuciones del Consejo Nacional de Acreditación. El Consejo Nacional de Acreditación tendrá las siguientes funciones y atribuciones (artículos 12, 14 y 21 de la Ley 8256):
+a. Aprobar las políticas, los planes estratégicos y anuales de trabajo, los reglamentos y la normativa en general.
+b. Aprobar y actualizar los procedimientos, criterios y estándares de evaluación establecidos para la acreditación, así como los proyectos de innovación, investigación y desarrollo, y vigilar su estricto cumplimiento.
+c. Informar a las universidades y a la comunidad nacional acerca de los procedimientos y criterios que se emplean para la acreditación, utilizando los medios que estime convenientes.
+d. Nombrar los profesionales nacionales e internacionales para los procesos de acreditación, según la naturaleza de la carrera o el programa por acreditar y los méritos académicos en docencia o investigación en educación, planificación educativa o currículo.
+e. Informar a las universidades sobre el resultado de los estudios de acreditación realizados.
+f. Publicar, cada seis meses, un boletín o memoria sobre los planes, carreras o programas acreditados en el año anterior; así como los planes y programas con su acreditación vigente.
+g. Acreditar los planes, las carreras y los programas que hayan cumplido satisfactoriamente los requisitos fijados para el proceso de acreditación e informar al país por los medios nacionales de comunicación, y conocer y aprobar la pérdida de la respectiva acreditación, en los casos en que eventualmente proceda, todo conforme a lo establecido en la Ley 8256 y demás normativa aplicable.
+h. Mantener una lista actualizada de profesionales, nacionales y extranjeros, que puedan ser nombrados como pares externos en los procesos de acreditación que se realicen.
+i. Aprobar la suscripción de convenios de cooperación, o de prestación remunerada de servicios técnico-académicos, con otros entes y órganos públicos y privados, así como para formar parte de agencias internacionales de acreditación.
+j. Promover e impulsar acciones para lograr una cultura de calidad en las instituciones, carreras y programas de educación superior, así como para lograr una contribución significativa al proceso sostenible de mejora de la educación superior costarricense y ser un referente reconocido a nivel internacional.
