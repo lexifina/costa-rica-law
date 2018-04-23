@@ -1,0 +1,2 @@
+Artículo 2º-Contribución. Las d pendencias del Sector Público y del Sector Privado, dentro del marco legal respectivo, podrán contribuir con cualquier tipo de recursos, en la medida de sus posibilidades y sin perjuicio de cumplimiento de sus propios objetivos, para la exitosa realización de este seminario.
+La presente Declaratoria no tiene por objeto el otorgamiento de beneficios fiscales, tales como exoneraciones o cualquier otro beneficio fiscal, de conformidad con el artículo 5° del Decreto de Contingencia Fiscal, º 40540-H del 1 de agosto de 2017.
