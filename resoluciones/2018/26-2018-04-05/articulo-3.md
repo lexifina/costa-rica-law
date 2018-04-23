@@ -1,0 +1,2 @@
+Artículo 3º—Leyenda de Exención: Corresponde a cada funcionario beneficiario de la presente resolución, por medio del Banco Interamericano de Desarrollo (BID), solicitar al Ministerio de Relaciones Exteriores y Culto, indicar al dorso del respectivo Documento de Identificación Diplomática, (DIDI), el siguiente texto:
+“Portador exento de los Impuestos General Sobre las Ventas y/o Selectivo de Consumo para compras de bienes y servicios. El beneficiario deberá firmar la factura e indicar su nombre y número de DIDI.”

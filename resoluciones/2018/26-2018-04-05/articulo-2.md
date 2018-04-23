@@ -1,0 +1,1 @@
+Artículo 2º—Documento para adquisiciones exentas: Las adquisiciones se realizarán mediante la utilización del documento de identificación DIDI, expedido a cada funcionario permanente del Banco Interamericano de Desarrollo (BID), acreditado en Costa Rica.

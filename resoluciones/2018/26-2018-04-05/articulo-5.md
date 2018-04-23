@@ -1,0 +1,1 @@
+Artículo 5º—Requisitos para la emisión de la Factura: Adicionalmente a los datos que exige la legislación, la factura deberá estar emitida a nombre del funcionario respectivo. El vendedor conservará copia de la factura con el nombre del funcionario de la BID, su firma y número de DIDI.
