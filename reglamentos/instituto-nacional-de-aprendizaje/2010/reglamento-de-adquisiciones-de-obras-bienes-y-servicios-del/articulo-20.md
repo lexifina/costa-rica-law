@@ -10,5 +10,6 @@ h) Aprobar y aceptar las donaciones de bienes muebles cuando el INA sea sujeto d
 i) Convocar a cualquier funcionario del INA con carácter de invitado y con el fin de obtener su criterio técnico en asuntos de su competencia.
 j) Realizar las solicitudes de autorización a la CGR para contratar en forma directa de conformidad con el artículo 138 del RLCA, así como la autorización para iniciar el procedimiento de contratación sin contar con los recursos presupuestarios suficientes dentro del mismo período presupuestario en los diferentes procedimientos de contratación o materias excluidas.
 k) Resolver los cambios y prórrogas propuestos por los contratistas de las contrataciones igual o superior al monto de apelación.
-l) Aprobar las modificaciones unilaterales y contratos adicionales de las contrataciones igual o superior al monto de apelación.
+L) Aprobar las modificaciones unilaterales y contratos adicionales de las contrataciones igual o superior al monto de apelación, y aquellas previamente adjudicadas por la Junta Directiva cuando se deriven de trámites de cuantía inestimada.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 4845 del 23 de abril del 2018)
 m) Conocer cualquier otro asunto relacionado con contratación administrativa, según su rango de acción y competencias.
