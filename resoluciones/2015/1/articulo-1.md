@@ -1,5 +1,5 @@
-MINISTERIO DE ECONOMIA, INDUSTRIA
-Y COMERCIO
+MINISTERIO DE ECONOMIA, INDUSTRIA Y COMERCIO
+(Nota de Sinalevi: Mediante resolución N° DDC-009-2018 del 23 de abril de 2018, se acordó lo siguiente: “…prorrogar el periodo del examen de la medida de salvaguardia, por un plazo adicional de 2 meses, por tanto, el proceso concluye en fecha 26 de julio de 2018; lo anterior al tenor de lo dispuesto por el artículo 258 de la Ley General de la Administración Pública.”)
 Extracto.—Resolución N° DM-001-2015.—Despacho Ministerial.—San José, a las ser las catorce horas del cinco de enero de dos mil quince.
 Se resuelve solicitud de aplicación de medida definitiva de salvaguarda sobre las importaciones de “Arroz Pilado”, que de conformidad con el SAC, ingresan a Costa Rica bajo las Fracciones Arancelarias 1006.30.90.91 y 1006.30.90.99. Exp. 002-2013. Por tanto,
 EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO, RESUELVE:
