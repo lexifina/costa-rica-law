@@ -1,0 +1,5 @@
+Artículo 15.- Medidas de Debida Diligencia con el usuario o persona requirente. La Dirección Nacional de Notariado deberá dictar las medidas de debida diligencia con el usuario o persona requirente que deben cumplir los notarios, respecto a las siguientes disposiciones:
+a) Identificar sin lugar a dudas a todo usuario o requirente de los servicios notariales con base en los documentos legalmente previstos para el efecto.
+b) Acreditar la representación cuando el usuario o requirente de los servicios notariales actúe en nombre de otra persona, física o jurídica, de conformidad con lo dispuesto por el artículo 84 del Código Notarial.
+c) Identificar al beneficiario final, de acuerdo con lo dispuesto en la Ley N° 9416, “Ley para Mejorar la Lucha contra el Fraude Fiscal” del 30 de diciembre de 2016, y sus reglamentos.
+Asegurar y mantener los documentos, datos o información recopilada en virtud de un proceso de debida diligencia del usuario o persona requirente de conformidad con lo establecido en los lineamientos relacionados con el archivo de referencias, emitidos por la Dirección Nacional de Notariado.

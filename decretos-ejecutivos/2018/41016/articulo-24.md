@@ -1,0 +1,1 @@
+Artículo 24. Definición de riesgos. Se faculta a la Dirección Nacional de Notariado para que, en el marco de sus competencias, pueda establecer criterios sobre la definición y atención de riesgos sobre la materia.

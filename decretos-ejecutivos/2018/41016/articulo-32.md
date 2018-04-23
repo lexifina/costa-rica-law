@@ -1,0 +1,1 @@
+Artículo 32.-Derogatoria. Deróguese el Título llI del "Reglamento general sobre legislación contra el narcotráfico, actividades conexas, legitimación de capitales, financiamiento al terrorismo y delincuencia organizada", Decreto Ejecutivo Nº 36948-MP-SP-JP-S, del 08 de diciembre del 2011.

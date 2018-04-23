@@ -1,0 +1,1 @@
+Artículo 19.- Prohibición de entablar o mantener relaciones bajo situaciones de anonimato o nombres ficticios. Los notarios se excusarán de brindar el servicio cuando bajo su responsabilidad estimen que la actuación es ilegítima o ineficaz de conformidad con el ordenamiento jurídico o cuando los interesados no se identifiquen adecuadamente.

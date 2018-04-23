@@ -1,0 +1,1 @@
+Artículo 20.- Conservación de la información del usuario o persona requirente. El notario conservará toda la información que haya obtenido para el otorgamiento del acto o contrato de conformidad con lo establecido en el Código Notarial y los lineamientos y disposiciones emitidos por la Dirección Nacional de Notariado.

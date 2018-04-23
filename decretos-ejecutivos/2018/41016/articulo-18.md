@@ -1,0 +1,1 @@
+Artículo 18.- Actualización de la Información de los usuarios o personas requirentes. El profesional debe actualizar la información cada vez que se realice un nuevo acto o contrato con el usuario o persona requirente de manera que garantice la disponibilidad de información vigente.

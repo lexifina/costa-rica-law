@@ -1,0 +1,1 @@
+Artículo 16.- Prohibición de delegar la debida diligencia en terceros, al recopilar información del usuario o persona requirente. Los notarios no podrán delegar en terceros la recopilación de información de las medidas de debida diligencia con el usuario del servicio o requirente.

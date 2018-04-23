@@ -1,0 +1,1 @@
+Artículo 10.- Disponibilidad de información del Registro Nacional de Notarios. La Dirección Nacional de Notariado pondrá el Registro Nacional de Notarios al que se refiere el artículo anterior, a disposición de las autoridades competentes, del Ministerio Público y de la Unidad de Inteligencia Financiera.

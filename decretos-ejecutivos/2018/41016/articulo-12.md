@@ -1,0 +1,1 @@
+Artículo 12.- Estructura Organizativa y recursos. La Dirección Nacional de Notariado ejecutará las acciones pertinentes y oportunas para implementar el Área de Prevención de la Dirección Nacional de Notariado. Para ello, el Ministerio de Justicia y Paz otorgará los recursos necesarios para el cumplimiento de las obligaciones establecidas en la Ley N° 7786 y sus reformas.
