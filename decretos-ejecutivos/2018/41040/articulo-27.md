@@ -1,0 +1,1 @@
+Artículo 27.-Notificaciones y comunicaciones. Para la recepción de notificaciones y comunicaciones propias del Registro de Transparencia y Beneficiarios Finales, el responsable del suministro de información deberá suministrar una dirección de correo electrónico.

@@ -1,0 +1,2 @@
+Artículo 14.-Administrador de recursos de terceros. En el caso que las partes sean una persona jurídica o estructura jurídica, el responsable del suministro de información debe proveer al Registro de Transparencia y Beneficiarios Finales, los datos de conformidad con las reglas establecidas en el artículo 6 de este reglamento.
+En la resolución de alcance general indicada en el artículo 8 del presente reglamento, se establecerá el detalle de la información a suministrar.

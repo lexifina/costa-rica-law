@@ -1,0 +1,7 @@
+CAPÍTULO VII
+Del Régimen Sancionador a los Funcionarios
+Artículo 28.-Sanciones a los funcionarios públicos. Serán sujetos a las sanciones dispuestas en la Ley para Mejorar la Lucha contra el Fraude Fiscal y las normas supletorias, el funcionario público que, con ocasión de sus puesto y función, incurran en alguna de las siguientes faltas:
+a) Acceda por cualquier medio a información confidencial contenida en bases de datos o sistemas de información del Registro de Transparencia y Beneficiarios Finales sin la autorización de la autoridad competente y debidamente acreditada, o existiendo esta, no cuente con la justificación correspondiente.
+b) Se apodere de cualquier base de datos, la información contenida en ellas o programa informático, entendido como poner en operación o tomar control de la ejecución de un programa informático capaz de copiar, transferir, utilizar, destruir, inutilizar, alterar, o conservar de manera no autorizada la información confidencial involucrada en los procesos de captura y consulta de datos del Registro de Transparencia y Beneficiarios Finales.
+c) Permita que su mecanismo de autenticación para ingresar al Registro de Transparencia y Beneficiarios Finales sea utilizado por otra persona no autorizada.
+Las instituciones públicas involucradas en la Ley Para Mejorar la Lucha contra el Fraude Fiscal, están en la obligación de presentar la denuncia ante el Ministerio Público. En los casos de los funcionarios del Ministerio de Hacienda, la denuncia será presentada por la Unidad de Asuntos Internos conforme al artículo 15 de la Ley.
