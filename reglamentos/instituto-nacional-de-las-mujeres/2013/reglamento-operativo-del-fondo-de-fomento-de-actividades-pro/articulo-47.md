@@ -1,1 +1,1 @@
-Artículo 47.- Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 47.- Garantías para la Administración: Junto con este Reglamento, el contrato será el instrumento que regirá la relación entre el INAMU y las mujeres y/u organizaciones de mujeres seleccionadas. Las ganadoras se comprometen a cumplir con los deberes y obligaciones, establecidas en este documento legal. Con la firma entre las partes, el INAMU se comprometerá a velar por la correcta ejecución del proyecto en el plazo estipulado.

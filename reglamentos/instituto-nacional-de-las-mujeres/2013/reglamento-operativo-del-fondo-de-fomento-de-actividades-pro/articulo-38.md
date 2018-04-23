@@ -1,1 +1,3 @@
-Artículo 38.- Divulgación del resultado de la convocatoria: Los proyectos seleccionados se divulgarán a través de medios de comunicación virtual del INAMU. Asimismo, los proyectos que no fueron seleccionados se publicarán en los mismos medios, donde se indicará en forma sucinta la razón para la no selección.
+CAPÍTULO 6
+DE LOS ÓRGANOS SELECCIONADORES Y SELECCIÓN DE PROYECTOS
+Artículo 38. — Órganos seleccionadores: La Presidencia Ejecutiva del INAMU designará los órganos seleccionadores de proyectos, de acuerdo a cada categoría del concurso y con el número de expedientes a analizar por categoría.

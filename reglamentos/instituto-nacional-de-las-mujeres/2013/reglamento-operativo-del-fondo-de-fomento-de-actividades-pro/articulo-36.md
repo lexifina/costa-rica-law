@@ -1,5 +1,1 @@
-CAPÍTULO 6
-DE LA APROBACIÓN DE PROYECTO POR JUNTA DIRECTIVA DEL INAMU Y
-DESEMBOLSO DE LOS FONDOS A LAS MUJERES Y ORGANIZACIONES
-BENEFICIADAS
-Artículo 36.- Aval de la Junta Directiva del INAMU. La Junta Directiva del INAMU aprobará si lo considera pertinente, la recomendación de proyectos a financiar emitida por los Órganos Seleccionadores, acordando el giro de los recursos para cada proyecto seleccionado.
+Artículo 36. - Verificación de los datos: Los proyectos con índices de empoderamiento alto se realizará la verificación por medio de una llamada telefónica que efectúa la Unidad Ejecutora del FOMUJERES, para los proyectos con índices de empoderamiento medio, la verificación se realiza por medio de visitas in situ por parte del personal de las unidades regionales del INAMU y aquellos proyectos con un índice de empoderamiento bajo, quedan excluidos del concurso. De considerarse necesario para cualquier resultado del índice, se puede aplicar la entrevista telefónica o la visita in situ. La verificación es un requisito para continuar en el proceso. Esta verificación incluye la apertura de cinco días hábiles posteriores a la verificación y en los casos que corresponda, con el fin de que las postulantes presenten información complementaria para el análisis de proyectos por parte de los órganos seleccionadores.

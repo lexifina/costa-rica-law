@@ -1,1 +1,5 @@
-Artículo 42.- Procedimiento en la Dirección Administración del INAMU: Una vez aprobados, la Unidad Ejecutora de FOMUJERES referirá una lista de las mujeres beneficiarias y órdenes de pago al Área Financiero Contable del INAMU. Asimismo, se adjuntará para el trámite de desembolso: el Acta de la Junta Directiva en donde se aprueban los proyectos, copia de la cédula de identidad, Cédula Jurídica vigente, cuenta cliente y orden de pago de las mujeres u organizaciones beneficiarias o cualquier otro documento que esta Dirección considere pertinente, para que la transferencia sea satisfactoria.
+CAPÍTULO 7
+DE LA APROBACIÓN DE PROYECTO POR JUNTA DIRECTIVA DEL INAMU Y
+DESEMBOLSO DE LOS FONDOS A LAS MUJERES Y ORGANIZACIONES
+GANADORAS
+Artículo 42. - Aval de la Junta Directiva INAMU: La Junta Directiva aprobará si lo considera pertinente, la recomendación de proyectos a financiar emitida por los órganos seleccionadores, acordando el giro de los recursos para cada proyecto seleccionado.

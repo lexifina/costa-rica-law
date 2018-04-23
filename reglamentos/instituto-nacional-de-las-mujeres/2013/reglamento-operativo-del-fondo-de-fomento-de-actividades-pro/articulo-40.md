@@ -1,1 +1,1 @@
-Artículo 40.- Aceptación de recursos y firma de contratos: En el Contrato se especificarán los deberes y obligaciones de cada una de las partes, según el proyecto seleccionado. Asimismo, se definirá la forma en que se realizarán los desembolsos.
+Artículo 40. — Sustituciones: En el caso de que una persona del órgano seleccionador de proyectos no pueda sesionar, podrá nombrarse por parte del INAMU una persona sustituta, con las mismas características de idoneidad del titular.

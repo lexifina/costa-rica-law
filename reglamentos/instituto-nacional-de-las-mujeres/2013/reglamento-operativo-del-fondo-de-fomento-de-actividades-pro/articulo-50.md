@@ -1,0 +1,1 @@
+Artículo 50.- Protocolo de Incumplimiento: La Unidad Ejecutora del FOMUJERES mantendrá actualizado un “Protocolo de Incumplimiento” para establecer el proceder cuando las mujeres u organizaciones de mujeres incurran en incumplimientos de acuerdo con este reglamento y al contrato. Este protocolo será aprobado por la Junta Directiva del INAMU.

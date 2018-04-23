@@ -1,9 +1,2 @@
-Artículo 7.- Distribución de los Fondos asignados a FOMUJERES según las áreas y categorías concursables: Después de recibidos los proyectos, para definir la cantidad de recursos financieros por área y posteriormente por categoría, se realiza anualmente una estimación según la demanda total efectiva (cantidad de proyectos recibidos según las áreas/categorías y montos solicitados). De acuerdo a la siguiente fórmula:
-DTE= QPCR * ¢M
-DTE= Demanda total efectiva
-QPCR= Cantidad de proyectos recibidos por categoría y región
-¢M= Montos solicitados para cada proyecto por categoría y región Estimando con ello los montos a distribuir:
-MD= DTE / BP=¢C y ¢R
-MD= Montos a distribuir anualmente
-BP= La base presupuestaria real que es el monto asignado anualmente a FOMUJERES.
-Resultado: ¢C=montos por categorías y ¢R= Montos por regiones.
+Artículo 7.- Mecanismo para la asignación de los recursos de FOMUJERES: Según lo establece el decreto de constitución, el mecanismo para asignar los recursos de FOMUJERES, a los proyectos productivos y en defensa de los derechos de las mujeres será mediante convocatorias públicas cada año. El INAMU decidirá la forma en que organizará las convocatorias, las que podrán ser varias por año, cada convocatoria establecerá el periodo para la apertura y el procedimiento para el cierre del concurso. Estas deberán respetar siempre el periodo presupuestario vigente, ya que el fondo debe quedar liquidado en su totalidad al finalizar el año.
+Además las convocatorias públicas se definirán sobre la base de la información especializada de investigaciones de los derechos de las mujeres, realizada por el INAMU, u otra instancia, referente a los riesgos asociados a la empresariedad y organización de las mujeres. Así como, de la evidencia social y económica estadística, de la situación de las mujeres que habitan el territorio nacional.

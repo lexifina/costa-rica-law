@@ -1,4 +1,1 @@
-CAPÍTULO 5
-DE LOS ÓRGANOS SELECCIONADORES Y SELECCIÓN DE
-PROYECTOS
-Artículo 32.- Órganos Seleccionadores: La Presidencia Ejecutiva del INAMU designará los Órganos Seleccionadores de proyectos, de acuerdo a cada categoría del concurso, de acuerdo con el número de expedientes a analizar por categoría.
+Artículo 32.- Del Área Financiero Contable: Será la responsable de llevar a cabo la gestión de transferencias y seguimiento de las mismas a las mujeres ganadoras del concurso. Así como remitir a la Unidad Ejecutora la información necesaria referente a los depósitos realizados en la cuenta bancaria del INAMU, en caso de devolución de montos remanentes por parte de las ganadoras o por concepto de arreglos de pago en el caso de incumplimientos.

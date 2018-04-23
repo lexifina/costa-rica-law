@@ -1,1 +1,1 @@
-Artículo 45.- Del incumplimiento: En caso de incumplimiento, se emitirá una resolución por parte de la Unidad Ejecutora de FOMUJERES previo debido proceso, quien valorará y definirá el traslado del caso a la Unidad de Asesoría Legal del INAMU.
+Artículo 45. – Comunicaciones a las mujeres u organizaciones de mujeres seleccionadas: Las mujeres ganadoras de los proyectos aprobados serán contactadas vía telefónica o por correo electrónico, para que en la fecha que se les indique, se presenten a cada unidad regional del INAMU o en donde se defina a firmar el contrato.

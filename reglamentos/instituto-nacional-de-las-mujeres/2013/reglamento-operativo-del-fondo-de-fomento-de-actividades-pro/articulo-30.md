@@ -1,1 +1,6 @@
-Artículo 30.- Subsanación de información: En caso de que existiera información incompleta o se hubiera omitido algún documento por parte de las mujeres u organizaciones de mujeres y que éste sea indispensable para la realización de la viabilidad técnica por parte de la Unidad Ejecutora de FOMUJERES, ésta prevendrá por escrito y por única vez para su subsanación, dentro del plazo de 8 días hábiles. Las postulantes prevenidas podrán presentar los documentos a las Unidades Regionales o donde el INAMU indique, siempre dentro del plazo establecido. Las postulantes que no hayan cumplido con la prevención indicada, no podrán continuar con el proceso concursable.
+Artículo 30.- Del Equipo Desarrollador de Proyectos: Serán las personas funcionarias de la institución, que coordinarán de manera general aspectos administrativos y técnicos para la ejecución eficaz del Fondo. La labor de este Equipo es una de carácter gerencial para la toma de decisiones y para la articulación intrainstitucional. Para cada concurso la Presidencia Ejecutiva del INAMU, designará por oficio y por el tiempo que tenga vigencia la resolución del concurso, personas representantes de los siguientes áreas o unidades:
+a. Área de Desarrollo Regional quien presidirá este equipo gerencial,
+b. Área de Políticas Públicas para la Equidad de Género, d. Dirección Administrativa,
+c. Presidencia Ejecutiva,
+d. Unidad Ejecutora del FOMUJERES y
+e. Asesoría Legal. Este Equipo se reunirá las veces que considere necesarios desde la apertura del concurso y, hasta el desembolso de los fondos.
