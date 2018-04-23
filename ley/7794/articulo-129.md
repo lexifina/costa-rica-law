@@ -1,1 +1,6 @@
-Artículo 129. — En cualquier procedimiento citado en el artículo anterior, deberá atenderse, total o parcialmente, según corresponda, lo dispuesto en el artículo 116 de esta ley.
+CAPÍTULO III
+Manual Descriptivo de Puestos Generales, de los Sueldos y Salarios
+Artículo 129. — Las municipalidades adecuarán y mantendrán actualizado el Manual Descriptivo de Puestos General, con base en un Manual descriptivo integral para el régimen municipal. Contendrá una descripción completa y sucinta de las tareas típicas y suplementarias de los puestos, los deberes, las responsabilidades y los requisitos mínimos de cada clase de puestos, así como otras condiciones ambientales y de organización. El diseño y la actualización del Manual descriptivo de puestos general estará bajo la responsabilidad de la Unión Nacional de Gobiernos Locales.
+Para elaborar y actualizar tanto el Manual general como las adecuaciones respectivas en cada municipalidad, tanto la Unión Nacional de Gobiernos Locales como las municipalidades podrán solicitar colaboración a la Dirección General de Servicio Civil.
+Las municipalidades no podrán crear plazas sin que estén incluidas, en dichos manuales, los perfiles ocupacionales correspondientes.
+(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 120 al 129)
