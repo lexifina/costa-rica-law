@@ -1,2 +1,0 @@
-Ámbito de acción
-Artículo 21.—La Auditoría General ejercerá sus funciones en todas las dependencias del Banco Nacional de Costa Rica y las que se lleguen a establecer en el futuro, incluyendo las de carácter descentralizado y Subsidiarias en forma total o parcial, cuando estas últimas sean empresas del Estado organizadas como sociedades mercantiles. Asimismo, evaluará el cumplimiento de los planes de auditoria en esas entidades.

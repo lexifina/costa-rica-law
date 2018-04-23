@@ -1,1 +1,0 @@
-Artículo 34.—Cuando los informes de auditoria contengan recomendaciones dirigidas al jerarca o a los titulares subordinados, se procederá de acuerdo con lo establecido en los artículos 36, 37 y 38 de la Ley General de Control Interno.

@@ -1,1 +1,0 @@
-Artículo 6º—Cuando la Junta Directiva General lo disponga, el Auditor General, o en sus ausencias temporales el Subauditor General, participará en las sesiones de ese Órgano Colegiado, para que en su función asesora emita sus opiniones.

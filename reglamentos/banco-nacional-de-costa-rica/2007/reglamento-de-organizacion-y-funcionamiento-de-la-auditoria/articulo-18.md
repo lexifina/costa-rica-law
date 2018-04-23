@@ -1,1 +1,0 @@
-Artículo 18.—El Auditor General y el Subauditor General desempeñaran sus funciones con pericia y debido cuidado profesional, haciendo valer sus competencias con independencia funcional y de criterio, y serán vigilantes de que su personal responda de igual manera.

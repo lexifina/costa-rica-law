@@ -1,4 +1,0 @@
-Del auditor y subauditor general
-Artículo 10.—El Auditor General y el Subauditor General serán nombrados por la Junta Directiva General y dependerán jerárquicamente de ella, sin demérito de su independencia funcional. A su vez, la Junta Directiva General les establecerá las regulaciones administrativas aplicables a su puesto, de conformidad con la regulación vigente.
-Sus nombramientos se realizarán de conformidad con lo que establece el artículo 31 de la Ley General de Control Interno, los lineamientos emitidos por la Contraloría General de la República y los requisitos que en esa materia, establezca el Banco Nacional de Costa Rica en el Manual Institucional de Cargos y Clases.
-Sólo podrán ser removidos del cargo por justa causa, conforme con el artículo 15 de la Ley Orgánica de la Contraloría General de la República, así como lo establecido por el órgano contralor en la normativa correspondiente.
