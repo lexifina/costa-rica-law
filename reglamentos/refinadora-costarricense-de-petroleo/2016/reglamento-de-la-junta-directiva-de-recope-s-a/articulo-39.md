@@ -1,2 +1,0 @@
-Artículo 39: De la Responsabilidad de los Miembros de Junta Directiva por incumplimiento injustificado de las metas:
-Serán responsables los miembros de Junta Directiva por las consecuencias del incumplimiento total o parcial, gravemente injustificado, de las metas señaladas en los correspondientes proyectos, programas y presupuestos, cuando se determine que las deficiencias o negligencias de la gestión son resultado de sus decisiones y di rectrices y no del normal funcionamiento del órgano o la entidad, o bien, al omitir adoptar una decisión oportuna.
