@@ -1,0 +1,1 @@
+Artículo 8°—Responsabilidad sobre ofertas públicas de adquisición. Este acuerdo no es de aplicación para los casos en que de acuerdo con lo dispuesto en el artículo 36 de la Ley Reguladora del Mercado de Valores y el Reglamento sobre Oferta Pública de Valores, se presenten los supuestos para realizar una oferta pública de adquisición.

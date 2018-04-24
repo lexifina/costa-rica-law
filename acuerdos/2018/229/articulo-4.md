@@ -1,0 +1,7 @@
+Artículo 4°—Condiciones para la recompra directa a socios estratégicos. El emisor puede realizar la recompra de sus acciones a un socio estratégico, en atención a las siguientes condiciones:
+a. Informar al mercado de valores mediante un Comunicado de Hecho Relevante, la fecha o fechas de la recompra, la cantidad de acciones a recomprar, el monto total de la transacción y la identificación del socio estratégico. El comunicado se realiza al menos un día hábil antes del inicio de la recompra.
+b. El precio de compra debe contar con la autorización de la asamblea de accionistas.
+c. La recompra de acciones puede ser por la totalidad o una porción de la participación del socio estratégico y puede realizarse en un solo acto o en tractos específicos, según la autorización de la asamblea de accionistas.
+d. Estas operaciones son responsabilidad de las partes. La liquidación de la transacción se realizará a través de los miembros liquidadores del Sistema de compensación y liquidación de valores, con la participación de las entidades adheridas al Sistema Nacional de Registro de Anotaciones en
+Cuenta para practicar las inscripciones de los movimientos de titularidad de los valores.
+e. La recompra que realice el emisor a socios estratégicos, no forman precio, por lo que se deben excluir de los cálculos de las metodologías de valoración según lo dispuesto en el Reglamento sobre Valoración de Instrumentos Financieros.
