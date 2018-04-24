@@ -1,1 +1,0 @@
-Artículo 36.—El Alcalde Municipal analizará todo accidente de tránsito en el que participe un vehículo de la Municipalidad y adoptará las medidas disciplinarias del caso o someterán lo ocurrido a conocimiento de junta de relaciones labores correspondiente, si existiera.

@@ -1,1 +1,0 @@
-Artículo 8°—Sin perjuicio de la fiscalización que realicen la Contraloría General de la República y la Auditoria Interna de la Municipalidad, el Alcalde Municipal velará por el fiel cumplimiento de este reglamento.

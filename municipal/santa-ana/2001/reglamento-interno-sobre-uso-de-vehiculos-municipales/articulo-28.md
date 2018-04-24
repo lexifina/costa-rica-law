@@ -1,1 +1,0 @@
-Artículo 28.—Quienes están autorizados para conducir vehículos de la municipalidad no podrán en ningún caso ceder la conducción de los mismos a personas particulares y solo en casos de fuerza mayor a funcionarios de la municipalidad aunque no cuenten con la debida licencia municipal.
