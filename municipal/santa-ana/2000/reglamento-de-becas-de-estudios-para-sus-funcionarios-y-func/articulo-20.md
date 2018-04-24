@@ -1,1 +1,0 @@
-Artículo 20.—Recibida la solicitud por el Alcalde, este hará una revisión general para cerciorarse que cumpla con los requisitos reglamentarios. Si observara algún defecto, lo comunicará al solicitante para que lo subsane en le plazo de tres días hábiles.

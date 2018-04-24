@@ -1,1 +1,0 @@
-Artículo 10.—La concesión de becas solo se otorgará cuando los estudios profesionales de formación técnica o administrativa se realicen en centros educacionales que sean reconocidos por el Ministerio de Educación y CONESUP.

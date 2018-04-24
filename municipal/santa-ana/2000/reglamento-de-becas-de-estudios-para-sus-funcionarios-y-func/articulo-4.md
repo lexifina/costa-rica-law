@@ -1,1 +1,0 @@
-Artículo 4º—La aprobación definitiva del candidato o los candidatos para participar de los beneficios de una beca, será otorgado por la Comisión de Becas y contra lo que ella decida cabrá recurso de reconsideración ante el Concejo Municipal.

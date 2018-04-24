@@ -1,1 +1,0 @@
-Artículo 5º—La Municipalidad podrá aprovechar las facilidades que el Gobierno de la República, otros gobiernos, organismos internacionales o la empresa privada ofrezcan para la formación de su personal.

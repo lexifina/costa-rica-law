@@ -1,1 +1,0 @@
-Artículo 7º—El otorgamiento de una beca no será obstáculo para que la Corporación apruebe los aumentos salariales de ley a que tiene derecho tal trabajador o cualesquiera otros incentivos económicos que se concedan a nivel general.

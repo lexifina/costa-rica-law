@@ -1,1 +1,0 @@
-Artículo 2º—Las becas a las que se refiere este Reglamento serán otorgadas a los empleados de la Municipalidad de Santa Ana que tengan nombramiento en propiedad y que hayan laborado para la institución dos años como mínimo.

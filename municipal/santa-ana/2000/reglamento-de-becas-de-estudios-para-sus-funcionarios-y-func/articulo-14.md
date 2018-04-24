@@ -1,1 +1,0 @@
-Artículo 14.—El becario deberá rendir una garantía por el monto estimado del beneficio, más del 10% de recargo. Dicha garantía podrá otorgarse mediante hipoteca, prenda o fianza solidaria suficiente.

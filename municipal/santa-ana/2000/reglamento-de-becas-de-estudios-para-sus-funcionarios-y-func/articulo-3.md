@@ -1,1 +1,0 @@
-Artículo 3º—La persona que resultara beneficiada de una beca de estudio queda obligada a impartir a sus demás compañeros los conocimientos adquiridos en coordinación con el Departamento de Recursos Humanos que se encargará de promover la capacitación necesaria sobre el tema de interés.

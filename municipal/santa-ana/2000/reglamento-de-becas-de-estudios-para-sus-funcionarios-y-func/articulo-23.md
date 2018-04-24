@@ -1,1 +1,0 @@
-Artículo 23.—La Comisión aprobará o rechazará definitivamente la beca. En caso de aprobación del beneficio, la Comisión deberá revisar los aspectos que el mismo cubre y los fondos le serán girados al becario en el plazo de ocho días hábiles, en uno o varios tractos, según sea el caso, aspecto que será estipulado en el contrato.
