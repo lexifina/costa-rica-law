@@ -1,2 +1,2 @@
-Artículo 237.- Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 10817 del 24 de octubre de 2001.)
-(Nota de SINALEVI: La Sala Constitucional mediante resolución N° 8736 del 26 de junio de 2012, anuló de este artículo, por los efectos que produjo durante su vigencia, la frase que establecía “y, tratándose de mujeres, por contraer matrimonio”.
+Artículo 237- Los recursos del Fondo de Jubilaciones y Pensiones deberán ser gestionados de conformidad con la Ley N.º 7983, Ley de Protección al Trabajador, de 16 de febrero de 2000, y la normativa que al efecto ha establecido el Consejo Nacional de Supervisión del Sistema Financiero (Conassif) y la Superintendencia de Pensiones (Supén).
+(Así reformado por el artículo 1° de la ley N° 9544 del 24 de abril de 2018)
