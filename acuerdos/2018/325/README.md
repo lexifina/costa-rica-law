@@ -14,3 +14,4 @@ Traslada el sorteo de Lotería Popular N° 6302, programado para el martes 08 de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-04-25 | la propia norma |
+| 2 | 2018-04-25 | Acuerdo 407 (2018-04-05) |
