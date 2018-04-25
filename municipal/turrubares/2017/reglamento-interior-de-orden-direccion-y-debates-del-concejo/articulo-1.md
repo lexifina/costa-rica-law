@@ -1,0 +1,15 @@
+MUNICIPALIDAD DE TURRUBARES
+Según acuerdo del Concejo Municipal de Turrubares en sesión ordinaria N° 57-2017, celebrada el 13 de diciembre de 2017, se aprobó el Reglamento Interior de Orden, Dirección y Debates del Concejo, según las siguientes consideraciones.
+I. Que la Presidencia Municipal presenta al Concejo Municipal para su enmienda y aprobación, el Reglamento Interior de Orden, Dirección y Debates del Concejo Municipal de Turrubares.
+II. Que con fundamento en el art. 4; art. 26 h) y 13 inciso c) del Código Municipal, esta Corporación Municipal puede dictar los Reglamentos de servicios necesarios para su administración.
+III. Que el principio de autonomía administrativa, faculta a la Municipalidad para la regulación y administración, de los servicios que prestan.
+IV. Que conforme al art. 43 del Código Municipal, “Toda iniciativa tendiente a adoptar, reformar, suspender o derogar disposiciones reglamentarias, deberá ser presentada o acogida para su trámite por el Alcalde Municipal o alguno de los regidores. Por tratarse de un reglamento de interno, el Concejo iniciará su aplicación inmediata, a partir del acuerdo firme correspondiente, sin necesidad de audiencia pública.
+Por lo tanto. Los Regidores firmantes, acogemos la moción presentada y recomendamos al Concejo Municipal, se tome el siguiente acuerdo:
+“Aprobar el Reglamento Interior de Orden, Dirección y Debates del Concejo, presentado por el Presidente Municipal Mario Chavarría Chávez y se instruye su aplicación a partir del acuerdo firme correspondiente.”
+Acuerdo Firme. El texto completo del respectivo reglamento interno se encuentra en la Secretaría del Concejo Municipal de Turrubares, para efectos de los interesados.
+(Nota de Sinalevi: La presente norma fue suministrada por la Municipalidad de Turrubares y se transcribe a continuación:)
+MUNICIPALIDAD DE TURRUBARES
+REGLAMENTO INTERIOR DE ORDEN, DIRECCIÓN Y DEBATES DEL CONCEJO
+El Concejo Municipal de Turrubares en uso de su potestad reglamentaria con base en las atribuciones consagradas en los artículos 169 y 170 de la Constitución Política de Costa Rica y con relación a los numerales 4 inciso a), 13 incisos c) y, d) y 50 del Código Municipal, aprueba el siguiente Reglamento Interno de Orden, Dirección, Debates y Votaciones del Concejo Municipal de TURRUBARES. Dicho cuerpo normativo se regirá por las leyes vigentes en la materia y las siguientes disposiciones a continuación:
+CAPÍTULO I.- DEL GOBIERNO MUNICIPAL DEL CANTÓN DE TURRUBARES Y SU CONFORMACIÓN.
+ARTÍCULO 1. El Gobierno Municipal del Cantón de TURRUBARES está compuesto por un cuerpo deliberativo denominado Concejo Municipal, que lo integran los REGIDORES que fija la ley, un Alcalde o Alcaldesa y en suplencia, quien ocupa la Vice alcaldía miembros todos de elección popular, conforme lo establece la Constitución Política y las leyes de la República de Costa Rica. Los miembros que forman parte del concejo municipal tomarán posesión de sus cargos, a las doce horas del día primero de mayo del año de su elección, previa juramentación que se realizará ante el Directorio Provisional, una vez que éste se haya juramentado ante el Concejo Municipal.
