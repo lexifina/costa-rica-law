@@ -1,0 +1,2 @@
+Artículo 15.-Del voto razonado. Los miembros de la Comisión de Crédito podrán hacer constar en el acta su voto negativo al dictamen adoptado, en este caso deberán indicar las razones técnicas financieras o jurídicas que lo justifiquen, quedando así exentos de la responsabilidad que pudiere derivarse del dictamen emitido por los demás miembros de la Comisión de Crédito.
+Lo mismo podrán hacer aquellos funcionarios que sean convocados a la Comisión de Crédito en función asesora.
