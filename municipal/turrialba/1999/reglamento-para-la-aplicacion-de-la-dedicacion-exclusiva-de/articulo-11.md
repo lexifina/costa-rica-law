@@ -1,8 +1,0 @@
-CAPITULO VI
-De las excepciones, renuncia y sanciones
-Artículo 11.-EI servidor que se acoja al Régimen de Dedicación Exclusiva está facultado para ejercer en forma excepcional la profesión comprometida en el contrato, en los siguientes casos:
-a- Cuando se trate de labores docentes en establecimientos de enseñanza superior oficiales o privados, en seminarios, cursos y congresos organizados e impartidos por estos centros educativos.
-b- Cuando se trate de impartir cursos de capacitación en instituciones públicas, siempre que sean auspiciados y organizados por dichas instituciones.
-c- Cuando se trate del ejercicio profesional relacionado con asuntos personales, de su cónyuge o compañero si convive en unión libre (comprobado por medio de declaración jurada ante Notario Público), ascendientes, descendientes, hasta un tercer grado de consanguinidad, hermanos, suegros, yernos y cuñados, siempre y cuando la actividad emanada de dicho interéss no conlleve propósito de lucrar por parte del funcionario o de sus familiares aquí mencionados. Para acogerse a esta excepción deberá comunicarlo al Jefe de la dependencia respectiva y solicitar, por el mismo medio la anuencia previa del Departamento de Recursos Humanos, señalando el tipo de trabajo que se efectuará así como las fechas de inicio y finalización de la presentación del servicio, ubicación y esperar respuesta.
-d- Cuando sea necesaria su colaboración al Estado en forma ad honorem, en la atención de desastres naturales, siempre que lo haga en nombre y con el respaldo de la institución a que labora.
-e- Cuando se le nombre en el cargo de la Junta Directiva, siempre que no exista conflicto de intereses con el puesto desempeñado, salvo casos que por expresa ley así lo establezcan.

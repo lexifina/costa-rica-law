@@ -1,1 +1,0 @@
-Artículo 12.-Los servidores que disfruten de los beneficios del Régimen de Dedicación Exclusiva, pueden renunciar a dicho Régimen, comunicándole por escrito al Departamento de Recursos Humanos y a la Auditoría Interna, con un mes de anticipación y no podrá suscribir un nuevo contrato por un período de 2 años después de haber presentado la renuncia.

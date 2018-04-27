@@ -1,3 +1,0 @@
-CAPITULO III
-Artículo 5°-El servidor que desee acogerse al Régimen de Dedicación Exclusiva y que cumpla con los requisitos que se señalan en el artículo 3 de éste Reglamento, deberá solicitarlo a la oficina de Recursos Humanos de la Institución.
-Una vez suscrito el contrato entre el servidor y la institución, la oficina de Recursos Humanos lo tramitará para su refrendo ante el máximo jerarca (o quién este delegue), adjuntando para ello una certificación firmada por el Jefe de Personal, en donde conste que en el caso concurren todas las condiciones y requisitos que señala el artículo 3 y se han seguido los trámites y procedimientos que exige elmismo, además de los originales y fotocopias del título académico y la incorporación al colegio profesional respectivo.
