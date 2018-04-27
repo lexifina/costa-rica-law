@@ -1,3 +1,7 @@
-CAPÍTULO XIV
-Del trámite de pago
-Artículo 40.—Requisitos. Corresponde a la Contaduría tramitar el pago de las obligaciones contraídas por el TSE una vez que la Proveeduría le remita la factura con el visto bueno del órgano fiscalizador y el Pedido. En el caso de servicios públicos y arrendamientos de bienes inmuebles, la Contaduría realizará el pago contra la factura visada por el órgano fiscalizador.
+Capítulo XIV
+Modificación unilateral del contrato
+(Así adicionado el capítulo anterior por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 6 del 27 de abril de 2018)
+Artículo 40.—Trámite. Cuando la unidad requirente, la técnica o la usuaria estimen conveniente efectuar una modificación contractual para mejor satisfacción de la necesidad institucional, presentarán la solicitud ante la Dirección Ejecutiva o la Dirección General de Registro Electoral y de Financiamiento de Partidos Políticos, según corresponda, acreditando los supuestos que sustenten la variación. Para ello las unidades no técnicas podrán contar con el obligado concurso de la contraparte técnica respectiva. El Jefe del Subprograma Presupuestario correspondiente valorará la oportunidad y conveniencia de la solicitud, así como lo referente al tema presupuestario y, en caso de estimarla procedente, instruirá a la Proveeduría institucional para que constate el cumplimiento de los requisitos que al efecto establecen la Ley de Contratación Administrativa y su reglamento. De verificarse dicho cumplimiento, corresponderá a la dependencia administrativa que adjudicó la contratación objeto de modificación disponer el acto final.
+Al Departamento Legal le corresponderá determinar, sobre la formalización de las modificaciones contractuales dispuestas, únicamente aquellas que cuentan con documento clausulado.
+La Unidad de Fiscalización de la Ejecución Contractual del Tribunal Supremo de Elecciones (UFEC) notificará al contratista las modificaciones unilaterales realizadas.
+(Así adicionado por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 6 del 27 de abril de 2018)

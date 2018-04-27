@@ -15,3 +15,4 @@ Reglamento interno de la Proveeduría del Tribunal Supremo de Elecciones
 | --- | --- | --- |
 | 1 | 2009-06-26 | la propia norma |
 | 2 | 2015-06-30 | Decreto TSE 16 (2015-06-30) |
+| 3 | 2018-04-27 | Decreto TSE 6 (2018-04-27) |
