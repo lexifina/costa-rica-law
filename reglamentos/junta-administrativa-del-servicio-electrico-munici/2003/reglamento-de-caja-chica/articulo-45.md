@@ -1,1 +1,0 @@
-Artículo 45.—Formularios. El Proceso Administrar Materiales y Equipos es el responsable de custodiar, administrar, distribuir y controlar los formularios denominados "Vale de Adelanto por Fondo de Caja Chica" y "Comprobante de Pago por Caja Chica".

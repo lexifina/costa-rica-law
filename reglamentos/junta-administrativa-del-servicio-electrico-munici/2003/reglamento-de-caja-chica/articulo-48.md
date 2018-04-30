@@ -1,3 +1,0 @@
-Artículo 48.—Adquisición de bienes y servicios. Para protección de la institución y de los administradores de los fondos de trabajo, es indispensable normar la adquisición de bienes y servicios por medio de estos fondos, de tal manera que la gestión sea expedita dentro de un marco normativo afín con las regulaciones institucionales y estatales, según lo establecido en el Reglamento a la Ley de Contratación Administrativa en lo relativo a las contrataciones con fondos de caja chica.
-Para tales efectos, este medio de pago debe cumplir con el procedimiento de contratación administrativa que se regula mediante el presente Reglamento.
-(Así adicionado mediante sesión N° 4836 del 5 de noviembre del 2013)

@@ -1,2 +1,0 @@
-Artículo 60.—Vale de adelanto. Toda solicitud de dinero por fondos de trabajo, deberá realizarse mediante el formulario denominado “Vale de Adelanto”, el cual deberá constar de original y dos copias. Estos formularios deberán estar debidamente prenumerados, con identificación del fondo al cual pertenecen. No podrán utilizarse formularios de un Fondo, para adelantos de otro.
-(Así adicionado mediante sesión N° 4836 del 5 de noviembre del 2013)

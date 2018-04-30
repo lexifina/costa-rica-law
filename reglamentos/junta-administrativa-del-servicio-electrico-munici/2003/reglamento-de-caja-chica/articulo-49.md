@@ -1,2 +1,0 @@
-Artículo 49.—Responsable del Fondo de Trabajo. La operación de un fondo de trabajo, debe estar bajo la responsabilidad directa del colaborador designado como encargado titular de la caja chica. Estos funcionarios no deben estar facultados para aprobar gastos, solicitudes de liquidación ni tener responsabilidad en la coordinación de presupuesto del proceso a la que está asignada el fondo. Este colaborador deberá de acatar lo dispuesto en el capítulo IV de este reglamento.
-(Así adicionado mediante sesión N° 4836 del 5 de noviembre del 2013)

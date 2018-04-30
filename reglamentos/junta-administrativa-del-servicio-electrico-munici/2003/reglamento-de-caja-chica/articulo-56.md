@@ -1,2 +1,0 @@
-Artículo 56.—Prohibición de fraccionamiento. No podrá utilizarse el fondo de trabajo, para fragmentar compras, eludiendo los procedimientos de contratación que deben seguirse, según el ordenamiento jurídico vigente. Se presumirá fraccionamiento cuando existiendo contenido presupuestario para realizar una sola compra, a través de un procedimiento concursal, se elija realizar varias compras utilizando el procedimiento de Fondos de Trabajo. El fraccionamiento se considerara falta grave.
-(Así adicionado mediante sesión N° 4836 del 5 de noviembre del 2013)
