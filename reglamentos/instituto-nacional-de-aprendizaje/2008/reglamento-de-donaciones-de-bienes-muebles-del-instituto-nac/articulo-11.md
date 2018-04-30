@@ -1,1 +1,0 @@
-Artículo 11.—La aceptación. La aceptación de la donación puede hacerse en la misma escritura de donación, cuando corresponda, o bien, en el acta de entrega de bienes o en otro medio legalmente válido; pero no surte efecto si se hace posteriormente a un año contado desde la fecha de notificación de la resolución de donación. Hecha la aceptación, debe notificarse al donador.

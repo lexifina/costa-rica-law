@@ -1,2 +1,0 @@
-Donaciones
-Artículo 6º—Donaciones: Las donaciones se deben utilizar las mejores técnicas de administración, el aprovechamiento de espacio y recursos públicos, con el fin de satisfacer los intereses públicos e institucionales de conformidad con los artículos 4 de la Ley General de Administración Pública, el artículo 155 del Reglamento a la Ley de Contratación Administrativa y las normas habilitantes que autoricen al beneficiario o solicitante.

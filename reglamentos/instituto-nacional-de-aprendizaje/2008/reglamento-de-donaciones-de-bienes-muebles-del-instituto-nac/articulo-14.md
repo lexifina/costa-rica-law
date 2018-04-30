@@ -1,1 +1,0 @@
-Artículo 14.—Desechos tóxicos: Los desechos tóxicos, así declarados institucionalmente o por cualquiera otra dependencia del Estado, no serán objeto de donación, salvo para efecto de su debido tratamiento, investigación y desecho, de conformidad con el ordenamiento jurídico.

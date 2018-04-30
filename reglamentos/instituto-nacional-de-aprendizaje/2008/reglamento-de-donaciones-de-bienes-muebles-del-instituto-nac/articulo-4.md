@@ -1,1 +1,0 @@
-Artículo 4º—Principio de Legalidad. Todas las donaciones de los bienes muebles propiedad del Instituto Nacional de Aprendizaje deberán realizarse con fundamento en la norma habilitante y el artículo 155 del Reglamento a la Ley de Contratación Administrativa y demás preceptos legales vigentes y concordantes.

@@ -1,1 +1,0 @@
-Artículo 5º—Comisión de Licitaciones. La Comisión de Licitaciones del INA, estará facultada para solicitar, aceptar, rechazar, aprobar, improbar, anular y revocar donaciones que la Institución realice, conforme a las recomendaciones legales, técnicas correspondientes, avalúo y normas habilitantes del caso.

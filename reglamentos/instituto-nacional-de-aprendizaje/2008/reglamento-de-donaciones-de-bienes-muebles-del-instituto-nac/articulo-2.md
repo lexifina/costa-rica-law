@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación: El presente Reglamento se aplicará a todos los bienes muebles propiedad del Instituto Nacional de Aprendizaje susceptibles de ser donados, así como aquellos que sean de interés de la Institución para ser adquiridos por este medio.
