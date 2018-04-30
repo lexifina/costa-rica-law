@@ -1,0 +1,1 @@
+Artículo 8.- De la responsabilidad de la ejecución. Una vez constituida mediante el respectivo convenio la APPD, será responsabilidad de la dirección técnica competente en el tema asignado dentro de cada institución, la responsable de la ejecución del respectivo convenio.

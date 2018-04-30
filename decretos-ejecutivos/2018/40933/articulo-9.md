@@ -1,0 +1,1 @@
+Artículo 9.- De las mejoras. En aras de generar una mejora continua de las herramientas descritas en el presente Reglamento, las instituciones podrán generar informes o memorias sobre las lecciones aprendidas al cierre y entrega de la APPD.
