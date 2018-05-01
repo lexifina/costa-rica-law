@@ -1,0 +1,1 @@
+Artículo 2°- Deróguese el Decreto Ejecutivo número 40858-H de fecha 10 de enero de 2018, publicado en el Alcance número 21 a La Gaceta número 18 de fecha 31 de enero de 2018, a partir de la vigencia del presente decreto.
