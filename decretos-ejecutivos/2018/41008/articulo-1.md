@@ -1,0 +1,19 @@
+N° 41008 - MTSS – HACIENDA
+EL PRESIDENTE DE LA REPÚBLICA
+Y MINISTROS DE TRABAJO Y SEGURIDAD SOCIAL Y DE HACIENDA
+En uso de las facultades que les confieren los incisos 3 ), 18) y 20) del artículo 140 y 146 de la Constitución Política, con fundamento en los numerales 24, 25, 27, 28, 59, 83 y 103 de la Ley General de la Administración Pública y en ejecución de los artículos 4°, 69 a 72, y 143 de la Ley Orgánica del Ministerio de Trabajo y Seguridad Social.
+CONSIDERANDO:
+1. Que mediante Ley Nº 9380 de 29 de julio de 2016, se reformó el artículo 11 de la Ley Nº 7302 de 8 de julio de 1992, estableciendo que el porcentaje de cotización, fijado en 9%, podrá ser aumentado por el Poder Ejecutivo hasta un máximo de un 16%, cuando los estudios técnicos así lo recomienden.
+2. Que el Ministro de Trabajo y Seguridad Social encomendó a la Dirección Nacional de Pensiones, la elaboración del estudio técnico referido, así como las recomendaciones que resulten pertinentes en estricto apego a lo establecido en la citada Ley Nº 9380 de 29 de julio de 2016.
+3. Que la Dirección Nacional de Pensiones presentó el estudio técnico solicitado, en el cual se explica y fundamenta técnicamente, la situación actual de financiación de los N° 41008 - MTSS – HACIENDA regímenes contributivos con cargo al Presupuesto Nacional, con excepción del régimen de Magisterio Nacional, estableciendo la imperiosa necesidad de que el Poder Ejecutivo proceda aumentar el porcentaje de cotización de los servidores activos, de los pensionados y del Estado, del 9% en que se encuentra fijado actualmente al 16% en la forma que la ley faculta.
+4. Que el artículo 11 de la Ley Nº 7302 de 8 de julio de 1992 y sus reformas, efectivamente faculta al Poder Ejecutivo para realizar el aumento recomendado.
+5. Que el artículo 11 de la Ley Nº 7302 de 8 de julio de 1992 y sus reformas, establece, específica y puntualmente, que el mencionado aumento, debe hacerse de manera proporcional según los montos del salario o de la pensión de que se trate, empezando por la base del 9% para los montos más bajos y así sucesivamente hasta llegar al porcentaje máximo del 16%; estableciendo, así mismo, que se exceptúa de cotización a todos los pensionados y/o jubilados que devenguen, por concepto del beneficio de pensión y/o jubilación, un monto bruto que no supere dos veces el salario base más bajo pagado por la Administración, de conformidad con la escala de sueldos de la Administración Pública emitida por la Dirección General de Servicio Civil.
+6. Que el Gobierno de la República es consciente, de la ineludible e imperiosa necesidad de poner en ejecución soluciones adecuadas para racionalizar el pago de pensiones con cargo al Presupuesto Nacional, por cuanto estos por su naturaleza y modelo de financiación, se constituyen en ampliamente deficitarios, ejerciendo, por ello, una excesiva presión sobre las finanzas públicas.
+7. Que el Gobierno de la República, en la aplicación de las soluciones requeridas, actúa siempre en total y estricto apego al Bloque de Legalidad y cumpliendo con su deber constitucional de velar por el Erario Público, que es propiedad de todos los costarricenses.
+Por tanto,
+DECRETAN:
+REGLAMENTO AL ARTICULO 11 DE LA LEY No. 7302
+AUMENTO DE COTIZACION PARA FUNCIONARIOS ACTIVOS, JUBILADOS Y
+PENSIONADOS DEL REGIMEN GENERAL DE PENSIONES
+Artículo 1.- Los servidores activos y los pensionados, de los regímenes que queden sometidos al Régimen General de Pensiones del Capítulo I de la Ley Nº 7302 de 8 de julio de 1992, y el Estado, en su calidad de patrono, estarán obligados a cotizar mensualmente con el porcentaje que corresponda según el nivel de salario o pensión, partiendo de un 9% para los montos de salario o pensión más bajos y así sucesivamente hasta llegar al porcentaje máximo del 16%, de acuerdo con la siguiente tabla:
+[imagen]

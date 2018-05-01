@@ -1,0 +1,1 @@
+Artículo 2.- Las pensiones y jubilaciones cuyo monto sea igual o inferior a dos salarios base más bajos de la Administración Pública según la escala emitida por la Dirección General de Servicio Civil estarán exentas de cotización.
