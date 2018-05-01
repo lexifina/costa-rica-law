@@ -1,0 +1,1 @@
+Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución Nº RES-DGH-001-2018 del 08 de enero del 2018, publicada en el Alcance Nº 21 a La Gaceta Nº 18 del 31 de enero del 2018.
