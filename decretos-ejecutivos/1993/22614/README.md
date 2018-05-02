@@ -17,3 +17,4 @@ Reglamento para el Pago de Compensación Económica por concepto de Prohibición
 | 2 | 2002-05-14 | Decreto Ejecutivo 30684 (2002-05-14) |
 | 3 | 2002-12-03 | Decreto Ejecutivo 31094 (2002-12-03) |
 | 4 | 2006-12-06 | SINALEVI (sin norma nombrada) |
+| 5 | 2018-05-02 | Decreto Ejecutivo 41140 (2018-05-02) |
