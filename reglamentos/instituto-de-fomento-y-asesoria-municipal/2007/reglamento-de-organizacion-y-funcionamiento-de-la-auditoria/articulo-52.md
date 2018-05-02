@@ -1,1 +1,0 @@
-Artículo 52.—Aprobación. El presente “Reglamento de Organización y Funcionamiento de la Auditoría Interna del Instituto de Fomento y Asesoría Municipal”, fue aprobado por la Junta Directiva con acuerdo segundo, artículo quinto, de la sesión extraordinaria Nº 3717, celebrada el día seis de diciembre del dos mil siete.

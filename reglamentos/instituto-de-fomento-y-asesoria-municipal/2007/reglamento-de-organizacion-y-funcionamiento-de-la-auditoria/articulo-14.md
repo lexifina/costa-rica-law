@@ -1,1 +1,0 @@
-Artículo 14.—Independencia de criterio. Las actividades de la Auditoría Interna se ejercerán con total independencia funcional y de criterio con respecto a la Junta Directiva, y de los demás órganos de la Administración Activa.

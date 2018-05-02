@@ -1,1 +1,0 @@
-Artículo 8º—Misión de la Auditoría Interna. La misión de la Auditoría Interna es colaborar con la Administración Activa, mediante la prestación de servicios profesionales de auditoría, ejecutados con objetividad e independencia de criterio.

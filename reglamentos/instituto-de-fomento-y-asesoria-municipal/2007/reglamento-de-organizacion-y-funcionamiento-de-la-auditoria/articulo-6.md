@@ -1,1 +1,0 @@
-Artículo 6º—Valor agregado. La Auditoría Interna es un componente orgánico del sistema de control interno, que al evaluar la eficacia y eficiencia de las operaciones y controles establecidos por la Administración Activa, contribuye a que el IFAM alcance sus objetivos y metas, y de esta manera agrega valor a las actividades institucionales.

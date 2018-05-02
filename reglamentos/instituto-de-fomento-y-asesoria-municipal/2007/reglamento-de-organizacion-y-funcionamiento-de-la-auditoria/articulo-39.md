@@ -1,1 +1,0 @@
-Artículo 39.—Servicios preventivos de advertencia. Los servicios preventivos de advertencia se brindarán de oficio, en forma escrita, a cualquier instancia, sobre asuntos que sean de conocimiento de la Auditoría Interna, debiendo señalarse las posibles consecuencias de los actos o conductas.

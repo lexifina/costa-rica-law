@@ -1,1 +1,0 @@
-Artículo 9º—Visión de la Auditoría Interna. La visión de la Auditoría Interna es mejorar continuamente la calidad y oportunidad de sus servicios, para consolidarse como una Unidad que contribuye a que el IFAM alcance sus objetivos y metas.

@@ -1,3 +1,0 @@
-CAPITULO II
-Organización de la Auditoría Interna
-Artículo 5º—Concepto funcional de Auditoría Interna. La Auditoría Interna es la actividad independiente, objetiva y asesora, que contribuye a que se alcancen los objetivos institucionales, mediante la aplicación de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración del riesgo, y los controles sobre los procesos que se ejecutan, proporcionando una garantía razonable de que las actuaciones del Jerarca, titulares subordinados y de los demás funcionarios, se ejecuten conforme al marco legal, técnico y a las sanas prácticas administrativas.

@@ -1,2 +1,0 @@
-Artículo 44.—Remisión de informes. Los informes de Auditoría serán remitidos por el Auditor Interno al Director Ejecutivo; no obstante, tratándose de simples asuntos de control interno, o de poca complejidad, a criterio del Auditor Interno, los informes pueden ser remitidos al titular de la unidad administrativa respectiva.
-Los informes que traten de asuntos de especial relevancia, a criterio del Auditor Interno, o que involucren a funcionarios dependientes de la Junta Directiva, o por disposición expresa de ésta, serán remitidos a dicho Cuerpo Colegiado.
