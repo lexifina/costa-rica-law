@@ -1,0 +1,3 @@
+Artículo 31 bis.- Corresponderá a las Oficinas de Recursos Humanos de cada institución la verificación, aprobación y trámite de pago de la compensación por prohibición en los términos establecidos en esta Ley, para lo cual deberá realizar la constatación del cumplimiento de requisitos, justificando y documentando su reconocimiento mediante resolución administrativa.
+El incumplimiento de esta obligación será considerada como falta grave por parte de los titulares de las Oficinas de Recursos Humanos, y será sancionada conforme la reglamentación de cada Institución.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 41140 del 2 de mayo de 2018)
