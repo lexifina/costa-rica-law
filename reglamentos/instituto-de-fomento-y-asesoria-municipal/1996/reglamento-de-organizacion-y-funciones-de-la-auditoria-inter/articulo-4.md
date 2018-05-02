@@ -1,2 +1,0 @@
-Artículo 4°—Para optar al cargo de Auditor General, es requisito el grado académico universitario de Licenciado, ser Contador Público Autorizado. estar incorporado al colegio respectivo, tener suficiente experiencia en labores de auditoria y amplios conocimientos sobre las disposiciones legales que regulan la administración pública.
-En caso de ausencia temporal del Auditor General, la Junta Directiva podrá designar para sustituirlo a un Auditor General Interino, el cual deberá poseer los requisitos indicados en el párrafo anterior.

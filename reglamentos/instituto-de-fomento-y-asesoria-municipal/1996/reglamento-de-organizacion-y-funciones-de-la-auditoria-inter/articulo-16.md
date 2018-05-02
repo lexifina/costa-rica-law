@@ -1,2 +1,0 @@
-Artículo 16.—Previo a remitir cada informe de auditoría, se deben comentar los hallazgos que contiene, así como las recomendaciones que se formulan, con los funcionarios responsables de las unidades administrativas evaluados, a efecto de obtener de ellos sus puntos de vista, opiniones y cualquier información adicional.
-No se aplicará el procedimiento anterior en los casos de auditorías o estudios especiales de carácter reservado, o cuando se oblonga información confidencial.

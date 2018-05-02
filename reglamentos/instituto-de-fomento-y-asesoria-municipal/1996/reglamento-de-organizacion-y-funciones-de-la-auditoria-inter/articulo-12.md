@@ -1,1 +1,0 @@
-Artículo 12.—Sobre cada intervención de auditoría se elaborará informe respectivo, que contendrá al menos, el objetivo del estudio, resultados o hallazgos, conclusiones y recomendaciones. En los estudios especiales de auditoría, según las circunstancias, podrá empicarse un formato diferente.

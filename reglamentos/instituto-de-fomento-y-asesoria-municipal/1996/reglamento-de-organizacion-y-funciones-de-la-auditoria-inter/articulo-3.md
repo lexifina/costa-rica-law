@@ -1,1 +1,0 @@
-Artículo 3°—El titular de la Auditoría Interna, es el Auditor General cuyo nombramiento. remoción y régimen disciplinario corresponde a la Junta Directiva, de quien depende jerárquicamente, lodo de conformidad con las disposiciones legales que regulan la materia-

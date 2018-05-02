@@ -1,1 +1,0 @@
-Artículo 11.—Las actividades de auditoría se ejecutaran de acuerdo al Plan de Trabajo, que contendrá las intervenciones de auditoria, estudios especiales y otras labores a realizar. No obstante, cualquier estudio o investigación solicitado por la Juma Directiva, Presidencia Ejecutiva y Dirección Ejecutiva, deberá ser atendida en forma prioritaria.

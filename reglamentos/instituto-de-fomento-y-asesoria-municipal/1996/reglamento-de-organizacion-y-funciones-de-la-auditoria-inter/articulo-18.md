@@ -1,1 +1,0 @@
-Artículo 18.—La Auditoría Interna deberá dar seguimiento a las recomendaciones formuladas en sus informes, así como las provenientes de la Contraloría General de la República y las originadas en intervenciones externas de auditoría.
