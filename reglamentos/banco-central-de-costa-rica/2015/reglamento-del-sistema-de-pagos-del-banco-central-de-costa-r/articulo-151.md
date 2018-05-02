@@ -1,3 +1,6 @@
-Artículo 151. Principios del registro de movimientos. El registro de los movimientos en las cuentas de valores se rige por el principio de buena fe registral y por los principios de prioridad y tracto sucesivo, conforme con lo dispuesto en el Reglamento sobre los Sistemas de Anotación en Cuenta, promulgado por el CONASSIF.
-Los movimientos de valores serán irrevocables frente a sus ordenantes o terceros una vez que la transacción ha sido enviada, según se establece en el ciclo de cada servicio.
-Los movimientos de valores serán firmes exigibles y oponibles frente a sus ordenantes o terceros una vez que la transacción haya sido liquidada sobre la cuenta de valores respectiva, según se establece en el ciclo de cada servicio, no pudiendo ser impugnados o anulados por causa alguna, ni siquiera por el inicio de un procedimiento de reorganización o liquidación contra un participante. Los listados y registros del servicio Cuentas de Valores serán prueba de los movimientos registrados en dicho servicio.
+ANOTACIÓN EN CUENTA
+LIBRO XV
+CUENTAS DE VALORES
+CAPÍTULO I
+DEL SERVICIO
+Artículo 151. Definición del servicio. Cuentas de Valores es el servicio por medio del cual se administra el registro de los valores anotados en cuenta, conforme con el Título VII de la Ley 7732.

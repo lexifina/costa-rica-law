@@ -1,2 +1,3 @@
-Artículo 417. Interoperabilidad. Las empresas internacionales o locales propietarias de las marcas de medios de pago deberán permitir a cualquier entidad financiera nacional, siempre que cumpla con los requisitos y estándares técnicos definidos, actuar como adquirente de dicha marca en el mercado local, a fin de lograr la interoperabilidad y eficiencia de este sistema.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 412 al 417)
+Artículo 417. Medios de representación. La entidad origen podrá documentar la domiciliación mediante los siguientes medios de representación:
+a) Domiciliación física: con un formulario impreso, suscrito entre el cliente destino y el cliente origen, con el detalle de las calidades de ambos y las características de la transacción que motiva su suscripción. Las normas complementarias del servicio establecen las condiciones de dicho formulario.
+b) Domiciliación electrónica: con un registro electrónico en sus sistemas internos de información, debiendo en este caso mantener las anotaciones que respalden y demuestren la autorización emitida por el cliente destino.

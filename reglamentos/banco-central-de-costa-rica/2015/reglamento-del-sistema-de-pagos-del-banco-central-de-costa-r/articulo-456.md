@@ -1,3 +1,2 @@
-Artículo 456. Revisión y ajuste de las tarifas y comisiones. La estructura de tarifas y comisiones del SINPE será revisada y ajustada anualmente, con base en la metodología aprobada por la Junta Directiva.
-El ajuste de tarifas y comisiones respectivo tendrá vigencia a partir de enero de cada año.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 451 al 456)
+Artículo 456. Del diseño de las tarjetas de pago. Para facilitarle al cliente la identificación de las funcionalidades disponibles en su tarjeta de pago, el emisor deberá imprimir al lado derecho de donde se ubica el chip criptográfico (EMV), el símbolo reconocida internacionalmente para la identificación del pago sin contacto; además, el símbolo de firma digital al lado izquierdo del chip criptográfico (EMV), en caso que la tarjeta de pago incorpore esa otra tecnología.
+La impresión del código IBAN en la tarjeta debe realizarse de conformidad con las disposiciones establecidas en el presente reglamento.

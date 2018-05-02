@@ -1,3 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 161. Participantes del servicio. En el servicio Registro de Emisiones deben participar las entidades públicas que emitan valores anotados en cuenta, y sus representantes. Además, podrán participar las entidades de custodia y los miembros liquidadores.
+Artículo 161. Condiciones para el cierre de una cuenta. El cierre de una cuenta de valores podrá ejecutarse solo después de que se haya liquidado su saldo y la cuenta no mantenga operaciones pendientes de liquidación.

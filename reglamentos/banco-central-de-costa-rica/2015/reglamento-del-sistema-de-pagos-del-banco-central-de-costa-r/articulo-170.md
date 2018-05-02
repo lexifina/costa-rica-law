@@ -1,1 +1,1 @@
-Artículo 170. Conciliación de cuentas. El emisor, o su representante, es responsable de conciliar diariamente sus emisiones, debiendo comunicar por escrito al BCCR cualquier inconsistencia a más tardar al día hábil siguiente.
+Artículo 170. Consultas del estado de cuenta. El BCCR deberá habilitar facilidades de consulta a disposición de los participantes, para que puedan acceder directamente a la información de su estado de cuenta.

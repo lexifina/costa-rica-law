@@ -1,5 +1,1 @@
-LIBRO XV
-REGISTRO DE EMISIONES
-CAPÍTULO I
-DEL SERVICIO
-Artículo 159. Definición del servicio. Se define Registro de Emisiones como el servicio por medio del cual se administran las emisiones de valores públicos anotados en cuenta, conforme con el Título VII de la Ley 7732.
+Artículo 159. Cierre de cuentas por inactividad. El BCCR procederá con el cierre de cuentas cuando hayan permanecido sin saldo e inactivas de conformidad con lo que establezca al respecto la SUGEVAL.

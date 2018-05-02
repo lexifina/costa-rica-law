@@ -1,4 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 433. Participantes del servicio. En el servicio ISP participan todos los asociados del SINPE, así como cualquier otra institución pública o privada que administre o disponga de información sobre medios de pago y del Sistema de Pagos.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 428 al 433)
+Artículo 433. Naturaleza del padrón. El PUC es administrado por el BCCR como herramienta de apoyo al control, así como para prevenir y reprimir las actividades de legitimación de capitales y el financiamiento al terrorismo dentro del Sistema Financiero Nacional.

@@ -1,2 +1,1 @@
-Artículo 457. Transacciones sin costo. Como un incentivo al reemplazo del uso del efectivo, el BCCR no cobrará ninguna tarifa ni comisión interbancaria por las transacciones menores o iguales a cien mil colones, en los servicios de movilización de fondos a terceros (Transferencia a Terceros, Débito en Tiempo Real, Crédito Directo, Débito Directo y SINPE Móvil).
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 452 al 457)
+Artículo 457. Cambio de PIN. Los emisores deberán brindar a sus clientes las facilidades necesarias para realizar el cambio de PIN y garantizarle su uso dentro o fuera del territorio nacional.

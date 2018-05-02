@@ -1,2 +1,3 @@
-Artículo 261. Atención de contingencias. Ante caso fortuito, fuerza mayor o eventos como corridas bancarias, el numerario depositado en las CAN a cargo de las entidades financieras constituye el medio de provisión inmediato a la economía. La Custodia General del BCCR operará como última instancia de abastecimiento, lo cual queda sujeto a que la entidad correspondiente disponga de fondos en su cuenta y cumpla lo indicado en la norma complementaria del servicio.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 256 al 261)
+CAPÍTULO IV
+DE LOS PARTICIPANTES DE MONEX-SUBASTA
+Artículo 261. Participantes del mercado. En este servicio participan el BCCR y las entidades autorizadas para actuar como intermediarios cambiarios, conforme con las disposiciones contenidas en el Reglamento para las Operaciones Cambiarias de Contado.

@@ -1,2 +1,2 @@
-Artículo 364. Información de contacto. Para obtener certificados digitales de persona jurídica, sin detrimento de otra información requerida por la CA SINPE – Persona Jurídica, el Tramitador debe registrar información de contacto por medios electrónicos.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 359 al 364)
+Artículo 364. Certificación de usuarios. Con la aprobación de un curso de capacitación, el participante obtiene una certificación que lo habilita a operar los servicios del SINPE contemplados dentro del programa del curso. Los afiliados deben cumplir con el porcentaje mínimo de usuarios certificados en cada servicio que se establezca en la norma complementaria.
+Los afiliados son responsables de verificar que las personas que participan en el SINPE como usuarios de su entidad, estén capacitados y debidamente certificados por el BCCR.

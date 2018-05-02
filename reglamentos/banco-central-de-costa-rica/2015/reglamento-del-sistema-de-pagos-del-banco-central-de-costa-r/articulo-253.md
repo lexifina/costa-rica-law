@@ -1,2 +1,3 @@
-Artículo 253. Definición de topes. El BCCR podrá establecer topes mínimos o máximos en relación con el numerario que deberán mantener las entidades en cada una de las CAN bajo su responsabilidad para cada tipo de moneda, de manera que se garantice un manejo adecuado del riesgo y la atención oportuna de situaciones contingentes a las que están expuestas las entidades del Sistema Financiero Nacional.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 248 al 253)
+CAPÍTULO V
+DE LAS RESPONSABILIDADES
+Artículo 253. Suficiencia de fondos. Las entidades que capten recursos son responsables de mantener en su cuenta los fondos suficientes para cubrir en la fecha de vencimiento, el pago del principal adeudado y los respectivos intereses.

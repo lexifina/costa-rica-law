@@ -1,2 +1,3 @@
-Artículo 321. Aplazamiento de los ciclos de operación. El Director de la División Sistemas de Pago o quien éste designe, podrá extender los horarios de los ciclos de operación de los servicios del SINPE ante situaciones que a su criterio puedan desencadenar un riesgo sistémico.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 316 al 321)
+CAPÍTULO IV
+DE LOS REQUERIMIENTOS DE GARANTÍA
+Artículo 321. Requerimiento mínimo para los asociados. Como requerimiento mínimo de garantía, los asociados deberán mantener un monto en garantías al menos igual al promedio móvil más dos desviaciones estándar, que resulte de la suma de sus débitos netos diarios producidos en los últimos 70 días naturales por los servicios de compensación multilateral neta del SINPE, con excepción del servicio de CCD y CDD.

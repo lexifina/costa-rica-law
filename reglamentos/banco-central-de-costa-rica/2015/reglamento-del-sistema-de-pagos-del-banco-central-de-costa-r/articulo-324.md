@@ -1,2 +1,1 @@
-Artículo 324. Condiciones de la SAO. La SAO deberá contar con las condiciones físicas y los recursos necesarios que garanticen a los asociados la operación adecuada del SINPE en sus instalaciones, conforme con las especificaciones contenidas en las normas complementarias del servicio.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 319 al 324)
+Artículo 324. Restitución de la garantía. En el caso de que las obligaciones financieras lleguen a superar el monto de las garantías aportadas, el asociado deberá realizar una restitución de garantía por el monto necesario para cumplir satisfactoriamente con el nivel mínimo requerido para respaldar sus obligaciones.

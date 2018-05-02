@@ -1,4 +1,1 @@
-CAPÍTULO IV
-DE LAS RESPONSABILIDADES
-Artículo 344. Autorización de RST. Es responsabilidad del asociado autorizar, por medio de su representante legal, un mínimo de dos funcionarios para desempeñar la función de RST.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 339 al 344)
+Artículo 344. Incumplimiento de obligaciones vencidas. Cuando la parte obligada a pagar incurra en el incumplimiento parcial o total de una obligación financiera vencida, el BCCR certificará los montos que se adeudan por este concepto, así como el motivo y demás aspectos relevantes relacionados con el surgimiento de la obligación, a efectos de que el acreedor gestione ante el deudor, por los medios que estime pertinentes, la recuperación de las sumas adeudadas.

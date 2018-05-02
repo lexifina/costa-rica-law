@@ -1,5 +1,3 @@
-CAPÍTULO III
-DEL CICLO DEL SERVICIO
-Artículo 73. Ciclo de operación del servicio. El ciclo del servicio TFI se efectuará de conformidad con las siguientes etapas:
-a) Envío de la transferencia: La entidad origen emite una instrucción para transferir dinero de su cuenta de fondos a la cuenta de fondos de una entidad destino. Una vez cerrada esta etapa, la transacción se considera irrevocable.
-b) Liquidación de la transferencia: El SIL efectúa la liquidación en firme utilizando el mecanismo de liquidación bilateral bruta en tiempo real.
+Artículo 73. Normativa de operación. El organizador de mercados deberá emitir normas internas de adhesión y funcionamiento, incluyendo manuales y procedimientos, que especifiquen aspectos como: criterios de participación, responsabilidades y derechos del administrador y los participantes, mecanismos de prevención para el caso de incumplimiento de un participante, medidas de seguridad del sistema operativo y medidas correctivas que deben seguirse ante fallas del sistema, incluyendo los planes de contingencia respectivos.
+Lo anterior, con el fin de que se le permita a sus integrantes comprender claramente el impacto que tiene dicho sistema, así como los riesgos financieros en los que incurren con su participación en el mencionado sistema.
+De la misma forma deberá informar oportunamente y con claridad sobre las comisiones que cobre a los participantes por sus servicios, las cuales no podrán ser discriminatorias (igualdad de condiciones), así como las comisiones y cargos que los participantes podrán cobrarse entre ellos.

@@ -1,2 +1,3 @@
-Artículo 413. Requerimientos para las redes de cajeros automáticos. Los procesadores de las transacciones realizadas en las redes de cajeros automáticos, deberán habilitarlas con la capacidad de aceptar el protocolo EMV.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 408 al 413)
+CAPÍTULO VI
+DEL COBRO DE LOS SERVICIOS
+Artículo 413. Procedimiento de cobro. El cobro por los servicios de firma digital para personas físicas o jurídicas se realizará mediante Débito a una cuenta IBAN del solicitante, la cual debe registrar en el proceso de trámite de emisión de su certificado digital. Cuando se trate de entidades asociadas al SINPE el cobro se realizará con cargo a la cuenta SINPE correspondiente.

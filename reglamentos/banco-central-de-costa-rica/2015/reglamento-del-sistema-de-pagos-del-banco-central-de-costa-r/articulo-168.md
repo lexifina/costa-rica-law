@@ -1,3 +1,1 @@
-CAPÍTULO V
-DE LAS RESPONSABILIDADES
-Artículo 168. Representación de emisores. Los representantes de los emisores son responsables de la suscripción y administración de las emisiones de la entidad que representan, así como de las actividades que contemplen en el acuerdo de representación.
+Artículo 168. Responsabilidades civiles. Las omisiones de registro, inexactitudes y retrasos de las inscripciones que ocurran entre los registros del participante y el registro central administrado por el BCCR, producirán repercusiones civiles sobre la entidad responsable del problema, conforme con lo dispuesto en la Ley 7732.

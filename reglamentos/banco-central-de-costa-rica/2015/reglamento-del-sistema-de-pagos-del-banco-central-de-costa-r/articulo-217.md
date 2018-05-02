@@ -1,2 +1,1 @@
-Artículo 217. Competencias del BCCR. El BCCR tendrá acceso a la información de todas las operaciones que se oferten y negocien a través del servicio, sin restricciones de ningún tipo.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 212 al 217)
+Artículo 217. Horario de funcionamiento. El servicio Registro de Deuda en Depósito estará disponible para la administración de la deuda durante el horario bancario, y a modo de consulta durante el horario de operación del SINPE.

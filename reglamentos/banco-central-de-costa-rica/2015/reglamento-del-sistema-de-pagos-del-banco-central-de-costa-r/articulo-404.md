@@ -1,4 +1,3 @@
-CAPÍTULO VI
-DEL ESQUEMA DE OPERACIÓN DEL SERVICIO
-Artículo 404. Reportes de información transaccional. Los participantes deben reportar mensualmente al BCCR, el saldo y los montos acumulados de depósitos de cada una de las cuentas que registren en el padrón, en la forma y por los medios que se determine en la norma complementaria del servicio.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 399 al 404)
+CAPÍTULO IV
+DE LOS SERVICIOS DE VALOR AGREGADO
+Artículo 404. Definición de los servicios. Servicios autenticados, dirigidos a los suscriptores de certificados digitales emitidos por las Autoridades Certificadoras del SINPE, orientados a la autenticación de usuarios, custodia de certificados digitales, así como a la firma digital de archivos electrónicos en formatos oficiales y a la emisión de estampas de tiempo con relevancia jurídica.

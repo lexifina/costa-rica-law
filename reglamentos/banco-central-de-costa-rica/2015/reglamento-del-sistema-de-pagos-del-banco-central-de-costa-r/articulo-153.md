@@ -1,3 +1,3 @@
-CAPÍTULO V
-DE LAS RESPONSABILIDADES
-Artículo 153. Registro de pignoraciones. Las entidades de custodia deben registrar en las cuentas de valores de terceros que mantengan abiertas en el servicio, las pignoraciones y despignoraciones que ordenen las autoridades judiciales o que se deban efectuar en virtud de la constitución de una garantía. Igual responsabilidad corresponde al BCCR con las anotaciones en las cuentas propias de los participantes.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 153. Participantes del servicio. En el servicio Cuentas de Valores deben operar las entidades de custodia y los miembros liquidadores, de conformidad con la Ley 7732.

@@ -1,2 +1,3 @@
-Artículo 447. Confidencialidad de la información. La información a la que acceda el participante con las consultas deberá ser tratada con un carácter confidencial, debiendo utilizarla el participante con los cuidados y controles necesarios para evitar accesos no autorizados por parte de terceros.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 442 al 447)
+CAPÍTULO VI
+DEL ESQUEMA DE OPERACIÓN DEL SERVICIO
+Artículo 447. Reportes de información transaccional. Los participantes deben reportar mensualmente por medio de los sistemas de información habilitados por medio de SICVECA, el saldo, los montos acumulados de depósitos y demás datos que se determinen en las normas complementarias del servicio, respecto a todas las cuentas registradas en el PUC. Aquellos participantes que no están sujetos a la supervisión de la SUGEF deberán reportar la información respectiva directamente al PUC.

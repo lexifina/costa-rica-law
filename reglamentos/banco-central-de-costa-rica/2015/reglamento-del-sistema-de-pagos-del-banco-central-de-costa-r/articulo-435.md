@@ -1,2 +1,3 @@
-Artículo 435. Administración de información. El servicio ISP administrará la información de las transacciones realizadas por los asociados en todos los servicios financieros del SINPE y aquella generada a partir de los diferentes medios de pago ofrecidos por el Sistema Financiero Nacional.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 430 al 435)
+CAPÍTULO III
+DEL REGISTRO DE CUENTAS
+Artículo 435. Registro de cuentas de fondos. El PUC se proveerá, en primera instancia, de la información de las cuentas de fondos enviada por las entidades financieras al SICVECA. Toda aquella información que no pueda ser suministrada por el SICVECA, deberá ser enviada por los participantes directamente al PUC.

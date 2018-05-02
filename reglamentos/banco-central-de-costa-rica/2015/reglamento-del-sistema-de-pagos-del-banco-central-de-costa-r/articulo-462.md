@@ -1,2 +1,3 @@
-Artículo 462. Publicación de información. Con el fin de cumplir con lo dispuesto por la Ley 7472, el BCCR actualizará y publicará periódicamente en el sitio Web del BCCR, las estructuras de comisiones, canales de distribución y horarios con los que las entidades financieras ofrecen a sus clientes los servicios interbancarios del SINPE, de manera que los usuarios del Sistema Financiero Nacional tengan acceso a la información relacionada con las condiciones de comercialización de dichos servicios.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 457 al 462)
+CAPÍTULO V
+DE LAS TERMINALES DE PUNTOS DE VENTA (POS)
+Artículo 462. Requerimientos de los POS. El adquirente debe asegurarse que el establecimiento comercial afiliado tenga habilitados POS con la capacidad de aceptar dispositivos de pago que incorporen las tecnologías EMV, la tecnología de pago sin contacto y la capacidad de validar al cliente mediante el uso del PIN en línea o autenticación biométrica.

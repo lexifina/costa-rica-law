@@ -1,5 +1,5 @@
-LIBRO XIII
-MONEDERO BANCARIO (SINPE MÓVIL)
+LIBRO XII
+INFORMACIÓN Y LIQUIDACIÓN DE IMPUESTOS
 CAPÍTULO I
 DEL SERVICIO
-Artículo 121. Definición del servicio. Se denomina SINPE Móvil al servicio de liquidación multilateral neta por medio del cual las entidades asociadas al SINPE procesan pagos de sus clientes, con acreditación de los fondos en tiempo real sobre una cuenta del cliente físico o jurídico asociada a un número de teléfono móvil.
+Artículo 121. Definición del servicio. Información y Liquidación de Impuestos (ILI) es el servicio por medio del cual se reciben los fondos de la recaudación nacional de rentas, tanto las correspondientes al Gobierno Central de la República, como aquellas a favor de instituciones públicas y otras instituciones cuya ley de creación le asigna la responsabilidad de recepción y distribución al BCCR.

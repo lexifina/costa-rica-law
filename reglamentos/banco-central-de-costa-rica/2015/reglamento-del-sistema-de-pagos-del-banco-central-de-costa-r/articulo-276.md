@@ -1,8 +1,5 @@
-GESTIÓN DE LA LIQUIDEZ DEL SISTEMA DE PAGOS
-LIBRO XXVI
-(Corrida la numeración del Libro anterior en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo Libro XXV al XXVI)
-GESTIÓN DE RIESGOS
+LIBRO XXVII
+CUSTODIA DE NUMERARIO
 CAPÍTULO I
 DEL SERVICIO
-Artículo 276. Definición del servicio. Se define Gestión de Riesgos al conjunto de mecanismos dispuestos por el BCCR para mitigar los riesgos de liquidez, operativo y sistémico, derivados del funcionamiento del Sistema de Pagos.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 271 al 276)
+Artículo 276. Definición del servicio. Las Custodias Auxiliares de Numerario (CAN) constituyen el conjunto de procesos operativos, la logística y la plataforma electrónica en la que operan las Custodias de Numerario. Mediante este servicio el BCCR atiende los requerimientos de numerario de los asociados y mantiene parte de su disponibilidad de numerario (colones y dólares estadounidenses) en bóvedas o espacios acondicionados por tales entidades bajo absoluta responsabilidad de estas, para usarlo según el BCCR lo determine.

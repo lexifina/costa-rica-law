@@ -1,2 +1,4 @@
-Artículo 243. Atención de requerimientos de numerario y empaquetado. La División de Sistemas de Pago del BCCR establecerá en las normas complementarias de los servicios CAN y MEN, los criterios para la atención de los requerimientos de las entidades financieras, tanto para depósitos como para retiros de numerario; así como los estándares que deberán cumplir con el empaquetado del numerario.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 238 al 243)
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 243. Participantes del servicio. En el servicio MIL intervienen el BCCR y los asociados autorizados en las Regulaciones de Política Monetaria para operar en los mercados interbancarios.
+La participación del BCCR es con fines de ejecución de su política monetaria y de estabilización del sistema financiero nacional; además, la podrá realizar con operaciones de ventanilla o mediante subastas.

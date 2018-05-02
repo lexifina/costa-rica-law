@@ -1,1 +1,1 @@
-Artículo 143. Manejo del saldo de las cuentas. El saldo de las cuentas de valores se mantiene por cantidad de valores para cada emisión y por el valor nominal del total de los valores anotados, siempre en la moneda que corresponda para la emisión.
+Artículo 143. Horario de funcionamiento. Sinpe Móvil está disponible para los clientes finales durante el horario de operación del SINPE.

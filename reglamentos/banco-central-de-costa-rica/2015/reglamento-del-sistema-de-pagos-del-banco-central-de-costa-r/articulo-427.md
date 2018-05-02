@@ -1,4 +1,3 @@
-CAPÍTULO IV
-DE LAS RESPONSABILIDADES
-Artículo 427. Obligatoriedad de uso del servicio. Los asociados deberán utilizar el servicio REF para presentar todos los reclamos que realicen por concepto de débitos no autorizados o créditos no aplicados, por lo que la entidad destinataria no estará obligada a atender ningún reclamo presentado por medios ajenos al servicio.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 422 al 427)
+DE LOS PARTICIPANTES
+Artículo 427. Participantes. Podrá operar en el servicio CSO cualquier afiliado que requiera conocer el detalle de las transacciones que su entidad ha tramitado en representación de sus clientes, ya sea como originador o receptor.
+El servicio está dirigido a personas con funciones de control y monitoreo de transacciones interbancarias y a los organismos facultados legalmente para acceder a la información de esas transacciones.

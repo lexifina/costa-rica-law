@@ -1,1 +1,1 @@
-Artículo 128. Comunicación. Los participantes deberán comunicar al poseedor del número de teléfono móvil sobre el trámite de afiliación.
+Artículo 128. Plazos de liquidación. Las entidades recaudadoras deben liquidar el monto de los impuestos recaudados de conformidad con los plazos definidos por el MHDA y el BCCR.

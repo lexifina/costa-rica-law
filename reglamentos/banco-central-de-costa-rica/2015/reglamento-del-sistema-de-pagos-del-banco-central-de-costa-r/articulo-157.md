@@ -1,1 +1,1 @@
-Artículo 157. Consultas del estado de cuenta. El BCCR deberá poner facilidades de consulta a disposición de los participantes, para que puedan acceder directamente a la información de su estado de cuenta.
+Artículo 157. Administración de las cuentas de terceros. La administración de las cuentas de terceros estará a cargo de las entidades de custodia, las que podrán abrir, suspender y cerrar cuentas.

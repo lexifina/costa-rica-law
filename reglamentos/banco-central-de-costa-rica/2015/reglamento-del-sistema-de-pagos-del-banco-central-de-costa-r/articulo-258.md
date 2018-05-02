@@ -1,2 +1,5 @@
-Artículo 258. Mecanismos de control. Las entidades deberán practicar, al cierre de operaciones diarias, las verificaciones que le garanticen que el numerario mantenido en la CAN sea consistente con el monto y la estructura denominativa que reporta electrónicamente el servicio. Asimismo, deberán verificar diariamente el adecuado funcionamiento del CCTV y los demás mecanismos de control que disponen las normas complementarias.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 253 al 258)
+CAPÍTULO II
+DE LOS PARTICIPANTES DE MONEX-CONTINUO
+Artículo 258. Participantes del servicio. En este servicio operan el BCCR y los asociados autorizados para actuar como intermediarios cambiarios, conforme con las disposiciones contenidas en el Reglamento para las Operaciones Cambiarias de Contado.
+Podrán operar también los asociados del SINPE que, no siendo entidades autorizadas para realizar intermediación cambiaria, se suscriban al mismo con el propósito de satisfacer sus necesidades propias de transacción de divisas.
+La Junta Directiva del BCCR determinará por acuerdo el tipo de personas físicas y jurídicas que pueden operar, además de las entidades autorizadas que lo hacen por medio del SINPE.

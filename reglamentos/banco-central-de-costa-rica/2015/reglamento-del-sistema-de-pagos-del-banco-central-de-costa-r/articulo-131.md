@@ -1,1 +1,3 @@
-Artículo 131. Pago de comisiones a cargo de los clientes. Será potestad del participante establecer el cobro de una comisión al cliente cuando con sus transacciones supere las sumas acumuladas que se definen en el artículo precedente. Como criterio de cobro de las comisiones, el participante decidirá si los excedentes los contabiliza por número de cuenta IBAN o por cliente.
+CAPÍTULO III
+DEL CICLO DEL SERVICIO
+Artículo 131. Modalidad del servicio. El servicio LSE operará con base en la información suministrada por el organizador de mercados, cuyos datos podrán presentarse bajo la modalidad de resultados bilaterales o resultados multilaterales, según sea el esquema definido por el organizador de mercados.

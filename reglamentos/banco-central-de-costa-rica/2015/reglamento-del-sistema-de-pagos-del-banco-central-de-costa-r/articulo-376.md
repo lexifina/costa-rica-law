@@ -1,4 +1,3 @@
-Artículo 376. Custodia de la domiciliación. La entidad origen deberá custodiar la orden de domiciliación física, pudiendo hacer uso de los mecanismos electrónicos de digitalización que permita la ley para mantener copia del registro original.
-La custodia del documento de domiciliación deberá extenderse por cinco años después de la fecha en que la correspondiente Autorización de Débito Automático quede inhabilitada. Este mismo plazo rige para efectos de cumplir con las obligaciones que se relacionen con la demostración de la domiciliación electrónica.
-Cuando por razones especiales la entidad destino lo solicite, la entidad origen deberá demostrar a esta la existencia de la orden de domiciliación. Dicha demostración debe realizarse en copia certificada y dentro de los tres días hábiles siguientes a la fecha de la solicitud que realice la entidad destino, de manera que le permitan a esta documentar los trámites administrativos o legales que motivan su solicitud.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 371 al 376)
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 376. Participantes del servicio. En el servicio AES operan todos los afiliados del SINPE.

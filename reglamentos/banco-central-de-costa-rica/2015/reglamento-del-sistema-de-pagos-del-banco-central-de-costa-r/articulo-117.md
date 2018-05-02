@@ -1,5 +1,1 @@
-LIBRO XII
-LIQUIDACIÓN DE SERVICIOS EXTERNOS (LSE)
-CAPÍTULO I
-DEL SERVICIO
-Artículo 117. Definición del servicio. Se define LSE como el servicio de compensación multilateral neta por medio del cual se liquida, en las cuentas de fondos de dos o más entidades financieras, el resultado producido por un servicio de compensación externo u operado por el BCCR.
+Artículo 117. Débitos a tarjeta de crédito. Las entidades podrán habilitar por medio del servicio CDD el cobro a una tarjeta de crédito, en cuyo caso, la entidad destino podrá cobrar al cliente destino una comisión por dicha transacción.

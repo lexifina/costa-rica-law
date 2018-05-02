@@ -1,2 +1,1 @@
-Artículo 465. Cobro de tarifas y comisiones ante cierre de cuentas. Con el cierre de las cuentas de fondos de un asociado, el BCCR efectuará el cobro de las tarifas y comisiones adeudadas al momento del cierre.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 460 al 465)
+Artículo 465. Promoción en el uso del pago sin contacto. Los emisores, adquirentes y establecimientos comerciales deberán promover el uso del pago sin contacto, sin que el cliente deba entregar el dispositivo de pago, mediante campañas de educación y capacitación con el personal encargado de la atención al cliente, con el propósito de lograr una mayor eficiencia y seguridad en la gestión de pago.

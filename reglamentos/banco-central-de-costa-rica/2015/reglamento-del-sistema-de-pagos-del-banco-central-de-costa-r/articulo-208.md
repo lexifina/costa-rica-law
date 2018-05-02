@@ -1,2 +1,1 @@
-Artículo 208. Comunicación a los inversionistas. El emisor deberá comunicar a cada inversionista el resultado de su participación en la ventanilla, así como el detalle de los montos asignados, el precio de asignación y cualquier otra información de carácter relevante.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 203 al 208)
+Artículo 208. Del mantenimiento del registro oficial. La Dirección General de Tributación es responsable de la atención diligente de las solicitudes de exención, toda vez que estas pasan a formar parte del registro oficial de entidades exentas.

@@ -1,1 +1,1 @@
-Artículo 163. Registro de emisiones. Los emisores deberán registrar en el servicio las emisiones en serie inscritas en el Registro Nacional de Valores e Intermediarios emitidas en forma anotada en cuenta.
+Artículo 163. Liquidación de valores pignorados. Los valores que a su fecha de vencimiento se encuentren pignorados, se liquidarán en la cuenta que corresponda para cada caso en particular, conforme con las instrucciones establecidas para la pignoración.

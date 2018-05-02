@@ -1,2 +1,3 @@
-Artículo 359. Formalidades de las OR. Los asociados que deseen fungir como OR para la gestión de certificados de persona física deben formalizar su relación con la Autoridad Certificadora del SINPE y cumplir con las formalidades, funciones y responsabilidades establecidas en el presente reglamento y las normas complementarias del servicio.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 354 al 359)
+CAPÍTULO XIV
+DE LA SALA ALTERNA DE OPERACIONES
+Artículo 359. Disponibilidad de la Sala Alterna de Operaciones. El BCCR tiene a disposición de los afiliados una Sala Alterna de Operación (SAO), para que puedan ejecutar sus procesos de operación en el SINPE cuando enfrenten alguna situación contingente que les imposibilite hacerlo desde sus oficinas.

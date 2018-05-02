@@ -1,4 +1,1 @@
-CAPÍTULO V
-DE LA GARANTÍA EN VALORES
-Artículo 292. Cuenta de valores en garantía. El BCCR podrá mantener abierta una cuenta de valores con una entidad de custodia, para administrar los valores que los asociados decidan rendir en garantía.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 287 al 292)
+Artículo 292. Atención de contingencias. Ante caso fortuito, fuerza mayor o eventos como corridas bancarias, el numerario depositado en las CAN a cargo de los asociados constituye el medio de provisión inmediato a la economía. La Custodia General del BCCR operará como última instancia de abastecimiento siempre y cuando el asociado correspondiente disponga de fondos en su cuenta y cumpla con las regulaciones definidas al respecto.

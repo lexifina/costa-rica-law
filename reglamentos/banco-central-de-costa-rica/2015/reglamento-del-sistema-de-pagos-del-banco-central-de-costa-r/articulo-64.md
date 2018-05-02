@@ -1,1 +1,1 @@
-Artículo 64. Participación mínima. El mercado organizado o la operativa de pago respectiva que solicite al BCCR la liquidación de sus operaciones sobre las cuentas de fondos de las entidades en el BCCR deberá contar con la participación de al menos dos entidades financieras con cuenta de fondos en el BCCR.
+Artículo 64. Inembargabilidad de las cuentas. De conformidad con lo establecido en la Ley 8876, las cuentas de fondos mantenidas por los afiliados en el BCCR son inembargables.

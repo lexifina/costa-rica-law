@@ -1,7 +1,5 @@
-LIBRO XXXVII
-(Corrida la numeración del Libro anterior en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo Libro XXXVI 435 al XXXVII)
-TARIFAS Y COMISIONES (TCS)
+LIBRO XXXVI
+INFRAESTRUCTURAS DE PAGOS ELECTRONICOS AL DETALLE
 CAPÍTULO I
 DEL SERVICIO
-Artículo 452. Definición del servicio. Se define TCS como el servicio de compensación multilateral neta, por medio del cual se cobran las tarifas por el uso de la plataforma del SINPE y las comisiones interbancarias.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 447 al 452)
+Artículo 452. Ámbito de aplicación. El presente libro regula las infraestructuras del mercado financiero que procesan pagos por medio de tarjetas y dispositivos electrónicos, así como a las entidades y los actos que se realicen con el uso y funcionamiento de dichas infraestructuras.

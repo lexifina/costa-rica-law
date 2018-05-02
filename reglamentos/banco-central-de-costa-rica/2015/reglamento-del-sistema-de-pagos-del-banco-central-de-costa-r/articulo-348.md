@@ -1,2 +1,3 @@
-Artículo 348. Actualización de la información en el servicio. Los RST de cada asociado deberán mantener actualizados en el servicio todos los datos relativos a los funcionarios de su entidad, a saber: Gerentes generales, gerentes financieros, gerentes de operación, tesoreros, responsable de servicios, responsable informático, auditores generales, directores informáticos, oficiales de cumplimiento y usuarios de los servicios del SINPE, así como cualquier otro grupo de usuarios que requiera el BCCR para la operación y desarrollo del sistema.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 343 al 348)
+CAPÍTULO X
+DE LAS RESPONSABILIDADES CON RESPECTO A LAS GARANTÍAS
+Artículo 348. Sustitución de garantías. Los asociados deberán atender con la oportunidad requerida por el BCCR, las instrucciones que el propio BCCR les suministre para la sustitución de garantías.

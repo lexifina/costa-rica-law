@@ -1,1 +1,3 @@
-Artículo 26. Presentación de reclamos. Los reclamos por incumplimiento en el plazo de acreditación, deben ser presentados por el cliente afectado en una primera instancia ante la entidad financiera a la cual se le imputa el incumplimiento, la que deberá atenderlos con la debida diligencia. En caso de que el cliente no considere satisfactoria la respuesta de la entidad, podrá presentar la respectiva denuncia ante el Director de la División de Sistemas de Pago del BCCR.
+CAPÍTULO VII
+DE LA ACREDITACIÓN DE FONDOS A LOS CLIENTES
+Artículo 26. Acreditación efectiva de fondos. Los afiliados al SINPE deben liberar los fondos a sus clientes dentro de los plazos definidos para los servicios financieros. Ante situaciones contingentes aplicará lo establecido en el libro Gestión de Riesgos del presente reglamento.

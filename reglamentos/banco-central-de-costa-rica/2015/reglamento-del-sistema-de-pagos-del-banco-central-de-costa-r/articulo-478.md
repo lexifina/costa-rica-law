@@ -1,0 +1,1 @@
+Artículo 478. Presentación del reclamo. Los reclamos por servicios de crédito deben ser presentados ante la entidad origen. Los que correspondan a servicios de débito deberán presentarse ante la entidad destino.

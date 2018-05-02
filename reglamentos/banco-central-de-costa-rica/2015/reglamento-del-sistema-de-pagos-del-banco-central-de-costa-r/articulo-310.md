@@ -1,2 +1,1 @@
-Artículo 310. Aplicación de sobrantes. Cuando la ejecución de una garantía produzca algún sobrante, luego de haber liquidado satisfactoriamente las obligaciones financieras incumplidas, el BCCR lo acreditará en la cuenta de fondos de la entidad titular de la garantía ejecutada.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 305 al 310)
+Artículo 310. Servicios a cargo de terceros. El asociado será responsable ante el BCCR por las acciones que realice la empresa que le brinda servicios de transporte o que negocie numerario por su cuenta.

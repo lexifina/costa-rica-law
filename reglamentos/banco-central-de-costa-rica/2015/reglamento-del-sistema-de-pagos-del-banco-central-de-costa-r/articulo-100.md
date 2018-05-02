@@ -1,9 +1,13 @@
-CAPÍTULO III
+CAPÍTULO VII
 DEL CICLO DEL SERVICIO
-Artículo 100. Ciclo de operación del servicio. El ciclo del servicio COV se efectuará de conformidad con las siguientes etapas:
-a) Envío de cobro: La entidad origen envía un archivo electrónico con la información detallada de todos los valores recibidos de sus clientes que han sido emitidos por otras instituciones financieras. Posterior al cierre de esta etapa, las transacciones se considerarán irrevocables y cada asociado recibirá un archivo con la información de los valores cobrados por los demás asociados a través del SINPE.
-b) Reunión de intercambio físico de cobro: Los delegados de cada asociado intercambian el físico de los valores cobrados electrónicamente.
-c) Transmisión electrónica de devoluciones: La entidad destino envía un archivo electrónico con la información detallada de los valores recibidos en las etapas anteriores del ciclo vigente, que resulten rechazados durante los procesos de consulta y verificación correspondientes. Posterior a la transmisión de devoluciones, se realiza una compensación multilateral neta y cada asociado recibe un archivo electrónico con la información de los valores devueltos por los demás asociados.
-d) Reunión de intercambio físico de devoluciones: Los delegados de cada asociado intercambian el físico de los valores que resulten rechazados electrónicamente.
-e) Liquidación: El SIL efectúa la liquidación en firme utilizando el mecanismo de liquidación multilateral neta.
-f) Acreditación de fondos: Los asociados deben acreditar en las cuentas de sus clientes el producto de los valores recibidos en el horario bancario, a más tardar a las doce horas del segundo día hábil del ciclo.
+Artículo 100. Ciclo de operación del servicio. El ciclo del servicio SIP opera con las siguientes etapas:
+ENVÍO DE PAGO
+a) Envío del pago: la entidad origen emite, por mandato de su cliente o por cuenta propia, una instrucción para transferir dinero de su cuenta de fondos a la cuenta de fondos de una entidad destino en el exterior, con la indicación expresa de que se acredite la cuenta propia de dicha entidad o la cuenta de uno de sus clientes. Las transacciones son irrevocables a partir del momento en que se cierra esa etapa.
+b) Trámite del pago en el exterior: después de recibida la instrucción de pago electrónica, el BCCR inmoviliza los fondos respectivos a la entidad origen y tramita dicho pago hacia el exterior.
+c) Liquidación del pago: el SIL efectúa la liquidación en firme, con el mecanismo de liquidación bilateral bruta en tiempo real, luego de recibida la confirmación del pago. En caso de rechazo de la transacción, el SIL procederá a liberar los fondos que habían sido inmovilizados a la entidad origen.
+d) Acreditación del pago en el exterior: después de vencido el plazo establecido para la devolución, la entidad bancaria destino en el exterior acredita los fondos al cliente destino conforme con los tiempos de acreditación establecidos en la norma complementaria del servicio.
+RECEPCIÓN DE PAGO
+a) Recepción del pago: el BCCR recibe del exterior una instrucción de pago irrevocable dirigida a una entidad destino o hacia uno de sus clientes.
+b) Trámite del pago: después de recibida la instrucción de pago electrónica, el BCCR tramitará el pago a la entidad destino por medio del servicio SIP.
+c) Liquidación del pago: el SIL efectúa la liquidación en firme, con el mecanismo de liquidación bilateral bruta en tiempo real, luego de recibida la confirmación del pago. En caso de rechazo de la transacción, el SINPE tramita el rechazo como una nueva transacción de pago hacia el exterior.
+d) Acreditación del pago: si la transacción es aceptada, la entidad destino deberá acreditar en tiempo real el total del monto en la cuenta respectiva.

@@ -1,2 +1,1 @@
-Artículo 342. Autorización mancomunada. La creación de cualquier ARS, RST, RSP, DDU, consultante o usuario, la asignación o modificación de perfiles o cualquier acción que implique otorgar nuevos derechos de uso de funcionalidades en el SINPE, requiere de la autorización en forma mancomunada de dos responsables de seguridad.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 337 al 342)
+Artículo 342. Criterio de días al vencimiento para la ejecución. En caso de ejecución de valores, se ejecutarán primero las que a la fecha de liquidación tengan la menor cantidad de días al vencimiento.

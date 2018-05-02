@@ -1,3 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 93. Participantes del servicio. En el servicio CLC deben participar como entidad destino los bancos comerciales, y podrán participar como entidad origen todas las entidades financieras asociadas al SINPE.
+Artículo 93. Débitos a tarjeta de crédito. Las entidades podrán habilitar por medio del servicio DTR el cobro a una tarjeta de crédito, en cuyo caso, la entidad destino podrá cobrar al cliente destino una comisión por la transacción.

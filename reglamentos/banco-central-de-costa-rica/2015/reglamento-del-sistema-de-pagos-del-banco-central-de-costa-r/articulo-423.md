@@ -1,7 +1,7 @@
-RECLAMACIÓN POR DEBITOS NO AUTORIZADOS
-Artículo 423. Ciclo de operación para débitos no autorizados. El ciclo de reclamación por débitos no autorizados en los servicios CDD y DTR, se efectuará de conformidad con las siguientes etapas:
-a) Envío del cobro revertido: La entidad origen del reclamo emite una instrucción para que se debiten los fondos reclamados de la cuenta de fondos de la entidad destino del reclamo. La instrucción deberá especificar el número de referencia del cobro respectivo.
-El SINPE valida en tiempo real que la transacción reclamada haya sido procesada previamente por el sistema, que cumpla con el plazo establecido para realizar el reclamo y que para la transacción no hayan sido devueltos los fondos previamente.
-b) Notificación del cobro revertido: Las instrucciones de cobro revertido recibidas, cuya validación sea exitosa, serán comunicadas en tiempo real a la entidad destino del reclamo. Con base en la información recibida, la entidad destino del reclamo podrá debitar la cuenta IBAN del cliente destino, informando a éste sobre el reclamo tramitado.
-c) Liquidación: El SIL efectúa la liquidación en tiempo real, utilizando el mecanismo de liquidación bilateral bruta.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 418 al 423)
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES
+Artículo 423. Responsabilidades de la entidad origen:
+a) Asumir frente a la entidad destino las obligaciones financieras que se deriven de las órdenes de domiciliación que tramite y que hayan sido activadas por la entidad destino luego de ejecutar los procesos de validación que establecen las normas complementarias del servicio, ya sea que se trate de órdenes de domiciliación propias o de sus clientes.
+Para efectos de tramitar las órdenes de domiciliación que le presenten sus clientes, la entidad origen podrá exigir a estos las garantías que considere pertinentes.
+b) Conservar y administrar con debida diligencia las órdenes de domiciliación físicas que le corresponda custodiar, así como mantener las seguridades necesarias en sus sistemas de información para proteger los registros de las órdenes de domiciliación electrónicas y demostrar frente a la entidad destino su existencia cuando esta se lo solicite.
+En las situaciones en que la entidad origen no demuestre la domiciliación dentro de los términos establecidos en el presente libro, deberá reintegrar de inmediato a la entidad destino el monto de los débitos automáticos que, con base en la domiciliación no demostrada, haya ordenado en los tres meses anteriores contados a partir del momento en que la entidad destino solicita la demostración.

@@ -1,2 +1,3 @@
-Artículo 415. Requerimientos para los adquirentes de transacciones con tarjetas de pago. Las entidades financieras y comerciales que acepten pagos con tarjetas deberán habilitar las terminales en los puntos de venta (POS por sus siglas en inglés) con la capacidad de aceptar el protocolo EMV y procesar pagos sin contacto.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 410 al 415)
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 415. Participantes del servicio. En el servicio ADA deben operar como entidad origen y destino los asociados que administren cuentas de fondos, y podrán operar como entidad origen todos los asociados y proveedores de servicios de pago del SINPE.

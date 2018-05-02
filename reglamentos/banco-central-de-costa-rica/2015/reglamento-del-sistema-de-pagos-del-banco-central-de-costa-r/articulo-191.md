@@ -1,4 +1,1 @@
-CAPÍTULO IV
-De las responsabilidades
-Artículo 191.—Principios de la negociación. El BCCR o el MHDA, según corresponda, deberán garantizar a los inversionistas transparencia en los procesos de captación y las condiciones de acceso a las opciones de inversión y a la información relevante del servicio, todo ello de conformidad con las condiciones que se establezcan para las negociaciones.
-(Así adicionado en sesión N° 5707 del 23 de diciembre de 2015)
+Artículo 191. Inconsistencias de fondos o valores. Las entidades de compensación y liquidación de valores deberán resolver las inconsistencias de fondos o valores derivadas del procesamiento de los archivos de liquidación de mercados, para lo cual deben actuar con diligencia a efectos de que las inconsistencias que se presenten no alteren el procesamiento normal de las demás operaciones que liquida el SINPE.

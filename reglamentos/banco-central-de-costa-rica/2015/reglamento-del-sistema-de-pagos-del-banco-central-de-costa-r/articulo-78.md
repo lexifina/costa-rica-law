@@ -1,1 +1,3 @@
-Artículo 78. Horario del servicio. El servicio TFT estará disponible durante el horario de operación del SINPE.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 78. Participantes del servicio. En el servicio TFI deben operar todos los afiliados del SINPE.

@@ -1,2 +1,3 @@
-Artículo 280. Porcentaje de cobertura. Las garantías en valores se tomarán por el porcentaje del valor de mercado que se establezca en las normas complementarias del servicio, conforme con lo que al efecto resuelva el órgano administrativo facultado por la Junta Directiva del BCCR para esos fines.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 275 al 280)
+CAPÍTULO III
+DEL MODELO DE OPERACIÓN
+Artículo 280. Solicitud para administrar CAN. Los asociados que decidan administrar CAN bajo su cuenta y riesgo, deberán solicitarlo al Departamento de Tesorería del BCCR. El trámite se resolverá según corresponda en un plazo máximo de 10 días hábiles después de recibida la solicitud.

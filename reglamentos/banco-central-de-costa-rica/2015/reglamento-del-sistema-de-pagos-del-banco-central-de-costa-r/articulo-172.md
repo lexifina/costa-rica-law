@@ -1,1 +1,5 @@
-Artículo 172. Horario de funcionamiento. El servicio Liquidación de Mercados estará disponible para el envío de archivos durante el horario bancario, y a modo de consulta durante el horario de operación.
+LIBRO XVI
+REGISTRO DE EMISIONES
+CAPÍTULO I
+DEL SERVICIO
+Artículo 172. Definición del servicio. Se define Registro de Emisiones como el servicio por medio del cual se administran las emisiones de valores públicos anotados en cuenta, conforme con el Título VII de la Ley 7732.

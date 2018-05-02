@@ -1,1 +1,1 @@
-Artículo 96. Confirmación de cheques. Los bancos valoraran la posibilidad de promover con la mayor celeridad con sus clientes, la confirmación de todos los cheques que éstos emitan. En caso de adoptarla, deberán ajustarse a la norma operativa y el estándar físico del cheque en donde se establecerán las condiciones que deberán cumplir las entidades para dicha confirmación de cheques.
+Artículo 96. Horario del servicio. El servicio DTR estará disponible durante el horario de operación del SINPE.

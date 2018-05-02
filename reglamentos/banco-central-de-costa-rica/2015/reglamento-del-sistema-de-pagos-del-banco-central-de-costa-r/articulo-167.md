@@ -1,4 +1,1 @@
-CAPÍTULO IV
-DE LA LIQUIDACIÓN DE VENCIMIENTOS
-Artículo 167. Liquidación de vencimientos. En la fecha de vencimiento de las emisiones y en las fechas intermedias en las que corresponda el pago de intereses, el servicio emitirá una instrucción al SIL para que los fondos se acrediten en firme sobre la cuenta de fondos de las entidades de custodia y de los miembros liquidadores que corresponda, con cargo a la cuenta de fondos del emisor o de su agente de pago.
-La liquidación de los vencimientos la efectúa el SIL utilizando el mecanismo de liquidación bilateral bruta.
+Artículo 167. Conciliación de cuentas de valores. Los participantes son responsables de conciliar diariamente su cuenta propia y las de sus clientes, así como de comunicar por escrito al BCCR cualquier inconsistencia a más tardar al día hábil siguiente.

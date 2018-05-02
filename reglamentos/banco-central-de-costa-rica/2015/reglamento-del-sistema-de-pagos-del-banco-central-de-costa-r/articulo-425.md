@@ -1,2 +1,6 @@
-Artículo 425. Alcance del reclamo de créditos no aplicados. La reclamación por créditos no aplicados se limita a una solicitud de información efectuada por la entidad origen, por lo que no implica para la entidad destino del reclamo ningún movimiento de dinero sobre su cuenta de fondos.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 420 al 425)
+LIBRO XXXIV
+CONTROL Y SEGUIMIENTO DE OPERACIONES
+CAPÍTULO I
+DEL SERVICIO
+Artículo 425. Definición del servicio. Control y Seguimiento de Operaciones (CSO) es el servicio por medio del cual se consultan las transacciones que efectúan los afiliados por medio del SINPE, en nombre de terceros, sean personas físicas o jurídicas.
+El servicio CSO permite la identificación plena de las personas involucradas en las transacciones, pudiéndose determinar el origen y destino de los fondos o valores movilizados, así como identificar a los afiliados que intervinieron en las transacciones.

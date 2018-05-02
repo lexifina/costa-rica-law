@@ -1,6 +1,2 @@
-Artículo 43. Criterios. El reconocimiento de un sistema de pago o de valores como de importancia sistémica lo realizará el BCCR, amparado a la Ley 8876, Tratado sobre sistemas de pagos y de liquidación de valores de Centroamérica y República Dominicana, tomando en consideración los siguientes aspectos:
--Si el sistema es utilizado por el BCCR en su papel de autoridad monetaria.
--La actividad incorrecta, ineficiente o no fiable del sistema, pueda afectar la red de pagos de la economía y con ello, amenazar la estabilidad o la confianza del sistema financiero y ; derivar en serias consecuencias para el comercio u otros intereses en el país.
--El valor total de las órdenes de pago que se reciben y procesan.
--La cantidad total de órdenes de pago que se reciben y procesan.
--El número de participantes.
+Artículo 43. Política conozca a su cliente. Los afiliados se regirán por la política conozca a su cliente, conforme con las regulaciones que en esta materia emita la autoridad de regulación competente, de modo que son responsables por las operaciones ingresadas al SINPE en nombre de sus clientes.
+Es responsabilidad de los afiliados verificar las calidades de los clientes en nombre de quienes realizan transacciones por medio del SINPE, así como mantenerlas en constante revisión mientras se mantenga la relación comercial.

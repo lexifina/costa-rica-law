@@ -1,6 +1,2 @@
-CAPÍTULO IV
-DE LAS TARIFAS Y COMISIONES
-Artículo 455. Fijación de tarifas y comisiones. Las comisiones por los servicios que se provean entre sí las entidades financieras a través del SINPE, así como las tarifas por la utilización de los servicios del SINPE, son fijadas por el BCCR en colones.
-El cobro de tarifas y comisiones se hará efectivo a partir del mes siguiente en que el asociado inicia su participación en el servicio, de forma tal que los cobros siempre se realicen por meses completos.
-En los casos del retiro de servicios, los cobros por suscripción se harán por el mes completo en que la entidad decida retirarse como participante de un servicio, debiendo también cobrarse las tarifas que procedan por las transacciones que procese durante ese periodo.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 450 al 455)
+Artículo 455. Dispositivos prepago. Los emisores podrán emitir dispositivos prepago al portador. El monto máximo de depósito mensual en una cuenta prepago será de 100 mil colones o su equivalente en moneda extranjera. Estos dispositivos prepago serán exclusivamente de uso local y para transacciones de tarjeta presente.
+En dispositivos prepago de marca compartida con empresas públicas o privadas, el monto máximo de depósito y de uso mensual se definirá según las necesidades de la empresa. En caso que se ofrezca la posibilidad de recargar este tipo de prepago corporativo por parte de alguien distinto a la propia empresa, a estos fondos se les deberá aplicar la restricción del monto máximo de 100 mil colones mensuales o su equivalente en moneda extranjera. .

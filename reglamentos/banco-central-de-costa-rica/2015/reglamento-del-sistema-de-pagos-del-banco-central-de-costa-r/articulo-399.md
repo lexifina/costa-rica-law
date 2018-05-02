@@ -1,6 +1,2 @@
-Artículo 399. Requisitos de apertura y funcionamiento de las CES de Nivel 2.
-a) Presentación del documento de identificación del titular de la cuenta: debe corresponder a un documento emitido por una autoridad nacional y se requiere que sea validado contra las bases de datos oficiales.
-b) Canales autorizados para la apertura de la cuenta: agencias, sucursales y corresponsales bancarios.
-c) Información requerida del cliente: nombre completo, número y tipo de documento de identificación y número de teléfono móvil. El registro electrónico de estos datos sustituye el formulario conozca a su cliente.
-d) Límite máximo de depósitos en la cuenta: dos mil dólares estadounidenses o su equivalente en moneda nacional u otra divisa.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 394 al 399)
+Artículo 399. Inspecciones por parte del BCCR. Los administradores de OR están en la obligación de permitir las inspecciones que programe el BCCR en sus OR para verificar el cumplimiento del marco regulatorio aplicable al funcionamiento de las OR. Con tales propósitos deberán suministrar al BCCR la información que les requiera, con el formato y las condiciones que este defina.
+Las mismas condiciones deberán ser provistas por los participantes a los funcionarios de la Dirección de Certificadores de Firma Digital, del Ministerio de Ciencia y Tecnología y Telecomunicaciones, según lo dispone la normativa nacional vigente.

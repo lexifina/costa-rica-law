@@ -1,2 +1,6 @@
-Artículo 311. Transparencia de los procesos de ejecución. La ejecución de garantías deberá realizarse mediante procedimientos transparentes, de acuerdo con lo establecido en la norma complementaria del servicio, de modo que aseguren en todo momento la protección de los derechos de los asociados durante el proceso de ejecución.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 306 al 311)
+GESTIÓN DE LA LIQUIDEZ DEL SISTEMA DE PAGOS
+LIBRO XXIX
+GESTIÓN DE RIESGOS
+CAPÍTULO I
+DEL SERVICIO
+Artículo 311. Definición del servicio. Gestión de Riesgos es el conjunto de mecanismos dispuestos por el BCCR para mitigar los riesgos de liquidez, operativo y sistémico asociados al funcionamiento del Sistema de Pagos.

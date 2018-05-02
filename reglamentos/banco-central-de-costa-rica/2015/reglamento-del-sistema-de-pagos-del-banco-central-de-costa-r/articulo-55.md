@@ -1,1 +1,3 @@
-Artículo 55. Apertura de cuentas. El asociado podrá mantener solo una cuenta en colones y una cuenta por tipo de moneda extranjera, salvo cuando medie autorización expresa de la División Sistemas de Pago para abrir cuentas adicionales.
+CAPÍTULO XII
+DE LAS RESPONSABILIDADES DEL BCCR
+Artículo 55. Responsabilidad por daños. En su calidad de operador del SINPE, el BCCR será responsable por cualquier pérdida, pago, costo y gasto (incluidos los gastos legales) causados en el procesamiento de una transacción, en caso de que incurra en un error, o exista una acción dolosa cometida por alguno de sus funcionarios, o se dé una mala utilización del sistema por parte de un tercero que haya tenido acceso a éste por negligencia suya, o bien cuando no se apliquen las políticas de seguridad y procedimientos de autenticación definidos en las normas complementarias respectivas.

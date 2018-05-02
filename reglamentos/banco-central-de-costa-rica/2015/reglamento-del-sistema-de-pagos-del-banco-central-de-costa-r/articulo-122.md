@@ -1,3 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 122. Participantes. En el servicio SINPE Móvil podrá participar como origen cualquier entidad asociada al SINPE, pudiendo también participar como destino las que administren cuentas de clientes físicos o jurídicos asociadas a números de teléfono móvil.
+Artículo 122. Pago de comisiones. El pago de las comisiones por concepto de recaudación de impuestos será realizado a los entes recaudadores en forma automática por el servicio.

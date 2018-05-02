@@ -1,1 +1,3 @@
-Artículo 166. Autorización de movimientos. Todo movimiento regular sobre las emisiones que deba realizar el BCCR en virtud de su negociación en los mercados de valores, por la atención de instrucciones de los miembros liquidadores, o por cualquier otra afectación que se derive de los servicios ofrecidos por el BCCR, quedará autorizado con la sola incorporación de la entidad emisora al servicio.
+CAPÍTULO V
+DE LAS RESPONSABILIDADES
+Artículo 166. Registro de pignoraciones. Las entidades de custodia deberán registrar en las cuentas de valores de terceros que mantengan abiertas en el servicio, las pignoraciones y despignoraciones que ordenen las autoridades judiciales o que se deban efectuar en virtud de la constitución de una garantía. Igual responsabilidad corresponde al BCCR con las anotaciones en las cuentas propias de los participantes.

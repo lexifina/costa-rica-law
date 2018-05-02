@@ -1,1 +1,1 @@
-Artículo 127. Canales de acceso. Los participantes podrán habilitar a sus clientes las funcionalidades del SINPE Móvil en cualquiera de sus canales bancarios.
+Artículo 127. Custodia de enteros por impuestos específicos. El BCCR es responsable de custodiar los enteros de impuestos específicos y de remitirlos a las entidades beneficiarias, de conformidad con los plazos establecidos en las normas complementarias del servicio.

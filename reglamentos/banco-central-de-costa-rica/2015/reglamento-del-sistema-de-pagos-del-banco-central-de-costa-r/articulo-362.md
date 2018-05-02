@@ -1,3 +1,3 @@
-Artículo 362. Medida preventiva ante incumplimiento. Cuando una OR incumpla alguna de las disposiciones establecidas para su apertura y operación, su autorización de funcionamiento será suspendida por el BCCR, debiendo el participante abstenerse de realizar en la OR suspendida, cualquier actividad relacionada con el servicio Firma Digital.
-Para la reapertura de la OR suspendida, el participante deberá someterse al mismo procedimiento de validación establecido por el BCCR para autorizar la apertura de una OR.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 357 al 362)
+CAPÍTULO XV
+DE LA CAPACITACIÓN Y CERTIFICACIÓN DE USUARIOS
+Artículo 362. Programa de capacitación del SINPE. La División Sistema de Pagos mantendrá un programa permanente de capacitación para los usuarios del SINPE, debiendo disponer de las instalaciones, equipo técnico y demás recursos necesarios para impartir una instrucción adecuada sobre las funcionalidades del sistema.

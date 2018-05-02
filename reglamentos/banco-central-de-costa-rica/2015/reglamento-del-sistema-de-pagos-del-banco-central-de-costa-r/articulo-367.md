@@ -1,2 +1,1 @@
-Artículo 367. Validación de certificados. Como parte del servicio de emisión de certificados de persona física y de persona jurídica, la Autoridad Certificadora del SINPE mantendrá publicadas las Listas de Certificados Revocados a fin de que puedan ser consultadas por cualquier interesado para determinar si debe desconfiar de un certificado debido a que este haya sido revocado.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 362 al 367)
+Artículo 367. Conexión de estaciones de trabajo. Los afiliados deberán tener habilitados los servicios del SINPE en al menos dos de sus estaciones de trabajo.

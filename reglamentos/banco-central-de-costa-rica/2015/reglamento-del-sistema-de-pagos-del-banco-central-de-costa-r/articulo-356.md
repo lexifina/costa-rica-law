@@ -1,4 +1,1 @@
-CAPÍTULO III
-DE LAS DISPOSICIONES GENERALES
-Artículo 356. Marco Legal. Los servicios de firma digital y sus participantes se rigen conforme a lo que establece la Ley de Certificados, Firmas Digitales y Documentos Electrónicos Nº8454, el reglamento a esta ley, el presente reglamento y las normas complementarias de los servicios de firma digital.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 351 al 356)
+Artículo 356. Responsabilidad del aplazamiento. El procedimiento de aplazamiento de devoluciones opera bajo la completa responsabilidad del afiliado, por lo que el afiliado que lo utilice deberá suministrar las justificaciones pertinentes a sus clientes y al ente supervisor que corresponda, en virtud de la no acreditación de fondos dentro de lo establecido por las leyes vigentes.

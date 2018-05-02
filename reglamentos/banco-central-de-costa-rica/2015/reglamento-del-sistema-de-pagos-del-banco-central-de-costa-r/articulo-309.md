@@ -1,2 +1,3 @@
-Artículo 309. Incumplimiento de obligaciones vencidas. Cuando la parte obligada a pagar incurra en el incumplimiento parcial o total de una obligación financiera vencida, el BCCR certificará los montos que se adeudan por este concepto, así como el motivo y demás aspectos relevantes relacionados con el surgimiento de la obligación, a efectos de que el acreedor gestione ante el deudor, por los medios que estime pertinentes, la recuperación de esas sumas.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 304 al 309)
+CAPÍTULO V
+DE LAS RESPONSABILIDADES
+Artículo 309. Tratamiento de las diferencias. Las diferencias físicas de numerario que resulten de las negociaciones en el servicio, deben ser resueltas bilateralmente entre los asociados involucradas, siguiendo los criterios que al respecto establecen las normas complementarias del servicio.

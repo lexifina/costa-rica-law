@@ -1,5 +1,6 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 211. Participantes del servicio. En el servicio MIL intervienen el BCCR y las entidades autorizadas en las Regulaciones de Política Monetaria para participar en los mercados interbancarios.
-La participación del BCCR es con fines de ejecución de su política monetaria y de estabilización del sistema financiero nacional; además, la podrá realizar con operaciones de ventanilla o mediante subastas.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 206 al 211)
+MERCADOS Y REGISTRO DEUDA EN DEPÓSITO
+LIBRO XX
+CAPTACION DE FONDOS
+CAPÍTULO I
+DEL SERVICIO
+Artículo 211. Definición del servicio. Captación de Fondos (CAF) es el servicio por medio del cual se captan recursos en moneda nacional y extranjera, de acuerdo con las características de los instrumentos que apruebe la Junta Directiva del BCCR o el MHDA, según corresponda, en su papel de emisor.

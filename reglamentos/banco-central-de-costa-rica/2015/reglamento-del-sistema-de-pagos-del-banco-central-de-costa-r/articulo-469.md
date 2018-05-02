@@ -1,0 +1,1 @@
+Artículo 469. Suministro de información. Las entidades emisoras y adquirentes de dispositivos de pago, en concordancia con lo dispuesto en la Ley 7839, deberán suministrar al BCCR la información transaccional agregada que les requiera.

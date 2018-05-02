@@ -1,1 +1,3 @@
-Artículo 89. Horario del servicio. El servicio operará únicamente durante los días hábiles definidos en las normas complementarias del servicio.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 89. Participantes del servicio. En el servicio TCC podrán operar todos los asociados y asociados regionales.

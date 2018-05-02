@@ -1,3 +1,1 @@
-CAPÍTULO IV
-DE LA LIQUIDACION DE MERCADOS SOBRE LAS CUENTAS DE FONDOS
-Artículo 63. Autorización de liquidación. El operador de medios de pago o el organizador de un mercado que requieran liquidar las transacciones derivadas de su operativa sobre las cuentas de fondos mantenidas por las entidades financieras en el BCCR, deberá contar con la autorización de operación del BCCR para ordenar la liquidación sobre las mismas.
+Artículo 63. Apertura de cuentas. El afiliado podrá mantener solo una cuenta en moneda nacional y una cuenta por tipo de moneda extranjera, salvo cuando medie autorización expresa de la Dirección de la División Sistema de Pagos para abrir cuentas adicionales.

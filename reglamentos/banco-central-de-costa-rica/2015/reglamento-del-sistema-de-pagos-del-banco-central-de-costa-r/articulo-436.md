@@ -1,2 +1,3 @@
-Artículo 436. Información de otros sistemas de compensación y pago: En su función relacionada con la vigilancia del Sistema de Pagos, el BCCR administrará la información de todos aquellos sistemas de compensación y pago distintos del SINPE, que involucren la participación de cualquier entidad financiera del país.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 431 al 436)
+CAPÍTULO IV
+DE LAS CUENTAS DE EXPEDIENTE SIMPLIFICADO (CES)
+Artículo 436. Definición. Cuentas de Expediente Simplificado (CES) son las cuentas de fondos que pueden abrir las personas físicas mediante un trámite simplificado.

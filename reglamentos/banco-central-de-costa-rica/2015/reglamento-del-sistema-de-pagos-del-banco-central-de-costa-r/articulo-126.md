@@ -1,1 +1,1 @@
-Artículo 126. Condición de uso del servicio. Los clientes deberán asociar al menos un número de teléfono móvil a su cuenta IBAN; este número no puede ser asociado a ninguna otra cuenta IBAN en todo el sistema.
+Artículo 126. Custodia de enteros por impuestos del Gobierno. El MHDA es responsable de custodiar los enteros recibidos de las entidades recaudadoras, que correspondan a impuestos a favor del Gobierno de Costa Rica.

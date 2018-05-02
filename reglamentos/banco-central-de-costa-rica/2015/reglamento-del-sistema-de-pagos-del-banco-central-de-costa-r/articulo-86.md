@@ -1,5 +1,3 @@
-LIBRO VI
-PAGOS AL EXTERIOR (PEX)
-CAPÍTULO I
-DEL SERVICIO
-Artículo 86. Definición del servicio. Se define PEX como el servicio de liquidación bruta en tiempo real, por medio del cual una entidad envía o recibe pagos transfronterizos, de conformidad con las regulaciones establecidas en las Normas Generales del SIP.
+CAPÍTULO III
+DE LAS RESPONSABILIDADES
+Artículo 86. Validaciones automáticas de las transferencias. La entidad destino debe mantener en sus plataformas tecnológicas una funcionalidad para que realice en forma automática las validaciones necesarias para determinar la aceptación o el rechazo de las transferencias recibidas, de modo que su acreditación sobre las cuentas de los clientes destino se realice en forma inmediata y sin intervenciones manuales.

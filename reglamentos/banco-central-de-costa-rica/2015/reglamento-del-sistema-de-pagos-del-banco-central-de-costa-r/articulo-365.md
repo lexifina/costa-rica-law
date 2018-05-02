@@ -1,2 +1,8 @@
-Artículo 365. Nombramiento del Tramitador de Certificados. Toda Persona Jurídica interesada en obtener un certificado debe nombrar un Tramitador responsable de realizar todas las gestiones relacionadas con los certificados. La CA SINPE – Persona Jurídica validará la autenticidad de la identidad de la persona jurídica solicitante, así como la identidad de la persona física designada como “Tramitador de Persona Jurídica”.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 360 al 365)
+CAPÍTULO XVI
+DE LAS MEDIDAS EN EL ÁMBITO TECNOLÓGICO
+Artículo 365. Plataforma contingente. El SINPE deberá contar con una plataforma contingente que garantice su normal funcionamiento y la continuidad del negocio en la prestación de los servicios. Dicha plataforma deberá reunir las siguientes condiciones:
+a) Redundancia de operación normal en aspectos tales como: equipo informático, equipo de telecomunicaciones, personal de soporte, operación y mantenimiento.
+b) Funcionamiento adecuado durante el horario de operación del SINPE, debiendo contar con una arquitectura altamente tolerante a fallas y no estar fuera de servicio por más de 1 hora al año.
+c) Facilidades de acceso a las instalaciones para el personal del BCCR y de los afiliados.
+d) Planes de contingencia actualizados y periódicamente probados.
+e) Cualquier otro elemento de manejo de riesgos considerado en las normas complementarias del servicio.

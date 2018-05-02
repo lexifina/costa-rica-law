@@ -1,3 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 72. Participantes del servicio. En el servicio TFI deben participar todos los asociados del SINPE.
+Artículo 72. Participación mínima. El mercado organizado o la infraestructura de compensación que solicite al BCCR la liquidación de sus operaciones sobre las cuentas de fondos de los asociados en el BCCR deberá contar con la participación de al menos dos asociados con cuenta de fondos en el BCCR.

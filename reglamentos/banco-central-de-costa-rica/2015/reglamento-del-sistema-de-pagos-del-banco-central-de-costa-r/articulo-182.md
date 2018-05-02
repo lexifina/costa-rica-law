@@ -1,3 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 182. Participantes del servicio. En el servicio Traspaso de Valores deben participar las entidades de custodia y los miembros liquidadores.
+Artículo 182. Suficiencia de fondos. El emisor, o su agente de pago, debe mantener en su cuenta los fondos suficientes para cancelar los vencimientos de las emisiones a su cargo.

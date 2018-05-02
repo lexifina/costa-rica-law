@@ -1,2 +1,5 @@
-Artículo 201. Comunicación a los inversionistas. El emisor deberá comunicar a cada inversionista el resultado de sus negociaciones, así como el detalle de las ofertas asignadas y rechazadas, el criterio de asignación utilizado y cualquier otra información de carácter relevante.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 196 al 201)
+LIBRO XIX
+EXENTOS
+CAPÍTULO I
+DEL SERVICIO
+Artículo 201. Definición del servicio. Exentos es el servicio por medio del cual se gestiona la solicitud, aprobación y registro de la exoneración de la retención del impuesto sobre la renta que recae sobre los rendimientos generados por la inversiones en títulos valores.

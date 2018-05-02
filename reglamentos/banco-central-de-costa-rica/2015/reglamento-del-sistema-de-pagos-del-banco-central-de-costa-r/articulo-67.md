@@ -1,1 +1,3 @@
-Artículo 67. Información al BCCR. El organizador del mercado u operador de medios de pago deberá suministrar al BCCR la información estadística sobre las transacciones tramitadas en dicho mercado u operativa de pago, así como las normas, manuales y procedimientos que lo regulan, con el propósito de verificar el cumplimiento de las normas internas, en los términos y plazos que se determine.
+CAPÍTULO II
+DE LAS OPERACIONES SOBRE CUENTAS DE FONDOS
+Artículo 67. Autorización de movimientos. Todo movimiento regular sobre las cuentas de fondos que deba realizar el BCCR, en virtud de las transacciones que ordenen los afiliados (en nombre propio o de sus representados) o alguna empresa que le provea servicios de compensación a los asociados, o por cualquier otra afectación derivada de los servicios ofrecidos por el BCCR, quedará autorizado con la sola incorporación del afiliado al SINPE.

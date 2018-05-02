@@ -1,1 +1,1 @@
-Artículo 178. Inconsistencias de fondos o valores. Las entidades de compensación y liquidación de valores deberán resolver las inconsistencias de fondos o valores derivadas del procesamiento de los archivos de liquidación de mercados, para lo cual deben actuar con diligencia a efectos de que las inconsistencias que se presenten no alteren el procesamiento normal de las demás operaciones que liquida el SINPE.
+Artículo 178. Suspensión de emisiones. El BCCR suspenderá las emisiones registradas en el servicio cuando así lo ordene la SUGEVAL

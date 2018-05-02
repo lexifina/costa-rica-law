@@ -1,1 +1,3 @@
-Artículo 146. Cierre de cuentas por inactividad. El BCCR procederá con el cierre de cuentas cuando hayan permanecido sin saldo e inactivas por más de 6 meses contados a partir de la última transacción.
+CAPÍTULO V
+DEL PADRON MOVIL INTERBANCARIO
+Artículo 146. Definición. Se denomina padrón móvil interbancario al registro centralizado de todos los números de teléfono móvil asociados a cuentas IBAN por los participantes del servicio Sinpe Móvil. Su administración se encuentra a cargo del BCCR.

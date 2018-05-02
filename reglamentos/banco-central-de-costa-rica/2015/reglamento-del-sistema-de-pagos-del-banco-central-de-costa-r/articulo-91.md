@@ -1,1 +1,3 @@
-Artículo 91. Acreditación extemporánea o incorrecta de fondos. El BCCR no asumirá ninguna responsabilidad en caso que una transacción de pago no sea acreditada en la cuenta destino en el plazo definido para el servicio, o en caso de que la transacción no sea acreditada en la cuenta correcta. El BCCR se limitará a realizar las gestiones ante las instancias que corresponda para solicitar el reintegro o la acreditación correcta de los fondos respectivos.
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES
+Artículo 91. Registro de instrucciones de pago. Los participantes, previo al envió o recepción de transferencia de fondos, deben registrar ante el BCCR las instrucciones de pago requeridas para gestionar el envío de las transferencias hacia el exterior, de conformidad con lo establecido en las normas complementarias del servicio.

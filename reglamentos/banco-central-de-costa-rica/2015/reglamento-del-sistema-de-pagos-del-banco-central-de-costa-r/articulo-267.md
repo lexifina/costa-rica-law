@@ -1,5 +1,6 @@
-Artículo 267. Ejecución del procedimiento. La entidad a la que el BCCR le comunique el incumplimiento, podrá presentar las pruebas de descargo que estime pertinentes dentro de los cinco días hábiles siguientes a la comunicación. El BCCR valorará tales pruebas tomando en cuenta, entre otros criterios: la intención que pudo mediar en la comisión del hecho, el impacto financiero sobre la política monetaria, el riesgo al que se expuso el numerario, el historial de la CAN en cuanto a faltas, así como cualquier otro aspecto de control interno que considere pertinente.
-Según sean los resultados de la valoración, el BCCR podrá omitir el bloqueo a que se refiere el artículo precedente.
-El BCCR no podrá ejecutar lo señalado en el artículo precedente hasta tanto no se cumpla con el debido proceso. No obstante, dependiendo de la magnitud del riesgo al que se expone el numerario, como medida precautoria el BCCR podrá suspender de inmediato el funcionamiento de la CAN, hasta tanto considere que existe un adecuado ambiente de control interno.
-En caso de que se ratifique el incumplimiento, la entidad podrá retirar el numerario de la CAN afectada antes de que se ejecute el procedimiento.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 262 al 267)
+Artículo 267. Definición de términos. Para los fines del presente libro debe entenderse por:
+Categorías: clasificación del numerario basada en los niveles de calidad definidos por el BCCR.
+Cono monetario: conjunto de monedas emitidas por el BCCR cuyo diseño permite identificar y distinguir cada denominación.
+Familia de billetes: conjunto de billetes emitidos por el BCCR cuyo diseño permite identificar y distinguir cada denominación.
+Procesamiento: proceso manual o automatizado mediante el cual se valida la autenticidad, la cantidad y la calidad del numerario.
+Procesamiento del numerario: verificación de la autenticidad, la cantidad física y la clasificación del numerario en una de las categorías definidas.

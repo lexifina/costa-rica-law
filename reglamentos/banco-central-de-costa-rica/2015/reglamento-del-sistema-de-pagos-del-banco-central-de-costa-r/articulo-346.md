@@ -1,2 +1,1 @@
-Artículo 346. Responsabilidad sobre transacciones. El asociado asume total responsabilidad sobre cualquier transacción realizada por un usuario que haya sido autorizado por sus RST o RSP, así como cuando no pueda operar en el sistema debido a la falta de los RST o RSP requeridos para asignar derechos a los usuarios internos.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 341 al 346)
+Artículo 346. Transparencia de los procesos de ejecución. La ejecución de garantías deberá realizarse mediante procedimientos transparentes, de acuerdo con lo establecido en las normas complementarias del servicio, de modo que aseguren en todo momento la protección de los derechos de los asociados durante el proceso de ejecución.

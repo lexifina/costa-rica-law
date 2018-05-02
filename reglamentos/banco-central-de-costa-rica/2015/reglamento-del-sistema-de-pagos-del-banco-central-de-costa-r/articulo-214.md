@@ -1,2 +1,3 @@
-Artículo 214. Depósito de garantías. Para captar recursos con operaciones diferidas de liquidez garantizadas, el participante deberá previamente depositar valores en una cuenta de garantía o aportar garantías líquidas mantenidas en el BCCR, en ambos casos de conformidad con las disposiciones establecidas por el servicio Gestión de Riesgos, del presente reglamento.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 209 al 214)
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES
+Artículo 214. Principios de la negociación. El BCCR o el MHDA, según corresponda, deberán garantizar a los inversionistas transparencia en los procesos de captación y las condiciones de acceso a las opciones de inversión y a la información relevante del servicio, todo ello de conformidad con las condiciones que se establezcan para las negociaciones.

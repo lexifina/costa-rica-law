@@ -1,2 +1,1 @@
-Artículo 330. Liberaciones de software. El BCCR procurará realizar la liberación de nuevas versiones de software del SINPE o de actualización de su plataforma tecnológica, en horarios que no afecten la operativa normal del sistema.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 325 al 330)
+Artículo 330. Funciones del BCCR. El BCCR deberá administrar con diligencia los valores traspasados por los asociados a la cuenta de garantía, exigir las reposiciones de garantía cuando así se requiera y gestionar la ejecución de los valores en garantía en caso de incumplimiento por parte de algún asociado, a efectos de liquidar al acreedor el monto incumplido y los demás derechos patrimoniales que procedan en su favor.

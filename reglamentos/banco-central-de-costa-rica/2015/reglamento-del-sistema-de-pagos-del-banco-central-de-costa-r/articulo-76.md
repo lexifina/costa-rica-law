@@ -1,3 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 76. Participantes del servicio. En el servicio TFT pueden participar como entidad origen y destino los asociados del SINPE.
+Artículo 76. Responsabilidad de los participantes. El organizador del mercado es el único responsable por cualquier cargo indebido que se realice sobre las cuentas de fondos mantenidas por los asociados al SINPE producto de la compensación y liquidación de sus operaciones. Con la solicitud de suscripción al servicio, el representante legal de cada participante deberá hacer constar la liberación de responsabilidades del BCCR, con respecto a los procesos de compensación y liquidación de cargos indebidos.

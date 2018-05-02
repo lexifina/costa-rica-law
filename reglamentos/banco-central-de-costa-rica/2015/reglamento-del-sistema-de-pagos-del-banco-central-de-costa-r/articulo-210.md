@@ -1,7 +1,1 @@
-LIBRO XXI
-(Corrida la numeración del Libro anterior en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo libro XX al XXI)
-MERCADO INTEGRADO DE LIQUIDEZ (MIL)
-CAPÍTULO I
-DEL SERVICIO
-Artículo 210. Definición del servicio. Se define MIL como el servicio por medio del cual el BCCR controla la liquidez del sistema financiero, y los demás participantes realizan operaciones financieras para administrar sus posiciones de liquidez de corto plazo.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 205 al 210)
+Artículo 210. Manejo de las comunicaciones. Toda comunicación relacionada con el otorgamiento o suspensión de la exoneración se efectuará por medio de los medios oficiales de comunicación, tomándose como oficial la información de la entidad exenta y dirección de correo electrónico registrado en las solicitudes de exención por el usuario responsable del registro de éstas.

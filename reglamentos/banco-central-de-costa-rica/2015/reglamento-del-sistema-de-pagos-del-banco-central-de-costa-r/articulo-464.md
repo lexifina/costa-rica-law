@@ -1,4 +1,1 @@
-CAPÍTULO VI
-DEL PROCEDIMIENTO DE COBRO DE LAS TARIFAS Y COMISIONES
-Artículo 464. Casos especiales de cobro. Cuando la cuenta de fondos en colones del asociado no disponga de dinero suficiente, el cobro se realizará sobre la cuenta de fondos que mantenga en cualquier otra moneda, utilizando para ello el tipo de cambio de referencia de venta del día en que se realiza el cobro. Si la insuficiencia de fondos persiste, el BCCR intentará realizar el cobro una vez por día, hasta lograr su liquidación.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 459 al 464)
+Artículo 464. Señalización del pago sin contacto en establecimientos comerciales. El adquirente debe asegurar el mantenimiento de una adecuada señalización en los establecimientos comerciales, para que el cliente al momento de realizar las transacciones se informe de la posibilidad de uso de la tecnología de pago sin contacto, así como de cualquier otra facilidad que le ofrezca la infraestructura de pago disponible en dichos establecimientos. Los adquirentes deberán apegarse a lo normado al respecto por EMV Co para el uso del “Contactless Symbol”.

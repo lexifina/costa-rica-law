@@ -1,6 +1,1 @@
-SERVICIOS DE LIQUIDACIÓN EN TIEMPO REAL
-LIBRO II
-CUENTAS DE FONDOS SINPE
-CAPÍTULO I
-DEL SERVICIO
-Artículo 53. Definición del servicio. Servicio por medio del cual se administran las cuentas mantenidas por los asociados en el BCCR, las cuales se estructuran conforme con la naturaleza y funcionalidad para la que son constituidas.
+Artículo 53. Procedimiento. La División Sistema de Pagos, con base en los criterios definidos al efecto, determinará los sistemas considerados de importancia sistémica. En caso que existan modificaciones a los sistemas ya reconocidos deberá solicitarle a la Junta Directiva su reconocimiento, debiendo publicar en la página web del BCCR la lista de sistemas reconocidos con el detalle de sus participantes.

@@ -1,4 +1,6 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 444.-Participantes. Podrá participar en el servicio Consulta de Identificación Ciudadana cualquier asociado del SINPE que requiera la consulta de los datos demográficos, foto y firma de los ciudadanos costarricenses, en virtud de las necesidades de validación de la identidad de sus clientes durante el trámite de una transacción o la prestación de un servicio.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 439 al 444)
+Artículo 444. Requisitos de apertura y funcionamiento de las CES de Nivel 3.
+a) Presentación del documento de identificación del titular de la cuenta: el cliente de forma presencial deberá presentar su cédula de identidad, DIMEX o DIDI en cualquiera de los canales autorizados para la apertura y activación de la cuenta.
+b) Canales autorizados para la apertura y activación de la cuenta: agencias, sucursales, canales transaccionales autenticados o por parte de un agente autorizado de la entidad financiera. Podrán utilizarse canales electrónicos para la solicitud de apertura de la CES, pudiendo activarse para su uso estas cuentas, únicamente en caso de clientes regulares y si la solicitud se hace desde un canal transaccional autenticado.
+c) Información requerida del titular de la cuenta: el cliente deberá suscribir el documento de apertura de la cuenta especificando su nombre completo, número y tipo de documento de identificación, y el origen de los fondos. Este documento de apertura de la cuenta sustituye el formulario conozca a su cliente.
+d) Límite mensual máximo de depósitos en la cuenta: diez mil dólares estadounidenses o su equivalente en moneda nacional u otra divisa
+e) La entidad financiera deberá disponer del debido respaldo para demostrar fehacientemente el origen de los fondos del cliente.

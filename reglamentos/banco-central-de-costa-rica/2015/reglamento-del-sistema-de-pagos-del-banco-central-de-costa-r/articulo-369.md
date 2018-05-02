@@ -1,2 +1,5 @@
-Artículo 369. Condiciones para el uso de los servicios de valor agregado. Estos servicios requieren autenticación por parte del cliente que desea consumirlos. El proceso de autenticación debe realizarse con certificados de Autenticación de Persona Jurídica o bien de Persona Física emitidos por las Autoridades Certificadoras del SINPE. Estos servicios estarán disponibles para suscriptores de certificados digitales de las Autoridades Certificadoras del SINPE.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 364 al 369)
+LIBRO XXX
+SERVICIO INTERBANCARIO DE LIQUIDACIÓN
+CAPÍTULO I
+DEL SERVICIO
+Artículo 369. Definición del servicio. El Sistema Interbancario de Liquidación (SIL) constituye el mecanismo exclusivo del SINPE para liquidar los mercados y servicios financieros sobre las cuentas de fondos y de valores de sus afiliados, administrar la liquidez del sistema de pagos costarricense y hacer una adecuada gestión de los riesgos inherentes a su actividad, con el fin de promover la estabilidad y eficiencia del Sistema Financiero Nacional.

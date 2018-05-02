@@ -1,2 +1,3 @@
-Artículo 195. Suspensión de la participación. Cuando las actuaciones de algún inversionista no se ajusten a las sanas prácticas del mercado, el BCCR podrá suspender su participación en el servicio, debiendo notificar de inmediato a la SUGEVAL sobre la suspensión decretada y las causas que la justifican.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 190 al 195)
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 195. Participantes del servicio. En el servicio Traspaso de Valores deben operar las entidades de custodia y los miembros liquidadores.

@@ -1,1 +1,1 @@
-Artículo 142. Identificación de las cuentas de terceros. Las cuentas de terceros se identifican con el nombre y el número de documento de identificación de sus titulares, así como con su estado de domicilio y nacionalidad.
+Artículo 142. Notificación o aviso al cliente. Los participantes deberán comunicar al poseedor del número de teléfono móvil el trámite de suscripción, inactivación y movimientos de fondos producto del Sinpe Móvil.

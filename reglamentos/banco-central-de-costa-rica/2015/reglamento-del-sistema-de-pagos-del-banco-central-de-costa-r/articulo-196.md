@@ -1,14 +1,9 @@
 CAPÍTULO III
-DEL CICLO DE LA PRIMERA RONDA DE NEGOCIACIÓN
-Artículo 196. Ciclo de operación de la primera ronda. Toda negociación de valores por medio de una subasta contará con una primera ronda, realizada de acuerdo con las necesidades del emisor.
-El ciclo de operación de la primera ronda se efectuará de conformidad con las siguientes etapas:
-a) Convocatoria de negociación: El emisor convoca a los inversionistas anunciando los códigos ISIN objeto de negociación, los montos máximos y mínimos permitidos por tipo de oferta, las reglas de asignación y cualquier otra información que considere relevante para el proceso de negociación.
-El anuncio de la convocatoria deberá realizarse como mínimo el día hábil anterior a la negociación.
-Dentro del ciclo de la primera ronda, y de acuerdo con sus necesidades de captación, el emisor podrá convocar para una misma subasta un tramo competitivo y otro no competitivo.
-b) Recepción de ofertas: Los inversionistas envían sus ofertas de negociación por medio del servicio, desde el momento del anuncio de la convocatoria y hasta la hora de cierre de la recepción de ofertas. Dichas ofertas quedarán disponibles para que el emisor, luego de cerrado el periodo de recepción de ofertas, proceda con la asignación respectiva.
-El inversionista podrá modificar o eliminar sus ofertas mientras no se haya cerrado el periodo de recepción de ofertas. Una vez cerrado dicho periodo, todas las ofertas se tienen por irrevocables, aun y cuando hayan sido presentadas a nombre de un tercero que desista de las mismas.
-c) Asignación de ofertas: Las ofertas recibidas son asignadas por el emisor de conformidad con las condiciones de asignación anunciadas en la convocatoria. Se tendrá una hora límite para la asignación, así como para realizar la comunicación oficial de sus resultados el día de la negociación.
-d) Distribución de ofertas: Luego de cerrado el período de asignación y hasta la hora establecida, los inversionistas realizan la distribución del monto asignado sobre las cuentas de valores correspondientes.
-e) Liquidación: Las ofertas que resulten asignadas serán cumplidas irrevocablemente a la hora del día acordado para la liquidación, debiendo efectuarse la misma contra las cuentas de fondos que los inversionistas mantienen en el BCCR y sobre las cuentas administradas por el servicio Cuentas de Valores, mediante el mecanismo de entrega contra pago.
-Cuando un inversionista presente una insuficiencia de fondos que le imposibilite cubrir la totalidad de sus obligaciones financieras, la asignación final se hará hasta por el monto posible de liquidación, considerando primero aquellas ofertas que tengan un menor costo financiero para el emisor, en el entendido de que para estos casos no aplica el criterio de asignación parcial de ofertas.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 191 al 196)
+DEL CICLO DEL SERVICIO
+Artículo 196. Ciclo de operación del servicio. El ciclo del servicio Traspaso de Valores opera con las siguientes etapas:
+a) Envío del traspaso: el participante origen emite una instrucción para traspasar valores desde una de sus cuentas de valores, a una cuenta de valores administrada por él mismo o por otro participante.
+b) Aceptación o rechazo del traspaso: el participante destino confirma al participante origen la aceptación o rechazo del traspaso. Las transacciones son irrevocables a partir del momento en que se cierra esta etapa.
+La aceptación del traspaso no será requerida cuando el participante origen sea el mismo participante destino.
+Si se cumple el plazo establecido para la confirmación sin que el participante destino acepte o rechace la instrucción, el traspaso será rechazado por el servicio en forma automática.
+c) Liquidación del traspaso: el SIL efectúa la liquidación en firme del traspaso con el mecanismo de
+liquidación bilateral bruta en tiempo real.

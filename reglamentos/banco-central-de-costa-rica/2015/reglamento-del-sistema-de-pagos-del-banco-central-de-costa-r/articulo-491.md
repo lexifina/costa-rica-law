@@ -1,0 +1,1 @@
+Artículo 491. Responsables de ISP. Los afiliados y cualquier otra institución pública o privada que administre o disponga de información sobre medios de pago y del Sistema de Pagos, deberán designar un responsable de atender las solicitudes de información y consultas relacionadas.

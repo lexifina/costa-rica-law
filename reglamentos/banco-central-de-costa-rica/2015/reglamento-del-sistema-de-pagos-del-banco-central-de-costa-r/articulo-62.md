@@ -1,1 +1,1 @@
-Artículo 62. Conciliación de cuentas. El asociado deberá conciliar diariamente sus cuentas de fondos y comunicar por escrito al BCCR cualquier inconsistencia a más tardar al día hábil siguiente.
+Artículo 62. Moneda de las cuentas de fondos SINPE. Las cuentas de fondos SINPE son abiertas en moneda nacional o extranjera, de acuerdo con las necesidades del Sistema de Pagos.

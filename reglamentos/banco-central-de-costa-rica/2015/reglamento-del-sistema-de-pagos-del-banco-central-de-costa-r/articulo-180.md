@@ -1,5 +1,4 @@
-LIBRO XVII
-TRASPASO DE VALORES
-CAPÍTULO I
-DEL SERVICIO
-Artículo 180. Definición del servicio. Se define Traspaso de Valores como el servicio de liquidación bruta en tiempo real, por medio del cual se traspasan valores anotados en cuenta.
+CAPÍTULO IV
+DE LA LIQUIDACIÓN DE VENCIMIENTOS
+Artículo 180. Liquidación de vencimientos. En la fecha de vencimiento de las emisiones y en las fechas intermedias en las que corresponda el pago de intereses, el servicio emitirá una instrucción al SIL para que los fondos se acrediten en firme sobre la cuenta de fondos de las entidades de custodia y de los miembros liquidadores, con cargo a la cuenta de fondos del emisor o de su agente de pago.
+La liquidación de los vencimientos la realiza el SIL con el mecanismo de liquidación bilateral bruta.

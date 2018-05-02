@@ -1,3 +1,3 @@
-CAPÍTULO VII
-DE LAS RESPONSABILIDADES
-Artículo 137. Uso de los estándares y reglas de operación. Los participantes deberán proveer el servicio SINPE Móvil a sus clientes, tanto a nivel intrabancario como interbancario, respetando el nombre del servicio, las reglas de negocio y los estándares de mensajería, funcionalidad e interfaz de usuario que el BCCR defina en este reglamento y en la Serie de Normas y Procedimientos del SINPE.
+CAPÍTULO III
+DEL FUNCIONAMIENTO DEL SERVICIO
+Artículo 137. Suscripción e inactivación del servicio. La suscripción del servicio por parte de los clientes deberá realizarse por medio de todos los canales transaccionales autenticados (banca web, banca móvil, cajeros automáticos y plataforma de servicios, entre otros). La inactivación deberá estar disponible para el cliente en todos los canales transaccionales (autenticados y no autenticados), debiendo estar al menos uno de estos habilitado las 24 horas del día, todos los días del año. Respecto a la suscripción, la entidad que afilie un cliente físico o jurídico al servicio SINPE Móvil, deberá verificar previamente su voluntad de participar en dicho servicio.

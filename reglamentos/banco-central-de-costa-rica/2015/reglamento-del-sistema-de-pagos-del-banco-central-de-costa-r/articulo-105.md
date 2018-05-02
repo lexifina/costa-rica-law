@@ -1,1 +1,3 @@
-Artículo 105. Débitos a tarjeta de crédito. Las entidades podrán habilitar por medio del servicio CDD el cobro a una tarjeta de crédito, en cuyo caso, la entidad destino podrá cobrar al cliente destino una comisión por dicha transacción.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 105. Participantes del servicio. En el servicio CLC deben operar como entidad destino los emisores de cheques y podrán participar como entidad origen los asociados.

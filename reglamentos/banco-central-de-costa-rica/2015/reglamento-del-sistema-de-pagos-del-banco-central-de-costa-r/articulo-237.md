@@ -1,2 +1,3 @@
-Artículo 237. Cambio de la familia de billetes o del cono monetario. Cada vez que el BCCR emita una nueva familia de billetes o un nuevo cono monetario, retirará de circulación la familia de billetes o el cono monetario anterior. El BCCR deberá publicar oportunamente los planes de retiro y sustitución de numerario.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 232 al 237)
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 237. Participantes del servicio. En el servicio Ventanilla de Valores podrá operar el BCCR como emisor y los asociados del SINPE como inversionistas, de conformidad con las condiciones que la Junta Directiva del BCCR establezca para las negociaciones. Cuando así lo dispongan, el MHDA u otra institución pública también podrán operar como emisor. Para la participación como inversionistas, de personas físicas o jurídicas no asociadas a SINPE, el servicio se expondrá por el portal de Central Directo.

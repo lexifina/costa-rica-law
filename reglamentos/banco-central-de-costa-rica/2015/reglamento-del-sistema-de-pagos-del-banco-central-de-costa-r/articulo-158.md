@@ -1,1 +1,6 @@
-Artículo 158. Confidencialidad de la información. El BCCR deberá garantizar la confidencialidad de la identidad de los propietarios de los valores, de conformidad con las disposiciones establecidas en la Ley 7732 y en el Reglamento sobre los Sistemas de Anotación en Cuenta, promulgado por el CONASSIF. Únicamente, podrá brindar información a los emisores sobre sus propias emisiones, o bien, a los entes supervisores para el cumplimiento de sus funciones.
+Artículo 158. Suspensión y cierre de cuentas propias. El BCCR podrá suspender las cuentas de valores propios de los participantes, cuando así lo ordene una autoridad competente. Asimismo, el BCCR procederá con el cierre de estas cuentas cuando se presente cualquiera de las siguientes situaciones:
+a) Cambio del número de documento identificación de la entidad.
+b) Fusión con otro asociado autorizada por el CONASSIF, manteniéndose la cuenta de la entidad que prevalece en el proceso de fusión.
+c) Cierre o quiebra de la entidad.
+d) Suspensión de la autorización para operar, dictada por el CONASSIF.
+La suspensión temporal de una cuenta de valores propia no eximirá a la entidad de la finalización de las operaciones en curso.

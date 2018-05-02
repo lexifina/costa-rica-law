@@ -1,7 +1,1 @@
-LIBRO XXVII
-(Corrida la numeración del Libro anterior en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo Libro XXVI al XXVII)
-SERVICIO INTERBANCARIO DE LIQUIDACIÓN (SIL)
-CAPÍTULO I
-DEL SERVICIO
-Artículo 333. Definición del servicio. El servicio SIL constituye el mecanismo exclusivo del SINPE para liquidar los mercados y servicios financieros sobre las cuentas de fondos y de valores de sus asociados, administrar la liquidez del sistema de pagos costarricense y hacer una adecuada gestión de los riesgos inherentes a su actividad, con el fin de promover la estabilidad y eficiencia del Sistema Financiero Nacional.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 328 al 333)
+Artículo 333. Condiciones por moneda. Para constituir las garantías, los asociados podrán utilizar valores emitidos en una moneda distinta de la moneda de las obligaciones financieras que garantizan. Con tales propósitos, la paridad cambiaria estará determinada por el tipo de cambio de referencia para la compra del dólar estadounidense, calculado diariamente por el BCCR. Para divisas distintas del dólar estadounidense, su conversión a esa moneda se hará con base en las paridades cambiarias publicadas diariamente por el BCCR, de acuerdo con la información que le proporcione el proveedor de precios internacionales utilizado con esos fines.

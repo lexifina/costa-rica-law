@@ -1,3 +1,3 @@
-Artículo 232. Cobro del margen de intermediación cambiaria. El BCCR cobrará diariamente, en forma automática y con cargo a la cuenta de fondos de las entidades autorizadas, el monto que por concepto de margen de intermediación cambiaria corresponda de acuerdo con el Reglamento para las Operaciones Cambiarias de Contado.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 227 al 232)
-(Así reformado mediante sesión N° 5772-2017 del 7 de junio del 2017)
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES
+Artículo 232. Principios de la negociación. El emisor deberá garantizar a los inversionistas igualdad en las condiciones de acceso a la negociación de valores, y transparencia en los procedimientos de convocatoria, la asignación de ofertas, la difusión de los resultados de las negociaciones y la formación de precios, todo ello de conformidad con las condiciones que establezca para los procesos de negociación.

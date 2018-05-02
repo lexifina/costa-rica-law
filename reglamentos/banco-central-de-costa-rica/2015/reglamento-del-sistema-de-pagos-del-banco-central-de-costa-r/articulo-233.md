@@ -1,9 +1,1 @@
-GESTIÓN DE NUMERARIO
-LIBRO XXIII
-(Corrida la numeración del Libro anterior en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo Libro XXII al XXIII)
-NUMERARIO
-CAPÍTULO I
-DEL SERVICIO
-Artículo 233. Definición del servicio. Se denomina numerario a las monedas y billetes emitidos por el BCCR, como medio legal de pago en Costa Rica.
-Los aspectos operativos relacionados con el numerario que no se contemplan en el presente reglamento, se detallan en las normas complementarias correspondientes.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 228 al 233)
+Artículo 233. Comunicación a los inversionistas. El emisor deberá comunicar a cada inversionista el resultado de sus negociaciones, así como el detalle de las ofertas asignadas y rechazadas, el criterio de asignación utilizado y cualquier otra información de carácter relevante; esto además de las comunicaciones que deben realizar mediante hechos relevantes, de conformidad con lo establecido por la SUGEVAL a los emisores de valores.

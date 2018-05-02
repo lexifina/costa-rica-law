@@ -1,4 +1,1 @@
-CAPÍTULO VII
-DE LAS RESPONSABILIDADES
-Artículo 407. Controles de los participantes. Los participantes deben establecer los mecanismos de control pertinentes para evitar que una CES se active sin que previamente haya sido registrada en el Padrón de Cuentas.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 402 al 407)
+Artículo 407. Servicio de Estampado de Tiempo: Es el servicio a través del cual los suscriptores de las CA – SINPE, pueden solicitar a la Autoridad de Estampado de Tiempo (TSA – SINPE) la emisión de estampas de tiempo.

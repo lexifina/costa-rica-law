@@ -1,4 +1,1 @@
-CAPÍTULO III
-DEL ESQUEMA DE OPERACIÓN
-Artículo 335. Carácter exclusivo del servicio. Todo servicio financiero o mercado que involucre la liquidación de fondos y valores, debe ser liquidado por medio del SIL.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 330 al 335)
+Artículo 335. Naturaleza del crédito intradiario. El crédito intradiario será otorgado en forma automática por el BCCR con el fin de inyectarle liquidez inmediata al asociado que, por una insuficiencia de fondos en su cuenta, no pueda cubrir los débitos presentados a su cargo por los demás asociados.

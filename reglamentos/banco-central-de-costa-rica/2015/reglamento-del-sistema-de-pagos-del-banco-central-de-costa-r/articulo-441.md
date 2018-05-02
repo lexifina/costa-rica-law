@@ -1,2 +1,3 @@
-Artículo 441. Responsables de ISP. Los asociados y cualquier otra institución pública o privada que administre o disponga de información sobre medios de pago y del Sistema de Pagos, deberán designar un responsable de atender las solicitudes de información y consultas relacionadas.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 436 al 441)
+CAPÍTULO V
+DE LOS TIPOS DE CUENTAS
+Artículo 441. Tipos de CES. Se autoriza a los participantes a abrir a sus clientes CES de Nivel 1, Nivel 2 y Nivel 3.

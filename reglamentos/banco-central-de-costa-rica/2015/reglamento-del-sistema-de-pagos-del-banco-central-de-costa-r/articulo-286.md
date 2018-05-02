@@ -1,4 +1,1 @@
-CAPÍTULO IV
-DE LOS REQUERIMIENTOS DE GARANTÍA
-Artículo 286. Requerimiento mínimo para los asociados. Como requerimiento mínimo de garantía, las entidades financieras deberán mantener un monto en garantías al menos igual al promedio móvil más dos desviaciones estándar, que resulte de la suma de sus débitos netos diarios producidos en los últimos 70 días naturales por los servicios de compensación multilateral neta del SINPE.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 281 al 286)
+Artículo 286. Seguridad de las CAN. Los asociados deberán establecer medidas de control y de infraestructura que garanticen un funcionamiento seguro de las CAN, de conformidad con los lineamientos que sobre el particular establezca el BCCR y los que dicten las buenas prácticas en materia de seguridad bancaria. La entidad no podrá realizar movimientos de numerario en la CAN mientras el circuito cerrado de televisión (CCTV) no funcione adecuadamente, salvo casos de fuerza mayor autorizados por el Departamento de Tesorería.

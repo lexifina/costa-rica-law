@@ -1,2 +1,3 @@
-Artículo 352. Del uso de certificados digitales. El SINPE utilizará para su operación los certificados digitales emitidos por la Autoridad Certificadora del SINPE, por lo que será responsabilidad de los asociados mantener actualizados los certificados digitales que requieran para la operación de los servicios.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 347 al 352)
+CAPÍTULO XII
+DE LOS MECANISMOS DE EXCLUSIÓN PARA LA LIQUIDACIÓN MULTILATERAL NETA
+Artículo 352. Exclusiones por insuficiencia de fondos. Un afiliado será excluido de la liquidación de un multilateral neto cuando no pueda pagar el débito cobrado en su contra, o cuando tampoco posea garantías suficientes para que el BCCR le otorgue un crédito intradiario que le permita solventar la insuficiencia.

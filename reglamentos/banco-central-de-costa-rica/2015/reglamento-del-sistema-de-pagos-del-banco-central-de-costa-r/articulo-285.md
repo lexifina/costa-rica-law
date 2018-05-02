@@ -1,2 +1,3 @@
-Artículo 285. Régimen aplicable a las garantías. Las garantías constituidas por los asociados para operar en el SINPE, de conformidad con lo establecido en la Ley 8876, no se verán afectadas en caso de inicio de un procedimiento de reorganización o liquidación contra un participante, ni por eventuales medidas de carácter retroactivo acordadas por la autoridad competente que tramite el procedimiento contra dicha entidad.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 280 al 285)
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES DE LAS ENTIDADES PARTICIPANTES
+Artículo 285. Responsabilidad por el numerario. Los fondos que mantienen los asociados en sus cuentas en el BCCR, responderán, en la moneda correspondiente, como garantía por el valor monetario del numerario depositado en las CAN.

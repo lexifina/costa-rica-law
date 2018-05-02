@@ -1,2 +1,5 @@
-Artículo 242. Estructura denominativa en circulación. Con el fin de garantizar la circulación de las denominaciones según las necesidades reales de la economía, la División Sistemas de Pago definirá la proporción, las denominaciones y el período en el que el BCCR entregará y recibirá numerario.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 237 al 242)
+LIBRO XXIV
+MERCADO INTEGRADO DE LIQUIDEZ
+CAPÍTULO I
+DEL SERVICIO
+Artículo 242. Definición del servicio. Mercado Integrado de Liquidez (MIL) es el servicio por medio del cual el BCCR controla la liquidez del sistema financiero, y los demás participantes realizan operaciones financieras para administrar sus posiciones de liquidez de corto plazo.

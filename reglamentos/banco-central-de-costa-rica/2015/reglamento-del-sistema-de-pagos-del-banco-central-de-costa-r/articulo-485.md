@@ -1,0 +1,1 @@
+Artículo 485. Administración de información. El servicio ISP administrará la información de las transacciones realizadas por los afiliados en todos los servicios financieros del SINPE y la generada a partir de los diferentes medios de pago ofrecidos por el Sistema Financiero Nacional.

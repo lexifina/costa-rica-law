@@ -1,7 +1,5 @@
-LIBRO XXXVI
-(Corrida la numeración del Libro anterior en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo Libro XXXV al XXXVI)
-CONSULTA DE IDENTIFICACIÓN CIUDADANA
-CAPÍTULO I
-DEL SERVICIO
-Artículo 442. Definición del servicio. Se define Consulta de Identificación Ciudadana como el servicio por medio del cual se accede a parte de la información de los ciudadanos costarricenses que administra el Tribunal Supremo de Elecciones.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 437 al 442)
+Artículo 442. Requisitos de apertura y funcionamiento de las CES de Nivel 1.
+a) Presentación del documento de identificación del titular de la cuenta: el cliente de forma presencial deberá presentar su cédula de identidad, DIMEX, DIDI, TIM o pasaporte en cualquiera de los canales autorizados para la apertura y activación de la cuenta. En el caso de menores de edad, la entidad financiera deberá verificar la inscripción en el padrón de nacimientos del Registro Civil, si la persona no dispone del TIM, además, se requiere el consentimiento del padre o tutor para la apertura de la cuenta.
+b) Canales autorizados para la apertura y activación de la cuenta: agencias, sucursales, corresponsales financieros o por parte de un agente autorizado de la entidad financiera. Podrán utilizarse canales electrónicos para la solicitud de apertura de la CES, pudiendo activarse para su uso estas cuentas, únicamente en caso de clientes regulares y si la solicitud se hace desde un canal transaccional autenticado.
+c) Información requerida del titular de la cuenta: nombre completo, número y tipo de documento de identificación. El registro electrónico de estos datos sustituye el formulario conozca a su cliente.
+d) Límite mensual máximo de depósitos en la cuenta: un mil dólares estadounidenses o su equivalente en moneda nacional u otra divisa.

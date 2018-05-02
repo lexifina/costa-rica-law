@@ -1,3 +1,1 @@
-CAPÍTULO IV
-DE LAS RESPONSABILIDADES
-Artículo 74. Devolución de transferencias. El servicio TFI es exclusivo para transferir fondos entre las cuentas que los asociados mantienen en el BCCR. Por lo tanto, cuando la transferencia contemple la acreditación de una cuenta IBAN, la entidad destino deberá devolver la transacción con una nueva transferencia ordenada a través del SINPE y cobrar los costos en que incurra a la entidad que origina el problema.
+Artículo 74. Aspectos a considerar en las normas. Las normas internas del organizador de un mercado deberán propiciar la eficiencia y seguridad del sistema, así como el desarrollo competitivo de los servicios que se presten.

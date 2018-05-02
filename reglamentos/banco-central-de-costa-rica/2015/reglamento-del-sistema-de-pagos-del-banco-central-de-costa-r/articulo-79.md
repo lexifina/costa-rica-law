@@ -1,3 +1,5 @@
-CAPÍTULO IV
-DE LAS RESPONSABILIDADES
-Artículo 79. Acreditación de las transferencias. La entidad destino debe mantener en sus plataformas tecnológicas una funcionalidad que realicen en forma automática las validaciones necesarias para determinar la aceptación o el rechazo de las transferencias recibidas, de modo que su acreditación sobre las cuentas de los clientes destino sea en tiempo real y sin operación manual.
+CAPÍTULO III
+DEL CICLO DEL SERVICIO
+Artículo 79. Ciclo de operación del servicio. El ciclo del servicio TFI opera con las siguientes etapas:
+a) Envío de la transferencia: la entidad origen emite una instrucción para transferir dinero de su cuenta de fondos a la cuenta de fondos de una entidad destino. Las transacciones son irrevocables a partir del momento en que se cierra esa etapa.
+b) Liquidación de la transferencia: el SIL efectúa la liquidación en firme con el mecanismo de liquidación bilateral bruta en tiempo real.

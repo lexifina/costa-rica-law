@@ -1,3 +1,3 @@
-CAPÍTULO VII
-DE LA ACREDITACIÓN DE FONDOS A LOS CLIENTES
-Artículo 24. Acreditación efectiva de fondos. Las entidades financieras asociadas al SINPE deben liberar los fondos a sus clientes dentro de los plazos definidos para los servicios financieros. Ante situaciones contingentes aplicará lo establecido al respecto en el libro Gestión de Riesgos, del presente Reglamento.
+CAPÍTULO VI
+DE LA CUENTA IBAN (RUTA DE PAGOS)
+Artículo 24. Establecimiento y uso del estándar IBAN. Los asociados deberán relacionar el código estándar internacional IBAN para identificar de forma única a todas las cuentas de fondos, tarjetas de crédito y operaciones crediticias que administren de sus clientes, siendo obligatorio aceptar las transacciones de pago que se realicen contra éstas. El IBAN también podrá ser asociado a cualquier otro producto financiero o servicio que genere transacciones de movilización de fondos de sus clientes. Además, deberá ser utilizado con las transacciones intrabancarias e interbancarias que realicen los clientes o en transacciones nacionales o transfronterizas. Toda entidad financiera que emita cuentas de fondos a clientes, a pesar de no participar en el SINPE, debe asociar el estándar IBAN a dichas cuentas, para lo cual dispondrá de un código de entidad en SINPE.

@@ -1,4 +1,8 @@
 CAPÍTULO VI
-DE LAS CONDICIONES DE LOS VALORES EN GARANTÍA
-Artículo 296. Características de los valores. Para constituir la garantía en valores se admitirán valores emitidos por el BCCR y el MHDA, que estén debidamente estandarizados y sean admitidos a cotización en un mercado organizado de bolsa. También podrán recibirse valores negociables de emisores no residentes que estén denominados en moneda extranjera, así como valores emitidos por las instituciones autónomas, conforme con las disposiciones que se establezcan en las normas complementarias del servicio o por el órgano administrativo designado por la Junta Directiva del BCCR.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 291 al 296)
+REQUISITOS DE OPERACIÓN
+Artículo 296. Requisitos de operación. Para efectos de la operación del servicio, los asociados deberán cumplir con los siguientes requisitos:
+a) No mantener diferencias faltantes entre el saldo físico de la CAN y los saldos reportados por el servicio.
+b) Verificar la identidad de los inspectores del CCN, así como no impedir o retrasar por cualquier forma o medio su ingreso inmediato, sea a la bóveda donde está ubicada la CAN o a la oficina en la cual se mantienen los equipos del CCTV, con los que se graban los movimientos físicos de numerario y el ingreso de personas a la CAN.
+c) No permitir la presencia en las CAN de personas que no estén realizando labores relacionadas con el funcionamiento o mantenimiento de su infraestructura, así como de personas no registradas en el padrón de inspectores del CCN que no hayan sido autorizadas formalmente por la Tesorería del BCCR para ingresar a la CAN.
+d) Mantener el CCTV funcionando adecuadamente.
+e) Cumplir con cualquier otro lineamiento que se defina.

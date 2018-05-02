@@ -1,0 +1,1 @@
+Artículo 476. Prescripción del reclamo. El periodo para ejercer el reclamo de una transacción prescribe después de los 5 días hábiles de su liquidación, por lo que a partir de la expiración de este plazo se considera finalizada y no podrá ser sujeta de reclamación mediante el SINPE.

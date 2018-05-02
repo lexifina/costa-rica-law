@@ -1,4 +1,6 @@
-CAPÍTULO XIII
-DE LOS DERECHOS DEL BCCR SOBRE SIGNOS EXTERNOS
-Artículo 51. Uso de signos externos. El SINPE es una marca comercial registrada propiedad del BCCR, por lo que su uso está restringido al BCCR o a quien éste autorice.
-Para el uso de la marca y de los signos distintivos del SINPE deberán seguirse los lineamientos establecidos en el "Manual de marca del SINPE", definido por el BCCR.
+Artículo 51. Criterios. El reconocimiento de un sistema de pago o de valores como de importancia sistémica lo realizará el BCCR, amparado a la Ley 8876, tomando en consideración los siguientes aspectos:
+Si el sistema es utilizado por el BCCR en su papel de autoridad monetaria.
+La actividad incorrecta, ineficiente o no fiable del sistema, pueda afectar la red de pagos de la economía y con ello, amenazar la estabilidad o la confianza del sistema financiero y; derivar en serias consecuencias para el comercio u otros intereses en el país.
+El valor total de las órdenes de pago que se reciben y procesan.
+La cantidad total de órdenes de pago que se reciben y procesan.
+El número de participantes.

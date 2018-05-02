@@ -1,2 +1,3 @@
-Artículo 50. Vigilancia de los sistemas de pago. El BCCR es responsable de la vigilancia de los sistemas de pago de importancia sistémica que operen en el país y desarrollará esa labor con el propósito de promover la seguridad y eficiencia del Sistema de Pagos costarricense, así como velar porque dichos sistemas cumplan con las normas de prevención de legitimación de capitales y financiamiento del terrorismo.
-Las entidades que operen o participen en los sistemas de pago de importancia sistémica deberán proveer al BCCR todas las facilidades que éste les solicite, así como cumplir con las disposiciones que les establezca con fundamento en su función de vigilancia.
+CAPÍTULO XI
+DE LOS SISTEMAS DE PAGOS Y VALORES DE IMPORTANCIA SISTEMICA
+Artículo 50. Definición. Los sistemas de importancia sistémica son las infraestructuras de compensación y liquidación de fondos y valores en las que participan al menos tres asociados y que ante una falla en su operación pueden generar o transmitir efectos negativos a mayor escala entre sus participantes o crear alteraciones sistémicas en el conjunto de agentes económicos.

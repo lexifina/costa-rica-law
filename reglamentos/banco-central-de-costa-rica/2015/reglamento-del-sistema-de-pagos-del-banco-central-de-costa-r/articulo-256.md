@@ -1,2 +1,5 @@
-Artículo 256. Seguridad de las CAN. Las entidades financieras deberán establecer medidas de seguridad y de infraestructura en sus bóvedas, según los lineamientos que sobre el particular establezca el BCCR y los que dicten las buenas prácticas en materia de seguridad bancaria. La entidad no podrá realizar movimientos de numerario en la CAN mientras el circuito cerrado de televisión (CCTV) no funcione adecuadamente, salvo casos de fuerza mayor debidamente autorizados por el BCCR.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 251 al 256)
+LIBRO XXV
+MERCADO DE MONEDAS EXTRANJERAS
+CAPÍTULO I
+DEL SERVICIO
+Artículo 256. Definición del servicio. Monex-SINPE es el servicio por medio del cual los asociados del SINPE acceden al mercado de monedas extranjeras para realizar la negociación de divisas.

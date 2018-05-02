@@ -1,3 +1,3 @@
-Artículo 293. Constitución de la garantía en valores. Los asociados deberán traspasar a la cuenta de garantía los valores necesarios para cumplir con sus requerimientos de garantía, conforme con las disposiciones operativas que establezcan las normas complementarias del servicio.
-Los valores que traspasen los asociados quedarán pignorados mientras se mantengan depositados en la cuenta de garantía.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 288 al 293)
+CAPÍTULO V
+DE LAS RESPONSABILIDADES DEL BCCR
+Artículo 293. Inspección y monitoreo. El BCCR es responsable de monitorear e inspeccionar las operaciones realizadas en las CAN y la Custodia General. Estas funciones las realizará por medio del Centro de Control de Numerario (CCN). En el caso de las monedas extranjeras, el CCN validará la cantidad y el monto total del numerario depositado por denominación, siendo responsabilidad del asociado garantizar su autenticidad. No obstante, en caso de identificar billetes falsos, se aplicará la tarifa establecida.

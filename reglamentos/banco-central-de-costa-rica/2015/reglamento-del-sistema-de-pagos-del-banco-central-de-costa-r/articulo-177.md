@@ -1,3 +1,1 @@
-CAPÍTULO V
-DE LAS RESPONSABILIDADES
-Artículo 177. Información de los archivos. Los emisores, cuando negocien valores directamente, y las entidades de compensación y liquidación de valores, son responsables de la información contenida en los archivos de liquidación enviados a través del servicio. El BCCR actuará bajo el principio de buena fe registral y no podrá modificar la información de tales archivos.
+Artículo 177. Uso del código ISIN. Cada emisión de valores debe estar identificada con un código ISIN único y será registrada por su valor facial, conforme con la cantidad de valores que la compongan.

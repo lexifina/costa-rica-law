@@ -1,5 +1,1 @@
-LIBRO XVI
-LIQUIDACIÓN DE MERCADOS
-CAPÍTULO I
-DEL SERVICIO
-Artículo 171. Definición del servicio. Se define Liquidación de Mercados como el servicio de liquidación de las operaciones realizadas en los mercados organizados de valores de deuda pública anotados en cuenta.
+Artículo 171. Confidencialidad de la información. El BCCR deberá garantizar la confidencialidad de la identidad de los propietarios de los valores, de conformidad con las disposiciones establecidas en la Ley 7732 y en el Reglamento sobre el Sistema de Anotación en Cuenta, promulgado por el CONASSIF. Únicamente, podrá suministrar información a los emisores sobre sus propias emisiones, o bien a los entes supervisores para el cumplimiento de sus funciones.

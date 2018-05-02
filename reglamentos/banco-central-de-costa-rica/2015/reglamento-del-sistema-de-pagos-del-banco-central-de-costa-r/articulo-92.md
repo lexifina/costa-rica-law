@@ -1,6 +1,5 @@
-SERVICIOS DE LIQUIDACIÓN NETA
-LIBRO VII
-COMPENSACIÓN Y LIQUIDACIÓN DE CHEQUES (CLC)
+LIBRO VI
+DÉBITO EN TIEMPO REAL
 CAPÍTULO I
 DEL SERVICIO
-Artículo 92. Definición del servicio. Se define CLC como el servicio de compensación multilateral neta, por medio del cual las entidades financieras gestionan el cobro de los cheques recibidos de sus clientes que han sido girados contra otras entidades bancarias.
+Artículo 92. Definición del servicio. Débito en Tiempo Real (DTR) es el servicio de liquidación bilateral bruta en tiempo real, por medio del cual una entidad origen envía una instrucción de cobro propia o de su cliente, a una entidad destino para que debite en tiempo real una cuenta de uno de sus clientes, previamente domiciliada por el cliente destino, cuando así corresponda.

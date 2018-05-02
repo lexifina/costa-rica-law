@@ -1,4 +1,2 @@
-CAPÍTULO III
-DE LAS PROHIBICIONES Y RESPONSABILIDADES
-Artículo 385. Uso restringido de la información. Los participantes que no pertenecen a una entidad financiera, deberán utilizar la información únicamente para los fines establecidos en la Ley 8204 denominada “Ley sobre Estupefacientes, Sustancias Psicotrópicas, Drogas de Uso no Autorizado, Legitimación de Capitales y Actividades Conexas”, y su respectivo reglamento.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 380 al 385)
+Artículo 385. Manejo de las comunicaciones. Toda comunicación de aspectos relacionados con los servicios del SINPE se efectuará por los medios oficiales de comunicación, tomándose como oficial la información de las personas y direcciones de correo electrónico registrados en el servicio AES por los responsables de cada uno de los afiliados.
+El afiliado será responsable por cualquier inconveniente presentado por información no recibida debido a inconsistencias con el registro de la información de sus usuarios o a su desactualización, así como por falta de capacidad en los buzones de correo electrónico o falla en sus sistemas internos.

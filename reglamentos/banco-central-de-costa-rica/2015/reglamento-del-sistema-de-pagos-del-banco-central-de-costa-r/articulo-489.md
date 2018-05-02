@@ -1,0 +1,1 @@
+Artículo 489. Suministro de información. Los afiliados y las instituciones mencionadas en el presente libro y en concordancia con lo establecido en la Ley 7839 del Sistema de Estadística Nacional, deberán suministrar la información que se les solicite, en los tiempos y formatos establecidos por el BCCR.

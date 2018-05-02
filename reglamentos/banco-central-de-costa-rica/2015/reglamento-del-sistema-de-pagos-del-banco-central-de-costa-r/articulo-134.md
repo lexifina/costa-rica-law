@@ -1,1 +1,3 @@
-Artículo 134. Registro de teléfonos móviles. Los participantes deberán registrar ante el BCCR, los números de teléfono móvil de los clientes a los cuales les active el servicio SINPE Móvil, previo a que sean habilitados para realizar transacciones interbancarias por medio del servicio y; de conformidad con lo dispuesto en la norma complementaria del servicio.
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES
+Artículo 134. Autorización de débitos. La participación de un asociado en un servicio de compensación provisto por un organizador de mercados, autoriza automáticamente la liquidación en su cuenta de fondos de las obligaciones financieras contraídas por medio del servicio.

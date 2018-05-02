@@ -1,4 +1,5 @@
-CAPÍTULO IV
-DE LAS RESPONSABILIDADES DE LA ENTIDAD RECAUDADORA
-Artículo 113. Custodia de enteros en la entidad origen. La entidad origen es responsable de custodiar los enteros de los impuestos específicos y los Enteros a Favor del Gobierno, así como de su remisión al MHDA y al BCCR, en los plazos que establecen las normas complementarias del servicio.
-Cualquier diferencia en el monto liquidado o recaudado será responsabilidad de la entidad origen.
+LIBRO X
+COMPENSACIÓN DE CRÉDITOS DIRECTOS
+CAPÍTULO I
+DEL SERVICIO
+Artículo 113. Definición del servicio. Compensación de Créditos Directos (CCD) es el servicio de compensación multilateral neta, por medio del cual una entidad origen emite una instrucción propia o de su cliente, con el fin de enviar fondos a una entidad destino para que se acrediten en la cuenta del cliente destino.

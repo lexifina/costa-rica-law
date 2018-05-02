@@ -1,7 +1,10 @@
-Artículo 304. Condiciones del crédito overnight. El crédito overnight deberá cumplir con las siguientes condiciones:
-a) Es otorgado por un período de un día hábil, con una tasa neta de interés igual a la tasa de redescuento vigente y siempre respaldado con las garantías que la entidad mantenga para operar en el Sistema de Pagos.
-Cuando el crédito se formalice en US dólares, la tasa neta de interés que aplique será la tasa Libor a seis meses más seis puntos porcentuales.
-b) Se gira en la misma moneda de los créditos intradiarios por pagar y por el monto necesario para la cancelación completa de los mismos.
-c) Debe ser cancelado a las 11:00 a.m. del día hábil siguiente de su desembolso. Para tales efectos, el SINPE hará el cobro de los vencimientos en forma automática, con cargo a la cuenta de fondos del deudor.
-d) La base para el cálculo de intereses es actual/365, por lo que los días no hábiles comprendidos por el periodo efectivo del crédito se computarán dentro del plazo para efectos de la determinación de los intereses.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 299 al 304)
+CAPÍTULO IV
+DE LA PARTICIPACIÓN DEL BCCR EN MEN
+Artículo 304. Tarifas del BCCR. Las tarifas sobre la entrega de numerario por parte del BCCR se fijarán con base en la metodología establecida para tal efecto. Los siguientes casos constituyen excepciones a la aplicación de tales tarifas:
+a) Casos especiales como: corridas bancarias, fuerza mayor u otras contingencias que provoquen un retiro masivo de numerario del BCCR para garantizar el abastecimiento del numerario a la economía.
+b) La sustitución de una serie, de una emisión o de una denominación en particular, motivada por aspectos relacionados con la seguridad del numerario.
+c) Cuando el BCCR requiera promover la circulación de una o varias denominaciones.
+d) Cuando se trate de canje de numerario deteriorado por nuevo. La Tesorería del BCCR decidirá cuál
+denominación entregará como canje.
+La aplicación de los tres primeros casos requiere ser autorizadas por la Gerencia del BCCR mediante
+resolución.

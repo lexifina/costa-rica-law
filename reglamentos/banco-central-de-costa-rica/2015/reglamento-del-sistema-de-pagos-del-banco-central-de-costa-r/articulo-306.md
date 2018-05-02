@@ -1,4 +1,3 @@
-Artículo 306. Orden de ejecución de garantías. En caso de incumplimiento de alguna operación que amerite la ejecución de una garantía, el BCCR procederá con el siguiente orden de ejecución:
-a) Primero: Valores traspasados a la cuenta de garantía, en la misma moneda de la operación incumplida.
-b) Segundo: Valores traspasados a la cuenta de garantía, en una moneda distinta de la moneda de la operación incumplida.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 301 al 306)
+ARTÍCULO 306. Entrega de moneda adquirida al BCCR: el BCCR realizará la entrega de la moneda mediante las siguientes modalidades:
+a) Entrega en BCCR: corresponde al esquema tradicional según el cual la entidad demandante retira la moneda en las instalaciones del BCCR.
+b) Entrega directa: la moneda es entregada directamente en las instalaciones que el asociado disponga dentro de la Gran Área Metropolitana, mediante una instrucción del BCCR a la empresa fabricante.

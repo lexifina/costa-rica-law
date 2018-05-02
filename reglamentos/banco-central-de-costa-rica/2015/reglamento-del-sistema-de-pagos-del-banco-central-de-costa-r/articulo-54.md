@@ -1,1 +1,1 @@
-Artículo 54. Denominación de las cuentas de fondos SINPE. Las cuentas de fondos se denominan en moneda nacional o extranjera, de acuerdo con las necesidades del Sistema de Pagos.
+Artículo 54. Liquidación en el BCCR. Los sistemas reconocidos por el BCCR como de importancia sistémica podrán liquidar sobre las cuentas de fondos y de valores mantenidas por los participantes de ese mercado en el BCCR.

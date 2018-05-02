@@ -1,3 +1,1 @@
-Artículo 391. Principio registral. El funcionamiento del Padrón de Cuentas se rige por el principio de buena fe registral, por lo que el BCCR asume que la información registrada por los participantes es legítima, completa y se encuentra exenta de vicios registrales.
-Las normas complementarias del servicio establecerán las características operativas del padrón de cuentas y sus condiciones de funcionamiento.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 386 al 391)
+Artículo 391. Definición de los servicios: Es el conjunto de servicios por medio de los cuales se gestiona la solicitud, emisión, entrega, renovación, revocación, custodia y verificación de certificados digitales, la autenticación de usuarios, la firma y validación de archivos y la emisión de certificados de estampas de tiempo.

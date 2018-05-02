@@ -1,3 +1,1 @@
-CAPÍTULO III
-DE LAS OPERACIONES SOBRE CUENTAS DE FONDOS
-Artículo 60. Autorización de movimientos. Todo movimiento regular sobre las cuentas de fondos que deba realizar el BCCR, en virtud de las transacciones que ordenen los asociados o alguna empresa que le provea servicios de compensación a los asociados, o por cualquier otra afectación derivada de los servicios ofrecidos por el BCCR, quedará autorizado con la sola incorporación del asociado al SINPE.
+Artículo 60. Uso no autorizado de signos externos. El BCCR no será responsable por el uso no autorizado de la marca SINPE ni de los signos externos del sistema, entendidos éstos como sus logotipos, nomenclaturas, marcas o nombres comerciales. El BCCR accionará por las vías legales pertinentes contra quien incurra en usos no autorizados de la marca SINPE y de sus signos externos.

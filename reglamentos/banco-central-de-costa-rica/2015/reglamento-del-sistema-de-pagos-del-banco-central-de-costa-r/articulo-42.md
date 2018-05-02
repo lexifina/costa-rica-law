@@ -1,3 +1,1 @@
-CAPÍTULO XI
-DE LOS SISTEMAS DE PAGOS Y VALORES DE IMPORTANCIA SISTEMICA
-Artículo 42. Definición. Sistema en el que participan al menos tres entidades financieras y que ante una falla en su operación puede generar o transmitir efectos negativos a mayor escala entre sus participantes o crear alteraciones sistémicas en el conjunto de agentes económicos.
+Artículo 42. Verificación de las transacciones. La entidad origen es responsable de verificar de forma robusta que la identificación y el IBAN del cliente origen que participa en una transacción corresponda efectivamente con dicho cliente, para asegurarse que sea quien dice ser. Por su parte, la entidad destino es responsable de verificar de forma robusta que la identificación y el IBAN del cliente destino corresponda con la registrada para ese cliente en sus sistemas internos, de acuerdo con lo que establecen la respectivas normas complementarias.

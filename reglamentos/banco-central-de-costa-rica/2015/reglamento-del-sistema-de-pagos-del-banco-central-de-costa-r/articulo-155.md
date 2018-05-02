@@ -1,1 +1,1 @@
-Artículo 155. Responsabilidades civiles. Las omisiones de registro, las inexactitudes y los retrasos de las inscripciones que ocurran entre los registros del participante y el registro central administrado por el BCCR, producirán repercusiones civiles sobre la entidad responsable del problema, conforme con lo dispuesto en la Ley 7732.
+Artículo 155. Identificación de las cuentas de terceros. Las cuentas de terceros se identifican con el nombre y el número de documento de identificación de sus titulares, así como con su estado de domicilio y nacionalidad.

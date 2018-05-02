@@ -1,4 +1,3 @@
-CAPÍTULO V
-DE LAS RESPONSABILIDADES
-Artículo 418. Liquidación en BCCR. Las transacciones con tarjeta de pago emitidas en Costa Rica realizadas en el territorio nacional en las redes de POS y ATM, podrán ser liquidadas sobre las cuentas de fondos mantenidas en el BCCR por las entidades financieras que operan en dichas redes, utilizando la infraestructura de pagos interbancarios establecida por el BCCR.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 413 al 418)
+Artículo 418. Entrega de la domiciliación. Cuando el cliente destino suscriba ante el cliente origen una domiciliación física, es obligación del segundo entregar al primero una copia del documento suscrito. Las normas complementarias del servicio establecen las condiciones operativas bajo las cuales se deberá realizar este trámite.
+Con la suscripción de la domiciliación, el cliente origen debe entregar el original del documento a la entidad origen, para que ésta gestione ante la entidad destino la autorización requerida para iniciar el proceso de débitos automáticos.
+Cuando la entidad origen disponga de facilidades tecnológicas para que sus clientes autoricen la domiciliación por medios electrónicos, el requisito de la entrega se tendrá por formalizado con el envío del formulario de la orden de domiciliación que realice el cliente en el sistema provisto por la entidad origen, para lo cual dicho sistema deberá contar con un mecanismo que asegure la autenticación del cliente.

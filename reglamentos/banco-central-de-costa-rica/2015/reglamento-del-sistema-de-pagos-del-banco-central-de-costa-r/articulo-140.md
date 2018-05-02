@@ -1,3 +1,1 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 140. Participantes del servicio. En el servicio Cuentas de Valores deben participar las entidades de custodia y los miembros liquidadores, de conformidad con la Ley 7732.
+Artículo 140. Condición de uso del servicio. Los participantes deben habilitar a sus clientes funcionalidades que les permitan asociar uno o varios números de teléfonos móviles a su cuenta IBAN, así como definir montos máximos movilizados por cada teléfono. Un número de teléfono móvil, solo puede estar asociado a un número de cuenta IBAN en todo el sistema.

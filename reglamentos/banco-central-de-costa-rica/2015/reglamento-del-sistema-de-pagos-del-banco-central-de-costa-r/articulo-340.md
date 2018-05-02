@@ -1,4 +1,3 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 340. Participantes del servicio. En el servicio AES participan los asociados del SINPE.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 335 al 340)
+CAPÍTULO IX
+DE LA EJECUCIÓN DE GARANTÍAS
+Artículo 340. Autorización de la ejecución. El incumplimiento por parte de un asociado del pago de sus obligaciones financieras dentro de las condiciones de tiempo y forma pactadas, autoriza inmediatamente y de manera irrevocable al BCCR para que descuente en el mercado bursátil los valores dados en garantía, conforme con lo que corresponda.

@@ -1,2 +1,3 @@
-Artículo 327. Obligatoriedad de la capacitación. La capacitación del BCCR es obligatoria para los usuarios de los servicios del SINPE. Cuando los candidatos no ostenten la condición de usuario, la capacitación se le impartirá sólo a quienes hayan sido propuestos por los propios asociados.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 322 al 327)
+CAPÍTULO V
+DE LA GARANTÍA EN VALORES
+Artículo 327. Cuenta de valores en garantía. El BCCR podrá mantener abierta una cuenta de valores con una entidad de custodia, para administrar los valores que los asociados decidan rendir en garantía.

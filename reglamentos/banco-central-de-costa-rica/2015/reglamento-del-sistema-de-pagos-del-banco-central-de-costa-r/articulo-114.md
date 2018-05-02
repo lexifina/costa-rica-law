@@ -1,1 +1,3 @@
-Artículo 114. Custodia de enteros por impuestos del Gobierno. El MHDA es responsable de custodiar los enteros recibidos de las entidades recaudadoras, que correspondan a impuestos a favor del Gobierno de Costa Rica.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 114. Participantes del servicio. En el servicio CCD pueden operar como entidad origen y destino los afiliados del SINPE.

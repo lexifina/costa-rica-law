@@ -1,2 +1,1 @@
-Artículo 283. Delegación de funciones. El BCCR podrá delegar en un fiduciario o en una entidad de custodia, las funciones establecidas en el presente libro para la administración de las garantías del Sistema de Pagos.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 278 al 283)
+Artículo 283. Definición de topes. La División Sistema de Pagos podrá establecer topes mínimos o máximos sobre la cantidad de numerario que para cada tipo de divisa deberán mantener las entidades en las CAN, bajo su responsabilidad, de manera que se garantice un manejo adecuado del riesgo y la atención oportuna de situaciones contingentes a las que están expuestas las entidades del Sistema Financiero Nacional.

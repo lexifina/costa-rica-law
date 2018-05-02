@@ -1,7 +1,3 @@
-CAPÍTULO VI
-DEL CICLO DE LIQUIDACIÓN
-Artículo 136. Liquidación de transacciones. El ciclo de liquidación del pago móvil se efectúa de conformidad con las siguientes etapas:
-a) Envío del pago móvil: la entidad origen envía al SINPE la instrucción de pago recibida de su cliente, debiendo suministrar con la transacción el conjunto de datos definido en la norma complementaria del servicio para este tipo de operaciones. Las transacciones móviles se tienen por irrevocables a partir del momento en que son ingresadas por el cliente origen a la plataforma de su entidad financiera.
-b) Aceptación o rechazo del pago móvil: después de recibida la instrucción de pago móvil, la entidad destino confirma, en tiempo real y de manera automática, la aceptación o rechazo de la transacción. En caso de rechazo deberá especificar el tipo de problema presentado.
-c) Acreditación del pago móvil: si el pago móvil es aceptado, la entidad destino deberá acreditar en tiempo real el monto de la transacción en la cuenta del cliente destino.
-d) Liquidación en cuentas SINPE. El SIL efectúa la liquidación en firme del resultado de las transacciones de pago móvil sobre las cuentas de fondos que mantienen los participantes en el BCCR, utilizando el mecanismo de liquidación multilateral neta, a más tardar el día hábil siguiente de su procesamiento por parte del SINPE y en el horario que establezcan la norma complementaria del servicio.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 136. Participantes. En el servicio Sinpe Móvil podrá operar como origen cualquier entidad asociada al SINPE, pudiendo también operar como destino las que administren cuentas de clientes físicos o jurídicos asociadas a números de teléfono móvil.

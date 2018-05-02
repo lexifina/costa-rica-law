@@ -1,0 +1,1 @@
+Artículo 508. Presentación de propuestas alterna. En caso de que los afilados o sus asociaciones gremiales no estén de acuerdo con las comisiones interbancarias definidas por el BCCR, podrán presentar ante la Gerencia del BCCR su propuesta con la justificación y estudio de costos respectivo, la cual deberá resolverse de conformidad con lo que establezca la Ley 6227.

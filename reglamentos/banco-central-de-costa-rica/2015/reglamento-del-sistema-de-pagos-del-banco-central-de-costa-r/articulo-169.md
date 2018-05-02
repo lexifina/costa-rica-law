@@ -1,1 +1,1 @@
-Artículo 169. Suficiencia de fondos. El emisor, o su agente de pago, debe mantener en su cuenta los fondos suficientes para cancelar los vencimientos de las emisiones a su cargo.
+Artículo 169. Emisión de constancias. El BCCR solo emitirá constancias de titularidad para los valores registrados en las cuentas propias de los participantes, a solicitud de ellos o de una autoridad competente.

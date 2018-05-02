@@ -1,1 +1,3 @@
-Artículo 181. Horario de funcionamiento. El servicio Traspaso de Valores estará disponible para el registro de movimientos durante el horario bancario, y a modo de consulta las veinticuatro horas del día.
+CAPÍTULO V
+DE LAS RESPONSABILIDADES
+Artículo 181. Representación de emisores. Los representantes de los emisores son responsables de la suscripción y administración de las emisiones de la entidad que representan, así como de las actividades que contemplen en el acuerdo de representación.

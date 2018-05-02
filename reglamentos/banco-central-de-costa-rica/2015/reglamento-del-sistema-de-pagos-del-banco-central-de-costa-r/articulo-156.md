@@ -1,1 +1,1 @@
-Artículo 156. Emisión de constancias. El BCCR sólo emitirá constancias de titularidad para los valores registrados en las cuentas propias de los participantes, a solicitud de ellos o de una autoridad competente.
+Artículo 156. Manejo del saldo de las cuentas. El saldo de las cuentas de valores se mantiene por cantidad de valores para cada emisión y por el valor nominal del total de los valores anotados, siempre en la moneda que corresponda para la emisión.

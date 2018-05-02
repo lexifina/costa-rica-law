@@ -1,2 +1,1 @@
-Artículo 388. Confidencialidad de la identidad de terceros. Cada participante deberá manejar confidencialmente, la identidad de las personas inmersas en los reportes que brinda el servicio, con el propósito de no obstaculizar posibles investigaciones.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 383 al 388)
+Artículo 388. Del uso de certificados digitales. El SINPE utilizará para su operación los certificados digitales emitidos por la Autoridad Certificadora del SINPE, por lo que será responsabilidad de los afiliados mantener actualizados los certificados digitales que requieran para la operación de los servicios.

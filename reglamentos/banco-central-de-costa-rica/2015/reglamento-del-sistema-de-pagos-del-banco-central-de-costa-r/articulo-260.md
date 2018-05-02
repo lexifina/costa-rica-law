@@ -1,2 +1,1 @@
-Artículo 260. Contingencias fuera de horario regular en BCCR. En caso de que fuera del horario regular ocurra una contingencia, además de lo que dicta la norma complementaria, la participación del BCCR se regirá por el protocolo establecido por el Departamento de Tesorería para la apertura de la bóveda principal fuera de horario.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 255 al 260)
+Artículo 260. Calce de ofertas. Las ofertas de compra o de venta de divisas que realicen los participantes en el Monex, estarán sujetas a aceptación automática bajo los principios de “mejor oferta de mercado” y de “primera en tiempo, primera en derecho”, pudiendo darse la aceptación parcial de ofertas.

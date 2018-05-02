@@ -1,1 +1,4 @@
-Artículo 154. Conciliación de cuentas de valores. Los participantes son responsables de conciliar diariamente su cuenta propia y la de sus clientes, cuando corresponda, así como de comunicar por escrito al BCCR cualquier inconsistencia a más tardar al día hábil siguiente.
+CAPÍTULO III
+DE LAS CUENTAS DE VALORES
+Artículo 154. Tipos de cuenta. Las entidades de custodia mantienen una cuenta de valores propios y un número ilimitado de cuentas para valores por cuenta de terceros, cada una identificada con un número único asignado por el servicio.
+Los miembros liquidadores únicamente podrán mantener cuentas de valores propios.

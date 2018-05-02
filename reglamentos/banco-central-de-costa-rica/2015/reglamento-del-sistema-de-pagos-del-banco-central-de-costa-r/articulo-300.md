@@ -1,2 +1,5 @@
-Artículo 300. Naturaleza del crédito intradiario. El crédito intradiario será otorgado en forma automática por el BCCR con el fin de inyectarle liquidez inmediata a la entidad financiera que, por una insuficiencia de fondos en su cuenta, no pueda cubrir los débitos presentados a su cargo por los demás asociados.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 295 al 300)
+LIBRO XXVIII
+MERCADO DE NUMERARIO
+CAPÍTULO I
+DEL SERVICIO
+Artículo 300. Definición del servicio. El Mercado de Numerario (MEN) es el conjunto de procesos operativos, la logística y la plataforma electrónica mediante el cual los participantes negocian numerario entre sí moneda nacional, dólares estadounidenses, euros u otras divisas que autorice la División Sistema de Pagos.

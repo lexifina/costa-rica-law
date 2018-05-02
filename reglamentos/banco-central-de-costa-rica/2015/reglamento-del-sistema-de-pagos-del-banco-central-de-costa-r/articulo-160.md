@@ -1,1 +1,1 @@
-Artículo 160. Horario de funcionamiento. El servicio Registro de Emisiones estará disponible para la administración de las emisiones durante el horario bancario, y a modo de consulta durante el horario de operación.
+Artículo 160. Efectos de la suspensión. La suspensión de una cuenta de valores impide movimientos que implican la salida de valores desde el momento en que la misma es ordenada, pero no impide movimientos de entrada de valores, ni la liquidación de vencimientos de los valores que se encuentren depositados en la cuenta suspendida.

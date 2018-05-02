@@ -1,2 +1,1 @@
-Artículo 347. Duplicidad de usuarios. El asociado asume la responsabilidad por la creación, como usuario suyo, de un funcionario que se encuentre registrado en el SINPE como usuario de otro asociado, pudiendo por tanto realizar a la vez operaciones en nombre de las entidades a las que represente como usuario. El SINPE alertará a las entidades involucradas cuando se presente esta situación.
-(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 342 al 347)
+Artículo 347. Condiciones para la ejecución. Con la ejecución de garantías, los valores no podrán ser negociados por medio de un intermediario bursátil que mantenga relaciones de propiedad con las contrapartes involucradas en la operación incumplida.

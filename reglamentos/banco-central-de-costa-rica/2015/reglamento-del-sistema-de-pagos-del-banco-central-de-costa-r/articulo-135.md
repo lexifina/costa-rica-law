@@ -1,1 +1,5 @@
-Artículo 135. Inactivación de teléfonos móviles. Los participantes podrán gestionar ante el BCCR la inactivación de afiliaciones propias, las cuales podrán ordenarlas los clientes por medio de cualquiera de los canales bancarios de la entidad; en el caso en que la inactivación corresponda a un número de teléfono móvil afiliado por otra entidad, la instrucción del cliente deberá ordenarse únicamente desde el teléfono móvil que está siendo inactivado.
+LIBRO XIV
+SINPE MÓVIL
+CAPÍTULO I
+DEL SERVICIO
+Artículo 135. Definición del servicio. Sinpe Móvil es el servicio de liquidación multilateral neta por medio del cual las entidades asociadas al SINPE procesan pagos de sus clientes, con acreditación de los fondos en tiempo real sobre una cuenta del cliente físico o jurídico asociada a un número de teléfono móvil.

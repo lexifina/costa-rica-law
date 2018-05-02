@@ -1,5 +1,1 @@
-LIBRO IV
-TRANSFERENCIA DE FONDOS A TERCEROS (TFT)
-CAPÍTULO I
-DEL SERVICIO
-Artículo 75. Definición del servicio. Se define TFT como el servicio de liquidación bruta en tiempo real, por medio del cual una entidad origen emite una instrucción propia o de su cliente, con el fin de enviar fondos a una entidad destino para que se acrediten en tiempo real en la cuenta del cliente destino.
+Artículo 75. Requerimientos operativos. Como parte de los procesos de compensación y liquidación, el BCCR podrá solicitar al organizador del mercado el detalle de las transacciones que le garanticen atender adecuadamente los riesgos que se deriven de esos procesos con exposiciones sobre las cuentas de fondos de las entidades asociadas al SINPE.
