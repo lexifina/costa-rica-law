@@ -1,0 +1,1 @@
+Artículo 52° - El poseedor y coposeedores de un derecho deberán estar al día con su cuota de mantenimiento antes de iniciar cualquier tipo de construcción o mejora, de lo contrario no se le permitirá realizar ningún trabajo o trámite.

@@ -1,0 +1,1 @@
+Artículo 42°- La Administración se reserva el derecho de admisión al Cementerio de cualquier persona que a su juicio pudiera poner en peligro la tranquilidad, el orden y las buenas costumbres que deben reinar en este lugar.

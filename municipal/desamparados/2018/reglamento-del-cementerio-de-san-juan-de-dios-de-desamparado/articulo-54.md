@@ -1,0 +1,1 @@
+Artículo 54°- VIGENCIA. Este reglamento rige a partir de la segunda publicación. Se complementa con las disposiciones parciales emitidas por el Concejo Municipal en esta materia. Los asuntos no previstos en el mismo, serán regulados conforme a la legislación vigente en la materia.

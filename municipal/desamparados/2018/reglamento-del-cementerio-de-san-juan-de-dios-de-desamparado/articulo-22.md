@@ -1,0 +1,1 @@
+Artículo 22°- La Municipalidad se compromete a proteger y vigilar las instalaciones del cementerio. No obstante, no será responsable por daños causados por caso fortuito o fuerza mayor a las propiedades de los adquirentes.

@@ -1,0 +1,1 @@
+Artículo 2°- FUNDAMENTO JURÍDICO: Este Reglamento se fundamenta en lo dispuesto por la Ley General de Salud artículo 36; capítulo VII, sección 11 “De los Cementerios, Inhumaciones, y exhumaciones de cadáveres” artículos 327 al 330; Reglamento General de Cementerios, Decreto Ejecutivo N° Decreto Ejecutivo No. 32833-S del 19 de diciembre de 2005 y el Código Municipal.

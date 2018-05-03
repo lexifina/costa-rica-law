@@ -1,0 +1,1 @@
+Artículo 48°- Los poseedores que van a construir por primera vez o por mejora, deberán solicitar el respectivo permiso de Construcción ante la Municipalidad y cancelar el monto que les sea tasado. Dicha solicitud deberá estar autorizada por el poseedor y coposeedores del derecho de posesión, según corresponda.

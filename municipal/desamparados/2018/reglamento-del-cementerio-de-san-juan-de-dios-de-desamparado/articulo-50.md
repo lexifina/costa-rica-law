@@ -1,0 +1,1 @@
+Artículo 50°- La representación de la Junta Administrativa y la fiscalía, será por un período de dos años, el cual comienza a regir a partir del nombramiento y juramentación, por parte del Concejo Municipal, pudiendo ser reelectos por un período igual.

@@ -1,0 +1,1 @@
+Artículo 51°- En caso de que algún miembro de la Junta Administrativa o el fiscal, renuncie, o por cualquier causa dejare de existir a esta, el presidente de la Junta deberá enviar una terna al Concejo Municipal, quien nombrará al sustituto por el resto del período en vigencia.

@@ -1,0 +1,1 @@
+Artículo 39°- La Municipalidad podrá efectuar exhumaciones ordinarias de oficio y dar por resuelto el contrato, cuando los poseedores de los derechos funerarios incumplan las obligaciones establecidas en este Reglamento y el Contrato, previa resolución que así lo estipule.

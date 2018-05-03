@@ -1,0 +1,1 @@
+Artículo 12º- Para la adquisición de derechos, el pago correspondiente debe efectuarse de contado, salvo que por disposición de la Alcaldía, debidamente justificada, se solicite al Concejo y éste lo apruebe una directriz que autorice la venta a pagos bajo determinadas condiciones.
