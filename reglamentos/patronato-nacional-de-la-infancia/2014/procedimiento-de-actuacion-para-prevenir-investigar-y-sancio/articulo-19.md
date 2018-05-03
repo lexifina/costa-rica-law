@@ -1,1 +1,0 @@
-Artículo 19.—Acto Final: La Presidencia Ejecutiva conocerá el informe final del Órgano Director disponiendo la sanción disciplinaria que corresponda o dispondrá el archivo del expediente en un plazo de diez días. De no acoger la recomendación, deberá motivar tal decisión en un plazo en un mismo plazo.

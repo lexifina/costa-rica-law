@@ -1,1 +1,0 @@
-Artículo 17.—Alegato de bien probado: Una vez realizada la comparecencia oral y privada y evacuada toda la prueba documental, testimonial y pericial aportada y ofrecida por las partes y ordenada por el Órgano de Procedimiento, este concederá un plazo de tres días para que las partes realicen por escrito su alegato de bien probado.

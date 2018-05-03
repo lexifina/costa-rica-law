@@ -1,1 +1,0 @@
-Artículo 11.—Posibilidades de acudir a otra instancia: El funcionario denunciante podrá, en todo momento, acudir a las instancias institucionales o externas si considera que su denuncia no ha sido atendida oportuna y diligentemente.

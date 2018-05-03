@@ -1,1 +1,0 @@
-Artículo 24.—Garantía para el denunciante: Ninguna persona que amparada en este reglamento haya denunciado hostigamiento laboral o comparecido como testigo de las partes, podrá ser objeto de represalias por ese motivo.

@@ -1,1 +1,0 @@
-Artículo 12.—Traslado de la denuncia: El procedimiento se instruirá de conformidad con las normas contendidas en la Ley General de Administración Pública, garantizando el debido proceso y el derecho de defensa de la persona denunciada.

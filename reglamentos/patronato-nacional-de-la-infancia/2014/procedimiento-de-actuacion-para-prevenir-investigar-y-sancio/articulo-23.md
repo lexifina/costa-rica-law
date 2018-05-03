@@ -1,1 +1,0 @@
-Artículo 23.—Reincidencia: En caso de que el funcionario denunciado se le haya impuesto una sanción previa y reincida en la misma infracción dentro del período de doce meses siguientes a la primera, se aplicará la sanción superior inmediata de conformidad con el Reglamento Autónomo de Servicio.

@@ -1,1 +1,0 @@
-Artículo 25.—Prescripción: Toda acción de acoso laboral y psicológico prescribirá en un plazo de un año, computados desde el día en que se cesan los actos de hostigamiento. La prescripción no será declarada de oficio, por lo que deberá ser alegada por la parte interesada y se resolverá con el dictamen final, como excepción de fondo.

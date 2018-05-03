@@ -1,1 +1,0 @@
-Artículo 18.—Conclusiones y Recomendaciones: El Órgano Director del Procedimiento Disciplinario, terminada la investigación, dentro de un plazo máximo de cinco días hábiles, procederá a analizar todas las pruebas evacuadas, el contenido del expediente y mediante informe, emitirá sus conclusiones y recomendaciones a la Presidencia Ejecutiva.
