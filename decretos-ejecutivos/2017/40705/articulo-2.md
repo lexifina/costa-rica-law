@@ -1,0 +1,1 @@
+Artículo 2.- En lo sucesivo, en todo aquel reglamento en el que se señale el Decreto Ejecutivo No. 28113-S del 10 de setiembre de 1999 "Reglamento para el Registro de Productos Peligrosos", como referencia para algún requisito, deberá interpretarse que los mismos corresponden a lo indicado en el presente Decreto.

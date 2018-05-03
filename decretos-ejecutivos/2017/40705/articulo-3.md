@@ -1,0 +1,1 @@
+Artículo 3.- Deróguese el Decreto Ejecutivo N° 28113-S del 10 de setiembre de 1999 “Reglamento para el Registro de Productos Peligrosos”, publicado en el Alcance N° 74 de La Gaceta N° 194 del 6 de octubre de 1999, y sus reformas.
