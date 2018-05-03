@@ -1,0 +1,1 @@
+IV. Instruir a la Secretaría de Junta Directiva para que proceda a realizar la respectiva publicación de la modificación parcial de la “Metodología para fijación ordinaria de tarifas para el servicio de transporte remunerado de personas, modalidad autobús” -RJD-035-2016, en el diario oficial La Gaceta.

@@ -1,0 +1,1 @@
+II. Tener como respuesta a los participantes de la audiencia pública realizada el 4 de diciembre de 2017, lo señalado en el oficio 009-FTMB-2018 de la Fuerza de Tarea y agradecer la valiosa participación de todos en este proceso.

@@ -1,0 +1,1 @@
+III. Instruir a la Secretaría de Junta Directiva para que proceda a realizar la notificación a los interesados del oficio donde constan las respuestas a las posiciones presentadas en la audiencia pública.
