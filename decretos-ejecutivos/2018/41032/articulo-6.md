@@ -1,0 +1,1 @@
+Artículo 6°—Disposiciones transitorias. El Ministerio de Ambiente y Energía tendrá un plazo máximo de dos meses a partir de la publicación del presente decreto en el Diario Oficial La Gaceta, para convocar al Grupo de Trabajo Técnico en Producción y Consumo Sostenible, a fin de iniciar la respectiva fase de implementación.
