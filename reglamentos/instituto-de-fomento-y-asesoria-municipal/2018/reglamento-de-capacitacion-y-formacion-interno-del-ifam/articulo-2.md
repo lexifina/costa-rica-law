@@ -1,0 +1,2 @@
+ARTÍCULO 2: El objetivo del presente reglamento es regular las actividades de capacitación y formación, de los funcionarios del IFAM, siempre y cuando estén relacionadas con las labores y funciones del cargo que ocupa el funcionario, dentro del país o fuera de él.
+Así como, la adjudicación de becas y/o subsidios a los funcionarios del IFAM, que sean seleccionados para recibir una actividad de capacitación o formación.

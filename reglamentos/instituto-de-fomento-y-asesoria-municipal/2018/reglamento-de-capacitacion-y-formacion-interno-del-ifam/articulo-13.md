@@ -1,0 +1,1 @@
+ARTÍCULO 13: Solamente serán considerados para fines de reclutamiento, selección de personal, carrera administrativa e incentivos, los certificados que se otorguen en las modalidades de aprovechamiento, participación y formación, según los títulos académicos obtenidos por centros educativos debidamente acreditados al efecto.

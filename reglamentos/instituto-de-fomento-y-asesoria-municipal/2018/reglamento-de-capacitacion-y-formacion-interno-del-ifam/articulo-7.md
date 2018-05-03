@@ -1,0 +1,1 @@
+ARTÍCULO 7: El titular de la Unidad de Talento Humano o su delegado ejercerá la Secretaría permanente del Consejo Institucional de Capacitación y Formación, deberá dejar constancia escrita por medio de un acta de todas las sesiones, manteniendo al día los archivos y comunicando en tiempo y forma, a quien corresponda las recomendaciones emanadas de este Consejo.

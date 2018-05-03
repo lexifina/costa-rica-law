@@ -1,0 +1,1 @@
+ARTÍCULO 6: El Consejo Institucional de Capacitación y Formación, se reunirá ordinariamente dos veces al mes cuando existan asuntos que conocer y recomendar y podrán convocar extraordinariamente cuando lo consideren necesario, por escrito y con al menos veinticuatro horas de antelación en casos de urgencia. El quórum mínimo para sesionar será de dos miembros.

@@ -1,0 +1,1 @@
+ARTÍCULO 3: Se establece un Consejo Institucional de Capacitación y Formación para los funcionarios del IFAM, que será el encargado de analizar y recomendar, la participación de los funcionarios del IFAM en actividades de capacitación y formación, bajo las distintas modalidades; así como la recomendación sobre el otorgamiento de subsidios o becas, según corresponda.

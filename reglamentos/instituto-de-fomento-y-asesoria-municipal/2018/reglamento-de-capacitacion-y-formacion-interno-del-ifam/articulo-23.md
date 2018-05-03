@@ -1,0 +1,1 @@
+ARTÍCULO 23: Para lo no previsto en el presente Reglamento, se podrán aplicar supletoriamente las disposiciones contempladas en el Reglamento Autónomo de Organización y Servicio del IFAM y normativa general conexa.

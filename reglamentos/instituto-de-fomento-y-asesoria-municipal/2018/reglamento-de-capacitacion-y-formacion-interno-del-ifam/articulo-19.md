@@ -1,0 +1,1 @@
+ARTÍCULO 19: Para los efectos del artículo anterior, se estimarán los posibles daños y perjuicios, para el caso de incumplimiento. En todos los casos de incumplimiento, la Unidad de Talento Humano determinará si existe responsabilidad y los atenuantes si los hubiere.

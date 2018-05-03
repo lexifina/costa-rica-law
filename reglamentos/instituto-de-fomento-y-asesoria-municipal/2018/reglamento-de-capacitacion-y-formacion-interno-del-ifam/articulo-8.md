@@ -1,0 +1,1 @@
+ARTÍCULO 8: Para recomendar cualquier asunto que se someta al conocimiento de este Consejo, se requerirá simple mayoría de sus miembros. En caso de empate y de urgencia comprobada se someterá nuevamente a votación y de persistir el empate, el titular de la Unidad de Formación y Capacitación ejercerá doble voto.

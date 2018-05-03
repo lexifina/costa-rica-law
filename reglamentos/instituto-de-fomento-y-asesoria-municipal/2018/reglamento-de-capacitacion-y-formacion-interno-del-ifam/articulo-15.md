@@ -1,0 +1,3 @@
+CAPITULO IV
+REQUISITOS Y OBLIGACIONES DE LOS BENEFICIARIOS
+ARTÍCULO 15: Para que un funcionario se haga acreedor a los beneficios regulados en el presente reglamento, deberá tener no menos de seis meses en nombramiento con propiedad en una plaza en el IFAM y contar con un buen récord de asistencia, puntualidad, calificaciones de evaluación del desempeño superiores a 80 y contar con la aprobación del superior inmediato quien debe constatar que la capacitación va de acuerdo con las necesidades institucionales, el puesto que ejerce y las labores que desarrolla. En casos calificados y de interés institucional, podrá prescindirse de los tiempos indicados en el presente artículo.
