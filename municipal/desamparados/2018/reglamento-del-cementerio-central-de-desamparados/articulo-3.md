@@ -1,0 +1,1 @@
+Artículo 3°- MATERIA RECURSIVA: En lo atinente a recursos contra decisiones de la Administración, será aplicable lo establecido en el Código Municipal, Título VI Recursos contra los actos Municipales, Capítulo II, según corresponda.

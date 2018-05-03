@@ -1,0 +1,1 @@
+Artículo 15º- Una vez que el adquirente haya cancelado y firmado el respectivo contrato de derecho del lote, obtendrá simultáneamente el derecho de uso y posesión por un período de 99 años, renovable por un plazo igual. A partir de ese momento deberá pagar las cuotas de mantenimiento y conservación.

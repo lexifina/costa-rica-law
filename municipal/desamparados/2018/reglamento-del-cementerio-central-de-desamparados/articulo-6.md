@@ -1,0 +1,1 @@
+Artículo 6°- El terreno del cementerio estará dividido en parcelas y éstas en lotes. Su localización se efectuará de acuerdo con la numeración asignada a cada uno, correlativa con las distintas hileras, partiendo de las calles de acceso que dividen cada área; acorde con el diseño oficial del cementerio consignado en el respectivo plano.

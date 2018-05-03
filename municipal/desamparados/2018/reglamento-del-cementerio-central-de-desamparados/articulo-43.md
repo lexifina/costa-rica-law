@@ -1,0 +1,1 @@
+Artículo 43°- La Municipalidad se reserva el derecho de realizar todo tipo de construcciones, reparaciones y mantenimiento en el Cementerio, tanto en su terreno propio como en los derechos ya adquiridos cuando sea necesario por razones de urgencia o fuerza mayor. El traspaso de derechos se hará con tales limitaciones.

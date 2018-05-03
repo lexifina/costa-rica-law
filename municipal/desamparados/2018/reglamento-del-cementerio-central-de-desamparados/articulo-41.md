@@ -1,0 +1,1 @@
+Artículo 41°- La apertura al público del cementerio será de las siete a las diecisiete horas de cada día, de lunes a domingo. El Concejo Municipal puede modificar este horario según lo crea conveniente, cuando medien circunstancias especiales.

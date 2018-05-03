@@ -1,0 +1,1 @@
+Artículo 28°.-La Administración queda obligada a facilitar las inspecciones a las autoridades administrativas, judiciales y sanitarias, a fin de realizar actividades propias de su gestión y/o fiscalizar el cumplimiento de las disposiciones atinentes a la materia de cementerios establecida en la Ley General de Salud.
