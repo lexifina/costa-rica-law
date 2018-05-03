@@ -1,1 +1,0 @@
-Artículo 14.-Todos los vehículos municipales a excepción del asignado al Ejecutivo Municipal, deberán encontrarse debidamente rotulados en forma clara y visible ton la siguiente leyenda: "Municipalidad de Goicoechea".

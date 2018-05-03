@@ -1,1 +1,0 @@
-Artículo 34.-EI conductor que, con conocimiento de un daño causado a vehículos, personas o propiedades lo ocultare, asumirá toda la responsabilidad legal del caso y además se presumirá que ha incurrido en la causal de despido indicada en el Código de Trabajo y Reglamento Autónomo de Trabajo.

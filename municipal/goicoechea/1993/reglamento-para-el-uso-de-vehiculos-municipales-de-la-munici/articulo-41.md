@@ -1,1 +1,0 @@
-Artículo 41.-Deberá existir un control exacto de los accesorios, herramientas y repuestos con que cuente cada automotor, control que se deberá mantener actualizado mediante una lista-registro de la cual se mantendrá copia en la respectiva unidad.

@@ -1,1 +1,0 @@
-Artículo 10.- Queda terminantemente prohibido conducir en estado de ebriedad o bajo los efectos de drogas enervantes y portar bebidas alcohólicas o cualquier otro tipo de droga en los vehículos municipales. El desacato a esta disposición se considerará falta grave y por tanto, dará base al despido sin responsabilidad patronal.

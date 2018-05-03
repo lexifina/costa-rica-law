@@ -1,1 +1,0 @@
-Artículo 9°- Ninguna persona que conduzca vehículos de la Institución, sean éstos de uso discrecional o administrativo, deberá estacionarios cerca de lugares públicos, que por su condición de centros de diversión u otros, puedan lesionar la imagen de la Municipalidad.

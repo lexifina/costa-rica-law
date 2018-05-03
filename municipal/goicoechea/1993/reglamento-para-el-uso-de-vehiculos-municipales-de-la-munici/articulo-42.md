@@ -1,1 +1,0 @@
-Artículo 42.-Cuando la naturaleza de la labor a realizar permita utilizar -según criterios de conveniencia y oportunidad- medios de transporte público, éstos deberán preferirse siempre que resulten más económicos.

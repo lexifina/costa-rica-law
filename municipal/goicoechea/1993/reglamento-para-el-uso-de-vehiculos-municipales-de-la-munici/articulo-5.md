@@ -1,1 +1,0 @@
-Artículo 5°- Un mismo funcionario no podrá tener asignados simultáneamente dos o más vehículos de uso discrecional. Una segunda asignación sólo podrá efectuarse cuando la primera unidad asignada sufra desperfectos mecánicos o sea sustituida.

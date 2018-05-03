@@ -1,1 +1,0 @@
-Artículo 11.-En los vehículos de uso administrativo, es terminantemente prohibido que viajen personas ajenas a la Municipalidad, salvo que - por los fines o propósitos del viaje- el Ejecutivo Municipal lo autorice por escrito.

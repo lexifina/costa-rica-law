@@ -1,1 +1,0 @@
-Artículo 3 °- La administración de los vehículos Municipales estará a cargo del Ejecutivo Municipal, quien deberá ejercer los controles internos adecuados para su buen uso y será responsable de procurar que se utilicen de manera racional y en estricta observancia del régimen jurídico y presupuestario al que están sometidos.
