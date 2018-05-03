@@ -29,13 +29,11 @@ pudiendo contener la descripción de cada etapa como una finca filial, que puede
 9. Cobertura: proyección horizontal de una estructura o el área de terreno cubierta por tal estructura.
 10. Coeficiente de copropiedad: índice que establece la participación porcentual en los bienes comunes del condominio de cada uno de los propietarios de fincas filiales.
 11. Condominio: inmueble susceptible de aprovechamiento independiente por parte de distintos propietarios, con elementos comunes de carácter indivisible.
-12. Condominio vertical: modalidad mediante la cual cada condómino es propietario exclusivo de parte de la edificación conformada por varios pisos y en común de todo el terreno y edificaciones o
-instalaciones de uso general.
+12. Condominio vertical: modalidad mediante la cual cada condómino es propietario exclusivo de parte de la edificación conformada por varios pisos y en común de todo el terreno y edificaciones o instalaciones de uso general.
 13. Condominio horizontal: la modalidad donde cada condómino es propietario exclusivo de un terreno propio y de la edificación construida sobre él y copropietario de las áreas comunes.
 14. Condominio mixto: son aquellos donde pueden presentarse en una misma finca matriz, condominios verticales y horizontales.
 15. Condominio combinado: es un proyecto donde se combinan diferentes usos y tipos de edificaciones, deben ser compatibles entre sí y deben ajustarse a la normativa que regula la zona donde se localicen.
-16. Condominio de condominios: proyecto donde las fincas filiales
-se conforman a partir de la subdivisión de una finca filial matriz.
+16. Condominio de condominios: proyecto donde las fincas filiales se conforman a partir de la subdivisión de una finca filial matriz.
 Lo anterior debe permitirse en los Reglamentos de Condominio y Administración, tanto de la finca matriz inicial como de la finca filial matriz; debiendo contener ambos reglamentos las normas que regulen la relación entre los condominios y de cómo se ejercerán los derechos y obligaciones de los propietarios y/o condóminos.
 17. Condominios de lotes: son aquellos donde las fincas filiales corresponden a predios horizontales, que pueden ser destinados a uso agrícola, industrial, pecuario, turístico, comercial, habitacional, de recreo y/o cualquier otro propósito lícito. Pueden estar destinados a la prestación de servicios o para construir edificaciones. En los condominios horizontales de lotes cada finca filial será denominada finca filial primaria individualizada (FFPI).
 18. Conjunto: desarrollo inmobiliario conformado por varios edificios levantados sobre uno o varios lotes, que comparten áreas y servicios de uso y utilidad general, como las vías internas, los estacionamientos, las zonas verdes, los muros de cerramiento, y otras áreas. Puede conformarse también por varias edificaciones de vivienda, comercio o industria, estructuralmente independientes.
@@ -54,3 +52,7 @@ El 70% del tiempo al año debe dedicarse el establecimiento como mínimo al serv
 Es el estatuto que regula los derechos y obligaciones específicas de los copropietarios de un edificio o conjunto sometido al régimen de propiedad en condominio.
 30. Vías internas: calles colectoras que sirven para canalizar el flujo vehicular dentro del condominio.
 31. Unidad habitacional: vivienda unifamiliar.
+32. Condominio de Interés Social: Todo aquel que vaya a ser financiado total o parcialmente con fondos del Sistema Financiero Nacional para la Vivienda y que haya sido expresamente declarado como tal por la entidad competente.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 41152 del 3 de mayo de 2018)
+33. Vialidad oficial proyectada: Aquella debidamente emitida y oficializada por parte de la Municipalidad a través de un plan regulador local, un plan regional o un plan vial local.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 41152 del 3 de mayo de 2018)
