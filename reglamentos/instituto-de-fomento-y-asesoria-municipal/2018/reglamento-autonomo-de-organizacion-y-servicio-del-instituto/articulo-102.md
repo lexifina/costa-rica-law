@@ -1,0 +1,3 @@
+ARTÍCULO 102: De la democratización de las becas
+El funcionario que haya sido beneficiario de una beca para cursar programas de formación académica, dentro o fuera del país, y que lo haya concluido satisfactoriamente, deberá esperar al menos el doble del tiempo invertido en el proceso de estudio, contados a partir de la conclusión del programa, para participar nuevamente en un concurso de becas de formación académica, salvo que haya inopia de participantes en determinado concurso.
+El funcionario que haya sido beneficiario de una beca de capacitación fuera del país y que la haya concluido satisfactoriamente, para obtener otra beca fuera del país, deberá esperar el mismo plazo definido en este artículo.

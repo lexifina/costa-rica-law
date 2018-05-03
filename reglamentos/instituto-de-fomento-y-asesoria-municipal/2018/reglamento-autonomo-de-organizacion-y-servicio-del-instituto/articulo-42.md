@@ -1,0 +1,2 @@
+ARTÍCULO 42: Del funcionario del IFAM destacado en otra institución pública
+Con la anuencia del servidor y por una única vez, la Presidencia Ejecutiva podrá destacar a éste en servicio, a las órdenes de otra institución pública por un período máximo de cuatro años, a solicitud del jerarca respectivo, debiéndose suscribir una carta de entendimiento entre ambas instituciones, la cual debe regular la duración del destacamento, los beneficios y obligaciones de las partes.

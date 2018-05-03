@@ -1,0 +1,7 @@
+Sección II. Del ingreso
+ARTÍCULO 9: Del ingreso
+La Institución contará con un sistema transparente y participativo de selección y promoción de personal.
+Para ello, se contará con un registro de oferentes que se actualizará permanentemente y en el que cualquier persona podrá solicitar la inclusión de su currículo, en el tanto existan puestos cuyo perfil cumpla con los fines y naturaleza de la Institución. Este registro de oferentes será la base del registro de elegibles para cada proceso de contratación. Las ofertas de servicios serán válidas por cuatro años, contado a partir de la fecha de su presentación.
+Formarán parte de ese registro de oferentes los perfiles de los empleados del IFAM.
+Para toda contratación de personal primero se llevará a cabo un proceso interno, con el propósito de promover al funcionario de la institución. En caso de no existir candidatos idóneos se procederá a realizar un concurso externo, tomando como base el registro de oferentes existente. En caso de que en el registro de oferentes no existan candidatos calificados o que, luego de finalizado el proceso de reclutamiento, ninguno sea idóneo para ocupar la plaza, se procederá a promocionar el concurso por otros medios, con el fin de concluir el proceso y contar con el personal necesario para el cumplimiento de las funciones de la Institución.
+La selección y promoción del personal de la Institución se hará con base en la idoneidad comprobada de los participantes, por lo que éstos deberán someterse a las pruebas respectivas y aportar la información que se solicite para ello.

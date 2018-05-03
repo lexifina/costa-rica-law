@@ -1,0 +1,2 @@
+ARTÍCULO 73: De la responsabilidad por administración de fondos
+Los funcionarios del IFAM que administren directa o indirectamente los fondos de la Institución o que sean responsables de su custodia, estarán afectados por las disposiciones de la Ley de Administración Financiera de la República y Presupuestos Públicos, Ley Orgánica de la Contraloría General de la República, la Ley General de Control Interno y otra normativa conexa.

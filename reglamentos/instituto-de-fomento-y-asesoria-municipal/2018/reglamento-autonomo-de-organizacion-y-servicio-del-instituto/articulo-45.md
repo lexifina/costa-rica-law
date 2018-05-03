@@ -1,0 +1,3 @@
+ARTÍCULO 45: De la evaluación del desempeño del funcionario
+Los funcionarios del IFAM serán evaluados en su desempeño anualmente, por su superior jerárquico inmediato, conforme con la metodología, formularios y procedimientos que para tal efecto elabore la Unidad de Talento Humano, en coordinación con la Unidad de Planificación.
+La Unidad de Talento Humano debe garantizar que los factores y criterios a evaluar, respecto al puesto, tareas, responsabilidades, metas individuales y competencias conductuales, sean las adecuadas a la naturaleza del trabajo de los funcionarios y que sean de pleno conocimiento de éstos y de su jefatura.

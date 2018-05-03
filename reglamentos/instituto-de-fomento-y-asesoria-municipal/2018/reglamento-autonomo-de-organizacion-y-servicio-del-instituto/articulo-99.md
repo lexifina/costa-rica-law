@@ -1,0 +1,2 @@
+ARTÍCULO 99: Del derecho a capacitación y formación de los funcionarios
+Todo funcionario del IFAM tendrá derecho a capacitación, formación y asignación de beneficios de estudio, siempre y cuando esté estrechamente relacionada con el desempeño de sus funciones, con los objetivos y con las necesidades de la institución y forme parte del Plan Anual de Capacitación y Formación Institucional aprobado por la Junta Directiva.

@@ -1,0 +1,2 @@
+ARTÍCULO 58: De la reincorporación
+Todo funcionario que disfrute de permiso con o sin goce de salario, se reincorporará a la plaza que ocupaba al solicitar el permiso. En caso de que se requiera sustitución, se hará por el tiempo de permanencia del titular del puesto fuera de la institución. El funcionario con permiso sin goce de salario podrá interrumpir dicho permiso, para lo cual debe informar a la administración con al menos cinco días hábiles de anticipación.

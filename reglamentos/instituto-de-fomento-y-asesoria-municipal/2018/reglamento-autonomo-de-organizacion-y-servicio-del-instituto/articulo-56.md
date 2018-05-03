@@ -1,0 +1,7 @@
+ARTÍCULO 56: De los permisos con goce de salario
+El IFAM otorgará a sus funcionarios permisos con goce de salario en los siguientes casos:
+a) Siete días naturales por matrimonio del funcionario a partir de la fecha de su celebración.
+b) Siete días naturales a partir de la fecha del deceso del cónyuge, compañero o compañera1 o por el deceso de padres o hijos;
+1 Aquella persona que conviva bajo un mismo techo por un año o más, de forma pública, notoria, única y estable sin diferenciación de sexo. Tanto la persona funcionaria como su compañero o compañera deben ostentar libertad de estado. Para poder obtener los beneficios de los derechos que les otorga este Reglamento se deberá entregar ante la Unidad de Talento Humano una declaración jurada por parte de ambas personas donde hagan constar la existencia de la relación según lo establecido anteriormente.
+c) Dos días hábiles por nacimiento de hijos, por cambio de casa, por deceso de hermanos, abuelos y suegros.
+d) Hasta por dos meses, por enfermedad grave del padre, la madre, hijos, del cónyuge o compañero, debidamente certificada por la Caja Costarricense del Seguro Social o el Instituto Nacional de Seguros y que requiera atención directa, personal y permanente del funcionario o funcionaria. En estos casos la Unidad de Talento Humano deberá comprobar técnicamente, la relación de dependencia directa y la necesidad de que sea el funcionario quien tiene que brindar esta atención.

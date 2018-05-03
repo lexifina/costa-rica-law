@@ -1,0 +1,2 @@
+ARTÍCULO 101: De las becas
+Las becas corresponden a un monto económico total o parcial, que se otorga a un funcionario para que reciba capacitación o formación dentro de una modalidad estrechamente relacionada al puesto que desempeña y con los objetivos y necesidades de la institución. Es una asignación económica no reembolsable, salvo por incumplimiento de las obligaciones asumidas por parte del beneficiario.

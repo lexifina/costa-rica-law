@@ -1,0 +1,2 @@
+ARTÍCULO 116: Del pago del incentivo salarial
+El pago por Carrera Profesional consiste en una suma de dinero adicional al salario, pagada conjuntamente con éste, con base en los méritos y condiciones establecidas en este capítulo y de conformidad con las disposiciones del presente reglamento y con las “Normas para la Aplicación de la Carrera Profesional para las Entidades Públicas cubiertas por el ámbito de la Autoridad Presupuestaria”.

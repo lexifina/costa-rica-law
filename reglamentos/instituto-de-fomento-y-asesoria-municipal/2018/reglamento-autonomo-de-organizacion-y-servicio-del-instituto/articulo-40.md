@@ -1,0 +1,2 @@
+ARTÍCULO 40: De la redistribución de funciones
+La redistribución de funciones implica la asignación de tareas y funciones adicionales que temporalmente se le asigna a un funcionario por razones de interés institucional y que son de su ámbito de competencia funcional en relación con el perfil del cargo. La redistribución de funciones debe ser equitativa con respecto a los demás funcionarios que cumplen con el mismo perfil del cargo. El funcionario no estará obligado a desarrollar más trabajo que el que sea compatible con sus fuerzas, aptitudes, estado o condición.

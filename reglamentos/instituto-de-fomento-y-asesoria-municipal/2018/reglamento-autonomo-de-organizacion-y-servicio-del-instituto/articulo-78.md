@@ -1,0 +1,4 @@
+ARTÍCULO 78: Del despido
+Los funcionarios del IFAM sólo podrán ser despedidos o cesados sin responsabilidad patronal cuando hayan incurrido en faltas muy graves, por causa debidamente tipificada y contemplada en la normativa interna, o bien cuando la normativa específica establezca el despido por la comisión de dicha conducta.
+Son causales de despido justificado y sin responsabilidad para el IFAM, el presentar ante las instancias administrativas títulos, atestados o cualquier otro documento que sea falso; las causas justas contempladas en el artículo 81 de Código de Trabajo.
+Todas aquellas faltas que cometa un funcionario y que no estén contempladas en la normativa interna o cualquier otra conexa, pero que cuya comisión implique una infracción muy grave debidamente comprobada, procederá el despido.

@@ -1,0 +1,2 @@
+ARTÍCULO 8: De la condición interina
+Se entenderá por interinato la condición de los servidores nombrados para realizar temporalmente funciones propias y permanentes de la Institución, en la que el titular de dicha plaza se encuentre de vacaciones, con licencia o incapacidad o laborando en otra área de la Institución en un puesto de nombramiento discrecional, o fuera de la Institución con un permiso sin goce de salario, cuando exista necesidad de ello y mientras reingresa el titular definitivo que la ocupará.

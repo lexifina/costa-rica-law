@@ -1,0 +1,2 @@
+ARTÍCULO 67: De la asistencia a Asambleas sindicales o gremiales
+Todos los miembros de las organizaciones sindicales o asociaciones gremiales del IFAM, tendrán derecho de hasta dos horas de su jornada laboral, para asistir a las asambleas generales de sus organizaciones convocadas formalmente. Este derecho se hará efectivo mediante solicitud formal a la Administración superior, misma que velará por el efectivo uso del tiempo otorgado.

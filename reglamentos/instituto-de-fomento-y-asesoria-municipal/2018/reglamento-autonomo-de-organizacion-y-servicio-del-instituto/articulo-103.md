@@ -1,0 +1,2 @@
+ARTÍCULO 103: De la responsabilidad del becario
+El funcionario becario que incumpla las obligaciones asumidas con ocasión del beneficio otorgado, no podrá ser favorecido nuevamente por al menos dos años contados a partir del momento en que se dé el incumplimiento. Si el funcionario tiene saldos pendientes de pago generados por el incumplimiento de las obligaciones asumidas como becario no podrá ser beneficiario de una nueva beca hasta que cancele la totalidad de la obligación pendiente.

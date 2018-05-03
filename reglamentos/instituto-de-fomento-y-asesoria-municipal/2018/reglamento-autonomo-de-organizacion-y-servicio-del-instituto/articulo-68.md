@@ -1,0 +1,2 @@
+ARTÍCULO 68: De la modificación de horario
+Los funcionarios podrán solicitar autorización para variar hasta en cinco horas semanales el horario de su jornada laboral ordinaria en el IFAM. La variación del horario será definida de común acuerdo entre el superior inmediato respectivo y el funcionario solicitante y deberá comunicarse previamente a la Unidad de Talento Humano para que se incluya en el expediente personal.

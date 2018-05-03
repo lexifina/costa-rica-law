@@ -1,0 +1,2 @@
+ARTÍCULO 6: Del tiempo indefinido
+Se entenderá por tiempo indefinido la condición de los servidores, que han cumplido satisfactoriamente con el periodo de prueba normado en este reglamento y cuya condición sea la de servidor regular o titular del puesto del que se trate y que han sido nombrados para satisfacer las necesidades propias y permanentes de la Institución, sin que exista una sujeción a un plazo determinado.

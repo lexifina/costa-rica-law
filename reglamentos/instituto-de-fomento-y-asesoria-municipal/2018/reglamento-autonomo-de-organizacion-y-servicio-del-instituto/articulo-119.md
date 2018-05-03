@@ -1,0 +1,2 @@
+ARTÍCULO 119: De la unidad responsable del trámite
+La Unidad de Talento Humano sólo realizará estudios por solicitud de los interesados y será la instancia encargada de la emisión de las resoluciones pertinentes, en materia de reconocimiento del beneficio aquí reglamentado. Cuando se generen pagos por puntos otorgados en excesos esta Unidad será la responsable, en solitario, de los montos adeudados a la Administración.

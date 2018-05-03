@@ -1,0 +1,4 @@
+ARTÍCULO 64: Del salario escolar y aguinaldo
+El IFAM pagará un salario adicional anual a cada funcionario denominado “salario escolar”, que se hará efectivo en la segunda quincena del mes de enero de cada año. Su monto equivale al 8,33% de los salarios mensuales devengados por el funcionario, del 1 de enero al 31 de diciembre del año anterior. Por su naturaleza jurídica de salario, estará sujeto a todas las deducciones legales y
+voluntarias que procedan.
+Asimismo, asume el pago del sueldo adicional pagadero la primera semana de diciembre de cada año denominado “aguinaldo”, creado mediante la Ley N.1981 del 9 de noviembre de 1955, el que se calcula con base en el promedio de los sueldos ordinarios y extraordinarios devengados durante las cincuenta y dos semanas anteriores del primero de diciembre del año anterior al 30 de noviembre del año de que se trate.

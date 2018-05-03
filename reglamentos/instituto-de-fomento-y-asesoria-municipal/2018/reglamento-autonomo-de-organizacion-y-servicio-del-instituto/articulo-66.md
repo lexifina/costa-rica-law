@@ -1,0 +1,3 @@
+ARTÍCULO 66: Del tiempo para el ejercicio de las representaciones sindicales y gremiales
+Los miembros de la Junta Directiva de los sindicatos o asociaciones gremiales formalmente establecidas y que se encuentren plenamente vigentes, dispondrán de hasta un máximo de 2 horas semanales, dentro de su jornada laboral, para las reuniones de Junta Directiva.
+Los agremiados designados por sus respectivas organizaciones dispondrán de tiempo para asistir a reuniones fuera de la institución, cursos de formación, seminarios, congresos y conferencias sindicales o gremiales cuando se requiera, mediante solicitud formal, por parte del sindicato o asociaciones gremiales a la Administración superior, misma que velará por el efectivo uso del tiempo otorgado.

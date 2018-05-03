@@ -1,0 +1,2 @@
+ARTÍCULO 37: De los recargos de funciones
+El recargo se refiere a funciones adicionales que temporalmente se le asigna a un funcionario por razones de interés institucional, siempre y cuando la persona que lo asumirá cuente con las competencias técnicas que lo faculten para el ejercicio de las funciones adicionales y que no son de su ámbito de competencia funcional en relación con el perfil del cargo.

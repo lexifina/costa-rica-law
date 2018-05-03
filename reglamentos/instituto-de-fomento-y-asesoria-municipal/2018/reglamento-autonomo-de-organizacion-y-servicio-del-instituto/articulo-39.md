@@ -1,0 +1,4 @@
+ARTÍCULO 39: De la reasignación de los puestos
+Si a un funcionario se le asignan funciones adicionales, sustanciales y de manera permanente, a las que contempla el puesto que ocupa, ese puesto podrá ser reasignado, de conformidad con la normativa especial para estos efectos, previo estudio técnico a cargo de la Unidad de Talento Humano, a la clase superior que corresponda. La solicitud la podrá realizar el funcionario o su superior inmediato.
+La reasignación de un puesto de cargos fijos puede conllevar también a un nivel salarial menor o igual, es decir, que la reasignación no sólo implica de forma ascendente, sino que existen otras variantes acordes a la variación sustancial y permanente que ocurre en sus tareas y niveles de responsabilidad del puesto de que se trate.
+Todas las disposiciones del presente artículo deben apegarse a las disposiciones de política presupuestaria vigentes y aplicables.

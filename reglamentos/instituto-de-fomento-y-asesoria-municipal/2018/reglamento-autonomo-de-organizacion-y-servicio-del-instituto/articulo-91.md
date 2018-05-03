@@ -1,0 +1,4 @@
+ARTÍCULO 91: De las potestades y actuaciones del Órgano Director
+La actuación del Órgano Director deberá realizarse con arreglo a los principios de sana crítica, economía, simplicidad, celeridad, eficiencia, continuidad, imparcialidad y equidad.
+Debe buscar la verdad real de los hechos, para lo cual ordenará y practicará todas las diligencias de prueba necesarias, de oficio o a petición de parte. El ofrecimiento y admisión de pruebas de la parte se hará de conformidad con los parámetros de razonabilidad y legalidad que establece la Ley General de la Administración Pública.
+Todas las oficinas y dependencias del IFAM deberán facilitar al Órgano Director, la información y documentos que requiera en el ejercicio de sus funciones y en la búsqueda de la verdad real, como objeto más importante del procedimiento administrativo ordinario; constituyéndose en falta grave por parte del funcionario que omitiere o no facilitare la documentación o información requerida.

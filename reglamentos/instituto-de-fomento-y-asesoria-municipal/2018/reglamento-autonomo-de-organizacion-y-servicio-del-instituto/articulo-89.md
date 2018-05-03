@@ -1,0 +1,2 @@
+ARTÍCULO 89: Del órgano director del procedimiento
+El órgano encargado de instruir el proceso administrativo disciplinario en el IFAM es la Dirección Ejecutiva o la Junta Directiva, se exceptúan las denuncias por acoso psicológico y laboral, así como el hostigamiento sexual cuyos procesos administrativos serán instruidos por la instancia que indique cada reglamento. Es competencia exclusiva de la Dirección Ejecutiva o de la Junta Directiva según el caso, la resolución final del asunto.

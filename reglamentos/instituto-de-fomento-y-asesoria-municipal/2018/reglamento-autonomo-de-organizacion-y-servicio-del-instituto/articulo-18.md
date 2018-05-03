@@ -1,0 +1,2 @@
+ARTÍCULO 18: Del acto de nombramiento
+Cuando se comunique el resultado final del proceso de selección y se declare en firme la persona electa, le corresponde en forma exclusiva al Jerarca Superior Administrativo, dictar el acto de nombramiento, y firmar la documentación correspondiente de todo servidor o colaborador que ingrese a laborar a la Institución. Se constituye la existencia del contrato y la relación laboral entre el IFAM y el funcionario cuando medie la respectiva acción de personal detallando tales condiciones.

@@ -1,0 +1,2 @@
+ARTÍCULO 54: Del derecho al disfrute de las vacaciones proporcionales
+Cuando no se haya cumplido el derecho a disfrutar de un período completo de vacaciones y el funcionario requiera de éstas, podrá acordarse el disfrute de los días proporcionales ya ganados, siempre y cuando el superior inmediato lo autorice, toda vez que no afecte la reserva requerida para sufragar los periodos de vacaciones colectivas.

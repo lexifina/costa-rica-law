@@ -1,0 +1,2 @@
+ARTÍCULO 47: Del manual institucional de evaluación del desempeño
+El IFAM contará con un manual institucional de evaluación de desempeño, donde se indicarán los factores o aspectos a evaluar, su ponderación, las situaciones administrativas que puedan presentarse cuando ha existido cambio de jefes u otras circunstancias análogas, las categorías que se utilizarán, la forma en que los jefes deben justificar la evaluación que asignan, los mecanismos de impugnación, así como cualquier otro aspecto no previsto en este Reglamento.

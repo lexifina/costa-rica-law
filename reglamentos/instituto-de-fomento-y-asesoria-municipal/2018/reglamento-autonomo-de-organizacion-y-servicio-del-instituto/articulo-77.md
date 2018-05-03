@@ -1,0 +1,13 @@
+ARTÍCULO 77: De la suspensión sin goce de salario
+Se considera una falta grave y se aplicará una suspensión sin goce de salario hasta por un mes calendario, cuando el funcionario incurra en las siguientes acciones u omisiones, siempre que no amerite una sanción mayor así prevista en el presente Reglamento u otra normativa institucional. El término de la suspensión será determinado por la instancia encargada de su aplicación.
+a) Incurrir en acoso laboral y/o psicológico en perjuicio de algún funcionario o grupo de funcionarios, de acuerdo con la normativa interna sobre la materia.
+b) Producir dentro de las instalaciones de la institución o en su nombre, daños a terceros, cuando hayan sido causados bajo condiciones de dolo o culpa grave.
+c) Violar la discreción necesaria sobre asuntos relacionados con su trabajo, que por su naturaleza o en virtud de instrucciones de sus superiores así se requiera, sin perjuicio de la obligación de denunciar cualquier hecho delictuoso.
+d) Girar a sus subalternos, órdenes antojadizas, ilícitas y arbitrarias, que obstaculicen la regular información pública y obligatoria, que puedan provocar un perjuicio institucional, en atención de la normativa interna o normas externas conexas.
+e) Incurrir en actos dolosos o de culpa grave en el desempeño o con ocasión de sus funciones dentro o fuera del IFAM.
+f) Provocar con dolo o culpa grave el deterioro de los útiles, enseres y equipo a su cargo, cuando éste sea ajeno del derivado del trabajo normal u ocultar cualquier accidente, extravío o daño en su utilización.
+g) Omitir dolosamente denunciar ante el superior o ante la Auditoría, todo hecho o situación ilícita que pueda significar perjuicio grave o muy grave al patrimonio del IFAM.
+h) Cuando el superior inmediato impida el derecho del funcionario a hacer efectiva una incapacidad médica, obstaculizar el acceso a prestaciones de seguridad social y beneficios que otorga la institución.
+i) Presentarse o permanecer en el trabajo bajo los efectos de bebidas alcohólicas, drogas, bajo los efectos de sustancias enervantes u otras similares; de tal forma que afecte el desempeño laboral. Lo anterior, sin perjuicio del procedimiento para dar curso a los problemas generados por este tipo de enfermedades o patologías que surjan en el IFAM, definidos por el servicio médico institucional.
+j) La violación de alguna de las disposiciones de reglamentos especiales, que forman parte de la normativa general institucional, que contemple específicamente esta sanción.
+k) La comisión de una falta reiterada dentro del plazo perentorio de un mes calendario, la cual haya sido sancionada con una advertencia escrita.

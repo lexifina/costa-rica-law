@@ -1,0 +1,3 @@
+ARTÍCULO 25: De la suspensión del periodo de prueba
+La administración podrá suspender el periodo de prueba en cualquier momento. En el caso del funcionario de primer ingreso en periodo de prueba procederá el cese de la relación laboral, en tanto que el funcionario regular en período de prueba podrá regresar al puesto que ocupaba anteriormente, ya sea por voluntad propia o por decisión de la administración; en todos los casos el encargado inmediato, en estrecha coordinación con su superior, deberá rendir un informe a la Dirección Ejecutiva acerca de los motivos que justifican dicha acción.
+La documentación respectiva será valorada y custodiada por la Unidad de Talento Humano, el que ejecutará las acciones administrativas correspondientes.

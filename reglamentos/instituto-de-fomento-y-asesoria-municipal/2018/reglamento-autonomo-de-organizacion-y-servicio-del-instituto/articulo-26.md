@@ -1,0 +1,2 @@
+ARTÍCULO 26: Del reconocimiento de tiempo laborado como suplencia al periodo de prueba
+Si el funcionario en suplencia, luego de participar en un proceso de selección, resultare electo en un puesto del mismo cargo al que ha venido desempeñando, y si la evaluación del desempeño en la condición de suplencia es satisfactoria, se le computará como parte del periodo de prueba mínimo requerido. Para todos los efectos de este artículo la suplencia debe ser continua.

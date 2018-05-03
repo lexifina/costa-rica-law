@@ -1,0 +1,2 @@
+ARTÍCULO 59: Del bienestar, la seguridad e higiene
+En el IFAM funcionará un programa de salud ocupacional, dedicado a organizar la prevención de las condiciones de riesgo, que puedan causar alteración en la salud de los trabajadores, pérdidas económicas, afectar la producción y el medio ambiente y cuya finalidad es promover y mantener el más alto nivel posible de bienestar físico, mental y social de los funcionarios en general.

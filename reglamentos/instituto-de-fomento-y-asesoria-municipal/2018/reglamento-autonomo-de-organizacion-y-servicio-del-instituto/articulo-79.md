@@ -1,0 +1,3 @@
+ARTÍCULO 79: De las consideraciones especiales para aplicar una sanción
+En la aplicación del régimen disciplinario, deben contemplarse aquellos casos de funcionarios que presenten algún tipo de adicción o patología que se encuentre debidamente certificada por la Caja Costarricense de Seguro Social o por el Servicio Médico del IFAM.
+En estos casos el funcionario está obligado a recibir el asesoramiento, y cumplir con el tratamiento y rehabilitación, referido por el Servicio Médico de la Institución y debidamente validado por la CCSS. De no ser así, se procederá con la apertura del procedimiento administrativo.

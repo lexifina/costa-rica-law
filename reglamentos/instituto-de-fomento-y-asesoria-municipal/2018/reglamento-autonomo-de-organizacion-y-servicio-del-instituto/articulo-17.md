@@ -1,0 +1,3 @@
+ARTÍCULO 17: De las pruebas de idoneidad
+Corresponde a la Unidad de Talento Humano definir, aplicar y valorar las pruebas de idoneidad.
+Además, deberá verificar las referencias personales, profesionales y la documentación aportada. Toda la información que se relacione con el proceso de contratación deberá ser custodiada por esa dependencia. Para efectos del diseño de las pruebas técnicas la Unidad de Talento Humano podrá contar con el apoyo especializado de otras dependencias de la Institución. Tales pruebas serán confidenciales y de uso exclusivo para la institución, manteniendo una vigencia máxima de un año a partir de su realización y serán dispuestas en orden descendente de acuerdo con los resultados obtenidos por los candidatos.

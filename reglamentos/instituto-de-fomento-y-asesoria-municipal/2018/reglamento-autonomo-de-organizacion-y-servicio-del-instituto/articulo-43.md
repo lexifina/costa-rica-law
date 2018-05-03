@@ -1,0 +1,2 @@
+ARTÍCULO 43: Del funcionario de otra institución pública destacado en el IFAM
+La Presidencia Ejecutiva podrá solicitar en calidad de préstamo a funcionarios de otras instituciones del Estado, por un período máximo de cuatro años, debiéndose suscribir una carta de entendimiento entre ambas instituciones, la cual debe regular la duración del destacamento, los beneficios y obligaciones de las partes.

@@ -1,0 +1,5 @@
+ARTÍCULO 96: De las funciones y atribuciones de la Junta de Relaciones Laborales
+Conocer y emitir pronunciamiento sobre las sanciones disciplinarias que conlleven suspensión sin goce de salario o destitución sin responsabilidad patronal. El interesado podrá solicitar su intervención una vez interpuesto el recurso de revocatoria y/o apelación ante el órgano o superior correspondiente. La solicitud de intervención de la Junta de Relaciones Laborales suspende los plazos y la competencia del funcionario u órgano para resolver el recurso, hasta que la Junta se pronuncie dentro del término reglamentario.
+Intervenir conciliatoriamente en los diferendos entre funcionarios y entre éstos con la administración, con las jefaturas o con los encargados, entre otros y, promover el mejoramiento de las relaciones entre las personas de la Institución.
+Conocer en consulta, a solicitud del trabajador, de todo acto o resolución que afecte sus derechos.
+Conocer y pronunciarse sobre las denuncias por persecución sindical o laboral planteadas por cualquier trabajador u organización gremial.
