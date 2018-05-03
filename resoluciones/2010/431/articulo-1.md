@@ -1,4 +1,6 @@
+(Revocada)
 SUPERINTENDENCIA DE TELECOMUNICACIONES
+(Esta norma fue revocada por resolución N° RCS-154-2018 del 3 de mayo del 2018, “Procedimiento para solicitar ante la SUTEL la homologación de dispositivos que operen en las bandas de uso libre”)
 RCS-431-2010.—Resolución del Consejo de la Superintendencia de Telecomunicaciones.—San José, a las 18:00 horas del 16 de setiembre de 2010.
 Procedimiento para solicitar ante la SUTEL la homologación de dispositivos que operen en las bandas de uso libre.
 Resultando:

@@ -14,3 +14,4 @@ Procedimiento para solicitar ante la SUTEL la homologación de dispositivos que 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-01 | la propia norma |
+| 2 | 2018-05-03 | Resolución 154 (2018-05-03) |
