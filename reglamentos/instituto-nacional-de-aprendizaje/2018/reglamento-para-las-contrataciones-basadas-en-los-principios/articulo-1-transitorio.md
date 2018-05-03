@@ -1,0 +1,1 @@
+Transitorio I: En el tanto el “Proceso de Administración y contratación de servicios externos” no sea aprobado por MIDEPLAN, las contrataciones se tramitarán por medio de la Unidad de Adquisiciones del INA, pero con la obligación de aplicar este Reglamento regido bajo los principios de contratación.

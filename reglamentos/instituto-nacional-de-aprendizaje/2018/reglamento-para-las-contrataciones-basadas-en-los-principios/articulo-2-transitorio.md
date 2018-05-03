@@ -1,0 +1,1 @@
+Transitorio II: El uso de la plataforma SICOP/MERLINK se implementará en el momento en que sea utilizada de manera permanente por el INA en todas sus contrataciones. En el tanto eso ocurre, se utilizarán los procedimientos y formatos usuales de la Administración.

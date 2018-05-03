@@ -1,0 +1,1 @@
+Artículo 3°—Reglas de interpretación. Cuando existan casos o situaciones que no puedan ser resueltos por medio de este Reglamento, podrá acudirse por analogía a la Ley de Contratación Administrativa y a su Reglamento, así como a los precedentes de la Contraloría General de la República que pudieran servir para llenar el vacío.

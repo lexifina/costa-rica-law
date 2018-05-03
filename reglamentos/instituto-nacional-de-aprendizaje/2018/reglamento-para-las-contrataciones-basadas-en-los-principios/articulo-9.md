@@ -1,0 +1,1 @@
+Artículo 9°—Prohibiciones. En los contratos que se celebren con fondos SBD, aplicará el régimen de prohibiciones para contratar con la Administración que se regula en los artículos 22 y 22 bis de la Ley de Contratación Administrativa, así como en los correspondientes de su reglamento.

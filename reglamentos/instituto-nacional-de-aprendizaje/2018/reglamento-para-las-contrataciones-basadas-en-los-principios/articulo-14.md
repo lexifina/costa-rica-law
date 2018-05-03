@@ -1,0 +1,1 @@
+Artículo 14.—Sanciones a los contratistas. En cuanto al régimen de sanciones a los contratistas por infracciones contractuales, se estará en un todo a las disposiciones de la Ley de Contratación Administrativa.
