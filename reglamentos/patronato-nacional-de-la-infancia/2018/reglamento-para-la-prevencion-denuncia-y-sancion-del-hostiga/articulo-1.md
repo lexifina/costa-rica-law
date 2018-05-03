@@ -1,0 +1,6 @@
+PATRONATO NACIONAL DE LA INFANCIA
+REGLAMENTO PARA LA PREVENCIÓN, DENUNCIA Y SANCIÓN DEL
+HOSTIGAMIENTO LABORAL EN EL PATRONATO NACIONAL DE LA INFANCIA
+(Nota de Sinalevi: el Patronato Nacional de la Infancia aprobó un nuevo Reglamento para la prevención, denuncia y sanción del hostigamiento laboral en el Patronato Nacional de la Infancia mediante publicación en La Gaceta N° 209 del 29 de octubre del 2021)
+(Nota de Sinalevi: Sobre este tema el Patronato Nacional de la Infancia , había emitido anteriormente el Reglamento para la prevención, denuncia y sanción del Hostigamiento Laboral en las relaciones de empleo en la sesión ordinaria N° 2015-034 del 16 de setiembre del 2015)
+Artículo 1 º-Del objetivo. El objetivo del presente reglamento es el de proteger la dignidad, la igualdad ante la ley, la integridad personal y el derecho al trabajo de todos los funcionarios del Patronato Nacional de la Infancia en condiciones sanas y dignas, estableciendo para tales efectos, los principios y procedimientos a observar en materia de hostigamiento laboral, tendientes a prevenir, investigar, resolver y sancionar las denuncias presentadas en perjuicio de los (las) funcionarios (as) institucionales en el ámbito de sus relaciones laborales en dicha materia.

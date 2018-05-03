@@ -1,0 +1,2 @@
+Artículo 30.-Transitorio: El presente reglamento no afecta los procedimientos disciplinarios por supuesto hostigamiento laboral, que se estén tramitando al momento de su entrada en vigencia, los cuales deberán fenecer con la normativa anterior.
+Publíquese solo una vez.

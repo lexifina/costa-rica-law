@@ -1,0 +1,1 @@
+Artículo 19.—Posibilidad de conciliación. En los procedimientos de hostigamiento laboral será posible la conciliación entre las partes ofendida y denunciada en cualquier etapa del procedimiento. La conciliación deberá ser homologada por la Comisión y comunicada a la Presidencia Ejecutiva para el archivo del expediente una vez comprobado el cumplimiento de los términos acordados.

@@ -1,0 +1,8 @@
+Artículo 17.—De la aplicación de medidas cautelares. La Comisión podrá solicitar, de oficio o a instancia de la parte denunciante y/ o ofendida, en el plazo de 8 días naturales a la Presidencia Ejecutiva, el dictado de medidas cautelares, las cuales serán resueltas por dicho órgano a más tardar en un plazo de 10 días naturales. Lo anterior, ya sea para asegurar el no entorpecimiento del proceso, la protección de la parte denunciante o bien, para la oportuna recopilación de la prueba. Dicha solicitud no será vinculante para la Presidencia Ejecutiva, quien podrá apartarse de la recomendación de la Comisión.
+Dentro de las medidas cautelares que podrá dictar la Presidencia Ejecutiva se encuentran:
+a) Prevención al denunciado(a) de no acercarse ni comunicarse, en modo alguno, con el (la) denunciante y/ o ofendido(a), ni con los (las) testigos del denunciante.
+b) Traslado del funcionario o funcionaria denunciado(a) o denunciante y/o ofendido a un centro de trabajo diferente a aquel en que normalmente desempeña sus funciones, en ejercicio de las facultades del lus Variandi.
+c) Suspensión con goce de salario por el tiempo necesario para cumplir con la finalidad del procedimiento.
+d) Otras que se consideren necesarias
+La duración de la medida dispuesta será determinada por su instrumentalidad para el proceso.
+Contra el acto que declara la medida cautelar, podrá interponerse el recurso de revocatoria ante la Presidencia Ejecutiva, en el plazo de 24 horas contadas a partir de su notificación.
