@@ -1,0 +1,1 @@
+Artículo 3°— Deróguese al artículo 19 del Reglamento para Potenciar el Desarrollo del Recurso Humano de las Empresas Beneficiarias del Régimen de Zonas Francas, Decreto Ejecutivo N° 39081-MP-MTSS-COMEX del 16 de junio de 2015.
