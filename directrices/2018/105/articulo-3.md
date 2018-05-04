@@ -1,0 +1,1 @@
+Artículo 3º—Toda acción que en cumplimiento de esta Directriz se desarrolle, estará orientada al uso eficiente y razonable del espacio asignado para los duetos, canalizaciones y demás elementos de infraestructura subterránea, considerando, además, que se deberá causar el menor impacto ambiental posible durante su ejecución.

@@ -1,0 +1,1 @@
+Artículo 4º—Se exhorta a las Instituciones que conforman el Sector Ciencia Tecnología y Telecomunicaciones a brindar toda la colaboración y asesoría que sea necesaria para el cumplimiento de los objetivos establecidos en la presente Directriz.

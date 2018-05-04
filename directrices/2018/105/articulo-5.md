@@ -1,0 +1,1 @@
+Artículo 5º—Se insta a las municipalidades a contemplar la implementación de duetos de telecomunicaciones, como parte del proceso de construcción, mejoramiento, conservación, rehabilitación o concesión de sus obras públicas.
