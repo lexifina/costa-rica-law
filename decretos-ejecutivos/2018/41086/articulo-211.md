@@ -1,0 +1,2 @@
+Artículo 211°- Orientación del programa.
+El servicio de Fomento a la Producción y Seguridad Alimentaria del Inder tiene como objetivo estimular la producción de las familias y organizaciones en el medio rural mediante la implementación de proyectos de desarrollo que favorezcan la seguridad alimentaria y mejoren la calidad e inocuidad de los productos y servicios, promuevan la diversificación de los sistemas de producción y la sostenibilidad social, económica y ambiental.

@@ -1,0 +1,2 @@
+Artículo 102°-Fallecimiento del asignatario
+En toda asignación en propiedad, el beneficiario, deberá aportar el nombramiento del o los herederos que designa en caso de su fallecimiento, el cual podrá ser modificado en el momento que el asignatario lo desee dejando constancia ante la OT correspondiente de su deseo. La OT deberá intimar a todos los beneficiarios para que cumplan con esta disposición.

@@ -1,0 +1,3 @@
+Artículo 131°- Prevención Inicial
+En los casos que proceda la aplicación de los incisos b) y c) del artículo anterior el Instituto hará una prevención inicial al ocupante ilegal donde le advertirá que debe abstenerse de introducir mejoras adicionales a las existentes a ese momento y que de no cumplir dicha advertencia el Instituto no reconocerá las mismas en caso de indemnización por ese rubro.
+Si la persona tiene menos de un año de ocupar ilegítimamente la tierra se le solicitará de inmediato que abandone voluntariamente la misma, advirtiéndosele que, de no hacerlo, se hará el desalojo administrativo, con el apoyo de la Fuerza Pública si fuere necesario. En este caso no se reconocerá ningún pago de mejoras.

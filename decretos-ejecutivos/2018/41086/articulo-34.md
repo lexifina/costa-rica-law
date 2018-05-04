@@ -1,0 +1,2 @@
+Artículo 34°- Seguimiento
+Anualmente el Fondo de Desarrollo Rural y la Seteder deberán elaborar un informe de seguimiento sobre la ejecución de las estrategias de apoyo y los resultados alcanzados para el fortalecimiento de los territorios rurales del país, según el plan Nacional de Desarrollo Rural y los planes de desarrollo territorial. Dicho informe deberá ser presentado a la Presidencia Ejecutiva y a la Gerencia General con las recomendaciones para la continuidad de apoyo o no por parte del Inder.

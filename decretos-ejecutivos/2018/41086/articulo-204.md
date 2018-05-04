@@ -1,0 +1,2 @@
+Artículo 204°- Gravedad del conflicto
+Una vez que haya sido declarada infructuosa la etapa de intermediación el Instituto procederá a determinar si el conflicto tiene una gravedad evidente o de impacto social que justifique la intervención del Instituto en la solución del conflicto mediante la compra directa o expropiación del bien inmueble en conflicto. La resolución final deberá ser dictada por la JDI y notificada a todas las partes en conflicto y al Juzgado correspondiente si existiere un proceso judicial ya planteado del que se tenga noticia.

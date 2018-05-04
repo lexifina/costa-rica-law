@@ -1,0 +1,2 @@
+Artículo 148- Recuperación del predio
+Si no existieren herederos, o bien, si los hubiere, pero ninguno de ellos o el administrador puede llevar a satisfacción la administración del proyecto aprobado, el Inder podrá recuperar el predio con la debida indemnización por mejoras conforme a lo preceptuado en esa materia en este reglamento, y deberá coordinar con otras instituciones la asistencia o apoyo a la familia del causante si fuere necesario.

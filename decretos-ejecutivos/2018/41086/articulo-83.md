@@ -1,0 +1,3 @@
+SECCIÓN II - DE LOS MODELOS DE DOTACIÓN DE TIERRAS
+Artículo 83°- Dotación de tierras
+A efectos de procurar el avance, ejecución y viabilidad de los proyectos de desarrollo que emprendan los pobladores rurales, el Instituto podrá dotar de tierra a quienes cumplan con las condiciones técnicas, productivas, comerciales, sociales, comunales o personales establecidas por el proyecto aprobado. La dotación de tierras, según los requerimientos del proyecto aprobado, se hará por medio de alguno de los dos modelos previstos en la ley, a saber: a) el arrendamiento como modelo prioritario y b) la asignación como modelo de aplicación justificada.

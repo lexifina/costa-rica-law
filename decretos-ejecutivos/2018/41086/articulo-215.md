@@ -1,0 +1,2 @@
+Artículo 215°- Objetivo
+Los recursos de apalancamiento pretenden apoyar procesos iniciales de producción, de generación de servicios, la reconstrucción, rehabilitación o mejoramiento de la producción o aquella actividad que hubiese sido afectada por desastres naturales, pago de deudas (totales o parciales) ante el sistema bancario nacional y/o del Sistema de Crédito Rural (SCR) del Inder, si con esas cancelaciones, la persona beneficiaria logra contar con liquidez para poner a producir la parcela asignada por cualquiera de las modalidades descritas en este Reglamento.

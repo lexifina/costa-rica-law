@@ -1,0 +1,6 @@
+Artículo 218°- De los Principios
+El SCR se regirá por los siguientes principios:
+a) El Principio de Recuperación: Los créditos deben otorgarse bajo la determinación de que existirán posibilidades de recuperación. Estas posibilidades se definirán al analizar los flujos de fondos futuros, que deben ser proyectados bajo estrictos criterios financieros, técnicos, agronómicos, comerciales y de cualquier otro tipo que sea necesario según la naturaleza del proyecto propuesto y que necesariamente deban informar, los análisis del proyecto que se proponga financiar.
+b) El Principio de Viabilidad: Sólo podrá otorgarse crédito para proyectos o actividades viables financieramente. La viabilidad financiera estará constituida por el potencial productivo o de ingreso de fondos que permitan el flujo positivo de fondos, ello de conformidad con el análisis financiero y cuando corresponda, de acuerdo con el plazo propuesto, forma de pago, mercado, costos, producción y el valor de la misma.
+c) El Principio Pro-Patrimonio: Si antes del otorgamiento de un crédito, existiere duda fundada en relación con aspectos técnicos o sobre condiciones eventuales y sobrevinientes, o, ante una situación de incerteza en cualquier campo que no sea resuelta en forma previa, se optará por proteger el interés público no aprobando dicho crédito, en pro del patrimonio de la Institución.
+d)

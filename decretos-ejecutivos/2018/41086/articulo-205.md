@@ -1,0 +1,2 @@
+Artículo 205°- Notificación del avalúo institucional
+Si hubiera declaración de gravedad del conflicto, el Instituto iniciará el proceso de compra directa o expropiación al propietario del bien, para lo que, procederá a notificar formalmente a las partes en conflicto el avalúo institucional realizado conforme al artículo 201 de este reglamento. Las partes tendrán un plazo de 15 días hábiles para plantear sus objeciones al mismo o si lo aprueban y si el propietario está dispuesto a vender y los ocupantes a comprarle al instituto en dicho monto.

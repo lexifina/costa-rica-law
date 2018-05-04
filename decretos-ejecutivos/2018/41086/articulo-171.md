@@ -1,0 +1,3 @@
+SECCIÓN XIII - DE LA ADQUISICIÓN DE INMUEBLES
+Artículo 171°- Actividad ordinaria
+Conforme lo establece el Artículo 16 inciso a) de la Ley 9036 y en aplicación del artículo 2 de la Ley de Contratación Administrativa (LCA), la compra de tierras por parte del Inder está excluida de la aplicación de los procedimientos de contratación administrativa debido a que la misma constituye su actividad ordinaria, por lo que, se podrán realizar compras directas, proceso de compra con publicación, compras en remate judicial o por cualquier otro medio que satisfaga mejor el interés público, siempre y cuando, se cumpla con lo establecido en este reglamento y se respeten los principios generales que rigen la adquisición de bienes por parte de la Administración Pública.

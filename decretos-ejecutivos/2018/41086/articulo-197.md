@@ -1,0 +1,3 @@
+Artículo 197°- Declaratoria de Conflicto
+Una vez recabada toda la información y la prueba, la JDI deberá dictar acto resolutorio y motivado en el que se defina si existe ocupación precaria o no en el caso analizado. Si se considera que no existe ocupación precaria deberá darse por agotada la vía administrativa y notificarse a cada una de las partes en conflicto, así como, al juzgado si existe ya un proceso judicial iniciado.
+Si se declara que existe el conflicto de ocupación precaria se procederá con el trámite de intermediación en el conflicto que deberá estar terminado en el plazo máximo de un año.

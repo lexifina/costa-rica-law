@@ -1,0 +1,2 @@
+Artículo 2°- Objeto
+El presente reglamento tiene como fin establecer un marco general que facilite la ejecución eficiente y eficaz, de la Ley 9036 al definir sus alcances, orientada al Desarrollo Rural Territorial (DRT), y los mecanismos de coordinación y articulación interinstitucional que sean necesarios, para regular las relaciones entre el Inder, los entes públicos, privados y sociedad civil, que participan en el desarrollo rural territorial.

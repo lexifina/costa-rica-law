@@ -1,0 +1,4 @@
+Artículo 179°- Negociación del precio de compra
+La GG citará de inmediato al oferente para negociar la compra de la propiedad, en donde, el precio máximo de compra será el que se determine mediante un avalúo oficial. De todos los acuerdos de la negociación se levantará un acta que se incorporará al respectivo expediente.
+Si la negociación es positiva y el propietario acepta vender la propiedad en los términos propuestos y acordados, la GG elevará la propuesta final ante la JDI para que esta adopte la decisión final.
+El precio pactado podrá incluir la maquinaria, equipo, semovientes, construcciones e instalaciones que se encuentren en los inmuebles cuando exista un criterio técnico y recomendación de la Instancia Regional correspondiente o del FDR, luego de haber realizado la valoración pericial de las mismas y una justificación respecto de su utilidad y necesidad en el desarrollo del proyecto que se pretende ejecutar.

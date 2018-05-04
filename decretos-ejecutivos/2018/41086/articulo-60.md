@@ -1,0 +1,2 @@
+Artículo 60°- Arraigo social
+Se presenta cuando el solicitante realiza actividades de cooperación y confianza por afinidad con la comunidad (amigos y otras personas no vinculadas al grupo familiar) y/o pertenencia a organizaciones con fines sociales y/o comunitarios para el desarrollo de su entorno. Se considera que existe arraigo social, también, cuando el solicitante se encuentra cursando estudios formales –académicos o técnicos- en el territorio rural.

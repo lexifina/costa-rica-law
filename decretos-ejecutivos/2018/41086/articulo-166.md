@@ -1,0 +1,2 @@
+Artículo 166°- Recomendación legal
+Terminada la instrucción del proceso y listo el expediente para el dictado del acto final, la asesoría legal regional rendirá, en un plazo no mayor de quince días hábiles, su recomendación final, la cual, si fuera positiva, se procederá a efectuar una publicación en el diario oficial La Gaceta, otorgando 15 días a los interesados para revisar en sus oficinas el expediente para atender oposiciones, si las hubiere.

@@ -1,0 +1,2 @@
+Artículo 67°- Categorización del productor
+Para definir los parámetros correspondientes a las categorías productivas de las solicitudes de personas físicas o jurídicas, se aplicarán los lineamientos que para tales efectos utilice el MAG en aquellos casos estrictamente agropecuarios. Para los demás sectores productivos, se hará referencia a la normativa y políticas que defina el MEIC en cuanto a micro, pequeño y medianos productores.

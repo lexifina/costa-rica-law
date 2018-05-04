@@ -1,0 +1,4 @@
+Artículo 145- Herederos designados
+Una vez declarado el o los herederos en el proceso sucesorio, se procederá a determinar mediante los estudios técnicos y sociales pertinentes si los designados cumplen con los requisitos de admisibilidad e idoneidad conforme al proyecto para el cual fue otorgado y si tienen la capacidad de continuar con la ejecución del proyecto.
+Si los designados cumplieren con los requisitos se procederá a notificar al Juez correspondiente del cumplimiento para que ordene el traspaso a dichas personas del contrato de asignación individual.
+De no considerarse que los herederos designados cumplen con los requisitos para continuar con el proyecto aprobado para ese predio, o bien si no hubiere herederos designados se procederá con el trámite de acuerdo de herederos regulado a continuación.

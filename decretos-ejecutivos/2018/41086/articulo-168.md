@@ -1,0 +1,4 @@
+Artículo 168°- Acuerdo final
+Una vez terminado el plazo de oposición sin que se presente ninguna o resueltas las presentadas, el órgano director remitirá al FT el expediente para que otorgue su recomendación. El FT lo elevará para resolución de la Junta Directiva quien aprobará la procedencia o no de la dotación por reconocimiento de la posesión sobre el inmueble, para la ulterior segregación y traspaso del predio, cuando así se aprobare. El acuerdo que declare o no la procedencia, será emitido mediante resolución ampliamente fundamentada.
+La OT tendrá la responsabilidad de notificar en el lugar señalado lo acordado por la JDI, en un plazo no mayor de 10 días hábiles contados a partir del momento en que reciba el acuerdo.
+Una vez firme el acuerdo, en caso de ser positivo, se ordenará a la Notaría Institucional la confección, firma e inscripción de la escritura de segregación y traspaso.
