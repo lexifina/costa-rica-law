@@ -1,0 +1,2 @@
+ARTÍCULO 32.- INCUMPLIMIENTO DEL FRACCIONAMIENTO DE DEUDA. El convenio de fraccionamiento de deuda se tendrá por incumplido de pleno derecho cuando el interesado se retrasare en el pago 12 días hábiles, contados a partir de la fecha que debió hacerse el respectivo
+pago de alguna de las cuotas pactadas, comprendiéndose que para tramitar el cobro judicial de la deuda no se requerirá notificación adicional, por cuanto el obligado acepta la renuncia al trámite de notificación.

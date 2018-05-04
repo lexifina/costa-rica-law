@@ -1,0 +1,1 @@
+ARTICULO 25.-DEL FRACCIONAMIENTO EN ETAPA DE COBRO JUDICIAL. La Municipalidad podrá autorizar fraccionamiento de deuda tributaria incluso en casos donde ya exista proceso de cobro judicial, previa cancelación de la totalidad mediante un único pago de honorarios, gastos procesales y administrativos generados como consecuencia de dicho proceso.
