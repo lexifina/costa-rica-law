@@ -1,0 +1,1 @@
+Artículo 8°—Comunicación de declaratoria de incobrabilidad. La resolución debidamente aprobada por la Gerencia General que declare la incobrabilidad de una deuda será comunicada al Departamento Contable -Presupuestario por la Gerencia Administrativa Financiera, para que proceda a realizar la liquidación de las cuentas por cobrar, según la normativa establecida.

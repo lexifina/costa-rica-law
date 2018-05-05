@@ -1,0 +1,1 @@
+Artículo 7°—Declaratoria de incobrable en vía judicial. En la tramitación de cobros judiciales, la Asesoría Jurídica le informará a la Gerencia Administrativa Financiera de los casos que se encuentran en cobro judicial por más de un año y que no hayan sido posible recuperar los recursos para efectos de que sean valorados y declarados incobrables.

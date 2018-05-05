@@ -1,0 +1,1 @@
+Artículo 5°—Notificación de Unidades Administrativas. Las Unidades Administrativas encargadas de realizar el cobro deben emitir nota a la Gerencia Administrativa Financiera con toda la información requerida, para que procedan a emitir la resolución técnica de incobrabilidad.
