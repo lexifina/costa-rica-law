@@ -1,0 +1,1 @@
+Transitorio Único. La implementación del Mecanismo de Gobernanza del Agua, se hará de manera progresiva, debiéndose realizar los Foros Regionales del Agua de forma paulatina y según la priorización de necesidad y la disponibilidad de recursos. Crédito Público para seguimiento del proyecto y la posibilidad de realización de las contingencias fiscales asociadas.

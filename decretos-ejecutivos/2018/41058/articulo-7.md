@@ -1,0 +1,3 @@
+Artículo 7. El Foro Nacional del Agua, periodicidad y participantes. Créase el Foro Nacional del Agua como instancia permanente, intersectorial, inclusiva y nacional de dialogo, intercambio y seguimiento de la política pública del recurso hídrico
+Será de convocatoria abierta y asistencia voluntaria de los actores del agua, y según la capacidad logística y de recursos que cuente la administración. Deberá contar con la presencia de representantes de cada uno de los Foros Regionales del Agua.
+El Foro deberá ser convocado por el Ministro de Ambiente y Energía a través de la Dirección de Agua una vez al año y durante el primer cuatrimestre.
