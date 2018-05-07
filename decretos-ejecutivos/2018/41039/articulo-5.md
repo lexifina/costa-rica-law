@@ -1,0 +1,1 @@
+Artículo 5°- La Administración Activa de cada entidad tomará las medidas para que los sistemas informáticos que se desarrollen y que tengan relación con la Administración Financiera sean consultados al Departamento Contable de dicha institución con la finalidad de que apoye el proceso de implementación de la normativa contable internacional.

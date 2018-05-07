@@ -1,0 +1,1 @@
+Artículo 4° - Auditorías Internas. Las Auditorías Internas dentro de cada Institución Pública en razón de las competencias legales otorgadas, deben apoyar al jerarca y titulares subordinados en la implementación de la normativa contable internacional, procurando mantener su independencia funcional y de criterio y abstenerse de asumir funciones de administración activa.
