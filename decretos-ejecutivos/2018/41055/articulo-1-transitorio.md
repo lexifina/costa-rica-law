@@ -1,0 +1,1 @@
+Transitorio I. La adición del párrafo segundo al artículo 4 del Decreto Ejecutivo N° 40510-MINAE del 05 de mayo de 2017, agregado en el artículo primero del presente Decreto, rige a partir del 1° de marzo de 2019, a efecto de que sea compatible con la modificación de la entrada en vigencia del Decreto Ejecutivo N° 40510-MINAE.
