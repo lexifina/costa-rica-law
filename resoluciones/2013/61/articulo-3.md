@@ -1,1 +1,0 @@
-3º—Se ordena a la Dirección de Cuarentena Animal, Dirección de Inocuidad de Productos de Origen Animal y a la Dirección Administrativa Financiera, tomen las previsiones administrativas que correspondan a los efectos de que la exoneración ordenada se aplique a todos los usuarios de este servicio en forma inmediata.
