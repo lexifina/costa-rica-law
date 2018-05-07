@@ -1,1 +1,0 @@
-Artículo 33.—Incorporación del conocimiento sobre riesgos. Los funcionarios de la Auditoría coadyuvarán con el SEVRI mediante la incorporación de los conocimientos del riesgo relacionados en los trabajos, mediante los productos de los servicios de fiscalización.

@@ -1,3 +1,0 @@
-SECCIÓN III
-Ubicación y estructura organizativa
-Artículo 9º—Ubicación. La ubicación de la Auditoría dentro de la estructura institucional corresponde a la de un órgano asesor de muy alto nivel con dependencia de la Junta Directiva y con independencia funcional y de criterio El Auditor Interno dependerá orgánicamente de la Junta Directiva, quien le establecerá las regulaciones de tipo administrativo que le sean aplicables. Los demás funcionarios de la Auditoría estarán sujetos a las disposiciones administrativas aplicables al resto del personal del Instituto. Lo anterior, de conformidad con el artículo Nº 24 de la Ley Nº 8292.

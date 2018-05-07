@@ -1,1 +1,0 @@
-Artículo 52.—Recibido por la junta directiva. El Auditor Interno debe revisar que en la copia de la nota de remisión del informe, conste la fecha de recibido por parte de la Secretaría de la Junta Directiva, fecha a partir de la cual iniciará el plazo establecido en el artículo Nº 37 de la Ley Nº 8292.

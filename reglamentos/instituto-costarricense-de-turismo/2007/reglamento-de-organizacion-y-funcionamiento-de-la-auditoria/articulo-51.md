@@ -1,2 +1,0 @@
-Artículo 51.—Recordatorio del plazo. El Auditor Interno debe recordar expresamente a la Junta Directiva, sobre el plazo de treinta días hábiles con que cuenta para emitir el acuerdo respectivo en relación con las recomendaciones formuladas, y le hará saber que puede formular sus objeciones – dentro de ese mismo plazo – mediante acuerdo motivado.
-En caso de aceptación de las recomendaciones, la Junta Directiva debe emitir un acuerdo ordenando la puesta en práctica de las mismas.

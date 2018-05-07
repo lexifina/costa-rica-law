@@ -1,1 +1,0 @@
-Artículo 12.—Nombramiento del Auditor Interno. El nombramiento del Auditor Interno se realizará, según lo establecido en la Ley N° 1917, el artículo Nº 31 de la Ley N° 8292 y los requisitos establecidos por la Contraloría en la normativa correspondiente y los establecidos en el Manual de Cargos del ICT.

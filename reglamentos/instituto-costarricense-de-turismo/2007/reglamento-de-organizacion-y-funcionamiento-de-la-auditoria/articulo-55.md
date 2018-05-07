@@ -1,1 +1,0 @@
-Artículo 55.—Planteamiento de conflictos ante la Contraloría. Si la resolución de la Junta Directiva ordena soluciones distintas de las recomendadas y no aceptadas por la Auditoría, la situación se regirán por lo establecido en el artículo 38º de la Ley Nº 8292.

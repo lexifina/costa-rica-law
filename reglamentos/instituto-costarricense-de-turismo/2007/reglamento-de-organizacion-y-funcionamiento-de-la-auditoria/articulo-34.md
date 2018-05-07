@@ -1,1 +1,0 @@
-Artículo 34.—Ejecución de la auditoría. La Auditoría deberá ejecutar su trabajo de acuerdo con lo que establecen las Normas para el ejercicio y el “Manual de Normas Generales de Auditoría para el Sector Público”, emitidos por la Contraloría, así como en cualesquiera otras disposiciones que dicte la Contraloría, y en el presente Reglamento.
