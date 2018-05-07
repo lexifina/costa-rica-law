@@ -1,1 +1,0 @@
-II.—Se ordena a la Dirección de Cuarentena Animal y a la Dirección Administrativa Financiera, tomen las previsiones administrativas que correspondan a los efectos de que la exoneración ordenada se aplique a todos los usuarios en forma inmediata.
