@@ -1,0 +1,3 @@
+CAPÍTULO XI
+REGISTRO Y CONTROL DE ASISTENCIA
+Artículo 49.- La asistencia de los servidores a su trabajo se controlará por el medio más idóneo que consideren las autoridades competentes. Se excluyen de la obligación de control de asistencia a los servidores autorizados expresamente por el Ministro, el Viceministro Administrativo o el Director General. Se exceptúan de la obligación de registrar la asistencia, aquellos días en los que con ocasión del cumplimiento de sus funciones, los servidores deban prestar sus servicios fuera del lugar habitual de trabajo, siempre y cuando resulte imposible registrar su ingreso o salida, lo cual deberá ser debidamente justificado por el superior inmediato del servidor.

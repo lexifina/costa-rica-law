@@ -1,0 +1,1 @@
+Artículo 65.- Las salidas injustificadas antes de la hora acordada como horario de la Presidencia o del Ministerio, para medias jornadas o jornadas completas, se considerarán para todo efecto como abandono del trabajo.

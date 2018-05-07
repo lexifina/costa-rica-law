@@ -1,0 +1,1 @@
+Artículo 24.- El servidor que sea declarado incapacitado para laborar por enfermedad, gozará de un subsidio en proporción al tiempo servido, conforme con las disposiciones establecidas en el numeral 34 del Reglamento del Estatuto de Servicio Civil.

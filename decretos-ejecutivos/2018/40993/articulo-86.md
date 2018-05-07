@@ -1,0 +1,1 @@
+Artículo 86.- Para realizar los ascensos, la Presidencia o el Ministerio, acordará los movimientos con la participación de la Dirección de Recursos Humanos y del superior correspondiente. Lo anterior, de conformidad con los lineamientos establecidos en el artículo 33 del Estatuto de Servicio Civil.

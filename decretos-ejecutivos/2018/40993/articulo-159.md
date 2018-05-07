@@ -1,0 +1,1 @@
+Artículo 159.- Con fundamento en el artículo 47 de la Ley General de Administración Pública el Presidente de la República podrá nombrar otro Viceministro de la Presidencia para atender temas específicos de la Presidencia y/o el Ministerio.

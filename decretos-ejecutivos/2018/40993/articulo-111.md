@@ -1,0 +1,1 @@
+Artículo 111. - El acoso psicológico y moral en el trabajo se considerará falta grave y todo funcionario a quien se le compruebe haber incurrido en ésta, podrá ser despedido sin responsabilidad patronal, de conformidad con las normas sancionatorias de estos comportamientos, establecidas en este Reglamento y en la legislación vigente.

@@ -1,0 +1,1 @@
+Artículo 77.- Para el otorgamiento de una nueva licencia para estudios, aparte de la formalización de un nuevo convenio, el interesado deberá demostrar que las calificaciones de las materias comprendidas en el contrato anterior, no serán inferiores al mínimo requerido para su aprobación, además de tener una calificación anual de servicios con nota de bueno o superior.

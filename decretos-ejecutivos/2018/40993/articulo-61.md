@@ -1,0 +1,1 @@
+Artículo 61.- En casos muy calificados, no contemplados en el Estatuto de Servicio Civil y su Reglamento, ni en el presente Reglamento, los superiores inmediatos podrán justificar las ausencias hasta por dos días, que no sean por enfermedad del servidor, a fin de evitar la sanción disciplinaria.

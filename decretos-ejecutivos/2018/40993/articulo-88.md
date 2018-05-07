@@ -1,0 +1,2 @@
+Artículo 88.- Todo traslado de funcionarios que se dé temporalmente en la Presidencia o en el Ministerio, deberá contar con la formalización de la figura jurídica correspondiente.
+Si el traslado es externo, ya sea de la Presidencia o del Ministerio a otra institución pública o bien de esta hacia la Presidencia o Ministerio, se deberá efectuar bajo la figura del convenio Interinstitucional y en observancia de lo que al respecto establezca la normativa de ambas instituciones.

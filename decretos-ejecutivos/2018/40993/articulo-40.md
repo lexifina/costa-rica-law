@@ -1,0 +1,1 @@
+Artículo 40.- La Presidencia y el Ministerio ofrecerán facilidades para que el servidor asista a programas de desintoxicación. El servidor que incumpla con el programa de desintoxicación y sea detectado infringiendo la prohibición de fumar, en forma reiterada, podrá ser despedido sin responsabilidad patronal.

@@ -1,0 +1,1 @@
+Artículo 143.- En los casos de suspensión disciplinaria, una vez firme el acto final que la acuerde, se practicará la correspondiente reducción de salario, que en forma expresa determine y disponga dicho acto.

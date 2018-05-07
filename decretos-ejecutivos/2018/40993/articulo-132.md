@@ -1,0 +1,4 @@
+Artículo 132.- Se considerará falta grave para efectos de la sanción respectiva, la infracción a las siguientes disposiciones contempladas en el presente reglamento: del artículo 11, incisos "g", "i", "m"; del artículo 12, incisos "f", "g", "m", "n", "r" x "w"; del artículo 13, incisos "b", "d", "f" , "i", "j"; del artículo 14, incisos "b", "d", "e", "h", "i", "k", "l", "m", "o", "q", "r", "s", "t", "u", "w", "x", "y" y "z"; el artículo 38; el párrafo 2 del artículo 59 y los artículos 108, 112, 113. Esto rige, sin perjuicio que de manera justificada, se considere que por las implicaciones de la falta cometida o por la reincidencia, merezca una calificación de gravedad superior.
+En lo referente a los incisos "y" y "z" del artículo 14, este artículo únicamente se refiere a
+las prácticas que se den en contra de los usuarios de la Institución, en lo referente a
+servidores, aplica lo estipulado en el artículo 109 de este Reglamento.

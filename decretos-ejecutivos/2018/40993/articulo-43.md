@@ -1,0 +1,1 @@
+Artículo 43.- El Teletrabajo deberá implementarse según el Reglamento de Teletrabajo del Ministerio de la Presidencia, los lineamientos establecidos a lo interno de la institución y lo contemplado en el Decreto Ejecutivo N° 39225 del 14 de setiembre del 2015, en coordinación con la Comisión de Teletrabajo del Ministerio de la Presidencia.

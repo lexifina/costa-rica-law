@@ -1,0 +1,1 @@
+Artículo 119.- La Oficina de Gestión Institucional de Recursos Humanos tomará las medidas necesarias para incorporar personas con discapacidad a los servicios de la Presidencia y del Ministerio, adaptando las pruebas para selección de personal, adecuando los procedimientos y mecanismos de reclutamiento, en coordinación con la Dirección General de Servicio Civil.

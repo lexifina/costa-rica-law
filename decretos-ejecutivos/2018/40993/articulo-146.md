@@ -1,0 +1,1 @@
+Artículo 146.- Con el fin de fortalecer la labor del gobierno y sus instituciones, los funcionarios de la Presidencia y el Ministerio deberán guiar su labor según lo que estipulado en el Manual de Ética y Conducta de la Presidencia y el Ministerio.

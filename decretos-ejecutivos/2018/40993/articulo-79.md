@@ -1,0 +1,1 @@
+Artículo 79.- En caso de reprobar una o más materias de las comprendidas en el convenio, el Ministro podrá exigir al servidor, reintegrar al Estado los salarios percibidos durante el tiempo que se le otorgó la licencia para estudios. El trámite al efecto, lo realizará la Dirección General.

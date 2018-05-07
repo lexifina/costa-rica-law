@@ -1,0 +1,1 @@
+Artículo 4.- El Ministro, Viceministro (s), el Director General y los servidores encargados de las unidades administrativas, serán los responsables de velar por el cumplimiento y la correcta aplicación de este Reglamento.

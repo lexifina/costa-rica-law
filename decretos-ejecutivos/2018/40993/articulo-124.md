@@ -1,0 +1,1 @@
+Artículo 124.- La Presidencia y el Ministerio conformarán una Comisión de Salud Ocupacional a la cual brindarán el apoyo necesario para el cumplimiento de sus funciones, tareas y actividades, de acuerdo con lo establecido en la normativa aplicable.

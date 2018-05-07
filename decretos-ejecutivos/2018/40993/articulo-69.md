@@ -1,0 +1,4 @@
+Artículo 69.- Como regla general, la remuneración durante las vacaciones será de acuerdo con el sueldo correspondiente asignado vigente a la fecha en que el servidor disfrute del descanso anual.
+No obstante, dicha remuneración se calculará con base en el tiempo de trabajo efectivo y el promedio de los salarios ordinarios y extraordinarios devengados durante las respectivas cincuenta semanas de relación laboral -incluyendo los subsidios recibidos por el servidor, de parte del Estado o de sus instituciones de seguridad social si ha estado incapacitado- en los dos casos siguientes:
+a) Cuando el servidor hubiere disfrutado de licencia sin goce de sueldo por más de treinta días consecutivos o no.
+b) Cuando el servidor hubiere estado incapacitado para trabajar por razón de enfermedad o riesgo profesional, durante un período mayor de seis meses.

@@ -1,0 +1,2 @@
+Artículo 62.- Las ausencias justificadas que no implican pago de salario o de subsidio, según este Reglamento y demás textos legales, podrán asimilarse a vacaciones, a solicitud del servidor interesado y con la aprobación del superior inmediato o Director respectivo, según corresponda.
+En este caso debe pagarse el salario y disminuirse el número de días de vacaciones a que tiene derecho el servidor que se trate. El trámite correspondiente a las disposiciones indicadas en este artículo deberá hacerse dentro del término de los cinco días hábiles siguientes, a la ausencia.

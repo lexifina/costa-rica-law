@@ -1,0 +1,1 @@
+Artículo 8.- Se considera servidor interino quien fuere nombrado para sustituir temporalmente a un servidor regular, cuando este por alguna razón haya interrumpido su relación de servicio con la Presidencia o el Ministerio, o aquel que se nombre cuando no hayan candidatos elegibles, mientras se hace el concurso, los cuales serán nombrados por un plazo indeterminado.

@@ -1,0 +1,1 @@
+Artículo 89.- En los casos de ascenso y de traslados, de acuerdo a lo establecido en el Estatuto del Servicio Civil y para todos los casos, se aplicará el período de prueba, a fin de garantizar los servicios que brinda la institución. Durante ese período el servidor gozará de licencia en su puesto anterior el cual será aplicable también a su sustituto.

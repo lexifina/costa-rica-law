@@ -1,0 +1,1 @@
+Artículo 37.- Todos los servidores de la Presidencia y del Ministerio, están en el ineludible deber de atender sus actividades con interés, denuedo, capacidad, dignidad y objetividad, servicios que serán prestados durante todos los días hábiles sin privilegios o prerrogativas que permitan una asistencia irregular, salvo los casos que en el presente Reglamento queden establecidos.

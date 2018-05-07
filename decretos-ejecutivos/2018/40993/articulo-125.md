@@ -1,0 +1,1 @@
+Artículo 125.- Los servidores, previa autorización de la Presidencia o del Ministerio podrán realizar actividades de formación humanística, intelectual, estética, deportiva y recreativa que les permita el desarrollo de sus aptitudes.

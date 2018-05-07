@@ -1,0 +1,1 @@
+Artículo 6.- Quedan exceptuados de la aplicación de este Reglamento quienes fueren contratados por servicios técnicos o profesionales, así como quienes sean remunerados por medio de dietas por la integración de organismos colegiados que sean parte de la Presidencia o del Ministerio y estén adscritos a estos.

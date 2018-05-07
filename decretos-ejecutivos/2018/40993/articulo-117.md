@@ -1,0 +1,1 @@
+Artículo 117.- La Presidencia y el Ministerio dentro del marco de respeto a la Ley 7600, procurará la inserción laboral de las personas con discapacidad, adaptando las condiciones ambientales y físicas, para el buen desempeño de los servidores que posean algún tipo de discapacidad.

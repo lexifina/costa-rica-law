@@ -1,0 +1,1 @@
+Artículo 137.- Si la falta cometida amerita el despido, el Ministro discrecionalmente y en atención a consideraciones tales como, antigüedad, calificaciones de servicio, méritos y no ser el servidor reincidente podrá determinar la conveniencia de no despedirlo, suspendiéndolo hasta por quince días.

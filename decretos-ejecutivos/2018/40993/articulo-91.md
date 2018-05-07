@@ -1,0 +1,1 @@
+Artículo 91.- Para llenar una plaza vacante en forma definitiva, la Presidencia o el Ministerio recurrirá a lo dispuesto en el Estatuto del Servicio Civil y en apego a lo establecido en el artículo 21 del Reglamento del Estatuto del Servicio Civil.

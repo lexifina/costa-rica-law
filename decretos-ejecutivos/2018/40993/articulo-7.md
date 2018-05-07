@@ -1,0 +1,1 @@
+Artículo 7.- Se consideran servidores regulares todos los que hayan sido nombrados con los procedimientos y disposiciones contenidas en los capítulos IV y V del Título I del Estatuto de Servicio Civil, y capítulos III y V de su Reglamento.

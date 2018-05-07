@@ -1,0 +1,1 @@
+Artículo 44.- Los diseños de los programas y las condiciones laborales, se establecerán de acuerdo con lo indicado en el Decreto Ejecutivo N° 39225 del 14 de setiembre del 2015, el Reglamento de Teletrabajo de la Presidencia de la República y el Ministerio de la Presidencia y los lineamientos internos de la institución.

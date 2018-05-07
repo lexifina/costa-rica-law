@@ -1,0 +1,2 @@
+Artículo 141.- Los directores y superiores inmediatos están obligados a reportar al Ministro las faltas cometidas por sus subalternos, cuando ameriten despido. Dicho reporte deberá efectuarse dentro de los tres días hábiles posteriores a aquel en que se cometió la falta o en que se conocieron los hechos correspondientes.
+El incumplimiento injustificado de esta obligación se reputará falta grave por parte del servidor que debió ejecutarla.

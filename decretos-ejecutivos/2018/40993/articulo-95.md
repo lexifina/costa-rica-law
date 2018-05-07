@@ -1,0 +1,1 @@
+Artículo 95.- Los recargos de funciones se pagarán de conformidad con lo que al efecto dispone la Ley de Salarios de la Administración Pública y las reglamentaciones que rigen la materia, de acuerdo con el salario base del servidor sustituido y siempre que el sustituto reúna los requisitos mínimos que exige el puesto.

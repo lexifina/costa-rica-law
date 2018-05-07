@@ -1,0 +1,1 @@
+Artículo 9.- La Presidencia o el Ministerio, están facultados para utilizar a sus servidores en las labores que considere necesario asignarles, siempre que estas sean compatibles con sus aptitudes, fuerzas, estado o condición con aquellas para cuyo ejercicio hayan sido nombrados.

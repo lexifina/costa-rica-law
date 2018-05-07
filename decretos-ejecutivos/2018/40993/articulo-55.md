@@ -1,0 +1,1 @@
+Artículo 55.- La Oficina de Gestión Institucional de Recursos Humanos, tendrá a cargo los registros de control y asistencia de los servidores, así como la tramitación de los procedimientos correspondientes, salvo disposición en contrario dictada por la Dirección General.

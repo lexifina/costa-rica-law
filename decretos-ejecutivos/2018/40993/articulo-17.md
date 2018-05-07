@@ -1,0 +1,1 @@
+Artículo 17.- Los servidores de la Presidencia y del Ministerio, tendrán derecho de disponer de un lugar adecuado y acondicionado dentro de sus propias instalaciones para ingerir sus alimentos en los tiempos de descanso. Estas áreas serán delimitadas por la Dirección General.
