@@ -1,29 +1,27 @@
 CAPÍTULO V
 De las Licencias de Construcción
-Artículo 20.—Requisitos para solicitar Licencia de Construcción para obras generales: Toda obra que no esté calificada como obra de mantenimiento y que no se trate de algún proyecto de construcción de una urbanización o un condominio, deberá previo a ejecutar la obra contar con la Licencia de Construcción, la cual se solicitara presentando los siguientes requisitos:
-a) Solamente se aceptaran solicitudes de Licencia de Construcción en forma digital por medio de la plataforma APC del CFIA.
-b) Solicitud debidamente llena.
-c) Planos constructivos, debidamente aprobados por las instituciones correspondientes.
-d) Copia del Plano Catastrado.
-e) Certificación Literal de la propiedad.
-f) Adjuntar visto bueno de uso de suelo Municipal.
-g) Cuando el inmueble este declarado de valor patrimonial: visto bueno del Centro Cultura y Patrimonio del MCJD.
-h) Estar al día con las obligaciones de la CCSS.
-i) Carta de disponibilidad de agua potable.
-j) Carta de disponibilidad eléctrica.
-k) Alineamiento del MOPT si el terreno enfrenta a Ruta Nacional.
-l) Alineamiento del INVU si el lote está afectado por río, quebrada o acequia, etc.
-m) Alineamiento del ICE. Si por el lote pasa cables de alta tensión.
-n) Alineamiento del AyA, cuando el inmueble se vea afectado por servidumbre de aguas.
-o) Alineamiento de RECOPE, cuando el inmueble se vea afectado por oleoductos.
-p) Contrato de Consultoría del CFIA.
-q) Estar al día con las obligaciones municipales.
-r) Viabilidad Ambiental de SETENA, cuando sea procedente de acuerdo a la normativa que esté vigente.
-s) Toda obra que por sus características necesite la obtención de la viabilidad ambiental de SETENA, deberá adjuntar la aprobación del desfogue pluvial otorgado por el municipio.
-t) Para obras con 50 o más espacios de parqueo deberá presentar un estudio de impacto vehicular debidamente aprobado por el MOPT, tanto si la propiedad se encuentra en ruta cantonal o nacional.
-u) Si la propiedad está en derechos, presentar autorización de todos los copropietarios.
-v) Fotocopia de la cédula del propietario o propietarios del terreno donde se pretende desarrollar.
-w) En caso que el dueño de la propiedad sea una sociedad, certificación de personería jurídica vigente y copia de la cédula del representante legal.
-x) En caso de que la obra a realizar sea dentro de un condominio ya construido o existente, el interesado debe aportar autorización por escrito autenticada por parte de los condóminos, Junta Directiva o Administrador del mismo.
-y) Póliza de Riesgos del Trabajo del INS, la cual deberá cancelarse cuando el Municipio le indique.
-z) Pago del impuesto de construcción correspondiente, el cual se deberá cancelar cuando el municipio le indique.
+Artículo 20.—Requisitos para solicitar Licencia de Construcción para obras generales: toda obra que no califique como obra menor u obra de mantenimiento y que no se trate de algún proyecto de construcción de una urbanización o un condominio, deberá contar previo a su ejecución con una Licencia de Construcción, la cual se solicitara presentando los siguientes requisitos:
+Requisitos generales:
+A. Todo el trámite de solicitud de Licencia de Construcción para obras generales debe realizarse mediante la plataforma digital APC del CFIA, gestión que realiza un profesional responsable incorporado al CFIA.
+B. Adjuntar planos constructivos del proyecto a realizar.
+C. Adjuntar certificación literal de la propiedad vigente.
+Cuando esté en derechos, certificación de cada uno.
+D. Adjuntar Certificado de Uso del Suelo.
+E. Adjuntar cartas de disponibilidad tanto de agua potable como de energía eléctrica emitidas por la ESPH o los recibos de cada uno de estos servicios.
+F. Adjuntar fotocopia de la cedula del propietario o propietarios del terreno donde se pretende construir el proyecto.
+G. El o los propietarios deben estar al día con las obligaciones municipales (Impuestos y Declaración de Bienes Inmuebles) y con la CCSS (se revisa mediante el sistema digital, únicamente cuando el o los propietarios son extranjeros se deberá aportar certificación emitida por la CCSS).
+H. Una vez pre aprobado el proyecto, se deberá aportar el recibo de pago de los impuestos de construcción y certificación del INS dirigida a la Municipalidad donde se corrobore el pago de la póliza de riesgos.
+Otros requisitos especiales:
+I. Si la propiedad está en derechos, presentar autorización de todos los copropietarios.
+J. En caso de que el inmueble donde se desarrollara el proyecto se encuentre a nombre de una sociedad, se deberá adjuntar Personería Jurídica vigente y copia de cedula del representante legal.
+K. Cuando el inmueble está declarado de valor patrimonial, visto bueno del Centro de Cultura y Patrimonio del MCJD.
+L. Si el terreno enfrenta ruta nacional, deberá adjuntar alineamiento del MOPT. Además cuando se pretenda el desarrollo de proyectos frente a ruta nacional que No sea la construcción de una vivienda unifamiliar, se deberá contar con Autorización de Acceso del MOPT.
+M.Si el terreno colinda con un rio, quebrada, acequia o se encuentra afectado por la Ley Forestal 7575, deberá adjuntar alineamiento del INVU.
+N. Si el terreno a desarrollar se encuentra cerca de líneas eléctricas de alta tensión o pasan por este, deberá adjuntar alineamiento del ICE.
+O. Si el inmueble se ve afectado por servidumbre de aguas, deberá adjuntar alineamiento del AYA.
+P. Si el terreno a desarrollar se encuentra afectado por el paso de oleoductos, deberá adjuntar alineamiento de RECOPE.
+Q. Se deberá adjuntar Viabilidad Ambiental de SETENA debidamente aprobada, cuando se tenga que realizar un movimiento de tierra mayor o igual a 200m3 o cuando se pretendan construir obras iguales o superiores a los 500 m2.
+R. Toda obra que por sus características necesite la obtención de la viabilidad ambiental de SETENA, deberá adjuntar la aprobación del desfogue pluvial otorgado por el municipio.
+S. Para obras con 50 o más espacios de parqueo deberá presentar un estudio de impacto vehicular debidamente aprobado por el MOPT, tanto si la propiedad se encuentra en ruta cantonal o nacional.
+T. En caso de que la obra a realizar sea dentro de un condominio ya construido o existente, el interesado debe aportar autorización por escrito autenticada por parte de los condóminos, Junta directiva o Administrador del mismo.
+(Así reformado por el artículo 5° de la sesión N° 163 del 7 de mayo de 2018)

@@ -14,3 +14,4 @@ Reglamento de Construcciones, dentro de la Jurisdicción de la Municipalidad del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-05-12 | la propia norma |
+| 2 | 2018-05-07 | Reglamento municipal 163 (2018-05-07) |

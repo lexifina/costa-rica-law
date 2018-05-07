@@ -1,1 +1,2 @@
 Transitorio I.—Toda solicitud o trámite administrativo que haya sido presentado antes de la publicación en La Gaceta Oficial y definitiva entrada en vigencia de este Reglamento será tramitada de acuerdo a las normas vigentes a la fecha de la solicitud y de acuerdo a los procedimientos internos definidos por el departamento a cargo. Una vez resueltas y comunicadas todas estas solicitudes a los permisionarios, el procedimiento anterior quedará derogado.
+(Así reformado por el artículo 24 de la sesión N° 163 del 7 de mayo de 2018)

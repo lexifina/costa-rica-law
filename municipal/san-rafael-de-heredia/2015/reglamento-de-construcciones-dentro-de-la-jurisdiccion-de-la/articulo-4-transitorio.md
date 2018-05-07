@@ -1,3 +1,2 @@
-Transitorio IV.—Todos los proyectos aprobados a partir del año 2013 y que no hayan concluido su ejecución deberá dar aviso a la Municipalidad cuando se concluya o se suspenda la obra, en caso contrario el infractor está sujeto a las sanciones expuestas en este reglamento.
-Transitorio IV.—Una vez que entre en vigencia este reglamento todo proyecto podrá ser sujeto de las sanciones expuestas en este.
-(Nota de Sinalevi: En la publicación de este reglamento municipal, se consignó dos veces el transitorio IV.)
+Transitorio IV.—Aplicación supletoria. En todo lo que expresamente no quede estipulado en el presente Reglamento, se aplicará las disposiciones contenidas en el Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones y en toda ley o reglamento conexo y concordante que no se le oponga.
+(Así reformado por el artículo 24 de la sesión N° 163 del 7 de mayo de 2018)
