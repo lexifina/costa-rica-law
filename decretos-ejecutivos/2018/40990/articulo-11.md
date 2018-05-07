@@ -1,0 +1,9 @@
+Artículo 11— Pérdida de condición de miembro de Junta Directiva. Serán causales para perder la condición de miembros de Junta Directiva, las siguientes:
+a) Por la renuncia del miembro de Junta Directiva.
+b) Por la comunicación de la entidad u organización que nombró al miembro de Junta Directiva de su remoción del cargo. Las entidades representadas en la Junta Directiva podrán remover libremente a sus representantes, propietarios y suplentes, cuando lo consideren necesario.
+c) Por muerte o incapacidad permanente del miembro de Junta Directiva.
+d) Por la inasistencia injustificada a tres sesiones ordinarias o extraordinarias consecutivas
+o seis alternas, computadas dentro de períodos de seis meses calendario.
+e) Por comprobarse que el miembro se encuentre en mora en el cumplimiento de obligaciones con la Corporación, de conformidad con lo establecido en el artículo 13 de la Ley.
+f) Por no haber aportado la póliza de fidelidad exigida en el artículo 16 de la Ley 7837 (Ley de Creación de la Corporación Ganadera) dentro del mes siguiente a que se le solicite formalmente por la Corporación Ganadera o posterior a su nombramiento sin tener una póliza vigente por dicho cargo.
+g) Por ser condenado por sentencia firme a una pena privativa de libertad. Para las causales d, e y f anteriores, la Junta Directiva verificará, mediante un procedimiento sumario, la veracidad de los supuestos y decretará la pérdida de la condición de miembro, procediendo a solicitarle a la organización correspondiente la sustitución del mismo o comunicación pertinente. Para dicho nombramiento, la Corporación Ganadera verificará la vigencia de la razón social y personería jurídica de la organización respectiva. Para las causales a y b solamente bastará la manifestación escrita o verbal documentada. Para la causal c bastará un documento idóneo oficial que estipule el hecho y, para la causal g, bastará la sentencia en firme emitida por la autoridad judicial.

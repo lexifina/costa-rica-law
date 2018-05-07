@@ -1,0 +1,1 @@
+Artículo 10— Firmeza de los acuerdos. Los acuerdos de la Junta Directiva quedarán firmes en la sesión siguiente a la que fueron adoptados, salvo que se declaren así en la misma sesión, por votación unánime de los miembros presentes.

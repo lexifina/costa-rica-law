@@ -1,0 +1,1 @@
+Artículo 3—Fines y facultades. La Corporación tendrá dentro de sus fines, los establecidos en los artículos 5º y 6º de su Ley de Creación y podrá realizar todas aquellas gestiones y acciones que siendo compatibles con ellos, tiendan al cumplimiento y ejecución de sus objetivos y en beneficio directo de la ganadería bovina nacional y los beneficiarios del sistema.
