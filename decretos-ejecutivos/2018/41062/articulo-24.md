@@ -1,0 +1,1 @@
+Artículo 24.- Normativa Aplicable. A falta de disposiciones en el Estatuto de Servicio Civil y su Reglamento, deberán tenerse como normas que integren el presente Reglamento, la Ley General de la Administración Pública, el Código de Trabajo, la jurisprudencia administrativa, los principios generales del derecho público, la costumbre administrativa y la legislación conexa.

@@ -1,0 +1,1 @@
+Transitorio Único. Los procesos para el pago de horas extra que se hayan iniciado con anterioridad a la publicación del presente reglamento, concluirán de conformidad con el trámite que se venía realizando ante Recursos Humanos del Consejo.
