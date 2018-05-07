@@ -1,0 +1,1 @@
+Artículo 12.- Seguimiento de proyectos desarrollados mediante Asociaciones Público Privadas. La Administración que se encuentre ejecutando proyectos a través de Asociaciones Público Privadas deberá remitir un informe semestral a la Dirección de Crédito Público para seguimiento del proyecto y la posibilidad de realización de las contingencias fiscales asociadas.

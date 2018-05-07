@@ -1,0 +1,1 @@
+Artículo 6.- Revelación de Pasivos Contingentes. Los pasivos contingentes a nivel de Estadísticas de la Deuda se revelan en la publicación de las cifras de la deuda pública por parte de la Dirección de Crédito Público, su registro como endeudamiento solo se efectúa hasta que se materialice el riesgo, conforme lo dictan la NICSP 32 y la Directriz CN-001- 2014 y sus modificaciones.

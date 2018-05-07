@@ -1,0 +1,1 @@
+Artículo 10.- Criterio de validación. Deberá contarse con el criterio positivo de la Dirección de Crédito Público del Ministerio de Hacienda desde el punto de vista de la responsabilidad fiscal indicado en el artículo 8 de este Decreto, previo a los proceso de licitación y adjudicación.

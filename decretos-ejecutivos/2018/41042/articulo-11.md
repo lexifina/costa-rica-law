@@ -1,0 +1,1 @@
+Artículo 11.- Lineamientos Generales. En el sitio electrónico del Ministerio de Hacienda https://www.hacienda.go.cr se encuentran disponibles los lineamientos generales y las guías metodológicas que deben ser utilizadas por la Administración y demás entidades públicas para la formulación de un proyecto mediante Asociación Público Privada.
