@@ -15,3 +15,4 @@ Reglamento de sesiones, acuerdos y votaciones
 | --- | --- | --- |
 | 1 | 2010-12-08 | la propia norma |
 | 2 | 2011-01-11 | Reglamento municipal 2 (2011-01-11) |
+| 3 | 2018-05-08 | Reglamento municipal 27 (2018-05-08) |
