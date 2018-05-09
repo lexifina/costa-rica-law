@@ -5,7 +5,7 @@ ARTICULO 1°- Autorízase a la Municipalidad del cantón de Paraíso para que, d
 a) Cinco hectáreas para la creación de un parque de la expresión, que se desarrollar donde se encuentra la laguna de "Doña Anacleto Arnesto de Mallorga".
 b) Dos hectáreas para donar el Centro Agrícola Cantonal de Paraíso.
 c) Cinco mil metros cuadrados para donar a la Filial de Educadores Pensionados de Paraíso, con el único fin de construir la casa del maestro pensionado de ese cantón.
-ch) El resto para donar, en lotes con una cabida no mayor de ciento setenta metros cuadrados cada uno, a personas de escasos recursos económicos, con el único fin de construir sus propias viviendas, conforme a un programa municipal de vivienda; previo estudio socioeconómico y autorización de la Contraloría General de la República.
+ch) (Derogado por el artículo 4° de la ley N° 9555 del 9 de mayo de 2018, “Autorización a la Municipalidad de Paraíso para que segregue lotes de un terreno de su propiedad para donarlo a personas de escasos recursos económicos”)
 Se autoriza al Instituto Nacional de Aprendizaje para que done a la Municipalidad del cantón de Paraíso dos hectáreas, ocho mil metros cuadrados, del lote primero segregado de la finca número 81.739, que le fue donada por esta Municipalidad, conforme a escritura presentada al Registro Público, según el asiento 10504, tomo 311 del Diario.
 La Municipalidad deber darles el destino de acuerdo con la presente ley.
 Igual destino habrá de darle al lote segundo de su propiedad, segregado en la misma escritura.
