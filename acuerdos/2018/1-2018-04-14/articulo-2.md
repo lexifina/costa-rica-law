@@ -1,0 +1,3 @@
+Artículo 2º—La Comisión tendrá las siguientes funciones:
+a. Gestionar y recomendar los proyectos ante las instituciones del Sector Agroalimentario que tengan incidencia en el desarrollo del Sector Porcino y presentar al Despacho del Viceministro las observaciones y comentarios que procuren mejorar la condición de este Sector.
+b. Proponer la emisión, modificación o derogatoria de normas, políticas y procedimientos relacionados con la actividad porcina nacional, atendiendo las circunstancias nacionales o internacionales, acordes con la meta de competitividad y el desarrollo sostenible del sector porcino.
