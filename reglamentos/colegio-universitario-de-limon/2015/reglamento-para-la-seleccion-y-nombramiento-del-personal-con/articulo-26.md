@@ -1,3 +1,5 @@
 CAPÍTULO V
 Disposiciones finales
-Artículo 26.—Las disposiciones del presente Reglamento no perjudicarán los derechos adquiridos por los funcionarios del CUUNLIMON. Todas las normas aquí contenidas serán de observancia obligatoria para todos los funcionarios actuales y los que ingresen en el futuro a partir de su vigencia. Los actos que se emitan en contradicción con las disposiciones de estas Normas serán absolutamente nulos.
+Artículo 26.—Cumplidos los requisitos del artículo anterior, la Unidad de Recursos Humanos, comunicara al adjudicado la fecha de inicio de labores, previa autorización de la Decanatura del CUNLIMÓN.
+La Unidad de Recursos Humanos, será la encargada de confeccionar las respectivas acciones de personal y contratos laborales.
+(Así reformado en sesión N° 007 del 9 de mayo de 2018)

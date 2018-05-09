@@ -14,3 +14,4 @@ Reglamento para la selección y nombramiento del personal con cargo de director 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-11 | la propia norma |
+| 2 | 2018-05-09 | Reglamento 7 (2018-05-09) |

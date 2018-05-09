@@ -1,1 +1,2 @@
-Artículo 25.—La propiedad de las ofertas no favorecidas. Las ofertas que no fueron favorecidas con el nombramiento al cargo, pasarán a formar parte del registro de elegibles o serán devueltos al interesado si hiciere su petición formal dentro de los siguientes 8 días a partir de la fecha del nombramiento.
+Artículo 25.—La Unidad de Recursos Humanos, comunicara al participante adjudicado del concurso, los requisitos previos que éste deba cumplir para ocupar el puesto en propiedad como Director.
+(Así reformado en sesión N° 007 del 9 de mayo de 2018)

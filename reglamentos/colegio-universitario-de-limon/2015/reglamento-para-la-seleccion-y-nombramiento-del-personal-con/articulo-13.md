@@ -1,2 +1,5 @@
-Artículo 13.—Cumplido el plazo conferido para la recepción de ofertas, el Departamento de Recursos Humanos dispondrá de diez (10) hábiles para el análisis de los atestados. Y determinar si cumplen o no con los requisitos del concurso e iniciar el proceso de pruebas y/o entrevistas.
-El Departamento de Recursos Humanos dispondrá de diez (10) hábiles para coordinar la aplicación de las pruebas y/o entrevistas, así como realizar la convocatoria respectiva de los oferentes seleccionados.
+Artículo 13.—Recepción de documentos. La recepción de la documentación, se realizará en la oficina de Recursos Humanos del CUNLIMÓN, dentro del plazo establecido en la convocatoria.
+El funcionario que recibe la documentación, necesariamente deberá hacer una nota de recibo donde consignará, la hora, fecha y persona que entrega la documentación debidamente rotulada; firmará y sellará la misma entregando el original al interesado y copia adherida a la oferta del participante.
+A la hora de cierre del concurso, la Unidad de Recursos Humanos y la comisión de nombramientos levantarán un acta donde, consignarán la cantidad de sobres u ofrecimientos recibidos y las personas que los remiten. En caso que a la hora de cierre, existan varias personas entregando la información, la Unidad de Recursos Humanos, recibirá únicamente la información en sobre cerrado a las personas que se presentaron antes de la hora del cierre del concurso.
+El no levantamiento del acta de cierre del concurso, es motivo de nulidad.
+(Así reformado en sesión N° 007 del 9 de mayo de 2018)

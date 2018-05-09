@@ -1,12 +1,9 @@
-Artículo 4º—Requisitos. Las personas, tanto internas como externas a la institución, que deseen participar en el curso para director, deberán cumplir con los siguientes requisitos:
-- Ser mayor de edad.
-- Contar con permiso de trabajo, si se es extranjero, o cédula de residencia vigente.
-- Cumplir con los requisitos que establezca el Manual de Puestos de Clases del CUNLIMON. Licenciatura o posgrado en una carrera atinente con el cargo o con la especialidad del puesto.
-- Ocho años experiencia en labores profesionales relacionadas con el puesto, con la especialidad de éste o bien con su formación profesional, de los cuales al menos tres años debe haber supervisado personal profesional.
-- Incorporación al Colegio Profesional respectivo, en los casos en que dicha entidad lo exija para el ejercicio del correspondiente grado profesional.
-- Sometimiento a pruebas que disponga el Departamento de Recursos Humanos, mediante asesoría técnica del Servicio Civil, y en aquellos casos contemplados en este Reglamento.
-- Formar parte del Registro de elegibles, que para tal efecto llevara el Departamento de Recursos Humanos.
-- Ser seleccionado de una terna, o en su defecto, de la nómina de candidatos oferentes y nombrado por la Decanatura.
-- Presentación de la hoja de delincuencia extendida por el Poder Judicial con una vigencia no mayor de un mes.
-- Declaración de bienes y rendir la garantía o póliza de fidelidad cuando el puesto, por ley expresa así lo indique.
-- Y cualquier otra disposición o requisito que establezcan las disposiciones legales y reglamentarías aplicables.
+Artículo 4º—Comisión de nombramiento. Créese la Comisión de nombramiento, órgano que estará compuesto por funcionarios del CUNLIMÓN, nombrados y seleccionados por la Decanatura.
+La Comisión de Nombramiento, acompañara a la Unidad de Recursos Humanos, en los procesos de selección y reclutamiento del personal del CUNLIMÓN, siendo parte de sus funciones:
+a. Revisar y recomendar hacer modificaciones en las publicaciones de los concursos, los cuales no estén sujetos a la normativa laboral vigente y el manual de puestos del CUNLIMÓN.
+b. Realizar en compañía de la Unidad de Recursos Humanos el cierre del plazo para la recepción de postulantes al concurso.
+c. Resolver en conjunto con la Unidad de Recursos Humanos las aclaraciones a los requisitos y demás aspectos del concurso.
+d. Revisar en compañía de la Unidad de Recursos Humanos, las propuestas presentadas a concurso, en específico determinara el cumplimiento de los requisitos de admisibilidad.
+e. Revisar previa conformación de la terna final, el cumplimiento de todos los aspectos procedimentales y factores evaluativos.
+f. Rendir de forma sucinta un informe de todo lo actuado dentro del proceso de selección del personal.
+(Así reformado en sesión N° 007 del 9 de mayo de 2018)

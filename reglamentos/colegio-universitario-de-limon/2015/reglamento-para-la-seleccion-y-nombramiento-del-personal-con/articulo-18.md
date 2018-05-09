@@ -1,3 +1,4 @@
-Artículo 18.—Conflicto de intereses. Cuando los servidores interesados en participar del concurso pertenezcan a la Unidad de Recursos Humanos u otras Direcciones, estos deberán de excusarse de conocer del trámite y gestión del concurso.
-Para la continuidad del proceso, la Decanatura nombrara una comisión Ad-Hoc, por una única vez, para realizar los procedimientos establecidos en este Reglamento.
-El incumplimiento de lo aquí dispuesto, declara la nulidad absoluta del concurso.
+Artículo 18.—La evaluación final y el acto de adjudicación será hecha por la Unidad de Recursos Humanos, de conformidad con todas las pruebas que obren en el expediente del concurso.
+Solo los participantes que hayan alcanzado y superado la fase de pruebas y entrevistas serán notificados de los resultados finales del concurso, los cuales podrán interponer los recursos de revocatoria ante la Unidad Recursos Humanos y de Apelación ante la Decanatura dentro del tercer día posterior a la notificación de resolución y adjudicación del concurso.
+Tanto el recurso de revocatoria como el recurso de apelación deberán ser resueltos en un plazo máximo de cinco (5) días hábiles.
+(Así reformado en sesión N° 007 del 9 de mayo de 2018)
