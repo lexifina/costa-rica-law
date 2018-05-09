@@ -1,0 +1,3 @@
+Artículo 3º—La “Política Nacional de Agua Potable” estará disponible en las páginas electrónicas del Ministerio de Salud: www.ministeriodesalud.go.cr, del Ministerio de Ambiente y Energía www.minae.go.cr y del Instituto Costarricense de Acueductos y Alcantarillados: www.aya.go.cr.
+De igual forma estará disponible en forma impresa para acceso al público, en la Dirección de Protección al Ambiente Humano o la Dirección de Salud Ambiental del Ministerio de Salud, y en el Centro de Documentación e Información de AyA.
+(Nota de Sinalevi: La Política Nacional de Agua Potable, fue suministrada por el Departamento de Prensa y Relaciones Públicas del Ministerio de Ambiente y Energía. Por lo extenso de su contenido dicha política puede ser consultada aquí)

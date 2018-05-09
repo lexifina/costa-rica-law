@@ -1,0 +1,2 @@
+Artículo 2º—El Ministerio de Salud, el Ministerio de Ambiente y Energía y el Instituto Costarricense de Acueductos y Alcantarillados, velarán por la correcta implementación de la “Política Nacional de Agua Potable”.
+Asimismo, coordinarán la revisión del Plan cada cinco años, en coordinación con todos los actores que figuren como responsables y corresponsables en el cumplimiento de las acciones estratégicas.
