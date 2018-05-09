@@ -11,17 +11,13 @@ Emisiones en mg/m3 (TPN) permitidas cuando se utilicen combustibles líquidos y 
 A.2) Utilización de combustibles fósiles sólidos en calderas y hornos de tipo indirecto. Carbón mineral y otros: 100 mg/m3 (TPN) para todos los tamaños de calderas y hornos de tipo indirecto.
 A.3) Utilización de biomasa como combustible en calderas y hornos de tipo indirecto.
 [imagen]
-B) Dioxido de Azufre
-B.1) Utilización de combustibles líquidos, gaseosos y biomásicos en calderas y hornos de tipo indirecto.
-Emisiones en mg/m3 (TPN) permitidas cuando se utilicen combustibles líquidos, gaseosos y biomásicos con un contenido de azufre de hasta un 3,0% en masa
+(*)B) Dioxido de Azufre
+B) Dióxido de Azufre
+B.1) Utilización de combustibles fósiles líquidos, gaseosos y biomásicos en calderas y hornos de tipo indirecto. Emisiones en mg/m3 (TPN) permitidas cuando se utilicen combustibles líquidos, gaseosos y biomásicos con un contenido de azufre de hasta un 3,0% en masa
 [imagen]
-(*) Para calderas se clasifican según el Decreto Ejecutivo Nº. 26789-MTSS: Reglamento de Calderas, La Gaceta N º 65 del 2 de abril de 1998 y sus reformas.
-Para hornos de tipo indirecto se clasifican según el artículo 1º, inciso B) de este reglamento.
-No se permitirán concentraciones de SO2 en calderas y hornos de tipo indirecto superiores a 1500 miligramos por metro cúbico (TPN) siempre y cuando el contenido de azufre en el combustible fósil líquido, disponible en el mercado nacional, sea menor o igual al 1,0% en masa.
-Para valores de contenido de azufre en el combustible, superiores al 3,0% en masa, el límite de emisión se calcula empleando la fórmula siguiente:
-Límite de emisión = 2500 x (contenido de azufre en el combustible % en masa)/3,0.
-B2) Utilización de combustibles fósiles sólidos en calderas y hornos de tipo indirecto.
-Carbón mineral y otros: 1500 mg/m3 (TPN) para todos los tamaños de calderas y hornos de tipo indirecto.
+No se permitirán concentraciones de SO2 en calderas y hornos de tipo indirecto superiores a 1515 miligramos por metro cúbico (TPN) siempre y cuando el contenido de azufre en el combustible fósil líquido, disponible en el mercado nacional, sea menor o igual al 1,0% en masa.
+B.2) Utilización de combustibles fósiles sólidos en calderas y hornos de tipo indirecto. Carbón mineral y otros: 1515 mg/m3 (TPN) para todos los tamaños de calderas y hornos de tipo indirecto.
+(*) (Así reformado el inciso b) anterior por el artículo 1° del decreto ejecutivo N° 41388 del 9 de mayo de 2018)
 C. Óxidos de Nitrógeno (NOx)
 C.1) Utilización de combustibles líquidos y gaseosos en calderas y hornos de tipo indirecto.
 [imagen]
