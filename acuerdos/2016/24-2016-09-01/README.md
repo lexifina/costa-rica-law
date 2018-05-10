@@ -14,3 +14,4 @@ Procedimiento para evaluar consultas por parte del Consejo Superior Notarial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-04-26 | la propia norma |
+| 2 | 2018-05-10 | Acuerdo 7 (2018-05-10) |

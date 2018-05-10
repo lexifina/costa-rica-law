@@ -1,4 +1,6 @@
+(Revocada)
 DIRECCIÓN NACIONAL DE NOTARIADO
+(Esta norma fue revocada mediante acuerdo N° 007 de la sesión N° 013-2016 del 10 de mayo de 2018, “Procedimientos relacionados con la recepción y trámite de consultas elevadas al Consejo Superior Notarial”)
 La Dirección Nacional de Notariado, comunica: El Consejo Superior Notarial, mediante los acuerdos 2016-024-014 y 2016-029-009, tomados, respectivamente, en la sesión ordinaria número veinticuatro del 01 de setiembre del 2016 y la sesión ordinaria número veintinueve del 17 de noviembre del 2016, determinó el siguiente procedimiento para recibir y evacuar consultas por parte del Consejo Superior Notarial:
 1) Recibida la consulta, se trasladará a la Dirección Ejecutiva de la Dirección Nacional de Notariado para que ésta determine si cumple con los requisitos de forma establecidos, de conformidad con los parámetros fijados en el acuerdo 2011-09-005:
 Requisitos previos:
