@@ -14,3 +14,4 @@ Reforma acuerdo N° 2011-03-016 "Procedimiento para las consultas remitidas de m
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-06-17 | la propia norma |
+| 2 | 2018-05-10 | Acuerdo 7 (2018-05-10) |

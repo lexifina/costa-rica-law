@@ -1,4 +1,6 @@
+(Revocada)
 DIRECCIÓN NACIONAL DE NOTARIADO
+(Esta norma fue revocada mediante acuerdo N° 007 de la sesión N° 013-2016 del 10 de mayo de 2018, “Procedimientos relacionados con la recepción y trámite de consultas elevadas al Consejo Superior Notarial”)
 AVISO
 La Dirección Nacional de Notariado hace del conocimiento público que mediante el acuerdo firme 2011-09-005 de la sesión ordinaria Nº 9-2011 celebrada el pasado 4 de mayo del 2011, se modificó la redacción del acuerdo 2011-03-16 tomado en la sesión ordinaria Nº 3-2011 del 9 de febrero del 2011, relativo al procedimiento que deberán de seguir los interesados que deseen realizar consultas ante el Consejo Superior Notarial de la Dirección Nacional de Notariado. Dicho acuerdo se transcribe a continuación:
 EL CONSEJO SUPERIOR NOTARIAL ACUERDA POR UNANIMIDAD
