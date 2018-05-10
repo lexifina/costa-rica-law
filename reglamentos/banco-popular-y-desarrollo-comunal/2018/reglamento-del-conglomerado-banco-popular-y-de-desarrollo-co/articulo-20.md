@@ -1,0 +1,4 @@
+Artículo 20.—Condiciones para el reconocimiento. El Banco y las Sociedades reconocen el incentivo si se cumplen todas las siguientes condiciones:
+a. El cumplimiento de las metas institucionales o llaves de pago definidas al Banco y las Sociedades en dicho periodo por la Junta Directiva Nacional.
+b. Las dependencias y las personas trabajadoras evaluadas deben cumplir con la nota mínima establecida correspondiente a la gestión ordinaria según los estándares e indicadores que al efecto se definan para cada área y cada persona trabajadora, así como también con las metas de desempeño extraordinario que reconocen el esfuerzo adicional.
+c. Para obtener el reconocimiento asociado al BDP, adicionalmente se requiere que el área, dependencia o departamento a la que pertenece la persona trabajadora (entendida como aquella donde se encuentra el superior inmediato que lo debe evaluar), debe cumplir con lo descrito en el inciso b de este artículo.

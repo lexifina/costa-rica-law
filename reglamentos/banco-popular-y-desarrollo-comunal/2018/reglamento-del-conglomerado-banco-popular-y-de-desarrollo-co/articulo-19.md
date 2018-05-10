@@ -1,0 +1,9 @@
+CAPÍTULO IV
+Sobre el incentivo económico del Sistema de Evaluación del Desempeño
+Artículo 19.—Sobre el incentivo. Tanto el Banco como cada una de sus Sociedades reconocen el pago de un incentivo económico a su personal siempre que se den las condiciones establecidas en este Reglamento.
+Este incentivo es objetivo, proporcional y razonable y está asociado a un incremento de la productividad y eficiencia del Banco y de las Sociedades, conforme a las reglas y condiciones contenidas en este Reglamento, y parámetros aprobados.
+La Junta Directiva Nacional en su calidad de tal y en ejercicio de funciones propias de las Asambleas de Accionistas de las Sociedades, determina técnicamente el límite máximo económico que con respecto a las utilidades de cada año se destine para el reconocimiento económico del incentivo por productividad que se pague al personal, el cual no puede exceder el 13% de las utilidades netas relativas a cada entidad, ni el 60% del salario anual de cada trabajador.
+Este límite máximo atiende a criterios razonables y con la incorporación de todos los costos asociados, de forma que se garantiza que el porcentaje de reconocimiento que se acuerde, no afecta la sostenibilidad económica financiera del Banco y de las Sociedades acorto, mediano y largo plazo.
+La Gerencia General Corporativa o Gerencia General de las Sociedades, debe definir en las directrices internas el plazo máximo, que debe cumplir el área financiera, para la presentación de proyecciones financieras y el porcentaje del reconocimiento.
+El incentivo económico, se calcula sobre el total de los salarios anuales percibidos por la persona trabajadora en el transcurso del período de evaluación.
+Para efectos del cálculo del incentivo no se considera como parte del cálculo del salario anual, el monto que haya recibido la persona trabajadora por concepto de Incentivo a la Productividad del año anterior de evaluación.
