@@ -1,13 +1,24 @@
 Artículo 2º—Para efectos de este Reglamento se entiende por:
-a. Documentos de archivo: Testimonios de la actividad del hombre que contiene información fijada en cualquier formato o soporte, producidos orgánicamente y/o reunidos y utilizados por una persona particular, familia u organismo en el ejercicio de las actividades y funciones del ente productor. Los documentos de archivo actúan como testimonios ofreciendo pruebas, justificantes, para garantizar los derechos de la administración y de los administrados y ofrecen información ya sea facilitando antecedentes para agilizar una gestión o bien, como fuentes de historia.
-b. Tipo documental: Forma en que está presentada la información contenida en el documento. En ese sentido se podrá hablar de reglamentos, actas, circulares, expedientes, correspondencia, informes, reportes, contratos, listados, convenios, hojas de trámite, tabulados, acuerdos, fotografías y otros.
+a- Documento de archivo: Es una expresión testimonial, textual, gráfica, manuscrita o impresa, en cualquier lenguaje natural o codificado, así como en cualquier soporte que ha sido producida o recibida en la ejecución, realización o término de las actividades institucionales y que engloba el contenido, el contexto y la estructura permitiendo probar la existencia de esa actividad.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 535 del 10 de mayo del 2018)
+b- Tipo documental: Unidad documental producida por un organismo en el desarrollo de sus funciones cuyo formato, contenido y soporte son homogéneos. Puede presentarse en forma individual (carta, circular) o compuesto (expediente, acta, licitación).
+(Así reformado el inciso anterior mediante sesión ordinaria N° 535 del 10 de mayo del 2018)
 c. Clase documental: Está determinada por el procedimiento empleado para transmitir la información. Existen cinco diferentes clases documentales:
 1. Textual: En donde los documentos transmiten la información mediante texto escrito.
 2. Gráfica: Aquellos que emplean la imagen, signos no textuales, colores y otros para representar la información: mapas, planos, gráficos, fotografías, diapositivas.
 3. Sonoros: Permiten grabar y reproducir cualquier sonido, tales como discos, cintas magnéticas, discos compactos.
 4. Audiovisuales: Combinan la imagen en movimiento y el sonido: filmes, cintas de vídeo, videodiscos.
 5. Electrónicos o informáticos: Son los generados a partir de una computadora: disquetes, discos ópticos, cintas, discos compactos, cintas magnéticas y otros.
-d. Tablas de plazos: Es el instrumento mediante el cual se determinan los tipos documentales que se producen o reciben en la Institución, así como su vigencia administrativa o legal, su valor científico o cultural, la cantidad, cuáles oficinas tienen originales o copias, en qué medios están almacenados y otros datos de carácter general que permiten controlar la producción documental en la Institución.
-e. Fondo documental: Está integrado por el conjunto de documentos de archivo, sean de cualquier tipo y clase documental, que se encuentran custodiados en los diferentes Archivos de Gestión y Archivo Central.
-f. Gestión Documental: Conjunto de normas técnicas y prácticas usadas para administrar el flujo de documentos de todo tipo en una organización, permitir la recuperación de información desde ellos, determinar el tiempo que los documentos deben guardarse, eliminar los que ya no sirven y asegurar la conservación indefinida de los documentos más valiosos, aplicando principios de racionalización y economía.
-g. Archivos de Gestión: Corresponden a los archivos de los Departamentos y Unidades Administrativas de Popular Pensiones. Cada Archivo de Gestión debe contar con un encargado y un suplente, según donde corresponda.
+d) Tablas de plazos de Conservación: Instrumento en el que constan todas las series y tipos documentales producidos o recibidos en una Oficina o Institución, en el cual se anotan todas sus características y se fija el valor administrativo y legal.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 535 del 10 de mayo del 2018)
+e) Fondo documental: Es la totalidad de documentos custodiados por una organización o persona producidos en ejercicio de sus funciones.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 535 del 10 de mayo del 2018)
+f) Gestión de Documentos: Todas las funciones, actividades y procesos que en una organización se aplican a los documentos a lo largo de su vida para garantizar su producción, su autenticidad, su integridad, su conservación, su fiabilidad y su disponibilidad para su mayor uso y servicio.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 535 del 10 de mayo del 2018)
+g) Archivos de Gestión: son los archivos de las Oficinas o Unidades Técnicas y Administrativas de las diferentes Instituciones que forman parte del Sistema. Se encargan de reunir, conservar, clasificar, ordenar, describir, seleccionar, administrar y facilitar la documentación gestionada por su unidad y que se encuentra en trámite, sometida a continua utilización y consulta por las mismas Oficinas u otros que lo soliciten. Cada Archivo de Gestión debe contar con un encargado y un suplente, según corresponda.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 535 del 10 de mayo del 2018)
+h) Digitalización: Se entiende por digitalización el proceso de convertir información analógica o en soporte físico, en información digital que contiene la imagen fiel e íntegra del documento original. El uso de la digitalización no implica de ninguna manera la eliminación del documento original sin la autorización correspondiente y emitida por la CNSED (Comisión
+Nacional de Selección y Eliminación de Documentos).
+(Así reformado el inciso anterior mediante sesión ordinaria N° 535 del 10 de mayo del 2018)
+Es recomendable el uso de procesos de digitalización de documentos originales en soportes físicos o analógicos como estrategia de conservación, así como para facilitar el acceso y difusión de la información.
+(Así adicionado el párrafo anterior mediante sesión ordinaria N° 535 del 10 de mayo del 2018)

@@ -1,1 +1,2 @@
-Artículo 17.—En las sesiones del Comité Institucional podrán participar otras personas de conformidad con el numeral 139 del Reglamento de la Ley del Sistema Nacional de Archivos.
+Artículo 17.—Invitados: El Comité Institucional de Selección y Eliminación de Documentos (CISED), podrán integrar invitados, según los objetivos y funciones específicas de cada entidad, quienes asistirán a la Sesiones con voz, pero sin voto.
+(Así reformado mediante sesión ordinaria N° 535 del 10 de mayo del 2018)

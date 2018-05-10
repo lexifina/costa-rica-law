@@ -18,3 +18,4 @@ Reglamento de Funcionamiento y Organización del Archivo Central
 | 3 | 2014-07-10 | Reglamento 439 (2014-07-10) |
 | 4 | 2015-11-12 | Reglamento 473 (2015-11-12) |
 | 5 | 2017-05-11 | Reglamento 511 (2017-05-11) |
+| 6 | 2018-05-10 | Reglamento 535 (2018-05-10) |
