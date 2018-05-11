@@ -1,0 +1,2 @@
+Artículo 4º - Evaluación y seguimiento: El Ministerio de la Presidencia, el Ministerio de Ambiente y Energía, Ministro de Seguridad Pública y el lnder, darán seguimiento y evaluación a los avances de las instituciones trimestralmente. Del mismo modo, cada evaluación trimestral será informada a la sociedad civil organizada para que puedan dar seguimiento a las acciones ejecutadas en el corto, mediano y largo plazo .
+Dado en la Presidencia de la República.-San José, a los tres días del mes de mayo del mil dieciocho.

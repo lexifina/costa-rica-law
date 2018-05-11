@@ -1,0 +1,1 @@
+Artículo 2°.-Sobre la coordinación general. La coordinación general de las diversas actividades las liderará el Ministerio de la Presidencia, Inder, Ministerio de Seguridad Pública y Ministerio de Ambiente y Energía.
