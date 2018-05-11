@@ -1,12 +1,6 @@
-ARTICULO 10.- Son obligaciones de los miembros activos:
-a) Acatar las regulaciones de esta ley y contribuir al logro de los
-objetivos del Colegio.
-b) Concurrir a las asambleas generales y a las sesiones de junta
-directiva a que fueren convocados.
-c) Desempeñar los cargos para los que fueren elegidos y atender las
-comisiones que les señalen la asamblea general y la Junta Directiva.
-ch) Cubrir las cuotas ordinarias y extraordinarias que el Colegio
-fije. En casos excepcionales, la Junta Directiva podrá dispensar
-temporalmente de esta obligación a uno o más miembros.
-d) Observar una conducta intachable conforme con el Código de Etica,
-el reglamento y la ley.
+Artículo 10- Son derechos de los miembros activos:
+a) Elegir y ser electos para los cargos del Colegio.
+b) Solicitar la protección del Colegio cuando la necesiten.
+c) Disfrutar de todos los beneficios que establece el Colegio para sus miembros.
+d) Hacer uso de las instalaciones físicas y recreativas del Colegio, conforme con la reglamentación establecida a este respecto.
+e) Ejercer los recursos que le otorgan la ley y los reglamentos.

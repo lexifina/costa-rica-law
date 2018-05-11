@@ -1,8 +1,2 @@
-ARTICULO 13.- Son derechos de los miembros asociados:
-a) Solicitar la protección del Colegio cuando la necesiten.
-b) Hacer uso de las instalaciones físicas y recreativas del Colegio,
-conforme con la reglamentación establecida a este respecto.
-c) Disfrutar de los beneficios específicos que determine el Colegio
-para los miembros asociados.
-ch) Anulado. (Anulado mediante resolución de la Sala Constitucional N° 10975-06, de las 18:07 horas.)
-d) Ejercer los recursos que le otorguen la ley y los reglamentos.
+Artículo 13- Las actividades profesionales de los miembros del Colegio se ejercerán conforme a las áreas de especialización de los profesionales en ciencias económicas, con las salvedades establecidas en el artículo anterior, referentes a la contaduría pública y la privada.
+El profesional en ciencias económicas usará un sello blanco que distinguirá sus actuaciones materiales.

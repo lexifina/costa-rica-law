@@ -1,13 +1,3 @@
-ARTICULO 15.- Solamente los miembros activos, los temporales, los
-asociados y los honorarios del Colegio podrán:
-a) Ejercer la profesión en los campos de competencia de las Ciencias
-Económicas, tanto en el sector público como en el sector privado.
-b) Ser nombrados en cargos, en entes o empresas públicas para los
-cuales se requieran conocimientos en materias propias de las Ciencias
-Económicas.
-c) ANULADO por Resolución de la Sala Constitucional Nº 4570-97 de
-las 12:51 horas del 1º de agosto de 1997.
-La contaduría pública seguirá rigiéndose de acuerdo con la ley No.
-1038 del 19 de agosto de 1947, sus reformas y reglamento, y la contaduría
-privada de acuerdo con la Ley de Creación de Contabilistas Privados, No.
-1269 del 2 de marzo de 1951, sus reformas y su reglamento.
+Artículo 15- Se aplicará la pena establecida en el artículo 322 de la Ley N.° 4573, Código Penal, de 4 de mayo de 1970, a quienes ejerzan las profesiones contempladas en este capítulo, incluso el desempeño de cargos públicos, sin estar incorporado al Colegio o estando suspendidos por este.
+El nombramiento de personas no colegiadas en puestos públicos para los cuales se requiera estar incorporado al Colegio será sancionado con la pena señalada en el artículo 344 del Código Penal.
+La disposición de este artículo y las de los anteriores no perjudican ninguno de los derechos que otorgan las leyes orgánicas de sus respectivos colegios a los contadores públicos y a los contadores privados.

@@ -1,13 +1,1 @@
-ARTICULO 25.- Son atribuciones de la Asamblea General:
-a) Aprobar los reglamentos y los proyectos de modificaciones a la ley
-del Colegio.
-b) Aprobar el presupuesto de gastos que presente la Junta Directiva
-para el ejercicio en curso.
-c) Conocer de las quejas que se formulen contra la Junta Directiva por
-infracciones a esta ley o a los reglamentos del Colegio.
-ch) Elegir a los miembros de la Junta Directiva y a los dos suplentes.
-d) Conocer de los asuntos que la Junta Directiva le someta.
-e) Conocer en alzada de las expulsiones acordadas por el Tribunal de
-Honor.
-f) Nombrar a los miembros del Tribunal de Honor.
-g) Cualquiera otra conferida en esta ley o en su reglamento.
+Artículo 25- El cuórum de la Asamblea General ordinaria o extraordinaria lo formará la mitad más uno de los miembros activos del Colegio. Sin embargo, cuando el cuórum no pudiera integrarse la primera vez en la forma dicha, la Junta Directiva tendrá facultad para hacer una segunda y última convocatoria a asamblea, cuyo cuórum se formará con cualquier número de miembros activos que concurra. La segunda y última convocatoria será treinta minutos después de la primera.

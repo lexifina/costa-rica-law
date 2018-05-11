@@ -1,4 +1,1 @@
-ARTICULO 16.- Las actividades profesionales a que se refiere esta ley
-se ejercerán conforme con las áreas de especialización de los
-profesionales en Ciencias Económicas, con las salvedades establecidas en
-el artículo 15 referentes a la contaduría pública y a la privada.
+Artículo 16- Las asociaciones de profesionales y empresas consultoras en ciencias económicas podrán ofrecer servicios colectivos, pero ninguna de sus manifestaciones tendrá valor ni eficacia legal si dichas entidades no están debidamente inscritas en el Colegio y no han cumplido con las obligaciones que señalen la ley y los reglamentos.
