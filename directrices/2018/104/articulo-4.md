@@ -1,0 +1,1 @@
+Artículo 4° . Se designará un equipo interinstitucional destacado en el cantón central de Puntarenas que garantice el seguimiento del Plan de Atención Integral. Dicho equipo de trabajo rendirá informes periódicos de manera trimestral al Ministro de la Presidencia sobre los avances del presente Plan.
