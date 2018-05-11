@@ -1,0 +1,1 @@
+Artículo 2°- El objeto de este lineamiento es establecer pautas generales de acción para la atención de la violencia externa en la ejecución del trabajo, dirigidas a las personas trabajadoras y empleadoras con el fin de prevenir y minimizar el riesgo a la salud física, mental y social.
