@@ -1,1 +1,0 @@
-Artículo 3º—Normativa. La Contraloría de Servicios del Registro Nacional se regulará en su accionar de acuerdo con las disposiciones, normas, políticas, procedimientos y otros preceptos emitidos o que en el futuro emitan los órganos competentes.

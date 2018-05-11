@@ -1,1 +1,0 @@
-Artículo 6º—Integración. La Contraloría de Servicios del Registro Nacional, tendrá facultad para crear grupos o equipos de trabajo integrados por los funcionarios del Registro Nacional con el fin de cumplir sus funciones encomendadas en este Reglamento y cualquier otra normativa relacionada, sin soslayar las competencias del Ministerio de Planificación Nacional.

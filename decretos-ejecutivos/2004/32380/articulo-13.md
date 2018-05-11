@@ -1,3 +1,0 @@
-Artículo 13.—De las denuncias. Las denuncias deberán ser tramitadas en forma ágil y expedita, una vez que cumplan con las formalidades que la Contraloría de Servicios demande para su trámite.
-Formalizada la denuncia la Contraloría de Servicios procurará toda la prueba pertinente y elaborará un informe que será remitido a Director General del Registro Nacional superior jerárquico de la Contraloría de Servicios de conformidad con el artículo quinto del presente Reglamento.
-El Director General del Registro Nacional será el competente para la resolución, ejecución y seguimiento de las acciones a tomar, sin menoscabo, de la labor que en este campo deba llevar la Contraloría de Servicio y cada Registro en lo particular.
