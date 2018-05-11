@@ -1,1 +1,0 @@
-Artículo vigésimo noveno: a falta de capacidad financiera de la federación, cada Concejo Municipal de Distrito cubrirá los gastos de sus miembros en el directorio y los de los delegados a la asamblea general con motivo de reuniones ordinarias y extraordinarias.
