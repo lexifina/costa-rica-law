@@ -1,9 +1,1 @@
-ARTICULO 7.- Serán miembros asociados:
-a) Los bachilleres y diplomados universitarios de las carreras de
-Ciencias Económicas de los centros de educación universitaria de Costa Rica
-reconocidos por el Estado.
-b) Los bachilleres y diplomados graduados en Ciencias Económicas en
-universidades extranjeras, cuyos títulos hayan sido reconocidos y
-equiparados por un centro de educación universitaria de Costa Rica, que
-cumplan con los trámites y requisitos de incorporación que se fijarán en el
-reglamento.
+Artículo 7- Serán miembros honorarios las personas a quienes la Asamblea General del Colegio les otorgue esa distinción, en reconocimiento de sus méritos profesionales en el campo de las ciencias económicas. Los miembros honorarios estarán al margen de las obligaciones impuestas por esta ley a los miembros activos, y no podrán elegir ni ser electos. Podrán asistir a las asambleas generales con voz, pero sin voto, ya las demás actividades que se realicen.

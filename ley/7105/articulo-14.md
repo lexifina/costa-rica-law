@@ -1,7 +1,5 @@
-CAPITULO III
-Del ejercicio profesional
-ARTICULO 14.- En su ejercicio profesional, todo miembro del
-Colegio está obligado a acatar estrictamente la Constitución de la
-República, las leyes, los reglamentos, los principios éticos y todas
-las normas que dentro de sus atribuciones dictan los diferentes
-organismos del Colegio.
+Artículo 14- Se considerarán profesionales en ciencias económicas los graduados en las siguientes disciplinas:
+a) Administración: incluye a los graduados universitarios en Administración de Negocios, Administración Pública, Administración Aduanera, Administración Universitaria, Finanzas, Gerencia, Mercadeo, Comercio Internacional, Banca, Recursos Humanos, Contabilidad y otras carreras y especialidades afines.
+b) Economía: incluye a aquellos graduados universitarios en Economía, Economía Agrícola, Economía Política, Planificación Económica y otras carreras y especialidades afines.
+c) Estadística: incluye a aquellos graduados universitarios en Estadística, Demografía, así como en otras carreras y especialidades afines. Seguros, Actuariado: incluye a los graduados universitarios en Seguros o Actuariado, así como en otras carreras y especialidades afines.
+La Junta Directiva reglamentará los perfiles propios de cada una de las especialidades a que se refiere el presente artículo, con el objeto de identificar claramente las distintas especialidades profesionales que forman parte de las ciencias económicas, las cuales solo podrán ser ejercidas por los profesionales incorporados a este Colegio.

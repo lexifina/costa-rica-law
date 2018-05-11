@@ -1,7 +1,2 @@
-CAPITULO IV
-De los órganos del Colegio
-ARTICULO 23.- Son órganos del Colegio:
-a) La Asamblea General.
-b) La Junta Directiva.
-c) El Tribunal de Honor.
-ch) El Comité Consultivo.
+Artículo 23- Cada año habrá una asamblea general ordinaria para conocer de los informes anuales y en el año que corresponda conocerá y ratificará la elección delos nuevos miembros de la Junta Directiva y fiscal. Un reglamento especial definirá los requisitos y las condiciones en que se desarrollará el proceso de elección de los nuevos miembros de la Junta Directiva y fiscal.
+Además, habrá las asambleas generales extraordinarias que la Junta Directiva acuerde por iniciativa propia o por solicitud escrita que para ese efecto reciba de por lo menos el uno por ciento (1%) de los miembros activos. En este último caso, la asamblea deberá realizarse dentro de los cuarenta, y cinco días naturales siguientes a la fecha de recepción de la solicitud.
