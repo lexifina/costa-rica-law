@@ -16,3 +16,4 @@ Reglamento del Registro del Estado Civil
 | 1 | 2011-08-14 | la propia norma |
 | 2 | 2014-08-04 | Decreto TSE 5 (2014-08-04) |
 | 3 | 2015-04-09 | Decreto TSE 12 (2015-04-09) |
+| 4 | 2018-05-14 | Decreto TSE 7 (2018-05-14) |

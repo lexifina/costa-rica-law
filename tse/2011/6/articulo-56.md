@@ -1,1 +1,2 @@
-Artículo 56.—Las personas Registradores Auxiliares están en la obligación de corregir todos los documentos que las secciones del Departamento Civil les devuelvan por defectuosos, de manera que debidamente corregidos puedan inscribirse conforme a la ley y este reglamento.
+Artículo 56.- Las peticiones de cambio de nombre que no sean en razón de la identidad de género autopercibida continuarán tramitándose en proceso judicial no contencioso.
+(Así adicionado por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 7 del 14 de mayo de 2018)

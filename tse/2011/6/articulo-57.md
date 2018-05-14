@@ -1,1 +1,6 @@
-Artículo 57.—Se deroga el Reglamento del Registro del Estado Civil, Decreto Ejecutivo Nº 7 del 25 de julio de 1913, publicado en la Colección de Leyes y Decretos, semestre II, tomo I de 1913 y sus reformas.
+TÍTULO XI
+(Corrida la numeración del título anterior por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 7 del 14 de mayo de 2018, que lo traspaso del antiguo título X al título XI)
+CAPÍTULO ÚNICO
+Disposiciones generales
+Artículo 57.—(Derogado por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 12 del 9 de abril de 2015)
+(Corrida su numeración por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 7 del 14 de mayo de 2018, que lo traspaso del antiguo artículo 52 al 57)

@@ -1,0 +1,2 @@
+Artículo 60.—Las certificaciones del Departamento Civil serán expedidas y firmadas por las personas funcionarias y por los medios físicos o digitales que el Tribunal designe para ese fin, a solicitud del Oficial Mayor del Departamento Civil. La disposición que lo autorice deberá ser publicada en el Diario Oficial.
+(Corrida su numeración por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 7 del 14 de mayo de 2018, que lo traspaso del antiguo artículo 55 al 60)

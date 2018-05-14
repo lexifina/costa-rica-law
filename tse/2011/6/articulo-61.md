@@ -1,0 +1,2 @@
+Artículo 61.—Las personas Registradores Auxiliares están en la obligación de corregir todos los documentos que las secciones del Departamento Civil les devuelvan por defectuosos, de manera que debidamente corregidos puedan inscribirse conforme a la ley y este reglamento.
+(Corrida su numeración por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 7 del 14 de mayo de 2018, que lo traspaso del antiguo artículo 56 al 61)

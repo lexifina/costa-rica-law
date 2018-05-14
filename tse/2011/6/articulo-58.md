@@ -1,2 +1,2 @@
-Artículo 58.—El presente Reglamento regirá después de noventa días naturales contados a partir de su publicación en el Diario Oficial”.
-Dado en San José, a los tres días del mes de mayo del año dos mil once.
+Artículo 58.—El Departamento Civil extenderá, previo pago de las especies fiscales correspondientes, certificación de asiento o asientos inscritos o de no aparecer inscrito determinado suceso. Para emitir certificación de documentos que contengan datos privados se requerirá que la persona cuyos datos se certifiquen lo autorice expresamente. En las certificaciones no podrán revelarse datos relativos a la forma en que se consignó la filiación de una persona menor de edad. Si fuera mayor de edad, solo podrá ser certificada con su autorización.
+(Corrida su numeración por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 7 del 14 de mayo de 2018, que lo traspaso del antiguo artículo 53 al 58)
