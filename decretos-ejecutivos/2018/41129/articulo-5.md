@@ -1,0 +1,2 @@
+Artículo 5. Tipos de servicios de telecomunicaciones
+Los tipos de servicios de telecomunicaciones para los cuales se deberá solicitar el permiso de uso para la instalación de infraestructura de soporte de redes de telecomunicaciones en Áreas Silvestres Protegidas y Patrimonio Natural del Estado administrados por el SINAC, son todos aquellos definidos de conformidad con el artículo No.6 inciso 23) de la Ley General de Telecomunicaciones, Ley No. 8642.

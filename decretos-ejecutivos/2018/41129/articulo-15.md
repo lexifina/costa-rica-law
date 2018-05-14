@@ -1,0 +1,3 @@
+Artículo 15. Solicitud de intervención de SUTEL en tema de uso compartido o derechos de paso de infraestructuras físicas entre operadores
+De conformidad con el artículo 77 de la Ley de la Autoridad Reguladora de los Servicios Públicos, Ley Nº 7593 y demás normativa emitida por la SUTEL podrá intervenir de oficio o a petición de parte, para resolver las diferencias o controversias que se presenten en lo atinente al uso compartido o derechos de paso de las infraestructuras físicas de telecomunicaciones en las ASP y el PNE, que se presenten entre los operadores.
+El uso compartido de estas instalaciones, tendrán en cuenta condiciones de factibilidad técnica y económica.

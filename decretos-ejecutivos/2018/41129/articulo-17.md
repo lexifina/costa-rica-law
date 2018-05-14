@@ -1,0 +1,2 @@
+Artículo 17. Contratos para la conectividad del área silvestre protegida
+Con los permisionarios ubicados dentro de un área silvestre protegida y que sean operadores de servicios de telefonía móvil y/o Internet, el SINAC podrá establecer contratos para la conectividad de la misma sea en las casetas de cobro y zonas de uso público, en que se detallen los servicios a brindar y el costo correspondiente en caso de existir.

@@ -1,0 +1,1 @@
+TRANSITORIO I: El SINAC dispondrá de cuarenta y cinco días naturales, a partir de la publicación del presente decreto, para emitir y publicar en el Diario Oficial La Gaceta, una resolución administrativa que establezca el contenido de los planes sobre manejo de los residuos sólidos, combustibles y mantenimiento que se le dará a la estructura y los caminos de acceso.

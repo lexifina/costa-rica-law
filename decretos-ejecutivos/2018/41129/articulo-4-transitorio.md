@@ -1,0 +1,2 @@
+TRANSITORIO IV: De manera temporal, se mantiene vigente el monto por la contraprestación pecuniaria a cancelar por cada permiso de uso emitido por el SINAC. Este valor estará vigente hasta tanto la Dirección General de Tributación no emita mediante resolución, el monto actualizado de acuerdo a la Metodología emitida por la Dirección de Valoraciones Administrativas y Tributarias.
+Dicho monto estará sujeto a las actualizaciones que correspondan.

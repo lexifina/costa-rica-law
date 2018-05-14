@@ -1,0 +1,2 @@
+Artículo 2°. Alcance
+Están sometidas al presente Decreto Ejecutivo todas las personas físicas, jurídicas, públicas, privadas, nacionales o extranjeras que sean operadores de redes de telecomunicaciones, que instalen u operen infraestructura para telecomunicaciones en las Áreas Silvestres Protegidas únicamente en propiedad estatal y en el Patrimonio Natural del Estado bajo administración del Sistema Nacional de la Áreas de Conservación.

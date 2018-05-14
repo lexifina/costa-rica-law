@@ -1,0 +1,6 @@
+Artículo 9. Características requeridas para la instalación de infraestructura de telecomunicaciones en el Área Silvestre Protegida y Patrimonio Natural del Estado administrados por el SINAC
+a) La infraestructura de telecomunicaciones en su conjunto, en ningún caso, podrá ser mayor a 80 metros cuadrados.
+b) Las acometidas eléctricas hacia las instalaciones de telecomunicaciones deberán ser subterráneas, cuando el AC lo estime conveniente de conformidad con criterios de tutela del medio ambiente.
+c) En caso que se pretenda instalar un sistema de iluminación exterior, el haz de luz deberá proyectarse hacia el suelo, a excepción de la iluminación regulada conforme a las normas de Aviación Civil.
+d) La instalación de infraestructura de telecomunicaciones en el ASP o PNE, debe reunir las condiciones técnicas para soportar y brindar uso compartido de al menos tres operadores de red de telecomunicaciones, así como cualquier recomendación que al respecto emita la SUTEL.
+e) Debe realizarse en la medida de lo posible el camuflaje de las infraestructuras, en concordancia con las disposiciones establecidas por la Dirección General de Aviación Civil y lo estipulado en el artículo 10 del presente Decreto.

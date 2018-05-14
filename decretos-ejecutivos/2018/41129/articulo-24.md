@@ -1,0 +1,3 @@
+Artículo 24. Póliza de Seguro
+Para garantizar la responsabilidad civil por daños y perjuicios a terceros, incluyendo al propio SINAC, será necesario que el permisionario, suscriba y exhiba póliza de seguro como garantía expedida por una compañía autorizada para la emisión de las mismas.
+Esta garantía cubrirá la totalidad de las obras que se desarrollen en las ASP o PNE, deberá mantenerse vigente mientras exista infraestructura en dichos bienes de dominio público en administración del SINAC y responderá por daños parciales o totales causados al SINAC y a terceros en sus bienes o en personas, requisito sin el cual no se otorgará el permiso de uso.
