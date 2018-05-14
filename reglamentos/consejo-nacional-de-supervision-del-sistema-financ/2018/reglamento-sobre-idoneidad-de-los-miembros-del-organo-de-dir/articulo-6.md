@@ -1,0 +1,8 @@
+Artículo 6º—Expediente. Las entidades financieras deben tener una política escrita para la creación, conservación y actualización de un expediente administrativo en el que consten las calidades de las personas nombradas como miembro del Órgano de Dirección o de la Alta Gerencia y se demuestre que se aplicaron los criterios establecidos en los artículos 4 y 5 de este Reglamento.
+El expediente deberá contener, al menos, lo siguiente:
+a) Declaración Jurada contenida en el Anexo 12 del Acuerdo SUGEF 8-08 Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF, y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros; la cual se adopta para el objetivo y con los alcances dispuestos en este Reglamento.
+b) Declaraciones juradas en las que conste:
+i. Si tiene o no conflicto de interés con la entidad financiera que lo designa o con aquellas que formen parte del grupo financiero al que ésta pertenezca, tales que influyan negativamente en su desempeño. En caso de tener conflicto de interés con la entidad financiera, deben indicarse los mecanismos establecidos para la mitigación del conflicto de interés.
+ii. Que tiene la disponibilidad de tiempo suficiente para desempeñarse en su puesto y cumplir con las responsabilidades asociadas con esa posición.
+c) El historial crediticio.
+d) Indicación del resultado de la evaluación que el Órgano de Dirección o el Comité de Nominaciones al que se refiere el Reglamento de Gobierno Corporativo, realizó respecto a los criterios de idoneidad del candidato, conforme con el artículo 4 de este Reglamento; la evaluación de los elementos contenidos en el artículo 5 de este Reglamento y la evaluación global que justifica la elección de la persona.

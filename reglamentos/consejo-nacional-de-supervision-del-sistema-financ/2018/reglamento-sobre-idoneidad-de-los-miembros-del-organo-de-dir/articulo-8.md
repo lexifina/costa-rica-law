@@ -1,0 +1,3 @@
+Artículo 8º—Auditoría del proceso de evaluación. La Auditoría Externa debe realizar una revisión independiente anual del proceso de evaluación del Órgano de Dirección, de sus miembros, de sus Comités y de los miembros de la Alta Gerencia. Dicha evaluación debe incluir una revisión de la implementación efectiva de todos los contenidos de la política de evaluación.
+El informe con los resultados de la auditoría del proceso de evaluación deberá ser presentado al Órgano de Dirección directamente o a través del Comité de Auditoría y deberá remitirse a la SUGEF dentro de los cuarenta días hábiles siguientes a cada cierre anual.
+Vigencia.—Rige a partir de su publicación en el Diario Oficial La Gaceta.

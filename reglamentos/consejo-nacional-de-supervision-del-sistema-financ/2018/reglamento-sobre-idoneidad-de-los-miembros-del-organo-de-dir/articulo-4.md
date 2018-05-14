@@ -1,0 +1,14 @@
+Artículo 4º—Política sobre idoneidad. Las entidades financieras deben tener una política escrita para determinar la idoneidad y experiencia de las personas que ocupen o vayan a ocupar un puesto en el Órgano de Dirección o en la Alta Gerencia y durante el periodo por el cual han sido nombradas. Las entidades financieras deberán tomar en consideración y evaluar, entre otros, los criterios indicados a continuación:
+4.1 Honestidad, integridad y reputación
+El análisis deberá incluir al menos los siguientes factores:
+a) Si la persona ha sido condenada por algún delito. Se dará especial atención a los delitos de estafa, fraude, delitos financieros o un delito en virtud de la legislación relativa a las instituciones financieras y no financieras, legitimación de capitales y financiamiento al terrorismo, manipulación del mercado y uso de información privilegiada para beneficio propio.
+b) Si la persona es o ha sido sancionada producto de una investigación o procedimientos disciplinarios por parte de alguna superintendencia bajo la dirección del Consejo Nacional de Supervisión del Sistema Financiero (CONASSIF), por otras autoridades reguladoras, organizaciones profesionales u organismos gubernamentales.
+c) Si la persona ha desempeñado un puesto clave en una organización que ha sido sancionada o ha entrado en insolvencia o quiebra, liquidación o intervención, mientras estuvo en el cargo.
+d) Si la persona o la entidad en la cual ha ocupado un puesto clave tiene pendiente una petición de declaración de insolvencia o en quiebra, respectivamente, o bien ya ha sido declarada en insolvencia o en quiebra, aun y cuando dichos procesos hubieren terminado por conciliación o arreglo judicial o extrajudicial. Asimismo deberá indicarse si la persona física o la entidad en la que ha desempeñado un puesto clave se encuentra en un proceso de administración y reorganización por intervención judicial o si la persona tiene juicios por deudas pendientes, en el país o en el exterior, o si es un deudor moroso en el sistema financiero local o en el exterior.
+4.2 Experiencia
+La definición de la experiencia de una persona deberá incluir al menos los siguientes factores:
+a) Experiencia en áreas relevantes para la actividad financiera.
+b) Experiencia específica en entidades financieras, particularmente, desempeñando puestos en Órganos de Dirección o de Alta Gerencia.
+c) Formación académica en áreas relevantes para la actividad que desarrolla la entidad financiera.
+d) Formación complementaria específica en áreas relevantes para la actividad que desarrolla la entidad financiera, tales como certificaciones de instituciones locales o extranjeras.
+Entre otros aspectos, la política debe precisar el número de años de experiencia, así como formación académica y profesional, en congruencia con las actividades relevantes de la entidad financiera.
