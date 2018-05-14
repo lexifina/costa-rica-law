@@ -1,0 +1,1 @@
+Artículo 22.—Ejecución. Conforme al artículo 14 del Tratado sobre el Comercio de Armas, el Ente Rector recomendará y tomará las medidas apropiadas para que el Estado costarricense, en el marco del Sistema Nacional de Control, haga cumplir las leyes y reglamentos nacionales de ejecución de las disposiciones de dicho Tratado.

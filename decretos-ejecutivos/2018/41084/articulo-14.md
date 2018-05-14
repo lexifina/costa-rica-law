@@ -1,0 +1,1 @@
+Artículo 14.—Prohibición de nuevas plazas. La conformación de los órganos del Sistema Nacional de Control no implicará la creación de nuevas plazas por parte de la Administración, y sus integrantes no devengarán ningún tipo de remuneración económica por su participación en el órgano colegiado.

@@ -1,0 +1,6 @@
+CAPÍTULO IV
+Procedimiento para la Evaluación de actividades
+de transferencia internacional
+de elementos controlados
+Artículo 15.—Notificación del trámite de solicitud para transferencias internacionales. Recibida por parte de la Dirección General de Armamento toda solicitud de transferencia internacional de elementos controlados, esta deberá notificar en el plazo máximo de 2 días hábiles, la recepción de la solicitud a la Secretaría Ejecutiva.
+Dentro de los 5 días siguientes a la recepción de las solicitudes indicadas en el párrafo anterior, la Dirección General de Armamento remitirá a la Secretaría Ejecutiva un Informe Técnico que contenga la información relativa a las partes intervinientes en la transferencia internacional y a los bienes objeto de la misma, incluyendo información referente al contenido exacto y detallado de la carga, permisos de salida del país de procedencia u origen, así como el permiso de ingreso al país de destino y el certificado de último destino y usuario final cuando corresponda, así como cualquier otra información relevante. La Secretaría Ejecutiva podrá solicitar información adicional a la Dirección General de Armamento, de acuerdo con lo que se consigne en el Manual de Procedimientos.

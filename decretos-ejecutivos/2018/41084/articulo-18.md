@@ -1,0 +1,2 @@
+Artículo 18.—Informe de Evaluación Preliminar. Realizada la Evaluación Preliminar, la Secretaría Ejecutiva remitirá al Ente Rector en pleno y dentro de los 10 días hábiles siguientes, un Informe de Evaluación Preliminar, que aporte los insumos necesarios para la evaluación de la transferencia internacional en estudio.
+El Informe de Evaluación Preliminar deberá recomendar razonadamente, con base en el análisis indicado en el párrafo primero, la aprobación o denegación de la actividad de transferencia internacional de los elementos controlados.

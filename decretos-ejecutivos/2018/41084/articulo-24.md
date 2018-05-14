@@ -1,0 +1,3 @@
+Artículo 24.—Procedimientos de Coordinación. El Ente Rector, a través de su Secretaría Ejecutiva, en conjunto con el Comité de Evaluación y Verificación, deberá emitir un Manual de Procedimiento, que incluya los mecanismos de coordinación y actuación para el funcionamiento del Sistema Nacional de Control.
+Dicho manual y sus Protocolos serán revisados y modificados por el Ente Rector cada vez que este lo considere pertinente.
+Dicho Manual y sus Protocolos incluirán la regulación de los términos y categorías necesarias para la evaluación de las trasferencias internacionales, así como la regulación del certificado de usuario final y la declaración de usuario final.

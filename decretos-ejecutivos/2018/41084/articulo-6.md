@@ -1,0 +1,4 @@
+CAPÍTULO III
+De los órganos del Sistema Nacional de Control
+Artículo 6º—Del Ente Rector. El Ente Rector del Sistema Nacional de Control para la implementación del Tratado sobre el Comercio de Armas, en adelante denominado “Ente Rector”, será el órgano colegiado responsable de liderar y coordinar el Sistema Nacional de Control, todo conforme a las obligaciones internacionales del Estado costarricense, la seguridad nacional y el Estado de Derecho.
+El Ente Rector velará porque en las transferencias internacionales de elementos controlados se respeten los criterios del Derecho Internacional general, los Derechos Humanos y el Derecho Internacional Humanitario de acuerdo con los criterios de evaluación previstos en el artículo 19, y previo análisis de riesgo y análisis de valoración estratégica-prospectiva regulado en el artículo 11. De igual forma, dará el debido seguimiento a las decisiones que emita.

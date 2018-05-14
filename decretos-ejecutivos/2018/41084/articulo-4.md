@@ -1,0 +1,1 @@
+Artículo 4º—Declaratoria de Interés Público. Se declara de interés público el Sistema Nacional de Control en aras de la efectiva implementación del Tratado y se solicita la colaboración de las entidades públicas y privadas, para que apoyen las labores del Ente Rector.
