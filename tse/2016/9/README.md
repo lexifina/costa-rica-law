@@ -14,3 +14,4 @@ Reglamento de la cédula de identidad con nuevas características
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-08-17 | la propia norma |
+| 2 | 2018-05-14 | Decreto TSE 7 (2018-05-14) |
