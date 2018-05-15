@@ -14,3 +14,4 @@ Reglamento para la determinación y el registro de estimaciones contracíclicas 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-06-17 | la propia norma |
+| 2 | 2018-05-15 | Reglamento 1416 (2018-05-15) |
