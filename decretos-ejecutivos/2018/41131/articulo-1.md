@@ -1,0 +1,21 @@
+Nº 41131-RE
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE RELACIONES EXTERIORES Y CULTO
+En uso de las facultades que les confieren los artículos 140 incisos 18) y 20) y 146 de la Constitución Política; artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) de la Ley General de Administración Pública, N° 6227 del 02 de mayo de 1978 y la Ley Orgánica del Ministerio de Relaciones Exteriores y Culto, N° 3008 del 18 de julio de 1962.
+Considerando:
+I.—Que Costa Rica, Estado Miembro de la Organización de Estados Americanos (OEA), suscribió el 22 de noviembre de 1969, durante la Conferencia Especializada Interamericana sobre Derechos Humanos, la Convención Americana sobre Derechos Humanos (CADH), también conocida como “Pacto de San José de Costa Rica”.
+II.—Que la Asamblea Legislativa de Costa Rica, aprobó la CADH mediante la Ley N° 4534 del 23 de febrero de 1970.
+III.—Que tras la anterior aprobación, Costa Rica reconoce el mecanismo de peticiones y casos derivado de la CADH y con ello, la posibilidad de interponer peticiones que contengan denuncias o quejas de violación a esa Convención.
+IV.—Que este mecanismo, el cual permite presentar peticiones o comunicaciones de conformidad con los artículos 44 y 45 de la CADH, forma parte del “Sistema Interamericano de Derechos Humanos” (SIDH), marco para la promoción y protección de los derechos humanos, que provee un recurso a los habitantes de la región que consideran haber sufrido una violación de sus derechos humanos por parte del Estado, y que está compuesto por dos órganos principales y autónomos: la Comisión Interamericana de Derechos Humanos (CIDH) y la Corte Interamericana de Derechos Humanos (Corte IDH).
+V.—Que Costa Rica es un Estado comprometido con la promoción y protección de los derechos humanos y ha respaldado históricamente el funcionamiento del SIDH, atendiendo en tiempo y forma las peticiones, casos, medidas provisionales, medidas cautelares, audiencias y demás solicitudes de información que se han tramitado.
+VI.—Que el Ministerio de Relaciones Exteriores y Culto, a través de la Dirección Jurídica, es la instancia encargada de coordinar la defensa nacional frente a las peticiones, los casos y otros procedimientos que se presentan contra Costa Rica, liderando y gestionando cada uno de los procesos en cuanto a la admisibilidad, fondo, posibilidades de acción y respuesta para cada asunto en cuestión.
+VII.—Que existe en el Ministerio de Relaciones Exteriores y Culto la capacidad instalada para continuar liderando la defensa nacional ante el SIDH, con un equipo con trayectoria y experiencia que se ha liderado y formado desde la Dirección Jurídica en diferentes momentos a partir de la segunda mitad de la década de los noventa, habiéndose consolidado en los últimos quince años.
+VIII.—Que para llevar adelante las acciones contenidas en el Considerando VI corresponde a la Dirección Jurídica del Ministerio de Relaciones Exteriores y Culto liderar y coordinar el análisis de cada asunto ante la CIDH y ante la Corte IDH, proponer el abordaje estratégico, convocar y preparar a los equipos interinstitucionales que se requieran para atender cada petición, caso, solicitud de información, medida provisional, medida cautelar, arreglo amistoso, solicitud de opinión consultiva, supervisión de cumplimiento de sentencia, atención de solicitudes varias de los órganos del SIDH, asistencia a audiencias temáticas, entre otros procedimientos, y elaborar los documentos finales pertinentes para luego presentarlos ante los órganos del SIDH.
+IX.—Que la gestión jurídica y estratégica de los casos y peticiones ante el SIDH, requiere de una defensa efectiva, sólida, consistente, proactiva y coordinada a nivel nacional. Por tanto,
+DECRETAN:
+DECLARATORIA DE INTERÉS PÚBLICO DE LOS TRABAJOS
+DEL MINISTERIO DE RELACIONES EXTERIORES Y CULTO,
+A TRAVÉS DE LA DIRECCIÓN JURÍDICA, EN LA DEFENSA
+DEL ESTADO COSTARRICENSE ANTE LOS ÓRGANOS DEL
+SISTEMA INTERAMERICANO DE DERECHOS HUMANOS
+Artículo 1º—Declaratoria. Declárense de Interés Público las acciones en defensa del Estado costarricense, gestionadas por la Dirección Jurídica del Ministerio de Relaciones Exteriores y Culto ante los órganos del Sistema Interamericano de Derechos Humanos.

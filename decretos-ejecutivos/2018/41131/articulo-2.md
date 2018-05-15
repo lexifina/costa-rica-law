@@ -1,0 +1,1 @@
+Artículo 2º—Principios. En la defensa del Estado costarricense ante los órganos del SIDH, la Dirección Jurídica del Ministerio de Relaciones Exteriores y Culto deberá fundamentarse en los principios del Estado de Derecho de Costa Rica, de su sistema democrático y del principio de legalidad que lo rige, todo bajo el marco de promoción y protección de Derechos Humanos.
