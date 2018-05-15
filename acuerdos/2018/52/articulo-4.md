@@ -1,0 +1,1 @@
+Artículo 4º—Dejar sin efecto el Acuerdo Nº 86-H del 28 de junio del 2006 publicado en La Gaceta Nº 162 del 24 de agosto del 2006, modificado mediante Acuerdo Nº 0015-2012-H del 14 de marzo del 2012 publicado en La Gaceta Nº 97 del 21 de mayo del 2012.
