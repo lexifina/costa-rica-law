@@ -1,0 +1,1 @@
+Artículo 2°—Estructura del CCES. El CCES estará compuesto por una Asamblea y una Presidencia, que conformarán el Consejo Pleno. Adicionalmente contará con un órgano técnico y administrativo que será la Secretaría General del CCES.

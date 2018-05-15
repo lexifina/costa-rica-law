@@ -1,0 +1,2 @@
+Artículo 15.—Grupos de trabajo. Una vez que el CCES valore su procedencia, se podrá acordar la creación de subgrupos de trabajo para temas específicos que así lo requieran. Estos subgrupos podrán conformarse con miembros del Consejo y con personas externas a éste.
+Los procedimientos de trabajo y rendición de cuentas de estos subgrupos deberán definirse en el reglamento interno que adopte el Consejo Pleno.

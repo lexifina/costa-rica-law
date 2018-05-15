@@ -1,0 +1,1 @@
+Artículo 3°—Principios rectores del funcionamiento del CCES. Para su funcionamiento, el CCES se regirá por los principios de equidad, objetividad, transparencia, confidencialidad, eficiencia, eficacia, buena fe y representatividad.

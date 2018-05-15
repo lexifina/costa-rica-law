@@ -1,0 +1,1 @@
+Artículo 5°—La Vicepresidencia del CCES. La persona que ostentará la Vicepresidencia será designada por la Asamblea entre sus miembros, y ostentará el cargo por el plazo de un año, con posibilidad de reelección.

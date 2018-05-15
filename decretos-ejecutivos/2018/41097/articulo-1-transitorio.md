@@ -1,0 +1,2 @@
+Transitorio I.—Para el cumplimiento de los artículos 2 y 7 del presente Decreto, las organizaciones deberán nombrar a sus representantes consejeros en el plazo de un mes a partir de la publicación de este Decreto.
+Una vez que los consejeros sean designados por las organizaciones que representan, remitirán a la Presidencia de la República la respectiva conformación, para que en el plazo de 30 días proceda a la juramentación de los representantes del Consejo Pleno.
