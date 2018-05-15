@@ -1,0 +1,3 @@
+ARTÍCULO 2- Liquidación de la indemnización por cese de la relación laboral
+La liquidación correspondiente se hará efectiva a la fecha de finalización de la relación obrero-patronal o, en su defecto, en la eventualidad que resultara materialmente imposible, a más tardar noventa días naturales después, pudiendo hacerlo la administración del banco y las instancias correspondientes, en un máximo de tres tractos mensuales.
+En caso de producirse retrasos no imputables a los trabajadores, en la cancelación de los mencionados extremos, el Estado deberá reconocerles el monto correspondiente a los intereses moratorios, de conformidad con lo dispuesto en el artículo 1163 de la Ley N.° 63, Código Civil, de 28 de setiembre de 1887.

@@ -1,0 +1,2 @@
+ARTICULO 5- Condiciones de las operaciones de crédito
+A los funcionarios y las funcionarias, a los que hace referencia el artículo 1 de esta ley, se les mantendrán invariables las condiciones de las operaciones de créditos formalizadas con el Banco Crédito Agrícola de Cartago (Bancrédito) en cuanto a tasas de interés, plazos y demás condiciones estipuladas en los documentos de constitución, indistintamente de la entidad financiera que adquiera las operaciones de crédito.

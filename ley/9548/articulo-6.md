@@ -1,0 +1,2 @@
+ARTICULO 6- Prelación de pago para los derechos laborales de las personas trabajadoras del Banco Crédito Agrícola de Cartago (Bancrédito)
+Los pagos de los derechos laborales a las personas trabajadoras contenidos en esta ley, incluidos los intereses moratorios, gozarán de prioridad al momento de liquidar los bienes y activos de Bancrédito, de conformidad con lo establecido en el artículo 33 de la Ley N.° 2, Código de Trabajo, de 27 de agosto de 1943, y sus reformas.

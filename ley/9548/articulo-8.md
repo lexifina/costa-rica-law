@@ -1,0 +1,2 @@
+ARTÍCULO 8- Autorización
+Para la disolución y la liquidación de la Asociación Solidarista del Banco Crédito Agrícola de Cartago (Asebancrédito), en vista de que no corresponde a una de las causales establecidas en el capítulo V de la Ley N.° 6970, Ley de Asociaciones Solidaristas, de 7 de noviembre de 1984, se autoriza que se realice mediante liquidación en sede notarial o mediante un juez laboral, de conformidad con el acuerdo que al efecto deberán tomar los asociados.
