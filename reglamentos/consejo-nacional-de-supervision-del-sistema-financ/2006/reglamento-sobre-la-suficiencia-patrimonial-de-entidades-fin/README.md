@@ -31,3 +31,4 @@ Reglamento sobre la Suficiencia Patrimonial de Entidades Financieras
 | 16 | 2015-02-09 | Reglamento 1148 (2015-02-09) |
 | 17 | 2016-06-07 | Reglamento 1258 (2016-06-07) |
 | 18 | 2017-06-14 | Reglamento 1340 (2017-06-14) |
+| 19 | 2018-05-15 | Reglamento 1416 (2018-05-15) |
