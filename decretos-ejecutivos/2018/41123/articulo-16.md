@@ -1,0 +1,2 @@
+Artículo 16.- Presidencia Ad Hoc.
+En casos de ausencia o de enfermedad y, en general, cuando concurra alguna causa justa con base en el ordenamiento jurídico que impida, objetivamente, la participación del Viceministro de Comercio Exterior en calidad de Presidente del CONAF AC, el pleno del órgano podrá designar de forma temporal, entre sus miembros y para esa sesión, un Presidente ad hoc el cual fungirá con los derechos plenos que regula el presente Reglamento. El CONAF AC, mediante acuerdo, establecerá el procedimiento que regulará esta designación ad hoc.

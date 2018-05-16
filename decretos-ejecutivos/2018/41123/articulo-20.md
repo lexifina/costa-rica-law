@@ -1,0 +1,6 @@
+Artículo 20.- Líder de Proyecto y Coordinador Técnico.
+1.- El CONAF AC designará un líder por cada uno de los proyectos asignados a cada Comisión Técnica. En la designación de dicho líder, el CONAF AC deberá atender el área de especialización de este, así como que cuente con mayor afinidad con el tema a tratar.
+2.- La Secretaría Técnica designará un coordinador técnico para cada una de las Comisiones Técnicas que conforme el CONAFAC.
+3.- Cada Comisión Técnica, mediante su coordinador técnico, remitirá informes periódicos al CONAFAC sobre su gestión y avances en el tema asignado. La periodicidad de sus reuniones y la logística de esta será acordada por los integrantes de la misma. De cada reunión, el coordinador levantará una minuta sobre la- agenda, los temas tratados, acuerdos alcanzados y miembros presentes.
+4:- Las Comisiones Técnicas podrán invitar y convocar a sus reuniones a representantes de otras entidades, instituciones u organizaciones públicas o privadas, cuya actividad tenga relación con el tema a tratar y cuando su participación sea oportuna para analizar aspectos específicos.
+5.- Las Comisiones deberán remitir los informes y minutas de sus reuniones, a la Secretaría Técnica del CONAFAC. Las Comisiones Técnicas contarán con el apoyo administrativo y logístico de la Secretaría Técnica.

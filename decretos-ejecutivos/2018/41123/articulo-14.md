@@ -1,0 +1,5 @@
+Artículo 14.- Actas.
+1.- De cada sesión, la Secretaría Técnica levantará un acta que contendrá la indicación de las personas asistentes y la entidad u organización que representan, las circunstancias del lugar, la hora y el tiempo en que se ha celebrado, los puntos principales que se discutieron de conformidad con la agenda aprobada y el contenido de los acuerdos tomados, en caso de que existan.
+2.- Las actas serán remitidas a los miembros del Consejo utilizando medios electrónicos institucionales dentro del plazo máximo de un mes natural de realizada la sesión.
+3.- Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes acuerden su firmeza por votación de dos tercios de la totalidad de los miembros asistentes.
+4.- Las actas firmadas por el Presidente y por aquellos miembros que hubieren hecho constar su voto disidente, quedarán a disposición de los restantes miembros del Consejo para su consulta, en la sede de la Secretaría Técnica o bien serán facilitadas por medios electrónicos a solicitud de cualquiera de los miembros del CONAFAC.

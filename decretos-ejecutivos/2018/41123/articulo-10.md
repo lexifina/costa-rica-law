@@ -1,0 +1,2 @@
+Artículo 10.- Invitados.
+Las sesiones del CONAFAC serán siempre privadas, sin embargo, este por unanimidad de sus miembros presentes, podrá acordar que, para ciertos casos, se permita el acceso a representantes de otras entidades, instituciones, organizaciones o empresas públicas o privadas cuya labor guarde relación con las acciones, actividades, iniciativas, planes y proyectos que puedan contribuir al mejor desempeño del quehacer del CONAF AC.
