@@ -1,0 +1,2 @@
+Artículo 3º—La Comisión sesionará en forma ordinaria una vez por trimestre y, en forma extraordinaria, por convocatoria de la Ministra (o) de Educación Pública o, por acuerdo de dos de los sectores, cuando así se amerite. La convocatoria a sesiones extraordinarias deberá remitirse a los miembros de la Comisión con al menos siete días de anticipación de la respectiva sesión .
+Habrá quórum con cinco representantes, debiendo estar presente al menos uno de cada sector dentro de esos cinco.

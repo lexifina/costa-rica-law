@@ -1,0 +1,1 @@
+Artículo 5º—La Comisión tendrá como función esencial, completar el proceso de diálogo y concertación para la construcción tripartita y consensuada del “Modelo de educación y formación técnico profesional en la modalidad dual en Costa Rica”, y proporcionar recomendaciones para su implementación.
