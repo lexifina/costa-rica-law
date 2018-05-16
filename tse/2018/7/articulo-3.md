@@ -1,0 +1,1 @@
+Artículo 3. Modifíquese el artículo 2 del "Reglamento de la cédula de identidad con nuevas características" (decreto n.° 9-2016 del 16 de agosto de 2016), en el sentido de eliminar del dorso (o reverso) de la cédula de identidad la indicación del sexo de la persona.

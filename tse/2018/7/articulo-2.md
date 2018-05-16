@@ -1,0 +1,1 @@
+Artículo 2. Corríjase la denominación del actual Titulo X del "Reglamento del registro del estado civil" para que, en adelante, se lea: “TÍTULO XI CAPÍTULO ÚNICO DISPOSICIONES GENERALES”, así como la numeración de los artículos 53 a 58 de la versión actual del Reglamento.
