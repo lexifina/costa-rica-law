@@ -1,0 +1,1 @@
+Artículo 5º—Para la producción de café “Coffea Canephora” en nuestro país, el ICAFE realizará de manera previa a su cultivo, estudios técnicos de zonificación que garanticen la idoneidad de las áreas para la siembra de esta especie de Café.

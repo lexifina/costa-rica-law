@@ -1,0 +1,1 @@
+Artículo 6º—La zonificación deberá delimitar las áreas geográficas de Costa Rica aptas para su siembra y cultivo, labor que deberá cumplir el ICAFE en coordinación con el MAG, según los datos, estadísticas de suelos e información agroecológicas que se recopile en un plazo no mayor de seis meses a partir de la promulgación del presente Decreto.

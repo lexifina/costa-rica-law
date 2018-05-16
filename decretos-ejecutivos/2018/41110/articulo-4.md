@@ -1,0 +1,1 @@
+Artículo 4º—Será obligación del ICAFE mantener informado al SFE del registro de todos los sitios donde se siembre el material de “Coffea canephora” importado, así como todos los sitios donde se esté reproduciendo.

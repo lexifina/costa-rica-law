@@ -1,0 +1,1 @@
+Artículo 9º—No se permite el cultivo de café “Coffea canephora” fuera de las áreas geográficas que indique el ICAFE y aprobadas por el MAG. Los cultivos que se detecten en áreas no recomendadas por el ICAFE y sin la aprobación del MAG serán susceptibles de destrucción.

@@ -1,0 +1,1 @@
+Artículo 14.—El Ministerio de Agricultura y Ganadería como Ente Rector del Sector Agropecuario, deberá mediante todos los instrumentos Jurídicos y Técnicos que estén a su disposición, garantizar que se cumpla lo establecido en este reglamento; además, ser vigilante para que se apliquen las medidas conectivas que considere necesarias para lograr este fin.

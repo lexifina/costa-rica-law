@@ -1,0 +1,1 @@
+Artículo 10.—Solamente se permitirá la siembra de aquellas variedades de café “Coffea canephora” que el ICAFE autorice luego de haberlas evaluado y verificado su adecuada adaptación a las condiciones agroecológicas de las zonas definidas conforme el artículo 6° de! presente Decreto.

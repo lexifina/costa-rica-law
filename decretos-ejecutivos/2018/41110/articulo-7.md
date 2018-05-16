@@ -1,0 +1,1 @@
+Artículo 7º—La zonificación de las áreas geográficas de Costa Rica aptas para la siembra y cultivo de café robusta elaborada por el ICAFE y aprobada por el MAG deberá ser publicada en el diario oficial La Gaceta.

@@ -1,0 +1,1 @@
+Artículo 13.—El ICAFE como ente rector de la actividad cafetalera, será el responsable de continuar con la investigación, con el objetivo de disponer de materiales de calidad y prácticas productivas adecuadas, que permitan desde un inicio competitividad a través de la diferenciación y la eficiencia.

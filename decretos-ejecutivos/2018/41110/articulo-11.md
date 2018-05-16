@@ -1,0 +1,1 @@
+Artículo 11.—Los productores cafetaleros o las personas jurídicas que deseen cultivar café “Coffea canephora”, deben solicitar autorización al ICAFE. Para atender estas solicitudes, el ICAFE emitirá en un plazo de 30 días a partir de la publicación del presente Decreto un procedimiento de autorización.
