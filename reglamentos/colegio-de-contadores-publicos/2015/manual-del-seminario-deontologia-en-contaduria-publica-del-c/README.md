@@ -14,3 +14,4 @@ Manual del Seminario Deontología en Contaduría Pública del Colegio de Contado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-10-23 | la propia norma |
+| 2 | 2018-05-16 | Reglamento 8 (2018-05-16) |
