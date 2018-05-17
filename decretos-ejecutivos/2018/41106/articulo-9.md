@@ -1,0 +1,1 @@
+Artículo 9º—Inadmisión de la persona apremiada corporal. Si se incumpliere algunos de los requisitos y disposiciones contenidas en los artículos anteriores, la persona deudora alimentaria morosa no ingresará a la Unidad de Pensiones Alimentarias y, al día hábil siguiente, se informará a la autoridad jurisdiccional competente el motivo por el cual no se admitió su ingreso.

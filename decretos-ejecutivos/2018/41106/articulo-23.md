@@ -1,0 +1,1 @@
+Artículo 23.—Actividades recreativas. Las personas apremiadas corporales, durante el tiempo que permanezcan en la Unidad de Pensiones Alimentarias, podrán participar en actividades recreativas de distinta naturaleza, con el fin de promover la sana convivencia, el esparcimiento, la cultura, el deporte, y la salud mental.

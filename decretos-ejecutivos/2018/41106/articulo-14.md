@@ -1,0 +1,1 @@
+Artículo 14.—Visita de personas o grupos voluntarios. Las personas apremiadas corporales podrán ser visitadas por personas o grupos voluntarios en tos horarios que autorice la persona encargada de la Unidad de Pensiones Alimentarias.

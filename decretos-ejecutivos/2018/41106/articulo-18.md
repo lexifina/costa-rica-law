@@ -1,0 +1,1 @@
+Artículo 18.—Comunicación con las instancias judiciales. Las personas apremiadas corporales podrán establecer comunicación sin restricción alguna con las instancias judiciales que sean necesarias para resolver su situación; para ello, podrán enviar y recibir comunicaciones.

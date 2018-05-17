@@ -1,0 +1,2 @@
+Artículo 16.—Prohibición de ingreso a visita. Por aspectos de seguridad personal e institucional, las personas que han solicitado las órdenes de apremio corporal ante alguna autoridad jurisdiccional competente, no podrán ingresar a la visita de cualquier tipo.
+Tampoco podrán ingresar aquellas personas a quienes se les haya aplicado alguna medida cautelar ante el irrespeto de la normativa institucional vigente en materia de visita en el sistema penitenciario nacional.

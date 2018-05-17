@@ -1,0 +1,1 @@
+Artículo 15.—Entrega de objetos personales durante la visitas. Las personas visitantes podrán entregarles a las personas apremiadas corporales los objetos que autoricen conjuntamente vía circular la Dirección General de Adaptación Social y la Dirección de la Policía Penitenciaria.

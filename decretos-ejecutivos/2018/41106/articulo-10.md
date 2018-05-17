@@ -1,0 +1,3 @@
+Artículo 10.—Ubicación. Una vez cumplidos los requisitos y disposiciones de ingreso, se ubicará a la persona apremiada corporal en la Unidad de Pensiones Alimentarias y se comunicará el ingreso a la autoridad judicial que emitió la orden.
+En caso de que la persona apremiada corporal se encontrara disfrutando de un beneficio en algún Centro de Atención Seminstitucional del sistema penitenciario nacional, la Unidad de Pensiones Alimentarias comunicará a dicho centro sobre el ingreso de la persona.
+El suboficial de guardia será el encargado de registrar inmediatamente el ingreso en el sistema informático. Los ingresos deberán ser comunicados diariamente a la persona encargada de la Unidad de Pensiones Alimentarias.
