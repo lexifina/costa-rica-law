@@ -15,3 +15,4 @@ Emite el documento denominado "Clasificador Económico del Gasto del Sector Púb
 | --- | --- | --- |
 | 1 | 2004-07-19 | la propia norma |
 | 2 | 2010-04-06 | Circular 0 (2010-04-06) |
+| 3 | 2018-05-17 | Decreto Ejecutivo 41264 (2018-05-17) |
