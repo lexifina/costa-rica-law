@@ -1,0 +1,6 @@
+Artículo 3°—Funciones. Las principales funciones de la Comisión serán:
+a) Desarrollar políticas públicas tendientes a la prevención y el combate en todos los ámbitos (administrativo, policial y judicial) de la pesca ilegal, no declarada y no reglamentada.
+b) Solicitar y gestionar aquella información necesaria a instituciones públicas, organizaciones no gubernamentales y organismos internacionales que sustente con datos y técnica las decisiones en el seno de la Comisión;
+c) Brindar asesoría técnica a la Presidencia de la República, al Ministerio de Agricultura y Ganadería, al Instituto Costarricense de Pesca y Acuicultura, al Servicio Nacional de Guardacostas y a cualquier otra institución pública destinada a actividades relativas a la prevención y el combate de la pesca ilegal, no declarada y no reglamentada
+d) Evaluar la efectividad de las acciones estatales tendientes a prevenir y sancionar la pesca ilegal, no declarada y no reglamentada, y recomendar aquellas mejoras que resulten necesarias para la adecuada atención por parte de las instituciones públicas.
+e) Coordinar con el Ministerio Público la estrategia de persecución de los delitos vinculados a la pesca ilegal, no declarada y no reglamentada.
