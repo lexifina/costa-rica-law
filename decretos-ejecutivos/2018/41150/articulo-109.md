@@ -1,0 +1,1 @@
+Artículo 109º-Medidas cautelares. El MINAE podrá establecer las medidas cautelares en aplicación del Principio Precautorio en resolución motivada, con el objetivo de suspender la actividad que pueda provocar o este provocando contaminación ambiental, un riesgo a la salud o a la seguridad de las personas.

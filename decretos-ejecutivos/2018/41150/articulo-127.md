@@ -1,0 +1,1 @@
+Artículo 127º-Tarifa para las estaciones de servicio de GLP. La ARESEP será la responsable de emitir la metodología tarifaria para las estaciones de servicio de GLP en un plazo no mayor de 18 meses a partir de la vigencia de este reglamento.

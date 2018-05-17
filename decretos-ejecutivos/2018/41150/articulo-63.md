@@ -1,0 +1,2 @@
+Artículo 63º-Prohibición. Se le prohíbe utilizar automóviles, motocicletas, bicicletas o cualquier otro tipo de vehículo para transportar cilindros portátiles envasados. Únicamente podrá realizar ventas a domicilio con vehículos de reparto debidamente autorizados por el MINAE según lo establecido en el Título III, Sección V artículos 84 y 85 del presente reglamento.
+El comercializador que realice la conducta aquí señalada será sancionado de conformidad con el Título V del presente Reglamento.

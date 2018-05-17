@@ -1,0 +1,1 @@
+Artículo 71º-Licencia para Distribución. Es el acto administrativo emitido por el MINAE que habilita a una persona física o jurídica para ejecutar la actividad de distribución. La licencia tendrá una vigencia de 5 años desde la fecha en que se notifique al solicitante, y podrá ser renovada por un plazo igual al de su otorgamiento.

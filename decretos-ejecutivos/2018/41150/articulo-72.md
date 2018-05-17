@@ -1,0 +1,1 @@
+Artículo 72º-Código de transportista. Es el acto administrativo emitido por el MINAE que habilita a una persona física o jurídica para realizar el servicio de transporte. La licencia tendrá una vigencia de 5 años desde la fecha en que se notifique al solicitante, y podrá ser renovada por un plazo igual al de su otorgamiento.

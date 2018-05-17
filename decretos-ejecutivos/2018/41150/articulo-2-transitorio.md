@@ -1,0 +1,1 @@
+Transitorio II.-A partir de la vigencia de este reglamento el MINAE por medio de la DGTCC, iniciará la coordinación con las Municipalidades, MINSA, el BCBCR y la ARESEP en implementación del artículo 16 del presente Reglamento, en un plazo no mayor a un año.

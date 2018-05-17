@@ -1,0 +1,1 @@
+Transitorio III.-A partir de la vigencia de este reglamento RECOPE en un plazo no mayor a 3 meses, presentará al Ministro Rector el Plan de Implementación señalado en el artículo 18 del presente Reglamento.

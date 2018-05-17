@@ -1,0 +1,1 @@
+Artículo 74º-Titularidad. El titular de una autorización será poseedor de su derecho y solo podrá ser ejercido de forma exclusiva por éste, por lo que se prohíbe el traspaso, la cesión, el arriendo o la explotación indirecta. Cualquiera de estas conductas será sancionada con la cancelación de la respectiva autorización.

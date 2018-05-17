@@ -1,0 +1,4 @@
+SECCIÓN VI
+Benemérito Cuerpo de Bomberos de Costa Rica
+Artículo 14º-Benemérito Cuerpo de Bomberos de Costa Rica. Emitirá las normas en materia de prevención, seguridad humana y protección contra incendios que deberá cumplir toda construcción nueva, edificación existente o lugares donde se desarrollen actividades industriales, comerciales y de servicios, sean éstos temporales o permanentes, que utilicen o expendan GLP. Esta normativa será revisada anualmente y es de carácter obligatorio.
+De igual forma, realizará cualquier otra función que sea aplicable y concordante en esta materia contenida en la Ley del Benemérito Cuerpo de Bomberos de Costa Rica, Ley Nº 8228 y el Reglamento a la Ley N° 8228 del Benemérito Cuerpo de Bomberos de Costa Rica, Decreto Ejecutivo Nº 37615-MP del 04 de marzo de 2013.

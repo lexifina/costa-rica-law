@@ -1,0 +1,2 @@
+Artículo 106º-Levantamiento de la suspensión. La suspensión será levantada mediante resolución razonada del Ministro de Ambiente y Energía, previa inspección e informe técnico de la DGTCC que constate que las causales por la que se emitió la suspensión fueron subsanadas.
+Si la suspensión obedece a un acto emitido por la ARESEP o MINSA, la misma será levantada únicamente cuando así lo dispongan éstos.

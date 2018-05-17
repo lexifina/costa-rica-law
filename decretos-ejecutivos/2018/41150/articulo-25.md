@@ -1,0 +1,2 @@
+Artículo 25º-Envasado. Es la actividad que consiste en llenar cilindros portátiles o recargar camiones cisternas. Podrá ser ejecutada únicamente por quien posea una concesión para operar una planta envasadora. Las plantas envasadoras requieren un permiso de operación emitido por el MINAE previo al inicio de su actividad.
+La construcción de una planta envasadora deberá de cumplir con el Reglamento para el Diseño, Construcción y Operación de Plantas de Almacenamiento y Envasado para GLP, Nº 28622-MINAE-S del 02 de mayo del 2000 y sus reformas.

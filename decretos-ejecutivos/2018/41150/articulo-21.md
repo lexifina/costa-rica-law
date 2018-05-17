@@ -1,0 +1,1 @@
+Artículo 21º-Protocolo para emergencias por desabastecimiento. RECOPE deberá tener un protocolo para el abastecimiento de GLP en casos de emergencia que comprometan en forma directa e inminente la continuidad del servicio público. La declaratoria la emitirá el Ministro Rector.

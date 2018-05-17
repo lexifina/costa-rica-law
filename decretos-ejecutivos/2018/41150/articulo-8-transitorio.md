@@ -1,0 +1,1 @@
+Transitorio VIII.- A partir de la vigencia de este reglamento y en un plazo máximo de un año, todos los concesionarios tienen la obligación de presentar el Plan de Trazabilidad para la aprobación de la DGTCC.

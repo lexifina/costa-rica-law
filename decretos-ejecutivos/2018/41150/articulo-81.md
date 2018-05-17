@@ -1,0 +1,1 @@
+Artículo 81º-Inscripción. El interesado deberá inscribirse en línea, ingresando los datos solicitados para el registro según le indique el sistema. Registrados correctamente los datos, el sistema le asignará el respectivo código. Este código deberá imprimirlo y ubicarlo en un lugar visible del lugar donde ejecuta su actividad. El plazo de vigencia será el establecido en el PSF.

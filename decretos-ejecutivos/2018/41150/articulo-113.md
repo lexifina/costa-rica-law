@@ -1,0 +1,1 @@
+Artículo 113º-Responsabilidad. El RT responderá administrativa, civil y penalmente por la veracidad de la información que suscribe, con responsabilidad solidaria para el concesionario o el distribuidor.

@@ -1,0 +1,1 @@
+Artículo 51º-Responsabilidad. Garantizar la prestación del servicio público durante todo el plazo dela concesión, en las condiciones estipuladas en la Ley de la Autoridad Reguladora de los Servicios Públicos Nº 7593, el Reglamento a la Ley de la Autoridad Reguladora de los Servicios Públicos, Decreto Ejecutivo N° 29732-MPdel 16 de agosto de 2001 y este Reglamento.

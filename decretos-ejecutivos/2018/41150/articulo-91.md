@@ -1,0 +1,2 @@
+Artículo 91º-Inspección de verificación. Una vez aportado por parte del solicitante los informes que manifiesten que las inconformidades fueron subsanadas, a criterio de la DGTCC, podrá realizarse una inspección de verificación. Si la DGTCC determina que las inconformidades subsisten, se emitirá un informe y se archivará el expediente.
+La inspección de verificación se realizará en un plazo de 10 días hábiles posteriores a la presentación del informe por parte del solicitante.

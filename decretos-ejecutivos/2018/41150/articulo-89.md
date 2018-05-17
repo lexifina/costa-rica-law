@@ -1,0 +1,1 @@
+Artículo 89º-Inspección. A criterio de la DGTCC, se podrán realizar inspecciones de campo con el fin de verificar aspectos técnicos que resulten del análisis de fondo de la documentación aportada por el solicitante. La inspección se realizará en un plazo de 10 días hábiles posteriores al análisis de fondo de la documentación establecida en el artículo 88 de este reglamento.

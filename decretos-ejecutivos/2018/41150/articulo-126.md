@@ -1,0 +1,1 @@
+Artículo 126º-Tarifas. La ARESEP será la responsable de emitir la metodología tarifaria de la estructura completa de la cadena de suministro de GLP en un plazo no mayor de 18 meses a partir de la vigencia de este reglamento.

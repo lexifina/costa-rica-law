@@ -1,0 +1,1 @@
+Artículo 94º-Resolución. El Ministro del Ambiente y Energía emitirá en un plazo de 10 días hábiles, la resolución que corresponda, y la remitirá a la DGTCC para que proceda con la respectiva notificación.

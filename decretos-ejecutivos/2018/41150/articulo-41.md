@@ -1,0 +1,1 @@
+Artículo 41º-Trazabilidad. El concesionario está obligado establecer y mantener un sistema de trazabilidad durante la totalidad del plazo de la concesión, caso contrario no se le otorgará o renovará la concesión. El sistema de trazabilidad previo a su implementación debe ser aprobado por el MINAE.

@@ -1,0 +1,1 @@
+Artículo 2º-Alcance. Este reglamento es aplicable a toda persona física o jurídica que interviene en la cadena de suministro de gas licuado de petróleo y a las actividades que éstos ejecutan para brindar el servicio público.

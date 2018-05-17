@@ -1,0 +1,1 @@
+Transitorio XI.-A partir de la vigencia de este reglamento, la ARESEP en un plazo máximo de seis meses, publicará los lineamientos para el sistema de registro indicado en el artículo 42 y 43 del presente Reglamento.

@@ -1,0 +1,1 @@
+Transitorio X.-A partir de la vigencia de este reglamento, el MINAE por medio de la DGTCC y en un plazo máximo de seis meses, publicará los lineamientos y formatos para los documentos indicados en los artículos 44, 45, 54 incisos d) y f) y 55.

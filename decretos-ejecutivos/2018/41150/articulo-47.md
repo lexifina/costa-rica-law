@@ -1,0 +1,1 @@
+Artículo 47º-Responsabilidad. Garantizar la prestación del servicio público durante todo el plazo de la concesión en las condiciones estipuladas en la Ley de la Autoridad Reguladora de los Servicios Públicos, Ley Nº 7593, el Reglamento a la Ley de la Autoridad Reguladora de los Servicios Públicos, Decreto Ejecutivo N° 29732-MP del 16 de agosto de 2001 y este Reglamento.

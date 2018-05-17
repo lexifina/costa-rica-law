@@ -1,0 +1,1 @@
+Transitorio XII.-A partir de la vigencia de este reglamento, los comercios existentes en zonas residenciales que comercialicen o utilicen GLP, deberán ajustar sus instalaciones a la normativa técnica vigente, y deberán obtener una certificación de acuerdo a lo indicado en el artículo 11 de este Reglamento en un plazo no mayor a un año.

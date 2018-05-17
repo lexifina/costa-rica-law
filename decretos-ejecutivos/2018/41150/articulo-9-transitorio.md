@@ -1,0 +1,1 @@
+Transitorio IX.- A partir de la publicación de los lineamientos emitido por la ARESEP, los concesionarios tienen seis meses para implementar los registros señalados en los artículos 42 y 43 del presente Reglamento.

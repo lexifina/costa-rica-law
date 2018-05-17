@@ -1,0 +1,1 @@
+Artículo 124º-Contrato con RECOPE. Los agentes deberán firmar un contrato con RECOPE previo a adquirir GLP al mayoreo en sus instalaciones. El contrato solo podrá firmarse una vez obtenida la autorización y permisos de operación respectivos emitidos por el MINAE, y adicionalmente deberán cumplir los requisitos establecidos por RECOPE.

@@ -1,0 +1,1 @@
+Artículo 18º-Obligaciones. Tiene la obligación de poseer las condiciones financieras, administrativas, de operación e infraestructura que le permitan el desarrollo de la actividad de distribución al mayoreo.

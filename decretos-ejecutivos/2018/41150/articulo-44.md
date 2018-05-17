@@ -1,0 +1,2 @@
+Artículo 44º-Registro de contratos de suministro. El concesionario tiene la obligación de levantar, establecer y mantener un registro de cada uno de los contratos que suscriba con los transportistas, distribuidores y comercializadores con los que opere. El sistema de registro deberá ser conforme a los lineamientos emitidos por el MINAE.
+Este registro será entregado al MINAE o cuando éste lo solicite, en caso de incumplimiento se sancionará según lo establecido en el Título V de este reglamento.

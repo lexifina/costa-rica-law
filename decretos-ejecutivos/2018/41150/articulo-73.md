@@ -1,0 +1,1 @@
+Artículo 73º-Código de comercializador. Es emitido digitalmente por el MINAE y habilita a las personas físicas o jurídicas a comercializar GLP en cilindros portátiles en expendios o puntos de venta, para su registro deberán contar de previo con PSF y la Licencia Municipal.

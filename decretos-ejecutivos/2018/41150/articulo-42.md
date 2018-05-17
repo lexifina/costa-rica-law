@@ -1,0 +1,2 @@
+Artículo 42º-Registro de cilindros portátiles. El concesionario tiene la obligación de levantar, establecer y mantener un registro de cada uno de los cilindros portátiles que utilice para brindar el servicio público de suministro de GLP. El sistema de registro deberá ser conforme a los lineamientos emitidos por la ARESEP.
+Este registro será entregado al MINAE cuando éste lo solicite, en caso de incumplimiento se sancionará según lo establecido en el Título V de este reglamento.

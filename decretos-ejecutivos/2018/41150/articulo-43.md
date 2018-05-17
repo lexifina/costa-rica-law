@@ -1,0 +1,2 @@
+Artículo 43º-Registro de tanques estacionarios. El concesionario tiene la obligación de levantar, establecer y mantener un registro de cada uno de los tanques estacionarios a los que preste el servicio de suministro de GLP de forma directa o por medio de un distribuidor. El sistema de registro deberá ser conforme a los lineamientos emitidos por la ARESEP.
+Este registro será entregado al MINAE cuando éste lo solicite, en caso de incumplimiento se sancionará según lo establecido en el Título V de este reglamento.

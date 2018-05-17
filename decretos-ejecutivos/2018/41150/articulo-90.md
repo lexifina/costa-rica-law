@@ -1,0 +1,1 @@
+Artículo 90º-Subsanación. Si en el proceso de análisis técnico de la documentación y las inspecciones, se encuentran inconformidades en la protección ambiental, protección contra incendios y la seguridad de las personas, se le prevendrá al solicitante por una única vez para que en un plazo no mayor de 3 meses corrija lo señalado, de no hacerlo se archivara el expediente.

@@ -1,0 +1,1 @@
+Transitorio V.- Los distribuidores no podrán adquirir GLP directamente en las instalaciones de RECOPE hasta que este opere la infraestructura requerida para distribuir el producto al mayoreo en el volumen indicado en el artículo 19 del presente Reglamento.

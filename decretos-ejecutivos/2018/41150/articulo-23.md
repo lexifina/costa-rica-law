@@ -1,0 +1,6 @@
+Artículo 23º-Transporte. Actividad que consiste en el traslado de GLP utilizando camiones cisternas o vehículos de reparto previamente autorizados por el MINAE, servicio por el cual se pagará flete. Podrá ser ejecutado únicamente por quien obtenga un código de transportista y los permisos de operación para los camiones cisternas y vehículos de reparto que utilice según lo establecido en el Título III, Sección I artículos 68 y 72, Sección II artículos 75 y 79, Sección IV artículo 82, Sección V artículos 84 y 85 del presente reglamento.
+Los camiones cisternas y los vehículos de reparto utilizados deben cumplir con las normas técnicas aplicables en su versión vigente y los siguientes reglamentos:
+a) Decreto Ejecutivo N° 24715-MOPT-MEIC-S Reglamento para el Transporte Terrestre de Productos Peligrosos.
+b) Decreto Ejecutivo Nº 36627-MINAE-S, Reglamento para la Regulación del Transporte de Combustible y sus reformas.
+c) Decreto Ejecutivo Nº 33428-MINAE-MEIC, RTCA 23.01.24:06 Recipientes a Presión. Cilindros Portátiles para contener gas Licuado de Petróleo. Vehículo Terrestre de Reparto. Especificaciones de Seguridad.
+d) Decreto Ejecutivo Nº 32921–COMEX-MINAE- MEIC, RTCA 13.01.26:05; Transporte Terrestre de Gas Licuado de Petróleo (GLP) a Granel. Especificaciones.

@@ -1,0 +1,3 @@
+Artículo 103º-Traslado. Las conductas que deban ser sancionadas de los agentes que no sean competencia del MINAE serán trasladadas al ente competente para proceda según corresponda. Los traslados se realizarán a la ARESEP, a MINSA, a la Municipalidad correspondiente, al Tribunal Ambiental Administrativo o se procederá con la respectiva denuncia penal ante el Ministerio Público.
+Lo anterior sin perjuicio de la aplicación de la medida cautelar que el MINAE deba imponer en aplicación del Principio Precautorio.
+Una vez que el ente competente dicte la resolución final le notificará al MINAE para que proceda según corresponda.

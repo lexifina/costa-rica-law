@@ -1,0 +1,1 @@
+Artículo 36º-Monopolios. Los agentes que participan en la cadena de suministro de GLP no tendrán ningún derecho monopólico sobre las actividades que exploten, esta práctica será sancionada por la ARESEP con el procedimiento previsto en la Ley de la Autoridad Reguladora de los Servicios Públicos N° 7593.
