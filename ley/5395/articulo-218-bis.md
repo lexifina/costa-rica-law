@@ -1,0 +1,8 @@
+Artículo 218 bis- Las municipalidades podrán regular, en sus respectivas jurisdicciones, los supuestos en los que se podrán otorgar permisos temporales para la venta de frutas y para la preparación y venta de alimentos y bebidas en los sitios que previamente ellas definan; siempre y cuando se cuente con los servicios públicos necesarios para garantizar la protección de la salud pública. Para este fin, el Ministerio de Salud emitirá, en lo que es de su competencia, un reglamento especial.
+Los permisos regulados en este artículo serán temporales y gratuitos; se expedirán en precario por un plazo máximo de un año, el cual podrá prorrogarse a solicitud del permisionario por períodos iguales, mediante acto administrativo debidamente fundamentado.
+El otorgamiento de estos permisos se hará a partir de un estudio social llevado a cabo por un trabajador social.
+Los permisionarios no podrán ceder o arrendar los permisos ni podrán actuar como simples intermediarios. Los productos de venta deberán ser artesanales, por lo que no se permitirán productos comerciales o industrializados.
+Todo permiso temporal podrá ser revisado y revocado, si se determina que el uso para el que fue concedido ha variado o su explotación es ilícita o contraria al reglamento municipal.
+La emisión de los permisos deberá estar fundamentada y justificada en el programa de gobierno municipal.
+Los reglamentos municipales que se dicten con fundamento en este artículo deberán preservar la estética urbana y la libertad de tránsito, así como los factores sociales y turísticos que favorezcan a la comunidad.
+(Así adicionado por el artículo único de la ley N° 9532 del 26 de abril del 2018)
