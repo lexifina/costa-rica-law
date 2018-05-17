@@ -15,3 +15,4 @@ Emite "Clasificador Presupuestario de los Ingresos del Sector Público"
 | --- | --- | --- |
 | 1 | 2003-11-19 | la propia norma |
 | 2 | 2018-03-21 | Decreto Ejecutivo 41101 (2018-03-21) |
+| 3 | 2018-05-17 | Decreto Ejecutivo 41264 (2018-05-17) |
