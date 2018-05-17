@@ -15,3 +15,4 @@ Emite documento denominado "Clasificador Institucional del Sector Público" y de
 | --- | --- | --- |
 | 1 | 2006-05-17 | la propia norma |
 | 2 | 2009-04-24 | Decreto Ejecutivo 35252 (2009-04-24) |
+| 3 | 2018-05-17 | Decreto Ejecutivo 41264 (2018-05-17) |
