@@ -1,1 +1,0 @@
-Artículo 4º—Derógase el Decreto Ejecutivo Nº 32434-H, publicado en La Gaceta Nº 125 de 29 de junio de 2005, denominado “Normas y Criterios Operativos para la utilización de los Clasificadores Presupuestarios del Sector Público”.
