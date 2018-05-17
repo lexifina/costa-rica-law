@@ -14,3 +14,4 @@ Emite documento "Clasificador de Fuentes de Financiamiento del Sector Público"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-08-29 | la propia norma |
+| 2 | 2018-05-17 | Decreto Ejecutivo 41264 (2018-05-17) |
