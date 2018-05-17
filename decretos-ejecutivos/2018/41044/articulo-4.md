@@ -1,0 +1,2 @@
+Artículo 4º—De la Dirección de la Auditoría General de Servicios de Salud. La Dirección de la Auditoría General de Servicios de Salud, está a cargo del Ministro de Salud, quien podrá nombrar a un auditor general, que será el responsable por la gestión del órgano desconcentrado.
+El Auditor General deberá colaborar con el Ministro de Salud para que la Auditoría cumpla con las funciones para las cuales fue creada, coordinando las acciones necesarias con el Ministerio, las instituciones y organizaciones o empresas bajo su competencia.
