@@ -15,3 +15,4 @@ Emite documento "Clasificador Funcional del Sector Público"
 | --- | --- | --- |
 | 1 | 2006-06-16 | la propia norma |
 | 2 | 2007-07-02 | Decreto Ejecutivo 33875 (2007-07-02) |
+| 3 | 2018-05-17 | Decreto Ejecutivo 41264 (2018-05-17) |
