@@ -1,0 +1,1 @@
+Artículo 2º—El Plan Macro de Proyectos para la Provincia de Limón, será coordinado desde el Consejo Regional para el Desarrollo de la Provincia de Limón (COREDESPROLI) y supervisado por los Ministerios de Hacienda, Planificación y Presidencia.
