@@ -1,0 +1,1 @@
+Artículo 13.—La Administración de los recursos financieros para el cumplimiento de los fines de esta instancia, estará a cargo de las Instituciones integrantes de esta Comisión, de acuerdo a sus competencias. La Comisión no administrará fondos públicos ni privados en ningún caso.

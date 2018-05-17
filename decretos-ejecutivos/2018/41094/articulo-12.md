@@ -1,0 +1,1 @@
+Artículo 12.—La Comisión tendrá un plazo de seis meses, contados a partir de la publicación del presente Decreto, para dictar su manual de procedimientos para operativizar las funciones específicas de cada una de las instancias.
