@@ -1,0 +1,1 @@
+Artículo 18°- Derogatorias. Deróguese el Decreto Ejecutivo No. 29296-SALUD-MINAE del 25 de enero del 2001 "Reglamento para Regular Campos Eléctricos y Magnéticos en Obras de Transmisión de Energía Eléctrica".

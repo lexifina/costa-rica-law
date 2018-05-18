@@ -1,0 +1,1 @@
+Artículo 2° -Ámbito de aplicación. La aplicación del presente reglamento es obligatoria en el territorio nacional a personas físicas y jurídicas, públicas o privadas que se encuentren habilitados para la explotación y uso de los sistemas de transmisión de energía eléctrica en alta tensión.

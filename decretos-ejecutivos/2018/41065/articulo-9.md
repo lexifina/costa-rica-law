@@ -1,0 +1,1 @@
+Artículo 9°-Señalización para la seguridad de las personas. Para efectos de seguridad de las personas, el prestatario de Sistemas de Transmisión de Energía de Alta de Tensión, deberá instalar las señales del ANEXO I, que adviertan la presencia de dichos sistemas.

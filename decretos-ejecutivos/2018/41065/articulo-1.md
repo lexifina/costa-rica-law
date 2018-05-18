@@ -1,0 +1,27 @@
+N° 41065 -S-MINAE
+EL PRESIDENTE DE LA REPÚBLICA
+LA MINISTRA DE SALUD,
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA
+En uso de las facultades que les confieren los artículos 50, 140 incisos 3 ), 18) y 146 de la Constitución Política; 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b) de la Ley No. 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública"; 1, 2, 4, 7, 18, 37 de la Ley No. 5395 del 30 de octubre de 1973 "Ley General de Salud"; 2 y 6 de la Ley No. 5412 del 8 de noviembre de 1973 "Ley Orgánica del Ministerio de Salud"; Ley No. 7554 del 4 de octubre de 1995 "Ley Orgánica del Ambiente"; Ley No. 7447 del 03 de noviembre de 1994, "Ley de Regulación del Uso Racional de la Energía"; Ley No. 7152 del 05 de julio de 1990 "Ley Orgánica del Ministerio del Ambiente, Energía", Conversión del Ministerio de Industria, Energía y Minas, al Ministerio de Recursos Naturales, Energía y Minas; Ley No. 7593 del 09 de agosto de 1996 "Ley de la Autoridad Reguladora de los Servicios Públicos"; Ley No. 8839 del 24 de junio del 2010 "Ley para la Gestión Integral de Residuos".
+CONSIDERANDO:
+1º- Que es deber del Estado velar por la salud de la población, así como por la utilización racional de los recursos naturales y del medio ambiente, con el fin de proteger y mejorar la calidad de vida de los habitantes del territorio nacional.
+2°-Que el Ministerio de Salud es competente para adoptar todos aquellos actos necesarios para la protección de la salud. La Ley General de Salud establece además, que toda persona, natural o jurídica, queda sujeta a los mandatos de esa ley, de sus reglamentos y de las órdenes generales y particulares, ordinarias y de emergencia, que las autoridades de salud dicten en el ejercicio de sus competencias orgánicas.
+3°- Que el Estado debe definir políticas nacionales de ordenamiento territorial, en materia de desarrollo sostenible.
+4°-Que es función de las Municipalidades elaborar un plan regulador en las áreas geográficas de su jurisdicción, como instrumento de planificación local que define los usos de la tierra, vías de circulación e instalación de servicios públicos.
+5°- Que el desarrollo nacional experimentado por el país en las últimas décadas, principalmente en el campo industrial, ha provocado un incremento en la demanda de energía eléctrica, con una clara tendencia al crecimiento.
+6°-Que los beneficios de los sistemas de transmisión de energía eléctrica en alta tensión, están claramente evidenciados; sin embargo, se han despertado inquietudes en los habitantes de las zonas aledañas a las instalaciones de transmisión, por la incertidumbre generada en relación con los posibles efectos en la salud humana y el ambiente, de los campos eléctricos y magnéticos.
+7º-Que los sistemas de transmisión de energía eléctrica en alta tensión, constituyen un servicio público.
+8°- Que se reconoce la existencia de estándares internacionales que establecen niveles de exposición de las personas a los campos electromagnéticos de radiaciones no ionizantes, propuestos por la Comisión Internacional de Protección contra las Radiaciones No Ionizantes (ICNIRP) y niveles de emisión de radiaciones no ionizantes provenientes de dispositivos; establecidos por la Comisión Electrotécnica Internacional (IEC) y el Instituto de Ingenieros Eléctricos y Electrónicos (IEEE).
+9°- Que tanto la Organización Mundial de la Salud, como la Asociación Internacional para la Protección Radiológica, la Comisión Internacional de Protección contra la Radiación No Ionizante, el Proyecto Internacional CEM, la Agencia Internacional de Investigación del Cáncer, con el fin de proteger la salud de todas las personas, han establecido límites para la protección contra la exposición a campos eléctricos y magnéticos.
+10°- Que la Ley General de Salud prevé el ejercicio de la potestad reglamentaria para fijar límites con respecto a la exposición a los campos eléctricos y magnéticos de radiaciones no ionizantes en la población, por parte del Ministerio de Salud.
+11 °- Que se hace necesario actualizar el Decreto Ejecutivo No.29296-SALUD-MINAE, del 25 de enero del 2001 "Reglamento para Regular Campos Eléctricos y Magnéticos en Obras de Transmisión de Energía Eléctrica" para que sean acorde a la realidad actual.
+12º- Que de conformidad con lo establecido en el artículo 12 bis del Decreto Ejecutivo :N°. 37045 del 22 de febrero de 2012 y su reforma "Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos", esta regulación cumple con los principios de mejora regulatoria, de acuerdo con el informe No. DMR-AR-INF-059-17 emitido por la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio.
+POR TANTO,
+DECRETAN:
+"REGLAMENTO PARA REGULAR LA EXPOSICIÓN A CAMPOS
+ELECTROMAGNÉTICOS DE RADIACIONES NO IONIZANTES
+EN LOS SISTEMAS DE TRANSMISIÓN DE
+ENERGÍA ELÉCTRICA EN ALTA TENSIÓN”
+CAPÍTULO I
+DISPOSICIONES GENERALES
+Artículo 1º- Objetivo. El presente reglamento tiene como objetivo establecer requisitos y criterios tendientes a proteger la salud del personal técnico y de la población en general, de los potenciales riesgos y efectos nocivos asociados a la exposición de los campos electromagnéticos de radiaciones no ionizantes, que puedan derivarse de la explotación y uso de los sistemas de transmisión de energía eléctrica en alta tensión, como medida preventiva para la salud pública, así como las condiciones ambientales a considerar en las etapas de planificación, diseño, construcción, mantenimiento, operación y desmantelamiento de tales instalaciones.

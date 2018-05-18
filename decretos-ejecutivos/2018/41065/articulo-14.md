@@ -1,0 +1,1 @@
+Artículo 14º-Los prestatarios del servicio público deben realizar una evaluación para clasificar la exposición potencial al CEM, según las zonas de conformidad, ocupacional o de rebasamiento. La clasificación de las zonas de exposición debe realizarse de conformidad con el Anexo IV.
