@@ -1,0 +1,1 @@
+Artículo 31: Se establece la Carrera Administrativa Municipal, como medio de desarrollo y promoción humano. Se entenderá como un sistema integral, regulador del empleo y las relaciones laborales entre los o las servidoras y la administración municipal.

@@ -1,0 +1,2 @@
+Artículo 67: En un plazo no mayor a cinco días naturales, después de interpuesta la denuncia, deberá nombrarse Órgano Director del Proceso.
+El Órgano Director estará integrado por tres personas de escogencia del o la Alcaldesa, dentro del cual estará un(a) abogado(a) y el o la Jefa de la Oficina de la Mujer. En todo caso, se buscará en la escogencia de los(as) miembros del Órgano Director, personas de reconocida solvencia moral.

@@ -1,0 +1,1 @@
+Artículo 35: La evaluación o calificación anual de servicios servirá como reconocimiento a los(as) servidores(as) para estimular y lograr una mayor eficiencia, así como factor a considerar en el proceso de reclutamiento y la selección, la capacitación, los ascensos, la concesión de permisos y las reducciones forzosas de personal.

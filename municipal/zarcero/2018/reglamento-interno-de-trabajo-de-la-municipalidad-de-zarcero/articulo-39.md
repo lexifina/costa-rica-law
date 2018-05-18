@@ -1,0 +1,1 @@
+Artículo 39: El desacuerdo entre la jefatura y el o la colaboradora en relación con el resultado de la evaluación y calificación de servicios, será resuelto por el o la Alcaldesa de la Municipalidad, previa audiencia a todas las partes interesadas en cumplimiento del debido proceso.

@@ -1,0 +1,1 @@
+Artículo 44: El pago del salario de todo el personal se calculará quincenal, depositándose en la cuenta respectiva del o la funcionaria en alguno de los bancos del Estado o Cooperativa, de existir previo contrato con las entidades financieras.

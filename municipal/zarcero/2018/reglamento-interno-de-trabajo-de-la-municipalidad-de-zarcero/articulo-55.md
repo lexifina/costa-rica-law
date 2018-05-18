@@ -1,0 +1,1 @@
+Artículo 55: La Municipalidad promoverá y fortalecerá la creación funcionamiento oficial de Comisiones de Salud Ocupacional del Trabajo, para que se capaciten en dicha materia, emergencias y riesgos; que sirvan de retroalimentación al resto de los(as) funcionarios(as) respecto a la difusión y práctica de métodos y sistemas técnicos de prevención en forma permanente.

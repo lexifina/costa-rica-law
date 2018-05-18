@@ -1,0 +1,1 @@
+Artículo 71: Tanto la persona denunciante de hostigamiento sexual como los(as) testigos de las partes, gozarán de las garantías y derechos previstos en la Ley N° 8805 deñ 28 de abril del 2010, en relación con su trabajo y condiciones generales del mismo.

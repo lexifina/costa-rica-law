@@ -1,0 +1,1 @@
+Artículo 83: Cuando el o la servidora desempeñe labores técnicas o profesionales que dificulten su reemplazo o, se trate del o la Alcaldesa, podrá la Municipalidad acumularle las vacaciones por un período. Es obligación de la Municipalidad, el no permitir que se acumulen dos o más períodos de vacaciones

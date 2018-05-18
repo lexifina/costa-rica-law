@@ -1,0 +1,1 @@
+Artículo 107: Queda prohibido donar o vender las prendas de los uniformes, asi sean estas de años anteriores, ni aún cuando estén en mal estado. Los mismos deberán ser devueltos para su debida eliminación.

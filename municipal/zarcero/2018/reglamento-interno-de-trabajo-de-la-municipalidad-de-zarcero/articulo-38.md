@@ -1,0 +1,4 @@
+Artículo 38: cuando el o la servidora no haya completado un año de prestar servicios en el momento de la evaluación, se observarán las siguientes reglas:
+a) El servidor(a) que durante el respectivo periodo de evaluación y calificación de servicios anual haya cumplido el periodo de prueba, pero no haya completado un semestre de prestación de servicios, será calificado provisionalmente, y deberá calificársele en forma definitiva durante la siguiente evaluación. De no reformarse la calificación provisional en este período, será considerada definitiva.
+b) Si el o la servidora ha estado menos de un año, pero más de seis meses a las órdenes de un mismo jefe(a), a él o ella corresponderá evaluarlo(a).
+c) Si el o la servidora ha estado a las órdenes de varios jefes(as) durante el año pero con ninguno por más de seis meses, lo evaluará y calificará el último jefe(a) con quien trabajó tres meses o más.

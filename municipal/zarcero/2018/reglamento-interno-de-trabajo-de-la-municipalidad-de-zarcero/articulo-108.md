@@ -1,0 +1,1 @@
+Artículo 108: A los(as) funcionarios(as) que se les dote de uniforme, éste será de uso obligatorio durante la jornada laboral. El uniforme debe estar siempre limpio, ordenado y planchado, con faldas por dentro en el caso de los hombres, y sin mangas largas redobladas.

@@ -1,0 +1,1 @@
+Artículo 3: La Municipalidad propiciará la efectiva vigencia de los principios universales del Derecho Laboral y aplicará las sanciones pertinentes a los responsables por la violación de dicha normativa, atendiendo al debido proceso.

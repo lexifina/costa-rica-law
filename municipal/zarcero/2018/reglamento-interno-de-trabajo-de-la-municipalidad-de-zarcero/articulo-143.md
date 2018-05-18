@@ -1,0 +1,1 @@
+Artículo 143: El presente reglamento entrará en vigencia en la fecha de aprobación del Concejo Municipal. Se procederá a reproducir y entregar vía física o electrónica a los(as) municipales, incluyendo el Alcalde(sa) Municipal y será remitido a los correos electrónicos de los(as) funcionarios(as).

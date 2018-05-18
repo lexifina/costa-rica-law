@@ -1,0 +1,2 @@
+Artículo 22: No podrán ser empleados(as) de la Municipalidad quienes sean cónyuges o parientes, en línea directa o colateral hasta tercer grado inclusive, de alguno de los concejales, el o la Alcalde(sa), el o la Auditor(a), los o las Directores(as) o Jefes del Departamento de Recursos Humanos de la Municipalidad.
+La designación de alguno de los o las funcionarias enunciados en el párrafo anterior no afectará al o la empleada de la Municipalidad cónyuge o pariente de alguno de ellos nombrados con anterioridad a la entrada en vigencia del presente reglamento.

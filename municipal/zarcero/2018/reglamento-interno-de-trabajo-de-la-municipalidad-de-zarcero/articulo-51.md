@@ -1,0 +1,1 @@
+Artículo 51: Para el cálculo y pago de cesantía se empleará el promedio de los seis últimos salarios. Las fracciones de tiempo laborado, menores de seis meses, se pagarán calculando dicho tiempo como medio año y las fracciones mayores de seis meses, se tomarán como un año completo.

@@ -1,0 +1,1 @@
+Artículo 116: No tendrán derecho del uniforme el personal que ocupe puestos en nombramientos de ocasionales, suplencias e interinos que tengan un periodo menor a los tres meses. Salvo mediante justificación escrita del Alcalde (sa) se incluya el personal que se encuentra nombrado en estas categorías, para dicho beneficio.

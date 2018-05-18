@@ -1,0 +1,1 @@
+Artículo 18: Corresponde al Alcalde(sa) Municipal, realizar nombramientos, promociones y remoción de las o los empleados municipales, con excepción de las o los empleados que dependan directamente del Concejo Municipal, así mismo, las o los empleados ocasionales contratados con cargo a las partidas presupuestarias de Servicios Especiales o Jornales Ocasionales.

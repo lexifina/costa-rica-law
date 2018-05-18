@@ -1,0 +1,2 @@
+Artículo 49: El recargo de funciones se pagará con fundamento en la diferencia existente entre el salario base del puesto que ocupa el o la funcionario(a) y el salario base del puesto con recargo. La persona que realice el recargo debe cumplir con los requisitos académicos profesionales entre otros que solicita el puesto a realizar.
+Los viáticos no se considerarán salario para ningún efecto legal.

@@ -1,0 +1,1 @@
+Artículo 46: En caso que la Municipalidad cuente con presupuesto y se decida en pagar el salario escolar, será cancelado a más tardar en la segunda quincena del mes de enero de cada año correspondiente.

@@ -1,0 +1,1 @@
+Artículo 36: Para evaluar y calificar al o la servidora en su desempeño general, se utilizarán las categorías de Regular, Bueno, Muy Bueno y Excelente. La evaluación y calificación de servicios se hará efectiva en la primera quincena del mes de junio de cada año.

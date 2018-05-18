@@ -1,0 +1,6 @@
+Artículo 76: Para obtener derecho a la vacación anual, es necesario que el o la servidor(a) haya prestado sus servicios durante cincuenta semanas continuas; sin embargo si por cualquier causa, no se completara ese plazo o, se requiere realizar un pago de vacaciones; únicamente para efectos de pago, se considerarán las siguientes normas:
+En caso de que no se haya cumplido con las cincuenta semanas de servicios tendrá derecho a un día por cada mes de trabajo.
+a) Un punto veinticinco (1.25) días por cada mes trabajado, en los casos en que correspondiera disfrutar de quince días hábiles de vacaciones; más un uno punto cuatro (1.4) para compensar los días no hábiles.
+b) Uno punto sesenta y seis (1.66) días por cada mes trabajado, en los casos en que correspondiera disfrutar de veinte días hábiles de vacaciones; más un uno punto cuatro (1.4) para compensar los días no hábiles.
+c) Uno punto ochenta y tres (1.83) días por cada mes trabajo, en los casos en que correspondiera disfrutar de veintidós días hábiles de vacaciones; más un uno punto cuatro (1.4) para compensar los días no hábiles.
+d) Dos puntos cincuenta (2.50) días por cada mes trabajado, en los casos en que correspondiera disfrutar de treinta días hábiles de vacaciones; más un uno punto cuatro (1.4) para compensar los días no hábiles.

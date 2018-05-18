@@ -1,0 +1,1 @@
+Artículo 106: Cada colaborador(a) será responsable del buen uso que se le dé a las prendas. Por tanto, queda prohibido el ingreso a lugares de diversión portanto el uniforme municipal, salvo en labores relativas al cargo.

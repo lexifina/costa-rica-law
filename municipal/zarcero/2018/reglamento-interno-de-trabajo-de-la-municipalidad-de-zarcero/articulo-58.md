@@ -1,0 +1,1 @@
+Artículo 58: Los accidentes laborales, producto del incumplimiento a normas, desuso del equipo de protección brindado por la Municipalidad o cualquier otra causa atribuible al(a) colaborador(a), se considerará falta grave a su deber.

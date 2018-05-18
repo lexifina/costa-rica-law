@@ -1,0 +1,2 @@
+Del Manual Descriptivo de Puestos
+Artículo 27: La Municipalidad tendrá un Manual de Clases de Puestos, se elaborará con base en procesos u subprocesos, utilizando la concepción de poli funcionalidad, con el propósito de impulsar una modernización en la Municipalidad. Las creaciones de nuevas plazas deberán incluirse en el Manual, con sus respectivos perfiles ocupacionales, por lo que se mantendrá actualizado tal y como lo señala el Código Municipalidad (Artículo120).

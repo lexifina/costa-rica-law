@@ -1,0 +1,2 @@
+Artículo 124: Tanto la amonestación verbal como la escrita, relacionadas con aspectos disciplinarios ajenos a las faltas por inasistencia al trabajo, serán impuestas por quien funge como jefe inmediato del o la funcionario(a), previo cumplimiento del debido proceso.
+Las sanciones de suspensión sin goce de salario o despido, por inasistencia al trabajo corresponderá aplicarlas al o la Alcaldesa, previo informe del Jefe inmediato en coordinación con el Departamento de Recursos Humanos.

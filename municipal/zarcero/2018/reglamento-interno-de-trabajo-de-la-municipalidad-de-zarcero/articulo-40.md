@@ -1,0 +1,1 @@
+Artículo 40: Cuando el resultado de la evaluación y calificación de servicios anual de la o el servidor(a) sea de Regular dos veces consecutivas, se considerará falta grave, por lo que deberá procederse conforme a este reglamento. Siendo motivo de despido sin responsabilidad laboral.

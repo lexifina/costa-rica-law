@@ -1,0 +1,1 @@
+Artículo 5: Los(as) Directores(as), Jefaturas y todos aquellos funcionarios(as) que tengan bajo su responsabilidad, tareas de administración, o supervisión de personal, son responsables ante el Alcalde(sa) o Vicealcalde(sa) designado, de velar por la correcta aplicación de todas las disposiciones de este reglamento.

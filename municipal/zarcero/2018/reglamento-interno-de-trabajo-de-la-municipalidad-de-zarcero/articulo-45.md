@@ -1,0 +1,1 @@
+Artículo 45: La compensación económica por concepto de Prohibición del Ejercicio Liberal de la Profesión, se regulará conforme con las disposiciones de la Ley [imagen] 5867 del 15 de diciembre de 1975 y sus reformas, Ley 8422 de Corrupción y Enriquecimiento ilícito y su Reglamento; así como la Ley 8292 de Control Interno y la normativa existente sobre la materia.
