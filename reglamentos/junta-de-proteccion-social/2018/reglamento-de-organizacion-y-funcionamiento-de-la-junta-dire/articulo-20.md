@@ -1,0 +1,1 @@
+Artículo 20.—De los expedientes de las actas. La Secretaría de Actas debe conformar un expediente del acta de cada sesión, que contendrá los documentos que sustentan los asuntos tratados, de conformidad al orden del día.

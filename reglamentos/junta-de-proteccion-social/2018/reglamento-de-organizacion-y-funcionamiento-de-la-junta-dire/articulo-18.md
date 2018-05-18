@@ -1,0 +1,7 @@
+CAPÍTULO IV
+De las actas
+Artículo 18.—Actas de las sesiones, su aprobación y firma. La Secretaría de Actas levantará acta de cada sesión de la Junta. Las actas contendrán la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se hayan celebrado, los puntos principales de la deliberación, la forma y resultado de la votación y el contenido de los acuerdos. Sin embargo, la Junta podrá acordar, por mayoría simple y según la naturaleza del caso, cuando el acta o parte de ella será literal, sobre la base de la grabación que se hubiera hecho de la sesión de que se trate.
+Las actas ordinarias se aprobarán en la sesión ordinaria siguiente, salvo que las circunstancias lo impidiesen. Antes de la aprobación del acta, carecerán de eficacia y firmeza los acuerdos adoptados en la sesión de que se trate; salvo que se hubieran adoptado con carácter de firme.
+Cuando algún miembro de la Junta desee que sus argumentos o su posición sobre algún asunto tratado en la sesión consten textualmente en el acta, deberá indicarlo expresamente y éstos deberán quedar debidamente grabados.
+En el momento de aprobación de acta, no será posible introducir argumentos adicionales a los expuestos oralmente durante la deliberación y discusión del tema en cuestión, solo podrán realizarse precisiones, correcciones, aclaraciones o puntualizar los argumentos ya expuestos y conocidos en esa ocasión.
+Las actas serán firmadas por el Presidente, por aquellos miembros que hubieren hecho constar su voto disidente y por quien funja como Secretario de la Junta.

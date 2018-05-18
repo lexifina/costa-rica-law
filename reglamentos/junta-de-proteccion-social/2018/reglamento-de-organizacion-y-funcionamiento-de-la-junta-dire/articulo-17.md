@@ -1,0 +1,6 @@
+Artículo 17.—Votos necesarios para tomar acuerdos y su firmeza. Los acuerdos se tomarán por mayoría simple de votos de los presentes; excepto que por ley o reglamento se requiera de mayoría calificada, es decir al menos cinco votos afirmativos.
+Ningún miembro de la Junta puede abstenerse de votar. Los votos disidentes, se harán constar en actas. Los miembros del órgano colegiado podrán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos que lo justifiquen, quedando en tal caso exentos de las responsabilidades que, en su caso, pudieren derivarse de los acuerdos.
+Cuando al decidir algún asunto, resultare la votación empatada, quien esté fungiendo como Presidente ejercerá voto de calidad, únicamente para desempatar la votación.
+Los miembros de la Junta deberán excusarse de participar, retirándose de la sesión, en la deliberación y resolución de asuntos donde se presente un conflicto de intereses, según se establece en los artículos 4º, 5º y 6º de este reglamento.
+Las otras causales de excusa, las de abstención y de recusación, se regirán por lo dispuesto en la Ley General de la Administración Pública.
+Los acuerdos adoptados quedarán firmes al momento de aprobarse el acta de la sesión de que se trate, salvo que por motivos de urgencia y por cinco votos de la totalidad de los miembros de la Junta, se decida adoptarlos en firme.

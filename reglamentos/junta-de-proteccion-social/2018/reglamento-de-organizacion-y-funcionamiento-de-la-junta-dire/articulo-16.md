@@ -1,0 +1,3 @@
+Artículo 16.—Conducción de las sesiones de Junta. El Presidente de la Junta dirigirá las sesiones.
+El orden del día de cada sesión se aprobará por mayoría simple de los miembros presentes, al inicio de la respectiva sesión.
+El Presidente podrá establecer límites de tiempos para la discusión de cada tema, incluyendo el tiempo suficiente y razonable para la presentación del tema, la intervención de los directores y las aclaraciones que se soliciten a los asesores. Al finalizar el tiempo asignado, el Presidente pondrá a votación el asunto de que se trate, a menos que, por mayoría simple de los miembros presentes, se decida una prórroga o posposición para continuar su análisis y discusión en la próxima sesión.

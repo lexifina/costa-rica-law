@@ -1,0 +1,2 @@
+Artículo 11.—Frecuencia y lugar de las sesiones. Se sesionará ordinariamente, una vez por semana, el día y a la hora que la Junta acuerde.
+Se sesionará extraordinariamente, cada vez que sea convocada por el Presidente o cuando así lo soliciten a éste dos o más miembros. En tales casos, deberá expresarse el motivo de la sesión y en ella no podrán ser conocidos otros asuntos a los expresamente citados en la convocatoria. Las sesiones se celebrarán en las oficinas centrales de la Institución, salvo que el Presidente disponga otra cosa, por razones debidamente justificadas.

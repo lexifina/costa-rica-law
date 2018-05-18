@@ -1,0 +1,2 @@
+Artículo 23.—Recurso de revisión contra acuerdos de la Junta. Los miembros de la Junta podrán interponer recurso de revisión en contra de los acuerdos tomados por el órgano colegiado. Este recurso deberá ser planteado a más tardar al discutirse el acta. El recurso será resuelto al conocerse el acta de esa sesión, a menos que, por tratarse de un asunto que el Presidente juzgue urgente, prefiera conocerlo en sesión extraordinaria.
+Las simples observaciones de forma, relativas a la redacción de los acuerdos, no serán consideradas como recursos de revisión.

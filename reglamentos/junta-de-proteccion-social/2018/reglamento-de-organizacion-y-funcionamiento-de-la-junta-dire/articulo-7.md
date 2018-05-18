@@ -1,0 +1,3 @@
+Artículo 7º—De los Directores. Tendrán las funciones que les encomiende expresamente la Junta y, las que en general, le correspondan en razón de su cargo, por mandato de ley o conforme
+a los reglamentos respectivos.
+Tendrán la obligación de comunicar al Presidente de Junta, cualquier situación de la que se pueda derivar un conflicto de intereses y abstenerse de participar en la deliberación correspondiente. Esto incluye las relaciones directas o indirectas con otros miembros, con proveedores, clientes o con cualquier otro grupo de interés, de las cuales puedan derivarse situaciones de conflicto de intereses o influir en la dirección de su opinión o voto.

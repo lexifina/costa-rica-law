@@ -1,0 +1,1 @@
+Artículo 21.—Del libro de actas y su legalización. Las actas estarán debidamente foliadas, consecutiva y ascendentemente y se empastarán en forma de libro, el que será legalizado por la Auditoría Interna de la JPS, a solicitud de la Secretaría de Actas.
