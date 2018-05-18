@@ -1,1 +1,0 @@
-Artículo 13.—Asesoría y apoyo técnico. El contralor requerirá del apoyo de las oficinas centrales y regionales de MIDEPLAN y de todos los funcionarios internos y externos que estime necesarios para dar apoyo y soporte a su labor.
