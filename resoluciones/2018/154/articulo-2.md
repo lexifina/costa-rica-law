@@ -1,0 +1,1 @@
+2º—Que los únicos dispositivos que podrán utilizar las bandas de uso libre en Costa Rica son aquellos que cumplan con las disposiciones del citado ADENDUM VII del PNAF y por ende con el proceso de homologación de equipos terminales ante la SUTEL.
