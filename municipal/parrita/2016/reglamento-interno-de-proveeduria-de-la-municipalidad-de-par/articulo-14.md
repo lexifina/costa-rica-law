@@ -1,4 +1,4 @@
-Artículo 14.— Formalización contractual. Se requerirá formalización contractual únicamente en los siguientes casos:
-1. Aquellas contrataciones que requieran de refrendo por parte de la Contraloría General de la República.
-2. Aquellas contrataciones que requieran refrendo interno y cuyo objeto corresponda a obra pública, servicios y arrendamiento, o bien cuando así se considere por parte de la Proveeduría Municipal de acuerdo al objeto para un mejor entendimiento de los deberes y obligaciones de las partes, en el entendido que para las demás contrataciones, el refrendo interno podrá brindarse sobre la orden de pedido o documento similar, siempre y cuando conste claramente la identificación del contratista, objeto, precio y plazo de entrega.
-(Así reformado mediante sesión ordinaria N° 014-2017 y publicada en La Gaceta N° 50 del 10 de marzo del 2017)
+Artículo 14.—Formalización contractual. Se requerirá formalización contractual únicamente en los siguientes casos:
+a) Aquellas contrataciones que requieran de refrendo por parte de la Contraloría General de la República.
+b) Aquellas contrataciones que requieran refrendo interno y cuyo objeto corresponda a obra pública, servicios y arrendamiento, o bien cuando así se considere por parte de la Proveeduría Municipal de acuerdo al objeto para un mejor entendimiento de los deberes y obligaciones de las partes, en el entendido que para las demás contrataciones, el refrendo interno podrá brindarse a través del Sistema Unificado de Compras Públicas en la orden de pedido o similar, siempre y cuando conste claramente la identificación del contratista, objeto, precio y plazo de entrega.
+(Así reformado en sesión N° 038 del 21 de mayo del 2018)

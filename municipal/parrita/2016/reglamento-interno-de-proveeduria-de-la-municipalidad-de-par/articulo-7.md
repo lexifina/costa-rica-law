@@ -1,6 +1,7 @@
-Artículo 7.- De la Tesorería. Corresponde a la Tesorería:
-1. Emitir las certificaciones presupuestarias que solicite la Proveeduría para iniciar un procedimiento de contratación administrativa.
-2. Recibir y custodiar las garantías de participación y cumplimiento, de lo actuado deberá emitir un recibo de la garantía recibida.
-3. Realizar la devolución de las garantías de participación y cumplimiento, previa solicitud de la Proveeduría, de lo actuado deberá emitir un recibo.
-4. Firmar las órdenes de compra con el fin de acreditar la existencia de contenido económico.
-5. Realizar los pagos respectivos a los proveedores de bienes y servicios posterior el recibido a satisfacción de los mismos, previa solicitud de la Proveeduría.
+Artículo 7º—De la tesorería. Corresponde a la Tesorería:
+a) Emitir las certificaciones presupuestarias para iniciar un procedimiento de contratación administrativa.
+b) Aprobar y controlar las garantías de participación y cumplimiento, rendidas a través del Sistema Unificado de Compras Públicas.
+c) Realizar la devolución de las garantías de participación y cumplimiento, previa solicitud de la Proveeduría.
+d) Aprobar los contratos gestionados en el Sistema Unificado de Compras Públicas con el fin de acreditar la existencia de contenido económico.
+e) Realizar los pagos respectivos a los proveedores de bienes y servicios posterior el recibido a satisfacción de los mismos, previa solicitud de la Proveeduría.
+(Así reformado en sesión N° 038 del 21 de mayo del 2018)
