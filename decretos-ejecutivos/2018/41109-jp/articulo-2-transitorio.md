@@ -1,0 +1,1 @@
+Transitorio II.- El cargo de viceministro (a) de Gestión Estratégica será ejercido como recargo por el (la) Oficial Mayor hasta que se cuente con la plaza de viceministro. La organización que por esta vía se establece no supondrá incremento en el gasto público pues se redistribuirán los recursos materiales y humanos existentes.

@@ -1,0 +1,9 @@
+SECCIÓN I
+PROCESO DE GESTIÓN DE LA COOPERACIÓN
+Artículo 133.- Funciones del Proceso de Gestión de la Cooperación. El Proceso de Gestión de la Cooperación tiene las siguientes funciones:
+1. Hacer una búsqueda y acercamientos constantes con diversas partes interesadas con el objetivo de establecer y formalizar alianzas y convenios los cuales permitan potenciar oportunidades de crecimiento institucional, así como su debido seguimiento y el mantenimiento de una base con la información actualizada de los resultados de la gestión; y
+2. Trabajar las fuentes de cooperación que a continuación se detallan:
+a) Enlaces interinstitucionales y redes de apoyo: centraliza las funciones de coordinación ligadas a la atención a las personas privadas de libertad y egresadas del sistema en la Unidad de Inserción Social, para lo cual se coordina con instituciones públicas que podrían desarrollar acciones de apoyo, tales como el Instituto Mixto de Ayuda Social, Instituto Nacional de Aprendizaje, Ministerio de Educación Pública.
+b) Cooperación nacional: canalizar la cooperación técnica, económica y gestión de conocimiento cuyo objetivo sea beneficiar a la población meta.
+c) Cooperación internacional: organizar la cooperación internacional bajo la Unidad de Inserción Social, lo cual permitirá maximizar los beneficios y oportunidades a nivel internacional, sea mediante embajadas, programas regionales de cooperación y fundaciones.
+d) Responsabilidad social empresarial: coordinar esfuerzos con las cámaras empresariales principalmente para que las personas beneficiarias de la Unidad de Inserción Social, sean tomadas en cuenta en las oficinas o departamentos de responsabilidad social empresarial de sus empresas afiliadas, mediante programas en los cuales la población meta sea considerada para opciones laborales.

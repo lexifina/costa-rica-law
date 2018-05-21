@@ -1,0 +1,1 @@
+Artículo 2.- Funciones del ministro (a) de Justicia y Paz. Le corresponde exclusivamente al ministro (a) de Justicia y Paz el ejercicio de las potestades previstas en el artículo 28 de la Ley N°6227 del 02 de mayo de 1978, Ley General de la Administración Pública, y cualquier otra que el ordenamiento jurídico establezca.

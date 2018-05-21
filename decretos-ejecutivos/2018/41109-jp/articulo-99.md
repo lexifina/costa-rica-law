@@ -1,0 +1,4 @@
+CAPÍTULO V
+DEPARTAMENTO TÉCNICO
+Artículo 99.- Departamento Técnico. El Departamento Técnico depende jerárquicamente de la Dirección General de Adaptación Social y es la instancia de dirección y coordinación de la acción técnico institucional.
+Para brindar los servicios en los diferentes procesos orientados al cumplimiento de los fines legalmente asignados a la Dirección General de Adaptación Social y al Instituto Nacional de Criminología, relacionados con la ejecución de las penas y las medidas privativas de libertad, lo integran las siguientes secciones en Derecho, Educación, Investigación y Estadística, Orientación, Psicología, Salud, Trabajo Social y cualquier otra que en el futuro sea necesario agregar, previa recomendación del Instituto Nacional de Criminología y del Director General de Adaptación Social.

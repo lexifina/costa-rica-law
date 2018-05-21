@@ -1,0 +1,1 @@
+Transitorio I.- Se otorga un plazo de seis meses a partir de la entrada en vigencia del presente reglamento para que las unidades organizacionales actualicen los manuales de procedimientos que se contrapongan en todo o en parte con las presentes disposiciones.

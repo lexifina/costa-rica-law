@@ -1,0 +1,1 @@
+Artículo 138.- Proceso de la Dirección de la Policía Penitenciaria. La Dirección de la Policía Penitenciaria cuenta con un Proceso de Atención Psicológica, cuya competencia es la atención del personal policial que requiera tratamiento preventivo y atención por situaciones derivadas del quehacer en los centros penitenciarios.

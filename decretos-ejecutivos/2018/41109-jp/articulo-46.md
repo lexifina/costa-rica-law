@@ -1,0 +1,1 @@
+Artículo 46.- Proceso de la Dirección de Espectáculos Públicos, Materiales Audiovisuales e Impresos. La Dirección de Espectáculos Públicos Materiales Audiovisuales e Impresos cuenta con un proceso de trabajo denominado: Gestión Social de Espectáculos Públicos, Materiales Audiovisuales e Impresos.

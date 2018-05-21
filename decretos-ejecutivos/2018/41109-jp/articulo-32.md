@@ -1,0 +1,12 @@
+CAPÍTULO II
+DIRECCIÓN GENERAL DE PROMOCIÓN DE LA PAZ
+Y LA CONVIVENCIA CIUDADANA
+Artículo 32.- Funciones de la Dirección General de Promoción de la Paz y la Convivencia Ciudadana. La Dirección General de Promoción de la Paz y la Convivencia Ciudadana tiene las siguientes funciones:
+1. Establecer una relación de coordinación y retroalimentación con el Consejo Nacional de Prevención de la Violencia y el Delito, aportando un enfoque especializado, que permita la definición de políticas nacionales en la materia de su competencia;
+2. Operacionalizar y ejecutar recomendaciones emanadas por parte del Consejo Nacional de Prevención de la Violencia y el Delito;
+3. Establecer estrategias de coordinación con entidades gubernamentales, no gubernamentales y organizaciones comunitarias, a nivel interinstitucional, intersectorial e interdisciplinario, con la finalidad de desarrollar proyectos preventivos en y con las comunidades, dirigidos con especial énfasis a la prevención de formas de violencia por razones de género y condición etaria que afectan a los niños (as) y adolescentes;
+4. Promover la investigación como un instrumento a partir del cual se identifiquen necesidades y problemáticas, relacionadas con distintas manifestaciones de violencia y delito, que permitan orientar las acciones y el diseño de proyectos en materia de prevención integral;
+5. Ejecutar y dar seguimiento a convenios de cooperación en materia de prevención de la violencia y el delito, suscritos con organismos nacionales e internacionales;
+6. Diseñar y ejecutar campañas de información, divulgación y promoción, y proyectos formativos a nivel local y nacional dirigidos a sensibilizar y concientizar a la sociedad, con respecto a los patrones socioculturales que promueven diferentes manifestaciones de violencia, frente a alternativas de relaciones sociales e interpersonales que fomenten la dignidad, la igualdad, la defensa de la vida, el respeto, la tolerancia a la diferencia, la justicia y la libertad;
+7. Promover el análisis y divulgación de la legislación vigente, con miras a detectar su congruencia con la realidad social, o bien limitaciones y vacíos en su aplicación, con el fin de proponer reformas y nueva legislación cuando así se considere conveniente; y
+8. Constituirse como una instancia de asesoría y capacitación especializada en relación con la prevención de distintas manifestaciones de violencia, dirigida a estudiantes, profesionales y personas en general que la requieran.

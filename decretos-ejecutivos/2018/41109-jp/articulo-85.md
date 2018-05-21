@@ -1,0 +1,1 @@
+Artículo 85.- Funciones de la Subdirección General de Adaptación Social. La Subdirección General de Adaptación Social depende jerárquicamente de la Dirección General de Adaptación Social y tiene las funciones que esta le delegue.
