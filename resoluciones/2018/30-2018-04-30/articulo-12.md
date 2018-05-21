@@ -1,0 +1,1 @@
+Artículo 12°—Control de saldos: El beneficiario deberá llevar el debido control de los saldos pendientes de bienes exentos autorizados mediante la presente resolución, y evitar que se excedan las compras de las cantidades autorizadas, durante la vigencia de la misma, para no incumplir con lo autorizado.
