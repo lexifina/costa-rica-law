@@ -1,0 +1,1 @@
+Artículo 10.—Otorgamiento de Grado Policial. El Presidente de la República y el Ministro de la Presidencia mediante Acuerdo Ejecutivo otorgarán el grado policial correspondiente a los servidores de la UEI y la DIS que así se determine, previa recomendación de la Dirección General de la DIS o la UEI.

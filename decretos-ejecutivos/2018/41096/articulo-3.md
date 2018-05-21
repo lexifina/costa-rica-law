@@ -1,0 +1,1 @@
+Artículo 3º—Registro de grados policiales. La DIS y la UEI deberán llevar un registro con los grados policiales de sus respectivos funcionarios, detallando los datos completos del servidor y la fecha de otorgamiento del grado policial.

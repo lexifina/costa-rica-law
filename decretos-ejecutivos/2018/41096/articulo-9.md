@@ -1,0 +1,1 @@
+Artículo 9º—Tramitación ante la Dirección General. La Dirección General de la UEI o la DIS, según corresponda, tramitará las solicitudes de asignación de grados policiales. Para ello, verificará el cumplimiento de los requisitos señalados en este reglamento y realizará una recomendación al Ministerio de la Presidencia.
