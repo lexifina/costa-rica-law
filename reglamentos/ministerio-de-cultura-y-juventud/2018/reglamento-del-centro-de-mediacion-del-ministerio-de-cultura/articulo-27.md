@@ -1,0 +1,3 @@
+Artículo 27.- Solicitud e inicio del proceso. La apertura del trámite de mediación será dispuesta por el Director o Coordinador del Centro, a solicitud de la parte interesada, quien deberá enviar un correo electrónico a la dirección centrorac@mcj.go.cr expresando su interés en el proceso o presentándose personalmente con el Director o Coordinador del Centro para llenar el formulario que se le proporcionará para tal efecto.
+Si el tema es susceptible de conciliación, las otras partes serán convocadas por el encargado de la reunión preliminar (filtro), para participar en el proceso.
+Si una de las partes rechaza su participación, no se desarrollará el procedimiento de mediación.

@@ -1,0 +1,2 @@
+Artículo 7.- Admisibilidad y conciliabilidad. Antes de aprobar la apertura y trámite de un proceso de mediación y/o Círculos de diálogo, se deberá realizar una evaluación de admisibilidad y conciliabilidad, que analizará los aspectos técnicos-jurídicos que permiten o imposibiliten que el procedimiento se lleve a cabo en el Centro.
+En la conciliabilidad se evaluará la presencia de los aspectos psicosociales que puedan impedir la realización del proceso, por ejemplo, si existe cohesión en la participación, violencia, desequilibro de poder entre las partes.

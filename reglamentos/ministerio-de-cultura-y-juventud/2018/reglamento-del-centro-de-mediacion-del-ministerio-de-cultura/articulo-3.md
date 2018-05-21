@@ -1,0 +1,1 @@
+Artículo 3.- Naturaleza del proceso de mediación. La mediación es un medio voluntario, alternativo, auxiliar y complementario de la función jurisdiccional y administrativa y no sustituye la prestación del servicio de los órganos jurisdiccionales.

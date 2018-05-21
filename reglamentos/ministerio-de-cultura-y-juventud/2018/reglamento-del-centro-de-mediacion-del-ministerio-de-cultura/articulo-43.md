@@ -1,0 +1,3 @@
+Artículo 43.- Política institucional de no discriminación. El Ministerio de Cultura y Juventud como entidad gubernamental de carácter pluralista y respetuoso de la diversidad, garantizará que en la aplicación del presente reglamento y todos los procesos que implica, los funcionarios responsables actuarán imparcialmente, sin tomar en consideración razones de etnia, raza, edad, religión, afiliación política, ideología, nacionalidad, género, orientación sexual o identidad de género o cualquier otra condición social o personal de los participantes.
+Rige a partir de su publicación.
+San José, a los 23 días del mes de abril de 2018.

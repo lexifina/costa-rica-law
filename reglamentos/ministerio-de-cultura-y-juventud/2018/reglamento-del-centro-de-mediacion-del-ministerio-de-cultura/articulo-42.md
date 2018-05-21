@@ -1,0 +1,1 @@
+Artículo 42.- Normativa supletoria. A falta de disposiciones específicas aplicables a las situaciones acontecidas con ocasión de la entrada en vigencia de este reglamento, se aplicarán supletoriamente las leyes especiales que regulan la materia y sus respectivos reglamentos.

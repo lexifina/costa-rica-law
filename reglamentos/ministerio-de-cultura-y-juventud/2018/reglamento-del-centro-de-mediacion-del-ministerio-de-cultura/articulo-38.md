@@ -1,0 +1,1 @@
+Artículo 38.- Validez del acuerdo. El acuerdo tendrá total validez ante las partes y el Ministerio. En el caso de los acuerdos consensuados de los Círculos de diálogo se incumplan, cualquiera de las partes que así lo considere necesario, podrá recurrir tanto al Centro RAC-MCJ o a la sede administrativa respectiva.

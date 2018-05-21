@@ -1,0 +1,9 @@
+Artículo 12.- Consejo Directivo. El Consejo Directivo está integrado de la siguiente forma:
+a. El Viceministro Administrativo y/o su suplente, quien ocupará la presidencia del Consejo Directivo.
+b. El Gestor o Gestora Institucional de Recursos Humanos y/o su suplente.
+c. El Director o Coordinador del Centro, que será designado por el Viceministro Administrativo, siguiendo los procedimientos ordinarios de la institución, según los lineamientos del Departamento de Gestión Institucional de Recursos Humanos.
+d. Un representante de Gestores de Paz, que será designado por la Asamblea de Gestores de Paz en la forma descrita en el presente reglamento.
+Para sesionar, se tendrá quórum con la presencia de al menos 3 integrantes del Consejo Directivo. A efectos de garantizar el quórum de sus sesiones, tanto el Viceministro Administrativo, el Director o Coordinador del Centro como el representante de los Gestores de Paz, deberán contar con un suplente, que serán designados de la misma manera y con los mismos requisitos que los titulares. En ausencia del titular de cada puesto, asumirá su rol el respectivo suplente.
+Tanto los miembros titulares como los suplentes tendrán voz. Únicamente los miembros titulares tendrán voto. Los miembros suplentes tendrán voto solo si les corresponde asumir el rol en ausencia del titular o si el titular es recusado o se inhibe de participar en una votación por motivo debidamente fundamentado.
+En caso de empate en las decisiones, quien ocupe el puesto de Viceministro Administrativo tendrá doble voto.
+Cada vez que haya cambio de quien ocupe el puesto de Viceministro Administrativo, se definirá el rol de Secretario del Consejo Directivo en la primera sesión inmediata siguiente. Labor que podrá ser designada a cualquier integrante del Consejo, que no sea el Viceministro Administrativo.

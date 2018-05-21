@@ -1,0 +1,3 @@
+CAPÍTULO VI.
+DISPOSICIONES FINALES
+Artículo 41.- Régimen sancionatorio. El incumplimiento de las disposiciones contenidas en este Reglamento por parte de cualquiera de los funcionarios que intervienen en los procesos que se establecen en el presente reglamento, será sancionada de conformidad con lo dispuesto por el Decreto Ejecutivo No. 33270-C del 2 de junio de 2006, Reglamento Autónomo de Servicios del Ministerio de Cultura, Juventud y Deportes (ahora de Cultura y Juventud) y sus reformas; sin perjuicio de cualquier otro tipo de responsabilidad que le sea adjudicable al funcionario que viole la norma, en otras sedes administrativas o judiciales.
