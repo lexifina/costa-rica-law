@@ -70,7 +70,8 @@ III- Requerir a los prestadores de servicios públicos definidos en el Por Tanto
 IV- Requerir a los prestadores de servicios públicos definidos en el Por Tanto I anterior, que toda modificación a los usuarios designados por primera vez o autorización de usuarios nuevos deberá ser presentada mediante el Anexo I “Formulario de autorización de usuarios” sin excepción.
 V- Establecer que los prestadores de servicios públicos deberán actualizar y/o validar por primera vez la información del Sistema de Información Regulatoria como máximo en las siguientes fechas:
 a) Módulo General: 30 de setiembre 2017
-b) Módulo Específico: 31 de diciembre 2017
+b) Módulo Específico: 31 de agosto del 2018
+(Prorrogada la vigencia del plazo para el Módulo Específico del inciso anterior mediante resolución N° RIE-046-2018 del 22 de mayo del 2018)
 VI- Posterior a la actualización y/o validación por primera vez, los prestadores de servicios públicos deberán ingresar y/o actualizar la información del Módulo General y Módulo Específico periódicamente según sea requerido por el sistema Es responsabilidad de los prestadores velar porque su información se mantenga actualizada.
 VII- La información periódica que la Intendencia de Energía establezca, correspondiente al Módulo Ingreso de Información será recibida únicamente por medio del Sistema de Información Regulatoria de conformidad con los lineamientos, periodicidad, instrucciones así como la estructura que al efecto se defina.
 VIII- Comunicar la presente resolución a la Cámara de Empresarios de Combustible, a la Asociación Costarricense de Productores de Energía (Acope) y la Asociación de Transportistas del Sector Energético (Atranse).

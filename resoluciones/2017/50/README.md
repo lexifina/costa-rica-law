@@ -14,3 +14,4 @@ Implementación del Sistema de información regulatoria (SIR) para las empresas 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-05-26 | la propia norma |
+| 2 | 2018-05-22 | Resolución 46 (2018-05-22) |
