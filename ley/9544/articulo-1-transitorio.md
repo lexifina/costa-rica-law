@@ -1,0 +1,2 @@
+DISPOSICIONES TRANSITORIAS
+TRANSITORIO I- La Junta Administradora del Fondo de Jubilaciones y Pensiones del Poder Judicial deberá estar integrada en un plazo no mayor a seis meses, contados a partir de la entrada en vigencia de esta ley. En tanto se Integre la Junta Administradora, el Consejo Superior del Poder Judicial continuará ejerciendo las atribuciones a que se refieren los incisos 12, 13, 14 y 15 del artículo 81 de la Ley N.º 7333, Ley Orgánica del Poder Judicial, de 5 de mayo de 1993, y sus reformas.
