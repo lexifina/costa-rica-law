@@ -1,2 +1,4 @@
-Artículo 4 Desinscripción
+Artículo 4. Desinscripción
 Cuando en virtud de las normas de determinación del tributo, el interesado deje de ser sujeto pasivo de este impuesto, deberá solicitar su desinscripción mediante el proceso de petición establecido en el artículo 102 del Código de Normas y Procedimientos Tributarios, exponiendo con precisión las razones en las que se fundamenta su solicitud. La Administración Tributaria conocerá la petición y resolverá lo que corresponda.
+La solicitudes de desinscripción que se refieran a los supuestos sobre daños provocados por fuerza mayor o caso fortuito y en cualquier otro supuesto que cause la disminución del valor del bien inmueble de uso habitacional, se tramitarán según el procedimiento establecido mediante resolución general.
+(Así reformado por el artículo 3° de la resolución N° DGT-R-023-2018 del 22 de mayo del 2018 “Trámite de las solicitudes de desinscripción por variación en el valor del bien inmueble de uso habitacional del impuesto solidario para el fortalecimiento de programas de vivienda”)
