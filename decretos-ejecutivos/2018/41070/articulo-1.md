@@ -1,0 +1,21 @@
+N° 41070-MCJ
+EL PRESIDENTE DE LA REPÚBLICA,
+Y LA MINISTRA DE CULTURA Y JUVENTUD
+Con fundamento en lo dispuesto en los artículos 140, incisos 3), 8), 18), y 20) y 146 de la Constitución Política; artículos 11, 25 inciso 1, 27 inciso 1. 28 acápite 2 inciso b) de la Ley General de la Administración Pública, Ley N° 6227 del 02 de mayo de 1978; artículo 2, Ley de Creación del Ministerio de Cultura, Juventud y Deporte, Ley N° 4788 del 05 de julio de 1971; la Ley de Creación del Museo de Guanacaste, Ley N° 8543 del 27 de setiembre del 2006; el Reglamento Autónomo de Servicio del Museo Nacional de Costa Rica, Decreto Ejecutivo N° 35739-C del 14 de diciembre del 2009; el Decreto de Contingencia Fiscal, Decreto Ejecutivo N° 40540-H del 01 de agosto del 2017; y la Política Nacional de Derechos Culturales 2014-2023, Decreto Ejecutivo N° 38120 del 17 de diciembre del 2013;
+Considerando:
+I.—Que Costa Rica es una república multiétnica y pluricultural, y en consonancia con los numerales 1, 76, 83 y 89 de la Constitución Política, el Estado debe velar por la preparación cultural de sus habitantes, proteger, conservar y desarrollar el patrimonio histórico y artístico de la nación.
+II.—Que el Decreto Ejecutivo N° 23164 del 08 de abril de 1994 creó el “Museo Regional Guanacaste Daniel Oduber (Museo de Arte Chorotega), y posteriormente fue derogado por el Decreto Ejecutivo N° 32531 del 09 de marzo del 2005, el cual lo transformó en el “Museo de Guanacaste”, con el propósito de estimular la identidad de los habitantes de la región, mediante la investigación, promoción, difusión y conservación del patrimonio cultural y natural de la provincia de Guanacaste.
+III.—Que la Ley de Creación del Museo de Guanacaste, Ley N° 8543 del 27 de setiembre del 2006, refuerza los fines del Decreto Ejecutivo N232531 e instituye el Museo como una dependencia de la Municipalidad de Liberia y autoriza a la Asociación Administradora del Museo de Guanacaste a administrar el Museo de Guanacaste.
+IV.—Que de conformidad con el artículo 4° de la Ley N° 8543, el Museo de Guanacaste impulsa la preservación del patrimonio cultural y natural, la educación, investigación, turismo, difusión y promoción sobre la riqueza cultural, histórica y etnográfica de Guanacaste y la Región Sur de la Gran Nicoya, estimulando en sus habitantes valores de respeto e identidad a la cultura autóctona.
+V.—Que la Política Nacional de Derechos Culturales 2014- 2023, Decreto Ejecutivo N° 38120 del 17 de diciembre del 2013, pretende que las personas, grupos y comunidades ejerzan sus derechos culturales, participando de manera activa en la vida cultural de país ya nivel regional.
+VI.—Que el Plan Nacional de Desarrollo, establece en su artículo 5, distintos ejes de acción, siendo el Eje Estratégico 3: “La protección y gestión del patrimonio cultural material e inmaterial mediante la revitalización del patrimonio cultural material e inmaterial, el fomento de la participación ciudadana en la protección y gestión del patrimonio, el fortalecimiento y articulación entre los centros de información y las entidades dedicadas a la protección del patrimonio cultural, la relación entre patrimonio cultural y patrimonio natural, y la promoción de acciones enfocadas a asegurar la protección y gestión participativa del patrimonio cultural, material e inmaterial para el fortalecimiento de las identidades y el bienestar integral de las personas, grupos y comunidades en todo el país.
+VII.—Que a efectos de potenciar el desarrollo y conservación del patrimonio del Museo de Guanacaste y potenciar sus funciones, es necesario impulsar un plan estratégico, apoyado por recursos y acciones de instituciones del sector público y privado.
+VIII.—Que el artículo 5 del Decreto Ejecutivo N° 40540, Decreto de Contingencia Fiscal, establece una moratoria para la declaratoria de interés público o interés cultural, que impliquen el otorgamiento de beneficios fiscales tales como exoneraciones o cualquier otro beneficio fiscal. Por tanto,
+Decretan:
+DECLARATORIA DE INTERÉS PÚBLICO DEL PLAN
+ESTRATÉGICO PARA EL MUSEO DE GUANACASTE
+PARA EL QUINQUENIO 2016-2021 Y SU
+ACTUALIZACIÓN PARA EL
+QUINQUENIO
+2017-2022
+Artículo 1°—Se declaran de interés público el Plan Estratégico para el Museo de Guanacaste para el quinquenio 2016-2021 y su actualización para el quinquenio 2017-2022, anexos a este decreto.
