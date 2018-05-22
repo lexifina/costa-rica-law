@@ -1,0 +1,1 @@
+Artículo 2º—Asimismo se insta a los Jerarcas de la administración central y descentralizada, para que informen a sus funcionarios respecto a la importancia de este instrumento, promoviendo y facilitando la implementación del mismo en los casos donde funja como herramienta para promover establecer y facilitar un proceso de diálogo según los parámetros y alcances del mismo.
