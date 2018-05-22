@@ -1,0 +1,24 @@
+N° 41072-C-MP
+EL PRESIDENTE DE LA REPÚBLICA
+Y LOS MINISTROS DE LA PRESIDENCIA
+Y DE CULTURA Y JUVENTUD
+En uso de las atribuciones que les confieren los artículos 140 incisos 3), 8) y 18), y 146 de la Constitución Política, 25.1 y 28.2 b) de la Ley General de la Administración Pública, Ley N° 6227 del 2 de mayo de 1978; el Estatuto de Servicio Civil, Ley N°. 1581 del 30 de mayo de 1953, y su Reglamento, Decreto Ejecutivo N° 21 del 14 de diciembre de 1954; la Integración del Régimen Artístico al Estatuto de Servicio Civil, Ley N° 8555 del 10 de octubre de 2006 y su Reglamento, Decreto Ejecutivo N° 34971-MP del 8 de diciembre de 2008; y, Considerando:
+I.—Que el artículo 191 de la Constitución Política señala que “Un estatuto de servicio civil regulará las relaciones entre el Estado y los servidores públicos, con el propósito de garantizar la eficiencia de la Administración.”
+II.—Que para el cumplimiento del mandato constitucional antes señalado, se dictó el Estatuto de Servicio Civil, mediante Ley N° 1581 del 30 de mayo de 1953, por medio del cual se le otorgan diversas competencias al Director General de Servicio Civil, como la de vigilar el cumplimiento de las disposiciones del Estatuto y su Reglamento, en resguardo de la eficiencia de la Administración Pública y de los intereses del Estado.
+III.—Que mediante la Ley Nº 8555 del 10 de octubre del 2006, se adicionó el Título IV “Del Régimen Artístico” al Estatuto de Servicio Civil, Ley N° 1581 del 30 de mayo de 1953, integrando bajo el Régimen de Servicio Civil a todas las personas servidoras del Poder Ejecutivo que presten servicios artísticos en las disciplinas de las artes audiovisuales, escénicas, literarias, musicales, plásticas y sus combinaciones.
+IV.—Que mediante el Decreto Ejecutivo N° 34971-MP del 8 de diciembre de 2008, se emitió el Reglamento del Título IV del Estatuto de Servicio Civil, que corresponde a la reglamentación de la Ley N° 8555 del 10 de octubre de 2006.
+V.—Que mediante el Decreto Ejecutivo N° 38807-C-MP del 27 de noviembre de 2014, se adicionó un Transitorio V al Decreto Ejecutivo N° 34971-MP del 8 de diciembre de 2008, Reglamento del Título IV del Estatuto de Servicio Civil.
+VI.—Que dentro de los fines que dispone el artículo 210 de la Ley N° 8555, se encuentran dignificar a las personas artistas como servidoras públicas y promover un sistema de remuneración justo y competitivo, en pro de la carrera de las personas artistas, disponiendo en el numeral 222 que estas personas servidoras, a nivel de responsabilidades, derechos y deberes tendrán el mismo tratamiento que reciben las personas servidoras de otros campos de conocimiento.
+VII.—Que la adición del Transitorio V al Decreto Ejecutivo N°. 34971-MP del 8 de diciembre de 2008, Reglamento del Título IV del Estatuto de Servicio Civil, mediante el Decreto Ejecutivo N°. 38807-C-MP del 27 de noviembre de 2014, ha resultado insuficiente para amortiguar el tránsito de puestos entre el Título I y el Título IV del Estatuto de Servicio Civil, exponiendo innecesariamente a la Administración a riesgos inconvenientes y a las personas servidoras artistas a incertidumbres injustificadas en sus relaciones de servicio y en sus derechos, contrarios al espíritu y fines de la Ley N° 8555.
+VIII.—Que el Ministerio de Cultura y Juventud en coordinación con la Dirección General de Servicio Civil, se encuentran actualmente en un proceso de revisión de la implementación de la Ley N° 8555 del 10 de octubre de 2006, con el propósito de desarrollar las mejores prácticas para agilizar la producción de instrumentos técnicos y procedimientos simples y expeditos que logren cumplir con la voluntad legislativa.
+IX.—Que de conformidad con la Ley Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Ley N° 8220 del 4 de marzo de 2002 y el artículo 12 del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo N° 37045-MEIC del 22 de febrero de 2012, se determina que la presente regulación no establece ni modifica trámites, requisitos o procedimientos que la persona administrada debe cumplir ante la Administración Central.
+Por tanto,
+Decretan:
+Adición de un párrafo final al transitorio V
+del reglamento del título IV del Estatuto
+de Servicio Civil, decreto ejecutivo N° 34971
+del 8 de diciembre de 2008
+Artículo 1º—Adiciónese un párrafo final al Transitorio V del Decreto Ejecutivo N° 34971-MP del 8 de diciembre de 2008, Reglamento del Título IV del Estatuto de Servicio Civil, para que en lo sucesivo, se lea así:
+“Transitorio V:
+( … )
+A fin de no generar distorsiones salariales en idénticas condiciones de eficiencia, la eficacia de la ubicación de los puestos en la estructura ocupacional del Régimen Artístico se mantendrá suspendida desde el mismo momento del estudio individual de cada puesto, hasta que se eliminen esas posibles distorsiones.”
