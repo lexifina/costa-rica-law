@@ -14,3 +14,4 @@ Requisitos para el trámite de constancia de camino público y alineamiento vial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-10-03 | la propia norma |
+| 2 | 2018-05-22 | Acuerdo municipal 3 (2018-05-22) |

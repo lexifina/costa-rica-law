@@ -1,11 +1,15 @@
 MUNICIPALIDAD DE AGUIRRE
 UNIDAD TÉCNICA DE GESTIÓN VIAL
 INFORMA
-Requisitos para el trámite de constancia de camino público y alineamiento vial:
-1. Llenar el Formulario “Solicitud de Alineamiento” o “Solicitud de calle Pública”, debidamente completa y firmada.
-2. Estar inscrita la propiedad en Bienes Inmuebles, al día en el pago de impuestos y servicios Municipales.
-3. Encontrarse al día con obligaciones CCSS.
-4. Plano original o copia certificada en tamaño legible.
-5. 3 Copias del plano a escala, al menos una se mantendrá en el expediente (no se permitirán reducciones de plano).
-6. Copia de la cédula.
-3 de setiembre de 2013.—
+Requisitos Formulario Constancia de Calle
+1. Llenar debidamente este formulario y firmado.
+2. Estar inscrita la propiedad en Bienes Inmuebles, al día en el pago de Tributos y Servicios Municipales.
+3. Encontrarse al día con obligaciones CCSS. (Municipalidad hace la consulta)
+4. Una copia de plano colindante a la calle de interés, debe ser en tamaño legible.
+Requisitos Formulario de Alineamiento Vial
+1) Estar al día en las Declaraciones de Bienes Inmuebles e Tributos y Servicios Municipales.
+2) Planos Originales o en su efecto certificación del mismo en tamaño legible.
+3) Una fotocopia del plano a escala (legible)
+4) Encontrarse al día con obligaciones CCSS. (se consulta en línea por parte de la Municipalidad).
+5) Llenar debidamente este formulario y firmado.
+(Así reformado mediante sesión N° 202-2018 del 22 de mayo de 2018)
