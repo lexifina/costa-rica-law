@@ -1,0 +1,1 @@
+TRANSITORIO III- El reglamento general del Régimen de Jubilaciones y Pensiones del Poder Judicial deberá dictarse en un plazo no mayor a nueve meses, contado a partir de la entrada en vigencia de esta ley.

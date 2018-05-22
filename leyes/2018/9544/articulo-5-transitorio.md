@@ -1,0 +1,1 @@
+TRANSITORIO V- Las operaciones de crédito con recursos del Fondo de Jubilaciones y Pensiones del Poder Judicial que hayan sido acordadas por el Consejo Superior con anterioridad a esta ley, se mantendrán en vigencia hasta su vencimiento, y no serán susceptibles de renovación.

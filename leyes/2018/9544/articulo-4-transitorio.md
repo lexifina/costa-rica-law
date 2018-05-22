@@ -1,0 +1,1 @@
+TRANSITORIO IV- Continuarán formando parte del Fondo de Jubilaciones y Pensiones del Poder Judicial los recursos por concepto de cotización obrera, patronal y del Estado que a la fecha de entrada en vigencia estén siendo administrados por el Consejo Superior del Poder Judicial, así como los rendimientos y demás beneficios que estos hayan producido.
