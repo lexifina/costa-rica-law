@@ -1,0 +1,1 @@
+Artículo 10. —Se constituye la Comisión de Donaciones de la Presidencia de la República y del Ministerio de la Presidencia, para que esté integrada por los funcionarios que ocupen los cargos de Director(a) General, Proveedor(a) Institucional; y Encargado(a) de Control de Activos. Dicha comisión en sus funciones será asesorada por la Dirección Jurídica.

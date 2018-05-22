@@ -1,0 +1,1 @@
+Artículo 6º—Durante las ausencias temporales del Director (a) General, se delega la firma de los actos descritos en el artículo 4 anterior, en algún sustituto que ocupe el cargo en condición de Director(a) General ad interim para esos lapsos.

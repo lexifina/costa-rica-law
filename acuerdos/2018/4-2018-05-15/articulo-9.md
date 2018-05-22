@@ -1,0 +1,1 @@
+Artículo 9º—Se delega en la Viceministra de Diálogo del Ministerio de la Presidencia, la aprobación de los manuales de procedimientos de las unidades organizativas que conforman la gestión presidencial y la gestión administrativa, previo visto bueno de la Dirección General.

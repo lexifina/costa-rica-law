@@ -1,0 +1,1 @@
+Artículo 8º—Durante las ausencias temporales del Proveedor (a) Institucional, se delega la firma de los actos descritos en el artículo 6 anterior, en quien ocupe el cargo de Subproveedor Institucional, con excepción de aquellos casos que no se hubiere designado algún sustituto en condición de Proveedor (a) Institucional ad interim para esos lapsos.

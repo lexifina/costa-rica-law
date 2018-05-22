@@ -1,0 +1,1 @@
+Artículo 11.—En los casos en que la Comisión de Donaciones proceda a efectuar trámites de los entes adscritos a la Presidencia de la República o al Ministerio de la Presidencia, la comisión deberá contar con un representante del ente adscrito, el que será nombrado por el Director del Programa, para que se integre a la comisión cuando proceda.
