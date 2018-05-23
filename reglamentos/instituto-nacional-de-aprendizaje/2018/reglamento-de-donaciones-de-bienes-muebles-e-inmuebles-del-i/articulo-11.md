@@ -1,0 +1,1 @@
+Artículo 11.—La aceptación. La aceptación de la donación de bienes muebles debe consignarse en el acta de entrega o instrumento público; para el caso de bienes inmuebles, mediante la escritura pública de rigor; al tenor de lo dispuesto en el artículo 1399 del Código Civil.

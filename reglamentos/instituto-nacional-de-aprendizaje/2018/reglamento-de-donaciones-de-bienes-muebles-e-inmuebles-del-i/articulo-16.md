@@ -1,0 +1,1 @@
+Artículo 16.—Vigencia: El presente Reglamento rige a partir de su publicación, y deja sin efecto el Reglamento de Donaciones de Bienes Muebles del Instituto Nacional de Aprendizaje, aprobado en la sesión ordinaria 4370, celebrada el 18 de noviembre del año 2008.
