@@ -1,0 +1,1 @@
+Artículo 6º—Coordinación de la CIEV. La Junta Directiva del ICT, designará una persona para que ejerza la coordinación de la Comisión. En su ausencia, la Comisión determinará quien presidirá y coordinará la sesión.

@@ -1,0 +1,2 @@
+Artículo 3°—Objetivo de la CIEV. Promover la ética y los valores en el servicio y desempeño de las labores del personal institucional, así como contribuir a la eficiencia en el sector público, por lo tanto le corresponde, conducir técnicamente la gestión ética en la institución con el liderazgo y responsabilidad del jerarca y los titulares subordinados y la participación de toda la administración activa.6
+6CNRV, Lineamiento No. 5.1.

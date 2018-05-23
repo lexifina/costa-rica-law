@@ -1,0 +1,3 @@
+Artículo 8º—Asistencia a las sesiones de la CIEV. La asistencia a las sesiones de la CIEV será obligatoria para los titulares que la integran, quienes sólo podrán excusarse por justa causa.
+En ausencia temporal (incapacidad, permisos, entre otros) de alguna de las personas miembro de la CIEV, ésta será sustituida por quien haya sido designado con anterioridad, en calidad de suplente, requiriendo juramentación según lo establecido en este Reglamento.
+La CIEV podrá convocar eventualmente a sus sesiones a las jefaturas o a las personas funcionarias que estime necesarias o en consideración a los asuntos a tratar, quienes tendrán voz pero no voto.
