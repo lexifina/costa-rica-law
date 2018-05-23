@@ -1,0 +1,4 @@
+CAPÍTULO VI
+PERSONA ASISTENTE PERSONAL
+ARTÍCULO 41.-Formación y capacitación de asistentes personales. La formación, capacitación y certificación de las personas asistentes personales corresponde al Instituto Nacional de Aprendizaje (INA), por lo que es su competencia definir, consignar y presupuestar los mecanismos, así como los recursos necesarios para cumplir con las obligaciones asignadas por la Ley N° 9379, en su artículo 28.
+Los deberes del INA incluyen determinar en el ámbito de sus competencias, los procesos, mecanismos y plazos para desarrollar e implementar módulos de actualización técnica, con la finalidad de reafirmar o actualizar conocimientos sobre asistencia personal humana. De lo anterior, participaran las instancias mencionadas en el artículo 27 de la Ley N° 9379 y en sus términos.

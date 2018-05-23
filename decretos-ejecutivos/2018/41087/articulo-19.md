@@ -1,0 +1,1 @@
+ARTÍCULO 19.-Especificación del escrito inicial. El dictamen médico de la Caja Costarricense del Seguro Social o de especialista tratante, para los efectos del escrito inicial referido en el artículo 33 de la Ley N° 9379, también se aceptará como procedente aquel que únicamente indique la limitación funcional.

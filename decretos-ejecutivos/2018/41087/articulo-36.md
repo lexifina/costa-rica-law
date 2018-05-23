@@ -1,0 +1,18 @@
+ARTÍCULO 36.-Trámite para solicitar la asistencia personal humana o productos y servicios de apoyo y las gestiones de la Unidad de Autonomía Personal y Vida Independiente ante la solicitud
+a) La persona con discapacidad, familiar o la persona que le brinde apoyo se presenta o envía a la Unidad de Autonomía Personal y Vida Independiente la solicitud de asistencia personal humana o de productos y servicios de apoyo.
+La Unidad, vía manual de procedimiento definirá los medios por los cuales las personas solicitantes enviarán la solicitud.
+Si la solicitud de asistencia personal humana la plantea la persona con discapacidad directamente, ésta únicamente debe incluir la certificación de la discapacidad emitida por el Servicio de Certificación de la Discapacidad del Conapdis y señalar medio para atender notificaciones.
+En los demás casos de solicitudes de asistencia a favor de personas con discapacidad, además de presentar la certificación de discapacidad y medio para atender notificaciones y, según el caso en concreto, tendrá que indicar lo siguiente:
+- En la solicitud realizada por familiar o por la persona que brinda apoyos a la persona adulta con discapacidad, manifestar claramente los motivos por los cuales la persona con discapacidad no hace la solicitud directamente.
+- En la solicitud realizada por el padre o madre o representante legal de personas menores de edad con discapacidad, señalar que la misma es en favor de persona menor de edad y señalar la edad.
+Además de lo anterior, para las solicitudes de productos y servicios de apoyo, la parte deberá así titularla e indicar el producto y servicio que solicita.
+Quien realice la solicitud lo podrá hacer por su propia cuenta; sin embargo, la Unidad tendrá a disposición fórmulas de solicitud, las cuales cumplirán con las disposiciones del presente reglamento.
+El personal de la Unidad se encuentra autorizado para apoyar a la persona solicitante a completar la fórmula de solicitud, si así lo manifiesta o requiere.
+b) Una vez recibida la solicitud la Unidad abre expediente administrativo, verifica los requisitos de los artículos 14 y 15 de la Ley N° 9379 y procede en los términos señalados por el artículo 22 del presente reglamento, sin perjuicio del cualquier otro numeral que resulte aplicable.
+Para la verificación de requisitos y emisión de la resolución que corresponda, la Unidad contará con el plazo de hasta 60 días naturales.
+Durante ese mismo plazo la Unidad debe solicitar la información que necesite para la tramitación de la solicitud. Si en esta etapa la persona solicitante no suministra a la Unidad la información que se le requiera, en plazo definido para ello, se procederá al archivo de la solicitud, de lo cual se dejará constancia en el expediente.
+c) Si la persona califica como receptora de la asistencia personal humana, ésta o quien le brinde apoyos elabora el plan individual de apoyo, en los términos definidos por la Ley N° 9379 y el artículo 21 del presente reglamentos, sin perjuicio del cualquier otro numeral que resulte aplicable.
+d) Se suscribe el convenio, según lo dispuesto por la Ley N° 9379 y el presente reglamento.
+e) La Unidad asigna a la persona receptora de la asistencia, la persona que fungirá como asistente personal, en los términos señalados por el presente reglamento.
+f) Se inicia con la asistencia personal humana y con el giro mensual de la prestación económica para sufragarla.
+g) La Unidad realizará revisiones de oficio del plan individual y fiscalizaciones de oficio del servicio ofrecido por el asistente personal y de las obligaciones de la persona receptora de la asistencia personal humana o del familiar, en los plazos indicados por el manual de procedimiento del Programa.

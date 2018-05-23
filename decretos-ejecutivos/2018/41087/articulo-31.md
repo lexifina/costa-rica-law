@@ -1,0 +1,6 @@
+ARTÍCULO 31.-Legitimados para la suscripción del convenio. En aplicación del derecho de autonomía personal y los principios de la Ley N° 9379, para el supuesto de personas adultas, la persona legitimada para el acto de suscripción del convenio será la persona con discapacidad receptora de la asistencia personal humana. La suscripción podrá realizar consignándose la firma por escrito, con la huella digital o por cualquier otro medio de comunicación.
+En ese mismo supuesto, excepcionalmente se aceptará la suscripción del convenio por un familiar a favor de la persona receptora de la asistencia, si por la condición de discapacidad se amerita ese apoyo, lo cual será verificado por la Unidad en el encuentro que se indica en el artículo 33 del presente reglamento y proceder de conformidad con el mismo artículo.
+Para la situación de personas menores de edad con discapacidad que califique como receptoras de la asistencia personal humana, en aplicación de la normativa nacional, están legitimados para la suscripción del convenio las siguientes personas:
+a) La madre o el padre o ambos, siempre y cuando ejerzan la patria potestad.
+b) Si los padres están divorciados o no conviven, quien ejerza la guardia, crianza y educación.
+c) La persona representante legal.

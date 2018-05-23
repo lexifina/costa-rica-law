@@ -1,0 +1,1 @@
+ARTÍCULO 15.-Obligaciones de la persona garante para la igualdad jurídica. La persona garante tendrá para con la persona con discapacidad que goce de la salvaguardia para la igualdad jurídica, las obligaciones establecidas en el artículo 11 de la Ley N° 9379.

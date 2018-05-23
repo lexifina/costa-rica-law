@@ -1,0 +1,1 @@
+ARTÍCULO 28.-Financiamiento del Programa para la Promoción de la Autonomía Personal de las Personas con Discapacidad El Programa para la Promoción de la Autonomía Personal de las Personas con Discapacidad se financiará de conformidad a lo señalado por el artículo 19 de la Ley N° 9379.

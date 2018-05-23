@@ -1,0 +1,1 @@
+ARTÍCULO 25.-Consecuencias de actos contrarios a regulaciones sobre la asistencia personal humana. Actos de la Administración Pública en contra de las regulaciones del Capítulo III de la Ley N° 9379 y de este reglamento, son absolutamente nulos y conllevan responsabilidad para la persona funcionaria que genere el acto administrativo.

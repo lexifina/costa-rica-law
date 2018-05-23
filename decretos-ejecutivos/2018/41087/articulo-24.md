@@ -1,0 +1,1 @@
+ARTÍCULO 24.-Prohibición para personas empleadas públicas para desempeñarse como asistentes personales humanos. Por disposición de la Ley N° 9379, una persona empleada pública no podrá a la vez brindar servicios de asistencia personal humana.
