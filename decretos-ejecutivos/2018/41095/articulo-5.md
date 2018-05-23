@@ -1,0 +1,1 @@
+Artículo 5°- Ámbito de aplicación. Las Normas para la Inclusión, Protección y Atención de Personas con Discapacidad en las Emergencias y Desastres, son aplicables a todas las entidades públicas, privadas y de la sociedad civil organizada.
