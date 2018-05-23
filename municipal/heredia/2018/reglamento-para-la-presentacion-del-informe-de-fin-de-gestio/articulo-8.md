@@ -1,0 +1,1 @@
+Artículo 8º—Entrega formal de activos. Los funcionarios sujetos a presentar el informe de fin de gestión que se encuentre en el proceso de salida de la institución, deberán tramitar ante el Encargado de Activos de la institución y la jefatura inmediata la entrega de los activos que tenga asignados, conforme la reglamentación interna y procedimientos establecidos para ello.

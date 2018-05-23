@@ -1,0 +1,1 @@
+Artículo 11.—Responsabilidad en la aplicación de la normativa. Los jerarcas, titulares subordinados y los demás funcionarios de la Administración que les competa intervenir en el proceso ya sea en su rol de ejecutor o fiscalizador, serán responsables de su efectivo cumplimiento.
