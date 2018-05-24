@@ -14,3 +14,4 @@ Declaratoria Oficial de la Letra del Himno de los Funcionarios Policiales del Mi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-09 | la propia norma |
+| 2 | 2018-05-24 | Ley 9552 |
