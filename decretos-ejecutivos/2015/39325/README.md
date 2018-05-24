@@ -14,3 +14,4 @@ Reglamento a la Ley contra la Trata de Personas y Creación de la Coalición Nac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-11-23 | la propia norma |
+| 2 | 2018-05-24 | Ley 9552 |
