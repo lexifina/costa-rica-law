@@ -1,1 +1,2 @@
-Artículo 9º—En virtud de los controles existentes para las instituciones mencionadas en el artículo 14 de la Ley 7786, quedan excluidos del requisito de declaración jurada los contratos en que se formalicen operaciones de las indicadas en el artículo supra indicado.
+Artículo 9. Quedan excluidos del requisito de declaración jurada los actos y contratos en que se formalicen operaciones de las instituciones indicadas en el artículo 14 de la Ley 7786. No obstante, si las partes aportan fondos propios que superen los diez mil dólares, moneda de curso legal de los Estados Unidos de América, o su equivalente en colones, deberá cumplirse con la declaración jurada en relación con esos fondos propios.
+(Así reformado en sesión N° 014 del 24 de mayo de 2018)

@@ -14,3 +14,4 @@ Lineamientos para la aplicación del artículo 15 ter de la Ley 7786 "Ley sobre 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-15 | la propia norma |
+| 2 | 2018-05-24 | Reglamento 14 (2018-05-24) |
