@@ -1,0 +1,1 @@
+Artículo 30.—Normativa de aplicación supletoria. En toda situación jurídica que no haya sido prevista en el Decreto, resultan aplicables de manera supletoria, las disposiciones contenidas en la Ley Nº 6227, Ley General de la Administración Pública.

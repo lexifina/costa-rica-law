@@ -1,0 +1,1 @@
+Artículo 9º—De la recepción de candidaturas. La recepción de las candidaturas a los Premios Nacionales “Clodomiro Picado Twight” estará a cargo del MICITT, según el procedimiento establecido en cada convocatoria específica.

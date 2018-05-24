@@ -1,0 +1,1 @@
+Artículo 6º—Del calendario. El calendario que determinará el cronograma en que se lleven a cabo los diferentes procesos de los Premios Nacionales “Clodomiro Picado Twight” será establecido porel MICITT, el cual será publicado en los canales de comunicación oficiales del MICITT durante el primer trimestre de cada año.

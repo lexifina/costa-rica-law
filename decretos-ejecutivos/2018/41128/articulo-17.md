@@ -1,0 +1,1 @@
+Artículo 17.—De la juramentación. Una vez elegidos los nuevos integrantes de los jurados de los Premios Nacionales “Clodomiro Picado Twight”, serán juramentados por la máxima autoridad institucional del MICITT y, posteriormente, procederá a divulgar mediante su portal web oficial y sus redes sociales oficiales las conformaciones de los jurados respectivos.

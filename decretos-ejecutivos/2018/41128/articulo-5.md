@@ -1,0 +1,1 @@
+Artículo 5º—De la periodicidad. Las dos categorías de los Premios Nacionales “Clodomiro Picado Twight” se entregarán una vez al año, mediante una ceremonia especial, según el calendario de entrega de premios que establezca el MICITT.

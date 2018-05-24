@@ -1,0 +1,1 @@
+Transitorio Único. El primer nombramiento, en virtud del artículo 15 del presente Decreto, de los representantes del MICITT y el CONICIT de cada uno de los jurados de ambas categorías será por un período de tres años y, en caso de ser reelectos, el segundo período será de dos años.

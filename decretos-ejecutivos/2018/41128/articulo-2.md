@@ -1,0 +1,1 @@
+Artículo 2º—Del objetivo. Establecer los procedimientos necesarios para el otorgamiento y entrega de los Premios Nacionales “Clodomiro Picado Twight” con la finalidad de reconocer las mejores trayectorias de los investigadores costarricenses en los campos de la Ciencia y la Tecnología.

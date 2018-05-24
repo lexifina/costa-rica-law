@@ -1,0 +1,1 @@
+Artículo 4º—De la Institución otorgante. Los Premios Nacionales “Clodomiro Picado Twight” serán otorgados por el Estado Costarricense mediante el Ministerio de Ciencia, Tecnología y Telecomunicaciones (MICITT).

@@ -1,0 +1,1 @@
+Artículo 27.—De los acreedores del premio. Los premios se otorgarán única y exclusivamente a investigadores costarricenses, por nacimiento o naturalización, como incentivo a la investigación científica y en el desarrollo tecnológico, cuya labor y trayectoria atienda necesidades nacionales e impacten de manera positiva a Costa Rica, independientemente de su lugar de residencia.

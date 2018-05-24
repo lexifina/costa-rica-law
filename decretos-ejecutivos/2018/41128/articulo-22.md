@@ -1,0 +1,1 @@
+Artículo 22.—Del nombramiento. El período de nombramiento de los jurados designados al efecto será de dos años, prorrogables únicamente por un período adicional. Para cada jurado deberá nombrarse la mitad de los miembros en año par y, la otra mitad, en año impar.

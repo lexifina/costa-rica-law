@@ -1,0 +1,1 @@
+Artículo 19.—De las restricciones. Los miembros que conforman los jurados de los Premios Nacionales “Clodomiro Picado Twight” no podrán conceder audiencias ni entrevistas a los postulantes. Así mismo, no podrán informar a los postulantes ni a terceros sobre el progreso de sus deliberaciones, las que en todo momento serán confidenciales.
