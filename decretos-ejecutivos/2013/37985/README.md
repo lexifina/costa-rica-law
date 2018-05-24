@@ -14,3 +14,4 @@ Reglamento a la Ley de Armas y Explosivos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-10-17 | la propia norma |
+| 2 | 2018-05-24 | Ley 9552 |
