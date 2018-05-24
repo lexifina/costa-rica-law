@@ -1,0 +1,2 @@
+V. La Dirección Técnica
+Artículo 54.- La Dirección Técnica tiene como objetivo planear, organizar, dirigir, coordinar y controlar las acciones técnico - operativas del CONAPDIS a nivel nacional, a fin de lograr la promoción y el cumplimiento de los derechos de la población con discapacidad, mediante la ejecución de los subprocesos de: Gestión del Conocimiento, Normalización, Gestión de Política Pública, Fiscalización y Asesoramiento Legal.

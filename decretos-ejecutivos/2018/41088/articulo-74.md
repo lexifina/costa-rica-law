@@ -1,0 +1,2 @@
+VIII. La Contraloría de Servicios
+Artículo 74.- El CONAPDIS contará con una Contraloría de Servicios que dependerá directamente de la Junta Directiva, cuyo objetivo es satisfacer oportuna y adecuadamente las legítimas demandas de las y los usuarios de los servicios que ofrece el CONAPDIS, para brindarles información accesible que éstos requieran con el fin primordial de facilitar su contacto con la institución y contribuir para que la prestación del servicio público se brinde con eficiencia y eficacia.

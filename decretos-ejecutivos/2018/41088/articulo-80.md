@@ -1,0 +1,1 @@
+Artículo 80.- El CONAPDIS estará sujeto al cumplimiento de los principios y al régimen de responsabilidad establecidos en los títulos X y XI de la Ley N° 8131, Administración Financiera de la República y Presupuestos Públicos. En lo demás, se exceptúa al CONAPDIS de los alcances y la aplicación de esa ley.

@@ -1,0 +1,1 @@
+Artículo 47.- En caso de renuncia, separación o vencimiento del periodo de nombramiento del Presidente(a), Vicepresidente(a) o Secretario(a), se deberá proceder con la elección de un nuevo miembro en dichos cargos, lo cual se deberá realizar en la sesión inmediata siguiente.

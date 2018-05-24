@@ -1,0 +1,1 @@
+Artículo 11.- La persona con discapacidad que requiera asesoramiento, en pleno uso de su autonomía, podrá determinar si requiere del apoyo de un familiar o persona de confianza para acceder adecuadamente a este servicio.

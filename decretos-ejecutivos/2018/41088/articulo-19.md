@@ -1,0 +1,1 @@
+Artículo 19.- Las personas representantes electas en las Asambleas Regionales conformaran el Foro Consultivo Nacional, que se reunirá cuando sea convocado por la Junta Directiva o la Dirección Ejecutiva del CONAPDIS.

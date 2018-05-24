@@ -1,0 +1,1 @@
+Artículo 57.- Corresponderá a la Dirección Técnica del CONAPDIS definir la estructura, el personal, los lineamientos programáticos y la elaboración, integración y organización de los procedimientos, instrumentos y protocolos para garantizar el funcionamiento del SECDIS.

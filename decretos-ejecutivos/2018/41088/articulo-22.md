@@ -1,0 +1,8 @@
+Artículo 22.- Funciones y atribuciones de la Asamblea Regional. La Asamblea Regional, estará conformada por las personas físicas y las personas representantes de las organizaciones no gubernamentales que se hayan inscrito en el Registro que funcionará en las Sedes Regionales del CONAPDIS y tendrá las siguientes funciones y atribuciones:
+1. Realizar asambleas ordinarias y extraordinarias.
+2. Elegir por un periodo de dos años las personas representantes de las personas físicas y de las organizaciones no gubernamentales y sus respectivos suplentes ante el Foro Consultivo.
+3. Nombrar un Comité ad hoc que estará constituido por una persona representante de las personas físicas y de las organizaciones no gubernamentales, quienes conjuntamente con el Director o Directora de la Sede Regional tendrán la responsabilidad de realizar la elección de las personas representantes y sus suplentes ante el Foro Consultivo, entre las personas asistentes a la Asamblea.
+4. Nombrar las sustituciones por renuncia ante el Foro Consultivo a las personas representantes de las personas físicas o de las organizaciones no gubernamentales.
+5. Organizar consultas regionales sobre los proyectos de ley, reglamentos, planes, políticas y programas, cuando sea solicitado por la Junta Directiva o la Dirección Ejecutiva del CONAPDIS.
+6. Proponer temas de discusión para que sean tratados por el Foro Consultivo conjuntamente con la Dirección Ejecutiva y Junta Directiva del CONAPDIS.
+El Director o Directora de la Sede Regional del CONAPDIS coadyuvara con las personas representantes ante el Foro Consultivo en las convocatorias a las Asambleas ordinarias y extraordinarias.

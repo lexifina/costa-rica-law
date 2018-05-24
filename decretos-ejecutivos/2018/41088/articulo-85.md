@@ -1,0 +1,1 @@
+Artículo 85.- Incumplimientos. Notificado el cobro administrativo y transcurridos 3 días hábiles, en caso de incumplimiento, la administración interpondrá contra el jerarca municipal denuncia motivada en incumplimiento legal de deberes ante la autoridad judicial competente, de conformidad con los estipulado en la letra del artículo 332 del Código Penal Costarricense.

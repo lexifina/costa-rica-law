@@ -1,0 +1,1 @@
+Artículo 29.- El quórum de la Junta Directiva se formará con seis integrantes y los acuerdos se tomarán por mayoría absoluta de los votos de los miembros de la Junta Directiva, excepto cuando en la ley se establezca otra mayoría. En caso de empate, la persona que Presida la Junta Directiva tendrá voto de calidad.

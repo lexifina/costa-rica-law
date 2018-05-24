@@ -1,0 +1,2 @@
+Artículo 82.- Sobre la cuantificación y recaudación se los recursos provenientes. de los gobiernos locales.
+Los sujetos obligados por el artículo 10 inciso f), de la Ley 9303, están constituidos por las ochenta y dos municipalidades existentes y aquellas que se creen a futuro, así como los nueve concejos municipales de distrito y aquellos que a futuro puedan existir, quienes deberán transferir el 0.5% de su presupuesto general al Consejo Nacional de Personas con Discapacidad (CONAPDIS), en cada ejercicio presupuestario.

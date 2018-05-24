@@ -1,0 +1,1 @@
+Artículo 34.- Las sesiones serán siempre privadas, sin embargo, por acuerdo de mayoría absoluta, la Junta Directiva podrá permitir la presencia de invitados, los cuales podrán participar en las deliberaciones con derecho a voz pero sin voto.

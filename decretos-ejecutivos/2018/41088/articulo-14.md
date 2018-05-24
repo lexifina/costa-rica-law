@@ -1,0 +1,1 @@
+Artículo 14.- En el servicio de Asesoramiento Legal se aplicará estrictamente la Ley de Protección de la Persona frente al Tratamiento de sus Datos Personales, Ley N10 8968,relativa al deber de confidencialidad de toda la información que se pudiera recibir por esta vía.

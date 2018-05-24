@@ -1,0 +1,1 @@
+Artículo 39.- Los miembros de la Junta Directiva, así como las personas que asistan a las sesiones, deberán guardar la más absoluta reserva sobre las deliberaciones y resoluciones de la sesión. La inobservancia a la presente disposición podrá constituir falta grave.

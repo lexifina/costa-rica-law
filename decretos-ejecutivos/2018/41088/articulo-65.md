@@ -1,0 +1,2 @@
+Artículo 65.- La Auditoría Interna dependerá directamente de la Junta Directiva y le corresponderá a quien ejerza el cargo de la Presidencia la supervisión administrativa de esta dependencia.
+El nombramiento del Auditor o Auditora Interna, lo hará la Junta Directiva y su suspensión o remoción deberá ajustarse a lo dispuesto por el artículo 15 de la Ley Orgánica de la Contraloría General de la República y el artículo 31 de la Ley General de Control Interno, respectivamente.

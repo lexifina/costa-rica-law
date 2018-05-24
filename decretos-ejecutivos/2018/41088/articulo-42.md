@@ -1,0 +1,1 @@
+Artículo 42.- La sesión podrá suspenderse temporal o permanentemente por decisión de la persona que presida la Junta Directiva o por acuerdo de mayoría, cuando medien situaciones de caso fortuito o fuerza mayor.

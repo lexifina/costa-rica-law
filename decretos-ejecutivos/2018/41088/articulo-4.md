@@ -1,0 +1,1 @@
+Artículo 4.- Naturaleza. El CONAPDIS es un órgano de desconcentración máxima y personalidad jurídica instrumental, adscrito al Ministerio de Trabajo y Seguridad Social, cuya fiscalización y liquidación de sus presupuestos estará sujeto a las disposiciones de la Contraloría General de la República.

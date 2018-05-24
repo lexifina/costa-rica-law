@@ -1,0 +1,1 @@
+Artículo 12.- En caso de que se determine que no es competencia del CONAPDIS atender el proceso de asesoría requerido, se procederá a referir a la persona, ofreciendo información accesible, hacia recursos públicos y privados existentes que puedan brindar una asesoría apropiada, acorde con las necesidades de la persona consultante.

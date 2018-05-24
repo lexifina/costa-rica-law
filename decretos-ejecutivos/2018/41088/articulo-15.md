@@ -1,0 +1,1 @@
+Artículo 15.- El CONAPDIS no brindará seguimiento a las gestiones personales que realicen las personas consultantes ante entidades públicas o privadas, ni brindará servicios de defensa y representación en procesos judiciales o procedimientos administrativos.

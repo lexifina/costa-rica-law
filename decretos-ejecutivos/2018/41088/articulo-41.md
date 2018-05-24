@@ -1,0 +1,1 @@
+Artículo 41.- Los miembros deberán votar afirmativa o negativamente todos los temas sometidos a su conocimiento y únicamente podrán abstenerse de votar cuando su representación no haya participado en el conocimiento del tema.

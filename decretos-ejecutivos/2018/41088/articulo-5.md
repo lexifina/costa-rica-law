@@ -1,0 +1,1 @@
+Artículo 5.- Finalidad. El CONAPDIS tiene como finalidad, fiscalizar el cumplimiento de los derechos humanos y las libertades fundamentales de la población con discapacidad, por parte de las entidades públicas y privadas, a fin de promover su plena incorporación a la sociedad, en igualdad de condiciones que el resto de la población.

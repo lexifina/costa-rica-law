@@ -1,0 +1,1 @@
+Artículo 23.- El CONAPDIS reconocerá los gastos de transporte, hospedaje, alimentación, e interpretación de LESCO, a las personas con discapacidad y asistentes personales, que así lo requieran para poder asistir a las Asambleas Regionales, en cumplimiento con los lineamientos de la Contraloría General de la República y la normativa Institucional.

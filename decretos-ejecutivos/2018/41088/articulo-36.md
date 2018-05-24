@@ -1,0 +1,1 @@
+Artículo 36.- Los miembros de la Junta Directiva deberán hacer constar en el acta su voto negativo al acuerdo adoptado y los motivos que los justifiquen, quedando en tal caso exentos de las responsabilidades que, en su caso, pudieren derivarse de la ejecución de esos acuerdos.

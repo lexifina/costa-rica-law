@@ -1,0 +1,1 @@
+Artículo 67.- No podrá ser Auditor o Auditora Interna, quien tenga algún impedimento legal, o sea pariente hasta tercer grado de consanguinidad o afinidad, de algún miembro de la Junta Directiva o del Director o Directora Ejecutiva.
