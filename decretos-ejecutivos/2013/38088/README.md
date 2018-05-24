@@ -14,3 +14,4 @@ Reglamento a la Ley de Servicios de Seguridad Privados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-12-19 | la propia norma |
+| 2 | 2018-05-24 | Ley 9552 |

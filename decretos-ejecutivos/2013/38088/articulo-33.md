@@ -4,14 +4,16 @@ Artículo 33.—Solicitud de autorización de escuelas. Las escuelas autorizadas
 3) aportar anualmente la lista de accionistas de la compañía o sus asociados, mediante certificación notarial con vista en el libro de registro de asociados cuando se trate de asociaciones, indicando la fecha de la adquisición de la acción o la fecha de ingreso como miembro.
 Tanto las personas físicas como jurídicas deben cumplir los siguientes requisitos:
 1) indicar en el formulario electrónico que el servicio que brindará será de capacitación en seguridad privada,
-2) aportar listado que contenga nombres y apellidos completos, y demás calidades de los instructores que impartirán los cursos. La escuela de capacitación y sus instructores deberán estar debidamente autorizados por la Escuela Nacional de Policía
+2) aportar listado que contenga nombres y apellidos completos, y demás calidades de los instructores que impartirán los cursos. La escuela de capacitación y sus instructores deberán estar debidamente autorizados por la Academia Nacional de Policía (*)
+(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)
 3) presentar el programa de capacitación y adiestramiento que recibirá el personal,
 4) aportar la lista del personal de seguridad y administrativo con sus calidades, así como el inventario del armamento y equipo de seguridad con que cuenta,
 5) suscribir póliza de Riesgos del Trabajo ante el Instituto Nacional de Seguros,
 6) suscribir póliza de Responsabilidad Civil ante el Instituto Nacional de Seguros, que será el monto mínimo equivalente a doscientas veces el salario mínimo legal en el caso de personas jurídicas, y de cincuenta veces el salario mínimo legal para personas físicas, según lo definido en la Ley de Presupuesto Ordinario vigente al momento de presentar la solicitud. Ambas pólizas deben mantenerse vigentes por el plazo de la autorización de funcionamiento otorgada por la Dirección,
 7) planillas reportadas a la Caja Costarricense de Seguro Social y del Instituto Nacional de Seguros. Si se trata de renovación, estas certificaciones comprenderán los seis meses anteriores a la solicitud de renovación. Cuando se trate de corporaciones jurídicas o se demuestre que varias empresas constituyen en la práctica una unidad operativa y económica, se tomarán como una sola, para efectos de la supervisión de lo estipulado en la Ley y en el presente Reglamento. Este requisito deberá ser suministrado a la Dirección por las instituciones aseguradoras, sin perjuicio de que sean aportados por los mismos interesados,
 Además de los anteriores requisitos, el Sistema verificará en forma automática y en línea el cumplimiento de lo siguiente:
-1) aprobación del examen de seguridad privada que consta en la base de datos de la Escuela Nacional de Policía;
+1) aprobación del examen de seguridad privada que consta en la base de datos de la Academia Nacional de Policía (*);
+(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)
 2) personería jurídica;
 3) póliza de responsabilidad civil,
 4) póliza de riesgos del trabajo;

@@ -15,7 +15,8 @@ Las personas físicas que sean inscritas por personas jurídicas como agentes de
 Es potestad de la Dirección de Servicios de Seguridad Privados requerir la información que considere oportuna en los respectivos países, respetando los derechos fundamentales y la dignidad de las personas.
 La inscripción de antecedentes de condenas penales obligará a estudiar la vida y costumbres del solicitante, con el fin de establecer si procede o no la inscripción en el registro de agentes.
 El Sistema verificará en línea y de forma automática el cumplimiento de los siguientes requisitos:
-1) aprobación del curso básico de seguridad privada en la base de datos de la Escuela Nacional de Policía,
+1) aprobación del curso básico de seguridad privada en la base de datos de la Academia Nacional de Policía (*),
+(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)
 2) representación de la persona jurídica,
 3) póliza de responsabilidad de riesgos del trabajo del Instituto Nacional de Seguros;
 4) pólizas de responsabilidad civil del Instituto Nacional de Seguros,

@@ -12,7 +12,8 @@ Artículo 31.—Requisitos para la autorización. Las personas físicas o juríd
 9) estar al día en el pago del impuesto a las sociedades mercantiles,
 10) planillas reportadas a la Caja Costarricense de Seguro Social y al Instituto Nacional de Seguros. Este requisito debe ser suministrado por las instituciones aseguradoras, sin perjuicio de ser aportados por los mismos interesados.
 Además de los anteriores requisitos, el Sistema verificará en forma automática y en línea el cumplimiento de lo siguiente:
-1) aprobación del examen de seguridad privada que consta en la base de datos de la Escuela Nacional de Policía;
+1) aprobación del examen de seguridad privada que consta en la base de datos de la Academia Nacional de Policía (*);
+(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)
 2) personería jurídica;
 3) póliza de responsabilidad civil,
 4) póliza de riesgos del trabajo;

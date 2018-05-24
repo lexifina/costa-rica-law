@@ -2,7 +2,8 @@ Artículo 26.—Comisión de Servicios de Seguridad Privados. Créase la Comisi�
 1) el representante del Ministro, quien presidirá,
 2) un representante de la Dirección General de la Fuerza Pública,
 3) un representante de la Dirección de Servicios de Seguridad Privados,
-4) un representante de la Escuela Nacional de Policía,
+4) un representante de la Academia (*) Nacional de Policía,
+(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)
 5) un representante del Ministerio de Trabajo y Seguridad Social,
 6) un representante de la Caja Costarricense de Seguro Social,
 7) un representante de las asociaciones de empresas de seguridad privada debidamente constituidas.
