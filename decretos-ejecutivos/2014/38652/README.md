@@ -14,3 +14,4 @@ Procedimiento para la aprobación de obras atinentes a la salud pública en la c
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-09 | la propia norma |
+| 2 | 2018-05-24 | Ley 9552 |
