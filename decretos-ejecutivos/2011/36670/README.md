@@ -14,3 +14,4 @@ Declara de interés público y nacional el proyecto de Costrucción y Equipamien
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-06-17 | la propia norma |
+| 2 | 2018-05-24 | Ley 9552 |
