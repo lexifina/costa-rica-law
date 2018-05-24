@@ -15,3 +15,4 @@ Reglamento de Organización y Servicio de la Policía Profesional de Migración 
 | --- | --- | --- |
 | 1 | 2014-12-09 | la propia norma |
 | 2 | 2018-05-24 | Ley 9552 |
+| 3 | 2018-05-24 | Decreto Ejecutivo 41275 (2018-05-24) |
