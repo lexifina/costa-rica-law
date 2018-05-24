@@ -9,7 +9,8 @@ Artículo 85.- FUNCIONES DEL PERSONAL INSTRUCTOR.- Dentro de los procesos de ens
 8. Llevar y mantener actualizados listas y registros de clase establecidos por la Escuela.
 9. Mantener controles y registros escritos acerca de las actividades académicas, aprovechamiento y progreso de los alumnos durante su proceso de formación, capacitación o especialización policial.
 10. Participar en la organización y desarrollo de las actividades educativas, sociales y de desarrollo profesional que forman parte de los procesos de formación, capacitación y especialización policial.
-11. Cooperar como instructor de apoyo, cuando se le asigne por su superior inmediato en los procesos de formación, capacitación y especialización policial que se desarrollan dentro y fuera en la Escuela Nacional de Policía.
+11. Cooperar como instructor de apoyo, cuando se le asigne por su superior inmediato en los procesos de formación, capacitación y especialización policial que se desarrollan dentro y fuera en la Academia Nacional de Policía (*).
+(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)
 12. Velar por el cumplimiento de los objetivos de los programas de formación, capacitación y especialización policial, de acuerdo con los planes establecidos.
 13. Participar en reuniones con el Coordinador de Área con el fin de planificar actividades, mejorar métodos y procedimientos de trabajo, analizar y resolver problemas derivados de los procesos de formación, capacitación y especialización policial.
 14. Participar en la evaluación y actualización de los programas de estudio.

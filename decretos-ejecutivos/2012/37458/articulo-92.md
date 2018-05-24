@@ -13,4 +13,5 @@ Artículo 92.- INSTRUCTOR DE SERVICIO DE UNIDAD DE ESTUDIANTIL.- Es el instructo
 12. Realizar rondas durante la noche verificando que todo esté en orden.
 13. Informar por escrito todas las anomalías y faltas en las que incurra el personal bajo su responsabilidad.
 14. En ausencia de Secretaría Estudiantil, tramitará las licencias de permiso y salida cuando la circunstancia lo amerite.
-15. En caso de emergencias médicas así como desastres naturales o antrópicos, debe garantizar el cumplimiento de los protocolos establecidos para la protección integral del componente humano y material en coordinación con la Unidad de Seguridad Interna de la Escuela Nacional de Policía.
+15. En caso de emergencias médicas así como desastres naturales o antrópicos, debe garantizar el cumplimiento de los protocolos establecidos para la protección integral del componente humano y material en coordinación con la Unidad de Seguridad Interna de la Academia Nacional de Policía (*).
+(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)

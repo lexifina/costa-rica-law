@@ -1,6 +1,7 @@
 Artículo 47.- FUNCIONES DEL COMITÉ DE EVALUACIÓN DE LOS APRENDIZAJES.
 1. Dar seguimiento al cumplimiento de los lineamientos técnicos y administrativos vigentes en la evaluación de los aprendizajes.
-2. Asesorar al Director General de la Escuela Nacional de Policía en la resolución de las objeciones que en materia de evaluación formulen los estudiantes.
+2. Asesorar al Director General de la Academia Nacional de Policía (*) en la resolución de las objeciones que en materia de evaluación formulen los estudiantes.
+(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)
 3. Asesorar al Departamento Académico en la resolución de la condición de los estudiantes con materias pendientes por incapacidad presentada.
 4. Mantener al día el libro de actas con los asuntos tratados y acuerdos tomados en cada sesión de trabajo.
 5. Divulgar entre el personal de la institución los contenidos del presente Reglamento, así como aquellos procedimientos particulares que la institución haya establecido o establezca en materia de evaluación.

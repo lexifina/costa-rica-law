@@ -3,4 +3,5 @@ Artículo 62.- MATERNIDAD.- Las estudiantes que resulten en estado de gravidez d
 2. Deberá aportar dictamen médico.
 3. Cuando se encuentre en el proceso del Curso Básico Policial, deberán reubicarse en la Dirección General de la Fuerza Pública.
 4. En el caso de los otros cursos de formación policial se reintegrará a las unidades policiales de origen.
-5. Una vez concluido su periodo de licencia, se deberá presentar a la Escuela Nacional de Policía, para continuar con el proceso de formación que dicte el Comité de Evaluación.
+5. Una vez concluido su periodo de licencia, se deberá presentar a la Academia Nacional de Policía (*), para continuar con el proceso de formación que dicte el Comité de Evaluación.
+(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)

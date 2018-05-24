@@ -1,1 +1,2 @@
-Artículo 72.- SEGURIDAD INTERNA.- Colaborará con el cumplimento y supervisión de lo dispuesto en el presente Reglamento, velando en todo momento por los deberes y derechos de todo el personal de la Escuela Nacional de Policía.
+Artículo 72.- SEGURIDAD INTERNA.- Colaborará con el cumplimento y supervisión de lo dispuesto en el presente Reglamento, velando en todo momento por los deberes y derechos de todo el personal de la Academia Nacional de Policía (*).
+(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)

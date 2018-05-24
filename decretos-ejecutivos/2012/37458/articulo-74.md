@@ -1,8 +1,10 @@
 Artículo 74.- DEBERES. Los educandos tienen como deber principal la dedicación al estudio en sus aspectos teóricos, prácticos y físicos y en especial, cumplir con las siguientes obligaciones.
 1. Respetar y cumplir la Constitución Política, los tratados y convenios internacionales, los Derechos Humanos; las leyes, reglamentos institucionales, así como los estatutos, y lo dispuesto en el Contrato de Adiestramiento, tanto dentro y fuera del servicio.
-2. Respetar al Ministerio de Seguridad Pública, a la Escuela Nacional de Policía y demás instituciones gubernamentales.
+2. Respetar al Ministerio de Seguridad Pública, a la Academia Nacional de Policía (*) y demás instituciones gubernamentales.
+(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)
 3. Respetar a las personas que tienen responsabilidad jerárquica, de formación y administrativa, lo mismo que a los compañeros de estudio y demás funcionarios.
-4. Hacer uso adecuado de los recursos educativos técnicos de la Escuela Nacional de Policía e igualmente cuidar los bienes y activos del Estado.
+4. Hacer uso adecuado de los recursos educativos técnicos de la Academia Nacional de Policía (*) e igualmente cuidar los bienes y activos del Estado.
+(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)
 5. Asistir puntualmente a las lecciones, centros de repaso, presentación de pruebas, conferencias, actos cívicos y otras actividades educativas.
 6. Portar dignamente el uniforme de acuerdo con el Reglamento de Uniformes y Distintivos de los Cuerpos Policiales Adscritos al Ministerio de Seguridad Pública.
 7. Queda prohibido ingresar, portar, ingerir y/o distribuir bebidas alcohólicas o sustancias psicotrópicas que alteren el comportamiento individual y social.

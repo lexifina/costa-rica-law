@@ -1,1 +1,2 @@
-Artículo 82.- CONSIGNACIÓN DE FALTAS.- Toda falta que cometa el estudiante se consignará en el respectivo expediente, que llevará para tales efectos la Asesoría Jurídica de la Escuela Nacional de Policía.
+Artículo 82.- CONSIGNACIÓN DE FALTAS.- Toda falta que cometa el estudiante se consignará en el respectivo expediente, que llevará para tales efectos la Asesoría Jurídica de la Academia Nacional de Policía (*).
+(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)

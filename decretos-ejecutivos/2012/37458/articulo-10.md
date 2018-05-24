@@ -4,4 +4,5 @@ Artículo 10.- FUNCIONES DE LA COMISIÓN DE ESTUDIOS TÉCNICOS.- Dentro de las f
 1.2 Determinar la aprobación de la carrera por parte de la instancia superior del sistema educativo costarricense sea este el Consejo Nacional de Educación Superior (CONESUP) o el Consejo Nacional de Rectores (CONARE).
 1.3 Analizar el plan de estudios de la carrera en sus componentes endógenos y exógenos curriculares y su relación con la función policial.
 2. Emitir criterio respecto al estudio técnico elaborado por el Departamento Académico.
-3. Recomendar al Director General de la Escuela Nacional de Policía sobre lo resuelto en el estudio.
+3. Recomendar al Director General de la Academia Nacional de Policía (*) sobre lo resuelto en el estudio.
+(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)

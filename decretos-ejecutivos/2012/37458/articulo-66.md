@@ -1,1 +1,2 @@
-Artículo 66.- PERSONAL POLICIAL QUE UTILIZA LAS INSTALACIONES DE LA ESCUELA NACIONAL DE POLICÍA.- El personal policial que se le autorice el alojamiento, la alimentación y el uso de las instalaciones de la Escuela deberá cumplir a cabalidad con lo estipulado en este reglamento.
+Artículo 66.- PERSONAL POLICIAL QUE UTILIZA LAS INSTALACIONES DE LA ACADEMIA NACIONAL DE POLICÍA (*).- El personal policial que se le autorice el alojamiento, la alimentación y el uso de las instalaciones de la Escuela deberá cumplir a cabalidad con lo estipulado en este reglamento.
+(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)

@@ -1,6 +1,7 @@
 SECCIÓN III
 DEL INGRESO Y SALIDA DE LOS ESTUDIANTES
-Artículo 96.- DEL INGRESO Y SALIDA DE LOS ESTUDIANTES A LA ESCUELA NACIONAL DE POLICÍA.- Los estudiantes que requieran ingresar o salir de la Escuela deben vestir ropa de civil y seguir las siguientes disposiciones:
+Artículo 96.- DEL INGRESO Y SALIDA DE LOS ESTUDIANTES A LA ACADEMIA NACIONAL DE POLICÍA (*).- Los estudiantes que requieran ingresar o salir de la Escuela deben vestir ropa de civil y seguir las siguientes disposiciones:
+(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)
 Personal masculino:
 1. Pantalón largo en buen estado con su respectiva faja sin alteraciones con respecto a su forma y con su respectiva faja.
 2. Camisa manga corta o manga larga o camiseta, con las ―faldas‖ por dentro.

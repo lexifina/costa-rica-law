@@ -1,1 +1,2 @@
-Artículo 86.- DEBERES Y DERECHOS.- Serán deberes y derechos de los instructores de la Escuela Nacional de Policía aquellos contemplados en la Ley General de Policía y demás normativa del Régimen Policial.
+Artículo 86.- DEBERES Y DERECHOS.- Serán deberes y derechos de los instructores de la Academia Nacional de Policía (*) aquellos contemplados en la Ley General de Policía y demás normativa del Régimen Policial.
+(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)

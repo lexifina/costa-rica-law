@@ -12,6 +12,7 @@ Artículo 73.- DERECHOS.- Además de los preceptos consagrados por la Constituci
 9. Acceder a los servicios administrativos, médicos y psicológicos que la institución ofrece, así como a la información sobre hostigamiento sexual y laboral y equidad de género.
 10. Recibir un tratamiento respetuoso de todos los miembros de la comunidad educativa.
 11. Ser informado oportunamente sobre el contenido y metodología del curso a desarrollar.
-12. Recibir oportunamente el material didáctico ofrecido por la Escuela Nacional de Policía para el desarrollo de los cursos.
+12. Recibir oportunamente el material didáctico ofrecido por la Academia Nacional de Policía (*) para el desarrollo de los cursos.
+(*)(Así modificada su denominación por el artículo 30 de la ley N° 9552 del 24 de mayo del 2018 “Creación de la Academia Nacional de Policía”. Anteriormente indicaba “Escuela Nacional de Policía”)
 13. Que su expediente académico y otros documentos sean tratados en forma confidencial.
 14. Conocer el horario de las lecciones teóricas con antelación y de las prácticas o de cualquier otra actividad extracurricular.
