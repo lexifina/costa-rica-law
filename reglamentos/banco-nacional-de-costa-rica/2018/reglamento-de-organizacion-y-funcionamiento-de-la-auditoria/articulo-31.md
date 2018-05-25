@@ -1,0 +1,1 @@
+Artículo 31.—Potestades. El auditor general, el subauditor general y demás funcionarios de la Auditoría General cuentan con las atribuciones señaladas en el artículo 33 de la Ley General de Control Interno, para el cumplimiento de su misión, deberes y funciones.

@@ -1,0 +1,4 @@
+CAPÍTULO II
+Organización de la Auditoría General
+Artículo 7º—Concepto de Auditoría Interna. La Auditoría General desempeña una actividad de aseguramiento independiente, objetiva y asesora, que brinda sus servicios a la Junta Directiva General, Comité de Auditoría Corporativo, Gerencia General y otros sectores interesados del Banco Nacional de Costa Rica. Se crea para validar y mejorar, los procesos y operaciones de la Institución. Contribuye con el alcance de los objetivos institucionales, mediante la práctica de un enfoque preventivo, sistémico y profesional, para evaluar y mejorar la efectividad de la gobernabilidad, gestión del riesgo y control interno.
+Esta dependencia proporciona a la ciudadanía una garantía razonable de que la actuación del jerarca y la del resto de la administración se ejecuta conforme con el marco legal y técnico, y las prácticas sanas.

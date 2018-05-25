@@ -1,0 +1,1 @@
+Artículo 30.—Deberes. El auditor general, el subauditor general y el personal de la Auditoría General están obligados a cumplir los deberes atinentes a su competencia, señalados en el artículo 32 de la Ley General de Control Interno; así como otros señalados en el marco jurídico y técnico aplicable.

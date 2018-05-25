@@ -1,0 +1,1 @@
+Artículo 27.—Código de Ética. Los funcionarios de la Auditoría General están comprometidos con los más altos estándares éticos y de conducta en cada una de las actividades que realizan, tanto dentro como fuera del BNCR. Por esto, el Código de Ética del BNCR, el Código de Ética del Instituto de Auditores Internos y el Código de Gobierno Corporativo son de acatamiento obligatorio.

@@ -1,0 +1,6 @@
+Artículo 3º—Autoridad. El personal de la Auditoría General, para el adecuado desempeño de sus funciones, podrá:
+a) Tener libre acceso, en cualquier momento, a libros, archivos, valores, cuentas bancarias y documentos de los entes y órganos de su competencia institucional; asimismo, de los sujetos privados, en cuanto administren o custodien fondos o bienes públicos que sean de competencia institucional, así como a otras fuentes de información relacionadas con su actividad.
+b) Acceder a transacciones electrónicas, las cuales consten en los archivos y sistemas electrónicos realizados por los entes con los bancos u otras instituciones, para lo cual la administración deberá facilitarle los recursos requeridos.
+c) Solicitar, a cualquier funcionario y sujeto privado, que administre o custodie fondos públicos que sean de competencia institucional, información referente a la forma, las condiciones y el plazo razonables, así como los informes, datos y documentos para el cabal cumplimiento de su labor.
+La solicitud, en el caso de sujetos privados, será referente a la administración o custodia de fondos públicos de los entes y órganos de su competencia institucional.
+d) Solicitar, a funcionarios de cualquier nivel jerárquico, la colaboración, el asesoramiento y las facilidades, que demande el ejercicio de la auditoría interna.

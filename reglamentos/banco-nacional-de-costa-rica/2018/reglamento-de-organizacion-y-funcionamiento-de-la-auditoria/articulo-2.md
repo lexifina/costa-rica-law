@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. La aplicación del reglamento es de carácter obligatorio para todos los funcionarios de la Auditoría General del Banco Nacional de Costa Rica y para los funcionarios de la Administración Activa en lo que les corresponda.

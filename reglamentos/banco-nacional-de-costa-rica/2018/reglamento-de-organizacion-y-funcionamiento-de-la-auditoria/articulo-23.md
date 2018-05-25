@@ -1,0 +1,4 @@
+Artículo 23.—Rol de auditoría como tercera línea de defensa. La Auditoría General, en su rol de tercera línea de defensa, proporciona, los organismos de gobierno corporativo y a la administración, un aseguramiento comprensivo, basado en el más alto nivel de independencia y objetividad dentro de la organización; en relación con la primera y segunda línea de defensa. Este aseguramiento considera:
+• Un amplio rango de objetivos, incluyendo la eficiencia y efectividad de las operaciones, salvaguarda de activos, confiabilidad e integridad de los procesos y cumplimiento con leyes, regulaciones, políticas, procedimientos y contratos.
+• Evaluación de la gestión de riesgos y control interno, que incluyen: ambiente de control interno, todos los componentes del marco de gestión de riesgos de la organización, información y comunicación, y monitoreo.
+• La entidad en su conjunto: estrategia, procesos, estructura, recursos y tecnología.

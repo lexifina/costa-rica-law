@@ -1,0 +1,1 @@
+Artículo 19.—Delegación de funciones . El auditor general puede delegar sus funciones en el personal a cargo, utilizando criterios de idoneidad, conforme con lo establecido por la Ley General de Administración Pública.
