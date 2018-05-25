@@ -1,0 +1,2 @@
+Artículo 11.—Exoneración de equipos para ensamblaje y producción de vehículos eléctricos. Los equipos para ensamblaje y producción de los vehículos eléctricos estarán exentos del Impuesto General sobre las ventas, siempre y cuando el valor agregado nacional de dichos vehículos sea por lo menos de un veinte por ciento (20%).
+Los equipos para ensamblaje y producción de vehículos eléctricos que podrán ser exonerados serán aquellos que el MINAE y el Ministerio de Hacienda definan en un Reglamento, el cual deberá ser suscrito por los jerarcas de ambos Ministerios.

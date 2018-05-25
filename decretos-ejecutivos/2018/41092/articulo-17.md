@@ -1,0 +1,2 @@
+Artículo 17.—Revisión en el Departamento de Gestión de Exenciones. 1. El Departamento de Gestión de Exenciones revisará la conformidad de la solicitud con la legislación respectiva y emitirá la autorización de exención en un plazo máximo de un mes natural.
+2. En caso de encontrarse inconsistencias en la solicitud, se devolverá la misma al interesado o bien al Órgano Fiscalizador de Revisión Técnica del Consejo de Seguridad Vial para aclarar o adicionar la información consignada, dentro de un plazo máximo de 10 días hábiles.

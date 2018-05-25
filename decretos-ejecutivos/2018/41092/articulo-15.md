@@ -1,0 +1,2 @@
+Artículo 15.—Constancia de vehículo eléctrico. El Órgano Fiscalizador de Revisión Técnica del Consejo de Seguridad Vial, recibirá las solicitudes de exención vía Internet y revisará que los vehículos a exonerar sean eléctricos o cero emisiones y nuevos, conforme a la Ley N° 9518, con base en la competencia establecida en el inciso g) del artículo 5 de la mencionada Ley, y emitirá la constancia en un plazo no mayor a 10 días hábiles.
+Para poder emitir la constancia, se podrá solicitar al interesado la documentación necesaria que demuestre la condición de vehículo eléctrico.

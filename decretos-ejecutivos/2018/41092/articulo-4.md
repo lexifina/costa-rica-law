@@ -1,0 +1,8 @@
+Artículo 4°—Incentivos económicos a los vehículos eléctricos.
+1. La Ley N° 9518 establece los siguientes incentivos económicos:
+a) Los vehículos eléctricos, como tales (condición objetiva), están exonerados del impuesto general sobre las ventas (Ley N° 6826), en la proporción que más adelante se indica en el artículo 5° de este Reglamento.
+b) Los vehículos eléctricos, como tales (condición objetiva), están exonerados del impuesto selectivo de consumo (Ley N° 4961), en la proporción que más adelante se indica en el artículo 5° de este Reglamento.
+c) Los vehículos eléctricos como tales (condición objetiva), están exonerados del impuesto sobre el valor aduanero (Ley N° 6879 modificada por la Ley N° 6946), en la proporción que más adelante se indica en el artículo 5° de este Reglamento.
+d) Los vehículos eléctricos, como tales (condición objetiva), están exentos del impuesto a la propiedad de vehículos, por un plazo de cinco arios, bajo la gradualidad que se indica en el artículo 6° de este Reglamento.
+2. Los incisos a), b) y c) del presente artículo aplicarán para los vehículos eléctricos nuevos que se importen a partir de la entrada en vigor de la Ley N° 9518, durante un plazo de cinco arios que vence el 6 de febrero de 2023.
+3. El inciso d) del presente artículo aplicará para los vehículos eléctricos nuevos que se importen a partir de la entrada en vigor de la Ley N° 9518, así como también para los vehículos eléctricos que se hayan importado previamente a la vigencia de la ley antes mencionada, pero en el porcentaje de exoneración que corresponda según lo mencionado en el artículo 6° de este Reglamento.

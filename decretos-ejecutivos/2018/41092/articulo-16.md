@@ -1,0 +1,1 @@
+Artículo 16.—Traslado de la solicitud al Departamento de Gestión de Exenciones. Una vez comprobada fehacientemente la condición del vehículo conforme a la Ley N° 9518, se trasladará la solicitud al Departamento de Gestión de Exenciones para la revisión correspondiente.
