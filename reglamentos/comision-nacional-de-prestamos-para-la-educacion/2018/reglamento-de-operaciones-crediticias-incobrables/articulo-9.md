@@ -1,0 +1,1 @@
+Artículo 9º—Restricciones para prestatarios y fiadores de operaciones crediticias que sean declaradas incobrables: El prestatario y los fiadores de una operación crediticia declarada incobrable no podrán optar en un futuro a un nuevo crédito o fianza ante CONAPE, para lo cual los sistemas automatizados deberán disponer de los mecanismos de identificación necesarios.

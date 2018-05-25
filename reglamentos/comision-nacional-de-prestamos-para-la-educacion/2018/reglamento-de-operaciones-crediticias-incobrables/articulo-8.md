@@ -1,0 +1,1 @@
+Artículo 8º—Suspensión de declaratoria de incobrables: Si una operación fuera declarada incobrable y en fecha posterior a su declaratoria, la Institución recibe un pago parcial o total del saldo adeudado, la Sección de Cobro está facultada para reversar el registro contable realizado y proceder a realizar los ajustes necesarios en la base de datos automatizada.

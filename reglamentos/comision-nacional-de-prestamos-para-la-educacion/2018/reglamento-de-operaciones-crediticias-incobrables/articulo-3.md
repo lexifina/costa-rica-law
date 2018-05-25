@@ -1,0 +1,1 @@
+Artículo 3º—Órgano Competente: La declaratoria de incobrabilidad de las deudas de las operaciones crediticias en estado de morosidad en cobro administrativo o cobro judicial, serán aprobadas por el Comité de Cobro.
