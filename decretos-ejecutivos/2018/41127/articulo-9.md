@@ -1,0 +1,3 @@
+Artículo 9º—Interés público, financiamiento y apoyo de otras instituciones. Se declara de interés público el establecimiento y operación del SINAMECC.
+Las entidades públicas y privadas, incluyendo organismos nacionales e internacionales podrán, en la medida de sus posibilidades y dentro de la normativa jurídica vigente, contribuir con el aporte de recursos económicos, logísticos y técnicos para el funcionamiento del SINAMECC.
+Las diferentes instituciones públicas que tengan el mandato legal de generar información relacionada con el ámbito del SLNAMECC, velarán para que se incluya en sus planes anuales operativos y otras estrategias de planificación, el financiamiento de las actividades relacionadas con su participación y apoyo al SINAMECC.
