@@ -1,0 +1,1 @@
+Artículo 2º—Elimínese los artículos 60, 65, 70, 83, 84, 85, 86, 87, 88, 89, 90, 93, 94, 95, 96, 97, 98, 99 y 102 del Reglamento Autónomo de Servicios del Registro Nacional- Decreto Ejecutivo N° 38400-JP.
