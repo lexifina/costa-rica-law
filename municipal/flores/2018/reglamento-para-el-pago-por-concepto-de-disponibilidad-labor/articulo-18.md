@@ -1,0 +1,2 @@
+Artículo 18.—Rigor: Rige a partir de su publicación.0000
+El suscrito Alcalde Gerardo Rojas Barrantes sanciona y ordena la publicación del presente Reglamento conforme lo dispone el artículo 17 inciso d) del Código Municipal. Dado en la ciudad de San Joaquín de Flores, palacio municipal, al ser las catorce horas del día catorce de mayo de dos mil dieciocho. Publíquese una vez en el Diario Oficial La Gaceta.

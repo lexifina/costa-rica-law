@@ -1,0 +1,1 @@
+Artículo 15.—Honorarios Profesionales: Los beneficios otorgados a los funcionarios (as) municipales por medio de la Disponibilidad, no impiden de ninguna forma, modo o manera que perciban sus respectivos honorarios profesionales, siempre y cuando dichos honorarios deban ser cancelados por terceras personas.

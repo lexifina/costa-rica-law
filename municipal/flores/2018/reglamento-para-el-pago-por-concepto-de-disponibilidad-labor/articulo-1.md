@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE FLORES
+CANTÓN DE FLORES
+El Concejo Municipal de la Municipalidad de Flores informa que mediante acuerdo N° 1518-18 de la sesión ordinaria N° 116- 2018 del 16 de enero 2018. Se aprueba definitivamente, el siguiente
+REGLAMENTO PARA EL PAGO POR CONCEPTO
+DE DISPONIBILIDAD LABORAL
+Artículo 1º—Definición: Se entenderá por disponibilidad laboral, la actitud expectante y permanente del servidor municipal que, por ser inherente al puesto que ocupa en razón del interés superior del servicio público, debe eventualmente realizar funciones fuera de la jornada ordinaria de trabajo o en días inhábiles, si así lo requiere la Municipalidad para el cabal cumplimiento de sus fines, todo ello, conforme a sus funciones y las necesidades reales del servicio, actividad o función de que se trate. En todos los casos en que así se establezca y se haya suscrito el contrato respectivo, el funcionario o servidor deberá mantenerse localizable.
