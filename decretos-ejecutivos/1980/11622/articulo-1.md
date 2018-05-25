@@ -1,4 +1,6 @@
+(Derogado)
 11622-G
+(Este decreto ejecutivo fue derogado por el artículo 1° del decreto ejecutivo N° 41180 del 25 de mayo del 2018)
 RODRIGO CARAZO ODIO
 PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE GOBERNACIÓN Y POLICÍA,
 Considerando:
