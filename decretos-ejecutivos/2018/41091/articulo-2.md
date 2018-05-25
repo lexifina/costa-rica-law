@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Todas las dependencias del Sector Público serán responsables de la implementación de la Política Nacional de Adaptación al Cambio Climático dentro de su ámbito legal respectivo, y en particular las instituciones de los ejes: Turismo, Recurso Hídrico, Biodiversidad y Bosque, Agropecuario y Pesca, Salud, Infraestructura y Energía.
