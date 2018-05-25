@@ -1,0 +1,1 @@
+Artículo 7º—Del monto de los fondos de Caja Chica. Los montos de los fondos serán actualizados anualmente y se determinarán según el análisis realizado de los índices del Banco Central mediante Resolución de Gerencia General.

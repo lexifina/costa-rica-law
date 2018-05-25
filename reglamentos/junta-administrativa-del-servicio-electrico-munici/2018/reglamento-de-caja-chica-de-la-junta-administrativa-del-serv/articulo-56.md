@@ -1,0 +1,1 @@
+Artículo 56. —Monto máximo de adelantos para bienes y servicios. Las compras que se hagan por el sistema de fondos de trabajo, no podrán exceder el límite máximo aprobado por la Gerencia General, a quien compete también la ampliación o disminución de ese monto, previo estudio del Área de Servicios Financieros.

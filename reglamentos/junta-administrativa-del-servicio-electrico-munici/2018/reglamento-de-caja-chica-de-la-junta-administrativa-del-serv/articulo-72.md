@@ -1,0 +1,1 @@
+Artículo 72. —Emisión del cheque. El Departamento de Tesorería es el responsable de emitir el cheque de reintegro a favor del Funcionario Responsable, sellando los comprobantes con la indicación “Cancelado con Cheque Nº, previo al envío del cheque para su firma.

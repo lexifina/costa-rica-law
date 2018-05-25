@@ -1,0 +1,1 @@
+Artículo 73. —Custodia de documentos. El Departamento de Contabilidad es el responsable de custodiar los documentos que justificaron los reintegros de los fondos de trabajo, junto con la copia del cheque respectivo.

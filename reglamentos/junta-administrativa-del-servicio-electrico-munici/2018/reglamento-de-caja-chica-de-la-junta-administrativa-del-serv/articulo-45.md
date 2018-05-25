@@ -1,0 +1,1 @@
+Artículo 45. —Operación de caja chica por medio de un Sistema Integrado. La ejecución de las operaciones de caja chica y los tramites de reintegro pueden realizarse por medios electrónicos. En este caso el Jefe de Área de Servicios Financieros deberá comunicar las modificaciones efectuadas en los procedimientos de control.

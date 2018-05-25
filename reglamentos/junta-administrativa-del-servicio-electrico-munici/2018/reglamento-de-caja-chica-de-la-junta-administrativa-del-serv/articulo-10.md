@@ -1,0 +1,26 @@
+CAPÍTULO III
+Utilización de fondos de caja chica
+Artículo 10º—Utilización de fondos. Los fondos de caja chica, con excepción del denominado “Fondo de Relación con el Cliente” se utilizarán para girar adelantos de dinero en efectivo para las siguientes adquisiciones de escasa cuantía:
+a) Viáticos por concepto de gastos de traslado, alimentación y alojamiento, conforme a la reglamentación emitida por la Contraloría General de la República.
+b) Erogaciones por gastos en virtud de adquisición de materiales, útiles de oficina, accesorios, repuestos y herramientas menores. Es imprescindible que no haya existencia de los bienes en el Departamento Almacén, para lo cual se deberá contar en la solicitud con el sello de visto bueno de dicho departamento o correo electrónico que así lo demuestre.
+Además, el gestor de la compra, al momento de solicitar el adelanto, deberá aportar tres cotizaciones con el mismo objeto, las mismas especificaciones técnicas y la misma calidad, de las cuales el Encargado de Caja Chica, autorizará comprar la de menor precio. Se exceptúa lo anterior en el caso de imposibilidad material de conseguir las tres cotizaciones en un tiempo razonable o casos de urgencia, en cuya situación deberá contar la debida justificación y con el visto bueno del superior inmediato del gestor de la compra.
+c) Erogaciones por servicios, siempre y cuando sean esporádicos y justificados en virtud de su carácter de urgencia, hasta por un monto de un 20% sobre el fondo asignado.
+Se deberá contar con la aprobación de la Gerencia General, Subgerencia General o Jefe de Área respectivo.
+d) Productos alimenticios y servicios de alimentación para atender sesiones o reuniones de la Gerencia General, Subgerencia General y la Junta Directiva, reuniones con funcionarios de otras entidades, reuniones con funcionarios internos y eventos organizados con terceros para la atención de asuntos de interés para JASEC. En este caso consistirá en un refrigerio (café, té o refrescos con galletas o similar). Por excepción, cuando las circunstancias lo ameriten y se documente y justifique en forma escrita por el Gerente, se podrá brindar desayuno y/o almuerzo.
+e) Servicios de alimentación para la atención de eventos no programados y que estén fuera de la jornada ordinaria del funcionario, el Jefe inmediato podrá autorizar el pago de alimentación al personal según la hora, de manera que coincida con los tiempos usuales de alimentación (desayuno, almuerzo, cena) según lo definido por la Contraloría General de la República en su Reglamento de Viáticos en lo referido a periodos de tiempos aplicados. Se entenderá como evento no programado aquel que no fue previsto ni informado con al menos 12 horas de antelación.
+En lo que se refiere a los incisos d y e anteriores, debe entenderse que constituye un servicio para que el funcionario pueda cumplir en mejor forma su labor atendiendo órdenes del Jefe de Departamento, de Área o Director y que debe prevalecer el criterio de austeridad propio de una Institución de carácter público.
+f) Cancelación de renovaciones de licencias, para los funcionarios que en virtud de lo dispuesto por el artículo 32, inciso h) del Reglamento Autónomo de Trabajo de JASEC. Previa certificación de Administración de Activos, Mantenimiento de Edificios y Vehículos donde acredite que el funcionario conduce vehículos de JASEC del tipo de Licencia que se gestione.
+g) Cancelación de timbres, certificaciones registrales, impuestos o tasas municipales, como servicios de agua potable, recolección de basura, alcantarillado, servicios eléctricos, o cualquier otro servicio público. También se podrá cancelar cualquier otra certificación.
+h) Cancelación de peajes, parqueos y boletas de parquímetros.
+i) Suscripción de periódicos, revistas y en general cualquier medio de comunicación e información física o electrónica, que no exceda 10% sobre el fondo asignado, previo visto bueno del Director, Subgerente General o Gerente General.
+j) Pago de mensualidades o anualidades por afiliaciones de JASEC a organizaciones empresariales, que no exceda el 10% sobre el fondo asignado.
+k) Los costos de trámite de pasaporte, visa, vacuna, impuestos aeroportuarios, etc., cumpliéndose para ello con los trámites internos dispuestos por los diferentes departamentos.
+l) Para la cancelación de los gastos de autobús o taxi.
+Para la cancelación de los gastos de autobús o taxi.
+El uso del servicio de taxi, procede previa autorización, en los siguientes casos:
+- Cuando resulte más conveniente a la Institución, pues el ahorro en tiempo es más significativo que el exceso de la tarifa entre el taxi y el medio de transporte colectivo.
+- Cuando se trasieguen valores institucionales.
+- Cuando se requiera iniciar una gira en un horario donde no haya servicio de transporte público o el mismo sea muy esporádico.
+- Cuando por razones laborales, la salida del centro de trabajo sea después de las 8:00 p. m. y ya no se preste el servicio de transporte público colectivo o que el mismo sea muy esporádico.
+- Por razones de seguridad personal de los colaboradores.
+El requerimiento de presentar tres cotizaciones queda excluido en los incisos a), c), d), e), f), g), h), i), j), k), l).

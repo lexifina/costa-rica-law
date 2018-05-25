@@ -1,0 +1,4 @@
+Artículo 14. —Cliente legitimado a solicitar el reintegro. Todo reintegro que se haga a un cliente, debe hacerse a favor de la persona física o jurídica a nombre de quién JASEC, emitió la factura o recibo por los servicios cobrados. En caso que el cliente, no sea el mismo que canceló el servicio, y si éste requiere la devolución, debe probar ante el Área Operación Comercial la condición, por alguno de los siguientes medios:
+- Certificación de la Delegación de la Guardia Civil del lugar en que reside o residía el reclamante al momento de la lectura.
+- Autorización debidamente autenticada del cliente o suscriptor, ya sea persona física o jurídica. En caso de persona jurídica, debe presentar una fotocopia de la personería jurídica, actualizada, o
+- Contrato de arrendamiento y fotocopia de la cédula.

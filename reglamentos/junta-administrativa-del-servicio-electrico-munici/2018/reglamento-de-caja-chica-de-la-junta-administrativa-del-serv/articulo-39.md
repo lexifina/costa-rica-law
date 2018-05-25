@@ -1,0 +1,5 @@
+CAPÍTULO VIII
+Reintegros de los fondos de caja chica
+Artículo 39. —Reintegros. El reintegro del fondo de caja chica debe solicitarse por cualquier porcentaje y antes de agotar el 50% del monto total, procurando la existencia de efectivo al usuario. Queda entendido que para el cierre mensual se deberá de proceder con liquidar tres días hábiles anteriores al fin de mes. Para el cierre del período natural, todos los encargados de los fondos de caja chica deben solicitar el reintegro a más tardar en la primera quincena del mes de diciembre. No podrán autorizarse adelantos a partir de la fecha de cierre anual del mes de diciembre que defina la Tesorería.
+No podrán autorizarse adelantos a partir de esa fecha ni reintegrar nuevos gastos, salvo casos especiales que autoricen debidamente justificados la Gerencia, Auditor Interno, Subgerencia, Directores de División y Jefes de Área.
+En todo caso, el gasto que se realice debe necesariamente quedar registrado en el período presupuestario del año siguiente.

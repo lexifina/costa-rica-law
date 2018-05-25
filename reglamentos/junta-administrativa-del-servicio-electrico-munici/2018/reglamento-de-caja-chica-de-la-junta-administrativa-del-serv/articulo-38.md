@@ -1,0 +1,2 @@
+Artículo 38.—Liquidación de adelantos. En toda liquidación de adelantos, se debe adjuntar una de las copias del Adelanto, indicando el número del comprobante de caja chica, con el cual se liquidó. La copia adicional del vale de adelanto debe ser custodiada por el encargado del fondo, manteniendo un control del consecutivo.
+Asimismo, a toda factura se le debe indicar el número de “Comprobante de pago por Caja Chica” que se está liquidando y viceversa.

@@ -1,0 +1,1 @@
+Artículo 76. —Liquidación de adelantos. En caso de no presentarse el funcionario a liquidar el adelanto, el encargado del Fondo deberá comunicar por escrito al Jefe de Área Servicios Financieros, quien deberá proceder conforme a lo dispuesto en el artículo 17 del presente Reglamento.

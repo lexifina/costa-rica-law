@@ -1,0 +1,1 @@
+Artículo 47. —Adquisición de bienes y servicios. Para protección de la institución y de los administradores de los fondos de trabajo, es indispensable normar la adquisición de bienes y servicios por medio de estos fondos, de tal manera que la gestión sea expedita dentro de un marco normativo afín con las regulaciones institucionales.

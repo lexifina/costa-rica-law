@@ -1,0 +1,2 @@
+Artículo 28. —Vale de adelanto. Toda solicitud de dinero por fondos de caja chica, deberá realizarse mediante el formulario original denominado “Vale de Adelanto por Fondo de Caja Chica”. Estos formularios deberán estar debidamente prenumerados, con identificación del fondo al cual pertenecen. No podrán utilizarse formularios de un Fondo, para adelantos de otro.
+Los formularios que deban anularse, en virtud de error humano en su confección, deben de adjuntarse en los documentos de la liquidación.
