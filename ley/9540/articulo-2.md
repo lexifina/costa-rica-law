@@ -1,0 +1,2 @@
+ARTICULO 2- Se autoriza a la Municipalidad de Barva de Heredia, cédula de persona jurídica número tres cero uno cuatro cero cuatro dos cero ocho nueve, (N.° 3014042089) para que done la finca, descrita anteriormente, a la Asociación Administradora del Acueducto de Puente Salas de San Pedro de Barva, provincia de Heredia, cédula
+jurídica número tres cero cero dos dos cinco siete cinco uno tres (N.° 3002257513), para que se destine exclusivamente para terminar la construcción del edificio de la Asada Puente Salas.
