@@ -1,1 +1,3 @@
-Artículo 116. — Cada municipalidad deberá regirse conforme a los parámetros generales establecidos para la Carrera Administrativa y definidos en este capítulo. Los alcances y las finalidades se fundamentarán en la dignificación del servicio público y el mejor aprovechamiento del recurso humano, para cumplir con las atribuciones y competencias de las municipalidades.
+Artículo 116.—Los compromisos efectivamente adquiridos que queden pendientes del período que termina pueden liquidarse o reconocerse dentro de un término de seis meses, sin que la autorización deba aparecer en el nuevo presupuesto vigente.
+(Así reformado por el artículo 17 de la ley General de transferencia de competencias del Poder Ejecutivo a las Municipalidades, N° 8801 del 28 de abril de 2010)
+(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 107 al 116)

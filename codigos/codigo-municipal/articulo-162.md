@@ -1,4 +1,6 @@
-Artículo 162.-
-Las decisiones de los funcionarios o funcionarias municipales que no dependan directamente del concejo tendrán los recursos de revocatoria ante el órgano que lo dictó y apelación para ante la Alcaldía municipal, los cuales deberán interponerse dentro del quinto día; podrán fundamentarse en motivos de ilegalidad o inoportunidad y suspenderán la ejecución del acto.
-Cualquier decisión de la Alcaldía municipal, emitida directamente o conocida en alzada, contra lo resuelto, por algún órgano municipal jerárquicamente inferior, estará sujeta a los recursos de revocatoria ante la misma Alcaldía y apelación para ante el Tribunal Contencioso-Administrativo, los cuales deberán interponerse dentro del quinto día; podrán fundamentarse en motivos de ilegalidad y no suspenderán la ejecución del acto, sin perjuicio de que el superior o el mismo órgano que lo dictó pueda disponer la implementación de alguna medida cautelar al recibir el recurso. En cuanto al procedimiento y los plazos para la remisión del recurso de apelación ante el superior, se aplicarán las mismas disposiciones del artículo 156 de este Código.
-(Así reformado por el artíclo 1° de la Ley N° 8773 del 1 de setiembre de 2009)
+TÍTULO VI
+Recursos contra los actos municipales
+CAPÍTULO I
+Recursos contra los acuerdos del Concejo
+Artículo 162. — En la forma prevista en el código, los concejales podrán solicitar revisión de los acuerdos municipales tomados por el Concejo, y el alcalde municipal podrá interponer veto. Por parte de los interesados, cabrán los recursos ordinarios de revocatoria y apelación, el extraordinario de revisión y ejercer las acciones jurisdiccionales reguladas por las leyes.
+(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 153 al 162)

@@ -1,1 +1,2 @@
-Artículo 141. — Cuando el resultado de la evaluación y calificación de servicios anual del servidor sea Regular dos veces consecutivas el hecho, se considerará falta grave.
+Artículo 141. — Previo informe y consulta de permutas y traslados horizontales de los servidores con sus jefes inmediatos, el alcalde podrá autorizar estos movimientos, siempre que no les causen evidente perjuicio y cuando satisfaga una necesidad real de la municipalidad.
+(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 132 al 141)

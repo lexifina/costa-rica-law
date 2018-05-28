@@ -1,1 +1,8 @@
-Artículo 169. — El Comité cantonal funcionará con el reglamento que dicte la respectiva municipalidad, el cual deberá considerar, además, las normas para regular el funcionamiento de los comités comunales y la administración de las instalaciones deportivas municipales.
+Artículo 169 — No estarán sujetos al veto los siguientes acuerdos:
+a) Los no aprobados definitivamente.
+b) Aquellos en que el alcalde municipal tenga interés personal, directo o indirecto.
+c) (Derogado por el artículo 202, inciso 5) de la Ley N° 8508 de 28 de abril de 2006, Código Procesal Contencioso-Administrativo).
+d) Los que deban aprobar la Contraloría General de la República o la Asamblea Legislativa o los autorizados por esta.
+e) Los apelables ante la Contraloría General de la República.
+f) Los de mero trámite o los de ratificación, confirmación o ejecución de otros anteriores.
+(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 160 al 169)

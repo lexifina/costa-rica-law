@@ -1,1 +1,2 @@
-Artículo 81. — La licencia municipal referida en el artículo anterior solo podrá ser denegada cuando la actividad sea contraria a la ley, la moral o las buenas costumbres, cuando el establecimiento no haya llenado los requisitos legales y reglamentarios o cuando la actividad, en razón de su ubicación física, no esté permitida por las leyes o, en su defecto, por los reglamentos municipales vigentes.
+Artículo 81. — Los tributos municipales entrarán en vigencia, previa aprobación legislativa, una vez publicados en La Gaceta.
+(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 72 al 81)

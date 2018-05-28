@@ -1,3 +1,6 @@
-TÍTULO VIII
-Concejos municipales de distrito
-Artículo 173. —( Nota de Sinalevi: Este artículo fue adicionado mediante el inciso a) del artículo único de la Ley N° 7812 del 8 de julio de 1998. Posteriormente fue ANULADO por Resolución de la Sala Constitucional N° 5445-99 de las 14:30 horas del 14 de julio de 1999, adicionada por las sentencias números 06218-99, de las 15:21 horas del 10 de agosto de 1999, 09811 de las 15:21 horas del 14 de diciembre de 1999, 07728-00 de las 14:45 horas del 30 de agosto de 2000 y 8861-000 de las 14:30 horas del 11 de octubre de 2000. Por último la adición practicada por la Ley N° 7812 del 8 de julio de 1998, fue derogada por el artículo 13 de la Ley N° 8173 del 7 de diciembre del 2001, Ley General de Concejos Municipales de Distrito)
+TÍTULO VII
+Los Comités Cantonales de Deportes
+CAPÍTULO ÚNICO
+Artículo 173. — En cada cantón, existirá un comité cantonal de deportes y recreación, adscrito a la municipalidad respectiva; gozará de personalidad jurídica instrumental para desarrollar planes, proyectos y programas deportivos y recreativos cantonales, así como para construir, administrar y mantener las instalaciones deportivas de su propiedad o las otorgadas en administración. Asimismo, habrá comités comunales de deportes y recreación, adscritos al respectivo comité cantonal.
+(Así reformado por el artículo único de la Ley N° 8678 del 18 de noviembre de 2008, “Reforma de los artículos 164 y 170 del Código Municipal, Ley N° 7794, atribuciones a los Comités Cantonales de Deportes, Organizaciones Deportivas, Juntas de Educación de las escuelas públicas y las Juntas Administrativas de Colegios Públicos”)
+(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 164 al 173)

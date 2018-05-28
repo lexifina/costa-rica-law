@@ -1,7 +1,8 @@
 Artículo 4.-La municipalidad posee la autonomía política, administrativa y financiera que le confiere la Constitución Política. Dentro de sus atribuciones se incluyen las siguientes:
 a) Dictar los reglamentos autónomos de organización y de servicio, así como cualquier otra disposición que autorice el ordenamiento jurídico.
 b) Acordar sus presupuestos y ejecutarlos.
-c) Administrar y prestar los servicios públicos municipales.
+c) Administrar y prestar los servicios públicos municipales, así como velar por su vigilancia y control.
+(Así reformado el inciso anterior por el artículo 2° de la ley N° 9542 "Ley de Fortalecimiento de la Policía Municipal" del 23 de abril del 2018)
 d) Aprobar las tasas, los precios y las contribuciones municipales, así como proponer los proyectos de tarifas de impuestos municipales.
 e) Percibir y administrar, en su carácter de administración tributaria, los tributos y demás ingresos municipales.
 f) Concertar, con personas o entidades nacionales o extranjeras, pactos, convenios o contratos necesarios para el cumplimiento de sus funciones.

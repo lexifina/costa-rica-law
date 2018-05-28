@@ -36,5 +36,7 @@ q) Constituir, por iniciativa del alcalde municipal, establecimientos públicos,
 (Corrida la numeración del inciso anterior por el artículo 1° de la ley N° 8822 del 29 de abril de 2010, que lo traspaso del antiguo inciso p) al inciso q) actual)
 r) Autorizar las membresías ante entidades nacionales y extranjeras, públicas o privadas, que estime pertinentes para beneficio del cantón.
 (Corrida la numeración del inciso anterior por el artículo 1° de la ley N° 8822 del 29 de abril de 2010, que lo traspaso del antiguo inciso q) al inciso r) actual)
-s) Las demás atribuciones que la ley señale expresamente.
-(Corrida la numeración del inciso anterior por el artículo 1° de la ley N° 8822 del 29 de abril de 2010, que lo traspaso del antiguo inciso r) al inciso s) actual)
+s) Acordar, si se estima pertinente, la creación del servicio de policía municipal dentro de su jurisdicción territorial, su respectivo reglamento y su partida presupuestaria.
+(Así adicionado el inciso anterior por el artículo 3° de la ley N° 9542 "Ley de Fortalecimiento de la Policía Municipal" del 23 de abril del 2018)
+t) Las demás atribuciones que la ley señale expresamente.
+(Corrida la numeración del inciso anterior por el artículo 3° de la ley N° 9542 "Ley de Fortalecimiento de la Policía Municipal" del 23 de abril del 2018, que lo traspasó del antiguo inciso s) al t))

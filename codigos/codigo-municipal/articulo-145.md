@@ -1,5 +1,2 @@
-Artículo 145. —El alcalde podrá conceder permisos sin goce de salario hasta por seis meses, prorrogables por una sola vez por un plazo igual, previa consulta del solicitante y la verificación de que no se perjudicará el funcionamiento municipal.
-Quien haya disfrutado un permiso sin goce de salario no podrá obtener otro si no ha transcurrido un período igual al doble del tiempo del permiso anterior concedido.
-Para obtener un permiso de esta naturaleza, el servidor deberá tener, como mínimo, un año de laborar para la municipalidad.
-A excepción de lo antes señalado, si un funcionario municipal fuera nombrado en un puesto de elección popular o de confianza, podrá otorgársele un permiso sin goce de salario hasta por cuatro años, prorrogable hasta por un plazo igual.
-(Así reformado por el artículo único de la ley N° 9080 del 12 de octubre de 2012)
+Artículo 145. — La evaluación o calificación anuales de servicios servirán como reconocimiento a los servidores, estímulo para impulsar mayor eficiencia y factor que debe considerarse para el reclutamiento y las elección, la capacitación, los ascensos, el aumento de sueldo, la concesión de permisos y las reducciones forzosas de personal.
+(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 136 al 145)

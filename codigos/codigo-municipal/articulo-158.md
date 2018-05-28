@@ -1,4 +1,10 @@
-Artículo 158. — El alcalde municipal podrá interponer el veto a los acuerdos municipales por motivos de legalidad u oportunidad, dentro delquinto día después de aprobado definitivamente el acuerdo.
-El alcalde municipal en el memorial que presentará, indicará las razones que lo fundamentan y las normas o principios jurídicos violados. La interposición del veto suspenderá la ejecución del acuerdo.
-En la sesión inmediatamente posterior a la presentación del veto, el concejo deberá rechazarlo o acogerlo. Si es rechazado, se elevará en alzada ante el Tribunal Contencioso-Administrativo, para que resuelva conforme a derecho.
-(Así reformado el párrafo anterior, por el artículo 202, inciso 4) de la Ley N° 8508 de 28 de abril de 2006, Código Procesal Contencioso-Administrativo).
+CAPÍTULO XII
+Sanciones
+Artículo 158. — Para garantizar el buen servicio podrá imponerse cualquiera de las siguientes sanciones disciplinarias, según la gravedad de la falta:
+a) Amonestación verbal: Se aplicará por faltas leves a juicio de las personas facultadas para imponer las sanciones, según lo determine el reglamento interno del trabajo.
+b) Amonestación escrita: Se impondrá cuando el servidor haya merecido dos o más advertencias orales durante un mismo mes calendario o cuando las leyes del trabajo exijan que se le aperciba por escrito antes del despido, y en los demás casos que determinen las disposiciones reglamentarias vigentes.
+c) Suspensión del trabajo sin goce de sueldo hasta por quince días: Se aplicará una vez escuchados el interesado y los compañeros de trabajo que él indique, en todos los casos en que, según las disposiciones reglamentarias vigentes, se cometa una falta de cierta gravedad contra los deberes impuestos por el contrato de trabajo.
+d) Despido sin responsabilidad patronal.
+Las jefaturas de los trabajadores podrán aplicar las sanciones previstas en los incisos a) y b) siguiendo el debido proceso. Enviarán copia a la Oficina de Personal para que las archive en el expediente de los trabajadores.
+La suspensión y el despido contemplados en los incisos c) y d), serán acordados por el alcalde, según el procedimiento indicado en los artículos siguientes.
+(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 149 al 158)

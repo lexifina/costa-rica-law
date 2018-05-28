@@ -1,1 +1,3 @@
-Artículo 65. — El funcionario o empleado que contraiga, en nombre de la municipalidad, deudas o compromisos de cualquier naturaleza, en contra de las leyes y los reglamentos, será solidariamente responsable, ante los acreedores correspondientes y, consecuentemente, sancionado conforme a las disposiciones del régimen disciplinario.
+Artículo 65- Funcionarios municipales
+Los miembros de la policía municipal deberán ser funcionarios de la respectiva municipalidad, nombrados para tal efecto.
+(Así adicionado por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018)

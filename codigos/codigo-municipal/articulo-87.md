@@ -1,2 +1,4 @@
-Artículo 87. — Las municipalidades podrán emitir bonos para financiarse. Estos títulos estarán sujetos a las reglas de la Comisión Nacional de Valores y estarán exentos del pago de toda clase de impuestos.
-El Estado, las entidades autónomas y semiautónomas, las empresas estatales estructuradas como sociedades anónimas y las municipalidades están facultadas para invertir en bonos municipales.
+Artículo 87. — La municipalidad podrá aceptar el pago de lascontribuciones por el arreglo o mantenimiento de los caminos vecinales, mediante la contraprestación de servicios personales u otro tipo de aportes.
+Las obras de mantenimiento de los caminos vecinales podrán ser realizadas directamente por los interesados, previa autorización de la municipalidad y con sujeción a las condiciones que ella indique. La municipalidad fijará el porcentaje del monto de inversión autorizado a cada propietario, beneficiado o interesado.
+La municipalidad autorizará la compensación de estas contribuciones con otras correspondientes al mismo concepto.
+(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 78 al 87)

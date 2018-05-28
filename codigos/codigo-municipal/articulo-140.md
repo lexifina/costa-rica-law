@@ -1,1 +1,2 @@
-Artículo 140. — El desacuerdo entre el jefe inmediato y el subalterno respecto al resultado de la evaluación y calificación de servicios, será resuelto por el alcalde municipal, previa audiencia a todas las partes interesadas.
+Artículo 140. — El servidor que concurse por oposición y cumpla con lo estipulado en el artículo 116 de esta ley, quedará elegible si obtuviere una nota mayor o igual a 70. Mantendrá esta condición por un lapso de un año, contado a partir de la comunicación.
+(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 131 al 140)

@@ -1,3 +1,3 @@
-CAPÍTULO II
-Los ingresos municipales
-Artículo 68. — La municipalidad acordará sus respectivos presupuestos, propondrá sus tributos a la Asamblea Legislativa y fijará las tasas y precios de los servicios municipales. Solo la municipalidad previa ley que la autorice, podrá dictar las exoneraciones de los tributos señalados.
+Artículo 68- Capacitación de la policía municipal
+Los integrantes de las policías municipales serán capacitados en la Academia Nacional de Policía, que debe estructurar lo pertinente para complementar la instrucción con temas de interés municipal, sin demérito de otra capacitación adicional específica que cada municipalidad facilite a estos funcionarios. Dichas capacitaciones deben tener una orientación civilista, democrática y defensora de los derechos humanos. El costo de la capacitación policial en dicha Academia correrá a cargo de cada municipalidad, según sus diferentes posibilidades de financiamiento.
+(Así adicionado por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018)

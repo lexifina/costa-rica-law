@@ -1,6 +1,6 @@
-Artículo 154. — Cualquier acuerdo del concejo municipal, emitido directamente o conociendo en alzada contra lo resuelto por algún órgano municipal jerárquicamente inferior, estará sujeto a los recursos de revocatoria y de apelación. De tales recursos quedan exceptuados los siguientes acuerdos del concejo municipal:
-a) Los que no hayan sido aprobados definitivamente.
-b) Los de mero trámite de ejecución, confirmación o ratificación de otros anteriores y los consentidos expresa o implícitamente.
-c) Los que aprueben presupuestos, sus modificaciones y adiciones.
-d) Los reglamentarios.
-(Así reformado por el artículo 202, inciso 2) de la Ley N° 8508 de 28 de abril de 2006, Código Procesal Contenciso-Administrativo).
+Artículo 154. —El alcalde podrá conceder permisos sin goce de salario hasta por seis meses, prorrogables por una sola vez por un plazo igual, previa consulta del solicitante y la verificación de que no se perjudicará el funcionamiento municipal.
+Quien haya disfrutado un permiso sin goce de salario no podrá obtener otro si no ha transcurrido un período igual al doble del tiempo del permiso anterior concedido.
+Para obtener un permiso de esta naturaleza, el servidor deberá tener, como mínimo, un año de laborar para la municipalidad.
+A excepción de lo antes señalado, si un funcionario municipal fuera nombrado en un puesto de elección popular o de confianza, podrá otorgársele un permiso sin goce de salario hasta por cuatro años, prorrogable hasta por un plazo igual.
+(Así reformado por el artículo único de la ley N° 9080 del 12 de octubre de 2012)
+(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 145 al 154)

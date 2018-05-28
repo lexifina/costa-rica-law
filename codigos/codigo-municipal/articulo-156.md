@@ -1,7 +1,14 @@
-Artículo 156.-
-Los recursos de revocatoria y apelación ante el concejo deberán interponerse, en memorial razonado, dentro del quinto día.
-La apelación podrá plantearse solo por ilegalidad; la revocatoria también podrá estar fundada en la inoportunidad del acto.
-El concejo deberá conocer la revocatoria en la sesión ordinaria siguiente a la presentación. La apelación será conocida por el Tribunal Superior Contencioso-Administrativo.
-Si la revocatoria con apelación subsidiaria no se resuelve transcurridos ocho días desde la sesión en que debió haberse conocido y el expediente no ha llegado a la autoridad que deberá conocer la apelación, el interesado o interesada podrá pedirle que ordene el envío y será prevenido de las sanciones del artículo 191 del Código Procesal Contencioso-Administrativo.
-Lo dispuesto en el párrafo anterior será aplicable en caso de que, interpuesta exclusivamente la apelación, el expediente no llegue dentro del octavo día de presentada la apelación a la autoridad competente para resolverla.
-(Así reformado por el artíclo 1° de la Ley N° 8773 del 1 de setiembre de 2009)
+CAPÍTULO X
+Deberes de los servidores municipales
+Artículo 156. — Son deberes de los servidores municipales:
+a) Respetar esta ley y sus reglamentos, así como cumplir las obligaciones vigentes en sus cargos.
+b) Prestar los servicios contratados con absoluta dedicación, intensidad y calidad, responsabilizándose de sus actos y ejecutando sus tareas y deberes con apego a los principios legales, morales y éticos.
+c) Guardar la consideración debida al público atenderlo con diligencia, afán de servicio y buen trato, de modo que no se origine queja justificada por mal servicio o atención .
+d) Garantizar, a la administración municipal, su compromiso en cuanto a la integridad y fidelidad en su trabajo la naturaleza que sea, en aras de lograr el cumplimiento de los objetivos y la misión de la municipalidad.
+e) Cuidar, resguardar, preservar y emplear debidamente los recursos públicos municipales.
+f) Observar en su trabajo buenas costumbres y disciplina, así como un trato respetuoso para sus compañeros de trabajo, superiores y autoridades.
+g) Responder por los daños o perjuicios que puedan causar sus errores o los actos manifiestamente negligentes propios de su responsabilidad.
+h) Guardar discreción sobre asuntos relacionados con su trabajo o vinculados con otras dependencias municipales, cuya divulgación pueda usarse contra los intereses de la municipalidad.
+i) Sugerir, en el momento oportuno y ante la instancia administrativo-jerárquica correspondiente, lo que considere adecuado para el mejor desempeño de sus labores.
+j) Desempeñar dignamente sus cargos.
+(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 147 al 156)

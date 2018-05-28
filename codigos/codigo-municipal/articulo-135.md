@@ -1,3 +1,3 @@
-CAPÍTULO VI
-Evaluación y calificación del servicio
-Artículo 135. — Los trabajadores municipales comprendidos en lapresente ley tendrán anualmente una evaluación y calificación de sus servicios. Para tal fin, la Oficina de Recursos Humanos confeccionará los formularios y los modificará si fuere necesario, previa consulta al alcalde municipal, a quien le corresponderá elaborarlos donde no exista esta Oficina.
+Artículo 135. — Las municipalidades mantendrán actualizado el respectivo Manual para el reclutamiento y selección, basado en el Manual General que fijará las pautas para garantizar los procedimientos, la uniformidad y los criterios de equidad que dicho manual exige, aunado al principio de igualdad y equidad entre los géneros. El diseño y la actualización serán responsabilidad de la Unión Nacional de Gobiernos Locales, mediante la instancia técnica que disponga para este efecto.
+( Así reformado por el aparte h) del artículo único de la Ley N ° 8679 del 12 de noviembre del 2008.)
+(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 126 al 135)
