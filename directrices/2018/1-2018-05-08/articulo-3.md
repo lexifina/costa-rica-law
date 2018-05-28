@@ -1,0 +1,1 @@
+Artículo 3.- El Grupo de Trabajo elaborará un programa de trabajo sobre el cual rendirá informes de avance periódicos ante el Ministro de Obras Públicas y Transportes, sobre lo estipulado en el siguiente artículo.
