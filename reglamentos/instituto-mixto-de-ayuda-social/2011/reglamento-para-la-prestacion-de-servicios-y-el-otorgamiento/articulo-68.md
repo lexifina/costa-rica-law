@@ -1,1 +1,0 @@
-Artículo 68.—De los requisitos mínimos de la liquidación: Las liquidaciones que presenten las organizaciones deberán de cumplir con todo lo estipulado en el Manual Único para el Otorgamiento de Beneficios Institucionales.

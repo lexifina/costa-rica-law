@@ -1,1 +1,0 @@
-Artículo 38.—De la renovación de un beneficio: Un beneficio podrá ser renovado a una persona física o jurídica cuando la situación que le dio origen persista y exista disponibilidad presupuestaria para ello y hasta por el límite de tiempo establecido al efecto en la Tabla de Límites de Autoridad Financiera por servicio, beneficio por año y funcionario competente.

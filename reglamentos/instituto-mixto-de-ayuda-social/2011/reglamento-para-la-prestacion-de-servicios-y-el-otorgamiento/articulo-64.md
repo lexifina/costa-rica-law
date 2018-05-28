@@ -1,4 +1,0 @@
-Artículo 64.—Del control de los recursos: El control de los recursos asignados se realizará de la siguiente manera:
-a) Los funcionarios competentes citados en el Artículo 7 y 8 deberán vigilar que se cumpla la normativa institucional, por el uso correcto de los recursos destinados al financiamiento de proyectos.
-b) Los funcionarios de las áreas social, administrativa y financiera del nivel regional y del área financiera del nivel central, verificarán según corresponda, el buen uso de los recursos mediante la revisión de la ejecución y liquidaciones que presenten las personas, familias, grupos o comunidades, de acuerdo con los requisitos y procedimientos establecidos.
-Cuando se detecte una inconsistencia en la administración de los recursos, ya sea por parte de los beneficiarios o de los mismos funcionarios, se deberá proceder según lo estipulado en la normativa vigente.

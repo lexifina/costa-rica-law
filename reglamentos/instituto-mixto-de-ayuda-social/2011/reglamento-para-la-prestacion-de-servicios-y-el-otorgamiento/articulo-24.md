@@ -1,1 +1,0 @@
-Artículo 24.—De la concesión de beneficios: Una persona, familia, grupo, Organización de Base o IBS, podrá recibir en forma simultánea o sucesiva más de un servicio y beneficio, siempre y cuando responda a un proceso de atención integral de sus necesidades o problemas, formulado por el funcionario competente.

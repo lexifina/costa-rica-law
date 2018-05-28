@@ -1,6 +1,0 @@
-Artículo 31.—De la verificación de requisitos: De previo a otorgar un beneficio, el órgano o funcionario(a) competente, verificará que el beneficiario(a) cumpla con los siguientes requisitos:
-1. Estar incorporado en el SIPO y tener la FIS o la FIG vigente, con excepción de lo establecido en el artículo 18.
-2. Clasificar dentro de los rangos de pobreza del SIPO u otro instrumento o metodología autorizados en este reglamento; encontrarse en una situación de pobreza o de riesgo y vulnerabilidad social, según el Informe Técnico Social o Estudio social realizado por los funcionarios competentes; o clasificar en una de las excepciones establecidas en el artículo 18.
-3. Haber cumplido con los requisitos y brindado la información y documentos requeridos para el otorgamiento de los beneficios, según lo estipulado en este reglamento y otra normativa institucional vigente.
-4. Firma previa de un convenio con las partes involucradas en la ejecución de un proyecto, cuando el servicio o beneficio así lo requiera.
-Los casos que sean atendidos por el Proceso de Referencias Especiales u otra unidad ejecutora del nivel central, en los cuales se aplique la FIS simplificada, ésta podrá ser remitida posteriormente al Área Regional de Desarrollo Social, a la ULDES o la oficina social local que corresponda, para que sea completada o actualizada.

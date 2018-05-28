@@ -1,5 +1,0 @@
-CAPÍTULO SEGUNDO
-De los funcionarios que participan en la
-recomendación y aprobación de los beneficios
-Artículo 7º—De la competencia para la recomendación y aprobación de beneficios: Serán competentes para recomendar y aprobar oportunamente beneficios los siguientes funcionarios u órganos: el Consejo Directivo, la Presidencia Ejecutiva, la Gerencia General, la Subgerencia de Desarrollo Social, el o la Gerente del Área Regional de Desarrollo Social, el responsable técnico de la ULDES, la Jefatura del Departamento de Instituciones de Bienestar Social, el profesional del Proceso de Referencias Especiales (PRE), los coordinadores de programas o proyectos sociales del nivel central, los profesionales o técnicos ejecutores de la ULDES, los profesionales del área social de otras unidades de la Institución, que a solicitud de la Dirección Superior apoyen la ejecución de los programas sociales y los profesionales del área social de otras entidades públicas y Organizaciones No Gubernamentales autorizados mediante convenio.
-Todos de acuerdo con los Límites de Autoridad Financiera por Servicio y Beneficio debidamente aprobados.

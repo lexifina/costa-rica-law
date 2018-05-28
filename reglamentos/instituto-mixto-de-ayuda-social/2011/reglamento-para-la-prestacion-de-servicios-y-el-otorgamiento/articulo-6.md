@@ -1,1 +1,0 @@
-Artículo 6º—De los Límites de Autoridad Financiera por beneficios: La Subgerencia de Desarrollo Social será la unidad administrativa responsable de aprobar, con la recomendación de Planificación Institucional y la Subgerencia de Soporte Administrativo, los Límites de Autoridad Financiera por tipo de beneficio, según nivel jerárquico.

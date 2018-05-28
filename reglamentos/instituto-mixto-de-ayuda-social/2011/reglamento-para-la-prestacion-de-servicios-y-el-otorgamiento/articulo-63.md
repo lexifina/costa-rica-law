@@ -1,1 +1,0 @@
-Artículo 63.—De la participación de las comunidades en el diagnostico, planificación, ejecución, seguimiento y control de los programas y proyectos del IMAS: Las comunidades beneficiadas participarán conjuntamente con las unidades operativas en el diagnostico, planificación, ejecución, seguimiento y control de los programas y proyectos del IMAS.

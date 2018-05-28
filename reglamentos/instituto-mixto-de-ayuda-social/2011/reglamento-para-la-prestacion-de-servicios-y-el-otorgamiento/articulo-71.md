@@ -1,1 +1,0 @@
-Artículo 71.—De la responsabilidad administrativa: El incumplimiento de las disposiciones del presente Reglamento, tanto por los funcionarios del IMAS y otras entidades autorizadas por convenio, como por los beneficiarios, los hará incurrir en responsabilidad administrativa, civil y penal, según lo que corresponda y lo establecido en el marco normativo vigente.

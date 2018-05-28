@@ -1,3 +1,0 @@
-Artículo 39.—De la suspensión de los recursos: En el caso de que se haya planteado una denuncia en sede penal o durante el curso del procedimiento ordinario, el IMAS podrá suspender temporalmente el giro de los recursos a los beneficiarios, ONG y/o IBS, hasta tanto no se emita la resolución final, con amplia garantía del debido proceso.
-Previo a la suspensión temporal de recursos, el IMAS deberá valorar por medio de la respectiva unidad ejecutora, alternativas de atención a la población beneficiaria; a efecto de no lesionar la continuidad en el servicio que se presta.
-Lo anterior, sin perjuicio de la protección de los intereses de los beneficiarios y la eficiencia y eficacia en la emisión de la correspondiente resolución de suspensión de giro de recursos.

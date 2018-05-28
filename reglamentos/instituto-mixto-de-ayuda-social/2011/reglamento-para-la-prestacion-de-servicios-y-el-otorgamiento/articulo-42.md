@@ -1,9 +1,0 @@
-Artículo 42.—De los derechos de las Instituciones de Bienestar Social: Una Organización No Gubernamental de Bienestar Social tendrá los siguientes derechos:
-1. Acceso a los recursos de la Institución de acuerdo con el contenido y la disponibilidad presupuestaria de cada año, tanto de recursos ordinarios, extraordinarios, modificaciones presupuestarias y donaciones en especie, toda vez que haya cumplido con los requerimientos estipulados para ello y que ejecute programas y proyectos acordes con las políticas e intereses institucionales.
-2. Optar por recursos de otros entes públicos concedentes, toda vez que cuenten con la declaratoria de Institución de Bienestar Social, previo cumplimiento de las disposiciones emanadas de esta Área.
-3. Recibir dirección técnica de parte del IMAS para la adecuada marcha de sus programas y proyectos, a nivel técnico, legal, administrativo, financiero y operativo.
-4. Brindar sus aportes al IMAS y contribuir a identificar las mejores alternativas para mejorar la eficiencia y la eficacia del servicio que se brinda a la población beneficiaria.
-5. En caso de imposibilidad tendrá derecho a no aceptar las referencias de beneficiarios del IMAS, para lo cual deberá enviar una nota o informe explicando las razones por las cuales no le es posible atender la solicitud de la Institución.
-6. Plantear ante las autoridades superiores o Contraloría de Servicios la denuncia correspondiente, cuando el Departamento de Instituciones de Bienestar Social no realice la devolución de las liquidaciones respectivas en el término señalado en el convenio.
-7. Conocer los informes elaborados por el personal del Departamento de Instituciones de Bienestar Social en relación con el funcionamiento de la I.B.S.
-8. A que se le aplique el debido proceso, en caso de incumplimiento por parte de la I.B.S. de los términos y estipulaciones del convenio suscrito con el IMAS.

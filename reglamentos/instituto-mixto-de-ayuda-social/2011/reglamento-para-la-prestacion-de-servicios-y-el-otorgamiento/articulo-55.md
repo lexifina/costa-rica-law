@@ -1,1 +1,0 @@
-Artículo 55.—De los condicionamientos. El otorgamiento de un beneficio, en los casos en que proceda, estará condicionado a la participación del beneficiario, en un programa institucional que favorezca su desarrollo humano.

@@ -1,1 +1,0 @@
-Artículo 22.—Del giro de los recursos: En el caso de aquellos servicios y beneficios que requieran para su ejecución de la firma de un convenio, el giro de los recursos estará condicionado a la respectiva constancia de legalidad emitida y firmada por el funcionario competente designado por la Asesoría Jurídica Institucional.

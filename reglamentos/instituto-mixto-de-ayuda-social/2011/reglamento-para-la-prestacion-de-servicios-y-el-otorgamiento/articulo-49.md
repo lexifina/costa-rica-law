@@ -1,1 +1,0 @@
-Artículo 49.—De la participación del IMAS en los Comités Regionales, Municipales y Locales de Emergencias: El IMAS participará en los Comités Regionales, Municipales y Locales de Emergencia. La representación en estos comités recaerá en el responsable del Área Regional de Desarrollo Social u otros funcionarios designados.

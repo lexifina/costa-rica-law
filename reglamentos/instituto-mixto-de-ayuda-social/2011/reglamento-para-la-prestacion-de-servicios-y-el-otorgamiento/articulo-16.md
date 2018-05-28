@@ -1,3 +1,0 @@
-CAPÍTULO CUARTO
-De los sujetos del servicio
-Artículo 16.—De la orientación de los programas: Los programas institucionales deberán estar orientados por el Modelo de Intervención Institucional que se haya definido para la atención y búsqueda de solución de los problemas presentados por las personas, familias, grupos organizaciones o comunidades, en condición de pobreza extrema o pobreza, prioritariamente, o que estén afectados por una situación de riesgo y vulnerabilidad social; quienes deberán tener una participación activa en el desarrollo de los proyectos o intervenciones que los beneficien.

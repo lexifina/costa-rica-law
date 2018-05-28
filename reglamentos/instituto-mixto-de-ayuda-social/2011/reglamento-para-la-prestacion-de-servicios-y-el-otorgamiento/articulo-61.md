@@ -1,1 +1,0 @@
-Artículo 61.—De las prohibiciones a los voluntarios o voluntarias: El voluntario(a) no devengará salario, honorarios, dietas o viáticos. Sí podrá viajar como pasajero(a) en los vehículos de la institución, para lo cual el IMAS pagará la respectiva póliza de riesgos profesionales.

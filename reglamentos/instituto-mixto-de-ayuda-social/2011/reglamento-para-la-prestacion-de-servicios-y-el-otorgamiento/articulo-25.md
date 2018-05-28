@@ -1,1 +1,0 @@
-Artículo 25.—De la eficiencia del servicio: Todo servicio se otorgará en forma ágil, eficiente y oportuna, con equidad para quien lo solicite y debidamente fundamentado en un criterio técnico emitido por un funcionario competente.

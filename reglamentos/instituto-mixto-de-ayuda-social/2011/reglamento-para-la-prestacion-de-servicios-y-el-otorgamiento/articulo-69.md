@@ -1,1 +1,0 @@
-Artículo 69.—De la liquidación de los recursos girados a las Unidades Ejecutoras: Los encargados de los procesos administrativos financieros de las Área Regionales de Desarrollo Social y otras Unidades Ejecutoras centrales, serán los responsables de efectuar el correspondiente cierre presupuestario en las fechas que establezca la Subgerencia de Soporte Administrativo.

@@ -1,8 +1,0 @@
-Artículo 17.—Son sujetos de los servicios institucionales:
-a) Las y los costarricenses en situación de pobreza o de riesgo y vulnerabilidad social, calificados y seleccionados según lo establecido en este reglamento y otra normativa institucional vigente.
-b) Las y los extranjeros (as) con una condición migratoria legal o que sean personas menores de edad; siempre y cuando se encuentren en situación de pobreza o de riesgo y vulnerabilidad social; y que hayan sido calificados y seleccionados según lo establecido en este reglamento y demás normativa institucional vigente.
-c) Las personas o familias afectadas por desastres o emergencias, según lo contemplado en el presente reglamento u otra normativa institucional vigente.
-d) Las personas o familias afectadas por situaciones previamente calificadas como urgencias, según lo contemplado en el presente reglamento u otra normativa institucional vigente.
-e) Las comunidades calificadas con elevados niveles de deterioro físico, ambiental, económico y social, según calificación del Ministerio de Planificación Nacional y Política Económica o las seleccionadas por el IMAS de acuerdo con las prioridades institucionales.
-f) Las Organizaciones de Base y las Instituciones de Bienestar Social que atienden población en condiciones de pobreza o riesgo y vulnerabilidad social.
-g) En casos de excepción, debidamente documentados y con el correspondiente informe técnico social, autorizados por este reglamento, se podrán otorgar beneficios a personas o familias que presenten una situación de pobreza coyuntural, no necesariamente registrada como tal en el SIPO; o que, mediante algún decreto o ley específica, se consideren beneficiarios de la acción institucional.

@@ -1,3 +1,0 @@
-CAPÍTULO SEXTO
-De los servicios
-Artículo 23.—De las características de los servicios: Los programas del IMAS se ejecutarán mediante servicios. Estos serán complementarios y flexibles y se conjugarán para garantizar una atención integral, respondiendo a un proceso de superación de las personas, familias, grupos y comunidades en situación pobreza o de riesgo y vulnerabilidad social, que les permita trascender a mayores niveles de desarrollo humano. Los servicios se traducirán en beneficios que podrán ser múltiples y progresivos, según la situación presentada y la búsqueda permanente de una solución integral.

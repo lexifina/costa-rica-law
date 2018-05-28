@@ -1,1 +1,0 @@
-Artículo 52.—De la responsabilidad de las Áreas Regionales de Desarrollo Social: Será responsabilidad de las Áreas Regionales de Desarrollo Social participar y apoyar en la Comisión Local integrada por la Comisión Nacional de Emergencia.

@@ -1,1 +1,0 @@
-Artículo 5º—De los Límites de Autoridad Financiera (L.A.F.) por servicios: El Consejo Directivo, previa recomendación emitida por la Subgerencia de Desarrollo Social, por Planificación Institucional y la Subgerencia de Soporte Administrativo, será el responsable de acordar los Límites de Autoridad Financiera por servicio, según nivel jerárquico de aprobación.

@@ -1,1 +1,0 @@
-Artículo 27.—De los procesos masivos: Los beneficios podrán ser prorrogados u otorgados mediante un proceso masivo de resoluciones, debidamente justificado y aprobado por la Subgerencia de Desarrollo Social, con base en la lista certificada de beneficiarios por parte de los o las gerentes de las Áreas Regionales de Desarrollo Social o los profesionales ejecutores.
