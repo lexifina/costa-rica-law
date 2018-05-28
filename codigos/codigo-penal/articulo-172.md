@@ -1,11 +1,11 @@
-Artículo 172.- Delito de trata de personas
-Será sancionado con pena de prisión de seis a diez años, quien promueva, facilite o favorezca la entrada o salida del país, o el desplazamiento dentro del territorio nacional, de personas de cualquier sexo para realizar uno o varios actos de prostitución o someterlas a explotación, servidumbre sexual o laboral, esclavitud o prácticas análogas a la esclavitud, trabajos o servicios forzados, matrimonio servil, mendicidad, extracción ilícita de órganos o adopción irregular.
+Artículo 172- Trata de personas. Será sancionado con pena de prisión de seis a diez años, quien mediante el uso de las tecnologías o cualquier otro medio, recurriendo a la amenaza, al uso de la fuerza u otras formas de coacción, al rapto, al fraude, al engaño, al abuso de poder, a una situación de vulnerabilidad, o a la concesión o recepción de pagos o beneficios para obtener el consentimiento de una persona que tenga autoridad sobre otra, promueva, facilite, favorezca o ejecute, la captación, el traslado, el transporte, el alojamiento, el ocultamiento, la retención, la entrega o la recepción de una o más personas dentro o fuera del país, para someterlas a trabajos o servicios forzados y otras formas de explotación laboral, la servidumbre, la esclavitud o las prácticas análogas a la esclavitud, el matrimonio servil o forzado, la adopción irregular, la mendicidad forzada, el embarazo forzado y el aborto forzado y la ejecución de cualquier forma de explotación sexual.
 La pena de prisión será de ocho a dieciséis años, si media, además, alguna de las siguientes circunstancias:
-a) La víctima sea menor de dieciocho años de edad o se encuentre en una situación de vulnerabilidad o discapacidad.
-b) Engaño, violencia o cualquier medio de intimidación o coacción.
-c) El autor sea cónyuge, conviviente o pariente de la víctima hasta tercer grado de consanguinidad o afinidad.
-d) El autor se prevalezca de su relación de autoridad o confianza con la víctima o su familia, medie o no relación de parentesco.
-e) El autor se aproveche del ejercicio de su profesión o de la función que desempeña.
-f) La víctima sufra grave daño en su salud.
-g) El hecho punible fuere cometido por un grupo delictivo integrado por dos o más miembros.
-(Así reformado por el artículo 19 de la Ley de Protección a Víctimas, Testigos y demás intervinientes en el Proceso Penal N° 8720 de 4 de marzo de 2009.)
+a) La víctima sea menor de dieciocho años de edad, persona adulta mayor o con discapacidad.
+b) El autor sea cónyuge, conviviente o pariente de la víctima hasta el tercer grado de consanguinidad o afinidad.
+c) El autor se prevalezca de su relación de autoridad o confianza con la víctima o su familia, medie o no relación de parentesco.
+d) El autor se aproveche del ejercicio de su profesión o de la función que desempeña.
+e) La víctima sufra grave daño en su salud, la muerte, o deceso por suicidio como consecuencia de la acción de trata de personas antes descrita.
+f) El hecho punible haya sido cometido por un grupo delictivo integrado por dos o más miembros.
+Será sancionado con la pena señalada en el primer párrafo de este numeral, quien promueva, facilite, favorezca o ejecute, la captación, el traslado, el transporte, el alojamiento, el ocultamiento, la retención, la entrega o la recepción de una o más personas dentro o fuera del país, para la extracción ilícita o el trasplante ilícito de órganos, tejidos, células o fluidos humanos.
+Tratándose de personas menores de edad, para la configuración del delito no será necesario que se recurra a los modos de ejecución descritos en el primer párrafo de este artículo.
+(Así reformado por el artículo 1° de la ley N° 9545 del 24 de abril de 2018)
