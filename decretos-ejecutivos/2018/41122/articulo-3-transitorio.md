@@ -1,0 +1,1 @@
+Transitorio III. Hasta que se encuentre en funcionamiento el Mecanismo de Compensación de Costa Rica, los procesos de compensación por medio de Unidades Costarricenses de Compensación (UCC) deberán realizarse por medio Fondo Nacional de Financiamiento Forestal (FONAFIFO).

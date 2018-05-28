@@ -1,0 +1,1 @@
+Transitorio IV. El apartado 9.14 del Programa País de Carbono Neutralidad versión 2.0 organizacional entrará en vigor a partir del 01 de enero de 2019. Hasta dicha fecha se mantiene el período transitorio otorgado por la DCC en su comunicado DCC-358-216, del 30 de noviembre de 2016 para la formación de capacidades en los procesos de evaluación de incertidumbre.
