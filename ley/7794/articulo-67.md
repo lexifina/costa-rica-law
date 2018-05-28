@@ -1,1 +1,3 @@
-Artículo 67. — Autorízase al Estado, las instituciones públicas y las empresas públicas constituidas como sociedades anónimas para donar a lasmunicipalidades toda clase de servicios, recursos y bienes, así como para colaborar con ellas.
+Artículo 67- Regulación de armerías
+Las armerías de las diferentes policías municipales tendrán que someterse a las medidas de seguridad que la Dirección General de Armamento del Ministerio de Seguridad Pública establezca.
+(Así adicionado por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018)

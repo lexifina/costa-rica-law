@@ -1,4 +1,4 @@
-Artículo 69. — Excepto lo señalado en el párrafo siguiente, los tributos municipales serán pagados por períodos vencidos, podrán ser puestos al cobro en un solo recibo.
-Las patentes municipales se cancelarán por adelantado. A juicio del Concejo, dicho cobro podrá ser fraccionado.
-La municipalidad podrá otorgar incentivos a los contribuyentes que, en el primer trimestre, cancelen por adelantado los tributos de todo el año.
-El atraso en los pagos de tributos generará multas e intereses moratorios, que se calcularán según el Código de Normas y Procedimientos Tributarios.
+Artículo 69- Colaboración interinstitucional
+Se podrán establecer convenios de colaboración entre cada municipalidad y el Ministerio de Seguridad Pública o entre municipalidades, con el fin de compartir información, bienes, equipos y demás insumos que faciliten la mejora de la seguridad local de cada cantón.
+Estos compromisos deberán establecerse en los respectivos convenios interinstitucionales entre las partes. El plazo de redacción de los convenios no podrá exceder los sesenta días naturales; cumplida esta etapa, su aprobación y firma no podrá superar los treinta días naturales.
+(Así adicionado por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018)

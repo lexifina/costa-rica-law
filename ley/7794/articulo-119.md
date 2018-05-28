@@ -1,9 +1,2 @@
-CAPÍTULO II
-Del Ingreso a la Carrera Administrativa Municipal
-Artículo 119. — Para ingresar al servicio dentro del régimen municipal se requiere:
-a) Satisfacer los requisitos mínimos que fije el Manual descriptivo de puestos para la clase de puesto de que se trata.
-b) Demostrar idoneidad sometiéndose a las pruebas, exámenes o concursos contemplados en esta ley y sus reglamentos.
-c) Ser escogido de la nómina enviada por la oficina encargada de seleccionar al personal.
-d) Prestar juramento ante el alcalde municipal, como lo estatuye el artículo 194 de la Constitución Política de la República.
-e) Firmar una declaración jurada garante de que sobre su persona no pesa impedimento legal para vincularse laboralmente con la administración pública municipal.
-f) Llenar cualesquiera otros requisitos que disponga los reglamentos y otras disposiciones legales aplicadas.
+Artículo 119. — El tesorero municipal no realizará pago alguno sin orden del órgano municipal competente que lo autorice, so pena de incurrir en causal de despido y las demás responsabilidades que procedan.
+(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 110 al 119)

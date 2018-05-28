@@ -1,4 +1,7 @@
-Artículo 163.-
-Contra todo acto no emanado del concejo y de materia no laboral cabrá recurso extraordinario de revisión cuando no se hayan establecido, oportunamente, los recursos facultados por los artículos precedentes de este capítulo, siempre que no hayan transcurrido cinco años después de dictado el acto y este no haya agotado totalmente sus efectos, a fin de que no surta ni sigan surtiendo efectos.
-El recurso se interpondrá ante la Alcaldía municipal, que lo acogerá si el acto es absolutamente nulo. Contra lo resuelto por la Alcaldía municipal cabrá recurso de apelación para ante el Tribunal Contencioso-Administrativo, en las condiciones y los plazos señalados en el artículo 162 de este Código.
-(Así reformado por el artíclo 1° de la Ley N° 8773 del 1 de setiembre de 2009)
+Artículo 163. — Cualquier acuerdo del concejo municipal, emitido directamente o conociendo en alzada contra lo resuelto por algún órgano municipal jerárquicamente inferior, estará sujeto a los recursos de revocatoria y de apelación. De tales recursos quedan exceptuados los siguientes acuerdos del concejo municipal:
+a) Los que no hayan sido aprobados definitivamente.
+b) Los de mero trámite de ejecución, confirmación o ratificación de otros anteriores y los consentidos expresa o implícitamente.
+c) Los que aprueben presupuestos, sus modificaciones y adiciones.
+d) Los reglamentarios.
+(Así reformado por el artículo 202, inciso 2) de la Ley N° 8508 de 28 de abril de 2006, Código Procesal Contenciso-Administrativo)
+(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 154 al 163)

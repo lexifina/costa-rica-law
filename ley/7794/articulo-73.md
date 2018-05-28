@@ -1,1 +1,4 @@
-Artículo 73. — Los tributos municipales prescribirán en cinco años y los funcionarios que los dejen prescribir responderán por su pago personalmente.
+Artículo 73. — Los funcionarios municipales encargados de recibir, custodiar o pagar bienes o valores municipales o aquellos cuyas atribuciones permitan o exijan tenerlos, serán responsables de ellos y de cualquier pérdida, daño, abuso, empleo o pago ilegal imputable a su dolo o culpa.
+Se considera empleo ilegal el manejo de los bienes o valores en forma distinta de la prescrita por las leyes, los reglamentos o las disposiciones superiores.
+El autor de tales hechos será sancionado administrativamente, de acuerdo con el régimen disciplinario vigente, previo cumplimiento deldebido proceso, sin perjuicio de las responsabilidades civiles o penales en que pueda haber incurrido.
+(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 64 al 73)

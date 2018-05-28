@@ -1,1 +1,3 @@
-Artículo 112. — El Concejo definirá cuáles informes deben rendir las unidades administrativas, para valorar el cumplimiento de las metas fijadas en los planes operativos.
+Artículo 112. — Las municipalidades no podrán efectuar nombramientos ni adquirir compromisos económicos, si no existiere subpartida presupuestaria que ampare el egreso o cuando la subpartida aprobada esté agotada o resulte insuficiente; tampoco podrán pagar con cargo a una subpartida de egresos que correspondan a otra.
+La violación de lo antes dispuesto será motivo de suspensión del funcionario o empleado responsable, y la reincidencia será causa de separación.
+(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 103 al 112)

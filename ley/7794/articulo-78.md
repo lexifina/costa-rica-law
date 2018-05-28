@@ -1,3 +1,5 @@
-Artículo 78. — La municipalidad podrá aceptar el pago de lascontribuciones por el arreglo o mantenimiento de los caminos vecinales, mediante la contraprestación de servicios personales u otro tipo de aportes.
-Las obras de mantenimiento de los caminos vecinales podrán ser realizadas directamente por los interesados, previa autorización de la municipalidad y con sujeción a las condiciones que ella indique. La municipalidad fijará el porcentaje del monto de inversión autorizado a cada propietario, beneficiado o interesado.
-La municipalidad autorizará la compensación de estas contribuciones con otras correspondientes al mismo concepto.
+Artículo 78. — Excepto lo señalado en el párrafo siguiente, los tributos municipales serán pagados por períodos vencidos, podrán ser puestos al cobro en un solo recibo.
+Las patentes municipales se cancelarán por adelantado. A juicio del Concejo, dicho cobro podrá ser fraccionado.
+La municipalidad podrá otorgar incentivos a los contribuyentes que, en el primer trimestre, cancelen por adelantado los tributos de todo el año.
+El atraso en los pagos de tributos generará multas e intereses moratorios, que se calcularán según el Código de Normas y Procedimientos Tributarios.
+(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 69 al 78)

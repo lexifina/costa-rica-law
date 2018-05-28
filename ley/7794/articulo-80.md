@@ -1,1 +1,2 @@
-Artículo 80. — La municipalidad deberá resolver las solicitudes de licencia en un plazo máximo de treinta días naturales, contados a partir de su presentación. Vencido el término y cumplidos los requisitos sin respuesta alguna de la municipalidad, el solicitante podrá establecer su actividad.
+Artículo 80. — Las certificaciones de los contadores o auditores municipales relativas a deudas por tributos municipales, constituirán título ejecutivo y en el proceso judicial correspondiente solo podrán oponerse las excepciones de pago o prescripción.
+(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 71 al 80)

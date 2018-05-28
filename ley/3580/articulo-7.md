@@ -1,6 +1,2 @@
-Artículo 7º.- El producto de las multas a los infractores de esta
-ley corresponderá a las municipalidades respectivas.
-Lo que se recaude por concepto de los impuestos autorizados por esta
-ley, será invertido preferentemente en el mantenimiento y administración
-de los sistemas de estacionamiento, en la construcción y mantenimiento de
-vías públicas, y en obras de sanidad municipal.
+Artículo 7- El producto de las multas a los infractores de esta ley corresponderá a las municipalidades respectivas. Lo que se recaude, por concepto de los impuestos autorizados por esta ley, será invertido en el mantenimiento y la administración de los sistemas de estacionamiento, en la construcción y el mantenimiento de vías públicas, en la instalación de sistemas de videovigilancia cantonal y el desarrollo de cuerpos de policía municipal.
+(Así reformado por el artículo 4° de la ley N° 9542 "Ley de Fortalecimiento de la Policía Municipal" del 23 de abril del 2018)

@@ -1,6 +1,4 @@
-CAPÍTULO VIII
-Permisos
-Artículo 144. — El alcalde municipal concederá permiso con goce de salario en los siguientes casos:
-a) Por matrimonio del servidor: cinco días hábiles, contados a partir del día de la ceremonia, previa constancia extendida por autoridad competente.
-b) Por muerte del cónyuge, el compañero, los hijos, los entenados, los padres (naturales o adoptivos), los hermanos consanguíneos: cinco días hábiles, contados a partir del día del fallecimiento, previa constancia extendida por autoridad competente.
-c) Por nacimiento de hijos (productos vivos) o adopción legal: tres días hábiles a conveniencia del servidor, contados ya sea a partir del nacimiento o de que la cónyuge sea dada de alta por el centro hospitalario donde fue atendida, previa constancia extendida por autoridad competente.
+CAPÍTULO VI
+Evaluación y calificación del servicio
+Artículo 144. — Los trabajadores municipales comprendidos en lapresente ley tendrán anualmente una evaluación y calificación de sus servicios. Para tal fin, la Oficina de Recursos Humanos confeccionará los formularios y los modificará si fuere necesario, previa consulta al alcalde municipal, a quien le corresponderá elaborarlos donde no exista esta Oficina.
+(Corrida su numeración por el artículo 1° de la ley N° 9542 “Ley de Fortalecimiento de la Policía Municipal” del 23 de abril del 2018, que lo traspasó del antiguo artículo 135 al 144)
