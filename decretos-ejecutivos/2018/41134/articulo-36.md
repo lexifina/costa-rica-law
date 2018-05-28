@@ -1,0 +1,1 @@
+Artículo 36º—Inspección de campo obligatoria. Como parte del procedimiento para la aprobación de permisos de uso de suelo para el funcionamiento de servicios públicos, el ACT deberá en todos los casos realizar una inspección de campo.

@@ -1,0 +1,2 @@
+K. Procedimiento para autorización de prórroga de la concesión
+Artículo 94º—Inicio del procedimiento administrativo para prórroga de la concesión. El procedimiento administrativo para la prórroga de la concesión iniciará a instancia del concesionario con la presentación por escrito de la solicitud correspondiente, así como de la documentación acompañante, en las oficinas de la Administración del Refugio.

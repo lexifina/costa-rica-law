@@ -1,0 +1,1 @@
+Artículo 10º—Expedientes administrativos. Todo expediente administrativo que se conforme en aplicación de la LRVSO y de este reglamento deberá ajustarse a lo establecido en la LGAP y normativa vinculante.

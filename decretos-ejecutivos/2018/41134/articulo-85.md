@@ -1,0 +1,5 @@
+Artículo 85º—Documentación acompañante de la solicitud para realización de trabajos y obras relacionados con edificaciones o instalaciones existentes. La solicitud deberá ser acompañada de los siguientes documentos:
+a) El original de la cédula de identidad o la cédula de residencia vigente, para el caso de personas físicas concesionarias y certificación notarial de la personería jurídica, o certificación del Registro de la Propiedad de representantes de organizaciones jurídicas sin fines de lucro concesionarias.
+b) Dictamen firmado por un profesional competente en obras civiles, que contenga su criterio técnico, razonable y justificado, acerca de la necesidad de los trabajos u obras solicitados.
+c) Permiso de construcción otorgado por la municipalidad competente y su respectivo plano de construcción aprobado, cuando sean exigidos por las leyes y reglamentos vigentes en materia de permisos de construcción, para el tipo de trabajo u obra para los cuales se solicita autorización.
+d) Viabilidad Ambiental aprobada por la SETENA cuando corresponda.

@@ -1,0 +1,6 @@
+C. Canon
+Artículo 70º—Pago del canon. El monto correspondiente al canon anual por concepto de concesión que establece el artículo 12 de la LRVSO deberá ser cancelado por los concesionarios dentro del primer trimestre de cada año calendario, sea de enero a marzo, y corresponderá al pago
+del canon para el año en curso.
+En el año en que se otorga la concesión, el monto a pagar será proporcional al tiempo que falta del año calendario a partir de la fecha de la firma del contrato de concesión, y deberá ser cancelado por los concesionarios de previo a la firma del contrato de concesión. Lo mismo aplicará en caso de prórroga de la concesión, debiendo en este caso pagar el monto dentro de los tres meses siguientes a la fecha de la resolución que aprueba la prórroga.
+En el año en que vence la concesión, el monto a pagar será proporcional al tiempo que falta para su vencimiento a partir del primero de enero del año en curso, y deberá ser cancelado dentro del primer trimestre del año calendario.
+El concesionario deberá realizar el pago del canon mediante depósito del monto en la cuenta del Fondo de Vida Silvestre, número 100-01-000-112156-5 del Banco Nacional, o en la cuenta cliente asociada número 151-00010011121562; y deberá presentar comprobante de depósito ante el ACT para dejar constancia de ello en el expediente de la concesión.

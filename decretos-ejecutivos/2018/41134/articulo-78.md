@@ -1,0 +1,2 @@
+Artículo 78º—Documentación acompañante de la solicitud para variación del uso del terreno concesionado y/o de las edificaciones o instalaciones existentes. La solicitud deberá ser acompañada de los siguientes documentos:
+a) El original de la cédula de identidad o la cédula de residencia vigente, para el caso de personas físicas concesionarias y la certificación notarial de la personería jurídica o certificación del Registro de la Propiedad de las organizaciones jurídicas sin fines de lucro concesionarias.

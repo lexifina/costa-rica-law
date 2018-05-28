@@ -1,0 +1,1 @@
+Artículo 50º—Otorgamiento de una única concesión por terreno. Solamente podrá otorgarse una concesión por terreno, pero la misma podrá ser otorgada para uno o más usos conjuntos, siempre y cuando ello sea conforme con lo establecido en el plan general de manejo del Refugio.

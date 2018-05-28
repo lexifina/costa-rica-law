@@ -1,0 +1,2 @@
+Artículo 100º—Aceptación o denegación de la solicitud de prórroga. La solicitud de prórroga podrá ser aceptada por el ACT siempre y cuando el concesionario cumpla con las condiciones exigidas en el artículo 19 de la LRVSO. Podrá ser denegada si no cumple con dichas condiciones, o por alguna de las razones establecidas en el artículo 20, inciso e), de la LRVSO.
+En concordancia con el artículo 20, inciso e), de la LRVSO, la denegación de la solicitud de prórroga producirá la extinción de la concesión.

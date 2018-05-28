@@ -1,0 +1,1 @@
+Artículo 13º—No aplicación del silencio positivo. De conformidad con la jurisprudencia constitucional y el artículo 4 de la Ley Forestal N°7575, no operará el silencio positivo en las materias reguladas por la LRVSO y este reglamento.

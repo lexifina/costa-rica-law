@@ -1,0 +1,2 @@
+J. Normas generales sobre plazo y prórroga de la concesión
+Artículo 91º—Inicio del plazo de la concesión y sus prórrogas. Para efectos del artículo 19 de la LRVSO, el inicio del plazo de cada concesión se computará a partir de la fecha de la firma del respectivo contrato de concesión. El inicio del plazo de sus prórrogas se computará a partir del día siguiente de la fecha de vencimiento de la concesión

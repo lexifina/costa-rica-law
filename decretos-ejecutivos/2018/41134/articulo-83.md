@@ -1,0 +1,3 @@
+H. Procedimiento para autorización de realización de trabajos y obras relacionados con
+edificaciones o instalaciones existentes
+Artículo 83º—Inicio del procedimiento administrativo para realización de trabajos y obras relacionados con edificaciones o instalaciones existentes. El procedimiento administrativo para la realización de los trabajos y obras relacionados con edificaciones o instalaciones existentes que, conforme al artículo anterior, requieren autorización previa del ACT, iniciará a instancia del concesionario con la presentación por escrito de la solicitud correspondiente, así como de la documentación acompañante, en las oficinas de la Administración del Refugio.

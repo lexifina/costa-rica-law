@@ -1,0 +1,1 @@
+Artículo 106º—Comprobación de la existencia de una causal de cancelación de concesión. Para efectos del artículo 21 de la LRVSO, para la comprobación de la existencia de alguna de las causales ahí establecidas, deberá aplicarse el procedimiento ordinario establecido en la LGAP.

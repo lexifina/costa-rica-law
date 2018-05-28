@@ -1,0 +1,1 @@
+Artículo 113º—Reubicación por pérdida del área concesionada por acción de la naturaleza. Las mismas reglas establecidas en los artículos anteriores aplicarán para la reubicación de aquéllos a quienes se les hubiere extinguido su concesión por pérdida del área concesionada por acción de la naturaleza.

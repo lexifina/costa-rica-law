@@ -1,0 +1,1 @@
+Artículo 58º—Señalamiento de lugar o medio para oír notificaciones. Los escritos de oposición y de contestación deberán señalar lugar dentro del perímetro del Refugio, fax, o correo electrónico, para recibir notificaciones.

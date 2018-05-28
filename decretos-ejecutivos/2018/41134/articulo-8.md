@@ -1,0 +1,1 @@
+Artículo 8º—Autenticación de firmas. Toda solicitud u otro tipo de gestión que se presente al ACT en el marco de la LRVSO y este Reglamento, deberá venir autenticada por notario público, o bien mediante poder especial otorgado por notario público, en caso de que su presentación no sea hecha personalmente por el o los interesados firmantes.

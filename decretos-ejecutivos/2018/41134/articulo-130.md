@@ -1,0 +1,7 @@
+Artículo 130º—Contenido de la solicitud de autorización para proyectos, obras o actividades en terrenos de propiedad privada. En concordancia con los artículos 26 y 27 de la LRVSO, y 82 de la LCVS, la solicitud de autorización para proyectos, obras o actividades en terrenos de propiedad privada dentro del Refugio deberá contener la siguiente información:
+a) El nombre, los apellidos, la profesión u oficio, el estado civil, la dirección exacta del domicilio, y el número de cédula o de cédula de residencia, según corresponda, del propietario o propietarios del terreno; o del representante o representantes legales cuando el propietario fuere una persona jurídica. En este último caso, deberá indicarse, además, la razón social, la dirección exacta del domicilio social, el número de cédula jurídica, y las citas de inscripción de la persona jurídica propietaria.
+b) Indicación general de las condiciones, la naturaleza, la situación, la medida y los linderos del bien inmueble.
+c) La descripción del terreno, incluyendo la vivienda y cualquier otra construcción, así como la extensión aproximada de los cultivos y repastos existentes.
+d) Descripción detallada de la actividad, obra o proyecto para el cual se solicita la autorización, así como de los visados, permisos, autorizaciones, patentes o licencias, emitidos por los entes u órganos públicos competentes, que están asociados a la referida actividad, obra o proyecto.
+e) Señalamiento de lugar dentro del perímetro del Refugio, fax, o correo electrónico, para recibir notificaciones.
+f) Fecha y firma.

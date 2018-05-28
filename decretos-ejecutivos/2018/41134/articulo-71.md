@@ -1,0 +1,1 @@
+Artículo 71º—Destino del canon y de la tasa. Para efectos del artículo 12 de la LRVSO, el monto recaudado por concepto de canon y de la tasa de inscripción será destinado prioritariamente para la contratación de personal y compra de bienes y servicios necesarios para el mantenimiento y la conservación del RNVS Ostional.

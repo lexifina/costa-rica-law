@@ -1,0 +1,1 @@
+Artículo 19º—Aplicación supletoria de las disposiciones sobre procedimiento administrativo de la LGAP. En lo no establecido expresamente en la LRVSO y en este Reglamento sobre procedimientos administrativos, y en cuanto no se les oponga, se aplicarán supletoriamente las disposiciones del Libro Segundo de la LGAP.

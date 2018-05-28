@@ -1,0 +1,2 @@
+C. Caso especial de los permisos de uso de suelo para investigación, educación y Ecoturismo.
+Artículo 37º—Procedimiento y disposiciones aplicables a los permisos de uso de suelo para investigación, educación y Ecoturismo. A los permisos de uso de suelo para investigación, educación y ecoturismo les será aplicable, respectivamente, los procedimientos y disposiciones que establece el Reglamento a la Ley Forestal N°7575 LCVS y Ley de Biodiversidad y normativa vinculante.

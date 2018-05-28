@@ -1,0 +1,4 @@
+O. Bonos familiares de vivienda
+Artículo 119º—Bonos familiares de vivienda. En concordancia con los artículos 2, inciso k), 8, inciso b), y 31, de la LRVSO, de previo al otorgamiento de un bono familiar de vivienda a un concesionario del Refugio, el BANHVI deberá realizar consulta escrita al ACT acerca de la conformidad de los trabajos u obras a realizar con lo establecido en el plan general de manejo del Refugio. El bono únicamente podrá ser otorgado con el visto bueno por escrito del ACT, en respuesta a dicha consulta.
+El ACT podrá recomendar al BANHVI el tipo de proyecto y vivienda ecológica que se vayan a desarrollar en los terrenos dentro del Refugio por medio del bono de la vivienda, para lo cual podrá presentar proyectos elaborados para ese fin.
+El BANHVI notificará al ACT del otorgamiento del bono, y de todo lo anterior deberá dejarse constancia en el expediente de la concesión.

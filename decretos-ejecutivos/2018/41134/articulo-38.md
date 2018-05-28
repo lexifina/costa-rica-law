@@ -1,0 +1,1 @@
+Artículo 38º—Servicios y actividades no esenciales. Tratándose de los servicios y actividades no esenciales regulados en el artículo 39 de la Ley de Biodiversidad, en el caso en que fueren previstos en el plan general de manejo del Refugio, se aplicará la Ley de Contratación Administrativa Nº 7494 del 2 de mayo de 1995 y sus reformas.

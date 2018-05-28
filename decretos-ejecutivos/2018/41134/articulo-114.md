@@ -1,0 +1,1 @@
+Artículo 114º—Prioridad. Para efectos de reubicación, se aplicará el principio de que el primero en tiempo es primero en derecho. Para ello se tomarán como referencia la fecha de presentación de las solicitudes.

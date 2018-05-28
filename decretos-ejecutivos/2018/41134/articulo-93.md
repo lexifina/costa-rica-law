@@ -1,0 +1,1 @@
+Artículo 93º—Condición indispensable para tramitar la solicitud de prórroga de la concesión. Para tramitar la solicitud de prórroga de la concesión, es indispensable que el interesado se encuentre al día en el pago del canon respectivo. Si se encontrare atrasado en el pago del canon, se tendrá como presentada su solicitud en la fecha en que realice el pago.

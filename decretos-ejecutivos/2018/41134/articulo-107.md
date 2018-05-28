@@ -1,0 +1,1 @@
+Artículo 107º—Resolución que cancela la concesión. Para efectos del artículo 21 de la LRVSO, comprobada la existencia de alguna de las causales ahí establecidas, la concesión será cancelada mediante resolución motivada emitida por el Director del ACT.

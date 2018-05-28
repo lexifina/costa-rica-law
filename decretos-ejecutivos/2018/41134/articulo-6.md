@@ -1,0 +1,6 @@
+Artículo 6º—Insumos necesarios para la elaboración del Plan General de Manejo. En concordancia con en el artículo 11 de la LRVSO, para la elaboración del Plan General de Manejo del Refugio deberá necesariamente contarse con lo siguiente:
+1. La delimitación de la zona pública de la zona marítimo terrestre por parte del IGN, realizada según el procedimiento oficial vigente para la delimitación de dicha zona.
+2. La ubicación, clasificación, certificación, y deslinde o delimitación, por parte del ACT, de los bosques, los ecosistemas de humedales, los terrenos forestales o con esa aptitud, las áreas de protección establecidas en el artículo 33 de la Ley Forestal, y el área de protección de quince metros alrededor de los esteros y manglares del Refugio que establecen los artículos 8 y 11, inciso c), de la LRVSO; todo lo cual se realizará, en lo aplicable, conforme al manual vigente para la clasificación de tierras dedicadas a la conservación de los recursos naturales dentro de la zona marítimo terrestre.
+3. La delimitación digital geo referenciada del Refugio, tanto en el área terrestre como marina por parte del ACT.
+4. Parámetros de la valoración ambiental emitidos por la SETENA.
+5. Cualquier otro insumo exigido en la guía oficial del SINAC para el diseño y formulación de los planes generales de manejo de las áreas silvestres protegidas.

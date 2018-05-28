@@ -1,0 +1,3 @@
+F. Procedimiento para autorización de variación del uso del terreno concesionado y/o de las
+edificaciones o instalaciones existentes
+Artículo 76º—Inicio del procedimiento administrativo para variación del uso del terreno concesionado y/o de las edificaciones o instalaciones existentes. El procedimiento administrativo para la variación del uso para el cual fue otorgada la concesión, ya sea del terreno o de las edificaciones o instalaciones existentes, iniciará a instancia del concesionario con la presentación por escrito de la solicitud correspondiente, así como de la documentación acompañante, en las oficinas de la Administración del Refugio.

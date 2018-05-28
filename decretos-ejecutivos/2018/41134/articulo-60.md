@@ -1,0 +1,1 @@
+Artículo 60º—Resolución sobre la oposición. Realizada la audiencia mencionada en el artículo anterior, y evacuada la prueba, la Comisión de Trámites emitirá una recomendación que se adjuntará al expediente de concesión, mismo que será elevado al Director del ACT para que resuelva sobre la oposición en un plazo de cinco días.

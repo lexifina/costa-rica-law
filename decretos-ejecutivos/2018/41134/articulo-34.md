@@ -1,0 +1,2 @@
+B. Normas especiales sobre permisos de uso de suelo para el funcionamiento de servicios públicos
+Artículo 34º—Autorización de instalaciones o estructuras con adherencia permanente al suelo. Tratándose de permisos de uso de suelo para el funcionamiento de servicios públicos, el Director del ACT podrá autorizar el establecimiento de instalaciones o estructuras con adherencia permanente al suelo, cuando éstas sean necesarias para el funcionamiento de tales servicios.

@@ -1,0 +1,1 @@
+Artículo 57º—Traslado del escrito de oposición y plazo para contestar. Recibido el escrito de oposición, la Comisión de Trámites (ACT) dará traslado del mismo al solicitante de la concesión, quien deberá referirse al mismo por escrito y ofrecer la prueba pertinente en el plazo de quince días hábiles.

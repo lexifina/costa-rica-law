@@ -1,0 +1,7 @@
+Artículo 98º—Inspección de campo para prórroga de la concesión. Constatada la admisibilidad de la solicitud para la prórroga de la concesión, el ACT notificará al concesionario solicitante, con no menos de ocho días hábiles de anticipación, la hora y fecha para llevar a cabo la inspección de campo.
+El ACT, a través del personal técnico idóneo que designe la Comisión de Trámites, deberá
+realizar la inspección en el terreno concesionado, con el fin de verificar lo siguiente:
+a) Las características del terreno, tales como su uso o usos actuales, las medidas, las colindancias, el deslinde, la ubicación, si está ocupado y por quién, o si no lo está, la existencia o no de mojones, y las condiciones del sitio.
+b) La existencia de construcciones, sus principales características, y su uso o usos actuales.
+De todo lo anterior, el personal técnico dejará constancia en el acta que se levantará al efecto, en la cual se indicará, además, la fecha de la inspección, su hora de inicio y de conclusión, así como el nombre, apellidos, y número de cédula de las personas que estuvieron presentes o que lo asistieron.
+Finalmente, el o los funcionarios encargados de realizar la inspección de campo deberán adjuntar el informe técnico con todo el material que hayan podido producir, incluyendo soporte fotográfico principalmente de las construcciones y de los usos del terreno, así como todo documento que les haya sido entregado durante la inspección, haciendo referencia expresa al mismo en el acta.

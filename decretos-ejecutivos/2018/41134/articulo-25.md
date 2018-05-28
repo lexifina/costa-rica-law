@@ -1,0 +1,1 @@
+Artículo 25º—Prohibición de instalaciones o estructuras con adherencia permanente al suelo. Salvo lo dicho en los artículos del 19 al 22 del presente reglamento sobre permisos de uso de suelo para el funcionamiento de servicios públicos, queda prohibido el establecimiento de instalaciones o estructuras con adherencia permanente al suelo sobre la base de permisos de uso de suelo.
