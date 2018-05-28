@@ -1,0 +1,3 @@
+ARTÍCULO 4- Reforma de la Ley N.º 3580, Ley de Instalación de Estacionómetros (Parquímetros), de 13 de noviembre de 1965.
+Se reforma el artículo 7 de la Ley N.º 3580, Ley de Instalación de Estacionómetros (Parquímetros), de 13 de noviembre de 1965. El texto es el siguiente:
+Artículo 7- El producto de las multas a los infractores de esta ley corresponderá a las municipalidades respectivas. Lo que se recaude, por concepto de los impuestos autorizados por esta ley, será invertido en el mantenimiento y la administración de los sistemas de estacionamiento, en la construcción y el mantenimiento de vías públicas, en la instalación de sistemas de videovigilancia cantonal y el desarrollo de cuerpos de policía municipal.
