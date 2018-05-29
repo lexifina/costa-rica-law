@@ -14,3 +14,4 @@ Reglamento del Sistema Penitenciario Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-01-23 | la propia norma |
+| 2 | 2018-05-29 | Decreto Ejecutivo 41211 (2018-05-29) |
