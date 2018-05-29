@@ -1,4 +1,5 @@
 MUNICIPALIDAD DE BELÉN
+(Nota de Sinalevi: De conformidad con el punto de la Política de regulación anual del crecimiento urbano en el cantón de Belén, aprobada en sesión N° 32 del 29 de mayo de 2018, se indicó que la presente norma se tiene como modificada parcialmente.)
 La suscrita Secretaria del Concejo Municipal de Belén, le notifica el acuerdo tomado, en la Sesión Ordinaria Nº 37-2004 celebrada el ocho de junio del dos mil cuatro, que literalmente dice:
 Artículo 25.—Variar la Modificación de la Política de Regulación Anual del Crecimiento Urbano para que se lea de la siguiente manera:
 Considerando:

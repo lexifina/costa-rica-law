@@ -14,3 +14,4 @@ Reforma al Acuerdo "Política de Regulación Anual del Crecimiento Urbano en el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-06-25 | la propia norma |
+| 2 | 2018-05-29 | Acuerdo municipal 0 (2018-05-29) |
