@@ -1,0 +1,2 @@
+Artículo 10.—Participación comunitaria. De acuerdo a su disponibilidad financiera, el SINAC dará prioridad a formas de financiamiento y apoyo técnico o de otra índole, para proyectos de manejo comunitario de la biodiversidad, con el fin de promover y fomentar la conservación y uso sostenible de la biodiversidad.
+El SINAC deberá impulsar procesos innovadores, para lo cual deberá determinar el tipo de proyectos y actividades orientadas a la conservación y uso sostenible de la biodiversidad, considerando acciones de recuperación, rehabilitación y restauración de ecosistemas.

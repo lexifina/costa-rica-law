@@ -1,0 +1,1 @@
+Artículo 12.—Administración de los fondos. Los recursos provenientes de la internalización de los servicios ecosistémicos podrán ser administrados por medio de los fondos especiales creados por Ley con que cuenta el SINAC o administrados por la Fundación Banco Ambiental (FUNBAM) creada mediante el artículo 4 de la Ley N° 8640 publicada en La Gaceta Nº 128 del 3 de julio del 2008.

@@ -1,0 +1,3 @@
+Artículo 2º—Ámbito de aplicación. El presente reglamento será aplicado por el SINAC en los siguientes términos:
+a) En el Patrimonio Natural del Estado tal y como se entiende en el artículo 13 de la Ley Forestal 7575 del 13 de febrero de 1996, así como áreas marinas comprendidas en los límites de las ASP. Lo anterior a través del mecanismo que procure la conservación en los diferentes modelos de gestión del territorio, para reconocer los servicios ecosistémicos asociados a la biodiversidad.
+b) En terrenos privados mediante la facilitación de iniciativas de mecanismos económicos y no económicos para la conservación y uso sostenible de la biodiversidad.
