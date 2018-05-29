@@ -14,3 +14,4 @@ Reforma Política de Regulación Anual del Crecimiento Urbano en el Cantón de B
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-12 | la propia norma |
+| 2 | 2018-05-29 | Acuerdo municipal 0 (2018-05-29) |
