@@ -1,0 +1,1 @@
+Artículo 19.—De la publicidad de los documentos emitidos por el CONAC. Todo documento interno o de trabajo que utilice el CONAC podrá ser consultado por los interesados y se considerarán públicos y consultables sin limitación alguna, salvo lo indicado en el artículo 273 de la Ley General de la Administración Pública N°6227 y la Ley de Información no Divulgada N° 7975.

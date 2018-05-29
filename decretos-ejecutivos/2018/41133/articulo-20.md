@@ -1,0 +1,1 @@
+Artículo 20.—Procedimiento para resolver conflictos a lo interno del CONAC. El trabajo del CONAC se normará por el presente Reglamento y bajo el espíritu del consenso con el que fue creado. En caso de conflicto, el presidente podrá nombrar una subcomisión entre sus miembros que analizará y discutirá el asunto y planteará opciones de solución en la siguiente sesión convocada.

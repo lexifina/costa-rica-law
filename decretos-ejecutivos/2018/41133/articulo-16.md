@@ -1,0 +1,1 @@
+Artículo 16.—De la revisión de acuerdos. Cualquiera de los miembros del Consejo tendrá derecho a solicitar la revisión de un acuerdo, para lo cual deberá presentar, por la vía de la moción de orden, la solicitud de revisión antes de la aprobación del acta donde conste el acuerdo. El recurso planteado deberá resolverse en la misma sesión.

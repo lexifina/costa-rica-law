@@ -1,0 +1,4 @@
+Artículo 4.—Acreditación de Miembros de CORAC. Sera obligación de cada Consejo Regional designar de su seno y comunicar formalmente el acuerdo de participación de un miembro titular y sus respectivos suplentes en las sesiones del CONAC.
+En caso de impedimento de asistencia del miembro propietario el suplente podrá asistir a la sesión.
+Cuando existan variaciones en el propietario o suplente designado, será responsabilidad del Director Regional, en su condición de Secretario Ejecutivo del Consejo Regional acreditar mediante el acuerdo correspondiente del CORAC, la lista actualizada de miembros representantes ante la Secretaría de Actas del CONAC.
+En caso de que no pueda asistir el titular o suplente acreditado, el CORAC deberá tomar un nuevo acuerdo para designar la participación de otro miembro de su seno ante el CONAC.

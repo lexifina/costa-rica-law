@@ -1,0 +1,1 @@
+Artículo 18.—De la coordinación del CONAC con otras Comisiones e Instituciones. El Consejo Nacional procurará coordinar y proponer mecanismos de coordinación con otras Comisiones e Instituciones estatales, mixtas o privadas, en materia de su competencia.
