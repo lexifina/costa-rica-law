@@ -15,3 +15,4 @@ Política y Procedimiento Retiros Temporales e Indefinidos
 | --- | --- | --- |
 | 1 | 2014-08-01 | la propia norma |
 | 2 | 2016-08-12 | Acuerdo 0 (2016-08-12) |
+| 3 | 2018-05-29 | Reglamento 46 (2018-05-29) |
