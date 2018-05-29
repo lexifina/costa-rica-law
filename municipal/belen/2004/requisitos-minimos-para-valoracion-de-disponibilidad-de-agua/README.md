@@ -14,3 +14,4 @@ Requisitos mínimos para valoración de disponibilidad de agua para desarrollos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-07-28 | la propia norma |
+| 2 | 2018-05-29 | Acuerdo municipal 0 (2018-05-29) |
