@@ -1,0 +1,11 @@
+Artículo 2°—Funciones. Las principales funciones del
+Comisionado serán:
+a) Dar seguimiento y evaluar los planes contra todo tipo de discriminación por orientación sexual e identidad y expresión de género en las instituciones públicas.
+b) Apoyar la promoción y avance de proyectos de ley y políticas públicas destinadas al respeto de los derechos de las personas LGBTI.
+c) Establecer mecanismos de participación de la sociedad civil en el diseño y evaluación de programas y políticas públicas, entre otros.
+d) Coadyuvar en la elaboración de una Política Nacional para una Sociedad Igualitaria Libre de Discriminación por Orientación Sexual e Identidad y Expresión de Género, en la cual se establezca un plan de acción, que comprenda acciones institucionales específicas con metas e indicadores que permitan y promuevan el respeto de la orientación sexual e identidad y expresión de género, la prevención y eliminación de la violencia y discriminación contra las personas LGBTI, así como el respeto de los derechos de las parejas conformadas por personas del mismo sexo.
+e) Apoyar en la ejecución de políticas públicas específicas como la Política para Mujeres Lesbianas y Bisexuales, la Política para la Inclusión educativa, formación y empleo para personas Trans, así como la Norma de atención de Salud para las personas Intersex.
+f) Dar seguimiento a las políticas contra discriminación hacia la población LGBTI establecidas en los Decretos Ejecutivos N° 38999 del 12 de mayo de 2015 y N° 40422 del 25 de mayo de 2017.
+g) Coordinar con los diferentes Ministerios e instituciones de gobierno, y otros organismos nacionales e internacionales, todas las actividades relacionadas con garantizar la igualdad plena a las personas LGBTI en el país y el disfrute de sus derechos.
+h) Representar oficialmente al Gobierno de la República en actividades relacionadas.
+i) Coordinar con distintas instancias públicas, tales como el Sistema Nacional de Información y Registro Único de Beneficiarios del Estado (SINIRUBE) y el Instituto Nacional de Estadística y Censo (INEC), a fin de recolectar datos sobre identidad de género y orientación sexual para poder alimentar políticas públicas específicas de acuerdo con las distintas necesidades particulares.

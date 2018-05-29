@@ -1,0 +1,1 @@
+Artículo 3°—Comité Consultivo. Establézcase un Comité Consultivo con organizaciones de sociedad civil e instancias públicas para coadyuvar en las funciones propias del Comisionado, quien coordinará y convocará las sesiones del Comité.

@@ -1,0 +1,1 @@
+Artículo 4°—Nómbrese al señor Luis Eduardo Salazar Muñoz, portador de la cédula de identidad número 1-01544-0745 como Comisionado de la Presidencia de la República para Asuntos Relacionados con las personas LGBTI, de manera ad honorem, y su vencimiento será el 7 de mayo de 2022.
