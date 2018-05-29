@@ -1,0 +1,8 @@
+Artículo 7
+Cooperación y asistencia internacionales
+1. Cada Estado parte cooperará con los demás Estados partes para facilitar la aplicación del presente Tratado.
+2. Cada Estado parte tendrá derecho a solicitar y recibir asistencia de otros Estados partes, cuando sea viable, para el cumplimiento de sus obligaciones en virtud del presente Tratado.
+3. Cada Estado parte que esté en condiciones de hacerlo prestará asistencia técnica, material y financiera a los Estados partes afectados por el uso o el ensayo de armas nucleares, a fin de impulsar la aplicación del presente Tratado.
+4. Cada Estado parte que esté en condiciones de hacerlo prestará asistencia a las víctimas del uso o del ensayo de armas nucleares u otros dispositivos explosivos nucleares.
+5. La asistencia prevista en el presente artículo se podrá prestar, entre otros medios, a través del sistema de las Naciones Unidas, de organizaciones o instituciones internacionales, regionales o nacionales, de organizaciones o instituciones no gubernamentales, del Comité Internacional de la Cruz Roja, de la Federación Internacional de Sociedades de la Cruz Roja y de la Media Luna Roja o de las sociedades nacionales de la Cruz Roja y de la Media Luna Roja, o de manera bilateral.
+6. Sin perjuicio de cualquier otro deber u obligación que pueda tener en virtud del derecho internacional, el Estado parte que haya usado o ensayado armas nucleares u otros dispositivos explosivos nucleares tendrá la responsabilidad de proporcionar una asistencia adecuada a los Estados partes afectados, con el propósito de asistir a las víctimas y restaurar el medio ambiente.

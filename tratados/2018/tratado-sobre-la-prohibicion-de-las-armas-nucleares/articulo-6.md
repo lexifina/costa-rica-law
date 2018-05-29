@@ -1,0 +1,5 @@
+Artículo 6
+Asistencia a las víctimas y restauración del medio ambiente
+1. Cada Estado parte deberá, con respecto a las personas bajo su jurisdicción afectadas por el uso o el ensayo de armas nucleares, de conformidad con el derecho internacional humanitario y de los derechos humanos aplicable, proporcionar adecuadamente asistencia que tenga en cuenta la edad y el género, sin discriminación, incluida atención médica, rehabilitación y apoyo psicológico, además de proveer los medios para su inclusión social y económica.
+2. Cada Estado parte adoptará, con respecto a las zonas bajo su jurisdicción o control contaminadas como consecuencia de actividades relacionadas con el ensayo o el uso de armas nucleares u otros dispositivos explosivos nucleares, las medidas necesarias y adecuadas para la restauración del medio ambiente de las zonas contaminadas.
+3. Las obligaciones previstas en los párrafos 1 y 2 del presente artículo se entenderán sin perjuicio de los deberes y obligaciones que correspondan a otros Estados en virtud del derecho internacional o de acuerdos bilaterales.

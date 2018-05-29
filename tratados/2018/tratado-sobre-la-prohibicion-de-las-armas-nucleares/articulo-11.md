@@ -1,0 +1,4 @@
+Artículo 11
+Solución de controversias
+1. En caso de controversia entre dos o más Estados partes sobre la interpretación o aplicación del presente Tratado, las partes interesadas se consultarán con miras a resolver la controversia mediante negociación o cualquier otro medio pacífico de su elección, de conformidad con el Artículo 33 de la Carta de las Naciones Unidas.
+2. La reunión de los Estados partes podrá contribuir a la solución de la controversia, en particular mediante el ofrecimiento de sus buenos oficios, el llamamiento a los Estados partes interesados para que pongan en marcha el procedimiento de solución de su elección y la recomendación de un plazo para cualquier procedimiento acordado, de conformidad con las disposiciones pertinentes del presente Tratado y de la Carta de las Naciones Unidas.
