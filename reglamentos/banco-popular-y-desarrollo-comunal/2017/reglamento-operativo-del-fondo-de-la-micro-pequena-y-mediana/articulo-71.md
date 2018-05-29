@@ -1,1 +1,1 @@
-Artículo 71. —De la asesoría. Para los efectos del artículo anterior, la Unidad Técnica podrá buscar asesoría especializada, y proponer a la Junta Directiva Nacional productos específicos.
+Artículo 71. —Soporte administrativo. El Banco Popular brindará oportunamente los servicios de apoyo administrativo que se requieran para el buen funcionamiento de FODEMIPYME.

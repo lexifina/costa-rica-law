@@ -1,2 +1,1 @@
-Artículo 69. —De los principios. En materia presupuestaria se seguirán los principios, políticas y procedimientos establecidos en el Banco Popular.
-El Subproceso de Presupuesto del Banco Popular asesorará en esta materia a la Unidad Técnica.
+Artículo 69. —De la asesoría. Para los efectos del artículo anterior, la Unidad Técnica podrá buscar asesoría especializada, y proponer a la Junta Directiva Nacional productos específicos.

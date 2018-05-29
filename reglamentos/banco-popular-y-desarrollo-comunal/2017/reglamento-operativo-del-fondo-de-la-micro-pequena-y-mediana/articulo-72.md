@@ -1,8 +1,7 @@
-Artículo 72. —Establecimiento de convenios. Para el cumplimiento de sus fines, la Unidad Técnica podrá establecer Convenios de Cooperación.
-Para ello se llevará un expediente donde se documente toda la correspondencia intercambiada que justifique el proyecto y documente el proceso de negociación, informes y toda documentación que se considere pertinente dependiendo del tipo de convenio que se trate.
-Le corresponderá a la Unidad Técnica, el archivo, control y seguimiento de los convenios que se formalicen debiendo incluir sus resultados en el informe periódico a la Junta Directiva. En caso de que se pretenda prorrogar un convenio deberá incluirse en dicho informe una justificación en ese sentido.
-No podrán comprometerse en un convenio aspectos que de cualquier forma causen perjuicio a los recursos del FODEMIPYME o a su imagen. En caso de que ello suceda, es obligación de la Unidad Técnica, tomar las acciones correctivas que sean necesarias y si es del caso dar por terminado el convenio sin responsabilidad para el FODEMIPYME.
-El borrador del convenio junto con el expediente indicado en el punto anterior deberá remitirse a la Consultoría Jurídica del Banco Popular para su revisión y visto bueno, de previo a su formalización.
-Los convenios no pueden establecer condiciones que de alguna manera otorguen ventajas no autorizadas por el ordenamiento jurídico o hagan discriminaciones de cualquier naturaleza.
-No se establecerán convenios exclusivos con ninguna persona o entidad pública o privada.
-No serán objeto de negociación los controles que implemente la Unidad Técnica para verificar el cumplimiento de los fines del Convenio.
+Artículo 72. —Indicador de sostenibilidad patrimonial del FODEMIPYME. Se definirá como:
+ISP = Margen Ajustado al Riesgo / Patrimonio promedio.
+Margen Ajustado al Riesgo = corresponde a la diferencia entre los ingresos generados por el giro de negocio del Fondo y los gastos generados por su gestión.
+Patrimonio promedio = es el patrimonio promedio de los últimos doce meses al corte correspondiente.
+Su cálculo debe ser mensual, para lo cual el valor objetivo deberá estar definido por la inflación interanual proyectada para el final de cada año, publicada por el Banco Central de Costa Rica.
+Sin embargo, es potestad de la Junta Directiva Nacional del Banco Popular, definir cualquier otro parámetro que considere pertinente para este tipo de fondos. La metodologla deberá ser revisada al menos una vez al año, conjuntamente con la Dirección de Riesgo Corporativo del Banco Popular, lo cual deberá hacerse, como máximo, al 31 de enero de cada año.
+Rige a partir de su publicación en La Gaceta.

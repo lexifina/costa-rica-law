@@ -14,3 +14,4 @@ Reglamento operativo del Fondo de la Micro, Pequeña y Mediana Empresa (FODEMIPY
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-10-11 | la propia norma |
+| 2 | 2018-05-29 | Reglamento 5563 (2018-05-29) |

@@ -1,4 +1,4 @@
-Articulo 5 Beneficiarios:
+Artículo 5 Beneficiarios:
 a) Las Micro, Pequeñas y Medianas Empresas, que cuenten con la condición PYME.
 b) Las empresas de la economía social, clasificadas como tales por parte del MEIC.
 c) Las micro, pequeñas y medianas empresas agropecuarias definidas en la Ley No. 8634 y su reglamento.

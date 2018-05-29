@@ -1,1 +1,1 @@
-Artículo 66. —Del sustituto. En caso de ausencia temporal del Director Ejecutivo, le sustituirá el Coordinador Operativo de la Unidad Técnica, con las mismas atribuciones y potestades del Director Ejecutivo.
+Artículo 66. —De la presentación del presupuesto. La Unidad Técnica deberá presentar el presupuesto anual a través de la Subgerencia de Negocios para su aprobación ante la Junta Directiva, dentro de los plazos establecidos en el programa de presupuestación vigente en el Banco Popular.

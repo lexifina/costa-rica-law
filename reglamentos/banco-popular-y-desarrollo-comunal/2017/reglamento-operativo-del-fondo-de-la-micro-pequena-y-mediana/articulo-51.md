@@ -1,11 +1,1 @@
-Artículo 51: Responsabilidades sobre el manejo de fondos para Servicios de Desarrollo Empresarial.
-1. Entidades Proponentes:
-a) Administrar eficientemente los recursos de transferencias y velar por su buen uso.
-b) Cumplir con los objetivos del proyecto aprobado.
-c) Elaborar, revisar y evaluar informes de ejecución del proyecto, de acuerdo con los lineamientos de la Unidad Técnica.
-d) Presentar a la Unidad Técnica los informes de avance y los informes finales de cada proyecto, en un plazo no mayor de 15 días hábiles, según el estándar que ésta ha definido, quien deberá remitir esta información al MEIC.
-e) Presentar al MEIC el informe anual de gestión de apoyo a PYME, de acuerdo con el formulario que la DIGEPYME dispone para tal fin.
-f) Dar seguimiento y evaluar el desarrollo de los servicios de desarrollo empresarial contratados.
-g) Gestionar el pago de los servicios de desarrollo empresarial, cuando corresponda.
-2. Entidades proveedoras:
-Presentar al MEIC el informe anual de gestión de apoyo a PYME, de acuerdo con el formulario que la DIGEPYME dispone para tal fin.
+Artículo 51. —Administración y uso de los recursos. La transferencia, administración y uso de los recursos del Fondo para el Financiamiento de Servicios de Desarrollo Empresarial, por tratarse de recursos públicos, se regirán de acuerdo con lo estipulado en la Ley N° 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos; en la Ley N°7428, Ley Orgánica de la Contraloría General de la República; en la Ley N° 8292, Ley General de Control Interno y cualquier otra ley aplicable y sus respectivos Reglamentos; asi como las Regulaciones sobre la fiscalización y el control de los beneficios patrimoniales gratuitos o sin contraprestación alguna, otorgados a sujetos privados por parte de entidades públicas, emitidas por la Contraloría General de la República.

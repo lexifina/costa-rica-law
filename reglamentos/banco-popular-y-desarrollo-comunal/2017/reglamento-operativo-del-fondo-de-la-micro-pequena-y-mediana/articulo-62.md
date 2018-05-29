@@ -1,17 +1,2 @@
-Artículo 62. —Informes financieros y de control. El FODEMIPYME emitirá una vez al mes los siguientes informes financieros:
-a) Estados Financieros del FODEMIPYME.
-1- Balance de Comprobación.
-2- Estado de Resultados.
-3- Balance General o Situación.
-b) Informe de avales concedidos a la fecha de corte.
-c) Informe de avales ejecutados a la fecha de corte.
-d) Informe de la cartera de inversiones
-e) Informe de rendimientos de la cartera de Inversiones.
-f) Informe de la cartera de crédito.
-g) Informe de recuperaciones del mes.
-h) Informe de colocaciones del mes.
-i) Informes de morosidad financiera.
-j) Informes de morosidad legal.
-k) Informe de garantías en custodia.
-l) Otros a criterio de la Unidad Técnica
-La Unidad Técnica sistematizará la información necesaria para monitorear el comportamiento de los indicadores de gestión, de riesgo y de impacto previamente definidos.
+Artículo 62. —De la creación de la Dirección Ejecutiva. La Unidad Técnica estará a cargo de un Director Ejecutivo nombrado por la Junta Directiva Nacional, designado por tiempo indefinido y las condiciones de contratación serán las equivalentes a las de un Director de Macroproceso o el puesto que le llegue a sustituir en la categorización de cargos del Banco Popular.
+Tanto el Director Ejecutivo como el Coordinador Operativo de la Unidad Técnica serán individualmente, representantes judiciales y extrajudiciales del Banco Popular y de Desarrollo Comunal con facultades de Apoderado Generalísimo sin límite de suma únicamente para todos los asuntos del FODEMIPYME que serán definidos expresamente en los poderes que serán otorgados por la Junta Directiva Nacional.

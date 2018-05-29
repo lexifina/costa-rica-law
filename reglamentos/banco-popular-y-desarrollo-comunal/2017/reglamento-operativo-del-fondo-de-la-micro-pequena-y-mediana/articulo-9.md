@@ -1,4 +1,4 @@
-Artículo 9º—Principios del fondo de avales y garantías. El fondo de avales y garantías debe velar por los siguientes principios, establecidos en el Decreto Ejecutivo 39278-MEIC:
+Artículo 9°—Principios del fondo de avales y garantías. El fondo de avales y garantías debe velar por los siguientes principios, establecidos en el Decreto Ejecutivo 39278-MEIC:
 Acceso: Este principio se relaciona con las empresas o clientes que serán atendidos, que deberán ser sólo aquellos que cuenten con proyectos viables y que requieran esta facilidad por insuficiencia de garantías.
 Adicionalidad: Es la cantidad de financiamiento adicional que se genera y la posibilidad de una mayor cobertura a las empresas, debido a la existencia de un sistema de garantías exitoso; cuanto más alta la adicionalidad más justificadas se encuentran su continuidad y la adopción de políticas que preserven su existencia.
 Beneficio de los usuarios: El fondo de garantía debe servir para brindar, como valor agregado, mejoras en las condiciones de las operaciones, tales como plazos más largos, menores requisitos de colateral y tasas de interés más bajas, entre otros.

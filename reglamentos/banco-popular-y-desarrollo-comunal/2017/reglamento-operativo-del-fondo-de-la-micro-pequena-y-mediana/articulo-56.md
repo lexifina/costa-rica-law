@@ -1,2 +1,1 @@
-Artículo 56—Pagos a los oferentes de servicios de desarrollo empresarial. En ningún caso se desembolsará por adelantado el total del pago por concepto de los servicios de desarrollo empresarial prestados para la ejecución del proyecto o programa.
-Para los pagos parciales o finales de los servicios, los proveedores de servicios de desarrollo empresarial deberán presentar los correspondientes informes, a satisfacción de la entidad proponente.
+Artículo 56 —Aprobación y giro de fondos. Una vez que los proveedores entreguen a FODEMIPYME los proyectos de servicios de desarrollo empresarial, cumpliendo con todas las formalidades establecidas, FODEMIPYME tiene un plazo de 30 días naturales para su respectiva aprobación.

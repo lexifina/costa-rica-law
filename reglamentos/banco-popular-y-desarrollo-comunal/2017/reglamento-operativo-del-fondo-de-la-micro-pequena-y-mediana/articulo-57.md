@@ -1,1 +1,5 @@
-Artículo 57. —Incumplimiento. En caso de que la Unidad Técnica determine que alguna entidad incumplió con los fines o propósitos para los cuales se otorgaron los recursos, la misma estará obligada a reintegrar, dentro de un plazo de un mes, una vez comprobada la falta, el monto transferido hasta ese momento, más los respectivos intereses legales y gastos administrativos. Si la entidad no realiza el reintegro en el plazo estipulado, se gestionará el cobro ante las autoridades administrativas o judiciales que correspondan.
+CAPITULO 6
+Aspectos contables y administrativos de FODEMIPYME
+Artículo 57. —De la contabilidad independiente. Los resultados de FODEMIPYME se registrarán contablemente como una cuenta de orden en el balance financiero del Banco Popular. Por estar fuera de normativa SUGEF, la calificación de riesgo de la cartera del fondo, será independiente de la calificación de cartera del Banco.
+FODEMIPYME deberá mantener una contabilidad totalmente separada e individualizada, donde se tendrá detalle exacto y oportuno de cada partida contable que conforme su situación financiera.
+Las utilidades que genere el FODEMIPYME serán reinvertidas en él y no estarán sujetas al impuesto sobre la renta.
