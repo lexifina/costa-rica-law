@@ -1,0 +1,5 @@
+JUNTA ADMINISTRATIVA DEL REGISTRO NACIONAL
+Acuerdo J031-2018, tomado por la Junta Administrativa del Registro Nacional en la sesión N°.04-2018, celebrada de manera ordinaria el 08 de febrero de 2018 que literalmente dice:
+LA JUNTA ADMINISTRATIVA
+ACUERDA POR UNANIMIDAD:
+J031-2018. 1-) Tener por recibido el oficio DGL-0102-2018 de fecha 30 de enero de 2018, suscrito por el Licenciado Luis Jiménez Sancho, Director General, mediante el cual transmite para conocimiento y aprobación la Revisión de fondo fijo y montos por Caja Chica. 2-) Aprobar el informe DAD-0099-2018, de fecha 29 de enero de 2018, del Departamento Financiero, el cual contiene la Revisión de fondo fijo y montos por Caja Chica. 3-) Aprobar la actualización correspondiente por Revisión de fondo fijo y montos por Caja Chica contenida en el oficio DAD-0099-2018, a saber, por concepto de: a- Fondo fijo de Caja Chica la suma de ȼ4.080.045,00; b- Por Monto máximo a cubrir por transacción con el Fondo Fijo de Caja Chica ȼ714.005,00; c- Monto a partir del cual se requiere presentar 3 cotizaciones, ȼ153.000,00. 4-) Acuerdo firme
