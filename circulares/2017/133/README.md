@@ -13,3 +13,4 @@ Modificación a lo dispuesto en la sesión N° 94-08 celebrada el 09 de diciembr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-09-04 | la propia norma |
+| 2 | 2018-05-30 | Circular 67 (2018-05-30) |
