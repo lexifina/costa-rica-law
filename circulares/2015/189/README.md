@@ -13,3 +13,4 @@ Procedimiento para la asignación de perfiles y claves de acceso al personal asi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-10-29 | la propia norma |
+| 2 | 2018-05-30 | Circular 68 (2018-05-30) |
