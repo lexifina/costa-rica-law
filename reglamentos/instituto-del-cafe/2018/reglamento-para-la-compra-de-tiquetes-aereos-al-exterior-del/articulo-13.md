@@ -1,0 +1,1 @@
+Artículo 13.—Cada 6 meses el área de Control Interno deberá realizar los análisis y estudios correspondientes sobre la funcionalidad e idoneidad del sistema de compra de tiquetes de manera electrónica y comunicar los resultados a la Dirección Ejecutiva, como medida de control interno.
