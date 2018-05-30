@@ -16,3 +16,4 @@ Reglamento General de Trámites de la Dirección General de Servicio Civil
 | 1 | 2015-08-17 | la propia norma |
 | 2 | 2017-02-15 | Decreto Ejecutivo 40228 (2017-02-15) |
 | 3 | 2017-05-16 | Decreto Ejecutivo 40605 (2017-05-16) |
+| 4 | 2018-05-30 | Decreto Ejecutivo 41204 (2018-05-30) |
