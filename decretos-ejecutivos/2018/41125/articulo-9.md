@@ -1,0 +1,1 @@
+Artículo 9º—Incorporación en la planificación nacional. El Ministerio de Planificación Nacional y Política Económica, conforme a sus atribuciones legales, incorporará la contabilidad ambiental del país como un insumo fundamental del proceso de formulación del Plan Nacional de Desarrollo y de las políticas públicas.

@@ -1,0 +1,1 @@
+Artículo 4°—De la organización interna del Consejo. La Presidencia del Consejo corresponderá al representante del MINAE, quien presidirá, abrirá y cerrará las sesiones, además, preparará el orden del día, llevará la agenda y las actas del Consejo, las cuales deberá distribuirlas entre los miembros.

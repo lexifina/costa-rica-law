@@ -1,0 +1,3 @@
+Artículo 5°—De los asesores y comisiones de expertos. En cualquier momento que lo considere conveniente, el Consejo podrá nombrar comisiones de trabajo de expertos ad hoc con funciones de asesoría en temas específicos y para análisis de temas puntuales.
+También podrá convocar, por medio de su Presidente, a invitados especiales para analizar temas complejos o aspectos específicos de su quehacer.
+Para cada Cuenta Ambiental el CNCA solicitará al INEC la creación de un comité para el abordaje de temas relacionados con los requerimientos de la cuenta: planificación, coordinación, y generación de las estadísticas básicas necesarias para la elaboración de las cuentas ambientales, tomando como base los nodos temáticos del SINIA en funcionamiento.
