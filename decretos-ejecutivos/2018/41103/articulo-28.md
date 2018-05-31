@@ -1,0 +1,1 @@
+ARTÍCULO 28.- Pasillos. Los pasillos tendrán como mínimo un ancho libre de obstáculos, de dos metros cuarenta centímetros (2,40m) para los primeros cuatrocientos metros cuadrados (400 m2) de planta útil y se aumentarán a razón de cero coma sesenta metros (0.60 m) por cada cien (100) metros adicionales o fracción. No deberán colocarse gradas o rampas aisladas en ellos.

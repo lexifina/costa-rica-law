@@ -1,0 +1,7 @@
+CAPITULO III
+CONDICIONES ESPECÍFICAS PARA LA CONSTRUCCIÓN
+ARTÍCULO 11.- Área del lote y la edificación. Para el cálculo del área del lote y la edificación se deberá considerar la sumatoria del área de la edificación más el área de la superficie libre útil del terreno.
+En las ramas de Educación Preescolar y Educación General Básica, el área se calculará a razón de diez metros cuadrados (10,00 m2), como mínimo por alumno para I y II ciclos, y quince metros cuadrados (15,00 m2), como mínimo para el III ciclo, lo mismo que para Educación Diversificada y Educación Superior Privada.
+En zonas urbanas con edificaciones de dos o más niveles, aplicarán las áreas de cobertura máxima establecidas en este Reglamento, o según lo señalado en el Plan Regulador de la zona.
+Para la rama de Educación Especial, Diversificada y Superior deberán aplicarse los lineamientos, manuales, métodos para cálculo de la capacidad locativa y demás disposiciones emanadas de la Dependencia competente en Materia de Infraestructura Educativa (DIEE) del Ministerio de Educación Pública, o en su defecto los acordados por el pleno del Consejo Superior de Educación (CSE) y Consejo Nacional de Enseñanza Superior Universitaria Privada (CONESUP), dentro del alcance de sus competencias legales, respectivamente.
+Para el cálculo de espacio se deberá considerar el número máximo de alumnos previstos en el programa o plan de estudios completo.

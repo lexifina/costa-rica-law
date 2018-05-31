@@ -1,0 +1,1 @@
+ARTÍCULO 9. Vigencia de la aprobación. Los documentos de aprobación, tanto de planos como de infraestructura, se mantendrán vigentes en tanto el uso de las instalaciones físicas del centro educativo, conserve las mismas condiciones bajo las cuales fueron valoradas y aprobadas.

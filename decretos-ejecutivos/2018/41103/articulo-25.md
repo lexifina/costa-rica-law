@@ -1,0 +1,1 @@
+ARTÍCULO 25.- Pasos cubiertos. Todos los edificios de un centro educativo deberán estar comunicados por medio de pasos cubiertos; las rampas y escaleras ubicadas en dicho recorrido también deberán estar cubiertas.

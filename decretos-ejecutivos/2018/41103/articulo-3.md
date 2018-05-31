@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Programa de necesidades de espacios arquitectónicos. Los programas de necesidades de espacio arquitectónico deberán ser aprobados por la dependencia competente en materia de Infraestructura Educativa (DIEE) del Ministerio de Educación Pública. Esto será un requisito para la aprobación de los planos constructivos establecida en el presente Reglamento.

@@ -1,0 +1,9 @@
+ARTÍCULO 2.- Ubicación.
+Las obras de infraestructura educativa así como los terrenos en los cuales se ubiquen, deberán cumplir con los siguientes requerimientos técnicos:
+a) Diseños complementarios que permitan la accesibilidad a la edificación según la Ley de
+Igualdad de Oportunidades para Personas con Discapacidad número 7600.
+b) Acceso vehicular y peatonal, individuales (de manera que no existan conflictos de circulación entre sí).
+c) Espacios con vegetación.
+d) Estar protegidos de elementos perturbadores de la salud y tranquilidad de los educandos, como accesos principales sobre vías ferroviarias o carreteras sin la debida señalización para la seguridad vial, tendidos de alta tensión y áreas identificadas como insalubres por las autoridades competentes.
+e) Cumplir con las normativas dispuestas para zonas de protección, aeropuertos o campos de aterrizaje (de acuerdo al artículo 96 de la Ley General de Aviación Civil, número 5150), alineamiento vial del MOPT (artículo 19 de la Ley General de Caminos Públicos, Número 5060), áreas de protección de cuencas (Ley Forestal 7575 del 13 de febrero de 1996, artículo 33), alineamiento municipal (capítulo cuatro, artículo 18 de la Ley de Construcciones, número 833), Planes Reguladores (Ley de Planificación Urbana, Ley N° 4240 del 15 de noviembre de 1968, artículo 15), zonas especiales para conducción de redes de agua, alcantarillado, electricidad, oleoductos y similares (servidumbres) (artículo 2, Decreto Nº 25902-MIVAH-MPMINAE, del 12 de febrero de 1997, Plan Regional Desarrollo Urbano Gran Área Metropolitana, y cualquier otra regulación especial y sus respectivas reformas).
+f) No deberán estar ubicados a menos de la distancia legal permitida respecto de locales que comercialicen bebidas con contenido alcohólico (artículo 9 de la Ley de Regulación y Comercialización de bebidas con contenido alcohólico, Número 9047 y sus reformas).

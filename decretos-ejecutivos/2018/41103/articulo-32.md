@@ -1,0 +1,1 @@
+ARTÍCULO 32.- Salidas de emergencia. Se aplicará lo dispuesto por la Ley del Benemérito Cuerpo de Bomberos de Costa Rica número 8228, su Reglamento aprobado vía Decreto Ejecutivo N° 37615-MP o sus reformas.
