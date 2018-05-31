@@ -14,3 +14,4 @@ Reglamento para el Manejo de Rastrojos, Desechos y Residuos de origen Animal y V
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-02 | la propia norma |
+| 2 | 2018-05-31 | Decreto Ejecutivo 41295 (2018-05-31) |

@@ -1,2 +1,2 @@
-Artículo 4º- MANEJO DE DESECHOS O RESIDUOS DE ORIGEN ANIMAL O VEGETAL
-El manejo de desechos o residuos de origen animal o vegetal, se refiere a la implementación de las buenas prácticas agrícolas y pecuarias cuyo fin sea evitar la reproducción de la plaga objeto de este Reglamento, según se detalla en el anexo a este Reglamentoo denominado “Manual Técnico para el Manejo de Rastrojos en el Cultivo de la Piña”, el cual forma parte integrante del mismo.
+Artículo 4º—Manejo de desechos o residuos de origen animal o vegetal El manejo de desechos o residuos de origen animal o vegetal, se refiere a la implementación de las buenas prácticas agrícolas y pecuarias cuyo fin sea evitar la reproducción de la plaga objeto de este Reglamento.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41295 del 31 de mayo del 2018)
