@@ -1,0 +1,1 @@
+Artículo 172. Las sanciones descritas en este capítulo, serán impuestas por el Alcalde Municipal, salvo a los servidores públicos que dependan del Concejo Municipal, conforme el procedimiento que establece el Código Municipal y la Ley General de la Administración Pública.

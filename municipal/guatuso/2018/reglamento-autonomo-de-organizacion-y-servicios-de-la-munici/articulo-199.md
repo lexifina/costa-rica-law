@@ -1,0 +1,1 @@
+Artículo 199. Aquellos servidores públicos municipales que deban desplazarse fuera de su sede habitual de trabajo para realizar tareas propias de su cargo y en cumplimiento de esas tareas se exceda de la jornada ordinaria previa verificación, se reconocerá el tiempo extraordinario, así como el viático pertinente.

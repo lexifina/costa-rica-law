@@ -1,0 +1,1 @@
+Artículo 44. Los contratos de trabajo que se celebran con personas del género femenino o con menores de edad garantizarán todos los derechos y ventajas que a este tipo de trabajadores reconoce el Código de Trabajo y leyes especiales conexas.

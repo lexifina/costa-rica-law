@@ -1,0 +1,1 @@
+Artículo 28. Para la preparación o confección, administración y calificación de los exámenes y pruebas específicas de selección de personal se podrá solicitar la colaboración técnica la Unión de Gobiernos Locales.

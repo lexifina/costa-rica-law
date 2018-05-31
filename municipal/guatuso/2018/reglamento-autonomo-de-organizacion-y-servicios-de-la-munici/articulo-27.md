@@ -1,0 +1,2 @@
+Artículo 27. La selección de personal se hará por medio de pruebas de idoneidad y/o atestados para el caso de cargos que deban llenarse con profesionales, a las que únicamente se admitirán aspirantes que reúnan los requisitos para ser nombrados en el puesto que se trate.
+Para la elaboración y calificación de dichas pruebas, quien o quienes lleven adelante la sección de reclutamiento y selección de personal, podrá requerir el asesoramiento técnico de la dependencia donde existan puestos vacantes, cuyos jefes están en la obligación de brindarla de forma oportuna.

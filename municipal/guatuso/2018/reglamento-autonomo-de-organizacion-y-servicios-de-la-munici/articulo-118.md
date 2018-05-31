@@ -1,0 +1,1 @@
+Artículo 118. Cuando el resultado de la evaluación y calificación de servicios anual del servidor sea regular dos veces consecutivas. Se considerará falta grave y se impondrá la sanción que corresponde después del Procedimiento Administrativo Ordinario Disciplinario correspondiente.

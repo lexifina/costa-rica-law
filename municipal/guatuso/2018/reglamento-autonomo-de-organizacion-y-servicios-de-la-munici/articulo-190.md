@@ -1,0 +1,2 @@
+Artículo 190. La Municipalidad, previa solicitud expresa del servidor público municipal podrá compensar sus días de vacaciones sobre el excedente de los 15 días. Dicha compensación parcial se hará en el momento de liquidar el periodo correspondiente, conforme a las reglas establecidas por la jurisprudencia judicial y administrativa. La compensación dependerá de la cantidad de recursos económicos libres de que disponga el municipio.
+Las vacaciones profilácticas son incompensables.

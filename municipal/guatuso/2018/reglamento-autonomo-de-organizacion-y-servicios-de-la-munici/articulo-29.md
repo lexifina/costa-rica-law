@@ -1,0 +1,2 @@
+Artículo 29. Con las salvedades expresas en el Código Municipal, el personal de la Municipalidad será nombrado y removido por el Alcalde Municipal, o en quien éste haya delegado dicha función, previo informe técnico respecto a la idoneidad comprobada de los aspirantes al cargo, efectuado por el departamento de Gestión de Talento Humano.
+La Municipalidad para efectos de Reclutamiento y Selección de Personal, mantendrá actualizado un Manual de Reclutamiento y Selección.

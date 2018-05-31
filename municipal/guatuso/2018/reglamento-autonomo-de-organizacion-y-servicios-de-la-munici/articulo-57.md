@@ -1,0 +1,1 @@
+Artículo 57. Es responsabilidad exclusiva del Departamento de Gestión de Talento Humano, gestionar la desvinculación del servidor público municipal con su puesto de trabajo y la Municipalidad, en cualquiera de las formas en que hubiese sido contratado el servidor cesante.

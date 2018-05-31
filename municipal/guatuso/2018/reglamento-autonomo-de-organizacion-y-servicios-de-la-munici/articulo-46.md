@@ -1,0 +1,1 @@
+Artículo 46. El servicio contratado se prestará en cualesquiera de las instalaciones sobre las que la Municipalidad tenga posesión o disfrute y cada servidor público municipal lo ejecutará según hubiese sido contratado.

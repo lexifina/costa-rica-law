@@ -1,0 +1,5 @@
+Artículo 200. Los salarios o sumas de dinero pagados de más a los servidores públicos municipales, se rebajarán conforme el siguiente procedimiento:
+1. La Administración notificará al servidor que le ha cancelado salario o sumas de dineros pagados de más y la apercibirá en forma escrita, a presentarse en el lapso de cinco días hábiles al Departamento de Gestión de Talento Humano correspondiente, con el fin de llegar a un arreglo de pago.
+2. El Departamento de Gestión de Talento Humano ante la presencia del servidor público municipal, demostrará la prueba de justificación en pago de más, especificando el monto y fecha en que se realizó dicho pago de más.
+3. El Departamento de Gestión de Talento Humano atenderá el compromiso de devolución de la suma de dinero pagado de más, por parte del servidor público municipal, entendiéndose que dicho rebajo se efectuará en un plazo mínimo de seis meses.
+4.Las retenciones de dinero del salario del servidor público municipal por concepto de devolución por dineros recibidos de más no pueden ser rebajados de la cesantía de la persona trabajadora.

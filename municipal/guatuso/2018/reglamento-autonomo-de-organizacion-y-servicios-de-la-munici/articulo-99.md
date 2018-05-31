@@ -1,0 +1,1 @@
+Artículo 99. El Departamento de Gestión de Talento Humano sólo realizará estudios por solicitud de los interesados, excepto en la ponderación del factor experiencia, lo cual deberá hacer de oficio, por lo que requerirá llevar los controles indispensables para ello.

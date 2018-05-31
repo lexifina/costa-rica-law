@@ -1,0 +1,1 @@
+Artículo 181. En caso de reubicación temporal de los funcionarios por necesidades del servicio, la Municipalidad garantizará como política institucional dirigida a los que serán reubicados en forma prioritaria en el propio centro de trabajo, todo dentro de los límites legítimos del Ius Variandi.

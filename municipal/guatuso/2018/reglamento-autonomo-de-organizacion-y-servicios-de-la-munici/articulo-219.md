@@ -1,0 +1,1 @@
+Artículo 219. La persona que denuncia hostigamiento sexual falso, podrá incurrir, cuando así se tipifique, en cualquiera de las conductas propias de la difamación, la injuria o la calumnia, de acuerdo con las disposiciones correspondientes del Código Penal. Además, si se tratare de un servidor municipal se le podrá sancionar por falta muy grave conforme a este Reglamento.

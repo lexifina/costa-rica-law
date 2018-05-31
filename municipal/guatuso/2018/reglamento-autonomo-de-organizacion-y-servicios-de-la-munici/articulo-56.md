@@ -1,0 +1,1 @@
+Artículo 56. Será deber del Departamento de Gestión de Talento Humano proveer la inducción al servidor municipal de nuevo ingreso. Suministrándole información relativa a las instalaciones de la Municipalidad, puesto de trabajo y grupos sociales existentes a fin de lograr una identificación con la organización.

@@ -1,0 +1,1 @@
+Artículo 45. Cuando la Institución necesite reclutar personas para un adiestramiento previo, se suscribirán contratos de aprendizaje que estarán regidos por lo que al respecto dispone el Código de Trabajo o cualesquiera otras disposiciones que sobre la misma materia estén en vigencia o llegaren a dictarse

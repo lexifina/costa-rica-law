@@ -1,0 +1,1 @@
+Artículo 188. Son días feriados de pago obligatorio para los servidores públicos municipales, los días 1º de enero, jueves, viernes y sábado santos, 11 de abril, 1º de mayo, 25 de julio, 2 y 15 de agosto, 15 de septiembre, 12 de octubre y 25 de diciembre. Los días de asueto que determine el Gobierno o las Autoridades Locales Gubernamentales.

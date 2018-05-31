@@ -1,0 +1,1 @@
+Artículo 65. El Departamento Legal brindará todo el apoyo legal en materia laboral a la institución, así como lo que al respecto se indique en el Manual de Procedimientos de la Municipalidad. Deberá trabajar en coordinación con el Departamento de Gestión de Talento Humano en las tareas que este Reglamento le asigna, dándole el soporte jurídico para llevarlas a buen término.

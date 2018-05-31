@@ -1,0 +1,1 @@
+Artículo 101. Los profesionales que reúnan las condiciones indicadas en el artículo 83, para obtener los beneficios de la Carrera Profesional, deben hacer la solicitud ante la Alcaldía con copia al Jefe del Departamento de Gestión de Talento Humano y adjuntar a la solicitud los documentos necesarios para aprobar, comprobar y fundamentar sus atestados.

@@ -1,0 +1,1 @@
+Artículo 47. El Departamento de Gestión de Talento Humano será el responsable de la formación y custodia del expediente personal de cada uno de los funcionarios al servicio de la Municipalidad, de mantenernos al día en cuanto a los documentos que estos aporten, y de preservar su confidencialidad, lo mismo para los prontuarios que realice.

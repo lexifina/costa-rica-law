@@ -1,0 +1,1 @@
+Artículo 117. El desacuerdo entre el coordinador inmediato y el servidor público municipal en relación con el resultado de la evaluación y calificación de servicios, será resuelto por el Alcalde de la Municipalidad, previa audiencia a todas las partes interesadas. Contra lo resuelto por el Alcalde cabrán los recursos ordinarios del Código Municipal.

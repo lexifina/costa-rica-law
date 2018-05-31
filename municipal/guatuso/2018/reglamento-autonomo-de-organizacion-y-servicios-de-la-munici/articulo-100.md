@@ -1,0 +1,1 @@
+Artículo 100. El Departamento de Gestión de Talento Humano será responsable de la emisión de las resoluciones pertinentes en materia de reconocimiento del beneficio aquí reglamentado. Los responsables por pagos de puntos en excesos serán responsables solitarios de los montos adeudados a la Administración.

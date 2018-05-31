@@ -1,0 +1,1 @@
+Artículo 23. La modificación de las condiciones de trabajo se efectuará mediante resolución administrativa motivada, la cual será autorizada por el Alcalde Municipal y se materializará mediante la acción de personal expedida por el Departamento de Gestión de Talento Humano y firmada por el Alcalde Municipal, firma que le otorgará validez y eficacia.

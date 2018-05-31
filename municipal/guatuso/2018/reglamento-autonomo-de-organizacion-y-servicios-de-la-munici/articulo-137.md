@@ -1,0 +1,1 @@
+Artículo 137. Tratándose de baja médica para trabajar por riesgo profesional, se estará a lo dispuesto la Ley sobre Riesgos de Trabajo, y sus reformas, garantizándose en todo caso el pago del cien por ciento del salario del servidor municipal.

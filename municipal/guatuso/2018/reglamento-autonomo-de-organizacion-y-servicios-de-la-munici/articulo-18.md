@@ -1,0 +1,1 @@
+Artículo 18. Del incumplimiento de los deberes éticos. El incumplimiento de estos deberes con carácter intencional o culposo, comprobado mediante un procedimiento administrativo, dará lugar a la aplicación de la respectiva sanción de las previstas en el Código Municipal en el artículo 149, 150 y siguientes, así como en las descritas por este Reglamento.

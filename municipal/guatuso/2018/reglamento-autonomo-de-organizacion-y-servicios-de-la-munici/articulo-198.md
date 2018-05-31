@@ -1,0 +1,5 @@
+Artículo 198. El servicio que se ejecute fuera de los límites máximos señalados como jornada ordinaria, se considerará tiempo extraordinario y deberá remunerarse con el cincuenta por ciento más del salario ordinario, o sea, a tiempo y medio.
+Las horas extraordinarias laboradas durante un día libre (descanso semanal), feriado o asueto se remunerará con el doble del salario ordinario, al ser el salario mensual solamente se deberá cancelar un salario sencillo adicional por las primeras ocho horas.
+Este tiempo debe estar debidamente autorizado, supervisado, con el respectivo contenido presupuestario y avalado y evaluado por la jefatura correspondiente, quien es responsable directa de su control y respectiva tramitación ante el Departamento de Gestión de Talento Humano. El tiempo extraordinario se remunerará exclusivamente en dinero y dentro de los treinta días siguientes a su prestación.
+La realización del tiempo extraordinario procederá conforme lo dispuesto en el ordenamiento jurídico.
+No procede pago de tiempo extraordinario para cumplir con obligaciones que debieron ejecutarse en el tiempo ordinario.

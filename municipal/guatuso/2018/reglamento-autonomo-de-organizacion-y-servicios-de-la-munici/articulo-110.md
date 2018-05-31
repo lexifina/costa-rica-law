@@ -1,0 +1,1 @@
+Artículo 110. El Departamento de Gestión de Talento Humano en caso de duda en cuanto a la calificación de atestados relativos a estudios y experiencia, podrán elevar a la Unión Nacional de Gobiernos Locales, solicitud escrita para su estudio y resolución definitiva.

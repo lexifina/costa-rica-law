@@ -1,0 +1,2 @@
+Artículo 62. El Departamento de Gestión de Talento Humano gestionara lo referente a Seguridad e Higiene en el trabajo. Con el fin de reconocer, evaluar y controlar aquellos factores del ambiente, psicológicos o tensionales, que provienen del trabajo y pueden causar enfermedades, accidentes o deteriorar la salud.
+Procurando desarrollar y mantener procedimientos para prevenir accidentes de trabajo y enfermedades profesionales.

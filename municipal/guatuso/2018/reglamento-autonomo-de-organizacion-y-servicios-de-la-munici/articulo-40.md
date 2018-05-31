@@ -1,0 +1,1 @@
+Artículo 40.-Funciones del Concejo Municipal en materia de empleo. El Concejo Municipal fijará mediante reglamento distinto a éste el procedimiento que utilizará a efectos de procurar el nombramiento, traslado, promoción y remoción de los funcionarios a su cargo.

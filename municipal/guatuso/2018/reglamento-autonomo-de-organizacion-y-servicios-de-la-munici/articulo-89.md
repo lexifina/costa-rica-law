@@ -1,0 +1,9 @@
+Artículo 89. Se hará reconocimiento de puntos por publicaciones realizadas por el servidor, incluso en idiomas extranjeros, siempre que aporte traducción de una institución acreditada para tal fin -por medios escritos o electrónicos, siempre que:
+a) Sean de carácter especializado en su disciplina de formación académica o atinente al campo de actividad del puesto que desempeña.
+b) Sean trabajos de carácter técnico, tecnológico o científico, en los que se aborde, en forma analítica, coherente, amplia, metódica y sistemática, el desarrollo de un tema o problema del saber; con el propósito de darlo a conocer a lectores que poseen, al menos, algún grado de conocimiento sobre la materia.
+c) No sean trabajos requeridos para la obtención de grados y postgrados académicos, ni publicaciones que surjan como resultado del desempeño habitual del puesto, a excepción de aquellos que se realicen a título personal, en los cuales concurra el aporte adicional del funcionario y el respaldo o patrocinio de la institución a la cual sirve.
+d) Sean artículos o ensayos publicados por una editorial.
+e) Sean libros publicados con el respaldo de un Consejo Editorial. Para este efecto, se actuará de conformidad con el criterio emitido por la UNESCO, que define el libro como una publicación de más de 48 páginas efectivas en el texto.
+f) Que no sean publicaciones puramente descriptivas e informativas, destinadas a divulgar hechos, acontecimientos o situaciones de interés público en general.
+En el caso de los escritos publicados por dos o más autores, los puntos serán distribuidos en forma proporcional al número de ellos.
+En estas circunstancias, no se considerarán las fracciones de puntos, no obstante, éstas se podrán acumular para efectos de completar nuevos puntos cuya distribución deberá seguir este mismo procedimiento.

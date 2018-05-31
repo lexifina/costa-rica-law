@@ -1,0 +1,1 @@
+Artículo 107. El monto por reconocer se establecerá mediante resolución escrita de la Alcaldía, con un dictamen obligatorio del departamento legal de la entidad. La fecha de vigencia de la concesión inicial, no de los ajustes, será a partir del primer día del siguiente mes calendario a la fecha de tramitada la solicitud por la Alcaldía.

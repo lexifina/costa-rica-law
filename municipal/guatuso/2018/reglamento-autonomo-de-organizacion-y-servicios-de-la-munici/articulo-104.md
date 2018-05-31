@@ -1,0 +1,3 @@
+Artículo 104. Los ajustes a la Carrera Profesional podrán ser solicitados a la Alcaldía en cualquier época del año. Su fecha de vigencia será:
+a) Para las presentadas entre el 1º de enero y 30 de junio de cada año, el 1º de julio siguiente.
+b) Para las presentadas entre el 1º de julio y 31 de diciembre de cada año, el 1º de enero siguiente.
