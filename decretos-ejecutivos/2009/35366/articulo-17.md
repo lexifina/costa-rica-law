@@ -1,7 +1,7 @@
 Artículo 17.—Funciones y competencias de la división de control y evaluación de la gestión de ingresos. Corresponde a esta División, brindar asesoría a la Dirección General, elaborar la programación, planeamiento, procedimientos y normativa relacionada con el control y la evaluación de la gestión de las áreas de ingresos del Ministerio. Asimismo, planificar, dirigir, controlar y evaluar las funciones del Departamento de Evaluación de la Gestión. Le corresponde además ejercer las siguientes funciones:
 a) Definir los planes anuales, operativos y programas de la División y del Departamento de Evaluación de la Gestión.
 b) Fiscalizar, controlar y evaluar todas aquellas actividades relacionadas con la gestión del Área de Ingresos.
-c) Controlar posibles distorsiones en la transparencia de las actuaciones de los funcionarios del Área de Ingresos.
+c) (Derogado por el artículo 7° del Reglamento de Organización y Funciones de la Unidad Asesora de Asuntos Internos del Ministerio de Hacienda, aprobado mediante decreto ejecutivo N° 41198 del 1° de junio del 2018)
 d) Aprobar en conjunto con el Director, el Plan Anual de Evaluación de la Gestión y la Directriz Anual de Criterios de Selección.
 e) Emitir las recomendaciones a las autoridades competentes sobre la evaluación y control de la gestión del Área de Ingresos.
 f) (Derogado por el artículo 4° del decreto ejecutivo N° 40671 del 18 de agosto de 2017)
