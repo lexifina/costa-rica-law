@@ -1,4 +1,5 @@
-Artículo 9°.—Durante el 2018, los ministerios, los órganos desconcentrados y entidades que reciben transferencia de Gobierno para el pago de remuneraciones, y que están cubiertos por el ámbito de la Autoridad Presupuestaria, podrán utilizar el 50% de las vacantes existentes y las que se generen a futuro.
+Artículo 9°.Durante el 2018, los ministerios, los órganos desconcentrados y entidades que reciben transferencia de Gobierno para el pago de remuneraciones, y que están cubiertos por el ámbito de la Autoridad Presupuestaria, podrán utilizar hasta un máximo del 25% de las vacantes existentes y las que se generen en lo que resta del periodo.
+(Así reformado el párrafo anterior por el artículo 1° de la directriz N° 003 del 1° de junio de 2018)
 Por vacante se debe entender, todo puesto en el que no existe persona ejerciendo las funciones y responsabilidades, sea interina o en propiedad y la cual no se encuentra en proceso de nombramiento de personal, entendido este desde la presentación de la gestión ante las oficinas de Recursos Humanos.
 Quedan exceptuadas de esta Directriz, las siguientes plazas:
 a. Las del Ministerio de Educación Pública y las de otras entidades que estén dedicadas a la docencia, así como las del SINEM y el Instituto Nacional de la Música dedicadas a la enseñanza musical.

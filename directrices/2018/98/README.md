@@ -14,3 +14,4 @@ Durante el ejercicio económico 2018, los órganos que conforman el Presupuesto 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-01-26 | la propia norma |
+| 2 | 2018-06-01 | Directriz 3 (2018-06-01) |
