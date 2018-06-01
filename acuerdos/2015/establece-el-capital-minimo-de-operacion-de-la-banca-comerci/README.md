@@ -17,3 +17,4 @@ Establece el capital mínimo de operación de la banca comercial privada en el 2
 | 2 | 2015-06-10 | Acuerdo 0 (2015-06-10) |
 | 3 | 2016-05-11 | Acuerdo 0 (2016-05-11) |
 | 4 | 2017-06-13 | Acuerdo 0 (2017-06-13) |
+| 5 | 2018-06-01 | Acuerdo 0 (2018-06-01) |
