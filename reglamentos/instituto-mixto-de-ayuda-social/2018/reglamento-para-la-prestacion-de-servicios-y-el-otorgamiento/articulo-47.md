@@ -1,0 +1,1 @@
+Artículo 47: De las competencias del IMAS con respecto a las Instituciones de Bienestar Social: El IMAS por medio del Área de Acción Social y de Administración de Instituciones, será la entidad competente de cumplir con lo establecido en la Ley 3095, Ley Orgánica del Ministerio de Trabajo y Seguridad Social, Ley Nº218, Ley de Asociaciones y sus reformas y su Reglamento.

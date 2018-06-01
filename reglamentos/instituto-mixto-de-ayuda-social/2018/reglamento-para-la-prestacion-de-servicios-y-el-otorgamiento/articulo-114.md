@@ -1,0 +1,2 @@
+Artículo 114: La valoración socioeconómica o social de la persona física o jurídica es inherente al IMAS y para la ejecución de sus recursos de inversión social, por medio de los beneficios de su oferta programática deberá constar dicha valoración, por los medios que se estimen pertinentes por parte de la Subgerencia de Desarrollo Social.
+Solo por convenio de préstamo de personas funcionarias al IMAS podrá otorgar recursos con valoraciones sociales de profesionales que tengan relación laboral con otras organizaciones públicas o privadas.

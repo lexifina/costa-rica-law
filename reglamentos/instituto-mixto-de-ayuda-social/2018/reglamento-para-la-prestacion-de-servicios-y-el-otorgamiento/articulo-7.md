@@ -1,0 +1,2 @@
+Artículo 7: De la persona funcionaria que asesora: Persona que da asesoría en aspectos técnicos y profesionales a las instancias que corresponda según el marco de su competencia y conocimientos inherentes a su cargo. Le compete a las personas funcionarias de la Asesoría Jurídica, de Planificación Institucional, de la Auditoría Institucional, de las Subgerencias, las Áreas y unidades a las cuales se les asigne legítimamente esta función.
+Son responsables de sus errores en el ámbito de sus competencias únicamente.

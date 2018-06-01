@@ -1,0 +1,2 @@
+Artículo 86: Requisitos específicos del beneficio persona trabajadora menor de edad, referida por el Ministerio de Trabajo y Seguridad Social: Las personas hogares o familias que deseen recibir este beneficio deberán presentar los siguientes documentos:
+a) Constancia o comprobante de matrícula en el sistema educativo formal de secundaria en cualquiera de sus diferentes modalidades, emitida por el centro educativo, que incorpore el nivel educativo en que se encuentre la persona estudiante.

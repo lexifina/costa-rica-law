@@ -1,0 +1,4 @@
+Capítulo Décimo Tercero
+De la liquidación de los recursos
+Artículo 69: De la liquidación de los recursos girados a los sujetos de derecho público y privado y las personas hogares o familias: los sujetos de derecho público y privado deberán presentar la liquidación de los recursos, tal y como se establece en los respectivos convenios, ante las Unidades de Coordinación Administrativa Regional de las Áreas Regionales de Desarrollo Social, o ante el Área de Acción Social y Administración de Instituciones, según corresponda.
+En caso de las personas hogares o familias que reciban beneficios en los que se deban presentar facturas proforma, previo al otorgamiento del beneficio, se debe liquidar con las facturas de compra correspondientes posterior al otorgamiento, ante las Unidades de Coordinación Administrativa Regional.

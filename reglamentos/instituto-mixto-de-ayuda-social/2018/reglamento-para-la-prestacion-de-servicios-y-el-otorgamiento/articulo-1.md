@@ -1,0 +1,20 @@
+INSTITUTO MIXTO DE AYUDA SOCIAL
+CONSIDERANDO
+PRIMERO. Que mediante acuerdo de Consejo Directivo N°95-03-2018, este órgano colegiado, aprueba la versión final del Reglamento para la Prestación de Servicios y Otorgamiento de Beneficios del IMAS, y autoriza a la Gerencia General para que, de conformidad con la Ley 8220 y su reglamento, envíe al Ministerio de Economía Industria y Comercio, en su Dirección de Mejora Regulatoria, la norma de cita, para su respectiva revisión y análisis.
+SEGUNDO. Que mediante la plataforma electrónica que para ello utiliza el MEIC, la Gerencia General cumplió con la disposición del Consejo Directivo, y sometió a análisis de la Dirección de Mejora Regulatoria, el Reglamento para la Prestación de Servicios y Otorgamiento de Beneficios del IMAS.
+TERCERO: Que mediante informe DMR-DAR-INF-039-18, elaborado por los funcionarios Héctor Hernández Gómez y Kathia Zamora Rodríguez, con el visto bueno de la señora Kattia Sánez Benavides, Directora de Mejora Regulatoria, del Ministerio de Economía Industria y Comercio, se recibe un análisis Jurídico y Económico de la propuesta de Regulación, en el cual se vierten una serie de recomendaciones para ser consideradas en la normativa propiamente y otras en la justificación y análisis de costo beneficio del reglamento.
+CUARTO: Que mediante oficio SGDS-0812-04-2018, la doctora María Leitón Barquero, Subgerenta de Desarrollo Social, con el visto bueno del Lic. Gerardo Alvarado Blanco, Gerente General, solicitó a los señores Berny Vargas Mejía, Asesor Jurídico General y Juan Carlos Laclé Mora, Jefe de Planificación Institucional, externar criterio sobre las recomendaciones realizas por el Ministerio de Economía Industria y Comercio.
+QUINTO: Que mediante oficios AJ-565-5-2018 y PI-110-04-2018, los señores Berny Vargas Mejía, Asesor Jurídico General y Juan Carlos Laclé Mora, Jefe de Planificación Institucional, emitieron respectivamente los criterios que fueron fundamento esencial para el análisis realizado por la Subgerencia de Desarrollo Social.
+SEXTO: Que mediante oficios SGDS-1028-05-2018, la Dra. María Leitón Barquero, Subgerenta de Desarrollo Social, envía al Lic. Gerardo Alvarado Blanco, Gerente General, para su valoración y posterior envío a Consejo Directivo, remisión de la propuesta de Reglamento para la Prestación de Servicios y Otorgamiento de Beneficios del IMAS, con el análisis de las observaciones del Informe de revisión del MEIC, DMR-DAR-INF-039-18 y la recomendación social respectiva.
+SÉTIMO: Que mediante oficio GG-1215-05-2018, el Lic. Gerardo Alvarado Blanco, Gerente General, somete para conocimiento y aprobación del Consejo Directivo, la propuesta de Reglamento para la Prestación de Servicios y Otorgamiento de Beneficios del IMAS, con el análisis de las observaciones del Informe de revisión del MEIC, DMR-DARINF-039-18.
+POR TANTO, SE ACUERDA:
+1. Dar por cumplido el por tanto segundo del Acuerdo de Consejo Directivo N°95-03-2018, siendo que el Reglamento fue enviado a la oficina de Control de Mejora Regulatoria del MEIC, por parte de la Gerencia General.
+2. Aprobar el Reglamento para la Prestación de Servicios y Otorgamiento de Beneficios del IMAS, con el análisis de las observaciones del Informe de Revisión del MEIC,DMR-DARINF-039-18, con base en los oficios SGDS-1028-05-2018 y GG-1215-05-2018.
+3. Que la Subgerencia de Desarrollo Social traslade dicho Reglamento al Área de Planificación Institucional para su publicación en el Diario Oficial La Gaceta.
+4. Autorizar a la Gerencia General, para que informe al MEIC, sobre el análisis de las consideraciones Jurídicas y Económicas externadas por la Dirección de Mejora Regulatoria, hechas por el IMAS, previo a la aprobación de este Reglamento.
+REGLAMENTO PARA LA PRESTACIÓN DE SERVICIOS
+Y EL OTORGAMIENTO DE BENEFICIOS DEL
+INSTITUTO MIXTO DE AYUDA SOCIAL
+Capítulo Primero
+Disposiciones Generales
+Artículo 1: Del objeto: El presente reglamento tiene como objeto regular la prestación de servicios y el otorgamiento de los beneficios que brinda el Instituto Mixto de Ayuda Social (IMAS), para el cumplimiento de sus fines establecidos en la Ley 4760.

@@ -1,0 +1,6 @@
+Artículo 102: Requisitos de gastos de implementación para compra de terreno, para el desarrollo de proyectos grupales, para infraestructura comunal, Socio productiva e Instituciones de Bienestar Social: Además de los requisitos enunciados para el beneficio de Compra de Terreno, para el desarrollo de proyectos grupales, para infraestructura comunal, Socio productiva e Instituciones de Bienestar Social, serán necesarios los siguientes requisitos:
+a) Solicitud del sujeto privado para cubrir el costo de los estudios técnicos recomendados por la persona profesional encargada de la asesoría del beneficio,, en la cual el sujeto privado justifique socialmente su imposibilidad económica de cubrir estos gastos.
+b) Acuerdo de Junta Directiva del sujeto privado con las ofertas seleccionadas de los estudios técnicos.
+c) Factura proforma vigente de los estudios técnicos recomendados por la persona profesional encargada de la asesoría de la inversión del IMAS.
+d) Nota de compromiso del sujeto privado donde se comprometa a realizar los aportes no contemplados en la oferta de servicios técnicos.
+e) Nota por parte del dueño del inmueble donde autorice que se realicen los estudios técnicos en el inmueble.

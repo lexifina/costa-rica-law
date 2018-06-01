@@ -1,0 +1,8 @@
+Artículo 46: De la revocatoria o anulación del carácter de Bienestar Social: Previo cumplimiento del debido proceso, el Área de Acción Social y Administración de Instituciones podrá revocar el carácter de Bienestar Social a un sujeto privado que cuente con esta declaratoria, en cualquier parte del territorio nacional, según la modalidad de atención, cuando se presenten las siguientes circunstancias:
+a) Que la Organización haya realizado cambios o variaciones en sus estatutos después del otorgamiento del Carácter de bienestar social, que no guarden relación con la naturaleza de Bienestar Social.
+b) Que sobrevenga la privación de su capacidad jurídica como consecuencia de:
+i. Su declaratoria de insolvencia o concurso de variación en el objeto perseguido.
+ii. El cambio de naturaleza en su personería jurídica.
+iii. La no renovación del órgano directivo en el año siguiente al término señalado en los estatutos para el ejercicio del mismo.
+iv. Cuando haya solicitud expresa de los dos tercios o más de los asociados.
+En caso de que la Organización desee impugnar, deberá interponer los recursos de revocatoria y de apelación dentro del tercer día hábil contado a partir del día siguiente a aquel en que le fue notificada la denegatoria o rechazo. La Jefatura del Área de Acción Social y Administración de Instituciones, resolverá la impugnación de revocatoria, y de persistir el rechazo o la denegatoria, esa instancia elevara el expediente a la Subgerencia de Desarrollo Social para que resuelva el recurso de apelación, para lo que concederá tres días hábiles a fin de que la organización manifieste ante el Superior Jerárquico lo que estime pertinente.

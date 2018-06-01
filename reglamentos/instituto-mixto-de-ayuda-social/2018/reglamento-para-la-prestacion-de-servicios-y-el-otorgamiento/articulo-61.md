@@ -1,0 +1,4 @@
+Capítulo Décimo Segundo
+De la Evaluación, seguimiento y control
+Artículo 61: De la revisión, adecuación y actualización de procedimientos: Es competencia de la Subgerencia de Desarrollo Social y Áreas a cargo, revisar, adecuar y actualizar procedimientos internos y velar por el cumplimiento de la normativa externa e interna en la ejecución de los diferentes programas sociales institucionales, con el apoyo de la Asesoría Jurídica, Planificación Institucional, la Auditoría Interna y las instancias administrativas que correspondan.
+De la misma manera, velará porque los recursos que ejecute el IMAS en inversión social, se destinen a las personas, familias y organizaciones que viven en condiciones de pobreza, siguiendo los criterios técnicos, las políticas que emanan del Consejo Directivo y las directrices gubernamentales de rigor.

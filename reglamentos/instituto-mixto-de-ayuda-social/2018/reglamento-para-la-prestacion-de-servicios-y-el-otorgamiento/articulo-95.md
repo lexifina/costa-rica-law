@@ -1,0 +1,1 @@
+Artículo 95: Requisitos específicos del beneficio compra de lote para vivienda de interés social y compra de vivienda de interés social: La persona hogar o familia, solicitante del beneficio de Compra de Lote para Vivienda de Interés Social y Compra de Vivienda de Interés Social, deberán presentar los requisitos específicos que establece el decreto 29531-MTSS y sus reformas.

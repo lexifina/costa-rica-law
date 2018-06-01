@@ -1,0 +1,1 @@
+Artículo 62: De la participación de las comunidades en el diagnóstico, planificación, ejecución, seguimiento y control de los programas y proyectos del IMAS: Las comunidades participarán y gestionarán conjuntamente con las unidades operativas, en el diagnostico, planificación, ejecución, seguimiento y control de los programas y proyectos del IMAS.

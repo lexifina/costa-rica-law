@@ -1,0 +1,4 @@
+Artículo 79: Requisitos específicos del beneficio de Cuidado y Desarrollo Infantil: Las personas beneficiarias, los hogares y las familias, jefas de hogar, que soliciten el beneficio Cuidado y Desarrollo Infantil, deberán aportar los siguientes requisitos:
+a) Copia de la certificación de habilitación emitida por el CAI que le otorgue la alternativa de cuidado al hogar o la familia solicitante.
+b) Documento que le otorgue la persona física o jurídica que presta el servicio a la familia solicitante que indique que atienden personas menores de edad subsidiados por el IMAS y que cuentan con espacio disponible.
+c) Documento emitido por el ente Estatal competente, que haga constar la discapacidad, en caso de solicitar el beneficio para una persona menor de edad con discapacidad, que requiera una atención especializada.

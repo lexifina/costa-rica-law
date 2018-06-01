@@ -1,0 +1,1 @@
+Artículo 23: Consideración sobre Transferencias Monetarias temporales recibidas por la población objetivo: Las transferencias monetarias o subsidios temporales que realiza el Estado, por concepto de un programa o fin específico, no formaran parte para la medición de pobreza que utiliza el IMAS.

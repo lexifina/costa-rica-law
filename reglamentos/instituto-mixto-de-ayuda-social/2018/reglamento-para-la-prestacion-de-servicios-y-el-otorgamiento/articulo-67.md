@@ -1,0 +1,1 @@
+Artículo 67: Informe final de evaluación: El informe final de la evaluación presentará los hallazgos de cada proceso y el plan de acción a la dirección superior y representación de actores involucrados. La instancia encargada del seguimiento al plan de acción, es la Subgerencia de Desarrollo Social y del proceso de evaluación es Planificación Institucional.

@@ -1,0 +1,5 @@
+Artículo 96: Requisitos de gastos de implementación para compra de lote para vivienda de interés social y vivienda de interés social: Además de los requisitos enunciados para el beneficio de Compra de lote para vivienda de interés social y compra de Vivienda de Interés social, serán necesarios los siguientes requisitos:
+a) Solicitud de la persona, hogar o familia beneficiaria para cubrir el costo de los estudios técnicos, (estudio de suelo, pruebas estructurales y todos los indicados en el decreto) recomendados por la persona profesional que supervisa la inversión del IMAS, en la cual la persona solicitante justifique socialmente su imposibilidad económica de cubrir estos gastos.
+b) Factura proforma vigente que incluyan el detalle de los bienes y servicios de los estudios técnicos recomendados, por la persona profesional que supervisa la inversión del IMAS.
+c) Nota de la persona hogar o familia solicitante donde se comprometa a realizar los aportes no contemplados en la oferta de servicios técnicos.
+d) Nota por parte del dueño del inmueble donde autorice que se realicen los estudios técnicos en el inmueble.

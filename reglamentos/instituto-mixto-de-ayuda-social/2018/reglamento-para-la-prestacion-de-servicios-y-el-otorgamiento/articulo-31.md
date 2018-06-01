@@ -1,0 +1,4 @@
+Capítulo Octavo
+De la autorización, otorgamiento, entrega, renovación, suspensión, cancelación y
+verificación de requisitos de los beneficios
+Artículo 31: Del trámite de las solicitudes: Para tramitar las solicitudes de beneficios ante el IMAS, existe un órgano o persona competente, la cual valora, autoriza, aprueba, suspende, deniega, renueva o anula un beneficio (individual o grupal), de oficio. La solicitud puede ser de forma directa por parte de las personas físicas o jurídicas interesadas, utilizando los diferentes mecanismos establecidos por la Institución; por recomendación de la comunidad u otra institución, acatando lo dispuesto en este reglamento y demás normativa institucional o general vigente y atinente. La documentación respectiva debe quedar en el expediente físico o digital.

@@ -1,0 +1,1 @@
+Artículo 30: Del expediente del proyecto del sujeto de Derecho Público o Privado: Todo sujeto de Derecho Público o privado, tendrá asignado un expediente por cada proyecto, el cual puede ser físico o digital, y deberá seguir los lineamientos establecidos en el Manual de Archivo.

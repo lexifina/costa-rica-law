@@ -1,0 +1,3 @@
+Capítulo décimo noveno
+Regulaciones Finales
+Artículo 112: Aplicación de normas de requisitos a casos concretos: con la finalidad de otorgar beneficios individuales o grupales, las personas encargadas de ejecutar los recursos de inversión social del IMAS y que atiendan a las personas físicas y jurídicas que califiquen, según los parámetros de medición de la pobreza establecidos, deberán explicar a las personas solicitantes, que hay requisitos que son comunes a todos los beneficios individuales y que de la misma forma opera para los beneficios grupales, pero que cada beneficio tiene requisitos específicos que deben presentar según sea su solicitud o su necesidad.

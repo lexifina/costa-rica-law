@@ -1,0 +1,1 @@
+Artículo 5: De los Límites de Autoridad Financiera por beneficios: El Consejo Directivo es el órgano competente de aprobar los límites de autoridad financiera por tipo de beneficio, según nivel jerárquico, de acuerdo con la recomendación de la Subgerencia de Desarrollo Social, de Planificación Institucional y la Subgerencia de Soporte Administrativo.

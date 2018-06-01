@@ -1,0 +1,2 @@
+Artículo 34: Del Manual de Procedimientos: El IMAS contará con un manual de procedimientos para la ejecución de los beneficios según la oferta programática, éste será una guía sistemática sobre la secuencia lógica de los procesos y actividades que deben seguir los órganos o personas funcionarias competentes, para aplicar el presente Reglamento.
+El Manual de Procedimientos debe ser aprobado por la Gerencia General con el apoyo de las Unidades que la integran y con los insumos provenientes del nivel regional.

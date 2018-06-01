@@ -1,0 +1,3 @@
+Artículo 87: Requisitos específicos del beneficio procesos formativos: Las personas hogares o familias, que deseen recibir este beneficio deberán presentar los siguientes documentos:
+a) Documento que describa el programa del curso, los costos y la duración, emitido formalmente por la institución o persona debidamente acreditada para impartirla, salvo aquellas personas que asistan al proceso de formación humana, impartido por el Instituto Nacional de las Mujeres.
+b) Documento emitido por la institución o persona que imparte el curso, que demuestre la cancelación del mismo, posterior al giro de los recursos.

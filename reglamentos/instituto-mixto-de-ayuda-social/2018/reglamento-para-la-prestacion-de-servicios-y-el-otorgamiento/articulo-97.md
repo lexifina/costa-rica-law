@@ -1,0 +1,5 @@
+Artículo 97: Requisitos específicos del beneficio: Gastos de Implementación para Titulación: Las personas que deseen recibir este beneficio deberán presentar los siguientes documentos:
+a) Nota de solicitud formal del beneficio por parte de las personas hogares o familias beneficiarias, en la cual se indique número de finca y plano catastrado del inmueble, así como la descripción de los servicios requeridos. De acuerdo con lo anterior se debe especificar lo siguiente: En el caso que sea para confección de plano de catastro, indicar el monto económico y el área del lote a catastrar. En caso de requerir formalización de escritura por medio de notario público (segregación y/o traspaso, derechos, usufructo), indicar el monto de la inscripción de la escritura ante el Registro Nacional.
+b) Factura proforma vigente, que incluyan el detalle y el costo de los bienes y servicios de los estudios técnicos.
+c) Nota del propietario del inmueble autorizando el trámite solicitado a favor de las familias beneficiarias.
+d) Certificado de uso de suelo del inmueble, emitido por la Municipalidad respectiva.

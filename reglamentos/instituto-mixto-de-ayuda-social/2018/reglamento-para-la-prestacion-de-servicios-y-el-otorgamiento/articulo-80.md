@@ -1,0 +1,2 @@
+Artículo 80: Requisitos específicos del beneficio de Veda: Las personas que deseen recibir este beneficio deberán presentar los siguientes documentos:
+a) Certificación emitida por INCOPESCA, donde conste que la persona se encuentra debidamente inscrita como pescadora o ayudante de pesca en casos de veda, así como todos los requisitos señalados en el Decreto Ejecutivo N°36043-MAG-SP-MS y sus reformas.

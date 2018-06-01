@@ -1,0 +1,6 @@
+Artículo 20: Son personas físicas y jurídicas sujetas de los servicios y beneficios institucionales.
+a) Las personas pertenecientes a hogares y/o familias costarricenses en situación de pobreza extrema, pobreza o pobreza por discapacidad, calificadas y seleccionadas según lo establecido en este reglamento y el resto de la normativa institucional vigente.
+b) Las personas pertenecientes a hogares y /o familias extranjeras con una condición migratoria legal o refugiadas, que estén en condición de pobreza extrema o pobreza; y que hayan sido calificadas y seleccionados según lo establecido en este reglamento y demás normativa institucional vigente.
+c) Las personas pertenecientes a hogares y/o familias afectadas por desastres o emergencias, según lo contemplado en el presente reglamento u otra normativa institucional vigente.
+d) Las personas pertenecientes a hogares y /o familias extranjeras con una condición migratoria ilegal, son sujetas de atención cuando tenga personas menores de edad a cargo y que su condición sea en pobreza extrema o pobreza, de conformidad con el ordenamiento jurídico que rige la especialidad del tema
+e) Los sujetos de derecho público o privado y las Instituciones de Bienestar Social, que atienden población en condiciones de pobreza extrema o pobreza.
