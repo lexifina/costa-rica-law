@@ -1,0 +1,1 @@
+Artículo 2°.-Los jerarcas de las instituciones públicas tendrán la responsabilidad personal de impedir la prórroga automática de las convenciones colectivas vigentes en sus instituciones, para lo cual será necesario que adopten las medidas que en derecho correspondan para denunciar en el plazo debido la convención ante el Ministerio de Trabajo y Seguridad Social.

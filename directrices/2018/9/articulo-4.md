@@ -1,0 +1,1 @@
+Artículo 4°.-Toda negociación realizada según lo dispuesto en esta directriz, deberá procurar, por parte de la Administración, la racionalización en el uso de recursos públicos, y tender a la baja en el costo que significa el funcionamiento de la convención colectiva.

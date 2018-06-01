@@ -1,0 +1,1 @@
+Artículo 5°.-Se instruye a las instituciones pertenecientes a la Administración Descentralizada y se invita al Poder Legislativo, Poder Judicial y Tribunal Supremo de Elecciones, para que se adopte lo dispuesto en esta Directriz.

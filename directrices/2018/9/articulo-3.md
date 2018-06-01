@@ -1,0 +1,1 @@
+Artículo 3°.-Las diferentes instancias de la Administración Pública están en el deber de denunciar todas aquellas cláusulas convencionales que se consideren abusivas y que atenten contra el buen manejo de las finanzas públicas.
