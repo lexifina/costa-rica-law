@@ -1,4 +1,6 @@
+(Suspendida)
 Nº 35730-MTSS
+(Este decreto ejecutivo fue suspendido por el artículo 1° del decreto ejecutivo N° 41167 del 1° de junio del 2018, “Fijación de salarios mínimos para el sector público (Aumento Salarial II semestre 2018 y I Semestre del 2019 Sector Público)”
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
 En uso de las facultades que confieren los artículos 140, inciso 3) y 18) de la Constitución Política, artículos 25 y 27 de la Ley General de la Administración Pública.

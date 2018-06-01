@@ -14,3 +14,4 @@ Creación de la Comisión Negociadora de Salarios del Sector Público
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-02-10 | la propia norma |
+| 2 | 2018-06-01 | Decreto Ejecutivo 41167 (2018-06-01) |
