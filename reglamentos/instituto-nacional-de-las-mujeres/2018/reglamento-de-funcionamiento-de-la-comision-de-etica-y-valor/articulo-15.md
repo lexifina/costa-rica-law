@@ -1,0 +1,1 @@
+Artículo 15.—Juramentación. La juramentación de las personas integrantes de la Comisión es un acto solemne, que se llevará a cabo en las reuniones periódicas que realiza la CNRV; o en la institución, en presencia de la Dirección Ejecutiva de la Comisión Nacional de Rescate de Valores en presencia o no de la persona jerarca.

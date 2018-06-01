@@ -1,0 +1,1 @@
+Artículo 4º—Vinculación a los Procesos Institucionales. La gestión de ética es un asunto colectivo y transversal en todos los procesos y actividades de la Institución, por lo que debe quedar evidenciada en las actuaciones diarias y toma de decisiones del funcionariado, para consolidar una cultura de integridad, probidad, transparencia, control interno y rendición de cuentas.
