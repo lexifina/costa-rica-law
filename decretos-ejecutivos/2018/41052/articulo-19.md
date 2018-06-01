@@ -1,0 +1,1 @@
+Artículo 19.- Derogatorias. Deróguese el Decreto Ejecutivo Nº 35906-S del 27 de enero de 2010 “Reglamento de Centros de Recuperación de Residuos Valorizables”, publicado en La Gaceta Nº 86 del 5 de mayo del 2010.

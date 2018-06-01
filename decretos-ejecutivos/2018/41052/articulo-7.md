@@ -1,0 +1,1 @@
+Artículo 7.- Responsabilidad de los Gobiernos Locales. Las Municipalidades deberán cumplir con lo establecido en el artículo 8º incisos d) y k) de la Ley Nº 8839 del 24 de junio del 2010 “Ley para la Gestión Integral de Residuos” publicada en La Gaceta Nº 135 del 13 de julio del 2010.

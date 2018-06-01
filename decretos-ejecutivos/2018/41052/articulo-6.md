@@ -1,0 +1,1 @@
+Artículo 6.- Responsabilidad. En los centros de recuperación de residuos valorizables, las personas físicas o jurídicas que figuren como dueños, arrendatarios y administradores serán responsables de las instalaciones y la actividad desarrollada en dicho inmueble.

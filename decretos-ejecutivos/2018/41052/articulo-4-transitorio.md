@@ -1,0 +1,1 @@
+Transitorio Cuarto. Se otorga un plazo de 1 año a partir de la ratificación del Protocolo de adhesión de la República de Costa Rica a la OCDE para que las operaciones de recuperación de residuos valorizables, ubicadas en sitios de tratamiento y disposición final, detallados en el artículo 18 de esta normativa se ajusten a lo establecido en el Anexo I de este reglamento.

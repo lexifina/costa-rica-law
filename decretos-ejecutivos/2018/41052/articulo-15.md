@@ -1,0 +1,1 @@
+Artículo 15.- Componentes de las instalaciones. Se considera parte de las instalaciones, las áreas de maniobra de carga y descarga, áreas de clasificación, desensamblaje, pesaje, compactación, empaque y embalaje y bodegas de almacenamiento.
