@@ -1,0 +1,1 @@
+Artículo 12.—La cuota de ahorro que debe aportar el servidor será deducida automáticamente, una vez admitido como afiliado del FODEAP y previa autorización escrita mediante la fórmula establecida para estos efectos.

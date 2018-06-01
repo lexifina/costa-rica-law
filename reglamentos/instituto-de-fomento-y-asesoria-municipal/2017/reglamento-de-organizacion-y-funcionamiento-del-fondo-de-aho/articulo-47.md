@@ -1,0 +1,1 @@
+Artículo 47.—La Comisión podrá a solicitud del afiliado, estudiar y dictaminar la situación especial planteada, para realizar readecuaciones de la deuda, cuando por motivos especiales, las circunstancias bajo la cuales se otorgó el crédito cambiasen.

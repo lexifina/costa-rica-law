@@ -1,0 +1,10 @@
+De los créditos personales hipotecarios
+Artículo 37.—Se otorgará como límite del crédito personal hipotecario, el monto del 70% del valor del inmueble hipotecado, según avalúo realizado por el ingeniero del IFAM. La tasa de interés y el plazo de cancelación, serán fijados por la Junta Directiva previa sugerencia de la Comisión Administradora del fondo.
+El trámite de las escrituras para la formalización de este crédito será realizado por el notario que al efecto contrate el prestatario. Los gastos de dicha formalización e inscripción en el Registro Nacional correrán por cuenta del prestatario. Previo a la firma por parte del representante legal del IFAM, la escritura deberá ser revisada y obtener el visto bueno de la Asesoría Jurídica. A solicitud del interesado, los gastos de dicha formalización, que incluyen los honorarios por servicios notariales, derechos de registro, timbres e impuestos, podrán ser contemplados y rebajados del préstamo aprobado.
+Los afiliados tendrán derecho a solicitar crédito personal hipotecario, de conformidad con lo establecido en este Reglamento.
+a. Cumplir con las condiciones del artículo 16 del presente reglamento.
+b. Presentar constancias de salarios e ingresos del solicitante y demás miembros del núcleo familiar, en el caso de que el ingreso del afiliado sea insuficiente.
+c. Presentar certificación extendida por el Registro Nacional de la Propiedad sobre la inscripción, descripción, anotaciones, gravámenes y limitaciones que pesan sobre la propiedad. La certificación no deberá tener más de treinta días de expedida.
+No se otorgará el crédito si sobre el inmueble que servirá de garantía pesan gravámenes o anotaciones, salvo aquellos que deban ser cancelados como parte de la operación, o se trate de limitaciones servidumbres razonables y que no desmejoren la garantía.
+d. Presentar copia certificada por el Registro Nacional de catastro, del plano catastrado del inmueble objeto del crédito.
+e. Demostrar que el valor del terreno como el de la construcción, en su caso, cubra el monto del crédito solicitado, para lo cual el ingeniero-inspector aportado por el IFAM realizará el avalúo correspondiente.

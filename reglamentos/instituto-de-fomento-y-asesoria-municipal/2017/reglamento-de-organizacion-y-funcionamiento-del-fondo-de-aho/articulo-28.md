@@ -1,0 +1,1 @@
+Artículo 28.—Los créditos para vivienda se concederán por un plazo máximo de veinte años. El monto máximo a prestar por crédito de vivienda es la suma de setenta y cinco millones de colones, pudiendo la Comisión, dictaminar un monto mayor, siempre y cuando el Fondo lo sostenga financieramente y el afiliado o su grupo familiar demuestren su capacidad de endeudamiento.

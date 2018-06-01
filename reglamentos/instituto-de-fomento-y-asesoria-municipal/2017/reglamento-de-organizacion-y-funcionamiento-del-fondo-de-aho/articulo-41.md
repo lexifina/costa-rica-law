@@ -1,0 +1,1 @@
+Artículo 41.—Se podrá traspasar el inmueble quedando hipotecado a favor del IFAM, y ajustando el interés, si se tratare de un tercero o bien, haciendo exigible el cumplimiento de la obligación, si al que se trasladare el inmueble no lo recibe con el gravamen respectivo.

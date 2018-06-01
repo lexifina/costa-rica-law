@@ -1,0 +1,1 @@
+Artículo 42.—La junta directiva aumentará automáticamente la tasa de interés en un dos por ciento de los créditos otorgados, previo informe de la comisión, cuando el afiliado, por cualquier circunstancia, deje de prestar servicios al IFAM.
