@@ -1,2 +1,1 @@
 Artículo 27.—Luego del cumplimiento de los requisitos establecidos en este Reglamento, la Universidad que resulte sujeto de donación con base en la recomendación de la Dirección General del Organismo de Investigación Judicial y la autorización del Consejo Superior, deberá previamente y sin excepción, formalizar el respectivo convenio ante la Secretaría General de la Corte.
-(Así adicionado mediante circular N° 033 del 23 de marzo de 2007)

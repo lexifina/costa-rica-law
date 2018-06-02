@@ -1,1 +1,1 @@
-Artículo 13.—Los servidores o funcionarios del Poder Judicial que incumplan con las disposiciones de este Reglamento estarán sujetos a la aplicación del régimen disciplinario, independientemente de la responsabilidad penal o civil que les pudiere caber.
+Artículo 13.—Los servidores o funcionarios del Poder Judicial que incumplan con las disposiciones de este reglamento estarán sujetos a la aplicación del régimen disciplinario, independientemente de la responsabilidad penal o civil que les pudiere caber.

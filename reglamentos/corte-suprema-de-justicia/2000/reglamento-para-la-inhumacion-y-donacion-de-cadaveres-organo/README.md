@@ -14,3 +14,4 @@ Reglamento para la Inhumación y Donación de Cadáveres, Órganos y otros mater
 | --- | --- | --- |
 | 1 | 2000-07-31 | la propia norma |
 | 2 | 2007-03-23 | Circular 33 (2007-03-23) |
+| 3 | 2018-06-02 | Circular 75 (2018-06-02) |

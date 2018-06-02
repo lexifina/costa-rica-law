@@ -1,1 +1,1 @@
-Artículo 12.—Todas aquellas diligencias realizadas en cumplimiento de lo regulado en este Reglamento en los artículos 3 y 8, deberán anotarse en el Libro de Novedades de la Sección de Patología Forense.
+Artículo 12.—Todas aquellas diligencias realizadas en cumplimiento de lo regulado en este reglamento en los artículos 3 y 8, deberán anotarse en el Libro de Novedades de la Sección de Patología Forense.

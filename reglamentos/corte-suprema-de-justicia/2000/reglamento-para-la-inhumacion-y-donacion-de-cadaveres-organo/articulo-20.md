@@ -1,1 +1,1 @@
-Artículo 20.—Los cadáveres únicamente podrán ser entregados provisionalmente a las Universidades que cumplan con los requisitos señalados en el artículo 14.
+Artículo 20.—Los cadáveres únicamente podrán ser entregados provisionalmente a las Universidades que cumplan con los requisitos señalados en el artículo N° 14. (Modificado por Corte Plena N° 036-05 del 5 de diciembre de 2005, artículo XXVII).
