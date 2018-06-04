@@ -1,1 +1,1 @@
-Artículo 105.—De persistir la inconformidad del servidor, éste podrá acudir ante la Gerencia General, la cual deberá resolver el conflicto en un plazo no mayor de 15 días hábiles contados a partir de la recepción del expediente respectivo.
+ARTICULO 105.- El Comité de Evaluación estará integrado por: el Líder del Proceso Gestión Desarrollo Humano o su delegado; un delegado de la Unidad Administrativa a la que pertenezca el trabajador evaluado y un representante del Sindicato Industrial de Trabajadores Eléctricos y Telecomunicaciones que sea servidor de la Empresa (SITET).

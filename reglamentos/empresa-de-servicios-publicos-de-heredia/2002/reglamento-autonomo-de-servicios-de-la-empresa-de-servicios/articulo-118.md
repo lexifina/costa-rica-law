@@ -1,1 +1,2 @@
-Artículo 118.—La Comisión de Salud Ocupacional tramitará todo lo relacionado con uniformes y ropa de trabajo y mantendrá el control de existencia, reposición y suministro, con el propósito de que las entregas se realicen en el momento oportuno. Asimismo en coordinación con el encargado de Salud Ocupacional, evaluará periódicamente la calidad, diseños y cualquier otro aspecto importante de aquellos.
+ARTICULO 118.- El trabajador deberá devolver equipos de seguridad, uniformes, o ropa de trabajo deteriorada; para sustitución.
+En caso de que el trabajador se retire de la Empresa deberá devolver el o los uniformes y los equipos suministrados por la empresa.

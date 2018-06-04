@@ -1,1 +1,1 @@
-Artículo 173.—Los términos y plazos se interrumpirán por la presentación de los recursos mencionados en este Reglamento.
+ARTICULO 173.- El recurso de revocatoria deberá resolverse dentro de los ocho días hábiles posteriores a su presentación y el de apelación, igualmente, dentro de los quince días hábiles posteriores al conocimiento del recurso por parte del Órgano competente.

@@ -1,6 +1,5 @@
-Artículo 91.—Recursos Humanos otorgará permiso con goce de salario:
-a. Por cinco días naturales, al servidor que contrajere matrimonio.
-b. Por dos días naturales al servidor cuyo cónyuge o compañera diere luz.
-c. Por cinco días naturales al servidor cuyo cónyuge, compañero(a) o hijo(a), padre, madre o hermano, falleciere.
-d. Por un día natural, al servidor cuyo abuelo (a), suegro (a), cuñado (a), tío (a), sobrino (a) o primo (a), falleciere.
-En todos los casos debe demostrarse el motivo mediante prueba fehaciente.
+ARTICULO 91.- A solicitud del interesado y previa consulta al coordinador o coordinadora respectivos, los Directores de Negocio pueden otorgar al trabajador permiso sin goce de salario hasta por un mes.
+La Gerencia y Contralor lo puede otorgar hasta por doce meses y hasta por veinticuatro meses, la Junta Directiva. Cuando se trate de funcionarios que sean llamados para desempeñar altos puestos públicos, sea de representación popular (Síndico, Munícipe o Diputado); de nombramiento exclusivo del Presidente de la República o Consejo de Gobierno (Ministros, Presidentes Ejecutivos, Gerentes, Sub-Gerentes, Directores, Gobernadores, Oficiales Mayores, Embajadores y Cónsules) o los nombrados por el Concejo Municipal (Alcaldes), la Junta Directiva podrá concederles permiso sin goce de salario por el tiempo que dure el nombramiento en el nuevo cargo.
+En todo caso deberá considerarse el régimen de incompatibilidades establecido en la Ley Nº 7789 de 30 de abril de 1998 y de la Ley de Corrupción y Enriquecimiento Ilícito Nº 8422 de 6 de octubre del año 2004.
+También podrá concederse permiso sin goce de salario a aquellos funcionarios que disfruten de becas o pasantías para estudios, ya sea a nivel nacional o internacional, por el tiempo que éste dure; siempre y cuando sea de interés institucional.
+La Empresa no reconocerá beneficios acumulativos de vacaciones y anualidades a aquellos trabajadores que soliciten y disfruten de permisos sin goce de salario para fines personales o bien para ocupar puestos o cargos en empresas privadas; este reconocimiento sólo procederá cuando el permiso se otorgue por motivos de estudio o capacitación y cuando la naturaleza del puesto así lo requiera.

@@ -1,1 +1,1 @@
-Artículo 75.—Las incapacidades extendidas por la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros, no afectarán el cálculo del aguinaldo para efectos de pago.
+ARTICULO 75.- La ESPH S.A., no reconocerá los gastos señalados en el artículo anterior, cuando por tener instalaciones propias o contratos con particulares, pueda proporcionarle a sus servidores el alojamiento o la alimentación; o cuando éstos acepten esos mismos servicios proporcionados por otra Institución.

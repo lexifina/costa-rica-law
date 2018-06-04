@@ -1,1 +1,1 @@
-Artículo 38.—En los casos de ascensos y traslados será aplicable el período de prueba. Para tal efecto el servidor gozará de licencia en su puesto anterior durante dicho período, la cual aplicará de igual forma a quien lo sustituye.
+ARTICULO 38.- En los casos de ascensos y traslados será aplicable el período de prueba. Para tal efecto el servidor gozará de licencia en su puesto anterior durante dicho período, la cual aplicará de igual forma a quien lo sustituye.

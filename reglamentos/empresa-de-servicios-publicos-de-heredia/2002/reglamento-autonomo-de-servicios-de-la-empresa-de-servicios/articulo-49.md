@@ -1,3 +1,3 @@
-CAPÍTULO VII
-De las obligaciones y las prohibiciones
-Artículo 49.—A efecto de obtener el más alto grado de eficacia y de eficiencia en la prestación de los servicios encomendados a la E.S.P.H. S. A. por su Ley de Creación, el servidor cumplirá los deberes que expresamente le señala el Código de Trabajo y sus leyes conexas, las demás normas del ordenamiento jurídico administrativo y el presente Reglamento. Además deberá cumplir con todas las disposiciones que fueren propias del cargo que desempeña, de conformidad con el Manual Descriptivo de Clases de la E.S.P.H. S. A. y con los requerimientos de la Gerencia.
+CAPITULO VII
+DE LAS OBLIGACIONES Y LAS PROHIBICIONES
+ARTICULO 49.- A efecto de obtener el más alto grado de eficacia y de eficiencia en la prestación de los servicios encomendados a la ESPH S.A. por su Ley de Creación, el trabajador cumplirá los deberes que expresamente le señala el Código de Trabajo y sus leyes conexas, las demás normas del ordenamiento jurídico administrativo y el presente reglamento. Además, deberá cumplir con todas las disposiciones que fueren propias del cargo que desempeña, de conformidad con el Manual Descriptivo de Clases de la ESPH S.A. y con los requerimientos de la Gerencia.

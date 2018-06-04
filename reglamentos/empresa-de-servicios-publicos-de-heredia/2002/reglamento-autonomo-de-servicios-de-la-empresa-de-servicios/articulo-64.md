@@ -1,1 +1,1 @@
-Artículo 64.—Es responsabilidad de los coordinadores, establecer los sistemas de control necesarios para verificar la permanencia de los trabajadores durante la jornada laboral, sin perjuicio de la fiscalización a cargo de Recursos Humanos.
+ARTICULO 64.- Es responsabilidad de los coordinadores, establecer los sistemas de control necesarios para verificar la permanencia de los trabajadores durante la jornada laboral, sin perjuicio de la fiscalización a cargo de Gestión Desarrollo Humano.

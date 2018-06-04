@@ -1,6 +1,3 @@
-Artículo 139.—Las ausencias injustificadas de los servidores serán sancionadas de la siguiente manera:
-a) Por una ausencia a media jornada, amonestación escrita.
-b) Por una ausencia, suspensión hasta por dos días sin goce de salario.
-c) Por ausencia a una y media jornada, suspensión por ocho días sin goce de salario.
-d) Por dos ausencias consecutivas o más de dos alternas dentro del mismo mes calendario, despido sin responsabilidad patronal.
-Para efecto de esta disposición la ausencia a una fracción de jornada se considerará como media ausencia y se computará mensualmente.
+CAPITULO XVII
+DEL PROCEDIMIENTO DISCIPLINARIO
+ARTICULO 139.- El procedimiento que se establece en este capítulo será de observancia obligatoria. Cuando las faltas atribuidas a los trabajadores puedan dar lugar a la imposición de sanciones de suspensión, se respetará el debido proceso; y en consecuencia, la sanción que corresponda, no podrá imponerse sin formación previa de expediente, con amplia audiencia al trabajador para que haga valer sus derechos. Sin embargo, tratándose de llegadas tardías o ausencias, no se requerirá formación previa de expediente, ni audiencia anticipada al trabajador, pero éste podrá justificar su falta y gozará de todos los recursos que el presente reglamento y las leyes conexas le confieren.

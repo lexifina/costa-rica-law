@@ -1,1 +1,1 @@
-Artículo 73.—Las remuneraciones que deben pagarse a los servidores por conceptos tales como: dedicación exclusiva, carrera profesional, disponibilidad, horas extras; y peligrosidad, viáticos y similares, se pagarán de acuerdo con las normas que la Empresa establecerá y cualesquiera otra disposición jurídico-administrativa que resulte aplicable.
+ARTICULO 73.- Las incapacidades extendidas por la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros, no afectarán el cálculo del aguinaldo para efectos de pago.

@@ -1,1 +1,4 @@
-Artículo 128.—Conforme lo establece el artículo 80 del Código de Trabajo y por medio de Recursos Humanos, la Gerencia o el Contralor según corresponda, podrá dar por terminado el contrato de trabajo con el servidor que haya permanecido incapacitado por más de tres meses consecutivos, cubriendo a éste el importe de las prestaciones legales que debieran corresponderle.
+ARTICULO 128.- A fin de garantizar la probidad, la corrección, la eficacia y la eficiencia en la prestación de los servicios públicos encomendados a la ESPH S.A. se establecen las siguientes clases de sanciones disciplinarias:
+a. Amonestación escrita.
+b. Suspensión sin goce de salario, hasta por ocho días naturales.
+c. Despido sin responsabilidad patronal.

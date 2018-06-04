@@ -1,1 +1,2 @@
-Artículo 67.—Solamente los Coordinadores podrán justificar la falta de registro de asistencia, o presentación al trabajo bajo su entera responsabilidad y en los siguientes casos: giras al interior o al exterior del país en el desempeño de labores propias de la E.S.P.H. S. A., seminarios u otras actividades de capacitación, inspecciones, diligencias judiciales y por causa de caso fortuito o fuerza mayor debidamente justificados.
+ARTICULO 67.-
+En aquellos centros de trabajo que no dispongan de relojes marcadores o cuando éstos estuvieren averiados, el registro de asistencia se verificará mediante los mecanismos que establezca Gestión Desarrollo Humano.

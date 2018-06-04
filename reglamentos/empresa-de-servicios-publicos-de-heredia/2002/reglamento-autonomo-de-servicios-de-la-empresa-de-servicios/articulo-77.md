@@ -1,1 +1,1 @@
-Artículo 77.—La E.S.P.H. S. A., no reconocerá los gastos señalados en el artículo anterior, cuando por tener instalaciones propias o contratos con particulares, pueda proporcionarle a sus servidores el alojamiento o la alimentación; o cuando éstos acepten esos mismos servicios proporcionados por otra Institución.
+ARTICULO 77.- Son días hábiles para el trabajador, todos los días del año, salvo los feriados señalados en el Código de Trabajo, y los permisos colectivos que autorice la Junta Directiva o la Gerencia General.

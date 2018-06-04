@@ -1,1 +1,1 @@
-Artículo 86.—El período de vacaciones se suspende, si durante su disfrute el servidor es incapacitado por la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros.
+ARTICULO 86.- Con el visto bueno de su coordinador o coordinadora inmediatos, el trabajador podrá solicitar a Gestión Desarrollo Humano un adelanto de sus vacaciones que, en ningún caso, podrá superar el número de días que proporcionalmente corresponda a los meses laborados.

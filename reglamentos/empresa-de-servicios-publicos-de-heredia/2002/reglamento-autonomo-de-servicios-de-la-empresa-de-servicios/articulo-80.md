@@ -1,1 +1,1 @@
-Artículo 80.—No podrán disfrutar de los días feriados o de asueto señalados en el artículo anterior, los servidores que, por la índole de sus funciones, deban trabajar en esos días para ejecutar sus tareas. En estos casos, se pagará el tiempo extraordinario como lo establece el Código de Trabajo.
+ARTICULO 80.- Los trabajadores gozarán de los asuetos festivos decretados por el Poder Ejecutivo, en los cantones que constituyen su sede permanente de trabajo.

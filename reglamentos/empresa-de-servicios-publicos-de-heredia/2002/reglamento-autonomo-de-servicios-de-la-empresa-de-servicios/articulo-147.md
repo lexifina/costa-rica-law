@@ -1,1 +1,1 @@
-Artículo 147.—El instructor o el Órgano director podrán citar a cualquier servidor de la E.S.P.H. S. A., para que declare o realice cualquier acto necesario para el desenvolvimiento normal del procedimiento disciplinario o para su decisión final. El servidor citado que, sin justa causa, no compareciere el día y hora que se le indiquen, incurrirá en responsabilidad disciplinaria.
+ARTICULO 147.- Todo acto desde el inicial, que tienda a la prosecución de la investigación, interrumpe la prescripción de la acción disciplinari

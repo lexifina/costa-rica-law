@@ -1,3 +1,1 @@
-CAPÍTULO XIX
-Disposiciones finales
-Artículo 193.—A partir de su vigencia, el presente Reglamento será de observancia obligatoria y su violación implicará la invalidez del acto respectivo.
+ARTICULO 193.- Este reglamento entrará en vigencia treinta días después de su publicación en el Diario Oficial La Gaceta; y no tendrá efecto retroactivo en perjuicio de los derechos de los trabajadores.

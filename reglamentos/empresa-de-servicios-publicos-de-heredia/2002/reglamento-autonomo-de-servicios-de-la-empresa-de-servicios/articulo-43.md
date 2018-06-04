@@ -1,1 +1,1 @@
-Artículo 43.—La Gerencia podrá modificar los horarios siempre que existan razones de conveniencia institucional y que con ello no se afecten los derechos de los servidores ni el servicio que prestan.
+ARTICULO 43.- La Gerencia General podrá modificar los horarios siempre que existan razones de conveniencia institucional y que con ello no se afecten los derechos de los servidores ni el servicio que prestan.

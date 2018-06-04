@@ -1,1 +1,1 @@
-Artículo 133.—Es reincidente el servidor que incurre por segunda vez en la misma falta dentro de los seis meses siguientes a la comisión de otra, por la que fue sancionado.
+ARTICULO 133.- Sin perjuicio de lo dispuesto en los artículos 131 y 132 de este Reglamento, las sanciones se aplicarán atendiendo a la gravedad de la falta.

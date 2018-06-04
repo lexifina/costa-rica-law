@@ -1,1 +1,5 @@
-Artículo 107.—El Comité de Evaluación estará integrado por: el coordinador del Departamento de Recursos Humanos o su delegado; un delegado de la Unidad Administrativa a la que pertenezca el evaluado y un representante del Sindicato Industrial de Trabajadores Eléctricos y Telecomunicaciones que sea servidor de la Empresa (SITET).
+CAPITULO XIII
+DE LA SALUD LABORAL
+ARTICULO 107.- La ESPH S.A., se ajustará a las disposiciones que sobre esta materia contiene el Código de Trabajo y demás normativa vigente aplicable a la materia, lo anterior para garantizar:
+a. La protección de la salud y la preservación de la integridad física, moral y social de sus trabajadores.
+b. La prevención y control de los riesgos del trabajo.

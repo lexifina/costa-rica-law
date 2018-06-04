@@ -1,1 +1,1 @@
-Artículo 170.—Contra el acto que inicie el procedimiento disciplinario o el que deniegue cualquier medio de prueba; y el que decrete la suspensión cautelar, cabrá solamente recurso de revocatoria ante el Órgano director. Dicho recurso deberá interponerse dentro de las veinticuatro horas siguientes a la notificación del acto y será resuelto por el Órgano director, dentro de los tres días hábiles siguientes a la fecha de su presentación.
+ARTICULO 170.- Los términos y plazos se interrumpirán por la presentación de los recursos mencionados en este Reglamento.

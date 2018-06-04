@@ -1,1 +1,4 @@
-Artículo 96.—Toda solicitud de permiso, con o sin goce de salario, superior a un día hábil, deberá gestionarla el interesado, por escrito ante su superior jerárquico, quien deberá enviarla a Recursos Humanos, dentro de los tres días hábiles siguientes a su presentación. La Junta Directiva, la Gerencia, Recursos Humanos, según sea el caso, deberá resolver dicha solicitud dentro de los ocho días hábiles siguientes a su recibo.
+CAPITULO XII
+DE LA EVALUACIÓN Y CALIFICACIÓN DE SERVICIOS
+ARTICULO 96.- El desempeño de los servidores nombrados en propiedad será evaluado y calificado, como mínimo, una vez al año, utilizando las metodologías y procedimientos aprobados para tal fin.
+Es responsabilidad personal del superior en grado realizar una calificación objetiva de la prestación efectiva de servicios.

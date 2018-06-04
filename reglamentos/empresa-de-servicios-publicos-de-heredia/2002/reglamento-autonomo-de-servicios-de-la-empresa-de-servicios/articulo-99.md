@@ -1,1 +1,1 @@
-Artículo 99.—Recursos Humanos deberá enviar la herramienta de evaluación del desempeño, incluyendo la lista con los nombres de los servidores a evaluar, a cada Director de UEN, Director de Apoyo, coordinador o supervisor de cuadrilla, en su caso.
+ARTICULO 99.- Corresponderá al Gerente General, Subgerente, Directores, Líderes, Coordinadores y Supervisores de Cuadrilla, completar la evaluación del desempeño para cada trabajador a cargo, con la asesoría de Gestión Desarrollo Humano, de ser necesario.

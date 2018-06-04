@@ -1,1 +1,1 @@
-Artículo 165.—A partir del momento en que la Gerencia o la Contraloría interna en su caso, reciban la recomendación definitiva del Órgano director del proceso, contará con un plazo de un mes para dictar la resolución final, con la salvedad prevista en el artículo 152 de este Reglamento.
+ARTICULO 165.- Gestión Desarrollo Humano notificará y ejecutará la resolución que emita la Gerencia General o la Contraloría Interna en su caso. Los efectos de dicha resolución empezarán a regir a partir del día siguiente a la fecha en queden notificadas todas las partes.

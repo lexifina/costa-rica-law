@@ -1,1 +1,1 @@
-Artículo 7º—Los actos de la E.S.P.H. S. A., que afecten al servidor, son impugnables mediante los recursos de revocatoria y apelación. Estos se regirán, en lo conducente, por las mismas reglas aplicables dentro del procedimiento disciplinario.
+ARTICULO 7.- Los actos de la ESPH S.A., que afecten al trabajador, son impugnables mediante los recursos de revocatoria y apelación. Estos se regirán, en lo conducente, por las mismas reglas aplicables dentro del procedimiento disciplinario.

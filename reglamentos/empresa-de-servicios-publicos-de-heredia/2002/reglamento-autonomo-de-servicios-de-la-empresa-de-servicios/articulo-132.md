@@ -1,7 +1,4 @@
-Artículo 132.—Sanciones Administrativas. Según la gravedad de las faltas, el Gerente y los titulares subordinados serán sancionados así:
-a) Amonestación escrita.
-b) Amonestación escrita con comunicación al colegio profesional respectivo, cuando corresponda.
-c) Suspensión sin goce de salario, de 8 a 15 días hábiles y;
-d) Separación del cargo sin responsabilidad patronal.
-Las sanciones a que se refiere el presente artículo, regirán igualmente en cuanto: al Contralor Interno y demás funcionarios de la Contraloría Interna, cuando, por dolo o culpa grave, incumplan sus deberes y funciones, infrinjan la normativa ética aplicable o el régimen de prohibiciones establecido en el artículo 34 de la Ley General de Control Interno; sin perjuicio de las responsabilidades que les puedan ser impuestas civil y penalmente. Competerá su aplicación a la Junta Directiva en el evento de que las faltas sean imputables al Gerente General y Subgerente Administrativa y al Contralor interno.
-Por su parte corresponderá al jerarca de la Unidad Contralora, imponer la corrección disciplinaria de rigor cuando dichas infracciones sean atribuirles a sus subordinados.
+ARTICULO 132.- Se suspenderá sin goce de salario hasta por ocho días naturales:
+a. Al trabajador que, amonestado por escrito, incurra de nuevo en una falta que merezca esa misma sanción, dentro del plazo de reincidencia fijado en el artículo 136 del presente Reglamento.
+b. Al trabajador que cometa una falta de indudable gravedad con relación a los deberes inherentes a su contrato de servicio con la ESPH S.A. siempre que no se trate de una conducta tipificada como causal de despido.
+c. En los casos en que así lo disponga expresamente el presente Reglamento.

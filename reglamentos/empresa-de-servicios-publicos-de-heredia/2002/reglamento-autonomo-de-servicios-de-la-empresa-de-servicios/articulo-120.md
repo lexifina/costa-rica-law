@@ -1,2 +1,1 @@
-Artículo 120.—El servidor no deberá devolver los uniformes, o ropa de trabajo deteriorada; y una vez sustituidos no podrá volver a utilizarlos si estos se encuentran en muy mal estado.
-Sin embargo, en caso de que el servidor se retire de la Empresa deberá devolver el o los uniformes
+ARTICULO 120.- El encargado de Salud y Seguridad Laboral, y los empleados en general, deberán velar porque todos los trabajadores que tengan la obligación de portar equipo de seguridad, lo utilicen en forma adecuada; y que éste sea de óptima calidad.

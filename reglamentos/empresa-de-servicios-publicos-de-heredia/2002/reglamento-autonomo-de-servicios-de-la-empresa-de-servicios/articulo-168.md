@@ -1,1 +1,1 @@
-Artículo 168.—Recursos Humanos notificará y ejecutará la resolución que emita la Gerencia o la Contraloría en su caso. Los efectos de dicha resolución empezarán a regir a partir del día siguiente a la fecha en queden notificadas todas las partes.
+ARTICULO 168.- Contra la resolución final, el servidor afectado podrá interponer los recursos ordinarios de revocatoria con apelación en subsidio para ante la Junta Directiva o la Contraloría interna en su caso y de reposición o reconsideración ante la Junta Directiva, cuando la resolución haya sido dictada por el Órgano Director.

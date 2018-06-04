@@ -1,1 +1,1 @@
-Artículo 45.—Durante la jornada laboral, los servidores desempeñarán sus funciones en los centros y lugares de trabajo designados por la Gerencia, tendientes a la prestación de los servicios encomendados a la E.S.P.H. S. A., por Ley.
+ARTICULO 45.- Durante la jornada laboral, los trabajadores desempeñarán sus funciones en los centros y lugares de trabajo designados por la Gerencia General, tendientes a la prestación de los servicios encomendados a la ESPH S.A., por Ley.

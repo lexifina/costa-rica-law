@@ -1,1 +1,1 @@
-Artículo 189.—Se podrá pagar disponibilidad en forma permanente o temporal, a los servidores cuyas funciones del cargo exijan dicho reconocimiento. Es necesario que las circunstancias mismas del trabajo exijan acudir a éste en cualquier momento (circunstancias de emergencias por daños o averías del servicio), durante las 24 horas del día.
+ARTICULO 189.- El pago del auxilio de cesantía se hará conforme a lo dispuesto en la Ley de Protección al Trabajador (Nº 7983 de 16 de febrero del año 2000)

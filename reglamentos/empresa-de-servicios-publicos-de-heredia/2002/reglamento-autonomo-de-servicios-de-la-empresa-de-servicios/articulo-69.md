@@ -1,1 +1,1 @@
-Artículo 69.—En aquellos centros de trabajo que no dispongan de relojes marcadores o cuando éstos estuvieren averiados, el registro de asistencia se verificará mediante los mecanismos que establezca Recursos Humanos.
+ARTICULO 69.- El salario será pagado por períodos mensuales, con un adelanto quincenal del cincuenta por ciento de su importe total. El pago se hará en días hábiles, para lo cual Gestión Tesorería elaborará un calendario de pagos para cada año.

@@ -1,1 +1,1 @@
-Artículo 150.—Todo acto desde el inicial, que tienda a la prosecución de la investigación, interrumpe la prescripción de la acción disciplinaria.
+ARTICULO 150.- Es obligación del jefe respectivo, informar a la Gerencia, la Contraloría Interna en su caso o a Gestión Desarrollo Humano de las faltas cometidas por cualquier trabajador de la ESPH S.A. dentro del mes siguiente a la fecha en que hubiere tenido conocimiento de los hechos. El incumplimiento de esta obligación acarreará responsabilidad disciplinaria.

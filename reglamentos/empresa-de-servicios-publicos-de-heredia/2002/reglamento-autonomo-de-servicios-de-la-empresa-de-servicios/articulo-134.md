@@ -1,4 +1,1 @@
-Artículo 134.—Se amonestará por escrito:
-a) Al servidor que quebrante cualquiera de las obligaciones o prohibiciones contempladas en este Reglamento, cuando la falta no diere mérito para una sanción más severa.
-b) Al servidor que incurra por primera vez en cualquiera de las faltas respecto de las cuales la legislación laboral exija el apercibimiento antes del despido.
-c) En los casos en que así lo disponga expresamente el presente Reglamento.
+ARTICULO 134.- Corresponderá al superior en grado de cada unidad ordenar y resolver sobre la amonestación escrita y a la Gerencia General sobre la suspensión y el despido de un trabajador. En tanto que cuando se trate del Gerente General, Subgerente y el Contralor, la sanción a imponer competerá a la Junta Directiva.

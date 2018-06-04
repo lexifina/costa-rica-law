@@ -21,3 +21,4 @@ Reglamento Autónomo de Servicios de la Empresa de Servicios Públicos de Heredi
 | 6 | 2007-07-31 | Reglamento 2861 (2007-07-31) |
 | 7 | 2012-09-24 | Reglamento 3292 (2012-09-24) |
 | 8 | 2015-08-17 | Reglamento 3571 (2015-08-17) |
+| 9 | 2018-06-04 | Reglamento 3839 (2018-06-04) |

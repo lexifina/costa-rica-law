@@ -1,1 +1,3 @@
-Artículo 166.—Una vez recibidos por la Gerencia o la Contraloría interna en su caso, la recomendación definitiva del Órgano Director, se remitirá el expediente respectivo a la Junta de Relaciones Laborales, quien contará con el plazo de diez días naturales para emitir su recomendación, la cual no será vinculante. De no contarse con el criterio de ésta dentro del plazo establecido, la Gerencia o la Contraloría interna en su caso, procederá dictar la resolución final dentro del plazo de un mes.
+ARTICULO 166.- La resolución se notificará al interesado personalmente o en su casa de habitación. Como prueba de la notificación servirá la copia de ésta, firmada por quien la reciba y por el notificador.
+Si aquél rehusare firmar, bastará la firma del notificador, quien deberá dejar constancia de lo ocurrido.
+En todos los casos se indicará con precisión la hora y fecha en que se practicó dicha diligencia.

@@ -1,1 +1,1 @@
-Artículo 5º—El servidor que se encuentre expuesto a la aplicación de una sanción disciplinaria, tendrá derecho a que la E.S.P.H. S. A., respete los principios del debido proceso.
+ARTICULO 5.- El trabajador que se encuentre expuesto a la aplicación de una sanción disciplinaria, tendrá derecho a que se le aplique el debido proceso y sus principios conforme lo dicta la Constitución Política y La Ley General de la Administración Pública.

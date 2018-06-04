@@ -1,1 +1,1 @@
-Artículo 82.—Los servidores gozarán de los asuetos festivos decretados por el Poder Ejecutivo, en los cantones que constituyen su sede permanente de trabajo.
+ARTICULO 82.- A los ex trabajadores de la ESPH S.A. que reingresaren a la Empresa siempre que a la fecha de su reingreso no hubiere transcurrido el término para la prescripción de sus derechos de acuerdo con lo dispuesto en el artículo 413 del Código de Trabajo, sí se les reconocerá los años servidos para efecto de cómputo de vacaciones y anualidades.

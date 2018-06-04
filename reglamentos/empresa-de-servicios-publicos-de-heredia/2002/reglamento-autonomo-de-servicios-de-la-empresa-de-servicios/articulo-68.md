@@ -1,1 +1,3 @@
-Artículo 68.—Quedan relevados de la obligación del registro de asistencia únicamente: El Gerente, la Subgerente Administrativa, Contralores, Coordinadores de unidades administrativas y aquellos servidores que hay cumplido más de treinta años en el ejercicio de su cargo; así como también aquellos funcionarios que a juicio de la Gerencia por la índole de sus funciones no ejercen permanentemente su labor en las instalaciones de la Empresa.
+CAPITULO IX
+DEL SALARIO, AGUINALDO, CESANTÍA Y PLUSES SALARIALES
+ARTICULO 68.- Los salarios estipulados para las distintas clases de puestos, no podrán ser inferiores a los establecidos en el Decreto de Salarios Mínimos, para el Sector Privado.

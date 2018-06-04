@@ -1,1 +1,1 @@
-Artículo 79.—Son días hábiles para el trabajador, todos los días del año, salvo los feriados señalados en el Código de Trabajo y los permisos colectivos que autorice la Junta Directiva o la Gerencia.
+ARTICULO 79.- La concesión de un descanso colectivo es potestad de la Gerencia de ESPH S.A. De ahí que éste no constituye en modo alguno, un derecho que los s trabajadores puedan reclamar como adquirido.

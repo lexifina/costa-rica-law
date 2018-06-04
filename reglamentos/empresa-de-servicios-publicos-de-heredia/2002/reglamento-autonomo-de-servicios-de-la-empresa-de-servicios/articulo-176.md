@@ -1,1 +1,1 @@
-Artículo 176.—El recurso de revocatoria deberá resolverse dentro de los ocho días hábiles posteriores a su presentación y el de apelación, igualmente, dentro de los quince días hábiles posteriores al conocimiento del recurso por parte del Órgano competente.
+ARTICULO 176.- Asimismo, regulará la atención de daños o averías en horas fuera de la jornada y que deban ser atendidas por técnicos, operarios y profesionales de la Empresa, en cada una de las áreas en que ésta presta servicios.

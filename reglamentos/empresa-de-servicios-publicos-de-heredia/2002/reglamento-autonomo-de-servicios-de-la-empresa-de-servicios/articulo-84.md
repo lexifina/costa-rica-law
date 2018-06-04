@@ -1,1 +1,1 @@
-Artículo 84.—A los extrabajadores de la ESPH que reingresaren a la Empresa siempre que a la fecha de su reingreso no hubiere transcurrido el término para la prescripción de sus derechos de acuerdo con lo dispuesto en el artículo 607 del Código de Trabajo, sí se les reconocerá los años servidos para efecto de cómputo de vacaciones y anualidades.
+ARTICULO 84.- El período de vacaciones se suspende, si durante su disfrute el servidor es incapacitado por la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros.

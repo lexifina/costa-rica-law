@@ -1,3 +1,3 @@
-CAPÍTULO XVIII
-Régimen de disponibilidad y del auxilio de cesantía
-Artículo 178.—El presente capítulo, tiene por finalidad regular la atención de los trabajadores que se realice en horas no laborables, como consecuencia de averías en los sistemas de energía eléctrica, alumbrado público, acueductos y alcantarillado sanitario.
+ARTICULO 178.- El contrato por disponibilidad se desarrollará en dos modalidades:
+a. Para el personal técnico que preste el servicio de guardia en forma semanal, el cual únicamente puede prestar el turno una vez por mes, exceptuando los meses de cinco semanas.
+b. Para el personal de nivel profesional y/o la jefatura técnica que preste el servicio a partir de una semana y hasta por el mes completo. (Exclusión hecha de los Directores de Negocio)

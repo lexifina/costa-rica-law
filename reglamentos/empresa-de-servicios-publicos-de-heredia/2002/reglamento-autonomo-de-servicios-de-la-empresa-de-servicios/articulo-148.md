@@ -1,1 +1,4 @@
-Artículo 148.—Las pruebas serán apreciadas de conformidad con las reglas de la sana crítica racional; esto es, de acuerdo a la lógica, la ciencia y la experiencia.
+ARTICULO 148.- La acción disciplinaria prescribe:
+a. Si dentro del mes siguiente a la fecha en que el superior jerárquico tuvo conocimiento de los hechos, éstos no se denunciaren por escrito ante Gestión Desarrollo Humano.
+b. Si la instrucción del procedimiento disciplinario se paralizare totalmente por un mes, sin justa causa, salvo que se encuentre en el trámite de apelación ante Junta Directiva. En todo caso la ampliación del término no podrá exceder de la mitad del plazo original.
+c. Si dentro del mes siguiente a la fecha en que la Gerencia o la Contraloría Interna en su caso, recibiere la recomendación final del Órgano director, no dicta la resolución definitiva.

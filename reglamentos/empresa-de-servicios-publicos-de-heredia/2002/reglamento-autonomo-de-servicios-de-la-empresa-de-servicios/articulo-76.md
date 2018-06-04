@@ -1,1 +1,4 @@
-Artículo 76.—Todas aquellas erogaciones en que incurran los funcionarios de la ESPH S. A. por concepto de gastos de viaje y de transporte - dentro y fuera del país - se regirán por el respectivo Reglamento.
+CAPITULO X
+DEL DESCANSO SEMANAL, LOS DÍAS FERIADOS Y
+LAS VACACIONES ANUALES
+ARTICULO 76.- Todo trabajador tiene derecho a disfrutar de un día de descanso absoluto, después de cada semana o de cada seis días de trabajo continuo.

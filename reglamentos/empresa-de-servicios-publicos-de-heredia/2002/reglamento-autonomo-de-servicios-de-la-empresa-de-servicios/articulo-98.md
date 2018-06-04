@@ -1,4 +1,1 @@
-CAPÍTULO XII
-De la evaluación y calificación de servicios
-Artículo 98.—El desempeño de los servidores nombrados en propiedad será evaluado y calificado, como mínimo, una vez al año.
-La calificación del desempeño se expresará en términos de: “desempeño sobresaliente”, “muy buen desempeño”, “desempeño promedio aceptable”, “regular”, “desempeño deficiente”. Es responsabilidad personal del superior en grado realizar una calificación objetiva de la prestación efectiva de servicios.
+ARTICULO 98.- Las calificaciones serán determinantes para la concesión de ascensos, traslados, permisos, y un factor de obligada consideración al decidir sobre cualquier modificación de los términos de la relación laboral.

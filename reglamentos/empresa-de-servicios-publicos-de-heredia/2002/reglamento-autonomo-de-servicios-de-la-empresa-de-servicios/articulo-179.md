@@ -1,1 +1,1 @@
-Artículo 179.—Asimismo, regulará la atención de daños o averías en horas fuera de la jornada y que deban ser atendidas por técnicos y profesionales de la Empresa, en cada una de las áreas en que ésta presta servicios.
+ARTICULO 179.- Son parte integrantes del contrato adicional de trabajo que se celebre, las disposiciones del presente capítulo que a continuación se enumeran.

@@ -1,1 +1,1 @@
-Artículo 111.—La labor de la Comisión de Salud Ocupacional será desarrollada dentro de la jornada de trabajo, sin perjuicio o menoscabo de ninguno de los derechos laborales de los servidores que la conforman y de las funciones laborales a ellos asignadas.
+ARTICULO 111.- La Unidad de Gestión Integrada será la responsable de promover, coordinar, ejecutar y fiscalizar las políticas y medidas que se adopten en esta materia.

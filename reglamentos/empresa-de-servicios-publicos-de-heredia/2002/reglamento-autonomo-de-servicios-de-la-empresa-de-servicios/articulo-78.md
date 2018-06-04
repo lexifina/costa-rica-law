@@ -1,3 +1,1 @@
-CAPÍTULO X
-Del descanso semanal, los días feriados y las vacaciones anuales
-Artículo 78.—Todo trabajador tiene derecho a disfrutar de un día de descanso absoluto, después de cada semana o de cada seis días de trabajo continuo.
+ARTICULO 78.- No podrán disfrutar de los días feriados o de asueto señalados en el artículo anterior, los servidores que, por la índole de sus funciones, deban trabajar en esos días para ejecutar sus tareas. En estos casos, se pagará el tiempo extraordinario como lo establece el Código de Trabajo.

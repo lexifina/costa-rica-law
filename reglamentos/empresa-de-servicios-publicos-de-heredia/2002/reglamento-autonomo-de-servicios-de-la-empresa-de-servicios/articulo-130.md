@@ -1,3 +1,1 @@
-CAPÍTULO XVI
-Del régimen disciplinario
-Artículo 130.—El servidor de la E.S.P.H. S. A., está sujeto al régimen de responsabilidad previsto en el Código de Trabajo y al régimen disciplinario contemplado en este Reglamento u otro que la empresas emita o adopte.
+ARTICULO 130.- Es reincidente el trabajador que incurre por segunda vez en la misma falta dentro de los seis meses siguientes a la comisión de otra, por la que fue sancionado.
