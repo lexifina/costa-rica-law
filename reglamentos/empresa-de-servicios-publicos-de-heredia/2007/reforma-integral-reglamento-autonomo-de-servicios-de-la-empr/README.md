@@ -14,3 +14,4 @@ Reforma Integral Reglamento Autónomo de Servicios de la Empresa de Servicios P�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-18 | la propia norma |
+| 2 | 2018-06-04 | Reglamento 3839 (2018-06-04) |
