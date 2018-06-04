@@ -33,7 +33,8 @@ De res y cerdo
 • Porter House
 • Demónico o Ribeye
 • Carne tenderizada de cerdo o res.
-Carnes de pollo
+Carnes de pollo. Las siguientes carnes de pollo frescas, refrigeradas o congeladas. No se incluyen las sazonadas, marinadas, tenderizado, adobadas, condimentadas, empanizadas y/o preparadas o precocidas.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 41342 del 4 de junio de 2018)
 17. Alas
 18- menudos o vísceras
 19-Muslo

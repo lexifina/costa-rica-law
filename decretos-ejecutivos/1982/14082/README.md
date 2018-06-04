@@ -71,3 +71,4 @@ Reglamento de la Ley de Impuesto General sobre las Ventas
 | 56 | 2015-02-04 | Resolución 32 (2015-02-04) |
 | 57 | 2016-04-21 | Decreto Ejecutivo 39732 (2016-04-21) |
 | 58 | 2017-04-06 | Decreto Ejecutivo 40365 (2017-04-06) |
+| 59 | 2018-06-04 | Decreto Ejecutivo 41342 (2018-06-04) |
