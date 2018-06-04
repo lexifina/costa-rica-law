@@ -21,3 +21,4 @@ Directrices generales de política presupuestaria, salarial, empleo, inversión 
 | 6 | 2018-04-09 | Decreto Ejecutivo 41034 (2018-04-09) |
 | 7 | 2018-04-12 | Decreto Ejecutivo 41035 (2018-04-12) |
 | 8 | 2018-04-30 | Decreto Ejecutivo 41099 (2018-04-30) |
+| 9 | 2018-06-04 | Decreto Ejecutivo 41200 (2018-06-04) |
