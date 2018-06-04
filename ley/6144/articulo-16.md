@@ -1,22 +1,11 @@
-Artículo 16.- La Asamblea General se reunirá ordinariamente una vez
-al año para:
+Artículo 16- La Asamblea General se reunirá ordinariamente una vez al año para lo siguiente:
 a) Analizar y evaluar la marcha general del Colegio.
-b) Aprobar el programa de actividades que le presente la Junta
-Directiva para el ejercicio anual siguiente.
-c) Impartir aprobación al presupuesto general de gastos anuales.
-d) Nombrar a los miembros de la Junta Directiva, que corresponda. La
-reunión anual ordinaria se efectuará dentro de los primeros quince
-días del mes de diciembre.
-La Asamblea General celebrará reunión extraordinaria cada vez que sea
-convocada al efecto, con indicación de los asuntos específicos que deberá
-conocer y resolver.
-La convocatoria para reunión ordinaria o extraordinaria de Asamblea
-General será hecha por el Secretario de la Junta Directiva, en ejecución
-de acuerdo tomado por ésta, por iniciativa propia o gestión de diez
-miembros del Colegio cuando menos. La convocatoria se notificará a cada
-colegiado mediante la entrega de una circular y la publicación, por dos
-veces consecutivas, en "La Gaceta" y en uno de los periódicos de mayor
-circulación nacional.
-Entre la primera publicación de la convocatoria en "La Gaceta" y el
-día señalado para efectuar la reunión debe mediar un término mínimo de
-ocho días hábiles.
+b) Aprobar el Plan de actividades que le presente la Junta Directiva para el ejercicio anual siguiente.
+c) Aprobar el presupuesto general de gastos anuales.
+d) Conocer el resultado de las elecciones ordinarias de la Junta Directiva y juramentar a las personas electas. La reunión anual ordinaria se efectuará dentro de los últimos quince días del mes de noviembre.
+e) Nombrar a las personas colegiadas integrantes del Tribunal de Honor.
+f) Nombrar el Tribunal Electoral, el cual estará integrado por cinco personas colegiadas, quienes durarán en sus cargos dos años, pudiendo ser reelegidas únicamente por un período más. En el mismo acto se nombrarán dos suplentes, quienes serán llamados a ocupar las ausencias temporales de los propietarios.
+g) Conocer del resultado de la elección de la persona que ocupará el cargo de fiscal del Colegio, por un período de dos años. Corresponde a la Asamblea General autorizar sí, durante el plazo de nombramiento, la persona electa asumirá labores con dedicación de tiempo completo, en cuyo caso deberá establecer el honorario mensual a cancelar. No podrán ser nombrados en el cargo de fiscal personas unidas por parentesco de consanguinidad o afinidad hasta tercer grado, inclusive, con los integrantes de la Junta Directiva.
+La Asamblea General celebrará reunión extraordinaria cada vez que sea convocada al efecto, con indicación de los asuntos específicos que deberá conocer y resolver.
+Las reuniones de la Asamblea General serán convocadas por la Presidencia y la Secretaría de la Junta Directiva, previo acuerdo tomado por esta o con carácter de extraordinaria por solicitud escrita, dirigida a la Junta Directiva, por al menos el dos por ciento (2%) de las personas activas del Colegio; en este caso, la solicitud debe indicar los puntos a tratar. Recibida la solicitud, la Junta Directiva convocará a la Asamblea en su siguiente sesión ordinaria. La convocatoria se comunicará a través de los medíos internos del Colegio, así como mediante publicación, por dos veces consecutivas en La Gaceta y en un medio de comunicación nacional. Entre la publicación y la celebración de la Asamblea deben mediar, como mínimo, ocho días naturales de antelación.
+(Así reformado por el artículo único de la ley N° 9572 del 4 de junio de 2018)
