@@ -14,3 +14,4 @@ Reglamento para licencias municipales de la Municipalidad de Palmares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-06-17 | la propia norma |
+| 2 | 2018-06-05 | Reglamento municipal 106 (2018-06-05) |
