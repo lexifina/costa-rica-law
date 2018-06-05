@@ -1,0 +1,4 @@
+Artículo 7º—Aprobación de la candidatura de representante propietario y suplente. La Comisión Coordinadora revisará los documentos presentados para los efectos de la postulación a las candidaturas y de encontrarse todo dentro de los cánones jurídicos regulares, procederá a la inscripción efectiva del candidato o candidata. Una vez inscrita la candidatura, la misma será irrenunciable.
+No podrá ser subsanable el incumplimiento de alguno de los requisitos indicados en el artículo anterior, así como su presentación extemporánea, lo que conllevaría a no ser inscrito como candidato o candidata.
+La Comisión Coordinadora notificará lo resuelto a cada aspirante a representante tanto para el puesto de propietario como el de suplente, mediante el correo electrónico aportado, a más tardar el día 27 de junio del 2018.
+Contra lo resuelto por la Comisión Coordinadora no cabe recurso alguno.

@@ -1,0 +1,3 @@
+Artículo 3º—Determinación de la hora y fecha de las elecciones. Se convoca para la elección del representante propietario y suplente de las organizaciones de educadores, el día 04 de julio del 2018, a las 08:00 horas en primera convocatoria; de no conformarse el quórum, se realizará la segunda convocatoria a las 09:00 horas, con la que se dará inicio al proceso de elección con el número de electores concurrentes en ese momento.
+Para efectos de esta elección, denomínese quórum la mitad más uno de representantes inscritos en el Padrón Electoral correspondiente.
+El o la Secretaria del Consejo Superior de Educación, asistirá a la jornada electoral, como observadora del proceso.
