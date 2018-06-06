@@ -14,3 +14,4 @@ Reglamento de Cajas Chicas de la Municipalidad de Acosta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-06 | la propia norma |
+| 2 | 2018-06-06 | Reglamento municipal 104 (2018-06-06) |
