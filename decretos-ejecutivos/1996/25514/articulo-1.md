@@ -14,10 +14,12 @@ h) Floristerías;
 i) Panaderías;
 j) Restaurantes, cafés, sodas y otros establecimientos de venta de comidas, bebidas o ambas.
 k) Pescadores Artesanales en Pequeña Escala.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 30368, del 15 de abril del 2002)
 l) Pescadores Artesanales Medios.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 30368, del 15 de abril del 2002)
 m) Transporte terrestre remunerado de personas, mediante la modalidad de taxi.
 (Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 34921 del 26 de noviembre de 2008)
-(Así ampliado por el artículo 1° del Decreto Ejecutivo N° 30368, del 15 de abril del 2002)
+n) Pequeños productores agrícolas que vendan sus productos exclusivamente al consumidor final por medio de las ferias del agricultor.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41278 del 6 de junio de 2018)
 (Así reformado por el artículo 1° del Decreto Ejecutivo N° 26199, del 20 de junio de 1997)
 (Reformado parcialmente por el artículo 9° del Decreto Ejecutivo N° 29643, del 10 de julio de 2001)
-(Nota de Sinalevi: En La Gaceta N° 202 del 26 de octubre de 2017 se publicó la adición de un inciso n) al artículo 1° del Decreto Ejecutivo N° 25514-H del 24 de setiembre de 1996, denominado “Régimen de Tributación Simplificada para Comerciantes Minoristas y Bares”. Posteriormente mediante Fe de Erratas publicada en La Gaceta N° 18 del 31 de enero de 2018, página N° 88, y en La Gaceta N° 19 del 1° de febrero de 2018, página N° 96, se reproduce en dicha Gaceta por error de Imprenta , la Dirección General de Tributación Directa aclara que dicha modificación corresponde tan solo a un proyecto de reforma sobre dicho artículo y no a una norma jurídica afectante. Por ello, no se realizó la afectación correspondiente).
