@@ -1,0 +1,18 @@
+Directriz Nº 007-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 9, 11, 140 de la Constitución Política; los artículos 1, 4, 11, 21, 26 inciso b), 99, 100, 107, 113 incisos 2) y 3) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978; el artículo 80 de la Ley Nº 7097, Ley de Presupuesto Extraordinario de 18 de agosto de 1988; el artículo 16 de la Ley Nº 6955, Ley para el Equilibrio Financiero del Sector Público de 24 de febrero de 1984; los artículos 1, 4, 5, 6, 18, 21, 22, 27, 28, 32, 42 y 45 inciso a) de la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre de 2001; el Decreto Ejecutivo Nº 32988-H-MP-PLAN de 31 de enero de 2006, el Decreto Ejecutivo N° 32452-H de 29 de junio de 2005 y la Directriz N° 98-H del 11 de enero de 2018 y
+CONSIDERANDO:
+I. Que en la actualidad, la difícil situación internacional y los riesgos asociados para nuestra economía son una razón más para continuar con los esfuerzos que realiza el Gobierno en aras de revertir el desequilibrio fiscal
+II. Que dada esta coyuntura, es menester crear instrumentos jurídicos que definan límites al crecimiento del gasto público, especialmente el corriente, sin que ello implique recortes sustantivos. Esta implementación en materia de disciplina fiscal, comprende crecimientos moderados del gasto, mejor gestión de los destinos específicos, integración de la gobernanza presupuestaria y prohibición de crear nuevo gasto sin su correspondiente financiamiento, todo esto, con la intención de que el gasto corriente, excluyendo el pago de intereses, no crezca más que el 85% del crecimiento del PIB nominal.
+III. Que para enfrentar la situación antes descrita, el Gobierno de la República ha presentado iniciativas que consisten, por un lado, en modificaciones estructurales del sistema tributario, así como mejorar la recaudación y por otra parte, mejorar la calidad en el gasto público.
+IV. Que en ejercicio del poder de dirección, el Poder Ejecutivo ha emitido Directrices con el fin de establecer medidas de contención del gasto.
+V. Que a pesar de los esfuerzos apuntados para atender las necesidades de financiamiento del Presupuesto Nacional, se requiere tomar otras acciones inmediatas que permitan continuar con la operatividad y el funcionamiento del Estado costarricense.
+VI. Que deviene de interés público priorizar el pago y racionalizar el uso de los recursos para atender las obligaciones con cargo al Presupuesto Nacional, todo ello buscando la mayor protección de los sectores más vulnerables.
+VII. Que el Artículo 69 de la Ley No. 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre de 2001 y sus reformas, establece que “No podrán emitirse órdenes de pago si no existen fondos para hacerlas efectivas.”
+Por tanto, emite la siguiente,
+Directriz
+“SOBRE NO RENOVACIÓN DE CONTRATOS DE SERVICIOS DE TELEVISIÓN PAGADA EN INSTITUCIONES PÚBLICAS”
+DIRIGIDA AL SECTOR PÚBLICO
+ARTÍCULO 1º- No se iniciarán procesos de contratación que conlleven nuevas obligaciones para el Gobierno Central, referentes a servicios de televisión pagada, satelital o por cable. En el caso de los ya iniciados que se encuentren sin adjudicar, cada jerarca deberá valorar cuáles de ellos pueden rescindirse.
+Lo dispuesto en el primer párrafo de este artículo no resulta aplicable a las contrataciones ya existentes y que por subsistir la necesidad que las origina, deban ser renovadas o sustituidas. Lo anterior, en el tanto las condiciones presupuestarias lo permitan.
