@@ -1,0 +1,2 @@
+Artículo 2. De conformidad con la autorización conferida en el artículo que antecede, las instituciones que vayan a hacer uso de su superávit libre en el 2019, deberán informar a la Tesorería Nacional con copia de la Secretaria Técnica de la Autoridad Presupuestaria, a más tardar al 16 de febrero del 2019 del saldo del mismo.
+Para el 2018, el plazo dispuesto en el artículo 2 del Decreto Ejecutivo N° 40808, publicado en el Alcance 11 a La Gaceta N°242 del 21 de diciembre del 2017, mismo que venció el 16 de febrero del 2018, se amplía hasta el 30 de junio del 2018.
