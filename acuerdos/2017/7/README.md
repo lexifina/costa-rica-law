@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-005 Criterios para la evaluación de la norma INTEI
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-09-27 | la propia norma |
+| 2 | 2018-06-06 | Acuerdo 5 (2018-06-06) |
