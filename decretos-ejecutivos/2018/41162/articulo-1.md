@@ -1,0 +1,11 @@
+N° 41162-H
+El PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 130, 140 incisos 7), 8) 18) y 20), 146, 176 y 180 de la Constitución Política; los artículos 1, 4, 21, 25 inciso 1), 27 inciso 1), 28 inciso b) 113 incisos 2) y 3) de la Ley No. 6227, Ley General de la Administración Pública de 2 de mayo de 1978 y sus reformas; la Ley No. 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre de 2001 y sus reformas; su Reglamento, el Decreto Ejecutivo No. 32988-H-MP-PLAN de 31 de enero de 2006 y sus reformas, el Decreto Ejecutivo N° 32452-H de 29 de junio del 2005 y sus reformas, el Decreto N°40540-H, Contingencia Fiscal del 1° de agosto del 2017 y Decreto ejecutivo N° 40808 del 4 de diciembre del 2017.
+Considerando:
+1º—Que el artículo 5, inciso b) de la Ley de la Administración Financiera de la República y Presupuestos Públicos, en lo de interés dispone: “La administración de los recursos financieros del sector público se orientará a los intereses generales de la sociedad, atendiendo los principios de economía, eficacia y eficiencia, con sometimiento a la ley”.
+2°—Que según lo establece el artículo 4 de la Ley General de la Administración Pública, esta se rige por los principios generales de servicio público, para así “…asegurar su continuidad, su eficiencia, su adaptación a todo cambio en el régimen legal o en la necesidad social que satisfacen y la igualdad en el trato de los destinatarios, usuarios o beneficiarios”.
+3°—Que el déficit del Gobierno Central refleja claramente que los ingresos corrientes serán insuficientes para afrontar las obligaciones que le corresponden al Gobierno, haciendo necesario implementar medidas adicionales para contener y reducir el déficit fiscal precitado.
+Por tanto decretan:
+“LIMITACIÓN A LAS REESTRUCTURACIONES”
+Artículo 1.Únicamente serán aprobadas las reestructuraciones dentro de ministerios, órganos desconcentrados y entidades cubiertas por el ámbito de la Autoridad Presupuestaria, cuyo propósito sea hacer más eficiente la gestión del Estado, siempre que no impliquen la creación de plazas adicionales, reasignaciones de puestos, así como nuevos gastos.
