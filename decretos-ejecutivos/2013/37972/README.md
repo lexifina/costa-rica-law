@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de certificados de explotación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-10-24 | la propia norma |
+| 2 | 2018-06-06 | Decreto Ejecutivo 41309 (2018-06-06) |
