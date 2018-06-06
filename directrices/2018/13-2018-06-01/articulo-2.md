@@ -1,0 +1,1 @@
+Artículo 2º.Se insta a todas las demás instituciones públicas para que, en tanto su normativa interna lo permita, adapten la forma de cálculo de sus anualidades de acuerdo con lo establecido en esta directriz.
