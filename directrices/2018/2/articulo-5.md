@@ -1,0 +1,6 @@
+Artículo 5°-Documentos a presentar. Los siguientes documentos originales y debidamente firmados por el superior jerárquico la entidad responsable del proyecto, deberán ser entregados en las oficinas centrales de la Dirección de Agua:
+a) Documento impreso y digital de la Prefactibilidad o Factibilidad del proyecto, según la Guía Metodológica de Identificación, Formulación y Evaluación de Proyectos de Acueducto y Alcantarillado Sanitario, emitida por el Ministerio de Planificación Nacional y Política Económica (Mideplan) vigente. El documento de proyecto debe contar con los estudios que se requieran para el tipo de proyecto, según lo establecido por el Anexo I: Clasificación de los proyectos según la variable tipo, de las Normas Técnicas, Lineamientos y Procedimientos de Inversión Pública emitido por el Ministerio de Planificación Nacional y Política Económica (Mideplan).
+b) Certificación de Personería Jurídica de la entidad responsable del proyecto, con menos de 3 meses de emitida.
+c) Financiamiento, se debe presentar documento donde se especifique el desglose de fondos para el proyecto (fondos del CA Y y fondos de contrapartida), además que incluya demostración del contenido de fuente de financiamiento complementaria
+(contrapartida).
+d) Programa de Ejecución presupuesta1ia (flujo de ingresos y egresos) del año anterior.

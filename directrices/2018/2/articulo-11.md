@@ -1,0 +1,3 @@
+Artículo 11 º- Obligación de informar sobre modificaciones en los proyectos aprobados.
+a) Actualización de la información: la organización dueña del proyecto, debe informar a la Dirección de Agua cualquier cambio en la información de contacto del proyecto.
+b) Toda modificación en el alcance, la ejecución presupuestaria y cumplimiento del cronograma del proyecto, debe ser informada a la Dirección de Agua vía oficio emitido por el superior jerárquico de la entidad responsable del proyecto, con la debida justificación, garantizando que se vaya a llegar al objetivo final del proyecto y se van a ejecutar de forma correcta los fondos del CA V transferidos.

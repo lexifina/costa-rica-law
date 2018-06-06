@@ -1,0 +1,1 @@
+Artículo 12°- Incumplimiento y sanciones. En caso de que ocurra algún incumplimiento en las condiciones establecidas en el Convenio, se dará inicio al debido proceso a fin de verificar la verdad real de los hechos, para lo cual se aplicará lo señalado en el artículo 308 siguientes y concordantes de la Ley General de la Administración Pública.

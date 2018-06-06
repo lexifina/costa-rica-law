@@ -1,0 +1,5 @@
+Artículo 7°-Proceso de selección de los proyectos.
+a) Una vez recibido el resultado de la evaluación y calificación de los proyectos realizada por el Comité Evaluador, el Director de Agua tendrá un plazo de 10 días hábiles para revisar estos resultados, verificar el cumplimiento en la aplicación de la Herramienta de evaluación y calificación de proyectos y convocar al Consejo Directivo a fin de que se conozcan los proyectos evaluados, así como los detalles de la inversión de los porcentajes señalados en los incisos b, c, d, y e del artículo 9 del DE-3443 L-MINAE-S.
+b) El Consejo Directivo se reunirá en un plazo máximo de 10 días a partir de la convocatoria realizada por el Director de Agua, y en esta reunión emitirá acuerdo de las recomendaciones que procedan.
+c) Concluida la etapa anterior, la Dirección de Agua remite propuesta de proyectos a financiar, para aprobación del Ministro.
+d) La resolución de aprobación del Ministro, será remitida a la Dirección de Agua para notificar a las partes interesadas.
