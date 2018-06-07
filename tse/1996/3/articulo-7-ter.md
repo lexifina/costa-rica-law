@@ -1,0 +1,4 @@
+Artículo 7 ter.- Las jefaturas podrán requerir a las personas funcionarias laborar bajo la modalidad de trabajo remoto no habitual por objetivos, cuando la índole de sus labores así lo demande, de manera que puedan prestar sus servicios durante toda o parte de su jornada laboral diaria desde su domicilio, para lo cual el Tribunal dictará el respectivo instructivo.
+La persona funcionaria estará protegida en todo momento por la póliza de riesgos de trabajo con que cuenta esta institución, siempre y cuando su jefatura autorice con el visto bueno del Director respectivo, desempeñar sus labores en su domicilio.
+El Director respectivo podrá revocar, suspender o modificar en cualquier momento, por razones de conveniencia u oportunidad, la modalidad de prestación de servicios antes indicada, la cual no constituye un derecho adquirido.
+(Así adicionado por el artículo 2° del decreto del Tribunal Supremo de Elecciones N° 8-2018 del 7 de junio del 2018)
