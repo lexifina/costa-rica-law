@@ -1,1 +1,0 @@
-Artículo 7°—Otros requisitos. La administración tributaria podrá solicitar requisitos adicionales a los establecidos en esta resolución, siempre y cuando los mismos sean atinentes según la naturaleza del crédito.

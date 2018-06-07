@@ -1,1 +1,0 @@
-Artículo 2°—Certificación de personería jurídica o poder. Cuando la solicitud se realice en nombre de una persona jurídica o en representación de una persona física, quien firme la solicitud de devolución deberá aportar la certificación de personería jurídica o poder con facultades suficientes para actuar con no más de tres meses de emitida.

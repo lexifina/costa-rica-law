@@ -1,1 +1,0 @@
-Artículo 10º—Derogatorias: Deróguese la resolución número DGT-R-018-2012, publicado en La Gaceta N° 209 del 30 de octubre del 2012, denominada “Requisitos generales de las solicitudes de devolución de créditos fiscales”.

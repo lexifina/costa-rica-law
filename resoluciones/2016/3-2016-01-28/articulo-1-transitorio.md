@@ -1,1 +1,0 @@
-Transitorio Único. —Las disposiciones de la presente resolución podrán ser de aplicación en el trámite de aquellas solicitudes de devolución, presentadas antes de la entrada en vigencia de esta Resolución, siempre y cuando no se haya notificado al interesado la resolución que atiende su solicitud.
