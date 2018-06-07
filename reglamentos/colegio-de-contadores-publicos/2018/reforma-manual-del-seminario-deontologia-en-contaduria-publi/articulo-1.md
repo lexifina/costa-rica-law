@@ -1,0 +1,5 @@
+COLEGIO DE CONTADORES PÚBLICOS DE COSTA RICA
+Por acuerdo de junta directiva N° 176-2018 SO.8 de la sesión ordinaria N° 8-2018, celebrada el 16 de mayo de 2018, se modificar parcialmente la redacción del Manual Seminario Deontología en los siguientes artículos para que se lean:
+Artículo 16: “Posibilidad de interponer recurso de revisión: En caso de inconformidad con el resultado de la evaluación de revisión, solo cabrá recurso de revisión ante el Departamento de Consultoría Técnica”.
+Artículo 17: “Procedimiento: El recurso de revisión se iniciará con la gestión escrita del recurrente ante el Departamento de Consultoría Técnica, en el cual aquél deberá exponer en forma clara y razonada los motivos de su disconformidad, con las pruebas pertinentes”.
+Artículo 19: “Resolución del recurso de revisión: Una vez recibido el recurso, el jefe del Departamento de Consultoría Técnica trasladará el reclamo a la Junta Directiva del Colegio de Contadores Públicos de Costa Rica para que ésta en un plazo de un mes calendario resuelva el mismo”
