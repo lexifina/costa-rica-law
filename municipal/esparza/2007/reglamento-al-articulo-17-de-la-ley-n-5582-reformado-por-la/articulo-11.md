@@ -1,2 +1,1 @@
-Artículo 11.— La Comisión de Becas llevará un expediente debidamente numerado y foliado para cada estudiante seleccionado, en el que serán incorporados todos los documentos pertinentes que justifiquen el beneficio y la permanencia del estudiante en el sistema educativo. Esta Comisión estará integrada de acuerdo a lo establecido por el artículo 49 del Código Municipal.
-(Así reformado mediante acta N° 74, artículo N° 5, capítulo IV de sesión efectuada el 24 de setiembre de 2007)
+Artículo 11.— (Derogado por el artículo 30 del Reglamento de becas de la Municipalidad de Esparza, publicado en La Gaceta N° 134 del 24 de julio del 2018)

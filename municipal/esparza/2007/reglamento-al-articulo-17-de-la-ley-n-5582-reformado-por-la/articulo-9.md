@@ -1,1 +1,1 @@
-Artículo 9º—La Municipalidad otorgará becas consistentes en dinero en forma mensual durante el período lectivo por el que hayan sido aprobadas. El Concejo Municipal por acuerdo razonado determinará el monto de distribución para cada nivel de estudios.
+Artículo 9º—(Derogado por el artículo 30 del Reglamento de becas de la Municipalidad de Esparza, publicado en La Gaceta N° 134 del 24 de julio del 2018)

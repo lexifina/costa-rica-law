@@ -16,3 +16,4 @@ Reglamento al Artículo 17 de la Ley Nº 5582, Reformado por la Ley Nº 8461, Le
 | 1 | 2007-06-29 | la propia norma |
 | 2 | 2007-09-24 | Reglamento municipal 0 (2007-09-24) |
 | 3 | 2015-01-14 | Reglamento municipal 0 (2015-01-14) |
+| 4 | 2018-06-07 | Reglamento municipal 0 (2018-06-07) |

@@ -1,1 +1,1 @@
-Artículo 10.—El análisis y la definición de número de becas y el monto de la beca para cada nivel de estudios y así como la distribución mensual del monto total a otorgar será propuesto anualmente por la Comisión Especial de Becas y aprobado por el Concejo Municipal. Las becas pueden distribuirse en un monto superior al inicio del período de estudios y luego un monto fijo mensual durante el período.
+Artículo 10.— (Derogado por el artículo 30 del Reglamento de becas de la Municipalidad de Esparza, publicado en La Gaceta N° 134 del 24 de julio del 2018)

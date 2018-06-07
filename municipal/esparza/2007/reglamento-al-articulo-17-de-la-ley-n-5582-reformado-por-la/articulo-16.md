@@ -1,5 +1,1 @@
-Artículo 16.—Los estudiantes que soliciten beca deben ser vecinos del Cantón y deben presentar además de la información requerida en el artículo 14:
-a) Certificado de notas del período anterior.
-b) Constancia de no recibir beca del FONABE, IMAS u otra institución pública
-c) Copias de recibos recientes de agua y electricidad de su vivienda.
-d) Constancia salarial de ingresos de los miembros de la familia.
+Artículo 16.— (Derogado por el artículo 30 del Reglamento de becas de la Municipalidad de Esparza, publicado en La Gaceta N° 134 del 24 de julio del 2018)

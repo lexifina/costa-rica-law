@@ -1,1 +1,1 @@
-Artículo 14.—La fórmula contendrá como mínimo los siguientes datos: nombre y apellidos del solicitante, edad, dirección exacta del domicilio, nombre de los padres y demás personas del núcleo familiar, teléfono, año que cursará, nombre de la institución educativa. La comisión de becas podrá solicitar certificación de bienes, constancia de inversiones de entidades financieras, cuando lo considere necesario.
+Artículo 14.— (Derogado por el artículo 30 del Reglamento de becas de la Municipalidad de Esparza, publicado en La Gaceta N° 134 del 24 de julio del 2018)

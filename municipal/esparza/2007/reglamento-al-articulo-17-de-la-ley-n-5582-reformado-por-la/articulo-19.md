@@ -1,1 +1,1 @@
-Artículo 19.—Serán causales de pérdida automática de la beca: la interrupción de los estudios, reprobar una o más materias en Parauniversitaria y Universitaria, que el promedio de notas del período anterior sea inferior a 70%, que se detecte información falsa dentro del expediente.
+Artículo 19.— (Derogado por el artículo 30 del Reglamento de becas de la Municipalidad de Esparza, publicado en La Gaceta N° 134 del 24 de julio del 2018)

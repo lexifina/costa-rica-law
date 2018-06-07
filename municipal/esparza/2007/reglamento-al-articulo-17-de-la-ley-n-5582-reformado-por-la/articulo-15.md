@@ -1,1 +1,1 @@
-Artículo 15.—La Comisión Especial de Becas se reunirá mensualmente y emitirá dictamen con el listado de becados al Concejo Municipal para su aprobación, esta Comisión puede asesorarse con personas especializadas en diferentes disciplinas.
+Artículo 15.— (Derogado por el artículo 30 del Reglamento de becas de la Municipalidad de Esparza, publicado en La Gaceta N° 134 del 24 de julio del 2018)

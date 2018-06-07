@@ -1,1 +1,1 @@
-Artículo13.—Los estudiantes interesados solicitarán a través de la fórmula suministrada por la Municipalidad la beca correspondiente, llenando en su totalidad la información requerida y presentando los requisitos que se indiquen. En caso de menores de edad la solicitud también debe firmarla el padre o encargado.
+Artículo13.— (Derogado por el artículo 30 del Reglamento de becas de la Municipalidad de Esparza, publicado en La Gaceta N° 134 del 24 de julio del 2018)
