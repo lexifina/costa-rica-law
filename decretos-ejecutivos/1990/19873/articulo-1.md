@@ -6,8 +6,10 @@ DECRETAN:
 Artículo 1 °—Aprobar la siguiente,
 NCR 23:1990. Norma de Bebidas Alcohólicas,
 Nomenclatura y Clasificación
-1 Objeto
-Esta norma tiene por objeto establecer las definiciones de los términos empleados en la Industria de Bebidas Alcohólicas, así como la clasificación de estas.
+1. Objeto
+Este reglamento técnico tiene por objeto establecer las definiciones de los términos empleados en la Industria de Bebidas Alcohólicas, así como la clasificación de éstas, para fines de denominación del producto y etiquetado.
+NOTA: El grado alcohólico indicado en cada una de las definiciones no representan niveles máximos permitidos, tales niveles son potestad exclusiva del Ministerio de Salud y de la política de salud que éste establezca a la hora de autorizar el registro del producto.
+(Así reformado el punto 1) anterior por el artículo 1° del decreto ejecutivo N° 41256 del 7 de junio del 2018)
 2 Definiciones
 2.1 Agua potable: Agua apta para el consumo humano y para usos domésticos de conformidad con la Ley General de Salud, artículo 265.
 2.2 Aguardiente: Mezcla hidroalcohólica obtenida por la reducción del alcohol proveniente del proceso de destilación de materias primas fermentadas, a un determinado grado de consumo. La mayor parte de estas bebidas adquieren posteriormente ciertas características propias o típicas según sea la materia prima original del aguardiente y a los tratamientos o procesos a que este se someta como son por ejemplo: añejamiento, mezcla con otros sabores, aromas, etc. En razón de tales características los aguardientes que pueden ser simples, compuestos, añejos o sin añejar, reciben nombres específicos como brandy, ron, whisky, etc., tal y como en cada caso los define esta norma.
@@ -61,44 +63,25 @@ Esta norma tiene por objeto establecer las definiciones de los términos emplead
 Para la clasificación de las bebidas alcohólicas se seguirá el patrón de la tabla No 1.
 Nota: Estas listas no son exhaustivas.
 3.1 Bebidas alcohólicas fermentadas no destiladas
-3.1.1 Vino: Producto obtenido de la fermentación alcohólica normal del jugo exprimido directamente de uvas maduras y frescas, sometido al proceso de añejamiento. El vino se designa de acuerdo con su coloreóme: blanco, rojo o tinto, rosado y clarete. El vino se denomina seco si contiene materias reductoras en cantidad menor de 5 gramos por litro; abocado, semiseco o semidulce, si esta cantidad es mayor de 5 y hasta 50 gramos y dulce si es superior a 50 gramos. También se reconoce o acepta como vino el producto obtenido de las pasas, o de uvas asoleadas, o mostos concentrados, condición que debe indicarse en la etiqueta. Su contenido alcohólico es de 6±0,5 hasta 14±0,5% vol.
-3.1.1.1 Vino espumante: Vino efervescente debido al dióxido de carbono producido en forma natural, poruña segunda fermentación. El champán o champagne es un ejemplo. Su contenido alcohólico es de 6±0,5% hasta 14±0,5% vol.
-3.1.1.2 Vino espumoso (gasificado o carbonatado): Vino efervescente debido a la presencia de dióxido de carbono, adicionado después de la fermentación, procedimiento que debe especificarse en la etiqueta. Su contenido alcohólico es de 6 ±0,5 hasta 14 ±0,5% vol.
-3.1.1.3 Vino fortificado generoso o licoroso: Vino especial elaborado a partir de variedades selectas, con la adición del alcohol vínico autorizado, vinos dulces naturales, con lo que se obtiene su mayor fuerza alcohólica y sabor dulce. En la etiqueta debe aparecer su denominación por ejemplo: "vino fortificado", o su denominación de origen como Jerez, Oporto, Manzanilla, Rhin, Tokay, Marsala y Madeira. Su contenido alcohólico es de 14 ±0,5 hasta 24±0,5% vol.
+3.1.1 Vino: Bebida resultante de la fermentación alcohólica, completa o parcial, de uvas frescas, estrujadas o no, o de mosto de uva. Su contenido en alcohol adquirido no puede ser inferior a 6 ±0,5% vol.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 41256 del 7 de junio del 2018)
+3.1.1.1 Vino espumante: Vino efervescente debido al dióxido de carbono producido en forma natural, por una segunda fermentación. El champán o champagne es un ejemplo.
+(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 41256 del 7 de junio del 2018)
+3.1.1.2 Vino espumoso (gasificado o carbonatado): Vinos especiales elaborados a partir de uvas, mostos o vinos elaborados según técnicas aceptadas por la Organización Internacional de la Viña y el Vino OIV, caracterizados por descorchar por la producción de una efervescencia más o menos persistente, resultante de la liberación de dióxido de carbono de origen exclusivamente endógeno.
+La botella es de al menos 3,5 bares a 20 ° C. Sin embargo, para las botellas de una capacidad inferior a 0,25 l, la sobrepresión mínima es de 3 bares a 20 ° C.
+Se dice que el vino es:
+− Brut, cuando contenga como máximo 12 g / l de azúcar con una tolerancia de + 3 g/l.
+− Extra seco, cuando contenga por lo menos 12 g/l y como máximo 17 g/l con una tolerancia de + 3 g/l.
+− Seco, cuando contenga al menos 17 g/l y como máximo 32 g / l con una tolerancia de +3 g/l.
+− Demi-seg, cuando contiene de 32 a 50 g/l.
+− Dulce, cuando contiene más de 50 g/l”.
+(Así reformado el punto 3.1.1.2) anterior por el artículo 1° del decreto ejecutivo N° 41256 del 7 de junio del 2018)
+3.1.1.3 Vino fortificado generoso o licoroso: Vino con un grado alcohólico adquirido superior o igual al 15% e inferior o igual al 22%, pero ocasionalmente puede alcanzar un grado alcohólico superior al 22%, manteniéndose inferior o igual a 24%.
+El vino de licor se elabora a partir de mostos de uva (incluidos los mostos de uva parcialmente fermentados) y / o vino, a los que se añaden, solos o en mezcla, destilados, bebidas espirituosas y alcohol de origen vitivinícola.
+Se pueden añadir uno o más de los siguientes productos: mosto de uva concentrado o caramelizado, uvas maduras o pasadas, místeles, caramelo.
+(Así reformado el punto 3.1.1.3) anterior por el artículo 1° del decreto ejecutivo N° 41256 del 7 de junio del 2018)
 Tabla N° 1. Clasificación de bebidas alcohólicas
-B E B I D A S A L C O H O L I C A S | | ( uva—-— | (Vino
-| ( |
-| (Otras | (Vino de .....
-(Fermentadas | (Frutas | (Perry, Sidra
-(No destiladas | ( |
-( | (Granos----- | (Sake, cerveza
-( | ( |
-( | (Misceláneos----- | (Pulpe, vino de miel
-( | |
-( | |
-( | |
-( | |
-( | | (Granos-------Whisky
-( | | (
-( | | (
-( | | (
-( | | (Caña y
-( | | (Melazas ------ Ron
-( | (Simples | (
-( | ( (*) | (
-( | ( | (
-( | ( | (Agave--------- Tequila
-( | ( | (
-(Fermentadas | ( | (
-(Destiladas | ( | (Frutas--------- Brandi
-| ( |
-| ( |
-| ( | (Aguardientes confeccionados
-| ( | (Ginebra
-| (Compuestas----- | (Licores cordiales
-| | (Amargos o bitters
-| | (otros
-(*) El vodka puede provenir de cualquiera de estas materias primas.
+(Derogada la Tabla 1 anterior por el artículo 3° del decreto ejecutivo N° 41256 del 7 de junio del 2018)
 3.1.1.4 Vino aromatizado: Vino fortificado, al cual se le ha agregado aromas provenientes de la maceración de hierbas, raíces, cortezas y otros aromatizantes, para cambiar su sabor natural. Son ejemplos el Vermouth y el Quinado. Su contenido alcohólico es de 14±0,5 hasta 24±0,5% vol.
 3.1.2 Vino de frutas: Producto obtenido de la fermentación alcohólica de mostos de frutas sanas y maduras. El mosto puede ser corregido en lo referente a acidez y azúcar. Pueden ser dulces, semidulces o secos. En la etiqueta, el producto será designado "vino de...", indicándose la fruta empleada. Su contenido alcohólico es de 6 ±0,5 hasta 14 ±0,5% vol. Son ejemplos
 3.1.2.1 Vino de frutas espumante: Vino de frutas efervescentes debido al dióxido de carbono producido en forma, natural por una segunda fermentación. Su contenido alcohólico es de 6 ±0,5 hasta 14 ±0,5% vol.

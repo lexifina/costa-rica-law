@@ -17,3 +17,4 @@ Norma de Bebidas Alcohólicas, Nomenclatura y Clasificación
 | 2 | 1992-02-18 | Decreto Ejecutivo 21087 (1992-02-18) |
 | 3 | 1994-07-01 | Decreto Ejecutivo 23479 (1994-07-01) |
 | 4 | 1996-05-03 | Decreto Ejecutivo 25252 (1996-05-03) |
+| 5 | 2018-06-07 | Decreto Ejecutivo 41256 (2018-06-07) |
