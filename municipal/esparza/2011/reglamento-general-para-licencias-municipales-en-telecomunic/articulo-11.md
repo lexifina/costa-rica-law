@@ -1,2 +1,0 @@
-Artículo 11.—Se deberá mantener una franja de amortiguamiento mínima alrededor de la estructura de la Torre de las reglamentadas en este cuerpo legal, del diez por ciento (10%) de su altura, medida desde el centro de la base de la misma.
-Se prohíbe que la antena o estructura se coloque adyacente a las colindancias del predio en cuestión, esto como una medida de seguridad para las construcciones aledañas, debiendo facilitarse en todo momento el tránsito del personal necesario para la conservación y mantenimiento del inmueble en que se ubiquen.

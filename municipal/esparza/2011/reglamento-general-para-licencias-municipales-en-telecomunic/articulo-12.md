@@ -1,2 +1,0 @@
-Artículo 12.-Como excepción a lo dispuesto en este Reglamento, un solicitante de Uso de Suelo y/o Permiso de Construcción para infraestructura en telecomunicaciones, podrá justificar la necesidad de parámetros distintos a los establecidos en dichas normas, debiendo presentar ante el Concejo Municipal, los estudios técnicos que así lo justifiquen. La aprobación de estos, quedará condicionada al cumplimiento de los requisitos y condiciones acordadas por el Concejo Municipal.
-(Así reformado en acta N° 39 del 23 de enero de 2017)
