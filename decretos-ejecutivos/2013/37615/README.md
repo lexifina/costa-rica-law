@@ -14,3 +14,4 @@ Reglamento a la Ley N° 8228 del Benemérito Cuerpo de Bomberos de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-04-05 | la propia norma |
+| 2 | 2018-06-07 | Decreto Ejecutivo 41196 (2018-06-07) |
