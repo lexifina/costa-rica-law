@@ -1,0 +1,5 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+La Junta Directiva Nacional en sesión 5559 celebrada el 17 de mayo del 2018 modificó el artículo 25 del Reglamento para el Funcionamiento de Fondos Especiales, el cual se leerá así:
+“Artículo 25. De las tasas de interés. De las tasas de interés. Para la fijación de la tasa de interés de los créditos otorgados por los Fondos Especiales para sus distintos programas se utilizará como referencia la tasa básica pasiva (TBP) calculada por el Banco Central de Costa Rica al último día hábil del mes anterior a la formalización y se revisará y ajustará con base en esa tasa calculada al último día hábil del mes anterior o bien, a juicio de la Gerencia General Corporativa y respetando el principio de igualdad, cualquier otra tasa de referencia nacional o internacional o índices, siempre que sean objetivos y de conocimiento público.
+Las EESS que presten estos recursos a los segmentos definidos podrán cobrar hasta TBP + seis puntos porcentuales o la tasa de referencia nacional o internacional fijada hasta + seis puntos porcentuales.”
+Rige a partir de su publicación en el Diario Oficial.”
