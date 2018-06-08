@@ -1,0 +1,1 @@
+Artículo 39.—El conductor que sea declarado responsable judicialmente, con motivo de un accidente en que hubiera participado con el vehículo municipal, debe pagar el monto correspondiente al deducible, así como las indemnizaciones que deba hacer la Municipalidad en favor de terceros afectados, o en su totalidad cuando el costo del daño sea inferior al monto del deducible.

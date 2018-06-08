@@ -1,0 +1,1 @@
+Artículo 26.—Es responsabilidad del Proceso de Servicios Generales, realizar la planificación semanal o quincenal del uso de los vehículos administrativos, de acuerdo a la demanda de los diferentes procesos de la municipalidad.

@@ -1,0 +1,1 @@
+Artículo 29.—Los vehículos de trabajo pesado son de uso exclusivo del proceso correspondiente según el servicio que presten, por lo que no está permitido que sean conducidos por personal ajeno a dicho proceso, exceptuando al Proceso de Servicios Generales cuando se trate del traslado al mantenimiento mecánico.

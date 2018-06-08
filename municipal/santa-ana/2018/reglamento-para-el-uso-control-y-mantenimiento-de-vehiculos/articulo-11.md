@@ -1,0 +1,1 @@
+Artículo 11.—El Proceso de Servicios Generales llevará un expediente por cada uno de los vehículos propiedad de la municipalidad, en donde archivará los documentos de inscripción registral, pólizas, registros y estadísticas del artículo anterior.

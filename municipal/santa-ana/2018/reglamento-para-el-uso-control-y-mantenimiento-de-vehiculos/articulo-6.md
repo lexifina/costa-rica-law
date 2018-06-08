@@ -1,0 +1,1 @@
+Artículo 6°—Vehículos de uso discrecional: No se tendrán en esta municipalidad, vehículos de uso discrecional. No obstante; habrá vehículos administrativos asignados a un Proceso determinado, de acuerdo al destino especificado para su adquisición.

@@ -1,0 +1,1 @@
+Artículo 25.—El Proceso de Servicios Generales podrá restringir el uso de vehículos administrativos en los casos que exista la posibilidad de realizar el viaje utilizando transporte público, sin que ello perjudique la efectividad y oportunidad del trabajo, y cuando su costo sea menor que los costos de operación en que incurriría la Municipalidad con el uso del vehículo municipal.

@@ -1,0 +1,1 @@
+Artículo 14.—El Proceso de Servicios Generales establecerá un control de consumo de combustible con referencia hecha al rendimiento de kilómetros por galón, de acuerdo a cada tipo de vehículo. Para fines de abastecimiento se utilizará el formulario “autorización retiro de combustible”, mismo que será entregado a los encargados de la provisión.

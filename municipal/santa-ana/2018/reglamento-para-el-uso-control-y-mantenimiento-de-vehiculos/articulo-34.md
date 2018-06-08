@@ -1,0 +1,1 @@
+Artículo 34.—En el caso de que se detecte anomalías en el uso de los vehículos como desvío del recorrido, sub-utilización de los equipos, largos periodos de inactividad, excesos de velocidad, o cualquier otra duda sobre la conducción de la unidad, se tomarán las medidas disciplinarias contra los conductores y se sancionarán de acuerdo a la gravedad de la falta.

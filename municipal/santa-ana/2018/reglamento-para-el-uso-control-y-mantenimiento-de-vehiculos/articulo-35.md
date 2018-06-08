@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Del conductor
+Artículo 35.—El conductor será el responsable del vehículo, durante el tiempo que lo tenga asignado, debiendo mantener y entregar el vehículo en las mismas condiciones en que lo recibió. Por eso; está obligado a revisar el estado general visible del vehículo antes de iniciar su uso, y reportar cualquier desperfecto al Proceso de Servicios Generales o Encargado de Proceso según la clasificación del vehículo, previo al inicio de su recorrido. De igual modo, al finalizar el recorrido, el conductor debe reportar los desperfectos que haya detectado durante el uso. De lo contrario; se le podría tener como el responsable del desperfecto que el siguiente conductor reporte.
+No podrán conducir vehículos oficiales, conductores no funcionarios de la municipalidad y que no cuenten con la licencia respectiva.

@@ -1,0 +1,2 @@
+Artículo 21.—Corresponde al Proceso de Servicios Generales gestionar todo lo relativo a la solicitud de servicios mecánicos y el pago de las correspondientes facturas, en el formato definido por la Administración.
+Para el trámite de pago de las facturas correspondientes se deberá contar con el visto bueno del chofer del vehículo en los casos de los vehículos y maquinaria con uso específico asignado.

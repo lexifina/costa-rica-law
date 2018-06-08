@@ -1,0 +1,1 @@
+Artículo 24.—Para lograr eficiencia en el uso de los vehículos administrativos, el Proceso de Servicios Generales podrá agrupar personas o materiales en un solo viaje, siempre que las circunstancias lo permitan, dando aviso oportuno a los solicitantes para lograr una adecuada coordinación del viaje.

@@ -1,0 +1,1 @@
+Artículo 27.—Los vehículos policiales son de uso exclusivo del Proceso de Seguridad y Vigilancia Comunal, por lo que no está permitido que sean conducidos por personal ajeno a dicho proceso, exceptuando al Proceso de Servicios Generales cuando se trate del traslado al mantenimiento mecánico.

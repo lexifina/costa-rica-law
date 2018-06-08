@@ -1,0 +1,1 @@
+Artículo 19.—El mantenimiento preventivo se realizará en forma periódica y programada cada 5000 km; y en el caso de los vehículos que por el modelo cuenten con garantías, se realizará con base en el manual de operación y el carnet emitido por la agencia, de acuerdo al kilometraje recorrido.

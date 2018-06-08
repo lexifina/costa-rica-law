@@ -1,0 +1,1 @@
+Artículo 13.—El libro control de ingreso, se trata de un libro a cargo del guarda de turno, en donde anotará el ingreso de los vehículos, que ocurra después de la jornada ordinaria de la institución, el asiento será firmado por el conductor junto con el guarda de turno.
