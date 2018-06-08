@@ -14,3 +14,4 @@ Reforma Reglamento para la selección y nombramiento del personal con cargo de d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-29 | la propia norma |
+| 2 | 2018-06-08 | Reglamento 0 (2018-06-08) |

@@ -1,6 +1,8 @@
 COLEGIO UNIVERSITARIO DE LIMÓN
-REGLAMENTO AUTÓNOMO DE ORGANIZACIÓN
-Y SERVICIO DEL CUNLIMÓN
+REGLAMENTO PARA LA SELECCIÓN Y NOMBRAMIENTO
+DEL PERSONAL CON CARGO DE DIRECTOR DEL
+CUNLIMÓN
+(Así reformado el párrafo anterior y publicado en La Gaceta N° 102 del 8 de junio de 2018)
 MODIFICACIONES
 Considerando:
 I.—Que el artículo 103 de la Ley General de la Administración Pública, faculta al superior jerárquico supremo a organizar la administración y la prestación de los servicios mediante la promulgación de reglamentos autónomos de organización y servicio.
@@ -94,6 +96,7 @@ Artículo 27.—Los participantes al concurso, podrán interponer los recursos d
 El recurso de revocatoria será interpuesto ante la Unidad de Recursos Humanos la cual resolverá dentro de los cinco días siguientes. De mantener su decisión o de haberse planteado ante la Decanatura con un informe sucinto y emitirá una resolución motivada, emplazando al apelante para que comparezca ante la Decanatura dentro del tercer día en defensa de sus derechos.
 La Decanatura resolverá lo que corresponda en un plazo de ocho días hábiles.
 Lo resuelto por la Decanatura dará por agota la vía administrativa.
-SE ACUERDA corregir la numeración de los artículos siguientes a partir del artículo 74 de esta modificación.
-Aprobado por el Consejo Directivo del Colegio Universitario de Limón, en sesión extraordinaria número 004-2018, del 01 de marzo del 2018.
+(Dejado sin efecto este párrafo y publicado en La Gaceta N° 102 del 8 de junio de 2018)
+Aprobado por el Consejo Directivo en sesión ordinaria N° 007-2018 del 09 de mayo de 2018.
+(Así reformado el párrafo anterior y publicado en La Gaceta N° 102 del 8 de junio de 2018)
 Publicado en el Diario Oficial La Gaceta número 067 del 18 de abril del 2018.
