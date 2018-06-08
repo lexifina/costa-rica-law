@@ -1,0 +1,4 @@
+COLEGIO UNIVERSITARIO DE LIMÓN
+En La Gaceta Nº-094 del 29 de mayo del 2018, se publicaron las modificaciones al Reglamento para la Selección y Nombramiento del Personal con cargo de Director del CUNLIMON, en donde por error se consignó como Modificaciones al Reglamento Autónomo de Organización y Servicio del CUNLIMON, siendo lo correcto: “Reglamento para la Selección y Nombramiento del Personal con cargo de Director del CUNLIMON”, de igual forma se consignó como fecha de aprobación de las modificaciones 01 de marzo del 2018, por parte del Consejo Directivo en sesión extraordinaria 001- 2018; siendo lo correcto “Aprobado por el Consejo Directivo en sesión ordinaria Nº007-2018 del 09 de mayo del 2018”
+Déjese sin efecto lo consignado por error, las disposiciones de modificar la numeración del reglamento a partir del artículo 74.
+Lo demás permanece incólume.
