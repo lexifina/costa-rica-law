@@ -1,0 +1,3 @@
+Artículo 29.—De los incumplimientos. El incumplimiento de los compromisos derivados de las actividades de capacitación o becas otorgadas o abandono de estas sin causa justificada, será considerado como faltas, de acuerdo a lo siguiente:
+a) En caso de no asistir a las actividades de capacitación aprobadas por la Municipalidad, deberá hacer la devolución de la totalidad del monto pagado por la Municipalidad para esa actividad.
+b) La Comisión de Becas y Capacitación podrá recomendar a la Alcaldía la suspensión de las becas concedidas, exigiendo el reintegro de las sumas giradas si el becario fuere expulsado del centro donde realiza sus estudios o si lo abandonara sin causa justificada, o si se negare a suministrar los datos que indique este reglamento.

@@ -1,0 +1,2 @@
+Artículo 28.—De los periodos para solicitar nuevas becas. La persona que haya sido favorecida con una beca de estudio, y que por causas imputables a ella, deje los estudios, no podrá solicitar una nueva beca, hasta que hayan transcurrido tres años desde el momento que termine de pagar la deuda por la beca otorgada.
+El motivo de dejar los estudios, será considerado por el superior inmediato en la Evaluación del Desempeño del periodo en que se dé el abandono de los estudios.

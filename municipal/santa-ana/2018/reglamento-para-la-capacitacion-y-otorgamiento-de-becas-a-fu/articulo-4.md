@@ -1,0 +1,1 @@
+Artículo 4º—Otorgamiento de Becas. El otorgamiento de las becas a los funcionarios municipales, se hará de acuerdo con las necesidades identificadas en los planes de capacitación o determinadas por el superior inmediato en la evaluación del desempeño y conforme a la disponibilidad presupuestaria.

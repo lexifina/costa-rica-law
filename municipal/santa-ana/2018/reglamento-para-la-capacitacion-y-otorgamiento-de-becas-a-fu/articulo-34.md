@@ -1,0 +1,1 @@
+Artículo 35.—De la presentación de la tesis de grado. En caso que el grado académico por el que opte el becario requiera presentar a la institución de estudios tesis de grado, deberá hacerlo a más tardar un año después de concluidos la totalidad de los estudios del plan de carrera propuesto inicialmente.

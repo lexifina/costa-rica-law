@@ -1,0 +1,1 @@
+Artículo 33.—De la salida del becario de la Municipalidad. En caso de renuncia o despido sin responsabilidad patronal dentro del periodo indicado en el Art 31, el beneficiario deberá reintegrar a la Municipalidad el monto de la beca más un 20% (veinte por ciento).

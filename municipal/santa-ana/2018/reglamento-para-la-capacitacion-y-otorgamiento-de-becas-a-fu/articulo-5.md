@@ -1,0 +1,2 @@
+Artículo 5º—Duración de las Becas. La beca se dará por los períodos indispensables para concluir el programa de estudios, presentar las pruebas o exámenes de aprobación y la sustentación de la tesis, si la hubiere.
+La Municipalidad podrá conceder becas para asistir a cursos de especialización o realizar estudios de postgrado dentro del país, siempre que exista una solicitud validada por parte del superior inmediato de quien solicita la beca en el que se plasme de manera evidente y manifiesta el interés institucional para la obtención de ese conocimiento.

@@ -1,0 +1,1 @@
+Artículo 41.—De las modificaciones al presente Reglamento. Cualquier proyecto de reforma de este Reglamento, deberá ser presentado por el Alcalde(sa), a consideración y aprobación del Concejo Municipal.

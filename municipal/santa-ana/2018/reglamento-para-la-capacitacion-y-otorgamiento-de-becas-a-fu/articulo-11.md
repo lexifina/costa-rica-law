@@ -1,0 +1,1 @@
+Artículo 12.—De la Evaluación y seguimiento de las actividades de capacitación. Toda actividad de capacitación debe estar sometida a evaluación y seguimiento por parte de la Comisión de Becas y Capacitación. El cumplimiento del Plan Anual de Capacitación será evaluado conforme al Plan Anual Operativo de cada Dirección.

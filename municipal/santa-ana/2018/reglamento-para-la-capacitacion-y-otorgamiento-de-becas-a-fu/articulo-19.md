@@ -1,0 +1,1 @@
+Artículo 20.—Del financiamiento. El financiamiento total o parcial para la participación de funcionarios en actividades de capacitación y la concesión de otras facilidades, queda sujeto a que exista disponibilidad presupuestaria para tal efecto.

@@ -1,0 +1,1 @@
+Artículo 19.—De las sesiones de la Comisión: La Comisión de Becas y Capacitación deberá elaborar un calendario con las fechas de reunión; según lo acuerde al inicio de sus funciones y comunicarlo a todo el personal para que puedan presentar sus solicitudes en tiempo.

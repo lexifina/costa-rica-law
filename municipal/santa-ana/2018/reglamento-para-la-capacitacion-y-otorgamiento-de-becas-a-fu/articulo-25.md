@@ -1,0 +1,3 @@
+Artículo 26.—Del informe final de los estudios. Al concluir los estudios la persona becada deberá presentar un informe detallado sobre los estudios realizados, a más tardar tres meses después del plazo en el cual el centro de estudios haya hecho entrega efectiva del título, adjuntar originales y copias de los títulos obtenidos y otros documentos que demuestran su desempeño.
+Deberá entregar los libros que haya obtenido por medio de la beca, un ejemplar de su tesis de grado o de los trabajos de graduación que haya realizado.
+La graduación en cualquier nivel o la obtención de título universitario, no le otorga a la persona becada, el derecho a una recalificación del puesto ocupado.

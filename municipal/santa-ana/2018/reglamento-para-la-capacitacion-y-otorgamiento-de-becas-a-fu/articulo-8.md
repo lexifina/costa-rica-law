@@ -1,0 +1,1 @@
+Artículo 9º—De los pagos de las becas. Los pagos, por el porcentaje que se apruebe, se harán directamente a la empresa o institución responsable de la capacitación, mediante forma idónea que garantice la transparencia de la transacción y atendiendo siempre las normas de control interno.

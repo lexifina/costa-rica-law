@@ -1,0 +1,1 @@
+Artículo 40.—De la custodia de los documentos. Todos los contratos suscritos entre la Municipalidad y los becarios, estarán bajo la custodia del Proceso de Recursos Humanos, debiendo constar una copia del contrato en el expediente, con la documentación que corresponda al trámite de cada beca.
