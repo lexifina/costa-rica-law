@@ -1,0 +1,1 @@
+Artículo 6º—El Alcalde definirá los puestos ocupacionales afectos a este régimen, para lo cual podrá solicitar la participación o resoluciones técnicas y profesionales de la oficina de Recursos Humanos.

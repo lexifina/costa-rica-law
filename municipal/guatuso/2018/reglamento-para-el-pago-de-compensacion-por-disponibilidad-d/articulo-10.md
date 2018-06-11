@@ -1,0 +1,1 @@
+Artículo 10.—La disponibilidad se define para el puesto y no para el servidor, por lo que de previa justificación, la Municipalidad podrá rescindirla o modificarla durante su vigencia, lo que deberá notificar al trabajador, no obstante, la compensación salarial que emane del contrato, se deberá entender como incorporada al salario de quien la reciba.

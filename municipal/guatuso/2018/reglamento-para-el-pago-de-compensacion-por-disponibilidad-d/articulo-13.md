@@ -1,0 +1,1 @@
+Artículo 13.—El personal que se acoja a este régimen, podrá renunciar comunicándolo con 1 mes de anticipación como mínimo, a la jefatura para su aprobación y la jefatura a su vez deberá informar inmediatamente al Departamento de Recursos Humanos, sin embargo, no podrá firmar otro contrato hasta que haya transcurrido un año.

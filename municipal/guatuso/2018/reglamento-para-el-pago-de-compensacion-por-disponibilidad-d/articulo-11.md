@@ -1,0 +1,1 @@
+Artículo 11.—El contrato será firmado por la Alcaldía y el trabajador municipal y se entregara una copia al servidor público municipal y la otra quedara archivada en el expediente que custodia el Departamento de Recursos Humanos

@@ -1,0 +1,11 @@
+Artículo 18.—Se establece como modelo de uso obligado de contrato para la el pago de compensación por disponibilidad el siguiente:
+CONTRATO
+Nosotros, _____________, (calidades). En su condición de Alcaldesa Municipal de la Municipalidad de Guatuso, con cédula jurídica tres cero catorce cero cuarenta y dos y sesenta y siete (3-014-042067). Denominado en lo sucesivo en este contrato como la Municipalidad, y el (la) señor (a) ____________ denominado en lo sucesivo en este contrato como trabajador y con fundamento en el Reglamento para el pago de compensación por disponibilidad aprobado por el Concejo Municipal según acuerdo número______ de la sesión ordinaria N°______, celebrada el día _______ publicada en La Gaceta N°______ del ________ convenimos en suscribir el presente contrato de compensación por disponibilidad, el cual se regirá por las siguientes cláusulas.
+Primera: El trabajador se compromete a cumplir fielmente las disposiciones establecidas en el Reglamento para el pago de compensación por disponibilidad, así como a estar disponible eventualmente a realizar las funciones, fuera de la jornada ordinaria de trabajo o en días inhábiles, si así lo requiere la Municipalidad para el cabal cumplimiento de sus fines, las funciones a desempeñar son las que se detallan a continuación.
+-----
+Segunda: La Municipalidad se compromete a cancelar al trabajador un ___% sobre el salario base por concepto de disponibilidad, conforme al requerimiento estimado de tiempo que usualmente se va a necesitar del servidor durante el mes
+Tercera: La Municipalidad velará por el cumplimiento de las obligaciones que se señalan en el presente contrato, sin perjuicio de las facultades de inspección que podría realizar la Auditoria Interna cuando así lo juzgue conveniente.
+Cuarta: El servidor público municipal se compromete bajo juramento a cumplir estrictamente con las estipulaciones del Reglamento para el pago de compensación por disponibilidad. Que regula este contrato.
+Quinto: El presente contrato rige a partir del día siguiente en que es aceptado y firmado por las partes.
+Sexto: La vigencia del presente contrato es de un año.
+En fé de lo anterior, lo aceptamos y firmamos en el Cantón de Guatuso, a las _____ del _____ de ____ del año____.

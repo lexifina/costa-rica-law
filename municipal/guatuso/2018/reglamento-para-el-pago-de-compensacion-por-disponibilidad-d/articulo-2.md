@@ -1,0 +1,1 @@
+Artículo 2º—El objetivo primordial de la disponibilidad, es contar en cualquier momento con el personal técnicamente calificado, para tomar decisiones de carácter urgente e impedir que se afecte la continuidad de los servicios públicos que brinda la Municipal, tal y como lo plantea el artículo 4 de la Ley General de la Administración Pública

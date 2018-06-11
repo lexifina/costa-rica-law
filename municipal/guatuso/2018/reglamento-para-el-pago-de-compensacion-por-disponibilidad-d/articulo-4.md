@@ -1,0 +1,1 @@
+Artículo 4º—Al servidor municipal, que se encuentre sometido al régimen de disponibilidad y sea requerido para presentarse a realizar alguna actuación propia de sus funciones fuera del horario municipal por motivo del contrato de disponibilidad, se le pagarán horas extras por encontrarse incluido dentro de la compensación de la disponibilidad.
