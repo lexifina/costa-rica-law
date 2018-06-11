@@ -1,0 +1,3 @@
+CAPÍTULO II
+Razón de apertura de libros
+Artículo 4º—Libros sujetos a la apertura: La razón de apertura deberá tramitarse para los libros de actas, contables u otros que legal o reglamentariamente correspondan, para lo cual cada dependencia solicitante, considerando sus propias particularidades, determinará los libros que debe llevar, así como la forma en que los llevará. Lo anterior, sin perjuicio de aquellos casos en que, a criterio del Auditor Interno, se deba llevar otra clase de libro.

@@ -1,0 +1,1 @@
+Artículo 3º—Naturaleza de la autorización de libros: La autorización de apertura de libros de contabilidad, actas u otros, es un requisito de validez de las actuaciones de la Administración Activa, tendiente a proporcionar una garantía razonable de la confiabilidad y oportunidad de la información que en ellos se incorpore.
