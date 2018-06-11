@@ -1,1 +1,0 @@
-Artículo 2º—Deróguese el Decreto Ejecutivo número 40826-H del 7 de diciembre de 2017, publicado en el Alcance número 316 a La Gaceta número 243 del 22 de diciembre de 2017, a partir de la vigencia del presente decreto.
