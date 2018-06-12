@@ -1,1 +1,2 @@
-Artículo 11º—Documentos que acompañan a la liquidación. Junto con el formulario de liquidación el síndico o regidor debe presentar las facturas por concepto de hospedaje.
+Artículo 11º—No presentación de cuentas. No se tramitará viático alguno a ningún regidor o síndico que tengan más de una liquidación pendiente, y se considerará nula o extemporánea la liquidación presentada después de los ocho días de realizada la gira.
+(En acta N° 104 del 12 de junio de 2018, se ordenó derogar el numeral 11 original y correr la numeración de los restantes artículos, por lo que el numeral 12 paso a ser el 11.)

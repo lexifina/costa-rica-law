@@ -1,1 +1,1 @@
-Artículo 14º—Vigencia. Rige a partir de su publicación
+Artículo 14º— (Nota de Sinalevi: El texto de este artículo se puede encontrar en el artículo 13, ya en acta N° 104 del 12 de junio de 2018, se ordenó derogar el numeral 11 original y correr la numeración de los restantes artículos).
