@@ -15,3 +15,4 @@ Reglamento de Organización y Funcionamiento del Comité de Deportes y Recreaci�
 | --- | --- | --- |
 | 1 | 2017-12-15 | la propia norma |
 | 2 | 2018-02-06 | Reglamento municipal 97 (2018-02-06) |
+| 3 | 2018-06-12 | Reglamento municipal 111 (2018-06-12) |
