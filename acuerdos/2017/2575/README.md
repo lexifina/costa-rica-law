@@ -14,3 +14,4 @@ Procedimientos y protocolos institucionales del Ministerio de Salud
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-12-20 | la propia norma |
+| 2 | 2018-06-12 | Acuerdo 1240 (2018-06-12) |
