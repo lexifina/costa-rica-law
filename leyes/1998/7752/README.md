@@ -1,6 +1,6 @@
 # Creación del Instituto Policial Parauniversitario
 
-Ley N° 7752 del 1998-02-23. SINALEVI, ficha 44640: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=44640&param2=47061&param3=1>.
+Ley N° 7752 del 1998-02-23. SINALEVI, ficha 44640: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=44640&param2=112618&param3=1>.
 
 Publicada en La Gaceta N° 62 del 1998-03-30.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1998-03-30 | Ley 7752 | 1998-02-23 |
 | 2 de 3 | 1998-03-30 | SINALEVI | 1998-02-23 |
+| 3 de 3 | 2018-06-13 | Ley 9552 | 2018-05-24 |
