@@ -1,0 +1,1 @@
+Artículo 2º—Naturaleza. La Junta de Relaciones Laborales es un órgano bipartito, paritario y permanente, en el que se integran la Administración de JASEC y la representación de los trabajadores. Actuará con absoluta independencia de criterio y equilibrio de intereses por parte de quienes la integren.
