@@ -1,0 +1,12 @@
+MUNICIPALIDAD DE TIBÁS
+REGLAMENTO DE OBRA MENOR
+EN EL CANTÓN DE TIBÁS
+El Concejo Municipal del Cantón de Tibás en el uso de las facultades que le confieren los artículos 169 y 170 de la Constitución Política, artículos 4 inciso a), 13 inciso c) y 43 del Código Municipal, Ley 7794 del 30 de abril de 1998, aprobó en la sesión ordinaria 102 celebrada el 10 de abril del 2018 este Reglamento de Obras Menores en el Cantón de Tibás.
+Considerando:
+I.—Existe una desactualización en la de Ley de Construcciones, donde señala que “toda” construcción que se ejecute en nuestro país, requiere de una licencia municipal, o sea de una autorización cuando la obra supere los 5000 colones.
+II.—La renovación y cambio permanente en el uso del espacio construido, tanto interno como externo de las casas, edificaciones, y a que esto conlleva al mejoramiento de sus acabados, de las condiciones de seguridad física y de la capacidad adaptativa de los mismos, en tareas de rehabilitación/restauración, mantenimiento, así como preservación/salvaguarda del espacio y entorno construido, considerado dentro del concepto de obra menor.
+III.—Que se dio una Reforma a la Ley de Construcciones (Ley N° 833) mediante la Ley N° 9482 del 26 de setiembre del 2017 en los artículos 33, 41 y 83, donde establece que las Municipalidades deben elaborar un “Reglamento Municipal de Obra Menor”, con el fin de incidir de manera eficaz en el control urbano y simplificación del trámite administrativo, buscando asimismo, minimizar la ejecución descontrolada de obras que impactan por el sinergismo de las mismas, la calidad urbana y así mejorar el marco normativo.
+IV.—En este contexto se crea el reglamento interno de construcciones menores, con la finalidad de lograr que el contribuyente se acerque a gestionar los trámites de permiso, obteniendo de esta forma que se garantice el control y la supervisión de cualquier construcción que se realice por parte de la Municipalidad.
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Objetivo. Normar y velar por el control y la supervisión de cualquier construcción menor a nivel local que se realice en su jurisdicción sin perjuicio de las facultades que las leyes conceden en esta materia a otros órganos administrativos, con el fin de lograr la seguridad, salubridad, protección ambiental y ornato de las estructuras o edificaciones. Aquellos aspectos en materia de construcción no regulados en el presente reglamento, se regirán por la legislación nacional vigente.

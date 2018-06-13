@@ -1,0 +1,1 @@
+Artículo 9º—El munícipe deberá presentar los requisitos documentales vigentes al Departamento de Control Constructivo con el objeto de expedir la licencia constructiva respectiva, lo cual quedará exento del pago del permiso constructivo.
