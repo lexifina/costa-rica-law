@@ -1,5 +1,8 @@
-Artículo 69°—Período de prueba
-Las personas que ingresen al servicio policial solo estarán cubiertas por el presente Estatuto, luego de cumplir, satisfactoriamente, con un período de prueba de seis meses, contados a partir de la fecha de su nombramiento. Este período de prueba rige para todos los que inicien el contrato laboral y también, para todos los ascensos y traslados, en cuyo caso ese período se reducirá a tres meses.
+Artículo 69- Período de prueba
+El período de prueba tendrá una duración de un año, el cual dará inicio a partir de la conclusión y la aprobación del curso básico policial correspondiente. Este período de prueba rige para todos los que inicien el contrato laboral y, también, para todos los ascensos y los traslados, en cuyo caso ese período se reducirá a tres meses.
+Dentro del período de prueba, en caso de no ser considerado idóneo, el funcionario podrá ser cesado de sus funciones con responsabilidad patronal mediante acuerdo ejecutivo, conforme a lo que establece el inciso 1) del artículo 140 de la Constitución Política.
+Una vez concluido el periodo de prueba, y habiendo cumplido con todos los requisitos legales y reglamentarios establecidos en la normativa, será considerado policía de carrera y adquirirá la estabilidad en el puesto.
 (Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 53 al 56 actual)
 (Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 56 al 63 actual)
 (Así corrida su numeración por el artículo 1 de la Ley de Creación de la Policía Escolar y de la Niñez, N° 8449 del 14 de junio de 2005, que lo traspaso del antiguo artículo 63 al 69 actual)
+(Así reformado por el artículo 29 de la ley Creación de la Academia Nacional de Policía, N° 9552 del 24 de mayo del 2018)
