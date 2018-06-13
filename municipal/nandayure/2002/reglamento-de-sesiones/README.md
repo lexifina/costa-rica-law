@@ -17,3 +17,4 @@ Reglamento de Sesiones
 | 2 | 2012-01-25 | Reglamento municipal 91 (2012-01-25) |
 | 3 | 2015-02-16 | Reglamento municipal 251 (2015-02-16) |
 | 4 | 2018-05-30 | Reglamento municipal 109 (2018-05-30) |
+| 5 | 2018-06-13 | Reglamento municipal 111 (2018-06-13) |
