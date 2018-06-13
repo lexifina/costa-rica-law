@@ -1,0 +1,1 @@
+ARTÍCULO 6- El ingreso a los procesos de formación, capacitación y especialización policial se hará según los requisitos que determinen la Ley N.º 7410, Ley General de Policía, de 26 de mayo de 1994, y el reglamento de la presente ley.

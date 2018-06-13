@@ -1,0 +1,1 @@
+ARTÍCULO 13- La Academia contará con el personal policial necesario para el desarrollo de sus funciones y competencias, y garantizará la seguridad de sus instalaciones y acciones operativas, sin perjuicio de poder contar con el personal administrativo y los profesionales de diferentes áreas que coadyuven en el desarrollo de estas.

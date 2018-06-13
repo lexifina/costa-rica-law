@@ -1,0 +1,3 @@
+CAPITULO II
+INGRESO AL SISTEMA EDUCATIVO POLICIAL Y ACTUALIZACIÓN DE ESTE
+ARTICULO 5- Una vez superado el procedimiento de reclutamiento y selección, el oferente de primer ingreso será nombrado en una plaza policial básica con todas las obligaciones y los derechos que ello implica. Se procederá a su juramentación e inmediatamente se le incorporará a la Academia Nacional de Policía para que realice el curso técnico básico policial; curso que será impartido bajo la modalidad presencial y de forma continua hasta su conclusión. La no aprobación de una de sus asignaturas o de la nota de conducta establecida para este será motivo de cese del funcionario, conforme a lo dispuesto en el inciso 1) del numeral 140 de la Constitución Política.
