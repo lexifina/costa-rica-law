@@ -1,0 +1,2 @@
+ARTÍCULO 15- A solicitud del director general de la Academia, en estricto apego a la normativa que rige los procesos de contratación administrativa y mediante acuerdo, se podrá contratar profesionales para impartir cursos cuyo nivel de especialización así lo requieran.
+También, podrá nombrar instructores ad honorem con este propósito, para lo cual se deberá tomar en cuenta al menos la experiencia profesional y pedagógica, así como su actitud moral.

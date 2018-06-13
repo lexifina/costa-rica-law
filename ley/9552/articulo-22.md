@@ -1,0 +1,3 @@
+CAPÍTULO V
+RÉGIMEN INTERNO DE DISCIPLINA
+ARTICULO 22- Todo el personal perteneciente al régimen policial, mientras se encuentre realizando funciones o recibiendo alguna acción de formación, capacitación, especialización o de otra índole en la Academia Nacional de Policía, quedará sometido, en sus actos, a las disposiciones que contempla la presente ley, la Ley N.º 7410, Ley General de Policía, de 26 de mayo de 1994, y sus reformas, el Reglamento Interno y de Servicio de la Academia Nacional de Policía, el Reglamento de Servicio de los Cuerpos Policiales adscritos al Ministerio de Seguridad Pública y demás disposiciones complementarias o supletorias.

@@ -1,0 +1,1 @@
+ARTÍCULO 21- El Ministerio de Seguridad Pública queda facultado para adquirir en las diferentes regiones del país, previo cumplimiento de los procedimientos de contratación administrativa, los bienes perecederos que sean necesarios para la alimentación de todo el personal y el estudiantado de la Academia Nacional de Policía.
