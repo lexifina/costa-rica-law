@@ -1,0 +1,1 @@
+Artículo 18.—Transparencia y Rendición de Cuentas: La Junta Directiva deberá establecer los mecanismos para fomentar la transparencia y rendición de cuentas a los Sujetos Interesados, por lo que emitirá o modificará la normativa necesaria para ello, en temas como comunicación de la información, conflictos de interés, servicio al cliente y otros.

@@ -1,0 +1,1 @@
+Artículo 24.—De las sede de las sesiones de la junta directiva: Las sesiones de Junta Directiva deberán tener lugar en forma ordinaria en el domicilio social de la empresa, excepto cuando la junta directiva haya acordado previamente celebrar sus sesiones en otro recinto en atención de las normas de economía, simplicidad, celeridad, eficiencia o conveniencia.

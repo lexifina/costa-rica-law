@@ -1,0 +1,1 @@
+Artículo 28.—De los acuerdos firmes: Los acuerdos serán firmes después de que el acta correspondiente sea aprobada, salvo que en la misma sesión que se conozcan les sea otorgada firmeza o bien se postergue la firmeza para la próxima sesión.

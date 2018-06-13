@@ -1,0 +1,1 @@
+Artículo 22.—Carácter privado de las sesiones de la junta directiva: Las sesiones de la junta directiva serán siempre privadas, pero la junta podrá autorizar, acordándolo así por unanimidad de sus miembros presentes, que tengan acceso a ellas ciertas personas, concediéndoles o no el derecho participar en las deliberaciones con voz pero sin voto.

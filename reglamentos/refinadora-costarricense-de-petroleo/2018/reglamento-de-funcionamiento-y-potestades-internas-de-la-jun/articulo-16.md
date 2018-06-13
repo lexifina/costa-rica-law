@@ -1,0 +1,2 @@
+Artículo 16.—Cumplimiento de la Normativa: La Junta Directiva deberá garantizar que la Empresa cumple con las políticas, códigos y otras disposiciones internas aprobadas por la Junta Directiva, y con los planes de continuidad del negocio aprobados.
+La Gerencia General deberá presentar un informe anual, o con otra periodicidad si la situación lo amerita, acerca del cumplimiento de ese marco normativo interno y el desarrollo de los planes de continuidad del negocio.

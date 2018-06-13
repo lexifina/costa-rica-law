@@ -1,0 +1,3 @@
+Artículo 15.—Gestión del Riesgo: La Junta Directiva deberá aprobar el marco de gestión de riesgos, que incluye: políticas, estrategias y normativa interna para el funcionamiento del sistema de valoración de riesgos.
+Asimismo, deberá aprobar la Declaración del Apetito de Riesgo, establecer los mecanismos de aprobación requeridos para las desviaciones de la estrategia de gestión de riesgos o de los riesgos tomados en exceso con respecto a la Declaración del Apetito de Riesgo.
+La Junta Directiva deberá analizar y valorar el informe semestral de Control Interno y Valoración de Riesgos, incluyendo los indicadores de riesgo, y adoptar el conjunto de acciones estratégicas para su mitigación.
