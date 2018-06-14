@@ -13,3 +13,4 @@ Adición a la circular N° 171-17 “Listado de servicios del Departamento de Ci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-04-18 | la propia norma |
+| 2 | 2018-06-14 | Circular 70 (2018-06-14) |
