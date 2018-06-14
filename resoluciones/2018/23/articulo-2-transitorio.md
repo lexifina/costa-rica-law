@@ -1,0 +1,3 @@
+Transitorio II. Se ordena a la Subgerencia de Valoraciones de la Administración Tributaria de San José Oeste, que en aquellos casos en que haya emitido el informe o ficha técnica pero no han sido remitidos a la Subgerencia del Servicio al Contribuyente de esa Administración Tributaria, continúe con el procedimiento establecido en el artículo 2° de esta resolución.
+Aquellos casos que hayan sido presentados por los sujetos pasivos con anterioridad a la entrada en vigencia de la presente resolución y que no han sido atendidos, seguirán el procedimiento establecido en el artículo 2° de este instrumento normativo.
+Publíquese.
