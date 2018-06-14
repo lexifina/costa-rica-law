@@ -1,0 +1,1 @@
+Artículo 3º—En ambas condiciones dispuestas en los artículos 1 y 2, ingresada la solicitud y completados los requisitos, la Dirección de Agua del MINAE realizará inspección e informe técnico de recomendación y procederá mediante resolución razonada a conferir la autorización o permiso correspondiente, según lo dispuesto en el Decreto 35669-MINAE y la presente resolución.
