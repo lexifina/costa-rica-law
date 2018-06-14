@@ -14,3 +14,4 @@ Listado de servicios del Departamento de Ciencias Forenses para garantizar la ce
 | --- | --- | --- |
 | 1 | 2017-10-30 | la propia norma |
 | 2 | 2018-04-18 | Circular 43 (2018-04-18) |
+| 3 | 2018-06-14 | Circular 70 (2018-06-14) |
