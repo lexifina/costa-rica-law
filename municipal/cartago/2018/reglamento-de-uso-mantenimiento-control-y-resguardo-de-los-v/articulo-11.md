@@ -1,0 +1,1 @@
+Artículo 11.—De la circulación de vehículos fuera del país. Ningún vehículo del CCDRC podrá circular fuera del territorio nacional sin la autorización escrita de la Junta Directiva y la respectiva autorización de salida del país extendida por el Registro Público.

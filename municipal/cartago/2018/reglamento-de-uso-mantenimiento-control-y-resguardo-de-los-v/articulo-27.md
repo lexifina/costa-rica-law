@@ -1,0 +1,1 @@
+Artículo 27.—Condenatoria a terceras personas. En el caso de que se condene a terceras personas como consecuencia de un accidente de tránsito, la dirección administrativa, en coordinación con la asesoría legal del CCDRC, instruirá las gestiones necesarias para que se proceda a la ejecución de sentencia en sede judicial.

@@ -1,0 +1,2 @@
+Artículo 22.—Del arreglo extrajudicial. En caso de accidentes con vehículos oficiales se prohíbe a la persona conductora efectuar arreglos extrajudiciales por sí sola. En caso de que todos los involucrados en una colisión deseen llegar a un arreglo o conciliación, deberán apersonarse o comunicarse con la Dirección Administrativa, para efectuar las gestiones correspondientes.
+La Dirección Administrativa deberá velar porque en las conciliaciones o arreglos extrajudiciales se proteja adecuadamente el patrimonio y los intereses del CCDRC.

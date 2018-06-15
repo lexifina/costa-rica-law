@@ -1,0 +1,1 @@
+Artículo 34.—De la definición de controles internos. La Junta Directiva y la Dirección Administrativa serán responsables de proponer o definir las normas y procedimientos de control interno adicionales que estimen necesarias, tendientes a lograr un uso adecuado de los vehículos.

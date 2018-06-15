@@ -1,0 +1,3 @@
+Artículo 4º—Clasificación de los vehículos. Para efectos de este reglamento, los vehículos del CCDRC se clasifican en:
+a. Vehículos de uso administrativo general. Destinados a brindar los servicios regulares de transporte de las diferentes unidades ejecutoras, en sus diferentes programas y servicios.
+b. Vehículos de uso administrativo microbuses. Destinados a brindar los servicios de transporte colectivo de personas directamente relacionadas con los programas y servicios del CCDRC, en labores y actividades que le son propias a la entidad. Esta categoría de vehículos estará sometida a las regulaciones especiales para vehículos de transporte colectivo vigentes.

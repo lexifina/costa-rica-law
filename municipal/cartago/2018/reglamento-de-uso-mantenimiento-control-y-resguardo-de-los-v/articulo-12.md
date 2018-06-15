@@ -1,0 +1,8 @@
+CAPÍTULO I
+De las personas usuarias de los servicios de transporte
+Artículo 12.—De las personas usuarias de los servicios de transporte. Son usuarios y usuarias de los servicios de transporte institucional las siguientes personas:
+a. Los funcionarios y funcionarias de la institución con nombramientos en propiedad o interino en el ejercicio de sus cargos y con el carné que los acredite como tales.
+b. Las personas miembros de la junta directiva del CCDRC. La autorización expresa para el uso del servicio será extendida por la Dirección Administrativa.
+c. Los funcionarios y funcionarias de otras instituciones públicas o privadas en el ejercicio de sus cargos, que se encuentren participando, en virtud de convenios establecidos al efecto, dentro de los programas y servicios del CCDRC, que requieran de medio de transporte para realizar diligencias oficiales de interés institucional, siempre y cuando porten carné de identificación de la institución a la cual pertenecen o cualquier otro tipo de identificación, debidamente extendida para los efectos correspondientes. La autorización expresa para el uso del servicio será extendida por la Dirección Administrativa.
+d. Los destinatarios y destinatarias de los servicios de la institución que requieran ser transportados en ocasión de asuntos oficiales del CCDRC, siempre y cuando porten la autorización expresa extendida para cada caso por la Dirección Administrativa.
+En casos de necesidad la Junta Directiva o la persona titular de la Dirección Administrativa podrán dar la autorización verbal para transportar personas, funcionarias o no, por el medio tecnológico disponible, asumiendo la responsabilidad de la autorización.

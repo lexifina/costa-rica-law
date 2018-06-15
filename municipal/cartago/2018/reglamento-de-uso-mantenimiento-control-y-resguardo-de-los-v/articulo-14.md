@@ -1,0 +1,1 @@
+Artículo 14.—De la autorización de la persona conductora colaboradora. Tratándose de funcionarios o funcionarias que se ofrezcan para colaborar en la conducción de vehículos oficiales, estos requerirán autorización previa de la Dirección Administrativa.

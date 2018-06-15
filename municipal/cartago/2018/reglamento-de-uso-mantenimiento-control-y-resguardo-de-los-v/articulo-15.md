@@ -1,0 +1,2 @@
+Artículo 15.—Conducción de vehículos sin autorización. El funcionario o funcionaria que conduzca un vehículo del CCDRC sin estar debidamente autorizado, incurrirá en responsabilidad disciplinaria, para lo cual se deberá comunicar lo que corresponda a la Dirección Administrativa, a fin de que eleve a la Junta Directiva la solicitud de inicio de una investigación preliminar.
+Igual responsabilidad tendrá quien, teniendo autoridad, permita o consienta que personas funcionarias o terceras no autorizadas conduzcan dichos vehículos.
