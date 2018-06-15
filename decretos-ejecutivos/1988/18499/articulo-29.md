@@ -1,10 +1,8 @@
-Artículo 29.-Para la adjudicación de una beca, se tomará en cuenta los factores que a continuación se indica, con base en ellos se establece la calificación de los concursantes.
+Artículo 29.—De conformidad con lo indicado en el anexo de este Reglamento, para la adjudicación de una beca, licencia o facilidad de capacitación y/o formación, se tomará en cuenta los factores que a continuación se indican, con base en ellos se establece la calificación de los concursantes.
 a) Formación académica.
-b) Promedio de calificaciones.
-c) Experiencia específica.
-d) Calificación de servicio.
-e) Factores científicos.
-f) Antigüedad.
-g) Permanencia en el puesto.
-h) Edad.
-i) Estudio de expediente.
+b) Experiencia.
+c) Calificación.
+d) Factores generales específicos.
+e) Antigüedad.
+f) Estudio de expediente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41280 del 15 de junio de 2018)

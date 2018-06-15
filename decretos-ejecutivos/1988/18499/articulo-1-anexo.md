@@ -1,9 +1,3 @@
 ANEXO 1
-Porcentaje | Tabla | Esquema general de evaluación de aspirantes | Observaciones
-25% | A Formación académica | 2 puntos por cada año completo de enseñanza media. 4 puntos por cada año completo de enseñanza superior que tenga relación con el cargo desempeñado 5 puntos por la tesis, examen de grado u otra investigación que le confiere el título de licenciado 1 punto por cada año completo aprobado en enseñanza superior (otra carrera diferente) |
-15% | B Experiencia | 1 punto por cada año cumplido en la categoría más alta de una clase (a la cual se refiere la beca) ½ punto por cada año en el grado de clase (hasta 15 puntos). | No se calificará experiencia en otro campo al cual no se refiere la beca.
-5% | C CALIFICACIÓN | 5% Excelente 4% Muy bueno 2% Satisfactorio 0% Deficiente | Si no hay calificación aplicar Estatuto de Servicio Civil 2%.
-15% | Factores generales específicos | Conocimiento de idioma extranjero específico de la beca *Publicaciones realizadas (afines a su labor). *Servicios brindados: Seminarios, conferencias, etc. *Otros que se estipula en el concurso. |
-15% | E Antigüedad | 1 punto por cada año de servicio en el Ministerio |
-10% | Edad E | 25 años..10% 35 años ..5% aplicar ½ punto por cada año 45 años …0% entre los intervalos siguiendo la tendencia | Amonestaciones: 12 a 14% como intervalo para 3 amonestaciones o sea 1% c/u en el año inmediato anterior, computado a partir del cierre del concurso
-15% | G Estudio del expediente | 15% libre 12% amonestación 9% suspensión A 6% suspensión B 3% suspensión C 0% falta muy grave | 0,5% para el año anterior 0,25% para el año trasanterior 0% para tres o más Suspensión A: menos de una semana 0,75% por c/día de suspensión intervalo de 9 a 11% incluyendo años anteriores Suspensión B: una semana de suspensión, Suspensión C: dos semanas. Falta muy grave: más de 2 semanas de suspensión o cambio de sanción en sustitución de despido.
+[imagen]
+(Así reformado por el artículo 3° del decreto ejecutivo N° 41280 del 15 de junio de 2018)

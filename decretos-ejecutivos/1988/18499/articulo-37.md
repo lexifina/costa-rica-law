@@ -1,1 +1,3 @@
-Artículo 37.-(Nota de Sinalevi: En la publicación de este decreto ejecutivo no aparece este artículo. No obstante se ha creado el mismo pero sin texto porque el sistema exige una numeración consecutivo)
+Artículo 37.Si el funcionario con impedimento comprobado es uno de los miembros del comité, su superior así lo declarará ordenando que se nombre un miembro suplente por parte de quien de quien corresponda para que conozca y resuelva conjuntamente con los otros integrantes el caso particular que se trate.
+La designación del miembro suplente deberá hacerse dentro de los tres días hábiles siguientes a la fecha en que se dictó la resolución.
+(Corrida la numeración por el artículo 2° del decreto ejecutivo N° 41280 del 15 de junio de 2018, que lo traspaso del antiguo artículo 38) al 37). Lo anterior porque en la publicación original de del presente reglamento no se publicó el numeral 37)

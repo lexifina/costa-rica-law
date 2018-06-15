@@ -14,3 +14,4 @@ Reglamento para la Adjudicación de Becas, Licencias o Facilidades de Capacitaci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-10-21 | la propia norma |
+| 2 | 2018-06-15 | Decreto Ejecutivo 41280 (2018-06-15) |

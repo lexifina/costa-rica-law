@@ -1,3 +1,2 @@
-CAPITULO IX
-Disposiciones finales
-Artículo 39.-La concesión de permisos sin goce de sueldo no procede ante la existencia de compromisos contractuales contraídos por los funcionarios en virtud de su participación en programas de adiestramiento, salvo en los casos en que expresamente se hayan convenido la posibilidad de que los servicios se presten dentro de las dependencias del Poder Ejecutivo o en las demás instituciones del Estado.
+Artículo 39.-Los funcionarios sancionados con corrección disciplinaria de más de dos semanas de suspensión, no podrán concursar para obtener becas dentro de los dos meses siguientes a la fecha en que se les haya sido impuesta la sanción.
+(Corrida la numeración por el artículo 2° del decreto ejecutivo N° 41280 del 15 de junio de 2018, que lo traspaso del antiguo artículo 40) al 39). Lo anterior porque en la publicación original del presente reglamento no se publicó el numeral 37)

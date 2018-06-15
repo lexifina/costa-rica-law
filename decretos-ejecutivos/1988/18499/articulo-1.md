@@ -9,11 +9,11 @@ Considerando:
 3°.-Que es necesaria una adecuada y justa política en la concesión de becas y otras facilidades de adiestramiento para los empleados del Ministerio de Gobernación y Policía.
 Por tanto,
 DECRETAN:
+Reglamento para la Adjudicación de Becas, Licencias o Facilidades de Capacitación y/o Formación a Personas Funcionarias del Ministerio de Gobernación y Policía(*)
+(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 41280 del 15 de junio de 2018)
 El siguiente,
-Reglamento para la Adjudicación de Becas
-al personal
-del Ministerio de Gobernación y
-Policía
 CAPITULO I
 Disposiciones generales
-Artículo 1°.-Se establece el presente articulado para normar la adjudicación de becas al personal y la sección de candidatos para participar en todos los cursos y eventos análogos internos, nacionales y en el exterior auspiciados o en que participe el Ministerio de Gobernación. Estas normas fomentan la capacitación y aseguran un sistema de participación igualitaria entre todos los funcionarios, dotando a la institución de los mecanismos adecuados para el logro eficaz y eficiente de sus objetivos.
+Artículo 1º—Se establece el presente articulado para normar la adjudicación de becas, licencias o facilidades de capacitación y/o formación de personas funcionarias del Ministerio de Gobernación y Policía y la selección de personas candidatas para participar en los cursos y eventos análogos internos, nacionales y en el exterior auspiciados o en que participe el Ministerio de Gobernación y Policía. Para la adjudicación de cualquier tipo de dichas becas prevalecerá siempre la conveniencia institucional.
+Estas normas fomentan la capacitación y aseguran un sistema de participación igualitaria entre todos los funcionarios, dotando a la institución de los mecanismos adecuados para el logro eficaz y eficiente de sus objetivos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41280 del 15 de junio de 2018)

@@ -1,9 +1,9 @@
 CAPITULO II
-Artículo 5°-Créase un Comité‚ de Becas Permanentes encargado de velar por el cumplimiento de este reglamento, y estar integrado de la siguiente manera:
-a) Un delegado de la Dirección General de Servicio Civil o en su defecto un representante del Departamento Legal del Ministerio.
-b) Un delegado del Ministro de Gobernación.
-c) Un representante de la Dirección de la Guardia de Asistencia Rural.
-d) Un representante de la Dirección Nacional de Comunicaciones.
-e) Un representante de la Imprenta Nacional.
-f) Un representante de la Dirección Nacional de Desarrollo de la Comunidad.
-g) Un representante de la Dirección General de Migración y Extranjera.
+Artículo 5º—Créase un Comité de Becas Licencias o Facilidades de Capacitación y/o Formación de Personas Funcionarias del Ministerio de Gobernación y Policía, encargado de velar por el cumplimiento de este reglamento, estará integrado de la siguiente manera:
+A) La persona que ocupe el cargo de: Ministro de Gobernación y Policía
+B) La persona que ocupe el cargo de: Jefe de Recursos Humanos
+C) La persona que ocupe el cargo de: Oficial Mayor
+D) La persona que ocupe el cargo de: Director de la Asesoría Jurídica
+E) La persona que ocupe el cargo de: Planificador Institucional
+Todos los integrantes de este comité podrán nombrar a un representante.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41280 del 15 de junio de 2018)
