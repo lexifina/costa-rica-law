@@ -1,0 +1,1 @@
+Artículo 11. Fiscalización de actuaciones: El BANHVI se reserva el derecho de fiscalizarlas actuaciones vinculadas a la aplicación de las presentes disposiciones, especialmente cuando se deban rectificar errores materiales o de hecho y los aritméticos.

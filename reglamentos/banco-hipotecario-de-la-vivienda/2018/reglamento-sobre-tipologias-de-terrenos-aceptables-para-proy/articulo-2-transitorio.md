@@ -1,0 +1,3 @@
+Transitorio dos: Las solicitudes de financiamiento que a la fecha de publicación se encuentren en trámite en las entidades autorizadas, se utilizarán para calibrar la metodología expuesta, la cual se someterá a revisión conforme lo indicado en el artículo 13del presente reglamento.»
+II. Comuníquese a la Contraloría General de la República, para lo que corresponda en cuanto a las disposiciones 4.4 y 4.8 del informe DFOE-EC-IF-12-2015 “Auditoría de carácter especial sobre el control que realiza el BANHVI a las entidades autorizadas del Sistema Financiero Nacional de la Vivienda”.
+Acuerdo Unánime y Firme.-”

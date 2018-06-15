@@ -1,0 +1,1 @@
+Transitorio uno: Las presentes disposiciones rigen a partir de la fecha de su publicación en el Diario Oficial La Gaceta, sin afectar las solicitudes de financiamiento que a esa fecha que se encuentren en trámite en las entidades autorizadas.
