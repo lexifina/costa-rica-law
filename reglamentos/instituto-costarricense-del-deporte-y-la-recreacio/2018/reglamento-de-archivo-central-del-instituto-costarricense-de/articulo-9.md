@@ -1,0 +1,6 @@
+Artículo 9 FUNCIONES EN MATERIA ARCHIVÍSTICA DE INSTANCIAS QUE MANEJAN ARCHIVOS DE GESTIÓN
+Son funciones de las instancias institucionales que manejan archivos de gestión las siguientes:
+1.Administrar los documentos con base en la normativa institucional y las directrices emanadas por el Archivo Central Institucional del Instituto Costarricense del Deporte y la Recreación, de manera que sirvan para la toma de decisiones, transparencia administrativa, rendición de cuentas, control interno, apoyo legal, administrativo y para la memoria institucional.
+2.Organizar la documentación producida de acuerdo a las directrices estipuladas por el archivo central.
+3.Trasladar la documentación al Archivo Central. Para este fin se debe utilizarla lista de remisión documental en la cual especifica la procedencia de los documentos remitidos, indicando el número de carpeta, el contenido de los documentos y las fechas extremas de los mismos, cada carpeta o unidad documental debe tener el sello de la unidad documental. Se debe enviar una copia vía correo electrónico y dos en papel, junto con la remisión de la documentación, las cuales deben tener la firma del jefe y el sello de la oficina productora.
+4.Designar a un funcionario de la instancia como encargado del Archivo de Gestión.
