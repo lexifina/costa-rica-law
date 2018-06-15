@@ -1,0 +1,2 @@
+Artículo 2. Naturaleza del financiamiento:
+El BANHVI, por medio del FOSUVI, otorga financiamiento a las familias beneficiarias para que estas a su vez adquieran, mediante compraventa, las viviendas a que este programa se refiere. No es obligatoria para el BANHVI la aprobación de los casos que en esta modalidad se presenten aunque hayan cumplido con los requisitos aquí establecidos. La canalización de recursos hacia un proyecto de vivienda siempre es una actividad discrecional de la Junta Directiva del BANHVI.

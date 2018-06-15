@@ -1,0 +1,2 @@
+Artículo 3. Tipo de proyectos:
+Las presentes disposiciones se aplicarán a las solicitudes de financiamiento que abarquen al unísono cinco o más viviendas nuevas y totalmente construidas. El financiamiento que apruebe el BANHVI para la adquisición de viviendas de conformidad con esta reglamentación, no prejuzga ni compromete a esta entidad, respecto a la eventual y futura construcción de otras viviendas en el mismo proyecto, de las cuales se harán bajo cuenta y riesgo del desarrollador.

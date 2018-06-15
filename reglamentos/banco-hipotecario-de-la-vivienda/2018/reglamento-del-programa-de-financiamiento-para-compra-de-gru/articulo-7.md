@@ -1,0 +1,10 @@
+Artículo 7. Viviendas conectadas a Plantas de Tratamiento de Aguas Residuales (PTARs):
+Se permitirá el trámite de los casos que se describen en los siguientes escenarios:
+a. PTAR en urbanización, conjunto residencial o fraccionamiento:
+i. Recibida y administrada por la autoridad pública competente: no hay limitación en trámite de casos bajo este escenario.
+ii. En operación pero aún no recibida por la autoridad pública competente, la PTAR fue construida exclusivamente para el proyecto y está siendo tramitado en su totalidad en el BANHVI: se realizará una retención según se destaca en el Artículo 8.En estos casos el desarrollador y/o constructor deberá aportar una nota de compromiso sobre la operación y mantenimiento de la planta de tratamiento, esto deberá realizarse durante todo el plazo hasta que la autoridad pública competente reciba y traspase a satisfacción las obras del sistema de tratamiento.
+iii. Casos aislados con PTAR en operación, pero aún no recibida por la autoridad pública competente, y los casos no contemplados en los dos puntos anteriores: no se permitirá el trámite de estos casos bajo el presente programa.
+b.PTAR en condominio:
+i. Con reportes operacionales de al menos un (1) año cumpliendo los parámetros normados en la legislación nacional vigente: no hay limitación en trámite de casos bajo este escenario.
+ii.PTAR fue construida exclusivamente para el proyecto y está siendo tramitado en su totalidad en el BANHVI: se realizará una retención según se destaca en el Artículo 8. En estos casos el desarrollador constructor deberá aportar una nota de compromiso sobre la operación y mantenimiento de la planta de tratamiento; esto deberá realizarse durante todo el plazo hasta que durante un año consecutivo se obtengan resultados de los parámetros de conformidad con lo establecido en la norma que regula esta materia, y se entregue el sistema de tratamiento a la Junta Administradora del Condominio.
+iii. Casos aislados en un condominio y los no contemplados en los dos puntos anteriores: no se permitirá el trámite de estos casos bajo el presente programa.

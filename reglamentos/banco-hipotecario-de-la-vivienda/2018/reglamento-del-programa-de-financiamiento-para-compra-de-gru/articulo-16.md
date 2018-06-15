@@ -1,0 +1,1 @@
+Artículo 16. Esquema del reintegro de las retenciones por concepto de garantía Transcurridos seis (6) meses desde la formalización de cada caso, y realizada la visita y gestiones pertinentes que se generen producto de la aplicación del Artículo13 de este reglamento, se liberará el monto de las retenciones por concepto de garantía.

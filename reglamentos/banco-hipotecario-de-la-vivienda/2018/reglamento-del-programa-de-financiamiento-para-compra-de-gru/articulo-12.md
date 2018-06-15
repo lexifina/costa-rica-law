@@ -1,0 +1,1 @@
+Artículo 12. Mediación de financiamiento a corto plazo por parte de una entidad autorizada: En casos de créditos de corto plazo (financiamiento puente o interino) otorgados por una entidad autorizada, los valuadores designados para el proyecto, no podrán haber fungido en esa misma entidad como fiscalizadores inspectores del proyecto en estudio.

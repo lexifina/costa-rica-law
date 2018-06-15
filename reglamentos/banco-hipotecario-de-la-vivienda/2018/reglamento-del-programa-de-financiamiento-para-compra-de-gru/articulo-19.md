@@ -1,0 +1,2 @@
+Artículo 19. Derogatoria:
+Se revoca y deja sin efecto el acuerdo número 2 de la sesión número 59-2007 del 05de setiembre de 2007 de la Junta Directiva del BANHVI y sus reformas, denominado “Requisitos para financiar la compra, al amparo del Artículo 59 de la Ley del Sistema Financiero Nacional para la Vivienda de grupos de viviendas ubicadas en un mismo proyecto o lotificación en la modalidad ‘llave en mano’”.

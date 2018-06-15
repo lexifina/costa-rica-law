@@ -1,0 +1,2 @@
+Artículo 5. Procedimiento:
+Las solicitudes de financiamiento para el presente programa se tramitarán por medio de los documentos que conforman los anexos a esta reglamentación adjuntando y cumpliendo con los requisitos técnicos y documentales a que ellos se refieren: La entidad trasladará la solicitud a la Dirección FOSUVI del BANHVI, expresando su conformidad con ésta, así como el estudio y verificación del cumplimiento de la presente reglamentación y de los requisitos del BFV de las familias postuladas en las viviendas.

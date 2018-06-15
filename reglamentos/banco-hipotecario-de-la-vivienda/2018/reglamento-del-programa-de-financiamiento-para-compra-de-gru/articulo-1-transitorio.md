@@ -1,0 +1,6 @@
+Transitorio:
+Se exceptúan de la aplicación de esta reglamentación, las viviendas o proyectos constructivos de viviendas que al momento de entrar en vigencia las presentes reglamentaciones se encuentren en alguna de las siguientes condiciones:
+a. Que hayan ingresado al BANHVI para su análisis y eventual aprobación de financiamiento.
+b. Que hayan ingresado a una entidad autorizada y se encuentren en análisis, así certificado por uno de sus representantes legales, o en su defecto mediante una constancia.
+c. Que se encuentren en proceso constructivo y el desarrollador se haya contactado con la entidad autorizada para su ingreso y análisis(por medio de comunicación escrita a ser adjuntada), documentando fehacientemente que dicho proceso constructivo se inició en forma previa a la publicación de la reglamentación. Para tales efectos, sólo estarán exceptuadas de la aplicación de estas reglamentaciones, las viviendas cuya construcción física se encuentre en marcha al momento de la publicación.
+Para tal efecto las entidades autorizadas tendrán 10 días hábiles posteriores a la publicación en el Diario Oficial La Gaceta, para remitir al BANHVI el listado de proyectos y cantidad de soluciones que tienen en proceso de revisión a la fecha de publicación.
