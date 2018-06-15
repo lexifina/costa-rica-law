@@ -1,0 +1,1 @@
+Artículo 37.- Derogatoria. Deróguese el Decreto Ejecutivo N° 39009-S del 6 de marzo del 2015 “Reglamento sobre el Sistema Nacional de Evaluación y Análisis de la Mortalidad Materna, Perinatal e Infantil”, publicado en La Gaceta N° 102 del 28 de mayo del 2015.

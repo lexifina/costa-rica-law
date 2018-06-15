@@ -1,0 +1,1 @@
+Artículo 15.- La coordinación de la Comisión Nacional, será designada por la Dirección responsable de los servicios de salud, donde se encontrará el SINEAMMI, siguiendo lo dispuesto en el artículo 12 inciso 1) subinciso a) del presente reglamento, quien deberá comunicar por escrito su nombramiento a la Comisión Nacional y a las autoridades ministeriales correspondientes.

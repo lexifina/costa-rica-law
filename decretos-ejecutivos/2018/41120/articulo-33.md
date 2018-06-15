@@ -1,0 +1,1 @@
+Artículo 33.-Sobre las sedes de la Comisiones Hospitalarias. Las sedes de las Comisiones Hospitalarias, estarán ubicadas en sus respectivos hospitales con maternidad, sean públicos o privados en el territorio nacional.

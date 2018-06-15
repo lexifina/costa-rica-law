@@ -1,0 +1,1 @@
+Artículo 36.- Información del análisis de los casos. La información proveniente del análisis de los casos, será remitida a las autoridades institucionales, a fin de dar seguimiento a las conclusiones y recomendaciones emitidas por parte de la Comisión, para contribuir en el mejoramiento continuo de la calidad.

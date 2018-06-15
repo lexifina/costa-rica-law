@@ -1,0 +1,1 @@
+Artículo 35.- Del Recurso Humano. Para lograr los objetivos del presente reglamento, se requiere recurso humano suficiente y con capacidad técnica en la materia y de carácter interdisciplinario, interinstitucional e intersectorial.

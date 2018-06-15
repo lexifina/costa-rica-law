@@ -1,0 +1,2 @@
+Artículo 9º- La notificación obligatoria de cada fallecimiento, se debe realizar por parte del establecimiento de salud donde ocurre la muerte, en el documento establecido para tal fin, en el Sistema de Información de Mortalidad Materna e Infantil (SIMMI), en los
+siguientes siete días hábiles posteriores a la defunción. Asimismo, se debe registrar en los formularios establecidos en el SIMMI, la información recolectada para el análisis.

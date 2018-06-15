@@ -1,0 +1,1 @@
+Artículo 10.- Los responsables de los Establecimientos de Salud Públicos y Privados, así como la Medicatura Forense y otras entidades relacionadas, están obligados a suministrar al Ministerio de Salud, la información referente a las muertes maternas e infantiles, de conformidad con el Decreto Ejecutivo N° 40556-S del 7 de julio del 2017 “Reglamento de Vigilancia de la Salud”.

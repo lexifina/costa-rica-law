@@ -1,0 +1,1 @@
+Artículo 16.- La sede de las reuniones de la Comisión, será en las instalaciones del Ministerio de Salud, excepto cuando por acuerdo mayoritario de sus miembros se decida cambiar la sede de forma temporal.
