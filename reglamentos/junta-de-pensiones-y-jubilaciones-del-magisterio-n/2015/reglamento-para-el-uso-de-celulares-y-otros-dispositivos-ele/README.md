@@ -15,3 +15,4 @@ Reglamento para el uso de celulares y otros dispositivos electrónicos
 | --- | --- | --- |
 | 1 | 2015-09-14 | la propia norma |
 | 2 | 2017-04-21 | Reglamento 43 (2017-04-21) |
+| 3 | 2018-06-18 | Reglamento 66 (2018-06-18) |
