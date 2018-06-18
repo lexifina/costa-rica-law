@@ -14,3 +14,4 @@ Reglamento para la autorización reconocimiento y pago del tiempo extraordinario
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-12-26 | la propia norma |
+| 2 | 2018-06-18 | Reglamento 6032 (2018-06-18) |
