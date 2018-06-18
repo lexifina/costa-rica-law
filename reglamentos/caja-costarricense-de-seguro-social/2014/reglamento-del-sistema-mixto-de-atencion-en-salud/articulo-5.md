@@ -1,3 +1,0 @@
-Artículo 5º—Del recurso humano, instalaciones y equipos
-a) Los profesionales en ciencias de la salud inscritos en el Sistema Mixto de Atención en Salud proporcionarán la infraestructura, equipamiento tecnológico y el recurso humano técnico y administrativo necesario, que asegure la calidad adecuada de los servicios de salud, con base a lo estipulado por el Colegio de Médicos y Cirujanos de Costa Rica y el Ministerio de Salud, que permita cumplir con los procesos estipulados en el Sistema.
-b) Para todos los casos, el profesional en ciencias de la salud deberá contar con un consultorio, el cual tendrá que estar habilitado por el Ministerio de Salud, debiendo cumplir este requisito para la inscripción en el Sistema.

@@ -1,5 +1,0 @@
-Artículo 3º—Beneficiarios y Usuarios del Sistema Mixto de Atención en Salud
-a) Son beneficiarios de este Sistema Mixto de Atención en Salud todos los asegurados que se encuentren al día con la seguridad social y que en forma voluntaria deseen hacer uso de él, mediante la contratación directa de los servicios privados de un profesional en Ciencias de la Salud de su escogencia y que esté adscrito a este sistema.
-b) Son usuarios de este sistema los profesionales en ciencias de la salud que voluntariamente deseen inscribirse y que, cumpliendo con los requisitos establecidos, la CCSS autorice para dicho fin.
-c) Para los efectos correspondientes, la CCSS autoriza en este acto a los profesionales en medicina (médicos generales y especialistas) para que puedan voluntariamente optar por su inscripción en el Sistema Mixto de Atención en Salud.
-d) La CCSS se reserva el derecho de incluir otros profesionales en ciencias de la salud, previo análisis de conveniencia para los asegurados y de sostenibilidad financiera para la Institución, para lo cual se deberá definir la oferta de servicios a la que tendría acceso dicho profesional.

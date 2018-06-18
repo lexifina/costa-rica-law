@@ -1,6 +1,0 @@
-CAPÍTULO III
-Proceso de consulta
-Artículo 7º—Referente a los Asegurados
-a) Todo asegurado tiene el derecho de utilizar el Sistema Mixto de Atención en Salud, en el cual puede escoger libremente al profesional privado de su preferencia autorizado dentro del Sistema y a recibir, de parte de la CCSS, los servicios de apoyo al diagnóstico y tratamiento solicitados por el profesional, dentro de la oferta de servicios establecida en artículos posteriores, según las posibilidades financieras institucionales y lo que se establece en el Capítulo VI, artículos 75, 76 y 77 del Reglamento del Seguro de Salud. Lo anterior en igualdad de condiciones que los usuarios de otras modalidades de atención.
-b) Para acogerse a los servicios que se ofrecen en este Reglamento se requiere que el asegurado presente en el área de salud correspondiente, la orden patronal, cédula de identidad o documento de similar rango con fotografía y el carné de asegurado vigente. (Artículo 74 Reglamento de Salud).
-c) Todo asegurado debe utilizar racionalmente los servicios que le ofrece la CCSS en este Sistema Mixto de Atención en Salud. Esto incluye, entre otros, el retiro de los medicamentos, resultados de exámenes de laboratorio clínico, imágenes médicas y asistencia a citas en los tiempos establecidos institucionalmente para dicho fin.
