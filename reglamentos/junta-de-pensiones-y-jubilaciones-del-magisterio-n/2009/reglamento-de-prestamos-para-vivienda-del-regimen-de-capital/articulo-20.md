@@ -1,14 +1,14 @@
-Artículo 20. Vencimiento anticipado. Las operaciones concedidas podrán declararse vencidas anticipadamente y exigibles de inmediato por parte de la Junta de Pensiones, ante cualquiera de las siguientes situaciones:
-a) Si se comprobara en cualquier momento, falsedad en la información proporcionada por el deudor al formalizarse la operación de crédito.
-b) Si el deudor se opusiera a la inspección de las obras o de los bienes dados en garantía, o se negara a proporcionar los informes que se le soliciten en relación con ellos.
-c) Si se comprueba que el deudor dejara transcurrir un mes sin dar aviso por escrito a la Junta, de deterioros sufridos por los bienes en garantía o de cualquier hecho susceptible de disminuir su valor.
-d) Si se dieran circunstancias imputables al deudor, que demoren o imposibiliten la inscripción del primer testimonio de hipoteca de la propiedad dada en garantía.
-e) Cualquier operación de crédito que se encontrare en estado de mora por un período igual o mayor a los dos meses, habiéndose agotado la vía de cobro administrativo.
-f) No pagar una de las primas correspondientes a las pólizas exigidas por la acreedora.
-g) Falta de diligencia que propicie la desmejora o no cuide de la conservación del inmueble que hipoteca.
-h) Falta de pago de cualquier contribución que signifique hipoteca legal sobre el inmueble dado en garantía.
-i) No presentación de cualquier documento que se le solicitare para la inscripción de la escritura.
-j) La eventual existencia de cualquier anotación o gravamen imputable al deudor que dificulte la inscripción de esta escritura.
-k) Si el deudor se rehusare a firmar dentro de las cuarenta y ocho horas después de requerido por cualquier medio, notas en el protocolo, para subsanar cualquier error u omisión o situación de cualquier tipo, que imposibiliten o dificulten la inscripción.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 064-2016 del 8 de junio del 2016)
-l) Cualquiera otra considerada por la normativa vigente.
+CAPÍTULO VI
+Disposiciones finales
+Artículo 20.—Limitaciones de alcance general.
+a) No se aceptan como garantías hipotecarias los terrenos o propiedades en las siguientes condiciones:
+i. Terrenos que se encuentren en período de convalidación vigente o que estén ubicados en zonas de alto riesgo.
+ii. Los nichos en cementerios, así como bienes ubicados en barrios conflictivos o con deseabilidad media baja o baja, según el criterio del perito que realice el estudio de valoración de la propiedad.
+iii. Propiedades con servidumbres de paso que no se encuentren inscritas ante el Registro.
+iv. Propiedades de nueva inscripción, sujetas a la ley de información posesoria.
+v. Propiedades que posean dentro de su área (por encima o a través del terreno) una servidumbre de paso de líneas de energía de alta tensión, de cloaca, oleoducto, cajas de registro o alcantarilla.
+vi. Propiedades con gravámenes de afectaciones a patrimonio familiar, inscritos sobre la finca o cualquier otro que limite la ejecución de la garantía.
+vii. Propiedades con hipoteca abierta, en las que no medie la carta de renuncia del cliente a la línea de crédito donde está la hipoteca.
+JUPEMA se reserva el derecho de rechazar cualquier garantía propuesta por el solicitante, en procura de salvaguardar los intereses de la Institución.
+No se otorgarán créditos bajo esta línea a aquellos afiliados cuyas operaciones de crédito hayan sido pasadas por incobrables.
+b) Los arreglos de pago que se realicen bajo esta línea, deberán ser aprobados por el Departamento de Crédito y Cobro, considerando la capacidad actual y futura para atender los términos del tipo de arreglo recomendado por la Unidad de Cobro para cada caso.

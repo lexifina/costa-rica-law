@@ -1,2 +1,3 @@
-Artículo 4º—De la administración del programa crediticio. El Departamento de Crédito y Cobro es responsable de gestionar el programa crediticio y llevar a cabo la recepción, trámite, análisis de las solicitudes de crédito y, estimación en forma anual, de los recursos necesarios que se deberán incorporar en el presupuesto del Régimen de Capitalización Colectiva para el cumplimiento de dicho fin.
-(Así reformado mediante sesión ordinaria N° 016-2017 del 14 de febrero del 2017)
+CAPÍTULO II
+Préstamos para vivienda
+Artículo 4º—Destino de los recursos. Vivienda: Dirigida a los cotizantes activos (as) y pensionados (as) de los regímenes de Capitalización Colectiva y Transitorio de Reparto, con el fin de financiar la compra de lote, compra o construcción de soluciones habitacionales, ampliaciones, remodelaciones y cancelación de hipotecas a favor de terceros por deudas contraídas por estos mismos planes de inversión. Lo anterior de acuerdo al artículo 21 inciso a) de la Ley 7531 y sus reformas. Debiendo el deudor, cumplir fielmente con el plan de inversión.

@@ -1,7 +1,2 @@
-Artículo 14.—Desembolso. Para el financiamiento por construcción de vivienda, ampliaciones y remodelaciones se realizarán giros según lo indique el informe técnico del perito contra avance de obra. Los desembolsos deberán solicitarse al Departamento de Crédito y Cobro y serán verificados y autorizados por el ingeniero a cargo de la obra, designado por la Junta de Pensiones y Jubilaciones del Magisterio Nacional.
-(Así reformado el párrafo anterior en sesión ordinaria N° 016-2017 del 14 de febrero del 2017)
-Para los financiamientos por compra de lote, casa o cancelación de hipoteca a favor de terceros, se realizará el giro neto del préstamo a la entidad o persona física dueña del bien, por transferencia o por cheque, al momento de la firma de la escritura.
-Todo desembolso parcial generará intereses que correrán a partir de la fecha de giro y hasta la fecha estimada de finalización del crédito y se cobrarán anticipadamente al momento de la firma de la escritura o cuando se realice el giro parcial.
-(Así reformado el párrafo anterior en sesión N° 058 del 26 de mayo de 2015)
-El cobro de la cuota completa regirá al mes siguiente en que se haya completado el giro del monto total del crédito aprobado, rebajando del último desembolso la o las cuotas necesarias para que el crédito no presente morosidad mientras se inicia la deducción por planilla.
-(Así reformado el párrafo anterior en sesión N° 058 del 26 de mayo de 2015)
+Artículo 14.—Comité de Crédito. Le corresponde a este Comité el análisis, aprobación o denegatoria de las solicitudes de crédito de vivienda. Este comité sesiona cada vez que se estime necesario y está integrado por, el Analista de Vivienda, el Jefe del Departamento de Crédito y Cobro, el Oficial de Crédito, el Oficial de Cobro y un miembro externo al Departamento de Crédito y Cobro designado por la Dirección Ejecutiva.
+Su coordinación está a cargo del Jefe del Departamento de Crédito y Cobro, y en su ausencia por quien lo sustituya.
