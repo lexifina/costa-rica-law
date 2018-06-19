@@ -1,1 +1,1 @@
-Artículo 15.—Procedimiento. Para garantizar el cumplimiento de las funciones de los miembros. El comité funcionará en apego a lo estipulado en el procedimiento PR23CS01 Adquisición de Bienes o servicios.
+Artículo 15º—Regulación. En lo no regulado expresamente aquí, se regirá por lo dispuesto en la Ley de Contratación Administrativa y demás normativa atinente a la materia, así como a los acuerdos de la Junta Directiva de BN Corredora de Seguros.

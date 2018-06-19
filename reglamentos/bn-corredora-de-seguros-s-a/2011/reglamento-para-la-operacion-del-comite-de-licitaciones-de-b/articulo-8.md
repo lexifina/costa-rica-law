@@ -1,1 +1,4 @@
-Artículo 8º—Asesores. El Comité podrá solicitar la participación, tanto en los estudios y análisis como en las sesiones, del personal técnico, administrativo o legal adicional que sea requerido.
+Artículo 8º—Funciones del Secretario del Órgano. El secretario del órgano tendrá las siguientes obligaciones y atribuciones:
+a. Levantar las Actas de las sesiones y custodiar el Libro de Actas.
+b. Preparar y comunicar debidamente la agenda del día y el Acta de la sesión anterior a los miembros del Órgano y someterlo a aprobación del Presidente antes de la sesión.
+c. Las demás que resulten de la naturaleza propia del cargo.

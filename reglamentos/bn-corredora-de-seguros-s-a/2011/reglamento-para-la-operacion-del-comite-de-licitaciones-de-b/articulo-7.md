@@ -1,4 +1,1 @@
-Artículo 7º—Funciones del Secretario del Órgano. El secretario del órgano tendrá las siguientes obligaciones y atribuciones:
-a. Levantar las Actas de las sesiones y custodiar el Libro de Actas
-b. Preparar y comunicar debidamente la agenda del día y el Acta de la sesión anterior a los miembros del Órgano y someterlo a aprobación del Presidente antes de la sesión.
-c. Las demás que resulten de la naturaleza propia del cargo.
+Artículo 7º—De las Ausencias. Las ausencias del Presidente serán suplidas por el funcionario de igual o mayor jerarquía de entre los miembros del Comité. En caso de existir dos o más miembros, que por su jerarquía pudieran sustituir al Presidente en sus ausencias, el puesto recaerá en el funcionario de mayor antigüedad en el servicio a BN Corredora de Seguros, que sea integrante del Comité.

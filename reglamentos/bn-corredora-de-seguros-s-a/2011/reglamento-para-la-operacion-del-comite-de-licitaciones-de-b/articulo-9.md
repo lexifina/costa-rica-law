@@ -1,1 +1,0 @@
-Artículo 9º—Estándares técnicos. Para la determinación del contenido de los carteles de licitación que se presenten deberá considerarse los estándares técnicos establecidos por el Banco Nacional de Costa Rica en materia tecnológica y en materia administrativa cuando así sea requerido.

@@ -1,1 +1,1 @@
-Artículo 17.—Vigencia. Las presentes normas de operación empezarán a regir a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 17º—Procedimiento. Para garantizar el cumplimiento de las funciones de los miembros. El comité funcionara en apego a lo estipulado en el procedimiento PR16GA01 Procedimiento de Adquisición de bienes y servicios.
