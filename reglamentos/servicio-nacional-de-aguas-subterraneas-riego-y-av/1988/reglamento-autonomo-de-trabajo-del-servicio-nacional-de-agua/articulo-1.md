@@ -1,5 +1,6 @@
-SERVICIO NACIONAL DE AGUAS SUBTERRÁNEAS,
-RIEGO Y AVENAMIENTO
+(Derogado)
+SERVICIO NACIONAL DE AGUAS SUBTERRÁNEAS, RIEGO Y AVENAMIENTO
+(Esta norma fue derogada por el artículo 128 del Reglamento autónomo de trabajo, y publicado en el Alcance Digital N° 119 a La Gaceta N° 109 del 19 de junio del 2018)
 REGLAMENTO AUTÓNOMO DE TRABAJO DEL SERVICIO NACIONAL DE AGUAS SUBTERRÁNEAS, RIEGO Y AVENAMIENTO (SENARA)
 TERMINOLOGÍA
 Acción de, personal: Documento en que se hace cualquier movimiento concerniente a la relación de empleo que liga a un determinado servidor.
