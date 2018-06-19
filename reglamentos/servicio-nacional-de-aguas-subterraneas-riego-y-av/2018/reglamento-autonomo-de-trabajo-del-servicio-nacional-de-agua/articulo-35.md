@@ -1,0 +1,1 @@
+Artículo 35: Rendimiento de cuentas: Todo servidor estará obligado a rendir cuentas ante sus superiores, órganos de control y fiscalización y ante la ciudadanía en general, sobre las actividades del cargo que desempeña en la función pública. De igual modo, todo servidor estará en el deber de ajustarse y fortalecer los mecanismos de control interno establecidos.

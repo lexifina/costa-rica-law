@@ -1,0 +1,1 @@
+Artículo 66: Forma de pago: El salario se cancelará mensualmente, mediante dos pagos quincenales, según el calendario de pagos que cada año autorice la Gerencia. El pago de salarios se hará mediante depósito o transferencia electrónica de fondos a la cuenta bancaria que para tal efecto haya registrado cada servidor a su nombre.

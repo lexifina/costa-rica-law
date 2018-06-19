@@ -1,0 +1,1 @@
+Artículo 115: Régimen de audiencia: Según su ámbito de competencia, las autoridades del SENARA, atenderán a los dirigentes sindicales que así lo soliciten, para conocer de los asuntos que les interese y darles una respuesta. En casos urgentes, se establecerán estrategias recíprocas de diálogo, con el fin de mantener la armonía y la paz laboral.

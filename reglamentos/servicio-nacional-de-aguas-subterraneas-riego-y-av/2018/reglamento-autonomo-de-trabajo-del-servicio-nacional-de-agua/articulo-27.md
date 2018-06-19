@@ -1,0 +1,1 @@
+Artículo 27: Convocatoria de concursos: Se convocará a concurso interno cuando la Unidad de Recursos Humanos identifique que dentro de la Institución existen dos o más servidores idóneos interesados en desempeñar el puesto vacante. Cuando no se cumpla esta premisa y no exista servidor elegible único, se convocará a concurso externo.

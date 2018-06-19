@@ -1,0 +1,2 @@
+Artículo 114: No represalias a dirigentes sindicales y servidores: El SENARA conforme a su política, respetará la labor de las organizaciones sindicales y de sus representantes.
+En este sentido, las autoridades institucionales no ejercerán ningún tipo de represalia contra los dirigentes o exdirigentes sindicales ni contra los servidores que tenga como causa su participación, afiliación o representación en actividades de naturaleza sindical.

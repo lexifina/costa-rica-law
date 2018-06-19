@@ -1,0 +1,3 @@
+CAPÍTULO XXIV
+Sobre el Sindicalismo
+Artículo 113: Reconocimiento sindical: Al amparo del convenio 135 de la Organización Internacional del Trabajo, el SENARA reconoce el derecho de todo servidor a la afiliación y ejercicio de los derechos y libertades sindicales. En tal sentido, el SENARA, conforme a los convenios 87 y 98 y las recomendaciones de la Organización Internacional del Trabajo, así como a la legislación vigente, respetará el fuero sindical en los términos que establece la legislación de trabajo y los tratados internacionales ratificados por Costa Rica, la libre afiliación a una organización sindical y las libertades sindicales.

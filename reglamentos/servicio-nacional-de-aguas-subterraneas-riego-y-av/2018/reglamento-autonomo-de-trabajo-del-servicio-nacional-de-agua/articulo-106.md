@@ -1,0 +1,2 @@
+Artículo 106: Procedimiento de investigación y garantías procesales: Ante una denuncia por acoso laboral, deberá determinarse la verdad real de los hechos cumpliendo con los principios y garantías del debido proceso.
+En lo que se refiere a los aspectos relativos a la protección al denunciante, procedimiento para presentar la denuncia, procedimiento de investigación, informe del Órgano Director y Acto Final del Procedimiento, y recursos contra el acto final, se regirá por las mismas normas establecidas en la Sección anterior, para el caso de denuncias por acoso sexual.

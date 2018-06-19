@@ -1,0 +1,1 @@
+Artículo 69: Aguinaldo: Todos los servidores tendrán derecho a recibir un aguinaldo anual, equivalente a una doceava parte de los sueldos ordinarios y extraordinarios recibidos por este, durante los doce meses anteriores al 1° de diciembre de año que se trate, conforme a la ley respectiva.

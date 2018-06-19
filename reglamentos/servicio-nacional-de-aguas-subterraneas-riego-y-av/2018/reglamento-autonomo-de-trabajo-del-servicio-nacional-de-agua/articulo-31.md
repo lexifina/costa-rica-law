@@ -1,0 +1,2 @@
+Artículo 31: Cumplimiento de requisitos: Para ser nombrado en cualquiera de las modalidades previstas en este reglamento, el aspirante deberá reunir los requisitos establecidos para la clase del puesto de que se trate, según lo dispuesto en los Manuales Institucionales de Clases y de Cargos vigente del SENARA.
+Será nulo cualquier nombramiento que se hiciere en contravención a este reglamento y a las normas legales que rigen la materia.

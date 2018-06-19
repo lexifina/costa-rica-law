@@ -1,0 +1,1 @@
+Artículo 13: Permuta: Para realizar una permuta los servidores deberán solicitarlo expresamente y la misma será autorizada por las jefaturas respectivas, siempre que no se cause perjuicio a la Institución, previo estudio realizado por la Unidad de Recursos Humanos.

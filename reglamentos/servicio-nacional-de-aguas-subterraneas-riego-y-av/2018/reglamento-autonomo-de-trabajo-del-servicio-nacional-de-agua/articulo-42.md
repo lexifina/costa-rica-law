@@ -1,0 +1,1 @@
+Artículo 42: Obligaciones de trabajar todos los días hábiles: Los servidores estarán obligados al desempeño de sus cargos durante todos los días hábiles y las horas contempladas en este Reglamento, y no se podrá por tal motivo conceder privilegio, prerrogativa o licencia alguna que autorice una asistencia irregular, con excepción de lo establecido en otras disposiciones vigentes.

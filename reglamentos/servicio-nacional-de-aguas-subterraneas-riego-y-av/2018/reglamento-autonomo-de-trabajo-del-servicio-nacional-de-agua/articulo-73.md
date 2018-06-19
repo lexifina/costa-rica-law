@@ -1,0 +1,1 @@
+Artículo 73: Escala: La evaluación anual de servicios se hará de acuerdo a los méritos acumulados, durante el año respectivo, en una escala que comprenderá los siguientes rangos: Excelente (90 a 100), Muy Bueno (80 a 89), Bueno (70 a 79), Insuficiente (60 a 69) e Inaceptable (0 a 59).

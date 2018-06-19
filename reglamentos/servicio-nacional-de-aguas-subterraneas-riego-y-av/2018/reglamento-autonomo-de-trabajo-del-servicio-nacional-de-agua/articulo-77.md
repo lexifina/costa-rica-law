@@ -1,0 +1,1 @@
+Artículo 77: Llegadas tardías-ausencias: La llegada tardía que exceda de veinte minutos contados a partir de la hora de ingreso estipulada, y que a juicio del superior inmediato carezca de justificación acarreará al servidor la pérdida del salario correspondiente a media jornada, equiparándose esta falta a la mitad de una ausencia, para efectos de sanción.

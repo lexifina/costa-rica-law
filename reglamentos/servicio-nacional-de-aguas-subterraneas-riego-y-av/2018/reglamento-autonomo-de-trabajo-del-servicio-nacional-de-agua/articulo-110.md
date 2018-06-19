@@ -1,0 +1,1 @@
+Artículo 110: Alcance de la política de no discriminación: La no discriminación a que se refiere esta sección tendrá alcance tanto para los servidores como para los usuarios de los servicios a cargo de esta Institución y todas las personas que con ellos se relacionen.

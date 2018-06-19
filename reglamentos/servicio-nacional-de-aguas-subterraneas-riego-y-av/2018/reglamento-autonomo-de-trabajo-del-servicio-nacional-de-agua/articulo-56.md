@@ -1,0 +1,1 @@
+Artículo 56: Continuidad: No interrumpirá la continuidad del trabajo, para efectos del cálculo de las vacaciones, las licencias con goce de salario, los descansos otorgados legalmente ni las incapacidades durante el período de subsidio que otorgue la Caja Costarricense de Seguro Social.

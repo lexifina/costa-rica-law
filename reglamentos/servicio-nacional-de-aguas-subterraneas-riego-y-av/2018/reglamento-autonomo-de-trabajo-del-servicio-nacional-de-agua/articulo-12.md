@@ -1,0 +1,1 @@
+Artículo 12: Convalidación del tiempo interino: Cuando un servidor que ha venido desempeñando un puesto interinamente, gane el concurso para ocupar ese mismo puesto con un nombramiento por tiempo indefinido, se le podrá convalidar el tiempo servido como su período de prueba, por decisión del superior inmediato, previo visto bueno de la Gerencia.

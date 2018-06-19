@@ -1,0 +1,1 @@
+Artículo 18: Reclutamiento: La Unidad de Recursos Humanos procederá por los medios que considere idóneos a convocar y clasificar a los candidatos que satisfagan las necesidades de los puestos, conforme a los procedimientos regulados en este reglamento. Con este propósito la Unidad de Recursos Humanos dispondrá de un registro de ofertas recibidas.

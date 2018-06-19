@@ -1,0 +1,1 @@
+Artículo 6: Pago de cesantía: Los nombramientos por tiempo definido o para obra determinada, finalizaran sin derecho a pago de auxilio de cesantía, siempre que el contrato sea de una duración menor a un año.

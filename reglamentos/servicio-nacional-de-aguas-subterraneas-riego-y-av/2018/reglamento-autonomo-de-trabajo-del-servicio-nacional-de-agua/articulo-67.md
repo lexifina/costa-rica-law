@@ -1,0 +1,5 @@
+Artículo 67: Incentivos: Se establecen los siguientes incentivos:
+a) El SENARA cubrirá a sus servidores regulares con una póliza colectiva de vida, cuando sus recursos presupuestarios lo permitan, sin menoscabo de sus programas de trabajo.
+b) El SENARA otorgará media jornada de trabajo libre de un día hábil a aquellos servidores a quienes se les aplique un sistema de control de asistencia, mediante reloj marcador u otro sistema electrónico similar, y que no presenten durante dos meses continuos, llegadas tardías, omisiones de marca o ausencias injustificadas, previa autorización del superior inmediato. El disfrute de dicho beneficio se convendrá entre el servidor y su superior inmediato, dentro de las dos semanas
+siguientes de adquirido el derecho y en ningún caso podrá posponerse o acumularse.
+c) El SENARA otorgará a todos sus servidores media jornada de trabajo libre el día del aniversario de su natalicio sí este cae en día hábil. En ningún caso podrá posponerse o acumularse el goce de este beneficio.

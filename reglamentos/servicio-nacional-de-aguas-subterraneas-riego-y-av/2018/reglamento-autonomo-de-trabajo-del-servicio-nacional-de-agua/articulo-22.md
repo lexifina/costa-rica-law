@@ -1,0 +1,1 @@
+Artículo 22: Ausencia de requisitos: Cuando las ofertas no satisfagan en todos sus términos los requisitos establecidos en el concurso, la Unidad de Recursos Humanos procederá a efectuar las observaciones y recomendaciones pertinentes.

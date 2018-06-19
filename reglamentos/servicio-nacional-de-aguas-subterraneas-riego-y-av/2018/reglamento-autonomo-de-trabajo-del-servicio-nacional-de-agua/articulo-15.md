@@ -1,0 +1,1 @@
+Artículo 15: Suspensión del Contrato de Trabajo: La suspensión parcial o total de los contratos de trabajo se regirán por las cláusulas establecidas en el Código de Trabajo y demás normas regulatorias laborales vigentes aplicables al SENARA. Las suspensiones parciales no implican la terminación del contrato de trabajo ni extingue los derechos y obligaciones que emanen de ellos.

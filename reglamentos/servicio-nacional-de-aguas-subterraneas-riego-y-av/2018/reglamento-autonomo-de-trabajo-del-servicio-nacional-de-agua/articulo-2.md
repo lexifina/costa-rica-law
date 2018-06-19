@@ -1,0 +1,1 @@
+Artículo 2: Responsables de la aplicación: Todos aquellos servidores que tengan bajo su responsabilidad tareas de administración o supervisión de personal, son responsables de velar por la correcta aplicación de todas las disposiciones del presente Reglamento.

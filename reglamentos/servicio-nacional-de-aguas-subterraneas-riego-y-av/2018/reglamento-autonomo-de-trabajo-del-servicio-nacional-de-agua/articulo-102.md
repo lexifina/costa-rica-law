@@ -1,0 +1,1 @@
+Artículo 102: Recursos contra el acto final: Contra el acto final de procedimiento que dicte la Gerencia de SENARA, cabrán los recursos ordinarios de revocatoria y apelación, en los términos que establece la Ley General de la Administración Pública. Cuando quien dicte el acto final es la Junta Directiva, cabrá únicamente recurso de revocatoria o reposición.

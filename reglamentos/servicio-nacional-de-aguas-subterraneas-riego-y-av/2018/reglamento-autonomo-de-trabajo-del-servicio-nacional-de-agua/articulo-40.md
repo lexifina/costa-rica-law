@@ -1,0 +1,1 @@
+Artículo 40: Modificación de horario: Cuando sea necesario para mejorar la eficiencia del servicio público, la Gerencia podrá, previa audiencia a los servidores, establecer jornadas ordinarias diferenciadas, según la naturaleza y necesidades del servicio, siempre y cuando no cause grave perjuicio a los servidores.

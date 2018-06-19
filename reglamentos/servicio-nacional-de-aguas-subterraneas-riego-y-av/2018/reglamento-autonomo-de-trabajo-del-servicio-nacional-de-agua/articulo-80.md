@@ -1,0 +1,5 @@
+Artículo 80: Abandono de trabajo: Se considerará abandono de trabajo, aquella situación en la cual el servidor voluntariamente y sin causa justificada se ausenta de su lugar de trabajo con la intención de no realizar las labores que tiene encomendadas. El abandono de trabajo puede configurarse tanto cuando el servidor se ausenta de su sitio de trabajo sin causa justificada con la intención de no ejecutar sus labores, como cuando no obstante estar en su sitio de trabajo, se niega a realizar de modo evidente la labor confiada.
+En todos los casos de ausencias injustificadas el SENARA procederá a rebajar el salario correspondiente a la fracción no laborada. Sin perjuicio de que por ausencias al trabajo corresponda una sanción disciplinaria mayor, el abandono de trabajo dentro del mismo mes calendario, será sancionado en la siguiente forma:
+a) La primera vez, amonestación escrita;
+b) La segunda vez, suspensión sin goce de salario hasta por ocho días, y;
+c) La tercera vez, despido sin responsabilidad patronal.

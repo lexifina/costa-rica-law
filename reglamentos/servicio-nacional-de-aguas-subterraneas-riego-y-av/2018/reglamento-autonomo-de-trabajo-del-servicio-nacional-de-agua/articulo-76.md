@@ -1,0 +1,1 @@
+Artículo 76: Justificación: Solo en casos muy calificados, y a juicio del superior inmediato del servidor se justificarán las llegadas tardías, para efectos de no aplicar la sanción disciplinaria correspondiente.

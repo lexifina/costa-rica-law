@@ -1,0 +1,3 @@
+CAPÍTULO II
+Régimen de Ingreso
+Artículo 4: Nombramiento: Los servidores prestarán sus servicios al SENARA, en virtud de nombramiento previo, realizado conforme a las disposiciones de este Reglamento. En su relación de servicio con la Institución, el servidor está sujeto a las condiciones derivadas de la clase y puesto originadas en el acto de su nombramiento, la cual deberá formalizarse mediante acción de personal y, además de las disposiciones e instrucciones particulares que contenga, tendrá como incorporados, -y así se entenderá-, las normas del presente Reglamento, las contenidas en los acuerdos de la Junta Directiva y todas las demás del ordenamiento jurídico administrativo en materia de empleo público y manuales de puestos.

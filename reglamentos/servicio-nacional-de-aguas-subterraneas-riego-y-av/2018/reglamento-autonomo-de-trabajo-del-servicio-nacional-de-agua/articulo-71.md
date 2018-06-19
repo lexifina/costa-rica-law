@@ -1,0 +1,3 @@
+CAPÍTULO XV
+Del Régimen de Zonaje
+Artículo 71: Concepto y naturaleza: El zonaje es una compensación económica adicional que reciban los servidores, cuando en virtud de un traslado instado por la Administración o bien que se encuentre en la situación de nuevo ingreso, tengan que prestar sus servicios permanentemente en un centro situado en lugar distinto al de su domicilio legal o que eventualmente permanezcan fuera de la circunscripción territorial de éste por un lapso igual o mayor a treinta días en forma continua, siempre que la zona en donde realicen su trabajo justifique tal compensación. Dicho estipendio se regulará por un reglamento especial.

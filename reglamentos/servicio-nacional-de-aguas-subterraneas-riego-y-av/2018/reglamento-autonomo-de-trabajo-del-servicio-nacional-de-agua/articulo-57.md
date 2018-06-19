@@ -1,0 +1,1 @@
+Artículo 57: Fraccionamiento: Los servidores tendrán derecho a gozar sin interrupciones, su período de vacaciones. No obstante, será posible el fraccionamiento en varios períodos, de acuerdo con la normativa laboral, previo acuerdo entre el servidor y su superior inmediato, y siempre que no se afecte la buena marcha del trabajo ni la efectividad del descanso.

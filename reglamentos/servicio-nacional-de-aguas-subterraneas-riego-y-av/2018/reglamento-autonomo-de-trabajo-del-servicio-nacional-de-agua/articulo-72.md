@@ -1,0 +1,3 @@
+CAPÍTULO XVI
+Del Régimen de Evaluación Anual de Servicios a los Servidores
+Artículo 72: Evaluación anual de servicios: Todo jefe está obligado a evaluar los servicios de sus subalternos anualmente. Para tales efectos, la Unidad de Recursos Humanos girará las instrucciones del caso a los diferentes jefes y les remitirá los formularios correspondientes. Para efectos de la evaluación de servicios anual, los servidores serán clasificados por la Unidad de Recursos Humanos, según el nivel de puesto en que estén ubicados, en la siguiente escala: Nivel Director-Coordinador, Nivel Profesional, Nivel Técnico de Procesos y Nivel de Asistencial. Cada nivel tendrá sus propios parámetros de calificación que estarán previamente definidos en los respectivos formularios.

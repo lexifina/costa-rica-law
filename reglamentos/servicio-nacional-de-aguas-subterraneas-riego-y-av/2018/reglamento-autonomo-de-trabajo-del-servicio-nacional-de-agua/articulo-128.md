@@ -1,0 +1,1 @@
+Artículo 128: Derogatoria: Se deroga el Reglamento Autónomo de Trabajo aprobado por la Junta Directiva de SENARA en sesión ordinaria número 113-88, acuerdo número 829, del 03 de agosto de 1988, y sus reformas, sin perjuicio de los derechos adquiridos por aquellos servidores, con base en la normativa que aquí se deroga.

@@ -1,0 +1,3 @@
+Artículo 26: Sistema de concursos: El sistema de concursos se empleará para llenar todas las plazas vacantes autorizadas. Abarca todas las clases de puestos existentes en el Manual Institucional de Clases, excepto los de Gerente, Subgerente y personal de confianza, quienes serán nombrados libremente por la Junta Directiva los dos primeros y por la Gerencia el personal de confianza.
+En nombramiento por plazos menores de tres meses, podrá prescindirse del procedimiento de concurso, teniendo en consideración el Registro de Elegibles u otros mecanismos de reclutamiento.
+El nombramiento del Auditor Institucional, se regirá por lo establecido en la Ley General de Control Interno y la normativa que emita la Contraloría General de la República

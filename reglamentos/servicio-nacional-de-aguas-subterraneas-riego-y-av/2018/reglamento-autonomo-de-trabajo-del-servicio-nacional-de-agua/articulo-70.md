@@ -1,0 +1,1 @@
+Artículo 70: Salario Escolar: Todos los servidores tendrán derecho a recibir un salario escolar anual, pagadero durante el mes de enero de cada año, conforme los lineamientos que al efecto emita el Poder Ejecutivo.

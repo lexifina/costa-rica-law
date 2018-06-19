@@ -1,0 +1,1 @@
+Artículo 112: Sanciones por actos de discriminación: El servidor que incurra en un acto de discriminación conforme lo regulado en esta sección, será sujeto de sanción disciplinaria conforme lo dispuesto en este reglamento, de acuerdo con la naturaleza y gravedad de la falta.

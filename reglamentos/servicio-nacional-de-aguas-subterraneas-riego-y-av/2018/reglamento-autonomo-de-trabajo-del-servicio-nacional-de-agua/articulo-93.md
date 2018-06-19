@@ -1,0 +1,1 @@
+Artículo 93: Acto final del procedimiento: Será la Gerencia la competente para dictar el Acto Final de Procedimiento, el cual deberá dictarse y notificarse al servidor dentro de un plazo de un mes, contado a partir de la fecha de recibo del informe del Órgano Director.

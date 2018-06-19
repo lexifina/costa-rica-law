@@ -1,0 +1,4 @@
+Sección II. Procedimientos
+Artículo 88: Faltas leves: Procedimiento sumario: Son aquellas que podrán dar lugar a medidas disciplinarias de amonestación verbal o escrita.
+El superior inmediato será el servidor competente para imponer tales sanciones, previa investigación de los hechos señalados, por los medios que estime pertinentes, para lo cual como mínimo deberá seguir el siguiente proceso sumario, consistiendo en dar audiencia previa y oportunidad razonable de defensa al servidor.
+Las amonestaciones verbales serán impuestas por el superior inmediato en aquellos casos que considere existe mérito para tal tipo de sanción. De tales amonestaciones no se dejará ninguna constancia escrita. Cuando se trate de amonestaciones escritas, éstas deberán expresar los hechos en que se fundamenta en forma detallada, y de las mismas se remitirá copia al expediente personal del servidor que al efecto mantiene la Unidad de Recursos Humanos.

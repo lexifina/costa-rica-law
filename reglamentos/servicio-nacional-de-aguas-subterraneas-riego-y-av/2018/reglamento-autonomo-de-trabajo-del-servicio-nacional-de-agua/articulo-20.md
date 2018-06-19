@@ -1,0 +1,1 @@
+Artículo 20: Reconocimiento de grados académicos o títulos: Los certificados de estudios realizados, nacionales o extranjeros, que se presentan para optar por un puesto, deberán estar debidamente reconocidos por las autoridades correspondientes.
