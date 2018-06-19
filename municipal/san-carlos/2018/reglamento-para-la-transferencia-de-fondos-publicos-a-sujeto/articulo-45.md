@@ -1,0 +1,1 @@
+Artículo 45º.- Formalización del convenio. Formalizado el convenio de cooperación entre las partes, Municipalidad a través de la Alcaldía Municipal, remitirá el mismo al Departamento de Enlace Comunal o la Dirección de Desarrollo Social a efectos de continuar con el trámite de desembolso.

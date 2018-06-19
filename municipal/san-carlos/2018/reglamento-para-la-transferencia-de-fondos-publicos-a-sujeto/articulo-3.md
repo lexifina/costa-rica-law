@@ -1,0 +1,11 @@
+Artículo 3°-Definiciones. Para los fines de interpretación, se tendrán las siguientes definiciones:
+Comisión Técnica de Idoneidad: Es la comisión técnica administrativa, conformada en la Municipalidad, responsable del análisis de verificación y cumplimiento tanto de los requisitos como del “Manual de Procedimiento para el Otorgamiento de la Calificación de Idoneidad”
+Concejo Municipal: Órgano Superior Jerárquico deliberativo de decisión política. Será quien en definitiva decidirá la calificación de idoneidad.
+Fondos Públicos: Son aquellos recursos, valores, bienes y derechos propiedad del Estado, de órganos, empresas o entes públicos.
+Municipalidad: Se refiere a la Municipalidad de San Carlos, quien figura como entidad concedente de recursos públicos para que sean administrados por sujetos privados que cuenten con aptitud legal.
+Órgano Competente: La unidad coordinadora de los programas a financiar a través de transferencias, responsables de la verificación y cumplimiento de los requisitos y procesos establecidos en el presente reglamento, sean el Departamento de Enlace Comunal o la Dirección de Desarrollo Social.
+Reglamento: Normativa aprobada por el Concejo Municipal de San Carlos que regula lo concerniente a las transferencias económicas a Sujetos Privados calificadas como aptas para administrar fondos públicos en el cantón de San Carlos.
+Sujetos Privados Idóneos: Son los sujetos privados calificados como idóneos para administrar recursos públicos de conformidad con el cumplimiento de una serie de requisitos estipulados en la normativa vigente o mediante el otorgamiento por ley expresa al efecto.
+Sujetos privados: Son los sujetos privados que se someten al procedimiento de declaración de idoneidad por parte de la Municipalidad.
+Transferencia: Traslado por parte del Ente Municipal de fondos públicos asignados en el respectivo presupuesto para atender los fines dados por ley, a favor de una Entidad Beneficiaria Privada de conformidad con lo previsto por la ley y el presente reglamento.
+Valoración previa o precalificación de idoneidad: Es el estudio minucioso realizado por el Jerarca concedente, a la documentación aportada por el sujeto privado, según los requisitos que deba cumplir, para obtener la pre-calificación de idoneidad para administrar fondos públicos en el cantón de San Carlos.
