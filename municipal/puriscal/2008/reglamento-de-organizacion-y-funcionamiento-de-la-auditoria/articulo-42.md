@@ -1,1 +1,0 @@
-Artículo 42.—De los procedimientos de Auditoría. Para los estudios relacionados con denuncias, la Auditoría Interna utilizará los procedimientos establecidos en el Manual para el Ejercicio de la Auditoría o aquellos que sean necesarios, cumpliendo con el ordenamiento jurídico.

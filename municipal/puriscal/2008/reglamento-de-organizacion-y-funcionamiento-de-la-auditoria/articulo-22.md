@@ -1,1 +1,0 @@
-Artículo 22.—Potestades de la auditoría interna. Serán potestades del auditor, el subauditor internos y demás personal de la auditoría interna todas aquellas contenidas en el artículo 33 de la Ley General de Control Interno, así como las que establezca otra normativa legal y técnica vigente.
