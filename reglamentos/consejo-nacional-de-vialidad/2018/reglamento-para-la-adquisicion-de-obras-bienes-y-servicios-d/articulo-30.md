@@ -1,0 +1,2 @@
+ARTICULO 30. FINIQUITO DE LOS CONTRATOS
+Para los Contratos de Obras, Bienes y Servicios se deberá proceder a elaborar un Finiquito del Contrato, una vez que se haya verificado la correcta ejecución del mismo y se hayan cancelado los pagos correspondientes; para el caso de contratos de Obra el Finiquito deberá cumplir con lo dispuesto en el Manual de Procedimiento para la Elaboración, Aprobación y Comunicación de Finiquitos de Contratos de Obra.

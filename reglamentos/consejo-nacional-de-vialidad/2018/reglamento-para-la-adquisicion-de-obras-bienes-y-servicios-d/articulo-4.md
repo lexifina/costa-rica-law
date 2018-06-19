@@ -1,0 +1,2 @@
+ARTÍCULO 4. LOS PRINCIPIOS QUE RIGEN EL REGLAMENTO
+Para la adquisición de las Obras, Bienes y Servicios que requiera el Fideicomiso, se deberán respetar los principios de la contratación administrativa, según los alcances detallados en el presente Reglamento y su aplicación integral, tomando en cuenta los pronunciamientos que han emitido los Tribunales de Justicia, la Procuraduría General de la República y la Contraloría General de la República, sobre dichos principios, todo de acuerdo a la Ley No. 9292.

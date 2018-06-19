@@ -1,0 +1,2 @@
+ARTÍCULO 31. CONFLICTOS DE INTERÉS
+Se prohíbe al Fiduciario y a todos los miembros de la UAP establecer todo tipo de relaciones con Oferentes, Proveedores, Consultores o Contratistas, que mantengan algún grado de vinculación por consanguinidad o afinidad hasta el tercer grado, inclusive de parentesco con directores de la Junta Directiva, miembros de los comités, personal gerencial y administrativo del BCR, así como de las demás empresas que conforman su conglomerado financiero.

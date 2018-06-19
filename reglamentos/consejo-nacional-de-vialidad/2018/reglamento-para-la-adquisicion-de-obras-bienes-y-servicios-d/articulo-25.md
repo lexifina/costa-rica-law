@@ -1,0 +1,4 @@
+ARTÍCULO 25. PAGO DE FACTURAS
+La autorización para el pago de facturas relacionadas con las Obras, Bienes y Servicios adquiridos por el Fideicomiso deberá cumplir con los siguientes criterios:
+a. La factura presentada por el Proveedor o Contratista para el trámite de pago deberá cumplir las disposiciones emitidas por el Ministerio de Hacienda. El Gerente respectivo de la UAP deberá darle visto bueno, una vez verificado que las Obras, Bienes o Servicios recibidos cumplen con los requerimientos establecidos en el Contrato u Orden de Compra.
+b. El pago de las facturas se realizará en los plazos que sean definidos en el Contrato u Orden de Compra, previa verificación de las condiciones del instrumento de cobro, incluyendo la verificación de que el Proveedor o Contratista se encuentra al día con la CCSS y FODESAF, así como de la vigencia de las pólizas y garantía que correspondan; además se deberá dejar evidencia del pago en el expediente de la contratación.

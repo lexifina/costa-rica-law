@@ -1,0 +1,6 @@
+ARTÍCULO 5. SOLICITUD Y JUSTIFICACIÓN DE LA CONTRATACIÓN
+Toda adquisición de Obras, Bienes y Servicios que realice el Fideicomiso al amparo del presente Reglamento, deberá contar con una Solicitud y Justificación de la Contratación de Obras, Bienes o Servicios, la cual deberá contener al menos:
+a. Justificación de la contratación, identificando los objetivos a conseguir.
+b. Descripción del objeto, las especificaciones técnicas y características de las Obras, Bienes o Servicios que se requieran.
+c. La estimación actualizada del costo de las Obras, Bienes o Servicios a adquirir. En casos de contrataciones especializadas donde no se tenga conocimiento ni experiencia respecto al costo de las Obras, Bienes o Servicios, deberá indicarse que por ese motivo el costo es inestimable.
+d. Acreditación del contenido presupuestario suficiente para enfrentar el pago de las obligaciones derivadas de la contratación. En casos calificados, debidamente autorizados por el Gerente de Esfera del Banco de Costa Rica, se podrá dar inicio al procedimiento respectivo sin contar con el contenido presupuestario suficiente, pero en estos casos no podrá dictarse el acto de adjudicación hasta tanto no contar con la totalidad de los fondos.

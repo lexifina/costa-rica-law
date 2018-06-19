@@ -1,0 +1,2 @@
+ARTÍCULO 23. RECURSO EXTRAORDINARIO DE REVISIÓN
+En contra de lo dispuesto por el Fideicomiso al resolver los recursos de revocatoria, el oferente legitimado podrá plantear, ante el Comité de Fiscalización, Supervisión y Vigilancia, recurso de revisión a modo de segunda instancia, cuando se presente alguno de los supuestos previstos en el artículo 353 de la Ley General de la Administración Pública.

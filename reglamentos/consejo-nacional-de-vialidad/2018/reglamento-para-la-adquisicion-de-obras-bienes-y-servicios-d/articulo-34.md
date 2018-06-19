@@ -1,0 +1,5 @@
+ARTÍCULO 34. DISPOSICIONES FINALES
+El Fideicomiso deberá hacer de conocimiento este Reglamento a los participantes en los procesos de contratación promovidos por este, que así lo requieran.
+Además, las violaciones que se hagan al presente Reglamento, así como actuaciones negligentes en los procesos de adquisición de Bienes, Obras y Servicios, acarrearán al responsable las sanciones correspondientes, de conformidad con la legislación laboral, civil, penal, así como la Ley de Contratación Administrativa. Si de la actuación dolosa o imprudente durante la tramitación del proceso de adquisición se derivare algún perjuicio económico, el responsable responderá con su patrimonio.
+Conforme la cláusula 3.6 “Rendición de cuentas” del Contrato de Fideicomiso, el Fiduciario, por medio de la UAP, según los mecanismos dispuestos en el MANOF, mantendrá informados a los Fideicomitentes y al Comité de Vigilancia, Fiscalización y Supervisión de las labores que realiza, particularmente del estado de las contrataciones, administración y pago de las obligaciones financieras.
+Rige a partir de su publicación en La Gaceta
