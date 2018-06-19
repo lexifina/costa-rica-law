@@ -15,3 +15,4 @@ Reglamento para el Control de la Contaminación por Ruido
 | --- | --- | --- |
 | 1 | 2016-01-29 | la propia norma |
 | 2 | 2016-06-27 | Decreto Ejecutivo 39900 (2016-06-27) |
+| 3 | 2018-06-19 | Decreto Ejecutivo 41305 (2018-06-19) |
