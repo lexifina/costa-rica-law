@@ -1,0 +1,1 @@
+Artículo 19.—Una vez otorgado el permiso, la Dirección de Desarrollo Urbano u oficina competente, custodiará el expediente con el fin de verificar que el trabajo se llevó a cabo como lo indica el permiso de construcción y posteriormente el expediente se quedara en su custodia debidamente archivado.
