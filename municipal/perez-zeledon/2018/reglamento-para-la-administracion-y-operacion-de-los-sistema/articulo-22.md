@@ -1,0 +1,1 @@
+Artículo 22.—Prohibición de venta por valor mayor al estipulado: Se prohíbe la venta de boletas por un precio mayor al consignado en la misma. El incumplimiento a lo anterior dará lugar a la pérdida de la autorización para su venta por el periodo de dos años.

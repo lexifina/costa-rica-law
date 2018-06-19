@@ -1,0 +1,1 @@
+Artículo 4º—Definición de la zona no céntrica: de conformidad con la ley N° 3580 y sus reformas, se determina como zona no céntrica, el área de a los poblados y núcleos consolidados de población existentes en el cantón exceptuando la zona céntrica.

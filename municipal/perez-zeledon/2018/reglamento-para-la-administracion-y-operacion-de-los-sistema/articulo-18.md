@@ -1,0 +1,1 @@
+Artículo 18.—De los medios para el cumplimiento: La Municipalidad de Pérez Zeledón, por medio de sus funcionarios autorizados, velará de que se cumpla con el pago de la tasa establecida en este reglamento y reportará los vehículos que infrinjan sus disposiciones.

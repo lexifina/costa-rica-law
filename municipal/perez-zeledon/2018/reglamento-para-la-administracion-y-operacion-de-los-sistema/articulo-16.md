@@ -1,0 +1,3 @@
+Artículo 16.—Estacionamiento en otras zonas no contempladas: La Municipalidad determinará, de común acuerdo con el Ministerio de Transportes y Obras Públicas, los espacios necesarios de parada de vehículos dedicados al transporte remunerado de personas.
+Por el uso de los espacios frente a las paradas terminales o fijas del servicio público, sean de autobuses, station wagons o taxis, no se cobrará suma alguna. Tampoco por los espacios libres que requiera de entrada de los garajes, por lo tanto, debe permanecer libre.
+Los vehículos dedicados al transporte remunerado de personas, no pagarán impuesto de estacionamiento, cuando usen las paradas que les fije el Ministerio de obras Públicas y Transportes.

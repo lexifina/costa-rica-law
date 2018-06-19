@@ -1,0 +1,2 @@
+Artículo 7º—Prohibición de estacionar sin placa: Queda terminantemente prohibido en las zonas de estacionamiento autorizado, estacionar vehículos que no tengan placas de circulación.
+Todo vehículo que no porta la placa correspondiente, se le practicará la multa del capítulo de sanciones de este reglamento y se le realizará al número de vin del vehículo, asimismo, podrá ser retirado por las autoridades de tránsito, a solicitud de la Municipalidad o por el personal municipal competente de conformidad a la Ley 9078, quien podrá actuar según las normas conferidas por dicha ley.

@@ -1,0 +1,1 @@
+Artículo 13.—Del uso de estacionamiento sin boleta: Todo conductor de vehículo deberá contar con boleta debidamente autorizada por la Municipalidad para aparcar su automotor, la violación a este artículo constituirá la sanción de multa estipulada en el capítulo de sanciones de este reglamento

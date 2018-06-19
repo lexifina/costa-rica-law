@@ -1,0 +1,1 @@
+Artículo 5º—Aparcamiento de vehículos: Todo conductor que aparque su vehículo dentro de un área demarcada en la vía pública, deberá hacerlo en el área autorizada correspondiente y hacer uso correcto de las indicaciones establecidas en el presente instrumento.

@@ -1,0 +1,1 @@
+Artículo 14.—Del uso de estacionamiento con boleta vencida: La utilización de los espacios de parqueo con boletas vencidas constituirá la sanción de multa estipulada en el capítulo de sanciones de este reglamento.
