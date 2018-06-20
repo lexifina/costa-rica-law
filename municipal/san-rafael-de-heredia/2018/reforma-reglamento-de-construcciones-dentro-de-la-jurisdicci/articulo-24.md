@@ -1,0 +1,5 @@
+Artículo 24.—Vigencia. Rige a partir de su publicación.
+Transitorio I.—Toda solicitud o trámite administrativo que haya sido presentado antes de la publicación en La Gaceta Oficial y definitiva entrada en vigencia de este Reglamento será tramitada de acuerdo a las normas vigentes a la fecha de la solicitud y de acuerdo a los procedimientos internos definidos por el departamento a cargo. Una vez resueltas y comunicadas todas estas solicitudes a los permisionarios, el procedimiento anterior quedará derogado.
+Transitorio III.—Con la entrada en vigencia de este Reglamento todo proyecto que este pendiente de ejecutar por parte del propietario estará vigente conforme se expone en este.
+Transitorio IV.—Aplicación supletoria. En todo lo que expresamente no quede estipulado en el presente Reglamento, se aplicará las disposiciones contenidas en el Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones y en toda ley o reglamento conexo y concordante que no se le oponga.
+Transitorio V.—Una vez que entre en vigencia este reglamento todo proyecto podrá ser sujeto de las sanciones expuestas en este.

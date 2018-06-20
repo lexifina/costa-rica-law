@@ -1,0 +1,2 @@
+Artículo 9°—Agregar un artículo 37° BIS en el cual se indique:
+Articulo 37°BIS—Cercas en lotes baldíos. Todo predio no ocupado que colinde con la vía pública, deberá cercar su perímetro hasta una altura de 2,00 m según la Ley de Construcciones Nº 833 y el Reglamento de los Artículos 75, 76, 76 BIS, 76 TER, del Código Municipal, Ley 7794, o cualquier normativa vigente, acatando las normas municipales en resguardo de la salubridad, seguridad y ornato.

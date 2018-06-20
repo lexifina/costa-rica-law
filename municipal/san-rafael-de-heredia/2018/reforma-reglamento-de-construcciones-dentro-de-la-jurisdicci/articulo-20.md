@@ -1,0 +1,2 @@
+Artículo 20.—Modificar el artículo 78° para que en adelante se lea:
+Artículo 78.—Durante el proceso de demolición, todo propietario, profesional responsable o administrado en general, podrá solicitar a la Municipalidad hasta un plazo máximo de tres meses para poner a derecho su situación. La solicitud de aplicación del plazo para solucionar el problema solo se podrá otorgar una única vez. (Lo indicado en este artículo aplica únicamente para aquellos proyectos que se puedan poner a derecho con la presentación de los requisitos correspondiente al municipio).

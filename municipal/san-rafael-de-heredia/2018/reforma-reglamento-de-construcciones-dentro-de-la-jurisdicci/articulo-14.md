@@ -1,0 +1,3 @@
+Artículo 14.—Modificar el artículo 52° para que en adelante se lea:
+Artículo 52.—Cocheras. Las cocheras cubiertas en zonas de antejardín obligatorio se podrán construir, siempre y cuando el terreno en el cual se va a construir se ubica en vía cantonal, ya que con respecto a los inmuebles que se ubiquen frente a ruta nacional se deberá respetar el alineamiento del MOPT conforme al artículo 39.
+En caso de que la cochera este compuesta por paredes solidas además de la cubierta, estas paredes deberán cumplir con lo indicado en los artículos 50 y 51 del Reglamento. Todas las salidas de cocheras y de propiedades en general deben cumplir con la ley 7600 y en ninguna circunstancia obstaculizar la vía pública.

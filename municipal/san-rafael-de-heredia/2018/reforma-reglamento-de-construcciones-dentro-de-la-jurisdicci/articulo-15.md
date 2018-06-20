@@ -1,0 +1,4 @@
+Artículo 15.—Agregar un artículo 57° BIS en el cual se indique:
+Artículo 57 BIS—Retiros entre 2 o más edificaciones: estos retiros deberán cumplir con la normativa dispuesta por el BCBCR, en materia de muros cortafuegos, en su defecto la separación entre edificaciones será la siguiente:
+a) Cuando se trate de edificaciones en diferentes propiedades, las mismas se deberán separar unas de otras aplicando la norma referente a retiros del presente reglamento cuando existan ventanas, balcones, terrazas, vanos o cualquier otro elemento que permita la visibilidad al colindante.
+b) En el caso de edificaciones en una misma propiedad, la separación entre ambas será un mínimo equivalente a un cuarto de la altura de la edificación, pero nunca menor a tres metros. En los casos donde existan edificaciones con alturas distintas se utilizará la altura menor para dicho cálculo.
