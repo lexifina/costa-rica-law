@@ -1,0 +1,6 @@
+Artículo 101.- Responsabilidades derivadas de la declaratoria de culpabilidad del funcionario. En el caso de que el funcionario autorizado para conducir el equipo móvil sea declarado culpable por parte de los Tribunales de Justicia, en sentencia firme, se deberá proceder de la siguiente manera:
+a) Si el valor de las reparaciones e indemnizaciones supera el monto del deducible, el funcionario responsable deberá cancelar, mediante entero de gobierno, la suma correspondiente al deducible aplicado por la Entidad Aseguradora.
+b) Si el monto de las reparaciones o indemnizaciones resulta inferior al monto del deducible, el funcionario responsable deberá cancelar, mediante entero de gobierno, la suma que corresponda al valor de la reparación.
+c) En el evento que la póliza no cubra los daños causados con motivo del accidente, el funcionario responsable deberá cancelar, mediante entero de gobierno, la suma que corresponda.
+Todo lo anterior, sin perjuicio de las responsabilidades penales que los Tribunales determinen y de las responsabilidades administrativas o disciplinarias que pudieran derivar del hecho.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 41308 del 20 de junio de 2018)

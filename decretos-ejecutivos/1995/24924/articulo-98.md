@@ -1,0 +1,2 @@
+Artículo 98.- Uso de vehículos fuera de horario ordinario. Para la salida de los vehículos propiedad de la institución en días no hábiles o fuera de horas de oficina, el chofer o funcionario autorizado deberá portar en el vehículo el formulario respectivo con la autorización emitida por la Oficialía Mayor, el cual deberá portar en todo momento con el fin de mostrarlo a la autoridad de tránsito cuando ésta lo requiera, según lo establece la Ley de Tránsito por Vías Públicas Terrestres.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 41308 del 20 de junio de 2018)
