@@ -1,0 +1,11 @@
+Artículo 6º—Funciones del Comité de Inversiones. El Comité de Inversiones desempeñará, las siguientes funciones:
+a) Proponer para aprobación de la Administración, la política de inversiones de los fondos administrados según lo establecido en el presente Reglamento.
+b) Deberá sesionar trimestralmente con el objeto de determinar la estrategia de inversión.
+c) La participación de los miembros del Comité de Inversiones es obligatoria, actuando con voz y voto en el análisis y decisiones en materia de inversión. Será responsabilidad del Tesorero Municipal, las convocatorias a las sesiones del Comité. Los acuerdos se tomarán por simple mayoría.
+d) Constituir la cartera o portafolio de inversiones de la Municipalidad de San Rafael de Heredia.
+e) Tomar decisiones debidamente fundamentadas sobre la constitución, modificación, cancelación y recomposición de la cartera o portafolio de inversiones, sobre los ajustes a los activos o ingresos involucrados en las operaciones anteriores.
+Aprobar estas decisiones mediante la suscripción de actas que deberán cumplir en todo momento con los requisitos que se establecen en el presente reglamento.
+f) Presentar a la Presidencia de la Comisión alternativas de soporte para el mejoramiento en la toma de decisiones orientadas a la optimización de la cartera o portafolio de inversiones, tales como seminarios, conferencias, charlas, suscripción a boletines o periódicos sobre el mercado financiero y de valores.
+g) Considerar y establecer las medidas correspondientes, de acuerdo con las circunstancias especiales, para que en las decisiones del Comité de Inversiones en relación con la conformación de la cartera o portafolio de inversiones, se pueda atender al origen y el destino de los recursos financieros, en aspectos tales como el asignar los intereses devengados y recibidos a recursos de naturaleza específica.
+h) Realizar sesiones extraordinarias, si el caso lo amerita, cada vez que lo solicite la Tesorería, el Jefe del Departamento Contable, sus integrantes, o el Concejo Municipal.
+i) Elaborar el acta numerada de cada sesión o digital y obtener las firmas de los participantes, indicando en forma clara y precisa los asuntos tratados, análisis y decisiones tomadas.
