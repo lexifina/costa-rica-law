@@ -1,4 +1,6 @@
+(Derogado)
 N° 38536-MP-PLAN
+(Este decreto ejecutivo fue derogado por el artículo 14 del Reglamento Orgánico del Poder Ejecutivo, aprobado mediante decreto ejecutivo N° 41187 del 20 de junio del 2018)
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE LA PRESIDENCIA
 Y LA MINISTRA DE PLANIFICACIÓN
