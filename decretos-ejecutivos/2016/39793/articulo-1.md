@@ -1,6 +1,5 @@
 N° 39793-MTSS-MOPT
-(Nota de Sinalevi: Mediante el artículo 21° del decreto ejecutivo N° 40296 del 28 de marzo de 2017, se estableció lo siguiente: “Se prorroga por un plazo de seis meses la aplicación facultativa de los horarios escalonados de ingreso y salida de la jornada laboral, así como la jornada acumulativa voluntaria, de los funcionarios de los Ministerios y sus órganos adscritos ubicados dentro, del Área Metropolitana de San José según lo establecido en el Decreto Ejecutivo N° 39793-MTSS-MOPT del 12 de julio de 2016.
-Con tal fin, los titulares de los Ministerios y sus órganos adscritos tendrán la facultad de continuar con la aplicación de los tres rangos de horarios de ingreso así como la jornada acumulativa voluntaria, dependiendo de las necesidades institucionales y la respuesta que haya tenido por parte de las parte de las personas funcionarias, para lo cual debe de hacerse la respectiva valoración e informar su resultado al Ministerio de Trabajo y Seguridad Social en el plazo de cinco días a partir de la publicación del presente decreto..”)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 41193 del 20 de junio de 2018, se acordó prorrogar de forma facultativa la implementación de los horarios escalonados y la jornada acumulativa voluntaria en la administración central, hasta el 30 de junio de 2020, la cual podrá ser prorrogada según sea necesario.)
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE RABAJO Y SEGURIDAD SOCIAL Y
 EL MINISTRI DE OBRAS PÚBLICAS
