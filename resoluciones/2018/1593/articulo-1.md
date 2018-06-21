@@ -1,0 +1,18 @@
+MINISTERIO DE SALUD
+LA MINISTRA DE SALUD
+N° DM-JM-1593-2018.—En el uso de las facultades que le confiere los artículos 28 inciso 2) literal a) de la Ley N° 6227 del 02 de mayo de 1978, “Ley General de la Administración Pública”; 1, 2, 4, 7, de la Ley N° 5395 del 30 de octubre de 1973, “Ley General de Salud”; 1, 2 incisos b) y c) y 6 de la Ley N° 5412 del 08 de noviembre de 1973, “Ley Orgánica del Ministerio de Salud; Ley N° 8655 del 17 de julio del 2008, “Ley de Aprobación del Convenio Marco dela Organización Mundial de la Salud (OMS) para el Control del Tabaco”; Decreto Ejecutivo N° 34705 del 14 de agosto del 2008, “Ratificación de la República de Costa Rica al Convenio Marcode la Organización Mundial de la Salud (OMS) para el Control del Tabaco”, suscrito el 23 de julio del 2003; 9, 10 y 11 de la Ley N° 9028 del 22 de marzo del 2012, “Ley General de Control del Tabaco y sus Efectos Nocivos en la Salud”;
+Considerando:
+I.—Que la salud de la población es tanto un derecho humano fundamental, como un bien de interés público tutelado por el Estado.
+II.—Que es competencia del Ministerio de Salud definir la política, la regulación, la planificación y la coordinación de todas las actividades públicas y privadas relacionadas con la salud.
+III.—Que existen estudios a nivel internacional que evidencian que el uso de los términos tales como “bajo en alquitrán”, “light”, “ultra light”, “suave”, “extra” y “ultra” hacen parecer que el producto es menos nocivo, lo cual no es cierto y provoca un consumo mayor de cigarrillos.
+IV.—Que se ha demostrado que la incorporación de los mensajes sanitarios en el etiquetado de productos de tabaco, es un medio costo-efectivo para sensibilizar al público, igualmente tienen el propósito de informar y educar a los consumidores y población en general, sobre los efectos nocivos del tabaco y sus derivados.
+V.—Que los mensajes sanitarios constituyen un medio para informar y educar a los consumidores y a la población en general, acerca de los efectos nocivos que el consumo de tabaco y la exposición al humo de tabaco, provocan a la salud de las personas.
+VI.—Que los mensajes sanitarios proporcionan información que apoyan las estrategias para desalentar a las personas a que inicien en el consumo de tabaco y sus derivados, sobre todo a las personas jóvenes y adolescentes.
+VII.—Que el artículo 9 inciso a) de la Ley N° 9028, “Ley General de Control del Tabaco y sus Efectos Nocivos en la Salud” otorga la competencia al Ministerio de Salud para definir y aprobar los mensajes sanitarios y advertencias sanitarias, que deben ubicarse en los empaques primarios y secundarios que contengan cigarrillos o algún derivado de productos del tabaco.
+VIII.—Que el artículo 11 del Decreto Ejecutivo N° 37778- S, “Reglamento de Etiquetado de los Productos de Tabaco y sus Derivados”, establece que el Ministerio de Salud, de acuerdo con el artículo 9 de la Ley N° 9028, definirá vía resolución, la Unidad Organizativa responsable de definir y aprobar los mensajes sanitarios y advertencias que deberán imprimirse en los empaques primarios y secundarios de los productos de tabaco y sus derivados.
+IX.—Que por todas las consideraciones expuestas, se hace necesario y oportuno dictar la presente Resolución que crea la Comisión para la Regulación del Etiquetado de Productos de Tabaco. Por tanto,
+LA MINISTRA DE SALUD,
+RESUELVE:
+Crear la Comisión para la Regulación del Etiquetado
+de Productos de Tabaco.
+Artículo 1º—Objetivo. Crear una Comisión que se encargue de robustecer y mejorar el Programa de Control de Tabaco del Ministerio de Salud, en cuanto a lo referido a la regulación del etiquetado de productos de tabaco.
