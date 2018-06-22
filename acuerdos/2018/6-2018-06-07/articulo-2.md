@@ -1,0 +1,1 @@
+Artículo 2º—Funciones. La Comisión de Baja de Bienes por Donación, tendrá como funciones las señaladas en el Decreto Ejecutivo N° 40797-H “Reglamento para el registro y control de bienes de la administración central y reforma Reglamento a la Ley de la Administración Financiera de la República y Presupuestos Públicos”.

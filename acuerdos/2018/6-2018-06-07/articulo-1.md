@@ -1,0 +1,15 @@
+N° 006-2018-MAG
+EL MINISTRO DE AGRICULTURA Y GANADERÍA
+Despacho del Ministro de Agricultura y Ganadería.—San José, a las ocho horas del siete de junio del dos mil dieciocho.
+El Ministro de Agricultura y Ganadería, en uso de las facultades que le confiere el artículo 28 inciso 2 a) y 89 inciso 2) y 48 de la Ley General de la Administración Pública N° 6227 del 2 de mayo de 1978, el artículo 104 de la Ley de la Administración Financiera de la República y Presupuestos Públicos Nº 8131 de 18 de setiembre del 2001, así como los artículos 25 y 39 del Decreto Ejecutivo N° 40797-H del 28 de noviembre del 2017, Reglamento para el Registro y Control de Bienes de la Administración Central, y el artículo 6, párrafos 2 y 3 del Decreto Ejecutivo N° 40863-MAG “Reglamento orgánico del Ministerio de Agricultura y Ganadería” del 16 de enero del 2018.
+Considerando
+I.—Que, de conformidad con el procedimiento establecido por el Ministerio de Hacienda en el Decreto Ejecutivo N° 40797-H “Reglamento para el registro y control de bienes de la administración central y reforma Reglamento a la Ley de la Administración Financiera de la República y Presupuestos Públicos”, para dar de baja bienes por donación, se debe contar con una Comisión de Donación.
+II.—Que el artículo 25, párrafo III del Decreto Ejecutivo N° 40797-H “Reglamento para el registro y control de bienes de la administración central y reforma Reglamento a la Ley de la Administración Financiera de la República y Presupuestos Públicos”, dispone:
+“(...) Cada institución contará con una Comisión de Donación, de nombramiento del máximo jerarca de la institución; conformada al menos por el Director Administrativo, el Proveedor Institucional y el funcionario destacado en la UABI; la que se encargará de recomendar las donaciones.”
+III.—Que conforme lo establece el artículo 10 de la Ley General de Control Interno, Ley N° 8292 del 31 de julio del 2002, el Jerarca y los Titulares Subordinados, son responsables de establecer, mantener, perfeccionar, y evaluar el Sistema de Control Interno Institucional. Para lo cual, el artículo 15 del mismo cuerpo normativo, establece, entre otros, como deber de dichos funcionarios, el documentar, actualizar y divulgar internamente tanto las políticas como los procedimientos que definan claramente, entre otros, la protección y conservación de todos los activos institucionales.
+IV.—Que el Ministro de Agricultura y Ganadería, es quien tiene la potestad de nombrar la Comisión de Donación. Por tanto;
+ACUERDA
+NOMBRAR LA COMISIÓN DE BAJA DE BIENES
+POR DONACIÓN DEL MINISTERIO DE
+AGRICULTURA Y GANADERÍA
+Artículo 1º—Nombramiento de la Comisión: Se nombra la Comisión de Baja de Bienes por Donación del Ministerio de Agricultura y Ganadería, la cual estará integrada por los siguientes funcionarios o, quienes en su lugar ocupen el cargo: Ana Gabriela Sáenz Amador, cédula de identidad 109670955, Directora Administrativa Financiera, quien presidirá; Blanca Córdoba Berrocal, cédula de identidad 601500163, Proveedora Institucional; Alexandra Alvarez Arredondo, cédula de identidad 109740948, coordinadora del área de Almacén y Distribución.
