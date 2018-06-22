@@ -13,3 +13,4 @@ Reglamento de puestos de confianza en el Poder Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-11-05 | la propia norma |
+| 2 | 2018-06-22 | Circular 74 (2018-06-22) |

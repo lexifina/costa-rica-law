@@ -1,1 +1,2 @@
-Artículo 5°: La persona que sea designada en un cargo calificado como de confianza, y que tenga un puesto en propiedad en el Poder Judicial, mantendrá dicha propiedad por todo el tiempo que desempeñe el puesto de confianza. Al cesar el cargo de confianza, tendrá derecho a la indemnización parcial de los derechos laborales que corresponda.
+Artículo 5°: La persona que sea designada en un cargo calificado como de confianza, y que tenga un puesto en propiedad en el Poder Judicial, mantendrá dicha propiedad. Al cesar el cargo de confianza, tendrá derecho a regresar a su puesto.
+(Así reformado mediante circular N° 74 del 22 de junio de 2018)
