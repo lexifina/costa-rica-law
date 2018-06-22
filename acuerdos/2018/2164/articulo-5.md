@@ -1,0 +1,1 @@
+V.—Le corresponde al Departamento de Recursos Humanos asignarle la correspondiente especialidad y subespecialidad a todos los puestos que se encuentren ocupados de manera permanente o en sustitución a la fecha de rige del presente acuerdo, así como mantener actualizado el Registro de Especialidades que se elabore con este fin.

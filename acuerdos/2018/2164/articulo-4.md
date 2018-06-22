@@ -1,0 +1,1 @@
+IV.—Es responsabilidad de la Dirección Administrativa Financiera, a través de su Departamento de Recursos Humanos, dotar a la Defensoría de los Habitantes de un Manual de Especialidades y Subespecialidades y su respectivo Manual de Atinencias propio para su actividad, mediante una eventual contratación administrativa o por cualquier otro medio de que se disponga oportunamente.
