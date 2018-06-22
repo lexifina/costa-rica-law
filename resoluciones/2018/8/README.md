@@ -15,3 +15,4 @@ Requisitos para realizar todo tipo de trámite ante la Dirección General de Tri
 | --- | --- | --- |
 | 1 | 2018-03-09 | la propia norma |
 | 2 | 2018-03-23 | Resolución 17 (2018-03-23) |
+| 3 | 2018-06-22 | Resolución 31 (2018-06-22) |
