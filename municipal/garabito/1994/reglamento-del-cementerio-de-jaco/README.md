@@ -16,3 +16,4 @@ Reglamento del Cementerio de Jacó
 | 1 | 1994-03-23 | la propia norma |
 | 2 | 2008-10-29 | Reglamento municipal 130 (2008-10-29) |
 | 3 | 2017-09-27 | Acuerdo municipal 0 (2017-09-27) |
+| 4 | 2018-06-22 | Reglamento municipal 0 (2018-06-22) |
