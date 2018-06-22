@@ -1,0 +1,1 @@
+Artículo 2°—Autorizar dos aumentos generales al salario base de todas las categorías del sector público, consistentes en ¢3.750,00 (tres mil setecientos cincuenta colones), cada uno. Mismos que corresponden a la fijación salarial tanto del II semestre del año 2018, como el del I semestre del año 2019.

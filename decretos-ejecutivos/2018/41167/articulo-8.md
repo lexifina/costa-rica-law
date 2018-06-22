@@ -1,0 +1,1 @@
+Artículo 8°—Los ajustes salariales indicados en el artículo 2° de este Decreto rigen a partir del 01 de julio del 2018, en lo relativo al ajuste salarial del II semestre del año 2018 y del 01 de enero de 2019, en lo pertinente al I semestre del año 2019.

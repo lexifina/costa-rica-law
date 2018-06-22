@@ -1,0 +1,1 @@
+Artículo 9°—Los ajustes salariales definidos en el artículo 2 de este Decreto, se harán efectivos de acuerdo a la capacidad operativa del Ministerio de Hacienda, siempre respetando la vigencia de cada uno de los aumentos, lo cual podría implicar un reconocimiento retroactivo.

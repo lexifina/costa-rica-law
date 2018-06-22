@@ -1,0 +1,1 @@
+Artículo 6°—Se excluye de estos aumentos al Presidente de la República, Vicepresidentes, Ministros (as), Viceministros (as), Presidentes (as) Ejecutivos (as), Gerentes (as) y Subgerentes (as) del Sector Público Descentralizado.
