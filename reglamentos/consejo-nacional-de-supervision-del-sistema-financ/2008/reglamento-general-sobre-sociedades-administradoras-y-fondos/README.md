@@ -30,3 +30,4 @@ Reglamento General sobre Sociedades Administradoras y Fondos de Inversión
 | 15 | 2015-03-23 | Reglamento 1156 (2015-03-23) |
 | 16 | 2016-06-17 | Reglamento 1259 (2016-06-17) |
 | 17 | 2016-06-21 | Reglamento 1261 (2016-06-21) |
+| 18 | 2018-06-25 | Reglamento 1426 (2018-06-25) |
