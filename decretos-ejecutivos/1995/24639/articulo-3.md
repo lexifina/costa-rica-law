@@ -1,1 +1,2 @@
-Artículo 3°—El manejo y aprovechamiento de la vida silvestre estará sujeto a un plan de manejo aprobado por la Dirección General de Vida Silvestre. La ejecución del plan de manejo será supervisado por la Dirección General de Vida Silvestre quien podrá señalar disposiciones técnicas y científicas futuras que deberán ser seguidas por los propietarios.
+Artículo 3°—El manejo y aprovechamiento de la vida silvestre estará sujeto al el Plan General de Manejo aprobado por el Consejo Nacional de Áreas de Conservación (CONAC)
+(Así reformado por el artículo 2° del decreto ejecutivo N° 41281 del 25 de junio del 2018)

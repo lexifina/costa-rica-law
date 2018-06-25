@@ -1,1 +1,2 @@
 Artículo 5°—Dichas propiedades estarán sometidos a la categoría de Refugio de Vida Silvestre durante un período de cinco años prorrogables por períodos iguales para lo cual los propietarios deberán solicitarlo con un mes de antelación a la finalización de dicho período.
+(Nota de Sinalevi: Mediante el artículo 3° del decreto ejecutivo N°41281 del 25 de junio del 2018, se acordó prorrogar por un periodo de cinco años iguales la Declaratoria de Refugio de Vida Silvestre Propiedad Mixta finca Barú del Pacífico, de conformidad con este artículo.)
