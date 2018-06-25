@@ -1,0 +1,4 @@
+INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO
+El Instituto Nacional de Vivienda y Urbanismo comunica que mediante acuerdo de Junta Directiva tomado en Sesión Ordinaria N° 6321, Artículo II, Inc. 1), celebrada el 21 de junio del 2018, se tomó acuerdo que textualmente dice:
+Con los votos a favor del Arq. Tomás Martínez Baldares, Arq. Eugenia Solís Umaña, Arq. Ana Monge Fallas, Lic. Alejandro Li Glau, Arq. Lucía Artavia Guzmán, Ing. Edgar Jiménez Mata y Lic. Rodolfo Freer Campos, se acuerda: a) Ampliar hasta el 31 de julio del 2018 la vigencia del Transitorio Primero del Reglamento de Construcciones publicado el 22 de marzo del 2018 en el Alcance N° 62 de La Gaceta, en atención al oficio MIVAH-DMVAH-0461-2018 suscrito por la señora Irene Campos Gómez, Ministra de Vivienda y Asentamientos Humanos. Acuerdo firme.
+San José, 21 de junio, 2018.—
