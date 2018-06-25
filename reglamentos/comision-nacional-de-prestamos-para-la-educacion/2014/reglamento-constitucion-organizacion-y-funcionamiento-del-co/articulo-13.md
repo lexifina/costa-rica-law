@@ -1,1 +1,1 @@
-Artículo 13.—Los cambios, adiciones y eliminaciones a los planes, programas, presupuestos y proyectos de TI, deben ser analizados por el Comité de TIC, para su recomendación ante el Consejo Directivo.
+Artículo 13.—Los acuerdos tomados por el Comité de TIC, serán válidos por simple mayoría de votos, en caso de empate, el Presidente del Comité, tendrá doble voto.

@@ -14,3 +14,4 @@ Reglamento constitución, organización y funcionamiento del Comité de Tecnolog
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-11-10 | la propia norma |
+| 2 | 2018-06-25 | Reglamento 20 (2018-06-25) |

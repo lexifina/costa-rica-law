@@ -1,1 +1,2 @@
-Artículo 16.—Si alguno de los miembros considera que un acuerdo es contrario a los intereses de CONAPE, deberá solicitar constancia de la razonabilidad de su voto negativo, en el acta respectiva.
+Artículo 16.—En cada inicio de sesión, una vez vista la agenda del día, se someterá a discusión el borrador del acta anterior, para efectos de proceder a su aprobación y firma; se podrán realizar las modificaciones, de forma y de fondo, que los miembros del Comité estimen procedentes debidamente justificadas. Una vez firmada el acta se archivará en el expediente de control con su respectivo folio, legalizado por la Auditoría Interna.
+Los acuerdos tomados por el Comité de TIC, quedarán “en firme” el día que se tomen, excepto cuando los miembros acuerden lo contrario.

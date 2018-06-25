@@ -1,1 +1,4 @@
-Artículo 12.—Los planes, programas, presupuestos y proyectos relativos a TI deberán contar con el visto bueno del Comité, cumpliendo con el formato establecido, según los estándares vigentes en la Institución para ser presentados al Consejo Directivo.
+CAPÍTULO IV
+De las sesiones ordinarias y extraordinarias
+Artículo 12.—El Comité de TIC, se reunirá, en sesión ordinaria, el primer martes hábil de cada mes.
+Las sesiones extraordinarias serán convocadas por la Secretaría cuando haya algún asunto de suma importancia y urgencia, o cuando la mayoría de los miembros del Comité lo requieran.

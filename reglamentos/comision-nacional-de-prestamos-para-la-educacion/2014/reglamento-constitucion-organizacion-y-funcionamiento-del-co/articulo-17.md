@@ -1,1 +1,3 @@
-Artículo 17.—De cada sesión se redactará un acta con los acuerdos tomados, así como con los asuntos tratados. Una copia digital del borrador del acta se entregará a cada uno de los miembros, antes de la próxima sesión, para su revisión y aprobación. La Secretaría designará el recurso requerido para el levantamiento, registro, distribución y seguimiento de las actas y de acuerdos, las cuales deberán estar disponibles en un medio digital para consulta de los miembros del Consejo Directivo y funcionarios de CONAPE.
+CAPÍTULO V
+Disposiciones finales
+Artículo 17.—El Reglamento Constitución, Organización y Funcionamiento del Comité de Tecnologías de Información y Comunicación de CONAPE, rige a partir de su publicación en el Diario Oficial La Gaceta.

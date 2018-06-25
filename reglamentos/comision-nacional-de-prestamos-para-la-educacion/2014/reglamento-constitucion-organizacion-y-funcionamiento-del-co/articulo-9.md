@@ -1,6 +1,1 @@
-CAPÍTULO III
-Organización y coordinación
-Artículo 9º—Al Presidente del Comité de TIC, le corresponderá:
-a) Presidir y coordinar el desarrollo de las sesiones.
-b) Fijar directrices generales e impartir instrucciones en cuanto a los aspectos de forma de las labores del Comité de TIC.
-c) Comunicar e informar al Consejo Directivo de CONAPE, sobre los acuerdos tomados en el Comité de TIC cuando por su importancia e interés institucional, requieren de la aprobación del Jerarca.
+Artículo 9º—El Comité de TIC, está facultado para recomendar la contratación, dentro de lo establecido por la ley de Contratación Administrativa y su reglamento, si así lo requiere, y cumpliendo con los procedimientos establecidos, una persona física o jurídica, podrá apersonarse para que asesore a sus miembros, en materia de tecnologías de información y comunicación, para considerar una opinión externa sobre algún tema o proyecto que así lo requiera, con el fin de fortalecer y fundamentar los acuerdos, así como las recomendaciones que se emitan ante el Consejo Directivo.

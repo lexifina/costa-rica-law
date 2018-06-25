@@ -1,1 +1,1 @@
-Artículo 18.—En cada inicio de sesión, una vez vista la agenda del día, se someterá a discusión el borrador del acta anterior, para efectos de proceder a su aprobación y firma; se podrán realizar las modificaciones, de forma y de fondo, que los miembros del Comité estimen procedentes debidamente justificadas. Una vez firmada el acta se archivará en el expediente de control con su respectivo folio, legalizado por la Auditoría Interna.
+Artículo 18.—El presente reglamento deroga cualquier otra disposición que se le oponga.
