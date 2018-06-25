@@ -1,0 +1,9 @@
+Artículo 6º—El Ministerio de Salud dispone de las siguientes cuentas en el Banco Nacional de Costa Rica para que los interesados realicen el pago de los servicios según las tarifas contenidas en el artículo 3 del presente reglamento que no se encuentren en el Sistema Regístrelo:
+Cuenta Colones
+Cuenta Corriente: 100-01-000-213715-6 Fideicomiso 872
+Ministerio de Salud.
+Cuenta Cliente: 15100010012137157
+Cuenta en Dólares
+Cuenta Corriente: 100-02-000-617477-5 Fideicomiso 872
+Ministerio de Salud.
+Cuenta Cliente: 15100010026174771
