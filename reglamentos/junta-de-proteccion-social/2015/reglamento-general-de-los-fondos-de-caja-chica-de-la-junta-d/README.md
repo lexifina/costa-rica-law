@@ -14,3 +14,4 @@ Reglamento general de los fondos de caja chica de la Junta de Protección Social
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-12-18 | la propia norma |
+| 2 | 2018-06-25 | Reglamento 31 (2018-06-25) |
