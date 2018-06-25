@@ -14,3 +14,4 @@ Reglamento regulaciones generales para la participación de la empresa privada e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-14 | la propia norma |
+| 2 | 2018-06-25 | Reglamento 6033 (2018-06-25) |
