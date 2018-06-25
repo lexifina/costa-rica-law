@@ -1,5 +1,4 @@
 Artículo 14.—Requerimiento de capital por riesgo crediticio. El requerimiento de capital por riesgo crediticio es igual a la sumatoria del ponderador de riesgo crediticio correspondiente, multiplicado por el valor de mercado de cada título que forme parte de la cartera de inversiones propias de la entidad:
-[imagen]
 Donde:
 RRCR: Requerimiento por riesgo crediticio
 lRC: Ponderador por riesgo crediticio
@@ -31,7 +30,8 @@ BBB – B | 9,0%
 CCC y otros | 10,0%
 Para efectos de determinar este requerimiento, se debe tomar en cuenta lo siguiente:
 a. Se considera la última calificación vigente.
-b. La calificación debe ser otorgada por una empresa calificadora de riesgo autorizada por la SUGEVAL o reconocida como nacional por la Comisión de Valores de Estados Unidos.
+b. La calificación debe ser otorgada por una empresa calificadora de riesgo. No obstante, la entidad debe contar con procedimientos que le permitan entender la metodología, los parámetros y la base sobre la que se elaboró la opinión de la sociedad calificadora local o extranjera, en particular para identificar su alcance y limitaciones. Las calificaciones de riesgo de crédito no sustituyen a la debida diligencia de las entidades en establecer procesos de valoración internos del riesgo crediticio que se asumen por la posición en un emisor, emisión o contraparte específico.
+(Así reformado el inciso anterior mediante sesión N° 1426-2018 del 25 de junio de 2018)
 c. Cada categoría de riesgo incluye todas las perspectivas (positiva, estable o negativa) y niveles (alto, medio, bajo).
 d. Se considera la calificación de riesgo de la emisión; en su defecto, se toma la calificación del emisor.
 e. Cuando existan dos ó más calificaciones se aplica la menor calificación.

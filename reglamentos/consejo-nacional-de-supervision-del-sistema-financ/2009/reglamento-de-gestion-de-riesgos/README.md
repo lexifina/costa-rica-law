@@ -22,3 +22,4 @@ Reglamento de Gestión de Riesgos
 | 7 | 2015-02-23 | Reglamento 1150 (2015-02-23) |
 | 8 | 2016-06-17 | Reglamento 1259 (2016-06-17) |
 | 9 | 2016-06-21 | Reglamento 1261 (2016-06-21) |
+| 10 | 2018-06-25 | Reglamento 1426 (2018-06-25) |
