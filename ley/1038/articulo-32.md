@@ -1,9 +1,2 @@
-Artículo 32.- Habrá un Tribunal de Honor compuesto de cinco
-miembros, que elegirá la Junta General en la misma sesión en que se elige
-la Junta Directiva. Este Tribunal conocerá, actuando exclusivamente como
-juez de conciencia, de cualquier diferencia de orden moral entre los
-miembros del Colegio, o entre éstos y particulares. Es incompatible el
-cargo de miembro del Tribunal de Honor con cualquier otro cargo del
-Colegio.
-( Así reformado por el artículo 1º de la ley No. 140 de 13 de agosto de
-1948 ).
+Artículo 32- Habrá un Tribunal de Honor compuesto por cinco miembros, que elegirá la Asamblea General en la misma sesión en que se elige la Junta Directiva, por un período de tres años. Este Tribunal actuará exclusivamente como juez de conciencia, en relación con cualquier diferencia de orden moral entre los miembros del Colegio, o entre estos y particulares. Es incompatible el cargo de miembro del Tribunal de Honor con cualquier otro cargo del Colegio.
+(Así reformado por el artículo 2° de la ley N° 9585 del 26 de junio de 2018)
