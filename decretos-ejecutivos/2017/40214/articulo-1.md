@@ -1,5 +1,5 @@
 N° 40214-MP-MTSS
-(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 40734 del 14 de noviembre del 2017, se acordó la ampliación del plazo para la intervención del Instituto Nacional de Fomento Cooperativo (INFOCOOP), dictada por el presente decreto ejecutivo hasta por un plazo de siete meses, partir de la entrada en vigencia del Decreto Ejecutivo N° 40734 del 14 de noviembre de 2017, es decir hasta el 28 de junio de 2018)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 41189 del 26 de junio del 2018, se acordó la ampliación del plazo para la intervención del Instituto Nacional de Fomento Cooperativo (INFOCOOP), dictada por el presente decreto ejecutivo hasta 28 de junio del 2019)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE LA PRESIDENCIA
 Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
