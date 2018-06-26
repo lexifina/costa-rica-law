@@ -14,3 +14,4 @@ Establece la apertura de los datos públicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-05-12 | la propia norma |
+| 2 | 2018-06-26 | Decreto Ejecutivo 41190 (2018-06-26) |

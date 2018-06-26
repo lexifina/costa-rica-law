@@ -1,6 +1,6 @@
 Artículo 9. La Secretaría Técnica de la Política Nacional de Apertura de Datos Públicos.
-La Secretaria Técnica de la Política Nacional de Apertura de Datos Públicos se crea en el
-Ministerio de la Presidencia con las siguientes funciones:
+La Secretaría Técnica de la Política Nacional de Apertura de Datos Públicos se crea en el Ministerio de Comunicación con las siguientes funciones:
+(Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 41190 del 26 de junio del 2018)
 ● Acompañar a las instituciones en la implementación de los planes de apertura de datos.
 ● Asesorar técnicamente a las distintas instituciones estatales para el diseño de los planes de publicación de datos abiertos y su implementación.
 ● Procurar la ejecución de la política, los planes de acción y demás instrumentos que lleven a la disponibilidad y uso de los datos abiertos de carácter público;
