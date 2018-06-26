@@ -14,3 +14,4 @@ Declara de Interés Público la Estrategia Nacional para un Gobierno Abierto 201
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-12-07 | la propia norma |
+| 2 | 2018-06-26 | Decreto Ejecutivo 41190 (2018-06-26) |
