@@ -14,3 +14,4 @@ Fomento del Gobierno Abierto en la Administración Pública y Creación de la Co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-05-13 | la propia norma |
+| 2 | 2018-06-26 | Decreto Ejecutivo 41190 (2018-06-26) |

@@ -1,5 +1,6 @@
 Artículo 5º—Integración de la Comisión. La CNGA estará integrada por un representante propietario y un único suplente de cada una de las siguientes entidades y organizaciones:
-1. El Ministro(a) o Viceministro(a) de Presidencia, destinado al efecto, quién presidirá la Comisión.
+1. El (la) Ministro(a) de Comunicación, destinado(a) al efecto, quien presidirá la Comisión.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41190 del 26 de junio del 2018)
 2. El Ministro(a) de Ciencia, Tecnología y Telecomunicaciones o el Viceministro(a), destinado(a) al efecto.
 3. El Ministro(a) de Planificación Nacional y Política Económica o el Viceministro(a), destinado(a) al efecto.
 4. El Ministro(a) de Hacienda o el Viceministro(a), destinado(a) al efecto.
