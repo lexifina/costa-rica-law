@@ -1,4 +1,6 @@
+(Derogado)
 DIRECCIÓN GENERAL DE HACIENDA
+(Esta norma se dejó sin efecto por el artículo 7° de la resolución RES-DGH-047-2018 del 27 de junio de 2018, “Autoriza Departamento de gestión de exenciones para conceder autorización genérica de exención para bienes y materias primas incluidas en decreto ejecutivos N°s 21322-H-S-MEIC, 21719-H-S-MEIC y 31084-MEIC”)
 DGH-D-02.—San José, a las diez horas del dos de julio del dos mil cuatro.
 Directriz que autoriza la emisión de resoluciones de exención genéricas para la importación de equipo médico, sillas de ruedas y similares, camas especiales para hospitales, equipo ortopédico, equipo para laboratorios químico clínicos, equipos odontológicos, prótesis en general, equipo requerido por parte de personas con problemas auditivos y el que se usa en programas de educación especial para discapacitados, de conformidad con lo establecido en el artículo 4 de la Ley Nº 7293 de 31 de marzo de 1992 "Ley Reguladora de todas las Exoneraciones; su Derogatoria y sus Excepciones".
 Resultando:

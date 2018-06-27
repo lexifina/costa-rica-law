@@ -14,3 +14,4 @@ Autoriza la emisión de resoluciones de exención genéricas para la importació
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-07-30 | la propia norma |
+| 2 | 2018-06-27 | Resolución 47 (2018-06-27) |
