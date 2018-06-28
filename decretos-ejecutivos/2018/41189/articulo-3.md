@@ -1,0 +1,1 @@
+Artículo 3°.- Se incluyen dentro de las funciones encomendadas a la Junta Interventora del INFOCOOP realizar una investigación forense sobre el trabajo de las comisiones liquidadoras de cooperativas durante los últimos veinte años, así como fijar como prioritarios y de trámite expedito los procesos de contratación administrativa vinculados con esta intervención.
