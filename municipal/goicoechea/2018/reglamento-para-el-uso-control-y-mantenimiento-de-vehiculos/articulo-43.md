@@ -1,0 +1,1 @@
+Artículo 43.-La Jefatura encargada de equipo automotor, analizará todo accidente de tránsito en el que participe un vehículo de la municipalidad y de ser necesario remitirá la documentación a la Alcaldía Municipal para el proceso disciplinario que pueda corresponder.

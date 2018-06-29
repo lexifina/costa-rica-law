@@ -1,0 +1,1 @@
+Artículo 41.-Ningún conductor de la Municipalidad está autorizado para efectuar arreglos extrajudiciales en casos de accidentes con vehículos municipales, únicamente debe indicarle al particular que se apersone o se comunique con la dependencia encargada, quien en coordinación con la Dirección Jurídica, será la dependencia autorizada para efectuar las gestiones correspondientes.

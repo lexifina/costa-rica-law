@@ -1,0 +1,1 @@
+II. Publíquese en el Diario Oficial La Gaceta de conformidad con lo dispuesto en el numeral 43 del Código Municipal vigente, por única vez como Reglamento definitivo al no requerir audiencia pública, por tratarse de un cuerpo normativo de orden interno".

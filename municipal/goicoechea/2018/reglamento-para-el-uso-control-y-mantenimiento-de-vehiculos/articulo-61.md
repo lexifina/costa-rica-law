@@ -1,0 +1,1 @@
+Artículo 61.-La aplicación de este Reglamento es de responsabilidad del Alcalde/sa Municipal, Dirección Administrativa Financiera y los responsables de unidad donde se encuentren asignados los vehículos y equipos municipales.

@@ -1,0 +1,1 @@
+Artículo 38.-Todos los vehículos deberán cumplir con los programas de mantenimiento y reparaciones y diligencias en caso de accidentes de tránsito, según se disponga por los encargados de equipos y vehículos, así coordinando lo pertinente con el funcionario asignado al Taller Municipal.

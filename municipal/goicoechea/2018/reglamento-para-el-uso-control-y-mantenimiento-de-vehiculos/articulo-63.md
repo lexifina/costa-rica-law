@@ -1,0 +1,1 @@
+Articulo 63.-Derogatoria: Este reglamento deroga el Reglamento anterior, denominado: "Reglamento para el Uso de Vehículos Municipales", publicado en el Diario Oficial LA GACETA # 16, del 25 de enero de 1993, aprobado por el Concejo Municipal en Sesión Ordinaria 16-92, celebrada el 12 de febrero de 1992, artículo 7 °, así como cualquier otra disposición anterior que se le oponga.
