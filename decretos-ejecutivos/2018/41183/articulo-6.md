@@ -1,0 +1,5 @@
+Artículo 6.- Para la valoración y aprobación de investigaciones biomédicas que utilicen células madre adultas, adicionalmente a lo establecido en la Ley No. 9234 del 22 de abril de 2014 “Ley Reguladora de Investigación Biomédica” y en el Decreto Ejecutivo No. 39061-S del 8 de mayo de 2015 “Reglamento a la Ley Reguladora de Investigación Biomédica”, que regulan las investigaciones biomédicas, el CEC debe verificar que:
+a) La selección de participantes se enfoca principalmente en personas que no tienen otra opción terapéutica, justificando ampliamente la inclusión de personas que no cumplan este criterio.
+b) Se realiza una valoración rigurosa de los riesgos y de los beneficios potenciales esperados. La valoración del beneficio clínico para los pacientes se fundamenta en evaluaciones clínicamente relevantes.
+c) Se contempla un seguimiento a largo plazo, de los efectos adversos.
+d) Si los participantes no disponen de tratamientos alternativos, el consentimiento es claro y no genera falsas expectativas. Si se indica claramente que es una investigación y no un tratamiento.

@@ -1,0 +1,3 @@
+CAPÍTULO III
+OBTENCIÓN DE CÉLULAS MADRE ADULTAS
+Artículo 8.- Para ser donante de células o tejidos para la obtención de células madre adultas para investigación, según lo regulado en los incisos j) y m) del artículo 45 del Decreto Ejecutivo No. 39061-S del 8 de mayo de 2015 “Reglamento a la Ley Reguladora de Investigación Biomédica”, se deben aplicar los siguientes criterios de elegibilidad para donantes de sangre: examen médico que evalúe la condición física de donante y tamizaje para las siguientes enfermedades infectocontagiosas: virus de inmunodeficiencia humana y 2, hepatitis B y C, virus linfotrópico humano I y II, Toxoplasmosis, citomegalorirus, mononucleosis infecciosa, zika y sífilis.

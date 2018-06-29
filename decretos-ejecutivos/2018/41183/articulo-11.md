@@ -1,0 +1,1 @@
+Artículo 11.- El protocolo debe contemplar procedimientos, que permitan mantener la trazabilidad del donante hasta el receptor en todas las etapas del proceso, de conformidad con lo regulado en el inciso o) del artículo 45 del Decreto Ejecutivo No. 39061-S del 8 de mayo de 2015 “Reglamento a la Ley Reguladora de Investigación Biomédica”.
