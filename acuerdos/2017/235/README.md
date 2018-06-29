@@ -14,3 +14,4 @@ Regulaciones básicas de la Actuación que deberá seguir el INCOPESCA en su car
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-13 | la propia norma |
+| 2 | 2018-06-29 | Acuerdo 284 (2018-06-29) |
