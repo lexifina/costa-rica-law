@@ -31,3 +31,4 @@ Comunica emisión de resoluciones de la Dirección General del Servicio Civil:(D
 | 16 | 2018-02-02 | Resolución 2 (2018-02-02) |
 | 17 | 2018-03-09 | Resolución 4 (2018-03-09) |
 | 18 | 2018-04-13 | Resolución 5 (2018-04-13) |
+| 19 | 2018-06-29 | Resolución 6 (2018-06-29) |
