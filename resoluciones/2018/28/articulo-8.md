@@ -1,0 +1,1 @@
+Artículo 8.- Derogatorias. Deróguense la resolución Nº DGT-R-003-2016 publicada en La Gaceta N° 32 del 16 de febrero del 2016 y las directrices DR-DI-20-2010 del 2 de noviembre de 2010 y DR-DI-27-2010 del 14 de diciembre de 2010.

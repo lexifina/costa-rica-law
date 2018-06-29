@@ -1,0 +1,3 @@
+Artículo 5.- Incumplimiento de requisitos o de requerimiento. En caso de incumplimiento de los requisitos generales o específicos establecidos en esta resolución, será requerido por una única vez, sin perjuicio de los requerimientos adicionales que se soliciten para mejor resolver.
+El obligado tributario contará con un plazo de 10 días hábiles, a partir del día siguiente a la notificación del requerimiento, para la presentación de los requisitos, aclaración o información que le haya sido requerida.
+Una vez vencido el plazo otorgado, si ha incumplido total o parcialmente el requerimiento, se dispondrá el archivo del expediente declarando sin derecho al trámite, sin disponer sobre el fondo.
