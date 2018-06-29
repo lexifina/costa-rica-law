@@ -1,0 +1,1 @@
+Transitorio 1: Las solicitudes recibidas por CONAPE y que no hayan sido dictaminadas antes de la aprobación de las modificaciones a este Reglamento, se podrán dictaminar considerando el Reglamento con o sin las modificaciones, según convenga más al solicitante.
