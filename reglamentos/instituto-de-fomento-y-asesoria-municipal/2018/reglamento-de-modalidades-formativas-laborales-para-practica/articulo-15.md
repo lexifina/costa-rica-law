@@ -1,0 +1,1 @@
+Artículo 15.—Asistencia. La asistencia del practicante o investigador es obligatoria, la que es registrada en el Sistema Electrónico implementado por la Unidad de Talento Humano de conformidad con lo pactado al respecto.

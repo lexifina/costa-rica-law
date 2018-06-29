@@ -1,0 +1,1 @@
+Artículo 17.—La inasistencia. La inasistencia injustificada así como el incumplimiento en la compensación de horas en la que incurra el practicante o investigador, será descontada proporcionalmente de la subvención económica mensual.

@@ -1,0 +1,4 @@
+Artículo 7°—Proceso de selección.
+a. Inicia con el requerimiento del practicante o investigador que realizan los departamentos o unidades de la institución, el cual deberá contar con la autorización de la Dirección Ejecutiva. Dicha autorización será otorgada en función del número de practicantes que esta Dirección determine para cada Departamento o Unidad, o bien, con la solicitud presentada directamente por el interesado.
+b. La Unidad de Talento Humano realizará una pre-selección entre los postulantes; teniendo en cuenta los requisitos señalados en el artículo 6 del presente Reglamento y los requisitos específicos contenidos en el requerimiento del área solicitante.
+c. La Unidad de Talento Humano propondrá al Departamento o Unidad solicitante, una lista de candidatos que cumplan con los requisitos.

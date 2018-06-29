@@ -1,0 +1,1 @@
+Artículo 2°—Alcance. El programa de Prácticas Pre profesionales, Profesionales y de Prácticas y Estudios, está dirigido a estudiantes universitarios o parauniversitarios, y egresados de Centros Educativos, que de acuerdo a los planes de estudios, requieran efectuar prácticas en un centro laboral.

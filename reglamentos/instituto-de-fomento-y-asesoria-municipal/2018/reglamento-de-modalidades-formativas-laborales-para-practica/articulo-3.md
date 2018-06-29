@@ -1,0 +1,1 @@
+Artículo 3°—Formulación del Programa de prácticas pre-profesionales, profesionales y de prácticas y estudios de investigación de posgrados. La Dirección Ejecutiva, a través de la Unidad de Talento Humano, es la responsable de estos programas, en concordancia con las necesidades y política institucional.

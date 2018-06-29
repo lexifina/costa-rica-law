@@ -1,0 +1,2 @@
+Artículo 11.—Duración. El período máximo de prácticas pre profesionales y profesionales en el IFAM, será de 9 meses para estudiantes y egresados.
+Con excepción a lo establecido en el párrafo anterior y a solicitud expresa del Encargado de Departamento o Unidad, en donde se encuentre asignado el practicante, previa autorización de la Dirección Ejecutiva, el período de prácticas o investigaciones podrá prorrogarse, en algunos casos, hasta por nueve meses adicionales y en el caso de prácticas profesionales por tres meses adicionales.

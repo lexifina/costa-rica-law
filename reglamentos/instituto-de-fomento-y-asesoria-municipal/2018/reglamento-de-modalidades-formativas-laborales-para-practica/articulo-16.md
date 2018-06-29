@@ -1,0 +1,3 @@
+Artículo 16.—Permiso. Los practicantes o investigadores podrán gozar de permisos en casos debidamente justificados. Los permisos a otorgarse pueden ser por enfermedad, muerte de un familiar, por razones especiales de estudio y por asuntos personales, en estos dos últimos casos se deberá efectuar la compensación de horas correspondientes.
+En los casos de permiso por enfermedad, éste deberá estar sustentado con un certificado o constancia de atención médica, a efectos que no sea considerado como falta no justificada o un permiso no autorizado.
+En los casos que se requiera un permiso por un tiempo mayor a 10 días hábiles consecutivos, se suspenderá el cómputo del período de prácticas o investigación, pudiéndose restablecer el cómputo del plazo una vez concluido el permiso.

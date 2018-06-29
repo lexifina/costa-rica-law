@@ -1,0 +1,1 @@
+Artículo 4°—Determinación del Número de Practicantes e Investigadores. La Unidad de Talento Humano, en coordinación con los demás Departamentos institucionales, determinará anualmente el número de practicantes de cada especialidad profesional o técnica que se requiera, el cual será aprobado por la Dirección Ejecutiva.
