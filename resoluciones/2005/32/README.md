@@ -14,3 +14,4 @@ Comunica emisión de resoluciones de la Dirección General de Servicio Civil ( D
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-15 | la propia norma |
+| 2 | 2018-06-29 | Resolución 6 (2018-06-29) |
