@@ -1,2 +1,0 @@
-Artículo 18.—Quórum y mayoría. Para que pueda celebrarse válidamente una sesión de Junta Directiva deben estar presentes al menos cinco del total de sus miembros. Sus acuerdos o resoluciones se tomarán por el voto de la mayoría simple de los presentes salvo cuando las disposiciones vigentes exijan una mayoría de dos tercios y en caso de empate el presidente decidirá ejerciendo el doble voto.
-(Así reformado por la Asamblea General Extraordinaria XCVIII, del 06 de diciembre del 2003.)

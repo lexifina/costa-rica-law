@@ -1,2 +1,0 @@
-Artículo 29.—De conformidad con lo establecido en los artículos 13 incisos e) y f), 14,19, 41 de la Ley 4770 y el 28 del Reglamento General de la Corporación, los procesos electorales se regularán por lo establecido en el Reglamento de Elecciones que para tal efecto aprobará la Asamblea General.
-(Así REFORMA TOTAL Y EXPRESAMENTE por el acta de la XCVI asamblea general extraordinaria celebrada el 15 de diciembre del año 2001, publicado en La Gaceta No. 17 de 24 de enero del 2002)

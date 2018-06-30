@@ -1,4 +1,0 @@
-Artículo 36.—Retiro. Los Colegiados tendrán derecho a retirarse del Colegio, temporal o indefinidamente, siempre que declaren bajo juramento que mientras ostenten este estatus no ejercerán su profesión.
-El profesional retirado temporalmente se tendrá de manera automática por reincorporado al vencer el plazo de su retiro, o antes si así lo solicitare por escrito. El profesional retirado indefinidamente podrá en cualquier momento solicitar su reincorporación formalmente y por escrito.
-Los colegiados jubilados podrán solicitar el retiro del Colegio, al momento de acogerse a su jubilación, llenando el formulario correspondiente siempre y cuando demuestre que no ejerce la profesión.
-(Así reformado mediante asamblea general ordinaria CV del 29 de octubre del 2005 y posteriormente corregido mediante FE DE ERRATAS publicada en la Gaceta N°118 del 20 de junio del 2006).

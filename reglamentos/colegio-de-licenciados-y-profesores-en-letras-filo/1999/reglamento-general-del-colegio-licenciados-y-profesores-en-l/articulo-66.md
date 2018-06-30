@@ -1,1 +1,0 @@
-Artículo 66.—Obras no concursables. No podrán concursar simples artículos, o folletos, que no representen una labor seria de investigación; obras elaboradas por dos o más personas cuando una de ellas no sea colegiada, ni obras premiadas en otros certámenes.

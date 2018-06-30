@@ -1,3 +1,0 @@
-Artículo 10.—Orden del Día de las Sesiones de la Asamblea. En la publicación de la convocatoria deberá incluirse el Orden del día de las sesiones de la Asamblea General.
-En las sesiones ordinarias se conocerán asuntos de iniciativa de la persona colegiada, siempre que hayan sido propuestos por escrito a la Junta Directiva y presentada a la Unidad de Secretaría del Colegio, hasta el viernes de la tercera semana de febrero, y; que cumplan con los requisitos de viabilidad y legalidad.
-(Así reformado el párrafo anterior por Asamblea General Extraordinaria CXIV, celebrada el día 6 de noviembre del 2009)

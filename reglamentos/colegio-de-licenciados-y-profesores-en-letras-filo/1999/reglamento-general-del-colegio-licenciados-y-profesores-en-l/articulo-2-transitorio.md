@@ -1,1 +1,0 @@
-Transitorio 2.—Para el nombramiento de representantes del Colegio en cualquier organismo del Magisterio Nacional, la Junta Directiva deberá presentar ante una Asamblea General, el Reglamento que normará la selección y escogencia de dichos representantes.
