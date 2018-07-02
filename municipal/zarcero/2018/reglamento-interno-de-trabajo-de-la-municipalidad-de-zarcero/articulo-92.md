@@ -1,1 +1,2 @@
-Artículo 92: No se excluirán los montos dejados de percibir por concepto de incapacidades de la Caja Costarricense del Seguro Social, para efectos de los cálculos de aguinaldo.
+Artículo 92.—Los montos percibidos por concepto de incapacidades, no deben ser tomadas en cuenta para efectos de cargas para aguinaldo.
+(Así reformado mediante sesión ordinaria N° 131 del 2 de julio del 2018)
