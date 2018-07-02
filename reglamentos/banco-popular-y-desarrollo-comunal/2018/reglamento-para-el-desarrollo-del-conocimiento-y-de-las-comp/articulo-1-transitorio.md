@@ -1,0 +1,1 @@
+Transitorio único: Quienes al momento de la aprobación de estas modificaciones al Reglamento estuvieren percibiendo el beneficio indicado en el artículo 23 del Reglamento aquí derogado continuarán percibiéndolo hasta el cese de la respectiva relación laboral.
