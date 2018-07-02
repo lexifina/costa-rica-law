@@ -1,0 +1,2 @@
+Artículo 23.—Recuperación de saldos dejados de cobrar. Cuando la Administración Tributaria determine que el tributo que debe pagar el patentado sea diferente al cobrado, iniciará los trámites de recuperación de los saldos dejados de pagar por concepto del tributo.
+La recalificación del valor del tributo, procede en los siguientes supuestos: 1. Cuando sea ordenado de oficio por la Dirección General de Tributación Directa; 2. Cuando la Municipalidad verifique ante la Dirección General de Tributación Directa la inexactitud de los datos suministrados por el patentado.

@@ -1,0 +1,2 @@
+Artículo 30.—Requisito del recurso contra la recalificación. Para la tramitación de los recursos contra la recalificación, será requisito formal que el interesado se encuentre totalmente al día en el pago de la imposición determinada por la Administración Tributaria Municipal.
+Declarados con lugar los recursos, la Municipalidad deberá devolver al interesado la suma cobrada en exceso o acreditarla a su cuenta para responder al pago de los pagos subsiguientes.

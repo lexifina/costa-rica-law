@@ -1,0 +1,1 @@
+Artículo 17.—Denegatoria. La Patente solo podrá ser denegada cuando las instalaciones y planta de extracción no hayan llenado los requisitos legales y reglamentarios o cuando la actividad, en razón de su ubicación física, no esté permitida por las leyes o, en su defecto, por los reglamentos municipales vigentes.

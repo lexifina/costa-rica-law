@@ -1,0 +1,1 @@
+Artículo 32.—De la clausura de la actividad. Se decretará la clausura de la actividad comercial: Por falta de Patente; por el vencimiento del plazo para el cual se otorgó la concesión; por el vencimiento o la revocatoria de permisos de funcionamiento exigidos; por falta de pago durante dos o más trimestres según el art. 81 bis. del Código Municipal

@@ -1,0 +1,1 @@
+Artículo 25.—Excepciones. Las resoluciones de la Administración Tributaria que ordenen la suspensión de la patente por falta de pago carecerán de recurso, y su tramitación no admitirá prueba en contrario salvo la excepción de pago.

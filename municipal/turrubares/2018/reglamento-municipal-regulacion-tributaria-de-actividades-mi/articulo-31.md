@@ -1,0 +1,1 @@
+Artículo 31.—Sanciones. Por incumplimiento a las disposiciones legales, reglamentarias o por falta de pago de dos o más trimestres de la patente, podrá el Proceso de Patentes imponer las siguientes sanciones: Suspensión de la licencia; Clausura de la actividad; Imposición de multas; Denuncias por defraudación o perjuicio, ante los Tribunales de Justicia.

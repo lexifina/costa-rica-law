@@ -1,0 +1,1 @@
+Artículo 28.—Órgano competente. Corresponde a la Administración Tributaria Municipal, la tramitación y resolución de todo lo relacionado con el tributo, para la actividad de extracción de yacimientos de placer, lavaderos, tajos y cauces de dominio público; correspondiendo la aprobación final de la patente al Concejo Municipal.

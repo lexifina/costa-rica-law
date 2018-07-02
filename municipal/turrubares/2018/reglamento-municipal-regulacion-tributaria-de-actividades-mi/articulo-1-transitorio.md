@@ -1,0 +1,2 @@
+Transitorio: Se somete a consulta pública por el término de diez días contados a partir de la publicación del proyecto. (Proyecto Publicado en la Gaceta N°87 del 18 de mayo 2018)
+Derogatoria. El presente Reglamento deroga cualquier otra disposición reglamentaria municipal que se le oponga. Capítulo 7. Artículo 3. Aprobado en forma unánime, en la sesión ordinaria Nº 2, celebrada el 10 de enero de 2018, con enmiendas aprobadas en la sesión ordinaria N° 29 celebrada el 13 de junio de 2018. Rige a partir de la publicación definitiva.

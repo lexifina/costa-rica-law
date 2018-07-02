@@ -1,0 +1,1 @@
+Artículo 10.—Los controles y fiscalización que la administración Municipal puede ejercer para el efectivo pago de este tributo, serán los que señalen tanto el artículo 38 del Código de Minería, como el 103 del Código de Normas y Procedimientos Tributarios.

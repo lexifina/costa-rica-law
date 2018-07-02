@@ -1,0 +1,1 @@
+Artículo 6º—Tasación de oficio. Constituye la base imponible para determinar el tributo, por parte de la Municipalidad, a partir del valor total a precio de mercado del material vendido o utilizado en los procesos constructivos u otras actividades propias del contribuyente, o para la prestación de servicios a terceros.
