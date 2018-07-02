@@ -1,0 +1,6 @@
+Artículo 19.—Los miembros de la Asamblea General perderán su designación como miembros de la Asamblea General por los siguientes motivos:
+1. Automáticamente, al dejar sus funciones por renuncia, pérdida de credencial o finalización de su periodo de nombramiento en el puesto de elección popular, ya sea en la Intendencia o en el Concejo Municipal de Distrito.
+2. En el caso de los Concejales Municipales de Distrito, por sustitución mediante acuerdo del Concejo Municipal de Distrito respectivo.
+3. Por renuncia expresa, a su representación en la Asamblea General, ante el Concejo Municipal de Distrito o ante la Asamblea General de la Federación.
+Para los casos de los incisos 2 y 3, en este último inciso para el caso de renuncia del asambleísta ante el Concejo Municipal de Distrito, este deberá comunicarlo, en forma escrita, tanto a la Asamblea de la Federación como al Consejo Directivo, así como acompañar una certificación del acuerdo respectivo que designe a la persona sustituta de la que está siendo sustituida o haya renunciado.
+La Asamblea General, podrá solicitar al Concejo Municipal de Distrito que exponga los motivos de sustitución de la persona designada a la Asamblea General, así como pedir explicaciones a la persona que renuncia a su puesto en la Asamblea.

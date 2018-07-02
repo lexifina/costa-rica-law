@@ -1,0 +1,1 @@
+Artículo 47.—Contabilidad y rendición de Cuentas. La Federación está obligada a llevar la contabilidad de todas las operaciones, conforme a la Legislación que le fuera aplicable. Para tal fin la Administración contratará con los servicios profesionales correspondientes.

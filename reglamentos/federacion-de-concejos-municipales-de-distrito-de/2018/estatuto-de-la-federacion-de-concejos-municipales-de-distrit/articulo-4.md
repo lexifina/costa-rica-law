@@ -1,0 +1,2 @@
+DE LA PERSONALIDAD DE LA FEDERACIÓN
+Artículo 4º—La federación tendrá personalidad jurídica independiente a la de los Concejos Municipales de Distrito que la integran, con patrimonio propio, capacidad y personalidad jurídica plenas, para ejecutar todo tipo de actos y contratos necesarios para cumplir sus objetivos, ello con fundamento en lo establecido en el artículo 10 el Código Municipal y los presentes estatutos.

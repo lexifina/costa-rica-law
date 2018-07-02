@@ -1,0 +1,1 @@
+Artículo 45.—Los ingresos por prestación de servicios y actividades de su competencia habrán de ser fijados y modificados a través del correspondiente Acuerdo del Consejo Directivo, aplicándose al efecto la legislación vigente. La Federación recaudará y aplicará los rendimientos a sus fines específicos, utilizando los procedimientos administrativos que la ley establece.

@@ -1,0 +1,2 @@
+Artículo 23.—El quorum del Consejo Directivo lo forma la totalidad o como mínimo la mitad más uno de sus miembros. Los acuerdos del Consejo Directivo se tomarán por mayoría simple de los miembros presentes, salvo acuerdos sobre asuntos para los que el Código Municipal o el presente Estatuto dispongan otra mayoría, en cuyo caso tendrá que proceder de conformidad.
+Cuando exista ausencia del Presidente y Vicepresidente, la coordinación de la sesión del Consejo Directivo será asumida el miembro de mayor edad del Consejo, presente en la Sesión.

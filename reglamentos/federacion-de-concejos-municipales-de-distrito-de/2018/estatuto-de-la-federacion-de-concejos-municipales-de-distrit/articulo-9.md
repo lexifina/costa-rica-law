@@ -1,0 +1,1 @@
+Artículo 9º—Los fines de la Federación serán los de promover y fortalecer la integración y el progreso de los Concejos Municipales de Distrito, en los ámbitos social, territorial, ambiental y económico, para una mejor gestión y gobernabilidad, así como mejorar las condiciones técnicas, administrativas y financieras de los mismos.

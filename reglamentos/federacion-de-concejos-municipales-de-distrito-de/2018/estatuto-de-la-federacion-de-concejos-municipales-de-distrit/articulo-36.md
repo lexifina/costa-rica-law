@@ -1,0 +1,1 @@
+Artículo 36.—La Comisión Técnica será nombrada por el Consejo Directivo por voto de mayoría simple de los miembros del Consejo. Se reunirá cada vez que así la convoque el Consejo Directivo para analizar y recomendar los asuntos que le sean puestos en conocimiento por dicho Consejo. Deberán de emitir sus criterios en forma escrita y dirigidos al Consejo Directivo

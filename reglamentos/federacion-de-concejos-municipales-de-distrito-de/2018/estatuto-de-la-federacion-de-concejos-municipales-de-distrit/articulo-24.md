@@ -1,0 +1,1 @@
+Artículo 24.—El Consejo Directivo se reunirá en la sede de la federación o las sedes de los concejos municipales de distrito miembros en forma rotativa. También podrá celebrar reuniones en otros lugares si fuere acordado por el Consejo Directivo.

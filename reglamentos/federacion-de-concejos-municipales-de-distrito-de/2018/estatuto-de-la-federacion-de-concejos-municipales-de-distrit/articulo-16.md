@@ -1,0 +1,1 @@
+Artículo 16.—Los acuerdos de la asamblea general serán tomados por simple mayoría de los presentes, salvo los que reformen parcial o totalmente este estatuto, en cuyo caso se requerirá el voto de las dos terceras partes de la totalidad de los miembros de la Asamblea.
