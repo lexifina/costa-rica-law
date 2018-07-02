@@ -1,0 +1,1 @@
+Artículo 17.—El funcionario municipal que incumpla con este Reglamento, será sancionado acorde con lo que estipula el Código Municipal, el Reglamento de Trabajo, se aplicará el Código de Trabajo y alguna otra normativa conexa.
