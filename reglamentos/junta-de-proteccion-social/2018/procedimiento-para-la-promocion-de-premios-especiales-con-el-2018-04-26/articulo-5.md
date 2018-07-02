@@ -1,0 +1,13 @@
+Artículo 5º—Mecánica del sorteo. Para los 5 premios de ¢1.000.000 indicados en el artículo 4) del presente procedimiento, se procederá a realizar un sorteo para elegir a los 5 ganadores. En el sorteo participan los sobres recolectados en oficinas centrales, en las oficinas de Coopealianza indicadas anteriormente y los que se envíen por medio de Correos de Costa Rica. En cuanto a los sobres que sean depositados en las oficinas de Coopealianza, la misma semana del sorteo, personeros de la Junta, se presentarán en dichas oficinas para efectuar el traslado de los sobres a oficinas centrales de la Junta.
+Cada sobre extraído corresponderá a un ganador, siempre y cuando se cumpla con lo estipulado en el presente procedimiento.
+Una misma persona solo puede salir favorecida una vez en este sorteo.
+El sorteo se efectuará en el programa la Rueda de la Fortuna, el sábado 04 de agosto, 2018 con el total de bolsas recogidas. El sorteo se efectuará en presencia del grupo de fiscalizadores que la Junta designe.
+Los aspectos que considerarán el grupo de fiscalizadores en el momento que se efectuará el sorteo son los siguientes:
+- Se verifica la autenticidad de las fracciones con el marcador de seguridad que se activa al contacto con el papel de seguridad.
+- Se verifica que las 5 fracciones o grupo de fracciones correspondan al sorteo 4498 “Sorteo Extraordinario Gordito de Medio Año”.
+- Se verifica que las 5 fracciones o grupo de fracciones contengan nombre completo, número de documento de identificación, número de teléfono (preferiblemente). El participante nacional deberá tener el documento de identificación vigente y será validado con el padrón electoral, de no existir coincidencia se efectuará una nueva extracción.
+- Si en el sobre se incluyeron más de 5 fracciones del sorteo indicado, serán validadas solamente 5, en el entendido que el resto de fracciones están a nombre de la misma persona.
+- Si vienen más de 5 fracciones a nombre de diferentes personas en el mismo sobre se debe hacer una nueva extracción (Ejemplo: 5 fracciones a nombre de una persona y 5 fracciones a nombre de otra en el mismo sobre).
+- Es indispensable que los datos concuerden en las fracciones remitidas (cuando se hayan enviado por separado). Los datos deben estar legibles.
+- Si en el sobre aparte de las fracciones, se incluyó algún otro objeto se debe separar, pero eso no impide que se realice la verificación de los datos.
+Los nombres de los ganadores serán publicados en la página electrónica de la Junta de Protección Social (www.jps.go.cr), en el sitio de la red social Facebook “Junta de Protección Social (Oficial)” y en una publicación que se efectuará en prensa escrita.
