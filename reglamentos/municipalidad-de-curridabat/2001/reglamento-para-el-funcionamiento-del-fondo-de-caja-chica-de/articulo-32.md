@@ -1,1 +1,0 @@
-Articulo 32.—No podrán hacer uso del fondo de caja chica las personas que no presten servicio regularen la Municipalidad , mediante el sistema de planillas, excepto los miembros del Concejo Municipal.

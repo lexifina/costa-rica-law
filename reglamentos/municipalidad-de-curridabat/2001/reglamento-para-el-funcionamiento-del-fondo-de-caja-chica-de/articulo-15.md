@@ -1,4 +1,0 @@
-CAPÍTULO III
-De la liquidación
-Articulo 15.—Los vales de caja chica deberán ser liquidados dentro de los tres días hábiles siguientes a su entrega, salvo aquellos casos en donde por razones de caso fortuito o fuerza mayor no puedan liquidarse en ese plazo, en cuya situación se hará con posterioridad y el funcionario responsable de solicitar el vale deberá justificar por escrito lo sucedido con argumentos razonablemente válidos. La violación de lo anterior se considerará falta grave y el funcionario que lo haga será acreedor de una amonestación por escrito por parte del Alcalde Municipal y quedará inhabilitado por dos meses para gestionar nuevos vales de caja chica. La reincidencia ameritará la aplicación de los incisos c) y d) del artículo 149 del Código Municipal.
-(Así reformado mediante sesión ordinaria N° 023-2010 y publicado en La Gaceta N° 212 del 2 de noviembre de 2010)
