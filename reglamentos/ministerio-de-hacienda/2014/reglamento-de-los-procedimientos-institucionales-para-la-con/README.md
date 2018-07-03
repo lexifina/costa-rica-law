@@ -15,3 +15,4 @@ Reglamento de los procedimientos institucionales para la contratación del servi
 | --- | --- | --- |
 | 1 | 2015-06-12 | la propia norma |
 | 2 | 2017-05-04 | Reglamento 0 (2017-05-04) |
+| 3 | 2018-07-03 | Reglamento 0 (2018-07-03) |
