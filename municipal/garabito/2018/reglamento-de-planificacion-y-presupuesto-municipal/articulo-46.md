@@ -1,0 +1,1 @@
+Artículo 46.—La Municipalidad y demás organizaciones referidas en el artículo 38 de este Reglamento deben estar inscritas en el registro especial que lleva el Ministerio de Hacienda, con el objeto de obtener la calificación de “idóneas” para administrar los fondos públicos. Además, dichas Organizaciones deberán estar inscritas en la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 48.—En la convocatoria que menciona el artículo anterior, se le indicara los requisitos, que deben cumplir durante la elaboración y presentación de los programas y proyectos de inversión, establecidos por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 27.—De las sub partidas: La Municipalidad contará con sub partida a presupuestarias aprobadas y suficientes para efectuar nombramientos y adquirir compromisos económicos. Se prohíbe afectar una subpartida de egresos que corresponda a otra.

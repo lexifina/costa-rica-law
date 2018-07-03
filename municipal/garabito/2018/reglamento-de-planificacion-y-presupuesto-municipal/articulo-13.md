@@ -1,0 +1,3 @@
+CAPÍTULO II
+Planificación
+Artículo 13.—El Alcalde Municipal mediante directriz no solo comunicara el propósito de la formulación del Plan Operativo Anual y el Presupuesto, sino que conformará una comisión administrativa permanente, la cual en coordinación con los técnicos de: Planificación y Presupuesto; darán apertura, levantarán minutas de los acuerdos, ajustes, mejoras respecto a los datos que suministren de los ingresos como de los gastos y metas, los encargados de todas la dependencias municipales, quienes recibirán de parte de la comisión un informe final al cierre del presupuesto correspondiente.

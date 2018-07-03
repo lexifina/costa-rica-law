@@ -1,0 +1,1 @@
+Artículo 38.—La ejecución de los programas puede estar a cargo directamente de la Municipalidad, o de las asociaciones de desarrollo comunal, consideradas idóneas para administrar los fondos públicos asignados.

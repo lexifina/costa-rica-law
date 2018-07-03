@@ -1,0 +1,1 @@
+Artículo 39.—Para efectos de identificación y selección de programas y proyectos de inversión a financiarse con fondos provenientes de partidas específicas, intervendrá el Concejo Distrital Ampliado, integrado por miembros propietarios del Concejo Municipal.

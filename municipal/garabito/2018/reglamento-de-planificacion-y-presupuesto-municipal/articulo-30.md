@@ -1,0 +1,1 @@
+Artículo 30.—Le corresponde al Alcalde Municipal con los informes de ejecución del Presupuesto Ordinario y los Extraordinarios al 31 de diciembre de cada año, presentar la liquidación presupuestaria correspondiente ante el Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 47.—Los Concejos Distritales deberán convocar a las entidades “idóneas”, del Distrito que cumplan con los requisitos anteriores, en la segunda quincena del mes de marzo de cada año, para darles a conocer el monto que corresponde al Distrito por concepto de Partidas Específicas.

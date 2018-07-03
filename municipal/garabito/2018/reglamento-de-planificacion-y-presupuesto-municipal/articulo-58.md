@@ -1,0 +1,1 @@
+Artículo 58.—Para el control del artículo anterior, la Municipalidad extenderá a las entidades idóneas una constancia sobre el avance de las obras o ejecución del programa, como el documento indispensable para el retiro de los fondos de Tesorería Nacional.

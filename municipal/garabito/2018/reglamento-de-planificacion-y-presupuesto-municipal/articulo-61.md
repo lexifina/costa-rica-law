@@ -1,0 +1,1 @@
+Artículo 61.—Las entidades idóneas beneficiadas con partidas específicas deberán someter el presupuesto a la aprobación de la Contraloría General de la República, demostrando que se ha obtenido la aprobación y cumplido con los requisitos establecidos.

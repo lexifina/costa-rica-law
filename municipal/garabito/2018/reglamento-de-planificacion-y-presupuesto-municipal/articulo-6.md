@@ -1,0 +1,1 @@
+Artículo 6º—El presupuesto ordinario y (Plan Operativo y Matrices Programáticas) se aprobará en setiembre de cada año, para tal fin se convocará a sesiones extraordinarias y públicas, dedicadas exclusivamente para su aprobación.

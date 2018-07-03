@@ -1,0 +1,1 @@
+Artículo 22.—Lo establecido en el artículo anterior, procederá cuando se pruebe que el costo de la vida ha aumentado sustancialmente según los índices de precios suministrados por el Banco Central de Costa Rica y la Dirección General de Estadística y Censos.

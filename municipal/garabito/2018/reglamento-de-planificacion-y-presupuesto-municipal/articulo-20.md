@@ -1,0 +1,2 @@
+Artículo 20.—Las modificaciones presupuestarias a formalizar serán un máximo de 15 anuales, estos instrumentos serán motivados por los encargados de cada proceso, sub proceso y su autenticidad se garantiza con el inicio del proceso por parte del Alcalde en turno. Estas cumplirán con lo establecido en el “Manual de procedimientos de formulación, aprobación, ejecución, evaluación presupuestaria y otros”.
+El Monto máximo de Recursos que se redistribuya, no podrán exceder el 25% del monto total del presupuesto inicial y extraordinarios.

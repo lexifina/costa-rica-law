@@ -1,0 +1,1 @@
+Artículo 2°—La Municipalidad acordará el Presupuesto Ordinario que regirá del primero de enero al treinta y uno de diciembre de cada año. Este deberá incluir todos los Ingresos y Egresos probables, y en ningún caso los egresos superarán los Ingresos.

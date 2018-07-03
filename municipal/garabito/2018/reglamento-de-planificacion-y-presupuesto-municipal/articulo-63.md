@@ -1,0 +1,1 @@
+Artículo 63.—El Ministerio de Hacienda asigna una cuenta de caja única a favor de la institución sea la Municipalidad o entidad idónea, exclusiva para el depósito de los recursos provenientes de las partidas específicas. La institución podrá tener cuentas bancarias para el manejo de recursos específicos que no se puedan pagar por el procedimiento de caja única.

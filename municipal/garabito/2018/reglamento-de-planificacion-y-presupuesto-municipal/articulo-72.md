@@ -1,0 +1,1 @@
+Artículo 72.—El Secretario formará un expediente por cada proyecto o programa al que se agregará la propuesta que será entregada a la Municipalidad firmada por los proponentes y el acta de aprobación de la misma.

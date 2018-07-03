@@ -1,0 +1,1 @@
+Artículo 53.—Cuando los niveles de morosidad en el cobro de tributos y precios públicos, sean comunicados al Ministerio de Hacienda por parte de la Contraloría General de la República, la Dirección General de Presupuesto Nacional aplicará las rebajas o aumentos en coordinación con la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 60.—La Tesorería Nacional fijará la fecha en la que se depositará el primer desembolso a la Municipalidad. Los posteriores desembolsos se harán de acuerdo con el avance de las obras o ejecución de los proyectos.

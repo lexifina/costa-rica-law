@@ -1,0 +1,1 @@
+Artículo 21.—De la modificación de Presupuesto ordinario: Procederá la modificación cuando se trate de reajustes por la aplicación del decreto de salarios mínimos o por convenciones o convenios colectivos de trabajos; para aumentar sueldos o nuevas plazas, mediará el acuerdo del Concejo Municipal, para su aprobación, con la votación de las dos terceras partes de sus miembros.

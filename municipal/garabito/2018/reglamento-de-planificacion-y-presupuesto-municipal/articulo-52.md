@@ -1,0 +1,1 @@
+Artículo 52.—Los proyectos podrán ser sustituidos y aprobados por el Concejo de Distrito y el Concejo Municipal, y se presentaran ante el Ministerio de Hacienda para la modificación de la partida presupuestaria.

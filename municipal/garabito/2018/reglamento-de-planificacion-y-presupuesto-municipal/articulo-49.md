@@ -1,0 +1,1 @@
+Artículo 49.—Las entidades idóneas del distrito tendrán plazos para presentar los programas y proyectos de inversión que se pretendan financiar por medio de las partidas específicas, ante el Concejo de Distrito correspondiente, hasta el último día hábil del mes de abril de cada año.

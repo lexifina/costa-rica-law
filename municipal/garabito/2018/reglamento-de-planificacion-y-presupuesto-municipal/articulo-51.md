@@ -1,0 +1,1 @@
+Artículo 51.—En el mes de mayo de cada año, los Concejos de Distrito ampliados sesionaran para seleccionar y aprobar los programas y proyectos de inversión a realizarse en el año siguiente con los fondos de Partidas Específicas. Se les dará prioridad aquellos que contemplen contra partidas, provenientes de recursos propios o donaciones.

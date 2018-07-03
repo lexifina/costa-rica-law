@@ -1,0 +1,1 @@
+Artículo 45.—La anteriores Organizaciones deben encontrarse debidamente inscritas ante la Municipalidad y cumplir con los requisitos solicitados por el Ministerio de Hacienda, y la Contraloría General de la República, para participar en la formulación para la ejecución de proyectos de inversión y programas que se financian con partidas específicas.

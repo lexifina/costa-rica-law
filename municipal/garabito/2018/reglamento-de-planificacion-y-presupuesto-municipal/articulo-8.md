@@ -1,0 +1,1 @@
+Artículo 8°—Todo presupuesto ordinario o extraordinario que se envíe a la Contraloría General de República para su aprobación, se le adjuntara copia de las actas de las sesiones en que fueron aprobados, en estas actas deberá estar transcrito íntegramente todo el presupuesto, y las actas deberán estar firmadas por el secretario (a) y refrendadas por el Alcalde Municipal.

@@ -1,0 +1,1 @@
+Artículo 44.—La Municipalidad deberá comunicar a sus respectivos Concejos de Distrito el resultado de la distrital en la primera quincena del mes de marzo de cada año, también lo hará a las diferentes Asociación de Desarrollo Comunal, Organizaciones no Gubernamentales y en general aquellas sin fines de lucro representativas del distrito.

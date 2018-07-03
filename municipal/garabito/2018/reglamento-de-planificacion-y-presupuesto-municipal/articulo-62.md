@@ -1,0 +1,1 @@
+Artículo 62.—Cuando el beneficio le corresponde a la Municipalidad, esta remitirá al Área de Gestión de Pagos de la Tesorería Nacional, un informe que demuestre la incorporación en el presupuesto de los recursos de contrapartida para hacer frente a gastos corrientes y operacionales.

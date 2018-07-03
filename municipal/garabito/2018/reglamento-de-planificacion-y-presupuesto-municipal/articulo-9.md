@@ -1,0 +1,1 @@
+Artículo 9°—En caso de fuerza mayor debidamente justificado la Municipalidad podrá presentar presupuestos extraordinarios extemporáneos con su debido ajuste del Plan Operativo anual respectivo a más tardar el 30 de noviembre de cada año, conforme a las Normas Técnicas de Presupuesto Públicos N° N-1-2012-DCDFOE de la Contraloría General de la República.

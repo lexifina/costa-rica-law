@@ -1,0 +1,1 @@
+Artículo 70.—Tomarán los acuerdos por simple mayoría, quedando firmes en el mismo acto en el que se adopten. En caso de empate, se votará de nuevo en el mismo acto y de empatar otra vez el asunto se tendrá por desechado.

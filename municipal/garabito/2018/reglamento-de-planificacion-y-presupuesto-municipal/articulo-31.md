@@ -1,0 +1,1 @@
+Artículo 31.—Antes del 15 de febrero de cada año, se elevará el informe del artículo anterior a la Contraloría General de la República para su aprobación, por parte de los funcionarios encargados del proceso de Secretaria de Concejo y del subproceso de Presupuesto, adjuntando lo dispuesto en el Artículo 19.

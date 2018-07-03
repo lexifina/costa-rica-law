@@ -1,0 +1,1 @@
+Artículo 57.—Le corresponde a la Municipalidad el Control y Seguimiento a nivel cantonal y distrital de los proyectos financiados con partidas específicas, que sean ejecutados por ellas mismas, por medio de contrataciones o por medio de convenios con otras entidades idóneas.

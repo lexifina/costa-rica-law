@@ -1,0 +1,5 @@
+CAPÍTULO III
+Modificaciones Presupuestarias
+Artículo 19.—El encargado del proceso de Planificación en coordinación con el encargado del sub proceso de Presupuesto deberán elaborar un Cronograma para la presentación de las Modificaciones presupuestarias y en el caso de los presupuestos extraordinarios, conforme se establece en el “Manual de procedimientos de formulación, aprobación, ejecución, evaluación presupuestaria y otros” los cuales no podrán exceder de un máximo de tres presupuestos extraordinarios y un presupuesto Extemporáneo, este último, se formulará considerando circunstancias de carácter especialísimas; conforme lo establecen las Normas Técnicas de Presupuestos Públicos N-1-2012-DC-DFOE de la Contraloría General de la República.
+Cada dependencia hará una revisión de su presupuesto en el mes de enero de cada año a efecto de replantearlo en caso de que así lo amerite, por haber cambiado la realidad o condiciones planteadas en el presupuesto Ordinario en el mes de Junio del año anterior, esto con el fin de que se ajuste a la funcionalidad de su área, durante el año en ejecución.
+Lo anterior, también, aplicará para los presupuestos extraordinarios.

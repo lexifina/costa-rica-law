@@ -1,0 +1,1 @@
+Artículo 71.—De cada sesión se levantará un acta, en la cual constarán los acuerdos tomados y las deliberaciones habidas. Aprobadas las actas, serán firmadas por el presidente y secretario, aprobándose dichas actas en una sesión ordinaria posterior.
