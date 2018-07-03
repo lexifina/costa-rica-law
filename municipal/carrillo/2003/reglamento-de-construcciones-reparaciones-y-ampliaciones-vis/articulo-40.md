@@ -1,3 +1,0 @@
-CAPÍTULO VI
-Del visado de planos catastrados
-Artículo 40.—Del visado de los planos catastrados. De conformidad con lo que establece el artículo 33 de la Ley de Planificación Urbana, para todo fraccionamiento de terrenos o inmuebles será indispensable el visado de los planos catastrados. Dicho visado será otorgado por el Alcalde Municipal previo visto bueno del Departamento de Catastro y la asesoría del Ingeniero Municipal, de conformidad con las atribuciones que le otorga dicho artículo. En caso de que el Alcalde Municipal no pueda otorgar el visado por tener interés directo, lo hará en suplencia el Ingeniero Municipal.

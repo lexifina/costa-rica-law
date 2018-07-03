@@ -1,1 +1,0 @@
-Artículo 15.—De la aceptación de obras civiles. El desarrollador o representante legal cuando haya finalizado las obras civiles (urbanizaciones, segregaciones, etc.), de conformidad con las especificaciones técnicas, de planos aprobados por las instituciones correspondientes solicitara a través del Departamento de Ingeniería y Construcciones la recepción de las obras.

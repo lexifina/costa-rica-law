@@ -1,1 +1,0 @@
-Artículo 19.—De la línea de construcción o alineamiento. La línea de construcción se establecerá conforme a las normas de zonificación y reglas del caso. En ningún caso podrá ser alterada la línea de construcción establecida por el Departamento de Ingeniería y Construcciones.

@@ -1,1 +1,0 @@
-Artículo 18.—Es responsabilidad del desarrollador de una obra civil que desmejore la vía pública dejarla en el mismo estado o mejor de que la encontró, por lo cual deberá reparar cualquier daño que provoque la infraestructura existente.

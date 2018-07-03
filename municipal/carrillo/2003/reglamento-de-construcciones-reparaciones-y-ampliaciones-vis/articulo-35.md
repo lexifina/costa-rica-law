@@ -1,1 +1,0 @@
-Artículo 35.—En los casos comprobados de violación de los sellos de clausura, el funcionario pasará el asunto, con la información respectiva, al asesor legal, a efecto de que este proceda a coordinar la presentación ante el Ministerio Público, de la denuncia correspondiente.
