@@ -1,2 +1,3 @@
-Del procedimiento
-Artículo 217.—Cuando se trate de faltas graves que conlleve la suspensión del servidor o la destitución o cualesquiera otras de similar gravedad, se observará el procedimiento administrativo del presente Reglamento: asimismo cuando se trate de denuncias por acoso u hostigamiento sexual.
+Artículo 217.-El Órgano Director tendrá un plazo máximo de dos meses a partir de la apertura del expediente administrativo para emitir la recomendación final. No obstante si por alguna razón el Órgano Director no ha podido realizar los actos o actuaciones previstos dentro del plazo señalado o por suspensión del plazo por fuerza mayor, se podrá prorrogar el mismo por un término igual o menor. De lo anterior se pondrá en conocimiento al Superior y a las partes del Superior Jerárquico que la ordena.
+En el proceso por acoso u hostigamiento sexual se tendrá un plazo improrrogable de tres meses.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 242 al 217. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

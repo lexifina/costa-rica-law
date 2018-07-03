@@ -1,4 +1,2 @@
-CAPÍTULO XXIV
-(Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012)
-De la vigencia de la dedicación exclusiva
-Artículo 133.—Al encontrarse en vacaciones, el servidor acogido a la dedicación exclusiva, mantiene las restricciones y obligaciones que establece el presente Reglamento.
+Artículo 133.-Si el servidor estima que la calificación no es la que le corresponde, podrá impugnarla por escrito, exponiendo los motivos en que fundamenta su inconformidad ante su jefe inmediato, dentro de los tres días hábiles siguientes al de la notificación, debiéndole ser también notificada la resolución de dicha impugnación en un plazo no mayor de cinco días hábiles.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 158 al 133. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

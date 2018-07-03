@@ -1,3 +1,1 @@
-Artículo 262.—En el caso de funcionarios nombrados a plazo fijo, u obra determinada, la relación de servicio termina:
-a) Por vencimiento del plazo en que fue nombrado, o terminación la obra para cuya realización fue contratado.
-a) Se sitúe en cualesquiera de las causas enumeradas en el Artículo anterior.
+Artículo 262.— (El texto del presente numeral puede consultarse en el artículo 237, toda vez que mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018 se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

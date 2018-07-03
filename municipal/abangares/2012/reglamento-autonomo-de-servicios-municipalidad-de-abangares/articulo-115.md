@@ -1,5 +1,5 @@
-Artículo 115.—De las publicaciones efectuadas. La publicación de libros, ensayos, artículos, antologías y compilaciones, incluidos en revistas de reconocido prestigio, serán reconocidas en los casos que:
-a) Sean de carácter especializado en la disciplina de su formación académica o atinente al campo de actividad del puesto que desempeña dentro del régimen municipal.
-b) Hayan sido autorizados por un consejo editorial competente, y publicadas en medio de reconocida solvencia editorial y competencia técnica o científica
-c) No sean trabajos requeridos para la obtención de grados académicos, ni el resultado del desempeño habitual del puesto; a excepción de aquellos que se realicen a título personal y en los cuales concurra el aporte del funcionario y de la institución.
-d) No se reconocerán para efectos del otorgamiento del incentivo, esquemas y fascículos vulgarizadores destinados al público no especializado. Estos comprenden: folletos, entregas o cuadernillos los cuales ofrecen información concreta y rápida sobre determinada materia.
+Artículo 115.-El incumplimiento de las disposiciones que rigen en el presente Reglamento o del respectivo contrato, por parte del Profesional que disfruta de los beneficios, tiene como consecuencia:
+a. La rescisión inmediata del Contrato de Dedicación Exclusiva
+b. El reintegro a la Municipalidad por parte del profesional, de las sumas que haya recibido por este concepto y que se le hubieren pagado a partir de la fecha en que incurrió en el incumplimiento.
+c. El profesional incumpliente, no podrá firmar un nuevo Contrato y percibir incentivos por Dedicación Exclusiva durante un lapso de tres años a partir de la fecha del incumplimiento del Reglamento o del Contrato
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 140 al 115. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

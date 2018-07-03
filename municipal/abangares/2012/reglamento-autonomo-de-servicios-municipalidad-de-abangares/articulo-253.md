@@ -1,1 +1,2 @@
-Artículo 253.—Es potestativo usar ambos recursos ordinarios o uno solo de ellos pero será inadmisible el que se interponga pasados los términos fijados en los artículos anteriores.
+Artículo 253.-La Comisión de Ayudas a Funcionarios, tendrá un plazo máximo de cinco días hábiles, para emitir la recomendación final. De no emitirse en dicho lapso, el Alcalde y sus dependencias podrán aprobar la ayuda de oficio.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 278 al 253. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

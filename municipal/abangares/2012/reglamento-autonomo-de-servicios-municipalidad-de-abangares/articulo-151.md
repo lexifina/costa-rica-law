@@ -1,1 +1,2 @@
-Artículo 151.—El Departamento de Recursos Humanos tendrá además bajo su custodia y responsabilidad los expedientes relativos al incentivo de Carrera Profesional.
+Artículo 151.-El cómputo, la suspensión, la interrupción y los demás extremos relativos a la prescripción se regirán por lo que se estipula en el Título X del Código de Trabajo.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 176 al 151. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

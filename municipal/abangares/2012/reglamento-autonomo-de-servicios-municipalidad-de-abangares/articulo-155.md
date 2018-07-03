@@ -1,1 +1,6 @@
-Artículo 155.—Las calificaciones serán determinantes para la concesión de ascensos, traslados y un factor de obligada consideración al decidir sobre cualquier modificación de los términos de la relación del servicio.
+Artículo 155.-Prevención del hostigamiento. Sin perjuicio de otros mecanismos que se implementen en el futuro, la prevención de las conductas constitutivas de hostigamiento moral y psicológico, estará a cargo de la Dirección de Recursos Humanos, la cual mediante charlas y reuniones con el personal de los diferentes departamentos y dependencias administrativas de la Institución, suministrará la información necesaria y canalizará las inquietudes que se propongan.
+Los mecanismos de divulgación tendientes a prevenir, desalentar, evitar y, eventualmente sancionar, las conductas constitutivas de hostigamiento moral y psicológico serán:
+a) Colocación en lugares visibles de oficinas o centros de trabajo, de un ejemplar de los instrumentos normativos correspondientes;
+b) Incorporación de charlas relacionadas con la política interna de prevención, investigación y eventual sanción;
+c) Cualquier otro que se considere pertinente.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 180 al 155. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

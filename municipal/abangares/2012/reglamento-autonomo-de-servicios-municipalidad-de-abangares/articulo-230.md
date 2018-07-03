@@ -1,1 +1,2 @@
-Artículo 230.—Las diligencias de evacuación de pruebas, deberán tener lugar normalmente en la sede del Órgano Director, pero si hubiere que hacer un reconocimiento o se requiriere prueba pericial se podrá efectuar en el lugar de los hechos.
+Artículo 230.-El Recurso de Apelación deberá resolverse dentro de los quince días naturales posteriores al recibo del expediente. De ser admisible, se confirmará, modificará o revocará el acto impugnado.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 255 al 230. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

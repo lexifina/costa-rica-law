@@ -1,1 +1,2 @@
-Artículo 224.—Si el involucrado no ejerce su defensa en el término establecido, se continuará con el procedimiento hasta su conclusión, debiendo notificársele la resolución final en forma personal en su domicilio o lugar de trabajo.
+Artículo 224.-Los recursos serán ordinarios y extraordinarios. Se consideran ordinarios el de Revocatoria, de Reposición cuando el acto impugnado sea emitido por el máximo jerarca y de Apelación; y Extraordinario el de revisión.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 249 al 224. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

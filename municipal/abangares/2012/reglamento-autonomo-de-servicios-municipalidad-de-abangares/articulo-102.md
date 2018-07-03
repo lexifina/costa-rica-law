@@ -1,1 +1,12 @@
-Artículo 102.—Objetivos. La carrera profesional tendrá como objetivo básico reconocer por medio de un estímulo económico, la superación académica y laboral de los profesionales al servicio de la Municipalidad, a fin de que puedan ofrecer un mejor servicio a la misma.
+CAPÍTULO XX
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo Capítulo XXI al XX. Lo anterior ya que en dicha sesión se ordena derogar del artículo el Capítulo XIX original que contenía los artículos del 100 al 124 modificar la numeración de los artículo siguientes)
+De los requisitos exigidos para acogerse
+a la dedicación exclusiva y disponibilidad
+Artículo 102.-Podrán optar a la dedicación exclusiva y disponibilidad, aquellos profesionales que tengan el grado de Bachiller Universitario, Licenciatura, Máster y Doctorado.
+En aquellos casos en que el profesional posea un título académico de una Universidad extranjera, debe de aportar una certificación donde conste que el título fue reconocido y equiparado con el de una Universidad Nacional. Así, para los casos que lo requieran, el profesional debe estar inscrito al Colegio de Profesionales de su especialidad.
+La presentación del título o certificación (Voto de la Sala Constitucional 4814-95 del 30 de agosto de 1995) debe de hacerse en Original y Fotocopia. Para solicitar acogerse a la dedicación exclusiva, debe cumplirse con los siguientes requisitos:
+a) Laborar para la Municipalidad en jornada completa en un puesto en propiedad por un espacio no menor de un año y que tal nombramiento no haya sido interrumpido.
+b) Que para la naturaleza del puesto que desempeñen los servidores, sea requisito tener alguno de los grados académicos que se han mencionado y que estén acorde con la especialidad o énfasis del cargo.
+c) Tener el título o certificación emitida por una Universidad Nacional plenamente reconocida por el CONESUP (Voto de la Sala Constitucional 4814-95 del 30 de agosto de 1995) requerido y estar incorporado al Colegio Profesional cuando exista y sea requisito para el ejercicio de su cargo.
+d) Que firme el Contrato de dedicación exclusiva y disponibilidad con la Municipalidad.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 127 al 102. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

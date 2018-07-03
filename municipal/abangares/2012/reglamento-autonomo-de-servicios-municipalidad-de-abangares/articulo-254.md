@@ -1,1 +1,2 @@
-Artículo 254.—El Órgano que dictó el acto, deberá resolver el Recurso de Revocatoria o Reposición dentro de los quince días posteriores a la presentación.
+Artículo 254.-La Municipalidad podrá vender lotes de su propiedad a los trabajadores/as que carezcan de vivienda, según el marco legal vigente.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 279 al 254. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

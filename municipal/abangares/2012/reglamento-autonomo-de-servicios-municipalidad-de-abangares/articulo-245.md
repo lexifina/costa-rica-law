@@ -1,1 +1,2 @@
-Artículo 245.—El Departamento de Recursos Humanos deberá remitir en el plazo máximo de diez días según la complejidad del asunto la información y documentos necesarios, al Departamento Legal para el trámite correspondiente.
+Artículo 245.-La Municipalidad se reserva el derecho de ayudar con materiales y mano de obra, a aquellos funcionarios ocasionales o interinos que laboren para la misma, por razones de extrema pobreza, infortunio y /o siniestros.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 270 al 245. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

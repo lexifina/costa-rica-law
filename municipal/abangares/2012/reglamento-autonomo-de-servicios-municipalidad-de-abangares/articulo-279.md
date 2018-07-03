@@ -1,1 +1,1 @@
-Artículo 279.—La Municipalidad podrá vender lotes de su propiedad a los trabajadores/as que carezcan de vivienda, según el marco legal vigente.
+Artículo 279.— (El texto del presente numeral puede consultarse en el artículo 254, toda vez que mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018 se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

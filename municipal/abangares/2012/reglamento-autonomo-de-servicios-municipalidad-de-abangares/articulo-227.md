@@ -1,1 +1,2 @@
-Artículo 227.—En el proceso por acoso u hostigamiento sexual el Órgano Director podrá contar con el apoyo de al menos un profesional en psicología especialista en la materia.
+Artículo 227.-El Recurso de Reposición contra el acto final del Jerarca se regulará por las disposiciones contenidas en la Ley Reguladora de la Jurisdicción Contencioso- Administrativa y Ley General de la Administración Pública.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 252 al 227. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

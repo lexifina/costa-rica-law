@@ -1,1 +1,1 @@
-Artículo 272.—Para otorgas las ayudas señaladas en el artículo anterior, la Municipalidad presupuestará anualmente los recursos necesarios.
+Artículo 272.— (El texto del presente numeral puede consultarse en el artículo 247, toda vez que mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018 se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

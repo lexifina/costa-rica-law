@@ -1,5 +1,2 @@
-Artículo 111.—De los cursos de capacitación impartidos. Se reconocerá la participación de los profesionales en la ejecución de cursos de interés para la institución, ya sean dentro o fuera de esta y siempre que:
-a) Que los cursos obtengan la evaluación del departamento de Recursos Humanos, en cuanto al grado de interés para las mismas en calidad y coordinación.
-b) El servidor tuviere la condición de bachiller como mínimo al momento de impartirlos.
-c) Los profesionales hayan obtenido en la evaluación como instructores una nota no inferior a muy bueno.
-d) La duración mínima de la participación del instructor en estos cursos ha de ser de 8 horas naturales, las cuales se acumularán para efectos del puntaje establecido.
+Artículo 111.-Los beneficios de la dedicación exclusiva, se suspenderán en el momento en que se incumpla cualquiera de los requisitos establecidos en el artículo 127 de este Reglamento. En tal caso, la Alcaldía deberá comunicar oficialmente a la Contraloría General de la República.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 136 al 111. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

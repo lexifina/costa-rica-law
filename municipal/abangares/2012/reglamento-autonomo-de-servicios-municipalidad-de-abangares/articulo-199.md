@@ -1,1 +1,2 @@
-Artículo 199.—Las Subcomisiones coordinaran sus labores con la Comisión Institucional de Salud Ocupacional y rendirán a ésta un informe trimestral de lo actuado durante el período.
+Artículo 199.-Si el involucrado no ejerce su defensa en el término establecido, se continuará con el procedimiento hasta su conclusión, debiendo notificársele la resolución final en forma personal en su domicilio o lugar de trabajo.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 224 al 199. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

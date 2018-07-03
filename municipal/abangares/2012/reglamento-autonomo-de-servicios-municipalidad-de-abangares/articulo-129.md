@@ -1,1 +1,2 @@
-Artículo 129.—La aplicación de esta compensación económica (dedicación exclusiva) se les pagará a los funcionarios mencionados en el artículo 127 del presente Reglamento.
+Artículo 129.-Para los efectos del otorgamiento de incentivos y beneficios que fomente el desarrollo y la promoción del personal, la Municipalidad a través del Departamento encargado del personal y mediante un programa establecido, cumplirá con lo indicado en el Artículo 134 del Código Municipal.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 154 al 129. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

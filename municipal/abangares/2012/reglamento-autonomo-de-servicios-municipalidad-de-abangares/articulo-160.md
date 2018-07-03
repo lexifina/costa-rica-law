@@ -1,1 +1,5 @@
-Artículo 160.—Si persistiere la inconformidad del servidor, éste podrá apelar ante la Alcaldía Municipal de acuerdo al Artículo 162 del Código Municipal.
+Artículo 160.-Medidas asegurativas. En cualquier estado del procedimiento, hasta tanto no adquiera firmeza la resolución o acto final, o bien la declaratoria con lugar de las eventuales diligencias de despido, el Órgano Director deberá tomar las medidas necesarias para proteger a la víctima, y podrá resolver en única instancia:
+a. La suspensión provisional del (de la) denunciado (a) con goce de salario.
+b. La reubicación temporal del (de la) denunciado (a).
+c. La reubicación de la presunta víctima o de algún testigo, previa solicitud suya o de sus representantes legales, cuando exista una relación de subordinación respecto del denunciado o se presuma la continuación de las presuntas conductas de hostigamiento sexual o persecución laboral denunciadas por la víctima.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 185 al 160. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

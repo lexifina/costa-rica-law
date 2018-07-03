@@ -1,1 +1,2 @@
-Artículo 197.—La elección de los representantes de la Comisión Institucional se hará de conformidad con lo establecido en el Decreto Ejecutivo No 18379-TSS de 9 de junio de 1988 y sus reformas.
+Artículo 197.-Cualquier infidencia de una persona del Órgano Director o de cualquier otro servidor vinculado directa o indirectamente con el procedimiento, se considerará falta grave de acuerdo con las disposiciones de este Reglamento.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 222 al 197. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

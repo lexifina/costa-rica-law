@@ -1,2 +1,2 @@
-De los recursos
-Artículo 248.—Los servidores podrán recurrir contra todas aquellas resoluciones o disposiciones que les causen perjuicio.
+Artículo 248.-La Municipalidad conformará una Comisión de Ayudas a Funcionarios, la cual estará integrada en igual proporción y representación que la Junta de Relaciones Laborales, pudiendo ser esta la que asuma dicha función. Mientras no esté conformada la presente Comisión, las ayudas serán autorizadas por el Alcalde Municipal y las Jefaturas respectivas.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 273 al 248 . Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

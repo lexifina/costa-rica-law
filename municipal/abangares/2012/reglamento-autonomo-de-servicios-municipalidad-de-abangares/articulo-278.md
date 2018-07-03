@@ -1,1 +1,1 @@
-Artículo 278.—La Comisión de Ayudas a Funcionarios, tendrá un plazo máximo de cinco días hábiles, para emitir la recomendación final. De no emitirse en dicho lapso, el Alcalde y sus dependencias podrán aprobar la ayuda de oficio.
+Artículo 278.— (El texto del presente numeral puede consultarse en el artículo 253, toda vez que mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018 se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

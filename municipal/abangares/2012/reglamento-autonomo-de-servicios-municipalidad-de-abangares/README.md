@@ -15,3 +15,4 @@ Reglamento Autónomo de Servicios Municipalidad de Abangares
 | --- | --- | --- |
 | 1 | 2012-04-12 | la propia norma |
 | 2 | 2012-11-12 | Reglamento municipal 0 (2012-11-12) |
+| 3 | 2018-07-03 | Reglamento municipal 27 (2018-07-03) |

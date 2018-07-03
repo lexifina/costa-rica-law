@@ -1,1 +1,2 @@
-Artículo 132.—Una vez firmado el contrato de marras, el Departamento de Recursos Humanos procederá a confeccionar la acción de personal respectiva, que deberá seguir el trámite usual que rige en esta materia.
+Artículo 132.-La evaluación del desempeño se notificará al servidor dentro de los tres días hábiles siguientes de obtenido los resultados correspondientes.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 157 al 132. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

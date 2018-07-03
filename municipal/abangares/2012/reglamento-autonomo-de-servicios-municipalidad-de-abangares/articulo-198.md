@@ -1,1 +1,2 @@
-Artículo 198.—La Comisión Institucional de Salud Ocupacional elaborará su propio manual de funcionamiento.
+Artículo 198.-El Órgano Director del procedimiento, deberá velar porque se respeten los principios constitucionales del debido proceso y demás garantías de Ley.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 223 al 198. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

@@ -1,4 +1,3 @@
-CAPÍTULO XXX
-(Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012)
-Del acoso u hostigamiento sexual en el empleo
-Artículo 161.—La Municipalidad de Abangares basada en los principios constitucionales del respeto por la libertad y la vida humana, el derecho al trabajo y el principio de igualdad ante la ley, así como en el establecimiento de políticas para la eliminación de la discriminación contra la mujer y erradicar la violencia contra la mujer, establece el presente articulado contra el hostigamiento y acoso sexual.
+Artículo 161.-Notificación a la parte involucrada. Se dará traslado de la denuncia al funcionario (a) acusado (a), concediéndole un plazo de cinco días hábiles para que se refiera a todos y cada uno de los hechos que se le imputan y ofrezca los medios de prueba en descargo de los mismos. Si el denunciado no ejerce su defensa se continuará con el proceso, hasta el informe final por parte del Órgano Director.
+Transcurrido el plazo de los cinco días hábiles, el Órgano Director hará comparecer a las partes recibiendo los distintos medios de prueba pertinentes así como las respectivas declaraciones.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 186 al 161. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

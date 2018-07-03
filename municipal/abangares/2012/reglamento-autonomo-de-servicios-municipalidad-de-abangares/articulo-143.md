@@ -1,4 +1,3 @@
-CAPÍTULO XXVII
-(Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012)
-De la disponibilidad
-Artículo 143.—Se entenderá por disponibilidad para efectos del presente Reglamento, la compensación económica retribuida a los funcionarios que ostenten puestos tales como Fontaneros- Peones de fontanería – Jefatura de Obras y Servicios – Acueducto, Inspector General, conductores de vehículos livianos, pesados o equipo especial, entre otros o satisfaga los literales a), b), c) y d) del artículo 127 de este reglamento.
+Artículo 143.-El Alcalde Municipal (*) y Jefes de Departamentos, que incurran en el hostigamiento sexual, serán responsables personalmente por sus actuaciones, así mismo tendrán responsabilidad, si, pese a haber recibido las quejas de la persona ofendida no cumple con lo establecido en este articulado.
+(*)(Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012, anteriormente decía "Jerarca de la Institución")
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 168 al 143. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

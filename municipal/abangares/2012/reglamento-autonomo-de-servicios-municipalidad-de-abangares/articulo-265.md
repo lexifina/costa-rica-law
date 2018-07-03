@@ -1,1 +1,1 @@
-Artículo 265.—El trabajador/a que reciba una ayuda a partir de la aprobación del presente reglamento, no podrá optar por una nueva ayuda hasta haber transcurrido al menos tres años, salvo en casos de siniestros podrá recibir ayuda en forma inmediata.
+Artículo 265.— (El texto del presente numeral puede consultarse en el artículo 240, toda vez que mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018 se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

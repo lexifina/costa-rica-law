@@ -1,5 +1,5 @@
-Artículo 108.—De los grados académicos. La interpretación y la aplicación de los factores indicados en el título anterior, se hará de acuerdo con los criterios siguientes:
-Relacionados directamente con el puesto que ejerce el servidor.
-a) Conferidos o reconocidos y equiparados por alguna de las universidades facultadas para ello.
-La especialidad se ponderará como tal si fue obtenida con base en la licenciatura. A la especialidad obtenida con base en el bachillerato, se le otorgará el puntaje previsto para la licenciatura.
-Se entenderá por grados y especialidades adicionales aquellos que presente el servidor y que no hayan sido tomados o considerados para la puntuación básica del título o certificación anterior, pero que sean estrictamente afines con el puesto que desempeña. Solo se reconocerá un grado o especialidad adicional a cada servidor. Los grados y títulos académicos conferidos por universidades privadas existentes en el país serán aceptados siempre y cuando la respectiva universidad esté debidamente autorizada por el CONESUP.
+CAPÍTULO XXIII
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo Capítulo XXIV al XXIII. Lo anterior ya que en dicha sesión se ordena derogar el Capítulo XIX original que contenía del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)
+De la vigencia de la dedicación exclusiva
+Artículo 108.-Al encontrarse en vacaciones, el servidor acogido a la dedicación exclusiva, mantiene las restricciones y obligaciones que establece el presente Reglamento.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 133 al 108. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

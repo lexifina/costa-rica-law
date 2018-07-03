@@ -1,1 +1,2 @@
-Artículo 175.—Cuando mediante sentencia, se compruebe el hostigamiento, el funcionario o funcionaria ofendida tendrá derecho a una indemnización por daño moral, si ha sido acreditado, lo cual será de conocimiento del juez de trabajo.
+Artículo 175.-La Comisión Institucional de Salud Ocupacional en coordinación con las Subcomisiones, establecerá los medios adecuados que permitan a los servidores de la Institución disponer de lugares de recreación en sus centros de trabajo.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 200 al 175. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

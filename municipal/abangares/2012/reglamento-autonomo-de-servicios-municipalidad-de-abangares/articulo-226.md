@@ -1,1 +1,2 @@
-Artículo 226.—La citación a los involucrados y testigos deberá hacerse con cinco días hábiles de anticipación, salvo disposición en contrario o caso de urgencia en el cual podrá prescindirse del plazo y hacerse venir al citado en el momento mismo.
+Artículo 226.-El Recurso de Apelación procede ante el Superior Jerárquico del Órgano que dictó el acto objeto de impugnación, el cual deberá interponerse en un plazo de tres días hábiles a partir del momento en que tuvo conocimiento de éste.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 251 al 226. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

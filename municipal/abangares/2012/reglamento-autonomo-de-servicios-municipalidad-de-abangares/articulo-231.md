@@ -1,1 +1,2 @@
-Artículo 231.—Podrán también llevarse a cabo en otra sede, por economía de gastos o cualesquiera otras ventajas administrativas evidentes, si ello es posible sin pérdida de tiempo ni perjuicio grave de las partes.
+Artículo 231.-Si existiere algún vicio de forma de los que originan nulidad conforme se indica en la Ley General de la Administración Pública, se ordenará retrotraer el expediente al momento en que el vicio fue cometido salvo posibilidad de saneamiento o convalidación.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 256 al 231. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

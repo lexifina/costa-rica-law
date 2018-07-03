@@ -1,4 +1,4 @@
-Artículo 237.—Una vez emitida la recomendación, se enviara al Alcalde Municipal (*) correspondiente, quien dictará el acto final y comunicara al Departamento de Recursos Humanos la decisión final, para su aplicación dentro del término de Ley.
-(*)(Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012, anteriormente decía "Jerarca de la Institución")
-La recomendación en el proceso por acoso u hostigamiento sexual se remitirá al Alcalde Municipal (*), para los efectos correspondientes y se informará a la Defensoría de los Habitantes el resultado del proceso.
-(*)Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012, anteriormente decía "Jerarca de la Institución")
+Artículo 237.-En el caso de funcionarios nombrados a plazo fijo, u obra determinada, la relación de servicio termina:
+a) Por vencimiento del plazo en que fue nombrado, o terminación la obra para cuya realización fue contratado.
+a) Se sitúe en cualesquiera de las causas enumeradas en el Artículo anterior.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 262 al 237. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

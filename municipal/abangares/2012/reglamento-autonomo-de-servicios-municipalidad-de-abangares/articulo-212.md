@@ -1,6 +1,5 @@
-Artículo 212.—Para las ausencias injustificadas computadas, dentro de un mismo mes calendario, se aplicaran las siguientes sanciones:
-1- Por media ausencia, amonestación escrita.
-2- Por una o dos medias ausencias alternas, suspensión por dos días.
-3- Por una ausencia y media consecutivas o alternas o dos ausencias alternas, suspensión de dos a ocho días.
-4- Por dos ausencias consecutivas o más de dos alternas, despido sin responsabilidad patronal.
-Las sanciones se harán efectivas en el transcurso del mes debiendo aplicarse el rebajo de salario correspondiente.
+Artículo 212.-Una vez emitida la recomendación, se enviara al Alcalde Municipal (*) correspondiente, quien dictará el acto final y comunicara al Departamento de Recursos Humanos la decisión final, para su aplicación dentro del término de Ley.
+(*)(Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012, anteriormente decía "Jerarca de la Institución")
+La recomendación en el proceso por acoso u hostigamiento sexual se remitirá al Alcalde Municipal (*), para los efectos correspondientes y se informará a la Defensoría de los Habitantes el resultado del proceso.
+(*)Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012, anteriormente decía "Jerarca de la Institución")
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 237 al 212. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

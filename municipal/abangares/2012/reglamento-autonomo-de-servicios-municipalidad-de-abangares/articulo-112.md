@@ -1,3 +1,2 @@
-Artículo 112.—De la experiencia profesional en organismos internacionales.
-a. Para el cálculo de la experiencia no se deducirán los permisos con o sin goce de sueldo para realizar estudios, siempre que los mismos estén relacionados con el puesto que desempeña.
-b. En todo caso la ponderación de la experiencia será proporcional a la jornada de trabajo.
+Artículo 112.-El contrato de dedicación exclusiva y disponibilidad, tiene vigencia indefinida mientras exista la relación laboral, a partir de la fecha de la firma por parte de la Alcaldía.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 137 al 112. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

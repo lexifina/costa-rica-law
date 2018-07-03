@@ -1,1 +1,3 @@
-Artículo 222.—Cualquier infidencia de una persona del Órgano Director o de cualquier otro servidor vinculado directa o indirectamente con el procedimiento, se considerará falta grave de acuerdo con las disposiciones de este Reglamento.
+Artículo 222.-Una vez dictada la resolución por parte del Alcalde Municipal (*), ella deberá remitirse a las instancias externas de la Municipalidad para el trámite de rigor. Es responsabilidad del gestionante efectuar los trámites correspondientes para su efectivo pago en caso de corresponderle.
+(*)Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012, anteriormente decía "Jerarca de la Institución")
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 247 al 222. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

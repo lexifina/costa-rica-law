@@ -1,1 +1,6 @@
-Artículo 120.—Las resoluciones referidas, serán comunicadas al interesado, al jefe de Recursos Humanos y al Jefe de Departamento, a fin de que se tramite la respectiva acción de personal en que se haga efectivo el incentivo por carrera profesional, así como las modificaciones presupuestarias que se requieran.
+CAPÍTULO XXVII
+(Nota de Sinalevi: Mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012, se arregla la numeración del presente reglamento. No obstante mediante información suministrada por la Municipalidad de Abangares, el presente capítulo no corresponde al presente articulado)
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo Capítulo XXVI al Capítulo XVII. Lo anterior ya que en dicha sesión se ordena derogar el Capítulo XIX original que contenía del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)
+Artículo 120.-El funcionario municipal puede acogerse simultáneamente o particularmente a la Disponibilidad y a la Dedicación Exclusiva.
+Para los efectos anteriores la Municipalidad, deberá reservar en el presupuesto ordinario anual o por medio de la modificación presupuestaria las partidas necesarias a fin de dar contenido económico a ambos beneficios.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 145 al 120. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

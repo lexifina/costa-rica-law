@@ -1,1 +1,1 @@
-Artículo 258.—El Alcalde Municipal agotara la vía administrativa mediante el trámite establecido por la Ley General de la Administración Pública.
+Artículo 258.— (El texto del presente numeral puede consultarse en el artículo 233, toda vez que mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018 se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

@@ -1,4 +1,5 @@
 CAPÍTULO XIX
-(Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012)
-Carrera profesional
-Artículo 100.—Definición. Denomínese “carrera profesional”, al incentivo económico aplicable a los funcionarios de nivel profesional de la Municipalidad de Abangares; concedido con base en sus grados académicos, postgrados adicionales al bachillerato universitario, capacitación recibida, la capacitación impartida bajo la condición de instructor, la experiencia obtenida en organismos internacionales, la experiencia docente en instituciones de enseñanza de nivel universitario o para universitario y las publicaciones efectuadas.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo capítulo XX al XIX, Lo anterior ya que en dicha sesión se ordena eliminar el capítulo XIX original que comprendía de los artículo 100 al 124)
+De la definición y objetivos de la dedicación exclusiva
+Artículo 100.-Se entenderá por dedicación exclusiva para efectos del presente Reglamento, la compensación económica retribuida a los servidores con grado de profesional, porcentualmente sobre sus salarios base (previa suscripción de un contrato entre el Servidor y la Alcaldía, para que obligatoriamente no ejerzan de manera particular (remunerada o ad honórem ) ninguna profesión que ostenten así como las actividades relacionadas con ésta o estas; con las excepciones que se establecen en el presente Reglamento).
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 125 al 100. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

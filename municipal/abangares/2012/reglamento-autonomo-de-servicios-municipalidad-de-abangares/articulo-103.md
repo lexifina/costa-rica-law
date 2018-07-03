@@ -1,6 +1,5 @@
-Artículo 103.—Requisitos. Para ingresar a la carrera profesional se requiere:
-a) Ocupar un puesto en propiedad en la Municipalidad, con una jornada a tiempo completo.
-b) Desempeñar un puesto que exija como mínimo el grado académico de bachillerato.
-c) Poseer al menos el grado académico de bachillerato, en una carrera universitaria que lo faculte para el desempeño del puesto.
-d) Que estén incorporados al respectivo colegio profesional, cuando exista esta entidad en el área correspondiente y encontrarse al día con sus obligaciones.
-e) Mantenerse al día en el pago de sus cuotas como colegiado, mientras dure la relación laboral
+CAPÍTULO XXI
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo Capítulo XXII al XXI. Lo anterior ya que en dicha sesión se ordena derogar el Capítulo XIX original que contenía del artículo 100 al 124 y modificar la numeración de los artículo siguientes)
+Aplicación de la dedicación exclusiva
+Artículo 103.-La Municipalidad reconocerá a los funcionarios con grado de profesional en razón de la naturaleza y responsabilidad de los puestos que desempeñen, un 35% a aquellos servidores que poseen el grado académico de bachillerato universitario y ocupen un puesto para el que se requiere la condición anterior y además satisfaga los literales a), b), c) y d) del artículo 127 de este reglamento. Un 55%, a aquellos otros que ostentando el grado académico de licenciatura, adicional sobre su salario base por concepto de dedicación exclusiva, porcentajes aplicados según artículo 20 del Código Municipal. Ley número 7794.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 128 al 103. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

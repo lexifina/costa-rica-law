@@ -1,1 +1,2 @@
-Artículo 252.—El Recurso de Reposición contra el acto final del Jerarca se regulará por las disposiciones contenidas en la Ley Reguladora de la Jurisdicción Contencioso- Administrativa y Ley General de la Administración Pública.
+Artículo 252.-Las ayudas antes descritas serán autorizadas y coordinadas por el Alcalde Municipal y sus dependencias, una vez visto la recomendación de la Comisión de Ayudas a Funcionarios y será resultado del cálculo estipulado en la Convención Colectiva de Trabajo.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 277 al 252. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

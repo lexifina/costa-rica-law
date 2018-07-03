@@ -1,1 +1,2 @@
-Artículo 189.—Recursos. La resolución final tendrá recurso de revocatoria ante el Viceministro (a) y apelación ante el Ministro (a) de Justicia, que deberá ser interpuesto en un plazo de tres días hábiles siguientes a la notificación de ésta.
+Artículo 189.-Para todos los efectos disciplinarios, la reincidencia de las faltas graves previstas en este Reglamento se computarán semestralmente y las leves bimensualmente.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 214 al 189. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

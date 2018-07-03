@@ -1,1 +1,2 @@
-Artículo 135.—Los profesionales que estén acogidos a la dedicación exclusiva y hallan disfrutado de un permiso sin goce de salario, al regresar pueden seguir devengando el pago de dicho incentivo, siempre y cuando, el contrato este vigente.
+Artículo 135.-Si persistiere la inconformidad del servidor, éste podrá apelar ante la Alcaldía Municipal de acuerdo al Artículo 162 del Código Municipal.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 160 al 135. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

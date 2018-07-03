@@ -1,1 +1,1 @@
-Artículo 281.—Este reglamento deberá hacerse del conocimiento de los servidores, mediante exhibición impresa en caracteres fácilmente legibles, en forma permanente, en por lo menos dos de los lugares más visibles de cada centro de trabajo por un período de quince días naturales previo a su entrada en vigencia.
+Artículo 281.— (El texto del presente numeral puede consultarse en el artículo 256, toda vez que mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018 se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

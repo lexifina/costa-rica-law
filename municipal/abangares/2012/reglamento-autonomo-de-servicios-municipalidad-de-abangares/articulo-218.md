@@ -1,1 +1,2 @@
-Artículo 218.—El Departamento Legal de la Municipalidad de Abangares. Será el Órgano Director del Procedimiento y se encargará de investigar preliminarmente toda acusación que implique la suspensión temporal o el despido del servidor, a excepción de aquellas faltas en materia de asistencia que se regirá por lo ya establecido en el presente reglamento.
+Artículo 218.-En lo no previsto por el presente reglamento, se aplicará supletoriamente lo estipulado por la Ley General de Administración Pública.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 243 al 218. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

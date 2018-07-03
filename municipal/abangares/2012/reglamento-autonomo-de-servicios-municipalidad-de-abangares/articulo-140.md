@@ -1,4 +1,2 @@
-Artículo 140.—El incumplimiento de las disposiciones que rigen en el presente Reglamento o del respectivo contrato, por parte del Profesional que disfruta de los beneficios, tiene como consecuencia:
-a. La rescisión inmediata del Contrato de Dedicación Exclusiva
-b. El reintegro a la Municipalidad por parte del profesional, de las sumas que haya recibido por este concepto y que se le hubieren pagado a partir de la fecha en que incurrió en el incumplimiento.
-c. El profesional incumpliente, no podrá firmar un nuevo Contrato y percibir incentivos por Dedicación Exclusiva durante un lapso de tres años a partir de la fecha del incumplimiento del Reglamento o del Contrato
+Artículo 140.-El Alcalde Municipal podrá ordenar o convenir, oficiosamente o a solicitud del interesado la reubicación temporal del servidor denunciado. La solicitud escrita del interesado deberá ser presentada ante el órgano director del procedimiento, quién la remitirá al Alcalde o su representante para ser resuelta en un plazo máximo de ocho días a partir de su presentación.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 165 al 140. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

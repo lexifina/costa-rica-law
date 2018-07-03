@@ -1,1 +1,1 @@
-Artículo 277.—Las ayudas antes descritas serán autorizadas y coordinadas por el Alcalde Municipal y sus dependencias, una vez visto la recomendación de la Comisión de Ayudas a Funcionarios y será resultado del cálculo estipulado en la Convención Colectiva de Trabajo.
+Artículo 277.— (El texto del presente numeral puede consultarse en el artículo 252, toda vez que mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018 se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

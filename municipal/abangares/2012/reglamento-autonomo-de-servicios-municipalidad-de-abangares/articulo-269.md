@@ -1,1 +1,1 @@
-Artículo 269.—La Municipalidad podrá realizar alianzas estratégicas o convenios con entidades públicas o privadas, que conlleven a que sus trabajadores/as cuenten con una vivienda digna, incluyendo la compra o donación de lotes para la construcción de la vivienda.
+Artículo 269.— (El texto del presente numeral puede consultarse en el artículo 244, toda vez que mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018 se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

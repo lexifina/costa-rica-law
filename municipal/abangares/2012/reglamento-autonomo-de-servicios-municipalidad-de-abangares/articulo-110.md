@@ -1,1 +1,2 @@
-Artículo 110.—No se reconocerá como curso de capacitación, los cursos regulares de una carrera universitaria.
+Artículo 110.-Los profesionales que estén acogidos a la dedicación exclusiva y hallan disfrutado de un permiso sin goce de salario, al regresar pueden seguir devengando el pago de dicho incentivo, siempre y cuando, el contrato este vigente.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 135 al 110. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

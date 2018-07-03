@@ -1,4 +1,2 @@
-CAPÍTULO XXVI
-(Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012)
-Otras disposiciones
-Artículo 141.—La Alcaldía y el Departamento de Recursos Humanos, deben velar por el cumplimiento de las disposiciones establecidas en el presente Reglamento.
+Artículo 141.-La persona denunciante de hostigamiento u acoso, así como los testigos, gozarán de las garantías y derechos previstos en la Ley 7476 del 3 de febrero de 1995, en relación con su empleo y condiciones generales de trabajo.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 166 al 141. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

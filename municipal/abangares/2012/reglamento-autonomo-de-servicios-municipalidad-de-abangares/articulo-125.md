@@ -1,4 +1,2 @@
-CAPÍTULO XX
-(Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012)
-De la definición y objetivos de la dedicación exclusiva
-Artículo 125.—Se entenderá por dedicación exclusiva para efectos del presente Reglamento, la compensación económica retribuida a los servidores con grado de profesional, porcentualmente sobre sus salarios base (previa suscripción de un contrato entre el Servidor y la Alcaldía, para que obligatoriamente no ejerzan de manera particular (remunerada o ad honórem ) ninguna profesión que ostenten así como las actividades relacionadas con ésta o estas; con las excepciones que se establecen en el presente Reglamento).
+Artículo 125.-El Departamento de Recursos Humanos deberá velar por la confidencialidad de los expedientes, a los cuales tendrán acceso únicamente el interesado, así como el Alcalde Municipal, el Departamento Legal y la Auditoría Previa autorización del jerarca. Las autoridades judiciales tendrán acceso a los expedientes, con solicitud extendida por un Juez de la Republica.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 150 al 125. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

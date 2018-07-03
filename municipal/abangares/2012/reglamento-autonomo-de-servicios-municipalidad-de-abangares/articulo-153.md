@@ -1,1 +1,13 @@
-Artículo 153.—El desempeño de los servidores nombrados en propiedad será evaluado y calificado como mínimo una vez al año; la calificación se expresará en términos de excelente, muy bueno, bueno, regular, insuficiente e inaceptable, según se establece en el manual confeccionado de conformidad con los Artículos del 135 al 141 del Código Municipal.
+CAPÍTULO XXXI
+(Modificada su denominación mediante publicación en La Gaceta N° 218 del 12 de noviembre del 2012)
+Del hostigamiento psicológico y moral
+Artículo 153.-Definiciones. Para los efectos de una correcta interpretación y aplicación del presente capítulo, se establecen las siguientes definiciones:
+a. "Hostigamiento psicológico y moral": Se entiende por hostigamiento o acoso psicológico y moral en el trabajo, toda aquella actuación en la que una o varias personas, se encuentren en una relación, superior de jerarquía laboral o no, ejerzan violencia psicológica extrema en forma sistemática y recurrente, durante un tiempo prolongado, sobre una o varias personas en el lugar de trabajo, mediante comportamientos, palabras o actitudes, con los siguientes fines:
+1- Degradar sus condiciones de trabajo,
+2- Destruir sus redes de comunicación y su reputación,
+3- Perturbar el ejercicio de sus labores y conseguir su desmotivación laboral.
+Lo anterior incluye el proceso de atormentar, hostigar o aterrorizar psicológicamente a otros en el trabajo.
+b. "Víctima": Es la persona que sufre el hostigamiento.
+c. "Denunciada": La persona a la que se le atribuye una presunta conducta constitutiva de hostigamiento psicológico y moral.
+d. "Órgano Director": Es el Órgano ante el cual se da traslado de la denuncia que, en forma verbal o escrita, ha interpuesto el (la) perjudicado(a) a efecto de dar inicio al procedimiento correspondiente, con el objeto de verificar la verdad real de los hechos denunciados conforme la normativa legal vigente.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 178 al 153. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

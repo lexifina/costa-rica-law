@@ -1,1 +1,3 @@
-Artículo 192.—La Municipalidad conformará una Comisión de Salud Ocupacional, que estará integrada por dos representantes de la Municipalidad y un representante de los gremios sindicales existentes, así como por un miembro del Concejo Municipal, cuyas funciones se encuentran estipuladas en el Reglamento de Comisiones de Salud Ocupacional del Ministerio de Trabajo y Seguridad Social.
+Del procedimiento
+Artículo 192.-Cuando se trate de faltas graves que conlleve la suspensión del servidor o la destitución o cualesquiera otras de similar gravedad, se observará el procedimiento administrativo del presente Reglamento: asimismo cuando se trate de denuncias por acoso u hostigamiento sexual.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 217 al 192. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)

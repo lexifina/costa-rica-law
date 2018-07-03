@@ -1,1 +1,5 @@
-Artículo 118.—El Departamento de Recursos Humanos estudiará la solicitud y si la considerare aceptable determinará de acuerdo con el puntaje obtenido, el monto por reconocer y comunicará al Alcalde Municipal, quien será el encargado de aprobar la solicitud.
+CAPÍTULO XXVI
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo Capítulo XXVII al XXVI. Lo anterior ya que en dicha sesión se ordena derogar el Capítulo XIX original que contenía del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)
+De la disponibilidad
+Artículo 118.-Se entenderá por disponibilidad para efectos del presente Reglamento, la compensación económica retribuida a los funcionarios que ostenten puestos tales como Fontaneros- Peones de fontanería - Jefatura de Obras y Servicios - Acueducto, Inspector General, conductores de vehículos livianos, pesados o equipo especial, entre otros o satisfaga los literales a), b), c) y d) del artículo 127 de este reglamento.
+(Corrida su numeración mediante sesión ordinaria N° 27-2018 del 3 de julio del 2018, que lo traspasó del antiguo artículo 143 al 118. Lo anterior ya que en dicha sesión se ordena derogar del artículo 100 al 124 original y modificar la numeración de los artículo siguientes)
