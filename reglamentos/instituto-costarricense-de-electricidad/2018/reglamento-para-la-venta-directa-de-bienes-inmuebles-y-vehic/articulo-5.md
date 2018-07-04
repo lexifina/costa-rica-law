@@ -1,0 +1,2 @@
+Artículo 5º—La publicación a que se refiere el artículo anterior deberá incluir la descripción del bien y las cuentas del ICE en que se deberá efectuar el depósito de la garantía de participación. Cuando se trate de bienes inmuebles se indicará el número de finca, dirección exacta de la ubicación, naturaleza, medida, linderos y el precio base.
+En vehículos se describirán: dirección exacta de la ubicación, número de placa, marca, estilo, color, combustible, año, cilindrada y precio base.

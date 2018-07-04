@@ -1,0 +1,2 @@
+Artículo 6º—Los oferentes interesados, conjuntamente con la oferta, deberán aportar como requisito obligatorio un depósito de garantía de participación equivalente a un 5% del precio base del bien, el cual deberá ser efectuado en las cuentas del ICE indicadas en el aviso.
+Dicho monto se entenderá como parte del precio de adjudicación, por lo que quien no fuera adjudicado recibirá la totalidad del depósito de garantía al siguiente día hábil.

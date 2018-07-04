@@ -1,0 +1,2 @@
+Del procedimiento, recepción y análisis de ofertas
+Artículo 4º—El aviso de venta del bien se publicará en un diario de circulación nacional al menos una vez por el Área responsable de la venta, con una anticipación no menor a diez días naturales de la fecha fijada para la recepción de ofertas. En el mismo se indicará fecha, hora y lugar para la presentación de las ofertas, las que no cumplan con esos requisitos de presentación, no serán aceptadas.

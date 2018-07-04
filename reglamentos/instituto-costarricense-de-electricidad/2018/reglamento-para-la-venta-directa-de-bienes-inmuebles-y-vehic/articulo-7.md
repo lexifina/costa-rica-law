@@ -1,0 +1,1 @@
+Artículo 7º—El órgano conformado para realizar el análisis de las ofertas de venta, recibirá las ofertas y procederá a su apertura, haciendo constar en el acta respectiva las principales incidencias, además verificará el día de la apertura de las ofertas, que las mismas cumplan con la totalidad de los requisitos.
