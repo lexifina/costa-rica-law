@@ -1,0 +1,8 @@
+CAPÍTULO IX
+TERMINACIÓN DE LOS CONTRATOS
+Artículo 22: Incumplimiento
+Los conflictos o diferencias que pudieran derivarse de la comercialización del servicio o por el incumplimiento de los términos contractuales por parte del comercializador, faculta a RACSA a aplicar lo establecido en los contratos y excluir al comercializador del Registro de Comercializadores. Las causales de terminación anticipada, se establecen en el contrato a suscribir entre las partes.
+En los casos de procedimientos sumarios, la Gerencia General nombrará un Órgano Director para que instruya el procedimiento y eleve la recomendación del acto final a dicha Gerencia.
+En los casos de procedimientos ordinarios la Gerencia General nombrará un Órgano Director para que instruya el procedimiento y eleve la recomendación del acto final a dicha Gerencia.
+Adicionalmente RACSA, está facultada para tomar cualquier acción necesaria dentro del marco de la legislación aplicable, para protección y satisfacción del servicio requerido, así como del interés público; de manera que en caso de reemplazo de alguno de los comercializadores, bajo criterios de conveniencia, podrá elegir a uno o más de los otros comercializadores, con el fin de que atiendan de manera temporal la necesidad del servicio, mientras concluya el proceso de selección del nuevo comercializador, conforme se establece en el presente Reglamento, para lo cual deberá formalizarse un contrato adicional.
+Los conflictos o diferencias que pudieran derivarse de la comercialización del servicio, se resolverán en una primera instancia mediante la negociación entre las partes. En caso de no resolverse por la vía de la negociación, RACSA según sus intereses se aplicará, lo indicado el contrato entre partes.

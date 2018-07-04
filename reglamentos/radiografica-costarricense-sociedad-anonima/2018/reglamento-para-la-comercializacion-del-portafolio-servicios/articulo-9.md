@@ -1,0 +1,3 @@
+Artículo 9: Modificación de criterios
+De conformidad con su estrategia empresarial, en forma periódica RACSA podrá adicionar y/o cambiar parámetros de calificación y selección de los comercializadores, a fin de garantizar la mejora en la venta de nuevos servicios en el portafolio, ya sea alguna buena práctica de índole comercial, financiera, legal o técnica, solicitado por el líder de servicio del Departamento de Mercadeo.
+Cuando RACSA requiera realizar incorporaciones al registro y segmentación de canales, podrá definir otros requisitos de incorporación, preselección y selección, según las necesidades del mercado y su estrategia comercial.

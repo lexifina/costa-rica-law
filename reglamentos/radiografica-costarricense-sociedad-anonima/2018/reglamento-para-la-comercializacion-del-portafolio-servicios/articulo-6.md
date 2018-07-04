@@ -1,0 +1,2 @@
+Artículo 6: Atención de obligaciones ante SUTEL
+En caso que SUTEL sancione a RACSA, por alguna irregularidad comercial en los servicios regulados que formalice el comercializador y se compruebe que dicho comercializador actuó de forma negligente, RACSA iniciará las acciones de cobro respectivo a fin de recuperar los costos en que se incurra a causa de la irregularidad presentada. Dichos montos, serán descontados de la facturación mensual inmediata del comercializador por concepto de pago de comisiones y/o de la garantía de cumplimiento a criterio de RACSA.

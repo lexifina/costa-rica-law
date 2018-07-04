@@ -1,0 +1,4 @@
+Artículo 18: Evaluación de desempeño
+Los comercializadores serán evaluados anualmente por RACSA, los resultados servirán de base para determinar la continuidad del contrato y las comisiones alcanzadas, pudiendo RACSA dar por terminado el contrato, cuando el desempeño no cumpla los estándares o indicadores establecidos, o el comercializador incurra en conductas reiteradas que desmejoren el servicio, o realice prácticas desleales comprobadas. Lo anterior, no limita la posibilidad de RACSA de recurrir a la vía judicial, en los casos que así lo considere.
+El modelo de evaluación considera entre otros aspectos, las metas de venta estimadas, indicadores de gestión comercial, relación con RACSA, la cadena de ventas, entre otros.
+Se aplica una evaluación de desempeño a los comercializadores durante la ejecución del contrato, correspondiendo al/la Administrador/a del Contrato la aplicación de un análisis de resultados, con su respectivo informe.
