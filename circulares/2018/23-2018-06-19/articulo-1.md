@@ -1,0 +1,10 @@
+HACIENDA
+CIRCULAR DGABCA-0023-2018
+De: Fabián David Quirós Álvarez, Director General
+Para: Máximos Jerarcas Institucionales Instituciones Usuarias del Sistema SICOP
+Fecha: 19 de junio del 2018
+Asunto: Información requerida sobre “Avisos por Institución” del Sistema Integrado de Compras Públicas (SICOP), en relación con las personas físicas afectas al régimen de prohibiciones y de las sanciones impuestas a particulares en los procedimientos de contratación administrativa al mes de mayo 2018.
+Esta Dirección General, conforme las atribuciones que le confieren en el artículo 99 inciso k) de la Ley de Administración Financiera de la República y Presupuestos Públicos, Ley Nº 8131, en cuanto a la potestad de requerir información a las instituciones y dependencias del sector público para el cumplimiento de sus funciones para evaluar los procedimientos de contratación administrativa, a fin de ajustarlos a la satisfacción el interés público y el articulo 103 literal c) de la Ley de Contratación Administrativa, solicita:
+Que cada una de las instituciones usuarias del SICOP, emita una constancia indicando que:
+1. La información respecto de las personas físicas (funcionarios institucionales) afectas al régimen de prohibiciones y de las sanciones impuestas a particulares en los procedimientos de contratación administrativa, ingresada en la pestaña de “Avisos por Institución” del Sistema Integrado de Compras Públicas (SICOP), se encuentra actualizada al mes de mayo 2018.
+2. Igualmente deberá hacerse constar que las sanciones impuestas con posterioridad a la Ley N° 9395 Transparencia de las contrataciones administrativas por medio de la reforma del artículo 40 y de la adición del artículo 40 bis a la Ley N ° 7494, Contratación Administrativa, del 31 de agosto del 2016, se han realizado mediante el módulo Procedimiento Administrativo y Sancionatorio del SICOP o en su defecto, que fuera del SICOP se impuso una sanción pero que en ambos casos la sanción se encuentra debidamente registrada en el Módulo Sanción de dicho Sistema.
