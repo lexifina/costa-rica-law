@@ -1,7 +1,8 @@
 CAPÍTULO VII
 Áreas
 ARTÍCULO 70.- Las áreas, integradas por Facultades afines, son las siguientes:
-a) Artes y Letras. Integrada por las Facultades de Bellas Artes y Letras.
+a) Artes y Letras. Integrada por la Facultades de Artes y Letras.
+(Así reformado el inciso anterior mediante sesión N° 142 del 4 de julio del 2018)
 b) Ciencias Básicas. Integrada por la Facultad de Ciencias.
 c) Ciencias Sociales. Integrada por las Facultades de Ciencias Económicas, Ciencias Sociales, Derecho y Educación.
 26ch) Ingeniería. Integrada por las Facultades de Ingeniería.

@@ -1,7 +1,8 @@
 ARTÍCULO 80.- Las Facultades integradas por Escuelas son las siguientes:
 a)30 Letras: Filosofía; Filología, Lingüística y Literatura; Lenguas Modernas.
 30Sesión del Consejo Universitario No. 4699, artículo 06, del 26 de febrero de 2002. Publicada en Gaceta Universitario 04-2002 del 15 de marzo de 2002.
-b) Bellas Artes: Artes Dramáticas, Artes Musicales, Artes Plásticas.
+b) Artes: Artes Dramáticas, Artes Musicales, Artes Plásticas.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 142 del 4 de julio del 2018)
 c) Ciencias: Biología, Física, Geología, Matemática, Química.
 ch)31 Ciencias Agroalimentarias: Economía Agrícola y Agronegocios, Agronomía, Zootecnia, Tecnología de Alimentos.
 31 Incisos ch) y d): Modificación aprobada en la Asamblea Colegiada Representativa No. 114 del 31 de octubre de 2001 y 12 de noviembre de 2001 y publicada en la Gaceta Oficial No. 177 del 24 de enero de 2002
