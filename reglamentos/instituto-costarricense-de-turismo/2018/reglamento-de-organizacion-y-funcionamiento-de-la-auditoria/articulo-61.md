@@ -1,0 +1,1 @@
+Artículo 61.- Admisión de denuncias anónimas. A criterio del Auditor Interno las denuncias anónimas serán atendidas, en el tanto aporten elementos de convicción suficientes y se encuentren soportadas en medios probatorios idóneos que permitan iniciar la investigación, de lo contrario se archivará la denuncia.

@@ -1,0 +1,1 @@
+Artículo 27.-Cualidades de comunicación. El personal de la Auditoría Interna deberá poseer las cualidades necesarias para tratar con las personas, así como las capacidades adecuadas para comunicarse de forma verbal y escrita, de modo que puedan transmitir eficazmente los asuntos relacionados con los servicios de la Auditoría Interna.

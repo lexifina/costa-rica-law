@@ -1,0 +1,2 @@
+Artículo 31.- Recursos de la Auditoría. La Auditoría Interna contará con los recursos necesarios y suficientes para cumplir con lo planificado y con su gestión.
+De conformidad con lo dispuesto en el artículo 27 de la Ley N.° 8292, la Administración activa, deberá asignar dentro de sus disponibilidades presupuestarias, los recursos humanos, materiales, tecnológicos, de transporte y otros necesarios y suficientes para que la Auditoría Interna pueda cumplir con sus planes y con su gestión.

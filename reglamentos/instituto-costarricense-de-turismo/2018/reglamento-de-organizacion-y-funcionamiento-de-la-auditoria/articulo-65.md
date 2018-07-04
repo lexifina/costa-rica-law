@@ -1,0 +1,1 @@
+Artículo 65.-Seguimiento denuncias trasladadas: El Auditor Interno determinará los casos en que dará seguimiento a las denuncias que se hayan trasladado a otras instancias, para lo que considere pertinente.

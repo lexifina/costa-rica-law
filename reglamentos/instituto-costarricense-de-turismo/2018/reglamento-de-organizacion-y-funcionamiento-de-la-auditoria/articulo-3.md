@@ -1,0 +1,1 @@
+Artículo 3.-Del Reglamento. La actualización y trámite para la aprobación y promulgación de este Reglamento, corresponden al Auditor Interno conforme a la normativa aplicable que para estos efectos emita la Contraloría.

@@ -1,0 +1,1 @@
+Artículo 29.-Obligación de participar en el programa de capacitación y desarrollo profesional. El personal de la Auditoría Interna está obligado a cumplir con las actividades de capacitación que le establezca el Auditor Interno quien también deberá participar en el programa de capacitación según lo determine.

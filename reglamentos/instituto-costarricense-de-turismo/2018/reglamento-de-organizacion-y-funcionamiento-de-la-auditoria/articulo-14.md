@@ -1,0 +1,1 @@
+Artículo 14.-Regulaciones sobre la ética, independencia y objetividad. El Auditor Interno según corresponda, emitirá las regulaciones internas para garantizar y fomentar la ética, la independencia y la objetividad.

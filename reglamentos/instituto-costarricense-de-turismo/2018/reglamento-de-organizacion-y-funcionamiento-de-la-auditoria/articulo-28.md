@@ -1,0 +1,1 @@
+Artículo 28.-Regulaciones administrativas del personal. El Auditor Interno como superior jerárquico o quién este designe, aprobará y tramitará conforme a las regulaciones institucionales, los asuntos de orden administrativo del personal de la Auditoría Interna.

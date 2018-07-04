@@ -1,0 +1,4 @@
+Artículo 16.- Medidas de resguardo. En coherencia con las prohibiciones consideradas en el ordenamiento, el Auditor Interno y los funcionarios de la Auditoría Interna no podrán en resguardo de su ética, independencia y objetividad:
+a. Asesorar, advertir o auditar operaciones específicas de las cuales hayan sido responsables, en los últimos doce meses contados a partir de la fecha de su ingreso a la Auditoría Interna.
+b. Ser empleados ni ejercer funciones de otra Unidad Administrativa en el ICT. Tampoco ser miembro de juntas directivas dentro del ICT, grupos de trabajo, comisiones o similares, que ejerzan función propia de la Administración activa.
+Cuando su participación sea solicitada por el jerarca o la normativa legal, ésta será exclusivamente en su función asesora y en asuntos de su competencia.

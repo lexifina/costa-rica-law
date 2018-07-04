@@ -1,0 +1,1 @@
+Artículo 37.- Relaciones y coordinaciones del jerarca. El jerarca coordinará con el Auditor Interno las regulaciones administrativas y otros asuntos relacionados con la actividad de auditoría interna y sus funcionarios, plasmando las decisiones en un acuerdo escrito.

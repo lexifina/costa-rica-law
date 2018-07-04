@@ -1,0 +1,1 @@
+Artículo 54.- Confidencialidad. La información, documentación y el informe sobre presuntos hechos irregulares que puedan ser generadores de responsabilidades, son confidenciales y de acceso restringido, según dispone el artículo 6 de la Ley General de Control Interno y el numeral 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.

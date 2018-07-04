@@ -1,0 +1,1 @@
+Artículo 6.- Actualización de su ámbito de acción. La Auditoría Interna mantendrá actualizado y detallado su ámbito de acción conforme a la organización vigente en la institución, contemplando, los sujetos privados que administren o custodien fondos públicos provenientes del ICT.

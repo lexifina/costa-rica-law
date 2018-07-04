@@ -1,0 +1,3 @@
+Artículo 59.- Requisitos para presentar denuncias a la Auditoría Interna: Las denuncias que se presenten ante la Auditoría Interna deberán contar con los siguientes requisitos:
+a. Exponer en forma clara, precisa, circunstanciada y por escrito, los hechos denunciados, brindando el detalle suficiente que permita realizar la investigación, indicando además el momento y lugar en que ocurrieron los hechos y el detalle que permita la identificación de la persona o personas que presuntamente los realizaron.
+b. Señalar la posible situación irregular que afecta a la institución y/o los fondos públicos afectados.

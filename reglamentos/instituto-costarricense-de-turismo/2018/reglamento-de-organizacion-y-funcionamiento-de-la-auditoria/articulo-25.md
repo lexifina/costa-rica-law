@@ -1,0 +1,1 @@
+Artículo 25.-Subordinación del personal de la Auditoría. El personal de la Auditoría Interna depende del Auditor Interno y es responsable ante él en el desempeño de sus funciones, las que se ejercen de acuerdo a lo dispuesto en este Reglamento, las instrucciones recibidas, los manuales y demás regulaciones que al efecto emita el Auditor Interno y la Contraloría.

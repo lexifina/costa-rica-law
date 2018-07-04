@@ -1,0 +1,1 @@
+Artículo 45.-Ejecución de los servicios. La Auditoría Interna ejecutará sus servicios de conformidad con la Ley General de Control Interno, lo dispuesto por la Contraloría y con la normativa técnica aplicable.

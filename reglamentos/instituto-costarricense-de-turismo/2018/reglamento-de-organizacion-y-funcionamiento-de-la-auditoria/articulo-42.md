@@ -1,0 +1,1 @@
+Artículo 42.-Prohibiciones. El Auditor Interno y el personal de Auditoría Interna tendrán las prohibiciones que establece el artículo 34 de la Ley N.º 8292 y el artículo 45 del Reglamento Autónomo de Trabajo del ICT, sin perjuicio de otras regulaciones del ordenamiento aplicables.

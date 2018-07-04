@@ -1,0 +1,1 @@
+Artículo 52.-Planteamiento de conflictos ante la Contraloría. Si la resolución de la Junta Directiva ordena soluciones distintas de las recomendadas y no aceptadas por la Auditoría, aplicará lo dispuesto en el artículo 38 de la Ley General de Control Interno

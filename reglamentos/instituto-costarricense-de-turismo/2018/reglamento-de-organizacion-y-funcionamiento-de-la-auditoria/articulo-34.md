@@ -1,0 +1,1 @@
+Artículo 34.-Categoría programática y ejecución presupuestaria. Para efectos presupuestarios se dará a la Auditoría Interna una categoría programática, de manera que el Auditor Interno controle la ejecución y las modificaciones de los recursos de la Auditoría Interna.

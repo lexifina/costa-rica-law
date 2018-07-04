@@ -1,0 +1,1 @@
+Artículo 43.-Deberes. El Auditor Interno y el personal de Auditoría Interna para el ejercicio de sus competencias, tendrán los deberes y obligaciones contemplados en el artículo 32 de la Ley N.º 8292, sin perjuicio de las demás obligaciones previstas en la normativa aplicable.

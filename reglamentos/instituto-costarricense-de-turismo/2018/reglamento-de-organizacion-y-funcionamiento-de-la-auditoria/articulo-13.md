@@ -1,0 +1,1 @@
+Artículo 13.-Objetividad. El Auditor Interno y los funcionarios de la Auditoría Interna, deberán actuar de manera objetiva en el cumplimiento de su trabajo, manteniendo una actitud imparcial, que evite cualquier conflicto de intereses.

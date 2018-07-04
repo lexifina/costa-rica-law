@@ -1,0 +1,1 @@
+Artículo 19.-Suspensión o destitución del Auditor Interno. El Auditor Interno podrá ser suspendido o destituido de su puesto, conforme lo establecido en el artículo 34 de la Ley N.° 1917 y el artículo 15 de la Ley Orgánica de la Contraloría N.° 7428 y demás normativa aplicable.
