@@ -1,0 +1,1 @@
+Artículo 9º. —Documentos. Cualquier documento elaborado por la Administración Pública Descentralizada que refleje la identidad sexual y de género de la persona, deberá adecuarse al nombre, la imagen y/o la referencia al sexo o género de la persona.

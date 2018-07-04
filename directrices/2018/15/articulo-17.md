@@ -1,0 +1,1 @@
+Artículo 17°. —Sector Privado. Se invita al sector privado a acoger dentro de su organización el reconocimiento a la identidad sexual y de género de las personas trabajadoras, así como de sus clientes de conformidad con las disposiciones contenidas en esta Directriz.

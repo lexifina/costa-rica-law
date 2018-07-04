@@ -1,0 +1,1 @@
+Artículo 19. —Asociaciones Solidaristas y Cooperativas. Se invita a las asociaciones solidaristas y cooperativas del país a acoger dentro de su organización el reconocimiento a la identidad sexual y de género de las personas trabajadoras, así como de sus clientes de conformidad con la presente Directriz.

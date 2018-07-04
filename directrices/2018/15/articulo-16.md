@@ -1,0 +1,1 @@
+Artículo 16°. —Colegios Profesionales. Se insta a los Colegios Profesionales para que los carnés gremiales y cualquier otra documentación que expidan se ajusten a lo dispuesto por la presente Directriz.
