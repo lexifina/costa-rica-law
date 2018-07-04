@@ -1,0 +1,1 @@
+Transitorio Segundo. El Contralor de Servicios que ocupe actualmente el cargo podrá continuar ejerciendo el mismo con los objetivos, funciones y regularización señalada en la normativa y este Reglamento.
