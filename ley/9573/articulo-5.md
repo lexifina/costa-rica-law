@@ -1,0 +1,2 @@
+ARTÍCULO 5- Procedimientos de adquisición de obras, bienes y servicios y de selección y contratación de consultores
+Los procedimientos de adquisición de obras, bienes y servicios y la selección y contratación de consultores a que deba sujetarse el Instituto Costarricense de Electricidad (ICE), según se estipule en el Convenio de Cooperación para el Financiamiento de Proyectos de Inversión CR-X1014, así como en cada contrato de préstamo individual que se celebre al amparo de dicho Convenio, prevalecerán sobre los procedimientos y las normas del ordenamiento jurídico nacional.

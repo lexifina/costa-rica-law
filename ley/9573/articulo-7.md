@@ -1,0 +1,3 @@
+ARTÍCULO 7- Sistema de información financiera y control interno
+El Instituto Costarricense de Electricidad (ICE) deberá mantener un sistema de información financiera que dé cuenta del registro contable, presupuestario y financiero, y la emisión de estados financieros y otros informes relacionados con los recursos de los préstamos individuales que deriven de la aprobación del presente Convenio de cooperación.
+Este sistema deberá estar siempre actualizado y disponible electrónicamente en el sitio oficial del Instituto Costarricense de Electricidad para su libre acceso por parte de la ciudadanía.
