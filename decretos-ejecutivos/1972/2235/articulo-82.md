@@ -6,3 +6,4 @@ d) Las servidores interinas que sustituyeren a otras en disfrute de licencia por
 e) En todo caso, será improcedente el nombramiento interino de la servidora que por estado de gravidez deba acogerse simultáneamente a licencia por maternidad.
 (Así reformado por el artículo 1º del Decreto Ejecutivo Nº 2572 de 21 de setiembre de 1972).
 (Corrida su numeración por el artículo 3º del Decreto Ejecutivo Nº 4955 de 17 de junio de 1975. Originalmente llevó el Nº 68).
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 10854 del 4 de julio de 2018, se interpretó esta norma en el sentido de que la funcionaria no puede ser cesada si le sobreviene el embarazo mientras estaba nombrada interinamente, por implicar ello dejarla sin salario y sin licencia.)

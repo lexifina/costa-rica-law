@@ -21,3 +21,4 @@ Reglamento de la Carrera Docente
 | 6 | 2011-08-19 | Decreto Ejecutivo 36816 (2011-08-19) |
 | 7 | 2015-11-17 | Decreto Ejecutivo 39371 (2015-11-17) |
 | 8 | 2016-04-26 | Decreto Ejecutivo 39689 (2016-04-26) |
+| 9 | 2018-07-04 | SINALEVI (sin norma nombrada) |
