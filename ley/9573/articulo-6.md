@@ -1,0 +1,6 @@
+ARTÍCULO 6- Condiciones financieras generales aplicables a los contratos de préstamo individual
+Las condiciones financieras aplicables a los contratos de préstamo derivados del Convenio de Cooperación para el Financiamiento de Proyectos de Inversión CRX1014 deberán ser acordes con las condiciones ofrecidas al sector público con garantía estatal por el Banco Interamericano de Desarrollo (BID). En ningún caso, podrá contratarse financiamiento amparado bajo el Convenio de cita si, en el momento de la suscripción de los contratos de préstamos individuales, se cumple con alguna de las siguientes situaciones:
+a) La comisión de crédito anual sobre saldos no desembolsado del financiamiento excede el uno coma cinco por ciento (1,5%).
+b) La comisión por inspección y vigilancia excede el dos por ciento (2%) del monto del financiamiento.
+c) La tasa de intereses sobre los saldos deudores diarios de cada préstamo es a una tasa de interés en dólares superior a la tasa Libor a tres meses o seis meses más un margen del tres coma cero por ciento (3,0%), o su equivalente en otras monedas diferentes del US dólar o su equivalente en tasa fija.
+d) Los plazos para realizar los desembolsos son inferiores a tres años y los plazos para amortización son inferiores a quince años, contados a partir de la suscripción del contrato de préstamo.

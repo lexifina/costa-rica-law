@@ -1,0 +1,2 @@
+ARTÍCULO 8- Informes
+El Instituto Costarricense de Electricidad (ICE), en la figura de su presidente ejecutivo, y el encargado de la Dirección de Crédito Público del Ministerio de Hacienda deberán presentar anualmente un informe oral ante la Comisión Permanente Especial de Control del Ingreso y Gasto Público de la Asamblea Legislativa, en la fecha que esta estime pertinente, para dar cuenta de los procesos de contratación, el nivel de ejecución, el desarrollo y los resultados obtenidos, de conformidad con los objetivos del presente Convenio de cooperación.
