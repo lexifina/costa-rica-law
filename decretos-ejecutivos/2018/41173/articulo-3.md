@@ -1,0 +1,1 @@
+Artículo 3º. —Derecho a la identidad sexual y de género. Es el derecho de cada persona a definir de manera autónoma su identidad sexual y de género, y a que los datos que figuran en los registros del Estado, así como en los documentos de identidad, sean acordes o correspondan a la definición que tienen de sí mismos.

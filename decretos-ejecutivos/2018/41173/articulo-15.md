@@ -1,0 +1,1 @@
+Artículo 15. — Dirección General de Migración y Extranjería. Se ordena a la Dirección General de Migración y Extranjería contemplar en el nuevo sistema de documentos migratorios el cambio de categoría de sexo en los pasaportes, esto con el fin de que se adecuen a la identidad sexual y de género.

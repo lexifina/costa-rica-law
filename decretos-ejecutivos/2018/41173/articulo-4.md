@@ -1,0 +1,1 @@
+Artículo 4º. —Obligación del Estado. El Estado debe respetar y garantizar a toda persona la posibilidad de registrar y/o de cambiar, rectificar, o adecuar su nombre y los demás componentes esenciales de su identidad, como la imagen, o la referencia al sexo o género, sin interferencias por parte de las autoridades públicas o por parte de terceros.

@@ -1,0 +1,1 @@
+Artículo 12. — Listado no taxativo. Los trámites y documentos señalados en los artículos 10 y 11 del presente Decreto no constituyen de forma alguna un listado taxativo, por lo tanto cualquier otro trámite o documento elaborado por la Administración Pública que refleje la identidad sexual y de género de la persona, deberá adecuarse a lo dispuesto en este Decreto.
