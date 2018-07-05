@@ -1,0 +1,1 @@
+Artículo 2°—El objeto del presente reglamento es la creación del Sistema Archivístico del Instituto Nacional Vivienda y Urbanismo, el cual estará conformado por: El Archivo Central, los Archivos Especializados, los Archivos de Gestión de las diferentes unidades administrativas de la Institución y el Comité Institucional de Selección y Eliminación de Documentos.

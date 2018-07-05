@@ -1,0 +1,3 @@
+CAPÍTULO II
+Del Sistema Archivístico Institucional
+Artículo 5°—Para la conformación del Sistema Archivístico Institucional; se establece el Archivo Central del INVU; como ente rector de la actividad archivística del Instituto, es responsable de establecer las políticas, directrices y procedimientos para el funcionamiento del sistema. Así también se tendrán por definición, como archivos de gestión, los diferentes archivos que, conforme su actividad ordinaria, deberán llevar las diferentes Unidades Administrativas establecidas en el Instituto, y los Archivos Especializados cuya actividad se enfoca en el tratamiento y consulta de tipos documentales específicos de la institución.

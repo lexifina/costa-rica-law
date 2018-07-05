@@ -1,0 +1,1 @@
+Artículo 25.—Las personas funcionarías jefaturas y las personas funcionarías encargadas de los archivos de Gestión, serán los responsables de levantar la Información requerida en el formularlo de las tablas de plazos de conservación, todo esto con la asesoría del Archivo Central.

@@ -1,0 +1,1 @@
+Artículo 23.—Los acuerdos del Comité de Selección y Eliminación de Documentos se tomarán por mayoría y se consignarán en un libro de actas, estas actas se normalizarán según el inciso 1) del artículo 56 de la Ley General de la Administración Pública y el inciso e) del artículo 22 de la Ley General de Control Interno.

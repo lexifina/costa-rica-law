@@ -1,0 +1,1 @@
+Artículo 3°—Las disposiciones contenidas en el presente reglamento se fundamentan en la Ley del Sistema Nacional de Archivos, Ley N° 7202, del 24 de octubre de 1990, y su Reglamento, Decreto Ejecutivo N° 24023-C, artículo primero inciso e) y concordantes, Ley 8292 de Control Interno y las Normas de Control Interno.

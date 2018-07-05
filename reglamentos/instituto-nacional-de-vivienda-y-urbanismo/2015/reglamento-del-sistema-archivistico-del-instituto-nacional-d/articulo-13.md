@@ -1,0 +1,1 @@
+Artículo 13.—Los documentos microfilmados, digitalizados o en cualquier otro soporte ingresarán al Archivo Central con las respectivas micropelículas o microfichas, discos ópticos, o cualquier otro soporte que se utilice, de acuerdo con el procedimiento que establezca el Archivo Central para este fin.

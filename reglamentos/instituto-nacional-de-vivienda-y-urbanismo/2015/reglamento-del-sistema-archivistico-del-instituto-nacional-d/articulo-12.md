@@ -1,0 +1,1 @@
+Artículo 12.—Las transferencias de documentos de los archivos de gestión de las diferentes unidades administrativas al Archivo Central, deberá hacerse de acuerdo con el procedimiento que establezca el Archivo Central para este fin.

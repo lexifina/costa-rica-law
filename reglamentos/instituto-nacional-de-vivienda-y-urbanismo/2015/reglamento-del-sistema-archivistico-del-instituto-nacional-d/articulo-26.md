@@ -1,0 +1,1 @@
+Artículo 26.—Deberá levantarse un acta con Información sobre los documentos que vayan a ser eliminados según lo indicado en las tablas de plazos de conservación de la unidad y esta deberá ser aprobada por el Comité Institucional de Selección y Eliminación CISED para la eliminación respectiva.

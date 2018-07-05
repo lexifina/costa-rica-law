@@ -1,0 +1,1 @@
+Artículo 30.—Toda aquella persona usuaria del Archivo Central o persona funcionarlo del INVU a quien se le comprobare que, por descuido o intención, dañe, elimine, altere, sustraiga, oculte o disponga de cualquier uso de los documentos que interfiera con la accesibilidad de la Información, se sancionará según la normativa citada del presente reglamento.

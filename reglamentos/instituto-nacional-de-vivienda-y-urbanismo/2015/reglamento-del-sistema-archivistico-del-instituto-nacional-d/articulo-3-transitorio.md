@@ -1,0 +1,1 @@
+Transitorio tercero.—Las nuevas tecnologías se irán aplicando conforme se vayan implementando por las autoridades superiores del Instituto Nacional de Vivienda y Urbanismo, con aplicación de los numerales 33, 34 y 35 del presente Reglamento.

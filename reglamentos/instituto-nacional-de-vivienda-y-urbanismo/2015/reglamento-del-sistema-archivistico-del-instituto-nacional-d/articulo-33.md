@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Uso de las tecnologías de información
+Artículo 33.—La Gerencia General del INVU deberá de conformar un comité, el cual estará formado por: una persona funcionarla representante del Archivo Central, una persona funcionada representante del área de Tecnologías de Información, una persona funcionaría representante de la Administración y una persona funcionaría representante de la Asesoría Legal; a fin de establecer las debidas regulaciones sobre el uso de los documentos electrónicos, digitalizados y microfilmados, la normativa aplicable a la firma digital y el correo electrónico, donde se reconocerá la fuerza probatoria, en las mismas condiciones que a los documentos físicos para garantizar su validez e inalterabilidad del documento.
+Por último, este Comité deberá informar anualmente a la Gerencia General y al Comité de Selección y Eliminación de Documentos sobre todas las acciones realizadas.

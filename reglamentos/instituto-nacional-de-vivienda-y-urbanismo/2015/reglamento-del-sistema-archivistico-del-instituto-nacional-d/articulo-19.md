@@ -1,0 +1,1 @@
+Artículo 19.—Las personas funcionarías encargadas de los archivos de gestión y las personas funcionarías encargadas de los archivos especializados, deben cumplir y velar porque se ejecuten en sus respectivas unidades administrativas las normas emanadas del Archivo Central y del Comité Institucional de Selección y Eliminación de Documentos.

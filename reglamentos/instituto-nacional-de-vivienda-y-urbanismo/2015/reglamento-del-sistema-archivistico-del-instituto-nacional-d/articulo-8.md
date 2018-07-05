@@ -1,0 +1,1 @@
+Artículo 8°—Los Archivos Especializados deberán cumplir con los procedimientos, directrices, manuales y políticas establecidas por el Archivo Central, para el manejo, custodia, conservación, transferencia y consulta de los documentos producidos en cualquier soporte que se custodian en los archivos especializados.

@@ -1,0 +1,1 @@
+Artículo 11.—El Archivo Central recibirá las transferencias documentales de acuerdo con las Tablas de Plazo de Conservación de Documentos y el cronograma de transferencias anual previamente elaborado y comunicado a las unidades administrativas de la Institución.

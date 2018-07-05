@@ -1,0 +1,1 @@
+Artículo 7°—Es de acatamiento obligatorio para los Archivos de Gestión la aplicación a nivel institucional de los procedimientos, directrices, manuales y políticas emitidos por el Archivo Central para el manejo, custodia, conservación, transferencia y consulta de los documentos producidos en cualquier soporte de la institución.
