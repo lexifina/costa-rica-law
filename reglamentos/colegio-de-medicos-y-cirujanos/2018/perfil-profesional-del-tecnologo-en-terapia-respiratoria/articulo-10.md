@@ -1,0 +1,6 @@
+Artículo 10.—Manejos de equipos y Áreas de Trabajo:
+a. Preparar materiales y equipos que requiera para realizar sus funciones, así como realizar el mantenimiento funcional operativo. Esto implica mantener el equipo existente en adecuadas condiciones de higiene, comprobar su correcto funcionamiento, reponer e inventariar el material y los elementos necesarios en el área.
+b. Organizar, preparar y/o acondicionar los equipos e insumos que sean necesarios para que el médico efectúe los procedimientos de pruebas de función pulmonar, así como los procedimientos diagnósticos y/o terapéuticos invasivos de su área: bronc0oscopía, toracocentesis, colocación de sondas torácicas, acceso venoso, intubación, deshabituación y extubación endotraqueal, para la evaluación de la patología pulmonar y lesiones relacionadas; así como aquellos que sean necesarios para atender eventuales emergencias que se presenten en el transcurso del estudio.
+c. Vigilar que se efectúen todos los mantenimientos a los equipos.
+d. Reportar de inmediato a su jefatura cualquier desperfecto en los equipos, que se llegase a encontrar.
+e. Retirar los equipos, posterior a cada procedimiento y verificar la limpieza de los mismos de acuerdo con las normas nacionales vigentes para la prevención de infecciones y preparar la sala para ser utilizada por el siguiente usuario.

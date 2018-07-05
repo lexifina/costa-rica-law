@@ -1,0 +1,1 @@
+Artículo 8º—En conocimiento del marco legal y de acuerdo con los alcances de su tecnología desarrolla sus funciones con actitud ética, reflexiva y crítica, propendiendo a mejorar la calidad de vida de la persona, familia y comunidad, del territorio costarricense.

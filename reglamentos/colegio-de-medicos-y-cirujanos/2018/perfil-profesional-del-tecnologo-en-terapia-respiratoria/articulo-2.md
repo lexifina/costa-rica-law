@@ -1,0 +1,4 @@
+Artículo 2º—Supervisión Médica:
+La labor del Tecnólogo en Terapia Respiratoria estará bajo la supervisión de al menos un Médico en alguna de las siguientes especialidades y/o subespecialidades: Neumología, Medicina de Emergencias, Medicina Interna, Pediatría, Geriatría y Gerontología, Medicina Crítica y Terapia Intensiva, Medicina Crítica Pediátrica, Neonatología, Medicina Paliativa. Esta supervisión se efectuará
+en forma presencial mediante la instrucción inmediata y directa del médico asignado hacia el Tecnólogo. Toda instrucción quedará anotada en el expediente clínico del paciente o una bitácora que se levantará al efecto.
+En casos excepcionales cuando la vida del paciente se encuentre en riesgo inminente y dentro del ámbito institucional público o privado, la supervisión hacia el Tecnólogo puede ser asumida a un Médico y Cirujano.
