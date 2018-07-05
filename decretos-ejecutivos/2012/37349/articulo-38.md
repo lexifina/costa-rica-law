@@ -1,1 +1,0 @@
-Artículo 38.—Perfil del personal de la Auditoría General. La Auditoría General, reunirá profesionales y técnicos de diversas disciplinas académicas, con aptitudes y actitudes que garanticen el éxito en la labor de control y fiscalización encomendadas, mediante el desempeño laboral eficaz y eficiente en los distintos ámbitos de acción en que se desenvuelvan.

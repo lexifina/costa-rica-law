@@ -1,1 +1,0 @@
-Artículo 71.—Discrepancia con los informes. En caso de que los titulares subordinados o el Jerarca discrepen con la Auditoría General sobre las situaciones comunicadas, se procederá de conformidad con lo establecido en los artículos 36, 37 y 38 de la Ley General de Control Interno.

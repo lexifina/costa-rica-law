@@ -1,3 +1,0 @@
-CAPÍTULO IX
-Otros aspectos relativos al funcionamiento de la Auditoría General
-Artículo 60.—Servicios de la Auditoría Interna. La auditoría presta dos tipos de servicios: los servicios de auditoría y los servicios preventivos. Los servicios de auditoría comprenden la auditoría financiera, la operativa o la de carácter especial (conocida también como de gestión), que incluye la elaboración y trámite de relaciones de hechos y denuncias penales si se encuentran elementos suficientes para determinar un ilícito penal. Los servicios preventivos incluyen la asesoría, la advertencia y la autorización de libros. En cualquier caso, los servicios de la Auditoría se deben desarrollar según el bloque de legalidad.

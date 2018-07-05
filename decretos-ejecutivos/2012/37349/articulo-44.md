@@ -1,1 +1,0 @@
-Artículo 44.—Plazo y condiciones para remitir información. Cuando la Auditoría General, como parte de sus competencias, solicite información o documentación para algún estudio, determinará el plazo y las condiciones que estime razonables, dentro del cual la Administración deberá remitirla-

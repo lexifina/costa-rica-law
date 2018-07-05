@@ -1,1 +1,0 @@
-Artículo 28.—La jornada laboral. La jornada laboral del Auditor(a) y Subauditor(a) Generales será de tiempo completo. Para el personal de Auditoría la jornada laboral será la establecida para todos los funcionarios del Ministerio.

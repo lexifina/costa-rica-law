@@ -1,8 +1,0 @@
-Artículo 56.—Rechazo de denuncias. La Auditoría General rechazará mediante resolución motivada las siguientes denuncias:
-1. Las que no correspondan al ámbito de competencia, así como aquellas que sean manifiestamente improcedentes o infundadas.
-2. Las que sean reiterativas al contener aspectos que ya han sido atendidos y que no aporten elementos nuevos, en cuyo caso se comunicará al interesado lo ya resuelto.
-3. Las que se refieran únicamente a los intereses particulares del ciudadano, en relación con conductas u omisiones de la Administración Activa que le resulten lesivas de alguna forma, y para cuya solución exista un procedimiento específico contemplado en el ordenamiento jurídico vigente.
-4. Las gestiones que, bajo el formato de denuncia, sean presentadas con la finalidad de ejercer la defensa personal sobre situaciones cuya discusión corresponda a otras sedes, ya sean administrativas o judiciales.
-5. Cuando el costo aproximado de la investigación fuera superior al beneficio, de ser posible determinarlo, que se obtendría al darle curso al asunto denunciado.
-6. Si el asunto planteado como denuncia ante la Auditoría General se encuentra en conocimiento de otras instancias con competencia para realizar la investigación, ejercer el control y aplicar las potestades disciplinarias que eventualmente correspondan. En estos casos se realizará la coordinación respectiva con el fin de no duplicar el uso de recursos públicos en diferentes sedes y establecer la instancia que deberá atenderla.
-7. Aquellas que omitan alguno de los requisitos esenciales mencionados en el artículo anterior.

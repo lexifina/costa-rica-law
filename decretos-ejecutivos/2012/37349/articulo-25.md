@@ -1,1 +1,0 @@
-Artículo 25.—Rendición de cuentas del Auditor(a) General: El Auditor(a) General responderá por su gestión directamente ante el Jerarca del Ministerio, del cual depende y a quién remitirá oportunamente tanto el Plan de Trabajo como el Informe Anual de Labores.
