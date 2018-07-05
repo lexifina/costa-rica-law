@@ -13,4 +13,4 @@ h) Armas químicas o biológicas destinadas a su destrucción;
 i) Residuos que contengan mercurio o estén contaminados con él;
 j) Residuos de composición desconocida.
 k) Residuos que contengan PCBs.
-l) Residuos clasificados por el Ministerio de Salud como de manejo especial de conformidad con el Reglamento para la declaratoria de residuos de manejo especial, Decreto No. 38272-S, publicado en el diario oficial la Gaceta Nº 58 del 24 de marzo del 2014.
+l) (Derogado por el artículo 1° del decreto ejecutivo N° 41306 del 5 de julio de 2018)

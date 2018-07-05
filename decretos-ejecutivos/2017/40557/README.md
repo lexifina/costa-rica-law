@@ -14,3 +14,4 @@ Reglamento para el co-procesamiento y gestión de residuos en hornos cementeros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-08-23 | la propia norma |
+| 2 | 2018-07-05 | Decreto Ejecutivo 41306 (2018-07-05) |
