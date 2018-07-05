@@ -1,0 +1,1 @@
+Artículo 9º—El Médico Especialista en Gastroenterología integra y coordina grupos de trabajo relacionados con su especialidad y servicio o departamento, intra e interinstitucionales, así como intersectoriales.

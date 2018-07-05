@@ -1,0 +1,1 @@
+Artículo 30.—El ejercicio profesional deberá ejecutarse con responsabilidad, cumpliendo con los principios radiológicos de: justificación, optimización y limitación de la dosis de radiación en los procedimientos en los que aplique.

@@ -1,0 +1,1 @@
+Artículo11.—Docencia: podrá participar en la formación académica universitaria de pregrado, grado y posgrado de los Profesionales en Medicina, Posgrado en Gastroenterología y otras Ciencias de la Salud.
