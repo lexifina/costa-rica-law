@@ -1,0 +1,1 @@
+Artículo 8º—Las becas tipo tres serán de carácter excepcional y por una única vez que sean aprobadas siempre y cuando se determine que la salida del país es a un torneo de relevancia o convocatoria realizada por alguna de las selecciones nacionales.

@@ -1,0 +1,1 @@
+Artículo 14.—Los atletas becados DOS, deberán sujetarse a las condiciones establecidas por la Junta Directiva del CCDRD en cuanto a requisitos, tiempo de disfrute de la beca, tipo de beca, obligaciones y otros.

@@ -1,0 +1,1 @@
+Artículo 21.—Para efectos del artículo anterior el estudiante podrá solicitar por escrito el cambio del tipo de beca, argumentando los motivos de su solicitud y cumplimiento con la forma y calendario establecido para este efecto por la Junta Directiva del CCDRD.

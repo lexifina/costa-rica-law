@@ -1,0 +1,1 @@
+Artículo 18.—El becario está obligado a: Demostrar que cumple satisfactoriamente con las actividades asignadas mediante un reporte que deberá ser enviado, al finalizar cada cuatrimestre, a la Comisión Deportiva del CCDRD, debidamente firmado por el encargado del grupo deportivo al que pertenezca.

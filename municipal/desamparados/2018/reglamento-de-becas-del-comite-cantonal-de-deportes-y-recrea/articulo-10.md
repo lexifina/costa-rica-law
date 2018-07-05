@@ -1,0 +1,1 @@
+Artículo 10.—Una vez dictaminada la solicitud y otorgada la beca, deberá presentarse el atleta a la Junta Directiva del CCDRD para su ratificación y aprobación final, posteriormente se expedirá una Carta Compromiso que el alumno beneficiario deberá firmar, en la que se indican las condiciones que debe cumplir.

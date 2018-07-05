@@ -1,0 +1,1 @@
+Artículo 23.—Ningún alumno becario podrá retirarse o abandonar sus estudios, salvo por motivos de fuerza mayor comprobables, una vez que inicie el respectivo curso lectivo; y deberá cursar y aprobar satisfactoriamente todas las materias matriculadas.
