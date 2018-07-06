@@ -1,1 +1,1 @@
-Artículo 6º—Las entidades financieras sujetas de préstamo, destinarán estos recursos para conceder créditos a los servidores, jubilados y pensionados judiciales conforme las reglas establecidas en este reglamento y en las condiciones y demás aspectos que se definan en los convenios y contratos específicos que se lleguen a suscribir con ocasión del otorgamiento de los créditos.
+Artículo 6º—Plazos. El plazo máximo del otorgamiento de recursos del Fondo será de 25 años para Créditos, conforme lo determinen los estudios financieros y/o actuariales del Fondo.

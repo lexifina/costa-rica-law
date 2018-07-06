@@ -1,11 +1,7 @@
-Artículo 12.—Las entidades financieras sujetas de préstamo, deberán remitir al Consejo Superior, por medio de la Dirección Ejecutiva o al Departamento Financiero Contable según corresponda, la siguiente información o informes con la periodicidad que se llegue a pactar en los contratos o convenios que se suscriban:
-a) El plan de inversión de los recursos dinerarios que solicita.
-b) Los nombres de los servidores, jubilados y pensionados judiciales a los que se les ha otorgado créditos y el de los que cancelen de manera anticipada éstos.
-c) Documento idóneo, que demuestre que la póliza de vida y saldos deudores se encuentra vigente y endosada a nombre del Poder Judicial - Fondo de Jubilaciones y Pensiones.
-d) Documento idóneo, que demuestre que la póliza de incendio y terremoto sobre los bienes inmuebles ofrecidos en garantía, se encuentra vigente y a nombre del Poder Judicial – Fondo de Jubilaciones y Pensiones.
-e) Documento idóneo que demuestre que el Fideicomiso a que hace referencia el artículo 10, inciso e) de este reglamento está vigente y los movimientos contables y financieros a la fecha del documento.
-f) Rendir informes a la Dirección Ejecutiva, en los cuales incluirá información sobre:
-❖ Los créditos otorgados y el proceso de recuperación;
-❖ El cumplimiento del plan de inversión en los términos pactados;
-❖ El cobro de interés moratorio a los beneficiarios de los créditos;
-❖ Las comunicaciones realizadas al Departamento Financiero Contable durante el trimestre, en caso de que un crédito se pactó a un plazo menor al autorizado o se canceló antes de su vencimiento.
+Artículo 12.—Garantías. Las Entidades acreedoras deberán ofrecerle al Fondo como garantía para los préstamos, la cesión de recursos mensuales que perciba por cualquier vía para el cumplimiento de la obligación contraída.
+En caso de complemento de la garantía el Fondo podrá exigir una o alguna de las siguientes opciones:
+a) Suscribir un a) título valor endosable o con la custodia trasladada al FJPPJ (Art 42 contratación administrativa).
+b) Hipotecaria de primer grado, sobre propiedades a nombre de las entidades autorizadas.
+c) Cesión de hipotecas en primer grado y/o cesión de pagarés que formen parte de la cartera de crédito de las entidades autorizadas. Estas garantías cedidas serán custodiadas por la Dirección Ejecutiva del Poder Judicial.
+d) La constitución de un Fideicomiso de Garantía, en el cual son cedidos por parte del Fideicomitente, pagarés e hipotecas que no hayan presentado morosidad alguna y en caso de que alguna operación de las cedidas presente morosidad luego de la cesión inicial, deberá ser sustituida.
+Corresponderá a la entidad financiera sujeta de préstamo, demostrar que cuenta con suficientes garantías para hacer frente a la obligación a ser contraída. En todo caso, el tipo de garantía a conceder quedará establecida en cada contrato o convenio que se llegue a suscribir por los créditos otorgados.

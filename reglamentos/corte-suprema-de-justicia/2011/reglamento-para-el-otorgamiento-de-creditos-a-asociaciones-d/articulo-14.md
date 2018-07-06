@@ -1,1 +1,2 @@
-Artículo 14.—Las entidades financieras sujetas de créditos, autorizan al Poder Judicial para que gestione a través de los Departamento de Personal y Financiero Contable para que las deducciones derivadas de las operaciones de crédito, ingresen directamente a una cuenta corriente del Fondo de Jubilaciones y Pensiones del Poder Judicial.
+Artículo 14.—Cobertura. Los pagarés y las hipotecas deben estar cubiertos por una póliza de saldos deudores, para lo cual, la entidad autorizada proporcionará la evidencia respectiva. Para el caso de hipotecas deberá evidenciarse la póliza de incendio y desastres naturales, según corresponda.
+Es importante citar que el artículo 238 de la ley Orgánica del Poder Judicial no faculta realizar préstamos por la modalidad VENTANILLA.

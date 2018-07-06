@@ -1,1 +1,0 @@
-Artículo 24.—Conforme a las competencias de la Auditoría atribuidas por la Ley y demás normativa atinente, la entidad financiera sujeta a préstamo, brindará la información que estime pertinente la Auditoría a criterio de la propia Auditoria, en cuanto a la administración y control de los recursos dinerarios otorgados en préstamo.

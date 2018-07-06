@@ -1,1 +1,1 @@
-Artículo 19.—La entidad financiera sujeta de préstamo, cobrará intereses moratorios a los sujetos de crédito, como máximo en el mismo tanto que los intereses corrientes.
+Artículo 19.—No previsto. Lo no previsto en este reglamento será resuelto por la Corte Plena.

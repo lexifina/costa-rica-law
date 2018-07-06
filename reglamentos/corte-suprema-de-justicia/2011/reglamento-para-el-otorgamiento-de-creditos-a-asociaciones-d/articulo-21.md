@@ -1,1 +1,0 @@
-Artículo 21.—Las entidades financieras sujetas de préstamo deberán conformar un Comité de Crédito, que analice y apruebe los créditos a otorgar a los servidores, jubilados y pensionados judiciales conforme al reglamento interno que lleguen a promulgar, que no podrá contener normas contrarias al presente reglamento ni de los convenios o contratos que se lleguen a suscribir.

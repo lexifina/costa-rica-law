@@ -14,3 +14,4 @@ Reglamento para el Otorgamiento de Créditos a Asociaciones de Servidores Judici
 | --- | --- | --- |
 | 1 | 2011-07-07 | la propia norma |
 | 2 | 2015-04-17 | Circular 65 (2015-04-17) |
+| 3 | 2018-07-06 | Circular 58 (2018-07-06) |

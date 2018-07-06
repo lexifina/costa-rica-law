@@ -1,1 +1,2 @@
-Artículo 17.—Los créditos a otorgar a los servidores, jubilados y pensionados judiciales por las entidades financieras sujetas de préstamo no podrá ser superior a 15 años.
+Artículo 17.—Deberes. La Dirección Ejecutiva informará al Consejo Superior periódicamente según lo disponga este Órgano, el cumplimiento de las cláusulas contractuales por parte de las entidades autorizadas por el uso de recursos del Fondo.
+Además, a criterio de dicha Dirección, en caso de que se presente una situación especial, está deberá informarse de inmediato al Consejo Superior.
