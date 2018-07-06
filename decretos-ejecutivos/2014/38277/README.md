@@ -18,3 +18,4 @@ Reglamento de Procedimiento Tributario
 | 3 | 2016-06-23 | Decreto Ejecutivo 39940 (2016-06-23) |
 | 4 | 2016-08-31 | SINALEVI (sin norma nombrada) |
 | 5 | 2016-10-18 | Decreto Ejecutivo 40181 (2016-10-18) |
+| 6 | 2018-07-06 | Decreto Ejecutivo 41330 (2018-07-06) |

@@ -1,0 +1,2 @@
+Artículo 183 bis.- Monto de la garantía y plazo. El monto de la garantía que se ofrezca para la formalización de un fraccionamiento depago debe ser 1,1 veces el monto de la deuda tributaria más sus intereses proyectados a la fecha de vencimiento de la facilidad de pago, calculados con la tasa vigente al momento de constituirse la garantía y tener validez por todo el plazo del fraccionamiento.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 41330 del 6 de julio de 2018)

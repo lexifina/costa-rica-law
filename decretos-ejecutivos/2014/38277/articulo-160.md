@@ -1,6 +1,8 @@
-Artículo 160.- Cálculo de cuotas tributarias por regularizaciones parciales.
-Ante la manifestación de conformidad parcial del sujeto pasivo con la propuesta de regularización que se le hubiere formulado y a los fines de asociarle a cada aumento en la base imponible, la cuota o impuesto que le corresponda, deberá aplicarse el siguiente procedimiento de cálculo:
-a) Cuando el tipo del tributo fuere proporcional, se aplicará ese tipo a cada uno de los aumentos a la base imponible.
-b) Cuando la base imponible del tributo estuviera gravada por una escala de tipos o tarifas, deberá multiplicarse cada aumento en la base imponible por el tipo medio que resulte de la aplicación de esa escala.
-c) El resultado que se obtenga mediante los cálculos de los incisos a) ó b), será el impuesto o cuota asociado con cada aumento a la base. Al resultado que se obtenga por la suma de esas cuotas se adicionará, cuando corresponda, los aumentos determinados directamente en la cuota del tributo, para obtener los aumentos totales.
-Las cuotas tributarias así obtenidas, en relación con cada aumento de base no aceptada por el sujeto pasivo serán las mismas que se harán constar en el acto de liquidación de oficio que se le notifique al sujeto pasivo, ante su manifestación de disconformidad parcial con la propuesta de regularización.
+Artículo 160.- Disconformidad con la propuesta de regularización. La disconformidad es una manifestación voluntaria del sujeto fiscalizado de desacuerdo con la propuesta de regularización que le han formulado los órganos actuantes. Tendrá carácter total cuando la disconformidad abarque todos los conceptos incluidos en aquella propuesta y carácter parcial, cuando manifieste desacuerdo sólo sobre algunos de los conceptos de la propuesta.
+Se entenderá puesta de manifiesto la disconformidad cuando el sujeto fiscalizado:
+a. Lo indique expresamente, en la misma audiencia final o dentro de los cinco días hábiles posteriores a su celebración.
+b. No comparezca, sin causa justificada, a la audiencia final en la fecha fijada.
+c. No comparezca dentro de los cinco días hábiles referidos en el artículo 156 del presente Reglamento.
+En los dos últimos supuestos, los órganos o funcionarios actuantes deberán levantar un acta en la que se haga constar esta circunstancia.
+En los casos en que el sujeto fiscalizado manifieste disconformidad total o parcial con la propuesta, según lo establecido previamente, se continuará con la notificación del traslado de cargos u observaciones al sujeto pasivo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41330 del 6 de julio de 2018)

@@ -46,11 +46,13 @@ articulo-43.md
 articulo-44.md
 articulo-45.md
 articulo-46.md
+articulo-46-bis.md
 articulo-47.md
 articulo-48.md
 articulo-49.md
 articulo-50.md
 articulo-51.md
+articulo-51-bis.md
 articulo-52.md
 articulo-53.md
 articulo-54.md
@@ -171,6 +173,7 @@ articulo-168.md
 articulo-169.md
 articulo-170.md
 articulo-171.md
+articulo-171-bis.md
 articulo-172.md
 articulo-173.md
 articulo-174.md
@@ -182,7 +185,9 @@ articulo-179.md
 articulo-180.md
 articulo-181.md
 articulo-182.md
+articulo-182-bis.md
 articulo-183.md
+articulo-183-bis.md
 articulo-184.md
 articulo-185.md
 articulo-186.md
@@ -267,7 +272,12 @@ articulo-264.md
 articulo-265.md
 articulo-266.md
 articulo-267.md
+articulo-267-bis.md
 articulo-268.md
+articulo-268-bis.md
+articulo-268-ter.md
+articulo-268-quater.md
+articulo-268-quinquies.md
 articulo-269.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md

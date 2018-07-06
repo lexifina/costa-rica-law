@@ -1,0 +1,2 @@
+Artículo 268 quinquies.- Certificaciones de adeudo. Las certificaciones de adeudo tributario que hayan sido emitidas en forma posterior a la entrada en vigencia de la “Ley para Mejorar la Lucha contra el Fraude Fiscal”, Ley No. 9416 del 14 de diciembre de 2016, no requerirán de la notificación por parte de la División de Adeudos Estatales como requisito previo a la presentación de la demanda.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 41330 del 6 de julio de 2018)

@@ -1,2 +1,3 @@
-Artículo 98.- Modificación del medio señalado para recibir notificaciones.
-En cualquier etapa del procedimiento el obligado tributario puede señalar un medio distinto para recibir notificaciones, el cual será válido legalmente para el proceso o diligencia que se tramite ante la Administración Tributaria y surtirá efectos legales para todos los actos que se emitan con posterioridad a la fecha de comunicación del cambio.
+Artículo 98.- Notificación por buzón electrónico. Los obligados tributarios deben contar con un buzón electrónico permanente, que la Administración Tributaria les asignará a efecto de depositarles las comunicaciones, los avisos y las notificaciones de los procedimientos tributarios que se tramiten de oficio, así como las notificaciones producto de aquellos procedimientos tributarios que se inicien a gestión de parte.
+Puesto a disposición del obligado tributario el buzón electrónico, es obligación de este verificar los mensajes que hayan sido depositados.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41330 del 6 de julio de 2018)

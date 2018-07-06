@@ -1,7 +1,4 @@
-Artículo 162.- Disconformidad con la propuesta de regularización.
-La disconformidad es una manifestación voluntaria del sujeto fiscalizado de desacuerdo con la propuesta de regularización que le han formulado los órganos actuantes. Tendrá carácter total cuando la disconformidad abarque todos los conceptos incluidos en aquella propuesta y carácter parcial, cuando manifieste desacuerdo sólo sobre algunos de los conceptos de la propuesta.
-Se entenderá puesta de manifiesto la disconformidad cuando el sujeto fiscalizado:
-a) Lo indique expresamente, en la misma audiencia final o dentro de los cinco días posteriores a su celebración.
-b) No comparezca, sin justa causa, a la audiencia final en la fecha fijada.
-c) No comparezca dentro de los cinco días referidos en el artículo 158 del presente Reglamento.
-En los dos últimos supuestos, los funcionarios actuantes deberán levantar un acta donde se haga constar esta circunstancia.
+Artículo 162.- Impugnación por el sujeto pasivo. Dentro de los diez días hábiles siguientes a la fecha de notificación del traslado que menciona el artículo 161 de este Reglamento, el sujeto pasivo puede impugnar por escrito, o por los medios que establezca la Administración Tributaria, las observaciones o cargos formulados, debiendo en tal caso especificar los hechos y las normas jurídicas en que fundamenta su reclamo y alegar las defensas que considere pertinentes con respecto a los hechos que se le atribuyan, proporcionando u ofreciendo las pruebas respectivas.
+Vencido el plazo indicado, no cabe ninguna impugnación. En caso de presentarse la impugnación de forma extemporánea, la misma será rechazada ad portas, quedando posibilitado el obligado tributario a presentar sus alegatos en las etapas recursivas subsecuentes. La Administración Tributaria deberá poner en conocimiento al interesado, notificando el carácter extemporáneo de la impugnación presentada.
+El contribuyente podrá pagar bajo protesta, el monto del tributo, junto con los intereses respectivos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41330 del 6 de julio de 2018)
