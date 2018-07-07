@@ -14,3 +14,4 @@ Inscripción, modificación de datos y desinscripción en el registro único tri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-12-21 | la propia norma |
+| 2 | 2018-07-07 | Resolución 43 (2018-07-07) |
