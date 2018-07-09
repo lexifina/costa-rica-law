@@ -30,4 +30,5 @@ g. Rendición de cuentas
 h. Pertenencia al Sistema Nacional de Ética y Valores
 • Asistir a las actividades convocadas por la CNRV, con el propósito de mantener una constante comunicación con la Dirección Ejecutiva de ese ente, a fin de estar al día con la dinámica del Sistema Nacional de Ética y Valores.
 • Establecer vínculos de cooperación horizontal entre las comisiones y unidades técnicas que integran el SNEV.
-La persona coordinadora de la Comisión o la persona encargada de la Secretaría Técnica (en caso de que cuente con esta figura)) deberá liderar el proceso a desarrollar con la colaboración de los miembros de la Comisión y de la administración.
+Corresponderá al Presidente Ejecutivo del INA, liderar el proceso a desarrollar con la colaboración de los miembros de la Comisión y de la administración.
+(Así reformado el párrafo anterior en sesión N° 4853 del 9 de julio de 2018)

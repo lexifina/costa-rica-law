@@ -1,4 +1,5 @@
-Artículo 6º—Funciones del Presidente
+Artículo 6º—Funciones del Presidente Ejecutivo.
+(Así reformado el párrafo anterior en sesión N° 4853 del 9 de julio de 2018)
 a) Velar porque se realicen de la mejor manera y según los recursos disponibles, las funciones que la Comisión tiene asignadas en este reglamento.
 b) Efectuar la convocatoria de las sesiones de seguimiento.
 c) El Presidente tiene la potestad de firmar los documentos que sean necesarios para agilizar las gestiones de la comisión.

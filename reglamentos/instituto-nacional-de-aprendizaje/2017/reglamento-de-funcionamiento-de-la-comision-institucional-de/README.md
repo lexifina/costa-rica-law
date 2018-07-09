@@ -14,3 +14,4 @@ Reglamento de funcionamiento de la Comisión Institucional de Ética y Valores d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-01-31 | la propia norma |
+| 2 | 2018-07-09 | Reglamento 4853 (2018-07-09) |
