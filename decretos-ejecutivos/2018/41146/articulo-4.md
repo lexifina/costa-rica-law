@@ -1,0 +1,2 @@
+Artículo 4º—La Comisión de Alto Nivel sesionará con un quorum mínimo de cuatro miembros presentes adoptando sus decisiones por mayoría simple de los presentes. En caso de empate, el que preside la sesión de la Comisión tendrá doble voto.
+Si no hubiere quorum, la Comisión podrá sesionar válidamente en segunda convocatoria, media hora después de la señalada y para ello será suficiente la asistencia de la tercera parte de sus miembros, y las decisiones serán aprobadas por mayoría absoluta.
