@@ -1,1 +1,0 @@
-III.—Establecer que estas directrices son de acatamiento obligatorio y prevalecerán sobre cualquier disposición en contrario que emitan otros órganos competentes. Su incumplimiento injustificado acarreará al infractor las sanciones previstas en el capítulo V de la Ley General de Control Interno, N° 8292.
