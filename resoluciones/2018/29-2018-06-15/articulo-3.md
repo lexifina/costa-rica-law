@@ -1,0 +1,1 @@
+Artículo 3º—Generalidades: Para efectos tributarios no se acepta como base de medición en los estados financieros, el valor razonable o el valor de mercado, como técnica de actualización, a excepción de la valoración para transacciones entre empresas vinculadas para efectos de precios de transferencia y el diferencial cambiario.
