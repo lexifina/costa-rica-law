@@ -1,4 +1,5 @@
 AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
+(Nota de Sinalevi: Sobre este tema la Autoridad Reguladora de los Servicios Públicos, aprobó una nueva Metodología tarifaria para peajes de distribución como adición a la metodología tarifaria ordinaria para el servicio de distribución de energía eléctrica brindado por operadores públicos y cooperativas de electrificación rural, aprobado mediante resolución N° 0006 del 8 de febrero de 2022)
 RESOLUCION RJD-139-2015
 San José, a las dieciséis horas con veinte minutos del veintisiete de julio del dos mil
 quince
@@ -239,7 +240,6 @@ Mediante la aprobación y aplicación de esta metodología, se busca contribuir 
 VII. DEFINICIÓN DE LA METODOLOGÍA TARIFARIA
 1. MODELO GENERAL
 El modelo general para determinar el ajuste porcentual por reconocer en las fijaciones ordinarias para el sistema de distribución y comercialización eléctrica requiere del cálculo de los siguientes componentes: a) ingresos totales, b) costos totales, c) rédito para el desarrollo, d) periodo de aplicación, y e) monto y ajuste tarifario. La distribución del ajuste porcentual por tipo de tarifa y bloques se hará de conformidad con lo que técnicamente determine la Intendencia de Energía. El modelo establece que la tarifa debe ser suficiente para generar los ingresos que permitan al operador cubrir los costos totales asociados al servicio que se regula – bajo condiciones de calidad establecidas – y además de garantizar un monto sobre el capital invertido, denominado rédito para el desarrollo, que depende de la tasa de rédito y la base tarifaria:
-[imagen]
 Donde:
 IT = Ingresos totales. Incluye los ingresos por venta de energía y otros ingresos que generan los operadores producto del servicio (ver fórmula 9).
 COMA = Costos y gastos totales de operación, mantenimiento y administración, así como otros costos en que incurran los operadores para brindar el servicio (ver apartado 3 sección VII).
@@ -249,18 +249,16 @@ La aplicación del modelo establecido en la fórmula 1 requiere del cálculo, re
 En la presente metodología se entiende por período “t”, al período base de análisis considerado en el estudio de fijación tarifaria; permite el uso de valores reales u observados para doce meses consecutivos. El período base provee la información insumo para las estimaciones y proyecciones que se requieren para el período t+1.
 La longitud o extensión de las series de tiempo, requeridas para las variables del periodo base “t”, se determinaran de manera exógena, de forma tal que todas las variables empleen una extensión de tiempo adecuada para el cálculo de promedios o proyecciones. Por tanto, para cada variable se definirá de acuerdo con los requerimientos de información que se definen en cada caso a lo largo de la presente metodología. Por su parte, el periodo “t+1” es definido como el período de tiempo durante el cual estará vigente el nuevo ajuste tarifario, típicamente es un año. El período t+1 deberá ser definido por la Intendencia de Energía según el artículo 16 de la Ley General de la Administración Pública y deberá incorporar en el estudio de fijación tarifaria los criterios empleados para su definición.
 En el primer caso, se emplean valores reales u observados en el periodo t para el cálculo, de la siguiente manera:
-[imagen]
 Donde:
 t = Período base de análisis considerado en el estudio de fijación tarifaria.
-[imagen] = Ingresos totales. Incluye los ingresos por venta de energía y otros ingresos que generan los operadores producto del servicio (ver fórmula 9).
+= Ingresos totales. Incluye los ingresos por venta de energía y otros ingresos que generan los operadores producto del servicio (ver fórmula 9).
 COMAt = Costos y gastos totales de operación, mantenimiento, administración y otros costos en que incurran los operadores para brindar el servicio en el período t (ver apartado 3 sección VII).
-Rot = Tasa de rédito para el desarrollo observada para el periodo t, se obtiene como resultado de [imagen]
+Rot = Tasa de rédito para el desarrollo observada para el periodo t, se obtiene como resultado de
 BTt = Base tarifaria. Valor total del Activo Fijo Neto en Operación Revaluado promedio (AFNORP) y el Capital de trabajo para el periodo t (ver apartado 5 sección VII).
 Los costos y gastos de operación, mantenimiento y administrativos, la base tarifaria y el rendimiento sobre la base tarifaria, se calculan primeramente a partir de valores observados o reales para el periodo base t. El cálculo se hace a partir de las series de tiempo de los valores observados disponibles, con un rezago máximo de cuatro meses anteriores a la presentación de la solicitud tarifaria, los meses restantes para completar el periodo de análisis considerado en la solicitud tarifaria – periodo t – se podrán estimar y proyectar considerando los procedimientos establecidos en el apartado 2 y 3 de la sección VII para efectos de estimaciones.
 a) Determinación del monto de ajuste para el período en que entrará en vigencia t+1:
 Para la determinación del monto de ajuste requerido en el siguiente período, t+1, el período en el que estará vigente la nueva fijación tarifaria, primero se proyectan a 12 meses las variables IT con tarifas vigentes, COMA y BT de la fórmula 1 (ver apartado 2 y 3 de la sección VII).
 De la fórmula 1, se obtiene:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 IT = Ingresos totales estimados para el período t+1 con las tarifas vigentes. Incluye los ingresos por venta de energía y otros ingresos que generan los operadores producto del servicio (ver fórmula 9).
@@ -269,7 +267,6 @@ Rtv,t+1 = Tasa de rédito para el desarrollo que resulta con las tarifas vigente
 BTt+1 = Base tarifaria formada por la sumatoria del Activo Fijo Neto en Operación Revaluado Promedio (AFNORP) y el Capital de trabajo para el período t+1 (ver apartado 5 sección VII).
 tv = Tarifas vigentes
 Al despejar el rédito para el desarrollo de la fórmula 3, se obtiene que:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 Rtv,t+1 = Tasa de rédito para el desarrollo que resulta con las tarifas vigentes para el período t+1.
@@ -280,7 +277,6 @@ tv = Tarifas vigentes
 La tasa de rédito para el periodo t+1 con las tarifas vigentes (Rtv,t+1), es utilizada como indicador para determinar si se requiere ajuste tarifario o no. Este rédito se compara con 𝑅𝑡+1,,, el rédito obtenido mediante el procedimiento definido en el apartado 4 de la sección VII, de forma que si el rédito con tarifas vigentes es mayor que el rédito obtenido en el apartado 4 de la sección VII se requiere una disminución en las tarifas, si es igual no se requiere ajuste y si es menor, se requiere un aumento en las tarifas.
 b) Cálculo del ajuste en ingresos
 La estimación de los ingresos totales que se requieren para la obtención de la tasa 𝑅𝑡+1,en el período t+1 se calcula mediante el modelo general de la fórmula 1:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 𝐼𝑇𝑡+1= Ingresos totales requeridos para la obtención de la tasa 𝑅𝑡+1,para el periodo t+1.
@@ -288,16 +284,14 @@ COMAt+1 = Costos y gastos totales de operación, mantenimiento, administración 
 𝑅𝑡+1= Tasa de rédito calculada mediante el WACC para el período t+1 (ver apartado 4 sección VII).
 BTt+1 = Base tarifaria formada por la sumatoria del Activo Fijo Neto en Operación Revaluado Promedio (AFNORP) y el Capital de trabajo para el período t+1 (ver apartado 5 sección VII).
 Así, el monto de ajuste requerido en los ingresos totales para obtener la tasa 𝑅𝑡+1 a partir de las tarifas vigentes, es:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario
-[imagen] = Ajuste o cambio requerido en los ingresos totales del servicio de
+= Ajuste o cambio requerido en los ingresos totales del servicio de
 distribución eléctrica para la obtención de la tasa 𝑅𝑡+1para el periodo t+1.
 𝐼𝑇𝑡+1= Ingresos totales requeridos para la obtención de la tasa 𝑅𝑡+1para el periodo t+1 (ver fórmula 4).
 IT = Ingresos totales estimados para el periodo t+1 con las tarifas vigentes
 (ver fórmula 9).
 El monto del ajuste también se puede expresar como la diferencia entre el excedente de operación obtenido con la tasa de rédito calculada con el WACC (𝑅𝑡+1 ∗ 𝐵𝑇𝑡+1) (apartado 4 de la sección VII) y los excedentes de operación proyectados para el período t+1 con las tarifas vigentes (𝑅𝑡𝑣,𝑡+1 ∗ 𝐵𝑇𝑡+1).El ajuste es establecido de la siguiente forma:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 Δ𝐼𝑇 = Ajuste o cambio requerido en los ingresos totales del servicio de distribución eléctrica para la obtención de la tasa 𝑅𝑡+1 para el periodo t+1.
@@ -306,9 +300,7 @@ t+1 = Período en el que estará vigente el ajuste tarifario.
 𝑅𝑡𝑣,𝑡+1 = Tasa de rédito para el desarrollo que resulta con las tarifas vigentes para el período t+1 (ver fórmula 3.1).
 tv = Tarifas vigentes.
 Desde el punto de vista de composición de los ingresos (ver modelo en la fórmula 9) al ser los ingresos por ventas de energía a usuarios finales los únicos que en esta metodología dependen explícitamente de las tarifas, se cumple que:
-[imagen]
 Y en consecuencia:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 𝐼𝑇𝑡+1 = Ingresos totales requeridos para la obtención de la tasa 𝑅𝑡+1 para el periodo t+1 (ver fórmula 4).
@@ -316,7 +308,6 @@ t+1 = Período en el que estará vigente el ajuste tarifario.
 𝐼𝑎𝑝 = Ingresos por venta de energía al servicio de alumbrado público estimados para t+1 (ver fórmula 14).
 𝐼𝑜 = Otros ingresos proyectados para t+1 relacionados con la actividad de distribución eléctrica (ver fórmula 17).
 De las fórmulas 4.1, 4.2, 4.3 y 9, se deduce que en esta metodología el incremento en ingresos totales debe provenir únicamente del respectivo aumento en los ingresos por ventas a usuarios finales:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 Δ𝐼𝑇 = Ajuste o cambio requerido en los ingresos totales del servicio de distribución eléctrica para la obtención de la tasa 𝑅𝑡+1 para el periodo t+1.
@@ -325,7 +316,6 @@ t+1 = Período en el que estará vigente el ajuste tarifario.
 t+1 = Período en el que estará vigente el ajuste tarifario.
 Δ𝐼𝑇 = Ajuste o cambio requerido en los ingresos totales del servicio de distribución
 En consecuencia, el monto de ajuste en los ingresos obtenido en la fórmula 4.5, se traduce en el ajuste porcentual de los ingresos por ventas para alcanzar la tasa de retorno 𝑅𝑡+1para el periodo t+1 de la siguiente manera:
-[imagen]
 Donde:
 %IT = Ajuste porcentual requerido en los ingresos por ventas de energía a usuarios finales.
 ΔIT = Ajuste o cambio requerido en los ingresos del servicio de distribución eléctrica para la obtención de la tasa 𝑅𝑡+1 para el periodo t+1 (fórmula 4.1 a 4.3).
@@ -337,7 +327,6 @@ De esta forma, Aresep tomará en cuenta las desviaciones que se originan en el c
 anterior.
 Se realizarán ajustes en los ingresos y gastos asignados por tarifa y reales, para los costos totales (COMA) y los ingresos totales (IT). Los gastos y costos reales que serán analizados son los coincidentes con los que se incluyeron en las tarifas del estudio tarifario anterior. Lo anterior con el fin de que vía tarifa se le devuelva al usuario los ingresos obtenidos, por las empresas distribuidoras, por encima de sus costos. De manera contraria, si los ingresos fuesen inferiores a los gastos, las empresas distribuidoras podrán solicitar un estudio ordinario con las justificaciones pertinentes.
 El ajuste para gastos, contrasta los gastos estimados incluidos en el cálculo de la tarifa vigente con los gastos reales obtenidos por la empresa distribuidora, el cual se obtiene de la siguiente manera:
-[imagen]
 Donde:
 z = Periodo durante el que estuvo vigente la tarifa, tomando como referencia el último estado financiero auditado o disponible con información real con un desfase máximo de cuatro meses de información.
 𝐺𝑇𝐴𝑧 = Gastos totales ajustados. Se refiere al ajuste por diferencial de gastos reales y gastos estimados para el periodo z.
@@ -345,39 +334,35 @@ z = Periodo durante el que estuvo vigente la tarifa, tomando como referencia el 
 𝐺𝐸𝐶𝑂𝑀𝐴,𝑧 = Gasto estimado por concepto operación, mantenimiento, administración y otros costos para el periodo z.
 𝐶𝑂𝑀𝐴 = Costos y gastos totales de operación, mantenimiento y administración, asimismo, otros costos en que incurran los operadores para brindar el servicio.
 El ajuste por ingresos es la diferencia en los ingresos estimados incluidos en el cálculo de la tarifa vigente con los ingresos reales obtenidos por la empresa distribuidora, el cual se obtiene de la siguiente manera:
-[imagen]
 Donde:
 z = Periodo durante el que estuvo vigente la tarifa, tomando como referencia el último estado financiero auditado o disponible con información real con un desfase máximo de cuatro meses de información.
 𝐼𝑇𝐴𝑧 = Ingresos Totales Ajustados. Se refiere al ajuste por diferencial de ingresos reales e ingresos estimados para el periodo z.
 𝐼𝑇𝑅𝑧 = Ingresos Totales Reales. Incluye los ingresos por concepto de venta de energía y otros ingresos para el periodo z.
 𝐼𝑇𝐸𝑧 = Ingresos Totales Estimados. Incluye los ingresos por concepto de venta de energía y otros ingresos para el periodo z.
 El diferencial entre los ingresos del periodo y los gastos del periodo van a resultar en el monto que debe adicionarse a los ingresos para el periodo siguiente, tal como se detalla:
-[imagen]
 Donde:
 z = Periodo durante el que estuvo vigente la tarifa, tomando como referencia el último estado financiero auditado o disponible con información real con un desfase máximo de cuatro meses de información.
-[imagen] = Liquidación del periodo z.
-[imagen] = Ingresos Totales Ajustados del periodo z.
-[imagen] = Gastos Totales Ajustados del periodo z.
+= Liquidación del periodo z.
+= Ingresos Totales Ajustados del periodo z.
+= Gastos Totales Ajustados del periodo z.
 Asimismo, para estos efectos, los datos reales auditados o disponibles presentados por el operador deben estar justificados y ser razonables. Estos datos serán revisados, analizados y depurados por parte de la Autoridad Reguladora con el propósito de determinar su reconocimiento, y en ningún caso podrá considerar elementos que se limitan en esta metodología. Se deberá cumplir con los objetivos de la Ley 7593.
 2. CÁLCULO DE LOS INGRESOS TOTALES.
 Los ingresos totales comprenden todos los ingresos por venta de energía y otros ingresos asociados al servicio de distribución y comercialización, como lo son los ingresos por ventas de energía al servicio de alumbrado público, alquiler de transformadores y postes, recargo por mora, devolución por canon de regulación, entre otros.
 2.1 Ingresos totales estimados con tarifas vigentes para el periodo t+1
 Los ingresos totales se generan por las actividades ligadas al servicio de distribución y comercialización de electricidad a clientes conectados a baja tensión y media tensión. Se calculan de la siguiente forma:
-[imagen]
 Donde:
 IT = Ingresos totales.
 Iv = Ingresos por ventas de energía y potencia a usuarios, estimados para el período t+1 con los precios promedio de distribución con tarifas vigentes (ver fórmula 10)
 Iap = Ingresos por venta de energía al servicio de alumbrado público para el período t+1 (ver fórmula 14).
-[imagen] = Otros ingresos. Son los otros ingresos proyectados para el período t+1 y relacionados con la actividad de distribución eléctrica (ver fórmula 17).
+= Otros ingresos. Son los otros ingresos proyectados para el período t+1 y relacionados con la actividad de distribución eléctrica (ver fórmula 17).
 2.1.1 Ingresos por ventas a usuarios
 Los ingresos por ventas a usuarios se obtienen al multiplicar el precio promedio de la electricidad para cada tipo de tarifa por la cantidad total de energía vendida por el tipo de tarifa.
-[imagen]
 Donde:
 t = Período base de análisis considerado en el estudio de fijación tarifaria.
 t+1 = Período en el que estará vigente el ajuste tarifario.
-[imagen] = Ingresos por ventas de energía y potencia a usuarios, estimados para el período t+1 con los precios promedio de distribución con tarifas vigentes.
-[imagen] = Precio promedio de la energía eléctrica. Precio para la tarifa s, se obtiene de la apartado 2.1.2. (ver fórmula 11)
-[imagen] = Energía total vendida estimada. Se refiere al total estimado de ventas de energía en kWh, para la tarifa s, para el mes i del período t +1 (ver fórmula 12).
+= Ingresos por ventas de energía y potencia a usuarios, estimados para el período t+1 con los precios promedio de distribución con tarifas vigentes.
+= Precio promedio de la energía eléctrica. Precio para la tarifa s, se obtiene de la apartado 2.1.2. (ver fórmula 11)
+= Energía total vendida estimada. Se refiere al total estimado de ventas de energía en kWh, para la tarifa s, para el mes i del período t +1 (ver fórmula 12).
 s = Índice de tarifa (residencial, media tensión, general y preferencial, etcétera)1.
 1Se refiere a los tipos de tarifa establecidos actualmente más cualquier otro que se llegue a aprobar.
 i = Índice de mes.
@@ -386,13 +371,12 @@ m = Cantidad de tarifas existentes de acuerdo al pliego tarifario.
 kWh = Kilovatio hora.
 2.1.2 Precio promedio de la energía eléctrica para cada tipo de tarifa.
 Para la definición del precio promedio de la energía eléctrica, para cada tarifa se utilizará la estructura definida en el pliego tarifario de la empresa distribuidora durante los 12 meses anteriores para los cuales se disponga de información real. El precio promedio por tarifa se obtiene de la sumatoria de los ingresos mensuales por venta de energía eléctrica por tarifa dividido entre las ventas totales mensuales en kWh por tarifa. Se calcula mediante la siguiente fórmula:
-[imagen]
 Donde:
 t = Período base de análisis considerado en el estudio de fijación.
-[imagen] = Precio promedio de la energía eléctrica. Precio para la tarifa s.
+= Precio promedio de la energía eléctrica. Precio para la tarifa s.
 [imagen] = Ingreso. Son los ingresos de la tarifa s (ver fórmula 11.1).
 [imagen] = Ingresos por tarifa horario (ver fórmula 11.8 y 11.9).
-[imagen] = Ventas de energía reales en kWh para la tarifa s y el mes i, obtenidas de la información suministrada por el operador.
+= Ventas de energía reales en kWh para la tarifa s y el mes i, obtenidas de la información suministrada por el operador.
 s = Índice de tarifa (residencial, media tensión, general y preferencial, etcétera).
 ph = Periodos horarios (punta, valle o nocturno).
 i = Índice de mes.
@@ -401,12 +385,11 @@ kWh = Kilovatio hora.
 Ingresos por tipo de tarifa
 En el caso general en el que se vincula el consumo del abonado con un único rango de consumo, y su respectiva tarifa por cada kWh y kW, los ingresos en cada tarifa será la sumatoria de los productos de ventas en cada bloque por su respectiva tarifa.
 En el caso específico en que un abonado puede tener distintas tarifas por kWh y kW, conforme aumente su consumo irá sobrepasando el límite superior de los bloques establecidos, pero lo consumido en cada bloque tendrá la tarifa por KWh y kW establecido en ese bloque y su excedente en el bloque siguiente. En tal caso, los ingresos por tarifa son los ingresos mensuales por bloque de consumo, los cuales se obtienen de la sumatoria de los ingresos para cada bloque de consumo definido en el pliego tarifario por tarifa, tal y como se detalla a continuación:
-[imagen]
 Donde:
 [imagen] = Ingreso. Son los ingresos de la tarifa s (residencial, media tensión, general, preferencial, etc.).
-[imagen] = Ingresos mensuales para el primer bloque de consumo de la tarifa s (ver fórmulas 11.2 y 11.3).
-[imagen] = Ingresos mensuales para el segundo bloque de consumo de la tarifa s (ver fórmulas 11.4, 11.5 y 11.6).
-[imagen] = Ingresos mensuales para el tercer bloque de consumo de la tarifa s (ver fórmula 11.7).
+= Ingresos mensuales para el primer bloque de consumo de la tarifa s (ver fórmulas 11.2 y 11.3).
+= Ingresos mensuales para el segundo bloque de consumo de la tarifa s (ver fórmulas 11.4, 11.5 y 11.6).
+= Ingresos mensuales para el tercer bloque de consumo de la tarifa s (ver fórmula 11.7).
 B1 = Bloque de consumo 1.
 B2 = Bloque de consumo 2.
 B3 = Bloque de consumo 3.
@@ -416,7 +399,6 @@ i = Índice de mes.
 n = Cantidad de meses.
 El ingreso por bloque de consumo para cada tipo de tarifa se calcula según corresponda de la siguiente manera:
 a) Ingresos mensuales para el primer bloque de consumo:
-[imagen]
 Donde:
 𝐼𝐵1 = Ingresos mensuales para el primer bloque de consumo.
 𝐴𝑏𝐵1,𝐶𝑀 = Cantidad de abonados. Se refiere a la cantidad de abonados cuyo consumo es igual al mínimo establecido en el pliego tarifario, definido en el primer bloque de consumo.
@@ -425,55 +407,40 @@ Donde:
 𝐶𝐴𝐵1 = Consumo adicional al mínimo establecido en el pliego tarifario para el bloque 1, en kWh o kW, según corresponda.
 B1 = Bloque de consumo 1.
 O
-[imagen]
 Donde:
-[imagen]
 b) Ingresos mensuales para el segundo bloque de consumo:
-[imagen]
 Donde:
-[imagen] O
-[imagen]
+O
 Donde:
-[imagen] O
-[imagen]
+O
 Donde:
-[imagen] c) Ingresos mensuales para el tercer bloque de consumo:
-[imagen]
+c) Ingresos mensuales para el tercer bloque de consumo:
 Donde:
-[imagen] En el caso que una tarifa establezca más de tres bloques de consumo, el cálculo de los
+En el caso que una tarifa establezca más de tres bloques de consumo, el cálculo de los
 ingresos seguirá la misma lógica de facturación incremental y de cobro por cada bloque de consumo alcanzado que se indica en los puntos anteriores.
 d) Ingresos mensuales por tarifa para los casos en que el pliego tarifario incorpora período horario:
 Para aquellos operadores que cuenten con un esquema tarifario por período horario (punta, valle y nocturno) los ingresos mensuales para el sector respectivo se determinarán mediante la siguiente fórmula:
-[imagen]
 Donde
-[imagen]
 En los casos en los que existen tarifas en dólares, se realiza el cálculo de la misma forma que en la fórmula 11.8, sin embargo, las tarifas en dólares se multiplican por el tipo de cambio correspondiente, de la siguiente manera:
-[imagen]
-[imagen] En los casos en que un operador cuente con tarifas por bloque de consumo y por período horario, se calculan los ingresos de cada esquema tarifario por separado y se proceden a sumar para obtener los ingresos totales por concepto de venta de energía eléctrica (Iv).
+En los casos en que un operador cuente con tarifas por bloque de consumo y por período horario, se calculan los ingresos de cada esquema tarifario por separado y se proceden a sumar para obtener los ingresos totales por concepto de venta de energía eléctrica (Iv).
 2.1.3. Energía total vendida estimada para la empresa distribuidora
 El total de energía vendida es igual a la suma de la energía comprada y la energía generada por el operador menos las pérdidas del sistema de distribución, sin embargo, la forma de estimación de este rubro es el producto de la cantidad de abonados por el consumo promedio, tal como sigue:
-[imagen]
 Donde:
-[imagen] a. La cantidad estimada de abonados para cada tarifa
+a. La cantidad estimada de abonados para cada tarifa
 La cantidad estimada de abonados para cada tarifa se proyecta mediante técnicas estadísticas o econométricas. Las estimaciones se basan en datos históricos mensuales de abonados por tarifa en los últimos 10 años o la serie histórica para la que se encuentren datos disponibles. Se proyecta un periodo de tiempo igual al que estará vigente el ajuste tarifario.
 Debe realizarse un análisis estructural de los datos para determinar el periodo definitivo por utilizar. Para las estimaciones se utiliza el programa estadístico Forecast Pro o cualquier otro software estadístico especializado en el análisis y proyección de series de tiempo. Las proyecciones resultantes deben justificarse y cumplir con los criterios estadísticos y econométricos que se establecen con base en la ciencia, técnica y lógica; tal y como lo establece la Ley General de la Administración Pública.
 b. Consumo promedio de energía para cada tarifa
 El consumo promedio de energía para la tarifa s, se obtiene para los últimos 12 meses disponibles al momento en que se realiza el estudio fijación tarifaria, del cociente entre las ventas mensuales reales en kWh de la tarifa s y la cantidad mensual real de abonados en dicha tarifa:
-[imagen]
 Donde:
-[imagen]
-[imagen]
 2.2 Ingreso por el servicio de alumbrado público
 Se refiere al ingreso por las ventas, en colones, que el sistema de distribución realiza al sistema de alumbrado público. Se obtiene de multiplicar las ventas totales estimadas en kWh por el costo que tiene la energía del sistema de alumbrado público para el sistema de distribución. De la siguiente manera:
-[imagen]
 Donde:
 Iap = Ingresos por venta de energía al servicio de alumbrado público.
 Pap = Precio de la energía del sistema de alumbrado público (ver fórmula 15.1).
-[imagen] = Ventas totales estimadas para el sistema de alumbrado público, en kWh.
+= Ventas totales estimadas para el sistema de alumbrado público, en kWh.
 kWh = Kilovatio hora.
 Las ventas totales estimadas para el sistema de alumbrado público en kWh (𝑉𝐴𝑃𝐾𝑤ℎ) provienen de los respectivos estudios tarifarios de este servicio. En caso de no estar disponible la información del estudio tarifario, se mantienen las unidades físicas reales consumidas por el sistema de alumbrado público.
 Para obtener el precio de la energía del sistema de alumbrado público se procede de la siguiente manera:
-[imagen]
 Donde:
 𝑃𝑀𝐴𝑃= Precio mensual de la energía del sistema de alumbrado público.
 TG = Tarifa de generación eléctrica. Es la tarifa correspondiente a la empresa que solicita el estudio.
@@ -483,14 +450,12 @@ pp = Periodo punta.
 pn = Periodo nocturno.
 TTrans = Tarifa de transmisión.
 Dado que este precio debe incorporar el efecto por las pérdidas de distribución, el precio de la energía del sistema de alumbrado público será:
-[imagen]
 Donde:
 PAP = Precio de la energía del sistema de alumbrado público.
 𝑃𝑀𝐴𝑃 = Precio mensual de la energía del sistema de alumbrado público.
 %Per = Porcentaje de pérdidas del sistema de distribución (ver fórmula 26).
 2.3 Otros ingresos
 En este rubro se incluyen los ingresos de explotación por actividades diversas asociadas al servicio de distribución y comercialización eléctrica, que son recurrentes y pueden considerarse como ingresos relacionados con la tarifa. Se utiliza como referencia el período de análisis definido en el estudio de fijación tarifaria:
-[imagen]
 Donde:
 t = Período base de análisis considerado en el estudio de fijación tarifaria.
 𝐼𝑜𝑡 = Otros ingresos calculados para el periodo t
@@ -501,7 +466,6 @@ t = Período base de análisis considerado en el estudio de fijación tarifaria.
 su naturaleza pueden ser considerados en el cálculo tarifario a consideración de la Autoridad Reguladora.
 2.3.1 Proyección de otros ingresos
 La proyección de otros ingresos se realiza empleando el resultado derivado de la fórmula 16 como relación de los ingresos totales por ventas de energía, y multiplicando el valor obtenido por los ingresos totales por venta de energía estimada según lo siguiente:
-[imagen]
 Donde:
 t = Período base de análisis considerado en el estudio de fijación tarifaria.
 Io = Otros ingresos proyectados relacionados con la actividad de distribución eléctrica. Se refiere a los otros ingresos proyectados para el período t+1.
@@ -511,7 +475,6 @@ IV = Ingresos por ventas de energía y potencia a usuarios, estimados para el pe
 Los otros ingresos (Io) se mantienen constantes con respecto a la variación en las tarifas.
 3. COSTOS Y GASTOS TOTALES DE OPERACIÓN, MANTENIMIENTO Y ADMINISTRACIÓN (COMA)
 Son los costos y gastos totales de operación, mantenimiento y administración necesarios para prestar el servicio de distribución y comercialización de la energía eléctrica. El cálculo incluye los siguientes rubros:
-[imagen]
 Donde:
 COMA = Costos y gastos totales de operación, mantenimiento y administración, así como, otros costos en que incurran los operadores para brindar el servicio.
 𝐶𝐸𝑃 = Costo por compras de energía y potencia total. Incluye las compras de energía y potencia al Instituto Costarricense de Electricidad -no se incluye costos por combustibles para generación térmica-, a terceros y la generación propia (ver apartado 3.1.2).
@@ -541,7 +504,6 @@ Las actualizaciones se realizan utilizando el índice que mejor se ajusten al ga
 Según la naturaleza de la cuenta, se podrá aplicar tres tipos de actualizaciones, uno totalmente local, uno totalmente externo o uno que sea una combinación de componente local y externo, que dependerá de las proporciones de cada uno de los anteriores en el gasto que se desea actualizar.
 Índice de actualización local
 Se aplica cuando los gastos se efectúan dentro del país y no son afectados por variaciones del tipo de cambio o inflación externa. El factor de actualización local se obtiene según la siguiente fórmula:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 t = Período anterior al del ajuste tarifario.
@@ -550,7 +512,6 @@ t = Período anterior al del ajuste tarifario.
 IPPL,t = Índice de precios promedio. Es el índice de precios local del año anterior. Obtenido como una media aritmética simple del índice de precios mensual del periodo t.
 En los casos en los cuales se utiliza el Índice de Precios al Consumidor se considerará la expectativa de inflación publicada por el Banco Central de Costa Rica en su Programa Macroeconómico (más actualizado). Los valores reales utilizados serán los publicados por el Instituto Nacional de Estadísticas y Censos (INEC). En otros casos se utiliza la variación interanual del índice al último mes disponible de información. Índice de actualización externo
 Se aplica el factor de actualización externo cuando los rubros de los gastos estén vinculados con compras en el exterior o que tengan un alto componente externo, en este caso el factor pondera la variación en el tipo de cambio (colones se deben convertir a dólares) y la inflación externa. El cálculo se realiza de la siguiente forma:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 t = Período anterior al del ajuste tarifario.
@@ -562,7 +523,6 @@ Tcvt = Tipo de cambio de Venta (CRC/USD) establecido por el Banco Central de Cos
 E = Externo
 Para el índice de precios externo se recurrirá a los índices de precios de los Estados Unidos de Norteamérica, los datos se toman de la página web del Bureau of Labor Statistic (http://www.bls.gov) de los Estados Unidos de Norteamérica. Se seleccionará el índice de precios representativo de los gastos que se actualizan, para lo cual se deberá aportar la respectiva justificación técnica. Para la proyección se utiliza la variación interanual del índice al último mes disponible de información. Índice de actualización compuesto:
 Los índices de actualización calculados anteriormente son ponderados de acuerdo con la participación relativa del componente local y externo de gasto estimado mediante la siguiente fórmula:
-[imagen]
 Donde:
 𝐼𝐴𝐶 = Índice de actualización compuesto.
 𝐹𝐴𝐿 = Factor de actualización local.
@@ -575,13 +535,11 @@ El operador definirá el porcentaje de participación relativa entre el componen
 3.1.2 Criterio para la actualización de gastos particulares
 Para los siguientes rubros se utiliza un método de actualización distinto al definido en la apartado 3.1.1. Los criterios utilizados para su cálculo son los siguientes:
 • Gastos por Compras de energía y potencia total (𝑪𝑬𝑷): En general las compras de energía y potencia se proyectan según la metodología utilizada para proyectar las ventas de energía (ver apartado 2.1.3). Se obtiene como la suma de las compras de energía y las compras por potencia, de la siguiente manera:
-[imagen]
 Donde:
 𝐶𝐸𝑃 = Gasto total por compras de energía y potencia total.
 𝐶𝐸= Gasto por compras de energía estimados para t+1 con la tarifa vigente de generación (ver fórmula 23).
 𝐶𝑃 = Gasto por compras de Potencia estimados para t+1 con la tarifa vigente de generación (ver fórmula 24).
 •Gasto por compras de energía (CE): El monto por concepto de compras de energía, se obtiene multiplicando la cantidad de energía por periodo horario o temporada por la tarifa vigente por periodo horario, de la siguiente manera:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 CE = Compras de energía estimados para t+1 con la tarifa vigente de generación.
@@ -593,7 +551,6 @@ i = Índice de mes.
 n = Cantidad de meses.
 k = Cantidad de periodos horarios o temporadas definidos en el pliego tarifario.
 Las ventas totales de energía estimadas, por período horario y temporada, se obtienen al multiplicar el peso o porcentaje correspondiente para cada periodo horario y temporada por la energía total vendida estimada. Procediendo de la siguiente manera:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 𝑉𝐻𝑇𝑡+1,𝑖,𝑝ℎ,𝑡𝑚 = Ventas Totales de Energía mensuales por período horario ph y temporada tm, estimadas para el período t+1.
@@ -607,7 +564,6 @@ s = Índice de tarifa.
 m = Cantidad de tipos de tarifa existentes de acuerdo al pliego
 La estimación de ventas totales se distribuye por periodo horario y temporada, tanto para potencia como para energía y para esto se utilizan los datos reales para los 12 meses anteriores que se encuentren disponibles al momento de realizar el estudio de fijación tarifaria.
 La distribución por periodo horario para energía (kWh) se obtiene como el peso que tiene cada periodo horario sobre el total de energía, de la siguiente manera:
-[imagen]
 Donde:
 %𝑃𝑝ℎ,𝑡𝑚 = Porcentaje de las ventas correspondiente al periodo horario ph y temporada tm.
 𝑉𝑅𝐸𝑝ℎ,𝑡𝑚 = Ventas de energía reales del operador por período horario y temporada en el periodo t.
@@ -615,7 +571,6 @@ ph = Periodos horarios (punta, valle, nocturno).
 tm = Temporadas (alta o baja).
 k = Cantidad de periodos horarios o temporadas definidos en el pliego tarifario.
 •Gasto por compras de potencia (P). Se determina de la siguiente manera:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 𝐶𝑃 = Gasto por compras de Potencia estimados para t+1 con la tarifa vigente de generación.
@@ -628,7 +583,6 @@ i = Índice de mes.
 n = Cantidad de meses.
 k = Cantidad de periodos horarios o temporadas definidos en el pliego tarifario.
 La energía (kWh) ya distribuida por periodo horario se utiliza para tener como resultado la potencia estimada por periodo horario, esto realizando el cociente de la energía por periodo y el resultado obtenido de multiplicar el factor de carga por las horas por mes, según sea el periodo horario, de la siguiente forma:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 𝑘𝑊𝑖,𝑝ℎ,𝑡𝑚 = Potencia estimada por mes i de t+1 por periodo horario y temporada.
@@ -638,25 +592,16 @@ ph = Periodos horarios (punta, valle o nocturno).
 tm = Temporadas (alta o baja).
 i = Índice de mes
 El componente para obtener potencia, se obtiene multiplicando el factor de carga por la cantidad de horas en un mes según sea el periodo horario o la temporada, de la siguiente manera:
-[imagen]
-[imagen]
 Para distribuir la potencia entre los periodos horarios se requiere tanto la energía real vendida en cada periodo horario como de la demanda máxima en cada periodo. Con la información anterior se obtiene un factor de carga, que es el resultado de dividir la energía vendida, según el periodo, por la demanda máxima, por periodo, multiplicado por la cantidad de horas al año correspondientes según el periodo horario y temporada.
-[imagen]
 Donde:
-[imagen]
 Finalmente, las compras de energía y potencia pueden provenir de:
 o Compras de energía al ICE (CEICE). Se determinan de la siguiente manera
-[imagen]
-[imagen]
-[imagen]
 [imagen] % Pérdidas (%Per): Se refiere a las pérdidas de distribución. Se utiliza como máximo el promedio del porcentaje de pérdidas de la industria para los últimos 2 años. El porcentaje de pérdida para cada año se calcula como el cociente entre la disponibilidad de energía (es la energía total requerida por el sistema de distribución más las pérdidas del sistema de distribución y es igual a la generación propia más las compras de energía) de las 8 empresas distribuidoras menos el total de energía vendida de las 8 empresas distribuidoras entre la disponibilidad de energía de las 8 empresas distribuidoras. De la siguiente manera:
-[imagen]
 Generación propia (GenPi): Se estima utilizando la serie de tiempo (histórico) de la energía producida, por planta y mes. Esta serie histórica se proyecta mediante técnicas estadísticas o econométricas (se selecciona la que brinde mejor bondad de ajuste). Se utiliza la serie desde enero del año 2000, siempre y cuando no presenten un cambio estructural evidente o la serie histórica para la que se encuentran datos disponibles. Para las plantas nuevas o con menosde 12 meses de entrada en operación se establece la proyección considerando las estimaciones presentadas por la empresa y justificadas mediante estudio técnico, las cuales serán valoradas por la Aresep.
 Estas estimaciones pueden ser ajustadas por factores técnicos debidamente justificados.
 Compras de energía a otros generadores (CEOGi): Se estima utilizando la serie de tiempo (histórico) de la generación producida, por planta y mes. Esta serie histórica se proyecta mediante técnicas estadísticas o econométricas (se selecciona la que brinde mejor bondad de ajuste). Se utiliza la serie desde enero del año 2000, siempre y cuando no presenten un cambio estructural evidente o la serie histórica para la que se encuentran datos disponibles. Para las plantas nuevas o con menos de 12 meses de entrada en operación se establece la proyección considerando las estimaciones presentadas por la empresa y justificadas mediante estudio técnico, las cuales serán valoradas por la Aresep. En el caso de las cooperativas, se encuentra establecido el porcentaje correspondiente a cada una de ellas de la producción de Coneléctricas, como proporción al capital accionario de cada una, así como PH Cubujuquí.
 Estas estimaciones pueden ser ajustadas por factores técnicos debidamente justificados.
 Las unidades estimadas se multiplican por la tarifa vigente.
-[imagen]
 Donde:
 GCEOG = Gasto en compras de energía comprada a otros generadores.
 𝐶𝐸𝑂𝐺 = Compras de energía a otros generadores en kWh.
@@ -683,7 +628,6 @@ Cualquier otro conductor de distribución de gasto que empleen los operadores de
 •Gastos por partidas amortizables (Pa): la empresa deberá de aportar la vida útil, el monto indicado y la fecha de adquisición del activo, así como, la justificación técnica de su comportamiento y su relación con el servicio que se está regulando. En el caso que no se adjunte dicha información, se utilizará una vida útil de 3 años, siempre y cuando sea un tiempo razonable para el activo que se analiza.
 • Gastos por pérdidas de retiros de activos (GPer). Este gasto se obtiene de la base tarifaria y corresponde a: los retiros al costo más los retiros revaluados, deduciendo la depreciación de los retiros al costo y la depreciación de los retiros revaluados. Esto según lo indicado en el apartado 5 de la sección VII.
 • Arrendamientos (𝑨𝑹)Se establecen según los contratos vigentes y que entrarán en funcionamiento durante el periodo de análisis. El monto se obtiene de la siguiente manera:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario.
 AR = Monto por concepto de arrendamientos.
@@ -701,7 +645,6 @@ El rédito para el desarrollo se obtiene mediante la aplicación de dos modelos:
 §Modelo de Valoración de Activos de Capital (Capital Asset Pricing Model, CAPM por sus siglas en inglés)
 4.1. Costo promedio del Capital:
 El cálculo de la tasa de rédito para el desarrollo mediante el método del costo promedio ponderado del capital se realiza mediante la aplicación de la fórmula:
-[imagen]
 Donde:
 Rk = Tasa de rédito para el desarrollo.
 rd = Costo del endeudamiento: valor de las obligaciones con costo financiero. Se obtiene del promedio ponderado de la tasa de interés de los pasivos con costo de la empresa con corte al último periodo contable del que se disponga información con el correspondiente detalle.
@@ -713,14 +656,12 @@ A = Definido como la sumatoria de la deuda más el patrimonio (VD+VCP), según e
 4.1.1 Modelo de Valoración de Activos de Capital (modelo CAPM)
 El método CAPM estima el costo del capital propio (𝑘𝑒 )se basa en considerar que los cambios en el retorno de un activo, están relacionados con el riesgo asociado a éste y puede ser separado en dos grandes componentes: el riesgo relacionado con el mercado en su conjunto (riesgo sistémico) y el derivado de las inversiones específicas (riesgo específico).
 El CAPM determina el costo del capital propio promedio para cada industria. Se empleará para el cálculo del CAPM la información publicada por el Dr. Aswath Damodaran, de la Universidad de New York, en la dirección de Internet http://www.stern.nyu.edu/~adamodar. El CAPM se calcula mediante el siguiente procedimiento:
-[imagen]
 Donde:
 ke = Rentabilidad sobre los aportes de capital propio (Costo de capital propio).
 Kl = Tasa libre de riesgo, la cual corresponde a una alternativa de inversión que no tiene riesgo para el inversionista.
 𝜷𝒂 = Beta apalancada de la inversión. Es la co-varianza de la rentabilidad de un activo determinado y la rentabilidad del mercado. Se denomina “apalancada” ya que se ha ajustado para considerar que parte de la inversión se financia con deuda. En su cálculo se utiliza el beta desapalancado 𝜷𝒂
 PR = Prima por riesgo. Se define como la diferencia entre la tasa libre de riesgo y la tasa de rendimiento del mercado.
 El beta apalancado se denomina “apalancada” cuando parte de la inversión se financia con deuda y se obtiene de la siguiente fórmula:
-[imagen]
 Donde:
 𝛽𝑎 = Beta apalancada.
 𝛽𝑑 = Beta desapalancada.
@@ -733,11 +674,9 @@ Los parámetros que se requiere calcular para estimar la rentabilidad sobre apor
 • Prima por riesgo (PR): Se empleará la variable denominada “Implied Premium (FCFE)”.
 Los valores para las variables indicadas en la fórmula 30, con excepción de la tasa libre de riesgo se obtendrán de la información publicada por el Dr. Aswath Damodaran, en la dirección de Internet http://www.stern.nyu.edu/~adamodar.
 Estas variables serán utilizadas de manera consistente, en cuanto a extensión de la serie histórica (5 años), la frecuencia de las observaciones (una observación por año, correspondiente al promedio anual publicado) y el cálculo del promedio (promedio aritmético simple de las 5 observaciones correspondientes a los 5 años más recientes para los que se disponga de información). En el caso de que, para alguna(s) de las variables citadas, no sea posible para ARESEP contar con una serie histórica reciente que complete 5 observaciones anuales, se utilizará la serie histórica menor a 5 años pero que sea igual para todas las variables.
-[imagen]
 •Tasa de impuesto sobre la renta: Es la tasa impositiva para personas jurídicas con fines de lucro, correspondiente al último tracto de impuestos sobre la renta – la tasa marginal mayor – establecida y actualizada vía decreto por el Ministerio de Hacienda.
 a) Ajuste de la tasa de rédito para el desarrollo en casos para los cuáles la solicitud tarifaria es menor a un año
 Cuando se realiza y analiza un estudio de fijación tarifaria para un período de tiempo menor a un año, la rentabilidad se ajustará de la siguiente manera:
-[imagen]
 Donde:
 𝑅𝑘𝑟 = Tasa de rédito al desarrollo a reconocer para el nuevo ajuste tarifario.
 𝑅𝑘;𝑣 = Tasa de rédito al desarrollo con tarifas vigentes.
@@ -745,14 +684,12 @@ Donde:
 nm = Número de meses en que las nuevas tarifas estarán vigentes.
 5. BASE TARIFARIA
 La base tarifaria se calcula como sigue:
-[imagen]
 Donde:
 BT = Base tarifaria.
 AFNORP = Activo fijo neto en operación revaluado promedio (ver fórmula 33).
 CT = Capital de trabajo (ver fórmula 45).
 5.1 Activo fijo neto en operación revaluado promedio
 El activo fijo neto en operación revaluado promedio, se obtiene como una media aritmética simple del a-) activo fijo neto en operación revaluado al mes de diciembre del periodo t y; b-) el activo fijo neto en operación revaluado estimado al mes de diciembre del periodo t+1.
-[imagen]
 Donde:
 t = Período de tiempo del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre anterior al estudio y utilizado como saldo inicial) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
 t+1 = Período en el que estará vigente el ajuste tarifario. Obtenido del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre utilizado como saldo final) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
@@ -762,7 +699,6 @@ La empresa tiene la obligación de valuar sus activos tal como lo establece la n
 Esta fórmula se utiliza para determinar la base tarifaria en las solicitudes de ajuste tarifario que se presentan a la Intendencia de Energía, las formas de cálculo de sus variables podrían modificarse cuando entre en vigencia la contabilidad regulatoria.
 5.1.1 Activo fijo neto en operación revaluado en el periodo t (AFNORt)
 El activo fijo neto en operación reevaluado se calcula de la siguiente forma:
-[imagen]
 Donde:
 t = Período de tiempo del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre anterior al estudio y utilizado como saldo inicial) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
 AFNORt = Activo fijo neto en operación revaluado del periodo t.
@@ -770,9 +706,8 @@ AFCt = Total de activos fijos al costo del servicio de distribución eléctrica,
 AFRt = Total de activos fijos revaluados del servicio de distribución eléctrica, para el periodo t.
 DCt = Depreciación acumulada del activo al costo, para el periodo t.
 DRt = Depreciación acumulada de los activos revaluados para el periodo t.
-5.1.2 Activo fijo neto en operación revaluado al mes de diciembre del periodo t+1 [imagen]
+5.1.2 Activo fijo neto en operación revaluado al mes de diciembre del periodo t+1
 Para el cálculo del activo fijo neto en operación revaluado al mes de diciembre del periodo t+1,se procede de la siguiente manera:
-[imagen]
 Donde:
 t+1 = Período en el que estará vigente el ajuste tarifario. Obtenido del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre utilizado como saldo final) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
 AFNORt+1 = Activo fijo neto en operación revaluado del periodo t+1.
@@ -782,7 +717,6 @@ DCt+1 = Depreciación acumulada del activo al costo, para el periodo t+1 (ver f�
 DRt+1 = Depreciación acumulada de los activos revaluados, para el periodo t+1
 (ver fórmula 42).
 El activo fijo al costo se calcula de la siguiente manera:
-[imagen]
 Donde:
 t = Período de tiempo del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre anterior al estudio y utilizado como saldo inicial) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
 t+1 = Período en el que estará vigente el ajuste tarifario. Obtenido del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre utilizado como saldo final) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
@@ -794,7 +728,6 @@ RActo = Retiro de activos al costo (ver apartado 5.3.2 referente a los criterios
 TActo = Traslado de activos al costo.
 cto = Al costo
 El activo fijo revaluado se calcula de la siguiente manera:
-[imagen]
 Donde:
 t = Período de tiempo del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre anterior al estudio y utilizado como saldo inicial) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
 t+1 = Período en el que estará vigente el ajuste tarifario. Obtenido del último Estado Financiero auditado o disponible para el servicio regulado (Elvalor disponible al 31 de diciembre utilizado como saldo final) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
@@ -806,7 +739,6 @@ TAr = Traslado de activos revaluados.
 r = Revaluado
 Revaluación de activos:
 El procedimiento seguido para la revaluación de activos es el siguiente:
-[imagen]
 Donde:
 t = Período de tiempo del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre anterior al estudio y utilizado como saldo inicial) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
 IR = Índice de revaluación. Se refiere al índice de revaluación de activos local, externo o compuesto según corresponda.
@@ -820,7 +752,6 @@ cto = Al costo.
 r = Revaluado.
 La revaluación de activos se calcula aplicando el índice de revaluación a los activos fijos según su origen nacional, extranjero o compuesto. Para cada caso se calcula un índice específico, cuyas fórmulas son las siguientes:
 Índice de revaluación componente local:
-[imagen]
 Donde:
 t = Período base de análisis considerado en el estudio de fijación tarifaria.
 t+1 = Período en el que estará vigente el ajuste tarifario.
@@ -828,10 +759,9 @@ IRL = Índice de revaluación de activos local.
 IPCRt = Índice de precios de Costa Rica representativo del activo al mes de diciembre del periodo t.
 IPCRt+1 = Índice de precios de Costa Rica representativo del activo al mes de diciembre del t+1.
 L = Local.
-[imagen] = Porcentaje de componente del gasto local.
+= Porcentaje de componente del gasto local.
 En los casos en los cuales se utiliza el Índice de Precios al Consumidor se considerará la expectativa de inflación publicada por el Banco Central de Costa Rica en su Programa Macroeconómico. Mientras que la información real del índice se obtiene del Instituto Nacional de Estadística y Censos (INEC). Para la proyección se utiliza la variación interanual del índice al último mes disponible de información.
 Índice de revaluación para activos de origen externo
-[imagen]
 Donde:
 t = Período base de análisis considerado en el estudio de fijación tarifaria.
 t+1 = Período en el que estará vigente el ajuste tarifario.
@@ -844,7 +774,6 @@ Tcvt = Tipo de cambio de Venta (CRC/USD) establecido por el Banco Central de Cos
 E = Externo.
 En los casos en los cuales se utiliza el Índice de Precios al Consumidor de Estados Unidos o el Índice de Precios al Productor de Estados Unidos, se utilizará como fuente para la información real el Bureau of Labor Statistics de USA. Para la proyección se utilizará la variación interanual del índice al último mes disponible de información o las estimaciones de la IE si se tienen.
 Índice compuesto de revaluación para activos:
-[imagen]
 Donde:
 IRcom = Índice de revaluación compuesto.
 IRL = Índice de revaluación de activos local.
@@ -853,7 +782,6 @@ L = Local.
 E = Externo.
 Com = Compuesto.
 Depreciación al costo (𝐃𝐂𝐭+𝟏):
-[imagen]
 Donde:
 t = Período de tiempo del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre anterior al estudio y utilizado como saldo inicial) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
 t+1 = Período en el que estará vigente el ajuste tarifario. Obtenido del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre utilizado como saldo final) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
@@ -863,7 +791,6 @@ RDcto = Retiro de activos depreciados al costo.
 Dep = Depreciación (ver fórmula 40).
 TDcto = Traslados depreciados al costo.
 cto = Al costo
-[imagen]
 Donde:
 t = Período de tiempo del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre anterior al estudio y utilizado como saldo inicial) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
 Dep = Depreciación.
@@ -876,13 +803,11 @@ cto = Al costo
 Tanto las adiciones de activos como los retiros se ponderan por 0,5 dado que se desconoce
 en qué momento del año se realizarán.
 La tasa de depreciación de cada activo se calcula de la siguiente forma:
-[imagen]
 Donde:
 TDA = Tasa de depreciación del activo
 VAR = Valor de rescate
 VU = Vida útil
 Depreciación acumulada revaluada (𝐃𝐑𝐭+𝟏):
-[imagen]
 Donde:
 t = Período de tiempo del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre anterior al estudio y utilizado como saldo inicial) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
 t+1 = Período en el que estará vigente el ajuste tarifario. Obtenido del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre utilizado como saldo final) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
@@ -894,7 +819,6 @@ Revdr = Revaluación de la depreciación revaluada.
 TAdr = Traslado de activos depreciados revaluados.
 r = Revaluado.
 Calculo de la depreciación revaluada
-[imagen]
 Donde:
 t = Período de tiempo del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre anterior al estudio y utilizado como saldo inicial) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
 TDA = Tasa de depreciación del activo.
@@ -904,7 +828,6 @@ TAr = Traslado de activos revaluados.
 r = Revaluado.
 Los retiros se ponderan por 0,5 dado que se desconoce en qué momento del año se realizarán éstas.
 Calculo de la revaluación de la depreciación revaluada
-[imagen]
 Donde:
 t = Período de tiempo del último Estado Financiero auditado o disponible para el servicio regulado (El valor disponible al 31 de diciembre anterior al estudio y utilizado como saldo inicial) o lo que disponga la Intendencia con la Contabilidad Regulatoria.
 𝑅𝑒𝑣𝑑𝑟 = Revaluación de la depreciación revaluada.
@@ -922,7 +845,6 @@ El financiamiento aprobado para las inversiones y adiciones programadas en el Pl
 Los activos deben responder a dos criterios: útiles para la prestación del servicio y que efectivamente se utilicen en la misma (utilizable).
 5.2. Capital de trabajo
 El capital de trabajo se estima como el período medio de cobro multiplicado por el efectivo requerido de operación por día (gastos de operación, mantenimiento y administración menos las depreciaciones, las partidas amortizables, los gastos por pérdidas de retiros de activos, las compras de energía y los gastos por peaje, todo eso dividido entre 360), de la siguiente
-[imagen]
 Donde:
 CT = Capital de trabajo.
 CxC = Promedio de las cuentas por cobrar de los últimos 3 periodos anuales auditados de los estados financieros.
@@ -944,7 +866,6 @@ También se analiza la razonabilidad de los precios de cada una de las obras inc
 Los montos de inversión avalados por Aresep serán los montos de adición de activos utilizados para calcular el activo fijo neto. Se podrán adicionar la totalidad de los activos reconocidos en las inversiones en cada año, si el promedio del porcentaje de ejecución es un 100%.
 5.3.1 Determinación de las adiciones.
 La cantidad de adiciones se calcula como la proporción del porcentaje de ejecución de las inversiones reconocidas por la Aresep:
-[imagen]
 Determinación del Porcentaje de ejecución
 1. En cada estudio tarifario, las empresas deben reportar la cantidad de obras que construyó o bien la cantidad de equipos que instaló durante el año.
 2. Se determina el porcentaje de ejecución anual de inversiones, como el cociente entre las obras construidas o equipos instalados por la empresa, y la cantidad de obras o de equipos reconocidos por la Intendencia para ese año.
@@ -972,6 +893,146 @@ El canon de regulación deberá ajustarse extraordinariamente cuando esta variab
 Lo anterior significa, que a partir del año indicado, una vez aprobado el canon de regulación por parte de la Contraloría, de oficio se deben ajustar los precios y tarifas de los servicios públicos de carácter ordinario. Por tanto, para la presente metodología, el canon se actualizará vía extraordinaria cada vez que la Contraloría General de la República apruebe el monto del mismo y éste sea publicado en el diario oficial La Gaceta, de tal manera que se incluirá en la última fijación ordinaria vigente. Este gasto es el único que se actualiza de los estados de resultado vigentes y con ello se obtiene un nuevo resultado.
 7. OTRAS CONSIDERACIONES
 Toda la información requerida para aplicar la presente metodología será solicitada a las empresas mediante resolución motivada de la Intendencia de Energía.”
+(*) 8. Peaje de Distribución
+8.1Definiciones:
+Contabilidad regulatoria: la sistematización y estandarización de la información contable para efectos de la regulación del servicio público, de tal forma que refleje los costos3 asociados a la prestación del servicio de acuerdo con los principios, criterios y normas regulatorios, especialmente mediante el uso de formatos uniformes de cuentas y estados financieros.
+3 El término “costo” se utiliza bajo el concepto económico amplio que utiliza la Ley N° 7593, de tal forma que incluya tanto los costos como los gastos requeridos para la prestación del servicio público (ver, por ejemplo, los artículos 3.b, y 6.a y 32 de dicha ley).
+Costos Fijos: aquellos costos del Sistema de Distribución que no varían en función del nivel de producción o ventas. En el caso de servicio de Distribución, se refiere a los costos que no varían en función de las ventas de este sistema, lo que excluye a los costos por concepto de compras de energía y su transmisión.
+Estado de Resultados Regulatorio: Estado de Resultados utilizado en cada fijación tarifaria que ha aprobado la Autoridad Reguladora a las diferentes empresas distribuidoras y calculado según los criterios establecidos en la resolución RJD-139-2015 del 27 de julio del 2015, publicada en el Alcance Digital N° 63 a La Gaceta N° 154 del 10 de agosto de 2015 y sus modificaciones; así como los principios y criterios establecidos tanto en la Ley N° 7593 y en cualquier otra disposición de la Autoridad Reguladora.
+Norma POASEN o AR-NT POASEN: Norma “Planeación, Operación y Acceso al Sistema Eléctrico Nacional”, aprobada por la Junta Directiva de la ARESEP mediante el acuerdo 01-19-2014 del 31 de marzo del 2014, publicada en La Gaceta 69 del 8 de abril del 2014 y sus reformas.
+Peaje de Distribución: tarifa que la ARESEP le autoriza cobrar a cada empresa distribuidora a los usuarios por el servicio de transportar (inyectar y retirar) energía a través de sus líneas de distribución, en los términos que establece la presente metodología.
+8.2Alcances de la tarifa
+El alcance de esta metodología está delimitada de la siguiente manera:
+a. Se aplica en todo el territorio nacional y se calculará para cada empresa distribuidora según los respectivos costos del servicio.
+b. Se aplica a los agentes del sector eléctrico debidamente autorizados, según lo establecido en el artículo 34 del Reglamento de Concesiones para el Servicio Público de Suministro de Energía Eléctrica, siempre que estén amparados en las leyes 7200, 7508 y 8345; o se trate de transacciones entre empresas distribuidoras que tengan generación propia. Estos tipos de transacciones son los únicos que están normados en la legislación vigente.
+c. Se aplica para cualquier agente indicado en el punto b anterior, independientemente de la potencia o energía que se inyecte de conformidad con las especificaciones de la concesión respectiva.
+Lo anterior implica que la propuesta de metodología tarifaria no aplica a casos tales como la generación distribuida para autoconsumo (Decreto Ejecutivo N° 39220-MINAE), las posibles compraventas de energía entre otros agentes del mercado eléctrico nacional (MEN) distintas a las detalladas en el párrafo anterior o transacciones similares.
+La metodología tarifaria se basa en reconocer una tarifa que cubra los costos asociados con la etapa de distribución eléctrica (costos asociados al uso de la red física), sin considerar los referentes a la etapa de comercialización.
+Esta tarifa se cobra sobre la energía inyectada por los agentes correspondientes y que utilicen la red de distribución para el trasiego de energía. Por la naturaleza de este tipo de transacciones y las características del mercado eléctrico nacional, la energía trasegada pertenece a un mismo usuario desde que es inyectada a la red hasta su retiro. Por lo tanto la metodología tarifaria define que el servicio es pagado por el agente que inyecta la energía.
+Para el caso de enlaces permanentes a más de una subestación o circuito, se pagará el respectivo peaje de distribución por la energía que se inyecte al SEN en cada uno de ellos.
+8.3 Precio o peaje de distribución
+La tarifa que se establece en esta metodología corresponde al precio por el uso de la red o circuitos de distribución, por la inyección y el retiro en tiempo real de energía en el SEN, cuando quien inyecta energía no es la misma empresa distribuidora y cuando el punto de acceso sea algún nodo de dicha red de distribución. La tarifa será pagada por el usuario de la red a la empresa distribuidora en los términos que se establecen en esta metodología y en las demás disposiciones que haya emitido la ARESEP.
+El acceso al SEN, puede darse en algunos de los siguientes puntos:
+a. Sistema de barras de alta tensión de una subestación.
+b. Sistema de barras de media tensión de una subestación.
+c. En la red de media tensión del sistema de distribución.
+d. En la red de baja tensión del sistema de distribución.
+Asimismo, el punto de inyección y retiro de la energía en tiempo real puede darse en cualquiera de los puntos señalados anteriormente, según la normativa aplicable en cada caso, de tal forma que dependiendo de las variantes de puntos de entrega y retiro, el usuario deberá realizar el pago correspondiente por: el peaje de transmisión y el peaje de distribución (sea a media tensión o baja tensión), o bien solo el peaje de transmisión o bien solo el peaje de distribución. Aspectos todos ellos que deberán de definirse en el contrato de conexión a establecer entre las partes, de conformidad con lo establecido en los artículos 30, 31, 32, 33, 34, 35 y 36 de la norma AR-NT-POASEN “Planeamiento, Operación y Acceso al Sistema Eléctrico Nacional”.
+Bajo esa premisa, esta metodología establecerá el peaje por el uso de la red de distribución, en función del retiro o inyección de energía que haga el usuario, pagando una tarifa del tipo estampilla4, en función de la energía retirada o inyectada, según las reglas definidas.
+4 El cargo, cobro o tarifa tipo estampilla (postage stamp), es uno de los métodos más sencillos para tarifar los costos de transporte de energía, corresponde a la aplicación de una tarifa simple basada en los costos medios. Para su cálculo se toma el costo total del servicio de transporte y se divide por la medida del uso que cada agente hace de la red. La tarifa en este método es totalmente independiente del lugar en que se inyecta la potencia, cerca o distante de los consumos. Ver: www.ariae.org/download/cursos/.../Anexos/SrD.../A22_Anexo_2.doc
+El Peaje de Distribución (PD) es la tarifa que cobra una empresa distribuidora por el servicio de trasiego de energía, mediante la infraestructura de su sistema de distribución, para la inyección y retiro de energía y potencia en tiempo real al Sistema Eléctrico Nacional (SEN) a través de sus líneas de distribución. Esta tarifa debe cubrir los costos asociados con la etapa de distribución en que incurre la empresa eléctrica por la prestación de tal servicio.
+En ese sentido todo usuario que inyecte y retire energía de la red de distribución en tiempo real deberá pagar en forma conjunta con los demás usuarios de dichas redes, los costos fijos asociados a los costos de inversión, operación y mantenimiento; y administrativos del sector de distribución; incluyendo el margen de rentabilidad del negocio. El costo de este servicio se considera como un costo más dentro de la estructura de costos regulatorio del prestador del servicio público.
+La red de distribución está conformada por todos los activos instalados en la red eléctrica a excepción de las luminarias que son parte de la actividad de Alumbrado Público. Dicha composición de activos se registra en el sistema al ser instalados en la red, es en este momento que se empiezan a depreciar y son registrados contablemente como activos fijos.
+Cumpliendo con el principio de servicio al costo, el precio o peaje de distribución toma en cuenta todos los costos de la red que está siendo utilizada por el usuario.
+Para efectos de establecer el precio o peaje de distribución se contemplarán los costos fijos asociados a los costos y gastos de operación de la actividad de distribución de cada uno de los operadores de los circuitos involucrados. Dichos costos son los que se obtienen del estado de resultados regulatorio, el cual es definido por la Autoridad Reguladora y calculados según las especificaciones de la presente metodología. Es importante aclarar que dentro de los costos fijos no se incorporan las compras de energía y potencia ni el peaje de transmisión; ni los costos o gastos de comercialización. Los primeros por no ser costos de la etapa de distribución y el último por no corresponder a los costos necesarios para prestar el servicio o ser despreciable su magnitud.
+El peaje de distribución será un pago que se realizará a la empresa distribuidora de energía eléctrica dueña de la red de distribución, por parte del usuario, por cada unidad de energía (kWh), según las siguientes reglas:
+1. Sobre la totalidad de la energía inyectada a la red de distribución, cuando los puntos de inyección y retiro en tiempo real son diferentes nodos del SEN;
+2. Sobre la energía neta mensual (inyectada y no consumida en el circuito ct) que fluye hacia el Sistema Eléctrico Nacional (SEN), desde la red eléctrica de distribución de la empresa eléctrica, proveniente de los diferentes agentes productores que hagan uso de la red de distribución de esa empresa distribuidora, cuando el punto de inyección y retiro en tiempo real es el mismo nodo.
+De esta manera, el monto a pagar mensualmente por concepto de peaje de distribución, cuando existe un contrato de conexión vigente entre la empresa distribuidora de energía eléctrica con el usuario u, por circuito ct, se calcula como sigue:
+Donde:
+u = Índice o identidad del usuario que paga peaje de distribución.
+ct = Índice o identidad de los circuitos
+MPu,ct = Monto de pago en colones por concepto de peaje de distribución, para el usuario u, a la empresa distribuidora, por circuito ct, en cada periodo.
+PDct = Tarifa de peaje de distribución en colones por KWh para la empresa distribuidora por circuito ct (ver fórmula 48).
+RRu,ct = Retiros o inyecciones reales de energía (kWh) del mes o periodo a facturar, del usuario u por circuito ct, según las reglas detalladas anteriormente.
+La energía a facturar se determinará de acuerdo con las reglas establecidas anteriormente, por medio de mediciones y facturaciones mensuales, que deben cumplir con las disposiciones de registro, lectura y facturación que haya aprobado la Autoridad Reguladora para el sector eléctrico.
+Cuando en un mismo circuito exista más de un agente que inyecta energía a la red de distribución, la energía sobre la cual se cobrará el peaje de distribución se determinará en forma proporcional a sus inyecciones.
+La tarifa de peaje de distribución en colones por KWh para todo usuario de la red (que transporte energía por circuito ct), se calcula para cada empresa distribuidora y circuito en forma individual de la siguiente manera:
+Donde:
+PDct,t+1 = Tarifa de Peaje de distribución en colones por KWh para cada empresa distribuidora por circuito ct, para el periodo t+1.
+GPDt+1 = Gasto total a considerar en el cálculo del peaje de distribución. Costos fijos (incluye rentabilidad) de la actividad de distribución en colones obtenidos del Estado de Resultados Regulatorio (ERR) anualizado pertenecientes al estudio tarifario del periodo en análisis, de la empresa distribuidora, para el periodo t+1 (ver fórmula 50).
+PCct,t+1 = Ponderación de los costos fijos para cada circuito por medio de la capacidad nominal del circuito ct, para el periodo t+1 (ver fórmula 49).
+ECct,t+1 = Energía estimada consumida en el circuito en kWh para el circuito ct, que sean coincidentes con los meses para los cuales se realiza el Estado de Resultados Regulatorio (ERR) anualizado (ER) o periodo t+1.
+REct,t+1 = Retiros o inyecciones estimados de energía en kWh por circuito ct para el periodo que sea coincidente con los meses para los cuales se realiza el Estado de Resultados Regulatorio (ERR) o periodo t+1. Se estimará según las reglas definidas anteriormente.
+ct = Índice o identidad de los circuitos
+t+1 = Período a partir del cual estará vigente el ajuste tarifario.
+La ponderación de costos fijos por capacidad del circuito se calcula de la siguiente manera para cada periodo:
+Donde:
+PCct,t+1 = Ponderación de los costos fijos asignado a cada circuito (ct) por medio de la capacidad nominal del respectivo circuito, para el periodo t+1.
+Capct = Capacidad instalada (potencia instalada o capacidad de transformación instalada) en KW por circuito ct, según la última información disponible. Es la sumatoria de las capacidades de cada uno de los transformadores instalados en el circuito.
+Σ Capct = Suma de la capacidad instalada (potencia instalada o capacidad de transformación instalada) de todos los circuitos de la red del distribuidor o capacidad nominal total de las redes de distribución en KW.
+ct = Índice o identidad de los circuitos.
+t+1 = Período a partir del cual estará vigente el ajuste tarifario.
+En el momento que la ARESEP posea información de costos reales por circuitos, éste cálculo se hará basado en esta información que es más precisa y se dejará de utilizar la ponderación de la fórmula 49.
+Adicionalmente, si cambia la cantidad o características esenciales de los circuitos se deberá actualizar la ponderación correspondiente.
+A su vez, los costos fijos de distribución en colones para cada una de las empresas distribuidoras de electricidad se obtienen de la siguiente manera:
+(Fórmula 50)
+Donde:
+GPDt+1 = Gasto total a considerar en el cálculo del peaje de distribución. Costos fijos (incluye una rentabilidad razonable) de la actividad de distribución en colones obtenidos del Estado de Resultados Regulatorio (ERR) anualizado pertenecientes al estudio tarifario del periodo en análisis de la respectiva empresa distribuidora, para el periodo t+1.
+COMAt+1 = Total de costos y gastos de operación de la actividad de distribución en colones obtenidos del Estado de Resultados Regulatorio (ERR) anualizado pertenecientes al estudio tarifario del periodo en análisis de la empresa distribuidora, para el periodo t+1 (ver fórmula 18).
+CEPt+1 = Compras de energía y potencia de la actividad de distribución en colones obtenidos del Estado de Resultados Regulatorio (ERR) anualizado pertenecientes al estudio tarifario del periodo en análisis de la respectiva empresa distribuidora, para el periodo t+1 (ver fórmula 18).
+Peajet+1 = Costo del peaje de trasmisión por las compras de energía de la actividad de distribución en colones obtenidos del Estado de Resultados Regulatorio (ERR) anualizado pertenecientes al estudio tarifario del periodo en análisis de la respectiva empresa, para el periodo t+1 (ver fórmula 18).
+COt+1 = Gastos por comercialización en colones obtenidos del Estado de Resultados Regulatorio (ERR) anualizado pertenecientes al estudio tarifario del periodo en análisis de la respectiva empresa, para el periodo t+1 (ver fórmula 18).
+BTt+1 = Base Tarifaria de la respectiva empresa distribuidora correspondiente al estudio tarifario del periodo en análisis de la respectiva empresa distribuidora, para el periodo t+1(ver fórmula 32).
+Rkr,t+1 = Tasa de rédito para el desarrollo de la respectiva empresa distribuidora correspondiente al estudio tarifario del periodo en análisis, para el periodo t+1 (ver fórmula 31).
+fct+1 = Factor de comercialización correspondiente al estudio tarifario del periodo en análisis de la respectiva empresa distribuidora, para el periodo t+1 (ver fórmula 51).
+t+1 = Período a partir del cual estará vigente el ajuste tarifario.
+Si el desarrollo de la contabilidad regulatoria permite una desagregación del COMA tal que se identifiquen otros gastos variables en función de la energía trasegada por las redes de distribución y que sean verificables, estos se excluirán de la estructura de costos utilizada para calcular el peaje de distribución.
+El factor de comercialización (fc) se calculará según la siguiente fórmula:
+Donde:
+fct+1 = Factor de comercialización correspondiente al estudio tarifario del periodo en análisis de la respectiva empresa distribuidora, para el periodo t+1.
+COt+1 = Gastos por comercialización en colones obtenidos del Estado de Resultados Regulatorio (ERR) anualizado pertenecientes al estudio tarifario del periodo en análisis de la respectiva empresa, para el periodo t+1 (ver fórmula 18).
+COMAt+1 = Total de costos y gastos de operación de la actividad de distribución en colones obtenidos del Estado de Resultados Regulatorio (ERR) anualizado pertenecientes al estudio tarifario del periodo en análisis de la empresa distribuidora, para el periodo t+1 (ver fórmula 18).
+CEPt+1 = Compras de energía y potencia de la actividad de distribución en colones obtenidos del Estado de Resultados Regulatorio (ERR) anualizado perteneciente al estudio tarifario del periodo en análisis de la respectiva empresa distribuidora, para el periodo t+1 (ver fórmula 18).
+Peajet+1 = Costo del peaje de trasmisión por las compras de energía de la actividad de distribución en colones obtenidos del Estado de Resultados Regulatorio (ERR) anualizado perteneciente al estudio tarifario del periodo en análisis de la respectiva empresa, para el periodo t+1 (ver fórmula 18).
+t+1 = Período a partir del cual estará vigente el ajuste tarifario.
+El cálculo anterior se realiza para que el rédito que se incluya en los costos a considerar para el peaje de distribución no contenga el componente de comercialización (asignado en forma proporcional).
+Cuando la empresa distribuidora cuente con información separada dentro de su base tarifaria de los activos dedicados a la actividad de Comercialización, dejará de utilizarse el factor de ajuste (1-fc) y en su lugar se contemplará en la base tarifaria solo los activos dedicados a la actividad de Distribución. Igual criterio se aplicará a los gastos de comercialización, una vez se cuente con la información proveniente de la contabilidad regulatoria.
+Los montos de ingresos generados por los peajes de distribución (MP) para todos los circuitos (ct) y usuarios (u) serán considerados como “Otros Ingresos” dentro del cálculo de las tarifas del Sistema de Distribución para cada periodo, según la siguiente fórmula:
+Donde
+MPT = Ingresos totales generados por los peajes de distribución en cada periodo.
+MPct,u = Ingresos generados por los peajes de distribución (MP) para todos los circuitos
+(ct) y usuarios (u).
+ct = Índice o identidad de los circuitos
+n = Cantidad de circuitos.
+m = Cantidad de usuarios de este servicio.
+Estos ingresos tendrán el tratamiento tarifario previstos en las metodologías tarifarias vigentes, incluyendo sus ajustes.
+8.4 Aplicación por primera vez
+Una vez aprobada y publicada en La Gaceta la presente adición a la metodología, la Intendencia de Energía (IE) realizará a petición de parte y siguiendo el procedimiento de fijación tarifaria ordinario previsto en la Ley N° 7593, el cálculo de la tarifa de peaje para aquellos circuitos en que se requiera, en un plazo no mayor a los 30 días naturales y enviará a audiencia pública la propuesta para la determinación del precio o peaje de distribución de energía eléctrica. Para tales efectos se utilizará la información de Estados de Resultados Regulatorios de las empresas distribuidoras de los estudios tarifarios que se encuentren vigentes.
+Para las empresas en las cuales no se tenga por separada la actividad de generación de la actividad de distribución y para las cuales tengan incluidos los gastos financieros dentro de los costos y gastos, definidos en el Estado de Resultado Regulatorio, la fórmula 50 se sustituirá por
+Donde:
+GPDt+1 = Gasto total a considerar en el cálculo del peaje de distribución. Costos fijos de la actividad de distribución en colones obtenidos del Estado de Resultados Regulatorio (ERR) anualizado pertenecientes al estudio tarifario del periodo en análisis de la respectiva empresa distribuidora, para el periodo t+1.
+COMAt+1 = Total de costos y gastos de operación de la actividad de distribución en colones obtenidos del estado de resultados regulatorio anualizado (ER) pertenecientes al estudio tarifario del periodo en análisis de la respectiva empresa distribuidora, para el periodo t+1 (ver fórmula 18).
+CEPt+1 = Compras de energía y potencia de la actividad de distribución en colones obtenidos del estado de resultados regulatorio anualizado (ER) pertenecientes al estudio tarifario del periodo en análisis de la respectiva empresa distribuidora, para el periodo t+1 (ver fórmula 18).
+Peajet+1 = Costo del peaje de trasmisión por las compras de energía de la actividad de distribución en colones obtenidos del estado de resultados regulatorio anualizado (ER) pertenecientes al estudio tarifario del periodo en análisis de la respectiva empresa distribuidora, para el periodo t+1 (ver fórmula 18).
+COt+1 = Gastos por comercialización en colones obtenidos del Estado de Resultados Regulatorio (ERR) pertenecientes al estudio tarifario del periodo en análisis de la respectiva empresa distribuidora, para el periodo t+1 (ver fórmula 18).
+CGEt+1 = Costos totales de generación en colones obtenidos del Estado de Resultados Regulatorio (ERR) anualizado pertenecientes al estudio tarifario del periodo en análisis de la respectiva empresa distribuidora, para el periodo t+1.
+GFt+1 = Gastos financieros en colones obtenidos del Estado de Resultados Regulatorio (ERR) anualizado pertenecientes al estudio tarifario del periodo en análisis de la respectiva empresa distribuidora, para el periodo t+1.
+BTt+1 = Base Tarifaria de la respectiva empresa distribuidora correspondiente al estudio tarifario del periodo en análisis de la respectiva empresa distribuidora, para el periodo t+1 (ver fórmula 32).
+Rkr,t+1 = Tasa de rédito para el desarrollo de la respectiva empresa distribuidora correspondiente al estudio tarifario del periodo en análisis, para el periodo t+1 (ver fórmula 31).
+fcgt+1 = Factor de comercialización y generación correspondiente al estudio tarifario del periodo en análisis de la respectiva empresa distribuidora, para el periodo t+1 (ver fórmula 54).
+t+1 = Período en el que estará vigente el ajuste tarifario.
+En este caso, el factor de comercialización y generación se obtiene de la siguiente manera:
+Donde:
+fcgt+1 = Factor de comercialización y generación correspondiente al estudio tarifario del periodo en análisis de la respectiva empresa distribuidora, para el periodo t+1.
+COt+1 = Gastos por comercialización en colones obtenidos del Estado de Resultados Regulatorio (ERR) anualizado pertenecientes al estudio tarifario del periodo en análisis de la respectiva empresa, para el periodo t+1 (ver fórmula 18).
+CGEt+1 = Costos totales de generación en colones obtenidos del Estado de Resultados Regulatorio (ERR) anualizado pertenecientes al estudio tarifario del periodo en análisis de la respectiva empresa distribuidora, para el periodo t+1.
+COMAt+1 = Total de costos y gastos de operación de la actividad de distribución en colones obtenidos del Estado de Resultados Regulatorio (ERR) anualizado pertenecientes al estudio tarifario del periodo en análisis de la empresa distribuidora, para el periodo t+1 (ver fórmula 18).
+CEPt+1 = Compras de energía y potencia de la actividad de distribución en colones obtenidos del Estado de Resultados Regulatorio (ERR) anualizado pertenecientes al estudio tarifario del periodo en análisis de la respectiva empresa distribuidora (ver fórmula 18).
+Peajet+1 = Costo del peaje de trasmisión por las compras de energía de la actividad de distribución en colones obtenidos del Estado de Resultados Regulatorio (ERR) anualizado pertenecientes al estudio tarifario del periodo en análisis de la respectiva empresa (ver fórmula 18).
+t+1 = Período a partir del cual estará vigente el ajuste tarifario.
+La aplicación por primera vez se realiza de esta manera debido a que algunas de las empresas actualmente no tienen una fijación tarifaria separada para las actividades de generación y distribución, lo cual no se daría en posteriores fijaciones tarifarias, debido a que todas las peticiones tarifarias deben presentarse por actividad según lo establecido en la resolución RIE-013-2014, publicada en el Alcance Digital N° 8 a la Gaceta N° 58, del día 24 de marzo del 2014.”
+8.5 Aspectos generales
+Los datos sobre costos y base tarifaria que se utilicen en el cálculo del peaje de distribución de cada empresa eléctrica deben ser tomados de los estudios tarifarios que se tramitan para cada empresa eléctrica distribuidora (tarifa del Sistema de Distribución), de tal forma que las tarifas correspondientes a los peajes de distribución sean consistentes con las tarifas del sistema de distribución en lo referente a los montos de los respectivos ingresos, costos, gastos y base tarifaria, los periodos de referencia de esta información, el periodo en que estará vigente la tarifa (t+1 y periodos siguientes) y las cifras de mercado.
+Si eventualmente la información de los estados de resultados o de la base tarifaria utilizada en un estudio tarifario no se refiere a periodos anuales completos, en los cálculos para PD se ajustarán las cifras antes de realizar los respectivos cálculos.
+Las cifras relacionadas con los retiros e inyecciones de energía por parte los usuarios interesados en trasportar su energía por las redes de distribución serán aportadas por las empresas distribuidoras según los requerimientos de la ARESEP y serán validadas por ésta, de acuerdo con los criterios técnicos propios del mercado eléctrico.
+Cada fijación del peaje de distribución estará vigente hasta tanto no sea establecido un nuevo peaje o hasta la fecha en que se determine en la correspondiente fijación tarifaria.
+Los ingresos totales que genere esta tarifa (incluyendo todos los circuitos y usuarios), deben ser considerados de acuerdo con la sección VII.2 como “Otros Ingresos” dentro del cálculo de la tarifa de distribución para todos los periodos de análisis.
+Al tramitar un estudio tarifario para el sistema de distribución, ya sea de oficio o a petición de parte, se establecerá dentro del mismo trámite las respectivas tarifas por concepto de peaje de distribución, para aquellos circuitos que tengan conectados en sus redes usuarios interesados en este servicio o para aquellos circuitos que se prevea tendrán conectados usuarios interesados en el corto o mediano plazo.
+Si después de aprobada una fijación tarifaria para el sistema de distribución o de peajes de distribución de una empresa distribuidora, surgen usuarios interesados en conectarse en un circuito en específico que aún no tenga autorizado un peaje, la empresa distribuidora solicitará o la Autoridad Reguladora tramitará de oficio una fijación tarifaria ordinaria Ad Hoc para establecer los correspondientes peajes de distribución en el respectivo circuito. Para ello se basará en las cifras de costos, base tarifaria y mercado que se utilizó en la fijación tarifaria vigente.
+8.6 Requerimientos de información
+Como requisito para el estudio tarifario ordinario, las empresas de distribución de energía eléctrica deberán remitir mensualmente a la Autoridad Reguladora de los Servicios Públicos la siguiente información histórica (cuando así proceda), en formato electrónico totalmente editable con las fórmulas y enlaces correspondientes para cada usuario que pague peaje de distribución y por circuito:
+• Retiro e inyecciones de energía y potencia mensual real.
+• Facturación mensual en colones por uso de las redes de distribución.
+Como requisito para el estudio tarifario ordinario, las empresas de distribución de energía eléctrica deberán remitir en cada fijación tarifaria a la Autoridad Reguladora de los Servicios Públicos las siguientes estimaciones (cuando así proceda), en formato impreso y en formato electrónico totalmente editable con las fórmulas y enlaces correspondientes para cada usuario que pague peaje de distribución y por circuito:
+• Estimación mensual del retiro e inyecciones de energía y potencia para el periodo para el cual está solicitando la correspondiente fijación.
+• Estimación mensual de los ingresos por concepto de Peaje de Distribución, los cuales deben ser tomados en cuenta en el cálculo de la partida de “Otros Ingresos” de las tarifas de distribución.
+Las estimaciones se deben de realizar de acuerdo con los criterios propios del mercado eléctrico, recabando la información correspondiente a cada usuario interesado en utilizar la red de distribución para trasegar su energía (inyección y retiro de energía en tiempo real por parte de un tercero diferente al propietario de la red de distribución).
+Una vez que la respectiva tarifa ha sido aprobada y hay usuarios que la utilicen, la empresa distribuidora deberá remitir mensualmente la correspondiente información de mercado sobre los retiros e inyecciones de energía realizados por los usuarios que pagan peaje de distribución, según el detalle y requerimientos que al efecto establezca la Intendencia de Energía.
+Las empresas eléctricas distribuidoras deberán remitir semestralmente durante el mes de febrero y agosto de cada año un listado con la capacidad de transformación instalada en cada uno de sus circuitos.
+A partir de la aprobación de esta metodología tarifaria, las empresas de distribución de energía eléctrica deberán separar el componente de gasto relacionado con Comercialización de los demás costos en el Estado de Resultados incluidos en los futuros estudios tarifarios y en sus Estados Financieros periódicos. Este gasto deberá ser registrado según lo establezca la Contabilidad Regulatoria que apruebe la ARESEP.
+La Intendencia de Energía establecerá los formatos y condiciones requeridas para el flujo de información que se requiera para la aplicación de la presente metodología.
+(*)(Así adicionado el punto 8) “Peaje de Distribución” anterior mediante resolución N° RJD-119-2018 del 9 de julio del 2018)
 II. Tener como respuesta a los opositores que participaron en la audiencia pública realizada el 13 de mayo de 2015, lo señalado en el oficio 103-CDR-2015, emitido por la Dirección General del Centro de Desarrollo de la Regulación y agradecer la valiosa participación de todos en este proceso.
 III. Instruir a la Dirección General del Centro de Desarrollo de la Regulación notificar el oficio 103-CDR-2015 donde constan las respuestas a las oposiciones presentadas en la audiencia pública.
 …
