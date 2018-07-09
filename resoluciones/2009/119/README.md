@@ -15,3 +15,4 @@ Aprueba Normas para el ejercicio de la Auditoría Interna en el Sector Público
 | --- | --- | --- |
 | 1 | 2010-02-10 | la propia norma |
 | 2 | 2015-02-06 | Resolución 10 (2015-02-06) |
+| 3 | 2018-07-09 | Resolución 83 (2018-07-09) |
