@@ -1,2 +1,2 @@
-Artículo 58.—Acuerdo de pago. El Alcalde Municipal queda autorizado para proceder al pago de contrataciones directas y de escasa cuantía hasta por el monto máximo de tres millones de colones.
-(Así reformado mediante sesión ordinaria N° 42-2017 del 17 de octubre del 2017)
+Artículo 58°:Acuerdo de pago: todo tramite de pago (factura) que gestionen los proveedores de la Municipalidad de Abangares que su monto sea de ¢0 (cero colones) a ¢3.000.000,00 (tres millones de colones), será aprobado su cancelación por la Alcaldía Municipal, las facturas que superen ese monto deberán ser aprobadas su cancelación por el Concejo Municipal.
+(Así reformado mediante sesión ordinaria N° 28-2018 del 10 de julio del 2018)
