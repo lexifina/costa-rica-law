@@ -1,4 +1,3 @@
-Artículo 63.-Presentación. La oferta deberá presentarse por el medio autorizado en el cartel, debidamente firmada por quien tenga poder para ello, siguiendo lo establecido en el presente Reglamento en cuanto a la utilización de medios electrónicos cuando corresponda.
-A través del Sistema Integrado de Compras Públicas, la oferta deberá presentarse por el medio y la forma establecidos en el Reglamento de uso de ese Sistema.
-Cuando excepcionalmente, deba tramitarse un procedimiento por medio físico, las ofertas se presentarán en sobre cerrado, el cual deberá indicar la ubicación de la oficina que la recibe, el número y nombre del concurso que se trate. La no presentación de la oferta en sobre cerrado se entenderá bajo la exclusiva responsabilidad del proponente, no acarreará ningún vicio y tampoco relevará a los funcionarios de su deber de confidencialidad y custodia antes de la apertura.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40270 del 14 de marzo de 2017)
+Artículo 63.-Presentación. La oferta deberá presentarse en el Sistema Integrado de Compras Públicas (SICOP), debidamente firmada por quien tenga poder suficiente para ello en los términos del Reglamento de Uso del Sistema.
+Deberá garantizarse siempre la confidencialidad de las ofertas hasta que se practique la apertura.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41243 del 10 de julio del 2018)

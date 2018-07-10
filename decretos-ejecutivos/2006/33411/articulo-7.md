@@ -10,5 +10,5 @@ e) Fuente de financiamiento.
 f) Cualquier otra información complementaria que contribuya a la identificación del bien o servicio.
 El Programa de Adquisiciones podrá ser modificado cuando surja una necesidad administrativa no prevista.
 Quedan excluidas de la obligación de publicación, las contrataciones efectuadas con prescindencia de los procedimientos ordinarios y las efectuadas con fundamento en los supuestos de urgencia.
-Todas las instituciones públicas que utilicen el Sistema Integrado de Compras Públicas, deberán divulgar el respectivo programa de adquisiciones y sus modificaciones en dicho Sistema, sin perjuicio de que facultativamente realicen publicación al efecto en el diario oficial La Gaceta.
-(Así reformado el párrafo anterior por el artículo 1 del decreto ejecutivo N° 40270 del 14 de marzo de 2017)
+Todas las instituciones públicas deberán divulgar el respectivo programa de adquisiciones y sus eventuales modificaciones a través del Sistema Integrado de Compras Públicas (SICOP), sin perjuicio de que facultativamente lo publiquen en el diario oficial La Gaceta.
+(Así reformado el párrafo anterior por el artículo 1 del decreto ejecutivo N° 41243 del 10 de julio del 2018)

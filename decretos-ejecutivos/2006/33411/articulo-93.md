@@ -1,4 +1,2 @@
-Artículo 93.-Publicación. la invitación a participar, las modificaciones al cartel y el acto de adjudicación, se publicarán en el Sistema Integrado de Compras Públicas, para todas aquellas contrataciones que se realicen a través de ese Sistema.
-Cuando excepcionalmente, se tramiten procedimientos de contratación por un medio distinto al mencionado en el párrafo anterior, o se trate de concursos con precalificación, la invitación a participar, las modificaciones al cartel y el acto de adjudicación deberán publicarse en el diario oficial la Gaceta y en los medios electrónicos habilitados por la Administración.
-Los demás actos podrán ser publicados por los medios electrónicos, regulados en el presente Reglamento.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40270 del 14 de marzo de 2017)
+Artículo 93.-Publicación. La invitación a participar, las modificaciones al cartel y el acto de adjudicación, así como los demás actos propios del procedimiento, se publicarán en el Sistema Integrado de Compras Públicas (SICOP), sin perjuicio de publicación facultativa en el diario oficial La Gaceta y/o en los medios de circulación nacional que la Administración considere oportuna.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41243 del 10 de julio del 2018)

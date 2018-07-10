@@ -1,2 +1,2 @@
-Artículo 88.—Plazo para comunicar el acto final. El acto final será comunicado por los mismos medios que se cursó la invitación. Cuando corresponda realizar una publicación el aviso se remitirá al Diario Oficial La Gaceta, dentro de los tres días hábiles siguientes a su dictado. En ese caso, basta indicar en el aviso la Institución, el número de concurso, descripción sucinta del objeto, el adjudicatario y el monto.
-Cuando no proceda la publicación, la notificación a todos los oferentes deberá concluirse dentro de ese mismo plazo.
+Artículo 88.-Plazo para comunicar el acto final. El acto final será comunicado por medio del Sistema Integrado de Compras Públicas (SICOP) en los tres días hábiles siguientes a su dictado o notificado a los participantes por el medio electrónico señalado en ese mismo plazo cuando no sea posible realizarlo mediante el sistema.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41243 del 10 de julio del 2018)
