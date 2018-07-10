@@ -1,0 +1,7 @@
+CIRCULAR Nº 78-2018
+ASUNTO: Reiteración de la circular N° 104-15 sobre “Inhabili-tación para realizar actividades remuneradas o no, intelectuales, físicas o recreativas durante un período de incapacidad”.
+A TODAS LAS SERVIDORAS Y SERVIDORES JUDICIALES
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 57-18, celebrada el 26 de junio de 2018, artículo VIII, acordó reiterarles la circular N° 104-2015, sobre “Inhabilitación para realizar actividades remuneradas o no, intelectuales, físicas o recreativas durante un período de incapacidad”, que literalmente indica:
+“El Consejo Superior del Poder Judicial en sesión N° 46-2015 celebrada el 14 de mayo de 2015, artículo XXXIV, dispuso recordar a las servidoras y servidores judiciales su deber de cumplir con lo estipulado en el artículo 2 del Reglamento para el otorgamiento de incapacidades y licencias a los beneficiarios del Seguro de Salud, en el entendido de que lo ahí consignado como una inhabilitación absoluta para realizar actividades remuneradas o no, intelectuales, físicas o recreativas durante un período de incapacidad es la regla y que la excepción ocurre cuando el médico tratante de la Caja Costarricense del Seguro Social (CCSS) consigne expresamente en el expediente clínico en qué casos, qué actividades y durante cuánto tiempo puede realizar el paciente incapacitado, entendiéndose que si el médico no consigna nada al respecto, el paciente no puede realizar ninguna actividad de las ahí estipuladas.”
+San José, 10 de julio del 2018.
