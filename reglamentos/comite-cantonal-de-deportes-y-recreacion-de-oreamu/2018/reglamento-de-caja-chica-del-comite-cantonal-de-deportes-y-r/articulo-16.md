@@ -1,0 +1,1 @@
+Artículo 16.—Si producto del arqueo resultare una diferencia, esta deberá justificarla el encargado del fondo y deberá depositar el sobrante en las cuentas del comité cantonal de deportes y recreación de Oreamuno y el faltante de forma inmediata a la caja chica.

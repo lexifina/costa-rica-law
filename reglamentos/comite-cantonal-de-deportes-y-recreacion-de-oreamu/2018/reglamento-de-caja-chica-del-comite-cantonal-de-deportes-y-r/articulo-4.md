@@ -1,0 +1,1 @@
+Artículo 4º—Los montos para compras por caja chica se solicitarán ante el encargado de la caja chica con base en el documento denominado “vale de caja chica” en el cual se detallará la fecha, el área solicitante, detalle del bien o servicio por adquirir, justificación, nombre del funcionario solicitante, firma del jefe del tesorero.
