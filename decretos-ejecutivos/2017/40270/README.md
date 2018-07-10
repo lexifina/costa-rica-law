@@ -14,3 +14,4 @@ Reforma Reglamento a la Ley de Contratación Administrativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-03-27 | la propia norma |
+| 2 | 2018-07-10 | Decreto Ejecutivo 41243 (2018-07-10) |
