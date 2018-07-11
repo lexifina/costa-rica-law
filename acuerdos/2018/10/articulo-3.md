@@ -1,0 +1,1 @@
+Artículo 3º—Las instituciones públicas u órganos adscritos que disponen de su propio logotipo institucional podrán seguir haciendo uso de este, mismo que podrá acompañarse del logotipo unificado dispuesto en el artículo 1.
