@@ -1,0 +1,2 @@
+Artículo 3º—Modifíquese el artículo 2 del Decreto Ejecutivo número 39372-MP-MC del 7 de diciembre de 2015, que Declara de Interés Público la Estrategia Nacional para un Gobierno Abierto 2015- 2018, para que en adelante se lea:
+“Artículo 2º—El documento que contiene la Estrategia Nacional para un Gobierno Abierto 2015-2018, se encuentra disponible en la dirección electrónica gobiernoabierto.go.cr. Una versión física se custodiará en el Ministerio de Comunicación.”
