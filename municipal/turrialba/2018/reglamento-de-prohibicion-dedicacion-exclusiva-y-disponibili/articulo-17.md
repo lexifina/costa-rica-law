@@ -1,0 +1,5 @@
+CAPÍTULO VIII
+Disponibilidad
+Artículo 17.—Corresponde a la Alcaldía Municipal en coordinación con el Departamento de Recursos Humanos y el Coordinador del Departamento prestador del servicio, determinar los puestos que, en atención a los requerimientos del buen servicio municipal, demandan estar afectos al régimen de disponibilidad. Para dicho fin la alcaldía solicitará al Departamento de Recursos Humanos un estudio técnico que demuestre y determine la necesidad.
+Institucional, la viabilidad presupuestaria de incluir en Régimen de Disponibilidad de determinados puestos o servidores. Dicha determinación debe plasmarse en un Acto escrito debidamente motivado y fundamentado mediante el cual de forma clara se conozcan las razones de necesidad de la alcaldía para asignar la disponibilidad.
+Posteriormente la alcaldía, el Departamento de Recursos Humanos y las jefaturas involucradas, determinaran los roles correspondientes para cada tumo de disponibilidad, armonizando aspectos como la calidad y continuidad del servicio sin afectar los derechos y calidad de vida de los servidores municipales, en concordancia con el manual de puestos.

@@ -1,0 +1,1 @@
+Artículo 16.—Compensación: Todo servidor amparado al régimen de Dedicación Exclusiva recibirá una compensación económica a su favor, por la limitación al ejercicio profesional que será de 35% sobre el salario base para el grado de bachiller universitario y un 55% para grado de licenciatura universitaria, lo anterior sujeto a que exista contenido presupuestado.

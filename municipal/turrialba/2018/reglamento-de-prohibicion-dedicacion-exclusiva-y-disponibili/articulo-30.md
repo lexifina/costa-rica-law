@@ -1,0 +1,3 @@
+CAPÍTULO XIV
+Transitorios
+Artículo 30.—El Departamento de Recursos Humanos en un plazo de 3 meses, a partir de la vigencia de este reglamento, realizará análisis de regímenes asignados y vigentes dando un informe escrito a la alcaldía, mediante acuerdo, la Alcaldía informará al Concejo Municipal, donde se determine si todas cumplen con la normativa y regulaciones del presente Reglamento y sobre la necesidad real, cierta y actual de mantenerlas o si por el contrario por vencimientos de plazos, inconsistencias o vicios graves, será necesario la aplicación de los procedimientos administrativos y legales si corresponde.

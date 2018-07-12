@@ -1,0 +1,1 @@
+Artículo 21.—Cuando se trate de sustitución del titular del turno o rol por las causales supra indicadas, el funcionario que sustituya asume el rol y recibe la compensación correspondiente, siempre y cuando cumpla con los requisitos y condiciones para el puesto tal como se indica en el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 28.—Para todo otorgamiento, modificación, eliminación o cualquier otro movimiento o acción, que se realice en cualquiera de los regímenes normados, en el presente reglamento deberán confeccionarse la respectiva acción de personal correspondiente y archivarse en el expediente del servidor.
