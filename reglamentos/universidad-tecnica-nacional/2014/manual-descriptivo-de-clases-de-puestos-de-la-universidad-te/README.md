@@ -14,3 +14,4 @@ Manual descriptivo de clases de puestos de la Universidad Técnica Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-08 | la propia norma |
+| 2 | 2018-07-12 | Reglamento 15 (2018-07-12) |

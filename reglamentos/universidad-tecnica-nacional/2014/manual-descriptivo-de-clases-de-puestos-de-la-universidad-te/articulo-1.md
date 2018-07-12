@@ -1407,10 +1407,10 @@ La categoría de Asociado corresponde al segundo nivel de ascenso dentro de la c
 PROFESOR CATEDRÁTICO
 El profesor Catedrático es la máxima categoría académica dentro de la UTN.
 VII- OTRAS CATEGORÍAS FUERA DEL RÉGIMEN DE CARRERA ACADÉMICA
- PROFESOR INVITADO
-La categoría de Invitado se otorga a expertos que puedan aportar a la universidad nuevos conocimientos, procesos de actualización, asesoramiento técnico, experiencias de aprendizaje, producción académica, entre otras. El propósito de la contratación es que el profesional se encargue de dictar cursos, actualizar a los docentes de la institución o colaborar en algún proyecto de investigación o de extensión.
-Se justifica su designación por los méritos profesionales, la recomendación de autoridades académicas de la universidad que representa y su amplia experiencia académica.
-Esta categoría se homologará salarialmente con el salario establecido para la categoría de Profesor Especialista 2.
+PROFESOR INVITADO16
+16 Reformado por el Consejo Universitario, según acuerdo N°11-15-2018, de la Sesión Ordinaria N° 15-2018, celebrada el 12 de julio de 2018.
+La categoría de Invitado se otorga a expertos que puedan aportar a la universidad nuevos conocimientos, procesos de actualización, asesoramiento técnico, experiencias de aprendizaje, producción académica, entre otras. El propósito de la contratación es que el profesional se encargue de dictar cursos, actualizar a los docentes de la institución o colaborar en algún proyecto de investigación o de extensión. Se justifica su designación por los méritos profesionales, la recomendación de autoridades académicas de la universidad que representa y su amplia experiencia académica. Su contratación deberá tener la aprobación del Rector o Vicerrector correspondiente y no podrá exceder el plazo de tres años, pero podrá ser prorrogado por razones excepcionales, a juicio de la Rectoría. Esta categoría se homologará salarialmente con el salario establecido para la categoría de Profesor 4.
+(Así reformado el párrafo anterior mediante sesión 15 del 12 de julio del 2018)
  PROFESOR AD-HONOREM
 La categoría de profesor ad-honorem se asigna a académicos nacionales o que vienen del exterior, que la universidad nombra para colaborar, sin remuneración alguna, en labores de docencia, investigación extensión, acción social o de asesoramiento técnico.
 El académico deberá tener como mínimo una Maestría, en el área de especialidad requerida por la universidad.
