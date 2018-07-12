@@ -1,0 +1,22 @@
+Nº 41168-MP-MIDEPOR
+EL PRESIDENTE DE LA REPÚBLICA,
+EL MINISTRO DE LA PRESIDENCIA
+Y EL MINISTRO DEL DEPORTE
+En el ejercicio de las facultades que les confieren los artículos 140 incisos 3), 18) y 20), y 146 de la Constitución Política; artículos 25 inciso 1), 27 inciso 1, 28 inciso 2, acápite b) de la Ley General de la Administración Pública, Ley número 6227 del 2 de mayo de 1978, y la Ley de Creación del Instituto del Deporte y Recreación (ICODER), Ley número 7800 del 30 de abril de 1998.
+Considerando:
+I.—Que la Federación Costarricense de Ciclismo, cédula de persona jurídica número 3-002-051304, es una federación deportiva que ostenta la representación nacional del deporte del Ciclismo con base en lo estipulado en la Ley de Creación del Instituto Costarricense del Deporte y la Recreación, Ley número 7800, y del régimen jurídico de la Educación Física, el Deporte y la Recreación. Asimismo, cuenta con la representación internacional del ciclismo concedida por la Unión Ciclista Internacional (UCI).
+II.—Que la Federación Costarricense de Ciclismo es un ente privado sin fines de lucro, que según la Ley 7800, le es permitido realizar actividades con el objeto de proporcionarse medios económicos para realizar el fin que le es propio. A la vez, goza con la declaratoria de Utilidad Pública conferida por el Consejo Nacional del Deporte y la Recreación en sesión ordinaria número 446-2005, artículo V, inciso 10), acuerdo número 35, del 18 de agosto del 2005, publicada en el Diario Oficial La Gaceta.
+III.—Que la Federación Costarricense de Ciclismo es dueña y organizadora de los eventos nombrados anteriormente y que la Vuelta Internacional Femenina a Costa Rica, es el único evento deportivo exclusivo para mujeres en Costa Rica, el cual se ha desarrollado ininterrumpidamente desde el año 2002 y se encuentra registrado como un evento internacional en la Unión Ciclista Internacional.
+IV.—Que cabe mencionar que La Vuelta Internacional a Costa Rica Masculina, se ha desarrollado ininterrumpidamente durante 54 ediciones y se encuentra registrado coto un evento internacional en la Unión Ciclista Internacional. Ambos eventos han contado con la declaratoria de interés público y nacional en las ediciones anteriores.
+V.—Que por la complejidad de estos eventos deportivos es necesario establecer la mejor relación y coordinación entre la Federación Costarricense de Ciclismo y las dependencias del Gobierno Central, Instituciones Descentralizadas, Municipalidades, Comités Cantonales de Deporte y Recreación, entre otros, que proporcione un evento exitoso para el disfrute de la ciudadanía costarricense.
+VI.—Que por la relevancia de todos estos eventos, se cuenta con el apoyo de todas las Municipalidades que son visitadas por los organizadores, las cuales colaboran con trabajo, esfuerzo y hasta económicamente para la organización del mismo.
+VII.—Que para la Federación Costarricense de Ciclismo el deporte representa un fundamento y una condición importante para el desarrollo físico, intelectual y socio-afectivo del ser humano, y una de las prioridades de la actual Administración es impulsar iniciativas y criar espacios que promuevan el bienestar y la salud en la población costarricense, a través del deporte, la recreación, la actividad física y sobre todo incentivar la unión familiar. Por este motivo fueron también creadas La Vuelta de la Juventud y la Vuelta Juvenil, que se han venido organizando por 37 años consecutivos para atletas entre los 17 y 22 años, tanto en la rama masculina como la femenina.
+VIII.—Que el Consejo Nacional del Deporte y la Recreación, en sesión ordinaria número 1044-2018, celebrada el día 12 de abril del 2018, mediante los acuerdos número 20, 21, 22 y 23, recomendó a la entonces Ministra del Deporte, que por medio del Ministerio de la Presidencia, se realizará la Declaratoria de Interés Público y Nacional de las Vueltas Ciclísticas descritas. Por tanto,
+Decretan:
+DECLARATORIA DE INTERÉS PÚBLICO Y NACIONAL
+DE LAS VUELTAS CICLÍSTICAS A COSTA RICA 2018
+Artículo 1º—Se declara de interés público y nacional, las Vueltas Ciclísticas organizadas por la Federación Costarricense de Ciclismo que se describen a continuación:
+- XXXVII Vuelta Juvenil a Costa Rica, a realizarse del 08 al 12 de agosto del 2018.
+- XXXVII Vuelta Juventud a Costa Rica, a realizarse del 05 al 09 de setiembre del 2018.
+- LIV Vuelta Internacional a Costa Rica 2018, a realizarse del 16 a1 25 de diciembre del 2018.
+- XVIII Vuelta Internacional Femenina a Costa Rica, a realizarse del 13 al 17 de junio del 2018.
