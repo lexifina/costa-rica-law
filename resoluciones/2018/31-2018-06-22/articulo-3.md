@@ -1,0 +1,1 @@
+Artículo 3°—Corríjase el error material detectado en el artículo 9 de la resolución N° DGT-R-08-2018 de las ocho horas del 7 de febrero de 2018, para que en lugar de “Código Procesal Civil” se lea “Código Civil”.

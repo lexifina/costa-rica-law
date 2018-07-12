@@ -1,0 +1,1 @@
+Artículo 8°—Modifíquese el artículo 12 de la resolución DGT-R-08-2018 de las ocho horas del 7 de febrero del 2018, para que en lugar de “el Timbre del Colegio de Abogados por ¢250”, se lea: “las especies fiscales de ley”.
