@@ -1,0 +1,3 @@
+CAPÍTULO VII
+DEL DIRECTOR EJECUTIVO
+Artículo 27.—NATURALEZA JURÍDICA. La Dirección Ejecutiva es el órgano superior en materia administrativa de la Federación de Municipalidades de Heredia. El Director Ejecutivo es un puesto a tiempo completo y de confianza, desempeñará su cargo por un periodo de dos años, pudiendo ser reelecto dentro del mes anterior a la expiración del plazo de su designación, en caso de que el Concejo Directivo no determine la necesidad de un concurso de antecedentes. Pasado el período correspondiente, en caso de no reelección del Director Ejecutivo, asumirá de manera interina el Presidente del Concejo Directivo hasta el nombramiento del Director Ejecutivo elegido.

@@ -1,0 +1,1 @@
+Artículo 18.—DIETA. Los regidores municipales, miembros propietarios y suplentes del Concejo Directivo, tendrán derecho a dieta conforme al presupuesto de la Federación. El monto se establecerá conforme al artículo 30 del Código Municipal y a las disposiciones de la Contraloría General de la República, la Procuraduría General de la República y normativa conexa.

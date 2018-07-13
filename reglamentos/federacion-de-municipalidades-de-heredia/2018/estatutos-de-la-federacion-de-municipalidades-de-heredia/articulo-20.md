@@ -1,0 +1,1 @@
+Artículo 20.—SESIONES. El Concejo Directivo sesionará ordinariamente dos veces al mes, y extraordinariamente, en cualquier momento, cuando el Concejo o el Director Ejecutivo decidan, previa convocatoria fundada.

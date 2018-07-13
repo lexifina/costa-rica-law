@@ -1,0 +1,1 @@
+Artículo 15.— ACUERDOS. Los acuerdos de la Asamblea General serán tomados por simple mayoría, salvo aquellos que requieran una mayoría calificada como son los indicados en el artículo 16 del presente cuerpo normativo.

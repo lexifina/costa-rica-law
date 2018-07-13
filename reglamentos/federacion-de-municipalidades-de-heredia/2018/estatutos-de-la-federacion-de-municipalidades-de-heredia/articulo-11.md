@@ -1,0 +1,1 @@
+Artículo 11.— DELEGADOS. Los delegados que designen los Concejos Municipales correspondientes, a la Asamblea General, durarán en sus cargos dos años pudiendo ser reelectos, y no serán removidos sino por las causales y en la forma señalada en este estatuto. Su período de nombramiento deberá coincidir con el plazo en el cual ejerza sus funciones el Director Ejecutivo.

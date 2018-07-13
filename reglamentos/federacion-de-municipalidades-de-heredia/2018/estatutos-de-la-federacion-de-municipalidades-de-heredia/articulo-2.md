@@ -1,0 +1,1 @@
+Artículo 2º—INGRESO Y DESAFILIACIÓN. Para ingresar a la Federación de Municipalidades de la Provincia de Heredia, o separarse voluntariamente de la misma, deberá contarse con el acuerdo previo del Concejo Municipal respectivo, tomado por mayoría simple, y del Concejo Directivo de la Federación, previo acuerdo de mayoría calificada.

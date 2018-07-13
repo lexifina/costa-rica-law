@@ -1,0 +1,1 @@
+Artículo 22.—QUÓRUM. El quórum del Concejo Directivo lo forma la mitad más uno de sus miembros, y sus acuerdos se toman por simple mayoría, excepto los que requieran mayoría calificada según lo determine el presente estatuto.

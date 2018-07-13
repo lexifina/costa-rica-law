@@ -1,0 +1,1 @@
+Artículo 13.— SESIONES. La Asamblea General sesionará ordinariamente una vez al año, en la primera semana del mes de julio, y extraordinariamente por acuerdo del Concejo Directivo y/o cuando así lo solicite la mayoría simple de los miembros de la Asamblea.

@@ -1,0 +1,1 @@
+Artículo 3º—DOMICILIO. El domicilio de la Federación es la ciudad de Heredia, o el lugar que designe el Concejo Directivo, por acuerdo de mayoría calificada. Podrá abrir sedes en cualquier lugar del país, siguiendo el procedimiento descrito en el presente artículo.
