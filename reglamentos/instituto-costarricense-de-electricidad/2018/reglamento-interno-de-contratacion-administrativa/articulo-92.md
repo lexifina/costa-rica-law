@@ -1,0 +1,1 @@
+Artículo 92.—Recibidos los criterios del Área Técnica y de la Dirección Contratación Administrativa del ICE, la Dirección Proveeduría Institucional en un plazo máximo de un día hábil deberá remitirla al órgano que adjudicó para que en un plazo máximo de 3 días hábiles siguientes a la recepción de la documentación emita el acto final del recurso.

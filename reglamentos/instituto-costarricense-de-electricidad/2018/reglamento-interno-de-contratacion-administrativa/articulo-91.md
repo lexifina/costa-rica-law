@@ -1,0 +1,1 @@
+Artículo 91.—Vencida la audiencia concedida y/o recibidos los argumentos del adjudicatario recurrido, la Dirección Proveeduría Institucional los enviará al Área Técnica y a la Dirección Contratación Administrativa del ICE, para que ambos se pronuncien en un plazo de cuatro días hábiles.

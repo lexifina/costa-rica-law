@@ -1,0 +1,1 @@
+Artículo 11.—Estará conformado, como mínimo, por un coordinador general, un representante de la Dirección Proveeduría Institucional, uno de la Dirección Contratación Administrativa, uno de la División Finanzas, uno del Área Técnica, así como cualquier otra área relacionada con la adquisición.

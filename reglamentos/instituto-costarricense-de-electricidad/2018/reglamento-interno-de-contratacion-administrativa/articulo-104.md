@@ -1,0 +1,1 @@
+Artículo 104—La Dirección Proveeduría Institucional por medio del Órgano Director Administrativo dará inicio al procedimiento de resolución de contrato, con fundamento en los motivos de incumplimiento acreditados por el AC, de conformidad con el procedimiento ordinario que establece el artículo 308 de la Ley General de Administración Pública.

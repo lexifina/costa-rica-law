@@ -1,0 +1,1 @@
+Artículo 22.—La documentación que se presente para incorporar al Registro de Proveedores podrá ser utilizada en cualquiera de los procedimientos de adquisiciones y deberá ser entregada en la Dirección Proveeduría Institucional o por medio de la página Web respectiva.
