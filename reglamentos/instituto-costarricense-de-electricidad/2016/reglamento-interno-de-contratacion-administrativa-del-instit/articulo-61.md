@@ -1,2 +1,0 @@
-Artículo 61.—Todas las modificaciones contractuales cualitativas sin costo deberán ser autorizadas por el órgano que adjudicó la contratación original. En el caso de las licitaciones o contrataciones directas de excepción que hayan sido aprobadas por la Junta de Adquisiciones ICE/Corporativa, éstas serán autorizadas por la Gerencia respectiva.
-En el caso de las modificaciones contractuales cualitativas con costo, deberán ser autorizadas por el órgano que adjudicó la contratación original aplicando la misma regla en relación con el órgano competente.

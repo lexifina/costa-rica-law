@@ -1,1 +1,0 @@
-Artículo 108.—Una vez firme la rescisión, y de existir una liquidación económica a reconocer al contratista, conforme a lo dispuesto en el Reglamento a la Ley 8660, la dependencia técnica (AC) en conjunto con el CCA en lo que corresponda, procederá a emitir la orden de pago respectiva, consignando el detalle de la liquidación en el expediente administrativo de la contratación

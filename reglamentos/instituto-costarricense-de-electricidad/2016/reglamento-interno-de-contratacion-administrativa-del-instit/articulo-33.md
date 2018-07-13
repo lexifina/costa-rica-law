@@ -1,1 +1,0 @@
-Artículo 33.—El cartel lo confeccionará la dependencia promovente de la contratación siguiendo las disposiciones de los carteles tipo, así como los lineamientos en materia de contratación administrativa que establezca la Proveeduría. Una vez revisado y aprobado por la Proveeduría, deberá ser publicado, cumpliendo con las autorizaciones y requisitos previos.

@@ -1,1 +1,0 @@
-Artículo 88.—Si el recurso es declarado con lugar, la Proveeduría, en coordinación con el CCA, se encargará de efectuar las modificaciones y comunicarlas o publicarlas por los mismos medios utilizados para invitar.
