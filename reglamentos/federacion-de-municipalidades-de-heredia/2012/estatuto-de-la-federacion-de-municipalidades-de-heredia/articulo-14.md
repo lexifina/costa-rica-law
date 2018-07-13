@@ -1,1 +1,0 @@
-Artículo 14.—En caso de pérdida de credenciales, por causa de muerte, de renuncia o de impedimento absoluto de un miembro de la Asamblea, el Concejo Municipal respectivo deberá proceder a sustituirlo y ser comunicado al Consejo Directivo de la Federación.

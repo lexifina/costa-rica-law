@@ -1,1 +1,0 @@
-Artículo 3º—El domicilio de la Federación es la ciudad de Heredia. Podrá abrir oficinas o sucursales en cualquier parte o lugar del país. Este domicilio podrá cambiarse cuando así lo acuerde el Consejo Directivo, sin que ello suponga modificaciones estatutarias.

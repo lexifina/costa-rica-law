@@ -1,2 +1,0 @@
-Artículo 17.—Los acuerdos de la Asamblea General serán tomados por simple mayoría, salvo aquellos que requieran una mayoría calificada como son: alteraciones del orden del día que requerían de las dos terceras partes de los votos de los asambleístas presentes.
-Las reformas parciales o totales a estos Estatutos deberán ser aprobadas por votación de la mitad más uno de sus miembros en Asamblea Extraordinaria convocada a su efecto.

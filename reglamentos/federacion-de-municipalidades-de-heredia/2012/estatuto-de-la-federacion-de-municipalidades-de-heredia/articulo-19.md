@@ -1,4 +1,0 @@
-CAPÍTULO IV
-Del Consejo Directivo
-Artículo 19.—El Consejo Directivo está constituido por un Regidor propietario de cada Municipalidad miembro de la Federación y su respectivo suplente, nombrado cada dos años a más tardar en el mes de abril, por su respectivo Concejo Municipal. Además conformará el Consejo Directivo la totalidad de Alcaldes y Alcaldesas, cinco en calidad de propietarios y los restantes en calidad de suplentes, designación que harán entre ellos y lo comunicarán al Consejo Directivo. Los Vicealcaldes o Vicealcaldesas podrán sustituir a los Alcaldes y Alcaldesas en sus funciones como miembros del Consejo Directivo, con los mismos derechos y obligaciones.
-Se entenderá que los regidores designados han sido reelegidos por dos años más, si en el transcurso del mes siguiente al que correspondería para su nombramiento, no se designa a los sustitutos y, así sucesivamente hasta el vencimiento del período para el cual fueron electos.

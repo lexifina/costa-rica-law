@@ -1,1 +1,0 @@
-Artículo 24.—El quórum del Consejo Directivo lo forma la mayoría simple y sus acuerdos se toman por simple mayoría, excepto los que requieran mayoría calificada según lo determine el presente estatuto.

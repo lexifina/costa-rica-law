@@ -1,1 +1,0 @@
-Artículo 10.—Las funciones, fines y objetivos anteriormente reseñados no constituyen en modo alguno, limitaciones para las actuaciones de la Federación que se extenderá a cuantos aspectos puedan repercutir y/o engrandecer los intereses y acciones de la Federación en pro y en beneficio de los mismos.

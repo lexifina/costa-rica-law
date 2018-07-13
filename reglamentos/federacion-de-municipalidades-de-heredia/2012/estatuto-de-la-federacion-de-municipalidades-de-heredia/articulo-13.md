@@ -1,1 +1,0 @@
-Artículo 13.—Los Regidores de los Concejos Municipales designados como miembros de la Asamblea General, durarán en sus cargos dos años pudiendo ser reelectos, y no serán removidos sino por las causales y en la forma señalada en este estatuto.
