@@ -13,3 +13,4 @@ Adición a la circular Nº 145-16 “Obligatoriedad de valorar la información d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-09-09 | la propia norma |
+| 2 | 2018-07-13 | Circular 81 (2018-07-13) |
