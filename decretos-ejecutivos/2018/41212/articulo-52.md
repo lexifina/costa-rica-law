@@ -1,0 +1,4 @@
+ARTÍCULO 52.
+Una vez prestado el servicio, los cargos respectivos se presentarán en una factura diseñada al efecto. Se efectuará una liquidación sobre la base del depósito previamente efectuado.
+En caso de que el valor de los servicios prestados sobrepase el depósito, el usuario debe cancelar a más tardar el tercer (3) día hábil siguiente de la remisión de la factura la diferencia que corresponda; de no hacerlo, el Prestatario del Servicio podrá actuar conforme al artículo 13 de este reglamento.
+Cuando el usuario deposite los importes estimados, elegirá, en caso de que el resultado final sea acreedor, si dichos importes quedarán en depósito para futuros servicios o, una vez al año, le serán devueltos, en la cuenta que indique, el tercer día hábil posterior a la prestación del servicio o su cancelación. Cuando el usuario elija la devolución de dicho saldo de liquidación, los costes financieros de transferencia correrán a su cargo

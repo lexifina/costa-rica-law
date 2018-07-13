@@ -1,0 +1,2 @@
+ARTÍCULO 24.
+Todos los pases con excepción del de visitantes deben llevar una fotografía de la persona a quien se expide el pase y el número de su documento de identidad para facilitar la identificación en la puerta de acceso. Cada pase tendrá un número asignado por la unidad responsable de la vigilancia portuaria del Prestatario del Servicio.

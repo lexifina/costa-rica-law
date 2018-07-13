@@ -1,0 +1,2 @@
+ARTÍCULO 60. De las naves o buques con daños en el equipo propulsor
+Todas las naves o buques inactivos por daños a sus máquinas o por cualquier otra causa que les impida un libre movimiento, será retirada por sus dueños, agentes, representantes o consignatarios, fuera del recinto portuario en forma inmediata; el prestatario coordinará con las Autoridades Competentes las medidas oportunas. El incumplimiento de esta disposición acarrea para los representantes, agentes o consignatarios de dichas naves o buques, el pago de las demoras correspondientes.

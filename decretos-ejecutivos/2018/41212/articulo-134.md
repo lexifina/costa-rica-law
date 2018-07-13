@@ -1,0 +1,3 @@
+ARTÍCULO 134. Inadmisibilidad del Reclamo o denuncia y Subsanación de Errores
+El Prestatario del Servicio deberá evaluar si el reclamo o denuncia cumple con los requisitos señalados en este Reglamento, y en los casos en que los reclamos o denuncias presentadas por los usuarios carezcan de alguno de los requisitos estipulados en este Reglamento, el Prestatario del Servicio indicará la omisión o error y procederá a devolver el reclamo o denuncia, con el fin de que el usuario proceda a subsanar las omisiones detectadas dentro del plazo de diez (10) días naturales.
+Mientras el usuario no presente la subsanación, no procederá el cómputo del plazo para resolver el reclamo o denuncia ni para su notificación.

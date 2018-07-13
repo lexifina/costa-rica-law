@@ -1,0 +1,3 @@
+ARTÍCULO 38.
+Los vigilantes en las puertas de salida tienen la obligación de revisar sin excepción todos los automóviles que salgan del recinto portuario, principalmente en la cabina, cajuelas y aquellos espacios en donde se puedan ocultar mercaderías u objetos sustraídos de la TCM. En igual forma, se debe proceder con los vehículos que ingresan al recinto portuario para impedir la introducción de sustancias prohibidas, armas y objetos no autorizados.
+Para el caso de los vehículos de carga el Prestatario del Servicio hará las inspecciones aleatorias que considere necesarias por motivos de seguridad.

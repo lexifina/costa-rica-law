@@ -1,0 +1,2 @@
+ARTÍCULO 42.
+Cuando se sorprenda la sustracción de mercancías de la nave o buque o de equipos, herramientas, materiales propiedad del Prestatario del Servicio, el personal de seguridad procederá a detener al vehículo o persona y dar parte de inmediato a su superior quien documentará el caso y pondrá al retenido a disposición de las autoridades de policía.

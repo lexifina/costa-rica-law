@@ -1,0 +1,4 @@
+ARTÍCULO 115.
+a) Se prohíbe que las naves o buques atracadas, arrojen al mar basura, ceniza, aceite, desperdicios u otras materias análogas. Por incumplimiento de esta disposición, las compañías o sus agentes representantes, deberán cubrir los daños y perjuicios que ocasionen, y se harán acreedores a las sanciones establecidas en las leyes respectivas.
+b) El embarque o desembarque de pasajeros o visitantes, se hará exclusivamente por cuenta y riesgo del capitán de la nave o buque y de las compañías navieras, agentes navieros o representantes, y previo cumplimiento de las disposiciones legales correspondientes.
+c) El capitán del barco deberá mostrar a la autoridad competentes, los certificados que comprueben la validez de sus seguros en el momento que sean requeridos en la visita oficial. Si no los tuviera, la compañía naviera o sus agentes o representantes garantizarán a satisfacción de la Autoridad Competente, las responsabilidades correspondientes.

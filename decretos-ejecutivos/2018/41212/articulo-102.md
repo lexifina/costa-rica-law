@@ -1,0 +1,2 @@
+ARTÍCULO 102. Pilotaje
+El Prestatario del Servicio brindará el servicio de pilotaje de la nave o buque, por lo que el Prestatario del Servicio otorgara información y asesoramiento a los capitanes y/o tripulación con respecto a las profundidades, dimensiones y limitantes del muelle para la conducción de las naves o buques para atraque, desatraque, zarpe, salida, cambio de muelle y otras maniobras que se efectúen dentro del recinto portuario.

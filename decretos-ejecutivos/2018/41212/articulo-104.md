@@ -1,0 +1,14 @@
+ARTÍCULO 104. De la obligatoriedad del uso del piloto o práctico
+Toda nave o buque que haga uso de los servicios de la TCM debe obligatoriamente hacer uso del piloto o práctico del Prestatario del Servicio para entrar, atracar, desatracar, o zarpar de la TCM.
+Desde el punto de vista operativo, el piloto o práctico, ejecutará las maniobras de atraque y desatraque propias del caso, siendo el único autorizado para coordinar con los remolcadores, cuadrillas de atraque a tierra, lancha de piloto y cualquier otro elemento que intervenga en la maniobra del Prestatario del Servicio. Para tal fin, el Capitán de la nave o buque deberá brindar toda la colaboración necesaria abordo; con el objeto de garantizar y mantener los parámetros de seguridad y eficiencia de la operación.
+El capitán de la nave o buque mantendrá siempre y en todo momento la responsabilidad absoluta de la misma, no obstante, deberá acatar en materia de atraque y desatraque las indicaciones, recomendaciones e instrucciones que gire el piloto o práctico del Prestatario del Servicio.
+Durante el desempeño de sus funciones, el piloto o práctico, deberá ajustarse a lo establecido en la normativa nacional o en ausencia de está, a las normas internacionales (PIANC).
+El piloto o práctico, podrá determinar la cancelación o suspensión de una maniobra, cuando por:
+1. La condición climatológica adversa se pueda afectar la seguridad de la operación, la nave o buque y las instalaciones o recinto portuario.
+2. Avería, confirmada en el sistema de propulsión o de fondeo, de la nave o buque en cuestión.
+3. Condición irregular de la estabilidad o estiba de la nave o buque, represente un riesgo para que la embarcación proceda hacia o desde el muelle.
+4. Restricción, o constreñimiento en el calado de la nave con referencia al calado real en el canal de acceso y/o el puesto de atraque designado.
+5. Restricción de eslora de la nave o buque con referencia al espacio de pantalla disponible.
+6. Deficiencias comprobadas en el equipo de amarre de la nave o buque.
+7. La no-aceptación del capitán de la nave o buque a seguir las recomendaciones del piloto o práctico; (número de remolcadores a utilizar, sistema de fondeo a utilizar, banda sugerida para atracar y otros), perderá su programación de atraque y queda, según lo establecido en este reglamento. Todos los costos que se generen por la espera de la ejecución de la maniobra, serán por cuenta del usuario.
+El piloto o práctico, deberá recibir del capitán de la nave o buque, una boleta confeccionada por el Prestatario del Servicio, dando fe de los servicios primarios recibidos en la TCM; la misma recopilará la información necesaria para el control de calidad del servicio y costos, que refleje un informe variado como: pilotaje, remolcaje, lancha piloto, cuadrillas de amarre, calidad del servicio, las horas de inicio y término de las maniobras, así como un espacio para comentarios del capitán.

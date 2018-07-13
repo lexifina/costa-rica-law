@@ -1,0 +1,2 @@
+ARTÍCULO 47.
+En el caso de contenedores de importación, los daños que puedan sufrir los equipos del Prestatario del Servicio o del buque o nave por discrepancia en el peso declarado o informado son responsabilidad del usuario. Asimismo, el Prestatario del Servicio no será responsable de las repercusiones de las discrepancias en el peso declarado o informado, la cual correrán por cuenta del usuario.

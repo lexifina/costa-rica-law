@@ -1,0 +1,10 @@
+ARTÍCULO 30. Respecto a los requisitos de acreditación de los Usuarios
+a) Los usuarios que soliciten los servicios del Prestatario del Servicio, deberán hacerlo por medio de la página web o por cualquier otro medio electrónico oficial debidamente autorizado y que al efecto confeccionará el Prestatario del Servicio y hará de conocimiento público. En el caso de las personas jurídicas, la correspondiente solicitud deberá ser firmada por quien tenga la representación legal de la empresa.
+b) Toda agencia naviera y/o aduanal o su representante deberá acreditarse ante el Prestatario del Servicio, previa presentación de la licencia de agente otorgada por el órgano competente, igualmente deberá cumplir con los requisitos siguientes:
+1) Aportar documentos que acrediten la representación legal de la empresa.
+2) Copia certificada por un notario del acta o escritura pública constitutiva de la empresa, con indicación de quién es el agente residente y dirección, cuando así corresponda.
+3) Certificación notarial del poder o poderes debidamente inscritos en el Registro Público, otorgado por la empresa a su representante para actuar por cuenta de la empresa ante el Prestatario del Servicio.
+4) Apertura de cuenta con el Prestatario del Servicio.
+5) Previo a iniciar operaciones en la TCM, las agencias navieras deberán rendir una garantía ante el Prestatario del Servicio, por un monto equivalente al 50% del valor estimado de la operación del buque. Cuando el movimiento sobrepase a un 25% como mínimo la estimación original garantizada; el Prestatario del Servicio se reserva el derecho de exigir un aumento que cubra ese excedente.
+6) Todas las agencias navieras deberán entregar al Prestatario del Servicio, una certificación de las líneas navieras que representan y cada vez que adquieran una nueva o deja de representar a alguna línea, deberán notificarlo al de Prestatario del Servicio, en forma inmediata.
+7) El Prestatario del Servicio mediante resolución debidamente fundamentada resolverá en un plazo no mayor de 10 diez días hábiles, la solicitud de acreditación.

@@ -1,0 +1,2 @@
+ARTÍCULO 63. De la carga abandonada
+El Prestatario del Servicio solicitará a la Autoridad Aduanera la declaratoria de abandono de una carga a favor del Estado, si transcurridos los plazos establecidos por la Ley General de Aduanas y su Reglamento, contados a partir de la fecha en que fuera recibido en los patios del recinto portuario su propietario o representante no ha presentado la solicitud de retiro correspondiente dentro del plazo estipulado en la legislación vigente.

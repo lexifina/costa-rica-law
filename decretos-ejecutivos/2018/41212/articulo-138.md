@@ -1,0 +1,2 @@
+ARTÍCULO 138. Plazo Máximo para Resolver
+El Prestatario del Servicio resolverá los reclamos o denuncias en un plazo máximo de diez (10) días hábiles, contados a partir de la fecha de presentación de los mismos. No obstante, dicho plazo podrá extenderse hasta cinco (5) días hábiles, mediante decisión motivada en aquellos reclamos o denuncias que sean considerados por el Prestatario del Servicio como particularmente complejos, o en un plazo superior si así fuera acordado con los usuarios.

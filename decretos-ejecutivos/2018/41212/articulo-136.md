@@ -1,0 +1,2 @@
+ARTÍCULO 136. Resolución
+Las resoluciones expedidas por el Prestatario del Servicio deberán ser fundamentadas y suscritas por la dependencia responsable designada por el Prestatario del Servicio según el tipo de reclamo o denuncia, señalando de forma expresa cada uno de los medios probatorios analizados en el procedimiento y que sustentan su decisión, así como las normas legales aplicadas en la resolución de cada caso.

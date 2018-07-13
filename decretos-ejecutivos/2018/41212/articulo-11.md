@@ -1,0 +1,2 @@
+ARTÍCULO 11. De la responsabilidad civil en cuanto a personas y objetos.
+Los usuarios del recinto portuario deben asegurar a sus trabajadores contra riesgos profesionales y suplirles los implementos de protección personal que establece el Ministerio de Trabajo, el Instituto Nacional de Seguros, y sujetarse a las normas de seguridad ocupacional estipuladas por el Prestatario del Servicio y la legislación nacional vigente. El Prestatario del Servicio deberá contar, también, con un Póliza de Responsabilidad Civil.
