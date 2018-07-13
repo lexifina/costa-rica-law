@@ -1,0 +1,4 @@
+Artículo 34. — Continuidad y Evaluación del Acuerdo Comercial.
+34.1 La continuidad del socio de ESPH S.A. estará basado en los resultados obtenidos a nivel comercial, para lo cual se llevará una evaluación semestral de resultados obtenidos. -
+34.2 De acuerdo al resultado de la evaluación realizada, la ESPH S.A. tendrá la facultad de continuar con el socio, o si es del caso reemplazarlo por otro que haya cumplido con el proceso de evaluación como socio. -
+34.3 Dada la dinámica del mercado y la necesidad de responder oportunamente a sus necesidades dentro de un marco de competencia, los procesos de evaluación y selección del socio serán ágiles y estará a cargo del Negocio de la ESPH S.A. que haya impulsado el Acuerdo Comercial, misma que deberá poner en conocimiento de la Gerencia General de la ESPH S.A. los resultados de la evaluación para su continuidad. -

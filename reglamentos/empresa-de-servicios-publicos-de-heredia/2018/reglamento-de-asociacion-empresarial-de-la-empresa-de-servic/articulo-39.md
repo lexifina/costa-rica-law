@@ -1,0 +1,1 @@
+Artículo 39. — Los contratos de servicios necesarios para hacer frente a las obligaciones adquiridas mediante los contratos de servicios administrados, tendrán una vigencia de hasta cinco años, pudiendo ser renovados en forma automática, mientras se mantenga vigente el contrato de servicios administrados que le dio origen. -

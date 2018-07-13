@@ -1,0 +1,4 @@
+Artículo 14. — Confidencialidad.
+14.1 Toda iniciativa de Asociación Empresarial en cualesquiera de sus modalidades, deberá estar respaldada por un acuerdo previo entre las partes, de protección de información confidencial desde las etapas iniciales de conversación y negociación, compromisos que deberán mantenerse independientemente de que se concrete la relación formal. -
+14.2 Los miembros que integran los equipos negociadores de cada una de las partes, o quienes tengan acceso a la información, deberán a su vez suscribir un acuerdo de confidencialidad de la información, desde las etapas iniciales de las conversaciones. -
+14.3 Todo acuerdo de confidencialidad deberá tener un plazo de vigencia mínimo de tres años, contados a partir de la finalización de la relación, para la cual fue creado, y deberá constar en el respectivo expediente administrativo de cada Asociación Empresarial y que estará en custodia de la Unidad de Adquisiciones. –

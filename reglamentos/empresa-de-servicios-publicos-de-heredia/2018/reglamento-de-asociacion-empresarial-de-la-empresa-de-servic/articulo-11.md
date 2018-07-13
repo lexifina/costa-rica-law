@@ -1,0 +1,2 @@
+Artículo 11. —Términos de Referencia.
+Cualesquiera de los Negocios de la ESPH S.A. que impulse una Asociación Empresarial deberá elaborar unos términos de referencia en los que se establezca con toda claridad el objeto de la Asociación Empresarial que se pretenda conformar (según su modalidad), haciendo una descripción clara del negocio, sus características, alcances técnicos, financieros y jurídicos. -

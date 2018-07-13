@@ -1,0 +1,4 @@
+Artículo 5. —Tipos de Acuerdos.
+5.1 En cada forma de Asociación Empresarial y para los efectos de formalizar la relación con el socio, se podrán elaborar los siguientes acuerdos:
+5.1.1 Acuerdo Marco: Corresponde al acuerdo con socio, donde se detallan las condiciones contractuales que se aplicarán para la atención de cualquier servicio a los diferentes clientes de la ESPH S.A.
+5.1.2 Acuerdo Específico: Es el acuerdo con el socio, mediante el cual se indican las condiciones particulares para cada caso de negocio a ejecutar dentro de cada forma de Asociación Empresarial. En el mismo se indicará el detalle de las aportaciones de cada uno de los integrantes de la relación y la valoración de esos aportes para la correspondiente distribución de los beneficios económicos proporcionales, todo dentro del marco del acuerdo marco.

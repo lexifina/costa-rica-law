@@ -1,0 +1,2 @@
+Artículo 12. —Varios Socios Potenciales.
+En caso de que en el registro de socios potenciales existan varias empresas con la experiencia o atributos necesarios para constituir la Asociación Empresarial que se pretenda conformar (según su modalidad) para atender un caso o solución particular, la ESPH S.A. solicitará al menos a dos de ellas la propuesta técnica o comercial de la solución, con el valor económico de sus aportaciones. La ESPH S.A. seleccionará como socio para atender ese caso particular, a la empresa que ofrezca los mayores beneficios económicos y estratégicos. –
