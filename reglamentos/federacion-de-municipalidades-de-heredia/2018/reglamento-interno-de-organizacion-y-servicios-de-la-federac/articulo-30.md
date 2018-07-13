@@ -1,0 +1,4 @@
+ARTÍCULO 30.- OTROS ASPECTOS.
+Los servidores de la Federación gozarán sin interrupción de su período de vacaciones.
+Queda prohibido acumular las vacaciones; salvo cuando las necesidades del servicio lo requieran y a solicitud escrita del jefe inmediato, se podrá acumular únicamente un período de vacaciones, mediante justificación razonada de la jefatura inmediata del servidor ante Recursos Humanos.
+Para determinar la fecha en que se adquiere derecho a vacaciones, no interrumpirán la continuidad de la relación de servicio las licencias con o sin goce de salario, las interrupciones laborales legalmente aceptadas, las incapacidades, las prórrogas o renovación inmediata de la prestación de servicio u otra causa análoga. En caso de haber interrupciones por licencias sin goce de salario, se mantendrá la fecha en que se adquiere el derecho a las vacaciones.

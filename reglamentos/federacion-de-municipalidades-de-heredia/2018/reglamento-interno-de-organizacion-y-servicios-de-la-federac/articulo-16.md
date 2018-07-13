@@ -1,0 +1,10 @@
+ARTÍCULO 16.- TRASLADO, RECARGOS, REUBICACIÓN Y PERMUTA.
+Todo traslado y reubicación de personal podrá ser acordado por el Concejo Directivo, siempre que no se cause grave perjuicio al servidor o servidora. Tal determinación corresponderá al Directivo, quien deberá motivar el acto y comunicar al Área de Recursos Humanos, para que ésta prepare la acción de personal y la carta de presentación respectiva, a efecto de formalizar el movimiento.
+Las permutas se regirán por las siguientes disposiciones:
+a) Cuando se trate de puestos de igual clase, se requerirá la anuencia de los servidores afectados y de sus superiores.
+b) Si se tratare de puestos de clase diferente, se requerirá, además de lo señalado en el inciso anterior, la aprobación de los órganos competentes de cada ente.
+Los recargos de funciones de puestos de mayor categoría, cuando excedan de un mes, podrán ser remunerados, pero estarán sujetos a la aprobación previa del Concejo Directivo; lo anterior, siempre que el servidor a quien se le hiciere el recargo reúna los requisitos que sean exigibles para el desempeño del puesto, según el Manual de Puestos de la Federación.
+Tal recargo se pagará con base en la diferencia existente entre el salario base del puesto que ocupa el funcionario y el salario base del puesto en recargo.
+En los casos de ingreso, ascenso o traslado de un puesto o cargo a otro de superior categoría, será aplicado el período de prueba de hasta tres meses.
+La formalización de traslados definitivos de plazas entre instituciones deberá hacerse mediante resolución razonada, que firmarán los jerarcas de los respectivos entes, observándose las disposiciones establecidas por la Autoridad Presupuestaria.
+La reubicación de funcionarios o funcionarias de la Federación hacia otras instituciones, en calidad de préstamo, deberá ser aprobada por el Concejo Directivo. Para la reubicación del servidor deberá acreditarse la necesidad pública de la institución que se pretender satisfacer con la reubicación del servidor.

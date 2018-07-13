@@ -1,0 +1,6 @@
+ARTÍCULO 5.- DEL QUÓRUM
+El quórum de las sesiones lo constituirá la mitad más uno de los miembros del Concejo Directivo. Consecuentemente para definir la mayoría calificada se constituirá con las dos terceras partes de la totalidad de los miembros.
+Las sesiones deberán efectuarse dentro de los quince minutos siguientes de la hora señalada al efecto, conforme el reloj del despacho o local donde se lleve a cabo la sesión. Pasado los quince minutos anteriores, si no hubiera quórum se realizará una segunda convocatoria una hora después de efectuada la primera y en caso de persistir la falta de mayoría se dejará constancia en el libro de actas y se consignará el nombre de los miembros presentes.
+Si en curso de una sesión se rompiera el quórum, el presidente mediante el (la) secretario instara a los miembros quienes se hubiesen retirado sin permiso para que ocupen sus curules. Transcurridos los diez minutos sin que pueda establecerse el quorum se levantara la sesión.
+El miembro que llegue después de transcurridos los quince minutos contados a partir de la hora señalada para iniciar la sesión perderá el derecho a incorporarse a la misma, sin embargo, podrá permanecer en el transcurso de la sesión como oyente.
+Lo establecido en los dos apartados anteriores implica para los que incurran en ello, no devengarán la dieta correspondiente.

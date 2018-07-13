@@ -1,0 +1,3 @@
+ARTÍCULO 45.- DE LA ACCION DE PERSONAL Y OTROS.
+Todo acto de administración de personal que implique el otorgamiento de derechos, beneficios o la aplicación de sanciones, o resoluciones que afecten la situación legal de ocupación de los puestos deberá hacerse por medio de “Acción de Personal”, resolución o contrato, según corresponda y deberá constar en el expediente personal del servidor y custodiados por el Área de Recursos Humanos.
+Los movimientos de personal originados en nombramientos en propiedad, ascensos en propiedad, nombramientos interinos y sus prórrogas, ascensos interinos y sus prórrogas y modificaciones y los ascensos interinos y sus prórrogas y modificaciones requerirán de la aprobación previa de la Dirección Ejecutiva.

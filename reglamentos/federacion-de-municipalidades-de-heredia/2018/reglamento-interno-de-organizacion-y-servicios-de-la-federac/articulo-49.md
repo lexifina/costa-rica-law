@@ -1,0 +1,4 @@
+ARTÍCULO 49.- INSTRUCCIÓN DEL PROCEDIMIENTO.
+El Órgano Director debe buscar la verdad real de los hechos, para ello ordenará y practicará todas las diligencias de prueba necesarias, de oficio o a petición de parte.
+El ofrecimiento y admisión de pruebas de la parte se hará de conformidad con los parámetros de razonabilidad y legalidad y los principios generales de la Ley General de la Administración Pública.
+Todas las oficinas y dependencias de la Federación deberán facilitar al órgano director, la información y documentos que requiera en el ejercicio de sus funciones y en la búsqueda de la verdad real, como objeto más importante del procedimiento administrativo ordinario; constituyéndose en falta grave por parte del servidor que omitiere o no facilitare la documentación o información requerida.

@@ -1,0 +1,7 @@
+CAPÍTULO IV
+DE LOS DERECHOS DE LOS SERVIDORES
+ARTÍCULO 22.- DERECHOS DEL PERSONAL.
+Además de lo establecido en el ordinal 146 del Código Municipal, todos los servidores de la Federación sin discriminación alguna, tendrán derecho a que se les brinde la capacitación complementaria que requieran, mediante cursos, seminarios, becas y similares que promueva la institución, de conformidad con sus posibilidades y siempre que no se perjudique la prestación normal del servicio público.
+En el caso de que los servidores no aprueben o abandonen las actividades de capacitación tendrán la obligación de devolver a la Federación, los gastos en que éste haya incurrido para su capacitación; para ello se considerará el tiempo utilizado y los gastos directos de la actividad.
+Se establece como derecho de los funcionarios la carrera administrativa, debiendo preferirse en igualdad de condiciones y requisitos en cada plaza o cargo vacante, a los servidores regulares de la Federación, que por su capacidad, experiencia y responsabilidad, resulten idóneos para el puesto o cargo, siempre y cuando el candidato o candidata reúna los requisitos de la clase o cargo a la que se va ascender. La Federación agotará las posibilidades de ascenso del personal para llenar las plazas vacantes de la institución.
+Las servidoras del Ministerio podrán gozar de una hora diaria de lactancia, según lo establecido en el Código de Trabajo.

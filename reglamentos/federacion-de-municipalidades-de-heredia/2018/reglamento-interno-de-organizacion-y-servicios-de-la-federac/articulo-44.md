@@ -1,0 +1,5 @@
+CAPÍTULO XIV
+DE LOS EXPEDIENTES PERSONALES
+ARTÍCULO 44.- DEL EXPEDIENTE.
+El Área de Recursos Humanos llevará un expediente personal a cada servidor de la Federación, en el cual se guardarán los documentos relativos a su empleo y las constancias de todos aquellos datos que sirvan para mantener un historial de sus servicios, lo más exacto posible. Igualmente contendrá una fotografía del servidor quien estará obligado a suministrarla en el momento que le sea solicitada y deberá ser renovada por el trabajador cada cuatro años. La obligación de que el expediente se mantenga con la información personal actualizada corresponde al servidor. El Área de Recursos Humanos podrá solicitar a los servidores, en cualquier momento, la actualización de la información que consta en su expediente, de omitir suministrarla se reputará como falta grave.
+El Área de Recursos Humanos podrá utilizar un registro digital o electrónico de cada servidor, para facilitar la toma de decisiones del superior. El manejo y custodia interno de la documentación se regirá por las disposiciones legales aplicables.
