@@ -1,0 +1,1 @@
+Artículo 7°—Deróguese el inciso c) del artículo 17 del Decreto Ejecutivo N° 35366-H del 24 de junio del 2009 y sus reformas, denominado Reglamento de Organización y Funciones de la Dirección General de Hacienda.

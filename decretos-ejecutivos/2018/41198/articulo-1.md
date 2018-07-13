@@ -1,0 +1,32 @@
+N° 41198-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE HACIENDA
+Con fundamento en las atribuciones y facultades conferidas en los artículos 11, 140 incisos 3) y 18) y 146 de la Constitución Política del 7 de noviembre del 1949; 15 de la Ley para mejorar la Lucha contra el Fraude Fiscal, Ley número 9416 de fecha 14 de diciembre del 2016; 11, 27 inciso 1), 28 inciso 2)b., 113, 114, de la Ley General de la Administración Pública, Ley número 6227 de fecha 2 de mayo de 1978; 7, 10, 12, 17 y 39 de la Ley General de Control Interno, Ley número 8292 de fecha 31 de julio del 2002; 2 del numeral 2.1.1 del Manual para la Atención de Informes de la Contraloría General de la República y la Dirección General de la Auditoría Interna en el Ministerio de Hacienda, Decreto Ejecutivo 34323-H publicado en el Diario Oficial La Gaceta número 38 del 22 de febrero del 2008.
+Considerando:
+I.—Que la misión del Ministerio de Hacienda es garantizar a la sociedad costarricense la efectiva y justa recaudación de los impuestos, uso adecuado del financiamiento del Sector Público y coadyuvar a la asignación de los recursos, con eficiencia, eficacia y transparencia, mediante una política hacendaria sostenible y la activa rectoría del Sector Financiero, para contribuir al desarrollo económico y social del país. Siendo así trascendentales los conceptos de transparencia y de rendición de cuentas.
+II.—Que el artículo 140 de la Constitución Política del 7 de noviembre del 1949, referido a los deberes y atribuciones que corresponden conjuntamente al Presidente y al respectivo Ministro de Gobierno, establece concretamente en el inciso 7, que les corresponde disponer la recaudación e inversión de las rentas nacionales de acuerdo con las leyes, y en el inciso 8 señala que les corresponde vigilar el buen funcionamiento de los servicios y dependencias administrativas.
+III.—Que el artículo 7 de la Ley General de Control Interno, Ley número 8292 de fecha 31 de julio del 2002, establece que los entes y órganos de la Administración Central dispondrán de sistemas de control interno, los cuales deberán ser aplicables, completos, razonables, integrados y congruentes con sus competencias y atribuciones institucionales.
+IV.—Que el artículo 3 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, Ley número 8422 de fecha 6 de octubre del 2004, establece la aplicación para todos los servidores públicos exigiendo el deber de probidad a cada uno de ellos, determinando en su artículo 38 una serie de causales de responsabilidad administrativa y en el artículo 40 la competencia del jerarca para la imposición de eventuales sanciones de carácter administrativo.
+V.—Que, mediante Decreto 35989-H “Reglamento de Organización y Funciones de la Dirección de Transparencia Hacendaria” de fecha 15 de abril del 2010, se crea dentro de la estructura del Ministerio de Hacienda un área especializada en promover la transparencia en las actuaciones ministeriales, por lo que se requería de una estructura organizativa a través de la cual se concreticen las acciones tendientes a su cumplimiento.
+VI.—Que con fundamento en el decreto supra mencionado surgió el Proyecto de Transparencia Hacendaria a través del cual se concreta la creación de una nueva Dirección a nivel del Ministerio de Hacienda para promover la transparencia e integridad en todas las actuaciones del Ministerio de Hacienda, mediante la detección y denuncia de conductas Sr actuaciones irregulares, previniendo la comisión de actos contrarios al ordenamiento jurídico.
+VII.—Que mediante Decreto 37887-H de fecha 21 de junio del 2013 se derogó y dejó sin efecto el Decreto 35989-H antes citado.
+VIII.—Que la Administración Pública está sometida a un procedimiento de evaluación de resultados y rendición de cuentas, con la consecuente responsabilidad personal para los funcionarios en el cumplimiento de sus deberes, tal potestad de evaluación se deriva del informe de la Contraloría General de la República número DFOESAF-IF-15-2012, mediante el cual dispone que el Ministerio de Hacienda debe restablecer la función de Transparencia Hacendaria.
+IX.—Que en acatamiento a lo dispuesto por la Contraloría General de la República, la presente Administración, incluyó dentro del proyecto de Ley de Lucha Contra el Fraude, la creación de una Unidad Asesora de Asuntos internos de la Administración Tributaria del Ministerio de Hacienda.
+X.—Que conforme a lo establecido en el artículo 15 de la Ley N° 9416 “Ley para Mejorar la Lucha contra el Fraude Fiscal” del 14 de diciembre del 2016, se crea dentro del Ministerio de Hacienda, la Dirección de Asuntos Internos, la cual dependerá del Ministro de Hacienda y contará con un régimen especial de contratación, de conformidad con lo que al efecto se disponga en el reglamento, respetando la estructura salarial del Servicio Civil.
+XI.—Que mediante oficio número DM-498-2017 de fecha 14 de julio del 2017, el Ministerio de Planificación Nacional y Política Económica acogió parcialmente la propuesta de reorganización Asuntos Internos como Unidad Asesora dependiente jerárquicamente del Ministro de Hacienda, lo anterior por cuanto se rechazó la subdivisión departamental que se había propuesto.
+XII.—Que se requiere establecer vía reglamento la organización y funciones de la Unidad Asesora de Asuntos Internos.
+XIII.—Que siendo que la creación de la Unidad Asesora de Asuntos Internos constituye una reorganización interna del Ministerio de Hacienda y por su naturaleza ésta no establece ni modifica trámites, requisitos y/o procedimientos vinculados al Administrado, no se requiere someter el presente reglamento al control previo de revisión por parte de la Dirección de Mejora Regulatoria y Reglamentación Técnica del Ministerio de Economía, Industria y Comercio. Por tanto,
+Decretan:
+Reglamento de Organización y Funciones de la
+Unidad Asesora de Asuntos Internos del
+Ministerio de Hacienda, modificación y adición
+al Decreto N° 35366 de fecha 24 de junio del
+2009, adición a los Decretos N° 35688 de
+fecha 27 de noviembre del 2009, N°
+25270 de fecha 14 de junio de 1996,
+35940 de fecha 12 de marzo
+del 2010 y derogatoria del
+inciso c) del artículo
+17 al Decreto
+N° 35366
+Artículo 1°—Objeto. El presente Decreto tiene como objeto reglamentar la organización y funciones de la Unidad Asesora de Asuntos Internos del Ministerio de Hacienda, conforme a lo establecido en el numeral 15 de la Ley número 9416 “Ley para Mejorar la Lucha contra el Fraude Fiscal” del 14 de diciembre del 2016.
