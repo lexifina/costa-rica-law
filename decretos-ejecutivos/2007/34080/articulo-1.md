@@ -98,12 +98,9 @@ a) Debe estar exento de microorganismos en cantidades que puedan representar un 
 b) Debe estar exento de parásitos que puedan representar un peligro para la salud, y;
 c) No debe contener ninguna sustancia procedente de microorganismos en cantidades que puedan representar un peligro para la salud.
 4.4.3 Se establece un límite máximo de 75 fragmentos de insectos en 50g de harina de trigo fortificada.
-4.5 Criterios microbiológicos
-Se debe cumplir con los criterios microbiológicos establecidos en la tabla siguiente:
+4.5 Criterios microbiológicos (Este numeral se dejó sin efecto por el apartado 4) de la parte dispositiva de la resolución N° 402-2018 (COMIECO-LXXXIII) de fecha 28/06/2018 y su Anexo: "Reglamento Técnico Centroamericano RTCA 67.04.50:17 Alimentos. Criterios Microbiológicos para la Inocuidad de los Alimentos", aprobada mediante decreto ejecutivo N° 41420 del 16 de julio del 2018)
 Tabla 2. Criterios microbiológicos
-Parámetro | Plan de muestreo | Límite
-Tipo de riesgo | clase | n | C | m | M
-Recuento Mohos y Levaduras | B | 3 | 5 | 1 | 10 UFC/g | 103 UFC/g
+(La tabla anterior se dejó sin efecto por el apartado 4) de la parte dispositiva de la resolución N° 402-2018 (COMIECO-LXXXIII) de fecha 28/06/2018 y su Anexo: "Reglamento Técnico Centroamericano RTCA 67.04.50:17 Alimentos. Criterios Microbiológicos para la Inocuidad de los Alimentos", aprobada mediante decreto ejecutivo N° 41420 del 16 de julio del 2018)
 4.6 Requisitos físicos y químicos
 4.6.1 Debe ajustarse a los parámetros que se establecen en la siguiente tabla
 Tabla 3. Requisitos fisicoquímicos de conformidad a la variedad de trigo

@@ -14,3 +14,4 @@ Publicación de la Resolución N° 201-2007(COMIECOXLV) Reglamento Técnico Cent
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-27 | la propia norma |
+| 2 | 2018-07-16 | Decreto Ejecutivo 41420 (2018-07-16) |
