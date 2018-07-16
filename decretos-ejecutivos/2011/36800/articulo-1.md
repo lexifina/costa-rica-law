@@ -14,6 +14,7 @@ SISTEMA ARANCELARIO CENTROAMERICANO
 -SAC-
 ARANCEL CENTROAMERICANO DE IMPORTACION
 NOTAS GENERALES
+(Nota de Sinalevi: Mediante el artículo 2° del decreto ejecutivo N° 41396 del 16 de julio del 2018 “Publica Resolución N° 397-2018 (COMIECO-LXXXIII) de fecha 28 de junio de 2018, que aprueba para Panamá "la incorporación de un grupo de incisos arancelarios exceptuados en el Anexo 5.2 del Protocolo de Incorporación”, se establece reformar la presente Resolución N° 372-2015 (COMIECOLX7X1V) de fecha 04 de diciembre de 2015 y su Anexo: "Modificaciones al Arancel Centroamericano de Importación, que amplía los códigos arancelarios a diez dígitos e incorpora al Sistema Arancelario Centroamericano (MC) los resultados a la 60 Enmienda de la Nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías"; de conformidad con el párrafo cuarto de la parte considerativa y el numeral 1 de la parte dispositiva, todos de la Resolución N° 397-2018 (COIVIIECO-DOOCII) del 28 de junio de 2018. Por lo extenso de su contenido y tipo de formato el Listado de armonización de los derechos arancelarios a la importación (DAI) por Panamá debe ser consultado en el siguiente link)
 (Nota de Sinalevi: La presente norma fue reformada mediante el decreto ejecutivo N° 39960 del 16 de setiembre del 2016 “Publica Resolución N° 372-2015 (COMIECO-LXXIV) del 4 de diciembre de 2015 y su anexo: Modificación al Arancel Centroamericano de Importación, que amplía los Códigos arancelarios a diez dígitos e incorpora al SAC los resultados de las 6a Enmienda”, por lo que publica la 6ª enmienda al Sistema Arancelario Centroamericano y se reproduce a continuación:)
 A. El Arancel Centroamericano de Importación está constituido por el SISTEMA ARANCELARIO CENTROAMERICANO (S.A.C) y los correspondientes Derechos Arancelarios a la Importación (D.A.I)
 B. El código numérico del S.A.C. está representado por diez dígitos que identifican: los dos primeros, al capítulo, los dos siguientes, a la partida; el tercer par, a la subpartida; y los cuatro últimos, a los incisos.
@@ -1950,9 +1951,6 @@ CODIGO | DESCRIPCION | DAI %
 1521.90.00.00 | - Las demás | 5
 1522.00.00.00 | DEGRAS; RESIDUOS PROCEDENTES DEL TRATAMIENTO DE GRASAS O CERAS ANIMALES O VEGETALES | 10
 NOTA DE SINALEVIi: Mediante Resolución N° 399-2018 (COMIECO-DCXXIII) de fecha 28 de junio de 2018 publicada mediante decreto ejecutivo N° 41391 del 16 de julio del 2018, en La Gaceta N° 226 del 5 de diciembre del 2018, aprueba la adopción, por parte de la República de Panamá, del código, la descripción y los Derechos Arancelarios a la Importación (DAI) del Arancel Centroamericano de Importación, para los incisos arancelarios correspondientes a grasas y aceites, en la forma y plazos que aparecen en el Anexo de la presente Resolución y que forma parte integrante de la misma.
-[imagen]
-[imagen]
-[imagen]
 Así mismo, quedan sin efecto los incisos arancelarios de las grasas y aceites de los Anexos 5.1 y 5.2 del Protocolo de Incorporación, incluidos en el Anexo a que hace referencia el punto primero de la Resolución N° 399-2018 (COMIECO-LXXXIII) de fecha 28 de junio de 2018.
 SECCION IV
 PRODUCTOS DE LAS INDUSTRIAS ALIMENTARIAS; BEBIDAS, LIQUIDOS ALCOHOLICOS Y VINAGRE; TABACO Y SUCEDANEOS DEL TABACO, ELABORADOS

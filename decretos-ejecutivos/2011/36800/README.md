@@ -19,3 +19,4 @@ Publica Resolución N° 263-2011 (COMIECO-LX) del 27 de julio de 2011 y su Anexo
 | 4 | 2013-03-05 | Resolución 57 (2013-03-05) |
 | 5 | 2016-09-16 | Decreto Ejecutivo 39960 (2016-09-16) |
 | 6 | 2018-07-16 | Decreto Ejecutivo 41391 (2018-07-16) |
+| 7 | 2018-07-16 | Decreto Ejecutivo 41396 (2018-07-16) |
