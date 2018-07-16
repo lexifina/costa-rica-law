@@ -30,6 +30,8 @@ Dirección: Dirección General de Aduanas.
 Empresas no sujetas al impuesto sobre la renta: se refiere a aquellas empresas procesadoras que producen, procesan o ensamblan bienes, que operan en Costa Rica y que no están obligadas al pago del impuesto sobre la renta por estar contempladas en el artículo 3 de la Ley del Impuesto sobre la Renta, Ley Nº 7092 del 21 de abril de 1988 y sus reformas. Asimismo, para efectos del Régimen de Zonas Francas también se entiende que son empresas no sujetas, aquellas empresas que, al momento de solicitar el Régimen, no realizan actividad lucrativa en Costa Rica gravada con el impuesto sobre la renta.
 Ensamble: Acoplamiento de componentes (piezas o partes, subconjuntos y conjuntos) que al integrarse dan como resultado un producto con características distintas de los componentes.
 Entidad controladora: entidad jurídica que tiene la propiedad o ejerce el control de las acciones o cuotas, directa o indirectamente, de la empresa beneficiaria establecida en Costa Rica, o que ejerce poder de dirección sobre ella.
+Faltante de bulto: menor cantidad de bultos que la cantidad indicada en el manifiesto de carga respectivo.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 41263 del 16 de julio de 2018)
 GAMA: se entiende como la Gran Área Metropolitana Ampliada definida en el Plan de Desarrollo Urbano más los siguientes cantones: Grecia, excluido el distrito de Rio Cuarto, Valverde Vega, Naranjo, Palmares y San Ramón-excluidos los distritos de Peñas Blancas, Zapotal, Piedades Norte, Piedades Sur y Ángeles.
 Gestor: es toda persona física o jurídica, pública o privada, encargada de la gestión total o parcial de los residuos, y autorizada conforme a lo establecido en la Ley para la Gestión Integral de Residuos, Ley Nº 8839.
 Gerencia General: La Gerencia General de la Promotora del Comercio Exterior de Costa Rica.
@@ -68,6 +70,10 @@ Proporción significativa: se trata del porcentaje de las ventas totales que rea
 Reciclaje: Transformación de los residuos por medio de distintos procesos de valoración que permiten restituir su valor económico y energético evitando así su disposición final, siempre y cuando esta restitución implique un ahorro de energía y materias primas sin perjuicio para la salud y el medio ambiente
 Régimen : El Régimen de Zonas Francas, que es el conjunto de incentivos y beneficios que otorga el Estado a Las personas físicas o jurídicas que cumplan con los requisitos y obligaciones establecidas en la Ley Nº 7210 y sus reformas, este Reglamento y demás normas aplicables .
 Reutilización: es la acción de volver a utilizar los bienes o productos. La utilidad puede venir para el usuario mediante una acción de mejora restauración.
+SEL: empresas beneficiarias del Régimen de Zonas Francas bajo la categoría prevista en el inciso c) del artículo 17 de la Ley N° 7210, cuya actividad autorizada consiste en la prestación de servicios de logística integral.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 41263 del 16 de julio de 2018)
+Sobrante de bulto: mayor cantidad de bultos que la cantidad indicada en el manifiesto de carga respectivo.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 41263 del 16 de julio de 2018)
 Subproductos: Los bienes que se obtienen en forma accesoria al proceso productivo principal.
 Transferencia de bienes: Es el traslado, previo acuerdo entre beneficiarios, del dominio o derecho sobre bienes ingresados en dicho Régimen.
 Ubicación: Punto o puntos geográficos donde se localizan instalaciones del beneficiario, para realizar operaciones propias de su actividad dentro del Régimen.

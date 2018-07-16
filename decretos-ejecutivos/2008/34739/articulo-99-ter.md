@@ -1,0 +1,2 @@
+Artículo 99 ter. - Sobrantes y faltantes de bultos. Si en la descarga de la unidad de transporte se determinan bultos sobrantes o faltantes, debe ajustarse a los lineamientos dispuestos en el artículo 81 de la Ley General de Aduanas y en los artículos 256 al 261 de su Reglamento, así como a las disposiciones previstas en el Manual de Procedimientos Aduaneros de Zonas Francas y las normas que en lo sucesivo regulen esta materia.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 41263 del 16 de julio de 2018)

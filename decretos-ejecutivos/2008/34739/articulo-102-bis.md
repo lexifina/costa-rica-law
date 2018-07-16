@@ -1,0 +1,8 @@
+Artículo 102 bis. – Exportaciones desde otra ubicación. Las empresas beneficiarias que gocen de la categoría prevista en el inciso b) del artículo 17 de la Ley del Régimen de Zonas Francas podrán realizar la exportación a su nombre, desde las instalaciones de la empresa beneficiaria que les vende las mercancías que son objeto de exportación. Para tales efectos, la empresa comercializadora tramitará ante la Aduana de Control las respectivas declaraciones aduaneras de exportación, indicando el nombre y ubicación de la empresa beneficiaria que vende las mercancías destinadas a la exportación y señalando que éstas se exportarán desde dichas instalaciones, adjuntando la factura comercial de exportación emitida por la empresa comercializadora al comprador en el extranjero.
+La empresa comercializadora es la responsable de la aplicación de los procedimientos vigentes. La empresa comercializadora deberá comunicarlo a la Aduana de Control, indicando lo siguiente:
+(i) Nombre de la empresa beneficiaria comercializadora.
+(ii)
+(iii) Nombre y ubicación de la empresa beneficiaria que vende las mercancías objeto de exportación.
+(iv) Indicación que las mercancías se exportarán desde las instalaciones de la empresa beneficiaria que vende las mercancías objeto de exportación.
+En caso que alguna de las beneficiarias realice alguna operación incumpliendo lo estipulado anteriormente, la autoridad aduanera deberá iniciar los procedimientos sancionatorios correspondientes. Adicionalmente, deberá comunicar el incumplimiento a Procomer para lo que corresponda, de acuerdo a sus competencias.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 41263 del 16 de julio de 2018)

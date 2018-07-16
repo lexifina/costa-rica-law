@@ -1,0 +1,2 @@
+Artículo 128 bis. - Del consignatario de las mercancías. Las mercancías que son objeto del servicio logístico deberán estar consignadas a nombre de la empresa de servicios de logística o a nombre de un tercero predefinido en el conocimiento de embarque para su posterior entrega, dentro o fuera del territorio aduanero nacional.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 41263 del 16 de julio de 2018)
