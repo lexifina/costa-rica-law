@@ -112,6 +112,7 @@ ORIGEN ANIMAL O VEGETAL
 CAPÍTULO 15: GRASAS Y ACEITES ANIMALES O VEGETALES; PRODUCTOS DE
 SU DESDOBLAMIENTO; GRASAS ALIMENTICIAS ELABORADAS; CERAS DE
 ORIGEN ANIMAL O VEGETAL
+(Nota de Sinalevi: Mediante resolución N° 398-2018 (COMIECO-LXXXIII) 28/06/2018, aprueba adopción por parte República Panamá a partir de 01/01/2029 de reglas de origen específicas para grasas y aceites de anexo Reglamento Centroamericano sobre origen de mercancías, aprobada mediante decreto ejecutivo N° 41393 del 16 de julio de 201, la República de Panamá acordó aprobar la adopción a partir del 01 de enero de 2029, las Reglas de Origen Especificas para grasas y aceites del Anexo al Reglamento Centroamericano sobre el Origen de las Mercancías, que fueron exceptuadas en el Anexo 6(a) del Protocolo de Incorporación)
 15.01-15.06 | - Un cambio a la partida 15.01 a 15.06 desde cualquier otro capítulo, excepto de la partida 02.09.
 15.07-15.12 | - Un cambio a la partida 15.07 a 15.12 desde cualquier otro capítulo.
 1513.11-1513.19 | - Un cambio a la subpartida 1513.11 a 1513.19 desde cualquier otro capítulo.
