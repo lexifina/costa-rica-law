@@ -1949,6 +1949,11 @@ CODIGO | DESCRIPCION | DAI %
 1521.10.00.00 | - Ceras vegetales | 5
 1521.90.00.00 | - Las demás | 5
 1522.00.00.00 | DEGRAS; RESIDUOS PROCEDENTES DEL TRATAMIENTO DE GRASAS O CERAS ANIMALES O VEGETALES | 10
+NOTA DE SINALEVIi: Mediante Resolución N° 399-2018 (COMIECO-DCXXIII) de fecha 28 de junio de 2018 publicada mediante decreto ejecutivo N° 41391 del 16 de julio del 2018, en La Gaceta N° 226 del 5 de diciembre del 2018, aprueba la adopción, por parte de la República de Panamá, del código, la descripción y los Derechos Arancelarios a la Importación (DAI) del Arancel Centroamericano de Importación, para los incisos arancelarios correspondientes a grasas y aceites, en la forma y plazos que aparecen en el Anexo de la presente Resolución y que forma parte integrante de la misma.
+[imagen]
+[imagen]
+[imagen]
+Así mismo, quedan sin efecto los incisos arancelarios de las grasas y aceites de los Anexos 5.1 y 5.2 del Protocolo de Incorporación, incluidos en el Anexo a que hace referencia el punto primero de la Resolución N° 399-2018 (COMIECO-LXXXIII) de fecha 28 de junio de 2018.
 SECCION IV
 PRODUCTOS DE LAS INDUSTRIAS ALIMENTARIAS; BEBIDAS, LIQUIDOS ALCOHOLICOS Y VINAGRE; TABACO Y SUCEDANEOS DEL TABACO, ELABORADOS
 NOTA.
@@ -9518,50 +9523,50 @@ CODIGO | DESCRIPCION | DAI %
 7222.30.00.00 | - Las demás barras | 0
 7222.40.00.00 | - Perfiles | 0
 7223.00.00.00 | ALAMBRE DE ACERO INOXIDABLE | 0
-| IV. LOS DEMAS ACEROS ALEADOS; BARRAS HUECAS PARA PERFORACION, DE ACERO ALEADO O SIN ALEAR |
-72.24 | LOS DEMAS ACEROS ALEADOS EN LINGOTES O DEMAS FORMAS PRIMARIAS; PRODUCTOS INTERMEDIOS DE LOS DEMAS ACEROS ALEADOS |
-7224.10.00.00 | - Lingotes o demás formas primarias | 0
-7224.90.00.00 | - Los demás | 0
-72.25 | PRODUCTOS LAMINADOS PLANOS DE LOS DEMAS ACEROS ALEADOS, DE ANCHURA SUPERIOR O IGUAL A 600 mm |
-7225.1 | - De acero al silicio llamado "magnético" (acero magnético al silicio): |
-7225.11.00.00 | - - De grano orientado | 0
-7225.19.00.00 | - - Los demás | 0
-7225.30.00.00 | - Los demás, simplemente laminados en caliente, enrollados | 0
-7225.40.00.00 | - Los demás, simplemente laminados en caliente, sin enrollar | 0
-7225.50.00.00 | - Los demás, simplemente laminados en frío | 0
-7225.9 | - Los demás: |
-7225.91.00.00 | - - Cincados electrolíticamente | 0
-7225.92.00.00 | - - Cincados de otro modo | 0
-7225.99.00.00 | - - Los demás | 0
-72.26 | PRODUCTOS LAMINADOS PLANOS DE LOS DEMAS ACEROS ALEADOS, DE ANCHURA INFERIOR A 600 mm |
-7226.1 | - De acero al silicio llamado "magnético" (acero magnético al silicio): |
-7226.11.00.00 | - - De grano orientado | 0
-7226.19.00.00 | - - Los demás | 0
-7226.20.00.00 | - De acero rápido | 0
-7226.9 | - Los demás: |
-7226.91.00.00 | - - Simplemente laminados en caliente | 0
-7226.92.00.00 | - - Simplemente laminados en frío | 0
-7226.99 | - - Los demás: |
-7226.99.10.00 | - - - Cincados, excepto electrolíticamente | 0
-7226.99.90.00 | - - - Otros | 0
-72.27 | ALAMBRON DE LOS DEMAS ACEROS ALEADOS |
-7227.10.00.00 | - De acero rápido | 0
-7227.20.00.00 | - De acero silicomanganeso | 0
-7227.90.00.00 | - Los demás | 0
-72.28 | BARRAS Y PERFILES, DE LOS DEMAS ACEROS ALEADOS; BARRAS HUECAS PARA PERFORACION, DE ACEROS ALEADOS O SIN ALEAR |
-7228.10.00.00 | - Barras de acero rápido | 0
-7228.20.00.00 | - Barras de acero silicomanganeso | 0
-7228.30.00.00 | - Las demás barras, simplemente laminadas o extrudidas en caliente | 0
-7228.40.00.00 | - Las demás barras, simplemente forjadas | 0
-7228.50.00.00 | - Las demás barras, simplemente obtenidas o acabadas en frío | 0
-7228.60.00.00 | - Las demás barras | 0
-7228.70.00.00 | - Perfiles | 0
-7228.80.00.00 | - Barras huecas para perforación | 0
-72.29 | ALAMBRE DE LOS DEMAS ACEROS ALEADOS |
-7229.20.00.00 | - De acero silicomanganeso | 0
-7229.90 | - Los demás: |
-7229.90.10.00 | - - De acero rápido | 0
-7229.90.90.00 | - - Otros | 0
+| LOS DEMAS ACEROS ALEADOS; BARRAS HUECAS PARA PERFORACION, DE ACERO ALEADO O SIN ALEAR IV. |
+V. 72.24 VI. VII. | VIII. LOS DEMAS ACEROS ALEADOS EN LINGOTES O DEMAS FORMAS PRIMARIAS; PRODUCTOS INTERMEDIOS DE LOS DEMAS ACEROS ALEADOS IX. | X.
+XI. 7224.10.00.00 | XII. - Lingotes o demás formas primarias XIII. | XIV. 0
+XV. 7224.90.00.00 | XVI. - Los demás XVII. | XVIII. 0
+XIX. 72.25 | XX. PRODUCTOS LAMINADOS PLANOS DE LOS DEMAS ACEROS ALEADOS, DE ANCHURA SUPERIOR O IGUAL A 600 mm XXI. | XXII.
+XXIII. 7225.1 | XXIV. - De acero al silicio llamado "magnético" (acero magnético al silicio): XXV. | XXVI.
+XXVII. 7225.11.00.00 | XXVIII. - - De grano orientado XXIX. | XXX. 0
+XXXI. 7225.19.00.00 | XXXII. - - Los demás XXXIII. | XXXIV. 0
+XXXV. 7225.30.00.00 | XXXVI. - Los demás, simplemente laminados en caliente, enrollados XXXVII. | XXXVIII.0
+XXXIX. 7225.40.00.00 | XL. - Los demás, simplemente laminados en caliente, sin enrollar XLI. | XLII. 0
+XLIII. 7225.50.00.00 | XLIV. - Los demás, simplemente laminados en frío XLV. | XLVI. 0
+XLVII. 7225.9 | XLVIII. - Los demás: XLIX. | L.
+LI. 7225.91.00.00 | LII. - - Cincados electrolíticamente LIII. | LIV. 0
+LV. 7225.92.00.00 | LVI. - - Cincados de otro modo LVII. | LVIII. 0
+LIX. 7225.99.00.00 | LX. - - Los demás LXI. | LXII. 0
+LXIII. 72.26 | LXIV. PRODUCTOS LAMINADOS PLANOS DE LOS DEMAS ACEROS ALEADOS, DE ANCHURA INFERIOR A 600 mm LXV. | LXVI.
+LXVII. 7226.1 LXVIII. LXIX. | LXX. - De acero al silicio llamado "magnético" (acero magnético al silicio): LXXI. LXXII. | LXXIII.
+LXXIV. 7226.11.00.00 | LXXV. - - De grano orientado LXXVI. | LXXVII. 0
+LXXVIII.7226.19.00.00 | LXXIX. - - Los demás LXXX. | LXXXI. 0
+LXXXII. 7226.20.00.00 | LXXXIII.- De acero rápido LXXXIV. | LXXXV. 0
+LXXXVI.7226.9 | LXXXVII.- Los demás: LXXXVIII. | LXXXIX.
+XC. 7226.91.00.00 | XCI. - - Simplemente laminados en caliente XCII. | XCIII. 0
+XCIV. 7226.92.00.00 | XCV. - - Simplemente laminados en frío XCVI. | XCVII. 0
+XCVIII. 7226.99 | XCIX. - - Los demás: C. | CI.
+CII. 7226.99.10.00 | CIII. - - - Cincados, excepto electrolíticamente CIV. | CV. 0
+CVI. 7226.99.90.00 | CVII. - - - Otros CVIII. | CIX. 0
+CX. 72.27 | CXI. ALAMBRON DE LOS DEMAS ACEROS ALEADOS CXII. | CXIII.
+CXIV. 7227.10.00.00 | CXV. - De acero rápido CXVI. | CXVII. 0
+CXVIII. 7227.20.00.00 | CXIX. - De acero silicomanganeso CXX. | CXXI. 0
+CXXII. 7227.90.00.00 | CXXIII. - Los demás CXXIV. | CXXV. 0
+CXXVI. 72.28 | CXXVII. BARRAS Y PERFILES, DE LOS DEMAS ACEROS ALEADOS; BARRAS HUECAS PARA PERFORACION, DE ACEROS ALEADOS O SIN ALEAR CXXVIII. | CXXIX.
+CXXX. 7228.10.00.00 CXXXI. | CXXXII. - Barras de acero rápido CXXXIII. | CXXXIV.0
+CXXXV.7228.20.00.00 | CXXXVI.- Barras de acero silicomanganeso CXXXVII. | CXXXVIII.0
+CXXXIX.7228.30.00.00 | CXL. - Las demás barras, simplemente laminadas o extrudidas en caliente CXLI. | CXLII. 0
+CXLIII. 7228.40.00.00 | CXLIV. - Las demás barras, simplemente forjadas CXLV. CXLVI. | CXLVII. 0
+CXLVIII.7228.50.00.00 | CXLIX. - Las demás barras, simplemente obtenidas o acabadas en frío CL. | CLI. 0
+CLII. 7228.60.00.00 | CLIII. - Las demás barras CLIV. | CLV. 0
+CLVI. 7228.70.00.00 | CLVII. - Perfiles CLVIII. | CLIX. 0
+CLX. 7228.80.00.00 | CLXI. - Barras huecas para perforación CLXII. | CLXIII. 0
+CLXIV. 72.29 | CLXV. ALAMBRE DE LOS DEMAS ACEROS ALEADOS CLXVI. | CLXVII.
+CLXVIII.7229.20.00.00 | CLXIX. - De acero silicomanganeso CLXX. | CLXXI. 0
+CLXXII. 7229.90 | CLXXIII.- Los demás: CLXXIV. | CLXXV.
+CLXXVI.7229.90.10.00 | CLXXVII.- - De acero rápido CLXXVIII. | CLXXIX.0
+CLXXX. 7229.90.90.00 | CLXXXI.- - Otros CLXXXII. | CLXXXIII.0
 CAPITULO 73
 MANUFACTURAS DE FUNDICION, HIERRO O ACERO
 NOTAS.
