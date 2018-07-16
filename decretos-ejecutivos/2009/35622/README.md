@@ -14,3 +14,4 @@ Reglamento para el reconocimiento del incentivo por concepto de Zonaje para los 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-12-11 | la propia norma |
+| 2 | 2018-07-16 | Decreto Ejecutivo 41288 (2018-07-16) |
