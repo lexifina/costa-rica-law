@@ -14,3 +14,4 @@ Publica Resolución N° 215-2007 (COMIECO-XLVII) Reglamento Técnico Centroameri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-11 | la propia norma |
+| 2 | 2018-07-16 | Decreto Ejecutivo 41420 (2018-07-16) |

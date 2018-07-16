@@ -216,17 +216,7 @@ Apariencia | El producto debe estar libre de materia extraña.
 Índice de peroxides | 5 meq peróxido / kg de margarina
 Contenido de aceite/grasa | Deberá ser igual al declarado en la etiqueta.
 Microbiología | Deberá cumplir lo indicado en el numeral 3.2.2
-3.2.2 Características Microbiológicas:
-Las margarinas y grasas emulsionadas deberán cumplir con los parámetros microbiológicos que se establecen a continuación:
-Tabla Nº 5. Especificaciones de criterios microbiológicos para margarinas y grasas emulsionadas
-Parámetro | Plan de muestreo | Límite
-Tipo de riesgo C | clase | n 5 | c | m | M
-Recuento Mohos y Levaduras (margarinas con especias) | 3 | 1 | 102 UFC/g | 103 UFC/g
-Coliformes fecales | 3 | 1 | 3 NMP/g | 9.4 NMP/g
-E. coli | 2 | 0 | ---- | < 3 NMP/g
-Salmonella spp/25 g (solo si contiene leche o especies) | 2 | 0 | ---- | Ausencia
-Staphylococcus aureus (Solo para productos que contienen leche y especies) | 3 | 2 | 10 UFC/ml | 102 UFC/ml
-Listeria monocytogenes (Solo para productos que contienen leche) | | 2 | | 0 | ---- | Ausencia
+3.2.2 Características Microbiológicas: (Este numeral se dejó sin efecto por el apartado 3.a) de la parte dispositiva de la resolución N° 402-2018 (COMIECO-LXXXIII) de fecha 28/06/2018 y su Anexo:"Reglamento Técnico Centroamericano RTCA 67.04.50:17 Alimentos. Criterios Microbiológicos para la Inocuidad de los Alimentos", aprobada mediante decreto ejecutivo N° 41420 del 16 de julio del 2018)
 4. ADITIVOS ALIMENTARIOS
 Podrán utilizarse los siguientes aditivos:
 Categoría de Alimentos | Grasas y aceites y emulsiones grasas
