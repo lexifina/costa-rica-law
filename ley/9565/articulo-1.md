@@ -1,0 +1,8 @@
+N° 9565
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+DESAFECTACIÓN DEL USO PÚBLICO DE LA CALLE
+CERO ENTRE AVENIDAS CERO Y DOS DEL DISTRITO 01
+DEL CANTÓN DE SIQUIRRES DE LA PROVINCIA DE LIMÓN
+ARTICULO 1- Se desafecta del uso y dominio público la calle cero entre avenidas cero y dos, del distrito 01, cantón I, Siquirres de Limón.
