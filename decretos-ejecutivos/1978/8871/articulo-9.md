@@ -1,1 +1,0 @@
-Artículo 9°—Los demás Organismos Públicos o Privados que tengan interés e’n recibir y atender en forma especial a personas que salgan o ingresen al país, lo podrán hacer en las instalaciones que tiene la Dirección General de Aviación Civil en el restaurante del Aeropuerto, mediando el procedimiento de uso y pago establecido por las autoridades respectivas.

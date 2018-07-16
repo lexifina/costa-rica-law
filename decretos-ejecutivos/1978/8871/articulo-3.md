@@ -1,1 +1,0 @@
-Artículo 3°—Para poder contar con los servicios del Salón Diplomático, el interesado deberá así solicitarlo expresamente y con por lo menos cinco días de anticipación a la Dirección General de Aviación Civil.

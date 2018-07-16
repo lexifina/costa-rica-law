@@ -1,1 +1,0 @@
-Articulo 6°—Queda totalmente prohibido dentro “del Salón Diplomático el consumo de cualquier tipo de tabaco. El consumo de bebidas de contenido alcohólico será restringido y queda a juicio exclusivo de la Dirección General su autorización.
