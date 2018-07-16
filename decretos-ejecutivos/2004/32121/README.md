@@ -14,3 +14,4 @@ Pone en vigencia la Resolución N° 121-2004 (COMIECO).
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-12-01 | la propia norma |
+| 2 | 2018-07-16 | Decreto Ejecutivo 41420 (2018-07-16) |
