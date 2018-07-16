@@ -61,6 +61,7 @@ a) los estuches para cámara fotográfica, instrumentos musicales, armas, instru
 b) salvo lo dispuesto en la Regla 5 a) anterior, los envases que contengan mercancías se clasifican con ella cuando sean de los tipos normalmente utilizados para esa clase de mercancías. Sin embargo, esta disposición no es obligatoria cuando los envases sean susceptibles de ser utilizados razonablemente de manera repetida.
 6. La clasificación de mercancías en las subpartidas de una misma partida están determinada legalmente por los textos de estas subpartidas y de las Notas de subpartida así como , mutatis mutandis, por las Reglas anteriores, bien entendido que solo pueden compararse subpartidas del mismo nivel. A efectos de esta Regla también se aplican las Notas de Sección y de Capítulo, salvo disposición en contrario.
 D. El alcance, condiciones, limitaciones o exclusiones de una partida, deberán considerarse implícito en las subpartidas en que dicha partida se subdivide. El mismo criterio es aplicable a los incisos en relación a la subpartida a la que pertenecen.
+(Nota de Sinalevi: Mediante el artículo 2° del decreto ejecutivo N° 41396 del 16 de julio del 2018 “Publica Resolución N° 397-2018 (COMIECO-LXXXIII) de fecha 28 de junio de 2018, que aprueba para Panamá "la incorporación de un grupo de incisos arancelarios exceptuados en el Anexo 5.2 del Protocolo de Incorporación”, se establece reformar la presente Resolución N° 372-2015 (COMIECOLX7X1V) de fecha 04 de diciembre de 2015 y su Anexo: "Modificaciones al Arancel Centroamericano de Importación, que amplía los códigos arancelarios a diez dígitos e incorpora al Sistema Arancelario Centroamericano (MC) los resultados a la 60 Enmienda de la Nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías"; de conformidad con el párrafo cuarto de la parte considerativa y el numeral 1 de la parte dispositiva, todos de la Resolución N° 397-2018 (COIVIIECO-DOOCII) del 28 de junio de 2018. Por lo extenso de su contenido y tipo de formato el Listado de armonización de los derechos arancelarios a la importación (DAI) por Panamá debe ser consultado en el siguiente link)
 INDICE DE MATERIAS
 Sección I
 ANIMALES VIVOS Y PRODUCTOS DEL REINO ANIMAL
@@ -2006,9 +2007,6 @@ CODIGO | DESCRIPCION | DAI %
 1521.90.00.00 | - Las demás | 5
 1522.00.00.00 | DEGRAS; RESIDUOS PROCEDENTES DEL TRATAMIENTO DE GRASAS O CERAS ANIMALES O VEGETALES | 10
 NOTA DE SINALEVIi: Mediante Resolución N° 399-2018 (COMIECO-DCXXIII) de fecha 28 de junio de 2018 publicada mediante decreto ejecutivo N° 41391 del 16 de julio del 2018, en La Gaceta N° 226 del 5 de diciembre del 2018, aprueba la adopción, por parte de la República de Panamá, del código, la descripción y los Derechos Arancelarios a la Importación (DAI) del Arancel Centroamericano de Importación, para los incisos arancelarios correspondientes a grasas y aceites, en la forma y plazos que aparecen en el Anexo de la presente Resolución y que forma parte integrante de la misma.
-[imagen]
-[imagen]
-[imagen]
 Así mismo, quedan sin efecto los incisos arancelarios de las grasas y aceites de los Anexos 5.1 y 5.2 del Protocolo de Incorporación, incluidos en el Anexo a que hace referencia el punto primero de la Resolución N° 399-2018 (COMIECO-LXXXIII) de fecha 28 de junio de 2018.
 SECCION IV
 PRODUCTOS DE LAS INDUSTRIAS ALIMENTARIAS; BEBIDAS, LIQUIDOS ALCOHOLICOS Y VINAGRE; TABACO Y SUCEDANEOS DEL TABACO, ELABORADOS
