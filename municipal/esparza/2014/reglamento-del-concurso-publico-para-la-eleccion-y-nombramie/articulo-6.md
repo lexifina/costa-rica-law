@@ -12,5 +12,5 @@ i) Sensibilidad Interpersonal.
 j) Comunicación asertiva.
 k) Orientación de Servicio al Cliente.
 l) Excelente presentación personal.
-m)Experiencia en el manejo de personal a su cargo.
+m) Experiencia en el manejo de personal a su cargo.
 n) Capacidad para delegar.

@@ -1,1 +1,1 @@
-Artículo 27.—Período de prueba. Una vez nombrado en el puesto el nuevo Auditor queda sujeto al período de prueba por tres meses, pasado el cual, el Concejo informará a la Contraloría, su su aceptación o inconformidad con el desempeño del funcionario.
+Artículo 27.—Período de prueba. Una vez nombrado en el puesto el nuevo Auditor queda sujeto al período de prueba por tres meses, pasado el cual, el Concejo informará a la Contraloría, su aceptación o inconformidad con el desempeño del funcionario.

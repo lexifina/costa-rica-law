@@ -14,3 +14,4 @@ Reglamento del concurso público para la elección y nombramiento del Auditor In
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-19 | la propia norma |
+| 2 | 2018-07-16 | Reglamento municipal 0 (2018-07-16) |
