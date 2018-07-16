@@ -14,3 +14,4 @@ Pone en vigencia la Resolución 22-98 (COMIECO-VIII) que aprueba las reglas de o
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-26 | la propia norma |
+| 2 | 2018-07-16 | Decreto Ejecutivo 41390 (2018-07-16) |
