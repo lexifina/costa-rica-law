@@ -150,8 +150,7 @@ Función | Sustancia | Dosis máxima
 Antiespumante | Dimetilpolisiloxano | 10 mg/l en el producto terminado
 Gas de envasado | Nitrógeno | BPM
 Dióxido de Carbono | BPM
-4.2 Características de calidad e inocuidad.
-Los néctares deberán cumplir con las características sensoriales de color, olor y sabor propias de las frutas de que proceden. Deberán ser elaborados en condiciones higiénicas – sanitarias, de acuerdo con el RTCA 67.01.33:06, Industria de Alimentos y Bebidas Procesados. Buenas Prácticas de Manufactura. Principios Generales Reglamento Centroamericano de Buenas Prácticas de Manufactura.
+4.2 Características de calidad e inocuidad. (Este numeral se dejó sin efecto por el apartado 3.b) de la parte dispositiva de la resolución N° 402-2018 (COMIECO-LXXXIII) de fecha 28/06/2018 y su Anexo: "Reglamento Técnico Centroamericano RTCA 67.04.50:17 Alimentos. Criterios Microbiológicos para la Inocuidad de los Alimentos", aprobada mediante decreto ejecutivo N° 41420 del 16 de julio del 2018)
 Tabla 3. Características de calidad
 Características | Criterio | Método
 pH | Máximo de 4.5 | AOAC Cap. 42 981.12. Edición 17
@@ -159,10 +158,7 @@ Elementos histológicos | Característico del producto | OFSANPAN Vol. II 053-04
 Preservantes | Ausentes | AOAC 963.19, 994.11.Edición 17 AOAC 983.16. Edición 17
 Colorantes artificiales | Ausentes | AOAC 35.001, 35.002. Edición 10
 Tabla 4. Criterios microbiológicos
-Parámetro | Plan de muestreo | Límite
-Tipo de riesgo C | Clase | n 5 | c | m | M
-Recuento mohos y levaduras | 3 | 1 | 10 UFC/ ml | 20 UFC/ ml
-Coliformes totales | | 2 | | 0 | ------- | <3 NMP/ml
+(La tabla anterior se dejó sin efecto por el apartado 3.b) de la parte dispositiva de la resolución N° 402-2018 (COMIECO-LXXXIII) de fecha 28/06/2018 y su Anexo: "Reglamento Técnico Centroamericano RTCA 67.04.50:17 Alimentos. Criterios Microbiológicos para la Inocuidad de los Alimentos", aprobada mediante decreto ejecutivo N° 41420 del 16 de julio del 2018)
 4.3 Contaminantes
 Los productos regulados por las disposiciones del presente Reglamento deberán cumplir con los niveles máximos para contaminantes establecidos por la Comisión del Codex Alimentarius para estos productos.
 5. Etiquetado
