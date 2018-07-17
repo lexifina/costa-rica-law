@@ -1,5 +1,2 @@
-Artículo 85.- El Fondo de Mutualidad podrá invertir parte de sus recursos en forma de préstamos en el Colegio Federado, cuando la Junta Directiva General así lo disponga y de acuerdo a las siguientes condiciones:
-(Así reformado por Asamblea N° 05-03/04 del 24 de marzo y 19 de mayo de 2004 mediante acuerdo N° 37)
-a. Que la inversión no supere el monto total que sea menor entre el 50% de los recursos del Fondo, o el 15% del presupuesto original de egresos del Colegio Federado.
-b. Que la retribución al capital invertido sea similar a la imperante en el mercado.
-(Así reformado por Acuerdo de Sesión Nº 0 de 17 de enero de 2001)
+Artículo 85.—La enajenación de bienes muebles e inmuebles obtenidos como producto de las operaciones crediticias del Régimen de Mutualidad, por razones de celeridad y eficiencia en la atención de sus asuntos, se faculta que se realice con la autorización de la Junta Directiva General, previa recomendación de la Junta Administradora del Régimen de Mutualidad. La enajenación de dichos bienes deberá informarse a la Asamblea de Representantes, en la sesión ordinaria o extraordinaria más próxima que se convoque.
+(Así reformado mediante sesión N° 02-17/18-A.E.R. del 17 de julio del 2018)
