@@ -1,0 +1,2 @@
+Transitorio segundo. La Autoridad Concedente evaluará la aplicación y ejecución del Reglamento de Operaciones de la Terminal de Contenedores de Moín. En el plazo de seis meses contado a partir de la publicación de este decreto, deberá rendir un informe a la Presidencia de la República. Lo anterior sin perjuicio de la emisión de informes parciales, de considerarlo necesario.
+(Así adicionado el transitorio anterior por el artículo 1° del decreto ejecutivo N° 41217 del 17 de julio del 2018)

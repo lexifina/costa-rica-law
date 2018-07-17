@@ -141,4 +141,5 @@ articulo-140.md
 articulo-141.md
 articulo-142.md
 articulo-1-transitorio.md
+articulo-2-transitorio.md
 articulo-1-anexo.md
