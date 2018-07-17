@@ -1,2 +1,0 @@
-II.—De la prevención y divulgación
-Artículo 5º—Con la finalidad de prevenir el acoso u hostigamiento sexual, corresponderá a la Junta Directiva la responsabilidad de dictar la política interna que prevenga, desaliente, evite y sancione las conductas de hostigamiento sexual en el CNREE. Asimismo corresponderá a este Jerarca establecer y mantener actualizada la reglamentación interna, adecuada y efectiva, que permita las denuncias de hostigamiento sexual, garantizando su confidencialidad y el régimen sancionatorio para las personas hostigadoras cuando exista causa.

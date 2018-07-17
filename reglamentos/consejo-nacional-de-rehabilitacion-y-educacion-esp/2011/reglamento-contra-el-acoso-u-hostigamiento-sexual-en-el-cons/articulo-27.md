@@ -1,1 +1,0 @@
-Artículo 27.—Los plazos señalados para tramitar y resolver denuncias que se presenten se podrían ampliar, siempre y cuando con ello no se supere el término de tres meses, contados desde el momento de la interposición de la denuncia, según lo dispuesto por el artículo 5º, último párrafo de la Ley Nº 7476.

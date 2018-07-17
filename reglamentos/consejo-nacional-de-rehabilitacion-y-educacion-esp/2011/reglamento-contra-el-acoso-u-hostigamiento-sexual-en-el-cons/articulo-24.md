@@ -1,1 +1,0 @@
-Artículo 24.—Aquel que denuncie hostigamiento sexual falso, podría incurrir, en cualquiera de las conductas de difamación, injuria o la calumnia, estipuladas y sancionadas por la Ley en el Código Penal, Código de Trabajo o leyes conexas para lo cual el denunciado podrá seguir los trámites que considere necesarios.

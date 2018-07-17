@@ -1,1 +1,0 @@
-Artículo 2º—El objetivo del presente reglamento es prevenir, prohibir y sancionar el hostigamiento sexual como práctica discriminatoria por razón de sexo, contra la dignidad de las mujeres y de los hombres en el ámbito de trabajo del Consejo Nacional de Rehabilitación y Educación Especial.

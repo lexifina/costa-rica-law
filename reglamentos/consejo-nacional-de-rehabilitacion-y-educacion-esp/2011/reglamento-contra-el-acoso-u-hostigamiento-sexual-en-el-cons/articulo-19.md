@@ -1,1 +1,0 @@
-Artículo 19.—Concluida la audiencia de recepción de la prueba el Órgano Director deberá rendir un informe a la Autoridad Competente, en el cual se emitirán las conclusiones del proceso y las recomendaciones pertinentes. Esa autoridad deberá remitirle a la Defensoría la resolución final del caso.
