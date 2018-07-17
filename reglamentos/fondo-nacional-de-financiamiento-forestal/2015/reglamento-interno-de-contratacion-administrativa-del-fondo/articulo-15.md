@@ -1,4 +1,2 @@
-CAPÍTULO IV
-Disposiciones finales
-Artículo 15.—Competencia. La UPSG en lo no previsto en el presente Reglamento y salvo que la competencia o función sea asignada por norma expresa a otra Dependencia, como Proveeduría Institucional tendrá competencia para resolver y tramitar los diferentes asuntos conforme a la Ley de Contratación Administrativa y su Reglamento.
-Lo que no esté normado en el presente Reglamento Interno, se remitirá a la Ley de Contratación Administrativa y a su Reglamento; así como cualquier otra normativa vigente aplicable.
+Artículo 15.—Política de Razonabilidad de Precios. El Fondo Nacional de Financiamiento Forestal respalda e incorpora en sus procesos de planificación, presupuestación y contratación, acciones orientadas a la adquisición de bienes y servicios a precios razonables y de mercado; siguiendo la normativa, los lineamientos, la jurisprudencia y las buenas prácticas en la materia, para lograr el aprovechamiento óptimo de los recursos disponibles.
+(Así adicionado en sesión N° 05 del 17 de julio de 2018)
