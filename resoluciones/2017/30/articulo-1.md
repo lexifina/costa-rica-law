@@ -18,6 +18,7 @@ I. Aprobar el presente procedimiento de homologación de precintos electrónicos
 II. Dejar sin efecto la Resolución RES DGA-640-2005 de fecha dos de noviembre del dos mil cinco, a partir de la vigencia de la presente resolución.
 III. Otorgar la vigencia del certificado de homologación de precintos electrónicos con el mismo plazo estipulado en la resolución de inscripción ante la Dirección de Servicios de Seguridad Privados del Ministerio de Seguridad Pública, mediante Decreto N° 33128-SP de fecha 24 de mayo de 2006.
 IV. Las empresas que a la fecha de vigencia de la presente resolución se encuentran homologadas, contarán con un plazo de seis meses para cumplir a cabalidad con lo previsto en el presente procedimiento.
+(Nota de Sinalevi: Mediante resolución RES-DGA-DGT-020-2018 del 18 de julio de 2018, se acordó ampliar hasta por seis meses más el plazo establecido en el punto anterior, a fin de que las empresas homologadas puedan cumplir a cabalidad con lo previsto en el procedimiento para la solicitud de homologación y autorización de empresas encargadas de suplir, colocar y retirar precintos electrónicos.)
 Publíquese en el Diario Oficial La Gaceta, rige 10 días después de ser publicada.
 Procedimiento para la solicitud de homologación y autorización de empresas
 encargadas de suplir, colocar y retirar precintos electrónicos.
