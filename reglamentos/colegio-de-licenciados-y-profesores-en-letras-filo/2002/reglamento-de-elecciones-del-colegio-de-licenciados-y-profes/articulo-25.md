@@ -1,2 +1,0 @@
-Artículo 25.—En períodos de propaganda electoral, los miembros de la Junta Directiva, por principios éticos, no podrán utilizar las actividades del Colegio para fines de campaña electoral. Asimismo, no participarán en entregas de signos externos cubiertos con fondos del Colegio.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por la Asamblea General Extraordinaria XCVII, aprobada el 8 de febrero del 2003, publicada en La Gaceta No. 62 de 28 de marzo del 2003)

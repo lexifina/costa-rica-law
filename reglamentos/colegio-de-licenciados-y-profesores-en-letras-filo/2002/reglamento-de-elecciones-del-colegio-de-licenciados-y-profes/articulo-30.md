@@ -1,1 +1,0 @@
-Artículo 30.—Los miembros que resulten electos se juramentarán y asumirán sus funciones una vez que los acuerdos de la Asamblea tomen firmeza como lo señala el artículo 17 de la Ley, con excepción de los cargos que, con base en lo dispuesto en la Ley, el Reglamento General y el presente Reglamento, hayan sido impugnados.
