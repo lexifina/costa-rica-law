@@ -1,1 +1,0 @@
-Artículo 11.—Derogatorias. La presente resolución deroga la resolución N° RES-DGH-0026-2015 de las catorce horas del dieciséis de junio de dos mil quince y la directriz DGT-01-2010 del 09 de febrero de dos mil diez.

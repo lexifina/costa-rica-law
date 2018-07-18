@@ -1,1 +1,0 @@
-Artículo 2º—Potestad de la Dirección General de Tributación. Corresponde a la Dirección General de Tributación verificar que lo liquidado y cancelado por el obligado tributario, correspondiente a los citados tributos, resulte razonable al amparo del beneficio fiscal otorgado.
