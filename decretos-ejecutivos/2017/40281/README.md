@@ -26,3 +26,4 @@ Directrices generales de política presupuestaria, salarial, empleo, inversión 
 | 11 | 2018-06-04 | Decreto Ejecutivo 41201 (2018-06-04) |
 | 12 | 2018-06-04 | Decreto Ejecutivo 41197 (2018-06-04) |
 | 13 | 2018-07-19 | Decreto Ejecutivo 41234 (2018-07-19) |
+| 14 | 2018-07-19 | Decreto Ejecutivo 41235 (2018-07-19) |
