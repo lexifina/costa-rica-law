@@ -1,0 +1,1 @@
+Artículo 8°—En caso de que un acontecimiento de grandes proporciones afecte a varios habitantes de este cantón, la Municipalidad ayudará a tantas personas, o familias que le permitan los recursos establecidos anualmente en su Presupuesto Ordinario destinado previamente para tales fines.
