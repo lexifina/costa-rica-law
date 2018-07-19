@@ -1,0 +1,1 @@
+Artículo 3º—La Municipalidad de Flores cobrara una tasa por concepto de limpieza de los derechos de vías públicas a todos los propietarios de los inmuebles ubicados en los distritos que componen el cantón. La inclusión del cobro en el sistema y la administración del servicio recaerán en la Unidad Técnica de Gestión Vial de la Municipalidad.

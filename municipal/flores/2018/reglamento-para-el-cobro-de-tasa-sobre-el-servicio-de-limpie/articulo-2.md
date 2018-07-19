@@ -1,0 +1,1 @@
+Artículo 2º—Se entenderá por limpieza de vías públicas, aquella actividad técnica y artesanal, así como el costo financiero de ésta; que realiza la Municipalidad de Flores a través de sus dependencias en los derechos de vía bajo su jurisdicción.

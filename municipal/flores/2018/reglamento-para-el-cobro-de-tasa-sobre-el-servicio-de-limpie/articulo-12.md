@@ -1,0 +1,1 @@
+Artículo 12.—La tarifa comercial; es la tasa que se aplica sobre los metros lineales de frente de a aquellos inmuebles donde su uso es de actividades lucrativas (incluye comercial e industrial de todo tipo), y se ubique dentro del área de cobertura.

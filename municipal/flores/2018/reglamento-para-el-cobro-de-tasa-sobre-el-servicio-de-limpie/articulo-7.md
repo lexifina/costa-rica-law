@@ -1,0 +1,1 @@
+Artículo 7º—El monto de esta tasa se determinará tomando en consideración el costo efectivo de lo invertido por la Municipalidad para su la ejecución y mantenimiento, del servicio incrementándose en un diez por ciento (10%) de utilidad para el desarrollo.

@@ -1,0 +1,1 @@
+Artículo 9º—La Municipalidad revisará y actualizará anualmente las tasas por limpieza de vías y serán publicadas en el Diario Oficial La Gaceta una vez aprobados por el Concejo Municipal para entrar en vigencia.

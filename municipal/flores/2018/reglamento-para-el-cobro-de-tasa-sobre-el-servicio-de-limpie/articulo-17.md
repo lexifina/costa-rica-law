@@ -1,0 +1,2 @@
+Artículo 17.—Este Reglamento rige después de su publicación.
+El suscrito Alcalde Gerardo Rojas Barrantes sanciona y ordena la publicación del presente Reglamento conforme lo dispone el artículo 17 inciso d) del Código Municipal. Dado en la ciudad de San Joaquín de Flores, palacio municipal, al ser las siete horas del día veintiocho de junio de dos mil dieciocho. Publíquese una vez en el Diario Oficial La Gaceta.—

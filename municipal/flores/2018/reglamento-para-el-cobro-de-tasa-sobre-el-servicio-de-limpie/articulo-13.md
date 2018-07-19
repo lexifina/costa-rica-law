@@ -1,0 +1,1 @@
+Artículo 13.—La tarifa institucional; es la tasa que se aplica sobre los metros lineales de frente de aquellos bienes inmuebles donde su uso es de actividades estatales o instituciones descentralizadas o sin fines de lucro y que no se hallen exonerados del pago de tasas por medio de una ley especial.
