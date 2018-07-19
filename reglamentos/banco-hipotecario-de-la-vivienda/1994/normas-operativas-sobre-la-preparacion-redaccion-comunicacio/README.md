@@ -15,3 +15,4 @@ Normas operativas sobre la preparación, redacción, comunicación, ejecución y
 | --- | --- | --- |
 | 1 | 1994-03-07 | la propia norma |
 | 2 | 2004-04-29 | Reglamento 25 (2004-04-29) |
+| 3 | 2018-07-19 | Reglamento 36 (2018-07-19) |
