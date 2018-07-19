@@ -1,0 +1,1 @@
+Artículo 9º—Del Proceso de Catastro. El Proceso de Catastro es el encargado de identificar el número de finca y la ubicación exacta cuando esta tarea resulte difícil para el proceso correspondiente. Esta labor, la deberá realizar Catastro dentro del plazo máximo de tres (3) días hábiles contados después de recibido el formulario por parte del administrado.

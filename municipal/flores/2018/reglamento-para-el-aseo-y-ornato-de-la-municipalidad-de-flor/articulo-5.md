@@ -1,0 +1,6 @@
+Artículo 5º—De la queja. Cualquier interesado en dar cumplimiento a lo dispuesto en este Reglamento, sea vecino o no del cantón o se vea afectado o no por las omisiones que denuncia, podrá retirar, completar y entregar el formulario para la atención de quejas por lotes en estado de abandono, construcción u obstrucción de aceras, ante la Municipalidad. Los procesos asignados a este efecto son:
+■ Denuncias por lotes en estado de abandono, sin cerca, enmontados o con basura: Unidad Técnica Ambiental
+■ Denuncias de construcciones existentes que presentan problemas de salubridad por abandono: Unidad Técnica Ambiental
+■ Construcción de aceras en lotes en verde o frente a propiedades con construcciones existentes: Unidad Técnica de Gestión Vial
+■ Construcción de aceras frente a propiedades con obras en construcción: Inspecciones Urbano Tributarias
+El formulario a este efecto exigirá al menos la información, datos o señas que permitan localizar el lote donde verifique las omisiones, así como a su propietario, si es posible; motivo de la queja, hora y fecha de presentación de queja, funcionario que recibe la queja, nombre y forma de localización del quejoso así como indicación de lugar para atender notificaciones para lo que en derecho corresponda.
