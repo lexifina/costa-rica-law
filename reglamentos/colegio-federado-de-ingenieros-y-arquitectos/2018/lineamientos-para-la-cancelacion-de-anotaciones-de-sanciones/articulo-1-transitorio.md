@@ -1,0 +1,2 @@
+Transitorio: Los siguientes parámetros resultan aplicables para los procedimientos disciplinarios que se resuelvan posterior a la publicación del presente Lineamiento, en el Diario Oficial La Gaceta. Para los casos resueltos con anterioridad, a solicitud expresa del miembro sancionado, cuando requieran certificaciones sobre sanciones disciplinarias, el Departamento de Registro del Colegio Federado contará con un plazo de tres meses calendario, para actualizar los asientos de modo que se adapten a los rangos establecidos.”
+San José, 25 de junio del 2018.—
