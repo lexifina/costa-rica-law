@@ -1,3 +1,0 @@
-Artículo 9º—Para obtener la Declaratoria Turística deberá cumplirse con los requisitos establecidos en el artículo 8º y en las Guías de Requisitos para Declaratoria Turística (Anexos 1, 2 y 3), las cuales son parte integral del presente Reglamento.
-Asimismo las reclasificaciones que se realicen a las empresas turísticas, ya sea como consecuencia de una inspección o de la aplicación de un nuevo sistema de clasificación debidamente aprobado y publicado mediante decreto ejecutivo, serán aplicables en forma inmediata.
-(Así reformado mediante el artículo 1 del decreto ejecutivo N°29058 del 06 de noviembre del 2000).

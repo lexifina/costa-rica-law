@@ -1,2 +1,0 @@
-Artículo 12.—La declaratoria de empresa o actividad turística no otorga los beneficios establecidos en la Ley de Incentivos para el Desarrollo Turístico Nº 6990 y sus reformas y su reglamento y otros beneficios establecidos en la normativa vigente. Para obtener dichos beneficios deberán realizarse los trámites y procedimientos de contrato turístico una vez obtenida la declaratoria turística.
-(Así reformado mediante el artículo 1 del decreto ejecutivo N°29058 del 06 de noviembre del 2000).

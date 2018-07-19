@@ -1,9 +1,0 @@
-Artículo 6°—El Registro tendrá las secciones que sean necesarias a juicio del Instituto, sin perjuicio de que se establezcan las siguientes secciones como principales:
-a) Sección de Empresas de Hospedaje Remunerado: Incluirá hoteles, apartoteles, condohoteles, hoteles en tiempo compartido, cabinas, moteles turísticos, campamentos, albergues y otros cualquiera sea su denominación, que brinden este mismo servicio y cumplan con los requisitos y obligaciones especiales del Reglamento de Empresas de Hospedaje Turístico. (Así modificado por Decreto Nº 13513-MEIC del 6 de mayo de 1982).
-b) Sección de Agencias de Viajes: Comprende las empresas turísticas declaradas como tales por el Instituto de acuerdo con este Reglamento, la Ley Nº 5339 del 23 de agosto de 1973 y su Reglamento (Decreto Ejecutivo Nº 24779-MEIC-TUR del 14 de diciembre de 1995).
-c) Sección de Restaurantes: Incluirá a los restaurantes, cafeterías, bares, sodas y cuanto establecimiento sirva al público alimentos y bebidas, cualquiera sea su denominación.
-d) Sección de Arrendadoras de Vehículos: Comprende todas las empresas que presten un servicio de alquiler de vehículos automotores a los turistas para facilitarles su desplazamiento dentro del territorio nacional a cambio de un precio.
-e) Sección de Transporte Marítimo: Incluirá todas las empresas cuya actividad comercial consista en poner al servicio de los turistas cualquier embarcación tipo balsa, bote, crucero, moto acuática, velero, yate y similares.
-f) Sección de Transporte Aéreo: Comprende las empresas que presten un servicio de transporte por vía aérea interno o internacional en rutas itineradas o no.
-g) Sección de Congresos y Convenciones: Comprende las empresas públicas y/o privadas que desarrollen la actividad turística de congresos y convenciones.
-(Así reformado por el artículo 2 del decreto ejecutivo N° 36871 del 18 de octubre del 2011)

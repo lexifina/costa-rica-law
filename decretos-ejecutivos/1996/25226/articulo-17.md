@@ -1,5 +1,0 @@
-Artículo 17.—El procedimiento ordinario para la aplicación de lo dispuesto por el artículo 16, será el previsto en la Ley General de la Administración Pública.
-Concluida la investigación, si la denuncia resultare infundada cerrara el caso comunicándoselo así al denunciante y a la empresa respectiva.
-Si la denuncia resultare fundada, la Gerencia del Instituto tomará la resolución o acción correspondiente de acuerdo con este Reglamento y otras disposiciones normativas conexas.
-Para los efectos de lo dispuesto en este artículo, el Instituto considera como circunstancia atenuante, en los casos de cobro excesivo por error, que la empresa o actividad haya hecho devolución inmediata de la suma cobrada demás. Respecto a las denuncias por cualquier otro daño sufrido por los turistas se considerará también como atenuante, el que la empresa o actividad haya ofrecido al denunciante la reparación del daño junto con las disculpas correspondiente.
-(Así reformado mediante el artículo 1 del decreto ejecutivo N°26843 del 02 de marzo de 1998).
