@@ -1,0 +1,12 @@
+DIRECCIÓN GENERAL DEL SERVICIO CIVIL
+AVISO
+DG-AV-006-2018.—Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+DG-071-2018: Modificar el Manual Descriptivo de Especialidades Docentes Resolución DG-399-2010 Especialidad “Bibliotecología”.
+DG-072-2018: Modificar las siguientes Resoluciones: DG-399-2010 del Manual Descriptivo de Especialidades Docentes, para que se sustituya íntegramente la especialidad inglés. La DG-055-97, el Manual Descriptivo de Clases Docentes, sobre la descripción de la clase de Profesor de Enseñanza Media Bilingüe (G de E.), la creación de las clases Profesor de Enseñanza Técnico Profesional Bilingüe (III Ciclo y Educación Diversificada) (G. de E.) y de Directores de Colegios Bilingües. La DG-080-92 incluyendo el beneficio de la Dedicación Exclusiva a las clases de puesto de Director de Liceo Bilingüe 1, 2 y 3.
+DG-073-2018: Dejar sin efecto la Resolución DG-038-2018. Modificar el Manual Descriptivo de Especialidades Docentes Resolución DG-399-2010, en la Especialidad: “Turismo Rural”.
+DG-074-2018: Derogar la Resolución DG-030-2018. Modificar el Manual Descriptivo de Especialidades Docentes Resolución DG-399-2010, en la Especialidad Artes Plásticas y la Subespecialidades: “Escultura, Pintura, Grabado y Diseño”.
+DG-075-2018: Modificar los artículos 41 de la Resolución DG-333-2005 y el 28 de la Resolución DG-064-2008, que regulan el incentivo salarial de Carrera Profesional de los Títulos I y II del Estatuto de Servicio Civil, en lo que respecta a la modificación del valor de cada punto.
+DG-082-2018: Modificar la Resolución DG-254-2009 en cuanto a la determinación de la compensación económica que se reconocerá por concepto de Dedicación Exclusiva.
+DG-083-2018: Modificar la Resolución DG-399-2010 del Manual Descriptivo de Especialidades Docentes, en las Especialidades: “Contabilidad”, “Contabilidad y Finanzas”, “Banca y Finanzas”.
+DG-086-2018: Modificar la Resolución DG-399-2010 del Manual Descriptivo de Especialidades Docentes, en las especialidades: Accounting, Contabilidad Generalista, Contabilidad y Auditoría, Contabilidad y Costo, Contabilidad y Finanzas, de manera que en el apartado “Atinencias Académicas” se incluya las Carreras Diplomado en Dirección de Empresas impartida por el Colegio de Limón y las Carreras Bachillerato y Licenciatura en Dirección de Empresas, ambas impartidas por la Universidad de Costa Rica.
+Publíquese.—29 de junio del 2018.—
