@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Registro y control
+Artículo 25.—Registro de los bienes. La oficina de Contabilidad Municipal ¿?, llevará un inventario de los bienes, dicho registro será actualizado con la información que se obtenga de la compra de nuevos activos y sus traslados emitidos por las diferentes unidades funcionales, así como de las bajas que sean autorizadas por el Alcalde(sa) Municipal. Por lo tanto la responsabilidad de la oficina municipal que lleve el registro de los bienes, es mantener el inventario actualizado de acuerdo con lo indicado en el Manual Financiero Contable. No tiene ninguna responsabilidad con relación a la localización o estado físico de los bienes de las demás unidades funcionales.

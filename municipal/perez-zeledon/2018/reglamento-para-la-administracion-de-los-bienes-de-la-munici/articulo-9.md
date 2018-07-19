@@ -1,0 +1,1 @@
+Artículo 9º—Alta de bienes por producción propia. En el caso de bienes producidos internamente y que se registren como activos, la unidad funcional que los elabore deberá informar por escrito a la oficina de contabilidad, indicando la estimación del valor y vida útil, así como las características.

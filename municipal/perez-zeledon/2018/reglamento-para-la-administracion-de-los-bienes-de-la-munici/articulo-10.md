@@ -1,0 +1,1 @@
+Artículo 10.—Aparición de activos dados de baja. Cuando se ubica o recupera un activo que anteriormente haya sido dado de baja se deberá hacer la entrada al inventario nuevamente, si es necesario se asignará un nuevo número de placa.
