@@ -1,1 +1,1 @@
-Artículo 36.—Para los efectos del artículo anterior el Comité dispondrá de una cuenta corriente aparte
+ARTÍCULO 36.- OBLIGACIÓN DE ASISTIR A LAS SESIONES DE LA JUNTA DIRECTIVA: La persona Directora Ejecutiva debe asistir a todas las sesiones ordinarias a brindar su informe para lo cual deberá tener un apartado en la Agenda de la Sesión, y a sesiones extraordinarias, excepto cuando la Junta Directiva le indique lo contrario.

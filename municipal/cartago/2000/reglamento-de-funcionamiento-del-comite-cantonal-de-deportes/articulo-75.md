@@ -1,0 +1,1 @@
+ARTÍCULO 75.- EJERCICIO DEL DERECHO AL VOTO: Para ejercer el derecho al voto en las asambleas de organizaciones y asociaciones deportivas y recreativas, deberán encontrarse inscritas ante el Comité Cantonal de Deportes y Recreación.

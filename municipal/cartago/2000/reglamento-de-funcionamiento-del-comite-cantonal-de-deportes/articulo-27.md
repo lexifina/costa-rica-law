@@ -1,3 +1,1 @@
-CAPITULO IV
-Disposiciones Generales
-Artículo 27.—La Municipalidad de Cartago deberá incluir anualmente en su presupuesto un 3% como mínimo de los ingresos ordinarios anuales municipales. El Comité Cantonal distribuirá un 10% máximo para gastos administrativos y el resto para programas deportivos y recreativos.
+ARTÍCULO 27.- TIEMPO MÁXIMO PARA INICIO DE LAS SESIONES: Para que sean válidas las sesiones deberán iniciarse a más tardar quince minutos después de la hora señalada para tal efecto. En caso de falta de quórum se hará constar la asistencia de las personas presentes, para los efectos del artículo 17, inciso b, de este Reglamento.

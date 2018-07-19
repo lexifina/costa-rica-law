@@ -1,1 +1,3 @@
-Artículo 31.—La Municipalidad de Cartago facilitará al Comité un local que será su sede y las facilidades para el cabal funcionamiento de sus fines incluyendo funcionarios administrativos.
+ARTÍCULO 31.- PROYECTOS DE ACTAS, LEVANTAMIENTO DE ACTAS Y CUSTODIA DE LAS MISMAS: La persona que ocupe la Secretaría de la Junta Directiva será la responsable de levantar las actas, en ellas se harán constar los acuerdos tomados. El proyecto de acta de cada sesión deberá entregarse a las personas integrantes de la Junta Directiva del Comité, a más tardar veinticuatro horas antes de la sesión en que será discutida y aprobada.
+Las actas deberán asentarse puntualmente en el Libro de Actas debidamente autorizado por la Auditoría Municipal.
+El resguardo y custodia de dicho libro es competencia de la persona que ocupe el cargo de Secretaría.

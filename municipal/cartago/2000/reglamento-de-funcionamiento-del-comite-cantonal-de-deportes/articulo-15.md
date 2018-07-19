@@ -1,1 +1,1 @@
-Artículo 15.—Cualquier asunto que sea sometido a conocimiento del Comité deberá ser resuelto por medio de votación y se decidirá por mayoría simple de votos.
+ARTÍCULO 15.- RESPONSABILIDAD SOLIDARIA: Las personas integrantes del Comité Cantonal son responsables solidarios por los acuerdos del Comité, salvo que voten en contrario y manifiesten en el momento de la votación los motivos que justifican su voto, los cuales se harán constar en el acta de forma sucinta.

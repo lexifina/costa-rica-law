@@ -1,7 +1,2 @@
-CAPITULO III
-De los recursos y sanciones
-Artículo 18.—Se establece como sanción la destitución cuando alguno de sus miembros incurra en las siguientes causas:
-a) Ausencia injustificada a cuatro sesiones consecutivas.
-b) Por violación evidente a las leyes y reglamentos que regulan la materia.
-c) Cuando se incurra en actos lesivos a las buenas costumbres, y
-ch) Cuando dejen de residir en el cantón y hagan abandono de sus principales actividades.
+ARTÍCULO 18.- SOBRE EL PROCEDIMIENTO EN CASO DE DESTITUCIÓN DE UNA PERSONA INTEGRANTE DE LA JUNTA: Cuando una persona miembra incurra en cualquiera de las causales indicadas en los dos artículos anteriores, la Junta Directiva, y/o quien se encuentre informado; deberá comunicarlo por escrito al Concejo Municipal, indicando las razones que justifican la destitución del miembro de la Junta.
+El Concejo Municipal, previo debido proceso y otorgándole el derecho de defensa a la persona integrante de la Junta, procederá a destituirla e iniciar el procedimiento de selección y nombramiento de la persona que la sustituya, por el resto del plazo correspondiente, de acuerdo con lo dispuesto en este Reglamento.

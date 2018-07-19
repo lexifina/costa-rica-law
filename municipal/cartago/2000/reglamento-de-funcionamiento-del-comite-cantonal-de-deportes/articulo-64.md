@@ -1,1 +1,1 @@
-Artículo 64.—La Junta Administrativa, será la única autorizada para hacer nombramientos de personal que labore en el Polideportivo.
+ARTÍCULO 64.- JURAMENTACIÓN DE LAS PERSONAS ELECTAS DEL COMITÉ COMUNAL: Las nuevas personas integrantes al igual que las reelegidas, serán juramentadas por la Junta Directiva del Comité Cantonal.

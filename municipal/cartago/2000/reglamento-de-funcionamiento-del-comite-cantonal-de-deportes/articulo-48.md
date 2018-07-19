@@ -1,1 +1,1 @@
-Artículo 48.—Los Comités Comunales de los distritos podrán nombrar Comités de barrio o caserío cuando así se amerite siguiendo los procedimientos incluidos en el presente reglamento.
+ARTÍCULO 48.- INCLUSIÓN DE RECURSOS PROVINIENTES DE PARTIDAS ESPECÍFICAS: La Junta Directiva deberá incluir en su presupuesto el dinero de partidas específicas que tengan en sus cuentas corrientes, siempre y cuando se respete el destino de las mismas.

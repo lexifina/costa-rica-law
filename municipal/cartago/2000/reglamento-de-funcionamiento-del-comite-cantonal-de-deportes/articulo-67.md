@@ -1,5 +1,2 @@
-Artículo 67.—La Administración de las instalaciones deportivas y recreativas que se encuentran ubicadas en las instalaciones educativas oficiales o particulares, subvencionadas por el Estado, pasarán en horas no lectivas y en vacaciones, a cargo de un comité administrador por:
-a) El director de la Institución o su representante, preferiblemente miembro del Departamento de Educación Física.
-b) Un representante del Comité Cantonal de Deportes y Recreación de Cartago, y
-c) Un representante de la Municipalidad de Cartago.
-Todos deberán residir en el área geográfica cercana a donde está ubicada la instalación y durarán en sus cargos cuatro años.
+ARTÍCULO 67.- LIBROS LEGALES: Las Juntas Directivas de los Comités Comunales deberán llevar al día los libros de Actas y Tesorería; los que serán facilitados por el Comité Cantonal, debidamente legalizados por la Auditoría Municipal, en los que constarán todos los acuerdos tomados en las sesiones. Dichos libros podrán ser solicitados para su revisión por el Comité Cantonal y la comunidad en general. Asimismo, deberán llevar y custodiar recibos de dinero de la manera más adecuada en materia contable y de control interno.
+Es causal de cancelación de puestos de las personas miembras de las Juntas Directivas, si por dolo o culpa dejan transcurrir más de dos meses, una vez finalizado el libro, sin que hayan legalizado los nuevos libros ante la Auditoría Municipal.

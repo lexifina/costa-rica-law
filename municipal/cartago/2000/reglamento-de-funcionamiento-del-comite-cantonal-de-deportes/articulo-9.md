@@ -1,9 +1,13 @@
-Artículo 9°—Corresponde al presidente:
-a) Elaborar la orden del día.
-b ) Abrir, cerrar o suspender la sesión.
-c) Convocar a sesiones extraordinarias cuando así lo solicite el Comité.
-d) Someter a votación los asuntos tratados, anunciar el resultado de cada votación.
-e) Representar al Comité en todos aquellos eventos locales o nacionales.
-f) Firmar con el secretario las actas de cada sesión.
-g) Firmar con el tesorero los cheques y órdenes de pago, y
-h) Cualquier otra función que se le encomiende y que sea atinente al cargo.
+ARTÍCULO 9.- DE LA ESTRUCTURA ORGANIZATIVA BÁSICA DEL COMITÉ CANTONAL: La estructura organizativa básica del Comité Cantonal será la siguiente:
+I. Junta Directiva
+De su seno la Junta Directiva nombrará los siguientes cargos:
+a. Presidencia.
+b. Vicepresidencia.
+c. Secretaría.
+d. Tesorería.
+e. Vocalía.
+Todos estos cargos tendrán una vigencia de dos años.
+II. Para la atención de las labores y el cumplimiento de los fines del Comité, se contará con un Área de Dirección y Administración, que se integrará así:
+a. Dirección Ejecutiva.
+b. Subdirección Administrativa.
+c. Subdirección Deportiva.

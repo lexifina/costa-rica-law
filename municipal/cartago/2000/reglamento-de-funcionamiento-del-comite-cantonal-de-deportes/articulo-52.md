@@ -1,3 +1,1 @@
-CAPITULO VI
-De la administración de las instalaciones deportivas municipales
-Artículo 52.—Las instalaciones deportivas municipales tales como canchas de fútbol y zonas recreativas y deportivas existentes en el cantón, serán administradas por el Comité Cantonal de Deportes y Recreación de Cartago.
+ARTÍCULO 52.- USO INDEBIDO DE RECURSOS PROVENIENTES DE INGRESOS Y EGRESOS: Se prohíbe el uso de carácter personal y en general el uso o disposición indebida de dineros provenientes de ingresos por actividades deportivas o recreativas. En caso de incumplimiento de esta disposición, el responsable será expulsado del organismo u órgano correspondiente, debiendo reintegrar el dinero, sin perjuicio de las responsabilidades a que alude el artículo anterior.

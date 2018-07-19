@@ -1,1 +1,1 @@
-Artículo 20.—Luego de haber quedado en firme una decisión de destitución, el Comité solicitará a la Municipalidad la reposición inmediata del miembro separado, para lo cual pedirá a la institución que corresponda el envío de la respectiva terna.
+ARTÍCULO 20.- FUNCIONES DE LA VICEPRESIDENCIA: Son funciones de la Vicepresidencia sustituir a quien ocupe la Presidencia en ausencia de esta persona, con sus mismos deberes y obligaciones; y las demás que le asigne la Junta Directiva, que no excedan la naturaleza del cargo.

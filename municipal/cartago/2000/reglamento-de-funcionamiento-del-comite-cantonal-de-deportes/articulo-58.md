@@ -1,1 +1,7 @@
-Artículo 58.—La Junta Administrativa dictará los acuerdos concernientes a la Administración del Polideportivo y los acuerdos sobre erogaciones y pagos derivados de su labor. Dichos acuerdos serán enviados al Comité Cantonal de Deportes y Recreación para su rechazo o ratificación. Una vez ratificados mediante acuerdo del Comité serán ejecutados por el encargado de los mismos.
+ARTÍCULO 58.- DE LAS FUNCIONES DEL COMITÉ COMUNAL: Las funciones del Comité Comunal son las siguientes:
+a. Cumplir las funciones que le delegue la Junta Directiva del Comité Cantonal.
+b. Fomentar y regular la práctica del deporte y la recreación en la comunidad mediante la organización de actividades.
+c. Incentivar programas de recreación como alternativa de un mejor aprovechamiento del tiempo libre.
+d. Participar en las actividades programadas por las comisiones de apoyo de la Junta Directiva del Comité Cantonal, e informar a las vecinas y vecinos de dichas actividades.
+e. Gestionar la consecución de recursos económicos y materiales.
+f. Las demás que le asigne la Junta Directiva.

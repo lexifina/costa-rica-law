@@ -1,1 +1,1 @@
-Artículo 66.—La Junta Administrativa tendrá un presidente y secretario, y sus funciones se incluyen en los artículos 9° y 10 del presente Reglamento.
+ARTÍCULO 66.- REGIMEN SUPLETORIO APLICABLE A LAS SESIONES DE ESTOS COMITÉS: Para todas las sesiones, será aplicable lo dispuesto en el Capítulo VI de este Reglamento.

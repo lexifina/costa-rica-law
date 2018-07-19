@@ -1,7 +1,2 @@
-Artículo 5°—Para ser miembro del Comité Cantonal de Deportes y Recreación se requiere:
-a) Ser mayor de edad.
-b) Ser ciudadano costarricense o por naturalización con más de un aflo de residir en el país.
-c) Ser residente del cantón central.
-d) Ser de buenas costumbres.
-e) Ser ciudadano con un alto espíritu cívico y deportivo, y
-f) Poseer las aptitudes y preparación académica necesarias en los casos que la ley y el presente Reglamento así lo determinen.
+ARTÍCULO 5.- DEBER DE COORDINACIÓN DE INVERSIONES Y OBRAS CON LA MUNICIPALIDAD Y ASIGNACIÓN PRESUPUESTARIA MUNICIPAL MÍNIMA: De conformidad con el artículo 170 del Código Municipal, la municipalidad deberá asignarle un mínimo de un tres por ciento (3%) de los ingresos ordinarios anuales municipales; de este porcentaje, un diez por ciento (10%), como máximo, se destinará a gastos administrativos y el resto, a programas deportivos y recreativos.
+El Comité Cantonal podrá donar implementos, materiales, maquinaria y equipo para dichos programas, a las organizaciones deportivas aprobadas por el Instituto Costarricense del Deporte y la Recreación, que se encuentren debidamente inscritas en el Registro de Asociaciones, así como a las juntas de educación de las escuelas públicas y las juntas administrativas de los colegios públicos del respectivo cantón; además, podrá proporcionarles el local para su sede y las facilidades para el cabal cumplimiento de sus fines. Todo lo cual debe darse mediante acuerdo debidamente razonado y justificado por la junta directiva.

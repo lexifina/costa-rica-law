@@ -1,1 +1,1 @@
-Artículo 29.—El Comité Cantonal de Deportes y Recreación llevará registros contables, los que estarán sujetos a la fiscalización mensual de la Municipalidad y de la Contraloría General de la República.
+ARTÍCULO 29.- DEBER DE COMUNICACIÓN DE INASISTENCIAS: Toda persona miembra del Comité Cantonal deberá comunicar las razones de su inasistencia a las sesiones, a más tardar dentro de las veinticuatro horas siguientes de celebrada la sesión, en la oficina del Comité Cantonal y ante la Secretaría de Actas. En caso de omisión, la inasistencia se tendrá por injustificada.

@@ -1,1 +1,1 @@
-Artículo 25.—Son susceptibles de revisión todos aquellos acuerdos que no hayan sido aprobados definitivamente.
+ARTÍCULO 25.- DE LA PRIMERA SESIÓN DE UNA JUNTA: En la primera sesión, que la junta celebrará después de su juramentación por el Concejo Municipal, las personas integrantes se reunirán y mediante votación designarán los cargos a que se refiere el artículo 9.I de este Reglamento.

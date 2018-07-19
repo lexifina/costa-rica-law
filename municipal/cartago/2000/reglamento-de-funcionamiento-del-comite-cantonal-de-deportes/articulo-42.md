@@ -1,1 +1,1 @@
-Artículo 42.—Los miembros de los Comités Comunales durarán en su cargo dos años, podrán ser reelegidos y no devengarán dietas ni remuneración alguna.
+ARTÍCULO 42.- REQUISITO PARA OCUPAR UN PUESTO EN EL COMITÉ CANTONAL: Serán requisitos para ocupar los distintos puestos administrativos, operativos y los definidos en este Reglamento, los definidos en el Manual de Puestos que emita el Concejo Municipal.

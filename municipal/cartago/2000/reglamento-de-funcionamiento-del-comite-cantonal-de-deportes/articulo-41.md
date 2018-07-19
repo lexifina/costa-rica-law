@@ -1,1 +1,1 @@
-Artículo 41.—La asamblea general para el nombramiento de los Comités Comunales estará conformada por dos representantes de cada una de las organizaciones deportivas, recreativas y de desarrollo comunal existentes en la comunidad.
+ARTÍCULO 41.- DE LAS PERSONAS FUNCIONARIAS ADMINISTRATIVAS: Las personas funcionarias administrativas del Comité serán las encargadas de brindar los servicios operativos, contables y de oficina en general.

@@ -1,1 +1,1 @@
-Artículo 56.—La Comisión tendrá libro de actas debidamente autorizado por el Comité Cantonal y en él deberán constar sus acuerdos y solicitudes de pago, ingresos y egresos de la actividad del Polideportivo.
+ARTÍCULO 56.- AJUSTE A LAS EXIGENCIAS SOBRE FACTURA ELECTRÓNICA: En el momento en que entre a regir la facturación electrónica, el Comité deberá ajustar dicho procedimiento para los proveedores de bienes y servicios.

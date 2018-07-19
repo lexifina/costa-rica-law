@@ -1,0 +1,2 @@
+ARTÍCULO 79.- PROCEDIMIENTO PARA DESIGNACIÓN DE LAS PERSONAS REPRESENTANTES: La designación se realizará la segunda quincena de febrero cada dos años, para lo cual se requerirá mayoría simple de las personas miembras del Concejo.
+En caso de empate en los votos obtenidos por dos o más postulantes, se realizará una nueva votación con las que resultaron empatadas. De persistir el empate se sorteará entre las personas candidatas que recibieron el mayor número de votos.

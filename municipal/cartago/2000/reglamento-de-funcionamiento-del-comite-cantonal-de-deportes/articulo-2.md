@@ -1,2 +1,2 @@
-Artículo 2°—De las ternas que envíen las asociaciones deportivas y recreativas el Concejo escogerá dos miembros, y uno de las ternas de las asociaciones comunales. Las ternas deberán presentarse mediante nota debidamente sellada y firmada haciendo constar el acuerdo respecto.
-El Concejo Municipal no podrá escoger a personas que no vengan en la respectiva terna.
+ARTÍCULO 2.- DOMICILIO: El Comité Cantonal tendrá su domicilio legal en el Polideportivo de Cartago, ubicado en el Distrito Occidental. Sus sesiones se realizan en dicha sede.
+El Comité Cantonal podrá sesionar de manera excepcional y temporal en otros distritos del cantón de Cartago, para realizar actividades especiales.

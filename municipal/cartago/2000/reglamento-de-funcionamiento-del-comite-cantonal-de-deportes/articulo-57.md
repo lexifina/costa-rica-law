@@ -1,1 +1,3 @@
-Artículo 57.—El Comité Cantonal dispondrá de Sub Cuentas que se llamarán “Comisión del Polideportivo” y otra “Ingresos propios por actividades”, donde ingresarán los recursos provenientes del artículo 3° de la ley 6849, reformada mediante el artículo 10 de la ley 6890 (Ley del Impuesto al Cemento) y los ingresos por partidas o donaciones e ingresos que genere la actividad del Polideportivo respectivamente.
+CAPÍTULO XI
+COMITÉS COMUNALES DE DEPORTES Y RECREACIÓN
+ARTÍCULO 57.- DE LOS FINES DE LOS COMITÉS COMUNALES: Los Comités Comunales serán el órgano de enlace entre el Comité Cantonal y la comunidad respectiva, con el propósito de alcanzar a nivel distrital o vecinal los fines descritos en el artículo 1 de este reglamento. Serán los responsables de las actividades de promoción, desarrollo deportivo y recreativo de su comunidad:

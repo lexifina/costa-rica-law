@@ -1,1 +1,2 @@
-Artículo 30.—Para los efectos del artículo anterior, el Auditor Municipal realizará estudios contables y de aplicación de recursos, debiendo informar al Concejo y a la Contraloría General de la República sobre el resultado de dichos estudios.
+ARTÍCULO 30.- DEBER DE LLEVAR LOS LIBROS DE ACTAS: Todos los órganos colegiados a que se refiere este Reglamento, deberán llevar un libro de actas debidamente legalizado por la Auditoría Municipal, donde consten en forma sucinta los acuerdos y demás incidencias que éstos traten.
+Cuando una persona integrante del órgano colegiado haga constar su voto contrario al acuerdo adoptado, se deberán incluir los motivos que lo justifican.

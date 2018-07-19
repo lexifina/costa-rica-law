@@ -1,1 +1,2 @@
-Artículo 46.—El Comité Cantonal podrá solicitar para revisión los libros de Actas y Tesorería y podrá convocar a los Comités Comunales a reuniones de trabajo y revisión de su labor.
+ARTÍCULO 46.- CONTRATACIÓN DE SERVICIOS PROFESIONALES: Cuando el cumplimiento de los fines del Comité Cantonal así lo requieran, la Junta Directiva podrá autorizar la contratación de servicios de conformidad con lo dispuesto por la Ley de la Contratación Administrativa y su Reglamento, previa justificación técnica de la necesidad del servicio, y siempre que se cuente con el contenido presupuestario.
+En las contrataciones de servicios que se realicen no existirá relación de empleo entre los adjudicatarios, el Comité Cantonal y/o la Municipalidad de Cartago.

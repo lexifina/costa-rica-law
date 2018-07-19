@@ -1,0 +1,1 @@
+ARTÍCULO 88.- FACILITACIÓN DE INSTALACIONES AL CONCEJO Y LA ALCALDÍA: El Comité facilitará las instalaciones para la realización de actividades al Concejo y a la Alcaldía Municipal, para esto se le dirigirá una nota a la Junta para su debido conocimiento.
