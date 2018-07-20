@@ -1,0 +1,1 @@
+Artículo 17°-Regulaciones administrativas aplicables. Al personal del Órgano Fiscalizador le serán aplicables las mismas regulaciones administrativas y disciplinarias de los funcionarios del Consejo Nacional de Concesiones.

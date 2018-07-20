@@ -1,0 +1,1 @@
+Artículo 26º-Cualidades de la información. Los funcionarios del Órgano Fiscalizador deben identificar y documentar información suficiente, confiable, relevante y útil que les permita alcanzar los objetivos del trabajo.

@@ -1,0 +1,1 @@
+Artículo 29º-Requisitos de custodia. El Órgano Fiscalizador debe establecer requisitos de custodia para los registros y documentación del trabajo. Estos requisitos de retención deben ser consistentes con las regulaciones pertinentes u otros requerimientos sobre este tema.

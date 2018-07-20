@@ -1,0 +1,5 @@
+SECCIÓN IV
+DEL PERSONAL DEL ÓRGANO FISCALIZADOR
+Artículo 16°-Administración del personal del Órgano Fiscalizador. El Fiscalizador Coordinador es el titular subordinado responsable del Órgano Fiscalizador y el responsable directo de dicha unidad administrativa. Cualquier nombramiento, disminución, traslado, ascenso, permuta, remoción, ocupación de plazas, deberá informarse a la Junta Directiva del CNC.
+Para estos procesos, el Fiscalizador Coordinador llevará a cabo los trámites pertinentes ante la Dirección de Capital Humano y Gestión del CNC, bajo la normativa aplicable, según el ordenamiento jurídico vigente.
+En aras de garantizar la independencia y el desarrollo pleno de las tareas de los miembros del Órgano Fiscalizador para el cumplimiento de los fines estatuidos en el presente reglamento, ni la Secretaría Técnica, ni la Junta Directiva del CNC, ni la Administración Concedente podrán asignarles tareas o labores diferentes a las propias del proceso fiscalizador; considerando además que las labores que ejecuten sus miembros se realizarán al amparo de la independencia funcional y de criterio que ostenta dicho órgano.

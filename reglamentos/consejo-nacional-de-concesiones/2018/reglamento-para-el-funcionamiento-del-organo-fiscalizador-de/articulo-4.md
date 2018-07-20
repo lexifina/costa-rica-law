@@ -1,0 +1,2 @@
+Artículo 4°-Dependencia administrativa. El Órgano Fiscalizador se encontrará subordinado directamente a la Junta Directiva del Consejo Nacional de Concesiones, a quien deberá rendir cuentas de su labor fiscalizadora, sin embargo sus plazas pertenecerán al Régimen de Servicio Civil, y se ubicarán dentro de la estructura administrativa del CNC.
+En caso que la concesión que se fiscaliza tenga una Administración Concedente compleja, es decir con dos o más instituciones intervinientes, seguirá subordinado a la Junta Directiva del CNC.

@@ -1,0 +1,1 @@
+Artículo 12°-Asignación de recursos. El presupuesto que se le asigne al Órgano Fiscalizador estará conformado por las partidas de gasto que aporte el CNC; así como por los recursos pactados al efecto en los contratos de concesión.

@@ -1,0 +1,1 @@
+Artículo 28º-Registro de la información. Los funcionarios del Órgano Fiscalizador deben registrar sus actuaciones e informes siguiendo los procedimientos de archivo y control documental, establecidos por las instancias competentes.

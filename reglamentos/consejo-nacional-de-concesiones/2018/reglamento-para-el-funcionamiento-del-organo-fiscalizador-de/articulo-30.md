@@ -1,0 +1,1 @@
+Artículo 30°-Supervisión del trabajo. Los trabajos deben ser adecuadamente supervisados por el Fiscalizador Coordinador, o por el fiscalizador de área que haya sido designado como responsable de la supervisión del trabajo del Órgano en ausencia de él, para asegurar el logro de sus objetivos, la calidad del trabajo y el desarrollo profesional del personal.

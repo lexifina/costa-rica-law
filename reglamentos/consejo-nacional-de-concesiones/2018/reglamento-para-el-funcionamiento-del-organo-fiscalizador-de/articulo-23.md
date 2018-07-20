@@ -1,0 +1,10 @@
+Artículo 23º-0bligaciones de los miembros del Órgano Fiscalizador.
+1. Cumplir las competencias asignadas por ley, establecidas en el presente reglamento y las consignadas en los contratos de concesión.
+2. Cumplir el ordenamiento jurídico y técnico aplicable.
+3. Colaborar en los estudios que la Contraloría General de la República y otras instituciones realicen en el ejercicio de competencias de control o fiscalización legalmente atribuidas.
+4. Administrar de manera eficaz, eficiente y económica, los recursos bajo su responsabilidad.
+5. Abstenerse de participar en reuniones, inspecciones, giras, y/o cualquier otra actividad, cuya presencia o emisión de criterio sobre los temas de su competencia, pueda comprometer la objetividad, imparcialidad y/o pureza de los resultados reflejados en sus informes o reportes de fiscalización.
+6. Actuar de acuerdo con la programación de su plan de trabajo.
+7. Mantener bajo absoluta reserva y no divulgar a terceras personas ajenas al Órgano Fiscalizador (propias de la institución o foráneas), la información que con ocasión del desempeño de su trabajo, recaben, conozcan o reciban en forma oral, visual, escrita, grabada en medios magnéticos, digitales o electrónicos, o en cualquier otra forma tangible, cuya divulgación inadecuada, inoportuna, por los medios no oficiales, o a personas ajenas al Órgano Fiscalizador, pueda comprometer el nombre de la Institución, los resultados del proceso de fiscalización, el cobro de multas o la realización de procedimientos de incumplimiento a los concesionarios, los procedimientos de responsabilidad administrativa de funcionarios, así como cualquier otra gestión que la Administración debe llevar a cabo para garantizar el absoluto cumplimiento de las obligaciones establecidas en los contratos de concesión que se fiscalizan.
+8. Facilitar y entregar la información que les solicite la Asamblea Legislativa en el ejercicio de las atribuciones que dispone el inciso 23) del artículo 121 de la Constitución Política.
+9. Cumplir los otros deberes atinentes a su competencia.

@@ -1,0 +1,1 @@
+Artículo 9°-lndependencia funcional y de criterio. En la ejecución de sus labores y la comunicación de resultados, los funcionarios del Órgano Fiscalizador ejercerán su actividad con total independencia funcional y de criterio respecto de los jerarcas del Consejo Nacional de Concesiones y/o de los demás órganos de la Administración Concedente.

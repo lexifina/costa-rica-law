@@ -1,0 +1,1 @@
+Artículo 27º-Fundamentación. Las actuaciones, informes y reportes de los miembros del Órgano Fiscalizador deberán basarse en análisis y evaluaciones debidamente fundamentados, de conformidad con el marco contractual y normativo vigente.
