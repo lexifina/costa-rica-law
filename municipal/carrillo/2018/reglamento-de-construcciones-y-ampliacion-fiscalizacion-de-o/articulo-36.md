@@ -1,0 +1,4 @@
+Artículo 36.-El Registro de Construcciones estará integrado por tres subsistemas o subregistros, de la siguiente forma:
+a) El subregistro de Permisos de Solicitudes y Aprobaciones de Permisos de Construcción y actividades relacionadas, el cual contendrá toda la información relacionada con la solicitud y aprobación de permisos de construcción.
+b) El subregistro de Control de Inspecciones de Construcción, el cual comprenderá toda la información relacionada con la programación y ejecución del plan de inspección municipal, en materia de construcciones.
+c) El subregistro de Control y Seguimiento de Obras Clausuradas, el cual contendrá toda la información necesaria, a efecto de establecer el número y condiciones de las obras clausuradas, con el propósito de diseñar el proceso de seguimiento y control de propiedades declaradas en esta condición y el cumplimiento de las disposiciones normativas, reglamentarias y administrativas correspondientes.
