@@ -1,0 +1,1 @@
+Artículo 35º-Cada comisión deberá elaborar un plan de trabajo para el logro del objetivo que le fue impuesto al ser autorizado su funcionamiento y rendirá un informe escrito al Comité Cantonal sobre las actividades realizadas y resultados obtenidos, sobre los fines para los cuales fueron nombrados. Debiendo guiarse siempre por las leyes y reglamentos vinculantes.

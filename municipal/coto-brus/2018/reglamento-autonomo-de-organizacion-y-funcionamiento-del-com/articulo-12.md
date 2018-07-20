@@ -1,0 +1,1 @@
+Artículo 12º- Los miembros del Comité Cantonal y los Comunales, o terceros que formen parte de las comisiones que se designen según este Reglamento, no devengarán dietas ni remuneración alguna por su servicio voluntario a favor del desarrollo del deporte y la recreación.

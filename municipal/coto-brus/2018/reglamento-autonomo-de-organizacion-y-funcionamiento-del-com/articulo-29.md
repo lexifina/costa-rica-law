@@ -1,0 +1,2 @@
+Artículo 29º-Los acuerdos del Comité Cantonal, por excepción y por razones de urgencia y/o conveniencia institucional, podrán ser declarados firmes, por el voto de mayoría calificada, luego de su aprobación. Los acuerdos que sean declarados firmes, adquieren plena validez jurídica de inmediato y pueden ser ejecutados.
+La votación que declara firme un acuerdo se hará constar en el acta. Los otros acuerdos adquirirán su firmeza con la aprobación del acta en la sesión siguiente. Todos los acuerdos deben ser comunicados por la secretaría del Comité Cantonal a los interesados.

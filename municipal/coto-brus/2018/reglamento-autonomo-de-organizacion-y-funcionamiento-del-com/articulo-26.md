@@ -1,0 +1,1 @@
+Artículo 26º- Cuando un integrante del Comité Cantonal no asista a una sesión, debe de comunicar a la presidencia o vicepresidencia del Comité la justificación de su inasistencia. Para hacerlo, contará con un plazo máximo de veinticuatro horas.

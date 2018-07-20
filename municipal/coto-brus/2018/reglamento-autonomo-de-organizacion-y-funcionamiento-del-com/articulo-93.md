@@ -1,0 +1,1 @@
+Artículo 93º- El domicilio legal del Comité Cantonal de Deportes y Recreación de Coto Brus será el Cantón de Coto Brus de Puntarenas, Distrito San Vito, pudiendo variarse la sede en forma temporal y para la realización de actividades especiales.

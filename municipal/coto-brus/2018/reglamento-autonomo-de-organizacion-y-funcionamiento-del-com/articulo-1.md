@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE COTO BRUS
+El Concejo Municipal del Gobierno Local de Coto Brus, en Sesión Extraordinaria N° 059, celebrada el 13 de junio de 2017, Artículo VIII, Inciso 1-c, Aprobó el Reglamento Autónomo de Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación del Cantón de Coto Brus y que se publique en el Diario Oficial La Gaceta. Votación Unánime.
+REGLAMENTO AUTÓNOMO DE ORGANIZACIÓN Y FUNCIONAMIENTO DEL COMITÉ
+CANTONAL DE DEPORTES Y RECREACIÓN DEL CANTÓN DE COTO BRUS
+La Municipalidad de Coto Brus con sustento en lo establecido en los numerales 169 y 170, de la Constitución Política, artículos 13, inciso c), 43 y 164 a 172 del Código Municipal emite el presente proyecto de Reglamento Autónomo de Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación del Cantón de Coto Brus y los Comités Comunales de Deportes, los cuales al igual que el primero, se regirán por las siguientes disposiciones:
+CAPÍTULO I
+De la Constitución
+Artículo 1º-De conformidad a los artículos 164 y siguientes y concordantes del Código Municipal, en el Cantón de Coto Brus, existirá y funcionará un Comité Cantonal de Deportes y Recreación, que es un órgano desconcentrado pero adscrito a la Municipalidad de Coto Brus y ostentará personalidad jurídica instrumental y competencias específicas para construir, administrar y mantener las instalaciones deportivas de su propiedad u otorgadas en administración. Asimismo se organizará y funcionará al tenor de las normas contenidas en el presente Reglamento, en concordancia con la observancia del marco legal que le es de aplicación al mismo.

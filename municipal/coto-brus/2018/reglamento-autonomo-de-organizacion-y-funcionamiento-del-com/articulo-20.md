@@ -1,0 +1,4 @@
+CAPÍTULO V
+De las Sesiones
+Artículo 20º- El Comité Cantonal, sesionará en forma ordinaria una vez a la semana, en día, fecha y hora que fijará en forma permanente y mediante acuerdo el mismo Comité en su sesión inaugural y en forma extraordinaria, cuando lo convoque el mismo Comité o el Presidente. Por motivos especiales y del criterio de la mayoría simple de estos, podrá variarse la fecha y horas de las sesiones ordinarias. La convocatoria a sesión extraordinaria se debe hacer personalmente o al medio que cada miembro fije, con por lo menos veinticuatro horas de anticipación. En dicha convocatoria se debe señalar el orden del día de la sesión. En las sesiones extraordinarias sólo se conocerá lo incluido en la convocatoria o bien aquellos asuntos que por unanimidad de los miembros presentes, se decida incluir en la agenda. Los Comités Comunales sesionarán igualmente conforme lo establece este Reglamento.
+Las sesiones ordinarias y extraordinarias serán públicas.

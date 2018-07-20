@@ -1,0 +1,1 @@
+Artículo 43º- Cada mes, los tesoreros de los Comités Comunales deberán presentar ante el Comité Cantonal, el Libro de Tesorería, adjuntando las facturas, comprobantes y recibos correspondientes para su respectivo auditoraje. Si esta obligación no se cumpliese, el Comité Cantonal deberá parar cualquier gestión económica.

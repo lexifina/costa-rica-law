@@ -1,0 +1,1 @@
+Artículo 85º- Como requisito previo para el inicio de toda contratación, el Tesorero del Comité deberá dejar constancia escrita en el expediente respectivo, de la existencia de contenido presupuestario.

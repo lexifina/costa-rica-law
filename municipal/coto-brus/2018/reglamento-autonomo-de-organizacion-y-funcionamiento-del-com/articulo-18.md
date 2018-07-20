@@ -1,0 +1,11 @@
+Artículo 18º-Son funciones del Tesorero del Comité Cantonal, las que se detallan enseguida:
+a. Vigilar que los recursos económicos del Comité y el manejo de éstos, se ajuste en forma estricta a las más sanas prácticas financieras, contables y de control interno, de manera que se obtenga el mayor provecho de ellos.
+b. Fiscalizar que la recaudación de los ingresos económicos, ordinarios y extraordinarios del Comité, se realice siguiendo la normativa legal y de control vigente, de forma que los dineros ingresen a la cuenta corriente inmediatamente y se inviertan sanamente.
+c. Vigilar que la contabilidad se lleve siguiendo modernas prácticas, de forma que se asegure el correcto manejo del dinero.
+d. Fiscalizar que las cuotas, participaciones, donaciones y demás tipos de recursos que entren a los fondos del Comité sean inmediatamente depositados y se extiendan los respectivos recibos por el o los funcionarios autorizados.
+e. Autorizar con su firma, los cheques que emita la administración, previo visto bueno de los funcionarios internos que corresponda, de manera que se garantice la correcta y legal emisión de los mismos.
+f. Vigilar que las recomendaciones de la Auditoría Municipal y disposiciones de la Contraloría General de la República, en materia financiera y económica, se apliquen en forma estricta por parte de la administración y hacer las recomendaciones, que considere convenientes y prudentes, a la Junta Directiva para que el manejo económico del Comité, sea absolutamente sano y el presupuesto se emplee de la forma en que fue aprobado y de la mejor manera posible.
+g. Preparar y autorizar anualmente con su firma el informe económico que debe presentar el Comité Cantonal de Deportes y Recreación de Coto Brus al Concejo Municipal.
+h. Vigilar que la caja chica autorizada por el Comité, sea manejada cumpliendo en forma estricta las disposiciones para esta modalidad de gastos y con estricto apego a la racionalidad en el gasto de dineros público.
+i. Cualquier otra atinente al cargo.
+j. Para todo lo anterior, podrá utilizar como asesores al Tesorero Municipal o al Contador Municipal, a los que les aplicara para este caso, lo que mediante ley y jurisprudencia administrativa existe referente a Asesorar al Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 90º- Trámite de pago: Para todos los pagos se requiere copia de la orden de compra, factura original y el visto bueno del Presidente en el que se haga constar el recibido conforme de los bienes y/o servicios.

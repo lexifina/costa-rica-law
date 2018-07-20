@@ -1,0 +1,1 @@
+Artículo 21º- El Comité Cantonal, en su primera sesión y mediante votación secreta, escogerá de entre sus integrantes al presidente, el vicepresidente, el secretario, al tesorero y al vocal, quienes desempeñarán dichos cargos por períodos de dos años, pudiendo ser reelectos, sea, el período de nombramiento debe ser por dos años.

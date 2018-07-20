@@ -1,0 +1,1 @@
+Artículo 45º- El Comité Cantonal de Deportes y Recreación creará el manejo de una caja chica hasta por la suma del 1% de su presupuesto. La caja chica deberá ser autorizada y supervisada por el tesorero y el presidente.

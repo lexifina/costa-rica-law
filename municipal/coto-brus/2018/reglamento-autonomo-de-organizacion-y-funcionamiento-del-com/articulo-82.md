@@ -1,0 +1,1 @@
+Artículo 82º-El Comité deberá levantar un expediente administrativo, debidamente foliado, para cada contratación que realice. Dicho expediente, debe contener todos los requisitos y actuaciones referentes a la contratación, según la Ley de Contratación Administrativa.
