@@ -1,0 +1,3 @@
+Artículo 53°- Deducciones de cuotas
+La Unidad de Cobros de Colypro envía mensualmente a la Tesorería Nacional la nómina de sus colegiados para que se proceda con la deducción de las cuotas u otros cobros por obligaciones adquiridas con Colypro.
+Los colegiados que laboren en instituciones que no pertenezcan a la Administración Pública centralizada, o en aquellas pertenecientes al sector privado, deben autorizar ante Colypro la deducción de las cuotas mensuales u otras obligaciones. La Unidad de Cobros procede mensualmente con la remisión de nóminas a otras oficinas de personal de instituciones que contraten colegiados, para que procedan con la deducción correspondiente.

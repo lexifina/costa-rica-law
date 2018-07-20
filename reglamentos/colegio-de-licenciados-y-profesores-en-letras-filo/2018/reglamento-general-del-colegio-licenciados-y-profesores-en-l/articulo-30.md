@@ -1,0 +1,10 @@
+Artículo 30°- De la Junta Regional
+Las Juntas Regionales están integradas por los siguientes miembros: presidente, secretario, tesorero, vocal uno y vocal dos, nombrados en Asamblea Regional, mediante votación secreta, que garantice la paridad de género. Su nombramiento es por un periodo de tres años.
+En caso de renuncia, muerte o incapacidad permanente, los miembros de la Junta Regional pueden ser sustituidos, para lo cual se llama a ejercer el cargo, hasta por el resto del periodo que quede, al colegiado que por cantidad de votos ocupó el lugar inmediato inferior al último que resultó electo, respetando la integración paritaria. En caso de no existir candidato para ocupar la vacante, el Tribunal Electoral de Colypro convoca a elecciones para ese puesto, la cual se realiza en Asamblea Regional.
+Cuando la Junta Directiva de Colypro lo considere conveniente, previa investigación preliminar e informe de la Fiscalía, un miembro electo puede ser removido por incumplimiento de funciones o comisión de faltas graves, por lo que pierde sus credenciales como miembro de la Junta Regional. Dichas faltas están tipificadas en el presente Reglamento, con vista de lo indicado en el artículo 21 de la Ley que indica que dejan de ser miembros de la Junta Directiva:
+a) El que se separare o fuere separado del Colegio temporal o definitivamente, o pierda su condición de colegiado.
+b) El que sin causa justificada, a juicio de la Junta Directiva, deje de concurrir a tres sesiones ordinarias consecutivas, o el que se ausente por más de tres meses sin permiso de la Junta.
+c) El que por sentencia firme fuera declarado responsable de haber cometido delito o infringir alguna de las disposiciones contenidas en la Ley, en este reglamento o demás decretos aplicables al Colegio; y
+d) El que quede totalmente incapacitado.
+En los casos indicados en los párrafos anteriores, se tramita ante el Tribunal Electoral para que proceda como corresponde, de acuerdo al Reglamento de Elecciones.
+Los miembros de Juntas Regionales no pueden, simultáneamente, desempeñar ningún cargo en otro órgano, puesto administrativo o asesoría remunerada de Colypro.

@@ -1,0 +1,3 @@
+Artículo 50°- Modificación y liquidación del presupuesto
+La Junta Directiva, por mayoría de dos tercios del total de sus integrantes, puede acordar la modificación de partidas presupuestarias en casos muy calificados. El acuerdo debe detallar las justificaciones, consignándose además en el acta los documentos de respaldo. Este acto debe ser informado a la Asamblea General por la persona designada en la Tesorería de Colypro. El Tesorero de Junta Directiva informa trimestralmente a la Junta Directiva sobre la ejecución del presupuesto.
+En el mes de febrero de cada año, el Tesorero de Junta Directiva debe presentar ante dicho órgano un informe sobre la liquidación de presupuesto del año anterior y será presentada en la siguiente asamblea general ordinaria.

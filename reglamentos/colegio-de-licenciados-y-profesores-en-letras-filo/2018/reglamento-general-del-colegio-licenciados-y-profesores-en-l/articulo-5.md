@@ -1,0 +1,2 @@
+Artículo 5°- Derecho a la propia competencia
+Los miembros de Junta Directiva, Fiscalía, Juntas Regionales, integrantes del Tribunal Electoral, Tribunal de Honor y Comisiones, colegiados, así como funcionarios de Colypro no pueden asumir competencias que no les sean asignadas por ley, reglamento, disposición de Asamblea General o de la Junta Directiva y demás normas vigentes que les atribuyan según corresponda.

@@ -1,0 +1,8 @@
+Artículo 60°- Gastos de viaje y kilometraje
+a) En lo conducente a gastos de alimentación y kilometraje, Colypro aplica el monto indicado en el Reglamento de Gastos de Viaje para los funcionarios públicos aprobado por la Contraloría General de la República.
+b) Los gastos de viaje, kilometraje y hospedaje de los miembros de Junta Directiva serán aprobados por la Presidencia.
+c) Los gastos de viaje, kilometraje y hospedaje de los miembros de Comisiones y Tribunal de Honor serán aprobados por Junta Directiva. En casos excepcionales o de extrema necesidad, podrá aprobarlos la Presidencia, quien informa a la Junta Directiva.
+d) Los gastos de viaje y kilometraje de la Fiscalía y del Tribunal Electoral son aprobados por el Fiscal o quien presida al Tribunal respectivamente, y este funcionario informa a la Junta Directiva. Tales gastos son presentados ante la Dirección Ejecutiva para su tramitación.
+e) En el caso de los gastos de viaje y kilometraje para los miembros de las Juntas Regionales, son aprobados previo acuerdo de ese órgano y según las condiciones establecidas por la Junta Directiva de Colypro para tal fin.
+f) Los gastos de alimentación, hospedaje y kilometraje de los funcionarios de Colypro son autorizados, por escrito, por la Dirección Ejecutiva, quien informa a la Junta Directiva. En el caso del Director Ejecutivo y los funcionarios de Auditoría Interna y Departamento Legal, dichos gastos deben ser aprobados por la Presidencia, la cual informa a Junta Directiva.
+g) El reconocimiento económico para gastos de hospedaje para los colaboradores depende de una tabla creada por Colypro, previo estudio de mercado de las zonas, debidamente documentado, realizado por la Dirección Ejecutiva. Esta tabla se revisa, al menos, semestralmente.

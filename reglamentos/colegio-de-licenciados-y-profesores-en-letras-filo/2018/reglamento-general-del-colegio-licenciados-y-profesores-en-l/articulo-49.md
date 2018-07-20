@@ -1,0 +1,10 @@
+Artículo 49°- Presupuesto
+a) La elaboración del presupuesto está determinada por las políticas que orienten la formulación del Plan de Desarrollo del Colegio aprobadas por la Asamblea General, conforme a lo dispuesto por el artículo 13 de la Ley. A la Junta Directiva le corresponden los procesos de ejecución, evaluación y control; así como la elaboración de las políticas correspondientes.
+b) La Junta Directiva conformará una Comisión de Presupuesto, la cual estará integrada por quienes ostenten el cargo de Presidente, Tesorero (quien la coordinará) y otro miembro de la Junta Directiva designado por esta; así como Dirección Ejecutiva y personal administrativo necesario para elaborar el anteproyecto de presupuesto. Dicha Comisión asume la elaboración de los anteproyectos de presupuestos ordinarios y extraordinarios que sean aprobados por la Asamblea General; así como el seguimiento de la ejecución presupuestaria, conforme a las políticas que dicte la Junta Directiva.
+c) El presupuesto de Colypro debe obedecer a los fines establecidos en el artículo 2 de la Ley Orgánica Nº 4770 y sus reformas, para lo cual se establece lo siguiente:
+1. Los proyectos que pretendan ser incluidos en el presupuesto deberán presentarse a la Junta Directiva como parte del plan anual de trabajo.
+2. La Comisión de Presupuesto asignará a los Departamentos de Desarrollo Profesional y Humano y a la Fiscalía el presupuesto conforme al plan de trabajo presentado.
+3. Al Fondo de Mutualidad y Subsidios se le asigna la proporción de la cuota corriente necesaria para cumplir con los fines de este fondo, conforme a lo que establezcan los estudios actuariales pertinentes, los cuales se realizan cada tres años o cuando la Junta Directiva lo considere pertinente.
+4. Al área administrativa se le asignan los recursos necesarios para darle sostenibilidad a la gestión sustantiva de Colypro.
+d) En el anteproyecto se incluye una partida para responder a egresos no previstos.
+Cada proyecto debe ir respaldado con proyecciones de costos y sus documentos probatorios, como son criterios técnicos escritos, cotizaciones escritas, entre otros.
