@@ -1,0 +1,1 @@
+Artículo 5.- Utilización de los fondos de viáticos. La Caja Chica se podrá utilizar para realizar adelantos de efectivo y pagos de viáticos, requeridos por los colaboradores de la Operadora y miembros de la Junta Directiva, siguiendo los mecanismos indicados en los documentos internos de la Operadora

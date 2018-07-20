@@ -1,0 +1,2 @@
+Artículo 20.- Reintegro del fondo de Caja Chica. El responsable de cada fondo de Caja Chica debe coordinar el reintegro del efectivo, y debe tener el cuidado de que el fondo no se agote. Para ello el trámite lo hará con la Tesorería considerando el volumen de compras que se tramitan en dicho fondo.
+Para efectos de reintegro de los fondos, los pagos que se hagan mediante transferencia, se deben incluir en el reintegro con la factura correspondiente, para efectos de registro.

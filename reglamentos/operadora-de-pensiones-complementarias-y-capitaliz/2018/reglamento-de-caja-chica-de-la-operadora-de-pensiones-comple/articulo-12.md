@@ -1,0 +1,1 @@
+Artículo 12.- Autorización de adelantos. Los vales de Caja Chica deberán ser autorizados mediante la firma del Jefe, Supervisores o encargado de las Unidades Solicitantes, debiendo previamente verificar el contenido presupuestario, con el fin de garantizar la existencia de los recursos en el presupuesto.

@@ -1,0 +1,1 @@
+Artículo 10.- Cierre. El cierre de los fondos de Caja Chica será responsabilidad exclusiva de la Dirección Financiera Administrativa, quien deberá elaborar un informe escrito debidamente fundamentado con indicación clara de las razones que justifican el cierre.
