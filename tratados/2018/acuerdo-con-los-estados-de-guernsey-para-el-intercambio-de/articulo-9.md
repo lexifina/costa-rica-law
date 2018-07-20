@@ -1,0 +1,3 @@
+Artículo 9
+Costos
+A menos de que las autoridades competentes de las Partes acuerden lo contrario, los costos indirectos incurridos en proveer asistencia deberán ser cubiertos por la Parte requerida y los costos directos incurridos en proveer asistencia (incluyendo los costos de involucrar a asesores externos en relación con litigio u otros) deberán ser cubiertos por la Parte requirente. Las autoridades competentes respectivas deberán consultarse de tiempo en tiempo con respecto a este artículo y en particular la autoridad competente de la Parte requerida deberá consultar previamente con la autoridad competente de la Parte requirente si los costos de proveer información con respecto a un requerimiento específico se espera que sean significativos.
