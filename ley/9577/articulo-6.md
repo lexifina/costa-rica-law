@@ -1,0 +1,1 @@
+ARTICULO 6- Se autoriza a las municipalidades, en las zonas de su competencia, para que apliquen la moratoria en los términos establecidos en la presente ley, previo dictamen favorable del órgano municipal competente.
