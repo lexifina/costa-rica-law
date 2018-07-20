@@ -1,0 +1,1 @@
+ARTÍCULO 10- Acceso a recursos de financiamiento. Los bancos públicos otorgarán facilidades crediticias en condiciones preferenciales de plazo y tasa de interés a los consorcios empresariales que se encuentren bajo el amparo de la presente ley.
