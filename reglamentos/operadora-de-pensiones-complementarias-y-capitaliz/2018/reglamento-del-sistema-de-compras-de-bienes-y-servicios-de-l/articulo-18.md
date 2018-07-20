@@ -1,0 +1,2 @@
+Artículo 18.- De los estudios de las ofertas y la recomendación de la adjudicación. Los estudios técnicos ya sean internos o externos, deberán ser suscritos por el responsable de su elaboración. Además, se deberá emitir la recomendación de adjudicación, de declaratoria de desierto o infructuoso del concurso, o de adjudicación parcial, tomando en cuenta el resultado del análisis financiero y técnico de las ofertas que se haya realizado.
+La Proveeduría confeccionará la recomendación que corresponda y la trasladará para el dictado del acto final.

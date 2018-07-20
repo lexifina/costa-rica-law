@@ -1,0 +1,1 @@
+Artículo 16.- Elaboración de carteles y la invitación a participar. La elaboración de los carteles de los procedimientos de contratación se hará con base en la información aportada en la Decisión Inicial y las invitaciones se harán de conformidad con lo establecido por la Ley y el Reglamento.

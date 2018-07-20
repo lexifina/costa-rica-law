@@ -1,0 +1,1 @@
+Artículo 15.- Selección de procedimientos. La selección de los procedimientos de contratación corresponderá a la Proveeduría la cual deberá definir el tipo de procedimiento que corresponde para la compra de los bienes y servicios solicitados.

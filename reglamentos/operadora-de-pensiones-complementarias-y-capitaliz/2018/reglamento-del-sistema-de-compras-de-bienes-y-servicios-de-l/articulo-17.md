@@ -1,0 +1,1 @@
+Artículo 17.- Recepción de ofertas. Los plazos para la recepción de ofertas serán establecidos dependiendo de las características del tipo de bien y servicio que se pretende contratar, una vez concluido el plazo de recepción de ofertas se deberá proceder con la apertura de ofertas y a elaborar un acta en los casos de los procedimientos ordinarios.

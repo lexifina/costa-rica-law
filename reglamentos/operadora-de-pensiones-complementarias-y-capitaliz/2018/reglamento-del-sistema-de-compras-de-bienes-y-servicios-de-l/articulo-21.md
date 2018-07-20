@@ -1,0 +1,1 @@
+Artículo 21.- Recepción, almacenamiento y entrega. Para la recepción de los bienes y suministros deberá completarse un formulario (acta) en el cual deberán constar las cantidades, marca, modelo y características, de los bienes en concordancia con lo adjudicado, así como toda otra información pertinente, y será suscrita por el funcionario encargado de recibir los bienes.

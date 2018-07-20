@@ -1,0 +1,1 @@
+Artículo 4.-Ámbito de aplicación. Este Reglamento se aplicará para la compra de bienes, servicios y obras que se lleven a cabo en la Operadora. Las contrataciones que se hagan mediante el procedimiento de Caja Chica serán realizadas según lo definido en el Reglamento de Caja Chica de la OPCCCSS.

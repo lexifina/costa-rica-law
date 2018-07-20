@@ -1,0 +1,2 @@
+Artículo 20.- Formalización del contrato. Salvo en los casos que la ley lo contemple, se podrá formalizar la contratación por medio de una Orden de Compra, para lo cual deberá tomar en cuenta las respectivas resoluciones de la adjudicación y lo establecido en el pliego de condiciones.
+La orden de compra deberá ser firmada por la Dirección Financiera Administrativa, sin embargo, los contratos deberán ser firmados por el Presidente de la Junta Directiva y el Gerente General según corresponda

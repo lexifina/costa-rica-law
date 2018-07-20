@@ -1,0 +1,6 @@
+Artículo 19.- Del acto final. La Junta Directiva, la Gerencia General o la Dirección Financiera Administrativa o la Proveeduría, adjudicarán los trámites de contratación según los siguientes rangos de acción, establecidos por la CGR:
+La Junta Directiva: Los procesos de contratación cuyo monto de adjudicación sea igual o mayor al 50% de límite máximo de las Licitaciones Abreviadas.
+La Gerencia General: Los procesos de contratación cuyo monto de adjudicación sea igual o superior al 50% del límite máximo para para promover una Contratación Directa, pero inferior al 50% del límite máximo de la Licitación Abreviada.
+La Dirección Financiera Administrativa: Los procesos de compra cuyo monto de adjudicación sea igual o superior al 5% de monto de la Compra Directa de Escasa Cuantía, pero inferior al 50% del límite máximo de la Contratación
+Directa. La Unidad de la Proveeduría: Los procesos de compra cuyo monto de adjudicación sea inferior al 5% de monto de la Compra Directa de Escasa Cuantía Licitación Abreviada.
+Tanto a la Junta Directiva, como a la Gerencia General, a la Dirección Financiera Administrativa y la Unidad de la Proveeduría, le corresponderá resolver las declaratorias de desiertas o infructuosas cuya estimación inicial se encuentre dentro del rango establecido para la adjudicación bajo su competencia.
