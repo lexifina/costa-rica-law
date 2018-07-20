@@ -1,0 +1,1 @@
+Artículo 3º—Se instruye a los Ministros de las instituciones que lideraron las diferentes mesas de trabajo implementar las acciones definidas en el “Plan Nacional en Logística de Cargas -PNLog Costa Rica, 2014 - 2024”.

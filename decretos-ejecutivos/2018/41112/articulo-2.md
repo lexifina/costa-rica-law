@@ -1,0 +1,1 @@
+Artículo 2º—A los efectos del presente decreto deberá entenderse como logística de carga lo que comprende todas aquellas actividades asociadas al transporte y almacenamiento de bienes en el sistema económico, y es un componente integral del conjunto de decisiones que adoptan las unidades productivas al momento de llevar adelante los procesos de producción y comercialización.

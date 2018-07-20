@@ -1,0 +1,1 @@
+Artículo 4º—Para los efectos de la implementación del plan, el Sector Transporte e Infraestructura impulsará las acciones que le corresponden, en coordinación con las instituciones que sean necesarias y en armonía con lo estipulado en el “Plan Nacional de Transportes de Costa Rica 2011-2035”.
