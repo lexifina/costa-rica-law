@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el inciso c) del artículo 28 del Decreto Ejecutivo N° 37615-MP, Reglamento a la Ley 8228 del Benemérito Cuerpo de Bomberos de Costa Rica, del 04 de marzo del 2013, publicado en Alcance N° 61 de La Gaceta N° 66 del 05 de abril del 2013.
