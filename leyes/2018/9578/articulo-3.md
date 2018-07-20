@@ -1,0 +1,1 @@
+ARTICULO 3-Prohibición de utilizar estos fondos para otros gastos. Los recursos a los que se refiere esta ley no podrán ser empleados para cubrir gastos de administración de ningún régimen de pensión, ni para saldar gastos propios de la Caja Costarricense de Seguro Social (CCSS).
