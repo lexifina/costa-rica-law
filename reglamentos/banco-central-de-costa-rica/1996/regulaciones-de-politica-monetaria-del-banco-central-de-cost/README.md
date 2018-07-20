@@ -91,3 +91,4 @@ Regulaciones de Política Monetaria del Banco Central de Costa Rica
 | 76 | 2015-05-06 | Reglamento 5686 (2015-05-06) |
 | 77 | 2015-10-13 | Reglamento 5703 (2015-10-13) |
 | 78 | 2016-10-19 | Reglamento 5742 (2016-10-19) |
+| 79 | 2018-07-20 | Reglamento 5834 (2018-07-20) |
