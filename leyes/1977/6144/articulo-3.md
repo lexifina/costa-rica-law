@@ -1,17 +1,9 @@
 CAPITULO II
 Miembros
-Artículo 3º.- El Colegio estará integrado por:
-a) Los Licenciados en Psicología de la Universidad de Costa Rica, con
-título obtenido a la fecha de promulgación de esta ley.
-b) Los profesionales con doctorado, maestría y licenciatura e
-psicología, de universidades del exterior, que a la misma fecha se
-encuentren incorporados en universidades costarricenses, por
-reconocimiento de equiparación.
-c) Los profesionales con doctorado, maestría y licenciatura en
-psicología, de universidades nacionales y extranjeras, que se
-gradúen en el futuro, y pidan u obtengan su inscripción en el
-colegio.
-d) Los miembros de honor, como dignidad atribuible por la Junta
-Directiva de profesionales extranjeros de visita en el país, que se
-hayan distinguido significativamente por sus aportes personales a la
-ciencia psicológica.
+Artículo 3- El Colegio estará integrado por lo siguiente:
+a) Profesionales con grado mínimo de licenciatura en psicología, graduados de las universidades del país debidamente autorizadas por los organismos competentes.
+b) Profesionales con grado mínimo de licenciatura en psicología, graduados en universidades extranjeras que hayan cumplido con el trámite de reconocimiento y/o la equiparación del titulo ante las autoridades correspondientes.
+El Colegio incluirá, en el registro único, los posgrados que obtengan las personas colegiadas con grado mínimo de licenciatura en psicología, emitidos por universidades nacionales autorizadas ante los organismos competentes.
+En el caso de títulos emitidos por universidades extranjeras, deberán contar con el trámite de reconocimiento y equiparación ante las autoridades correspondientes.
+Corresponde a la Junta Directiva, según el reglamento respectivo, conceder la condición de miembro de honor, como dignidad atribuible a profesionales extranjeros de visita en el país, que se hayan distinguido significativamente por sus aportes personales a la ciencia psicológica.
+(Así reformado por el artículo único de la ley N° 9572 del 4 de junio de 2018)

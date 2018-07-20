@@ -1,10 +1,9 @@
-Artículo 20.- La Junta Directiva es el órgano ejecutivo del Colegio
-y estará integrada por: un presidente; un vicepresidente; un secretario;
-un tesorero; un fiscal y dos vocales. Los Directores durarán dos años en
-funciones y sólo podrán ser reelectos, sin solución de continuidad, por un
-período más.
-No pueden formar parte de una misma Junta Directiva los colegiados
-que tengan parentesco entre sí, por consanguinidad o afinidad, hasta el
-segundo grado inclusive. Los Directores serán renovados así: un año el
-presidente, el secretario, el tesorero y el primer vocal y el otro año, el
-vicepresidente, el fiscal y el segundo vocal.
+Artículo 20- La Junta Directiva es el órgano ejecutivo del Colegio y estará integrada por las personas colegiadas que resulten electas para ocupar los cargos de: presidencia, vicepresidencia, secretaría, tesorería, y las tres vocalías.
+Las personas elegidas como integrantes de la Junta Directiva durarán dos años en funciones y solo podrán ser reelegidas al mismo cargo de forma continua y únicamente por un período más.
+No pueden formar parte de una misma Junta Directiva las personas colegiadas que tengan parentesco entre sí, por consanguinidad o afinidad, hasta el segundo grado inclusive.
+Los cargos directivos serán renovados así: un año, la presidencia, la secretaria, la tesorería y la primera vocalía y, el otro año, la vicepresidencia, la segunda y tercera vocalías. El año en que deba elegirse la vicepresidencia se elegirá a la persona que ocupará el cargo de fiscal.
+El año en que se elija a la persona que ocupará el cargo de la presidencia se elegirán tres suplentes. En el caso de renuncia, muerte o impedimento de un directivo para terminar su período de nombramiento, el cargo lo asumen los suplentes hasta finalizar el plazo de nombramiento de la persona sustituida. La renuncia o muerte de la persona que ocupe el cargo de presidencia será suplida por quien ocupe el cargo de vicepresidencia y este cargo será asumido por uno de los suplentes. Para llenar la vacante, la Junta Directiva deberá comunicar la ausencia al Tribunal Electoral, órgano que llamará a ocupar el cargo al suplente que haya obtenido el mayor número de votos en la elección respectiva; en caso de empate, asumirá el cargo el colegiado con más años de membresía. Si los suplentes se encuentran imposibilitados para asumir el cargo, el Tribunal convocará a elecciones, las cuales se realizarán mediante Asamblea General extraordinaria convocada al efecto; para ello, el Tribunal Electoral coordinará lo necesario con la Junta Directiva.
+La elección general de Junta Directiva y fiscal, cuando corresponda, se realizará mediante elección abierta a celebrarse el primer viernes del mes de noviembre de cada año; para lo cual el Tribunal Electoral convocará según el Reglamento de Elecciones que al efecto deberá dictar la Asamblea General.
+La votación podrá realizarse por medios o dispositivos electrónicos, o de manera presencial en los centros de votación que para tal propósito deban habilitarse, según lo disponga el Tribunal Electoral y su reglamento.
+Las personas electas serán juramentadas por la Presidencia del Tribunal Electoral, en la Asamblea General ordinaria, e iniciarán funciones el primer día hábil del mes de diciembre siguiente.
+(Así reformado por el artículo único de la ley N° 9572 del 4 de junio de 2018)
