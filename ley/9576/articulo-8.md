@@ -1,0 +1,3 @@
+ARTÍCULO 8- Obligaciones del consorcio. Las empresas que forman parte del consorcio deberán cumplir con lo estipulado en el artículo 3 de la Ley N.º 8262, Ley de Fortalecimiento de las Pequeñas y Medianas Empresas, de 2 de mayo de 2002, y sus reformas.
+En caso de que alguna de las empresas consorciadas incumpla, el ente rector apercibirá a dicha empresa, para que en el plazo de diez días hábiles, a partir de la notificación, cumpla con lo mencionado en el párrafo anterior. Si vencido el plazo no se ha cumplido con lo establecido en el presente artículo, se procederá a la cancelación de la licencia de funcionamiento y dará por concluida la relación contractual del consorcio.
+Las obligaciones tributarias serán asumidas por cada una de las empresas de forma individual.
