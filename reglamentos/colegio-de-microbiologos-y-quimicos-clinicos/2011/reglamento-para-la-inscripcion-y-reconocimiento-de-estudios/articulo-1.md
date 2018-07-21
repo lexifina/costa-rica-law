@@ -14,9 +14,13 @@ SEP: Sistema de Estudios de Posgrado de la UCR.
 CODEM: Comisión de Especialidades en Microbiología de la Facultad de Microbiología UCR, o su equivalente en el futuro.
 PPMQC: Programa de Posgrado en Microbiología y Química Clínica de la Facultad de Microbiología UCR, o su equivalente en el futuro.
 Facultad: Facultad de Microbiología de la UCR o sus equivalentes.
-CONESUP: Consejo Nacional de Educación Superior, o su equivalente en el futuro.
-CONARE: Comisión Nacional de Rectores de las universidades públicas de educación superior, o su equivalente en el futuro.
-Posgrado: Grado académico obtenido una vez concluido el plan de estudios de la Licenciatura en Microbiología y Química Clínica de la UCR u otra universidad que ofrezca la carrera en el futuro, o en el caso de extranjeros, después de que el correspondiente título haya sido reconocido y equiparado al grado de Licenciatura en Microbiología y Química Clínica, por cualquiera de las universidades antes mencionadas.
+CONESUP: Consejo Nacional de Educación Superior Privada, o su equivalente en el futuro.
+(Así reformada la definición anterior en sesión N° 01 del 21 de julio de 2018)
+CONARE: Consejo Nacional de Rectores o su equivalente en el futuro.
+(Así reformada la definición anterior en sesión N° 01 del 21 de julio de 2018)
+Posgrado: Grado académico obtenido posteriormente a la Licenciatura en Microbiología y Química Clínica, que se reconoce solamente a los colegiados activos. A los que obtienen títulos en el extranjero, después de que el correspondiente título haya sido reconocido y equiparado por el CONARE.
+En el caso de personas extranjeras, solamente después de que su título de grado haya sido reconocido y equiparado al grado de Licenciatura en Microbiología y Química Clínica, por CONARE.
+(Así reformada la definición anterior en sesión N° 01 del 21 de julio de 2018)
 Especialista académico: Grado académico obtenido al concluir cualesquiera de los planes de estudios ofrecidos o reconocidos por la CODEM.
 Especialista profesional: Reconocimiento de mérito a estudios prácticos y/o teóricos en determinada área de especialización, una vez obtenido el grado de Licenciatura.
 Maestría profesional: Grado académico obtenido al concluir un plan de estudios otorgado por un centro de educación superior reconocido y autorizado por el CONESUP, en el cual el (la) interesado(a) no haya realizado una tesis para obtener el título, concluye con el grado de Máster.
