@@ -1,0 +1,3 @@
+Artículo 22. —Resolución del reclamo. Recibido el reclamo indicado en los artículos anteriores, la administración municipal contará con un plazo no mayor 10 días hábiles.
+La resolución de este tipo de reclamos se considera de tramitación compleja por cuanto no se extingue por mera constatación; para ello la Administración revisará detalladamente el
+tipo de actividad que se desarrolla en el inmueble objeto de reclamo al amparo del “estudio de generación, caracterización y categorización de residuos generados en el cantón Corredores” o en su defecto, realizará pesajes de los residuos ordinarios generados en este, sin que deba comunicar previamente al reclamante sobre el día en que los mismos tendrán lugar.

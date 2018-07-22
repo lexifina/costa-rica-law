@@ -1,0 +1,1 @@
+Artículo 8º—Cobro. La Municipalidad realizará el cobro del servicio de manejo de residuos sólidos ordinarios que incluirá los costos para realizar una gestión integral de estos, a todos los sujetos pasivos propietarios o poseedores de inmuebles generadores que se encuentren dentro del cantón Corredores.

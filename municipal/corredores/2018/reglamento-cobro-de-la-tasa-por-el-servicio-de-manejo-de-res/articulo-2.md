@@ -1,0 +1,2 @@
+Artículo 2º—Ámbito de aplicación. Este reglamento es de acatamiento obligatorio para todo propietario o poseedor de un inmueble generador de residuos sólidos que se encuentre dentro del área de cobertura del servicio de manejo de residuos sólidos ordinarios en el cantón Corredores.
+Los residuos peligrosos y de manejo especial no se consideran dentro de este reglamento y deben ser manejados por parte del generador de acuerdo a la legislación vigente.

@@ -1,0 +1,1 @@
+Artículo 5º—Hecho generador del tributo. El hecho generador de la tasa lo constituye la prestación efectiva del servicio público de manejo de residuos sólidos ordinarios por parte de la Municipalidad, sobre los propietarios o poseedores de un inmueble generador ubicado en el cantón Corredores.

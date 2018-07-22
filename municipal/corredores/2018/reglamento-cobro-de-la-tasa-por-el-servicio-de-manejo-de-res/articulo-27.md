@@ -1,0 +1,1 @@
+Artículo 27. —Prestación potencial del servicio manejo de residuos sólidos ordinarios. Se considera bajo prestación potencial al servicio municipal que se da de forma efectiva en vía pública pero que no es requerido de forma directa por el generador quien no demuestra interés en el mismo. En esta condición, es siempre sujeto pasivo por lo que está obligado a pagarlo.
