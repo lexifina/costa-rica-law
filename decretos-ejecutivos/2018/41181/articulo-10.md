@@ -1,0 +1,1 @@
+Artículo 10.—Para efectos de la aplicación del artículo anterior el INEC dispondrá en su página Web de un sistema de consulta para facilitar la codificación de las variables geográficas y el grado de urbanización del distrito.

@@ -1,0 +1,1 @@
+Artículo 4º—Las instituciones del SEN deberán asignar a cada una de las unidades de estudio contenidas en sus registros, censos y encuestas, el código correspondiente a provincia, cantón y distrito, según lo establece la DTA y las actualizaciones incluidas en el Manual de Clasificación Geográfica.

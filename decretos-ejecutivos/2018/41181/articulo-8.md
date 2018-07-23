@@ -1,0 +1,1 @@
+Artículo 8º—Todos los registros administrativos, censos o encuestas que incluyan la variable “país”, deberán utilizar la clasificación propuesta en el Manual de Clasificación Geográfica, considerando siempre el diseño estadístico y el principio de confidencialidad de la información establecido en el inciso a) del artículo N° 4 de la Ley N° 7839.

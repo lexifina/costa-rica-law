@@ -1,0 +1,1 @@
+Artículo 6º—Todas las instituciones públicas, deberán producir y publicar sus estadísticas según la desagregación por región de planificación establecida en el Manual de Clasificación Geográfica, siempre que lo permita el diseño estadístico, los aspectos temáticos y el principio de confidencialidad de la información establecido en el inciso a) del artículo N° 4 de la Ley N° 7839.

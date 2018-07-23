@@ -1,0 +1,1 @@
+Artículo 7º—Todas las instituciones públicas que integran el SEN, que basan su producción en registros administrativos y requieran publicar información, según grado de urbanización, deberán hacerlo de conformidad con lo establecido en el Manual de Clasificación Geográfica.
