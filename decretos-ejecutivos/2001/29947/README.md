@@ -14,3 +14,4 @@ Oficializa para efectos de aplicación obligatoria "Las Normas para la habilitac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-11-20 | la propia norma |
+| 2 | 2018-07-23 | Decreto Ejecutivo 41384 (2018-07-23) |
