@@ -195,9 +195,9 @@ La presente metodología sigue un proceso de cálculo de la tarifa, por pasajero
 (Así reformado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 [imagen]
 Donde:
-Tr = Tarifa por pasajero que paga la tarifa completa de su viaje de la ruta “r”.
-CTr = Costos totales mensuales de la ruta “r” (ver ecuación 2).
-Pr = Volumen mensual de pasajeros movilizados que pagan la tarifa completa de su viaje en la ruta “r” (ver ecuación 53).
+Tr = Tarifa por pasajero que paga la tarifa completa de su viaje de la ruta "r".
+CTr = Costos totales mensuales de la ruta "r" (ver ecuación 2).
+Pr = Volumen mensual de pasajeros movilizados que pagan la tarifa completa de su viaje en la ruta "r" (ver ecuación 53).
 r = Ruta de transporte remunerado de personas.
 (Así reformada la formúla anterior y su definición mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 La tarifa que deberá pagar un usuario para una ruta (Tr) estará determinada por el costo total mensual de brindar el servicio, incluyendo una rentabilidad o retribución mensual sobre la base tarifaria, en donde también se contabiliza la cantidad de pasajeros mensuales que utilizan y pagan el servicio en esa ruta por mes.
@@ -233,17 +233,17 @@ La rentabilidad mensual (RTr) sobre el capital invertido en activos se obtiene d
 El cálculo de los costos fijos se representa, en términos generales de la siguiente forma:
 [imagen]
 Donde:
-CFr = Costos fijos mensuales de la ruta “r”.
-CDAFr = Costo mensual de depreciación de los activos fijos de la ruta “r”.
-CPOMr = Costo mensual de personal de operación y mantenimiento de la ruta “r”.
-CPAr = Costo mensual de personal administrativo de la ruta “r”.
-GAr = Gastos administrativos mensuales de la ruta “r”.
-CRAr = Costo mensual en repuestos y accesorios de la ruta “r”.
-CSPEr = Costo mensual del sistema automatizado de pago electrónico y seguridad en la ruta “r”.
-CECSr = Costo mensual de los estudios de calidad del servicio en la ruta “r”.
-CIASr = Costo mensual de infraestructura de apoyo al servicio en la ruta “r”.
-OGr = Costo mensual por otros gastos en la ruta “r”.
-CLLr = Costo mensual por limpieza y lavado de las unidades de la flota autorizada de la ruta “r”.
+CFr = Costos fijos mensuales de la ruta "r".
+CDAFr = Costo mensual de depreciación de los activos fijos de la ruta "r".
+CPOMr = Costo mensual de personal de operación y mantenimiento de la ruta "r".
+CPAr = Costo mensual de personal administrativo de la ruta "r".
+GAr = Gastos administrativos mensuales de la ruta "r".
+CRAr = Costo mensual en repuestos y accesorios de la ruta "r".
+CSPEr = Costo mensual del sistema automatizado de pago electrónico y seguridad en la ruta "r".
+CECSr = Costo mensual de los estudios de calidad del servicio en la ruta "r".
+CIASr = Costo mensual de infraestructura de apoyo al servicio en la ruta "r".
+OGr = Costo mensual por otros gastos en la ruta "r".
+CLLr = Costo mensual por limpieza y lavado de las unidades de la flota autorizada de la ruta "r".
 r = Ruta de transporte remunerado de personas.
 La definición de cada variable que compone los costos fijos y la forma en que se calcula se presenta seguidamente.
 (Así reformado el punto 4.4 Costos fijos anterior mediante reolución N° RJD-060-2018 del 13 de abril de 2018)
@@ -469,14 +469,14 @@ El coeficiente de consumo estandarizado de partes por cada 1000 km se obtiene de
 [imagen]
 Donde:
 PARTSr = Coeficiente de consumo estandarizado de partes por cada 1000 km de recorrido de la flota, como fracción del precio de reemplazo del autobús en la ruta "r". Este coeficiente es derivado del modelo HDM-IV, tal y como se indica en el Anexo 4.
-CKMr = Kilometraje acumulado para la edad promedio de flota autorizada en la ruta “r”, más seis meses.
+CKMr = Kilometraje acumulado para la edad promedio de flota autorizada en la ruta "r", más seis meses.
 (Así reformdo el punto anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 r = Ruta de transporte remunerado de personas.
 El kilometraje acumulado para edad promedio de la flota autorizada en la ruta "r" se obtiene de la ecuación:
 [imagen]
 Donde
 CKMr = Kilometraje anual acumulado para la edad promedio de flota autorizada en la ruta "r".
-EPFr =Edad promedio de la flota autorizada en la ruta “r”. Corresponde al promedio simple de la edad de las unidades según lo establecido en el apartado 4.2 de esta metodología.
+EPFr =Edad promedio de la flota autorizada en la ruta "r". Corresponde al promedio simple de la edad de las unidades según lo establecido en el apartado 4.2 de esta metodología.
 (Así reformado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 RPMr = Recorrido promedio mensual por vehículo de la ruta "r". El valor de esta variable se determina según lo indicado en la sección 4.8 (ecuación 60).
 r = Ruta de transporte remunerado de personas.
@@ -581,7 +581,6 @@ r = Ruta de transporte remunerado de personas.
 4.4.5 Costos en repuestos y accesorios
 El costo mensual en repuestos y accesorios (CRAr) se determina como una proporción de la suma de los valores tarifarios de las unidades de transporte remunerado de personas modalidad autobús, para los vehículos con las reglas de cálculo tarifario tipo 1 y tipo 2 que conforman la flota autorizada de la ruta. Nótese que esta formulación toma en cuenta la cantidad de unidades y los valores tarifarios según la edad y el tipo de vehículo utilizado en la ruta.
 El costo mensual en repuestos y accesorios se determina mediante la siguiente ecuación:
-[imagen]
 Donde:
 CRAr = Costo mensual en repuestos y accesorios de la ruta "r". Este rubro estará expresado en colones. El rubro de repuesto y accesorios anual debe ser menor o igual al 10%
 del valor tarifario de las unidades de transporte remunerado de personas modalidad autobús, para los vehículos con las reglas de cálculo tarifario tipo 1 y tipo 2 que conforman la flota autorizada de la ruta.
@@ -592,13 +591,11 @@ r = Ruta de transporte remunerado de personas.
  = Conjunto de vehículos con reglas de cálculo tarifario tipo 1.
  = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
 El coeficiente de repuestos y accesorios de la ruta "r" se estima a partir de la aplicación del modelo de HDM-IV tal como lo expresa la siguiente ecuación:
-[imagen]
 Donde
 crear = Coeficiente de consumo de repuestos y accesorios de la ruta "r" por vehículo derivado según HDM-IV.
 PARTSr = Coeficiente de consumo estandarizado de partes por cada 1000 Km de la ruta "r". Este coeficiente es derivado del modelo HDM-IV, tal y como se indica en el Anexo 4. En la sección 4.4.2.c, Ecuación 16 se detalla el cálculo de esta variable.
 RPMr = Recorrido promedio mensual por vehículo de la ruta "r". El valor de esta variable se determina según lo indicado en la sección 4.8 (ecuación 60).
 Según la derivación anterior se utiliza en el cálculo del coeficiente de repuestos y accesorios el valor determinado según el menor valor (en función del mínimo (Min)) entre el coeficiente de consumo de repuestos y accesorios derivado del HDM-IV y el coeficiente utilizado en el modelo vigente que corresponde a un valor fijo de 10% anual, tal como se muestra en la siguiente ecuación:
-[imagen]
 Donde
 ccrar = Coeficiente de consumo de repuestos y accesorios de la ruta "r" .
 crear = Coeficiente de consumo de repuestos y accesorios de la ruta "r" por vehículo derivado según HDM-IV , expresado en la ecuación 28.
@@ -608,15 +605,14 @@ El plazo establecido para la actualización del valor del coeficiente, permite l
 (Así reformado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 4.4.6 Otros gastos
 Este costo mensual permite cubrir otros gastos necesarios de la empresa para brindar el servicio, como lo son: papelería, útiles de oficina, los servicios de energía eléctrica, agua y telefónicos, así como, los impuestos sobre servicios, mediante la ecuación:
-[imagen]
 Donde:
 OGr = Costo mensual por otros gastos en la ruta "r". Este rubro estará expresado en colones.
 cog = Coeficiente anual de otros gastos administrativos. Este coeficiente es tomado de MOPT (1997) y se presenta en el siguiente Cuadro 11.
 Cuadro 11. Coeficiente de otros gastos administrativos para cualquier tipo de ruta
 Coeficiente anual de otros gastos administrativos
 0,02
-[imagen] = Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "" (ver ecuación 84).
-[imagen] = Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "γ" (ver ecuación 89).  VTAFr
+= Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "" (ver ecuación 84).
+= Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "γ" (ver ecuación 89).  VTAFr
 r = Ruta de transporte remunerado de personas.
 a = Conjunto de vehículos con reglas de cálculo tarifario tipo 1.
 y = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
@@ -636,21 +632,20 @@ Todos los elementos indicados serán establecidos en la resolución que la Arese
 (Así adicionado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 4.4.10 Costo por limpieza y lavado de vehículos y de motor
 El costo mensual por limpieza y lavado de unidades de transporte (CLLr), se calcula con base en la frecuencia mensual de limpieza interna, lavado externo y del lavado de motor y chasis y el costo unitario de estos tres servicios de la siguiente forma:
-[imagen]
 Donde:
-CLLr = Costo mensual por limpieza y lavado de las unidades de la flota autorizada de la ruta “r”. Este rubro estará expresado en colones.
+CLLr = Costo mensual por limpieza y lavado de las unidades de la flota autorizada de la ruta "r". Este rubro estará expresado en colones.
 flir = Frecuencia mensual del servicio de limpieza interna de las unidades de la flota autorizada. Los valores de la frecuencia de limpieza interna de las unidades se derivan del estudio técnico ejecutado, contratado o avalado por la Aresep, y se expresan como un coeficiente mensual, tal y como se muestran en el siguiente cuadro.
 Cuadro 12. Coeficiente mensual de frecuencia asociados a la limpieza y lavado de vehículos
 Item | Frecuencia mensual (cantidad/ mes)
 Limpieza interna, dos veces por día | 60
 Lavado externo, una vez cada dos días | 15
 Lavado de motor y chasis, una vez cada dos meses | 0,50
-CLIr = Precio del servicio de limpieza interna de las unidades de la flota autorizada de la ruta “r”. Estos precios se determinan según lo indicado en la sección 4.11.5 de esta metodología.
-fler = Frecuencia mensual del servicio de limpieza externa del tipo de vehículo “i” de las unidades de la flota autorizada. Los valores de la frecuencia de limpieza externa se derivan del estudio técnico ejecutado, contratado o avalado por la Aresep y se expresan como un coeficiente mensual, tal y como se muestran en el Cuadro 12 anterior.
-CLEr = Precio del servicio de lavado externo de las unidades de la flota autorizada de la ruta “r”. Estos precios se determinan según lo indicado en la sección 4.11.5 de esta metodología.
-flmchr = Frecuencia mensual del lavado del motor y chasis del tipo de vehículo “i” de las unidades de la flota autorizada. Los valores de la frecuencia del lavado del motor y chasis se derivan del estudio técnico ejecutado, contratado o avalado por la Aresep, y se expresan como un coeficiente mensual, tal y como se muestran en el Cuadro 12 anterior.
-CLMCHr = Precio del servicio de lavado del motor y chasis de las unidades de la flota autorizada de la ruta “r”. Estos precios se determinan según lo indicado en la sección 4.11.5 de esta metodología.
-Fr = Cantidad total de unidades de la flota autorizada de la ruta “r”. Esto comprende la suma de vehículos con regla tarifaria tipo 1 y regla tarifaria tipo 2.
+CLIr = Precio del servicio de limpieza interna de las unidades de la flota autorizada de la ruta "r". Estos precios se determinan según lo indicado en la sección 4.11.5 de esta metodología.
+fler = Frecuencia mensual del servicio de limpieza externa del tipo de vehículo "i" de las unidades de la flota autorizada. Los valores de la frecuencia de limpieza externa se derivan del estudio técnico ejecutado, contratado o avalado por la Aresep y se expresan como un coeficiente mensual, tal y como se muestran en el Cuadro 12 anterior.
+CLEr = Precio del servicio de lavado externo de las unidades de la flota autorizada de la ruta "r". Estos precios se determinan según lo indicado en la sección 4.11.5 de esta metodología.
+flmchr = Frecuencia mensual del lavado del motor y chasis del tipo de vehículo "i" de las unidades de la flota autorizada. Los valores de la frecuencia del lavado del motor y chasis se derivan del estudio técnico ejecutado, contratado o avalado por la Aresep, y se expresan como un coeficiente mensual, tal y como se muestran en el Cuadro 12 anterior.
+CLMCHr = Precio del servicio de lavado del motor y chasis de las unidades de la flota autorizada de la ruta "r". Estos precios se determinan según lo indicado en la sección 4.11.5 de esta metodología.
+Fr = Cantidad total de unidades de la flota autorizada de la ruta "r". Esto comprende la suma de vehículos con regla tarifaria tipo 1 y regla tarifaria tipo 2.
 r = Ruta de transporte remunerado de personas.
 Los valores del Cuadro 12 anterior de frecuencia de limpieza interna (flir), frecuencia de lavado externo (fler) y frecuencia de lavado de motor y chasis (flmchr) estarán sujetos a variación de acuerdo con los estudios técnicos ejecutados, contratados o avalados por la Aresep. Los valores de estos coeficientes técnicos se actualizarán como mínimo una vez cada cinco años, a partir del 7 de marzo de 2016 (fecha de entrada en vigencia de la resolución RJD-035-2016). La actualización de los valores de estos coeficientes deberá someterse previamente al trámite de consulta pública establecido en el artículo 361 de la Ley General de la Administración Pública.
 El plazo establecido para la actualización de los valores de los coeficientes, permite la revisión periódica de la metodología de manera que se incorpore los cambios en el entorno financiero, así como los cambios tecnológicos y legales atinentes al servicio objeto de la presente metodología. Los casos de inclusión, eliminación de coeficientes y variación en las reglas contenidas en la metodología para definir coeficientes, deberán someterse previamente al proceso de audiencia pública previsto en el artículo 36 de la Ley N° 7593.
@@ -659,7 +654,6 @@ El plazo establecido para la actualización de los valores de los coeficientes, 
 Los costos variables (CVr) están compuestos por consumo de combustible, llantas, aceite de motor, aceite de caja de cambios, aceite diferencial, líquido de frenos, grasa, filtros de combustible, aceite hidráulico, baterías y están relacionados con los coeficientes de consumo específico de cada insumo, el kilometraje mensual recorrido en la ruta y el precio de cada insumo. El cálculo de los costos variables se representa, en términos generales de la siguiente forma:
 (Así reformado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 Los costos variables (CVr) están compuestos por consumo de combustible, llantas, aceite de motor, aceite de caja de cambios, aceite diferencial, líquido de frenos y grasa, y están relacionados con los coeficientes de consumo específico de cada insumo, el kilometraje mensual recorrido en la ruta y el precio de cada insumo. El cálculo de los costos variables se representa, en términos generales de la siguiente forma:
-[imagen]
 Donde
 CVr = Costos variables mensuales de la ruta "r".
 CCCr = Costo mensual en consumo de combustible de la ruta "r".
@@ -677,21 +671,17 @@ La definición de cada uno de los insumos que compone los costos variables y la 
 (Así reformado el punto 4.5) anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 4.5.1 Costo por consumo de combustible
 El costo mensual de consumo de combustible (CCCr), se obtiene de multiplicar al coeficiente de consumo de combustible (ajustado por el coeficiente asociado a las condiciones de la superficie de rodamiento del recorrido de la ruta), los kilómetros recorridos por la ruta en el período de un mes y el precio del combustible. El kilometraje recorrido al mes en la ruta se obtiene al multiplicar la distancia de la ruta (ajustada por el coeficiente de kilometraje improductivo) y la cantidad de carreras mensuales. El costo por este insumo se determina de la siguiente forma:
-[imagen]
 Donde:
 Donde:
 CCCr = Costo mensual en consumo de combustible de la ruta "r". Este costo estará expresado en colones.
 cccy = Coeficiente de consumo de combustible diésel por autobús para el tipo de ruta "y". Los valores de estos coeficientes serán los que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y se presentan en el siguiente Cuadro 14
 Cuadro 14. Coeficiente de consumo combustible diésel por tipo de ruta
-[imagen]
 ccsr = Coeficiente de ajuste de acuerdo con las condiciones de la superficie de rodamiento del recorrido de la ruta. Estos coeficientes son tomados del MOPT (1997) y se presentan en el siguiente Cuadro 15.
 Cuadro 15. Coeficiente de ajuste según las condiciones de la superficie de Rodamiento
-[imagen]
 Dr = Distancia de la carrera de la ruta "r". Es la longitud en kilómetros sumando ambos sentidos de recorrido de la ruta "r". El valor de esta variable se determina según lo indicado en la sección 4.12.1.b de esta metodología.
 cki = Coeficiente de ajuste por reconocimiento de kilometraje improductivo.
 El kilometraje improductivo se refiere al recorrido adicional necesario para iniciar y/o terminar un ciclo de operación. Estos coeficientes son tomados del MOPT (1997) y se presentan en el siguiente Cuadro 16.
 Cuadro16. Coeficiente de reconocimiento por kilometraje improductivo
-[imagen]
 CMr = Cantidad de carreras mensuales de la ruta "r". Los valores por utilizar en el cálculo tarifario serán los que resulten de aplicar los criterios de validación de la sección 4.12.1.a.
 PC = Precio promedio del combustible en colones por litro. El precio promedio del combustible en colones por litro, corresponderá a la media aritmética simple del valor diario del precio del litro de combustible diésel establecido para el consumidor final, vigente durante el semestre calendario natural (i.e. enero a junio y julio a diciembre) anterior al que se realice la audiencia pública de la aplicación de esta metodología (el semestre calendario natural es el tiempo que va desde el primer día natural del primer mes del semestre hasta el último día natural del último mes del semestre, incluidos ambos). Para efectos de determinar el precio promedio del combustible diésel en colones por litro, se utilizarán los valores fijados por Aresep.
 r = Ruta de transporte remunerado de personas.
@@ -700,16 +690,13 @@ El plazo establecido para la actualización de los valores de los coeficientes, 
 (Así reformado el punto 4.5.1 ) anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 4.5.2 Costo por consumo de llantas
 El costo mensual en consumo de llantas (CCLLr), se obtiene de multiplicar la cantidad de llantas por autobús y el rendimiento de una llanta nueva (ajustado por el coeficiente asociado a las condiciones de la superficie de rodamiento del recorrido de la ruta), los kilómetros recorridos por la ruta en el período de un mes y el precio de las llantas (se establece el uso de un número determinado de llantas). El kilometraje recorrido al mes en la ruta se obtiene al multiplicar la distancia de la ruta (ajustada por el
-[imagen]
 Donde:
 CCLLr = Costo mensual en consumo de llantas de la ruta "r". Este costo estará expresado en colones.
 cclly = Cantidad de llantas por autobús para el tipo de ruta "y". Estas cantidades serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y se presenta en el siguiente Cuadro 17.
 Cuadro 17. Cantidad de llantas por autobús por tipo de ruta
-[imagen]
 fclly = Frecuencia de cambio de una llanta por autobús para el tipo de ruta "y".
 Estas frecuencias de cambios serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y se presenta en el siguiente Cuadro 18.
 Cuadro 18. Frecuencia de cambio de una llanta nueva por tipo de ruta
-[imagen]
 ccsr = Coeficiente de ajuste de acuerdo con las condiciones de la superficie de rodamiento del recorrido de la ruta. Estos coeficientes son tomados de MOPT (1997) y se presentan en el Cuadro 15 anterior.
 Dr = Distancia de la carrera de la ruta "r". Es la longitud en kilómetros sumando ambos sentidos de recorrido de la ruta "r". El valor de esta variable se determina según lo indicado en la sección 4.12.1.b de esta metodología.
 cki = Coeficiente de ajuste por reconocimiento de kilometraje improductivo.
@@ -723,15 +710,12 @@ El plazo establecido para la actualización de los valores de los coeficientes, 
 (Así reformado el punto 4.5.2) anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 4.5.3 Costo por consumo de aceite de motor
 El costo mensual en consumo de aceite de motor (CCAMr), se obtiene de multiplicar el coeficiente de consumo de aceite de motor (ajustado por el coeficiente asociado a las condiciones de la superficie de rodamiento del recorrido de la ruta), los kilómetros recorridos por la ruta en el período de un mes y el precio del aceite del motor. El kilometraje recorrido al mes en la ruta se obtiene al multiplicar la distancia de la ruta (ajustada por el coeficiente de kilometraje improductivo) y la cantidad de carreras mensuales. El costo por este insumo se determina de la siguiente forma:
-[imagen]
 Donde:
 CCAMr = Costo mensual en consumo de aceite de motor de la ruta "r". Este costo estará expresado en colones.
 ccamy = Cantidad de litros de aceite de motor por autobús para el tipo de ruta "y". Estas cantidades serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y presentan en el siguiente Cuadro 19.
 Cuadro 19. Cantidad de litros de aceite de motor por autobús por tipo de Ruta
-[imagen]
 fcamy = Frecuencia de cambio del aceite de motor por autobús para el tipo de ruta "y". Estas frecuencias de cambio serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y se presentan en el siguiente Cuadro 20.
 Cuadro 20. Frecuencia de cambio del aceite de motor por autobús por tipo de ruta
-[imagen]
 ccsr = Coeficiente de ajuste de acuerdo con las condiciones de la superficie de rodamiento del recorrido de la ruta. Estos coeficientes son tomados de MOPT (1997) y se presentan en el Cuadro 15 anterior.
 Dr = Distancia de la carrera de la ruta "r". Es la longitud en kilómetros en ambos sentidos de recorrido de la ruta "r". El valor de esta variable se determina según lo indicado en la sección 4.12.1.b de esta metodología.
 cki = Coeficiente de ajuste por reconocimiento de kilometraje improductivo.
@@ -746,15 +730,12 @@ El plazo establecido para la actualización de los valores de los coeficientes, 
 4.5.4 Costo por aceite de caja de cambios
 Costo por aceite de caja de cambios
 El costo mensual en consumo de aceite de caja de cambios (CCACCr), se obtiene de multiplicar el coeficiente de consumo de aceite de caja de cambios (ajustado por el coeficiente asociado a las condiciones de la superficie de rodamiento del recorrido de la ruta), los kilómetros recorridos por la ruta en el período de un mes y el precio del aceite de caja de cambios. El kilometraje recorrido al mes en la ruta se obtiene al multiplicar la distancia de la ruta (ajustada por el coeficiente de kilometraje improductivo) y la cantidad de carreras mensuales. El costo por este insumo se determina de la siguiente forma:
-[imagen]
 Donde:
 CCACCr = Costo mensual en consumo de aceite de caja de cambios de la ruta "r". Este costo estará expresado en colones.
 ccaccy = Cantidad de litros de aceite de caja de cambios por autobús para el tipo de ruta "y". Estas cantidades serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y presentan en el siguiente Cuadro 21.
 Cuadro 21. Cantidad de litros de aceite de caja de cambios por autobús por tipo de ruta
-[imagen]
 fcaccy = Frecuencia de cambio del aceite de caja de cambios por autobús para el tipo de ruta "y". Estas frecuencias de cambio serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y se presentan en el siguiente Cuadro 22.
 Cuadro 22. Frecuencia de cambio del aceite de caja de cambios por autobús por tipo de ruta
-[imagen]
 ccsr = Coeficiente de ajuste de acuerdo con las condiciones de la superficie de rodamiento del recorrido de la ruta. Estos coeficientes son tomados del MOPT (1997) y se presentan en el Cuadro 15 anterior.
 Dr = Distancia de la carrera de la ruta "r". Es la longitud en kilómetros sumando ambos sentidos de recorrido la ruta "r". El valor de esta variable se determina según lo indicado en la sección 4.12.1.b de esta metodología.
 cki = Coeficiente de ajuste por reconocimiento de kilometraje improductivo.
@@ -768,15 +749,12 @@ El plazo establecido para la actualización de los valores de los coeficientes, 
 (Así reformado el punto 4.5.4) anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 4.5.5 Costo en aceite para diferencial
 El costo en consumo de aceite diferencial (CCADr) se obtiene de multiplicar el coeficiente de consumo de aceite para diferencial (ajustado por el coeficiente asociado a las condiciones de la superficie de rodamiento del recorrido de la ruta), los kilómetros recorridos por la ruta en el período de un mes y el precio del aceite para diferencial. El kilometraje recorrido al mes en la ruta se obtiene al multiplicar la distancia de la ruta (ajustada por el coeficiente de kilometraje improductivo) y la cantidad de carreras mensuales. El costo por este insumo se determina de la siguiente forma:
-[imagen]
 Donde:
 CCADr = Costo mensual de consumo en aceite para diferencial de la ruta "r". Este costo estará expresado en colones.
 ccady = Cantidad de litros de aceite para diferencial por autobús para el tipo de ruta "y". Estas cantidades serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes presentan en el siguiente Cuadro 23.
 Cuadro 23. Cantidad de litros de aceite para diferencial por autobús por tipo de ruta
-[imagen]
 fcady = Frecuencia de cambio del aceite para diferencial por autobús para el tipo de ruta "y". Estas frecuencias de cambio serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y se presentan en el siguiente Cuadro 24.
 Cuadro 24. Frecuencia de cambio del aceite para diferencial por autobús por tipo de ruta
-[imagen]
 ccsr = Coeficiente de ajuste de acuerdo con las condiciones de la superficie de rodamiento del recorrido de la ruta. Estos coeficientes son tomados del MOPT (1997) y se presentan en el Cuadro 15 anterior.
 Dr = Distancia de la carrera de la ruta "r". Es la longitud en kilómetros en ambos sentidos de recorrido la ruta "r". El valor de esta variable se determina según lo indicado en la sección 4.12.1.b de esta metodología.
 cki = Coeficiente de ajuste por reconocimiento de kilometraje improductivo. El kilometraje improductivo se refiere al recorrido adicional necesario para iniciar y/o terminar un ciclo de operación. Estos coeficientes son tomados del MOPT (1997) y se presentan en el Cuadro 15 anterior.
@@ -789,12 +767,10 @@ El plazo establecido para la actualización de los valores de los coeficientes, 
 (Así reformado el punto 4.5.5) anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 4.5.6 Costo por líquido para frenos
 El costo mensual en consumo de líquido para frenos (CCLFr), se obtiene de multiplicar el coeficiente de consumo de líquido de frenos (ajustado por el coeficiente asociado a las condiciones de la superficie de rodamiento del recorrido de la ruta), los kilómetros recorridos por la ruta en el período de un mes y el precio del líquido para frenos. El kilometraje recorrido al mes en la ruta se obtiene al multiplicar la distancia de la ruta (ajustada por el coeficiente de kilometraje improductivo) y la cantidad de carreras mensuales. El costo por este insumo se determina de la siguiente forma:
-[imagen]
 Donde:
 CCLFr = Costo mensual en consumo de líquido para frenos de la ruta "r". Este costo estará expresado en colones.
 cclf = Coeficiente por consumo de líquido para frenos por autobús para cualquier tipo de ruta. Esta cantidad será la que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes que se presenta en el siguiente Cuadro 25.
 Cuadro 25. Coeficiente de consumo en líquido para frenos por autobús
-[imagen]
 ccsr = Coeficiente de ajuste de acuerdo con las condiciones de la superficie de rodamiento del recorrido de la ruta. Estos coeficientes son tomados del MOPT (1997) y se presentan en el Cuadro 15 anterior.
 PLF = Precio del líquido de frenos en colones por litro. El precio del líquido de frenos se determina según lo indicado en la sección 4.11de esta metodología.
 Fr = Cantidad total de unidades de la flota autorizada de la ruta "r".
@@ -806,13 +782,11 @@ El plazo establecido para la actualización del valor del coeficiente, permite l
 4.5.7 Costo por grasa
 El costo mensual en consumo de por grasa (CCGr), se obtiene de multiplicar el coeficiente de consumo de grasa (ajustado por el coeficiente asociado a las condiciones de la superficie de rodamiento del recorrido de la ruta), los kilómetros recorridos por la ruta en el período de un mes y el precio de la grasa. El kilometraje recorrido al mes en la ruta se obtiene al multiplicar la distancia de la ruta (ajustada por el coeficiente de kilometraje improductivo) y la cantidad de carreras mensuales.
 El costo por este insumo se determina de la siguiente forma:
-[imagen]
 Donde:
 CCGr = Costo mensual en consumo de grasa de la ruta "r". Este costo estará expresado en colones.
 ccg = Coeficiente por consumo de grasa por autobús para cualquier tipo de ruta. El valor del coeficiente será el que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes que se presentan en el siguiente Cuadro 26.
 fcg = Frecuencia engrase por autobús para para cualquier tipo de ruta. Esta frecuencia de engrase será la que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes se presentan en el siguiente Cuadro 26.
 Cuadro 26. Coeficiente de consumo de grasa por autobús
-[imagen]
 ccsr = Coeficiente de ajuste de acuerdo a las condiciones de la superficie de rodamiento del recorrido de la ruta. Estos coeficientes son tomados del MOPT (1997) y se presentan en el Cuadro 15 anterior.
 Dr = Distancia de la carrera de la ruta "r". Es la longitud en kilómetros en ambos sentidos de recorrido la ruta "r". El valor de esta variable se determina según lo indicado en la sección 4.12.1.b de esta metodología.
 cki = Coeficiente de ajuste por reconocimiento de kilometraje improductivo. El kilometraje improductivo se refiere al recorrido adicional necesario para iniciar y/o terminar un ciclo de operación. Estos coeficientes son tomados de MOPT (1997) y se presentan en el Cuadro 16 anterior.
@@ -825,16 +799,13 @@ El plazo establecido para la actualización de los valores de los coeficientes, 
 (Así reformado el punto 4.5.7) anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 4.5.8 Costo de consumo de filtros de combustible
 El costo mensual en consumo de filtros de combustible (CCFCr), se obtiene de multiplicar el coeficiente de consumo de filtros de combustible (ajustado por el coeficiente asociado a las condiciones de la superficie de rodamiento del recorrido de la ruta), los kilómetros recorridos por la ruta en el período de un mes y el precio del filtro de combustible. El kilometraje recorrido al mes en la ruta se obtiene al multiplicar la distancia de la ruta (ajustada por el coeficiente de kilometraje improductivo) y la cantidad de carreras mensuales. El costo por este insumo se determina de la siguiente forma:
-[imagen]
 Donde:
 CCFCr = Costo mensual en consumo de filtros de combustible de la ruta "r". Este costo estará expresado en colones.
 ccfcy = Conjunto de filtros de combustible por autobús para el tipo de ruta "y".
 Estas cantidades serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y presentan en el siguiente Cuadro 27.
 Cuadro 27. Conjunto de filtros de combustible por autobús por tipo de ruta
-[imagen]
 fcfcy = Frecuencia de cambio del conjunto de filtros de combustible por autobús para el tipo de ruta "y". Estas frecuencias de cambio serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y se presentan en el siguiente Cuadro 28
 Cuadro 28. Frecuencia de cambio del conjunto de filtros de combustible por autobús por tipo de ruta
-[imagen]
 Dr = Distancia de la carrera de la ruta "r". Es la longitud en kilómetros sumando ambos sentidos de recorrido la ruta "r". El valor de esta variable se determina según lo indicado en la sección 4.12.1.b de esta metodología.
 cki = Coeficiente de ajuste por reconocimiento de kilometraje improductivo.
 El kilometraje improductivo se refiere al recorrido adicional necesario para iniciar y/o terminar un ciclo de operación. Estos coeficientes son tomados de MOPT (1997) y se presentan en el Cuadro 16 anterior.
@@ -847,15 +818,12 @@ El plazo establecido para la actualización de los valores de los coeficientes, 
 (Así reformado el punto 4.5.8) anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 4.5.9 Costo por consumo de aceite hidráulico
 El costo mensual en consumo de aceite del sistema hidráulico (CCHr), se obtiene de multiplicar el coeficiente de consumo de aceite hidráulico (ajustado por el coeficiente asociado a las condiciones de la superficie de rodamiento del recorrido de la ruta), los kilómetros recorridos por la ruta en el período de un mes y el precio del aceite hidráulico. El kilometraje recorrido al mes en la ruta se obtiene al multiplicar la distancia de la ruta (ajustada por el coeficiente de kilometraje improductivo) y la cantidad de carreras mensuales. El costo por este insumo se determina de la siguiente forma:
-[imagen]
 Donde:
 CCAHr = Costo mensual en consumo de aceite hidráulico de la ruta "r". Este costo estará expresado en colones.
 ccahy = Cantidad de litros de aceite hidráulico por autobús para el tipo de ruta "y". Estas cantidades serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y presentan en el siguiente Cuadro 29.
 Cuadro 29. Cantidad de litros de aceite hidráulico por autobús por tipo de Ruta
-[imagen]
 fcahy = Frecuencia de cambio del aceite hidráulico por autobús para el tipo de ruta "y". Estas frecuencias de cambio serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y se presentan en el siguiente Cuadro 30
 Cuadro 30. Frecuencia de cambio del aceite hidráulico por autobús por tipo de ruta
-[imagen]
 Dr = Distancia de la carrera de la ruta "r". Es la longitud en kilómetros en ambos sentidos de recorrido de la ruta "r". El valor de esta variable se determina según lo indicado en la sección 4.12.1.b de esta metodología.
 CMr = Cantidad de carreras mensuales de la ruta "r". Los valores por utilizar en el cálculo tarifario serán los que resulten de aplicar los criterios de validación de la sección 4.12.1.a.
 PAH = Precio del aceite hidráulico en colones por litro. El precio del aceite hidráulico se determina según lo indicado en la sección 4.11 de esta metodología.
@@ -866,15 +834,12 @@ El plazo establecido para la actualización de los valores de los coeficientes, 
 (Así adicionado el punto 4.5.9) anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 4.5.10 Costo por consumo de baterías
 El costo mensual en consumo de baterías (CCBr), se obtiene de la cantidad de baterías por autobús entre la frecuencia de cambio en meses entre los kilómetros recorridos por la ruta en el período de un mes y el precio de las baterías nuevas. El kilometraje recorrido al mes en la ruta se obtiene al multiplicar la distancia de la ruta (ajustada por el coeficiente de kilometraje improductivo) y la cantidad de carreras mensuales. El costo por este insumo se determina de la siguiente forma:
-[imagen]
 Donde:
 CCBr = Costo mensual en consumo de baterías de la ruta "r". Este costo estará expresado en colones.
 ccby = Cantidad de baterías por autobús para cualquier tipo de ruta. Esta cantidad será la que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y se presenta en el siguiente Cuadro 31.
 Cuadro 31. Cantidad de baterías por autobús
-[imagen]
 fcby = Frecuencia de cambio de una batería nueva por autobús para cualquier tipo de ruta. Esta frecuencia de cambio será la que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y se presenta en el siguiente Cuadro 32.
 Cuadro 32. Frecuencia de cambio de una batería nueva para cualquier tipo de ruta
-[imagen]
 PB = Precio de una batería nueva. El precio de una batería nueva se determina según lo indicado en la sección 4.11 vigente al día de la audiencia pública de la aplicación de esta metodología.
 Fr = Cantidad total de unidades de la flota autorizada de la ruta "r".
 Comprende la suma de vehículos con regla tarifaria tipo 1 y regla tarifaria tipo 2.
@@ -885,7 +850,6 @@ Los rubros de costos variables anteriormente descritos, utilizan los precios cor
 (Así adicionado el punto 4.5.10) anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 4.6 Rentabilidad del capital invertido
 La rentabilidad total mensual en la ruta "r" (RTr) se obtiene de la sumatoria de la rentabilidad del capital invertido en activos fijos y la rentabilidad del capital invertido en proveeduría.
-[imagen]
 Donde:
 RTr = Rentabilidad mensual del capital para la operación de la ruta "r".
 RAFr = Rentabilidad mensual del capital invertido en activos fijos en la ruta "r". El procedimiento para obtener este costo se detalla en la sección 4.6.2
@@ -898,25 +862,24 @@ a. Tasa de rentabilidad para reglas de cálculo tarifario tipo 1
 La tasa de rentabilidad (tr) utilizará el valor puntual de la tasa activa promedio del sistema financiero nacional, calculada por el Banco Central de Costa Rica (BCCR) correspondiente a la fecha de la audiencia pública.
 (*)b. Tasa de rentabilidad para reglas de cálculo tarifario tipo 2
 La tasa de rentabilidad (trγ) se obtendrá utilizando la metodología del Costo Promedio Ponderado de Capital (WACC, por su nombre en inglés Weighted Average Cost of Capital). Este dato se calcula una vez al año para todo el sector utilizando la siguiente ecuación:
-[imagen]
 Donde:
-trγ= Tasa de rentabilidad anual para vehículos con reglas de cálculo tarifario tipo 2 para la ruta “r” del conjunto de unidades “γ”.
+trγ= Tasa de rentabilidad anual para vehículos con reglas de cálculo tarifario tipo 2 para la ruta "r" del conjunto de unidades "γ".
 PQ= Porcentaje promedio del capital invertido que se financia con deuda.
-RS = Costo del financiamiento (tasa de interés bancaria activa de bancos estatales para préstamos en moneda nacional para “Servicios”).
+RS = Costo del financiamiento (tasa de interés bancaria activa de bancos estatales para préstamos en moneda nacional para "Servicios").
 TQ= Porcentaje promedio del capital invertido que se financia con recursos propios.
 RU = Costo de los recursos propios.
+(Nota de Sinalevi: Mediante resolución RIT-096-2018 del 23 de julio de 2018, se acordó fijar en 11,50% la tasa de rentabilidad para reglas de cálculo tarifario tipo 2, a reconocer en las fijaciones tarifarias ordinarias del servicio de transporte remunerado de personas, modalidad autobús.)
 La definición de cada una de estas variables y la forma cómo se realiza el cálculo se describe seguidamente, para lo cual se considerarán los operadores del transporte público remunerado de personas, modalidad autobús incluidos en el listado de título habilitante empleado en la fijación extraordinaria inmediata anterior al inicio del período fiscal correspondiente a los estados financieros y que hayan presentado los estados financieros a la Aresep, para el último periodo fiscal correspondiente, a más tardar el quince de diciembre, según lo acordado en la resolución 131-RIT-2015 o el plazo que se determine mediante resolución, o cualquier otro acto administrativo. Los datos que se utilizarán para los cálculos de las variables serán los que provengan de la contabilidad regulatoria o en su defecto, de la información de los estados financieros.
 a. Porcentaje promedio del capital invertido que se financia con deuda (D/A)
 Para cada empresa, se dividirá el monto correspondiente a la cuenta contable Total de Deuda entre la suma de la cuenta contable Total de Deuda y cuenta contable Total de Capital (Patrimonio). La cuenta contable Total de Deuda debe incluir los rubros del Pasivo que correspondan a obligaciones financieras con costo financiero del servicio regulado (Deuda de Largo Plazo, tanto su parte circulante como fija). Luego, se obtiene el promedio ponderado de los resultados individuales que se obtuvieron de cada empresa, ponderando según el tamaño de la flota autorizada por el CTP según el listado más reciente con el que cuente la IT.
 Para el cálculo de este porcentaje, se considerarán sólo aquellos operadores incluidos en el listado de título habilitante empleado en la fijación extraordinaria inmediata anterior al inicio del período fiscal correspondiente a los estados financieros que tengan flota autorizada por parte del CTP según la base con corte al 30 de setiembre (inicio del período fiscal correspondiente a los estados financieros), que hayan presentado los estados financieros correspondientes al último período fiscal y cuya cuenta de patrimonio sea positiva.
 b. Costo del financiamiento (rd)
-El costo del financiamiento (rd) se obtiene utilizando la información de la tasa de interés bancaria activa de bancos estatales para préstamos en moneda nacional para “Servicios”. Se calcula como la media aritmética simple del valor diario de esta tasa, publicada por el BCCR y se utiliza la serie de datos del período fiscal correspondiente a los estados financieros empleados.
+El costo del financiamiento (rd) se obtiene utilizando la información de la tasa de interés bancaria activa de bancos estatales para préstamos en moneda nacional para "Servicios". Se calcula como la media aritmética simple del valor diario de esta tasa, publicada por el BCCR y se utiliza la serie de datos del período fiscal correspondiente a los estados financieros empleados.
 c. Porcentaje promedio del capital invertido que se financia con recursos propios (E/A)
 Para cada empresa, se dividirá el monto correspondiente a la cuenta contable Total de Capital (Patrimonio) entre la suma de la cuenta contable Total de Deuda y cuenta contable Total de Capital (Patrimonio). La cuenta contable Total de Deuda debe incluir los rubros del Pasivo que correspondan a obligaciones financieras con costo financiero del servicio regulado (Deuda de Largo Plazo, tanto su parte circulante como fija). Luego, se obtiene el promedio ponderado de los resultados individuales que se obtuvieron de cada empresa, ponderando según el tamaño de la flota autorizada por el CTP según el listado más reciente con el que cuente la IT.
 Para el cálculo de este porcentaje, se considerarán sólo aquellos operadores incluidos en el listado de título habilitante empleado en la fijación extraordinaria inmediata anterior al inicio del período fiscal correspondiente a los estados financieros, que tengan flota autorizada por parte del CTP según la base con corte al 30 de setiembre (inicio del período fiscal correspondiente a los estados financieros) que hayan presentado los estados financieros correspondientes al último período fiscal y cuya cuenta de patrimonio sea positiva.
 d. Costo de los recursos propios (re)
 El costo de los recursos propios (re) se obtendrá utilizando la metodología Modelo de Valoración de Activos de Capital (CAPM, por su nombre en inglés Capital Asset Pricing Model). Este dato se calcula utilizando la siguiente ecuación:
-[imagen]
 Donde:
 RU = Costo de los recursos propios.
 RZ = Tasa libre de riesgo (Curva de Rendimiento Soberana a 7 años).
@@ -929,14 +892,13 @@ ii. Coeficiente de riesgo sistémico de la industria (βrea)
 Es el coeficiente que refleja el riesgo sistémico de la industria o Beta, usualmente se obtiene a través de un análisis de regresión partiendo de datos históricos de la relación entre los retornos de una empresa y los retornos del mercado. Mide la volatilidad de los rendimientos de los activos financieros de un sector específico cotizados en bolsa, en comparación con el resto del mercado, de manera que valores altos de Beta implican mayor volatilidad del sector, mientras que un Beta igual a 1,0 implica que el rendimiento del sector posee el mismo riesgo que el conjunto del mercado.
 iii. Coeficiente de prima de riesgo de mercado (MRP)
 El coeficiente de prima por riesgo de mercado (MRP) o rendimiento esperado del mercado, se define como la diferencia entre el rendimiento esperado sobre un portafolio de mercado totalmente diversificado y la tasa libre de riesgo. Dado que la gran mayoría de las empresas de Costa Rica no están inscritas en bolsa y la misma se encuentra poco desarrollada, para determinar los rendimientos de mercado se utiliza una aproximación obtenida de la publicación que realiza el sitio web del profesor Aswath
-Damodaran denominada “Country Default Spreads and Risk Premiums”. Se debe utilizar el dato para Estados Unidos correspondiente al “Total Equity Risk Premium” (TERP), correspondiente a la última actualización disponible al momento del cálculo. En caso de que esta información no esté disponible, se podrán utilizar otras fuentes de información como Bloomberg u otras de uso conocido en los mercados financieros.
-En caso de no contar con las variables derivadas de la contabilidad regulatoria, si la información aportada en los estados financieros no permite conocer cuáles son las obligaciones financieras con costo financiero ligadas al servicio público regulado, se considerará la cuenta de Pasivo a Largo Plazo o Pasivo No Corriente como una aproximación a la cuenta “Total de Deuda”.
+Damodaran denominada "Country Default Spreads and Risk Premiums". Se debe utilizar el dato para Estados Unidos correspondiente al "Total Equity Risk Premium" (TERP), correspondiente a la última actualización disponible al momento del cálculo. En caso de que esta información no esté disponible, se podrán utilizar otras fuentes de información como Bloomberg u otras de uso conocido en los mercados financieros.
+En caso de no contar con las variables derivadas de la contabilidad regulatoria, si la información aportada en los estados financieros no permite conocer cuáles son las obligaciones financieras con costo financiero ligadas al servicio público regulado, se considerará la cuenta de Pasivo a Largo Plazo o Pasivo No Corriente como una aproximación a la cuenta "Total de Deuda".
 La actualización de la tasa de rentabilidad (trγ) se realizará una vez al año utilizando los datos, series y fuentes de información correspondientes. La Aresep deberá conformar un expediente administrativo con el fin de documentar el proceso de determinación de los valores indicados, de manera que sea auditable y permita la trazabilidad de los mismos. El expediente deberá incluir como mínimo las hojas de cálculo, la información base y el informe técnico que sustenta los resultados obtenidos. Estos resultados deben someterse previamente al trámite de consulta pública establecido en el artículo 361 de la Ley General de la Administración Pública, los resultados finales serán establecidos en una resolución que deberá ser publicada en el diario oficial La Gaceta como máximo el último día hábil de abril de cada año y regirá el día hábil posterior a su publicación.
 Una vez entrada en vigencia esta modificación metodológica, la Aresep tendrá un plazo de un mes para someter a consulta pública el primer cálculo de la tasa de rentabilidad. En caso de que la entrada en vigencia de esta modificación metodológica se dé anterior a la finalización del plazo para la entrega de estados financieros por parte de los operadores, el cálculo se realizará con base en la información de los estados financieros correspondientes al período fiscal anterior al recién concluido, el listado de título habilitante de la última fijación extraordinaria y la última base de flota autorizada remitida por el CTP a la Aresep. Entre tanto comienza a regir el primer cálculo, se aplicará las reglas vigentes con anterioridad a esta reforma.
 (*) (Así reformado el punto b) Tasa de rentabilidad para reglas de cálculo tarifario tipo 2 anterior mediante resolución N° RJD-060-2018 del 13 de abril del 2018)
 4.6.2 Rentabilidad del capital asociado a los activos fijos
 La retribución por el capital invertido en activos fijos: refleja la rentabilidad que recibe el prestador del servicio por mantener sus recursos invertidos en los activos para la prestación del servicio (costo de oportunidad). La formulación general sería la siguiente:
-[imagen]
 Donde:
 RAFr = Rentabilidad mensual del capital invertido en activos fijos en la ruta "r".
 RFr = Rentabilidad mensual del capital invertido en la flota en la ruta "r". El procedimiento para obtener este costo se detalla en la sección 4.6.2.a
@@ -962,24 +924,22 @@ Edad de la unidad de transporte público (años) | Factor de depreciación anual
 Más de 7 | 1,00000 | 0,00000
 El factor de rentabilidad del cuadro anterior para el capital invertido en flota se obtiene al deducir la
 depreciación acumulada de ese activo y se calcula de acuerdo con la siguiente ecuación:
-[imagen]
 Donde:
-[imagen] = Factor de rentabilidad anual según la edad "b" de las unidades que conforman la
+= Factor de rentabilidad anual según la edad "b" de las unidades que conforman la
 flota en la ruta "r", del conjunto de unidades "a".
-[imagen] = Factor de depreciación anual acumulada equivalente de las unidades que conforman
+= Factor de depreciación anual acumulada equivalente de las unidades que conforman
 la flota autorizada para la edad "b" obtenida del año de fabricación", del conjunto de
 unidades "a".
 a= Conjunto de vehículos con reglas de cálculo tarifario tipo 1.
 b = Edad de la unidad obtenida a partir del año de fabricación.
 La rentabilidad mensual asociada a estas unidades se calcula a partir de la siguiente ecuación:
-[imagen]
 Donde:
-[imagen] = Rentabilidad mensual del capital invertido en la flota de vehículos con la regla de cálculo tarifario tipo 1 de la ruta "r". Este rubro estará expresado en colones.
-[imagen] = Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús sin llantas ni neumáticos de edad "b" del tipo de vehículo que se utiliza en la ruta "r", del conjunto de unidades "a". Los valores tarifarios indicados se determinan según lo indicado en la sección 4.9 de esta metodología, expresados en colones.
-[imagen] = Factor de rentabilidad anual según la edad "b" de las unidades que conforman la flota en la ruta "r" del conjunto de unidades "a". Estos valores se obtienen según lo
+= Rentabilidad mensual del capital invertido en la flota de vehículos con la regla de cálculo tarifario tipo 1 de la ruta "r". Este rubro estará expresado en colones.
+= Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús sin llantas ni neumáticos de edad "b" del tipo de vehículo que se utiliza en la ruta "r", del conjunto de unidades "a". Los valores tarifarios indicados se determinan según lo indicado en la sección 4.9 de esta metodología, expresados en colones.
+= Factor de rentabilidad anual según la edad "b" de las unidades que conforman la flota en la ruta "r" del conjunto de unidades "a". Estos valores se obtienen según lo
 detallado en el Cuadro 21.
-[imagen] = Cantidad de unidades de la flota autorizada según la edad "b" en la ruta "r", del conjunto de unidades "a".
-[imagen] Tasa de rentabilidad anual para vehículos con reglas de cálculo tarifario tipo 1 para la ruta "r" del conjunto de unidades "a". Este valor se obtiene según lo detallado en la sección 4.6.1
+= Cantidad de unidades de la flota autorizada según la edad "b" en la ruta "r", del conjunto de unidades "a".
+Tasa de rentabilidad anual para vehículos con reglas de cálculo tarifario tipo 1 para la ruta "r" del conjunto de unidades "a". Este valor se obtiene según lo detallado en la sección 4.6.1
 r = Ruta de transporte remunerado de personas.
 b = Edad de la unidad obtenida a partir del año de fabricación correspondiente.
 (Así reformado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
@@ -1013,11 +973,10 @@ El factor de rentabilidad del cuadro anterior para el capital invertido en flota
 depreciación acumulada de ese activo y se calcula de acuerdo a la siguiente
 El factor de rentabilidad del cuadro anterior para el capital invertido en flota se obtiene al deducir la
 depreciación acumulada de ese activo y se calcula de acuerdo a la siguiente ecuación:
-[imagen]
 Donde:
-[imagen] = Factor de rentabilidad anual según la edad "b" de las unidades que conforman la
+= Factor de rentabilidad anual según la edad "b" de las unidades que conforman la
 flota en la ruta "r", del conjunto de unidades "γ".
-[imagen] = Factor de depreciación anual acumulada equivalente de las unidades que conforman
+= Factor de depreciación anual acumulada equivalente de las unidades que conforman
 la flota autorizada para la edad "b" obtenida del año de fabricación", del conjunto de
 unidades "γ".
 γ = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
@@ -1026,21 +985,20 @@ Por otra parte, para estas unidades se utilizará la tasa de rentabilidad asocia
 tasa de interés activa de bancos estatales para "otras actividades" y la tasa de interés básica
 pasiva, la cual se obtendrá tal como se expone en la sección 4.6.1. La estimación de la rentabilidad
 para estas unidades se obtiene a partir de la siguiente ecuación:
-[imagen] Ecuación 46
+Ecuación 46
 Donde:
-[imagen] = Rentabilidad mensual del capital invertido en la flota de vehículos con la regla de cálculo tarifario tipo 2 de la ruta "r". Este rubro estará expresado en colones.
-[imagen] = Valor tarifario de la flota sin llantas ni neumáticos para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades "y".
-[imagen] Tasa de rentabilidad anual para vehículos con reglas de cálculo tarifario tipo 1 para la ruta "r" del conjunto de unidades "y". Este valor se obtiene según lo detallado en la sección 4.6.1
-[imagen] = Factor de rentabilidad anual según la edad "b" de las unidades que conforman la flota en la ruta "r" del conjunto de unidades "y". Estos valores se obtienen según lo detallado en el Cuadro 22.
+= Rentabilidad mensual del capital invertido en la flota de vehículos con la regla de cálculo tarifario tipo 2 de la ruta "r". Este rubro estará expresado en colones.
+= Valor tarifario de la flota sin llantas ni neumáticos para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades "y".
+Tasa de rentabilidad anual para vehículos con reglas de cálculo tarifario tipo 1 para la ruta "r" del conjunto de unidades "y". Este valor se obtiene según lo detallado en la sección 4.6.1
+= Factor de rentabilidad anual según la edad "b" de las unidades que conforman la flota en la ruta "r" del conjunto de unidades "y". Estos valores se obtienen según lo detallado en el Cuadro 22.
 b = Edad de la unidad obtenida a partir del año de fabricación.
 y= Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
 r = Ruta de transporte remunerado de personas.
 A partir de las dos ecuaciones anteriores se obtiene la rentabilidad total mensual de flota, que será la suma de rentabilidades de los vehículos con reglas de cálculo tarifario tipo 1 y los vehículos con reglas de cálculo tarifario tipo 2, a saber, la suma de las ecuaciones 44 y 46, tal como lo indica la siguiente ecuación:
-[imagen]
 Donde se utilizan las mismas variables de las dos ecuaciones anteriores:
 RFr = Rentabilidad mensual del capital invertido en la flota de la ruta "r". Este rubro estará expresado en colones.
-[imagen] = Rentabilidad mensual del capital invertido en la flota de vehículos con la regla de cálculo tarifario tipo 1 de la ruta "r". Este rubro estará expresado en colones (ver ecuación 44).
-[imagen] = Rentabilidad mensual del capital invertido en la flota de vehículos con la regla de cálculo tarifario tipo 2 de la ruta "r". Este rubro estará expresado en colones (ver ecuación 46).
+= Rentabilidad mensual del capital invertido en la flota de vehículos con la regla de cálculo tarifario tipo 1 de la ruta "r". Este rubro estará expresado en colones (ver ecuación 44).
+= Rentabilidad mensual del capital invertido en la flota de vehículos con la regla de cálculo tarifario tipo 2 de la ruta "r". Este rubro estará expresado en colones (ver ecuación 46).
 r = Ruta de transporte remunerado de personas.
 a= Conjunto de vehículos con reglas de cálculo tarifario tipo 1.
 y= Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
@@ -1052,7 +1010,6 @@ c. Rentabilidad del capital invertido en maquinaria, equipo e instalaciones
 (Así modificada su numeración mediante resolución N° RJD-060-2018 del 13 de abril de 2018, que lo traspaso del inciso b) al c))
 La rentabilidad mensual del capital invertido maquinaria, equipo e instalaciones (RMEIr), se estima como una proporción de la suma de los valores tarifarios de las unidades de transporte remunerado de personas modalidad autobús con reglas de cálculo tarifario tipo 1 y tipo 2 que conforman la flota autorizada de la ruta. El valor toma en cuenta la cantidad de unidades y los valores tarifarios según edad obtenida del año de fabricación y tipo de vehículo utilizado en la ruta, multiplicado por la tasa de rentabilidad.
 La rentabilidad mensual del capital invertido de la maquinaria, el equipo y las instalaciones se estima según la siguiente ecuación:
-[imagen]
 Donde:
 RMEIr = Rentabilidad mensual del capital invertido en maquinaria, equipo e instalaciones en la ruta "r". Este rubro estará expresado en colones.
 crmei = Coeficiente de rentabilidad anual en la maquinaria, equipo e instalaciones para cualquier tipo de ruta. Este coeficiente es tomado de MOPT (1997) y se presenta en el siguiente Cuadro 23.
@@ -1060,10 +1017,10 @@ Cuadro 23. Coeficiente de rentabilidad anual en la maquinaria, equipo e
 instalaciones para cualquier tipo de ruta
 Coeficiente de rentabilidad anual en la
 maquinaria, equipo e instalaciones
-[imagen] = Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "a" (ver ecuación 84).
-[imagen] = Tasa de rentabilidad anual para vehículos con reglas de cálculo tarifario tipo 1 para la ruta "r" del conjunto de unidades "". Este valor se obtiene según lo detallado en la sección 4.6.1
-[imagen] = Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "γ" (ver ecuación 89).
-[imagen] = Tasa de rentabilidad anual para vehículos con reglas de cálculo tarifario tipo 2 para la ruta "r" del conjunto de unidades " ". Este valor se obtiene según lo detallado en la sección 4.6.1
+= Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "a" (ver ecuación 84).
+= Tasa de rentabilidad anual para vehículos con reglas de cálculo tarifario tipo 1 para la ruta "r" del conjunto de unidades "". Este valor se obtiene según lo detallado en la sección 4.6.1
+= Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "γ" (ver ecuación 89).
+= Tasa de rentabilidad anual para vehículos con reglas de cálculo tarifario tipo 2 para la ruta "r" del conjunto de unidades " ". Este valor se obtiene según lo detallado en la sección 4.6.1
 r = Ruta de transporte remunerado de personas.
 a = Conjunto de vehículos con reglas de cálculo tarifario tipo 1.
 y = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
@@ -1075,16 +1032,13 @@ d. Rentabilidad del capital invertido en el sistema automatizado de conteo de pa
 (Así modificada su numeración mediante resolución N° RJD-060-2018 del 13 de abril de 2018, que lo traspaso del inciso c) al d))
 La rentabilidad mensual del capital invertido en el sistema automatizado de conteo de pasajeros (RECPr), se calcula multiplicando el factor de rentabilidad del equipo por el valor de los equipos y por la tasa de rentabilidad.
 El factor de rentabilidad anual en el caso del capital invertido en el sistema automatizado de conteo de pasajeros, se obtiene al deducir el factor de la depreciación acumulada considerando que los equipos se deprecian de acuerdo con lo indicado en la sección 4.4.1.c, y se calcula con la siguiente ecuación:
-[imagen]
 Donde:
 frscp = Factor de rentabilidad anual del capital invertido en el sistema automatizado de conteo de pasajeros.
 fdascp = Factor de depreciación anual acumulada de la inversión en el sistema automatizado de conteo de pasajeros. Se considera como criterio tarifario que el sistema automatizado de conteo de pasajeros se encuentra a la mitad de su vida útil indicada en el Cuadro 5 anterior, criterio establecido considerando que los operadores de los servicios presentan condiciones de inversión de una empresa en marcha. El factor de depreciación acumulada al cabo de la mitad de la vida útil está dado por la expresión:
-[imagen]
 Donde:
 VUSCP = Vida útil del sistema automatizado de conteo de pasajeros.
 fdscp = Factor de depreciación anual para el sistema automatizado de conteo de pasajeros. Este factor se detalla en el Cuadro 5.
 De esta forma, la rentabilidad mensual total para el sistema automatizado de conteo de pasajeros se calcula a partir de la siguiente ecuación:
-[imagen]
 Donde:
 RSCPr = Rentabilidad mensual del capital invertido en el sistema automatizado de conteo de pasajeros en la ruta "r". Este rubro estará expresado en colones.
 frscp = Factor de rentabilidad anual del capital invertido en el sistema automatizado de conteo de pasajeros.
@@ -1098,21 +1052,20 @@ El factor de rentabilidad anual estará sujeto a variación de acuerdo con los e
 El plazo establecido para la actualización del valor del factor, permite la revisión periódica de la metodología de manera que se incorpore los cambios en el entorno financiero, así como los cambios tecnológicos y legales atinentes al servicio objeto de la presente metodología. Los casos de inclusión, eliminación de factores y variación en las reglas para definir factores, deberán someterse previamente al proceso de audiencia pública previsto en el artículo 36 de la Ley N° 7593.
 (Así reformado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 (Nota de Sinalevi: mediante resolución N° 060-2018 del 13 de abril de 2018, se acordó las modificaciones de forma y aclaraciones relacionadas con los coeficientes. Al no ser clara la reforma se transcribe la misma: "Sección 4.6.2.a.i. Para los vehículos con reglas de cálculo tarifario tipo 1, eliminar de la definición de VTAN_br lo siguiente: "ni neumáticos".)
-(Nota de Sinalevi: mediante resolución N° 060-2018 del 13 de abril de 2018, se acordó las modificaciones de forma y aclaraciones relacionadas con los coeficientes. Al no ser clara la reforma se transcribe la misma: Sección 4.6.2.a.ii. Para los vehículos con reglas de cálculo tarifario tipo 2, eliminar de la definición de [imagen] lo siguiente: "ni neumáticos" )
+(Nota de Sinalevi: mediante resolución N° 060-2018 del 13 de abril de 2018, se acordó las modificaciones de forma y aclaraciones relacionadas con los coeficientes. Al no ser clara la reforma se transcribe la misma: Sección 4.6.2.a.ii. Para los vehículos con reglas de cálculo tarifario tipo 2, eliminar de la definición de lo siguiente: "ni neumáticos" )
 4.6.3 Rentabilidad del capital invertido en proveeduría
 La rentabilidad mensual del capital invertido en proveeduría (RCPr), se estima como una proporción de la suma de los valores tarifarios de las unidades de transporte remunerado de personas modalidad autobús que conforman la flota autorizada de la ruta. El valor toma en cuenta la cantidad de unidades y los valores tarifarios según la edad obtenida del año de fabricación y tipo de vehículo que utilizado en la ruta, multiplicado por la tasa de rentabilidad.
 La rentabilidad mensual de capital invertido en proveeduría se estima según la siguiente ecuación:
-[imagen]
 Donde:
 RCPr = Rentabilidad mensual del capital invertido en proveeduría en la ruta "r". Este rubro estará expresado en colones.
 crp = Coeficiente de rentabilidad anual del capital de proveeduría para cualquier tipo de ruta. Este coeficiente es tomado de MOPT (1997) y se presenta en el siguiente Cuadro 24.
 Cuadro 24. Coeficiente de rentabilidad anual de capital en proveeduría para cualquier tipo de ruta
 Coeficiente de rentabilidad anual de capital en proveeduría
 0,03
-[imagen] = Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "a" (ver ecuación 84).
-[imagen] = Tasa de rentabilidad anual para vehículos con reglas de cálculo tarifario tipo 1 para la ruta "r" del conjunto de unidades "a". Este valor se obtiene según lo detallado en la sección 4.6.1
-[imagen] = Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "γ" (ver ecuación 89).  VTAFr
-[imagen] = Tasa de rentabilidad anual para vehículos con reglas de cálculo tarifario tipo 2 para la ruta "r" del conjunto de unidades "y". Este valor se obtiene según lo detallado en la sección 4.6.1
+= Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "a" (ver ecuación 84).
+= Tasa de rentabilidad anual para vehículos con reglas de cálculo tarifario tipo 1 para la ruta "r" del conjunto de unidades "a". Este valor se obtiene según lo detallado en la sección 4.6.1
+= Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "γ" (ver ecuación 89).  VTAFr
+= Tasa de rentabilidad anual para vehículos con reglas de cálculo tarifario tipo 2 para la ruta "r" del conjunto de unidades "y". Este valor se obtiene según lo detallado en la sección 4.6.1
 r = Ruta de transporte remunerado de personas.
 a = Conjunto de vehículos con reglas de cálculo tarifario tipo 1.
 y = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
@@ -1173,14 +1126,12 @@ En el caso de una ruta sin ramales y sin fraccionamientos, el establecimiento de
 i. El cociente entre los costos totales mensuales necesarios para brindar el servicio y la cantidad de pasajeros mensuales que utilizan y efectivamente pagan el servicio. Este procedimiento de cálculo está descrito en la ecuación 1 de la sección 4.1.
 ii. El cociente entre los costos totales por kilómetro necesarios para brindar el servicio y la cantidad de pasajeros mensuales por kilómetro que utilizan y efectivamente pagan el servicio. Este procedimiento de cálculo por kilómetro se describe a continuación:
 La expresión general de la tarifa media calculadas por pasajero a partir del costo por kilómetro se obtiene mediante la ecuación:
-[imagen]
 Donde:
 Tr = Tarifa por pasajero de la ruta "r".
 CTKr = Costo total por kilómetro de la ruta "r".
 IPKr = Índice de pasajeros por kilómetro de la ruta "r".
 r = Ruta de transporte remunerado de personas.
 El costo total por kilómetro total de la ruta (CTKr) se calcula de la siguiente forma:
-[imagen]
 Donde:
 CTKr = Costo total por kilómetro de la ruta "r".
 CTr = Costos totales mensuales de la ruta "r".
@@ -1188,21 +1139,18 @@ Fr = Cantidad total de unidades de la flota autorizada de la ruta "r". Comprende
 RPMr = Recorrido promedio mensual por vehículo de la ruta "r".
 r = Ruta de transporte remunerado de personas.
 Por otra parte, el índice de pasajeros por kilómetro de la ruta (IPKr), se obtiene de la siguiente expresión:
-[imagen]
 Donde:
 IPKr = Índice de pasajeros por kilómetro de la ruta "r".
 PVMr = Cantidad promedio mensual de pasajeros por vehículo de la ruta "r".
 RPMr = Recorrido promedio mensual por vehículo de la ruta "r".
 r = Ruta de transporte remunerado de personas.
 La cantidad promedio mensual de pasajeros por vehículo de la ruta (PVMr), corresponde al indicador que mide el número promedio de pasajeros que transporta un vehículo en el período de un mes. Se calcula así:
-[imagen]
 Donde:
 PVMr = Cantidad promedio mensual de pasajeros por vehículo de la ruta "r".
 Pr = Volumen mensual de pasajeros movilizados en la ruta "r". Los valores por utilizar en el cálculo tarifario serán los que resulten de aplicar los criterios de la sección 4.7.
 Fr = Cantidad total de unidades de la flota autorizada de la ruta "r". Comprende la suma de vehículos con regla tarifaria tipo 1 y regla tarifaria tipo 2.
 r = Ruta de transporte remunerado de personas.
 El recorrido promedio mensual por vehículo de la ruta (RPMr), corresponde al indicador que mide la distancia media que recorre un vehículo en el período de un mes, se calcula de la siguiente forma:
-[imagen]
 Donde:
 RPMr = Recorrido promedio mensual por vehículo de la ruta "r".
 Dr = Distancia en kilómetros de la carrera de la ruta "r". Es la longitud en kilómetros en ambos sentidos de recorrido de la ruta "r". El valor de esta variable se determina según lo indicado en la sección 4.12.1.b de esta metodología.
@@ -1211,9 +1159,7 @@ CMr = Cantidad de carreras mensuales de la ruta "r". Los valores por utilizar en
 Fr = Cantidad total de unidades de la flota autorizada de la ruta "r". Comprende la suma de vehículos con regla tarifaria tipo 1 y regla tarifaria tipo 2.
 r = Ruta de transporte remunerado de personas.
 Al sustituir las ecuaciones anteriores en la ecuación general de la tarifa por pasajero, se obtiene la expresión:
-[imagen]
 y mediante simplificaciones algebraicas se llega a la ecuación 1
-[imagen]
 4.8.2 Cálculo de tarifas para un conjunto de rutas o ramales
 Para efectos de la estructura de costos del presente metodología, en los casos en que exista una flota autorizada para un conjunto de rutas y/o un conjunto de ramales ("flota unificada"), dicho conjunto se considerará como una sola ruta que representa al conjunto. En estos casos, luego de aplicar los criterios de la sección 4.12 para cada ruta y/o ramal individual o en su defecto para un conjunto de rutas y/o un conjunto de ramales ("flota unificada"), se considerará lo siguiente:
 i. La distancia de la carrera corresponderá al valor ponderado de la distancia de las carreras de cada una de las rutas y/o ramales del conjunto ( ), usando como ponderador la cantidad de carreras mensuales reconocidas de cada ruta y/o ramal (ver Ecuación 69). ' D
@@ -1222,13 +1168,11 @@ iii. La cantidad de unidades de la flota autorizada corresponderá al total de u
 iv. El volumen mensual de pasajeros ( ) corresponderá a los criterios indicados en la sección 4.7 anterior (ver Ecuación 73). ' P
 v. El valor de las unidades de transporte corresponderá a un valor promedio ponderado según el tipo de unidad asociado a cada ruta y/o ramal ( ), el cual se obtiene a partir de la multiplicación del valor del tipo de la unidad de transporte por la ponderación de la cantidad de kilómetros mensuales recorridos en cada ruta y/o ramal por tipo de unidad (ver Ecuación 66). 'b VTAN
 De acuerdo con la información el cálculo de las tarifas se realizará a partir del procedimiento de cálculo por kilómetro definido en la ecuación 56 de la sección 4.8.1 anterior, expresado mediante la siguiente ecuación:
-[imagen]
 Donde:
 T' = Tarifa por pasajero para el conjunto de rutas y/o ramales.
 CTK' = Costo total por kilómetro del conjunto de rutas y/o ramales.
 IPK' = Índice de pasajeros por kilómetro del conjunto de rutas y/o ramales.
 El costo total por kilómetro del conjunto de rutas y/o ramales (CTK'), corresponderá al cociente entre los costos totales mensuales del conjunto de rutas y/o ramales, y el recorrido promedio mensual de la flota autorizada del conjunto de rutas y/o ramales, expresado mediante la siguiente ecuación:
-[imagen]
 Donde:
 CTK' = Costo total por kilómetro del conjunto de rutas y/o ramales.
 CF' = Costos fijos mensuales del conjunto de rutas y/o ramales.
@@ -1239,20 +1183,18 @@ RPM' = Recorrido promedio mensual por vehículo del conjunto de rutas y/o ramale
 a. Cálculo de costos fijos y rentabilidad para un conjunto de rutas o ramales
 El cálculo de los costos fijos mensuales del conjunto de rutas y/o ramales (CF'), se realiza según lo indicado en la sección 4.4 y el cálculo de la rentabilidad mensual del capital para la operación del conjunto de rutas y/o ramales (RT'), se determina según lo indicado en la sección 4.6, considerando:
 La cantidad de unidades de la flota autorizada en la ruta "r" (Fr), corresponde a la cantidad total de unidades de la flota autorizada para el conjunto de rutas y/o ramales (F'), según la siguiente expresión:
-[imagen]
 Donde:
 F' = Cantidad total de unidades de la flota autorizada para el conjunto de rutas y/o ramales.
-[imagen] = Cantidad de unidades de la flota autorizada en la ruta "r" según la edad "b", del conjunto de unidades "α" y "γ" ,  br F
+= Cantidad de unidades de la flota autorizada en la ruta "r" según la edad "b", del conjunto de unidades "α" y "γ" ,  br F
 b = Edad de la unidad obtenida a partir del año de fabricación.
 r = Ruta de transporte remunerado de personas.
 a = Conjunto de vehículos con reglas de cálculo tarifario tipo 1.
 y = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
 R = Total de rutas de transporte remunerado de personas del conjunto.
 El valor tarifario de la unidad de transporte remunerado de personas modalidad autobús sin llantas ni neumáticos para la edad "b" que se utiliza en la ruta "r" (VTANbrl) corresponde al valor tarifario de la unidad de transporte remunerado de personas modalidad autobús sin llantas ni neumáticos para la edad "b" obtenida del año fabricación del tipo de vehículo que se utiliza en el conjunto de rutas y/o ramales (VTAN'b), según la siguiente expresión:
-[imagen]
 Donde:
 VTAN'b = Los valores tarifarios de las unidades de transporte sin llantas ni neumáticos, según la edad "b" del tipo de vehículo del conjunto de rutas y/o ramales.
-[imagen] = Los valores tarifarios de las unidades de transporte sin llantas ni neumáticos, según la edad "b" de la ruta "r" y/o ramal "l", del conjunto de unidades "α" y "γ". Se determinan según lo indicado en la sección 4.9 de esta metodología, expresados en colones. brl VTAN
+= Los valores tarifarios de las unidades de transporte sin llantas ni neumáticos, según la edad "b" de la ruta "r" y/o ramal "l", del conjunto de unidades "α" y "γ". Se determinan según lo indicado en la sección 4.9 de esta metodología, expresados en colones. brl VTAN
 Drl = Distancia de la carrera del ramal "l" de la ruta "r". Es la longitud en kilómetros sumando ambos sentidos de recorrido del ramal "l" de la ruta "r". El valor de esta variable se determina según lo indicado en la sección 4.12.1.b de esta metodología.
 CMrl = Cantidad de carreras mensuales del ramal "l" de la ruta "r". Los valores por utilizar en el cálculo tarifario serán los que resulten de aplicar los criterios de validación de la sección 4.12.1.a.
 r = Ruta de transporte remunerado de personas.
@@ -1260,7 +1202,6 @@ R = Total de rutas de transporte remunerado de personas del conjunto.
 l = Ramal de la ruta "r" de transporte remunerado de personas.
 L = Total de ramales de la ruta "r" de transporte remunerado de personas del conjunto.
 El valor tarifario de la unidad de transporte remunerado de personas modalidad para la edad "b" que se utiliza en la ruta "r" (VTAbr) corresponde al valor tarifario de la unidad de transporte remunerado de personas modalidad autobús para la edad "b" obtenida del año fabricación del tipo de vehículo que se utiliza en el conjunto de rutas y/o ramales (VTA'b), según la siguiente expresión:
-[imagen]
 Donde:
 VTA'b = Valor tarifario de las unidades de transporte, según la edad "b" del conjunto de rutas y/o ramales.
 = Valor tarifario de las unidades de transporte, según la edad "b" de la ruta "r" y/o ramal "l", del conjunto de unidades "α" y "γ". Se determinan según lo indicado en la sección 4.9 de esta metodología, expresados en colones. brl VTA
@@ -1276,7 +1217,6 @@ El cálculo de los costos variables mensuales del conjunto de rutas y/o ramales 
 La distancia de la carrera de la ruta "r" (Dr) corresponde a la distancia promedio ponderada del conjunto de rutas y/o ramales (D'), definida adelante en la ecuación 69.
 La cantidad de carreras mensuales de la ruta "r" (CMr) corresponde a la cantidad de carreras mensuales del conjunto de rutas y/o ramales (CM'), definida adelante en la ecuación 70.
 El recorrido promedio mensual por vehículo para el conjunto de rutas y/o ramales (RPM'), corresponderá al producto de las carreras mensuales totales del conjunto de rutas y/o ramales y la distancia promedio ponderada de cada rutas y/o ramales del conjunto considerando el kilometraje improductivo, dividido a su vez por la cantidad total de unidades de la flota autorizada para el conjunto de rutas y/o ramales, expresado mediante la siguiente ecuación:
-[imagen]
 Donde:
 RPM' = Recorrido promedio mensual por vehículo del conjunto de rutas y/o ramales.
 D' = Distancia promedio ponderada del conjunto de rutas y/o ramales. Es la ponderación de la longitud en kilómetros en ambos sentidos de recorrido del conjunto de rutas y/o ramales. Este valor se obtiene adelante según se indica en la ecuación 69.
@@ -1284,7 +1224,6 @@ cki = Coeficiente de ajuste por reconocimiento de kilometraje improductivo. El k
 CM' = Cantidad de carreras mensuales del conjunto de rutas y/o ramales. Este valor se obtiene según se indica en la ecuación 70.
 F' = Cantidad total de unidades de la flota autorizada para el conjunto de rutas y/o ramales.
 La distancia promedio ponderada del conjunto de rutas y/o ramales (D') se obtiene de promediar la distancia de la carrera del ramal "l" de la ruta "r" (validados según los criterios indicados en la sección 4.12.1.b) ponderando por la cantidad de carreras del ramal "l" de la ruta "r" (validados según los criterios indicados en la sección 4.12.1.a), expresado mediante la siguiente ecuación:
-[imagen]
 Donde:
 D' = Distancia promedio ponderada del conjunto de rutas y/o ramales. Es la ponderación de la longitud en kilómetros en ambos sentidos de recorrido del conjunto de rutas y/o ramales.
 Drl = Distancia de la carrera del ramal "l" de la ruta "r". Es la longitud en kilómetros sumando ambos sentidos de recorrido del ramal "l" de la ruta "r". El valor de esta variable se determina según lo indicado en la sección 4.12.1.b de esta metodología.
@@ -1294,7 +1233,6 @@ R = Total de rutas de transporte remunerado de personas del conjunto.
 l = Ramal de la ruta "r" de transporte remunerado de personas.
 L = Total de ramales de la ruta "r" de transporte remunerado de personas del conjunto.
 La cantidad de carreras mensuales del conjunto de rutas y/o ramales (CM') será la suma de las carreras individuales de cada ramal "l" y ruta "r" que resulten de aplicar los criterios de validación de la sección 4.12.1.a. y se determinará mediante la expresión:
-[imagen]
 Donde:
 CM' = Cantidad de carreras mensuales del conjunto de rutas y/o ramales.
 CMrl = Cantidad de carreras mensuales del ramal "l" de la ruta "r". Los valores por utilizar en el cálculo tarifario serán los que resulten de aplicar los criterios de validación de la sección 4.12.1.a.
@@ -1304,19 +1242,16 @@ l = Ramal de la ruta "r" de transporte remunerado de personas.
 L = Total de ramales de la ruta "r" de transporte remunerado de personas del conjunto.
 c. Cálculo de índice de pasajeros para un conjunto de rutas o ramales
 El índice de pasajeros por kilómetro del conjunto de rutas y/o ramales (IPK), se obtiene de la siguiente expresión:
-[imagen]
 Donde:
 IPK' = Índice de pasajeros por kilómetro del conjunto de rutas y/o ramales.
 PVM' = Cantidad promedio mensual de pasajeros por vehículo del conjunto de rutas y/o ramales.
 RPM' = Recorrido promedio mensual por vehículo del conjunto de rutas y/o ramales.
 La cantidad promedio mensual de pasajeros del conjunto de rutas y/o ramales (PVM'), corresponde al indicador que mide la cantidad media de pasajeros que transporta un vehículo en el período de un mes, según la siguiente expresión:
-[imagen]
 Donde:
 PVM' = Cantidad promedio mensual de pasajeros por vehículo del conjunto de rutas y/o ramales.
 P' = Volumen mensual de pasajeros del conjunto de rutas y/o ramales. Este valor se obtiene según se indica en la ecuación 73.
 F' = Cantidad total de unidades de la flota autorizada para el conjunto de rutas y/o ramales.
 El volumen mensual de pasajeros del conjunto de rutas y/o ramales se determinará mediante la expresión:
-[imagen]
 Donde:
 P' = Volumen mensual de pasajeros del conjunto de rutas y/o ramales.
 Prl = Volumen mensual de pasajeros movilizados en el ramal "l" de la ruta "r". Los valores por utilizar en el cálculo tarifario serán los que resulten de aplicar los criterios de la sección 4.7 anterior.
@@ -1325,14 +1260,12 @@ R = Total de rutas de transporte remunerado de personas del conjunto.
 l = Ramal de la ruta "r" de transporte remunerado de personas.
 L = Total de ramales de la ruta "r" de transporte remunerado de personas del conjunto.
 El valor de la tarifa para el conjunto de rutas y/o ramales, se obtiene mediante la siguiente ecuación:
-[imagen]
 Donde:
 TA' = Tarifa ajustada por pasajero para el conjunto de rutas y/o ramales.
 TV' = Tarifa vigente por pasajero del conjunto de rutas y/o ramales.
 A' = Porcentaje de ajuste de la tarifa por pasajero del conjunto de rutas y/o ramales con respecto a la tarifa vigente por pasajero del conjunto de rutas y/o ramales al momento de la aplicación de esta metodología.
 (Así reformada la ecuación N° 74 y su definiicón por resolución N° RJD-060-2018 del 13 de abril de 2018)
 La tarifa vigente por pasajero del conjunto de rutas y/o ramales, se obtiene de ponderar la tarifa vigente del ramal "l" de la ruta "r" (según el pliego tarifario vigente), expresado mediante la siguiente ecuación:
-[imagen]
 Donde:
 TV' = Tarifa vigente por pasajero del conjunto de rutas y/o ramales.
 TVrl = Tarifa vigente por pasajero del ramal "l" de la ruta "r".
@@ -1342,68 +1275,62 @@ R = Total de rutas de transporte remunerado de personas del conjunto.
 l = Ramal de la ruta "r" de transporte remunerado de personas.
 L = Total de ramales de la ruta "r" de transporte remunerado de personas del conjunto.
 El porcentaje de ajuste de la tarifa por pasajero del conjunto de rutas y/o ramales calculada con respecto a la tarifa vigente por pasajero del conjunto de rutas y/o ramales al momento de la aplicación de esta metodología, se obtiene mediante la siguiente ecuación y será el mismo para todas las rutas y/o ramales del conjunto:
-[imagen]
 Donde:
 A' = Porcentaje de ajuste de la tarifa por pasajero del conjunto de rutas y/o ramales con respecto a la tarifa vigente por pasajero del conjunto de rutas y/o ramales al momento de la aplicación de esta metodología.
 T' = Tarifa por pasajero del conjunto de rutas y/o ramales. Este valor se obtiene según se indica en la ecuación 74.
 TV' = Tarifa vigente por pasajero del conjunto de rutas y/o ramales. Este valor se obtiene según se indica en la ecuación 75.
 Para determinar la tarifa de un ramal individual del conjunto de rutas y/o ramales, se aplica el porcentaje de ajuste de la ecuación 76 sobre la tarifa vigente de cada ramal tal como lo expresa la siguiente ecuación.
-[imagen]
 Donde:
 Trl = Tarifa por pasajero de la ruta y/o ramal en un conjunto de rutas y/o ramales.
 TVrl = Tarifa vigente por pasajero del ramal "l" de la ruta "r".
 A' = Porcentaje de ajuste de la tarifa por pasajero del conjunto de rutas y/o ramales con respecto a la tarifa vigente por pasajero del conjunto de rutas y/o ramales al momento de la aplicación de esta metodología.
 r = Ruta de transporte remunerado de personas.
 l = Ramal de la ruta "r" de transporte remunerado de personas.
-(*)Para el caso de una ruta y/o ramal o conjunto de rutas y/o ramales con fraccionamientos tarifarios, en ausencia de la información de volumen de pasajeros movilizados necesaria para calcular las tarifas de los fraccionamientos según lo señalado en la sección 4.8.3 Cálculo de tarifas para un fraccionamiento de una ruta, se procederá a ajustar las tarifas vigentes a partir del porcentaje de la ecuación 78. En este caso, para obtener la tarifa vigente TV’ se considerará como la tarifa vigente del ramal TVrl, la media aritmética entre las tarifas vigentes pertenecientes al ramal “l”.
+(*)Para el caso de una ruta y/o ramal o conjunto de rutas y/o ramales con fraccionamientos tarifarios, en ausencia de la información de volumen de pasajeros movilizados necesaria para calcular las tarifas de los fraccionamientos según lo señalado en la sección 4.8.3 Cálculo de tarifas para un fraccionamiento de una ruta, se procederá a ajustar las tarifas vigentes a partir del porcentaje de la ecuación 78. En este caso, para obtener la tarifa vigente TV' se considerará como la tarifa vigente del ramal TVrl, la media aritmética entre las tarifas vigentes pertenecientes al ramal "l".
 Para el caso de una ruta o conjunto de rutas con al menos un ramal nuevo (sin tarifa vigente), se deberán calcular las tarifas de todos los ramales como sigue:
-[imagen]
 Donde:
-Trl = Tarifa por pasajero del ramal “l” de la ruta “r”.
+Trl = Tarifa por pasajero del ramal "l" de la ruta "r".
 CTr = Costo total del conjunto de rutas y/o ramales.
-Drl = Distancia de la carrera del ramal “l” de la ruta “r”.
-CMrl = Cantidad de carreras mensuales del ramal “l” de la ruta “r”.
-Prl = Volumen mensual de pasajeros movilizados en el ramal “l” de la ruta “r”.
+Drl = Distancia de la carrera del ramal "l" de la ruta "r".
+CMrl = Cantidad de carreras mensuales del ramal "l" de la ruta "r".
+Prl = Volumen mensual de pasajeros movilizados en el ramal "l" de la ruta "r".
 r = Ruta de transporte remunerado de personas.
 R = Total de rutas de transporte remunerado de personas del conjunto.
-l = Ramal de la ruta “r” de transporte remunerado de personas.
-L = Total de ramales de la ruta “r” de transporte remunerado de personas del conjunto.
+l = Ramal de la ruta "r" de transporte remunerado de personas.
+L = Total de ramales de la ruta "r" de transporte remunerado de personas del conjunto.
 Mediante dicho método, se podrán recalcular también las tarifas de los ramales en caso de rutas que hayan sido fusionadas.
 (*) (Así adicionado el apartado anterior mediante rsolución N° RJD-060-2018 del 13 de abril de 2018)
 4.8.3 Cálculo de tarifas para un fraccionamiento de una ruta
 El procedimiento para el cálculo de tarifas por fraccionamiento de una ruta depende del nivel de desagregación de la información de volumen de pasajeros con el que se cuente. En caso que el nivel más bajo del volumen mensual de pasajeros sea por ramal o ruta, se calculará un porcentaje de variación en la tarifa que aplicará a todo el pliego tarifario vigente de la respectiva ruta, mientras que si se cuenta con el volumen mensual de pasajeros de cada uno de los fraccionamientos se muestra el procedimiento para calcular la matriz tarifaria de cada uno de los ramales de la ruta respectiva.
-Para el caso de una ruta y/o ramal o conjunto de rutas y/o ramales con fraccionamientos tarifarios, en ausencia de la información de volumen de pasajeros movilizados de cada uno de los fraccionamientos, se procederá a ajustar las tarifas vigentes a partir del porcentaje de la ecuación 78. En este caso, para obtener la tarifa vigente TV’ se considerará como la tarifa vigente del ramal TVrl, la media aritmética entre las tarifas vigentes pertenecientes al ramal “l.
-El procedimiento para el cálculo de la tarifa de cada fraccionamiento “f”, de cada ramal “l”, de cada ruta “r”, en los casos donde se cuente con la información del volumen de pasajeros movilizados en cada fraccionamiento, inicia con el cálculo de los costos totales de cada ramal de la siguiente manera:
-[imagen]
+Para el caso de una ruta y/o ramal o conjunto de rutas y/o ramales con fraccionamientos tarifarios, en ausencia de la información de volumen de pasajeros movilizados de cada uno de los fraccionamientos, se procederá a ajustar las tarifas vigentes a partir del porcentaje de la ecuación 78. En este caso, para obtener la tarifa vigente TV' se considerará como la tarifa vigente del ramal TVrl, la media aritmética entre las tarifas vigentes pertenecientes al ramal "l.
+El procedimiento para el cálculo de la tarifa de cada fraccionamiento "f", de cada ramal "l", de cada ruta "r", en los casos donde se cuente con la información del volumen de pasajeros movilizados en cada fraccionamiento, inicia con el cálculo de los costos totales de cada ramal de la siguiente manera:
 Donde:
-CTrl = Costo total del ramal “l” de la ruta “r”.
+CTrl = Costo total del ramal "l" de la ruta "r".
 CTr = Costo total del conjunto de rutas y/o ramales.
-Drl = Distancia de la carrera del ramal “l” de la ruta “r”.
-CMrl = Cantidad de carreras mensuales del ramal “l” de la ruta “r”.
+Drl = Distancia de la carrera del ramal "l" de la ruta "r".
+CMrl = Cantidad de carreras mensuales del ramal "l" de la ruta "r".
 r = Ruta de transporte remunerado de personas.
 R = Total de rutas de transporte remunerado de personas del conjunto.
-l = Ramal de la ruta “r” de transporte remunerado de personas.
-L = Total de ramales de la ruta “r” de transporte remunerado de personas del conjunto.
-Una vez que se calcula el costo total mensual por ramal “l” de la ruta “r”, se calcula la tarifa por cada fraccionamiento de la siguiente manera:
-[imagen]
+l = Ramal de la ruta "r" de transporte remunerado de personas.
+L = Total de ramales de la ruta "r" de transporte remunerado de personas del conjunto.
+Una vez que se calcula el costo total mensual por ramal "l" de la ruta "r", se calcula la tarifa por cada fraccionamiento de la siguiente manera:
 Donde:
-Trlf = Tarifa por pasajero del fraccionamiento “f” del ramal “l” de la ruta “r”.
-CTrl = Costo total mensual del ramal “l” de la ruta “r”.
-Drlf = Distancia del fraccionamiento “f” del ramal “l” de la ruta “r”.
-Prlf = Volumen mensual de pasajeros en el fraccionamiento “f” del ramal “l” de la ruta “r”.
-l = Ramal de la ruta “r” de transporte remunerado de personas.
-L = Total de ramales de la ruta “r” de transporte remunerado de personas del conjunto.
-f = Fraccionamiento tarifario del ramal “l” de la ruta “r” de transporte remunerado de personas.
-F = Total de fraccionamientos tarifarios del ramal “l” de la ruta “r” de transporte remunerado de personas.
-En caso de que para la ruta o conjunto de rutas “r” de un mismo operador y con flota unificada, al menos uno de los fraccionamientos sea compartido por 2 o más ramales de “r”, para calcular la tarifa de cada fraccionamiento no se considera el nivel de ramal “l” en la ecuación inmediata anterior (Trlf), por lo que no se requiere obtener el costo del ramal CTrl.
-La tarifa por pasajero del fraccionamiento “f” del ramal “l” de la ruta “r” permite generar una matriz tarifaria, es decir una matriz donde para cada origen y destino de fraccionamiento se calcula una tarifa. En el caso de los viajes entre dos segmentos de fraccionamientos tarifarios distintos se deben sumar las tarifas de los segmentos entre el origen y el destino del viaje (incluyendo ambos) según el recorrido del ramal y aplica indistintamente para el sentido del viaje (1-2 o 2-1). Esa tarifa compuesta para cada viaje se calcula de la siguiente manera:
-[imagen]
+Trlf = Tarifa por pasajero del fraccionamiento "f" del ramal "l" de la ruta "r".
+CTrl = Costo total mensual del ramal "l" de la ruta "r".
+Drlf = Distancia del fraccionamiento "f" del ramal "l" de la ruta "r".
+Prlf = Volumen mensual de pasajeros en el fraccionamiento "f" del ramal "l" de la ruta "r".
+l = Ramal de la ruta "r" de transporte remunerado de personas.
+L = Total de ramales de la ruta "r" de transporte remunerado de personas del conjunto.
+f = Fraccionamiento tarifario del ramal "l" de la ruta "r" de transporte remunerado de personas.
+F = Total de fraccionamientos tarifarios del ramal "l" de la ruta "r" de transporte remunerado de personas.
+En caso de que para la ruta o conjunto de rutas "r" de un mismo operador y con flota unificada, al menos uno de los fraccionamientos sea compartido por 2 o más ramales de "r", para calcular la tarifa de cada fraccionamiento no se considera el nivel de ramal "l" en la ecuación inmediata anterior (Trlf), por lo que no se requiere obtener el costo del ramal CTrl.
+La tarifa por pasajero del fraccionamiento "f" del ramal "l" de la ruta "r" permite generar una matriz tarifaria, es decir una matriz donde para cada origen y destino de fraccionamiento se calcula una tarifa. En el caso de los viajes entre dos segmentos de fraccionamientos tarifarios distintos se deben sumar las tarifas de los segmentos entre el origen y el destino del viaje (incluyendo ambos) según el recorrido del ramal y aplica indistintamente para el sentido del viaje (1-2 o 2-1). Esa tarifa compuesta para cada viaje se calcula de la siguiente manera:
 Donde:
-Tab = Tarifa por pasajero del viaje entre los fraccionamientos “a” y “b”
-Ta = Tarifa por pasajero del viaje en el fraccionamiento “a”
-Tb = Tarifa por pasajero del viaje en el fraccionamiento “b”
-De esta manera se puede construir para cada ramal “l” de la ruta “r” una matriz tarifaria a partir de los fraccionamientos “frlx” para todo “x” entre 1 y n (según la cantidad de fraccionamientos de cada ramal) y las tarifas de cada fraccionamiento de la siguiente manera:
-Cuadro 1: Matriz Origen-Destino para fraccionamientos “f” de la ruta “r” con ramal “l”
+Tab = Tarifa por pasajero del viaje entre los fraccionamientos "a" y "b"
+Ta = Tarifa por pasajero del viaje en el fraccionamiento "a"
+Tb = Tarifa por pasajero del viaje en el fraccionamiento "b"
+De esta manera se puede construir para cada ramal "l" de la ruta "r" una matriz tarifaria a partir de los fraccionamientos "frlx" para todo "x" entre 1 y n (según la cantidad de fraccionamientos de cada ramal) y las tarifas de cada fraccionamiento de la siguiente manera:
+Cuadro 1: Matriz Origen-Destino para fraccionamientos "f" de la ruta "r" con ramal "l"
 | Destino
 Origen | | frl1 | frl2 | frlx | frln
 frl1 | T11 | T12 | T1x | T1n
@@ -1429,7 +1356,6 @@ Autobús interurbano largo | Vehículo con una capacidad de más de 44 pasajeros
 Para un mismo tipo de vehículo, el valor tarifario es el mismo, independientemente de su año de fabricación que determina o edad (b).
 En la aplicación del cálculo tarifario, se requiere también obtener el valor del vehículo sin llantas ni neumáticos. Este valor tarifario (VTAN
 br) para las unidades con reglas tipo 1, se calcula de la siguiente manera:
-[imagen]
 "Donde:
 VTAN_
 br = Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús sin llantas con edad "b" del tipo de vehículo que se utiliza en la ruta "r", del conjunto de unidades "󠇀󠇕".
@@ -1442,20 +1368,18 @@ r = Ruta de transporte remunerado de personas.
 󠇕 = Conjunto de vehículos con reglas de cálculo tarifario tipo 1."
 (Así reformala la ecuación N° 83 junto con sus definiciones mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 Así mismo, se define el valor total de la flota para vehículos con regla tipo 1:
-[imagen]
 Donde:
-[imagen] = Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades"a".
-[imagen] = Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús según edad "b" obtenida del tipo de vehículo que se utiliza en la ruta "r", del conjunto de unidades "" según lo definido en la Resolución 008-RIT-2014 o cualquier otra que lo sustituya.
-[imagen] = Cantidad de unidades de la flota autorizada según la edad "b" en la ruta "r" del conjunto de unidades "a".
+= Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades"a".
+= Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús según edad "b" obtenida del tipo de vehículo que se utiliza en la ruta "r", del conjunto de unidades "" según lo definido en la Resolución 008-RIT-2014 o cualquier otra que lo sustituya.
+= Cantidad de unidades de la flota autorizada según la edad "b" en la ruta "r" del conjunto de unidades "a".
 b = Edad de la unidad obtenida a partir del año de fabricación.
 r = Ruta de transporte remunerado de personas.
 a= Conjunto de vehículos con reglas de cálculo tarifario tipo 1.
 De la misma manera, se define el valor total de la flota sin llantas ni neumáticos para vehículos con regla tipo 1:
-[imagen]
 Donde:
-[imagen] = Valor tarifario de la flota sin llantas ni neumáticos para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "a".
-[imagen] = Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús sin llantas ni neumáticos con edad "b" del tipo de vehículo que se utiliza en la ruta "r", del conjunto de unidades "a".
-[imagen] = Cantidad de unidades de la flota autorizada según la edad "b" en la ruta "r" del conjunto de unidades "".
+= Valor tarifario de la flota sin llantas ni neumáticos para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "a".
+= Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús sin llantas ni neumáticos con edad "b" del tipo de vehículo que se utiliza en la ruta "r", del conjunto de unidades "a".
+= Cantidad de unidades de la flota autorizada según la edad "b" en la ruta "r" del conjunto de unidades "".
 b = Edad de la unidad obtenida a partir del año de fabricación.
 r = Ruta de transporte remunerado de personas.
 y= Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
@@ -1479,12 +1403,11 @@ Paso III. Determinación del valor tope máximo por tipo de unidad de transporte
 1.4. La determinación del valor tope máximo por tipo de unidad de transporte (k) consta de los siguientes pasos:
 a. Con la información solicitada y revisada, la IT calcula para cada tipo de autobús (k) según la tipología de autobuses utilizada por el CTP (suministrada por esta Institución, la cual podrá ser la indicada en el Cuadro 25 o cualquier otra que le sustituya) el promedio simple y la desviación estándar de los valores de mercado de las unidades de transporte de tipo "k" y año de fabricación "v". Lo anterior, se consolida para cada tipo de autobús (k), en un cuadro resumen, tal como el que se presenta a continuación, donde se indica la información que como mínimo deberá contener el cuadro con los requisitos establecidos en este párrafo:
 Cuadro 26. Resumen de determinación de valor tope máximo para las unidades de tipo "k" y año de fabricación "v"
-[imagen] En el cuadro 26 anterior el valor tope máximo para las unidades de tipo "k" y año de fabricación "v" (VTMkv) corresponde al valor promedio simple de los valores de mercado más dos desviaciones estándar (en relación con el promedio) como se muestra en la siguiente ecuación:
-[imagen]
+En el cuadro 26 anterior el valor tope máximo para las unidades de tipo "k" y año de fabricación "v" (VTMkv) corresponde al valor promedio simple de los valores de mercado más dos desviaciones estándar (en relación con el promedio) como se muestra en la siguiente ecuación:
 Donde:
-[imagen] = Valor tope máximo para el tipo de unidad "k" según lo indica el Cuadro 25 con ño de fabricación "v".
-[imagen] = Valor de mercado asignado por el MH para la unidad con número placa "n".
-[imagen] = Desviación estándar con respecto al valor del promedio simple de los valores de mercado signado por el MH para el tipo de unidad de transporte "k" y año de fabricación "v"
+= Valor tope máximo para el tipo de unidad "k" según lo indica el Cuadro 25 con ño de fabricación "v".
+= Valor de mercado asignado por el MH para la unidad con número placa "n".
+= Desviación estándar con respecto al valor del promedio simple de los valores de mercado signado por el MH para el tipo de unidad de transporte "k" y año de fabricación "v"
 v = Año de fabricación de las unidades para las cuales se calcula el valor tope.
 k = Tipo de unidad de transporte.
 n = Índice que representa la placa de la unidad de transporte.
@@ -1495,39 +1418,35 @@ Así mismo, la IT deberá conformar un expediente administrativo con el fin de d
 Estos resultados se deben someter a un mecanismo de participación ciudadana de consulta pública. Una vez realizada la consulta pública, los resultados finales serán establecidos en una resolución, que deberá ser publicada en el diario oficial La Gaceta como máximo el último día hábil de marzo de cada año.
 En caso de que para un tipo unidad de transporte (k) y año de fabricación (v) no se autoricen vehículos, no se asigna valor tope máximo.
 Parte IV. Determinación del valor tarifario de una unidad en particular
-1.5. El valor tarifario de una unidad en particular, de placa “n” será el menor valor que resulte de la comparación entre el valor del vehículo nuevo, según mercado, asignado por el MH (VPn) y el correspondiente valor tope máximo por tipo de unidad para su año de fabricación “v”. Esto deberá realizarse para cada una de las unidades de transporte de la flota autorizada. En los casos donde haya autobuses nuevos que no estén incluidos en el listado remitido por el Ministerio de Hacienda según el punto 1.3.b anterior, la IT solicitará su valor respectivo al Ministerio de Hacienda.
+1.5. El valor tarifario de una unidad en particular, de placa "n" será el menor valor que resulte de la comparación entre el valor del vehículo nuevo, según mercado, asignado por el MH (VPn) y el correspondiente valor tope máximo por tipo de unidad para su año de fabricación "v". Esto deberá realizarse para cada una de las unidades de transporte de la flota autorizada. En los casos donde haya autobuses nuevos que no estén incluidos en el listado remitido por el Ministerio de Hacienda según el punto 1.3.b anterior, la IT solicitará su valor respectivo al Ministerio de Hacienda.
 (Así reformado el párafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
-El valor tarifario de una unidad en particular [imagen] de placa "n", tipo "k" y año de fabricación "v" se obtiene de la siguiente ecuación:
-[imagen]
+El valor tarifario de una unidad en particular de placa "n", tipo "k" y año de fabricación "v" se obtiene de la siguiente ecuación:
 Donde:
-[imagen] = Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús número de placa "n".
+= Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús número de placa "n".
 VTMkv = Valor tope máximo para el tipo de unidad "k" según lo indica el Cuadro 25 con año de fabricación "v".
 VPn = Valor de mercado asignado por el MH para la unidad con número placa "n". v = Año de fabricación de las unidades para las cuales se calcula el valor tope.
 k = Tipo de unidad de transporte.
 n = Índice que representa la placa de la unidad de transporte.
 y= Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
-Al valor tarifario de la unidad de transporte en colones, se le debe restar el costo de las llantas y neumáticos, dado que dentro de la estructura de costos de la metodología, ese ítem se considera por separado, utilizando los valores de las llantas y neumáticos vigentes al momento de aplicación de este procedimiento. La definición del valor tarifario de las unidades sin llantas [imagen] es:
-[imagen]
+Al valor tarifario de la unidad de transporte en colones, se le debe restar el costo de las llantas y neumáticos, dado que dentro de la estructura de costos de la metodología, ese ítem se considera por separado, utilizando los valores de las llantas y neumáticos vigentes al momento de aplicación de este procedimiento. La definición del valor tarifario de las unidades sin llantas es:
 Donde:
-[imagen] = Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús sin llantas con número de placa "n" del conjunto de unidades "γ".
-[imagen] = Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús con número de placa "n" del conjunto de unidades "γ".
-[imagen] = Cantidad de llantas por vehículo automotor para el valor tarifario de la unidad del conjunto de unidades "". Se consideran las llantas de cada tipo de vehículo automotor.
+= Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús sin llantas con número de placa "n" del conjunto de unidades "γ".
+= Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús con número de placa "n" del conjunto de unidades "γ".
+= Cantidad de llantas por vehículo automotor para el valor tarifario de la unidad del conjunto de unidades "". Se consideran las llantas de cada tipo de vehículo automotor.
 PLL = Precio de una llanta nueva. El precio de una llanta nueva se determina según lo indicado en la sección 4.11 vigente al día de la audiencia pública de la aplicación de esta metodología.
 y= Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
 n = Índice que representa la placa de la unidad de transporte.
 Análogo a la valoración de unidades con reglas tipo 1 se definen el valor total de la flota autorizada en la ruta "r" para vehículos con regla tipo 2 como:
-[imagen]
 Donde:
-[imagen] = Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "γ".
-[imagen] = Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades "γ".
+= Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "γ".
+= Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades "γ".
 b = Edad de la unidad obtenida a partir del año de fabricación.
 r = Ruta de transporte remunerado de personas.
 γ = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
 A su vez el valor tarifario de la flota de las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades y" se define como:
-[imagen]
-[imagen] = Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades "y".
-[imagen] = Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús con número de placa "n" del conjunto de unidades "y".
-[imagen] = Cantidad de unidades de la flota autorizada según la edad "b" en la ruta "r" del conjunto de unidades "γ" para el año de aplicación "p".
+= Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades "y".
+= Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús con número de placa "n" del conjunto de unidades "y".
+= Cantidad de unidades de la flota autorizada según la edad "b" en la ruta "r" del conjunto de unidades "γ" para el año de aplicación "p".
 n = Índice que representa la placa de la unidad de transporte. Para esta fórmula se toma
 únicamente unidades de transporte remunerado de personas modalidad autobús de
 edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades "".
@@ -1536,19 +1455,17 @@ b = Edad de la unidad obtenida a partir del año de fabricación.
 y= Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
 p = Año de aplicación de la metodología.
 De esta forma se determina posteriormente el valor total de la flota sin llantas ni neumáticos para vehículos con regla tipo 2:
-[imagen]
 Donde:
-[imagen] = Valor tarifario total de la flota sin llantas ni neumáticos para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "γ".
-[imagen] = Valor tarifario de la flota sin llantas ni neumáticos para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades "y".
+= Valor tarifario total de la flota sin llantas ni neumáticos para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "γ".
+= Valor tarifario de la flota sin llantas ni neumáticos para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades "y".
 b = Edad de la unidad obtenida a partir del año de fabricación.
 r = Ruta de transporte remunerado de personas.
 y= Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
 Para el valor tarifario de la flota, sin llantas, para las unidades de edad "b" de la flota autorizada en la ruta "r" del conjunto de unidades "γ" se tiene:
-[imagen]
 Donde:
-[imagen] = Valor tarifario de la flota sin llantas ni neumáticos para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades "y".
-[imagen] = Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús sin llantas con número de placa "n" del conjunto de unidades "y".
-[imagen] = Cantidad de unidades de la flota autorizada según la edad "b" en la ruta "r" del conjunto de unidades "γ" para el año de aplicación "p".
+= Valor tarifario de la flota sin llantas ni neumáticos para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades "y".
+= Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús sin llantas con número de placa "n" del conjunto de unidades "y".
+= Cantidad de unidades de la flota autorizada según la edad "b" en la ruta "r" del conjunto de unidades "γ" para el año de aplicación "p".
 n = Índice que representa la placa de la unidad de transporte. Para esta fórmula se toma únicamente unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades "y".
 r = Ruta de transporte remunerado de personas.
 b = Edad de la unidad obtenida a partir del año de fabricación.
@@ -1558,46 +1475,43 @@ p = Año de aplicación de la metodología.
 Para vehículos con regla de cálculo tarifario tipo 1
 (Nota de Sinalevi: Mediante resolución N° RJD-060-2018 del 13 de abril de 20218, se acordó eliminar de la sección 4.9.1, las palabras: palabras "sin neumáticos" y "y neumáticos")
 Flota por edad para cada año de fabricación "v":
-Al multiplicar [imagen] por la cantidad correspondiente de unidades [imagen] correspondientes al año "y"se obtiene el valor total de la flota de vehículos de edad "b" con regla tipo 1 en la ruta "r" para ese año:
-[imagen]
+Al multiplicar por la cantidad correspondiente de unidades correspondientes al año "y"se obtiene el valor total de la flota de vehículos de edad "b" con regla tipo 1 en la ruta "r" para ese año:
 Donde:
-[imagen] = Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús de edad "b" que se utiliza en la ruta "r", del conjunto de unidades "a".
-[imagen] = Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús según edad "b" obtenida del tipo de vehículo que se utiliza en la ruta "r", del conjunto de unidades "" según lo definido en la Resolución 008-RIT-2014 o cualquier otra que lo sustituya.
-[imagen] = Cantidad de unidades de la flota autorizada según la edad "b" en la ruta "r" del conjunto de unidades "".
+= Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús de edad "b" que se utiliza en la ruta "r", del conjunto de unidades "a".
+= Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús según edad "b" obtenida del tipo de vehículo que se utiliza en la ruta "r", del conjunto de unidades "" según lo definido en la Resolución 008-RIT-2014 o cualquier otra que lo sustituya.
+= Cantidad de unidades de la flota autorizada según la edad "b" en la ruta "r" del conjunto de unidades "".
 b = Edad de la unidad obtenida a partir del año de fabricación.
 r = Ruta de transporte remunerado de personas.
 a= Conjunto de vehículos con reglas de cálculo tarifario tipo 1.
 (Eliminado este párafo mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
-De la misma manera, se definen el valor total de la flota sin llantas ni neumáticos para vehículos con regla tipo 1, al multiplicar [imagen] por la cantidad correspondiente de unidades [imagen] se obtiene el valor total de la flota de vehículos de edad "b" sin llantas ni neumáticos, con regla tipo 1 en la ruta "r":
-[imagen] Donde:
-[imagen] = Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús sin llantas ni neumáticos, de edad "b" que se utiliza en la ruta "r", del conjunto de unidades "a".
-[imagen] = Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús sin llantas ni neumáticos, según edad "b" obtenida del tipo de vehículo que se utiliza en la ruta "r", del conjunto de unidades "a".
-[imagen] = Cantidad de unidades de la flota autorizada según la edad "b" en la ruta "r" del conjunto de unidades "a".
+De la misma manera, se definen el valor total de la flota sin llantas ni neumáticos para vehículos con regla tipo 1, al multiplicar por la cantidad correspondiente de unidades se obtiene el valor total de la flota de vehículos de edad "b" sin llantas ni neumáticos, con regla tipo 1 en la ruta "r":
+Donde:
+= Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús sin llantas ni neumáticos, de edad "b" que se utiliza en la ruta "r", del conjunto de unidades "a".
+= Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús sin llantas ni neumáticos, según edad "b" obtenida del tipo de vehículo que se utiliza en la ruta "r", del conjunto de unidades "a".
+= Cantidad de unidades de la flota autorizada según la edad "b" en la ruta "r" del conjunto de unidades "a".
 b = Edad de la unidad obtenida a partir del año de fabricación.
 r = Ruta de transporte remunerado de personas.
 a= Conjunto de vehículos con reglas de cálculo tarifario tipo 1.
 Y, a su vez, al sumar las flotas de diferentes edades "b" se obtiene el valor total de la flota para vehículos sin llantas ni neumáticos con regla tipo 1 en la ruta "r" tal como lo expresa la ecuación 85:
 Para vehículos con regla de cálculo tarifario tipo 2
 Flota por edad para cada año de fabricación "v":
-Al multiplicar [imagen] por la cantidad correspondiente de unidades [imagen] correspondientes al año "v"se obtiene el valor total de la flota de vehículos de edad "b" con regla tipo 2 en la ruta "r" para ese año. Lo anterior lo expresa la ecuación 90. Este valor del año se irá acumulando con los valores de cada edad para los vehículos con reglas tipo 2, para finalmente obtener el valor de la flota total para los vehículos de este tipo, lo cual se expresa en la ecuación 89.
-De manera análoga, se calcula el valor tarifario de la flota sin llantas ni neumáticos [imagen] sumar los valores de cada vehículo (por placa) tal como lo expresa la ecuación 92. Y al acumular este valor para cada edad se llega al valor de la flota total sin llantas ni neumáticos que describe la
+Al multiplicar por la cantidad correspondiente de unidades correspondientes al año "v"se obtiene el valor total de la flota de vehículos de edad "b" con regla tipo 2 en la ruta "r" para ese año. Lo anterior lo expresa la ecuación 90. Este valor del año se irá acumulando con los valores de cada edad para los vehículos con reglas tipo 2, para finalmente obtener el valor de la flota total para los vehículos de este tipo, lo cual se expresa en la ecuación 89.
+De manera análoga, se calcula el valor tarifario de la flota sin llantas ni neumáticos sumar los valores de cada vehículo (por placa) tal como lo expresa la ecuación 92. Y al acumular este valor para cada edad se llega al valor de la flota total sin llantas ni neumáticos que describe la
 ecuación 91.
 El valor tarifario de la flota según la edad "b" de la ruta "r" del conjunto de unidades "α" y "γ" se obtiene a partir de las ecuaciones 93 y 90 de la siguiente forma:
-[imagen]
 Donde:
-[imagen] = Valor tarifario de las unidad de transporte de la edad "b" de y/o ramal la ruta "r", del conjunto de unidades "a" y "y".
-[imagen] = Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús de edad "b" que se utiliza en la ruta "r", del conjunto de unidades "a".
-[imagen] = Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades "y".
+= Valor tarifario de las unidad de transporte de la edad "b" de y/o ramal la ruta "r", del conjunto de unidades "a" y "y".
+= Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús de edad "b" que se utiliza en la ruta "r", del conjunto de unidades "a".
+= Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades "y".
 b = Edad de la unidad obtenida a partir del año de fabricación.
 r = Ruta de transporte remunerado de personas.
 a= Conjunto de vehículos con reglas de cálculo tarifario tipo 1.
 y= Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
 Asi mismo, el valor tarifario de la flota sin llantas ni neumático según la edad "b" de la ruta "r" del conjunto de unidades "α" y "γ" se obtiene a partir de las ecuaciones 85 y 92 de la siguiente forma:
-[imagen]
-[imagen] = Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús de edad "b" que se utiliza en la ruta "r", del conjunto de unidades "a" y "y".
-[imagen] = Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús sin llantas ni neumáticos, de edad "b" que se utiliza en la ruta "r",
+= Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús de edad "b" que se utiliza en la ruta "r", del conjunto de unidades "a" y "y".
+= Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús sin llantas ni neumáticos, de edad "b" que se utiliza en la ruta "r",
 del conjunto de unidades "y".
-[imagen] = Valor tarifario de la flota sin llantas ni neumáticos para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades "y".
+= Valor tarifario de la flota sin llantas ni neumáticos para las unidades de transporte remunerado de personas modalidad autobús de edad "b" de la flota autorizada en la ruta "r", del conjunto de unidades "y".
 b = Edad de la unidad obtenida a partir del año de fabricación.
 r = Ruta de transporte remunerado de personas.
 a= Conjunto de vehículos con reglas de cálculo tarifario tipo 1.
@@ -1610,7 +1524,6 @@ En caso que la flota unificada corresponda a un grupo de rutas o ramales, se hac
 a. En caso que se disponga de la información del tiempo de viaje a nivel de sentido, día de la semana y bloque horario procedente de un 40 estudio de campo del Consejo de Transporte Público (CTP) o la Aresep, se tomará ese dato.
 b. En caso que no se disponga de la información con el detalle anterior se realiza una estimación del tiempo de viaje a partir del esquema operativo autorizado. Para ello, del cuadro del paso 1 se determina el máximo de la cantidad de salidas en una hora entre los sentidos. La estimación del tiempo medio de viaje en horas se calcula mediante la división de la flota autorizada total para la ruta o conjunto de rutas o ramales y el doble del máximo de salidas de viajes en una hora para el sentido que corresponda ese máximo. Esta relación obedece a las herramientas y guías que utiliza el CTP2 para el cálculo de horarios y flota, en donde a partir del intervalo de salidas y el tiempo de ciclo se determina la flota autorizada. En este caso, al conocer la flota autorizada y la frecuencia o el intervalo de salida, se puede estimar el tiempo de ciclo que se considera como el doble del tiempo de viaje.
 2GUÍA-CTP-DING-02 Guía para realizar trabajo de campo para estudios de modificación de sistema operativo y FORM-CTP-DING-11 Herramienta Cálculo de horarios y flota
-[imagen]
 Donde:
 Tv = Tiempo aproximado de viaje en horas pico.
 F = Cantidad de unidades de la flota autorizada.
@@ -1618,48 +1531,40 @@ Vmáx = Cantidad máxima de salidas por hora en un sentido.
 Este tiempo medio de viaje se aplicará para todos los días y horas del esquema operativo autorizado.
 En ambos casos se redondea el tiempo medio de viaje en horas al entero mayor. El hecho que la estimación del tiempo de viaje sea en hora pico y el redondeo al entero mayor en horas permite que el tiempo medio de viaje incluya los tiempos asociados los tiempos de espera para la próxima salida (tiempos muertos).
 3) Elaborar el cuadro con la cantidad requerida preliminar de horas - bus para cada hora de cada día de la semana y día feriado a partir del cuadro construido en el paso 1 y el tiempo medio de viaje correspondiente, lo que equivale a la cantidad de buses que se encuentran en operación en cada hora. Para esto, se suma para cada hora, la cantidad de salidas de viajes de esa hora más la cantidad de salidas de viajes que se dieron antes de esa hora y hasta la cantidad de horas anteriores según el tiempo medio de viaje en horas redondeado al entero mayor, lo cual se hace para ambos sentidos.
-[imagen]
 Donde:
 Hbm = Horas - bus en la hora "m".
 Vn = Cantidad de salidas en la hora "n".
 4) Determinar la cantidad máxima de horas - bus del cuadro construido en el paso 3. En caso que esa cantidad sea igual o menor a la flota autorizada, pasa al punto 5, mientras que si esa cantidad es mayor a la flota autorizada se debe hacer el ajuste proporcional mediante la multiplicación de cada cantidad de horas - bus por el factor (flota autorizada / cantidad máxima de horas - bus) para todos los campos del cuadro, los cuales deben ser redondeados al entero superior.
-[imagen]
 Donde:
 Hbm = Horas - bus en la hora "m".
 F = Cantidad de unidades de la flota autorizada.
 Hcm = Horas - chofer en la hora "m".
 5) Determinar para cada día de la semana y día feriado la cantidad de requerimientos de horas - chofer disponible para conducción (HD) en jornada diurna (5 a.m. a 7 p.m.), jornada mixta (4 a.m. a 5 a.m. y 7 p.m. a 11 p.m.) y jornada nocturna (11 p.m. a 4 a.m.).
 6) Determinar para cada día de la semana y día feriado el requerimiento total de horas disponibles para conducción en jornadas ordinarias equivalentes de 8 horas, al sumar la cantidad de horas - chofer en jornada diurna, la cantidad de horas - chofer en jornada mixtas ajustadas por el factor 8/7 y la cantidad de horas - chofer en jornadas nocturnas ajustadas por el factor 4/3 (8/6), debido a que la jornada ordinaria mixta es de 7 horas y la nocturna de 6 horas.
-[imagen]
 Donde:
 HDd = Horas disponibles para conducción en el día "d".
 HDjd = Horas disponibles para conducción en jornada diurna.
 HDjm = Horas disponibles para conducción en jornada mixta.
 HDjn = Horas disponibles para conducción en jornada nocturna.
 7) Determinar para cada día de la semana y día feriado el requerimiento total de horas laborales considerando el factor de suplemento de la actividad de conducción de vehículos de transporte público, según la categoría de la ruta (Urbana - Interurbana corta: 15% e Interurbana media - larga: 20%). Este factor de suplemento considera elementos como el tiempo para descanso y alimentación, servicios para la unidad (combustible, revisión técnica, servicios externos) y la entrega de la recaudación. Para el ajuste respectivo se dividen los requerimientos calculados en el paso 6 entre 0.85 en el caso de las rutas urbanas e interurbanas cortas y entre 0.80 en el caso de las rutas interurbanas medias y largas.
-[imagen]
 Donde:
 HLd = Horas laborales en el día "d".
 HDd = Horas disponibles para conducción en el día "d".
 FTDr = Factor de tiempo disponible para la ruta "r".
 8) Determinar para cada día de la semana y día feriado la cantidad de choferes requeridos en jornadas ordinarias de 8 horas para cubrir el servicio de ese día. Para esto, se divide el requerimiento de horas laborales del paso 7 entre el factor de 8 horas por chofer-día.
-[imagen]
 Donde:
 JLd = Jornadas laborales de 8 horas en el día "d".
 HLd = Horas disponibles para conducción en el día "d".
 9) Determinar el requerimiento semanal de choferes en jornadas ordinarias de 48 horas (8 horas por 6 días) que se requiere para cubrir la operación de una semana. Para esto, se divide la suma de los requerimientos de choferes en jornada ordinarias de 8 horas de cada día de lunes a domingo del paso 8 entre el factor de 6 días por chofer-semana.
-[imagen]
 Donde:
 JLS = Jornadas laborales semanales (48 horas).
 JLd = Jornadas laborales de 8 horas en el día "d". 10) Determinar la cantidad de jornadas ordinarias semanales a ser cubiertas mediante horas extras a partir de la diferencia entre el requerimiento semanal de choferes (paso 9) y la cantidad máxima diaria de choferes (paso 8). Esta brecha de choferes será reconocida mediante horas extras, por lo que estas horas extras pueden ser utilizadas durante la semana de la manera en que cada prestador lo considere mejor y necesario según la operación y naturaleza de la ruta o conjunto de rutas con flota unificada. El porcentaje de horas extras reconocidas se calcula como la división de la cantidad de jornadas determinadas en este punto y la cantidad máxima de choferes para un día.
-[imagen]
 Donde:
 JLHE = Jornadas laborales semanales en horas extras.
 JLS = Jornadas laborales semanales (48 horas).
 JLd = Jornadas laborales de 8 horas en el día "d".
 %HE = Porcentaje de horas extra.
 11) Determinar la cantidad semanal de jornadas ordinarias de chofer con las horas extras incluidas, proveniente de la suma de la máxima cantidad de choferes para un día y la diferencia entre el requerimiento semanal de choferes y la máxima cantidad de choferes para un día multiplicada por el factor de costo 1.5 aplicable a las horas extras.
-[imagen]
 Donde:
 JLSa = Jornadas laborales semanales ajustada.
 JLd = Jornadas laborales de 8 horas en el día "d".
@@ -1667,14 +1572,12 @@ JLHE = Jornadas laborales semanales en horas extras.
 12) Determinar el requerimiento total de jornadas ordinarias semanales de chofer con horas extras, al sumarle los porcentajes de los factores de vacaciones, feriados, incapacidades y ausentismo sobre la base de lo calculado en el punto 11, de la siguiente manera:
 a. Factor vacaciones (FV): 2 semanas de vacaciones por cada 50 laboradas (2/52 = 3,85%)
 b. Factor días feriados (FDF): 9 días por año (9/365 = 2,47%) multiplicado por la proporción de cantidad de jornadas ordinarias requeridas para un día feriado con respecto al requerimiento del día medio del esquema operativo (promedio diario de la semana de lunes a domingo).
-[imagen]
 Donde:
 FDF = Factor de días feriados.
 JLDF = Jornadas laborales de 8 horas en día feriado.
 JLDM = Jornadas laborales de 8 horas promedio de los días.
 c. Factor de incapacidades (FI): 10% del personal por 3 días una vez (10%* 3/365 = 0,08%)
 d. Factor ausentismo (FA): 2 ausencias injustificadas por año (2/365 = 0,55%).
-[imagen]
 Donde:
 JLST = Jornadas laborales semanales totales.
 JLSa = Jornadas laborales semanales ajustada.
@@ -1683,7 +1586,6 @@ FDF = Factor de días feriados.
 FI = Factor de incapacidades.
 FA = Factor de ausentismo.
 13) Determinar la cantidad de choferes por bus mediante la división de la necesidad total de jornadas ordinarias semanales de choferes con horas extras entre la flota autorizada.
-[imagen]
 Donde:
 JLCB = Jornadas laborales semanales por bus.
 JLST = Jornadas laborales semanales totales.
@@ -1761,7 +1663,6 @@ i. Si las carreras reportadas por el prestador del servicio son menores que las 
 ii. Si las carreras reportadas por el prestador del servicio son mayores a las autorizadas se consideran las carreras autorizadas por el CTP.
 Para obtener la cantidad de carreras mensuales a partir de los acuerdos de horario establecidos por el CTP (carreras autorizadas) se deberá considerar que mediante el artículo 3.4 de la sesión ordinaria 61-2008 del 28 de agosto del 2008, la Junta Directiva del CTP dispuso para todos los operadores de transporte público en la modalidad autobús (concesionarios o permisionarios), que los servicios de transporte público, no se pueden suspender los días jueves y viernes de la Semana Santa, de acuerdo con el principio de continuidad de los servicios públicos. Por lo tanto la fórmula de cálculo de las carreras mensuales a partir de los horarios establecidos por el CTP debe
 incluir todos los días del año, junto con una corrección que incorpora el cálculo del día 366 de cada año bisiesto.
-[imagen]
 Donde:
 CMAr = Cantidad de carreras mensuales autorizadas por el CTP en la ruta "r".
 CALVr = Cantidad de carreras autorizada por el CTP para los días Lunes a Viernes en la ruta "r".
@@ -1921,13 +1822,6 @@ MH Ministerio de Hacienda
 MTSS Ministerio de Trabajo y Seguridad
 Anexo 2. Resumen de fórmulas utilizadas en la metodología
 Cuadro A.2. Resumen de ecuaciones utilizadas en la metodología
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
-[imagen]
 Anexo 3. Variables de la metodología Cuadro A.3. Lista de variables utilizadas en ecuaciones
 Variable | Definición
 A' | Porcentaje de ajuste de la tarifa por pasajero del conjunto de rutas y/o ramales con respecto a la tarifa vigente por pasajero del conjunto de rutas y/o ramales al momento de la aplicación de esta metodología.
@@ -2010,8 +1904,6 @@ f | Fraccionamiento tarifario de la ruta "r". -Fraccionamiento tarifario del ram
 F | Total de fraccionamientos tarifarios del ramal "l" de la ruta "r".
 F' | Cantidad total de unidades de la flota autorizada para el conjunto de rutas y/o ramales.
 f-1 | Fraccionamiento tarifario anterior al fraccionamiento "f" del ramal "l" de la ruta "r" de transporte remunerado de personas.
-[imagen]
-[imagen]
 Variable | Definición
 PArlf | Volumen de pasajeros a bordo movilizados hasta el fraccionamiento "f" del ramal "l" de la ruta "r".
 PArlf-1 | Volumen de pasajeros a bordo movilizados hasta el fraccionamiento "f-1" del ramal "l" de la ruta "r".
@@ -2043,32 +1935,23 @@ r | Ruta de transporte remunerado de personas.
 RAFr | Rentabilidad mensual del capital invertido en activos fijos en la ruta "r".
 RCPr | Rentabilidad mensual del capital invertido en proveeduría en la ruta "r".
 RFr | Rentabilidad mensual del capital invertido en la flota de la ruta "r".
-[imagen]
-[imagen]
-[imagen]
 Anexo 4. Derivación de coeficientes a partir del modelo HDM-IV
 1. Determinación de coeficiente de gasto anual en repuestos y accesorios
 El costo mensual en repuestos y accesorios está basado el modelo HDM-IV (Highway Development and Management) de acuerdo a Bennett and Greenwood (2001)5, en el cual la determinación del consumo de partes en el caso de autobuses, se tiene obtiene de acuerdo a la siguiente ecuación:
 5 Highway Development and Management Series. Volume SEVEN. Modelling Road User and Environmental Effects in HDM-4. Bennett and Greenwood, 2001.
-[imagen]
 Donde:
 PARTS = Coeficiente de consumo estandarizado de partes por cada 1000 Km, como fracción del precio de reemplazo del autobús.
 CKM = Kilometraje acumulado del autobús.
 dFUEL = Consumo adicional de combustible debido a congestión.
 RI = Índice de rugosidad ajustado.
 El Índice de rugosidad ajustado dado por la siguiente ecuación:
-[imagen]
 Donde:
 IRI = Índice de rugosidad del pavimento, en m/Km.
 Para el caso de Costa Rica se considera un índice de rugosidad promedio de la red vial nacional de 5,07, de acuerdo al informe de Lanamme, UCR (2013)6 y un valor de 0,1 para el parámetro dFUEL, de acuerdo a la referencia Bennett and Greenwood (2001). De esta forma la ecuación 99 corresponde a:
 6 Informe de Valuación de la Red Vial Nacional Pavimentada de Costa Rica, años 2012-2013. Unidad de gestión y Evaluación de la Red Nacional, Pitra, Lanamme, 2013.
-[imagen]
-[imagen]
 Sustituyendo el valor anterior en la ecuación 98, la ecuación se reduce a:
-[imagen]
 2. Determinación de coeficiente de necesidades de mecánicos
 El coeficiente de necesidades de mecánicos está basado está basado el modelo HDM-IV, en el cual se determinan la cantidad de horas de mano de obra para mantenimiento por cada 1000 km para autobuses de acuerdo a la siguiente ecuación:
-[imagen]
 Donde:
 LH = Número de horas de mano de obra para mantenimiento por cada 1000 km.
 PARTS = Coeficiente de consumo estandarizado de partes por cada 1000 km, como fracción del precio de reemplazo del autobús. Determinado de acuerdo a la ecuación 98 anterior.
