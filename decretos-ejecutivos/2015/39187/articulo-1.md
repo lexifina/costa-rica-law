@@ -1,4 +1,6 @@
+(Derogado)
 Nº 39187-S
+(Este decreto ejecutivo fue derogado por el artículo 4° del decreto ejecutivo N° 41384 del 23 de julio del 2018, “Oficialización y declaratoria de interés público y nacional de la "Norma para la habilitación de sala de operaciones")
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE SALUD
 En uso de las facultades que le confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; artículo 28 párrafo segundo, inciso b) de la Ley N° 6227 del 2 de mayo de 1978 “Ley General de la Administración Pública”, artículos 1, 2, 3 y 9 de la Ley N° 5395 de 30 de octubre de 1973 “Ley General de Salud”; artículo 2 inciso b) y c) de la Ley N° 5412 de 8 de noviembre de 1973 “Ley Orgánica del Ministerio de Salud”.
