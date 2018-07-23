@@ -1,2 +1,0 @@
-Artículo 6°—Asignación de número a los activos.
-Corresponde a la Sección de Contabilidad la asignación del número de placa y a la Sección Administrativa fijarla en todos los activos de la Institución antes de asignarlos a la Unidad Orgánica y funcionarios respectivos. Todo funcionario velará para que los activos a él asignados, mantengan la placa de identificación y si por cualquier motivo ésta desapareciere o sufriere daño, debe informar a la Sección Administrativa.

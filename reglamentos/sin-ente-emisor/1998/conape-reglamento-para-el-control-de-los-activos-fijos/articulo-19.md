@@ -1,4 +1,0 @@
-Artículo 19. —Prohibición de trasladar activos.
-No se trasladarán activos a Unidades Orgánicas distintas de aquella a la que le fueren asignados, sin que antes se haya llenado debidamente la fórmula "solicitud de servicios". El trámite para el traslado de activos de un funcionario a otro será el siguiente:
-• Cuando un funcionario que tenga activos bajo su responsabilidad es trasladado a otra Unidad Orgánica, entregará esos bienes a su jefe inmediato mediante el uso de la fórmula "entrega de activos", quien a su vez lo comunicará a la Sección Administrativa. Al nuevo puesto el funcionario únicamente trasladará sus pertenencias personales.
-• El funcionario o la Unidad Orgánica que en calidad de préstamo transfiere un activo, llenará el indicado formulario, del que conservará el original, para demostrar cuando se requiera, el préstamo del bien.

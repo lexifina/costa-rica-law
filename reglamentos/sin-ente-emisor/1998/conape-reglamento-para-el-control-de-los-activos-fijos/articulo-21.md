@@ -1,2 +1,0 @@
-Artículo 21.—Sustitución o desecho de activos.
-Cuando por cualquiera razón se autorice la sustitución o el desecho de activos, mediante recomendación emitida en informe y, medie el respectivo levantamiento del acta correspondiente, la Sección de Contabilidad hará el registro correspondiente tomando en cuenta el tiempo de vida útil del activo a la fecha de la sustitución o desecho para el asiento contable respectivo.
