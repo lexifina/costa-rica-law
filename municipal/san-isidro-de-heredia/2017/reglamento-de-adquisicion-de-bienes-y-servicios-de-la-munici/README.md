@@ -14,3 +14,4 @@ Reglamento de adquisición de bienes y servicios de la Municipalidad de San Isid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-11-23 | la propia norma |
+| 2 | 2018-07-23 | Reglamento municipal 47 (2018-07-23) |
