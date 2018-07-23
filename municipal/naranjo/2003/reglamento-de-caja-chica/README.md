@@ -17,3 +17,4 @@ Reglamento de Caja Chica.
 | 2 | 2017-11-06 | Reglamento municipal 0 (2017-11-06) |
 | 3 | 2017-12-13 | Reglamento municipal 52 (2017-12-13) |
 | 4 | 2018-07-12 | Reglamento municipal 46 (2018-07-12) |
+| 5 | 2018-07-23 | Reglamento municipal 30 (2018-07-23) |

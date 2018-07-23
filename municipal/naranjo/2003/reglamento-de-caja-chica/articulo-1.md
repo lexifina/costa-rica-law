@@ -7,4 +7,5 @@ c) Compra menor: es la adquisición de bienes y servicios de menor cuantía que 
 d) Fondos de caja chica: fondo que contiene recursos para la adquisición de bienes y servicios que no son de uso común o que no hay en existencia.
 e) Liquidación: rendición de cuentas que efectúa el funcionario responsable del fondo de caja chica, mediante la presentación de comprobantes originales que sustentan las adquisiciones o servicios recibidos.
 f) Municipalidad: Municipalidad de Naranjo.
-g) Viáticos: gastos de viaje en el interior del país y se pagarán por medio del fondo de caja chica, siempre y cuando no supere el monto máximo establecido para el comprobante.
+g) Viáticos: Gastos de viaje en el interior del país, se pagarán por medio del fondo de caja chica, conforme a los montos establecidos por el Reglamento de Gastos de Viaje de la Contraloría General de la República.
+(Así reformado el inciso anterior en sesión N° 30 del 23 de julio de 2018)

@@ -1,6 +1,7 @@
 Artículo 6º—Los egresos que se realicen por caja chica se tramitan de la siguiente manera:
 a) El beneficiario de la caja chica debe ser funcionario municipal, debe estar nombrado en la planilla municipal. Se girará caja chica a favor de miembros del Concejo Municipal, servidores en calidad de interinos o personal nombrado por contrato, cuando exista acuerdo municipal.
-b) La persona encargada de la caja chica entregará el dinero necesario para la compra. El funcionario que realice la compra o el gasto deberá aportar la factura o facturas canceladas y a nombre de la Municipalidad de Naranjo.
+b) La persona encargada de la caja chica entregará el dinero necesario por la compra. El funcionario que realice la compra o adquisición deberá aportar la factura o facturas canceladas y a nombre de la Municipalidad de Naranjo.
+(Así reformado el inciso anterior en sesión N° 30 del 23 de julio de 2018)
 c) Para realizar compras por materiales de oficina, limpieza u otra compra relacionada con materiales, el interesado debe consultar con el proveedor si tiene en existencia. Si no existiera el proveedor autorizaría la compra.
 d) La factura y los materiales comprados con recursos de caja chica deben ser registrados primeramente por el Proveedor antes de ser presentados en Tesorería.
 e) Toda factura o comprobante de pago debe estar elaborado a máquina o a mano, sin tachaduras o correcciones, que ponga en duda su legitimidad y que estén debidamente canceladas. Si la factura no posee el logotipo debe indicarse el nombre o cédula de la persona física o jurídica que suministra el bien o servicio.
