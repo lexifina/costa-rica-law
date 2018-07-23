@@ -1,0 +1,1 @@
+Artículo 20.—Se permitirá un máximo de cinco vales de caja chica en trámite, para cada dependencia usuaria del servicio. Para la tramitación de más de cinco vales de caja chica, se deberá liquidar mínimo un vale anterior.

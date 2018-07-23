@@ -1,0 +1,4 @@
+Artículo 30.—El Tesorero o quien lo sustituya como encargado del fondo de caja chica, está obligado a informar sobre cualquier situación anómala que detecte como parte de su obligación de velar por el cumplimiento del presente reglamento.
+El Tesorero Municipal rendirá un informe trimestral de la gestión de la caja chica al Director Financiero o a quien lo suceda en jerarquía. En caso de que éste detecte alguna anomalía en el actuar del Tesorero o de otro funcionario a cargo de la caja chica, deberá informarlo de inmediato a la Alcaldía, para que se proceda de conformidad con lo establecido en el Reglamento Autónomo de Servicios de la Municipalidad de Curridabat.
+En los casos de violaciones al reglamento, el tesorero deberá rendir informe de inmediato a la Alcaldía para el inicio de los procedimientos disciplinarios correspondientes, siendo que la sanción se determinará con base en lo establecido en el Reglamento
+Autónomo de Servicios.

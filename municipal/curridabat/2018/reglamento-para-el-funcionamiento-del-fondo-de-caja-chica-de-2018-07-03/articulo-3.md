@@ -1,0 +1,1 @@
+Artículo 3°—Este Reglamento tiene por objeto regular la organización y funcionamiento del fondo de caja chica que la Municipalidad tenga establecido en custodia del tesorero conforme al artículo 109 del Código Municipal.

@@ -1,0 +1,3 @@
+Artículo 31.—Excepto por causa de fuerza mayor, necesidad de atención inmediata, compra menor y de escasa cuantía, no se tramitarán por medio del fondo fijo de caja chica las compras que se definan como artículos de uso común, los que deberán ser adquiridos por medio de los sistemas convencionales de compra que existan en la Municipalidad según las disposiciones establecidas en la Ley de Contratación Administrativa y en el Reglamento General de la Contratación Administrativa.
+Rige a partir de la publicación en el Diario Oficial La Gaceta y deroga cualquier normativa anterior.
+Curridabat, 05 de julio de 2018.

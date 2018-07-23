@@ -1,0 +1,1 @@
+Artículo 4°—El monto del fondo de caja chica será equivalente a 10 veces la suma del vale de caja chica y su custodia será responsabilidad del Tesorero Municipal quién deberá actuar de conformidad con la normativa vigente y este Reglamento.
