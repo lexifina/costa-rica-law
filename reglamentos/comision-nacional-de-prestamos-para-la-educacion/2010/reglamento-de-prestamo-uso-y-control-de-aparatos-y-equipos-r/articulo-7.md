@@ -1,1 +1,0 @@
-Artículo 7º—Aditamentos y accesorios. El préstamo de los aparatos y equipos puede comprender los aditamentos y los accesorios de ellos. Las boletas de préstamo deberán describir cuáles aditamentos y accesorios se incluyen en el préstamo.

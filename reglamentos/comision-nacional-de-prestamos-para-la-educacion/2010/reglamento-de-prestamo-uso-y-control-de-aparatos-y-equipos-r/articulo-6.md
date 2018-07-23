@@ -1,2 +1,0 @@
-Artículo 6º—Boleta de préstamo: La boleta de préstamo será suscrita por el o los beneficiarios y las jefaturas inmediatas, además deberá ser autorizada por el Secretario Ejecutivo o la persona que éste designe. Deberá especificar si el préstamo es para uso interno o externo de la institución o ambos. En el caso del Secretario Ejecutivo la boleta será autorizada por la presidencia del Consejo Directivo.
-(Así reformado mediante sesión N° 05-02-2015 del 2 de febrero del 2015)

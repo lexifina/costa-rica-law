@@ -1,1 +1,0 @@
-Artículo 18.—Revisiones periódicas. La Sección Administrativa realizará revisiones periódicas de los aparatos y equipos prestados, con el objeto de verificar su estado de conservación y uso. Los beneficiarios deberán atender cuidadosamente las instrucciones que esa Unidad Administrativa disponga, en el ejercicio de sus funciones.

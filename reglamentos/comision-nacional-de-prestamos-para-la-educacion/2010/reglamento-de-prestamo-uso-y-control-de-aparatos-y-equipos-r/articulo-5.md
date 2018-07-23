@@ -1,1 +1,0 @@
-Artículo 5º—Motivo. El préstamo de los aparatos y equipos son actos administrativos temporales que deben ser debidamente justificados con ocasión de las funciones que desempeñan los beneficiarios. El préstamo de los aparatos y equipos a favor de los beneficiarios es a título gratuito y precario y no se considerará parte del salario ni pago de emolumento alguno.

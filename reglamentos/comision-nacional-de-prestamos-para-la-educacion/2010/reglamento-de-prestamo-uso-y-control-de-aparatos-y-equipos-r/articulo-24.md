@@ -1,1 +1,0 @@
-Artículo 24.—Póliza. Los aparatos y equipos a que hace referencia el presente reglamento están debidamente protegidos por una póliza de equipo electrónico. Aquellas situaciones que acontezcan fuera de los alcances de esa póliza y que logre comprobarse son responsabilidad del beneficiario serán resueltas de conformidad con lo dispuesto en el presente Reglamento.

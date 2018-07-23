@@ -1,1 +1,0 @@
-Artículo 29.—Disposiciones del Reglamento para el Control de los Activos Fijos. Se mantienen todas las disposiciones contenidas en el Reglamento para el Control de Activos Fijos de CONAPE, publicado en La Gaceta Nº 243, del 15 de diciembre de 1998.
