@@ -14,3 +14,4 @@ Reforma Metodología para la Fijación Ordinaria de Tarifas para el Servicio Rem
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-03 | la propia norma |
+| 2 | 2018-07-23 | Resolución 96 (2018-07-23) |

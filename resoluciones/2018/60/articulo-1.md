@@ -88,15 +88,24 @@ Donde:
 CCCr = Costo mensual en consumo de combustible de la ruta “r”. Este costo estará expresado en colones.
 cccy = Coeficiente de consumo de combustible diésel por autobús para el tipo de ruta “y”. Los valores de estos coeficientes serán los que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y se presentan en el siguiente Cuadro 14
 Cuadro 14. Coeficiente de consumo combustible diésel por tipo de ruta
-[imagen]
+Tipo de ruta | Consumo unitario de combustible diésel (L/km)
+Ruta Urbana dentro de la GAM, recorrido en un sentido ≤ 25 km | 0,47
+Ruta Urbana fuera de la GAM, recorrido en un sentido ≤ 25 km | 0,47
+Ruta Interurbana corta, recorrido en un sentido > 25 km y ≤ 50 km | 0,46
+Ruta Interurbana media, recorrido en un sentido > 50 km y ≤ 100 km | 0,43
+Ruta Interurbana largo, recorrido en un sentido mayor 100 km | 0,43
 ccsr = Coeficiente de ajuste de acuerdo con las condiciones de la superficie de rodamiento del recorrido de la ruta. Estos coeficientes son tomados del MOPT (1997) y se presentan en el siguiente Cuadro 15.
 Cuadro 15. Coeficiente de ajuste según las condiciones de la superficie de Rodamiento
-[imagen]
+Descripción | Coeficiente de ajuste según las condiciones de la superficie de rodamiento
+Si el recorrido de la ruta “r” tienen igual o menos del 20% no pavimentado | 0,00
+Si el recorrido de la ruta “r” tiene más del 20% no pavimentado | 0,10
 Dr = Distancia de la carrera de la ruta “r”. Es la longitud en kilómetros sumando ambos sentidos de recorrido de la ruta “r”. El valor de esta variable se determina según lo indicado en la sección 4.12.1.b de esta metodología.
 cki = Coeficiente de ajuste por reconocimiento de kilometraje improductivo.
 El kilometraje improductivo se refiere al recorrido adicional necesario para iniciar y/o terminar un ciclo de operación. Estos coeficientes son tomados del MOPT (1997) y se presentan en el siguiente Cuadro 16.
 Cuadro16. Coeficiente de reconocimiento por kilometraje improductivo
-[imagen]
+Rango de distancia por viaje de la ruta (km) | Zona | Coeficiente de reconocimiento por tiempo improductivo
+0 y 25 | Urbana | 0,10
+Mayor de 25 | No urbana | 0,05
 CMr = Cantidad de carreras mensuales de la ruta “r”. Los valores por utilizar en el cálculo tarifario serán los que resulten de aplicar los criterios de validación de la sección 4.12.1.a.
 PC = Precio promedio del combustible en colones por litro. El precio promedio del combustible en colones por litro, corresponderá a la media aritmética simple del valor diario del precio del litro de combustible diésel establecido para el consumidor final, vigente durante el semestre calendario natural (i.e. enero a junio y julio a diciembre) anterior al que se realice la audiencia pública de la aplicación de esta metodología (el semestre calendario natural es el tiempo que va desde el primer día natural del primer mes del semestre hasta el último día natural del último mes del semestre, incluidos ambos). Para efectos de determinar el precio promedio del combustible diésel en colones por litro, se utilizarán los valores fijados por Aresep.
 r = Ruta de transporte remunerado de personas.
@@ -109,11 +118,21 @@ Donde:
 CCLLr = Costo mensual en consumo de llantas de la ruta “r”. Este costo estará expresado en colones.
 cclly = Cantidad de llantas por autobús para el tipo de ruta “y”. Estas cantidades serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y se presenta en el siguiente Cuadro 17.
 Cuadro 17. Cantidad de llantas por autobús por tipo de ruta
-[imagen]
+Tipo de ruta | Cantidad de llantas por autobús (unidades)
+Ruta Urbana dentro de la GAM, recorrido en un sentido ≤ 25 km | 6,0
+Ruta Urbana fuera de la GAM, recorrido en un sentido ≤ 25 km | 6,0
+Ruta Interurbana corta, recorrido en un sentido > 25 km y ≤ 50 km | 6,0
+Ruta Interurbana media, recorrido en un sentido > 50 km y ≤ 100 km | 6,0
+Ruta Interurbana largo, recorrido en un sentido mayor 100 km | 6,0
 fclly = Frecuencia de cambio de una llanta por autobús para el tipo de ruta “y”.
 Estas frecuencias de cambios serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y se presenta en el siguiente Cuadro 18.
 Cuadro 18. Frecuencia de cambio de una llanta nueva por tipo de ruta
-[imagen]
+Tipo de ruta | Frecuencia de cambio de una llanta nueva (km)
+Ruta Urbana dentro de la GAM, recorrido en un sentido ≤ 25 km | 61.000
+Ruta Urbana fuera de la GAM, recorrido en un sentido ≤ 25 km | 61.000
+Ruta Interurbana corta, recorrido en un sentido > 25 km y ≤ 50 km | 61.000
+Ruta Interurbana media, recorrido en un sentido > 50 km y ≤ 100 km | 61.000
+Ruta Interurbana largo, recorrido en un sentido mayor 100 km | 72.000
 ccsr = Coeficiente de ajuste de acuerdo con las condiciones de la superficie de rodamiento del recorrido de la ruta. Estos coeficientes son tomados de MOPT (1997) y se presentan en el Cuadro 15 anterior.
 Dr = Distancia de la carrera de la ruta “r”. Es la longitud en kilómetros sumando ambos sentidos de recorrido de la ruta “r”. El valor de esta variable se determina según lo indicado en la sección 4.12.1.b de esta metodología.
 cki = Coeficiente de ajuste por reconocimiento de kilometraje improductivo.
@@ -131,10 +150,21 @@ Donde:
 CCAMr = Costo mensual en consumo de aceite de motor de la ruta “r”. Este costo estará expresado en colones.
 ccamy = Cantidad de litros de aceite de motor por autobús para el tipo de ruta “y”. Estas cantidades serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y presentan en el siguiente Cuadro 19.
 Cuadro 19. Cantidad de litros de aceite de motor por autobús por tipo de Ruta
-[imagen]
+Tipo de ruta | Cantidad de litros de aceite de motor (litros)
+Ruta Urbana dentro de la GAM, recorrido en un sentido ≤ 25 km | 30,0
+Ruta Urbana fuera de la GAM, recorrido en un sentido ≤ 25 km | 30,0
+Ruta Interurbana corta, recorrido en un sentido > 25 km y ≤ 50 km | 30,0
+Ruta Interurbana media, recorrido en un sentido > 50 km y ≤ 100 km | 30,0
+Ruta Interurbana largo, recorrido en un sentido mayor 100 km | 38,0
 fcamy = Frecuencia de cambio del aceite de motor por autobús para el tipo de ruta “y”. Estas frecuencias de cambio serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y se presentan en el siguiente Cuadro 20.
 Cuadro 20. Frecuencia de cambio del aceite de motor por autobús por tipo de ruta
 [imagen]
+Tipo de ruta | Frecuencia de cambio del aceite de motor (km)
+Ruta Urbana dentro de la GAM, recorrido en un sentido ≤ 25 km | 10.000
+Ruta Urbana fuera de la GAM, recorrido en un sentido ≤ 25 km | 10.000
+Ruta Interurbana corta, recorrido en un sentido > 25 km y ≤ 50 km | 10.000
+Ruta Interurbana media, recorrido en un sentido > 50 km y ≤ 100 km | 10.000
+Ruta Interurbana largo, recorrido en un sentido mayor 100 km | 20.000
 ccsr = Coeficiente de ajuste de acuerdo con las condiciones de la superficie de rodamiento del recorrido de la ruta. Estos coeficientes son tomados de MOPT (1997) y se presentan en el Cuadro 15 anterior.
 Dr = Distancia de la carrera de la ruta “r”. Es la longitud en kilómetros en ambos sentidos de recorrido de la ruta “r”. El valor de esta variable se determina según lo indicado en la sección 4.12.1.b de esta metodología.
 cki = Coeficiente de ajuste por reconocimiento de kilometraje improductivo.
@@ -147,15 +177,26 @@ El valor de la cantidad de litros de aceite de motor por autobús (ccamy), la fr
 El plazo establecido para la actualización de los valores de los coeficientes, permite la revisión periódica de la metodología de manera que se incorpore los cambios en el entorno financiero, así como los cambios tecnológicos y legales atinentes al servicio objeto de la presente metodología. Los casos de inclusión, eliminación de coeficientes y variación en las reglas contenidas en la metodología para definir coeficientes, deberán someterse previamente al proceso de audiencia pública previsto en el artículo 36 de la Ley N° 7593.
 4.5.4 Costo por aceite de caja de cambios
 El costo mensual en consumo de aceite de caja de cambios (CCACCr), se obtiene de multiplicar el coeficiente de consumo de aceite de caja de cambios (ajustado por el coeficiente asociado a las condiciones de la superficie de rodamiento del recorrido de la ruta), los kilómetros recorridos por la ruta en el período de un mes y el precio del aceite de caja de cambios. El kilometraje recorrido al mes en la ruta se obtiene al multiplicar la distancia de la ruta (ajustada por el coeficiente de kilometraje improductivo) y la cantidad de carreras mensuales. El costo por este insumo se determina de la siguiente forma:
-[imagen]
+Ecuación
 Donde:
+[imagen]
 CCACCr = Costo mensual en consumo de aceite de caja de cambios de la ruta “r”. Este costo estará expresado en colones.
 ccaccy = Cantidad de litros de aceite de caja de cambios por autobús para el tipo de ruta “y”. Estas cantidades serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y presentan en el siguiente Cuadro 21.
 Cuadro 21. Cantidad de litros de aceite de caja de cambios por autobús por tipo de ruta
-[imagen]
+Tipo de ruta | Cantidad de litros de aceite de caja de cambios (litros)
+Ruta Urbana dentro de la GAM, recorrido en un sentido ≤ 25 km | 16,00
+Ruta Urbana fuera de la GAM, recorrido en un sentido ≤ 25 km | 16,00
+Ruta Interurbana corta, recorrido en un sentido > 25 km y ≤ 50 km | 16,00
+Ruta Interurbana media, recorrido en un sentido > 50 km y ≤ 100 km | 16,00
+Ruta Interurbana largo, recorrido en un sentido mayor 100 km | 16,00
 fcaccy = Frecuencia de cambio del aceite de caja de cambios por autobús para el tipo de ruta “y”. Estas frecuencias de cambio serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y se presentan en el siguiente Cuadro 22.
 Cuadro 22. Frecuencia de cambio del aceite de caja de cambios por autobús por tipo de ruta
-[imagen]
+Tipo de ruta | Frecuencia de cambio del aceite de caja de cambios (km)
+Ruta Urbana dentro de la GAM, recorrido en un sentido ≤ 25 km | 50.000
+Ruta Urbana fuera de la GAM, recorrido en un sentido ≤ 25 km | 50.000
+Ruta Interurbana corta, recorrido en un sentido > 25 km y ≤ 50 km | 50.000
+Ruta Interurbana media, recorrido en un sentido > 50 km y ≤ 100 km | 50.000
+Ruta Interurbana largo, recorrido en un sentido mayor 100 km | 160.000
 ccsr = Coeficiente de ajuste de acuerdo con las condiciones de la superficie de rodamiento del recorrido de la ruta. Estos coeficientes son tomados del MOPT (1997) y se presentan en el Cuadro 15 anterior.
 Dr = Distancia de la carrera de la ruta “r”. Es la longitud en kilómetros sumando ambos sentidos de recorrido la ruta “r”. El valor de esta variable se determina según lo indicado en la sección 4.12.1.b de esta metodología.
 cki = Coeficiente de ajuste por reconocimiento de kilometraje improductivo.
@@ -173,10 +214,21 @@ Donde:
 CCADr = Costo mensual de consumo en aceite para diferencial de la ruta “r”. Este costo estará expresado en colones.
 ccady = Cantidad de litros de aceite para diferencial por autobús para el tipo de ruta “y”. Estas cantidades serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes presentan en el siguiente Cuadro 23.
 Cuadro 23. Cantidad de litros de aceite para diferencial por autobús por tipo de ruta
-[imagen]
+Tipo de ruta | Cantidad de litros de aceite para diferencial (litros)
+Ruta Urbana dentro de la GAM, recorrido en un sentido ≤ 25 km | 17,00
+Ruta Urbana fuera de la GAM, recorrido en un sentido ≤ 25 km | 17,00
+Ruta Interurbana corta, recorrido en un sentido > 25 km y ≤ 50 km | 17,00
+Ruta Interurbana media, recorrido en un sentido > 50 km y ≤ 100 km | 17,00
+Ruta Interurbana largo, recorrido en un sentido mayor 100 km | 17,00
 fcady = Frecuencia de cambio del aceite para diferencial por autobús para el tipo de ruta “y”. Estas frecuencias de cambio serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y se presentan en el siguiente Cuadro 24.
 Cuadro 24. Frecuencia de cambio del aceite para diferencial por autobús por tipo de ruta
 [imagen]
+Tipo de ruta | Frecuencia de cambio del aceite para diferencial (km)
+Ruta Urbana dentro de la GAM, recorrido en un sentido ≤ 25 km | 30.000
+Ruta Urbana fuera de la GAM, recorrido en un sentido ≤ 25 km | 30.000
+Ruta Interurbana corta, recorrido en un sentido > 25 km y ≤ 50 km | 30.000
+Ruta Interurbana media, recorrido en un sentido > 50 km y ≤ 100 km | 30.000
+Ruta Interurbana largo, recorrido en un sentido mayor 100 km | 140.000
 ccsr = Coeficiente de ajuste de acuerdo con las condiciones de la superficie de rodamiento del recorrido de la ruta. Estos coeficientes son tomados del MOPT (1997) y se presentan en el Cuadro 15 anterior.
 Dr = Distancia de la carrera de la ruta “r”. Es la longitud en kilómetros en ambos sentidos de recorrido la ruta “r”. El valor de esta variable se determina según lo indicado en la sección 4.12.1.b de esta metodología.
 cki = Coeficiente de ajuste por reconocimiento de kilometraje improductivo. El kilometraje improductivo se refiere al recorrido adicional necesario para iniciar y/o terminar un ciclo de operación. Estos coeficientes son tomados del MOPT (1997) y se presentan en el Cuadro 15 anterior.
@@ -210,7 +262,9 @@ CCGr = Costo mensual en consumo de grasa de la ruta “r”. Este costo estará 
 ccg = Coeficiente por consumo de grasa por autobús para cualquier tipo de ruta. El valor del coeficiente será el que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes que se presentan en el siguiente Cuadro 26.
 fcg = Frecuencia engrase por autobús para para cualquier tipo de ruta. Esta frecuencia de engrase será la que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes se presentan en el siguiente Cuadro 26.
 Cuadro 26. Coeficiente de consumo de grasa por autobús
-[imagen]
+Consumo unitario de grasa (kg/km)
+Cantidad grasa (kg) | 0,400
+Frecuencia (km) | 5.000
 ccsr = Coeficiente de ajuste de acuerdo a las condiciones de la superficie de rodamiento del recorrido de la ruta. Estos coeficientes son tomados del MOPT (1997) y se presentan en el Cuadro 15 anterior.
 Dr = Distancia de la carrera de la ruta “r”. Es la longitud en kilómetros en ambos sentidos de recorrido la ruta “r”. El valor de esta variable se determina según lo indicado en la sección 4.12.1.b de esta metodología.
 cki = Coeficiente de ajuste por reconocimiento de kilometraje improductivo. El kilometraje improductivo se refiere al recorrido adicional necesario para iniciar y/o terminar un ciclo de operación. Estos coeficientes son tomados de MOPT (1997) y se presentan en el Cuadro 16 anterior.
@@ -228,10 +282,20 @@ CCFCr = Costo mensual en consumo de filtros de combustible de la ruta “r”. E
 ccfcy = Conjunto de filtros de combustible por autobús para el tipo de ruta “y”.
 Estas cantidades serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y presentan en el siguiente Cuadro 27.
 Cuadro 27. Conjunto de filtros de combustible por autobús por tipo de ruta
-[imagen]
+Tipo de ruta | Conjunto de filtros de combustible (uno racor y uno común)
+Ruta Urbana dentro de la GAM, recorrido en un sentido ≤ 25 km | 1,0
+Ruta Urbana fuera de la GAM, recorrido en un sentido ≤ 25 km | 1,0
+Ruta Interurbana corta, recorrido en un sentido > 25 km y ≤ 50 km | 1,0
+Ruta Interurbana media, recorrido en un sentido > 50 km y ≤ 100 km | 1,0
+Ruta Interurbana largo, recorrido en un sentido mayor 100 km | 1,0
 fcfcy = Frecuencia de cambio del conjunto de filtros de combustible por autobús para el tipo de ruta “y”. Estas frecuencias de cambio serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y se presentan en el siguiente Cuadro 28
 Cuadro 28. Frecuencia de cambio del conjunto de filtros de combustible por autobús por tipo de ruta
-[imagen]
+Tipo de ruta | Frecuencia de cambio conjunto de filtros de combustible por autobús (km)
+Ruta Urbana dentro de la GAM, recorrido en un sentido ≤ 25 km | 16.500
+Ruta Urbana fuera de la GAM, recorrido en un sentido ≤ 25 km | 16.500
+Ruta Interurbana corta, recorrido en un sentido > 25 km y ≤ 50 km | 16.500
+Ruta Interurbana media, recorrido en un sentido > 50 km y ≤ 100 km | 16.500
+Ruta Interurbana largo, recorrido en un sentido mayor 100 km | 28.500
 Dr = Distancia de la carrera de la ruta “r”. Es la longitud en kilómetros sumando ambos sentidos de recorrido la ruta “r”. El valor de esta variable se determina según lo indicado en la sección 4.12.1.b de esta metodología.
 cki = Coeficiente de ajuste por reconocimiento de kilometraje improductivo.
 El kilometraje improductivo se refiere al recorrido adicional necesario para iniciar y/o terminar un ciclo de operación. Estos coeficientes son tomados de MOPT (1997) y se presentan en el Cuadro 16 anterior.
@@ -251,10 +315,20 @@ Donde:
 CCAHr = Costo mensual en consumo de aceite hidráulico de la ruta “r”. Este costo estará expresado en colones.
 ccahy = Cantidad de litros de aceite hidráulico por autobús para el tipo de ruta “y”. Estas cantidades serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y presentan en el siguiente Cuadro 29.
 Cuadro 29. Cantidad de litros de aceite hidráulico por autobús por tipo de Ruta
-[imagen]
+Tipo de ruta | Cantidad de litros de aceite hidráulico (litros)
+Ruta Urbana dentro de la GAM, recorrido en un sentido ≤ 25 km | 10,00
+Ruta Urbana fuera de la GAM, recorrido en un sentido ≤ 25 km | 10,00
+Ruta Interurbana corta, recorrido en un sentido > 25 km y ≤ 50 km | 10,00
+Ruta Interurbana media, recorrido en un sentido > 50 km y ≤ 100 km | 10,00
+Ruta Interurbana largo, recorrido en un sentido mayor 100 km | 10,00
 fcahy = Frecuencia de cambio del aceite hidráulico por autobús para el tipo de ruta “y”. Estas frecuencias de cambio serán las que disponga la Aresep mediante resolución motivada basada en los informes técnicos correspondientes y se presentan en el siguiente Cuadro 30
 Cuadro 30. Frecuencia de cambio del aceite hidráulico por autobús por tipo de ruta
-[imagen]
+Tipo de ruta | Frecuencia de cambio del aceite hidráulico (km)
+Ruta Urbana dentro de la GAM, recorrido en un sentido ≤ 25 km | 80.000
+Ruta Urbana fuera de la GAM, recorrido en un sentido ≤ 25 km | 80.000
+Ruta Interurbana corta, recorrido en un sentido > 25 km y ≤ 50 km | 80.000
+Ruta Interurbana media, recorrido en un sentido > 50 km y ≤ 100 km | 80.000
+Ruta Interurbana largo, recorrido en un sentido mayor 100 km | 100.000
 Dr = Distancia de la carrera de la ruta “r”. Es la longitud en kilómetros en ambos sentidos de recorrido de la ruta “r”. El valor de esta variable se determina según lo indicado en la sección 4.12.1.b de esta metodología.
 CMr = Cantidad de carreras mensuales de la ruta “r”. Los valores por utilizar en el cálculo tarifario serán los que resulten de aplicar los criterios de validación de la sección 4.12.1.a.
 PAH = Precio del aceite hidráulico en colones por litro. El precio del aceite hidráulico se determina según lo indicado en la sección 4.11 de esta metodología.
@@ -299,8 +373,25 @@ Para estas unidades el método de depreciación es en tractos iguales, donde se 
 Es importante recalcar que en el momento de la tramitación de esta metodología, la edad máxima autorizada de las unidades de transporte ha sido establecida en 15 años, según el artículo 2 del Decreto N°29743-MOPT, “Reglamento de vida máxima autorizada para las unidades de transporte colectivo remunerado de personas y servicios especiales” (publicado en La Gaceta No 169 del 5 de setiembre de 2001).
 Para efectos regulatorios, dicha edad máxima utilizable se podrá modificar de conformidad con lo establecido en los cambios que se introduzcan en normativas vinculantes.
 Cuadro 3. Factores de depreciación anual de la flota por edad de la unidad para vehículos con reglas de cálculo tarifario tipo 2
-[imagen]
-[imagen]
+Edad de la unidad de transporte público (años) | Factor anual de depreciación fdf g b
+0 | 0,11429
+1 | 0,11429
+2 | 0,11429
+3 | 0,11429
+4 | 0,11429
+5 | 0,11429
+6 | 0,11429
+7 | 0,02222
+8 | 0,02222
+9 | 0,02222
+10 | 0,02222
+11 | 0,02222
+12 | 0,02222
+13 | 0,02222
+14 | 0,02222
+151 | 0,02222
+16 o más | 0,00000
+Fuente: Elaboración propia.
 1 Se incluye el año 15 en razón del acuerdo 3.1 de la Sesión Ordinaria 66-2011 del martes 13 de septiembre de 2011, en donde la Junta Directiva del Consejo de Transporte Público consideró “Que a partir del año 2012 las unidades que salen son las modelo 1996 y así sucesivamente”.
 El costo por depreciación mensual de este tipo de unidades se da mediante la siguiente ecuación:
 [imagen]
@@ -315,10 +406,8 @@ El costo total mensual de depreciación será la suma de los vehículos con regl
 [imagen]
 Donde se utilizan las mismas variables de las dos anteriores ecuaciones:
 CDFr = Costo mensual de depreciación de la flota autorizada en la ruta “r”. Este rubro estará expresado en colones.
-CDFα
-r = Costo mensual de depreciación de la flota autorizada en la ruta “r” del conjunto de unidades “α” Este rubro estará expresado en colones (Ver ecuación 5).
-CDFϒ
-r = Costo mensual de depreciación de la flota autorizada en la ruta “r” del conjunto de unidades “γ” Este rubro estará expresado en colones (Ver ecuación 6).
+= Costo mensual de depreciación de la flota autorizada en la ruta “r” del conjunto de unidades “α” Este rubro estará expresado en colones (Ver ecuación 5).
+= Costo mensual de depreciación de la flota autorizada en la ruta “r” del conjunto de unidades “γ” Este rubro estará expresado en colones (Ver ecuación 6).
 r = Ruta de transporte remunerado de personas.
 α = Conjunto de vehículos con reglas de cálculo tarifario tipo 1.
 γ = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
@@ -328,8 +417,24 @@ ii. Para los vehículos con reglas de cálculo tarifario tipo 2
 Para la estimación de rentabilidad de estas unidades, se obtendrá un factor a partir de la aplicación del método de depreciación que se efectuará en tractos iguales, donde se deprecia el 80% del valor de la unidad durante los primeros 7 años de la vida útil del activo (0 al año 6 inclusive) y el restante 20%, se depreciará en tractos iguales durante el resto de vida útil (del año 7 al año 15 inclusive).
 Los factores de depreciación acumulada y rentabilidad para cada edad de las unidades que conforman la flota autorizada se muestran en el Cuadro 22.
 Cuadro 22. Factores de rentabilidad de la flota por edad de la unidad para los vehículos con reglas de cálculo tipo 2
-[imagen]
-[imagen]
+Edad de la unidad de transporte público (años) | Factor de rentabilidad frfbg
+0 | 1,00000
+1 | 0,88571
+2 | 0,77143
+3 | 0,65714
+4 | 0,54286
+5 | 0,42857
+6 | 0,31429
+7 | 0,20000
+8 | 0,17778
+9 | 0,15556
+10 | 0,13333
+11 | 0,11111
+12 | 0,08889
+13 | 0,06667
+14 | 0,04444
+15 | 0,02222
+16 o más | 0,00000
 Procedimiento para la determinación de las jornadas semanales equivalentes de choferes:
 Modifíquese el apartado 4.10 Procedimiento para la determinación de la cantidad de choferes, para que diga lo siguiente:
 4.10 Procedimiento para la determinación de las jornadas semanales equivalentes de choferes
@@ -649,6 +754,7 @@ Sustitúyase la Sección 4.6.1.b Tasa de rentabilidad para reglas de cálculo ta
 “(…)
 b. Tasa de rentabilidad para reglas de cálculo tarifario tipo 2
 La tasa de rentabilidad (trγ) se obtendrá utilizando la metodología del Costo Promedio Ponderado de Capital (WACC, por su nombre en inglés Weighted Average Cost of Capital). Este dato se calcula una vez al año para todo el sector utilizando la siguiente ecuación:
+(Nota de Sinalevi: Mediante resolución RIT-096-2018 del 23 de julio de 2018, se acordó fijar en 11,50% la tasa de rentabilidad para reglas de cálculo tarifario tipo 2, a reconocer en las fijaciones tarifarias ordinarias del servicio de transporte remunerado de personas, modalidad autobús.)
 [imagen]
 Donde:
 trγ= Tasa de rentabilidad anual para vehículos con reglas de cálculo tarifario tipo 2 para la ruta “r” del conjunto de unidades “γ”.
@@ -759,7 +865,7 @@ Modificaciones de forma y aclaraciones:
 11 | Modifíquese el párrafo primero de la Parte IV de la Sección 4.9.2 Valoración de vehículos con reglas de cálculo tarifario tipo 2, para que se lea de la siguiente manera: Paso IV. Determinación del valor tarifario de una unidad en particular 1.5 El valor tarifario de una unidad en particular, de placa “n” será el menor valor que resulte de la comparación entre el valor del vehículo nuevo, según mercado, asignado por el MH (VPn) y el correspondiente valor tope máximo por tipo de unidad para su año de fabricación “v”. Esto deberá realizarse para cada una de las unidades de transporte de la flota autorizada. En los casos donde haya autobuses nuevos que no estén incluidos en el listado remitido por el Ministerio de Hacienda según el punto 1.3.b anterior, la IT solicitará su valor respectivo al Ministerio de Hacienda.
 12 | Modifíquese el primer párrafo y la Ecuación 1 del apartado 4.1 Fórmula general de la metodología, para que se lea de la siguiente manera: 4.1 Fórmula general de la metodología La presente metodología sigue un proceso de cálculo de la tarifa, por pasajero que paga la tarifa completa de su viaje, de cada ruta de transporte remunerado de personas, de conformidad con una serie de elementos técnicos (coeficientes y costos) de carácter
 # | Modificación
-| general. La expresión más general de las tarifas calculadas por pasajero que paga la tarifa completa de su viaje, se obtiene de la siguiente ecuación: [imagen] con Pr >0 Ecuación 1 Donde: Tr = Tarifa por pasajero que paga la tarifa completa de su viaje de la ruta “r”. CTr = Costos totales mensuales de la ruta “r” (ver ecuación 2). Pr = Volumen mensual de pasajeros movilizados que pagan la tarifa completa de su viaje en la ruta “r” (ver ecuación 53). r = Ruta de transporte remunerado de personas.
+| general. La expresión más general de las tarifas calculadas por pasajero que paga la tarifa completa de su viaje, se obtiene de la siguiente ecuación: con Pr >0 Ecuación 1 Donde: Tr = Tarifa por pasajero que paga la tarifa completa de su viaje de la ruta “r”. CTr = Costos totales mensuales de la ruta “r” (ver ecuación 2). Pr = Volumen mensual de pasajeros movilizados que pagan la tarifa completa de su viaje en la ruta “r” (ver ecuación 53). r = Ruta de transporte remunerado de personas.
 Costos de limpieza del autobús:
 Modifíquese la sección 4.4 Costos fijos, para que para que diga lo siguiente:
 (…)
@@ -790,8 +896,10 @@ Donde:
 CLLr = Costo mensual por limpieza y lavado de las unidades de la flota autorizada de la ruta “r”. Este rubro estará expresado en colones.
 flir = Frecuencia mensual del servicio de limpieza interna de las unidades de la flota autorizada. Los valores de la frecuencia de limpieza interna de las unidades se derivan del estudio técnico ejecutado, contratado o avalado por la Aresep, y se expresan como un coeficiente mensual, tal y como se muestran en el siguiente cuadro.
 Cuadro 12. Coeficiente mensual de frecuencia asociados a la limpieza y lavado de Vehículos
-[imagen]
-[imagen]
+Item | Frecuencia mensual (cantidad/ mes)
+Limpieza interna, dos veces por día | 60
+Lavado externo, una vez cada dos días | 15
+Lavado de motor y chasis, una vez cada dos meses | 0,50
 CLIr = Precio del servicio de limpieza interna de las unidades de la flota autorizada de la ruta “r”. Estos precios se determinan según lo indicado en la sección 4.11.5 de esta metodología.
 fler = Frecuencia mensual del servicio de limpieza externa del tipo de vehículo “i” de las unidades de la flota autorizada. Los valores de la frecuencia de limpieza externa se derivan del estudio técnico ejecutado, contratado o avalado por la Aresep y se expresan como un coeficiente mensual, tal y como se muestran en el Cuadro 12 anterior.
 CLEr = Precio del servicio de lavado externo de las unidades de la flota autorizada de la ruta “r”. Estos precios se determinan según lo indicado en la sección 4.11.5 de esta metodología.
