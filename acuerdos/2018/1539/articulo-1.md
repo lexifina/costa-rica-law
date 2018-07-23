@@ -1,0 +1,9 @@
+MINISTERIO DE SALUD
+DIRECCIÓN DE ASUNTOS JURÍDICOS
+AVISOS
+DAJ-MGG- 1539-2018.—Dirección de Asuntos Jurídicos.— Ministerio de Salud.—San José a los tres días del mes de julio del dos mil dieciocho, y a solicitud de la Dirección de Regulación de Productos de Interés Sanitario.
+De conformidad con lo establecido en el artículo 4 inciso b) de la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, se informa a las personas interesadas sobre los métodos utilizados para medir la cantidad de micronutrientes en los alimentos en aplicación de los seis reglamentos de fortificación, los cuales se encuentran disponibles en la siguiente dirección electrónica: http:/www.inciensa.sa.cr/servicios/analisis_laboratorio.aspx.
+Considerando:
+1º—Que mediante los Decretos: N° 27021 del 05 de junio de 1998, “Reglamento Técnico para la Fortificación con Vitamina A del Azúcar Blanco de Plantación para el Consumo Directo”, Decreto N° 30031 del 2 de junio de 2006, “Fortificación de arroz”, Decreto N° 34080 del 13 de noviembre de 2007, “Reglamento Técnico Centroamericano RTCA 67.01.15:07 Harinas, Harina de Trigo Fortificada Especificaciones”, Decreto N°30032 del 13 de abril de 2012, “Fortificación de la para la Sal de Calidad Alimentaria”, Decreto N° 28086 del 29 de enero de 1997, “Enriquecimiento de la Harina de Maíz”, Decreto N° 29629 09 de julio de 2001, “Fortificación la Leche de Ganado Vacuno ”, todos publicados en el Diario Oficial La Gaceta.
+Dirección de Regulación de Productos de Interés Sanitario, se solicita publicar los métodos analíticos utilizados para medir la cantidad de micronutrientes en los alimentos. Por tanto,
+Artículo 1º—Publíquese los métodos analíticos utilizados para medir la cantidad de micronutrientes en los alimentos en aplicación de los seis reglamentos de fortificación.
