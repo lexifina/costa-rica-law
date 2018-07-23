@@ -1,1 +1,0 @@
-Artículo 2º—El presente Reglamento se emite al amparo de lo dispuesto por el artículo 2 bis, inciso c) de la Ley de Contratación Administrativa y el artículo 138 del Reglamento a la Ley de Contratación Administrativa, por lo que su vigencia se encuentra condicionada a la aprobación por parte de la Contraloría General de la República.

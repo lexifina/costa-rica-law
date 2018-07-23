@@ -1,1 +1,0 @@
-Artículo 31.—En todos aquellos aspectos distintos de los trámites concursales y de selección del contratista que no se encuentren expresamente previstos en el presente Reglamento, resultarán aplicables las disposiciones de la Ley de Contratación Administrativa y el Reglamento a la Ley de Contratación Administrativa.

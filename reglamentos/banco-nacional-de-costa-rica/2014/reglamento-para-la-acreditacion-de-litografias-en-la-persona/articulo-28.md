@@ -1,1 +1,0 @@
-Artículo 28.—El BANCO podrá aplicar las sanciones de apercibimiento o de inhabilitación previstas al efecto en los artículos 99 y 100 de la Ley de Contratación Administrativa, en el caso de que una litografía autorizada incurra en alguno de los supuestos previstos en dichas disposiciones.

@@ -1,1 +1,0 @@
-Artículo 27.—Durante todo el plazo de la ejecución del contrato, será de acatamiento obligatorio para las litografías autorizadas todas y cada una de las disposiciones contenidas en este Reglamento, y el contrato suscrito con el BANCO.

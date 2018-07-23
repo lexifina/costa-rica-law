@@ -1,1 +1,0 @@
-Artículo 15.—La litografía será responsable de los daños o perjuicios ocasionados al Banco o al cuentacorrentista, derivado del incumplimiento de las obligaciones que asume al solicitar la autorización del Banco para la personalización de cheques.
