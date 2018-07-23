@@ -1,1 +1,0 @@
-Artículo 11.—De los seguros. La Municipalidad de Orotina tendrá asegurados los vehículos automotores con las coberturas que estime más convenientes por medio de pólizas de seguro con el Instituto Nacional de Seguros o alguna entidad debidamente autorizada.

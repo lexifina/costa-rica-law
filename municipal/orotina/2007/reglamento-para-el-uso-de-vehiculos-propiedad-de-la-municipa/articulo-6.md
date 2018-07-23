@@ -1,1 +1,0 @@
-Artículo 6º—De la jurisdicción: Los vehículos son para utilización dentro de la jurisdicción del cantón de Orotina, en caso de requerirse su salida de dicho territorio, se requerirá autorización expresa de la Alcaldía Municipal, según la solicitud realizada y a las normas de control interno que se emitan al efecto.

@@ -1,1 +1,0 @@
-Artículo 7º—Identificación. Todo vehículo propiedad de la Municipalidad de Orotina, deberá estar debidamente rotulado, en lugar visible, con letra de un tamaño tal que se visualice claramente a una distancia mínima de 25 metros y al menos la siguiente leyenda deberá estar impresa en cada puerta delantera:

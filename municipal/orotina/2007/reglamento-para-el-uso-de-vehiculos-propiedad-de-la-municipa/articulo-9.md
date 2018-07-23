@@ -1,1 +1,0 @@
-Articulo 9º—Del mantenimiento. La Municipalidad abastecerá de combustible, reparará y dará mantenimiento únicamente a los vehículos de su propiedad. Se dictarán medidas para el adecuado consumo de combustible, bitácora de uso y mantenimiento de los vehículos.

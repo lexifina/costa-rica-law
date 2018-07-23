@@ -1,2 +1,0 @@
-DE LAS SANCIONES
-Artículo 17.—El servidor que incumpliere las disposiciones de este reglamento, será sancionado de acuerdo con la gravedad de la falta, conforme con la aplicación de lo dispuesto en el Código Municipal, el Reglamento Autónomo de Organización y Servicios de la Municipalidad de Orotina, Ley General de la Administración Pública, Ley Contra la Corrupción y el Enriquecimiento Ilícito Ley de Administración Financiera y Presupuestos Públicos, Código Civil, Código Penal y toda aquella normativa aplicable.
