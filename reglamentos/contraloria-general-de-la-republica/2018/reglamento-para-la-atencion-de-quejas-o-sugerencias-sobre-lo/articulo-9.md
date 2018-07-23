@@ -1,0 +1,1 @@
+Artículo 9°—Asesoría de la Unidad Jurídica Interna. Corresponderá a la Unidad Jurídica Interna brindar la asesoría que se requiera en caso de dudas de la naturaleza de la gestión por parte de los distintos actores, en cualquier momento de la atención de la queja o sugerencia.

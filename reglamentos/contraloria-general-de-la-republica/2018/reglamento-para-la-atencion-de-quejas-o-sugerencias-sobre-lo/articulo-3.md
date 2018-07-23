@@ -1,0 +1,1 @@
+Artículo 3°—Procedencia de las gestiones. El incumplimiento injustificado de alguna de las garantías antes definidas podrá ser motivo de queja. Por su parte, la posibilidad de mejora en el cumplimiento de las garantías señaladas por un usuario, se entenderá como sugerencia.
