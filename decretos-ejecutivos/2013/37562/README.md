@@ -54,3 +54,4 @@ Reglamento de Especialidades y Subespecialidades Médicas
 | 39 | 2018-05-09 | Decreto Ejecutivo 41205 (2018-05-09) |
 | 40 | 2018-07-04 | Acuerdo 0 (2018-07-04) |
 | 41 | 2018-07-11 | Acuerdo 0 (2018-07-11) |
+| 42 | 2018-07-24 | Acuerdo 0 (2018-07-24) |
