@@ -14,3 +14,4 @@ Reglamento de procedimientos tributarios municipales de la Municipalidad de San 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-10-20 | la propia norma |
+| 2 | 2018-07-24 | Reglamento municipal 117 (2018-07-24) |
