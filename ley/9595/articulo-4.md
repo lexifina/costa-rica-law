@@ -1,0 +1,4 @@
+ARTÍCULO 4- Procedimientos de contratación administrativa
+Se exceptúan de la aplicación de los procedimientos de contratación administrativa, regulados por la legislación ordinaria, las adquisiciones de bienes, contratación de obras o servicios que se financien con recursos del préstamo.
+Dichas adquisiciones serán efectuadas mediante los procedimientos establecidos en el contrato de préstamo N.° 4433/OC-CR.
+Supletoriamente, cuando el banco así lo autorice, podrán utilizarse los procedimientos de contratación administrativa aplicables a la adquisición de bienes y contratación de obras o servicios con recursos del financiamiento, utilizados por la CNE, con fundamento en el régimen de excepción establecido en la Ley N.° 8488, Ley Nacional de Emergencias y Prevención del Riesgo, de 22 de noviembre de 2005.
