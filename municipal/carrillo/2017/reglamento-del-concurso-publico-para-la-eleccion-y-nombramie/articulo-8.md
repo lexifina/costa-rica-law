@@ -1,12 +1,15 @@
 Artículo 8: Tabla de valoración de las ofertas. La tabla de valoración de las ofertas de los aspirantes se regirá por los parámetros o factores, que seguidamente se indican, y que serán ponderados a efecto de obtener las calificaciones finales de las ofertas que cumplan con todos los
 requisitos exigidos para el cargo:
 Id | Factor de Evaluación | Puntaje
-1 | Experiencia Adicional | 33%
+1 | Experiencia laboral | 33%
 2 | Nivel Académico Adicional | 27%
 3 | Prueba de conocimientos | 20%
-4 | Entrevista | 13%
+4 | Prueba psico-competencial | 13%
 5 | Experiencia en Dirección de Personal | 7%
 15 | | 100%
+(Corregido el cuadro anterior mediante Fe de Erratas y publicada en La Gaceta N° 228 del 7 de diciembre de 2018, página N° 128)
+Aplicación de pruebas psico- competenciales. Entrevista por competencias Análisis integral por competencias | Nota 70 mìnima
+(Así reformados los cuadros anteriores en sesión N° 30 del 24 de julio de 2018)
 NIVEL ACADÉMICO
 Se evaluará el nivel académico adicional toda vez que el nivel requerido en el perfil es de carácter obligatorio de acuerdo a los lineamientos de la contraloría general de la república.
 Id | Nivel Académico Adicional | Puntaje
@@ -33,16 +36,8 @@ Id | Prueba de Conocimiento | Puntaje
 5 | Nivel 5: Se considera experto cuando la persona ofrece unos excelentes resultados respecto a la competencia en cuestión; y cuando es capaz de asesorar a otros en la aplicación de las habilidades, conocimientos y actitudes asociados con la especialidad de referencia y puede realizar tareas complejas sin supervisión | 7%
 15 | | 20%
 ENTREVISTA
-Los responsables de realizar la entrevista deberán razonar su calificación atendiendo a las
-características, habilidades y/o competencias necesarias para ejecutar adecuadamente el puesto,
-siguiendo los documentos derivados del proceso de reclutamiento, y presentado en su informe de
-entrevista una proyección del posible comportamiento y desempeño de ese candidato en el puesto de trabajo. Se calificará de la siguiente manera:
-Id | Entrevista | Puntaje
-1 | Malo | 1%
-2 | Bueno | 3%
-3 | Muy Bueno | 4%
-4 | Excelente | 5%
-10 | | 13%
+Será una entrevista competencial que se elabora determinando (Situación, tareas, acción, resultado), tiene la finalidad de poder evaluar las destrezas, habilidades y capacidades de los oferentes garantizando una contratación objetiva y que la persona cumpla con las competencias requeridas del puesto por medio de técnicas de simulación.
+(Así reformado el aparte de entrevista en sesión N° 30 del 24 de julio de 2018)
 EXPERIENCIA EN DIRECCIÓN DE PERSONAL
 Deberá ser demostrada que se ejerció en Auditoría o Contaduría Pública, como jefatura, y no como mera coordinación de estudios. No se puntuarán los periodos de vacaciones o incapacidades de alguna jefatura. Se puntuará de la siguiente forma:
 Id | Experiencia en Dirección de Personal | Puntaje
