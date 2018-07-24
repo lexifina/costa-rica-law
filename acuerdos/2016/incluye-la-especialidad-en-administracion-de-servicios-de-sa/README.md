@@ -14,3 +14,4 @@ Incluye la especialidad en Administración de Servicios de Salud en la lista ofi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-03-07 | la propia norma |
+| 2 | 2018-07-24 | Acuerdo 0 (2018-07-24) |
