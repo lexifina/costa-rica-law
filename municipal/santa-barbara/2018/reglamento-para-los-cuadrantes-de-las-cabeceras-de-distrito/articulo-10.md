@@ -1,0 +1,1 @@
+Artículo 10°—Aprobado por acuerdo del Concejo Municipal del Cantón de Santa Bárbara de Heredia N° 2145-2018, de la Sesión Ordinaria N° 111-2018, Artículo VI, Inciso N° A, del 18 de junio 2018. Publíquese en el Diario Oficial La Gaceta, para su aplicación a nivel cantonal.
