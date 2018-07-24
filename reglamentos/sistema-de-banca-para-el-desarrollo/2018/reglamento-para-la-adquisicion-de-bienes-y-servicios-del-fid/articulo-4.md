@@ -1,0 +1,7 @@
+Artículo 4º—Los principios que informan el reglamento: Para la adquisición de los bienes y servicios que requiera El FINADE, se deberán respetar los principios de Eficiencia, Eficacia, Igualdad, Libre Competencia, Publicidad, Buena Fe, Intangibilidad patrimonial y los demás principios que rigen la Contratación Administrativa:
+a. Se entiende como principio de eficiencia el seleccionar la oferta que más convenga al desarrollo y ejecución del Fideicomiso.
+b. El principio de eficacia se entenderá como aquellos procedimientos de contratación que promueva el fideicomiso y que estarán orientados al cumplimiento de los fines, metas y objetivos del Fidecomiso, en procura de una sana administración del FINADE.
+c. Se entiende como principio de igualdad que los oferentes serán tratados y examinados bajo las mismas reglas. d. Se entiende como principio de libre competencia, la oportunidad de participación a todos los oferentes que cumplan las estipulaciones técnicas y legales solicitadas por el FINADE en cada procedimiento de contratación.
+e. Se entiende como principio de publicidad que, para promover y dar a conocer los concursos, según sea su naturaleza, se utilizarán los medios de comunicación correspondientes.
+f. Se entiende como principio de buena fe que las actuaciones desplegadas por el Fideicomiso y los oferentes serán de buena fe, admitiendo prueba en contrario.
+g. El principio de Intangibilidad patrimonial se entenderá como que las partes están obligadas a mantener el equilibrio financiero del contrato.
