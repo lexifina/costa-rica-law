@@ -1,0 +1,4 @@
+CAPÍTULO IV
+De las etapas del procedimiento de becas
+Artículo 14.—Elaboración y entrega de Formularios. La Administración Municipal, por medio de la Gestión de Desarrollo Humano Local, deberá elaborar los formularios de solicitud de beca correspondientes para cada uno de los niveles académicos y los pondrá a disposición del público en forma física y digital en la plataforma de servicios de la Municipalidad, en el mes de noviembre.
+La elaboración de los formularios deberá realizarse tomando en cuenta los diferentes niveles académicos, de manera tal, que para cada nivel exista un formulario que permita diferenciarlo de los demás niveles y que se encuentre acorde con el grado de complejidad de estudios de cada nivel.
