@@ -9,6 +9,17 @@ Derecho Triple | ¢2.419.293
 Otros servicios
 Inhumación | ¢25.000
 Exhumación | ¢35.000
+Costo por servicio de construcción de nicho: Construcción del nicho, Monto único (Así adicionado el servicio anterior mediante publicación en La Gaceta N° 134 del 24 de julio del 2018) | ¢480.000,00 (Así adicionado el monto anterior mediante publicación en La Gaceta N° 134 del 24 de julio del 2018)
+1. Costos de mantenimiento: (Así adicionado el servicio anterior mediante publicación en La Gaceta N° 134 del 24 de julio del 2018) |
+Para derecho sencillo (Así adicionado el servicio anterior mediante publicación en La Gaceta N° 134 del 24 de julio del 2018) |
+Mensual (Así adicionado el servicio anterior mediante publicación en La Gaceta N° 134 del 24 de julio del 2018) | ¢2.016 (Así adicionado el monto anterior mediante publicación en La Gaceta N° 134 del 24 de julio del 2018)
+Anual (Así adicionado el servicio anterior mediante publicación en La Gaceta N° 134 del 24 de julio del 2018) | ¢24.193 (Así adicionado el monto anterior mediante publicación en La Gaceta N° 134 del 24 de julio del 2018)
+Para derecho doble (Así adicionado el servicio anterior mediante publicación en La Gaceta N° 134 del 24 de julio del 2018) |
+Mensual (Así adicionado el servicio anterior mediante publicación en La Gaceta N° 134 del 24 de julio del 2018) | ¢4.032 (Así adicionado el monto anterior mediante publicación en La Gaceta N° 134 del 24 de julio del 2018)
+Anual (Así adicionado el servicio anterior mediante publicación en La Gaceta N° 134 del 24 de julio del 2018) | ¢48.386 (Así adicionado el monto anterior mediante publicación en La Gaceta N° 134 del 24 de julio del 2018)
+Para derecho triple (Así adicionado el servicio anterior mediante publicación en La Gaceta N° 134 del 24 de julio del 2018) |
+Mensual (Así adicionado el servicio anterior mediante publicación en La Gaceta N° 134 del 24 de julio del 2018) | ¢6.048 (Así adicionado el monto anterior mediante publicación en La Gaceta N° 134 del 24 de julio del 2018)
+Anual (Así adicionado el servicio anterior mediante publicación en La Gaceta N° 134 del 24 de julio del 2018) | ¢72.579 (Así adicionado el monto anterior mediante publicación en La Gaceta N° 134 del 24 de julio del 2018)
 Asimismo:
 A) Se fijan como plazos de financiamiento de los derechos de cementerio hasta un máximo de 5 años (60 meses) conforme a la tasa de interés aplicable,
 B) Se modifica el párrafo 2 del artículo 14 del Reglamento del Cementerio de Jacó, para que en adelante sea lea que el interés moratorio será aplicado con base en lo dispuesto por el artículo 57 del Código de Normas y procedimientos Tributarios.

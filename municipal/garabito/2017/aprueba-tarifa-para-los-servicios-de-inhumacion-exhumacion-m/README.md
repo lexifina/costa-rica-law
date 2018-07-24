@@ -14,3 +14,4 @@ Aprueba Tarifa para los servicios de inhumación, exhumación, mantenimiento y v
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-07-24 | la propia norma |
+| 2 | 2018-07-24 | Reglamento municipal 0 (2018-06-22) |
