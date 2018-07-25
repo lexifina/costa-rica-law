@@ -13,4 +13,6 @@ Reglamento para la Intervención
 de la Brucelosis Bovina
 CAPÍTULO I
 Disposiciones generales
-Artículo 1º—Se declara a la Brucelosis Bovina como una enfermedad de combate particular obligatorio, bajo normativa y fiscalización del Servicio Nacional de Salud Animal (SENASA), en coordinación con Organizaciones Gubernamentales y No Gubernamentales (ONGs), Médicos Veterinarios Oficializados, Médicos Veterinarios del ejercicio liberal y productores pecuarios.
+Artículo 1º—Se declara la brucelosis bovina como una enfermedad de combate oficial obligatorio, bajo normativa, protocolos específicos y fiscalización que el Servicio Nacional de Salud Animal (SENASA) establezca para su vigilancia, control y erradicación, en coordinación con otras instituciones públicas, Organizaciones No Gubernamentales (ONG´s), Médicos Veterinarios Oficializados, Médicos Veterinarios del ejercicio liberal y organizaciones de productores pecuarios.
+La ejecución de las actividades de vigilancia, control y erradicación de la brucelosis bovina se deberá realizar mediante esfuerzo y aportación conjunta de recursos económicos entre el sector público y privado.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41219 del 25 de julio del 2018)
