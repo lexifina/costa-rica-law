@@ -14,3 +14,4 @@ Reglamento para la Prevención, el Control y Erradicación de la Tuberculosis en
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-25 | la propia norma |
+| 2 | 2018-07-25 | Decreto Ejecutivo 41219 (2018-07-25) |

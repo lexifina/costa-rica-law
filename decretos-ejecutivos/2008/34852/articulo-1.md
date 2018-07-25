@@ -13,4 +13,6 @@ Decretan:
 Reglamento para la Prevención, el Control y Erradicación de la Tuberculosis en los Bovinos
 CAPÍTULO I
 Disposiciones generales
-Artículo 1º—Se declara la tuberculosis como una enfermedad de combate particular obligatorio bajo coordinación y fiscalización del SENASA, que lo llevará a cabo con la participación de grupos de ganaderos, médicos veterinarios oficializados, empresa privada y otros entes u órganos públicos y no gubernamentales.
+Artículo 1º—Se declara la tuberculosis bovina como una enfermedad de combate oficial obligatorio, bajo normativa, protocolos específicos y fiscalización que el Servicio Nacional de Salud Animal (SENASA) establezca para su vigilancia, control y erradicación, en coordinación con otras instituciones públicas, Organizaciones No Gubernamentales (ONG´s), Médicos Veterinarios Oficializados, Médicos Veterinarios del ejercicio liberal y organizaciones de productores pecuarios.
+La ejecución de las actividades de vigilancia, control y erradicación de la tuberculosis bovina se deberá realizar mediante esfuerzo y aportación conjunta de recursos económicos entre el sector público y privado.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41219 del 25 de julio del 2018)
