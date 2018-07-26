@@ -12,6 +12,7 @@ f) La embriaguez con ocasión del ejercicio profesional.
 g) La falta leve reiterada.
 Faltas muy graves:
 h) Son faltas muy graves la infracción a las prohibiciones y obligaciones contenidas en el capítulo I, artículos del 7 al 10; capítulo III, excepto los incisos n-, o- y p- del artículo 11; capítulo IV, excepto el artículo 21 y los incisos c- y g- del artículo 59.
-i) La embriaguez o toxicomanía habitual y pública.
+i) La embriaguez o toxicomanía en el ejercicio de la profesión.
+(Así reformado el inciso anterior mediante sesión N° 13-2018 del 26 de julio del 2018)
 j) Los actos dolosos.
 k) La falta grave reiterada.
