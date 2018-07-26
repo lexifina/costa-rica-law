@@ -1,0 +1,1 @@
+Artículo 6º—Se instruye al Consejo Nacional Ambiental, para que en coordinación con el Ministerio de Ambiente y Energía, rinda informes ejecutivos trimestrales que sinteticen las acciones realizadas en cumplimiento de la presente directriz.
