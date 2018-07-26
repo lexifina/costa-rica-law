@@ -14,3 +14,4 @@ Establece cuales son los créditos fiscales por los pagos realizados por concept
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-30 | la propia norma |
+| 2 | 2018-07-26 | Resolución 37 (2018-07-26) |
