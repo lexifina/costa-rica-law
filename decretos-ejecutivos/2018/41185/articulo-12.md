@@ -1,0 +1,1 @@
+Artículo 12.—Suspensión de la tramitación de un caso. LA CONTRALORÍA suspenderá una investigación cuando se encuentre debidamente acreditado que el mismo hecho es conocido por otra instancia administrativa o judicial competente para resolver.

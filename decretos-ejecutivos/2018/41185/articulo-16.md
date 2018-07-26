@@ -1,0 +1,1 @@
+Artículo 16.—Discreción y Confidencialidad. LA CONTRALORÍA garantizará la discreción y la confidencialidad en el uso y manejo de la información que recibe, así como la contenida en la base de datos de LA CONTRALORÍA.

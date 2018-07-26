@@ -1,0 +1,1 @@
+Artículo 14.—Asesoría y apoyo técnico. LA PERSONA CONTRALORA podrá requerir el apoyo de las Áreas y las Unidades en las oficinas centrales y regionales de MIDEPLAN, de todas las PERSONAS FUNCIONARIAS, así como del personal externo que estime necesario para dar apoyo y soporte a su labor.

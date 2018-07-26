@@ -1,0 +1,1 @@
+Artículo 13.—Informes y Recomendaciones. Los informes y recomendaciones que emita LA CONTRALORÍA deberán ser remitidos al Jerarca quien estará facultado para tomar las acciones necesarias para el mejoramiento del servicio.

@@ -1,0 +1,1 @@
+Artículo 15.—Continuidad del Servicio Público. En ningún caso las gestiones que plantean LAS PERSONAS USUARIAS O GESTIONANTES pueden afectar la continuidad, calidad y atención del servicio de MIDEPLAN.
