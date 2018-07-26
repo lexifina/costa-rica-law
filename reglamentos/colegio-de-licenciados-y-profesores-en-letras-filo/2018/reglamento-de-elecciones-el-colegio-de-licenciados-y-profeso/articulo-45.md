@@ -1,0 +1,2 @@
+Artículo 45. Juramentación
+La juramentación de los miembros electos se realiza ante quien ejerza la presidencia del Tribunal en la misma Asamblea Regional y asumen sus funciones una vez que el acuerdo quede en firme y hayan recibido la inducción. Mientras no se realice esto, los anteriores miembros de las Juntas Regionales y el Fiscal Regional permanecen en sus cargos. Una vez que reciban las credenciales, asumen sus funciones.

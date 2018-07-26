@@ -1,0 +1,2 @@
+Artículo 73. Plazo para presentar recurso de apelación
+El plazo para interponer el recurso de apelación es de cinco días hábiles a partir de la comunicación a la que se hace referencia en el artículo trasanterior. El recurso debe interponerse ante el propio Tribunal, el cual, luego de constatar su procedencia, lo admite y le solicita a la Junta Directiva que convoque a una Asamblea General Extraordinaria conforme al artículo 15 y concordantes de la Ley 4770. La Asamblea resuelve dicho recurso el mismo día.

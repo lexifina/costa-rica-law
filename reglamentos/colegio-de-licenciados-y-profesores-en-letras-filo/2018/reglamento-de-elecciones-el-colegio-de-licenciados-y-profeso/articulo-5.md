@@ -1,0 +1,1 @@
+Artículo 05 Para postularse y ejercer cualquier puesto, dentro de los distintos órganos del Colegio, que requiera de un proceso electoral, el colegiado debe comportarse, en general, de acuerdo con las normas éticas derivadas de su condición de persona y de profesional, y cumplir con el Código Deontológico del Colegio.

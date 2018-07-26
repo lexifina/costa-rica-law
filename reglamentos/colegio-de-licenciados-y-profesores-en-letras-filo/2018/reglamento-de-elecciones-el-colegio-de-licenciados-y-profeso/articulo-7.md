@@ -1,0 +1,1 @@
+Artículo 07 En todos los procesos electorales del Colegio se garantizan las necesidades especiales de los colegiados que lo requieran, de cualquier índole, respetando lo establecido en la Ley 7600 y concordantes.

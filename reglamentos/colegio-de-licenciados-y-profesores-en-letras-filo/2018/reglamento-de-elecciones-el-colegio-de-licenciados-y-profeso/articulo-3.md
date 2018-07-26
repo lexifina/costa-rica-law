@@ -1,0 +1,1 @@
+Artículo 03 Para efectos del presente reglamento se entenderá por “Colegio” al Colegio de Licenciados y Profesores en Letras, Filosofía, Ciencias y Artes; cuando se cite “Tribunal” se entenderá que se refiere al Tribunal Electoral, y la “Ley” será la Ley No. 4770.

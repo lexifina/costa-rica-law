@@ -1,0 +1,3 @@
+Artículo 42. Admisibilidad y resolución de candidaturas o agrupaciones políticas y ratificación de candidaturas
+Para que la gestión sea admisible, la propuesta de la agrupación política debe regirse por la paridad de sexos y los demás requisitos de este reglamento.
+El Tribunal revisa, examina y verifica la información presentada por los postulantes a la candidatura y agrupaciones políticas, y en un plazo de ocho días hábiles emitirá una resolución oficial en relación con el cumplimiento de los requisitos y lo comunicará a los postulantes y agrupaciones políticas, ratificando su candidatura. Todos los candidatos al puesto deben estar presentes en la elección correspondiente.

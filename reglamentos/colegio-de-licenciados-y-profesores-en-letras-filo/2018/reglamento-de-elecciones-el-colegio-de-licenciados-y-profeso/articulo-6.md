@@ -1,0 +1,1 @@
+Artículo 06 En todos los procesos electorales del Colegio se garantiza la participación democrática de las personas que lo integran. Para ello siempre se actúa según los criterios de imparcialidad, objetividad y transparencia.

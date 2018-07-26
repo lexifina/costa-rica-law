@@ -1,0 +1,3 @@
+Artículo 33. Inscripción de candidatos
+a) El Tribunal abre un periodo de 22 días naturales para la inscripción de agrupaciones políticas tendientes a integrar el Tribunal Electoral y Tribunal de Honor. Esta etapa inicia el primer lunes del mes de agosto. Las vacantes, los requisitos y los plazos deben ser comunicados por el Tribunal en diario oficial La Gaceta y en los medios internos del Colegio.
+b) En caso de no inscribirse ninguna agrupación política para conformar el Tribunal Electoral o Tribunal de Honor, el Tribunal debe ampliar el periodo de inscripción por cinco días hábiles a partir de la publicación en el diario oficial La Gaceta y en los medios internos del Colegio.

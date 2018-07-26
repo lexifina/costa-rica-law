@@ -1,0 +1,2 @@
+Artículo 38. Juramentación
+La juramentación de los miembros electos se realiza en el mes de abril ante quien ejerza la presidencia del Tribunal, una vez que el acuerdo quede en firme y los miembros realicen el curso de inducción. Mientras no se realice esto, los anteriores miembros de los Tribunales permanecerán en sus cargos. Una vez que reciban las credenciales, los nuevos miembros asumen sus funciones a partir del primer día hábil del mes de mayo.

@@ -1,0 +1,2 @@
+Artículo 54. Trámite de las denuncias
+El Tribunal sólo da curso a denuncias o acusaciones que se refieran a hechos acontecidos en el recinto electoral ante el delegado electoral o miembro del Tribunal, realizadas formalmente por escrito o según lo estipulado en este reglamento, ante el Tribunal. No se da curso a denuncias anónimas. El Tribunal rechaza de plano la denuncia cuando sea manifiestamente improcedente.

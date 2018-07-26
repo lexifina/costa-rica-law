@@ -1,0 +1,9 @@
+Artículo 59. Sanciones
+Las sanciones que puede imponer el órgano son las siguientes:
+a) Amonestación oral: Es una llamada de atención a las agrupaciones políticas o candidatos que hayan infringido en forma leve algunas de las disposiciones de este reglamento. Esta amonestación debe quedar debidamente registrada en el acta correspondiente del Tribunal Electoral.
+b) Amonestación escrita: Se aplica cuando se incurra por segunda ocasión en una falta leve, con el apercibimiento de que si sucediere nuevamente se le puede suspender la propaganda política a la agrupación política o candidato según el caso, o bien cuando lo indique este reglamento.
+c) Suspensión de funciones electorales o pérdida de credenciales. Se aplica cuando algún miembro de los centros de votación, fiscal de agrupación política o candidato, o titular del Tribunal Electoral infrinja en forma grave alguna de las disposiciones emitidas por este reglamento. La pena se impone hasta por un lapso de tres periodos electorales.
+d) Prohibición de ejercer cargos electorales hasta por tres periodos. Se aplica cuando algún miembro de una agrupación política o candidato, miembro de centro de votación, fiscal de agrupación política o candidato, o titular del Tribunal Electoral que infrinja en forma grave alguna de las disposiciones emitidas por este reglamento.
+e) Suspensión parcial o total de la propaganda. Se aplica cuando la agrupación política o candidato haya infringido algunas de las disposiciones de este reglamento.
+f) Desestimación de papeleta o suspensión definitiva de la agrupación política o candidato, previo cumplimiento del debido proceso. De igual forma, se aplica cuando la agrupación política o candidato haya infringido en forma grave algunas de las disposiciones de este reglamento.
+Las presentes sanciones no eximen de la responsabilidad deontológica o penal que la falta cometida acarrea.

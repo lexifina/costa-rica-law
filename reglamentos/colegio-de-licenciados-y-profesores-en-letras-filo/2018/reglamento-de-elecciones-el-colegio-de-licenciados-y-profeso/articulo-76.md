@@ -1,0 +1,3 @@
+CAPÍTULO XII
+DISPOSICIONES FINALES
+Artículo 76. A falta de disposición expresa, se aplican supletoriamente: la normativa electoral nacional siempre y cuando sea aplicable por su naturaleza y demás circunstancias, la Ley Orgánica 4770, la Ley N° 8765 publicada en el alcance 37 de La Gaceta N° 171 del 02 de setiembre del 2009, la Constitución Política, la Ley N° 7142 del 26 de marzo de 1990, la Convención sobre la Eliminación de Todas las Formas de Discriminación contra la Mujer (Cedaw), la Ley N° 6968 del 02 de octubre de 1984, la Conferencia Mundial de las Naciones Unidas sobre los derechos humanos (Viena 1983), el Consenso de Quito del 09 de agosto de 2007, las leyes conexas, los principios generales del derecho y la opinión consultiva CO-24/17.

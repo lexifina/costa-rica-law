@@ -1,0 +1,4 @@
+Artículo 14. Documentos por entregar para la inscripción de las agrupaciones políticas y candidaturas
+a) Constancia de estar al día con las obligaciones del Colegio, de cada uno de los postulantes.
+b) Formulario de inscripción que contenga los siguientes datos: nombres y apellidos, números de carné, número de identificación, cargo al que ostenta y la institución en la cual labora, en caso de ser activo; o indicar si es jubilado, entre otros. Lo anterior respetando la paridad de ambos sexos, de forma que la diferencia entre el total de hombres y mujeres no sea superior a uno (se exceptúa el cargo de fiscal).
+c) Declaración jurada de cada postulante, de origen y destino lícito de los fondos y de que cumple con los requisitos del presente reglamento. Deberá autenticarla ante el asesor legal del Colegio o, en su defecto, ante notario.

@@ -1,0 +1,1 @@
+Artículo 04 Para todos los procesos electorales de Colegio se respeta y garantiza sin discriminación alguna el pleno y libre ejercicio de los derechos humanos y electorales. De tal forma que se respeten los derechos de paridad de sexos e identidad de género, y que la diferencia entre el total de hombres y el de mujeres no podrá ser superior a uno.

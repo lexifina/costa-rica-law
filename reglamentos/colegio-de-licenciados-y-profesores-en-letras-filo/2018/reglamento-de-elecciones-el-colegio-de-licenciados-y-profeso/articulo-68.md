@@ -1,0 +1,2 @@
+Artículo 68. Forma de determinar un plazo o fecha límite
+Los plazos fijados por días se cuentan por días naturales. Los plazos por mes o año se cuentan de fecha a fecha conforme al calendario usual. Si el día final de un plazo establecido fuere día inhábil, se tiene por prorrogado hasta el día hábil siguiente. Los plazos definitivos, si el Reglamento no determinare otro punto de partida, comienzan a correr el día siguiente de notificado del acuerdo o resolución.

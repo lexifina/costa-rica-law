@@ -1,0 +1,2 @@
+Artículo 20. Reelección. Todos los miembros electos de la Junta Directiva, Fiscalía, propietarios del Tribunal Electoral y propietarios del Tribunal de Honor, no pueden ser reelectos, ni electos consecutivamente en ningún otro puesto de la Junta Directiva, hasta tanto no se cumpla un período de tres años a partir de la fecha en que finaliza su nombramiento. Los suplentes no tienen ninguna restricción en cuanto a la posibilidad de reelegirse o elegirse.
+(Corregido mediante Fe de erratas y publicada en La Gaceta N° 102 del 3 de junio de 2019, página N° 68.)

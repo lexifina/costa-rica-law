@@ -1,0 +1,1 @@
+Artículo 79. Una vez aprobado este Reglamento de Elecciones por la Asamblea General, la Junta Directiva procede a su publicación en el diario oficial La Gaceta en un plazo no superior a los treinta días naturales, y empieza a regir ocho días después de su publicación.

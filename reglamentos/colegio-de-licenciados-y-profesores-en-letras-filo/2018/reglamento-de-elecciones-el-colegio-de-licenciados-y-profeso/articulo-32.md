@@ -1,0 +1,2 @@
+Artículo 32. Agrupación política por elegir
+Los candidatos por elegir en la agrupación política para ocupar los cargos en el Tribunal Electoral son: cinco miembros propietarios y dos suplentes, quienes designan de su seno, entre sus propietarios, una Presidencia, una Vicepresidencia, una Secretaría y dos Vocalías, según Art. 55 de la Ley 4770. Los candidatos por elegir en la agrupación política para ocupar los cargos en el Tribunal de Honor son: tres miembros propietarios y dos suplentes, según Art. 46 de la ley 4770.
