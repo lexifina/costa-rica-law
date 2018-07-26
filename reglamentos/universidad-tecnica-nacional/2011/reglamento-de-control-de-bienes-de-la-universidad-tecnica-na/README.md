@@ -16,3 +16,4 @@ Reglamento de Control de Bienes de la Universidad Técnica Nacional
 | 1 | 2011-10-26 | la propia norma |
 | 2 | 2013-03-21 | Reglamento 41 (2013-03-21) |
 | 3 | 2016-09-01 | Reglamento 18 (2016-09-01) |
+| 4 | 2018-07-26 | Reglamento 16 (2018-07-26) |
