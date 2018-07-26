@@ -14,3 +14,4 @@ Actualización de criterios para la clasificación de grandes contribuyentes nac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-04-12 | la propia norma |
+| 2 | 2018-07-26 | Resolución 38 (2018-07-26) |
