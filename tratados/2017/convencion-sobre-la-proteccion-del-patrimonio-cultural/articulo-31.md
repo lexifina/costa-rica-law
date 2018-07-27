@@ -1,0 +1,8 @@
+Artículo 31 - Enmiendas
+1. Un Estado Parte podrá proponer enmiendas a esta Convención mediante comunicación dirigida por escrito al Director General. El Director General transmitirá la comunicación a todos los Estados Partes. Si dentro de los seis meses siguientes a la fecha de envío de la comunicación, la mitad por lo menos de los Estados Partes responde favorablemente a esa petición, el Director General presentará dicha propuesta para examen y posible aprobación de la siguiente Reunión de los Estados Partes.
+2. Las enmiendas serán aprobadas por una mayoría de dos tercios de los Estados Partes presentes y votantes.
+3. Una vez aprobadas, las enmiendas a esta Convención deberán ser objeto de ratificación, aceptación, aprobación o adhesión por los Estados Partes.
+4. La enmienda a esta Convención entrarán en vigor únicamente para los Estados Partes que las hayan ratificado, aceptado, aprobado o que se hayan adherido a ellas tres meses después de que dos tercios de los Estados Partes hayan depositado los instrumentos mencionados en el párrafo 3 del presente artículo. A partir de esa fecha, la enmienda entrará en vigor para cada Estado Parte o territorio que la ratifique, acepte, apruebe o se adhiera a ella tres meses después de la fecha en que esa Parte haya depositado su instrumento de ratificación, aceptación, aprobación o adhesión.
+5. Un Estado o territorio que llegue a ser Parte en esta Convención después de la entrada en vigor de enmiendas efectuadas de conformidad con el párrafo 4 del presente artículo y que no manifieste una intención diferente, será considerado:
+a) Parte en esta Convención así enmendada; y
+b) Parte en la Convención no enmendada con respecto a todo Estado Parte que no esté obligado por la enmienda.

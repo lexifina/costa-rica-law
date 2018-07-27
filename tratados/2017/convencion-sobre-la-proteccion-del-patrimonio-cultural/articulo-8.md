@@ -1,0 +1,2 @@
+Artículo 8 - Patrimonio cultural subacuático en la zona contigua
+Sin perjuicio de lo dispuesto en los Artículos 9 y 1 O y con carácter adicional a lo dispuesto en los mismos y de conformidad con el párrafo 2 del Artículo 303 de la Convención de las Naciones Unidas sobre el Derecho del Mar, los Estados Partes podrán reglamentar y autorizar las actividades dirigidas al patrimonio cultural subacuático en su zona contigua. Al hacerlo, exigirán que se apliquen las Normas.

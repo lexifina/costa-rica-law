@@ -1,0 +1,3 @@
+Artículo 22 - Autoridades competentes
+1. A fin de velar por la correcta puesta en práctica de esta Convención, los Estados Partes establecerán autoridades competentes o, en su caso, reforzarán las ya existentes para que puedan elaborar, mantener y actualizar un inventario del patrimonio cultural subacuático y garantizar eficazmente la protección, la conservación, la presentación y la gestión del patrimonio cultural subacuático, así como la investigación y educación.
+2. Los Estados Partes comunicarán al Director General el nombre y la dirección de sus autoridades competentes en materia de patrimonio cultural subacuático.

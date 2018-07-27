@@ -1,0 +1,2 @@
+Artículo 15 - No utilización de las zonas bajo jurisdicción de los Estados Partes
+Los Estados Partes adoptarán medidas para prohibir la utilización de su territorio, incluidos sus puertos marítimos y sus islas artificiales, instalaciones y estructuras bajo su jurisdicción o control exclusivos, en apoyo de cualquier actividad dirigida al patrimonio cultural subacuático que no esté de conformidad con la presente Convención.

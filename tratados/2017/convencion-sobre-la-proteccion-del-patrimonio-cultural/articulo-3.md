@@ -1,0 +1,2 @@
+Artículo 3 - Relación entre la presente Convención y la Convención de las Naciones Unidas sobre el Derecho del Mar
+Nada de lo dispuesto en esta Convención menoscabará los derechos, la jurisdicción ni las obligaciones que incumben a los Estados en virtud del derecho internacional, incluida la Convención de las Naciones Unidas sobre el Derecho del Mar. La presente Convención se interpretará y aplicará en el contexto de las disposiciones del derecho internacional, incluida la Convención de las Naciones Unidas sobre el Derecho del Mar, y de conformidad con ellas.

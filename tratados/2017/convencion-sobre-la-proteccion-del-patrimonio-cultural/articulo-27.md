@@ -1,0 +1,2 @@
+Artículo 27 - Entrada en vigor
+La Convención entrará en vigor tres meses después de la fecha en que haya sido depositado el vigésimo instrumento a que se refiere el Artículo 26, pero únicamente respecto de los veinte Estados o territorios que hayan depositado sus instrumentos. Entrará en vigor para cualquier otro Estado o territorio tres meses después de la fecha en que dicho Estado o territorio haya depositado su instrumento.
