@@ -55,6 +55,8 @@ l.- Agrícolas y Pecuarios: Comprende los daños y perjuicios relacionados con c
 m.- Defensa jurídica.
 n.- Seguro Obligatorio de Automóviles (SOA).
 o.- Seguros de Asistencias de ramos generales.
+p.- Seguros Misceláneos Generales. Otros productos de seguros generales distintos a los clasificados en los ítems a) al o) de este inciso 1.
+(Así adicionado el inciso anterior mediante sesión N° 1433-2018 del 30 de julio del 2018)
 2. La categoría de seguros personales estará compuesta por los siguientes ramos y líneas:
 a.- Vida: Comprende el seguro en caso de vida, de muerte o mixto. Comprende las siguientes líneas:
 i) Vida autoexpedible
@@ -74,17 +76,21 @@ iii) Repatriación de restos mortales.
 iv) Gastos funerales.
 v) Cobertura de ocupantes de vehículos.
 vi) Seguro voluntario de accidentes e incapacidad laboral.
-d) Salud: Comprende las siguientes líneas:
-i) Enfermedades Graves.
-ii) Invalidez por enfermedad.
-iii) Gastos Médicos.
-iv) Seguro voluntario de enfermedades profesionales.
-v) Renta por hospitalización.
+(*) d) Salud: Comprende las siguientes líneas:
+i) Enfermedades Graves
+ii) Invalidez por enfermedad
+iii) Gastos médicos mayor a 1 año
+iv) Gastos médicos menor o igual a 1 año
+v) Seguro voluntario de enfermedades profesionales
+vi) Renta por hospitalización
+(*)(Así reformado el inciso d) anterior mediante sesión N° 1433-2018 del 30 de julio del 2018)
 e) Seguro Obligatorio de Riesgos del Trabajo (SRT)
 f) Seguros de Asistencias de ramos personales
 g) Los seguros previstos en las letras a) y b) que estén vinculados con fondos de inversión. Comprende las siguientes líneas:
 i) Productos vida vinculados con fondos de inversión.
 ii) Productos rentas vinculados con fondos de inversión.
+(*) h) Seguros Misceláneos Personales. Otros productos de seguros personales no clasificados en los ítems a) al g) de este inciso 2.
+(*)(Así adicionado el inciso h) anterior mediante sesión N° 1433-2018 del 30 de julio del 2018)
 C. Riesgos accesorios.
 Se podrán cubrir riesgos adicionales comprendidos en otro ramo y categoría sin necesidad de obtener autorización específica, aun cuando la entidad aseguradora sólo cuente con licencia para operar en una categoría distinta, siempre que el riesgo principal pertenezca a un ramo y categoría autorizada para esa entidad y se cumpla lo siguiente:
 a) Se encuentren vinculados al riesgo principal.
