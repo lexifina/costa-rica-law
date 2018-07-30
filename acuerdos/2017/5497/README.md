@@ -14,3 +14,4 @@ Matriz genérica de protección de acuíferos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-10-12 | la propia norma |
+| 2 | 2018-07-30 | Acuerdo 5677 (2018-07-30) |
