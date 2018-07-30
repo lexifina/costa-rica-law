@@ -1,0 +1,1 @@
+ARTÍCULO 6- Salarios, derechos laborales y seguros. El pago de los salarios, derechos laborales y los seguros que correspondan, del personal de apoyo que se contrate, correrá por cuenta de la organización no gubernamental conservacionista sin fines de lucro.

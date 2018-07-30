@@ -1,0 +1,1 @@
+ARTÍCULO 7- Obligaciones y atribuciones del personal de apoyo. El personal de apoyo contratado por las organizaciones no gubernamentales conservacionistas sin fines de lucro, en lo relativo al desempeño de sus funciones, tendrá las obligaciones y atribuciones definidas en el contrato de convenio establecido.
