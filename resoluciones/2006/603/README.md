@@ -17,3 +17,4 @@ Comunica a Transportistas Aduaneros Nacionales, Centroamericanos y Panamá su Ob
 | 2 | 2010-09-17 | Resolución 321 (2010-09-17) |
 | 3 | 2017-10-11 | Resolución 29 (2017-10-11) |
 | 4 | 2017-12-04 | Resolución 35 (2017-12-04) |
+| 5 | 2018-07-30 | Resolución 22 (2018-07-30) |
