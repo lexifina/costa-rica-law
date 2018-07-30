@@ -1,0 +1,6 @@
+ARTÍCULO 12- La renta líquida gravable y las ventas o los ingresos brutos anuales determinarán el monto del impuesto de patentes que le corresponde pagar a cada contribuyente. Para ello, se aplicará la siguiente escala tarifaria:
+a) Ingresos brutos anuales hasta setecientos cincuenta millones de colones (₵750.000.000,00), el uno coma setenta y cinco por mil (1,75/1000) sobre las ventas o los ingresos brutos. Esta suma, dividida entre cuatro, determinará el impuesto trimestral por pagar.
+b) Ingresos brutos anuales de setecientos cincuenta millones un colones (₵750.000.001,00) hasta mil quinientos millones de colones (₵1.500.000.000,00), el dos coma cinco por mil (2,5/1000) sobre las ventas o los ingresos brutos. Esta suma, dividida entre cuatro, determinará el impuesto trimestral por pagar.
+c) Ingresos brutos anuales de mil quinientos millones un colones (₵1.500.000.001,00) hasta tres mil millones de colones (₵3.000.000.000,00), el tres coma veinticinco por mil (3,25/1000) sobre las ventas o los ingresos brutos.
+Esta suma, dividida entre cuatro, determinará el impuesto trimestral por pagar.
+d) Ingresos brutos anuales de tres mil millones un colones (₵3.000.000.001,00) a más, el cuatro coma veinticinco por mil (4,25/1000) sobre las ventas o los ingresos brutos. Esta suma, dividida entre cuatro, determinará el impuesto trimestral por pagar.
