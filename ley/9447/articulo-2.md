@@ -1,0 +1,1 @@
+ARTÍCULO 2.- El inmueble donado será destinado exclusivamente a albergar las oficinas administrativas de la asociación y un salón multiuso. En caso de que la asociación donataria llegue a disolverse o el inmueble se destine a otro uso no autorizado en la presente ley, el bien donado volverá de pleno derecho a ser propiedad de la Municipalidad del cantón de Liberia.
