@@ -1,0 +1,1 @@
+ARTÍCULO 5- Relación laboral. El Sistema Nacional de Áreas de Conservación (Sinac) no mantendrá ninguna relación laboral ni de empleo público con el personal de apoyo autorizado en la presente ley. La relación laboral será única y exclusivamente entre el personal de apoyo y las organizaciones no gubernamentales conservacionistas sin fines de lucro.

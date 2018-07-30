@@ -1,0 +1,1 @@
+ARTÍCULO 3- Plazo del convenio. El convenio firmado entre el Sistema Nacional de Áreas de Conservación (Sinac) y las organizaciones no gubernamentales conservacionistas sin fines de lucro tendrá el plazo máximo de dos años; cumplido el plazo, este podrá ser prorrogable.
