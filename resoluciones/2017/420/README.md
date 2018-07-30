@@ -15,3 +15,4 @@ Establece el límite de gasto al Fondo Nacional de Financiamiento Forestal, para
 | --- | --- | --- |
 | 1 | 2018-01-26 | la propia norma |
 | 2 | 2018-04-23 | Resolución 132 (2018-04-23) |
+| 3 | 2018-07-30 | Resolución 227 (2018-07-30) |
