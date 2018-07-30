@@ -14,3 +14,4 @@ Reforma Resolución N° 420-2017 "Establece el límite de gasto al Fondo Naciona
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-17 | la propia norma |
+| 2 | 2018-07-30 | Resolución 227 (2018-07-30) |
