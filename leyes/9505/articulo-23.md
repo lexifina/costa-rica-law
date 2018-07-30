@@ -1,0 +1,1 @@
+ARTÍCULO 23- La Municipalidad de Tilarán pondrá a disposición de los patentados los formularios y la información necesaria para que puedan presentar la declaración jurada del impuesto. Los formularios respectivos deberán estar a disposición de los declarantes, a partir del 1º de octubre de cada año, en las oficinas municipales.

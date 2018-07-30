@@ -1,0 +1,1 @@
+ARTÍCULO 24- La declaración jurada del impuesto, que deban presentar los patentados ante la Municipalidad de Tilarán, quedará sujeta a las disposiciones delos artículos 122, 124 y 125 de la Ley N.° 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971, así como a otras leyes que regulen esta materia.
