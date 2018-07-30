@@ -15,3 +15,4 @@ Reglamento sobre el registro de productos de seguros
 | --- | --- | --- |
 | 1 | 2014-12-01 | la propia norma |
 | 2 | 2017-10-03 | Reglamento 1363 (2017-10-03) |
+| 3 | 2018-07-30 | Reglamento 1433 (2018-07-30) |

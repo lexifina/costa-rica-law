@@ -175,6 +175,8 @@ i.- Indicar con precisión, cuáles cláusulas o conceptos son sujetos de variac
 ii.- Si el producto se encuentra referido al clausulado de un producto ya registrado, deberá hacerse una manifestación en ese sentido.
 iii.- Deberá incluirse la siguiente declaración:
 “El presente es un contrato tipo donde las coberturas, exclusiones y demás términos contractuales han sido predeterminados por la aseguradora con base en su experiencia y profesionalidad, sin detrimento de que las partes de común acuerdo puedan incluir bajo el principio de la libre negociación, aquellas cláusulas que se estimen convenientes según el tipo de riesgo y giro empresarial.”
+f- Contenido mínimo para el registro de pólizas y notas técnicas comercializadas mediante contratos de adhesión, que disponga: “En el caso de contratos con cobertura de actos terroristas o que excluyen esos actos del ámbito de alguna cobertura, las condiciones generales deben estipular una definición que acote lo que se entiende por tal acto. Se sugiere considerar la definición dispuesta en los instrumentos jurídicos de la Organización para la Cooperación y Desarrollo Económicos (OCDE).
+(Así adicionado el inciso f) anterior mediante sesión N° 1433-2018 del 30 de julio del 2018)
 2.2.7- Disposiciones de inclusión obligatoria en la solicitud de seguro. (No aplica para seguros autoexpedibles).
 a.- Deberá incluirse luego del encabezado la siguiente leyenda:
 “Este documento sólo constituye una solicitud de seguro, por tanto, no representa garantía alguna de que la misma será aceptada por la aseguradora, ni de que, en caso de aceptarse, la aceptación concuerde totalmente con los términos de la solicitud.”
