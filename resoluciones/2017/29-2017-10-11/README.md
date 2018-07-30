@@ -15,3 +15,4 @@ Deroga el considerando VI de la Resolución RES-DGA-603-2006 "Comunica a Transpo
 | --- | --- | --- |
 | 1 | 2017-11-14 | la propia norma |
 | 2 | 2017-12-04 | Resolución 35 (2017-12-04) |
+| 3 | 2018-07-30 | Resolución 22 (2018-07-30) |
