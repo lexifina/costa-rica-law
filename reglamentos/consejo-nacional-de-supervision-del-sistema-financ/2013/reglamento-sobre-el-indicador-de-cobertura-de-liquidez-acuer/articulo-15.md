@@ -1,12 +1,15 @@
 CAPÍTULO IV
 INDICADOR DE COBERTURA DE LIQUIDEZ
-Artículo 15.—Indicador de Cobertura de Liquidez. La entidad debe calcular diariamente el indicador de cobertura de liquidez que se define a continuación:
-Fondos de Activos Líquidos
-ICL___________________________________________
-Salidas de Efectivo Totales – Entrada de efectivo totales
+Artículo 15, Indicador de Cobertura de Liquidez
+La entidad debe calcular diariamente el indicador de cobertura de liquidez que se define a continuación:
 Donde,
-ICL = Indicador de Cobertura de Liquidez
-Fondo de Activos Líquidos = Fondo de activos líquidos de alta calidad
-Salida de Efectivo Totales = Salidas de efectivo totales en los próximos 30 días
-Entrada de Efectivo Totales=Entradas de efectivo totales en los próximos 30 días.
-El indicador de cobertura de liquidez no podrá ser inferior a 100% y se debe calcular por separado; al menos en moneda nacional y en moneda extranjera. En lo que respecta a la moneda extranjera, la entidad deberá calcular el indicador para cada una de sus monedas significativas, en cuyo caso se entiende como tal cuando los pasivos agregados denominados en ella representan un 5% o más de los pasivos totales de la entidad.
+ICL = Indicador de Cobertura de Liquidez.
+Fondo de Activos Líquidos = Fondo de activos líquidos de alta calidad.
+Salida de Efectivo Totales = Salidas de efectivo totales en los próximos 30 días naturales.
+Entrada de Efectivo Totales=Entradas de efectivo totales en los próximos 30 días naturales.
+El indicador de cobertura de liquidez, en moneda nacional y moneda(s) extranjera(s), no podrá ser inferior a 100%, salvo, cuando la entidad haya utilizado su Fondo de Activos Líquidos durante un periodo de tensión, en cuyo caso se permite que el ICL sea menor al 100%.
+La entidad debe notificar por escrito a la Superintendencia, junto con la información mínima que ésta establezca en los lineamientos generales a este reglamento, al día hábil siguiente de que se presente o sea previsible una reducción del ICL por debajo del 100%.
+Además, la entidad debe presentar un Plan de Restablecimiento de la Liquidez o un Informe sobre cómo restableció el faltante de liquidez, en un plazo no mayor a los cinco días hábiles posteriores a la notificación, cuyos requerimientos se detallarán en los lineamientos generales a este reglamento.
+El ICL se debe calcular por separado en moneda nacional y en monedas extranjeras. En lo que respecta a las monedas extranjeras, la entidad deberá calcular el indicador cuando los pasivos denominados en esas monedas extranjeras representan un 5% o más de los pasivos totales de la entidad.
+La entidad puede intercambiar liquidez de una moneda a otra para fines de la construcción del Índice de Cobertura de Liquidez, con un descuento del 5% al valor de la liquidez obtenida. El intercambio de moneda extranjera (dólares de Estados Unidos de América) a moneda nacional (colones), y viceversa, debe convertirse al tipo de cambio de referencia de compra que publica el Banco Central de Costa Rica. La entidad debe informar mensualmente a la SUGEF si realizó intercambios de liquidez entre monedas, conforme se describe en los lineamientos.
+(Así reformado en sesión N° 1433 del 30 de julio de 2018)
