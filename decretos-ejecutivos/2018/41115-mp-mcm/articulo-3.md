@@ -1,0 +1,1 @@
+Artículo 3°—La política nacional de igualdad efectiva entre mujeres se ejecutará mediante planes de acción cuatrianuales en los que se precisarán acciones, tiempos, instituciones responsables, indicadores, resultados esperados y presupuestos.

@@ -1,0 +1,1 @@
+Artículo 7°—El Instituto Nacional de las Mujeres será el encargado de la coordinación, seguimiento y evaluación de la Política Nacional para la Igualdad Efectiva entre Mujeres y Hombres (PIEG) por medio del Sistema de Información y a cargo de la Secretaría Técnica.

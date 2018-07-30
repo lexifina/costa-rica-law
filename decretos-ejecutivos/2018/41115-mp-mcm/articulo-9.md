@@ -1,0 +1,1 @@
+Artículo 9°—El Poder Ejecutivo y sus instituciones incluirán en sus planes operativos anuales con la asignación presupuestaria respectiva para la ejecución de las metas y los compromisos contemplados en los planes de acción de la PIEG y, en lo inmediato aquellas establecidas en el primer plan de acción 2019-2022.
