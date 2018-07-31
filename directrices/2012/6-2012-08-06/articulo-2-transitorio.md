@@ -1,1 +1,0 @@
-Transitorio segundo.—Aquellos establecimientos que posean el Símbolo de Sanidad, contarán con un plazo de seis meses calendario contados a partir de la publicación de la presente Directriz, para que realicen los trámites de oficialización del personal a efectos de cumplir con lo dispuesto en el artículo 4 inciso g).
