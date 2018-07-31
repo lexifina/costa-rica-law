@@ -1,2 +1,2 @@
-ARTÍCULO 107. Iluminación Artificial
-El profesional responsable debe velar por la aplicación de la normativa que establezca el CFIA para que cada espacio cuente con la iluminación artificial y la intensidad luminosa adecuada.
+Artículo 107. Iluminación Artificial. El profesional responsable debe velar para que cada espacio cuente con la iluminación artificial y la intensidad luminosa adecuada, lo anterior sin perjuicio de lo establecido en la Ley General de Salud, Ley N° 5395, el Reglamento a la Ley de Igualdad de Oportunidades para Personas con Discapacidad, Decreto Ejecutivo N° 26831-MP, y al Reglamento de Oficialización del Código Eléctrico de Costa Rica para la Seguridad de la Vida y de la Propiedad, Decreto Ejecutivo N° 36979; y sus reformas o normativas que las sustituyan.
+(Así reformado en sesión N° 6328 del 26 de julio de 2018)

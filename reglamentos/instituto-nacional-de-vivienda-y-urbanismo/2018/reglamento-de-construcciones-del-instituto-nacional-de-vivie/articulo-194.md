@@ -1,4 +1,4 @@
-ARTÍCULO 194. Chimeneas
-Las chimeneas de aparatos de combustión deben tener una altura mínima de 5,00 m por encima de la edificación de mayor altura que se encuentre en un radio de 25,00 m y terminar en un tubo de hierro con una rejilla de alambre que tape su boca, para evitar la salida de cuerpos de ignición.
+ARTÍCULO 194. Chimeneas. Las chimeneas de aparatos de combustión deben tener una altura mínima de 5,00 m por encima de la edificación de mayor altura que se encuentre en un radio de 5,00 m y terminar en un tubo de hierro con una rejilla de alambre que tape su boca, para evitar la salida de cuerpos de ignición.
 Se debe cumplir con lo definido en el Reglamento de Calderas, Decreto Ejecutivo, N° 26789-MTSS y sus reformas o normativa que los sustituya.
 En relación con las condiciones de seguridad para realizar mediciones en chimeneas, se debe cumplir lo establecido en el Reglamento sobre la configuración de los sitios de muestreo en chimenea y ductos para la medición de contaminantes atmosféricos provenientes de fuentes fijas, Decreto Ejecutivo N°39813-S-MTSS, y sus reformas o normativa que los sustituya.
+(Así reformado en sesión N° 6328 del 26 de julio de 2018)

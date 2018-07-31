@@ -1,3 +1,3 @@
-ARTÍCULO 401. Seguridad humana y de protección contra incendios
-Toda instalación de infraestructura para el soporte de redes de telecomunicaciones debe garantizar el cumplimiento de las medidas de seguridad humana y protección contra incendios establecidos por el Cuerpo de Bomberos.
-Por razones de seguridad ciudadana, y de la propia red de telecomunicaciones, todo predio donde se ubique este tipo de infraestructura, se debe delimitar de los predios vecinos con un muro o tapia de 2,50 m de altura y 0,12 m de espesor como mínimo. En la parte frontal, a fin de favorecer la vigilancia, se puede utilizar malla, verja o reja.
+ARTÍCULO 401. Seguridad humana y de protección contra incendios. Toda instalación de infraestructura para el soporte de redes de telecomunicaciones debe garantizar el cumplimiento de las medidas de seguridad humana y protección contra incendios establecidos por el Cuerpo de Bomberos.
+Por razones de seguridad ciudadana, y de la propia red de telecomunicaciones, todo predio donde se ubique una torre de telecomunicaciones, se debe delimitar de los predios vecinos con un muro o tapia de 2,50 m de altura y 0,12 m de espesor como mínimo. En la parte frontal, a fin de favorecer la vigilancia, se puede utilizar malla, verja o reja.
+(Así reformado en sesión N° 6328 del 26 de julio de 2018)

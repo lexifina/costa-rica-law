@@ -1,9 +1,8 @@
-ARTÍCULO 189. Especificaciones para materiales y acabados
-En establecimientos industriales y de almacenamiento, las especificaciones de los materiales y acabados deben ser los siguientes:
+ARTÍCULO 189. Especificaciones para materiales y acabados. En establecimientos industriales y de almacenamiento, las especificaciones de los materiales y acabados deben ser los siguientes:
 1) Pisos: Cuando el trabajo sea húmedo, las salas deben tener pisos de material impermeable, con inclinación y canalización adecuadas para facilitar el escurrimiento de líquidos. Esta disposición es aplicable cuando se trate de patios que eventualmente se utilicen para trabajo.
 En estos casos debe ser admisible el tratamiento de pisos a base de zacate-bloque u otro material similar. Si la naturaleza del proceso produce pisos fríos y húmedos, se deben proveer parrillas movibles de madera u otro sistema de protección para los trabajadores
-2) Muros: Los muros exteriores deben ser de bloque, prefabricados, concreto o mampostería y deben llegar hasta el techo, salvo que el proceso industrial requiera una solución diferente.
-Debe tener acabado de superficie lisa e impermeable, cuando menos hasta la altura de 2,00 m. Todos los muros de establecimientos industriales afectados por humedad deben contar con la protección correspondiente a criterio del profesional responsable de la obra
+2) Muros: Los muros exteriores deben ser cerramientos de bloque, prefabricados, metálicos, concreto o mampostería y deben llegar hasta el techo, salvo que el proceso industrial requiera una solución diferente. Debe tener acabado de superficie lisa e impermeable, cuando menos hasta la altura de 2,00 m. Todos los muros de establecimientos industriales afectados por humedad deben contar con la protección correspondiente a criterio del profesional responsable de la obra
 3) Techos: Deben ser impermeables y de material incombustible
 4) Colores: El profesional responsable de la obra debe considerar el tipo de actividad industrial que se realice en la edificación para el uso del color
 En materia de seguridad contra incendios referente a especificaciones para materiales y acabados, se aplican los requerimientos que establece el Cuerpo de Bomberos.
+(Así reformado en sesión N° 6328 del 26 de julio de 2018)

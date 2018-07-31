@@ -1,2 +1,2 @@
-ARTÍCULO 87. Alineamientos de líneas de alta tensión
-Los proyectos de construcción en predios que colinden o contengan dentro de las mismas líneas de transmisión eléctrica de alta tensión, deben tramitar la solicitud de alineamiento ante la entidad competente que brinde el servicio. El alineamiento tiene la vigencia que determine el ente competente.
+ARTÍCULO 87. Alineamientos de líneas de alta tensión. Los proyectos de construcción en predios que colinden o contengan dentro de los mismos, líneas de transmisión eléctrica de alta tensión, deben tramitar la solicitud de alineamiento ante la entidad competente que brinde el servicio. El documento de alineamiento emitido debe indicar la vigencia que determine el ente competente.
+(Así reformado en sesión N° 6328 del 26 de julio de 2018)

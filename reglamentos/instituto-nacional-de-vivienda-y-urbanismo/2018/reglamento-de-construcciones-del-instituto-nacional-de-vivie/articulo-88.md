@@ -1,2 +1,2 @@
-ARTÍCULO 88. Alineamiento de torres eólicas
-Tratándose de proyectos de construcción en predios que colinden o contengan dentro del mismo torres eólicas, es obligatorio tramitar la solicitud de alineamiento ante la entidad competente que brinde el servicio. El alineamiento tiene la vigencia que determine el ente competente.
+ARTÍCULO 88. Alineamiento de torres eólicas. Tratándose de proyectos de construcción en predios que colinden o contengan dentro del mismo torres eólicas, es obligatorio tramitar la solicitud de alineamiento ante la entidad competente que brinde el servicio. El documento de alineamiento emitido debe indicar la vigencia que determine el ente competente.
+(Así reformado en sesión N° 6328 del 26 de julio de 2018)

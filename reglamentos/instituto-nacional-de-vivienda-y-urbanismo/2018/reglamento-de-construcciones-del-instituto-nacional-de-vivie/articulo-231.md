@@ -1,5 +1,5 @@
-ARTÍCULO 231. Circulaciones en instalaciones deportivas
-Las graderías para espectadores deben contar con rutas de evacuación verticales a cada 9,00 m como mínimo, con un ancho de 1,20 m, huellas de 0,30 m y contrahuellas de 0,20 m; estas rutas se deben construir con uniformidad dimensional y deben contar con un pasamano central de 0,90 m de altura.
+ARTÍCULO 231. Circulaciones en instalaciones deportivas. Las graderías para espectadores deben contar con rutas de evacuación verticales a cada 9,00 m como mínimo, con un ancho de 1,20 m, huellas de 0,30 m y contrahuellas de 0,20 m; estas rutas se deben construir con uniformidad dimensional y deben contar con un pasamano central de 0,90 m de altura.
 Cada 10 filas debe haber pasillos paralelos a las gradas, con un ancho mínimo igual a la suma del ancho de las escaleras que desemboquen a ellos, entre dos puertas o salidas contiguas.
-Las puertas y salidas deben construirse de acuerdo con las normas especificadas para los sitios de reunión pública.
-Además se debe cumplir con la accesibilidad, definida en el CAPÍTULO III. DISPOSICIONES GENERALES.
+Las puertas y salidas deben construirse de acuerdo con las normas especificadas para los sitios de reunión pública. Además, se debe cumplir con la accesibilidad, definida en el CAPÍTULO III. DISPOSICIONES GENERALES.
+Estas disposiciones no aplican para aquellas instalaciones deportivas que, por su naturaleza, requieran cumplir con especificaciones definidas por organizaciones deportivas internacionales.
+(Así reformado en sesión N° 6328 del 26 de julio de 2018)

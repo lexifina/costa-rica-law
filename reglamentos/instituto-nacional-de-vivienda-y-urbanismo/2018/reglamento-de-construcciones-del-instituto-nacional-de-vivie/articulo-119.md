@@ -1,2 +1,3 @@
-ARTÍCULO 119. Instalaciones de servicio en el interior de una edificación
-Todo lo relacionado con la instalación de servicios hidráulicos, mecánicos, sanitarios y eléctricos se rige por lo establecido en el CECR, el Cuerpo de Bomberos y este Reglamento. Además, el profesional responsable debe de acatar las disposiciones establecidas por el CFIA en el CIHSE vigente, sin perjuicio de la normativa nacional en la materia.
+ARTÍCULO 119. Instalaciones de servicio en el interior de una edificación. Todo lo relacionado con la instalación de servicios hidráulicos, mecánicos, sanitarios y eléctricos se rige por lo establecido en el CECR, el Cuerpo de Bomberos, el Reglamento para el Diseño, Construcción y Operación de Plantas de Almacenamiento y Envasado para GLP, Decreto Ejecutivo N°28622 y sus reformas o normativas que las sustituyan; además de las disposiciones de este Reglamento.
+El profesional responsable debe de acatar las disposiciones establecidas por el CFIA en el CIHSE vigente, sin perjuicio de la normativa nacional en la materia.
+(Así reformado en sesión N° 6328 del 26 de julio de 2018)

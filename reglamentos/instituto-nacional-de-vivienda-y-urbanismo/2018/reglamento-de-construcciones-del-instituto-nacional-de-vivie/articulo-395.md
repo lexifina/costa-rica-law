@@ -1,4 +1,3 @@
-ARTÍCULO 395. Franja de amortiguamiento
-Toda instalación de torres para el soporte de redes de telecomunicaciones debe contar con una franja de amortiguamiento alrededor de la infraestructura, que facilite y permita el tránsito del personal necesario para la conservación y mantenimiento de ésta. Esta franja debe ser del 10% de la altura de la torre, medida desde el centro de su base.
-Para el caso de torres de telecomunicaciones con más de 3 emplazamientos, o donde se requiera instalar, construir y colocar infraestructura adicional para ubicar equipo a nivel de suelo, la franja de amortiguamiento debe ser del 15% de la altura de la infraestructura.
+ARTÍCULO 395. Franja de amortiguamiento. Toda instalación de torres para el soporte de redes de telecomunicaciones debe contar con una franja de amortiguamiento alrededor de la infraestructura, que facilite y permita el tránsito del personal necesario para la conservación y mantenimiento de ésta. Esta franja debe ser del 10% de la altura de la torre, medida desde el centro de su base.
 Cuando la instalación se pretenda ubicar en predios compartidos con otros usos, se deben respetar las disposiciones establecidas en el artículo sobre seguridad humana y de protección contra incendios de este Capítulo.
+(Así reformado en sesión N° 6328 del 26 de julio de 2018)

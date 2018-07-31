@@ -1,9 +1,7 @@
-ARTÍCULO 4. Acrónimos
-Para la aplicación del presente Reglamento se disponen los siguientes acrónimos:
+ARTÍCULO 4. Acrónimos. Para la aplicación del presente Reglamento se disponen los siguientes acrónimos:
 1) APC: Plataforma de trámite digital de planos y permisos de construcción del Colegio Federado de Ingenieros y Arquitectos llamada: Administrador de Proyectos de Construcción
 2) AYA: Instituto Costarricense de Acueductos y Alcantarillados
-3) BANHVI: Banco Hipotecario de la Vivienda
-(Corregido el inciso anterior mediante Fe de Erratas y publicada en La Gaceta N° 89 del 22 de mayo de 2018, página N° 83)
+3) BANHVI: Banco Hipotecario de la Vivienda.
 4) CECR: Código Eléctrico de Costa Rica, oficializado mediante el Reglamento de Oficialización del Código Eléctrico de Costa Rica para la Seguridad de la Vida y de la Propiedad (RTCR 458:2011), Decreto Ejecutivo N° 36979
 5) CIHSE: Código de Instalaciones Hidráulicas y Sanitarias en Edificaciones
 6) CNFL: Compañía Nacional de Fuerza y Luz
@@ -15,7 +13,7 @@ Para la aplicación del presente Reglamento se disponen los siguientes acrónimo
 12) DGAC: Dirección General de Aviación Civil
 13) ECA: Ente Costarricense de Acreditación
 14) ESPH: Empresa de Servicios Públicos de Heredia
-15) GLP: Gas licuado de petróleo
+15) GLP: Gases licuados de petróleo
 16) ICE: Instituto Costarricense de Electricidad
 17) ICODER: Instituto Costarricense del Deporte y la Recreación
 18) INS: Instituto Nacional de Seguros
@@ -31,3 +29,5 @@ Para la aplicación del presente Reglamento se disponen los siguientes acrónimo
 28) MOPT: Ministerio de Obras Públicas y Transportes
 29) SETENA: Secretaría Técnica Nacional Ambiental
 30) SFNV: Sistema Financiero Nacional para la Vivienda
+31) SUTEL: Superintendencia de Telecomunicaciones
+(Así reformado en sesión N° 6328 del 26 de julio de 2018)

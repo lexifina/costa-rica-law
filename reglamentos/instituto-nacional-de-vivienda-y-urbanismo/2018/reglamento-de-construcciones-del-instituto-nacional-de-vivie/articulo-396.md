@@ -1,2 +1,2 @@
-ARTÍCULO 396. Antenas en azoteas terrazas o techos
-Para la instalación de infraestructura de soporte de antenas en azoteas, terrazas o techos de edificaciones se debe contar con un estudio de capacidad soportante emitido por un profesional responsable, y con el permiso de construcción, para lo que se debe presentar los requisitos establecidos por cada municipalidad.
+ARTÍCULO 396. Infraestructura de soporte en azoteas, terrazas o techos. Para la instalación de infraestructura de soporte de redes de telecomunicaciones en azoteas, terrazas o techos de edificaciones se debe cumplir con las disposiciones establecidas en el Capítulo XII. INFRAESTRUCTURA PARA EL SOPORTE DE REDES DE TELECOMUNICACIONES del presente Reglamento; además debe contar con un estudio de capacidad soportante emitido por un profesional responsable; y con el permiso de construcción otorgado por la municipalidad.
+(Así reformado en sesión N° 6328 del 26 de julio de 2018)

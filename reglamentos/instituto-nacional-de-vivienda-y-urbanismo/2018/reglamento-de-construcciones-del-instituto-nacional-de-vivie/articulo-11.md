@@ -1,2 +1,2 @@
-ARTÍCULO 11. Idoneidad de los laboratorios
-Los laboratorios que desarrollen pruebas de suelos o materiales deben estar debidamente acreditados ante el ECA, sin perjuicio de que estos, por decisión propia, puedan contar con otro tipo de membrecías o acreditaciones adicionales, que demuestren su idoneidad y la veracidad de las pruebas que ejecutan.
+ARTÍCULO 11. Idoneidad de las pruebas de laboratorios. Las pruebas de laboratorio sobre suelos o materiales que se efectúen, deben estar debidamente acreditadas y reconocidas ante el ECA, sin perjuicio que estos, por decisión propia, puedan contar con otro tipo de membrecías o acreditaciones adicionales, que demuestren su idoneidad y la veracidad de las pruebas que ejecutan.
+(Así reformado en sesión N° 6328 del 26 de julio de 2018)
