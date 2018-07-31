@@ -1,0 +1,1 @@
+Artículo 16.—Cuando por algún motivo la compra no se lleve a cabo deberá hacer de inmediato el reintegro respectivo al responsable del fondo de caja chica. La violación de lo anterior se considerará falta grave y al funcionario que lo haga se le impondrán las mismas medidas disciplinarias indicadas en el artículo 15° de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 6º—Corresponde a la Junta Directiva, mediante el correspondiente acuerdo que emane de su seno, elevar al Concejo Municipal la solicitud para variar el monto establecido a este fondo, según solicitud escrita y justificada que haga la Administración, con el fin de satisfacer las necesidades institucionales de los bienes y servicios que deben adquirirse por este medio.

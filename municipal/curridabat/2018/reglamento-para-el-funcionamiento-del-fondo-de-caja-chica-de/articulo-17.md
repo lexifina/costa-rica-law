@@ -1,0 +1,7 @@
+Artículo 17.—Los comprobantes (facturas o recibos) de las adquisiciones que se hagan con fondos de Caja Chica y que son el sustento del egreso, deberán cumplir con los siguientes requisitos:
+a) Ser documentos originales, estar membretados, autorizados o dispensados del mismo por la Dirección General de la Tributación del Ministerio de Hacienda y estar emitidos a favor del Comité.
+b) Especificar claramente la fecha y detalle de la compra o servicio recibido, la cual deberá ser igual o posterior a la fecha de emisión del vale.
+c) Indicar claramente y con detalle la compra o servicio recibido, la cual debe coincidir con lo estipulado en el vale y traer impreso, el sello de cancelado de la casa proveedora o tiquete de caja y por ningún motivo, deben contener tachaduras ni borrones.
+d) Si la factura no tiene logotipo debe indicarse el nombre, el número de cédula de la persona física o jurídica que suministra el bien o servicio y sus especificaciones, dirección y teléfono.
+e) Venir firmados por el reverso, por la jefatura inmediata como requisito de comprobación de la adquisición del bien o servicio correspondiente.
+f) La fecha de las facturas deberá ser la misma o posterior a la fecha del vale y por ninguna circunstancia se aceptarán facturas con fechas anteriores a la del vale de caja chica.

@@ -1,0 +1,1 @@
+Artículo 4º—Se establece el fondo de caja chica cuyo monto será de ¢200.000,00 (doscientos mil colones exactos) y su custodia será responsabilidad del Director Administrativo, quién deberá actuar de conformidad con la normativa vigente y este Reglamento.

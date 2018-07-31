@@ -1,0 +1,1 @@
+Artículo 37.—Corresponderá al Director Administrativo y demás funcionarios del Comité velar por el cumplimiento de este Reglamento, y éste rendirá un informe trimestral de la gestión de la caja chica a la Junta Directiva.

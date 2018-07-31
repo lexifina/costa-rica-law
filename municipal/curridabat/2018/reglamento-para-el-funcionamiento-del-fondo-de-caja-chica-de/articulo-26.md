@@ -1,0 +1,1 @@
+Artículo 26.—Cuando el Director Administrativo disponga sustituir o delegar en otra persona por vacaciones, incapacidad, permiso con o sin goce de salario o cualquier otro motivo, se realizará el arqueo del cual dejará constancia escrita, con su firma y de la persona que lo sustituirá.

@@ -1,0 +1,1 @@
+Artículo 8º—La caja chica mantendrá siempre el total del fondo asignado, el cual estará integrado de la siguiente forma: dinero en efectivo, las facturas con sus vales liquidados, vales pendientes de liquidación y comprobantes de reintegro en trámite. En ningún momento y por motivo alguno se podrán sustituir esos valores por otros de naturaleza distinta al de caja chica.
