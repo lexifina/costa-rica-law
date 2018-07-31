@@ -1,0 +1,4 @@
+CAPÍTULO XXII. INFRAESTRUCTURA PARA EL SOPORTE DE REDES DE TELECOMUNICACIONES
+ARTÍCULO 385. Certificado de uso de suelo
+Toda infraestructura para el soporte de redes de telecomunicaciones, se puede ubicar en cualquier parte del territorio nacional y debe cumplir con establecido en este Reglamento para la Accesibilidad, si se encuentran en la vía pública. En lo referente a permiso de construcción, instalación, ampliación o modificación, está sometida a la previa aprobación de la municipalidad, de acuerdo al certificado del uso del suelo, conforme a las disposiciones técnicas de la normativa municipal en la materia, o en su ausencia del presente Reglamento.
+Se excluye del cumplimiento de los requisitos de certificado de uso de suelo a la instalación de antenas en postes de telecomunicaciones, en bienes de dominio público.

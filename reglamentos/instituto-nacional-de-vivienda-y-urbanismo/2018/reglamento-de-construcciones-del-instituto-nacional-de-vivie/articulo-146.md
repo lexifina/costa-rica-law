@@ -1,0 +1,2 @@
+ARTÍCULO 146. Suspensión de patente
+Fuera de los predios de uso comercial definidos en el Mapa Oficial de la urbanización, el certificado de uso de suelo se da siempre como condicional, por tanto, se debe suspender la patente en el momento que aparezcan condiciones diferentes a las establecidas en ella o molestias a los vecinos. Para revocar dicha patente, la municipalidad debe seguir el procedimiento legal establecido.

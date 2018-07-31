@@ -1,0 +1,2 @@
+ARTÍCULO 44. Descarga de las salidas en medios de egreso
+Todas las salidas deben terminar directamente en una vía pública o en una descarga de salida exterior, en el caso de utilizar escaleras que continúen más de medio piso más allá del nivel de descarga de la salida; estas deben ser interrumpidas en el nivel de descarga de la salida.

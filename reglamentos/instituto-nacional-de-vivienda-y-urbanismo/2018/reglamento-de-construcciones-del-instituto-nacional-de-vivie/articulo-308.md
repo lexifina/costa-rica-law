@@ -1,0 +1,2 @@
+ARTÍCULO 308. Espacios para uso de preescolar, primer y segundo grado
+Sin perjuicio de lo establecido por el Cuerpo de Bomberos, los espacios o áreas para uso de preescolar primero y segundo grado del Primer Ciclo de Educación General Básica no deben estar ubicados por encima ni por debajo del nivel de descarga de las salidas o de acceso principal. Se pueden permitir espacios o áreas dedicados a dicho uso ubicados en niveles distintos a los especificados anteriormente, siempre que se provea medios de salida independientes dedicadas al uso exclusivo de estos niveles.

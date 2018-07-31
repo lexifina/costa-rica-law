@@ -1,0 +1,2 @@
+ARTÍCULO 330. Obras temporales para actividades de concentración de personas
+Las obras temporales que sean utilizadas para la concentración de personas, deben acatar las disposiciones establecidas en el Reglamento General para Autorizaciones y Permisos Sanitarios de Funcionamiento Otorgados por el Ministerio de Salud, Decreto Ejecutivo N° 39472-S y sus reformas o la normativa que lo sustituya, sin perjuicio de la normativa nacional en la materia.

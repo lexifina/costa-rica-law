@@ -1,0 +1,4 @@
+ARTÍCULO 98. Retiros entre 2 o más edificaciones:
+Estos retiros deben cumplir con la normativa dispuesta por el Cuerpo de Bomberos, en materia de muros cortafuegos. En su defecto la separación entre edificaciones debe ser la siguiente:
+1) Cuando se trate de edificaciones en diferentes predios, las mismas se deben separar unas de otras aplicando la norma referente a retiros del presente Reglamento cuando existan ventanas, balcones, terrazas, vanos o cualquier otro elemento que permita la visibilidad al colindante
+2) En el caso de edificaciones en un mismo predio, la separación entre ambas debe ser un mínimo equivalente a ¼ de la altura de la edificación, pero nunca menor a 3,00 m ni superior a 10,00 m. En los casos donde existan edificaciones con alturas distintas se debe utilizar la altura menor para dicho cálculo

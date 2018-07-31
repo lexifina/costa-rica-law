@@ -1,0 +1,3 @@
+ARTÍCULO 45. Impedimentos para el egreso
+Los accesos a salida y las puertas de salida deben diseñarse y disponerse de modo que sean claramente reconocibles.
+El acceso a una salida no debe ser en ningún caso, a través de cocinas, almacenes, cuartos de baño, salas de trabajo, armarios, habitaciones para dormir o espacios similares, u otras salas o espacios que puedan cerrarse con llave, a menos que el pasaje a través de tales salas o espacios esté permitido para la ocupación por el Cuerpo de Bomberos.

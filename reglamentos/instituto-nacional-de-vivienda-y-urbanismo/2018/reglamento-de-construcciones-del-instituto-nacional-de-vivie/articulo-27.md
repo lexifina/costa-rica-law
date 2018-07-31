@@ -1,0 +1,3 @@
+ARTÍCULO 27. Distancia entre componentes de los medios de egreso
+En las edificaciones protegidos en su totalidad por un sistema aprobado y supervisado de rociadores automáticos, la distancia mínima de separación entre cada componente de los medios de egreso no debe ser menor que un tercio de la longitud de la máxima dimensión diagonal de la edificación o área servidos.
+Cuando en una edificación se requieran 2 medios de egreso, sus partes deben ubicarse a una distancia entre sí no menor que la mitad de la longitud de la máxima dimensión diagonal de la edificación o del área servida, medida en línea recta entre el borde más cercano de las salidas, accesos a la salida o descargas de salida.

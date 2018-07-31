@@ -1,0 +1,5 @@
+ARTÍCULO 52. Protección contra riesgos especiales
+Se consideran áreas que requieren protección especial contra riesgos, pero sin limitarse a éstas, las que se usan para el almacenamiento de productos combustibles o inflamables, áreas que contienen aparatos productores de calor o áreas usadas para mantenimiento, salas de calderas, salas de hornos, transformadores, equipos con riesgo de explosión, otras áreas o espacios considerados riesgosos por el Cuerpo de Bomberos.
+Cualquier área que tenga un grado de riesgo mayor que aquel considerado normal para la ocupación general de una edificación o estructura, por el profesional responsable, debe estar protegida mediante alguna de las siguientes maneras:
+1) Mediante un cerramiento al área con una barrera cortafuego sin ventanas, con una clasificación de resistencia al fuego de 2 horas, o
+2) Mediante protección del área con sistemas automáticos de extinción y un cerramiento con clasificación de resistencia al fuego de 1 hora

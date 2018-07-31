@@ -1,0 +1,3 @@
+ARTÍCULO 64. Tuberías para sistema fijo de protección contra incendios
+Las tuberías del sistema contra incendio deben instalarse según las normas que establece el Cuerpo de Bomberos. Todos los accesorios que se coloquen en la tubería de incendios tales como válvulas, codos, o acoples, deben ser listadas para su uso en sistemas contra incendio.
+Cuando las tuberías sean enterradas, deben cumplir con las normas de fabricación que establezca el Cuerpo de Bomberos. Se permiten otros tipos de tubería, siempre que estén listados para uso en incendios.

@@ -1,0 +1,2 @@
+ARTÍCULO 384. Seguridad humana y de protección contra incendios
+Las estaciones de servicio y de almacenamiento de combustibles deben garantizar el cumplimiento de las medidas de seguridad humana y protección contra incendios señaladas por el Cuerpo de Bomberos, sin perjuicio de lo establecido en el Reglamento para la Regulación del Sistema de Almacenamiento y Comercialización de Hidrocarburos, Decreto Ejecutivo N°30131-MINAE-S y sus reformas o normativa que lo sustituya.

@@ -1,0 +1,2 @@
+ARTÍCULO 423. Colindancia con edificaciones peligrosas
+Sin detrimento de las competencias del MINSA, cuando el propietario de una edificación o predio considere una amenaza la existencia de una edificación colindante, en caso de sismo, viento u otra causa, puede solicitar que éste sea inspeccionado por técnicos de la municipalidad respectiva. Ésta debe resolver las medidas que deban tomarse, de acuerdo con lo establecido en el CSCR y sus reformas o su normativa que la sustituya.

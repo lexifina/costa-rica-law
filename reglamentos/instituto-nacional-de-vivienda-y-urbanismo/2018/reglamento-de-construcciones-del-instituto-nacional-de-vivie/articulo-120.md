@@ -1,0 +1,4 @@
+ARTÍCULO 120. Servicios sanitarios
+El número y tipo de piezas sanitarias que deben ser instaladas en cualquier tipo de edificación, deben ser proporcionales a la cantidad de personas servidas, y según el uso que se les destine.
+Para calcular el número requerido de piezas sanitarias, las especificaciones técnicas de las mismas, y de los cuartos de baño, el profesional responsable debe de acatar las disposiciones establecidas por el CFIA en el CIHSE vigente, sin perjuicio de la normativa nacional en la materia.
+En las edificaciones ya sean públicas o privadas, donde exista concurrencia o atención al público, al menos un servicio sanitario debe tener características tales que pueda ser utilizado por personas con discapacidad, de conformidad a lo establecido en la Ley de Igualdad de Oportunidades para Personas con Discapacidad, Ley N°7600 y su respectivo Reglamento, Decreto Ejecutivo N°26831-MP, y sus reformas o normativa que lo sustituya.

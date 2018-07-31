@@ -1,0 +1,3 @@
+ARTÍCULO 218. Vestíbulos
+Los sitios de reunión pública deben tener vestíbulos que los comuniquen con la vía pública o con los pasillos que den acceso a ésta. Estos vestíbulos deben tener una superficie mínima de 0,15 m² por concurrente. Además, cada clase de localidad debe tener un espacio para el descanso de los espectadores en los intermedios, el que se calcula a razón de 0,10 m² por concurrente.
+Los pasillos han de desembocar en el vestíbulo de salida a nivel del predio. El total del ancho de las puertas que comuniquen con las calles o pasillos, deben ser por lo menos igual a 1,2 veces la suma del ancho de las puertas que comuniquen el interior de la sala con los vestíbulos.

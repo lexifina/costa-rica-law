@@ -1,0 +1,3 @@
+ARTÍCULO 80. Limitación de uso de las vías públicas
+Queda prohibido la colocación de cualquier elemento que obstruya el libre tránsito en la vía pública. En caso de requerirse la colocación de elementos de infraestructura se debe cumplir, en relación con anchos de aceras, los requerimientos establecidos en el Reglamento a la Ley de Igualdad de Oportunidades para las personas con Discapacidad, Decreto Ejecutivo N°26831, y sus reformas o la normativa que los sustituya sin perjuicio de lo establecido en otras regulaciones de rango superior.
+Excepcionalmente, y sólo mediante escrito con vigencia temporal extendido por la Municipalidad, puede no acatarse la prohibición establecida en este artículo.

@@ -1,0 +1,2 @@
+ARTÍCULO 310. Accesibilidad y autonomía
+Todo elemento constructivo de obras nuevas, reparaciones, remodelaciones y ampliaciones de edificaciones, parques, aceras, jardines, plazas, vías u otras edificaciones escolares deben brindar oportunidades, accesibilidad y autonomía en cumplimiento a la Ley de Igualdad de Oportunidades para Personas con Discapacidad, Ley N° 7600 y su Reglamento, Decreto Ejecutivo N° 26831-MP, Convención Interamericana Sobre la Protección de los Derechos Humanos de las Personas Mayores, Ley N°9394 y sus reformas o normativa que lo sustituya.

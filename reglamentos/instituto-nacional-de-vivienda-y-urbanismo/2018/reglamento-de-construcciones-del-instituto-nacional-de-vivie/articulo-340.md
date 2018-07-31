@@ -1,0 +1,2 @@
+ARTÍCULO 340. Accesibilidad y autonomía
+Las edificaciones y lotes para estacionamientos, deben brindar igualdad de oportunidades, accesibilidad y autonomía, que le permita a las personas con discapacidad tener acceso al espacio físico, así como dar cumplimiento a las disposiciones establecidas en la Ley de Igualdad de Oportunidades para Personas con Discapacidad, N°7600, su Reglamento, Decreto Ejecutivo N° 26831-MP y la Convención Interamericana Sobre la Protección de los Derechos Humanos de las Personas Mayores, Ley N°9394 , y sus reformas o normativa que los sustituya.

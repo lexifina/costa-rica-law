@@ -1,0 +1,2 @@
+ARTÍCULO 14. Diseño Sostenible
+El profesional responsable de la planificación, diseño, construcción de edificaciones y obras de infraestructura urbana, puede utilizar principios de sostenibilidad, con la finalidad de alcanzar el desarrollo social, económico, cultural y ambiental de la comunidad, que permita la evaluación y certificación de la sostenibilidad, de edificaciones y espacios intervenidos mediante procesos constructivos.

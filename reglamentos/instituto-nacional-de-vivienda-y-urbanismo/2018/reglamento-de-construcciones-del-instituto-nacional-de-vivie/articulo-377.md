@@ -1,0 +1,4 @@
+ARTÍCULO 377. Ubicación
+Cuando por la ubicación o características del predio se haga difícil la provisión de los espacios requeridos para estacionamiento en la edificación, el propietario puede proveer los espacios de estacionamiento requeridos por su edificación en otro predio, previa aprobación de la municipalidad respectiva, siempre que no se exceda una distancia de 200,00 m medida a lo largo de las vías públicas, entre las entradas de la edificación y el área del establecimiento.
+En el caso de que la demanda de estacionamiento correspondiente a varios usos se presente en horas o días diferentes, el espacio de estacionamiento previsto para ellos conjuntamente, puede ser acreditado en total a cada uno de los mismos.
+Las disposiciones anteriores no aplican para proyectos que se encuentren bajo el régimen de propiedad en condominio.

@@ -1,0 +1,2 @@
+ARTÍCULO 254. Servicios sanitarios destinados al público.
+Los servicios sanitarios destinados al público en las edificaciones para hospedaje y los del personal del establecimiento, deben constituirse independientes para hombres y mujeres. Para el cálculo de las piezas sanitarias, el profesional responsable debe de acatar las disposiciones establecidas por el CFIA en el CIHSE vigente, sin perjuicio de la normativa nacional en la materia.

@@ -1,0 +1,3 @@
+ARTÍCULO 225. Escaleras.
+Para la construcción de escaleras se debe cumplir con lo que establece el Cuerpo de Bomberos, la Ley de Igualdad de Oportunidades para las personas con Discapacidad, Ley Nº 7600 y su Reglamento, Decreto Ejecutivo N° 26831-MP y sus reformas o la normativa que los sustituya.
+Deben construirse de materiales incombustibles y tener pasamanos a 0,90 m de altura en barandas de 1,07 m de altura, en cada lado de la escalera. Cada piso debe tener por lo menos 2 escaleras en lados opuestos o separadas convenientemente. A lo largo de cualquier tramo de escalera el ancho de las huellas y la altura de las contrahuellas deben ser constantes. Se prohíben las escaleras de caracol como medio de salida.

@@ -1,0 +1,2 @@
+ARTÍCULO 272. Ascensores
+Se debe acatar lo dispuesto en el Manual de Normas para la Habilitación de Hospitales Generales y Servicios Especiales, Decreto Ejecutivo N°38508-S, y en el Reglamento Ley de Igualdad de Oportunidades para Personas con Discapacidad, Decreto Ejecutivo N° 26831-MP y sus reformas o normativa que lo sustituya; además se deben cumplir los requerimientos que establece el Cuerpo de Bomberos.

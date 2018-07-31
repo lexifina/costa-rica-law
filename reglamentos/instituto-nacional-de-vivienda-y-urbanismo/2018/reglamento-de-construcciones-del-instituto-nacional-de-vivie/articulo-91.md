@@ -1,0 +1,2 @@
+ARTÍCULO 91. Alineamientos de Zona Marítimo Terrestre
+Para la autorización de cualquier tipo de construcción dentro de la zona pública o la zona restringida de la Zona Marítimo Terrestre, la Municipalidad respectiva debe proceder de conformidad con lo establecido en la Ley sobre la Zona Marítimo Terrestre, N°6043, su Reglamento o la normativa vigente. Adicionalmente, la Municipalidad debe acatar lo establecido en el Plan Regulador Costero, en caso de que cuente con uno vigente.

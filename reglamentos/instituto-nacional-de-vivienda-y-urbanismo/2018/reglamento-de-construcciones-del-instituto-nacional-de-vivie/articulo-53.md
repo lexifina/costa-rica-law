@@ -1,0 +1,3 @@
+ARTÍCULO 53. Resistencia al fuego de los materiales
+Los elementos estructurales y no estructurales de las edificaciones, tales como, paredes exteriores portantes, paredes interiores portantes, columnas, vigas, viguetas, arcos estructuras, pisos, entrepisos y techos deben ser resistentes al fuego, según las especificaciones del Cuerpo de Bomberos.
+Cuando se requiera resistencia al fuego de los entrepisos, esta debe considerar todo el elemento de vigas, viguetas, bloques, losa de concreto y otros componentes utilizados.

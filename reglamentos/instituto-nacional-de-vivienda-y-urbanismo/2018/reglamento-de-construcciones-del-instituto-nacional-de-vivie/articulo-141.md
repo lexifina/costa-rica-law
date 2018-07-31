@@ -1,0 +1,3 @@
+ARTÍCULO 141. Demoliciones y excavaciones
+Para efectuar trabajos de demolición, o para hacer excavaciones en un predio particular el profesional responsable debe obtener el respectivo permiso municipal y de la SETENA, según corresponda, acatando las disposiciones de la Ley de Construcciones Nº 833 y el Reglamento de Seguridad en las Construcciones, Decreto Ejecutivo Nº 25235-MTSS y sus reformas o la normativa que los sustituya.
+Los escombros producto de las demoliciones deben de disponerse conforme a la Ley de Gestión Integral de Residuos, Ley Nº 8839 y sus reformas o la normativa que los sustituya.

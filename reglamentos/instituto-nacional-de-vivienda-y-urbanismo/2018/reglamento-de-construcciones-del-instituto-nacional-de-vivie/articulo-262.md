@@ -1,0 +1,3 @@
+ARTÍCULO 262. Habilitación de espacios
+Para la habilitación de espacios en edificaciones para servicios de la salud, previo a iniciar operaciones, se debe solicitar ante el MINSA el Certificado de Habilitación, de acuerdo a la Ley General de Salud y el Reglamento General de habilitación de servicios de salud y afines, Decreto Ejecutivo N° 39728-S y sus reformas o normativa que los sustituya.
+Además, se deben incluir los recintos propios de los servicios de atención de pacientes y labores propias del funcionamiento del centro de salud, salas de espera para pacientes, servicios sanitarios para público, independientes de las áreas de estar y confort para personal, así como servicios sanitarios para personal.

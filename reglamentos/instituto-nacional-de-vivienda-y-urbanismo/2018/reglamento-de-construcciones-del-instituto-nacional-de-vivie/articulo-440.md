@@ -1,0 +1,2 @@
+ARTÍCULO 440. Cordones y caños
+Los cordones y caños que conforman el límite entre calzadas y aceras, sin perjuicio de lo establecido en el Manual Especificaciones Generales para la Construcción de Caminos, Carreteras y Puentes CR-2010, Decreto Ejecutivo N° 36388-MOPT y sus reformas o la normativa que lo sustituya, deben construirse de conformidad con los planos de diseño y sobre terreno compactado en los 0,40 m superiores. En su construcción se debe usar concreto de resistencia mínima de 175 kg/cm², a la compresión, a los 28 días.

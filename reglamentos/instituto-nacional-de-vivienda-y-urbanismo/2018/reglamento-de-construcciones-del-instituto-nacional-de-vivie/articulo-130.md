@@ -1,0 +1,7 @@
+ARTÍCULO 130. Vestíbulos y áreas de dispersión
+Sin perjuicio de lo establecido por el Cuerpo de Bomberos en la materia, los vestíbulos y áreas de dispersión deben contemplar las siguientes disposiciones:
+1. Los vestíbulos principales de cualquier edificación deben al menos 2,40 m de ancho por 3,00 m de longitud
+2. Los vestíbulos secundarios o pasillos de circulación con puertas deben tener una longitud mínima de 1,70 m y una anchura igual a la de la puerta, más 0,50 m, adicionando éstos del lado opuesto a las bisagras
+3. La planta de acceso para todo tipo de edificación que brinden servicios públicos, particulares, o de uso mixto, debe tener un área de vestíbulo mínima de un 5% del área construida del nivel de acceso. Dicha área comprende la suma de las áreas de vestíbulos, patios, plazas y pasillos
+4. En las salas de espectáculos, centros de reunión y similares, el área de vestíbulo debe ser por lo menos de 0,15 m² por concurrente; debe quedar adyacente a la vía pública por lo menos la cuarta parte. Hasta tres cuartas partes de dicha superficie mínima pueden estar compuestas por vestíbulos interiores. Si la capacidad de la sala no estuviere definida, se considera un concurrente por cada 0,50 m² de las salas de espectáculo o reunión.
+5. En las edificaciones industriales, las áreas de dispersión deben ser determinadas por el profesional responsable en función del número de personas servidas, en cada caso.

@@ -1,0 +1,2 @@
+ARTÍCULO 183. Trampolines de piscinas privadas
+Se puede colocar trampolines en la parte de la piscina con más de 2,00 m de profundidad, y donde la distancia libre al frente de ellos sea mayor a 3,00 m. En los casos de trampolines con altura mayor de 2,00 m sobre el nivel del agua, solo se permite que se instalen en foso de clavados con profundidad no menor de 5,00 m y por separado de la piscina para natación.

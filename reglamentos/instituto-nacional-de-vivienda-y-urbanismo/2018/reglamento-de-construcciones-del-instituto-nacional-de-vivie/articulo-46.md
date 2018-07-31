@@ -1,0 +1,2 @@
+ARTÍCULO 46. Medios de egreso accesibles
+Los medios de egreso deben contar con áreas de refugio accesibles para personas con impedimentos de movilidad. El número de áreas de refugio accesibles, y las características constructivas de las mismas, deben ser las establecidas por el Cuerpo de Bomberos en su normativa aplicable en la materia.

@@ -1,0 +1,4 @@
+ARTÍCULO 77. Nomenclatura vial y número oficial del predio
+El Gobierno Municipal es quien define la denominación de las vías públicas, parques, jardines, plazas y la numeración de los predios, por medio de placas de nomenclatura oficial, las cuales no pueden ser alteradas por ningún particular.
+Cada cantón debe fijar la denominación de la nomenclatura de conformidad al Reglamento para la Identificación de Direcciones creada por Correos de Costa Rica S.A., Decreto Ejecutivo N°32793 MPMOPT, y al Decreto Ejecutivo N° 27144-MP-G-J-MOPT denominado: Crea Comisión encargada del diseño e implementación y metodología del sistema de nomenclatura, la cual toma en cuenta la señalización de calles y avenidas, numeración de inmuebles y codificación postal, y sus reformas o normativa que la sustituya..
+La nomenclatura de las vías nacionales debe ser definida por el MOPT.

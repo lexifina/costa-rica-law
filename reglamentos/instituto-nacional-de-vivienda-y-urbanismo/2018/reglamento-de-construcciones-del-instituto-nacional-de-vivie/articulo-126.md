@@ -1,0 +1,5 @@
+ARTÍCULO 126. Construcciones cerca de colindancias
+En el caso de obras que se realicen cerca de la colindancia, el profesional responsable debe tomar las medidas del caso para proteger y no afectar al predio vecino.
+Para realizar excavaciones o construir pozos, hornos, fraguas, chimeneas, establos, depósitos de materias corrosivas, y otras destinadas a usos que puedan ser peligrosos o nocivos, se debe cumplir con las disposiciones de este Reglamento, y la normativa vigente en la materia.
+Cuando se cuente con el aval del propietario colindante, se puede hacer uso de anclajes temporales por debajo de los predios vecinos con el objetivo de reducir el riesgo de posibles afectaciones a las estructuras de las edificaciones vecinas. Los anclajes temporales deben ser liberados una vez construidos los sótanos o estructuras subterráneas
+Los proyectos colindantes con construcciones que cuenten con declaratoria de patrimonio histórico o arquitectónico otorgada por el MCJ, deben contar con el visto bueno del Departamento de Patrimonio Cultural de ese Ministerio.

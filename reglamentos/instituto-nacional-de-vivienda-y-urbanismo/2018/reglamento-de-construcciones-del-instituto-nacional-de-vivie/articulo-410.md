@@ -1,0 +1,3 @@
+ARTÍCULO 410. Ademado o fortificación
+Antes de comenzar obras de excavación debe efectuarse un reconocimiento del sitio, a fin de determinar las medidas de refuerzo y de seguridad que se consideren necesarias. Debe tenerse cuidado cuando las obras se realicen en zonas próximas a carreteras y a estructuras e instalaciones de servicio público. Se deben localizar las instalaciones de servicios públicos soterradas, y dar oportuno aviso a las entidades a cargo de ellos para desviarlos o protegerlos.
+Cuando los trabajos de cimentación se efectúen junto a edificaciones de cimientos menos profundos que los que se construyen, las excavaciones necesarias se deben hacer por secciones y los cimientos antiguos deben ser apuntalados, si así se requiriera por peligro de asentamiento.

@@ -1,0 +1,3 @@
+ARTÍCULO 131. Ascensores
+Se debe acatar lo dispuesto en la Ley de Igualdad de Oportunidades para las personas con Discapacidad, Ley Nº 7600 y su Reglamento, Decreto Ejecutivo N° 26831-MP, además de los requerimientos que establece el Cuerpo de Bomberos, de conformidad al Reglamento a la Ley N° 8228 del Benemérito Cuerpo de Bomberos de Costa Rica, Decreto Ejecutivo N° 37615-MP, y sus reformas o normativa que los sustituya.
+Toda edificación donde el usuario deba subir o bajar más de 4 pisos, medidos a partir de un acceso hasta el piso superior, inferior u otro acceso, o con piezas habitables que estén a una altura de 12,00 m o superior, debe contar con al menos un ascensor.

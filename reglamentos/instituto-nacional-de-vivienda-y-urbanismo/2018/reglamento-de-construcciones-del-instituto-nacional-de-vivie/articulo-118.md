@@ -1,0 +1,2 @@
+ARTÍCULO 118. Tratamiento de aguas residuales
+Las aguas residuales deben de ser tratadas y dispuestas en un alcantarillado sanitario, tanque séptico o un sistema de tratamiento que cumpla con lo dispuesto en el Reglamento de Aprobación de Sistemas de Tratamientos de Aguas Residuales, Decreto Ejecutivo N°39887-S-MINAE y sus reformas o normativa que lo sustituya. Se prohíbe descargar las aguas residuales al sistema de alcantarillado pluvial. Además, el profesional responsable debe de acatar las disposiciones establecidas por el CFIA en el CIHSE.

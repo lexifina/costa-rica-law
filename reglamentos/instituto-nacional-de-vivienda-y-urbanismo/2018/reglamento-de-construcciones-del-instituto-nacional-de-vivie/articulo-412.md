@@ -1,0 +1,4 @@
+ARTÍCULO 412. Equipo para bajar o subir materiales
+Sin perjuicio del Reglamento de Seguridad en Construcciones, Decreto Ejecutivo N° 25235-MTSS y sus reformas o la normativa que los sustituya, para cualquiera que sea el tipo de equipo que se use para subir o bajar materiales y otros elementos en una obra, se deben tomar las precauciones necesarias para la seguridad de trabajadores y transeúntes. Deben seguirse las instrucciones del respectivo fabricante.
+Las cargas suspendidas no deben pasar sobre vía pública, predios vecinos y edificaciones durante el proceso de construcción, salvo en casos especiales en que la municipalidad lo autorice, o sobre edificaciones o predios vecinos con la autorización de sus propietarios.
+Es prohibido subir y bajar personas en cabinas y plataformas de montacargas, en recipientes y ganchos de grúas de cualquier especie.

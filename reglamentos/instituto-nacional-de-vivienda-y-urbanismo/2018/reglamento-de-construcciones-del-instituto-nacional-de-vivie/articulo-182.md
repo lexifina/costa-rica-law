@@ -1,0 +1,2 @@
+ARTÍCULO 182. Piscinas
+Las piscinas de uso público y las públicas de uso restringido deben cumplir con todos los aspectos sanitarios y de seguridad, procesos de diseño, construcción, operación, mantenimiento, uso y de calidad de agua, establecidos en el Reglamento Sobre el Manejo de Piscinas, Decreto Ejecutivo N°35309-S y sus reformas y la normativa que lo sustituya. Las piscinas privadas deben cumplir únicamente con las disposiciones constructivas y de calidad de agua dicho Reglamento.

@@ -1,0 +1,3 @@
+ARTÍCULO 193. Iluminación
+Sin perjuicio de lo establecido en el Reglamento General de Seguridad e Higiene de Trabajo, Decreto N°1 del Ministerio de Trabajo y Bienestar Social y sus reformas o la normativa que lo sustituya, para la iluminación diurna de los talleres y salas de trabajo se debe dar preferencia a la luz natural difusa, que ingresa por ventanas o tragaluces cuya superficie no debe ser menor de 20% del área de piso.
+Cuando no sea posible iluminar satisfactoriamente todas las salas con luz natural, el profesional responsable debe velar por la aplicación de la normativa que establezca el CFIA para que cada espacio cuente con la iluminación artificial y la intensidad luminosa adecuada.

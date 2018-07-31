@@ -1,0 +1,3 @@
+ARTÍCULO 57. Ubicación de los controles en sistemas de detección y alarma de incendios
+El panel de alarma de incendio, los indicadores de alarma y la capacidad de las comunicaciones manuales deben instalarse en una ubicación accesible y supervisada, que sea aprobada por el Cuerpo de Bomberos tales como vestíbulo principal, cuarto de vigilancia o cuarto de monitoreo.
+En planos se debe indicar la ubicación de todos los elementos del sistema a instalar en una planta de distribución, y se debe incluir en una tabla de simbología dichos componentes y sus características. Además debe incluirse en planos el diagrama de instalación del sistema que incluya todos los componentes requeridos.

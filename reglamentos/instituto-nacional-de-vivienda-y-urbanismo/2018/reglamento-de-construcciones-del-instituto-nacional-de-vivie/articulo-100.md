@@ -1,0 +1,3 @@
+ARTÍCULO 100. Edificaciones con declaratoria de patrimonio histórico-arquitectónico
+Todos los bienes inmuebles que cuenten con Declaratoria de Patrimonio Histórico-Arquitectónico, ya sean edificaciones, monumentos, centros, conjuntos, sitios, o zonas delimitadas según el caso; deben cumplir con los requerimientos establecidos según la Ley de Patrimonio Histórico Arquitectónico, Ley Nº 7555, y sus reformas o normativa que la sustituya.
+Para la modificación o construcción de fachadas colindantes a inmuebles que cuenten con Declaratoria de Patrimonio Histórico y Arquitectónico, se debe contar con el visto bueno del Departamento de Patrimonio Cultural del MCJ.

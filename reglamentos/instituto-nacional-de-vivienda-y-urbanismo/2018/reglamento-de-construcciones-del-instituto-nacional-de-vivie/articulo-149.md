@@ -1,0 +1,2 @@
+ARTÍCULO 149. Comunicación Visual Exterior en Patrimonio Histórico-Arquitectónico
+Para los inmuebles que cuenten con la declaratoria de Patrimonio Histórico-Arquitectónico, emitido por el MCJ, la colocación de publicidad exterior debe cumplir con las restricciones establecidas el Reglamento a la Ley de Patrimonio Histórico Arquitectónico de Costa Rica, Decreto Ejecutivo, N°32749-C, y sus reformas o normativa que lo sustituya.

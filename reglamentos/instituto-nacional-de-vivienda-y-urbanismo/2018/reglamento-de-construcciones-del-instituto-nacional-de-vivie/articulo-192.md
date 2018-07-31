@@ -1,0 +1,3 @@
+ARTÍCULO 192. Ventilación
+Sin perjuicio de lo establecido en el Reglamento sobre Higiene Industrial, Decreto Ejecutivo N°11492-S-PPS y sus reformas o la normativa que lo sustituya, y el CAPÍTULO VII DISPOSICIONES PARA EDIFICACIONES, en todos los locales de trabajo ubicados en establecimientos industriales y de almacenamiento, se debe proveer un sistema de ventilación adecuado que asegure la circulación del aire, y mantenga una temperatura que no sea molesta a la salud de las personas trabajadoras, salvo en el caso de frigoríficos, hornos y calderas.
+Cuando se empleen chimeneas en los sistemas de ventilación, la extremidad superior debe tener una altura mínima de 3,00 m por encima de la edificación de mayor altura que se encuentre en un radio de 10,00 m.

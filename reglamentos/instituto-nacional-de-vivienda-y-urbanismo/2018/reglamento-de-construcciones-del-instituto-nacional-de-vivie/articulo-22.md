@@ -1,0 +1,2 @@
+ARTÍCULO 22. Sanciones
+Las sanciones aplicables al propietario, profesional responsable, empresa o contratista, por incumplimiento parcial o total de las normas establecidas en el presente Reglamento, son las definidas en el Código Civil, Ley de Construcciones Nº 833, Ley General de Salud Nº 5395, Ley Orgánica del Colegio Federado de Ingenieros y Arquitectos Nº 3663. Lo anterior sin perjuicio de las sanciones contenidas en otras normas vigentes aplicables en la materia.

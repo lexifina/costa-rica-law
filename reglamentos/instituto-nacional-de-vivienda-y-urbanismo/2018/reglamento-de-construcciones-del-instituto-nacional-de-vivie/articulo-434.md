@@ -1,0 +1,3 @@
+ARTÍCULO 434. Estructuras para redes sanitarias
+El tipo de estructura e instalación de las redes sanitarias de agua potable y de alcantarillado, debe cumplir con lo estipulado en la Norma Técnica para Diseño y Construcción de Sistemas de Abastecimiento de Agua Potable, de Saneamiento y Sistema Pluvial del AyA, y sus reformas o normativa que la sustituya, para pozos de registro, conexiones domiciliarias de alcantarillado, cajas de registro, sumideros, cajas para válvulas de agua potable, conexiones para hidrantes, y conexiones domiciliarias de agua potable.
+El diseño de las estructuras e instalaciones no incluidas en el listado anterior, debe ser sometido a la aprobación previa de AyA.

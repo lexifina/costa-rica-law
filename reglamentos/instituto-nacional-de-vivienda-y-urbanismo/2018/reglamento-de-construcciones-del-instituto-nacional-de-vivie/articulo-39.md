@@ -1,0 +1,3 @@
+ARTÍCULO 39. Rampas de medios de egreso
+Las rampas deben tener descansos en el extremo superior, en el extremo inferior y en las puertas que abren hacia la rampa; cada descanso debe tener una longitud no menor de 1,50 m en la dirección del recorrido. Cualquier cambio en la dirección del recorrido debe realizarse únicamente en los descansos. Las rampas y los descansos exteriores deben diseñarse para minimizar la acumulación de agua en su superficie.
+Lo anterior sin perjuicio de lo establecido en la Ley de Igualdad de Oportunidades para las personas con Discapacidad, Nº 7600, su Reglamento, Decreto Ejecutivo N°26831, y sus reformas o normativa que lo sustituya.

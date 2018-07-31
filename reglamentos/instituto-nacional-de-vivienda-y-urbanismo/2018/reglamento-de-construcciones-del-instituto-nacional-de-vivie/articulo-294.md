@@ -1,0 +1,8 @@
+ARTÍCULO 294. Ventilación
+En materia de ventilación se deben cumplir los siguientes requerimientos:
+1) Las ventanas deben permitir regular la ventilación al menos el 50% de su superficie bruta. En todo caso, los espacios destinados a enseñanza magistral deben permitir 12 renovaciones o cambios de aire por hora.
+2) Se permite el uso de ventiladores, inyectores y extractores en caso de que no se logre el nivel de confortabilidad requerido de forma pasiva
+3) Las paredes opuestas a las ventanas de aulas, bibliotecas y talleres que no utilicen sustancias peligrosas y otros espacios en que convenga esta característica, deben tener aberturas ubicadas de tal manera que permitan la ventilación cruzada.
+4) En aulas, bibliotecas y talleres que no utilicen sustancias peligrosas y otros espacios en que convenga esta característica, los sistemas de ventilación forzada o mecánica pueden utilizarse como complemento y no de forma excluyente a la ventilación natural cruzada
+5) En salas audiovisuales, se deben permitir 10 renovaciones o cambios de aire por hora y en áreas administrativas se deben permitir 8 renovaciones de aire por hora.
+6) En casos calificados, tales como edificaciones de altura y otros cuya complejidad lo amerite, se puede prescindir de la ventilación cruzada y en su lugar utilizar sistemas de ventilación forzada, que generen las renovaciones de aire por hora necesarias para cada tipo de espacio.Para estos casos, se debe presentar ante la entidad competente en materia de infraestructura y equipamiento del MEP, la justificación técnica y las correspondientes memorias de cálculo de la valoración del desempeño climático, elaboradas para el proyecto específico por parte del profesional responsable especialista en la materia.

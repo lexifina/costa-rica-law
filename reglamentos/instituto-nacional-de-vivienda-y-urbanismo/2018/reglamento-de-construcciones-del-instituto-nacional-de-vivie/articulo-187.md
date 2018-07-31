@@ -1,0 +1,3 @@
+CAPÍTULO XI. ESTABLECIMIENTOS INDUSTRIALES Y DE ALMACENAMIENTO
+ARTÍCULO 187. Certificado de uso de suelo
+Sin perjuicio de la excepción para edificaciones públicas, establecida en la Ley de Construcciones, Ley N°833, y lo dispuesto en el Reglamento sobre Higiene Industrial, Decreto Ejecutivo N°11492-SPPS y el Reglamento de Zonas Industriales Gran Área Metropolitana emitido por el INVU, y sus reformas o la normativa que los sustituya, los establecimientos industriales y de almacenamiento, están sujetos a lo indicado por el certificado del uso del suelo que debe ser emitido por la municipalidad. Este debe contener los requerimientos establecidos en el CAPÍTULO VII. DISPOSICIONES PARA EDIFICACIONES en materia de certificado de uso de suelo.

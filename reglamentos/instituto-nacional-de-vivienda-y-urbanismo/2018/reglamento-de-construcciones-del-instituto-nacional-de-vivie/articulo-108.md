@@ -1,0 +1,3 @@
+ARTÍCULO 108. Ventilación
+Toda edificación debe contar con ventilación que asegure tanto la renovación del aire respirable como la salubridad del mismo, lo anterior en cuanto a control de la humedad y concentraciones de gases o partículas en suspensión.
+En baños, escaleras, vestíbulos, pasillos, áreas de lavandería, cocinas, bodegas y garajes, la ventilación puede ser natural o artificial. Cuando sea natural se deben acatar los requisitos del presente Reglamento; cuando sea artificial se debe acompañar de la respectiva memoria de cálculo firmada por un profesional responsable del diseño del sistema.

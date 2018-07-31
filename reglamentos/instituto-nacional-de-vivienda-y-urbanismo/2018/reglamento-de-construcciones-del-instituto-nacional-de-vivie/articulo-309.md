@@ -1,0 +1,2 @@
+ARTÍCULO 309. Aislamiento acústico
+Adicionalmente los elementos construidos verticales, horizontales o inclinados que sirvan de paredes divisorias o medianeras deben tener un índice de reducción acústica mínima de 45 dBA. Los elementos constructivos horizontales o inclinados tales como pisos y rampas deben tener un índice de reducción mínima de 45 dBA y presentar un nivel de presión acústica al impacto normalizado de 75 dB.

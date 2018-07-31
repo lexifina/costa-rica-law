@@ -1,0 +1,3 @@
+ARTÍCULO 301. Recorridos verticales
+Todo recorrido vertical entre pisos debe ser accesible en cumplimiento con lo establecido en la Ley de Igualdad de Oportunidades para Personas con Discapacidad, Ley N°7600, y su Reglamento, Decreto Ejecutivo N° 26831-MP y sus reformas o normativa que lo sustituya.
+No se permite el uso de montacargas, dispositivos mecánicos de circulación vertical, tipo salva-escaleras, como sillas unipersonales, orugas, entre otros, en sustitución de una solución accesible rampas o en su defecto ascensores y plataformas cuya construcción, funcionamiento y niveles óptimos de seguridad se encuentren debidamente garantizados por el fabricante.

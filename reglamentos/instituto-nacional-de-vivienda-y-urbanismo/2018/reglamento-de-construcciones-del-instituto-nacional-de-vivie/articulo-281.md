@@ -1,0 +1,6 @@
+ARTÍCULO 281. Área mínima del predio y la edificación. Debe estar conformada por la sumatoria de la superficie construida de la edificación y la superficie libre mínima. Para el cálculo del área mínima del lote y la edificación, se debe considerar el número máximo de alumnos previstos en el programa o plan de estudios completo, de la siguiente manera:
+1) Preescolar, Primer y Segundo Ciclo de Educación General Básica, debe ser de 10,00 m², como mínimo por estudiante
+2) Tercer ciclo de Educación General Básica, Educación Diversificada, Técnica y Educación Superior Privada; debe ser de 15,00 m², como mínimo por estudiante
+3) En el caso de Educación, Especial, y Superior; para el cálculo del área, deben aplicarse los lineamientos, manuales, métodos para cálculo de la capacidad locativa y demás disposiciones emanadas de la dependencia competente en materia de infraestructura del MEP, o en su defecto los acordados por el pleno del Consejo Superior de Educación y el Consejo Nacional de Enseñanza Superior Universitaria Privada CONESUP, dentro del alcance de sus competencias legales respectivamente
+Para el cálculo de espacio se debe considerar el número máximo de alumnos previstos en el programa o plan de estudios completo, según corresponda.
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 89 del 22 de mayo de 2018, página N° 84)

@@ -1,0 +1,2 @@
+ARTÍCULO 18. Instalaciones Hidráulicas y Sanitarias
+Todas las edificaciones deben estar provistas de instalaciones mecánicas internas y externas, que permitan el debido abastecimiento de agua potable y desecho de aguas residuales, por medio de las conexiones, tuberías, accesorios sanitarios y desagües que constituyen las instalaciones hidráulicas. El profesional responsable debe de acatar las disposiciones establecidas por el CFIA en el CIHSE, sin perjuicio de la normativa nacional en la materia.

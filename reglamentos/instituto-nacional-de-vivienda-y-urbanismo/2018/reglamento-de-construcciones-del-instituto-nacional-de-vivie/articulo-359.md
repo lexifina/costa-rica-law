@@ -1,0 +1,3 @@
+ARTÍCULO 359. Cabina de transferencia en estacionamientos mecanizados
+La cabina en la que ingresan los vehículos para que el sistema mecánico realice las operaciones de desplazamiento y almacenamiento, debe permitir el fácil acceso de los vehículos dirigidos por los usuarios, sin necesidad de realizar maniobras que requieran de alguna habilidad especial.
+En la cabina de transferencia, la zona de entrega debe tener capacidad mínima de un vehículo, contar con un área de espera para los usuarios y brindar igualdad de oportunidades y accesibilidad de conformidad con la Ley de Igualdad de Oportunidades para Personas con Discapacidad, N°7600 y su Reglamento, Decreto Ejecutivo N° 26831-MP y sus reformas o la normativa que lo sustituya.

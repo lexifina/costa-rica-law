@@ -1,0 +1,4 @@
+ARTÍCULO 291. Altura mínima para salones de clase
+Estos espacios siempre deben tener cielo raso aislante termo-acústico y ventilación cruzada que permita la renovación constante del aire.
+La altura de piso a cielo raso en edificaciones para Educación Prescolar, Primer, Segundo y Tercer Ciclo de Educación General Básica, Educación Técnica, Educación Diversificada, Educación Superior Privada y Educación Especial, debe permitir un volumen de aire mínimo de 5 m³ por estudiante, o en su defecto como mínimo 2,70 m de altura.
+En casos de infraestructura existente técnicamente calificados y avalados por el órgano competente en materia de infraestructura del MEP, en los cuales este requerimiento de altura no pueda ser implementada, debe aplicarse lo indicado en el presente capítulo en materia de ventilación.

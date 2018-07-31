@@ -1,0 +1,3 @@
+ARTÍCULO 121. Drenaje pluvial
+Las aguas pluviales de cualquier tipo de edificación deben ser conducidas a sistemas de alcantarillado pluvial, a cursos de aguas naturales permanentes o ser reutilizadas en usos cuya calidad no sea para consumo humano. Se prohíbe descargar las aguas pluviales al sistema de drenaje sanitario.
+No se permite la caída libre de aguas pluviales sobre la vía pública, debiendo disponerse para tal efecto de canoas y bajantes pluviales desde techos, balcones, voladizos y cualquier otro saliente que derive en un tragante para encauzar las aguas hasta el caño, dentro de la acera. Para la descarga de aguas pluviales a la red pluvial de las rutas nacionales, se debe contar con el permiso del MOPT.

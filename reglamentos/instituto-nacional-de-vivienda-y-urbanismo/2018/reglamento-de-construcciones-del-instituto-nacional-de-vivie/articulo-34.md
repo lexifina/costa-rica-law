@@ -1,0 +1,4 @@
+ARTÍCULO 34. Disposiciones para medios de egreso de escaleras interiores
+Sin perjuicio de lo establecido en materia de medios de egreso de escaleras en el presente Capítulo, todas las escaleras interiores que sirven como salida o como componente de salida, deben poseer cerramiento y encontrarse protegidas, lo anterior de conformidad con lo establecido por el Cuerpo de Bomberos.
+Se prohíbe el uso de los espacios vacíos en el cerramiento de una escalera, para usos como ductos electromecánicos, almacenaje, áreas de limpieza y otros.
+El espacio abierto dentro del cerramiento de la salida no debe utilizarse para propósitos que puedan interferir con el egreso.

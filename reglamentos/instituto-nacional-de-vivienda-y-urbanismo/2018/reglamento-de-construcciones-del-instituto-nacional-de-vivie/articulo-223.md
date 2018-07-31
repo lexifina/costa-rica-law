@@ -1,0 +1,4 @@
+ARTÍCULO 223. Pasillos interiores
+El ancho mínimo de los pasillos longitudinales con asientos en ambos lados deben ser de 1,20 m. Los pasillos con asientos en un solo lado deben tener un ancho de 0,90 m, agregando 0,05 m por cada metro de longitud del pasillo, desde su origen hasta una puerta de salida o hasta un pasillo principal.
+En los muros de los pasillos no se permiten salientes a una altura menor de 3,00 m, medidos desde nivel de piso de los mismos. No se permiten escalones dentro de los pasillos de las salas de espectáculos, siempre que se pueda dar una solución de rampa cuya pendiente no sea mayor del 10%; dichas rampas o escalones deben tener una superficie antideslizante.
+La suma de las contrahuellas de un grupo de escalones no puede exceder de 0,51 m; y la contrahuella máxima debe ser de 0,17 m. En todo caso no se permiten escalones aislados.

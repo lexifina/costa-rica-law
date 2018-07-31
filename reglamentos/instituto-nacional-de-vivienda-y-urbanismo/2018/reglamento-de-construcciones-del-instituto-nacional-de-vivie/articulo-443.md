@@ -1,0 +1,2 @@
+ARTÍCULO 443. Hidrantes
+Sin perjuicio de las disposiciones establecidas en este Reglamento en el CAPÍTULO VII DISPOSICIONES SOBRE SEGURIDAD HUMANA Y PROTECCIÓN CONTRA INCENDIOS, se deben cumplir con lo establecido en la Ley de Hidrantes, Ley Nº 8641, su reglamento Decreto Ejecutivo Nº 35206-MP-MINAET y sus reformas o la normativa que los sustituya. Además se deben acatar las normas del Cuerpo de Bomberos.

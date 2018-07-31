@@ -1,0 +1,2 @@
+ARTÍCULO 143. Mapa oficial de urbanizaciones
+Sin perjuicio de las disposiciones del Reglamento para el Control Nacional de Fraccionamiento y Urbanizaciones, el plano mosaico aprobado de la urbanización constituye el Mapa Oficial, en lo referente a vías, lotificación y áreas públicas, e indica una zonificación pre-establecida. No se otorgan nuevos permisos para uso comercial o de servicios particulares en urbanizaciones, hasta tanto no se hayan utilizado los predios destinados para estos usos.

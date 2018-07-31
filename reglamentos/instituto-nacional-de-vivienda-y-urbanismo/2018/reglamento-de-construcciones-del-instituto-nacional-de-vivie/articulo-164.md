@@ -1,0 +1,2 @@
+ARTÍCULO 164. Espacios comunes de circulación. Sin perjuicio de lo que establece el Cuerpo de Bomberos, todas las edificaciones para uso residencial, deben tener acceso a pasillos o corredores que conduzcan directamente a las puertas de salida o a las escaleras. El ancho de pasillos o corredores no será menor de 1,20 m.
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 89 del 22 de mayo de 2018, página N° 84)

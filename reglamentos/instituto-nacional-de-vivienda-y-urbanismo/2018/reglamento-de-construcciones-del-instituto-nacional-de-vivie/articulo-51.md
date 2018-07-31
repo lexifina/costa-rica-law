@@ -1,0 +1,2 @@
+ARTÍCULO 51. Espacios ocultos y barreras contra la dispersión del humo
+Sin perjuicio de las disposiciones establecidas por el Cuerpo de Bomberos, cualquier espacio oculto entre el cielorraso y el piso o la cubierta del techo superior, debe tener barreras contra la dispersión del humo que abarquen la profundidad total del espacio a lo largo de la línea de soporte de los elementos estructurales del piso o cubierta.

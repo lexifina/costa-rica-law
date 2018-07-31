@@ -1,0 +1,2 @@
+ARTÍCULO 128. Altura de control
+La altura de control para la colocación de cerraduras de puerta, apagadores eléctricos, botones de timbre, controles de alarmas o de otra índole, de uso general, debe cumplir con los requerimientos establecidos en la Ley de Igualdad de Oportunidades para las personas con Discapacidad, Nº 7600 y su Reglamento, Decreto Ejecutivo N°26831, las disposiciones del CECR, y sus reformas o normativa que los sustituyan.

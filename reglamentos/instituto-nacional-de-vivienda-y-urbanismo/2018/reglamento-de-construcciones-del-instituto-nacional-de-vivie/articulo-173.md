@@ -1,0 +1,3 @@
+ARTÍCULO 173. Retiros y patios de luz
+En sitios comerciales, rigen los retiros exigidos por plan regulador, o en su defecto lo establecido en este Reglamento.
+Los patios que sirvan para dar iluminación y ventilación, deben cumplir con lo establecido en el artículo referente a Patios de Luz del CAPÍTULO VII. DISPOSICIONES PARA EDIFICACIONES. Sin embargo, en las zonas comerciales, en edificaciones para comercio y oficinas, en los primeros dos pisos puede prescindirse de patios, solucionándose la iluminación y ventilación por medios artificiales, en cuyo caso debe consignarse en planos constructivos la aprobación del MINSA.

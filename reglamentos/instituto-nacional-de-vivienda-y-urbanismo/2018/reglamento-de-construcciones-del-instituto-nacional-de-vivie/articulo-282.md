@@ -1,0 +1,3 @@
+ARTÍCULO 282. Cobertura del predio
+Para centros de Educación Superior Privada, la cobertura máxima del predio debe ser la fijada en el Plan Regulador para la zona en donde se ubique, sin perjuicio de las disposiciones establecidas por las entidades competentes en materia ambiental, o en su defecto, lo indicado en cuanto a cobertura en el CAPÍTULO VI. NORMATIVAS URBANÍSTICAS del presente Reglamento.
+En zonas declaradas ambientalmente frágiles, los porcentajes de cobertura deben ser consultados ante la respectiva municipalidad. Asimismo, deben realizarse las consultas pertinentes ante la SETENA; esto último aplica para centros educativos públicos y privados.

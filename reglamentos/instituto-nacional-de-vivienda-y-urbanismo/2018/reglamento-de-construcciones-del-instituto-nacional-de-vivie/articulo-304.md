@@ -1,0 +1,6 @@
+ARTÍCULO 304. Servicios sanitarios
+Se debe contar con servicios sanitarios separados para hombres y mujeres, tanto para los estudiantes como para los profesores. En todos los niveles de la edificación y en cada batería de servicios sanitarios, se debe contar con los requerimientos de accesibilidad establecidos en la Ley de Igualdad de Oportunidades para Personas con Discapacidad, Nº 7600 y su Reglamento, Decreto Ejecutivo N° 26831-MP y sus reformas o normativa que los sustituya. El recorrido del usuario para acceder a éstos, no debe superar los 36,00 m de trayectoria.
+La cantidad de piezas sanitarias para estudiantes se calcula en la siguiente forma:
+1) Primer y Segundo Ciclo de Educación General Básica: 1 inodoro y 1 mingitorio por cada 30 alumnos. 1 inodoro por cada 20 alumnas. Un lavabo por cada 60 estudiantes.
+2) Tercer Ciclo de Educación General Básica, Educación Diversificada, Parauniversitaria y Universitaria Privada: 1 inodoro y 1 mingitorio por cada 40 alumnos. 1 inodoro por cada 30 alumnas. 1 lavabo por cada ochenta 80 estudiantes.
+3) Bebederos: 1 bebedero por cada 100 estudiantes, alimentado en lo posible directamente de la cañería o, en su defecto, con agua de potabilidad comprobada.

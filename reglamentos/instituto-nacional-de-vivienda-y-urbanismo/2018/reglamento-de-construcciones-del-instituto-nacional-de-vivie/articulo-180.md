@@ -1,0 +1,4 @@
+ARTÍCULO 180. Normativa aplicable
+Para las instalaciones deportivas y baños de uso público y privado, se deben cumplir con los requisitos establecidos por el MINSA. En los casos específicos de las obras que tiene como fin propiciar la realización de actividades deportivas y recreativas, se debe cumplir con la normativa que determine el ICODER y el Cuerpo de Bomberos.
+El profesional responsable debe acatar las disposiciones establecidas por el CIHSE vigente, y la demás normativa que indique el colegio profesional, sin perjuicio de la normativa nacional en la materia.
+En caso que el proyecto de construcción contenga un espacio determinado para congregar personas para observar o escuchar cualquier actividad realizada en la obra, debe seguir las disposiciones del CAPÍTULO XII.SITIOS DE REUNIÓN PÚBLICA del presente Reglamento.

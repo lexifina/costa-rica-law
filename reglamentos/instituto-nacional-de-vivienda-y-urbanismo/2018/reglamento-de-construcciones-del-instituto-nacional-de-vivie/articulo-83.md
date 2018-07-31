@@ -1,0 +1,2 @@
+ARTÍCULO 83. Alineamiento Vías Cantonales
+Previo a la construcción de cualquier tipo de edificación sobre predios que se encuentren ubicados frente a carreteras de la Red Vial Cantonal, es obligatorio cumplir con los requisitos dispuestos en la normativa vigente, al tramitar la solicitud de alineamiento en el departamento respectivo en materia vial de la Municipalidad. Lo anterior conforme a la Ley de Construcciones, N°833, y sus reformas o la normativa que la sustituya.

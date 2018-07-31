@@ -1,0 +1,4 @@
+ARTÍCULO 47. Compartimentación de las edificaciones
+Sin perjuicio de lo establecido por el Cuerpo de Bomberos en materia de compartimentación; todas las edificaciones deben estar divididas en compartimentos para limitar la propagación del fuego y restringir el movimiento del humo. Se deben cumplir los siguientes requisitos para la compartimentación:
+1) En edificaciones donde se subdividan espacios en diferentes usos, la división entre cada uno de los espacios debe ser provista mediante tabiques cortafuego, con una resistencia al fuego de mínimo 1 hora
+2) Donde se proveen ocupaciones separadas, cada parte de la edificación que comprende una ocupación distinta debe estar completamente separada de otras ocupaciones por conjuntos de montaje resistentes al fuego; de lo contrario se considera como ocupación mixta

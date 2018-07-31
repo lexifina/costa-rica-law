@@ -1,0 +1,4 @@
+CAPÍTULO IX. EDIFICACIONES PARA COMERCIOS U OFICINAS
+ARTÍCULO 172. Certificado de uso de suelo
+Sin perjuicio de la excepción para edificaciones públicas, establecida en la Ley de Construcciones, Ley N°833, y sus reformas o la normativa que la sustituya, toda edificación para comercio u oficinas están sujetas a lo indicado por el certificado del uso del suelo que debe ser emitido por la municipalidad. Este debe contener los requerimientos establecidos en el CAPÍTULO VII. DISPOSICIONES PARA EDIFICACIONES en materia de certificado de uso de suelo.
+En el caso de las edificaciones destinadas a comercio u oficinas ubicadas dentro de urbanizaciones, el certificado de uso de suelo comercial debe ser compatible con el uso residencial, cuando el plan regulador no indique lo contrario. Este debe ser emitido por la municipalidad, la cual verifica que se ubique en predios destinados para dicha actividad según el mapa oficial de la urbanización.
