@@ -1,0 +1,2 @@
+Artículo 3º—Cantidad y plazo de autorizaciones: Los beneficiaros podrá gestionar una única autorización genérica de importación por tipo de bienes durante un período de tres meses. No obstante, puede solicitarse nuevamente la exención sobre los mismos bienes, con al menos un mes de anticipación al vencimiento del plazo.
+Durante el período de vigencia de la autorización genérica, sobre el mismo tipo de bien no podrán gestionarse nuevas solicitudes para este beneficio fiscal.
