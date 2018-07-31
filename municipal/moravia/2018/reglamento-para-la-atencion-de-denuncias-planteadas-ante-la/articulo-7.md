@@ -1,0 +1,1 @@
+Artículo 7º—La denuncia anónima. No se dará trámite a las denuncias que sean presentadas en forma anónima. En casos excepcionales podrá abrirse de oficio una investigación preliminar, cuando se reciban elementos de prueba que den mérito para ello. En caso contrario, la autoridad respectiva dispondrá su archivo sin más trámite.

@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de Competencia. La Auditoría Interna dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales cometidos por los funcionarios municipales o personas u organizaciones privadas en relación con fondos públicos transferidos por la Municipalidad.

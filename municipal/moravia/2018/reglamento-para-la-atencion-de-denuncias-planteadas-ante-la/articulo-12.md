@@ -1,0 +1,1 @@
+Artículo 12.—Remisión y recepción del informe. El informe deberá ser remitido al alcalde o al Concejo Municipal, según la dependencia del funcionario que se investigue, con las respectivas recomendaciones. De tratarse de funcionarios de elección popular se remitirá el Informe a la Contraloría General de la República o al Tribunal Supremo de Elecciones.
