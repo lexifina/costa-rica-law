@@ -1,0 +1,3 @@
+CAPÍTULO V
+De las Obligaciones de las y los integrantes de la Comisión
+Artículo 15.—Asistir puntualmente a las reuniones para las que fuesen convocadas/os, personalmente, vía teléfono, correo electrónicos o por escrito por la o el presidente. Si alguna de la/os integrantes faltase a una sesión, debe justificarla ante la o el presidente de la Comisión y si incurriere en tres ausencias consecutivas sin justificación el/la Presidente/a Municipal previo informe o dictamen enviado al Concejo Municipal, deberá sustituir a esta/e integrante. El Quórum estará formado por la mitad más una/o de las/os miembras/os de la Comisión.

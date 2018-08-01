@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del nombramiento de la Comisión
+Artículo 8º—Esta Comisión estará integrada de acuerdo a lo señalado en el Código Municipal, con tres o más miembros/as, representantes de los partidos políticos presentes en el Concejo, designadas por la presidencia, las cuales deben escogerse necesariamente dentro de las regidoras/es, propietarios, también pueden integrarla empleadas/os Municipales y líderes/as comunales, que tendrán voz y sin voto, así como una asesora, que será la encargada de la OFIM. La presidencia Municipal deberá realizar la juramentación solemne y formal de las personas integrantes de la Comisión.

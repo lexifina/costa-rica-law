@@ -1,0 +1,1 @@
+Artículo 7º—Vigilar y garantizar el cumplimiento de la normativa interna sobre igualdad y equidad de género. Para esto la Comisión debe coordinar a través del Concejo Municipal con diferentes instancias, el desarrollo de proyectos relativos a la promoción y defensa de los derechos de las mujeres y la igualdad de género.

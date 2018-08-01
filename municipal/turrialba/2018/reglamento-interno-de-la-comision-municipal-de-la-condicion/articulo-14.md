@@ -1,0 +1,1 @@
+Artículo 14.—La Comisión deberá, en forma obligatoria, presentar ante el Concejo Municipal cada seis meses calendario, un informe completo de las labores realizadas como de aquellas pendientes para resolver.
