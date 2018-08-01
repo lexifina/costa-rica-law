@@ -1,1 +1,1 @@
-Artículo 13.—Renovación genérica. La Dirección General o el ente administrador, durante la primera quincena de diciembre, podrá renovar genéricamente el plazo de los permisos concedidos.
+Artículo 13.—Renovación automática. La Dirección Administrativa, durante la primera quincena de diciembre, podrá renovar automáticamente el plazo de los permisos concedidos.

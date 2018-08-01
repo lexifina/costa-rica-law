@@ -14,3 +14,4 @@ Reglamento para el uso de las áreas de estacionamientos sede central del Regist
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-01 | la propia norma |
+| 2 | 2018-08-01 | Reglamento 29 (2018-08-01) |

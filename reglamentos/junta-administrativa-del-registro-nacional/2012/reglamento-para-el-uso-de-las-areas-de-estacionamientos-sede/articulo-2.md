@@ -1,1 +1,1 @@
-Artículo 2º—Finalidad. El área de estacionamiento es para uso de los vehículos oficiales del Registro, sin embargo la Dirección General de manera discrecional y de conformidad con los parámetros que indica el presente Reglamento asignará los espacios restantes.
+Artículo 2º—Finalidad. El área de estacionamiento es para uso de los vehículos oficiales del Registro, sin embargo, la Dirección Administrativa de conformidad con los parámetros que indica el presente Reglamento asignará los espacios restantes.
