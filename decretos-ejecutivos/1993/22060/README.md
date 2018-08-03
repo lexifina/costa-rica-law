@@ -20,3 +20,4 @@ Reglamento autónomo de servicios de la Dirección General de Migración y Extra
 | 5 | 2006-10-09 | Decreto Ejecutivo 33481 (2006-10-09) |
 | 6 | 2007-01-30 | Decreto Ejecutivo 33655 (2007-01-30) |
 | 7 | 2007-03-22 | Decreto Ejecutivo 33791 (2007-03-22) |
+| 8 | 2018-08-03 | Decreto Ejecutivo 41416 (2018-08-03) |
