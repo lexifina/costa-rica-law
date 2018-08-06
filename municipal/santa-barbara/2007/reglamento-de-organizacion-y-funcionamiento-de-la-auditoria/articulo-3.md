@@ -1,1 +1,0 @@
-Artículo 3º—Ámbito de la Auditoría Interna. Este Reglamento aplica a todas las dependencias de la Municipalidad de Santa Bárbara así como a otras organizaciones públicas o privadas, en el tanto manejen por cualquier título fondos públicos que les sean transferidos por dicho Municipio.
