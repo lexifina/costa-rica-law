@@ -1,1 +1,0 @@
-Artículo 11.—Una vez firmado el contrato, el funcionario no podrá ejercer la profesión comprometida con dicha exclusividad, ni actividades relacionadas con esta o con su cargo, si no es con la Municipalidad de Parrita, misma con quien firmó el contrato.

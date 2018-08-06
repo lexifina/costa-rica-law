@@ -1,1 +1,0 @@
-Artículo 2º—Se entenderá por porcentaje adicional sobré el salario basé, la retribución que hará la Municipalidad de Parrita a los trabajadores y trabajadoras que tengan un grado académico profesional y que opten por acogerse al régimen de Dedicación Exclusiva en la forma que lo fija este Reglamento en los artículos siguientes.
