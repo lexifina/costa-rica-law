@@ -1,4 +1,6 @@
+(Derogado)
 DIRECCIÓN GENERAL DE ADUANAS
+(Esta norma se dejó sin efecto por el punto 9) de la resolución N° RES-DGA-DGT-023-2018 del 6 de agosto de 2018, “Implementa el registro en línea de conductores costarricenses utilizados para el tránsito nacional e internacional terrestre, así como para transportistas de empresas de zona franca, categorías 1023, 1021 y 1025 respectivamente”.)
 Res-DGA-079-2015.—Dirección General de Aduanas, San José, a las diez horas con treinta minutos del diez de abril del dos mil quince.
 Considerando:
 I.—Que mediante Ley N° 7557 del 20 de octubre de 1995 publicada en La Gaceta N° 212 del 08 de noviembre de 1995 y sus reformas, Costa Rica aprueba la Ley General de Aduanas y con Decreto Ejecutivo N° 25270-H del 14 de junio de 1996, publicado en Alcance N° 37 a La Gaceta N° 123 del 2/06/1996, aprueba el Reglamento a la Ley General de Aduanas.

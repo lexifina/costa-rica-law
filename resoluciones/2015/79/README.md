@@ -14,3 +14,4 @@ Implementación del registro en línea de conductores costarricenses utilizados 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-04-20 | la propia norma |
+| 2 | 2018-08-06 | Resolución 23 (2018-08-06) |
