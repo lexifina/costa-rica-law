@@ -14,3 +14,4 @@ Directrices para la resolución del cobro de multas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-07-21 | la propia norma |
+| 2 | 2018-08-07 | Directriz 0 (2018-08-07) |
