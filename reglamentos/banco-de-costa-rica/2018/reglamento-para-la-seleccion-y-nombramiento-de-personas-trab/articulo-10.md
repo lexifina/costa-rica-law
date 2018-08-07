@@ -1,0 +1,7 @@
+Capítulo X
+De la escogencia y nombramiento
+Artículo 10
+Finalizada la fase de evaluación de competencias, la Gerencia Corporativa de Capital Humano dentro de un plazo no mayor a cinco días hábiles, remitirá a la Junta Directiva General, a la Gerencia General o al auditor general corporativo, según corresponda, un informe sobre el resultado del trámite realizado donde se hará constar el detalle de información referida cada persona participante. Solamente las personas que obtengan una nota igual o superior a 85 se considerarán como elegibles.
+La Junta Directiva General, la Gerencia General o el auditor general corporativo podrá designar a una persona representante suyo, o bien, al superior jerárquico inmediato del área donde se encuentra el puesto vacante, para realizar la entrevista a las personas elegibles y documentarla, con el fin de contar con mayores elementos para realizar la escogencia o no de la persona candidata. La entrevista deberá llevarse a cabo dentro de un plazo no mayor a cinco días hábiles, contados a partir del recibo del informe de resultados.
+Realizada la escogencia se le comunicará en un plazo no mayor a tres días hábiles a la Gerencia Corporativa de Capital Humano para que realice el nombramiento correspondiente y se le comunique a las personas elegibles, el resultado del proceso.
+De no ser positiva la entrevista el Órgano competente donde se encuentra la plaza vacante, declinará la escogencia.
