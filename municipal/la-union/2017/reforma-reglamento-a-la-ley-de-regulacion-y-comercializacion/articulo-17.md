@@ -1,0 +1,4 @@
+Artículo 17.—Se modifica el Artículo 28 para que se lea de la siguiente manera:
+“Artículo 28.—Sanciones relativas a la venta y permanencia de menores de edad y de personas con limitaciones cognoscitivas y volitivas. Será sancionado con una multa de dos salarios base, a quien por primera vez realice los actos tipificados en el Artículo 16 de la Ley 9047 durante la vigencia de su licencia.
+Será sancionado el Patentado con cinco salarios base, quien por segunda vez realice los actos tipificados en el Artículo 16 de la Ley 9047 durante la vigencia de su licencia.
+En caso de reincidencia, se procederá a realizar el Procedimiento Administrativo correspondiente, de acuerdo con el Código Municipal y la Ley General de la Administración Pública, con el fin de proceder a cancelar la licencia otorgada, sin perjuicio de las demás responsabilidades civiles y penales del caso.”

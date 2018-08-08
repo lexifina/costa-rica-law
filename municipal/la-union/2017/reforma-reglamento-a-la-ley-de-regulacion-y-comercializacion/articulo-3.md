@@ -1,0 +1,2 @@
+Artículo 3º—Se modifica el inciso d) del Artículo 2º para que se lea de la siguiente manera:
+“d) Comisión: Comisión Administrativa encargada de presentar a la Alcaldía en un lapso no mayor a 10 días hábiles un informe sobre el cumplimiento de los requisitos establecidos en la Ley 9047 y sus reformas; de las solicitudes de nuevas licencias de regulación y comercialización de bebidas con contenido alcohólico y licencias temporales.”

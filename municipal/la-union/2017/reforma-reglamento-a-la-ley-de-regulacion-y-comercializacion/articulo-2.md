@@ -1,0 +1,4 @@
+Artículo 2º—Se adiciona un último párrafo al inciso c) del Artículo 2º (se resalta en negrita) para que se lea de la siguiente manera:
+“Artículo 2º—Definiciones. Para efectos de este reglamento, se entenderá por:
+(...)
+c) Centro Comercial: Construcción que consta de uno o varios edificios, que albergan locales y oficinas comerciales aglutinados en un espacio determinado concentrando mayor cantidad de clientes potenciales dentro del recinto y que cuenta con la existencia de una o más tiendas ancla:” Esto es las tiendas por departamentos o hipermercados presentes en el centro comercial; oficinas de servicios públicos, cines y cualesquiera otros que se ajuste a lo descrito; siempre y cuando formen parte de un conjunto para el cual se provean facilidades de estacionamiento público y de carga o descarga de mercaderías fuera de las calles.

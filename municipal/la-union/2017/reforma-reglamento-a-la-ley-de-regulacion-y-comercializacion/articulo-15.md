@@ -1,0 +1,2 @@
+Artículo 15.—Se modifica el Artículo 26 para que se lea de la siguiente manera:
+“Artículo 26.—Medida Cautelar: El Alcalde o Alcaldesa Municipal podrá dictar una medida cautelar por el plazo de veinticuatro horas, cuando en un establecimiento autorizado para la venta de licores se produzcan alteraciones a la tranquilidad o el orden público, se cometan faltas a la moral, esté en peligro la vida, se distribuya o consuma drogas, o cuando se violaren las disposiciones legales o reglamentarias que regulen su funcionamiento tanto permanente o temporal.”

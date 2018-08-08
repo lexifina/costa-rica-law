@@ -1,0 +1,2 @@
+Artículo 4º—Se modifica el inciso k) del Artículo 2º para que se lea de la siguiente manera:
+“k) Minisúper: Negocio dedicado a la venta de productos de la canasta básica y otros adicionales, con áreas destinadas a la exhibición y venta de alimentos y productos de consumo diario, en el cual las personas toman de los estantes los productos que quieren comprar y pagan por ellos cuando salen. Habilitan únicamente para la comercialización de bebidas con contenido alcohólico al detalle, en envase cerrado para llevar y sin que se pueda consumir dentro del establecimiento.”

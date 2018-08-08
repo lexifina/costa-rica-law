@@ -1,0 +1,2 @@
+Artículo 10.—Se modifica el Artículo 13 para que se lea de la siguiente manera:
+“Artículo 13.—Plazo para resolver. La Municipalidad por medio del Alcalde o Alcaldesa Municipal deberá emitir la resolución debidamente motivada otorgando o denegando la licencia en un plazo máximo de treinta días naturales contados a partir del día siguiente hábil o la presentación de la solicitud. Lo anterior de conformidad con el artículo 80 del Código Municipal.”
