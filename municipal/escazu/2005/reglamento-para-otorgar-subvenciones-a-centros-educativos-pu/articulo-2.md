@@ -1,1 +1,0 @@
-Artículo 2º—Contenido Presupuestario. Las ayudas para subvencionar a Centros de Educación Pública, de beneficencia y servicio social establecidos en el cantón de Escazú, se incorporarán las partidas respectivas en los documentos presupuestarios, siguiendo los lineamientos establecidos por la Contraloría General de la República.

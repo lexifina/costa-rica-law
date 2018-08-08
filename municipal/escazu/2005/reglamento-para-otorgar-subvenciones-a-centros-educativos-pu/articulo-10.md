@@ -1,1 +1,0 @@
-Artículo 10.—Derogaciones. Este Reglamento deroga todas las disposiciones municipales anteriores sobre la materia aquí Reglamentada y específicamente el reglamento publicado en el Diario Oficial La Gaceta número treinta y uno del lunes quince de febrero de mil novecientos noventa y nueve.
