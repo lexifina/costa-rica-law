@@ -1,0 +1,1 @@
+Artículo 10.—Se aprueba el presente reglamento según acuerdo de Junta Directiva JD-646, correspondiente al capítulo IV), artículo 11) de la sesión ordinaria N° 33-2018 celebrada el día 02 de julio de 2018.

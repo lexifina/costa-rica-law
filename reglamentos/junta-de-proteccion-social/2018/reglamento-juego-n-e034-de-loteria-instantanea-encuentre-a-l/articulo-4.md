@@ -1,0 +1,2 @@
+Artículo 4°—Cambio de premios: el jugador podrá hacer efectivos los premios instantáneos obtenidos en las oficinas centrales de la Junta de Protección Social y en las agencias autorizadas. Los premios del área desprendible se canjean en el Departamento de Mercadeo.
+La Junta no pagará premios contra boletos que presenten alteraciones o roturas que hagan dudar de su legitimidad, o si el boleto no está incluido en la Lista Oficial de Validación.
