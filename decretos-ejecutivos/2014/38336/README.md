@@ -14,3 +14,4 @@ Publica Resolución N° 331-2013 (COMIECO-LXVI) de fecha 12-12-2013: Aprobación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-29 | la propia norma |
+| 2 | 2018-08-08 | Decreto Ejecutivo 41389 (2018-08-08) |
