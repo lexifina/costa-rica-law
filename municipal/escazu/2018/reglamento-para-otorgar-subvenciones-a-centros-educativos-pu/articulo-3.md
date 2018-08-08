@@ -1,0 +1,1 @@
+Artículo 3º—Desembolso de recursos. El desembolso de recursos a quien le resulte aplicable este reglamento está condicionado a que obtenga la calificación de idoneidad para administrar fondos públicos, otorgada por el Concejo Municipal, así como al cumplimiento de las disposiciones contenidas en el presente Reglamento.

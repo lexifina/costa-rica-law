@@ -1,0 +1,1 @@
+Artículo 2º—Asignación Presupuestaria para el otorgamiento de subvenciones. La Municipalidad incluirá en su presupuesto ordinario o mediante los mecanismos de variaciones al presupuesto, las partidas presupuestarias correspondientes para dar contenido a las subvenciones mencionadas en el artículo anterior.

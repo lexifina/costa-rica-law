@@ -1,0 +1,1 @@
+Artículo 8º—Entrega incompleta de información. La entrega incompleta de la información requerida para tramitar la subvención será prevenida una única vez, la Municipalidad no gestionará las subvenciones si la documentación no se encuentra completa.

@@ -1,0 +1,1 @@
+Artículo 9º—Sobre los beneficiarios de subvenciones. Podrán ser beneficiadas con una subvención (fondos públicos), aquellos Centros Educativos Públicos del Cantón y las organizaciones de beneficencia o servicio social que se ajusten a lo establecido en este reglamento.

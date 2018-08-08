@@ -1,0 +1,14 @@
+Artículo 6º—Definiciones. Para la aplicación del presente Reglamento y la interpretación del mismo, se entiende por:
+a) Municipalidad: Municipalidad de Escazú.
+b) Calificación de idoneidad: Constituye el pronunciamiento del Concejo Municipal que reconoce la cualidad de un sujeto privado de ser apto para administrar fondos públicos.
+c) Centro Educativo Público: Comprende básicamente kínder o jardín de niños y preescolar, escuelas y colegios financiados por el Ministerio de Educación Pública, que estén asentados en el Cantón de Escazú.
+d) Certificaciones: Documentos probatorios sobre condiciones específicas de los sujetos que pretenden administrar fondos públicos. Las certificaciones que deban presentar los sujetos privados no deberán tener más de un mes de emitidas.
+e) Departamento Encargado o Área Técnica: Departamento de la Municipalidad de Escazú que tiene bajo su competencia y ámbito de acción las materias afines a los proyectos para los cuales se van a utilizar los fondos públicos solicitados.
+f) Fondos Públicos: Conjunto de dinero y valores existentes en el erario público, y además las obligaciones activas a favor del Estado y las corporaciones públicas, como impuestos y derechos pendientes de pago; y títulos o signos representativos de la deuda pública.
+g) Organizaciones de Beneficencia o Servicio Social: Son las entidades públicas o privadas, organizadas bajo las figuras de asociaciones, fundaciones o empresas públicas, que se dediquen a la atención de personas en riesgo social, que promuevan y desarrollen obras, proyectos, programas o actividades de bien común o de carácter social, que coadyuven al mejoramiento del nivel de vida de la comunidad de Escazú y desarrollen este tipo de proyectos, directamente en el Cantón de Escazú.
+h) Órgano Contralor: Llámese así a la Contraloría General de la República.
+i) Precalificación de idoneidad: Constituye el pronunciamiento de la Alcaldía Municipal basado en el dictamen del Sub Proceso de Asuntos Jurídicos, para determinar la aptitud de un sujeto privado para administrar fondos públicos.
+j) Reglamento: Normativa aprobada por el Concejo Municipal de Escazú que regula lo concerniente al reglamento sobre requisitos mínimos que deben presentar los sujetos privados para obtener la calificación de idoneidad y una subvención en el cantón de Escazú.
+k) Sujetos Privados: Cualquier persona jurídica que opte por obtener la precalificación de idoneidad para administrar fondos públicos en el cantón de Escazú.
+l) Superior Jerarca: Llámese así a quien ocupe el cargo de alcalde o alcaldesa en propiedad de la Municipalidad de Escazú, durante el lapso de la precalificación y quien emitirá el dictamen favorable o desfavorable de la solicitud ante el Concejo Municipal.
+m)Concejo Municipal: Órgano Colegiado encargado de aprobar la subvención solicitada, así como la solicitud de idoneidad para administrar fondos públicos que presenta el sujeto privado.

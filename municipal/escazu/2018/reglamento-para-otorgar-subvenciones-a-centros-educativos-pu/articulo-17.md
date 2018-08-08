@@ -1,0 +1,1 @@
+Artículo 17.—Renovación de la Calificación de Idoneidad. El sujeto privado al que se le venza la calificación de idoneidad deberá iniciar de nuevo el procedimiento previsto en este Reglamento para recibir nuevos recursos de acuerdo con este reglamento.

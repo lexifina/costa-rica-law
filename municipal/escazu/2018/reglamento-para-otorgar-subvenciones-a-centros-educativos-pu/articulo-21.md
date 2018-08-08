@@ -1,0 +1,1 @@
+Artículo 21.—Obligatoriedad. El presente Reglamento es de acatamiento obligatorio y deroga el reglamento anterior publicado en La Gaceta Nº 235 del seis de diciembre de 2005 y prevalecerá sobre aquellas otras disposiciones emitidas por la administración en lo que se le opongan.”
