@@ -1,0 +1,1 @@
+Artículo 9°—EI Médico Especialista en Anestesiología y Recuperación integra y coordina grupos de trabajo relacionados con su especialidad y Servicio o Departamento, intra e interinstitucionales, así como intersectoriales.

@@ -1,0 +1,1 @@
+Artículo 11.—Docencia: Podrá participar en la formación académica universitaria de pregrado, grado y posgrado de los profesionales en Medicina y Cirugía, en la Especialidad de Anestesiología y Recuperación, otras especialidades médicas y demás Ciencias de la Salud.

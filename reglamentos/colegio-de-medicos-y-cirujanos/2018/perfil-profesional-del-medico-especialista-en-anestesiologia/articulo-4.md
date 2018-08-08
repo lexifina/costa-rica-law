@@ -1,0 +1,1 @@
+Artículo 4°—El Médico Especialista en Anestesiología y Recuperación, debidamente incorporado corno tal ante el Colegio de Médicos y Cirujanos de Costa Rica, es el único médico autorizado para ejercer esta especialidad de Anestesiología y Recuperación en Costa Rica.
