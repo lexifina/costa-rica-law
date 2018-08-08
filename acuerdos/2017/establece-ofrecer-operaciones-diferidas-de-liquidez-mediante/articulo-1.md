@@ -16,9 +16,5 @@ G. En procura de la neutralidad de la participación del Banco Central en el MIL
 H. Las tasas de interés para los nuevos plazos de la facilidad permanente de crédito deben ser consecuentes con las tasas de interés del mercado.
 dispuso, por unanimidad y en firme:
 1. Ofrecer Operaciones diferidas de liquidez mediante la facilidad permanente de crédito en el Mercado Integrado de Liquidez a los plazos de 1, 7, 14, 28, 56 y 84 días.
-2. Establecer la metodología para la fijación de las tasas de interés de las Operaciones diferidas de liquidez mediante la facilidad permanente de crédito, a plazos superiores a un día, designando para su aplicación a la Comisión de Mercados.
-La metodología debe considerar lo siguiente:
-a) Tomará como referencia, para cada plazo especifico, la curva de rendimiento soberana que se calcula semanalmente, de acuerdo con lo establecido en el artículo 8, del acta de la sesión 5701-2015, del 23 de setiembre de 2015.
-b) Contará con un rango definido por un mínimo de 200 y un máximo de 700 puntos base sobre esa curva de referencia para establecer la tasa aplicable a cada plazo.
-c) La tasa de interés aplicable a estas operaciones será revisada al menos una vez a la semana.
+2. (Derogado este numeral mediante sesión N° 5837-2018 del 8 de agosto del 2018 “Establece la tasa de política monetaria (TPM) como valor de referencia en la fijación de las tasas de interés de las operaciones diferidas de liquidez mediante la facilidad permanente de crédito, a plazos superiores a un día”)
 3. Rige a partir del 1° de diciembre de 2017.
