@@ -1,1 +1,0 @@
-Artículo 10.—Colaboración Ad honorem. Además de las funciones señaladas, los Guías son colaboradores ad honorem del Instituto y el Ministerio del Ambiente y Energía, en la protección y vigilancia del Patrimonio Turístico Nacional, así como del Patronato Nacional de la Infancia en la lucha contra la explotación sexual de menores.

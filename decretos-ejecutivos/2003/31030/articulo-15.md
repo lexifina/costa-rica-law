@@ -1,1 +1,0 @@
-Artículo 15.—Solicitud de renovación de la credencial. Para la renovación de la credencial, los interesados deberán aportar certificado de cumplimiento con un curso de actualización de conocimientos, según el tipo de credencial y renovación del certificado de actualización de conocimientos de primeros auxilios y de respiración cardiopulmonar.

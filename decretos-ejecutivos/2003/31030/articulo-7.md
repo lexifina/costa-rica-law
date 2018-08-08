@@ -1,1 +1,0 @@
-Artículo 7º—Guía de Turismo Especializado. El guía de turismo especializado es aquel guía que presta sus servicios en actividades específicas que requieren conocimientos especializados como en observación de aves o en algunas de las actividades descritas en el reglamento para la operación de las empresas de turismo de aventura.

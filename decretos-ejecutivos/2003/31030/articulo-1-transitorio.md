@@ -1,4 +1,0 @@
-CAPÍTULO IX
-Disposiciones transitorias
-Transitorio único.—El Instituto podrá otorgar credenciales provisionales para guías de turismo de aventura, por un período máximo de un año, sólo prorrogable en casos calificados y valorados por la Junta Directiva del Instituto, a personas que no hayan cumplido con los requisitos establecidos en el artículo 11 inciso c) y d). Estas personas deben estar ejerciendo la profesión de Guía de turismo de aventura a la fecha de publicación de este Reglamento, al menos durante los dos últimos años, experiencia que deberán probar mediante certificaciones emitidas por Empresas Turísticas dedicadas a dicha actividad. A la vez, deben estar inscritas en los programas de formación indicados en la presente reglamentación, y demostrar que siguen estudios para optar por el Bachillerato de Enseñanza Media.
-Dado en la Presidencia de la República.—San José, a los diecisiete días del mes de enero del dos mil tres.

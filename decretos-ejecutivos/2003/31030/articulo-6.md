@@ -1,1 +1,0 @@
-Artículo 6º—Guía de Turismo General. El guía de turismo general es aquel guía que presta servicios de orientación, información y asistencia al turista, en materia histórica, natural, artística, cultural así como sobre cualquier otro aspecto que éste requiera para conocer nuestro patrimonio turístico y pueda utilizar eficazmente los servicios turísticos existentes.

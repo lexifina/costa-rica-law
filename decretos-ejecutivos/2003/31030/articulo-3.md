@@ -1,1 +1,0 @@
-Artículo 3º—Ente competente. El Instituto Costarricense de Turismo, en adelante denominado ICT, es la institución competente para la aplicación de las disposiciones del presente reglamento. El otorgamiento o renovación de la credencial para los guías de turismo, es facultad exclusiva del Instituto de acuerdo a los procedimientos señalados en este Reglamento.
