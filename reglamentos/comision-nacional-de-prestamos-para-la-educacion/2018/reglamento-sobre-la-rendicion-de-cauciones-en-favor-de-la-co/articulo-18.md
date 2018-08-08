@@ -1,0 +1,1 @@
+Artículo 18.—Revisión y actualización de procedimiento para el cálculo de la caución. Cada tres años a partir de la vigencia de este Reglamento, la Sección de Recursos Humanos en coordinación con la Asesoría Legal, realizará un estudio de actualización o ratificación del presente Reglamento.

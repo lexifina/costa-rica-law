@@ -1,0 +1,6 @@
+Artículo 16.—Control de las cauciones. El control de las cauciones será competencia de la Sección de Recursos Humanos, para lo cual deberá:
+a) Calcular según la fórmula y mantener actualizado, el monto de la caución que debe rendir los funcionarios obligados a ello, conforme a lo establecido en el presente reglamento y en apego al Artículo 14, incisos a, b y c.
+b) Revisar anualmente el cálculo de los montos, que por concepto de las garantías deben rendir los caucionantes, de conformidad con lo dispuesto en este Reglamento; siete días naturales posterior a la publicación del Boletín Judicial de la Corte Suprema de Justicia, en el Diario Oficial La Gaceta, donde se establece el salario base conforme a la Ley Nº 7337 del 5 de mayo de 1993.
+c) Asesorar y recomendar a la Comisión de Control Interno sobre las medidas y procedimientos que correspondan con el propósito de mantener montos de garantía apropiados.
+d) Informar al superior jerárquico y a la Sección de Recursos Humanos respecto de cualquier incumplimiento observado en el proceso de caución.
+e) Solicitar a la Sección de Recursos Humanos el registro de caucionantes o cualquier información adicional relacionada con el tema cuando así lo requiera.
