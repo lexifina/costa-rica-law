@@ -1,4 +1,5 @@
-Artículo 26.-Prórroga de adjudicación. El plazo de adjudicación de las licitaciones o contrataciones directas que estén por vencerse, podrán ser prorrogadas por la Sección Administrativa, aplicando las pautas establecidas en el artículo 87 y 136 del Reglamento a la Ley de Contratación Administrativa.
+Artículo 26.—Prórroga de adjudicación. El plazo de adjudicación de las licitaciones o contrataciones directas que estén por vencerse, podrán ser prorrogadas por la Sección Administrativa, aplicando las pautas establecidas en el artículo 87 y 144 del Reglamento a la Ley de Contratación Administrativa.
 Esta prórroga se dará por una única vez, en casos calificados, cuando resulte difícil para la Operadora resolver en el plazo estipulado en el cartel o invitación.
 La justificación de prórroga deberá contener las razones de interés público para tomar tal decisión; además, se debe indicar el tipo y número de contratación, descripción y monto de la compra, así como un cuadro donde se detallen las vigencias de las ofertas y de las garantías de participación si las hubiere, las cuales deben estar vigentes.
 La resolución de prórroga que se adopte deberá ser comunicada a las áreas involucradas para su debido control y seguimiento.
+(Así reformado mediante sesión N° 542 del 9 de agosto del 2018)

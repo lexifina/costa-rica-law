@@ -1,9 +1,14 @@
 Artículo 2-Definiciones Para efectos de la aplicación de este Reglamento, se definen los siguientes términos:
 Administración Superior: Estará constituida por la Junta Directiva de la Operadora y su Gerencia.
+(Así reformado el párrafo anterior en sesión N° 542 del 9 de agosto del 2018)
 Administrador de contrato u órgano Fiscalizador: Es el encargado de administrar los contratos de suministro de bienes y servicios que suscriba la Operadora con particulares o terceros, con el propósito de asegurar el fiel cumplimiento del objeto de la contratación, tanto cualitativa como cuantitativamente; el cual actuará también como contraparte institucional.
-Área Técnica: Dependencia de la Operadora, que en la fase del proceso de contratación administrativa, apoya a las Unidades Usuarias y/o Administrador del Contrato u órgano Fiscalizador, y que cuentan con un nivel de experticia en diferentes especialidades relacionadas con la contratación.
+(Así reformado el párrafo anterior en sesión N° 542 del 9 de agosto del 2018)
+Área Técnica: Dependencia de la Operadora que, en la fase del proceso de contratación administrativa, apoya a las Unidades Usuarias y/o Administrador del Contrato u Órgano Fiscalizador, y que cuentan con un nivel de experticia en diferentes especialidades relacionadas con la contratación.
+(Así reformado el párrafo anterior en sesión N° 542 del 9 de agosto del 2018)
 Dirección Jurídica: dependencia que brinda la asesoría jurídica y los servicios legales que en materia de contratación administrativa requiera la Operadora.
-Comisión de Licitaciones: Es el Órgano competente para resolver los diferentes procedimientos y trámites de contratación administrativa de toda índole, incluyendo las adjudicaciones, declaratorias desiertas o infructuosas, recursos de revocatoria u otros, propios de su competencia, que requieran ser resueltos por dicho Comité.
+(Así reformado el párrafo anterior en sesión N° 542 del 9 de agosto del 2018)
+Comisión de Licitaciones: Es el Órgano competente para resolver los diferentes procedimientos y trámites de contratación administrativa de toda índole, incluyendo las adjudicaciones, declaratorias desiertas o infructuosas, recursos de revocatoria u otros, propios de su competencia, que requieran ser resueltos por dicha Comisión.
+(Así reformado el párrafo anterior en sesión N° 542 del 9 de agosto del 2018)
 Contratación Directa: Materias excluidas legalmente de los procedimientos ordinarios de contratación que podrán ser objeto de negociación directa entre la Administración y el contratante, en el tanto la Administración actúe en ejercicio de su competencia y el contratante reúna los requisitos de idoneidad legal, técnica y financiera para celebrar el respectivo contrato.
 Contratista: Es la persona física o jurídica que ha sido adjudicado por la Operadora para la ejecución de un contrato.
 Debido proceso: Cumplimiento de un procedimiento que garantice y asegurar a los participantes de un proceso de contratación administrativa, el derecho a ser escuchado en el proceso en que se juzga su conducta, con oportunidad de exponer y probar sus derechos.

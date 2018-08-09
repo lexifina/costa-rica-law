@@ -12,5 +12,6 @@ COMUNAL
 (Nota de Sinalevi. La presente norma fue reformada parcialmente y reproducido su texto de forma íntegra mediante sesión ordinaria N° 507 del 9 de marzo del 2017, publicada en el Alcance Digital N° 273 a La Gaceta N° 215 del 14 de noviembre del 2017, por lo que se reproduce a continuación:)
 CAPÍTULO I
 Generalidades
-Artículo 1-Régimen Jurídico Aplicable La actividad de contratación administrativa de la Operadora se rige por las normas y principios del ordenamiento jurídico administrativo, los cuales se aplicarán en lo que corresponda y según lo establecido en los artículos Nos. 2 y 4 del Reglamento a la Ley de Contratación Administrativa, Decreto Ejecutivo NO 33411 -H del 27 de setiembre del 26.
+Artículo 1º—Artículo 1º—Régimen Jurídico. Aplicable la actividad de Contratación Administrativa de la Operadora se rige por las normas y principios del ordenamiento jurídico administrativo, los cuales se aplicarán en lo que corresponda y según lo establecido en los artículos N°s. 2 y 4 del Reglamento a la Ley de Contratación Administrativa, Decreto Ejecutivo N° 33411-H del 27 de setiembre del 2006.
 Asimismo, se aplicarán las disposiciones generales que emita la Contraloría General de la República, reglamentos y normativa especiales que sobre la materia se llegaren a dictar, las disposiciones del Reglamento Complementario de Contratación Administrativa del Conglomerado Banco Popular y de Desarrollo Comunal y las presentes normas.
+(Así reformado mediante sesión N° 542 del 9 de agosto del 2018)
