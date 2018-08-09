@@ -16,3 +16,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría Interna del Colegi
 | 1 | 2007-12-20 | la propia norma |
 | 2 | 2014-07-28 | Reglamento 65 (2014-07-28) |
 | 3 | 2015-09-24 | Reglamento 89 (2015-09-24) |
+| 4 | 2018-08-09 | Reglamento 69 (2018-08-09) |
