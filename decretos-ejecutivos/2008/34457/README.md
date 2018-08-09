@@ -14,3 +14,4 @@ Reglamento de organización y funciones de la auditoría interna del Ministerio 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-05-02 | la propia norma |
+| 2 | 2018-08-09 | Decreto Ejecutivo 41402 (2018-08-09) |

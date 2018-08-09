@@ -1,2 +1,2 @@
-Artículo 36.—Contenido y aspectos generales de los informes y su comunicación.
-Los informes, en cuanto a su contenido, criterios y todo lo concerniente a la formalidad de los mismos, así como el proceso de su comunicación deberán respetar lo preceptuado en la norma 2.5 del Manual de Normas para el Ejercicio de la Auditoría Interna en el Sector Público, así como en las normas 308, 405 y 505 del Manual de Normas Generales de Auditoría para el Sector Público.
+Artículo 36.—Contenido y aspectos generales de los informes y su comunicación. Los informes en cuanto a su contenido, criterios y todo lo concerniente a la formalidad de los mismos, así como el proceso de su comunicación deberá observar lo dispuesto en la Ley General de Control Interno, Normas para el Ejercicio de la Auditoría en el Sector Público y Normas Generales de Auditoría para el Sector Público.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41402 del 9 de agosto de 2018)
