@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Las disposiciones de las presentes directrices aplican a los distintos procesos de trabajo de éste órgano contralor en cuanto al manejo de la información de acceso restringido.

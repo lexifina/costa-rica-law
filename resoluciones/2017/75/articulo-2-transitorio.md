@@ -1,0 +1,2 @@
+Transitorio II.—Las Gerencias de cada División y el Despacho Contralor deberán ajustar las normas, procedimientos y protocolos internos para adecuarlos a las presentes directrices, dentro del año siguiente a su entrada en vigencia. Lo referente a los ajustes de seguridad o de otro tipo que requieran los sistemas de información deberán estar implementados dentro de los nueve meses siguientes a la entrada en vigencia de la presente política.
+Publíquese.

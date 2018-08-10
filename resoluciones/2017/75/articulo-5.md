@@ -1,0 +1,1 @@
+Artículo 5º—Sustento constitucional o legal como fundamento para restringir el acceso a la información. La información en poder de la Contraloría General se considera de acceso público, salvo cuando con fundamento en el Derecho de la Constitución o la ley pueda ser calificada motivadamente como de acceso restringido.
