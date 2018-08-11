@@ -1,1 +1,3 @@
-Artículo 37.—(El texto de presente artículo se encuentra en el artículo 36 toda vez que mediante Fe de Erratas publicada en La Gaceta N° 165 del 28 de agosto del 2012 página 79, que ordenó derogar el numeral 30 original y modificar la numeración del presente reglamento)
+CAPÍTULO TERCERO
+Suspensión o nulidad de un Certificado
+Artículo 37. Una vez emitido el Certificado no procederá ningún cambio. En caso de detectarse algún error éste se deberá anular y ha de solicitarse a la Fiscalía el procedimiento de corrección.

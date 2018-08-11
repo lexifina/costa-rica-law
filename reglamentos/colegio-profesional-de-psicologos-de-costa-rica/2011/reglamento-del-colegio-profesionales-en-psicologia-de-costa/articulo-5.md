@@ -1,2 +1,5 @@
-Artículo 5º—La evaluación a que hace referencia este Reglamento no es un proceso de terapia o de diagnóstico clínico y, mucho menos un mero procedimiento de aplicación de pruebas. En concordancia, la persona evaluada, como primer paso obligatorio del proceso de evaluación, deberá firmar un documento de consentimiento informado que formará parte de su expediente, en el que autoriza mostrar la información pertinente a la Fiscalía o Tribunal de Honor del Colegio, en el que acepta que ha sido advertida acerca de la inconveniencia de armarse, admite conocer los riesgos a los que pueda verse sometida, tanto en lo personal como en cuanto a otras personas cercanas y asume plena responsabilidad, civil y penal por el uso del arma, tanto de su parte como el que otras personas puedan realizar con esta, incluso personas menores de edad.
-(Así reformado en sesión N° 78 del 15 de octubre de 2011. (Ver transitorio a la norma que realizó la reforma)
+TÍTULO II: PROCEDIMIENTO ADMINISTRATIVO DE LAS AUTORIDADES INVOLUCRADAS EN EL PROCESO DE ACREDITACIÓN DE
+PROFESIONALES EN PSICOLOGÍA
+CAPÍTULO PRIMERO
+De la Junta Directiva
+Artículo 5. Del presupuesto operativo. La Junta Directiva asignará a la Comisión un presupuesto de conformidad con el plan de trabajo presentado, que se cargará a la partida del presupuesto institucional que corresponda, el cual se aprobará en la asamblea general realizada anualmente.

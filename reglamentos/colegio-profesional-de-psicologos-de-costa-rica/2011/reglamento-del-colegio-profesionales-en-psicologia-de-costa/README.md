@@ -16,3 +16,4 @@ Reglamento del Colegio Profesionales en Psicología de Costa Rica para realizar 
 | 1 | 2011-09-07 | la propia norma |
 | 2 | 2011-10-15 | Reglamento 78 (2011-10-15) |
 | 3 | 2012-10-11 | Reglamento 83 (2012-10-11) |
+| 4 | 2018-08-11 | Reglamento 114 (2018-08-11) |

@@ -1,2 +1,2 @@
-Artículo 10.—Los y las profesionales en psicología son responsables por el incumplimiento de sus obligaciones y deberes profesionales, así como por la violación de las leyes y sus reglamentos. Esta responsabilidad puede ser administrativa, civil o penal.
-Carecerá de validez cualquier manifestación de las partes en que los o las profesionales sean relevados de responsabilidad por el incumplimiento de sus obligaciones.
+Artículo 10. El Colegio, por medio de la Oficina de Capacitaciones y en coordinación con la Comisión, realizará cursos de formación y actualización, de acuerdo con las necesidades de las personas profesionales habilitadas, para preparar en el Proceso de Evaluación de Idoneidad Mental.
+Estas personas están en la obligación de asistir a los cursos de certificación y recertificación (en este último caso, según se indica en el artículo 20, inciso F) a los que se les convoque.

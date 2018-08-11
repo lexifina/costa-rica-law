@@ -1,1 +1,1 @@
-Artículo 27.—El o la Profesional serán depositarios y responsables de la guarda y conservación de los formularios que adquieran y tendrán la responsabilidad de la entrega oportuna de los certificados emitidos, ante el Ministerio y el Colegio.
+Artículo 27. La persona profesional a cargo de la evaluación deberá informar a quien se evalúa acerca de las implicaciones de incurrir en riesgos derivados de la portación y posesión de armas de fuego o por laborar en seguridad privada.

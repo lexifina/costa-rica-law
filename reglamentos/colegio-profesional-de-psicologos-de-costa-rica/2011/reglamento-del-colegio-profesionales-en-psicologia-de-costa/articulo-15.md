@@ -1,15 +1,1 @@
-Artículo 15.—Para la emisión del dictamen es obligación del o la Profesional confeccionar para cada caso un expediente psicológico, el cual podrá ser solicitado por razones fundadas por la Fiscalía del Colegio.
-(Así reformado el párrafo anterior en sesión N° 78 del 15 de octubre de 2011. (Ver transitorio a la norma que realizó la reforma)
-Dicho expediente deberá tener como mínimo la siguiente información:
-A) Los datos personales de la persona evaluada, como el nombre y los apellidos, número de cédula de identidad o documento de identificación en caso de ser extranjero, estado civil, profesión, y domicilio actual. Adicionalmente, podrá indicar número telefónico, fax o correo electrónico.
-B) Lugar, fecha, hora de inicio y finalización de la evaluación psicológica y de la emisión del dictamen, según lo establecen los artículos 29 y 30 del Reglamento a la Ley de Armas y Explosivos.
-C) Indicar los instrumentos o técnicas que sirvieron de base para llegar al diagnóstico final.
-D) Fotocopia del documento de identidad vigente (al día), que corresponda con los datos especificados en el inciso A) de este artículo.
-E) Copia del dictamen de idoneidad mental que emita el o la profesional para la persona evaluada con la firma de recibido de este.
-F) Nombre, código y firma, tanto del o la profesional que evaluó como nombre y firma de la persona evaluada, en cada uno de los folios del expediente (según Decreto Ejecutivo Nº 3183, artículo 33).
-(Así reformado el inciso anterior en sesión N° 78 del 15 de octubre de 2011.(Ver transitorio a la norma que realizó la reforma)
-G) Protocolo de los instrumentos psicológicos y técnicas utilizadas (entrevista psicológica, pruebas psicológicas, examen mental; en relación con las pruebas psicológicas deberá incluirse las hojas de respuesta de cada una calificadas e interpretadas, con tabulaciones, sumatoria de resultados y gráficos, si los tuvieren, así como la respectiva integración de la información recabada.
-(Así reformado el inciso anterior en sesión N° 78 del 15 de octubre de 2011. (Ver transitorio a la norma que realizó la reforma)
-H) Copia de las facturas timbradas, donde se refleje el monto cobrado.
-I) Consentimiento informado, según formato aprobado por el Colegio, debidamente firmado por la persona evaluada, en el cual autoriza mostrar la información pertinente derivada de su dictamen a las instancias correspondientes del Colegio, y hace constar que ha sido informada de la inconveniencia de poseer y portar armas y de los riesgos subsecuentes para ella u otras personas. Asimismo, se incluirá en este, la declaración jurada de la persona evaluada, la cual indica que la información suministrada, es veraz.
-Dicho expediente deberán conservarse por el o la profesional por un plazo de diez años, luego del cual deberán conservar un registro de todos los dictámenes emitidos durante todo el plazo que se encuentre con habilitación, donde se indique el nombre de la persona evaluada, la fecha y el número de emitido y si fue considerada apta o no.
+Artículo 15. Organización interna. La Comisión contará con una persona designada como coordinadora por la Junta Directiva. La Comisión, por mayoría simple, designará un secretario o una secretaria, correspondiendo a la coordinación comunicar formalmente a la Junta Directiva.

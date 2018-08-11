@@ -1,1 +1,1 @@
-Artículo 21.—El certificado en que se emite el dictamen, debe llenarse en idioma español.
+Artículo 21. Curso de formación. Toda persona profesional que pretenda realizar evaluaciones psicológicas para procesos de idoneidad mental para la posesión y portación de armas de fuego o laborar en seguridad privada, debe realizar y aprobar el curso de aprovechamiento, el cual constará de cincuenta (50) horas, como mínimo, y que deberá ser aprobado según lo establecido en el artículo 20, inciso e), de este Reglamento.

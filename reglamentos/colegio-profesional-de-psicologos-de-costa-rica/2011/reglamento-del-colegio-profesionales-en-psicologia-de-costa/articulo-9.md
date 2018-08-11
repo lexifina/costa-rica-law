@@ -1,1 +1,4 @@
-Artículo 9º—Los y las profesionales en psicología que deseen habilitación para emitir dictámenes para la portación y posesión de armas o que estén ejerciendo esta función profesional y tengan antecedentes penales en su hoja de delincuencia, que no sean incompatibles con la realización de evaluaciones para poseer y portar armas, deberán ser evaluados por una Comisión conformada por tres miembros del Colegio como mínimo, quienes valorarán la aptitud profesional para la realización de las evaluaciones. Corresponde a la Junta Directiva del Colegio Profesional de Psicólogos de Costa Rica designar a los y las integrantes de la Comisión.
+Artículo 9. El Colegio no podrá autorizar a la persona profesional en psicología inscrita para realizar la evaluación y emisión de los documentos derivados del proceso en cualquiera de los siguientes casos:
+a. Cuando esté cumpliendo una suspensión impuesta por el Tribunal de Honor del Colegio.
+b. Cuando esté cumpliendo una pena de cárcel impuesta por los Tribunales de Justicia.
+c. Cuando no se encuentre al día con sus responsabilidades financieras en la institución.

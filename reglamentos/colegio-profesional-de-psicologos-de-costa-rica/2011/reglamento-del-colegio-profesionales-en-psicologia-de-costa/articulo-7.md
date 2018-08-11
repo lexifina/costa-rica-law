@@ -1,1 +1,1 @@
-Artículo 7º—El o la profesional en psicología deberá evaluar psicológicamente a personas físicas y emitir un dictamen, donde se demuestre la idoneidad mental en el momento de la evaluación.
+Artículo 7. La Junta Directiva autorizará que profesionales en psicología realicen el proceso de Evaluación de Idoneidad Mental y emisión de documentos respectivos de esta evaluación, cuando cumplan con los requisitos establecidos en el Título III del presente Reglamento.

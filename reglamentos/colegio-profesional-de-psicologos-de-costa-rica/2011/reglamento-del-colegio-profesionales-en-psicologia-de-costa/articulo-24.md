@@ -1,1 +1,1 @@
-Artículo 24.—Cuando la persona evaluada deba firmar el consentimiento informado o un certificado y no pueda hacerlo, imprimirá su huella digital en el lugar designado para firmar. El o la profesional indicarán a cuál dedo y extremidad corresponde.
+Artículo 24. El o la profesional en psicología deberá evaluar a la persona física y emitir un certificado digital donde demuestre la idoneidad mental en el momento de la evaluación.
