@@ -14,3 +14,4 @@ Reglamento Revista Costarricense de Psicología Revista Científica del Colegio 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-11-21 | la propia norma |
+| 2 | 2018-08-11 | Reglamento 114 (2018-08-11) |
