@@ -1,0 +1,1 @@
+ARTÍCULO 3- Se designa a la Dirección de Navegación y Seguridad del Ministerio de Obras Públicas y Transportes (MOPT) y al Servicio Nacional de Guardacostas del Ministerio de Seguridad Pública, como órganos competentes dela Administración Pública para la coordinación e implementación del presente Convenio.
