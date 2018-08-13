@@ -15,3 +15,4 @@ Reglamento Autónomo de Organización y Servicios
 | --- | --- | --- |
 | 1 | 1996-08-14 | la propia norma |
 | 2 | 1998-09-07 | Reglamento municipal 21 (1998-09-07) |
+| 3 | 2018-08-13 | Reglamento municipal 116 (2018-08-13) |
