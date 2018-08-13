@@ -1,0 +1,1 @@
+Artículo 3º—El presente decreto no otorga beneficios fiscales, tales como exoneraciones o cualquier otro beneficio fiscal, tal y como lo establece el artículo 5º del Decreto Ejecutivo Nº 40540-H del 01 de agosto del 2017.
