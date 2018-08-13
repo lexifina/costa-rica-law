@@ -1,0 +1,12 @@
+N° 41362-RREE
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE RELACIONES EXTERIORES Y CULTO
+Considerando:
+1º—Que la Asamblea Legislativa mediante Ley número 9575 del día once de junio de dos mil dieciocho, publicada en el Alcance número 136 de La Gaceta Digital número 137 del treinta de julio de dos mil dieciocho, aprobó la adhesión del Gobierno de la República de Costa Rica al Convenio Internacional sobre Búsqueda y Salvamento Marítimos, 1979, y las Enmiendas de 1988 al Convenio Internacional sobre Búsqueda y Salvamento Marítimos, 1979, así como las Enmiendas de 2004 al Convenio Internacional sobre Búsqueda y Salvamento Marítimos,1979, enmendado, con las siguientes reservas a este Convenio y sus enmiendas:
+“Artículo 2- El Gobierno de la República de Costa Rica hace las siguientes reservas a este Convenio y sus enmiendas:
+1- El Gobierno de la República de Costa Rica interpreta, en relación con el artículo III del Convenio Internacional sobre Búsqueda y Salvamento Marítimos, 1979, que dichas enmiendas tendrán vigencia en el país una vez que hayan sido aprobadas de conformidad con los procedimientos establecidos en la Constitución Política de la República de Costa Rica.
+2- El Gobierno de la República de Costa Rica interpreta, en relación con el capítulo III titulado “Cooperación”, del Anexo al Convenio Internacional sobre Búsqueda y Salvamento Marítimos, 1979, que dicha cooperación, tratándose de naves de guerra en aguas jurisdiccionales costarricenses, se realizará previa autorización legislativa, según lo establece el inciso 5) del artículo 121 de la Constitución Política de la República de Costa Rica”.
+2- Que los instrumentos de ratificación, aceptación, aprobación o adhesión se depositarán ante el Secretario General de la Organización Marítima Internacional, de acuerdo con el artículo IV numeral 2 del Convenio mencionado. Por tanto,
+En uso de las facultades que les confieren los incisos 10 y 12 del artículo 140 y el artículo 146 de la Constitución Política de la República de Costa Rica.
+Decretan:
+Artículo 1º—La adhesión de la República de Costa Rica al Convenio Internacional sobre Búsqueda y Salvamento Marítimos, 1979, y las Enmiendas de 1988 al Convenio Internacional sobre Búsqueda y Salvamento Marítimos, 1979, así como las Enmiendas de 2004 al Convenio Internacional sobre Búsqueda y Salvamento Marítimos, 1979, enmendado, con las reservas mencionadas a este Convenio y sus enmiendas.
