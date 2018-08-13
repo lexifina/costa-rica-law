@@ -1,0 +1,1 @@
+ARTÍCULO 2- El Estado podrá cerrar el acceso a la zona para garantizar su vigilancia y debido mantenimiento. Igualmente, podrá ejecutar las obras de infraestructura, transformación, ornato y forestación que considere necesarias para la construcción y el funcionamiento de un bulevar.
