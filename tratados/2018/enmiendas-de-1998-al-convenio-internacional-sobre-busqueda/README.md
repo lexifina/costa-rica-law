@@ -1,0 +1,11 @@
+# Enmiendas de 1998 al Convenio Internacional sobre Búsqueda y Salvamiento Marítimo, 1979 (Resolución MSC.70 (69) aprobada el 18 de mayo de 1998
+
+Tratados Internacionales N° 9575 del 2018-06-11. SINALEVI, ficha 86952: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=86952&param2=113063&param3=1>.
+
+Publicada en La Gaceta N° 137 del 2018-07-30.
+
+Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
+
+| Versión | En vigor desde | Hecha por | Fecha de la versión |
+| --- | --- | --- | --- |
+| 1 de 1 | 2018-08-13 | SINALEVI (1 normas) | 2018-06-11 |
