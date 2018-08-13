@@ -1,0 +1,1 @@
+Artículo 5°—Recibo de denuncia. Las denuncias serán presentadas a la Auditoría Interna del CONACOOP, ubicada en el Edificio Cooperativo; ya sea en forma verbal, escrita, electrónica, o por cualquier otro medio que permita establecer la fecha de recepción.
