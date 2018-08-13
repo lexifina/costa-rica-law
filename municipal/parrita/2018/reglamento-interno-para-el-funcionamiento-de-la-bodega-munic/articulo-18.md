@@ -1,0 +1,1 @@
+Artículo 18° El Encargado de Bodega no podrá modificar los registros históricos del Sistema Génesis después de haber efectuado los ingresos o egresos de materiales, en caso de ser estrictamente necesario deberá solicitar dicha acción al Departamento de Proveeduría para que proceda con el ajuste correspondiente.

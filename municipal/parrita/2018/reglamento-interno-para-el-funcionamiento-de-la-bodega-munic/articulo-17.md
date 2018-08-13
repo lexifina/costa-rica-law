@@ -1,0 +1,1 @@
+Artículo 17° El Encargado de Bodega deberá emitir a la Proveeduría un informe anual de los saldos y movimientos de bienes que se almacenaron en la bodega al 31 de diciembre de cada año, dentro de la primera semana del mes de enero del siguiente año.

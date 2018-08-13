@@ -1,0 +1,1 @@
+Artículo 16° Para efectos de control de existencias en bodega, se deberá disponer de registros y estadísticas que permitan conocer en forma permanente el nivel de existencias y rotación de los bienes materiales e insumos almacenados en ella. El Encargado de Bodega deberá informar sobre el particular al Departamento de Proveeduría en forma periódica (cada dos meses).

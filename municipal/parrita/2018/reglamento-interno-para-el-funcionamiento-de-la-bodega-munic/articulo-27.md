@@ -1,0 +1,1 @@
+Artículo 27° Prohíbase el almacenamiento dentro de la bodega combustibles tales como: gasolina, diésel, kerosene, GLP, GN, leña, carbón, etc. Para ello, deberá acondicionarse un espacio adecuado para el almacenaje de los mismos.

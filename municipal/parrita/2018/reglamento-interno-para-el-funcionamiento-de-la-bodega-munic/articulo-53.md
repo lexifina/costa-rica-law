@@ -1,0 +1,1 @@
+Artículo 53° Cuando se haya retirado de bodega herramientas y equipos de uso diario para realizar una determinada función, obra o proyecto; una vez finalizados los trabajos, deben devolverse a la bodega por quienes los retiraron. Para la devolución e ingreso a bodega de las herramientas y equipos deberá completarse el formulario denominado “Devolución de Herramienta y Equipo”.

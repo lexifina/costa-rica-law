@@ -1,0 +1,1 @@
+Artículo 6º Queda estrictamente prohibido a todos los funcionarios o trabajadores municipales sin importar su calidad administrativa, el uso o aprovechamiento indebido de los bienes custodiados en la bodega municipal.

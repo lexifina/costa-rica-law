@@ -1,0 +1,1 @@
+Artículo 5º Queda estrictamente prohibido el acceso de personas ajenas a la Bodega Municipal, siempre que su ingreso no sea para realizar trámites atinentes al ingreso o salida de bienes, materiales e insumos de la bodega. Cuando sea necesario el ingreso de personas ajenas a la Bodega, su estadía será bajo responsabilidad del Encargado de Bodega.

@@ -1,0 +1,1 @@
+Artículo 35° Se prohíbe toda recepción de bienes, materiales e insumos que no cuente con la factura o documento que acredite que los artículos recepcionados son de propiedad de la Municipalidad de Parrita.

@@ -1,0 +1,1 @@
+Artículo 19° Cuando el Encargado de Bodega cese en sus funciones, deberá confeccionar un informe y presentarlo ante la Proveeduría en el cual se dejará constancia de que no existen discrepancias entre los registros del sistema de existencias y las existencias físicas.

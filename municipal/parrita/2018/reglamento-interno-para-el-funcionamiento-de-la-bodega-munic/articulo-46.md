@@ -1,0 +1,1 @@
+Artículo 46° El retiro de la bodega de los bienes, materiales e insumos para consumo, se realizará con el mismo formulario de Solicitud de Bienes, Materiales e Insumos para Consumo en que se solicitaron los mismos a la bodega y solo podrán ser retirados por funcionarios con calidad de responsabilidad administrativa (funcionarios de la Municipalidad de Parrita)

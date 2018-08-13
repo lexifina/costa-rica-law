@@ -1,0 +1,1 @@
+Artículo 48° Habiéndose producido la salida de los bienes materiales e insumos solicitados desde la bodega, se procederá inmediatamente a su anotación en el Sistema Génesis, con el fin de actualizar los niveles de stocks.

@@ -1,0 +1,1 @@
+Artículo 38° En el evento que los bienes, materiales o insumos. No cumplan o no correspondan a lo detallado en la orden de compra o factura, procederá la devolución de los mismos, informando inmediatamente por escrito al Departamento de Proveeduría el inconveniente presentado.

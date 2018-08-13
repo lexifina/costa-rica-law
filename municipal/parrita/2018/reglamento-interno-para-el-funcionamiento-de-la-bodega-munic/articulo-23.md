@@ -1,0 +1,1 @@
+Artículo 23° Los bienes, materiales e insumos deberán ser ordenados por tipo y área, además, especificar el nombre y código. El Encargado de Bodega deberá tener claramente identificado el destino de cada material en resguardo en la Bodega, con el fin de que, si este no se encontrase, a la persona que lo sustituya no le genere confusión o realice entregas que no correspondan.

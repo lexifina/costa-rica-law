@@ -1,0 +1,1 @@
+Artículo 49° Cuando sea haya retirado de bodega bienes, materiales e insumos, para ser consumidos en una determinada obra o proyecto y haya que realizar devoluciones a la bodega, deberán ser devueltos por quienes lo retiraron, además, la devolución se realizará con el formulario “Devolución de Bienes Materiales e Insumos”.

@@ -1,0 +1,1 @@
+Artículo 37° Toda vez que se reciban bienes, materiales o insumos en la bodega municipal, se deberá emitir un comprobante (Vale de Entrada) que acredite el ingreso a bodega de acuerdo a los bienes, materiales e insumos recibidos en el lugar versus lo indicado por los documentos que acompañen estos. El Vale de Entrada será generado en el Sistema Génesis.

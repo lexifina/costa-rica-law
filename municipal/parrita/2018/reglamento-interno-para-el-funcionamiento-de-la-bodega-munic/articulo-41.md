@@ -1,0 +1,1 @@
+Artículo 41° Habiéndose registrado el ingreso en el Sistema Génesis, deberá agregarse al Vale de Entrada, el acta de recepción definitiva, la factura en original y entregarse la Proveeduría, quedando copias en archivo de Bodega.

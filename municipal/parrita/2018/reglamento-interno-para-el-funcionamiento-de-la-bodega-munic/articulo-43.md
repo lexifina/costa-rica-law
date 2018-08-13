@@ -1,0 +1,1 @@
+Artículo 43° Los bienes, materiales o insumos que sean requeridos por las distintas unidades o departamentos de la municipalidad, deberán ser solicitados por medio del formulario “Solicitud de Bienes Materiales e Insumos para consumo” y solo podrán ser retirados por funcionarios con calidad de responsabilidad administrativa (funcionarios de la Municipalidad de Parrita).

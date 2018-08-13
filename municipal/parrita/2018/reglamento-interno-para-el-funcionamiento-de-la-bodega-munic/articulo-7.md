@@ -1,0 +1,1 @@
+Artículo 7º Las Unidades municipales que se sirvan de la Bodega Municipal, deberán acatar las indicaciones internas de la Bodega, de orden administrativo y seguridad, así como lo dispuesto en el presente reglamento.

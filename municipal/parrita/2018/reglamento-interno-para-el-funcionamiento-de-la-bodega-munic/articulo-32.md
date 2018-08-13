@@ -1,0 +1,1 @@
+Artículo 32° Las discrepancias entre el sistema computacional versus la toma física (conciliación) serán resueltas por el jefe del Departamento de Proveeduría en un plazo de 10 días hábiles, tomando este las acciones o medidas que estime para el Encargado de Bodega Municipal.
