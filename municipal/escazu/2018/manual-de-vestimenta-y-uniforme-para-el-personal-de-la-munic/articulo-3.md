@@ -1,0 +1,1 @@
+Artículo 3º—Aplicabilidad: Este Reglamento será de aplicabilidad al personal municipal, regulares, interinos y suplentes de la Municipalidad. Excepto a las gerencias, personal de confianza y los representantes de la alcaldía municipal.

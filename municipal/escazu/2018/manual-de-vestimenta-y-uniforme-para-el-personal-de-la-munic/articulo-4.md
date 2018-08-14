@@ -1,0 +1,2 @@
+Artículo 4º—Propósito: Este Reglamento tiene como fin establecer los parámetros para el uso de la vestimenta y apariencia para el personal de la Municipalidad.
+Nuestra corporación tiene diariamente visitas de público en general, entre ellos, representantes de otras instituciones estatales. Es por esta razón, que debemos ejercer un buen juicio al seleccionar la vestimenta para mantener en todo momento la buena imagen de nuestra Municipalidad y estar a tono con el ambiente de servicio que debe prevalecer.
