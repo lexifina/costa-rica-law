@@ -1,1 +1,0 @@
-Artículo 7º—Las zonas de relleno solo podrán ser utilizadas para realizar construcciones si los estudios de suelo y estabilidad geotécnica garanticen la seguridad del mismo ante posibles deslizamientos. Caso contrario, la Municipalidad deberá prohibir la construcción hasta que se garantice la estabilidad del terreno.

@@ -1,1 +1,0 @@
-Artículo 6º—No deberá dejarse escombros en el área destinada a futuras construcciones, ni en las zonas públicas, ni en las propiedades cercanas sin autorización del dueño. Estos escombros deberán ser depositados en rellenos sanitarios o lugares encargados de su recolección y que cuenten con el debido permiso de funcionamiento.
