@@ -1,0 +1,3 @@
+Artículo 3º—La ejecución y seguimiento de este proyecto estará a cargo de la Alcaldía Municipal de Escazú o la persona funcionaria a quien este designe.
+La Municipalidad de Escazú será la encargada de determinar cuáles instituciones de enseñanza serán incluidas en el proyecto, siempre y cuando presenten una clara necesidad de regulación del tránsito y de protección de las personas menores de edad en las afueras de los centros educativos.
+Para las acciones de voluntariado en la atención de emergencia le corresponderá a la Alcaldía Municipal establecer y programar los requerimientos que considere necesarios a fin de darle la mejor atención a las emergencias en procura de garantizar la salvaguarda de la vida, la seguridad e integridad de los habitantes del cantón.

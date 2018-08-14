@@ -1,0 +1,1 @@
+Artículo 17.—El incumplimiento de este Reglamento y los objetivos que para cada institución pública autorizada se establezca, podrá dar lugar a la revocación de esa autorización en forma unilateral por parte de Alcaldía Municipal de Escazú o la persona funcionaria a quien este designe.
