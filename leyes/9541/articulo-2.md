@@ -1,0 +1,3 @@
+ARTÍCULO 2- La Municipalidad de Belén podrá disponer de un plan de condonación, de conformidad con los parámetros dispuestos por esta ley; lo anterior será por acuerdo municipal, el cual deberá ser tomado únicamente dentro de los seis meses posteriores a la entrada en vigencia de esta ley. El Concejo Municipal, de conformidad con sus condiciones particulares, definirá el plazo por el cual regirá la condonación autorizada por esta ley, sin que dicho plazo exceda un año, contado a partir de la entrada en vigencia de esta.
+Rige dos meses después de su publicación.
+Dado en la Presidencia de la República, a los veinticuatro días del mes de abril del año dos mil dieciocho.
