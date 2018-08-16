@@ -1,0 +1,2 @@
+Transitorio Único: La Coordinación de Servicios Generales, en coordinación con la Alcaldía Municipal, tendrá un plazo de seis meses para ejercer las acciones necesarias con el fin de que los vehículos municipales tengan las condiciones e instrumentos básicos de funcionamiento. Dentro del mismo plazo la Coordinación de Servicios Generales elaborará e implementará los formularios y controles regulados en este reglamento.
+Rige a partir de su publicación.

@@ -1,0 +1,1 @@
+Artículo 25.—Uso en horas y/o días no hábiles. Los vehículos que requieran ser utilizados en labores no postergables, en situaciones de emergencia u oportunidad, podrán ser habilitados por la Coordinación de Servicios Generales para continuar con sus labores en horas y días no hábiles, previo visto bueno de la Alcaldía.

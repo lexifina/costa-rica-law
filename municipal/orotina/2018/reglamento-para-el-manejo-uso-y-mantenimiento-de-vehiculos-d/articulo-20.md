@@ -1,0 +1,1 @@
+Artículo 20.—De la autorización. La Coordinación de Servicios Generales emitirá la autorización con base en el tipo de licencia para conducir presentada por cada funcionario. El tipo de autorización se determinará según La categoría de licencia para conducir presentada por los funcionarios, de acuerdo con la clasificación establecida en la Ley de Tránsito.

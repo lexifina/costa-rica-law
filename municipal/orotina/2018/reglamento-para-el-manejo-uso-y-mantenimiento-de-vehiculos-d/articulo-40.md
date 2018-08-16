@@ -1,0 +1,1 @@
+Artículo 40.—Sanciones: Las infracciones a este Reglamento se calificarán de como leves, graves y muy graves, en atención a nivel de afectación a la hacienda municipal o al control interno, los perjuicios ocasionados, a la jerarquía del funcionario y la reincidencia, tendiéndose esta última dentro del lapso de tres meses siguientes a la imposición de la última sanción.

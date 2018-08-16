@@ -1,0 +1,1 @@
+Artículo 36.—Reportes de incidentes a la Alcaldía. La Coordinación de Servicios Generales deberá informar semanalmente a la Alcaldía, cualquier incidente como accidente de tránsito, robo o hurto, o cualquier otro que vaya en menoscabo de un bien Municipal a suc argo.

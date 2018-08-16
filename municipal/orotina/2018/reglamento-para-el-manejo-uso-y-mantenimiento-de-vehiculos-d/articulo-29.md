@@ -1,0 +1,5 @@
+Artículo 29.—Medidas de seguridad. Toda persona que conduzca o viaje en los vehículos deberán de observar las siguientes medidas de seguridad:
+a) Es obligatorio el uso de cinturones de seguridad (en auto) y casco (en motos y similares), así como las medidas de seguridad establecidas en la Ley de Tránsito.
+b) No fumar dentro del vehículo, de conformidad con la ley para un ambiente libre del humo del tabaco.
+c) Tomar las previsiones necesarias que eviten el robo del vehículo o partes del mismo.
+d) En ningún momento utilizar el celular mientras se conduce.
