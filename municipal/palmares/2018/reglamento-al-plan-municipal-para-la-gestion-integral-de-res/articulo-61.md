@@ -1,0 +1,1 @@
+Artículo 61 º-El presente reglamento regirá la Gestión Integral de Residuos Sólidos en el cantón de Palmares a partir de su publicación en el diario Oficial La Gaceta; se sustituye y deroga cualquier otra norma contenida en otro reglamento que lo contradiga.

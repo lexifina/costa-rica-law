@@ -1,0 +1,2 @@
+ARTÍCULO 8º-UBICACIÓN DE LOS RESIDUOS SÓLIDOS PARA SU RECOLECCIÓN. Los residuos sólidos serán propiedad y responsabilidad de la Municipalidad en el momento que los usuarios los dispongan para su recolección dentro del horario correspondiente.
+El usuario dispondrá los residuos sólidos al frente de su inmueble o en un sistema de almacenamiento colectivo, con acceso desde la vía pública en el horario establecido por la Municipalidad.

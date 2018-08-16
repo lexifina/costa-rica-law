@@ -1,0 +1,1 @@
+Artículo 44°—INSPECCIÓN MUNICIPAL. Los funcionarios municipales, debidamente identificados, realizarán las inspecciones de verificación, seguimiento y cumplimiento de este reglamento. En caso de que se requiera ingresar a un inmueble, deberán solicitar permiso previo a los propietarios. En caso necesario, el inspector municipal puede hacerse acompañar de autoridades públicas.

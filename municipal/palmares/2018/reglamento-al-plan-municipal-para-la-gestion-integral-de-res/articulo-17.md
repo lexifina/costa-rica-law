@@ -1,0 +1,1 @@
+ARTÍCULO 17º-RESIDUOS INFECTOCONTAGIOSOS. Reglamento sobre la gestión de los desechos infecto-contagiosos que se generan en establecimientos que prestan atención a la salud y afines. Se regirán por el Decreto N°30965-S.

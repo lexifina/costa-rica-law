@@ -1,0 +1,3 @@
+Artículo 15 bis. -Centros de recuperación de residuos orgánicos El gobierno local tiene la facultad de instalar y operar centros de recuperación de residuos orgánicos (pilas de compostaje, lombricultura, otros), en su territorio y además deberá de promocionarlas a nivel de hogares y comercio, he instituciones publica del cantón, en el marco de la estrategia nacional de reciclaje
+Podrá también el municipio elaborar convenios con entidades públicas y privadas para el manejo, transporte, y procesamiento de los residuos orgánicos que se produzcan en su sede
+Estos centros deben contar, previo a iniciar labores, con los permisos respectivos del Ministerio de Salud y de la Municipalidad y con el presente reglamento

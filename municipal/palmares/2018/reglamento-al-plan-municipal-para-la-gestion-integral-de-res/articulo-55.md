@@ -1,0 +1,1 @@
+Artículo 55º-CAMBIO DE ACTIVIDAD EN EL INMUEBLE. El otorgamiento del incentivo para los sectores comerciales e industriales se realiza basado en la actividad desarrollada por el generador, sobre un inmueble específico. Por esta razón, al darse un cambio de actividad o de inmueble, el incentivo otorgado queda sin efecto.

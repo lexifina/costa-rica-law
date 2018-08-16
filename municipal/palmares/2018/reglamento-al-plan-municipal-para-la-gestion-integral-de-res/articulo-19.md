@@ -1,0 +1,1 @@
+Artículo 19º-BATERÍAS ÁCIDAS DE PLOMO. El servicio de manejo de residuos no incluye la recolección de baterías ácidas de plomo (de uso vehicular) dentro de la ruta ordinaria·. El generador deberá entregarlas al distribuidor autorizado, para que proceda a su eliminación o reutilización. Según el Decreto N °27001 (MINAE).

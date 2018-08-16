@@ -1,0 +1,1 @@
+Artículo 21º-CHATARRA (DECRETO 35906-S}. El servicio de manejo de residuos no incluye la recolección de chatarra. Las actividades que procesen y produzcan este tipo de residuos deberán realizar la movilización por medio de recolección privada, como mínimo una vez al mes, en seguimiento al Programa de Manejo Integral de Residuos Sólidos del ente generador.

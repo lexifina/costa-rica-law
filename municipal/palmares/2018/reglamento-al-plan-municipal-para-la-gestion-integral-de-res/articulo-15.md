@@ -1,0 +1,1 @@
+Artículo 15º-RESIDUOS DE JARDÍN. El servicio de manejo de residuos no incluye la recolección de residuos de jardín, por lo que todo generador debe gestionarlos adecuadamente bajo su propia responsabilidad y costo.

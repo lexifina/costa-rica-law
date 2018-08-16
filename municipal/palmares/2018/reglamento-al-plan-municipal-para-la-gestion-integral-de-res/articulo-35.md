@@ -1,0 +1,2 @@
+Artículo 35º-UBICACIÓN DE LOS RESIDUOS SÓLIDOS NO TRADICIONALES. El usuario colocará los residuos de este tipo, el día indicado por la Municipalidad (con no más de doce horas de anticipación) frente a su propiedad. Para el caso de los usuarios con propiedades que no estén ubicadas frente a vía pública, los residuos serán acumulados a la orilla de la vía pública más cercana a su domicilio, en el mismo sitio donde se colocan los residuos ordinarios.
+En el caso de condominios, los residuos no tradicionales también se deben colocar en el sistema de almacenamiento colectivo.

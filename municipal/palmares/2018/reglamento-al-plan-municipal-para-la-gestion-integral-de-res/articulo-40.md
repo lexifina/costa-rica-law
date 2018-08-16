@@ -1,0 +1,1 @@
+Artículo 40º -FOMENTO DE LA EDUCACIÓN Y SENSIBILIZACIÓN. La Municipalidad pondrá en ejecución de forma continua y permanente, estrategias para incentivar la separación y clasificación de los residuos sólidos desde la fuente; además promoverá alianzas estratégicas que apoyen este tipo de iniciativas.

@@ -1,0 +1,1 @@
+ARTÍCULO 27º-LLENADO MÁXIMO DEL EMPAQUE CON RESIDUOS. El empaque con residuos, no deberá llenarse por encima de las dos terceras partes de su capacidad de volumen. En todo caso, el peso máximo permitido es de 25 kg, por empaque.

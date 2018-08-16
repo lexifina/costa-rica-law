@@ -1,0 +1,1 @@
+ARTÍCULO 42° -SITIO DE ALMACENAMIENTO TEMPORAL. El usuario llevará los residuos valorizables a los Centros de Recuperación de Residuos Valorizables, autorizados por la Municipalidad y el Ministerio de Salud (gestores autorizados), o los dispondrá de acuerdo con las condiciones y rutas de recolección selectiva que podría establecer la Municipalidad.

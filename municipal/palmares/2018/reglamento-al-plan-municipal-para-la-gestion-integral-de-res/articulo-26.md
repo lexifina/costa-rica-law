@@ -1,0 +1,1 @@
+ARTÍCULO 26º -TIPOS DE EMPAQUE PERMITIDOS. El empaque de los residuos sólidos será exclusivamente en bolsas o sacos plásticos, resistentes al agua, al peso de su contenido y a la manipulación propia de la prestación del servicio. En el caso de vidrio plano o similar, deberá empacarse en caja de cartón debidamente rotulada.

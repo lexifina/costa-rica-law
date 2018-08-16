@@ -1,0 +1,1 @@
+Artículo 59º-0BTENCIÓN DEL PROTOCOLO Y FORMULARIOS. Los generadores deberán solicitar en la Municipalidad, el protocolo de implementación, el formato del Programa de Gestión Integral de Residuos y la guía práctica para su elaboración, o podrán obtenerlo de la página web de la Municipalidad (www.munipalmares.go.cr).

@@ -1,0 +1,2 @@
+Artículo 49º-SANCIONES A PATENTADOS. El patentado que infrinja los incisos a) y b) del artículo 47 será sujeto de suspensión de la licencia de acuerdo con lo establecido en el Reglamento General de Patentes de la Municipalidad de Palmares.
+En aplicación del inciso f) del artículo 8 del reglamento citado anteriormente, se dará la cancelación de la licencia si el patentado no corrige las causales que motivaron la suspensión de la licencia, dentro del plazo otorgado, al efecto, por la Municipalidad.

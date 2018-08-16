@@ -1,0 +1,1 @@
+Artículo 54º -VALIDEZ DE LOS INCENTIVOS. Los incentivos tendrán una validez de dos años a partir de su otorgamiento. Si durante el periodo de validez del incentivo, se comprueba alguna falta a este reglamento o su protocolo, por parte del generador, la Municipalidad tendrá la potestad de suspender el incentivo de acuerdo con lo estipulado en el artículo 57 de este reglamento.
