@@ -1,1 +1,0 @@
-Artículo 72.—Escala: La calificación de los servicios se hará de acuerdo con los méritos acumulados: durante el año respectivo, en una escala que comprenderá: Excelente (90 a 100), muy bueno (80 a 89), bueno (70 a 79), regular (60ª 69) e insuficiente (Oa 59).

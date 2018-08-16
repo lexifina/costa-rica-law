@@ -1,1 +1,0 @@
-Artículo 18.—Convalidación del tiempo interino: Cuando un funcionario a plazo fijo gane el concurso de la plaza que ha venido desempeñando interinamente se le podrá convalidar ese tiempo como su período de prueba, por decisión de la gerencia.

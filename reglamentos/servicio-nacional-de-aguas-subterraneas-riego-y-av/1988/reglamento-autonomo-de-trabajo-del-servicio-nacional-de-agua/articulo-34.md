@@ -1,1 +1,0 @@
-Artículo 34.— Ausencia de requisitos: Cuando las ofertas no satisfagan en todos sus términos los requisitos establecidos en el concurso, el Departamento de Recursos Humanos efectuará las recomendaciones pertinentes.

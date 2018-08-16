@@ -1,1 +1,0 @@
-Artículo 15.—Reconocimiento de grados o títulos: Los diplomas que se presentan para optar por un puesto, deberán estar debidamente reconocidos conforme con las normas establecidas en el manual respectivo de procedimientos internos.

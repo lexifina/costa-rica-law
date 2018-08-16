@@ -1,1 +1,0 @@
-Artículo 69.—Calculo: Para calcular el salario que debe recibir el trabajador por la compensación de las vacaciones se tomará el promedio de salarios ordinarios y extraordinarios devengados durante las cincuenta semanas anteriores a la fecha respectiva, incluyendo los subsidios pagados por las instituciones del Estado.

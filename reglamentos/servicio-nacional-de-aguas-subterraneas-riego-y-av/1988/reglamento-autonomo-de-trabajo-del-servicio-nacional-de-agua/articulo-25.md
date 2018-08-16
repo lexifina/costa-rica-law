@@ -1,1 +1,0 @@
-Artículo 25.—.Pedimento de personal: Una vez detectada una vacante, la jefatura interesada presentará por escrito al Departamento de Recursos Humanos la respectiva solicitud de personal, indicando las funciones y la justificación para llenar la misma.

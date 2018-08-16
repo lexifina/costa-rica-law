@@ -1,1 +1,0 @@
-Artículo 26.—Cambios de funciones y especialidad: Los cambios sustanciales de [unciones y de especialidad de los puestos vacantes deberán ser aprobados por el Jefe de Dirección previo estudio del Departamento de Recursos Humanos y con la aprobación final de la gerencia.

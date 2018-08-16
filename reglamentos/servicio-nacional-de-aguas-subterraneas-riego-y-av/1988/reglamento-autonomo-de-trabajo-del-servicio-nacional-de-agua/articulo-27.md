@@ -1,1 +1,0 @@
-Artículo 27.—Concurso-s interinos: Podrán participar en concursos internos todos los funcionarios nombrados en propiedad, que hayan cumplido el período de prueba y aquellos nombrados interinamente a plazo fijo o ad honórem que tengan como mínimo tres meses consecutivos o seis meses alternos de laborar para el SENARA.

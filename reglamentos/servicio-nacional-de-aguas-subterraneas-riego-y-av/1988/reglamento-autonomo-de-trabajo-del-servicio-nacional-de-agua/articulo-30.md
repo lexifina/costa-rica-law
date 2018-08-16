@@ -1,1 +1,0 @@
-Artículo 30.—Valoración de los concursos: Para definir los resultados de los concursos se procederá con base en una tabla de valoración para calificar los atestados personales y las pruebas realizadas por los postulantes.

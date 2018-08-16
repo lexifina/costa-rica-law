@@ -1,2 +1,0 @@
-Artículo 78.—Ausencias: Se considerará ausencia la falta a un día completo de trabajo. La falta de una fracción de la jornada, que por su extensión no pueda calificarse como llegada tardía, se computará como la mitad de una ausencia. Dos mitades de ausencia, para efectos de este reglamento, se computarán como una ausencia.
-No se pagará el salario que corresponda a las ausencias, excepción hecha de los casos señalados por ley o que se justifiquen debidamente.

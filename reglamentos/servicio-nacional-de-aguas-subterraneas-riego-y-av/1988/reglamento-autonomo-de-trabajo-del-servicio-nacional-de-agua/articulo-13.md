@@ -1,1 +1,0 @@
-Artículo 13.—Reclutamiento: El reclutamiento consistirá en atraer y clasificar en orden de excelencia a los candidatos más adecuados para satisfacer las necesidades de los puestos, conforme con los procedimientos regulados en este reglamento. Con este propósito el Departamento de Recursos Humanos dispondrá de un registro de ofertas recibidas.

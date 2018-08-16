@@ -1,1 +1,0 @@
-Artículo 44.—Tiempo compensatorio: Las horas extras podrán ser compensadas en tiempo, de acuerdo con el servidor. El tiempo compensatorio estará sujeto .al mismo régimen de las horas extras en lo que corresponda.

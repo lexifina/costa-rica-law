@@ -1,1 +1,0 @@
-Artículo 76.—Justificación: Solo en casos muy calificados, a juicio del jefe inmediato y con la aprobación del Jefe de Dirección se justificarán las llegadas tardías, para efectos de no aplicar la sanción disciplinaria correspondiente.

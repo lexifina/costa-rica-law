@@ -1,1 +1,0 @@
-Artículo 47.—Período de disfrute: El trabajador disfrutará de sus vacaciones de mutuo acuerdo con su jefe dentro de las quince semanas siguientes a la fecha en que se cumpla el período, debiendo comunicarlo con la debida antelación al jefe de Dirección y al Departamento de Recursos Humanos.

@@ -1,1 +1,0 @@
-Artículo 41.—Días hábiles: Con las excepciones contenidas en el inciso b) del artículo 151 del Código de Trabajo, son días hábiles para el trabajador todos los del año menos los feriados considerados en el artículo 147 de ese mismo ordenamiento y los asuetos decretados por el Poder Ejecutivo y los declarados por la Junta Directiva del SENARA.

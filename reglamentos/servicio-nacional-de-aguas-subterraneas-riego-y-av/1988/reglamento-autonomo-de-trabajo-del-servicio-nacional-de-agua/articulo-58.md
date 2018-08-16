@@ -1,3 +1,0 @@
-Artículo 58.—Monto a pagar: El monto de los subsidios pagados por la institución aseguradora (Instituto Nacional de Seguros o la Caja Costarricense de Seguro Social) y el SENARA sumará el 100’% del salario del trabajador. Al SENARA le corresponderá completar la diferencia entre el subsidio pagado por las instituciones mencionadas y el salario devengado por el trabajador; a excepción de que estas instituciones no paguen subsidios, en cuyo caso el SENARA pagará el 100% de su salario como subsidio.
-a) El SENARA no realizará ningún pago por concepto de subsidio, cuando se trate de incapacidades de tránsito donde el Instituto Nacional de Seguros cubra el 100% del salario.
-b) Los subsidios por razón de maternidad se regularán por las disposiciones vigentes.

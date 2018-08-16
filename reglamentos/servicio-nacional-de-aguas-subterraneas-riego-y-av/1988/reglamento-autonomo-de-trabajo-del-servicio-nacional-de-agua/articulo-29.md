@@ -1,1 +1,0 @@
-Artículo 29.—Selección: Para la selección de los concursantes el Departamento de Recursos Humanos con la colaboración de la jefatura interesada procederá a aplicar las pruebas de habilidad y conocimientos, de acuerdo con las tareas y responsabilidades de los puestos y con los requisitos indicados en el Manual Descriptivo de Clases.

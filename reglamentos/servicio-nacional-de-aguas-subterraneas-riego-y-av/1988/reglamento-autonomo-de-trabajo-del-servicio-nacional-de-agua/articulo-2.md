@@ -1,1 +1,0 @@
-Artículo 2°—Responsables de la aplicación: Los jefes y en general todos aquellos que tengan bajo su responsabilidad tareas de administración o supervisión de personal, son responsables de velar por la correcta aplicación de todas las disposiciones del presente reglamento; para lo cual contarán con la asesoría del Departamento de Recursos Humanos.

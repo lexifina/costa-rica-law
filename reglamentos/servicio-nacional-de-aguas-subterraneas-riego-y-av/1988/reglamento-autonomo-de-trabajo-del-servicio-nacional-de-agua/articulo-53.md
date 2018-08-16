@@ -1,1 +1,0 @@
-Artículo 53.—Continuidad: No interrumpirán la continuidad del trabajo, las licencias con o sin goce de salario, los descansos otorgados legalmente, las incapacidades, la prórroga o renovación inmediata de la relación de trabajo, ni cualquier otra causa análoga que no termine con dicha relación.

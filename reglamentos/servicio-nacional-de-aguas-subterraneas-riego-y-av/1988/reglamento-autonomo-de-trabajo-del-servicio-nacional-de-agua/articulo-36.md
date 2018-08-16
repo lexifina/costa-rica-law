@@ -1,1 +1,0 @@
-Artículo 36.—Modificación de horario: Con autorización de la Gerencia se podrá modificar los horarios establecidos en este reglamento, siempre que circunstancias especiales así lo exijan y no se cause grave perjuicio a los servidores. Las modificaciones de horario contra lo dispuesto en este artículo, serán nulas y sin valor legal.

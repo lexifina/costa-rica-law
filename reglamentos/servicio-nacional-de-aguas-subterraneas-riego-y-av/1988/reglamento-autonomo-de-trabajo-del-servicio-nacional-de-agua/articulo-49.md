@@ -1,1 +1,0 @@
-Artículo 49.—Vacaciones proporcionales: Para obtener derecho a vacaciones anuales es necesario que el servidor haya prestado sus servicios durante cincuenta semanas continuas. Sin embargo si por cualquier causa - el servidor no completara ese plazo por terminación de su relación laboral, tendrá derecho a vacaciones proporcionales.

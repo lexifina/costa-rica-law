@@ -1,1 +1,0 @@
-Artículo 31.—Pruebas y estudios: El Departamento de Recursos Humanos se reservará el derecho de someter a los interesados a pruebas psicológicas de inteligencia e interés, así como a un estudio psicosocial si fuera necesario. Su elaboración y resultados serán estrictamente confidenciales.

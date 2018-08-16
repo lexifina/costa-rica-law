@@ -1,1 +1,0 @@
-Artículo 81.—Registro de asistencia: El sistema de registro de asistencia de los servidores será dispuesto por cada jefatura, a falta de un sistema uniforme dispuesto por la gerencia. Los derechos de horas ‘extras,’ tiempo compensatorio e incentivo por asistencia, solo se reconocerán cuando exista un sistema fehaciente de registro de asistencia.

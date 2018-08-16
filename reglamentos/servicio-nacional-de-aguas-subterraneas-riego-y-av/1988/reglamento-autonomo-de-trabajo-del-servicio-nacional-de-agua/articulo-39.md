@@ -1,1 +1,0 @@
-Artículo 39.—Tiempo efectivo de trabajo: Se considerará como tiempo efectivo de trabajo aquel en que los trabajadores permanezcan bajo las órdenes o dirección inmediata o delegada del patrono. En todo caso se considerará como tiempo efectivo de trabajo, el descanso mínimo obligatorio siempre que sea en jornada continua.

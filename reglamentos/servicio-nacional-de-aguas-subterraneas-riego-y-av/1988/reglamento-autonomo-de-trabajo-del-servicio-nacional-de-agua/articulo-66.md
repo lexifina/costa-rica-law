@@ -1,1 +1,0 @@
-Artículo 66.—Reconocimiento de antigüedad: El SENARA reconocerá, para efectos del pago de anualidades y para el goce de vacaciones, la antigüedad acumulada por el servidor en el resto del sector público, incluyendo las empresas públicas y aunque se trate de períodos no continuos.

@@ -1,1 +1,0 @@
-Artículo 8°—Nombramiento a plazo fijo: Los nombramientos de plazo fijo o para obra determinada, finalizarán sin responsabilidad para el SENARA, siempre que los mismos no sean de una duración superior a un año.

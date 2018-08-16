@@ -1,1 +1,0 @@
-Artículo 73.—Despido: Cuando los servicios del trabajador fueren calificados dos veces consecutivas como insuficientes por no ejecutar sus labores con la capacidad, dedicación y diligencia debidas, se considerará el hecho como falta grave. En estos casos el Departamento’ de Recursos Humanos deberá informar inmediatamente, a la gerencia.
