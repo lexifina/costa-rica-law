@@ -1,1 +1,0 @@
-Artículo 14.—De las solicitudes y los fines. La entidad que promueve la celebración de la feria, deberá presentar a la Municipalidad y Concejo Municipal de Liberia, formal solicitud donde se haga ver los fines específicos de lo que se recaude.

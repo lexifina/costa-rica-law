@@ -1,1 +1,0 @@
-Artículo 32.—De los toreros cómicos. La participación del torero cómico debe ser sujeto a un guión autorizado por la Comisión de Fiestas, a fin de que las actuaciones se ajusten a las buenas costumbres y valores morales de la sociedad costarricense.

@@ -1,1 +1,0 @@
-Artículo 48.—Transitorio. Este Reglamento anula el reglamento publicado en La Gaceta N° 105 del día primero de junio de 1994, una vez aprobado este nuevo Reglamento de feria, monta y corridas de toros, desfiles de caballistas.

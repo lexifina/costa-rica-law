@@ -1,1 +1,0 @@
-Artículo 42.—Clasificación de la monta. Para poder clasificar los montadores, deberán permanecer sobre el lomo del animal, el tiempo que la comisión haya estipulado, pero que no sea mayor del máximo señalado en el artículo 40 del presente Reglamento.

@@ -1,1 +1,0 @@
-Artículo 40.—Tiempo del montador. Cumplido el tiempo reglamentario, entre ocho y doce segundos, al cual dependerá de las condiciones de la plaza, el montador debe desalojar al animal en el primer instante que este lo posibilite.
