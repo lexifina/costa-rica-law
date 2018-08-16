@@ -1,0 +1,1 @@
+ARTÍCULO 14.- REQUISITOS PARA LA BAJA DE BIENES MUEBLES. Para dar de baja bienes muebles por cualquiera de los conceptos anteriormente citados, la jefatura correspondiente deberá cumplir con los requisitos que establezca el Sistema tecnológico Habilitado, dentro de los cuales estarán la justificación y motivo de la baja, suscrita por el

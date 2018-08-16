@@ -1,0 +1,1 @@
+ARTÍCULO 12.- ALTA DE BIENES MUEBLES POR DONACIÓN A LA MUNICIPALIDAD. Cuando la Municipalidad reciba bienes muebles por donación, la dependencia a la que se le asigne, será la encargada de registrarlo en el Sistema Tecnológico Habilitado de manera inmediata. Y la Dependencia Administración de Bienes verificará el Sistema y dará de Alta.

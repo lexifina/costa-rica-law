@@ -1,0 +1,1 @@
+ARTÍCULO 22.- CUSTODIA DE PLANOS. Los planos de agrimensura de las propiedades municipales, serán custodiados por el Departamento de Información Geográfica y Catastral. Ésta dependencia será responsable para evacuar las consultas internas y externas a la institución relacionadas con el tema de bienes inmuebles de acuerdo a sus funciones establecidas.

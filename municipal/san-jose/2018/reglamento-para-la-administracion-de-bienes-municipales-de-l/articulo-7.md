@@ -1,0 +1,1 @@
+ARTÍCULO 7.- IDENTIFICACIÓN DEL EQUIPO DE CÓMPUTO: La asignación de número de patrimonio y el respectivo rotulado del equipo de cómputo, se realizará por componentes del equipo, atendiendo el criterio técnico de la Dirección de Tecnologías de Información.

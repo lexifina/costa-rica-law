@@ -1,0 +1,1 @@
+ARTÍCULO 18.-TRASLADO DE BIENES MUEBLES ENTRE UNIDADES ADMINISTRATIVAS O ENTRE ÁREAS DE LA MISMA DEPENDENCIA. Se les permitirá a las dependencias de la administración trasladar bienes entre sus funcionarios, o entre ellas; para lo cual es obligatorio registrarlo en el Sistema Tecnológico Habilitado.

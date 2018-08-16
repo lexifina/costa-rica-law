@@ -1,0 +1,1 @@
+ARTÍCULO 24.- CUSTODIA DE CERTIFICADOS DE AUTENTICIDAD. Toda aquella documentación que respalde la autenticidad de las obras de arte adquiridas por la Municipalidad de San José, incluyendo certificados de autenticidad otorgados por sus autores, estarán bajo el cuidado y responsabilidad del Departamento de Servicios Culturales.

@@ -1,0 +1,1 @@
+ARTÍCULO 17.- OTRAS FORMAS DE LA DISPOSICIÓN FINAL DE LOS BIENES. El Departamento de Servicios Ambientales le indicará a la Dependencia Administración de Bienes cuales activos requieren de una mejor manera de disposición final, sea por reciclaje, destrucción o cualquier otra que se ajuste a las normas de protección al ambiente.

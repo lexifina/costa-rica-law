@@ -1,0 +1,2 @@
+ARTÍCULO 8.- DEL SOFTWARE: De tratarse del software corporativo el procedimiento a seguir es el de identificar y registrar en el registro de activos la licencia correspondiente haciendo alusión a la cantidad de licencias. En el caso de que sea individual, se procederá de la misma manera adicionando la identificación de cada usuario.
+En ambos casos la información respectiva deberá ser registrada por el Departamento de Soporte Técnico en el Sistema Tecnológico Habilitado. Y la Dependencia Administración de Bienes verificará el Sistema y dará de Alta.
