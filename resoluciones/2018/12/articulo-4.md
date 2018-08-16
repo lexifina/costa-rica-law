@@ -6,7 +6,8 @@ Corte Suprema de Justicia
 Banco Central de Costa Rica
 Junta de Protección Social
 Tribunal Supremo de Elecciones
-Entidades financieras
+Entidades financieras que realicen actividades de intermediación financiera y que sean supervisadas por la Superintendencia General de Entidades Financieras (SUGEF)
+(Así reformado el párrafo anterior por el artículo 1° de la resolución DGT-R-039 del 16 de agosto de 2018)
 Instituto Nacional de Aprendizaje
 Asociaciones solidaristas
 Consejo Nacional de Producción
