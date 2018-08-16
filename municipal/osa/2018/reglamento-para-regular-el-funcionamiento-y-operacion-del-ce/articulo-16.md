@@ -1,0 +1,1 @@
+Artículo 16. - Para efectos de determinar el precio a cobrar en los términos del artículo anterior, la Municipalidad de Osa, utilizara el “Modelo de costos para la estimación del monto del subsidio “vigente o cualquier otro modelo de estimación emitido por el Área de Bienestar Familiar del IMAS.

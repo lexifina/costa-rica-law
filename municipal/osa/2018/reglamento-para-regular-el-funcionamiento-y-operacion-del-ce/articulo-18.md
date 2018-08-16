@@ -1,0 +1,1 @@
+Artículo 18- El pago deberá realizarse en la plataforma de servicios de la institución o por medio de depósito bancario el cual deberá notificar al funcionario designado como encargado del servicio, previa aprobación por parte de la institución.
