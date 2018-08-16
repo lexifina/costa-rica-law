@@ -1,0 +1,3 @@
+Artículo 5. De los principios rectores
+Los principios rectores que orientarán el procedimiento de adjudicación de becas para el desarrollo profesional de los funcionarios del SENARA, serán los de legalidad, ética, eficiencia, eficacia, igualdad, equidad, libre competencia, publicidad, democratización, transparencia y proporcionalidad. Toda beca que se otorgue deberá estar acorde con el Programa de Capacitación que anualmente elaborará el SENARA.
+La beca que SENARA otorgue a sus funcionarios es totalmente facultativa para la Institución, en cuyo caso, podrá acoger o denegar la solicitud por razones de legalidad, conveniencia u oportunidad institucional, por lo que en ningún caso representará una obligación el otorgar una beca.

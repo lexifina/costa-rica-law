@@ -1,0 +1,2 @@
+Artículo 31. De las apelaciones ante Junta Directiva
+Toda decisión de la Gerencia contraria a la recomendación emitida por el Comité de Becas con base en este Reglamento, será apelable ante Junta Directiva dentro del quinto día hábil a partir de la fecha en que la Gerencia emita su criterio por escrito. En caso de no recibirse el citado criterio, el Comité de Becas procederá enviar a la Junta Directiva del SENARA, un informe para que sea analizado el caso en la sesión siguiente.

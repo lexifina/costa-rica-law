@@ -1,0 +1,2 @@
+Artículo 10. Del período de duración de las becas en el país
+Las becas que otorgue el SENARA tendrán un período de duración hasta de 12 meses.- En casos muy calificados, se podrá conceder por períodos mayores para cursar maestrías o doctorados.- Las becas se concederán por los períodos indispensables para concluir las lecciones, presentar los exámenes y la sustentación de la tesis, si la hubiere.- El plazo dependerá del grado académico –Licenciatura o maestría.

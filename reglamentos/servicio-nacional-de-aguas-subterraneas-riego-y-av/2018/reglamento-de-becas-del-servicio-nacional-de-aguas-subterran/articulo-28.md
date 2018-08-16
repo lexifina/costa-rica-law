@@ -1,0 +1,2 @@
+Artículo 28. Del trámite de la solicitud por el Comité.
+Una vez recibida la solicitud el Comité analizará la misma, y emitirá su recomendación considerando el cumplimiento de los aspectos señalados en este reglamento. En el caso de aquellas solicitudes que no presenten el visto bueno de la Jefatura Inmediata, el Comité deberá solicitar de previo a analizar la solicitud criterio expreso de la Jefatura Inmediata respecto a la pertinencia de aprobar o improbar la solicitud de beca.

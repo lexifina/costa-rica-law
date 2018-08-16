@@ -1,0 +1,2 @@
+Artículo 14. Del plazo de espera, para participar en otras becas
+Para que un funcionario becado por el SENARA mediante la suscripción de un “Contrato de Estudios” pueda resultar favorecido nuevamente con la adjudicación de otra beca de capacitación con cobertura parcial o total, deberá esperar a que transcurran seis meses desde la fecha en que concluyó el disfrute de la beca anterior. Se exceptúan los funcionarios becados que se encuentren en la condición de brecha académica o estén cursando el programa de estudios de una carrera universitaria.

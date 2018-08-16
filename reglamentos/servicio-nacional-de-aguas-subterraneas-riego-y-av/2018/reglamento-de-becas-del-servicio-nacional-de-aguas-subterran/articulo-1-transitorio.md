@@ -1,0 +1,1 @@
+Transitorio I. El presente reglamento no será aplicable a los funcionarios que antes de su publicación se encontraran en disfrute de becas o facilidades para realizar estudios, los cuales se regirán por las disposiciones vigentes al momento de su otorgamiento.- En todo caso, los becarios actuales conservarán sus derechos.-

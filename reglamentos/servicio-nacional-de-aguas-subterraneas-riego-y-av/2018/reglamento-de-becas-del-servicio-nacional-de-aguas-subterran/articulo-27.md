@@ -1,0 +1,2 @@
+Artículo 27. Del Visto Bueno de la Jefatura Inmediata.
+Toda solicitud de beca deberá contar con el visto bueno de la Jefatura Inmediata, de previo a ser presentada a conocimiento del Comité. En caso de no contarse con el referido Visto Bueno, corresponderá al funcionario solicitante fundamentar el incumplimiento de este requisito, en el espacio reservado para observaciones en el formulario señalado.

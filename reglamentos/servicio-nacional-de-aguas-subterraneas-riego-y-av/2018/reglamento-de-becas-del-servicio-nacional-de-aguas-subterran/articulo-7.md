@@ -1,0 +1,4 @@
+CAPITULO II
+Tipos de becas
+Artículo 7. Del otorgamiento de ayudas
+El SENARA podrá otorgar becas, con ayuda total o parcial, para que sus funcionarios realicen estudios relacionados con la gestión institucional, tanto dentro como fuera del país. Tales estudios deben responder a un requerimiento identificado en los diagnósticos de necesidades de capacitación anual, o en su defecto, un tema que resulte de interés institucional, cuya finalidad se oriente a alcanzar un mayor nivel de las competencias técnicas o profesionales del funcionario en el desempeño de su cargo, mediante capacitación complementaria, formación académica o especialización, que se traduzca en beneficio para los clientes y usuarios, con respecto a la calidad de los servicios que presta la Institución en las diferentes dependencias.

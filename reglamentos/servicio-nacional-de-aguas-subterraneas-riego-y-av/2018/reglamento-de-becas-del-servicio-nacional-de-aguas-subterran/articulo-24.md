@@ -1,0 +1,2 @@
+Artículo 24. Del análisis de las solicitudes
+El Comité en su sesión ordinaria o extraordinaria analizará y estudiará las solicitudes de beca recibidas por parte de los funcionarios y recomendará a la Gerencia aquellas que reúnan los requisitos establecidos en la misma, que a su vez, deberá venir acompañada de los respectivos documentos de respaldo, relacionados con la misma, como el programa y cotización de la actividad, de conformidad con lo establecido en el presente reglamento.

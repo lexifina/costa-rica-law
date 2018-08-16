@@ -1,0 +1,3 @@
+Artículo 43. De los Congresos, Foros, Simposios, Mesas Redondas, Paneles Coloquios, Charlas y actividades análogas
+Cuando se trate de solicitudes de beca para participar en actividades de capacitación complementaria denominadas: Congresos, Foros, Simposios, Mesas Redondas, Paneles u otras actividades análogas (Se excluyen los cursos, seminarios y talleres), el SENARA financiará el 50% siempre y cuando se relacione directamente con las actividades del cargo que ejecuta en la Institución.
+Se exceptúan los casos en que el funcionario es designado para representar la Institución en la actividad específica, en cuyo caso, el Comité emitirá su recomendación y la Gerencia tendrá la potestad de aprobar el financiamiento total de la actividad.
