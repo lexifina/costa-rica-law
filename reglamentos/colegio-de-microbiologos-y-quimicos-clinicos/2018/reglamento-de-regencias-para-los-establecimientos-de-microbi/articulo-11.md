@@ -1,0 +1,1 @@
+Artículo 11.—Para efectos de los artículos anteriores las regencias podrán ser individuales o compartidas y su desempeño es incompatible con cualquier otro empleo en que se requieran horarios destinados a éstas. Por tanto, el profesional no podrá regentar simultáneamente más de un establecimiento y deberá permanecer en él durante las horas autorizadas.

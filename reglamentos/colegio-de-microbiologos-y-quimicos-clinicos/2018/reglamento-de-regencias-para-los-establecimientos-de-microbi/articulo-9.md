@@ -1,0 +1,2 @@
+Artículo 9°—Todo establecimiento que expenda, produzca, importe o tenga en representación artículos como reactivos, equipo e instrumentos para Laboratorios de Microbiología y Química Clínica, deberá contar con un MQC regente. El horario mínimo de regencia no podrá ser inferior a 2 horas diarias comprendidas dentro del horario de funcionamiento del establecimiento, durante el cual el regente deberá estar presente para supervisar la labor técnica profesional.
+Será solidario en tal responsabilidad el propietario del establecimiento.

@@ -1,0 +1,1 @@
+Artículo 12.—El propietario o representante legal del establecimiento está obligado a colocar en lugar visible, el certificado de regencia que extiende la Fiscalía del Colegio, indicando el nombre del regente y el horario de regencia.

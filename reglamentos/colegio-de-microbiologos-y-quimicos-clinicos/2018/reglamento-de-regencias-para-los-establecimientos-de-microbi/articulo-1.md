@@ -1,0 +1,10 @@
+COLEGIO DE MICROBIÓLOGOS Y QUÍMICOS CLÍNICOS DE COSTA RICA
+REGLAMENTO DE REGENCIAS PARA ESTABLECIMIENTOS
+DE MICROBIOLOGÍA Y QUÍMICA CLÍNICA.
+El Colegio de Microbiólogos y Químicos Clínicos de Costa Rica, considerando que el Reglamento de Apertura y Operación de los Establecimientos de Microbiología y Química Clínica de Costa Rica (Decreto N° 17761-S, publicado en La Gaceta N° 197 del 15 de octubre de 1987), en su Capítulo III, artículo 14, delega en el Colegio de Microbiólogos y Químicos Clínicos la potestad de establecer un reglamento que fije las horas en que deberá permanecer el regente en el establecimiento, establece el siguiente Reglamento de Regencias para los Establecimientos de Microbiología y Química Clínica.
+Artículo 1°—Para efectos de este reglamento se emplearán las siguientes definiciones:
+Colegio: Colegio de Microbiólogos y Químicos Clínicos de Costa Rica.
+Establecimiento: Cualquier establecimiento dedicado al comercio de materiales, equipo, instrumentos o reactivos de Microbiología y Química Clínica, recolección, tratamiento y disposición final de desechos biopeligrosos o infectocontagiosos, o a la realización de análisis de Microbiología y Química Clínica, según se definen, estos últimos, en la Ley General de Salud y en el Reglamento Interno del Colegio de Microbiólogos y Químicos Clínicos de Costa Rica.
+MQC: Microbiólogo y Químico Clínico.
+Regencia: Certificación otorgada por el Colegio al establecimiento, la cual acredita que el local, sus instalaciones, el personal profesional y auxiliar y la dotación mínima de equipo, materiales y reactivos de que disponen, aseguran la correcta realización de las operaciones con el fin de resguardar la calidad y validez técnica de los análisis y prevenir riesgos para la salud del personal o de la comunidad. Dicha regencia tendrá una vigencia de dos años.
+Regente: Miembro activo del Colegio que, de conformidad con las leyes y los reglamentos del país, es autorizado por el Colegio para asumir la dirección científica, técnica y la responsabilidad profesional y moral de un establecimiento y su personal.
