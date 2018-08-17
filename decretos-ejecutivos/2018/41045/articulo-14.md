@@ -1,0 +1,1 @@
+Artículo 14.- Del plazo para resolver: Las Direcciones de Área Rectora de Salud deberán resolver las solicitudes de habilitación por primera vez en un plazo máximo de 25 días hábiles contados a partir de la recepción de la solicitud. El plazo para resolución de las solicitudes de renovación será de 10 días hábiles posteriores a la presentación de la solicitud.

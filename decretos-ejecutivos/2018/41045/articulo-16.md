@@ -1,0 +1,2 @@
+Artículo 16.- Inspecciones previas a los servicios: Para el caso de las solicitudes de primera vez, los funcionarios de las Direcciones de Áreas Rectoras de Salud deberán realizar dentro del plazo establecido en el artículo 14, una inspección previa a los servicios de salud.
+Para el caso de solicitudes de renovación no requerirán de inspección previa, por lo que se otorgará dicho certificado con base en los requisitos documentales aportados.

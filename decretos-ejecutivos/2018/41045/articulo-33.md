@@ -1,0 +1,2 @@
+Artículo 33.- Verificación de la implementación de los planes y programas: Los administrados tendrán un plazo de cuatro meses contados a partir del día siguiente al otorgamiento del Certificado de Habilitación por primera vez, para la implementación de los planes referidos en este capítulo.
+Posteriormente los funcionarios del Ministerio de Salud procederán a verificar si se encuentran debidamente implementados. El resultado de esa evaluación será notificado en el informe técnico correspondiente.

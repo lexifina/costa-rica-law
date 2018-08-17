@@ -1,0 +1,1 @@
+Artículo 31.- Del programa de salud ocupacional: Los servicios de salud que tengan 10 o más trabajadores deberán contar con un Programa de Salud Ocupacional. El Programa de Salud Ocupacional debe ajustarse al Decreto Ejecutivo No. 39408-MTSS del 23 de noviembre del 2015 "Reglamento de Comisiones y Oficinas o Departamentos de Salud Ocupacional".
