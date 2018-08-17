@@ -1,0 +1,1 @@
+Artículo 6º—Deber de colaboración. Será un deber de todos los funcionarios de la SETENA colaborar con los miembros de la Comisión. Deberán todos los funcionarios de la SETENA, facilitar toda la información, documentación o cualquier otro requerimiento que la Comisión solicite en el plazo que establezca.
