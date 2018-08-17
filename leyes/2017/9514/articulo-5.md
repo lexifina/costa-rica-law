@@ -3,3 +3,4 @@ Artículo 5°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 40904 del 31 de enero de 2018)
 (Modificado por el artículo 1° del decreto ejecutivo N° 40995 del 14 de marzo de 2018)
 (Modificado por el artículo 1° del decreto ejecutivo N° 41191 del 22 de mayo del 2018)
+(Modificado por el artículo 1° del decreto ejecutivo N° 41224 del 11 de julio de 2018)
