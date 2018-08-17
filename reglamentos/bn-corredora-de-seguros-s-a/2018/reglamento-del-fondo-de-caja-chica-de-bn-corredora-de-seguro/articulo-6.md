@@ -1,0 +1,1 @@
+Artículo 6º—La Gerencia General, los Directores, Jefaturas y Supervisores serán los autorizados para aprobar los documentos para el pago de bienes, servicios, vales y liquidaciones de caja chica. En la Unidad Administrativa Financiera, deberá existir un registro actualizado de las firmas.

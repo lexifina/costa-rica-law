@@ -1,0 +1,1 @@
+Artículo 3º—La ejecución del gasto será limitada a compras de Bienes y Servicios indispensables y urgentes que por su escasa cuantía no requieran procesos de contratación administrativa. Los suministros que se adquieran por este medio no deben existir en el inventario de suministros de BN Corredora de Seguros.

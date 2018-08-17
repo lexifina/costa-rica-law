@@ -1,0 +1,1 @@
+Artículo 2º—Se define como Caja Chica al fondo fijo de dinero que concede la Administración, como un servicio facilitador en la ejecución presupuestaria, para la adquisición de bienes y servicios de excepción, de acuerdo con lo que establece la Ley de Administración Financiera de la República, la Ley de Contratación Administrativa y su Reglamento.

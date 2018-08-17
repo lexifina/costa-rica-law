@@ -1,0 +1,6 @@
+CAPÍTULO II
+Asignación de recursos
+Artículo 8º—El monto del fondo de Caja Chica será un 10% del monto establecido para la Compra Directa (monto definido por la Contraloría General de la República todos los años) de conformidad con el estrato en que se ubique a BN Sociedad Corredora de Seguros S.A. El monto estará custodiado en la caja fuerte, destinada para ese fin.
+Nota: La Contraloría General de la República todos los años, definirá los límites generales de contratación administrativa excluye Obra Pública, para la Compra Directa, según el estrato en que ubique a BN Sociedad Corredora de Seguros S. A.
+Las compras con Fondos de Caja Chica son aquellas relacionadas con gastos menores en la adquisición de bienes y servicios que tienen carácter indispensables y urgentes, por cuanto las que requieren de un proceso de contratación administrativa deben realizarse cumpliendo lo indicado en el Reglamento a la ley de Contratación Administrativa en su artículo 141.
+También se debe considerar el clasificador objeto del gasto, emitido por la Tesorería Nacional para compras de caja chica, en el cual se detallan las cuentas para las cuales es permitido realizar compras por medio de este mecanismo.

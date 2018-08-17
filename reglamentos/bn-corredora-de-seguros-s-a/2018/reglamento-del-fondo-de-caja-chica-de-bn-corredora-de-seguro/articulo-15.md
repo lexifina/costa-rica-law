@@ -1,0 +1,1 @@
+Artículo 15.—En ausencia del encargado de la Caja Chica, se procederá a asignar a un sustituto, y el traspaso del fondo se realizará mediante un arqueo, para lo cual se requerirá la presencia de alguno de los funcionarios del área contable y la persona que recibe el fondo, quienes deberán firmar el documento del arqueo.
