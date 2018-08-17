@@ -1,0 +1,5 @@
+Artículo 4°—Modifíquese el artículo 5 de la resolución referida, para que se lea:
+“Artículo 5°—Uso de las sistemas Tributación Digital y Administración Tributaria Virtual (ATV). Los sujetos pasivos que a la entrada en vigencia de la presente resolución ya tengan la condición de “gran contribuyente” o “gran empresa territorial”, deberán continuar utilizando el portal de servicios electrónicos de Tributación Digital conforme se establece en la resolución DGT-9-09 del 19 de mayo del 2009. Mientras que a los sujetos pasivos que partir de la presente resolución se les notifiquen su clasificación o exclusión(*) como “gran contribuyente” o “gran empresa territorial”, la Administración Tributaria Territorial competente, le deberá indicar el portal de servicios electrónicos que ha de seguir utilizando.
+(*) (Corregida la frase anterior mediante Fe de Erratas y publicada en La Gaceta N° 169 del 14 de setiembre de 2018, página N° 20. Anteriormente se indicaba: “se les notifiquen su exclusión”)
+Vigencia. Esta resolución rige a partir de su publicación.
+Publíquese.
