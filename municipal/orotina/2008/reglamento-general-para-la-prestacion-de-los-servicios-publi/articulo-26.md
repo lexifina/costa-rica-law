@@ -1,1 +1,1 @@
-Artículo 26.—Los nichos deberán ser construidos en bloques de cemento o ladrillo, de concreto reforzado o de elementos de concreto prefabricados que resistan las fuerzas adyacentes, debiendo permitir la infiltración de los productos acuosos de la descomposición de los cadáveres.
+Artículo 26.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

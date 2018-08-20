@@ -1,1 +1,1 @@
-Artículo 29.—Corresponde a la administración del cementerio brindar el mantenimiento y vigilar por el estado higiénico, estético y de ornato de las construcciones erigidas en ellos.
+Artículo 29.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

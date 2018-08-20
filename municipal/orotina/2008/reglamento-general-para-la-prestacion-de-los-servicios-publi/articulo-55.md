@@ -1,1 +1,1 @@
-Artículo 55.—Queda terminantemente prohibida la comercialización de cadáveres, vísceras extraídas a los cadáveres autopsiados o embalsamados, restos humanos o cenizas producto de la cremación de cadáveres o restos humanos.
+Artículo 55.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

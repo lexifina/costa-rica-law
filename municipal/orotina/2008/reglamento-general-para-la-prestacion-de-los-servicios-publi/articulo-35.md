@@ -1,1 +1,1 @@
-Artículo 35.—Los propietarios y administradores del cementerio quedan obligados a facilitar las inspecciones de las autoridades administrativas y sanitarias. Asimismo, acatarán las disposiciones sobre política mortuoria que establece la Ley General de Salud, leyes conexas y reglamentos.
+Artículo 35.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

@@ -1,1 +1,1 @@
-Artículo 51.—Las exhumaciones sean ordinarias o extraordinarias se harán siempre en presencia del encargado del cementerio y de dos testigos debiendo levantarse un acta firmada por los presentes, la que conservará la administración del cementerio.
+Artículo 51.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

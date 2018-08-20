@@ -1,1 +1,1 @@
-Artículo 53.—El Director de todo hospital público o privado donde ocurra una defunción a consecuencia de una enfermedad contagiosa, en consulta con el Área Rectora de Salud respectiva, podrán autorizar el traslado directo del cadáver al cementerio.
+Artículo 53.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

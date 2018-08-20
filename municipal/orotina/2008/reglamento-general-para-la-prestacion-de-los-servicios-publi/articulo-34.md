@@ -1,1 +1,1 @@
-Artículo 34.—La administración del cementerio llevará y mantendrá al día un Registro de tumbas, mausoleos y nichos. Estos serán identificados por número de parcela, cuadro a que pertenezcan y por el nombre y apellidos del propietario o arrendatario.
+Artículo 34.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

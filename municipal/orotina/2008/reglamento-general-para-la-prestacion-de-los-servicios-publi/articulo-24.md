@@ -1,1 +1,1 @@
-Artículo 24.—Cuando la extensión del área del cementerio lo permita, la administración del mismo, puede arrendar o vender parcelas a quienes lo soliciten para sepulcros individuales o de familias.
+Artículo 24.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

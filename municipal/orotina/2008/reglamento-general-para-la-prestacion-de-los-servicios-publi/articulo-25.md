@@ -1,1 +1,1 @@
-Artículo 25.—Las parcelas arrendadas o vendidas para sepulturas, podrán ser concedidas por un tiempo determinado no inferior a cinco años o a perpetuidad, según lo acuerden las partes.
+Artículo 25.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

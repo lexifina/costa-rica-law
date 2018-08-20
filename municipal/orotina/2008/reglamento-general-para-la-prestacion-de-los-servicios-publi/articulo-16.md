@@ -1,3 +1,3 @@
 CAPÍTULO III
 Servicio de Cementerio Municipal
-Artículo 16.—La planificación, dirección, vigilancia y conservación del (los) Cementerio Municipales, estará a cargo de la Municipalidad de Orotina, misma que velará por el cumplimiento de la normativa establecida.
+Artículo 16.—(Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

@@ -1,1 +1,1 @@
-Artículo 28.—Cuando los nichos, por la acción del tiempo, por movimientos telúricos o por cualquier otro motivo se deterioren, el Ministerio prohibirá su uso para nuevas inhumaciones y ordenará su demolición.
+Artículo 28.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

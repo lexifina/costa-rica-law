@@ -1,1 +1,1 @@
-Artículo 20.—La Municipalidad velará por brindar las condiciones de salud ocupacional de los trabajadores que se desempeñen dentro de las instalaciones del cementerio, sea en labores de mantenimiento, construcción de nichos, bóvedas u otras actividades.
+Artículo 20.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

@@ -1,1 +1,1 @@
-Artículo 48.—Cuando se trate de exhumaciones extraordinarias ordenadas por las autoridades judiciales, deberá observarse todas las normas que esta autoridad sugiera para el mejor resultado de sus investigaciones.
+Artículo 48.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

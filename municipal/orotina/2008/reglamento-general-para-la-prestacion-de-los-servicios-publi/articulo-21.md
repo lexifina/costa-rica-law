@@ -1,1 +1,1 @@
-Artículo 21.—Las autoridades administrativas del cementerio están obligadas a suministrar al personal la indumentaria requerida para su protección, así como, el equipo indispensable para llevar a cabo sus labores en forma correcta y segura. Además, deberán velar por el correcto uso de la indumentaria y el equipo dentro del cementerio.
+Artículo 21.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

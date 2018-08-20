@@ -1,1 +1,1 @@
-Artículo 37.—Se permitirán las inhumaciones, únicamente en cementerios autorizados, exceptuándose, los cadáveres para los que el Ministerio de Salud otorguen autorización de sepultar en sitio distinto.
+Artículo 37.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

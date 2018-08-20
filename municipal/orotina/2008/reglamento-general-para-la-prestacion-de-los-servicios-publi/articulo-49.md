@@ -1,1 +1,1 @@
-Artículo 49.—El permiso de exhumación extraordinaria será extendido por el Área Rectora de Salud del Ministerio de Salud, y especificará las precauciones sanitarias que en cada caso deberán observar los encargados de ejecutarlas.
+Artículo 49.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

@@ -1,1 +1,1 @@
-Artículo 41.—El permiso para la inhumación, a que alude el artículo anterior será presentado dos horas antes del entierro como mínimo, para que se determine el nicho que haya de ocuparse.
+Artículo 41.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

@@ -1,1 +1,1 @@
-Artículo 19.—Es permitida en los cementerios la práctica de servicios religiosos o ceremonias laicas, pronunciar discursos u oraciones fúnebres alusivas al fallecido y el acompañamiento musical de las exequias, siempre que no contravenga la normativa existentes, la moral o las buenas costumbres.
+Artículo 19.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

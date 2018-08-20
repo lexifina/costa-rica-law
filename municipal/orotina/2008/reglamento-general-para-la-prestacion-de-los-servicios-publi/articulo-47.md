@@ -1,1 +1,1 @@
-Artículo 47.—Los osarios privados deberán tener un máximo del 50% del tamaño del nicho, para garantizar que no se utilicen para inhumaciones.
+Artículo 47.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

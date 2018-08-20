@@ -1,1 +1,1 @@
-Artículo 42.—Para inhumaciones, la administración del cementerio indicará en las órdenes que expida, cual ha de ser el lugar a utilizar, si el responsable de la inhumación encontrare motivo que le impida cumplirla, dará aviso inmediato a la administración, explicando las razones.
+Artículo 42.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

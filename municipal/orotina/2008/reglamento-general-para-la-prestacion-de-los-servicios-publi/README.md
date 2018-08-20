@@ -14,3 +14,4 @@ Reglamento General para la Prestación de los Servicios Públicos de la Municipa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-29 | la propia norma |
+| 2 | 2018-08-20 | Reglamento municipal 191 (2018-08-20) |

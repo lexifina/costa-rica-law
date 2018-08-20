@@ -1,1 +1,1 @@
-Artículo 32.—El cementerio debe tener a disposición servicios sanitarios, lavamanos y agua potable para uso de los trabajadores y público en general.
+Artículo 32.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

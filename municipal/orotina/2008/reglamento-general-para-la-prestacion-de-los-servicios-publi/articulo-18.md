@@ -1,1 +1,1 @@
-Artículo 18.—Todo habitante del cantón que fallezca tendrá derecho a un funeral decoroso y a la disposición conveniente y adecuada de su cadáver. Restos o cenizas deben ser tratados en toda circunstancia con consideración y respeto.
+Artículo 18.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)

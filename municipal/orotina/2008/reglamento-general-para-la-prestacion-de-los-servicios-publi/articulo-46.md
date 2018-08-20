@@ -1,1 +1,1 @@
-Artículo 46.—Los restos óseos o cadavéricos que se encuentren al hacer las exhumaciones ordinarias, serán recogidos cuidadosamente y depositados en el osario común, siempre que los deudos interesados no los reclamen para depositarlos en osarios privados, que posean dentro del mismo cementerio. Los panteoneros deberán usar bata guantes y mascarilla.
+Artículo 46.— (Derogado por el artículo 64 del Reglamento general de cementerios municipales de la Municipalidad de Orotina, aprobado en sesión N° 191 del 20 de agosto de 2018)
