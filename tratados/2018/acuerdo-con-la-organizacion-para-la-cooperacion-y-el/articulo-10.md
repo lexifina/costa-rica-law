@@ -1,0 +1,3 @@
+Artículo 10
+1. Para sus comunicaciones oficiales, la Organización gozará de un trato no menos favorable que el otorgado por Costa Rica a cualquier organización internacional o gobierno extranjero, incluida su misión diplomática, en lo que respecta a prioridades, tarifas y tasas sobre correspondencia, cables, telegramas, radiogramas, telefotos, faxes, teléfonos, comunicaciones electrónicas y otras comunicaciones y las tarifas de prensa para información destinado a la prensa y la radio. Ninguna censura será aplicada a la correspondencia oficial y otras comunicaciones oficiales de la Organización.
+2. Para sus comunicaciones, la Organización gozará del derecho de usar claves y de despachar y recibir correspondencia y otros documentos e instrumentos por correo privado.

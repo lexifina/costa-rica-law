@@ -1,0 +1,4 @@
+Artículo 14
+Además de los privilegios, inmunidades y facilidades mencionados en el artículo 13:
+(a) el Secretario General de la Organización gozará de los privilegios, inmunidades y facilidades otorgados a los jefes de misiones diplomáticas; su esposo o esposa o compañero y parientes dependientes, según lo reconocido por la Organización, gozarán de los privilegios, inmunidades y facilidades otorgados a los miembros de la familia que forman parte del hogar de los jefes de misiones diplomáticas;
+(b) Los Secretario Generales Adjuntos y Asistentes gozarán de los privilegios, inmunidades y facilidades concedidos a los agentes diplomáticos de rango equiparable; sus cónyuges o compañeros y parientes dependientes, según lo reconocido por la Organización, gozarán de los privilegios, inmunidades y facilidades otorgados a los miembros de la familia que forman parte del hogar de los agentes diplomáticas de rango equiparable.

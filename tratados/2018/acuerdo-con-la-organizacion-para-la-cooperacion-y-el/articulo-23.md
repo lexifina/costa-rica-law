@@ -1,0 +1,5 @@
+Artículo 23
+1. Las Partes procurarán resolver cualquier controversia en cuanto a la interpretación o aplicación de este Acuerdo mediante negociaciones o por cualquier otro método acordado mutuamente.
+2. Si la controversia no fuera resuelta de conformidad con el numeral 1 en un plazo de sesenta días a contar de la solicitud de cualquiera de las Partes para resolverla, ésta será sometida a arbitraje a petición de cualquiera de las Partes.
+3. El tribunal arbitral estará compuesto por tres árbitros. Cada Parte elegirá un árbitro y el tercero, quien será el Presidente del tribunal, será elegido conjuntamente por las Partes. Si el tribunal no estuviera constituido dentro de tres meses desde la solicitud de arbitraje, la designación del (de los) árbitro(s) aún no designado(s) será hecha por el Presidente de la Corte Internacional de Justicia a solicitud de cualquiera de las Partes.
+4. El tribunal aplicará las disposiciones del presente Acuerdo, así como los principios y normas del derecho internacional y su laudo será definitivo y vinculante para ambas Partes.

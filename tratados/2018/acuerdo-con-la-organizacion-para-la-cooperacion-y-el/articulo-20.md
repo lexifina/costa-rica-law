@@ -1,0 +1,2 @@
+Artículo 20
+A fin de permitir que la Organización ejecute sus responsabilidades y desempeñe sus funciones de forma plena y eficiente, el Gobierno ayudará a la Organización a resolver cualquier dificultad que ésta pudiere encontrar en la adquisición de bienes, servicios e instalaciones en el territorio de Costa Rica y a asegurar el respeto efectivo de los privilegios, inmunidades y facilidades concedidas a aquella.
