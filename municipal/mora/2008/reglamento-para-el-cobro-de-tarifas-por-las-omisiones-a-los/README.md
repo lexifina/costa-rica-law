@@ -15,3 +15,4 @@ Reglamento para el Cobro de Tarifas por las omisiones a los deberes de los propi
 | --- | --- | --- |
 | 1 | 2008-10-30 | la propia norma |
 | 2 | 2017-01-16 | Reglamento municipal 38 (2017-01-16) |
+| 3 | 2018-08-20 | Reglamento municipal 121 (2018-08-20) |

@@ -1,0 +1,2 @@
+Artículo 16 bis.— La tarifa para el cobro de los costos por la construcción de la acera será dada por el costo efectivo de la obra (costo de los materiales, la mano de obra, el uso de equipo, imprevistos y gastos administrativos de control y ejecución del proyecto) y esta podría ser ejecutada con recursos institucionales o por contratación de servicios externos.
+(Así adicionado en sesión N° 121 del 20 de agosto del 2018)
