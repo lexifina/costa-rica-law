@@ -1,0 +1,1 @@
+Artículo 4º. Deróguense los numerales 5.10 y 5.12 del Decreto Ejecutivo Nº 37006-S del 15 de noviembre del 2011 “Reglamento de Inscripción y Control de Medicamentos Biológicos”, publicado en La Gaceta N° 59 del 22 de marzo del 2012 y córrase la numeración respectiva.
