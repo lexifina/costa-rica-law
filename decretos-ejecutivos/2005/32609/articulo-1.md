@@ -14,5 +14,6 @@ educativos públicos del Ministerio
 de Educación Pública
 CAPÍTULO I
 Ambientación general
-Artículo 1º—Objeto. Con el presente reglamento se pretende regular aspectos básicos relativos a la organización, diseño, realización y ejecución de las celebraciones cívicas realizadas en los distintos centros educativos del país, a nivel comunal o local, regional, provincial o nacional, que se encuentren establecidas en el Calendario Escolar o de forma particular y que cuenten con la autorización de las autoridades educativas correspondientes.
-Deberá interpretarse la presente normativa de la manera más favorable a la realización de la celebración patria que corresponda.
+Artículo 1°—Objeto e interés público-educativo. Con el presente reglamento se pretende regular aspectos básicos relativos a la organización, diseño, realización y ejecución de las celebraciones cívicas realizadas en los distintos centros educativos del país, a nivel comunal o local, regional, provincial o nacional, que se encuentren establecidas en el Calendario Escolar o de forma particular y que cuenten con la autorización de las autoridades educativas correspondientes.
+Deberá interpretarse la presente normativa de la manera más favorable a la realización de la celebración patria que corresponda. Asimismo, ante la importancia que las celebraciones patrióticas tienen para el fortalecimiento de la democracia y el enriquecimiento educativo, estas han de considerarse tanto de interés público como educativo a nivel nacional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41267 del 20 de agosto de 2018)

@@ -14,3 +14,4 @@ Regulación General para la Realización de celebraciones Patrias (actos cívico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-09-12 | la propia norma |
+| 2 | 2018-08-20 | Decreto Ejecutivo 41267 (2018-08-20) |
