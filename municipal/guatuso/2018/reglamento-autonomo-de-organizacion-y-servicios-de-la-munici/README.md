@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicios de la Municipalidad del Cantó
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-31 | la propia norma |
+| 2 | 2018-08-21 | Reglamento municipal 34 (2018-08-21) |
