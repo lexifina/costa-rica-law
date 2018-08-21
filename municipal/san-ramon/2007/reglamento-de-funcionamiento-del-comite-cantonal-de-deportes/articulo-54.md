@@ -1,1 +1,0 @@
-Artículo 54.—La Junta tendrá libro de actas debidamente autorizado por el Comité Cantonal y en él deberán constar sus acuerdos y solicitudes de pago, ingresos y egresos de la actividad del Polideportivo.

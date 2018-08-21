@@ -1,1 +1,0 @@
-Artículo 60.—La Junta Administrativa nombrará un Administrador para el Polideportivo, y este nombramiento será ratificado por el Comité Cantonal de Deportes y Recreación. El Administrador del Polideportivo asistirá a las reuniones de la Junta Administrativa y su labor estará subordinada a la misma.

@@ -1,1 +1,0 @@
-Artículo 37.—Los Comités Comunales serán los responsables de organizar, dirigir, promover y divulgar toda la actividad deportiva de su comunidad. Asimismo, promoverán la construcción, y administración y mantendrán las instalaciones deportivas de la comunidad otorgadas en administración.
