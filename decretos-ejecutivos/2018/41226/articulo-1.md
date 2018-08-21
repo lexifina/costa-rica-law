@@ -21,5 +21,6 @@ Expediente N° 20299. Ley contra el Acoso Sexual Callejero.
 Expediente N° 18629. Reforma Constitucional del Artículo 51 para Garantizar la Protección Especial del Estado a las Personas con Discapacidad.
 Expediente N° 20641. Ley de Combustibles (Ley para Avanzar en la Eliminación del Uso de Combustibles Fósiles en Costa Rica y Declarar el Territorio Nacional Libre de Exploración y Explotación de Petróleo y Gas)
 Expediente N° 19966. Reforma de la Ley N° 6041, Ley de Creación de la Comisión Nacional de Préstamos para la Educación (CONAPE), de 18 de enero de 1977, y sus Reformas.
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 41244 del 21 de agosto de 2018m, se acoró modificar la convocatoria a sesiones extraordinarias de la Asamblea Legislativa, realizada por el Decreto Ejecutivo N° 41226-MP, a fin de que se retire el siguiente proyecto de Ley: “Expediente N° 19548. Ley de Movilidad y Seguridad Ciclística”.)
 Rige a partir del primero de agosto de dos mil dieciocho.
 Dado en la Presidencia de la República, a los treinta y un días del mes de julio de dos mil dieciocho.

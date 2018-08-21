@@ -14,3 +14,4 @@ Convoca a sesiones extraordinarias, a partir del primero de agosto de dos mil di
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-08-01 | la propia norma |
+| 2 | 2018-08-21 | Decreto Ejecutivo 41244 (2018-08-21) |
