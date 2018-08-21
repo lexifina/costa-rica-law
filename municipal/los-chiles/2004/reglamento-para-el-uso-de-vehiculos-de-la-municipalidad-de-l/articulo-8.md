@@ -1,9 +1,0 @@
-CAPÍTULO V
-Artículo 8º—En caso de accidentes de tránsito con un vehículo municipal es obligación del funcionario conductor:
-8.1 Que el vehículo permanezca en el lugar del accidente, con el motor apagado y todas las demás medidas de seguridad convenientes, no pudiéndose separar del vehículo por ningún motivo salvo que sus condiciones físicas producto del accidente no se lo permitan.
-8.2 Dar aviso de inmediato a la autoridad de tránsito más cercana por el medio más rápido posible, así como a la Administración Municipal.
-8.3 En caso de colisión con otro vehículo deberá anotar el número de placas de éste y de ser posible el nombre y apellidos y número de licencia de su conductor, así como el nombre y apellidos, dirección y demás de testigos presenciales si los hubiere.
-8.4 Deberá prestar toda su colaboración a la autoridad que se presente.
-8.5 Queda prohibido al conductor efectuar arreglos extrajudiciales en caso de accidentes con vehículos municipales, deben indicar al particular que se apersone o comunique a la Municipalidad, para efectuar las gestiones correspondientes.
-8.6 El conductor que fuese responsable por los Tribunales de Justicia, con motivo de un accidente en que hubiere participado con el vehículo oficial, deberá pagar el monto correspondiente al deducible que eventualmente tendría que girarse al Instituto Nacional de Seguros o las indemnizaciones que deba hacer la Municipalidad en favor de terceros afectados, cuando el costo del daño sea inferior al monto del deducible.
-Será igualmente responsable aquel que permitiese a otra persona conducir un vehículo oficial sin causa justificada o la debida autorización. Lo aquí dispuesto será aplicado sin perjuicio de las sanciones disciplinarias que se impongan al servidor.
