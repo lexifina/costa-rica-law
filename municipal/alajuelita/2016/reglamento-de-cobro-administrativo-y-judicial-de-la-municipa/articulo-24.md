@@ -1,0 +1,1 @@
+Artículo 24: Deberá mantener a la Oficina de Administración Tributaria informada y actualizada sobre el domicilio de su oficina, sus datos personales y los medios formales y técnicos para su localización.

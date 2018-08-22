@@ -1,0 +1,1 @@
+Artículo 44: Los sujetos pasivos interesados en realizar arreglos de pago con la Municipalidad podrán solicitar a la Oficina de Administración Tributaria el procedimiento denominado “REQUISITOS PARA ARREGLO DE PAGO DE CUENTAS VENCIDAS”.

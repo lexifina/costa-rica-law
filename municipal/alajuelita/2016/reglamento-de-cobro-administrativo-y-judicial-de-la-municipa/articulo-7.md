@@ -1,0 +1,9 @@
+CAPÍTULO TERCERO
+Cobro Administrativo
+Artículo 7: La Oficina de Administración tributaria será responsable de llevar a cabo la gestión de cobro administrativo ajustándose a las siguientes disposiciones:
+a) Emitir y enviar dos avisos de cobro escritos a los sujetos pasivos que no cancelaron las cuentas vencidas o no, otorgando un plazo máximo de 10 días hábiles contados a partir del recibo efectivo del aviso para que los sujetos pasivos procedan a realizar el pago respectivo o bien un arreglo de pago.
+b) El aviso de cobro escrito debe contener la siguiente información: nombre, dirección y ubicación del sujeto pasivo, así como su cédula de identidad, concepto, periodo, desglose y monto de los tributos; monto de los intereses, en caso que las cuentas estén vencidas; fecha de emisión del recibo y plazo otorgado para el pago; indicación de agotamiento de la gestión de cobro administrativo para proceder al cobro extrajudicial; firma de jefe del Departamento de Administración Tributaria.
+c) El aviso de cobro escrito será notificado mediante los procedimientos previstos en la Ley N°8687, Ley de Notificaciones Judiciales. En todo caso, en el expediente se debe dejar constancia de la recepción del aviso.
+d) La Oficina de Administración Tributaria por medio del gestor/a cobro dispondrá de un plazo máximo de 10 días hábiles para verificar el procedimiento de cobro administrativo y trasladar, mediante oficio firmado por el jefe del Departamento de Administración Tributaria, los expedientes a los Abogados para el cobro extrajudicial.
+e) El abogado encargado del cobro extrajudicial y judicial emitirá un único aviso de cobro extrajudicial con un plazo de 10 días hábiles días para cancelar o realizar arreglo de pago
+f) Los sujetos pasivos que una vez vencido el plazo indicado en el inciso c) no realizaron la cancelación de las cuentas vencidas, serán objeto de cobro judicial.

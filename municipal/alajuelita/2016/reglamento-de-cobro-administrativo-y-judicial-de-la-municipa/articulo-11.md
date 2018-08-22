@@ -1,0 +1,2 @@
+Artículo 11: Agotada la gestión de cobro administrativo, la Oficina de Cobro podrá realizar arreglos de pago a los contribuyentes que lo soliciten, y que no tengan arreglos de pago pendientes.
+De no existir voluntad de pago o arreglo por parte del contribuyente moroso en los plazos indicados, el abogado encargado del cobro extrajudicial y judicial , solicitará a la Jefatura de la Administración Tributaria la certificación del adeudo tributario del contribuyente conforme al artículo # 71 del Código Municipal.
