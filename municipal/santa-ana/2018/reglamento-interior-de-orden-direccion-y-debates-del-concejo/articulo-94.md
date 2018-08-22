@@ -1,0 +1,1 @@
+Artículo 94. — Si el Concejo no reforma o revoca un acuerdo que ha sido recurrido mediante revocatoria e interpuesta la apelación o el veto, emplaza a las partes y trasladará el expediente respectivo al Tribunal Superior Contencioso Administrativo.

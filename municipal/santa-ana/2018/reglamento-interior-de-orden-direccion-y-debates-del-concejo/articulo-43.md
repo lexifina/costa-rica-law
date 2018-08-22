@@ -1,0 +1,2 @@
+Artículo 43. — Aprobación de actas. Las actas de las sesiones deberán ser aprobadas en la Sesión Ordinaria inmediata posterior, salvo que circunstancias de fuerza mayor lo impidan.
+En la página Web de la Municipalidad y otros sitios de Internet se debe realizar la publicación de las actas, con un plazo máximo de 15 días posterior a la fecha de la sesión, así mismo solo deben aparecer las actas definitivas o sea posteriormente a su firma por la Presidencia y la del Secretario o Secretaria del Concejo.

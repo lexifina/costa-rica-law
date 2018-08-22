@@ -1,0 +1,15 @@
+Artículo 12. — Funciones de la Secretaría del Concejo Municipal.
+a. Comunicar las convocatorias a las sesiones y reuniones, conforme a los acuerdos que previamente se hayan tomado por parte de los responsables.
+b. Mantener actualizado el banco de datos de los participantes permanentes y colaboradores, que incluya dirección física, electrónica, teléfonos.
+c. Tramitar la correspondencia y poner la fecha de ingreso a cada trámite e indicar a quien va dirigido indicando el curso sugerido para la misma, para agilizar la dinámica.
+d. Dar asistencia a la Presidencia Municipal para la coordinación de las sesiones.
+e. Levantar las actas de las sesiones y reuniones.
+f. Tener las actas listas dos horas antes del inicio de cada sesión ordinaria, las que se remitirán a los correos electrónicos de todas las personas participantes permanentes y asesorías, para aprobarlas oportunamente, salvo lo señalado en el artículo 48 del Código Municipal, en cuanto a que existan razones de fuerza mayor, en cuyo caso la aprobación deberá darse en la siguiente sesión ordinaria, la motivación de la fuerza mayor deberá constar por escrito, junto con la prueba respectiva y debe ser conocida por el pleno del Concejo.
+g. Trasladar a los miembros permanentes, toda la correspondencia recibida para la sesión ordinaria, la que ingrese antes del mediodía, del día viernes anterior de la celebración de la misma. Toda la documentación debe ser incorporada en el resumen de correspondencia, dicho resumen debe ser enviado los viernes, a todos los miembros del concejo municipal (excepto los asuntos privados que se enviarán únicamente a regidurías propietarios y suplentes). Lo anterior para que, durante la sesión, los miembros del Concejo, tengan la oportunidad de discutir sobre el destino que la presidencia haya dispuesto para cada documento. Excepcionalmente se podrá conocer aquella correspondencia que llegue fuera del término que sea de trámite judicial.
+h. Enviar copia certificada del expediente al tribunal que lo solicita; una vez que la Administración Municipal remita el expediente administrativo debidamente identificado, foliado, completo y en estricto orden cronológico. La Administración conservará el expediente original.
+i. Transcribir, comunicar o notificar los acuerdos del Concejo a las personas interesadas, conforme con la ley.
+j. Extender certificaciones de las actas y/o acuerdos cuando le sean solicitadas, así como de expedientes administrativos, según lo dispuesto en el artículo 51 del Código Procesal Contencioso Administrativo.
+k. Confeccionar expedientes, sobre asuntos que deben ser estudiados y analizados para la toma de decisiones.
+l. Firmar junto con la Presidencia las actas de las sesiones.
+m. Apoyar el trabajo de las Comisiones y Consejos de Distrito.
+n. Cualquier otro deber que le encarguen las leyes, los reglamentos respectivos y el Concejo Municipal.

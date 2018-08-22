@@ -1,0 +1,1 @@
+Artículo 108. — Cuando la Presidencia tuviese que mocionar o en alguna forma involucrarse en la defensa de algún asunto en discusión en el plenario municipal, dejará su cargo temporalmente al vicepresidente. Si quien ejerce la Presidencia es el Vicepresidente, la regiduría de mayor de edad será la llamada a sustituirlo.

@@ -1,0 +1,2 @@
+Artículo 81. — Las comisiones en general, incorporarán en sus dictámenes los criterios técnicos y legales que amparan su recomendación, lo que deberán hacer constar por escrito.
+En caso de que una comisión dictamine un asunto con criterio diferente, al criterio técnico o jurídico de la administración, debe razonar los motivos por los cuales se separa y el amparo legal o técnico en que se sostiene el criterio.

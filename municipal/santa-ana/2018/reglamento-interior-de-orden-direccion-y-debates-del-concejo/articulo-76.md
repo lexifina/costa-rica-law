@@ -1,0 +1,1 @@
+Artículo 76. — Si se ha votado el dictamen negativamente, podrán los regidores propietarios por acuerdo de mayoría calificada, volver a enviar a la comisión respectiva el asunto para aclarar o adicionar por única vez, dando por acabada la posibilidad de volver a referirse al mismo asunto dictaminado.

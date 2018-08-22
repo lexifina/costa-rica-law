@@ -1,0 +1,1 @@
+Artículo 110. — La Secretaría coordinará con la Proveeduría, un refrigerio básico para la atención de las sesiones ordinarias y aquellas extraordinarias, que conforme con la agenda propuesta y la extensión de la misma, revistan un carácter excepcional.

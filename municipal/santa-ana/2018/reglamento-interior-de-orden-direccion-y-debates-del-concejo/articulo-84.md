@@ -1,0 +1,1 @@
+Artículo 84. — En todo lo no previsto en este capítulo, en lo que deberes y atribuciones de los miembros de Comisión se refiere, se aplicará en lo conducente, lo dispuesto en el Reglamento Interior de Orden, Dirección y Debates del Concejo Municipal, así como en el Código Municipal, para el normal desempeño de las sesiones.

@@ -1,0 +1,1 @@
+Artículo 83. — Al inicio de cada trimestre, la Secretaría de Comisiones, enviará un informe al Concejo Municipal de los documentos atendidos y pendientes de atender por cada una de las Comisiones. Además, enviará un informe al Concejo Municipal del registro de asistencia de regidurías, Sindicaturas y asesorías, para que este tome las acciones correspondientes.

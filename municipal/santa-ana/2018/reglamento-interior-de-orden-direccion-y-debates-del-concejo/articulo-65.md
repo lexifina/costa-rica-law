@@ -1,0 +1,1 @@
+Artículo 65. — La coordinación de una comisión, o en su ausencia la Sub coordinación de esta, podrán convocar a sesiones extraordinarias, por lo menos con veinticuatro horas de anticipación. En ausencia de la Coordinación o la Sub coordinación, convocará y presidirá la sesión, el miembro de la comisión de mayor edad.

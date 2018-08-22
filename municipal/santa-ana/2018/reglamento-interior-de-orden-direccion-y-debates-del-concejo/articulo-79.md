@@ -1,0 +1,1 @@
+Artículo 79. — La Secretaría de Comisiones, elaborará el orden del día, según las instrucciones que le gire el Coordinador de Comisión, el cual deberá ajustarse al orden en que los asuntos fueron recibidos en la comisión. La Secretaría de Comisiones, será responsable del manejo de los expedientes, cuyos originales se conservarán en la Secretaría del Concejo Municipal.

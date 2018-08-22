@@ -1,0 +1,1 @@
+Artículo 74. — Si en la discusión de un dictamen en el Concejo Municipal se detectaren errores materiales y formales, podrán corregirse en sesión, la cual, deberá consignarse en el acta y en el acuerdo tomado por el Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 113. — Normas supletorias. En todo lo no previsto regirán las disposiciones del Código Municipal Ley N. º 7794 y sus reformas, y la Ley General de Administración Pública Ley N. º 6227 y sus reformas. (Numeración modificada en La Gaceta N. º 155, del miércoles 13 de agosto del 2014)

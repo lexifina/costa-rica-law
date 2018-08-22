@@ -1,0 +1,1 @@
+Artículo 63. — Cuando, una comisión quede sin posibilidad de conformar su quórum, en razón de ausencia temporal justificada de sus miembros, la Presidencia Municipal, podrá, en tanto dure esa ausencia, sustituir a titulares por otras regidurías o sindicaturas, con la intención de evitar atrasos innecesarios.

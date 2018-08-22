@@ -1,0 +1,2 @@
+Artículo 87. — Atención de Audiencias. La Secretaría remitirá a la Presidencia del Concejo la lista que contenga el orden de las solicitudes de Audiencia presentadas por los particulares.
+La Presidencia decidirá el orden de atención se decidirá tomando en cuenta la fecha de ingreso, en caso de oportunidad, interés municipal o cualquier otro aspecto se podrá modificar por medio de una moción de orden.

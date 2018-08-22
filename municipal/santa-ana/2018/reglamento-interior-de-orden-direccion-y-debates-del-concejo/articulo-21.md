@@ -1,0 +1,1 @@
+Artículo 21. — Sustitución de una Regiduría. La regiduría suplente que sustituye a una propietaria tendrá derecho a permanecer durante toda la sesión como miembro del Concejo con voz y voto, con el derecho a devengar la dieta correspondiente.

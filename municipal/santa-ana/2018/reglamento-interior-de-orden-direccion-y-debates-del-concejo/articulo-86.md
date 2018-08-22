@@ -1,0 +1,1 @@
+Artículo 86. — Planteamientos al Concejo. Todo planteamiento realizado al Concejo Municipal deberá presentarse por escrito y contener, nombre, firma, número de cédula, número telefónico y lugar para notificaciones de preferencia forma digital.

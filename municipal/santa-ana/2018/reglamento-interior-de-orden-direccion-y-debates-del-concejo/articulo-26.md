@@ -1,0 +1,1 @@
+Artículo 26. — Ruptura de Quórum. Si en el transcurso de una sesión se rompiere el quórum, la Presidencia por medio de la Secretaría instará a las regidurías que se hubieren retirado, para que ocupen sus curules. Transcurridos diez minutos sin que pueda restablecerse el quórum, se levantará la sesión. Las Regidurías ausentes perderán el derecho a la dieta correspondiente.

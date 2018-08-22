@@ -1,0 +1,1 @@
+Artículo 57. — Comisiones Reguladas por Leyes Especiales. Se regulan y se conforman por las mismas leyes especiales que les dan origen. Entre ellas el Comité Cantonal de la Persona Joven, el cual se considera una comisión permanente de la Municipalidad, integrada según lo establecido en la Ley n. º 8261, sus reformas y reglamentos.

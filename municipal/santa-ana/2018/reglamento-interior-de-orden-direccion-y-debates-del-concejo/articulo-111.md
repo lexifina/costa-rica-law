@@ -1,0 +1,1 @@
+Artículo 111. — Este Reglamento deroga el aprobado en Sesión Ordinaria N. º 75 bajo el Artículo II inciso segundo celebrada el 25 de mayo de 1999 y publicado en la Gaceta N. º 144 del jueves 27 de julio del año 2000. Quedan derogadas las disposiciones de la misma naturaleza y/o acuerdos anteriores del Concejo Municipal, en el tanto se le opongan.
