@@ -1,0 +1,1 @@
+Transitorio I.- La Sección Administrativa deberá formular y notificar dentro de los próximos doce meses, las directrices y procedimientos necesarios para la administración y control de los activos institucionales.

@@ -1,0 +1,1 @@
+Artículo 30- La asignación de todo servicio de comunicación móvil institucional debe obedecer a criterios de necesidad institucional y de justificado interés público que coadyuve a la prestación efectiva del servicio público que presta la entidad y las actividades propias del puesto del funcionario a quien se le asigne.

@@ -1,0 +1,1 @@
+Artículo 18- Los bienes institucionales de tipo móvil que requieran salida fuera del país en razón de actividad institucional, podrán ser trasladados con la autorización de la Secretaría Ejecutiva, para tal efecto se deberá seguir el procedimiento establecido, teniendo que informar por escrito a la Sección Administrativa, para actualizar datos de pólizas relacionadas.

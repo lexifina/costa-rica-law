@@ -1,0 +1,1 @@
+Artículo 47- CONAPE podrá recibir activos por donación, contando con ofrecimiento escrito por parte del donante, que deberá ser avalado por la Secretaría Ejecutiva, teniendo que documentarse el avalúo correspondiente para el registro contable y tramitarse la escritura pública e inscripción en Registro Nacional si corresponde.

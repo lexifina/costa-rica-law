@@ -1,0 +1,1 @@
+Artículo 19- Cuando un activo requiera mantenimiento preventivo o correctivo, el funcionario responsable del mismo deberá gestionar ante la Sección Administrativa, según corresponda conforme con su naturaleza, el aviso correspondiente mediante el procedimiento relacionado, a los efectos de que la Sección Administrativa pueda autorizar la salida del activo.

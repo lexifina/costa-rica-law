@@ -1,0 +1,1 @@
+Artículo 54- El incumplimiento de lo dispuesto en este Reglamento se sancionará conforme lo señalado en la Ley de la Administración Financiera de la República y Presupuestos Públicos, la Ley General de Control Interno y Reglamento Autónomo de Trabajo.

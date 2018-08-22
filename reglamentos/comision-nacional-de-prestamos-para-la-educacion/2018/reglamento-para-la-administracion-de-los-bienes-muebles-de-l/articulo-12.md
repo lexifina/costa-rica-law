@@ -1,0 +1,1 @@
+Artículo 12- Todo movimiento en el Sistema para el control de Activos requerirá la autorización del nivel de jefatura inmediato, así como su aceptación por parte del funcionario responsable del activo.

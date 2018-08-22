@@ -1,0 +1,1 @@
+Artículo 44- El funcionario responsable deberá utilizar los mecanismos necesarios disponibles para la custodia de equipos electrónicos, garantizando su conservación y resguardo, teniendo utilizar candado para equipos sobre escritorios, maletines para el traslado, conservarlos bajo llave según corresponda.

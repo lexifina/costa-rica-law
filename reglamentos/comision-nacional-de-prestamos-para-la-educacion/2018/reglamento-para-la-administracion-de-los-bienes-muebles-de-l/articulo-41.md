@@ -1,0 +1,1 @@
+Artículo 41- El equipo electrónico será asignado al funcionario responsable y podrá ser utilizado dentro o fuera de la Institución, lo cual deberá estar consignado en el formulario de asignación de activos, según los procedimientos establecidos para la solicitud relacionada y están sujetos a las disposiciones establecidas en este Reglamento.

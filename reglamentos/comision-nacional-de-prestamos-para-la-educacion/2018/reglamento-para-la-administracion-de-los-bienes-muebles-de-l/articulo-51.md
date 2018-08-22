@@ -1,0 +1,1 @@
+Artículo 51- La autorización para los préstamos de activos de la Institución a otros entes del Estado, le corresponde a la Secretaría Ejecutiva. Los préstamos a que se refiere este artículo serán justificados y solicitados por escrito por el jerarca del ente solicitante.

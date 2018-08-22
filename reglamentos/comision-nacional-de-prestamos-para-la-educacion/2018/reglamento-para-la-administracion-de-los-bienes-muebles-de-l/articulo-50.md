@@ -1,0 +1,1 @@
+Artículo 50- Los bienes que por su deterioro u obsolescencia tecnológica no sean susceptibles de donación y sean dados de baja deberán ser entregados a un gestor ambiental autorizado para garantizar la adecuada disposición final de dichos activos.

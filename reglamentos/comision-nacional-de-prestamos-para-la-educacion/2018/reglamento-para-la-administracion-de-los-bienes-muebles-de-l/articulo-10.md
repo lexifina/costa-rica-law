@@ -1,0 +1,1 @@
+Artículo 10- Los activos de la Institución deberán contar con número de activo, por medio de una placa de código de barras, etiquetas de radiofrecuencia o cualquier otro sistema de identificación, a criterio de la Sección Administrativa.

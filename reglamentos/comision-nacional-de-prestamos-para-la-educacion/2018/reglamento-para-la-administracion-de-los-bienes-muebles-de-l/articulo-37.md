@@ -1,0 +1,1 @@
+Artículo 37- Le corresponderá a la Sección Administrativa tener bajo custodia la fórmula de suscripción de los servicios de comunicación móvil institucional y cualquier documento que la administración considere necesario para respaldar la adquisición del mismo y almacenarlo en un expediente físico o electrónico.

@@ -1,0 +1,1 @@
+Artículo 28- Reportes. Todo funcionario de CONAPE podrá emitir un reporte a la Sección Administrativa sobre un bien institucional, sea sobre su estado, desaparición, deterioro, desprendimiento de identificación u otro que permita tomar acciones correspondientes tendientes a verificar la situación y atender lo pertinente respecto a su custodia, conservación y control.

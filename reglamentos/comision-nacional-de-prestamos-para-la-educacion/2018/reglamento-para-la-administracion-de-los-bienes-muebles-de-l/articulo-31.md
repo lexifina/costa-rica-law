@@ -1,0 +1,1 @@
+Artículo 31- El uso de teléfono celular y/o dispositivo para Internet móvil es exclusivo para el ejercicio de las funciones asociadas al puesto que desempeña el funcionario responsable. No se permite la cesión o préstamo a terceros.

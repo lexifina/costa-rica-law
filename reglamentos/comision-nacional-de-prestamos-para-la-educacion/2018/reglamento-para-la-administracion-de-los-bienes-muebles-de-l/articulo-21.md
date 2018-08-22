@@ -1,0 +1,1 @@
+Artículo 21- En caso de pérdida o daño anormal de un activo, el funcionario responsable contará con un plazo de dos días hábiles para presentar un informe de lo acaecido a la Sección Administrativa, con copia a su jefatura inmediata. Si se determina que hubo negligencia o dolo, por parte del funcionario responsable, la persona debe reponer los bienes correspondientes.

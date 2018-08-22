@@ -1,0 +1,1 @@
+Artículo 11- Corresponderá al funcionario responsable velar porque los dispositivos de identificación se mantengan adheridos a los activos que les han sido asignados. En caso de que los dispositivos de seguridad sufrieran algún deterioro o desaparecieran, deberá de comunicar lo correspondiente a la Sección Administrativa.

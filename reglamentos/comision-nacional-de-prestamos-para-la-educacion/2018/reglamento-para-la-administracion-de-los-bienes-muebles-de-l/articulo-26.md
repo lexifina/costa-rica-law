@@ -1,0 +1,1 @@
+Artículo 26- Cada funcionario responsable deberá realizar un inventario anual y mantendrá actualizado el registro de bienes asignados a su cargo, teniendo que remitir dicho inventario con las concordancias y justificación por diferencias, a su jefatura inmediata para el reporte anual de su unidad.

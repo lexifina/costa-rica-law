@@ -1,0 +1,1 @@
+Artículo 39- En caso de que el funcionario responsable, con aval de su respectiva jefatura, indique la intención de prescindir del servicio de Internet móvil, deberá comunicarlo formalmente a la Sección de Informática, para que se realice las gestiones respectivas.
