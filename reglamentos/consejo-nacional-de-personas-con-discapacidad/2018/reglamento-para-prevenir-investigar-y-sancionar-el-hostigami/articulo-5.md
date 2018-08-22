@@ -1,0 +1,1 @@
+Artículo 5.- Política Institucional contra toda forma de hostigamiento sexual en el Conapdis. El Conapdis fortalecerá su compromiso por medio de la divulgación y aplicación de la Política Institucional contra toda forma de hostigamiento sexual.

@@ -1,0 +1,1 @@
+Artículo 33.- Asesoramiento jurídico y apoyo emocional. En el procedimiento que contempla este Reglamento, las partes podrán hacerse representar por patrocinio letrado. También podrán acompañarse del apoyo emocional o psicológico de su confianza en las diversas fases del procedimiento.

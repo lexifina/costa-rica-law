@@ -1,0 +1,1 @@
+Artículo 35.- De la abstención y de la recusación: Si alguna de las personas del Órgano Director tiene impedimentos, por alguna razón contemplada en el Artículo 234 y siguientes de la Ley General de la Administración Pública, deberá abstenerse del conocimiento y prosecución del trámite, o en su defecto las partes podrán recusarles.

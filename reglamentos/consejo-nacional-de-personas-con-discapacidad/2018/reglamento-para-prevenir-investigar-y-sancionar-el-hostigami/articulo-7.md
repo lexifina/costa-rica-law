@@ -1,0 +1,1 @@
+Artículo 7 .- Dotación presupuestaria: La Unidad de Recursos Humanos gestionará el presupuesto necesario y suficiente, para el cumplimiento de las responsabilidades relacionadas con la prevención del hostigamiento sexual en el Conapdis.

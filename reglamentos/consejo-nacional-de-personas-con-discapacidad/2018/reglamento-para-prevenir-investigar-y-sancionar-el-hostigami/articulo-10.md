@@ -1,0 +1,1 @@
+Artículo 10.- La Institución está en la obligación de informar a la Defensoría de los Habitantes de la República, sobre la recepción de toda denuncia por hostigamiento sexual, así como el resultado del procedimiento.

@@ -1,0 +1,1 @@
+Artículo 41.- La persona funcionaria a quien se le compruebe haber incurrido en alguna conducta de hostigamiento sexual, será sancionará de conformidad con la Ley Nº 7476 y sus reformas, el Estatuto y Reglamento del Servicio Civil, el Reglamento de Organización y de Servicio del Conapdis, el Código de Trabajo y el presente Reglamento.

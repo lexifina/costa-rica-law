@@ -1,0 +1,1 @@
+Artículo 20.- Quien haya denunciado hostigamiento sexual o haya comparecido como testigo, no podrá sufrir por ello perjuicio personal alguno en su empleo, a la vez se resguardará la imagen, confidencialidad y los principios que rigen la actividad administrativa, so pena de incurrir en falta grave.

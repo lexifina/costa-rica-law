@@ -1,0 +1,1 @@
+Artículo 38.- De la comunicación de la resolución final. En caso de que proceda la aplicación de alguna medida disciplinaria, la Dirección Ejecutiva lo comunicará a la Unidad de Recursos Humanos adjuntando copia de la resolución, con el fin de que se incluya en el respectivo expediente.

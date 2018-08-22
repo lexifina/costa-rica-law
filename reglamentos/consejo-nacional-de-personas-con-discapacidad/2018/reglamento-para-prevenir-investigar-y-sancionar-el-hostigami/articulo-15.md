@@ -1,0 +1,1 @@
+Artículo 15.-Trámite de la denuncia y audiencia. Para el trámite de la denuncia se debe actuar de conformidad con lo establecido en este Reglamento, por lo tanto, no se dará audiencia a las partes antes de la apertura del procedimiento, ni se recurrirá a la ratificación de la denuncia ni a la investigación preliminar de los hechos.

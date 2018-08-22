@@ -1,0 +1,1 @@
+Artículo 36.- Deberes de acatamiento, colaboración e información. Las personas funcionarias del Conapdis están en la obligación de brindar su colaboración a solicitud del Órgano Director. La desatención injustificada de este deber se considerará falta y se sancionará conforme con lo establecido en el Reglamento de Organización y Servicio.

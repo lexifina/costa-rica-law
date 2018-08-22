@@ -1,0 +1,1 @@
+Artículo 44.- Sanciones para quienes no den trámite a las denuncias: Incurrirá en falta de naturaleza laboral, que dará mérito para la aplicación del régimen disciplinario, la(s) persona (s) funcionaria (s) que, conociendo de una denuncia por hostigamiento sexual, no le den el trámite previsto en esta normativa.

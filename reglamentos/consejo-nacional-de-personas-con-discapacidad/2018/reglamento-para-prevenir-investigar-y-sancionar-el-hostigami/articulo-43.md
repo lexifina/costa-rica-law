@@ -1,0 +1,1 @@
+Artículo 43.- Sanciones para quienes denuncien sin fundamento. La persona que denuncie una conducta de hostigamiento sexual falsa podrá ser denunciada ante el Ministerio Público, según lo establecido en el Código Penal.

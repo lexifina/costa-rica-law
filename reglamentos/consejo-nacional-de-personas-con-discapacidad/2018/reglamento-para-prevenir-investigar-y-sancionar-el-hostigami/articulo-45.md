@@ -1,0 +1,1 @@
+Artículo 45.- Sanciones para quienes entorpezcan o atrasen injustificadamente la investigación: Incurrirá en falta de naturaleza laboral, que dará mérito para la aplicación del régimen disciplinario, las personas funcionarias que entorpezcan o que atrasen, injustificadamente, la investigación, negándose a declarar o brindar información sobre los hechos investigados.

@@ -1,0 +1,1 @@
+Artículo 32.- Del levantamiento de acta: La realización de la audiencia será registrada en un acta, tal y como se establece en los artículos 270 y 313 de la Ley General de Administración Pública, esto como garantía del correcto desarrollo del proceso. El acta se incluirá en el expediente administrativo.

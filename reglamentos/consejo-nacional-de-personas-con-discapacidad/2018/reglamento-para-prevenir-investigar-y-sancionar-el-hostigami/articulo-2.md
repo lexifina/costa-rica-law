@@ -1,0 +1,1 @@
+Artículo 2.- Objetivo. El presente Reglamento establece las instancias responsables y las competencias para la prevención, investigación y sanción del hostigamiento sexual en el Conapdis, además, las acciones correspondientes para tramitar y resolver las denuncias en esta materia.
