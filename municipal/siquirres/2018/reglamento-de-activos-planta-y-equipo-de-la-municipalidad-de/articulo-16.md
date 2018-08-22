@@ -1,0 +1,1 @@
+ARTICULO 16 - ADQUISICION DE IDENTIFICADORES DE NÚMERO DE ACTIVO DE PROPIEDAD, PLANTA Y EQUIPO. El departamento titular del Departamento de Contabilidad del Municipio será el responsable de la adquisición de identificadores de activos (placa metálica, cintas adhesivas, código de barras u otros medios similares).

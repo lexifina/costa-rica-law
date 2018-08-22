@@ -1,0 +1,1 @@
+ARTICULO 2 - OBJETIVO GENERAL: Regular desde la adquisición, el control y uso de los activos de propiedad, planta y equipo propiedad de la Municipalidad de Siquirres, con el fin de que se cumpla con la normativa vigente.
