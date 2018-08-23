@@ -1,0 +1,3 @@
+FONDO NACIONAL DE FINANCIAMIENTO FORESTAL
+Se incorpora en el Capítulo III del Reglamento Interno de Contratación Administrativa del Fondo Nacional de Financiamiento Forestal, el artículo 15 siguiente (sesión ordinaria de la junta directiva 05-2018 del 17 de julio de 2018).
+Artículo 15.—Política de Razonabilidad de Precios. El Fondo Nacional de Financiamiento Forestal respalda e incorpora en sus procesos de planificación, presupuestación y contratación, acciones orientadas a la adquisición de bienes y servicios a precios razonables y de mercado; siguiendo la normativa, los lineamientos, la jurisprudencia y las buenas prácticas en la materia, para lograr el aprovechamiento óptimo de los recursos disponibles.
