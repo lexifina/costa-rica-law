@@ -1,7 +1,4 @@
-Artículo 43.- Recursos. Mediante escrito motivado, los autos que se dicten en el proceso podrán ser apelados para ante el Tribunal de lo Contencioso-Administrativo y Civil de Hacienda, en el efecto devolutivo, dentro del plazo de cinco días hábiles, solo cuando tengan relación con las siguientes materias:
-a) La designación de los peritos.
-b) La fijación de los honorarios de los peritos.
-c) Lo concerniente al retiro, el monto y la distribución de avalúo.
-d) Los autos que resuelvan sobre nulidades de actuaciones y resoluciones.
-e) Los autos que resuelvan los incidentes de nulidad de las actuaciones periciales.
-En los demás casos, los autos solo tendrán recurso de revocatoria, que deberá ser interpuesto en el plazo de tres días hábiles.
+Artículo 43.- Audiencia sobre el fondo y prueba para mejor resolver
+El Tribunal de Casación de lo Contencioso-Administrativo y Civil de Hacienda, concederá a las partes un plazo de cinco días hábiles para presentar los alegatos que consideren oportunos. También podrá solicitar la prueba para mejor resolver que considere pertinente.
+(Así reformado por el artículo 215 de la Ley N° 8508 de 28 de abril de 2006, Código Procesal Contencioso Administrativo).
+(La Sala Constitucional, mediante resolución N° 13705 del 23 de agosto del 2018, anuló la reforma integral efectuada por la ley N° 9286 del 11 de noviembre de 2014 sobre este artículo, por infringir el trámite sustancial previsto en el artículo 167 de la Constitución Política. Por ello, recobra vigencia (según indica la misma resolución) la reforma practicada por el artículo 215 de Código Procesal Contencioso Administrativo, N° 8508 de 28 de abril de 2006, sobre este numeral. Consecuentemente, el texto mostrado es la modificación introducida por el artículo 215 del Código Procesal Contencioso Administrativo.)
