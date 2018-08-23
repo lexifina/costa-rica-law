@@ -1,0 +1,1 @@
+Artículo 28.—Las vacaciones, permisos, licencias y excedencias se regularán por la legislación vigente y los acuerdos entre la corporación y sus funcionarios y se concederán siempre que el servicio no se halle en mínimo o se encuentre en una situación especial, por riguroso orden de petición.

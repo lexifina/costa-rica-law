@@ -1,0 +1,1 @@
+Artículo 29.—Los Policías Municipales tendrán derecho a su defensa en asuntos judiciales que provengan del cumplimiento de sus deberes, en aquellos casos en los que así lo disponga discrecionalmente la Alcaldía Municipal en conjunto con la Gestión Jurídica de la Municipalidad, ya sea mediante servicios profesionales internos o externos.
