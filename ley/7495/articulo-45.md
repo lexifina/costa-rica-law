@@ -1,1 +1,10 @@
-Artículo 45.- Pago del justo precio. El justiprecio será pagado en dinero efectivo, salvo que el expropiado lo acepte en títulos valores. En este caso, los títulos se tomarán por su valor real, que será certificado por la Bolsa Nacional de Valores, por medio de sus agentes o, en su defecto, por un corredor jurado. Firme la sentencia, el pago de la diferencia con el avalúo administrativo será realizado de inmediato y, en lo conducente, serán aplicables las normas sobre ejecución de sentencia contenidas en la Ley N.° 8508, Código Procesal Contencioso-Administrativo, de 28 de abril de 2006.
+Artículo 45.- Apelación de autos dictados durante el proceso. Mediante escrito motivado, los autos que se dicten en el proceso, podrán ser apelados para ante el Tribunal de Casación de lo Contencioso- Administrativo, en el efecto devolutivo, dentro del plazo de tres días hábiles, solo cuando tengan relación con las siguientes materias:
+a) La entrada en posesión del bien expropiado.
+b) La designación de los peritos.
+c) La fijación de los honorarios de los peritos.
+d) Lo concerniente al retiro, el monto y la distribución del avalúo.
+e) Los autos que resuelvan sobre nulidades de actuaciones y resoluciones.
+f) Los autos que resuelvan los incidentes de nulidad de las actuaciones periciales.
+En los demás casos, los autos solo tendrán recurso de revocatoria, que deberá ser interpuesto en el plazo de tres días hábiles."
+(Así reformado por el artículo 215 de la Ley N° 8508 de 28 de abril de 2006, Código Procesal Contencioso Administrativo).
+(La Sala Constitucional, mediante resolución N° 13705 del 23 de agosto del 2018,anuló la reforma integral efectuada por la ley N° 9286 del 11 de noviembre de 2014 sobre este artículo, por infringir el trámite sustancial previsto en el artículo 167 de la Constitución Política. Por ello, recobra vigencia (según indica la misma resolución) la reforma practicada por el artículo 215 de Código Procesal Contencioso Administrativo, N° 8508 de 28 de abril de 2006, sobre este numeral. Consecuentemente, el texto mostrado es la modificación introducida por el artículo 215 del Código Procesal Contencioso Administrativo.)
