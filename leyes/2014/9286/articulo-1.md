@@ -7,7 +7,7 @@ DE EXPROPIACIONES, DE 3 DE MAYO
 DE 1995, Y SUS REFORMAS
 ARTÍCULO ÚNICO.-
 Se reforma integralmente la Ley N.° 7495, Ley de Expropiaciones, de 3 de mayo de 1995, y sus reformas. Su texto dirá:
-“LEY DE EXPROPIACIONES
+"LEY DE EXPROPIACIONES
 CAPÍTULO I
 DISPOSICIONES GENERALES
 Artículo 1.- Objeto. La presente ley regula la expropiación forzosa por causa de interés público legalmente comprobado. La expropiación se acuerda en ejercicio del poder de imperio de la Administración Pública y comprende cualquier forma de privación de la propiedad privada o de derechos o intereses patrimoniales legítimos, cualesquiera sean sus titulares, mediante el pago previo de una indemnización que represente el precio justo de lo expropiado.
@@ -142,8 +142,11 @@ En ningún caso, el monto de la indemnización podrá exceder de la suma mayor e
 La sentencia firme se notificará a la Dirección General de Tributación y a la municipalidad correspondiente, para la determinación de los impuestos nacionales o municipales conforme a la ley.
 Artículo 40.- Apelación. La parte disconforme con la resolución final podrá apelar ante el Tribunal de lo Contencioso-Administrativo y Civil de Hacienda, dentro de los cinco días hábiles siguientes a la fecha de la notificación.
 Presentada la apelación y transcurrido el plazo para apelar, el juzgado elevará los autos de inmediato.
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 13705 del 23 de agosto del 2018, se declaró inconstitucional la reforma del artículo anterior de esta ley al numeral 40 de la Ley N° 7495, Ley de Expropiaciones, de 3 de mayo de 1995, por infringir el tramite sustancial previsto en el artículo 167 de la Constitución Política.)
 Artículo 41.- Audiencia sobre el fondo y prueba para mejor resolver. El Tribunal de lo Contencioso-Administrativo y Civil de Hacienda concederá a las partes un plazo de cinco días hábiles para presentar los alegatos que consideren oportunos. También, podrá solicitar la prueba para mejor resolver que considere pertinente.
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 13705 del 23 de agosto del 2018, se declaró inconstitucional la reforma del artículo anterior de esta ley al numeral 41 de la Ley N° 7495, Ley de Expropiaciones, de 3 de mayo de 1995, por infringir el tramite sustancial previsto en el artículo 167 de la Constitución Política.)
 Artículo 42.- Resolución de segunda instancia. Vencido el plazo fijado en el artículo anterior o evacuada la prueba para mejor resolver, el Tribunal de lo Contencioso- Administrativo y Civil de Hacienda dictará la resolución final, dentro de los quince días hábiles siguientes.
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 13705 del 23 de agosto del 2018, se declaró inconstitucional la reforma del artículo anterior de esta ley al numeral 42 de la Ley N° 7495, Ley de Expropiaciones, de 3 de mayo de 1995, por infringir el tramite sustancial previsto en el artículo 167 de la Constitución Política.)
 Artículo 43.- Recursos. Mediante escrito motivado, los autos que se dicten en el proceso podrán ser apelados para ante el Tribunal de lo Contencioso-Administrativo y Civil de Hacienda, en el efecto devolutivo, dentro del plazo de cinco días hábiles, solo cuando tengan relación con las siguientes materias:
 a) La designación de los peritos.
 b) La fijación de los honorarios de los peritos.
@@ -151,6 +154,7 @@ c) Lo concerniente al retiro, el monto y la distribución de avalúo.
 d) Los autos que resuelvan sobre nulidades de actuaciones y resoluciones.
 e) Los autos que resuelvan los incidentes de nulidad de las actuaciones periciales.
 En los demás casos, los autos solo tendrán recurso de revocatoria, que deberá ser interpuesto en el plazo de tres días hábiles.
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 13705 del 23 de agosto del 2018, se declaró inconstitucional la reforma del artículo anterior de esta ley al numeral 43 de la Ley N° 7495, Ley de Expropiaciones, de 3 de mayo de 1995, por infringir el tramite sustancial previsto en el artículo 167 de la Constitución Política.)
 Artículo 44.- Archivo de las diligencias. En cualquier momento, la administración expropiante podrá solicitar el archivo del expediente. Cuando lo solicite en la vía judicial deberá cubrir las costas procesales y personales.
 Artículo 45.- Pago del justo precio. El justiprecio será pagado en dinero efectivo, salvo que el expropiado lo acepte en títulos valores. En este caso, los títulos se tomarán por su valor real, que será certificado por la Bolsa Nacional de Valores, por medio de sus agentes o, en su defecto, por un corredor jurado. Firme la sentencia, el pago de la diferencia con el avalúo administrativo será realizado de inmediato y, en lo conducente, serán aplicables las normas sobre ejecución de sentencia contenidas en la Ley N.° 8508, Código Procesal Contencioso-Administrativo, de 28 de abril de 2006.
 Artículo 46.- Depósito del ajuste del justiprecio. Cuando el expropiado no retire el ajuste del justiprecio, este permanecerá depositado a la orden del juzgado que conoció de la expropiación.
@@ -186,5 +190,5 @@ Artículo 60.- Especies fiscales y autenticación. Las diligencias de expropiaci
 Artículo 61.- Prescripción y caducidad. Los derechos y las acciones que se deriven de la presente ley prescriben en diez años, contados a partir del día siguiente a aquel en el que el Estado tomó posesión del bien o lo afectó.
 El reclamo, por vía administrativa, caducará y se tendrá por no interpuesto si transcurren cinco años sin que el interesado active las diligencias.
 Transitorio único.- Los procesos de expropiación pendientes a la fecha de entrada en vigencia de esta ley continuarán tramitándose de conformidad con las disposiciones vigentes en el momento de iniciarlos.
-Rige a partir de su publicación.”
+Rige a partir de su publicación."
 Dado en la Presidencia de la República, San José, a los once días del mes de noviembre del año dos mil catorce.
