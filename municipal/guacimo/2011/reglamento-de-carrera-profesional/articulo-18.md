@@ -1,0 +1,1 @@
+Artículo 18.—El Departamento de Recursos Humanos o su similar, estudiará la solicitud y si la aprueba, se determinará de acuerdo con el puntaje obtenido, el monto por reconocer y comunicará su resultado.

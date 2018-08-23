@@ -1,0 +1,1 @@
+Artículo 14.—Para el cálculo de la experiencia profesional, no se deducirán los permisos con goce de sueldo o sin él, para realizar estudios, siempre que estos estudios estén relacionados con el puesto que desempeña el funcionario.

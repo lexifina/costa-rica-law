@@ -1,0 +1,1 @@
+Artículo 22.—El valor de cada punto por carrera profesional será de inicio la suma de ¢2.273,00, establecida por la Dirección de Servicio Civil mediante resolución DG- 014-2018, siendo que se actualizará anualmente según lo haga Servicio Civil.
