@@ -1,3 +1,4 @@
+(Nota de Sinalevi: La Sala Constitucional, mediante resolución N° 13705 del 23 de agosto del 2018, anuló la reforma integral efectuada por la ley N° 9286 del 11 de noviembre de 2014, a los numeral 40, 41, 42 y 43 de la ley de Expropiaciones N° 7495 del 3 de mayo de 1995, por infringir el trámite sustancial previsto en el artículo 167 de la Constitución Política. Por ello, recobra vigencia (según indica la misma resolución) las afectaciones realizadas por este artículo a la ley de expropiaciones N° 7495 del 3 de mayo de 1995)
 ARTÍCULO 215.- Derógase el artículo 42 de la Ley de expropiaciones, N.º 7495, de 3 de mayo de 1995, y sus reformas; asimismo, se modifican sus artículos 41, 43, 44, 45 y 47, cuyos textos dirán:
 “Artículo 41.- Apelación
 La parte disconforme con la resolución final podrá apelar ante el Tribunal de Casación de lo Contencioso-Administrativo y Civil de Hacienda, dentro de los cinco días hábiles siguientes a la fecha de la notificación.
