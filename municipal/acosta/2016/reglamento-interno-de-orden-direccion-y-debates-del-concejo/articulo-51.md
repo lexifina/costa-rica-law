@@ -1,0 +1,1 @@
+Artículo 51.—La correspondencia que reciba la Secretaría del Concejo Municipal deberá contener claramente los siguientes puntos: nombre completo de la persona física, jurídica u organización comunal (en caso de ser persona jurídica o grupo organizado, indicar el nombre de su representante), dirección, número telefónico, lugar para ser notificado.
