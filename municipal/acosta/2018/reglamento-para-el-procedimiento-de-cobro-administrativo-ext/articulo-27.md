@@ -1,0 +1,1 @@
+Artículo 27.—Formalización de la contratación. Los oferentes elegidos suscribirán un contrato con la Municipalidad, así como cualquier otro documento que requiera la institución, necesario a la prestación eficiente de estos servicios, y para cumplir con las normas que regulan este tipo de contratación.

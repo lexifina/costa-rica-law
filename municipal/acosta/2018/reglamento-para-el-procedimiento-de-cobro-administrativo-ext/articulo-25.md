@@ -1,0 +1,20 @@
+SUBSECCIÓN III
+Del cobro de las obligaciones tributarias
+municipales en la etapa judicial o ejecutiva
+Artículo 25.—Deberes del Departamento de Cobro en la etapa judicial o ejecutiva. La etapa judicial se iniciará una vez agotada la fase administrativa, según lo dispuesto en el Artículo 11 de este Reglamento.
+El Departamento de Cobro, deberá cumplir con lo siguiente, en esta etapa:
+a. Determinar las obligaciones vencidas que se le adeuden a la Municipalidad, cuyo valor sea mayor al treinta por ciento de un salario base, entendiéndose éste el correspondiente al de un Oficinista 1, de conformidad con el Decreto de Salarios Mínimos vigente al momento de realizarse el cobro.
+b. El Departamento traslada el expediente respectivo para efectos de iniciar la etapa ejecutiva a los abogados externos.
+Este expediente contendrá al menos:
+1. Copia de las notificaciones de cobro administrativo realizadas al sujeto pasivo.
+2. Certificación del Contador Municipal que haga constar la obligación vencida que vaya a ser remitida a cobro judicial, la cual incluirá intereses, y constituirá el título ejecutivo para el proceso judicial respectivo, de conformidad con lo que establece el artículo 71 del Código Municipal.
+3. Informe registral del bien inmueble que constituya la garantía de la obligación tributaria adeudada a la Municipalidad, de conformidad con lo que establece el artículo 70 del Código Municipal. No obstante, tal requisito podrá ser cumplido por el a bogado respectivo, a juicio del Departamento. En el caso de las obligaciones
+provenientes del impuesto sobre bienes inmuebles, se aplicará lo establecido en este Reglamento.
+4. Calidades del sujeto pasivo y domicilio; si se trata de una persona jurídica, indicación de las citas de la constitución de la sociedad correspondiendo al abogado externo respectivo emitir la personería jurídica correspondiente.
+5. Personería jurídica del Alcalde.
+c. Asignar a los abogados y/o abogadas, en forma equitativa los casos de cobro judicial, de conformidad con el procedimiento que defina ese departamento, tomando en cuenta al menos los siguientes criterios: números de casos, cuantía, monto de los honorarios y fijación de un orden rotativo.
+d. Fiscalizar la labor de los abogados(as) externos, cuando ejecuten cobros, para ello compete a esta unidad, recibir los informes trimestrales que realicen los abogados externos de conformidad con este Reglamento, analizarlos y emitir trimestralmente un informe sobre los mismos para conocimiento del Alcalde Municipal, cuando este así lo solicite.
+e. Solicitar al Alcalde, la aplicación de las sanciones que en este Reglamento se establecen a los abogados(as) externos que incumplan con sus obligaciones.
+f. Solicitar al Alcalde, el nombramiento de nuevos abogados a la resolución de la contratación de abogados externos, de conformidad con la demanda que de esta gestión requiera la Municipalidad.
+g. Llevar un expediente de cada uno de los abogados(as) externos, en el cual se llevará toda la documentación relacionada con su contratación, los procesos asignados, los informes que éste presente y demás documentos relacionados con su actuar, los cuales serán agregados al expediente en forma cronológica y estarán debidamente foliados.
+h. Solicitar a la Municipalidad el pago del avalúo o peritaje, requerido por el juzgado, de los bienes inmuebles que garanticen las obligaciones vencidas, a efectos de determinar si en la fase de remate, la Municipalidad estaría interesada en solicitar la adjudicación del bien.

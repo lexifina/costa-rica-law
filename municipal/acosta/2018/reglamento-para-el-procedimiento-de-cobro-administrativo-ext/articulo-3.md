@@ -1,0 +1,13 @@
+Artículo 3º—Definiciones: para los efectos del presente Reglamento, se entienden por:
+a. Reglamento: el Reglamento para el Procedimiento de Cobro Administrativo, Extrajudicial y Judicial de la Municipalidad de Acosta
+b. Municipalidad: la Municipalidad de Acosta.
+c. Departamento de Cobro: es la dependencia municipal encargada de realizar y coordinar todas las gestiones de cobranza administrativas o judiciales de la Municipalidad y corresponde a este departamento la función de recaudación de la Municipalidad.
+d. Obligaciones vencidas: las obligaciones dinerarias vencidas, o bien, créditos exigibles de plazo vencido a favor de la Municipalidad. Obligaciones que pueden provenir tanto de obligaciones tributarias municipales o de administración municipal, así como de cánones, arrendamientos o cualquier crédito existente de plazo vencido a favor de la Municipalidad.
+e. Obligaciones tributarias municipales: correspondientes a todas aquellas prestaciones en dinero por los contribuyentes o responsables a la Municipalidad como consecuencia de impuestos municipales, o de administración municipal, tasa o contribuciones especiales.
+f. Sujeto activo: es sujeto activo de la relación jurídica el ente acreedor del tributo.
+g. Sujeto pasivo: la persona obligada al cumplimiento de la obligación vencida, sea en calidad de contribuyente, responsable o deudor de la Municipalidad.
+h. Abogados(as) externos: licenciados en Derecho que habiendo cumplido con los requisitos que la Municipalidad exige, y concursado para ofrecer sus servicios profesionales a la institución, bajo la normativa de este Reglamento realicen la gestión de cobro extrajudicial y judicial respectiva, para la recuperación de las obligaciones vencidas de esta Municipalidad.
+i. Cobro administrativo: las acciones que se realizan administrativamente por parte de la Unidad de Gestión de Cobro, para que las obligaciones vencidas sean canceladas por parte de los sujetos pasivos.
+j. Cobro extrajudicial: las acciones realizadas extrajudicialmente por los abogados externos en casos calificados, para la cancelación de las obligaciones vencidas trasladadas a éstos para su respectivo cobro, previo a iniciar la gestión judicial correspondiente.
+k. Cobro judicial: las acciones que se realicen por parte de los abogados externos, vía judicial, en aras de obtener la recuperación de las obligaciones vencidas trasladadas a éstos para su respectivo cobro.
+m. Arreglo de pago: es el compromiso que adquiere el sujeto pasivo con la Unidad de Gestión de Gestión de Cobro de la Municipalidad de pagar dentro del tiempo convenido por ambos, que no podrá exceder de seis meses, la obligación vencida adeudada a la Municipalidad. Solo en casos calificados se podrá extender plazo no mayor a un año.
