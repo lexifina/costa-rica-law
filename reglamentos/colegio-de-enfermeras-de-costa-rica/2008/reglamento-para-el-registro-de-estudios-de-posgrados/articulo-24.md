@@ -1,1 +1,0 @@
-Artículo 24.—Acreditación. El Colegio de Enfermeras de Costa Rica extenderá certificaciones o constancias con vista en el Registro de Profesionales de Enfermería como especialista, máster, doctor según corresponda.

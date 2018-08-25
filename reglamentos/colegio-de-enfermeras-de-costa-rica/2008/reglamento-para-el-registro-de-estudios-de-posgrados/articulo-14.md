@@ -1,1 +1,0 @@
-Artículo 14.—Experiencia. Al menos un miembro de la Comisión designado por la Junta Directiva deberá tener conocimiento y experiencia en currículo, o al menos en análisis y evaluación de planes de estudios universitarios.

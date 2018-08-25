@@ -1,2 +1,0 @@
-Artículo 15.—Prohibiciones. Aquel miembro de la Comisión que guarde relación de parentesco hasta tercer grado de consanguinidad, vínculo de afinidad o laboral, con el o la solicitante no podrá participar en el estudio de la solicitud correspondiente y deberá quedar su constancia escrita.
-La persona de Junta Directiva, miembro de la comisión, se deberá excusar cuando en Junta Directiva se discuta o resuelva sobre apelaciones en esta materia.

@@ -1,1 +1,0 @@
-Artículo 4º—De las inclusiones o exclusiones de Posgrados. La Comisión podrá incluir o excluir posgrados, sea por recomendación de la Junta Directiva o por solicitud de persona física o jurídica, en cuyo caso la persona interesada deberá presentar por escrito su solicitud y los motivos que la sustenta.

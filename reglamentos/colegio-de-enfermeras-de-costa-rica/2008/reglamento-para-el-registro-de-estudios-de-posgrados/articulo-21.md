@@ -1,1 +1,0 @@
-Artículo 21.—Plazo de aprobación. La Comisión tendrá un plazo de treinta días hábiles para resolver las solicitudes que se sometan a su conocimiento. De lo resuelto notificará a la persona interesada.

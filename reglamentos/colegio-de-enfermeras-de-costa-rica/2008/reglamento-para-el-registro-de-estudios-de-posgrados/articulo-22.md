@@ -1,1 +1,0 @@
-Artículo 22.—De los Recursos. Contra lo resuelto por la Comisión cabrá recurso de revocatoria y de apelación ante la Junta Directiva dentro del plazo de cinco días hábiles posteriores a la notificación.

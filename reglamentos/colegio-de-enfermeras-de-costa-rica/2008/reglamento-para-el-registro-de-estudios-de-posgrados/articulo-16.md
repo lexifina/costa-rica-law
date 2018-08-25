@@ -1,1 +1,0 @@
-Artículo 16.—Funciones. La Comisión será la encargada de evaluar las solicitudes de registro de los diferentes posgrados y recomendar a la Junta Directiva del Colegio la aprobación o denegación del registro del posgrado solicitado. La Comisión también llevará un libro de actas, debidamente foliado, sellado y autorizado por la Junta Directiva del Colegio de Enfermeras.

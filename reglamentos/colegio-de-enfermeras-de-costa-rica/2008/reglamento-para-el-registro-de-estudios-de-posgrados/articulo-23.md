@@ -1,1 +1,0 @@
-Artículo 23.—Inscripción y registro. Una vez aprobada la solicitud por la Junta Directiva, previo estudio de la Comisión, se inscribirá en el Registro de Profesionales de Enfermería con el título correspondiente: especialidad profesional, maestría profesional, maestría académica y doctorado.

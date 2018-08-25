@@ -1,1 +1,0 @@
-Artículo 12.—Vigencia de la designación. La vigencia de la designación de los miembros de Comisión será por un periodo de dos años. El nombramiento de los miembros de la Comisión podrá ser renovado de forma consecutiva por un período más y el ejercicio de sus funciones será ad honorem.
