@@ -1,0 +1,1 @@
+Artículo 9º—De la custodia de los expedientes. Una vez realizada la desafectación de la base de datos, los expedientes serán incluidos en una red como expediente digital al SISTEMAS TI POR TRATARSE DE EXPEDIENTE DIGITAL, con el propósito de custodiarlos como el resto de la documentación institucional.

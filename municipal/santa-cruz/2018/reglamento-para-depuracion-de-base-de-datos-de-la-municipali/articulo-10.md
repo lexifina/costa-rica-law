@@ -1,0 +1,2 @@
+Artículo 10.—Del Pendiente de Recaudación. El Coordinador de la Depuración, Jefe de Dpto o Encargado, emitirá el informe de contribuyentes depurados en forma permanente cada mes, los casos que han sido corregidos como inconsistentes, Se analizará el efecto que causará la depuración de cuentas sobre el pendiente de cobro, por parte de Administración Tributaria.
+Fundamentación jurídica: Ley de Bienes Inmuebles, Reglamento a la Ley de Bienes Inmuebles, Código Municipal, Ley General Administración Pública, Código de Normas y Procedimientos tributarios.

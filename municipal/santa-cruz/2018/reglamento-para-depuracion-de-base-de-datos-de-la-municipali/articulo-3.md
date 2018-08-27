@@ -1,0 +1,2 @@
+Artículo 3º—Del expediente. Para efectos de los estudios que conlleven a la depuración del registro de la información, se deberá incorporar al expediente único del contribuyente, la documentación generada por dichos estudios, el cual deberá contener al menos la siguiente información, tanto análogo como digital:
+Según lo establecido en el Manual de procedimientos para la actualización en el SIM- SIFAT.
