@@ -1,0 +1,1 @@
+Artículo 16.—Periodo retorno: El periodo de retorno de la tormenta de diseño para el diseño del alcantarillado pluvial debe ser como mínimo veinticinco (25) años y en zonas susceptibles a inundación o con antecedentes de la recurrencia conocida de 50 años.

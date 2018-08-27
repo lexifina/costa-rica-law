@@ -1,0 +1,1 @@
+Artículo 15.—Parámetros: Los parámetros para utilizar por el método racional corresponderán a los indicados en el inciso 6.2 de la Norma Técnica de Diseño y Construcción del Instituto Costarricense de Acueductos y Alcantarillado, Acuerdo 2017-281, del 21 de junio de 2017.

@@ -1,0 +1,1 @@
+Artículo 2°—Ámbito de aplicación. Las disposiciones contenidas en este Reglamento serán aplicables a todos los propietarios de bienes inmuebles situados en el cantón de San José, poseedores por cualquier título y desarrolladores que requieran conducir las aguas de lluvia a un sistema de alcantarillado pluvial o cuerpos de aguas naturales.

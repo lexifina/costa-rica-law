@@ -1,0 +1,4 @@
+Artículo 18.—Objeto del estudio. El estudio pretende que el sistema de retención pluvial existente con medida de mitigación no genere un caudal mayor del 50% del generado por la finca en verde; es decir, deberá almacenar el 50% del caudal que se genere en verde (Va), más el producido por la impermeabilización del terreno. En ningún caso el volumen de la retención será menor que el volumen producido por la impermeabilización (Vp) más el 25% de este volumen (1.25Vp).
+Si el volumen de impermeabilización (Vp) es igual o menor al cinco (5%) del volumen en verde (Va) no será necesario construir el sistema de retardo.
+En caso de propiedades con edificaciones construidas antes de este Reglamento, deberá considerarse el volumen verde inicial, es decir sin edificaciones, y para el cálculo post desarrollo el volumen de impermeabilización considerará las construcciones existentes más las propuestas.
+El sistema de retención deberá estar diseñado para una lluvia de 20 minutos.

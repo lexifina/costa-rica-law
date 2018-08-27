@@ -1,0 +1,1 @@
+Artículo 11.—Estudio sobre áreas impermeabilizadas. El estudio hidrológico de los proyectos realizados en áreas impermeabilizadas antes de la entrada en vigencia de este Reglamento deberá contener un escenario del área a construir en verde (sin desarrollo) y el cálculo con desarrollo para determinar el volumen de mitigación de la nueva obra.
