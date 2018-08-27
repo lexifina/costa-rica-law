@@ -1,1 +1,0 @@
-Artículo 43.—En todos los casos que suponga la administración de recursos públicos, la entidad beneficiaria deberá cumplir lo dispuesto en la Ley de la Administración Financiera y Presupuestos Públicos y Ley de la Contratación Administrativa y su Reglamento.

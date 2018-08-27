@@ -1,3 +1,0 @@
-CAPÍTULO VII
-Disposiciones finales
-Artículo 48.—Los bienes que ingresen o se encuentren en la Institución que sean propiedad de sus funcionarios deben ser reportados inmediatamente a Servicios Administrativos con el visto bueno de la jefatura inmediata, con el propósito de registrar su permanencia y posterior salida. Para que el bien pueda salir debe solicitarse la autorización a Servicios Administrativos y presentarla sin excepción al oficial de seguridad, en los casos que estos bienes sufran algún desperfecto, deterioro, pérdida o extravío mientras se encuentren dentro de las instalaciones del SENARA, la institución no asumirá ninguna responsabilidad al respecto.

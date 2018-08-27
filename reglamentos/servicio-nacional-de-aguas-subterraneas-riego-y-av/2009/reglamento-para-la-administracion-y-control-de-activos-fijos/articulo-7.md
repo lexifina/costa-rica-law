@@ -1,1 +1,0 @@
-Artículo 7º—El proceso Financiero Contable realizará el respectivo registro contable, además del registro de depreciación o revaluación de activos de acuerdo a las disposiciones técnicas que emita la Contabilidad Nacional.

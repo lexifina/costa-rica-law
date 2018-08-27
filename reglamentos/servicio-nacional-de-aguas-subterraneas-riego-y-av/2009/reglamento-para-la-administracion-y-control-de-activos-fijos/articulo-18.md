@@ -1,3 +1,0 @@
-CAPITULO III
-Extravío o robo de activos
-Artículo 18.—Del robo y hurto de activos fijos. En caso de desaparición, daño o pérdida de activos fijos por un presunto delito de robo, hurto, o sustracción, el funcionario que tenga asignado el activo fijo deberá interponer la denuncia correspondiente ante el Organismo de Investigación Judicial cuando así corresponda, dentro de las veinticuatro horas siguientes de haber sucedido o detectado el hecho, adicionalmente deberá sujetarse a lo preceptuado en este reglamento en relación con el procedimiento que deberá observarse en términos generales en el caso de extravío, pérdida, daño, deterioro, accidente de tránsito, colisión, u otros eventos que lleven implícito daño o pérdidas irreparables de activos institucionales.

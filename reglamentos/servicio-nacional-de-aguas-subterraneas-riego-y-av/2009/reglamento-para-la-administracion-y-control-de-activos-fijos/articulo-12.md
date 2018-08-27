@@ -1,2 +1,0 @@
-Artículo 12.—De las adiciones y mejoras de los activos. Cuando un activo fijo sea objeto de alguna adición o mejora que incremente significativamente su capacidad de servicio, su eficiencia, prolongación de su vida útil o reducción de sus costos de operación futura se deberán capitalizar.
-Las reparaciones ordinarias y extraordinarias que tiendan a la conservación del activo en condiciones normales de servicio, no son capitalizables.

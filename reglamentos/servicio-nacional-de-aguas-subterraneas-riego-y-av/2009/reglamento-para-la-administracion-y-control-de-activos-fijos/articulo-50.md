@@ -1,1 +1,0 @@
-Artículo 50.—Disposiciones derogatorias. Se deroga el Reglamento sobre control de bienes de la Institución aprobado por la Junta Directiva mediante Acuerdo Nº 203, Sesión Extraordinaria Nº 22, celebrada el 08 de mayo de 1984.

@@ -1,1 +1,0 @@
-Artículo 27.—Funcionarios a quienes se les asigna su utilización. Tendrán un teléfono celular asignado únicamente el Gerente General, el Subgerente General, así como a otros cargos o funcionarios que se justifique, que así lo determine y autorice el Gerente General.

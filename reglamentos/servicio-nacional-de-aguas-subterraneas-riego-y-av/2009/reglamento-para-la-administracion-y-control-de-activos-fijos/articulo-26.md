@@ -1,1 +1,0 @@
-Artículo 26.—Funcionarios responsables de asignarlos. Se autoriza al Gerente General como responsable de la asignación de teléfonos celulares, de acuerdo con lo establecido en este Reglamento. La asignación de teléfonos celulares debe efectuarse en forma excepcional y restrictiva, siempre que exista necesidad comprobada y manifiesta.

@@ -1,1 +1,0 @@
-Artículo 2º—Las disposiciones de este Reglamento son de acatamiento obligatorio para los funcionarios del Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento, que se benefician del uso y servicio de los activos fijos propiedad de esta institución.

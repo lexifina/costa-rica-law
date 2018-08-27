@@ -1,1 +1,0 @@
-Artículo 21.—Cuando el servidor(a) responsable de la custodia del activo que ha sufrido daño no ejerciere su defensa, ello no será motivo para tener por imputable a su responsabilidad los daños comprobados, debiendo el Proceso Servicios Administrativos continuar con la investigación hasta verificar la verdad real y dar por ello concluido el procedimiento.

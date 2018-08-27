@@ -1,1 +1,0 @@
-Artículo 41.—La entidad beneficiaria contará con cuarenta y cinco días naturales a partir de la recepción del acuerdo que apruebe la donación, para aceptarla y ejecutarla; caso contrario, se tendrá por desistida.
