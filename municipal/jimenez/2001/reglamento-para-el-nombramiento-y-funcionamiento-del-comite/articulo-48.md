@@ -1,1 +1,0 @@
-Artículo 48.—Los Comités Comunales tendrán un presidente, un secretario, un tesorero y dos vocales nombrados en la Asamblea general inicial. Sus funciones se incluyen en los artículos 9, 10 y 11 del presente Reglamento.
