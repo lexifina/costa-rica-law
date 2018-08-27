@@ -1,0 +1,1 @@
+Artículo 3º—Principios: Todas las contrataciones que se realicen al amparo del procedimiento sustitutivo de “Compras por Requerimiento” deberán observar los principios de eficiencia, eficacia, publicidad, libre competencia, igualdad, buena fe e intangibilidad patrimonial según se define en la Ley de Contratación Administrativa y su reglamento.
