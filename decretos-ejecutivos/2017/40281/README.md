@@ -30,3 +30,4 @@ Directrices generales de política presupuestaria, salarial, empleo, inversión 
 | 15 | 2018-07-19 | Decreto Ejecutivo 41246 (2018-07-19) |
 | 16 | 2018-08-06 | Decreto Ejecutivo 41269 (2018-08-06) |
 | 17 | 2018-08-14 | Decreto Ejecutivo 41270 (2018-08-14) |
+| 18 | 2018-08-28 | Decreto Ejecutivo 41312 (2018-08-28) |
