@@ -1,0 +1,1 @@
+Artículo 39.—Anulación de Boletas de Infracción. Será competencia sólo del Departamento de Parquímetros, la anulación de las boletas, después de la resolución de los recursos interpuestos en tiempo y forma y cuando así proceda. De no existir este Departamento, corresponderá dicha labor al Administrador Tributario de la Municipalidad de Puntarenas.

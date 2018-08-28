@@ -1,0 +1,1 @@
+Artículo 8º—Áreas de No Estacionamiento. Dentro de las zonas de estacionamiento, se podrán demarcar áreas de no estacionamiento de vehículos en todas aquellas vías que por sus medidas y condiciones de tránsito, sean aptas para este fin. Cada área debe marcarse con la señalización horizontal y vertical de prohibición para el estacionamiento de los vehículos.

@@ -1,0 +1,1 @@
+Artículo 34.—Gravamen. Las multas no canceladas se constituirán en gravamen, sobre la placa del vehículo con el que se cometió la infracción, el cual es el que responde por las sumas adeudadas, intereses y otros gastos que emanen de la acción judicial cobratoria, siendo posible hasta su remate.

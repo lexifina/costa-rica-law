@@ -1,0 +1,1 @@
+Artículo 22.—En el caso que el usuario mueva de lugar su vehículo antes de que haya transcurrido el tiempo por el cual pagó y requiera trasladarse a ocupar otro lugar señalado como área para estacionar, este podrá utilizar el tiempo restante, siempre y cuando sea dentro de las zonas establecidas en el presente reglamento.

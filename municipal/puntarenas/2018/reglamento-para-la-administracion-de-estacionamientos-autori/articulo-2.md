@@ -1,0 +1,1 @@
+Artículo 2º—De las potestades. La Municipalidad de Puntarenas, por medio de su Alcalde Municipal y el Departamento de Estacionamiento autorizado designarán las zonas, calles y avenidas que serán destinadas para estacionamientos autorizados.

@@ -1,0 +1,2 @@
+Artículo 37.—De las boletas de Infracción. Serán confeccionadas por los inspectores del sistema de estacionamiento autorizado, debidamente identificados para ejercer la función.
+En las boletas de infracción debe consignarse la fecha y hora de la elaboración, el número de matrícula del vehículo con el que se cometió la infracción, tipo de falta y la zona donde se cometió, debe contener la firma y el número de identificación del funcionario que la elaboró.

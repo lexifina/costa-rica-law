@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Control y vigilancia de los sistemas de estacionómetros
+Artículo 28.—El funcionamiento del sistema de estacionamiento autorizado, estará a cargo de la unidad designada por la Alcaldía Municipal o concesionario, la cual es la encargada de realizar estudios para actualizar las tarifas de estacionamiento las cuales deben ser aprobadas por el Concejo Municipal, llevar el registro de infracciones, gestionar el proceso de cobro de las multas, registrar los gravámenes ante la oficina encargada, la supervisión de los inspectores viales y en general, todas aquellas labores de fiscalización necesarias para garantizar un perfecto funcionamiento.

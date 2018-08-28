@@ -1,0 +1,2 @@
+Artículo 5º—Competencia. La Municipalidad de Puntarenas, por medio de la Alcaldía será la responsable del funcionamiento, fiscalización, administración y control del sistema de estacionamiento, o en su defecto un tercero contratado para la administración del servicio.
+La Alcaldía se encargará de establecer las zonas que se destinarán al aparcamiento de vehículos dentro de las vías del Cantón Central de Puntarenas.

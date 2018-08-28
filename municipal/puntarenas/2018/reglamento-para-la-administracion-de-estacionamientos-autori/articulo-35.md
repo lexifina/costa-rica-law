@@ -1,0 +1,2 @@
+Artículo 35.—Responsabilidad Penal. Quedaran sujetos a las correspondientes sanciones que indican la normativa penal vigente, los propietarios o conductores de los vehículos en los que se cometan alteraciones o fraudes en las boletas infracción por no pago de estacionamiento.
+Los inspectores viales están en la obligación de comunicarle cualquier anomalía al Departamento de Parquímetros, el cual es el encargado de fiscalizar y trasladar cuando corresponda la información al Departamento Legal de la Municipalidad de Puntarenas.

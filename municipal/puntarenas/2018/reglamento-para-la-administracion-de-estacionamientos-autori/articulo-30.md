@@ -1,0 +1,1 @@
+Artículo 30.—Inspectores Viales. Serán funcionarios Municipales o en su defecto personal que disponga la empresa concesionaria, a quienes les corresponderá vigilar por el adecuado cumplimiento de las disposiciones de este Reglamento y reportar los vehículos que infrinjan la Ley, así como seguir el procedimiento por las sanciones expuestas.

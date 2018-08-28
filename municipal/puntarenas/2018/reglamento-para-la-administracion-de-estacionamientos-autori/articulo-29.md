@@ -1,0 +1,1 @@
+Artículo 29.—Vigilancia. La municipalidad no asumirá ninguna responsabilidad por los robos o daños causados en los vehículos, las pertenencias que se encuentren en ellos ni por el costo de las reparaciones en razón de accidentes de tránsito, queda lo anterior bajo responsabilidad de los propietarios o conductores de los vehículos, no exponerse.

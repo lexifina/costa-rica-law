@@ -1,0 +1,1 @@
+Artículo 27.—Responsabilidades. Los adjudicatarios están sujetos a las prescripciones de Ley y éste Reglamento dicten, no podrán prestar, subarrendar o transferir por ningún título el espacio adjudicado, dejando a la Municipalidad en su derecho.

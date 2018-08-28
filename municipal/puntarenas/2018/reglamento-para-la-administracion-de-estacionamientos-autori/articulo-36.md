@@ -1,0 +1,1 @@
+Artículo 36.—Daños a la Infraestructura. La persona que ocasione daños a la infraestructura de cualquier parte del Sistema de Parquímetros, serán denunciados penalmente por el delito que corresponda y deberán resarcir los daños causados y las costas procesales, según como se estipule en la legislación penal y civil vigente respectivamente.

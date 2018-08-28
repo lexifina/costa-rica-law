@@ -1,0 +1,1 @@
+Artículo 21.—La Municipalidad tiene la facultad de suscribir convenios con instituciones de bien social y con fines No lucrativos, para que en forma directa vendan tarjetas u otro medio de pago para estacionar. El Concejo acordará el descuento equivalente para tal efecto y por el periodo que se concederá.
