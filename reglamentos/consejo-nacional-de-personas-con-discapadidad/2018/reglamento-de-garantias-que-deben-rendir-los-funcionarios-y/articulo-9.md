@@ -1,0 +1,2 @@
+Artículo 9º—Este Reglamento sustituye al aprobado por la Junta Directiva del Consejo Nacional de Rehabilitación y Educación Especial en sesión extraordinaria N° 859, celebrada el 21 de septiembre de 2006, acuerdo JD-1040-06, publicado en el Diario Oficial La Gaceta N° 45 del 05 de marzo de 2007.
+Aprobado por la Junta Directiva del Consejo Nacional Personas con Discapacidad en sesión ordinaria N° 06 del 08 de marzo de 2018, Acuerdo JD-701-2018.
