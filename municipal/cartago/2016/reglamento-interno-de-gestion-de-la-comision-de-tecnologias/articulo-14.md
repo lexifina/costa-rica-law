@@ -1,3 +1,0 @@
-Artículo 14.- Derogatoria
-Este reglamento deroga y deja sin efecto el Reglamento de Funcionamiento de la Comisión de Informática o en Tecnologías de Información y Comunicación de la Municipalidad de Cartago, aprobado en el artículo 16, acta 188-08, de sesión ordinaria celebrada el día 7 de octubre del 2008, y reformado parcialmente en el artículo 10, acta 98-11, de sesión ordinaria celebrada el 30 de agosto del 2011, publicado integro en La Gaceta N° 10 del 13 de enero del 2012; así como cualquier norma reglamentaria municipal que se le oponga.
-Rige a partir de su publicación. Publiquese una única vez.-

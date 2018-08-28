@@ -1,9 +1,0 @@
-MUNICIPALIDAD DE CARTAGO
-La Municipalidad de Cartago avisa que el Concejo Municipal de Cartago en su sesión del día 03 de agosto del 2016, en el Artículo VII del Acta N°21-2016, aprobó por unanimidad el “REGLAMENTO INTERNO DE GESTIÓN DE LA COMISION DE TECNOLOGÍAS DE INFORMACIÓN Y COMUNICACIÓN, CTIC”, el cual dice:
-“REGLAMENTO INTERNO DE GESTIÓN DE LA COMISION DE
-TECNOLOGÍAS DE INFORMACIÓN Y COMUNICACIÓN, CTIC”
-Artículo 1.- Definición y fines de las Tecnologías de Información y Comunicaciones
-Las Tecnologías de Información y Comunicaciones (TIC) son el conjunto de tecnologías dedicadas al manejo de la información organizacional, que incluye entre otros recursos las aplicaciones, información, infraestructura (tecnología e instalaciones) y personas que interactúan en el ambiente de tecnologías de la Municipalidad de Cartago.
-La Municipalidad de Cartago debe administrar sus proyectos de TIC de manera que logre un equilibrio en la asignación de recursos y la adecuada atención de los requerimientos de todas las unidades de la corporación, para que se alcancen los objetivos y programas incluidos en los Planes Estratégicos Municipales y se facilite el proceso de creación de valor público (resultados).
-Al mismo tiempo, debe optimizar la integración, uso y estandarización de los sistemas de información para que se identifique, capture y comunique, en forma completa, exacta y oportuna, sólo la información que requieren sus procesos.
-De esta forma el jerarca debe apoyar sus decisiones sobre asuntos estratégicos de TI en la asesoría de una representación razonable de la organización que coadyuve a mantener la concordancia con la estrategia institucional, a establecer las prioridades de los proyectos de TI, a lograr un equilibrio en la asignación de recursos y a la adecuada atención de los requerimientos de todas las unidades de la organización. Normas técnicas para la gestión y el control de las tecnologías de información (N-2-2007-CO-DFOE)
