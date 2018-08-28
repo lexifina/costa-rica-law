@@ -15,3 +15,4 @@ Reglamento para la aplicación de la dedicación exclusiva y la prohibición de 
 | --- | --- | --- |
 | 1 | 2008-03-17 | la propia norma |
 | 2 | 2009-06-22 | Reglamento municipal 165 (2009-06-22) |
+| 3 | 2018-08-28 | Reglamento municipal 122 (2018-08-28) |
