@@ -1,3 +1,4 @@
-Artículo 4º—Atribuciones y deberes del Comité. Son atribuciones y deberes del Comité:
-a) Definir y proponer las políticas y acciones en materia promocional y turística de Costa Rica como destino turístico, las cuales serán sometidas a la Junta Directiva del ICT, para su aprobación final.
+Artículo 4°—Atribuciones y deberes del Comité. Son atribuciones y deberes del Comité:
+a) Emitir recomendaciones sobre planes, programas, estrategias o acciones en temas relacionados con promoción y mercadeo de Costa Rica como destino turístico, que le sean consultados por el ICT.
 b) Preparar las normas para su funcionamiento interno, las cuales serán aprobadas por la Junta Directiva del ICT.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 41340 del 28 de agosto de 2018)

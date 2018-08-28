@@ -14,3 +14,4 @@ Reglamento Constitutivo del Comité Mixto de Mercadeo del ICT
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-10-28 | la propia norma |
+| 2 | 2018-08-28 | Decreto Ejecutivo 41340 (2018-08-28) |
