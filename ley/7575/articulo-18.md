@@ -1,6 +1,2 @@
-ARTICULO 18.- Autorización de labores
-En el patrimonio natural, el Estado podrá realizar o autorizar
-labores de investigación, capacitación y ecoturismo, una vez aprobadas
-por el Ministro del Ambiente y Energía, quien definirá, cuando
-corresponda, la realización de evaluaciones del impacto ambiental, según
-lo establezca el reglamento de esta ley.
+Artículo 18- Autorización de labores. En el patrimonio natural, el Estado podrá realizar o autorizar labores de investigación, capacitación y ecoturismo, así como actividades necesarias para el aprovechamiento de agua para consumo humano, de conformidad con el artículo 18 bis de esta ley, una vez aprobadas por el ministro de Ambiente y Energía, quien definirá, cuando corresponda, la realización de evaluaciones del impacto ambiental, según lo establezca el reglamento de esta ley.
+(Así reformado por el artículo 1° de la Ley para autorizar el aprovechamiento de agua para consumo humano y construcción de obras conexas en el Patrimonio Natural del Estado, N° 9590 del 3 de julio de 2018)
