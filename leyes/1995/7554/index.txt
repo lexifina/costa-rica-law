@@ -50,6 +50,7 @@ articulo-49.md
 articulo-50.md
 articulo-51.md
 articulo-52.md
+articulo-52-bis.md
 articulo-53.md
 articulo-54.md
 articulo-55.md
