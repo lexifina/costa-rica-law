@@ -14,3 +14,4 @@ Reglamento que Regula la Formalización de Acuerdos de Pago por deudas de Patron
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-01-30 | la propia norma |
+| 2 | 2018-08-30 | Reglamento 8986 (2018-08-30) |

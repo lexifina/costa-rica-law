@@ -1,0 +1,3 @@
+Transitorio Único
+En caso de patronos que tienen arreglos y convenios de pago formalizados con la Caja, que mantengan deudas con el Fondo de Desarrollo Social y Asignaciones Familiares, podrán formalizar un nuevo arreglo o convenio de pago incluyendo dichos rubros; siempre y cuando el deudor se encuentre al día con la Caja. Las condiciones de este nuevo arreglo o convenio de pago en cuanto a plazo, tasa de interés, garantías y tipos de cuotas, serán las definidas en este Reglamento al momento de la formalización, y no aplicarán las condiciones establecidas para las readecuaciones de pago contempladas en el artículo 14 de este reglamento.
+(Así adicionado mediante sesión N° 8986 del 30 de agosto de 2018)
