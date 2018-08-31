@@ -1,0 +1,1 @@
+Artículo 19.-Alteración de la ruta: Cualquier alteración de la ruta programada que se presente en el transcurso de un viaje, será responsabilidad absoluta del funcionario que utilice el servicio, quien deberá informar al Jefe inmediato con copia a las oficinas de Servicios Generales tal situación al finalizar la gira.

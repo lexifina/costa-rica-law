@@ -1,0 +1,2 @@
+Artículo 51.-De la interpretación para la aplicación del presente Reglamento: En la aplicación del presente Reglamento se deberán tomar en cuenta todas aquellas circunstancias relacionadas con los peligros de la navegación y los riesgos del abordaje, así como las circunstancias especiales propias del tipo, dimensión y capacidad de las embarcaciones propiedad del SINAC.
+Ninguna disposición del presente Reglamento impedirá la aplicación de normas y reglas especiales.

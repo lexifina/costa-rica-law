@@ -1,0 +1,9 @@
+Artículo 32.-Préstamo de vehículos. Los vehículos del SINAC podrán ser concedidos en préstamo a otros órganos gubernamentales, a entes públicos y a Poderes del Estado, siempre y cuando medie una acción institucional conjunta y de interés común con respecto a las funciones de SINAC. Todo préstamo de vehículos deberán constar en documento, por medio de convenio o carta de entendimiento que suscribirán los máximos jerarcas institucionales. Los préstamos que se acuerden estarán sujetos a las siguientes condiciones:
+a) Los vehículos prestados serán utilizados exclusivamente por los beneficiarios, para atender las necesidades que se derivan de las acciones institucionales conjuntas con SINAC.
+b) Los beneficiarios asumirán las responsabilidades por el uso y operación de los vehículos prestados, con inclusión de las derivadas por daños y perjuicios contra terceros.
+c) Los beneficiarios deberán practicar con cargo a sus propios recursos, todas la reparaciones necesarias de los vehículos prestados, de manera que se encuentren debidamente facultados para atender el propósito de préstamo convenido.
+d) Los beneficiarios deberán velar porque los vehículos prestados sean conducidos por personal de la institución beneficiaría debidamente capacitado.
+e) Los beneficiarios deberán atender todas las diligencias de cuido necesarias, convenientes y oportunas para lograr el mejor estado posible de los vehículos prestados.
+f) Los gastos por concepto de combustible correrán por cuenta de los beneficiarios, salvo acuerdos escritos en contrario.
+g) Los costos derivados por pérdidas totales o parciales de los vehículos prestados en casos de accidentes, robos o extravíos, deberán ser asumidos por los beneficiarios.
+h) Salvo acuerdo en contrario el SINAC en cualquier momento podrá dar por resueltos los préstamos concedidos, para lo cual los beneficiarios deberán de inmediato proceder a la devolución de los vehículos prestados.

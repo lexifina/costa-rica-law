@@ -1,0 +1,1 @@
+Artículo 23.-De la conducción del vehículo: Es absolutamente prohibido a todos los conductores o chóferes ceder la conducción del vehículo a otras personas no autorizadas, salvo por razones muy calificadas, en cuyo caso, una vez finalizada la gira, deberá informar el motivo de ello a las Oficinas de Servicios Generales o quien realice esas funciones.

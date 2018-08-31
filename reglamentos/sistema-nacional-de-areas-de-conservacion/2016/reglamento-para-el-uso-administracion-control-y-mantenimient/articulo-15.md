@@ -1,0 +1,1 @@
+Artículo 15.-Agrupación de solicitudes: Para lograr un mejor aprovechamiento de los vehículos, las oficinas de Servicios Generales o las unidades funcionales podrán agrupar varias solicitudes de transporte dentro de una misma ruta en un solo trayecto previo aviso oportuno a los interesados.

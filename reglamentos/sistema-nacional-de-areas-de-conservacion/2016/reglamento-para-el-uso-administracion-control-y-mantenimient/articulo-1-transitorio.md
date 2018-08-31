@@ -1,0 +1,1 @@
+Transitorio l. A partir de la entrada en vigencia de este Reglamento y por un plazo de un año, los funcionarios que realicen la función de conductores de embarcaciones, tendrán que cumplir con los requisitos indicados en el artículo 46 de este Reglamento.

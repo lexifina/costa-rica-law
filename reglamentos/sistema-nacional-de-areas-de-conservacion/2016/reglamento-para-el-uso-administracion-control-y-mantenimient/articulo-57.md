@@ -1,0 +1,1 @@
+Artículo 57.-Vigencia: Este Reglamento rige a partir de su publicidad a todos los funcionarios del Sistema Nacional de Áreas de Conservación y deroga cualquier otra disposición interna que se le apoye.

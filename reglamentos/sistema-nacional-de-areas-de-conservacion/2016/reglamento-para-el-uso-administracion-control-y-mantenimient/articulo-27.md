@@ -1,0 +1,1 @@
+Artículo 27.-Prohibición de estacionamiento: Los vehículos del SINAC no deberán ser estacionados por sus conductores o chóferes frente a cantinas, tabernas o similares, ni frente a locales cuya fama, riña con la moral y las buenas costumbres. Salvo que la función que realice así lo amerite.

@@ -1,0 +1,1 @@
+Artículo 55.-Sanciones: Las infracciones al presente Reglamento serán sancionados disciplinariamente de acuerdo a la normativa vigente en el Reglamento Autónomo de Servicios del Ministerio de Ambiente y Energía, Código de Trabajo, Estatuto del Servicio Civil y su Reglamento.

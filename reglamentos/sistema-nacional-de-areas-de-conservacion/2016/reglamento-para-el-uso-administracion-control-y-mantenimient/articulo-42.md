@@ -1,0 +1,1 @@
+Artículo 42.-Autorización excepcional para el uso de las embarcaciones: De manera excepcional, expresamente y por escrito, el Director del Área de Conservación, el Director Ejecutivo del SINAC y el Ministro de Ambiente y Energía, podrán autorizar el uso de las embarcaciones para asuntos oficiales y de interés institucional.

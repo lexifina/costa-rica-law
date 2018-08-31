@@ -1,0 +1,2 @@
+Artículo 21.-Protección a chóferes y conductores: El SINAC otorgará protección a sus chóferes y conductores durante el ejercicio de sus labores a través de las pólizas de riesgo del trabajo y las relativas a vehículos según las disposiciones de la Ley de Tránsito.
+Para decidir sobre coberturas adicionales en las pólizas de vehículos la Administración del SINAC deberá efectuar un análisis económico - financiero y determinar la conveniencia de las mismas.

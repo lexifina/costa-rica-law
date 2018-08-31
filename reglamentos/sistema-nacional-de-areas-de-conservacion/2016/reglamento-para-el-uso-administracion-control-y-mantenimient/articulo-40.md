@@ -1,0 +1,3 @@
+Artículo 40.-Declaración del conductor: Es obligación del conductor brindar declaración ante las Oficinas de Servicios Generales o al coordinador Administrativo, a su jefe inmediato y ante el Departamento de Personal sobre lo sucedido, la cual deberá ser objetiva, ya sea aceptando o negando la culpabilidad en el accidente. Además debe colaborar en los trámites correspondientes ante las Oficinas de Servicios Generales, a la Coordinación Administrativa y el Instituto Nacional de Seguros en un plazo perentorio de tres días, a partir del percance.
+Asimismo, deberá brindar declaración ante los tribunales de Justicia, según las disposiciones de la
+Ley de Tránsito, en aquellos casos en que la Ley así lo exija.

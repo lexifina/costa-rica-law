@@ -1,0 +1,1 @@
+Artículo 54.-Cumplimiento de la normativa: Es responsabilidad exclusiva de cada conductor o chofer y del SINAC como tal, en lo que corresponda a cada uno, el cumplimiento de lo establecido en el presente Reglamento, de ahí que si acata órdenes que contravengan dichas disposiciones, asumirá las consecuencias que esa acción origine.

@@ -1,0 +1,1 @@
+Artículo 31.-Sanciones. Las infracciones de los funcionarios del SINAC a las disposiciones del presente Reglamento serán sancionadas, según su gravedad, de conformidad con las disposiciones que en materia disciplinaria correspondan.

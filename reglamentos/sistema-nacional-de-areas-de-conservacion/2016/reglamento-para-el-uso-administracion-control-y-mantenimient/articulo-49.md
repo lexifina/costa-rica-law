@@ -1,0 +1,1 @@
+Artículo 49.-Del trámite de permisos de operación y funcionamiento: Será responsabilidad de la Oficina de Servicios Generales o quien realice esas funciones, obtener y renovar los permisos exigidos por Ley para la operación y funcionamiento de cada una de las embarcaciones.

@@ -1,0 +1,1 @@
+Artículo 11.-Custodia de los vehículos en gira: Cuando un vehículo se encuentre en gira, deberá permanecer en un lugar seguro a juicio del funcionario autorizado o del operador y bajo su entera responsabilidad.

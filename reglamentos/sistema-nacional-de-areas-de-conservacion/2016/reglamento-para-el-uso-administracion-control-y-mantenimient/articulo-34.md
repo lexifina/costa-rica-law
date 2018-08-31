@@ -1,0 +1,1 @@
+Artículo 34.-Prohibíción de arreglos extrajudiciales: Ningún conductor del SINAC está autorizado para efectuar arreglos extrajudiciales. En caso de accidentes con vehículos del SINAC, únicamente, debe indicarle al particular que se apersone o comunique con las Oficinas de Servicios Generales o quien realice esas funciones, para efectuar las gestiones correspondientes.

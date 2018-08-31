@@ -1,0 +1,1 @@
+Artículo 3.-Los vehículos estarán bajo el control y responsabilidad de la jefatura de la Unidad de Servicios Generales de la Secretaría Ejecutiva, así como de los encargados de estas oficinas en cada Área de Conservación, en el caso de los vehículos asignados a Unidades Funcionales, el jefe de dicha unidad asumirá la responsabilidad y el uso.

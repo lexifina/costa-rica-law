@@ -1,0 +1,1 @@
+Artículo 14.-Disponibilidad de transporte: Las solicitudes para utilizar vehículos destinados a giras en el territorio nacional deberán presentarse según lo establece el artículo 12, con un plazo de cinco días hábiles de anticipación a la realización de la gira, salvo casos de emergencia.
