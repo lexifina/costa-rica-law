@@ -1,0 +1,4 @@
+CONSEJO NACIONAL DE SALARIOS
+Para todos los efectos, se procede a comunicar el acuerdo 3, artículo 4°, sesión ordinaria N° 5499-2018, celebrada por el Consejo Nacional de Salarios, el 30 de julio del 2018, que en lo conducente señala:
+“Se acuerda por los votos de todos los miembros presentes y por unanimidad, dejar sin efecto la Resolución del Consejo Nacional de Salarios, aprobada en la sesión ordinaria Nº 4515 del 19 de julio de 1999, referente a la lista taxativa de labores pesadas, peligrosas e insalubres, por cuanto, conforme a lo señalado, en el oficio MTSS-DMT-OF-933-2018 del 27 de julio del 2018, suscrito por el Lic. Steven Núñez Rímola, Ministro de Trabajo y Seguridad Social, es al Consejo de Salud Ocupacional, Órgano Adscrito al Ministerio de Trabajo y Seguridad Social, al que compete definir, cuales labores son consideradas pesadas, peligrosas e insalubres”.
+San José, 08 de agosto del 2018.
