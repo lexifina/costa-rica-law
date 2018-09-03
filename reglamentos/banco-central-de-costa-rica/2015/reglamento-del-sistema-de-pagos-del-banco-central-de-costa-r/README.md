@@ -17,3 +17,4 @@ Reglamento del sistema de pagos del Banco Central de Costa Rica
 | 2 | 2015-12-23 | Reglamento 5707 (2015-12-23) |
 | 3 | 2017-06-07 | Reglamento 5772 (2017-06-07) |
 | 4 | 2018-05-02 | Reglamento 5825 (2018-05-02) |
+| 5 | 2018-09-03 | Reglamento 5841 (2018-09-03) |

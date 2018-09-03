@@ -40,7 +40,7 @@ d) Mercados:
 Servicio | Suscripción mensual | Otros conceptos
 Mercado Integrado de Liquidez | ₡320.000 | 0,05% anualizado sobre una base de 360 días aplicado a cada oferta calzada.
 Mercado de Monedas Extranjeras | ₡340.000 |
-MONEX-Continuo · Sobre monto calzado | | 0.05%
+MONEX-Continuo · Sobre monto calzado | | 0,02% (Así reformado el porcentaje anterior en sesión N° 5841 del 3 de setiembre de 2018)
 MONEX-Subasta · Por modificación a la oferta inicial en el período comprendido entre los minutos 5:00 a 9:59 del evento de subasta · Por modificación a la oferta en el período comprendido entre los minutos 10:00 a 15:00 del evento de subasta · Sobre monto calzado | | ¢4.000 por cada modificación ¢20.000 por cada modificación 0,02%
 e) Gestión de numerario:
 Servicio | Suscripción mensual | Otros conceptos
