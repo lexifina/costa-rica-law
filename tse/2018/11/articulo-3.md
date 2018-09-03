@@ -1,0 +1,2 @@
+Artículo 3º—Aplicación y vigencia. El presente reglamento será de aplicación para las personas funcionarias indicadas en los artículos anteriores, a partir del ejercicio presupuestario 2019 y en adelante. Por ello, no afectará los derechos adquiridos de las personas servidoras que actualmente son remuneradas bajo un régimen de salario base más pluses, independientemente de la plaza o condición en que se encuentren. Rige a partir de su publicación.
+Dado en San José a los diecisiete días del mes de agosto de dos mil dieciocho.—
