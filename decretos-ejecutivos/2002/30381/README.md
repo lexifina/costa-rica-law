@@ -23,3 +23,4 @@ Reglamento sobre Grados Policiales y Sistemas de Ascenso de los Servidores de la
 | 8 | 2013-12-02 | Decreto Ejecutivo 38141 (2013-12-02) |
 | 9 | 2015-09-22 | Decreto Ejecutivo 39336 (2015-09-22) |
 | 10 | 2018-05-24 | Ley 9552 |
+| 11 | 2018-09-03 | Decreto Ejecutivo 41367 (2018-09-03) |
