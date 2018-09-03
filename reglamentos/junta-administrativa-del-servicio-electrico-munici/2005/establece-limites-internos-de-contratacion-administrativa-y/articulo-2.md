@@ -1,5 +1,6 @@
 Artículo 2: Definiciones
-Para efectos de la aplicación de este Reglamento, se definen los siguientes términos: Director de Negocio: Funcionario responsable de un Área de Negocios.
+Para efectos de la aplicación de este Reglamento, se definen los siguientes términos:
+Director de Negocio: Funcionario responsable de un Área de Negocios.
 Líderes de UEN: Funcionario responsable de cada Unidad de Negocios.
 Coordinador del Proceso Contratación de Bienes y Servicios: Funcionario responsable de coordinar los procesos de contratación administrativa requeridos en su Proceso, asesorando a los administradores de contrato y demás funcionarios involucrados en los procesos de compra en materia de contratación administrativa, con apego a la normativa vigente.
 Junta de Adquisiciones: Órgano institucional competente para resolver los diferentes procedimientos y trámites de contratación administrativa que disponga el presente reglamento, incluyendo las adjudicaciones e impugnaciones contra el acto de adjudicación.
@@ -22,7 +23,9 @@ Oferente: Toda persona física o jurídica que presenta su propuesta en apego a 
 Plan de compras: Conjunto de requerimientos expresados en el Sistema Financiero Contable por todos los usuarios responsables del presupuesto, necesarios para el desarrollo del POI-Presupuesto.
 Programa de adquisiciones: Conjunto de Procedimientos de Compra planeados y programados por el Proceso Contratar Bienes y Servicios para ejecutar el insumo que le proporciona el Plan de Compras.
 Paquete de gestión: Conjunto de documentos necesarios para el trámite de un proceso de contratación. El paquete de gestión se compone de:
- Reserva presupuestaria
- Pliego de condiciones técnicas y acta de decisión Inicial
- En caso de contratos de excepción (sin concurso): se agrega la cotización del proveedor seleccionado bajo la excepción.
+• Reserva presupuestaria
+• Pliego de condiciones técnicas y acta de decisión Inicial
+• En caso de contratos de excepción (sin concurso): se agrega la cotización del proveedor seleccionado bajo la excepción.
 Reglamento a la Ley Nº 8660: Decreto MINAET 35148 Reglamento al Título II de la Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones.
+Comisión Financiera: Órgano designado por la Junta Directiva para el análisis y dictamen de asuntos de tipo financiero. Está integrado por dos miembros de la Junta, el Gerente General, el Subgerente y el Jefe Área Servicios Financieros.
+(Así reformado en sesión N° 015 del 3 de setiembre de 2018)

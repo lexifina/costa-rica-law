@@ -17,3 +17,4 @@ Establece límites internos de Contratación Administrativa y Reglamento para la
 | 2 | 2015-08-12 | Reglamento 4999 (2015-08-12) |
 | 3 | 2015-10-26 | Reglamento 5025 (2015-10-26) |
 | 4 | 2018-01-24 | Reglamento 5244 (2018-01-24) |
+| 5 | 2018-09-03 | Reglamento 15 (2018-09-03) |
