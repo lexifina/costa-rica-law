@@ -14,3 +14,4 @@ Oficialización del Portal Oficial del Gobierno de Costa Rica para Trámites de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-12 | la propia norma |
+| 2 | 2018-09-03 | Decreto Ejecutivo 41290 (2018-09-03) |
