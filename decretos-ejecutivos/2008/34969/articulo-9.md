@@ -1,1 +1,0 @@
-Artículo 9º—Manual de servicio al cliente. La Contraloría de Servicios pondrá a disposición de la institución un manual de servicio al cliente, que establezca las condiciones que deben cumplir sus funcionarios al atender a un usuario. Esas condiciones deben ser de actitud (valorar al usuario como persona) y aptitud (conocer el servicio que se ofrece).

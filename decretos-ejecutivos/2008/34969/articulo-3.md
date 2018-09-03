@@ -1,1 +1,0 @@
-Artículo 3º—Estructura. La Contraloría de Servicios estará bajo la responsabilidad y dirección de un Contralor, y la integra además, el personal necesario para el cumplimiento de los objetivos propuestos.
