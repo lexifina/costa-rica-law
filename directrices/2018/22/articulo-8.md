@@ -1,0 +1,1 @@
+Artículo 8.- En caso de que las instituciones señaladas en el artículo 1 requieran personal en otras zonas del país, y existan servidores de la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (JAPDEVA) anuentes a trasladarse, les serán aplicables las disposiciones de la presente directriz.

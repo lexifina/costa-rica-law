@@ -1,0 +1,1 @@
+Artículo 3.- Para el cumplimiento de lo dispuesto en los artículos 1 y 2 de esta directriz, JAPDEVA deberá establecer un procedimiento ordenado e individualizado para que las instituciones públicas puedan consultar los códigos de puestos disponibles que podrán acogerse a un proceso de traslado horizontal.

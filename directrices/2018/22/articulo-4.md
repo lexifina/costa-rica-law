@@ -1,0 +1,1 @@
+Artículo 4.- En caso de que las instituciones descentralizadas de la región cuenten con plazas vacantes, se les instruye a priorizar la contratación de servidores provenientes de JAPDEVA. En caso de requerir reasignaciones de plazas para el uso de dichas vacantes, deberán realizar las gestiones necesarias a través de su Oficina de Gestión Institucional de Recursos Humanos.

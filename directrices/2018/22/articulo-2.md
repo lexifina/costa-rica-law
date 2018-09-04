@@ -1,0 +1,1 @@
+Artículo 2.- Los jerarcas de la Administración Descentralizada con oficinas en la Región Huetar Caribe, en caso de requerir nuevas plazas, dentro del marco legal correspondiente, procurarán priorizar la atención de la presente directriz.

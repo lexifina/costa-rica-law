@@ -1,0 +1,1 @@
+Artículo 6.- Aquellos funcionarios de JAPDEVA que resulten beneficiarios conforme a las disposiciones de la presente Directriz, les serán aplicados los instrumentos y sistemas de gestión de recursos humanos (clasificación de puestos, pluses salariales, entre otros) propios de la institución a la cual sean trasladados.

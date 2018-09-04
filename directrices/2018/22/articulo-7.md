@@ -1,0 +1,1 @@
+Artículo 7.- Se invita a las oficinas y dependencias del Poder Legislativo, Poder Judicial y del Tribunal Supremo de Elecciones, que se encuentran en la provincia de Limón, junto a las municipalidades ubicadas en esa zona; a implementar las medidas descritas en esta Directriz.
