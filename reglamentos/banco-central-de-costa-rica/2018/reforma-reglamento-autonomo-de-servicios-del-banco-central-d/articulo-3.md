@@ -1,0 +1,2 @@
+C. “Artículo 99:
+Corresponderá a los Directores de Departamento o los de División, conceder licencias con goce de sueldo por tres días hábiles, cuando el servidor contraiga nupcias, por nacimiento o adopción de un hijo, o el fallecimiento de su pareja sentimental o de un familiar de hasta segundo grado de consanguinidad o afinidad”.
