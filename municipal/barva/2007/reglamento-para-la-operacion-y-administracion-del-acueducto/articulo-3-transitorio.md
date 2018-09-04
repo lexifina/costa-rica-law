@@ -1,4 +1,0 @@
-Transitorio tres: El cobro del canon ambiental se aplicara una vez que su establecimiento sea aprobado por el Concejo Municipal.
-De la vigencia y derogación. El presente Reglamento entrará en vigencia el día indicado para su rige en la publicación definitiva en el diario oficial y deroga cualquier acuerdo municipal o reglamento anterior, sus reformas y cualquier disposición reglamentaria municipal que se le opongan, se mantienen vigentes todos los acuerdos municipales relacionados con prohibiciones de construcciones de urbanizaciones, condominios o similares, los relacionados con el Decreto Nº LXIV, del 28 de julio de 1888, y todos aquellos acuerdos que se hayan tomado para la protección de las áreas de reserva, la protección de los manantiales, de las nacientes, de los mantos acuíferos y áreas de recarga en el cantón de Barva.
-Rige a partir del día hábil después de su publicación en el Diario Oficial La Gaceta.
-Barva de Heredia, 19 de diciembre de 2007.

@@ -1,1 +1,0 @@
-Artículo 33.—Inicio de la gestión del cobro judicial. La Municipalidad de Barva procederá de inmediato al cobro judicial, ya sea por sus propios abogados o por gestión externa para lo cual se aplicará el reglamento correspondiente y los procedimientos que en el se determinen.

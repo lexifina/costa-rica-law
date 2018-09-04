@@ -1,1 +1,0 @@
-Artículo 48.—De los recursos. Contra las resoluciones o actos dictados con motivo de la aplicación del presente Reglamento, procederán los recursos de revocación y apelación, los cuales deberán hacerse valer en la forma y términos previstos en el Código Municipal.

@@ -1,2 +1,0 @@
-Artículo 44.—De la capacitación de servidores municipales. La Municipalidad procurará la capacitación de su personal para el mejoramiento del servicio de agua potable, en todos sus aspectos, para lo cual realizará las gestiones necesarias para ello, en las instituciones especializadas, privadas o públicas, nacionales o internacionales, para la consecución de este fin.
-Se ordena al departamento legal a instruir a los servidores municipales para la ejecución del presente reglamento.

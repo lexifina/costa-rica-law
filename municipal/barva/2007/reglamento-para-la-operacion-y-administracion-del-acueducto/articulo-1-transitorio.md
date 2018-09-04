@@ -1,2 +1,0 @@
-Disposiciones transitorias
-Transitorio uno.—Aquellas personas que usan el servicio de pajas de agua y a cuyo nombre se expide el recibo respectivo, pero que no son propietarios del inmueble en el que se brinda el servicio, tendrán un plazo de tres meses contados a partir de la aprobación de este reglamento para solicitar a la Municipalidad el cambio respectivo. Pasado este tiempo, el ayuntamiento procederá de oficio.
