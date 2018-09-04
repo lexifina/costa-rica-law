@@ -1,1 +1,0 @@
-Artículo 27.—Los vehículos dedicados al transporte remunerado de personas pagarán el impuesto de estacionamiento que establezca la municipalidad, según estudio previo de costos sustentado en informes del Departamento de Estacionómetros y el Departamento de Patentes.

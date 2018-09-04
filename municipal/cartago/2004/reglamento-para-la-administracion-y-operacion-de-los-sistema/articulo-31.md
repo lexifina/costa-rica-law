@@ -1,1 +1,0 @@
-Artículo 31.—Si la queja fuere acogida deberá ordenarse la apertura del expediente disciplinario con base en el Reglamento Autónomo de Trabajo en contra del funcionario cuya actuación motiva la queja.
