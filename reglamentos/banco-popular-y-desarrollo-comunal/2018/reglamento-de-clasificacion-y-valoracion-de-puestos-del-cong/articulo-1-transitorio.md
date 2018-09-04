@@ -1,0 +1,1 @@
+Transitorio I.—Mientras no se disponga lo contrario por parte de la Junta Directiva Nacional, la DIRCH será la unidad administrativa encargada de realizar las funciones que este Reglamento, en su artículo 1, confiere a las dependencias de Recursos Humanos de las Sociedades.

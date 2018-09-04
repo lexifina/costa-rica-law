@@ -1,0 +1,1 @@
+Artículo 8º—Un mismo puesto solamente podrá reclasificarse o revalorarse cada doce meses, salvo criterio del respectivo gerente y mediante acto motivado, concurran circunstancias especiales que lo justifiquen, tales como reestructuraciones, reorganizaciones parciales o totales, u otras.
