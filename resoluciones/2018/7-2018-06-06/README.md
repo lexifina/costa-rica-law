@@ -14,3 +14,4 @@ Comunica emisión resoluciones año 2018 (DG-087-088, 089, 90, 091, 092, 093, 09
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-08-17 | la propia norma |
+| 2 | 2018-09-04 | Resolución 8 (2018-09-04) |
