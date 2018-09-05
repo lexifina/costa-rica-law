@@ -1,1 +1,0 @@
-Artículo 2°—Todos los fondos y recursos que obtenga la ACIC por este medio, serán empleados única y exclusivamente para el desarrollo de las actividades que deba realizar como consecuencia de sus investigaciones y actividades de servicio, extensión y educación.
