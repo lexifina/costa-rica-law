@@ -1,0 +1,2 @@
+Artículo 27 bis.- En todo trámite en que se requiera declarar un nacimiento, realizar un reconocimiento, determinar una paternidad de una persona menor de edad o identificar a un menor para la emisión de su documento de identidad, por parte de una persona que se encuentre en condición de migrante en Costa Rica, será válido como medio de identificación, el documento de identidad de su país de origen.
+(Así adicionado por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 13 del 5 de setiembre del 2018)
