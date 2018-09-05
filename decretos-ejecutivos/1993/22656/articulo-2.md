@@ -1,1 +1,0 @@
-Artículo 2°—Cada vez que haga uso de las franquicias de concesiones de orden administrativo y económico que prevee la declaratoria de utilidad pública, deberá la solicitud contar previamente con la aprobación del Ministerio de Hacienda.
