@@ -1,5 +1,0 @@
-Artículo 70.—De los laboratorios, centros de tecnología educativa y departamento de biblioteca y documentación.
-a) Todo estudiante del CUC deberá pagar el derecho al uso de los laboratorios que el programa de estudio establezca. El pago es una suma no reembolsable y será determinada por el Consejo Directivo, de acuerdo con las políticas institucionales de aranceles de costos de matrícula.
-b) Los daños que por negligencia del estudiante cause a los equipos y materiales de estudio, serán indemnizados por quien resulte responsable de tales actos. El monto de la indemnización la establecerá la Dirección Administrativa Financiera, previo levantamiento del proceso de investigación.
-c) El pago por daños a los equipos o materiales de estudio, lo hará el estudiante antes de presentar las pruebas finales cuatrimestrales, caso contrario tendrá impedimento para poderlas realizar.
-d) Los equipos, materiales y laboratorios no podrán ser utilizados para actividades tales como: acceso a pornografía, videos, música y otros diferentes a los fines académicos y de investigación, según se estipula en el Reglamento de Laboratorios de Cómputo.

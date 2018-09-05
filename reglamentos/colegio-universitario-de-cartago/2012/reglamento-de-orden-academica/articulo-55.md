@@ -1,2 +1,0 @@
-Artículo 55.—De la carga académica para la modalidad de práctica supervisada de graduación. Cualquiera de las dos modalidades de graduación tendrá una carga académica docente de cuatro horas semanales por grupo, con una duración de un período lectivo.
-Cualquier situación excepcional que se presente en este sentido será propuesta por la Coordinación de Carrera a la Dirección Académica y ésta emitirá su criterio a la Decanatura para que resuelva en definitiva.

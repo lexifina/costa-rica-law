@@ -1,1 +1,0 @@
-Artículo 56.—Responsabilidades de los participantes en las modalidades de graduación. Las responsabilidades de los actores: Coordinación de Carrera, Profesor de la modalidad prueba comprensiva y Profesor de la modalidad Práctica Supervisada y el estudiante, está regulada en los respectivos Reglamentos de Prueba comprensiva y de Práctica Supervisada.

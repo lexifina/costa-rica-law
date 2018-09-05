@@ -1,1 +1,0 @@
-Artículo 34.—Devolución de pruebas. Las pruebas o trabajos evaluados deberán ser devueltos al estudiante por el respectivo docente 5 días hábiles de efectuado la misma, salvo la excepción establecida en el artículo 33 párrafo final, de este Reglamento.

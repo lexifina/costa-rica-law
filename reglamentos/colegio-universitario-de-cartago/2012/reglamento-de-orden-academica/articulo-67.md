@@ -1,1 +1,0 @@
-Artículo 67.—Deber de información. El docente debe informar al Departamento de Bienestar Estudiantil y Calidad de Vida sobre la deserción de los estudiantes, para que el mencionado Departamento le brinde el seguimiento correspondiente.

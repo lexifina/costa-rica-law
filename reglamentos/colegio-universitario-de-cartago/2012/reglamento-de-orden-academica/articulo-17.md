@@ -1,1 +1,0 @@
-Artículo 17.—Homologación de Estudios de Instituciones de Educación Superior. Para un curso aprobado en otra institución de educación de nivel superior universitario o de educación de nivel parauniversitaria, debe tener una similitud de contenidos de por lo menos un 80% de los cursos respectivos en alguna de las carreras que imparte el CUC.

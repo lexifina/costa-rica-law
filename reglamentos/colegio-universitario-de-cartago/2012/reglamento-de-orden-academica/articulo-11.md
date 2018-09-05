@@ -1,3 +1,0 @@
-Artículo 11.—Requisitos para la apertura o reestructuración de las carreras y la apertura de especialidades. Para la apertura de nuevas carreras, reestructuración de las vigentes o de sus especialidades, debe presentarse un estudio de factibilidad elaborado por la Dirección de Planificación y Desarrollo ante el Consejo Académico, quien recomendará a la Decanatura la apertura o continuidad de una carrera, quien lo elevará ante el Consejo Directivo.
-Las especialidades son continuidad de áreas de conocimiento específicos inherentes al tronco común que legisla el Diplomado.
-Todo lo anterior de conformidad con lo dispuesto en el decreto ejecutivo vigente, que regula la educación superior parauniversitaria.

@@ -1,3 +1,0 @@
-CAPÍTULO VI
-Plan de estudios
-Artículo 25.—Plan de estudios. El plan de estudios, es un documento académico de carácter oficial que establece la organización curricular de cada Carrera. Podrá ser modificado parcial o totalmente, cuando así lo determinen los Consejos de Carrera, con el aval del Consejo Directivo y con la debida aprobación del Consejo Superior de Educación. Las modificaciones se someterán a conocimiento de la Unidad de Desarrollo Curricular y se trasladará a la Dirección Académica para lo que corresponda. La Coordinación de Carrera es responsable de mantener informado al estudiantado y al personal docente sobre las modificaciones curriculares que se realicen.

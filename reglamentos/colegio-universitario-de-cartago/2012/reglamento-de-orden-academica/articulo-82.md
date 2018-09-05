@@ -1,1 +1,0 @@
-Artículo 82.—Áreas que Desarrolla la DECAT. Esta área académica es autofinanciada en su totalidad, tanto en el Área de Educación Comunitaria como en el Área de Asistencia Técnica; es decir, generadora de sus propios recursos para el financiamiento de sus costos de operación.

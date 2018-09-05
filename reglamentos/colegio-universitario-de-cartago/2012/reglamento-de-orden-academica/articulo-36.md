@@ -1,4 +1,0 @@
-Artículo 36.—Derecho del estudiante a otras formas de prueba extraordinaria. En casos especiales comprobados, el estudiantado podrá solicitar por escrito al Coordinador de Carrera que se le practique la prueba en forma oral. Dichas pruebas serán efectuadas por el Profesor del curso en el cual el solicitante esté matriculado, en compañía de otros dos profesores nombrados por el Coordinador de la Carrera; para tal efecto:
-a) Se levantará acta que debe ser firmada por el profesor y el estudiante, en donde se consigne la nota obtenida y las observaciones, si las hubiere.
-b) Los temas y alcances de la prueba oral que se le aplicará al estudiante, deberá ser entregada al Coordinador de Carrera para su aprobación, al menos tres días hábiles antes de la fecha de ser aplicados.
-c) Estas disposiciones no aplican para los cursos de laboratorio ni de desarrollo de destrezas específicas.

@@ -1,2 +1,0 @@
-Artículo 21.—Entrega de los programas a la coordinación de carrera. Es obligación del docente entregar a la Coordinación de Carrera, el día lunes de la semana de exámenes extraordinarios, la propuesta de mejora de programa del curso recién concluido con las observaciones para cuatrimestres siguientes. Esta propuesta deberá tener una versión digital y una física, ajustada con detalle a las especificaciones señaladas en el artículo 20 de este Reglamento.
-La omisión a esta obligación del docente será considerada como falta grave según lo establecido en el RAT.

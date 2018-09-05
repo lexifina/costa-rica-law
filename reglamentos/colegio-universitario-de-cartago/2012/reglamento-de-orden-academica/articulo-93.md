@@ -1,1 +1,0 @@
-Artículo 93.—Del plazo para resolver solicitudes. El tiempo para resolver las solicitudes presentadas por los estudiantes de la DECAT será de diez días hábiles, después de recibida la solicitud correspondiente.
