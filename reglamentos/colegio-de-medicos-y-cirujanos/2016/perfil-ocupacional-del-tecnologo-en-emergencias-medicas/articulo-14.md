@@ -1,1 +1,1 @@
-Artículo 14. —Servicios de Emergencias: La práctica de su Tecnología se circunscribe en todo momento al ámbito extra hospitalario, sin embargo, podrán colaborar de manera ocasional en servicios de emergencias de los centros médicos públicos o privados, en aquellos casos y cuando el médico a cargo lo solicite, en la atención del paciente hasta la entrega del mismo Siempre que los reglamentos internos de cada institución así lo permitan.
+Artículo 14. —Servicios de Emergencias: (Derogado en sesión N° 2018-09-05 del 5 de setiembre de 2018)

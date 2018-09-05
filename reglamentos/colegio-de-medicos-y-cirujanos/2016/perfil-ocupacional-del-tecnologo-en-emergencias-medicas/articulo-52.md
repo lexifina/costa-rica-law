@@ -1,1 +1,2 @@
-Artículo 52. —Documentos Clínicos: Los documentos clínicos o cualquier otro insumo legal que respalden la atención brindada al paciente deben ser resguardados con respecto a los principios de la ética profesional, respetando los derechos individuales de los pacientes, de conformidad con lo establecido en la legislación.
+Artículo 52.—Registros de la atención extra hospitalaria: Los registros de atención extra hospitalaria o cualquier otro insumo legal que respalden la atención brindada al paciente deben ser resguardados con respecto a los principios de la ética profesional, respetando los derechos individuales de los pacientes, de conformidad con lo establecido en la legislación.
+(Así reformado en sesión N° 2018-09-05 del 5 de setiembre de 2018)

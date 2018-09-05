@@ -1,4 +1,4 @@
-Artículo 24. —Técnicas Generales para Administrar Medicamentos: De acuerdo con los protocolos médicos establecidos o por indicación médica directa, canaliza y suministra medicamentos autorizados para la atención de emergencias:
+Artículo 24.—Técnicas Generales para Administrar Medicamentos en Emergencias Médicas extra Hospitalaria
 a. Vía intravenosa periférica.
 b. Canalización de vía intraósea.
 c. Suministrar medicamentos vía intramuscular.
@@ -11,3 +11,5 @@ i. Suministrar medicamentos vía nasal.
 j. Suministrar medicamentos vía inhalatoria.
 k. Suministrar medicamentos vía oftálmica.
 l. Suministrar medicamentos vía ótica.
+(Así reformado en sesión N° 2018-09-05 del 5 de setiembre de 2018)
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 18 del 25 de enero del 2019, página N° 100.)

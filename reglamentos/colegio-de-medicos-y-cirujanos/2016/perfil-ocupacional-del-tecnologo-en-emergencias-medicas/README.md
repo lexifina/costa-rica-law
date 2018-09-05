@@ -14,3 +14,4 @@ Perfil ocupacional del tecnólogo en emergencias médicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-08-03 | la propia norma |
+| 2 | 2018-09-05 | Reglamento 0 (2018-09-05) |
