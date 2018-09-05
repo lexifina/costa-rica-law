@@ -1,1 +1,0 @@
-Artículo 74.—De la renovación del arreglo de pago. Si el arreglo se encuentra al día en el pago de las cuotas, se podrá renovar incluyendo nuevas facturas o variando las condiciones iniciales, conforme a las disposiciones de este reglamento.

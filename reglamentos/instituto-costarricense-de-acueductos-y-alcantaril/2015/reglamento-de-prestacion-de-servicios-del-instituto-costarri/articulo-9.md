@@ -1,1 +1,0 @@
-Artículo 9º—Del principio para otorgar el servicio de agua. La prestación del servicio de agua en las áreas de cobertura existente, se brindará bajo el principio de que el consumo humano es prioritario. Además deberá resguardarse la disponibilidad del servicio para el crecimiento vegetativo.

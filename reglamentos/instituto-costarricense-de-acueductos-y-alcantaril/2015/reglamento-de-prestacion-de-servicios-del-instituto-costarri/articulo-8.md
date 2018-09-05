@@ -1,1 +1,0 @@
-Artículo 8º—Del pago de los servicios. Los servicios prestados por AyA a sus usuarios, por ley no podrán ser gratuitos, así se trate de entidades públicas nacionales, regionales, municipales u otros operadores.

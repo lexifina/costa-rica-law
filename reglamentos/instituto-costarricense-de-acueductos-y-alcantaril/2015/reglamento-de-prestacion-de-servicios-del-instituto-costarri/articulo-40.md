@@ -1,1 +1,0 @@
-Artículo 40.—De la solicitud de traslado de acometida y variación del diámetro. El usuario podrá solicitar con la debida justificación el traslado de la acometida o variación de la capacidad del servicio. Para tales efectos deberá cumplir con lo dispuesto en los artículos 25, 26 o 27 de este reglamento, según sea el caso.

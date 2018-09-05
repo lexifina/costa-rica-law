@@ -1,1 +1,0 @@
-Artículo 3º—Alcance. Este Reglamento es de aplicación a nivel nacional para todos aquellos usuarios que estén dentro de la zona de cobertura de los sistemas de acueducto y saneamiento sanitario del AyA; asimismo podrá ser utilizado de forma supletoria por otros operadores.

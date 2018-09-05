@@ -1,1 +1,0 @@
-Artículo 62.—De las obligaciones surgidas por la reunión de fincas. Cuando varias propiedades que disfrutan de los servicios de AyA se reúnan en una sola, el nuevo propietario está en la obligación de comunicar dicha reunión al instituto y de cancelar cualquier deuda. Para todos los efectos, el nuevo propietario será para AyA el responsable de los servicios.

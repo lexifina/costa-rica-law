@@ -1,1 +1,0 @@
-Artículo 38.—De la construcción de la caja sifón. Para el caso del sistema de saneamiento sanitario es responsabilidad del usuario la construcción y el debido mantenimiento de la caja sifón, según las especificaciones técnicas del AyA.

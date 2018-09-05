@@ -1,1 +1,0 @@
-Artículo 10.—Del principio para otorgar el servicio de saneamiento de las aguas residuales. La prestación de los servicios de saneamiento se brindará, bajo el principio de protección de la salud pública y del ambiente en las áreas de cobertura existentes; para lo cual deberá resguardar la disponibilidad del servicio para el crecimiento vegetativo.

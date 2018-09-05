@@ -1,7 +1,0 @@
-Artículo 28.—De los requisitos para la solicitud de un nuevo servicio temporal para el caso de ocupantes de inmuebles dentro de fincas o terrenos invadidos en condición precaria. AyA establecerá las condiciones de abastecimiento en el caso de ocupantes de inmuebles dentro de fincas o terrenos invadidos en condición precaria y cuando así resulte de un estudio de factibilidad técnica, legal y comercial; que establecerá, entre otros aspectos si el abastecimiento se otorgará de forma colectiva o individual y aplicará la tarifa correspondiente al uso mayoritario.
-La autorización de este tipo de servicios no aplica ni generará efectos jurídicos para el otorgamiento de disponibilidad de servicios, o autorización de permisos de construcción.
-Su consideración requiere además, el cumplimiento de los siguientes requisitos:
-a) Formalización de la solicitud por parte del presidente de la asociación de desarrollo comunal.
-b) Aporte de certificación de la constitución y vigencia de la asociación y la correspondiente personería jurídica del presidente.
-c) Copia de la cédula de identidad del presidente de la asociación.
-d) Presentar declaración jurada firmada por el presidente de la asociación comunal y dos testigos, con una descripción de la propiedad, señalando en qué consisten sus actos posesorios, la existencia, cantidad y ubicación de las viviendas en un croquis con la delimitación del área de cobertura.
