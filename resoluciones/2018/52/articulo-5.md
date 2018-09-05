@@ -1,0 +1,1 @@
+Artículo 5º—Resolución del Departamento de Gestión de Exenciones: El Departamento de Gestión de Exenciones luego de revisada la solicitud y de considerar pertinente la autorización, emitirá formal aprobación con referencia a este número de resolución y el plazo de vigencia de la autorización, el cual no puede exceder de 3 meses.

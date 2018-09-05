@@ -1,0 +1,2 @@
+Artículo 6º—Documento para adquisiciones exentas: Las adquisiciones se realizarán mediante órdenes de compra emitidas por la MUCAP según formato adjunto o bien con el formato propio que contenga la misma información que el modelo propuesto. Estas órdenes de compra deberán ser firmadas por las personas debidamente autorizadas por parte del Representante Legal de la entidad mencionada, para efectuar las referidas compras exentas de impuestos en su nombre.
+Estas personas exclusivamente deberán ser empleados del beneficiario.
