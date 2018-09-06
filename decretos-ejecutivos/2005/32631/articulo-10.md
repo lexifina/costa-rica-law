@@ -1,2 +1,0 @@
-Artículo 10.—Las actas de las sesiones de la Comisión, serán aprobadas en la sesión siguiente, y serán firmadas por el Presidente y el Secretario. Los acuerdos declarados en firme, podrán ejecutarse desde la fecha en que fueron adoptados. Para declarar un acuerdo en firme en la misma sesión en que se adoptó, éste debió ser aprobado por unanimidad.
-Así mismo, cualquier miembro de la Comisión podrá solicitar revisión de los acuerdos adoptados en la sesión anterior, dicha solicitud deberá hacerse efectiva al momento de lectura y discusión del acta de la sesión anterior.
