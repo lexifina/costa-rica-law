@@ -6,3 +6,15 @@ Nivel 3: Son aquellas cooperativas que han sido sujetas de readecuaciones, refin
 • Las que al ser evaluada su capacidad de pago y comportamiento de pago histórico se encuentren en Nivel 1, Nivel 2 y/o Nivel 3.
 • En el caso de organizaciones que cuenten con línea revolutiva, se les aplica retención en la fuente (cesión de pago), deberán encontrarse al día con los saldos vigentes.
 • Solo se aceptará Nivel 3 de comportamiento de pago histórico, si la solicitud es para readecuación y/o refundición previo criterio del área técnica y/o que al momento de la solicitud estén sujetos a un plan de viabilización. Solo serán sujetos de crédito aquellas cooperativas que tengan una readecuación o refundición anteriores, en los últimos 24 meses.
+Serán sujetos de crédito aquellas cooperativas que tengan readecuación o refundición anteriores si demuestran que han mejorado su condición financiera, operativa y de impacto a sus asociados y que presente en el nuevo crédito un plan de contingencia a un año plazo, el cual será supervisado periódicamente por INFOCOOP.
+(Así adicionado el párrafo anterior en sesión N° 082 y 086 del 6 y 27 de setiembre de 2018)
+Además, deberá realizar un planeamiento estratégico a 5 años plazo, en coordinación estrecha con INFOCOOP. En caso de pertenecer a un grupo de interés económico, deberá tomarse en cuenta si los otros miembros han realizado algún tipo de readecuación o refundición.
+(Así adicionado el párrafo anterior en sesión N° 082 y 086 del 6 y 27 de setiembre de 2018)
+(*)Para toda Cooperativa de reciente inscripción (hasta 24 meses) o reactivación:
+1. Se podrá valorar su crédito siempre y cuando se constate que operan amparadas a la Ley de Asociaciones Cooperativas Vigente (Ley 4179) y los reglamentos internos del INFOCOOP.
+2. Para Organismos Cooperativos en proceso de reactivación se deberá contar con un estudio de impacto en la comunidad y el Sector productivo.
+3. Que presenten estados financieros y proyecciones financieras (Flujos de Caja y Estados de Excedentes) acordes al proyecto que van a desarrollar y la evaluación del Proyecto a financiar.
+4. Si requieren montos superiores a CRC ¢20 millones y hasta CRC ¢100 millones durante su primer año de operación, podrán ser dispensados de los Estados Financieros Auditados, amparándose el Análisis de Crédito en el Proyecto de Posibilidad, Viabilidad y Utilidad. Si el Crédito es requerido en su segundo Periodo Fiscal de Operación, el Análisis de Crédito se amparará en el Proyecto de Posibilidad, Viabilidad y Utilidad, y se deberá aportar los Estados Financieros Auditados del año 1, el cual debe contener el Dictamen y Carta de Gerencia.
+Cooperativas Escolares y Estudiantiles se atenderá su crédito conforme establece el Artículo 12 Reglamento 33059-MEP Ley 6437 art. 12 inciso a.
+Además, deberá presentar un Plan de Negocio Modelo CANVAS.
+(*)(Así adicionado el párrafo anterior en sesión N° 082 y 086 del 6 y 27 de setiembre de 2018)

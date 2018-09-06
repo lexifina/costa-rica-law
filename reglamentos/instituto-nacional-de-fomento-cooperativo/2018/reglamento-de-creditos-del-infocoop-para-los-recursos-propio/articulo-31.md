@@ -13,3 +13,5 @@ El valor de referencia para determinar el porcentaje de aceptación de estas gar
 Garantía para cooperativas pymes y emprendedores. Se podrá presentar como garantía bienes (tangibles o intangibles), además de las cuentas por cobrar, cosechas, inventarios, contratos, marcas, propiedad intelectual, maquinaria y equipo, y otros bienes muebles.
 Garantía para cooperativas escolares y juveniles Las garantías para cooperativas escolares y juveniles serán de preferencia garantía mobiliaria.
 f) Garantía temporal o transitoria: es aquélla garantía otorgada por el organismo cooperativo de manera temporal a falta de otro tipo de garantía, la cual deberá ser sustituida en un plazo prudencial y definido por el INFOCOOP, por las garantías definitivas.
+g) se podrán Sindicar Garantías según se Reglamente.
+(Así adicionado el inciso anterior en sesiones N° 082 y 086 del 6 y 27 de setiembre de 2018)

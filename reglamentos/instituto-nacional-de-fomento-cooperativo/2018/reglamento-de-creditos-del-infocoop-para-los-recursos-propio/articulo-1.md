@@ -33,7 +33,11 @@ Las que al ser evaluada su capacidad de pago y comportamiento de pago histórico
 En el caso de organizaciones que cuenten con línea resolutiva, se les aplica retención en la fuente (cesión de pago), deberán encontrarse al día con los saldos vigentes.
 Solo se aceptará Nivel 3 de comportamiento de pago histórico, si la solicitud es para readecuación y/o refundición previo criterio del área técnica y/o que al momento de la solicitud estén sujetos a un plan de viabilización. Solo serán sujetos de crédito aquellas cooperativas que tengan una readecuación o refundición anteriores en los últimos 24 meses.
 e) Contrato de Crédito: Contrato privado suscrito entre el Organismo Cooperativo y el INFOCOOP mediante el cual se regulan los derechos y obligaciones de las partes, así como las condiciones que aplicarán al financiamiento otorgado.
+• Crédito Sindicado: Tipo de Préstamo otorgado por dos o más acreedores, el cual es estructurado, arreglado, pactado y administrado, por uno o varios de los acreedores.
+(Así adicionada la definición anterior en sesiones N° 082 y 086 del 6 y 27 de setiembre de 2018)
 f) Financiamiento: Es toda aquella operación formalizada por el INFOCOOP, cualquiera que sea la modalidad como se instrumente o documente, mediante la cual dicho Instituto, bajo la asunción de un riesgo, provea fondos o facilidades crediticias a un Organismo Cooperativo.
+• Garantía Sindicada: Garantía utilizada para responder por Créditos Sindicados, en el cual, la misma responde de forma proporcional al aporte de cada uno de los acreedores.
+(Así adicionada la definición anterior en sesiones N° 082 y 086 del 6 y 27 de setiembre de 2018)
 g) INFOCOOP/Instituto: Instituto Nacional de Fomento Cooperativo.
 h) Moratoria: plazo otorgado a un Organismo Cooperativo para suspender temporalmente la amortización del principal y sus intereses.
 Período de gracia: Un periodo de gracia ocurre cuando no se amortiza el pago del principal de una deuda, solo se pagan los intereses correspondientes a dicho préstamo. No obstante, se pueden conceder plazos de gracia tanto para el pago del principal como para el pago de los intereses.
