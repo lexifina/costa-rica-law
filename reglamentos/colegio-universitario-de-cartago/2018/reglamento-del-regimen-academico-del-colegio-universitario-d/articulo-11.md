@@ -1,1 +1,0 @@
-Artículo 11. -Reconocimientos y equiparación. Reconocer hasta un máximo del 40% de los cursos de una carrera formal de la educación superior, a aquellos estudiantes que provengan de otras instituciones, siempre que guarden una similitud de al menos 60% a nivel de objetivos y contenidos.

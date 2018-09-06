@@ -1,4 +1,0 @@
-Artículo 22. -De la asistencia a los cursos y evaluación
-a. En caso de modificación de la fecha de realización de una prueba, deberá contarse de antemano con la aprobación unánime y por escrito de los estudiantes del curso, con al menos ocho días hábiles antes de la fecha que se desea modificar.
-b. La evaluación de los estudiantes se hará a lo largo del cuatrimestre correspondiente. Las evaluaciones y sus fechas de aplicación deberán ajustarse a lo establecido en el cronograma de la Institución para tal efecto; no se admite variación durante el cuatrimestre matriculado, salvo aprobación escrita emitida por la Coordinación o Dirección de Carrera y fundamentado en razones debidamente justificadas, con ocho días naturales de anticipación.
-c. En caso de extravío de un documento por parte del docente, en donde se ha evaluado a un estudiante, al estudiante se le deberá asignar la nota máxima de acuerdo con el puntaje establecido para dicha prueba.

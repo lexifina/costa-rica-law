@@ -1,7 +1,0 @@
-Artículo 26. -De las pruebas extraordinarias. Tendrán derecho a realizar la prueba extraordinaria aquellos estudiantes que cumplan con lo siguiente:
-a. Tendrá derecho a realizar la prueba extraordinaria el estudiante cuya nota final reportada en el acta de rendimiento académico, sea igual o mayor a sesenta (60) pero menor a setenta (70).
-b. El estudiante deberá cancelar en las fechas para ello establecidas en el cronograma institucional, el costo de la(s) prueba(s) en el Departamento de Financiero. Es requisito indispensable para que se le aplique la prueba, entregar al docente copia del recibo cancelado, quien lo anexará al acta correspondiente.
-c.La prueba extraordinaria es una única evaluación comprensiva del curso en caso de obtener una nota mayor o igual a setenta (70.00) en dicha prueba, se consignará un setenta (70.00) como nota final del curso.
-d. No se realizarán pruebas extraordinarias en aquellos cursos de laboratorio ni en aquellos que involucren el desarrollo de destrezas específicas, esto deberá consignarse en el programa del curso respectivo. De conformidad con el programa aprobado por el Consejo Superior de Educación
-e. El resultado de la prueba extraordinaria deberá ser comunicado al estudiante por el respectivo docente, máximo tres días hábiles después de efectuada la misma. La fecha y hora de la devolución del resultado de esta prueba deberá aparecer en el programa del curso del cuatrimestre respectivo.
-Las pruebas que no sean retiradas deberán ser custodiadas por el docente por un cuatrimestre.

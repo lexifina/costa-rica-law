@@ -1,1 +1,0 @@
-Artículo 50. -Requisitos para incorporar la información. En los plazos previstos en este Reglamento, el docente deberá incorporar en el Acta de Rendimiento Académico, la nota final del curso matriculado por el estudiante, tres días hábiles después de efectuada la prueba final o extra ordinaria.

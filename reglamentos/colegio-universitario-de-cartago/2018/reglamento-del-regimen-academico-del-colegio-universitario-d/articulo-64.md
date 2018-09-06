@@ -1,1 +1,0 @@
-Artículo 64. - Las propuestas de modificación al Plan de Estudios así como al Estatuto Orgánico, Reglamento de Régimen Académico y Reglamento de Vida Estudiantil, deben remitirse para su aprobación al Consejo Superior de Educación.

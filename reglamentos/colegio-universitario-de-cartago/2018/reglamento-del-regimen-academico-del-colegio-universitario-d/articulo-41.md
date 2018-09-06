@@ -1,1 +1,0 @@
-Artículo 41. - Requisitos para iniciar la modalidad de opción final graduación. El CUC ofrecerá a sus estudiantes la opción final de graduación aprobada para cada carrera por parte del Consejo Superior de Educación.

@@ -1,1 +1,0 @@
-Artículo 60. -De las constancias o certificaciones. Las constancias o certificaciones serán expedidas por el Departamento de Registro por solicitud de la parte interesada, en un plazo no mayor de cinco días hábiles, previo pago y presentación del recibo correspondiente de los derechos.

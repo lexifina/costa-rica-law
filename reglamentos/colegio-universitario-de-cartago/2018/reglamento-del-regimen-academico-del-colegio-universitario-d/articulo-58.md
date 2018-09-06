@@ -1,1 +1,0 @@
-Artículo 58. -Deber de información. El docente debe informar al Departamento de Bienestar Estudiantil y Calidad de Vida sobre la deserción de los estudiantes, para que esa dependencia le brinde el seguimiento correspondiente.

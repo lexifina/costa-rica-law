@@ -1,2 +1,0 @@
-Artículo 8. -Inducción a la carrera. Cada Coordinación de Carrera deberá brindar el proceso de inducción a los estudiantes de primer ingreso sobre: la Institución, la carrera, los deberes y sus derechos.
-Adicionalmente, el Departamento de Bienestar Estudiantil y Calidad de Vida impartirá a los estudiantes de nuevo ingreso y al inicio de cada cuatrimestre, una inducción con el objetivo de informarles sobre los servicios administrativos que se prestan en la Institución.

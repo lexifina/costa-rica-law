@@ -1,1 +1,0 @@
-Artículo 45- Procedimiento de formalización de la evaluación de la opción final de graduación. El Departamento de registro verificará que la calificación de la opción de final de graduación se encuentre consignada en el Libro de Actas respectivo, con la firma del docente tutor en la figura del delegado del Consejo Superior de Educación.
