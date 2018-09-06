@@ -14,3 +14,4 @@ Política General de Financiamiento en el Instituto Nacional de Fomento Cooperat
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-11-29 | la propia norma |
+| 2 | 2018-09-06 | Reglamento 82 (2018-09-06) |
