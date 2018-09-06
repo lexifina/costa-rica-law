@@ -1,7 +1,0 @@
-Artículo 25.- Para comprender las Normas de Convivencia del CUC se tendrán los siguientes aspectos conceptuales:
-a. Estudiante regular: Son los estudiantes regulares de la institución las personas que reciben formación mediante matrícula formal en una de las carreras de Diplomado (pregrado) que se imparten y cumplen la condición de Bachiller en Educación Media, o su equivalente, en concordancia con el Estatuto Orgánico.
-b. Convivencia: Se refiere a las relaciones sociales que se establecen entre los personas de la comunidad institucional, sea estudiantil, docente administrativa, dentro de un ámbito de respeto e igualdad de derechos, así como de cumplimiento de las obligaciones.
-c. Equidad: Principio fundamental de la Convivencia Social, que promueve la igualdad de oportunidades de todas las personas, en el acceso y utilización de recursos y servicios, según las características de su propia naturaleza humana.
-d. Representante Estudiantil: Se trata de aquellos estudiantes que representan a la comunidad estudiantil del Colegio Universitario de Cartago en las diferentes instancias del mismo, de acuerdo con su normativa interna, electos de conformidad con el artículo 32 del Decreto Ejecutivo 38639-MEP".
-e. Expediente Estudiantil: Documento que contiene la información referente al estudiante y que está en custodia del Departamento de Registro.
-f. Expediente Disciplinario: Documento que contiene toda la información sobre los asuntos disciplinarios de los estudiantes, atendidos por el Tribunal Educativo Disciplinario y la Decanatura.

@@ -1,1 +1,0 @@
-Artículo 31.- El Tribunal deberá sesionar cuantas veces sea necesario para garantizar la inmediatez de la prueba y la resolución de los asuntos con prontitud para garantizar los principios de justicia pronta y cumplida, debido a proceso el derecho de defensa.

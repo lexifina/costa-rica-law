@@ -1,1 +1,0 @@
-Artículo 39.- Mediante resolución el Tribunal dará inicio al procedimiento, se le concederá al investigado, un plazo razonable para que manifieste lo que considere a bien en su defensa y ofrezca la prueba de descargo; asimismo señalará hora y fecha para la audiencia oral y privada de recepción de pruebas pertinentes.

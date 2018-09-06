@@ -1,1 +1,0 @@
-Artículo 27 .- Una vez nombrado el Tribunal Educativo Disciplinario, para que realice la investigación y resolución en primera instancia, el Coordinador de Carrera trasladará el expediente al efecto el día hábil siguiente a la conformación del Tribunal.
