@@ -14,3 +14,4 @@ Reglamento para el uso de uniformes para el personal de la Junta de Administraci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-03-11 | la propia norma |
+| 2 | 2018-09-06 | Reglamento 17 (2018-09-06) |
