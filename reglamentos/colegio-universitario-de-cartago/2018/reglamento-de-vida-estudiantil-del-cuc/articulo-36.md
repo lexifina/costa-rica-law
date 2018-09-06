@@ -1,0 +1,1 @@
+Artículo 36.- Para el buen funcionamiento de este órgano deliberativo, se deberá contar con la papelería, los sellos, equipos y demás accesorios, así como del apoyo secretaria! que brinde la Institución.

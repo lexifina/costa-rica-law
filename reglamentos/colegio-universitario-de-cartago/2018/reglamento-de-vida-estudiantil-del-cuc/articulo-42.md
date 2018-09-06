@@ -1,0 +1,1 @@
+Artículo 42.- Una vez finalizada la investigación y habiendo tomado el Tribunal Educativo Disciplinario una decisión en primera instancia, se notificará al estudiante debidamente la resolución final y los motivos que la fundamentan.

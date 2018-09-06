@@ -1,0 +1,2 @@
+Artículo 26.- Procedimiento de previo que realiza el Coordinador o Director de cada carrera en la primera resolución para determinar si procede o no la remisión del expediente de denuncia disciplinaria al Tribunal Disciplinario Estudiantil.
+Recibida una denuncia por la presunta falta un estudiante a sus deberes, el Coordinador o Director de cada carrera, conformará un expediente y procederá a una investigación preliminar para determinar si procede elevar ante el Tribunal Educativo Disciplinario mediante una resolución razonada para que se continúe con el proceso.

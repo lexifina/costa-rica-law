@@ -1,0 +1,1 @@
+Artículo 10.- Representación Estudiantil. Los estudiantes del CUC tendrán derecho a representación en el Consejo Directivo y en todos aquellos órganos que así lo determine el Decreto Ejecutivo 38639-MEP y las disposiciones de la institución.

@@ -1,0 +1,1 @@
+Artículo 6.- Protección. La información personal contenida en el expediente estudiantil de los estudiantes del CUC, no pueden ser utilizados para labores distintas a los fines institucionales e informativos y se encontrará protegido bajo la Ley 8968, "Ley de Protección de la persona frente al tratamiento de sus datos personales", y su reglamento.

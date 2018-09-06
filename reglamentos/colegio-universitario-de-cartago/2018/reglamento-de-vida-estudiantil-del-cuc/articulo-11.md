@@ -1,0 +1,1 @@
+Artículo 11.- Participación Estudiantil. El representante estudiantil del CUC ante el Consejo Directivo será electo por votación directa, universal y secreta de los estudiantes, de acuerdo con el respectivo Reglamento de Elecciones Estudiantiles de la institución, durará un año en su cargo y puede ser reelecto por una sola vez de manera consecutiva.
