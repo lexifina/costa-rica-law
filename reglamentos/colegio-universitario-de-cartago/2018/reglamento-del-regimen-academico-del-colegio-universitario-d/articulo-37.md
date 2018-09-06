@@ -1,0 +1,1 @@
+Artículo 37. -Derechos y Deberes de los estudiantes. En el Reglamento de Vida Estudiantil se contempla las regulaciones sobre los derechos, deberes, organización presentación y participación estudiantil. Asimismo la orientación y las normas de convivencia.

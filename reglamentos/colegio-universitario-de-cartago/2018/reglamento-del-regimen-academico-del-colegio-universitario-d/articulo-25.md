@@ -1,0 +1,5 @@
+Artículo 25. -Deber del estudiante por ausentarse a pruebas. Si el estudiante se ausenta a alguna de las pruebas establecidas en el programa del curso, por razones de fuerza mayor o caso fortuito, deberá presentar:
+a. La justificación por escrito adjuntando la respectiva prueba idónea, por enfermedad propia o de un familiar directo (padres, hijos, cónyuge) o por el fallecimiento de alguno de estos; también cabrá por motivos laborales debidamente comprobados.
+b. La solicitud de reposición de la prueba de referencia ante el Coordinador o Director de Carrera.,-Dicha solicitud deberá ser planteada dentro de los cinco días hábiles después de realizada la prueba. En ausencia del docente, el estudiante podrá presentar la solicitud ante la, Coordinación o Dirección de Carrera quien resolverá quien resolverá en el plazo de ocho días naturales según la Ley General de Administración Pública. En aquellos casos en que el docente sea la misma Coordinación o Dirección de la Carrera, resolverá la Dirección
+Académica.
+El estudiante deberá cubrir el costo del examen de reposición. Ajustable a los estudios que realice la Administración.

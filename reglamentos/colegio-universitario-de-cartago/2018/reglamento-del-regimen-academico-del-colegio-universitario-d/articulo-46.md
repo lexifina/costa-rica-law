@@ -1,0 +1,1 @@
+Artículo 46- La calificación de la opción final de graduación es responsabilidad exclusiva del delegado del Consejo Superior de Educación y se fundamentará en al menos cuatro visitas y cuatro evaluaciones presenciales orientadas a verificar el nivel de cumplimiento de los objetivos y actividades propuestas en el plan de trabajo por estudiante de la práctica supervisada.

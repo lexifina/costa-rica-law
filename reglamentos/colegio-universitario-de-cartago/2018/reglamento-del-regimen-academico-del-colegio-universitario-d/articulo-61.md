@@ -1,0 +1,2 @@
+Artículo 61. -Los horarios de los cursos serán elaborados por los Coordinadores o Directores de Carrera, según las necesidades académicas y las posibilidades financieras y físicas del CUC.
+Los docentes deben cumplir con la distribución de su tiempo tanto en la docencia como en las labores administrativo-docentes (elaboración de programas y cronogramas, reuniones, atención de estudiantes, capacitación y otros) tal y como lo dispone la normativa institucional.

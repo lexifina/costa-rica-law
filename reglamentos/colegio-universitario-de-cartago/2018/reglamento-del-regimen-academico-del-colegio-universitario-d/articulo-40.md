@@ -1,0 +1,1 @@
+Artículo 40.-Requisitos para la obtención del título de Diplomado. Para que un estudiante pueda obtener el título de Diplomado parauniversitario deberá tener aprobados el plan de estudios respectivo de la carrera así como la evaluación final de graduación. La evaluación final de graduación se aprueba con nota de setenta (70.00)

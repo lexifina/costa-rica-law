@@ -1,0 +1,2 @@
+Artículo 49. -Acta de rendimiento. Es el documento legal mediante el cual las personas docentes hacen entrega de las notas de calificación de los estudiantes y el cual le permite al Departamento de Registro controlar y resguardar el rendimiento académico de todo estudiante del CUC.
+En caso de ausencia temporal o definitiva del docente y existiendo un error debidamente comprobado, el Coordinador o Director de Carrera puede incorporar modificaciones que justifiquen adecuadamente en el acta final, con la autorización de la Dirección Académica.

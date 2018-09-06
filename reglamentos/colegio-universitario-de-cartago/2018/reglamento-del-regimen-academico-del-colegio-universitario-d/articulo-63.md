@@ -1,0 +1,1 @@
+Artículo 63. - La institución debe ofrecer a los estudiantes, en cada ciclo lectivo, los cursos que conforman el plan de estudios de cada carrera según el orden establecido en la malla curricular aprobado por el Consejo Superior de Educación.

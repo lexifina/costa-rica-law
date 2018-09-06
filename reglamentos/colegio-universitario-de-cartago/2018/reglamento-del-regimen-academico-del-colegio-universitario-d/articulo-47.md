@@ -1,0 +1,1 @@
+Artículo 47- Inscripción de títulos. El proceso de inscripción de títulos de diplomado parauniversitario es posterior a la aprobación de la opción final de graduación, y deberá tramitarse ante el Consejo Superior de Educación, en forma separada, cumpliendo en tiempo y forma los requerimientos establecidos en el Decreto Ejecutivo 38639-MEP.

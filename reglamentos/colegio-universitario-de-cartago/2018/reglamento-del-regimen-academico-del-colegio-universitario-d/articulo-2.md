@@ -1,0 +1,2 @@
+Artículo 2°-Responsabilidad de ejecución de este Reglamento corresponde a:
+La Decanatura, la Dirección Académica, la Dirección Administrativa-Financiera, la Dirección de Planificación y Desarrollo, la Dirección de Educación Comunitaria y Asistencia Técnica y las Coordinaciones o Direcciones de Carrera en su calidad de superiores jerárquicos, quienes tienen la responsabilidad de velar por el cumplimiento de este Reglamento en las carreras y en las otras dependencias respectivamente.

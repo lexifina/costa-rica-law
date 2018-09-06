@@ -1,0 +1,2 @@
+Artículo 29. -De la obligación de los docentes de ingresar el registro de notas al sistema de información digital. El personal docente deberá mantener el registro de notas de sus estudiantes, por espacio de un año.
+En caso de ausencia temporal o definitiva del docente y existiendo un error debidamente comprobado, el Coordinador o Director de Carrera puede incorporar modificaciones justificando adecuadamente en el acta final, con la autorización de la Dirección Académica.

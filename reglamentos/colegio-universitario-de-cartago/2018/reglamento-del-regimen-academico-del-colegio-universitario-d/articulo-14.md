@@ -1,0 +1,2 @@
+Artículo 14. -Propuesta y entrega del programa del curso. El programa del curso por impartir por el docente, deberá ser conforme al aprobado por el Consejo Superior de Educación. Las estrategias metodológicas serán propuestas por el docente a la Coordinación o Dirección Carrera para su aprobación previamente a su implementación.
+Lo único que el docente puede variar son las estrategias metodológicas dado que el plan de estudios de la carrera y el programa de cada curso es únicamente el aprobado por el CSE.

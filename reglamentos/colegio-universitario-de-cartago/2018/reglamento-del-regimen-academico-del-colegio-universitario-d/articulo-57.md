@@ -1,0 +1,1 @@
+Artículo 57. -Definición de deserción estudiantil. La deserción estudiantil refleja la decisión por parte de un estudiante por interrumpir,totalmente sus actividades académicas, por razones personales durante un año calendario o más. Para impedir ese fenómeno se establecerán medidas de aproximación e intervención institucional.

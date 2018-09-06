@@ -1,0 +1,4 @@
+Artículo 6. -Definición de crédito y duración de hora lectiva.
+a. Se define como crédito la unidad valorativa del trabajo del estudiante que equivale a tres horas de reloj semanales de trabajo del mismo, durante 15 semanas, aplicadas a una actividad que ha sido supervisada, evaluada y aprobada por el profesor. Esta definición se aplica para todo tipo de cursos: laboratorios, talleres, prácticas de campo y cursos teóricos-prácticos.
+b. Cada hora lectiva será de 50 minutos.
+c. Para jornadas de tres horas lectivas se dará un receso de 15 minutos; para las jornadas de más de tres horas lectivas 20 minutos de receso. El receso es obligatorio y se cumplirá en la medida de las posibilidades a mitad de la jornada lectiva. En los cursos de laboratorio y eminentemente prácticos y en los nocturnos que presenten algún cambio deberá ser comunicado por Coordinación o Dirección de cada carrera.
