@@ -1,1 +1,0 @@
-Artículo 83.—Deróguese el reglamento para el funcionamiento de los Comités Cantonales de Deportes y Recreación promulgado en La Gaceta 231 del 2 de diciembre de 1993, que fue acordado por el Concejo Municipal el 28 de enero de 1992. Igualmente todo acuerdo del Concejo Municipal que se le oponga al presente reglamento.

@@ -1,1 +1,0 @@
-Artículo 42.—La asamblea general de vecinos estará integrada por los vecinos que se hagan presentes a la misma y entre los presentes se elegirán los miembros directivos del Comité Comunal de Deportes y Recreación de la Comunidad respectiva por mayoría simple de votos.

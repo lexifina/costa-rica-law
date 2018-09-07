@@ -1,1 +1,0 @@
-Artículo 48.—Las Juntas Directivas de los Comités Comunales deberán reunirse en forma ordinaria una vez a la semana o en Sesión Extraordinaria cuando a juicio del Presidente o tres miembros directivos realicen la correspondiente convocatoria. Tanto las sesiones ordinarias como extraordinarias son de carácter público.
