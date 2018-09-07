@@ -27,3 +27,5 @@ Artículo 2°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 41262 del 22 de agosto de 2018)
 (Modificado por el artículo 2° del decreto ejecutivo N° 41311 del 3 de setiembre de 2018)
 (Modificado por el artículo 2° del decreto ejecutivo N° 41266 del 5 de setiembre de 2018)
+(Reformado por el artículo 2° de la ley N° 9604 del 7 de setiembre de 2018)
+(Reformadopor el artículo 3° de la ley N° 9604 del 7 de setiembre de 2018)
