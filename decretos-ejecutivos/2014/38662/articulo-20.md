@@ -1,1 +1,0 @@
-Artículo 20.—Registro de asistencia. De cada sesión que se celebre se levantará un registro de asistencia, sobre la base de las convocatorias formuladas por el Secretario Técnico, en el cual los asistentes deberán consignar su firma.

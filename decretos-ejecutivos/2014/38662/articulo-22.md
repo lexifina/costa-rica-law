@@ -1,1 +1,0 @@
-Artículo 22.—Reglas supletorias. En lo no regulado expresamente en este reglamento, los Consejos se regirán en cuanto a su funcionamiento por las disposiciones que resulten aplicables de la Ley General de la Administración Pública.
