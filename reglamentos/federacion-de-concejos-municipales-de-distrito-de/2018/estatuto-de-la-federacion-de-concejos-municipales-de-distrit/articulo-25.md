@@ -2,7 +2,8 @@ Artículo 25.—Son funciones del Consejo Directivo:
 a) Cumplir el Estatuto y sus Reglamentos.
 b) Analizar y proponer reglamentos y sus reformas.
 c) Convocar, organizar y presidir la Asamblea General.
-d) Presentar a la Asamblea General el Plan Operativo Anual y el Informe de labores, de tesorería y de presidencia elaborado por la Administración.
+d) Presentar a la Asamblea General el Informe de labores, de tesorería y de presidencia elaborado por la Administración.
+(Así reformado el inciso anterior en asamblea N° 003-2018 del 7 de setiembre del 2018)
 e) Definir el salario del Director(a) Ejecutivo(a), respetando el decreto de salarios mínimos del Ministerio de Trabajo.
 f) Recibir en audiencia a las personas físicas o jurídicas que así lo soliciten.
 g) Definir la forma de gestión de los servicios que conforman el fin de la Federación, de conformidad con lo previsto en el Código Municipal.

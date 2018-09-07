@@ -3,7 +3,8 @@ a) Elaborar y proponer la agenda de las sesiones, conjuntamente con la Direcció
 b) Velar por el fiel cumplimiento de los fines y los Estatutos de la Federación.
 c) Abrir, presidir, suspender y cerrar las sesiones del Consejo.
 d) Rendir un informe anual a la Asamblea General sobre la gestiones y logros alcanzados de acuerdo al plan de trabajo propuesto
-e) Aprobar el orden del día.
+e) Elaborar el orden del día y someterlo a aprobación.
+(Así reformado el inciso anterior en asamblea N° 003-2018 del 7 de setiembre del 2018)
 f) Recibir las votaciones y anunciar si hay aprobación o rechazo de un asunto.
 g) Conceder la palabra y retirarla a quien hiciere uso indebido de la misma.
 h) Vigilar el orden de las sesiones.

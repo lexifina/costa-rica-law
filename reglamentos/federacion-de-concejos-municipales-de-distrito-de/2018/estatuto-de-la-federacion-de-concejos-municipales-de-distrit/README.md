@@ -14,3 +14,4 @@ Estatuto de la Federación de Concejos Municipales de Distrito (FECOMUDI)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-07-02 | la propia norma |
+| 2 | 2018-09-07 | Reglamento 3 (2018-09-07) |
