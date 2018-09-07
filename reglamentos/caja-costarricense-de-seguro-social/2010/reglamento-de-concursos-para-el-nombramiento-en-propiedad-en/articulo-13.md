@@ -22,35 +22,16 @@ No se reconocerá puntaje en este rubro, sobre aquellos cursos que forman parte 
 3. Las certificaciones emitidas en otro idioma deberán ser traducidas al español, por un traductor oficial inscrito en el Ministerio de Relaciones Exteriores y Culto. Cuando en el cartel se haya incluido cursos de capacitación, como aspectos deseables se otorgará doble puntaje, de conformidad con las reglas antes establecidas para los cursos de participación y cursos de aprovechamiento, hasta cinco puntos máximo del total acreditado en estos rubros.
 3. Recertificación de Educación Continua.
 Al profesional que presente la recertificación de educación continua actualizada y emitida por el respectivo Colegio Profesional, se le reconocerá el total de 10 puntos. Este puntaje se mantendrá, en el tanto la recertificación se encuentre vigente.
-4. Experiencia laboral en la institución. Se otorgará dos puntos por cada año de experiencia laboral obtenida al servicio de la Institución, independientemente de los puestos desempeñados y los centros de trabajo, hasta un puntaje máximo de 20 puntos. Para tales fines, la Unidad de Gestión de Recursos Humanos, deberá verificar lo pertinente en los registros institucionales idóneos.
-Los periodos inferiores a un año, se les asignará puntaje de forma proporcional.
+4. Experiencia laboral en la institución. (Mediante resolución de la Sala Constitucional N° 14905 del 7 de setiembre de 2018, se declaró inconstitucional este ítem.)
 5. Experiencia laboral relacionada con el puesto.
 Se otorgará un puntaje máximo de 30 puntos, por la experiencia adquirida en el puesto objeto de concurso o en otros puestos con funciones sustantivas similares, en el tanto, se hayan desempeñado a lo interno de la institución.
 Se asignará puntaje proporcionalmente de conformidad con el siguiente detalle:
 a. De uno hasta dos años: 7.5 puntos por año.
 b. De tres a cinco años: 5 puntos por año.
 Se asignará puntaje proporcionalmente a las fracciones de año, incluyendo los periodos menores al primer año.
-5 bis) Experiencia en el servicio o unidad administrativa del puesto en concurso. Se otorgará un puntaje máximo de 30 puntos, por la experiencia adquirida en el servicio o unidad administrativa donde se encuentre la plaza objeto de concurso.
-Se asignará puntaje proporcionalmente de conformidad con el siguiente detalle:
-a. De uno hasta dos años: 7.5 puntos por año.
-b. De tres a cinco años: 5 puntos por año.
-Se asignará puntaje proporcionalmente a las fracciones de año, incluyendo los periodos menores al primer año.
+5 bis) Experiencia en el servicio o unidad administrativa del puesto en concurso. (Mediante resolución de la Sala Constitucional N° 14905 del 7 de setiembre de 2018, se declaró inconstitucional este ítem.)
 (*) (Así adicionado el punto 5 bis) anterior mediante sesión N° 8715 del 7 de mayo del 2014)
-6. Experiencia laboral en el centro de trabajo. Se otorgará un puntaje máximo de 50 puntos por la experiencia obtenida en el centro de trabajo en el cual se encuentra adscrita la plaza objeto de concurso para la adjudicación en propiedad. Entiéndase como centro de trabajo:
-a. Hospital.
-b. Clínica.
-c. Área de Salud.
-d. Centro de Atención Integral en Salud (CAIS).
-e. Dirección Regional de Servicios de Salud.
-f. Dirección Regional de Sucursales Administrativas.
-g. Sucursal Administrativa.
-h. Centros y laboratorios especializados adscritos al nivel central.
-i. Talleres y unidades de producción industrial adscritas al nivel central.
-j. Oficinas Centrales, incluye como tal a todas las dependencias administrativas que tramita la Subárea de Gestión de Recursos Humanos de la Dirección de Administración y Gestión de Personal.
-Se asignará puntaje proporcionalmente de conformidad con el siguiente detalle:
-a. De uno a dos años: 13 puntos por año.
-b. De tres a cinco años: 8 puntos por año.
-Se asignará puntaje proporcionalmente a las fracciones de año, incluyendo los periodos menores al primer año.
+6. Experiencia laboral en el centro de trabajo. (Mediante resolución de la Sala Constitucional N° 14905 del 7 de setiembre de 2018, se declaró inconstitucional este ítem.)
 7. Evaluación del desempeño.
 Las evaluaciones del desempeño de los dos últimos periodos, sean anuales o de periodo interino, se les otorgará el siguiente puntaje:
 a. Evaluaciones del desempeño anuales, un puntaje máximo de 50 puntos por cada una, proporcional a la calificación obtenida.
