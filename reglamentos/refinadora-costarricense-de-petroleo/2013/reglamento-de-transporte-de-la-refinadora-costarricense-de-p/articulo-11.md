@@ -1,2 +1,0 @@
-Artículo 11.—El conductor que sea declarado responsable por los Tribunales de Justicia, o como resultado de la investigación que realice la empresa administrativamente, con motivo de un accidente en que hubiera participado con un vehículo de RECOPE, debe, previo debido proceso, pagar el monto correspondiente al deducible que aplica para la cobertura afectada.
-Es igualmente responsable, quien permita, a otra persona, conducir un vehículo de RECOPE sin causa justificada o sin la debida autorización.

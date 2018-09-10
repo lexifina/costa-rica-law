@@ -1,1 +1,0 @@
-Artículo 10.—Se prohíbe al conductor de vehículos de RECOPE efectuar arreglos extrajudiciales en caso de accidentes con vehículos de la Empresa; en estos casos deben indicar al particular que se apersone o comunique con el Área de Transporte de RECOPE, para efectuar las gestiones correspondientes.

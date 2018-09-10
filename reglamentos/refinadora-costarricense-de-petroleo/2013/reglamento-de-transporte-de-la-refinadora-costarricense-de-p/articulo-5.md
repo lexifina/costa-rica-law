@@ -1,1 +1,0 @@
-Artículo 5°—Los titulares subordinados autorizarán el uso de los vehículos administrativos de acuerdo con los planes de trabajo preestablecidos. En casos especiales, urgentes o emergencias las autorizaciones las darán el Presidente, Auditor General, Gerente General y Gerentes de Área.
