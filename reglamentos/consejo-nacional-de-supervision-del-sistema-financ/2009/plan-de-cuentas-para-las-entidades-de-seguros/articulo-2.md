@@ -1,3 +1,0 @@
-Artículo 2. Propósito
-La elaboración y aplicación del este Plan por las entidades definidas en el artículo anterior, tiene como objetivo promover la uniformidad de criterios contables para el registro y presentación de las transacciones propias de las entidades que participan en el mercado de seguros.
-La aplicación de la estructura contable que se define en este Plan, permite la generación de estados financieros uniformes por parte de las diferentes entidades que operan en el sector asegurador, facilitando con ello el análisis de la información y la toma de decisiones por parte de los administradores, asegurados y el ente supervisor.
