@@ -1,5 +1,6 @@
-CONSEJO NACIONAL DE SUPERVISIÓN
-DEL SISTEMA FINANCIERO
+(Derogado)
+CONSEJO NACIONAL DE SUPERVISIÓN DEL SISTEMA FINANCIERO
+(Esta norma fue derogada por las disposiciones derogatorias contenidas en el transitorio VI del Reglamento de información financiera, aprobado en sesiones N° 1442-2018 y 1443-2018 del 11 de setiembre de 2018)
 El Consejo Nacional de Supervisión del Sistema Financiero en los Artículos 8 y 12 de las Actas de las Sesiones 639-2007 y 640-2007, respectivamente, celebradas el 9 de abril del 2007,
 considerando que:
 1. de conformidad con lo que establece el artículo 171, inciso ñ) de la Ley Reguladora del Mercado de Valores, Ley Nº 7732, corresponde al Consejo Nacional de Supervisión del Sistema Financiero aprobar las disposiciones relativas a las normas contables y de auditoría a las que deben someterse las entidades supervisadas por la Superintendencia General de Entidades Financieras, la Superintendencia General de Valores y la Superintendencia de Pensiones,
