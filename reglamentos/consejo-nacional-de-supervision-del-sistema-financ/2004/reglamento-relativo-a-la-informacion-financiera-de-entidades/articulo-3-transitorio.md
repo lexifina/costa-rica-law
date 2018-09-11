@@ -1,1 +1,0 @@
-Transitorio III.—Únicamente para la presentación de los estados financieros anuales internos del periodo terminado el 31 de diciembre de 2003, se establece un plazo de remisión hasta el 27 de febrero del 2004.
