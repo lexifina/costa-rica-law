@@ -1,3 +1,5 @@
+(Derogado)
+(Esta norma fue derogada por las disposiciones derogatorias contenidas en el transitorio VI del Reglamento de información financiera, aprobado en sesiones N° 1442-2018 y 1443-2018 del 11 de setiembre de 2018)
 El Consejo Nacional de Supervisión del Sistema Financiero mediante artículos 11 y 6 de las actas de las sesiones 338-2002 y 340-2002, celebradas el 4 y 12 de noviembre de 2002, respectivamente,
 considerando que:
 I. el literal ñ), del artículo 171 de la Ley Reguladora del Mercado de Valores confiere al Consejo Nacional de Supervisión del Sistema Financiero la potestad de establecer la normativa contable aplicable a los sujetos supervisados por la Superintendencia General de Entidades Financieras, la Superintendencia General de Valores y la Superintendencia de Pensiones;
