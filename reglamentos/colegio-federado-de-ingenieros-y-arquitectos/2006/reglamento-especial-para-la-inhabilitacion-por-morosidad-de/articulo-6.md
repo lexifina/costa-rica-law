@@ -1,0 +1,1 @@
+Artículo 6º—La condición de habilitación o inhabilitación de una empresa, miembro, de un miembro temporal o asociado, podrá ser verificada por medio del sistema de consulta en el sitio web oficial del Colegio Federado.

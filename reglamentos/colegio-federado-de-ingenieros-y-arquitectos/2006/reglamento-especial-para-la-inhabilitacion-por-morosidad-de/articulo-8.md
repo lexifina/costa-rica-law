@@ -1,0 +1,1 @@
+Artículo 8º—Sin perjuicio de las gestiones administrativas de cobro de las contribuciones y cuotas correspondientes, el Colegio se reserva el derecho de acudir al cobro judicial, en atención a lo dispuesto en el artículo 64 de la Ley Orgánica del CFIA.

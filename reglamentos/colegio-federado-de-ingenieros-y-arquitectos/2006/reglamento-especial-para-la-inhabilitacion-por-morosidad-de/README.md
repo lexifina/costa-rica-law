@@ -14,3 +14,4 @@ Reglamento Especial para la Inhabilitación por Morosidad de los Miembros del Co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-14 | la propia norma |
+| 2 | 2018-09-11 | Reglamento 37 (2018-09-11) |
