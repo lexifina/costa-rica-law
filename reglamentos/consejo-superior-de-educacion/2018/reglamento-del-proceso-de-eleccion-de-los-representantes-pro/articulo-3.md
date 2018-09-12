@@ -1,0 +1,1 @@
+Artículo 3º—Determinación del lugar de las elecciones. La elección de los representantes propietario y suplente de III Ciclo de la Educación General Básica y la Educación Diversificada y del representante suplente de I y II Ciclos de la Educación General Básica, se realizará en la Escuela Juan Rafael Mora Porras, ubicada en San José, Paseo Colón, detrás de la Torre Mercedes.
