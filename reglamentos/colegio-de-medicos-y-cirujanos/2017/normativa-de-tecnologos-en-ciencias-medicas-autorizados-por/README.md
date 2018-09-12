@@ -15,3 +15,4 @@ Normativa de Tecnólogos en Ciencias Médicas autorizados por el Colegio de Méd
 | --- | --- | --- |
 | 1 | 2017-09-07 | la propia norma |
 | 2 | 2017-12-13 | Reglamento 0 (2017-12-13) |
+| 3 | 2018-09-12 | Reglamento 0 (2018-09-12) |

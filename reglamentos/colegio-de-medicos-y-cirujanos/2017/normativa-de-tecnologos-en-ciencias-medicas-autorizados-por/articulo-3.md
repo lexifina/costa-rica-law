@@ -5,7 +5,8 @@ Artículo 3°-De las tecnologías autorizadas. El Colegio de Médicos y Cirujano
 2) Disección.- Se reconoce como sinónimo de esta Tecnología, los siguientes términos: disección de autopsias; Disección y tanatopraxia.
 3)Electrocardiografía.
 4)Electroencefalografía.
-5)Emergenciasmédicas
+5) Emergencias médicas. - Se reconocen como sinónimos de esta Tecnología, los siguientes términos: Emergencias y Rescate; Urgencias Médicas; Atención pre hospitalaria yAtención pre hospitalaria y en emergencias.
+(Así reformado el inciso anterior en sesión ordinaria N° 2018-09-12 del 12 de octubre de 2018)
 6)Gastroenterología.
 7)Hemodinamia.
 8)Histología.- Se reconoce sinónimo de esta Tecnología, los siguientes términos: histotecnología.
