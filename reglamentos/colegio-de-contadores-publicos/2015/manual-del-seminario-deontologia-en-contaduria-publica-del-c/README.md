@@ -15,3 +15,4 @@ Manual del Seminario Deontología en Contaduría Pública del Colegio de Contado
 | --- | --- | --- |
 | 1 | 2015-10-23 | la propia norma |
 | 2 | 2018-05-16 | Reglamento 8 (2018-05-16) |
+| 3 | 2018-09-12 | Reglamento 15 (2018-09-12) |
