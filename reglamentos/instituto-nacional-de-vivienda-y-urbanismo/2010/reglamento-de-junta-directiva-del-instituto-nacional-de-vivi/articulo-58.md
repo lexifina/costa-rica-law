@@ -1,2 +1,3 @@
-Artículo 58.—La Secretaría de Junta Directiva conservará los registros fonográficos o de cualquier otra índole utilizados para facilitar la grabación del acta así como los registros oficiales del libro de actas y archivo de antecedentes, copia del acta firme, foliada y modificada así como su borrador respectivo.
-(Así reformado en sesión N° 5935 del 12 de abril de 2012)
+Artículo 58. – La Secretaría de Junta Directiva en atención al Dictamen C-237-2007 del 18 de julio del 2007 de la Procuraduría General de la República y a la Tabla de Plazos de Conservación de Documentos elaborada por la Comisión Institucional de Selección y Eliminación de Documentos conservará los registros fonográficos o de cualquier otra índole utilizados para facilitar la elaboración de las actas hasta por cinco años procediendo posteriormente a su eliminación.
+Además, conservará los registros oficiales del libro de actas y archivo de antecedentes, copia del acta firme, foliada y modificada, así como su borrador respectivo.
+(Así reformado en sesión N° 6336 del 13 de setiembre del 2018)
