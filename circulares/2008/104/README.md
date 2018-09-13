@@ -13,3 +13,4 @@ Ampliación circular N° 44-08 "Disposiciones relacionadas con los permisos para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-06-23 | la propia norma |
+| 2 | 2018-09-13 | Circular 109 (2018-09-13) |
