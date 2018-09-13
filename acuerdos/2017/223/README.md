@@ -14,3 +14,4 @@ Identificación de los clientes titulares de las cuentas de valores en el sistem
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-04-01 | la propia norma |
+| 2 | 2018-09-13 | Acuerdo 232 (2018-09-13) |
