@@ -18,3 +18,4 @@ Reglamento de Vigilancia Epidemiológica y Control de Enfermedades Transmisibles
 | 3 | 1988-02-04 | Decreto Ejecutivo 17970 (1988-02-04) |
 | 4 | 1996-08-23 | Decreto Ejecutivo 25471 (1996-08-23) |
 | 5 | 2001-09-04 | Decreto Ejecutivo 29807 (2001-09-04) |
+| 6 | 2018-09-13 | Decreto Ejecutivo 41411 (2018-09-13) |
