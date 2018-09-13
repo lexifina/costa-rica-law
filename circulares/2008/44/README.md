@@ -14,3 +14,4 @@ Disposiciones relacionadas con los permisos para impartir lecciones dentro y fue
 | --- | --- | --- |
 | 1 | 2008-03-14 | la propia norma |
 | 2 | 2008-06-23 | Circular 104 (2008-06-23) |
+| 3 | 2018-09-13 | Circular 109 (2018-09-13) |
