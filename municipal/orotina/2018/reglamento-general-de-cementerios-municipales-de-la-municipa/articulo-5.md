@@ -1,0 +1,2 @@
+Artículo 5º-La Municipalidad tendrá a cargo el mejoramiento, mantenimiento y administración de sus cementerios, para lo cual contará con un administrador y el personal necesario para el buen funcionamiento de sus actividades.
+La Municipalidad está obligada a suministrar al personal la indumentaria requerida para su protección, así como el equipo necesario para llevar a cabo sus labores en forma correcta y segura.

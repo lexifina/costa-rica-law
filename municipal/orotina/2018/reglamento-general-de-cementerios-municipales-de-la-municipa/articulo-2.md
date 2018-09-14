@@ -1,0 +1,1 @@
+Artículo 2º-El presente Reglamento estará sujeto a las disposiciones que resulten atinentes de la Ley Nº 704 del 7 de setiembre de 1949; a los artículos 36 y 327 de la Ley General de Salud, al Reglamento General de Cementerios (Decreto Ejecutivo Nº 32833 y sus reformas), y al resto de la normativa conexa, incluyendo el plan regulador del cantón una vez que entre en vigencia.

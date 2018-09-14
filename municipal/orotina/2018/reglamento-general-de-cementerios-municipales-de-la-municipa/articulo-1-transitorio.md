@@ -1,0 +1,2 @@
+Transitorio I.-La Municipalidad de Orotina por medio de edicto y boletines en la comunidad informará a todas aquellas personas que tengan derechos funerarios en el Cementerio Municipal de Orotina, para que, en el plazo de 6 meses contados a partir de la publicación, se apersonen a la oficina municipal a suscribir el respectivo Contrato de Uso.
+Rige a partir de la publicación en el Diario Oficial La Gaceta.

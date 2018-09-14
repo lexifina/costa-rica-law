@@ -1,0 +1,1 @@
+Artículo 4º-Los cementerios son lugares destinados exclusivamente a la ubicación póstuma de cadáveres y restos humanos. Dichos lugares son de utilidad pública. Deberán estar provistos de un botiquín de primeros auxilios para casos de emergencia, y con un plan de control de plagas.
