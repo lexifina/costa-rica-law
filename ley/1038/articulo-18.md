@@ -1,15 +1,3 @@
-Artículo 18.- La Junta General del Colegio deberá reunirse
-ordinariamente por lo menos una vez al año para elegir los miembros que
-corresponde a la Junta Directiva, conocer de los informes que ésta le
-presente y resolver los demás problemas de su competencia; y
-extraordinariamente cuando sea convocada por acuerdo de la Junta
-Directiva, la cual estará obligada a hacerlo si así se lo solicita el
-número de miembros que fija el Reglamento.
-El quórum de la Junta General se formará en primera convocatoria con
-más de la mitad de los miembros del Colegio. En caso de no haber quórum
-en la primera convocatoria se convocará nuevamente a reunión media hora
-después. En la segunda convocatoria el quórum se formará con cualquier
-número de miembros presentes. Las dos convocatorias pueden hacerse
-simultáneamente.
-( Así reformado por el artículo 1º de la ley No. 5164 de 19 de enero de
-1973 ).
+Artículo 18- La Asamblea General del Colegio deberá reunirse en sesión ordinaria, una vez anualmente en la primera quincena del mes de febrero, para conocer los informes que la Junta Directiva presente de conformidad con el reglamento. Asimismo, podrá aprobar el presupuesto anual y resolver los demás asuntos de su competencia. Adicionalmente, cada tres años deberá reunirse ordinariamente en la segunda quincena del mes de enero, para elegir a la totalidad de los miembros de la Junta Directiva, a los miembros del Tribunal de Honor y al Comité Consultivo Permanente, para lo cual deberá velar por que la integración del órgano impar la diferencia entre el total de hombres y mujeres no sea superior a uno. La Asamblea General podrá acordar la realización de sesiones extraordinarias; de igual forma, podrá convocarlas la Junta Directiva mediante acuerdo tomado al efecto, o bien, por solicitud del número de agremiados que establezca el reglamento.
+El cuórum de la Asamblea General se formará en primera convocatoria con más de la mitad de los miembros del Colegio. En caso de no haber cuórum en la primera convocatoria, se convocará nuevamente a reunión media hora después. En la segunda convocatoria, el cuórum se formará con cualquier número de miembros presentes. Las dos convocatorias pueden hacerse simultáneamente.
+(Así reformado por el artículo 1° de la ley N° 9585 del 26 de junio de 2018)
