@@ -30,6 +30,7 @@ articulo-29.md
 articulo-30.md
 articulo-31.md
 articulo-32.md
+articulo-32-bis.md
 articulo-33.md
 articulo-34.md
 articulo-35.md
