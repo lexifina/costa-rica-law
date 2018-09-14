@@ -1,0 +1,2 @@
+Artículo 27.- Plazo para que la Comisión Institucional de Teletrabajo elabore los productos que le corresponden
+Durante el mes siguiente a la entrada en vigencia del presente Reglamento, la Comisión Institucional de Teletrabajo de la DHR elaborará los siguientes productos: definición de los perfiles de puestos que pueden realizar teletrabajo, formulario de solicitud de incorporación a la modalidad de Teletrabajo, Contrato Marco de Teletrabajo (CMT) y Acuerdo Mensual de Metas de Teletrabajo (AMMET).

@@ -1,0 +1,2 @@
+Artículo 3.- Ámbito de aplicación
+El teletrabajo es aplicable a procesos, actividades y funciones que puedan desarrollarse de modo no presencial, siempre y cuando exista un balance entre tiempo laborado y resultados obtenidos. Las y los funcionarios de la DHR podrán realizar sus labores en la modalidad de teletrabajo hasta por un máximo de tres días por semana, debiendo mantener el vínculo con la institución y asistir a las actividades de carácter institucional en las que se les requiera, todo previa coordinación con su jefatura.

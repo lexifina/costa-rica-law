@@ -1,0 +1,5 @@
+Artículo 17.- Funciones de la Dirección Administrativa
+El Director/a Administrativo/a ejercerá sus funciones en la implementación y el funcionamiento del Programa Institucional de Teletrabajo, desde el ámbito de su propia competencia, incluyendo al menos las siguientes:
+a. Otorgar la autorización final para la incorporación de las y los funcionarios en la modalidad de teletrabajo, mediante la firma del Contrato Marco de Teletrabajo (CMT). Una vez suscrito deberá remitirlo al Departamento de Recursos Humanos para el archivo en el expediente del o la funcionaria respectiva y comunicarlo a la jefatura inmediata correspondiente para que se proceda a la definición y suscripción del Acuerdo Mensual de Metas de Teletrabajo (AMMET).
+b. Coordinar y girar las instrucciones necesarias a las instancias administrativas correspondientes en cuanto a los aspectos logísticos y operativos para la ejecución del teletrabajo en la DHR.
+c. Emitir la resolución administrativa de rescisión del contrato de teletrabajo en los casos en que así lo recomiende la Comisión.

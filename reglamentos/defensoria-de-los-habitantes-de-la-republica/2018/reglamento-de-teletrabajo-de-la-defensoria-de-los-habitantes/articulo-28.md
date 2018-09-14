@@ -1,0 +1,2 @@
+Artículo 28.- Plazo para plantear una propuesta de modificación al formulario de evaluación del desempeño
+A partir de la entrada en vigencia de este Reglamento, el Departamento de Recursos Humanos contará con un plazo de tres meses para plantear ante el Despacho una propuesta para incorporar dentro del formulario de evaluación del desempeño que se aplica anualmente al personal de la institución, un nuevo apartado que contemple parámetros de valoración respecto específicamente al teletrabajo realizado por las y los funcionarios.

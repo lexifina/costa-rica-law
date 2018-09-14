@@ -1,0 +1,2 @@
+Artículo 25.- Responsabilidad en caso de daño o pérdida
+Las personas teletrabajadoras asumirán la responsabilidad patrimonial en caso de daño o pérdida de los equipos informáticos de trabajo que pertenecen a la DHR, siempre y cuando lo anterior se haya originado por dolo o culpa grave debidamente comprobada dentro de un procedimiento administrativo que cumpla con todas las garantías del debido proceso.
