@@ -1,0 +1,5 @@
+ARTÍCULO 23. ACUERDOS. CLASIFICACIÓN DE MOCIONES DE ORDEN, FORMA Y FONDO.
+A. Moción de orden: Se solicitará de manera verbal cuando alguno (a) de los miembros del concejo municipal no se apegase a lo establecido en el artículo 26, inciso G del Código Municipal, por lo que lo solicitará conforme a lo establecido en el artículo 27, inciso E del Código Municipal.
+B. Moción de forma: Se solicitará de manera verbal cuando haya que corregir cuestiones de forma o errores materiales a un dictamen en discusión, así como para introducir modificaciones que no impliquen variación sustancial al fondo del asunto, requieren una votación de mayoría absoluta y se tendrán por dispensadas del trámite de análisis y dictamen de comisión.
+C. Moción de Fondo: Se presentará de forma escrita ante Directorio del Concejo Municipal previo a conocer el asunto.
+Para que el Concejo Municipal determine si le da trámite inmediato a la discusión del asunto que se pretende modificar o si se traslada a la comisión municipal correspondiente para su análisis y dictamen. En caso de conocerse en la sesión municipal requerirá mayoría simple para su aprobación.

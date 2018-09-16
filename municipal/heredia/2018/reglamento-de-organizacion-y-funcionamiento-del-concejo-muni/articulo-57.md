@@ -1,0 +1,1 @@
+ARTÍCULO 57. COMISIONES. CONVOCATORIA. El Presidente de la comisión correspondiente, podrá convocar a reuniones mediante correo electrónico institucional, con la colaboración de la Secretaría de Comisiones o mediante aviso en Sesión del Concejo Municipal previa.

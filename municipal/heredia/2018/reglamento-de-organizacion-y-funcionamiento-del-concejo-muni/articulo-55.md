@@ -1,0 +1,1 @@
+ARTÍCULO 55. COMISIONES. RESPONSABILIDAD DE CUSTODIA DE LOS DOCUMENTOS. El funcionario (a) secretario (a) de comisiones será responsable del traslado y custodia de los expedientes, cuyos originales se conservarán en su poder.

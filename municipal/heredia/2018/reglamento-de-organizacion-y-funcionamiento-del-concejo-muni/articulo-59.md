@@ -1,0 +1,5 @@
+ARTÍCULO 59. COMISIONES. EXCUSA Y RECUSACIONES
+A. Un miembro de una comisión podrá excusarse, ante el Presidente de la comisión por causa justa, de participar en la discusión y votación de un determinado asunto. La decisión de aceptar o no las razones la adoptará la comisión en el mismo acto, resolución que se hará constar en el acta respectiva.
+B. Los motivos para excusarse del conocimiento de un asunto serán los que establece el Código Municipal, la Ley de la Contratación Administrativa, el Reglamento de la Contratación Administrativa, y cualquier otra disposición legal que así lo ordene. Para lo cual podrá:
+1) Excusarse en el conocimiento, discusión y votación de aquellos asuntos en los que tenga un interés directo, su cónyuge, o algún pariente hasta el tercer grado de consanguinidad o afinidad, para lo cual lo comunicará de forma razonada ante la Comisión y éste decidirá si acoge o no la excusa.
+2) El mismo procedimiento se aplicará en caso de existir una recusación, para lo cual de previo se dará audiencia al regidor recusado a fin de que indique si acepta o no el señalamiento de forma motivada.

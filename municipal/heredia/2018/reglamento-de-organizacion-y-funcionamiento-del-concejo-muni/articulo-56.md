@@ -1,0 +1,1 @@
+ARTÍCULO 56. COMISIONES. REUNIONES. Las Comisiones no podrán celebrar sus reuniones, en el mismo horario de las sesiones del Concejo Municipal. Si por razones de extrema necesidad deben hacerlo, requieren contar con la aprobación del Concejo Municipal en cuyo caso podrán ser declarados en Comisión.

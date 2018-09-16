@@ -1,0 +1,7 @@
+ARTICULO 42. Comisiones. Integración de las Comisiones:
+A. La comisión de Hacienda y Presupuesto, Gobierno & Administración, así como la de Obras Públicas, estarán compuestas por cinco Regidores Propietarios. Las demás comisiones permanentes estarán integradas como mínimo por tres miembros, los cuales deberán escogerse entre los regidores propietarios u otro que por ley o reglamento especial lo indique. Ni los Síndicos, ni los Regidores Suplentes pueden integrar en las comisiones permanentes del Concejo, pero sí en las especiales.
+B. La integración de las Comisiones las designará el Presidente con cualquier número de regidores propietarios, sin que puedan ser inferior de tres.
+C. El Presidente del Concejo, podrá ejercer las atribuciones establecidas en el artículo 49 del Código Municipal, siendo que su conformación podrá variarse anualmente.
+D. El Presidente Municipal, al integrar las comisiones permanentes y especiales procurará la participación de las diferentes fracciones políticas representadas en el Concejo Municipal., esto en cumplimiento del artículo 49 C.M
+E. El Presidente de cada comisión podrá solicitar criterio técnico en relación con temas específicos y relacionados con su conocimiento y competencia, a cualquier funcionario municipal sin que estos criterios sean de acatamiento obligatorio.
+F. En caso excepcional de existir impedimento para integrar alguna comisión, el Regidor o Síndico podrá solicitar de forma escrita y justificada una permuta al Presidente Municipal, el cual valorará si aprueba o rechaza la solicitud.

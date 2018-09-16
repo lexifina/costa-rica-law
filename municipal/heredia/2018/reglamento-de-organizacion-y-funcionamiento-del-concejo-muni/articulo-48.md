@@ -1,0 +1,5 @@
+ARTICULO 48. COMISIONES. DICTÁMENES DE MAYORÍA Y MINORÍA
+A. Cuando al final de la discusión de un asunto, en la Comisión, persistieran divergencias de criterio, entonces se podrán redactar dos o más dictámenes, según sea el número de opiniones y/o criterios existentes. Se considerará dictamen de mayoría el suscrito por el mayor número de miembros de la comisión y de minoría los que tengan menor número, ordenándose según el número de firmas que cada dictamen tenga.
+B. En el momento en que el Concejo Municipal conozca de un asunto proveniente de una comisión con más de un dictamen, se pondrá a discusión los dictámenes. Posteriormente se someterán a votación.
+C. Si hay dos o más dictámenes con el mismo número de firmas, el Presidente del Concejo someterá a votación, la ubicación de cada dictamen para su discusión, lo cual se consignará en el acta de la sesión.
+D. En la redacción de todos los dictámenes, colaborará la secretaria de Comisión, o funcionario designado siguiendo las instrucciones de los miembros de comisión.

@@ -1,0 +1,1 @@
+ARTÍCULO 43. COMISIONES. FACULTAD Y PROHIBICIÓN: Un mismo Regidor podrá formar parte de más de tres comisiones permanentes. Se prohíbe asimismo que un regidor actúe como Presidente de más tres comisiones permanentes a la vez.

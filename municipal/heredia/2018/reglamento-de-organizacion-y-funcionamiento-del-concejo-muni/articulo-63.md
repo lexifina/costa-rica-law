@@ -1,0 +1,1 @@
+ARTÍCULO 63. COMISIONES. REMISIÓN A NORMATIVA. En todo lo no previsto en este Reglamento, se aplicará las reglas de integración establecidas en los artículos 7,8 y 9 de la Ley General de la Administración Pública.

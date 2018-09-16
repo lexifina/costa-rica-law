@@ -1,0 +1,1 @@
+ARTICULO 45. COMISIONES. NOMBRAMIENTO DE PRESIDENTE Y SECRETARIO: Una vez designadas las comisiones por el Presidente Municipal, sus miembros en la reunión de instalación, nombrarán de su seno a quien haga las veces de Presidente y Secretario, la cual deberá celebrarse en la semana siguiente de su designación.

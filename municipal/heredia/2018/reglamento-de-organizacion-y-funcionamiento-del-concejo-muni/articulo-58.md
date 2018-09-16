@@ -1,0 +1,1 @@
+ARTÍCULO 58. COMISIONES. AUDIENCIAS. Las sesiones de las comisiones son públicas. No obstante, los miembros de cada una de ellas, por razones de oportunidad y conveniencia, podrán declarar, en memorial razonado, una reunión total o parcial privada. De igual forma podrá otorgar audiencia a terceros ajenos a la Comisión de oficio o a instancia del interesado.

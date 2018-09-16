@@ -1,0 +1,1 @@
+ARTÍCULO 24. ACUERDOS. VOTACIÓN PARA ALTERACIÓN DEL ORDEN DEL DÍA. La posposición o adelanto de un asunto incluido en el orden del día, se debe aprobar mediante una moción de alteración de ese orden. De presentarse en una sesión ordinaria, podrá alterarse por mayoría calificada. En sesión extraordinaria, por votación unánime.

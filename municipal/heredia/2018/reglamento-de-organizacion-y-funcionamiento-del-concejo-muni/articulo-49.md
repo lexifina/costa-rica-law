@@ -1,0 +1,5 @@
+ARTÍCULO 49. COMISIONES. ACUERDO DE COMISIÓN Y MODIFICACIONES:
+A. Los acuerdos que se tomen en las comisiones se les podrá dar la firmeza y se decidirán por simple mayoría. No obstante, Si en la discusión de un dictamen en el Concejo Municipal se detectaren errores materiales, cuya corrección no afecte el fondo del dictamen, estos podrán corregirse si los miembros de la comisión estuviesen de acuerdo.
+B. La corrección se consignará al pie del documento, por la secretaria del Concejo y debe ser incorporada en el acta de la sesión del correspondiente.
+C. Si en la discusión de un dictamen en el Concejo Municipal, se detectaren errores de fondo, estos podrán corregirse, cuando los integrantes de la comisión que hubieran suscrito estuviesen de acuerdo. En caso de acordarse la modificación de fondo, debe darse el mismo trámite del inciso anterior.
+D. En caso de no encontrarse acuerdo para hacer la corrección, el Presidente de la Comisión podrá retirarlo del conocimiento del Concejo para someterlo a nuevo análisis en el seno de la Comisión. El regreso del asunto a comisión es por un plazo máximo de ocho días hábiles a partir de recibido en comisión.

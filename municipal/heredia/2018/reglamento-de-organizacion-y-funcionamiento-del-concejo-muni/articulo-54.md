@@ -1,0 +1,3 @@
+ARTICULO 54. COMISIONES. FUNCIONARIOS QUE LAS ATIENDEN
+A. La Presidencia de la Comisión, podrá a solicitarle al Alcalde Municipal la asistencia de funcionarios administrativos, para que funjan como asesores de las comisiones de manera extraordinaria.
+B. Los funcionarios (as) secretarios (as) de comisión levantará un acta detallada de todas las reuniones de comisión, conteniendo las formalidades establecidas en la Ley General de Administración Pública, debidamente foliado y con la respectiva razón de apertura y cierre, la cual deberá ser firmada una vez aprobada por la comisión, por el Presidente de la misma y el Secretario respectivo. En el acta respectiva deben consignarse los votos positivos y negativos.

@@ -1,0 +1,13 @@
+CAPITULO VII
+DE LOS REGIDORES
+ARTÍCULO 32. REGIDORES. DEBERES. Además de los deberes señalados en el artículo 26 del Código Municipal, los Regidores están obligados a:
+A. Estar en sus curules al momento del inicio de la sesión.
+B. Estar en las curules al momento en que Presidente someta a votación el asunto que esté en conocimiento del Concejo.
+De no encontrarse en su curul, ni haber solicitado permiso a la Presidencia para su abandono, el voto no será recibido por la Presidencia, y, en consecuencia, se computará como si el regidor estuviese ausente del salón de sesiones.
+C. Procurar durante el desarrollo de las sesiones la debida presentación y comportamiento personal que enaltezca al Honorable Concejo Municipal de Heredia.
+D. Pedir permiso a la Presidencia para hacer abandono, en forma temporal y no mayor a diez minutos, de la Sala de Sesiones o de aquella donde se desarrolle la sesión. Si pasados los diez minutos el regidor no hubiese reingresado a la misma, la secretaría del Concejo informará al, Presidente, para que proceda a la sustitución, perdiendo su derecho al pago de la dieta correspondiente. Si un regidor propietario, es sustituido por un suplente, el primero puede participar de la sesión.
+E. Guardar silencio en respeto a los oradores, y en caso de contar con la venia de la Presidencia para intervenir, concretarse en el uso de la palabra al tema objeto de discusión, y guardar el debido respeto a los integrantes del Concejo, a los miembros de la administración municipal, a la ciudadanía en general. Como parte de dicho respeto se tiene la prohibición de ingerir comidas dentro del recinto de sesiones, exceptuando los de salud que así lo requieran, de utilizar el teléfono celular con volumen, computadora para fines ajenos a los que se discuten, radio o similares, la portación de armas, o presentarse en estado de ebriedad.
+F. Participar en todas las sesiones ordinarias y extraordinarias del Concejo, y en las comisiones permanentes o especiales que integre.
+G. Justificar las solicitudes de licencia sin goce de dietas, si se incurre en los motivos que estipula el artículo 32 del Código Municipal.
+H. Excusarse en el conocimiento, discusión y votación de aquellos asuntos en los que tenga un interés directo, su cónyuge, o algún pariente hasta el tercer grado de consanguinidad o afinidad, para lo cual lo comunicará de forma razonada ante el Concejo Municipal y éste decidirá si acoge o no la excusa El mismo procedimiento se aplicará en caso de existir una recusación, para lo cual de previo se dará audiencia al regidor recusado a fin de que indique si acepta o no el señalamiento de forma motivada.
+I. Abstenerse de intervenir en asuntos y funciones que competan al Alcalde.

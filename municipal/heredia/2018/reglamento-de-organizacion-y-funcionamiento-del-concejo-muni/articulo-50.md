@@ -1,0 +1,4 @@
+ARTÍCULO 50- PLAZO DE ENTREGA DE DICTAMENES PARA TENERLOS POR ENTRADOS A LA SECRETARIA
+A. Los informes de comisiones deben ser aprobados y entregados con un plazo máximo de ocho días hábiles, a la Secretaría del Concejo Municipal, para que se agenden como asunto entrado, Asimismo, la Secretaria Municipal tendrá el deber de hacer llegar de forma digital los dictámenes recibidos a cada una de los miembros del Concejo Municipal para su conocimiento.
+B. Los dictámenes de comisión, una vez que han sido presentados a la Secretaría del Concejo Municipal, serán ordenados, estrictamente, por su orden de ingreso y en ese mismo orden se pondrán a disposición de la Presidencia del Concejo.
+C. El Concejo Municipal podrá prescindir del trámite de Asunto Entrado de un informe de Comisión cuando así se disponga por votación calificada.

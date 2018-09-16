@@ -1,0 +1,4 @@
+ARTICULO 47. COMISIONES. PLAZO PARA RENDIR DICTAMEN:
+A. Las comisiones despacharan los asuntos a su cargo con la mayor brevedad posible. Tratándose de reclamos administrativos y trámites que deban concluir con un acto final de decisión, sea, solicitudes de permisos, licencias y autorizaciones estas deben de resolverse dentro de un plazo máximo de un mes calendario contado a partir del día siguiente de su recibo en el Municipio.
+B. Las Comisiones Especiales resolverán los asuntos puestos en su conocimiento en el término de tiempo fijado por el Presidente o el Concejo Municipal, o su defecto en un plazo de un mes calendario, podrá solicitar prórroga al Concejo Municipal por una sola vez.
+C. Las comisiones incorporarán en sus dictámenes los criterios técnicos y legales del profesional asesor de la comisión que amparan su recomendación, lo que deberán hacer constar por escrito y con la firma del mismo.

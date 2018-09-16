@@ -1,0 +1,1 @@
+ARTÍCULO 61. COMISIONES. REGISTRO DE DOCUMENTOS. Trasladado un expediente o un documento de la Secretaría del Concejo Municipal a la funcionaria (o) de comisiones, esta lo anotará en libro de registro de entrada y trámite de expedientes de comisión. Este libro deberá ser foliado.
