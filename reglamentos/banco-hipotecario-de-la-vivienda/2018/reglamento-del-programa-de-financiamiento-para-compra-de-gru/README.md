@@ -14,3 +14,4 @@ Reglamento del programa de financiamiento para compra de grupos de viviendas exi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-06-15 | la propia norma |
+| 2 | 2018-09-17 | Reglamento 52 (2018-09-17) |
