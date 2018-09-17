@@ -1,3 +1,0 @@
-Artículo 7º—La CNA se reunirá ordinariamente como mínimo una vez al mes y extraordinariamente cuando sea necesario. Habrá quórum con la asistencia de al menos cinco miembros.
-(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 37749 del 9 de mayo del 2013)
-Sus acuerdos se tomarán por mayoría absoluta, los cuales quedarán firmes en la sesión siguiente según lo dispone la Ley General de la Administración Pública, a menos que los miembros presentes acuerden su firmeza por votación de dos tercios de la totalidad de los miembros de la CNA. En los casos de empate en las votaciones, el Presidente tendrá doble voto.

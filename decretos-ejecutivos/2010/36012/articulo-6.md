@@ -1,1 +1,0 @@
-Artículo 6º—Los miembros durarán en sus puestos por un plazo de dos años, los cuales podrán ser prorrogables. La CNA contará con un vicepresidente, designado por ella misma entre sus demás representantes, quién presidirá las sesiones en ausencia del presidente. La CNA y sus miembros desempeñarán sus funciones ad honorem.

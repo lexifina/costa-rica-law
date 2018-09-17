@@ -1,1 +1,0 @@
-Transitorio I. La asesorías, inducciones, evaluaciones, reevaluaciones, auditorias y capacitaciones correspondientes al programa CST que se efectúen a las empresas turísticas interesadas, serán responsabilidad exclusiva del Comité Técnico de Ejecución hasta tanto sean acreditados para ejercer dichas funciones los OEE, de acuerdo a lo dispuesto en el “Manual de Acreditación”.
