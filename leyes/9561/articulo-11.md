@@ -1,0 +1,1 @@
+ARTÍCULO 11- El Banco Hipotecario de la Vivienda (Banhvi), como ente rector del Sistema Financiero para la Vivienda, le dará prioridad a los nuevos propietarios objeto de esta legislación, para la construcción en el lote adquirido de su solución habitacional mediante el fondo de subsidios para la vivienda.
