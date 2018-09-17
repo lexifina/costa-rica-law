@@ -1,1 +1,0 @@
-Artículo 2°-Deróguese el Decreto Ejecutivo número 40994-H del 13 de marzo de 2018, publicado en el Alcance número 65 a La Gaceta número 55 del 23 de marzo de 2018, a partir de la vigencia del presente decreto.
