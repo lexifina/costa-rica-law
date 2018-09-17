@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE PARRITA
+La Municipalidad de Parrita, se adhiere según el acuerdo N° AC-08-049-2018 con fecha del 09 de junio del 2018, al “Manual de Valores Base Unitarios por Tipología Constructiva”, publicado por el Órgano de Normalización Técnica del Ministerio de Hacienda en el Alcance Digital N° 288 de La Gaceta del 23 de noviembre del 2017, para efectos de lo indicado en la Ley N° 7509. Rige a partir de su publicación.
