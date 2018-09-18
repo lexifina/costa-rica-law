@@ -1,1 +1,0 @@
-Artículo 16.—Uniformidad de Vehículos: Para que los vehículos circulen dentro de las normas apropiadas de seguridad y ofrezcan una apariencia uniforme, se debe evitar colocar adornos, tanto en la parte interior como en la parte exterior de los mismos, o mantener objetos en el panel de instrumentos, que afecten la buena conducción del vehículo.

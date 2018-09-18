@@ -1,1 +1,0 @@
-Artículo 14.—Prohibición de Intercambio de Accesorios: Los conductores de vehículos de la institución no podrán hacer intercambio de accesorios entre las unidades, sino cuentan con la aprobación del encargado de maquinaria e informar al proveedor.
