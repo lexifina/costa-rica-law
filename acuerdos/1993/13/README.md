@@ -15,3 +15,4 @@ Manual de Clasificación de Puestos del Defensor de los Habitantes
 | --- | --- | --- |
 | 1 | 1993-08-25 | la propia norma |
 | 2 | 2009-03-18 | Acuerdo 1456 (2009-03-18) |
+| 3 | 2018-09-18 | Acuerdo 2177 (2018-09-18) |
