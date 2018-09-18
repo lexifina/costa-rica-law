@@ -14,3 +14,4 @@ Reforma Obligatoriedad general para el uso de los comprobantes electrónicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-08-23 | la propia norma |
+| 2 | 2018-09-18 | Resolución 50 (2018-09-18) |
