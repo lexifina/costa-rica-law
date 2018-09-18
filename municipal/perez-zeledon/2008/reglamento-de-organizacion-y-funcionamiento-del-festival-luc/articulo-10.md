@@ -1,1 +1,0 @@
-Artículo 10.—Ejecución de los gastos. Para la ejecución de los gastos deberán observarse las regulaciones internas y externas vigentes en materia de contratación administrativa, manejo de caja chica y otras que resulten aplicables.

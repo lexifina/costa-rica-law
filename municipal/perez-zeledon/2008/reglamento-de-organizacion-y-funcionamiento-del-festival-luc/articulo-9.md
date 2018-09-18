@@ -1,5 +1,0 @@
-Artículo 9º—El presupuesto del Festival. El presupuesto del festival podrá conformarse de la siguiente manera:
-a) Recursos incluidos en el presupuesto ordinario municipal, respaldados en la correspondiente estimación de ingresos, que incluya tanto recursos propios como los generados por la venta de espacios publicitarios, patrocinios y aportes directos de la empresa privada, personas físicas y entidades estatales, entre otras fuentes de ingreso que estén acordes con la normativa vigente. Todo aporte directo, en dinero, que reciba el Equipo(*) deberá ser realizado mediante depósito en la cuenta corriente de la Municipalidad o por medio de las cajas recaudadoras que la municipalidad tiene a disposición de los contribuyentes.
-(*)(Así reformado el inciso anterior en sesión N° 094 del 14 de febrero de 2012)
-b) Recursos otorgados mediante presupuestos extraordinarios, con el mismo origen de los indicados en el inciso anterior, o mediante modificaciones presupuestarias.
-c) La organización del Festival se realizará con fondos del presupuesto municipal, con cargo a la partida relacionada en el párrafo anterior.

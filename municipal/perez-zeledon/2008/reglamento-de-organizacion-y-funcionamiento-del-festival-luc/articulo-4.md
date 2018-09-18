@@ -1,3 +1,0 @@
-Artículo 4º—Organización interna del Equipo(*). El mismo día de su nombramiento, el Coordinador del Equipo(*) convocará a la primera reunión de la misma. En esa sesión, se elegirá de entre sus miembros a un Secretario, no pudiendo ser el Coordinador.
-El Coordinador, de común acuerdo con el resto de los integrantes, designará el puesto y las funciones de cada uno de ellos en la organización. En las reuniones del Equipo(*) se adoptarán las disposiciones y acuerdos generales sobre la organización del Festival y cualquier otro aspecto de relevancia para la organización del evento y su debido control financiero.
-(*)(Así reformado en sesión N° 094 del 14 de febrero de 2012)

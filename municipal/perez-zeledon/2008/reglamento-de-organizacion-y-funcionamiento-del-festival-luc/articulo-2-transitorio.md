@@ -1,2 +1,0 @@
-Transitorio II.—Para los efectos de la organización del Festival Luces del Valle 2008, el Alcalde (a) aplicará la normativa de este Reglamento en forma integral, a partir del momento en que sea aprobado en firme por el Concejo Municipal y procederá a presentar ante el Concejo Municipal la nómina para el nombramiento del Equipo(*), dentro de los ocho días naturales siguientes. El Equipo(*), a partir de su nombramiento, queda igualmente obligada a aplicar la normativa de este instrumento de forma inmediata.
-(*)(Así reformado en sesión N° 094 del 14 de febrero de 2012)
