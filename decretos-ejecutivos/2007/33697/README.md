@@ -14,3 +14,4 @@ Reglamento para el Acceso a los Elementos y Recursos Genéticos y Bioquímicos d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-04-18 | la propia norma |
+| 2 | 2018-09-18 | Decreto Ejecutivo 41591 (2018-09-18) |
