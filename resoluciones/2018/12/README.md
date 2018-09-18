@@ -15,3 +15,4 @@ Obligatoriedad general para el uso de los comprobantes electrónicos
 | --- | --- | --- |
 | 1 | 2018-03-20 | la propia norma |
 | 2 | 2018-08-16 | Resolución 39 (2018-08-16) |
+| 3 | 2018-09-18 | Resolución 50 (2018-09-18) |
