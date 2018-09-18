@@ -18,4 +18,5 @@ a) Regular el acceso a los elementos y recursos genéticos y bioquímicos de la 
 b) Regular la distribución justa y equitativa de los beneficios sociales, ambientales y económicos derivados del uso de los elementos y recursos bioquímicos y genéticos de la biodiversidad para todos los sectores de la sociedad, con atención especial a las comunidades locales y pueblos indígenas.
 c) Tutelar y proteger los derechos intelectuales comunitarios sui generis.
 d) Facilitar el acceso a los elementos y recursos genéticos y bioquímicos de la biodiversidad y propiciar el desarrollo de la investigación y tecnología, siempre que estas actividades no pongan en riesgo la sostenibilidad de los recursos ni contravengan los objetivos del Convenio de Diversidad Biológica.
-e) Asegurar y facilitar el acceso a las tecnologías y a su transferencia adecuada, efectiva y selectiva, en condiciones justas, favorables y mutuamente convenidas de manera que se mejore la capacidad nacional.
+e) Asegurar y facilitar el acceso, así como la transferencia adecuada a las tecnologías compatibles con la conservación y utilización sostenible de los componentes de la biodiversidad, en condiciones justas, favorables y mutuamente convenidas.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41591 del 18 de setiembre del 2018)

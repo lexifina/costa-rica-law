@@ -1,2 +1,3 @@
-Artículo 29.—Rige a partir de su publicación.
-Dado en la Presidencia de la República.—San José, a los tres días del mes de octubre del dos mil tres.
+Artículo 29. Finalidad de los informes
+La finalidad de los informes solicitados por la Oficina Técnica a los interesados, es verificar y documentar la distribución justa y equitativa de los beneficios derivados del acceso a los recursos genéticos y bioquímicos, mediante el cumplimiento de los términos acordados en el Contrato del Consentimiento Previamente Informado entre el interesado y el proveedor de los recursos genéticos o bioquímicos, así como obligaciones establecidas en la resolución administrativa emitida por la Oficina Técnica.”
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 41591 del 18 de setiembre del 2018)
