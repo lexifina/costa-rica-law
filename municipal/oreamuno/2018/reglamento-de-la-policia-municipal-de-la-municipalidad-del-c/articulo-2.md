@@ -1,0 +1,1 @@
+Artículo 2° - La Policía Municipal de Oreamuno tendrá competencia dentro del territorio del cantón de Oreamuno, estará bajo el mando del alcalde o alcaldesa y funcionará como auxiliar de la Fuerza Pública.

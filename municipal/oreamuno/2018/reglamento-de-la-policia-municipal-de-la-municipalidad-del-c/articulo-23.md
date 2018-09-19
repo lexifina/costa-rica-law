@@ -1,0 +1,1 @@
+Artículo 23º - Los incentivos a que se refiere el artículo anterior en su inciso a), será efectuado por el alcalde o alcaldesa Municipal. La Mención Honorífica la otorgará el señor Alcalde o Alcaldesa Municipal y la Medalla de Policía la otorgará el Honorable Concejo Municipal, previo dictamen de la Comisión de Policía Municipal.
