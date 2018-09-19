@@ -1,0 +1,1 @@
+Artículo 67. Las comisiones tendrán como finalidad coordinar el ejercicio de las funciones propias de las autoridades o funcionarios que la conformen. Cuando sea creada una comisión ad-hoc o especial, no tendrá más funciones que las señaladas en el acuerdo de su constitución y la extensión del plazo de su vigencia requerirá acuerdo expreso del CONARE.

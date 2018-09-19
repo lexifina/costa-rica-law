@@ -1,0 +1,1 @@
+Artículo 73. Para efectuar adquisiciones requeridas por comisiones, la Proveeduría en coordinación con el encargado administrativo de cada programa, división, área u oficina, brindará la asesoría necesaria a efecto de que en todos los casos cumplan la normativa de contratación administrativa institucional.

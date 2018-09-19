@@ -1,0 +1,1 @@
+Artículo 26. El Director de OPES revisará el borrador de las actas, y constatará que contengan lo discutido y aprobado en la sesión respectiva. Posteriormente se distribuirá el borrador de acta a los rectores, a fin de que consignen en la siguiente sesión las modificaciones que juzguen pertinentes, previamente a su aprobación.

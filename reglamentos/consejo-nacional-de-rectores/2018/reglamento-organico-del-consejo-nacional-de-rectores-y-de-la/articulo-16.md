@@ -1,0 +1,1 @@
+Artículo 16. La Comisión de Enlace será convocada a requerimiento de alguno de los dos sectores que la integran. El Ministro de Educación Pública y el Presidente del CONARE de común acuerdo prepararán la agenda de la sesión que acompañará su convocatoria.

@@ -1,0 +1,1 @@
+Artículo 4. El Consejo Nacional de Rectores estará integrado por el Rector o la Rectora de: la Universidad de Costa Rica, del Instituto Tecnológico de Costa Rica, de la Universidad Nacional, de la Universidad Estatal a Distancia y de la Universidad Técnica Nacional.

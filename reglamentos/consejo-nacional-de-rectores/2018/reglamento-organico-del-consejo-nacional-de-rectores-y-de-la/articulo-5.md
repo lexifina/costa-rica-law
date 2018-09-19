@@ -1,0 +1,21 @@
+Artículo 5. Serán funciones del CONARE:
+a) Señalar a OPES las directrices necesarias para la elaboración del Plan Nacional de Educación Superior Universitaria Estatal (PLANES) (Artículo 3 inciso a de la Ley 6162).
+b) Aprobar el PLANES, previa consulta a los cuerpos colegiados superiores de las instituciones signatarias del Convenio de Coordinación de la Educación Superior Universitaria Estatal, los cuales deberán pronunciarse dentro del plazo requerido por el CONARE para ello (Artículo 3 inciso b de la Ley 6162).
+c) Distribuir las rentas globales asignadas a la Educación Superior Universitaria Estatal en forma congruente con los criterios que se señala el Convenio de Coordinación vigente, para el cumplimiento del PLANES, sin perjuicio de que cada institución reciba, separadamente, las rentas que legalmente le correspondan (Artículo 3 inciso c de la Ley 6162).
+d) Ser el superior jerárquico de los programas institucionales, decidir y reglamentar su organización (Artículo 3 inciso ch de la Ley 6162).
+e) Establecer los órganos, los instrumentos y los procedimientos de coordinación que sean necesarios para el adecuado funcionamiento de la Educación Superior Universitaria Estatal (Artículo 3 inciso d de la Ley 6162).
+f) Encargar a la OPES la elaboración de los planes de corto, de mediano y de largo plazo que solicite cada institución signataria del Convenio de Coordinación (Artículo 3 inciso e de la Ley 6162).
+g) Aprobar el presupuesto anual de OPES/CONARE y sus modificaciones, y determinar el monto con que deba contribuir cada una de las instituciones signatarias del Convenio de Coordinación, para sufragarlo en forma proporcional, al Fondo Especial para el Financiamiento de la Educación Superior Universitaria Estatal (FEES), establecido en el Artículo 85 de la Constitución Política.
+h) Designar a los representantes de la Educación Superior Universitaria Estatal en todos los casos en que esto legalmente proceda (Artículo 3 inciso g de la Ley 6162).
+i) Informar, cada seis meses, a los cuerpos colegiados sSuperiores de las instituciones signatarias del Convenio de Coordinación, de todas las decisiones que hubiere tomado. (Artículo 3 inciso h de la Ley 6162).
+j) Aprobar los reglamentos internos de los programas institucionales, así como cualquier otro reglamento de funcionamiento externo que se requiera para la debida coordinación de la Educación Superior Universitaria Estatal. Estos últimos se propondrán a los cuerpos colegiados superiores (Consejo Universitario, Consejo Institucional) de las Instituciones de Educación Superior Universitaria Estatal, en cuanto tales reglamentos determinen procedimientos en que se involucre a tales instituciones, las que, en cualquier momento, podrán denunciarlos (Artículo 3 inciso d de la Ley 6162).
+k) Constituir, cuando sea necesario, grupos de trabajo o comisiones interinstitucionales para el estudio de problemas específicos (Artículo 3 inciso j de la Ley 6162).
+l) Impulsar y fortalecer la coordinación entre las oficinas de planificación o el equivalente propio de cada institución miembro del CONARE (Artículo 3 inciso k de la Ley 6162).
+m) Nombrar y remover al Director de la Oficina de Planificación de la Educación Superior (OPES) y a los directores de programa. El Auditor Interno será nombrado y removido por el CONARE de conformidad con la legislación vigente.
+n) Evaluar, crear y cerrar carreras, dentro de las instituciones signatarias de acuerdo con lo que establece el Capítulo II del Convenio de Coordinación vigente (Artículo 3 inciso ll de la Ley 6162).
+o) Recomendar la adopción de políticas comunes, en lo académico y en lo administrativo, por parte de las instituciones signatarias (Artículo 3 inciso m de la Ley 6162).
+p) Darse sus propios reglamentos cuando lo considere oportuno (Artículo 3 inciso n de la Ley 6162).
+q) Las demás que estime necesarias para la mejor coordinación y planificación de la Educación Superior Universitaria Estatal (Artículo 3 inciso o de la Ley 6162).
+r) La aprobación de las políticas, de los presupuestos ordinarios y extraordinarios de OPES/CONARE y su liquidación. La aprobación del Plan Anual Operativo y sus evaluaciones; así como del Plan Estratégico Institucional y su evaluación.
+s) La adjudicación de procesos de licitaciones públicas.
+t) La imposición de medidas disciplinarias y despidos de su competencia.

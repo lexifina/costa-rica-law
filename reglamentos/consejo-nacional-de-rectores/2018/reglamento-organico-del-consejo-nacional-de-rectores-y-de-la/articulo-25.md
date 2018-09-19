@@ -1,0 +1,2 @@
+Artículo 25. De cada sesión se levantará un acta, que contendrá lugar, hora y número de sesión, la indicación de las personas asistentes, los puntos conocidos con su correspondiente deliberación y el contenido de los acuerdos resultantes. Se consignará el resultado de la votación únicamente cuando haya sido adoptada por mayoría simple.
+También deberán consignarse las abstenciones y votos negativos cuando se produjeren. Cuando se tomen acuerdos firmes por votación unánime, no se requerirá consignar en el acta el resultado de su votación.

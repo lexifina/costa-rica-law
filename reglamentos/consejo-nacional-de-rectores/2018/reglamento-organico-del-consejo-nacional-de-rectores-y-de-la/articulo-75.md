@@ -1,0 +1,4 @@
+Artículo 75. El uso del nombre y del logo propiedad del CONARE estarán reservados para las comunicaciones, documentos y publicaciones que éste autorice de acuerdo al libro de marca institucional, exclusivamente. Las comisiones deberán identificarse como pertenecientes al programa institucional correspondiente. Todo informe, estudio o resolución de comisión que deba ser comunicado a órganos o entes externos deberá ser remitido para su visto bueno al director del programa. Éste deberá elevar al CONARE para su aprobación toda comunicación que deba ser efectuada a nombre de la institución. Este reglamento deroga los siguientes documentos:
+a) Reglamento de Sesiones del Consejo Nacional de Rectores aprobado por el CONARE en la sesión No. 29-08, celebrada el 2 de septiembre de 2008.
+b) Reglamento para la celebración de sesiones virtuales del CONARE aprobado por el CONARE en sesión No. 04-13, celebrada el 19 de marzo de 2013.
+Pavas, 28 de agosto de 2018

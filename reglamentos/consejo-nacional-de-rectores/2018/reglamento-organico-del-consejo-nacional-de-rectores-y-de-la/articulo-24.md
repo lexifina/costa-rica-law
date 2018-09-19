@@ -1,0 +1,1 @@
+Artículo 24. Contra los acuerdos tomados por mayoría simple cabrá, por una sola vez, recurso de revisión, que se deberá interponer por escrito y antes de la aprobación del acta correspondiente. El recurso podrá ser acogido por simple mayoría de votos presentes (Artículo 8 de la Ley 6162).

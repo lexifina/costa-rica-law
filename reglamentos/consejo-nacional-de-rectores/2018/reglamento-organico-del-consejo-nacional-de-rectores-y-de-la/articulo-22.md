@@ -1,0 +1,1 @@
+Artículo 22. En razón de su naturaleza, como ente coordinador de la educación superior universitaria estatal, el quórum del CONARE lo formarán la totalidad de los rectores de las Instituciones de Educación Superior Universitaria Estatal.

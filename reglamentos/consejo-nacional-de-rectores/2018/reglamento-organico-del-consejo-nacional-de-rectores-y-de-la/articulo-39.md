@@ -1,0 +1,2 @@
+De la Oficina de Planificación de la Educación Superior
+Artículo 39. De conformidad con lo dispuesto en el artículo 10 del Convenio de Coordinación, el CONARE contará con un órgano técnico, ejecutivo y asesor, denominado Oficina de Planificación de la Educación Superior (OPES) y estará integrado por un Director, de su nombramiento, y el personal técnico, investigador y administrativo requerido por su propia organización.

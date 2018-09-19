@@ -1,0 +1,1 @@
+Artículo 74. Salvo que el acuerdo de su constitución haya estipulado expresamente lo contrario, ninguna comisión podrá asumir la representación, comprometer recursos de cualquier naturaleza o actuar a nombre del CONARE ni de ninguna de las Instituciones de Educación Superior Universitaria Estatal.

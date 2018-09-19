@@ -1,0 +1,1 @@
+Artículo 33. Las sesiones virtuales se convocarán por acuerdo de la Presidencia del CONARE o por acuerdo tomado en sesión presencial, para la atención de los asuntos a que se refiere el presente reglamento. Las sesiones virtuales se mantendrán abiertas para los asuntos que hayan sido incluidos en su convocatoria o se acuerde incluir por acuerdo de ampliación de su agenda.

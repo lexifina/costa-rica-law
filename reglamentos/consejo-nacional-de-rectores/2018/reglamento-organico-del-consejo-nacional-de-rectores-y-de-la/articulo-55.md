@@ -1,0 +1,6 @@
+Del Programa Estado de la Nación
+Artículo 55. El Programa Estado de la Nación (PEN) es un centro de pensamiento especializado en la investigación participativa y la innovación para la promoción del desarrollo humano sostenible. Para ello articula espacios con organismos públicos, privados y entes internacionales de cooperación para el desarrollo de proyectos y actividades que se orienten hacia la precisión metodológica, la selección, medición y evaluación del desempeño nacional y regional o sobre un tema específico de un conjunto pertinente y suficiente de componentes de desarrollo humano sostenible. Estos componentes cubren los alcances económicos, políticos, ambientales y sociales del desarrollo.
+Se podrán apoyar acciones, proyectos y programas para la promoción del Desarrollo Humano Sostenible en, al menos, los siguientes ámbitos de cooperación:
+a) De la discusión teórica y técnica sobre el desarrollo humano y de los indicadores asociados a la medición de los distintos aspectos, así como la realización de investigaciones sobre el tema, la construcción de estos índices para el país y la correspondiente difusión de resultados y conclusiones.
+b) De la evaluación del cumplimiento de los compromisos nacionales referidos a metas de desarrollo humano.
+c) Otros ámbitos que surgieran del desarrollo de la cooperación.

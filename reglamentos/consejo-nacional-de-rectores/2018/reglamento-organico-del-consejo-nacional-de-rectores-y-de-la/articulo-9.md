@@ -1,0 +1,6 @@
+Artículo 9. El CONARE Ampliado estará integrado de la siguiente manera:
+a) Los rectores de las Instituciones de Educación Superior Universitaria Estatal que integran el CONARE.
+b) Un miembro por cada una de las Instituciones de Educación Superior Universitaria Estatal signatarias del Convenio de Coordinación, del propio seno de sus cuerpos colegiados superiores, designados por el respectivo Cuerpo Colegiado. Los nombrados podrán ejercer el cargo mientras actúen como miembros del Cuerpo Colegiado Superior respectivo.
+c) El Ministro de Educación Pública.
+d) Un representante estudiantil. Este puesto será ocupado en forma rotativa por los presidentes de las organizaciones estudiantiles reconocidas por las autoridades de las Instituciones de Educación Superior Universitaria Estatal, de conformidad con el procedimiento de rotación previsto en el Convenio de Coordinación vigente, para evitar que la Presidencia del CONARE Ampliado coincida con el representante estudiantil de la misma institución. El puesto de representación estudiantil rotará anualmente, a partir de 4 de diciembre de cada año, entre los presidentes de las organizaciones estudiantiles, de la manera estipulada en el artículo 12 de la Ley 6162.
+e) El Director de OPES, sin derecho a voto.

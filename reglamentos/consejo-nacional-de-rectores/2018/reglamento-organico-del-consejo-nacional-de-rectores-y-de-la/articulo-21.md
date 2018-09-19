@@ -1,0 +1,1 @@
+Artículo 21. Las sesiones del Consejo serán presididas por el Presidente del CONARE. Las sesiones del Consejo serán siempre privadas, pero el Consejo podrá disponer, por acuerdo unánime, que tenga acceso a ella el público en general o bien ciertas personas, concediéndoles o no el derecho de participar en las deliberaciones con voz, pero sin voto.

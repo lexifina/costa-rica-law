@@ -1,0 +1,1 @@
+Artículo 37. De cada sesión virtual se levantará acta que contendrá la convocatoria conocida con sus modificaciones y ampliaciones -el texto de cada uno de los acuerdos tomados y el resultado nominal de su votación afirmativa o negativa-, junto con las consideraciones que cualquier Rector haya querido hacer constar.

@@ -1,0 +1,1 @@
+Artículo 19. El Consejo se reunirá en sesión extraordinaria cuando el Presidente lo convoque con al menos doce horas de anticipación o por iniciativa propia mediante acuerdo unánime de los rectores que lo integran.

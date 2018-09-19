@@ -1,0 +1,1 @@
+Artículo 71. Cada director de programa, jefe de división, área u oficina del CONARE, en su caso, establecerá los mecanismos y servicios internos que sean adecuados y pertinentes para conceder el apoyo logístico que requieran las comisiones del CONARE, procurando en todo caso el oportuno y cabal cumplimiento de los fines institucionales.

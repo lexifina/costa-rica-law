@@ -1,0 +1,2 @@
+De las sesiones virtuales del CONARE
+Artículo 30. Considerando que la Ley 8454 del 30 de agosto de 2005, Ley de certificados, firmas digitales y documentos electrónicos, autoriza el uso de documentos electrónicos, confiriéndoles iguales efectos funcionales y probatorios que los duros o físicos, reconociéndolos además como medio lícito para manifestar la voluntad administrativa, el CONARE podrá acordar sesionar de forma virtual.

@@ -1,0 +1,1 @@
+Artículo 49. En los aspectos que se definan de común acuerdo mediante un instrumento suscrito al efecto, la Administración de OPES brindará al SINAES el apoyo administrativo y de gestión que resulte pertinente para facilitarle el cumplimiento de sus fines.

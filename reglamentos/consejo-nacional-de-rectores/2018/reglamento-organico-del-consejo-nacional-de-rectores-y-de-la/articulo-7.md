@@ -1,0 +1,1 @@
+Artículo 7. El Presidente del CONARE será su representante, para los fines que indique o exija la ley. Para acreditar su personería en todo acto bastará la publicación del correspondiente aviso en el diario oficial La Gaceta.
