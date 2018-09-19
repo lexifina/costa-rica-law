@@ -1,0 +1,1 @@
+Artículo 25.- Una vez presentada la solicitud de Licencia de Construcción la Administración tendrá treinta días natrurales para emitir la resolución final. El interesado contará con la posibilidad de impugnar esta resolución, mediante los recursos previstos en el Ordenamiento Jurídico.

@@ -1,0 +1,1 @@
+Artículo 26.- El pago por concepto del impuesto de patente se fijará de acuerdo a los parámetros establecidos en la Ley de Patentes de la Municipalidad, y conforme al Código Municipal, tanto para los Operadores, Proveedores de Infraestructura o en cualquier condición similar, mediante la información suministrada para estos efectos por el administrado.
