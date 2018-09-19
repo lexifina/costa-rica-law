@@ -1,0 +1,1 @@
+Artículo 28°- La Gerencia, previa recomendación de la Dirección de Administración, deberá dictaminar sobre la solicitud, considerando entre otros aspectos que los bienes que serían objeto de donación, debidamente inventariados, no son útiles o necesarios para la institución.

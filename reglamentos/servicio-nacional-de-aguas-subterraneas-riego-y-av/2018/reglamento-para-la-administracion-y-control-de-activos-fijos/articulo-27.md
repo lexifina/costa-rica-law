@@ -1,0 +1,1 @@
+Artículo 27°- Donación de bienes muebles. SENARA podrá donar bienes muebles que se encuentren en desuso o mal estado y sin valor comercial. Deberá mediar una solicitud por parte del interesado donde se especifique claramente las características de los bienes que interesan en la donación.

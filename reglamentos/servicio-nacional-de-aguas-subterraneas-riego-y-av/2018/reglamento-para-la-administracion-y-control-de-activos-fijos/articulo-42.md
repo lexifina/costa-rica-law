@@ -1,0 +1,1 @@
+Artículo 42°- Para efecto de control, se deberá mantener un auxiliar únicamente de los bienes cuyo valor esté por encima del 25% y menor a 50% del salario base de un auxiliar administrativo categoría uno del Poder Judicial de Costa Rica.
