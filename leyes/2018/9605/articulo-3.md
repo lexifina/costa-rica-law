@@ -1,0 +1,4 @@
+ARTÍCULO 3- Pasivos con el Ministerio de Hacienda
+Se autoriza al Banco de Costa Rica (BCR) para que renegocie con el Ministerio de Hacienda, por medio de la Tesorería Nacional, las condiciones contractuales de las obligaciones que el Banco Crédito Agrícola de Cartago (Bancrédito) mantiene con la Tesorería Nacional, derivadas de cualquier tipo de inversión estatal efectuada en este Banco.
+Para esto, el Ministerio de Hacienda queda autorizado para que realice las modificaciones presupuestarias requeridas, a efectos de que la Tesorería Nacional adquiera títulos valores del Banco de Costa Rica a plazos mayores de 365 días.
+La obligación que se origine como resultado de esas negociaciones no estará sujeta a los requerimientos del encaje mínimo legal, y serán exentos de cualquier tipo de impuestos sobre títulos valores o el pago de especies fiscales.

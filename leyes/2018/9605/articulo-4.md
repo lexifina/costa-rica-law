@@ -1,0 +1,2 @@
+ARTÍCULO 4- Dación en pago de bienes muebles e inmuebles
+Se autoriza al Ministerio de Hacienda, por medio de la Tesorería Nacional, para el recibo de bienes muebles e inmuebles adquiridos por el Banco de Costa Rica (BCR) producto de la fusión, o bien, que ya sean propiedad de este Banco, como parte del pago de la deuda total que el Banco Crédito Agrícola de Cartago (Bancrédito) mantiene con el Ministerio de Hacienda, como producto de las inversiones realizadas por la Tesorería Nacional en dicho Banco.

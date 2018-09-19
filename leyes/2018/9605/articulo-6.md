@@ -1,0 +1,2 @@
+ARTÍCULO 6- Operaciones vigentes
+El Banco de Costa Rica (BCR) queda autorizado durante el plazo de dieciocho meses, contado a partir de la fecha de vigencia de esta ley, para que establezca, cuando se considere necesario, condiciones especiales en los contratos de las operaciones bancarias y comerciales vigentes entre el Banco Crédito Agrícola de Cartago (Bancrédito) y sus clientes, solamente si hay acuerdo por parte de los clientes y de conformidad con el marco legal y regulatorio vigente. Dicho plazo podrá ser prorrogable por un periodo igual.

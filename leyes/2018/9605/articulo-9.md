@@ -1,0 +1,2 @@
+ARTÍCULO 9- Autorización para asumir desembolsos
+El Banco de Costa Rica (BCR) asumirá los desembolsos pendientes de créditos legítimamente otorgados y que hayan cumplido con la normativa de crédito vigente en el Banco Crédito Agrícola de Cartago (Bancrédito). El Banco de Costa Rica establecerá las reglas de las respectivas cesiones de garantía y, en tal caso, el acreedor de la obligación quedará sustituido de pleno derecho y sin ninguna otra formalidad.
