@@ -1,0 +1,1 @@
+ARTÍCULO 12.- La convocatoria o cambios pertinentes se notificarán a las regidurías y sindicaturas, propietarias y suplentes, que no se encuentren presentes en el momento de la toma del acuerdo, personalmente o en la dirección física y/o electrónica que hayan indicado en la Secretaría del Concejo Municipal.

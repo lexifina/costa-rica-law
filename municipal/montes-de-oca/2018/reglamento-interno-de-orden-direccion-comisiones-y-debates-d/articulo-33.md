@@ -1,0 +1,1 @@
+ARTÍCULO 33.- El voto de cualquier asunto, previo debate, será necesariamente afirmativo o negativo, no caben las abstenciones. Únicamente se podrá razonar el voto negativo y para ello se podrá emplear hasta tres minutos.

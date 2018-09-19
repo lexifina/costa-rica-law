@@ -1,0 +1,1 @@
+ARTICULO 27.- En el capítulo “Control Político”, se incluirán las participaciones de las regidurías propietarias, sindicaturas propietarias, regidurías suplentes y sindicaturas suplentes, en ese orden, que deseen exponer sus inquietudes. Para ello, previo a la aprobación del orden del día, la Presidencia Municipal les solicitará que si desean participar que lo manifiesten.

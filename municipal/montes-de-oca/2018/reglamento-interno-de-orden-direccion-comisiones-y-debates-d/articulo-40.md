@@ -1,0 +1,1 @@
+ARTÍCULO 40.- La finalidad de una Comisión Especial, deberá estar determinada en el acuerdo que se tome, señalando claramente: motivación, objetivos, producto y plazo. Por razones de eficiencia, agilidad parlamentaria y economía procesal, éstas no deben exceder ni en lo temático ni en lo instrumental.

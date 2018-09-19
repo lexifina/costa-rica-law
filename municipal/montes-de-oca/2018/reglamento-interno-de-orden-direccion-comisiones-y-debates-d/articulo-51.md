@@ -1,0 +1,1 @@
+ARTÍCULO 51.- Si alguna comisión municipal requiere apoyo técnico para sus funciones, podrán solicitarlo a la Alcaldía Municipal para que designe las personas funcionarias administrativas necesarias para tal fin.

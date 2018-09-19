@@ -1,0 +1,1 @@
+ARTÍCULO 66.- En caso de que el Concejo autorice el uso del equipo electrónico, sin la presencia del personal de la Secretaría del Concejo Municipal, el mismo quedará eximido de toda responsabilidad por cambios de la configuración o daños sufridos, los cuales correrán por cuenta del responsable señalado en el momento del préstamo.-

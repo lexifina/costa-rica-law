@@ -1,0 +1,1 @@
+ARTÍCULO 14.- Las sesiones del Concejo deberán iniciarse dentro de los quince minutos siguientes a la hora señalada, conforme al reloj del despacho, en tanto exista quórum. A falta de reloj, aplicará la hora oficial del servicio de información telefónico 1112.

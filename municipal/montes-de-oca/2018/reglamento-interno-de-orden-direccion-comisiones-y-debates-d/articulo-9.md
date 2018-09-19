@@ -1,0 +1,1 @@
+ARTÍCULO 9.- Las sesiones extraordinarias deberán celebrarse el día, hora, lugar y agenda que se indique en la respectiva convocatoria, la cual deberá responder a lo que establece el Código Municipal en esta materia. Los documentos que serán conocidos en las sesiones extraordinarias deberán ser remitidos junto con la convocatoria respectiva.

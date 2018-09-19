@@ -1,0 +1,1 @@
+ARTÍCULO 20.- En el capítulo del orden del día denominado “Audiencias”, se contemplarán minuto de silencio, juramentaciones, atención de público con audiencia, atención de personas funcionarias administrativas, conmemoraciones, homenajes, entrega de títulos o distinciones, entre otras.

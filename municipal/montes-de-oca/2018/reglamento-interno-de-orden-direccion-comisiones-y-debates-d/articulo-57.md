@@ -1,0 +1,1 @@
+ARTÍCULO 57.- Las Comisiones deberán coordinar con el Departamento de Secretaría del Concejo el uso de la sala para sus reuniones al menos con 24 horas de antelación. Si, por alguna razón, alguna Comisión cancela su reunión, deberá igualmente comunicarlo a la Secretaría del Concejo para lo que corresponda.

@@ -1,0 +1,1 @@
+ARTÍCULO 48.- Las comisiones analizarán únicamente los asuntos trasladados de previo y por acuerdo del Concejo Municipal. Las convocatorias de las Sesiones de las Comisiones deberán realizarse con al menos veinticuatro horas de antelación, y se harán por medio de la Secretaría del Concejo Municipal, en la cual deberá incluirse al Alcalde para su divulgación respectiva.

@@ -1,0 +1,1 @@
+ARTÍCULO 22.- Transcurrida la audiencia, las personas integrantes del Concejo, Alcalde/sa y Síndicos/as que lo soliciten, podrán formular preguntas o solicitar aclaraciones hasta por dos minutos. Terminado este periodo, el cual no se extenderá por más de veinticinco minutos, se dará por concluida la audiencia.

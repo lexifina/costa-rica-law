@@ -1,0 +1,1 @@
+ARTÍCULO 4.- La presidencia del Concejo Municipal ejerce, de forma exclusiva, las funciones atribuidas por ley en el Artículo 34 del Código Municipal, las cuales no pueden ser limitadas por el Concejo o por normativa interna, a excepción de lo establecido en el artículo 27, inciso e) del citado Código Municipal.-

@@ -1,0 +1,1 @@
+ARTÍCULO 11.- Las sesiones ordinarias y extraordinarias se efectuarán en la sala de sesiones del Concejo, local sede de la Municipalidad, podrán celebrarse sesiones en otros lugares del cantón, siempre y cuando la convocatoria así lo especifique.-

@@ -1,0 +1,1 @@
+ARTÍCULO 50.- Todas las personas que integran el Concejo Municipal tienen la obligación de participar en las Comisiones donde fueron designadas, de existir alguna imposibilidad para participar deberán solicitarlo por escrito a la Presidencia del Concejo Municipal, dando las razones del caso. La Presidencia tomará la determinación al respecto.

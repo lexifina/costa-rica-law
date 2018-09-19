@@ -1,0 +1,1 @@
+ARTÍCULO 64.- Cuando la solicitud de la Sala incluya el uso del equipo de sonido y vídeo, para su aprobación deberá considerarse que siempre deberá estar presente la persona titular de la Secretaría del Concejo o quien este designe, por lo que deberá ser dentro de horario hábil.

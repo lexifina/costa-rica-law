@@ -1,0 +1,1 @@
+ARTÍCULO 63.- La Secretaría del Concejo es responsable del uso y mantenimiento de los bienes destinados para uso del Concejo Municipal en la Sala de Sesiones. En materia de resguardo y seguridad le corresponde exclusivamente al Departamento de Servicios Generales – Servicio de Seguridad Interna Municipal.-

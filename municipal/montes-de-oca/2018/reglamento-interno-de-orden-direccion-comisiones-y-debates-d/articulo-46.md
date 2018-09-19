@@ -1,0 +1,1 @@
+ARTÍCULO 46.- El comité cantonal de la persona joven se considera una comisión permanente de la municipalidad. Estará integrada según lo establecido en la Ley Nº 8261, sus reformas y reglamentos. Su objetivo fundamental es elaborar y ejecutar propuestas que contribuyan a la construcción de políticas de las personas jóvenes.

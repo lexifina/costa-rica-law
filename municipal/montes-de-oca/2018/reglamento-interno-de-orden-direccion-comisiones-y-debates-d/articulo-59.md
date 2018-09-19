@@ -1,0 +1,1 @@
+ARTÍCULO 59.- En el caso de las Comisiones, deberán registrar la hora de inicio y conclusión de la reunión en el libro de control de la comisión, así como indicar al guarda municipal de turno el desalojo de la Sala de Sesiones para el cierre respectivo.

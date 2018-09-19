@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Si en caso fortuito, alguna de las personas regidoras electas en la presidencia o vicepresidencia del Concejo renuncia o fallece, se convocará a sesión extraordinaria para que el Concejo Municipal elija a la persona que ocupará el cargo vacante.
