@@ -1,0 +1,1 @@
+Artículo 19º- Para efectos de determinar si los juicios se encuentran al día, el Departamento de Cobros revisará periódicamente, con el Abogado Municipal, el número de expedientes y registros que consideren necesarios, de las operaciones entregadas a cada abogado tomado como base la documentación en poder del Departamento de cobros.
