@@ -1,0 +1,5 @@
+CAPITULO CUARTO
+Ubicación
+Artículo 16º -Ubicación y estructura: La Auditoría Interna es un componente orgánico de la Municipalidad y se ubica como un órgano asesor de muy alto nivel dentro de su estructura organizacional. Tiene dependencia orgánica de Concejo y cuenta con independencia funcional y de criterio. A sus funcionarios se les aplica la escala salarial, el manual de puestos y los pluses que se reconocen en la institución.
+La Auditoría Interna para el cumplimiento de sus competencias estará estructurada de la siguiente forma: un Auditor Interno, un Sub Auditor Interno, una Sección de Auditoría Operativa, una sección de Auditoría Financiera, una sección de Auditoría de Sistemas , una sección de Auditoría Administrativa, una sección de Auditoría de estudios especiales y una Secretaria. Esta estructura se irá implementando paulatinamente, de acuerdo con la planeación del departamento y los recursos asignados.
+El Auditor Interno debe cumplir y ejercer las funciones inherentes al cargo de conformidad con la Ley General de Control Interno y demás normativa vigente.

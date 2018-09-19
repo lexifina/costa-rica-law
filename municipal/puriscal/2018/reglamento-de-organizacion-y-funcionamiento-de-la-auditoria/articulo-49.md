@@ -1,0 +1,1 @@
+Artículo 49º .-Comunicación de los servicios preventivos. La comunicación de los servicios preventivos se hará mediante oficio motivado del Auditor Interno, conforme a la naturaleza de los asuntos a que se refiera y su criterio profesional.

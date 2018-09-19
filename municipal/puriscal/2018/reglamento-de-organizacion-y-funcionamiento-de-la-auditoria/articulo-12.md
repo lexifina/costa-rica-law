@@ -1,0 +1,1 @@
+Artículo 12º -lnstalaciones, equipo, vehículos y otros bienes: Los funcionarios de la Auditoría Interna no deben usar las instalaciones físicas, equipo de oficina, vehículos o demás bienes de la Municipalidad para fines distintos a los destinados.

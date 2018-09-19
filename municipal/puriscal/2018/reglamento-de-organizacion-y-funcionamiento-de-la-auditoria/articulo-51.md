@@ -1,0 +1,1 @@
+Artículo 51 º .-lnformes parciales. La comunicación de resultados parciales se podrá hacer por escrito durante el desarrollo de la auditoría o estudio especial de auditoría, mediante memorando, oficio o informe parcial, cuando el caso lo amerite.

@@ -1,0 +1,1 @@
+Artículo 10º -Regalos, dádivas, comisiones o gratificaciones: Los funcionarios de la Auditoría Interna deben rechazar todo tipo de regalos, dádivas, comisiones o gratificaciones, que puedan interpretarse como intento de influir en su independencia e integridad y no deben solicitar o recibir colaboración para viajes, aporte de dinero u otras, para propio beneficio o de un tercero.

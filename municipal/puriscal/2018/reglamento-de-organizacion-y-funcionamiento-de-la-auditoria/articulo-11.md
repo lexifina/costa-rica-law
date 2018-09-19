@@ -1,0 +1,1 @@
+Artículo 11º - Patrocinio a un tercero: Los funcionarios de la Auditoría Interna no deben patrocinar a tercero directo o indirecta, trámites, nombramientos o gestiones administrativas relacionadas o no con su cargo.

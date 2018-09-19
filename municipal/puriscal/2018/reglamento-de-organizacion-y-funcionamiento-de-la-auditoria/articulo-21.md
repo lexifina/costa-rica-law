@@ -1,0 +1,1 @@
+Artículo 21 º -Vacaciones del auditor y sub-auditor: Las vacaciones serán otorgadas mediante acuerdo del Concejo y a solicitud de parte. Cuando el auditor o sub-auditor requieran permiso con rebajo de vacaciones serán autorizadas por Alcalde, siempre que no sobre pasen los tres días.

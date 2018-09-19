@@ -1,0 +1,1 @@
+Artículo 55º .-Determinación de responsabilidades. La determinación de las responsabilidades y aplicación de las sanciones administrativas para los funcionarios de la Auditoría Interna corresponderán al órgano competente conforme las disposiciones internas de la Municipalidad y la Contraloría.
