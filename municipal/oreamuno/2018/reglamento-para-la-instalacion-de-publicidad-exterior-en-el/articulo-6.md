@@ -1,0 +1,1 @@
+Artículo 6º—Emisión de licencia de oficio. Cuando los rótulos tuvieren estructura que cumplan con las normas de este Reglamento, la Municipalidad podrá legalizarlos por medio de emisión de la licencia de oficio, cargando el monto de este tributo y el impuesto de construcción respectivo, a la cuenta del propietario del inmueble.
