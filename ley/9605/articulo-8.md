@@ -1,0 +1,3 @@
+ARTÍCULO 8- Traslado de fideicomisos
+En todos aquellos fideicomisos vigentes a la fecha en que la fusión sea eficaz, y en los cuales el Banco de Costa Rica (BCR) figure como fideicomitente o como fideicomisario, siendo el Banco Crédito Agrícola de Cartago (Bancrédito) fiduciario, de pleno derecho se sustituye al fiduciario por el banco del Sistema Bancario Nacional que designe el fideicomitente, según las mejores condiciones para el respectivo fideicomiso, sin más trámite que la comunicación que le haga el fideicomitente al banco designado, y este último de su aceptación.
+En los casos de los fideicomisos de garantía, la determinación del nuevo fiduciario deberá ser establecida de común acuerdo entre el fideicomitente y el fideicomisario.
