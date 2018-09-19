@@ -1,0 +1,1 @@
+Artículo 32.- Atención de los acuerdos adoptados. La Gerencia deberá llevar un registro especial de cada acuerdo y verificar su fiel cumplimiento, de lo cual mantendrá debidamente informada a la respectiva Junta.

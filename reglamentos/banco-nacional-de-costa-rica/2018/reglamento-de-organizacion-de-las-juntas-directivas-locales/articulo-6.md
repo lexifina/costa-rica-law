@@ -1,0 +1,13 @@
+Artículo 6.- Atribuciones.
+Las juntas directivas locales tendrán las siguientes atribuciones:
+a. Mantener informado al Gerente de la Sucursal acerca de los acontecimientos económicos y sociales de mayor trascendencia en su zona geográfica y sugerir acciones específicas en relación con esos acontecimientos.
+b. Coordinar esfuerzos y actividades con las autoridades locales, en especial con las municipalidades y con asociaciones de desarrollo comunal, para la identificación de proyectos en los que el Banco pueda contribuir a un mejor aprovechamiento de los medios de producción.
+c. Recibir y analizar los informes de gestión de los Consejos de Apoyo Rural (CAR).
+d. Promover proyectos para la comercialización de los productos y servicios financieros que ofrecen las distintas entidades que conforman el Conglomerado del Banco Nacional de Costa Rica, así como para la capacitación y alfabetización financiera de la población y el mejor aprovechamiento de los medios económicos y técnicos de que dispone el Banco.
+e. Vigilar, en nombre de la Junta Directiva General, por el correcto funcionamiento de la sucursal y de los correspondientes funcionarios, identificando oportunidades de mejora y recomendando soluciones, en la medida que lo consideren conveniente.
+f. Asumir iniciativas para mejorar e innovar los servicios que presta la sucursal en su zona geográfica.
+g. Brindar apoyo a la gestión crediticia y comercial de la respectiva sucursal, informando al Gerente acerca de las necesidades crediticias en la respectiva zona geográfica y velando por la correcta asignación y distribución de los recursos de acuerdo con las disposiciones legales y reglamentarias correspondientes.
+h. Analizar mensualmente el comportamiento de la totalidad de la cartera, incluyendo operaciones que se encuentren con atrasos o en reserva de préstamos, así como las que fueren enviadas a cobro judicial, procurando identificar tendencias y situaciones de interés general que deban ser abordadas oportunamente por las autoridades del Banco.
+i. Evaluar, conjuntamente con el Gerente, los resultados de la sucursal.
+j. Colaborar en la elaboración de los planes operativos, comerciales y estratégicos de la sucursal, así como verificar su control y seguimiento.
+k. Presentar un informe trimestral a la Junta Directiva General de los principales temas abordados y las recomendaciones que se considere oportuno presentar para mantener o mejorar el desempeño de la Sucursal. Los informes serán de carácter ejecutivo y deberán ajustarse a un formato propuesto por la Gerencia General y aprobado por la Junta Directiva General.
