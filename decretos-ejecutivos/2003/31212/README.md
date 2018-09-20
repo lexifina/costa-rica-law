@@ -20,3 +20,4 @@ Reglamento para la Adjudicación de Becas o Facilidades a Servidores del Ministe
 | 5 | 2010-08-26 | Decreto Ejecutivo 36327 (2010-08-26) |
 | 6 | 2013-07-09 | Decreto Ejecutivo 37956 (2013-07-09) |
 | 7 | 2014-08-21 | Decreto Ejecutivo 38701 (2014-08-21) |
+| 8 | 2018-09-20 | Decreto Ejecutivo 41475 (2018-09-20) |
