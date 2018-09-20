@@ -14,3 +14,4 @@ Reglamento de evaluación de los aprendizajes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-06 | la propia norma |
+| 2 | 2018-09-20 | Decreto Ejecutivo 41325 (2018-09-20) |
