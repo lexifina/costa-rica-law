@@ -14,3 +14,4 @@ Define índice de Desarrollo Social denominado IDS
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-11 | la propia norma |
+| 2 | 2018-09-20 | Decreto Ejecutivo 41338 (2018-09-20) |
