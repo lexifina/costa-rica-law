@@ -1,1 +1,0 @@
-Artículo 16: ACUERDOS DE EJECUCIÓN EXTERNA: Cuando el acuerdo de Junta Directiva sea de acatamiento externo, deberá anotarse explícitamente la Entidad o Entidades Autorizadas responsables de su ejecución, debiéndose verificar su cumplimiento de conformidad con lo establecido en estas Normas.

@@ -1,1 +1,0 @@
-Artículo 20: RESPONSABILIDAD DE DIRECCIÓN ASUNTOS JURÍDICOS: Corresponde a la Dirección de Asuntos Jurídicos del Banco brindar asesoramiento en las etapas previas a la adopción de los acuerdos cada vez que así se le solicite, sin perjuicio de las funciones de ejecución que le fueran encomendadas expresamente por la Junta Directiva.

@@ -1,1 +1,0 @@
-Artículo 18: INFORMES DE EJECUCIÓN: La Auditoría Interna deberá mantener permanentemente informada a la Junta Directiva sobre los estudios e investigaciones que realice en ejercicio de las funciones de fiscalización necesarias para cumplir con la anterior disposición.
