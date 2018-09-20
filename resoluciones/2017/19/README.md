@@ -14,3 +14,4 @@ Modificaciones en el Arancel Automatizado del Servicio Nacional de Aduanas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-10-05 | la propia norma |
+| 2 | 2018-09-20 | Resolución 29 (2018-09-20) |
