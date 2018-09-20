@@ -1,0 +1,1 @@
+Artículo 15. -Reincidencias de solicitudes. No se autorizarán ferias con o sin Monta y Corridas de Toros, dos veces o más en un año a la misma asociación de desarrollo, comité, organizaciones y asociaciones, es decir solo se le aprobará una actividad por ario.

@@ -1,0 +1,1 @@
+Artículo 36. -Montadores en estado ebriedad u otro tipo de drogas. Los montadores que evidencien haber ingerido licor, drogas o sustancias prohibidas por ley, que afecten los sentidos, no podrán montar y deberán abandonar el toril.

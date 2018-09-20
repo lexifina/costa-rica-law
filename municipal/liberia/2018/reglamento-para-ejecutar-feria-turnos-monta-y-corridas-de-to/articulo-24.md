@@ -1,0 +1,1 @@
+Artículo 24. - D e las personas en redondel. Las personas que ingresen a la plaza deberán estar debidamente vestidas con ropa y zapatos apropiados y no portar arma de fuego u objetos punzo cortantes.taurino. Se permitirá la permanencia de tres personas para asistir al torero (al estilo usanza Española) en el caso de los toreros profesionales.

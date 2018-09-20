@@ -1,0 +1,1 @@
+Artículo 37. -Póliza a los montadores. La comisión encargada de la realización de la monta, deberá contar con una póliza de seguros que proteja a los montadores, vaqueteros calificados si son contratados por ellos mismos (comisión organizadora) y verificar que cuenten con dicha póliza si son grupos organizados.

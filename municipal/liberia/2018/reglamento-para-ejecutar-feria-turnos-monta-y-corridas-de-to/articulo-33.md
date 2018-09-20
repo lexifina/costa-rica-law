@@ -1,0 +1,1 @@
+Artículo 33. - D e los toreros cómicos. La participación del torero cómico debe ser sujeta a un guión autorizado por la Comisión de Fiestas o encargados, a fin de que las actuaciones se ajusten a las buenas costumbres y valores morales de la sociedad costarricense.

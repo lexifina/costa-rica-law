@@ -1,0 +1,1 @@
+Artículo 50. -Puestos de alimentos. Los puestos de alimentos que se instalen dentro y fuera del área de fiestas, serán únicamente los que los organizadores autoricen, y que deberán contar con la correspondiente autorización sanitaria del Ministerio de Salud. Todo puesto de alimentos no autorizados será intervenido por las autoridades correspondientes.

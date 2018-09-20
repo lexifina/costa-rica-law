@@ -1,0 +1,1 @@
+Artículo 32. - E l espectáculo de toros de raza lidia (Miura) solo se permitirán en las Fiestas Cívicas organizada por la Municipalidad de Liberia. Por lo que se prohíbe el espectáculo de éstos toros (Miura) en actividad taurina que realicen los distritos y barrios "Ferias Rodeos" salvo que el área de redondel supere al diámetro de 50 (cincuenta) metros.

@@ -1,0 +1,1 @@
+Artículo 18. Actos Culturales. La Comisión de Fiestas organizará actos culturales, bailes y conciertos en el Parque Mario Cañas Ruiz, durante el tiempo que duren las fiestas Cívicas, para resaltar las costumbres y tradiciones del Cantón, con la finalidad que la población pueda disfrutar de esas actividades.

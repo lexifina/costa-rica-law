@@ -1,0 +1,1 @@
+Artículo 13. -Informes económicos. Concluida la actividad, la entidad organizadora estará obligada a presentar al Concejo Municipal de Liberia, un informe económico que contemple los ingresos y egresos que se generó en la actividad, en un plazo de 30 días improrrogable finalizada la actividad.

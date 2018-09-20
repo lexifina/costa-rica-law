@@ -1,0 +1,1 @@
+Artículo 47.- La Comisión de Fiestas coordinará con el Ministerio de Seguridad Pública y SENASA para que una vez terminado el tope de toros, tope de gala o desfile de caballistas no se estacione ningún caballista en algún establecimiento público que obstruya las vías públicas y obstruya el libre tránsito de las personas y vehículos.

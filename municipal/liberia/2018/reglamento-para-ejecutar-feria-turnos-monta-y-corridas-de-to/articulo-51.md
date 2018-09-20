@@ -1,0 +1,1 @@
+Artículo 51. - De las Ventas Ambulantes. Queda terminantemente prohibido para los días de Fiestas Cívicas del cantón de Liberia, las ventas ambulantes, ventas de abarrotes transitorias, dentro y en los alrededores del parque Mario Cañas Ruiz.

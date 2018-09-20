@@ -1,0 +1,1 @@
+Artículo 16. - S o l o dos ferias por mes. En caso de existir más de una solicitud de feria en el cantón en un mismo mes, y de haber varias solicitudes se le dará prioridad a la asociación u organización que no haya realizado actividad alguna hasta ese momento, tomando en cuenta la fecha de recibido de cada solicitud, o sea, primero en tiempo, primero en derecho.

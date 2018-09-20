@@ -1,0 +1,1 @@
+Artículo 57. -Transitorio. Este Reglamento anula el reglamento publicado en La Gaceta Nº 237 del día siete de diciembre del 201 O, una vez aprobado este Reglamento de feria, monta y corridas de toros, desfiles de caballistas.

@@ -1,0 +1,1 @@
+Artículo 30. -Desmoche de los cachos del toro. Todo toro que se juegue, tiene que ser desmochado, y arreglado, no debiendo existir ninguna astilla en los cuernos, que ofrezca peligro y deberá encontrarse en el toril como mínimo una hora antes de las corridas, animal que entre a la manga de salida y no se le ha efectuado el trabajo de desmoche este no deberá ser jugado.

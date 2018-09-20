@@ -1,0 +1,1 @@
+Artículo 38. - D e los montadores. Los montadores deben permanecer en el lugar que el encargado del toril designe antes de la monta (fiscal de barrera). Así también el montador no podrá realizar dos o más montas el mismo día.

@@ -1,0 +1,1 @@
+Artículo 25. - D e la presencia de persona toreo profesional "A la Española". No se permitirá la permanencia en la plaza de personas ajenas a los actos del espectáculo taurino, se permitirá la permanencia de tres personas para asistir al torero (al estilo usanza Española) en el caso de los toreros profesionales.
