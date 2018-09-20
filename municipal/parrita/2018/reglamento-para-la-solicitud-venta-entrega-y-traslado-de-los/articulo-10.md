@@ -1,0 +1,2 @@
+Artículo 10°: Suspensión: La Municipalidad podrá suspender la entrega de los agregados
+temporalmente, ya sea por presentarse problemas en los accesos ocasionados por los desbordamientos del río, o cualquier otro factor técnico, humano, mecánico, administrativo, etc, que impida la entrega del mismo, restableciéndose la entrega en el momento que mejoren las condiciones climáticas o demás factores que garanticen la seguridad integral en el momento de la extracción y entrega del material, a criterio del Coordinador de la Gestión Técnica Vial Municipal.

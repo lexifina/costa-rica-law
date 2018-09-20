@@ -1,0 +1,1 @@
+Artículo 14°: Las actualizaciones en el precio de los materiales proveniente de la extracción del cauce del Rio Parrita se ajustarán anualmente con base en un estudio de mercado que refleje el comportamiento de la oferta y demanda local de agregados. Este estudio de mercado y los precios fijados para cada año, serán publicados por el municipio en un medio idóneo para tales fines.

@@ -1,0 +1,1 @@
+Artículo 9°: Orden: El usuario deberá respetar el orden establecido al momento de la entrega y carga del material, de la misma manera deberá de coordinar con el encargado cualquier situación anómala que se presente al momento de la entrega del material, con el propósito de que se realice la entrega satisfactoriamente.

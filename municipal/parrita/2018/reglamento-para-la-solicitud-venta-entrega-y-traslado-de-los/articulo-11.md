@@ -1,0 +1,4 @@
+CAPÍTULO III
+CONVENIOS Y DONACION DE LOS MATERIALES NO METALICOS EXTRAÍDOS DEL CAUCE DE
+DOMINIO PÚBLICO YSOBRE EL RIO PARRITA
+Artículo 11°: Convenios y donación de agregados o áridos a organizaciones sociales y personas físicas, sin fin de lucro, que tengan un objetivo común, basado en artículo 13 del Código Municipal. La Municipalidad podrá donar mensualmente hasta el volumen máximo que se determine por el Concejo Municipal, sin que exceda el mismo el 10% de la tasa de extracción mensual, a las Asociaciones de Desarrollo Integral, Concejos de Distritos, Comité de Caminos y cualquier otra Organización Social legalmente reconocida, siempre y cuando los materiales sean para un fin público de interés social y sin fines de lucro. Así mismo, puede disponerse de agregados y áridos en Convenios de Mutua Cooperación con entes públicos, entes privados y la Municipalidad de Parrita, con la aprobación que corresponda.

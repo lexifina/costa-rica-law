@@ -1,0 +1,1 @@
+Artículo 2°: Este Reglamento regulará la organización y funcionamiento municipal, en cuanto a la solicitud, venta, entrega y acarreo de los materiales extraídos del cauce del Rio Parrita, así como establecer los derechos y deberes tanto de los usuarios como de la Municipalidad de Parrita.
