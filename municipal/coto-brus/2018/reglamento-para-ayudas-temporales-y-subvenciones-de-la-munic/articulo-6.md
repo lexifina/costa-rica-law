@@ -1,0 +1,1 @@
+Artículo 6. Las ayudas serán recomendadas en definitiva por quienes realizaron el respectivo informe que se presentara ante el Concejo. Será el Concejo Municipal quien aprobará por mayoría calificada, en base al presupuesto disponible, de acuerdo con los límites establecidos para el giro de recursos, conforme al informe brindado.

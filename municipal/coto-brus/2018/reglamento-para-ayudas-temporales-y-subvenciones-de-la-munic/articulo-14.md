@@ -1,0 +1,1 @@
+Artículo 14. Registro de Ayudas Concedidas. La Municipalidad de Coto Brus a través de la Secretaría del Concejo Municipal, mantendrá un control actualizado donde se registren las ayudas concedidas, donde los expedientes estarán bajo su custodia.

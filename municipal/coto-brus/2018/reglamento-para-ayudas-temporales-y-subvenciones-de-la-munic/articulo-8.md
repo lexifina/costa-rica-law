@@ -1,0 +1,1 @@
+Artículo 8. Estas ayudas serán autorizadas hasta por un monto máximo de 3 Salarios Base de un Misceláneo Municipal OM 1A; con base en la recomendación del estudio realizado. Cuando el estudio determine de forma motivada, que la ayuda debe consistir en un aporte mayor al establecido en este Artículo, se requerirá la aprobación unánime del Concejo Municipal.
