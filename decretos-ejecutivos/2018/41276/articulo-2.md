@@ -1,0 +1,1 @@
+Artículo 2º- El símbolo que debe utilizar la organización, cantón, concejo de distrito y/o comunidad, se compone de la marca propiedad exclusiva del MINAE junto con la información necesaria para que cualquier usuario pueda confirmar la vigencia del reconocimiento, tal como se muestra en el artículo 9 de este reglamento.

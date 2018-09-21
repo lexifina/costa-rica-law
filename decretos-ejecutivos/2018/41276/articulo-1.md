@@ -1,0 +1,22 @@
+N° 41276-MINAE
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA
+En uso de las facultades conferidas en los artículos 140, incisos 3) y 18), 50 y 146 de la Constitución Política; artículo 49 de la Ley Orgánica del Ambiente N° 7554, del 4 de octubre de 1995; artículo 27 inciso 1) y 28 inciso 2) acápite b) de la Ley General de la Administración Pública Nº 6227 del 2 de mayo de 1978; la Convención Marco de Naciones Unidas sobre el Cambio Climático, Ley Nº 7414 del 13 de junio de 1994; la Ley de Aprobación del Protocolo de Kyoto de la Convención Marco de las Naciones Unidas sobre el Cambio Climático Nº 8219 del 8 de marzo de 2002; el Decreto Legislativo Nº 9405 del 4 de octubre de 2016 de Aprobación del Acuerdo de París; y los artículos 42 y 43 del Decreto Ejecutivo No. 35669-MINAET del 4 de diciembre del 2009, Reglamento Orgánico del Ministerio de Ambiente y Energía.
+Considerando:
+1. Que el país ratificó la Convención Marco de Naciones Unidas sobre el Cambio Climático (CMNUCC).
+2. Que nuestro país asumió el compromiso de participar en los esfuerzos de fortalecer el régimen establecido por la CMNUCC, a fin de contribuir a garantizar una respuesta global y oportuna, con base en la información aportada por el Panel Intergubernamental sobre Cambio Climático (IPCC) y sobre la base de los principios que rigen la CMNUCC.
+3. Que, en el año 2007, Costa Rica lanzó su compromiso de ser carbono neutral para el año 2021, meta incluida en la Estrategia Nacional de Cambio Climático (2009) y en su Plan de Acción (2013).
+4. Que Costa Rica oficializó el Programa País de Carbono Neutralidad, por medio del Acuerdo 36-2012 MINAET del 19 de junio de 2012.
+5. Que la norma INTE B5 “Norma para demostrar Carbono Neutralidad” fue desarrollada para permitir a toda organización, demostrar su carbono neutralidad.
+6. Que Costa Rica elaboró en 2015, un objetivo de mitigación de largo plazo para el año 2050, diseñado sobre la base de la mejor ciencia disponible a ese momento y de su responsabilidad global de avanzar hacia la carbono neutralidad global para la segunda mitad del siglo, que fue incluido en su Contribución Nacionalmente Determinada (NDC).
+7. Que Costa Rica firmo y ratificó el Acuerdo de París emitiendo su Contribución Nacionalmente Determinada (NDC) y aprobó el Acuerdo en Asamblea Legislativa según el Decreto Legislativo Nº 9405.
+8. Que el Acuerdo de París presupone la descarbonización de la economía global y el logro de la neutralidad carbono en la segunda mitad del siglo XXI.
+9. Que el Programa País de Carbono Neutralidad debe adaptarse al nuevo marco del Acuerdo de París, buscando la contribución de todos los costarricenses al logro de la Contribución Nacionalmente Determinada y la sensibilización de los agentes económicos y de la población de los retos de la neutralidad en carbono.
+10. Que el Ministro de Ambiente y Energía ejerce la rectoría política en materia ambiental y lo correspondiente a los temas relativos al cambio climático; por lo que podrá en el ejercicio de sus funciones, ordenar las actividades de la Dirección del Cambio Climático, establecidas en el Reglamento Orgánico Institucional, como órgano para el seguimiento del cambio climático y la mitigación y adaptación a sus efectos.
+11. Que, de conformidad con el Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo Nº 37045-MP-MEIC y sus reformas, la presente propuesta cumple con los principios de mejora regulatoria según el informe positivo DMR-DAR-INF-168-17 del 04 de diciembre de 2017, emitido por el Departamento de Análisis Regulatorio de la Dirección de Mejora Regulatoria del MEIC.
+Por tanto,
+DECRETAN:
+“Reglamento para el uso de los Símbolos del Programa País Carbono
+Neutralidad 2.0”
+Artículo 1º- Toda organización, cantón, concejo de distrito y/o comunidades que reciban el reconocimiento del Ministerio de Ambiente y Energía (MINAE) en cualquiera de las categorías establecidas en el Programa País de Carbono Neutralidad 2.0 (PPCN 2.0) en sus categorías a) Organizacional y b) Cantonal, a través de La Dirección de Cambio Climático (DCC) del Ministerio de Ambiente y Energía (MINAE), solo puede hacer uso del símbolo de la marca con su información específica (denominado a continuación “símbolo” (ver figura 1)) que se le haya otorgado como resultado de las actividades incluidas en el alcance de la declaración emitida por el Organismo de Validación/Verificación (OVV) de la forma detallada en este reglamento.
+[imagen]

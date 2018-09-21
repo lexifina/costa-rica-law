@@ -1,0 +1,1 @@
+Artículo 9º- El Reglamento estará disponible, de manera permanente y en su versión más actualizada, en el sitio web de la Dirección de Cambio Climático del MINAE (http://www.cambioclimaticocr.com) así como una versión impresa disponible para consulta.
