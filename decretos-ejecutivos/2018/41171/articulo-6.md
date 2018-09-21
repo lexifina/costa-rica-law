@@ -1,0 +1,1 @@
+Artículo 6º Las instituciones del Estado con competencia en el Área Marina deberán promover y establecer mecanismos efectivos de coordinación interinstitucional, en particular INCOPESCA y SNG que aseguren la conservación, vigilancia y aprovechamiento sostenible de los recursos naturales, presentes en dicha área.

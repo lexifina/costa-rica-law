@@ -1,0 +1,1 @@
+Transitorio único.- El SINAC de conformidad al numeral 42 de la Ley de Biodiversidad deberá fijar una tarifa de ingreso al Área Marina de Manejo Bahía Santa Elena para los pescadores y otros usuarios, excluyendo a los usuarios de la pesca en pequeña escala de las comunidades vecinas, en un plazo de 6 meses posteriores a la publicación del presente reglamento.

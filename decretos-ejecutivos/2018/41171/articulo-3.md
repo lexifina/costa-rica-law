@@ -1,0 +1,1 @@
+Artículo 3º Dentro del Área Marina de Manejo Bahia Santa Elena, rigen las limitaciones que establece la Ley de Biodiversidad Nº 7788 del 30 de abril de 1998; el Reglamento a la Ley de Biodiversidad, Decreto Ejecutivo Nº 34433-MINAE del 11 de marzo de 2008, el Decreto Ejecutivo N° 35369-MINAET del 18 de mayo de 2009 y normativa conexa.
