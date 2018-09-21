@@ -1,0 +1,1 @@
+Artículo 3°-Prorróguese la Declaratoria de Refugio de Vida Silvestre Propiedad Mixta Finca Barú del Pacífico, por un periodo de cinco años, prorrogables por periodos iguales de conformidad a lo indicado en el artículo 5 del Decreto N° 24639-MIRENEM 30 de agosto de 1995.
