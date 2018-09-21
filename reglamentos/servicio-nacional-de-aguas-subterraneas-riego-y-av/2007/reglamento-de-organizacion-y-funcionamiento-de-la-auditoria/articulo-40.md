@@ -1,1 +1,0 @@
-Artículo 40. Procesamiento de información. La Auditoria Interna acatará la normativa emitida por la Contraloría General de la Republica en cuanto al procesamiento de información en el Manual de Normas para el Ejercicio de la Auditoria Interna en el Sector Público, en especial lo establecido en la norma 2.4.

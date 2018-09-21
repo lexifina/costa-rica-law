@@ -1,1 +1,0 @@
-Artículo 19. Jerarquía organizativa. La Auditoria Interna del SENARA para el desempeño de sus funciones se encuentra estructurada bajo la dirección de un Auditor(a) Interno(a) y deberá contar con personal debidamente capacitado que reúna las condiciones de idoneidad requerida para ejercer sus funciones.

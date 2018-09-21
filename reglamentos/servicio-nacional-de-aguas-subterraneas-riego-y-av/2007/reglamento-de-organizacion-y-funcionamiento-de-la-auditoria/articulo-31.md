@@ -1,1 +1,0 @@
-Artículo 31. Relación y Coordinación de los Funcionarios de la Auditoría Interna. Es obligación del Auditor(a) Interno(a) establecer y regular lo concerniente a las relaciones y coordinaciones de los funcionarios de la Auditoría con los auditados, de manera que lo relativo a este punto estará normado en el Manual de Auditoría.

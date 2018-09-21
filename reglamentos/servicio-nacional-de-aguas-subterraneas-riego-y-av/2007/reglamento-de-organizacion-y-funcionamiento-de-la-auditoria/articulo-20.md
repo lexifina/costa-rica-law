@@ -1,4 +1,0 @@
-CAPÍTULO IV
-Del Auditor Interno
-Artículo 20. Nombramiento del auditor interno. La Junta Directiva del SENARA realizará el nombramiento del Auditor(a) Interno(a) en estricto apego a lo dispuesto en el artículo 31 de la Ley General de Control Interno y en especial el procedimiento que contemplan los Lineamientos sobre requisitos de los cargos de auditor y subauditor internos, y las condiciones para las gestiones de nombramiento en dichos cargos”, publicados en el Diario Oficial La Gaceta Nº 236 de 08 de diciembre del 2006.
-Este sólo podrá ser removido del cargo por justa causa, conforme con dictamen previo y vinculante de la Contraloría General de la República, en aplicación de las disposiciones del artículo 15 de la Ley Orgánica de la Contraloría General de la República y en los Lineamientos sobre la garantía de inamovilidad de los Auditores y Subauditores Internos.
