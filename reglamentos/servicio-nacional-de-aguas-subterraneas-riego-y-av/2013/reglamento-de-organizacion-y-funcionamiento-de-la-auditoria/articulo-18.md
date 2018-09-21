@@ -1,1 +1,0 @@
-Artículo 18.—Estructura. La Auditoria Interna del SENARA para el desempeño de sus funciones se encontrará estructurada bajo la dirección de un Auditor Interno y deberá contar con personal suficiente y debidamente capacitado, que reúna las condiciones de idoneidad requeridas para ejercer sus funciones.

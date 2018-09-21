@@ -1,1 +1,0 @@
-Artículo 6°—Competencias. Las competencias de la Auditoría Interna se regularán fundamentalmente por lo dispuesto en el artículo 22 de la Ley General de Control Interno, sin perjuicio de cualquier otra normativa que resulte aplicable.

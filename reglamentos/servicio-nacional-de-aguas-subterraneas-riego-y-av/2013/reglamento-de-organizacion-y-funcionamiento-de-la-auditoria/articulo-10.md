@@ -1,1 +1,0 @@
-Artículo 10.—Independencia y objetividad individual. Los funcionarios de la Auditoría Interna deberán tener actitud imparcial y neutral, evitando conflictos de intereses, favoritismos o influencias indebidas que puedan comprometer su juicio profesional. Asimismo deberán proteger su independencia de hecho y en apariencia.

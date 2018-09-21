@@ -1,1 +1,0 @@
-Artículo 17.—Dependencia orgánica y regulaciones administrativas. Orgánicamente, la Auditoría Interna dependerá directamente de la Junta Directiva del SENARA. Otras regulaciones administrativas relativas al personal de la Auditoría Interna, se regirán por lo establecido en el artículo 24 de la Ley General de Control Interno.

@@ -1,1 +1,0 @@
-Artículo 47.—Sobre el seguimiento de advertencias. La Auditoría Interna verificará lo actuado por la Administración Activa respecto de las advertencias que le haya formulado, sin perjuicio de que según corresponda, como resultado del seguimiento, emita informes de control interno, de responsabilidades (Relaciones de Hechos), u otros pertinentes.

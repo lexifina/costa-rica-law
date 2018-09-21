@@ -1,1 +1,0 @@
-Artículo 4°—De la actualización del reglamento. A efectos de mantener el marco normativo de la Auditoría Interna actualizado, le corresponderá al Auditor Interno proponer y promover ante la Junta Directiva, las modificaciones del mismo. Toda modificación deberá contar de previo a su emisión oficial, con la aprobación del máximo Jerarca y de la Contraloría General de la República.

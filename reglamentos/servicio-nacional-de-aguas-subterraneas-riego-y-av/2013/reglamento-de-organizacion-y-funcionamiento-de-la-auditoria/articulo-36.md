@@ -1,1 +1,0 @@
-Artículo 36.—Deber de la Asesoría Legal. Es deber de la Asesoría Legal del SENARA brindar el oportuno y efectivo servicio mediante los estudios jurídicos que requiera la Auditoría Interna, a fin de que esta cumpla adecuadamente su función, conforme lo estipula el artículo 33, incisos b) y c) de la Ley General de Control Interno Nº 8292.
