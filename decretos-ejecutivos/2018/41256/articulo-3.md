@@ -1,0 +1,1 @@
+Artículo 3°. Derogaciones. Deróguese la “Tabla N° 1. Clasificación de bebidas alcohólicas” contenida en el artículo 1° del Decreto Ejecutivo N° 19873-MEIC del 27 de agosto de 1990, NCR23:1990 Normas de Bebidas alcohólicas. Nomenclatura y Clasificación, publicado en el Diario Oficial La Gaceta N° 169 del 7 de setiembre de 1990.
