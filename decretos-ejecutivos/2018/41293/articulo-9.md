@@ -1,0 +1,1 @@
+Artículo 9°.- Funciones de la persona Contralora de servicios. Serán funciones de la persona contralora de servicios del SENASA las establecidas en el artículo 21 de la Ley Reguladora del Sistema Nacional de Contraloría de Servicios, N° 9158.

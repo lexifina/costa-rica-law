@@ -1,0 +1,4 @@
+Capítulo III
+Procedimientos para la Presentación y Atención de Gestiones ante la Contraloría
+de Servicios
+Artículo 13º.- Derechos de las ciudadanas y ciudadanos. Es un derecho de todas las personas recibir del SENASA, servicios de óptima calidad. Además, las personas físicas o jurídicas tienen el derecho de plantear inconformidades, denuncias, necesidades o sugerencias, respecto de los servicios que reciben de ésta institución y sobre las actuaciones de las personas funcionarias en el ejercicio de sus labores, cuando se estime que afecten directa o indirectamente los servicios prestados. Para la protección de este derecho, la gestión del SENASA deberá sujetarse a los principios fundamentales de continuidad, eficiencia y eficacia, adaptación a todo cambio en el régimen legal o necesidad social que satisfacen y la igualdad en el trato a las usuarias según lo establecido en la Ley General de la Administración Pública, N° 6227.

@@ -1,0 +1,3 @@
+Artículo 12°.- Conclusiones y recomendaciones de la Contraloría de Servicios. La contraloría de servicios del SENASA podrá emitir conclusiones y recomendaciones como producto de las investigaciones que realice, de conformidad con sus competencias.
+Cuando una recomendación sea emitida, la Dirección, Departamento o Unidad del SENASA a la cual va dirigida, debe tramitarla de manera ágil y eficaz, con el fin de mejorar el servicio que brinda. La Contraloría de Servicios velará por el efectivo cumplimiento de las recomendaciones emitidas y periódicamente evaluará su efectividad.
+En los casos que se estime necesario, los resultados de esas evaluaciones serán comunicadas por parte de la Contraloría de Servicios a la Dirección General del SENASA.

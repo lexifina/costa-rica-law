@@ -1,0 +1,1 @@
+Artículo 5°.- Ubicación física de la Contraloría de Servicios. La Contraloría de Servicios estará ubicada en las oficinas centrales del SENASA, garantizándose a todas las personas usuarias un fácil y adecuado acceso a sus servicios, así como un espacio que garantice la privacidad durante la toma de sus inconformidades.
