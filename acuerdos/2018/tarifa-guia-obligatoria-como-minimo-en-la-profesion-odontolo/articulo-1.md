@@ -121,9 +121,9 @@ Quirúrgico
 12.5 | Reimplante por Traumatismo | ₡63.000
 12.6 | Biopsia Incisional | ₡59.000
 12.7 | Incisión y Drenaje de Abscesos | ₡22.000
-12.8 | Alargamiento de Corona | ₡39.000
-12.9 | Gingivoplastia | ₡35.000
-12.10 | Frenectomía | ₡31.000
+12.8 | Alargamiento de Corona | ₡84.000 (Así reformado el monto anterior mediante publicación en La Gaceta N° 174 del 21 de setiembre de 2018)
+12.9 | Gingivoplastia | ₡74.000 (Así reformado el monto anterior mediante publicación en La Gaceta N° 174 del 21 de setiembre de 2018)
+12.10 | Frenectomía | ₡70.000 (Así reformado el monto anterior mediante publicación en La Gaceta N° 174 del 21 de setiembre de 2018)
 12.11 | Regularización Ósea Simple | ₡49.000
 12.12 | Regularización Ósea Guiada | ₡251.000
 12.13 | Sutura Heridas Mucosa Oral | ₡20.000
@@ -139,4 +139,20 @@ Planos de Mordida
 Otros
 14.1 | Peritaje Completo | ₡88.000
 14.2 | Ferulización | ₡82.000
+Enucleación | ¢87 000
+Prótesis Total Removible Inmediata | ¢132 000
+Reconstrucción por Fractura | ¢46 000
+Exodoncia de Diente Retenido | ¢87 000
+Consulta de Emergencia | ¢75 000
+Ajuste Oclusal | ¢19 000
+Curetaje | ¢38 000
+Remoción de Cuerpo Extraño | ¢80 000
+Cirugía de Torus | ¢96 000
+Póntico de Implante Metal Porcelana | ¢190 000
+Póntico de Implante Zirconio y/o Solo Porcelana | ¢214 000
+Cirugía de Supernumerario | ¢87 000
+Remoción de tumores benignos (fibroma, papilomas) | ¢87 000
+Cirugía de Opercubectomía | ¢39 000
+Provisional de Corona Implantosoportada | ¢144 000
+(Así adicionada la tabla anterior mediante publicación en La Gaceta N° 174 del 21 de setiembre de 2018)
 Aprobadas en sesión ordinaria de junta directiva N° 1666 celebrada el 15 de febrero del 2018.

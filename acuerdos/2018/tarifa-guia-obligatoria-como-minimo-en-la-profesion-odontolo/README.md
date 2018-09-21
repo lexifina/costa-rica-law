@@ -14,3 +14,4 @@ Tarifa guía obligatoria como mínimo en la profesión odontológica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-04-04 | la propia norma |
+| 2 | 2018-09-21 | Acuerdo 0 (2018-09-21) |
