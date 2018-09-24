@@ -1,1 +1,0 @@
-Artículo 11.—En las sesiones podrán participar, sin derecho a voto, los funcionarios que el Comité considere necesarios, así como el Gerente General, el Auditor Interno y el Auditor Externo cuando así se requiera.
