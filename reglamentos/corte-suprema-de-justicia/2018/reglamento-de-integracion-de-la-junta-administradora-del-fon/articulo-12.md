@@ -1,0 +1,1 @@
+Artículo 12.- Designación por la Corte Plena. La Comisión de Nombramientos analizará el perfil ofrecido por las personas candidatas incluidas en la lista de elegibles, hará las entrevistas necesarias con cada una de ellas, dará su recomendación y lo comunicará a la Corte Plena, a fin de que ésta elija a tres personas como integrantes titulares y a los respectivos suplentes.

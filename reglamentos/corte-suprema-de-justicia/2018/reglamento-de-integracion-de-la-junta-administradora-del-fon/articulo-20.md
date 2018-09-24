@@ -1,0 +1,1 @@
+Artículo 20.- Calendario período electoral. Existirá un calendario del período electoral, siendo que el Tribunal Electoral Judicial definirá las fechas del proceso electoral, que no podrá coincidir con el proceso de formulación presupuestaria ni con el Año Judicial.

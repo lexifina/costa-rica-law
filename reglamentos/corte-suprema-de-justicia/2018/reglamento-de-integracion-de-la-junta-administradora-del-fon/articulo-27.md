@@ -1,0 +1,1 @@
+Artículo 27.- Deber de tramitación en materia electoral. El Tribunal Electoral Judicial deberá resolver en un plazo máximo de cuarenta y ocho horas, cualquier gestión, trámite o solicitud que se presente por parte de persona física o jurídica debidamente legitimada.

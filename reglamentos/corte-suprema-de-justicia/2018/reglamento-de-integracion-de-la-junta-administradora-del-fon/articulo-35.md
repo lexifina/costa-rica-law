@@ -1,0 +1,3 @@
+Artículo 35.- Publicidad de las personas candidatas. El período de campaña publicitaria será de un mes -anterior a las elecciones-. Durante ese período se podrán realizar actividades de publicidad, en la que se ejerciten los derechos políticos de información, libre agrupación y libertad de elección.
+Para el envío de publicidad, se podrá utilizar en forma moderada el correo electrónico institucional, quedando prohibida toda práctica de envío masivo de correos.
+El Tribunal Electoral Judicial regulará los mecanismos para realizar la publicidad, los medios y los plazos, garantizando que llegue información veraz y oportuna a todo el colectivo judicial.

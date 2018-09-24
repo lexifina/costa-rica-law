@@ -1,0 +1,1 @@
+Artículo 19.- Deberes de los integrantes del Tribunal Electoral Judicial. Los miembros del Tribunal Electoral Judicial deberán observar y actuar conforme a los principios de imparcialidad y objetividad propios de los órganos electorales.

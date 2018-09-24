@@ -1,0 +1,1 @@
+Artículo 17.- Incompatibilidad. Es incompatible el cargo de miembro del Tribunal Electoral Judicial con cualquier otro cargo que la persona se encuentre ejerciendo en la Junta Administrativa del Fondo de Jubilaciones y Pensiones del Poder Judicial.

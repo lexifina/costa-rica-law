@@ -1,0 +1,1 @@
+Artículo 24.- Credencial de la persona fiscal. El Tribunal Electoral Judicial elaborará una credencial, que identifique a cada persona fiscal. Dicho documento será firmado por el Presidente y sellado por el Secretario del Tribunal Electoral Judicial. Corresponde a ese Tribunal tomar las medidas de control y seguridad que considere necesarias y oportunas.

@@ -1,0 +1,4 @@
+Artículo 6.- Requisitos para ser miembro de la Junta Administradora. De conformidad con el artículo 240 de la Ley Orgánica del Poder Judicial, modificado por la ley N° 9544, para ser miembro de la Junta Administradora, la persona deberá cumplir con los siguientes requisitos:
+a) Contar con título universitario en carreras afines a la administración de un fondo de pensiones y estar incorporado al colegio profesional respectivo, cuando así corresponda.
+b) Ser de reconocida y probada honorabilidad.
+c) Contar con conocimientos y al menos cinco (5) años de experiencia en actividades profesionales o gerenciales relevantes para la administración de un fondo de pensiones, de manera que todos los miembros de este órgano posean habilidades, competencias y conocimientos que les permitan realizar el análisis de riesgos que afectan a la Junta y al Fondo.

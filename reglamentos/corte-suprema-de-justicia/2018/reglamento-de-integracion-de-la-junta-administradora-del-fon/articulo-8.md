@@ -1,0 +1,7 @@
+Capítulo III
+Designación de los integrantes cuya elección corresponde a la Corte
+Plena.
+Artículo 8.- Elección de integrantes de la Junta Administradora y apertura del concurso. Para la primera integración de la Junta Administradora, la Corte Plena tomará un acuerdo ordenando a la Dirección de Gestión Humana abrir un concurso para la designación de los tres integrantes propietarios y suplentes cuyo nombramiento corresponde a la Corte Suprema de Justicia.
+Seis meses antes de vencer el nombramiento de los integrantes de la Junta Administradora, la Corte Plena tomará un acuerdo para determinar si reelige o no a los integrantes de la Junta Administradora anterior. Previo a tomar ese acuerdo, la Corte Plena deberá tomar en consideración si los integrantes actuales desean o no ser reelectos, paratal efecto, siete meses antes del vencimiento del plazo del nombramiento, las personas harán del conocimiento de la Corte Plena su interés en ser reelecto.
+Para tomar el acuerdo de elección o reelección, la votación será por mayoría simple, es decir, la mitad más uno de las personas integrantes de la Corte Plena. La elección será por cinco años. Será pública la sesión de la Corte Plena que acuerde la elección o la reelección de un o una integrante de la Junta Administradora.
+En caso de que la Corte Plena no acuerde la reelección, tomará un acuerdo ordenando a la Dirección de Gestión Humana abrir el concurso para la designación de los integrantes titulares y suplentes de la Junta Administradora, cuyo nombramiento corresponde hacerlo a la Corte Plena.

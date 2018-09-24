@@ -1,0 +1,5 @@
+Capítulo II
+Integración de la Junta Administradora.
+Artículo 5- Integración de la Junta Administradora. La Junta Administradora estará integrada por seis miembros titulares, además habrá seis miembros suplentes, quienes serán nombrados por períodos de cinco años, pudiendo ser reelectos. Los suplentes deberán cumplir los mismos requisitos que la ley establece para los integrantes titulares. Se requiere un suplente para cada integrante titular, para que le sustituya en sus ausencias.
+Corresponde a la Corte Plena nombrar tres integrantes titulares de la Junta Administradora, así como a los tres integrantes suplentes. Por su parte, corresponderá al colectivo judicial elegir en forma democrática a los tres integrantes titulares, así como a los tres integrantes suplentes.
+Para integrar la Junta Administradora se deberá cumplir la representación paritaria de ambos sexos; con ese fin, se realizará primero la elección por parte del colectivo judicial; posteriormente, la Corte Plena hará la designación de sus representantes.

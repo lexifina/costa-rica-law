@@ -1,0 +1,2 @@
+Artículo 31.- Sistema de Votación Electrónica. La Dirección de Tecnología de la Información analizará y recomendará la mejor alternativa tecnológica para apoyar el proceso de votación. Este sistema tendrá la capacidad tecnológica de registrar y contar los votos.
+Con la finalidad de brindar seguridad electoral, dicho sistema deberá garantizar que la persona trabajadora activa (en propiedad o interina), la jubilada y las pensionadas mayores de edad y capaces, sólo pueda votar una vez, con su usuario y su clave.

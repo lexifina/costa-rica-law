@@ -1,0 +1,3 @@
+Artículo 21.- De las personas fiscales del Tribunal Electoral Judicial. El Tribunal Electoral Judicial contará con un grupo de personas fiscales en todos los circuitos judiciales del país. Cada circuito judicial tendrá -como mínimo- una persona fiscal titular y una persona fiscal suplente.
+Se trata de personas que voluntariamente se ofrezcan en calidad de fiscal ante el Tribunal Electoral Judicial; siendo que dicho Tribunal analizará si la persona cumple los requisitos para ese cargo, esto es, que sea imparcial y objetiva en el tema de las elecciones. La labor del fiscal será ad honorem.
+Asimismo, los integrantes de los Consejos de Administración de Circuito vigilarán el desarrollo del proceso electoral, en calidad de fiscales del Tribunal Electoral Judicial.

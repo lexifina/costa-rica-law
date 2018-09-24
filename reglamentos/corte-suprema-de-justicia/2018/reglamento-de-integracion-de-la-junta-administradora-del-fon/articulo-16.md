@@ -1,0 +1,1 @@
+Artículo 16.- Suplencias. Quien ejerza la Vicepresidencia suplirá al Presidente en las ausencias temporales. Quien ejerza la Vocalía Primera suplirá las ausencias temporales de quien ejerza la Vicepresidencia. Quien ejerza la Vocalía Segunda suplirá las ausencias de la Secretaría.

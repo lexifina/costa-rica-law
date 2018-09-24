@@ -1,0 +1,2 @@
+Artículo 22.- Funciones de la persona fiscal del Tribunal Electoral Judicial. La función principal de quienes ejercen la fiscalización, es presenciar el proceso de votación, vigilar el correcto proceder y dar aviso al Tribunal Electoral Judicial, en caso de que tenga conocimiento de alguna anomalía electoral.
+A los fiscales les está prohibido interferir en el trabajo del Tribunal Electoral Judicial, así como participar en sus deliberaciones.

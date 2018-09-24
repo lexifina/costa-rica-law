@@ -1,0 +1,1 @@
+Artículo 23.- Del ejercicio impropio de la persona fiscal del Tribunal Electoral Judicial. El ejercicio impropio de una persona fiscal facultará al Tribunal Electoral Judicial para ordenar su destitución como tal.

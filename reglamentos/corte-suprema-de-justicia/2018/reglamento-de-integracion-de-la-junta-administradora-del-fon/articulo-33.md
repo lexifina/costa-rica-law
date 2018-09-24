@@ -1,0 +1,1 @@
+Artículo 33.- Apoyo material para el Tribunal Electoral Judicial. El Consejo Superior apoyará la labor del Tribunal Electoral Judicial, brindando permisos con goce de salario y con sustitución, vehículos y, en general, los recursos materiales necesarios para realizar el proceso electoral judicial.
