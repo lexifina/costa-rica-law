@@ -1,1 +1,0 @@
-14.—La Secretaría de la Comisión confeccionará una agenda para cada sesión, la cual será aprobada por el Presidente de la Comisión y comunicada previamente a los miembros de la Comisión.

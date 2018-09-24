@@ -1,1 +1,0 @@
-81.—En caso de incumplimiento del contratista, la E.S.P.H. S. A., conferirá audiencia al adjudicatario de previo resolver sus relaciones contractuales, la E.S.P.H. S. A., deberá verificar las causales de la resolución y acreditarlas en el expediente que se levantará al efecto.

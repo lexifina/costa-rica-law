@@ -1,1 +1,0 @@
-104.—Igualmente, estos materiales, equipo y/o bienes deben ser valorados. Para tal efecto un técnico especialista en la materia deberá rendir un avalúo por escrito, este profesional podrá ser de la misma E.S.P.H. S. A., o de la Administración Tributaria.

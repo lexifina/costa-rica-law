@@ -1,1 +1,0 @@
-109.—La venta de bienes, equipo y materiales se regulará mediante convocatoria establecida para cada venta específica. Toda convocatoria debe ser aprobada previamente por la Comisión Asesora de Contrataciones correspondiente.

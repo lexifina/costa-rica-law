@@ -1,1 +1,0 @@
-117.—La Unidad de Asuntos Jurídicos redactará únicamente contratos que se firmen e inicien su ejecución en fecha posterior a la emisión de la autorización de compra respectiva, no será admisible solicitudes de elaboración de contrato cuando las obras se hubiesen iniciado o el servicio hubiese sido recibido.

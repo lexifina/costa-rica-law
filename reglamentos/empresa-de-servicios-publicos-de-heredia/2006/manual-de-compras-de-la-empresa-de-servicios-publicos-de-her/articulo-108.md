@@ -1,1 +1,0 @@
-108.—Se podrán realizar ventas directas de bienes, materiales y equipos de uso normal y ordinario a instituciones o empresas afines con la actividad de la E.S.P.H. S. A., lo anterior considerando los precios de mercado y con la aprobación de la Junta Directiva.

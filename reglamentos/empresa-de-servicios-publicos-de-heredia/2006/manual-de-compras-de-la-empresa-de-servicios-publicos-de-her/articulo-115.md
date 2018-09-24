@@ -1,1 +1,0 @@
-115.—La Unidad de Adquisiciones y Almacenamiento iniciará el trámite de confección del contrato, por medio de una solicitud formal (por escrito), a la Unidad de Asuntos Jurídicos, una vez firme la adjudicación.

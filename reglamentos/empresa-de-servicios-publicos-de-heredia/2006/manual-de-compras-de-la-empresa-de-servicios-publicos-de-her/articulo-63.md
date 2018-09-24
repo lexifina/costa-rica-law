@@ -1,4 +1,0 @@
-CAPÍTULO XIII
-De la ejecución, la terminación anticipada, ampliación, prórroga de
-contrato y reajuste de precios en los procesos de adquisición
-63.—Se considera como principio esencial de la contratación, la conservación del objeto del contrato, entendiéndose por éste, la prestación que debe satisfacer el proveedor a favor de la E.S.P.H. S. A. Sin embargo, a solicitud de la E.S.P.H. S. A., aquél podrá modificarse para la ejecución de trabajos extraordinarios que se relacionen con el objeto del contrato, mediante addendum conforme a las previsiones establecidas en el artículo 27 de este Manual. Aquellos trabajos extraordinarios que no modifiquen el objeto contractual, entendidos estos, como variaciones o cambios en la obra que son complementarios y vienen a mejorar el resultado originalmente planteado.

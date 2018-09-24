@@ -1,1 +1,0 @@
-114.—Se elaborará un contrato para cada una de las adquisiciones de obras y servicios que contraiga la E.S.P.H. S. A., con terceros, cuando así lo establezca las condiciones del cartel, o lo requieran las partes.

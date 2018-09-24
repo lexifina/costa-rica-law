@@ -1,1 +1,0 @@
-121.—El contrato debe ser firmado por las partes interesadas, en la Unidad de Asuntos Jurídicos, en presencia del abogado autenticante o testigos, previa entrega de las especies fiscales respectivas cuando corresponda.

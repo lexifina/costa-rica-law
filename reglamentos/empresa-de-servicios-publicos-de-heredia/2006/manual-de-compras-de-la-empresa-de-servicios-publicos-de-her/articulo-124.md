@@ -1,1 +1,0 @@
-124.—La Unidad de Adquisiciones y Almacenamiento, confeccionará la orden de compra respectiva, en el plazo de tres días hábiles a partir del recibo de contrato refrendado, notificando al contratista y le prevendrá a efecto de que se apersone a retirar la orden de compra y dar inicio a la prestación, conforme a lo que contractualmente se haya pactado.

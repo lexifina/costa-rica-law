@@ -1,1 +1,0 @@
-55.—La devolución de la Garantía de Participación, se hará después de la firmeza del acto de adjudicación, excepto al adjudicatario, a quien se le devolverá una vez presentada la Garantía de Cumplimiento.

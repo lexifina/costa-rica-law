@@ -1,2 +1,0 @@
-8º—La Comisión estará integrada en forma permanente por los siguientes funcionarios: El líder de la Unidad de Adquisiciones y Almacenamiento o su representante, el líder de la UEN interesada o representante, el líder de la Unidad de Asuntos Jurídicos o su representante.
-En caso que se requiera un análisis económico-financiero, se solicitará la participación al Director Financiero Contable o su representante. Los titulares o sus representantes participan únicamente en los casos específicos de su competencia.

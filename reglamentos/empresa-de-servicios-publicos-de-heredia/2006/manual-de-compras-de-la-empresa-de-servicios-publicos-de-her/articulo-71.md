@@ -1,1 +1,0 @@
-71.—En el caso de que se rescinda la contratación por motivos de interés de la E.S.P.H. S. A., ésta cubrirá los daños y perjuicios ocasionados al contratista, si la rescisión fuera por caso fortuito o fuerza mayor, la E.S.P.H. S. A., cancelará sólo el porcentaje de la parte debidamente ejecutada.
