@@ -1,1 +1,0 @@
-Artículo 4º—La delegación de la condición de miembro de la Comisión de Licitaciones, solo procederá para casos concretos muy calificados previa coordinación con la jefatura respectiva. En caso de ausencia del Subgerente de la Institución , la presidencia será ejercida por el Director Administrativo-Financiero.

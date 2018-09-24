@@ -1,4 +1,0 @@
-Acuerdo N° 2971.—La Junta Directiva del Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento (SENARA), con el Acuerdo N° 2971 de sesión ordinaria N° 457-04, celebrada el día 6 de julio del año 2004, y en el ejercicio de las atribuciones que le confiere el artículo 188 de la Constitución Política; el artículo 6 inciso a) de la Ley de Creación del SENARA (Ley N° 6877) y el artículo 6, inciso e) de la Ley General de la Administración Pública (Ley N° 6227), acuerda promulgar el siguiente:
-(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra en sesión N° 618 del 5 de noviembre de 2012, y se reproduce a continuación:)
-REGLAMENTO DE LA COMISIÓN DE LICITACIONES
-Artículo 1º—Créase una comisión denominada “Comisión de Licitaciones”, cuya labor fundamental consistirá en dirigir los procedimientos de contrataciones de licitaciones públicas y abreviadas, y recomendar el acto de adjudicación.

@@ -1,1 +1,0 @@
-Artículo 5º—La Comisión de Licitaciones sesionará ordinariamente dos veces al mes y extraordinariamente cada vez que lo considere necesario. En el mes de enero de cada año se elaborará y aprobará un calendario de sesiones ordinarias.
