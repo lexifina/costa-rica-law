@@ -14,3 +14,4 @@ Reglamento para el cobro de los trámites de registro y control de productos qu�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-02-16 | la propia norma |
+| 2 | 2018-09-24 | Decreto Ejecutivo 41423 (2018-09-24) |
