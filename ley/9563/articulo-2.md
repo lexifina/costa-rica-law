@@ -1,0 +1,2 @@
+ARTÍCULO 2- Autorización
+Se autoriza a la Municipalidad de Pérez Zeledón, cédula jurídica número tres – cero uno cuatro – cero cuatro dos cero cinco seis (N.° 3-014-042056), para que done a la Asociación de Desarrollo Integral de Barrio San Andrés de San Isidro de Pérez Zeledón, cédula jurídica número tres – cero cero dos – cero ocho siete nueve cero cero (N.° 3-002-087900), el terreno desafectado en el artículo anterior.
