@@ -89,19 +89,13 @@ Este factor corresponde a los $2.00 por cada $3.500.00 adicionales.
 Los montos sobre los cuales se realizaran los cobros, son los declarados por el cliente en las planillas de conducción.
 b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro adjunto)
 Vargas Mejía (VMA)
-[imagen]
-[imagen]
-[imagen]
 Proval
-[imagen]
-[imagen]
 (Así reformado el punto 2.16) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
 2.17.-Retiro de efectivo en ventanilla, pensionados de la C.C.S.S.
 ¢100.00 por cada retiro, para aquellas cuentas cuyo saldo semestral sea inferior a $500.
 2.17.- Comisión para la entrega de efectivo para instituciones del sector
 financiero
 Nota: la tabla para el cálculo de la comisión se encuentra disponible en SOMOS BCR/DOCUBCR/Formularios.
-[imagen]
 (Así reformado el punto anterior mediante sesión N° 03-17 del 18 de enero del 2017. Se publica dos veces el punto 17, por lo que se transcriben ambas reformas)
 2.18.- Comisión por sobregiros accidentales
 Se cobrará tasa para los sobregiros, proporcional al número de días de su utilización.
@@ -162,6 +156,9 @@ Hasta $200.00 2.0%
 Exceso $201.00 a $1.800.00 1.5%
 Exceso de $1,801.00 en adelante 0.5%
 (Así reformado el punto 2.32) anterior en sesión N° 44 del 14 de octubre de 2015)
+(Nota de Sinalevi: mediante sesión N° 49-18 del 24 de setiembre del 2018 se reforma el punto 2.32 de la presente norma. Al no coincidir el texto con la reforma se transcribe a continuación: “2.32. Cobros por depósitos masivos en cuentas depositados desde el canal Tucán
+$2.00 por cada depósito o nota de crédito sean estos físicos o electrónicos, a todas las cuentas bancarias que se compruebe que están recibiendo más de 50 acreditaciones mensuales, durante el último mes, desde puntos Tucán.
+El cobro se realizará por la totalidad de acreditaciones recibidas en la cuenta (a partir del depósito 1)”)
 2.33.- Servicio de investigación de documentos o información que solicitan los clientes, para localizar comprobantes de caja, cheques y otros
 2.33.1 Copias de microfilm $6.00 primeras 5 páginas y $1.20 por cada hoja adicional.
 2.33.2 Comprobantes de caja, imágenes digitalizadas y otros $2.00 máximo tres fotocopias, $0.50 por folio adicional.

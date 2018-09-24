@@ -18,20 +18,18 @@ $0.010
 (Así reformado el punto 4.6) anterior en sesión N° 44 del 14 de octubre de 2015)
 4.7.- Certificados Digital
 A- Clientes BCR
-Emisión $46.00 por certificado
-Solo lector $28.00
-Solo tarjeta $20.00
-Renovación $12.00
-Cambio PIN -desbloqueo $5.00
-Solo certificado $12.00
+Emisión $65.00 por certificado
+Solo lector $30.00
+Solo tarjeta $32.00
+Renovación $32.00
+Cambio PIN - Desbloqueo $5.00
 B- Usuarios BCR (denominados como aquellos usuarios que no tienen ninguna relación comercial con el BCR)
-Emisión $56.00 por certificado
-Solo lector $32.00
-Solo tarjeta $24.00
-Renovación $52.00
-Cambio PIN -desbloqueo $10.00
-Solo certificado $15.00
-(Así reformado el punto 4.7) anterior en sesión N° 44 del 14 de octubre de 2015)
+Emisión $75.00 por certificado
+Solo lector $39.00
+Solo tarjeta $32.00
+Renovación $32.00
+Cambio PIN – Desbloqueo $10.00
+(Así reformado el punto 4.7) anterior en sesión N° 49-18 del 24 de setiembre de 2018)
 4.8.- Servicio Quick Pass
 Servicio | Costo
 Adquisición del dispositivo | $35.00

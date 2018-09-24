@@ -34,4 +34,10 @@ El costo del equipo depende del valor de mercado en el momento de la reposición
 - Para 16 meses 22,07%
 - Para 24 meses 24.52%
 (Así reformado mediante sesión N° 03-17 del 18 de enero del 2017)
+(Nota de Sinalevi: Mediante sesión N° 49-18 del 24 de setiembre del 2018, se indica reformar el punto 10.4). Al no o contener la norma dicho punto el mismo se transcribe a continuación: “10. Otras tarifas
+(…)
+10.4- Trámite de licencias, pasaportes y Dimex
+Pasaporte y Dimex $8.00
+Licencias de conducir $7.00
+(…)”)
 San José, 28 de noviembre del 2012.
