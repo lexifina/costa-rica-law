@@ -1,0 +1,1 @@
+ARTÍCULO 3- En caso de que se disuelva la persona jurídica donataria, la propiedad del terreno donado volverá a ser de la Municipalidad de Heredia y deberá de inscribirse esta condición y limitación como un gravamen sobre ese inmueble.
