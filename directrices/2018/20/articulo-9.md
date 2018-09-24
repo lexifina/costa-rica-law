@@ -1,0 +1,1 @@
+Artículo 9.- El Ministerio de Economía, Industria y Comercio, por medio de la Dirección de Mejora Regulatoria, emitirá un informe, que hará público y mantendrá en su sitio web, sobre el cumplimiento de cada ente y órgano del Estado con su obligación legal y reglamentaria de proporcionar información al Catálogo Nacional de Trámites.

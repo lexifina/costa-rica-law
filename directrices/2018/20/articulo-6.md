@@ -1,0 +1,1 @@
+Artículo 6.- Se ordena a los jerarcas de Administración Central y se instruye a los jerarcas de la Administración Descentralizada a destinar los recursos financieros, humanos, jurídicos (incluidos convenios de cooperación) y materiales necesarios para profundizar acciones en materia de mejora regulatoria y el cabal cumplimiento de esta directriz.

@@ -1,0 +1,6 @@
+Artículo 5.- Plazos. El seguimiento de la presente Directriz será por medio de la Dirección de Mejora Regulatoria del MEIC, conforme los siguientes plazos para cada uno de los incisos del artículo 4 de la presente directriz:
+a) Para el inciso “a” la información debe estar en el Catálogo Nacional de Trámites a más tardar 10 días hábiles a partir de la publicación de la presente directriz.
+b) Para el inciso “b” la información debe estar en el Catálogo Nacional de Trámites un mes a partir de la publicación de la presente directriz.
+c) Para el inciso “c” la segunda quincena octubre de conformidad con el artículo con el artículo 19 del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos No. 37045- MP-MEIC.
+d) Para el inciso “d” la información debe ser remitida seis meses a partir de la publicación de la presente directriz.
+El Ministerio de Economía, Industria y Comercio, por medio de la Dirección de Mejora Regulatoria, dará seguimiento a la presente directriz y se reportará al Consejo de Gobierno el avance y cumplimiento por parte de las instituciones públicas cada dos meses, en las fechas y sesiones que determine la Presidencia de la República.
