@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de becas municipales a estudiantes del Cantón d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-04-05 | la propia norma |
+| 2 | 2018-09-24 | Reglamento municipal 128 (2018-09-24) |

@@ -1,3 +1,4 @@
-CAPÍTULO VI
-Disposiciones finales
-Artículo 17.—Sobre la interpretación auténtica. Cualquier discusión relativa a los procesos que establece el presente Reglamento, podrá ser aclarada por el Concejo Municipal, órgano que tiene la competencia de la interpretación auténtica de la norma.
+Artículo 17.—Este reglamento deroga cualquier otra disposición anterior que se le oponga.
+Acuerdo. Cuenta con siete votos
+23 de febrero, 2018. Publicación por segunda vez.
+Es todo. Rige a partir de su segunda publicación.

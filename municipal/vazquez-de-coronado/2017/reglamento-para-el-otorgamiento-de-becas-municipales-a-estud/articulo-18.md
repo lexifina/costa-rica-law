@@ -1,4 +1,1 @@
-Artículo 18.—Este reglamento deroga cualquier otra disposición que se le oponga.
-Acuerdo. Cuenta con siete votos
-23 de febrero, 2018. Publicación por segunda vez.
-Es todo. Rige a partir de su segunda publicación.
+Artículo 18.— (El texto de este artículo debe de ser consultado en el numeral 17, ya que sesión N° 128-2018 del 24 de setiembre de 2018, se ordena corre la numeración a partir del artículo 17 para corregir error de numeración.)

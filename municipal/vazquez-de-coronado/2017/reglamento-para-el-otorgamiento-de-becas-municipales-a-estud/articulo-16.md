@@ -1,1 +1,3 @@
-Artículo 16.—(Nota de Sinalevi: En la publicación de este reglamento no aparece este artículo, por lo que se ha creado el mismo pero sin texto)
+CAPÍTULO VI
+Disposiciones finales
+Artículo 16.—Sobre la interpretación auténtica. Cualquier discusión relativa a los procesos que establece el presente Reglamento, podrá ser aclarada por el Concejo Municipal, órgano que tiene la competencia de la interpretación auténtica de la norma.
