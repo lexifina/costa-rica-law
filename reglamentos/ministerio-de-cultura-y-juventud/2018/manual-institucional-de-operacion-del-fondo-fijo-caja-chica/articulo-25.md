@@ -1,0 +1,1 @@
+ARTÍCULO 25.- El Fondo General de Caja Chica así como sus Cajas Auxiliares, estarán sujetos a arqueos mensuales y sorpresivos por parte del o la Coordinador del Área de Control y Seguimiento del Departamento Financiero Contable del Ministerio. El Encargado de la operación del Fondo, está obligado a brindar la información requerida para estos efectos.

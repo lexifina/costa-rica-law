@@ -1,0 +1,1 @@
+ARTÍCULO 27.- Todos los Fondos de dinero establecidos al amparo de este Manual operarán por medio del Sistema de Fondo Fijo, lo que implica que el Encargado del Fondo tendrá en todo momento la suma total asignada, representada por efectivo en caja o bancos y los documentos que respaldan las operaciones.

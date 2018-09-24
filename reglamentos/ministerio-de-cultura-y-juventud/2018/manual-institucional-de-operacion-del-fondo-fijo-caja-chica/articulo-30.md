@@ -1,0 +1,1 @@
+ARTÍCULO 30.- El responsable o su superior inmediato que permita y oculte un faltante o cualquier manejo irregular en el Fondo de Caja Chica a su cargo, incurrirán en falta grave, haciéndose acreedores a las sanciones que corresponda.

@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Las disposiciones aquí establecidas son de carácter general y de aplicación obligatoria a los "Fondos de Caja Chica" existentes o las Cajas Auxiliares que se establezcan en el futuro en el Ministerio, y las que establezcan el Fondo General del Gobierno.

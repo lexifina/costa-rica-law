@@ -1,0 +1,2 @@
+ARTÍCULO 5.- Para incurrir en gastos por medio del Fondo Fijo-Caja Chica debidamente autorizados por el Jefe de la Unidad Financiera, se deberá acatar los límites económicos establecidos por la Tesorería Nacional y comunicados vía directriz al inicio de cada período presupuestario, de acuerdo con la normativa aplicable.
+Para las compras de bienes o servicios por montos superiores al límite de gasto establecido, deberá existir autorización previa por parte de la Tesorería Nacional.

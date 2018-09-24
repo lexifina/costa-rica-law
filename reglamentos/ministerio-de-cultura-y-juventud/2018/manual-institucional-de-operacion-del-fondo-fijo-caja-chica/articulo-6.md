@@ -1,0 +1,1 @@
+ARTÍCULO 6.- Es responsabilidad del Jefe de la Unidad Financiera, mantener actualizada la configuración del Fondo General y comunicar a la Tesorería Nacional del Ministerio de Hacienda sus variaciones.

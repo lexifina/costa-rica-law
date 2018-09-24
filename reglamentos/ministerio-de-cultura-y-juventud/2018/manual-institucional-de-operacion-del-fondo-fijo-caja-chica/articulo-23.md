@@ -1,0 +1,3 @@
+CAPÍTULO V
+MECANISMOS DE CONTROL
+ARTÍCULO 23.- Le corresponde al responsable del Fondo Fijo-Caja Chica establecer, evaluar y mantener un adecuado Sistema de Control del Fondo autorizado, en concordancia con las sanas prácticas de Control Interno, establecidas en la Ley No. 8292 del 31 de julio de 2002, Ley General de Control Interno, el Decreto Ejecutivo Nº. 32874-H del 31 de enero de 2006, Reglamento General del Fondo Cajas Chicas, la Resolución del Despacho del Contralor General de la República de las 8:00 horas del 27 de mayo de 2001, Manual de Normas Generales de Control Interno para la Contraloría General de la República y las entidades y órganos sujetos a su fiscalización y en los lineamientos que al efecto emita la Tesorería Nacional.

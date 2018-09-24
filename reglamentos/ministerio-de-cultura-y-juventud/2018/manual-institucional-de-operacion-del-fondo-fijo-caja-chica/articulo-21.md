@@ -1,0 +1,1 @@
+ARTÍCULO 21.- La solicitud de reembolso del Fondo de Caja Chica será confeccionada por el encargado y revisado por el o la Coordinador(a) del Área de Tesorería del Departamento Financiero Contable, antes que se autorice la emisión del cheque de reintegro.

@@ -1,0 +1,1 @@
+ARTÍCULO 8.- El Jefe de Unidad Financiera o quién lo representa, podrá autorizar excepcionalmente, cuando los Programas lo justifiquen, la adquisición de bienes y servicios que superen el monto establecido en la Caja Chica con la autorización previa de la Tesorería Nacional.

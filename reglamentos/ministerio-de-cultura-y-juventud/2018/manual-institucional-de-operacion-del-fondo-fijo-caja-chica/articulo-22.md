@@ -1,0 +1,4 @@
+ARTÍCULO 22.- Los reembolsos periódicos tanto de la Caja General como de las Cajas Auxiliares, estipulados en este Manual, seguirán el siguiente trámite de reintegro de Fondos:
+a-. El encargado del Fondo de la Caja Chica remitirá el formulario de reintegro de Caja Chica debidamente confeccionado, junto con los comprobantes respectivos, sellados, aprobados y debidamente firmados.
+b-. El Coordinador del Área de Tesorería revisará la solicitud en cuanto a: Códigos presupuestarios, legitimidad de los comprobantes, operaciones aritméticas y demás requisitos establecidos por este Manual.
+c-. Una vez cumplido lo estipulado en el inciso anterior, se procederá a la emisión del cheque o la trasferencia electrónica, a nombre del responsable del manejo de la Caja Chica para el reintegro al Fondo General.

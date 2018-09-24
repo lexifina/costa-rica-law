@@ -1,0 +1,1 @@
+ARTÍCULO 40.- Este Manual se presumirá de conocimiento, tanto de los responsables del control, como del encargado del manejo del Fondo de la Caja Chica y demás funcionarios. Será de observancia obligatoria para todos desde el momento de su comunicación a todos los funcionarios.
