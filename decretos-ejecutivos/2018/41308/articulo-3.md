@@ -1,0 +1,1 @@
+Artículo 3.- Córrase la numeración de los capítulos y artículos siguientes del “Reglamento Autónomo de Servicio del Ministerio de Comercio Exterior”, Decreto Ejecutivo N° 24924- COMEX del 22 de diciembre de 1995, a partir del Capítulo XX adicionado mediante el presente Decreto Ejecutivo.
