@@ -1,1 +1,0 @@
-Artículo 6º—Vigencia: La vigencia de esta resolución genérica queda sujeta a que mediante leyes aprobadas con posterioridad, se dejen sin efecto o se disminuyan las exenciones reconocidas a favor de los beneficiarios de exenciones. Rige a partir de la fecha de su publicación.

@@ -1,1 +1,0 @@
-Artículo 4º—Resolución del Departamento de Gestión de Exenciones: El Departamento de Gestión de Exenciones luego de revisada la solicitud y de considerar pertinente la autorización, emitirá formal aprobación con referencia a este número de resolución.
