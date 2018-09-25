@@ -1,0 +1,1 @@
+Artículo 17.- Pago: El pago de los tributos debe ser efectuado por los sujetos pasivos de la relación jurídica. Los terceros extraños a la obligación tributaria también pueden realizar el pago en cuyo caso opera la subrogación. figura regulada en el artículo 37 del Código de Normas y Procedimientos Tributarios.

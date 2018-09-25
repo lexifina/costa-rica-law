@@ -1,0 +1,1 @@
+Artículo 6.-Obligaciones. El sujeto pasivo está obligado al pago del tributo y al cumplimiento de los deberes formales establecidos en la Ley 'N° 8488 y en el presente Reglamento, así como suministrar la información solicitada necesaria para la determinación del tributo.

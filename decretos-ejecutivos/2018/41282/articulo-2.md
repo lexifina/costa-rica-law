@@ -1,0 +1,15 @@
+Artículo 2.- Definiciones. Para todos los efectos legales que se deriven de la aplicación de este reglamento, debe entenderse por:
+a. Administración Tributaria: Se entiende por Administración Tributaria el órgano administrativo encargado de gestionar y fiscalizar los tributos, que en el caso de aplicación de la Ley, N° 8488, es la Comisión Nacional de Emergencias.
+b. Ganancia o Utilidad: Es el resultado obtenido del total de ingresos reales percibidos por la venta de bienes y servicios prestados menos el costo de los mismos y los gastos de operación incurridos durante el periodo del ejercicio económico para la Administración Pública.
+c. Hecho Generador: El hecho generador de la obligación tributaria es el presupuesto establecido por la ley para tipificar el tributo y cuya realización origina el nacimiento de la obligación.
+d. Ley N° 8488: Ley Nacional de Emergencias y Prevención del Riesgo.
+e. CNE: Comisión Nacional de Prevención de Riesgos y Atención de Emergencias
+f. CNPT: Código de Normas y Procedimientos Tributarios
+g. Obligación Tributaria: La obligación tributaria surge entre el Estado u otros entes públicos y los sujetos pasivos en cuanto ocurre el hecho generador previsto en el artículo 46 de la Ley N° 8488 de 22 de noviembre de 2005, Lev Nacional de Emergencias y Prevención del Riesgo y constituye un vínculo de carácter personal, aunque sus cumplimientos se asegure mediante garantía real o con privilegios especiales.
+h. Sujeto Activo: Es sujeto activo de la relación jurídica, el ente acreedor del tributo, y para efectos de la Ley N° 8488 de 22 de noviembre de 2005, Ley Nacional de Emergencias y Prevención del Riesgo y de este Reglamento, será la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias.
+i. Sujeto Pasivo: Es sujeto pasivo de la relación jurídica la persona obligada al cumplimiento de las prestaciones tributarias, sea en calidad de contribuyente o de responsable y para efectos del presente reglamento todas las instituciones públicas, de la Administración Central, , Descentralizada y las Empresas Públicas,.
+j. Superávit: Se considerará como superávit el resultado obtenido de la totalidad de las distintas fuentes de financiamiento incorporadas en los presupuestos, menos la totalidad de los egresos ejecutados durante el período del ejercicio presupuestario establecido para la Administración Pública.
+k. Superávit específico: Exceso de ingresos ejecutados sobre los gastos ejecutados al final de un ejercicio presupuestario que por disposiciones especiales o legales tienen que destinarse a un fin específico.
+l. Superávit libre: Exceso de ingresos ejecutados sobre los gastos ejecutados al final de un ejercicio presupuestario que son de libre disponibilidad en cuanto al tipo de gastos que puede financiar y que no se encuentra regulado por disposiciones especiales o legales específicas.
+m. Tributo: Son tributos las prestaciones en dinero (impuestos,), que la Ley N° 8488 ha establecido, con el objeto de obtener recursos para el financiamiento del Sistema Nacional
+de Gestión del Riesgo.

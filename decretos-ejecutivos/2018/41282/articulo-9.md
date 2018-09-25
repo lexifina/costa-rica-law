@@ -1,0 +1,1 @@
+Artículo 9.- Del plazo de presentación de la declaración y pago del tributo. La declaración y pago del tributo deberá realizarse cada año en el período comprendido entre el primero de enero y el 31 de marzo de cada año. Si la fecha de vencimiento corresponde a un día inhábil se trasladará al día hábil siguiente.
