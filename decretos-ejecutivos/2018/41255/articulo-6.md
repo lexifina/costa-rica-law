@@ -1,0 +1,4 @@
+Artículo 6
+Información para la Determinación de Impuestos Aduaneros
+1. La Autoridad Aduanera Requerida deberá, previa solicitud, proporcionar información para asistir a la Autoridad Aduanera Requirente, cuando ésta tenga razones para dudar de la veracidad o la certeza de una declaración de importación o exportación de mercancías, en apoyo a la exacta aplicación de su Legislación Aduanera y/o en la prevención de infracciones aduaneras, incluidas aquellas que puedan derivar del ámbito aduanero al penal y configurar contrabando y/o defraudación, cuando dicha información derive de operaciones en materia de comercio exterior.
+2. La solicitud deberá especificar los procedimientos de verificación que la Autoridad Aduanera Requirente aplicó o intentó aplicar, así como la información específica solicitada.

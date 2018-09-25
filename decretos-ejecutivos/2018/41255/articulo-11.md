@@ -1,0 +1,8 @@
+Artículo 11
+Vigilancia Especial e Información
+1. La Autoridad Aduanera Requerida deberá, previa solicitud, dentro del ámbito de su competencia y posibilidades, y de conformidad con su legislación nacional vigente, proporcionar información sobre:
+a) mercancías en tránsito o en almacenaje que hayan sido utilizadas o se tengan indicios que lo hayan sido, para cometer Infracciones Aduaneras en el territorio de la Autoridad Aduanera Requirente;
+b) medios de transporte que hayan sido utilizados o se tengan indicios que lo hayan sido, para cometer Infracciones Aduaneras en el territorio de la Autoridad Aduanera Requirente:
+c) personas que hayan cometido una Infracción Aduanera o que sean sospechosas de haberla cometido en el territorio de la Autoridad Aduanera Requirente, particularmente aquellas que ingresen y salgan del territorio de la Parte Contratante a la que corresponde la Autoridad Aduanera Requerida, sin perjuicio de lo que disponga la legislación de cada Parte Contratante en materia de protección de datos personales, y
+d) ubicación de instalaciones que hayan sido utilizadas para cometer Infracciones Aduaneras en el territorio de la Autoridad Aduanera Requirente.
+2. Las Autoridades Aduaneras de las Partes Contratantes deberán mantener vigilancia por cuenta propia, en caso de que existan razones para creer que actividades en curso, en planeación o consumadas puedan constituir una Infracción Aduanera, incluyendo las que puedan derivar del ámbito aduanero al penal y configurar contrabando y/o defraudación, cuando esta última derive de operaciones en materia de comercio exterior, en el territorio de la otra Parte Contratante.
