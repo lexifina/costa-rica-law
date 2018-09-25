@@ -1,0 +1,3 @@
+TRANSITORIO ÚNICO- La contribución establecida en el artículo único de la presente ley se empezará a pagar en el año siguiente a la aprobación de esta, a razón de un cinco por ciento (5%) en los primeros tres años, un diez por ciento (10%) los siguientes tres años y a partir del sétimo año se aplicará la tasa establecida; lo anterior se aplicará siempre que sean empresas públicas del Estado que no se encuentren actualmente pagando la obligación correspondiente.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veintiséis días del mes de junio del año dos mil dieciocho.
