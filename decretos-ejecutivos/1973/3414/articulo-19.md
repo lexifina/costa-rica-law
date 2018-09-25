@@ -1,2 +1,2 @@
-ARTÍCULO 19.-La incorporación, habilitación o inhabilitación de un miembro, de un miembro temporal o de un asociado, salvo en el caso de fallecimiento, se avisará mediante publicación en el Diario Oficial, así como también en la página electrónica del Colegio Federado, y se hará dentro de un término de quince días a partir del acuerdo respectivo.
-(Así reformado por Asamblea N° 05-03/04 del 24 de marzo y 19 de mayo de 2004 mediante acuerdo N° 14)
+Artículo 19. La condición de incorporación, habilitación o inhabilitación de una empresa, miembro, de un miembro temporal o asociado, podrá ser verificada por medio del sistema de consulta en la página electrónica oficial del Colegio Federado.
+(Así reformado en sesión N° 03 del 25 de setiembre del 2018)

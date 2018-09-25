@@ -1,3 +1,9 @@
-ARTÍCULO 78.- Si en el caso a que se refiere el artículo anterior o en cualquier otro caso, hubiere lugar a la formación de un Tribunal de Honor, la Junta Directiva General lo integrará con el Director Ejecutivo, o quien lo sustituya, y dos miembros (*) escogidos, uno del Colegio a que pertenezca el acusado y el otro de libre nombramiento de la Junta Directiva General, siempre que uno y otro cumplan con los siguientes requisitos:
-Tener por lo menos cinco años de ejercer la profesión y no haber sido nunca sancionado por infracciones a la Ética Profesional.
-(*) Por resolución de la Sala Constitucional N° 5133 de las 14:46 hrs del 28 de mayo del 2002 se anuló de este inciso por inconstitucional la palabra "activo" pero únicamente en cuanto se utiliza para hacer la diferencia de trato con los miembros asociados, lo cual fue ratificado mediante asamblea N° 05-03/04 del 24 de marzo y 19 de mayo de 2004 mediante acuerdo N° 3, la cual acordó eliminar el término "activo" en razón de los dispuesto mediante el Voto dispuesto líneas atrás.
+Artículo 78. Si en el caso a que se refiere el artículo anterior o en cualquier otro caso, hubiere lugar a la formación de un Tribunal de Honor, la Junta Directiva General lo integrará conforme lo dispuesto en el artículo 59 de la Ley Orgánica del CFIA.
+Quienes funjan como miembros de Tribunal de Honor, deberán cumplir con los siguientes requisitos:
+• Tener al menos 10 años de experiencia en el área de su ejercicio profesional.
+• No haber sido sancionado por faltas a la ética profesional.
+• Aprobar el Proceso de Sistema de Actualización Profesional que realiza el CFIA.
+• Aprobar el curso que impartirá la Administración sobre los aspectos operativos y legales de los procesos administrativos disciplinarios.
+• No hallarse procesado penalmente, con auto de apertura a juicio por un delito que merezca pena de inhabilitación para el ejercicio de su profesión.
+• No haber sido condenado penalmente mediante sentencia firme por delitos contra la propiedad, buena fe, ejercicio ilegal de la profesión, administración fraudulenta y apropiaciones indebidas, confianza pública y cualquier otra conducta delictiva que pueda haber atentado contra el buen ejercicio profesional y los intereses del CFIA.
+(Así reformado en sesión N° 03 del 25 de setiembre del 2018)
