@@ -1,1 +1,2 @@
-Artículo 17.—Los miembros de la Junta Directiva pueden ser reelegidos solo por tres períodos consecutivos. No hay restricciones para la reelección no consecutiva.
+Artículo 17: Los miembros de cada comité durarán en sus cargos dos años, podrán ser reelegidos y no devengarán dietas ni remuneración alguna.
+(Así reformado en sesión N° 126 del 25 de setiembre de 2018)
