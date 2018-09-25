@@ -1,0 +1,1 @@
+Artículo 21°-. La comisión de participación de ciudadana ejecutará una herramienta de análisis y evaluación participativa con los Consejos de Distrito, una vez al año, afín de que se puedan evaluar los servicios públicos que se establecen en el Plan Anual Operativo.

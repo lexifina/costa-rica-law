@@ -1,0 +1,1 @@
+Artículo 30°-Los actores comunales y los ciudadanos en general del cantón tendrán la facultad de controlar y velar por la correcta ejecución de los proyectos desde su inicio, hasta su finalización, para ello la comisión de participación ciudadana deberá facilitar la información requerida.

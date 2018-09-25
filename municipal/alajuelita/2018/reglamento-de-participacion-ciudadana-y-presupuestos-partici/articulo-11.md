@@ -1,0 +1,5 @@
+Artículo 11°- Acceso a la Información. El municipio garantizará conforme a la ley, por medio de sus dependencias:
+a). El libre acceso a los archivos y registros municipales, cuando una persona vecina residente solicite por escrito o por correo electrónico y acredite un interés directo sobre los mismos. El mismo deberá de hacerse efectivo en un plazo no mayor a diez días hábiles, contados a partir de la petición; lo anterior salvo aquellos casos en que la Ley o los reglamentos dispongan lo contrario.
+b). El acceso a las Actas Municipales, utilizando para ello todos los medios disponibles por parte de la municipalidad.
+c) Las actas de la Junta Vial Cantonal y demás órganos colegiados de la municipalidad, después que fuesen aprobadas según lo correspondiente de acuerdo con la normativa vigente.
+d). El otorgamiento de cita por parte de las áreas administrativas y técnicas del municipio. Previa solicitud mediante nota o mediante correo electrónico, con nombre completo y número telefónico y una breve descripción del asunto a tratar.
