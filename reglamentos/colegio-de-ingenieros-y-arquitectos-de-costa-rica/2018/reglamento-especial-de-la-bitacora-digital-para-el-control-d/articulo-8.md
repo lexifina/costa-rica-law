@@ -1,0 +1,4 @@
+Artículo 8º—El código QR del proyecto que se genera con el sellado permite el acceso a la información actualizada de los profesionales responsables del proyecto, así como cualquier otra variación del mismo. Los profesionales indicados en el artículo 3 de este reglamento podrán hacer uso de este código para verificar lo correspondiente al proyecto cuando se encuentren en el sitio.
+En caso de ser necesario, el director técnico deberá mostrar dicho código a través de algún dispositivo electrónico al inspector o funcionario para que este último pueda acceder a la información actualizada del proyecto.
+El código QR del proyecto es para uso exclusivo de cada proyecto registrado, y su uso indebido será responsabilidad del director técnico.
+Sin perjuicio de las sanciones penales que correspondan ante esa vía, la alteración del código QR hará que los agremiados incurran en las faltas establecidas en los artículos 3, 9 y 31 del Código de Ética Profesional.
