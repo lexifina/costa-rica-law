@@ -11,4 +11,5 @@ g) Otros servicios: hace referencia a los servicios de correo de texto y de voz,
 h) Servicio celular: está compuesto por una unidad de comunicación bidireccional de tecnología de celdas, conocido como teléfono celular (y sus accesorios) y que a su vez debe contar con una línea de comunicación activa y provista por el Proveedor de servicios de telefonía celular.
 i) Servicio celular propiedad de la Municipalidad: está compuesto por el aparato telefónico y la línea activa asignada por el proveedor de servicios a la Municipalidad.
 j) Proveedor de Telefonía Celular: ICE o cualquier otro que exista en el futuro.
-k) Radiolocalizador: hace referencia a los instrumentos de comunicación a través de los cuales se transiten mensajes que permiten la comunicación posterior de quien los recibe con quien los envía a través de mecanismos distintos del que se usa para enviar el mensaje. En el lenguaje común se les denomina como “bíper”.
+k) Servicio de Radio Comunicador: Hace referencia a los instrumentos de comunicación que utiliza frecuencia radial, está compuesto por el radio emisor-receptor y su base. En el lenguaje común se les denomina como “walkie talkie”.
+(Así reformado el inciso anterior mediante sesión N° 126-2018 del 25 de setiembre del 2018)
