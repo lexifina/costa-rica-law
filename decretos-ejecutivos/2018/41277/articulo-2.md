@@ -1,0 +1,1 @@
+Artículo 2º—Se declara de interés público la ejecución de las acciones establecidas en “Las Políticas y Lineamientos Estratégicos, Plan Estratégico 2018-2022 Marco Conceptual, Operativo y Organizacional de la Red Nacional de Cuido y Desarrollo Infantil, de acuerdo con lo establecido en la Ley N° 9220”.
