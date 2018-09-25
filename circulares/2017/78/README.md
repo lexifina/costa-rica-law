@@ -13,3 +13,4 @@ Sobre el “Uso obligatorio de las marcas en los sistemas de grabación de audie
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-05-15 | la propia norma |
+| 2 | 2018-09-25 | Circular 127 (2018-09-25) |
