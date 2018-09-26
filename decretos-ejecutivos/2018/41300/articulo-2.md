@@ -1,0 +1,6 @@
+Artículo 2.- Para efectos del presente reglamento entiéndase por:
+1. CTAC: Consejo Técnico de Aviación Civil
+2. DGAC: Dirección General de Aviación Civil
+3. SALON EJECUTIVO Y DIPLOMÁTICO: Espacio físico dentro del edificio terminal de los aeropuertos internacionales del país, bajo la administración y control de la Dirección General de Aviación Civil, destinado a brindar la atención y recibo especial de personas debidamente acreditadas.
+4. AEROPUERTO INTERNACIONAL: Aeropuerto destinado por el Poder Ejecutivo dentro del territorio nacional, como puerto de entrada o salida para el tráfico aéreo internacional de personas, carga y correo, donde se llevan a cabo los trámites de aduanas, migración, sanidad pública, reglamentación veterinaria, fitosanitaria, procedimientos similares y en el cual se encuentra un área destinada para el Salón Ejecutivo y Diplomático.
+5. ALTOS JERARCAS DE LOS SUPREMOS PODERES DE LA REPÚBLICA: Poder Ejecutivo: Presidente de la República y sus Vicepresidentes,· los ministros y viceministros; Poder Legislativo: los Diputados de la Asamblea Legislativa; Poder Judicial: los Magistrados de la Corte Suprema de Justicia; y Tribunal Supremo de Elecciones: Magistrados del Tribunal Supremo de Elecciones.
