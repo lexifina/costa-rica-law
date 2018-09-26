@@ -1,0 +1,1 @@
+Transitorio único.—En el caso del plan de acciones priorizadas que se adjunta en esta norma, el INAMU realizará una primera revisión de resultados mínimos esperados al cumplirse un año a partir de la entrada en vigencia de este Decreto.
