@@ -1,0 +1,12 @@
+Artículo 9.-Marco normativo. La Auditoría General fundamentará su actuación, de conformidad con el principio de legalidad, en estricto cumplimiento de la siguiente normativa:
+1. Ley General de Control Interno, Ley N° 8292, publicada en La Gaceta 169 del 4 de septiembre de 2002.
+2. Ley Orgánica de la Contraloría General de la República, Ley N° 7428, publicada en La Gaceta 210 del 4 de noviembre de 1994.
+3. Normas para el Ejercicio de la Auditoría Interna en el Sector Público, de¡ 16 de diciembre de 2009, publicadas en La Gaceta N° 28 del 10 de febrero de 2010.
+4. Normas Generales de Auditoría para el Sector Público, R-DC-064-2014, publicadas en La Gaceta No. 184 del 25 de setiembre de 2014.
+5. Directrices generales sobre Principios y Enunciados Éticos a observar por parte de los Jerarcas, Titulares Subordinados, Funcionarios de la Contraloría General de la República, Auditoría Interna y Servidores Públicos en general, del 12 de noviembre de 2004, publicadas en La Gaceta N° 228 del 22 de noviembre de 2004.
+6. Lineamientos sobre los requisitos de los cargos de auditor y subauditor internos, las condiciones para las gestiones de nombramiento, suspensión y destitución de dichos cargos, y la aprobación del reglamento de organización y funcionamiento de las auditorías internas del Sector Público L-1 2006-CO-DAGJ, (modificados mediante Resolución R-DC-119-2009 del 16 de diciembre de 2009, de la Contralora General de la República, publicada en el Diario Oficial "La Gaceta" Nº 28 del miércoles 1 O de febrero de 201 O).
+7. Manual de Procedimientos para la Auditoría General del Ministerio de Obras Públicas y Transportes.
+8. Normas de Control Interno para el Sector Público, del 26 de enero de 2009, publicado en La Gaceta 26 del 6 de febrero de 2009.
+9. Directrices para la Solicitud y Asignación de Recursos a las Auditorías Internas, Resolución de la Contraloría General de la República R-DC-010-2015, publicadas en La Gaceta Nº 48 del 1 O de marzo de 2015.
+10. Directrices sobre las regulaciones administrativas aplicables a los funcionarios de las auditorías internas del Sector Público, R-DC-068-2015, publicadas en La Gaceta N. º 155 de 11 de agosto de 2015.
+11. Demás normas y prácticas técnico-profesionales pertinentes que rigen la materia y las instrucciones, metodologías, procedimientos, políticas, lineamientos, directrices y procedimientos emitidos o que en el futuro emita esta Auditoría General y la Contraloría General de la República, en el ámbito de su competencia, así como las regulaciones contenidas en el presente Reglamento.

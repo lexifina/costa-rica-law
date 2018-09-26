@@ -1,0 +1,1 @@
+Artículo 45.- Potestades. Para el desempeño de sus funciones el Auditor(a) General, el Sub auditor(a) General y el personal de Auditoría, tendrán las potestades que se establecen en el artículo 33 de la Ley General de Control Interno, así como en las restantes normas técnicas y administrativas vigentes.

@@ -1,0 +1,1 @@
+Artículo 32.- Régimen Jurídico Laboral del Auditor(a) y Sub auditor(a) Generales. El Auditor(a) y Sub auditor(a) Generales, están exceptuados del Estatuto de Servicio Civil, de acuerdo con el artículo 5 del Estatuto del Servicio Civil.

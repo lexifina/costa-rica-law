@@ -1,0 +1,5 @@
+Artículo 76.- Programa e informe de seguimiento de recomendaciones. La Auditoría General formulará y ejecutará un programa de seguimiento de recomendaciones, observaciones y demás resultantes de su propia gestión y la de los auditores externos del Ministerio y de las entidades fiscalizadores que la ley establece, cuando sean de su conocimiento, y obtendrá la evidencia necesaria, suficiente para comprobar si la Administración las está aplicando dentro de los plazos establecidos, o de lo contrario, determinará las causas y las acciones que proceden en caso de que las recomendaciones emitidas sean incumplidas injustificadamente.
+El seguimiento de las acciones sobre los resultados se hará definiendo su naturaleza, la oportunidad con que deba realizarse el seguimiento y el alcance, tomando en cuenta al menos los siguientes factores:
+a. La relevancia de las observaciones y recomendaciones que se emitieron.
+b. La complejidad y condiciones propias de las acciones pertinentes.
+c. Los efectos e impactos de la implantación de la acción.

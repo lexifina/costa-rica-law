@@ -1,0 +1,1 @@
+Artículo 47 .- Prohibiciones. El Auditor(a) y Sub auditor(a) Generales y los demás funcionarios de la Auditoría General tendrán en el desempeño de sus funciones las prohibiciones que se establecen en el artículo 34 de la Ley General de Control Interno.

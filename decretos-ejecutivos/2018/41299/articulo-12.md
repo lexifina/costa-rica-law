@@ -1,0 +1,1 @@
+Artículo 12.- Planeamiento estratégico. Mediante la implementación de un Plan estratégico, la Auditoría General deberá establecer y mantener actualizada la visión, misión y principales políticas, que regirán el accionar de la función de auditoría interna.
