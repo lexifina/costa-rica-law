@@ -1,0 +1,1 @@
+Artículo 6º—El INAMU podrá dar seguimiento al cumplimiento de esta Directriz de forma semestral, ya sea en condición de institución coordinadora o bien a través del Sistema Nacional para la Atención y la Prevención de la Violencia contra las Mujeres.
