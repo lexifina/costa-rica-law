@@ -14,3 +14,4 @@ Reglamento sobre tipologías de terrenos aceptables para proyectos en la modalid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-06-15 | la propia norma |
+| 2 | 2018-09-27 | Reglamento 55 (2018-09-27) |
