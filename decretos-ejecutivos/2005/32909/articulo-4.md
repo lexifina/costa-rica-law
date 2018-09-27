@@ -1,2 +1,0 @@
-Artículo 4º—Excepción. Salvo que pueda probarse una contratación diferente, se entenderá que el Contador Público Autorizado aceptó cobrar las tarifas mínimas aquí establecidas.
-En caso de discrepancia de honorarios entre el Contador Público Autorizado y su cliente, las partes de mutuo acuerdo podrán someter el diferendo a la decisión de la Junta Directiva del Colegio de Contadores Públicos de Costa Rica, en el entendido que si no hubiese acuerdo, cualquiera de las partes podrá acudir a los Tribunales de Justicia a ventilar su diferendo.
