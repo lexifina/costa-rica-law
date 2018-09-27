@@ -1,0 +1,1 @@
+Artículo 5º—La Policía Municipal de Tránsito, con su poder de Policía, cumple las funciones de Policía de Seguridad en el tránsito de acuerdo a las leyes que determinan su ejercicio: Ley número 9078 o aquellas que se fijen en lo sucesivo.

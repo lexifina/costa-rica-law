@@ -1,0 +1,1 @@
+Artículo 24.—Sin perjuicio de cumplimiento, cuando autoridades no policiales emitieran alguna orden, conforme a sus facultades se dará inmediato aviso al superior de quien se dependa, Alcaldía Municipal.

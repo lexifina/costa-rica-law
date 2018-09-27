@@ -1,0 +1,7 @@
+MUNICIPALIDAD DE PARAÍSO
+C-147-2018.—Ana Rosa Ramírez Bonilla, Secretaria Concejo Municipal de Paraíso, certifica: Que en la sesión ordinaria ciento setenta y siete celebrada el día 19 de junio del año dos mil dieciocho, en el artículo 03, se aprobó por unanimidad y en firme el Reglamento de la Policía Municipal de la Municipalidad de Paraíso, el cual literalmente dice:
+REGLAMENTO DE LA POLICÍA MUNICIPAL
+MUNICIPALIDAD DE PARAISO
+Generalidades
+Artículo 1º—La Municipalidad de Paraíso en el ejercicio de su autonomía municipal administrativa y de acuerdo a las necesidades propias del cantón, establece La Policía Municipal como ejecutora de tareas de tránsito y Seguridad Vial, y podrá ser conocida como La Policía Municipal de Tránsito (PMT), o Tránsito Municipal (TM), el cuál es un cuerpo especial de vigilancia y seguridad con carácter esencialmente de tránsito, que contribuye a mantener el orden en las vías públicas en el cantón de Paraíso y conformada por personas capacitadas en materia de tránsito e investidas como Inspectores Municipales de Tránsito.
+Tiene por objetivo garantizar la vida, seguridad, integridad y libertad de tránsito de los peatones, conductores y demás usuarios que circulan en la red vial del cantón de Paraíso, teniendo por fundamento y fin ejercer control, vigilancia y regulación operativa del tránsito para lograr el cumplimiento de la normativa legal establecida para personas y medios de transporte cuando transiten por las vías públicas.
