@@ -1,0 +1,2 @@
+ARTICULO 11-Visitas periódicas de la Contraloría de Servicios para efectos de información y capacitación
+La Contraloría de Servicios del Poder Judicial realizará visitas periódicas a las comunidades indígenas del país, para informar a las personas indígenas en el idioma de aquellas a quienes se dirija sobre sus derechos específicos frente a la administración de justicia, para lo cual podrá hacerse acompañar por las organizaciones sociales que estime necesarias.

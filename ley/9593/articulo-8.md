@@ -1,0 +1,1 @@
+ARTÍCULO 8- Peritaje cultural. El juez deberá solicitar peritajes culturales en aquellos procesos judiciales que requieran un peritaje especial de las costumbres, las tradiciones y los conceptos normativos de los pueblos indígenas.
