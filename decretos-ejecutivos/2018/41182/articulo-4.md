@@ -1,0 +1,4 @@
+Artículo 4º— Deróguese los siguientes Decretos Ejecutivos:
+a) Decreto Ejecutivo Nº 38508-S del 26 de mayo del 2014, publicado en La Gaceta No. 134, del 14 de julio 2014, Alcance 34 “Oficializa Manual de Normas para la Habilitación de Hospitales Generales y Servicios Especiales”.
+b) Decreto Ejecutivo Nº 30694-S del 23 de agosto del 2002, publicado en La Gaceta No. 182 del 23 de setiembre del 2002 “Normas para la Habilitación de Establecimientos que brindan la Atención en Medicina y Cirugía General y/o por Especialidades Médicas y Quirúrgicas con Internamiento con más de 20 camas”.
+c) Decreto Ejecutivo Nº 29940-S del 05 de octubre del 2001, publicado en La Gaceta No. 220 del 15 de noviembre del 2001 “Oficializa la aplicación obligatoria en establecimientos de salud públicos y privados de Normas para la Habilitación de Establecimientos con Internamiento en Medicina y Cirugía General y/o por Especialidades Médicas y Quirúrgicas”.

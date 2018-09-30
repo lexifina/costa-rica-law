@@ -1,0 +1,1 @@
+Artículo 3º— La citada Norma se pone a disposición, para las personas que deban consultarla, en la página web del Ministerio de Salud, cuya dirección electrónica es www.ministeriodesalud.go.cr. Y en físico estará disponible en las Direcciones de Áreas Rectoras de Salud.
