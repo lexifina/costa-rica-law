@@ -1,1 +1,0 @@
-7º—El presente reglamento en cuanto a pagos, se regirá por lo que establece el Reglamento de Gastos de Viajes y Transportes para funcionarios públicos, vigente y aprobado por la Contraloría General de la República.

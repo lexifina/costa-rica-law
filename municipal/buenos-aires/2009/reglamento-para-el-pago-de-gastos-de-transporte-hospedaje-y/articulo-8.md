@@ -1,1 +1,0 @@
-8º—El presente reglamento, podrá ser modificado vía acuerdo, y con la respectiva publicación, a fin de que las modificaciones resulten eficaces. No se somete a consulta pública no vinculante, por tratarse de un Reglamento Interno.
