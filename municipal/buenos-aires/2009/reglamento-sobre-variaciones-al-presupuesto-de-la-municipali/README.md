@@ -14,3 +14,4 @@ Reglamento sobre Variaciones al Presupuesto de la Municipalidad de Buenos Aires
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-10-07 | la propia norma |
+| 2 | 2018-10-01 | Reglamento municipal 125 (2018-10-01) |
