@@ -2,24 +2,24 @@ CAPITULO VII
 De la tarifa del impuesto
 ARTÍCULO 15.- Tarifa del impuesto. A la renta imponible se le aplicarán las tarifas que a continuación se establecen. El producto así obtenido constituirá el impuesto a cargo de las personas a que se refiere el artículo 2º de esta ley.
 a) Personas jurídicas: Treinta por ciento (30%).
-b) Pequeñas empresas: se consideran pequeñas empresas aquellas personas jurídicas cuyo ingreso bruto en el período fiscal no exceda de ¢106.835.000,00 y a las cuales se les aplicará, sobre la renta neta, la siguiente tarifa única, según corresponda:
-i) Hasta ¢53.113.000,00 de ingresos brutos: el 10%.
-ii) Hasta ¢106.835.000,00 de ingresos brutos: el 20%.
-(Así modificados los montos de ingresos brutos establecidos en el inciso b) anterior por el artículo 1° del decreto ejecutivo N° 40656 del 18 de setiembre de 2017, mediante un ajuste del cero coma noventa y uno por ciento (0,91%))
+b) Pequeñas empresas: se consideran pequeñas empresas aquellas personas jurídicas cuyo ingreso bruto en el período fiscal no exceda de ¢109.228.000,00 y a las cuales se les aplicará, sobre la renta neta, la siguiente tarifa única, según corresponda:
+i) Hasta ¢54.303.000,00 de ingresos brutos: el 10%.
+ii) Hasta ¢109.228.000,00 de ingresos brutos: el 20%.
+(Así modificados los montos de ingresos brutos establecidos en el inciso b) anterior por el artículo 1° del decreto ejecutivo N° 41320 del 14 de setiembre de 2018 , mediante un ajuste del dos coma veinticuatro por ciento (2,24%))
 c) A las personas físicas con actividades lucrativas se les aplicará la siguiente escala de tarifas sobre la renta imponible:
-i) Las rentas de hasta ¢3.549.000,00 anuales, no estarán sujetas al impuesto.
-ii) Sobre el exceso de ¢3.549.000,00 anuales y hasta ¢5.299.000,00 anuales, se pagará el diez por ciento (10%).
-iii) Sobre el exceso de ¢5.299.000,00 anuales y hasta ¢8.840.000,00 anuales, se pagará el quince por ciento (15%).
-iv) Sobre el exceso de ¢8.840.000,00 anuales y hasta ¢17.716.000,00 anuales, se pagará el veinte por ciento (20%).
-v) Sobre el exceso de ¢17.716.000,00 anuales, se pagará el veinticinco por ciento (25%).
-(Así modificados los tramos de renta imponible establecido en el inciso c) anterior por el artículo 2° del decreto ejecutivo N° 40656 del 18 de setiembre de 2017, mediante un ajuste del cero coma noventa y uno por ciento (0,91%))
+i) Las rentas de hasta ¢3.628.000,00 anuales, no estarán sujetas al impuesto.
+ii) Sobre el exceso de ¢3.628.000,00 anuales y hasta ¢5.418.000,00 anuales, se pagará el diez por ciento (10%).
+iii) Sobre el exceso de ¢5.418.000,00 anuales y hasta ¢9.038.000,00 anuales, se pagará el quince por ciento (15%).
+iv) Sobre el exceso de ¢9.038.000,00 anuales y hasta ¢18.113.000,00 anuales, se pagará el veinte por ciento (20%).
+v) Sobre el exceso de ¢18.113.000,00 anuales, se pagará el veinticinco por ciento (25%).
+(Así modificados los montos de ingresos brutos establecidos en el inciso c) anterior por el artículo 2° del decreto ejecutivo N° 41320 del 14 de setiembre de 2018 , mediante un ajuste del dos coma veinticuatro por ciento (2,24%))
 Las personas físicas con actividad lucrativa que además hayan recibido durante el período fiscal respectivo, ingresos por concepto de trabajo personal dependiente, o por concepto de jubilación o pensión, y estén reguladas en el título II de esta Ley, deberán restar del monto no sujeto referido en el anterior subinciso i) de este inciso, la parte no sujeta aplicada de los ingresos recibidos por concepto de trabajo personal dependiente, o por concepto de jubilación o pensión. En caso de que esta última exceda del monto no sujeto aludido en el anterior subinciso i), solo se aplicará el monto no sujeto en el impuesto único sobre las rentas percibidas por el trabajo personal dependiente o por concepto de jubilación y pensión u otras remuneraciones por servicios personales, en cuyo caso a las rentas netas obtenidas por las personas físicas con actividades lucrativas no se les aplicará el tramo no sujeto contemplado en el referido subinciso i), el cual estará sujeto a la tarifa establecida en el subinciso ii) de este inciso.
 (Así adicionado el párrafo anterior por el inciso b) del artículo 21 de la Ley de Simplificación y Eficiencia Tributaria de N° 8114 de 4 de julio del 2001).
 Una vez calculado el impuesto, las personas físicas que realicen actividades lucrativas tendrán derecho a los siguientes créditos del impuesto:
-a) Por cada hijo el crédito fiscal será de dieciocho mil colones (¢18.000,00) anuales, que es el resultado de multiplicar por doce (12) el monto mensual contemplado en el inciso i) del artículo 34 de esta Ley.
-(Así modificado el inciso anterior por el artículo 3° del decreto ejecutivo N° 40656 del 18 de setiembre de 2017, mediante un ajuste del cero coma noventa y uno por ciento (0,91%))
-b) Por el cónyuge el crédito fiscal será de veintiséis mil ochocientos ochenta colones (¢26.880,00) anuales, que es el resultado de multiplicar por doce (12) el monto mensual contemplado en el inciso ii) del artículo 34 de esta Ley.
-(Así modificado el inciso anterior por el artículo 3° del decreto ejecutivo N° 40656 del 18 de setiembre de 2017, mediante un ajuste del cero coma noventa y uno por ciento (0,91%))
+a) Por cada hijo el crédito fiscal será de dieciocho mil trescientos sesenta colones (¢18.360,00) anuales, que es el resultado de multiplicar por doce (12) el monto mensual contemplado en el inciso i) del artículo 34 de esta Ley.
+(Así modificado el inciso anterior por el artículo 3° del decreto ejecutivo N° 41320 del 14 de setiembre de 2018 , mediante un ajuste del dos coma veinticuatro por ciento (2,24%))
+b) Por el cónyuge el crédito fiscal será de veintisiete mil cuatrocientos ochenta colones (¢27.480,00) anuales, que es el resultado de multiplicar por doce (12) el monto mensual contemplado en el inciso ii) del artículo 34 de esta Ley.
+(Así modificado el inciso anterior por el artículo 3° del decreto ejecutivo N° 41320 del 14 de setiembre de 2018 , mediante un ajuste del dos coma veinticuatro por ciento (2,24%))
 c) Si los cónyuges estuvieran separados judicialmente, sólo se permitirá esta deducción a aquel a cuyo cargo está la manutención del otro, según disposición legal. En el caso de que ambos cónyuges sean contribuyentes, este crédito podrá ser deducido, en su totalidad, solamente por uno de ellos. Mediante los procedimientos que se establezcan en el reglamento, la Administración Tributaria comprobará el monto del ingreso bruto, y, cuando el contribuyente se incorpore al sistema, revisará periódicamente ese monto para mantenerle estas tarifas.
 (Así reformado por el artículo 106 de la Ley de Presupuesto No. 7097 de 1 de setiembre de 1988).
 El monto del ingreso bruto indicado en el inciso b) y el de la renta imponible señalado en el inciso c) deberán ser reajustados por el Poder Ejecutivo, con base en las variaciones de los índices de precios que determine el Banco Central de Costa Rica o según el aumento del costo de la vida en dicho período.
