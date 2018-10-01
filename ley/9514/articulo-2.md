@@ -30,3 +30,4 @@ Artículo 2°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Reformado por el artículo 2° de la ley N° 9604 del 7 de setiembre de 2018)
 (Reformadopor el artículo 3° de la ley N° 9604 del 7 de setiembre de 2018)
 (Modificado por el artículo 1° del decreto ejecutivo N° 41317 del 18 de setiembre de 2018)
+(Modificado por el artículo 1° del decreto ejecutivo N° 41343 del 1° de octubre de 2018)
