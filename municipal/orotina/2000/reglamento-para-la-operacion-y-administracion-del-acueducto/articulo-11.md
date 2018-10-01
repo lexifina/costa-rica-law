@@ -1,1 +1,0 @@
-Articulo 11.—Del registro y la facturación. El Departamento de Contaduría Municipal, una vez autorizada la paja de agua, de oficio registrara y facturara la conexión realizada a partir de su instalación. Dicha conexión será por tiempo indefinido, pero sujeta a las obligaciones establecidas en este Reglamento.
