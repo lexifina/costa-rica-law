@@ -1,0 +1,3 @@
+Artículo 3º—Cantidad y plazo de autorizaciones: Se podrá gestionar como máximos cinco solicitudes genéricas de importación por trimestre y por beneficiario, para los bienes y materias primas indicadas en el artículo 1 de esta resolución. No obstante, puede solicitarse nuevamente la exención sobre los mismos bienes, con al menos un mes de anticipación al vencimiento del plazo
+Se entiende para los efectos de esta resolución los siguientes trimestres: Primer trimestre enero, febrero y marzo. Segundo trimestre abril, mayo y junio. Tercer trimestre julio, agosto y setiembre. Cuarto trimestre octubre, noviembre y diciembre.
+La solicitud no podrá exceder de 30 líneas y como mínimo 5 ítems por solicitud, debiendo corresponder solamente a un ítem del Decreto por línea.

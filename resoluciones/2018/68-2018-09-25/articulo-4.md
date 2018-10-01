@@ -1,0 +1,1 @@
+Artículo 4º—Bienes excluidos en esta resolución: Bajo este procedimiento genérico no se podrán tramitar los ítems relacionados con “Equipos”, los cuales solamente se podrán autorizar por el procedimiento de solicitud concreta.
