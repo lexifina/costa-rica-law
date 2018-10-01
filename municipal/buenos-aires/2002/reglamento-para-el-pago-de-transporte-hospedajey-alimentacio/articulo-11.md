@@ -1,1 +1,0 @@
-Artículo 11.—Si por alguna circunstancia el Concejo o el Alcalde, brindan el transporte requerido para que los señores regidores y síndicos, puedan asistir sin problemas a las sesiones del Concejo, éstos en ningún momento podrán solicitar el subsidio, ni la administración otorgar el pago.

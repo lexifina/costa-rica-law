@@ -1,1 +1,0 @@
-Artículo 12.—Las tarifas por transporte, hospedaje y alimentación, serán ajustadas cuando así lo autorice la Contraloría General de la República, o la Autoridad Reguladora de los Servicios Públicos en cuanto al valor del pasaje del autobús.
