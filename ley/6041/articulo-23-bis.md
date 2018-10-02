@@ -1,0 +1,2 @@
+Artículo 23 bis- En caso de que el estudiante tenga ingreso salarial propio y este sea suficiente para garantizar el préstamo, no será necesario el aporte de otras garantías. En caso contrario, si no posee ingresos económicos y estos no son suficientes y no puede aportar otra garantía podrá solicitar total o complementariamente el aval del Fondo, según corresponda. Además, el estudiante podrá amortizar a la deuda durante el período de estudios.
+(Así adicionado por el artículo 8 de la ley N° 9618 del 2 de octubre del 2018)
