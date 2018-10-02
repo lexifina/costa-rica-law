@@ -1,0 +1,7 @@
+CIRCULAR N° 131-18
+Asunto: Competencia del Juzgado de Familia, Niñez y Adolescencia.
+A LAS AUTORIDADES JUDICIALES DEL PAÍS,
+INSTITUCIONES, ABOGADOS Y PÚBLICO EN GENERAL,
+SE LES HACE SABER QUE:
+En sesión de Corte Plena N° 40-18 celebrada el 27 de agosto de 2018, artículo XXXI, se dispuso que la competencia del Juzgado de Familia, Niñez y Adolescencia será en los siguientes términos: a) Que el Juzgado de Familia, Niñez y Adolescencia conozca los procesos especiales de protección a la niñez y la adolescencia y los que señala el numeral 116 del Código de la Niñez y la Adolescencia, las tutelas, los depósitos de personas menores de edad, la declaratoria de abandono, adopción de personas menores de edad, la utilidad y necesidad han de depender de si se trata de los intereses de una persona menor de edad o no. b) En cuanto al tema de la patria potestad, si la discusión se da entre los progenitores del niño o adolescente (conflictos de patria potestad, salidas del país, guarda, crianza y educación, visitas, etcétera) ese asunto debe conocerse por el Juzgado de Familia. Pero si lo que se pide es una protección especial para el niño como serían las suspensiones o extinciones de la patria potestad contra sus padres, no entre ellos, ese asunto debe ser conocido por el Juzgado de Niñez y la Adolescencia. c) Tendrá la competencia a nivel nacional para conocer las Adopciones Internacionales y los procesos de Restitución Internacional de Personas Menores de Edad.
+San José, 2 de octubre de 2018.
