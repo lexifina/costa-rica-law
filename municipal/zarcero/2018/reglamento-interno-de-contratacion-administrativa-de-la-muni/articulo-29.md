@@ -1,0 +1,1 @@
+ARTÍCULO 29.- COMPRAS CON FINANCIAMIENTO. Cuando se desee realizar una contratación con financiamiento, se deberá fundamentar su procedencia, y se deberá contar con el dictamen previo emitido por la Administración Financiera, Administrativa y Tributaria de la Municipalidad.

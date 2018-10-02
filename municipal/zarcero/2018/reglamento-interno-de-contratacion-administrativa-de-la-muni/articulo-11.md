@@ -1,0 +1,1 @@
+ARTÍCULO 11.- SOLICITUD DE COMPRA. Las solicitudes de compra que sean enviadas a la Proveeduría Municipal, como mínimo deberán incluir los requisitos indicados en artículo 8 del RLCA, además de aportar la certificación de disponibilidad presupuestaria. Y deben contar siempre con el visto bueno por parte de la Alcaldía Municipal.

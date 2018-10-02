@@ -1,0 +1,1 @@
+ARTÍCULO 10.- DECISIÓN INICIAL. La decisión de iniciar al procedimiento de contratación administrativa será tomada por la unidad solicitante, acreditada, al menos, los requisitos indicados en el artículo 8 del Reglamento a la Ley de Contratación Administrativa.

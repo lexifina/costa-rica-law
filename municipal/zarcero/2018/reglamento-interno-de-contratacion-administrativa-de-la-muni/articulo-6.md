@@ -1,0 +1,2 @@
+ARTÍCULO 6.- COMISION DE ANALISIS LEGAL DE LICITACIONES. La Comisión de Análisis legal de Licitaciones, estará conformada por dos funcionarios municipales propuestos por el Alcalde Municipal y un miembro del Concejo Municipal, debidamente juramentados para las funciones de la Comisión.
+La participación de cada uno de los integrantes de la comisión se limitará al estudio legal de las ofertas presentadas en cada proceso.

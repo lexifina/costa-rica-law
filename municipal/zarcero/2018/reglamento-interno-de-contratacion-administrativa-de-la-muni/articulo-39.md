@@ -1,0 +1,6 @@
+ARTICULO 39.- BIENES COMO PARTE DEL PAGO. La responsabilidad de declarar los bienes como de libre disposición, será de la Alcaldía Municipal el cual deberá contar con la aprobación del Concejo Municipal.
+ARTICULO 39.- MECANISMOS DE PAGO. La Municipalidad, podrá utilizar los medios de pago que considere más convenientes para la satisfacción de los fines municipales y para la mejor satisfacción del interés público, procurando la mayor celeridad, simplicidad y seguridad en el pago de que se trate.
+La institución utilizará de forma prioritaria los medios de pago electrónico a través de convenios con instituciones bancarias estatales, que le garanticen el control y seguridad de las transacciones realizadas.
+Para la mayor eficiencia, la municipalidad podrá adherirse a convenios de pago automático, pronto pago, o cualquier otro medio existente en el mercado que pueda significar una ventaja para la administración y los proveedores.
+El uso de cualquier medio de pago diferente a los establecidos en el código municipal, deberá ser debidamente reglamentado antes de iniciar su aplicación, y deberá estar respaldado por los convenios que le otorguen una seguridad razonable a la administración.
+(Nota de Sinalevi: En la publicación de este reglamento municipal, se consigna dos veces el numeral 39.)

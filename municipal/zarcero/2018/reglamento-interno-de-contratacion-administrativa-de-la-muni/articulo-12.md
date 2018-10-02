@@ -1,0 +1,3 @@
+ARTÍCULO 12.- INICIO DEL PROCESO DE COMPRA. El proceso de compra será iniciado una vez que la Proveeduría Municipal haya verificado que la solicitud cumple con los requisitos indicados en el presente reglamento y en la legislación vigente.
+Una vez recibida la solicitud de compra, la Proveeduría Municipal contará con un plazo de un día hábil para verificar el contenido presupuestario de la solicitud de compra.
+De determinarse que la solicitud no cumple con los requisitos establecidos, se notificará al solicitante para que, en un plazo de tres días hábiles, proceda a confeccionar las correcciones que corresponda. De no obtenerse una respuesta por parte del solicitante, se procederá a rechazar la solicitud de compra, archivando su trámite.

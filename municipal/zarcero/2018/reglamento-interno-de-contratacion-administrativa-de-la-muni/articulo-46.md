@@ -1,0 +1,1 @@
+ARTICULO 46.- ACTUALIZACIÓN DE DATOS DEL REGISTRO DE PROVEEDORES. La Proveeduría Municipal, procurará mantener vigentes a todos sus proveedores, para lo cual, se publicará en el Diario Oficial un comunicado para que los proveedores actualicen sus datos o indiquen por escrito que sus cualidades y datos se mantienen acorde a lo presentado.

@@ -1,0 +1,1 @@
+ARTICULO 36.- RECEPCION DE OBRAS. La recepción de las obras desarrolladas por la Municipalidad de Zarcero, estarán a cargo del Encargo de la unidad solicitante o el profesional designado para la recepción, donde deberá presentar los documentos de la finalización de la obra a la Proveeduría Municipal.
