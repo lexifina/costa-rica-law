@@ -14,3 +14,4 @@ Reglamento General para Autorizaciones y Permisos Sanitarios de Funcionamiento O
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-03-09 | la propia norma |
+| 2 | 2018-10-02 | Decreto Ejecutivo 41435 (2018-10-02) |
