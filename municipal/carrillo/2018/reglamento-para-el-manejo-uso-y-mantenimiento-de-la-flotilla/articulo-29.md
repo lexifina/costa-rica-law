@@ -1,0 +1,1 @@
+Artículo 29. Horario y Uso de los Vehículos. Los vehículos están destinados para uso oficial y exclusivo de la municipalidad, serán utilizados en horas y días laborales hábiles para el desempeño de funciones públicas.

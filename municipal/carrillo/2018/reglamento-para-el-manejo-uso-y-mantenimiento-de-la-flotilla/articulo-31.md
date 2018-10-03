@@ -1,0 +1,1 @@
+Artículo 31. Horario y Circulación de Vehículos de Uso De la Alcaldía y Vicealcaldía. Los vehículos asignados como de "uso de la Alcaldía y Vicealcaldía" no están sujetos a las limitaciones del artículo 26 del presente reglamento .

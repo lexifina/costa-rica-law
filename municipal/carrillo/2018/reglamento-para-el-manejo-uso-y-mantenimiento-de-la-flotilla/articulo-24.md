@@ -1,0 +1,3 @@
+Capítulo IV:
+De la Movilización y Utilización de los Vehículos
+Artículo 24. Personas Autorizadas. Se autorizará la conducción de vehículos de la Municipalidad a aquellos funcionarios que así lo requieran para el adecuado desempeño de sus labores. Esta autorización la dará la Dependencia Administrativa mediante la emisión de una boleta de autorización ó licencia municipal que deberá portar obligatoriamente, todo trabajador mientras conduce un vehículo institucional. Queda prohibido que un funcionario no autorizado conduzca vehículos municipales. Tiene la obligación de cumplir con lo establecido en el artículo 35 de este mismo reglamento.

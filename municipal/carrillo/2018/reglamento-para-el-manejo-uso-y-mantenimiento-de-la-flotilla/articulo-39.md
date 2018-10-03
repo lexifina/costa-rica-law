@@ -1,0 +1,1 @@
+Artículo 39. Prohibición de intercambiar accesorios: Los chóferes y conductores de vehículos de la Municipalidad no podrán hacer intercambios de accesorios entre las unidades, si no cuentan con la aprobación de la Dependencia Administrativa encargada del vehículo; la cual en todo caso, hará la consignación respectiva en las tarjetas que se establezcan al efecto.

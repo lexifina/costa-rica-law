@@ -1,0 +1,1 @@
+Artículo 18. Deber de Informar sobre los vehículos arrendados. La Dependencia Administrativa preparará periódicamente un resumen ejecutivo a la Alcaldía, sobre los vehículos arrendados por la Municipalidad, así como de su uso.
