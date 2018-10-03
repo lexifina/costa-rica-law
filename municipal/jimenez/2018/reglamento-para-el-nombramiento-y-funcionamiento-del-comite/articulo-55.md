@@ -1,0 +1,1 @@
+Artículo 55º- Los Comités Comunales tendrán un presidente, un vicepresidente, un secretario, un tesorero y un fiscal nombrados en la primera reunión que realicen. Sus funciones se incluyen en los artículos 17, 18,19 y 20 del presente reglamento.

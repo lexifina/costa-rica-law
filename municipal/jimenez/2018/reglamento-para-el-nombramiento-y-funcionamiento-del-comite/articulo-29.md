@@ -1,0 +1,1 @@
+Artículo 29.- En la primera sesión, que se celebre, los miembros del Comité se reunirán y mediante votación se designarán los cargos a que se refiere el artículo 13 del presente Reglamento; comunicando inmediata y formalmente al Concejo Municipal con un informe de dicha elección.

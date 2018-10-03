@@ -1,0 +1,2 @@
+Artículo 51.- Los Comités Comunales deberán llevar un archivo administrativo y financiero en el que consten los informes referentes a su gestión, Todos los acuerdos deberán constar en el libro de actas.
+Los pagos e ingresos constarán en libros de tesorería y deberán estar respaldados por los comprobantes respectivos, facturas de gastos y libro de recibos. El Comité Cantonal podrá solicitar para revisión los libros de actas y tesorería y podrá convocar a los Comités Comunales a reuniones de trabajo y revisión de su labor.

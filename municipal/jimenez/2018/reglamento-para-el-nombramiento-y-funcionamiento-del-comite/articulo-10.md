@@ -1,0 +1,1 @@
+Artículo 10º- Al estar involucradas todas las organizaciones deportivas, recreativas y comunales del cantón, la Municipalidad, a través de la Alcaldía, convocará a todas estas entidades a través de los medios de comunicación locales a una asamblea, para elegir los tres miembros representantes de las organizaciones deportivas, recreativas y comunales del cantón.

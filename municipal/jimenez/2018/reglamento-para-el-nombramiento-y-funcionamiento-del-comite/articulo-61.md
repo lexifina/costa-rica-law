@@ -1,0 +1,1 @@
+Artículo 61.-Dicho presupuesto debe reflejar las necesidades de las Asociaciones, los Comités Comunales y las comisiones que existan y de los munícipes, debiendo ser sometido para aprobación del Concejo Municipal a más tardar en la primera semana del mes de julio de cada año, según el artículo 172 Código Municipal.

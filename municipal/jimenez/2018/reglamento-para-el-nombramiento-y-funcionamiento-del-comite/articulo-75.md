@@ -1,0 +1,1 @@
+Artículo 75.- Los colores oficiales del deporte en el cantón de Jiménez son el azul y el amarillo, pudiendo usar el blanco o negro sin perjuicio del diseño artístico y estética con los dos colores anteriores, como un complemento, ocupando hasta un 50%.

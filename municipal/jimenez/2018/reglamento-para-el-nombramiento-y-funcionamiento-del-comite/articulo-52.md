@@ -1,0 +1,1 @@
+Artículo 52.- Cuando el Comité Comunal en coordinación con el Comité Cantonal realice torneos estará en la obligación de confeccionar el respectivo reglamento, el que debe será probado previamente por la JD del Comité Cantonal.

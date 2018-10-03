@@ -1,0 +1,1 @@
+Artículo 27.- Las actas aprobadas, deberán llevar obligatoriamente las firmas del Presidente y de la Secretaria del CCDRJ. El libro de actas será autorizado por la Auditoría Interna de la Municipalidad de Jiménez, las hojas previamente elaboradas por la Secretaria del CCDRJ, serán selladas por ésta.

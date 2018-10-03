@@ -1,0 +1,1 @@
+Artículo 33.- Todo miembro deberá comunicar en forma escrita, cuando proceda, las razones de su inasistencia a las sesiones, a más tardar dentro de las veinticuatro horas siguientes de celebrada la sesión, en la oficina de la Junta Directiva o por correo electrónico; caso contrario, será catalogada la inasistencia como injustificada y sancionable.

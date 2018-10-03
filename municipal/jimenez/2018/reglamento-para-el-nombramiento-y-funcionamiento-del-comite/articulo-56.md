@@ -1,0 +1,1 @@
+Artículo 56º- Los recursos que provengan del usufructo de las instalaciones deportivas y recreativas bajo la administración del Comité Comunal se aplicarán al mantenimiento, mejoras y construcción de las mismas instalaciones.

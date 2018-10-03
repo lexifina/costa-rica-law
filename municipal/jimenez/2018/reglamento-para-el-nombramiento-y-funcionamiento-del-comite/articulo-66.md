@@ -1,0 +1,1 @@
+Artículo 66.- El alquiler de instalaciones municipales deportivas y recreativas es de cobro obligatorio, los montos, las tarifas y cuotas serán fijadas anualmente, una vez que sean aprobadas por la Junta Directiva. El monto de las tarifas es de cobro exclusivo por el órgano o ente que brinda el servicio.
