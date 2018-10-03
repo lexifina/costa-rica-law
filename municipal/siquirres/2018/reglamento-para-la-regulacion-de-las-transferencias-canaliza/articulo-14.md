@@ -1,0 +1,1 @@
+Artículo 14. —Los sujetos privados, asociaciones o fundaciones que reciban fondos por transferencias deberán cumplir el fin público previsto por ley, cumplir con las reglas de lógica, justicia y conveniencia en el uso y destino de los fondos recibidos.

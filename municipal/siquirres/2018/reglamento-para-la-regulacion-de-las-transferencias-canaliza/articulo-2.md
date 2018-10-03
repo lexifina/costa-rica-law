@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. El presente Reglamento tiene como objeto regular los mecanismos de control que la Municipalidad utiliza para la asignación, giro, uso, control y liquidación de los recursos que transfiere a entidades públicas y privadas, para financiar los fines legales o estatutariamente establecidos.

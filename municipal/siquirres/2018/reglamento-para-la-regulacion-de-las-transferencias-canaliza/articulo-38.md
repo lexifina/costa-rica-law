@@ -1,0 +1,1 @@
+Artículo 38. —Del recurso de reposición. Contra la decisión final adoptada en un procedimiento ordinario cabrá recurso de reposición a interponer dentro del plazo de tres días hábiles a partir de su comunicación, ante el Alcalde Municipal, a quien corresponderá su resolución.

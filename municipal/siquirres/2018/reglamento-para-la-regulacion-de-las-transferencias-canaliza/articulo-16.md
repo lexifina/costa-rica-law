@@ -1,0 +1,2 @@
+Artículo 16. —De los informes de ejecución. Las organizaciones sociales subvencionadas, las Asociaciones o Fundaciones beneficiarias de una transferencia deberán rendir en tiempo y forma los informes de ejecución establecidos en este reglamento.
+Será responsabilidad la Auditoría Interna, velar por que los mismos sean debidamente rendidos o en su caso aclarados o subsanados de cualquier inconsistencia, aspectos sobre los cuales deberá esa Auditoría informar al Alcalde y al Concejo Municipal para lo de su cargo.
