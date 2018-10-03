@@ -22,3 +22,4 @@ Metodología para la Fijación Ordinaria de Tarifas para el Servicio Remunerado 
 | 7 | 2018-04-13 | Resolución 0 (2018-04-13) |
 | 8 | 2018-04-13 | Resolución 60 (2018-04-13) |
 | 9 | 2018-07-23 | Resolución 96 (2018-07-23) |
+| 10 | 2018-10-03 | Resolución 136 (2018-10-03) |

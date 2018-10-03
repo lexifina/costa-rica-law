@@ -1,4 +1,4 @@
-eAUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
+AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
 RJD-035-2016
 San José, dieciséis horas del veinticinco de febrero del dos mil dieciséis
 METODOLOGÍA PARA FIJACIÓN ORDINARIA DE TARIFAS PARA EL SERVICIO REMUNERADO DE PERSONAS, MODALIDAD AUTOBÚS
@@ -193,7 +193,6 @@ La presente metodología se aplica para la fijación ordinaria de las tarifas de
 4.1 Fórmula general de la metodología
 La presente metodología sigue un proceso de cálculo de la tarifa, por pasajero que paga la tarifa completa de su viaje, de cada ruta de transporte remunerado de personas, de conformidad con una serie de elementos técnicos (coeficientes y costos) de carácter general. La expresión más general de las tarifas calculadas por pasajero que paga la tarifa completa de su viaje, se obtiene de la siguiente ecuación:
 (Así reformado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
-[imagen]
 Donde:
 Tr = Tarifa por pasajero que paga la tarifa completa de su viaje de la ruta "r".
 CTr = Costos totales mensuales de la ruta "r" (ver ecuación 2).
@@ -219,7 +218,6 @@ Unidades que a la fecha de corte se encuentre en el registro de la flota autoriz
 Esta división de reglas se aplica sobre la inversión en la flota vehicular y los costos relacionados. Entre estos costos relacionados al valor de la unidad, se encuentran la depreciación de maquinaria y equipo, la rentabilidad del capital invertido en flota, rentabilidad de maquinaria y equipo, rentabilidad de proveeduría y el costo de otros gastos que también se estima a partir del valor del bus que aplique.
 4.3 Estructura general de costos
 La estructura general de costos considerados en la tarifa incluye los costos totales (CTr) para realizar una prestación adecuada del servicio en una ruta de transporte remunerado de personas; costos que se clasifican en costos fijos y costos variables. Se incluye, además, una rentabilidad sobre el capital invertido en activos necesarios para la prestación del servicio. En la metodología todos los cálculos se refieren a un periodo de un mes. Así, la formulación general para el cálculo de los costos totales y la rentabilidad sería la siguiente:
-[imagen]
 Donde:
 CTr = Costos totales mensuales en la ruta "r".
 CFr = Costos fijos mensuales en la ruta "r".
@@ -231,7 +229,6 @@ Por su parte, los costos variables (CVr) son aquellos que varían en forma propo
 La rentabilidad mensual (RTr) sobre el capital invertido en activos se obtiene de la suma de la rentabilidad de capital invertido en activos fijos y la rentabilidad del capital de proveeduría necesario para la prestación del servicio de transporte.
 4.4 Costos fijos
 El cálculo de los costos fijos se representa, en términos generales de la siguiente forma:
-[imagen]
 Donde:
 CFr = Costos fijos mensuales de la ruta "r".
 CDAFr = Costo mensual de depreciación de los activos fijos de la ruta "r".
@@ -250,7 +247,6 @@ La definición de cada variable que compone los costos fijos y la forma en que s
 4.4.1 Costos por depreciación de activos fijos
 Los costos mensuales de depreciación de los activos fijos (CDAFr) están compuestos por la depreciación que sufren los vehículos automotores que conforman la flota utilizada, la depreciación
 de la maquinaria, el equipo y las instalaciones, la depreciación del sistema automatizado de conteo de pasajeros y la depreciación del equipo del sistema automatizado de pago electrónico, según la siguiente ecuación:
-[imagen]
 Donde:
 CDAFr = Costo mensual de depreciación de los activos fijos en la ruta "r".
 CDFr = Costo mensual de depreciación de la flota autorizada en la ruta "r". El procedimiento para obtener este costo se detalla en la sección 4.4.1.a
@@ -263,7 +259,7 @@ Considerando lo definido sobre el valor de las unidades de transporte en la secc
 i. Para los vehículos con reglas de cálculo tarifario tipo 1
 Para estas unidades se les continuará aplicando el método de depreciación de suma de los dígitos de los años (acelerado), considerando siete años de vida útil, sin valor de rescate al cabo de ese período. Los factores de depreciación anual y acumulada para cada edad de las unidades que conforman la flota autorizada se especifican en el Cuadro 2. Para aquellas unidades de más de 7 años de edad no les corresponde ningún monto por depreciación en la tarifa debido a que se han depreciado al 100%, por lo que su factor de depreciación correspondiente es cero.
 Cuadro 2. Factores de depreciación anual de la flota por edad de la unidad para vehículos con reglas de cálculo tarifario tipo 1
-Edad de la unidad de transporte público (años) | Factor anual de depreciación [imagen] | Factor de depreciación anual acumulada [imagen]
+Edad de la unidad de transporte público (años) | Factor anual de depreciación | Factor de depreciación anual acumulada
 0 | 0,00000 | 0,00000
 1 | 0,25000 | 0,25000
 2 | 0,21429 | 0,46429
@@ -274,12 +270,11 @@ Edad de la unidad de transporte público (años) | Factor anual de depreciación
 7 | 0,03571 | 1,00000
 Más de 7 | 0,00000 | 1,00000
 Para este tipo de unidades, el cálculo del monto mensual de depreciación se hace a partir de la siguiente ecuación:
-[imagen]
 Donde:
-[imagen] = Costo mensual de depreciación de la flota autorizada en la ruta "r" del conjunto de unidades "a" Este rubro estará expresado en colones.
-[imagen] = Factor de depreciación anual de las unidades que conforman la flota autorizada para la edad "b" del conjunto de unidades "a ". Los factores anuales de depreciación de las unidades que conforman la flota autorizada según la edad "b", se obtendrán del Cuadro 2 según corresponda.  b fdf
-[imagen] = Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús sin llantas ni neumáticos de edad "b" del tipo de vehículo que se utiliza en la ruta "r", del conjunto de unidades "a". Los valores tarifarios indicados se determinan según lo indicado en la sección 4.9 de esta metodología, expresados en colones.
-[imagen] = Cantidad de unidades de la flota autorizada según la edad "b" en la ruta "r" del conjunto de unidades "a".
+= Costo mensual de depreciación de la flota autorizada en la ruta "r" del conjunto de unidades "a" Este rubro estará expresado en colones.
+= Factor de depreciación anual de las unidades que conforman la flota autorizada para la edad "b" del conjunto de unidades "a ". Los factores anuales de depreciación de las unidades que conforman la flota autorizada según la edad "b", se obtendrán del Cuadro 2 según corresponda.  b fdf
+= Valor tarifario de la unidad de transporte remunerado de personas modalidad autobús sin llantas ni neumáticos de edad "b" del tipo de vehículo que se utiliza en la ruta "r", del conjunto de unidades "a". Los valores tarifarios indicados se determinan según lo indicado en la sección 4.9 de esta metodología, expresados en colones.
+= Cantidad de unidades de la flota autorizada según la edad "b" en la ruta "r" del conjunto de unidades "a".
 a = Conjunto de vehículos con reglas de cálculo tarifario tipo 1.
 b = Edad de la unidad obtenida a partir del año de fabricación.
 r = Ruta de transporte remunerado de personas.
@@ -309,7 +304,6 @@ Edad de la unidad de transporte público (años) | Factor anual de depreciación
 16 o más | 0,00000
 Fuente: Elaboración propia.
 El costo por depreciación mensual de este tipo de unidades se da mediante la siguiente ecuación:
-[imagen]
 Donde,
 CDFr
 γ = Costo mensual de depreciación de la flota autorizada en la ruta "r" del conjunto de unidades "γ". Este rubro estará expresado en colones.
@@ -322,7 +316,6 @@ b = Edad de la unidad obtenida a partir del año de fabricación.
 r = Ruta de transporte remunerado de personas.
 γ = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
 El costo total mensual de depreciación será la suma de los vehículos con reglas de cálculo tarifario tipo 1 y los vehículos con reglas de cálculo tarifario tipo 2 que están inscritos en la flota autorizada, combinando la ecuación 5 con la ecuación 6 anterior, tal como lo indica la siguiente ecuación.
-[imagen]
 Donde se utilizan las mismas variables de las dos anteriores ecuaciones:
 CDFr = Costo mensual de depreciación de la flota autorizada en la ruta "r". Este rubro estará expresado en colones.
 a
@@ -336,15 +329,14 @@ r = Ruta de transporte remunerado de personas.
 b. Costo de depreciación de la maquinaria, el equipo y las instalaciones
 La depreciación mensual por la maquinaria, el equipo y las instalaciones (CDMEIr) se estima como una proporción de la suma de los valores tarifarios de las unidades de transporte remunerado de personas modalidad autobús con reglas de cálculo tarifario tipo 1 y tipo 2, que conforman la flota autorizada de la ruta. La estimación de este valor toma en cuenta la cantidad de unidades, los valores tarifarios según la edad obtenida a partir del año de fabricación y del tipo de vehículo utilizado en la ruta con las distintas reglas que aplican sobre la base tarifaria según se definió en el Cuadro 1.
 El costo mensual de depreciación de la maquinaria, el equipo y las instalaciones se estima finalmente al multiplicar los valores tarifarios de ambos grupos de vehículo con reglas de cálculo tarifario tipo 1 y tipo 2 por el coeficiente de depreciación mensual de maquinaria, equipo e instalaciones que se expresa conjuntamente según la ecuación siguiente:
-[imagen]
 Donde:
 CDMEIr = Costo mensual de depreciación de la maquinaria, el equipo y las instalaciones en la ruta "r". Este rubro estará expresado en colones.
 cdmei = Coeficiente de depreciación mensual de maquinaria, equipo e instalaciones. Este coeficiente es tomado de MOPT (1997) y se presenta en el Cuadro 4.
 Cuadro 4. Coeficiente de depreciación mensual maquinaria, equipo e instalaciones para cualquier tipo de ruta.
 Coeficiente de depreciación mensual maquinaria, equipo e instalaciones
 0,0001
-[imagen] = Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "" (ver ecuación 84).
-[imagen] = Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "γ" (ver ecuación 89).  VTAr
+= Valor tarifario total de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "" (ver ecuación 84).
+= Valor tarifario de la flota para las unidades de transporte remunerado de personas modalidad autobús que se utiliza en la ruta "r", del conjunto de unidades "γ" (ver ecuación 89).  VTAr
 r = Ruta de transporte remunerado de personas.
  = Conjunto de vehículos con reglas de cálculo tarifario tipo 1.
  = Conjunto de vehículos con reglas de cálculo tarifario tipo 2.
@@ -359,7 +351,6 @@ Cuadro 5. Factor de depreciación anual para el sistema automatizado de conteo d
 Tipo de Activo | Factor anual de depreciación fdscp | Vida útil (años)
 Sistema automatizado de conteo de pasajeros | 0,2000 | 5
 Para obtener la depreciación mensual para el sistema automatizado de conteo de pasajeros, se multiplica el factor de depreciación anual para el sistema automatizado de conteo de pasajeros del total de unidades de la flota autorizada, multiplicado por el valor del sistema automatizado de conteo y se divide entre doce, para expresarlo en forma mensual, lo que se refleja mediante la ecuación:
-[imagen]
 Donde:
 CDSCPr = Costo mensual de depreciación del sistema automatizado de conteo de pasajeros en la ruta "r". Este rubro estará expresado en colones.
 fdscp = Factor de depreciación anual para el sistema automatizado de conteo de pasajeros. Este factor se detalla en el Cuadro 5.
@@ -370,7 +361,6 @@ El procedimiento de cálculo de la depreciación, la vida útil y valor de resca
 El reconocimiento del costo mensual de la depreciación del sistema automatizado de conteo de pasajeros definido dentro de esta metodología, se realizará en las fijaciones tarifarias que se realicen seis meses naturales posteriores desde la entrada en vigencia de esta metodología. Este plazo anterior se establece considerando el tiempo que debe tener el operador para comprar, instalar y probar el equipo automatizado de conteo de pasajeros. El plazo establecido permite la adaptación de cambios tecnológicos y legales atinentes al servicio objeto de la presente metodología.
 4.4.2 Costos en personal de operación y mantenimiento
 El costo mensual de personal de operación y mantenimiento (CPOMr) es la suma de los salarios de los diferentes tipos de personal necesarios para la prestación del servicio, el cual incluye a los choferes, despachadores o chequeadores y los mecánicos. El costo de personal de operación y mantenimiento se formula del siguiente modo:
-[imagen]
 Donde:
 CPOMr = Costo mensual de personal de operación y mantenimiento en la ruta "r".
 CSCHr = Costo mensual por salarios de los choferes en la ruta "r". El procedimiento para obtener este costo se detalla en la sección 4.4.2.a.
@@ -406,7 +396,6 @@ Los porcentajes indicados en el Cuadro 7 pueden variar si se modifica la legisla
 El costo por salarios de cada uno de los componentes del personal de operación y mantenimiento se describe a continuación.
 a. Costos por los salarios de los choferes
 El cálculo de los costos mensuales por los salarios de los choferes (CSCHr) se realiza de la siguiente forma:
-[imagen]
 Donde:
 CSCHr = Costo mensual por salarios de los choferes en la ruta "r". Este rubro estará expresado en colones.
 cchr = Coeficiente de necesidades de choferes por vehículo de la ruta "r". Este coeficiente es derivado a partir de las necesidades de conductores derivadas del esquema operativo autorizado para la ruta "r", de acuerdo al procedimiento descrito en la sección 4.10.
@@ -420,7 +409,6 @@ El plazo establecido para la actualización de los valores de los coeficientes, 
 (Así adicionado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 b. Costos por los salarios de los despachadores o chequeadores
 El cálculo de los costos mensuales por los salarios de los despachadores o chequeadores (CSDr) se realiza de la siguiente forma:
-[imagen]
 Donde:
 CSDr = Costo mensual por salarios de los despachadores o chequeadores en la ruta "r". Este rubro estará expresado en colones.
 cd = Coeficiente de necesidades de despachadores o chequeadores en la ruta "r". Este coeficiente es tomado del MOPT (1997) y se presenta en el siguiente Cuadro 8.
@@ -441,7 +429,6 @@ El plazo establecido para la actualización de los valores de los coeficientes, 
 (Así adicionado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 c. Costos por los salarios de los mecánicos
 El cálculo de los costos mensuales por los salarios de los mecánicos (CSMAr) se realiza de la siguiente forma:
-[imagen]
 (Así reformada la ecuación anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 Donde:
 CSMAr = Costo mensual por salarios de los mecánicos en la ruta "r". Este rubro estará expresado en colones.
@@ -451,7 +438,6 @@ Fr = Cantidad total de unidades de la flota autorizada de la ruta "r". Comprende
 CS = Factor de cargas sociales según la legislación vigente. Ver Cuadro 7.
 r = Ruta de transporte remunerado de personas.
 El coeficiente de necesidades de mecánicos en la ruta "r" es derivado del modelo HDM-IV, tal y como se indica en el Anexo 4 y está relacionado con la cantidad de horas de mano de obra, obtenidas a partir del kilometraje acumulado que en promedio tiene la flota autorizada en la ruta tal como se muestra en la siguiente ecuación:
-[imagen]
 Donde:
 cmar = Coeficiente de necesidades de mecánicos por vehículo en la ruta "r".
 LHr = Número de horas de mano de obra para mantenimiento por cada 1000 km en la ruta "r". Este coeficiente es derivado del modelo HDM-IV, tal y como se indica en el Anexo 4 y está relacionado con el consumo estandarizado de partes por cada 1000 km de la ruta "r".
@@ -459,21 +445,18 @@ RPMr = Recorrido promedio mensual por vehículo de la ruta "r". El valor de esta
 r = Ruta de transporte remunerado de personas
 La ecuación anterior se multiplica por el factor de días semanales laborales que tiene el mecánico anualmente expresado como la división de 1 mecánico para 48 horas semanales por 52 semanas al año.
 El número de horas de mano de obra para mantenimiento por cada 1000 km en la ruta "r" está dado por la expresión:
-[imagen]
 Donde:
 LHr = Número de horas de mano de obra para mantenimiento por cada 1000 km en la ruta "r". Este coeficiente es derivado del modelo HDM-IV, tal y como se indica en el Anexo 4 y está relacionado con el consumo estandarizado de partes por cada 1000 km de la ruta "r".
 PARTSr = Coeficiente de consumo estandarizado de partes por cada 1000 km de recorrido de la flota, como fracción del precio de reemplazo del autobús en la ruta "r". Este coeficiente es derivado del modelo HDM-IV, tal y como se indica en el Anexo 4.
 r = Ruta de transporte remunerado de personas
 El valor de 293,44 corresponde a un valor constante obtenido según el modelo HDM-IV para definir el número de horas de mantenimiento.
 El coeficiente de consumo estandarizado de partes por cada 1000 km se obtiene de la expresión:
-[imagen]
 Donde:
 PARTSr = Coeficiente de consumo estandarizado de partes por cada 1000 km de recorrido de la flota, como fracción del precio de reemplazo del autobús en la ruta "r". Este coeficiente es derivado del modelo HDM-IV, tal y como se indica en el Anexo 4.
 CKMr = Kilometraje acumulado para la edad promedio de flota autorizada en la ruta "r", más seis meses.
 (Así reformdo el punto anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 r = Ruta de transporte remunerado de personas.
 El kilometraje acumulado para edad promedio de la flota autorizada en la ruta "r" se obtiene de la ecuación:
-[imagen]
 Donde
 CKMr = Kilometraje anual acumulado para la edad promedio de flota autorizada en la ruta "r".
 EPFr =Edad promedio de la flota autorizada en la ruta "r". Corresponde al promedio simple de la edad de las unidades según lo establecido en el apartado 4.2 de esta metodología.
@@ -481,7 +464,6 @@ EPFr =Edad promedio de la flota autorizada en la ruta "r". Corresponde al promed
 RPMr = Recorrido promedio mensual por vehículo de la ruta "r". El valor de esta variable se determina según lo indicado en la sección 4.8 (ecuación 60).
 r = Ruta de transporte remunerado de personas.
 Según lo anterior, para el cálculo de mecánicos se utiliza el valor menor (en función del mínimo (Min)) entre la estimación del coeficiente por el modelo HDM-IV "cmar" y el coeficiente del modelo vigente que es de 0,80 mecánicos, tal como lo expresa la siguiente ecuación:
-[imagen]
 Donde:
 cmr = Coeficiente de necesidades de mecánicos en la ruta "r".
 cmar = Coeficiente de necesidades de mecánicos por vehículo en la ruta "r".
@@ -492,7 +474,6 @@ El plazo establecido para la actualización del valor del coeficiente, permite l
 (Así adicionado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 4.4.3 Costos en personal administrativo
 El costo mensual de personal administrativo (CPAr) se determina como una proporción del costo del personal de operación y mantenimiento:
-[imagen]
 Donde:
 CPAr = Costo mensual de personal administrativo de la ruta "r". Este rubro estará expresado en colones.
 cpa = Coeficiente de personal administrativo. Este coeficiente es tomado de MOPT (1997) y se presenta en el siguiente Cuadro 10.
@@ -507,7 +488,6 @@ El plazo establecido para la actualización del valor del coeficiente, permite l
 (Así adicionado el párrafo anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
 4.4.4 Gastos administrativos
 Los gastos administrativos (GAr) corresponden a aquellos egresos en que debe incurrir el prestador del servicio con el fin de cumplir con los requisitos formales según la normativa vigente. Dentro de este rubro se incluyen: el impuesto a la propiedad del vehículo y otros, las primas de los seguros (el obligatorio y el voluntario), la inspección técnica vehicular, los cánones (del Consejo de Transporte Público y de Aresep). Estos conceptos corresponden a un monto por cada una las unidades autorizadas para la prestación del servicio. Adicionalmente se incluyen cuando corresponda, los peajes y/o pago de transbordador(es). La ecuación de cálculo se presenta a continuación:
-[imagen]
 Donde:
 GAr = Gastos administrativos mensuales de la ruta "r".
 GDCr = Gasto mensual de derecho de circulación de la flota autorizada en la ruta "r". El procedimiento para obtener este gasto se detalla en la sección 4.4.4.a
@@ -521,7 +501,6 @@ Todos los rubros anteriormente descritos se calculan con base en la tarifa ofici
 Con excepción de los peajes y/o el gasto por transbordador, todos se calculan con base en la tarifa oficial anual o semestral, multiplicada por el tamaño de la flota, y el factor de días laborales correspondiente para obtener el valor mensual. En el caso de los peajes y/o pago de transbordos, se utiliza la tarifa oficial para la clase de vehículo autobús, multiplicada por el número promedio de carreras mensuales que pagan peaje.
 a. Gasto en derecho de circulación
 El derecho de circulación mensual incluye el monto de seguro obligatorio automotor compuesto por una prima fija que no depende de la capacidad de pasajeros del vehículo automotor más los impuestos aplicables (impuesto de venta). Además, se le debe sumar el impuesto a la propiedad de los vehículos automotores; el impuesto a favor de las municipalidades, y el monto que defina la Ley 7088 y sus reformas (Reajuste Tributario y Resolución 18ª Consejo Arancelario y Aduanero CA), el timbre por Fauna Silvestre y un impuesto de ventas sobre el seguro obligatorio automotor. Se calcula de la siguiente manera (igual para todos los vehículos):
-[imagen]
 Donde:
 GDCr = Gasto mensual de derecho de circulación de la flota autorizada de la ruta "r". Este rubro estará expresado en colones.
 VP = Valor anual de la prima del seguro obligatorio automotor (SOA) por vehículo más los impuestos aplicables (impuesto de ventas).
@@ -535,7 +514,6 @@ El monto reconocido por concepto del seguro obligatorio automotor, proviene de l
 b. Gasto en seguro voluntario
 De acuerdo a la normativa vigente (artículo 19 de la Ley N° 3503) los prestadores del servicio público de transporte de personas deben adquirir una póliza para cada vehículo que cubra la responsabilidad pecuniaria por lesión o muerte de terceros y por daños a la propiedad ajena.
 Estas coberturas son las de responsabilidad civil (coberturas A y C), donde la cobertura A es de responsabilidad civil por lesión o muerte de personas y la cobertura C de responsabilidad civil por daños a la propiedad de terceros. Los valores de las primas deben multiplicarse por dos para obtener el monto anual, ya que los datos son semestrales; además deben incluir los impuestos de ventas correspondientes. El gasto por este concepto se calcula como sigue (igual para todos los vehículos):
-[imagen]
 Donde:
 GSVr = Gasto mensual del seguro voluntario de la flota autorizada en la ruta "r". Este rubro estará expresado en colones.
 VPA = Valor de la prima A del seguro semestral por vehículo más los impuestos aplicables (impuesto de ventas).
@@ -546,7 +524,6 @@ El monto reconocido por concepto de seguro voluntario proviene de las revisiones
 c. Gasto en la inspección técnica vehicular
 De acuerdo a la normativa vigente (artículo 30, inciso a) de la Ley N° 9078) para los vehículos automotores dedicados al transporte público de personas, esta inspección debe ser realizada semestralmente a cada unidad de la flota autorizada, de manera que el monto de cada inspección técnica debe multiplicarse por dos para obtener el monto anual. La información correspondiente a
 este rubro se obtiene de la fijación correspondiente que realice Aresep, que esté vigente al día de la audiencia en la que se aplique esta metodología. La fórmula es la siguiente:
-[imagen]
 Donde:
 GRTVr = Gasto mensual de inspección técnica vehicular de la flota autorizada en la ruta "r". Este rubro estará expresado en colones.
 VRTV = Valor semestral de la inspección técnica vehicular por vehículo de transporte público de personas.
@@ -554,7 +531,6 @@ Fr = Cantidad total de unidades de la flota autorizada de la ruta "r". Comprende
 r = Ruta de transporte remunerado de personas.
 d. Gasto en canon Aresep
 Los prestadores del servicio público de transporte de personas deben pagar el canon que la Aresep requiere para el desarrollo de su labor de regulación de este servicio, el cual es un monto fijo anual aprobado por la Contraloría General de la República. La fórmula es la siguiente:
-[imagen]
 Donde:
 GARr = Gasto del canon mensual de Aresep de la flota autorizada en la ruta "r". Este rubro estará expresado en colones y se paga por vehículo de la flota autorizada.
 VCAR = Valor anual del canon de regulación de la Aresep.
@@ -562,7 +538,6 @@ Fr = Cantidad total de unidades de la flota autorizada de la ruta "r". Comprende
 r = Ruta de transporte remunerado de personas.
 e. Gasto en canon CTP
 Los prestadores del servicio público de transporte remunerado de personas, en la modalidad autobús ("de ruta" según la denominación del CTP), deben pagar al CTP el canon que se requiere para la rectoría de esta actividad, el cual es un monto fijo anual por unidad. Se calculará según la siguiente ecuación:
-[imagen]
 Donde:
 GCTPr = Gasto del canon mensual del CTP de la flota autorizada en la ruta "r". Este rubro estará expresado en colones y se paga por vehículo de la flota autorizada.
 VCTP = Valor anual del canon del CTP por vehículo de transporte público de personas, modalidad autobús.
@@ -570,7 +545,6 @@ Fr = Cantidad total de unidades de la flota autorizada de la ruta "r". Comprende
 r = Ruta de transporte remunerado de personas.
 f. Gasto en pago de peaje y/o transbordador
 A las rutas que tienen dentro de su recorrido el cobro por un peaje y/o transbordador se les reconoce dicho gasto. Para obtener el monto a pagar por concepto de peajes y/o transbordadores se obtiene el producto de la(s) tarifa(s) oficial(es) de peaje y/o transbordador por vehículo (para la clase autobús) por la cantidad de viajes al mes que efectivamente pagan la tarifa de un peaje y/o transbordador. Las tarifas oficiales de los peajes y/o transbordadores son fijadas por la Aresep. El gasto de peaje y/o transbordador se determina de la siguiente forma:
-[imagen]
 Donde:
 GPr = Gasto mensual de los peaje(s) y/o transbordador(es) en la ruta "r". Este rubro estará expresado en colones.
 CVPr = Cantidad de viajes mensuales de la ruta "r". Los valores por utilizar en el cálculo tarifario serán los que resulten de aplicar los criterios de validación de la sección 4.12.1.a. y se considerarán los viajes que efectivamente pagan el peaje(s) y/o transbordador(es) según los sentidos (ida y vuelta) de cobro cuando corresponda
@@ -816,6 +790,9 @@ y = Tipo de ruta de transporte remunerado de personas según la distancia de via
 El valor del conjunto de filtros de combustibles por autobús (ccfcy), la frecuencia de cambio de los filtros de combustible (fcfcy), y el conocimiento de reconocimiento por kilometraje improductivo (cki), estarán sujetos a variación de acuerdo con los estudios técnicos ejecutados, contratados o avalados por la Aresep. La actualización de los valores de estos coeficientes deberá someterse previamente al trámite de consulta pública establecido en el artículo 361 de la Ley General de la Administración Pública.
 El plazo establecido para la actualización de los valores de los coeficientes, permite la revisión periódica de la metodología de manera que se incorpore los cambios en el entorno financiero, así como los cambios tecnológicos y legales atinentes al servicio objeto de la presente metodología. Los casos de inclusión, eliminación de coeficientes y variación en las reglas contenidas en la metodología para definir coeficientes, deberán someterse previamente al proceso de audiencia pública previsto en el artículo 36 de la Ley N° 7593.
 (Así reformado el punto 4.5.8) anterior mediante resolución N° RJD-060-2018 del 13 de abril de 2018)
+(Nota de Sinalevi: Mediante resolución N° RE-0136-IT-2018 del 3 d eoctubre de 2018, se acodó actualizar el valor del precio del filtro de combustible para el reconocimiento del costo mensual del filtro de combustible en las fijaciones ordinarias de tarifas para el servicio de transporte remunerado de personas, modalidad autobús, según el siguiente detalle:
+Precio del filtro de combustible (PF)
+¢33.279,59.")
 4.5.9 Costo por consumo de aceite hidráulico
 El costo mensual en consumo de aceite del sistema hidráulico (CCHr), se obtiene de multiplicar el coeficiente de consumo de aceite hidráulico (ajustado por el coeficiente asociado a las condiciones de la superficie de rodamiento del recorrido de la ruta), los kilómetros recorridos por la ruta en el período de un mes y el precio del aceite hidráulico. El kilometraje recorrido al mes en la ruta se obtiene al multiplicar la distancia de la ruta (ajustada por el coeficiente de kilometraje improductivo) y la cantidad de carreras mensuales. El costo por este insumo se determina de la siguiente forma:
 Donde:
