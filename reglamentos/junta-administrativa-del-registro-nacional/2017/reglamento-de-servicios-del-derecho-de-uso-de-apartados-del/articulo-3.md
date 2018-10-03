@@ -1,0 +1,1 @@
+Artículo 3—Ubicación y cantidad. La Dirección de Servicios, determinará el número de casilleros que se brindarán a las personas usuarias, así como el lugar dentro de las instalaciones del Registro Nacional donde se ubicarán los apartados, todo ello con vista del número de solicitudes existentes y el espacio físico institucional designado.

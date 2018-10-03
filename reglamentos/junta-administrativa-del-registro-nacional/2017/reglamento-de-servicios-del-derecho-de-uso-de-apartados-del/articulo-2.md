@@ -1,0 +1,6 @@
+Artículo 2—Definición. Para los efectos de este Reglamento, se entenderán los siguientes términos:
+Apartado: Casillero en el cual se depositan documentos registrales.
+Contrato de servicio del derecho de uso de apartados: Es el contrato por el cual la Junta Administrativa del Registro Nacional, se obliga a transferir temporalmente el uso de un espacio público a otra parte denominada persona usuaria, quien a su vez se obliga a pagar por ese uso o goce un precio determinado.
+Medios de pago: Bien o instrumento autorizado por la Junta Administrativa del Registro Nacional para cancelar las obligaciones derivadas del servicio del derecho de uso de apartados.
+Orden de domiciliación: Constituye la autorización o consentimiento proporcionada por el deudor al acreedor para realizar el cobro de las tarifas mediante el cargo en la cuenta del deudor, y a la entidad del deudor atender las instrucciones del acreedor para el pago.
+Tarifa: Precio al costo que cancela la persona usuaria de forma anual por concepto de la prestación del servicio de apartado; así como el precio al costo que cancela la persona usuaria de forma ocasional por cambio de llavín o la reposición de las llaves en caso de extravío.

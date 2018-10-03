@@ -1,0 +1,1 @@
+Artículo 10. —Plazo para la cancelación de la tarifa. El pago de la tarifa correspondiente al servicio de derecho de uso deberá efectuarse a partir del 1 de diciembre y hasta el 31 de enero de cada año.

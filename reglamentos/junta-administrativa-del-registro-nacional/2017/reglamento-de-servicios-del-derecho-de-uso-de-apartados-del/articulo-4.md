@@ -1,0 +1,1 @@
+Artículo 4—Propiedad. Los apartados son propiedad exclusiva de la Junta Administrativa del Registro Nacional. La persona usuaria tiene un derecho de uso sobre un bien de dominio público, según lo dispone el artículo 154 de la Ley General de la Administración Pública.
