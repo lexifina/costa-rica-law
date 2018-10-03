@@ -1,0 +1,1 @@
+ARTÍCULO 4 Naturaleza La ejecución del gasto por medio del fondo de Caja Chica del PIMA, es un procedimiento de excepción para gastos menores e indispensables, de acuerdo con el artículo 141 del Reglamento a la Ley de Contratación Administrativa.

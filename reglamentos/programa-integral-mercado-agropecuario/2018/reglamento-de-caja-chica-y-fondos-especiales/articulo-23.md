@@ -1,0 +1,2 @@
+ARTÍCULO 23 De la escogencia del proveedor La proveeduría Institucional escogerá al proveedor idóneo para ejecutar la compra de Caja Chica garantizando un proceso expedito y oportuno, para lo cual conformará un expediente lacónico, de conformidad con el Reglamento de Compras de la Institución.
+Además deberá trasladar a la Tesorería todos los documentos y facturas originales relacionadas, de las contrataciones que se ejecutan bajo esta movilidad para su custodia.

@@ -1,0 +1,1 @@
+ARTICULO 26 Póliza de fidelidad. El responsable directo por la operación del fondo de caja chica deberá estar cubierto por una póliza de fidelidad, antes de asignarle el fondo. Dicha garantía, de conformidad con el Manual de Normas de Control Interno emitido por la contraloría General de la Republica debe ser cubierta con el propio peculio del funcionario.

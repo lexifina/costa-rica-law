@@ -1,0 +1,1 @@
+ARTICULO 31 Auditorias al fondo de Caja Chica La Auditoria Interna de PIMA de acuerdo con la Ley General de Control Interno queda facultada para hacer los arqueos y revisiones al Fondo de Caja Chica que considere necesarios de acuerdo con su plan anual de trabajo, siguiendo los procedimientos previamente establecidos.

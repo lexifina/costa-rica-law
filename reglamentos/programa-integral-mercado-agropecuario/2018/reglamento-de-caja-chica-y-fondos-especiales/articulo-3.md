@@ -1,0 +1,1 @@
+ARTÍCULO 3 Normativa aplicable: La operación del Fondo Fijo Caja Chica deberá sujetarse a las disposiciones legales, reglamentarias y directrices correspondientes al bloque de legalidad aplicable al PIMA.

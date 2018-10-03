@@ -1,0 +1,1 @@
+ARTÍCULO 16 Período para presentar liquidación La liquidación de adelanto del fondo de caja chica deberá realizarse por el funcionario correspondiente a más tardar el tercer día hábil siguiente al retiro del dinero. En caso de que el vale se liquide en fecha posterior requerirá la aprobación gerencial.

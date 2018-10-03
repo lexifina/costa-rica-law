@@ -1,0 +1,1 @@
+ARTÍCULO 7 Asignación del monto de Caja Chica: El monto inicial del fondo de Caja Chica del PIMA, será el que establezca el Consejo Directivo del PIMA, considerando lo establecido en el artículo 8 del decreto N 32874 – H Reglamento General del Fondo de Cajas Chicas.

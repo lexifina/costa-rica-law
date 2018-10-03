@@ -1,0 +1,1 @@
+ARTICULO 29 Seguridad de ubicación física del fondo: El PIMA deberá contar con las medidas de seguridad necesarias para la ubicación física del fondo de la Caja Chica, así como de los correspondientes medios de protección para la custodia del dinero y títulos valores tanto físicos como electrónicos.

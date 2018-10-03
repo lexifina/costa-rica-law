@@ -1,0 +1,1 @@
+ARTICULO 28 Registros de firmas autorizadas: El sistema informático del fondo de caja chica deberá mantener, un registro actualizado de firmas de los funcionarios autorizados para aprobar los documentos para el pago de bienes, servicios, adelantos y desembolsos y en caso de duda, debe consultar a la persona indicada.

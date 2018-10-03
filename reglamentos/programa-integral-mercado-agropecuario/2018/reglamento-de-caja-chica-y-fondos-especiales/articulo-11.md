@@ -1,0 +1,1 @@
+ARTÍCULO 11 Uso de formularios El uso de los formularios y autorizaciones se realizarán por medio del Sistema Integrado Financiero del PIMA (SIFPIMA), y su aplicación será de carácter obligatorio, previo al otorgamiento de los fondos para la compra de bienes, servicios y subproceso de Tesorería.

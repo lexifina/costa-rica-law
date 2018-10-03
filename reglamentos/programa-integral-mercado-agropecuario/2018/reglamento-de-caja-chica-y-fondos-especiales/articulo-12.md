@@ -1,0 +1,1 @@
+ARTÍCULO 12 Contenido presupuestario Toda compra de bienes y servicios o pagos que se realicen por medio del fondo de Caja Chica del PIMA, deberán contar previamente con el debido contenido presupuestario.

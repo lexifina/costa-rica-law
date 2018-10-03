@@ -1,0 +1,1 @@
+ARTICULO 19 Datos a consignar en los documentos de gastos Como medio para verificar que en el servicio adquirido se recibió a satisfacción, el solicitante del servicio anotará su nombre, firma y número de cédula en la parte posterior de la factura comercial.

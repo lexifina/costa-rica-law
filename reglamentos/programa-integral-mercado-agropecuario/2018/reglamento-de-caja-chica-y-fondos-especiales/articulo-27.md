@@ -1,0 +1,1 @@
+ARTICULO 27 Sistema de control Sera responsabilidad del líder del Proceso de Tesorería¿ y del director del área el mantener un adecuado sistema de control, acorde con la ley y normas de control interno y sanas prácticas administrativas.

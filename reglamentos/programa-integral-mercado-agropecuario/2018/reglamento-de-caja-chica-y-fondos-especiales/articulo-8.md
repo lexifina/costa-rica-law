@@ -1,0 +1,1 @@
+ARTÍCULO 8 De las variaciones en el fondo de Caja Chica: Cualquier aumento, disminución o liquidación del fondo de Caja Chica deberá ser autorizado por el Consejo Directivo del PIMA , mediante acto motivado y estimación de los gastos a sufragar por este mecanismo, por parte de la Dirección Administrativa Financiera .

@@ -1,0 +1,1 @@
+ARTÍCULO 15 Límite máximo de gasto Se podrán autorizar erogaciones a través del fondo de Caja Chica por un monto que no supere el límite del 1,5% para la adquisición de bienes y servicios, y de 0,5% para los demás casos del monto máximo correspondiente para las compras de escasa cuantía de conformidad con el artículo 27 de la Ley de Contratación Administrativa.

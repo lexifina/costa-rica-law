@@ -1,0 +1,1 @@
+ARTÍCULO 10 Uso de medios electrónicos Los trámites de reintegro al fondo se podrán realizar por medio de cheque y/o por medios electrónicos vía transferencia electrónica a través de Tesoro Digital o de un Banco Estatal.
