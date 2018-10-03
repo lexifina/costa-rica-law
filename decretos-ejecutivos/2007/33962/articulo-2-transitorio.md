@@ -1,2 +1,0 @@
-Transitorio II.—Una vez que la Comisión haya notificado los montos de las cauciones a que se refiere el Transitorio I del presente Reglamento, los respectivos funcionarios contarán con un lapso no superior a los tres meses siguientes para rendir la respectiva caución en los términos y condiciones que establece la presente normativa, transcurrido el cual sin que se haya rendido, se configurará la causal de cese del cargo sin responsabilidad patronal.
-Dado en la Presidencia de la República.—San José, a los 17 días del mes de agosto del dos mil siete.
