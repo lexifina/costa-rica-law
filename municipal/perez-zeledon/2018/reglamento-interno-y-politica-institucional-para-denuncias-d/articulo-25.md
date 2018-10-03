@@ -1,0 +1,1 @@
+Artículo 25.-Garantía para la persona denunciante y los testigos. Ninguna persona que haya denunciado ser víctima de hostigamiento sexual o haya comparecido como testigo (a) de las partes y que no se haya comprobado que existe denuncia falsa, podrá sufrir por ello perjuicio personal alguno en su empleo.

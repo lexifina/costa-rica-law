@@ -1,0 +1,1 @@
+Artículo 4º- Ámbitos de aplicación. La presente reglamentación se aplicará en las relaciones de trabajo entre funcionarios de ésta Institución o entre personas servidoras hacia usuarios en el ámbito de trabajo.

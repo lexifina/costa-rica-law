@@ -1,0 +1,1 @@
+Artículo 16.- Traslado de la denuncia. El Departamento de Recursos Humanos trasladará la denuncia dentro de un plazo de 24 horas al Alcalde o Concejo según corresponda, sin recurrir a la investigación preliminar.

@@ -1,0 +1,1 @@
+Artículo 29- Del recurso de apelación. Cabrá únicamente Recurso de Apelación contra la resolución final del procedimiento administrativo, dicho recurso deberá interponerse mediante memorial razonado, en el plazo de 8 días hábiles contados a partir de la comunicación del acto, de conformidad con el numeral 150 inciso b) del Código Municipal.

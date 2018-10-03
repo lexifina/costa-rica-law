@@ -1,0 +1,1 @@
+Transitorio: La Comisión, e Investigación de las Denuncias sobre Hostigamiento Sexual, deberá recibir un proceso intensivo de capacitación que programe el Departamento de Recursos Humanos en un plazo máximo de tres meses a partir de la vigencia del presente reglamento.

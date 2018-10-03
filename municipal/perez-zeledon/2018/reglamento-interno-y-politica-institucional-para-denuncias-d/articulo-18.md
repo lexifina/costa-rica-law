@@ -1,0 +1,1 @@
+Artículo 18.-De la ampliación de la denuncia. La Comisión de Investigación, cuando lo considere necesario podrá dar audiencia a la persona denunciante, por el plazo de tres días hábiles, para que amplié o aclare los términos de la denuncia y ofrezca nueva prueba.

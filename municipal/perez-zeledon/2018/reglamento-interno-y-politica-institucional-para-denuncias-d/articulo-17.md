@@ -1,0 +1,1 @@
+Artículo 17. Del nombramiento de la Comisión Investigadora. El Jerarca correspondiente contará con un máximo de 24 horas a partir del conocimiento de la denuncia para instaurar la comisión investigadora.

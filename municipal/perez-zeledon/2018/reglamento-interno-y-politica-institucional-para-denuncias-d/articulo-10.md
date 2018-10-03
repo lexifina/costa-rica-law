@@ -1,0 +1,1 @@
+Artículo 10.-Denuncias falsas. Quien denuncie hostigamiento sexual falso incurrirá en las conductas propias de la difamación, la injuria o la calumnia, según el Código Penal, lo cual lo hará acreedor de la sanción aplicada a falta grave previo procedimiento abierto de oficio.

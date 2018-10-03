@@ -1,0 +1,1 @@
+Artículo 23.-Desistimiento de la prueba admitida. Sin necesidad de resolución que así lo indique, se prescindirá de la prueba testimonial que luego de haberse admitido, no se hiciera presente a la correspondiente convocatoria, salvo que su deposición sea esencial para la determinación de la verdad a criterio de la Comisión.

@@ -1,0 +1,1 @@
+Artículo 26- Sanción por Prescripción. El funcionario municipal que intencionalmente o por negligencia, imprudencia o impericia permita, produzca o favorezca la prescripción de un procedimiento ordinario será sancionado por la comisión de falta grave.

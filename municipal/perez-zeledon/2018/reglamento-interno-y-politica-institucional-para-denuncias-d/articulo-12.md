@@ -1,0 +1,1 @@
+Artículo 12.- En caso de ser necesario podrán tomarse las medidas cautelares descritas en el artículo 24 de la Ley, la cuales podrán ser impuestas por el Alcalde Municipal o el Concejo según corresponda a su competencia contra el servidor denunciado.
