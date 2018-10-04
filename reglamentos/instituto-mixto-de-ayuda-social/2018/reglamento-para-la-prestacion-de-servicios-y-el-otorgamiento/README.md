@@ -14,3 +14,4 @@ Reglamento para la prestación de servicios y el otorgamiento de beneficios del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-06-01 | la propia norma |
+| 2 | 2018-10-04 | Reglamento 0 (2018-10-04) |
