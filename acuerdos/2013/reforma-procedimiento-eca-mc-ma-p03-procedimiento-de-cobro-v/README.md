@@ -15,3 +15,4 @@ Reforma Procedimiento ECA-MC-MA-P03 Procedimiento de cobro (Versión 04)
 | --- | --- | --- |
 | 1 | 2013-03-15 | la propia norma |
 | 2 | 2015-10-29 | Acuerdo 0 (2015-10-29) |
+| 3 | 2018-10-04 | Acuerdo 0 (2018-10-04) |
