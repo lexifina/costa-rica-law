@@ -21,3 +21,4 @@ Reglamento a la Ley de Régimen de Zonas Francas
 | 6 | 2012-06-25 | Ley 9046 |
 | 7 | 2016-12-20 | Decreto Ejecutivo 40141 (2016-12-20) |
 | 8 | 2018-07-16 | Decreto Ejecutivo 41263 (2018-07-16) |
+| 9 | 2018-10-04 | Decreto Ejecutivo 41346 (2018-10-04) |
