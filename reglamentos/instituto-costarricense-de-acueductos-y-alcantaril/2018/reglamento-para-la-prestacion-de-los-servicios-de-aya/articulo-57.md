@@ -1,0 +1,2 @@
+Artículo 57. —Cobro por unidades de consumo. Cuando en una conexión medida o fija, en tarifa domiciliar, que abastece a varias unidades habitacionales, la facturación se realizará por medio de la modalidad de cobro por unidades de consumo (cobro por bloque). La aplicación de esta modalidad, se hará a partir de la verificación por parte de AyA.
+Para el operador delegado, según su estructura tarifaria, el concepto de cargo fijo se sustituye por tarifa base.

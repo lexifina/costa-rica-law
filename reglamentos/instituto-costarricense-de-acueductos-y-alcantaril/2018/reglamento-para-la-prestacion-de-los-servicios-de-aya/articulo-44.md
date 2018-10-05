@@ -1,0 +1,2 @@
+Artículo 44. —De la solicitud de traslado de acometida y variación del diámetro. El usuario podrá solicitar en las Plataformas de Servicio con la debida justificación, el traslado de la acometida o variación de la capacidad del servicio. Para tales efectos deberá cumplir con los requisitos de un nuevo servicio.
+En el caso de variación del diámetro, en forma adicional, deberá presentar una memoria de cálculo que justifique la solicitud.

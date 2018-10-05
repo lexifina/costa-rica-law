@@ -1,0 +1,16 @@
+Artículo 33.- De los requisitos para la solicitud de un nuevo servicio temporal de agua. Se podrán conceder servicios temporales, para actividades no permanentes, tales como ferias, turnos, circos y para otros usos similares, por un período máximo de tres meses, el inmueble debe contar con la disponibilidad de servicios positiva, vigente y asociada a los fines, naturaleza y propósito para la que fue aprobada. Además, debe cumplir con la presentación en las Plataformas de Servicio de los siguientes requisitos de forma física o formato digital:
+a) Formulario de solicitud, proporcionado por AyA, completo y firmado por el propietario registral o representante legal.
+b) Certificación literal original vigente del inmueble con un plazo máximo de 30 días naturales de emitida. Tratándose de certificaciones digitales, conforme a la vigencia legal respectiva.
+En caso de copropietarios de inmuebles registrados en derechos, deberán presentar además de la certificación literal original vigente del inmueble del solicitante, la certificación registral con el listado de los derechos y la autorización de la mayoría simple de los copropietarios.
+c) Presentar documento de identificación original y vigente del propietario registral o representante legal, para su verificación.
+En caso de personas jurídicas, certificación de personería con un máximo de 30 días naturales de emitida, en el caso de las certificaciones digitales conforme a la vigencia legal respectiva
+d) Autorización del propietario del inmueble, donde indique quien será el responsable de la actividad temporal.
+e) Pago de la tarifa por concepto de derechos de conexión.
+f) Pago del consumo estimado aprobado.
+g) El solicitante deberá indicar, mediante documento formal adjunto al formulario de solicitud, la forma en que va a disponer las aguas residuales que se generen por la conexión solicitada.
+i) Documento en el que se estime una proyección del consumo requerido para la actividad a desarrollar, durante el plazo en que se utilizará el servicio
+La tarifa aplicable será la que corresponda conforme al uso.
+Para este tipo de servicio, se emitirán dos facturaciones, una inicial donde se estimará un pago por los servicios y una final, en la que se establece la liquidación del servicio prestado.
+AyA podrá conceder una única prórroga de hasta tres meses adicionales, siempre que el propietario justifique formalmente las razones por las que requiere ampliar el plazo de la actividad, bajo las condiciones anteriores, previo pago de los montos pendientes. Caso contrario, se procederá con la suspensión del servicio. La gestión de prórroga deberá presentarse en las Plataformas de Servicio del AyA, al menos 10 días hábiles antes del vencimiento del periodo original para el que se otorgó el servicio.
+Conforme a lo establecido en el artículo 6 de la Ley 8220, Publicada en La Gaceta No. 49 de 11 de marzo de 2002, en caso de no cumplir con la presentación de la totalidad de los requisitos, se otorgará un plazo de 10 días hábiles para que los aporte. Transcurrido el plazo sin que se atienda el requerimiento, el tramite quedará denegado y en caso de requerir el servicio deberá realizar una nueva solicitud.
+Cumplida la presentación de la totalidad de requisitos; la Institución contará con un plazo de 20 días hábiles para la resolución de la solicitud.

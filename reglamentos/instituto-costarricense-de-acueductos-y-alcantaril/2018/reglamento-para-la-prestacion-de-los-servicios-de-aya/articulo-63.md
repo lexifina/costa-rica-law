@@ -1,0 +1,2 @@
+Artículo 63. —De la multa por facturaciones vencidas. Toda factura vencida, podrá ser cancelada en cualquiera de los agentes recaudadores debidamente autorizados por AyA, con un recargo del 2% mensual sobre el monto facturado, (artículo 13, Ley General de Agua Potable).
+En caso de presentarse una queja de una factura emitida pero no cancelada, se suspenderá la obligación de pago de esta factura y las multas respectivas, hasta tanto se emita la resolución final.
