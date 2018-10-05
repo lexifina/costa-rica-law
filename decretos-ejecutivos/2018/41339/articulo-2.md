@@ -1,0 +1,1 @@
+Artículo 2º-Las autoridades de las instituciones públicas competentes en la realización de este evento promoverán entre sus funcionarios la divulgación de lo dispuesto en esta normativa y ofrecerán dentro de sus posibilidades y la normativa vigente, todas las facilidades administrativas y presupuestarias para la celebración de dichos eventos.
