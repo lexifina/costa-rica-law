@@ -16,3 +16,4 @@ Reglamento a la Ley de Armas y Explosivos
 | 1 | 2013-10-17 | la propia norma |
 | 2 | 2018-05-24 | Ley 9552 |
 | 3 | 2018-06-22 | Decreto Ejecutivo 41258 (2018-06-22) |
+| 4 | 2018-10-05 | Decreto Ejecutivo 41418 (2018-10-05) |
