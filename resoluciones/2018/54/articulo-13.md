@@ -1,0 +1,1 @@
+Artículo 13.—Acceso a EXONET. La Dirección General de Tributación, a través de la Dirección de Control Extensivo, solicitará al Departamento de Gestión de Exenciones de la Dirección General de Hacienda, los accesos al Sistema EXONET para los funcionarios tributarios que tramiten las solicitudes que presenten los obligados tributarios.

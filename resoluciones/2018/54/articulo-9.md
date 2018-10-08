@@ -1,0 +1,1 @@
+Artículo 9º—Finalización del procedimiento. Una vez en firme la resolución que resuelve la petición, la Administración Tributaria Territorial correspondiente o la Dirección de Grandes Contribuyentes Nacionales debe proceder con la contabilización respectiva del tributo.
