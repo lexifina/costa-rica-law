@@ -1,2 +1,1 @@
-ARTÍCULO 57.- Contestación y oposición.
-Salvo los casos exceptuados por la ley, antes de contestar la demanda o de oponerse las excepciones previas, en su caso, no cabrá recusación.
+ARTÍCULO 57.- Contestación y oposición. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

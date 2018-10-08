@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 818.- Quiebra.
 Lo dispuesto sobre la administración por intervención judicial y el convenio preventivo será aplicable a la quiebra.
 Las demás disposiciones de este título también se aplicarán a la quiebra, en cuanto no estén previstas en el Código de Comercio.

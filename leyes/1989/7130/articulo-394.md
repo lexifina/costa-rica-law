@@ -1,2 +1,1 @@
-ARTÍCULO 394.- Documentos posteriores.
-Los documentos que hayan de traerse al proceso de acuerdo con el artículo 292, se extenderán en virtud de exhorto que se expedirá al efecto.
+ARTÍCULO 394.- Documentos posteriores. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

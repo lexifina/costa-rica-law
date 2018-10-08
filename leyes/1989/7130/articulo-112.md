@@ -1,2 +1,1 @@
-ARTÍCULO 112.- Intervención adhesiva.
-Un tercero podrá intervenir en un proceso sin alegar derecho alguno, sólo con el fin de coadyuvar a la victoria de una parte, por tener un interés jurídico en ese resultado. El interviniente tomará el proceso en el estado en que se encuentre.
+ARTÍCULO 112.- Intervención adhesiva. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

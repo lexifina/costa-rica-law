@@ -1,2 +1,1 @@
-ARTÍCULO 581.- Jueces conociendo procesos de menor cuantía.
-En procesos de menor cuantía de que conocieren los jueces civiles en primera instancia, sólo se dará recurso de apelación para ante el tribunal superior, en cuanto a las resoluciones en las que quepa alzada en proceso de menor cuantía.
+ARTÍCULO 581.- Jueces conociendo procesos de menor cuantía. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

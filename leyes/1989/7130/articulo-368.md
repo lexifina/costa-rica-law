@@ -1,4 +1,3 @@
 Sección cuarta
 Documentos
-ARTÍCULO 368.- Distintas clases de documentos.
-Son documentos los escritos, los impresos, los planos, los dibujos, los cuadros, las fotografías, las fotocopias, las radiografías, las cintas cinematográficas, los discos, las grabaciones magnetofónicas y, en general, todo objeto mueble que tenga carácter representativo o declarativo.
+ARTÍCULO 368.- Distintas clases de documentos. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

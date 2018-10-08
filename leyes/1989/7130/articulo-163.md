@@ -1,2 +1,1 @@
-ARTÍCULO 163.- Requisitos.
-Para que la sentencia firme produzca cosa juzgada material en relación con otro proceso, será necesario que en ambos casos sean iguales las partes, el objeto y la causa.
+ARTÍCULO 163.- Requisitos. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

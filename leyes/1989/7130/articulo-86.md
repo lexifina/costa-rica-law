@@ -1,2 +1,1 @@
-ARTÍCULO 86.- Límite de la responsabilidad.
-La responsabilidad se limita al resarcimiento de los daños y perjuicios que, con la infracción de la ley, los juzgadores hayan ocasionado a la parte que la exige.
+ARTÍCULO 86.- Límite de la responsabilidad. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

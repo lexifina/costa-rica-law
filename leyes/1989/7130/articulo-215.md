@@ -1,2 +1,1 @@
-ARTÍCULO 215.- Modo de operar.
-La deserción será declarada de oficio o a solicitud de cualquier interesado; pero ambos actos procesales deberán hacerse antes de que cualquiera de las partes o los intervinientes impulsen el procedimiento.
+ARTÍCULO 215.- Modo de operar. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

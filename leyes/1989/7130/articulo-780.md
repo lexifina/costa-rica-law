@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 780.- Libros, documentos y otros.
 Los libros y documentos del deudor se entregarán al curador previo inventario, en los cuales deberá cumplirse lo que previene el artículo 737 (*). El curador continuará la contabilidad, para los efectos de la liquidación del concurso.
 (* El indicado artículo es ahora el 760)

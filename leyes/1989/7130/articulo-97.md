@@ -1,4 +1,1 @@
-ARTÍCULO 97.- Poderes de ordenación e instrucción.
-El juez tendrá poderes de ordenación e instrucción para:
-1) Desechar cualquier solicitud o articulación que sea notoriamente improcedente o que implique una dilación manifiesta.
-2) Los demás que se establecen en este Código.
+ARTÍCULO 97.- Poderes de ordenación e instrucción. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

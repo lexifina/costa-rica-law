@@ -1,2 +1,1 @@
-ARTÍCULO 467.- Legitimación pasiva.
-El perjudicado deberá dirigirse contra el beneficiado con la alteración.
+ARTÍCULO 467.- Legitimación pasiva. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

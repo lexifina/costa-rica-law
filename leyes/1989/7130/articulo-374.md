@@ -1,4 +1,1 @@
-ARTÍCULO 374.- Documentos otorgados en el extranjero.
-Los documentos públicos otorgados en el extranjero se equipararán a los públicos del país, si reúnen los siguientes requisitos:
-1) Que en el otorgamiento se hayan observado las formas y las solemnidades establecidas en el país donde se hayan verificado los actos los y los contratos.
-2) Que la firma del funcionario expedidor esté debidamente autenticada.
+ARTÍCULO 374.- Documentos otorgados en el extranjero. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

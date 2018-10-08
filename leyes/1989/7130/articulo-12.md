@@ -1,2 +1,1 @@
-ARTÍCULO 12.- Auxilio para los árbitros y ejecución del laudo. Para recabar datos o solicitar auxilio de cualquier autoridad, los árbitros lo harán por medio del respectivo órgano jurisdiccional.
-Corresponde también a ese órgano jurisdiccional ejecutar las resoluciones legalmente dictadas por los árbitros, según se trate de asuntos de mayor o de menor cuantía.
+ARTÍCULO 12.- Auxilio para los árbitros y ejecución del laudo. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

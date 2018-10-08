@@ -1,2 +1,1 @@
-ARTÍCULO 3.- Interpretación.
-Al interpretar la norma procesal, el juez deberá tomar en cuenta que la finalidad de aquélla es dar aplicación a las normas de fondo. En caso de duda, podrá acudir a los principios generales del Derecho Procesal.
+ARTÍCULO 3.- Interpretación.(Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

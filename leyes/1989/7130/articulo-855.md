@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 855.- Tutor testamentario.
 Si en la solicitud se afirmare que hay tutor testamentario, se procederá de la siguiente manera:
 1) Deberá acompañarse testimonio o certificación, o por lo menos indicarse el protocolo o expediente en el que se halle, a fin de que el juez pueda hacerlo venir a los autos.

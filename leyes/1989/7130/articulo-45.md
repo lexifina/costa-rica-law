@@ -1,2 +1,1 @@
-ARTÍCULO 45.- Imposibilidad de conflicto.
-Los tribunales no podrán sostener competencias con los superiores que ejerzan jurisdicción sobre ellos, con cuyas resoluciones tendrán que conformarse.
+ARTÍCULO 45.- Imposibilidad de conflicto. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

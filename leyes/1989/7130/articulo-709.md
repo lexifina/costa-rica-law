@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 TITULO V
 Concurso de Acreedores
 CAPITULO I

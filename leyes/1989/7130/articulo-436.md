@@ -1,2 +1,1 @@
-ARTÍCULO 436.- Conformidad del demandado.
-Cuando el demandado manifieste expresamente su conformidad, o cuando no haga ninguna oposición y deje transcurrir el emplazamiento, el juez dictará resolución en la que declarará con lugar la demanda, si ésta fuera procedente. Esa resolución será razonada, no requerirá las formalidades de una sentencia y tendrá el carácter de ésta.
+ARTÍCULO 436.- Conformidad del demandado. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

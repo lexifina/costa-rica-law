@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 777.- Informes mensuales.
 El curador deberá rendir informes mensuales sobre el estado de los ingresos y egresos; el juez formará con ellos un legajo aparte y se limitará a tenerlos por presentados sin resolución alguna, salvo que considere necesario hacer alguna observación al curador.
 En casos muy calificados, a criterio del juez, podrá dispensarse al curador de la obligación de rendir informes mensuales.

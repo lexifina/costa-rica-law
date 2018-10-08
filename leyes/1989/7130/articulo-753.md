@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 753.- Pronunciamiento del juzgado
 Dentro del término de ocho días después de realizada la junta, el juzgado se pronunciará sobre la aprobación o la improbación del convenio; salvo que fuere necesario esperar que se defina la situación de los acreedores pendientes de resolución, por tener influencia para formar la mayoría; en tal caso, el pronunciamiento se dejará para el momento oportuno.
 Si la sentencia fuere aprobatoria de un convenio de cesión de bienes, en ella se nombrará a dos o más miembros escogidos de entre los acreedores, para que integren una comisión, presidida por el curador, la cual liquidará los bienes y distribuirá el producto. De inmediato, deberán informar de todo al juzgado.

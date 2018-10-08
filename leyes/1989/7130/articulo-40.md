@@ -1,4 +1,3 @@
 Sección cuarta
 Competencia funcional
-ARTÍCULO 40.- Regulación.
-La competencia de los tribunales de las diversas jerarquías la regulan este Código, la Ley Orgánica del Poder Judicial y las leyes especiales.
+ARTÍCULO 40.- Regulación. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

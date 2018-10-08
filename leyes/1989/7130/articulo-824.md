@@ -1,4 +1,2 @@
-ARTÍCULO 824.- Normas aplicables.
-Las pretensiones a que se refiere el artículo 796 (*) que deban ventilarse en proceso no contencioso, y que no tengan señalada una tramitación especial en el título siguiente, se regirán por las disposiciones generales de este título I.
-(* El indicado artículo es ahora el 819)
+ARTÍCULO 824.- Normas aplicables. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)
 (La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 801 al 824)

@@ -1,2 +1,1 @@
-ARTÍCULO 26.- Demandas derivadas del arrendamiento.
-Para la demanda sobre el pago de la renta, del desahucio o de cualquier otra relativa al contrato de arrendamiento de inmuebles, será competente el juez del lugar donde esté situada la finca.
+ARTÍCULO 26.- Demandas derivadas del arrendamiento. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

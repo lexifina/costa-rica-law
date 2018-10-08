@@ -1,3 +1,1 @@
-ARTÍCULO 399.- Falsedad de documento privado.
-En el proceso civil en el que hubiere sido presentado se resolverá sobre la autenticidad de un documento privado que hubiere sido desconocido.
-Pero si se estableciere proceso penal por el delito de falsedad y el documento fuere de influencia en el proceso civil, se suspenderá éste hasta la resolución definitiva de aquél.
+ARTÍCULO 399.- Falsedad de documento privado. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

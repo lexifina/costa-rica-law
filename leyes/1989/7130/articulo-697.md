@@ -1,3 +1,1 @@
-ARTÍCULO 697. Hecho personalísimo.
-Si por ser personalísimo el hecho no pudiere ejecutarse sino por el deudor mismo, se entenderá que opta por el resarcimiento de daños y perjuicios, en caso de falta de cumplimiento, a cuya liquidación se le dará el trámite establecido en el artículo 693.
-Si se hubiera fijado con anticipación el importe de esos daños y perjuicios, para el caso de inejecución, se procederá como en el caso de cantidad líquida.
+ARTÍCULO 697. Hecho personalísimo. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 832.- Menor cuyos padres hubieren desaparecido.
 Comprobado que sea, sumariamente, que el menor se halla en el caso del inciso 5) del artículo 802 (*), el juez procederá a depositarlo en uno de sus parientes inmediatos, o en defecto de éstos, en la persona extraña que designe.
 (* El artículo indicado es ahora el 825)

@@ -1,2 +1,1 @@
-ARTÍCULO 50.- Nulidad.
-Fuera de las relativas a la inhibición o separación, es nula cualquier resolución que se dictare por un juzgador impedido o por un tribunal a cuya formación concurra un integrante con impedimento, siempre que el motivo conste en el expediente respectivo o sea de conocimiento del funcionario
+ARTÍCULO 50.- Nulidad. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

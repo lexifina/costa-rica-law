@@ -1,2 +1,1 @@
-ARTÍCULO 116.- Dirección profesional.
-La firma del abogado autenticante implicará dirección del asunto judicial al que el escrito se refiere, lo cual apareja la consiguiente responsabilidad, salvo que las circunstancias revelen que la autenticación de firma es ocasional. Sin embargo, el autenticante será responsable por los términos en que esté redactado el escrito.
+ARTÍCULO 116.- Dirección profesional. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

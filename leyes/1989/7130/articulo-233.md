@@ -1,2 +1,1 @@
-ARTÍCULO 233.- Honorarios de abogado, regla general.
-Los honorarios de abogado se fijarán con base en la tarifa que se establezca mediante el procedimiento que dispone la Ley Orgánica del Colegio de Abogados.
+ARTÍCULO 233.- Honorarios de abogado, regla general. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

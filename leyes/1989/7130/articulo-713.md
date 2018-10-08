@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 713.- Solicitud del deudor
 La solicitud del deudor deberá contener la exposición de los hechos que motivan la crisis económica y financiera y de las medidas que se estiman indispensables para superarla. Asimismo, la indicación expresa de si, con anterioridad, ha sido declarado en quiebra o concurso civil o si ha sido beneficiario de un procedimiento preventivo concursal y, en su caso, de las fechas de conclusión del proceso respectivo.
 Deberán agregar a la solicitud los siguientes documentos:

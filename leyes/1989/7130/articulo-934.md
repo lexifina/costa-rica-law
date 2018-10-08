@@ -1,3 +1,2 @@
-ARTÍCULO 934.- Responsabilidad de los bienes.
-Los bienes de toda sucesión responderán, aun con perjuicio de tercero, hasta seis meses después de la publicación del primer edicto de emplazamiento, para el caso de que dentro de ese plazo se presentare algún reclamo contra la sucesión.
+ARTÍCULO 934.- Responsabilidad de los bienes. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)
 (La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 911 al 934)

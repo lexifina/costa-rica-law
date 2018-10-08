@@ -1,2 +1,1 @@
-ARTÍCULO 218.- Otros recurrentes.
-Al caso de la deserción será aplicable lo dicho en el artículo 211.
+ARTÍCULO 218.- Otros recurrentes. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

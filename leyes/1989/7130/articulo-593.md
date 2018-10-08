@@ -1,4 +1,1 @@
-ARTÍCULO 593.- Interposición.
-El recurso de casación podrá interponerse:
-1) Por violación de leyes que establecen el procedimiento.
-2) Por violación de ley en la parte dispositiva de la sentencia, en cuanto al fondo del asunto.
+ARTÍCULO 593.- Interposición. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

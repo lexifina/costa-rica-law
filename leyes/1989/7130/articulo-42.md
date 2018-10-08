@@ -1,2 +1,1 @@
-ARTÍCULO 42.- Juez competente.
-De los jueces ante los cuales pendan las pretensiones conexas, será competente para conocer de los procesos reunidos el juez que hubiere prevenido.
+ARTÍCULO 42.- Juez competente. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

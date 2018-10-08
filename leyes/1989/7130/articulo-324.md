@@ -1,2 +1,1 @@
-ARTÍCULO 324.- Recurso.
-El auto en el que se otorgue o deniegue el plazo extraordinario será apelable en un efecto.
+ARTÍCULO 324.- Recurso. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

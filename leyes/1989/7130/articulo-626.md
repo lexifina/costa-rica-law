@@ -1,2 +1,1 @@
-ARTÍCULO 626.- Efectos de la revisión.
-La nulidad de una sentencia firme, como resultado del recurso de revisión, producirá todos sus efectos legales, salvo los derechos adquiridos por terceros, que deben respetarse.
+ARTÍCULO 626.- Efectos de la revisión. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

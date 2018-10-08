@@ -1,2 +1,1 @@
-ARTÍCULO 408.- Daños y perjuicios.
-El perito que dejare de concurrir al acto de reconocimiento, o que no rindiere su dictamen en la oportunidad legal, sin justa causa, quedará sujeto a la indemnización de daños y perjuicios, y se nombrará nuevo perito en su reposición.
+ARTÍCULO 408.- Daños y perjuicios. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

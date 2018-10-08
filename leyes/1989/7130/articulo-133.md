@@ -1,3 +1,1 @@
-ARTÍCULO 133.- Idioma.
-En todos los actos procesales será obligatorio el uso del idioma español.
-Tratándose de documentos redactados en otro idioma, deberá acompañarse su traducción. Si se tratare de declarantes que no hablen español, así como de sordomudos, la declaración se tomará con el auxilio de un intérprete.
+ARTÍCULO 133.- Idioma. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

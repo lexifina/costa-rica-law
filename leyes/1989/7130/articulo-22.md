@@ -1,2 +1,1 @@
-ARTÍCULO 22.- Procedimiento correspondiente.
-En lo relativo a la salvedad establecida en el párrafo primero del artículo anterior, el juez tramitará las pretensiones conforme con la cuantía de cada una.
+ARTÍCULO 22.- Procedimiento correspondiente. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

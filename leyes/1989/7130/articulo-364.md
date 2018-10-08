@@ -1,3 +1,1 @@
-ARTÍCULO 364.- Declaración ante un juez comisionado.
-Si el testigo no residiera en el lugar en el que se sigue el proceso, podrá ser examinado por el juez que corresponda, para lo cual le enviará la comisión respectiva. En cuanto al interrogatorio, se aplicará lo dicho en el artículo 354.
-El juez comisionado tendrá amplia facultad para admitir y rechazar repreguntas y resolver toda clase de incidencias que se presentan al recibirse la declaración.
+ARTÍCULO 364.- Declaración ante un juez comisionado. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

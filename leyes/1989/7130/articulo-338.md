@@ -1,6 +1,3 @@
 Subsección segunda
 Confesión
-ARTÍCULO 338.- Plena prueba.
-La confesión judicial prueba plenamente contra quien la hace.
-Para que haya confesión es necesario que la declaración verse sobre hechos personales contrarios a los intereses del confesante y favorables al adversario.
-No vale como confesión la admisión de hechos relativos a derechos indisponibles.
+ARTÍCULO 338.- Plena prueba. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

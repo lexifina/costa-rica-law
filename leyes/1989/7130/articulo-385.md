@@ -1,2 +1,1 @@
-ARTÍCULO 385.- Asientos, registros y papeles domésticos.
-Los asientos, registros y papeles domésticos únicamente hacen fe contra el que los haya escrito; pero el que quiera aprovecharse de ellos no podrá rechazarlos en la parte que lo perjudiquen.
+ARTÍCULO 385.- Asientos, registros y papeles domésticos. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

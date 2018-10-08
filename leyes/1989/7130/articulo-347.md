@@ -1,2 +1,1 @@
-ARTÍCULO 347.- Dos o más confesantes.
-Cuando dos o más confesantes hayan de declarar sobre un mismo interrogatorio, el juez adoptará las precauciones convenientes para que no puedan comunicarse ni enterarse previamente de aquél.
+ARTÍCULO 347.- Dos o más confesantes. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

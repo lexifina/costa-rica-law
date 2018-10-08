@@ -1,2 +1,1 @@
-ARTÍCULO 39.- Repartimiento de procesos civiles.
-Cuando en una circunscripción hubiere dos o más órganos jurisdiccionales civiles, la Corte Plena queda facultada para regular la distribución de los procesos entre los funcionarios de igual categoría, a fin de obtener, en cuanto sea posible, la equiparación del trabajo en las respectivas oficinas.
+ARTÍCULO 39.- Repartimiento de procesos civiles. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

@@ -1,2 +1,1 @@
-ARTÍCULO 110.- Llamada al poseedor mediato.
-Quien tuviere el bien en nombre ajeno, siendo demandado en nombre propio, deberá manifestarlo así en la contestación, a cuyo efecto dará los datos de identificación y vecindario, para que se le cite.
+ARTÍCULO 110.- Llamada al poseedor mediato. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

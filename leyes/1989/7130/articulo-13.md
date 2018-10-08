@@ -2,5 +2,4 @@ CAPITULO II
 Competencia
 Sección Primera
 Materia
-ARTÍCULO 13.- Competencia por materia.
-Por razón de la materia, los jueces serán competentes cuando este Código, la Ley Orgánica del Poder Judicial u otras leyes especiales les encomienden el conocimiento de determinado proceso, sin importar la cuantía.
+ARTÍCULO 13.- Competencia por materia. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

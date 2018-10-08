@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 779.- Inventario y depósito.
 El juez, o en su caso el notario que aquél comisione, practicarán la ocupación e inventario de los bienes del fallido y los depositará en el curador.
 Si las circunstancias lo requirieren, podrá nombrarse a otras personas como depositarios, designación que hará el juez de acuerdo con el curador.

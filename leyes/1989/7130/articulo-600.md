@@ -1,2 +1,1 @@
-ARTÍCULO 600.- Solicitud del expediente.
-Si no fuere el caso de rechazar de plano el recurso con vista del escrito en que se interpone, la secretaría pedirá el expediente por medio de nota.
+ARTÍCULO 600.- Solicitud del expediente. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

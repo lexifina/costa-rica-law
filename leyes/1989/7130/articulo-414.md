@@ -1,5 +1,3 @@
 Sección octava
 Presunciones
-ARTÍCULO 414.- Presunción legal.
-Toda presunción legal exime a la parte que la alegue, de la obligación de probar el hecho reputado cierto en virtud de tal presunción.
-Sin embargo, quien invoque una presunción legal deberá probar la existencia de los hechos que le sirven de base.
+ARTÍCULO 414.- Presunción legal. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

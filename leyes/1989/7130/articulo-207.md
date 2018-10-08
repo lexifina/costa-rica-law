@@ -1,2 +1,1 @@
-ARTÍCULO 207.- Renuncia del derecho.
-En cualquier estado del proceso podrá hacerse renuncia del derecho, sin que sea necesaria la conformidad de la parte contraria. En este caso, el juez dará por terminado el proceso previo examen de la naturaleza del derecho discutido, sin que pueda promoverse nuevo proceso con el mismo objeto y causa. El renunciante pagará las costas y los daños y perjuicios que hubiere ocasionado a la parte contraria.
+ARTÍCULO 207.- Renuncia del derecho. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

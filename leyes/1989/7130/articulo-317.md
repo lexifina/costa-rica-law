@@ -1,4 +1,1 @@
-ARTÍCULO 317.- Carga de la prueba.
-La carga de la prueba incumbe:
-1) A quien formule una pretención (sic), respecto a las afirmaciones de los hechos constitutivos de su derecho.
-2) A quien se oponga a una pretensión, en cuanto a las afirmaciones de hechos impeditivos, modificativos o extintivos del derecho del actor.
+ARTÍCULO 317.- Carga de la prueba. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

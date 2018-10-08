@@ -1,4 +1,3 @@
 Sección segunda
 Cuantía
-ARTÍCULO 16.- Competencia por cuantía.
-Cuando el elemento determinante de la competencia sea la cuantía, los procesos serán de mayor o de menor cuantía.
+ARTÍCULO 16.- Competencia por cuantía. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

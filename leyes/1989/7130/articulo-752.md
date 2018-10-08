@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 752.- Junta
 En la junta, el secretario del juzgado leerá la propuesta de convenio, el informe del curador y la parte dispositiva de la resolución que se pronunció sobre los acreedores e, inmediatamente, se procederá a someter la propuesta a discusión y votación.
 El convenio se tendrá por aprobado, por una mayoría de los acreedores concurrentes, que represente por lo menos dos tercios de la totalidad de los créditos legalizados.

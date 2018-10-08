@@ -1,2 +1,1 @@
-ARTÍCULO 32.- Casos no previstos.
-Cualquier cuestión de competencia por razón de territorio, que no hubiere sido prevista, se resolverá conforme con las reglas de esta sección que por analogía le fueren aplicables.
+ARTÍCULO 32.- Casos no previstos. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

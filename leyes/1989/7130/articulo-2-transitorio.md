@@ -1,1 +1,1 @@
-II.- Conservarán sus derechos y deberes los bachilleres en leyes que, de acuerdo con el Código de Procedimientos Civiles anterior y la Ley Orgánica del Poder Judicial, estaban autorizados para el ejercicio de la profesión, en la forma que lo establecían esas normas legales.
+II.- (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

@@ -1,2 +1,1 @@
-ARTÍCULO 585.- Plazo para interponerlo.
-Si el juez que hubiere denegado la apelación residiere en el mismo lugar que el superior, el plazo para recurrir ante éste será de tres días, y si aquél residiere en distinto lugar, el plazo será de cinco días.
+ARTÍCULO 585.- Plazo para interponerlo. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

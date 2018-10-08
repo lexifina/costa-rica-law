@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 773.- Informe del curador.
 Concluido el plazo para legalizar, y dentro del plazo de quince días, el curador deberá presentar al juzgado, para que pueda ser examinado por los acreedores, un estado general de todos los créditos que hubieren sido reclamados, con mención de las pretendidas referencias, y un informe razonado que expresará si cada crédito debe aceptarse o no, en todo o en parte, con preferencia o sin ella.
 Presentará también una lista de los créditos no legalizados. Si el fallido la hubiere presentado, el curador se limitará a comprobarla o rectificarla.

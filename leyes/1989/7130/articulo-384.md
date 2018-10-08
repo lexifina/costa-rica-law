@@ -1,2 +1,1 @@
-ARTÍCULO 384.- Nota escrita por el acreedor.
-La nota escrita por el acreedor enseguida, al margen, al dorso o en el cuerpo del documento, aunque no esté fechada ni firmada, hace prueba en favor del deudor.
+ARTÍCULO 384.- Nota escrita por el acreedor. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

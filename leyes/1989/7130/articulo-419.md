@@ -1,2 +1,1 @@
-ARTÍCULO 419.- Sentencia.
-Vencido el plazo concedido para presentar el alegato de conclusiones, quedará cerrado el debate, y el juez procederá a dictar la sentencia dentro del plazo legal correspondiente.
+ARTÍCULO 419.- Sentencia. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

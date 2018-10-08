@@ -1,4 +1,3 @@
 CAPITULO IV
 Proceso de inaplicabilidad
-ARTÍCULO 534.- DEROGADO.-
-(Derogado por el artículo 113 de la Ley de Jurisdicción Constitucional, Nº 7135 de 11 de octubre de 1989)
+ARTÍCULO 534.-(Derogado por el artículo 113 de la Ley de Jurisdicción Constitucional, Nº 7135 de 11 de octubre de 1989. Posteriormente por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016, se vuelve a derogar este numeral)

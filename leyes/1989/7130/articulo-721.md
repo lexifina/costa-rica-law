@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 721.- Atribuciones y deberes del interventor
 La personería de la empresa recaerá sobre el interventor, en los términos y limitaciones indicados en esta ley desde que asuma la administración de la empresa.
 Aparte de las obligaciones impuestas por otras normas de esta ley, el interventor tendrá los siguientes deberes:

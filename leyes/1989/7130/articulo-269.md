@@ -1,2 +1,1 @@
-ARTÍCULO 269.- Aceptación del mandatario y obligatoriedad.-
-Para tener como constituido un apoderado, es preciso que éste se presente a aceptar el poder. Aceptado el mandato, el mandatario quedará obligado a continuar en su ejercicio mientras dure el litigio, o mientras el mandante no constituya un nuevo apoderado que se apersone, o mientras el mandatario no sustituya el poder en otra persona que lo acepte.
+ARTÍCULO 269.- Aceptación del mandatario y obligatoriedad. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

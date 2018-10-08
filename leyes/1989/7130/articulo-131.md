@@ -1,2 +1,1 @@
-ARTÍCULO 131.- Suspensión de los procesos.
-Desde que se solicite la acumulación, quedarán en suspenso los procesos afectados, para lo cual el juez ante el que se hubiere hecho la solicitud oficiará al otro u otros con ese fin. No obstante, serán practicadas actuaciones de carácter urgente.
+ARTÍCULO 131.- Suspensión de los procesos. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

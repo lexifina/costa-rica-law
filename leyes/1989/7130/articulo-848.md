@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las nomas que lo sustituyan.)
 ARTÍCULO 848.- Trámite.
 Recibido el escrito, el juez designará un curador para que represente al presunto insano dentro del proceso, y ordenará que el Departamento de Medicina Legal del Organismo de Investigación Judicial examine al presunto insano y emita un dictamen, el cual deberá comprender los siguientes extremos:
 1) El carácter propio de la enfermendad (sic).

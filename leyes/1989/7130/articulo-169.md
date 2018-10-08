@@ -1,2 +1,1 @@
-ARTÍCULO 169.- Interrupción de la votación.
-Empezada la votación de una resolución, no podrá interrumpirse sino por un motivo insuperable.
+ARTÍCULO 169.- Interrupción de la votación. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

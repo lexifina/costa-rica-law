@@ -1,2 +1,1 @@
-ARTÍCULO 698.- Otorgamiento de escritura.
-Si en la sentencia se condena a otorgar escritura, el tribunal concederá un plazo de diez días para su otorgamiento. Si no hay cumplimiento, procederá el juez en nombre del obligado al otorgamiento dicho.
+ARTÍCULO 698.- Otorgamiento de escritura. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

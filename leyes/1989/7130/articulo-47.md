@@ -1,4 +1,1 @@
-ARTÍCULO 47.- Competencia exclusiva.
-Es competente el juez costarricense, con exclusión de cualquier otro:
-1) Para conocer de demandas reales o mixtas relativas a muebles e inmuebles situados en Costa Rica.
-2) Para proceder al inventario y partición de bienes situados en Costa Rica, que pertenecieren a un costarricense o extranjero domiciliado fuera de la República.
+ARTÍCULO 47.- Competencia exclusiva. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

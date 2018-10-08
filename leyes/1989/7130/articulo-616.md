@@ -1,2 +1,1 @@
-ARTÍCULO 616.- Nulidad en arbitrajes de derecho.
-Si se tratare del laudo dictado por árbitros de derecho y se interpusiere recurso de nulidad, se observarán las mismas reglas de tramitación especificadas para el recurso de casación contra sentencias dictadas en proceso ordinario.
+ARTÍCULO 616.- Nulidad en arbitrajes de derecho. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

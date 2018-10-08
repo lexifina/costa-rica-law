@@ -1,2 +1,1 @@
-ARTÍCULO 381.- Documentos relativos a convenciones comerciales.
-El principio de que los documentos privados no dan fe de su fecha con respecto a terceros no se aplicará a documentos en los que se hagan constar convenciones u operaciones comerciales.
+ARTÍCULO 381.- Documentos relativos a convenciones comerciales. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

@@ -1,4 +1,1 @@
-ARTÍCULO 643.- Ampliación del embargo.
-Además del caso previsto en el artículo 633, y por la vía incidental allí indicada, el embargo podrá ampliarse:
-1) Cuando no se hayan embargado bienes suficientes por no tenerlos el deudor, y después, aparezcan o se adquieran.
-2) En los casos de tercerías.
+ARTÍCULO 643.- Ampliación del embargo. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

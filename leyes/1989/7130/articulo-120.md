@@ -1,2 +1,1 @@
-ARTÍCULO 120.- Funciones del Patronato Nacional de la Infancia.
-En los procesos que interesen a menores, deberá tenerse como parte al representante legal del Patronato Nacional de la Infancia o de la junta provisional correspondiente. Se le tendrá como interviniente en asuntos no contenciosos.
+ARTÍCULO 120.- Funciones del Patronato Nacional de la Infancia. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

@@ -1,2 +1,1 @@
-ARTÍCULO 555.- Decisión.
-Pedida en tiempo una revocatoria, el juez, sin más trámite, resolverá lo que estime conveniente. Su resolución deberá contener un razonamiento adecuado.
+ARTÍCULO 555.- Decisión. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

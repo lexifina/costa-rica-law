@@ -1,2 +1,1 @@
-ARTÍCULO 334.- Divisibilidad.
-La declaración de parte es divisible cuando verse sobre hechos distintos que no guarden íntima conexión con el declarado.
+ARTÍCULO 334.- Divisibilidad. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

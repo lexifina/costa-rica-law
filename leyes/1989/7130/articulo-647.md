@@ -1,4 +1,3 @@
 Sección tercera
 Remate
-ARTÍCULO 647.- Dinero embargado.
-Firme la sentencia que ordena pagar una cantidad líquida, o rendida la garantía para la ejecución provisional, si lo embargado fuere dinero, se pagará al actor el principal, y, previa fijación por el tribunal, los intereses y las costas.
+ARTÍCULO 647.- Dinero embargado. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

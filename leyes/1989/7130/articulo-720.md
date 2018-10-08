@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 720.- Requisitos y nombramiento del interventor
 Para escoger al interventor, en cada caso, se tomarán como fundamento las siguientes reglas:
 1.- Deberá ser una persona de capacidad y honradez reconocidas y representar, con imparcialidad, los intereses de los acreedores y los del deudor.

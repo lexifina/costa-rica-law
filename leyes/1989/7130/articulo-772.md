@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 772.- Escrito de legalización.
 El escrito de legalización podrá comprender el reclamo de distintos acreedores, y deberá presentarse con una copia. En él se expresarán el nombre y los apellidos del acreedor o acreedores, su ocupación y su vecindario, el título o causa, la cantidad del reclamo y la preferencia, si la hubiere.
 Asimismo, deberá contener una relación sucinta de los hechos en los que se funde el reclamo, y deberá ofrecerse la prueba correspondiente; si ésta consistiere en documentos, serán acompañados los originales junto con dos copias de ellos. Los originales los guardará el juez y al curador se le entregará una copia, tanto de éstos como del escrito de legalización.

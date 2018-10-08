@@ -1,2 +1,1 @@
-ARTÍCULO 301.- Validez de las medidas precautorias.
-La declaración de incompetencia no producirá nulidad de las medidas precautorias; tratándose de embargo, una vez firme la declaratoria de incompetencia, se pondrá la cosa embargada a la orden del juez competente.
+ARTÍCULO 301.- Validez de las medidas precautorias. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

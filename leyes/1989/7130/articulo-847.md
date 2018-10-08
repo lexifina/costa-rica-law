@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las nomas que lo sustituyan.)
 CAPITULO IV
 Insania
 ARTÍCULO 847 Escrito inicial. La solicitud de declaratoria de interdicción de una persona deberá reunir los siguientes requisitos:

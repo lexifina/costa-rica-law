@@ -1,2 +1,1 @@
-ARTÍCULO 478.- Caducidad.
-No podrá intentarse la demanda si hubieren transcurrido tres meses desde que ocurrieron los hechos que conforman la jactancia.
+ARTÍCULO 478.- Caducidad. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

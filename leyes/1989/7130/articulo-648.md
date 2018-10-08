@@ -1,2 +1,1 @@
-ARTÍCULO 648.- Valores de comercio.
-Si lo embargado fueren valores de comercio, se hará su venta por un corredor jurado, o en su defecto por un agente o comerciante que el tribunal designe, y se unirá a los autos la cuenta de la negociación.
+ARTÍCULO 648.- Valores de comercio. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

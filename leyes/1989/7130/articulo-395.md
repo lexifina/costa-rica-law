@@ -1,3 +1,1 @@
-ARTÍCULO 395.- Traducción.
-A todo documento redactado en cualquier idioma que no sea el español, se le acompañarán su traducción y la copia de aquél y de ésta.
-Dicha traducción podrá ser hecha privadamente, y en este caso, si alguna de las partes la impugnare porque manifiesta que no la tiene por fiel y exacta, se hará la versión en español por el traductor oficial o por el que nombre el juez en reemplazo de aquél.
+ARTÍCULO 395.- Traducción. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

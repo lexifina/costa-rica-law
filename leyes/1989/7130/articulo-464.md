@@ -1,4 +1,3 @@
 Subsección tercera
 Restitución
-ARTÍCULO 464.- Despojo.
-Corresponderá este interdicto al que, estando en posesión pacífica de una cosa, ha sido despojado de ella.
+ARTÍCULO 464.- Despojo. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

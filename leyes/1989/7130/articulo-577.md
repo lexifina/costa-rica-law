@@ -1,2 +1,1 @@
-ARTÍCULO 577.- Devolución del expediente.
-Vencido el plazo legal para interponer el recurso de casación, sin que sea aprovechado, el expediente será devuelto al juez de primera instancia.
+ARTÍCULO 577.- Devolución del expediente. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

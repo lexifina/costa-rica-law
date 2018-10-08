@@ -1,2 +1,1 @@
-ARTÍCULO 580.- Procesos no contenciosos.
-Las apelaciones que se interpongan respecto a cualquier resolución apelable en procesos no contenciosos, se sustanciarán con arreglo a lo dispuesto en este capítulo.
+ARTÍCULO 580.- Procesos no contenciosos. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

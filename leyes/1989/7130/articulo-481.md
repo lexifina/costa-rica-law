@@ -1,2 +1,1 @@
-ARTÍCULO 481.- Terminación del proceso.
-Si el demandado estableciere su demanda dentro del plazo previsto en el artículo anterior, se dará por terminado el proceso de jactancia sin pronunciamiento sobre el fondo.
+ARTÍCULO 481.- Terminación del proceso. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

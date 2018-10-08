@@ -1,2 +1,1 @@
-ARTÍCULO 145.- Punto de partida.
-Salvo que este Código determine otro punto de partida, los plazos comenzarán a correr a partir del día inmediato siguiente a aquél en el que hubiere quedado notificada la resolución respectiva a todas las partes.
+ARTÍCULO 145.- Punto de partida. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

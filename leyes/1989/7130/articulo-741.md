@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 741.- Recursos
 Las resoluciones que se dicten en este procedimiento tendrán recurso de revocatoria. Con las excepciones que resulten de la ley, únicamente cabrá el de apelación contra la resolución que:
 1.- Admita o deniegue el procedimiento.

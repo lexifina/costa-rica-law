@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 Sección tercera
 Legalización, examen y reconocimiento de créditos
 ARTÍCULO 771.- Deber de legalizar y reclamar privilegio. Todos los acreedores, salvo los hipotecarios, los prendarios, los arrendadores, los arrendatarios y los de crédito reconocido en sentencia, deberán legalizar sus créditos y reclamar oportunamente el privilegio que posean.

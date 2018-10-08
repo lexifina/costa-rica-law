@@ -1,2 +1,1 @@
-ARTÍCULO 350.- El juramento.
-El juez no podrá diferir el juramento, sino en los casos especiales en que la ley establezca que se pase por el dicho del demandante.
+ARTÍCULO 350.- El juramento. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

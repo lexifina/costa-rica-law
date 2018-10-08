@@ -1,2 +1,1 @@
-ARTÍCULO 382.- Libros de comercio.
-Respecto a los libros de los comerciantes, se estará a lo dispuesto en el Código de Comercio.
+ARTÍCULO 382.- Libros de comercio. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

@@ -1,2 +1,1 @@
-ARTÍCULO 328.- Ampliación o conclusión del plazo.
-El plazo probatorio se ampliará o se dará por concluido, aunque no hubiere vencido, si las partes e intervinientes lo solicitarán de común acuerdo.
+ARTÍCULO 328.- Ampliación o conclusión del plazo. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

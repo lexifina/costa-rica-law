@@ -1,2 +1,1 @@
-ARTÍCULO 122.- Demanda obligada.
-Nadie podrá ser obligado a demandar, salvo en el caso de jactancia.
+ARTÍCULO 122.- Demanda obligada. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

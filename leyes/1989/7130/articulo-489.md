@@ -1,2 +1,1 @@
-ARTÍCULO 489.- Incidentes en segunda instancia.
-Las disposiciones anteriores se aplicarán a los incidentes promovidos en segunda instancia, pero lo que se resuelva sólo tendrá el recurso de revocatoria.
+ARTÍCULO 489.- Incidentes en segunda instancia. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

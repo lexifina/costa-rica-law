@@ -1,2 +1,1 @@
-ARTÍCULO 330.- Apreciación de la prueba.
-Los jueces apreciarán los medios de prueba en conjunto, de acuerdo con las reglas de la sana crítica, salvo texto legal en contrario.
+ARTÍCULO 330.- Apreciación de la prueba. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

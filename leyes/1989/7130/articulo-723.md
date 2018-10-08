@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 723.- Efectos formales de la resolución inicial
 La resolución que declare válidamente presentada y admitida la solicitud del promoviente, provocará la paralización de las pretensiones ejecutivas individuales, comunes, hipotecarias, prendarias y de cualquier otro tipo.
 Se exceptúan:

@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 882.- Compromiso o transacción.
 La autorización para celebrar compromiso o transacción sobre bienes del menor se pedirá por quien lo represente legalmente.
 En el escrito se expresarán el motivo y el objeto del compromiso o transacción.

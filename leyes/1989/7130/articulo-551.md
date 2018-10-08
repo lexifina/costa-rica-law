@@ -1,2 +1,1 @@
-ARTÍCULO 551.- Clases de recursos.
-Las resoluciones judiciales serán recurribles mediante revocatoria, apelación, apelación por inadmisión, apelación adhesiva, casación y revisión.
+ARTÍCULO 551.- Clases de recursos. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

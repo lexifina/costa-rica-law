@@ -1,2 +1,1 @@
-ARTÍCULO 67.- Plazo para recusar.
-Salvo lo dispuesto para casos especiales, la recusación podrá hacerse en cualquier estado del proceso, antes de que se hayan citado partes para sentencia, o de que se haya celebrado la vista para dictarla, cuando procedan esos trámites, o antes de dictarse el fallo en los demás casos; y si después de la sentencia hubiere habido cambio en el personal de los jueces, se podrá recusarlos cuando se trate de diligencias que no fueren de mera ejecución.
+ARTÍCULO 67.- Plazo para recusar. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

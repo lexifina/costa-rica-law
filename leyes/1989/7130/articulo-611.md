@@ -1,2 +1,1 @@
-ARTÍCULO 611.- Casación sin lugar.
-Si la sala juzgare que el fallo no debe casarse, declarará no haber lugar al recurso y condenará en las costas de éste al que lo hubiere interpuesto.
+ARTÍCULO 611.- Casación sin lugar. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

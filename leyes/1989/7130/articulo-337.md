@@ -1,2 +1,1 @@
-ARTÍCULO 337.- Aplicación de normas.
-En lo no previsto expresamente, son aplicables al interrogatorio de las partes las disposiciones relativas a la confesión.
+ARTÍCULO 337.- Aplicación de normas. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

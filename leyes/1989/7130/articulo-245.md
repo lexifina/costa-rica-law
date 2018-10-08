@@ -1,4 +1,3 @@
 CAPITULO II
 Pruebas anticipadas
-ARTÍCULO 245.- Confesión.
-Para preparar el proceso, las partes podrán pedirse, recíprocamente, por una sola vez, confesión sobre hechos personales conducentes, lo mismo, que reconocimiento de documentos privados. Deberá indicarse, en términos generales, el negocio o negocios concretos sobre los cuales versará la confesión, requisito sin el cual no se atenderá la gestión. El interrogatorio podrá presentarse en sobre cerrado, que será abierto al practicarse la prueba, acto en el cual el juez calificará la procedencia de las preguntas.
+ARTÍCULO 245.- Confesión. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

@@ -1,2 +1,1 @@
-ARTÍCULO 366.- Intérpretes.
-Si el testigo no supiere el idioma español, dará su declaración por medio de un intérprete que será nombrado por el juez; si el testigo lo pidiere, además de asentarse su declaración en español, podrá escribirse en su propio idioma, por él o por el intérprete.
+ARTÍCULO 366.- Intérpretes. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

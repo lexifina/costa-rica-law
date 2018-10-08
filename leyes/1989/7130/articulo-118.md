@@ -1,3 +1,2 @@
-ARTÍCULO 118.- Otorgamiento del poder.
-No será necesario que el poder de quien represente a otro en proceso conste en testimonio de escritura pública, pues podrá hacerse en papel simple, con tal de que esté firmado por el otorgante, o si no supiere escribir o estuviere impedido para hacerlo, por una persona a ruego; en ambos casos debidamente autenticado por un abogado, que no sea aquél a quien se otorga el poder.
+ARTÍCULO 118.- Otorgamiento del poder. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)
 (NOTA: Ver observaciones de la ley, sobre la aclaración que hace la Corte Plena de este artículo)

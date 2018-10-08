@@ -1,2 +1,1 @@
-ARTÍCULO 206.- Efectos del desistimiento.
-Declarado por resolución firme el desistimiento, quedarán las cosas en el mismo estado que tenían antes de establecerse la demanda. El que desiste pagará las costas y los daños y perjuicios que hubiere ocasionado a la parte contraria.
+ARTÍCULO 206.- Efectos del desistimiento. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

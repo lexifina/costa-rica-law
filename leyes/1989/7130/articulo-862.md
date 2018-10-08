@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 862.- Entrega de bienes.
 Dictado el auto de que habla el artículo 837 (*), se le entregará al tutor el caudal del menor, por inventario, que se unirá al expediente, si ya no obrare en él. El recibo de los bienes se acreditará en los autos mediante acta firmada por el juez, el secretario y el tutor.
 (* El indicado artículo es ahora el 860)

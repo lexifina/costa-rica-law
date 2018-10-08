@@ -1,3 +1,2 @@
-ARTÍCULO 909.- Facultad de las autoridades de policía.
-Aun sin orden judicial, las autoridades de policía podrán poner sellos o ejercer la vigilancia con sujeción a lo dicho en el artículo anterior, pero deberán comunicarlo de inmediato al tribunal competente, el que procederá como corresponda.
+ARTÍCULO 909.- Facultad de las autoridades de policía. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)
 (La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 886 al 909)

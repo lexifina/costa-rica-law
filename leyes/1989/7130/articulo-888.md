@@ -1,3 +1,2 @@
-ARTÍCULO 888.- Gastos.
-El juez señalará lo que le toque a cada colindante en los gastos de deslinde y amojonamiento, según lo dicho en el artículo 296 del Código Civil.
+ARTÍCULO 888.- Gastos. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)
 (La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 865 al 888)

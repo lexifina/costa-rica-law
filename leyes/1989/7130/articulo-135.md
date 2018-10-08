@@ -1,5 +1,3 @@
 Sección segunda
 Actos de parte
-ARTÍCULO 135.- Efectos.
-Los actos procesales de las partes producirán inmediatamente la constitución, modificación o extinción de derechos y deberes procesales.
-Sin embargo, el desistimiento de la demanda sólo producirá efecto después de que sea aprobado por resolución del juez.
+ARTÍCULO 135.- Efectos. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

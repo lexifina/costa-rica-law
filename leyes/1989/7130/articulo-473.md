@@ -1,2 +1,1 @@
-ARTÍCULO 473.- Proceso posterior.
-La sentencia del interdicto, cualquiera que sea, no obstará para que se entable, por separado, el proceso abreviado correspondiente sobre la continuación o destrucción de la obra.
+ARTÍCULO 473.- Proceso posterior. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

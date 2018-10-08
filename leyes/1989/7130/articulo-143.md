@@ -1,4 +1,3 @@
 CAPITULO II
 Plazos
-ARTÍCULO 143.- Improrrogabilidad.
-Los plazos establecidos en este Código para que las partes y los auxiliares de la justicia lleven a cabo actos procesales son improrrogables, salvo disposición en contrario. Para obtener una prórroga es necesario solicitarla antes de que venza el plazo principal, y alegar justa causa. La resolución del juez, concediéndola o denegándola, no tendrá ningún recurso. Es prohibido a las partes, aunque estuvieren de acuerdo, reducir o prorrogar un plazo perentorio.
+ARTÍCULO 143.- Improrrogabilidad. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

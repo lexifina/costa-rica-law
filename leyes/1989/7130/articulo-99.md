@@ -1,2 +1,1 @@
-ARTÍCULO 99.- Congruencias.
-La sentencia se dictará dentro de los límites establecidos en la demanda. Es prohibido para el juez pronunciarse sobre cuestiones no debatidas respecto de las cuales la ley exige la iniciativa de la parte.
+ARTÍCULO 99.- Congruencias. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

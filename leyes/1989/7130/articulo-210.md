@@ -1,2 +1,1 @@
-ARTÍCULO 210.- Devolución del expediente.
-Aprobado el desistimiento, el juez o tribunal devolverá el expediente a la oficina de su procedencia, si no hubiere apelación de la otra parte.
+ARTÍCULO 210.- Devolución del expediente. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

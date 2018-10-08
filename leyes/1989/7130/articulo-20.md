@@ -1,2 +1,1 @@
-ARTÍCULO 20.- No oposición del demandado.
-Cuando el demandado no se opusiere en el plazo correspondiente a la estimación que el actor hubiere dado a su demanda, el juez la fijará de oficio conforme con el artículo 297.
+ARTÍCULO 20.- No oposición del demandado. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

@@ -1,2 +1,1 @@
-ARTÍCULO 354.- Indicación de hechos.
-El testigo será examinado sobre los hechos que hubiere indicado la parte proponente, sin interrogatorio formal. Esa indicación deberá hacerse por escrito al ofrecer la prueba.
+ARTÍCULO 354.- Indicación de hechos. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

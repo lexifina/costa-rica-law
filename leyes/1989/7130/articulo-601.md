@@ -1,2 +1,1 @@
-ARTÍCULO 601.- Emplazamiento.
-Recibida la nota a que se refiere el artículo 600, el tribunal que haya dictado la resolución recurrida emplazará a las partes para que comparezcan ante la sala de casación, dentro de tercero día, emplazamiento que será único en el caso de que mediara recurso de otra parte.
+ARTÍCULO 601.- Emplazamiento. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

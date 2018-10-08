@@ -1,2 +1,1 @@
-ARTÍCULO 10.- Nulidad.
-Salvo disposición legal en contrario, todos los actos procesales de quien no tenga facultad legal para ejecutarlos, serán absolutamente nulos.
+ARTÍCULO 10.- Nulidad. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

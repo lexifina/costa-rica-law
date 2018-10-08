@@ -2,5 +2,4 @@ TITULO I
 Jurisdicción y competencia
 CAPITULO I
 Jurisdicción
-ARTÍCULO 7.- Potestad jurisdiccional.
-La potestad de dirimir conflictos de orden jurídico corresponde, en el ramo civil, a los órganos jurisdiccionales que determinan la Constitución y la ley. Dicha potestad se perderá cuando el juez deje de serlo.
+ARTÍCULO 7.- Potestad jurisdiccional.(Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 826.- Matrimonio del menor.
 Para que pueda tener lugar el depósito en el caso del inciso 1) del artículo 802 (*), deberá pedirlo el menor por escrito o de palabra, con manifestación de los motivos que tenga para temer que se emplee coacción o violencia, con el fin de impedir que lleve a efecto su propósito.
 (* El artículo indicado es ahora el 825)
@@ -7,3 +8,4 @@ Si el juez estimare fundada la oposición, o que el depositario designado no re�
 Contra esta resolución no se dará recurso alguno.
 En el mismo auto mandará que se entreguen al menor, por inventario, sus muebles y su ropa.
 (La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 803 al 826)
+(Nota de Sinalevi: El artículo 14 del Código de Familia, reformado mediante ley 9406 de 30 de noviembre de 2016, prohíbe el matrimonio de personas menores de edad.)

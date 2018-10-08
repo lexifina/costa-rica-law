@@ -1,2 +1,1 @@
-ARTÍCULO 58.- Irrenunciabilidad.
-Una vez interpuesta la recusación no podrá ser retirada por la parte.
+ARTÍCULO 58.- Irrenunciabilidad. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

@@ -1,5 +1,2 @@
-ARTÍCULO 941.- Honorarios.
-Durante la tramitación, al albacea y al abogado director, si la administración excediere de seis meses, podrán girárseles, a su solicitud, anticipos de honorarios, que deberán guardar proporción con el trabajo realizado y con el monto aproximado de los honorarios totales.
-Los honorarios del apoderado o abogado director se calcularán sobre el valor dado a los bienes. Si el profesional dejare de serlo antes de finalizar el sucesorio, el tribunal fijará prudencialmente sus honorarios tomando en cuenta la labor realizada y el beneficio producido a la sucesión, y dejando un amplio margen para los sucesivos profesionales, de modo que en ningún caso puedan exceder de los honorarios totales.
-Los honorarios de apoderado o abogado director se pagarán del caudal hereditario, salvo que el expediente revele, conforme con una amplia apreciación judicial, que la dirección profesional fue hecha en beneficio de los intereses personales del albacea y no de la sucesión, en cuyo caso los honorarios de abogado serán pagados por el albacea.
+ARTÍCULO 941.- Honorarios. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)
 (La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 918 al 941)

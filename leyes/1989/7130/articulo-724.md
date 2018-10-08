@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 724.- Efectos sustantivos de la resolución inicial La resolución señalada en el artículo 719 se ejecutará inmediatamente, a partir de la firmeza en todos sus extremos y producirá estos efectos:
 1.- La exigibilidad inmediata de las obligaciones en favor de personas jurídicas, derivadas del pago de cuotas o de la suscripción de acciones por los socios o los accionistas.
 2.- La imposibilidad de socios o accionistas de retirar dividendos, los cuales les serán entregados cuando concluya el procedimiento, siempre y cuando este no se convierta en quiebra o en concurso civil.

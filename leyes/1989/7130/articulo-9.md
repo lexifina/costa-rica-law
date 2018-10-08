@@ -1,2 +1,1 @@
-ARTÍCULO 9.- Ejecución de las resoluciones.
-Las resoluciones serán ejecutadas por el juez de primera instancia que conoció del proceso, salvo los casos exceptuados por la ley.
+ARTÍCULO 9.- Ejecución de las resoluciones (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

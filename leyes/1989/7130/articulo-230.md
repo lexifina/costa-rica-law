@@ -1,3 +1,1 @@
-ARTÍCULO 230.- Testigos de asistencia.
-A los testigos de asistencia que no lo fueren por razón de su oficio, se les pagará prudencialmente la dieta conforme con el tiempo que dure la diligencia.
-Todo testigo de asistencia, si tuviere que salir del lugar en que tiene su asiento el tribunal, será indemnizado por sus gastos. En este caso aplicará lo dispuesto en el artículo 227.
+ARTÍCULO 230.- Testigos de asistencia. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

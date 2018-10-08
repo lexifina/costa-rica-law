@@ -1,2 +1,1 @@
-ARTÍCULO 398.- Falsedad de la matriz e inexistencia de ésta.
-Si se alegare falsedad de la matriz o del testimonio cuya matriz no existe, se observará lo dicho en los dos artículos anteriores.
+ARTÍCULO 398.- Falsedad de la matriz e inexistencia de ésta. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

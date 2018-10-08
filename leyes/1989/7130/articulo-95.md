@@ -1,2 +1,1 @@
-ARTÍCULO 95.- Comunicación al Ministerio Público.
-Cuando se declare haber lugar a la responsabilidad civil, luego que esté firme la sentencia, si el tribunal hallare mérito para ello, ordenará el testimonio de piezas para el Ministerio Público, para que inste y proponga lo que estime conveniente.
+ARTÍCULO 95.- Comunicación al Ministerio Público. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

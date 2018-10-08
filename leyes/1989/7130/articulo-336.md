@@ -1,2 +1,1 @@
-ARTÍCULO 336.- Consecuencia de la negativa a declarar.
-Si el llamado a declarar no compareciere sin justa causa, rehusare declarar, o respondiere en forma evasiva, a pesar del apercibimiento que se le haya hecho, podrá ser tenido por confeso en la sentencia definitiva, con respecto a los hechos que comprenda el interrogatorio escrito. Si no hubiere interrogatorio escrito y el preguntante hubiera comparecido, no así el declarante, el juez podrá tener por ciertos los hechos de la demanda susceptibles de confesión.
+ARTÍCULO 336.- Consecuencia de la negativa a declarar. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

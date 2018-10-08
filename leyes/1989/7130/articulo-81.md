@@ -1,2 +1,1 @@
-ARTÍCULO 81.- Nulidad de actos.
-Los actos practicados por un funcionario que, teniendo causa legal de excusa, no se hubiere excusado, no serán nulos por sólo ese motivo, salvo lo dispuesto respecto a funcionarios que administran justicia en el capítulo de impedimentos; pero sí serán nulos los que se practiquen después de presentada la excusa y durante la tramitación de ella.
+ARTÍCULO 81.- Nulidad de actos. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

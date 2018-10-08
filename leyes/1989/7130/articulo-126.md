@@ -1,2 +1,1 @@
-ARTÍCULO 126.- Prohibición.
-Es improcedente la acumulación de procesos ejecutivos con renuncia de trámites, cuando sólo se persigan los bienes hipotecados o pignorados.
+ARTÍCULO 126.- Prohibición. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

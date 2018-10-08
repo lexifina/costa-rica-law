@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 803.- Por realización de bienes.
 Cuando se hayan realizado todos los bienes concursados y comprobados los créditos presentados, se procederá a la conclusión del concurso.
 Si hubiere créditos y otros bienes que no pudieren ser realizados por el curador, se dará audiencia por tres días al concursado y a los acreedores, para que informen sobre las medidas que hayan de adoptarse. El juez resolverá lo que corresponda.

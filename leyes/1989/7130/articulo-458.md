@@ -1,2 +1,1 @@
-ARTÍCULO 458.- Caducidad.
-No podrá ser establecido un interdicto si han transcurrido tres meses desde el comienzo de los hechos y obras contra las cuales se reclama. Se exceptúa el interdicto de derribo.
+ARTÍCULO 458.- Caducidad. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

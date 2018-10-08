@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 757.- Honorarios del curador
 En cuanto a la remuneración del curador y los gastos procesales, se estará a lo dispuesto en el artículo 735. El curador ganará por su trabajo honorarios, que se calcularán sobre el pasivo que se constate, en los siguientes porcentajes:
 1.- El doce y medio por ciento (12,5%) sobre el primer millón de colones.

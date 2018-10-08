@@ -1,2 +1,2 @@
-ARTICULO 36.- Inconformidad del arrendador.
-Cuando el arrendador no esté conforme con las reparaciones solicitadas por el arrendatario o con el monto de ellas, podrá recurrir a la autoridad judicial competente, mediante el proceso abreviado establecido en el Código Procesal Civil, sin que por ello se suspendan las reparaciones en la cosa arrendada.
+Artículo 36.- Inconformidad del arrendador. Cuando el arrendador no esté conforme con las reparaciones solicitadas por el arrendatario o con el monto de ellas podrá recurrir a la autoridad judicial competente, mediante el proceso sumario, sin que por ello se suspendan las reparaciones en la cosa arrendada.
+(Así reformado por el artículo 184 aparte 3) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)
