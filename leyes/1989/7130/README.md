@@ -1,6 +1,6 @@
 # Código Procesal Civil
 
-Ley N° 7130 del 1989-08-16. SINALEVI, ficha 12443: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=12443&param2=105749&param3=1>.
+Ley N° 7130 del 1989-08-16. SINALEVI, ficha 12443: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=12443&param2=113746&param3=1>.
 
 Publicada en La Gaceta N° 208 del 1989-11-03.
 
@@ -22,3 +22,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 12 de 17 | 2018-10-08 | SINALEVI | 2016-02-10 |
 | 13 de 17 | 2018-10-08 | Ley 9379 | 2016-08-18 |
 | 14 de 17 | 2018-10-08 | Ley 9392 | 2016-08-24 |
+| 15 de 17 | 2018-10-08 | Ley 9621 | 2018-10-02 |
