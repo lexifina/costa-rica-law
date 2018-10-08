@@ -1,2 +1,2 @@
-ARTICULO 241.- Las operaciones que se ejecuten con recursos
-provenientes del Fondo estarán exentas de todo tipo de impuestos y tasas.
+Artículo 241- La supervisión y la regulación de la Junta Administrativa y del Fondo de Jubilaciones y Pensiones del Poder Judicial estarán a cargo de la Superintendencia de Pensiones (Supén) y del Consejo Nacional de Supervisión del Sistema Financiero (Conassif), respectivamente, de conformidad con las atribuciones que les otorga la ley. La Junta Administradora estará sujeta al cobro por supervisión previsto en los artículos 173 y 174 de la Ley N.º 7732, Ley Reguladora del Mercado de Valores, de 17 de diciembre de 1997. Dicho cobro se calculará sobre los ingresos anuales que haya recibido la Junta Administrativa por la administración del Fondo de Jubilaciones y Pensiones del Poder Judicial.
+(Así reformado por el artículo 1° de la ley N° 9544 del 24 de abril de 2018)
