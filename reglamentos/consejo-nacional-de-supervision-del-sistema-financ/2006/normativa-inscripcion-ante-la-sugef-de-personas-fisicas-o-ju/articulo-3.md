@@ -1,5 +1,0 @@
-Artículo 3º—Revisión de la solicitud de inscripción.
-Previo al análisis de la solicitud presentada, la SUGEF verificará que ésta cumpla con todos los requisitos establecidos en el artículo 2 de la presente Normativa. En caso de que la solicitud de inscripción no adjunte la totalidad de requisitos, la SUGEF prevendrá al solicitante por una única vez, para que los complete en el plazo de ocho días hábiles. La Superintendencia podrá otorgar una prórroga del plazo anterior, a solicitud del interesado. Dicha solicitud deberá hacerse antes del vencimiento del plazo, con indicación clara de los motivos que la justifican y la presentación de pruebas si fuere el caso.
-Si concluido este plazo, el solicitante no ha presentado la totalidad de la información requerida, la Superintendencia procederá con el archivo del expediente y así lo notificará al solicitante.
-Lo anterior sin perjuicio de que la SUGEF pueda requerirle al interesado que inicie el trámite de inscripción, de conformidad con el artículo 7 de este Reglamento. En caso de tramitar la inscripción nuevamente, deberá presentar una nueva solicitud.
-(Así reformado en sesión N° 908-2011 del 15 de abril del 2011)

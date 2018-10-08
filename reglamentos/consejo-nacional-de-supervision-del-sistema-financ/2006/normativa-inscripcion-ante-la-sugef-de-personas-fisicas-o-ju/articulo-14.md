@@ -1,1 +1,0 @@
-Artículo 14.—Cumplimiento de las disposiciones legales y regulatorias. Las personas físicas y jurídicas inscritas deberán cumplir en todos sus extremos con lo dispuesto en la Ley 8204 y su Reglamento, así como con la normativa aprobada por el Consejo Nacional de Supervisión en relación con la citada Ley 8204.

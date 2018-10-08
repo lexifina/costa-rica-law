@@ -1,2 +1,0 @@
-Artículo 8º—Plazo de vigencia de la inscripción. El Consejo Nacional de Supervisión del Sistema Financiero otorgará la inscripción a que se refiere el artículo 9º de este Reglamento y procederá con la respectiva notificación al interesado. La inscripción será otorgada por un plazo indefinido y estará sujeta a la actualización de información y demás obligaciones establecidas en la normativa vigente.
-(Así reformado en sesión N° 819 del 26 de noviembre de 2009)
