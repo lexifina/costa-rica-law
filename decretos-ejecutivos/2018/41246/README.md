@@ -14,3 +14,4 @@ Amplía para la Unidad Ejecutora del Programa para la Prevención de la Violenci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-09-19 | la propia norma |
+| 2 | 2018-10-08 | Decreto Ejecutivo 41355 (2018-10-08) |

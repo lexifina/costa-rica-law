@@ -16,4 +16,5 @@ Por tanto;
 Decretan:
 Ampliación del gasto presupuestario máximo 2018 para la Unidad Ejecutora del
 Programa para la Prevención de la Violencia y Promoción de la Inclusión Social
-Artículo 1º.— Amplíese para la Unidad Ejecutora del Programa para la Prevención de la Violencia y Promoción de la Inclusión Social, el gasto presupuestario máximo para el año 2018, establecido de conformidad con el Decreto Ejecutivo No. 40281-H, publicado en el Alcance No. 68 a La Gaceta No. 61 de 27 de marzo de 2017 y sus reformas, en la suma de ¢1.100.859.209,35 (mil cien millones ochocientos cincuenta y nueve mil doscientos nueve colones con treinta y cinco céntimos), para ese período.
+Artículo 1º—Amplíese para la Unidad Ejecutora del Programa para la Prevención de la Violencia y Promoción de la Inclusión Social, el gasto presupuestario máximo para el año 2018, establecido de conformidad con el Decreto Ejecutivo N° 40281-H, publicado en el Alcance N° 68 a La Gaceta N° 61 de 27 de marzo de 2017 y sus reformas, en la suma de ¢150.859.209,35 (ciento cincuenta millones ochocientos cincuenta y nueve mil doscientos nueve colones con treinta y cinco céntimos), para ese período.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41355 del 8 de octubre del 2018)
