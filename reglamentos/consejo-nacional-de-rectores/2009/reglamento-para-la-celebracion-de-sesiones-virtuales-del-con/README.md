@@ -14,3 +14,4 @@ Reglamento para la celebración de sesiones virtuales del Consejo Nacional de Ac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-06 | la propia norma |
+| 2 | 2018-10-08 | Reglamento 0 (2018-10-08) |

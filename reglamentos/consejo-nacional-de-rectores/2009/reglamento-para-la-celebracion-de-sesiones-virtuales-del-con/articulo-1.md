@@ -1,4 +1,6 @@
+(Derogado)
 CONSEJO NACIONAL DE RECTORES
+(Esta norma fue derogada por el artículo 12 del Reglamento para la celebración de sesiones virtuales del Consejo Nacional de Acreditación del SINAES, y publicado en La Gaceta N° 207 del 8 de noviembre de 2018)
 SISTEMA NACIONAL DE ACREDITACIÓN
 DE LA EDUCACIÓN SUPERIOR
 REGLAMENTO PARA LA CELEBRACIÓN DE SESIONES
