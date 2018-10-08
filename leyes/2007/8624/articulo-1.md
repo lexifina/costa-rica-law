@@ -1,4 +1,6 @@
+(Derogado)
 Nº 8624
+(Esta ley fue derogada por el artículo 183 aparte 2) del Código Procesal Civil, N° 9342 del 3 de febrero de 2016)
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
