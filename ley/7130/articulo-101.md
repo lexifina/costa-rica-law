@@ -1,4 +1,3 @@
 CAPITULO VII
 Subalternos y auxiliares
-ARTÍCULO 101.- Derechos y deberes.
-Los subalternos y los auxiliares tienen los derechos y deberes que establece la Ley Orgánica del Poder Judicial, y los que concretamente disponga este Código.
+ARTÍCULO 101.- Derechos y deberes. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

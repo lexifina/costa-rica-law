@@ -1,2 +1,1 @@
-ARTÍCULO 628.- Recursos.
-Contra la sentencia que se dicte en el recurso de revisión no se dará recurso alguno.
+ARTÍCULO 628.- Recursos. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

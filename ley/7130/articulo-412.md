@@ -1,6 +1,3 @@
 Sección séptima
 Medios científicos
-ARTÍCULO 412.- Reproducciones.
-De oficio o a petición de parte, el juez podrá ordenar la práctica de calcos, relieves, filmes o fotografías de objetos, documentos y lugares.
-También podrá ordenarse la obtención de radiografías, radioscopías, análisis hematológicos, bacteriológicos u otros, y, en general, cualquier prueba científica.
-Podrán aportarse también comunicaciones telegráficas, radiográficas, telefónicas y cablegráficas, siempre que se hayan observado las leyes y los reglamentos respectivos.
+ARTÍCULO 412.- Reproducciones. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

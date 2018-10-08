@@ -1,2 +1,1 @@
-ARTÍCULO 150.- Renuncia, ampliación o restricción.
-Los plazos son renunciables. Podrán también ampliarse o restringirse, pero sólo con consentimiento de las partes. Se exceptúan de esta regla los plazos perentorios.
+ARTÍCULO 150.- Renuncia, ampliación o restricción. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

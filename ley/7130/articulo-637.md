@@ -1,2 +1,1 @@
-ARTÍCULO 637.- Costosa conservación o peligro de pérdida.
-Cuando los bienes embargados fueren de difícil o costosa conservación, o hubiere peligro de pérdida o desvalorización, a pedido de cualquiera de las partes o del depositario, el tribunal ordenará la venta, sin más trámite, por el precio corriente en plaza.
+ARTÍCULO 637.- Costosa conservación o peligro de pérdida. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

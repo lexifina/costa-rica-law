@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 711.- Órgano judicial competente
 Autorízase a la Corte Suprema de Justicia, para que, cuando lo considere pertinente y con fundamento en el volumen de trabajo en la materia regulada por este Código, establezca uno o más tribunales especializados que tendrán a su cargo las siguientes funciones:
 1.- Recibir para su tramitación, las solicitudes de administración y reorganización con intervención judicial, concursos civiles y quiebras.

@@ -1,6 +1,1 @@
-ARTÍCULO 430.- Procedimiento de la apelación.
-La apelación deberá interponerse dentro de los tres días siguientes al de la notificación a todas las partes.
-Admitida la apelación, se emplazará a las partes para que comparezcan ante el superior en defensa de sus derechos y expresen agravios, dentro del plazo de tres días si el tribunal de primera instancia estuviere en el mismo lugar que el superior, y de cinco días si estuviere en lugar distinto. Al emplazar a las partes, se les prevendrá el señalamiento de casa u oficina para atender notificaciones en el tribunal de segunda instancia, si no radicare en el mismo lugar. Una vez transcurrido el emplazamiento, el juzgador dictará la sentencia dentro de los ocho días siguientes, salvo que haya ordenado prueba para mejor resolver.
-La tramitación de la segunda instancia se hará en el mismo expediente original. El secretario dejará copia de la sentencia en un libro, firmada por él y sellada.
-En asuntos de menor cuantía, dictada la sentencia se devolverá el expediente a la alcaldía dentro del segundo día después de notificada. En los demás, habrá recurso de casación si este procediere por razón de la cuantía.
-(Así reformado por el artículo único, inciso b), de la ley No.7725 de 9 de diciembre de 1997)
+ARTÍCULO 430.- Procedimiento de la apelación. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

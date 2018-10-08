@@ -1,0 +1,2 @@
+ARTÍCULO 148.- Condena de dar
+Cuando deba entregarse un bien mueble o inmueble y el obligado no lo hiciera voluntariamente, se procederá a la entrega o puesta en posesión. Los muebles que no deban entregarse con un inmueble se pondrán en depósito, si su dueño no quisiera o no pudiera retirarlos en el acto de la expulsión, y sobre dichos muebles se podrá ejercer derecho de retención por los gastos que origine el depósito.

@@ -1,5 +1,2 @@
-ARTÍCULO 927.- Créditos reconocidos.
-Se tendrá por reconocido un crédito con el voto de la mayoría, si no hubiere disposición legal que lo impida, y si se tratare de deudas que efectivamente estén a cargo de la sucesión. El tribunal podrá negar el reconocimiento si tuviere motivo fundado para creer que se trata de una colusión en daño de la sucesión, o de la minoría de los interesados.
-Los créditos reconocidos serán pagados acto continuo, si fuere posible; si no, se procederá a la venta de bienes para su pago, con las formalidades prescritas por los artículos 550 del Código Civil y 915 (*) del presente, o se tomarán las disposiciones del caso en la cuenta partición.
-(* El artículo indicado es ahora el 938)
+ARTÍCULO 927.- Créditos reconocidos. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)
 (La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 904 al 927)

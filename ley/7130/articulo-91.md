@@ -1,2 +1,1 @@
-ARTÍCULO 91.- Audiencia y contestación.
-Presentada en tiempo y forma la demanda de responsabilidad, deberá el juez o tribunal que conozca de ella dar audiencia por ocho días al demandado. Este, en el escrito de contestación, puntualizará las pruebas en que se funde su descargo.
+ARTÍCULO 91.- Audiencia y contestación. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

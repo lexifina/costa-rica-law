@@ -1,2 +1,1 @@
-ARTÍCULO 386.- Documento firmado a ruego.
-Los documentos firmados por una persona a ruego de otra, y por dos testigos más, hacen plena prueba, si los tres firmantes reconocen su firma y testifican el hecho de haber presenciado el otorgamiento.
+ARTÍCULO 386.- Documento firmado a ruego. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

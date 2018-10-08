@@ -1,4 +1,3 @@
 Sección tercera
 Procedimiento arbitral
-ARTÍCULO 521.- Irrenunciabilidad del procedimiento.
-(Derogado por el artículo 75 de la Ley de Resolución Alterna de Conflictos No.7727 de 9 de diciembre de 1997)
+ARTÍCULO 521.- Irrenunciabilidad del procedimiento. (Derogado por el artículo 75 de la Ley de Resolución Alterna de Conflictos No.7727 de 9 de diciembre de 1997. Posteriormente por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016, se vuelve a derogar este numeral)

@@ -1,2 +1,1 @@
-ARTÍCULO 479.- Intimación.
-Al emplazar al demandado, el juez lo intimará para que manifieste si acepta o no los hechos, y para que, si los aceptare, diga si presentará o no su demanda.
+ARTÍCULO 479.- Intimación. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

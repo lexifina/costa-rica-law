@@ -1,2 +1,1 @@
-ARTÍCULO 224.- Segunda instancia.
-En caso de ser apelada la sentencia, el superior podrá condenar al vencido en las costas personales y procesales, o sólo en las últimas, siguiendo los criterios antes indicados, sea que se confirme, sea que se revoque o se modifique el fallo.
+ARTÍCULO 224.- Segunda instancia. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

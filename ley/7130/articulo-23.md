@@ -1,5 +1,3 @@
 Sección tercera
 Territorio
-ARTÍCULO 23.- Competencia territorial.
-Todo juez tiene limitada su competencia al territorio que le está señalado para ejercerla; las actuaciones que deba practicar en el territorio de otro juez, deberá practicarlas por medio de éste.
-De los negocios no sometidos a su competencia, el juez sólo podrá conocer cuando ésta le fuere legalmente prorrogada.
+ARTÍCULO 23.- Competencia territorial. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

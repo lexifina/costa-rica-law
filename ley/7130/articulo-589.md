@@ -1,2 +1,1 @@
-ARTÍCULO 589.- Improcedencia de la apelación.
-Si la apelación fuere improcedente, el superior confirmará el auto denegatorio dictado por el juez de primera instancia, y le remitirá el legajo para que sea agregado al proceso.
+ARTÍCULO 589.- Improcedencia de la apelación. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

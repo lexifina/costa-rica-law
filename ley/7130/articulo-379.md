@@ -1,2 +1,1 @@
-ARTÍCULO 379.- Documentos privados.
-Los documentos privados reconocidos judicialmente o declarados como reconocidos conforme con la ley, hacen fe entre las partes y con relación a terceros, en cuanto a las declaraciones en ellos contenidas, salvo prueba en contrario.
+ARTÍCULO 379.- Documentos privados. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

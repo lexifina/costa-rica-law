@@ -1,0 +1,8 @@
+ARTÍCULO 68.- Apelación por inadmisión
+68.1 Procedencia y plazo. Procederá el recurso de apelación por inadmisión contra la resolución que deniegue un recurso de apelación.
+Deberá presentarse en el acto si se le denegó en audiencia o, dentro del tercer día, si se trata de una resolución escrita.
+68.2 Requisitos y procedimiento. La gestión deberá realizarse ante el mismo tribunal que denegó el recurso y expresará con claridad las razones por las cuales se estima ilegal la denegatoria.
+Cuando la apelación por inadmisión se refiera a la denegatoria de una apelación que debió admitirse con efecto diferido, el tribunal de primera instancia se limitará a permitir la interposición del recurso de apelación por inadmisión, el que quedará reservado para que sea resuelto y tomado en consideración en el momento en que el superior se pronuncie sobre el recurso interpuesto contra la sentencia definitiva, siempre que subsista el interés del apelante por inadmisión.
+Cuando se refiere a la denegatoria de una apelación que debió admitirse en efecto no diferido, alegada la apelación por inadmisión, el tribunal de primera instancia remitirá el expediente al superior de forma inmediata.
+68.3 Efectos de la interposición y resolución. La interposición del recurso de apelación por inadmisión no suspende el curso normal del procedimiento, salvo que el tribunal disponga expresamente lo contrario.
+Si la apelación fuera improcedente, el superior confirmará el auto denegatorio. Si la declara procedente, revocará el auto denegatorio y admitirá la apelación. Sin necesidad de resolución expresa, las partes deberán comparecer ante el superior a hacer valer sus derechos dentro del quinto día.

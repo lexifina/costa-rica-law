@@ -1,0 +1,2 @@
+ARTÍCULO 145.- Ejecución provisional de condenas dinerarias
+La ejecución provisional de sentencias dinerarias se limitará al embargo de bienes y no se admitirá oposición del ejecutado. Si la sentencia de condena dineraria provisionalmente ejecutada fuera revocada se levantarán los embargos y se condenará al ejecutante al pago de las costas de la ejecución provisional y a resarcir los daños y perjuicios que dicha ejecución hubiera ocasionado.

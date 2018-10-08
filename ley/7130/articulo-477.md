@@ -1,4 +1,3 @@
 Sección quinta
 Jactancia
-ARTÍCULO 477.- Procedencia.
-A nadie podrá obligársele a intentar una demanda. Sin embargo, cuando una persona se jactare, fuera del proceso, de tener un derecho del que no estuviere gozando, todo aquél a quien tal jactancia pueda afectar en su crédito o en la pacífica posesión de su estado o patrimonio, podrá pedir que se le obligue a presentar su demanda. Habrá jactancia siempre que la manifestación del jactancioso conste por escrito suyo, o se hubiere hecho verbalmente delante de dos o más personas hábiles para declarar.
+ARTÍCULO 477.- Procedencia. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

@@ -1,3 +1,1 @@
-ARTÍCULO 411.- Acta.
-Del resultado del reconocimiento se extenderá un acta en el mismo lugar, si fuere posible; en el caso contrario se hará en el tribunal.
-Dicha acta será firmada por el juez, el secretario y los asistentes a la redacción. Los nexos gráficos, si los hubiere, serán identificados y resguardados por el juez.
+ARTÍCULO 411.- Acta. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

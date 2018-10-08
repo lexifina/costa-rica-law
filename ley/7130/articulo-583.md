@@ -1,4 +1,3 @@
 CAPITULO IV
 Apelación por inadmisión
-ARTÍCULO 583.- Procedencia.
-El recurso de apelación por inadmisión deberá presentarse ante el superior correspondiente, y procederá contra las resoluciones que denieguen ilegalmente un recurso de apelación.
+ARTÍCULO 583.- Procedencia. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

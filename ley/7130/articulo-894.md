@@ -1,3 +1,2 @@
-ARTÍCULO 894.- Declaratoria de validez o nulidad.
-Si el acreedor no las aceptare, la declaratoria de validez o nulidad de las ofertas reales o de la consignación, se debatirá en proceso ordinario, o abreviado, según corresponda. Pero si sobre el pago de la deuda estuviere pendiente ya cualquier tipo de proceso, se hará en éste, en pieza separada y por el trámite de los incidentes. La sentencia determinará a cuenta de quién serán los gastos de las ofertas y de la consignación.
+ARTÍCULO 894.- Declaratoria de validez o nulidad. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)
 (La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 871 al 894)

@@ -1,3 +1,1 @@
-ARTÍCULO 265.- Aceptación y obligatoriedad del cargo.
-Hecho el nombramiento de curador procesal, se recibirá al nombrado su aceptación y juramento, lo que se consignará en un acta. De éstos y del auto de nombramiento se le dará certificación al curador para que pueda acreditar su personalidad.
-El cargo de curador es obligatorio; la representación del curador procesal terminará con la cesación de las causas que hayan hecho nacer la curatela.
+ARTÍCULO 265.- Aceptación y obligatoriedad del cargo. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

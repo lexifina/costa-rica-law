@@ -1,2 +1,1 @@
-ARTÍCULO 421.- Asuntos de menor cuantía.
-También se tramitarán y decidirán en proceso abreviado, las pretensiones de menor cuantía que no tengan asignado un trámite especial.
+ARTÍCULO 421.- Asuntos de menor cuantía. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

@@ -1,2 +1,1 @@
-ARTÍCULO 340.- Indivisibilidad.
-La confesión judicial es indivisible, pero el que la hiciere valer podrá combatir, por medio de toda clase de pruebas, con las limitaciones que la ley establece, las declaraciones que hacen parte de la confesión.
+ARTÍCULO 340.- Indivisibilidad. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

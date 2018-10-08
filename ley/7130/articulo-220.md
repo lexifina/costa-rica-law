@@ -1,4 +1,3 @@
 Sección quinta
 Conciliación
-ARTÍCULO 220.- Efectos.
-Los acuerdos conciliatorios homologados por el juez producirán cosa juzgada. Se procederá a su cumplimiento mediante el proceso de ejecución de sentencia.
+ARTÍCULO 220.- Efectos. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

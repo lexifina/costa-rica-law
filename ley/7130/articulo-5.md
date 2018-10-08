@@ -1,2 +1,1 @@
-ARTÍCULO 5.- Observancia de las normas procesales.
-Las normas procesales son de orden público y, en consecuencia, de obligado acatamiento, tanto por el juez como por las partes y eventuales terceros. Se exceptúan de estas reglas las normas que, aunque procesales, sean de carácter facultativo, por referirse a intereses privados de las partes.
+ARTÍCULO 5.- Observancia de las normas procesales.(Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

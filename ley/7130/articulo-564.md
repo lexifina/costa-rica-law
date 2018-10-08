@@ -1,2 +1,1 @@
-ARTÍCULO 564.- Procesos no contenciosos.
-Las apelaciones interpuestas en procesos no contenciosos se admitirán siempre en efecto suspensivo, si las interpusiere el promotor del expediente. Las interpuestas por todo aquél que haya venido al expediente serán admisibles en el efecto devolutivo.
+ARTÍCULO 564.- Procesos no contenciosos. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

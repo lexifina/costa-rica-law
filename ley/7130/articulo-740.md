@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 740.- Fenecimiento anormal
 A solicitud del interventor o de cualquier interesado, el proceso también se dará por concluido:
 1.- Si se comprobare que la crisis económica y financiera de la empresa se ha tornado irrecuperable.

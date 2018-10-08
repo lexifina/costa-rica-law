@@ -1,2 +1,1 @@
-ARTÍCULO 618.- Recursos.
-Contra las sentencias dictadas por la sala de casación no habrá lugar a recurso alguno; y contra las demás resoluciones sólo se dará el de revocatoria, que deberá interponerse dentro de tercero día.
+ARTÍCULO 618.- Recursos. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

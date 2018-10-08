@@ -1,2 +1,1 @@
-ARTÍCULO 623.- Suspensión del procedimiento.
-Si interpuesto el recurso de revisión, y en cualquiera de sus trámites, se suscitaren cuestiones cuya decisión, determinante de la procedencia de aquél, competa a los tribunales penales, se suspenderá el procedimiento en la sala, hasta que el proceso penal se resuelva por sentencia firme.
+ARTÍCULO 623.- Suspensión del procedimiento. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

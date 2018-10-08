@@ -1,4 +1,3 @@
 CAPITULO V
 Embargo preventivo
-ARTÍCULO 272.- Finalidad.
-Para impedir que el deudor, mediante el ocultamiento o la distracción de bienes, haga ilusorio el resultado de un proceso, el acreedor podrá pedir el embargo preventivo.
+ARTÍCULO 272.- Finalidad. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

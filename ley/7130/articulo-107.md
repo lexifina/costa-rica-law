@@ -1,2 +1,1 @@
-ARTÍCULO 107.- Litis consorcio facultativo.
-Varias personas pueden demandar, o ser demandadas en la misma demanda, cuando entre las pretensiones que se promueven exista conexión objetiva o causal.
+ARTÍCULO 107.- Litis consorcio facultativo. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

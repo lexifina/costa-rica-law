@@ -1,2 +1,1 @@
-ARTÍCULO 327.- Plazo de antelación.
-La citación para una audiencia de prueba deberá notificarse por lo menos con tres días de antelación.
+ARTÍCULO 327.- Plazo de antelación. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

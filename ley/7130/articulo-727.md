@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 727.- Verificación de los créditos
 Los acreedores que constan en la lista suministrada por el deudor no están obligados a legalizar su crédito; pero, si se apersonaren, deberán presentar los títulos que amparen su derecho.
 Dentro de los quince días posteriores a la aceptación del cargo, el interventor rendirá un informe detallado de los pasivos de la empresa.

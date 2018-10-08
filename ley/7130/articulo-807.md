@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 807.- Distribución y cuentas finales.
 Concluidas la realización y liquidación de la masa, se procederá a la distribución final.
 El curador rendirá cuenta de su administración en la junta que se reúna para la aprobación de la distribución final. No será necesario publicar edicto para esta junta.

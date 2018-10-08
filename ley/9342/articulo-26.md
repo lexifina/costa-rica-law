@@ -1,0 +1,4 @@
+ARTÍCULO 26.- Lugar y tiempo de las actuaciones
+26.1 Lugar. Las actuaciones se realizarán en la sede del tribunal, salvo aquellas que por su naturaleza o disposición legal se deban practicar en otro lugar.
+26.2 Días y horas hábiles. Todos los días y horas son hábiles para las actuaciones judiciales, salvo aquellos que por disposición de la ley o de los órganos competentes hayan sido declarados inhábiles. Cuando las circunstancias lo ameriten, se podrá señalar y continuar audiencias en horas y días inhábiles.
+26.3 Inicio de las actuaciones judiciales. Cuando se señale una hora precisa para practicar actuaciones judiciales, estas deberán iniciar a la hora exacta. En situaciones excepcionales, a criterio del tribunal, podrán comenzar quince minutos después de la hora fijada. Podrán iniciar aun más tarde, cuando exista causa justa o no haya oposición fundada de una de las partes.

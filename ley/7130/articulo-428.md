@@ -1,4 +1,1 @@
-ARTÍCULO 428.- Disposiciones aplicables.
-Las disposiciones establecidas para el proceso ordinario serán aplicables al proceso abreviado, en los casos en que guardare silencio este título.
-Pero en cuanto a apelaciones, no las habrá en otros casos que los expresados en el presente título.
-Serán aplicables también los demás procedimientos del presente título a los otros procesos de menor cuantía, cuando no haya disposición especial para el caso.
+ARTÍCULO 428.- Disposiciones aplicables. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

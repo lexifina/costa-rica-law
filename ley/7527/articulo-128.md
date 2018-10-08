@@ -1,3 +1,2 @@
-ARTICULO 128.- Acumulación de pretensiones de un mismo actor.
-En un mismo proceso abreviado, se acumularán todas las pretensiones que el actor tenga que deducir contra el demandado.
-El arrendador podrá acumular, voluntariamente, la acción de desahucio, en cuyo caso todas las pretensiones se tramitarán en un solo proceso abreviado, de acuerdo con sus propias normas, y se resolverán en una misma sentencia.
+Artículo 128.- Acumulación de pretensiones de un mismo actor. En un mismo proceso ordinario se acumularán todas las pretensiones que el actor tenga que deducir contra el demandado. El arrendador podrá acumular, voluntariamente, la acción de desahucio, en cuyo caso todas las pretensiones se tramitarán en un solo proceso ordinario, de acuerdo con sus propias normas, y se resolverán en una misma sentencia.
+(Así reformado por el artículo 184 aparte 3) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

@@ -1,4 +1,1 @@
-ARTÍCULO 273.- Garantía.
-Si el acreedor no presentare título ejecutivo, deberá garantizar los daños y perjuicios que se originen del embargo, y determinar con claridad qué clase de prestación va a exigir del demandado, y la causa o título de ella.
-La garantía deberá consistir en un depósito en efectivo o en valores de comercio a la orden del juez. Si fuere dinero efectivo, el depósito será del veinticinco por ciento de la suma por la cual se pide el embargo; y si se tratare de valores de comercio, del cincuenta por ciento cuyo valor se apreciará por el que tengan en plaza, a juicio del juez, según los datos que extrajudicialmente pueda obtener. El decreto del embargo se notificará al deudor en el acto de su ejecución, o después.
-(Texto así modificado por resolución de la Sala Constitucional Nº 5731-96 de las 14:31 horas del 29 de octubre de 1996)
+ARTÍCULO 273.- Garantía. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

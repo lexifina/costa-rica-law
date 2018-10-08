@@ -1,2 +1,1 @@
-ARTÍCULO 396.- Falsedad de documento público.
-Si se estableciera un proceso penal sobre la falsedad de un documento o instrumento público en lo sustancial, de influencia en el proceso civil, se suspenderá éste en el estado en que se halle hasta que se resuelva definitivamente aquél. Si la falsedad se refiriere a lo accesorio, será facultativo para los tribunales civiles decretar la suspensión.
+ARTÍCULO 396.- Falsedad de documento público. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

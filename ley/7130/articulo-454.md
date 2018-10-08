@@ -1,3 +1,1 @@
-ARTÍCULO 454.- Cobro de alquileres insolutos y otros y derecho de retención.
-El actor podrá gestionar, en proceso incidental que se tramitará en pieza separada, el cobro de los alquileres insolutos y de los servicios y gastos correspondientes al arrendatario. Por la misma vía, el actor podrá ejercer el derecho de retención sobre los bienes del arrendatario y sus familiares, conforme lo establece el artículo 66 de la Ley general de arrendamientos urbanos y suburbanos, para lo cual esos bienes se asegurarán, mediante diligencia de embargo.
-(Así reformado por el artículo 131 de la Ley de Arrendamientos Urbanos No.7527 del 10 de julio de 1995)
+ARTÍCULO 454.- Cobro de alquileres insolutos y otros y derecho de retención. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

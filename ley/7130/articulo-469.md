@@ -1,2 +1,1 @@
-ARTÍCULO 469.- Autorización para ejecutar.
-A solicitud del actor, éste será autorizado por el juzgador para llevar a cabo la reposición a costa del vencido.
+ARTÍCULO 469.- Autorización para ejecutar. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

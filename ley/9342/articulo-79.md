@@ -1,0 +1,3 @@
+ARTÍCULO 79.- Admisibilidad
+Para decidir sobre la admisibilidad de la tutela cautelar se apreciará la apariencia de buen derecho, la proporcionalidad y razonabilidad de la medida, su relación con la pretensión y la eventual afectación a terceros o al interés público. Se podrá disponer una medida cautelar distinta de la solicitada si se considera adecuada y suficiente. Cuando se admita se determinará su contenido, duración y se prevendrá garantía si es necesaria.
+No se decretarán cuando se pretenda afectar situaciones de hecho consentidas por el solicitante durante largo tiempo, salvo que justifique las razones por las que dichas medidas no se han solicitado hasta entonces.

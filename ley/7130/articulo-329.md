@@ -1,3 +1,1 @@
-ARTÍCULO 329.- Recursos.
-Las resoluciones en las que se admitan pruebas o aquellas en las que se declaren inevacuables o nulas, o las que se dicten en incidencias creadas con motivo de su práctica, no tendrán más recurso que el de revocatoria; pero el tribunal de segunda instancia podrá, en su oportunidad, ordenar que se reciban aquéllas que hubieren sido declaradas inevacuables o nulas, que estime convenientes para la justa decisión.
-El auto en el que se rechacen pruebas será apelable en el efecto devolutivo.
+ARTÍCULO 329.- Recursos. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

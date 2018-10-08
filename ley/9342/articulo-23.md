@@ -1,0 +1,6 @@
+ARTÍCULO 23.- Pretensiones
+23.1 Pretensión procesal. Se podrá pretender ante los tribunales la condena a determinada prestación, la declaratoria de existencia, constitución, modificación o extinción de derechos y situaciones jurídicas, la adopción de medidas cautelares, la ejecución y cualquier otra clase de tutela prevista por la ley.
+23.2 Acumulación de pretensiones. En una demanda o contrademanda podrán proponerse varias pretensiones, siempre que haya conexión entre estas, que no se excluyan entre sí y que el tribunal sea competente para conocer de todas.
+Si fueran excluyentes, podrán acumularse como principales y subsidiarias. Si se hubieran acumulado varias pretensiones indebidamente, se requerirá a la parte para que se subsane el defecto en el plazo de cinco días, manteniendo las pretensiones cuya acumulación fuera posible. Transcurrido el plazo sin que se produzca la subsanación o se mantuviera la circunstancia de no acumulabilidad entre las pretensiones escogidas por el accionante, se declarará inadmisible.
+No obstante, por única vez, el tribunal podrá hacer una segunda prevención en casos excepcionales, cuando sea evidente la intención de la parte de subsanar el defecto señalado.
+Declarada inadmisible la demanda subsistirá la contrademanda y viceversa. Al incumpliente se le condenará al pago de las costas causadas.

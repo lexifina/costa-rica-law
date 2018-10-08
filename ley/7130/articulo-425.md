@@ -1,2 +1,1 @@
-ARTÍCULO 425.- Conciliación y medidas de saneamiento.
-El juzgador dará aplicación a lo dicho en los artículos 314 y 315.
+ARTÍCULO 425.- Conciliación y medidas de saneamiento. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

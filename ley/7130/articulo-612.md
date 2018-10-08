@@ -1,2 +1,1 @@
-ARTÍCULO 612.- Oportunidad y publicación.
-Salvo que la ley señale plazo especial, la sentencia deberá ser dictada por la sala en la oportunidad que indica el artículo 151. Se publicará de manera íntegra en la Colección de Sentencias.
+ARTÍCULO 612.- Oportunidad y publicación. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

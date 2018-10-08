@@ -1,2 +1,1 @@
-ARTÍCULO 72.- Requisitos y plazo.
-En la recusación se expresarán concretamente la causal de ella y las pruebas en que se funda. En el caso primero del artículo 70 deberá presentarse el escrito de recusación, antes del día señalado para dar inicio al reconocimiento. En el segundo, dentro de los tres días siguientes al de la notificación del nombramiento.
+ARTÍCULO 72.- Requisitos y plazo. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

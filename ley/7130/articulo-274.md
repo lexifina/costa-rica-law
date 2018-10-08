@@ -1,2 +1,1 @@
-ARTÍCULO 274.- Cosas determinadas en poder del deudor.
-Cuando el derecho del acreedor se refiera a cosas determinadas que se hallen en poder del deudor, a ellas se limitará el embargo.
+ARTÍCULO 274.- Cosas determinadas en poder del deudor. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

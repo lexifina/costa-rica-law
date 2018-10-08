@@ -1,2 +1,1 @@
-ARTÍCULO 555- El cargo de albacea testamentario o definitivo, es por tiempo indefinido.
-(Así reformado por artículo Nº 1 de la Ley Nº 5181 de 22 de febrero de 1973).
+ARTÍCULO 555- (Derogado por el artículo 183 aparte 4) del Código Procesal Civil, N° 9342 del 3 de febrero de 2016)

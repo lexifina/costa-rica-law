@@ -1,2 +1,1 @@
-ARTÍCULO 75.- Costas.
-Cuando se desestime la recusación de un perito, será condenado el recusante en todas las costas del incidente.
+ARTÍCULO 75.- Costas. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

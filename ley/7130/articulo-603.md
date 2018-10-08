@@ -1,2 +1,1 @@
-ARTÍCULO 603.- Ampliación de la vista.
-Únicamente a solicitud del recurrente, hecha antes del señalamiento para la vista, podrá ampliarse ésta a una audiencia más, si la naturaleza del proceso, lo justificara, a juicio de la sala.
+ARTÍCULO 603.- Ampliación de la vista. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

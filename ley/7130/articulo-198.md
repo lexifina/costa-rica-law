@@ -1,2 +1,1 @@
-ARTÍCULO 198.- Nulidad de actos posteriores.
-Anulado un acto procesal, serán nulos también todos los posteriores que de aquél dependan. Al hacer la declaratoria, el juez dirá a cuáles alcanzará la nulidad, y ordenará las diligencias necesarias a fin de que sean repetidos o rectificados.
+ARTÍCULO 198.- Nulidad de actos posteriores. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

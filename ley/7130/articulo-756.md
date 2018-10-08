@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 756.- Resolución del convenio
 A solicitud del curador o de cualquier acreedor afectado por el convenio, este se resolverá en los siguientes casos:
 1.- Cuando las garantías prometidas por el deudor no se otorgaren según lo pactado.

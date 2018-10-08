@@ -1,3 +1,1 @@
-ARTÍCULO 554.- Procedencia.
-El recurso de revocatoria será procedente contra los autos, el cual deberá interponerse dentro de tercero día.
-El escrito en que se formule el recurso contendrá, necesariamente, los motivos en que fundamente, sin lo cual será rechazado de plano.
+ARTÍCULO 554.- Procedencia. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

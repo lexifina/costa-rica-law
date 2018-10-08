@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las nomas que lo sustituyan.)
 ARTÍCULO 868.- Requisitos.
 A la solicitud deberá acompañársele el testimonio de la sentencia firme de interdicción.
 El solicitante deberá indicarle al juez el pariente del inhábil a quien le correspondiere en derecho la curatela.

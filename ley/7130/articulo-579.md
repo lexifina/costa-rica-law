@@ -1,2 +1,1 @@
-ARTÍCULO 579.- Devolución del expediente.
-Dictada la resolución de segunda instancia, se devolverá el expediente al tribunal de origen. Si contra dicha resolución cupiere, por su naturaleza, el recurso de casación, no se devolverá el expediente mientras no transcurra el plazo para interponer ese recurso.
+ARTÍCULO 579.- Devolución del expediente. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

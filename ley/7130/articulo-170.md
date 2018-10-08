@@ -1,2 +1,1 @@
-ARTÍCULO 170.- Voto conforme de toda conformidad.
-Para que haya resolución es necesario el voto conforme de toda conformidad de la mayoría absoluta de todos los miembros del tribunal.
+ARTÍCULO 170.- Voto conforme de toda conformidad. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)
