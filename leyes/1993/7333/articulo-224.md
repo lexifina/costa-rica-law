@@ -1,7 +1,9 @@
-TITULO IX
-DE LAS JUBILACIONES Y PENSIONES JUDICIALES
-CAPITULO I
-DISPOSICIONES GENERALES
-ARTICULO 224.- Los servidores judiciales podrán acogerse a una jubilación igual al salario promedio de los últimos veinticuatro mejores salarios mensuales ordinarios, devengados al servicio del Poder Judicial, siempre que hayan cumplido sesenta y dos años de edad y el número de años trabajados para la Administración Pública sea al menos de treinta.
-(Así reformado por el artículo 4º de la ley Nº 7605 de 2 de mayo de 1996)
-(Así reformado este artículo de acuerdo con la anulación parcial ordenada por resolución de la Sala Constitucional N° 1625 del 27 de enero de 2010.)
+TÍTULO IX
+RÉGIMEN DE JUBILACIONES Y PENSIONES
+DEL PODER JUDICIAL
+(Así reformado el título anterior por el artículo 1° de la ley N° 9544 del 24 de abril de 2018)
+CAPÍTULO I
+PRESTACIONES
+(Así reformado el capítulo anterior por el artículo 1° de la ley N° 9544 del 24 de abril de 2018)
+Artículo 224- Los servidores judiciales con veinte o más años de servicio en el Poder Judicial podrán acogerse a una jubilación ordinaria igual a un ochenta y dos por ciento (82%) del promedio de los últimos veinte años de salarios mensuales ordinarios devengados en su vida laboral, actualizados según el índice de precios al consumidor (IPC), definido por el Instituto Nacional de Estadística y Censos (INEC), siempre y cuando hayan cumplido sesenta y cinco años de edad y hayan trabajado al menos treinta y cinco años.
+(Así reformado por el artículo 1° de la ley N° 9544 del 24 de abril de 2018)

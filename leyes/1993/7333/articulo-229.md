@@ -1,8 +1,5 @@
-ARTICULO 229.- Ninguna jubilación o pensión podrá ser inferior a la
-tercera parte del sueldo que, para el último cargo o empleo servido,
-señale el presupuesto de gastos del Estado, vigente en el año en que se
-hiciere el pago.
-El monto de las pensiones y jubilaciones se reajustará cuando el
-Poder Judicial decrete incrementos para los servidores judiciales por
-variaciones en el costo de la vida y en igual porcentaje que los
-decretados para estos.
+Artículo 229- El monto de las prestaciones de pensión por sobrevivencia en los casos de viudez, unión de hecho, orfandad o ascendencia será proporcional al monto de pensión que recibía el pensionado al momento de fallecer, y en su conjunto este monto no será mayor al ochenta por ciento (80%) de lo que correspondía al causante. En caso de muerte de un servidor activo, la cuantía de la pensión por viudez, unión de hecho, orfandad o ascendencia será proporcional al monto de pensión que hubiera recibido el fallecido de acuerdo con el cumplimiento de requisitos en el momento de la contingencia, y en su conjunto este monto no será mayor al ochenta por ciento (80%) de lo que le hubiera correspondido al causante.
+Las proporciones para los beneficios por viudez, unión de hecho, orfandad y ascendencia serán las que se estipulen en el reglamento del Régimen.
+Toda pensión por sobrevivencia caducará por la muerte del beneficiario, a excepción de lo dispuesto en este artículo para la pensión que corresponde a los hijos.
+Las asignaciones que caduquen acrecerán proporcionalmente las de los demás beneficiarios que se mantienen vigentes, a solicitud de ellos y siempre y cuando los requieran, previo estudio de trabajo social y aprobación de la Junta Administrativa del Fondo.
+(Así reformado por el artículo 1° de la ley N° 9544 del 24 de abril de 2018)
