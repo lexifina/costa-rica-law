@@ -1,5 +1,6 @@
-Artículo 54.- La Sala Primera conocerá:
-1) De los recursos de casación y revisión, que procedan, conforme a la ley, en los procesos ordinarios y abreviados, en las materias civil y comercial, con salvedad de los asuntos referentes al Derecho de familia y a juicios universales.
+Artículo 54.-La Sala Primera conocerá:
+1) De los recursos de casación y revisión que procedan, conforme a la ley, en los procesos ordinarios, en las materias civil y comercial, con salvedad de los asuntos referentes al derecho de familia y a procesos universales.
+(Así reformado el inciso anterior por el artículo 184 aparte 4) del Código procesal Civil, N° 9342 del 3 de febrero del 2016)
 2) Del recurso extraordinario de casación en materia contencioso-administrativa y civil de Hacienda, cuando intervenga alguno de los siguientes órganos y no sean competencia del Tribunal de Casación de lo Contencioso-Administrativo y Civil de Hacienda :
 a) El presidente de la República.
 b) El Consejo de Gobierno.
@@ -12,7 +13,8 @@ g) Los órganos con personería instrumental.
 4) A esta Sala también le corresponderá conocer y resolver, con independencia del ente u órgano autor de la conducta, los recursos de casación en los procesos en que se discutan la validez y eficacia de los reglamentos, así como lo relativo a la materia tributaria y al recurso de casación, en interés del ordenamiento jurídico establecido en el Código Procesal Administrativo.
 5) De los recursos de revisión que procedan conforme a la ley, en la materia contencioso-administrativa y civil de Hacienda.
 6) De la tercera instancia rogada en asuntos de la jurisdicción agraria, cuando el recurso tenga cabida de conformidad con la ley.
-7) Del cumplimiento de sentencias pronunciadas por tribunales extranjeros, con arreglo a los tratados, las leyes vigentes y los demás casos de exequátur.
+7) Del auxilio judicial internacional y del reconocimiento y eficacia de sentencias y laudos extranjeros en materia civil y comercial, con la salvedad de lo que corresponda conocer a las otras salas de la Corte.
+(Así reformado el inciso anterior por el artículo 184 aparte 4) del Código procesal Civil, N° 9342 del 3 de febrero del 2016)
 8) De los conflictos de competencia que se susciten en los tribunales civiles o entre estos y los de otra materia, siempre que aquellos hayan prevenido en el conocimiento del asunto.
 9) De los conflictos de competencia que se susciten entre un juzgado o Tribunal de la Jurisdicción Contencioso-Administrativa y Civil de Hacienda, con cualquier otro de materia diversa.
 10) De la inconformidad formulada dentro del tercer día, por cualquiera de las partes, sobre la resolución emitida por órganos de la Jurisdicción Contencioso-Administrativa y Civil de Hacienda, definiendo su competencia.

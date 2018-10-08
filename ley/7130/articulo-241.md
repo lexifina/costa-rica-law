@@ -2,5 +2,4 @@ TITULO IV
 Medidas cautelares
 CAPITULO I
 Disposiciones generales
-ARTÍCULO 241.- Oportunidad.
-El procedimiento cautelar podrá ser instaurado antes o en el curso del proceso principal, del que siempre formará parte.
+ARTÍCULO 241.- Oportunidad. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

@@ -1,2 +1,1 @@
-ARTÍCULO 498.- Tercería denegada.
-El proceso ordinario o abreviado que se establezca, según el caso, para hacer prosperar una tercería rechazada de plano o denegada, no suspenderá el curso del proceso principal.
+ARTÍCULO 498.- Tercería denegada. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

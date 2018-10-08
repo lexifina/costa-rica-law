@@ -1,2 +1,1 @@
-ARTÍCULO 123.- Pluralidad de pretensiones.
-En una demanda o contrademanda podrán proponerse varias pretensiones, siempre que haya conexión entre ellas, que no se excluyan entre sí, que el procedimiento sea común, y que el juez sea competente para conocer de todas. Si fueren excluyentes, podrán acumularse como principales y subsidiarias. También podrán acumularse cuando el único elemento común sea la causa.
+ARTÍCULO 123.- Pluralidad de pretensiones. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

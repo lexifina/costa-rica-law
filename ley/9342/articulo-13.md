@@ -1,0 +1,3 @@
+ARTÍCULO 13.- Inhibitoria
+El juez unipersonal que tuviera causal de impedimento se inhibirá mediante resolución y pasará el proceso a quien deba sustituirlo. Este continuará con el procedimiento, salvo que estime infundada la inhibitoria, en cuyo caso podrá plantear conflicto que resolverá el superior respectivo.
+En tribunales colegiados, la inhibitoria de uno de sus integrantes la resolverán los restantes miembros; pero, si la causal los comprendiera a todos, decidirá el tribunal sustituto conforme lo dispone la Ley Orgánica del Poder Judicial. Se deberá resolver en el plazo de veinticuatro horas.

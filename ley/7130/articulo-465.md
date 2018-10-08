@@ -1,2 +1,1 @@
-ARTÍCULO 465.- Sentencia.
-En la sentencia estimatoria se ordenará que inmediatamente se reponga al demandante en la posesión, y se condenará al demandado al pago de los daños y perjuicios.
+ARTÍCULO 465.- Sentencia. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

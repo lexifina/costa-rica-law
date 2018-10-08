@@ -1,2 +1,1 @@
-ARTÍCULO 205.- Desistimiento parcial.
-El desistimiento podrá referirse sólo a parte de las pretensiones, o a algunos de los demandantes o demandados. En este último caso, el desistimiento parcial será improcedente si se tratare de un litisconsorcio necesario.
+ARTÍCULO 205.- Desistimiento parcial. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

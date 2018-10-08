@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 739.- Trámite de la conclusión normal anticipada
 De la solicitud y de los documentos acompañados, se dará audiencia al interventor y a los acreedores apersonados, por tres días, para que manifiesten lo que a bien tengan.
 Una vez transcurrido ese lapso, el juzgado, se pronunciará sobre la solicitud en resolución considerada.

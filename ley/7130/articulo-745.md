@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 745.- Rechazo de plano o desestimación del convenio
 El juzgado rechazará de plano la solicitud si no se cumpliere con lo establecido en el artículo anterior y en la misma resolución declarará el concurso o la quiebra, si el deudor se encontrare en el presupuesto objetivo previsto en la ley para poder realizar declaratoria.
 Presentada la solicitud, el deudor deberá proceder en la forma prevista en el artículo 715.

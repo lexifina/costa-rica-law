@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 798.- Resolución sobre el convenio.
 Transcurrido el plazo a que se refiere el artículo 965 del Código Civil, sin que haya surgido oposición, el juez procederá, sin más trámite, a dictar sentencia que apruebe o impruebe el convenio.
 En todo caso, el juez podrá improbar el convenio, sin necesidad de la publicación a que se refiere el citado artículo 965, si evidentemente se dieren los supuestos que impiden hacerlo según ese texto de ley.

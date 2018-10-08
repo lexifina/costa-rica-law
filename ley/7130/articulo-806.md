@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 806.- Exención de responsabilidad.
 En los casos de los dos artículos anteriores, los acreedores no responderán por la existencia ni por la exigibilidad de la deuda.
 El juzgado entregará certificación sobre la dación en pago o remate, para que sirva de título al adquirente. Si el crédito estuviere consignado en un documento, al pie de éste se hará constar el traspaso.

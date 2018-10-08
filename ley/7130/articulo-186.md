@@ -1,5 +1,3 @@
 CAPITULO VI
 Suplicatorios, exhortos y mandamientos
-ARTÍCULO 186.- Comisión para diligencias.
-Cuando una diligencia judicial hubiere de ejecutarse fuera del lugar del proceso, o por un juez o tribunal distinto del que la hubiere ordenado, éste encargará su cumplimiento al que corresponda, por medio de suplicatorio, exhorto o mandamiento, según la categoría del juez a quien se dirija.
-Para ordenar el libramiento de certificaciones o testimonios y la práctica de cualquier diligencia judicial cuya ejecución corresponda a registradores, notarios, auxiliares o subalternos del órgano jurisdiccional, se empleará la forma de mandamiento.
+ARTÍCULO 186.- Comisión para diligencias. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

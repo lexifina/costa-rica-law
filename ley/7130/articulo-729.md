@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 729.- Trámite y discusión del plan
 Los acreedores, incluidos los que no figuren en lista suministrada por el deudor y que se apersonaron haciendo valer su derecho, podrán plantear por escrito, dentro del término del emplazamiento, las observaciones pertinentes al plan presentado por el deudor.
 Dentro del mes siguiente a la admisión del procedimiento, el interventor y los demás miembros del comité, nombrado el primero, en forma conjunta o separada, presentarán un informe pormenorizado acerca del plan y emitirán su opinión.

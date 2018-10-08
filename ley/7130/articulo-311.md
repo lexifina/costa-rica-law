@@ -1,2 +1,1 @@
-ARTÍCULO 311.- Litisconsorcio pasivo.
-Cuando haya varios demandados y la causa y el objeto les sean comunes, si uno o varios incurrieren en rebeldía y otros no, el juez deberá tomar en cuenta, para dictar sentencia respecto de los rebeldes, las pruebas rendidas por quienes no lo son.
+ARTÍCULO 311.- Litisconsorcio pasivo. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

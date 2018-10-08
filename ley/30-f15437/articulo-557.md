@@ -1,2 +1,3 @@
-ARTÍCULO 557.- El albacea gana por su trabajo los honorarios que le haya fijado el testador, y en caso de que éste no le haya señalado, o de albacea dativo, recibirá como honorario el cinco por ciento sobre los primeros diez mil pesos del capital líquido de la sucesión, y el dos y medio por ciento sobre la cantidad que exceda de diez mil pesos.
-Los honorarios del albacea suplente y los del provisional serán fijados por las partes, y en su defecto por el Juez.
+Artículo 557.- El albacea gana por su trabajo los honorarios que le haya fijado el testador y en caso de que este no le haya señalado, o de albacea dativo, recibirá como honorario el cinco por ciento (5%) sobre los primeros diez mil colones (¢10.000) del capital líquido de la sucesión, y el dos coma cinco por ciento (2,5%) sobre la cantidad que exceda de diez mil colones (¢ 10.000).
+Los honorarios de los albaceas suplente y específico serán fijados por las partes o, en su defecto, por el juez.
+(Así reformado por el artículo 184 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

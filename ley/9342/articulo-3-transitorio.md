@@ -1,0 +1,1 @@
+TRANSITORIO III.- A partir de la entrada en vigencia de este Código, los procesos ordinarios y abreviados de mayor cuantía, en los cuales no haya iniciado la fase probatoria, pasarán al tribunal colegiado de primera instancia.

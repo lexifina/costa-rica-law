@@ -1,2 +1,1 @@
-ARTÍCULO 94.- Costas.
-La sentencia en la que se declare sin lugar la demanda de responsabilidad civil condenará en todas las costas al demandante y las impondrá al demandado o demandados, cuando en todo o en parte se acceda a la demanda.
+ARTÍCULO 94.- Costas. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

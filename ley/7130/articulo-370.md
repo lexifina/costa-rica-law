@@ -1,2 +1,1 @@
-ARTÍCULO 370.- Valor probatorio.
-Los documentos o instrumentos públicos, mientras no sean argüidos de falsos, hacen plena prueba de la existencia material de los hechos que el oficial público afirme en ellos haber realizado él mismo, o haber pasado en su presencia, en el ejercicio de sus funciones.
+ARTÍCULO 370.- Valor probatorio. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

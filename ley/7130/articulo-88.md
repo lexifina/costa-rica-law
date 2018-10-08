@@ -1,2 +1,1 @@
-ARTÍCULO 88.- Imposibilidad de presentación.
-No podrá entablar el proceso de responsabilidad, el que no haya utilizado en tiempo los recursos legales que la ley le ofrezca.
+ARTÍCULO 88.- Imposibilidad de presentación. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

@@ -1,0 +1,7 @@
+ARTÍCULO 114.- Procedimiento
+114.1 Incidente en audiencia. Los incidentes suscitados en audiencia se tramitarán en esta. Se formularán oralmente y se oirá a la parte contraria. No se admitirá prueba que no se presente en el acto o cuya práctica no sea posible en esa misma audiencia. Practicada la prueba, se dictará resolución final y la cuestión debatida no podrá plantearse nuevamente.
+114.2 Incidentes fuera de audiencia. Los incidentes que se formulen fuera de audiencia se tramitarán en pieza separada.
+La gestión inicial deberá contener los hechos que lo sustentan y la pretensión. Se deberá aportar u ofrecer toda la prueba y si esta ya consta en el proceso bastará con indicarlo. Si no se cumplen los requisitos señalados, el incidente será rechazado de plano.
+Admitido el incidente, se emplazará a la parte contraria por un plazo de tres días. Con la contestación, el incidentado ofrecerá las pruebas, salvo si constan en el expediente, en cuyo caso bastará con indicarlo.
+La resolución final se dictará en el plazo de cinco días, cuando no sea necesario practicar prueba en audiencia.
+Si se admitiera prueba que deba practicarse en audiencia, se señalará para tal efecto dentro de los diez días siguientes. La resolución final se dictará inmediatamente después de finalizada la audiencia de práctica de la prueba. La incomparecencia de las partes se regirá por lo dispuesto en este Código, para la inasistencia en los procesos de audiencia única.

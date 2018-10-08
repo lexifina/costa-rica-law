@@ -1,2 +1,1 @@
-ARTÍCULO 300.- Prioridad al resolver.
-El juez resolverá previamente sobre la incompetencia. Si la deniega, resolverá las otras excepciones que se hubieren opuesto. Si la acoge, omitirá el pronunciamiento sobre las restantes.
+ARTÍCULO 300.- Prioridad al resolver. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

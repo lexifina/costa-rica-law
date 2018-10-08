@@ -1,2 +1,1 @@
-ARTÍCULO 172.- Nombres de los suplentes.
-Los nombres de los integrantes suplentes que deban intervenir en la votación se pondrán en conocimiento de los litigantes, oportunamente, para que puedan ejercer su derecho de recusación.
+ARTÍCULO 172.- Nombres de los suplentes. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

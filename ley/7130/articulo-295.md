@@ -1,3 +1,1 @@
-ARTÍCULO 295.- Emplazamiento.
-Presentada la demanda en forma legal, o subsanados los defectos, el juez dará traslado a la parte demandada y le concederá un plazo perentorio de treinta días para la contestación.
-Si el emplazado residiere en el extranjero, el plazo será, según los casos, el fijado para la prueba extraordinaria.
+ARTÍCULO 295.- Emplazamiento. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

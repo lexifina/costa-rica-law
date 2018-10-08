@@ -1,2 +1,1 @@
-ARTÍCULO 231.- Testigos declarantes.
-La dieta de los testigos declarantes la señalará prudencialmente el juez, según las circunstancias personales del testigo.
+ARTÍCULO 231.- Testigos declarantes. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

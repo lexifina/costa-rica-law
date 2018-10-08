@@ -1,2 +1,1 @@
-ARTÍCULO 485.- Caducidad.
-Los incidentes, de cualquier clase que sean, que no hayan sido activados durante un mes por la parte que los formuló, se tendrán por definitivamente desestimados sin necesidad de resolución que así lo declare. Si no obstante se dictara resolución, ésta no tendrá recurso alguno.
+ARTÍCULO 485.- Caducidad. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

@@ -1,0 +1,3 @@
+ARTÍCULO 100.- Auxilio judicial internacional
+Las solicitudes de auxilio judicial provenientes de tribunales o árbitros extranjeros serán tramitadas por la sala competente por razón de la materia. En defecto de tratados o convenios, se tramitarán de acuerdo con las leyes procesales nacionales; no obstante, a solicitud del tribunal requirente podrán observarse procedimientos específicos establecidos por la sala, previniendo el cumplimiento de cualquier requisito que se considere necesario.
+De ser procedentes se cumplirá lo solicitado, se ordenará notificar a los interesados y se tomarán las medidas necesarias para garantizar el debido proceso y el efectivo cumplimiento de lo solicitado. Las salas solo tramitarán cartas rogatorias de órganos jurisdiccionales.

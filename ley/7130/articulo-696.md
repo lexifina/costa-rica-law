@@ -1,3 +1,1 @@
-ARTÍCULO 696.- Condena de hacer.
-Si la sentencia obligare a hacer, el tribunal conferirá al vencido un plazo que se fijará de acuerdo con las circunstancias, para que cumpla con lo dispuesto en aquélla. Si no se cumpliera, el tribunal autorizará al victorioso para que haga lo que ordena el fallo, por cuenta del vencido, quien debe pagar además los daños y perjuicios ocasionados.
-Si el obligado hiciere de modo distinto lo que se ordenó la sentencia, se destruirá lo hecho y se cumplirá lo ordenado, en cuyo caso estarán a su cargo todos los gastos y los daños y perjuicios ocasionados por la mala ejecución.
+ARTÍCULO 696.- Condena de hacer. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

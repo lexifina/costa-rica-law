@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 738.- Conclusión normal del proceso
 El proceso concluirá, de pleno derecho, una vez transcurrido el plazo del plan. Los efectos que con él se crearon dejarán de producirse a partir de entonces, o con anterioridad, cuando el deudor demuestre, mediante la aportación de los balances de situación, los estados de ganancias y pérdidas, la atención de pasivos o por cualquier otro medio, que se ha superado la situación económica y financiera difícil.
 Se entiende que la situación de la empresa es normal, a pesar de la existencia de saldos insolutos, siempre y cuando estos puedan seguir atendiéndose en los mismos términos y condiciones en que fueron pactados originalmente, aun cuando se trate de créditos posteriores a la instauración del procedimiento.

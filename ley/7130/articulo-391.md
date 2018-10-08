@@ -1,3 +1,1 @@
-ARTÍCULO 391.- Aceptación y desconocimiento de la reproducción mecánica.
-Las reproducciones fotográficas, cinematográficas, fonográficas o de cualquier otra clase, hacen prueba de los hechos o de las cosas representadas, si la parte contra quien se opone las acepta expresa o tácitamente.
-Si se impugnare o desconociere la autenticidad de la reproducción mecánica, el juez ordenará la práctica de un examen pericial, a fin de determinar si es o no auténtica la reproducción.
+ARTÍCULO 391.- Aceptación y desconocimiento de la reproducción mecánica. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

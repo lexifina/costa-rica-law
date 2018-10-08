@@ -1,2 +1,1 @@
-ARTÍCULO 417.- Presunción humana.
-Las presunciones humanas sólo constituyen prueba si son consecuencia directa, precisa y lógicamente deducida de un hecho comprobado. La prueba de presunciones deberá ser grave y concordar con las demás rendidas en el proceso.
+ARTÍCULO 417.- Presunción humana. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

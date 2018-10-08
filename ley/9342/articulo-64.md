@@ -1,0 +1,2 @@
+ARTÍCULO 64.- Cosa juzgada
+Para que se produzca cosa juzgada es necesaria la identidad de sujetos, objeto y causa, la cual puede ser declarada de oficio. Sus efectos se limitan a lo dispositivo. Producen cosa juzgada material las sentencias firmes dictadas en procesos ordinarios y las resoluciones expresamente indicadas por la ley, lo cual hace indiscutible, en otro proceso, la existencia o no de la relación jurídica juzgada. Las sentencias dictadas en los demás procesos tendrán efecto de cosa juzgada formal y la presentación de un proceso ordinario no impedirá su ejecución.

@@ -1,0 +1,2 @@
+ARTÍCULO 82.- Sustitución y levantamiento de las medidas cautelares
+Las medidas cautelares podrán ser sustituidas o levantadas, salvo que lo impida su naturaleza o exista peligro de que el derecho del accionante se vuelva nugatorio. El solicitante deberá rendir garantía suficiente para tutelar los intereses del beneficiario. Para decidir el tribunal se ajustará a los principios de proporcionalidad y razonabilidad.

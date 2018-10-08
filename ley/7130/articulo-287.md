@@ -6,5 +6,4 @@ CAPITULO I
 Fase de iniciación
 Sección primera
 Disposiciones generales
-ARTÍCULO 287.- Vía ordinaria.
-Toda pretensión de mayor cuantía que no tenga una vía prevista en la cual pueda ser discutida y decidida, lo será en proceso ordinario.
+ARTÍCULO 287.- Vía ordinaria. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

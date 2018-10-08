@@ -1,3 +1,1 @@
-ARTÍCULO 557.- Efectos de la revocatoria.
-Contra el auto en que se deniegue una revocatoria no habrá recurso.
-Aquél que a más de revocatoria contuviere una nueva resolución, se regirá, en relación con ésta, en cuanto a recursos, por las reglas generales.
+ARTÍCULO 557.- Efectos de la revocatoria. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

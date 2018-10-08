@@ -1,9 +1,1 @@
-ARTÍCULO 318.- Medios de prueba.
-Son medios de prueba los siguientes:
-1) Declaración de las partes.
-2) Declaración de testigos.
-3) Documentos e informes.
-4) Dictámenes de peritos.
-5) Reconocimiento judicial.
-6) Medios científicos.
-7) Presunciones e indicios.
+ARTÍCULO 318.- Medios de prueba. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

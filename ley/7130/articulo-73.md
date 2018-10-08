@@ -1,2 +1,1 @@
-ARTÍCULO 73.- Rechazo de plano.
-El juzgador rechazará de plano la recusación, si no se hubiere presentado en observancia de lo dicho en el artículo anterior.
+ARTÍCULO 73.- Rechazo de plano. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

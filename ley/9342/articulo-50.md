@@ -1,0 +1,38 @@
+CAPÍTULO II
+AUDIENCIAS ORALES
+ARTÍCULO 50.- Audiencias orales
+50.1 Concentración de actividad. Las audiencias podrán verificarse en una o varias sesiones separadas por recesos e incluso continuarse el día siguiente como una misma unidad procesal.
+50.2 Asistencia y efectos de la incomparecencia
+1. Deber de asistencia. Las partes deberán comparecer a las audiencias personalmente o representadas por abogados con facultades para conciliar.
+2. Inasistencia a la audiencia preliminar. Si quien figura como demandante no comparece a la audiencia preliminar, se tendrá por desistida la demanda o la reconvención y se le condenará al pago de las costas y los daños y perjuicios causados. No obstante, podrá continuarse el proceso, si alguna de las partes presentes alega interés legítimo o cuando la naturaleza de lo debatido exija la continuación, siempre que no exista impedimento cuya superación dependa exclusivamente de la parte demandante.
+Si el inasistente fuera el demandado se dictará sentencia de inmediato, salvo que sea necesario practicar la prueba ofrecida por el actor, por tratarse de hechos no susceptibles de ser probados por confesión o que las pretensiones se refieran a cuestiones de orden público o derechos indisponibles.
+Si a la audiencia preliminar no asiste ninguna de las partes, se tendrá por desistido el proceso sin condenatoria alguna.
+3. Inasistencia a la audiencia de prueba. Si a la audiencia de prueba no comparece una de las partes, se practicará la prueba de la que asista. No se practicará la prueba ofrecida por la parte que no se presente, salvo que la parte contraria manifieste interés en ella o el tribunal la considere indispensable. Si no comparece ninguna de las partes, se dictará sentencia inmediatamente, si fuera posible, de acuerdo con lo que consta en el expediente.
+4. Inasistencia a la audiencia en los procesos de audiencia única. En los procesos de audiencia única, si quien no comparece es demandante, se tendrá por desistida la demanda o la reconvención y se le condenará al pago de las costas y los daños y perjuicios causados. No obstante, podrá continuarse el proceso, si alguna de las partes presentes alega interés legítimo o cuando la naturaleza de lo debatido exija la continuación, siempre que no exista impedimento cuya superación dependa, exclusivamente, de la parte demandante. Si el proceso continúa, se practicará la prueba y se dictará la sentencia.
+Si el inasistente fuera el demandado, el tribunal dictará sentencia de inmediato, salvo que sea necesario practicar la prueba ofrecida por el actor, por tratarse de hechos no susceptibles de ser probados por confesión o que las pretensiones se refieran a cuestiones de orden público o derechos indisponibles.
+Si a la audiencia única no comparece ninguna de las partes, se tendrá por desistido el proceso, sin condenatoria alguna.
+5. Inasistencia del juez o miembro del tribunal. Si por inasistencia del juez o algún miembro del tribunal no pudiera celebrarse una audiencia, de inmediato se fijará hora y fecha para su celebración, dentro de los diez días siguientes.
+50.3 Posposición y suspensión de las audiencias. La posposición y suspensión de audiencias solo se admitirá por caso fortuito o fuerza mayor, debidamente comprobados.
+Iniciado el acto podrá suspenderse en casos muy calificados, cuando sea necesario para la buena marcha del proceso, para deliberar sobre aspectos complejos o a petición de parte, para instar un acuerdo conciliatorio. La suspensión deberá ser breve y al decretarla se hará el señalamiento de hora y fecha, dentro del plazo máximo de diez días, para la reanudación.
+Cuando la suspensión de la audiencia supere los cinco días y se afecte el principio de inmediación no podrá reanudarse y será necesario citar una nueva, sin perjuicio de la responsabilidad que corresponda.
+Las audiencias no se pospondrán ni suspenderán por la ausencia de los abogados. La superposición de audiencias a la que deban asistir las partes o sus abogados no es causa de justificación; no obstante, si esa circunstancia se hace ver dentro de los tres días siguientes a la notificación del señalamiento para audiencia, se reprogramará aquella que se haya señalado de último.
+50.4 Dirección de la audiencia. El tribunal dirigirá las audiencias según los poderes y deberes que le confiere la ley. Verificará y consignará al inicio de cada audiencia la hora, la fecha, la naturaleza de la audiencia, la identificación de las partes, los testigos y demás auxiliares que comparezcan a ella.
+Explicará a las partes sobre los fines y las actividades de la audiencia. Hará las advertencias legales que correspondan; evitará la formulación de preguntas impertinentes, la lectura innecesaria de textos y documentos; moderará el debate evitando divagaciones impertinentes sin coartar el derecho de defensa; retirará el uso de la palabra o le ordenará el abandono del recinto a quien no siga sus instrucciones; mantendrá el orden y velará por que se guarde el respeto y la consideración debidos, usando para ello las potestades de corrección y disciplina que le confiere la ley.
+Cuando a una parte la asista más de un abogado, solo podrá intervenir uno por declarante. En las demás actividades que no tenga que ver con declaraciones, entre ellos decidirán a cual corresponderá actuar.
+50.5 Documentación de las audiencias
+1. Documentación mediante soportes aptos para la grabación de imagen y sonido. Las actuaciones orales en las audiencias se registrarán en soporte apto para la grabación y reproducción del sonido y, si fuera posible, también de la imagen.
+Las partes podrán solicitar en todo caso, a su costa, una copia de los soportes en que hubiera quedado grabada la audiencia.
+2. Documentación mediante acta. Si los medios de registro referidos no pudieran utilizarse por cualquier causa, se documentará mediante acta. Las actas serán lacónicas, salvo disposición legal en contrario. Cuando se trate de documentar la práctica de la prueba, las actas serán necesariamente exhaustivas. En casos excepcionales, cuando sea necesario levantar acta, a criterio del tribunal, se podrá ordenar la transcripción literal de la audiencia.
+El acta deberá contener, según las actividades que se desarrollen en ella:
+a) El lugar, la fecha, la hora de inicio, la naturaleza y la finalización de la audiencia, con la indicación de las suspensiones y las reanudaciones.
+b) El nombre de los jueces, las partes presentes, los defensores y los representantes.
+c) Indicación del nombre de los testigos, peritos y demás auxiliares que vayan declarando, la referencia de la prueba trasladada y de los otros elementos probatorios reproducidos.
+d) Las resoluciones que se dicten, las impugnaciones planteadas y lo resuelto sobre ellas, consignando de forma lacónica los fundamentos de la decisión.
+e) Los nuevos señalamientos para la continuación de la audiencia.
+f) Una síntesis de las principales conclusiones de las partes.
+g) La mención del pronunciamiento de la sentencia.
+h) Cualquier otro dato que el tribunal considere pertinente.
+i) La identificación de los jueces que participaron en la audiencia.
+El medio de respaldo utilizado para el registro de la audiencia quedará en el tribunal como anexo al expediente.
+50.6 Deliberación. La deliberación para resolver será siempre secreta y el tribunal, cuando lo estime necesario, analizará si se retira de la sala de audiencia. Tratándose de sentencias, el plazo para deliberar no deberá exceder de dos días, salvo en procesos complejos en los cuales se extenderá a cinco. Terminada la redacción se comunicará lo resuelto.
+Cuando se trate de la sentencia deberá constituirse en la audiencia al menos un juez del tribunal.

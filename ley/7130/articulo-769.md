@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 769.- Competencia del juez del concurso.
 Una vez promovido el concurso, el juez llamado a intervenir en éste, será el único competente para conocer de los procesos atraídos a ese concurso, a los que se refiere el artículo trasanterior.
 Desde que se hubiere promovido el concurso, se decretará la atracción prevenida en el artículo 744 (*).

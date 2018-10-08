@@ -1,0 +1,3 @@
+ARTÍCULO 38.- Reconvención y réplica
+38.1 Reconvención. El demandado podrá reconvenir al actor pero únicamente en el escrito donde conteste la demanda y podrá traer al proceso como reconvenido a quien no sea actor. La demanda y la reconvención deberán ser conexas o ser consecuencia del resultado de la demanda. La reconvención deberá reunir los mismos requisitos del de la demanda. Si fuera defectuoso, se prevendrá su corrección en los mismos términos de la demanda. Salvo disposición legal en contrario, la reconvención solo será admisible en procesos ordinarios.
+38.2 Réplica. Si la reconvención fuera admisible, se concederá al reconvenido un plazo igual al del emplazamiento de la demanda para la réplica, la que deberá tener los mismos requisitos de la contestación.

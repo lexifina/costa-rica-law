@@ -1,2 +1,1 @@
-ARTÍCULO 141.- Custodia de expedientes.
-Los expedientes saldrán de la custodia del órgano jurisdiccional sólo en los casos expresamente permitidos por la ley.
+ARTÍCULO 141.- Custodia de expedientes. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

@@ -1,0 +1,5 @@
+ARTÍCULO 173.- Admisibilidad
+173.1 Requisitos de la demanda y documentos. La gestión inicial deberá ser estimada y reunir en lo pertinente los requisitos previstos para los incidentes, bajo apercibimiento de inadmisibilidad. Además, se deberá presentar bajo pena de rechazo de plano:
+1. En las tercerías de dominio o de mejor derecho: sobre bienes registrables, documento acreditativo de la inscripción o de que está pendiente de ese trámite. Tratándose de bienes no registrables, documento auténtico que justifique el derecho del tercero, de fecha anterior al embargo.
+2. En las tercerías de distribución, documento en el que conste una deuda dineraria de fecha cierta anterior al embargo. Además, documentación que acredite la insuficiencia patrimonial del deudor.
+173.2 Oportunidad. No serán admisibles las tercerías de dominio cuando se hayan adjudicado en firme los bienes al comprador. Tampoco, las de mejor derecho o distribución cuando exista resolución firme que ordene el pago a favor de acreedores determinados.

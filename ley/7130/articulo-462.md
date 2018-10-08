@@ -1,2 +1,1 @@
-ARTÍCULO 462.- Dueño anterior y servidumbre.
-Si la demanda se dirigiere contra el que inmediata y anteriormente poseyó como dueño, o versare sobre servidumbres continuas no aparentes, o sobre discontinuas, se aplicará lo dicho en los artículos 307 y 308 del Código Civil, respectivamente.
+ARTÍCULO 462.- Dueño anterior y servidumbre. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

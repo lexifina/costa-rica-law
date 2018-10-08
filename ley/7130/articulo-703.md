@@ -1,2 +1,1 @@
-ARTÍCULO 703.- Casos análogos.
-Los casos no previstos expresamente se resolverán conforme con las reglas de este título que por analogía les fueron aplicables.
+ARTÍCULO 703.- Casos análogos. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

@@ -1,2 +1,1 @@
-ARTÍCULO 89.- Confirmación.
-La confirmación del superior libra de responsabilidad al juzgador que dictó la sentencia o auto que sea motivo de la demanda de responsabilidad.
+ARTÍCULO 89.- Confirmación. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

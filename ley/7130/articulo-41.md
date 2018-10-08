@@ -1,4 +1,3 @@
 Sección quinta
 Conexión
-ARTÍCULO 41.- Elementos comunes.
-Son conexas dos o más pretensiones cuando les sean comunes dos de sus elementos, o uno solo cuando éste sea la causa.
+ARTÍCULO 41.- Elementos comunes. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

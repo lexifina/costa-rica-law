@@ -1,2 +1,1 @@
-ARTÍCULO 416.- Presunción relativa.
-Fuera de las presunciones absolutas, las demás podrán ser combatidas por la prueba en contrario, para lo cual son admisibles todos los medios legales, salvo lo establecido por la ley en ciertos casos sobre el tiempo y el modo de acatarlas.
+ARTÍCULO 416.- Presunción relativa. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

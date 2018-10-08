@@ -1,2 +1,1 @@
-ARTÍCULO 19.- Desacuerdo de las partes.
-Cuando en procesos estimables no pudiere fijarse la cuantía por las reglas del artículo 17, y las partes estuvieren en desacuerdo respecto de la cuantía, se observará el procedimiento establecido para la objeción.
+ARTÍCULO 19.- Desacuerdo de las partes. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

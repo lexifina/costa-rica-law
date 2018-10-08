@@ -4,5 +4,4 @@ CAPITULO I
 Forma de los actos procesales
 Sección primera
 Actos en general
-ARTÍCULO 132.- Formas.
-Los actos procesales no estarán sujetos a formas determinadas, sino cuando la ley expresamente lo exija.
+ARTÍCULO 132.- Formas. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

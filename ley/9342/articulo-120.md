@@ -1,0 +1,2 @@
+ARTÍCULO 120.- Prejudicialidad
+Cuando se presente demanda sobre calidad de sucesores, validez o eficacia del testamento, se suspenderá el proceso sucesorio hasta la resolución definitiva. El mismo efecto tendrán las demandas que afecten la integridad del patrimonio o sobre la existencia, extensión o preferencia de créditos, siempre y cuando el resultado del litigio afecte de tal manera el patrimonio que no sea posible hacer liquidaciones parciales.

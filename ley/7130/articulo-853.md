@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las nomas que lo sustituyan.)
 ARTÍCULO 853.- Rehabilitación.
 Para rehabilitar a una persona declarada incapaz, se practicarán las mismas diligencias prescritas en los artículos anteriores, pero el dictamen médico deberá recaer sobre los siguientes extremos:
 1) La efectividad de la curación.

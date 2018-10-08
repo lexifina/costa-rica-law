@@ -1,0 +1,2 @@
+ARTÍCULO 156.- Venta de valores o efectos negociables en bolsa
+Si lo embargado fueran valores o efectos negociables en bolsa, se comisionará a un puesto de bolsa para que los haga efectivos. El producto de ellos se depositará en la cuenta bancaria correspondiente, previo rebajo de la comisión que legalmente corresponda pagar por el servicio, de todo lo cual el puesto deberá rendir cuenta documentada y detallada.

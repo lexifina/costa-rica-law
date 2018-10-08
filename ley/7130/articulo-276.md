@@ -1,2 +1,1 @@
-ARTÍCULO 276.- Plazo para presentar la demanda.
-El acreedor deberá presentar su demanda lo más tarde un mes después del día en que se hubiere practicado el embargo. Presentada dentro de ese plazo, con título ejecutivo, en el auto en el que se dé curso a la ejecución se hará la conversión del embargo preventivo a embargo ejecutivo, y se devolverá el depósito al actor.
+ARTÍCULO 276.- Plazo para presentar la demanda. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

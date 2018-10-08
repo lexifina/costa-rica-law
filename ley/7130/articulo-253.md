@@ -1,4 +1,1 @@
-ARTÍCULO 253.- Facultades del juez y recursos.
-El juez ordenará recibir la prueba anticipada si es fundado el motivo invocado.
-Podrá admitir también otras pruebas anticipadas, además de las que se mencionan en este capítulo, si son oportunas y conducentes.
-La resolución del juez será apelable en ambos efectos sólo cuando se niegue la práctica de la prueba.
+ARTÍCULO 253.- Facultades del juez y recursos. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

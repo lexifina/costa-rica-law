@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 714.- Contenido del plan
 El plan de intervención y reorganización podrá consistir en los siguientes puntos:
 1.- La administración controlada de la empresa, que estará a cargo del interventor, quien contará con el asesoramiento y la fiscalización del comité que se indicará.

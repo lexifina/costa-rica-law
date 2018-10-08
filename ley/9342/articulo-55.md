@@ -1,0 +1,2 @@
+ARTÍCULO 55.- Imposibilidad sobrevenida del proceso
+Cuando de oficio o a petición de parte, el tribunal concluya que existe imposibilidad del litigio, por desaparición de una de las partes cuando no surja el fenómeno de la sucesión, por desaparición del objeto cuando no sea posible su sustitución, por desaparición de la causa o por imposibilidad del efecto jurídico que se trata de constituir, dará por terminado el proceso mediante resolución razonada. En tal caso, cada una de las partes soportará los propios gastos del proceso fenecido.

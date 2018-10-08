@@ -1,3 +1,2 @@
-ARTÍCULO 952.- Normas prácticas.
-La Corte Suprema de Justicia dictará, de oficio o a propuesta de los tribunales, las normas prácticas que sean necesarias para la aplicación de este Código.
+ARTÍCULO 952.- Normas prácticas. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)
 (La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 929 al 952)

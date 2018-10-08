@@ -1,2 +1,1 @@
-ARTÍCULO 344.- Calificación del interrogatorio.
-En el acto de la comparecencia, previa calificación de las preguntas, el juez examinará a la parte que haya de absolverlas, sobre cada una de las que admitiere. Si rechazare algunas preguntas, lo consignará en el acta.
+ARTÍCULO 344.- Calificación del interrogatorio. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

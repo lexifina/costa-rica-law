@@ -1,3 +1,1 @@
-ARTÍCULO 437.- Integración del procedimiento.
-Las normas de este capítulo serán aplicables a todos los procesos sumarios, cuando no haya disposición especial para el caso concreto.
-También será aplicable a los procesos sumarios lo dispuesto para el proceso ordinario, en lo que se guarde silencio, sea compatible y no se oponga a lo preceptuado en este título.
+ARTÍCULO 437.- Integración del procedimiento. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

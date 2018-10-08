@@ -1,2 +1,1 @@
-ARTÍCULO 2.- Instancias.
-Los procesos tendrán dos instancias, salvo que en forma expresa se disponga lo contrario.
+ARTÍCULO 2.- Instancias.(Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

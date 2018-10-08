@@ -1,2 +1,1 @@
-ARTÍCULO 105.- Sustitución procesal.
-Sólo en casos expresamente previstos en la ley, podrá hacerse valer, en proceso, en nombre propio, un derecho ajeno.
+ARTÍCULO 105.- Sustitución procesal. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

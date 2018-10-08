@@ -1,2 +1,1 @@
-ARTÍCULO 69.- Recusación de funcionarios subalternos.
-Las recusaciones de los funcionarios subalternos se tramitarán y resolverán por el juez o tribunal que conozca del proceso, conforme con las reglas de los artículos anteriores, en lo que fueren aplicables, pero contra lo que se resuelva no cabrá recurso alguno.
+ARTÍCULO 69.- Recusación de funcionarios subalternos. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

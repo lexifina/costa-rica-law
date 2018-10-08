@@ -1,3 +1,3 @@
 CAPITULO V
 Notificaciones
-ARTÍCULO 173.- (Derogado por el artículo 62 aparte a) de la Ley de Notificaciones Judiciales, N° 8687 del 4 de diciembre de 2008)
+ARTÍCULO 173.- (Derogado por el artículo 62 aparte a) de la Ley de Notificaciones Judiciales, N° 8687 del 4 de diciembre de 2008. Posteriormente por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016, se vuelve a derogar este numeral)

@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 768 Proceso por derecho personal. Cuando el derecho ejercitado contra el fallido fuere puramente personal, sobre una pretensión en dinero o liquidable en numerario, se suspenderá, aun de oficio, todo procedimiento que no sea de mera conservación o seguridad, a partir de los plazos señalados en el artículo 768 (*). Los embargos sobre bienes del fallido se mantendrán en favor de la masa de acreedores y el actor deberá legalizar su crédito en el concurso, conforme a lo dispuesto en la sección siguiente.
 (Así reformado el párrafo anterior por el artículo 2º de la ley No.7643 de 17 de octubre de 1996)
 (*)(Nota de Sinalevi: El artículo indicado es ahora el 791)

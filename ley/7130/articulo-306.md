@@ -1,1 +1,1 @@
-ARTÍCULO 306.- Oportunidad para oponer excepciones de fondo. Las excepciones de fondo deberá oponerlas el demandado en el escrito de contestación.
+ARTÍCULO 306.- Oportunidad para oponer excepciones de fondo. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

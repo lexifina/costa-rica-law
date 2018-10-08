@@ -1,0 +1,4 @@
+ARTÍCULO 63.- Invariabilidad, adición, aclaración y corrección de errores materiales
+Los tribunales no podrán revocar ni modificar sus sentencias pero sí aclarar cualquier pronunciamiento oscuro o contradictorio, o suplir cualquier omisión sobre algún punto discutido. Estas aclaraciones o adiciones solo procederán respecto de la parte dispositiva.
+Si la sentencia se dicta oralmente, las partes podrán formularla en el acto y se resolverá de inmediato. También, podrán solicitarla dentro de los tres días siguientes. Si la sentencia se emite por escrito, el tribunal podrá hacerlo de oficio antes de la notificación. Las partes pueden solicitarlo dentro del tercer día y se deberá resolver en el plazo de tres días. La solicitud de adición o aclaración interrumpe el plazo para la interposición de recursos.
+Los tribunales podrán corregir en cualquier tiempo los errores puramente materiales, aun en etapa de ejecución.

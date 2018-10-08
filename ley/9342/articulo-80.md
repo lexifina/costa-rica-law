@@ -1,0 +1,3 @@
+ARTÍCULO 80.- Garantías
+Para solicitar y decretar una medida cautelar será necesario que se rinda una garantía, salvo que por disposición expresa se exima de esa carga. En la misma resolución en la que se conceda la medida se fijará el importe de la caución, según lo dispuesto por este Código en cuanto a garantías. La medida no se ejecutará mientras la caución no se haya rendido.
+Excepcionalmente, a criterio del tribunal podrá eximirse de rendir garantía a quien solicite una medida cautelar, cuando existan motivos fundados o prueba fehaciente de la seriedad de la pretensión o se trate de procesos de interés social.

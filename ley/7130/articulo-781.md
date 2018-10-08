@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 ARTÍCULO 781.- Avalúo.
 El avalúo de los bienes se hará tan pronto lo solicite el curador o lo ordene el juez.
 Se practicará por un perito, de nombramiento del juez; éste podrá nombrar varios peritos, si la naturaleza de los bienes fuere diversa.

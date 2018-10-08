@@ -1,1 +1,1 @@
-ARTÍCULO 544.- El albacea provisional cesará de serlo cuando el albacea testamentario o definitivo acepte el cargo. Puede removerlo el juez a solicitud de parte interesada, por falta a cualquiera de sus obligaciones.
+ARTÍCULO 544.- (Derogado por el artículo 183 aparte 4) del Código Procesal Civil, N° 9342 del 3 de febrero de 2016)

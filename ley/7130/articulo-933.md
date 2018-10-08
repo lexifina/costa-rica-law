@@ -1,3 +1,2 @@
-ARTÍCULO 933.- Partición parcial.
-En casos especiales, el albacea podrá presentar y el tribunal aprobar proyectos de partición parcial de bienes antes de formular el definitivo, siempre que estén de acuerdo todos los interesados y satisfechos los intereses del Fisco, si los hubiere, sobre los bienes objeto de esas particiones.
+ARTÍCULO 933.- Partición parcial. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)
 (La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 910 al 933)

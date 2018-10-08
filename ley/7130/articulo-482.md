@@ -1,5 +1,3 @@
 Sección sexta
 Otros procesos sumarios
-ARTÍCULO 482.- Normas aplicables.
-Las demás pretensiones a que se refiere el artículo 432, que deban ventilarse en proceso sumario y que no tengan señalada una tramitación especial, se regirán por las disposiciones generales, del capítulo I de este título III.
-En todos los asuntos de familia, cuando lo estimen necesario o conveniente, los tribunales podrán convocar a las partes y demás interesados a audiencias de conciliación.
+ARTÍCULO 482.- Normas aplicables. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

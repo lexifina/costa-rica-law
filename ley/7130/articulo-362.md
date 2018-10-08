@@ -1,2 +1,1 @@
-ARTÍCULO 362.- Gastos.
-Los gastos y perjuicios que tuvieren los testigos serán satisfechos por la parte proponente. No habiendo avenencia entre la parte y el testigo, el juez fijará la cantidad sin ulterior recurso, y prevendrá a la parte que la pague sin dilación. Si el proponente resultare victorioso y favorecido con la condenatoria en costas procesales, tendrá derecho a que el vencido le haga el reembolso correspondiente.
+ARTÍCULO 362.- Gastos. (Derogado por el artículo 183 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)
