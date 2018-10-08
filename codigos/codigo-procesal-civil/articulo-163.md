@@ -1,0 +1,2 @@
+ARTÍCULO 163.- Aprobación, protocolización, cancelación de gravámenes y entrega del bien
+Practicado el remate, el tribunal lo aprobará, si para su realización se han seguido las disposiciones legales. En la resolución que lo apruebe se ordenará cancelar las inscripciones o anotaciones relativas al crédito de grado superior vencido que se ejecuta y las inferiores a este, así como las que consten en la certificación base de la subasta y las que se hubieran anotado después. Asimismo, autorizará la protocolización pertinente y ordenará la entrega del bien.

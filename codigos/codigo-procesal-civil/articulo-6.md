@@ -1,0 +1,3 @@
+ARTÍCULO 6.- Abuso procesal y procesos fraudulentos
+Cuando del resultado del proceso haya mérito para considerar que se actuó con temeridad, mala fe o abuso en el ejercicio de los derechos procesales, el tribunal lo declarará en sentencia dentro del mismo proceso y condenará al responsable al pago de los daños y perjuicios que hubiera ocasionado, los que se liquidarán y ejecutarán de inmediato.
+Si el tribunal estuviera convencido del uso de un proceso para obtener un móvil prohibido por la ley, dictará sentencia desestimando la demanda y condenará a los sujetos activos al pago de los daños y perjuicios, los cuales se podrán cuantificar en ejecución, sin perjuicio de las responsabilidades disciplinarias, penales y civiles que correspondan.

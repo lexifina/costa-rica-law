@@ -1,0 +1,5 @@
+ARTÍCULO 178.- Procedimiento
+178.1 Solicitud y audiencia inicial. El procedimiento se iniciará por gestión del interesado, quien acompañará los documentos necesarios, indicando las normas legales aplicables. Cuando fuera necesario dar audiencia a alguna persona o institución, se le conferirá por un plazo de tres días.
+178.2 Efectos de la oposición. Si antes de dictarse la resolución final surgiera oposición fundada, el tribunal suspenderá el procedimiento, remitirá al opositor a la vía ordinaria y le prevendrá la presentación del respectivo proceso de conocimiento dentro del plazo de un mes.
+Si la oposición fuera infundada o el opositor no presentara la demanda dentro del mes, el tribunal continuará el procedimiento hasta su conclusión. En ambos supuestos, el opositor será condenado al pago de las costas causadas con la oposición.
+178.3 Efectos de la oposición en supuestos especiales. Las reglas de la disposición anterior, en cuanto se prevé la remisión inmediata al proceso contencioso, no se aplicarán a la declaración de ausencia, a la presunción de muerte, ni a los procesos respecto de los cuales la ley establezca un trámite especial.

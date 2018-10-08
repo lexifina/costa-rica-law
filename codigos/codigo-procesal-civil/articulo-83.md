@@ -1,0 +1,2 @@
+ARTÍCULO 83.- Caducidad de las medidas cautelares
+Las medidas cautelares caducarán en el plazo de un mes a partir de su decreto, cuando no se ejecuten en ese plazo por culpa del solicitante. Caducarán en el mismo plazo si después de ejecutadas no se establece la demanda. Asimismo, caducarán cuando transcurran tres meses de inactividad del proceso imputable al solicitante, siempre que no proceda la caducidad del proceso.

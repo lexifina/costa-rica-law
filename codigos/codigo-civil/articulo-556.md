@@ -1,1 +1,2 @@
-ARTÍCULO 556.- El albacea puede ser removido a voluntad de los interesados; pero el albacea provisional solo podrá ser removido por faltar a alguna de sus obligaciones. Si el albacea fuere testamentario, al removerlo sin causa, cualquiera que sea el estado del juicio de sucesión, se le abonarán todos sus honorarios como si el juicio estuviera concluido.
+Artículo 556.- El albacea puede ser removido a voluntad de la mayoría de los herederos o por faltar a alguna de sus obligaciones. Si el albacea fuera testamentario, al removerlo sin causa, cualquiera que sea el estado del proceso de sucesión, se le abonarán todos los honorarios como si estuviera concluido.
+(Así reformado por el artículo 184 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

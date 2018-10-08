@@ -1,0 +1,2 @@
+ARTÍCULO 175.- Procedimiento
+Para dilucidar las tercerías se seguirá el procedimiento incidental. En la resolución inicial se emplazará al ejecutante, al ejecutado y a cualquier acreedor que se hubiera apersonado. En las tercerías de distribución, si el promovente carece de sentencia a su favor, al dictarse el fallo deberá emitirse pronunciamiento sobre la existencia y la extensión del crédito y su derecho de participación en el producto de la ejecución.

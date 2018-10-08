@@ -1,0 +1,2 @@
+ARTÍCULO 94.- Convocatoria y celebración de audiencia
+Como regla general, antes de la adopción de una medida cautelar se dará intervención a la parte contraria. Para tal efecto, recibida la solicitud, se convocará a las partes a una audiencia oral que se celebrará a la mayor brevedad posible, de manera preferencial. En la audiencia se oirá a las partes y se admitirá y practicará la prueba que sea necesaria.

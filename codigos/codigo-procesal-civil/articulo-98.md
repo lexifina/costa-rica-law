@@ -1,0 +1,4 @@
+TÍTULO IV
+NORMAS PROCESALES INTERNACIONALES
+ARTÍCULO 98.- Normativa aplicable
+Tratándose de cooperación judicial internacional se aplicarán las disposiciones de los tratados y los convenios internacionales vigentes y en su ausencia la normativa nacional. En ningún caso se aplicará de oficio el derecho extranjero, salvo si las partes fundan su derecho en una ley extranjera y acreditan legalmente su existencia, vigencia, contenido e interpretación. Cuando sea aplicable, el derecho extranjero deberá interpretarse como lo harían los tribunales del Estado a cuyo orden jurídico pertenece. Solo se podrán declarar inaplicables los preceptos de la ley extranjera, cuando estos contraríen manifiestamente los principios esenciales del orden público internacional en los que el Estado asienta su individualidad jurídica. Los procesos, cualquiera que sea su naturaleza, se sujetarán al ordenamiento nacional.

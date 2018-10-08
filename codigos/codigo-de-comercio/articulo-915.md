@@ -1,2 +1,1 @@
-ARTÍCULO 915.- Cuando un acreedor ha sido impugnado, mientras se tramita su demanda dentro de la quiebra, no tendrá voz, voto, ni intervención alguna; pero el curador, al distribuir el activo, lo tomará en cuenta al reservar el dividendo respectivo a fin de que el juzgado lo entregue a quien corresponda, conforme lo que se resuelva en la sentencia definitiva.
-(Así reformado por el artículo 3º de la ley No.7643 de 17 de octubre de 1996)
+ARTÍCULO 915.- (Derogado por el artículo 183 aparte 5) del Código Procesal Civil, N° 9342 del 3 de febrero de 2016)

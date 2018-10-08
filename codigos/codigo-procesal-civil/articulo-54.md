@@ -1,0 +1,4 @@
+ARTÍCULO 54.- Satisfacción extraprocesal
+54.1 Procedencia. Se produce satisfacción extraprocesal cuando el demandado o contrademandado satisface total o parcialmente, fuera de proceso, la pretensión formulada por el demandante. Cualquiera de las partes podrá ponerlo a conocimiento del tribunal.
+54.2 Declaratoria y efectos. Cuando se compruebe que la pretensión ha sido satisfecha, total o parcialmente, el tribunal así lo declarará. En el primer caso darán por concluido el proceso y, si fuera parcial, este continuará por lo no satisfecho.
+Si la satisfacción extraprocesal es consecuencia de la voluntad unilateral del demandado, se le podrá condenar al pago de costas, intereses, daños o perjuicios, tomando en cuenta la naturaleza y el estado del proceso, los derechos satisfechos y la estimación de la demanda. Se podrá eximir del pago de costas, daños y perjuicios, de acuerdo con las circunstancias.

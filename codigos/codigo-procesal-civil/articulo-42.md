@@ -1,0 +1,9 @@
+ARTÍCULO 42.- Declaración de parte
+42.1 Deber de declarar y forma. Las partes tienen el deber de declarar sobre hechos propios o ajenos y podrán formularse preguntas recíprocamente. La declaración de las personas físicas será personal.
+Tratándose de personas jurídicas deberá declarar su representante legal.
+Si no hubiera intervenido en los hechos debatidos, sin perjuicio de la indicación que deberá hacer, estará obligado a responder según el conocimiento que deba tener de ellos.
+En todos los supuestos de mandato o representación, los representantes deberán declarar cuando se trate de hechos realizados en su función.
+En todo caso, si el llamado a declarar no fue quien participó en los hechos controvertidos deberá alegar tal circunstancia dentro del quinto día a partir de la notificación del señalamiento o, cuando no sea posible hacerlo, en el momento de la práctica de la prueba. Deberá facilitar la identidad del que intervino en nombre de la persona, a quien se podrá citar como testigo. Si no hace tal señalamiento o si manifestara desconocer a la persona interviniente en los hechos, el tribunal podrá considerar esa manifestación como respuesta evasiva.
+La parte no podrá ser obligada a declarar dos veces sobre los mismos hechos.
+42.2 Efectos de la declaración de parte. La admisión de hechos propios, de forma expresa o tácita, permite presumirlos como ciertos y constituye prueba contra la parte declarante, salvo que se trate de derechos indisponibles, que el declarante no tenga facultades para confesar en representación o se contradiga con las demás pruebas. El mismo efecto tendrán las afirmaciones espontáneas realizadas en el proceso.
+Si la parte no compareciera, sin justa causa, no llegara a la hora señalada, rehusara declarar, respondiera de forma evasiva o no llevara consigo documentos de apoyo, cuando fueran necesarios, se producirán los efectos de la admisión tácita del interrogatorio, ya sea de hechos propios o ajenos.

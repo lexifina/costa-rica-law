@@ -1,0 +1,2 @@
+ARTÍCULO 152.- Embargo
+Si se tratara de la ejecución de sentencias de condena sobre extremos económicos determinables en dinero, cantidad por liquidar, de dar, de hacer, de no hacer, si no se pudiera conseguir el inmediato cumplimiento por cualquier causa se podrá decretar el embargo de bienes a instancia del acreedor, sin necesidad de hacer depósito, en una cantidad suficiente, a criterio del tribunal, para asegurar los derechos de este.

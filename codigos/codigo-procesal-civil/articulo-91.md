@@ -1,0 +1,2 @@
+ARTÍCULO 91.- Prohibición de innovar, modificar, contratar o cesar una actividad
+Cuando un bien o derecho pueda sufrir menoscabo o deterioro por causa de modificación o alteración en el curso del proceso, se podrá ordenar la prohibición de innovar, modificar o contratar, así como de cesar una actividad o abstenerse temporalmente de llevar a cabo una conducta o prestación. Estas prohibiciones se dispondrán siempre que la cautela no pudiera obtenerse por medio de otra medida cautelar expresamente prevista.

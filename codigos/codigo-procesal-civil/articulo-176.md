@@ -1,0 +1,2 @@
+ARTÍCULO 176.- Efectos de la extinción del proceso sobre las tercerías de distribución
+La extinción del proceso principal no implicará finalización de las tercerías de distribución en trámite. Si existe solo una tercería de distribución se considerará al tercerista como ejecutante, y si hubiera dos o más, lo será el más antiguo. En tal caso, se continuará con la ejecución y se mantendrán los embargos y cualquier otra medida precautoria que se hubiera decretado.

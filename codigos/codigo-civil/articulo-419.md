@@ -1,1 +1,1 @@
-ARTÍCULO 419.- El tercer poseedor del inmueble hipotecado será requerido, si el deudor no paga dentro del término legal, para que dentro de diez días verifique el pago de la suma que garantiza la finca, o la abandone a la ejecución. Es innecesario el requerimiento si el tercer poseedor adquiere la finca después de vencida la obligación objeto de la hipoteca.
+ARTÍCULO 419.- (Derogado por el artículo 183 aparte 4) del Código Procesal Civil, N° 9342 del 3 de febrero de 2016)

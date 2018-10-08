@@ -1,0 +1,1 @@
+TRANSITORIO V.- Las pretensiones que, conforme a otras leyes estaban previstas para tramitarse por el proceso abreviado, se dilucidarán en lo sucesivo por el proceso ordinario, salvo aquellas para las cuales se haya establecido un proceso específico en este Código.

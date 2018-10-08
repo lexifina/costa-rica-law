@@ -1,0 +1,1 @@
+ARTÍCULO 185.- Se autoriza a la Corte Suprema de Justicia para que reorganice y especialice tribunales colegiados y unipersonales de primera y segunda instancia, para el conocimiento de procesos, pretensiones y materias que lo requieran; además, para organizar y establecer el funcionamiento de los tribunales, según lo amerite el servicio público.

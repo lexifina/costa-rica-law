@@ -1,0 +1,3 @@
+ARTÍCULO 18.- Recusación de peritos y otros auxiliares judiciales
+Los peritos designados por acuerdo entre partes no podrán ser recusados, salvo por causas sobrevinientes o ignoradas por las partes al momento de la escogencia. Las causas de impedimento les serán aplicables en cuanto fueran conducentes. Además, constituyen causales de separación la falta de idoneidad o pericia y haber vertido sobre el mismo asunto un dictamen contrario a una de las partes. La recusación de los peritos se tramitará por la vía incidental.
+El presente régimen será aplicable, en lo pertinente, a los demás auxiliares judiciales.

@@ -1,0 +1,4 @@
+ARTÍCULO 52.- Transacción
+52.1 Oportunidad y forma. Las partes, en cualquier estado del procedimiento, podrán hacer valer la transacción sobre el derecho en litigio, aportando el documento privado o público en el que conste lo convenido. También, se podrá suscribir mediante acta ante el tribunal, que hará las objeciones pertinentes de ser necesario.
+52.2 Homologación, efectos y límite. El tribunal analizará la transacción para determinar si concurren los requisitos legales para su validez y de no existir objeciones la homologará. Si contiene defectos subsanables, previo a resolver lo que corresponda, prevendrá su corrección.
+Salvo disposición legal en contrario, la transacción homologada produce cosa juzgada material. Si comprende todas las pretensiones debatidas tendrá como consecuencia la terminación del proceso.

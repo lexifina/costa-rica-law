@@ -1,2 +1,2 @@
-ARTÍCULO 543.- Mientras no se verifique el nombramiento de albacea definitivo, no habiendo albacea testamentaria o no pudiendo éste entrar a ejercer sus funciones desde que se inicie el juicio de sucesión, el Juez elegirá uno provisional, necesariamente entre los interesados en la sucesión, prefiriendo en igualdad de circunstancias al cónyuge sobreviviente, al padre o madre del difunto.
-En los asuntos en que el albacea provisional tenga interés propio que esté en contradicción con el de los demás interesados en la sucesión, el Juez nombrará un albacea específico que lo reemplace.
+Artículo 543.- En los asuntos en que el albacea tenga interés propio que esté en contradicción con el de los demás interesados en la sucesión, el juez nombrará un albacea específico.
+(Así reformado por el artículo 184 aparte 1) del Código Procesal Civil, N° 9342 del 3 de febrero del 2016)

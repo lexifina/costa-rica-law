@@ -1,0 +1,3 @@
+ARTÍCULO 87.- Anotación de demanda
+Procederá la anotación de la demanda, en bienes inscritos en registros públicos o privados que afecten a terceros, sin necesidad de rendir garantía, cuando se pida la constitución, modificación o extinción de un derecho real o personal con efectos reales.
+Los tribunales efectuarán la anotación o librarán mandamiento a la oficina o la entidad respectiva, con expresión del nombre, los apellidos y el número del documento de identificación del actor y el demandado, si lo tuviera, así como las citas de inscripción del bien en litigio. Anotado el mandamiento, cualquier acto relativo a los bienes se entenderá verificado sin perjuicio del derecho del anotante.

@@ -1,0 +1,8 @@
+CAPÍTULO II
+APLICACIÓN DE LAS NORMAS PROCESALES
+ARTÍCULO 3.- Aplicación de las normas procesales
+3.1 Orden público y aplicación en el tiempo. Las normas procesales son de orden público y de aplicación inmediata.
+3.2 Aplicación en el espacio. Este Código regirá en todo el territorio nacional, sin perjuicio de las normas especiales y de la aplicación del derecho internacional contenido en tratados o convenios ratificados por Costa Rica.
+3.3 Interpretación. Al interpretar la norma procesal, los tribunales deberán considerar su carácter instrumental, atendiendo fundamentalmente a su espíritu y finalidad. Para ello, se tomará en cuenta el sentido propio de sus palabras, en relación con el contexto, los antecedentes históricos y la realidad social del momento en que han de ser aplicadas, despojándose de formalismos innecesarios.
+3.4 Integración. En ausencia de norma expresa se acudirá a la aplicación analógica de otras disposiciones que contemplen supuestos semejantes, en los que se aprecie identidad de razón. No podrán aplicarse por analogía normas de carácter sancionatorio, excepcionales o temporales. Si no es posible la aplicación analógica, el vacío se suplirá ideando procedimientos con aplicación de los principios constitucionales, generales del derecho y especiales del proceso, y atendiendo a las circunstancias.
+3.5 Indisponibilidad de las normas procesales. Las partes no podrán, por acuerdo entre ellas y ni siquiera con la autorización del tribunal, disponer o renunciar de manera anticipada a las normas procesales, salvo los supuestos de mecanismos alternos de solución de conflictos, sumisión de competencia admisible, ejecuciones extrajudiciales o actos jurídicos expresamente previstos en el ordenamiento jurídico.

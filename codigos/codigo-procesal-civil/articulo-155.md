@@ -1,0 +1,3 @@
+ARTÍCULO 155.- Preferencia entre embargantes
+Prevalecerá el derecho del acreedor anotante del embargo sobre los derechos de los acreedores reales o personales, que nacieran con posterioridad a la presentación de la anotación en el registro. Esos acreedores posteriores no podrán pretender derecho alguno sobre el bien, ni en el precio de este, con perjuicio del embargante, salvo los casos de prioridad regulados en la legislación sustantiva.
+El anotante no gozará de preferencia alguna por el solo motivo de la anotación o de la práctica del embargo en bienes no registrados frente a los acreedores personales anteriores que hicieran tercería cuando no existan bienes suficientes para cubrir los créditos.
