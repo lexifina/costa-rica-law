@@ -1,2 +1,0 @@
-Artículo 19.—Del informe de su gestión. Con la información obtenida de los casos atendidos y de las labores ejecutas durante el año, procederá el Contralor a emitir un informe anual que contendrá la atención de las quejas, sus acciones, observaciones y recomendaciones en pro del mejoramiento en la prestación de los servicios en el instituto.
-Este informe deberá dirigirse al superior jerárquico del Contralor con copia a la Secretaría Técnica del Sistema Nacional de Contralorías de Servicios adscrita al Ministerio de Planificación Nacional y Política Económica.

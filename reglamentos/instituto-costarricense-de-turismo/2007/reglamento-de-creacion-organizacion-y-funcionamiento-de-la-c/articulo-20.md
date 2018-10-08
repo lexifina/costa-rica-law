@@ -1,1 +1,0 @@
-Artículo 20.—Otras aplicaciones. En todo lo demás concerniente a las Contralorías de Servicios y su Contralor se aplicará lo estipulado en el Decreto Nº 26025-PLAN y demás leyes, normas y directrices dictadas para el mejoramiento continuo en la prestación de los servicios por parte de las instituciones públicas.
