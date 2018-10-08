@@ -1,13 +1,11 @@
-(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las nomas que lo sustituyan.)
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan.)
 CAPITULO IV
-Insania
-ARTÍCULO 847 Escrito inicial. La solicitud de declaratoria de interdicción de una persona deberá reunir los siguientes requisitos:
-(Así reformado el encabezado anterior por el artículo 71 de la Ley sobre Igualdad de Oportunidades para las Personas con Discapacidad, ley No.7600 del 2 de mayo de 1996)
-1) El nombre y las calidades del solicitante y de la presunta persona cuya declaratoria en estado de interdicción se solicita.
-(Así reformado el inciso anterior por el artículo 71 de la Ley sobre Igualdad de Oportunidades para las Personas con Discapacidad, ley No.7600 del 2 de mayo de 1996)
-2) La indicación del parentesco existente entre el solicitante y el insano. A falta de parientes la solicitud podrá hacerla la Procuraduría General de la República.
-3) Los hechos que motivan la solicitud.
-4) El dictamen médico en el que se diagnostique la falta de capacidad cognoscitiva o volitiva.
-(Así reformado el inciso anterior por el artículo 71 de la Ley sobre Igualdad de Oportunidades para las Personas con Discapacidad, ley No.7600 del 2 de mayo de 1996)
-5) La determinación de los bienes del insano, si los hubiere.
+Salvaguardia para la igualdad jurídica de las personas con discapacidad
+(Así modificado el epígrafe anterior por el artículo 32 de la Ley para Promoción de la Autonomía Personal de las Personas con Discapacidad, N° 9379 del 18 de agosto de 2016)
+Artículo 847.- Escrito inicial. La solicitud deberá reunir los siguientes requisitos:
+1) El nombre y las calidades de la persona con discapacidad intelectual, mental o psicosocial solicitante.
+2) En el supuesto de que la solicitud no la realice la propia persona con discapacidad intelectual, mental o psicosocial, el solicitante o la solicitante indicará: su nombre y calidades, así como las de la persona para la que solicita la salvaguardia, y el parentesco o relación que lo vincula con dicha persona.
+3) Las razones que motivan de hecho y derecho la solicitud, lo que incluye la descripción de los bienes muebles e inmuebles propiedad de la persona que solicita o para la que se solicita la salvaguardia.
+4) Un dictamen médico emitido por la Caja Costarricense de Seguro Social o por el médico especialista tratante que acredite la condición de discapacidad intelectual, mental o psicosocial de la persona que solicita o para la que se solicita la salvaguardia.
 (Así corrida su numeración por el artículo 1° de ley N° 7643 del 17 de octubre de 1996 que lo traspaso del antiguo artículo 824 al 847)
+(Así reformado por el artículo 33 de la Ley para Promoción de la Autonomía Personal de las Personas con Discapacidad, N° 9379 del 18 de agosto de 2016)
