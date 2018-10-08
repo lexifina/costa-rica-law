@@ -1,3 +1,0 @@
-CAPÍTULO IV
-Disposiciones Finales
-Artículo 64.—De las responsabilidades y sanciones. El incumplimiento injustificado de las regulaciones contenidas en el presente Reglamento será causal de responsabilidad administrativa para el Auditor y Subauditor Internos y para los funcionarios de la Auditoría Interna, el Ministro y titulares subordinados, de conformidad con lo establecido en el Capítulo V de la Ley General de Control Interno y en la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su Reglamento. La determinación de la responsabilidad y aplicación de las sanciones administrativas corresponde al órgano competente y se regirá por la normativa establecida al efecto.

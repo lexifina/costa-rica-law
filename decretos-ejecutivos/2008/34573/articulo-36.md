@@ -1,1 +1,0 @@
-Artículo 36.—Presupuesto y plan de adquisiciones. La Auditoría Interna formulará sus proyectos anuales de presupuesto y del plan de adquisiciones, de conformidad con el ordenamiento jurídico aplicable y lineamientos institucionales.

@@ -1,5 +1,0 @@
-Artículo 12.—Independencia y objetividad. La actividad de la Auditoría Interna debe ser ejercida con total independencia funcional y de criterio, respecto del jerarca y de los demás órganos de la administración activa, al determinar su planificación y sus modificaciones, al manejar sus recursos, así como al desempeñar su trabajo y al comunicar sus resultados.
-El Auditor y el Subauditor Internos deben establecer medidas para controlar que el funcionamiento de la Auditoría Interna no resulte limitado por impedimentos que pongan en duda o peligro la objetividad e independencia de sus actuaciones, por lo que sus funcionarios:
-a) No podrán ser empleados ni ejercer funciones en ninguna otra unidad administrativa del Ministerio.
-b) No podrán ser miembros de juntas directivas, comisiones de trabajo o similares, ni formar parte de órganos directores de procesos, de conformidad con las disposiciones y prohibiciones que al respecto establecen la Ley General de Control Interno en sus artículos 25 y 34.
-c) Deben tener una actitud imparcial y neutral para evitar conflictos de intereses y proteger su independencia.

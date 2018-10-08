@@ -1,3 +1,0 @@
-SECCIÓN IV
-Del Personal de la Auditoría Interna
-Artículo 24.—Del personal. El personal de la Auditoría Interna debe poseer suficiente conocimiento en auditoría, contabilidad, administración, riesgo y control de tecnología de sistemas de información y comunicaciones, razonable conocimiento sobre indicadores de fraude y corrupción, así como del marco legal que rige el accionar de la Administración Pública y del Ministerio, que lo califique para ejercer en forma apropiada las funciones encomendadas, así como reunir u obtener en conjunto las aptitudes y competencias necesarias para cumplir con sus responsabilidades, de conformidad con las disposiciones internas de la Institución.

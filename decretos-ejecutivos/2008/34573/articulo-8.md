@@ -1,2 +1,0 @@
-Artículo 8º—Ámbito de acción. La Auditoría Interna cumplirá su función en relación con los fondos públicos sujetos al ámbito de competencia del Ministerio, incluyendo fideicomisos, fondos especiales y otros de naturaleza similar, o sobre fondos y actividades privadas, de conformidad con lo dispuesto por los artículos 5 y 6 de la Ley Orgánica de la Contraloría General de la República.
-Esa función podrá ejercerla directamente, por medio de unidades descentralizadas de Auditoría Interna o por medio de la contratación de firmas externas.
