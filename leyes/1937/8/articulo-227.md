@@ -1,1 +1,5 @@
-Artículo 227.- (Derogado por el artículo 5° de la Ley N° 7605 de dos de mayo de 1996).
+Artículo 227- El servidor judicial que se incapacite de modo permanente para el desempeño de su cargo o empleo, así declarado por la Comisión Calificadora del Estado de Invalidez de la Caja Costarricense de Seguro Social (CCSS) o por la instancia que esa institución designe, y hubiera laborado por cinco años o más para el Poder Judicial, será separado de su puesto con una jubilación permanente. Dicha jubilación se calculará de la siguiente manera:
+a) Se determina el ochenta y tres por ciento (83%) del promedio de los salarios ordinarios devengados en los últimos veinte años de su vida laboral o los que hubiera disponibles, actualizados según el índice de precios al consumidor (IPC), definido por el Instituto Nacional de Estadística y Censos (INEC), según se estableció en el artículo 224.
+b) El resultado obtenido en el punto a) se multiplica por el tiempo servido a un máximo de treinta y cinco años y se divide entre treinta y cinco. El resultado será el monto del beneficio.
+Los montos de las pensiones por invalidez observarán los topes establecidos en el artículo 225.
+(Así reformado por el artículo 1° de la ley N° 9544 del 24 de abril de 2018)

@@ -13,10 +13,10 @@ Artículo 81.- Corresponde al Consejo Superior del Poder Judicial:
 10.- Resolver sobre las licitaciones y solicitar a la Corte Plena que acuerde las expropiaciones de inmuebles o la afectación de derechos reales que interesen al Poder Judicial. Acordada la expropiación de un inmueble o la afectación de derechos reales, la Corte Plena publicará el acuerdo en La Gaceta y pasará el expediente respectivo al Consejo Superior para que nombre uno o varios peritos, según se requiera, que rindan un avalúo del inmueble o derechos reales afectados. El avalúo no tomará en cuenta la eventual plusvalía originada en la construcción de la obra que motiva la expropiación o afectación de derechos. Rendido el avalúo, se pondrá en conocimiento de los interesados, mediante notificación personal o en la casa de habitación, a fin de que manifiesten, dentro de los quince días hábiles siguientes, si están de acuerdo en traspasar el inmueble o derecho real en cuestión, por el precio señalado en el avalúo acogido por el Consejo; caso en el cual formalizarán el traspaso ante la Notaría del Estado, dentro de los tres meses siguientes.
 Si por cualquier razón no convinieren en el traspaso, el Consejo remitirá el expediente administrativo, dentro de los diez días hábiles siguientes, al Juzgado de lo Contencioso-administrativo y Civil de Hacienda que, por turno corresponda, para que inicie las diligencias judiciales de avalúo por expropiación, conforme el procedimiento contemplado en la Ley de expropiaciones y afectación de derechos reales del Poder Judicial.
 11.- Invertir, en el mantenimiento y construcción de locales y en otros rubros que lo ameritan, los excedentes que pudieran producirse de acuerdo con lo que disponga la Corte Plena.
-12.- Administrar el Fondo de Pensiones y Jubilaciones del Poder Judicial, de acuerdo con las políticas de inversión de ese Fondo, establecidas por la Corte.
-13.- Reconocer a los servidores judiciales, el tiempo laborado en el sector público y ordenar el reintegro que corresponde al Fondo.
-14.- Resolver sobre la devolución de cuotas del Fondo de Jubilaciones y Pensiones del Poder Judicial a otros regímenes de seguridad social.
-15.- Otorgar toda clase de jubilaciones y pensiones judiciales.
+12.- (Derogado por el artículo 2° de la ley N° 9544 del 24 de abril de 2018)
+13.- (Derogado por el artículo 2° de la ley N° 9544 del 24 de abril de 2018)
+14.- (Derogado por el artículo 2° de la ley N° 9544 del 24 de abril de 2018)
+15.- (Derogado por el artículo 2° de la ley N° 9544 del 24 de abril de 2018)
 16.- Dirigir, planificar, organizar y coordinar las actividades administrativas del Poder Judicial y proponer a la Corte, los reglamentos correspondientes.
 17.- Conocer y aprobar el anteproyecto de Presupuesto del Poder Judicial.
 18.- Conceder licencias con goce de sueldo a los servidores judiciales, para realizar estudios o proyectos que interesen al Poder Judicial.

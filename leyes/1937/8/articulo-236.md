@@ -1,13 +1,8 @@
-CAPITULO II
-DE LAS RENTAS
-Artículo 236.- Para atender el pago de las jubilaciones y pensiones, créase un Fondo que será formado con los siguientes ingresos:
-1.- El nueve por ciento (9%) de todos los sueldos de los servidores activos, así como de las jubilaciones y pensiones a cargo del Fondo. Este porcentaje se retendrá mensualmente. Por razones de necesidad del Fondo y con base en estudios actuariales, la Corte podrá aumentar este porcentaje hasta un quince por ciento (15%).
-(Así reformado el inciso anterior por el artículo 4° de la Ley N° 7605 de dos de mayo de 1996).
-2.- El monto establecido como aporte del Estado para el Régimen de Invalidez, Vejez y Muerte de la Caja Costarricense de Seguro Social, y el que determine el Poder Judicial como patrono. Estos porcentajes se ajustarán proporcionalmente, conforme a los incrementos que la Corte acuerde junto con el aporte de los trabajadores.
-(Así reformado el inciso anterior por el artículo 4° de la Ley N° 7605 de dos de mayo de 1996).
-3.- Los intereses y demás beneficios que produzca el Fondo.
-4.- Los intereses que produzcan los depósitos judiciales por concepto de gastos administrativos.
-El cincuenta por ciento (50%) de los intereses que generen esos depósitos, durante el tiempo en que el proceso estuvo activo, deberán ser girados a quien deba devolverse el depósito.
-El resto de los intereses los percibirá el Fondo por igual concepto.
-5.- Anulado. (Anulado este inciso mediante resolución de la Sala Constitucional N° 10817 del 24 de octubre de 2001.)
-6.- Los demás ingresos que determine la ley.
+Artículo 236- El Fondo de Jubilaciones y Pensiones del Poder Judicial tendrá los siguientes ingresos:
+1) Un aporte obrero de un trece por ciento (13%) de los sueldos que devenguen los servidores judiciales, así como de las jubilaciones y las pensiones a cargo del Fondo, porcentaje que se retendrá en el pago periódico correspondiente.
+2) Un aporte patronal del Poder Judicial de un catorce coma treinta y seis por ciento (14,36%) sobre los sueldos y los salarios de sus servidores.
+3) Un aporte del Estado que será un porcentaje sobre los sueldos y los salarios igual al establecido para el Régimen de Invalidez, Vejez y Muerte de la Caja Costarricense de Seguro Social (CCSS).
+4) Los rendimientos y demás beneficios que produzca o pueda llegar a generar, obtener el Fondo.
+En ningún caso, la suma de la contribución obligatoria y la contribución especial, solidaria y redistributiva y, en general, la totalidad de las deducciones que se apliquen por ley a todos los pensionados y jubilados del Fondo de Jubilaciones y Pensiones del Poder Judicial, podrá representar más del cincuenta y cinco por ciento (55%) respecto de la totalidad del monto bruto de la pensión que por derecho le corresponda al beneficiario. Para los casos en los cuales esta suma supere el cincuenta y cinco por ciento (55%) respecto de la totalidad del monto bruto de la pensión, la contribución especial se reajustará de forma tal que la suma sea igual al cincuenta y cinco por ciento (55%) respecto de la totalidad del monto bruto de la pensión.
+Los recursos que se obtengan con la contribución obligatoria establecida en la presente ley ingresarán al Fondo de Jubilaciones y Pensiones del Poder Judicial.
+(Así reformado por el artículo 1° de la ley N° 9544 del 24 de abril de 2018)

@@ -228,6 +228,7 @@ articulo-221.md
 articulo-222.md
 articulo-223.md
 articulo-224.md
+articulo-224-bis.md
 articulo-225.md
 articulo-226.md
 articulo-227.md
@@ -240,10 +241,12 @@ articulo-233.md
 articulo-234.md
 articulo-235.md
 articulo-236.md
+articulo-236-bis.md
 articulo-237.md
 articulo-238.md
 articulo-239.md
 articulo-240.md
+articulo-240-bis.md
 articulo-241.md
 articulo-242.md
 articulo-243.md
