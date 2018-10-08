@@ -1,6 +1,3 @@
-(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las nomas que lo sustituyan.)
-ARTÍCULO 869.- Trámite.
-Cuando el actor no fuere el cónyuge del inhábil, el juez convocará, por medio de un edicto que se publicará una vez en el Boletín Judicial, a las personas a quienes corresponda la curatela, conforme con el artículo 223 (*) del Código de Familia, para que se presenten a encargarse de ella dentro del plazo de quince días contados desde la publicación.
-Si hubiere pariente obligado a la curatela, se le llamará para que, dentro de tres días, se presente a su aceptación. Si no constare la existencia de ningún pariente obligado a la curatela, o si los que existieren tuvieren impedimento o excusa para servirla, transcurrido el plazo de que habla el párrafo anterior, el juez procederá a nombrar curador de su elección al inhábil.
-(*) El artículo indicado en ahora el 230.
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan. No obstante este numeral fue derogado por el artículo 30 de la Ley para Promoción de la Autonomía Personal de las Personas con Discapacidad, N° 9379 del 18 de agosto de 2016)
+ARTÍCULO 869.- Trámite. (Derogado por el artículo 30 de la Ley para Promoción de la Autonomía Personal de las Personas con Discapacidad, N° 9379 del 18 de agosto de 2016)
 (La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 846 al 869)

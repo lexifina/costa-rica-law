@@ -1,6 +1,3 @@
-(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las nomas que lo sustituyan.)
-ARTÍCULO 870.- Normas aplicables.
-Las disposiciones contenidas en la sección anterior, referentes a la aceptación, al discernimiento de la tutela y a la remoción del tutor, serán aplicables a los casos de curatela, cuando proceda.
-Será aplicable a la materia de tutela y de curatela lo dispuesto en el párrafo segundo del artículo 810 (*).
-(* El artículo indicado es ahora el 833)
+(Nota de Sinalevi: Mediante el artículo 183 aparte 1) del Código Procesal Civil N° 9342 del 3 de febrero del 2016, se acordó mantener la vigencia de este artículo hasta que se publiquen las normas que lo sustituyan. No obstante este numeral fue derogado por el artículo 30 de la Ley para Promoción de la Autonomía Personal de las Personas con Discapacidad, N° 9379 del 18 de agosto de 2016)
+ARTÍCULO 870.- Normas aplicables. (Derogado por el artículo 30 de la Ley para Promoción de la Autonomía Personal de las Personas con Discapacidad, N° 9379 del 18 de agosto de 2016)
 (La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 847 al 870)
