@@ -1,0 +1,1 @@
+Artículo 8º-Los inquilinos en caso de entrar en desacuerdo con la administración en cualquier situación, elevarán el caso en discusión con el informe respectivo al Concejo Municipal para que este resuelva en segunda instancia.
