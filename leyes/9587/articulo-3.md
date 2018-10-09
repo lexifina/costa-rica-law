@@ -1,0 +1,1 @@
+ARTÍCULO 3- Se autoriza a los concejos municipales de distrito, debidamente establecidos al amparo de la Ley N.° 8173, Ley General de Concejos Municipales de Distrito, de 7 de diciembre de 2001, para que apliquen la presente condonación tributaria.
