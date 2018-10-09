@@ -14,3 +14,4 @@ Declara de interés público y nacional la V Conferencia Latinoamericana de Sane
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-16 | la propia norma |
+| 2 | 2018-10-09 | Decreto Ejecutivo 41459 (2018-10-09) |
