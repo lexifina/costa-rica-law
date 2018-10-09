@@ -14,3 +14,4 @@ Reglamento de funcionamiento de la Junta de Relaciones Laborales de la Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-03-30 | la propia norma |
+| 2 | 2018-10-09 | Reglamento municipal 41 (2018-10-09) |
