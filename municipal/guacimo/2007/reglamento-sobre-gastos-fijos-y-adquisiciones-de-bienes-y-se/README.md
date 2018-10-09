@@ -16,3 +16,4 @@ Reglamento Sobre Gastos Fijos y Adquisiciones de Bienes y Servicios Competencia 
 | 1 | 2007-05-25 | la propia norma |
 | 2 | 2009-11-03 | Reglamento municipal 44 (2009-11-03) |
 | 3 | 2014-10-27 | Reglamento municipal 43 (2014-10-27) |
+| 4 | 2018-10-09 | Reglamento municipal 29 (2018-10-09) |
