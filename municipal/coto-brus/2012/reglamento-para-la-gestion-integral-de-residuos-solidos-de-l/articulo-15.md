@@ -1,1 +1,0 @@
-Artículo 15.—De la recolección de los residuos en relación con la salud y el ambiente. La Municipalidad de Coto Brus establecerá un servicio de recolección de residuos sólidos ordinarios de tal forma que éstos no alteren o propicien condiciones adversas en la salud de las personas o contaminen el ambiente.

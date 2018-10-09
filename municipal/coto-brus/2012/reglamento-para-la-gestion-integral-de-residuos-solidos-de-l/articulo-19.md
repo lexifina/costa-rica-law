@@ -1,1 +1,0 @@
-Artículo 19.—Plan de gestión para concentraciones masivas. Para la realización de concentraciones masivas o eventos especiales, ferias, turnos y similares, el ente organizador del evento, deberá contar con un plan de gestión integral de residuos sólidos, que indique sistema de recolección, clasificación, almacenamiento y disposición final aprobado por la Municipalidad.

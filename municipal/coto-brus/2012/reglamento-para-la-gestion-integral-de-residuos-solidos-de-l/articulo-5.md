@@ -1,1 +1,0 @@
-Artículo 5º—Permisos y autorizaciones. Toda persona física o jurídica encargada de la gestión total o parcial de residuos sólidos deberá contar con las autorizaciones establecidas en la Ley de Gestión Integral de Residuos Sólidos, la Ley General de Salud y sus reglamentos, patente municipal y viabilidad ambiental según corresponda.
