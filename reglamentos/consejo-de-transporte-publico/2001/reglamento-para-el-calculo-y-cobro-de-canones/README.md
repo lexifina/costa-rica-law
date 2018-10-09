@@ -15,3 +15,4 @@ Reglamento para el Cálculo y Cobro de Cánones
 | --- | --- | --- |
 | 1 | 2001-01-01 | la propia norma |
 | 2 | 2016-03-17 | Reglamento 0 (2016-03-17) |
+| 3 | 2018-10-09 | Reglamento 35 (2018-10-09) |
