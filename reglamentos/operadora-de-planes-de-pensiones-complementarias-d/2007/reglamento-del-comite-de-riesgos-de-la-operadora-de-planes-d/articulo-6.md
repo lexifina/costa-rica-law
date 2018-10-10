@@ -1,8 +1,7 @@
-Artículo 6º—De la conformación del Comité. El Comité de Riesgos de la Operadora estará integrado por los siguientes miembros los cuales tendrán derecho a voz y voto:
-a) El Director de Riesgo Corporativo del Banco Popular y de Desarrollo Comunal, quien lo presidirá y, en caso de empate, ejercerá el doble voto, de acuerdo con la Ley General de la Administración Pública.
-b) Uno de los Gestores de Riesgo del Banco Popular y de Desarrollo Comunal quien será designado por el Director de Riesgo del Banco Popular, será su Secretario, quien tendrá voz y voto y podrá nombrar como suplente en este cargo de secretario, al participante mencionado en el inciso d) de este artículo.
-c) El Gerente de la Operadora, quien participará con voz y voto en el Comité.
-d) El Jefe de la División de Riesgo Financiero del Banco Popular y de Desarrollo Comunal, quien participará con voz y voto en el Comité.
-e) El miembro independiente que se especifica en el inciso b} del artículo 9° del Reglamento de Inversiones de las Entidades Reguladas.
-El Jefe del Departamento de Inversiones de la Operadora asistirá con derecho a voz, pero sin voto. Podrá asistir, en las mismas condiciones el Contralor Normativo.
-(Así reformado en sesión N° 492 del 28 de julio del 2016)
+Artículo 6º—De la conformación del Comité de Riesgos
+La conformación del Comité de Riesgo se estará rotando cada cuatro años naturales con nuevos miembros para evitar la concentración excesiva del poder y promover nuevas perspectivas. Le corresponderá al órgano de Dirección establecer si dicha rotación será total o parcial.
+Los miembros del Comité de Riesgos deberán de cumplir con los requisitos indicados en el artículo 15 del Reglamento de Riesgo aplicable a la industria de pensiones.
+Podrán asistir con derecho a voz, pero sin voto el Gerente General de la Operadora de Pensiones, así como funcionarios de la Operadora y de la Dirección de Riesgo del Banco Popular.
+El quórum para sesionar quedará conformado por dos miembros con derecho a voz y voto.
+El representante designado por cada uno de los fondos especiales, que mediante convenio o relación contractual sean administrados por Popular Pensiones, podrá participar en las sesiones del Comité de Riesgo, con voz y voto, únicamente en aquellos asuntos que tengan relación directa con el Fondo que representa, no siendo Las decisiones de los miembros no deben estar afectadas por conflictos de intereses, por lo tanto, sus acciones deberán cumplir lo establecido en el “Código de Buen Gobierno Corporativo del Conglomerado Financiero Banco Popular y de Desarrollo Comunal y sus subsidiarias”, específicamente lo establecido en el Capítulo III: Políticas de gobierno y conflictos de interés.
+(Así reformado en sesión N° 545 del 10 de octubre del 2018)

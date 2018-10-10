@@ -1,8 +1,3 @@
-Artículo 14.—De la vigilancia del régimen de inversiones en valores de emisores extranjeros. De acuerdo con lo estipulado en el Reglamento de Inversiones de las Entidades Reguladas, para la inversión en valores de emisores extranjeros, el Comité de Riesgos, velará por el cumplimiento de:
-a) Las condiciones para invertir en valores extranjeros, particularmente la existencia de políticas y procedimientos aprobados en materia de inversiones y riesgos.
-b) La realización de inversiones únicamente en los mercados autorizados.
-c) La adquisición de valores elegibles, explícitamente autorizados por la normativa externa e interna, así como el cumplimiento de los requisitos para tales instrumentos.
-d) El límite global de inversión en valores extranjeros.
-e) Los límites por emisión y emisor.
-f) Los requisitos establecidos para los intermediarios en las operaciones que realice la Operadora en mercados internacionales.
-g) Los requisitos establecidos para los custodios internacionales.
+Artículo 14.—Propuestas e iniciativas de administración de riesgos.
+Corresponde al Comité presentar propuestas, estrategias e iniciativas para la administración de riesgos y someterlas a aprobación por parte de la Junta Directiva. Estas acciones deben ser sometidas a discusión ante el Comité, conforme al procedimiento establecido en el Marco de Gestión (Manual de Políticas y Procedimientos) vigente.
+(Así reformado en sesión N° 545 del 10 de octubre del 2018)
