@@ -1,1 +1,0 @@
-Artículo 2º—Deróguese el Decreto Ejecutivo número 41036-H de fecha 06 de abril de 2018, publicado en el Alcance número 85 a La Gaceta número 73 de fecha 26 de abril de 2018, a partir de la vigencia del presente decreto.
