@@ -1,1 +1,0 @@
-Artículo 7°—Prohibiciones del personal de Auditoría Interna. Los colaboradores de la Auditoría Interna, en el desarrollo de sus competencias, deben respetar el régimen de prohibiciones que les impone el marco jurídico vigente, en especial las contenidas en el artículo Nº 34 de la Ley General de Control Interno.

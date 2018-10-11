@@ -1,1 +1,0 @@
-Artículo 37.—Denuncias. La Auditoría Interna recibirá aquellas denuncias que le sean remitidas por personas físicas o jurídicas, públicas o privadas y colaboradores (as) de la Institución, las que serán analizadas con base en el Reglamento para la Atención de Denuncias planteadas ante la Auditoría Interna de la Junta de Protección Social.

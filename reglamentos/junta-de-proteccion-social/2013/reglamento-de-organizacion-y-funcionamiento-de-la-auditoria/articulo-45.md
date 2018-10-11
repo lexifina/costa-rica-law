@@ -1,1 +1,0 @@
-Artículo 45.—Aprobación. El presente Reglamento fue aprobado por la Junta Directiva de la Junta de Protección Social, mediante acuerdo JD-070 de la sesión ordinaria Nº 04-2013 celebrada el 05 de febrero de 2013.

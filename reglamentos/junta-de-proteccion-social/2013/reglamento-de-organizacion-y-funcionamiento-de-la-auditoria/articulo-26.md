@@ -1,1 +1,0 @@
-Artículo 26.—Apoyo técnico. La Auditoría podrá incorporar entre sus recursos, el uso de profesionales o técnicos de diferentes disciplinas, colaboradores o no de la institución, para que lleven a cabo labores de su especialidad, en apoyo a las labores de auditoría, que requieran de conocimientos, técnicas u otras competencias adicionales.

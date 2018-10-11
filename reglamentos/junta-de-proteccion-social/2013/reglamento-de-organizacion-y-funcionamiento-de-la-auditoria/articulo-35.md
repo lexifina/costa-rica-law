@@ -1,1 +1,0 @@
-Artículo 35.—De la supervisión. El Auditor Interno será responsable de establecer un adecuado proceso de supervisión del trabajo dentro de la Auditoría, la cual puede ser llevada a cabo por él o por los colaboradores que designe para tal efecto, para asegurar el logro de sus objetivos, la calidad de sus servicios y el desarrollo profesional de sus colaboradores.

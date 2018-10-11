@@ -1,1 +1,0 @@
-Artículo 11.—Ubicación orgánica. La Auditoría Interna es un órgano asesor de alto nivel dentro de la estructura institucional, que depende orgánicamente de la Junta Directiva de la Junta de Protección Social.

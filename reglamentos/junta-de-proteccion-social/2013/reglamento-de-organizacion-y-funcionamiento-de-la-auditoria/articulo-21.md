@@ -1,1 +1,0 @@
-Artículo 21.—Ámbito de acción. El ámbito de acción de la Auditoría Interna está conformado por la Junta de Protección Social y por los entes y órganos públicos y privados sujetos a su competencia de conformidad con el artículo Nº 22, inciso a) de la Ley General de Control Interno Nº 8292, sus modificaciones y reformas.

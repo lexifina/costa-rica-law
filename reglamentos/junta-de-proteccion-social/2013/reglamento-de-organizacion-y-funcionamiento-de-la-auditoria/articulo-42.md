@@ -1,1 +1,0 @@
-Artículo 42.—Derogatoria. Este Reglamento deroga el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Junta de Protección Social de San José, aprobado según acuerdo de Junta Directiva JD-080 del Acta Nº 04-2008 de la sesión celebrada el 05 de febrero de 2008 y publicado en La Gaceta Nº 72 del 15 de abril de 2008.

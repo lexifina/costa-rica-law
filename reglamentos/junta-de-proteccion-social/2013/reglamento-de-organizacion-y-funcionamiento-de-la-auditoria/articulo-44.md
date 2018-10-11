@@ -1,1 +1,0 @@
-Artículo 44.—Aprobaciones, modificaciones y reformas al Reglamento. El Auditor Interno será el responsable de someter a aprobación de la Junta Directiva de la Junta de Protección Social, las reformas que puedan ser necesarias para mantener vigente el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Junta de Protección Social.

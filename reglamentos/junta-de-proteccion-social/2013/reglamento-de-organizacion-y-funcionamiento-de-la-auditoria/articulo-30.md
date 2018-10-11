@@ -1,1 +1,0 @@
-Artículo 30.—Potestades. Serán potestades del Auditor Interno, Subauditor Interno y demás personal de la Auditoría Interna, todas aquellas contenidas en el artículo Nº 33 de la Ley General de Control Interno Nº 8292, sus reformas y modificaciones.
