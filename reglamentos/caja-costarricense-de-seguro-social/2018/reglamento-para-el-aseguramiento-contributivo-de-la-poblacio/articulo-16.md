@@ -1,0 +1,13 @@
+CAPÍTULO VII
+Disposiciones finales
+Artículo 16.—Reformas. El presente Reglamento modifica, en los términos que se dirá, el artículo 11° del Reglamento del Seguro de Salud, aprobado por la Junta Directiva en el artículo 12 de la sesión N° 7097, y reformado en el artículo 27 de la sesión N° 8806, celebrada el 22 de octubre del ario 2015.
+a) Se reforma el artículo 11°, cuyo texto dirá:
+“Artículo 11° Del aseguramiento según condición. El aseguramiento se otorgará a las personas en las siguientes condiciones:
+1. Los trabajadores asalariados.
+2. Los pensionados y jubilados de cualquiera de los sistemas estatales
+3. Las personas jefas de familia aseguradas por cuenta del Estado.
+4. Las personas que individual o colectivamente se acojan al Seguro bajo la modalidad de Seguro Voluntario.
+5. Los trabajadores independientes, que coticen al Seguro en forma -individual o colectiva.
+6. Asegurados bajo la modalidad de recolectores de café.
+7. Los familiares de los asegurados directos a quienes se les haya otorgado el Beneficio Familiar.
+8. Población en condición de pobreza (Así reformado en el artículo 36 de la sesión número 8061 del 30 de mayo del año 2006)
