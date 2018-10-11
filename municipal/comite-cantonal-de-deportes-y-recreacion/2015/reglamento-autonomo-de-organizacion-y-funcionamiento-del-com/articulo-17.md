@@ -1,1 +1,0 @@
-Artículo 17.—Diez días hábiles después de ejecutado el nuevo nombramiento del Comité Cantonal de Deportes y Recreación, el Concejo Municipal de Paraíso hará una sesión extraordinaria donde recibirá los informes del Comité saliente y juramentará a los miembros del Comité entrante.

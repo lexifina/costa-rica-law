@@ -1,1 +1,0 @@
-Artículo 10.—Constituir, juramentar, afiliar y promover los comités comunales de deporte y recreación en cada uno de los distritos, barrios y caseríos y colaborar con los programas y actividades que formulen y promulguen esas organizaciones

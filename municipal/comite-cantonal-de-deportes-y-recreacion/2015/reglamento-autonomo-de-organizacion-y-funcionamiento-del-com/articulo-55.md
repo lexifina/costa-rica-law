@@ -1,1 +1,0 @@
-Artículo 55.—Las Comisiones como órganos subalternos, deben guiarse por lineamientos generales, reglamentos leyes y decretos que regulan el funcionamiento del Comité Cantonal de Deporte y Recreación de Paraíso.

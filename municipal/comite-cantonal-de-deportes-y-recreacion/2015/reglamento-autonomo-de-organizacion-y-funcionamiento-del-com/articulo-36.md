@@ -1,1 +1,0 @@
-Artículo 36.—El quórum para sesionar está integrado por tres miembros. Los acuerdos se tomarán por simple mayoría de votos presentes salvo cuando se estipule en este reglamento un número mayor de votos.

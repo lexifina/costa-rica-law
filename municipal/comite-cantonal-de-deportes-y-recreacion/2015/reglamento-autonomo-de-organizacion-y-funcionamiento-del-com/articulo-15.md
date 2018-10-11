@@ -1,3 +1,0 @@
-CAPÍTULO TERCERO
-De la Junta Directiva
-Artículo 15.—La Junta Directiva del Comité Cantonal de Deportes y Recreación es la autoridad máxima de este organismo y es la encargada de su gobierno, dirección y administración para el periodo vigente designado por el Concejo Municipal Órgano de carácter técnico y administrativo, encargado de ejecutar políticas, acuerdos, planes y programas en coordinación con la Municipalidad y el Instituto Costarricense del Deporte y la Recreación, durarán en sus cargos dos años, podrán ser reelegidos y no devengarán dietas ni remuneración alguna por su servicio voluntario a favor del desarrollo del deporte y la recreación.

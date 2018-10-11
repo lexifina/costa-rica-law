@@ -1,1 +1,0 @@
-Artículo 25.—Invertir en la preparación técnica, física y académica así como promover atletas que no pertenezcan a la jurisdicción del cantón de Paraíso, en actividades deportivas nacionales e internacionales.
