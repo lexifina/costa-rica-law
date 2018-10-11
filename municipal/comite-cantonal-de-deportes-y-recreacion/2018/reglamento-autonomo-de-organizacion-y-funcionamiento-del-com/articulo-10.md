@@ -1,0 +1,1 @@
+Artículo 10.— Constituir, según el artículo 166 del Código Municipal, juramentar, afiliar y promover los comités comunales de deporte y recreación en cada uno de los distritos, barrios y caseríos, así como colaborar con los programas y actividades que formulen y promulguen esas organizaciones.

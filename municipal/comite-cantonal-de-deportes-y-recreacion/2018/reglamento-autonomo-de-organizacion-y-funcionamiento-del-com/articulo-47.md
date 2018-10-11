@@ -1,0 +1,1 @@
+Artículo 47.—Recursos: Los acuerdos tomados por la Junta Directiva del Comité Cantonal de Deportes y Recreación de Paraíso, tendrán los recursos de: a) Revocatoria para los particulares b) Revisión para los miembros de Junta Directiva

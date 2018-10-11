@@ -1,0 +1,1 @@
+Artículo 84.— La convocatoria a esta asamblea se hará con un plazo de 30 días naturales por escrito o por medios telefónicos o electrónicos a las organizaciones, quienes deben inscribir o ratificar a sus representantes al menos con dos semanas de antelación a la realización de la asamblea.

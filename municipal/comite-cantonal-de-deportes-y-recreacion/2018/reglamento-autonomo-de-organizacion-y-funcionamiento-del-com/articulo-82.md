@@ -1,0 +1,1 @@
+Artículo 82.— Los nombramientos en los comités comunales rigen por dos años y sus miembros deben cumplir los requisitos e impedimentos que se estipulan en el artículo 18 de este reglamento para los miembros de la Junta Directiva del Comité Cantonal de Deportes y Recreación.

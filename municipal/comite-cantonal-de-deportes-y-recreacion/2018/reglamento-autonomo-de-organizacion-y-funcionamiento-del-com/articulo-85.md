@@ -1,0 +1,1 @@
+Artículo 85.— El quórum de la misma debe estar constituido por mayoría simple de los representante de las asociaciones adscritas a la hora de la primera convocatoria, de no ser así se dará una hora de espera y la asamblea se realizará en segunda convocatoria con los representantes presentes, siempre y cuando, éstos sean igual cantidad o superen el número de puestos a elegir.

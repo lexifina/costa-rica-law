@@ -1,0 +1,1 @@
+Artículo 79.—El Comité Cantonal de Deportes y Recreación y sus órganos operativos, podrán invertir fondos en terrenos y propiedades públicas que estén bajo su administración por convenio aunque no le pertenezcan al Concejo Municipal de Paraíso.

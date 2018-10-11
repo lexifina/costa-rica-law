@@ -1,0 +1,1 @@
+Artículo 66.—Los miembros del Comité Cantonal de Deportes y Recreación, así como del Concejo Municipal de Paraíso, están exentos del pago de cuotas de ingreso en cualquier actividad que realice alguno de sus afiliados, ya que estos por su investidura estarán presentes en funciones de fiscalizar y colaborar en dichas actividades.
