@@ -12,8 +12,9 @@ Considerando
 Por tanto, emite la siguiente,
 Directriz
 DIRIGIDA AL SECTOR PÚBLICO
-A rtículo 1°.—Durante el ejercicio económico 2018, los órganos que conforman el Presupuesto Nacional no podrán destinar los remanentes que se produzcan en las diferentes subpartidas de la partida 0 Remuneraciones, para incrementar otras partidas presupuestarias, con excepción de las subpartidas 6.01.03 Transferencias corrientes a instituciones descentralizadas no
-empresariales (contribuciones estatales), 7.01.03 Transferencias de capital a instituciones descentralizadas no empresariales (contribuciones estatales, para el caso de los programas de inversión), 6.03.01 Prestaciones Legales y 6.03.99 Otras prestaciones para el pago de subsidios por incapacidad.
+Artículo 1°.-Durante los ejercicios económicos 2018 y 2019, los órganos que conforman el Presupuesto Nacional no podrán destinar los remanentes que se produzcan en las diferentes subpartidas de la partida 0 Remuneraciones, para incrementar otras partidas presupuestarias, con excepción de las subpartidas 6.01.03 Transferencias corrientes a instituciones descentralizadas no empresariales (contribuciones estatales), 7.01.03 Transferencias de capital a instituciones descentralizadas no empresariales (contribuciones estatales, para el caso de los programas de inversión), 6.03.01 Prestaciones Legales y 6.03.99 Otras prestaciones para el pago de subsidios por incapacidad.
 Los remanentes en la partida Remuneraciones que resulten de la aplicación del ajuste por costo de vida, deberán ser trasladados a la subpartida 9.02.01 Sumas libres sin asignación presupuestaria, en la modificación presupuestaria siguiente a la aplicación de la revaloración.
 Lo anterior también aplicará para los recursos que corresponden al pago de remuneraciones a órganos desconcentrados, a través de la Ley de Presupuesto de la República y sus modificaciones.
 Las restantes entidades que reciben recursos del Presupuesto de la República para el pago de remuneraciones, también deberán rebajar los montos que resulten de la aplicación de costo de vida y trasladarlos a sumas libres sin asignación presupuestaria.
+Se exceptúa de lo señalado en el presente artículo a la Dirección General de Migración y Extranjería.
+(Así reformado por el artículo 1° de la directriz N° 026 del 11 de octubre de 2018)

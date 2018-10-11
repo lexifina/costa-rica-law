@@ -1,5 +1,4 @@
-Artículo 9°.Durante el 2018, los ministerios, los órganos desconcentrados y entidades que reciben transferencia de Gobierno para el pago de remuneraciones, y que están cubiertos por el ámbito de la Autoridad Presupuestaria, podrán utilizar hasta un máximo del 25% de las vacantes existentes y las que se generen en lo que resta del periodo.
-(Así reformado el párrafo anterior por el artículo 1° de la directriz N° 003 del 1° de junio de 2018)
+Artículo 9° Durante el 2018 y el 2019, los ministerios, los órganos desconcentrados y entidades que reciben transferencia de Gobierno para el pago de remuneraciones, y que están cubiertos por el ámbito de la Autoridad Presupuestaria, podrán utilizar hasta un máximo del 25% de las vacantes existentes y las que se generen en lo que resta del periodo.
 Por vacante se debe entender, todo puesto en el que no existe persona ejerciendo las funciones y responsabilidades, sea interina o en propiedad y la cual no se encuentra en proceso de nombramiento de personal, entendido este desde la presentación de la gestión ante las oficinas de Recursos Humanos.
 Quedan exceptuadas de esta Directriz, las siguientes plazas:
 a. Las del Ministerio de Educación Pública y las de otras entidades que estén dedicadas a la docencia, así como las del SINEM y el Instituto Nacional de la Música dedicadas a la enseñanza musical.
@@ -22,5 +21,7 @@ q. Las de direcciones, departamentos, oficinas, unidades o áreas integradas por
 r. Las plazas vacantes del Ministerio de Trabajo y de la Procuraduría General de la República que se utilicen para la implementación y gestión de la reforma Procesal Laboral.
 s. Las de la Dirección de Apoyo al Consumidor.
 t. Las por despido sin responsabilidad patronal, pensión y defunción.
+u. Aquellas plazas vacantes en razón de un permiso sin goce de salario, otorgado para que la persona funcionaria apoye y refuerce los proyectos prioritarios del Instituto Costarricense de Ferrocarriles (INCOFER), siempre que cuenten con el visto bueno de la Presidencia de la República.
 En los primeros diez días hábiles vencido cada trimestre, los ministerios, las entidades y órganos desconcentrados que reciben transferencia de Gobierno para el pago de remuneraciones deberán remitir, a la Secretaría Técnica de la Autoridad Presupuestaria (STAP), un informe de plazas vacantes que consigne el número de puesto, código y nombre de la clase, así como la información que indique desde cuándo está vacante, costo total mensual de la misma (incluye salario base, pluses, aguinaldo y contribuciones sociales). Deberán informar además sobre la utilización de vacantes.
 Ninguna instancia queda autorizada para conocer o conferir excepciones adicionales a las ya contenidas en el presente artículo.
+(Así reformado por el artículo 1° de la directriz N° 026 del 11 de octubre de 2018)
