@@ -21,3 +21,4 @@ Establece que la base imponible del Impuesto Solidario para el Fortalecimiento d
 | 6 | 2015-10-27 | Resolución 70 (2015-10-27) |
 | 7 | 2016-10-25 | Resolución 55 (2016-10-25) |
 | 8 | 2017-10-25 | Resolución 50 (2017-10-25) |
+| 9 | 2018-10-11 | Resolución 54 (2018-10-11) |
