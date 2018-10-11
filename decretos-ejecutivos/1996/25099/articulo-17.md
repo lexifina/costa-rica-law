@@ -1,1 +1,0 @@
-Artículo 17.—Cada una de las unidades asesoras contarán con un responsable y con un colaborador inmediato de éste en cuyo caso ambos serán responsables por los resultados de la gestión en la respectiva unidad.

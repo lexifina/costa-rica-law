@@ -1,1 +1,0 @@
-Artículo 2°—El Ministerio de Obras Públicas y Transportes cuenta dentro de sus áreas sustantivas, con el Área de Transpones, la que atiende todo lo relacionado con el transpone aéreo, actividad desarrollada por Consejo Técnico de Aviación Civil y su órgano ejecutivo, la Dirección General de Aviación Civil, cuya reestructuración se determina mediante este decreto.
