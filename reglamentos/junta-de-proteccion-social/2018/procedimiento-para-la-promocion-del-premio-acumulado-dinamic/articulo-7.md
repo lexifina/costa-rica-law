@@ -1,0 +1,1 @@
+Artículo 7º—Caducidad. El premio acumulado o los premios extras de la promoción pueden ser reclamados a partir del día hábil siguiente a la fecha de realización del sorteo y dentro del período de caducidad de 60 días naturales, los cuales rigen a partir del día hábil siguiente a la fecha de realización del sorteo, establecido en el artículo 18 de la Ley Nº 8718.

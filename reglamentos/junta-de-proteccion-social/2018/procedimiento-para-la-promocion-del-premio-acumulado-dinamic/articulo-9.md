@@ -1,0 +1,1 @@
+Artículo 9º—Vigencia. La promoción Premio Acumulado Dinámico rige a partir del sorteo siguiente a aquel, cuyo premio acumulado fue acertado. La Junta Directiva dispondrá mediante acuerdo la fecha de finalización de esta promoción y lo comunicará a los jugadores con la debida antelación mediante la publicación respectiva.
