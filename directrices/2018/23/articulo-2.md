@@ -1,0 +1,1 @@
+Artículo 2º—Se instruye a las instituciones de la Administración Central y Descentralizada, involucradas en la tramitación de permisos de construcción, para que utilicen de manera obligatoria las plataformas “APC requisitos” y “APC institucional”, poniendo a disposición del usuario, además, todos los datos y mapas oficiales relacionados con dichos trámites.
