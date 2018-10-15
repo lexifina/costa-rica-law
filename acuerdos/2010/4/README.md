@@ -14,3 +14,4 @@ Política y Procedimiento Reincorporaciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-04 | la propia norma |
+| 2 | 2018-10-15 | Acuerdo 0 (2018-10-15) |
