@@ -14,3 +14,4 @@ Reforma Manual de Políticas y Procedimientos del Departamento Administrativo y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-09-24 | la propia norma |
+| 2 | 2018-10-15 | Acuerdo 0 (2018-10-15) |
