@@ -18,3 +18,4 @@ Manual de Políticas y Procedimientos del Departamento Administrativo y Financie
 | 3 | 2017-03-06 | Reglamento 0 (2017-03-06) |
 | 4 | 2017-11-08 | Reglamento 0 (2017-11-08) |
 | 5 | 2018-09-24 | Reglamento 0 (2018-09-24) |
+| 6 | 2018-10-15 | Acuerdo 0 (2018-10-15) |
