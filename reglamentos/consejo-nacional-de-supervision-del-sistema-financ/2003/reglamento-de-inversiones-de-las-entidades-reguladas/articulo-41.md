@@ -1,4 +1,0 @@
-Artículo 41.—De los administradores de cartera. El Superintendente de Pensiones podrá autorizar la utilización de administradores de cartera de conformidad con los requisitos que establezca para tal efecto.
-Las personas físicas que funjan como administradores de cartera no podrán ser electos como miembros externos de los comités de riesgos y de inversiones de las entidades reguladas. Tampoco podrá ser electo como miembro externo la persona física vinculada a las personas jurídicas que se desempeñen como administradores de cartera según lo establecido en el “Reglamento sobre el grupo vinculado a la entidad” (Acuerdo SUGEF 4-04).
-(Así reformado mediante sesión N° 642 del 25 de abril de 2007)
-(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°39 al N°41 actual).

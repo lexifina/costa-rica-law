@@ -1,4 +1,0 @@
-Artículo 59.—De las comisiones. El costo de intermediación incurrido por cada transacción deberá ser imputado al valor del instrumento negociado. Todos aquellos costos correspondientes a custodia, asesoramiento, investigación, suscripción de contratos marco para realizar operaciones con derivados financieros y otros, deberán ser cubiertos, en su totalidad, por la entidad regulada. Se exceptúa de lo anterior a los gestores que, por su naturaleza, no cobren ordinariamente comisiones de administración al afiliado
-(Así reformado mediante sesión N° 1049 del 02 de julio de 2013)
-(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°41 al N°43 actual).
-(Así corrida su numeración mediante sesión N° 1049 del 02 de julio de 2013, que lo traspasó del antiguo artículo 43 al 59)

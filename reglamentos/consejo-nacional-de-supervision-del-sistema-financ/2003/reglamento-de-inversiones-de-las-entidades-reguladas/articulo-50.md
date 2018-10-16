@@ -1,6 +1,0 @@
-Artículo 50.—Requisitos de los intermediarios
-Las entidades reguladas deberán solicitar a los intermediarios en las operaciones de cobertura con derivados, al menos, el cumplimiento de los siguientes requisitos y condiciones:
-a. Estar inscritos y autorizados por el órgano de supervisión que corresponda para transar con derivados en los mercados definidos en el artículo 49 de este reglamento.
-b. La negociación de instrumentos derivados en los mercados OTC extranjeros únicamente podrán ser realizadas por intermediarios que operen en los mercados ubicados en los países pertenecientes al Comité Técnico de la IOSCO o de la Unión Europea, cuando se encuentren autorizados, regulados y supervisados por las autoridades competentes correspondientes a dichos mercados.
-c. Los intermediarios que celebren operaciones en los mercados OTC, deberán ostentar una calificación internacional de riesgo mínima de “A” o su equivalente, determinada según lo que establezca la Superintendencia General de Entidades Financieras mediante acuerdo. Asimismo, deberán contar con un mínimo de dieciocho meses continuos de experiencia en la operación con derivados, previos a la realización de la transacción, durante los cuales, además, no debe haber incurrido en ningún incumplimiento contractual.
-(Así adicionado mediante sesión N° 1049 del 02 de julio de 2013)

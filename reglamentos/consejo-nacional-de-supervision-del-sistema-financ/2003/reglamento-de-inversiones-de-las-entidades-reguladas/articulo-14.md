@@ -1,8 +1,0 @@
-Artículo 14.—Medición, monitoreo, control y contenido de los informes internos. Para llevar a cabo la medición, monitoreo y control de los diversos tipos de riesgo cuantificables y la valuación de las posiciones de los fondos que operen las entidades, la Unidad para la Administración Integral de Riesgos deberá:
-a. Contar con modelos y sistemas de medición de riesgos que incorporen información de mercado que comprenda variables tales como rendimientos, volatilidad y potencial de movimientos adversos, en donde se refleje de forma precisa el valor de las posiciones y su sensibilidad a los diversos factores de riesgo.
-b. Asegurarse que la información que sirva de base para calcular las posiciones de las carteras administradas, utilizada en los modelos y sistemas de medición de riesgos, sea precisa, íntegra y oportuna. En virtud de lo anterior, toda modificación a la citada información deberá quedar documentada y contar con la debida fundamentación relativa a su naturaleza y el motivo que la originó.
-c. Llevar a cabo estimaciones de la exposición al riesgo de los fondos ligadas a resultados o al valor de la cartera.
-d. Efectuar revisiones periódicas a los supuestos contenidos en los modelos y sistemas definidos en el artículo 10 de este Reglamento.
-e. Comparar y analizar periódicamente las estimaciones de la exposición al riesgo contra los resultados efectivamente observados para el mismo período de medición.
-(Así reformado mediante sesión N° 642 del 25 de abril de 2007)
-(Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°13 al N°14 actual).
