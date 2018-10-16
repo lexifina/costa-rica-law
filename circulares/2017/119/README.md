@@ -13,3 +13,4 @@ Actualización de la Circular No. 228-2015, Protocolo de Justicia Juvenil Restau
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-09-19 | la propia norma |
+| 2 | 2018-10-16 | Circular 136 (2018-10-16) |
