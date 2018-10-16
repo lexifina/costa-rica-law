@@ -4,15 +4,15 @@ b) Para poder hacer uso de las instalaciones, para actividades deportivas, recre
 c) El comprobante de pago, contrato y/o nota de autorización para uso de la instalación deberá ser mostrado al Administrador de la Villa Olímpica, y en horario hábil de la Administración.
 d) Las concesiones de instalaciones deportivas o recreativas, de espacios para puestos de venta y otros servicios, deben sujetarse a lo establecido de acuerdo con la Ley de Contratación Administrativa, Ley de Patentes del Cantón de Desamparados, legislación conexa, o cualquier otro procedimiento conforme con el principio de legalidad.
 e) La Administración podrá dejar sin efecto la autorización de uso, arrendamiento o concesión, antes del vencimiento del tiempo de utilización, por alguno de los motivos siguientes:
- A- Por incumplimiento de las obligaciones antes establecidas en la autorización.
- B- Por daños al patrimonio o comportamiento inapropiado hacia los bienes o personal de la instalación, si este se produjera de manera reiterada y evidente.
+ñ A- Por incumplimiento de las obligaciones antes establecidas en la autorización.
+ñ B- Por daños al patrimonio o comportamiento inapropiado hacia los bienes o personal de la instalación, si este se produjera de manera reiterada y evidente.
 f) La duración del uso de la instalación deberá quedar reflejada en la solicitud, pudiendo ser limitada.
 g) Por necesidades urgentes de programación institucional o interés público, se podrán interrumpir de forma puntual las autorizaciones que se estime oportunas, comunicándoselo a la parte afectada en el menor tiempo posible. En el caso de que el afectado hubiere realizado algún pago, el dinero cancelado le será devuelto en un plazo no mayor de 48 horas, una vez realizada la respectiva solicitud de devolución conforme lo establecido en el artículo 30 del presente reglamento.
 h) El material, bienes muebles e inmuebles de la Municipalidad de Desamparados, deberá ser tratado con el mayor esmero y cuidado posible. En caso de rotura o desperfecto por uso indebido del equipamiento, serán responsables del costo de reparación o reposición:
- El representante legal de la asociación o federación
- El responsable del (de los) deportista(as)
- Padre de familia
- El representante de la organización o empresa
+ñ El representante legal de la asociación o federación
+ñ El responsable del (de los) deportista(as)
+ñ Padre de familia
+ñ El representante de la organización o empresa
 i) Durante el desarrollo de las diferentes actividades, el personal técnico o académico responsable del grupo de usuarios ha de encontrarse en la instalación y no se podrá admitir a los usuarios sin su presencia.
 j) Es obligatorio la recolección y adecuada disposición de los envases que se utilicen para la hidratación o consumo de líquidos durante la actividad, y cualquier otro tipo de desechos generados por los usuarios en el desarrollo del evento.
 k) Se prohíbe la introducción de envases de cristal a las Instalaciones.
@@ -22,7 +22,14 @@ n) Cuando se deba realizar la suspensión o el aplazamiento del evento referido,
 ñ) Las horas adjudicadas no podrán ser subarrendadas a terceras personas.
 o) La actividad que requiera un equipamiento auxiliar necesario (montaje y desmontaje), estará contemplado dentro del horario adjudicado y debe ser autorizado previamente por la Administración de la Villa Olímpica.
 p) Cuando la entidad cambie al responsable del evento, deberá comunicar dicho cambio a la administración en forma inmediata.
-q) Las cuotas o tarifas cobradas para uso de las instalaciones serán revisadas semestralmente conforme al IPC, estudios de mercado que realice la Administración, u otros indicadores económicos aplicables, y estas podrán ser modificadas cuando así lo considere la Administración, en virtud del tipo de actividad, las cuales deberán comunicarse a los interesados y usuarios. Estas tarifas serán aprobadas por el Concejo Municipal.
-r) La Municipalidad se reserva el derecho de ubicar y autorizar vallas publicitarias en el perímetro del Gimnasio, con los patrocinios de quien arriende o use las instalaciones en un evento específico, reservándose para sí ciertos espacios que no podrán ser utilizados por el arrendatario o usuario de las instalaciones. Estos espacios se definirán en el contrato de uso o arrendamiento.
-s) Cada valla publicitaria que se autorice o espacio para uso al arrendatario o usuario de las instalaciones, tendrá un costo de 200 mil colones en ubicación cercana a los marcos, o en el medio del Estadio, y cincuenta mil colones en las demás ubicaciones. Estos precios podrán ser ajustados anualmente con respecto al IPC, conforme lo estipula el inciso q del presente artículo.
-t) El contrato de arrendamiento deberá de ser firmado por el representante legal de la organización arrendante.
+q) La Municipalidad se reserva el derecho de ubicar y autorizar vallas publicitarias en el perímetro del Gimnasio, con los patrocinios de quien arriende o use las instalaciones en un evento específico, reservándose para sí ciertos espacios que no podrán ser utilizados por el arrendatario o usuario de las instalaciones. Estos espacios se definirán en el contrato de uso o arrendamiento.
+(Corrida la numeración del inciso anterior en sesión N° 61 del 16 de octubre de 2018, que lo traspaso del inciso r) al q), ya que en dicha sesión se ordenó suprimir el inciso q) y corre la numeración de los restantes incisos)
+(*)r) El alquiler de espacios publicitarios en los partidos Clase A (según definición artículo 31) del Estadio Cuty Monge será el siguiente. El costo de cada valla definida como categoría 1 será de un monto de ¢100.000 y las vallas categoría 2 será de ¢50.000, las cuales se encuentran definidas en el croquis adjunto. En los partidos de clase B (según definición artículo 31) cada valla definida como categoría 1 será de ¢50.000 y las vallas de categoría 2 será de ¢25.000.
+Lo anterior conforme al cuadro adjunto.
+[imagen]
+Además, en caso de que se realicen las exoneraciones del espacio, la organización deberá pagar igualmente por el uso de espacios publicitarios para los eventos masivos, ya sean deportivos, artísticos, culturales, etc. Cuando la administración lo considere oportuno, podrá reservarse para uso las vallas que considere necesarias.
+(*)(Corrida la numeración del inciso anterior en sesión N° 61 del 16 de octubre de 2018, que lo traspaso del inciso s) al r), ya que en dicha sesión se ordenó suprimir el inciso q) y corre la numeración de los restantes incisos)
+(Así reformado el inciso r) anterior en sesión N° 61 del 16 de octubre de 2018)
+s) El contrato de arrendamiento deberá de ser firmado por el representante legal de la organización arrendante.
+(Corrida la numeración del inciso anterior en sesión N° 61 del 16 de octubre de 2018, que lo traspaso del inciso t) al s), ya que en dicha sesión se ordenó suprimir el inciso q) y corre la numeración de los restantes incisos)
+t) (Nota de Sinalevi: El texto de este inciso debe de ser consultado en el inciso s), ya que en sesión N° 61 del 16 de octubre de 2018, se ordenó suprimir el inciso q) y corre la numeración de los restantes incisos)

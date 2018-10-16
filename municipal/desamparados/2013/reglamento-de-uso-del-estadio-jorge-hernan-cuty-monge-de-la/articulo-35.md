@@ -1,0 +1,2 @@
+Artículo 35: Cuando la Municipalidad cuente con equipos de fútbol que representen a la institución, sin importar la división en la que participen, estos quedarán exonerados del pago por el uso de las instalaciones, ya sea para juegos oficiales o entrenamientos, no obstante, debe velar la Administración por el equilibrio financiero de dichas instalaciones.
+(Así reformado en sesión N° 61 del 16 de octubre de 2018)
