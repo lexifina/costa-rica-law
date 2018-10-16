@@ -1,1 +1,1 @@
-V. Derogar el Transitorio VIII del “Reglamento de Inversiones de las entidades reguladas”.
+V. Derogar el Transitorio VIII del “Reglamento de Inversiones de las entidades reguladas”.(Esta norma fue derogada por el artículo 83 del Reglamento de gestión de activos, aprobado en sesión N° 1452 del 16 de octubre de 2018)

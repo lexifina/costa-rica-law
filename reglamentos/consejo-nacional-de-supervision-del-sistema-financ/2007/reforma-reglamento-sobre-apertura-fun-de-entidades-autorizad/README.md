@@ -14,3 +14,4 @@ Reforma Reglamento sobre apertura fun. de entidades autorizadas y fun. fondos pe
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-16 | la propia norma |
+| 2 | 2018-10-16 | Reglamento 1452 (2018-10-16) |
