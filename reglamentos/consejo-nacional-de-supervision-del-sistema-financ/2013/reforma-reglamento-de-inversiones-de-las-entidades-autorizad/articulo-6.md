@@ -1,4 +1,0 @@
-6. Reformar el Transitorio XII del Reglamento de Inversiones de las Entidades Reguladas, para que, en lo sucesivo, se lea de la siguiente forma:
-“Transitorio XII.
-Las entidades reguladas podrán contratar coberturas con intermediarios y contrapartes supervisados por la Superintendencia General de Entidades Financieras o la Superintendencia General de Valores que, a la entrada en vigencia de esta normativa, no cumplan con el plazo dispuesto en el párrafo segundo del inciso a) del artículo 49 y el inciso c) del artículo 50, siempre y cuando no hayan incurrido en ningún incumplimiento de contrato.
-El Superintendente de Pensiones, mediante acuerdo de alcance general, considerando el desarrollo y las condiciones del mercado local de derivados, establecerá el plazo de vigencia de la excepción indicada en el párrafo anterior.”
