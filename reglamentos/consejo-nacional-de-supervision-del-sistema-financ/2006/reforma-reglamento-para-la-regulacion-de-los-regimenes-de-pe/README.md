@@ -14,3 +14,4 @@ Reforma Reglamento para la Regulación de los Regímenes de Pensiones, Reglament
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-03-24 | la propia norma |
+| 2 | 2018-10-16 | Reglamento 1452 (2018-10-16) |
