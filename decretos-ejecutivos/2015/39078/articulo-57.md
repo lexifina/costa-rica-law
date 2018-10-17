@@ -1,1 +1,0 @@
-Artículo 57.—Contratos Privados: La redacción de contratos privados devengará el cincuenta por ciento (50%) de los honorarios fijados en la Tarifa General de honorarios de Abogados (as) con un mínimo de cincuenta y cinco mil colones.

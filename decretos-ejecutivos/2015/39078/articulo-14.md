@@ -1,1 +1,0 @@
-Artículo 14.—Número de identificación de entidad no sujeta a inscripción en el Registro Nacional. Por las diligencias para la obtención del número de identificación de entidades no sujetas a inscripción en el Registro Nacional, se cobrará un honorario de cincuenta y cinco mil colones.

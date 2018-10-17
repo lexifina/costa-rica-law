@@ -1,1 +1,0 @@
-Artículo 50.—Procesos e incidentes de pensión alimentaria. En los procesos e incidentes por pensión alimentaria, los honorarios mínimos serán de ciento sesenta y cinco mil colones que se pagará el cincuenta por ciento con la presentación y el otro cincuenta por ciento con la sentencia.

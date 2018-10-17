@@ -1,4 +1,0 @@
-Artículo 49.—Procesos judiciales: En procesos de separación judicial o de divorcio, reconocimiento de unión de hecho, pero sin disputa sobre gananciales, procesos de filiación, de suspensión de patria potestad, de adopciones, los honorarios mínimos serán de ciento sesenta y cinco mil colones.
-El pago de los honorarios se cancelará el cincuenta por ciento (50%) con la presentación del proceso y el otro cincuenta por ciento (50%) con la sentencia.
-En procesos de separación judicial o de divorcio, reconocimiento de unión de hecho con disputa sobre gananciales, se aplicarán las tarifas y las etapas procesales que señala el artículo 94, sin que su importe sea inferior a doscientos veinte mil colones.
-En ambos casos la forma de pago será el cincuenta por ciento con la presentación y el otro cincuenta por ciento con la resolución final firme.

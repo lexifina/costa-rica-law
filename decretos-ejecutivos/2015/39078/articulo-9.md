@@ -1,1 +1,0 @@
-Artículo 9°—Pluralidad de representados: Cuando en un mismo proceso el Abogado(a) atienda a diferentes representados, podrá pactar honorarios, en forma individual con cada uno de ellos conforme a las reglas de este Arancel.

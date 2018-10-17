@@ -1,2 +1,0 @@
-Artículo 67.—Obligaciones a cargo de los usuarios. Las usuarias o usuarios están en la obligación de pagar previamente el importe completo de honorarios, derechos, timbres e impuestos que se deban cubrir por el acto o contrato solicitado al Notario(a).
-Asimismo, corresponde a las usuarias o usuarios cumplir con los trámites que personalmente les compete, como el pago de impuestos o servicios, suministros de planos, obtención de visados, permisos, constancias y otros semejantes.

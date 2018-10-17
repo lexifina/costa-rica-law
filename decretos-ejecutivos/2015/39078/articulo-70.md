@@ -1,1 +1,0 @@
-Artículo 70.—Honorarios mínimos de instrumento público previsto. En los actos previstos en este Arancel que requiera el uso de protocolo, los honorarios mínimos serán de cincuenta y cinco mil colones.

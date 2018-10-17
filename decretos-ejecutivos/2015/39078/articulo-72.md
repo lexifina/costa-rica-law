@@ -1,1 +1,0 @@
-Artículo 72.—Desistimiento del acto o contrato. Si las partes, el solicitante o interesado finalmente desisten de la actuación notarial requerida pero el documento correspondiente ya estuviera confeccionado para ese momento, el Notario(a) tendrá derecho a cobrar el cincuenta por ciento (50%) de los honorarios totales a quien o quienes le encargaron esa labor.

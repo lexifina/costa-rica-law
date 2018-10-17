@@ -1,2 +1,0 @@
-Artículo 68.—Responsabilidad de pago. Salvo acuerdo de partes o disposición legal en contrario, los honorarios profesionales, así como sus intereses, el pago de derechos, timbres e impuestos que correspondan al acto o contrato se pagarán por partes iguales entre los interesados (as) o las partes, excepto en las constituciones de hipotecas y prendas, así como en sus cancelaciones que serán por cuenta del deudor(a).
-Estos rubros podrán calcularse de modo provisional y prudencial, cuando el bien objeto del acto o contrato quede sujeto a valoración.

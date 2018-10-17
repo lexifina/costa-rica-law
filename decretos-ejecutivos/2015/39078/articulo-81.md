@@ -1,1 +1,0 @@
-Artículo 81.—Protocolización del nombramiento, revocatoria o sustitución de administrador(a) de condominio. La protocolización, revocatoria o sustitución del administrador de condominio devengará honorarios mínimos de ciento diez mil colones.
