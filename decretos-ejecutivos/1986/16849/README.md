@@ -14,3 +14,4 @@ Declara Reserva Biológica Lomas Barbudal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-03-05 | la propia norma |
+| 2 | 2018-10-17 | Ley 9610 |
