@@ -1,0 +1,1 @@
+Artículo 2.- Se elimina la Sección 654 "Sub-drenajes para pavimentos de carretera y construcción de drenajes horizontales en taludes" del Manual de Especificaciones Generales para la Construcción de Carreteras, Caminos y Puentes CR-2010, la cual queda en condición de "reservada".
