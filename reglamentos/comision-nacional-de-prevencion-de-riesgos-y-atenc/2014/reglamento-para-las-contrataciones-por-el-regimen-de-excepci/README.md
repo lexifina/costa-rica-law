@@ -15,3 +15,4 @@ Reglamento para las contrataciones por el Régimen de Excepción y funcionamient
 | --- | --- | --- |
 | 1 | 2014-09-02 | la propia norma |
 | 2 | 2015-01-08 | Reglamento 0 (2015-01-08) |
+| 3 | 2018-10-17 | Reglamento 18 (2018-10-17) |
