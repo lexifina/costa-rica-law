@@ -1,0 +1,1 @@
+Artículo 3º—Mecánica de participación. La mecánica de participación consiste en que por la compra de al menos una fracción del Sorteo Extraordinario de Navidad N° 4522 a realizarse el 16 de diciembre del 2018, las personas quedarán participando en el sorteo de 8 vehículos marca Suzuki Vitara 4x2 año 2019, a sortearse el mismo día del Sorteo Extraordinario de Navidad 2018 N° 4522.
