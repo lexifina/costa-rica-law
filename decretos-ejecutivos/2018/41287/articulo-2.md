@@ -1,0 +1,1 @@
+Artículo 2º—Corresponderá a las autoridades de salud del Ministerio de Salud, velar porque dicha Estrategia sea cumplida. Asimismo, coordinará la revisión de esta Estrategia cada cuatro años contados a partir de su publicación, en coordinación con todos los actores que figuren como responsables y corresponsables en el cumplimiento de sus acciones, metas y componentes.
