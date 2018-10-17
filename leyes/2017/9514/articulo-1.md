@@ -10,3 +10,4 @@ INCISO C:
 DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS EXTERNOS DEL GOBIERNO DE LA REPÚBLICA PARA EL EJERCICIO ECONÓMICO DE 2018 (en colones corrientes)
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato, consultar Alcance Digital N° 301, a La Gaceta N° 237 del 14 de diciembre de 2017, Tomo 1 )
 (Modificado por el artículo 1° del decreto ejecutivo N° 41311 del 3 de setiembre de 2018)
+(Modificado por el artículo 1° del decreto ejecutivo N° 41266 del 5 de setiembre de 2018)
