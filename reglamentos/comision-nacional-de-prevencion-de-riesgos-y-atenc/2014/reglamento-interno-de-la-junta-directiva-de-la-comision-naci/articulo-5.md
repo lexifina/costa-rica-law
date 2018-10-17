@@ -1,1 +1,0 @@
-Artículo 5º—Facultades y deberes del Presidente. Se encuentran contempladas en el artículo 19 de la Ley 8488, el cual dispone que el Presidente de la Junta Directiva de la CNE, es el funcionario de mayor jerarquía de la CNE, y ostentará su representación judicial y extrajudicial.

@@ -1,1 +1,0 @@
-Artículo 14.—Abstención. En caso de que algún miembro posea algún interés directo en relación al asunto bajo conocimiento, deberá poner en conocimiento sobre éste a los restantes participantes de la sesión, y abstenerse de conocer y votar.

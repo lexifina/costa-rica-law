@@ -1,1 +1,0 @@
-Artículo 2º—Jerarquía y potestades. La Junta Directiva será el órgano de mayor jerarquía institucional y tendrá las potestades que atribuye el artículo 18 de la Ley Nacional de Emergencias y Prevención del Riesgo N° 8488.
