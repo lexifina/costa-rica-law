@@ -1,0 +1,1 @@
+Artículo 11.—Asignación de los recursos para la Contraloría de Servicios. Para el cumplimiento de sus funciones, la Contraloría de Servicios contará con los recursos necesarios que al efecto le permitan ejecutar adecuadamente el desarrollo de sus funciones.

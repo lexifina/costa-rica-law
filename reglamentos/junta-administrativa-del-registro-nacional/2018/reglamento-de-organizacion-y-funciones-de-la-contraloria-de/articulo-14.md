@@ -1,0 +1,8 @@
+Artículo 14.—Presentación de denuncias. Las denuncias serán interpuestas por las personas usuarias o sus representantes, que ante un hecho presuntamente irregular se consideren afectadas.
+En atención a lo indicado, las denuncias deberán aportar y cumplir con los siguientes requisitos:
+a) Nombre y apellidos del denunciante, número de identificación, teléfono y medio para recibir notificaciones.
+Cuando la denuncia se presente por escrito o por medio electrónico, deberá contar con la respectiva firma;
+b) Los hechos denunciados deberán ser expuestos en forma clara, precisa y circunstanciada, brindando el detalle suficiente que permita realizar la investigación por parte de la instancia administrativa competente (momento y lugar en que ocurrieron tales hechos), y la persona funcionaria que presuntamente los realizó;
+c) Los elementos de prueba que tenga para sustentar la denuncia. Si se trata de prueba testimonial, deberá señalar el nombre, dirección y medio donde se pueden localizar a los testigos, y deberá indicar los hechos a los que se referirán.
+En caso de que la denuncia no incorpore la totalidad de los requisitos señalados en este artículo, o bien, que existe imprecisión en los hechos denunciados, la dependencia competente al efecto prevendrá en un plazo de diez días hábiles, sea a partir de su respectiva notificación, se aclaren y precisen los hechos, o aporten las pruebas correspondientes para sustentar la denuncia.
+Transcurrido ese término, si la persona denunciante no cumple con la aclaración o ampliación solicitada, mediante acto administrativo en firme, se archivará la gestión sin perjuicio, que posteriormente sea presentada, como un nuevo trámite.

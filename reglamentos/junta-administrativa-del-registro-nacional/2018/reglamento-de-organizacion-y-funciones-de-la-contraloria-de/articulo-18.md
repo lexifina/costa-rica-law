@@ -1,0 +1,2 @@
+Artículo 18.—Registro de gestiones. La Contraloría de Servicios debe mantener un registro actualizado de las consultas, sugerencias, inconformidades, denuncias, felicitaciones y solicitudes de información pública, en aras visualizar las tendencias y comportamientos de la prestación de los servicios en la Institución.
+Con base, en la información obtenida la Contraloría de Servicios rendirá los informes pertinentes ante la autoridad o dependencia que así lo requiera.

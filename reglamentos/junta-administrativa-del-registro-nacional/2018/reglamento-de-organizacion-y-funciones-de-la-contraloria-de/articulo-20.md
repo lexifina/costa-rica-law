@@ -1,0 +1,1 @@
+Artículo 20.—Derogatoria. Mediante Decreto Ejecutivo 41184-J del 11 de mayo del 2018, se deroga el Decreto Ejecutivo N°32380-J del 7 de junio de 2004, “Reglamento de Organización y Funciones de la Contraloría de Servicios del Registro Nacional Ministerio de Justicia”.
