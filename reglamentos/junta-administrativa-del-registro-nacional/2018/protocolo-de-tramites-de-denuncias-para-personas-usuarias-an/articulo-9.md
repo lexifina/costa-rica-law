@@ -1,0 +1,1 @@
+Artículo 9º—Admisibilidad de la denuncia. Una vez que la Dirección General del Registro Nacional haya constatado que se cumplen los requisitos necesarios para la presentación de la denuncia, declarará su admisibilidad, y la remitirá a la instancia administrativa correspondiente, en aras de llevar a cabo el procedimiento respectivo.

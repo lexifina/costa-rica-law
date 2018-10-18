@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El Registro Nacional dará trámite únicamente a aquellas denuncias que versen sobre hechos presuntamente irregulares, que se relacionen con la actividad que brinda la Institución.
