@@ -1,1 +1,0 @@
-Artículo 3°—El servicio internacional de transporte de personas tendrá por objeto: el traslado de pasajeros cuyo destino final esté fuera del país, el ingreso por ese medio de personas que proceden del exterior y el de pasajeros en tránsito.

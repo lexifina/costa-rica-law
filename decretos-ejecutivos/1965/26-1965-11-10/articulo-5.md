@@ -1,2 +1,0 @@
-Artículo 5°-EI permiso a que se refiere el artículo anterior será otorgado a empresas nacionales o aquellas extranjeras cuyo capital esté integrado en un sesenta por ciento, al menos, con aportaciones de ciudadanos naturales de Centro América. En este último caso, deberá cumplirse con las disposiciones de los artículos 226, 227 y concordantes del Código de Comercio.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 20785 del 4 de octubre de 1991)

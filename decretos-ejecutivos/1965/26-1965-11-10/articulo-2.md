@@ -1,1 +1,0 @@
-Artículo 2°-En el transporte de personas se entiende por línea internacional aquélla cuyas terminales se encuentren localizadas en territorios de países distintos. Esas líneas deberán sujetarse a las condiciones de este Reglamento cuando tengan una de sus terminales en el territorio nacional, o bien, circulen por el mismo.

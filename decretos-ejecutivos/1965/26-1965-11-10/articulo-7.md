@@ -1,2 +1,0 @@
-Artículo 7°-Los permisos del servicio internacional del transporte remunerado de personas tendrán una vigencia de tres años, pudiendo ser renovados por períodos iguales, a juicio de la Comisión Técnica de Transportes, si el interesado lo hubiere solicitado al menos con tres meses de anticipación a la fecha de vencimiento del permiso y cumpliere, además con los requisitos y formalidades establecidas al efecto y siempre y cuando el servicio se haya brindado en forma satisfactoria.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 20785 del 4 de octubre de 1991)

@@ -1,1 +1,0 @@
-Artículo 10.—Todo vehículo que preste servicios de esta naturaleza, deberá estar amparado por un seguro de responsabilidad civil que cubra satisfactoriamente posibles lesiones o muerte de pasajeros y daños a terceros. El monto de tales aseguros será fijado por la Dirección General de Transporte Automotor.

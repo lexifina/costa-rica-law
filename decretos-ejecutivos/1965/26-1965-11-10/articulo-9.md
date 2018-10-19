@@ -1,1 +1,0 @@
-Artículo 9°—Los vehículos de servicio internacional no_ podrán transportar pasajeros, entre puntos situados dentro del territorio nacional. La empresa que infrinja esta disposición será sancionada con la cancelación del permiso correspondiente .

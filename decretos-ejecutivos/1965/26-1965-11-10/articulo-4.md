@@ -1,2 +1,0 @@
-Artículo 4°-Para operar un servicio internacional del transporte remunerado de personas, será necesario un permiso que otorgará la Comisión Técnica de Transportes, órgano que establecerá los requisitos que estime convenientes para la seguridad y comodidad de los usuarios de tales servicios, así como las condiciones que este Reglamento establece.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 20785 del 4 de octubre de 1991)
