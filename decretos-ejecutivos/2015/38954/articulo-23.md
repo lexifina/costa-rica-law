@@ -1,2 +1,3 @@
-ARTÍCULO 23°.- Durante los primeros 2 años, a partir de inicio de esta Estrategia, se atenderán a 27 300 familias en pobreza extrema. Para su selección se utilizará el Sistema de Población Objetivo (SIPO). Este sistema registra los resultados de las evaluaciones sociales realizadas por el IMAS a las familias mediante la Ficha de Información Social. Estas 27 300
-familias serán seleccionadas utilizando el puntaje que les asigna el SIPO, de manera que se priorice aquellas que presentan mayores factores de exclusión y riesgo social, es decir: las familias en mayor condición de pobreza registradas.
+Artículo 23.—El IMAS remitirá la información de las familias a las instituciones participantes en la Estrategia Puente al Desarrollo, las cuales deberán atenderlas de manera obligatoria con su oferta programática.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41351 del 19 de octubre de 2018)
+(Corrida la numeración por el artículo 2° del decreto ejecutivo N° 41351 del 19 de octubre de 2018, que lo traspaso del antiguo artículo 24) al 23), ya que se acordó eliminar el numeral 9 y correr la numeración de los restantes artículos)

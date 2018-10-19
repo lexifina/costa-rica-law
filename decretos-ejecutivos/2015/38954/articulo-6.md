@@ -1,2 +1,2 @@
-ARTÍCULO 6°.-. El Instituto Mixto de Ayuda Social será el encargado de conducir la Unidad Coordinadora detallada en el artículo 10 de este Decreto, así como realizar las gestiones para incorporarla dentro de su estructura institucional vigente.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40836 del 20 de noviembre de 2017)
+Artículo 6º—El Área de Atención Integral e Interinstitucional del Instituto Mixto de Ayuda Social (IMAS), en concordancia con el artículo 9, será la instancia encargada de brindar la asesoría y el seguimiento para la implementación de la Estrategia Puente al Desarrollo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41351 del 19 de octubre de 2018)

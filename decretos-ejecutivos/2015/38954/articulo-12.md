@@ -1,9 +1,16 @@
-ARTÍCULO 12°.- Las funciones de la Unidad Coordinadora son:
-1. Dirigir, planificar, organizar y controlar el proceso de ejecución de la Estrategia Puente al Desarrollo a nivel nacional.
-2. Garantizar la armonización de la oferta institucional pública y privada para responder a las necesidades de las personas en condición de pobreza y pobreza extrema en asocio con el equipo técnico del Consejo Presidencial Social y los otros equipos técnicos del Gobierno.
-3. Asesorar a las Personas Cogestoras Sociales, las Áreas Regionales de Desarrollo Social del IMAS y a las instituciones que participan en la Estrategia, en la Implementación de la Estrategia Puente al Desarrollo.
-4. Brindar seguimiento y monitoreo a la implementación de la Estrategia Puente al Desarrollo desde el enfoque territorial.
-5. Dirigir el proceso de construcción de protocolos en conjunto con el Consejo Presidencial Social, equipos técnicos del Gobierno y los enlaces técnicos institucionales.
-6. Coordinar conjuntamente con Consejo Presidencial Social la armonización de los proyectos de innovación social (Mapas sociales, Índice Pobreza Multidimensional, y SINIRUBE) en función de la implementación de la Estrategia.
-7. Gestionar y promover el proceso de participación ciudadana en el marco de la implementación de la dimensión comunal y demás fases de la Estrategia.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 40836 del 20 de noviembre de 2017)
+Artículo 12.—La Estrategia Puente al Desarrollo tendrá un Proceso de Acompañamiento a las familias en pobreza extrema, a cargo de un grupo de profesionales denominado "Cogestores Sociales", que tendrán como misión realizar la intermediación entre las demandas de las familias y el acceso a los bienes y servicios que generan las instituciones públicas y privadas para salir de la pobreza extrema.
+(*)1. El proceso de acompañamiento familiar que implementa la persona cogestora contempla tres dimensiones:
+a) Protección social
+b) Desarrollo y fortalecimiento de habilidades
+c) Independencia económica (Dimensión Sociolaboral).
+La Estrategia incorporará en su operacionalización el fortalecimiento de la Dimensión Sociolaboral de Puente al Desarrollo, basado en el diseño del Sistema Nacional de Empleo, mismo que contempla un flujograma de atención y un plan escalonado para la inclusión laboral y productiva de familias de Puente al Desarrollo. Para ello existirá una Comisión Técnica de Articulación Sociolaboral integrada por representantes del Ministerio de Trabajo y Seguridad Social (ente rector), Instituto Nacional de Aprendizaje, Ministerio de Educación Pública, Ministerio de Economía, Industria y Comercio, Instituto Nacional de las Mujeres, Instituto Mixto de Ayuda Social, Área de Atención Integral e Interinstitucional, el Área Estratégica de Articulación Presidencial de Seguridad Humana y el Área Estratégica de Articulación Presidencial de Innovación y Competitividad.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 41351 del 19 de octubre de 2018)
+(*) (Así adicionado el acápite 1) anterior por el artículo 2° del decreto ejecutivo N° 40836 del 20 de noviembre de 2017)
+(*)2. La Estrategia Nacional Puente al Desarrollo, debe implementarse en fases metodológicas a saber:
+a) Elegibilidad: En esta fase se realiza la selección de familias según el perfil establecido en la metodología y utilizando como principales herramientas los Mapas Sociales, el Sistema de Población Objetivo.
+b) Acompañamiento familiar: Contempla el proceso de diagnóstico, formulación del plan familiar en el cual se priorizan los logros básicos que se trabajarán con la familia.
+c) Seguimiento al Plan Familiar: Se brinda seguimiento a la corresponsabilidad de las familias y de las instituciones para el cumplimiento de los logros básicos.
+d) Sostenibilidad: Fase en la cual se orienta a atender a las familias que no logran alcanzar el 90% del cumplimiento de logros básicos durante los 24 meses de atención, basado en los resultados del informe técnico social. Las familias en condición de pobreza extrema que ingresan a la Estrategia Puente al Desarrollo, podrán recibir durante el tiempo que así lo requieran, los beneficios de los programas sociales selectivos financiados por el FODESAF u otra fuente, sean: Pensiones del Régimen No Contributivo, Bienestar Social del IMAS, becas de FONABE, Transferencias Monetarias condicionadas de Avancemos y beneficios de CONAPAM y CONAPDIS.
+e) Egreso: Es la última fase del proceso, en la cual, las familias que cumplen al menos el 90% de los logros básicos egresan de la Estrategia Puente al Desarrollo.
+(*) (Así adicionado el acápite 2) anterior por el artículo 2° del decreto ejecutivo N° 40836 del 20 de noviembre de 2017)
+(Corrida la numeración por el artículo 2° del decreto ejecutivo N° 41351 del 19 de octubre de 2018, que lo traspaso del antiguo artículo 13) al 12), ya que se acordó eliminar el numeral 9 y correr la numeración de los restantes artículos)
