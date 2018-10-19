@@ -1,1 +1,4 @@
-Artículo 2º—El Archivo Central del Consejo Nacional de Rectores, depende jerárquicamente de la Oficina Administrativa.
+CAPÍTULO II
+Sistema de Archivos Universitarios
+Estatales Costarricenses
+Artículo 2º—El Sistema de Archivos Universitarios Estatales Costarricenses es un referente Interuniversitario, formado por los Jefes y Encargados de los Archivos Centrales de las universidades miembros de CONARE, que trabaja mediante la Comisión de Archivos Universitarios. Dentro de sus principales acciones está solventar necesidades conjuntas en el campo de la Archivística, de acuerdo con la autonomía de cada una de las instituciones que la conforman. Esta Comisión dependerá del CONARE, como comisión permanente, de acuerdo con las potestades conferidas por este órgano colegiado en la sesión 27-99, del 19 de octubre de 1999. Trabajará bajo los lineamientos de coordinación interuniversitaria emanados por el CONARE y el Plan Nacional de Educación Superior.

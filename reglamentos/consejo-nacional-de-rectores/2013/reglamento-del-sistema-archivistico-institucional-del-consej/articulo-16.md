@@ -1,1 +1,1 @@
-Artículo 16.—La descripción documental se realizará en los Archivos de Gestión mediante los registros de entrada y salida de documentos y en el Archivo Central por medio de los inventarios documentales basados en la Norma General Internacional de Descripción Archivística-ISAD-G.
+Artículo 16.—Le corresponderá al Archivo Central capacitar a los encargados de los archivos de gestión, de acuerdo a los procesos en materia de gestión de documentos y las mejores prácticas archivísticas para el CONARE.

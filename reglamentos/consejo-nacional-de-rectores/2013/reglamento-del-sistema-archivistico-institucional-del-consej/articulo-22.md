@@ -1,1 +1,3 @@
-Artículo 22.—Las transferencias de documentos de los archivos de gestión al Archivo Central se realizan una vez al año, de acuerdo al orden y la fecha que se establezca en el cronograma de transferencias.
+CAPÍTULO V
+De evaluación de documentos
+Artículo 22.—De conformidad con el régimen de independencia de gobierno, de autonomía plena en organización y funcionamiento, así como de separación patrimonial que crean y garantizan los artículos 84 y 85 de la Constitución Política, la evaluación de documentos, compuesto por las etapas de selección, eliminación, se realizará de acuerdo a lo establecido en la Tabla de Plazos de Conservación aprobada. La evaluación y determinación de la vigencia administrativa, legal y patrimonial universitario, le corresponderá realizarla al Comité Institucional de Selección y Eliminación de Documentos (CISED).

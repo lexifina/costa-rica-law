@@ -14,3 +14,4 @@ Reglamento del sistema archivístico institucional del Consejo Nacional de Recto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-12-30 | la propia norma |
+| 2 | 2018-10-19 | Reglamento 0 (2018-10-19) |

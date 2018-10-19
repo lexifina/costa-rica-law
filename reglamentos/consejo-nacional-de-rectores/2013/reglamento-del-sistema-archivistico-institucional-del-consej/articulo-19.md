@@ -1,1 +1,3 @@
-Artículo 19.—El Comité Institucional de Selección y Eliminación de Documentos está formado por el encargado del Archivo Central, el Jefe Administrativo, el Asesor Legal y jefe, director o encargado del área productora de la documentación a valorar.
+CAPÍTULO IV
+De la organización de los documentos
+Artículo 19.—Los documentos serán clasificados de acuerdo con el sistema ORFU (orgánico – funcional). Esta estructura se publicará en el Cuadro de Clasificación y Ordenación de Documentos, producido por el Archivo Central. Esta clasificación se revisará mínimo una vez al año para actualizarlo de acuerdo con los cambios que haya sufrido los insumos que lo conforman.

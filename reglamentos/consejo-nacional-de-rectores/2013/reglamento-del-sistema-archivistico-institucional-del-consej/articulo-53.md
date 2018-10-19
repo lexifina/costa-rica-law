@@ -1,0 +1,1 @@
+Artículo 53.—El incumplimiento por parte de cualquier funcionario del CONARE en lo que establece el presente reglamento y las políticas, normas, manuales y procedimientos que en material archivística se dicten, será causal de responsabilidad administrativa, de conformidad con lo establecido en la Ley Nº 8292 del 31 de julio de 2002, Ley General de Control Interno.

@@ -1,1 +1,1 @@
-Artículo 41.—Los documentos con valor permanente o con valor científico cultural se producirán en soporte papel y se digitalizan si es de caso, para que esta información esté disponible en el sistema de gestión documental institucional.
+Artículo 41.—Los encargados de los archivos de gestión deben utilizar y llenar todos los campos de los registros de entrada y salida de documentos, ya que este es el instrumento que da fe de los documentos que custodia cada programa o división.

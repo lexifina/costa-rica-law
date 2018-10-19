@@ -1,1 +1,1 @@
-Artículo 12.—Le corresponderá al Archivo Central capacitar a los encargados(as) de los archivos de gestión en las áreas de administración y organización de los documentos.
+Artículo 12.—Cada archivo de gestión debe tener un encargado, quien organizará, conservará, facilitará los documentos y pondrá en práctica las políticas y procedimientos emanadas por el Archivo Central, para la adecuada administración de los mismos. Dicho nombramiento le corresponde establecerlo al titular subordinado del Programa, División o Unidad.

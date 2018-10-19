@@ -1,1 +1,7 @@
-Artículo 23.—El encargado(a) del archivo de gestión es el responsable de elaborar la lista de remisión para la transferencia de documentos, esta se enviará junto con los documentos. El recibido de los documentos será provisional, hasta tanto se coteje la lista contra los documentos en el procedo de descripción documental que realiza el Archivo Central.
+Artículo 23º— El valor patrimonial universitario, establecido por el CISED tomará en cuenta, entre otros, los siguientes criterios:
+• Rendición de cuentas institucionales.
+• Reflejo de las funciones sustantivas.
+• Funcionamiento de los órganos colegiados.
+• Historia universitaria.
+• Vinculación CONARE – Universidades.
+• Vinculación CONARE – Sociedad.

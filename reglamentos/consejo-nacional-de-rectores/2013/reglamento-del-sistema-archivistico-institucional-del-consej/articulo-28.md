@@ -1,1 +1,1 @@
-Artículo 28.—El encargado del Archivo Central debe llenar la Boleta de préstamo de documentos cada vez que se preste un documento y solicitar al usuario que llene los datos que le corresponden.
+Artículo 28.—Los funcionarios de CONARE tiene la prohibición de eliminar documentos de archivo, en cualquier soporte, al margen de todos los extremos establecidos en el procedimiento emanado por el Archivo Central para este fin.

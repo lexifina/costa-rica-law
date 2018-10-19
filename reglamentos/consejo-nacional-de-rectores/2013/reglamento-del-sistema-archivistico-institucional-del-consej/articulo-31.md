@@ -1,1 +1,1 @@
-Artículo 31.—Los documentos no pueden salir de la institución ya que se consideran patrimonio de la misma. Solo con la autorización expresa Director de OPES o la Jefatura Administrativa, se puede proceder a su salida. Dicho trámite se debe comunicar al Archivo Central en forma escrita para su respectivo registro.
+Artículo 31.—Las transferencias de documentos de los archivos de gestión al Archivo Central se realizan una vez al año, de acuerdo al orden y la fecha que se establezca en el cronograma de transferencias.

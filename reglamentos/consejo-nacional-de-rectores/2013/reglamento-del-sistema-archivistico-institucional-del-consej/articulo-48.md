@@ -1,0 +1,1 @@
+Artículo 48.—El equipo y los programas se deberán actualizar periódicamente de acuerdo con la demanda tecnológica y las necesidades que se presenten en la gestión documental. Para esto el CONARE dará apoyo económico permanente.

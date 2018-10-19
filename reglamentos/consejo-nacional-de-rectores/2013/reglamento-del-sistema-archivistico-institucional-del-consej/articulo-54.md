@@ -1,0 +1,1 @@
+Artículo 54.—El presente documento se actualizará a solicitud de la unidad de Archivo Central. Su propuesta deberá ser avalada por el Director Administrativo y la Dirección de OPES, para su posterior envío y aprobación por parte del CONARE.

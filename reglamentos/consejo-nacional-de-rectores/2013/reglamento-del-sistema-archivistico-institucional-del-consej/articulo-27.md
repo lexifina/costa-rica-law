@@ -1,1 +1,1 @@
-Artículo 27.—El encargado(a) del archivo de gestión debe llenar el Registro de préstamo de documentos cada vez que facilite un documento.
+Artículo 27.—Las declaratorias generales o específicas de conservación permanente con documentos que tengan valor científico cultural, que realice la Comisión Nacional de Selección y Eliminación de Documentos y que formen parte del fondo documental del CONARE, el CISED les dará el estatus de valor patrimonial universitario y serán conservadas de forma permanente en el CONARE.

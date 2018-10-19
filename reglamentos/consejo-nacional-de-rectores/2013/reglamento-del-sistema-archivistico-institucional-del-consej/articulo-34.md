@@ -1,3 +1,3 @@
 CAPÍTULO VII
-De la conservación de documentos
-Artículo 34.—Los archivos deberán contar con las medidas de seguridad y la infraestructura adecuadas (local, estantería, materiales, mobiliario, equipo técnico y contra incendios) que permita una buena conservación de los documentos. Cada uno de estos archivos deberá contar al menos con tres áreas definidas: administrativa, de consulta y de depósito.
+Acceso a la información contenida en los documentos
+Artículo 34.—En general, el fondo documental del CONARE es de acceso libre, siempre y cuando la información contenida en los documentos sea de interés público. La información de carácter restringido, debe ser identificada para no ser mostrada a terceros. La restricción de acceso a la información le corresponde estudiarla y determinarla al Comité Institucional de Selección y Eliminación de Documentos.

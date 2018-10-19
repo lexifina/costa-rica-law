@@ -1,1 +1,1 @@
-Artículo 18.—La elaboración de la Tabla de Plazos de Conservación le corresponde elaborarla al encargado de cada archivo de gestión, de acuerdo con el Instructivo para la elaboración de Tablas de Plazos de Conservación, producido por la Dirección General del Archivo Nacional y demás disposiciones emanadas del Archivo Central.
+Artículo 18.—El Encargado del Archivo Central podrá emitir copias certificadas o validadas mediante constancia de autenticidad de cualquiera de los documentos existentes en los diferentes subfondos custodiados por esta unidad.

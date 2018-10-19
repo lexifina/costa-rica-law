@@ -1,1 +1,1 @@
-Artículo 10.—El depósito del Archivo Central y los de los archivos de gestión, deben contar con la medidas de seguridad para asegurar la integridad de los documentos, y su protección contra el vandalismo y la manipulación indebida, en cualquier soporte que se encuentren los documentos.
+Artículo 10.—Las diferentes unidades del Sistema Archivístico Institucional velarán por el cumplimiento de este reglamento, e informarán al Archivo Central cualquier anomalía que detecten.

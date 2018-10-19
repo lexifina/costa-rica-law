@@ -1,1 +1,3 @@
-Artículo 45.—El presente documento se actualizará conforme cambio o caduque alguna disposición aquí reglamentada. Dichos cambios serán propuestos por el encargado del Archivo Central y autorizados por la Jefatura Administrativa y la Dirección de OPES, para la respectiva aprobación por parte del Consejo Institucional.
+CAPÍTULO IX
+Documentos Digitales y Electrónicos
+Artículo 45.—La incursión de las Tecnologías de la Información y la Comunicación se debe dar en apego a los requerimientos institucionales establecidos por la Archivo Central, en conjunto con el Centro de Tecnologías de Información y Comunicación.

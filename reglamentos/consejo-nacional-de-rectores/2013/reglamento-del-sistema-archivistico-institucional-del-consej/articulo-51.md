@@ -1,0 +1,1 @@
+Artículo 51.—La migración de la información a nuevos soportes, debe estar a cargo de personal debidamente capacitado, con el fin de evitar la obsolescencia tecnológica. Obedecerá a un plan de migraciones elaborado por el Centro de Tecnologías de Información y Comunicación.

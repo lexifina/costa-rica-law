@@ -1,1 +1,3 @@
-Artículo 30.—El préstamo de documentos a los usuarios internos será únicamente para uso en las oficinas del CONARE y por un máximo de diez días hábiles. Pasado este período se debe presentar el documento de nuevo al archivo para su devolución o para renovar el préstamo. Cuando un usuario cambie de puesto o cese de sus funciones en el CONARE, debe devolver todos los documentos que tenga en calidad de préstamo a los diferentes archivos donde los solicitó ocho días antes de su movimiento.
+CAPÍTULO VI
+De las transferencias documentales
+Artículo 30.—La transferencia de documentos del archivo de gestión al Archivo Central se realizará de acuerdo con el tiempo establecido en la Tabla de Plazos de Conservación. En ausencia de dicha tabla los documentos serán enviados cuando hayan cumplido 3 años de producidos.

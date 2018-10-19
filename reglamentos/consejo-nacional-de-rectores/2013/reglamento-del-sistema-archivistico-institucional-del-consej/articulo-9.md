@@ -1,1 +1,1 @@
-Artículo 9º—Tanto el Archivo Central como los archivos de gestión contarán con los recursos materiales y la infraestructura adecuada para la conservación de los documentos.
+Artículo 9º—El encargado del Archivo Central analizará la normativa nacional en materia Archivística y definirá las mejores prácticas, desarrollando políticas, procedimientos, normas e instrucciones que mejor se adapten a las necesidades del CONARE.

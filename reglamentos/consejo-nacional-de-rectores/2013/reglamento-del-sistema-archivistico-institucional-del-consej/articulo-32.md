@@ -1,1 +1,1 @@
-Artículo 32.—Le corresponderá al Archivo Central tener actualizada la base de datos, que contendrá la información de todos los documentos que custodia a nivel de unidad documental.
+Artículo 32.—El encargado del archivo de gestión es el responsable de elaborar la lista de remisión para la transferencia de documentos, esta se enviará junto con los documentos. El recibido de los documentos será provisional, hasta tanto se coteje la lista contra los documentos en el proceso de descripción documental que realiza el Archivo Central.

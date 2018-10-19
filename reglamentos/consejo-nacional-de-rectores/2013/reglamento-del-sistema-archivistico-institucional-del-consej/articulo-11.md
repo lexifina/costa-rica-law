@@ -1,1 +1,1 @@
-Artículo 11.—El encargado del Archivo Central debe participar en seminarios, jornadas y congresos archivísticos o cualquier otro tipo de capacitación, con el fin de estar actualizado con las nuevas técnicas de Archivo.
+Artículo 11.—Todos los jerarcas, jefaturas y demás personal que labore para el CONARE, son responsables de la adecuada manipulación y cuido de los documentos generados y custodiados en sus dependencias.

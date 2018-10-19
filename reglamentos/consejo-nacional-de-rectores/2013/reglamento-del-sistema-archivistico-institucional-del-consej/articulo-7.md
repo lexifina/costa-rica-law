@@ -1,3 +1,1 @@
-CAPÍTULO II
-De la administración de los archivos
-Artículo 7º—Todos los jerarcas, jefaturas y demás personal que labore para el Consejo Nacional de Rectores, son responsables de la adecuada manipulación y cuido de los documentos a su cargo.
+Artículo 7º—El Archivo Central tendrá un encargado que será un profesional licenciado en Archivística o Administración de Empresas con énfasis en Gestión y Servicios de Información, como grado mínimo. Además, contará con personal técnico-profesional en el campo de la Archivística para el desarrollo de proyectos y de las funciones descritas en este reglamento.
