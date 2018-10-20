@@ -1,0 +1,1 @@
+Artículo 2º—Dichos nombramientos se realizarán siempre y cuando estos servidores y servidoras demuestren su idoneidad, mediante la evaluación de atestados; además, estos servidores y servidoras deberán cumplir con los requisitos establecidos en los manuales descriptivos de puestos.
