@@ -1,0 +1,1 @@
+Artículo XIV.—El monto de la Tarifa de la Limpieza de Parques y Zonas Verdes Públicas se actualizará cada año y será publicado en el Diario Ofcial La Gaceta conforme lo establecido en el art. 74 del Código Municipal.
