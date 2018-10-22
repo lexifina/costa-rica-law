@@ -1,2 +1,0 @@
-Artículo 26.—Las tarifas propuestas por la Municipalidad, deberán ser aprobadas por la Autoridad Reguladora de los Servicios Públicos, de conformidad con el artículo quinto, inciso c) de la Ley 7593 del 9 de agosto de 1996 (Ley de la Autoridad Reguladora de los Servicios Públicos).
-Las tarifas aprobadas por la Autoridad de los Servicios Públicos se pondrán al cobro, a los usuarios el primero del mes siguiente a la aprobación.

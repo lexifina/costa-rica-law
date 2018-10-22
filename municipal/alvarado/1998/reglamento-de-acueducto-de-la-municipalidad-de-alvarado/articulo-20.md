@@ -1,1 +1,0 @@
-Artículo 20.—Si el abonado considera que ya no es necesario el servicio de agua, deberá hacer la respectiva solicitud (desconexión del servicio) ante la Municipalidad, la que contará con el respectivo formulario, si la misma procede se ejecutará previo pago del costo por desconexión y cualquier saldo existente en la cuenta de la propiedad en mención.

@@ -1,1 +1,0 @@
-Artículo 30.—La Municipalidad podrá suspender el servicio, cuando el abonado no atendiera sus obligaciones de pago por el servicio prestado antes de la fecha de vencimiento, previa notificación escrita, procediendo de conformidad con lo establecido en él.

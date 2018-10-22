@@ -1,1 +1,0 @@
-Artículo 27.—El servicio que presta la Municipalidad a los abonados no pueden ser gratuitos, así se trate de cualquier entidad pública nacional.
