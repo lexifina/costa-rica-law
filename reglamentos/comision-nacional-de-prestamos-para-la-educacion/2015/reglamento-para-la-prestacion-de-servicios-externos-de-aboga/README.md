@@ -15,3 +15,4 @@ Reglamento para la prestación de servicios externos de abogacía para la tramit
 | --- | --- | --- |
 | 1 | 2015-05-06 | la propia norma |
 | 2 | 2015-08-31 | Reglamento 35 (2015-08-31) |
+| 3 | 2018-10-22 | Reglamento 37 (2018-10-22) |
