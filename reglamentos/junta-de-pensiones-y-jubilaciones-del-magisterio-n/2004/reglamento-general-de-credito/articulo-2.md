@@ -1,9 +1,11 @@
 ARTÍCULO 2. Líneas de crédito y destino de los recursos
 1. Línea de Gastos Personales: Dirigida a los pensionados (as) para que satisfagan requerimientos de índole personal.
-2. Línea Pago de Deuda al Fondo de Pensión. Dirigida a quienes tengan declarado en su favor, el beneficio ordinario o extraordinario, y que deban cancelar una deuda al Fondo de Pensiones, para acogerse al derecho, o bien, que generaran deuda al Fondo, producto de una revisión de pensión o jubilación.
+2. Línea Pago de Deuda al Fondo de Pensión. Dirigida a quienes tengan declarado en su favor, el beneficio de pensión ordinario o extraordinario, y que deban cancelar una deuda al Fondo de Pensiones, para acogerse al derecho, o bien, que generaran deuda al Fondo, producto de una revisión de pensión o jubilación.
+(Así reformado el párrafo anterior en sesión N° 0115 del 22 de octubre de 2018)
 3. Línea de Microempresa: Dirigida a aquellos afiliados al Régimen (trabajadores (as) en servicio, pensionados (as)) que buscan complementar o desarrollar proyectos productivos, mediante la figura de financiamiento económico. Los recursos pueden ser utilizados para la compra de equipo, maquinaria, materia prima y capital de trabajo,
 pudiéndose destinar hasta el 25% del monto solicitado, para la cancelación total o parcial de deudas, relacionadas exclusivamente con el giro de la microempresa.
-En los casos que corresponda, los avalúos de las propiedades y los estudios de factibilidad económica, son realizados por profesionales calificados, los cuales son seleccionados por JUPEMA. En caso que así proceda, el interesado deposita en JUPEMA, de previo, el costo de tales estudios.
+En los casos que corresponda, los avalúos de las propiedades y los estudios de factibilidad económica, son realizados por profesionales calificados, los cuales son asignados por JUPEMA. En caso que así proceda, el interesado deposita en JUPEMA, de previo, el costo de tales estudios.
+(Así reformado el párrafo anterior en sesión N° 0115 del 22 de octubre de 2018)
 4.Línea para entidades sociales y financieras del Magisterio Nacional
 Su finalidad es dotar de recursos a las entidades sociales y financieras del Magisterio Nacional, de acuerdo con los convenios que se establezcan entre JUPEMA y dichas entidades, siempre y cuando el beneficiario final del plan de inversión sea la membresía.
 5. Línea de Salud

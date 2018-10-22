@@ -2,6 +2,10 @@ CAPÍTULO V
 DISPOSICIONES FINALES
 ARTÍCULO 27. Limitaciones de alcance general
 a) No se permiten renovaciones en la línea de crédito de Microempresa.
-b) Todo aquel pensionado o jubilado que requiera acceder a un nuevo crédito y que haya tenido problemas de morosidad de dos cuotas sin justificación, en los últimos 48 meses, debe presentar uno o más fiadores solidarios con capacidad de pago que respalden el monto solicitado, para optar por un nuevo crédito o renovación del mismo.
+b) Todo aquel pensionado o jubilado que requiera acceder a un nuevo crédito y que haya tenido problemas de morosidad de manera que haya atrasado su pago en dos ocasiones, correspondiente a dos cuotas de atraso sin justificación, en los últimos 24 meses, debe presentar uno o más fiadores solidarios con capacidad de pago que respalden el monto solicitado, para optar por un nuevo crédito o renovación del mismo.
+(Así reformado el inciso anterior en sesión N° 0115 del 22 de octubre de 2018)
 c) La determinación del número de créditos a otorgar a una entidad social o financiera del Magisterio Nacional, es potestad exclusiva de la Junta Directiva de JUPEMA.
-d) No se aceptan como garantías hipotecarias, terrenos que se encuentren en periodo de convalidación o que estén ubicados en zonas de alto riesgo. JUPEMA se reserva el derecho de rechazar cualquier garantía propuesta por el solicitante, en procura de salvaguardar los intereses de la Institución.
+d) No se aceptan como garantías hipotecarias, terrenos que se encuentren en periodo de convalidación, que estén ubicados en zonas de alto riesgo, los nichos en cementerios, así como bienes ubicados en barrios conflictivos o con deseabilidad media baja o baja, según el criterio del perito que realice el estudio de valoración de la propiedad. JUPEMA se reserva el derecho de rechazar cualquier garantía propuesta por el solicitante, en procura de salvaguardar los intereses de la Institución.
+(Así reformado el inciso anterior en sesión N° 0115 del 22 de octubre de 2018)
+e) No se aceptan como deudores o fiadores, aquellos que tengan operaciones declaradas incobrables, ya sea en JUPEMA o cualquier otra institución, ni aquellos quienes hayan cancelado deudas del programa de crédito del RCC por medio del uso del Seguro de Caución.
+(Así adicionado el inciso anterior en sesión N° 0115 del 22 de octubre de 2018)
