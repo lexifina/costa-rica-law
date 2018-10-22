@@ -2,7 +2,8 @@ Artículo 11 Línea de Refundición de Deudas y Arreglos de Pago
 Pueden acceder a esta línea, los trabajadores en servicio y pensionados, para la cancelación de operaciones de crédito adquiridas en esta o en otras instituciones, con el propósito de mejorar las condiciones de financiamiento de las mismas, de manera que la totalidad del crédito que se otorgue debe ser utilizado para la cancelación de deudas.
 Para ello, deben cumplir con lo dispuesto en el Artículo 5 de este Reglamento, para determinar la capacidad de pago y la garantía.
 Además, deben presentar los documentos requeridos para determinar el monto actualizado de las deudas que se cancelan con el nuevo crédito, o cualquier otro documento que se estime necesario para resolver.
-El solicitante debe estar al día en sus operaciones con esta u otras instituciones, sin embargo, se aceptan un máximo de 30 días naturales de atraso en las operaciones externas a cancelar. En el caso de pensionados del Régimen de Capitalización Colectiva, podrán tener una morosidad de hasta 90 días de atraso, en operaciones que se cancelen producto de la refundición. (De lo anterior, se exceptúan los arreglos de pago, que podrán tener atrasos superiores a los indicados).
+El solicitante debe estar al día en sus operaciones con esta u otras instituciones, sin embargo, se aceptan un máximo de 30 días naturales de atraso en las operaciones externas. En el caso de pensionados del Régimen de Capitalización Colectiva, podrán tener una morosidad de hasta 90 días de atraso (De lo anterior, se exceptúan los arreglos de pago, que podrán tener atrasos superiores a los indicados).
+(Así reformado el párrafo anterior en sesión N° 0115 del 22 de octubre de 2018)
 Las siguientes son las condiciones de financiamiento para esta línea:
 Montos Máximos:
 a) ¢15.000.000,00 con garantía fiduciaria, hipotecaria o seguro de caución.

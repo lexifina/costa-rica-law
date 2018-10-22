@@ -1,5 +1,5 @@
-Artículo 6: Línea de crédito personal para Gastos Personales
-Pueden acceder a esta línea, los trabajadores en servicio, jubilados (as) y pensionados (as) por derecho propio o por sucesión vitalicia, para atender toda clase de requerimientos personales.
+Artículo 6: Línea de crédito personal para Gastos Personales. Pueden acceder a esta línea, los trabajadores en servicio, jubilados (as) y pensionados (as) por derecho propio y los sucesores, para atender toda clase de requerimientos personales.
+(Así reformado el párrafo anterior en sesión N° 0115 del 22 de octubre de 2018)
 Para ello, deben cumplir con lo dispuesto en el Artículo 5 del Reglamento de Crédito para determinar la capacidad de pago.
 Las siguientes son las condiciones de financiamiento para esta línea:
 Montos Máximos:
@@ -27,3 +27,5 @@ Trabajadores en servicio: Centros Educativos Privados (CEP en Propiedad e Interi
 Hasta | ¢7.500.000.00 | 1 fiador o hipoteca
 ¢7.500.001.00 | ¢15.000.000.00 | 2 fiadores o hipoteca
 ¢15.000.001.00 | ¢20.000.000.00 | 3 fiadores o hipoteca
+Sucesores: trabajadores en servicio de Centros Educativos Privados (CEP en Propiedad e Interinos). Además, los trabajadores en servicio del MEP, INA, CUC, CUNLIMON y Universidades Estatales con nombramiento Interino con menos de 48 cotizaciones, en los últimos 5 años.
+(Así adicionado el párrafo anterior en sesión N° 0115 del 22 de octubre de 2018)
