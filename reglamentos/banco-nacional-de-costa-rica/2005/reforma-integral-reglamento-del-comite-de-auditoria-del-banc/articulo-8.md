@@ -1,1 +1,0 @@
-Artículo 8º—Además de los informes particulares que se requieran para dar cumplimiento a las funciones aquí señaladas, el Comité de Auditoría deberá rendir un reporte semestral sobre sus actividades a la Junta Directiva u órgano equivalente.
