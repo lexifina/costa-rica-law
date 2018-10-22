@@ -1,0 +1,2 @@
+ARTÍCULO 6- Procedimientos excluidos del marco de calificación del registrador
+Los procedimientos para la declaratoria de cancelación de asientos por matricidad inexistente o por alguna otra nulidad documental de carácter objetivo, para su valoración en sede registral, serán de exclusiva competencia de la Dirección o la Subdirección Registral y, por lo tanto, quedan excluidos del marco de calificación registral.

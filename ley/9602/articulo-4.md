@@ -1,0 +1,3 @@
+ARTÍCULO 4- Aspectos generales del principio de rogación
+El principio de rogación consiste en la solicitud o petición expresa de parte interesada al Registro Inmobiliario, para la inscripción o cancelación y publicidad de documentos, derechos reales y personales sobre inmuebles. El Registro en ningún caso actuará de oficio, salvo las excepciones que por esta misma ley se dispongan o a requerimiento de una autoridad judicial o administrativa.
+Los documentos presentados al Registro Inmobiliario – incluidos los electrónicos- deben gozar de autenticidad; dicha condición se da cuando el documento o acto cumple con las formalidades y solemnidades establecidas por el ordenamiento jurídico para su registración, incluida su matricidad.
