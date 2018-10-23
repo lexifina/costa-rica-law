@@ -1,0 +1,1 @@
+Artículo 6º—Coordinación. La coordinación de la Comisión le corresponderá al máximo Jerarca del Ministerio de Ciencia, Tecnología y Telecomunicaciones, quien designará a la unidad responsable de la ejecución y seguimiento de los acuerdos de la Comisión.

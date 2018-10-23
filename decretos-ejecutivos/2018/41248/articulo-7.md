@@ -1,0 +1,1 @@
+Artículo 7º—Sesiones. La Comisión sesionará ordinariamente de manera trimestral, y extraordinariamente cuando así sea convocado por el Coordinador de la Comisión. Lo relativo a la convocatoria, quórum, actas, acuerdos y votaciones, se regirá por lo dispuesto en los artículos 49 al 58 de la Ley General de la Administración Pública.

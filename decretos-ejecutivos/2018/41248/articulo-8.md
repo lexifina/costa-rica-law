@@ -1,0 +1,2 @@
+Artículo 8º—Declaratoria de Interés Público. Para asegurar el efectivo cumplimiento de sus objetivos, se declaran de interés público las actividades tendientes al desarrollo del Gobierno Digital del Bicentenario.
+Las dependencias del Sector Público y del Sector Privado dentro del marco legal respectivo, podrán contribuir con recursos económicos, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, para la exitosa realización de las actividades indicadas.
