@@ -6,6 +6,8 @@ a.1) Alivio del dolor general:
 a.1.1) Acetaminofén, hasta 750 mg por tableta o cápsula, solo o combinado con cafeína, y o con antiácidos en concentraciones reguladas en el apartado correspondiente.
 a.1.2) Ácido acetilsalicílico, hasta 500 mg por tableta o cápsula, solo o combinado con cafeína, y o antiácidos en las concentraciones reguladas en el apartado correspondiente.
 a.1.3) Ibuprofeno 200 mg en tabletas y cápsulas orales, analgésico antiinflamatorio. En el etiquetado de este medicamentos deben incluir en advertencias: "No utilizar en niños menores de 12 años, ni en mujeres embarazadas" y "No debe ingerirse por más de 3 días".
+a.1.4) que indique: "Naproxeno sódico 220 mg por tableta o cápsula oral. En el etiquetado de este medicamento deben incluir en advertencias: "No utilizar en niños menores de 12 años ni en mujeres embarazadas".
+(Así adicionado el punto a.1.4) anterior por el artículo 1° del decreto ejecutivo N° 41462 del 23 de octubre de 2018)
 a.2) Alivio de dismenorrea.
 a.2.1) Ibuprofeno 200 mg por tableta o cápsula.
 a.2.2) Naproxeno 220 mg por tableta o cápsulas orales. En el etiquetado de este medicamento deben incluir en advertencias: "No utilizar en niños menores de 12 años ni en mujeres embarazadas".
@@ -53,7 +55,8 @@ b.3 .1) Lactobacilos.
 b.3 .2) Sales de rehidratación oral según fórmula de la OMS o con menor contenido de sodio.
 Sólo para uso en adultos:
 b.3.3) Caolín + pectina.
-b.3.4) Loperamida 2 mg en cápsulas, tabletas o grageas.
+b.3.4) Loperamida 2 mg en cápsulas, tabletas o grageas, siempre y cuando el empaque del producto no contenga más de 8 dosis, la única indicación del producto incluida en el etiquetado del producto de venta libre sea "diarrea aguda" y la dosis máxima recomendada en dicho etiquetado sea 8 mg por día.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 41462 del 23 de octubre de 2018)
 b.3.5) Subsalicilato de bismuto.
 b.4) Hipocolesterolémicos:
 b.4.1) Cáscara de ispaghula.

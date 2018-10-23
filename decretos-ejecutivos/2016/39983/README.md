@@ -14,3 +14,4 @@ Declara Medicamentos de Venta Libre al Consumidor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-11-09 | la propia norma |
+| 2 | 2018-10-23 | Decreto Ejecutivo 41462 (2018-10-23) |
