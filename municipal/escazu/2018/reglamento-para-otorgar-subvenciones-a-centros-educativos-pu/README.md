@@ -14,3 +14,4 @@ Reglamento para otorgar subvenciones a Centros Educativos Públicos, de Benefice
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-08-08 | la propia norma |
+| 2 | 2018-10-23 | Reglamento municipal 130 (2018-10-23) |
