@@ -14,3 +14,4 @@ Reglamento para la Utilización de Vehículos Municipales de la Municipalidad de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-05-07 | la propia norma |
+| 2 | 2018-10-23 | Reglamento municipal 130 (2018-10-23) |
