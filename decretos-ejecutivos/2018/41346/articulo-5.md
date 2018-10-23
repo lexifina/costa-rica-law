@@ -1,0 +1,5 @@
+Artículo 5º—Adiciónese una nueva obligación a las empresas beneficiarias del Régimen de Zonas Francas, como nuevo inciso p) del artículo 62 del Reglamento a la Ley de Régimen de Zonas Francas, Decreto Ejecutivo N° 34739-COMEX-H del 29 de agosto del 2008, de manera que el anterior inciso p) pase a ser el inciso q), según se detalla a continuación:
+“Artículo 62.- Obligaciones de los beneficiarios del Régimen. Son obligaciones de los beneficiarios del Régimen las siguientes:
+(…)
+p) Facilitar a los funcionarios de PROCOMER encargados de realizar las labores de control y seguimiento, el acceso a sus instalaciones, así corno la documentación e informa de respaldo que permitan comprobar el cumplimiento de las diversas obligaciones a cargo de la empresa, en particular, pero no limitado a ello, lo relativo a la Actividad Autorizada, Empleados Calificados, gastos operativos e inversión, a l amparo del Régimen de Zonas Francas
+q) Las demás que se establezcan en la Ley N° 7210 y sus reformas, este Reglamento y las demás leyes y reglamentos aplicables, así como en el acuerdo de otorgamiento del Régimen y en el contrato de operaciones.”

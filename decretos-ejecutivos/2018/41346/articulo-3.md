@@ -1,0 +1,3 @@
+Artículo 3º—Modifíquese la obligación establecida en el inciso o) del artículo 62 del Reglamento a la Ley de Régimen de Zonas Francas, Decreto Ejecutivo N° 34739-COMEX-H del 29 de agosto del 2008, a fin de que se lea de la siguiente forma:
+“Artículo 62.—Obligaciones de los beneficiarios del Régimen. Son obligaciones de los beneficiarios del Régimen las siguientes:
+o) Cumplir y mantenerse al día con las obligaciones obrero patronales de la Caja Costarricense del Seguro Social y las obligaciones tributarias de conformidad con lo dispuesto en los artículos 18 bis, 62, 64 y 99 del Código de Normas y Procedimientos Tributarios, Ley 4755 del 3 de mayo de 1971, y sus reformas.
