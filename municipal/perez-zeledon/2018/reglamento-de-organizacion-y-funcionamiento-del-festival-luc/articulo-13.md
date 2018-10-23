@@ -1,0 +1,3 @@
+Artículo 13. —: Aportes en especie. Para las contribuciones en especie, la Municipalidad de Pérez Zeledón establecerá controles que permitan documentar suficientemente el compromiso adquirido por el colaborador y las condiciones mínimas que la institución espera del aporte que le es ofrecido, lo anterior, mediante el uso de formulario o boleta diseñado para el efecto.
+Las contribuciones que se reciban serán destinadas por el Equipo en coordinación con la Administración, para promover las diferentes actividades del evento Festival Luces del Valle.
+En cada caso en particular deberán tomarse en consideración las regulaciones establecidas por el Código Municipal y cualquier otra normativa relativa al tema.

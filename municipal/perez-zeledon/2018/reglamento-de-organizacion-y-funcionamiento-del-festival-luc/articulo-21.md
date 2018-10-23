@@ -1,0 +1,1 @@
+Artículo 21. — Iluminación del Árbol e Inauguración. El Equipo Organizador diseñara una actividad que se relacione con el inicio de la temporada navideña en el cantón, la cual, podrá ser desarrollada en asocio con algún patrocinador que así lo manifieste y sea aprobada por el Equipo.

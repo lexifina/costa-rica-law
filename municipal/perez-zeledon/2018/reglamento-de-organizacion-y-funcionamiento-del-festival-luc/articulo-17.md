@@ -1,0 +1,2 @@
+Artículo 17. —: De la inscripción de los participantes en el Desfile Nocturno. La inscripción para los interesados en participar en el Desfile Nocturno, se realizará por los mecanismos que al efecto deberá implementar el Equipo Organizador.
+La documentación respectiva expondrá que cada participante en el Festival lo hace bajo su propia cuenta y riesgo y que la Municipalidad no responderá por ningún daño, perjuicio o accidente que los participantes o sus vehículos o equipos pudieren sufrir o por aquellos que los participantes ocasionen a terceros dentro del desfile.

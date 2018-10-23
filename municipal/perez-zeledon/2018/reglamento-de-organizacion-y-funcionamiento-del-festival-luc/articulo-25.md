@@ -1,0 +1,1 @@
+Artículo 25. — De los recorridos del Festival. Los recorridos por las vías cantonales que deben realizar los participantes de las actividades del Festival, serán definidos anualmente por el Equipo, siguiendo parámetros de seguridad ciudadana para el resguardo y comodidad del público y orden en el desarrollo del espectáculo.

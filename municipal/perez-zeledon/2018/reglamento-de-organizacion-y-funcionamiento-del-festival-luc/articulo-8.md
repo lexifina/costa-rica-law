@@ -1,0 +1,1 @@
+Artículo 8º: -De las instalaciones y personal administrativo: La Alcaldía Municipal deberá proveer de una oficina permanente, debidamente equipada y acondicionada, para la realización de las labores propias del Equipo Organizador, así como para la atención de las gestiones relacionadas con el Festival.

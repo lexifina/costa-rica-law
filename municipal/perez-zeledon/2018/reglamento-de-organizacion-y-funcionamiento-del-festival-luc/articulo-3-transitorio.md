@@ -1,0 +1,1 @@
+Transitorio III- El presente Reglamento deroga el anterior Reglamento de Festival Luces del Valle, habiéndose cumplido con la primera publicación, conforme a la normativa vigente, la presente reforma entrará a regir una vez publicada en el Diario Oficial La Gaceta, de conformidad con lo establecido en el artículo 43 del Código Municipal vigente aprobado”.
