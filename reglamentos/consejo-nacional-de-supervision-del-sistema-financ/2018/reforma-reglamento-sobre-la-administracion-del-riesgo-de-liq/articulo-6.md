@@ -1,0 +1,8 @@
+6) Modificar el Artículo 19, Envío de la información a la SUGEF, de conformidad con el siguiente texto:
+“Artículo 19, Envío de la información a la SUGEF
+La entidad debe suministrar a la SUGEF en el plazo, por los medios y forma que esta determine, los resultados del Indicador de Cobertura de Liquidez y otra información que la Superintendencia estime necesaria para fines de seguimiento.
+Tratándose de situaciones de tensión, la SUGEF solicitará a la entidad suministrar esta información con periodicidad diaria o semanal, según sea la situación, y la entidad debe estar en la capacidad operativa suficiente para reportar esta información con esa periodicidad.
+El cumplimiento de las disposiciones establecidas en el presente Capítulo no exime a las entidades financieras de identificar, medir, evaluar, dar seguimiento, controlar y mitigar sus propios indicadores y análisis de tensión e incorporar los resultados en la administración del riesgo de liquidez, así como de presentar a la SUGEF los resultados de sus propios análisis de estrés, cuando les sean requeridos.”
+“Disposiciones finales:
+I. Entrada en vigor: La presente modificación al Acuerdo SUGEF 17-13, Reglamento sobre la Administración del Riesgo de Liquidez, rige a los dos meses posteriores a su publicación en el diario oficial La Gaceta.
+II. La inclusión en el cálculo del Índice de Cobertura Liquidez (ICL) de las “[…] cuentas por pagar por servicios bursátiles […]” a que hace referencia el inciso iv, del acápite B), Pasivos mayoristas, del Artículo 17 de este Reglamento, rige a partir de la entrada en vigencia de las “Cuentas de Custodia” del Anexo 1 del Reglamento de Información Financiera.”
