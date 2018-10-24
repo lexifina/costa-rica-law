@@ -1,0 +1,2 @@
+Artículo 29.—Los miembros que ejecuten la participación virtual; devengarán dietas siempre y cuando participen en toda la sesión y cumplan con todas las consideraciones de control interno que garanticen la confiabilidad, simultaneidad, deliberación y el Principio de Colegialidad, así como todos los aspectos contenidos en el artículo 27 del presente reglamento.
+(Así adicionado en sesión N° 61 del 24 de octubre de 2018)

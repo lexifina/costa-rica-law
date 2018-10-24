@@ -1,0 +1,3 @@
+Artículo 37.—De la Consulta Formal. A partir de la fecha y hora convenida y definida en la convocatoria realizada y por un período de las doce horas siguientes, los miembros de Junta se conectarán, realizarán la consulta y procederán con la votación electrónica.
+Para facilitar la Consulta Formal se podrá hacer uso de alguna herramienta para reuniones virtuales preferiblemente definidas por el Departamento de Tecnologías de Información con lo cual las personas miembros de la Junta podrán conectarse mediante el uso de sus teléfonos móviles inteligentes, una tableta o una computadora.
+(Así adicionado en sesión N° 61 del 24 de octubre de 2018)
