@@ -24,3 +24,4 @@ Definición de los Mercados Relevantes y de los Operadores y/o Proveedores Impor
 | 9 | 2017-07-07 | Resolución 191 (2017-07-07) |
 | 10 | 2017-09-18 | Resolución 248 (2017-09-18) |
 | 11 | 2018-09-06 | Resolución 297 (2018-09-06) |
+| 12 | 2018-10-24 | Resolución 339 (2018-10-24) |
