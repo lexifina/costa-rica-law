@@ -14,3 +14,4 @@ Reglamento para la prestación de los servicios de AyA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-10-05 | la propia norma |
+| 2 | 2018-10-24 | Reglamento 60 (2018-10-24) |
