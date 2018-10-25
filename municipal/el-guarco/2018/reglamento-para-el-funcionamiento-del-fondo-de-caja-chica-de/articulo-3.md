@@ -1,0 +1,1 @@
+Artículo 3º—Fondo de caja chica. Se establece el fondo de caja chica cuyo monto máximo será de un salario mínimo base de un trabajador especializado genérico decretado por el Ministerio de Trabajo y Seguridad Social.

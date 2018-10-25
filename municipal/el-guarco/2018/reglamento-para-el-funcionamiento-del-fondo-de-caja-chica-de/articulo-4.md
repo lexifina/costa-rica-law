@@ -1,0 +1,1 @@
+Artículo 4º—Vale de caja chica. Los vales de caja chica podrán librarse hasta por la suma equivalente a medio salario mínimo base de un trabajador especializado genérico decretado por el Ministerio de Trabajo y Seguridad Social.
