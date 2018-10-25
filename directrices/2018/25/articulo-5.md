@@ -1,0 +1,1 @@
+Artículo 5º—Los procedimientos de contratación administrativa que a la fecha de publicación de la presente Directriz se hubieren celebrado fuera del SICOP y estén en fase de ejecución; deberán finalizar la misma en los términos y condiciones pactadas contractualmente.
