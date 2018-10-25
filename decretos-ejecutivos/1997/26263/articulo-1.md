@@ -138,6 +138,7 @@ Pigmentos | Materias colorantes utilizadas en la pigmentación de productos agr�
 INSUMOS PARA LA PESCA MARINA |
 Bombas de achique plásticas para uso agropecuario, de 12, 24 y 32 voltios | Bombas de achique plásticas de 12, 24 y 32 voltios
 Bombas máquinas de bronce de uso marino para achique | Bombas mecánicas de bronce de uso marino para achique
+(Nota de Sinalevi: Mediante resolución RES-DGA-DGT-035-2018 del 25 de octubre de 2018, se acordó asignar al inciso arancelario nacional 8467.22.00.00.10, que comprende herramientas manuales con motor eléctrico del tipo motosierras para uso agropecuario, el Impuesto General sobre las Ventas de un 13%.)
 3°-Inclúyase y exclúyase los siguientes rubros de la lista de mercancías exentas, de la siguiente manera:
 En “Canasta Básica Tributaria”:
 Incluir:

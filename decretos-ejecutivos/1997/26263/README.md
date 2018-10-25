@@ -14,3 +14,4 @@ Reforma Reglamento de la Ley de Impuesto General sobre las Ventas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-08-28 | la propia norma |
+| 2 | 2018-10-25 | Resolución 35 (2018-10-25) |
