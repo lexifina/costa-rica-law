@@ -509,6 +509,7 @@ Microchips y lector de microchips para la identificación electrónica de animal
 Motoazadas
 Motosierras del inciso arancelario 84678100
 (Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
+(Nota de Sinalevi: Mediante resolución RES-DGA-DGT-035-2018 del 25 de octubre de 2018, se acordó asignar al inciso arancelario nacional 8467.22.00.00.10, que comprende herramientas manuales con motor eléctrico del tipo motosierras para uso agropecuario, el Impuesto General sobre las Ventas de un 13%.)
 Niveladoras de arrastre para acoplar al sistema de 3 puntos de los tractores agrícolas
 Nidos para aves
 (Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
