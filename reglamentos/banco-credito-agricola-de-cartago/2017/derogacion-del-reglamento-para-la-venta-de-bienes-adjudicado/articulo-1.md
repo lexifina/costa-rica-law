@@ -1,0 +1,6 @@
+BANCO CRÉDITO AGRÍCOLA DE CARTAGO
+INTERVENTORÍA
+PROVEEDURÍA INSTITUCIONAL
+AVISO
+El Consejo Nacional de Supervisión del Sistema Financiero (Conassif), mediante el artículo 4 de su sesión 1385-2017 del 22 de diciembre del 2017, acordó intervenir al Banco Crédito Agrícola de Cartago, hasta por un plazo de seis meses. Asimismo, este Órgano Director conforme artículo 5 de la sesión 1417-2018, del 22 de mayo de 2018 y artículo 6 de la sesión 1439-2018 del 21 de agosto del 2018, resolvió ampliar en total por seis meses adicionales el plazo de intervención del Banco, esto es al 22 de diciembre del 2018.
+En línea con lo expuesto, esta Interventoría comunica la derogación del “Reglamento para la venta de bienes adjudicados del Banco Crédito Agrícola de Cartago, por parte de terceros”, publicado en el Diario Oficial La Gaceta, N° 137, Alcance N° 176, con fecha 19 de julio del 2017.
