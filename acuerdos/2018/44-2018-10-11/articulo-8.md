@@ -1,0 +1,1 @@
+Artículo 8º—Se faculta al Instituto Geográfico Nacional para que interprete los límites señalados en los artículos 2°, 4° y 6° y los adecúe en caso de que ofrezcan duda. Se declara oficial el mapa de este distrito que el mismo prepare.
