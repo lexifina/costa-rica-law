@@ -1,1 +1,0 @@
-Artículo 3º—La Oficina de Programas Sociales del Despacho de la Primera Dama de la República, tendrá carácter de órgano recomendador, para los efectos del artículo 42 de la Ley N° 7293 de 31 de marzo de 1992.

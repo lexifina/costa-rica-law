@@ -1,1 +1,0 @@
-Artículo 2º—Para garantizar el fin público que se refiere el artículo anterior, estas donaciones se otorgarán a las comunidades y personas que por su condición socioeconómica así lo requieran, de acuerdo con el Plan de Trabajo del Despacho de la Primera Dama de la República.
