@@ -1,0 +1,2 @@
+SECCIÓN V. NOMBRAMIENTOS DE PERSONAL INTERINO.
+Artículo 26. De los nombramientos interinos. Los nombramientos de personal interino para plazas vacantes, tanto temporales como permanentes, se realizarán utilizando el registro de oferentes con candidatos que reúnan los requisitos para el puesto según el Manual de clases y cargos. Dichos nombramientos se harán constar mediante oficio que se enviará al Departamento de Recursos Humanos con el fin de que éste proceda a comunicarlo y a elaborar la acción de personal correspondiente.
