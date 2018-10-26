@@ -1,0 +1,2 @@
+Artículo 39. Cierre de sesión
+Cuando por alguna razón la persona usuaria interrumpa el uso del equipo de cómputo, deberá cerrar o suspender las sesiones de trabajo, de manera que ninguna otra persona pueda hacer uso de los privilegios asignados para el acceso a los servicios de la red. También, es necesario apagar los equipos de cómputo al finalizar la jornada laboral, excepto en tareas extraordinarias que requieran lo contrario.

@@ -1,0 +1,2 @@
+Artículo 11. Acceso a los servicios de TI
+Será responsabilidad del Departamento de Informática permitir o denegar el acceso a los servicios de TI, de acuerdo con la autorización y el procedimiento establecido.
