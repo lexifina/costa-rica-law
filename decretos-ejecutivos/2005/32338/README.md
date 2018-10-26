@@ -14,3 +14,4 @@ Crea Comisión Nacional de Estudios Afrocostarricenses
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-05-10 | la propia norma |
+| 2 | 2018-10-26 | Decreto Ejecutivo 41460 (2018-10-26) |

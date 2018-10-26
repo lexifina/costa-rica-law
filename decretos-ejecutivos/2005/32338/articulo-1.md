@@ -10,9 +10,9 @@ Considerando:
 DECRETAN:
 Creación de la Comisión Nacional de Estudios Afrocostarricenses
 Artículo 1º—Créase la Comisión Nacional de Estudios Afrocostarricenses, la cual tendrá las siguientes funciones:
-a) Dar a conocer los aportes culturales, artísticos y educativos que ha brindado la población afrocostarricense.
-b) Promover, mediante la implementación curricular, los valores interculturales y multiétnicos de la sociedad costarricense.
-c) Proponer estrategias y alternativas educativas que permitan implementar acciones dirigidas al conocimiento y divulgación de la cultura afrocostarricense.
-d) Desarrollar material de apoyo didáctico respecto a identidad, autoconcepto, autoestima individual, tendientes a sensibilizar y fortalecer la conducta y actitudes de los estudiantes hacia la tolerancia y aceptación de las diferencias individuales.
-e) Integrar en el proceso educativo nacional, la cosmovisión, filosofía, pensamientos y relaciones que establecen con sus ambientes naturales, el grupo cultural afrocostarricense.
-f) Destacar los orígenes, raíces, valores y perfil de diversos personajes de la cultura afrocostarricense que han dado su aporte al enriquecimiento de la cultura nacional en las diversas disciplinas, artes y ciencias.
+a) Dar a conocer la historia, aportes culturales, artísticos, educativos y económicos que han brindado las poblaciones Afrocostarricenses.
+b) Cuando el Ministerio de Educación Pública lo requiera, apoyar en la elaboración y revisión de propuestas educativas que promuevan, fomenten los valores interculturales y multiétnicos de la sociedad costarricense, así como la cosmovisión, filosofía, pensamientos y relaciones que establecen con sus ambientes naturales los grupos culturales Afrocostarricenses.
+c) Proponer Estrategias Educativas que permitan implementar acciones dirigidas al conocimiento y divulgación de la Cultura Afrocostarricense, tendientes a sensibilizar, fortalecer la conducta y actitudes de los estudiantes, hacia el respeto, aprecio y comprensión de las diferencias.
+d) Contribuir a la promoción de espacios de participación ciudadana (en contextos educativos y comunales) tendiente al fortalecimiento de los conocimientos de los niños, niñas y adolescentes Afrocostarricenses sobre su propia historia, idioma, valores, cultura, derechos económicos, sociales y culturales.
+e) Dar asesoría técnica sobre la temática afrodescendiente a solicitud de las y los jerarcas de las instancias representadas en esta Comisión, en caso de que lo soliciten.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41460 del 26 de octubre del 2018)
