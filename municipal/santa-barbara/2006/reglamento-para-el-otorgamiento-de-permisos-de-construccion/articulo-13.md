@@ -1,1 +1,0 @@
-Artículo 13.—Todo edificio que se construya o reconstruya en lo sucesivo frente a vía pública deberá ajustarse al alineamiento de la Municipalidad de Santa Bárbara, o del Ministerio de Obras Públicas y Transportes.
