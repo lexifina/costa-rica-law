@@ -1,3 +1,1 @@
-CAPÍTULO III
-Puestos y funciones teletrabajables
-Artículo 11.—La Dirección de Desarrollo Humano y Salud Organizacional conjuntamente con el área de Organización analizarán cuales son los puestos teletrabajables de acuerdo a los lineamientos establecidos y los propondrá a la Comisión de Institucional de Teletrabajo para su aprobación. Una vez autorizados deberán ser publicados en el sitio de intranet a través del cual se gestiona el teletrabajo.
+Artículo 11.—El teletrabajo se aplicará en aquellas funciones y actividades que se pueden desarrollar parcial o totalmente de modo no presencial, de acuerdo con una razonable relación tiempo/ resultado y sin afectar las necesidades de coordinación interna o de servicio a los clientes, y en aquellos puestos donde el Conglomerado Banco Nacional establezca un control particularizado de la gestión laboral de cada persona teletrabajadora.

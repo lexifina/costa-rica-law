@@ -1,3 +1,3 @@
-CAPÍTULO VI
-Equipamiento y pago de tarifas mínimas
-Artículo 26.—El Banco proveerá al personal teletrabajador el equipo de cómputo necesario para el desempeño de sus funciones, con excepción del servicio de comunicación por Internet fijo, el cual deberá ser provisionado por el(a) teletrabajador(a), y contar con la velocidad de conexión que indiqué la Dirección de Tecnología de Información.
+CAPÍTULO VII
+Responsabilidades del Área de Tecnología e Información
+Artículo 26.—Con el objetivo de que la modalidad de teletrabajo impacte en la productividad el Área de Tecnología es responsable de mantener actualizada la normativa relacionada con el uso de los servicios de VPN, Seguridad Informática y demás lineamientos relacionados con el teletrabajo. Asimismo, corresponde a esta área brindar soporte técnico al equipo, software y sistemas operativos necesarios para realizar el teletrabajo en el Conglomerado Banco Nacional, para lo cual la persona teletrabajadora deberá coordinar de acuerdo a los procedimientos establecidos con el técnico que corresponda para que dentro de las instalaciones del Conglomerado Banco Nacional se efectúe el soporte correspondiente.

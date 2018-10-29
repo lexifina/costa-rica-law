@@ -1,5 +1,8 @@
-Artículo 13.—Para determinar cuáles puestos son susceptibles de teletrabajo deberá analizarse al menos si el puesto:
-Tiene funciones y actividades constantes que pueden ejecutarse a distancia, desde su lugar de residencia o centro de trabajo que destine para tal fin, mediante el uso intensivo de las tecnologías de información y comunicación, sin afectar las necesidades de coordinación, de formación de grupos o de atención de clientes.
-Cuenta con una definición clara y concreta de indicadores de medición de la productividad así como metas específicas de resultados que permitan la planificación, el seguimiento y el control del desempeño, siendo responsabilidad de la jefatura el supervisar que la persona teletrabajadora cumpla con las tareas asignadas.
-Está constituido por tareas que se pueden ejecutar en forma aislada e individual.
-El teletrabajo no aplica para la ejecución de funciones o actividades; temporales, esporádicas o excepcionales que podría realizar el trabajador fuera de su recinto habitual de trabajo, como por ejemplo, la elaboración de; presentaciones, informes, reportes, reuniones, juntas u otros similares que no forman parte habitual del puesto y que podrían efectuarse en forma remota o bajo otra modalidad de trabajo a criterio de la jefatura en situaciones particulares. En este caso no debe suscribirse ningún addendum por teletrabajo y es potestad administrativa de la jefatura la autorización o no de la realización del trabajo fuera de la oficina.
+CAPÍTULO IV
+Aspectos administrativos
+Artículo 13.—Las personas que opten por la modalidad de teletrabajo dentro del Conglomerado Banco Nacional deben encontrarse desempeñando un puesto clasificado como teletrabajable, según lo indicado en el artículo 11 de este Reglamento y cumplir con los siguientes requisitos:
+- Aprobar los procesos de formación que le indique el Conglomerado relacionados con el ejercicio del teletrabajo.
+- Suscribir declaración jurada donde garantiza al Conglomerado Banco Nacional de Costa Rica, que cuenta con las condiciones de conexión y ergonómicas adecuadas para llevar a cabo sus tareas.
+- Suscribir declaración jurada donde acepta conocer y aplicar las medidas ergonómicas para el ejercicio del trabajo fuera de las instalaciones del Conglomerado.
+- Firmar el contrato o addendum al contrato de trabajo como teletrabajador (a).
+En caso de que se haya otorgado información no veraz sobre el cumplimiento de las condiciones indicadas en éste artículo, quedará sin efecto la opción de teletrabajo y se aplicarán las sanciones administrativas y disciplinarias correspondientes.

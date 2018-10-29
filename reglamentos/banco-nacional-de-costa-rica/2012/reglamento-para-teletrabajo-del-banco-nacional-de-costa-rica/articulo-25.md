@@ -1,1 +1,1 @@
-Artículo 25.—La Dirección de Operaciones será la responsable de administrar los telecentros y garantizar que cuentan con las condiciones necesarias para teletrabajar.
+Artículo 25°—El Banco no cancelará monto alguno por tarifas eléctricas, de telefonía fija o celular, de conexión a internet u otras.

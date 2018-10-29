@@ -1,1 +1,3 @@
-Artículo 7º—El teletrabajo modificará única y exclusivamente la organización y la forma en que se efectúa el trabajo, sin afectar las condiciones de la relación de servicio del colaborador, quien mantiene los mismos derechos, beneficios y obligaciones de aquellos servidores que desarrollen sus funciones en las instalaciones del Conglomerado Banco Nacional de Costa Rica.”
+CAPÍTULO II
+Comisión de Teletrabajo
+Artículo 7°—La Comisión Institucional de Teletrabajo es un equipo de trabajo designado por la Gerencia General al cual le corresponde la implementación del programa de teletrabajo en el Conglomerado y se constituye en el órgano interlocutor oficial con el Equipo de Coordinación Técnica designado por el Ministerio de Trabajo y Seguridad.

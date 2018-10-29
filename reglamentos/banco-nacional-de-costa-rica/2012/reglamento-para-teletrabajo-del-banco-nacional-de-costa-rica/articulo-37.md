@@ -1,1 +1,1 @@
-Artículo 37.—La persona teletrabajadora deberá realizar sus tareas en el lugar y horario predeterminado de acuerdo a lo indicado en la solicitud de teletrabajo aprobada por la jefatura.
+Artículo 37.—Todos los casos en que el personal que teletrabaja cambia a un puesto no categorizado como teletrabajable, de forma inmediata deja sin efecto el contrato o addendum de teletrabajo, y a partir de ese momento sus nuevas condiciones laborales serán las del nuevo puesto.

@@ -1,1 +1,1 @@
-Artículo 3º—El presente reglamento aplica a todo el personal que brinde servicios al Conglomerado Banco Nacional de Costa Rica, sea en el Banco o sus Subsidiarias, y que desempeña puestos que la Comisión Institucional de Teletrabajo ha definido como tele trabajables.
+Artículo 3°—El presente reglamento aplica a todo el personal que brinde servicios al Conglomerado Banco Nacional de Costa Rica, sea en el Banco o sus Subsidiarias, y que desempeña puestos que se han definido como teletrabajables.

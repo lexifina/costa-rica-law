@@ -1,1 +1,1 @@
-Artículo 32.—La persona teletrabajadora deberá conocer, cumplir y acatar en todos sus extremos las Leyes, Reglamentos, Manuales, Normativa, Procedimientos e Instructivos establecidos por el Conglomerado Banco Nacional para la realización de las funciones mediante el teletrabajo.
+Artículo 32.—El personal teletrabajador deberá aprobarla capacitación que el Conglomerado Banco Nacional le provea, para mantenerse actualizado en la utilización de las herramientas tecnológicas, de autogestión y otras, requeridas para la ejecución de sus funciones.

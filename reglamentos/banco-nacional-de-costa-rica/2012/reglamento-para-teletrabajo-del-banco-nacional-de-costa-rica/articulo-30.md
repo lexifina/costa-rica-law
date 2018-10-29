@@ -1,3 +1,1 @@
-CAPÍTULO IX
-Responsabilidades y derechos del personal teletrabajador
-Artículo 30.—El personal teletrabajador tiene derecho a todos los beneficios de seguridad social y de capacitación que la institución proporcione a sus funcionarios (as).
+Artículo 30.—La persona teletrabajadora deberá conocer, cumplir y acatar en todos sus extremos las Leyes, Reglamentos, Manuales, Normativa, Procedimientos e Instructivos establecidos por el Conglomerado Banco Nacional para la realización de las funciones mediante el teletrabajo.

@@ -1,3 +1,3 @@
-CAPÍTULO VII
-Responsabilidades del Área de Tecnología e Información
-Artículo 28.—Con el objetivo de que la modalidad de teletrabajo impacte en la productividad y el Área de Tecnología es responsable de mantener actualizada la normativa relacionada con el uso de los servicios de VPN, Seguridad Informática y demás lineamientos relacionados con el teletrabajo. Asimismo, corresponde a esta área brindar soporte técnico al equipo, software y sistemas operativos necesarios para realizar el teletrabajo en el Conglomerado Banco Nacional, para lo cual la persona teletrabajadora deberá coordinar de acuerdo a los procedimientos establecidos con el técnico que corresponda para que dentro de las instalaciones del Conglomerado Banco Nacional se efectúe el soporte correspondiente.
+CAPÍTULO IX
+Responsabilidades y derechos del personal teletrabajador
+Artículo 28.—El personal teletrabajador tiene derecho a todos los beneficios de seguridad social y de capacitación que la institución proporcione.

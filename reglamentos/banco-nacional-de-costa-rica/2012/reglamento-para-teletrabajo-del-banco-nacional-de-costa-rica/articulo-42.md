@@ -1,1 +1,3 @@
-Artículo 42.—El personal teletrabajador es responsable directo de la confidencialidad y seguridad de la información que utilice y pueda acceder, evitando por todos los medios razonables su uso inapropiado, debiendo asumir la responsabilidad que corresponda, de acuerdo con las normativas del Banco.
+CAPÍTULO X
+Responsabilidades de las jefaturas
+Artículo 42.—La jefatura deberá cumplir con el procedimiento que el Conglomerado Banco Nacional establezca para el otorgamiento del teletrabajo al personal a su cargo.

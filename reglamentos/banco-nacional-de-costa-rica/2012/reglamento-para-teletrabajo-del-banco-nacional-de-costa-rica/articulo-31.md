@@ -1,1 +1,1 @@
-Artículo 31.—El personal teletrabajador debe cumplir con el procedimiento establecido para solicitar el teletrabajo, así como firmar un addéndum al contrato de trabajo, donde se especifican las condiciones mínimas del teletrabajo y acatar las disposiciones establecidas en el presente Reglamento y en los procedimientos que se establezcan para laborar bajo la modalidad de teletrabajo.
+Artículo 31.—El personal teletrabajador debe brindar información verídica y oportuna en todos los procesos de validación, evaluación del desempeño y medición a los que deba someterse.

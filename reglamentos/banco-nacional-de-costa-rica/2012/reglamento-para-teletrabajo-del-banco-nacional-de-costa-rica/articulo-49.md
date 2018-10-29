@@ -1,1 +1,3 @@
-Artículo 49.—La jefatura podrá requerir al teletrabajador(a) la realización de actividades presenciales en las oficinas durante el plazo definido para teletrabajar, para lo cual debe acondicionar un espacio físico que disponga de conectividad y le permita al personal teletrabajador hacer sus funciones de forma transitoria.
+CAPÍTULO XI
+Disposiciones finales
+Artículo 49.—El personal teletrabajador, debe mantener las condiciones que justificaron su ingreso a esta modalidad, así como cumplir con todas las obligaciones y responsabilidades adquiridas. En caso de que surja alguna imposibilidad de mantener dichas condiciones, debe plantearlo oportunamente ante la jefatura inmediata.

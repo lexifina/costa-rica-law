@@ -1,3 +1,1 @@
-CAPÍTULO X
-Responsabilidades de las jefaturas
-Artículo 44.—La jefatura deberá cumplir con el procedimiento que el Conglomerado Banco Nacional establezca para el otorgamiento del teletrabajo al personal a su cargo.
+Artículo 44.—La jefatura debe clarificar la forma en que se llevará a cabo la aclaración de dudas y solución de conflictos o contratiempos que se puedan presentar en el desarrollo de las actividades bajo la modalidad de teletrabajo.
