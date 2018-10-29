@@ -12,4 +12,6 @@ Decretan:
 “RTCR 458:2011 Reglamento de Oficialización
 del Código Eléctrico de Costa Rica para la
 Seguridad de la Vida y de la Propiedad”
-Artículo 1°—Oficialícese como “Código Eléctrico de Costa Rica para la Seguridad de la Vida y de la Propiedad”, la norma NFPA-70, en su última versión en español denominada NEC 2008, con la excepción del artículo 90 y de aquellos artículos que se encuentran afectados en este Reglamento.
+Artículo 1°-.Oficialícese como "Código Eléctrico de Costa Rica para la Seguridad de la Vida y de la Propiedad", la norma NFP A-70, en su última versión actualizada en español emitida por la NFPA, con la excepción del artículo 90 y de aquellos artículos que se encuentran afectados en este Reglamento.
+Las versiones que a futuro emita la Asociación Nacional de Protección contra el Fuego de la norma NFPA-70 en su versión en español, entrarán en vigencia y surtirán efectos jurídicos en Costa Rica, en el momento que el Ministerio de Economía Industria y Comercio realice la comunicación oficial de la adopción de la nueva versión, a través del Diario Oficial La Gaceta, sin perjuicio de informarlo por otros medios electrónicos a las partes interesadas.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41505 del 29 de octubre del 2018)

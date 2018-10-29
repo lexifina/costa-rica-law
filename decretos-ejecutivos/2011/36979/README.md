@@ -15,3 +15,4 @@ Reglamento de Oficialización del Código Eléctrico de Costa Rica para la Segur
 | --- | --- | --- |
 | 1 | 2012-08-16 | la propia norma |
 | 2 | 2013-11-13 | Decreto Ejecutivo 38440 (2013-11-13) |
+| 3 | 2018-10-29 | Decreto Ejecutivo 41505 (2018-10-29) |
