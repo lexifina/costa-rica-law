@@ -14,3 +14,4 @@ Reforma integral Reglamento para Teletrabajo del Banco Nacional de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-01-06 | la propia norma |
+| 2 | 2018-10-29 | Reglamento 12301 (2018-10-29) |
