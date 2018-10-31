@@ -14,3 +14,4 @@ Reglamento para la Autorización y el Pago de Egresos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-18 | la propia norma |
+| 2 | 2018-10-31 | Reglamento municipal 50 (2018-10-31) |
