@@ -13,3 +13,4 @@ DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS EXTERNOS DEL GOBIERNO DE LA
 (Modificado por el artículo 1° del decreto ejecutivo N° 41311 del 3 de setiembre de 2018)
 (Modificado por el artículo 1° del decreto ejecutivo N° 41266 del 5 de setiembre de 2018)
 (Reformado por el artículo 1° de la ley N° 9604 del 7 de setiembre de 2018)
+(Reformado por el artículo 1° de la ley N° 9622 del 31 de octubre de 2018)
