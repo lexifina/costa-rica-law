@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE LA CRUZ
+El Concejo de la Municipalidad de La Cruz Guanacaste, mediante acuerdo N° 2-16, de la sesión ordinaria N° 37-2018, celebrada el día 20 de setiembre del año 2018, aprueba acogerse al Reglamento de Construcción de Obras Menores y Obras de Mantenimiento, emitido por la Federación de Municipalidades de Guanacaste (FEMUGA) y publicado en el Diario Oficial La Gaceta Nº 112, del día 22 de junio del 2018, para que sea implementado por La Municipalidad de La Cruz a partir de la presente publicación.
