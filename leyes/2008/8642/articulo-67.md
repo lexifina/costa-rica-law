@@ -31,3 +31,8 @@ b) Son infracciones graves:
 9) Utilizar equipos en forma distinta de la autorizada, así como darles un mantenimiento inadecuado de manera que se ponga en peligro personas o propiedades y siempre que no se constituya una infracción de mayor gravedad.
 10) No mantener actualizada ni custodiada la información requerida por la Sutel.
 11) Cualquier acción en contra de lo dispuesto en esta Ley, los reglamentos u otras obligaciones contractuales, que por su naturaleza, daño causado y trascendencia no se considere como infracción muy grave.
+12) Incumplir, dos o más veces en un año calendario, las infracciones leves establecidas en el inciso c) de este artículo.
+(Así adicionado el subinciso anterior por el artículo 2° de la ley N° 9597 del 13 de agosto de 2018)
+(*)c) Son infracciones leves:
+1) Incumplir el inciso 4) del artículo 49 de esta ley.
+(*)(Así adicionado el inciso anterior por el artículo 2° de la ley N° 9597 del 13 de agosto de 2018)
