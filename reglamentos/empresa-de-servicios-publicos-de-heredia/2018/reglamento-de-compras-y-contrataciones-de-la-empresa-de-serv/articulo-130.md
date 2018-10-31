@@ -1,0 +1,1 @@
+130. Una vez elaborado el documento contractual, !a Dirección de Asesoría Jurídica, será responsable de enviar un "Borrador" del contrato al adjudicatario, al Proceso de Administración de Contratos y Gestión de Compras y al Proceso o negocio solicitante, para establecer observaciones específicas.

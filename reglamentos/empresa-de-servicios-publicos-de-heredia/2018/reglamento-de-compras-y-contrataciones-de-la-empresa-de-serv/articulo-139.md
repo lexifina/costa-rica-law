@@ -1,0 +1,1 @@
+139. Todo contrato escrito por compra de bienes o servicios que realice la ESPH, S.A., dentro de la categoría del artículo uno supracitado, será redactado por la Dirección de Asesoría Jurídica de la ESPH, S.A., previa solicitud realizada por el Proceso de Administración de Contratos y Gestión de Compras.

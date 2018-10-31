@@ -1,0 +1,1 @@
+143. Luego de recibir el refrendo contralor es responsabilidad del Proceso de Administración de Contratos y Gestión de Compras, comunicar a los Procesos o negocios interesados dicha aprobación. Asimismo, remitirá para su custodia un original del contrato refrendado a la Dirección de Asesoría Jurídica, así como fotocopia del mismo al área o áreas interesadas.

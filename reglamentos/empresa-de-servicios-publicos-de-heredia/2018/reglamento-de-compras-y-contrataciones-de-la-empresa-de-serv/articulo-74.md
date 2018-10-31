@@ -1,0 +1,1 @@
+74. Si se demuestra el incumplimiento por parte del oferente y la ESPH, S.A., decide resolver el contrato, ésta hará efectiva la ejecución de las garantías correspondientes, a reserva del derecho de demandar el reconocimiento de daños y perjuicios adicionales, en su caso.

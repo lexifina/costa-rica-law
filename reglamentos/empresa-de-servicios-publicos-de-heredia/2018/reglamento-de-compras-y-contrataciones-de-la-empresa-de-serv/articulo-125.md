@@ -1,0 +1,1 @@
+125. El Proceso de Administración de Contratos y Gestión de Compras iniciará el trámite de confección del contrato, por medio de una solicitud formal (por escrito), a la Dirección de Asesoría Jurídica, una vez firme la adjudicación.

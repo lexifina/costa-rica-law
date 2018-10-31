@@ -1,0 +1,1 @@
+136. Todo contrato debe ser firmado en tres originales, una de las cuales se entrega al contratista, una al Proceso de Administración de Contratos y Gestión de Compras y la otra se custodiará en la Dirección de Asesoría Jurídica.

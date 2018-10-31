@@ -1,0 +1,2 @@
+69. Para las compras directas, secundarias, primarias, mayores y las excepciones a los procedimientos ordinarios, podrá la ESPH, S.A., aumentar hasta en un 50% el valor del concurso y conforme al nuevo monto de la contratación se aprobará, el el incremento, según los límites establecidos en el artículo 28.
+Lo anterior procederá cuando ocurran circunstancias impredecibles o de conveniencia y tal medida fuera conveniente para satisfacer plenamente el fin perseguido por el contrato; sin que en tal caso, se requiera un nuevo concurso.

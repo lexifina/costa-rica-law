@@ -1,0 +1,1 @@
+64. En el caso de ESPH, S.A., solo cabrá recurso de apelación dentro de los siguientes 5 días hábiles posteriores a la notificación, cuando se trate de concurso mayor y por la cuantía. En los demás casos, se aplicará únicamente el recurso de revocatoria.

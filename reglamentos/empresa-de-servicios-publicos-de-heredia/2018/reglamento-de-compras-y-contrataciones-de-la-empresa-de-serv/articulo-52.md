@@ -1,0 +1,1 @@
+52. En caso que, por alguna de las razones establecidas en la normativa, un concurso se declare o resulte desierto o infructuoso, deberé\ constar una resolución razonada en el expediente, por parte del Proceso o negocio interesado, sin esta n=:solución no podrá iniciarse nuevamente el proceso de contratación.

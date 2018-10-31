@@ -1,0 +1,1 @@
+26. La prohibición contemplada en el inciso b) del artículo 24, no afectará a las personas mencionadas en dicha norma, que comprueben haberse dedicado en forma personal o desarrollado actividades empresariales, potencialmente un año antes de que sobrevenga la casual de incompatibilidad.
