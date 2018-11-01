@@ -1,0 +1,1 @@
+Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución N° RES-DGH-049-2018 del 06 de julio del 2018, publicado en La Gaceta N° 137 del 30 de julio del 2018.
