@@ -1,0 +1,1 @@
+Artículo 3º—Garantía del servicio. La administración tributaria, establecerá las condiciones de ingreso, uso y permanencia, así como la cantidad de trámites a realizar por usuario en los quioscos tributarios, con el fin de garantizar el servicio a todos los usuarios.
