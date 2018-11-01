@@ -1,2 +1,0 @@
-Transitorio II
-En el plazo de sesenta y cinco días naturales contados a partir de su publicación, la Departamento de Análisis Administrativo será la encargada de establecer los procedimientos a seguir para la contratación, uso y control del servicio celular o radiolocalizador, así como, establecer los procedimientos de control y pago cuando el teléfono y línea celular sean propiedad del funcionario. Estos procedimientos se establecerán en el correspondiente Manual de Procedimientos.

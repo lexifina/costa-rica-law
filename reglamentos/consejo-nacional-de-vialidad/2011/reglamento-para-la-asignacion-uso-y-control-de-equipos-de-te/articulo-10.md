@@ -1,1 +1,0 @@
-Artículo 10.—De la entrega de los bienes Los teléfonos celulares y radiolocalizadores serán entregados única y exclusivamente al responsable directo y solamente cuando de previo se haya suscrito el contrato para el uso y control del teléfono celular o radiolocalizador respectivo por todas las partes involucradas.

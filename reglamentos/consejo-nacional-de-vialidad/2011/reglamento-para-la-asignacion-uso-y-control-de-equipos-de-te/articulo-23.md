@@ -1,1 +1,0 @@
-Artículo 23.—Para la adquisición y uso de teléfonos celulares y radiolocalizadores, la dependencia a la cual pertenece el funcionario o profesional al cual se le asigna el teléfono, deberá contar con el presupuesto requerido para cubrir los costos de adquisición y operación del mismo; caso contrario no se aprobará la asignación o se retirará el uso del teléfono celular.

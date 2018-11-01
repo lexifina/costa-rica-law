@@ -1,4 +1,0 @@
-CAPÍTULO VIII
-Adquisición de servicios telefónicos y radiolocalizadores
-Artículo 22.—Los teléfonos celulares que se adquieran para disfrutar del servicio asignado, conforme el procedimiento establecido en el presente Reglamento, deben obtenerse mediante establecimientos comerciales autorizados y corresponder a marcas reconocidas en el mercado, siempre y cuando su valor de adquisición se encuentre dentro de parámetros razonables en relación con las alternativas disponibles.
-La Unidad de Servicios Generales, será la responsable de adquirir y administrar las lineas de comunicación, teléfonos celulares y radiolocalizadores en estos dos últimos casos, deberá patrimoniar los bienes. Para lo cual se apoyara en los procedimientos establecidos en Proveeduría Institucional y deberá remitirse a lo dispuesto en la Ley de Contratación Administrativa y su reglamento

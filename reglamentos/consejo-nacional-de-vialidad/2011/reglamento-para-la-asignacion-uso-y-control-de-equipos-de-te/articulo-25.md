@@ -1,1 +1,0 @@
-Artículo 25.—La Dirección de Finanzas deberá llevar un registro y control de los equipos y bienes regulados en este reglamento. De la misma manera deberá solicitar la ejecución del pago de los servicios en forma mensual de conformidad con los recibos de cobro presentados

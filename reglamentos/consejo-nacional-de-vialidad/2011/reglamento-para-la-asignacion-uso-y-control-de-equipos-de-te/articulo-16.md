@@ -1,1 +1,0 @@
-Artículo 16.—Del vencimiento del contrato. El contrato de préstamo de celulares o radiolocalizadores podrá suscribirse por un plazo máximo de dos años, el cual se prorrogara por periodos iguales y de forma automática. En el caso de usuarios de pleno derecho el contrato se suscribirá por plazo durante el cual estén nombrados en su cargo.

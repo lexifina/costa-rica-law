@@ -1,1 +1,0 @@
-Artículo 17.—De la rescisión del contrato. Los contratos suscritos serán rescindidos unilateralmente y sin responsabilidad para la administración, según lo indicado en el artículo 11° del presente reglamento y cuando exista la negativa de cubrir el costo del equipo en caso de pérdida, robo o destrucción.

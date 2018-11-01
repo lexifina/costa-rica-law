@@ -1,1 +1,0 @@
-Artículo 4º—Definición de procedimientos. El Departamento de Análisis Administrativo elaborara el procedimiento de asignación, uso y control de equipos de telefonía móvil (celular) y radiolocalizadores dentro del Manual de políticas operativas y procedimientos de la Unidad de Servicios Generales de acuerdo al Manual Maestro.

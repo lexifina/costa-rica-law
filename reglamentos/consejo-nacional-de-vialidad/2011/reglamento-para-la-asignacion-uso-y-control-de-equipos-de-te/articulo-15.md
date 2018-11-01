@@ -1,1 +1,0 @@
-Artículo 15.—De la firma del contrato. Confeccionado el contrato lo firmará el Director Ejecutivo, Jefe de la Unidad de Servicios Generales y el funcionario responsable. El equipo y los accesorios se le entregarán posteriormente a la formalización del contrato.
