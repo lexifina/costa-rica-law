@@ -1,0 +1,4 @@
+INSTITUTO COSTARRICENSE DE ACUEDUCTOS Y ALCANTARILLADOS
+DIRECCIÓN DE PROVEEDURÍA
+El Instituto Costarricense de Acueductos y Alcantarillados, cédula jurídica Nº 4000-042138 comunica que según el alcance N° 182 de La Gaceta del 13 de setiembre del 2016 y alcance N° 155, de La Gaceta del 05 de setiembre del 2018, esta Institución se acogerá a los nuevos lineamientos establecidos en la Ley de Contratación Administrativa y su reglamento, donde se establece de manera obligatoria que todos los procedimientos a través de la plataforma Sistema de Compras Públicas SICOP.
+Con fundamento en lo anterior se les informa que esta Institución ya está trabajando en la implementación de dicho Sistema, por lo tanto, les solicitamos proceder con el trámite del registro en SICOP, para lo cual les brindamos los siguientes datos de contacto donde les brindarán la ayuda necesaria: Correo: call-center@sicop.go.cr Teléfono: 800-0074267
