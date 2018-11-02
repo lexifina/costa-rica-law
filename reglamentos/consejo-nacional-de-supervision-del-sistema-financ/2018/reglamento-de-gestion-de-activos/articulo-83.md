@@ -1,0 +1,1 @@
+Artículo 83. Derogatoria. Se deroga el Reglamento de Inversiones de las Entidades Reguladas y sus reformas, aprobado por el CONASSIF, mediante artículo 6, literal a, del acta de la sesión 355-2003, celebrada el 11 de febrero de 2003, publicado en el diario oficial La Gaceta 36, del 20 de febrero de 2003.

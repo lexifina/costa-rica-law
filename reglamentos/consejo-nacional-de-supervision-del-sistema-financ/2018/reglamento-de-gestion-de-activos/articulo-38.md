@@ -1,0 +1,1 @@
+Artículo 38. Comportamiento de pago histórico. La entidad regulada debe evaluar el comportamiento de pago histórico que tiene el solicitante en otras entidades financieras, en la etapa de análisis de crédito.

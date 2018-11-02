@@ -1,0 +1,3 @@
+Artículo 25. Garantías. Las entidades reguladas pueden utilizar los activos de los fondos administrados para otorgar las garantías requeridas, con el exclusivo propósito de realizar las operaciones de cobertura, según lo dispuesto en este Reglamento y en la Ley de Protección al Trabajador. Estas garantías pueden estar constituidas por disponibilidades o instrumentos de inversión.
+Los requerimientos de garantías deben ser informados a la Superintendencia de Pensiones al momento en que se remita la información relacionada con la realización de la operación de cobertura.
+Las devoluciones de garantías que perciba el fondo deben ser registradas a su favor en el mismo día en que se originen.

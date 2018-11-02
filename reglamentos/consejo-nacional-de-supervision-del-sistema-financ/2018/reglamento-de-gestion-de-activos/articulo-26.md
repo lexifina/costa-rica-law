@@ -1,0 +1,1 @@
+Artículo 26. Requisitos de los derivados que se negocian en bolsas. Deben cotizarse en un mercado organizado de derivados el cual debe ser regulado y autorizado según los requisitos establecidos en este Reglamento para los mercados autorizados. En el caso de las operaciones del mercado local, aplicarán las reglas que defina el Banco Central de Costa Rica y el CONASSIF.

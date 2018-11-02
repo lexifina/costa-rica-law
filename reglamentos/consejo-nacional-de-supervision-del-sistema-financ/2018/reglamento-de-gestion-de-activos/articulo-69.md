@@ -1,0 +1,1 @@
+Artículo 69. Límites por emisor. Los fondos deben cumplir con un límite máximo de inversión de hasta un 10% en un solo emisor de cualquier tipo de valores, excepto para el Ministerio de Hacienda de Costa Rica, el Banco Central de Costa Rica y los emisores de deuda soberana internacional de países que cuenten con calificación de riesgo dentro del grado de inversión.

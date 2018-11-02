@@ -1,0 +1,7 @@
+Artículo 63. Costos imputados al fondo. Los costos de intermediación por la adquisición de valores en favor del fondo son asumidos por éste, esto incluye las operaciones de compra y venta de valores.
+Adicionalmente, se cargan al fondo los costos relacionados con inversiones realizadas en participaciones de fondos, vehículos de inversión y administradores externos de inversiones.
+(Nota de Sinalevi: Mediante sesión N° 1838 del 6 de diciembre de 2023, se reformará este numeral. De conformidad con la sesión antes mencionada dicha afectación entrará a regir a partir del 1 de enero del 2029. Por lo que a partir de esa fecha el nuevo texto será el siguiente: "Artículo 63. Costos imputados al fondo. En adición a los establecidos por la Ley de Protección al Trabajador, las entidades reguladas únicamente podrán imputar a los fondos administrados, los siguientes costos:
+1. Los costos derivados de los servicios de intermediación para la adquisición y venta de valores en favor de los fondos.
+2. Los costos relacionados con inversiones realizadas en participaciones de fondos y vehículos de inversión.
+3. Los costos de las operaciones realizadas por las entidades reguladas con instrumentos derivados para cubrir los riesgos de precio, tasa de interés y tipo de cambio, en favor de los fondos administrados.
+4. Los costos derivados de las transacciones por la compra y venta de monedas extranjeras.")

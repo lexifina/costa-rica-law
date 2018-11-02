@@ -1,0 +1,1 @@
+Artículo 45. Modalidades de adquisición no permitidas. Las entidades reguladas no pueden realizar operaciones con la modalidad de cuentas de requerimiento de margen (margin accounts), ni realizar inversiones que impliquen una operación de financiamiento al fondo.

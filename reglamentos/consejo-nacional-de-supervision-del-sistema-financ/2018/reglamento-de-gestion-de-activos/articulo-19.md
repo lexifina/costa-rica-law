@@ -1,0 +1,2 @@
+Artículo 19. Instrumentos autorizados. Para efectos de cobertura, las entidades reguladas pueden realizar por parte de los fondos administrados, operaciones con los siguientes instrumentos financieros derivados: contratos de futuros, contratos a plazo (forwards), permutas financieras (swaps), y contratos de opciones.
+Para el caso específico de coberturas de tipo de cambio se autorizan, además, los contratos de diferencia.

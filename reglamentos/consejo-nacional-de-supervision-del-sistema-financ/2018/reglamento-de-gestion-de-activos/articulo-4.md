@@ -1,0 +1,3 @@
+TÍTULO II. GOBIERNO DE LAS INVERSIONES
+Capítulo II. Principios generales para la gestión de activos
+Artículo 4. Principios generales. Las entidades reguladas, en procura del beneficio de los afiliados y pensionados, y buscando un equilibrio entre el rendimiento y los riesgos asumidos, deben apegarse a los principios generales establecidos en la Ley de Protección al Trabajador, este Reglamento, y los Reglamentos de Gobierno Corporativo y de Riesgos aprobados por el Consejo Nacional de Supervisión del Sistema Financiero (CONASSIF); para una sana administración de los activos de los fondos y del capital mínimo de funcionamiento.

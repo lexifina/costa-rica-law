@@ -1,0 +1,2 @@
+Artículo 36. Metodología de calificación de riesgo. La entidad debe establecer una metodología de calificación del riesgo de pago de los deudores, que considere como mínimo: el análisis de la capacidad de pago, el comportamiento de pago histórico y las garantías.
+El resultado de la aplicación de esta metodología debe permitir a la entidad ubicar a los deudores en escalas que van desde el menor riesgo hasta el mayor. Esta aplicación se debe realizar al menos mensualmente.

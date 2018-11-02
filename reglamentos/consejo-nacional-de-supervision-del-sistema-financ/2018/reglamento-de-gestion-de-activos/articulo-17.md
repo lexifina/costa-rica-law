@@ -1,0 +1,30 @@
+Artículo 17. Instrumentos para la inversión. Las inversiones de los fondos pueden realizarse en los siguientes tipos de instrumentos, los cuales pueden ser locales o internacionales. Se clasifican en tres niveles conforme a sus características, complejidad de operación y sofisticación en su gestión de riesgos.
+a. Instrumentos Nivel I
+i. Títulos de deuda:
+Deuda individual local: El emisor debe tener al menos una calificación de riesgo entre las tres mayores de la escala de calificación de corto plazo y su vencimiento no debe ser mayor a 360 días.
+Deuda estandarizada: Títulos de emisiones de deuda registradas en el mercado local o extranjero, que no cuenten con las siguientes características: redención anticipada, opciones implícitas, titularizaciones, desempeños ligados a índices o convertibles en acciones.
+Salvo en el caso de los valores que por normativa costarricense no están obligados a calificarse, los instrumentos locales deben contar con una calificación de riesgo local que se encuentre dentro de grado de inversión de la escala de calificación.
+Por su parte los instrumentos internacionales deben tener una calificación de riesgo dentro del grado de inversión. En el caso de instrumentos internacionales de deuda soberana que no cuenten con calificación de riesgo específica, se toma la calificación de riesgo soberano del país emisor, la cual debe encontrarse entre las tres mejores calificaciones de riesgo de la escala de calificación.
+Reportos: El activo financiero subyacente de estos contratos debe cumplir con las políticas de inversión del fondo.
+El compromiso de pago del principal más el interés en una fecha posterior no puede exceder los 365 días y la moneda en que se realizan estas operaciones debe ser aquella en la que esté denominado el subyacente respectivo.
+ii. Títulos representativos de propiedad:
+Títulos accionarios y ADRs: Las acciones comunes o preferentes deben estar listadas en mercados de valores que cumplan con los requisitos establecidos en este Reglamento.
+Los ADRs pueden ser adquiridos si cumplen con los mismos requisitos de autorización de oferta pública que los títulos accionarios internacionales. Además, las acciones subyacentes deben ser negociadas en mercados autorizados que cumplan con los requisitos establecidos en este Reglamento y contar con la condición de patrocinados, de forma tal que la empresa emisora de la acción suministre la misma información que brindaría al mercado de valores, al banco emisor del ADR.
+Participaciones de fondos o vehículos de propósito especial: Fondos financieros, de deuda, accionarios, mixtos o fondos índices, así como ETF que repliquen índices financieros. Se exceptúan los fondos que en sus estrategias de inversión utilicen instrumentos derivados cuyo objetivo sea diferente al criterio de manejo eficiente del portafolio, definido por la UCITS.
+b. Instrumentos Nivel II
+i. Títulos de deuda:
+Deuda estandarizada: Deben cumplir con todos los requisitos de deuda estandarizada establecida para el Nivel I, sin que les apliquen limitaciones definidas en ese nivel.
+Tratándose de instrumentos convertibles en acciones, se debe asegurar que el instrumento resultante cumpla con lo establecido en el Título III. Régimen de Inversión de este Reglamento y que sea de Nivel I.
+En los procesos de titularización se debe realizar una transferencia real de los activos al vehículo utilizado.
+Notas estructuradas con capital protegido: El emisor debe contar con una calificación de riesgo internacional que se encuentre entre las tres mejores de la escala de calificación.
+El subyacente que sirve para asegurar el pago del capital, debe ser un instrumento de deuda que cumpla con todos los requisitos de deuda estandarizada establecida para el Nivel I y su plazo al vencimiento ser igual al vencimiento de la nota. Además, deben ser emitidos por gobiernos o bancos centrales que cuenten con la mejor calificación de riesgo dentro del grado de inversión.
+ii. Títulos representativos de propiedad:
+Participaciones de fondos o vehículos de propósito especial: Deben cumplir con todos los requisitos de las participaciones de fondos establecidos para el Nivel I, sin embargo, esos fondos pueden incursionar en vehículos de inversión relacionados con la administración de inmuebles, la inversión inmobiliaria, bienes raíces y desarrollo de proyectos.
+En el caso de inversiones en fondos de desarrollo de proyectos la entidad regulada debe tener en cuenta el plazo máximo del fondo y los periodos de inversión y desinversión, así como, la posibilidad de redenciones anticipadas. Además, únicamente pueden invertir en esta figura cuando se ha superado la etapa de definición de factibilidad y se cuente con los permisos y estudios necesarios para iniciar obras.
+c. Instrumentos Nivel III
+i. Títulos de deuda:
+Deuda estandarizada: Títulos extranjeros que deben cumplir con todos los requisitos de deuda estandarizada establecida para el Nivel I, con la excepción de que no requieren de una calificación de riesgo grado de inversión. No obstante, las calificaciones de riesgo correspondientes a estos instrumentos deben encontrarse dentro de las dos mejores de la escala inferior al grado de inversión.
+ii. Títulos representativos de propiedad:
+Participaciones de fondos o vehículos de propósito especial: Deben cumplir con todos los requisitos de las participaciones de fondos establecidos para el Nivel I, sin embargo, pueden incursionar en fondos que invierten en acciones privadas (private equity).
+La entidad regulada debe tener en cuenta el plazo máximo del fondo y los periodos de inversión y desinversión, así como, la posibilidad de redenciones anticipadas.
+Para los fondos que invierten en acciones privadas (private equity), sus participaciones deben ser adquiridas con firmas estructuradoras (conocidas en inglés como General Partner) con al menos diez años de experiencia en el mercado internacional y que tengan un récord de empresas adquiridas exitosamente. Asimismo, podrán invertir en fondos que invierten en acciones privadas (private equity) en el mercado local que cumplan lo establecido en las normas emitidas por el CONASSIF.

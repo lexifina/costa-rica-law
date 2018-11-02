@@ -1,0 +1,1 @@
+Artículo 50. Acceso a la información. Las entidades reguladas deben autorizar y garantizar a la Superintendencia de Pensiones el acceso permanente y en forma remota a los registros y la información sobre los saldos en valores mantenidos por los fondos administrados en las entidades de custodia.

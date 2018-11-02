@@ -1,0 +1,1 @@
+Artículo 82. Acuerdos del Superintendente de Pensiones. Mediante acuerdo, el Superintendente de Pensiones puede emitir lineamientos específicos para definir aspectos operativos de lo establecido en este Reglamento y de suministro de información.

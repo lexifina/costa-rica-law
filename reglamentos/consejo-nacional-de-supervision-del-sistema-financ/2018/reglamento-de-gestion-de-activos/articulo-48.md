@@ -1,0 +1,1 @@
+Artículo 48. Cuentas corrientes. Las entidades reguladas deben contar con al menos una cuenta corriente para cada fondo administrado, para el manejo del efectivo en las transacciones con los instrumentos de inversión.

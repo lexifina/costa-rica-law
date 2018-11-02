@@ -1,0 +1,1 @@
+Artículo 51. Aprobación por parte del Órgano de Dirección. De previo a la remisión del contrato para aprobación de la Superintendencia de Pensiones, el Órgano de Dirección debe comprobar el cumplimiento de los requisitos y aprobarlo mediante acuerdo debidamente motivado.

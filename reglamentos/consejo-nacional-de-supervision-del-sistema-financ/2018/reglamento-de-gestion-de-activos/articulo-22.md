@@ -1,0 +1,5 @@
+Artículo 22. Requisitos. Previo a efectuar operaciones de cobertura, la entidad regulada debe cumplir con los siguientes requisitos:
+a. Procedimientos para llevar a cabo las operaciones con derivados y su valoración, los cuales establezcan mecanismos de control adecuados, y de información hacia el Órgano de Dirección, Alta Gerencia y los Comités de Inversión y de Riesgos.
+b. El Órgano de Dirección debe asegurarse que el personal relacionado con el proceso de las operaciones de cobertura cumpla con el principio de idoneidad establecido en este Reglamento.
+c. Contar con sistemas electrónicos de información que permitan, medir y evaluar, en forma diaria y precisa, los riesgos provenientes de las operaciones con derivados, sus cuentas de garantías, así como el registro contable de estas operaciones.
+d. Previo a realizar operaciones con derivados el Órgano de Dirección debe asegurarse que la entidad cuenta con los procesos, personal calificado y sistemas necesarios para operar esos instrumentos.

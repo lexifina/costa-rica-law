@@ -1,0 +1,1 @@
+Artículo 77. Contratos con entidades internacionales. En contratos suscritos con entidades internacionales, la entidad regulada debe disponer del contrato transcrito al castellano por un traductor oficial y de una certificación en la cual conste que la traducción corresponde a una copia fiel del original.

@@ -1,0 +1,1 @@
+Transitorio II. Las entidades reguladas cuentan con un plazo de doce meses a partir de la entrada en vigencia de este Reglamento, para el cumplimiento de lo establecido en el Capítulo IX. Requisitos de los fondos de pensiones autorizados por ley para conceder créditos.

@@ -1,0 +1,1 @@
+Artículo 32. Exposición a una misma contraparte. El Órgano de Dirección debe establecer en su política de inversión los porcentajes máximos de concentración de operaciones y de cobertura con una misma contraparte en mercados OTC.

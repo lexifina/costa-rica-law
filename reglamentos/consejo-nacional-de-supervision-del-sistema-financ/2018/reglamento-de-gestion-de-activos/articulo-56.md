@@ -1,0 +1,5 @@
+Capítulo XII. Subcontratación de administradores de inversiones
+Artículo 56. Administradores externos. La entidad regulada puede contratar los servicios de administradores externos de inversiones, únicamente con el fin de invertir en los instrumentos internacionales definidos en este Reglamento.
+Estos administradores pueden subcontratar a sus empresas filiales o subsidiarias cuyo capital social le pertenezca en su totalidad o a su sociedad controladora.
+Las inversiones por realizar en esta modalidad de administración son las establecidas en el régimen de inversión de este Reglamento, no obstante, los límites deberán ser definidos en el proceso de contratación.
+Las operadoras de pensiones podrán dar servicio de administración de inversiones a los fondos creados por leyes especiales que por su tamaño y experiencia en el mercado financiero necesiten de ese servicio para realizar las inversiones en el ámbito local e internacional, según los lineamientos definidos en este Reglamento y las políticas de inversión del fondo contratante.

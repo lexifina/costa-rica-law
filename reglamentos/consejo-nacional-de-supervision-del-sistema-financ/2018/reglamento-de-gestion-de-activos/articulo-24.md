@@ -1,0 +1,1 @@
+Artículo 24. Evaluación y actualización periódica de los requisitos. El Órgano de Dirección debe solicitar a la auditoría interna o externa de la entidad regulada, evaluar, al menos anualmente, el cumplimiento de los requisitos establecidos en el artículo 22.

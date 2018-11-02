@@ -1,0 +1,1 @@
+Artículo 61. Aspectos previos a la operación. Antes de iniciar la operación de inversión en el portafolio dado en administración deben realizarse pruebas técnicas en los sistemas y aspectos operativos, para validar su funcionamiento.

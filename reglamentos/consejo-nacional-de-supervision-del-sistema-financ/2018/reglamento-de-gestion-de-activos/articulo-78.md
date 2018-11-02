@@ -1,0 +1,1 @@
+Artículo 78. Documentación para supervisión. Es responsabilidad de las entidades reguladas mantener la documentación probatoria del cumplimiento de los requerimientos exigidos en este Reglamento y mantenerlos a disposición de la Superintendencia de Pensiones por al menos cinco años.

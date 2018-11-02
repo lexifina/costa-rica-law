@@ -1,0 +1,1 @@
+Artículo 21. Mercados de derivados. Las entidades reguladas pueden efectuar operaciones de cobertura, según lo establecido en este Reglamento, en los mercados organizados en que se transen los instrumentos derivados, así como, en los mercados OTC. Estos mercados deben cumplir con los requisitos que se establecen en este Reglamento para los mercados autorizados.

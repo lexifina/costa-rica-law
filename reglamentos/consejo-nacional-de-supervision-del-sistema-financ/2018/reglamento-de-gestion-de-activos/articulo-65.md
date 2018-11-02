@@ -1,0 +1,4 @@
+TÍTULO V. LÍMITES Y PROHIBICIONES
+Artículo 65. Finalidad de los límites y prohibiciones. El establecimiento de límites prudenciales para la gestión de las inversiones de los fondos tiene como fin promover una adecuada diversificación de los portafolios. Sin embargo, es responsabilidad de las entidades reguladas definir dentro de sus políticas de inversión los límites y prohibiciones que obedezcan al proceso de planificación y debida diligencia, los cuales estén en función de los objetivos y riesgos determinados para los fondos en aras de lograr la mejor relación posible entre riesgo y rendimiento.
+Los límites señalados en este Reglamento no constituyen la política de inversión para los fondos administrados.
+Las restricciones que determinen las entidades reguladas para las inversiones de los fondos deben tomar en cuenta las prohibiciones que se establezcan en las leyes que les aplique.

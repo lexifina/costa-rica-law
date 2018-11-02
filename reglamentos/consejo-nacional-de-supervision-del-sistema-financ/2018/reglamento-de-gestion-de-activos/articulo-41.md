@@ -1,0 +1,1 @@
+Artículo 41. Aprobación de los créditos. El Órgano de Dirección debe determinar el área o proceso responsable de la aprobación de los créditos. Esta responsabilidad puede ser delegada en un Comité de Crédito, en un área funcional o personal de la alta gerencia. En ningún caso los créditos pueden ser aprobados por el área o persona encargada de analizar el crédito.
