@@ -1,0 +1,1 @@
+Artículo 21.—Confidencialidad. Tratándose de denuncias anónimas, la información sobre la identidad del denunciante, la documentación probatoria y otras evidencias aportadas serán confidenciales si así lo solicita dicho denunciante, de conformidad con lo establecido en el artículo 42 de la Ley Reguladora del sistema Nacional de Contraloría de Servicios.

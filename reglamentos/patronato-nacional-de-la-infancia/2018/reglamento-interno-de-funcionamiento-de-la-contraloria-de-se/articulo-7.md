@@ -1,0 +1,2 @@
+Artículo 7º—Ubicación física. La Contraloría de Servicios estará ubicada en las Oficinas Centrales del Patronato Nacional de la Infancia, en un área de fácil acceso para el primer contacto con los usuarios y que reúna como característica esencial condiciones de privacidad para el buen desenvolvimiento tanto del usuario como de su personal.
+Asimismo, el espacio físico asignado deberá contar con adecuadas condiciones de ventilación, limpieza, comodidad e iluminación para el usuario.

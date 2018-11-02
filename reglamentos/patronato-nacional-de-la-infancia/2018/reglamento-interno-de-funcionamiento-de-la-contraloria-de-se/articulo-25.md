@@ -1,0 +1,1 @@
+Artículo 25.—Denuncias sobre asuntos disciplinarios o de la prestación de servicios de funcionarios. Este tipo de denuncias serán trasladadas a la Presidencia Ejecutiva para el trámite que corresponde según lo establecido en los artículos 67 y 68 del Reglamento Autónomo de Trabajo del PANI.

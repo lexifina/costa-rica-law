@@ -1,0 +1,2 @@
+Artículo 17.—Requisitos esenciales que deben reunir las denuncias que se presenten a la Contraloría de Servicios. Los hechos denunciados por las personas usuarias deberán ser expuestos por escrito en forma clara, precisa y circunstanciada, brindando el detalle suficiente que permita realizar la investigación, indicando el momento y lugar en que ocurrieron los hechos y el sujeto que presuntamente los realizó.
+Preferiblemente se deberá aportar la prueba necesaria que sean de importancia para la conclusión final que debe emitir la Contraloría de Servicios.

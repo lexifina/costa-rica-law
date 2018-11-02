@@ -1,0 +1,2 @@
+Artículo 10.—Deber de Informar. Todos los funcionarios de la institución estarán obligados a rendir los informes y en general, brindar la colaboración que les solicite la Contraloría de Servicios, como parte de las responsabilidades derivadas de su relación laboral.
+La negativa o negligencia del funcionario o el incumplimiento los requerimientos de información que se les haga, serán causas generadoras de responsabilidad disciplinaría, de acuerdo con lo dispuesto en los artículos 44 de la Ley 9158 y artículo 25 inciso ch) del Reglamento Autónomo de Trabajo del PANI.

@@ -1,0 +1,4 @@
+CAPÍTULO II
+De la Contraloría de Servicios
+Artículo 4º—Naturaleza. La Contraloría de Servicios es el órgano asesor, canalizador y mediador en los conflictos, actuales y potenciales, que surjan con motivo de la relación entre el PANI y las personas usuarias de los servicios del PANI, el cual se encuentra adscrito a la Junta Directiva de la institución. Su cometido fundamental será el de promover, con la participación de las personas usuarias, el mejoramiento continuo e innovación en la prestación de los servicios que brinda la institución.
+Para lates efectos, permite y facilita la comunicación entre los ciudadanos y la institución, con el objetivo de contribuir a que, en la prestación del servicio público, el PANI funcione con una máxima de eficiencia y eficacia, a fin de satisfacer oportuna y adecuadamente las gestiones de las personas usuarias.

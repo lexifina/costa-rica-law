@@ -1,0 +1,1 @@
+Artículo 18.—Información adicional. El denunciante también deberá brindar información complementaria, la indicación de probables testigos y el lugar o medio para citarlos, así como la aportación o sugerencia de otras pruebas.

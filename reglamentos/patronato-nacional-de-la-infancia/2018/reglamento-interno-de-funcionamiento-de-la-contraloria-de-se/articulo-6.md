@@ -1,0 +1,2 @@
+Artículo 6º—Del Contralor (a) de Servicios y demás personal. La Contraloría de Servicios estará bajo la responsabilidad de un Contralor (a) de Servicios. Además, podrá estar integrada por un Sub contralor, así como por el personal necesario para el cumplimiento de sus competencias y objetivos.
+El nombramiento del personal necesario, se hará según lo que establecen los artículos 17, 20, 21, 24 y 25 de la Ley 9158, así los artículos 14, 17 y 18 del Reglamento a dicha Ley.

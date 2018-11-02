@@ -1,0 +1,1 @@
+Artículo 29.—Control de gestiones realizadas. Cada gestión que se menciona en el artículo anterior debe contener un registro de actividades de seguimiento que visualicen las gestiones realizadas por el Contralor(a) de Servicios.
