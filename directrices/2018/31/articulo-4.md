@@ -1,0 +1,1 @@
+Artículo 4°- Se establece como responsable del seguimiento de las disposiciones de la presente directriz a la Dirección de Gobernanza Digital del Ministerio de Ciencia, Tecnología y Telecomunicaciones.
