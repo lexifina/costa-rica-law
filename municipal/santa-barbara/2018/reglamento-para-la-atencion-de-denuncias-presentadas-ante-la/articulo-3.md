@@ -1,0 +1,6 @@
+Artículo 3º—Ámbito de competencia. La Auditoría Interna tramitará únicamente aquellas denuncias que versen sobre posibles hechos irregulares o ilegales, en relación con asuntos tales como el uso y manejo de fondos públicos por parte de los funcionarios municipales, o sujetos pasivos que se le hayan transferido recursos para su administración e hicieran mal uso de éstos, así como lo regulado por la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública N° 8422, y en casos como el manejo de la información tal como lo establece la Ley General de Control Interno.
+Normativa aplicada
+Ley N° 8292 Ley General de Control Interno.
+Ley N° 8422 Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública.
+Decreto 32333-MP-J Reglamento a la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública. N° D-2-2004-CC) Directrices Generales Sobre Principios y Enunciados Éticos a observar por parte de los Jerarcas, Titulares Subordinados, Funcionarios de la Contraloría General de la República, Auditorías Internas y Servidores Públicos en General. L-2-2005-CO-DFOE
+Lineamientos para la atención de denuncias planteadas ante la Contraloría General de la República
