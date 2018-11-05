@@ -1,0 +1,1 @@
+Artículo 2º—Del objeto. El presente reglamento tiene por objetivo general establecer el marco jurídico que regula la salud ocupacional en la UNED, entendida dicha salud como un medio para promover la calidad de vida de los miembros que integran la comunidad universitaria.

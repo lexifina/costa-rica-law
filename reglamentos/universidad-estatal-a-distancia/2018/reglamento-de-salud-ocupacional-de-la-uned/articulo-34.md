@@ -1,0 +1,1 @@
+Artículo 34.—De los procesos clínicos en casos de drogadicción. La persona que presente problemas de drogadicción o alcoholismo, deberá someterse al proceso clínico y de apoyo establecido por la Universidad para estos casos.

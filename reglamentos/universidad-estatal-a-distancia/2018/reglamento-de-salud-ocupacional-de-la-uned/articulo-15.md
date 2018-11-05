@@ -1,0 +1,1 @@
+Artículo 15.—Sobre el diagnóstico. El Plan de Salud Ocupacional debe contemplar en primera instancia el diagnóstico de condiciones y medio ambiente de trabajo, con el propósito de tener una visión clara sobre la problemática que encierra la salud ocupacional dentro de la UNED y ser actualizado como máximo cada tres años.

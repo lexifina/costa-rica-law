@@ -1,0 +1,1 @@
+Artículo 41.—Del cuido. Los funcionarios que tengan bajo su responsabilidad equipo de protección personal asignado, vigilarán su cuido y limpieza, así como también reportarán anomalías, deterioros o fallos en los equipos al Centro de Salud Ocupacional, para que se pueda sustituir, si se considera necesario.

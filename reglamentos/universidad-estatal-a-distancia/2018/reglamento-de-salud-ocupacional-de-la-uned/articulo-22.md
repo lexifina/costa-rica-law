@@ -1,0 +1,1 @@
+Artículo 22.—De los objetos en los pasillos. Queda prohibido colocar en los pasillos cualquier tipo de material o equipos tales como: cajas, mobiliario, desechos, computadoras, basura, entre otros. Para desechar equipos o mobiliario, los funcionarios(as) deberán seguir el procedimiento respectivo con el Almacén General de la UNED.

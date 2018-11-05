@@ -1,0 +1,1 @@
+Artículo 19.—De la capacitación. Todo funcionario deberá participar en las capacitaciones relacionadas con el tema de salud ocupacional promovidas por la UNED o el Centro de Salud Ocupacional, así como colaborar en materia de prevención de accidentes y enfermedades de trabajo.

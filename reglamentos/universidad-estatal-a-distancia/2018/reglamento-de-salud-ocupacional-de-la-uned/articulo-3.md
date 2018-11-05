@@ -1,0 +1,1 @@
+Artículo 3º—De los órganos competentes. La UNED contará con una Comisión de Salud Ocupacional y con un Centro de Salud Ocupacional. Este último deberá elaborar y ejecutar un Plan de Salud Ocupacional permanente, aprobado por el CONRE.

@@ -1,0 +1,1 @@
+Artículo 18.—Del deber de vigilancia y denuncia. Cada funcionario es responsable de mantener su lugar de trabajo libre de condiciones inseguras. Además deberá vigilar que se mantenga la seguridad laboral en su lugar de trabajo, reportando a su jefatura, con copia Centro de Salud Ocupacional, cualquier anomalía.

@@ -1,0 +1,1 @@
+Artículo 40.—De la obligación del uso. A los funcionarios que se les haya proporcionado el equipo de protección personal necesario para efectuar su trabajo de forma más segura, se le exigirá que lo utilice en todo momento durante su jornada de trabajo. Para lo anterior, los jefes inmediatos serán los responsables de vigilar su correcta utilización.

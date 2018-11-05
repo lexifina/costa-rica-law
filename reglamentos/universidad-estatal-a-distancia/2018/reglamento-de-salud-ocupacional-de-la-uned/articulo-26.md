@@ -1,0 +1,1 @@
+Artículo 26.—De los medios de transporte de carga pesada. Cuando se necesite manipular cargas que excedan los límites recomendados en el artículo anterior, se utilizarán los medios mecánicos respectivos para su transporte como: carretillas y montacargas, entre otros.

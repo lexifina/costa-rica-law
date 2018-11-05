@@ -1,0 +1,1 @@
+Artículo 44.—Del régimen disciplinario. Cuando se demuestre que el funcionario no utiliza el equipo de protección personal o vestimenta en el desempeño de sus funciones, de conformidad con lo establecido en los artículos 42 y 111, inciso k) del Estatuto de Personal, será objeto de aplicación del Régimen Disciplinario de ese Estatuto.

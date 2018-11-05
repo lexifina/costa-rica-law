@@ -1,0 +1,1 @@
+Artículo 29.—De la prohibición del transporte de personas. Los carretillos, equipo mecánico para transporte de materiales, así como montacargas, no podrán ser utilizados para el transporte de personas.

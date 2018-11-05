@@ -1,0 +1,1 @@
+Artículo 43.—De la pérdida del equipo. El funcionario que tenga asignado equipo de protección personal bajo su cargo, deberá hacerse responsable ante cualquier pérdida del mismo, además de eso deberá reportar la pérdida o sustracción al Centro de Salud Ocupacional.

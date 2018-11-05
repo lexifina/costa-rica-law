@@ -1,0 +1,1 @@
+Artículo 38.—Del fraude. El funcionario que finja o simule un accidente o enfermedad de trabajo, u omita información o brinde datos erróneos en un proceso de investigación sobre esta materia, podrá exponerse a una sanción disciplinaria, según lo establecido en la normativa institucional.

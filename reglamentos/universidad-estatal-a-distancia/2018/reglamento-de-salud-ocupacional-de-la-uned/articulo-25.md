@@ -1,0 +1,3 @@
+SECCIÓN II:
+Sobre el manejo y transporte de cargas
+Artículo 25.—De los objetos pesados. La manipulación manual de cargas por el personal de la Universidad u otras personas, no deberá exceder los límites recomendables de 12,5 kg para mujeres y 23 kg para los varones, en el caso que la persona no tenga ningún impedimento médico. Las funcionarias embarazadas no podrán levantar o manipular cargas pesadas. En todos los casos, se deberá seguir el procedimiento correspondiente para el transporte manual de cargas. En los casos en que se transporte material que exceda el peso, según los parámetros supra citados, se deberán utilizar dispositivos de seguridad tales como: fajas o arneses y otros

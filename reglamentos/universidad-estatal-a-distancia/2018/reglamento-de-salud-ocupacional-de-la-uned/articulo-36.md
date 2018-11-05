@@ -1,0 +1,1 @@
+Artículo 36.—Del plazo para interponer la denuncia. El funcionario(a) tendrá siete (7) días hábiles para reportar el accidente laboral, según lo establecido por el INS. En caso contrario o por expirar el plazo establecido, el accidente deberá ser reportado y trasladado a la CCSS.

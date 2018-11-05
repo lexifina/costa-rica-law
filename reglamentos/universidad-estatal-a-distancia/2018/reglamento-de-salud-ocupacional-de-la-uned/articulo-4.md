@@ -1,0 +1,1 @@
+Artículo 4º—De los recursos económicos. La UNED destinará los recursos necesarios para el buen desarrollo y cumplimiento del Plan de Salud Ocupacional de la institución, así como dotar de los recursos humanos y materiales al Centro de Salud Ocupacional.

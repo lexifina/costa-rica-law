@@ -1,0 +1,1 @@
+Artículo 24.—De los obstáculos de acceso a los ascensores. No se permitirá colocar plantas, mobiliario, ni otros obstáculos en la salida, a los lados de las puertas de los ascensores, ni dentro de estos
