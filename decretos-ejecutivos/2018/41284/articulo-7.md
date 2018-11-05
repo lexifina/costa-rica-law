@@ -1,0 +1,1 @@
+Artículo 7º—Las personas suplentes. Las personas suplentes servirán de apoyo y representarán al titular en su ausencia en la CIVE, para lo cual tendrán las mismas obligaciones y responsabilidades que aquél. La vigencia de su nombramiento estará sujeta a que el titular así lo estime oportuno, sin perjuicio de que, por causa calificada, dicho integrante renuncie a esa designación.

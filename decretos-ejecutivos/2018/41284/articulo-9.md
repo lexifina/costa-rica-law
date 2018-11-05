@@ -1,0 +1,1 @@
+Artículo 9º—Marco de acción. Limitación: La Comisión, en el ejercicio de sus competencias específicas, no constituye un Tribunal de Ética ni ningún tipo de órgano disciplinario dentro ni fuera del Ministerio de Gobernación y Policía. Cualquier asunto en materia disciplinaria o legal deberá resolverse por las vías correspondientes.
