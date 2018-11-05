@@ -14,3 +14,4 @@ Reglamento de aprendizaje, capacitaciones y/o profesionalización para los servi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-03-20 | la propia norma |
+| 2 | 2018-11-05 | Reglamento municipal 45 (2018-11-05) |
