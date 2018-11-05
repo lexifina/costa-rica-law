@@ -14,3 +14,4 @@ Reglamento para la selección y nombramiento del auditor y subauditor interno de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-04-15 | la propia norma |
+| 2 | 2018-11-05 | Reglamento 9493 (2018-11-05) |
