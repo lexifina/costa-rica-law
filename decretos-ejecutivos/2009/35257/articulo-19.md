@@ -74,16 +74,13 @@ CR 056 (Derogada la presente nota por el artículo 4° del decreto ejecutivo N°
 CR 057 El segmento de 614 MHz a 698 MHz se atribuye al servicio de radiodifusión para las emisiones de televisión de acceso libre en UHF, canales físicos del 38 al 51, para transmisiones digitales en el estándar ISDB-Tb de conformidad con el Adendum III.
 (Así reformada la nota anterior por el artículo 2° del decreto ejecutivo N° 40370 del 27 de febrero del 2017)
 CR 058 El segmento de 698 MHz a 806 MHz (banda de 700 MHz) se atribuye al servicio móvil para el desarrollo de sistemas IMT, los cuales deberán operar de acuerdo con la siguiente canalización (arreglo A5 de la recomendación UIT-R M.1036):
-[imagen]
 Por lo tanto, los procedimientos de reasignación para las frecuencias otorgadas a los concesionarios actuales del servicio de radiodifusión para la prestación del servicio de televisión en este segmento, deberán iniciarse a más tardar un año antes de la fecha establecida por el Poder Ejecutivo para el apagón de la tecnología analógica e inicio de transmisiones en el estándar digital ISDB-Tb.
 (Así reformada la nota CR 058 anterior por el artículo 4° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)
 CR 059 El segmento de frecuencias de 806 MHz a 894 MHz se atribuye al servicio móvil, el cual se distribuye de la siguiente manera: de 806 MHz a 821 MHz y de 851 MHz a 866 MHz para sistemas entroncados; de 821 MHz a 824 MHz y de 866 MHz a 869 MHz para sistemas entroncados de uso exclusivo de seguridad, socorro y emergencias; de 824 MHz a 849 MHz y de 869 MHz a 894 MHz para el desarrollo de sistemas IMT.
 (Así reformada la nota anterior por el artículo 4° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)
 CR 060 Los segmentos de 824 MHz a 849 MHz y de 869 MHz a 894 MHz (banda de 850 MHz) se atribuyen al servicio móvil para el desarrollo de sistemas IMT, los cuales deberán operar de acuerdo con la siguiente canalización (arreglo A1 de la recomendación UIT-R M.1036):
-[imagen]
 (Así reformada la nota CR 060 anterior por el artículo 4° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)
 CR 061 Los segmentos de frecuencias de 895 MHz a 915 MHz y de 940 MHz a 960 MHz (banda de 900 MHz), según lo establece la nota 5.317A del Reglamento de Radiocomunicaciones de la UIT, se atribuyen al servicio móvil para el desarrollo de sistemas IMT, los cuales deberán operar de acuerdo con la siguiente canalización (arreglo A2 de la recomendación UIT-R M.1036):
-[imagen]
 Por lo tanto, los procedimientos de reasignación para las frecuencias otorgadas a los concesionarios actuales en este segmento, deberán iniciarse a más tardar el 1° de julio de 2015.
 (Así reformada la nota CR 061 anterior por el artículo 4° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)
 CR 061A Dentro del segmento de 915 MHz a 940 MHz, el sub-segmento de 920,5 MHz a 934,5 MHz puede ser utilizado en sistemas fijos y móviles, manteniendo los segmentos de 915 MHz a 920,5 MHz y de 934,5 MHz a 940 MHz para la protección de los sistemas IMT descritos en la nota CR 061 y de conformidad con lo que establece el Adendum VIl. Se podrá valorar la operación de otros sistemas distintos a IMT en el segmento de frecuencias 916 MHz a 939 MHz, de conformidad con las hojas de especificaciones técnicas de los equipos a utilizar, siempre que esto no introduzca interferencias perjudiciales en las bandas de frecuencias adyacentes atribuidas al servicio Móvil para el despliegue de sistemas IMT.
@@ -97,27 +94,22 @@ CR 063 De conformidad con el S5.340 (Reglamento de Radiocomunicaciones de la Uni
 CR 064 El rango de1427-1535 MHzestá dedicado aenlaces de telefonía de punto a multipunto para telefonía rural. El rango de1530-1544 MHz y el rango 1626,5-1645,5 MHz se atribuye a título secundario paraservicios de socorro, emergencia y seguridad del Sistema Mundial de Socorro y Seguridad Marítimos (SMSSM).
 (Así reformado el punto anterior por el artículo 3°; inciso 9 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
 CR 065 Los segmentos de 1710 MHz a 1785 MHz y de 1805 MHz a 1880 MHz (banda de 1800 MHz) se atribuyen al servicio móvil para el desarrollo de sistemas IMT, los cuales deberán operar de acuerdo con la siguiente canalización (arreglo B4 de la recomendación UIT-R M.1036):
-[imagen]
 (Así reformada la nota CR 065 anterior por el artículo 4° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)
 CR 066 Se atribuye la banda de 1920 MHz a 2200 MHz de la siguiente forma: Segmentos 1920 MHz a 1980 MHz y de 2110 MHz a 2170 MHz, al servicio móvil para el desarrollo de sistemas IMT; y segmentos 1980 MHz a 2010 MHz y 2170 MHz a 2200 MHz, al servicio móvil por satélite para telefonía, esto último a condición de que se puedan migrar los enlaces de televisión que operan de 1990 MHz a 2110 MHz.
 (Así reformada la nota anterior por el artículo 4° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)
 CR 067 La banda de 1880 MHz a 1920 MHz es actualmente utilizada en el servicio fijo, no obstante se identifica para futuros despliegues de sistemas IMT, los cuales deberán operar de acuerdo con la siguiente canalización (arreglo B4 de la recomendación UIT-R M.1036):
-[imagen]
 Corresponderá al Poder Ejecutivo establecer la fecha de uso y atribución de esta banda para sistemas IMT.
 (Así reformada la nota CR 067 anterior por el artículo 4° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)
 CR 068 Los segmentos de 1920 MHz a 1980 MHz y de 2110 MHz a 2170 MHz se atribuyen al servicio móvil para el desarrollo de sistemas IMT, los cuales deberán operar de acuerdo con la siguiente canalización (arreglo B4 de la recomendación UIT-R M.1036):
-[imagen]
 (Así reformada la nota CR 068 anterior por el artículo 4° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)
 CR 069 De 1990-2010 y 2170-2200 MHz ha sido identificado por la UIT-R, según la Resolución 212 (Rev.CMR 07) para Telecomunicaciones Móviles Internacionales por satélite (IMT). El Poder Ejecutivo dispondrá el momento pertinente en que los enlaces de televisión deben de migrar para dar oportunidad a los servicios móviles por satélite.
 CR 070 La banda de 2010 MHz a 2025 MHz es actualmente utilizada en el servicio fijo para radioenlaces punto a punto en redes del servicio de radiodifusión, no obstante se identifica para futuros despliegues de sistemas IMT, los cuales deberán operar de acuerdo con la siguiente canalización (arreglo B4 de la recomendación UIT-R M.1036):
-[imagen]
 Corresponderá al Poder Ejecutivo establecer la fecha de uso y atribución de esta banda para sistemas IMT.
 (Así reformada la nota CR 070 anterior por el artículo 4° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)
 CR 070A El rango de frecuencias de 2025 MHz a 2110 MHz está atribuido para radioenlaces fijos de estaciones transportables para el transporte de señal de audio y video del servicio de televisión.
 (Así adicionada la nota anterior por el artículo 5° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)
 CR 071 El rango de 2200-2300 MHz es utilizado por enlaces fijos de conexión para centrales telefónicas rurales, con las excepciones de las concesiones otorgadas para enlaces de televisión.
 CR 072 El segmento de 2300 MHz a 2400 MHz (banda de 2300 MHz), se atribuye al servicio móvil para el desarrollo de sistemas IMT, los cuales deberán operar de acuerdo con la siguiente canalización (arreglo E1 de la recomendación UIT-R M.1036):
-[imagen]
 Por lo tanto, los procedimientos de reasignación para las frecuencias otorgadas a los concesionarios actuales en este segmento, deberán iniciarse a más tardar el 1° de enero de 2016.
 (Así reformada la nota CR 072 anterior por el artículo 4° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)
 CR 073 El rango de 2400-2483,5 MHz se atribuye como espectro de uso libre para la operación de redes públicas o privadas sujetas a las condiciones establecidas en el Adendum VII del presente PNAF.
@@ -132,18 +124,16 @@ CR 076 El rango de frecuencias de 3300 a 3400 MHz se atribuye a título primario
 CR 077 El rango de 3400-3625 MHz se atribuye para servicios de IMT.
 CR 078 Elsegmento de frecuencias de 3625 – 4200 MHz se atribuye para radioenlaces fijospara redes de transporte, canalizados conforme a las recomendaciones UIT-R F.635o UIT-R F.382 y para radioenlaces satelitales con estaciones terrenas en elservicio fijo por satélite (SFS). Este segmento es de asignación no exclusivaen el SFS. El servicio fijo no causará interferencias al SFS.
 (Asíreformado el punto anterior por el artículo 2° del decreto eejcutivo N° 36754del 1° de agosto de 2011)
-CR 079 El segmento de frecuencias de 4400 – 4900 MHz se atribuye para radioenlaces de redes públicas, y para radioenlaces de sistemas de telefonía móvil canalizado según la recomendación UIT-R F.1099. Estos segmentos de frecuencias son de asignación no exclusiva en el servicio fijo únicamente para concesionarios de algún segmento de las bandas identificadas en las notas CR 060, CR 065 o CR 068.
-El segmento de frecuencias de 4500 – 4800 MHz se atribuye para radioenlaces satelitales con estaciones terrenas del SFS y es de asignación no exclusiva para el SFS. El SFS no causará interferencias al servicio fijo.
-(Asíreformado el punto anterior por el artículo 2° del decreto ejecutivo N° 36754del 1° de agosto de 2011)
-CR 080 De 4900 a 5000 MHz se atribuye para enlaces de conexión de redes públicas y para enlaces de conexión de sistemas de telefonía móvil conforme la canalización UIT-R F.1099 y a título secundario como espectro de uso oficial para enlaces punto a punto de sistemas de seguridad, socorro, y emergencias de instituciones públicas comprometidas con dichas actividades. Estas frecuencias son de asignación no exclusiva únicamente para concesionarios de algún segmento de las bandas identificadas en las notas CR 060, CR 065 o CR 068.
-(Así reformado el punto anterior por el artículo 3°; inciso 14 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
+CR 079. El segmento de frecuencias de 4400 MHz a 5000 MHz se atribuye al servicio fijo para sistemas de radioenlaces canalizados según la Recomendación UIT-R F1099. Este segmento de frecuencias es de asignación no exclusiva en el servicio Fijo. El segmento de frecuencias de 4500 MHz a 4800 MHz es de asignación no exclusiva para el SFS. El SFS no debe causar interferencias al Servicio Fijo.
+(Así reformada la nota anterior por el artículo 1° del decreto ejecutivo N° 41458 del 6 de noviembre de 2018)
+CR 080 (Eliminada esta nota por el artículo 2° del decreto ejecutivo N° 41458 del 6 de noviembre de 2018)
 CR 081 Las siguientes bandas se atribuyen como frecuencias de uso libre: 40,66-40,70 MHz; 5150-5350 MHz; 5470-5825 MHz; 5725-5875 MHz; 24-24,25 GHz; 61-61,5 GHz; 122-123 GHz; 244-246 GHz, las cuales operarán sujetas a las condiciones establecidas en el Adendum VII del presente plan.
 (Así reformado el punto anterior por el artículo 3°; inciso 15 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
 CR 082 El servicio de radionavegación aeronáutica se limitará a los radares aeroportados y a las radiobalizas de a bordo asociadas.
 CR 083 Elsegmento de frecuencias de 5850 – 5925 MHz se atribuye para radioenlaces deredes públicas, para radioenlaces de sistemas de telefonía móvil y para elSFS. Estas frecuencias son de asignación no exclusiva en el SFS, y en elservicio fijo únicamente para concesionarios de algún segmento de las bandasidentificadas en las notas CR 060, CR 065 o CR068
 (Así reformado el punto anterior por el artículo 2° del decreto ejecutivo N° 36754del 1° de agosto de 2011)
-CR 084 El segmento de frecuenciasde 5925 MHz a 6425 MHz se atribuye para enlacessatelitales del SFS y pararadioenlaces terrestres de redes públicas o sistemasde telefonía móvil,canalizado según la recomendación UIT-R F.383. Lossegmentos de frecuencias de5925 MHz a 6134 MHz, de 6135 MHz a 6145 MHz, de 6154MHz a 6214 MHz, de 6218,50MHz a 6342,50 MHz y de 6347,50 MHz a 6425 MHz son deasignación no exclusiva enel servicio fijo únicamente para concesionarios dealgún segmento de las bandasidentificadas en las notas CR 060, CR 065 o CR068. El segmento de frecuencias de5925 MHz a 6450 MHz es de asignación noexclusiva en el SFS.
-(Así reformada la nota anterior por el artículo 4° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)
+CR 084“CR 084. El segmento de frecuencias de 5925 MHz a 6425 MHz (Banda L6 GHz) se atribuye al Servicio Fijo para sistemas de radioenlaces canalizados según la recomendación UIT-R F.383. Este segmento es de asignación no exclusiva en el SFS y en el Servicio Fijo. El SFS no debe causar ni reclamar interferencias al servicio Fijo.
+(Así reformada la nota anterior por el artículo 1° del decreto ejecutivo N° 41458 del 6 de noviembre de 2018 )
 CR 085 El segmento de 6425 MHz a 7110 MHz (banda U6) se utiliza, en el servicio fijo,para radioenlaces punto a punto en redes del servicio de radiodifusióntelevisiva y en redes de telecomunicaciones. Lo anterior, conforme con lacanalización de la recomendación UIT-R F.384. Este segmento se identifica comode asignación no exclusiva.
 (Así reformada la nota anterior por el artículo 4° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)
 CR 086 El segmento de 7110 MHz a 7425 MHz (parte de la banda de 7 GHz) se utiliza, en el servicio fijo, para radioenlaces punto a punto en redes del servicio de radiodifusión televisiva y en redes de telecomunicaciones. Lo anterior, conforme a la canalización de la recomendación UIT-R F.385. Este segmento se declara de asignación no exclusiva.
