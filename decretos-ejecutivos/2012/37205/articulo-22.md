@@ -1,3 +1,0 @@
-CAPÍTULO VII
-Órganos Coadyuvantes del Consejo
-Artículo 22.— Coadyuvancia de otros órganos creados en el Código de la Niñez y la Adolescencia. Las Juntas de Protección a la Niñez y la Adolescencia adscritas al PANI, en adelante “las Juntas”, y los Comités Tutelares de la Niñez y la Adolescencia adscritos a las asociaciones de desarrollo comunal, en adelante “los Comités”, como partes integrantes del Sistema Nacional de Protección Integral de los Derechos de los Niños, Niñas y Adolescentes, coordinarán sus actuaciones con el Consejo. El Consejo conocerá periódicamente sus planes de acción e informes de labores. Las Juntas remitirán copia al Consejo de todas las recomendaciones que formulen conforme al artículo 180 de la Ley 7739.

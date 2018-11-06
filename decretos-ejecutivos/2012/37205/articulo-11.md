@@ -1,1 +1,0 @@
-Artículo 11.—Asesores. Cada representante ante el Consejo tendrá la facultad de elegir un máximo de dos personas, quienes en calidad de asesores (as), podrán asistir a las sesiones del Consejo cuando sean requeridos y en estas tendrán voz pero no voto.

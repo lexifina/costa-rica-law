@@ -1,1 +1,0 @@
-Artículo 2º—Objetivo del Consejo dentro del Sistema. El Consejo tendrá como objetivo la coordinación y articulación entre las instancias que componen el Sistema Nacional de Protección Integral para garantizar los Derechos de las personas menores de edad.
