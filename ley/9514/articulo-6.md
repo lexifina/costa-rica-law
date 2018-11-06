@@ -10,3 +10,4 @@ Artículo 6°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 41224 del 11 de julio de 2018)
 (Reformado por el artículo 2° de la ley N° 9604 del 7 de setiembre de 2018)
 (Reformado por el artículo 3° de la ley N° 9604 del 7 de setiembre de 2018)
+(Modificado por el artículo 2° del decreto ejecutivo N° 41405 del 19 de octubre de 2018)
