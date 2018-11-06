@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2018
 
-Ley N° 9514 del 2017-11-28. SINALEVI, ficha 85518: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=85518&param2=114063&param3=1>.
+Ley N° 9514 del 2017-11-28. SINALEVI, ficha 85518: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=85518&param2=114065&param3=1>.
 
 Publicada en La Gaceta N° 237 del 2017-12-14.
 
@@ -27,3 +27,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 17 de 26 | 2018-10-17 | Ley 9604 | 2018-09-07 |
 | 18 de 26 | 2018-10-17 | Decreto Ejecutivo 41317 (2018-09-18) | 2018-09-18 |
 | 19 de 26 | 2018-11-06 | Decreto Ejecutivo 41343 (2018-10-01) | 2018-10-01 |
+| 20 de 26 | 2018-11-06 | Decreto Ejecutivo 41405 (2018-10-19) | 2018-10-19 |
