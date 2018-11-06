@@ -1,0 +1,1 @@
+Artículo 2º—Aquellos patronos físicos o jurídicos que hayan presentado su solicitud de inscripción en dicho registro en la Dirección General de Migración y Extranjería después del 10 de febrero del 2015 a la fecha, serán incluidos en este proceso.

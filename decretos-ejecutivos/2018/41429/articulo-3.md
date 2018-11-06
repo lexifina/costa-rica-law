@@ -1,0 +1,1 @@
+Artículo 3º—Durante el plazo de vigencia de este proceso extraordinario, no se aplicarán las multas dispuestas en el artículo 177 de la Ley General de Migración y Extranjería, a los patronos inscritos en este registro referido en el artículo 10 de este Decreto.
