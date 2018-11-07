@@ -32,3 +32,4 @@ EL AÑO 2019
 CAPÍTULO I
 Disposiciones generales
 Artículo 1º—Estas directrices serán aplicables a las entidades públicas, ministerios y órganos desconcentrados, cubiertos por el ámbito de la AP, sin perjuicio de lo establecido en otras disposiciones legales.
+(Mediante el artículo 1° del decreto ejecutivo N° 41432 del 7 de noviembre de 2018, se amplia para el Programa Integral de Mercadeo Agropecuario (PIMA), el gasto presupuestario máximo para el año 2019, en la suma de ¢2.427.396.937,59 (dos mil cuatrocientos veintisiete millones trescientos noventa y seis mil novecientos treinta y siete colones con cincuenta y nueve céntimos) para ese período.)

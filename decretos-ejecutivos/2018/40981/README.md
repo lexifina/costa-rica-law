@@ -14,3 +14,4 @@ Directrices Generales de Política Presupuestaria, Salarial, Empleo, Inversión 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-01-23 | la propia norma |
+| 2 | 2018-11-07 | Decreto Ejecutivo 41432 (2018-11-07) |
