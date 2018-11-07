@@ -23,4 +23,5 @@ Decretan:
 el Transporte Eléctrico”
 CAPÍTULO I
 Del Objeto, definiciones y acrónimos
-Artículo 1°—Del objeto. El presente decreto ejecutivo tiene por objeto reglamentar la organización administrativa y competencias institucionales vinculadas al estímulo del transporte eléctrico, por medio de incentivos económicos y no económicos definidos en la Ley de Incentivos y Promoción para el Transporte Eléctrico, Ley N° 9518 del 25 de enero de 2018.
+Artículo 1°.- Del objeto. El presente Reglamento tiene por objeto regular la promoción del transporte eléctrico, e incentivar su uso en el sector privado y público, dentro del territorio nacional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41428 del 7 de noviembre de 2018)

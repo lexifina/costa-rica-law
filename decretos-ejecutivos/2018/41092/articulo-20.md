@@ -1,2 +1,1 @@
-Artículo 20°.—Vigencia. El presente Reglamento rige a partir de su publicación en el Diario Oficial.
-Dado en la Presidencia de la República.—San José, el diez de abril del año dos mil dieciocho.
+Artículo 20°.—.-(Nota de Sinalevi: El texto de este artículo debe de ser consultado en el numeral 17, ya que por el artículo 2° del decreto ejecutivo N° 41428 del 7 de noviembre de 2018, se derogó los numerales10, 11 y 12 y se ordenó correr la numeración de los restantes artículos)

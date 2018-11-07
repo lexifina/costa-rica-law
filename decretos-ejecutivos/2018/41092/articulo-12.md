@@ -1,6 +1,4 @@
-Artículo 12.—Exoneración de impuestos para las partes de los centros de recarga.
-1. Las partes de los centros de recarga estarán exentos de los siguientes impuestos:
-a) Impuesto Selectivo de Consumo.
-b) Impuesto General sobre las Ventas.
-c) Impuesto sobre el valor aduanero (Ley N° 6879 modificada por la Ley N° 6946).
-2. Las partes de los centros de recarga que podrán ser exonerados serán aquellos que el MINAE defina en un Reglamento.
+Artículo 12.— Constancia de vehículo eléctrico. El Órgano Fiscalizador de Revisión Técnica del Consejo de Seguridad Vial, recibirá las solicitudes de exención vía Internet y revisará que los vehículos a exonerar sean eléctricos o cero emisiones y nuevos, conforme a la Ley N° 9518, con base en la competencia establecida en el inciso g) del artículo 5 de la mencionada Ley, y emitirá la constancia en un plazo no mayor a tres días hábiles a partir de su recibo.
+Para poder emitir la constancia, el Órgano Fiscalizador de Revisión Técnica del Consejo de Seguridad Vial consultará si el modelo del vehículo se encuentra previamente registrado como vehículo eléctrico; de no encontrarse, se solicitará la documentación necesaria por modelo que demuestre la condición de vehículo eléctrico.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41428 del 7 de noviembre de 2018)
+(Corrida la numeración por el artículo 2° del decreto ejecutivo N° 41428 del 7 de noviembre de 2018, que lo traspaso del antiguo artículo 15) al 12), ya que se ordenó derogar los numerales 10, 11 y 12 y correr la numeración de los restantes artículos.)
