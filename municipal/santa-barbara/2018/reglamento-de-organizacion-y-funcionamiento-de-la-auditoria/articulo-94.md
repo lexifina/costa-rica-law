@@ -1,0 +1,1 @@
+Artículo 94º- Incorporación de personal especializado. El Auditor o Auditor Interno debe gestionar -cuando se requiera- la incorporación de profesionales y técnicos de diferentes disciplinas, funcionarios o no de la Municipalidad de Santa Bárbara, para que lleven a cabo labores de su especialidad en apoyo a las auditorías que realice la Unidad a su cargo.

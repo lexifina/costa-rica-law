@@ -1,0 +1,1 @@
+Artículo 33º- Obligación de presentar declaración Jurada de Bienes. El auditor deberá cumplir con el requisito establecido en el artículo 21 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública Ley N°8422 de presentar declaración de Bienes

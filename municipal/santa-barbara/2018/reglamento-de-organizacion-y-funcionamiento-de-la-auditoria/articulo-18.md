@@ -1,0 +1,1 @@
+Artículo 18º- Modificaciones a la estructura orgánica de la Auditoría Interna. Las modificaciones a la estructura orgánica interna de la Auditoría requerirán de la aprobación expresa de la persona Auditor Interno y se comunicará a el Concejo Municipal de la Municipalidad de Santa Bárbara, para que ésta instruya a la Administración para la ejecución correspondiente.

@@ -1,0 +1,1 @@
+Artículo 27º- Establecimiento de las funciones para el cargo de Auditor Interno Las funciones de los cargos de Auditor Interno deben estar definidas en el Manual Descriptivo de Clases y Cargos de la Municipalidad de Santa Bárbara de conformidad con lo resuelto por la Contraloría General de la República sobre el particular.

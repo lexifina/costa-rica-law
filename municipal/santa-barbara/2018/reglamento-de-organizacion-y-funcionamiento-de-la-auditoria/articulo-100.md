@@ -1,0 +1,1 @@
+Artículo 100º- Derogatoria del reglamento anterior. El presente Reglamento, aprobado por el Concejo Municipal de la Municipalidad de Santa Bárbara mediante Acuerdo No2323-2018, Sesión No118-2018 del 06 de agosto del 2018, deroga el Reglamento de Organización y Funcionamiento de la Auditoría, aprobado según Acuerdo No. 976-07, tomado en la sesión N.º 58 del 05 de junio del 2007

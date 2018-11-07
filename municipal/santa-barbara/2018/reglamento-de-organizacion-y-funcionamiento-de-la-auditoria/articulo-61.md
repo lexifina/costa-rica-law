@@ -1,0 +1,1 @@
+Artículo 61º- Informes de relación de hechos. Es un informe que compila una serie de hechos, actos, acciones y omisiones, que se encuentran ligados por un nexo de causalidad a una falta de carácter administrativo o a la determinación de responsabilidades, y que se constituye como un insumo para la acreditación de dichas responsabilidades

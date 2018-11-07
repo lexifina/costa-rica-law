@@ -1,0 +1,1 @@
+Artículo 81º- Control de ejecución del Plan Anual de Trabajo. El auditor interno y el personal designado, deben ejercer un control continuo de la ejecución del de trabajo anual, en procura de la debida medición de resultados, la detección oportuna de eventuales desviaciones y la adopción de las medidas correctivas pertinentes.
