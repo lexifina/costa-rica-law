@@ -1,0 +1,1 @@
+7. Por las razones de interés público explicadas en los considerandos de este acuerdo, no remitir en consulta las modificaciones al Reglamento de Sistema de Pagos y a las Regulaciones de Política Monetaria indicadas en los puntos anteriores, de conformidad con lo estipulado en el inciso 2 del artículo 361 de la Ley General de la Administración Pública.
