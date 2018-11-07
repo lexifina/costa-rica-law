@@ -1,2 +1,0 @@
-Artículo 9º—Se insta a todas las entidades del Sector Ambiente y Energía, y las entidades públicas en general, a fin de que incursionen en proveer, instalar, desarrollar, ajustar, modernizar y actualizar la infraestructura, instalaciones y equipamiento necesario para la efectiva operación y mantenimiento, así como la recarga de los vehículos eléctricos, híbridos, gas natural y gas de petróleo licuado.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 37822 del 17 de julio de 2013)

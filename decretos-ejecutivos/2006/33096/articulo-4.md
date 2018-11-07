@@ -1,2 +1,0 @@
-Artículo 4º—Los vehículos híbrido-eléctricos nuevos de las partidas arancelarias 8703 y 8704, podrán contar con una reducción de la tarifa de veinte puntos porcentuales en el Impuesto Selectivo de Consumo, siempre que el importador presente ante la Administración Aduanera una constancia emitida por el MINAE de que los mismos cumplen con las características establecidas en el artículo 7de este decreto.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 37822 del 17 de julio de 2013)
