@@ -1,0 +1,1 @@
+Artículo 38.—El Teletrabajador, debe cumplir con la jornada laboral de la Municipalidad, con la finalidad que no afecte el normal desarrollo de las actividades de la Unidad o Jefatura a la que pertenece, ni de otros procesos o servicio al usuario.

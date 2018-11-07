@@ -1,0 +1,1 @@
+Artículo 53.—La Unidad de Tecnología de la Municipalidad, es la responsable de aprobar el teletrabajador y recomendar las acciones que permitan dispositivos, enlaces y software para realizar las labores de teletrabajo.
