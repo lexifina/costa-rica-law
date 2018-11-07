@@ -1,0 +1,5 @@
+Artículo 2°. - Definiciones y abreviaturas.
+a) Salud Mental: La salud mental se entiende como un proceso de bienestar y desempeño personal y colectivo caracterizado por la autorrealización, la autoestima, la autonomía, la capacidad para responder a las demandas de la vida en diversos contextos: familiares, comunitarios, académicos, laborales y disfrutar de la vida en armonía con el ambiente.
+b) STSM: Secretaría Técnica de Salud Mental. Es un órgano técnico, adscrito al Despacho del Ministro de Salud, cuyo objetivo es abordar de forma integral el tema de la salud mental, desde la perspectiva del ejercicio de la Rectoría del Sistema Nacional de Salud, con la participación de otras instituciones públicas y privadas, la sociedad civil organizada y la comunidad académica y científica.
+c) CNSM: Consejo Nacional de Salud Mental. Es un órgano deliberativo y decisor que apoya al Despacho Ministerial y con la asesoría técnica de la Secretaría Técnica de Salud Mental, en la formulación y la evaluación de las políticas, los planes, los programas y los proyectos de salud mental.
+d) MS: Ministerio de Salud.

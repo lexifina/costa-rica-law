@@ -1,0 +1,1 @@
+Artículo 44 °. – Enlace. Los Sistemas Locales de Redes de Salud Mental contarán con un Enlace Local de Salud Mental, quien será funcionario del Ministerio de Salud, delegado por la Dirección de Área Rectora de Salud, encargado de coordinar el desarrollo del Programa Nacional de Salud Mental y del Plan Institucional de Salud Mental a Nivel Local.

@@ -1,0 +1,1 @@
+Artículo 23°. - Actas. De cada sesión del Consejo Nacional de Salud Mental se levantará un acta, que incluirá el nombre de las personas asistentes, el lugar y el tiempo en que se celebró la reunión, los puntos principales de la deliberación, los resultados de la votación y el contenido de los acuerdos.

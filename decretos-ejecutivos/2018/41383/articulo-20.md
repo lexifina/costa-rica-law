@@ -1,0 +1,7 @@
+Artículo 20°. - Funciones del Consejo Nacional de Salud Mental: El Consejo Nacional de Salud Mental tendrá las siguientes funciones:
+a) Apoyar al Despacho Ministerial y a la Secretaría Técnica de Salud Mental, en la formulación y la evaluación de las políticas, los planes, los programas y los proyectos de salud mental.
+b) Establecer los mecanismos de coordinación, conducción y dirección política de Salud Mental, con los diferentes actores del Sistema Nacional de Salud.
+c) Definir los mecanismos de modulación del financiamiento para impulsar las acciones de promoción de la salud, prevención, atención y rehabilitación en el Sistema Nacional de Salud, los cuales estarán orientados a los problemas de salud mental, tales como depresión, suicidio, esquizofrenia, adicciones a las drogas y el alcohol, el matonismo escolar, el acoso laboral, y el apoyo necesario al grupo familiar.
+d) Gestionar el desarrollo y apoyar las investigaciones científicas en salud mental en Costa Rica, con el fin de conocer la situación de esta problemática y obtener un diagnóstico actualizado.
+e) Promover y apoyar el desarrollo de un foro nacional de salud mental anual sobre rendición de cuentas de los diferentes actores sociales, promoviendo la participación social, la representatividad, la inclusión y la diversidad de las acciones en salud mental realizadas por las Instituciones representadas en este Consejo.
+f) Velar por la ejecución y aplicación de la Política, Plan y Normativa de Salud Mental, de acuerdo a la competencia de cada institución.

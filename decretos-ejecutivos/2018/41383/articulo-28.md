@@ -1,0 +1,1 @@
+Artículo 28°. – Quórum. La Comisión Interinstitucional de Salud Mental podrá sesionar, válidamente, con la mitad más uno del total de sus integrantes. Si no hubiera quórum, podrá sesionar después de media hora con la tercera parte de sus miembros.

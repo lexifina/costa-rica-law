@@ -1,0 +1,1 @@
+Artículo 40 °. – Enlace. Los Sistemas Regionales de Redes de Salud Mental contarán con un Enlace de Salud Mental, quien será funcionario del Ministerio de Salud, delegado por la Dirección Regional de Rectoría de la Salud, encargado de coordinar el desarrollo del Programa Nacional de Salud Mental y del Plan Institucional de Salud Mental a Nivel Regional.

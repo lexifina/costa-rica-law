@@ -1,0 +1,1 @@
+Artículo 27°. – Sesiones. La Comisión Interinstitucional de Salud Mental se reunirá ordinariamente cada mes y extraordinariamente por solicitud de la Dirección Técnica de la Secretaría Técnica de Salud Mental, cuando se requiera con exposición razonada de motivos.

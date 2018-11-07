@@ -1,0 +1,1 @@
+Artículo 5°. - Organización. La Secretaría Técnica de Salud Mental estará constituida por la Dirección Técnica, apoyada por un equipo técnico profesional y gestión administrativa, de acuerdo con las funciones que le competen por ley.

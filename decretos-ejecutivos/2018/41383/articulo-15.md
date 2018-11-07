@@ -1,0 +1,1 @@
+Artículo 15°. - Asesoría: El CNSM podrá contar con la Asesoría de la Dirección de Asuntos Jurídicos. Asimismo, podrá avalar la presencia de otros asesores, con voz, pero sin voto, para ayudar en el análisis de los temas que se estimen pertinentes.

@@ -1,0 +1,1 @@
+Artículo 35°. – Convocatoria a sesiones. Para las sesiones ordinarias se establecerá un cronograma de reuniones y no hará falta la convocatoria por escrito. Para las sesiones extraordinarias es necesario una convocatoria por escrito, que incluirá el orden del día, que deberá hacerse con una antelación mínima de cuarenta y ocho horas, excepto en caso de urgencia.
