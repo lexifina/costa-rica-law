@@ -29,3 +29,4 @@ Reglamento para las Operaciones Cambiarias de Contado
 | 14 | 2017-03-15 | Reglamento 5762 (2017-03-15) |
 | 15 | 2017-06-07 | Reglamento 5772 (2017-06-07) |
 | 16 | 2017-06-16 | Reglamento 5774 (2017-06-16) |
+| 17 | 2018-11-07 | Reglamento 5852 (2018-11-07) |
