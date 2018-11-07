@@ -1,0 +1,1 @@
+Artículo 13.—Los gastos en que se incurra por la aplicación de este Reglamento, serán liquidados dentro del término a que se refiere el Reglamento de Caja Chica del Teatro Popular Mélico Salazar y sus Programas. Rige a partir de su publicación.
