@@ -1,0 +1,2 @@
+Artículo 21.—De la sanción por el no pago de la multa: La multa contemplada en el artículo anterior podrá ser cancelada dentro de las 48 horas siguientes en las cajas recaudadoras de la Municipalidad o en la forma y lugar de pago que la Municipalidad establezca.
+La no cancelación de la multa en el plazo establecido genera un recargo del dos por ciento mensual que no podrá en ningún caso exceder del 24% del monto adeudado.

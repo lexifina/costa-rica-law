@@ -1,0 +1,1 @@
+Artículo 3º—Atribuciones de la Municipalidad: La Municipalidad de Quepos tendrá a su cargo la administración y control del sistema de estacionamientos, designará las zonas, calles, avenidas y demás espacios públicos que se destinarán al aparcamiento de vehículos dentro de las vías públicas de cantón de Quepos.
