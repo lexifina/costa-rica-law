@@ -14,3 +14,4 @@ Reglamento para el uso, mantenimiento y control de vehículos y maquinaria agrí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-09-14 | la propia norma |
+| 2 | 2018-11-08 | Reglamento 25 (2018-11-08) |
