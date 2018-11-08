@@ -1,0 +1,2 @@
+Artículo 5º—Instancia responsable. La Dirección Ejecutiva, con el apoyo de las correspondientes instancias administrativas y de tecnologías de información, deberá desarrollar las acciones para que, ya sea con medios propios o a través de esquemas contractuales, se ponga a disposición del Consejo una plataforma tecnológica que permita dar cumplimiento a los principios, medio tecnológico permitido y demás disposiciones de este Reglamento.
+La solución tecnológica deberá contar con la aprobación del Consejo, de previo a su desarrollo e implementación.

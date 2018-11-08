@@ -1,0 +1,2 @@
+Artículo 9º—Asuntos no susceptibles de tramitación. No podrán ser conocidos en este tipo de sesiones, asuntos que por su naturaleza o por disposición legal o reglamentaria, estén reservados a sesiones presenciales regulares.
+En los casos en los que al menos tres miembros del Consejo se opongan al conocimiento de alguno de los asuntos propuestos en la agenda de la sesión virtual, el mismo se tendrá por postergado para ser conocido en la sesión presencial inmediata siguiente.
