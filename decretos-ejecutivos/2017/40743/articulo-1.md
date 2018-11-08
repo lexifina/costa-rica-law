@@ -1,4 +1,6 @@
+(Derogado)
 N° 40743-MTSS
+(Este decreto ejecutivo fue derogado por el artículo 8° del decreto ejecutivo N° 41434 del 8 de noviembre de 2018, “Fijación de salarios mínimos para el sector privado que regirán a partir del 1º de enero del 2019 (Aumento Salarial Sector Privado año 2019)”)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
 En ejercicio de las potestades conferidas en el artículos 140, incisos 3) y 18) y 146 de la Constitución Política y la Ley Nº 832 del 4 de noviembre de 1949 y sus reformas.

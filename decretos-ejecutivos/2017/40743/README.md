@@ -18,3 +18,4 @@ Fijación de salarios mínimos para el sector privado que regirán a partir del 
 | 3 | 2018-01-01 | Resolución 4 (2017-12-04) |
 | 4 | 2018-02-19 | Resolución 1 (2018-02-19) |
 | 5 | 2018-08-13 | Resolución 3 (2018-08-13) |
+| 6 | 2018-11-08 | Decreto Ejecutivo 41434 (2018-11-08) |
