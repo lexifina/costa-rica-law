@@ -1,0 +1,1 @@
+Artículo 29.—Ante cualquier dicotomía en el “Reglamento de Gastos de Viaje, Transporte, kilometraje y otros afines, aplicables a los funcionarios de la Municipalidad de Buenos Aires”, prevalecerá lo establecido en el Reglamento de Gastos de Viaje y de Transporte de la CGR, su última versión y se aplicará lo que indique el mismo.

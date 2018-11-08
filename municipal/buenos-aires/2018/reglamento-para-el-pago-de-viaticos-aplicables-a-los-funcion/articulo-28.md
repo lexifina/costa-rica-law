@@ -1,0 +1,1 @@
+Artículo 28.—El cumplimiento de lo establecido en este reglamento, está sujeto a la asignación del contenido presupuestario que la Administración deberá incluir en el presupuesto ordinario, extraordinario o modificaciones, en la partida correspondiente, de conformidad con las tarifas de ARESEP y la Contraloría General de la República.

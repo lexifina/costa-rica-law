@@ -1,0 +1,3 @@
+CAPÍTULO VI
+del pago de viáticos a Regidores y Síndicos Municipales
+Artículo 20.—Cuando algún regidor o síndico municipal sea nombrado por acuerdo municipal, para atender asuntos propios de su investidura y ello implique un desplazamiento fuera del Cantón de Buenos Aires, el Concejo Municipal autorizará el pago de viáticos con sustento en lo que se establece en el presente Reglamento así como lo dispuesto por la Contraloría General de la República al respecto. Estos viáticos se tramitarán según la presentación de la liquidación de viáticos y la Secretaria del Concejo hará la solicitud y transcribirá el acuerdo correspondiente a efecto de que el Señor Alcalde proceda como corresponde.

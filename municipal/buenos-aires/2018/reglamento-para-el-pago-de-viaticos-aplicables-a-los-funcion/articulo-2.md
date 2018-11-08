@@ -1,0 +1,1 @@
+Artículo 2º—Funcionarios de la Municipalidad. Se entiende por funcionarios de la Municipalidad los conformados por el Concejo Municipal, por el Alcalde, Vicealcalde primero y Vicealcalde segundo, regidores, síndicos, propietarios y suplentes y todos (as) los funcionarios (as) de planilla administrativa u operativa.

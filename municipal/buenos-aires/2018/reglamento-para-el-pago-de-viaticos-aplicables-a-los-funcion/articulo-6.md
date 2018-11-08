@@ -1,0 +1,1 @@
+Artículo 6º—Oportunidad de gasto. Deberá existir una estrecha relación entre el motivo de viaje y la naturaleza que genera la erogación o si esto representa un cambio en el quehacer cotidiano del funcionario o el Concejal.

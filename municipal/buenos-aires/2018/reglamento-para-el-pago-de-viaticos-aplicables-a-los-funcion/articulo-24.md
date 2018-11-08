@@ -1,0 +1,1 @@
+Artículo 24.—La información consignada en la liquidación de gastos de transporte, hospedaje y alimentación tiene el carácter de declaración jurada, o sea que esta es una relación cierta de los gastos incurridos.
