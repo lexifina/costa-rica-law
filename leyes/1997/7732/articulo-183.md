@@ -1,10 +1,8 @@
-ARTÍCULO 183.- Beneficiarios
-En las cuentas corrientes y de ahorros y en los certificados de
-depósito y valores emitidos en forma nominativa por las entidades sujetas
-a la fiscalización de la Superintendencia General de Entidades
-Financieras, el titular podrá designar beneficiarios para el caso de
-muerte, quienes, cuando esta ocurra y con solo comprobarla, asumirán de
-pleno derecho y sin necesidad de trámites judiciales o administrativos la
-propiedad del título o de los fondos de la cuenta, según sea el caso, para
-lo cual solo requerirán su identificación como tales y, si fueren menores,
-la de sus representantes.
+Artículo 183- Beneficiarios. El titular podrá designar beneficiarios en caso de muerte. Cuando esta ocurra, los beneficiarios, con solo comprobar el fallecimiento del titular, asumirán de pleno derecho y sin necesidad de trámites judiciales o administrativos su propiedad. Requerirá únicamente su identificación y, si fueran menores, la de sus representantes.
+Podrán nombrarse beneficiarios:
+a) En las cuentas corrientes y de ahorros, así como en los certificados de depósito y valores nominativos e individuales de los clientes, en entidades sujetas a la fiscalización de la Superintendencia General de Entidades Financieras (Sugef).
+b) En las cuentas de custodia de valores y de efectivo de los clientes, en entidades sujetas a la fiscalización de la Superintendencia General de Entidades Financieras (Sugef) o de la Superintendencia General de Valores (Sugeval).
+c) En las participaciones emitidas por los fondos de inversión sujetos a la fiscalización de la Superintendencia General de Valores (Sugeval).
+d) En todos aquellos valores emitidos, de forma física, correspondientes a emisiones autorizadas por la Superintendencia General de Valores (Sugeval). En este caso, la designación del beneficiario cesará de forma inmediata, cuando por instrucción del titular el valor sea ofrecido en cualquier transacción que implique cambio de titularidad.
+Si las cuentas de custodia o los valores a que se refiere el presente artículo han sido dados en garantía a un tercero, los beneficiarios podrán hacer efectivo su derecho hasta que se haya procedido con su liberación.
+(Así reformado por el artículo único de la ley N° 9607 del 14 de setiembre de 2018)
