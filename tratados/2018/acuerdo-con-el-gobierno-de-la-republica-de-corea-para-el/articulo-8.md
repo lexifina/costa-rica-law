@@ -1,0 +1,4 @@
+Artículo 8
+Confidencialidad
+Toda información recibida por una Parte contratante al amparo del presente Acuerdo se tratará como confidencial y solo podrá comunicarse a las personas o autoridades (incluidos los tribunales y órganos administrativos) bajo la jurisdicción de la Parte contratante encargadas de la gestión o recaudación de los impuestos comprendidos en el presente Acuerdo, de los procedimientos declarativos o ejecutivos relativos a dichos impuestos o de la resolución de los recursos relativos a los mismos. Dichas personas o autoridades sólo utilizarán esa información para dichos fines.
+Podrán revelar la información en procedimientos judiciales públicos o en las sentencias judiciales. La información no podrá comunicarse a ninguna otra persona, entidad, autoridad o a cualquier otra jurisdicción sin el expreso consentimiento por escrito de la autoridad competente de la Parte requerida.
