@@ -1,1 +1,0 @@
-Artículo 15 — Sobre las notificaciones. La Vicerrectoría de Vida Estudiantil y las Direcciones de Vida Estudiantil utilizarán el correo electrónico institucional del estudiante y otros medios disponibles para notificar garantizando una comunicación adecuada a los estudiantes de los procesos relacionados a becas, préstamos y otros beneficios estudiantiles.

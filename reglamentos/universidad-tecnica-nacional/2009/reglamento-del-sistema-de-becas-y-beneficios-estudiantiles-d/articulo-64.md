@@ -1,1 +1,0 @@
-Artículo 64—Solicitud de las Residencias Estudiantiles. Este beneficio puede ser solicitado por cualquier estudiante regular, en el periodo calendarizado institucionalmente. Los requisitos, posibilidades y restricciones se regulan en el reglamento respectivo.

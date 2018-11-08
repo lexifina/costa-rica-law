@@ -1,1 +1,0 @@
-Artículo 3 — Los beneficios estudiantiles. Se entenderá por beneficio estudiantil el derecho que tienen los estudiantes a que la Universidad les otorgue diferentes apoyos socioeconómicos que faciliten su permanencia exitosa en la universidad, conforme este Reglamento.

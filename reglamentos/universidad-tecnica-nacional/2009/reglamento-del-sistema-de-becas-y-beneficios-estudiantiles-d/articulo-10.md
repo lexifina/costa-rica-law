@@ -1,4 +1,0 @@
-CAPÍTULO III
-DISPOSICIONES GENERALES DE LAS BECAS Y LOS BENEFICIOS ESTUDIANTILES
-Artículo 10 — Solicitud de la Beca y Beneficios Estudiantiles.
-Cualquier estudiante admitido en la Universidad Técnica Nacional o estudiante regular de la institución, tendrá derecho a realizar la solicitud de beca y de los beneficios estudiantiles descritos, según las regulaciones establecidas en este Reglamento. Para ese fin, el estudiante debe cumplir con todos los procedimientos y los plazos definidos por las dependencias correspondientes, según lo dispuesto en este Reglamento. Como caso de excepción debidamente justificado por el área de Trabajo Social, las Direcciones de Vida Estudiantil de las Sedes podrán autorizar al estudiante realizar una solicitud de beca o beneficio estudiantil en forma extemporánea.

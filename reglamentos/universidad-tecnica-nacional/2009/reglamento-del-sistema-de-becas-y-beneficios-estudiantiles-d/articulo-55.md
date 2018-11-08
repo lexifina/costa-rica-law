@@ -1,1 +1,0 @@
-Artículo 55—Adjudicación de beneficios estudiantiles. El área de Trabajo Social de la Dirección de Vida Estudiantil de cada Sede será la encargada de efectuar los estudios correspondientes y realizar la respectiva recomendación a la Dirección de Vida Estudiantil de acuerdo a las solicitudes efectuadas y respaldadas en los estudios socioeconómicos de cada situación.

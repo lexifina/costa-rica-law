@@ -1,1 +1,0 @@
-Artículo 36 —Simultaneidad de la beca. Un estudiante puede realizar solicitud de beca socioeconómica simultáneamente hasta para dos carreras y ésta tendrá la misma vigencia y estará disponible siempre y cuando cumpla con los requisitos establecidos para cada una de esas carreras.

@@ -1,1 +1,0 @@
-Artículo 25 — Pagos obligatorios. El pago por concepto de Matrícula, Cuota de Vida Estudiantil, Póliza Estudiantil, Carné y Fondo de Garantía de Residencias no están sujetos a ningún tipo de exoneración.

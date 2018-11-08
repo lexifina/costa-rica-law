@@ -1,1 +1,0 @@
-Artículo 9 — Presupuesto de los préstamos estudiantiles. El presupuesto destinado a préstamos estudiantiles provendrá de un fondo especial de la Universidad Técnica Nacional y estará regulado según la reglamentación y procedimientos definidos para ello.

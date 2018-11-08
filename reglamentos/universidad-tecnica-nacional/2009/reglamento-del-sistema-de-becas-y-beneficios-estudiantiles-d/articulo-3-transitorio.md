@@ -1,2 +1,0 @@
-Transitorio III.
-Para efectos de beca, los grupos de representación que hayan sido designados como grupos de representación de sede, tendrán un plazo máximo de dos años a partir de la publicación de este Reglamento, para concursar y ser designados como grupos de representación de la Universidad, previo cumplimiento de los procedimientos que defina la Vicerrectoría de Vida Estudiantil. De no aprobarse su designación como grupo de representación de la Universidad, se determinará su disolución.

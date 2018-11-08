@@ -1,1 +1,0 @@
-Artículo 46 —Beca por participación en grupos oficiales de representación de la Universidad Técnica Nacional. A los estudiantes que participen en grupos oficiales que ostenten la representación de la Universidad Técnica Nacional, se les otorga la exoneración total del pago de aranceles referidos a créditos.
