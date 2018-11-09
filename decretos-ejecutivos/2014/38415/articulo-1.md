@@ -28,7 +28,6 @@ RESUELVE:
 2. La presente Resolución entrará en vigencia el 17 de julio de 2014 y será publicada por los Estados Parte.
 3. No obstante lo establecido en el numeral anterior, la presente Resolución no entrará en vigor para Panamá, hasta que este Consejo emita el acto administrativo correspondiente.
 Centroamérica, 17 de enero de 2014.
-[imagen]
 infrascrita Secretaria General de la Secretaría de Integración Económica Centroamericana (SIECA) CERTIFICA: Que las dos (2) fotocopias que anteceden a la presente hoja de papel bond, impresas únicamente en su anverso, así como las treinta y siete (37) del anexo adjunto, impresas únicamente en su anverso , rubricadas y selladas con el sello de la SIECA , reproducen fielmente la Resolución No. 338-2014 (COMIECO-EX), adoptada por el Consejo de Ministros de Integración Económica, por medio del sistema de videoconferencia, el diecisiete de enero de dos mil catorce, de cuyos originales se reprodujeron . Y para remitir a los Estados Parte para su correspondiente publicación, extiendo la presente copia certificada en la ciudad de Guatemala, el tres de febrero de dos mil catorce . ------------------------------
 Carmen Gisela Vergara
 Secretaria General
@@ -146,15 +145,15 @@ Para el funcionario:
 (7) Descripción del envío: Nombre común, Nombre científico y uso previsto .
 (8) Cantidad: Consignar la cantidad según la presentación del envío (por ejemplo: empaques, bultos, cajas, embalajes o unidades, entre otros) que se pretende importar.
 (9) Peso neto: Peso o volumen del envío que se pretende importar, expresado de acuerdo con el Sistema Métrico Decimal.
-(10) Requisitos sanitarios: son los requisitos de cumplimiento obligatorio para que el envío pueda ingresar al Estado Parte como lo expresa el ordenamiento jurídico vigente, los cuales deberán ser comunicados al país exportador.
-(11) Fecha de emisión: fecha en que se emite el Aviso de Ingreso.
-(12) Fecha de vencimiento: fecha en que caduca el Aviso de Ingreso.
-(13) Funcionario que emite: funcionario autorizado para emitir el Aviso de Ingreso.
-(14) Oficina que emite: oficina donde se emite el Aviso de Ingreso.
-(15) Inspector: Nombre del funcionario de Cuarentena Agropecuaria que realiza la inspección del envío en el Puesto de Cuarentena Agropecuaria .
-(16) Firma: firma del funcionario de Cuarentena Agropecuaria que realiza la inspección del envío.
-(17) Fecha de inspección: fecha cuando se realiza la inspección del envío en el Puesto de Cuarentena Agropecuaria.
-(18) Sello Oficial: sello oficial del Puesto de Cuarentena Agropecuaria (incluir este término dentro de las definiciones del manual de cuarentena agropecuaria).
+(10)Requisitos sanitarios: son los requisitos de cumplimiento obligatorio para que el envío pueda ingresar al Estado Parte como lo expresa el ordenamiento jurídico vigente, los cuales deberán ser comunicados al país exportador.
+(11)Fecha de emisión: fecha en que se emite el Aviso de Ingreso.
+(12)Fecha de vencimiento: fecha en que caduca el Aviso de Ingreso.
+(13)Funcionario que emite: funcionario autorizado para emitir el Aviso de Ingreso.
+(14)Oficina que emite: oficina donde se emite el Aviso de Ingreso.
+(15)Inspector: Nombre del funcionario de Cuarentena Agropecuaria que realiza la inspección del envío en el Puesto de Cuarentena Agropecuaria .
+(16)Firma: firma del funcionario de Cuarentena Agropecuaria que realiza la inspección del envío.
+(17)Fecha de inspección: fecha cuando se realiza la inspección del envío en el Puesto de Cuarentena Agropecuaria.
+(18)Sello Oficial: sello oficial del Puesto de Cuarentena Agropecuaria (incluir este término dentro de las definiciones del manual de cuarentena agropecuaria).
 ANEXO II
 AVISO DE INGRESO PARA ENVIOS
 LOGODELA INSTITUCION | República de _ Ministerio de Agricultura y Ganadería Servicio_____________ Departamento de Cuarentena Vegetal | LOGO
@@ -179,18 +178,17 @@ Para el funcionario:
 (7) Descripción del envío: Nombre común, Nombre científico y uso previsto .
 (8) Cantidad: Consignar la cantidad según la presentación del envío (por ejemplo: empaques, bultos, cajas, embalajes o unidades, entre otros) que se pretende importar.
 (9) Peso neto: Peso o volumen del envío que se pretende importar, expresado de acuerdo con el Sistema Métrico Decimal.
-(10) Requisitos fitosanitarios: son los requisitos de cumplimiento obligatorio para que el envío pueda ingresar al Estado Parte como lo expresa el ordenamiento jurídico vigente, los cuales deberán ser comunicados al país exportador.
-(11) Fecha de emisión: fecha en que se emite el Aviso de Ingreso.
-(12) Fecha de vencimiento: fecha en que caduca el Aviso de Ingreso.
-(13) Funcionario que emite: funcionario autorizado para emitir el Aviso de Ingreso.
-(14) Oficina que emite: oficina donde se emite el Aviso de Ingreso.
-(15) Inspector: Nombre del funcionario de Cuarentena Agropecuaria que realiza la inspección del envío en el Puesto de Cuarentena Agropecuaria.
-(16) Firma: firma del funcionario de Cuarentena Agropecuaria que realiza la inspección del envío.
-(17) Fecha de inspección: fecha cuando se realiza la inspección del envío en el Puesto de Cuarentena Agropecuaria.
-(18) Sello Oficial: sello oficial del Puesto de Cuarentena Agropecuaria (incluir este término dentro de las definiciones del manual de cuarentena agropecuaria).
+(10)Requisitos fitosanitarios: son los requisitos de cumplimiento obligatorio para que el envío pueda ingresar al Estado Parte como lo expresa el ordenamiento jurídico vigente, los cuales deberán ser comunicados al país exportador.
+(11)Fecha de emisión: fecha en que se emite el Aviso de Ingreso.
+(12)Fecha de vencimiento: fecha en que caduca el Aviso de Ingreso.
+(13)Funcionario que emite: funcionario autorizado para emitir el Aviso de Ingreso.
+(14)Oficina que emite: oficina donde se emite el Aviso de Ingreso.
+(15)Inspector: Nombre del funcionario de Cuarentena Agropecuaria que realiza la inspección del envío en el Puesto de Cuarentena Agropecuaria.
+(16)Firma: firma del funcionario de Cuarentena Agropecuaria que realiza la inspección del envío.
+(17)Fecha de inspección: fecha cuando se realiza la inspección del envío en el Puesto de Cuarentena Agropecuaria.
+(18)Sello Oficial: sello oficial del Puesto de Cuarentena Agropecuaria (incluir este término dentro de las definiciones del manual de cuarentena agropecuaria).
 ANEXO III
 (Ministerio) (Dirección) (Departamento)
-[imagen]
 INSTRUCTIVO
 CERTIFICADO FITOSANITARIO
 (1) Lugar de expedición: El nombre del lugar donde se elabora el documento .
@@ -231,7 +229,6 @@ Nombre del barco .
 (34) Fecha: Día en que se resuelve el ingreso del envío.
 (35) Sello: Logo oficial de la entidad oficial del país importador.
 ANEXO IV
-[imagen]
 INSTRUCTIVO
 CERTIFICADO SANITARIO OFICIAL DE ANIMALES, PRODUCTOS Y
 SUBPRODUCTOS Y ALIMENTOS CONCENTRADOS PARA ANIMALES
@@ -256,79 +253,22 @@ SUBPRODUCTOS Y ALIMENTOS CONCENTRADOS PARA ANIMALES
 (19) Nombre del Funcionario Oficial Responsable: nombre del funcionario oficial que suscribe el Certificado Sanitario
 (20) Firma del Funcionario Oficial Responsable: Rubrica del funcionario oficial que suscribe el certificado Sanitario.
 (21) Sello: Emblema de la autoridad sanitaria oficial competente, que se estampa en el documento para autorizarlo.
-ANEXO V
+(*)ANEXO V
 LISTADO DE PRODUCTOS CATEGORIZADOS SALUD ANIMAL
+(*) (Mediante el numeral 1° de la parte dispositiva de la resolución N°404-2018 (COMIECO-LXXXIII) de 28/06/2018 modificar por sustitución total los anexos V y VI de Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envíos y Mercancías
+Centroamericanas, aprobada mediante decreto ejecutivo N° 41506 del 9 de noviembre del 2018, se reforma por sustitución total el anexo V anterior.)
 [imagen]
 [imagen]
 [imagen]
 [imagen]
 [imagen]
-Código SAC del envío | Nombre del envío | Nombre científico | Tipo de Presentación | Categorías | | | Excepciones
-| | | | A | B | C |
-04.02 | Leche en polvo | | | | | X |
-04.01 04.02 | Leche pasteurizada | | | | X | |
-2202.90.90 (Así reformado el código anterior por el artículo 2° del decreto ejecutivo N° 39312 del 20 de agosto del 2015 Publica Resolución N° 361-2015 (COMIECO-LXXI) y Resolución N° 364-2015 (COMIECO-LXXI) del 23/04/2015 modificaciones "Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envío y Mercancías Centroamericanas" Resolución N° 338-2014) | Leche pasteurizada saborizada (bebidas a base de leche, con sabores) (Así reformado el nombre anterior por el artículo 2° del decreto ejecutivo N° 39312 del 20 de agosto del 2015 Publica Resolución N° 361-2015 (COMIECO-LXXI) y Resolución N° 364-2015 (COMIECO-LXXI) del 23/04/2015 modificaciones "Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envío y Mercancías Centroamericanas" Resolución N° 338-2014) | | | | X (Así reformada la categoría anterior por el artículo 2° del decreto ejecutivo N° 39312 del 20 de agosto del 2015 Publica Resolución N° 361-2015 (COMIECO-LXXI) y Resolución N° 364-2015 (COMIECO-LXXI) del 23/04/2015 modificaciones "Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envío y Mercancías Centroamericanas" Resolución N° 338-2014) | |
-2202.90.90 (Así adicionado el código anterior por el artículo 2° del decreto ejecutivo N° 39312 del 20 de agosto del 2015 Publica Resolución N° 361-2015 (COMIECO-LXXI) y Resolución N° 364-2015 (COMIECO-LXXI) del 23/04/2015 modificaciones "Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envío y Mercancías Centroamericanas" Resolución N° 338-2014) | leche UHT saborizada (bebidas a base de leche con sabores) (Así adicionado el nombre anterior anterior por el artículo 2° del decreto ejecutivo N° 39312 del 20 de agosto del 2015 Publica Resolución N° 361-2015 (COMIECO-LXXI) y Resolución N° 364-2015 (COMIECO-LXXI) del 23/04/2015 modificaciones "Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envío y Mercancías Centroamericanas" Resolución N° 338-2014) | | | | | X (Así adicionada la categoría anterior por el artículo 2° del decreto ejecutivo N° 39312 del 20 de agosto del 2015 Publica Resolución N° 361-2015 (COMIECO-LXXI) y Resolución N° 364-2015 (COMIECO-LXXI) del 23/04/2015 modificaciones "Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envío y Mercancías Centroamericanas" Resolución N° 338-2014) |
-04.01 04.02 | Leche UHT | | | | | X |
-0405.10.00 0405.20.00 | Mantequilla y pastas lácteas | | | | X | |
-1901.90.90 2106.90.20 | Mezclas lácteas | | | | X | |
-0409.00.00 | Miel de abeja | | | | X | |
-03.06 03.07 | Molúscos y crustáceos | | | | X | |
-0306.27.10 | Nauplios (Litopenaeus vannnamei) | | | X | | |
-0104.10.10 0104.10.90 | Ovinos reproductores (Ovis sp) | | | X | | |
-3507.10.00 | Pastillas de cuajo | | | | | X |
-0106.32.00 | Psitaciformes (familia Psittacidae) | | | X | | |
-0103.19.00 | Perros mascotas (canis familiaris) | | | | X | |
-0304031.00 0304.42.00 0304.49.00 0304.61.00 0304.89.60 0304.82.00 0304.89.60 0304.89.90 | Pescado de cultivo, en filete: Tilapia (tilapia sp) Oreochromis noliticus y tilapia tilapia) Truchas (oncorhynchus mikiss) | | | | X | |
-0304.3 0304.4 0304.6 0304.7 0304.8 | Perscado de océano, en filete | | | | X | |
-03.02 | Pescado de océano, fresco | | | | X | |
-03.02 | Pescado de océano, fresco | | | | X | |
-0305.31.00 0305.32.00 0305.39.00 0305.51.00 03.05.59.00 | Pescado seco y salado | | | | X | |
-[imagen]
-(Nota de Sinalevi: Mediante Fe de Erratas a la Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envíos y Mercancías Centroamericanas, aprobada mediante Resolución N° 338-2014 (COMIECO-EX) de 17/01/2014, aprobada mediante decreto ejecutivo N° 39028 del 27 de abril de 2015, se publicó la Fe de Erratas antes referida, lo anterior porque en la versión certificada por la Secretaría General de la SIECA para Costa Rica el 3 de febrero de 2014, por error en la página veintidós del Anexo V, se omitieron once incisos arancelarios por lo que la citada página dene leerse correctamente de la siguiente manera:
-| Código SAC del producto | Nombre de la mercancía o envío | Tipo de presentación | Categorías | Excepciones
-| | | | A | B | C |
-| 0406.20.90 | Quesos pasteurizados pulverizados | | | | X |
-| 0303.53.00 | Sardina congelada a granel (Sardinops sagax sagax y otras) | | | X | |
-| 1604.13.00 | Sardina enlatada (Sardinops sagax sagax y otras) | | | | X |
-| 0511.10.00 | Semen de bovino | | | X | |
-| 3002.10.90 | Suero de sangre fetal bovino | | X | | |
-| 3002.10.90 | Suero de sangre fetal bovino, procesado | | | X | |
-| 0102.29.00 0102.39.00 0102.90.90 | Terneros para desarrollo (Familia Bovidae) | | X | | |
-| 0303.81.00 | Tiburón congelado (Clase Condrictios) | | | X | |
-| 0303.23.00 | Tilapia congelada (Oreochromis sp.) | | | X | |
-| 0302.71.00 | Tilapia fresca [Oreochromis sp.) | | | X | |
-| 0301.99.10 | Tilapia para reproducción ‘Oreochromis sp.) | | X | | |
-| 0210.12.00 0209.10.10 | Tocineta de cerdo, ahumada | | | X | |
-Código SAC del producto | Nombre de la mercancía o envío | Tipo de presentación | Categorías | Excepciones |
-0201.30.00 0202.30.00 1602.50.00 | Tortas de carne de bovino | | | X | | |
-0301.91.90 | Truchas vivas para engorde (Oncorhynchus mikíss) | | X | | | |
-0206.10.00 0206.21.00 0206.22.00 0206.29.00 0504.00.10 | Visceras de bovino | | | X | | |
-0408.19.00 | Yema de huevo congelada pasteurizada | | | X | | |
-0403.10.90 | Yogurt | | | | X ) | |
-| | | | | | | | | | | | | | |
-Resolución N° 333-2013 (COMIECO-LXVI) del Consejo de Ministros de Integración Económica de fecha 12 de diciembre del 2013 y sus Anexos: “Reglamento Técnico Centroamericano RTCA 11.03.59:11 Productos Farmacéuticos, Medicamentos Para Uso Humano. Requisitos de Registro Sanitario” (Anexo 1) y el “Procedimiento para el Reconocimiento Mutuo de Registros Sanitarios de Medicamentos para Uso Humano” (Anexo 2),
-ANEXO VI
-LISTADO DE PRODUCTOS CATEGORIZADOS SALUD ANIMAL
 [imagen]
 [imagen]
 [imagen]
-Código SAC del envío | Nombre del envío | Nombre científico | Tipo de Presentación | Categorías | | | Excepciones
-| | | | A | B | C |
-0908.31.20 | CARDAMOMO | Elellaria cardamomum | Especial de grano seco empacado para industrializar | | X | |
-0810.90.90 | CAS (ARRAYÁN) | Psidium friedrichsyhalianum | Fruto fresco empacado para consumo | | X | |
-0712.20.90 (Así reformado el código anterior por el artículo 1° del decreto ejecutivo N° 39312 del 20 de agosto del 2015 Publica Resolución N° 361-2015 (COMIECO-LXXI) y Resolución N° 364-2015 (COMIECO-LXXI) del 23/04/2015 modificaciones "Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envío y Mercancías Centroamericanas" Resolución N° 338-2014) | CEBOLLA (Así reformado el nombre anterior por el artículo 1° del decreto ejecutivo N° 39312 del 20 de agosto del 2015 Publica Resolución N° 361-2015 (COMIECO-LXXI) y Resolución N° 364-2015 (COMIECO-LXXI) del 23/04/2015 modificaciones "Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envío y Mercancías Centroamericanas" Resolución N° 338-2014) | Allium cepa (Así reformado el nombre anterior por el artículo 1° del decreto ejecutivo N° 39312 del 20 de agosto del 2015 Publica Resolución N° 361-2015 (COMIECO-LXXI) y Resolución N° 364-2015 (COMIECO-LXXI) del 23/04/2015 modificaciones "Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envío y Mercancías Centroamericanas" Resolución N° 338-2014) | Cebolla deshidratada en hojuelas. Cebolla en polvo en envase de contenido neto inferior a 5 kg (Así reformada la descripción anterior por el artículo 1° del decreto ejecutivo N° 39312 del 20 de agosto del 2015 Publica Resolución N° 361-2015 (COMIECO-LXXI) y Resolución N° 364-2015 (COMIECO-LXXI) del 23/04/2015 modificaciones "Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envío y Mercancías Centroamericanas" Resolución N° 338-2014) | | | X (Así reformada la categoría anterior por el artículo 1° del decreto ejecutivo N° 39312 del 20 de agosto del 2015 Publica Resolución N° 361-2015 (COMIECO-LXXI) y Resolución N° 364-2015 (COMIECO-LXXI) del 23/04/2015 modificaciones "Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envío y Mercancías Centroamericanas" Resolución N° 338-2014) |
-0703.10.11 0703.10.12 0703.10.13 0703.10.19 (Así reformado el código anterior por el artículo 1° del decreto ejecutivo N° 39312 del 20 de agosto del 2015 Publica Resolución N° 361-2015 (COMIECO-LXXI) y Resolución N° 364-2015 (COMIECO-LXXI) del 23/04/2015 modificaciones "Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envío y Mercancías Centroamericanas" Resolución N° 338-2014) | CEBOLLA (Así reformado el nombre anterior por el artículo 1° del decreto ejecutivo N° 39312 del 20 de agosto del 2015 Publica Resolución N° 361-2015 (COMIECO-LXXI) y Resolución N° 364-2015 (COMIECO-LXXI) del 23/04/2015 modificaciones "Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envío y Mercancías Centroamericanas" Resolución N° 338-2014) | Allium cepa (Así reformado el nombre anterior por el artículo 1° del decreto ejecutivo N° 39312 del 20 de agosto del 2015 Publica Resolución N° 361-2015 (COMIECO-LXXI) y Resolución N° 364-2015 (COMIECO-LXXI) del 23/04/2015 modificaciones "Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envío y Mercancías Centroamericanas" Resolución N° 338-2014) | Hortaliza de bulbo fresca con o sin hojas, con o sin cáscara exteriores frescas o secas, seleccionada y empacada para consumo. Hortaliza de bulbo seco, seleccionada, empacada para consumo. (Así reformado el nombre anterior por el artículo 1° del decreto ejecutivo N° 39312 del 20 de agosto del 2015 Publica Resolución N° 361-2015 (COMIECO-LXXI) y Resolución N° 364-2015 (COMIECO-LXXI) del 23/04/2015 modificaciones "Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envío y Mercancías Centroamericanas" Resolución N° 338-2014) | X (Así reformada la categoría anterior por el artículo 1° del decreto ejecutivo N° 39312 del 20 de agosto del 2015 Publica Resolución N° 361-2015 (COMIECO-LXXI) y Resolución N° 364-2015 (COMIECO-LXXI) del 23/04/2015 modificaciones "Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envío y Mercancías Centroamericanas" Resolución N° 338-2014) | | |
-0703.90.00 | CEBOLLINO | Allium schoenoprasum | Horatliza de bulbo frescacon hoja, seleccionado empacado, para consumo | | X | |
-0709.99.20 | CHAYOTE GUISQUIL, PATASTE) | Sechium edule | Hortaliza de fruta fresca seleccionada, empacado para consumo. | | X | |
-0904.21.00 | CHILE | Capsicum spp | Hortaliza de fruta seca, seleccionada, empacada para consumo | | | X |
-1209.91.00 | CHILE | Capsicum spp | Semilla empacada para la siembra | X | | |
-0709.60.10 | CHILE DULCE | Capsicum annuum | Hortaliza de fruta fresca, seleccionada, empacado para consumo. | | X | |
-0709.60.20 0709.60.90 | CHILE PICANTE | Capsicum frulescens | Hortaliza de fruta fresca, seleccionada, empacado para consumo. | | X | |
-0809.40.00 | CIRUELA | Prunus domestica | Fruta fresca empacada, para consumo | | X | |
-0907.10.00 0907.20.00 | CLAVO DE OLOR | Syzygium aromaticum | Especia empacada para consumo | | | X |
-0907.10.00 0907.20.00 | CLAVO DE OLOR | Syzygium aromaticum | Especia empacada para uso industrial | | X | |
-1203.00.00 | COCO | Cocos nuciferas | Compra empacado, para consume o para industrializar | | | X |
+(*)ANEXO VI
+LISTADO DE PRODUCTOS VEGETALES CATEGORIZADOS
+(*) (Mediante el numeral 1° de la parte dispositiva de la resolución N°404-2018 (COMIECO-LXXXIII) de 28/06/2018 modificar por sustitución total los anexos V y VI de Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envíos y Mercancías
+Centroamericanas, aprobada mediante decreto ejecutivo N° 41506 del 9 de noviembre del 2018, se reforma por sustitución total el anexo VI anterior.)
 [imagen]
 [imagen]
 [imagen]
@@ -340,4 +280,6 @@ Código SAC del envío | Nombre del envío | Nombre científico | Tipo de Presen
 [imagen]
 [imagen]
 [imagen]
-(Nota de Sinalevi: Mediante Fe de Erratas a la Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envíos y Mercancías Centroamericanas, aprobada mediante Resolución N° 338-2014 (COMIECO-EX) de 17/01/2014, aprobada mediante decreto ejecutivo N° 39028 del 27 de abril de 2015, se publicó la Fe de Erratas antes referida,en donde se indica que en la página treinta y siete del Anexo VI se repiten catorce incisos arancelarios los cuales ya se encuentran incluidos en la página treinta y seis de este mismo anexo, por lo que bebe eliminarse dichos incisos repetidos de la página treinta y siete del Anexo VI. Al no publicar dicha Fe de Erratas como quedará el anexo V con la eliminación de los incisos arancelarios, solo se ha incluido la nota correspondiente si elimianrse nada de dicho inciso)
+[imagen]
+[imagen]
+1 N/ A: No aplica
