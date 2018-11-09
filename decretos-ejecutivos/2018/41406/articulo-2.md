@@ -1,0 +1,2 @@
+Artículo 2º—Para garantizar el fin público que se refiere el artículo anterior, estas donaciones se otorgarán a las comunidades y personas pertenecientes a las poblaciones que atiende la Segunda Vicepresidencia de la República, que por su condición socioeconómica así lo requieran.
+Estás solicitudes se tramitarán a nombre del Ministerio de la Presidencia, en el sistema Exonet, diferenciándolas con un código de donación, diferente a las que sean para el Ministerio como tal.
