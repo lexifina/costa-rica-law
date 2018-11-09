@@ -1,0 +1,1 @@
+Artículo 2º—El proceso de trámite de proyectos topográficos se debe realizar a través de plataforma APT del Colegio Federado de Ingenieros y Arquitectos en combinación con el Sistema de Información de Planos (SIP) del Registro Nacional.
