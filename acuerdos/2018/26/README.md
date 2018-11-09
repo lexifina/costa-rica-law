@@ -16,3 +16,4 @@ Establece tallas legales de primera captura (TLPC) respondiendo a las tallas de 
 | 1 | 2018-02-06 | la propia norma |
 | 2 | 2018-02-26 | Acuerdo 99 (2018-02-26) |
 | 3 | 2018-02-26 | Acuerdo 98 (2018-02-26) |
+| 4 | 2018-11-09 | Acuerdo 467 (2018-11-09) |
