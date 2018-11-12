@@ -1,0 +1,1 @@
+Artículo 2°—Las Áreas Rectoras de Salud deberán respetar el debido proceso y actuar de conformidad con lo establecido en los artículos 20 al 24 del Decreto Ejecutivo N° 39472-S, Reglamento General para Autorizaciones y Permisos Sanitarios de Funcionamiento otorgados por el Ministerio de Salud.

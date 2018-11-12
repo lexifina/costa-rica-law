@@ -1,0 +1,1 @@
+Artículo 3º—Una vez vencido el plazo extendido en la Orden Sanitaria, y en caso de incumplimiento de la misma, las Áreas Rectoras de Salud deberán informar del caso a las Autoridades Municipales que dicha actividad no cuenta con Permiso Sanitario de Funcionamiento, para lo que en derecho proceda.
