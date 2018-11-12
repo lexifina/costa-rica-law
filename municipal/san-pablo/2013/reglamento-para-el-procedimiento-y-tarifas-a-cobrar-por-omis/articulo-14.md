@@ -1,1 +1,3 @@
-Artículo 14.—Efectos del incumplimiento: Vencido el plazo establecido en el artículo anterior, la Municipalidad procederá a la imposición de multas y facultativamente, a realizar los servicios u obras respectivas.
+Artículo 14 ° - Efectos del incumplimiento: Vencido el plazo establecido en el artículo anterior, la Municipalidad procederá a la imposición de multas y facultativamente, a realizar los servicios u obras respectivas.
+Transcurrido el plazo señalado en la primera notificación, el inspector municipal visitará el sitio y confeccionará un acta de inspección ocular en el que describirá si el administrado cumplió con lo prevenido.
+En caso de persistir la omisión, el inspector municipal remitirá un informe al Departamento de Infraestructura Pública, quien deberá solicitar a la Sección de Servicios Tributarios la inclusión del cargo de la multa en el sistema municipal y se programarán los servicios y obras por parte de la Administración Municipal

@@ -1,1 +1,1 @@
-Artículo 36.—Notificación: La notificación a los contribuyentes que deban mejorar sus fachadas, se efectuará a través de los inspectores municipales, quienes harán su valoración de acuerdo a lo establecido en este Reglamento.
+Artículo 36º- Señales y salientes: Toda señal u objeto saliente colocado en aceras deberá estar a una altura mínima de 2.50 m y no deberá entorpecer el paso del peatón, ni deberá sobrepasar la distancia transversal del ancho del cordón y caño.

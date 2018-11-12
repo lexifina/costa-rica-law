@@ -1,2 +1,1 @@
-Artículo 46.—Lugar o medio ignorado por la administración: Cuando se ignore el lugar para recibir notificaciones, el acto será comunicado por publicación en el Diario Oficial La Gaceta, en cuyo caso la comunicación se tendrá por hecha transcurridos cinco días hábiles.
-La publicación que suple la notificación se hará por tres veces consecutivas en el Diario Oficial La Gaceta y los términos se contarán a partir de la última.
+Artículo 46° : El contribuyente estará obligado a adoptar las medidas ambientales que garanticen una adecuada acumulación, disposición y transporte de los residuos que genere las construcciones en sus predios y vías públicas.

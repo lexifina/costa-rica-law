@@ -1,1 +1,1 @@
-Artículo 9º—El Concejo Municipal fijará los precios que se deberán cobrar por los servicios que preste u obras que realice la Municipalidad. El acuerdo que los establezca deberá ser publicado en el Diario Oficial La Gaceta. Los precios serán actualizados anualmente.
+Artículo 9°: El Concejo Municipal fijará los precios que se deberán cobrar por los servicios que preste u obras que realice la Municipalidad. El acuerdo que los establezca deberá ser publicado en el Diario Oficial "La Gaceta". Los precios serán actualizados anualmente.

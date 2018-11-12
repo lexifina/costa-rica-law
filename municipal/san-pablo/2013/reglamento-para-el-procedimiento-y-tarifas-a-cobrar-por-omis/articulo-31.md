@@ -1,9 +1,1 @@
-Artículo 31.—Materiales: En la construcción de cercas en todo el cantón se usarán los siguientes materiales:
-a. Malla tipo ciclón.
-b. Malla electro soldada.
-c. Tapias decorativas en bloques.
-d. Baldosas o cualquier otra que se consoliden estructuralmente.
-e. Postes de cemento con cuatro hiladas de alambre liso.
-f. Zinc de primera o de segunda pintado.
-g. Cercas vivas.
-No se permite el uso de alambre de púas o similar y la cerca debe tener dos metros de altura como mínimo. Todo sin perjuicio de la licencia municipal y el alineamiento respectivo.
+Artículo 31° - Lotes con vegetación sin mantenimiento: Se considerara un lote sin mantenimiento, enmontado, abandonado todo aquel con vegetación de 40 o más centímetros de altura consistiendo en maleza, matorral, tacotal, charral u otras hiervas sin valor ornamental o agrícola, así como objetos, desechos, escombros o materiales contaminantes, con aspecto de descuido o ruinoso que ayudan a la proliferación de alimañas, vectores fitosanitarios o que faciliten el acometido de actos de delincuencia.

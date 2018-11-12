@@ -1,1 +1,1 @@
-Artículo 29.—El valor del metro cuadrado de acera será determinado anualmente por la Municipalidad, mediante los estudios de costos correspondientes que realice la Unidad Técnica de Gestión Vial Cantonal.
+Artículo 29°- Colocación de señalamiento táctil: Para garantizar el recorrido urbano accesible, especialmente personas con discapacidad visual, los propietarios de bienes inmuebles deberán colocar losetas de concreto táctil según lo establecido en la norma INTE 03-01-17-08 Ed2, emitida por INTECO y sus respectivas actualizaciones.

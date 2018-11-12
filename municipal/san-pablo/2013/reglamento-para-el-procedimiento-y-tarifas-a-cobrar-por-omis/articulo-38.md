@@ -1,4 +1,3 @@
-CAPITULO VIII
-Contratos de financiamiento para proyectos
-de construcción de aceras
-Artículo 38.—Financiamiento: Cuando la Municipalidad planee desarrollar un proyecto para construir aceras a lo largo de una vía, podrá suscribir un contrato de financiamiento con el contribuyente, por medio del cual le financiará el costo total de la obra.
+CAPITULO V
+Construcción de obras en estado de peligrosidad
+Artículo 38º - Estado de peligrosidad: Se considerará en estado de peligrosidad, toda edificación que arriesgue la integridad física, la vida, el patrimonio de las personas o cuyo estado de abandono favorezca la comisión de actos delictivos.

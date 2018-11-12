@@ -1,3 +1,1 @@
-CAPITULO V
-Construcción de cercas
-Artículo 30.—Valor del metro lineal de construcción de cercas: El valor del metro lineal por construcción de cercas, para cada caso en particular regirá según lo indica el Capítulo II de este Reglamento.
+Artículo 30° - Limpieza y cercado de predios: Las personas físicas o jurídicas, propietarias o poseedoras, por cualquier título de bienes inmuebles, deberán mantener los predios cercados, limpios de maleza, objetos, deshechos o materiales contaminantes.

@@ -1,3 +1,1 @@
-CAPITULO VI
-Construcción de obras en estado de peligrosidad
-Artículo 32.—Estado de peligrosidad: Se considerará en estado de peligrosidad, toda edificación que arriesgue la integridad física, la vida, el patrimonio de las personas o cuyo estado de abandono favorezca la comisión de actos delictivos.
+Artículo 32° - Valor del metro lineal de construcción de cercas: El valor del metro lineal por construcción de cercas, para cada caso en particular regirá según lo indica el Capítulo II de este Reglamento.

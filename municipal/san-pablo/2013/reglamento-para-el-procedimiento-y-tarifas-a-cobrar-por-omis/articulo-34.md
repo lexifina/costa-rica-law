@@ -1,1 +1,1 @@
-Artículo 34.—Efectos del incumplimiento: Si el contribuyente no cumpliere con la prevención, la Municipalidad deberá realizar los servicios u obras a costa del contribuyente, mediante los procedimientos de cobro establecidos en este Reglamento.
+Artículo 34°- Obstrucción de la vía pública: No se permite el estacionamiento de vehículos sobre las aceras. En los casos que existan o se diseñen parqueos contiguos a las aceras, se deberá separar físicamente la acera del parqueo.

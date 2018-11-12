@@ -1,1 +1,3 @@
-Artículo 43.—Efectos del Incumplimiento: El incumplimiento de lo expresado en los artículos precedentes será causal de suspensión de las obras o la eliminación de los obstáculos por parte de la Dirección de Desarrollo y Control Urbano, seguido del procedimiento establecido en el presente Reglamento.
+Artículo 43 ° - Valoración: Los criterios para la valoración de las fachadas serán, el estado de los diferentes elementos que componen las fachadas, tales como: las paredes, marcos y ventanería, pintura, cortinas metálicas, aleros, toldos, cubiertas, canoas, bajantes, verjas y otros, así como elementos de seguridad del inmueble conforme se establece en la siguiente "Tabla de Valoración": [imagen]
+[imagen]
+[imagen]

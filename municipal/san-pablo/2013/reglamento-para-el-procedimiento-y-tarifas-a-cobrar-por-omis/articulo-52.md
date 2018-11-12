@@ -1,3 +1,1 @@
-CAPITULO XII
-Disposiciones finales
-Artículo 52.—Que en todo caso en los que la administración inicie las obras o advierta al administrado, se debe de cumplir con el debido proceso en protección y garantía de los derechos del mismo.
+Artículo 52 ° - Contenido de la notificación: La notificación contendrá el texto íntegro del acto con indicación de los recursos procedentes, del órgano que los resolverá, de aquél ante el cual deben interponerse y del plazo para interponerlos.

@@ -1,5 +1,11 @@
-Artículo 12.—Notificaciones por incumplimiento: Las notificaciones por incumplimiento de deberes e inspecciones en general serán competencia de la Dirección de Desarrollo y Control Urbano.
-En la notificación, se debe indicar:
-a) Descripción detallada de la obra faltante.
-b) El plazo dentro del cual deben ejecutarse.
-c) Apercibimientos del costo de la obra y/o cobro de multas.
+Artículo 12 °- Notificaciones por incumplimiento: Las notificaciones por incumplimiento de deberes e inspecciones en general serán competencia de la Unidad de Fiscalización de Obra Privada. La notificación será entregada a cualquier persona que aparente ser mayor de quince años Cuando se trate de zonas o edificaciones de acceso restringido exclusivamente para efectos de practicar la notificación, si el ingreso fuera impedido se tendrá por válida la notificación practicada a la persona encargada de regular la entrada, en el acta se hará constar la entrega de la cédula y el nombre de la persona que la recibe, quien firmara con el notificador. Si no sabe, no quiere o no puede firmar, el funcionario o la persona autorizada consignara esa circunstancia bajo su responsabilidad. Al entregar la notificación, el notificador, también consignará en ella la fecha, la hora y su firma.
+En caso que la parte no señale lugar para notificaciones pero en el expediente administrativo conste su lugar de residencia de trabajo o dirección, la administración está en la obligación de notificarle en dicho sitio, y si no constare en el expediente administrativo, ningún lugar donde notificar, procede a comunicar la resolución por publicación según lo dispuesto en el artículo 241 de la Ley General de Administración pública.
+La primera notificación es de prevención de cobro, y tendrá el administrado un plazo de ocho días hábiles y la segunda es una notificación de ejecución, que podría implicar el remate judicial, Según Ley de Cobro Judicial No.8624:
+Ambas notificaciones deben de indicar.
+a) Nombre propietario razón social o apoderado, número de cédula de identidad o jurídica matricula de folio real de la finca, numero de plano cuando se indique o exista y dirección exacta del inmueble.
+b) Detalle de los deberes que ha omitido realizar el propietario del inmueble, según artículo 84 del Código.
+c) Detalle del costo efectivo del servicio de la obra.
+d) Plazo otorgado para que cumpla con las obligaciones u omisiones detectadas.
+e) Que en caso de que el administrado no realice las obras que se le indican, la administración procederá a realizar las obras y se cobrará el costo total, más un 50 por ciento por concepto de multa, lo cual se trasladará a cobro administrativo. En caso de no cancelarse o realizarse arreglo de pago, se enviara a cobro judicial.
+f) Lugar, medio o cuenta bancaria en que podrá ser cancelado
+g) Nombre y firma del funcionario municipal encargado de emitir la notificación

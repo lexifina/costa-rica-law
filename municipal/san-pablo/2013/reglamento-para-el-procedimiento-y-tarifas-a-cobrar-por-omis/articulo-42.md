@@ -1,1 +1,1 @@
-Artículo 42.—El contribuyente estará obligado a adoptar las medidas ambientales que garanticen una adecuada acumulación, disposición y transporte de los residuos que genere las construcciones en sus predios y vías públicas.
+Artículo 42 ° - Notificación: La notificación a los contribuyentes que deban mejorar sus fachadas, se efectuará a través de los inspectores municipales, quienes harán su valoración de acuerdo a lo establecido en este Reglamento.

@@ -1,3 +1,3 @@
-CAPITULO X
-Procedimiento de notificación
-Artículo 44.—Lugares o medios para notificar: La notificación deberá hacerse personalmente o en la residencia, lugar de trabajo, por medio de fax, si constan en el expediente predial o lo establecido en la Ley de Notificaciones del Poder Judicial o la Ley General de Administración Pública u otra normativa asociada.
+CAPITULO VII
+Escombros en vías públicas
+Artículo 44° - Construcciones: Exclusivamente frente a la propiedad en donde se ejecute una obra, se prohíbe dejar escombros, hacer excavaciones o de alguna forma poner obstáculos al libre tránsito en la vía, salvo que con fundamento en lo dispuesto a la ley de construcciones exista autorización expresa por parte del Municipio o el Ministerio de Obras Públicas y Transportes.

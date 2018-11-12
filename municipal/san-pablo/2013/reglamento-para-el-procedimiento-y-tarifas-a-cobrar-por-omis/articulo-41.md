@@ -1,1 +1,3 @@
-Artículo 41.—Señalización: El contribuyente será responsable de colocar banderas y letreros durante el día y señales reflectantes durante la noche, a una distancia no menor a quince metros de los obstáculos, de forma que prevengan anticipadamente al que transite por la vía.
+CAPITULO VI
+Conservación de fachadas
+Artículo 41 º - Obligación de conservación: Conforme lo establecen los artículos 84 y 85 del Código Municipal, se procederá a notificar a los propietarios de los inmuebles respecto a la necesidad de renovación o mejoramiento de fachadas.

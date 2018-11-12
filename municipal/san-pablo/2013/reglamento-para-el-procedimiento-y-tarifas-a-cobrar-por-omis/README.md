@@ -14,3 +14,4 @@ Reglamento para el Procedimiento y Tarifas a cobrar por omisiones de los deberes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-03-10 | la propia norma |
+| 2 | 2018-11-12 | Reglamento municipal 46 (2018-11-12) |
