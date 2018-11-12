@@ -1,0 +1,1 @@
+Artículo 28.—Las instituciones cuyas intervenciones sean seleccionadas para conformar la Agenda Nacional de Evaluaciones deberán contemplar en sus presupuestos institucionales los recursos necesarios para efectuar tales evaluaciones.

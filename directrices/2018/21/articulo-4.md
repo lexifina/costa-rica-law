@@ -1,0 +1,1 @@
+Artículo 4º—El PND-PNIP 2019-2022 será formulado tomando en consideración el enfoque integral e interinstitucional del Desarrollo Sostenible y el Enfoque de la Gestión para resultados en el Desarrollo, conforme con lo establecido en la Directriz Nº 093-P del 6 de diciembre de 2017.

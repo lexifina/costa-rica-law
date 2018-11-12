@@ -1,0 +1,1 @@
+Artículo 3º—El MIDEPLAN brindará la metodología para orientar la elaboración de las propuestas interinstitucionales a ser incorporadas en el PND-PNIP 2019-2022, que una vez aprobadas por las y los Ministros Rectores serán remitidas a MIDEPLAN de manera oficial.

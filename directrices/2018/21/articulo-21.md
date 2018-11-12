@@ -1,0 +1,1 @@
+Artículo 21.—Las actividades de carácter rutinario, operativo, procesos, procedimientos o insumos, pueden ser consideradas en los Planes Operativos Institucionales (POI), Planes Estratégicos Institucionales (PEI) y otros instrumentos. Por lo tanto, no serán consideradas en el PND-PNIP 2019-2022

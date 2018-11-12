@@ -1,0 +1,1 @@
+Artículo 26.—El Presidente de la República junto con el Consejo de Gobierno conocerá de los Informes de Seguimiento Semestrales y Anuales del PND-PNIP 2019-2022 y tomarán acuerdos al respecto para el cumplimiento de las metas, todo lo cual será incluido en el Acta respectiva del Consejo de Gobierno.

@@ -1,0 +1,1 @@
+Artículo 17.—A partir de los insumos brindados por MIDEPLAN, las y los Coordinadores de los Consejos de Articulación Presidencial, remitirán a MIDEPLAN, a más tardar el 31 de agosto de 2018, la validación del Diagnóstico y de los dos indicadores de las metas de efecto, según la definición establecida en la metodología para la elaboración del PND-PNIP 2019-2022.

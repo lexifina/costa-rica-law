@@ -1,0 +1,1 @@
+Artículo 12.—Para la formulación, evaluación y seguimiento del PND-PNIP 2019-2022, el Poder Ejecutivo utilizará Áreas Estratégicas de Articulación Presidencial, establecidas en el artículo 2° del Reglamento Orgánico del Poder Ejecutivo, Decreto Ejecutivo Nº 41187-MP-MIDEPLAN.

@@ -1,0 +1,1 @@
+Artículo 13.—Con el fin de atender los requerimientos para cumplir con las etapas de formulación, evaluación y seguimiento del PND-PNIP 2019-2022, las instituciones coordinarán con su respectiva Ministra o Ministro Rector, según la agrupación de rectorías establecidas en el artículo 11 del Reglamento Orgánico del Poder Ejecutivo, Decreto Ejecutivo 41187-MP-MIDEPLAN.

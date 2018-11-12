@@ -1,0 +1,1 @@
+Artículo 24.—El MIDEPLAN integrará los Informes de Seguimiento elaborados por las y los Ministros Rectores con la colaboración de sus respectivas Secretarías Sectoriales, para presentarlos ante el Presidente de la República y la Asamblea Legislativa, de conformidad con lo establecido en la Ley N° 8131 y su Reglamento.
