@@ -1,4 +1,5 @@
-Artículo 12.- Solicitud de préstamo. Las dependencias municipales podrán solicitar a la Administración el préstamo de las instalaciones del Campo Ferial para desarrollar actividades propias de la función del departamento o para dar cumplimiento a sus planes o programas anuales. La solicitud deberá presentarse por escrito ante la Administración del Campo Ferial y cumplir con los siguientes requisitos:
+Artículo 12.- Solicitud de préstamo. Las dependencias municipales podrán solicitar a la Administración el préstamo de las instalaciones del Campo Ferial para
+desarrollar actividades propias de la función del departamento o para dar cumplimiento a sus planes o programas anuales. La solicitud deberá presentarse por escrito ante la Administración del Campo Ferial y cumplir con los siguientes requisitos:
 a. Descripción detallada de la actividad.
 b. Fecha y hora en que se pretende llevar a cabo la actividad.
 c. Tiempo por el que solicita el préstamo de las instalaciones.

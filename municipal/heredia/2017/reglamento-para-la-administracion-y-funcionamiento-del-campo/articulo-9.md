@@ -8,4 +8,4 @@ f. Sección 6: Espacio para actividades, con un área de 3485.95m2
 g. Sección 7: Sodas con un área de 228.90m2.
 h. Sección 8: Parqueo oeste para personas usuarias con capacidad para 124 vehículos y 20 motocicletas y parqueo este para administrativos con capacidad para 11 vehículos y 7 motocicletas.
 i. Casona.
-El total de la capacidad de arrendamiento que se puede obtener en el Campo Ferial sería de 13.515 metros cuadrados.
+El total de la capacidad de arrendamiento que se puede obtener en el Campo Ferial seria de 13.515 metros cuadrados.

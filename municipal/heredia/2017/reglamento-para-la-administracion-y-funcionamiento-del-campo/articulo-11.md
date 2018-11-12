@@ -6,7 +6,7 @@ d. Fecha y hora en que se pretende llevar a cabo la actividad.
 e. Tiempo por el que arrienda las instalaciones.
 f. Señalar si efectuará algún cobro a los asistentes del evento y su monto.
 g. Adjuntar la siguiente documentación si va a realizar actividades masivas con al menos ocho días de anticipación a que se realice la actividad:
-1. Plan de manejo de residuos.
+1. Plan de manejo de residuos con visto bueno de la Sección de Gestión de Residuos de la Municipalidad de Heredia.
 2. Plan de seguridad aprobado por el Ministerio de Seguridad Pública.
 3. Comprobante de que cuenta con cobertura de atención de emergencias por parte de una empresa o institución especializada para el evento.
 4. Póliza de responsabilidad civil a razón de 0.02 salarios mínimos por metro cuadrado arrendado, esta póliza abarcara tanto la responsabilidad civil sobre el área del evento como el del área del parqueo, la cual debe proteger tanto a daños a personas como a vehículos.
