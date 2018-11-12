@@ -1,2 +1,1 @@
-Artículo 6º—Elaboración del plan de aprovisionamiento. Las obras, bienes y todos los servicios que se adquieran, deberán estar acordes con las necesidades institucionales, las cuales deben ser consideradas por el PPCO para realizar el Programa de Adquisiciones.
-En el caso de la contratación de servicios de capacitación y formación profesional se realizaran de acuerdo con las necesidades registradas en el PASER.
+Artículo 6º—Actualización del sistema. La UCI es la responsable del sistema de adquisición de obras, bienes y servicios. Deberá evaluar, actualizar, automatizar, estandarizar y difundir los procedimientos necesarios para el óptimo aprovisionamiento de las obras, bienes y servicios que requieran las diversas dependencias institucionales.

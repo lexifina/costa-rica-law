@@ -1,1 +1,0 @@
-3- Se modifican todas aquellas disposiciones reglamentarias del INA en materia de contratación administrativa vigentes con anterioridad a la aprobación de la nueva estructura organizativa del INA en las cuales se enuncie la Unidad de Recursos Materiales para que se lea como Unidad de Compras Institucionales.

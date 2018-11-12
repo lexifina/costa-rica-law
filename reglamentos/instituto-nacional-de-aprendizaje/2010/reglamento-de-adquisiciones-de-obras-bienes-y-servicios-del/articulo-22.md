@@ -1,9 +1,16 @@
-Artículo 22.—Competencias de la Comisión Local Central de Adquisiciones. Será competencia de la Comisión Local Central de Adquisiciones:
-a) Dictar la decisión inicial y aprobar los carteles de las contrataciones realizadas en la Sede Central por medio de procedimientos ordinarios o materias excluidas según su rango de acción.
-b) Adjudicar las contrataciones realizadas en la Sede Central por medio de procedimientos ordinarios o materias excluidas según su rango de acción.
-c) Resolver los recursos de objeción al cartel en las contrataciones en que se dictó la decisión inicial según su rango de acción.
-d) Conocer los recursos de revocatoria en las contrataciones adjudicadas por su rango de acción.
-e) Resolver los cambios propuestos por los contratistas en cuanto a plazos y características de los bienes o servicios contratados en las contrataciones adjudicadas por su rango de acción.
-f) Aprobar las modificaciones unilaterales y contratos adicionales de las contrataciones adjudicadas por su rango de acción.
-g) Convocar a cualquier funcionario del INA con carácter de invitado y con el fin de obtener su criterio técnico en asuntos de su competencia.
-h) Conocer cualquier otro asunto relacionado con Contratación Administrativa, según su rango de acción y competencias.
+Artículo 22.—Comisión Local Central de Adquisiciones. La Comisión Local Central de Adquisiciones se regirá por las siguientes normas:
+1) Integración. La Comisión Local Central de Adquisiciones estará integrada por:
+a) El titular de la UCI.
+b) El titular de la Gestión de Formación y Servicios Tecnológicos, o a quien este designe formalmente.
+c) El EPA, o a quien este designe formalmente.
+El titular de la Asesoría Legal o quien éste designe, participará con voz pero sin voto.
+2) Funcionamiento de la Comisión Local Central de Adquisiciones: Para el funcionamiento de la Comisión se considerará lo siguiente:
+a) Presidencia: La Comisión estará presidida por el titular de la UCI o del EPA en ausencia de esta.
+b) Secretaría: La secretaría de esta Comisión estará a cargo del EPA.
+c) Quórum: Para que la comisión sesione válidamente deberá contarse con el titular de la UCI o el EPA quienes serán responsables personalmente de sus actuaciones. El quórum estará formado por la mayoría simple de sus integrantes.
+d) Acuerdos: Los acuerdos se tomarán por la mayoría simple de los presentes.
+e) Empate: En caso de empate, quien preside la Comisión tendrá voto de calidad. Este voto contará solo por dos.
+f) Asistencia: La asistencia a las sesiones de esta Comisión es obligatoria, por lo que toda ausencia debe ser debidamente justificada ante quien la preside.
+g) Responsabilidad del titular: En caso que alguno de los titulares, no pueda asistir y decida enviar un sustituto, éste podrá votar, pero quedando la responsabilidad de los actos emitidos al titular.
+h) Funcionamiento en general: Para los demás aspectos no contemplados en este Reglamento, se regirá supletoriamente por lo dispuesto en la Ley General de la Administración Pública.
+i) Deber de inhibirse: Cuando alguno de los miembros de la Comisión Local Central de Adquisiciones sea a su vez encargado de la dependencia solicitante que promueve el proceso de compra, deberá inhibirse de concurrir a los acuerdos relacionados con esa contratación. De igual forma si alguno de los miembros titulares ha firmado algún criterio emitido de dependencias a su cargo por ausencia de las jefaturas, éste deberá inhibirse, no tendrá voto y no se computará para constituir el quórum.

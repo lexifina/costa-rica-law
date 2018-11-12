@@ -1,14 +1,9 @@
-Artículo 25.—EPA. El EPA tendrá a su cargo las siguientes funciones:
-a) Tramitar procedimientos ordinarios o materias excluidas.
-b) Requerir las justificaciones en relación con las solicitudes de adquisiciones de obras, bienes y servicios.
-c) Dictar la decisión inicial y aprobar los carteles de las contrataciones, según su rango de acción.
-d) Formular invitaciones, recibir ofertas y efectuar la apertura de los diferentes procedimientos ordinarios o materias excluidas.
-e) Resolver y comunicar las aclaraciones y modificaciones a los carteles de las contrataciones, según su rango de acción.
-f) Adjudicar las contrataciones, según el rango de acción establecido en el artículo 16 inciso e) de este Reglamento.
-g) Resolver los cambios y prórrogas solicitados por los contratistas en cuanto a plazo y características en las contrataciones adjudicadas por su rango de acción.
-h) Resolver los recursos de revocatoria en las contrataciones adjudicadas por su rango de acción.
-i) Tramitar los recursos ante quien corresponda según el presente Reglamento.
-j) Aprobar las modificaciones unilaterales y contratos adicionales de las contrataciones adjudicadas según su rango de acción.
-k) Custodia de los expedientes de los trámites de compras así como todos los documentos que se relacionen con estos.
-l) Tramitar, aprobar la revisión y reajuste de precios de los contratos de obras, bienes y servicios coordinando en aquellos casos que corresponda con las Unidades Técnicas Especializadas.
-(Así reformado en sesión N° 4489 del 20 de junio del 2011)
+Artículo 25.—Competencias de la Comisión Local Regional de Adquisiciones. Será competencia de la Comisión Local Regional de Adquisiciones:
+a) Dictar la decisión inicial y aprobar los carteles de las contrataciones realizadas en la Unidad Regional por medio de procedimientos ordinarios o materias excluidas según su rango de acción.
+b) Adjudicar las contrataciones realizadas en la Unidad Regional por medio de procedimientos ordinarios o materias excluidas según su rango de acción.
+c) Resolver los recursos de objeción al cartel en las contrataciones en que se dictó la decisión inicial según su rango de acción.
+d) Conocer los recursos de revocatoria en las contrataciones adjudicadas por su rango de acción.
+e) Resolver los cambios propuestos por los contratistas en cuanto a plazos y características de los bienes o servicios contratados en las contrataciones adjudicadas por su rango de acción.
+f) Aprobar las modificaciones unilaterales y contratos adicionales de las contrataciones adjudicadas por su rango de acción.
+g) Convocar a cualquier funcionario del INA con carácter de invitado y con el fin de obtener su criterio técnico en asuntos de su competencia.
+h) Conocer cualquier otro asunto relacionado con materia de contratación administrativa que se considere según su rango de acción y su competencia.

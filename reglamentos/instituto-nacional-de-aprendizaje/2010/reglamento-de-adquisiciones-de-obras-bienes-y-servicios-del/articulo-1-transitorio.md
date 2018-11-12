@@ -1,3 +1,0 @@
-Disposiciones transitorias
-1º—Dentro de un plazo no mayor a un mes después de comunicado el acuerdo de aprobación del presente Reglamento, la UCI realizarán los procedimientos y las modificaciones necesarias a los existentes, con el fin de adaptarlos a los nuevos requerimientos del presente Reglamento. En relación con el artículo 11 del presente reglamento la UPE elaborará el procedimiento con la orientación metodológica en materia de determinación de necesidades, el cual deberá ser aprobado por la Gerencia General para su aplicación e inclusión en el sistema de calidad.
-(Así reformado en sesión N° 4489 del 20 de junio del 2011)

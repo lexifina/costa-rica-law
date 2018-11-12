@@ -1,1 +1,2 @@
-Artículo 7º—Normalización de obras, bienes y servicios. El PPCO se encargará de la normalización de la descripción de los códigos de las obras, bienes y servicios que requiera la Institución, con la información proporcionada por las unidades técnicas especializadas y coordinada con las unidades solicitantes, según corresponda.
+Artículo 7º—Elaboración del plan de aprovisionamiento. Las obras, bienes y todos los servicios que se adquieran, deberán estar acordes con las necesidades institucionales, las cuales deben ser consideradas por el PPCO para realizar el Programa de Adquisiciones.
+En el caso de la contratación de servicios de capacitación y formación profesional se realizarán de acuerdo con las necesidades registradas en el PASER.

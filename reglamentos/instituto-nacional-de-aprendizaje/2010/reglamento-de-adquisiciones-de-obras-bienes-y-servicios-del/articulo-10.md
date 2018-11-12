@@ -1,24 +1,11 @@
-Artículo 10.—Solicitudes de adquisiciones. Los encargados de las Unidades Solicitantes o quien ellos designen formalmente, estarán autorizados para realizar las solicitudes de adquisiciones de las obras, bienes y servicios en el SIREMA. Asimismo serán los responsables de verificar la necesidad pública de contratar y el cumplimiento del objeto de la contratación, salvo disposición en contrario.
-Para la justificación establecida en el artículo 8° inciso a) del RLCA y la determinación de la necesidad pública de contratar servicios de capacitación y formación profesional total o parcialmente y los diseños curriculares se fundamentarán en diagnósticos de determinación de necesidades institucionales elaborados o contratados por las Unidades Regionales, Núcleos Tecnológicos, UPE o Gerencia General. Estos estudios deberán complementarse con estudios de prospección de mercado que se realicen en el INA.
-Además podrán utilizarse otras fuentes de información tales como:
-a) Políticas y programas gubernamentales e institucionales.
-b) Requerimientos de organismos nacionales e internacionales.
-c) Comités de Cúpula, Comités de Enlace sectoriales y Regionales.
-d) Cámaras empresariales, instituciones públicas y privadas.
-e) Potenciales inversionistas (nacionales y extranjeros).
-f) Gremios empresariales y de trabajadores.
-g) Colegios profesionales.
-h) Solicitudes específicas de personas físicas, empresas o comunidades.
-i) Análisis de requerimientos laborales en medios de prensa.
-j) Evaluaciones de impacto. Oficinas de intermediación de empleo.
-k) Estudios generados por unidades del INA: Gestión Rectora del Sistema Nacional de Capacitación y Formación Profesional, Gestión Regional, Gestión de Formación y Servicios Tecnológicos y Unidad de Planificación y Evaluación.
-l) Resultados de vigilancia estratégica de las Unidades Técnicas.
-m) Información generada por empresas catalogadas como Centros Colaboradores.
-n) Estudios de necesidades y requerimientos de formación y capacitación.
-o) Informantes clave de los diferentes sectores de la economía.
-p) Ferias vocacionales.
-q) Prematrículas reportadas por las regionales.
-r) Lista de personas interesadas que generan las comunidades.
-s) Bases de datos de personas interesadas en las Unidad Regionales y en el Centro de Llamadas INA.
-t) Otras señales del mercado, así como aquellas que al efecto la administración considere convenientes conforme al interés general.
-(Así reformado en sesión N° 4489 del 20 de junio del 2011)
+CAPÍTULO II
+De los procedimientos ordinarios de contratación
+Artículo 10.—Solicitudes de adquisición y elaboración del programa de adquisiciones.
+a) Solicitudes de adquisición: La GNSA suministrará la calendarización para que los responsables de las Unidades solicitantes o a quien estos autoricen, incluyan en el SIREMA todas las necesidades de adquisiciones de obras, bienes y servicios que requerirán para el período presupuestario siguiente, salvedad hecha de aquellas que surjan producto de situaciones de emergencia o imprevisibles, las cuales deberán ser debidamente justificadas por la Unidad Solicitante, así como los servicios de capacitación y formación profesional los cuales se solicitaran de conformidad con las modificaciones reportadas en el PASER.
+b) Agrupación de adquisiciones de obras, bienes y servicios: Con base en los requerimientos de adquisiciones, solicitados por las diferentes Unidades solicitantes, PPCO analiza y procede a agrupar las solicitudes de acuerdo a los siguientes criterios de separación y agrupación emitidos por las Unidades Técnicas Especializadas.
+Criterio de separación: Obra pública. -Materiales de uso administrativo. -Materiales de uso didáctico. –Material gastable. -Material devolutivo. -Material perecedero. – Material especializado. -Equipo especializado. -Equipo de uso general. -Equipo administrativo. -Servicios de apoyo técnico. -Servicios de apoyo administrativo. -Servicios de Capacitación y Formación Profesional.
+Criterio de agrupación: Las separaciones anteriores se agruparán por familia de obras, bienes y servicios, especializándolas de acuerdo a semejanzas en las características técnicas y uso, entre otros posibles elementos.
+La persona encargada del PPCO revisará y aprobará las agrupaciones para su trámite correspondiente.
+c) Elaboración del programa de adquisiciones: : La persona encargada del PPCO será el responsable de elaborar y la persona encargada de la UCI de publicar el Programa de Adquisiciones y sus modificaciones que contiene la proyección de las adquisiciones que se requieren para satisfacer las necesidades de obras, bienes y servicios institucionales, con base en el Plan Operativo Institucional Anual (POIA) y el Presupuesto Institucional al tenor de lo dispuesto por el RLCA, previa aprobación de la Comisión de Licitaciones. Requieren una justificación por escrito debidamente sustentada, todas las adquisiciones de obras, bienes y servicios que no están incluidas en el POIA o en el Presupuesto Institucional del período.
+Las modificaciones deberán ser aprobadas por la UCI en aquellos casos de necesidades calificadas como urgentes o imprevistas, previa aprobación de la Comisión de Licitaciones.
+Lo anterior de conformidad lo regulado en el Reglamento a la Ley de Contratación Administrativa.

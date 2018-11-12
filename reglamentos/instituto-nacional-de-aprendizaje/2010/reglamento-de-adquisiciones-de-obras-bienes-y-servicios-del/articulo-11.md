@@ -1,5 +1,23 @@
-Artículo 11.—Determinación de necesidades para las contrataciones de Servicios de Capacitación y Formación Profesional. Con la orientación metodológica brindada por la UPE y la Gerencia General o a quien esta delegue, se establecerá un procedimiento de identificación de necesidades con el fin de normar los estudios pertinentes.
-Para estos efectos las Unidades Regionales deberán someter ante la Gestión Regional la justificación de compra correspondiente para que esta verifique, apruebe o rechace el trámite.
-La Subgerencia Técnica aprobará o rechazará las justificaciones remitidas con el visto bueno de la Gestión Regional.
-Una vez aprobada la justificación de compra por parte de la Subgerencia Técnica, la Unidad Regional solicitante podrá gestionar la contratación de servicios de capacitación y formación profesional de conformidad con los artículos 9 y siguientes del presente reglamento y la Ley de Contratación Administrativa y su reglamento.
-(Así reformado en sesión N° 4489 del 20 de junio del 2011)
+Artículo 11.—Solicitudes de contratación. Los encargados de las Unidades Solicitantes o quien ellos designen formalmente, estarán autorizados para realizar las solicitudes de adquisiciones de las obras, bienes y servicios en el SIREMA. Asimismo, serán los responsables de verificar la necesidad pública de contratar y el cumplimiento del objeto de la contratación, salvo disposición en contrario.
+Para la justificación establecida en el artículo 8º inciso a) del RLCA y la determinación de la necesidad pública de contratar servicios de capacitación y formación profesional total o parcialmente y los diseños curriculares se motivarán en un diagnóstico de determinación de necesidades institucionales elaborado o contratado por la UPE, este estudio deberá complementarse con las prospecciones realizadas por cada Unidad Regional del INA, para los casos en que la necesidad deba definirse según la pertinencia del mercado de la zona.
+Para complementar el diagnóstico de determinación de necesidades institucionales también podrán utilizarse las siguientes fuentes:
+a) Políticas y programas gubernamentales e institucionales.
+b) Requerimientos de organismos nacionales e internacionales.
+c) Comités de Enlace.
+d) Cámaras empresariales, instituciones públicas y privadas.
+e) Potenciales inversionistas (nacionales y extranjeros).
+f) Gremios empresariales y de trabajadores.
+g) Colegios profesionales.
+h) Solicitudes específicas de personas físicas, empresas o comunidades.
+i) Análisis de requerimientos laborales en medios de prensa.
+j) Evaluaciones de impacto. Oficinas de intermediación de empleo.
+k) Estudios generados por unidades del INA: Gestión Rectora del Sistema Nacional de Capacitación y Formación Profesional, Gestión Regional, Gestión de Formación y Servicios Tecnológicos y Unidad de Planificación y Evaluación.
+l) Resultados de vigilancia estratégica de las dependencias responsables de ésta.
+m)Información generada por empresas catalogadas como Centros Colaboradores y personas físicas y jurídicas con servicios de capacitación y formación profesional acreditados.
+n) Estudios de necesidades y requerimientos de formación y capacitación.
+o) Informantes clave de los diferentes sectores de la economía.
+p) Ferias vocacionales.
+q) Pre matrículas reportadas por las regionales.
+r) Lista de personas interesadas que generan las comunidades. s) Bases de datos de personas interesadas en las Unidad
+Regionales y en el Centro de Llamadas INA.
+t) Otras señales del mercado, así como aquellas que al efecto la administración considere convenientes conforme al interés general.

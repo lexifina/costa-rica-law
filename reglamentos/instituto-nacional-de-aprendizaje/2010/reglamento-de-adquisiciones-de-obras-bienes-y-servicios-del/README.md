@@ -16,3 +16,4 @@ Reglamento de Adquisiciones de Obras Bienes y Servicios del INA
 | 1 | 2010-09-03 | la propia norma |
 | 2 | 2011-06-20 | Reglamento 4489 (2011-06-20) |
 | 3 | 2018-04-23 | Reglamento 4845 (2018-04-23) |
+| 4 | 2018-11-12 | Reglamento 4872 (2018-11-12) |

@@ -1,13 +1,4 @@
-Artículo 12.—Requisitos para las justificaciones de compra. La justificación de la solicitud de adquisición deberá ser formulada por el encargado de la unidad solicitante, considerando:
-a) La necesidad a satisfacer con la contratación y los beneficios que se espera obtener, ambos en concordancia con los planes de largo y mediano plazo, el Plan Nacional de Desarrollo, el Plan Anual Operativo, el presupuesto, la disponibilidad presupuestaria para la adquisición de obras, bienes y el Programa de Adquisiciones Institucional.
-b) La descripción del objeto de la contratación (las especificaciones técnicas) que permitan satisfacer los requerimientos internos y que correspondan a la realidad y necesidad real del mercado.
-c) Los procedimientos de control de calidad que se aplicarán durante la ejecución del contrato y para la recepción de la obra, bien o servicio.
-d) La estimación actualizada del costo del objeto, conforme al artículo 12 RLCA.
-e) En las licitaciones públicas deberá acreditarse la existencia de estudios que demuestren que los objetivos del proyecto de contratación serán alcanzados con una eficiencia y seguridad razonables, de conformidad con el artículo 8º inciso e) del RLCA.
-f) Indicación expresa de los recursos humanos y materiales a disponer para verificar la correcta ejecución del contrato.
-g) La designación de un encargado general de supervisar el contrato.
-h) Establecer los factores de calificación y su aplicación.
-i) Deberá además incluir cualquier otro aspecto de relevancia para la contratación, como el requerimiento de capacitación, garantías, plazos de entrega, entre otros elementos esenciales y necesarios para la contratación.
-j) En el caso de las contrataciones de servicios de capacitación y formación profesional, la justificación de compra deberá contar con la aprobación de la Subgerencia Técnica previo a su digitación en el SIREMA, de conformidad con lo establecido en el artículo 11 de este reglamento.
-La presentación incompleta o poco clara de la información, facultará al Proceso de Adquisiciones a prevenir por una única vez la justificación de la solicitud de adquisición, para lo cual la Unidad Solicitante contará con un plazo de dos días hábiles para solventar el problema, de no procederse con lo requerido de manera satisfactoria, se anulará la solicitud de trámite.
-(Así reformado en sesión N° 4489 del 20 de junio del 2011)
+Artículo 12.—Determinación de necesidades para las contrataciones de Servicios de Capacitación y Formación Profesional. Con la orientación metodológica brindada por la UPE y la Gerencia General o a quien esta delegue, se establecerá un procedimiento de identificación de necesidades con el fin de normar los estudios pertinentes.
+Para estos efectos las Unidades Regionales deberán someter ante la Gestión Regional la justificación de compra correspondiente para que esta verifique, apruebe o rechace el trámite.
+La Subgerencia Técnica aprobará o rechazará las justificaciones remitidas con el visto bueno de la Gestión Regional.
+Una vez aprobada la justificación de compra por parte de la Subgerencia Técnica, la Unidad Regional solicitante podrá gestionar la contratación de servicios de capacitación y formación profesional de conformidad con los artículos 10 y siguientes del presente reglamento y la Ley de Contratación Administrativa y su reglamento.
