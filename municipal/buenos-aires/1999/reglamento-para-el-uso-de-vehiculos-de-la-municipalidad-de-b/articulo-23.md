@@ -1,1 +1,0 @@
-Artículo 23.-EI Alcalde Municipal es responsable de velar por la aplicación de este Reglamento, así como interpretar sus disposiciones, cuando surjan dudas en su aplicación, dictando las directrices pertinentes.
