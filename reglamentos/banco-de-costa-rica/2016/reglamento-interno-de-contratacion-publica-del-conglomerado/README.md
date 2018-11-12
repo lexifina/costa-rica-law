@@ -15,3 +15,4 @@ Reglamento interno de contratación pública del Conglomerado Financiero BCR
 | --- | --- | --- |
 | 1 | 2016-06-16 | la propia norma |
 | 2 | 2017-08-03 | Reglamento 33 (2017-08-03) |
+| 3 | 2018-11-12 | Reglamento 58 (2018-11-12) |

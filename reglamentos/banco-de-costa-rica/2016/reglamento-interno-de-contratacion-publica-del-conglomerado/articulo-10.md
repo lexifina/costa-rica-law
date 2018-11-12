@@ -1,7 +1,16 @@
-Artículo 10. Unidad de Seguimiento Contractual y Pólizas. La Unidad de Seguimiento Contractual y Pólizas adscrita a la Oficina de Contratación Administrativa, será la encargada de fiscalizar la ejecución de los contratos administrativos suscritos por el Banco.
-Esta función la ejercerá mediante la revisión de expedientes que serán seleccionados mediante los criterios que establezca esta Unidad, a efecto de verificar el cumplimiento del objeto contractual, así como su ajuste a la normativa que atañe a la contratación administrativa.
-Cuando producto de esta revisión se requiera solicitar información o aclaraciones al administrador del contrato, este requerimiento deberá ser atendido por la oficina correspondiente en el plazo máximo de 15 días hábiles, que podrá ser extendido por un plazo igual, previa justificación de la oficina. En caso de no obtenerse respuesta sin que medie justificación, se procederá a informar al Gerente de Área para que disponga las medidas que considere pertinentes.
-La Unidad de Seguimiento Contractual y Pólizas en caso de encontrar anomalías en el expediente de ejecución rendirá los informes necesarios y pertinentes ante la jefatura de la oficina responsable de la ejecución del contrato o el superior jerárquico de esta para que tome las acciones o realice las investigaciones que correspondan, en los casos lo ameriten. Asimismo, rendirá informes de labores semestralmente, con cortes al 30 de junio y al 31 de diciembre de cada año respecto del seguimiento realizado a la fase de ejecución contractual, los cuales se deberán someter a conocimiento del Comité Ejecutivo Corporativo, de la Gerencia de Área de Servicios Corporativos y de la Oficina de Control Interno
-Además, tendrá como función actuar como Órgano instructor del procedimiento administrativo ordinario para los procedimientos de resolución y sanciones a particulares, del procedimiento sumario para el cobro de multas o cláusulas penales y los procedimientos especiales para la ejecución de garantías de participación y cumplimiento y rescisión contractual.
-También resolverá los recursos contra las resoluciones de mero trámite o incidentales que se interpongan dentro del procedimiento ordinario.
-Esta Unidad podrá conocer de cualquier otro asunto relacionado con la ejecución contractual no contemplada en este artículo.
+Artículo 10. Atribuciones por naturaleza de la contratación Atendiendo a la naturaleza de la contratación las atribuciones deben ser las siguientes:
+10.1. Enajenación de bienes inmuebles propios
+El inicio de los procedimientos promovidos para la enajenación o concesión de bienes inmuebles propios del Banco debe ser autorizado por cualquiera de los siguientes funcionarios: el gerente general, los subgerentes, los gerentes corporativos, o el gerente de área de servicios corporativos.
+10.2. Enajenación de bienes muebles propios
+El inicio de los procedimientos tendientes a la enajenación de bienes muebles del Banco puede ser autorizado por cualquiera de los siguientes funcionarios: el gerente general, los subgerentes, gerentes corporativos y gerente de área de servicios corporativos.
+Quedan facultados los órganos y servidores que se indican a continuación para adjudicar la enajenación o concesión de bienes inmuebles propios del Banco, de bienes muebles propios del Banco, siempre que el monto a cobrar por tales contratos no sobrepase las atribuciones ahí concedidas, así como para disponer prórrogas, modificaciones e incrementos de los mismos. Todo arrendamiento se debe formalizar mediante contrato escrito.
+Pueden adjudicar los procedimientos regulados en este artículo, por los montos establecidos, los siguientes órganos y servidores:
+Órganos y servidores | Límite (1)
+Comité Corporativo Ejecutivo | Sin límite
+Comisión de Contratación Administrativa Corporativa | Hasta ¢400.0 millones
+Gerencia General Subgerentes Gerentes corporativos (1) | Hasta ¢200.0 millones
+Gerentes de área de servicios corporativos (2) | Hasta ¢100.0 millones
+(1) Actuando de manera conjunta.
+(2) Actuando de manera conjunta con alguno de los servidores de los rangos superiores.
+Cuando lo que se pretenda sea la venta de bienes propios del Banco es indispensable que se realice una valoración pericial previa. La vigencia máxima de los avalúos para la enajenación de bienes muebles es de seis meses y de un año para inmuebles. Vencidos dichos plazos, las oficinas correspondientes deben solicitar nuevas valoraciones periciales de previo a concertar cualquier tipo de contratación.
+Los avalúos sobre bienes muebles o inmuebles pueden ser realizados por peritos o técnicos del Banco, o externos, según lo defina el servidor competente, de acuerdo con las atribuciones previstas en este Reglamento.

@@ -1,1 +1,3 @@
-Artículo 67. Servidores autorizados. El gerente general, los subgerentes, los gerentes corporativos, gerentes de área y el jefe de la Oficina de Contratación Administrativa o quienes los sustituyan formalmente, quedarán facultados para adjudicar conjuntamente la realización de tales gastos de acuerdo con las atribuciones establecidas en el artículo 11.
+Capítulo XI
+Disposiciones finales
+Artículo 67. Normas supletorias. Cualquier hecho de fondo o de orden procedimental no previsto en el presente Reglamento debe ser resuelto aplicando las normas pertinentes de la Ley de Contratación Administrativa y su Reglamento cuyas disposiciones por el fondo deben prevalecer en caso de contradicción con el presente instrumento.
