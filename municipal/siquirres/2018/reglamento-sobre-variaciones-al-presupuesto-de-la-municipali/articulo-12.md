@@ -1,0 +1,1 @@
+Artículo 12.-Informe de resultado de las solicitudes de variaciones al presupuesto. Será entregada a cada una de las personas que ha solicitado una modificación o inclusión de recursos en cualquiera de las variaciones al presupuesto, una nota indicándole si fue aprobada o no su solicitud.
