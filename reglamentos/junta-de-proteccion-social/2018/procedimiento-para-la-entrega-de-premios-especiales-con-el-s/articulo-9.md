@@ -1,0 +1,1 @@
+Artículo 9º—Vigencia. Este procedimiento tiene vigencia durante los eventos en las comunidades que la Junta efectuará, cuyas fechas, lugares y horas se estará comunicando oportunamente y la lotería participante corresponde al Sorteo Extraordinario de Navidad N° 4522, que se estará vendiendo durante dichos eventos dentro de los toldos de la Junta.
