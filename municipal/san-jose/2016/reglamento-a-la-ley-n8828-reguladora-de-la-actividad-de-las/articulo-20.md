@@ -1,2 +1,2 @@
-ARTÍCULO 20.- Causales de remoción de los miembros de la junta directiva
-Los miembros de la junta directiva solo podrán ser removidos cuando la asamblea de accionistas, por acuerdo razonado de quienes representen la mayoría del capital social, declare la violación grave y específica de los deberes del cargo, así como también la ineficiencia, sin perjuicio de la responsabilidad civil o penal en que haya incurrido el directivo.
+ARTÍCULO 20.- Causales de remoción de los miembros de la Junta Directiva. Los miembros de la Junta Directiva solo podrán ser removidos cuando la asamblea de accionistas por mayoría simple y sobre la base de un acuerdo razonado, declare la violación grave y específica de los deberes del cargo, así como también la ineficiencia, sin perjuicio de la responsabilidad civil o penal en que haya incurrido el directivo.
+(Así reformado en sesión N° 133 del 13 de noviembre de 2018)

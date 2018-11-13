@@ -14,3 +14,4 @@ Reglamento a la ley N°8828 reguladora de la actividad de las Sociedades Públic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-05-19 | la propia norma |
+| 2 | 2018-11-13 | Reglamento municipal 133 (2018-11-13) |
