@@ -1,2 +1,0 @@
-Artículo 7º—Responsable El Departamento de Servicios de la Dirección Administrativa Financiera del Ministerio de Hacienda, será el encargado de realizar la inscripción de los talleres en el Registro de Elegibles. Además, deberá mantener dicho registro debidamente actualizado y remitir el informe con las eventuales responsabilidades por incumplimientos a la Proveeduría Institucional para las acciones respectivas.
-La Proveeduría Institucional por su parte, realizará la valoración de los aspectos de legalidad conforme al presente Reglamento.

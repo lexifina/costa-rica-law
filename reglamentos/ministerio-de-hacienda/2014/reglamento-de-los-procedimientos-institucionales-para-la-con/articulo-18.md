@@ -1,3 +1,0 @@
-CAPITULO III
-Procedimiento de Contratación
-Artículo 18.—Objetivo del procedimiento. El procedimiento para la contratación regulado en el presente Reglamento, pretende un mecanismo ágil y efectivo que permita mantener la flotilla de vehículos de este Ministerio en las mejores condiciones mecánicas posibles; obteniendo el servicio de empresas registradas, que cumplan con los requerimientos técnicos y legales exigidos por el Ministerio de Hacienda, igualmente, pretende regular la calidad de los servicios contratados, así como los repuestos e insumos utilizados en cada reparación y que son aportados por los talleres contratistas.
