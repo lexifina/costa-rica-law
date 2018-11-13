@@ -14,3 +14,4 @@ Reglamento para ejecutar feria, turnos, monta y corridas de toros, tope o desfil
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-09-20 | la propia norma |
+| 2 | 2018-11-13 | Reglamento municipal 0 (2018-11-13) |
