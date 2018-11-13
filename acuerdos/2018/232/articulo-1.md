@@ -1,0 +1,22 @@
+SUPERINTENDENCIA GENERAL DE VALORES
+La Superintendencia General de Valores de conformidad con lo establecido en la Ley 8220 “Protección del ciudadano del exceso de requisitos y trámites administrativos” publica el siguiente acuerdo:
+SGV-A-232. Superintendencia General de Valores. Despacho de la Superintendente. A las dieciséis horas del trece de setiembre del dos mil dieciocho.
+Considerando que:
+I. De conformidad con el artículo 8 de la Ley Reguladora del Mercado de Valores (LRMV) corresponde al Superintendente General de Valores adoptar todas las acciones necesarias para el cumplimiento efectivo de las funciones de regulación, fiscalización y supervisión que le competen a la Superintendencia General de Valores.
+II. El artículo 116 de la LRMV establece que la Superintendencia General de Valores reglamentará la organización y el funcionamiento de los registros, los sistemas de identificación y el control de los valores representados por medio de anotaciones electrónicas en cuenta.
+III. El artículo 20 del Reglamento de Custodia, establece que las entidades de custodia están obligadas a la permanente y precisa identificación de los titulares de los valores y del efectivo asociado bajo su custodia, la cual debe cumplirse tanto en el sistema de registro interno como en los sistemas de registro de las centrales de valores.
+IV. Para el cumplimiento de lo establecido en dicho artículo, la Superintendencia emitió el 28 de marzo del 2017, la norma SGV-A-223 Acuerdo para la identificación de los clientes titulares de las cuentas de valores en el sistema nacional de registro de anotaciones en cuenta y la administración de cuentas de valores tiene como propósito establecer las disposiciones normativas sobre una estructura estandarizada de identificación de los titulares de las cuentas de valores registradas en las entidades de custodia y en las entidades miembros del Sistema Nacional de Registro de Anotaciones en Cuenta.
+V. En el acuerdo SGV-A-223 mencionado supra se estableció para las personas jurídicas extranjeras la obligación del cumplimiento del decreto número 34691-J, el cual establece las normas para la asignación y expedición de la cédula de las personas jurídicas. Este decreto establece que las persona jurídicas, tanto de derecho público como privado, que existen en el país o llegaren a existir, así como las extranjeras que operen en el país, ya sea que se inscriban o no en el Registro de Personas Jurídicas del Registro Nacional, se identificarán con el número de cédula de persona jurídica que les asigne el Registro Nacional, el cual será único y unívoco para cada entidad, de manera que distinga a cada una de ellas, sin posibilidad de confusión.
+VI. No obstante lo anterior, como parte del proceso de adopción del Common Reporting Standard (CRS) de OCDE se considera necesario ampliar el alcance del acuerdo con el fin de incorporar como mecanismo alterno de identificación, el uso del Número de Identificación Tributaria (Tax identification numbers (TINs).
+VII. Lo anterior, debido a que se ha observado que el estándar de emisión de pasaportes como documento con validez internacional expedido por las autoridades de un país, que acredita la identidad y nacionalidad a una persona, puede variar de un país a otro, por lo que en algunos casos el “número de pasaporte” no necesariamente corresponde con un número único y unívoco para cada persona, de manera que distinga a cada una de ellas, sin posibilidad de confusión. En algunos países se ha observado que el “número de pasaporte” corresponde a un número de consecutivo de expedición, lo que dificulta la identificación de una persona física y puede inducir a que una misma persona no sea identificada como el mismo cliente. Por tanto, dispone el presente acuerdo:
+SGV-A-232. MODIFICACIÓN AL ACUERDO PARA LA
+IDENTIFICACIÓN DE LOS CLIENTES TITULARES
+DE LAS CUENTAS DE VALORES EN EL SISTEMA
+NACIONAL DE REGISTRO DE ANOTACIONES
+EN CUENTA Y LA ADMINISTRACIÓN DE
+CUENTAS DE VALORES
+Artículo 1º—Modificaciones al SGV-A-223 Modificar los siguientes artículos:
+“Artículo 8º—Identificación personas físicas Para identificar a los clientes titulares físicos de las cuentas de valores, de acuerdo a su naturaleza y con la información que se tenga disponible, se debe cumplir con el siguiente estándar:
+[imagen]
+Artículo 9º—Persona jurídica Para identificar a los clientes titulares de las cuentas de valores correspondientes a personas jurídicas, según su naturaleza y con la información que se tenga disponible, se debe cumplir con el siguiente estándar:
+[imagen]
