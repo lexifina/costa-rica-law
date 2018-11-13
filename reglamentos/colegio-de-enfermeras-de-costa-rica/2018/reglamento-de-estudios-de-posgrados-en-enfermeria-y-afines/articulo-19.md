@@ -1,0 +1,1 @@
+Artículo 19.—El Colegio de Enfermeras de Costa Rica tiene la potestad de incluir en esta lista de postgrados y especialidades aquellas que no aparecen registradas, pero que cumplen con los requisitos establecidos y aprobados por la Asamblea.

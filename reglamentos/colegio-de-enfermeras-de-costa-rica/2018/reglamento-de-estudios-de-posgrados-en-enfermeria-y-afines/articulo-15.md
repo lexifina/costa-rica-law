@@ -1,0 +1,1 @@
+Artículo 15.—Licencia: En la licencia se hará constar el cambio de grado académico en Enfermería obtenido por el colegiado y que fue aprobado por el colegio. En los posgrados afines se anotará primero el grado o posgrado en enfermería y seguidamente la maestría afín.

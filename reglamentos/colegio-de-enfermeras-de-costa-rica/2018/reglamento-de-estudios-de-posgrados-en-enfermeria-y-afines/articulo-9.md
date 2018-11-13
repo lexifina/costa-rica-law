@@ -1,0 +1,1 @@
+Artículo 9º—Descripción del título: Los títulos de los posgrados propios de la disciplina, otorgados por las universidades, deben contener el termino de Enfermería en… (Especialidad profesional, maestría profesional, maestría académica, doctorado y posdoctorado), para que se acredite el cambio de grado académico correspondiente.

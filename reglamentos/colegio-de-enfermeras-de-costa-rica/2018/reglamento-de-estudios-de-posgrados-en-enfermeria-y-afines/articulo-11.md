@@ -1,0 +1,1 @@
+Artículo 11.—Plazo de aprobación: La UDP dispondrá de un plazo de treinta días hábiles, a partir de la fecha de recepción de la solicitud de revisación y análisis, para recomendar a la Junta Directiva su aprobación o denegación. De lo resuelto la UDP notificará a la persona interesada por escrito, dejando constancia en el expediente del Colegiado.

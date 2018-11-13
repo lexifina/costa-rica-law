@@ -1,0 +1,1 @@
+Artículo 14.—Certificación: El Colegio de Enfermeras de Costa Rica extenderá certificaciones de los cambios de grado y de los registros de posgrados afines con vista en el tomo y folio de incorporaciones de profesionales de Enfermería.

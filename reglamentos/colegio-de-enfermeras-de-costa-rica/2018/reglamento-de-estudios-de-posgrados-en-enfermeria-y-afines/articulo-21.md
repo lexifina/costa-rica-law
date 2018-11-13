@@ -1,0 +1,1 @@
+Artículo 21.—La publicación de este Reglamento para el Registro de Estudios de posgrados del Colegio de Enfermeras de Costa Rica fue aprobada en la asamblea general extraordinaria del 25 de agosto 2018 y en la sesión de • del 27 de setiembre 2018, acta N° 2397. Rige a partir de su publicación en el Diario Oficial La Gaceta. Publíquese una vez.

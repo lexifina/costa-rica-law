@@ -1,0 +1,1 @@
+Artículo 12.—Recursos: El solicitante tendrá derecho a presentar recursos de revocatoria con apelación en subsidio ante la Junta Directiva dentro del plazo de tres días hábiles después de recibida la debida notificación.
