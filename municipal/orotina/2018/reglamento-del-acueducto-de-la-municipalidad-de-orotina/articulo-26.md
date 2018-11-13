@@ -1,0 +1,1 @@
+Artículo 26.-Fuente pública. Salvo lo establecido en los incisos a) y b) del artículo anterior, la Municipalidad, previa solicitud del administrado, podrá instalar una fuente pública de agua lo más cercana posible a la propiedad afectada, para que ésta pueda abastecerse. Dicha fuente no deberá ubicarse a más de 200 metros de la vivienda.

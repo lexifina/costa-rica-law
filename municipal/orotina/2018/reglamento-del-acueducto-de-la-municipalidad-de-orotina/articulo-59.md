@@ -1,0 +1,1 @@
+Artículo 59.-Testigos. La presencia de alguna persona en el inmueble como testigo de una inspección, no será requisito para que aquella pueda realizarse, por lo que de no encontrarse nadie en el sitio en el momento en que se realice la inspección, siempre se realizará la diligencia prevista.

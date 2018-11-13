@@ -1,0 +1,1 @@
+Artículo 30.-Vigencia tarifaria. Dicha tarifa debe ser aprobada por la entidad reguladora que establezca la Ley y empezarán a regir treinta días después de su publicación definitiva en el Diario Oficial La Gaceta.

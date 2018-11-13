@@ -1,0 +1,6 @@
+CAPÍTULO VIII
+Del recibimiento de nuevos acueductos en urbanizaciones y condominios
+Artículo 50.-Recibimiento de acueductos en proyectos urbanísticos conectados a la red municipal. Toda la infraestructura para la distribución de agua potable, existente en aquellos proyectos urbanísticos para los cuales la Municipalidad haya otorgado disponibilidad y autorización, deberá ser traspasada legalmente a la Municipalidad, para lo cual el desarrollador deberá cumplir los siguientes requisitos:
+a) Aportar copia física o digital de los planos constructivos actualizados del proyecto, correspondientes al Diseño de sitio y de la red interna de distribución de agua potable.
+b) Cuando se trate de condominios, deberá crearse la servidumbre de acueducto y la servidumbre de paso de funcionarios y equipo municipal, con el fin de facilitar a la institución la administración y prestación del servicio.
+c) Construir la caja e instalar los accesorios del hidrómetro en cada una de las previstas de agua potable.

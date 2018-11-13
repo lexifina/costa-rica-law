@@ -1,0 +1,3 @@
+CAPÍTULO V
+De las tarifas
+Artículo 28.-Componentes. Para establecer el monto de las tarifas la Municipalidad aplicará lo dispuesto en el artículo 83 del Código Municipal. La Municipalidad incluirá los costos de cada una de las actividades que integra el servicio, a saber: conexión, desconexión, reconexión, servicio de venta de agua potable, tasa para bomberos, sustitución de hidrómetros, las cuales se elaborarán previo estudio de costos de administración, operación, mantenimiento, desarrollo, inversión y servicio de la deuda y tomando como base el principio de servicio al costo más un rédito de desarrollo y criterios de justicia social distributiva, sostenibilidad ambiental, conservación, eficiencia económica y equilibrio financiero.

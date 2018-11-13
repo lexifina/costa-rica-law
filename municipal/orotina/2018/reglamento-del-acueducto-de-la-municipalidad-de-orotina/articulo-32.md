@@ -1,0 +1,4 @@
+CAPÍTULO VI
+Del registro y cobro del servicio
+Artículo 32.-Del registro. Una vez autorizada la paja de agua, la Municipalidad, procederá a registrar de oficio en el sistema de facturación los costos de instalación que genere y cuyo pago previo es requisito para la instalación del servicio. Igual procedimiento se utilizará para registrar los costos de desconexión y reconexión que origine el respectivo servicio.
+Una vez efectuada la conexión, la Municipalidad registrará el servicio a partir del día de su instalación y según la modalidad que corresponda de acuerdo con lo indicado en el artículo 8 de este reglamento.
