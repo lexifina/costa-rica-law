@@ -1,6 +1,7 @@
 ARTÍCULO 2-Las personas físicas o jurídicas legalmente constituidas, beneficiarias de esta ley, deberán cumplir con los siguientes requisitos y condiciones:
 a) El área por pérdidas de cultivos o por área afectada esté registrada en la lista oficial emitida por Conarroz.
-b) Para que sea considerada como el área por pérdidas de cultivos o por área afectada, al cierre de la cosecha, se deberá calcular el rendimiento general del lote de acuerdo con la producción finalmente entregada y según el área inscrita. Este rendimiento debe ser inferior al veinte por ciento (20%), respecto del promedio de rendimiento de la zona.
+b) Para que sea considerada como el área por pérdidas de cultivos o por área afectada, al cierre de la cosecha, se deberá calcular el rendimiento general del lote de acuerdo con la producción finalmente entregada y según el área inscrita. Este rendimiento debe ser inferior al ochenta por ciento (80%), respecto del promedio de rendimiento de la zona.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 9627 del 14 de noviembre de 2018)
 c) Realizar la solicitud por escrito, ante Conarroz, del beneficio económico directo regulado en esta ley.
 d) Certificación de no haber sido indemnizado por el Instituto Nacional de Seguros (INS), por el mismo fenómeno climático.
 e) Declaración jurada del productor arrocero en la que se compromete a utilizar la ayuda exclusivamente para recuperarse de las pérdidas causadas por la tormenta Nate a la actividad arrocera.
