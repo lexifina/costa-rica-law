@@ -16,3 +16,4 @@ Reglamento de la Sección de Tesorería.
 | 1 | 1999-12-07 | la propia norma |
 | 2 | 2001-10-18 | Reglamento 43 (2001-10-18) |
 | 3 | 2017-05-22 | Reglamento 18 (2017-05-22) |
+| 4 | 2018-11-14 | Reglamento 40 (2018-11-14) |
