@@ -1,0 +1,1 @@
+Artículo 2º—Periodicidad: La Orquesta Sinfónica Nacional, en la medida de sus posibilidades, programará en su temporada de conciertos especiales, un concierto denominado “Jóvenes Solistas”, el cual se llevará a cabo cada dos años y tendrá una duración máxima de dos horas.

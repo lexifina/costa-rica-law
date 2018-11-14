@@ -1,0 +1,1 @@
+Artículo 7º—De los Jurados Calificadores: Se establecen los Jurados Calificadores como órganos colegiados encargados de evaluar las audiciones para la selección de los jóvenes que participarán como solistas en este programa de la Orquesta Sinfónica Nacional.

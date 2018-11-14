@@ -1,0 +1,16 @@
+N° 41303-C
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE CULTURA Y JUVENTUD
+Con fundamento en los artículos 140 incisos 3), 8) y 18), y 146 de la Constitución Política de la República de Costa Rica; 25 inciso 1) y 28 inciso 2) b de la Ley N° 6227, Ley General de la Administración Pública, del 2 de mayo de 1978; la Ley N° 8347, Ley de Creación del Centro Nacional de la Música, del 19 de febrero de 2003, publicada en el Diario Oficial La Gaceta N° 43 del 3 de marzo del 2003; el Decreto Ejecutivo N° 36789-C, Reglamento a la Ley N° 8347 - Ley de Creación del Centro Nacional de la Música, del 1º de agosto del 2011, publicado en el Diario Oficial La Gaceta N° 198 del 14 de octubre del 2011 y
+Considerando:
+I.—Que la Ley N° 8347 - Ley de Creación del Centro Nacional de la Música, del 19 de febrero del 2003, publicada en el Diario Oficial La Gaceta N° 43 del 3 de marzo del 2003, creó a dicho Centro, como un Órgano con desconcentración mínima, del Ministerio de Cultura y Juventud (antes de Cultura, Juventud y Deportes) cuya finalidad es contribuir al desarrollo, fortalecimiento, enseñanza y difusión de las artes musicales en todas sus manifestaciones.
+II.—Que el artículo 5 inciso g) de la citada Ley, establece que es función de la Junta Directiva del Centro Nacional de la Música (en adelante CNM); elaborar los Reglamentos internos necesarios para el correcto funcionamiento del Centro y someterlos a conocimiento del Ministro de Cultura y Juventud (antes de Cultura, Juventud y Deportes), para su aprobación definitiva y promulgación.
+III.—Que desde el año 1981, la Orquesta Sinfónica Nacional crea un programa denominado Jóvenes Solistas, para incentivar a esta población de músicos en el campo del repertorio solístico.
+IV.—Que es indispensable dictar el presente Reglamento, en aras de regular clara y precisamente los procesos de audición para seleccionar dichos solistas, constituyendo un articulado garante del debido proceso, respetuoso de los derechos de los participantes y que certifique la transparencia en la elección de estos artistas.
+V.—Que por acuerdo firme N° 9, tomado en sesión ordinaria N° 07-17, celebrada en fecha diecisiete de abril de dos mil diecisiete, la Junta Directiva del Centro Nacional de la Música, aprobó el presente Reglamento y acordó someterlo a conocimiento de la señora Ministra de Cultura y Juventud, para su aprobación y promulgación.
+VI.—Que según informe de Análisis Regulatorio N° DMRDAR- INF-120-17, de 17 de agosto del 2017, La Dirección de Mejora Regulatoria y Reglamentación Técnica del Ministerio de Economía Industria y Comercio, concluyó que el presente Reglamento, cumple con lo establecido por la Ley N° 8220 –Ley de Protección al ciudadano del exceso de requisitos y trámites administrativos-, y sus reformas, así como lo establecido en su respectivo reglamento, Decreto Ejecutivo N° 38898-MP-MEIC, Reglamento a la Ley de protección al ciudadano del exceso de requisitos y trámites administrativos. Por lo tanto,
+Decretan:
+Reglamento para la Convocatoria del Programa
+“Jóvenes Solistas” de la Orquesta Sinfónica
+Nacional de Costa Rica
+Artículo 1º—Objeto: El presente Reglamento tiene por objeto, regular el procedimiento de audiciones, del programa “Jóvenes Solistas” de la Orquesta Sinfónica Nacional de Costa Rica.
