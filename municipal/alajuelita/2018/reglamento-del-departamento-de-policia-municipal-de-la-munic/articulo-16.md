@@ -1,0 +1,1 @@
+Artículo 16.—Todo lo anterior de acuerdo a la anuencia de cada uno de los organismos o instituciones antes mencionadas, y la disponibilidad de recursos tanto de la parte municipal como de las entidades mencionadas.

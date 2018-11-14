@@ -1,0 +1,1 @@
+Artículo 13.—El nombramiento de las jefaturas se establecerá de acuerdo a las normas de reclutamiento de personal vigentes en la Municipalidad, la cual fijara los requisitos para optar por dichos puestos.

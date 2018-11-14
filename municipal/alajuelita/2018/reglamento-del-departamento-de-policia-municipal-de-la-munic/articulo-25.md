@@ -1,0 +1,1 @@
+Artículo 25.—El Policía Municipal deberá, en todo momento, presentarse en perfecto estado de salud y aseo personal, manteniendo en buen estado de conservación el vestuario, así como los equipos que le fueran entregados o encomendados para su uso y/o custodia; procurando siempre una imagen decorosa.

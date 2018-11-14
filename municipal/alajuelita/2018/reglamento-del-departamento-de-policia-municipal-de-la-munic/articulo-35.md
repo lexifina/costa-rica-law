@@ -1,0 +1,1 @@
+Artículo 35.—Las distinciones otorgadas a los Policías Municipales serán tenidas en cuenta para la valoración en los concursos para el ascenso a otro cargo, para la adjudicación de destinos y para el acceso a los cursos de actualización de conocimientos y especialización de la Academia de Policía Municipal.
