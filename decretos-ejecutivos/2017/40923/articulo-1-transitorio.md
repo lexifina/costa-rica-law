@@ -1,0 +1,1 @@
+Transitorio Único: Los entes y órganos de la administración central que lleven adelante Reglamentos Técnicos, continuarán presentando el Costo Beneficio contemplado en el Anexo 4 de conformidad con el artículo 56 de este reglamento, mientras entra a regir el artículo 60 bis y el Anexo 5 indicado.
