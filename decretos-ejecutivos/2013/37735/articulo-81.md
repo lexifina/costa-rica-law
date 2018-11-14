@@ -1,1 +1,2 @@
-Artículo 81.—Manuales. MIDEPLAN emitirá los manuales técnicos que sean necesarios para implementar este Reglamento.
+Artículo 81.- Interés Público y Nacional. Manuales. Se declara de interés público y nacional al SNP. Los órganos, entes y empresas públicas podrán aportar bienes y servicios para el funcionamiento del SNP, de acuerdo con sus posibilidades y sin perjuicio de sus operaciones. Las personas y organizaciones privadas y los organismos internacionales podrán contribuir para el logro de los fines del SNP, de acuerdo con los marcos jurídicos pertinentes. MIDEPLAN emitirá los manuales técnicos que sean necesarios para implementar este Reglamento.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 41483 del 14 de noviembre del 2018)
