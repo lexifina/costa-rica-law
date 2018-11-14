@@ -1,1 +1,1 @@
-Artículo 34.—Exclusión de bienes del inventario. Una vez que el acta esté debidamente aprobada y los bienes entregados a la entidad beneficiada, la Jefatura del Departamento de Administración y Finanzas procederá a excluir contablemente tales bienes del inventario de bienes de la Operadora.
+Artículo 34.—Exclusión de bienes del inventario. Una vez que el acta esté debidamente aprobada y los bienes entregados a la entidad beneficiada, la Gerencia de Administración y Finanzas procederá a excluir contablemente tales bienes del inventario de activos de la Operadora.
