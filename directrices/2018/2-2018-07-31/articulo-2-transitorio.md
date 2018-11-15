@@ -1,0 +1,2 @@
+Transitorio II.—Que las solicitudes de establecimientos, que no tengan requisitos establecidos en la presente Directriz, deberán ser analizadas por el Programa o Dirección Nacional, según sea la actividad específica y resolverse en relación a si dicha actividad se incluye como una de las sujetas a otorgamiento del Símbolo de Sanidad, lo anterior en un plazo no mayor a un mes calendario, mediante resolución razonada emitida por dicha dependencia.
+Dada en Barreal de Ulloa, a los 31 días del mes de julio del año 2018.

@@ -1,0 +1,18 @@
+Artículo 2º—Definiciones.
+Buenas prácticas de manufactura: condiciones de infraestructura y procedimientos establecidos para todos los procesos de producción y control de alimentos, bebidas y productos afines, con el objeto de garantizar la calidad e inocuidad de dichos productos según normas aceptadas internacionalmente.
+Certificado Veterinario de Operación (CVO): Certificado que emite el SENASA, mediante el cual se hará constar la autorización, a fin de que el establecimiento se dedique a una o varias actividades de las enumeradas en el artículo 56 de la Ley SENASA, Nº 8495.
+Derivados de origen animal: Productos comestibles elaborados mediante tratamientos tecnológicos que modifican los caracteres organolépticos y composición, a partir de productos o subproductos de origen animal autorizados.
+Inocuidad de alimentos: Garantía de que el alimento es apto para el consumo humano, de acuerdo con el uso al que se destina.
+Productos de origen animal: Los productos de origen animal se denominarán, según su procedencia:
+1) Productos ganaderos: cuando procedan de animales mamíferos domésticos.
+1.1 Carne: parte muscular comestible de los animales de matanza sacrificados y procesados en un matadero autorizado, se incluyen porciones de grasas, hueso, cartílago, piel, tendones, aponeurosis, nervios, vasos sanguíneos y linfáticos, que normalmente acompañan al tejido muscular y que no son separados de este durante el procesamiento. Se incluye en esta categoría la carne picada o molida.
+1.2 Leche: secreción mamaria normal de animales lecheros obtenida mediante uno o más ordeños sin ningún tipo de adición, destinada al consumo en forma de leche líquida o a elaboración ulterior.
+2) Productos avícolas: cuando procedan de las aves domésticas.
+2.1 Carne: parte muscular comestible de los animales de matanza sacrificados y procesados en un matadero autorizado, se incluyen porciones de grasas, hueso, cartílago, piel, tendones, aponeurosis, nervios, vasos sanguíneos y linfáticos, que normalmente acompañan al tejido muscular y que no son separados de este durante el procesamiento. Se incluye en esta categoría la carne picada o molida.
+2.2 Huevos
+3) Productos de la pesca: Los pescados, crustáceos, moluscos, batracios, reptiles y mamíferos de especies comestibles ya sea de agua dulce o salada incluyendo la acuicultura, destinados al consumo humano.
+4) Productos apícolas: miel de abeja. Programa de prerrequisito: Condiciones y actividades básicas que son necesarias para mantener a lo largo de toda cadena alimentaria un ambiente higiénico apropiado para la producción, manipulación y provisión de productos finales inocuos y alimentos inocuos para el consumo humano.
+Símbolo de Sanidad: Reconocimiento otorgado por el SENASA a los establecimientos que críen y desarrollen animales o que procesen, industrialicen o comercialicen productos, subproductos y derivados de origen animal producidos en Costa Rica para consumo humano o animal y que se representará con una figura distintiva.
+Sistema de Análisis de Peligros y Puntos Críticos de Control (HACCP): Un sistema que permite identificar, evaluar y controlar peligros significativos para la inocuidad de los alimentos
+Subproductos de origen animal: Se entiende por subproducto de origen animal aquel que procede de animales o parte de ellos y que no está comprendido en la definición de producto de origen animal.
+Los subproductos se dividen en comestibles, tales como grasa, albúmina de sangre, hígado, corazón, bazo, riñón entre otros aprobados por la autoridad competente y en no comestibles como sebo, cuero, pluma, alimento para consumo de los animales, hueso entre otros.

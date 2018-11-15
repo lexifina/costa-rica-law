@@ -1,0 +1,1 @@
+Artículo 7º—Una vez otorgado el símbolo a un establecimiento, este podrá utilizarlo en las rótulos, banner, fundas, empaques o cajas de los productos y subproductos de origen animal por ellos producidos.

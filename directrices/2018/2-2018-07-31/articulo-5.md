@@ -1,0 +1,1 @@
+Artículo 5º—Además de lo anterior el SENASA por medio de anexos a esta directriz, podrá establecer requisitos específicos para cada una de las actividades sujetas a supervisión por parte de las dependencias del SENASA, dichos requisitos deben estar fundamentados en ciencia, técnica y obedecer a un criterio de objetividad.

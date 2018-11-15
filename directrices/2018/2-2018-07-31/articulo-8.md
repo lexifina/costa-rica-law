@@ -1,0 +1,1 @@
+Artículo 8º—El SENASA a través de las diferentes dependencias mantendrá las acciones de auditoría necesarias para garantizar el mantenimiento de las condiciones con base en las cuales se otorgó el reconocimiento indicado.

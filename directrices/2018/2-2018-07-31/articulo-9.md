@@ -1,0 +1,3 @@
+Artículo 9º—EL SENASA suspenderá el reconocimiento al Símbolo de Sanidad cuando el establecimiento incurra en el incumplimiento de las disposiciones emitidas por el SENASA.
+En esos casos, y habiéndose suspendido al establecimiento el reconocimiento, este deberá tomar las acciones necesarias para que en un término no mayor a seis meses calendario, descontinué el uso de la figura distintiva del Símbolo de Sanidad en sus fundas, empaques o cajas.
+Aquellos establecimientos que sin derecho alguno utilizar en el “Símbolo de Sanidad” serán sometidos a sanciones de acuerdo a lo establecido en la Ley Nº 8495.
