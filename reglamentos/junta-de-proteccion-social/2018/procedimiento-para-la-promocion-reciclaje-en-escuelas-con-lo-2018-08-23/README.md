@@ -14,3 +14,4 @@ Procedimiento para la promoción "Reciclaje en escuelas" con los sorteos de lote
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-08-26 | la propia norma |
+| 2 | 2018-11-15 | Reglamento 65 (2018-11-15) |
