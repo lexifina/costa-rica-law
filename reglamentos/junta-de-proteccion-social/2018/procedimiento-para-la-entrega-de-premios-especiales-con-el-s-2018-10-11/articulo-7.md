@@ -1,0 +1,2 @@
+Artículo 7º—Caducidad. Las entradas para el evento únicamente podrán retirarse en el Departamento de Mercadeo la semana del 10 al 14 de diciembre 2018, en un horario de 7:30 a.m. a 3:00 p.m.
+Los premios especiales obtenidos en los concursos a desarrollarse durante el evento del Sorteo Extraordinario de Navidad 2018 pueden ser reclamados a partir del día hábil siguiente a la fecha de realización de los diferentes concursos y dentro del período de caducidad de 60 días naturales, establecido en el artículo 18 de la Ley N° 8718.
