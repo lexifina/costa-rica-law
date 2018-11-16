@@ -1,0 +1,2 @@
+Artículo 16. Formato y vigencia de la credencial de guía de turismo. La credencial de guía de turismo del ICT será emitida en formatos diferenciados, de acuerdo con las clasificaciones de guías de turismo establecidas de conformidad con este Reglamento.
+Dicha credencial deberá renovarse cada tres años, con vencimiento en octubre del año correspondiente, siendo que su trámite de renovación podrá realizarse en cualquier mes del año de vencimiento.

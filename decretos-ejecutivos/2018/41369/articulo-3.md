@@ -1,0 +1,1 @@
+Artículo 3. Ente competente. El ICT es la institución competente para la aplicación de las disposiciones de este Reglamento. El otorgamiento, renovación, suspensión o cancelación de la credencial para los guías de turismo, es facultad exclusiva del Instituto de acuerdo a los procedimientos señalados en este Reglamento.

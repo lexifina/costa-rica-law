@@ -1,0 +1,1 @@
+Artículo 19. Organización. La CONAGUITUR elegirá por mayoría simple un vicepresidente y un secretario de entre sus integrantes, quienes ocuparán tales cargos por un año calendario y podrán ser reelectos por períodos sucesivos.

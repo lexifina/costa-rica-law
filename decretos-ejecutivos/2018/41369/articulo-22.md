@@ -1,0 +1,1 @@
+Artículo 22. Aplicación supletoria. En lo no dispuesto en este Reglamento con respecto a la CONAGUITUR, se aplicará lo señalado por la Ley General de la Administración Pública, Ley N° 6227 del 02 de mayo de 1978; en relación con el funcionamiento de los órganos colegiados.
