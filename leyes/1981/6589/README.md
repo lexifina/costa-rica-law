@@ -1,6 +1,6 @@
 # Autoriza la Municipalidad de Paraíso a Donar Terrenos
 
-Ley N° 6589 del 1981-08-15. SINALEVI, ficha 35821: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35821&param2=37768&param3=1>.
+Ley N° 6589 del 1981-08-15. SINALEVI, ficha 35821: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35821&param2=114148&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1981-08-15 | Ley 6589 | 1981-08-15 |
 | 2 de 3 | 1981-08-15 | SINALEVI | 1981-08-15 |
+| 3 de 3 | 2018-11-16 | Ley 9555 | 2018-05-09 |
