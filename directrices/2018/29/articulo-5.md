@@ -1,0 +1,2 @@
+Artículo 5º—Del trámite y agilización de casos de emergencia. Se insta a los órganos y entes públicos estatales y no estatales, el BANHVI y las Entidades Autorizadas que conforman el SFNV, establecer en sus procedimientos internos, plazos diferenciados entre las solicitudes identificadas como casos de emergencia, y las solicitudes de gestión ordinaria.
+Las Entidades Autorizadas, promoverán la identificación de los expedientes de casos que atienden una emergencia, de manera tal que al ingresar al BANHVI, sean de fácil reconocimiento.

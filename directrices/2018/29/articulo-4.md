@@ -1,0 +1,1 @@
+Artículo 4º—Del uso de las plataformas digitales de trámite de proyectos de construcción del CFIA. El MIVAH y el Colegio Federado de Ingenieros y de Arquitectos (CFIA), coordinarán, para que en la plataforma Administradora de Proyectos de Construcción (APC), se identifiquen los proyectos, como de atención de emergencias.
