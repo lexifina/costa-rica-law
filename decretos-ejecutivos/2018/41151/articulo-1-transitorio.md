@@ -1,0 +1,1 @@
+Transitorio I.- A partir de la vigencia de este Reglamento los Concesionarios implementaran el punto 5.3, por lo que deberán sustituir la válvula de acoplamiento rápido por la válvula de acoplamiento roscado (Tipo POL) en todos los cilindros portátiles que estén en uso en el país, en un plazo no mayor de 18 meses.
