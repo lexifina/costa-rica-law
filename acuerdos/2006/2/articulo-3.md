@@ -84,7 +84,7 @@ C(190) | Inversiones en propiedades
 PONDERACIÓN SEGÚN LA CONDICIÓN DE BANCO MULTILATERAL DE DESARROLLO Y SEGÚN LA CALIFICACIÓN DEL EMISOR | |
 C(112 + 113 + 114 + 118.01 + 118.08) | Disponibilidades (excepto efectivo y documentos de cobro inmediato) y productos por cobrar asociados (netos de estimaciones) |
 C(121 + 122 + 123 - 122.12 - (122.14 - 122.14.1.01) - 122.51 + 124+125-125.04-129 + 128 + 151.01 - D20116) | Inversiones y productos por cobrar asociados (netos de estimaciones). Incluye valores adquiridos en recuperación de créditos. |
-PONDERACIÓN SEGÚN LA CONDICIÓN DE CRÉDITO BACK TO BACK, OPERACIÓN CREDITICIAS CON GARANTIA HIPOTECARIA RESIDENCIAL Y SEGÚN LA CALIFICACIÓN DEL DEUDOR, | | Artículo 13 Artículo 14 Artículo 15 Artículo 16 (a) Artículo 17
+PONDERACIÓN SEGÚN LA CONDICIÓN DE CRÉDITO BACK TO BACK, OPERACIÓN CREDITICIAS CON GARANTIA HIPOTECARIA RESIDENCIAL Y SEGÚN LA CALIFICACIÓN DEL DEUDOR, | | Artículo 13 Artículo 14 Artículo 15 Artículo 16 (a) Artículo 17 Artículo 18 (Así adicionado la frase anterior por resolución SGF-3897-2018 y publicado en La Gaceta N° 42 del 28 de febrero de 2019) Artículo 18 bis (Así adicionado la frase anterior por resolución SGF-3897-2018 y publicado en La Gaceta N° 42 del 28 de febrero de 2019)
 C(131 + 132 + 133 + 134 + 138 - 139 - D(20092) | Cartera de créditos y productos por cobrar asociados (netos de estimaciones). No incluye los créditos otorgados a la sociedad controladora de su mismo grupo o conglomerado financiero. |
 C(142.01) | Comisiones por cobrar por créditos contingentes |
 C(145) | Cuentas por cobrar por operaciones con partes relacionadas |

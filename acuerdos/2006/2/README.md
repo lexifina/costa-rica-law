@@ -20,3 +20,4 @@ Lineamientos Generales para la Aplicación del Reglamento sobre la Suficiencia P
 | 5 | 2011-06-06 | Acuerdo 9 (2011-06-06) |
 | 6 | 2013-06-03 | Acuerdo 2 (2013-06-03) |
 | 7 | 2015-04-09 | Acuerdo 739 (2015-04-09) |
+| 8 | 2018-11-19 | Resolución 3897 (2018-11-19) |
