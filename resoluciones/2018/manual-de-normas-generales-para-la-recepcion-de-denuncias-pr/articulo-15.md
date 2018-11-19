@@ -1,0 +1,2 @@
+Artículo 15.—Desestimación y archivo de la denuncia. Se desestimará y archivará cualquier denuncia, cuando se determine que la misma se encuentra dentro de los parámetros indicados en el artículo anterior. Para lo anterior, se dará parte al denunciante por cinco días hábiles para que se manifieste.
+La desestimación, debidamente motivada, se hará constar en la comunicación al denunciante. Si el denunciante no puso o no tiene lugar para notificación, se levantará un acta de la desestimación y se archivará en el expediente.

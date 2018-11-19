@@ -1,0 +1,7 @@
+Artículo 14.—No se admitirán denuncias por las siguientes razones.
+a) Si la denuncia se refiere a intereses particulares exclusivos de los denunciantes, en relación con conductas ejercidas u omitidas por la administración, salvo que, de la información aportada en la denuncia, se logre determinar la existencia de aspectos relevantes, que ameriten ser investigados por la Auditoría Interna.
+b) Si los hechos denunciados corresponde que sean investigados o discutidos exclusivamente en otras sedes, ya sean administrativas o judiciales.
+c) Si los hechos denunciados se refieren a problemas de índole laboral que se presentaron entre el denunciante y la Administración Pública denunciada.
+d) Si el asunto planteado ante la Auditoría Interna, ya se encuentra en conocimiento de otras instancias de la administración, con competencia para realizar la investigación, ejercer el control y las potestades disciplinarias.
+e) Si la denuncia presentada fuera una reiteración o reproducción de otras denuncias similares sin aportar elementos nuevos y que ya hubieran sido resueltas con anterioridad por la Auditoría Interna o por otras instancias competentes.
+f) Si la denuncia omite una explicación clara de los hechos denunciados, como se solicita en el artículo 5, inciso b), y Admitida la denuncia se procederá a incluirla dentro de los trabajos a programar. No toda denuncia, aún admitida, debe ser investigada, ya que depende de su importancia relativa con respecto a los otros puntos del plan de trabajo de la Auditoría Interna y de la gestión de riesgos institucional.

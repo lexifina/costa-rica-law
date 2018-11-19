@@ -1,0 +1,1 @@
+Artículo 11.—Toda denuncia recibida será numerada consecutivamente. Para dar cumplimiento a lo establecido en el artículo 8 del Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo Nº 37045 del 22 de febrero de 2012.

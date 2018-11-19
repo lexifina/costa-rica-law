@@ -1,0 +1,1 @@
+Artículo 7º—La denuncia anónima. Las denuncias anónimas presentadas en documento o a través de cualquier otro medio de comunicación, serán archivadas. No obstante, podrán ser tramitadas de oficio si reúnen los mismos requisitos de las denuncias escritas numerados en el artículo 5, inciso b) y si existen elementos que, a criterio del Auditor Interno, sean dignos de investigación.

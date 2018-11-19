@@ -1,0 +1,3 @@
+CAPÍTULO II
+De la admisibilidad, tramitación, desestimación y archivo de la denuncia
+Artículo 12.—Trámite de la denuncias. La Auditoría Interna tramitará denuncias relativas al manejo de bienes o fondos del Ministerio, de sus oficinas regionales, o del Laboratorio Costarricense de Metrología, sean estos propios o por administración, a problemas con funcionarios del Ministerio o del Laboratorio Costarricense de Metrología, relacionados con la Hacienda Pública; así como fallas en procedimientos y corrupción en las oficinas centrales y regionales del Ministerio o del Laboratorio Costarricense de Metrología. La valoración de las denuncias las hará el Auditor Interno, o quien le sustituya en caso de ausencia temporal.

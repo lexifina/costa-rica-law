@@ -1,0 +1,1 @@
+Artículo 23.—Seguimiento de los resultados de la investigación producto de las denuncias. La Auditoría Interna, de acuerdo con los procedimientos establecidos, dará seguimiento a los resultados sometidas a su atención, para verificar el cumplimiento de las recomendaciones emitidas en razón de éstas.
