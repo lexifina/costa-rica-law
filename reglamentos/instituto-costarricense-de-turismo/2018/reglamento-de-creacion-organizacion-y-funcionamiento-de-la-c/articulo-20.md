@@ -1,0 +1,1 @@
+Artículo 20.—Seguimiento a las recomendaciones de la Contraloría de Servicios. La Contraloría de Servicios velara para el efectivo cumplimiento de las recomendaciones emitidas y en forma periódica evaluara su efectividad, de lo cual informara al jerarca institucional, cuando se estime necesario.

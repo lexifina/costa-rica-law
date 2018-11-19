@@ -1,0 +1,2 @@
+Artículo 28.—Derogatoria. Se deroga el Reglamento de Creación, Organización y Funcionamiento de la Contraloría de Servicios del Instituto Costarricense de Turismo, aprobado para la Junta Directiva, en sesión número 5502, Artículo xvi del 04 de diciembre del 2007 y publicado en el diario oficial La Gaceta N° 22 del 31 de enero del 2008.
+Rige a partir de la aprobación por parte de la Junta Directiva y su correspondiente publicación en el Diario Oficial La Gaceta.

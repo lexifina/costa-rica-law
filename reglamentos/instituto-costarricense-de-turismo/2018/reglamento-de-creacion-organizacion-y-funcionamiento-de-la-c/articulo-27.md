@@ -1,0 +1,1 @@
+Artículo 27.—En todo lo concerniente a las Contralorías de Servicios, aplica lo estipulado en la Ley N° 9158, su Reglamento y demás leyes, normas y directrices dictadas para el mejoramiento continuo en la prestación de los servicios por parte de las instituciones públicas.

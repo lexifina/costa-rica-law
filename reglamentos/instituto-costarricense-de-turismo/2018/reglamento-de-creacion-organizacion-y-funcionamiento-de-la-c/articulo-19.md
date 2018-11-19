@@ -1,0 +1,1 @@
+Artículo 19.—Del Cumplimiento de la recomendaciones: Las recomendaciones que emita la Contraloría de Servicios a una o varias unidades del ICT, respecto de los servicios institucionales deberán ser atendidas con la celeridad, responsabilidad y coordinación debida, buscando la mejora de los servicios, conforme lo que disponga la ley y reglamento que las crea.

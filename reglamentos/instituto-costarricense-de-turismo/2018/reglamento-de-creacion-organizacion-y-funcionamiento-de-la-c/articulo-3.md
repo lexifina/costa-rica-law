@@ -1,0 +1,3 @@
+CAPÍTULO II
+De la Contraloría de Servicios
+Artículo 3º—Creación de la Contraloría de Servicios en el Instituto. Crease la Contraloría de Servicios de Instituto Costarricense de Turismo, adscrita al jerarca unipersonal, como un órgano asesor, canalizador y mediador de los requerimientos de efectividad y continuidad de los usuarios de los servicios que brinda la institución. También apoya, complementa, guía y asesora al jerarca de forma tal que se incremente el logro efectivo de los objetivos organizacionales, así como la calidad en los servicios prestados, garantizando una comunicación fluida y directa en la toma de decisiones para ejecutar el mejoramiento continua en la prestación de servicios al usuario.

@@ -1,0 +1,1 @@
+Artículo 4º—Estructura de la Contraloría de Servicios: Habrá una persona responsable de la Contraloría de Servicios, la cual podrá además contar con personal de apoyo para el cumplimiento de los objetivos propuestos. Para esto las Autoridades Superiores de la institución suministraran todos las recursos y condiciones necesarios.
