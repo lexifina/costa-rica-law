@@ -1,1 +1,0 @@
-Artículo 42.—Está prohibido al Comité Comunal y Distrito Deportivo hacer uso de los dineros o fondos del mismo, para dar obsequios a equipos o personas, pagar facturas por concepto de fiestas o cualquier tipo de regalía.

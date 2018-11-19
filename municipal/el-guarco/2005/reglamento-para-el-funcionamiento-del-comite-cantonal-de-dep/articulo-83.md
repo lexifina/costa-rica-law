@@ -1,1 +1,0 @@
-Artículo 83.—El Comité Cantonal y sus órganos sólo podrán invertir sus fondos en terrenos y propiedades que pertenezcan a la Municipalidad de El Guarco.

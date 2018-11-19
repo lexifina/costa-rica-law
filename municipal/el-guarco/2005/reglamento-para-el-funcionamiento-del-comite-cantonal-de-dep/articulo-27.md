@@ -1,1 +1,0 @@
-Artículo 27.—Los Comités Comunales y Distritos Deportivos estarán integrados por cinco miembros de la Comunidad, que serán elegidos popularmente en asamblea general convocada al efecto por el Comité Cantonal.

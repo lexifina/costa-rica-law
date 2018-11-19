@@ -1,1 +1,0 @@
-Artículo 45.—Es atribución del Comité Cantonal, objetar los nombres de personas que integren los Subcomités, cuando considere que éstas son nocivas para el desarrollo del deporte y la recreación. Las personas encargadas de entrenar escuelas de fútbol y otros deportes deberán cumplir con los requerimientos respectivos para realizar esta labor.

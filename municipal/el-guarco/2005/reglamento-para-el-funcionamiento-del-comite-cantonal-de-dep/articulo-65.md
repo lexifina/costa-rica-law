@@ -1,1 +1,0 @@
-Artículo 65.—El secretario responderá del cumplimiento de lo antes dispuesto y en la elaboración de las actas contará con la colaboración del Presidente de la Junta Directiva, quienes harán las revisiones, modificaciones o aclaraciones del caso según corresponde.
