@@ -14,3 +14,4 @@ Reglamento de uso público del Parque Nacional Corcovado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-10-25 | la propia norma |
+| 2 | 2018-11-19 | Decreto Ejecutivo 41497 (2018-11-19) |

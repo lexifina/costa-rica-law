@@ -1,7 +1,8 @@
 Artículo 8º. Para que el visitante ingrese al Parque se establecen las siguientes condiciones:
 a. Tramitar la reservación respectiva extendida a través de la Oficina de reservaciones establecida en el Área de Conservación Osa.
 b. Efectuar el pago completo y exacto indicado en la Boleta de Reservación
-c. Todo visitante deberá ingresar al área silvestre protegida (ASP) por los puestos de acceso oficiales con un guía de turismo debidamente registrado en la oficina de reservaciones del ASP,
+c. Todo visitante ingresará al área silvestre protegida (ASP) por los puestos de acceso oficiales, preferiblemente acompañado con un guía de turismo debidamente registrado en la oficina de reservaciones del ASP. Los recorridos de los senderos Centro Operativo La Leona –Estación Biológica Sirena y viceversa, así como Centro Operativo Los Patos -Estación Biológica Sirena y viceversa deberá todo visitante hacerse acompañar por un guía de turismo.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41497 del 19 de noviembre del 2018)
 d. El tiempo máximo de permanencia es de 5 días, excepto investigadores y estudiantes que realicen estudios autorizados por el SIN A C.
 e. Reportarse con el personal del Centro Operativo correspondiente, procediendo a su registro y entrega de comprobantes de pago y confirmación de reservación antes de iniciar las caminatas. Las excepciones de pago serán exclusivamente las contempladas en el Decreto "Tarifas por derechos de ingreso y otros servicios ofrecidos en las Áreas Silvestres Protegidas bajo la administración del Sistema Nacional de Áreas de Conservación" Decreto Ejecutivo N º 38295-MINAE o la normativa vigente que regule las tarifas de ingreso al Área Silvestre Protegida (ASP) correspondiente.
 f. Se deben portar en todo momento y durante la permanencia en el Parque, los comprobantes de ingreso cancelados, los cuales podrán exigirse en cualquier momento por parte de las autoridades correspondientes.
