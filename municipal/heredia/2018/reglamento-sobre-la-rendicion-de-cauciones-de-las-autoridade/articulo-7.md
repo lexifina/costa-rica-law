@@ -1,0 +1,2 @@
+Artículo 7.-Momento para rendir la caución. La caución deberá de ser rendida, cuando así corresponda, una vez conocida por la persona la designación en el puesto y antes de asumir el cargo.
+Los funcionarios obligados a rendir la caución deberán hacerlo por todo el periodo en el cual ejerzan el puesto o cargo en el que fueron nombrados. Si la garantía o caución caducare o venciere antes del término del nombramiento el caucionante deberá gestionar la prorroga tantas veces como sea necesario hasta que finalice el plazo de nombramiento.

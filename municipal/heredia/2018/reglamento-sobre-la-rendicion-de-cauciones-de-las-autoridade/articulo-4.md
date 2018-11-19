@@ -1,0 +1,1 @@
+Artículo 4.-Finalidad de la caución. La caución tiene como finalidad garantizar el resarcimiento de eventuales daños y perjuicios que el caucionante responsable pueda producir al patrimonio de la Municipalidad de Heredia, sin que ello limite la eventual responsabilidad civil, administrativa o penal que se deriven de sus acciones u omisiones.

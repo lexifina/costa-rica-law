@@ -1,0 +1,1 @@
+Artículo 9.-Caucionantes del nivel A. En este nivel deben rendir caución para el ejercicio de sus cargos el Alcalde(sa) y Vicealcalde(sa), así como los(as) Directores de Área, y el Auditor(a) Interno(a).
