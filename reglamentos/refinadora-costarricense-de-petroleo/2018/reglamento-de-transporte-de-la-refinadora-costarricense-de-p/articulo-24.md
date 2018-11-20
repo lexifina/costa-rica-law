@@ -1,0 +1,2 @@
+Artículo 24.—Alquiler de equipo especial. El alquiler del equipo especial debe ser autorizado por el Presidente, Gerente General o Gerentes de Área, según corresponda.
+Los vehículos y equipo especial alquilados se someterán a las mismas condiciones de uso, asignación, control, custodia, abastecimiento de combustible, procedimiento de infracciones y accidente de tránsito, y mantenimiento, cuando corresponda, que rigen para los vehículos y equipo especial propiedad de la Empresa.

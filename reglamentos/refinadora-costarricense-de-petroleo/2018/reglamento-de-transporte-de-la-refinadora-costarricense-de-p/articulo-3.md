@@ -1,0 +1,1 @@
+Artículo 3º—Del cumplimiento. Es responsabilidad de las dependencias y de los funcionarios que utilizan los vehículos y equipo especial de la Empresa, cumplir con lo establecido en el presente reglamento.

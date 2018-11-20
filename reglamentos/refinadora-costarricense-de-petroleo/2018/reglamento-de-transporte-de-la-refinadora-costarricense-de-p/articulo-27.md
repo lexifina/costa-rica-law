@@ -1,0 +1,1 @@
+Artículo 27.—Los conductores de RECOPE, que se vean involucrados en un accidente de tránsito tienen prohibido efectuar arreglos extrajudiciales y deben seguir el procedimiento establecido por la Empresa.

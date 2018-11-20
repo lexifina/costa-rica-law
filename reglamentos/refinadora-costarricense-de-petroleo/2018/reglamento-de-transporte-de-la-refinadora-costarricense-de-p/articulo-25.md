@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+De la custodia de los vehículos y equipo especial
+Artículo 25.—Custodia de los vehículos y equipo especial. Los vehículos y equipo especial deben pernoctar, al finalizar la jornada ordinaria de trabajo, en el estacionamiento de la Empresa más cercano a su centro de trabajo, o en su defecto, en el lugar que se haya contratado o destinado previamente para tal fin. En caso de que el vehículo o equipo especial se encuentre realizando una gira, preferiblemente debe custodiarse en las instalaciones de RECOPE, o bien, en un parqueo público o en el lugar donde el funcionario que lo conduce se encuentre pernoctando, siempre y cuando existan las condiciones de seguridad adecuadas. Cuando un equipo especial requiera permanecer fuera de las instalaciones, en el lugar donde se realizan los trabajos, deberá contarse con servicio de seguridad y vigilancia que lo custodie.
+Se exceptúan aquellos casos que se indican en el artículo 16 de este reglamento.

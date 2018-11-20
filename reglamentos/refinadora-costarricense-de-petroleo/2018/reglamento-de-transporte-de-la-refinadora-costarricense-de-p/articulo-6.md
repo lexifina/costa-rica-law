@@ -1,0 +1,1 @@
+Artículo 6º—De las responsabilidades de las Gerencias de Área. Es obligación de la Gerencia de Administración y Finanzas, garantizar una adecuada administración de los vehículos y el equipo especial regulado en el presente Reglamento.
