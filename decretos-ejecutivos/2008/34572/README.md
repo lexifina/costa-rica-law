@@ -15,3 +15,4 @@ Reglamento de Gestión, Fiscalización y Recaudación del Tributo de la Corporac
 | --- | --- | --- |
 | 1 | 2008-07-04 | la propia norma |
 | 2 | 2015-07-27 | Decreto Ejecutivo 39332 (2015-07-27) |
+| 3 | 2018-11-20 | Decreto Ejecutivo 41480 (2018-11-20) |

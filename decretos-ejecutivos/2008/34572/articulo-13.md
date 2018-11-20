@@ -20,3 +20,5 @@ Artículo 13.—Partidas Arancelarias. Las partidas arancelarias que se refieren
 16.02 Las demás preparaciones y conservas de carne, despojos o sangre.
 1602.10 Preparaciones homogeneizadas.
 1602.10.10 De carne y despojos de bovino.
+16.02.50.00.00.00 -De la especie bovina, las demás preparaciones y conservas de carne, despojos o sangre.
+(Así adicionada la partida anterior por el artículo 2° del decreto ejecutivo N° 41480 del 20 de noviembre del 2018)

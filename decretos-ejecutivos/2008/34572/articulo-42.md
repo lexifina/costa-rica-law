@@ -1,4 +1,5 @@
-Artículo 42.—Acciones de la Dirección Jurídica en el cobro judicial. La Dirección Jurídica de CORFOGA será la encargada de toda la gestión de cobro judicial respecto de los tributos establecidos en el artículo 7 de la Ley Nº 7837 del 5 de octubre de 1998 y sus reformas, Ley de Creación de Corporación Ganadera, y tendrá dentro de sus funciones las siguientes:
+Artículo 42.-Acciones de la Asesoría Legal en el cobro judicial. La Asesoría Legal de CORFOGA será la encargada de toda la gestión de cobro judicial respecto de los tributos establecidos en el artículo 7 de la Ley Nº 7837 del 5 de octubre de 1998 y sus reformas, Ley de Creación de Corporación Ganadera, y tendrá dentro de sus funciones las siguientes:
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 41480 del 20 de noviembre del 2018)
 a) Dirigir con la mayor diligencia y celeridad los procesos ejecutivos que resulten de las gestiones cobratorias que remita el Área de Gestión Tributaria de la Corporación.
 b) Presentar, a más tardar dentro de quince (15) días naturales siguientes a la fecha de recepción de la gestión cobratoria administrativa, el respectivo proceso de cobro judicial a los Tribunales de Justicia.
 c) Confeccionar el Título Ejecutivo que servirá de base a la ejecución procesal correspondiente, el cual será rubricado por el Director Ejecutivo.

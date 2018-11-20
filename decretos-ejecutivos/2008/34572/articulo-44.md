@@ -1,1 +1,2 @@
-Artículo 44.—Procedimiento para realizar la declaratoria de incobrable. En esos casos, el Director Ejecutivo de la Corporación Ganadera resolverá la incobrabilidad de la deuda, luego de conocer el Informe planteado para esos efectos por la Dirección Jurídica, mismo que se sujetará a lo dispuesto por el presente Reglamento.
+Artículo 44.-Procedimiento para realizar la declaratoria de incobrable. En esos casos, el Director Ejecutivo de la Corporación Ganadera resolverá la incobrabilidad de la deuda, luego de conocer el Informe planteado para esos efectos por la Asesoría Legal, mismo que se sujetará a lo dispuesto por el presente Reglamento.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41480 del 20 de noviembre del 2018)

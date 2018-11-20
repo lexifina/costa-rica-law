@@ -9,6 +9,8 @@ g) Gestionar la contratación de empresas especializadas para la gestión de loc
 h) Realizar las gestiones para el Cobro Administrativo de los tributos morosos.
 i) Programar periódicamente el proceso para gestionar el cobro de las operaciones que presenten estado de morosidad.
 j) Comprobar la certeza y exactitud de las autoliquidaciones tributarias que presenten los sujetos pasivos e investigar los hechos generadores no declarados.
-k) Entregar la documentación necesaria de las operaciones en estado de morosidad a la Dirección Jurídica, para que proceda con el cobro judicial de las obligaciones vencidas.
+k) Entregar la documentación necesaria de las operaciones en estado de morosidad a la Asesoría Legal, para que proceda con el cobro judicial de las obligaciones vencidas.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41480 del 20 de noviembre del 2018)
 l) Velar por el cumplimiento del presente reglamento y aplicar sus disposiciones ante un eventual incumplimiento u omisión del mismo.
-m) Informar al Director Ejecutivo, Auditor Interno o la Dirección Jurídica de la Corporación sobre las distintas funciones establecidas en la Ley y los distintos reglamentos de gestión tributaria; proveer las estadísticas idóneas que le sean requeridas, informar sobre las tasas de recuperación y morosidad de las obligaciones sometidas a cobro administrativo o judicial.
+m) Informar al Director Ejecutivo, Auditor Interno o la Asesoría Legal de la Corporación sobre las distintas funciones establecidas en la Ley y los distintos reglamentos de gestión tributaria; proveer las estadísticas idóneas que le sean requeridas, informar sobre las tasas de recuperación y morosidad de las obligaciones sometidas a cobro administrativo o judicial.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 41480 del 20 de noviembre del 2018)
