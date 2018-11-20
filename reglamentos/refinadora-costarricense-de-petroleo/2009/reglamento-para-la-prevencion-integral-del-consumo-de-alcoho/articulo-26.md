@@ -1,1 +1,0 @@
-Artículo 26.—El Departamento de Relaciones Laborales investigará al presunto denunciado, aplicando el debido proceso y el trámite que corresponda conforme a lo establecido en la Convención Colectiva de Trabajo.

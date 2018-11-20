@@ -1,4 +1,0 @@
-CAPÍTULO II
-Del Programa de Prevención Integral:
-prevención, detección e intervención
-Artículo 6º—La prevención. El programa de prevención está orientado a sensibilizar a la Administración y, específicamente a los responsables del recurso humano (jefes) y a los dirigentes gremiales y sindicales sobre la complejidad del fenómeno del alcohol y las drogas, necesidad de implementar programas preventivos de carácter educativo dirigidas al autocuidado de la salud, al desarrollo de habilidades para vivir de forma sana, a la promoción de estilos de vida saludable, al fortalecimiento de los factores protectores y a la disminución de los factores de riesgo asociados al consumo de alcohol y otras drogas; así como a informar sobre las causas y consecuencias del consumo de alcohol y otras drogas en el ámbito laboral en los lugares de trabajo.

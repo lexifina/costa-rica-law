@@ -1,1 +1,0 @@
-Artículo 27.—Cuando un jefe, cubierto o no por la Convención Colectiva, incumpla lo establecido en el Artículo 22, la jefatura superior reportará el caso al órgano competente mediante información escrita clara y precisa de los hechos, adjuntando las pruebas respectivas para el inicio del procedimiento disciplinario correspondiente.
