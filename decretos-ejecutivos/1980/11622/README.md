@@ -15,3 +15,4 @@ Declara de Utilidad Pública Asociación de Seguridad y Embellecimiento de Carre
 | --- | --- | --- |
 | 1 | 1980-07-09 | la propia norma |
 | 2 | 2018-05-25 | Decreto Ejecutivo 41180 (2018-05-25) |
+| 3 | 2018-11-20 | Decreto Ejecutivo 41484 (2018-11-20) |
