@@ -1,0 +1,1 @@
+Artículo 11.—El Médico Subespecialista en Medicina del Sueño, debidamente incorporado ante este Colegio Profesional, es el único médico autorizado para ejercer esta subespecialidad y promocionarse como tal.

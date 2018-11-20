@@ -1,0 +1,3 @@
+Artículo 7º—Asistencial
+Tiene como objetivo el estudio de la fisiopatología de los diversos trastornos del sueño: insomnio, trastornos respiratorios del sueño, hipersomnia de origen central, trastornos del ritmo circadiano del patrón sueño-vigilia, parasomnias, trastornos del movimiento asociados al sueño, trastornos médicos y neurológicos asociados al sueño y sus respectivas clasificaciones y síntomas aislados.
+A su vez, se encarga también de diagnosticar, tratar, rehabilitar y prevenir los diferentes trastornos, así como sus complicaciones de una forma integral en un contexto bio-psico-social y tomando en cuenta los aspectos tanto conductuales como farmacológicos del tratamiento.

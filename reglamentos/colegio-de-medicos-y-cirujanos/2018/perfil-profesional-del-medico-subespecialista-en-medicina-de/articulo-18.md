@@ -1,0 +1,1 @@
+Artículo 18.—Es deber del médico subespecialista elevar ante el Colegio de Médicos y Cirujanos de Costa Rica, aquellos casos en los que se incurra en un incumplimiento de la presente normativa y reglamento del Colegio de Médicos y del ejercicio ilegal de la subespecialidad para su análisis y respectiva sanción cuando esta corresponda.

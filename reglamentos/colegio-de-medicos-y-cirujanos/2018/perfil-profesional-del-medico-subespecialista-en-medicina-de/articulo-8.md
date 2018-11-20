@@ -1,0 +1,1 @@
+Artículo 8º—En los servicios de salud públicos o privados, será el sub especialista en Medicina del sueño quien coordine todos los procedimientos polisomnográficos, interprete los resultados, realice el análisis y emita los correspondientes reportes.

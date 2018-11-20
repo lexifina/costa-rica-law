@@ -1,0 +1,1 @@
+Artículo 6º—El Subespecialista en Medicina del Sueño integra y coordina grupos de trabajo relacionados con su subespecialidad en su servicio o departamento, intra e interinstitucionales, así como intersectoriales.

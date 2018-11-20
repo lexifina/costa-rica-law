@@ -1,0 +1,1 @@
+Artículo 5º—El Subespecialista en Medicina del Sueño realiza sus funciones en todas aquellas áreas del conocimiento medico que emplea para la promoción de la salud, para el diagnóstico, pronóstico, tratamiento y prevención de las enfermedades.
