@@ -1,0 +1,2 @@
+Disposiciones transitorias:
+Transitorio I.- Con el objeto de que quienes vienen gozando de las autorizaciones de compras autorizadas sin impuesto puedan ajustar sus registros según los requerimientos de esta resolución, esta dirección ha dispuesto que su vigencia empiece a regir tres meses después de su publicación. Todas las autorizaciones otorgadas con el procedimiento anterior mantendrán su vigencia.

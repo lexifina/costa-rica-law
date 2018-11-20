@@ -1,0 +1,1 @@
+Artículo 13º- Disposición de la Base de autorizados: La Administración Tributaria pondrá a disposición de proveedores e interesados, la lista de autorizados para comprar sin el Impuesto General sobre las Ventas y/o Selectivo de Consumo, en la página web del Ministerio de Hacienda, www.hacienda.go.cr.

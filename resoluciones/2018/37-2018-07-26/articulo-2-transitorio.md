@@ -1,0 +1,1 @@
+Transitorio II.-Las solicitudes de compras autorizadas que se encuentren pendientes de resolver o que se presenten dentro de los tres meses siguientes a la publicación de esta resolución, se atenderán según el procedimiento vigente a la fecha de recepción de la solicitud.

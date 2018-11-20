@@ -1,0 +1,12 @@
+Artículo 2°- Requisitos generales que deben cumplir los interesados para optar por las diferentes solicitudes relacionadas con el proceso de compras autorizadas:
+1) Clasificarse en alguno de los supuestos establecidos en el artículo 27 del Reglamento de la Ley del Impuesto General sobre las Ventas, y/o artículo 23 del Reglamento de la Ley de Consolidación de Impuestos Selectivos de Consumo.
+2) Que el periodo de diferimiento del Impuesto General sobre las Ventas sea superior a seis meses y en el Impuesto Selectivo de Consumo a tres meses, para quienes producen, comercializan o distribuyen en una proporción inferior al 100%. Esto debe ser demostrado por el interesado en los diferentes formularios de solicitud.
+3) Estar inscrito ante la Administración Tributaria, en los Impuestos de: Renta, General sobre las de Ventas y Selectivo de Consumo, cuando corresponda.
+4) Los interesados que desean optar por autorizaciones en el Impuesto General sobre las Ventas, deben tener como mínimo seis meses de haber iniciado operaciones y por ende de estar registrado en este impuesto en el Registro Único Tributario (en adelante RUT).
+5) Los interesados que desean optar por autorizaciones en el Impuesto Selectivo de Consumo, deben tener como mínimo tres meses de haber iniciado operaciones y por lo tanto de estar registrado en este impuesto en el RUT.
+6) En el caso de personas jurídicas, el representante legal deber estar debidamente registrado y acreditado, ante el RUT, cuando corresponda.
+7) Estar al día con las obligaciones formales y materiales ante la Dirección General de Tributación.
+8) Estar al día con el pago de las cargas sociales obreras y patronales ante la Caja Costarricense del Seguro Social.
+9) Haber informado la condición de emisor-receptor electrónico o receptor electrónico-no emisor a la Dirección General de Tributación de conformidad con la resolución N° DGTR- 060-2017 denominada “Inscripción, Modificación de datos y Desinscripción en el Registro Único Tributario” y la resolución N° DGT-R-48-2016 denominada “Comprobantes Electrónicos”.
+10) En el caso de proveedores del Estado, haber sido adjudicados en los procesos de licitación de bienes y servicios mediante el sistema digital unificado de compras públicas, actualmente denominado Sistema Integrado de Compras Públicas (SICOP).
+11) En el caso de exportadores, estar registrados ante la Ventanilla Única de Comercio Exterior (VUCE) de la Promotora de Comercio Exterior.

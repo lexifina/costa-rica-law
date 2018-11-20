@@ -1,0 +1,4 @@
+Artículo 6º- Solicitud de adición a la autorización genérica: Los obligados tributarios que por razones de oportunidad o bien por circunstancias especiales, requieran efectuar una ampliación de una autorización otorgada, con el fin de incluir mercancías no contempladas en la misma, pueden solicitar una adición mediante formulario D-411, para lo cual deben cumplir con todos los requisitos establecidos en el artículo 4, de esta resolución.
+Cuando dicha adición responda a un cambio en una línea de producto o la incursión de una nueva actividad económica además deberá cumplir con lo establecido en el inciso 5(*)) del artículo 3 de la presente resolución.
+(*) (Corregido mediante Fe de Erratas y publicada en La Gaceta N° 201 del 31 de octubre de 2018, página N° 136.)
+La adición mantendrá la fecha de vencimiento indicada en la autorización genérica del período respectivo.
