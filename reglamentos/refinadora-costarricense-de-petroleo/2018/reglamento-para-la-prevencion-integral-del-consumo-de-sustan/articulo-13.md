@@ -1,0 +1,3 @@
+Artículo 13.—De la toma de las muestras. La toma de muestras biológicas se realizará en el Centro Médico del centro de trabajo o en un lugar propicio para estos efectos, utilizando los procedimientos adecuados para el tipo de prueba a realizar.
+Las pruebas de aire espirado se realizarán en el Centro Médico o en el lugar que designe el personal del departamento de Salud, Ambiente y Seguridad. Estas pruebas podrán ser realizadas por el personal médico de enfermería u otros funcionarios de los Departamentos SAS debidamente entrenados.
+Las pruebas de detección de sustancias psicoactivas que requieran de la toma de una muestra biológica será llevada a cabo por el personal médico o de enfermería de la Empresa.

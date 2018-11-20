@@ -1,0 +1,3 @@
+Artículo 12.—El rehusarse a realizar la prueba. Cuando un trabajador rehúse practicarse la prueba de detección o no se presente en el término de una hora después de ser convocado, se le comunicará al titular subordinado respectivo, quien procederá según lo indicado en el artículo 24 f) y se sancionará según se indica en el artículo 30.
+El titular subordinado o el médico, en la medida de lo possible con un testigo, levantarán un acta administrativa donde conste la negativa del funcionario.
+Cada vez que la persona se niegue a realizarse la prueba se deberá aplicar este procedimiento nuevamente, por lo que se considerará un nuevo caso.

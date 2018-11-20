@@ -1,0 +1,2 @@
+Artículo 23.—Departamento de Comunicación y Relaciones Públicas. Mantener informado al personal mediante campañas de divulgación sobre los alcances del reglamento.
+Realizar una campaña anual con relación a la prevención del consumo de sustancias psicoactivas dirigida a todo el personal conforme al Programa integral para la prevención, detección, e intervención del consumo de alcohol y otras drogas emitido por el Coordinador de Servicios Médicos.

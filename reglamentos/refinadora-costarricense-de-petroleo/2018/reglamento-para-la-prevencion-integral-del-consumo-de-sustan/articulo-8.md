@@ -1,0 +1,3 @@
+Artículo 8º—De la prevención integral. La prevención estará orientada a sensibilizar a la administración, a los responsables del recurso humano (jefes), a los dirigentes gremiales y a los trabajadores en general, sobre el uso y abuso del alcohol y otras drogas, mediante actividades de comunicación, charlas e información a las jefaturas sobre este reglamento y sus alcances.
+El personal de salud aplicará las pruebas de detección de sustancias psicoactivas de manera preventiva, mediante selección al azar del personal, sin previa comunicación al trabajador.
+Los trabajadores deberán participar en las actividades de capacitación e información para la prevención integral contra el consumo de sustancias psicoactivas desarrolladas por la Empresa.

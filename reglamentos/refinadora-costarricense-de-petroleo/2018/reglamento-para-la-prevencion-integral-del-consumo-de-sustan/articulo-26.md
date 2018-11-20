@@ -1,0 +1,1 @@
+Artículo 26.—Departamento de Administración de Bienes y Servicios. Solicitar a los servicios de salud realizar las pruebas de detección de sustancias psicoactivas a todo funcionario que requiere obtener o renovar el permiso de conducción de vehículos de la Empresa.

@@ -1,0 +1,3 @@
+Artículo 22.—Departamento de Seguridad y Vigilancia. Impedir el ingreso de trabajadores, practicantes, visitantes, clientes, proveedores o contratistas que muestren signos de haber consumido sustancias psicoactivas. Anotar en la bitácora los hechos y comunicar al superior inmediato, Supervisor de Plantel o encargado en ese momento del centro de trabajo.
+Impedir el ingreso de bebidas alcohólicas y otras drogas a las instalaciones y anotar en bitácora la situación.
+Apoyar a las diferentes jefaturas formales e Inspectores SAS en retirar de las instalaciones a trabajadores, practicantes, visitantes, clientes, proveedores o contratistas que muestren signos de haber consumido sustancias psicoactivas.

@@ -1,0 +1,5 @@
+Artículo 19.—Inspectores de los Departamentos de Salud, Ambiente y Seguridad. Informar a los contratistas, transportistas, proveedores y demás visitantes sobre las medidas establecidas en este reglamento sobre la prohibición de consumo de alcohol y otras drogas en las instalaciones de la Empresa.
+Reportar a los Oficiales de Seguridad y Vigilancia, en caso de que observen a los contratistas, transportistas, clientes y otros visitantes, consumiendo sustancias psicoactivas dentro de las instalaciones de la Empresa, o estén bajo los efectos de éstas, con el fin de que procedan según el artículo 22 de este reglamento.
+Reportar al titular subordinado o supervisor a los trabajadores que observen consumiendo sustancias psicoactivas dentro de las instalaciones de la Empresa o estén bajo los efectos de éstas,
+preferiblemente con el nombre de un testigo. En ausencia de la jefatura, deberá informarlo al personal de Seguridad y Vigilancia.
+Contemplar en las charlas dirigidas a trabajadores de primer ingreso, contratistas, transportistas y visitantes de las instalaciones la obligación de cumplir con este Reglamento.
