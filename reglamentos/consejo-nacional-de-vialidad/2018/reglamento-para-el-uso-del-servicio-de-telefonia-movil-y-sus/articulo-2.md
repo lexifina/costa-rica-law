@@ -1,0 +1,20 @@
+Artículo 2º—Definiciones básicas.
+Aplicación (App): programa informático creado para lleva a cabo o facilitar una tarea en un teléfono móvil.
+Brecha Digital: serie de elementos cognoscitivos, simbólicos, de poder y normativas que excluyen a determinados ciudadanos de una participación plena en las redes de conectividad que dan forma la sociedad red, imposibilitando o limitando la realización de una serie de actividades, laborales, educativos y de muy diversa naturaleza.
+Derecho Des-conexión digital o tecnológica: los trabajadores tienen el derecho de no conectarse a cualquier herramienta digital profesional (teléfono inteligente, Internet, correo electrónico, etc.)
+durante los periodos de descanso y vacaciones, salvo situaciones de emergencia o imprevisibles, que afecten la red vial nacional.
+Emergencia personal: situación en que se encuentre comprometida la vida del funcionario o de cualquier persona con la que se relacione, que esté siendo atendido en los servicios de emergencia de los centros de salud públicos o privados.
+Evento impredecible:1 para el Conavi es la ocurrencia de un evento que no pudo ser previsto y que requiere atención inmediata debido a que una ruta nacional ha perdido su capacidad de tránsito y las poblaciones cercanas no tienen otra vía de acceso, que incluso podrían comprometer la vida de un grupo de ciudadanos.
+1Se debe considerar para la interpretación del evento impredecible el procedimiento de contrataciones de eventos imprevisibles aprobados por el Conavi.
+Evento: incidente o situación que podría ocurrir en un lugar específico, en un intervalo de tiempo determinado.
+Funcionario: toda persona que presta sus servicios en los órganos y en los entes de la Administración Pública, estatal y no estatal, a nombre y por cuenta de esta y como parte de su organización, en virtud de un acto de investidura y con entera independencia del carácter imperativo, representativo, remunerado, permanente o público de la actividad respectiva. Los términos funcionario, servidor, trabajador y empleado público serán equivalentes para los efectos de este reglamento. (Ley 8422, 2004).
+Jefatura: Jefe de una unidad organizativa incluida en el organigrama del Conavi (Gerente, Director, Jefe Unidad Asesora, Jefe Departamento y Jefe Unidad).
+Jornada extraordinaria: Todas aquellas labores realizadas fuera de dicha jornada -antes o después-.
+Jornada ordinaria: la establecida para la jornada diurna, nocturna o mixta por el Consejo de Administración, el Director Ejecutivo o la Dirección de Gestión del Recurso Humano.
+Línea de telefonía móvil: corresponde a la asignación de un número único de telefonía móvil que permite realizar llamadas a otros teléfonos celulares o fijos, además de servicios anexos.
+Netiqueta: Conjunto de reglas o normas básicas de comportamiento general que deben cumplirse en la comunicación, que garantizan la dignidad humana y la adecuada convivencia entre los seres humanos, en la utilización de las redes informáticas.
+Red informática: Es un conjunto de dispositivos interconectados entre sí a través de un medio, que intercambian información y comparten recursos. (Redusers, 2013)
+Teléfono móvil o celular: dispositivo inalámbrico electrónico que permite tener acceso a la red de telefonía celular o móvil y se compone del aparato telefónico y línea activa provista al CONAVI por el proveedor, incluye batería, cargador, estuche, chip y demás accesorios. El mismo se considera presupuestariamente un gasto, no un activo institucional.
+Titular subordinado: funcionario de la Administración Activa responsable de un proceso, con autoridad para ordenar y tomar decisiones.
+Unidad organizativa: Una dependencia de la estructura organizacional a cuyo cargo está la ejecución de funciones especializadas que contribuyen al logro de los objetivos institucionales.
+Urgencia personal: Situación cuando pueda estar comprometida la vida del funcionario o de cualquier persona con la que se relacione, que esté siendo atendido en los servicios de urgencia de los centros de salud públicos o privados.

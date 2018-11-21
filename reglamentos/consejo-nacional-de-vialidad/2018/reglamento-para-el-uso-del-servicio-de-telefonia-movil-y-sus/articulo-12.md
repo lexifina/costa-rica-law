@@ -1,0 +1,1 @@
+Artículo 12.—Medio de notificación: El servicio celular se considera un medio idóneo para recibir notificaciones mediante las diferentes aplicaciones. Siendo responsabilidad del emisor de la instrucción o notificación conservar la evidencia de dicha acción. Los asuntos relacionados con gestiones disciplinarias u órganos directores, no podrán ser notificados por este medio.

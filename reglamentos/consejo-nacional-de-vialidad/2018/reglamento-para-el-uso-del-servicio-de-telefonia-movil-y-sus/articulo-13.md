@@ -1,0 +1,1 @@
+Artículo 13.—Servicios actuales. A los funcionarios que cuenten con servicios de telefonía móvil, se les conservará el plan que la institución haya adquirido, hasta su vencimiento, salvo que en estudio realizado por la Dirección de Tecnologías de Información, exista la necesidad institucional de variarlo.
