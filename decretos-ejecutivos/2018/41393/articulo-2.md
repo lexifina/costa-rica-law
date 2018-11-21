@@ -1,0 +1,1 @@
+Artículo 2º—Modifíquese el Decreto Ejecutivo N° 33263-COMEX del 21 de junio de 2006, que publicó la Resolución N° 156-2006 (COMIECO-EX) del 07 de junio de 2006; de conformidad con el numeral 1 de la parte dispositiva de la Resolución N° 398-2018 (COMIECO-LXXXIII) de fecha 28 de junio de 2018, que se publica mediante el presente Decreto Ejecutivo.
