@@ -16,3 +16,4 @@ Diligencias de Implementación del Tope contenido en la Ley 7858 del 28 de dicie
 | 1 | 2014-08-08 | la propia norma |
 | 2 | 2018-11-14 | SINALEVI (sin norma nombrada) |
 | 3 | 2018-11-21 | SINALEVI (sin norma nombrada) |
+| 4 | 2018-11-21 | SINALEVI (sin norma nombrada) |
