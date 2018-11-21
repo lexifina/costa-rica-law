@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. El presente Reglamento se aplicará a todas aquellas actividades que sin contar con la licencia municipal otorgada conforme la Ley Nº 7177, se desarrollan en el cantón de Carrillo de forma ambulante.
