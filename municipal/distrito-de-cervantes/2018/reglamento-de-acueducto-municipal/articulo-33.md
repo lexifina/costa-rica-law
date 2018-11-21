@@ -1,0 +1,1 @@
+Artículo 33.—Corresponde al abonado el pago del servicio de agua potable. Cuando éste dejare de pagarlo, el inquilino podrá hacerlo y el Concejo Municipal de Distrito de Cervantes estará en obligación de recibir el pago correspondiente.

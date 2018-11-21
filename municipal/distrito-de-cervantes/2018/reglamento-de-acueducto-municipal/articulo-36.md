@@ -1,0 +1,1 @@
+Artículo 36.—Las reclamaciones por lecturas o montos derivados de ellas deberán hacerse ante el departamento de acueducto, durante los sesenta días naturales posteriores al vencimiento del recibo que genera el reclamo.

@@ -1,0 +1,1 @@
+Artículo 10.—En caso de que el abonado tenga sospechas sobre posibles fugas de agua potable a lo interno de su propiedad; este puede solicitar una inspección ante el Concejo Municipal de Distrito de Cervantes para comprobar o no la presencia de la misma. Esta inspección tiene un costo que el usuario deberá cancelar antes de la misma.

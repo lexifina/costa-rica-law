@@ -1,0 +1,1 @@
+Artículo 20.—Si se cumpliere con todos los requisitos, el Concejo Municipal de Distrito de Cervantes no podrá rechazar solicitudes de paja de agua a menos que existan razones técnicas, o reglamentarias que impidieren lograrlo.

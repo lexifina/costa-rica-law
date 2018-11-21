@@ -1,0 +1,1 @@
+Artículo 41.—Se podrá ajustar el cobro emitido al usuario de igual manera que en el artículo anterior, cuando por medio de inspección realizada se demuestre la existencia de fuga no visible que fue reparada por el contribuyente sin ser reportada por éste al departamento.

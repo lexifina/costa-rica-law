@@ -1,0 +1,1 @@
+Artículo 19.—Si el abonado considera que ya no es necesario el servicio de agua, deberá hacer la respectiva solicitud (desconexión del servicio), ante el Concejo Municipal de Distrito de Cervantes, con una carta firmada por el dueño de la propiedad indicando su deseo suspender el servicio.

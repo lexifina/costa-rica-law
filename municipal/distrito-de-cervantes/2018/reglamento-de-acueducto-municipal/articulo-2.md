@@ -1,0 +1,1 @@
+Artículo 2º—Este Reglamento regulará la organización y funcionamiento municipal, en cuanto a la prestación de servicios de agua potable, así como establecer los derechos y deberes tanto de los abonados del sistema como del Concejo Municipal de Distrito de Cervantes.

@@ -1,0 +1,1 @@
+Artículo 9º—El Concejo Municipal de Distrito de Cervantes podrá inspeccionar, por medio de personal debidamente identificado, las instalaciones y sistemas internos, cuando el abonado lo solicite, o cuando el Concejo Municipal de Distrito de Cervantes lo considere conveniente siempre y cuando exista el permiso respectivo por parte del abonado.

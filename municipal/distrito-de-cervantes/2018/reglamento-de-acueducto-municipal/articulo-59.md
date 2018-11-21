@@ -1,0 +1,1 @@
+Artículo 59.—Se prohíbe a los servidores municipales, realizar cualquier acto que interfiera con el fiel cumplimiento de las estipulaciones del presente Reglamento y Código Municipal. Así como realizar cualquier tipo de trabajo que no le haya sido asignado por su jefe inmediato.

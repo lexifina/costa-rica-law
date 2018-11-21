@@ -1,0 +1,1 @@
+Artículo 30.—El servicio que presta el Concejo Municipal de Distrito de Cervantes a los abonados no puede ser gratuito; así se trate de cualquier entidad pública nacional; salvo que alguna ley especial determine lo contrario.

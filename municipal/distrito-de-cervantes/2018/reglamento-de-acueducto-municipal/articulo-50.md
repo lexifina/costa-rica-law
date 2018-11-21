@@ -1,0 +1,1 @@
+Artículo 50.—El Concejo Municipal de Distrito de Cervantes reinstalará el servicio de agua potable dentro del plazo máximo de 48 horas hábiles posteriores a la cancelación del derecho de reconexión (una vez normalizada la situación con el Concejo Municipal de Distrito de Cervantes).

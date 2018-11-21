@@ -1,0 +1,1 @@
+Artículo 6º—El servicio de agua deberá ser prestado en forma continua, salvo el caso de reparaciones, mantenimiento, caso fortuito u otra causa justificante, en cuyo caso el Concejo Municipal de Distrito de Cervantes deberá comunicar por anticipado de las alteraciones o interrupciones del servicio a los usuarios.
