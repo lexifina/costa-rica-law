@@ -1,0 +1,1 @@
+Artículo 19.—El Médico Especialista debe denunciar ante este Colegio Profesional, aquellos casos en el que se incurra en un incumplimiento de la presente normativa y reglamentos de esta Corporación Gremial y del ejercicio ilegal de la especialidad para su análisis y respectiva sanción cuando esta corresponda.

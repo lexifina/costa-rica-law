@@ -1,0 +1,1 @@
+Artículo 7º—Asistencial. El Especialista en Medicina Aeroespacial realiza sus funciones en todas aquellas áreas del conocimiento médico, que emplea para la promoción de la salud, para el diagnóstico, pronóstico, tratamiento y prevención de las enfermedades.

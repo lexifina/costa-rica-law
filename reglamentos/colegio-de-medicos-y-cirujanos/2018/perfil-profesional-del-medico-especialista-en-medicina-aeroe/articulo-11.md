@@ -1,0 +1,1 @@
+Artículo 11.—El Médico Especialista en Medicina Aeroespacial, debidamente incorporado ante este Colegio Profesional, es el único médico autorizado para ejercer esta especialidad y promocionarse como tal.
