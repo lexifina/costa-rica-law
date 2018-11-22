@@ -1,1 +1,0 @@
-Artículo 3°—Con el propósito de lograr una mayor coordinación de objetivos comunes y complementarios entre las Municipalidades y el Estado, se podrán firmar convenios entre ambas partes que fortalezcan las potestades legales e institucionales de cada uno, así como aprovechar mejor los recursos de cada régimen en beneficio del medio urbano.

@@ -1,1 +1,0 @@
-Artículo 13.—Corresponde a cada institución estudiar, ejecutar y coordinar la ejecución de los proyectos regionales y nacionales que ordene el Consejo, dentro de los procesos jurídicos y administrativos de cada institución.
