@@ -1,1 +1,2 @@
 Artículo 35.—El Fondo Fijo de Caja Chica será, diez veces el pago máximo autorizado por el Concejo Municipal. En ningún caso el Fondo Fijo de Caja Chica superará el medio por ciento (0.50%) del presupuesto de gastos aprobado por el Concejo Municipal a la Comisión de Fiestas.
+(Nota de Sinalevi: mediante sesión N° 25 del 22 de noviembre de 2018, se acordó aprobar el monto de doscientos cincuenta mil colones para la Caja Chica para la Comisión de Fiestas Típicas Nacionales 2018-2019.)

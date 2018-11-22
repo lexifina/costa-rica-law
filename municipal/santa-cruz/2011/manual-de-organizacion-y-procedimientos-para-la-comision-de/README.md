@@ -14,3 +14,4 @@ Manual de organización y procedimientos para la comisión de las fiestas típic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-05-24 | la propia norma |
+| 2 | 2018-11-22 | Reglamento municipal 25 (2018-11-22) |

@@ -1,1 +1,1 @@
-Artículo 40.—El procedimiento de contratación se determinará de conformidad con el artículo 27 de la Ley de Contratación Administrativa y con base en el presupuesto autorizado para respaldar la contratación de bienes y servicios por parte de la Contraloría General de la República a la Municipalidad de Santa Cruz.
+Artículo 40.— (Mediante sesión N° 25 del 22 de noviembre de 2018, se acordó la suspensión de la aplicación de este artículo.)

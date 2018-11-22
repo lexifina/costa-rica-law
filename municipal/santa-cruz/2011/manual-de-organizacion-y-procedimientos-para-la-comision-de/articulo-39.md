@@ -1,1 +1,1 @@
-Artículo 39.—El programa de adquisiciones deberá ser publicado a más tardar el treinta y uno de agosto de cada año. El proceso de contratación deberá haberse completado a más tardar en los primeros quince días del mes de octubre de cada año.
+Artículo 39.— (Mediante sesión N° 25 del 22 de noviembre de 2018, se acordó la suspensión de la aplicación de este artículo.)
