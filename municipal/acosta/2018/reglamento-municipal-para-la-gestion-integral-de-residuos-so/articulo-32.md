@@ -1,0 +1,2 @@
+Artículo 32. Sobre la eliminación o traspaso del servicio. La eliminación del servicio se tramitara mediante una copia de la Orden Sanitaria de inhabitabilidad del inmueble, copia del acta de Inspección de cumplimiento a la Orden Sanitaria del Área Rectora de Salud de Acosta y previa inspección municipal.
+El traspaso del servicio se realizara previa solicitud del contribuyente por motivo de actualización registral del Inmueble. Sera potestad del Departamento de Gestión de Cobros realizar dichos cambios.
