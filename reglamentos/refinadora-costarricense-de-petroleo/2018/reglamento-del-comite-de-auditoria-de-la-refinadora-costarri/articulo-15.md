@@ -1,0 +1,1 @@
+Artículo 15.—Naturaleza de los acuerdos del Comité de Auditoría. Los acuerdos del Comité de Auditoría constituyen recomendaciones no vinculantes para la Junta Directiva, a fin de apoyar el proceso decisorio de ésta última.

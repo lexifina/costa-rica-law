@@ -1,0 +1,1 @@
+Artículo 7º—Solicitud de informes. El Comité de Auditoría podrá solicitar, por medio de la Junta Directiva, informes en los temas relacionados con las responsabilidades y atribuciones aquí indicadas.

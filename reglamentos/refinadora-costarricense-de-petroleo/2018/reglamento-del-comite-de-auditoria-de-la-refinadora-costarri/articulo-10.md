@@ -1,0 +1,1 @@
+Artículo 10.—Asistencia de la Auditoría Interna. El Comité de Auditoría podrá invitar a quien asuma la Auditoría Interna a las sesiones, cuando lo considere necesario, sin comprometer la independencia que éste debe mantener. Su participación será con voz pero sin voto.
