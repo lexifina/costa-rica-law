@@ -38,3 +38,4 @@ Reglamento de Servicio de los Cuerpos Policiales adscritos al Ministerio de Segu
 | 23 | 2012-11-30 | Decreto Ejecutivo 37458 (2012-11-30) |
 | 24 | 2013-11-12 | Decreto Ejecutivo 38087 (2013-11-12) |
 | 25 | 2017-05-15 | Decreto Ejecutivo 40421 (2017-05-15) |
+| 26 | 2018-11-23 | Decreto Ejecutivo 41595 (2018-11-23) |
