@@ -1,0 +1,1 @@
+Artículo 8º—Se establecerá un periodo de trabajo comprendido entre el 01 de agosto y el 31 de octubre para que la Dirección Financiera, presente a la Alcaldía una propuesta de ajuste de tarifas con los análisis correspondientes, que respalden dicha propuesta.

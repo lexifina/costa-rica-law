@@ -1,0 +1,1 @@
+Artículo 5º—En relación con los servicios de mantenimiento de parques y zonas verdes y limpieza de vías públicas, las tarifas se fijarán proporcionalmente entre los contribuyentes del distrito. En tomo a los demás servicios, la Municipalidad fijara las tarifas considerando los parámetros tendientes al idóneo cumplimiento de la prestación.

@@ -1,0 +1,1 @@
+Artículo 9º—La Municipalidad estará obligada a realizar, por lo menos una vez al año, estudios que determinen cuáles aspectos de sus servicios son satisfactorios para los usuarios y cuales presentan deficiencias. La Municipalidad deberá considerar en dicho estudio la información proveniente de los usuarios.

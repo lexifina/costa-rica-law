@@ -1,0 +1,1 @@
+Artículo 14.—El Alcalde Municipal en coordinación con la Dirección Financiera deberá presentar en Noviembre de cada año al Concejo Municipal el proyecto tarifario, que será sometido a estudio y aprobación del Concejo.
