@@ -1,0 +1,5 @@
+CAPÍTULO III
+Del control y sanciones
+Artículo 8°—Del control en el cumplimiento de las disposiciones del presente Reglamento. Corresponderá a la Dirección de Gestión Institucional de Recursos Humanos, comunicar a cada funcionario a nombrar en alguno de los cargos que se señalan en el artículo 3 de este reglamento, la obligación de rendir de previo la garantía correspondiente.
+Así mismo, le corresponderá a la citada dependencia supervisar que todos los funcionarios obligados a rendir la garantía con la entrada en vigencia del presente reglamento, y a los que ostenten el nombramiento respectivo, suscriban la correspondiente póliza de fidelidad conforme las disposiciones transitorias aquí dispuestas, y que, así mismo, la mantengan vigente.
+Se llevará un registro de los funcionarios que se encuentren obligados a suscribir la póliza de fidelidad, así como la fecha de vencimiento de éstas, lo anterior con el fin de tomar las providencias del caso a efecto de que en todo momento se mantengan vigentes.
