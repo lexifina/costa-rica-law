@@ -1,0 +1,1 @@
+Artículo 4º—En los vehículos autorizados para operar servicios de TIPC sólo se permite el abordaje de pasajeros en el territorio nacional en los lugares y paradas que para tal efecto fije el Consejo de Transporte Público, y cuando dichos pasajeros tienen como destino final un lugar fuera del país.

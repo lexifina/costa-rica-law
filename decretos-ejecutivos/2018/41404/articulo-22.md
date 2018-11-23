@@ -1,0 +1,1 @@
+Artículo 22.—El plazo de vigencia de la homologación nunca podrá ser superior al plazo de vigencia del permiso u autorización del país de origen, ni del plazo máximo otorgado en nuestro país, prevaleciendo éste último sobre el primero.

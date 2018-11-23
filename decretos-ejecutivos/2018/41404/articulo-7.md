@@ -1,0 +1,1 @@
+Artículo 7º—Todo vehículo que preste servicios de TIPC debe estar amparado por un seguro de responsabilidad civil que pueda ser exigible en Costa Rica y que cubra, satisfactoriamente, lesiones o muerte de pasajeros; así como daños a terceros.

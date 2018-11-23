@@ -1,0 +1,1 @@
+Artículo 9º—Los vehículos de TIPC deben ostentar en lugar visible, de día y de noche, un rótulo indicativo alusivo al servicio internacional que prestan, así como portar los documentos, distintivos y dispositivos necesarios para la circulación en carretera, de conformidad con lo estipulado en el Acuerdo Centroamericano de Circulación por Carretera.

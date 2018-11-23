@@ -1,0 +1,1 @@
+Artículo 10.—En el otorgamiento de permisos para realizar servicios de TIPC, se tendrá en cuenta, fundamentalmente, el cumplimiento de requisitos técnicos y jurídicos relacionados directamente con los criterios de necesidad y procedencia del servicio, especialmente enfocados en la comprobación de una demanda real y efectiva de usuarios.

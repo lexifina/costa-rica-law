@@ -1,0 +1,1 @@
+Artículo 12.—El servicio de TIPC, en cuanto afecta a Costa Rica, se regirá por los convenios que se suscriban con otros países, debidamente ratificados por la Asamblea Legislativa. En tanto dichos convenios no estén vigentes, regirán las disposiciones de esta reglamentación.

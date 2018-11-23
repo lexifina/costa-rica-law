@@ -1,0 +1,1 @@
+Artículo 6º—El compromiso del prestatario de no transportar carga o encomiendas en los vehículos de TIPC constituye una condición para el otorgamiento del permiso de TIPC o la homologación; excepto cuando se trate del equipaje de los pasajeros.
