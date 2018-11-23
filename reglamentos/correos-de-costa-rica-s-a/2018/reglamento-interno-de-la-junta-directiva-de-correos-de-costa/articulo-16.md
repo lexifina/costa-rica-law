@@ -1,0 +1,1 @@
+Artículo 16.—Acuerdos: Los acuerdos de la Junta Directiva se adoptarán por simple mayoría de votos de los presentes y deben ser motivados. En caso de que deba conocerse algún asunto con urgencia declarada que no esté incluida en el orden del día, este se podrá conocer con el voto favorable de dos tercios de la totalidad de los Miembros de la Junta Directiva

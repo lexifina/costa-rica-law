@@ -1,0 +1,6 @@
+Artículo 9º—Lugar y hora de su celebración. Las sesiones ordinarias y extraordinarias de la Junta Directiva se celebrarán en el lugar y hora señalados en la convocatoria, la cual deberá realizarse por medio idóneo y con una antelación de por lo menos veinticuatro horas.
+Se celebrará una sesión ordinaria por semana y tantas extraordinarias como sea necesario.
+Para reunirse en sesión ordinaria no hará falta convocatoria especial.
+Para reunirse en sesión extraordinaria será siempre necesaria una convocatoria por escrito, con una antelación mínima de veinticuatro horas, salvo los casos de urgencia. A la convocatoria se acompañará copia del orden del día, salvo casos de urgencia.
+No obstante, quedará válidamente constituido el órgano colegiado sin cumplir todos los requisitos referentes a la convocatoria o al orden del día, cuando asistan todos sus miembros y así lo acuerden por unanimidad.
+Las sesiones de la Junta serán privadas, salvo que la misma disponga lo contrario. Todas las sesiones serán convocadas de oficio por el presidente.

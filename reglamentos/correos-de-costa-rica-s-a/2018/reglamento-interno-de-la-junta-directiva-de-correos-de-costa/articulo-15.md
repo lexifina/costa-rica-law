@@ -1,0 +1,1 @@
+Artículo 15.—Sesiones extraordinarias: Además del caso contemplado en el artículo anterior, las sesiones extraordinarias, se celebrarán cada vez que sean convocadas por el presidente. En éstas, únicamente se conocerán los asuntos de la convocatoria.
