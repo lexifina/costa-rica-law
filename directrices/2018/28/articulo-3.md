@@ -1,0 +1,1 @@
+Artículo 3º—Colaboración. Se instruye a las demás instituciones de la Administración Pública Central y Descentralizada, para que en la medida de sus posibilidades y dentro del marco jurídico respectivo, apoyen en el diseño, ejecución y seguimiento de la Política Nacional para la Formación, Educación y Empleabilidad de Personas Trans.

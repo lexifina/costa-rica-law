@@ -1,0 +1,1 @@
+Artículo 6°—Sector Privado. Se invita al sector privado a colaborar en el diseño y la implementación de acciones afirmativas, dentro del marco de la Política Nacional para la Formación, Educación y Empleabilidad de Personas Trans que permitan el ejercicio efectivo del derecho a un trabajo digno para las personas trans.

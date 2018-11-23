@@ -1,0 +1,1 @@
+Artículo 5º—Universidades públicas. Se les insta a las Universidades a coadyuvar en el diseño y la implementación de acciones afirmativas, dentro del marco de la Política Nacional para la Formación, Educación y Empleabilidad de Personas Trans que permitan el ejercicio efectivo del derecho a la educación de las personas trans.
