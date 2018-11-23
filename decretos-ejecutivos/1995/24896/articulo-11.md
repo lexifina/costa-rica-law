@@ -14,8 +14,13 @@ i) Poder contar con un lugar adecuado para que pueda tomar los alimentos y bebid
 j) Gozar de licencia por cuatro meses cuando la servidora se encuentre en estado de gravidez y percibir el sueldo completo.
 Este período se distribuirá en dos momentos, un mes antes de parto y tres meses después.
 k) Poder disfrutar de Licencia ocasional, con goce y sin goce de salario en los casos previstos en el presente Reglamento.
-l) Gozar de una hora diaria para amamantar a sus hijos.
-Este permiso que es con goce de salario podrá prorrogarse hasta por el término de tres meses, contados a partir del tercer mes posterior al alumbramiento. Para tales efectos la interesada deberá presentar el certificado médico de la Caja Costarricense del Seguro o del médico del Ministerio en el que conste que está amamantando a su hijo.
+I) La funcionaria que se encuentre en estado de embarazo deberá aportar a la jefatura inmediata, el comprobante médico que certifique su estado de gravidez, dentro del plazo de tres días hábiles de emitido por profesional competente de la Caja Costarricense del Seguro Social, o bien de laboratorio privado o del institucional, con la finalidad de que se adopten las previsiones pertinentes para la protección especial de la maternidad; y tendrá derecho a:
+i. A que se le mantenga en funciones propias del cargo, sin que se generen riesgos para la madre y su hijo o hija.
+ii. A que se le otorgue una hora con goce de salario para lactancia, después de vencida la licencia por maternidad, que podrá aprovechar al comienzo o en la última hora de la jornada laboral, durante el periodo que se indique por prescripción médica de pediatra, cuya constancia la funcionaria deberá entregarla a su jefatura inmediata dentro del plazo de tres días hábiles siguientes de emita.
+iii. A que se le facilite un lugar privado y limpio para extraer la leche y se le otorguen quince minutos cada tres horas o media hora dos veces al día. Tales tiempos no son acumulativos.
+iv. En caso de embarazo múltiple se acatará la normativa vigente.
+v. La jefatura que impida el ejercicio de estos derechos será objeto de sanción disciplinaria según se demuestre su responsabilidad previo cumplimiento del debido proceso.
+(Así reformado el inciso l) anterior por el artículo 1° del decreto ejecutivo N° 41596 del 23 de noviembre de 2018)
 ll) Acogerse a la Carrera Profesional cuando corresponda.
 m) Las horas extras laboradas se le cancelen de acuerdo con la normativa que rige la materia.
 n) Se le reconozcan los viáticos correspondientes en los lugares donde el Ministerio no brinde este servicio, cuando deba desplazarse a cumplir sus funciones, fuera de su centro de trabajo de conformidad con el Reglamento de Gastos de Viaje y Transporte para funcionarios o empleados del Estado.

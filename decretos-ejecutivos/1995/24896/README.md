@@ -23,3 +23,4 @@ Reglamento Autónomo de Servicio del Ministerio de Seguridad Pública
 | 8 | 2012-08-28 | Decreto Ejecutivo 37291 (2012-08-28) |
 | 9 | 2015-11-09 | Decreto Ejecutivo 39326 (2015-11-09) |
 | 10 | 2016-03-03 | Decreto Ejecutivo 39716 (2016-03-03) |
+| 11 | 2018-11-23 | Decreto Ejecutivo 41596 (2018-11-23) |
