@@ -1,0 +1,3 @@
+SECCIÓN III
+Del Personal de la Auditoría Interna
+Artículo 24. —Del personal. El personal de la Auditoría Interna deberá reunir la formación, conocimientos, destrezas, experiencia, credenciales, aptitudes, cualidades y competencias propias del tipo específico de auditoría a realizar, así como del marco legal que rige el accionar de la Administración Pública y del Ministerio, que lo califique para ejercer en forma apropiada las funciones encomendadas, de conformidad con las disposiciones internas del Ministerio, establecidas en el Manual de Cargos de la Auditoría Interna del Ministerio de Hacienda, así como en la normativa vigente que regula la materia, emitida por la Contraloría General de la República.

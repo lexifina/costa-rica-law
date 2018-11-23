@@ -1,0 +1,2 @@
+Artículo 36. —Ejecución del presupuesto y del plan de adquisiciones. Corresponderá al Auditor Interno o a quien delegue, autorizar los documentos de ejecución presupuestaria que procedan y todo requerimiento de modificación al presupuesto anual asignado y al plan anual de adquisiciones de la Auditoría Interna.
+Ejecutar recursos, de la categoría programática asignados a la Auditoría Interna, sin la autorización del Auditor Interno, será considerado como falta grave para efectos de sentar responsabilidades administrativas.

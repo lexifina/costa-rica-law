@@ -1,0 +1,1 @@
+Artículo 66. —Derogatoria. Deróguese el Decreto Ejecutivo Nº34573-H, publicado en el diario oficial La Gaceta Nº 118 de fecha 19 de junio del 2008, Reglamento de Organización y Funcionamiento de la Dirección General de Auditoría Interna del Ministerio de Hacienda.

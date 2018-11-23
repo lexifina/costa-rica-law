@@ -1,0 +1,1 @@
+Artículo 23. —Jornada laboral del Auditor Interno y Subauditor Interno. La jornada laboral del Auditor Interno y Subauditor Interno será de tiempo completo. El Ministro se obliga a que las medidas administrativas que adopte para ambos cargos sean equitativas respecto de los puestos que dependen de éste, así como en asuntos tales como el trámite de vacaciones y similares.
