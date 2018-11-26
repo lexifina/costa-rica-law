@@ -14,3 +14,4 @@ Reglamento de la policía municipal y policía municipal de tránsito de la Muni
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-08-28 | la propia norma |
+| 2 | 2018-11-26 | Reglamento municipal 75 (2018-11-26) |
