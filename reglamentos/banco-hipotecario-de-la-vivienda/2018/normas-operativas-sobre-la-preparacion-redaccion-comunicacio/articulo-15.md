@@ -1,0 +1,1 @@
+Artículo 15.—Unidad responsable: En el acuerdo de la Junta Directiva deberá constar expresamente la Unidad Administrativa responsable de su ejecución, así como la unidad coadyuvante, si fuere necesario, entendiéndose por ésta la unidad que brindará apoyo técnico documental o logístico, en la ejecución del acuerdo.

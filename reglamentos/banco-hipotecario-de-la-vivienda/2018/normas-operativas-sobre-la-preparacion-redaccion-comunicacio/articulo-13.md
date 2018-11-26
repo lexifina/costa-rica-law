@@ -1,0 +1,1 @@
+Artículo 13.—Comunicación de actos que requieren motivación obligatoria: Cuando se trate de actos que requieren motivación obligatoria, los acuerdos correspondientes deberán ser comunicados en su totalidad. Los demás acuerdos podrán comunicarse en lo que sea procedente.
