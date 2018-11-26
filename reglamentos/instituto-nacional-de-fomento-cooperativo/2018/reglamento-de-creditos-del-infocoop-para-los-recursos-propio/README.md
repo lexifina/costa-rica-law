@@ -15,3 +15,4 @@ Reglamento de créditos del INFOCOOP para los recursos propios, juveniles y PL-4
 | --- | --- | --- |
 | 1 | 2018-04-26 | la propia norma |
 | 2 | 2018-09-06 | Reglamento 82 (2018-09-06) |
+| 3 | 2018-11-26 | Reglamento 95 (2018-11-26) |
