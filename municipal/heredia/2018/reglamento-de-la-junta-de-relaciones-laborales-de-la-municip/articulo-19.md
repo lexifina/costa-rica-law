@@ -1,0 +1,1 @@
+Artículo 19.-De la confidencialidad: Las partes y sus representantes están obligadas a mantener confidencialidad sobre asuntos tratados en el seno de la Junta. Debidamente comprobada una falta en ese sentido, la representación que lo nombró revocará el nombramiento y procederá a su sustitución inmediata.

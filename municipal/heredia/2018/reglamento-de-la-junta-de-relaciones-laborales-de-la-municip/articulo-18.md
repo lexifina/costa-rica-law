@@ -1,0 +1,1 @@
+Artículo 18.-Comisiones de estudio y especiales: La Junta, según lo considere conveniente, nombrará de su seno comisiones con el fin de agilizar su funcionamiento, pudiendo distribuirse entre sí las funciones de investigación, análisis de mociones, estudio de proyectos, etc.
