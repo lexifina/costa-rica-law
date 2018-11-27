@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de licencias para la comercialización de pólvo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-03-19 | la propia norma |
+| 2 | 2018-11-27 | Reglamento municipal 135 (2018-11-27) |
