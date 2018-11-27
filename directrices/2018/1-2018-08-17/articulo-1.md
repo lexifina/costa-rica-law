@@ -1,0 +1,22 @@
+JUNTA ADMINISTRATIVA DEL REGISTRO NACIONAL
+REGISTRO DE PERSONAS JURÍDICAS
+DIRECTRIZ D.P.J.-001-2018
+DE: Dirección Registro de Personas Jurídicas
+PARA: Subdirección, Asesoría Jurídica, Asesoría Técnica, Coordinación General, Coordinaciones y Registradores
+ASUNTO: Ampliación del plazo social
+FECHA: 17 de agosto de 2018
+Con la finalidad de optimizar la calidad y exactitud en la calificación e inscripción de documentos correspondientes a este Registro, así como evitar inconsistencias en la calificación e inscripción de las personas jurídicas, garantizando seguridad jurídica y así lograr que la publicidad brindada sea conforme a la literalidad de los documentos, debidamente ajustados a Derecho, se reitera lo establecido por la normativa vigente respecto a la vigencia de las personas jurídicas, para lo cual resulta de importancia citar lo establecido en el artículo 34 del Código Civil, norma que instruye:
+“ARTÍCULO 34.—La entidad jurídica de la persona física termina con la muerte de ésta; y la de las personas jurídicas cuando dejan de existir conforme a la ley.”
+En relación a lo citado, es necesidad conocer lo dispuesto en el Código de Comercio al respecto, para lo cual el artículo 201, que para lo que interesa, establece:
+“ARTÍCULO 201.—Las sociedades se disuelven por cualquiera de las siguientes causas:
+a) El vencimiento del plazo señalado en la escritura social;
+”Aunado a lo anterior, el enunciado 206 del mismo cuerpo normativo reitera:
+“ARTÍCULO 206.—En el caso del inciso a) del artículo 201, la disolución de la sociedad se realizará por el solo vencimiento del plazo fijado en la escritura.”
+En tal sentido y con la finalidad de ilustrar lo establecido por la norma, vale citar lo expuesto por la Sala Primera de la Corte Suprema de Justicia, mediante la sentencia 00264 del 11 de abril de2008, resolución que para lo que interesa establece:
+“La constitución de las sociedades, así como sus modificaciones, deben ser registradas en la dependencia estatal correspondiente, no se puede alegar falta de conocimiento de una circunstancia que se encuentra sujeta al principio de publicidad registral. Por ello, no puede la actora aducir que adquirió el inmueble litigioso de buena fe, si el plazo por el cual se había constituido esa sociedad ya había expirado, y así constaba en el Registro respectivo. […] lo que significa que no puede obviarse tal expiración si consta en el pacto social el plazo.”
+En el mismo orden, el Tribunal Agrario en la sentencia número 00733 del 12 de julio de 2006, resolvió:
+“Asimismo el artículo 34 del Código Civil dispone la “la entidad jurídica de la persona física termina con la muerte de ésta; y la de las personas jurídicas cuando dejan de existir conforme a la ley”, el 201 del Código de Comercio señala que la sociedad se disuelve, entre otros motivos, por “a) El vencimiento del plazo señalado en la escritura social”, siendo que el ordinal 206 de ese mismo cuerpo normativo refuerza el punto, al regular: “En el caso del inciso a) del artículo 201, la disolución de la sociedad se realizará por el solo vencimiento del plazo fijado en la escritura”. Así las cosas, al disolverse una sociedad, su personalidad jurídica deja de existir -la cual solamente permanece vigente para que se concreten las actuaciones atinentes al proceso de liquidación, según lo autoriza el artículo 209 del Código de Comercio-. Bajo esta inteligencia, todo acto contrato realizado por una sociedad con plazo vencido, carece de un elemento esencial para la validez del negocio jurídico, cual es la capacidad para obligarse, y en consecuencia es absolutamente nulo.”
+Conforme a lo expuesto, esta Dirección reitera que toda sociedad se encontrara disuelta de pleno derecho desde el momento en que expire su plazo social.
+Por lo anterior y acorde al principio de publicidad registral, a toda entidad jurídica que se quiera realizar una ampliación del plazo social, tanto el acuerdo de ampliación tomado por los socios, así como el documento en que se protocolice el acta que autorice dicha prórroga, deberá necesariamente ser presentada a este Registro previo al vencimiento del plazo social inscrito y publicitado, esto con la finalidad de no se afecten los intereses de terceras personas y en aplicación de los efectos constitutivos que rigen este Registro.
+Cabe indicar que toda entidad que se inscriba en este Registro debe cumplir con lo anterior, salvo norma que regule lo contrario, y por lo tanto deberá de ser cancelado todo documento que no se adecue a la legislación imperante.
+Rige a partir de su publicación.
