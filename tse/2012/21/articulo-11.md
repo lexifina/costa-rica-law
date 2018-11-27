@@ -1,6 +1,7 @@
 ARTÍCULO 11. - DEL DELEGADO JEFE NACIONAL. Habrá un delegado jefe nacional, nombrado y removido libremente por el TSE, quien tendrá las siguientes atribuciones:
 a) Disponer lo pertinente en punto a la organización interna y al funcionamiento del Cuerpo Nacional de Delegados, para lo cual propondrá al TSE, por intermedio de la Dirección General, el nombramiento o remoción de los delegados, de las jefaturas o de cualquier otro cargo a nivel regional. Tribunal Supremo de Elecciones Decreto 21-2012
-b) Velar por que ese Cuerpo cumpla las instrucciones, órdenes y disposiciones que acuerde el TSE en lo referente a las funciones de los delegados.
+b) Velar, como superior jerárquico de quienes integran ese cuerpo, por que se cumplan las instrucciones, órdenes y disposiciones que acuerde el TSE en lo referente a las atribuciones y deberes de los delegados.
+(Así reformado el inciso anterior por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 14 del de 27 de noviembre del 2018)
 c) Proveer lo que corresponda con la autoridad concedida por el TSE, a efecto de que las instrucciones, órdenes y disposiciones que acuerde el Tribunal sean oportuna y correctamente comunicadas, conocidas y ejecutadas.
 d) Recibir y analizar las solicitudes de nombramiento de nuevos delegados y hacer la recomendación respectiva al TSE a través de la Dirección General.
 e) Dar el trámite respectivo a las comunicaciones de renuncia, así como a las solicitudes de revocatoria de nombramiento de delegados.

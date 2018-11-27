@@ -14,3 +14,4 @@ Reglamento del Cuerpo Nacional de Delegados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-21 | la propia norma |
+| 2 | 2018-11-27 | Decreto TSE 14 (2018-11-27) |
