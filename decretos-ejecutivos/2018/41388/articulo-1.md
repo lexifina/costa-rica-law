@@ -1,0 +1,32 @@
+N° 41388-S-MINAE-MTSS
+EL PRESIDENTE DE LA REPÚBLICA
+Y LOS MINISTROS DE SALUD,
+DE AMBIENTE Y ENERGÍA
+Y DE TRABAJO Y SEGURIDAD SOCIAL
+En uso de las facultades que les confieren los artículos 140 incisos 3), 18) y 146 de la Constitución Política; 25 inciso 1), 27 inciso 1), 28 inciso 2) acápite b) de la Ley Nº 6227 del 02 de mayo de 1978 “Ley General de la Administración Pública”; 1, 2, 4, 7, 37, 38, 39, 262, 263, 293, 294 y 295 de la Ley Nº 5395 del 30 de octubre de 1973 “Ley General de Salud”; 1, 2 inciso g) y 6 de la Ley Nº5412 de 08 de noviembre de 1973 “Ley Orgánica del Ministerio de Salud”; 1, 2, 49, 56, 57, 58 y 59 de la Ley N° 7554 del 04 de octubre de 1995 “Ley Orgánica del Ambiente”; 273, 274 y 283 de la Ley Nº 2 del 27 de agosto de 1943 “Código de Trabajo”; 104, 110 y 141 de la Ley Nº 1860 de 21 de abril de 1955 “Ley Orgánica del Ministerio de Trabajo y Seguridad Social”; 1 y 2 de la Ley Nº 7447 del 03 de noviembre de 1994 “Ley de Regulación del Uso Racional de la Energía” y 21 del Decreto Ejecutivo Nº 26789-MTSS del 16de febrero de 1998 “Reglamento de Calderas”.
+Considerando:
+I.—Que el Ministerio de Salud es competente para adoptar todos aquellos actos necesarios para la protección de la salud. La Ley General de Salud establece además, que toda persona, natural o jurídica, queda sujeta a los mandatos de esa ley, de sus reglamentos y de las órdenes generales y particulares, ordinarias y de emergencia, que las autoridades de salud dicten en el ejercicio de sus competencias orgánicas.
+II.—Que el incremento de la contaminación, principalmente en la Gran Área Metropolitana y zonas adyacentes, requiere de una acción urgente que logre su adecuación dentro de niveles máximos tolerables, a fin de evitar perjuicios a la salud de la población y al ambiente.
+III.—Que el potencial de contaminación atmosférica que pueden generar las emisiones producidas por las actividades industriales, comerciales y de servicios, justifica la adopción de medidas de control más estrictas sobre la calidad del aire, niveles de emisión de sustancias contaminantes, calidad de los combustibles y carburantes utilizados, fabricación, reparación y homologación de motores, transformación de energía y otras fuentes fijas y móviles de emisión de contaminantes.
+IV.—Que la prevención y disminución del problema, requiere de un enfoque técnico-legal, que defina los correspondientes niveles de emisión mediante el establecimiento de límites máximos de emisión de contaminantes en las fuentes emisoras, principalmente instalaciones y actividades agrícolas, pecuarias, agroindustriales e industriales, en el presente reglamento.
+V.—Que mediante Decreto Ejecutivo Nº 36551-S-MINAETMTSS del 27 de abril del 2011, publicado en La Gaceta Nº 140 del20 de julio del 2011, el Poder Ejecutivo promulgó el “Reglamento Sobre Emisión de Contaminantes Atmosféricos Provenientes de Calderas y Hornos de Tipo Indirecto”.
+VI.—Que con el objetivo de revisar los valores máximos de emisión en SO2 en relación con los porcentajes de azufre en los combustibles, el Consejo Técnico de Normas de Emisión e Inmisión, de carácter interinstitucional e interdisciplinario, analizó los datos de reportes operacionales de calderas y hornos de tipo indirecto, en particular aquellos que (utilizan Búnker como combustible) recibidos por el Ministerio de Salud e información proveniente de laboratorios con pruebas acreditadas correspondientes al período 2009-2015, así como los datos de calidad de los combustibles distribuidos por RECOPE, con el fin de dar cabal cumplimiento de las disposiciones contenidas en el artículo 296 de la Ley Nº 5395 del 30 de octubre de 1973 “Ley General de Salud”.
+VII.—Que realizado el balance de masa y energía, con el porcentaje de masa de azufre que se vende en el país, los equipos no cumplen con la normativa actual de emisiones de dióxido de azufre.
+VIII.—Que el Decreto Ejecutivo Nº 26789-MTSS del 16 de febrero de 1998 “Reglamento de Calderas” y sus reformas, regula las condiciones de seguridad de las calderas, cuyas condiciones de funcionamiento están directamente relacionadas con sus emisiones a la atmósfera y su eficiencia energética.
+IX.—Que los reglamentos requieren de una revisión y actualización periódica para el cumplimiento de las funciones que contempla la Ley Nº 5395 del 30 de octubre de 1973 “Ley General de Salud”.
+X.—Que de conformidad con el artículo 12 bis del Decreto Ejecutivo N° 37045 del 22 de febrero de 2012 y su reforma “Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos”, la persona encargada de la Oficialía de Simplificación de Trámites del Ministerio de Salud, ha completado como primer paso la Sección I denominada Control Previo de Mejora Regulatoria, que conforma el formulario de Evaluación Costo Beneficio. Las respuestas brindadas en esa Sección han sido todas negativas, toda vez que la propuesta no contiene trámites ni requisitos. Por tanto,
+Decretan:
+MODIFICACIÓN AL INCISO B) DEL ARTÍCULO 7º DEL DECRETO
+EJECUTIVO N° 36551-S-MINAET-MTSS DEL 27 DE ABRIL DEL 2011
+“REGLAMENTO SOBRE EMISIÓN DE CONTAMINANTES
+ATMOSFÉRICOS PROVENIENTES DE CALDERAS
+Y HORNOS DE TIPO INDIRECTO”
+Artículo 1º—Modifíquese el inciso B) del artículo 7 del Decreto Ejecutivo N° 36551-S-MINAET-MTSS del 27 de abril de2011 “Reglamento Sobre Emisión de Contaminantes Atmosféricos Provenientes de Calderas y Hornos de Tipo Indirecto”, publicado en el Diario Oficial La Gaceta N° 140 del 20 de julio de 2011, para que en lo sucesivo se lea de la siguiente forma:
+“Artículo 7º- Valores máximos de emisión. Se establecen los siguientes valores máximos de emisión para las calderas y hornos de tipo indirecto que queman combustibles fósiles y biomásicos
+(…)
+B) Dióxido de Azufre
+B.1) Utilización de combustibles fósiles líquidos, gaseosos y biomásicos en calderas y hornos de tipo indirecto. Emisiones en mg/m3 (TPN) permitidas cuando se utilicen combustibles líquidos, gaseosos y biomásicos con un contenido de azufre de hasta un 3,0% en masa
+[imagen]
+No se permitirán concentraciones de SO2 en calderas y hornos de tipo indirecto superiores a 1515 miligramos por metro cúbico (TPN) siempre y cuando el contenido de azufre en el combustible fósil líquido, disponible en el mercado nacional, sea menor o igual al 1,0% en masa.
+B.2) Utilización de combustibles fósiles sólidos en calderas y hornos de tipo indirecto. Carbón mineral y otros: 1515 mg/m3 (TPN) para todos los tamaños de calderas y hornos de tipo indirecto.
+(…)”
