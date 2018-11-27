@@ -1,10 +1,10 @@
-Artículo 11.—Contenido del formulario. Los formularios deberán ser llenados en forma completa, sin tachaduras, manchas ni borrones y contendrán la siguiente información:
-a) Nombre y apellidos del miembro del Comité Ejecutivo Superior del partido que suscribe el formulario.
+Artículo 11.-Contenido del formulario. Los formularios deberán ser llenados en forma completa con la siguiente información:
+a) Nombre completo, apellidos y número de cédula del miembro del Comité Ejecutivo Superior del partido que envía el formulario.
 b) Cargo que ocupa.
 c) Nombre del partido.
-d) Elecciones para las cuales se están presentando las candidaturas.
-e) Hora y fecha de la celebración de la asamblea en la que se designó a los candidatos.
-f) Nombre completo, apellidos, domicilio y número de cédula de los candidatos designados.
-g) Circunscripción para el cual fue designado.
-h) Hora y fecha de la asamblea superior que ratificó la designación de candidatos.
-i) Firma del miembro del comité ejecutivo superior.
+d) Elecciones para las cuales se están presentando candidaturas.
+e) Nombre completo, apellidos y número de cédula de cada uno de los candidatos designados.
+f) Circunscripción electoral, puesto, cargo (propietario o suplente) y posición para la cual fue designado cada candidato.
+g) Fecha de la asamblea o asambleas superiores en que se ratificó la designación de los candidatos.
+En aquellos puestos municipales para los cuales no se digite información, se entenderá que no se postularán candidaturas.
+(Así reformado por el artículo 6° del decreto del Tribunal Supremo de Elecciones, N° 15 del 27 de noviembre de 2018)
