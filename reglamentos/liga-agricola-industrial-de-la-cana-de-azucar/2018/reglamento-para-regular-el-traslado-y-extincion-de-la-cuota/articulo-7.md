@@ -1,0 +1,2 @@
+Artículo 7º—La cuota de referencia de los productores que entregarán su caña al ingenio receptor seleccionado se calculará conforme al artículo 67.1 de la Ley.
+Dicha cuota se compondrá del porcentaje de la cuota de referencia trasladada, con las mismas deducciones anuales consideradas en el artículo 5 del presente reglamento, más la porción de la cuota de referencia constituida en el ingenio receptor, como productor independiente nuevo, al amparo del artículo 67 de la Ley.

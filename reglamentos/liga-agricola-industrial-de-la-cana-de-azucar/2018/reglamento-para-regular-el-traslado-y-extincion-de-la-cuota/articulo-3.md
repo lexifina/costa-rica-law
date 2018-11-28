@@ -1,0 +1,2 @@
+Artículo 3º—La cuota de referencia del ingenio para la primera zafra, después de su cierre definitivo, se calculará y ajustará conforme a lo preceptuado en los artículos 125, con excepción de los párrafos tercero y cuarto y 128 de la Ley, y los artículos 361 y 362 del Reglamento.
+En las cuatro zafras sucesivas posteriores, dicha cuota de referencia se disminuirá en un 20% en cada zafra hasta extinguirse totalmente en la quinta.

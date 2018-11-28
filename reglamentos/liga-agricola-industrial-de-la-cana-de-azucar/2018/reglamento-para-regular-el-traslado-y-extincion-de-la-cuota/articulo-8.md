@@ -1,0 +1,2 @@
+Artículo 8º—Con arreglo a lo dispuesto en los artículos 72, 73, 75, 76, 77 y concordantes de la Ley, al ingenio en su condición de productor de caña, le corresponde un monto de participación en la cuota de individual de producción de azúcar del ingenio receptor, derivada de la aplicación de las disposiciones de este reglamento.
+Concluidas las cinco zafras de transferencia aquí reguladas, el ingenio en su condición de productor, se regirá por lo dispuesto en los artículos 54 y siguientes de la Ley.

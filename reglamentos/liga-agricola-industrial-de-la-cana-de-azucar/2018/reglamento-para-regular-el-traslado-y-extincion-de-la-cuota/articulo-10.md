@@ -1,0 +1,1 @@
+Artículo 10.—Las participaciones del ingenio productor y de las personas jurídicas indicadas en el artículo 9, no podrán exceder en conjunto, la participación que le correspondería al ingenio que cerró en la Cuota Nacional de Producción de Azúcar, con sujeción a lo preceptuado en los artículos 72, siguientes y concordantes de la Ley.
