@@ -8,7 +8,7 @@ Patología Pediátrica.
 Subespecialidades de la Anestesiología Artículo No. 69
 Anestesiología Cardiovascular y Torácica.
 Anestesiología Pediátrica.
-Clínica y Terapia del Dolor.
+Clínica y Terapia del Dolor. Anestesia regional basada en la Anatomía Artículo N° 158 (Así incluida la subespecialidad anterior en sesión N° 2018-11-28 del 28 de noviembre del 2018)
 Subespecialidades de la Cardiología Artículo No. 73
 Cardiología Intervencionista y Hemodinamia.
 Cardiología Pediátrica.

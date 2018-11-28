@@ -56,3 +56,4 @@ Reglamento de Especialidades y Subespecialidades Médicas
 | 41 | 2018-07-11 | Acuerdo 0 (2018-07-11) |
 | 42 | 2018-07-24 | Acuerdo 0 (2018-07-24) |
 | 43 | 2018-11-21 | Acuerdo 0 (2018-11-21) |
+| 44 | 2018-11-28 | Acuerdo 0 (2018-11-28) |
