@@ -1,2 +1,4 @@
-Artículo 5°—Los vehículos deberán rotularse de manera visible y de forma no rernovible en sus costados, con el logotipo del Banco o de la respectiva Sociedad y con la leyenda 'Uso Oficial', además deberán portar sus respectivas placas con el número de matrícula oficial.
-Lo dispuesto en el párrafo anterior no abarcará a los vehículos que se destinen por parte del Banco a labores de Seguridad Bancaria; quedando bajo responsabilidad de la Dirección de Soporte Administrativo, la definición de la cantidad y tipo de vehículos asignados a esas labores y el correcto uso de los mismos, a cargo de la jefatura de la División de Seguridad Bancaria.
+Artículo 5
+Los vehículos deberán rotularse de manera visible y de forma no removible en sus costados, con el logotipo del Banco o de la respectiva Sociedad y con la leyenda “Uso oficial”.
+Además, deberán portar sus respectivas placas con el número de matrícula oficial.
+(Así reformado en sesión N° 5599 del 28 de noviembre de 2018)
