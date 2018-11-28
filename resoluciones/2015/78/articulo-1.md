@@ -1,4 +1,6 @@
+(Revocada)
 SUPERINTENDENCIA DE TELECOMUNICACIONES
+(Esta resolución fue revocada mediante resolución N° RCS-379-2018 del 28 de noviembre del 2018, “Requisitos para la fiscalización, regulación y el control de la Superintendencia de Telecomunicaciones de los requerimientos y disposiciones la Ley de Protección a la Niñez y Adolescencia frente al contenido nocivo de internet y medios electrónicos”)
 3293-SUTEL-SCS-2015.—El suscrito, Secretario del Consejo de la Superintendencia de Telecomunicaciones, en ejercicio de las competencias que le atribuye el inciso b) del artículo 50 de la Ley General de la Administración Pública, Ley 6227, y el artículo 35 del Reglamento Interno de Organización y Funciones de la Autoridad Reguladora de los Servicios Públicos y su Órgano Desconcentrado, me permito comunicarle(s) que en sesión ordinaria 023-2015, celebrada el 6 de mayo del 2015, mediante acuerdo 018- 023-2015, de las 15:20 horas, el Consejo de la Superintendencia de Telecomunicaciones aprobó por unanimidad, la siguiente resolución:
 RCS-078-2015
 “ACTUALIZACIÓN DE LOS REQUISITOS PARA PRESENTAR UNA SOLICITUD DE AUTORIZACIÓN

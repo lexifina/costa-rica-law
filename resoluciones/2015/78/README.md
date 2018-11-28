@@ -14,3 +14,4 @@ Actualización de los requisitos para presentar una solicitud de autorización e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-05-29 | la propia norma |
+| 2 | 2018-11-28 | Resolución 379 (2018-11-28) |
