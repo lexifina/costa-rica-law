@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. El presente reglamento tiene por objeto establecer las normas internas de funcionamiento del Comité, incluidas sus sesiones, en apego al marco normativo que establecen el Decreto y la Ley 6227 en lo concerniente al funcionamiento de los órganos colegiados.
