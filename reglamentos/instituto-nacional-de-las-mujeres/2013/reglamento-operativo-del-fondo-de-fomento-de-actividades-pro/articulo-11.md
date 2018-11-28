@@ -1,3 +1,2 @@
-CAPITULO 2
-PRINCIPIOS DE SELECCIÓN
-Artículo 11.- Convocatoria pública: Los proyectos serán seleccionados mediante procesos concursados de convocatoria pública que se regirán por principios de libre participación, igualdad de oportunidades, justicia y transparencia, según bases de participación previamente definidas.
+Artículo 11- Duración de los proyectos a financiar: La ejecución de los proyectos propuestos no podrá ser superior a doce meses ni menor a tres, con la finalidad de asegurar que sean procesos formales y de efectos sostenidos. Lo anterior sin perjuicio de que los desembolsos deberán realizarse en un periodo de tiempo de máximo un año, para dar oportunidad al financiamiento de la mayor cantidad de proyectos posible y sin perjuicio del seguimiento y acompañamiento que el INAMU decida brindar a los proyectos una vez concluidos, como mecanismo para la medición del impacto de FOMUJERES.
+(Así adicionado mediante sesión celebrada el 28 de noviembre del 2018)

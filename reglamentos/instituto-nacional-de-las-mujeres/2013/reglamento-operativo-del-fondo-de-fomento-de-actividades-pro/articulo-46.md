@@ -1,2 +1,3 @@
-Artículo 46.- Aceptación de recursos y firma de contratos. En el contrato se especificarán los deberes y obligaciones de cada una de las partes, según el proyecto seleccionado.
-Asimismo, en el contrato se definirá como se realizarán los desembolsos, puede ser en un solo desembolso o en desembolsos parciales, así como los mecanismos de control del INAMU para dar seguimiento al proyecto.
+Artículo 46- Comunicaciones a las Organizaciones de mujeres ganadoras o mujer ganadora postulada en forma individual seleccionadas: Las mujeres ganadoras de los proyectos aprobados serán contactadas vía telefónica o por correo electrónico, para que en la fecha que se les indique, se presenten a cada Unidad Regional del INAMU o en donde se defina a firmar el Contrato.
+(Corrida la numeración en sesión del 28 de noviembre del 2018, que lo traspasó del antiguo artículo 45 al 46)
+(Así reformado en sesión del 28 de noviembre del 2018)

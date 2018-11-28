@@ -1,1 +1,5 @@
-Artículo 12.- Convocatoria nacional: Para la ejecución de los recursos del Fondo se realizarán las convocatorias necesarias, para que las mujeres postulantes presenten sus proyectos, buscando siempre que participen todas las mujeres y organizaciones de mujeres del territorio nacional. Las convocatorias se publicarán en, el sitio web de la institución; sin perjuicio de la utilización de otros medios que la Administración considere efectivos y que aseguren la participación en todas las regiones del país.
+CAPÍTULO III
+PROCESO DE SELECCIÓN
+Artículo 12- Convocatoria Pública: Los proyectos serán seleccionados mediante procesos concursados de Convocatoria Pública que se regirán por principios de libre participación; igualdad de oportunidades; justicia y transparencia, según Bases de Participación previamente definidas.
+(Corrida la numeración en sesión del 28 de noviembre del 2018, que lo traspasó del antiguo artículo 11 al 12)
+(Así reformado en sesión del 28 de noviembre del 2018)

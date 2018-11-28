@@ -1,8 +1,3 @@
-Artículo 41.- Funciones de los órganos seleccionadores:
-1. Los órganos seleccionadores serán los encargados de recomendar a la Junta Directiva del INAMU los proyectos que consideren financiables.
-2. Los órganos seleccionadores se convocarán y se reunirán para el análisis de los proyectos las veces que sea necesario durante el proceso de selección.
-3. Las personas integrantes propietarias del órgano seleccionador en caso de encontrarse en algunas de las prohibiciones de Ley, deberá notificarlo con un plazo de 24 horas previas a la sesión, para poder sustituirlo.
-4. Los órganos seleccionadores abrirán la sesión para conocer los proyectos en forma puntual con los miembros presentes, siendo el Quórum Estructural de tres personas integrantes y en caso de que no se presente esta cantidad de integrantes, se iniciará la sesión con un Quórum Funcional de dos miembros como mínimo. Con el fin de que el proceso no se detenga y las postulantes puedan conocer los resultados de la convocatoria, en los plazos establecidos.
-5. Para el proceso de selección y/o aprobación se firmará un acta donde se consignarán el nombre de las personas integrantes del órgano seleccionador, números de cédula de identidad, organización a la que representan, la hora de apertura de la sesión y de cierre. En este documento el órgano podrá hacer observaciones sobre el proyecto, así como justificar los resultados obtenidos.
-6. Los órganos seleccionadores procurarán que, además de los proyectos finalmente aprobados, se cuente con otros proyectos debidamente calificados de acuerdo con las bases de selección para que, en caso de retiro de alguno de los proyectos aprobados, puedan asignarse los recursos a ellos.
-7. El acta con los resultados de los expedientes de los proyectos recomendados por los órganos seleccionadores, será elaborada por la Unidad de FOMUJERES a la Junta Directiva del INAMU para su aprobación.
+Artículo 41- Sustituciones: En el caso de que una persona del Órgano Seleccionador de proyectos no pueda sesionar, podrá nombrarse por parte del INAMU una persona sustituta, con las mismas características de idoneidad del Titular.
+(Corrida la numeración en sesión del 28 de noviembre del 2018, que lo traspasó del antiguo artículo 40 al 41)
+(Así reformado en sesión del 28 de noviembre del 2018)

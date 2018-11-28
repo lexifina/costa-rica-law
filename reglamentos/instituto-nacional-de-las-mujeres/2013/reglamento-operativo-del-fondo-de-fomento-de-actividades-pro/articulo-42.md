@@ -1,5 +1,10 @@
-CAPÍTULO 7
-DE LA APROBACIÓN DE PROYECTO POR JUNTA DIRECTIVA DEL INAMU Y
-DESEMBOLSO DE LOS FONDOS A LAS MUJERES Y ORGANIZACIONES
-GANADORAS
-Artículo 42. - Aval de la Junta Directiva INAMU: La Junta Directiva aprobará si lo considera pertinente, la recomendación de proyectos a financiar emitida por los órganos seleccionadores, acordando el giro de los recursos para cada proyecto seleccionado.
+Artículo 42- Funciones de los Órganos Seleccionadores:
+1. Los Órganos Seleccionadores serán los encargados de recomendar a la Junta Directiva del INAMU los proyectos que consideren financiables.
+2. Los Órganos Seleccionadores se convocarán y se reunirán para el análisis de los proyectos las veces que sea necesario durante el proceso de selección.
+3. Las personas integrantes propietarias del Órgano Seleccionador en caso de encontrarse en algunas de las prohibiciones de Ley, deberá notificarlo con un plazo de 24 horas previas a la Sesión, para poder sustituirlo.
+4. Los Órganos Seleccionadores abrirán la Sesión para conocer los proyectos en forma puntual con los miembros presentes, siendo el Quórum Estructural de tres personas integrantes y en caso de que no se presente esta cantidad de integrantes, se iniciará la Sesión con un Quórum Funcional de dos miembros como mínimo. Con el fin de que el proceso no se detenga y las postulantes puedan conocer los resultados de la Convocatoria, en los plazos establecidos.
+5. Para el proceso de selección y/o aprobación se firmará un acta donde se consignarán el nombre de las personas integrantes del Órgano Seleccionador; números de cédula de identidad; Organización a la que representan; la hora de apertura de la Sesión y de cierre. En este documento el Órgano podrá hacer observaciones sobre el proyecto, así como justificar los resultados obtenidos.
+6. Los Órganos Seleccionadores procurarán que, además de los proyectos finalmente aprobados, se cuente con otros proyectos debidamente calificados de acuerdo con las Bases de Selección para que, en caso de retiro de alguno de los proyectos aprobados, puedan asignarse los recursos a ellos.
+7. El Acta con los resultados de los expedientes de los proyectos recomendados por los Órganos Seleccionadores, será elaborada por la Unidad de FOMUJERES a la Junta Directiva del INAMU para su aprobación.
+(Corrida la numeración en sesión del 28 de noviembre del 2018, que lo traspasó del antiguo artículo 41 al 42)
+(Así reformado en sesión del 28 de noviembre del 2018)

@@ -1,3 +1,3 @@
-CAPÍTULO 6
-DE LOS ÓRGANOS SELECCIONADORES Y SELECCIÓN DE PROYECTOS
-Artículo 38. — Órganos seleccionadores: La Presidencia Ejecutiva del INAMU designará los órganos seleccionadores de proyectos, de acuerdo a cada categoría del concurso y con el número de expedientes a analizar por categoría.
+Artículo 38- Seguimiento de los proyectos financiados: Como parte de sus acciones de control interno y de cara a una administración efectiva de riesgos, la Unidad Ejecutora de FOMUJERES, establecerá una serie de procedimientos para verificar en visitas in situ por parte de las Unidades Regionales, la compra de lo asignado con el fondo y el buen uso de éstos recursos, especialmente para la totalidad de los casos con inconsistencias en la liquidación de compra, pero se establecerá según la disponibilidad de recursos, visitas a los proyectos ganadores con liquidaciones correctas, todo esto bajo una estrategia estandarizada para todas las Unidades Regionales.
+(Corrida la numeración en sesión del 28 de noviembre del 2018, que lo traspasó del antiguo artículo 37 al 38)
+(Así reformado en sesión del 28 de noviembre del 2018)

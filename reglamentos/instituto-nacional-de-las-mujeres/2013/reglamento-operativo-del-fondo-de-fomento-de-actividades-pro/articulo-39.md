@@ -1,1 +1,6 @@
-Artículo 39. —Nombramiento: La Dirección General de Áreas Estratégicas propondrá a la Presidencia Ejecutiva una lista de personas integrantes para dichos órganos. Cada órgano seleccionador estará integrado por al menos tres personas que ejercerán su labor ad honorem, el que deberá estar conformado por una persona externa del sector gubernamental, una persona funcionaria del INAMU y una persona de las organizaciones no gubernamentales que trabaje en el tema de derechos humanos o del Foro de Mujeres, con idoneidad para la labor encomendada, por su conocimiento en las categorías respectivas, y en la formulación y ejecución de proyectos.
+CAPÍTULO VII
+DE LOS ÓRGANOS SELECCIONADORES
+Y SELECCIÓN DE PROYECTOS
+Artículo 39- Órganos Seleccionadores: La Presidencia Ejecutiva del INAMU designará los Órganos Seleccionadores de proyectos, de acuerdo con cada Categoría del Concurso y con el número de expedientes a analizar por Categoría.
+(Corrida la numeración en sesión del 28 de noviembre del 2018, que lo traspasó del antiguo artículo 38 al 39)
+(Así reformado en sesión del 28 de noviembre del 2018)

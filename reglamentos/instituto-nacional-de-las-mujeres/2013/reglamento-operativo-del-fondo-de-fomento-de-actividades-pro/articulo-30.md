@@ -1,6 +1,3 @@
-Artículo 30.- Del Equipo Desarrollador de Proyectos: Serán las personas funcionarias de la institución, que coordinarán de manera general aspectos administrativos y técnicos para la ejecución eficaz del Fondo. La labor de este Equipo es una de carácter gerencial para la toma de decisiones y para la articulación intrainstitucional. Para cada concurso la Presidencia Ejecutiva del INAMU, designará por oficio y por el tiempo que tenga vigencia la resolución del concurso, personas representantes de los siguientes áreas o unidades:
-a. Área de Desarrollo Regional quien presidirá este equipo gerencial,
-b. Área de Políticas Públicas para la Equidad de Género, d. Dirección Administrativa,
-c. Presidencia Ejecutiva,
-d. Unidad Ejecutora del FOMUJERES y
-e. Asesoría Legal. Este Equipo se reunirá las veces que considere necesarios desde la apertura del concurso y, hasta el desembolso de los fondos.
+Artículo 30- Unidades Regionales del INAMU: Serán las unidades a cargo de la prestación del servicio del FOMUJERES, las cuales contarán con el personal idóneo para realizar este proceso. En esta gestión su labor primordial es la atención, guía y seguimiento a los proyectos presentados por las mujeres, primeramente, las interesadas en postular sus proyectos y luego a las ganadoras del concurso de FOMUJERES. Coordinarán con la Unidad Ejecutora la efectiva operación del FOMUJERES, así como ejecutar las siguientes fases del Concurso: Apertura y cierre; recepción de Ofertas; firma de Contratos, recepción de las liquidaciones de compra, recepción de respuestas ante notificaciones de cobros, el seguimiento a ganadoras y la recolección del informe final de cada una de las ganadoras.
+(Corrida la numeración en sesión del 28 de noviembre del 2018, que lo traspasó del antiguo artículo 29 al 30)
+(Así reformado en sesión del 28 de noviembre del 2018)

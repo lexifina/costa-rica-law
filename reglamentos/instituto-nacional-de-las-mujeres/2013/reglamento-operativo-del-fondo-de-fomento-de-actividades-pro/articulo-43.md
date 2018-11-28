@@ -1,1 +1,8 @@
-Artículo 43. – Elaboración de contratos: La Junta Directiva referirá a la Unidad Ejecutora el listado final de los proyectos aprobados, para que en coordinación con la Asesoría Legal se confeccionen los contratos, y las Unidades Regionales procedan a recibir las firmas de las mujeres y organizaciones de mujeres ganadoras. En el caso de que alguna mujer u organización de mujeres beneficiada no se presente a la firma del contrato o manifieste no contar con interés para ello, la Junta Directiva asignará estos recursos, si existiese un nuevo proyecto ya avalado por el órgano seleccionador, y se procederá a elaborar el contrato.
+CAPÍTULO VIII
+DE LA APROBACIÓN DE PROYECTO POR JUNTA DIRECTIVA DEL INAMU
+Y DESEMBOLSO DE LOS FONDOS A LAS ORGANIZACIONES DE MUJERES GANADORAS
+Y MUJER GANADORA POSTULADA EN FORMA INDIVIDUAL DE ACUERDO A
+LOS CRITERIOS DEFINIDOS EN CADA CONVOCATORIA
+Artículo 43- Aval de la Junta Directiva INAMU: La Junta Directiva aprobará si lo considera pertinente, la recomendación de proyectos a financiar emitida por los Órganos Seleccionadores, acordando el giro de los recursos para cada proyecto seleccionado.
+(Corrida la numeración en sesión del 28 de noviembre del 2018, que lo traspasó del antiguo artículo 42 al 43)
+(Así reformado en sesión del 28 de noviembre del 2018)

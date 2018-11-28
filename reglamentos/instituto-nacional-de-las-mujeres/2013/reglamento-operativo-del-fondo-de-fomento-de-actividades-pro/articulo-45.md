@@ -1,1 +1,3 @@
-Artículo 45. – Comunicaciones a las mujeres u organizaciones de mujeres seleccionadas: Las mujeres ganadoras de los proyectos aprobados serán contactadas vía telefónica o por correo electrónico, para que en la fecha que se les indique, se presenten a cada unidad regional del INAMU o en donde se defina a firmar el contrato.
+Artículo 45- Divulgación del resultado de la Convocatoria: Los proyectos seleccionados se divulgarán a través de medios de comunicación virtual del INAMU. Asimismo, los proyectos que no fueron seleccionados se publicarán en los mismos medios, donde se indicará en forma sucinta la razón para la no selección.
+(Corrida la numeración en sesión del 28 de noviembre del 2018, que lo traspasó del antiguo artículo 44 al 45)
+(Así reformado en sesión del 28 de noviembre del 2018)
