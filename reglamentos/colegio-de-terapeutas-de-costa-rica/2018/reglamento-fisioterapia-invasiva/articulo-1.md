@@ -1,0 +1,11 @@
+COLEGIO DE TERAPEUTAS DE COSTA RICA
+REGLAMENTO FISIOTERAPIA INVASIVA
+Considerando:
+Que las acciones profesionales innovadoras en el área de la salud, que buscan la eficacia y la eficiencia de los tratamientos fisioterapéuticos, se han nutrido de diversos avances tecnológicos; siendo uno de ellos la Fisioterapia invasiva.
+Que la Fisioterapia invasiva ha promovido una renovación de los conceptos tradicionales, dando origen a una nueva área que logra mejores resultados en la intervención de lesiones de tejidos blandos que se presentan tanto en el campo laboral como en el deportivo.
+Que dichas técnicas, son producto de combinación del estímulo mecánico de diferentes tipos de agujas con la aplicación de algún tipo de corriente eléctrica que pase a través de uno o varios electrodos de aguja.
+Que de acuerdo con el artículo 2 de la Ley N° 8989 de creación del Colegio de Terapeutas de Costa Rica, son objetivos de este ente, la vigilancia del correcto ejercicio profesional, la verificación de la adecuada preparación y desarrollo profesional de sus miembros y la contribución con el avance científico de las carreras que alberga y de conformidad con el artículo 67 del Reglamento a la Ley N° 8989, corresponde a la Junta Directiva dictar instructivos, directrices, circulares y demás clases de actos administrativos necesarios para una adecuada observancia de la Ley y de dicho Reglamento y;
+Que el Perfil Profesional del Terapeuta Físico, publicado en el Alcance N° 131 al Diario Oficial La Gaceta del viernes 9 de junio del 2017, se establece que los profesionales que lleven a cabo intervenciones en las que se utilizan estas técnicas, deben acogerse a la normativa específica que emita el Colegio de Terapeutas de Costa Rica al respecto. Por las consideraciones antes expuestas, se hace necesario y oportuno dictar el presente Reglamento para uso de las técnicas de Fisioterapia lnvasiva.
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1º—Propósito. El propósito principal del presente reglamento, es regular la aplicación de la Fisioterapia Invasiva, de conformidad con lo dispuesto en: La Ley de Creación del Colegio de Terapeutas de Costa Rica, el Reglamento a la Ley N° 8989, así como del perfil profesional del Fisioterapeuta.

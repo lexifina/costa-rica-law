@@ -1,0 +1,7 @@
+Artículo 15.—Trámite. Una vez presentada la solicitud con todos los requisitos, se atenderá al siguiente procedimiento:
+a. El profesional entregará la documentación en la Plataforma de Servicios del Colegio de Terapeutas, quienes verificarán que la misma se encuentre completa.
+b. Posteriormente, la misma será remitida a la Dirección Académica, quien analizará la validez del o los certificados y su correspondencia con el presente reglamento.
+Asimismo, deberá emitir una resolución al respecto en un plazo no mayor a quince (15) días hábiles.
+c. Cuando la solicitud sea aceptada, el Colegio de Terapeutas emitirá un diploma en el cual hará constar que el profesional en Terapia Física o Fisioterapia se encuentra en capacidad de aplicar la técnica de Fisioterapia invasiva a que se refiera la solicitud.
+d. En caso de que el profesional, de conformidad con el criterio de la Dirección Académica, deba realizar alguna aclaración o adición al contenido de su solicitud, la misma le será notificada mediante correo electrónico y el Terapeuta Físico o Fisioterapeuta, tendrá un plazo de quince (15) días hábiles para manifestar lo que corresponda. Transcurrido dicho plazo sin que el profesional haya aclarado lo solicitado, la solicitud se tendrá por abandonada y el profesional deberá iniciar nuevamente la solicitud de certificación.
+e. En caso de disconformidad con el resultado de la solicitud por parte del profesional en Terapia Físico o Fisioterapia, el mismo podrá ser elevado a la Junta Directiva para su decisión final.
