@@ -1,0 +1,1 @@
+Artículo 22.—Confidencialidad de las denuncias. Las denuncias recibidas en la Procuraduría de la Ética se tramitan, sin excepción, con carácter de confidencialidad, en cuanto a la identidad de la persona que denuncia de buena fe y la denunciada.

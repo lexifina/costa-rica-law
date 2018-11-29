@@ -1,0 +1,1 @@
+Artículo 4º—Competencias sobre informes de rendición de cuentas. Cuando quien ejerce la procuraduría analiza el informe de rendición de cuentas presentado por las autoridades, puede comunicar las observaciones o las recomendaciones que considere pertinente a la instancia correspondiente.

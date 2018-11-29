@@ -1,0 +1,1 @@
+Artículo 18.—Procedimiento para ejecutar la cesación del nombramiento. Las causales de cesación del nombramiento indicadas en el artículo anterior son de mera constatación. Una vez documentado el hecho generador, se produce de inmediato el cese del nombramiento, por lo que no se requiere tramitar ningún tipo de procedimiento para comprobarlas.

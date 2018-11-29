@@ -1,0 +1,1 @@
+Artículo 14.—Trámites administrativos. El Consejo Universitario o su presidencia, según corresponda, de conformidad con la normativa vigente, autorizan las vacaciones y los permisos, entre otros trámites administrativos, de quien ejerce la procuraduría.

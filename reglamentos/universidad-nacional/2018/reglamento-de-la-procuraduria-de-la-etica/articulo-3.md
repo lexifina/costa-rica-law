@@ -1,0 +1,26 @@
+Artículo 3º—Competencias. Las competencias de la Procuraduría de la Ética son las siguientes:
+a. Diseñar e implementar la estrategia de comunicación, divulgación y concientización del compromiso ético de la Universidad Nacional, según los objetivos general y específicos de dicha estrategia, aprobados por el Consejo Universitario.
+b. Diseñar e implementar una propuesta de capacitación permanente para la comunidad universitaria, en relación con el compromiso ético de la Universidad Nacional.
+c. Realizar acciones de promoción, educación y divulgación de los valores, los fines y los principios institucionales, contemplados en el Estatuto Orgánico, para el fortalecimiento del compromiso ético, la transparencia y la cultura de rendición de cuentas en la Universidad Nacional.
+d. Promocionar el cumplimiento de las políticas de la ética, los valores y los principios asociados y los contemplados en el Estatuto Orgánico, con el fin de propiciar una cultura ética institucional que asegure los medios necesarios para fomentarla, como parte del accionar institucional.
+e. Exhortar y apoyar al Consejo Universitario a pronunciarse sobre temas institucionales y nacionales relacionados con la ética.
+f. Coordinar con el Área de Planificación (Apeuna) la elaboración de los indicadores de seguimiento y evaluación de la política y el compromiso ético de la Universidad Nacional y del cumplimiento de los fines establecidos en el Estatuto Orgánico.
+g. Supervisar y tutelar el cumplimiento de los principios, los valores y los fines de la Universidad Nacional y dar seguimiento a la implementación de las políticas de la ética, sus principios y valores, según las actualizaciones que se generen a partir del seguimiento del informe del estado de la ética en la Universidad Nacional.
+h. Realizar acciones que velen por la conducta ética de la comunidad universitaria en el quehacer institucional.
+i. Denunciar de oficio ante la instancia competente por la eventual falta de acción de las autoridades o las instancias responsables del ejercicio de la jurisdicción disciplinaria, cuando se evidencien irregularidades (falta de celeridad, transparencia, integridad, entre otras), en atención a los casos disciplinarios que riñen con la ética institucional.
+j. Evaluar la eficacia de los mecanismos implementados por la administración universitaria para prevenir, detectar y erradicar actos de corrupción y, en general, actos que lesionen la ética institucional, sin perjuicio de las competencias de la Contraloría Universitaria.
+k. Proponer al Consejo Universitario acciones para evaluar, actualizar y renovar el programa ético, mediante estrategias que permitan fortalecer el programa el ambiente y la conducta ética asociada con la autoevaluación institucional.
+l. Tramitar, según corresponda y de manera razonada, las denuncias recibidas referentes a su ámbito de competencia, sobre las conductas de la comunidad universitaria y la institución, en conflicto con las políticas de la ética, los valores y los principios asociados y los contemplados en el Estatuto Orgánico.
+m. Analizar los informes de rendición de cuentas de las autoridades de la Universidad Nacional y recomendar sobre su ámbito de competencia.
+n. Informar a la comunidad universitaria acerca del estado de la ética de la Universidad Nacional, mediante un informe anual.
+o. Crear un sistema de información sobre el estado de la ética de la Universidad Nacional, disponible a la comunidad universitaria y nacional, para la mejora en la transparencia institucional y la rendición de cuentas.
+p. Tener acceso, en forma irrestricta, a los archivos y la documentación de todas las instancias institucionales, esto incluye las fundaciones y las empresas auxiliares creadas por la Universidad Nacional, en el campo de su competencia y con las limitaciones establecidas por ley a información de carácter confidencial.
+q. Participar, como invitado permanente, en las asambleas de rendición de cuentas y de fin de gestión de las autoridades universitarias.
+r. Requerir los informes necesarios para su gestión a las distintas instancias de la administración activa.
+s. Proceder de oficio cuando en el ejercicio de sus competencias detecte alguna violación a la ética dentro de la institución, sin necesidad de que medie una denuncia previa.
+t. Remitir los casos recibidos que no son de su competencia a la instancia correspondiente.
+u. Solicitar los informes sobre la gestión realizada a las instancias que se les remitieron casos para ser atendidos, así como recibir una comunicación oficial de la decisión final.
+v. Elaborar y aprobar los manuales de organización, funciones, procedimientos, instructivos e instrucciones necesarios para el ejercicio de sus competencias.
+w. Actualizar y renovar, cuando se requiera, el programa ético para su respectiva aprobación por parte del Consejo Universitario.
+x. Realizar otras acciones necesarias que sean propias de su ámbito de competencia, para garantizar el desarrollo de una cultura institucional basada en la ética.
+y. Realizar otras acciones necesarias que sean propias de su ámbito de competencia, para garantizar el desarrollo de una cultura institucional, basada en la ética, la transparencia y la rendición de cuentas, las cuales podrán estar incorporadas en otros cuerpos normativos.

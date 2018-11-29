@@ -1,0 +1,5 @@
+Artículo 11.—Dedicación y remuneración de quien ejerce la Procuraduría de la Ética. Quien ejerza la procuraduría tendrá una jornada de tiempo completo para el ejercicio de sus funciones y será remunerada de la siguiente manera:
+a. En caso de nombrar a una persona del sector académico de la Universidad Nacional, se le reconocerá la categoría salarial ordinaria del cargo que ejerce en el momento de la elección, más un 25% de recargo sobre el salario base de dicha categoría. El recargo se aplica a la base y crea una nueva base salarial.
+Y se le reconocerá el pago de dedicación exclusiva administrativa, siempre y cuando no cuente con dedicación exclusiva académica.
+b. En caso de nombrar a una persona del sector administrativo de la Universidad Nacional, se le reconocerá la categoría que asigne el Programa Desarrollo de Recursos Humanos y se reconocerá el pago de dedicación exclusiva administrativa.
+c. En caso de nombrar a una persona externa a la universidad, se le reconocerá la categoría que asigne el Programa Desarrollo de Recursos Humanos.

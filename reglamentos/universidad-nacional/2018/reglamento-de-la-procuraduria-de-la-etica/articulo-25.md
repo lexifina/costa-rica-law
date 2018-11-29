@@ -1,0 +1,1 @@
+Artículo 25.—Carácter público de los expedientes. Los expedientes de los casos tramitados por la Procuraduría de la Ética son confidenciales en tanto no se emita el informe final y de carácter público cuando haya sido emitido y esté en firme.

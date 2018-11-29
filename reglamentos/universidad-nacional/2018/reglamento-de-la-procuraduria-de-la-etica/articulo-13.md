@@ -1,0 +1,2 @@
+Artículo 13.—Ausencias de quien ejerce la Procuraduría de la Ética. En caso de ausencia temporal, por más de treinta días hábiles, el Consejo Universitario nombrará, en el marco de un procedimiento ad hoc, a quien reúna los requisitos indicados en el artículo 8 de este reglamento para ejercer la procuraduría de la ética.
+En el caso de cese de funciones, el Consejo Universitario iniciará el proceso de elección ordinario, de conformidad con lo establecido en este reglamento.

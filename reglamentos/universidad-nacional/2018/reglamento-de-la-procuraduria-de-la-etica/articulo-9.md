@@ -1,0 +1,3 @@
+Artículo 9º—Nombramiento de quien ejerce la procuraduría de la ética. El nombramiento de quien ejerce la procuraduría se regirá por el procedimiento que el Consejo Universitario apruebe.
+El proceso de nombramiento se realizará, en primera instancia, bajo la figura de convocatoria interna. De declararse desierta la convocatoria interna, se procederá a realizar un concurso público externo.
+Para la selección de quien ejercerá la procuraduría, se contará con una nómina de tres oferentes, la cual será elevada al Plenario del Consejo Universitario por la Comisión de Análisis de Temas Institucionales, mediante dictamen.

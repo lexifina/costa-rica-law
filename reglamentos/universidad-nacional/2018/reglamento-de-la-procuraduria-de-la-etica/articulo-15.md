@@ -1,0 +1,3 @@
+Artículo 15.—Régimen disciplinario de quien ejerce la Procuraduría de la Ética. Quien ejerza la procuraduría se someterá al régimen disciplinario establecido en el reglamento respectivo, en estricto apego al debido proceso. Además, podrá incurrir en causales de destitución o cesación del cargo.
+La jurisdicción disciplinaria por faltas comunes cometidas durante este período y aquellas que ameriten la destitución del cargo, será ejercida por el Consejo Universitario. La etapa de instrucción del procedimiento disciplinario será tramitada por el órgano instructor del Programa Desarrollo de Recursos Humanos.
+Las faltas por hostigamiento sexual cometidas durante el ejercicio del cargo, serán atendidas por la Comisión de Resolución de Denuncias sobre Hostigamiento Sexual.
