@@ -1,0 +1,1 @@
+Artículo 4º—Curriculum de los facilitadores. Adjunto al programa académico debe presentarse un resumen ejecutivo de los atestados de los facilitadores considerando: grado académico, publicaciones, lugar de trabajo y elementos que permitan comprender la trayectoria profesional-académica del mismo, así mismo las copias de los títulos o certificados que respaldan dichos atestados.

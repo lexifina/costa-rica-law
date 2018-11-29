@@ -1,0 +1,1 @@
+Artículo 9º—Aranceles. Los aranceles a cancelar por las diferentes actividades de capacitación serán determinados por la Junta Directiva y revisados periódicamente. Corresponde al Comité Académico informar al solicitante del aval, el monto correspondiente a cada actividad de capacitación.

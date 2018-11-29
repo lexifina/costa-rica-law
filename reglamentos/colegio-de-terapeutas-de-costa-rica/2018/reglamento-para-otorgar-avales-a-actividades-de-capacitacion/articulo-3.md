@@ -1,0 +1,21 @@
+CAPÍTULO II
+Del programa académico de la actividad
+de capacitación
+Artículo 3º—Desarrollo de contenidos de la actividad de capacitación. El desarrollo de contenidos de la actividad que capacitación que debe ser presentado con la solicitud, consiste en lo siguiente:
+a) Fundamentación del programa académico. El programa académico debe justificar la importancia de los cursos y sus necesidades a nivel nacional e internacional, basados en la realidad del contexto en que se va a aplicar. El programa debe fundamentar su diseño en las necesidades académicas derivadas de:
+i. Las necesidades formativas exigidas por la misión y visión del Colegio de Terapeutas de Costa Rica (consistencia).
+ii. Las demandas que surgen del desarrollo de las Terapias en Costa Rica y su perspectiva de futuro en el marco de formación profesional (coherencia).
+iii. Las necesidades que surgen en torno a las experiencias en los procesos de educación a nivel de las universidades, así como de los programas de educación continua y actividades de capacitación en Terapias que resulten más avanzadas (coherencia).
+b) Objetivos del programa académico. El programa académico debe explicitar al menos un objetivo general y dos específicos, los que deberán ser consistentes con el propósito del curso y su fundamentación.
+c) Contenidos. El programa académico debe explicitar los contenidos que serán tratados durante su desarrollo. Estos deben estar en relación directa con los objetivos de la actividad de capacitación. Asimismo, deben estar mediados con actividades que permitan la asimilación de conocimiento teórico y la adquisión de destrezas y habilidades prácticas de dicho contenido.
+d) Número de horas teóricas y prácticas. El programa académico deberá indicar si se trata de una actividad de:
+i. Participación: Son aquellas actividades que constan de doce (12) horas naturales de capacitación efectiva en adelante y en las que, para su aprobación, se consideran únicamente la asistencia y la participación, como criterios para el procedimiento de enseñanza-aprendizaje.
+Aprovechamiento: Son aquellas actividades cuyos programas o estructuras curriculares consten de treinta (30) horas naturales de capacitación efectiva en adelante, en las que se apliquen sistemas o criterios de evaluación confiables para determinar su aprobación por parte de los participantes. Se pueden clasificar en:
+a. Cursos de aprovechamiento cortos: Incluye los cursos de aprovechamiento con un rango entre 30 y 60 horas.
+b. Cursos aprovechamiento largos: Incluye aquellos cursos con 60 horas o más que no se incluye la modalidad de pregrado o diplomado.
+ii. Asistencia: Las actividades de capacitación que no califiquen como aprovechamiento o participación, serán consideradas como de asistencia. No requiere necesariamente la entrega de un certificado.
+e) Modalidad del programa académico. Se debe Indicar si el programa académico se realizará en una modalidad organizativa de enseñanza que Incluye: clases teóricas, clases prácticas, clases teórico-prácticas, seminarios, talleres, e learning, semi presencial, entre otros.
+f) Estrategias didácticas o métodos de enseñanza: Se debe Indicar además las estrategias didácticas o métodos de enseñanza: charlas magistrales, estudio de casos, resolución de problemas, aprendizaje basado en problemas, aprendizaje basado en proyectos, entre otros.
+g) Evaluación de los aprendizajes. El profesional que asiste a la actividad de capacitación debe ser evaluado, cuando así corresponda de acuerdo al Programa Académico. En este caso se deben especificar los mecanismos de evaluación, sea: Prueba escrita, Evaluación Clínica Objetiva Estructurada (ECOE), entre otros. Estos mecanismos de evaluación deben estar en relación directa a los objetivos del programa académico y metodología de la enseñanza. Los estudiantes deben ser calificados con una nota en la escala de 1 a 100 y se aprobará con la nota mínima de 70.
+h) Evaluación del programa académico. El proyecto debe considerar la evaluación de la calidad de los docentes y del programa académico.
+Tanto la modalidad organizativa de la enseñanza como el método de enseñanza deben estar en directa relación tanto con los objetivos del programa académico como con la metodología de evaluación.

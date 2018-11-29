@@ -1,0 +1,2 @@
+Artículo 14.—Anomalías derivadas de la fiscalización. Cuando de la fiscalización de la actividad de capacitación y su correspondiente informe, se derive la existencia de alguna anomalía o incumplimiento de los compromisos adquiridos, la Dirección Académica elevará el caso a la Junta Directiva, quien determinará las acciones y sanciones pertinentes.
+La resolución tomada por la Junta Directiva, será comunicada a la Dirección Académica quien a su vez informará al Comité Académico.

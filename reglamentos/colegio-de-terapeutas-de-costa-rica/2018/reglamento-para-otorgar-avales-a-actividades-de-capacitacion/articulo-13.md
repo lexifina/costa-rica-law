@@ -1,0 +1,4 @@
+Artículo 13.—Fiscalizador. El Comité Académico será el encargado de nombrar a la persona que fungirá como fiscalizador de cada actividad académica, así como de comprobar el conocimiento y experiencia del mismo en el área a que se refiera la actividad de capacitación.
+Dicha persona, recibirá como pago, el monto determinado por la Junta Directiva de conformidad con el tipo de actividad de capacitación de que se trate. Dicho pago se hará contra factura timbrada emitida por el profesional fiscalizador.
+En tanto que el fiscalizador participa de la actividad de capacitación en condición de tal, no podrá recibir el certificado que se otorgue por el mismo.
+No podrán participar como fiscalizadores en actividades en capacitación los miembros de la Dirección Académica, Comité Académico ni Junta Directiva.
