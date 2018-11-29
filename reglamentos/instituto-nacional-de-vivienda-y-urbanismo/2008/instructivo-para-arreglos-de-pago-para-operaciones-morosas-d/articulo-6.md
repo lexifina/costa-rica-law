@@ -1,1 +1,0 @@
-Artículo 6°—En aquellos casos superiores a 025.000.000,00 (veinticinco millones de colones), la aprobación del arreglo de pago corresponderá a la Gerencia General del Instituto, a partir del informe que le haga llegar al respecto el Área de Ahorro y Préstamo.

@@ -1,1 +1,0 @@
-Artículo 5°—Es atribución del Jefe del Área de Ahorro y Préstamo la autorización de arreglos de pago hasta por un monto de 025.000.000,00 de colones (veinticinco millones de colones). Para la aprobación de dichos arreglos deberá mediar un informe previo del encargado(a) de la Unidad de Cobro Judicial y Administrativo, donde se recomiende la aprobación del arreglo.

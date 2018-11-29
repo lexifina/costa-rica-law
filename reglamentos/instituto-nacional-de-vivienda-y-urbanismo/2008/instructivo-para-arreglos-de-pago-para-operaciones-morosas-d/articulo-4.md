@@ -1,4 +1,0 @@
-Artículo 4°—La Unidad de Cobro Judicial y Administrativo, será la encargada de tramitar los diversos arreglos de pago que se convengan al Sistema, al amparo de este instructivo. Para tal efecto las funciones son:
-a) Conocer y pronunciarse en relación con los arreglos de pagos administrativos y/o judiciales, solicitados por los interesados y analizados conforme los parámetros establecidos en el presente Instructivo, para contar con la autorización previa de la Jefatura del SAP, que los autorizará cuando procedan.
-b) Darle seguimiento a los arreglos de pago y velar porque los compromisos contraídos por el deudor o su representante se cumplan a cabalidad.
-c) Informar de manera inmediata el incumplimiento de cualquier arreglo por parte del deudor, o su representante, a efecto de hacer exigible la obligación principal en la vía judicial, como lo reza la escritura principal.

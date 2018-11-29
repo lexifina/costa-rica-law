@@ -1,1 +1,0 @@
-Artículo 11.—El encargado(a) de la Unidad de Cobro Judicial, llevará un control estricto de todas aquellas operaciones que se encuentren en arreglo de pago; cuando haya incumplimientos deberá remitir el expediente a cobro judicial, a efecto de hacer exigible la obligación principal.

@@ -1,3 +1,0 @@
-Artículo 9°—El Sistema de Ahorro y Préstamo, podrá recibir sumas parciales para cubrir obligaciones de sus deudores, de la siguiente forma:
-a) Si la operación se encuentra en cobro administrativo, se le aplicará el dinero depositado en el siguiente orden: a los intereses moratorios, a los gastos administrativos y el remanente a las cuotas atrasadas.
-b) Si la operación se encuentra en cobro judicial, se recibirá el depósito y se aplicará en el siguiente orden: a honorarios, gastos legales, administrativos y el monto restante a las cuotas atrasadas. En dicho evento se podrá suspender el trámite judicial por el plazo máximo de tres meses plazo en que se deberá realizar un arreglo de pago o bien ponerse al día la operación.

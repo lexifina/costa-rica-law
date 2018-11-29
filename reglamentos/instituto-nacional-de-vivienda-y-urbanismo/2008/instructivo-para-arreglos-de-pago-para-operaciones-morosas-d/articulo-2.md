@@ -1,1 +1,0 @@
-Artículo 2°—Se consideran deudores morosos aquellas personas cuyas operaciones presenten atrasos de una o más cuotas, conforme las condiciones estipuladas en escritura pública de constitución del crédito y que hace exigible la obligación por incumplimiento de las mismas, con las renuncias y estipulaciones ahí convenidas.
