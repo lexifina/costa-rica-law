@@ -1,2 +1,2 @@
-Artículo 21. Vigencia. Este reglamento entrará en vigencia a partir de su publicación en el Diario Oficial La Gaceta.
-Dado en la Presidencia de la República a los doce días del mes de enero del dos mil quince.
+Artículo 21 º- Índice de riesgo: Para efectos de interpretación de los resultados de los parámetros físicos y químicos y microbiológicos contemplados en el presente reglamento se recomienda revisar el documento denominado, Índice de Riesgo para Agua de Consumo Humano del Laboratorio Nacional de Aguas, elaborado por el Instituto Costarricense de Acueductos y Alcantarillados, el cual puede ser consultado en la página web del Ministerio de Salud (www.ministeriodesalud.go.cr).
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 41499 del 29 de noviembre del 2018)

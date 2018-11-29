@@ -1,10 +1,12 @@
 ANEXO 2.
-Cuadro A. niveles de Control y Parámetros
+Cuadro A. Niveles de Control y Parámetro
 Parámetros a incluir | Control Operativo (CO) | Nivel Primero (N1) | Nivel Segundo (N2) | Nivel Tercero (N3)
-A. Fisicoquímicos | Turbiedad Olor (a) Sabor (a) Cloro residual libre | Color aparente. Turbiedad Olor (a) Sabor (A) Temperatura pH Conductividad Cloro residual libre Cloro residual combinado | Aluminio Calcio Cloruro Cobre Dureza Total Fluoruro Hierro Magnesio Manganeso Nitrato plomo Potasio Sodio (Na+) Sulfato (SO4-2) Zinc (Zn) | Amonio Antimonio Arsénico Cadmio Cianuro Cromo Mercurio Níquel Nitrito  Selenio
-Microbiológicos | | | |
-(a) Valoración cualitativa.
+A. Fisicoquímicos | · Turbiedad · Olor (a) · Cloro residual libre | · Color aparente. · Turbiedad · Olor (a) · Temperatura · pH · Conductividad | · Aluminio · Calcio · Cloruro · Cobre · Dureza Total · Fluoruro · Hierro | · Amonio · Antimonio · Arsénico · Cadmio · Cromo · Mercurio · Níquel
+| | · Cloro residual libre · Cloro residual combinado | · Magnesio · Manganeso · · Potasio · Sodio (Na+) · Sulfato (SO42-) · Zinc (Zn) | · Nitrato · Nitrito · Plomo Selenio
+B. Microbiológicos | | · Coliforme Fecal · E. coli | |
+(a) ) Valoración cualitativa.
 (b) Excepto para agua en depósitos cerrados.
+(Así reformado el cuadro anterior por el artículo 1° del decreto ejecutivo N° 41499 del 29 de noviembre del 2018)
 CUADRO B.1 Frecuencia mínima de muestreo y número de muestras a recolectar en las FUENTES DE ABASTECIMIENTO Y RED DE DISTRIBUCION para el CONTROL OPERATIVO (CO)
 Población abastecida (habitantes) | FUENTES DE ABASTECIMIENTO | RED DISTRIBUCION
 Frecuencia | N° muestras | Frecuencia | N° muestras

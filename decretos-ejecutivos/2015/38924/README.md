@@ -16,3 +16,4 @@ Reglamento para la calidad del Agua Potable
 | 1 | 2015-09-01 | la propia norma |
 | 2 | 2015-09-01 | Decreto Ejecutivo 39144 (2015-07-29) |
 | 3 | 2017-11-08 | SINALEVI (sin norma nombrada) |
+| 4 | 2018-11-29 | Decreto Ejecutivo 41499 (2018-11-29) |
