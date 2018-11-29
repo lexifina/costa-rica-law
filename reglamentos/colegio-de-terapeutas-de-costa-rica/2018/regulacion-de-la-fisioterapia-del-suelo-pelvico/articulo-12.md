@@ -1,0 +1,3 @@
+CAPÍTULO IX.
+Disposiciones finales
+Artículo 12.—A partir de la publicación del presente Reglamento, se otorgará un plazo de seis (6) meses calendario a los profesionales en Terapia Física o Fisioterapia que ya cuenten con capacitaciones previas en Fisioterapia del Suelo Pélvico realizadas en el extranjero, para que acudan al Colegio y gestionen la emisión de la certificación de conformidad con las disposiciones de este reglamento, exceptuando la necesidad de apostillado de los certificados. Trascurrido ese plazo, no se recibirán certificados de capacitación sin el apostillado otorgado en el país de origen, aunque sean de fecha previa a la entrada en vigencia de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 13.—El Colegio de Terapeutas de Costa Rica creará un plan de contención que tenga como fin la nivelación de los profesionales en Terapia Física o Fisioterapia que deseen optar por la certificación en Fisioterapia del Suelo Pélvico. Para lo anterior, el Colegio de Terapeutas dispondrá de un año calendario a partir de la entrada en vigencia de esta normativa.
