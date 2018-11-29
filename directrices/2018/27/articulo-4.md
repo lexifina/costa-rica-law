@@ -1,0 +1,1 @@
+Artículo 4º—En la Semana del Bienestar, establecida en el Decreto Ejecutivo N° 41345 del 16 de octubre de 2018 “Desarrollo de Intervenciones Intersectoriales Comunitarias y Laborales de Promoción del Bienestar” se otorgará un reconocimiento a las instituciones con las mejores prácticas y logros en la implementación de planes sobre hábitos de vida saludables.

@@ -1,0 +1,1 @@
+Artículo 2º—Las estructuras preventivas en Salud Ocupacional de las instituciones públicas elaborarán e implementarán programas de promoción de la salud de las personas trabajadoras, facilitando entornos que propicien hábitos saludables en la alimentación, salud física y mental, y recreación laboral y actividad física.

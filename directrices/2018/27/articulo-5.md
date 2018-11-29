@@ -1,0 +1,1 @@
+Artículo 5º—Créase un Comité Interinstitucional integrado por representantes designados por la Presidencia de la República, el Ministerio de Salud y el Ministerio de Trabajo y Seguridad Social, como instancia responsable de dar acompañamiento y seguimiento a la implementación de los planes institucionales para el cumplimiento de esta Directriz.
