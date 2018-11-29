@@ -1,2 +1,0 @@
-Artículo 12.—En el término de un año, no podrá concederse más de un arreglo de pago. Si existe incumplimiento de arreglo, en el plazo establecido, este solo se podrá mantener si se cubren las cuotas dejadas de pagar en el arreglo, poniendo éste al día. Si persiste el incumplimiento, el deudor perderá el beneficio y se pasará la deuda a cobro judicial.
-En el caso de las readecuaciones solo se tramitara por una única vez.
