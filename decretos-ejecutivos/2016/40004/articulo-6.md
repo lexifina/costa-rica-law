@@ -1,1 +1,0 @@
-Artículo.6- Cuando existan casos de duda en el proceso de distribución hepática cadavérica, se conformará un Comité Técnico Asesor. Cada establecimiento de salud autorizado, designará un representante de su Equipo de Trasplante Hepático, el cual será ratificado por el Jerarca del Ministerio de Salud.

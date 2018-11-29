@@ -1,1 +1,0 @@
-Artículo.18- En caso de que se tenga un paciente en la lista nacional de receptores de trasplante hepático y que este necesite a la vez un trasplante renal, se le otorgará riñón e hígado de mismo donante, para ello se deberá asignar estos órganos al mismo receptor de manera conjunta, basado en el criterio hepático, una vez que exista un caso.

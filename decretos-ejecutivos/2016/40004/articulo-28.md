@@ -1,3 +1,0 @@
-Artículo.28- Variable de tiempo en lista nacional de receptores. Se considerará cómo válida para el cálculo del tiempo en la lista nacional de receptores del paciente, la fecha de ingreso cuantificada en días y horas.
-En caso de nuevo ingreso a la lista nacional de receptores por retrasplante, se considerará la nueva fecha de ingreso a la lista; con excepción de los pacientes donde la sobrevida del injerto haya sido menor o igual a seis (6) meses, quienes conservarán la antigüedad previa.
-El puntaje otorgado de acuerdo al tiempo en la lista nacional de receptores será de un (1) punto cada seis (6) meses.

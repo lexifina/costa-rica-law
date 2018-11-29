@@ -1,2 +1,0 @@
-Artículo.9- Distribución. Una vez informado el equipo de trasplante del establecimiento autorizado sobre la asignación de un injerto hepático, este tendrá un lapso máximo de dos (2) horas para informar a la Secretaria Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos la aceptación o no del órgano asignado.
-En caso de no aceptación del órgano, la Secretaría Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos procederá a asignar el órgano al siguiente receptor establecido en la lista nacional.

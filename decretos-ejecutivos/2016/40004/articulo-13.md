@@ -1,1 +1,0 @@
-Artículo.13- Cuando se trate de un órgano proveniente de un donante menor de dieciocho (18) años, la distribución se realizará en función de los receptores con mayor puntaje PELD, en primera instancia, y sólo de no existir pacientes en esta clase, continuará en función del mayor puntaje MELD Na+.
