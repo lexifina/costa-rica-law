@@ -1,0 +1,1 @@
+Artículo 18.—Todos los formularios que contemple este Reglamento y hayan sido diseñados en el seno de la Comisión de Asuntos Sociales deberán ser aprobados por el Concejo Municipal mediante acuerdo para su oficialización.
