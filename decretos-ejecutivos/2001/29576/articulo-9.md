@@ -1,1 +1,0 @@
-Artículo 9º—La negociación abarcará todos los aspectos y extremos del proyecto que se haya formulado a la administración, debiendo levantarse un acta de cada sesión de trabajo, la cual firmarán los representantes de ambas partes.

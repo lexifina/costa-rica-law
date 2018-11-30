@@ -1,1 +1,0 @@
-Artículo 18.—Este Reglamento deroga y deja sin ningún efecto las directrices del Acuerdo de Consejo de Gobierno número cuatro del 22 de Octubre de 1986, lo mismo que el Reglamento de Negociación Colectiva de los Servidores Públicos, aprobado por el Consejo de Gobierno el 9 de Octubre de 1992 y publicado en La Gaceta del viernes 5 de Marzo de 1993.
