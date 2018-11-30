@@ -1,0 +1,1 @@
+Artículo 3º—Naturaleza de las distinciones. Las menciones de honor y distinciones reguladas en el presente reglamento tienen carácter exclusivamente honorífico, sin que pueda derivarse de ello derecho patrimonial, concesión administrativa, beneficio o trato especial a favor de quien las recibe.

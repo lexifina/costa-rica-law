@@ -1,0 +1,1 @@
+Artículo 7º—De la distinción denominada medalla al mérito especial. Se otorgará la medalla al mérito especial a aquellas personas físicas o jurídicas que destaquen en forma sobresaliente por su trabajo o aportaciones culturales, científicas, sociales, deportivas, políticas, o económicas, dentro o fuera del cantón de Moravia.

@@ -1,0 +1,2 @@
+Artículo 19.—Revocación. Los reconocimientos y honores regulados en el presente reglamento podrán ser revocados cuando sus titulares realicen actos o manifestaciones contrarios a los motivos que justificaron la concesión de la distinción. La revocación deberá estar precedida de la aplicación de las mínimas reglas del debido proceso y deberá darse publicidad a la intención de revocación, para que cualquier interesado pueda exponer sus alegatos, a favor o en contra.
+Rige a partir de su publicación.

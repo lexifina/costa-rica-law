@@ -1,0 +1,1 @@
+Artículo 6º—Del reconocimiento póstumo. Tanto el título de hijo o hija predilecto o adoptivo podrán ser concedidos a título póstumo, siempre que en la persona a reconocer hayan concurrido los merecimientos antes mencionados.
