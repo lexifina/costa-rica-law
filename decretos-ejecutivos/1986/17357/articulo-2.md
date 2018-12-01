@@ -1,4 +1,2 @@
-Artículo 2º.- Se insta a todos los costarricenses y a los
-extranjeros radicados en el país, así como a las instituciones públicas y
-a las privadas, a reflexionar sobre este hecho fundamental en la historia
-patria y a celebrarlo con la dignidad y el decoro que merece la fecha.
+Artículo 2º.- “Las instituciones del sector público y los centros educativos del país deberán conmemorar el Día de la Abolición del Ejército mediante actividades que promueven la difusión y reflexión sobre los principios de paz, libertad y democracia, no violencia, promoción del diálogo y defensa de los derechos humanos
+(Así reformado por el artículo 4° del decreto ejecutivo N° 41444 del 1° de diciembre del 2018, “Regulación de las actividades en conmemoración al Día de la Abolición del Ejercito”)
