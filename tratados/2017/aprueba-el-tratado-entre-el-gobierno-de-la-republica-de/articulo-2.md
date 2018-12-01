@@ -1,0 +1,2 @@
+ARTÍCULO 2- Cláusula interpretativa
+La República de Costa Rica interpreta que, en relación con el artículo III del Tratado entre el Gobierno de la República de Costa Rica y el Gobierno de los Estados Unidos Mexicanos sobre la Ejecución de las Sentencias Penales, las funciones de coordinación asignadas por este Tratado al Ministerio de Justicia y Gracia se realizarán por ese Ministerio, sin menoscabo de las funciones que le corresponden al juez de ejecución de la pena, de acuerdo con la legislación interna.
