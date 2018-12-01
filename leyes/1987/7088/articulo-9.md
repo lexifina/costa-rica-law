@@ -22,17 +22,16 @@ d) Aunque se produzcan varias transacciones del bien objeto del impuesto, este s
 e) Comprobación del pago del impuesto para la inscripción. El Registro de la Propiedad de Vehículos, el Registro de Aviación Civil o la Dirección General de Transporte Marítimo, no dará curso al traspaso de vehículos, aeronaves o embarcaciones, si el solicitante no está al día en el pago de este impuesto.
 Para cumplir con lo anteriormente dispuesto, el contribuyente deberá presentar ante el registro respectivo, el comprobante de pago del impuesto, referido al período fiscal correspondiente, tal como se establezca en el reglamento.
 f) Cálculo del impuesto.
-Las tarifas establecidas son progresivas. El impuesto se pagará sobre el valor que tengan, en el mercado interno, en enero de cada año, los vehículos, las aeronaves o las embarcaciones de recreo, según la lista que el Poder Ejecutivo emitirá, por decreto para cada marca, año, carrocería y estilo. El impuesto se pagará conforme a la table siguiente:
+Las tarifas establecidas son progresivas. El impuesto se pagará sobre el valor que tengan, en el mercado interno, en enero de cada año, los vehículos, las aeronaves o las embarcaciones de recreo, según la lista que el Poder Ejecutivo emitirá, por decreto para cada marca, año, carrocería y estilo. El impuesto se pagará conforme a la tabla siguiente:
 Valor | Tasa
-Hasta ¢310.000,00 | ¢26.200,00
-|
-Sobre el exceso de ¢310.000,00 y hasta ¢1.220.000,00 | 1,2%
-Sobre el exceso de ¢1.220.000,00 y hasta ¢2.420.000,00 | 1,5%
-Sobre el exceso de ¢2.420.000,00 y hasta ¢3.650.000,00 | 2,0%
-Sobre el exceso de ¢3.650.000,00 y hasta ¢4.550.000,00 | 2,5%
-Sobre el exceso de ¢4.550.000,00 y hasta ¢5.460.000,00 | 3,0%
-Sobre el exceso de ¢5.460.000,00 | 3,5%
-(Así modificadas las tarifas anteriores por el artículo 1° del decreto ejecutivo N° 40721 del 18 de octubre de 2017. De igual manera ver también los numerales 2°, 3°, 4°, y 5°, del decreto referido)
+Hasta ¢ 290.000,00 | ¢ 26.800,00
+Sobre el exceso de ¢ 290.000,00 y hasta ¢ 1.130.000,00 | 1,2 %
+Sobre el exceso de ¢ 1.130.000,00 y hasta ¢ 2.230.000,00 | 1,5 %
+Sobre el exceso de ¢ 2.230.000,00 y hasta ¢ 3.370.000,00 | 2,0 %
+Sobre el exceso de ¢ 3.370.000,00 y hasta ¢ 4.200.000,00 | 2,5 %
+Sobre el exceso de ¢ 4.200.000,00 y hasta ¢ 5.040.000,00 | 3,0%
+Sobre el exceso de ¢ 5.040.000,00 | 3,5 %
+(Así modificadas las tarifas anteriores por el artículo 1° del decreto ejecutivo N° 41356 del 16 de octubre de 2018. De igual manera ver también los numerales 2°, 3°, 4°, y 5°, del decreto referido)
 *El Poder Ejecutivo actualizará la lista de valores de los vehículos citados en el párrafo primero de este numeral; asimismo, los montos de la tabla anterior, con un índice de valuación determinado por el comportamiento de la tasa de inflación (índice de precios al consumidor que calcula la Dirección General de Estadística y Censos), una tasa de depreciación anual del diez por ciento (10 %) y la tasa de variación de la carga tributaria que afecta la importación de cada tipo de vehículo. Con base en el crecimiento de la tasa de inflación, la tasa mínima de seis mil colones (¢6.000.oo) se actualizará anualmento mediante decreto ejecutivo.
 (*)(Ver lista de valores de los vehículos, actualizada en el Alcance N° 51 aLa Gaceta N° 234 del 3 de diciembre de 2008).
 Las tarifas porcentuales establecidas para los fines de este impuesto no podrán ser variadas.
@@ -82,4 +81,4 @@ Se exceptúan de esta norma los vehículos de uso gubernamental u oficial.
 Las entidades aseguradoras, en el proceso de cobro del seguro obligatorio de automóviles, recaudarán los montos a que se refiere este inciso n), el impuesto a la propiedad de vehículos y el aporte definido para el Cosevi en la Ley N° 6324, de 24 de mayo de 1979, y sus reformas, así como otros cargos que defina el reglamento. Los montos recaudados se girarán de forma mensual o en un plazo menor, de conformidad con la reglamentación que disponga el Poder Ejecutivo sobre los aspectos operativos de estos tributos. Para efectos de la recaudación, las partes deberán suscribir los contratos necesarios que contemplen los costos de dicha recaudación, sin perjuicio de la normativa que les sea aplicable.
 (Así reformado el inciso n) anterior por el artículo único de la ley N° 9176 del 5 de noviembre del 2013)
 ñ) Se derogan todas las disposiciones contrarias al impuesto sobre la propiedad de vehículos.
-(*)(La Sala Constitucional mediante resolución N° 10015-12 del 24 de julio de 2012, declaró inconstitucional los Decretos Ejecutivos N° 34109-H, 34871-H y 35605-H en la medida que aplican el cobro del tributo aquí dispuesto “a la maquinaria de construcción”. Así mismo, interpretó la Sala este artículo en el sentido que, el tributo aquí establecido “lo es respecto de los vehículos automotores, embarcaciones y aeronaves dispuestos para el traslado y transporte de personas o cosas”)
+(*)(La Sala Constitucional mediante resolución N° 10015-12 del 24 de julio de 2012, declaró inconstitucional los Decretos Ejecutivos N° 34109-H, 34871-H y 35605-H en la medida que aplican el cobro del tributo aquí dispuesto "a la maquinaria de construcción". Así mismo, interpretó la Sala este artículo en el sentido que, el tributo aquí establecido "lo es respecto de los vehículos automotores, embarcaciones y aeronaves dispuestos para el traslado y transporte de personas o cosas")
