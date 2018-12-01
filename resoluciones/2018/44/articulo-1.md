@@ -1,4 +1,7 @@
+(Suspendida)
 DIRECCIÓN GENERAL DE TRIBUTACIÓN
+(Nota de Sinalevi: Mediante el artículo 1° de la resolución N° DGT-R-058-2018 del 30 de noviembre de 2018, se acordó suspender la aplicación de esta norma hasta que la Corte Suprema de Justicia adopte las medidas para su correcta implementación de conformidad con el Acuerdo tomado por el Consejo Superior del Poder Judicial, en la sesión N°104-18 celebrada el 29 de noviembre de 2018.
+Para la cual deberá presentar un plan de trabajo indicando el plazo estimado para cumplir con lo dispuesto en la citada resolución.)
 RESOLUCIÓN SOBRE RETENCIÓN DEL DOS POR CIENTO
 A AUXILIARES DE LA ADMINISTRACIÓN DE JUSTICIA Y
 ABOGADOS QUE RECIBAN PAGOS POR CONCEPTO DE

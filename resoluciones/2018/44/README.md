@@ -14,3 +14,4 @@ Retención del dos por ciento a auxiliares de la administración de justicia y a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-12-01 | la propia norma |
+| 2 | 2018-12-01 | Resolución 58 (2018-11-30) |
