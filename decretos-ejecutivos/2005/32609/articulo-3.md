@@ -6,3 +6,5 @@ d) Desfile de faroles.
 e) Aniversario de la Independencia Nacional.
 f) Día de las Culturas.
 g) Otras conmemoraciones especiales de acuerdo con el Calendario Escolar, como lo son la Semana Nacional del Cooperativismo, la Semana de la Paz, la Semana de la Educación Tributaria y las actividades cívicas propias de las diversas regiones del país.
+h) Día de la Abolición del Ejército.
+(Así adicionado el inciso anterior por el artículo 3° del decreto ejecutivo N°41444 del 1° de diciembre del 2018, “Regulación de las actividades en conmemoración al Día de la Abolición del Ejercito”)
