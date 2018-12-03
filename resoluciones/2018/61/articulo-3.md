@@ -1,1 +1,0 @@
-Artículo 3º—A partir de la fecha en que sea publicada la presente resolución en el Diario Oficial La Gaceta, se deja sin efecto la tasa de interés publicada en el Diario Oficial La Gaceta N° 3 miércoles 10 de enero de 2018.
