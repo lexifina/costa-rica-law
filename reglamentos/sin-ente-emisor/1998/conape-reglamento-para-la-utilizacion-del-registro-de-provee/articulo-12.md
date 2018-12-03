@@ -1,1 +1,0 @@
-Artículo 12.—El oferente está en la obligación de cumplir estrictamente con las condiciones establecidas en la oferta y en la correspondiente orden de compra. En caso de incumplir, la Institución se reserva el derecho de sancionarlo si esto ocasiona algún perjuicio o daño, no invitando a participar en el proceso de contratación.

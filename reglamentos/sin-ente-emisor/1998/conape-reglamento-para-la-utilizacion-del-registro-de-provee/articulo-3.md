@@ -1,1 +1,0 @@
-Artículo 3°— La Sección Administrativa de la Comisión Nacional de Préstamos para Educación, será la responsable de conformar y mantener actualizado el Registro de Proveedores. Para todos los efectos trámites 5 procedimientos, implantará la organización que estime necesaria con el apoyo de los medios tecnológicos y recursos que garanticen la eficiencia y eficacia del Registro.

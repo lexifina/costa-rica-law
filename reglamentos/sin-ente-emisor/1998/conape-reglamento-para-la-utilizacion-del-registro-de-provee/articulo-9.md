@@ -1,1 +1,0 @@
-Artículo 9°—Para los procedimientos de contratación que así lo permitan, la Institución hará uso deI Registro de Proveedores siempre que para el bien o servicio que se requiera se encuentren inscritos proveedores que satisfagan la adquisición. De no existir proveedores-inscritos que ofrezcan el bien o servicio requerido se procederá a invitar a otros proveedores para que coticen.

@@ -1,1 +1,0 @@
-Artículo 8°—Todos los proveedores, por el sólo hecho de incorporarse al Registro de Proveedores, se entiende que aceptan y se someten a la forma de pago establecida por la Comisión Nacional de Préstamos para Educación.

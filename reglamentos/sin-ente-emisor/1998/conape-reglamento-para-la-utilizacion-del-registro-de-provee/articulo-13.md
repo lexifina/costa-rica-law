@@ -1,1 +1,0 @@
-Artículo 13.—Existirá la facultad de exclusión unilateral del Registro de Proveedores, por parte de Institución, cuando las circunstancias lo ameriten previa comunicación al proveedor, que en caso de inconformidad podrá recurrir la actuación por medio de los recursos ordinarios que establece la Ley General de la Administración Pública.

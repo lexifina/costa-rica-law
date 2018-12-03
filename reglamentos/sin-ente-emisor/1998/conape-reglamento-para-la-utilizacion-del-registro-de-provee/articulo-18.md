@@ -1,1 +1,0 @@
-Artículo 18.—Este Reglamento fue, aprobado por el Consejo Directivo de la Comisión Nacional de Préstamos para Educación, en la sesión No 48/11/98, art. 4 de fecha 19 de noviembre de 1998 y rige a partir de su publicación en el Diario Oficial " La Gaceta ".

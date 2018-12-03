@@ -1,1 +1,0 @@
-Artículo 11.—Cuando un proveedor inscrito sea invitado a participar en algún concurso que promueva la Institución , en caso de no mostrar interés, deberá justificarlo ante la Sección Administrativa , si en tres oportunidades no presenta justificación oportuna, será excluido del Registro de Proveedores.

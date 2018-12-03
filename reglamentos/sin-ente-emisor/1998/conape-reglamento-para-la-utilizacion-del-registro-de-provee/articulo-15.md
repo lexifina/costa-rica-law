@@ -1,1 +1,0 @@
-Artículo 15.—Contra los actos emanados por la Institución en aplicación de las disposiciones de éste Reglamento cabrán los recursos de apelación y de revocatoria, (Artículos 90 al 102 del Reglamento General de la Convención Administrativa ), de conformidad con los límites económicos vigentes que por resolución establezca la Contraloría General de la República.
