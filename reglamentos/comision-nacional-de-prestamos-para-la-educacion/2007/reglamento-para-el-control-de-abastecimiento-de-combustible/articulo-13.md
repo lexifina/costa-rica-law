@@ -1,3 +1,0 @@
-Artículo 13.—Del abastecimiento de combustible en Estación de Servicio. Al pagar la cuenta de combustible con la tarjeta electrónica en estaciones de servicio, se solicitará el recibo o comprobante conocido como “voucher” y la factura a nombre de CONAPE a la cual el empleado de la estación de servicio deberá agregar el número de placa del vehículo, fecha, monto, cantidad de litros servidos y el kilometraje acumulado del vehículo. El funcionario firmará en el dorso de la factura respectiva.
-Las facturas y los recibos o comprobante conocido como “voucher” no deben presentar tachaduras, borrones ni alteraciones.
-El incumplimiento de estos requisitos se considerará una falta grave, que se sancionará según lo establecido en el artículo 18 de este Reglamento.

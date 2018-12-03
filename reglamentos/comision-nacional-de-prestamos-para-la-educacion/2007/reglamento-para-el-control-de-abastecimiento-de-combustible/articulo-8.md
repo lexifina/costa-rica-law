@@ -1,1 +1,0 @@
-Artículo 8º—De la entrega de la tarjeta electrónica. El tarjetahabiente deberá desplazarse a la agencia o sucursal bancaria que se indicó en el formulario “Solicitud de Tarjeta Individual”, para el retiro de la tarjeta y firma de registro del ente bancario.

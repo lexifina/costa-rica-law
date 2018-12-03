@@ -1,2 +1,0 @@
-Artículo 12.—De la reposición de tarjetas y del recibo o comprobante conocido como “Voucher”. Cuando la tarjeta se deteriore por el uso, desgaste normal o renovación, esta no tendrá ningún costo de reposición. El tarjetahabiente deberá presentarse en la oficina de BNCR con la tarjeta deteriorada para su reposición.
-En caso de extravío o deterioro por negligencia del tarjetahabiente, o por la reposición de un Voucher, el tarjetahabiente deberá pagar de su propio peculio el costo que establezca el Banco.
