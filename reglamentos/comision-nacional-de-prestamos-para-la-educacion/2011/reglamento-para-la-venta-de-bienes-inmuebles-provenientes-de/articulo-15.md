@@ -1,1 +1,0 @@
-Artículo 15.—Se publicará un cartel bajo los términos establecidos en este reglamento, el cual deberá contener al menos los aspectos que para estos efectos establece el Reglamento de Contratación Administrativa.

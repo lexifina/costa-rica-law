@@ -1,1 +1,0 @@
-Artículo 7º—En cualquier venta que se realice el avalúo del inmueble debe tener como máximo un año de emitido. El precio de referencia que se utilice en cualquiera de los procedimientos establecidos, es el que mediante peritaje determine la Dirección General de Tributación Directa.

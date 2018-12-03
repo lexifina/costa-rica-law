@@ -1,1 +1,0 @@
-Artículo 18.—La sola presentación de la oferta se entenderá como una manifestación inequívoca de la voluntad del oferente de contratar con pleno sometimiento a las especificaciones del cartel y a las disposiciones legales y reglamentarias pertinentes.

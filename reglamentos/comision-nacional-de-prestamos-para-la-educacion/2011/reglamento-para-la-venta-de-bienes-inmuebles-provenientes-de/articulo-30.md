@@ -1,1 +1,0 @@
-Artículo 30.—La Institución podrá declarar desierto un ítem o la totalidad del procedimiento, si ninguna de la ofertas cumplen con lo establecido en el mismo, o bien aún cumpliendo, no resultan aptas para la satisfacción del interés general que se persigue.

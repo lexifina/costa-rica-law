@@ -1,1 +1,0 @@
-Artículo 25.—CONAPE en ningún caso otorgará financiamiento, y en el caso de que se requiera financiamiento por parte del adjudicatario se otorgará una opción por un período máximo de tres meses, para que lo consiga, previo pago de la suma de Depósito de Garantía de Cumplimiento que se determine en el cartel respectivo.

@@ -1,1 +1,0 @@
-Artículo 17.—Entre la publicación del cartel y la recepción de ofertas debe mediar un plazo mínimo de 15 días hábiles. Dentro del plazo anterior no se cuenta el día de la publicación y sí el del vencimiento.

@@ -1,1 +1,0 @@
-Artículo 20.—Se tendrá por cerrado automáticamente el plazo de recepción de ofertas a la hora y fecha señaladas. Habiéndose cerrado el plazo para la recepción de ofertas no se admitirá el retiro ni la modificación de las ofertas, pero sí las aclaraciones que tengan a bien presentar los participantes, sin que ello modifique o altere los elementos esenciales de su oferta.

@@ -1,1 +1,0 @@
-Artículo 3º—La administración de los bienes adjudicados estará a cargo de la Jefatura de la Sección Administrativa de la Institución, la que mantendrá un inventario actualizado de las propiedades que se encuentren en condición legal de venta.

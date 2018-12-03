@@ -1,2 +1,0 @@
-DEL REMATE ADMINISTRATIVO:
-Artículo 11.—El Remate Administrativo consiste en la venta de contado que se realiza a través de una puja, entre los oferentes del ítem del cartel publicado, hasta que no haya quien mejore la última oferta, cerrándose el acto del remate, declarando adjudicatario a quien formuló la última mejor oferta que no fue superada, todo de conformidad con la Ley de Contratación Administrativa y su Reglamento.
