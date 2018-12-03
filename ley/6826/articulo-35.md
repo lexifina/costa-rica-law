@@ -1,10 +1,5 @@
-ARTICULO 35.- Registros contables.
-Para efectos fiscales, sin perjuicio de lo estipulado en otras
-leyes, y como excepción de lo dispuesto en materia de registros contables
-del reglamento a la Ley del impuesto sobre la renta, los contribuyentes
-que se acojan a estos regímenes únicamente estarán obligados a llevar un
-registro auxiliar legalizado, donde consignarán los detalles requeridos
-por la Administración Tributaria al establecer el régimen de tributación
-simplificada para el grupo o rama de actividad de que trate.
-(Así adicionado por el artículo 3 de la Ley de Ajuste Tributario Nº
-7543 del 14 de setiembre de 1995)
+CAPÍTULO VIII
+RÉGIMEN DE TRIBUTACIÓN SIMPLIFICADA
+Artículo 35- Régimen simplificado. Sobre este impuesto, la Administración Tributaria podrá establecer regímenes de tributación simplificada de acceso voluntario, cuando con ellos se facilite el control y el cumplimiento tributario de los contribuyentes.
+En el caso del sector agropecuario, el régimen que se constituya regulará los requisitos para su acceso, la forma de calcular el impuesto a pagar, la periodicidad con que se debe declarar y pagar el impuesto, los registros que deberán llevarse y demás pormenores necesarios para su implementación sencilla y eficaz.
+Los productores del sector agropecuario acogidos a este régimen no estarán obligados a emitir facturas por las ventas de bienes y la prestación de servicios que realicen.
