@@ -14,3 +14,4 @@ Reglamento sobre Rellenos Sanitarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-04-30 | la propia norma |
+| 2 | 2018-12-04 | Decreto Ejecutivo 41525 (2018-12-04) |
