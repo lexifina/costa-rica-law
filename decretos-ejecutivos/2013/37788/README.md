@@ -14,3 +14,4 @@ Aprueba Reglamento General para la Clasificación y Manejo de Residuos Peligroso
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-19 | la propia norma |
+| 2 | 2018-12-04 | Decreto Ejecutivo 41527 (2018-12-04) |
