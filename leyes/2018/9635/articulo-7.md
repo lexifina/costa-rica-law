@@ -1,0 +1,2 @@
+ARTÍCULO 7- Avales estatales. Los entes y los órganos del sector público no financiero que se encuentran dentro del ámbito de este título, conforme a lo normado en el artículo 5, podrán adquirir nuevas obligaciones con garantía o aval del Estado, en tanto cumplan con la regla fiscal que establece el presente título.
+En caso de que se declare su estado de incumplimiento de la regla fiscal, las nuevas obligaciones que contraigan no podrán contar con la garantía o aval del Estado.

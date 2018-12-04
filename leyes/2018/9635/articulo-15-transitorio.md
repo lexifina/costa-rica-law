@@ -1,0 +1,1 @@
+TRANSITORIO XV. La Autoridad Reguladora de los Servicios Públicos (Aresep) deberá realizar, dentro de los seis meses inmediatos a la publicación de esta ley, el ajuste tarifario nacional, en lo que corresponde al impuesto al valor agregado, para el sector transporte público.

@@ -1,0 +1,1 @@
+TRANSITORIO XIII. Las corporaciones municipales, las Asadas y demás prestadores del servicio de agua potable deberán implementar, dentro de los seis meses posteriores a la publicación de esta ley, las medidas necesarias para modificar los sistemas informáticos que permitan el cobro del impuesto al valor agregado.

@@ -1,0 +1,1 @@
+TRANSITORIO VIII. Los sujetos pasivos, cuyos servicios prestados resulten gravados en virtud de la Ley del Impuesto al Valor Agregado, podrán, por una única vez, liquidar y cancelar la totalidad del impuesto correspondiente, dentro de los tres primeros meses, contados a partir de la entrada en vigencia de la presente ley.

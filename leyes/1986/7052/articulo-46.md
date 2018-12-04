@@ -4,6 +4,6 @@ Artículo 46.- Se crea el Fondo de Subsidios para la Vivienda (Fosuvi), con el o
 (Así reformado el párrafo anterior por el artículo 1° de la Ley N° 9209 del 20 de febrero del 2014)
 a) Al menos un dieciocho coma cero siete por ciento (18,07%) de todos los ingresos anuales, ordinarios y extraordinarios, del Fondo de Desarrollo Social y Asignaciones Familiares (Fodesaf). En ningún caso percibirá un monto inferior al equivalente al treinta y tres por ciento (33%) de los recursos que el Fodesaf recaude por concepto del recargo del cinco por ciento (5%) establecido en el inciso b) del artículo 15 de la Ley N.º 5662, y sus reformas.
 (Así reformado el inciso anterior por el artículo 4° del la Ley N° 8783 del 13 de octubre del 2009)
-b) Un tres por ciento (3%) de los presupuestos nacionales, ordinarios y extraordinarios, aprobados por la Asamblea Legislativa.
+b) (Derogado por el artículo 33 del título IV de la Ley de Fortalecimiento de las Finanzas Públicas, N° 9635 del 3 de diciembre de 2018)
 c) Las donaciones y otros aportes de entes públicos y privados, nacionales o extranjeros.
 (Así reformado por el artículo 1, inciso c) de la Ley No. 7950 de 7 de diciembre de 1999)

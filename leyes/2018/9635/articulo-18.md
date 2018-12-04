@@ -1,0 +1,1 @@
+ARTÍCULO 18- Marco fiscal a mediano plazo. El Ministerio de Hacienda elaborará y publicará cada año, en la fecha que se establecerá reglamentariamente, un marco fiscal de mediano plazo (MFMP) que incluirá las proyecciones de los principales agregados fiscales de los cuatro años siguientes.

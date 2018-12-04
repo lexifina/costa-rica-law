@@ -1,6 +1,6 @@
 # Ley Orgánica del Banco Central de Costa Rica
 
-Ley N° 7558 del 1995-11-03. SINALEVI, ficha 40928: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=40928&param2=100257&param3=1>.
+Ley N° 7558 del 1995-11-03. SINALEVI, ficha 40928: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=40928&param2=114392&param3=1>.
 
 Publicada en La Gaceta N° 225 del 1995-11-27.
 
@@ -27,3 +27,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 17 de 32 | 2013-08-23 | Ley 9149 | 2013-07-30 |
 | 18 de 32 | 2014-05-30 | Ley 9227 | 2014-05-05 |
 | 19 de 32 | 2015-04-24 | Ley 9292 | 2015-02-23 |
+| 20 de 32 | 2018-12-04 | Ley 9635 | 2018-12-03 |

@@ -1,0 +1,4 @@
+(Nota de Sinalevi: Este artículo entrará a regir el primer día del ejercicio económico posterior a la aprobación del título I, es decir a partir del 1° de enero de 2020)
+ARTÍCULO 39- Se adiciona un artículo 12 bis a la Ley N.° 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971. El texto es el siguiente:
+Artículo 12 bis- Cláusula antielusiva general. Cuando se realicen actos que, en lo individual o en su conjunto, sean artificiosos oimpropios para la obtención del resultado conseguido, las consecuencias tributarias aplicables a las partes que en dichos actos hayan intervenido serán las que correspondan a los actos usuales o propios para la obtención del resultado que sehaya alcanzado.
+Lo dispuesto en el párrafo anterior únicamente se aplicará cuando los actos artificiosos o impropios no produzcan efectos económicos o jurídicos relevantes, a excepción del ahorro tributario.

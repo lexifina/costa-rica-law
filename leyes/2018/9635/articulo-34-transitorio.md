@@ -1,0 +1,1 @@
+TRANSITORIO XXXIV. El monto que se reconoce por concepto de dietas que se pagan a los miembros de las juntas directivas de las entidades públicas no aumentará durante los próximos dos años a partir de la aprobación de esta ley.
