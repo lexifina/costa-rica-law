@@ -1,0 +1,1 @@
+ARTÍCULO 24- Asignación presupuestaria. La Dirección General de Presupuesto Nacional realizará la asignación presupuestaria de las transferencias utilizando los criterios del artículo anterior. Dicha asignación no podrá ser inferior al presupuesto vigente, en el momento de aprobación de esta ley.

@@ -1,0 +1,11 @@
+Artículo 31 ter- Tarifa del impuesto. La tarifa aplicable a la renta imponible de las rentas de capital y a la de las ganancias de capital será del quince por ciento (15%). No obstante, los bienes y los derechos adquiridos con anterioridad a la vigencia del presente capítulo, el contribuyente en la primer venta podrá optar por pagar el impuesto a la ganancia de capital, aplicando al precio de enajenación una tarifa del impuesto del dos coma veinticinco por ciento (2,25%).
+Los rendimientos generados por títulos valores en moneda nacional emitidos por el Banco Popular y de Desarrollo Comunal, así como los títulos emitidos por las cooperativas de ahorro y crédito, estarán sujetos a una tarifa del quince por ciento (15%).
+Los rendimientos generados por títulos valores en moneda nacional emitidos por el Sistema Financiero Nacional para la Vivienda, al amparo de la Ley N.° 7052, Ley del Sistema Financiero Nacional para la Vivienda y Creación del Banco Hipotecario de la Vivienda, de 13 de noviembre de 1986, estarán sujetos a una tarifa del siete por ciento (7%).
+A excepción de lo establecido en el inciso 5, del artículo 28 bis, los rendimientos de los ahorros efectuados por los asociados en las cooperativas de ahorro y crédito, y de las asociaciones solidaristas tendrán un límite anual exento equivalente al cincuenta por ciento (50%) de un salario base; sobre el exceso se retendrá y aplicará la tarifa indicada del ocho por ciento (8%).
+Los excedentes o utilidades pagados por cooperativas u otras similares a sus asociados estarán sujetos a una tarifa del diez por ciento (10%).
+Los excedentes o utilidades pagados por las asociaciones solidaristas a sus asociados estarán sujetos a la siguiente escala:
+1. Cinco por ciento (5%) hasta por el equivalente a un salario base.
+2. Sobre el exceso de un salario base y hasta dos salarios base, pagarán un siete por ciento (7%).
+3. Sobre el exceso de dos salarios base, se pagará el diez por ciento (10%).
+En todos los casos el impuesto retenido o pagado tendrá el carácter de único y definitivo, con las salvedades establecidas en esta ley.
+(Así adicionado por el título II aparte 14) de la ley de Fortalecimiento de las finanzas públicas, N° 9635 del 3 de diciembre de 2018)

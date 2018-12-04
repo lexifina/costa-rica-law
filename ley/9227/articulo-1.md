@@ -1,4 +1,6 @@
+(Derogado)
 N° 9227
+(Esta norma fue derogada por el título II aparte 18) sub aparte e) de la ley de Fortalecimiento de las finanzas públicas, N° 9635 del 3 de diciembre de 2018)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 LEY PARA DESINCENTIVAR EL INGRESO

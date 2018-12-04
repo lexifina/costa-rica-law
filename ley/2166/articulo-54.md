@@ -1,0 +1,2 @@
+Artículo 54- Conversión de incentivos a montos nominales fijos. Cualquier otro incentivo o compensación existente que a la entrada en vigencia de esta ley esté expresado en términos porcentuales, su cálculo a futuro será un monto nominal fijo, resultante de la aplicación del porcentaje al salario base a enero de 2018.
+(Así adicionado por el artículo 3° del título III de la Ley de Fortalecimiento de las Finanzas Públicas, N° 9635 del 3 de diciembre de 2018)

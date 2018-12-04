@@ -1,0 +1,2 @@
+Artículo 40- Incentivos adicionales improcedentes. No procede la creación, el incremento, ni el pago de remuneración por concepto de “discrecionalidad y confidencialidad”, ni el pago o reconocimiento por concepto de bienios, quinquenios o ninguna otra remuneración por acumulación de años de servicio distintos de las anualidades, en ninguna de las instituciones contempladas en el artículo 26 de esta ley.
+(Así adicionado por el artículo 3° del título III de la Ley de Fortalecimiento de las Finanzas Públicas, N° 9635 del 3 de diciembre de 2018)

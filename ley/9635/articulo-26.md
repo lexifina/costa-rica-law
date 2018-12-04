@@ -1,0 +1,4 @@
+CAPÍTULO V
+SANCIONES
+ARTÍCULO 26- Sanciones. El incumplimiento injustificado de la regla fiscal y del control de esta constituye una falta grave contra la Hacienda Pública, y serán sancionadas según lo indicado en el artículo 68 de la Ley N.°7428, Ley Orgánica de la Contraloría General de la República, de 7 de setiembre de 1994. Lo anterior, sin demérito de lo dispuesto en el artículo 339 de la Ley N.° 4573, Código Penal, de 4 de mayo de 1970.
+Le corresponde a la Asamblea Legislativa proceder contra el contralor y el subcontralor general de la República que incumplan con su deber de controlar debidamente el cumplimiento de la regla fiscal, en los términos que establece el artículo 43 de la Ley N.° 7428, y considerando lo dispuesto en la Ley N.° 8292, Ley General de Control Interno, de 31 de julio de 2002.

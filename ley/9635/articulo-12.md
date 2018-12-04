@@ -1,0 +1,1 @@
+ARTÍCULO 12- Periodos de crecimiento económico extraordinario. Cuando el crecimiento del PIB real supere el seis por ciento (6%), durante dos años consecutivos, el Ministerio de Hacienda podrá decidir el parámetro de límite al crecimiento del gasto corriente, el cual que no podrá superar el ochenta y cinco por ciento (85%).

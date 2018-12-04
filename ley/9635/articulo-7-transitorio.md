@@ -1,0 +1,1 @@
+TRANSITORIO VII. Los sujetos pasivos del impuesto sobre las ventas podrán desinscribirse dentro de los tres meses posteriores a la entrada en vigencia de la Ley del Impuesto al Valor Agregado, siempre que no tengan deudas pendientes con la Administración Tributaria.

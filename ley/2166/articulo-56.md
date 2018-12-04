@@ -1,0 +1,2 @@
+Artículo 56- Aplicación de los incentivos, topes y compensaciones. Los incentivos, las compensaciones, los topes o las anualidades remunerados a la fecha de entrada en vigencia de la ley serán aplicados a futuro y no podrán ser aplicados de forma retroactiva en perjuicio del funcionario o sus derechos patrimoniales.
+(Así adicionado por el artículo 3° del título III de la Ley de Fortalecimiento de las Finanzas Públicas, N° 9635 del 3 de diciembre de 2018)

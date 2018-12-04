@@ -2,8 +2,30 @@ CAPITULO II
 De los contribuyentes y de las personas exentas
 ARTICULO 2º.- Contribuyentes.
 Independientemente de la nacionalidad, del domicilio y del lugar de la constitución de las personas jurídicas o de la reunión de sus juntas directivas o de la celebración de los contratos, son contribuyentes todas las empresas públicas o privadas que realicen actividades o negocios de carácter lucrativo en el país:
-a) Las personas jurídicas legalmente constituidas, las sociedades de hecho, las sociedades de actividades profesionales, las empresas del Estado y las cuentas en participación que halla en el país.
-b) Las sucursales, agencias y otros establecimientos permanentes que operen en Costa Rica, de personas no domiciliadas en el país que haya en él. Para estos efectos, se entiende por establecimiento permanente de personas no domiciliadas en el país, toda oficina, fábrica, edificio u otro bien raíz, plantación, negocio o explotación minera, forestal, agropecuaria o de otra índole, almacén u otro local fijo de negocios - incluido el uso temporal de facilidades de almacenamiento -, así como el destinado a la compraventa de mercaderías y productos dentro del país, y cualquier otra empresa propiedad de personas no domiciliadas que realice actividades lucrativas en Costa Rica.
+a) Todas las personas jurídicas legalmente constituidas, con independencia de si realizan o no una actividad lucrativa, las sociedades de hecho, las sociedades de actividades profesionales, las empresas del Estado, los entes colectivos sin personalidad jurídica y las cuentas en participación que haya en el país.
+(Así reformado el inciso anterior por el título II aparte 3) de la ley de Fortalecimiento de las finanzas públicas, N° 9635 del 3 de diciembre de 2018)
+b) Se entiende por establecimiento permanente cualquier sitio o lugar fijo de negocios en el que se desarrolle, total o parcialmente, la actividad esencial de la persona no domiciliada.
+1) Se considerarán establecimientos permanentes:
+i. Los centros administrativos.
+ii. Las sucursales.
+iii. Las agencias.
+iv. Las oficinas.
+v. Las fábricas.
+vi. Los talleres.
+vii. Las minas, las canteras y cualquier otro lugar de extracción de recursos naturales.
+2) La expresión “establecimiento permanente” comprende asimismo:
+i. Las obras, una construcción o un proyecto de instalación o montaje o actividades de inspección relacionadas con ellos, pero solo cuando tales obras, proyecto o actividades continúen durante un periodo o periodos que sumen o excedan en total más de ciento ochenta y tres días, en cualquier periodo de doce meses que empiece o termine durante el año fiscal considerado.
+ii. La prestación de servicios por una empresa, incluidos los servicios de consultores, por intermedio de sus empleados o de otro personal contratado por la empresa para ese fin, pero solo en el caso de que las actividades de esa naturaleza prosigan (en relación con el mismo proyecto o con un proyecto conexo) durante un periodo o periodos que sumen o excedan en total más de ciento ochenta y tres días, en cualquier periodo de doce meses que empiece o termine durante el año fiscal considerado.
+Con el único propósito de determinar si se ha superado el plazo de ciento ochenta y tres días que se indica anteriormente, se considerará lo siguiente:
+a) Cuando una empresa no domiciliada presta servicios o realiza actividades en Costa Rica en un lugar donde se realizan obras o proyectos de construcción o de instalación, y esos servicios o actividades se llevan a cabo durante periodos que no superan el plazo de ciento ochenta y tres días, y
+b) Una o varias empresas asociadas con la primera empresa llevan a cabo servicios al mismo cliente o actividades en el mismo lugar donde se prestan servicios, o se realizan obras o proyectos de construcción o de instalación (en relación con el mismo proyecto o con un proyecto conexo), durante periodos de tiempo adicionales,
+Esos periodos adicionales se sumarán al periodo en el cual la primera empresa prestó servicios o llevó a cabo actividades en ese lugar donde se realizan obras o proyectos de construcción o de instalación.
+Cuando una persona actúe en Costa Rica por cuenta de una empresa no domiciliada, salvo si esta persona fuera un agente independiente, se considerará que esa empresa tiene un establecimiento permanente en Costa Rica respecto de las actividades que dicha persona realice para la empresa, si esa persona:
+a) Ostenta y ejerce habitualmente en Costa Rica poderes que la faculten para concluir contratos en nombre de la empresa; o
+b) No ostenta dichos poderes, pero mantiene habitualmente en Costa Rica un depósito de bienes o mercancías desde el cual realiza regularmente entregas de bienes o mercancías en nombre de la empresa.
+iii. Sin perjuicio de lo que disponga la Superintendencia General de Seguros (Sugese), respecto de la operación de entidades aseguradoras o reaseguradoras, se considera que una empresa aseguradora tiene, salvo en lo que respecta a los reaseguros, un establecimiento permanente en Costa Rica si recauda primas en el territorio costarricense o si asegura contra riesgos situados en él por medio de una persona distinta de un agente que goce de un estatuto independiente al que se le aplique el siguiente inciso.
+iv. No se considera que una empresa tiene un establecimiento permanente en Costa Rica por el mero hecho de que realice allí sus actividades por medio de un corredor, un comisionista general o cualquier otro agente independiente, siempre que dichas personas actúen dentro del marco ordinario de su actividad. No obstante, cuando las actividades de tales agentes se realicen exclusivamente, o casi exclusivamente, por cuenta de dicha empresa, y las condiciones aceptadas o impuestas entre esa empresa y el agente en sus relaciones comerciales y financieras difieran de las que se darían entre empresas independientes, ese agente no se considerará un agente independiente de acuerdo con el sentido de este inciso.
+(Así reformado el inciso b) anterior por el título II aparte 3) de la ley de Fortalecimiento de las finanzas públicas, N° 9635 del 3 de diciembre de 2018)
 c) Los fideicomisos y encargos de confianza constituidos conforme con la legislación costarricense. ch) Las sucesiones, mientras permanezcan indivisas.
 d) Las empresas individuales de responsabilidad limitada y las empresas individuales que actúen en el país.
 e) Las personas físicas domiciliadas en Costa Rica, independientemente de la nacionalidad y del lugar de celebración de los contratos.

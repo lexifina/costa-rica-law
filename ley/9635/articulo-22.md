@@ -1,0 +1,1 @@
+ARTÍCULO 22- Autorización para incluir transferencias presupuestarias. Se autoriza al Ministerio de Hacienda para que incluya en el presupuesto de la República las transferencias presupuestarias necesarias para garantizar el financiamiento de las instituciones y los programas de desarrollo social y económico, según lo señalado en el clasificador funcional vigente.

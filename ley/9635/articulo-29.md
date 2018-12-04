@@ -1,0 +1,2 @@
+ARTÍCULO 29- De conformidad con lo establecido en el artículo 78 de la Constitución Política, se contabilizarán dentro del ocho por ciento (8%) del producto interno bruto destinado a la educación estatal los recursos presupuestados para primera infancia, preescolar, educación primaria, secundaria, educación profesional y educación técnica, incluido el Instituto Nacional de Aprendizaje (INA).
+El Ministerio de Educación Pública (MEP) deberá destinar un porcentaje de este rubro al financiamiento de infraestructura educativa y equipamiento.

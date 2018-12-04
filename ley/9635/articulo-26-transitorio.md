@@ -1,0 +1,1 @@
+TRANSITORIO XXVI. Las disposiciones contempladas en el artículo 28 de la presente ley no serán aplicables a los contratos por dedicación exclusiva que se hayan suscrito y estuvieran vigentes, con antelación a la entrada en vigencia de la presente ley.
