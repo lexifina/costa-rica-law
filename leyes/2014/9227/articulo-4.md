@@ -1,1 +1,0 @@
-ARTÍCULO 4.- El Banco Central de Costa Rica deberá presentar a la Comisión Permanente Especial para el Control del Ingreso y del Gasto Públicos de la Asamblea Legislativa, cada seis meses, un informe detallado sobre la aplicación y los efectos causados por las medidas de esta ley.
