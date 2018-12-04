@@ -1,7 +1,4 @@
-Artículo 51° – Vigencia y cancelación
-La inscripción y el pago en el Registro de Gestores deberá ser renovada cada cinco años, de conformidad con la vigencia de su permiso sanitario de funcionamiento. En los casos de actividades ya existentes el registro se realizará la primera vez, únicamente por el equivalente en años de vigencia restantes del citado permiso y la fracción de pago proporcional al tiempo de vigencia.
-El registro podrá ser cancelado cuando medie alguna de las siguientes causas:
-a. Retiro voluntario de la actividad, para lo cual el gestor deberá comunicarlo por escrito al Ministerio de Salud;
-b. Cuando no renueve su registro;
-c. Cuando no cuente con el permiso sanitario de funcionamiento o patente municipal.
-d. Cuando incumpla con lo dispuesto en la normativa vigente, luego del proceso administrativo o judicial correspondiente.
+Artículo 51° – Reporte de Operación de Gestor. Los gestores autorizados deben de registrar ante la plataforma SINIGIR de forma anual un reporte de operación, el cual es obligatorio. El incumplimiento del mismo implica una suspensión del registro como Gestor.
+La información por registrar en el reporte está contemplada en el Reglamento para el trámite digital de registros y autorizaciones del Ministerio de Salud en la gestión integral de residuos en la plataforma SINIGIR.
+Los Gestores autorizados para la operación de un relleno sanitario, deben de registrar ante la plataforma SINIGIR, el reporte operacional de forma semestral, conforme al artículo 38 del Decreto Ejecutivo Nº 38928-S del 14 de noviembre del 2014 “Reglamento sobre Rellenos Sanitarios”.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41526 del 4° de diciembre de 2018)

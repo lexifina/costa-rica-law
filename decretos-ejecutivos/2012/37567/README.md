@@ -14,3 +14,4 @@ Reglamento General a la Ley para la Gestión Integral de Residuos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-20 | la propia norma |
+| 2 | 2018-12-04 | Decreto Ejecutivo 41526 (2018-12-04) |
