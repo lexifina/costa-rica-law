@@ -14,3 +14,4 @@ Reglamento de Funcionamiento de Máquinas Electrónicas o Mecánicas, Pin Ball, 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-11-14 | la propia norma |
+| 2 | 2018-12-04 | Reglamento municipal 136 (2018-12-04) |
