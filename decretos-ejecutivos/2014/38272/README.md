@@ -14,3 +14,4 @@ Reglamento para la Declaratoria de Residuos de Manejo Especial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-09-25 | la propia norma |
+| 2 | 2018-12-04 | Decreto Ejecutivo 41525 (2018-12-04) |
