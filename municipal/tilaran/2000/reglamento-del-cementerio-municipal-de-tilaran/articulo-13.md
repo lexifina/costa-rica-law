@@ -1,1 +1,0 @@
-Artículo 13.-La adquisición de derechos de lotes a plazos, constituye un compromiso de pago en que el adquiriente se obliga a amortizar el valor total mediante pagos mensuales iguales y consecutivos, según las tablas financieras preparadas al respecto.

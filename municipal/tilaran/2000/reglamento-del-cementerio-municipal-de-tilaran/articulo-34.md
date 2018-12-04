@@ -1,1 +1,0 @@
-Artículo 34.-En caso de los derechos funerarios cuyos arrendatarios incumplan las obligaciones de este Reglamento o del Contrato, facultará a la Municipalidad para efectuar exhumaciones ordinarias de oficio, y dar por resuelto el contrato.

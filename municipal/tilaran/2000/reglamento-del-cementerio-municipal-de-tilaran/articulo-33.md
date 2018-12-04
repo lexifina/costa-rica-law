@@ -1,1 +1,0 @@
-Artículo 33.-Las exhumaciones se harán siempre con la presencia del Encargado del Cementerio y dos testigos quienes pueden ser parientes de la persona fallecida. Será responsabilidad del encargado efectuar la comprobación de la identidad del cadáver mediante su registro en los libros, confeccionando el acta respectiva.

@@ -1,1 +1,0 @@
-Artículo 40.-A falta de disposición en este Reglamento, se aplicará supletoriamente la Ley de Salud, el Reglamento General de Cementerios y los acuerdos del Concejo Municipal, en el orden aquí establecido,

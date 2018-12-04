@@ -1,1 +1,0 @@
-Artículo 14.-EI no cumplimiento de parte del adquiriente en el pago de un año de amortización, faculta a la Municipalidad para dejar sin efecto unilateral mente el respectivo contrato y disponer del lote correspondiente; además la Municipalidad se encuentra facultada para cobrar intereses moratorios con base en el Código Municipal.

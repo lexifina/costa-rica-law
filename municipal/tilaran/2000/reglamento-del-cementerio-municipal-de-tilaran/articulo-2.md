@@ -1,1 +1,0 @@
-Artículo 2°-La materia tratada en este Reglamento se fundamenta en la Ley General de Salud, Sección 11 De los Cementerios, Inhumaciones y Exhumaciones de Cadáveres, del artículo 327 al artículo 330, y del Reglamento General de Cementerios emitido por el Poder Ejecutivo.

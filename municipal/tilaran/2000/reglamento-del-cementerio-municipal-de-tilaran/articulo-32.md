@@ -1,3 +1,0 @@
-CAPÍTULO VII
-De las exhumaciones
-Artículo 32.-En concordancia con la normativa respectiva, las exhumaciones se consideran de dos tipos: Ordinarias y Extraordinarias. Las ordinarias son las que se efectúan después de cinco años de inhumados los restos, mediante autorización del Poder Judicial para ser trasladados al osario o para ser incinerados, se realizan a solicitud de los parientes del fallecido; las extraordinarias cuando los cadáveres sean desenterrados por orden de la autoridad judicial para investigaciones en interés de la justicia para ser trasladados a otras sepulturas o para ser incinerados.

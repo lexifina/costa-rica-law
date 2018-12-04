@@ -1,1 +1,0 @@
-Artículo 44.-Los mausoleos subterráneos se definen como construcciones de tres nichos en fondo colocados en ambas parcelas laterales y con acceso por la parcela central. Este acceso estará cubierto por una lápida debidamente asegurada. La construcción no podrá sobresalir más de 1,5 m del nivel del suelo, ni podrá tener una profundidad mayor de 2 metros del mismo nivel.

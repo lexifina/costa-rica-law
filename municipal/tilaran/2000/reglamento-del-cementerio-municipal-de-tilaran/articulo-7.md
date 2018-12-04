@@ -1,1 +1,0 @@
-Artículo 7°-El Alcalde Municipal, velará por la correcta aplicación y uso de los servicios eléctricos, drenajes, instalaciones de agua y uso de servidumbres entre las parcelas, imponiendo las medidas que crea conveniente para el mejoramiento de los servicios.

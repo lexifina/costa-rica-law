@@ -1,1 +1,0 @@
-Artículo 25.-La administración llevará un registro quedando obligada a facilitar las inspecciones a las autoridades administrativas y sanitarias, a fin de fiscalizar la buena marcha de la política mortuoria que establece la Ley General de Salud a fin de mantener un control cruzado con la oficina respectiva de acuerdo al articulo siguiente.
