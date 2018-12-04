@@ -26,4 +26,4 @@ w) El canon establecido en el inciso a) del artículo 51 del Código de Minería
 x) El timbre migratorio, creado por el artículo 128 de la Ley Nº 7015, de 22 de noviembre de 1985.
 y) El timbre universitario creado mediante artículo 1 de la Ley Nº 2, de 9 de mayo de 1941, incorporado en el Código de Educación, Ley Nº 181, de 18 de agosto de 1944.
 z) Los impuestos sobre cheques, creados mediante el inciso 13) del artículo 273 del Código Fiscal y sus reformas.
-El Poder Ejecutivo, por medio del Ministerio de Hacienda, incorporará en los presupuestos ordinarios y extraordinarios de la República, a favor de las instituciones beneficiarias, los recursos que dejen de percibir por las derogaciones de los impuestos indicados en este artículo. Se prohíbe la subejecución del presupuesto de las partidas a las instituciones beneficiarias de dichos impuestos.
+(Derogado el párrafo final de este numeral por el artículo 34 del título IV de la Ley de Fortalecimiento de las Finanzas Públicas, N° 9635 del 3 de diciembre de 2018)
