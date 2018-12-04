@@ -1,0 +1,7 @@
+Artículo 31 bis- Devengo del impuesto, periodo fiscal, compensación de ganancias y pérdidas y diferimiento de pérdidas
+1. Tratándose de rentas del capital, el impuesto se devenga cuando estas se perciban o resulten exigibles, lo que ocurra primero.
+2. Para las ganancias de capital, la obligación de pagar el impuesto nacerá en el momento en que se produzca la variación en el patrimonio del contribuyente, de conformidad con el artículo 27 ter, inciso c) de esta ley.
+3. Las obligaciones tributarias mencionadas en los incisos a) y b) anteriores se deberán autoliquidar y pagar, cuando proceda, de acuerdo con lo dispuesto en el artículo 31 quáter de esta ley.
+4. No obstante, cuando el contribuyente sufra alguna pérdida de capital sujeta a las disposiciones de este título y en los doce meses anteriores hubiera obtenido ganancias de capital por las que autoliquidó y pagó el impuesto, podrá presentar una declaración en los términos que defina la Administración Tributaria, donde compensará las ganancias y las pérdidas solicitando la correspondiente devolución, cuando corresponda.
+5. Si el contribuyente obtuviera solo pérdidas, en cuyo caso deberán haber sido previamente declaradas, o el resultado de la compensación fuera negativo, las pérdidas de capital se pueden diferir para aplicar contra ganancias de capital que se obtengan en los tres años siguientes y consecutivos.
+(Así adicionado por el título II aparte 14) de la ley de Fortalecimiento de las finanzas públicas, N° 9635 del 3 de diciembre de 2018)

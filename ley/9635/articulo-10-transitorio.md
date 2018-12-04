@@ -1,0 +1,1 @@
+TRANSITORIO X. La Administración Tributaria se encuentra facultada para continuar otorgando órdenes especiales, con el fin de que los contribuyentes puedan efectuar la adquisición de bienes y servicios sin el pago previo del impuesto sobre el valor agregado, hasta el momento en que pueda disponer de un sistema de exoneración o de devolución automática.

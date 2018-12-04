@@ -1,0 +1,2 @@
+ARTÍCULO 20- Monitoreo trimestral durante la ejecución del presupuesto. Tanto la Dirección General de Presupuesto Nacional como la Secretaría Técnica de la Autoridad Presupuestaria realizarán y presentarán al ministro de Hacienda informes trimestrales sobre la evolución del gasto corriente.
+El Ministerio de Hacienda publicará trimestralmente, en medio electrónico, la información de la ejecución de los ingresos, gastos y financiamiento del sector público no financiero.

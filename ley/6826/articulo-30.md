@@ -1,13 +1,14 @@
-ARTICULO 30.- Los contribuyentes que se acojan a estos regímenes
-deberán presentar la declaración en un formulario especial que elaborará
-la Administración Tributaria. Esa declaración corresponderá al trimestre
-inmediato anterior y se presentará dentro de los primeros quince días
-naturales siguientes al trimestre respectivo, es decir, en los primeros
-quince días naturales de los meses de octubre, enero, abril y julio de cada
-año.
-(Adicionado por el artículo 3 de la Ley Nº 7088 de 30 de noviembre
-de 1987 y modificada su numeración de acuerdo con el 29 de la Ley Nº 7293
-de 31 de marzo de 1992, que lo pasó del 29 al 30)
-(Así reformado por el artículo 3 de la Ley de Ajuste Tributario Nº
-7543 del 14 de setiembre de 1995)
-(Así reformado por el artículo 15 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria, de 4 de julio del 2001)
+Artículo 30- Percepción del impuesto sobre el valor agregado en compras de servicios internacionales. Se faculta a la Administración Tributaria para que establezca el cobro del impuesto sobre el valor agregado por medio de aquellas personas físicas, jurídicas o entidades, que actúen como proveedores o intermediarios para poner a disposición de un consumidor final, según las disposiciones del párrafo segundo del artículo 4 de esta ley, compras de servicios por medio de internet o cualquier otra plataforma digital, que sean consumidos en el territorio nacional.
+Sin perjuicio de lo indicado en el párrafo anterior, las entidades, públicas o privadas, que emitan tarjetas de crédito o débito de uso internacional, definidas para los efectos del presente artículo como emisores, deberán actuar como agentes de percepción, cuando sus tarjetahabientes, en calidad de contribuyentes según las disposiciones del párrafo segundo del artículo 4 de esta ley, realicen compras de servicios por medio de internet o cualquier otra plataforma digital, que sean consumidos en el territorio nacional.
+La percepción a que se refiere el párrafo anterior será conforme a la tarifa referida en el artículo 10 de la presente ley y se aplicará sobre el importe bruto de la compra hecha por el tarjetahabiente. Este porcentaje corresponde al impuesto sobre el valor agregado que en definitiva le corresponda pagar al consumidor final que adquiera servicios por medio de internet o cualquier otra plataforma digital.
+El tarjetahabiente, a quien se le haya efectuado la percepción prevista en esta ley, la aplicará como pago del impuesto sobre el valor agregado que se devengue por la compra de servicios por medio de internet o cualquier otra plataforma digital.
+Corresponde al emisor de la tarjeta de crédito o débito informar a la Administración Tributaria sobre las transacciones que realice el tarjetahabiente por medio de internet o cualquier otra plataforma digital.
+La Dirección General de Tributación, en resolución emitida para tal efecto, establecerá la forma en que debe reportarse la información requerida para el control, el cobro y la fiscalización de la percepción establecida en este artículo, a cargo de los emisores de tarjetas.
+El suministro inexacto o incompleto, por parte de la entidad emisora, de la información referida se sancionará de conformidad con las disposiciones contenidas en el artículo 83 de la Ley N.° 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971, y demás sanciones que correspondan de conformidad con el citado Código.
+Las sumas percibidas deberán depositarse a favor del fisco en el sistema bancario nacional o en sus agencias o sucursales, que cuenten con la autorización del Banco Central, a más tardar dentro de los tres días hábiles siguientes de recibida la transacción por el emisor, mediante declaración jurada que para los efectos será regulada mediante resolución.
+Las disposiciones contenidas en el presente artículo aplican para aquellas entidades, públicas o privadas, que comercialicen a partir de una cuenta bancaria y por medio de internet o cualquier otra plataforma digital, servicios o bienes intangibles para facilitar los pagos a la cuenta de un vendedor o proveedor, no domiciliado en el territorio de la República.
+El tarjetahabiente podrá solicitar la devolución del impuesto ante la Administración Tributaria, cuando haya realizado compras con tarjetas de crédito, débito o cualquier otro similar a nivel internacional y se encuentre ante alguna de las siguientes situaciones:
+1. Adquiera servicios por medio de internet o cualquier otra plataforma digital y sobre las que el uso, el disfrute o el consumo se realice totalmente en otra jurisdicción.
+2. Utilice los medios electrónicos de pago para la transferencia o el envío de dinero a personas o entidades ubicadas fuera del territorio nacional, cuyo resultado sea la manutención o el consumo final en una jurisdicción distinta a Costa Rica.
+3. Adquiera servicios a los que se refieren los artículos 8 y 9 de esta ley.
+Le corresponderá al tarjetahabiente la presentación de las facturas, los documentos y demás evidencia que compruebe la adquisición bajo alguno de los supuestos indicados en los incisos anteriores, para solicitar la devolución sobre las percepciones del impuesto, según se disponga vía reglamento.

@@ -1,4 +1,2 @@
-Artículo 2º.- El funcionario al que se le otorgue el beneficio, que
-establece el artículo anterior, quedará impedido para ejercer la profesión,
-en forma particular, o para desempeñar cargos en la empresa privada, la
-Administración Pública, instituciones autónomas o semiautónomas.
+Artículo 2- El funcionario al que se le otorgue el beneficio, que establece el artículo anterior, recibirá una compensación económica de un porcentaje sobre el salario base. Un quince por ciento (15%), para los que posean el grado académico de bachiller universitario, y de un treinta por ciento (30%), para los que ostenten el grado de licenciatura u otro superior.
+(Así reformado por el artículo 3° del título III de la Ley de Fortalecimiento de las Finanzas Públicas, N° 9635 del 3 de diciembre de 2018, que adicionó el numeral 57 aparte n) a la Ley de Salarios de la Administración Publica, N° 2166 del 9 de octubre de 1957)

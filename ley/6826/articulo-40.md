@@ -1,0 +1,1 @@
+Artículo 40- Emisión de factura. Los contribuyentes acogidos a estos regímenes no estarán obligados a emitir facturas por las ventas de bienes y la prestación de servicios que realicen en los casos previstos por la Administración Tributaria, pero sí a solicitarlas a sus proveedores. No obstante, deberán emitir comprobantes cuando así lo solicite el comprador.

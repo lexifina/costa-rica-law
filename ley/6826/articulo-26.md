@@ -1,25 +1,3 @@
-ARTICULO 26.- Lotería Fiscal.
-Se establece la lotería fiscal, como medio de fiscalización
-tributaria, para estimular al comprador o consumidor final a exigir la
-factura o el documento que la reemplace.
-El Poder Ejecutivo, por medio del Ministerio de Hacienda y por
-Decreto Ejecutivo, reglamentará la organización, el sistema de sorteos,
-la periodicidad, la cantidad y la clase de premios, establecerá el órgano
-encargado de la organización y administración de los sorteos y todo lo
-relativo a este sistema de lotería. Además constituirá un Comité de
-Sorteos, cuyos miembros devengarán dietas por las sesiones a las que
-asistan. El monto de dichas dietas será fijado de acuerdo con las leyes
-preexistentes.
-Los fondos para el pago de premios, publicidad, organización y
-otros, no excederán del uno por ciento (1%) del monto anual presupuestado
-por concepto de la recaudación de los Impuestos: General sobre las Ventas
-y Selectivo de Consumo. Estos gastos deberán incorporarse en la Ley
-General de Presupuesto Ordinario y Extraordinario de la República, según
-corresponda.
-El Ministerio de Hacienda deberá establecer una caja especial
-administrada por el Departamento Financiero, quien deberá abrir una
-cuenta bancaria para girar el pago de los premios y gastos de los
-sorteos.
-(Así adicionado por artículo 29 de la ley Nº 7293 de 31 de marzo de
-1992, que además ordena correr la numeración subsiguiente, pasando a ser
-el antiguo 26 el 27)
+Artículo 26- Crédito fiscal en operaciones sujetas a tarifa reducida. En el caso de las operaciones sujetas al tipo reducido a que se refiere el artículo 11 de esta ley, el crédito fiscal será el que resulte de aplicar el tipo reducido a la base imponible del impuesto pagado en la adquisición de bienes y servicios utilizados en la realización de las operaciones sujetas al tipo reducido.
+Cuando se trate de bienes o servicios utilizados indistintamente en operaciones con derecho a crédito fiscal pleno y en otras operaciones, se seguirán las reglas del artículo 22 de esta ley para determinar la parte de impuesto que ha sido pagada, pero a la que se le aplican las limitaciones del párrafo anterior.
+Tratándose de los bienes de canasta básica, la Administración Tributaria establecerá los mecanismos para garantizar que tanto el producto final como el consumo intermedio se encuentren sujetos a la misma tarifa.
