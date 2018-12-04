@@ -4,13 +4,20 @@ De la tarifa del impuesto
 ARTICULO 33.- Escala de tarifas. El empleador o el patrono retendrá el impuesto establecido en el artículo anterior y lo aplicará sobre la renta total percibida mensualmente por el trabajador. En los casos de los incisos a), b) y c) del artículo anterior lo aplicará el Ministerio de Hacienda y, en el caso del inciso ch) de ese mismo artículo, todas las demás entidades, públicas o privadas, pagadoras de pensiones. La aplicación se realizará según la siguiente escala progresiva de tarifas:
 a) Las rentas de hasta ¢ 817.000,00 mensuales no estarán sujetas al impuesto.
 b) Sobre el exceso de ¢ 817.000,00 mensuales y hasta ¢1.226.000,00 mensuales, se pagará el diez por ciento (10%).
-c) Sobre el exceso de ¢1.226.000,00 mensuales se pagará el quince por ciento (15%).
+c) Sobre el exceso de ¢1.199.000,00 (un millón ciento noventa y nueve mil colones) mensuales y hasta ¢2.103.000,00 (dos millones ciento tres mil colones) mensuales, se pagará el quince por ciento (15%).
+(Así reformado el inciso c) anterior por el título II aparte 15) de la ley de Fortalecimiento de las finanzas públicas, N° 9635 del 3 de diciembre de 2018)
 (Así modificados los tramos de renta establecidos en los incisos a), b) y c) anteriores por el artículo 1° del decreto ejecutivo N° 41319 del 10 de setiembre de 2018, mediante un ajuste del dos coma veinticuatro por ciento (2,24%))
 ch) Las personas que obtengan rentas de las contempladas en los incisos b) y c) del artículo 32 pagarán sobre el ingreso bruto, sin deducción alguna, el quince por ciento (15%).
 (Así reformado por inciso i) del artículo 19 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria de 4 de julio del 2001).
+d) Sobre el exceso de ¢2.103.000,00 (dos millones ciento tres mil colones) mensuales, y hasta ¢4.205.000,00 (cuatro millones doscientos cinco mil colones) mensuales, se pagará el veinte por ciento (20%).
+(Así adicionado el inciso d) anterior por el título II aparte 15) de la ley de Fortalecimiento de las finanzas públicas, N° 9635 del 3 de diciembre de 2018)
+e) Sobre el exceso de ¢4.205.000,00 (cuatro millones doscientos cinco mil colones) mensuales, se pagará el veinticinco por ciento (25%)
+(Así adicionado el inciso e) anterior por el título II aparte 15) de la ley de Fortalecimiento de las finanzas públicas, N° 9635 del 3 de diciembre de 2018)
 El impuesto establecido en este artículo, que afecta a las personas que solamente obtengan ingresos por los conceptos definidos en este artículo, tendrá el carácter de único, respecto a las cantidades a las cuales se aplica.
 (Así reformado su penúltimo párrafo por inciso i) del artículo 19 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria de 4 de julio del 2001).
 Los excesos de dicho monto deberán ser tratados conforme se establece en el párrafo segundo del artículo 46(*) de esta Ley.
+El mínimo exento y los montos de los tramos indicados en el presente artículo serán actualizados anualmente por el Poder Ejecutivo, con fundamento en la variación experimentada por el índice de precios al consumidor que determine el Instituto Nacional de Estadística y Censos (INEC).
+(Así adicionado el párrafo anterior por el título II aparte 15) de la ley de Fortalecimiento de las finanzas públicas, N° 9635 del 3 de diciembre de 2018)
 (*) (Así reformado tácitamente por la ley No. 7551 de 22 de setiembre de 1995, que al correr la numeración traspasó el antiguo 41 al actual 46)
 (Así reformado por el artículo 17 de la Ley de Justicia Tributaria No. 7535 de 1º de agosto de 1995, el cual, al modificar el párrafo primero del presente numeral, reproduce íntegramente el contenido del artículo)
 (Así modificada su numeración por el artículo 1º de ley No. 7551 de 22 de setiembre de 1995, que la traspasó del antiguo 28 al actual)

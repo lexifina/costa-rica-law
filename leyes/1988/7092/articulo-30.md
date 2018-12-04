@@ -1,2 +1,4 @@
-ARTICULO 30.-(Derogado por Ley N° 7976 del 4 de enero del 2000.
-(Así adicionado por el artículo 1º de ley No. 7551 de 22 de setiembre de 1995, que además corrigió la numeración del articulado, pasando el antiguo 30 a ser el actual 35)
+Artículo 30- Renta imponible de las ganancias o pérdidas de capital. La renta imponible de las ganancias o pérdidas de capital será, con carácter general:
+1. En el supuesto de transmisión onerosa, la diferencia entre los valores de adquisición y transmisión de los bienes o derechos.
+2. En los demás supuestos, el valor de mercado de los bienes o derechos que se incorporen al activo o patrimonio del contribuyente.
+(Así adicionado por el título II aparte 14) de la ley de Fortalecimiento de las finanzas públicas, N° 9635 del 3 de diciembre de 2018. Anteriormente este numeral había sido adicionado por el artículo 1º de ley No. 7551 de 22 de setiembre de 1995, que además corrigió la numeración del articulado, pasando el antiguo 30 a ser el actual 35, y había sido derogado por Ley N° 7976 del 4 de enero del 2000)

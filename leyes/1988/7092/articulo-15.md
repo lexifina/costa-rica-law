@@ -2,10 +2,18 @@ CAPITULO VII
 De la tarifa del impuesto
 ARTÍCULO 15.- Tarifa del impuesto. A la renta imponible se le aplicarán las tarifas que a continuación se establecen. El producto así obtenido constituirá el impuesto a cargo de las personas a que se refiere el artículo 2º de esta ley.
 a) Personas jurídicas: Treinta por ciento (30%).
-b) Pequeñas empresas: se consideran pequeñas empresas aquellas personas jurídicas cuyo ingreso bruto en el período fiscal no exceda de ¢109.228.000,00 y a las cuales se les aplicará, sobre la renta neta, la siguiente tarifa única, según corresponda:
-i) Hasta ¢54.303.000,00 de ingresos brutos: el 10%.
-ii) Hasta ¢109.228.000,00 de ingresos brutos: el 20%.
-(Así modificados los montos de ingresos brutos establecidos en el inciso b) anterior por el artículo 1° del decreto ejecutivo N° 41320 del 14 de setiembre de 2018 , mediante un ajuste del dos coma veinticuatro por ciento (2,24%))
+b) Las personas jurídicas, cuya renta bruta no supere la suma de ciento seis millones de colones (¢106.000.000,00) durante el periodo fiscal:
+i. Cinco por ciento (5%), sobre los primeros cinco millones de colones (¢5.000.000,00) de renta neta anual.
+ii. Diez por ciento (10%), sobre el exceso de cinco millones de colones(¢5.000.000,00) y hasta siete millones quinientos mil colones (¢7.500.000,00) de renta neta anual.
+iii. Quince por ciento (15%), sobre el exceso de siete millones quinientos mil colones (¢7.500.000,00) y hasta diez millones de colones (¢10.000.000,00) de renta neta anual.
+iv. Veinte por ciento (20%), sobre el exceso de diez millones de colones (¢10.000.000,00) de renta neta anual.
+A efectos de lo previsto en este inciso b), las micro y las pequeñas empresas inscritas ante el Ministerio de Economía, Industria y Comercio (MEIC), o ante el Ministerio de Agricultura y Ganadería (MAG) podrán aplicar la escala tarifaria prevista en este inciso, conforme a las siguientes condiciones, las cuales aplicarán a partir de su primer año de operaciones:
+i. Cero por ciento (0%) del impuesto sobre el impuesto a las utilidades el primer año de actividades comerciales.
+ii. Veinticinco por ciento (25%) del impuesto sobre el impuesto a las utilidades el segundo año de actividades comerciales.
+iii. Cincuenta por ciento (50%) del impuesto sobre el impuesto a las utilidades el tercer año de actividades comerciales.
+Reglamentariamente, la Administración Tributaria podrá establecer las condiciones que se estimen necesarias para prevenir o corregir el fraccionamiento artificioso de la actividad.
+El Ministerio de Hacienda actualizará por resolución general el monto de lo establecido en el inciso b), tomando como base la variación del índice de precios al consumidor.
+(Así reformado el inciso b) anterior por el título II aparte 11) de la ley de Fortalecimiento de las finanzas públicas, N° 9635 del 3 de diciembre de 2018)
 c) A las personas físicas con actividades lucrativas se les aplicará la siguiente escala de tarifas sobre la renta imponible:
 i) Las rentas de hasta ¢3.628.000,00 anuales, no estarán sujetas al impuesto.
 ii) Sobre el exceso de ¢3.628.000,00 anuales y hasta ¢5.418.000,00 anuales, se pagará el diez por ciento (10%).

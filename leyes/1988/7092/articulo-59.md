@@ -4,7 +4,8 @@ De la tarifa del impuesto y de la liquidación y pago
 Artículo 59.-Tarifas
 a) Por el transporte y las comunicaciones se pagará una tarifa del ocho coma cinco por ciento (8,5%).
 b) Por las pensiones, las jubilaciones, los salarios y cualquier otra remuneración que se pague por trabajo personal ejecutado en relación de dependencia, se pagará una tarifa del diez por ciento (10%).
-c) Por los honorarios, las comisiones, las dietas y otras prestaciones de servicios personales ejecutados sin que medie relación de dependencia, se pagará una tarifa del quince por ciento (15%).
+c) Por los honorarios, las comisiones, las dietas y otras prestaciones de servicios personales ejecutados sin que medie relación de dependencia, se pagará una tarifa del veinticinco por ciento (25%).
+(Así reformado el inciso anterior por el título II aparte 16) de la ley de Fortalecimiento de las finanzas públicas, N° 9635 del 3 de diciembre de 2018)
 d) Por los reaseguros, los reafianzamientos y las primas de seguros de cualquier clase, se pagará una tarifa del cinco coma cinco por ciento (5,5%).
 e) Por la utilización de películas cinematográficas, películas para televisión, grabaciones, discos fonográficos, historietas y, en general, cualquier medio de difusión similar de imágenes o sonidos, así como por la utilización de noticias internacionales, se pagará una tarifa del veinte por ciento (20%).
 f) Por radionovelas y telenovelas se pagará una tarifa del cincuenta por ciento (50%).
@@ -17,7 +18,10 @@ Las operaciones que se indican en el presente inciso deberán ser informadas a l
 Los recursos que se recauden en la aplicación de lo dispuesto en este inciso serán transferidos al Fideicomiso Nacional para el Desarrollo establecido en la Ley N.° 8634, de 23 de abril de 2008, y sus reformas, hasta por un monto de quince mil millones de colones (¢15.000.000.000) por año, ajustable cada año por el crecimiento del índice de precios al consumidor. Dicho monto se transferirá siempre y cuando se recaude un monto igual o superior. De recaudarse un monto inferior, se transferirá la totalidad del monto recaudado.
 i) Por cualquier otro pago basado en intereses, comisiones y otros gastos financieros no comprendidos en los enunciados anteriores, se pagará una tarifa del quince por ciento (15%).
 j) Por el asesoramiento técnico-financiero o de otra índole, así como por los pagos relativos al uso de patentes, suministros de fórmulas, marcas de fábrica, privilegios, franquicias y regalías, se pagará una tarifa del veinticinco por ciento (25%).
-k) Por cualquier otra remesa de las rentas de fuente costarricense referidas en los artículos 54 y 55 de esta ley, no contempladas anteriormente, se pagará una tarifa del treinta por ciento (30%).
+k) Por los pagos que se realicen a no domiciliados, con ocasión de espectáculos públicos que ocasionalmente se presenten en el país, se pagará una tarifa del quince por ciento (15%).
+(Así adicionado el inciso anterior por el título II aparte 16) de la ley de Fortalecimiento de las finanzas públicas, N° 9635 del 3 de diciembre de 2018)
+l) Por cualquier otra remesa de las rentas de fuente costarricense referidas en los artículos 54 y 55 de esta ley, no contempladas anteriormente, se pagará una tarifa del treinta por ciento (30%).
+(Corrida la numeración del inciso anterior por el título II aparte 16) de la ley de Fortalecimiento de las finanzas públicas, N° 9635 del 3 de diciembre de 2018, que lo traspaso del antiguio inciso k) al inciso l)
 (Así modificada su numeración por el artículo 1º de ley No. 7551 de 22 de setiembre de 1995, que la traspasó del antiguo 54 al actual)
 (*)(Así reformado tácitamente por la ley No. 7551 de 22 de setiembre de 1995, que al correr la numeración traspasó los antiguos 49 y 50 a los actuales 54 y 55)
 (Así reformado mediante el artículo 60 de la Ley Sistema de Banca para el Desarrollo, N° 8634 del 23 de abril del 2008)
