@@ -1,0 +1,3 @@
+Artículo 12 bis- Cláusula antielusiva general. Cuando se realicen actos que, en lo individual o en su conjunto, sean artificiosos oimpropios para la obtención del resultado conseguido, las consecuencias tributarias aplicables a las partes que en dichos actos hayan intervenido serán las que correspondan a los actos usuales o propios para la obtención del resultado que sehaya alcanzado.
+Lo dispuesto en el párrafo anterior únicamente se aplicará cuando los actos artificiosos o impropios no produzcan efectos económicos o jurídicos relevantes, a excepción del ahorro tributario.
+(Así adicionado por el artículo 39 del título IV de la Ley de Fortalecimiento de las Finanzas Públicas, N° 9635 del 3 de diciembre de 2018)
