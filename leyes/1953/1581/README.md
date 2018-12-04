@@ -1,6 +1,6 @@
 # Estatuto de Servicio Civil
 
-Ley N° 1581 del 1953-05-30. SINALEVI, ficha 32708: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32708&param2=87039&param3=1>.
+Ley N° 1581 del 1953-05-30. SINALEVI, ficha 32708: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32708&param2=114394&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -17,3 +17,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 9 de 18 | 2007-02-21 | Sala Constitucional, resolución 2413-07 (2007-02-21) | 2007-02-21 |
 | 10 de 18 | 2009-11-11 | Ley 8777 | 2009-10-07 |
 | 11 de 18 | 2011-12-19 | Ley 8978 | 2011-09-26 |
+| 12 de 18 | 2018-12-04 | Ley 9635 | 2018-12-03 |

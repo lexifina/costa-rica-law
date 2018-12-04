@@ -1,4 +1,2 @@
-ARTÍCULO 37.—COMPENSACIÓN ECONÓMICA:
-Como compensación económica por las prohibiciones contenidas en el inciso a) del artículo 28, los funcionarios, a quienes alcance, tendrán un sobresueldo que no podrá ser inferior al cuarenta por ciento del salario base correspondiente a la clase de puesto de que se trate.
-Los Asistentes de Procuraduría que no sean abogados tendrán derecho al porcentaje de sobresueldo correspondiente, con base en los estudios académicos aprobados.
-Transitorio.- El porcentaje de sobresueldo que se reconoce en este artículo, en ningún caso podrá ser menor al que esté recibiendo cada servidor, en el momento de entrar en vigencia la presente ley.
+Artículo 37- Compensación económica. Como compensación económica por la prohibición contenida en el inciso a) del artículo 28, los funcionarios, a quienes alcance, tendrán de manera porcentual sobre su salario base un quince por ciento (15%), para los que posean el grado académico de bachiller universitario, y de un treinta por ciento (30%), para los que ostenten el grado de licenciatura u otro superior.
+(Así reformado por el artículo 3° del título III de la Ley de Fortalecimiento de las Finanzas Públicas, N° 9635 del 3 de diciembre de 2018, que adicionó el numeral 57 aparte ñ) a la Ley de Salarios de la Administración Publica, N° 2166 del 9 de octubre de 1957)

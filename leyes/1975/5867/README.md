@@ -1,6 +1,6 @@
 # Ley de compensación por pago de Prohibición
 
-Ley N° 5867 del 1975-12-15. SINALEVI, ficha 2840: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2840&param2=101167&param3=1>.
+Ley N° 5867 del 1975-12-15. SINALEVI, ficha 2840: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2840&param2=114397&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 6 | 1999-08-25 | SINALEVI | 1976-11-09 |
 | 4 de 6 | 1999-08-25 | Ley 6222 | 1978-05-02 |
 | 5 de 6 | 1999-08-25 | SINALEVI | 1999-07-30 |
+| 6 de 6 | 2018-12-04 | Ley 9635 | 2018-12-03 |

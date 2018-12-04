@@ -1,7 +1,2 @@
-Artículo 1º.- Autorízase a la Corte Suprema de Justicia para que, a
-solicitud del funcionario judicial -profesional o egresado cualquiera que
-sea la carrera universitaria-, reconozca los beneficios que establecen los
-incisos a) y b) del artículo 1º de la ley número 5867 del 15 de diciembre
-de 1975. Tal beneficio se otorgará cuando la Corte considere que el cargo
-desempeñado impide ejercer la profesión o que el puesto requiere dedicación
-absoluta.
+Artículo 1- Se autoriza a la Corte Suprema de Justicia, para que reconozca el beneficio por concepto de prohibición al personal profesional que considere que por las funciones atinentes al cargo desempeñado se le impide ejercer la profesión o profesiones liberales de forma particular, o para desempeñar cargos en la empresa privada, la Administración Pública, y las instituciones autónomas o semiautónomas.
+(Así reformado por el artículo 3° del título III de la Ley de Fortalecimiento de las Finanzas Públicas, N° 9635 del 3 de diciembre de 2018, que adicionó el numeral 57 aparte n) a la Ley de Salarios de la Administración Publica, N° 2166 del 9 de octubre de 1957)

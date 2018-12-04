@@ -1,5 +1,5 @@
 Artículo 3º.- Se establece un impuesto del uno por ciento (1%) sobre el valor aduanero de las mercancías importadas, que se deberá pagar en el momento de liquidarse la póliza correspondiente.
-De lo recaudado por este concepto, el Poder Ejecutivo destinará la suma de trescientos cincuenta millones de colones (350.000.000,00), a través del Presupuesto Nacional, y la girará por medio del Ministerio de Hacienda, como subvención, a favor del Consejo Técnico de Asistencia Médico-Social para los programas denominados Centro de Educación y Nutrición y Centros Infantiles de Atención Integral, a cargo del Ministerio de Salud, en los cuales se dará prioridad a las zonas marginadas con mayor densidad de mujeres trabajadoras.
-A partir de 1984, la suma citada en el párrafo anterior se irá ajustando en le mismo porcentaje o tasa de incremento anual de los ingresos totales que se perciban por este tributo.
+(Derogado el párrafo segundo de este numeral por el artículo 37 del título IV de la Ley de Fortalecimiento de las Finanzas Públicas, N° 9635 del 3 de diciembre de 2018)
+(Derogado el párrafo tercero de este numeral por el artículo 37 del título IV de la Ley de Fortalecimiento de las Finanzas Públicas, N° 9635 del 3 de diciembre de 2018)
 (Así reformado por el artículo 1º de la Ley Nº 6946 de 13 de enero de 1984)
-NOTA: La reforma introducida a este artículo por el artículo 15 de la Ley Nº 6966 de 28 de setiembre de 1984, fue anulada por Resolución de la Sala Constitucional Nº 1185-95 de las 14:33 horas del 2 de marzo de 1995.
+(Nota: La reforma introducida a este artículo por el artículo 15 de la Ley Nº 6966 de 28 de setiembre de 1984, fue anulada por Resolución de la Sala Constitucional Nº 1185-95 de las 14:33 horas del 2 de marzo de 1995.)

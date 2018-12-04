@@ -1,0 +1,2 @@
+Artículo 39- Auxilio de cesantía. La indemnización por concepto de auxilio de cesantía de todos los funcionarios de las instituciones, contempladas en el artículo 26 de la presente ley, se regulará según lo establecido en la Ley N° 2, Código de Trabajo, de 27 de agosto de 1943, y no podrá superar los ocho años.
+(Así adicionado por el artículo 3° del título III de la Ley de Fortalecimiento de las Finanzas Públicas, N° 9635 del 3 de diciembre de 2018)

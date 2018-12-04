@@ -1,0 +1,2 @@
+Artículo 50- Sobre el monto del incentivo. A partir de la entrada en vigencia de esta ley, el incentivo por anualidad de los funcionarios públicos cubiertos por este título será un monto nominal fijo para cada escala salarial, monto que permanecerá invariable.
+(Así adicionado por el artículo 3° del título III de la Ley de Fortalecimiento de las Finanzas Públicas, N° 9635 del 3 de diciembre de 2018)

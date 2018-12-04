@@ -1,0 +1,2 @@
+Artículo 29- Justificación. Previo a la suscripción de los contratos, el jerarca de la Administración deberá acreditar, mediante resolución administrativa razonada, la necesidad institucional y la relación de costo oportunidad de suscribir dichos contratos, en razón de las funciones que ejerzan el o los funcionarios y el beneficio para el interés público.
+(Así adicionado por el artículo 3° del título III de la Ley de Fortalecimiento de las Finanzas Públicas, N° 9635 del 3 de diciembre de 2018)

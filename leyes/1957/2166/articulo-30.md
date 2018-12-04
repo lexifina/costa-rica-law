@@ -1,0 +1,2 @@
+Artículo 30- Prórroga del contrato. Sesenta días naturales antes de su vencimiento, el funcionario deberá solicitar la prórroga a la jefatura inmediata para que la Administración revise la solicitud, a fin de determinar la necesidad institucional de la extensión, mediante resolución debidamente razonada establecida en el artículo 29 anterior, prórroga que no podrá ser menor de un año, ni mayor de cinco.
+(Así adicionado por el artículo 3° del título III de la Ley de Fortalecimiento de las Finanzas Públicas, N° 9635 del 3 de diciembre de 2018)
