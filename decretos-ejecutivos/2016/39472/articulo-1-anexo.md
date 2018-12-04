@@ -251,14 +251,15 @@ SECCIÓN E. SUMINISTRO DE AGUA; EVACUACIÓN DE AGUAS RESIDUALES, GESTIÓN DE DES
 | 370 | 3700 | Evacuación de aguas residuales y lodos (recolección, tratamiento y transporte) | A
 38 | | | RECOLECCION, TRATAMIENTO Y ELIMINACIÓN DE DESECHOS; RECUPERACIÓN DE MATERIALES |
 | 381 | | Recolección de desechos |
-| | 3811 | Recolección de desechos no peligrosos | A
+| | 3811 | Recolección de desechos no peligrosos. Gestión de estaciones de transferencia de desechos no peligrosos. (Así reformado el párrafo anterior por el artículo 59 del Reglamento para el trámite digital de registros y autorizaciones del Ministerio de Salud en la gestión de residuos en la plataforma SINIGIR, aprobado mediante decreto ejecutivo N° 41525 del 4 de diciembre del 2018) | A
 | | 3812 | Recolección de desechos peligrosos | A
 | 382 | | Tratamiento y eliminación de desechos |
-| | 3821 | Tratamiento y eliminación de desechos no peligrosos(incluye la producción de humus, compost o abono orgánico) | A
-| | 3822 | Tratamiento y eliminación de desechos peligrosos (rellenos sanitarios) | A*
-| 383 | 3830 | Recuperación de materiales (centros de acopio) | A
+| | 3821 | Tratamiento y eliminación de desechos no peligrosos(incluye la producción de humus, compost o abono orgánico), Rellenos sanitarios, eliminación de desechos no peligrosos mediante coincineración), producción de electricidad mediante la incineración de desechos, exploración de vertederos para la eliminación de desechos no peligrosos. (Así reformado el párrafo anterior por el artículo 59 del Reglamento para el trámite digital de registros y autorizaciones del Ministerio de Salud en la gestión de residuos en la plataforma SINIGIR, aprobado mediante decreto ejecutivo N° 41525 del 4 de diciembre del 2018) | A
+| | 3822 | Tratamiento y eliminación de desechos peligrosos (rellenos Sanitarios, incineración) (animales contaminados, incineración de desechos peligrosos, tratamiento, remoción y almacenamientos de desechos nucleares radiactivos) (Así reformado el párrafo anterior por el artículo 59 del Reglamento para el trámite digital de registros y autorizaciones del Ministerio de Salud en la gestión de residuos en la plataforma SINIGIR, aprobado mediante decreto ejecutivo N° 41525 del 4 de diciembre del 2018) | A*
+| 383 | 3830 | Recuperación de materiales ( incluye separación, clasificación valorización, procesamiento, Centros de Recuperación de Residuos Valorizables. (Así reformado el párrafo anterior por el artículo 59 del Reglamento para el trámite digital de registros y autorizaciones del Ministerio de Salud en la gestión de residuos en la plataforma SINIGIR, aprobado mediante decreto ejecutivo N° 41525 del 4 de diciembre del 2018) | A
 39 | | | ACTIVIDADES DE DESCONTAMINACIÓN Y OTROS SERVICIOS DE GESTIÓN DE DESECHOS |
 | 390 | 3900 | Actividades de descontaminación y otros servicios de gestión de desechos (descontaminación de suelos, aguas, eliminación de materiales tóxicos, etc) | A
+| | 3900 | Actividades de esterilización para equipos, materiales sustancias y otras (infecciosos y no infecciosos) (Así adicionado el párrafo anterior por el artículo 59 del Reglamento para el trámite digital de registros y autorizaciones del Ministerio de Salud en la gestión de residuos en la plataforma SINIGIR, aprobado mediante decreto ejecutivo N° 41525 del 4 de diciembre del 2018) | B (Así adicionado el punto anterior por el artículo 59 del Reglamento para el trámite digital de registros y autorizaciones del Ministerio de Salud en la gestión de residuos en la plataforma SINIGIR, aprobado mediante decreto ejecutivo N° 41525 del 4 de diciembre del 2018
 SECCIÓN G. COMERCIO AL POR MAYOR Y AL POR MENOR; REPARACIÓN DE VEHÍCULOS AUTOMOTORES Y MOTOCICLETAS
 45 | | | COMERCIO AL POR MAYOR Y AL POR MENOR Y REPARACIÓN DE VEHÍCULOS AUTOMOTORES Y MOTOCICLETAS |
 | 451 | 4510 | Venta de vehículos automotores | C
