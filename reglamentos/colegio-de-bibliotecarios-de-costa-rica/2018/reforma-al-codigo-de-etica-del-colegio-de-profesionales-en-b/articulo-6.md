@@ -1,0 +1,2 @@
+Artículo 6º—Se modifica en el Capítulo X el inciso c, para que en lo sucesivo se lea de la siguiente forma:
+“c. Los profesionales en bibliotecología tienen el deber de demostrar cortesía y respeto hacia auxiliares y asistentes en el área, así como a orientarlos en el desempeño de su labor. No valerse de su condición de funcionario de la unidad de información para obtener ventajas de cualquier índole”.

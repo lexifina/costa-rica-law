@@ -1,0 +1,3 @@
+Artículo 4º—Se modifica en el Capítulo IX el inciso a, para que en lo sucesivo se lea de la siguiente forma:
+“a. El profesional en bibliotecología debe estar consciente de la importancia de su papel en el desarrollo de la vida social del país, como informadores y formadores de cultura y de valores ciudadanos, por lo que deben ofrecen servicios bibliotecarios de excelencia, para lo que mantienen una actualización profesional permanente y estimular la de sus colegas, propiciando la participación en eventos que redunden en el enriquecimiento del desarrollo profesional y en el conocimiento y reconocimiento de la bibliotecología.
+c. El profesional en bibliotecología es un intermediario responsable entre los recursos (fuentes, servicios y sistemas) y los usuarios.
