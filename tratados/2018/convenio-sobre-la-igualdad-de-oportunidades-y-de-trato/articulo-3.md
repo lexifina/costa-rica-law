@@ -1,0 +1,3 @@
+Artículo 3
+1. Con miras a crear la igualdad efectiva de oportunidades y de trato entre trabajadores y trabajadoras, cada Miembro deberá incluir entre los objetivos de su política nacional el de permitir que las personas con responsabilidades familiares que desempeñen o deseen desempeñar un empleo ejerzan su derecho a hacerlo sin ser objeto de discriminación y, en la medida de lo posible, sin conflicto entre sus responsabilidades familiares y profesionales.
+2. A los fines del párrafo 1 anterior, el término «discriminación» significa la discriminación en materia de empleo y ocupación tal como se define en los artículos 1 y 5 del Convenio sobre la discriminación (empleo y ocupación), 1958.

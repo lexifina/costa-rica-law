@@ -1,0 +1,2 @@
+Artículo 6
+Las autoridades y organismos competentes de cada país deberán adoptar medidas apropiadas para promover mediante la información y la educación una mejor comprensión por parte del público del principio de la igualdad de oportunidades y de trato entre trabajadores y trabajadoras y acerca de los problemas de los trabajadores con responsabilidades familiares, así como una corriente de opinión favorable a la solución de esos problemas.
