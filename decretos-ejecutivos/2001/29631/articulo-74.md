@@ -6,5 +6,6 @@ iv. los elementos que planteen dudas, en el presente o a futuro;
 v. la descripción del ambiente académico, la actitud profesional y la calidad del personal y de los alumnos;
 vi. el uso de las instalaciones y los servicios que ofrece; y
 vii. si los inspectores lo juzgan oportuno, sugerencias de mejoramiento.
-Este Consejo analizará el informe y dará traslado del mismo a la universidad objeto de inspección, a efecto de que dentro del plazo de 10 días hábiles contados a partir del recibo del informe, se pronuncie sobre las observaciones que se le hagan. Conferida la audiencia el CONESUP decidirá lo pertinente de conformidad con la Ley y el presente Reglamento.
+Sobre el informe elaborado, la Secretaría Técnica concederá audiencia a la universidad objeto de inspección, por el plazo de 10 días hábiles, a efecto de que manifieste lo que estime conveniente y aporte las pruebas pertinentes. Cumplido lo anterior, se procederá a elaborar un informe final de investigación, el cual se remitirá al Consejo del CONESUP acompañado con el expediente administrativo levantado al efecto, con el fin de que decida lo pertinente.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 41552 del 5 de diciembre del 2018)
 (Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 35810 del 20 de enero de 2010, que lo traspasó del antiguo artículo 64 al 74 actual)
