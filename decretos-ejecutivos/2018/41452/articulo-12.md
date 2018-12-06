@@ -1,0 +1,1 @@
+Artículo 12.—Persona asesora. Cada representante ante El Consejo tendrá la facultad de elegir una persona, quien en calidad de asesor (a) podrá asistir a las sesiones del Consejo cuando así lo requiera cada representante o a solicitud del Consejo, en estas tendrá voz pero no voto.

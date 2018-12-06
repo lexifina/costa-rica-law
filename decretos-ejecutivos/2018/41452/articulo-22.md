@@ -1,0 +1,2 @@
+Artículo 22.—Comité Técnico Asesor. El Consejo dentro de las comisiones especiales de trabajo permanentes constituirá una Comisión denominada Comité Técnico Asesor, conformada por un representante técnico de cada una de las instancias que integran el Consejo. Deberá nombrarse, además, una persona suplente. Ambas designaciones las realizará la máxima autoridad de la institución u organización que representan.
+Este Comité será coordinado por la Secretaría Técnica del Consejo.

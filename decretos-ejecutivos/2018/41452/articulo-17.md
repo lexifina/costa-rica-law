@@ -1,0 +1,1 @@
+Artículo 17.—Del trabajo interinstitucional. Las organizaciones públicas que integran el Consejo deberán articular acciones para el trabajo interinstitucional en el marco de concertación y coordinación que supone el Consejo para el efectivo cumplimiento de los derechos de las personas menores de edad.

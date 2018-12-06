@@ -1,0 +1,3 @@
+Artículo 24.—Otras instancias coadyuvantes. El Consejo podrá fortalecer su gestión por medio de invitación a personas e instancias especiales, que no forman parte del mismo, para que participen de forma temporal o permanente en las sesiones del Consejo.
+La invitación puede ser propuesta por cualquiera de sus integrantes, y será consignada en el orden del día para su análisis y aprobación por parte del Consejo.
+La participación deberá ser acordada por votación de dos tercios de la totalidad de los miembros del Consejo. Las personas o instancias invitadas que participen de las sesiones del Consejo, tendrán voz pero no voto.

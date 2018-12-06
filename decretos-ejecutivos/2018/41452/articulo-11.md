@@ -1,0 +1,1 @@
+Artículo 11.—De la suplencia del Consejo. En caso de ausencia definitiva de la persona propietaria, ésta será sustituida por el o la suplente designada, hasta que se proceda a realizar el nuevo nombramiento que regirá por el resto del período correspondiente.

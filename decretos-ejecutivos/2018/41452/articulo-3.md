@@ -1,0 +1,2 @@
+Artículo 3º—Competencia. De acuerdo con lo establecido en el artículo 170 del Código de la Niñez y la Adolescencia, El Consejo tendrá como competencia asegurar que la formulación y ejecución de las políticas públicas estén conformes con la política de protección integral de los derechos de las personas menores de edad, en el marco de dicho Código y de acuerdo con los principios en él establecidos.
+Las instituciones gubernamentales que integran El Consejo conservarán las competencias constitucionales y legales propias.
