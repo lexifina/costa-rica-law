@@ -1,0 +1,4 @@
+Artículo 5º—Comisiones de trabajo. Para la formulación, ejecución y evaluación de las intervenciones, el Área contará con las siguientes comisiones técnicas de trabajo:
+a) Comisión de Articulación Interinstitucional: Estará conformada por un enlace de alto nivel de cada una de las instituciones parte del Área. Le corresponderá la articulación interinstitucional para el cumplimiento de los objetivos estratégicos del Área y la implementación de los acuerdos del Consejo del Área.
+b) Comisión de Cogestión Territorial: Estará conformada por un equipo de funcionarios técnicos de las instituciones que forman parte del Área y le corresponde la formulación y el seguimiento de los planes maestros en cada uno de los territorios intervenidos, según los lineamientos del Consejo.
+c) Comisión de Evaluación: Estará conformada por un equipo de funcionarios designados y bajo la dirección del Ministerio de Planificación Nacional y Política Económica.
