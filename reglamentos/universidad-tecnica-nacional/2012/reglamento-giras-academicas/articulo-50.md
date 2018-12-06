@@ -1,0 +1,1 @@
+Artículo 50- El uso de equipo de trabajo de campo de la UTN está sujeto a las posibilidades de préstamo de la unidad académica y el responsable de la gira será el encargado del equipo de trabajo y de velar por el buen uso del mismo en conjunto con los estudiantes.

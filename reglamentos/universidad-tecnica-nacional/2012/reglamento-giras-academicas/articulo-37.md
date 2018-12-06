@@ -1,3 +1,1 @@
-CAPÍTULO VIII
-DE LOS EQUIPOS Y OTROS BIENES
-Artículo 37.- Queda a criterio de los estudiantes y del profesor que asistan a una gira portar equipo o cualquier otro objeto de valor. No obstante, la institución no se responsabilizará por la pérdida o extravío de dichos objetos.
+Artículo 37- El responsable de la gira no será culpable por acciones o conductas indebidas que asuma el estudiante durante su tiempo libre y que atenten contra su integridad física o moral.

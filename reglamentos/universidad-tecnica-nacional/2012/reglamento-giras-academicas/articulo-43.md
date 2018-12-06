@@ -1,3 +1,1 @@
-CAPITULO IX
-COBERTURA DE RIESGOS
-Artículo 43.- Todos los participantes de la gira deberán contar con una póliza de cobertura de riesgos.
+Artículo 43- Cualquier participante de la gira podrá denunciar ante el Director respective el incumplimiento de las obligaciones del responsable de la gira, así como cualquier situación que considere impropia o inapropiada por parte de cualesquiera de los participantes en la gira. Para las giras internacionales, el caso deberá elevarse a la Coordinación General de la Carrera.

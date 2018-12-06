@@ -14,3 +14,4 @@ Reglamento Giras Académicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-07-31 | la propia norma |
+| 2 | 2018-12-06 | Reglamento 27 (2018-12-06) |

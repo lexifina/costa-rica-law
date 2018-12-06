@@ -1,1 +1,1 @@
-Artículo 45.- Este Reglamento rige a partir de su aprobación.
+Artículo 45- El Director de Carrera deberá verificar la ejecución de la gira nacional a través del informe remitido por el responsable de la gira. Este mismo requisito deberá ser cumplido por la Coordinación General de la Carrera en las giras internacionales.

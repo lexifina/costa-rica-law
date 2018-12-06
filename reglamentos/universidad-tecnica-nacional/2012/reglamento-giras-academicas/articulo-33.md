@@ -1,1 +1,2 @@
-Artículo 33.- De igual forma deberá verificar la ejecución de la gira a través del informe remitido por el responsable de la gira.
+Artículo 33- En caso que el estudiante cometa una falta durante la gira, el responsible deberá levantar el acta correspondiente y presentar la respectiva denuncia de conformidad con los lineamientos del Régimen Disciplinario Estudiantil. En caso que se haya interpuesto alguna medida cautelar, esta denuncia deberá presentarse dentro de las veinticuatro horas hábiles siguientes.
+En el caso de las giras internacionales, además, se aplicará la normativa del país receptor y estas situaciones deberán ser informadas inmediatamente a la Coordinación General de la Carrera.

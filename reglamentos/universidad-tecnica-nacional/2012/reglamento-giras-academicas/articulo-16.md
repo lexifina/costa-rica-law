@@ -1,1 +1,1 @@
-Artículo 16.- En cualquier gira se acatará estrictamente la normativa Institucional vigente tanto de la UTN como del lugar que se visite.
+Artículo 16- La propuesta de toda gira internacional deberá ser formulada y aprobada porla Coordinación General de la Carrera mediante acuerdo fundamentado y remitirse a laVDOC para su aval y visto bueno para la coordinación de las acciones respectivas con la DICE.

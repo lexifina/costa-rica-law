@@ -1,1 +1,2 @@
-Artículo 31.- Cualquier participante de la gira podrá denunciar ante el Director respectivo el incumplimiento de las obligaciones del responsable de la gira, así como cualquier situación que considere impropia o inapropiada por parte de cualesquiera de los participantes en la gira.
+Artículo 31- El responsable de la gira deberá entregar a sus estudiantes y al Director respectivo, el plan de trabajo de las giras con al menos quince días naturales de antelación, para su respectivo conocimiento, preparación y discusión con los participantes.
+En los casos de las giras internacionales, aplicará lo dispuesto por el convenio y el plan de giras.

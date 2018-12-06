@@ -1,1 +1,1 @@
-Artículo 28.- Los estudiantes becados deberán presentar a la Dirección de Vida Estudiantil el programa de giras, en un plazo máximo de tres semanas luego de iniciado el ciclo lectivo, para que se les brinde la ayuda económica correspondiente en caso de que su beca la contemple.
+Artículo 28- En cualquier gira se acatará estrictamente la normativa Institucional vigente tanto de la UTN como del lugar que se visite.

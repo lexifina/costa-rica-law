@@ -1,3 +1,5 @@
-CAPÍTULO III
-NORMAS DE CONDUCTA DURANTE LA GIRA
-Artículo 14.- En ninguna gira se permitirá fumar, consumir bebidas alcohólicas o cualquier otro tipo de droga (lícita o no), excepto aquellos medicamentos que la persona deba injerir bajo prescripción médica.
+SECCIÓN II
+GIRAS INTERNACIONALES
+Artículo 14- Se considerarán giras académicas internacionales aquellas estancias académicas por parte de estudiantes regulares de la Institución en centros de educación superior o empresas internacionales, mediante instrumento de cooperación suscrito a través de la Dirección Internacional de Cooperación Externa (en adelante DICE) con una institución receptora en el extranjero (centro de enseñanza o empresa), y que cumpla con los objetivos establecidos en el artículo 3 de este Reglamento.
+Toda gira académica internacional, sin excepción, deberá ajustarse a los objetivos y contenidos del curso o cursos de la malla curricular, práctica, proyecto o programa.
+La Dirección de Carrera coordinará lo necesario para que una misma gira académica internacional pueda corresponder a objetivos de diferentes cursos, prácticas, proyectos o programas del mismo ciclo lectivo o de diferentes ciclos lectivos en los casos que así se establezca, con el fin de que las mismas no sean repetitivas o innecesarias.

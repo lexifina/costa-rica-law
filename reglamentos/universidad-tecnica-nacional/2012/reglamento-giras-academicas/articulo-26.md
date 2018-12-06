@@ -1,1 +1,3 @@
-Artículo 26.- Si por algún motivo especial un estudiante, una vez terminadas las actividades y sin la autorización del responsable de la gira, no regresa con el grupo, el responsable quedará exento de toda culpa.
+CAPÍTULO III
+NORMAS DE CONDUCTA DURANTE LA GIRA
+Artículo 26- En ninguna gira se permitirá fumar, consumir bebidas alcohólicas o cualquier otro tipo de droga (lícita o no), excepto aquellos medicamentos que la persona deba injerir bajo prescripción médica.

@@ -1,1 +1,1 @@
-Artículo 2.- Se entiende por giras académicas aquellas actividades que implican el desplazamiento de un grupo de estudiantes, dentro o fuera del país, con su respectivo docente del curso, encargado de la práctica, proyecto o programa, como responsable.
+Artículo 2.- Se entiende por giras académicas aquellas actividades que implican el desplazamiento de un grupo de estudiantes, dentro o fuera del país, con su respective docente del curso, encargado de la práctica, proyecto o programa, como responsable.

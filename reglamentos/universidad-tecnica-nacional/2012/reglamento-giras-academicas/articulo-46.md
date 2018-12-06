@@ -1,0 +1,1 @@
+Artículo 46- El Director de Carrera deberá Informar a los responsables de la gira sobre los trámites para la liquidación de viáticos, procedimiento en cuanto al uso del transporte institucional, cuentas presupuestarias y códigos de subprogramas presupuestarios.
