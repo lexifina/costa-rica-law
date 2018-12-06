@@ -1,0 +1,16 @@
+CONSEJO NACIONAL DE PERSONAS CON DISCAPACIDAD
+Con fundamento en los acuerdos firmes 3D-593-2017 de la sesión ordinaria N° 71 de octubre de 2017 y JD-712-2018 de la sesión Ordinaria N° 8 del 22 de marzo de 2018, de la Junta Directiva, se realizan las siguientes enmiendas al Reglamento para la Asignación, Uso y Control de Servido Telefónico Celular Propiedad del Consejo Nacional de Personas con Discapacidad, Conapdis para que en adelante se lea de la siguiente manera:
+CAPÍTULO II
+De la Asignación del Servicio Telefónico Celular
+Artículo 3º—Personas funcionarias a las que procede la asignación del servicio telefónico celular: Se autoriza la asignación del servicio telefónico celular a la persona funcionaria titular, de los siguientes puestos:
+a) Miembros del Comité Directivo de la Junta Directiva, durante el ejercicio de sus cargos.
+b) Dirección Ejecutiva
+c) Asesores y asesoras del Programa del Servicio de Convivencia Familiar.
+d) Contralor de Servicios
+Además, quien ostente el puesto en la Dirección Ejecutiva, previa verificación de la disponibilidad de servicios telefónicos celular podrá autorizar el uso de este servicio a otras personas funcionarias del CONAPDIS. En este supuesto la persona titular de la Dirección Ejecutiva deberá asignar el servicio telefónico mediante resolución razonada, indicando como mínimo: las razones para otorgarlo, la duración, condiciones en que el mismo se proveerá, la relación directa con las funciones que desempeña en la Unidad, Dirección o Sede Regional en que se desempeña y con el señalamiento expreso de que el servicio asignado deberá ser usado de conformidad con este Reglamento.
+Artículo 8º—Adquisición de planes de consumo: El servicio telefónico celular asignado utilizará el sistema postpago, de tal manera que se adquieran planes de consumo de preferencia de una institución estatal, al tenor de la directriz presidencial 70-H que propicien teléfonos móviles de última generación gratuitos con la adquisición de dichos planes propiciando la renovación bianual delos mismos y los dispositivos que con ellos se integran.
+Cuando alguna de las personas señaladas en el artículo 3 de este reglamento así como las personas autorizadas por la Dirección Ejecutiva requieran de una plan de consumo celular o un dispositivo móvil con características de accesibilidad, así lo hará saber mediante oficio dirigidos a la Dirección Ejecutiva del Conapdis, quien valorará la solicitud o no su visto bueno, para la adquisición de lo requerido, al tenor de lo que establece la Ley 7600 Ley de Igualdad de Oportunidades para las personas con discapacidad y normativa conexa.
+En caso de que el consumo telefónico sea mayor al establecido en el presente Reglamento, éste deberá ser cubierta por la persona funcionaria.
+Para estos efectos, la Unidad Financiero-Contable llevará un estricto control mensual del consumo telefónico realizado por las personas a las que se les asigna el servicio.
+Ningún teléfono celular tendrá acceso a la línea 900, por lo que la Unidad Financiero Contable corroborará y hará los trámites correspondientes, a fin de suspender este servicio ante el proveedor del servicio telefónico celular.
+Los montos usados como tarifa de consumo serán actualizados en la fecha de vencimiento de cada plan adquirido en función de las ventajas que ofrezca el proveedor de los servicios telefónicos. Es todo.
