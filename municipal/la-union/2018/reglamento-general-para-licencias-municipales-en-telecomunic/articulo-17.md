@@ -1,0 +1,1 @@
+Artículo 17.—Cuando sea acordado con la Municipalidad, este tipo de infraestructura de telecomunicaciones podrá ser mimetizada o camuflada para mermar el impacto visual, de acuerdo con lo establecido por la Dirección General de Aviación Civil.

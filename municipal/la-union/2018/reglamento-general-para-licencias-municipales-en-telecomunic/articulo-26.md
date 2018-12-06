@@ -1,0 +1,1 @@
+Artículo 26.—En caso de ampliación o modificación de las Obras Constructivas, en donde se presenten cambios sustanciales, se deberá cumplir con los trámites de Licencia de Construcción señalados en este Reglamento.

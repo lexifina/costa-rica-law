@@ -1,0 +1,13 @@
+Artículo 20.—Son obligaciones además para los propietarios de las Obras Constructivas para telecomunicaciones, personas físicas o jurídicas, públicas o privadas, las siguientes:
+20.1. Colocar desde el inicio del proceso constructivo y mantener actualizado durante la vida útil de la Obras Constructivas para telecomunicaciones, un rótulo visible en la entrada al predio correspondiente, con una dimensión minina de 0,45 x 0,60 metros, de cualquier material resistente, que contenga los siguientes datos:
+a) Nombre, denominación o razón social.
+b) Número de Licencia de Construcción.
+c) Números telefónicos de contacto en caso de emergencias y para el mantenimiento de la Obra Constructiva.
+d) Domicilio y/o medio para recibir notificaciones.
+20.2 Mantener en buen estado físico y en condiciones de seguridad las Obras Constructivas para telecomunicaciones.
+20.3. Pagar y mantener al día la póliza de seguro por responsabilidad civil a terceros.
+20.4 Notificar y solicitar cualquier cambio constructivo que varíe la Obras Constructivas para telecomunicaciones y obtener la autorización correspondiente.
+20.5 Presentar ante la Dirección de Desarrollo y Control Urbano por medio de la plataforma de servicio en un plazo máximo de ocho días hábiles posteriores a la conclusión de las Obras Constructivas para telecomunicaciones, el informe del profesional responsable, en el que se acredite la ejecución conforme al proyecto, así corno el cumplimiento estricto de las condiciones técnicas de Ley, medidas correctivas y condiciones establecidas e impuestas en la Licencia de Construcción otorgada.
+20.6 Acatar las normas nacionales constructivas aplicables, las reglamentaciones y demás lineamientos emitidos tanto por la SUTEL, autoridades nacionales competentes en la materia, así como las emitidas por la Municipalidad.
+20.7 Contar con los alineamientos nacionales o locales cuando se requieran conforme a la Ley.
+20.8 Contar con la Licencia comercial al día por el giro de sus actividades en el cantón.

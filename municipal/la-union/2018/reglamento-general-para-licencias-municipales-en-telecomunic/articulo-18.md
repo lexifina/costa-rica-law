@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Obligaciones de los interesados
+Artículo 18.—Es obligación de las personas físicas o jurídicas, públicas o privadas, que soliciten licencias Municipales, estar al día con el pago de impuestos y tributos Municipales.

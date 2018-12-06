@@ -1,0 +1,1 @@
+Artículo 13.—Se deberá mantener una franja de amortiguamiento minina alrededor de una Obra Constructiva para telecomunicaciones de diez por ciento (10%) de la altura de la torre de telecomunicaciones, medida desde el centro de la base de la misma.

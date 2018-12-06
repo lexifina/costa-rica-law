@@ -1,0 +1,3 @@
+Transitorio 3º—Las solicitudes rechazadas antes de la publicación de este Reglamento y que no se hubieran impugnado conforme a los procedimientos previstos en el Código Municipal, o las que no hubieran reunido los requisitos establecidos en este Reglamento, se podrán presentar como solicitudes nuevas para los efectos del inciso a) del Transitorio Primero, sin que prevalezcan sobre las presentadas con posterioridad a la aprobación del Reglamento con los requisitos debidamente cumplidos. Se da un plazo de 10 días para las observaciones.
+Acuerdo aprobado firme y al no haberse recibido objeciones y ni observaciones dentro del plazo de ley se publica como el nuevo Reglamento General para Licencias Municipales en Telecomunicaciones
+La Unión, 16 de octubre del 2018.

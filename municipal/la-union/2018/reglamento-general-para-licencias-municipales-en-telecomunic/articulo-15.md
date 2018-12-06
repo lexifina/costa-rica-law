@@ -1,0 +1,1 @@
+Artículo 15.—Se permitirá la instalación de antenas sobre techos en edificios, azoteas, postes o vallas existentes. En el caso que para soportar la antena se requiera el desarrollo de una obra civil, se deberá presentar el estudio estructural que certifique la resistencia de la misma.
