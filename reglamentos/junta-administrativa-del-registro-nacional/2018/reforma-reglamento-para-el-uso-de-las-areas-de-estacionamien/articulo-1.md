@@ -1,0 +1,64 @@
+JUNTA ADMINISTRATIVA DEL REGISTRO NACIONAL
+REFORMA AL REGLAMENTO PARA EL USO DE LAS
+ÁREAS DE ESTACIONAMIENTOS SEDE CENTRAL
+DEL REGISTRO NACIONAL
+Con fundamento en el artículo 28 de la Ley General de la Administración Pública, Ley N° 6227 de 02 mayo de 1978; el artículo 1, inciso e) del artículo 4 de la Ley de Creación del Registro Nacional, Ley N° 5695 de 28 de mayo de 1975.
+Considerando:
+I.—Que en el Diario Oficial La Gaceta N° 35 del 19 de febrero de 2013 se publica el Reglamento para el uso de las áreas de estacionamientos Sede Central del Registro Nacional, contando por primera vez con un instrumento reglamentario propio a nivel institucional.
+II.—Que ante la necesidad de modernización y agilidad de gestión administrativa, es menester revisar dicha normativa, para que estas tengan un uso claro y preciso que regule de manera adecuada el uso de las áreas de estacionamientos, por lo que al haberse implementado hace cinco años el cuerpo reglamentario, se ha identificado la conveniencia de modificar algunos de sus artículos dispuestos en el texto anterior.
+II.—Que mediante, Acuerdo N° J356-2018, tomado por la Junta Administrativa del Registro Nacional, en la Sesión N° 29- 2018, celebrada de manera extraordinaria el 01 de agosto de 2018, se aprueba la reforma al Reglamento, conforme a la propuesta presentada por la Dirección General al Órgano Colegiado.
+PROMULGA:
+REFORMA AL REGLAMENTO PARA EL USO
+DE LAS ÁREAS DE ESTACIONAMIENTOS SEDE
+CENTRAL DEL REGISTRO NACIONAL
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1º—Objeto. La presente disposición regula el uso de áreas de estacionamientos para automóviles y motocicletas de la Sede Central del Registro Nacional (en adelante denominado el Registro), estableciendo su administración, los deberes y responsabilidades de los usuarios a quienes se concede permiso de uso, así como las sanciones a la violación de lo aquí estipulado.
+Artículo 2º—Finalidad. El área de estacionamiento es para uso de los vehículos oficiales del Registro, sin embargo, la Dirección Administrativa de conformidad con los parámetros que indica el presente Reglamento asignará los espacios restantes.
+Artículo 3º—Carácter del Permiso de uso. No es obligación del Registro Nacional proporcionar espacio de parqueo para los vehículos automotores propiedad de sus funcionarios. La autorización para el uso del espacio de estacionamiento es una concesión de gracia y se cataloga como un permiso temporal de uso, por lo que no podrá considerarse salario en especie, ni genera derecho alguno para el beneficiario. Por lo anterior el Registro por razones de oportunidad, puede destinar dichas áreas, temporal o definitivamente a otros fines prioritarios.
+Artículo 4º—Espacios destinados para discapacitados y visitantes. Los espacios disponibles para discapacitados y visitantes serán exclusivamente para este fin, sin que pueda ubicarse temporalmente en ese lugar algún funcionario o visitante que no cuente con los requisitos exigidos por la ley para utilizarlo.
+Artículo 5º—Horario. Para los miembros de la Junta Administrativa y funcionarios del Registro el horario para estacionar los vehículos será de lunes a viernes de 6:00 a. m. hasta las 10:00 p. m.; en todos los demás casos el horario de permanencia dentro del estacionamiento será de las 8:00 a. m. a 4:00 p. m. En casos especiales se podrá ampliar el horario y habilitar otros; previa autorización de la Dirección General o la Dirección Administrativa. Para funcionarios que tengan otra jornada ordinaria o especial, se entenderá que el horario de parqueo se extiende desde una hora antes hasta una hora después de dicha jornada.
+Artículo 6º—Responsabilidad del Registro. El estacionamiento es un servicio gratuito y la Institución no se hará responsable por robo de vehículos y objetos dejados en ellos, colisiones, contingencias tales como, pero no limitadas a: inundación, temblor, desprendimiento de objetos u otros de naturaleza similar, o cualquier otro daño que le ocurra al automotor.
+Artículo 7º—No ampliación del área utilizada para estacionamiento. No se podrá en ningún caso utilizar para estacionamiento, las áreas destinadas a áreas verdes o aquellos nuevos terrenos que adquiera el Registro Nacional, salvo que en caso de fuerza mayor o caso fortuito la Dirección General o la Dirección Administrativa así lo autorice.
+CAPÍTULO II
+Administración del estacionamiento
+Artículo 8º—Administrador del Estacionamiento. El estacionamiento estará bajo la administración de la Dirección Administrativa del Registro Nacional, o a quien esta designe al efecto, la que velará por su correcta y óptima utilización, para lo cual contará con el apoyo de los encargados de la Seguridad, la cual se encargará de verificar el cabal cumplimiento de las normas que disponga este Reglamento.
+Artículo 9º—Asignación de espacios. Exceptuando los espacios asignados a los miembros de la Junta Administrativa del Registro Nacional, la Dirección Administrativa, asignará cada espacio con estricto apego a los siguientes aspectos y en este orden: 1) A las jefaturas formales del Registro Nacional, y 2) Por antigüedad en el Registro Nacional. En caso de empate entre dos o más funcionarios, la asignación se hará aplicando la prioridad en la fecha y hora de la presentación de la solicitud de parqueo. Es indispensable que quien solicite un espacio sea propietario de al menos un vehículo automotor o motocicleta. La asignación de un espacio es para el funcionario, no al vehículo; en caso de asignarse un espacio para un automóvil no se podrá utilizar para aparcar una motocicleta, bicicleta u otro medio de transporte.
+Artículo 10.—Permiso de Estacionamiento. Para el uso de las áreas de estacionamientos, la Dirección Administrativa de acuerdo con lo dispuesto en el presente reglamento y de conformidad con las necesidades de uso, expedirá un marchamo o sticker que deberá ser colocado en un lugar visible del parabrisas delantero del vehículo automotor o al frente de la motocicleta.
+Artículo 11.—Solicitud de Permiso de Estacionamiento. El funcionario que desee un permiso de estacionamiento deberá plantear la solicitud del respectivo permiso de estacionamiento ante la Dirección Administrativa, adjuntando copia de su licencia de conducir y del derecho de circulación del vehículo. En su solicitud el funcionario deberá manifestar que conoce el presente reglamento y la aceptación expresa de sus disposiciones.
+Una vez asignados por la Dirección Administrativa todos los espacios disponibles en las áreas de estacionamiento, las modificaciones en la jerarquía y antigüedad que se generen posteriormente no modificarán las asignaciones de espacios efectuadas previamente.
+Cuando un espacio asignado quede vacante, se procederá a su asignación analizando las solicitudes de permiso de uso de parqueo formuladas.
+Artículo 12.—Vigencia del permiso de Estacionamiento. El plazo del permiso concedido es de un año calendario contado desde el primero de enero al treinta y uno de diciembre del año calendario respectivo. Si hubiere espacios vacantes o se construyeren más espacios, la concesión lo será por el resto del plazo hasta el 31 de diciembre.
+Artículo 13.—Renovación automática. La Dirección Administrativa, durante la primera quincena de diciembre, podrá renovar automáticamente el plazo de los permisos concedidos.
+CAPÍTULO III
+Deberes y prohibiciones
+Artículo 14.—En cuanto a la utilización del espacio reservado. A quien se le haya otorgado un espacio de estacionamiento reservado, de conformidad con este reglamento, no podrá cederlo o prestarlo sin previa autorización de la Administración, y por ningún motivo podrá alquilarlo o venderlo.
+Cuando algún funcionario con estacionamiento reservado no vaya a utilizar su espacio por períodos mayores a un mes, con motivo de vacaciones, permisos con o sin goce de salario, incapacidades, u otros, deberá comunicarlo al Director o Jefe Inmediato y este deberá comunicarlo a la Dirección Administrativa, la cual podrá utilizarlo o asignarlo de forma discrecional.
+Artículo 15.—Prohibición de estacionar en zonas verdes o de paso. Por ningún motivo el usuario del estacionamiento podrá parquear el vehículo en las áreas verdes, de paso de peatones u otra que no esté señalada como espacio de parqueo.
+Artículo 16.—Velocidad de conducción dentro del estacionamiento. Es obligación conducir dentro del estacionamiento, a una velocidad que no supere los 10 km/hora. Además, debe respetar las vías de acceso, la señalización vial y las instrucciones que impartan los funcionarios de seguridad, mismas que deben apegarse al presente reglamento.
+CAPÍTULO IV
+Uso general de los estacionamientos
+Artículo 17.—Requisitos para ingresar al estacionamiento. Para poder ingresar y circular legalmente dentro de los estacionamientos del Registro, todo vehículo debe cumplir los siguientes requisitos:
+a) Portar el respectivo permiso de estacionamiento, el cual puede ser exigido por las autoridades de seguridad en cualquier momento.
+Artículo 18.—Caso de eventos especiales. Cuando sea necesario, debido a la realización de eventos o actividades especiales, la Institución se reserva el derecho de disponer temporalmente de las zonas de estacionamiento. La Dirección Administrativa, comunicará lo correspondiente a los funcionarios con anticipación a realizar la actividad, por vía de correo interno u otro medio de información masivo.
+Artículo 19.—Uso de los espacios de estacionamiento. El vehículo deberá aparcarse en el espacio que le ha sido asignado al funcionario. Los vehículos se parquearán en posición de salida, sea con la parte delantera del vehículo hacia la salida, de manera que permita su desplazamiento oportuno y rápido en caso de emergencia, sin afectar los aparcamientos colindantes, haciendo uso efectivo del espacio asignado al menos cuatro veces por semana en atención al día de restricción vehicular.
+CAPÍTULO V
+Suspensión, terminación o eliminación del permiso de uso
+Artículo 20.—Competencia. Cuando el Registro, por razones de necesidad, oportunidad y conveniencia, requiera hacer uso de las áreas de estacionamiento concedidas, podrá de forma razonada, revocar o suspender los espacios de estacionamiento previamente reservados.
+Artículo 21.—Revocatoria del Permiso de Uso. La Dirección Administrativa, se reserva el derecho de revocar el permiso de uso del estacionamiento en los siguientes casos:
+a) Violación a cualquiera de los artículos anteriores.
+b) Por no uso del espacio de estacionamiento asignado según la periodicidad requerida.
+c) Por razones de seguridad ante la presunción de actos de terrorismo, motines o causas similares.
+d) Por ceder o permitir que otro funcionario haga uso del espacio de estacionamiento asignado, excepto previa autorización de la Dirección Administrativa.
+e) Por no informar al Director o Jefe Inmediato, acerca del motivo de no uso del espacio de estacionamiento asignado, por períodos mayores a un mes calendario.
+f) Eliminado. (Según la reforma aprobada mediante Acuerdo J356-2018, tomado por la Junta Administrativa del Registro Nacional, en la Sesión N° 29-2018, celebrada de manera extraordinaria el 01 de agosto de 2018).
+g) Cuando un funcionario habiendo causado un daño a bienes de la institución o a otro vehículo estacionado, no lo reporte dentro de los dos días siguientes al que ocurrió el suceso.
+h) Cuando haya rompimiento del contrato de trabajo por cualquier causa.
+i) Por razones de interés o necesidad público.
+Artículo 22.—Eliminado. (Según la reforma aprobada mediante Acuerdo J356-2018, tomado por la Junta Administrativa del Registro Nacional, en la Sesión N° 29-2018, celebrada de manera extraordinaria el 01 de agosto de 2018).
+Artículo 23.—Eliminado. (Según la reforma aprobada mediante Acuerdo J356-2018, tomado por la Junta Administrativa del Registro Nacional, en la Sesión N° 29-2018, celebrada de manera extraordinaria el 01 de agosto de 2018).
+Artículo 24.—Resolución fundada. La Dirección Administrativa a partir de la investigación correspondiente, en relación con la existencia de incumplimiento por parte del funcionario acreedor del permiso de uso del estacionamiento, mediante comunicación fundada hará del conocimiento del servidor la medida correctiva, la cual se comunicará personalmente a través del Director o la jefatura inmediata
+Artículo 25.—Vigencia. Rige a partir de la publicación en el Diario Oficial La Gaceta.
+Acuerdo Firme J356-2018, adoptado por la Junta Administrativa del Registro Nacional en la Sesión extraordinaria N° 29-2018, celebrada el primero de agosto del dos mil dieciocho.
+TRANSITORIO I.—Los estacionamientos seguirán siendo utilizados en la misma forma en que se utilizan hasta antes de la entrada en vigor de este Reglamento.
+TRANSITORIO II.—Los permisos de uso ya otorgados continuarán vigentes y la Dirección Administrativa únicamente analizará las nuevas solicitudes.
