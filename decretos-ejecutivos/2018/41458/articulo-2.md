@@ -1,0 +1,1 @@
+Artículo 2º—Modificación parcial del artículo 19. Modifíquese parcialmente el artículo 19 del Plan Nacional de Atribución de Frecuencias, Decreto Ejecutivo N° 35257-MINAET, emitido en fecha 16 de abril de 2009 y publicado en el Diario Oficial La Gaceta N° 103, Alcance N° 19 de fecha 29 de mayo del 2009 y sus reformas, para que se elimine la nota nacional CR 080.
