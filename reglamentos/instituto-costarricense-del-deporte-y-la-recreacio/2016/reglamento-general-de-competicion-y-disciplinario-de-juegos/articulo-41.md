@@ -7,3 +7,5 @@ En todos los casos, excepto el 41.7, además de la sanción al atleta, se sancio
 41.5 Uso falso de documentos.
 41.6 Suplantación física de atletas haciéndose pasar por otra persona.
 41.7 Agresión física y material a otros atletas, cuerpos técnicos, equipos, colaboradores, árbitros, oficiales, personal acreditado, miembros de los órganos de los Juegos Deportivos Nacionales antes, durante o después de la competencia, o fuera de ella.
+41.8 Que se demuestre que ha ejercido acoso de manera física o verbalmente a cualquier otro participante de los Juegos Deportivos Nacionales.
+(Así adicionado en sesión N° 1070 del 6 de diciembre del 2018)

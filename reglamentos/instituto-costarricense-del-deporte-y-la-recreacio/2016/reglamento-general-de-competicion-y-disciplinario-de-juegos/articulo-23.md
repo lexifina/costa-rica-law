@@ -1,12 +1,13 @@
 ARTICULO 23. DE LOS SISTEMAS DE COMPETENCIAS CLASIFICATORIOS
 23.1 En deportes de conjunto, salvo en el caso de béisbol y voleibol de playa se establecen las siguientes directrices:
-a. Cada Comité Cantonal llevará a cabo su proceso de selección de forma tal que sólo un equipo por rama clasificará por cantón a la siguiente etapa de competición.
-b. Cada región en coordinación con la Asociación o Federación de representación nacional deberá establecer una comisión regional, coordinada por el representante de la Oficina Regional del ICODER, donde mediante la ejecución de congresillos
-técnicos por deporte elabore los calendarios de competencia y control de resultados, así mismo se realicen los diagnósticos de las instalaciones deportivas, para la presentación de un clasificado por región en deportes de conjunto. Será responsabilidad de cada comisión presentar ante la Dirección Nacional, en el Departamento de Juegos Deportivos Nacionales un informe de los eventos realizados con el respectivo clasificado a la Etapa Final, así mismo con la cantidad de atletas inscritos. En el caso de que en la comisión regional exista un acuerdo que no cumpla con lo establecido en el presente Reglamento, el funcionario del ICODER responsable de la región en compañía del Departamento de Competición Deportiva, tendrán la facultad de para recomendar o resolver de manera definitiva. En el caso de las sanciones por inscripción o temas contemplados en el presente Reglamento serán responsabilidad de los Tribunales que en este se establecen, las comisiones únicamente podrán aplicar sanciones en lo referente a las situaciones propias de cada juego.
-Lo relacionado a estas eliminatorias será publicado en un manual para tal fin.
+a. Cada Comité Cantonal de Deporte y Recreación de Deporte y Recreación llevará a cabo su proceso de eliminatoria de forma tal que sólo un equipo por rama clasificará por cantón a la siguiente etapa de competición. Lo anterior basado en los artículos establecidos para tal fin en la presente normativa.
+(Así reformado el inciso anterior en sesión N° 1070 del 6 de diciembre del 2018)
+b. En el caso de Voleibol de Playa, Balonmano y Beisbol se organizarán torneos a nivel nacional para obtener los clasificados a la Etapa Final.
+(Así reformado el inciso anterior en sesión N° 1070 del 6 de diciembre del 2018)
 c. Para organizar los respectivos torneos, los comités deberán considerar las siguientes directrices.
 c.1 Todas las decisiones deberán estar amparadas en las normativas nacionales e internacionales para cada uno de los deportes de conjunto que se encuentren en competencia, de ser necesario se solicitará por escrito el criterio técnico de la asociación o federación para la orientación de las decisiones deportivas.
-c.2 La agrupación de equipos puede ser a base de un ranking de resultados de los equipos de ediciones anteriores, agrupación por cercanía geográfica o una combinación de ambas u otro sistema válido o usual de la Federación, Asociación o Ente organizador.
+c.2 La agrupación de equipos puede ser a base de un ranking de resultados de los equipos de ediciones anteriores, deberá imperar la agrupación por cercanía geográfica o una combinación de ambas u otro sistema válido o usual de la Federación, Asociación o Ente organizador.
+(Así reformado el inciso anterior en sesión N° 1070 del 6 de diciembre del 2018)
 c.3 Debe prevalecer el principio de que los equipos no deben viajar grandes distancias, motivando gastos excesivos, excepto el sistema de repechaje para obtener los últimos clasificados.
 23.2 En deportes individuales se establecen las siguientes directrices:
 a. En deportes individuales de clasificación mediante torneo, clasificarán a la etapa final los ocho primeros lugares.

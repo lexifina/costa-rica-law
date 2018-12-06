@@ -1,4 +1,5 @@
 ARTICULO 18. DE LA PARTICIPACION E INSCRIPCION DE ENTRENADORES Y ASISTENTES
 18.1 Los miembros de los cuerpos técnicos en cada deporte sólo podrán inscribirse con un Comité Cantonal de Deporte y Recreación. Podrán desempeñarse en diferentes funciones según las categorías y ramas que el Comité Cantonal inscriba.
-18.2 Preferentemente los asistentes y entrenadores podrán contar con certificados, que le respalden como entrenador del deporte en que se inscribe.
+18.2 Los asistentes y entrenadores deberán contar con certificados, que le respalden como entrenador del deporte en que se inscribe. Siempre que la Federación cuente con el programa de formación. Para esto deberá consultar la normativa de cada deporte publicada en la Convocatoria Nacional Oficial.
+(Así reformado el inciso anterior en sesión N° 1070 del 6 de diciembre del 2018)
 18.3 No podrá ser inscrito ningún entrenador o asistente que esté cumpliendo con alguna sanción disciplinaria con la Federación o Asociación de Representación Nacional, Juegos Deportivos Estudiantiles o Universitarios que regula su deporte. Es obligación de la Asociación o Federación indicar cuales de sus miembros de cuerpo técnico se encuentran purgando alguna sanción disciplinaria.
