@@ -1,0 +1,1 @@
+Artículo 13 - Las municiones que no estén en uso para el servicio activo, deben mantenerse dentro de su empaque original de fábrica. Es obligación conjunta del Jefe de la Armería, los armeros y el superior inmediato, el velar por el fiel acatamiento de esta norma.

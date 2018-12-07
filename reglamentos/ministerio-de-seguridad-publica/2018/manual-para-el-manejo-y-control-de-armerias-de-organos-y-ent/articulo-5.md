@@ -1,0 +1,1 @@
+Artículo 5 - Se constituirá al menos un armero regional, para cada una de las direcciones regionales de la Fuerza Pública, persona en la cual recaerá la responsabilidad principal de reportar por escrito y de forma inmediata, cualquier situación contraria a lo establecido en este manual, que se suscite en el proceso de supervisión de las armerías de la región correspondiente.

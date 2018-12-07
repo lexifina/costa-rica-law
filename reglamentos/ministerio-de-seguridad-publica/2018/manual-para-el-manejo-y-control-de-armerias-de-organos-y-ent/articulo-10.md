@@ -1,0 +1,2 @@
+Artículo 10 - La Jefatura de la Armería conjuntamente con el superior inmediato, en concordancia con la normativa correspondiente, en el ejercicio de sus funciones, son responsables de todo el armamento y otros equipos asignados a la armería y han de velar por la aplicación de las disposiciones establecidas en este Manual.
+En el caso de las delegaciones o unidades policiales del Ministerio de Seguridad Pública, el Jefe de Puesto será corresponsable, de acuerdo a la escala jerárquica establecida en esa unidad compartiendo la responsabilidad con el armero.

@@ -1,0 +1,1 @@
+Artículo 4 - Todo el personal de armería debe dedicarle el tiempo completo de su jornada laboral, a realizar las funciones propias del cargo según lo establecido en la capacitación para armeros. Para lo cual es responsabilidad del jefe de la armería, velar por su cumplimiento, y del Jefe de puesto, velar porque el rol de los armeros, cubra las 24 horas de servicio todos los días,

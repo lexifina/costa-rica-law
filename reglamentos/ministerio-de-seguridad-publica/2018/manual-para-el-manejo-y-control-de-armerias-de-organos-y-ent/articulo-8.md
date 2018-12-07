@@ -1,0 +1,3 @@
+Artículo 8 - Únicamente podrán hacer ingreso a la Armería, el personal autorizado según los parámetros establecidos en este manual, los armeros, la Jefatura de la Armería, así como el Jefe de puesto o el superior inmediato, de la jefatura de la Armería para efectos de supervisión; así como aquellas instancias de control como la Auditoria, la Dependencia Encargada del Armamento de cada Órgano o Ente Público y la Dirección General de Armamento.
+Para efectos del Ministerio de Seguridad Pública, la Dirección General de Armamento podrá autorizar de forma excepcional el ingreso de personas de alguna otra instancia.
+Es terminantemente prohibido mantener dentro de las armerías, objetos ajenos al equipo reglamentario.
