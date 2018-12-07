@@ -1,0 +1,19 @@
+N° 41424-MD-MS-TUR-MCJ-MEP
+EL PRESIDENTE DE LA REPÚBLICA, EL MINISTRO DE EDUCACIÓN
+PÚBLICA, LA MINISTRA DE CULTURA Y JUVENTUD, LA MINISTRA DE
+TURISMO, EL MINISTRO DEL DEPORTE Y LA MINISTRA DE SALUD
+En uso de las facultades y prerrogativas conferidas por los artículos 11, 50, 140 incisos 18), 20) y 146 de la Constitución Política; los artículos 11, 25, 27 inciso 1) y 28 inciso 2), acápite b) de la Ley General de la Administración Pública, Ley número 6227, del 02 de mayo de 1978; artículo 2 inciso g) de la Ley Orgánica del Ministerio de Salud, Ley número 5412, del 08 de noviembre de 1973; los artículos 4 y 5 de la Ley Orgánica del Instituto Costarricense de Turismo, Ley número 1917, del 30 de julio de 1955, el artículo 2 de la Ley que Crea el Ministerio de Cultura Juventud y Deportes, Ley número 4788, del 05 de julio de 1971, y el artículo 5 y siguientes y concordantes de la Ley Orgánica del Ministerio de Educación Pública, Ley número 3481, del 13 de enero de 1965.
+CONSIDERANDO:
+I.- Que el Estado tiene la responsabilidad de velar por la salud de la población y garantizar el bienestar de los ciudadanos.
+II.- Que la salud es un objetivo internacional de desarrollo a largo plazo que exige una cooperación estrecha en el intercambio de las mejores prácticas encaminadas a la adopción de estilos de vida saludables.
+III.- Que la asamblea General de la Organización de las Naciones Unidas mediante resolución número 69/131 del 11 de diciembre del 2014, proclamó el día 21 de junio, como el Día Internacional del Yoga, indicando que "el yoga ofrece un enfoque holístico de la salud y el bienestar .... y que difundir más ampliamente la formación relativa a las ventajas que entraña practicar el yoga sería beneficioso para la salud de la población mundial".
+IV.- Que las resoluciones emitidas por la Organización de las Naciones Unidas son de carácter vinculante para nuestro país, al formar parte de los Estados que la integran.
+V.- Que mediante Decreto Ejecutivo número 37392-TUR-MEIC-S-COMEX, del 17 de abril de 2012, se declaró de interés público y nacional las actividades e iniciativas relacionadas con el denominado "turismo de salud y bienestar", en tanto promueven el desarrollo de una medicina de calidad, fortaleciendo la seguridad social y el bienestar nacional; dentro del cual se pueden contemplar el yoga y la meditación.
+VI.- Que mediante Decreto Ejecutivo número 39659-MINAE-MCJ-MEP, del 22 de abril de 2016, que "Declara el 22 de abril de cada año como el Día Nacional de la Madre Tierra"; se autorizó a las instituciones públicas a realizar "actividades que contribuyan a crear en las y los costarricenses, desde los primeros años de vida, una nueva relación con el Planeta, en la cual cada persona sea responsable de vivir una vida en armonía con la naturaleza ".
+VII.- Que actividades como el yoga y la meditación están consideradas dentro del denominado turismo de bienestar, el cual está siendo impulsado por el Instituto Costarricense de Turismo mediante la estrategia "Wellness Pura Vida". El segmento bienestar o "wellness" se encuentra incorporado en el Plan Nacional de Desarrollo Turístico 2017-2021.
+VIII.- Que se considera oportuno y necesario declarar de interés público las actividades e iniciativas relacionadas con el "Día Internacional del Yoga", como una oportunidad para promover el bienestar integral a través de dicha disciplina.
+Por tanto,
+DECRETAN:
+"DECLARATORIA DE INTERÉS PÚBLICO DE LAS ACTIVIDADES E
+INICIATIVAS RELACIONADAS CON EL DÍA INTERNACIONAL DEL YOGA"
+Artículo 1°.- Se declaran de interés público las actividades e iniciativas relacionadas con el Día Internacional del Yoga, en tanto promuevan el desarrollo del yoga y la meditación con la intención de crear ambientes de bienestar y estilos de vida conscientes, saludables y sostenibles en armonía con la Madre Tierra.
