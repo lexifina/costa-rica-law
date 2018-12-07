@@ -1,0 +1,15 @@
+SUBSECCIÓN IV
+Del cobro de las obligaciones tributarias municipales en las etapas administrativa, administrativa
+externa y ejecutiva
+Artículo 32.-Deberes de la Administración Tributaria de la Municipalidad en las etapas administrativa externa y ejecutiva. La Administración Tributaria deberá cumplir con lo siguiente, en la etapa administrativa externa y ejecutiva:
+1. Se trasladará el expediente respectivo para efectos de iniciar las etapas administrativa externa y ejecutiva a los abogados externos, de conformidad con los plazos establecidos en caso de morosidad del administrado, este expediente comprenderá:
+1.1. Original de la notificación de cobro administrativo realizada al sujeto pasivo y copia del expediente, quedando los originales de todo el expediente en la Administración Tributaria. Adicionalmente, se les entregará a los Abogados Externos toda la información de localización del contribuyente, de no contarse con ella, los abogados externos deberán utilizar diferentes medios para su localización
+2. Certificación del Contador Municipal que haga constar la obligación vencida que vaya a ser remitida a cobro administrativo externo y cobro judicial, la cual incluirá multas e intereses, y constituirá el título ejecutivo para el proceso judicial respectivo, de conformidad con lo que establece el artículo 71 del Código Municipal.
+Certificación que debe cumplir con todos y cada uno de los requisitos establecidos por cada una de las leyes involucradas para su ejecución.
+4. Calidades del sujeto pasivo y domicilio exacto, números de teléfono, todos los datos y localización deben ser actualizados. Si se tratara de una persona jurídica, indicación del número de cédula jurídica, correspondiendo al abogado externo respectivo realizar la personería jurídica correspondiente.
+5. Personería jurídica del Alcalde.
+b. Fiscalizar la labor de los abogados externos, para ello, compete a esta Oficina recibir los informes mensuales que realicen los abogados externos de conformidad con este Reglamento, analizarlos y emitir informe sobre los mismos al Alcalde Municipal trimestralmente.
+c. Gestionar ante el Alcalde, dando aviso a la Proveeduría Institucional, la aplicación de las sanciones que en este Reglamento se establecen, a los abogados externos que incumplan con sus obligaciones.
+d. Solicitar al Alcalde, dando aviso a la Proveeduría Institucional, el nombramiento de nuevos abogados o la resolución de la contratación de abogados externos, de conformidad con la demanda que de esta gestión requiera la Municipalidad.
+e. Llevar un expediente de cada uno de los abogados externos, en el cual se llevará toda la documentación relacionada con su contratación, los procesos asignados, los informes que éste presente, y demás documentos relacionados con su actuar, los cuales serán agregados al expediente en forma cronológica y estarán debidamente foliados.
+f. Cobrar directamente al sujeto pasivo los gastos administrativos en los cuales ha incurrido la Municipalidad durante el proceso administrativo.
