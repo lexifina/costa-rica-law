@@ -1,0 +1,1 @@
+Artículo 25. Derogatoria. Deróguese el Reglamento para el Otorgamiento del Certificado de Sostenibilidad Turística, Decreto Ejecutivo N º 36012-MINAET-MEIC-TUR del 7 de abril del 2010 y su reforma, publicado en el Diario Oficial La Gaceta Nº 153 del 09 de agosto de 2010.
