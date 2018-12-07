@@ -14,3 +14,4 @@ Guía de requisitos mínimos y procedimiento para la homologación de contratos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-04 | la propia norma |
+| 2 | 2018-12-07 | Resolución 412 (2018-12-07) |
