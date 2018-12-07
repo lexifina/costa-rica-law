@@ -1,0 +1,1 @@
+Artículo 19. Deróguese el Reglamento de las Empresas y Actividades Turísticas y sus anexos, Decreto Ejecutivo Nº 25226-MEIC-TUR del 15 de marzo de 1996, publicado en el Diario Oficial La Gaceta Nº 12 l del 26 de junio de 1996.

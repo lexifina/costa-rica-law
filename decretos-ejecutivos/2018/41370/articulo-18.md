@@ -1,0 +1,1 @@
+Artículo 18. El ICT actuará ante la Comisión Nacional del Consumidor del Ministerio de Economía, Industria y Comercio y ante cualquier otra instancia, como coadyuvante o representante de los turistas que se vean perjudicados por actuaciones de personas físicas o jurídicas dedicadas al turismo inscritas o no en el régimen de la declaratoria turística.

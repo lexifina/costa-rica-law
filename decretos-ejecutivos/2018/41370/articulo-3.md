@@ -1,0 +1,2 @@
+Artículo 3. El ICT establecerá un Registro de Empresas y Actividades Turísticas, en el cual en forma ordenada y cronológica se incluirán las empresas o actividades a las que se les haya otorgado la correspondiente Declaratoria Turística.
+Dicho Registro tendrá como finalidad establecer un sistema de calidad que integre aspectos relacionados con el servicio, la sostenibilidad de los recursos, así como los valores sociales, el rescate y preservación del patrimonio cultural.

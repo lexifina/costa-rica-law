@@ -1,0 +1,1 @@
+Artículo 16. Contra las resoluciones resultantes del artículo anterior, cabrán los recursos de Revocatoria presentado ante la Gerencia General y el de Apelación ante la Junta Directiva del ICT, dentro de los tres días hábiles siguientes a la fecha de su comunicación.
