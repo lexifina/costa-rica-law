@@ -1,1 +1,0 @@
-Artículo 9º—Las municiones que no estén en uso del servicio activo, deben mantenerse dentro de su empaque original. Es obligación conjunta del Jefe de la Armería, los armeros y el superior inmediato, el velar por el fiel acatamiento de esta norma.

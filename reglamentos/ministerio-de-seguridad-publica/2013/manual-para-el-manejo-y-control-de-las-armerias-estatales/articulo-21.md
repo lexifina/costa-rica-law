@@ -1,1 +1,0 @@
-Artículo 21.—En el caso de otros equipos autorizados para su almacenamiento en las armerías, el control y registro debe realizarse según los parámetros establecidos por la Oficina de Control de Bienes del Órgano o Ente Público. Estos controles no pueden entrar en conflicto con las normativas aquí indicadas.

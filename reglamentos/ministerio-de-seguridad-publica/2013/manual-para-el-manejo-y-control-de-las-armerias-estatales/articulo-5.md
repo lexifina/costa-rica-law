@@ -1,3 +1,0 @@
-Artículo 5º—Únicamente podrán hacer ingreso a la Armería los armeros, el o la Jefe de la Armería, el superior inmediato de la jefatura de la Armería para efectos de supervisión y aquellas instancias de control como la Auditoria, la Dependencia Encargada del Armamento de cada Órgano o Ente Público, la Dirección General de Armamento.
-Para efectos del Ministerio de Seguridad Pública, la Dirección General de Armamento podrá autorizar de forma excepcional el ingreso de personas de alguna otra instancia.
-Es terminante prohibido el mantener dentro de las armerías, objetos ajenos al equipo reglamentario.

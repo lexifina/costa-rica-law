@@ -1,1 +1,0 @@
-Artículo 11.—Toda arma perteneciente al Ministerio de Seguridad Pública, cuyo mantenimiento, requiera de un desmontaje de piezas, mayor a lo indicado en la capacitación dada a los armeros o por algún daño detectado, debe ser remitida al Arsenal Nacional, para lo cual se solicitará a dicho Departamento cita previa.

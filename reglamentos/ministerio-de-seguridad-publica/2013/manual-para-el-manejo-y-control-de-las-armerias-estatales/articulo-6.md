@@ -1,2 +1,0 @@
-Artículo 6º—Dentro de la Armería está totalmente prohibido, dormir, fumar, preparar y calentar alimentos, así como el realizar cualquier otra actividad ajena a las funciones de la Armería.
-Las armerías no podrán estar separadas del edificio principal, ni colindar con áreas de almacenamiento de sustancias inflamables, alimentos, comedores, baños, celdas, dormitorios y oficinas de atención al público.

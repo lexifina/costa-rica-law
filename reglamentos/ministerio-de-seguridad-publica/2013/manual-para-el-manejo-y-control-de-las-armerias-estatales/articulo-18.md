@@ -1,1 +1,0 @@
-Artículo 18.—Los funcionarios de las diferentes armerías únicamente podrán utilizar los implementos e insumos para limpieza que cada Órgano o Ente Público haya adquirido para dicha finalidad, los cuales deberán de ser adquiridos bajo criterios técnicos que garantice la no afectación negativa del armamento.
