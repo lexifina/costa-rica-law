@@ -14,3 +14,4 @@ Reglamento para la actualización de la información de los expedientes de regis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-01-16 | la propia norma |
+| 2 | 2018-12-10 | Decreto Ejecutivo 41481 (2018-12-10) |
