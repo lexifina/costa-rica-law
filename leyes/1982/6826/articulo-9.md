@@ -6,3 +6,4 @@ Asimismo quedan exentas las exportaciones de bienes gravados o no por este impue
 (Así reformado por el artículo 26 de la ley Nº 7293 de 31 de marzo de 1992)
 Exonérase del pago del impuesto sobre las ventas, la venta o entrega de productos agropecuarios o agroindustriales orgánicos, registrados y certificados ante la entidad correspondiente.
 (Así adicionado el párrafo anterior por el artículo 36 de la ley Nº 8542 del 27 de setiembre del 2006. Pposteriormente se volvió a adicionar con su texto reformado, mediante el artículo 36 de la ley N° 8591 del 28 de junio del 2007).
+(Nota de Sinalevi: Mediante resolución RES-DGA-DGT-035-2018 del 25 de octubre de 2018, se acordó asignar al inciso arancelario nacional 8467.22.00.00.10, que comprende herramientas manuales con motor eléctrico del tipo motosierras para uso agropecuario, el Impuesto General sobre las Ventas de un 13%.)
