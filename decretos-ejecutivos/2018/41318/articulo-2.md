@@ -1,1 +1,0 @@
-Artículo 2º—Deróguese el Decreto Ejecutivo número 41195-H del 11 de junio de 2018, publicado en el Alcance número 126 a La Gaceta número 118 del 02 de julio de 2018, a partir de la vigencia del presente decreto.
