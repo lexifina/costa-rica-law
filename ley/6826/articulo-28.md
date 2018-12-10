@@ -1,31 +1,10 @@
-ARTICULO 28.- Requisitos.
-La Administración Tributaria realizará, de oficio, los estudios
-pertinentes para establecer los regímenes de tributación simplificada
-considerando, entre otros, los siguientes elementos:
-a) Tipo de actividad.
-b) Capitales promedios invertidos en la actividad de que se trate.
-En ningún caso se autorizará el régimen cuando el capital
-invertido, sea superior al promedio determinado para la actividad
-o el grupo estudiado.
-c) Monto de compras efectuadas. En ningún caso, el régimen se
-autorizará cuando las compras efectuadas sean superiores al
-promedio determinado para la actividad o el grupo estudiado o la
-proporción mensual correspondiente.
-d) Rendimientos bruto y neto promedio de la actividad estudiada.
-e) Número de empleados y monto de salarios pagados.
-f) Cualesquiera otros estudios que se considere necesario realizar
-por la índole de la actividad.
-La cuantificación de los conceptos a que se refieren los incisos
-anteriores, excepto el a), se fijará mediante decreto ejecutivo que
-deberá emitirse para establecer el régimen de tributación simplificada
-para el grupo o la rama de actividad correspondiente.
-El Poder Ejecutivo, queda facultado para modificar los montos y los
-conceptos a que se refieren los citados incisos, con base en los estudios
-que, al efecto, realice la Administración Tributaria y las variaciones de
-los índices de precios al consumidor que determine la Dirección General
-de Estadística y Censos.
-(Adicionado por el artículo 3 de la Ley Nº 7088 de 30 de noviembre
-de 1987 y modificada su numeración de acuerdo con el 29 de la Ley Nº 7293
-de 31 de marzo de 1992, que lo pasó del 27 al 28)
-(Así reformado por el artículo 3 de la Ley de Ajuste Tributario Nº
-7543 del 14 de setiembre de 1995)
+Artículo 28- Plazo y formas de aplicar el crédito. El derecho a la deducción solo podrá ejercitarse en la declaración relativa al periodo en que nace para su titular, de acuerdo con el artículo 16 de esta ley, o en las de los sucesivos, siempre que no hubiera transcurrido el plazo de prescripción establecido en la Ley N.° 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971.
+Cuando la diferencia entre el débito y el crédito fiscal sea a favor del contribuyente, el saldo existente se transferirá al mes o a los meses siguientes y se sumará al crédito fiscal originado por las adquisiciones efectuadas en esos meses. Si por circunstancias especiales el contribuyente prevé que no ha de originar, en los tres meses siguientes, un débito fiscal suficiente para absorber la totalidad del saldo de su crédito fiscal, tendrá derecho a utilizarlo de la forma prevista en los artículos 45y 47 del Código de Normas y Procedimientos Tributarios.
+No obstante lo dispuesto en el párrafo anterior, cuando el contribuyente realice operaciones de las mencionadas en los párrafos segundo y tercero del artículo 21 de esta ley, en una cuantía superior al setenta y cinco por ciento (75%) del total de sus operaciones con derecho a crédito, de acuerdo con el artículo 23 de esta ley, tendrá derecho a optar por la utilización de alguno de los siguientes sistemas:
+1. La devolución expedita del crédito de la forma que se determine reglamentariamente, para lo cual deberá inscribirse en un registro especial y utilizar los medios que para estos efectos defina la Administración Tributaria.
+2. Cualquier otro sistema desarrollado por la Administración mediante reglamento con la finalidad de garantizar la recuperación ágil y eficiente del crédito fiscal.
+3. En el caso de exportaciones, un sistema de devolución automática, o mediante la creación de una base de datos de consulta o cualquier otro mecanismo asimilable.
+Para los fines de este artículo, los exportadores de productos agropecuarios, agroindustriales, acuicultura y pesca no deportiva no estarán sujetos a la limitación del setenta y cinco por ciento (75%) del total de sus operaciones previstas anteriormente.
+Cuando una persona física con actividad lucrativa, jurídica o entidad no domiciliada adquiera servicios relacionados con la entrada o el acceso a eventos, hoteles, restaurantes y transporte, siempre y cuando cualquiera de estos gastos estén vinculados con la asistencia a ferias, congresos y exposiciones de carácter comercial o profesional, que se celebren en el territorio de aplicación del impuesto, pueden obtener la devolución del impuesto conforme a las disposiciones que la Administración definirá reglamentariamente.
+Cuando una persona física con actividad lucrativa, una persona jurídica o una entidad no domiciliada adquiera servicios relacionados con la entrada o el acceso a eventos, hoteles, restaurantes, transporte a lo interno del país, siempre y cuando estos gastos estén vinculados con la asistencia a ferias, congresos y exposiciones de carácter comercial o profesional, que se celebren en el territorio nacional, pueden obtener la devolución del impuesto pagado, conforme a las disposiciones que la Administración Tributaria defina.
+Con independencia de lo dispuesto en los párrafos precedentes, tratándose de la compra de servicios de salud privados, establecidos en el artículo 11, inciso 1, subinciso b), que hayan sido cancelados por medio de tarjeta de crédito, débito o cualquier otro medio electrónico que autorice la Administración Tributaria, la totalidad del impuesto pagado por los consumidores finales de estos servicios constituirá un crédito a favor del adquirente del servicio y procederá su devolución como plazo máximo dentro de los quince días siguientes del mes posterior a su adquisición, de conformidad con el procedimiento que se establezca reglamentariamente.
