@@ -1,1 +1,0 @@
-Artículo 13.—De la tasa de interés. La Unidad Ejecutora recomendará una tasa de interés fija que corresponde a las condiciones de cada proyecto no menor a la tasa básica pasiva fijada por el Banco Central de Costa Rica.

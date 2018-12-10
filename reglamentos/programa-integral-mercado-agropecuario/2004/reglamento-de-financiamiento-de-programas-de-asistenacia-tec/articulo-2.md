@@ -1,1 +1,0 @@
-Artículo 2º—Del destino de los recursos. Establecer en el PIMA el PROAMER, que se encargará con sus propios fondos de financiar programas de asistencia técnica y financiera, así como de apoyo para el mercadeo, y el seguimiento a los proyectos en ejecución y los que se financiarán en el futuro.

@@ -1,1 +1,0 @@
-Artículo 18.—Del presupuesto. Los fondos que se asignarán bajo la modalidad de fondos no reembolsables en cada período se presupuestarán en la partida presupuestaria correspondiente de acuerdo con los lineamientos establecidos por la Contraloría General de la República al respecto.
