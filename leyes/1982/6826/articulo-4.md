@@ -1,22 +1,6 @@
-CAPITULO II
-De los contribuyentes y de la inscripción
-ARTICULO 4º.- Contribuyentes y declarantes.
-Las personas físicas o jurídicas, de derecho o de hecho, públicas o
-privadas, que realicen ventas o presten servicios en forma habitual, son
-contribuyentes de este impuesto.
-Asimismo, las personas de cualquier naturaleza, que efectúen
-importaciones o internaciones de bienes, están obligadas a pagar el
-impuesto, de acuerdo con lo previsto en el artículo 13 de esta Ley.
-Además, son declarantes de este impuesto las personas, físicas o
-jurídicas, de derecho o de hecho, públicas o privadas, que realicen
-ventas por exportaciones.
-Todos los exportadores, contribuyentes o no contribuyentes de este
-impuesto, están obligados a presentar declaraciones.
-Se crea el régimen de tributación simplificada para pequeños
-contribuyentes, conforme se establece en los artículos 27, 28, 29 y 30 de
-esta Ley.
-Estos contribuyentes deberán llevar registros contables especiales,
-en la forma y las condiciones que se determinen en el Reglamento de la
-presente Ley.
-(Así reformado por el artículo 22 de la Ley de Justicia Tributaria
-Nº 7535 de 1º de agosto de 1995)
+CAPÍTULO II
+LOS CONTRIBUYENTES Y LA INSCRIPCIÓN
+Artículo 4- Contribuyentes. Son contribuyentes de este impuesto las personas físicas, jurídicas, las entidades públicas o privadas que realicen actividades que impliquen la ordenación por cuenta propia de factores de producción, materiales y humanos, o de uno de ellos, con la finalidad de intervenir en la producción, la distribución, la comercialización o la venta de bienes o prestación de servicios.
+Asimismo, también se considerarán contribuyentes las personas físicas, jurídicas, las entidades públicas o privadas de cualquier naturaleza que efectúen importaciones o internaciones de bienes tangibles, bienes intangibles y servicios, las cuales están obligadas a pagar el impuesto, de acuerdo con lo previsto en el artículo 14 de esta ley.
+En el caso de la compra de servicios o de bienes intangibles, cuyo prestador no se encuentre domiciliado en el territorio de la República, el contribuyente será el destinatario del servicio o el bien intangible, independientemente del lugar donde se esté ejecutando, siempre que sea a la vez contribuyente de este impuesto, conforme a lo dispuesto en el párrafo primero de este artículo.
+Igualmente, son contribuyentes todos los exportadores y los que se acojan al régimen de tributación simplificada.

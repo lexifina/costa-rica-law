@@ -1,12 +1,4 @@
-ARTICULO 13.- Base imponible en importaciones.
-En la importación o la internación de mercancías, el valor sobre el
-cual se determina el impuesto se establece adicionando al valor CIF,
-aduana de Costa Rica, lo pagado efectivamente por concepto de derechos de
-importación, impuesto selectivo de consumo o específicos y cualquier otro
-tributo que incida sobre la importación o la internación, así como los
-demás cargos que figuren en la póliza o en el formulario aduanero, según
-corresponda. El impuesto así determinado debe liquidarse separadamente en
-esos documentos y el pago deberá probarse antes de desalmacenar las
-mercancías respectivas.
-(Así reformado por el artículo 25 de la Ley de Justicia Tributaria
-Nº 7535 de 1º de agosto de 1995)
+Artículo 13- Base imponible en la prestación de servicios. En la prestación de servicios, el impuesto se determina sobre el precio de venta, después de deducir los importes a que se refieren los incisos del artículo anterior, cuando correspondan.
+En el caso de los juegos de azar, será el valor de lo apostado. En los casinos será el sesenta por ciento (60%) de un salario base por cada mesa de juego y el diez por ciento (10%) de un salario base por cada máquina tragamonedas, todas estas autorizadas por el Ministerio de Seguridad Pública, el cual se liquidará mensualmente.
+No formarán parte de la base imponible las bonificaciones en cualquiera de sus modalidades que resulten equivalentes a descuentos usuales y generales, siempre que se consignen por separado del precio de venta en la factura respectiva o en otro documento equivalente expedido por el contribuyente, entendiéndose que la base imponible será el precio una vez deducido lo señalado.
+Esta disposición no será de aplicación cuando las disminuciones de precio constituyan pago de otras operaciones.

@@ -1,2 +1,2 @@
-ARTICULO 25.- El Ministerio de Hacienda podrá hacer uso de la
-factura y del timbre fiscal, de acuerdo con el Reglamento.
+Artículo 25- Crédito fiscal por bienes de capital. Cuando el contribuyente realice o prevea realizar, exclusivamente, operaciones con derecho a crédito fiscal, en la adquisición de bienes de capital afectos a la actividad, el impuesto pagado dará derecho a crédito fiscal en el mes de su adquisición.
+En caso de que el contribuyente realice o prevea realizar operaciones con y sin derecho a crédito fiscal, dicho crédito se ajustará de la forma en que se determine en el reglamento.

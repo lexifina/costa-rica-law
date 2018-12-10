@@ -1,0 +1,1 @@
+Artículo 41- Créditos fiscales. Por la naturaleza del régimen, los contribuyentes acogidos al sistema de régimen simplificado no podrán usar como créditos fiscales al impuesto pagado en las compras que efectúen.

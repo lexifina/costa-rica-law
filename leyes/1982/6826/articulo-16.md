@@ -1,9 +1,5 @@
-ARTICULO 16.- Saldo a favor del contribuyente.
-Cuando la diferencia entre el débito y el crédito fiscales sea a
-favor del contribuyente, el saldo existente se transferirá al mes o meses
-siguientes y se sumará al crédito fiscal originado por las adquisiciones
-efectuadas en esos meses. Si por circunstancias especiales, el
-contribuyente prevé que no ha de originar, en los tres meses siguientes,
-un débito fiscal suficiente para absorber la totalidad del saldo de su
-crédito fiscal, tendrá derecho a utilizarlo en la forma prevista en el
-artículo 45 del Código de Normas y Procedimientos Tributarios.
+Artículo 16- Determinación del impuesto. El impuesto que debe pagarse al fisco se determina por la diferencia entre el débito y el crédito fiscal.
+El débito fiscal se determina aplicando la tarifa de impuesto a que se refieren los artículos 10 y 11 de esta ley, según corresponda, al total de ventas de bienes y prestaciones de servicios sujetas y no exentas.
+El contribuyente queda obligado a trasladar el débito fiscal a quien adquiera el bien o el servicio, el cual queda obligado a pagarlo.
+El crédito fiscal nace en el momento en que, con posterioridad a que ocurra el hecho generador, el contribuyente dispone de la correspondiente factura, los comprobantes de pago de este impuesto en aduanas, según corresponda o cuando se trate de descuentos en otro documento expedido por el contribuyente, en las condiciones que se determine reglamentariamente.
+Cuando el crédito fiscal sea mayor que el débito en un periodo fiscal, la diferencia constituye un saldo del impuesto a favor del contribuyente que podrá compensarse de conformidad con lo dispuesto en el artículo 28 de esta ley.

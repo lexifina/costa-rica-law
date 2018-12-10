@@ -1,19 +1,9 @@
-ARTICULO 3º.- Hecho generador.
-El hecho generador del impuesto ocurre:
-a) En la venta de mercancías, en el momento de la facturación o
-entrega de ellas, en el acto que se realice primero.
-b) En las importaciones o internaciones de mercancías en el momento
-de la aceptación de la póliza o del formulario aduanero, según
-corresponda.
-c) En la prestación de servicios, en el momento de la facturación o
-de la prestación del servicio, en el acto que se realice primero.
-( Así reformado por el artículo 21 de la Ley de Justicia
-Tributaria Nº 7535 de 1º de agosto de 1995)
-ch) En el uso o consumo de mercancías por parte de los
-contribuyentes, en la fecha en que aquellas se retiren de la
-empresa.
-d) En las ventas en consignación y los apartados de mercaderías, en
-el momento en que la mercadería queda apartada, según sea el
-caso.
-( Así adicionado este inciso por el artículo 21 de la Ley de
-Justicia Tributaria Nº 7535 de 1º de agosto de 1995)
+Artículo 3- Momento en que ocurre el hecho generador. El hecho generador del impuesto ocurre:
+1. En la venta de bienes, en el momento de la facturación o la entrega de ellos, el acto que se realice primero.
+2. En las importaciones o internaciones de bienes, en el momento de la aceptación de la póliza o del formulario aduanero, según corresponda. No obstante, cuando un bien desde su entrada al territorio de la República sea colocado en zonas francas, depósitos temporales o sea vinculado a determinados regímenes aduaneros que se especifiquen reglamentariamente, la importación se producirá cuando salga de las mencionadas áreas y abandone los regímenes indicados para ser introducido en el territorio de la República.
+3. En la prestación de servicios, en el momento de la facturación o de la prestación del servicio, el acto que se realice primero. No obstante lo anterior, en las prestaciones de servicios que originen pagos anticipados anteriores o en el curso de estas, el impuesto se devengará en el momento del cobro del precio por los importes efectivamente percibidos.
+Tratándose de los servicios prestados al Estado, el impuesto se devengará en el momento en que se percibe el pago.
+4. En el autoconsumo de bienes en la fecha en que los bienes se retiren de la empresa, y en el autoconsumo de servicios, en el momento que se efectúen las operaciones gravadas.
+5. En las importaciones o internaciones de bienes intangibles y servicios puestos a disposición del consumidor final, en el momento en que se origine el pago, la facturación, la prestación o la entrega, el acto que se realice primero.
+6. En las ventas en consignación, en el momento de la entrega en consignación y en los apartados de bienes, en el momento en que el bien queda apartado, según sea el caso.
+7. En los arrendamientos de bienes con opción de compra vinculante, en el momento de la puesta a disposición del bien, y cuando la opción no es vinculante, en el momento de la ejecución de la opción.

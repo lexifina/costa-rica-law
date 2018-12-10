@@ -1,2 +1,10 @@
-ARTICULO 20.- Cierre del negocio.
-(DEROGADO por el artículo 5 de la Ley N° 7900 del 3 de agosto de 1999).
+Artículo 20- Requisitos formales del crédito fiscal
+1. No procede el derecho a crédito fiscal por la importación o adquisición de bienes o servicios, cuando las compras no estén debidamente documentadas o el documento no cumpla los requisitos reglamentarios.
+2. Solo tendrán crédito fiscal los contribuyentes que estén en posesión de la documentación que respalde su derecho.
+3. Para estos efectos, únicamente se considerarán documentos justificativos del crédito fiscal:
+a) La factura original expedida por quien realice la venta o preste el servicio o los comprobantes debidamente autorizados por la Administración Tributaria, así como, cuando se trate de descuentos, los documentos expedidos por el contribuyente, en las condiciones que se determinen reglamentariamente.
+b) En el caso de las importaciones, el documento en el que conste el impuesto pagado.
+c) En el caso de recaudación del impuesto a nivel de fábrica, mayorista o aduana, de conformidad con lo dispuesto en el artículo 12 de esta ley, el contribuyente podrá aplicar como crédito el factor que determine la Administración sobre el valor de la factura o el documento equivalente que se emita en la adquisición.
+4. Los documentos anteriores que no cumplan con los requisitos establecidos legal y reglamentariamente no serán válidos para respaldar el crédito fiscal, salvo que los defectos sean subsanados, según lo previsto en el reglamento de esta ley, previo al inicio de cualquier actuación fiscalizadora.
+5. No será admisible el crédito fiscal en cuantía superior al impuesto expresa y separadamente consignado, según el documento justificativo del crédito fiscal que haya sido pagado.
+6. Cuando se trate de bienes o servicios adquiridos en común por varias personas, cada uno de los adquirentes tendrá crédito fiscal en la parte proporcional correspondiente, siempre que en el original y en cada una de las copias de la facturase consigne, de forma distinta y separada, la porción de la base imponible e impuesto trasladado a cada uno de los destinatarios.

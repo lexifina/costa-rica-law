@@ -1,5 +1,3 @@
-ARTICULO 33.- Por la naturaleza del régimen, los contribuyentes
-acogidos a él no podrán usar como créditos fiscales el impuesto pagado en
-las compras que efectúen.
-(Así adicionado por el artículo 3 de la Ley de Ajuste Tributario Nº
-7543 del 14 de setiembre de 1995)
+CAPÍTULO VII
+ADMINISTRACIÓN, GESTIÓN DEL IMPUESTO Y REGÍMENES ESPECIALES
+Artículo 33- Administración y fiscalización. La Administración, la fiscalización y la gestión de este impuesto corresponde a la Dirección General de Tributación.

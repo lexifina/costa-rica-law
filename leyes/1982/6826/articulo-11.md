@@ -1,30 +1,19 @@
-CAPITULO IV
-De la base de imposición
-ARTICULO 11.- Base imponible en ventas de mercancías.
-En las ventas de mercancías el impuesto se determina sobre el precio
-neto de venta, que incluye para estos efectos el monto del impuesto
-selectivo de consumo, cuando las mercancías de que se trate estén afectas
-a este impuesto.
-No forman parte de la base imponible:
-a) Los descuentos aceptados en las prácticas comerciales, siempre
-que sean usuales y generales y se consignen por separado del
-precio de venta en la factura respectiva.
-b) El valor de los servicios que se presten con motivo de las ventas
-de mercancías gravadas, siempre que sean suministrados por
-terceras personas y se facturen y contabilicen por separado.
-c) Los gastos financieros que se facturen y contabilicen por
-separado.
-Se faculta a la Administración Tributaria, para determinar la base
-imponible y ordenar la recaudación del impuesto en el nivel de las
-fábricas, mayoristas y aduanas, sobre los precios de venta al consumidor
-final, en el nivel del detallista, en las mercancías en las cuales se
-dificulte percibir el tributo. El procedimiento anterior deberá adoptarse
-mediante resolución razonada, emitida por la Administración Tributaria y
-deberá contener los parámetros y los datos que permitan a los
-contribuyentes aplicar correctamente el tributo.
-Para determinar la base imponible, la Administración Tributaria
-estimará la utilidad con base en un estudio que realizará a las empresas
-líderes en el mercado de los respectivos productos.
-(Así reformado el penúltimo párrafo y adicionado el último por el
-artículo 24 de la Ley de Justicia Tributaria Nº 7535 de 1º de agosto de
-1995)
+Artículo 11- Tarifa reducida. Se establecen las siguientes tarifas reducidas:
+1. Del cuatro por ciento (4%) para los siguientes bienes o servicios:
+a. La compra de boletos o pasajes aéreos, cuyo origen o destino sea el territorio nacional, para cualquier clase de viaje. Tratándose del transporte aéreo internacional, el impuesto se cobrará sobre la base del diez por ciento (10%) del valor del boleto.
+b. Los servicios de salud privados prestados por centros de salud autorizados, o profesionales en ciencias de la salud autorizados. Los profesionales en ciencias de la salud deberán, además, encontrarse incorporados en el colegio profesional respectivo.
+2. Del dos por ciento (2%) para los siguientes bienes o servicios:
+a. Los medicamentos, las materias primas, los insumos, la maquinaria, el equipo y los reactivos necesarios para su producción, autorizados por el Ministerio de Hacienda.
+b. Los servicios de educación privada.
+c. Las primas de seguros personales.
+d. La compra y la venta de bienes y servicios que hagan las instituciones estatales de educación superior, sus fundaciones, las instituciones estatales, el Consejo Nacional de Rectores (Conare) y el Sistema Nacional de Acreditación dela Educación Superior (Sinaes), siempre y cuando sean necesarios para la realización de sus fines.
+3. Del uno por ciento (1%) para los siguientes bienes o servicios:
+a. Las ventas, así como las importaciones o internaciones, de los bienes agropecuarios incluidos en la canasta básica definida en el inciso anterior, incluyendo las transacciones de semovientes vivos, la maquinaria, el equipo, las materias primas, los servicios e insumos necesarios, en toda la cadena de producción, y hasta su puesta a disposición del consumidor final.
+b. Las ventas, así como las importaciones o internaciones, de los artículos definidos en la canasta básica, incluyendo la maquinaria, el equipo, los servicios e insumos necesarios para su producción, y hasta su puesta a disposición del consumidor final. Para todos los efectos, la canasta básica será establecida mediante decreto ejecutivo emitido por el Ministerio de Hacienda y el Ministerio de Economía, Industria y Comercio (MEIC), y será revisada y actualizada cada vez que se publiquen los resultados de una nueva encuesta nacional de ingresos y gastos de los hogares. Esta canasta se definirá con base en el consumo efectivo de bienes y servicios de primera necesidad de los hogares que se encuentren en los dos primeros deciles de ingresos, de acuerdo con los estudios efectuados por el Instituto Nacional de Estadística y Censos (INEC).
+c. La importación o la compra local de las siguientes materias primas e insumos:
+i. Trigo, así como sus derivados para producir alimentos para animales.
+ii. Frijol de soya, así como sus derivados para producir alimentos para animales.
+iii. Sorgo.
+iv. Fruta y almendra de palma aceitera, así como sus derivados para producir alimento para animales.
+v. Maíz, así como sus derivados para producir alimentos para animales.
+d. Los productos veterinarios y los insumos agropecuarios y de pesca, a excepción de los de pesca deportiva, que definan, de común acuerdo, el Ministerio de Agricultura y Ganadería (MAG) y el Ministerio de Hacienda.

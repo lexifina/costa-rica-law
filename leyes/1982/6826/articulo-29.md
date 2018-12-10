@@ -1,14 +1,8 @@
-ARTICULO 29.- Para calcular el impuesto establecido en esta ley, los
-contribuyentes aplicarán, a la variable que corresponde según la
-actividad que se trate: compras, en caso de vendedores de mercancías;
-compras más lo pagado por mano de obra, en el caso de prestadores de
-servicios; costos y gastos de producción o fabricación, en el caso de
-productores y fabricantes y que deberá establecerse conforme a los
-lineamientos señalados en el artículo anterior, el factor resultante de
-aplicar al rendimiento bruto obtenido para la actividad o el grupo
-estudiado, la tarifa vigente del impuesto de ventas.
-(Adicionado por el artículo 3 de la Ley Nº 7088 de 30 de noviembre
-de 1987 y modificada su numeración de acuerdo con el 29 de la Ley Nº 7293
-de 31 de marzo de 1992, que lo pasó del 28 al 29)
-(Así reformado por el artículo 3 de la Ley de Ajuste Tributario Nº
-7543 del 14 de setiembre de 1995)
+Artículo 29- Pagos a cuenta de impuesto sobre el valor agregado. Las entidades, públicas o privadas, que procesen los pagos de tarjetas de crédito o débito, definidas para los efectos del presente artículo como adquirentes, deberán actuar como agentes de retención, cuando paguen, acrediten o, en cualquier otra forma, pongan a disposición de las personas físicas, jurídicas o cualquier ente colectivo, independientemente de la forma jurídica que adopten estos para la realización de sus actividades, afiliados al sistema de pagos por tarjeta de crédito o débito, las sumas correspondientes a los ingresos provenientes de las ventas de bienes y la prestación de servicios, gravados, que adquieran los tarjetahabientes en el mercado local, a cuenta del impuesto sobre el valor agregado, que en definitiva les corresponda pagar a los sujetos indicados.
+La retención a que se refiere el párrafo anterior será hasta de un seis por ciento (6%) sobre el importe neto de venta pagado, acreditado o en cualquier otra forma puesto a disposición del afiliado. Esta retención se considerará un pago a cuenta del impuesto sobre el valor agregado que en definitiva le corresponda pagar, según se establezca reglamentariamente. Para el cálculo de la retención, deberá excluirse el impuesto sobre el valor agregado.
+De la aplicación de la retención establecida en este artículo, se exceptúan los contribuyentes sometidos al régimen de tributación simplificada.
+El afiliado a quien se le haya efectuado la retención prevista en esta ley, la aplicará como pago a cuenta del impuesto que se devengue en el mes en que se efectúe la retención.
+No procederá efectuar la retención aquí establecida sobre los importes correspondientes a esas ventas de bienes y prestación de servicios, cuando una filiado al sistema de pagos mediante tarjeta de crédito o débito también preste servicios o venda bienes, no sujetos al impuesto o exentas, o bien sometidas al régimen de cobro a nivel de fábrica o aduanas. El afiliado deberá suministrar al adquirente la información respectiva, la cual podrá ser, a su vez, solicitada por la Administración Tributaria, de conformidad con los artículos 105 y 106 de la Ley N.° 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971. El suministro inexacto o incompleto de la información referida se sancionará de conformidad con las disposiciones contenidas en el artículo 83 de la Ley N.° 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971, y demás sanciones que correspondan de conformidad con el citado Código.
+El retenedor no es responsable por la información inexacta suministrada por el afiliado.
+Las sumas retenidas deberán depositarse a favor del fisco en el Sistema Bancario Nacional o en sus agencias o sucursales, que cuenten con la autorización del Banco Central, a más tardar al día siguiente de aquel en que se efectúe la retención.
+La Dirección General de Tributación, en resolución emitida para el efecto, establecerá la forma en que debe reportarse la información requerida para el control, el cobro y la fiscalización de la retención, establecida en este artículo, a cargo de los entes adquirentes.

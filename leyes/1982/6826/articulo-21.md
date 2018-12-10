@@ -1,4 +1,3 @@
-ARTICULO 21.- Reglamentación.
-El Poder Ejecutivo, por conducto del Ministerio Hacienda, emitirá
-las disposiciones reglamentarias del caso, para una correcta aplicación
-de las normas de la presente ley.
+Artículo 21- Operaciones que dan derecho a crédito fiscal. Como regla general, solo da derecho a crédito fiscal el impuesto pagado en la adquisición de bienes y servicios utilizados en la realización de operaciones sujetas y no exentas al impuesto.
+También tendrán derecho al crédito fiscal los contribuyentes que hayan realizado operaciones con instituciones del Estado, en virtud de la inmunidad fiscal, o con entes públicos o privados que por disposición en leyes especiales gocen de exención de este tributo, cuando tales operaciones hubieran estado de otro modo sujetas y no exentas.
+Igualmente, da derecho a crédito fiscal el impuesto pagado en la adquisición de bienes y servicios utilizados en la realización de operaciones exentas por exportaciones, operaciones relacionadas con exportaciones y servicios que se presten por contribuyentes del artículo 4, cuando sean utilizados fuera del ámbito territorial del impuesto.

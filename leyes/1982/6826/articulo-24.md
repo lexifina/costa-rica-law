@@ -1,5 +1,4 @@
-ARTICULO 24.- Refórmanse los artículos 2º y 3º de la ley Nº 6696 del
-3 de diciembre de 1981, reformada por la Nº 6707 del 22 de diciembre de
-1981, para que digan así:
-"Artículo 2º.- (...)
-"Artículo 3º.- (...)
+Artículo 24- Aplicación de la proporción de crédito fiscal. La proporción provisionalmente aplicable a cada periodo fiscal, empezando desde el periodo fiscal del mes de enero, será la fijada como definitiva para el año calendario precedente.
+la declaración del impuesto correspondiente al mes de diciembre, el contribuyente calculará la proporción definitiva en función de las operaciones realizadas en el correspondiente año calendario. Esta se aplicará a la suma del impuesto pagado por el contribuyente durante el año correspondiente.
+En función de este resultado de crédito definitivo, el contribuyente practicará el consiguiente ajuste del crédito provisional en la liquidación del impuesto correspondiente al mes de diciembre.
+El procedimiento para la determinación y la aplicación de la proporción del crédito aplicable también será utilizado por los contribuyentes que inicien operaciones con y sin derecho a crédito fiscal, para lo cual deberán utilizar, durante los periodos incluidos en el primer año calendario de operaciones, una proporción provisional razonablemente previsible de acuerdo con su actividad.

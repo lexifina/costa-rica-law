@@ -1,5 +1,1 @@
-ARTICULO 32.- Los contribuyentes acogidos a estos regímenes no
-estarán obligados a emitir facturas por las ventas que realicen, pero sí
-a solicitarlas a sus proveedores.
-(Así adicionado por el artículo 3 de la Ley de Ajuste Tributario Nº
-7543 del 14 de setiembre de 1995)
+Artículo 32- No gravamen a los bienes exentos o no sujetos. En ningún caso, los bienes a que se refieren los artículos 8 y 9 de esta ley deberán gravarse con impuestos selectivos de consumo.

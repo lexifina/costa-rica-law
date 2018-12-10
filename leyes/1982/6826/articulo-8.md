@@ -1,21 +1,49 @@
-ARTICULO 8º.- Obligaciones de los contribuyentes y declarantes.
-En todos los casos, los contribuyentes y los declarantes están
-obligados a extender facturas o documentos equivalentes, debidamente
-autorizados por la Administración Tributaria, en las ventas de mercancías
-o por los servicios prestados. En esos documentos, deben consignar su
-número de inscripción y anotar, por separado, el precio de venta, el
-impuesto correspondiente y los demás datos que se establezcan en el
-Reglamento de esta Ley. No obstante, la Administración Tributaria queda
-facultada para eximir de esta obligación a los contribuyentes y
-declarantes, en casos debidamente justificados por los interesados,
-siempre que se trate de ventas a personas que no sean contribuyentes de
-este impuesto.
-Los contribuyentes y los declarantes deberán llevar registros
-contables en la forma y las condiciones que se determinen en el
-Reglamento.
-Asimismo, los contribuyentes deben consignar su número de
-inscripción en toda declaración, comprobante de depósito y comunicación
-que presenten o dirijan a la Administración Tributaria.
-(Así reformado por el artículo 23 de la Ley de Justicia Tributaria
-Nº 7535 de 1º de agosto de 1995, el cual, al modificarlo, lo reproduce
-íntegramente, incluyendo la denominación y estructura del artículo)
+CAPÍTULO III
+EXENCIONES Y TASA DEL IMPUESTO
+Artículo 8- Exenciones. Están exentos del pago de este impuesto:
+1. Las exportaciones de bienes, así como las operaciones relacionadas con estas; la introducción de bienes en depósitos aduaneros o su colocación al amparo de regímenes aduaneros y la reimportación de bienes nacionales que ocurren dentro de los tres años siguientes a su exportación. Igualmente, estarán exentos la compra de bienes y la prestación de los servicios que sean destinados a ser utilizados para la producción de bienes y servicios destinados a la exportación.
+Asimismo, estarán exentos los servicios prestados por contribuyentes de este impuesto, cuando se utilicen fuera del ámbito territorial del impuesto.
+2. Las ventas de bienes o servicios para la exportación y entre beneficiarios del régimen de zona franca. Igualmente, estarán exentos la compra de bienes y la prestación de los servicios que sean destinados a ser utilizados por los beneficiarios del régimen de zona franca o prestados entre beneficiarios de dicho régimen.
+3. Los intereses y las comisiones derivados de todos los préstamos y créditos.
+4. Los créditos para descuento de facturas, los arrendamientos financieros y los arrendamientos operativos en función financiera.
+5. Las transferencias realizadas por medio de las entidades financieras fiscalizadas por la Superintendencia General de Entidades Financieras, así como los servicios de captación de depósitos del público, los retiros de efectivo, independientemente del medio que se utilice para ello, la utilización de servicios de entidades financieras para el pago de servicios e impuestos, las operaciones de compra, venta o cambio y los servicios análogos que tengan por objeto divisas. Las comisiones de tarjetas de crédito y débito.
+6. Los avales y las garantías de participación y de cumplimiento, que otorguen las entidades bancarias.
+7. Las comisiones pagadas a las operadoras de pensiones, de conformidad con la Ley N.° 7983, Ley de Protección al Trabajador, de 16 de febrero de 2000.
+8. Las primas de seguros de sobrevivencia con rentas vitalicias y rentas de otros tipos.
+9. Los arrendamientos de inmuebles destinados exclusivamente a viviendas, así como los garajes y anexos accesorios a las viviendas y el menaje de casa, arrendado conjuntamente con aquellos, siempre y cuando el monto de la renta mensual sea igual o inferior al uno coma cinco (1,5) del salario base. Cuando el monto de la renta mensual exceda del uno coma cinco (1,5) del salario base, el impuesto se aplicará al total de la renta. También estarán exentos los pagos que realicen las organizaciones religiosas, cualquiera que sea su credo, por los alquileres en los locales o establecimientos en los que desarrollen su culto.
+La denominación salario base utilizada en este inciso debe entenderse como la contenida en el artículo 2 de la Ley N.° 7337, Crea Concepto Salario Base para Delitos Especiales del Código Penal, de 5 de mayo de 1993.
+10. Los arrendamientos utilizados por las microempresas y pequeñas empresas inscritas en el Ministerio de Economía, Industria y Comercio (MEIC), así como las micro y pequeñas empresas agrícolas registradas ante el Ministerio de Agricultura y Ganadería (MAG). Cuando el monto de la renta mensual exceda del uno coma cinco (1,5) del salario base, el impuesto se aplicará al total de la renta.
+11. El suministro de energía eléctrica residencial, siempre que el consumo mensual sea igual o inferior a 280 kW/h; cuando el consumo mensual exceda de los 280 kW/h, el impuesto se aplicará al total de kW/h consumido.
+12. La venta o la entrega de agua residencial, siempre que el consumo mensual sea igual o inferior a 30 metros cúbicos; cuando el consumo mensual exceda de los 30 metros cúbicos, el impuesto se aplicará al total de metros cúbicos consumidos.
+No gozará de esta exención el agua envasada en recipientes de cualquier material.
+13. El autoconsumo de bienes, siempre que no se haya reconocido al sujeto pasivo un crédito total o parcial con ocasión de la adquisición o la importación de los bienes o de sus elementos componentes, o por la recepción del servicio que sea objeto de dicha operación.
+14. La venta o la importación de sillas de ruedas y similares, equipo ortopédico, prótesis en general, así como toda clase de equipos usados por personas con problemas auditivos, el equipo que se emplee en programas de rehabilitación y educación especial, incluidas las ayudas técnicas y los servicios de apoyo para personas con discapacidad, destinados a mejorar la funcionalidad y garantizar la autonomía de las personas con discapacidad, de conformidad con lo dispuesto por el artículo 2 de la Ley N.° 7600, Igualdad de Oportunidades para las Personas con Discapacidad, de 2 de mayo de 1996.
+15. Los bienes y los servicios que venda, preste o adquiera la Cruz Roja Costarricense, siempre y cuando sean necesarios para el cumplimiento de sus funciones.
+16. Los aranceles por matrícula y los créditos de los cursos brindados en las universidades públicas, en cualquiera de sus áreas sustantivas.
+17. Los bienes y los servicios que venda, preste o adquiera el Benemérito Cuerpo de Bomberos de Costa Rica, siempre y cuando sean necesarios para el cumplimiento de sus funciones.
+18. La adquisición de bienes y servicios realizada por la Fundación Ayúdenos a Ayudar y la Asociación Pro-Hospital Nacional de Niños, de conformidad con la Ley N.° 8095, Exoneración para la Fundación para el Rescate y Protección del Patrimonio de la Casa Presidencial, la Fundación Ayúdenos para Ayudar y la Asociación Pro-Hospital Nacional de Niños, de 15 de marzo de 2001, la Asociación Obras del Espíritu Santo, cédula de persona jurídica número tres-cero cero dos trescientos cuarenta y cuatro mil quinientos sesenta y dos (N.° 3-002-344 562).
+Estarán igualmente exentas la venta de bienes y la prestación de servicios que hagan dichas entidades, así como las adquisiciones y las ventas de bienes y servicios que realice la Federación Cruzada Nacional de Protección al Anciano (Fecrunapa).
+19. La adquisición de bienes y servicios que haga la Escuela de Agricultura de la Región Tropical Húmeda (EARTH), según lo dispuesto en la Ley N.° 3011,Convenio de la Alianza para el Progreso con los Estados Unidos (AID), de 18 de julio de 1962, y el Instituto Centroamericano de Administración de Empresas (Incae) según lo dispuesto en la Ley N.° 6743, Convenio entre el Gobierno de Costa Rica y el Instituto Centroamericano de Administración de Empresas (Incae), de 29 de abril de 1982, y la Ley N.° 8088, Interpretación Auténtica del Artículo 2 de la Ley Reguladora de las Exoneraciones Vigentes, su Derogatoria y sus Excepciones, N.° 7293, de 13 de febrero de 2001.
+20. El uso de espacio publicitario o promocional exclusivo para fines propios, realizado por las televisoras y las emisoras de radio.
+21. El autoconsumo de energía eléctrica generada por medio de la utilización de paneles solares, así como otras fuentes renovables, tales como el viento, el sol y la biomasa.
+22. La importación de bienes o servicios, cuya adquisición se encuentra exenta, de conformidad con lo dispuesto en este artículo.
+23. Las loterías nacionales, las rifas, los juegos y los demás productos de azar que venda, distribuya o comercialice en territorio nacional la Junta de Protección Social (JPS).
+24. Los servicios de transporte terrestre de pasajeros y los servicios de cabotaje de personas, siempre y cuando cuenten con permiso o concesión otorgada por el Estado, y cuya tarifa sea regulada por la Autoridad Reguladora de los Servicios Públicos (Aresep), cualquiera que sea su naturaleza o el medio de transporte utilizado. Asimismo, la importación de autobuses y las embarcaciones utilizadas para la prestación de estos servicios de transporte colectivo de personas. Esta exoneración también será aplicable a la compraventa local, el arrendamiento y el
+leasing de estos bienes, en el tanto los titulares sean concesionarios o permisionarios. El alquiler y el leasing comprenderán los bienes muebles, así como también los planteles y las terminales utilizadas para su operación.
+25. Los libros con independencia de su formato. Esta exoneración no será aplicable a los medios electrónicos que permiten el acceso y la lectura de libros en soporte diferente del papel.
+26. Los servicios prestados por las emisoras de radio culturales, así calificadas de conformidad con lo establecido en la Ley N.° 8642, Ley General de Telecomunicaciones, de 4 de junio de 2008.
+27. Las cuotas de afiliación y las mensualidades pagadas a los colegios profesionales, las organizaciones sindicales y las cámaras empresariales.
+28. Las primas de riesgos del trabajo, agropecuarios y de viviendas de interés social.
+29. Las comisiones por el servicio de subasta ganadera y agrícola, así como las transacciones de animales vivos que se realicen en dichas subastas autorizadas.
+30. Las redes de cuido y los centros de atención para adultos mayores.
+31. Los servicios de educación privada, preescolar, primaria, secundaria, universitaria, parauniversitaria y técnica.
+32. La adquisición de bienes y servicios que hagan las asociaciones de desarrollo comunal, amparadas en la Ley N.° 3859, Ley sobre el Desarrollo de la Comunidad, de 7 de abril de 1967, siempre y cuando sean necesarios para el cumplimiento de sus fines.
+33. La adquisición y la venta de bienes y servicios que hagan las juntas de educación y administrativas de las instituciones públicas de enseñanza del Ministerio de Educación Pública (MEP), siempre y cuando sean necesarios para la realización de sus fines y en beneficio de los centros educativos públicos que les corresponda atender.
+34. Los servicios y los bienes comprados o adquiridos por las asociaciones administradoras de los sistemas de acueductos y alcantarillados comunales en Costa Rica, también conocidas como Asadas, siempre y cuando sean necesarios para la realización de sus fines y en beneficio de las comunidades o zonas que les corresponda atender.
+35. La venta, la comercialización y la matanza de animales vivos (semovientes) dentro de la cadena de producción e industria pecuaria.
+(Nota de Sinalevi: Mediante resolución N° DGT-R-035-2019 del 27 de junio del 2019 se establece lo siguiente: “ se entenderán exoneradas del Impuesto al Valor Agregado las siguientes operaciones relacionadas con las exportaciones:
+Servicios portuarios o aeroportuarios en general.
+Servicios de transporte de bienes destinados a la exportación, hacia los puertos, aeropuertos y fronteras terrestres, siempre que el transportista esté debidamente inscrito ante la Dirección General de Tributación y emita el comprobante electrónico correspondiente, aún en aquellos supuestos en que no se encuentre registrado como auxiliar de la función pública”)
+(Nota de Sinalevi: Mediante resolución N° DGT-R-038-2019 del 5 de julio del 2019 se establece lo siguiente: “se entenderán exoneradas del Impuesto al Valor Agregado las siguientes operaciones:
+- Los servicios de atención a la nave, entre los que se incluyen entre otros, las ayudas a la navegación para la operación, servicios de remolcaje, pilotaje, lancha, amarre, desamarre de la nave, estadía de naves, movimiento de tapas de los barcos, manejo de bloqueos de giro o “twistlocks”, limpieza de muelle, tiempo adicional en muelle y tiempos de espera de la cuadrilla.
+- Servicios brindados para la atención de contenedores vacíos de exportación o importación acogidos al régimen de importación temporal. Estos servicios incluyen entre otros, la carga y descarga de los contenedores, así como los servicios de transporte terrestre de los contenedores vacíos, incluyendo el trayecto de puerto al domicilio donde se encuentre ubicada la carga y viceversa.”)

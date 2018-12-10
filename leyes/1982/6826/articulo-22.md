@@ -1,6 +1,4 @@
-ARTICULO 22.- Vigencia.
-Esta ley rige a partir del primer día del mes siguiente a la fecha
-de publicación del Reglamento en el Diario Oficial "La Gaceta". No
-obstante, si el Reglamento no se publicara en un plazo máximo de dos
-meses, entrará en vigencia a partir del primer día del tercer mes de la
-publicación de esta ley.
+Artículo 22- Realización de operaciones con y sin derecho a crédito fiscal. Cuando la totalidad o una parte de los bienes o servicios adquiridos se destinen indistintamente a operaciones con derecho a crédito fiscal y a operaciones sin derecho a crédito fiscal, la determinación del crédito fiscal a utilizar contra el débito fiscal se hará de acuerdo con las reglas siguientes:
+1. El crédito procedente de la adquisición o importación de bienes o servicios utilizados, exclusivamente, en la realización de operaciones con derecho a crédito fiscal se utilizará en un cien por ciento (100%) contra el débito fiscal del periodo.
+2. El impuesto procedente de la adquisición o importación de bienes o servicios utilizados, exclusivamente, en la realización de operaciones sin derecho a crédito no concede derecho a crédito fiscal y constituye un costo o gasto.
+3. En los casos en que no pueda identificarse, para un determinado impuesto pagado, si el bien o el servicio adquirido ha sido utilizado, exclusivamente, en operaciones con derecho al crédito fiscal o en operaciones sin derecho a crédito fiscal, el contribuyente únicamente tendrá derecho al crédito fiscal en la proporción correspondiente a las operaciones con derecho a crédito del periodo sobre el total de operaciones. El resto del impuesto pagado o por pagar constituirá un costo o gasto.
