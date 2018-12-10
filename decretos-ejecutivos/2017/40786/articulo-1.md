@@ -18,4 +18,5 @@ Por Tanto,
 Decretan:
 ACTUALIZACIÓN DEL IMPUESTO SOLIDARIO
 PARA EL FORTALECIMIENTO DE PROGRAMAS DE VIVIENDA, PERIODO 2018.
-Artículo 1º—Actualización del valor establecido en el inciso a) del artículo 6 de la Ley número 8683 del 19 de noviembre de 2008. Para el período fiscal 2018 se actualiza el valor fiscal establecido en los artículos 6 inciso a) de la Ley número 8683 denominada “Ley del Impuesto Solidario para el Fortalecimiento de Programas de Vivienda” de 19 de noviembre de 2008 y 1 del Decreto Ejecutivo número 40090-H del 8 de diciembre de 2016, a la suma de ciento veintinueve millones de colones (¢129.000.000,00).
+Artículo 1º—Actualización del valor establecido en el inciso a) del artículo 6 de la Ley número 8683 del 19 de noviembre de 2008. Para el período fiscal 2018 se actualiza el valor fiscal establecido en los artículos 6 inciso a) de la Ley número 8683 denominada “Ley del Impuesto Solidario para el Fortalecimiento de Programas de Vivienda” de 19 de noviembre de 2008 y 1 del Decreto Ejecutivo número 40090-H del 8 de diciembre de 2016, a la suma de ciento treinta y un millones de colones (¢131.000.000,00).
+(*) (Así modificado el valor antes mencionado para el período fiscal 2019 por el artículo 1° del decreto ejecutivo N° 41478 del 10 de diciembre del 2018)
