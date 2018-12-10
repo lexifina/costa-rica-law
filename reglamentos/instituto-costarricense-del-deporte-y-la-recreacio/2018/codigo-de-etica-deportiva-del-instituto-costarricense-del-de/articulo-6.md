@@ -1,0 +1,1 @@
+Artículo 6°- El atleta debe dirigirse con responsabilidad y respeto, igualmente su relación con otros deportistas cualesquiera sean su ideología, condición social, nacionalidad, religión, grupo étnico, situación económica, orientación sexual, reputación y los sentimientos que le inspiran.

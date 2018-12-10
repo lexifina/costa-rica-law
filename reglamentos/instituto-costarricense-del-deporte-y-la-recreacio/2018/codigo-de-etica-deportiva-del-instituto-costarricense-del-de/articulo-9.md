@@ -1,0 +1,1 @@
+Artículo 9°- La asociaciones y federaciones deportivas deben contar con Programas para eliminar la violencia y promover el respeto, la tolerancia y la paz”, para con los atletas, entrenadores, preparadores físicos, deportistas, familiares y otros actores, en los recintos deportivos y áreas aledañas.
