@@ -1,0 +1,1 @@
+Artículo 2º— Documento para adquisiciones exentas: Las adquisiciones se realizarán mediante órdenes de compra emitidas por el Programa Integral de Mercadeo Agropecuario (PIMA). Estas deberán ser firmadas por las personas debidamente autorizadas por parte del Representante Legal del programa, para efectuar las referidas compras exentas de impuestos a nombre del PIMA.
