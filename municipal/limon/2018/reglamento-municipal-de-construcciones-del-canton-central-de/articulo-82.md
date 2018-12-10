@@ -1,0 +1,1 @@
+ARTÍCULO 82. Protocolo de inspección para instituciones. Las instituciones involucradas en la inspección de proyectos contarán con un protocolo de revisión y de inspección, el cual contiene la delimitación de las competencias de cada institución y de la Municipalidad; y se encuentra publicado en la plataforma digital del CFIA.
