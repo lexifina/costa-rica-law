@@ -1,0 +1,1 @@
+Artículo 12.—La Dirección Financiera, previa recomendación de la Proveeduría y el Departamento Legal, deberá dictaminar sobre el ofrecimiento, considerando entre otros aspectos que los bienes que serían objeto de donación, son útiles o necesarios para la Municipalidad.

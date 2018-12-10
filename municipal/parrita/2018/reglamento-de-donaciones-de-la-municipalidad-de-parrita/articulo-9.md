@@ -1,0 +1,1 @@
+Artículo 9º—En los casos en que proceda su trámite, el alcalde una vez efectuados los estudios correspondientes, someterá la solicitud de donación a conocimiento del Concejo Municipal. En caso de que el ofrecimiento sea ante el Concejo Municipal, este lo trasladará a la administración para el estudio correspondiente.
