@@ -1,0 +1,1 @@
+Transitorio II. El Procedimiento del Trámite de Inicio de Empresas en los cantones de Abangares, Cañas, Tilarán, Bagaces, Liberia y La Cruz de la Región Chorotega, empezará a regir un mes después de su publicación en el Diario Oficial La Gaceta.

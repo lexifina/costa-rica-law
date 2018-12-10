@@ -1,0 +1,1 @@
+Transitorio I. Las Licencias Comerciales que se tramitaron con el Procedimiento del Trámite Simplificado y Coordinado anterior; deberán una vez vencidas cumplir con los procedimientos de renovación bajo las disposiciones establecidas en este Decreto Ejecutivo.
