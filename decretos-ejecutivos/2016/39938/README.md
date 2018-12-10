@@ -14,3 +14,4 @@ Reglamento General sobre la Asignación de Contingentes Arancelarios de Importac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-10-06 | la propia norma |
+| 2 | 2018-12-10 | Decreto Ejecutivo 41558 (2018-12-10) |
