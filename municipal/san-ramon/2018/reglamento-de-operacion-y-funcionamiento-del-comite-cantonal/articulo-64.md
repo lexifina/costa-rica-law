@@ -1,0 +1,2 @@
+Artículo 64: Las asociaciones deportivas o recreativas que hagan uso de las instalaciones para fines de competencia y requieran colocar propaganda u anuncios de patrocinadores deberán solicitar la autorización, en forma previa, del Comité Cantonal de Deportes, y pagar el canon respectivo. Igual situación cuando se requiera hacer trasmisiones televisivas, por radio o cualquier otro medio.
+Está prohibida la colocación de todo tipo de propaganda o anuncios publicitarios que inciten al consumo de bebidas alcohólicas, al fumado o el uso de cualquier droga estimulante.

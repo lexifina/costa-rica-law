@@ -1,0 +1,1 @@
+Artículo 6: Del domicilio Social.- El domicilio social del Comité Cantonal de Deporte será el Complejo Deportivo Rafael Rodríguez, ubicado en el distrito central del cantón de San Ramón entre Avenida, 0 y 2; Calle 8 y 10.

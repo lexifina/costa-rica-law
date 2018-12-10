@@ -1,0 +1,2 @@
+Artículo 25: De la convocatoria a sesiones extraordinarias.- La convocatoria a sesiones extraordinarias deben realizarse con al menos 24 horas de anticipación y debe dejarse prueba de dicha convocatoria.
+Las sesiones extraordinarias serán convocadas por el Presidente de la Junta Directiva del Comité Cantonal de Deportes, o por al menos tres miembros de su Junta Directiva. Dicha convocatoria debe ir firmada por los miembros de la Junta Directiva que la solicitan. Con la convocatoria se comunicará la agenda a conocer en esa sesión y sólo esos puntos podrán conocerse en ella.

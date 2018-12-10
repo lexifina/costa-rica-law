@@ -1,0 +1,1 @@
+Artículo 57: De la pérdida de credenciales como miembro del Comité.- La pérdida de condición de miembro del Comité Comunal de Deporte y Recreación se regirá por lo dispuesto en el artículo 22 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 71: Este reglamento deroga totalmente el anterior reglamento del Comité Cantonal de Deporte y Recreación aprobado mediante acuerdo 05 de la sesión ordinaria 110 del Concejo Municipal de San Ramón celebrada del 04 de setiembre del 2007.

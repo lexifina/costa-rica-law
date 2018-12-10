@@ -1,0 +1,1 @@
+Artículo 22: Del lugar para sesionar.- El CCDRSR sesionará ordinariamente en su domicilio social. No obstante podrá sesionar extraordinariamente en cualquier otro lugar del cantón central, siempre y cuando así lo decida el Comité por simple mayoría de votos.

@@ -1,0 +1,4 @@
+Artículo 26: De las Actas de Junta Directiva.- La Junta Directiva del Comité Cantonal de Deporte y Recreación debe llevar un libro de actas de la sesiones, tanto de las ordinarias como de la extraordinarias, donde se consignará la fecha, el número de acta, el carácter ordinario o extraordinario de la sesión, el orden del día, los miembros presentes, los acuerdos tomados y una narración sucinta de las intervenciones de los miembros de la Junta Directiva y cualquier otra incidencia de interés.
+Las actas deben ser firmadas por el Presidente y el Secretario.
+El libro de actas del CCDRSR debe ser legalizado por la Auditoría Municipal. Transcurrido este lapso no hay quórum suficiente, tal como lo estatuye el artículo 19 de este reglamento, no se podrá sesionar.
+Se levantará la lista de los miembros de la Junta Directiva a efectos del cómputo de ausencias para la aplicación del artículo 22 de este reglamento.

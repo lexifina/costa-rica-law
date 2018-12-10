@@ -1,0 +1,1 @@
+Artículo 68: Ninguna Asociación Deportiva o Recreativa podrá administrar las instalaciones deportivas o recreativas del Comité Cantonal de San Ramón; tampoco podrán cobrar cánones por el uso de estas instalaciones, salvo los casos debidamente autorizados mediante convenio vigente.

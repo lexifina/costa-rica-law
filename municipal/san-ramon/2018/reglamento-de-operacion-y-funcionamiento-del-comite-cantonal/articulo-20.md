@@ -1,0 +1,2 @@
+Artículo 20: Del quórum para sesionar.- El quórum para sesionar será de tres miembros presentes.
+En caso de que algunas persona, ya sea por muerte, fuerza mayor o por ser destituido, pierda su condición de miembro del Comité Cantonal de Deporte y Recreación, este deberá ser sustituido en forma inmediata. La Junta Directiva del Comité remitirá la nota al Concejo Municipal para que este proceda a nombrar, en le sea posible al miembro faltante.

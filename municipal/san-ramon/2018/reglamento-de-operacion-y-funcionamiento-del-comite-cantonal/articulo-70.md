@@ -1,0 +1,1 @@
+Artículo 70: A través de convenios, el CCDRSR podrá subvencionar las Asociaciones Deportivas o Recreativas, reconocidas por el Comité, para el desarrollo de las ligas menores y la promoción del deporte a través de programas, competencias y torneos.

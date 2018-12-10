@@ -1,0 +1,2 @@
+Artículo 67: Las Asociaciones debidamente reconocidas por el Comité Cantonal de Deporte y Recreación podrán colaborar con este en la propuesta del establecimiento de las Políticas Deportivas y Recreativas del Comité.
+También colaborarán con la programación anual de actividades deportivas y de uso de las instalaciones deportivas y recreativas administradas por el CCDRSR. Y con la preparación de deportistas para la participación en Juegos Nacionales u otras competencias donde puedan mostrarse y crecer los atletas ramonenses.

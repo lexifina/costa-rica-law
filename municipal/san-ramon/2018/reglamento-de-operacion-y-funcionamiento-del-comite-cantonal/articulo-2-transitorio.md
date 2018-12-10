@@ -1,0 +1,1 @@
+Transitorio 2: El Comité Cantonal de Deportes y Recreación tiene tres meses para realizar la propuesta al Consejo Municipal de canon por el uso de las diferentes instalaciones deportivas y recreativas.

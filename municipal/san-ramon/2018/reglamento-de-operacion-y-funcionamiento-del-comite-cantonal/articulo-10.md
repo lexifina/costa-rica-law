@@ -1,0 +1,1 @@
+Artículo 10: Del plazo del nombramiento en la Junta Directiva del CCDRSR.- Los miembros de la junta directiva durarán en sus cargos dos años, podrán ser reelegidos y no devengarán dietas ni remuneración alguna.

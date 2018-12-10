@@ -1,0 +1,1 @@
+Artículo 56: Del período de nombramiento de los miembros del Comité Comunal. Los miembros de la junta directiva durarán en sus cargos dos años, podrán ser reelegidos y no devengarán dietas ni remuneración alguna.

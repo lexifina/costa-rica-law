@@ -1,0 +1,2 @@
+Artículo 31: Todo acuerdo de la Junta Directiva del Comité Cantonal de Deporte y Recreación debe ser votado. Será aprobado aquel acuerdo en el que concurra una mayoría simple de votos de los miembros presentes. En el libro de actas deberá consignarse el acuerdo, el resultado de la votación del acuerdo, y un resumen de lo discutido en torno al acuerdo con indicación expresa de las diferentes participaciones de los miembros de la Junta Directiva.
+El miembro de la Junta Directiva que decida votar en forma negativa debe explicar su motivo y este debe consignarse en el acta.

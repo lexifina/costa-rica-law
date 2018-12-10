@@ -1,0 +1,1 @@
+Artículo 53: De las sesiones del Comité.- Los Comités Comunales decidirán las fechas y horas en que sesionarán; sin embargo como mínimo deberán reunirse dos veces por mes, de las cuales se levantará un acta que firmarán el Presidente y el Secretario.

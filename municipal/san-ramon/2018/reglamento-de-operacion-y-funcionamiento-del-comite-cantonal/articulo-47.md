@@ -1,0 +1,1 @@
+Artículo 47: Del destino de los recursos por el uso de las instalaciones.- El canon percibido por concepto de uso o alquiler de las instalaciones deportivas o recreativas del Comité Cantonal de Deporte y Recreación, deberán destinarse prioritariamente al mantenimiento y desarrollo de las mismas.

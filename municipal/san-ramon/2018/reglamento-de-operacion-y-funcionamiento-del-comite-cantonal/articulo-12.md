@@ -1,0 +1,1 @@
+Artículo 12.- De la juramentación de los miembros electos: Una vez elegida la Junta Directiva y previo a que esta tome posesión de sus cargos deberán juramentarse ante el Concejo Municipal de la Municipalidad de San Ramón.

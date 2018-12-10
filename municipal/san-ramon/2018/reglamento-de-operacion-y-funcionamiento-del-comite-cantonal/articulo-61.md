@@ -1,0 +1,2 @@
+Artículo 61: De los otros usos de las instalaciones.- El Comité Cantonal de Deporte y Recreación podrá autorizar actividades culturales, artísticas o religiosas en las instalaciones Deportivas y Recreativas, siempre y cuando se garantice que las mismas no ocasionarán un daño al inmueble, previo pago del canon correspondiente.
+No obstante, no se autorizará el uso de las instalaciones deportivas y recreativas para actividades en las que haya consumo de licor o cualquier otra droga o sustancia enervante y prohibida.

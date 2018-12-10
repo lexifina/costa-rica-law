@@ -1,0 +1,1 @@
+Artículo 3: Finalidad.- La finalidad esencial del CCDRSR es promover el deporte y la recreación dentro de la circunscripción territorial de la Municipalidad de San Ramón, como un elemento clave para la promoción de la salud y el desarrollo integral de las personas y comunidades.

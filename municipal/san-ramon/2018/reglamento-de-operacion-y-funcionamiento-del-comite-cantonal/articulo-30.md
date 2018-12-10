@@ -1,0 +1,4 @@
+Artículo 30: De la modificación del orden del día.- El orden del día de las sesiones ordinarias se podrá modificar mediante la presentación y aprobación de una moción de orden, que debe ser razonada y puede presentarse en forma escrita u oral.
+a) Si es presentada en forma escrita debe hacerse llegar al Presidente de la Junta Directiva y debe venir firmada por el miembro que la propone. El Presidente hará lectura de la misma y le otorgará la palabra al proponente por espacio de dos minutos para que justifique la moción.
+b) Si es oral debe solicitarse la palabra indicando que es para interponer moción de orden. El presidente otorgará la palabra al proponente y este explicará la moción.
+Toda moción de orden, al ser presentada debe ser votada como acto continuado y para su aprobación se requiere de mayoría simple.
