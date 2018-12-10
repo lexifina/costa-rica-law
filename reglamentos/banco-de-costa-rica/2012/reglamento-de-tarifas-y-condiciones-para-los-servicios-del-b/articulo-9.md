@@ -34,7 +34,13 @@ El costo del equipo depende del valor de mercado en el momento de la reposición
 - Para 16 meses 22,07%
 - Para 24 meses 24.52%
 (Así reformado mediante sesión N° 03-17 del 18 de enero del 2017)
-(Nota de Sinalevi: Mediante sesión N° 49-18 del 24 de setiembre del 2018, se indica reformar el punto 10.4). Al no o contener la norma dicho punto el mismo se transcribe a continuación: “10. Otras tarifas
+9.13.-Comisión por alquiler de dispositivo lector para MPOS:
+$12 mensuales por cada Dispositivo Lector de MPOS instalado.
+(Así adicionado el punto 9.13) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
+9.14.-Tarifa por reposición de dispositivo lector para MPOS extraviados o con daño irreparable por el comercio afiliado:
+El costo del equipo depende del valor de mercado en el momento de la reposición.
+(Así adicionado el punto 9.14) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
+(Nota de Sinalevi: Mediante sesión N° 49-18 del 24 de setiembre del 2018 se reforma un punto 10.4 ) al no contener la norma dicho punto el mismo se transcribe a continuación: “10. Otras tarifas
 (…)
 10.4- Trámite de licencias, pasaportes y Dimex
 Pasaporte y Dimex $8.00

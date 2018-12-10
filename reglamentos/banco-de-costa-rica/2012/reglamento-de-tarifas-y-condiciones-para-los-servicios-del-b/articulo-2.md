@@ -42,55 +42,60 @@ $10.00 cada mes hasta su liquidación
 Bolso $30.00
 Llave $25.00
 (Así reformado el punto 2.8) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
-2.9.- Confección y entrega de efectivo (diferentes denominaciones de billetes) a solicitud del cliente en ventanilla
+2.9.- Confección y entrega de efectivo (diferentes denominaciones de billetes) a solicitud del cliente en ventanilla o para ser enviado por transportadora de valores
 2.9.1 Confección y entrega ventanilla
 2.00% sobre el monto. Mínimo $20.00
-2.9.2 Confección y envío por transportadora de valores
+2.9.2 Confección de planillas para ser enviado por transportadora de valores
 $18.00 la confección
-El envío de acuerdo a la tarifa con la empresa transportadora.
-(Así reformado el punto 2.9) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.9.3 Envío de planillas con el servicio de Transporte de valores
+1 - Para clientes cuyas solicitudes son recibidas y enviadas desde las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM), Hasta ¢ 6.000.000.00 cobrar la suma de:
+a)$23.00 remeseras propias/recolección.
+Sobre el exceso de los ¢6.000.000.00 se aplicará la siguiente fórmula: (M.E./T.C.)*0.000572
+Monto del excedente, dividido entre el tipo de cambio de venta del dólar del último día hábil del mes por 0.000572.
+Este factor corresponde a los $2.00 por cada $3.500.00 adicionales.
+Los montos sobre los cuales se realizaran los cobros, son los declarados en las planillas de conducción.
+b)Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con en el cartel de licitación y la oferta recibida por dichas empresas. (Segúncuadro1)
+2-Para clientes cuyas solicitudes son recibidas y enviadas desde las tesorerías regionales ubicadas fuera de la (GAM):
+Hasta ¢6.000.000.00 cobrar la suma de:
+a)$29.00 remeseras propias/recolección.
+Sobre el exceso de los ¢6.000.000.00 se aplicará la siguiente fórmula: (M.E./T.C.)*0.000572
+Monto del excedente, dividido entre el tipo de cambio de venta del dólar del último día hábil del mes por 0.000572.
+Este factor corresponde a los $2.00 por cada $3.500.00 adicionales.
+Los montos sobre los cuales se realizaran los cobros, son los declarados en las planillas de conducción.
+b)Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas.
+Nota:
+Cualquier tarifa que no sea la establecida en este punto debe ser consultada con la oficina de operaciones de administración de efectivo.
+(Así reformado el punto 2.9) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
 2.10.- Descongelamiento de fondos (descongelamiento de recursos depositados en cuenta corriente y cuenta de ahorros por medio de cheques)
 0.10% sobre los fondos utilizados en moneda nacional y moneda extranjera.
 (Así reformado el punto 2.10) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
 2.11.- Entrega de monedas en bolsas predefinidas exclusivo para clientes del BCR
-$2.00 para retiros menores o iguales a $200.00 (o su equivalente en colones).
-Para montos superiores a $200.00 un 1.00% sobre el monto.
-(Así reformado el punto 2.11) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+Entrega de monedas en bolsas predefinidas exclusivo para clientes del BCR.
+$6.00 para retiros menores o iguales a $200.00 (o su equivalente en colones). Para montos superiores a $200.00 un 4.00% sobre el monto
+(Así reformado el punto 2.11) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
 2.12.-Cancelación anticipada de los CDP desmaterializados y electrónicos colones y dólares
 Se requiere que el CDP posea como mínimo un 25% de permanencia en el plazo establecido cuando son menores a un año, para plazos mayores, su permanencia tendrá que ser como mínimo de tres meses. La comisión se cobra sobre el principal del CDP, más los intereses vigentes por pagar. Aplicando el 50% de la tasa pasiva vigente del día de la cancelación para el plazo original del CDP, multiplicando ese resultado por el número de días por vencer, dividido por 360.
 Comisión mínima $10.
 (Así reformado el punto 2.12) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
 2.13.- Estados de cuenta corriente y de ahorros
-$2.00 máximo 2 folios, sobre excesos $0.50 por folio
-(Así reformado el punto 2.13) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+$2.00 máximo 2 páginas, sobre excesos $0.50 por página
+(Así reformado el punto 2.13) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
 2.14.- Cheques rechazados por insuficiencia de fondos aplica tanto para los cheques emitidos como para los depositados en colones y dólares
 $20 más gastos del corresponsal
 (Así reformado el punto 2.14) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
 2.15.-Venta de cheques de gerencia
 $25.00
 (Así reformado el punto 2.15) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
-2.16.- Recolección depósitos especiales en cuenta corriente
-1 - Para clientes cuyos depósitos son recolectados y contabilizados en las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM), planillas preparadas y enviadas de las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM), a los clientes:
-Hasta ¢ 6.000.000.00 cobrar la suma de:
-a) $10.00 remeseras propias/recolección.
-Sobre el exceso de los ¢6.000.000.00 se aplicará la siguiente fórmula:
-(M.E./T.C.)*0.000572
-Monto del excedente, dividido entre el tipo de cambio de venta del dólar del último día hábil del mes por 0.000572.
-Este factor corresponde a los $2.00 por cada $3.500.00 adicionales.
-Los montos sobre los cuales se realizaran los cobros, son los declarados por el cliente en las planillas de conducción.
-b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con en el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro adjunto)
-2- Para clientes cuyos depósitos son recolectados, contabilizados, para planillas preparadas y enviadas en las tesorerías regionales ubicadas fuera de la (GAM) a los clientes:
-Hasta ¢6.000.000.00 cobrar la suma de:
-a) $13.00 remeseras propias/recolección.
-Sobre el exceso de los ¢6.000.000.00 se aplicará la siguiente fórmula:
-(M.E./T.C.)*0.000572
-Monto del excedente, dividido entre el tipo de cambio de venta del dólar del último día hábil del mes por 0.000572.
-Este factor corresponde a los $2.00 por cada $3.500.00 adicionales.
-Los montos sobre los cuales se realizaran los cobros, son los declarados por el cliente en las planillas de conducción.
-b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro adjunto)
-Vargas Mejía (VMA)
-Proval
-(Así reformado el punto 2.16) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.16.- Recolección depósitos especiales con el servicio de transporte de Valores
+1 -Para clientes cuyos depósitos son recolectados y contabilizados en las tesorerías regionales ubicadas en el Gran Área Metropolitana (GAM),
+a)$23.00 remeseras propias/recolección.
+b)Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con en el cartel de licitación y la oferta recibida por dichas empresas. (Segúncuadro adjunto)
+2-Para clientes cuyos depósitos son recolectados, contabilizados en las tesorerías regionales ubicadas fuera del (GAM)
+a)$29.00 remeseras propias/recolección.
+b)Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro adjunto)
+CASH LOGISTICS S.A
+[imagen]
+(Así reformado el punto 2.16) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
 2.17.-Retiro de efectivo en ventanilla, pensionados de la C.C.S.S.
 ¢100.00 por cada retiro, para aquellas cuentas cuyo saldo semestral sea inferior a $500.
 2.17.- Comisión para la entrega de efectivo para instituciones del sector
@@ -108,16 +113,14 @@ $1.00 por traspaso
 $4.00 por cada movimiento (débitos y créditos) sean estos físicos o electrónicos, a todas las cuentas bancarias que se compruebe que están utilizando la infraestructura (oficinas y canales electrónicos) del BCR, como instrumentos para el desarrollo de sus negocios financieros.
 (Así reformado el punto 2.20) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
 2.21.-Órdenes de pago (transferencia) a otras oficinas bancarias
-Colones y dólares mínimo $3.00
-Montos %
-Hasta $200.00 2.0%
-Exceso $201.00 a $1.800.00 1.5%
-Exceso de $1,801.00 en adelante 0.5%
-(Así reformado el punto 2.21) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+[imagen]
+Se aplica el equivalente al tipo de cambio de venta.
+Sistema no permite transacciones mayores a $1.000 o su equivalente en colones
+(Así reformado el punto 2.21) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
 2.22.-Servicio de investigación de documentos o información que solicitan los clientes, para localizar comprobantes de caja y otros
-2.22.1 Copias de microfilm $6.00 primeras 5 páginas y $1.20 por cada hoja adicional.
-2.22.2 Comprobantes de caja, imágenes digitalizadas y otros $2.00 máximo tres fotocopias, $0.50 por folio adicional.
-(Así reformado el punto 2.22) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.22.1 $6.00 las primeras 6 páginas de microfilm y $1.20 por cada página adicional.
+2.22.2 Comprobantes de caja, imágenes digitalizadas y otros $2.00 máximo tres copias, $0.50 por cada copia adicional.
+(Así reformado el punto 2.22) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
 2.23.-Comisión por retiros masivos de sumas en expedientes judiciales en ventanilla
 Se cobrará $ 2.00 por cada retiro en ventanilla
 Nota:
@@ -128,56 +131,86 @@ Costo de la comisión por cada nota de débito $ 5.00
 Nota:
 Se exceptúa del pago de esta comisión a aquellas cuentas cuyo saldo promedio semestral sea mayor a $1.000. o su equivalente en colones y cuando el retiro solicitado por el cliente supere el monto permitido a dispensar por nuestros ATM´S.
 (Así reformado el punto 2.24) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
-2.25.- Comisión por planilla mediante depósitos en ventanilla
-El cliente podrá solicitar cuatro depósitos sin costo adicional. Las solicitudes de cinco o más depósitos se consideran una planilla, por lo que tendrá un costo de $1.00 por cada depósito realizado.
+2.25.- Comisión por planilla mediante depósitos en ventanilla (Derogado el presente punto 2.25) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
 (Así reformado el punto 2.25) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
-2.26.- Comisión por retiro anticipado de un plan de ahorro automático
-Aplica la comisión del 3% sobre la totalidad del saldo ahorrado (principal más intereses), para los planes de ahorro automático cuyo plazo sea igual o superior a 6 meses y se cancelen antes de los 180 días de permanencia.
-(Así reformado el punto 2.26) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.26.- Comisión por cancelación anticipada de un plan de ahorro automático
+Aplica la comisión del 3% sobre la totalidad del saldo ahorrado (principal más intereses), a planes de ahorro automático que se cancelen de forma anticipada antes de 180 días de permanencia.
+(Así reformado el punto anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
 2.27- Aplicación de planillas judiciales con fondos trasladados mediante Sinpe (no clientes BCR)
 $0.50 por cada registro
-(Así reformado el punto 2.27) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+(Así reformado el punto anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
 2.28- Pago de cheque viajero
 1%, mínima $2.00. Esta comisión se cobra sobre el monto del cheque
-(Así reformado el punto 2.28) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+(Así reformado el punto anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
 2.29- Pago de servicios públicos de forma masiva en ventanilla
-El cliente podrá solicitar cuatro pagos de servicios sin costo adicional. Las solicitudes de cinco o más pagos de servicios se consideran masivos, por lo que tendrá un costo de $1.00 por cada pago de servicio adicional cancelado.
-(Así reformado el punto 2.29) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+El cliente podrá solicitar cuatro pagos de servicios sin costo adicional. Las solicitudes de cinco o más pagos de servicios consecutivos se consideran masivos, por lo que tendrá un costo de $1.00 por cada pago de servicio adicional cancelado.
+Nota:
+Aplica para todo pago de servicio que el cliente puede efectuar por medios electrónicos y decida cancelar en ventanilla. Se exceptúan los pagos de servicios en donde el BCR sea el único recaudador
+(Así reformado el punto anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
 2.30- Venta de monedas en máquinas
-1% sobre la venta, sin importar el monto.
-(Así reformado el punto 2.30) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
-2.31.- Cobro de comisión por cheque tramitados a través de la Cámara de Compensación
+4% sobre la venta, sin importar el monto.
+(Así reformado el punto anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
+2.31.- Cobro de comisión por cheques tramitados a través de la Cámara de Compensación
 $1.00 el primer año y $0.5 de incremento adicional por cada año consecutivamente. Dicha comisión fue establecida por el Banco Central de Costa Rica.
-(Así reformado el punto 2.31) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
-2.32.- Órdenes de pago (transferencia) a otras oficinas bancarias
--Colones y dólares mínimo $3.00
-Montos %
-Hasta $200.00 2.0%
-Exceso $201.00 a $1.800.00 1.5%
-Exceso de $1,801.00 en adelante 0.5%
-(Así reformado el punto 2.32) anterior en sesión N° 44 del 14 de octubre de 2015)
-(Nota de Sinalevi: mediante sesión N° 49-18 del 24 de setiembre del 2018 se reforma el punto 2.32 de la presente norma. Al no coincidir el texto con la reforma se transcribe a continuación: “2.32. Cobros por depósitos masivos en cuentas depositados desde el canal Tucán
-$2.00 por cada depósito o nota de crédito sean estos físicos o electrónicos, a todas las cuentas bancarias que se compruebe que están recibiendo más de 50 acreditaciones mensuales, durante el último mes, desde puntos Tucán.
-El cobro se realizará por la totalidad de acreditaciones recibidas en la cuenta (a partir del depósito 1)”)
+(Así reformado el punto anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
+2.32.- Cobros por depósitos masivos en cuentas depositadas desde el canal Tucán
+$2.00 por cada depósito o nota de crédito sean estos físicos o electrónicos, a todas las cuentas bancarias que se compruebe que están recibiendo más de 50 acreditaciones mensuales, durante el último mes, desde puntos Tucán. El cobro se realizará por la totalidad de acreditaciones recibidas en la cuenta (a partir del depósito 1).
+(Así reformado el punto anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
+(Nota de Sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018, se reforma el punto 2.32) anterior. No obstante al no coincidir el texto con la reforma la misma se transcribe a continuación: “ 2.32.- Informes confidenciales, constancias y certificaciones
+$5.00 dólares “)
 2.33.- Servicio de investigación de documentos o información que solicitan los clientes, para localizar comprobantes de caja, cheques y otros
 2.33.1 Copias de microfilm $6.00 primeras 5 páginas y $1.20 por cada hoja adicional.
 2.33.2 Comprobantes de caja, imágenes digitalizadas y otros $2.00 máximo tres fotocopias, $0.50 por folio adicional.
 (Así reformado el punto 2.33) anterior en sesión N° 44 del 14 de octubre de 2015)
+(Nota de Sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018, se reforma el punto 2.33) anterior. No obstante al no coincidir el texto con la reforma la misma se transcribe a continuación: “2.33.- Apartado bancario
+$35.00 anual membresía
+Nota:
+El costo por reposición de llaves y cambio de llavín será asumido totalmente por el cliente. “)
 2.34.- Comisión por retiros masivos de sumas en expedientes judiciales en ventanilla
 Se cobrará $ 2.00 por cada retiro en ventanilla
 Nota:
 Se considera un retiro masivo a partir de 10 retiros, el cobro aplica sólo cuando el beneficiario de las sumas sean personas jurídicas.
 (Así reformado el punto 2.34) anterior en sesión N° 44 del 14 de octubre de 2015)
+(Nota de Sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018, se reforma el punto 2.34) anterior. No obstante al no coincidir el texto con la reforma la misma se transcribe a continuación: “2.34. -Servicio por examinar videos BCR
+$25.00 por examinar cada video de seguridad.
+Nota:
+Se cobra esta comisión por cada video revisado en cassette o digital. “)
 2.35.- Nota de débito en cuenta corriente, para retiro de efectivo en ventanilla
 Costo de la comisión por cada nota de débito $ 5.00
 Nota: Se exceptúa del pago de esta comisión a aquellas cuentas cuyo saldo promedio semestral sea mayor a $1.000. o su equivalente en colones y cuando el retiro solicitado por el cliente supere el monto permitido a dispensar por nuestros ATM´S.
 (Así reformado el punto 2.35) anterior en sesión N° 44 del 14 de octubre de 2015)
+(Nota de Sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018, se reforma el punto 2.35) anterior. No obstante al no coincidir el texto con la reforma la misma se transcribe a continuación: “ 2.35.- Servicio de venta de efectivo a instituciones que no participan del MEN
+Por cada 1.000 formulas se cobrara un monto de $25.00 dólares o su equivalente en colones al tipo de cambio de venta del día.”)
 2.36.- Comisión por planilla mediante depósitos en ventanilla
 El cliente podrá solicitar cuatro depósitos sin costo adicional. Las solicitudes de cinco o más depósitos se consideran una planilla, por lo que tendrá un costo de $1.00 por cada depósito realizado.
 (Así reformado el punto anterior en sesión N° 21 del 23 de mayo de 2016)
+(Nota de Sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018, se reforma el punto 2.36) anterior. No obstante al no coincidir el texto con la reforma la misma se transcribe a continuación: “2.36.- Servicio de recolección o entrega de valores a oficinas BCR por medio de la transportadora BCR o privada.
+1.Para oficinas cuyas solicitudes son recibidas y enviadas desde las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM),
+a)$20.00 remeseras propias.
+2.Para oficinas cuyas solicitudes son recibidas y enviadas desde las tesorerías regionales ubicadas fuera del Gran Área Metropolitana (GAM),
+b)$23.00 remeseras propias.
+3.Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro 2 y2.1).
+Cuadro 2
+[imagen]
+Cuadro 2,1
+[imagen] ”)
 2.37. Divisas depositadas por concepto de exportación en cuenta corriente/ ahorros
 Depósito cuenta en dólares 1.5%, mínima $10.00
 Depósito cuenta en colones 1.0%, mínima $10.00
+(Nota de Sinalevi: Mediante sesión N° 62-18 del 10 de diciembre del 2018, se reforma el punto 2.37) anterior. No obstante al no coincidir el texto con la reforma la misma se transcribe a continuación: “2.37.- Servicio de atención de ATM a oficinas BCR por medio de la transportadora BCR o privadas.
+1.Para oficinas cuyo servicio se brinda con la transportadora BCR desde las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM),
+a)$27.00 remeseras propias.
+2.Para oficinas cuyo servicio se brinda con la transportadora BCR desde las tesorerías regionales ubicadas fuera del Gran Área Metropolitana (GAM),
+b)$30.00 remeseras propias.
+3.Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, dec onformidad con el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadros 3 -4 y 5)
+Nota:
+El servicio de atención de ATM puede ser por cargas, atención de averías, custodias, o cualquier otro motivo que requiera la asistencia de la Unidad de transporte de valores BCR, o una privada.
+Cuadro 3
+[imagen]
+Cuadro 4
+[imagen]
+Cuadro 5
+[imagen] ”)
 (Así reformado el punto 2.37) anterior en sesión N° 07-16 del 8 de febrero del 2016)
 2.38.- Comisión por retiro anticipado de un plan de ahorro automático
 Aplica la comisión del 3% sobre la totalidad del saldo ahorrado (principal más intereses), para los planes de ahorro automático cuyo plazo sea superior a 6 meses y se cancelen antes de los 181 días de permanencia.

@@ -3,24 +3,24 @@ BANCO DE COSTA RICA
 La Junta Directiva General del Banco en sesión 47-12, artículo VI, del 12 de noviembre de 2012 aprobó la modificación del Reglamento de tarifas y condiciones para los servicios del Banco de Costa Rica:
 1 Productos de colocación
 1.1.- Gastos de formalización de operaciones nuevas y prórrogas al vencimiento definitivo
-Colones y dólares: de 0.00% a un máximo del 5%. Quedan abiertos los márgenes de negociación para el Comité de Crédito, Subcomité de crédito, el gerente general, subgerentes, gerentes regionales Banca Minorista y Mayorista y gerente de área de Marca.
-Aplica para todas las modalidades de créditos directos y créditos abiertos.
+Colones y dólares: de 0.00% a un máximo del 5%. Quedan abiertos los márgenes de negociación para el Comité de Crédito, Subcomité de crédito, el gerente general, subgerentes, gerentes de negocios banca corporativa y de personas y gerente regional de banca corporativa y de personas. Aplica para todas las modalidades de créditos directos y créditos abiertos.
 Notas:
-1- Esta comisión será cobrada por una única vez al formalizarse el crédito o al establecerse prórrogas al vencimiento definitivo, aplicable directamente al monto del crédito en forma general.
+1-Esta comisión será cobrada por una única vez al formalizarse el crédito o al establecerse prórrogas al vencimiento definitivo, aplicable directamente al monto del crédito en forma general.
 Para créditos abiertos se cobrará cada vez que se realice una operación derivada del contrato de crédito abierto.
-2- No se cobrará la comisión de formalización en los contratos que se realicen de líneas de crédito revolutivas; tampoco se cobrará la comisión de formalización a las tarjetas de crédito.
-3- Para créditos damnificados por desastres naturales se cobrara un 0.5%, para créditos de vivienda para pensionados y ayuda social un 1%.
-4- Se aplicará un 50 % de la comisión a las personas físicas cuyo salario o pensión es depositado en una cuenta del BCR con excepción del crédito vivienda para pensionados y crédito damnificados por desastres naturales.
-5- En el caso de créditos directos con desembolsos y previa aprobación del Comité de Crédito, el cobro de la comisión se realizará al momento de cada desembolso.
-(Así reformado el punto 1.1) anterior en sesión N° 03-17 del 18 de enero del 2017)
-(*) 1.2.- Comisión de formalización para cambio de rubro mediante Anexo 1 y para cambio de moneda mediante Anexo 2 de las DAC (personas físicas)
-- $300 de comisión de formalización en el caso de créditos que tengan menos de un año de constituidos.
-- $200 en los créditos que tienen más de un año y menos de tres años de constituidos.
-- $100 dólares para los créditos que tiene más de tres años de constituidos.
-Nota: Esta comisión no se podrá financiar agregando el monto correspondiente al monto de la deuda sujeta a cambio de rubro. El cliente deberá pagarla en efectivo o por cualquier otro medio.
+2-No se cobrará la comisión de formalización en los contratos que se realicen de líneas de crédito revolutivas; tampoco se cobrará la comisión de formalización a las tarjetas de crédito.
+3-Para créditos damnificados por desastres naturales se cobrara un 0.5%, para créditos de vivienda para pensionados y ayuda social un 1%.
+4-Se aplicará un 50 % de la comisión a las personas físicas cuyo salario o pensión es depositado en una cuenta del BCR con excepción del crédito vivienda para pensionados y crédito damnificados por desastres naturales.
+5-En el caso de créditos directos con desembolsos y previa aprobación del Comité de Crédito, el cobro de la comisión se realizará al momento de cada desembolso.
+(Así reformado el punto 1.1) anterior en sesión N° 62-18 del 10 de diciembre del 2018)
+(*) 1.2.- Comisión de formalización para cambio de rubro mediante Anexo 14 y para cambio de moneda mediante Anexo 15 de las DAC (personas físicas)
+-$300 de comisión de formalización en el caso de créditos que tengan menos de un año de constituidos.
+$200 en los créditos que tienen más de un año y menos de tres años de constituidos.
+-$100 dólares para los créditos que tiene más de tres años de constituidos.
+Nota:
+Esta comisión no se podrá financiar agregando el monto correspondiente al monto de la deuda sujeta a cambio de rubro. El cliente deberá pagarla en efectivo o por cualquier otro medio.
 Esta comisión aplica sólo para personas físicas y sólo para cambios de igual producto en BCR.
 (Así adicionado el punto 1.2 anterior mediante sesión 24-13 del 24 de junio del 2013)
-(*)(Así reformado el punto 1.2) anterior mediante sesión N° 13-14 del 31 de marzo del 2014)
+(*)(Así reformado el punto 1.2) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
 1.3. Comisión de manejo de líneas de crédito revolutivas.
 Esta comisión aplica para las líneas de crédito revolutivas y se cobra al formalizar cada giro de forma anualizada.
 Colones: 2.00% anualizado al formalizar
@@ -29,17 +29,17 @@ Dólares: 2.00% anualizado al formalizar
 (Así reformado el punto 1.3) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
 1.4.- Comisión por pago anticipado, pago parcial o cancelación de la deuda para créditos en colones y dólares
 3% para todos excepto:
-1. Líneas de crédito revolutivas a corto plazo (12 meses).
-2. Vivienda de interés social.
-3. Créditos menores a $10.000,00.
-4. Operaciones del BCR que se cancelan con la constitución de un nuevo crédito del BCR.
-5. Para créditos damnificados por desastres naturales, superiores a $10.000 vigente durante los primeros ocho años.
-6. Para crédito vivienda para pensionados se exceptúa este cobro cuando la cancelación se realice con recursos del BCR.
-7. Cualquier otro que apruebe el Comité Corporativo de Activos y Pasivos
+1.Líneas de crédito revolutivas a corto plazo (12 meses)
+2.Vivienda de interés social.
+3.Créditos menores a $10.000.00
+4.Operaciones del BCR que se cancelan con la constitución de un nuevo crédito del BCR.
+5.Para créditos damnificados por desastres naturales, superiores a $10.000 vigente durante los primeros ocho años.
+6.Para crédito vivienda para pensionados se exceptúa este cobro cuando la cancelación se realice con recursos del BCR.
+7.Cualquier otro que apruebe el Comité Corporativo de Activos y Pasivos
 Nota:
-Quedan facultados para la negociación de esta tarifa en caso de la apertura de un nuevo producto de crédito, el Comité de Crédito, Subcomité de Crédito, el Gerente General, Subgerentes, Gerentes Regionales Banca Minorista y Mayorista.
-(Así reformado el punto 1.4) anterior mediante sesión 07-16 del 8 de febrero del 2016)
+Quedan facultados para la negociación de esta tarifa en caso de la apertura de un nuevo producto de crédito, el Comité de Crédito, Subcomité de Crédito, el gerente general, subgerentes, gerentes de negocios banca corporativa y de personas y gerente regional de banca corporativa y de personas
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.3 al 1.4. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
+(Así reformado el punto 1.4) anterior mediante sesión 62-18 del 10 de diciembre del 2018)
 1.5.- Comisión de formalización por sobregiros documentados en cuenta corriente
 Sobregiros formales
 Crédito en cuenta corriente de 3 meses
@@ -73,7 +73,6 @@ Nota:
 Incluye la tarifa del Registro Nacional más gastos de papel legal y timbres.
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.8 al 1.9. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
 (*)1.10.- Cobro administrativo de operaciones en mora
-[imagen]
 Nota:
 Rige para todos los créditos nuevos otorgados a partir de la aprobación de esta tarifa y que al momento del pago se encuentre en cartera normal, en cobro administrativo o judicial, cada vez que se realice un pago se les cobrará el monto indicado según el rango de atraso con base en la fecha de vencimiento de los intereses, para cada cuota según la antigüedad de mora que tenga.
 Los créditos otorgados antes de esta modificación se regirán por la anterior tarifa, o según lo establezca la cláusula o adenda en el contrato de crédito respectivo.
@@ -100,10 +99,11 @@ $10.00 cada uno.
 $12.00 cada una.
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.15 al 1.16. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
 1.17- Por administración y seguimiento de póliza externa
-$13 por cada póliza externa.
+$19 por cada póliza externa.
 Nota:
 Se cobrará tanto en la emisión de póliza como en la renovación.
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.16 al 1.17. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
+(Así reformado el punto N° 1.17) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
 1.18- Comisión por administración de créditos cedidos a otras instituciones 0.50% a 2.50% anual sobre saldos
 Nota:
 Quedan facultados para la negociación de esta tarifa, el Comité de Crédito, el Gerente General, Subgerentes, Gerentes Regionales.

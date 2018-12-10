@@ -27,9 +27,8 @@ Se cobra esta tarifa cuando el cliente ha olvidado el PIN, pero si se le sustitu
 Para los productos de compras institucionales del BCR, no pagarán comisión por reemplazo.
 (Así reformado el punto 3.4) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
 3.5.- Comisión por servicios administrativos en tarjetas de débito
-$10.00 excepto tarjetas: Cuenta Conmigo (HIT), Cuenta Propia (Morpho),
-Pensionados, Anafa, Distribución y tarjeta de débito Kristal
-(Así reformado el punto 3.5) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+$10.00 excepto tarjetas: Cuenta Conmigo (HIT), Cuenta Propia (Morpho), Pensionados, y Distribución.
+(Así reformado el punto 3.5) anterior mediante sesión N° 62-18 del 10 de diciembre del 2018)
 3.6.- Comisión por solicitud de copia de voucher
 $11.50 por voucher consultado a otros procesos o emisores.
 Nota: Este cobro también debe aplicarse para las copias de vouchers o documentación que víncula al cliente con la transacción.
