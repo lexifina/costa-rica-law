@@ -1,1 +1,0 @@
-Artículo 9º—La autorización otorgada para la utilización de cuotas de pesca por barcos atuneros con red de cerco de bandera extranjera no otorga derecho alguno para desarrollar actividades pesqueras en la Zona Económica Exclusiva de Costa Rica, las cuales deberán cumplir la normativa especial vigente sobre la materia.
