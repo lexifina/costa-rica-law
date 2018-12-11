@@ -14,3 +14,4 @@ Procedimiento especial y temporal para la importación de vehículos eléctricos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-07-31 | la propia norma |
+| 2 | 2018-12-11 | Resolución 41 (2018-12-11) |

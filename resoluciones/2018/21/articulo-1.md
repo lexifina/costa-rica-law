@@ -1,4 +1,5 @@
 DIRECCIÓN GENERAL DE ADUANAS
+(Nota de Sinalevi: Mediante resolución N° RES-DGA-DGT-041-2018 del 11 de diciembre del 2018, se ordenó prorrogar hasta el 30 de junio del 2019, el Procedimiento Especial y Temporal para la importación de vehículos eléctricos amparados a la Ley N° 9518 “Incentivos y Promoción para el Transporte Eléctrico”, denominado “Procedimiento especial de Importación Definitiva Vehículos Eléctricos”, así como el instructivo de llenado denominado “Instructivo para liquidación manual de impuestos de Vehículos eléctricos nuevos y exonerados”)
 RES-DGA-DGT-021-2018
 DIRECCIÓN GENERAL DE ADUANAS, SAN JOSE A LAS QUINCE HORAS DEL DÍA DIECINUEVE DE
 JULIO DE DOS MIL DIECIOCHO.
@@ -29,7 +30,6 @@ EL DIRECTOR GENERAL DE ADUANAS, RESUELVE:
 5. Publíquese en el Diario Oficial La Gaceta.
 Ministerio de Hacienda
 Dirección General de Aduanas
-[imagen]
 Manual de procedimientos importación de vehículos eléctricos
 Régimen 01-Modalidad 50
 Versión 1.0
