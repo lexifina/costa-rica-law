@@ -1,0 +1,2 @@
+Artículo 6. Para que el ARTÍCULO 28 se lea de la siguiente forma:
+ARTÍCULO 28.- Dividendos. Los dividendos y beneficios que obtengan o a los que tengan derecho la municipalidad, por su participación en las SPEM, tendrán el carácter de recursos públicos para todos los efectos legales. Deberán ser incluidos en el presupuesto municipal y destinarse a un programa creado por la Municipalidad específicamente para agenciar el desarrollo económico y social de la Ciudad de San José.
