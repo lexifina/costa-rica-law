@@ -14,3 +14,4 @@ Reglamento para las operaciones de crédito de última instancia en moneda nacio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-12-11 | la propia norma |
+| 2 | 2018-12-11 | Reglamento 5854 (2018-11-21) |

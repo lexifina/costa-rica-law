@@ -1,2 +1,5 @@
-Artículo 29. Transitorio
-Este reglamento entrará en vigencia en el momento en que el Banco Central comunique al sistema financiero que dispone de la plataforma tecnológica para atender las solicitudes de crédito previstas en este reglamento. Por lo tanto las derogatorias establecidas en el artículo 28 aplicarán una vez que el presente reglamento entre en vigencia.
+Artículo 29. El Banco Central de Costa Rica desarrollará una plataforma tecnológica que le permita automatizar el proceso de las solicitudes de crédito contempladas en este Reglamento, lo cual le será comunicado al Sistema Financiero en el momento que esté disponible.
+Mientras tanto, el Banco Central deberá elaborar un procedimiento alternativo y temporal para atender las solicitudes de crédito previstas en el presente Reglamento. Bajo ese procedimiento temporal, las solicitudes de Créditos de Apoyo a la Liquidez deberán ser aprobadas por la Comisión de Ejecución de la Política Financiera.
+(Así reformado en sesión N° 5854 del 21 de noviembre de 2018)
+transitorio al artículo 29: El procedimiento alternativo y temporal requerido para la atención de las solicitudes de crédito previstas en el presente Reglamento entrará en vigencia 15 días naturales después de la publicación de esta modificación en el diario oficial La Gaceta.
+(Así adicionado el transitorio anterior en sesión N° 5854 del 21 de noviembre de 2018)
