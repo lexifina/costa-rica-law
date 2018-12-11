@@ -1,0 +1,24 @@
+BANCO CENTRAL DE COSTA RICA
+DESPACHO SECRETARÍA GENERAL
+La Junta Directiva del Banco Central de Costa Rica en el numeral I, artículo 3 del acta de la sesión 5834-2018, celebrada el 20 de julio de 2018,
+considerando que:
+A. El artículo 2 de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558, establece como principales objetivos de esta Entidad, mantener la estabilidad interna y externa de la moneda nacional y asegurar su conversión a otras monedas y como uno de sus objetivos subsidiarios, promover un sistema de intermediación financiera estable, eficiente y competitivo.
+Además, el literal e) del artículo 3 de la citada Ley dispone, como una de sus funciones, la promoción de condiciones favorables al robustecimiento, la liquidez, la solvencia y el buen funcionamiento del Sistema Financiero Nacional.
+B. El artículo 52 de esta Ley indica que el Banco Central podrá efectuar operaciones de redescuento y préstamos de emergencia, con sujeción estricta a las condiciones y restricciones establecidas en esta norma, sin que por ello esté obligado a realizarlas.
+Asimismo, según el literal c) del artículo 59, se le prohíbe efectuar cualesquiera operaciones de crédito de otra clase no autorizadas expresamente por la ley, salvo las que, sin estar prohibidas, fueren compatibles con su naturaleza técnica y necesarias para el debido cumplimiento de sus deberes y funciones.
+C. El artículo 52 de previa cita instituye que estos préstamos deberán ser garantizados a satisfacción del Banco Central, el cual normará los criterios que regirán los montos y demás aspectos de estas operaciones.
+D. Este Directorio tiene la potestad legal de emitir los reglamentos para el cumplimiento de sus objetivos, funciones, instrumentos y operaciones, en lo relativo a los créditos de liquidez, regulares y de emergencia, para entidades financieras. Ello con el fin de contribuir a generar las condiciones propicias para el funcionamiento de un sistema de intermediación financiera estable, eficiente y competitivo.
+Lo anterior con fundamento en lo dispuesto en: i) la Constitución Política [artículo 188 y siguientes], ii) la Ley General de la Administración Pública [artículo 103], iii) la Ley Orgánica del Banco Central de Costa Rica [artículo 1; literal d) del artículo 2; literales c), e) y g) del artículo 3; literales b), c), f) y l) del artículo 28 y; artículo 52 y siguientes] y iv) en el criterio vinculante de la Procuraduría General de la República C-30-2010, del 1° de marzo de 2010.
+E. En cumplimiento de sus funciones, es necesario que la provisión de recursos de última instancia se desarrolle en un marco ágil, eficiente y acorde con las condiciones y requerimientos del sistema financiero, sin que ello vaya en detrimento de la situación patrimonial del Banco Central ni de los objetivos prioritarios asignados por la legislación.
+F. Las denominadas buenas prácticas internacionales en materia de préstamos de última instancia sugieren la coordinación entre los bancos centrales y los entes encargados de la supervisión y regulación de las entidades financieras, en procura de que estas operaciones de crédito de liquidez estén disponibles, únicamente, para entes financieros solventes.
+G. La regulación existente en materia de operaciones de crédito de liquidez está comprendida en las Regulaciones de Política Monetaria, aprobadas en la sesión 4856-96, artículo 2, numeral 2, del 31 de enero de 1996 y sus reformas y en el Reglamento de Instrumentos Contingentes de Provisión de Liquidez por parte del Banco Central, autorizado en el numeral 2, del artículo 12, de la sesión 5524-2011, del 30 de noviembre de 2011 y sus reformas.
+H. La Política de alto nivel en la gestión integral de riesgos aprobada por esta Junta Directiva señala que el Banco Central de Costa Rica tolera un nivel de riesgo bajo en el cumplimiento de su misión, visión, objetivos institucionales y estratégicos, razón por la cual, adoptará las medidas y controles necesarios para mantener los riesgos en este nivel.
+dispuso:
+1. Aprobar el Reglamento para las Operaciones de Crédito de Última Instancia en Moneda Nacional del Banco Central de Costa Rica, en los términos que a continuación se indican:
+Reglamento para las Operaciones de Crédito de Última Instancia
+en moneda nacional del Banco Central de Costa Rica
+TÍTULO I. DISPOSICIONES GENERALES
+Capítulo I. Único
+Artículo 1. Objetivo
+Normar los términos, condiciones y el trámite de la solicitud del crédito de última instancia en moneda nacional al Banco Central de Costa Rica, así como la administración y recuperación de estas operaciones.
+Estos instrumentos de crédito constituyen un apoyo transitorio de liquidez para entidades financieras solventes.

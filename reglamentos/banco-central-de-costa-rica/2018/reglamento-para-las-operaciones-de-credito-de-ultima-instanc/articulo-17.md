@@ -1,0 +1,3 @@
+Artículo 17. Forma de pago y ejecución forzosa de la garantía por incumplimiento
+Al vencimiento de las operaciones de crédito desembolsadas, se debitará el monto adeudado de la cuenta de fondos en colones de la entidad financiera; sin embargo, la entidad anticipadamente podrá pagar parte o la totalidad del crédito, en cuyo caso le serán reintegrados proporcionalmente los intereses pagados por anticipado.
+En caso de que en la cuenta de la entidad no existan los fondos suficientes para amortizar la operación, o se incumpla lo dispuesto en este Reglamento, el Banco Central de Costa Rica aplicará la tasa de interés moratoria y, al mismo tiempo, podrá ordenar la ejecución de las garantías. Lo anterior deberá ser notificado a la SUGEF.

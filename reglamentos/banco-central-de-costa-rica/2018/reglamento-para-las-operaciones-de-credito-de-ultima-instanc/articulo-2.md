@@ -1,0 +1,18 @@
+Artículo 2. Normativa complementaria
+Será de aplicación complementaria la siguiente normativa:
+a) Ley General de la Administración Pública.
+b) Ley General de Control Interno.
+c) Código de Comercio.
+d) Código Civil.
+e) Ley de Garantías Mobiliarias.
+f) Ley Orgánica del Banco Central de Costa Rica.
+g) Ley Orgánica del Sistema Bancario Nacional.
+h) Reglamento del Sistema de Pagos y Norma Complementaria de Gestión de Riesgos del Sistema de Pagos.
+i) Reglamento para juzgar la situación económica-financiera de las entidades fiscalizadas, a la fecha Acuerdo SUGEF-24-00.
+j) Reglamento para juzgar la situación económica-financiera de las asociaciones mutualistas de ahorro y préstamo para la vivienda, a la fecha Acuerdo SUGEF 27-00.
+k) Reglamento sobre el grupo vinculado a la entidad, a la fecha Acuerdo-SUGEF-4-04.
+l) Reglamento para la calificación de deudores, a la fecha Acuerdo-SUGEF-1-05.
+m) Reglamento sobre la suficiencia patrimonial de entidades financieras, a la fecha Acuerdo- SUGEF 3-06.
+n) Reglamento sobre autorizaciones de entidades supervisadas por la Superintendencia General de Entidades Financieras y sobre autorizaciones y funcionamiento de grupos y conglomerados financieros, a la fecha Acuerdo SUGEF 8-08.
+o) Reglamento sobre la administración del riesgo de liquidez, a la fecha Acuerdo SUGEF 17-13.
+p) Regulaciones de Política Monetaria.

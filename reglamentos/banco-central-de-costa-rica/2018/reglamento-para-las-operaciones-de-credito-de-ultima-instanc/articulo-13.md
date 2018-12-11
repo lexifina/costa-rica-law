@@ -1,0 +1,10 @@
+Capítulo III: Crédito de redescuento
+Artículo 13. Comisión de Redescuentos
+a) Integración, quórum y sesiones
+La Comisión de Redescuentos estará conformada por el Presidente, el Gerente y el Director de la División Gestión de Activos y Pasivos del Banco Central de Costa Rica. El Presidente del Banco presidirá la Comisión y el secretario será el Director de la División Gestión de Activos y Pasivos, quien tendrá a su cargo elaborar las minutas de las reuniones.
+Ante ausencia temporal, el Presidente podrá ser reemplazado por un miembro de la Junta Directiva del Banco Central de Costa Rica; el Gerente podrá ser reemplazado según lo dispuesto en el artículo 32 de la Ley Orgánica del Banco Central de Costa Rica; y, en el caso del Director de la División de Gestión de Activos y Pasivos, esto se hará conforme a la normativa interna de la organización.
+En las sesiones deberán estar presentes los tres miembros y los acuerdos serán tomados por unanimidad. Su funcionamiento se regirá por el Capítulo II del Libro I de la Ley General de la Administración Pública correspondiente a los órganos colegiados.
+b) Atribuciones. La Comisión de Redescuentos tendrá las siguientes atribuciones:
+1) Aprobar o rechazar las solicitudes de crédito de redescuento dentro de los límites del artículo 5 de este reglamento. Las solicitudes de crédito rechazadas por la Comisión de Redescuentos o por encima de esos límites, cuando así lo solicite la entidad interesada, serán conocidas y resueltas por la Junta Directiva del Banco Central de Costa Rica. Los miembros de la Comisión de Redescuentos no participarán en la votación que resuelva la impugnación de decisiones tomadas por esa Comisión.
+2) Presentar a la Junta Directiva del Banco Central de Costa Rica en la sesión inmediata siguiente un informe de los créditos de redescuento aprobados.
+3) Emitir un dictamen técnico, para conocimiento de la Junta Directiva del Banco Central, sobre las solicitudes de préstamo de emergencia.

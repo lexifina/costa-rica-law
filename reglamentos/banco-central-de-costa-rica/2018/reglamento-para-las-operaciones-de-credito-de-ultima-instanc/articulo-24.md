@@ -1,0 +1,4 @@
+Artículo 24. Ejecución de la garantía en casos de incumplimiento.
+a) Se tramitará la ejecución de la garantía conforme lo dispone el contrato que se suscribirá entre las partes y la legislación nacional aplicable.
+b) En el caso de cartera de crédito, si en el proceso de remate no se liquida la totalidad de la garantía y si aún existiera algún saldo al descubierto del crédito vencido, se autoriza a la Administración del Banco Central de Costa Rica para que contrate un fiduciario y continúe con la gestión de recuperación y venta de esa cartera residual.
+c) De manera transitoria y mientras se contrata el fiduciario indicado en el literal anterior, la entidad deudora deberá continuar con la gestión de cobro de la cartera entregada en garantía y transferir diariamente al Banco Central de Costa Rica los productos que reciba de esa gestión de cobro, los cuales serán aplicados al saldo al descubierto.

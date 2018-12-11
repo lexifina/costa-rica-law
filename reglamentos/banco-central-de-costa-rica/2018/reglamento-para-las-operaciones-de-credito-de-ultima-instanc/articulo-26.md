@@ -1,0 +1,3 @@
+Artículo 26. Costos por el registro, control y eventual ejecución de las garantías
+Los costos legales y administrativos en que incurra el Banco Central de Costa Rica por el trámite de registro y control o incluso de una eventual ejecución de los créditos ofrecidos por las entidades financieras para garantizar los préstamos de última instancia, serán asumidos por la entidad financiera. En el caso de los gastos de registro y control, estos costos serán determinados según la metodología de costeo utilizada en el Banco Central de Costa Rica para determinar el costo total de sus procesos.
+La Administración del Banco Central de Costa Rica deberá determinar y comunicar oportunamente el monto de esos costos.
