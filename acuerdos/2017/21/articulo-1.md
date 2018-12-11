@@ -83,4 +83,4 @@ D. Cuando después de la realización por parte de la Unidad de Control Operativ
 8. Notifíquese este acuerdo por parte de la Comisión de Urbanizaciones de la ESPH S. A., al Ministerio del Ambiente y Energía, Ministerio de Agricultura y Ganadería, Ministerio de Salud, Instituto Nacional de Vivienda y Urbanismo, Instituto Costarricense de Acueductos y Alcantarillados, Compañía Nacional de Fuerza y Luz, Instituto Costarricense de electricidad, Secretaría Técnica Nacional Ambiental, Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento, Autoridad Reguladora de los Servicios Públicos y la Defensoría de los Habitantes, así como a las siguientes municipalidades ubicadas en el área de influencia de este acuerdo: Santa Bárbara, San Rafael, Barva, Cantón Central de Heredia, Santo Domingo, San Isidro y Moravia.
 9. Publíquese en el Diario Oficial La Gaceta
 [imagen]
-Mapa 1. Zonas de restricción de servicios
+(Así reformado el mapa anterior mediante acuerdo N° JD-336-2018 del 11 de diciembre del 2018)
