@@ -15,3 +15,4 @@ Reglamento de ventas estacionarias
 | --- | --- | --- |
 | 1 | 2009-08-18 | la propia norma |
 | 2 | 2013-06-25 | Reglamento municipal 165 (2013-06-25) |
+| 3 | 2018-12-11 | Reglamento municipal 137 (2018-12-11) |

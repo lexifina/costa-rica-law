@@ -1,5 +1,5 @@
 CAPÍTULO VIII
 Del establecimiento del monto a pagar por patente
-Artículo 28.—El monto de la patente a que se refiere este reglamento, será fijado en la suma de quince mil colones exactos trimestrales, revisable y ajustable cada año por el Departamento de gestión Tributaria.
-Para el caso de los vendedores de periódicos dada las condiciones y naturaleza especial de la actividad, el monto de la patente será de diez mil colones trimestrales, salvo el caso de los que desarrollan dicha actividad en un horario de las veintitrés horas hasta las cinco de la mañana en cuyo caso no se recibirá retribución económica alguna de su parte por dicho concepto.
-(Así reformado en sesión N° 165 del 25 de junio de 2013)
+Artículo 28.—El monto de la patente a que se refiere este reglamento, será fijado en la suma de quince mil colones exactos trimestrales, revisable y ajustable cada año por el Departamento de Gestión Tributaria, la falta de pago de un trimestre provocará la caducidad de la autorización y/o patente, según sea el caso, en dicho procedimiento no se admitirá prueba en contrario, salvo la excepción de pago.
+Para el caso de los vendedores de periódicos, dada las condiciones y naturaleza especial de la actividad, la retribución económica pagada de su parte por concepto de licencia municipal será de TRES MIL COLONES EXACTOS TRIMESTRALES.
+(Así reformado en sesión N° 137 del 11 de diciembre del 2018)
