@@ -22,3 +22,4 @@ Reglamento sobre la Solvencia de Entidades de Seguros y Reaseguros
 | 7 | 2016-05-17 | Reglamento 1253 (2016-05-17) |
 | 8 | 2017-05-02 | Reglamento 1328 (2017-05-02) |
 | 9 | 2017-10-03 | Reglamento 1363 (2017-10-03) |
+| 10 | 2018-12-11 | Reglamento 1467 (2018-12-11) |
