@@ -1,0 +1,1 @@
+ARTÍCULO 54. En el presupuesto ordinario del Comité Cantonal deberá incluirse recursos para la ejecución de Programas de los Comités Comunales, los cuales deberán reflejarse el plan operativo anual. Los gastos presupuestarios no pueden exceder los ingresos probables.

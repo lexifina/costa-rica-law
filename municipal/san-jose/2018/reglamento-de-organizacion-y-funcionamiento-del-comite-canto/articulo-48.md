@@ -1,0 +1,1 @@
+ARTÍCULO 48. No podrán ser parte de la Junta Directiva del Comité Comunal de Deportes los Regidores, Síndicos, Alcalde, Vicealcaldes, Auditor, Tesorero, Contador, sus cónyuges o parientes en línea directa o colateral hasta el 3er grado de afinidad o consanguinidad, ni quien se encuentre inhabilitado para el ejercicio de cargos públicos mediante sentencia firme.

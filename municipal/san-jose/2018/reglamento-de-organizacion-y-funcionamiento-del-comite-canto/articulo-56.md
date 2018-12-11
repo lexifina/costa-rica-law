@@ -1,0 +1,1 @@
+ARTÍCULO 56. La Junta Directiva del Comité Cantonal podrá evaluar y autorizar iniciativas de generación de recursos para aumentar los ingresos del Comité Cantonal, previa aprobación del Concejo Municipal.

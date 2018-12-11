@@ -1,0 +1,1 @@
+ARTÍCULO 63. El Comité Cantonal de Deportes y Recreación, en lo que se refiere al mantenimiento de las canchas de fútbol, específicamente de su gramilla, deberá contemplar periodos de recuperación según el clima y la temporada proyectada.

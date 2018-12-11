@@ -1,0 +1,1 @@
+ARTICULO 43. La asamblea será dirigida por el Presidente del Comité Cantonal, o en su defecto por un miembro designado por la Junta Directiva del Comité. La persona que dirija la Asamblea no podrá aspirar a ningún puesto de los que se sometan a elección en dicha sesión.

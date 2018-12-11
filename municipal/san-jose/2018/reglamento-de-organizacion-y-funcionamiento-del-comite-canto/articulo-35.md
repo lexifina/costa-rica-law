@@ -1,0 +1,1 @@
+ARTÍCULO 35. Las direcciones de las diferentes áreas del Comité serán escogidas mediante concurso, de conformidad con lo establecido en el Código Municipal; para lo cual la Junta Directiva del Comité Cantonal debe fijar los requisitos mínimos de dichos puestos

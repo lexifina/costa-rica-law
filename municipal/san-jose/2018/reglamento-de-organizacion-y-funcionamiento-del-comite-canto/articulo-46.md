@@ -1,0 +1,9 @@
+ARTICULO 46. Para efectos de la elección de los Comités Comunales de Deportes y Recreación se requerirá necesariamente que la organización participante de la asamblea esté inscrita en el padrón deportivo cantonal, sea una organización deportiva, recreativa o una organización comunal legalmente constituida. Para la construcción, mantenimiento y administración del Padrón deportivo cantonal, se seguirán las siguientes pautas:
+a) El Comité Cantonal publicará en un diario de circulación nacional escrito o en el Diario Oficial La Gaceta, la invitación para que las organizaciones se integren. La Junta Directiva en dicha publicación establecerá los requisitos mínimos que se deben cumplir para la inscripción en el padrón.
+b) La inscripción en el padrón es de carácter permanente; salvo que la organización incurra en una causal de extinción en cuyo caso la secretaría del Concejo Municipal procederá a desinscribirlo.
+c) El Comité Cantonal con al menos un mes de antelación definirá y publicará
+respectiva asamblea. Diez días hábiles antes de la asamblea, el Comité Cantonal realizará un corte y publicará las asociaciones inscritas a esa fecha en el padrón.
+Solo esas asociaciones podrán participar de la citada asamblea. La publicación se realizará en la página web del Comité Cantonal de Deportes.
+d) Una vez que se publique el padrón, los asociados participantes deberán nombrar dos representantes, un hombre y una mujer para que los representen en la asamblea, los cuales tendrán derecho a voz y voto en la Asamblea.
+e) El nombramiento de los representantes debe ser comunicado a la Secretaría del Comité Cantonal con al menos ocho días naturales de antelación a la respectiva asamblea.
+f) En caso de no ser comunicado en el plazo establecido, la Asociación perderá su derecho a participar en la respectiva asamblea.

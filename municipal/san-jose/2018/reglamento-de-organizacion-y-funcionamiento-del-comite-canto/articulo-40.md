@@ -1,0 +1,1 @@
+ARTÍCULO 40. El Comité Comunal deberá fiscalizar el correcto uso y la calidad de las instalaciones deportivas, elevando solicitudes de inversiones y de mejora del mantenimiento al Comité Cantonal de Deportes.

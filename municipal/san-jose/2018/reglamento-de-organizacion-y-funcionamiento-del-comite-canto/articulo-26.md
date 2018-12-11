@@ -1,0 +1,1 @@
+ARTÍCULO 26. Cuando un integrante de la Junta Directiva no asista a una sesión deberá comunicar a la Presidencia o Vicepresidencia de la Junta la justificación de su inasistencia por un medio idóneo en un plazo máximo de veinticuatro horas después de la hora fijada para el inicio de la sesión.

@@ -1,0 +1,1 @@
+ARTÍCULO 51. Sustituciones en los comités comunales por ausencias permanentes: En el caso de ausencias definitivas de algún miembro de una Junta Directiva se recurrirá al mismo procedimiento utilizado para su nombramiento.

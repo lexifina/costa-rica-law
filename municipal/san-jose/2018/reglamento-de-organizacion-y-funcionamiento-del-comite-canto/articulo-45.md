@@ -1,0 +1,3 @@
+ARTÍCULO 45. Para el nombramiento de las Juntas Directivas de los Comités Comunales se recurre al siguiente procedimiento:
+a) Existirá un padrón deportivo cantonal cuya administración será responsabilidad de la Secretaría Municipal quien deberá mantenerlo debidamente ordenado. En dicho padrón se inscribirán todas aquellas organizaciones jurídicamente constituidas que por su naturaleza promueven el deporte, la recreación o sean de carácter comunal en la jurisdicción del Cantón Central de San José.
+Todos los inscritos en el padrón deportivo cantonal podrán tramitar aportes ante la Junta Directiva del Comité Cantonal de Deportes y Recreación de San José, de conformidad con la disponibilidad presupuestaria.

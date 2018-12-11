@@ -1,0 +1,1 @@
+ARTICULO 44. Al momento de realizar la elección, se dará la palabra por tres minutos a los representantes para que propongan candidatos, y agotado el punto se procederá a la elección puesto por puesto. Resultará electo el representante que obtenga mayor cantidad de votos en la respectiva elección, en caso de existir empate se lanzara una moneda.

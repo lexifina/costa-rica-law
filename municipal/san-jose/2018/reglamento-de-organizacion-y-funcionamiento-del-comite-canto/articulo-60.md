@@ -1,0 +1,1 @@
+ARTÍCULO 60. En el uso de las instalaciones deportivas existentes, el Comité Cantonal de Deportes y Recreación deberá procurar darle participación a todos los grupos deportivos organizados de la comunidad.

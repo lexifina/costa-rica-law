@@ -1,0 +1,1 @@
+ARTÍCULO 39. El Comité Cantonal, también podrá autorizar el funcionamiento de Comisiones de Deportes por razones técnicas y territoriales, los cuales estarán coordinados por el respectivo Comité Comunal del área donde se circunscriban.

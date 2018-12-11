@@ -1,0 +1,1 @@
+ARTÍCULO 36. El Comité Cantonal podrá nombrar para la implementación de sus fines, el personal que requiera con las limitaciones presupuestarias de ley. Para tales nombramientos, se debe utilizar como base el manual descriptivo de puestos del Comité Cantonal de Deportes, el cual será aprobado por el Concejo Municipal.

@@ -1,0 +1,1 @@
+ARTÍCULO 31. El Director Deportivo, coordinará las Áreas de trabajo señaladas en el artículo anterior, dicho director será el encargado de darle seguimiento y ejecutar los acuerdos de Junta Directiva.

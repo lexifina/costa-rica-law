@@ -1,0 +1,2 @@
+ARTÍCULO 53. En consonancia con el artículo 181 del Código Municipal, en la primera semana de julio de cada año, deberá el Comité Cantonal de Deportes, someter a conocimiento del Concejo Municipal su programa anual de actividades, obras e inversión, antes de aprobarse el Presupuesto Ordinario Municipal.
+El Comité también deberá presentar un informe de los resultados de la gestión correspondiente al año anterior.

@@ -1,0 +1,1 @@
+ARTÍCULO 47. La Junta Directiva del Comité Comunal durarán en sus puestos dos años y su nombramiento se llevará a cabo con al menos un mes de anticipación al vencimiento de su respectivo periodo y podrán ser reelegidos.
