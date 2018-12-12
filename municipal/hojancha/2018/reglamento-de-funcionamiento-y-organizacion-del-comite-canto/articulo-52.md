@@ -1,0 +1,1 @@
+Artículo 52.—En el uso de las instalaciones deportivas existentes, los Comités Comunales y Asociaciones Deportivas deberán darle participación a todos los grupos deportivos y recreativos organizados en la comunidad.
