@@ -14,3 +14,4 @@ Se establecen definiciones que tienen carácter oficial reconocidas internaciona
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-12-03 | la propia norma |
+| 2 | 2018-12-12 | Resolución 42 (2018-12-12) |
