@@ -1,0 +1,1 @@
+Artículo 3º- Se invita a las Municipalidades a liderar y articular, con organizaciones gubernamentales y no gubernamentales, empresa privada y sociedad civil, actividades en el marco del Día Nacional de la Inclusión de la Persona en Situación de Calle, en el marco de la Política Nacional para la Atención a las Personas en Situación de Abandono y Situación de Calle 2016 - 2026
