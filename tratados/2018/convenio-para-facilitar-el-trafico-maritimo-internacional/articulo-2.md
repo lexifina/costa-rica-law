@@ -1,0 +1,4 @@
+Artículo II
+1) Los Gobiernos Contratantes, de acuerdo con las disposiciones del presente Convenio, se comprometen a cooperar en la elaboración y aplicación de las medidas destinadas a facilitar la llegada, estancia en puerto y salida de los buques. Estas medidas serán, dentro de lo posible, por lo menos tan favorables como las que estén en vigor para otros medios internacionales de transporte, aunque dichas medidas difieran según las modalidades particulares de cada uno de ellos.
+2) Las medidas destinadas a facilitar el tráfico marítimo internacional previstas en el presente Convenio y su anexo se aplican por igual a los buques de los Estados, sean o no ribereños, cuyos Gobiernos son Partes en el presente Convenio.
+3) Las disposiciones del presente Convenio no se aplican ni a los buques de guerra ni a los yates de recreo.

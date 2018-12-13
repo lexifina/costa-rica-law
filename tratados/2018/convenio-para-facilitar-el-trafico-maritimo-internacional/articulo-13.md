@@ -1,0 +1,7 @@
+Artículo XIII
+1)
+a) Las Naciones Unidas, cuando asumen la responsabilidad de la administración de un territorio, o cualquier Gobierno Contratante responsable de las relaciones internacionales de un territorio, consultarán lo antes posible a ese territorio con el fin de hacer extensiva la aplicación del presente Convenio a ese territorio y, en todo momento, podrán declarar que el presente Convenio se hace extensivo a tal territorio mediante una notificación escrita dirigida al Secretario General.
+b) La aplicación del presente Convenio se hará extensiva al territorio designado en la notificación a partir de la fecha de recepción de ésta o de otra fecha que se indique en la notificación.
+c) Las disposiciones del artículo VIII del presente Convenio se aplicarán a todo territorio al cual se haga extensivo el Convenio conforme al presente artículo. A tal efecto, la expresión «sus trámites, documentos y formalidades» comprende las que estén en vigor en el territorio en cuestión.
+d) El presente Convenio cesará de hacerse extensivo a cualquier territorio después de un plazo de un año a partir de la fecha de recepción de una notificación dirigida a tal efecto al Secretario General, o al fin de cualquier otro periodo más largo especificado en la notificación.
+2) El Secretario General notificará a todos los Gobiernos Contratantes la extensión del presente Convenio a cualquier territorio en virtud de las disposiciones del párrafo 1 del presente artículo, haciendo constar en cada caso la fecha a partir de la cual el presente Convenio se ha hecho extensivo.

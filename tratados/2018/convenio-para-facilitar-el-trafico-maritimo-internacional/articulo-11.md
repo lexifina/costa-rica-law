@@ -1,0 +1,2 @@
+Artículo XI
+El presente Convenio entrará en vigor sesenta días después de la fecha en que los Gobiernos de al menos diez Estados lo hayan firmado sin reserva en cuanto a aceptación, o hayan depositado instrumentos de aceptación o adhesión. Para cualquier Gobierno que lo acepte o se adhiera al mismo posteriormente, entrará en vigor sesenta días después del depósito del instrumento de aceptación o adhesión.

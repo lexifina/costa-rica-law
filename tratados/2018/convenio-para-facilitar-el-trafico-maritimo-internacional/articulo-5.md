@@ -1,0 +1,4 @@
+Artículo V
+1) Ninguna de las disposiciones del presente Convenio, o de su anexo, deberá interpretarse como obstáculo para la aplicación de medidas más favorables de que goce o podría gozar el tráfico marítimo internacional en virtud de la legislación nacional de un Gobierno Contratante o de las disposiciones de cualquier otro acuerdo internacional.
+2) Ninguna de las disposiciones del presente Convenio o de su anexo será interpretada como impedimento para que un Gobierno Contratante aplique las medidas temporales que juzgue necesarias para preservar la moralidad, el orden y la seguridad públicos, o para impedir la introducción o la difusión de enfermedades o plagas que puedan poner en peligro la salud pública o contagiar a los animales o plantas.
+3) Todas las cuestiones que no son objeto de disposiciones expresasen el presente Convenio continuarán sujetas a la legislación de los Gobiernos Contratantes.

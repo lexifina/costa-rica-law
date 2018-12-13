@@ -1,0 +1,3 @@
+Artículo IV
+Con el objeto de lograr los fines enunciados en los artículos precedentes del presente Convenio, los Gobiernos Contratantes se comprometen a cooperar entre sí o por medio de la Organización Consultiva Marítima Intergubernamental* (en adelante denominada la «Organización»), en las cuestiones relativas a los trámites, documentos y formalidades exigidos, así como a su aplicación al tráfico marítimo internacional.
+*En virtud de las enmiendas al Convenio constitutivo de la Organización, que entraron en vigor el 22 de mayo de 1982, el nombre de la Organización pasó a ser «Organización Marítima Internacional».
