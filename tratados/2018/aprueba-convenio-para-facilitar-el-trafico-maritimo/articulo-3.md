@@ -1,0 +1,1 @@
+ARTÍCULO 3- Se designa a la Dirección de Navegación y Seguridad de la División Marítimo Portuaria del Ministerio de Obras Públicas y Transportes (MOPT), como administración marítima y órgano competente de la Administración Pública para la implementación, la aplicación y el control del presente Convenio.
