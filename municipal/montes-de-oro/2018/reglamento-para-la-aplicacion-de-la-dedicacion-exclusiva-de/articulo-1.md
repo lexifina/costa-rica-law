@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE MONTES DE ORO
+El Concejo Municipal de Montes de Oro, aprobó en sesión ordinaria N° 130-2018, mediante el acuerdo N° 2, artículo N° III de fecha 23 de octubre del 2018 y quedando ratificado en sesión ordinaria N° 131-2018 de fecha 30 de octubre del 2018,el Reglamento para la aplicación de la dedicación exclusiva de la Municipalidad de Montes de Oro, que a la letra dice:
+CAPÍTULO 1
+Definición y objetivos de la dedicación exclusiva
+Artículo 1°—Se entenderá por Dedicación Exclusiva para efectos del presente reglamento, la compensación económica retribuida a los servidores municipales con grado profesional, porcentualmente sobre sus salarios base (previa suscripción de un contrato entre el servidor municipal y el alcalde), para que obligatoriamente no ejerzan de manera particular (remunerada o Ad Honórom) la profesión que sirve como requisito para desempeñar el puesto que ostente así como las actividades relacionadas con ésta, con las excepciones que se establecen en el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 12.—Los beneficios de la dedicación exclusiva, se suspenderán en el momento en que se incumpla cualquiera de los requisitos establecidos en el artículo 3 de este reglamento. En tal caso, la Alcaldía Municipal, previo cumplimiento del debido proceso, deberá comunicar oficialmente al departamento encargado de elaborar las planillas de pago.

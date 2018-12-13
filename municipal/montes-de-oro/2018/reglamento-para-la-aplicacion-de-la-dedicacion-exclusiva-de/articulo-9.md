@@ -1,0 +1,1 @@
+Artículo 9°—Después de firmado el contrato, el departamento encargado de la gestión de recursos humanos (o la alcaldía) procederá a confeccionar la acción de personal respectiva que deberá seguir el tramite usual que rige en esta materia.

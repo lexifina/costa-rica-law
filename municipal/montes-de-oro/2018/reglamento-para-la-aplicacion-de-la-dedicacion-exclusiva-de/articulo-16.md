@@ -1,0 +1,5 @@
+Artículo 16.—El incumplimiento de las disposiciones que rigen el presente reglamento o del respectivo contrato, por parte del servidor que disfruta de los beneficios, tiene como consecuencia:
+a) La rescisión inmediata del contrato y el reintegro a la municipalidad por parte el servidor de las sumas que haya recibido por concepto de dedicación exclusiva que se le hubieren pagado a partir de la fecha en que incurrió en el incumplimiento. En este caso el servidor no podrá firmar un nuevo contrato con la institución por un periodo de dos años a partir de la fecha de dicha rescisión.
+b) La amonestación por escrito para el servidor que se acoge a las excepciones que se indican en el Art. 14 y no cumplan con el procedimiento que para ello se establece.
+Si incurre en esta falta por segunda vez dentro del tiempo de vigencia del mismo contrato, se aplicará lo indicado en el inciso anterior.
+Las medidas indicadas anteriormente, no eximen al servidor de las sanciones administrativas, civiles o penales que le puedan acarrear los actos que dieron base a la aplicación de este artículo.

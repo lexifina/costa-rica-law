@@ -1,0 +1,1 @@
+Artículo 13.—El plazo de vigencia será el acordado por la partes y deberá consignarse en el contrato, para todos los casos se debe contemplar las posibilidades económicas de la municipalidad y el interés institucional.
