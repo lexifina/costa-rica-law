@@ -1,0 +1,28 @@
+N° 41523-RREE
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE RELACIONES EXTERIORES Y CULTO
+Considerando:
+1º—Que la Asamblea Legislativa mediante Ley número 9574 del día once de junio del dos mil dieciocho, publicada en el Alcance número 161 de La Gaceta Digital número 169 del 14 de setiembre del 2018, aprobó la adhesión del Gobierno de la República de Costa Rica al Convenio para Facilitar el Tráfico Marítimo Internacional 1965, enmendado, con las siguientes reservas:
+“Artículo 2º—El Gobierno de la República de Costa Rica hace las siguientes reservas a este Convenio y sus enmiendas:
+1) La norma 2.3, en la cual se establece que la declaración de carga será el documento básico en el que figuren los datos exigidos por las autoridades públicas a la llegada y salida referentes a la carga, no será de aplicación por cuanto se aceptará únicamente el “Manifiesto del Buque”, contemplado en la norma 2.3.4.
+2) En la práctica recomendada 2.6.4, que establece que cuando el buque que preste servicio ajustándose a un itinerario regular haga escala en un mismo puerto por lo menos una vez dentro de un plazo de catorce días y haya habido pequeñas modificaciones en la tripulación, las autoridades públicas no exigirán normalmente la presentación de una lista nueva y completa de la tripulación, sino que deberán aceptar la existente con una indicación de las modificaciones efectuadas; no será de aplicación por cuanto cada vez que un buque ingrese a puerto costarricense, proveniente de puerto extranjero, deberá presentar la “Lista de tripulantes”.
+3) La práctica recomendada 2.7.2, en la que se establece que las autoridades públicas no deben exigir tarjetas de embarco o desembarco, además de las listas de pasajeros, a los pasajeros cuyos nombres figuren en dichas listas. Sin embargo, cuando las autoridades públicas se enfrenten con problemas especiales que constituyan un grave peligro para la salud pública, se podrá exigir que una persona que efectúe un viaje internacional facilite a la llegada, por escrito, su dirección en el lugar de destino; no será de aplicación dado que aquellos pasajeros que desembarquen o embarquen en puertos costarricenses deberán llenar la respectiva boleta de embarco/ desembarco. Tratándose de buques tipo crucero, aquellos pasajeros que abandonen el país en el mismo buque y por el mismo puerto de ingreso, en lo posible, no se les exigirá la presentación de dichos formularios.
+4) La práctica recomendada 2.7.3 no será de aplicación si en la lista de pasajeros no se incluye el número de pasaporte.
+5) En la práctica recomendada 3.6, en la cual se establecen los datos que debe contener la tarjeta de embarco o desembarco, se deben adicionar los siguientes datos:
+. Tipo de documento de viaje.
+. Motivo del viaje.
+. Tipo de transporte.
+. País de residencia.
+. País de destino.
+6) La norma 3.10.2 no será de aplicación por cuanto las autoridades migratorias costarricenses únicamente aceptan la presentación del pasaporte y el tripulante deberá tener “visa de ingreso” a territorio costarricense de acuerdo con su nacionalidad.
+7) La norma 3.15 no será de uso en Costa Rica, debido a que la legislación nacional establece que en caso de que se rehusara la admisión de un ciudadano extranjero a territorio costarricense, la empresa de transporte en que dicho pasajero llegó al país queda obligada a transportarlo por su cuenta y riesgo al país de procedencia, de origen o a otro país que lo acepte.
+8) La norma 3.31 no se aplicará en Costa Rica, dado que la legislación no permite que en los cruceros se vendan a bordo mercancías exentas de derechos aduanales, mientras el buque permanece en puerto.
+9) La práctica recomendada 3.38 no será de aplicación, dado que las autoridades migratorias exigirán llenar a los pasajeros en tránsito la tarjeta de embarco/desembarco.
+10) La norma 3.47 no será de aplicación en Costa Rica, dado que para que un tripulante pueda disfrutar del permiso de tierra deberá obtener de las autoridades migratorias un pase.
+11) La norma 5.19 no será de aplicación, dado que existen regulaciones específicas para tratar los casos en que toda o parte de la carga mencionada en la declaración de carga no se desembarque en el puerto de destino previsto, entre ellos la Ley Nº 7557, Ley General de Aduanas, de 20 de octubre de 1995.
+12) La práctica recomendada 6.11 no será de aplicación, dado que los animales, las plantas y los productos animales y vegetales prohibidos por las leyes y los reglamentos técnicos costarricenses no pueden ser importados aun cuando vengan acompañados de un certificado de cuarentena. Para el caso de exportación, debe conocerse con antelación los requisitos, las exigencias o las declaraciones adicionales especiales de importancia cuarentenaria para el país comprador.
+13) La República de Costa Rica hace reserva a los artículos VII, VIII y IX del Convenio para Facilitar el Tráfico Marítimo Internacional, 1965, enmendado, en el sentido de que las enmiendas a dicho Convenio tendrán vigencia en el país una vez que hayan sido aprobadas, de conformidad con los procedimientos establecidos en la Constitución Política de la República de Costa Rica”.
+2º—Que los instrumentos de aceptación o de adhesión se depositarán ante el Secretario General de la Organización Marítima Internacional, de acuerdo con el artículo X numeral 2 del Convenio mencionado. Por tanto,
+En uso de las facultades que les confieren los incisos 10) y 12) del artículo 140 y el artículo 146 de la Constitución Política de la República de Costa Rica.
+Decretan:
+Artículo 1º—La adhesión de la República de Costa Rica al Convenio para Facilitar el Tráfico Marítimo Internacional 1965, enmendado, con las reservas mencionadas a este Convenio y sus enmiendas.
