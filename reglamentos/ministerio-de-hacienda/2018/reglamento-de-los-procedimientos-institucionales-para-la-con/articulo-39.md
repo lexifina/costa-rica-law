@@ -1,0 +1,1 @@
+Artículo 39. Vigencia. Este reglamento rige a partir de su publicación en el Diario Oficial La Gaceta y hasta el 13 de julio del 2019 en razón de que la última prórroga por un año autorizada por el ente Contralor se publicó en el Diario Oficial La Gaceta No.127 del 13 de julio del 2018 y podrá ser modificado previa autorización de la Contraloría General de la República.

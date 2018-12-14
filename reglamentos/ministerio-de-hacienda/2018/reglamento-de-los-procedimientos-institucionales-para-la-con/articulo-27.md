@@ -1,0 +1,1 @@
+Artículo 27º - Administración del Registro de Elegibles. Corresponderá al Departamento de Servicios Generales la administración del Registro de Elegibles para lo cual, cada Gestoría deberá de enviarle a ese Departamento vía oficio, un informe mensual con la documentación relacionada a cada reparación por separado.
