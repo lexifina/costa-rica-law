@@ -14,3 +14,4 @@ Requisitos que deben cumplir los permisionarios y concesionarios del servicio p�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-01-25 | la propia norma |
+| 2 | 2018-12-14 | Resolución 168 (2018-12-14) |
