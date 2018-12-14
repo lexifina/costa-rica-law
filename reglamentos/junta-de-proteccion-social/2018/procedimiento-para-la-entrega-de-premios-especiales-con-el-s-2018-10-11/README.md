@@ -14,3 +14,4 @@ Procedimiento para la entrega de premios especiales con el "Sorteo extraordinari
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-11-15 | la propia norma |
+| 2 | 2018-12-14 | Reglamento 0 (2018-12-14) |
