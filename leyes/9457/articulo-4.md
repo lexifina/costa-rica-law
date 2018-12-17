@@ -1,0 +1,3 @@
+ARTÍCULO 4º—La notaría del Estado formalizará todos los trámites de esta segregación y donación, mediante la elaboración de la escritura correspondiente, la cual estará exenta del pago de todo tipo de impuestos, tasas o contribuciones. Además, queda facultada expresamente la notaría del Estado, para que actualice y corrija la naturaleza, la situación, la medida, los linderos y cualquier error, diferencia u omisión relacionados con los datos del inmueble a donar, así como cualquier otro dato registral o notarial que sea necesario para la debida inscripción del documento en el Registro Nacional.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República.—San José, a los seis días del mes de junio del año dos mil diecisiete.
