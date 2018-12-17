@@ -1,4 +1,6 @@
+(Derogado)
 N° 40402-MTSS
+(Este decreto ejecutivo fue derogado por el transitorio I del Reglamento para la inscripción de cooperativas y la emisión del padrón oficial para las elecciones bianuales del CONACOOP, aprobado mediante decreto ejecutivo N° 41509 del 17 de diciembre del 2018)
 LA SEGUNDA VICEPRESIDENTA
 EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
 EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL

@@ -14,3 +14,4 @@ Reglamento para la emisión de la clasificación que debe emitir el INFOCOP sobr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-05-12 | la propia norma |
+| 2 | 2018-12-17 | Decreto Ejecutivo 41509 (2018-12-17) |
