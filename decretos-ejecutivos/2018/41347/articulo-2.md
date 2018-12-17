@@ -1,0 +1,1 @@
+Artículo 2º—La Secretaría Técnica de la Red Nacional de Cuido y Desarrollo Infantil, señalada en el artículo 9 de la Ley N° 9220 del 24 de marzo de 2014, se mantendrá adscrita al Instituto Mixto de Ayuda Social.
