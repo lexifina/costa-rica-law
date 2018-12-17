@@ -1,0 +1,18 @@
+N° 41381-S
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+En uso de las facultades que le confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; 25, 27 inciso 1) y 28 inciso 2.b) de la Ley N° 6227 del 02 de mayo de 1978 “Ley General de la Administración Pública”; 1 y 2 de la Ley N° 5395 del 30 de octubre de 1973 “Ley General de Salud”; 1, 2 y 6 de la Ley N° 5412 del 8 de noviembre de 1973 “Ley Orgánica del Ministerio de Salud”; Ley N° 7184 del 18 de julio de 1990, “Convención sobre los Derechos del Niño”; Ley N° 8017 del 29 de agosto de 2000, “Ley General de Centros de Atención Integral”; Ley N° 7316 del 03 de noviembre de 1992, “Ley de aprobación del Convenio N° 169 Sobre Pueblos Indígenas y Tribales en Países Independientes”; Ley N° 7600 del 02 de mayo de 1996, “Ley de Igualdad de Oportunidades para las Personas con Discapacidad”; y Decreto Ejecutivo N° 41045-S del 08 de marzo del 2018, “Reglamento General de Habilitación de Servicios de Salud”.
+Considerando:
+I.—Que la salud de la población es un bien de interés público tutelado por el Estado.
+II.—Que la Ley General de Salud dispone que las personas físicas o jurídicas, públicas o privadas, que requieran brindar servicios de salud y afines, deberán obtener el permiso o autorización del Ministerio de Salud, previo a su instalación y operación, para lo cual deberán garantizar que reúnen o cumplen los requisitos legales generales y particulares establecidos.
+III.—Que los Centros de Atención, Cuido y Desarrollo Infantil, públicos, privados y mixtos para personas menores, hasta de doce años de edad, deben cumplir con requisitos y condiciones previas para obtener el Certificado de Habilitación por parte del Ministerio de Salud.
+IV.—Que en el Decreto Ejecutivo N° 41045-S del 08 de marzo del 2018 “Reglamento General de Habilitación de Servicios de Salud”, se dispuso la necesidad de crear reglamentación específica para definir los estándares particulares que se deben solicitar a cada tipo de servicio de salud según la actividad a desarrollar; por ejemplo, los centros de atención, cuido y desarrollo infantil. Además, de lo establecido en la Ley N° 8017 del 29 de agosto de 2000, “Ley General de Centros de Atención Integral”.
+V.—Que por lo anterior, se considera necesario y oportuno oficializar para efectos de aplicación obligatoria la “Norma para Habilitación de Centros de Atención, Cuido y Desarrollo Infantil, Modalidad Diurna y Temporal, en beneficio de los hijos de trabajadores agrícolas (Casas de la Alegría)” y su respectiva implementación.
+VI.—Que de conformidad con lo establecido en el artículo 12 bis del Decreto Ejecutivo N° 37045-MP-MEIC del 22 de febrero de 2012 y su reforma “Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos”, esta regulación cumple con los principios de mejora regulatoria, de acuerdo con el informe N° DMR-DAR-INF-089-18, emitido por la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio. Por tanto,
+Decretan:
+OFICIALIZACIÓN DE LA “NORMA PARA HABILITACIÓN
+DE CENTROS DE ATENCIÓN, CUIDO Y DESARROLLO
+INFANTIL, MODALIDAD DIURNA Y TEMPORAL, EN
+BENEFICIO DE LOS HIJOS DE TRABAJADORES
+AGRÍCOLAS (CASAS DE LA ALEGRÍA)”
+Artículo 1º—Oficialícese para efectos de aplicación obligatoria la Norma para Habilitación de Centros de Atención, Cuido y Desarrollo Infantil, Modalidad Diurna y Temporal, en beneficio de los hijos de trabajadores agrícolas (Casas de la Alegría), adjunta como anexo a este decreto, la cual deberá ser utilizada por los centros de atención, cuido y desarrollo infantil, públicos, privados y mixtos para personas menores, hasta de doce años de edad, autorizados por el Ministerio de Salud.
