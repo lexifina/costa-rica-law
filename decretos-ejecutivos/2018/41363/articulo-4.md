@@ -1,0 +1,3 @@
+Artículo 4. Implementación
+Las Partes designan como Órganos Ejecutores del presente Acuerdo al Ministerio del Medio Ambiente de Chile y al Ministerio de Ambiente y Energía de Costa Rica, los cuales decidirán de común acuerdo las actividades que se llevarán a cabo respecto de las modalidades mencionadas en el Artículo 3.
+Con el fin de facilitar la implementación y seguimiento de la cooperación acordada en este Acuerdo, el Ministerio del Medio Ambiente de Chile designa al Jefe de su Oficina de Asuntos Internacionales corno punto focal, y el Ministerio de Ambiente y Energía de Costa Rica, designa como punto focal a la Directora de Cooperación Internacional.

@@ -1,0 +1,2 @@
+Artículo 5. Financiamiento
+Los gastos derivados de la implementación del presente Acuerdo estarán a cargo de cada uno de los Órganos Ejecutores y de acuerdo a sus respectivas disponibilidades presupuestarias. Los gastos derivados de visitas de expertos (transporte, alojamiento, comida, per diem, seguros, entre otros similares) serán asumidos por la Parte que envía la delegación de expertos, a no ser que, de común acuerdo, se decida algo diferente.

@@ -1,0 +1,3 @@
+Artículo 7. Vigencia y Terminación
+El presente Acuerdo entrará en vigor después de la fecha de la última notificación por medio de la cual una Parte informe a la otra, por la vía diplomática, el cumplimiento de los trámites y procedimientos previstos por su legislación interna para dicho fin.
+Las Partes podrán dar término al presente Instrumento, en cualquier momento, de común acuerdo entre ambos países o, cuando medie solicitud por escrito de alguna de ellas, por la vía diplomática, con al menos sesenta (60) días de antelación. En caso de término, las actividades en implementación podrán seguir hasta su conclusión, según lo estipulado en el presente Acuerdo, salvo que las Partes decidan de un modo diferente.
