@@ -1,1 +1,0 @@
-Artículo 8°.- Sujetos de retención. En caso de que el solicitante sea solamente sujeto de retención en la fuente, debe presentar constancia del agente retenedor que indique que la respectiva retención se efectuó, que fue declarada y pagada o cuándo se va a declarar y pagar, si aún no han vencido los plazos para esto, y las fechas y los conceptos por los que se retuvo.
