@@ -1,4 +1,5 @@
 AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
+(Nota de Sinalevi: Mediante el punto IX de la parte resolutiva de la resolución RE-0113-IE-2018 del 17 de diciembre del 2018, “Simplificación y regularización información regulatoria para el servicio de suministro de gas licuado de petróleo destinado al consumidor final bajo la figura de concesionarios de plantas envasadoras y RECOPE en su actividad de distribución al mayoreo”, se indica que la presente norma mantiene su vigencia.)
 INTENDENCIA DE ENERGÍA
 RIE-025-2017 del 5 de marzo de 2017
 LINEAMIENTOS PARA LA VERIFICACIÓN, RECALIFICACIÓN Y

@@ -14,3 +14,4 @@ Lineamientos para la verificación, recalificación y destrucción de cilindros 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-04-20 | la propia norma |
+| 2 | 2018-12-17 | Resolución 113 (2018-12-17) |
