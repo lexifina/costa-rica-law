@@ -1,0 +1,1 @@
+Artículo 4º—Ubicación Física. El área de atención de la Contraloría, además de cumplir con lo establecido en el artículo 18 de la Ley, debe ajustarse a las disposiciones de la Ley de Igualdad de Oportunidades para las Personas con Discapacidad, así como a los lineamientos de gestión emitidos por MIDEPLAN para su funcionamiento.

@@ -1,0 +1,4 @@
+CAPÍTULO II
+De la Contraloría de Servicios
+Artículo 3º—Concepto. La Contraloría es un Órgano Asesor, canalizador y mediador de los requerimientos de efectividad y continuidad de las personas usuarias de los servicios que brinda esta Cartera Ministerial y sus Órganos Desconcentrados. También apoya, complementa, guía y asesora a los Jerarcas o encargados en la toma de sus decisiones, en procura de incrementar la efectividad en el logro de los objetivos que se persiguen, así como la calidad en los servicios prestados.
+Además tiene como fin promover, con la participación de las personas usuarias, el mejoramiento continuo e innovación en la prestación de los servicios que brindan el Ministerio y los Órganos Desconcentrados, promoviendo la elaboración y divulgación de políticas de calidad de los servicios que brindan.

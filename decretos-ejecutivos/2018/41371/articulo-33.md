@@ -1,0 +1,1 @@
+Artículo 33.—Políticas de Calidad. Las Contralorías deben participar en el proceso que realice el Jerarca Institucional, en la implementación de políticas y estándares de calidad, brindando la colaboración y asesoría.

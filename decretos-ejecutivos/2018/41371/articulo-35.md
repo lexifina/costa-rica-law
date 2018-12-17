@@ -1,0 +1,1 @@
+Artículo 35.—Procesos de Mejoramiento Continuo e Innovación de los Servicios. Para los procesos de mejoramiento continuo de los servicios, la Contraloría, como Unidad Asesora del Jerarca, coadyuvará en la elaboración de los instrumentos y técnicas pertinentes de gestión de calidad para la formulación de dichos procesos.

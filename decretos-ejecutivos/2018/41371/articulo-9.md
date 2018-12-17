@@ -1,0 +1,1 @@
+Artículo 9º—Ejercicio de la Potestad Disciplinaria. Las violaciones que se cometan contra los derechos de las personas usuarias y las irregularidades detectadas en la prestación de los servicios, así como las faltas señaladas en el artículo 6 de este Reglamento, serán trasladadas por las Contralorías al Jerarca competente, para la eventual aplicación del régimen disciplinario.

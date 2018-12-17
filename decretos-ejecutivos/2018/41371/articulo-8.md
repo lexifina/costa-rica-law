@@ -1,0 +1,2 @@
+Artículo 8º—Informe Anual. El Jerarca deberá presentar, ante la Secretaría Técnica del Sistema, un informe anual de las acciones desarrolladas por la entidad, producto de las recomendaciones emitidas por la Contraloría, puntualizando, en el caso de las que no fueron avaladas, las razones que justificaron dicha decisión.
+Dicho informe anual deberá ser presentado durante el primer trimestre de cada año.
