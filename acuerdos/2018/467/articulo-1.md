@@ -1,0 +1,15 @@
+INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+AJDIP/467-2018.—Puntarenas, a los nueve días del mes de noviembre de dos mil dieciocho.
+1º—Que varios pescadores de I. Venado y Costa de Pájaros, solicitaron una prorroga a la entrada en vigencia del artículo 7, inciso D, del acuerdo de Junta Directiva AJDIP-026-2018, enlo concerniente a la utilización de trasmallos de luz de malla de 5 pulgadas para las capturas de corvinas reinas y coliamarillas y robalos blancos y negros.
+2º—Que lo anterior es para lograr la protección de los megareproductores de estas especies.
+3º—Que en reunión sostenida con varios pescadores de Costa de Pájaros e Isla Vendado, hicieron la misma solicitud, pidiendo una prórroga para la entrada en vigencia de dicho inciso. Ellos argumentaron, además, que esa luz de malla captura en su mayoría corvinas reinas dela clase comercial primera pequeña, pero no de primera grande, que es la que tiene mejor precio y algunas de ellas podrían ser juveniles.
+4º—Que la Junta Directiva, en el ejercicio de sus competencias legales y con vista en el criterio DDI-093-10-2018, del Departamento de Investigaciones Pesqueras y la exposición hecha por el Director General Técnico, considera que es conveniente para la protección y el aprovechamiento sostenible del recurso pesquero, aprobar la siguiente modificación al acuerdo de Junta Directiva AJDIP/026-2018, razón por la cual, la Junta Directiva. Por tanto,
+LA JUNTA DIRECTIVA DE INCOPESCA,
+ACUERDA:
+1º—Modificar el inciso d del artículo 7 del acuerdo de Junta Directiva AJDIP/026-2018, para que en lo sucesivo se lea así:
+“7º—Como medidas complementarias de manejo a las tallas de primera madurez sexual y de primera captura, se disponen las siguientes:
+…
+De autorizar el uso de redes agalleras o redes de enmalle únicamente con luz de malla 3.5 pulgadas (8.75 cm) y de 6pulgadas (15 cm) en las zonas 202 y 203 del Golfo de Nicoya.
+En el caso de la primera luz de malla, para que tenga como pesca objetivo las corvinas aguadas, picudas y otras, mientras que la segunda luz de malla es para la protección de las megas reproductoras de corvinas reinas, coliamarillos, robalos blancos y negros. La aplicación de la medida anterior, 6 pulgadas (15 cm), debe implementarse a partir del 30 de abril de 2019, lo cual significa modificar todas aquellas licencias de pesca emitidas anteriormente con un tipo de luz de malla diferente. Que el Departamento de Desarrollo e Investigación deberá de realizar análisis de las bases de datos de muestreo por zona de pesca y por años, para determinar si ha habido cambios en las tallas capturadas por estas especies y en caso de que sea necesario, se realizarán muestreos a desembarques realizados con trasmallos de luz de malla de 5 y 6 pulgadas, para determinar cuál de las dos captura una mayor cantidad de individuos que ya han alcanzado la talla de primera madurez sexual.
+Que en tanto entre en vigencia esta disposición los pescadores podrán utilizar sus trasmallos de malla de 7 pulgadas.”
+2º—Acuerdo firme. Publíquese
