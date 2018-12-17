@@ -1,0 +1,6 @@
+ARTÍCULO SEXTO
+Compromisos de la Parte chilena
+Para el cumplimiento de los objetivos del presente Acuerdo Complementario, el Gobierno de Chile, a través del Ministerio de la Mujer y la Equidad de Género, asume los siguientes compromisos:
+1. Participar en los procesos de diálogo y análisis sobre temas de relevancia sobre la autonomía económica de las mujeres y la protección de los derechos labores que así propongan los firmantes.
+2. Intercambiar información y conocimientos gestionados en diferentes áreas relacionadas con el cumplimiento de los derechos económicos de las mujeres, en particular, aquellas iniciativas dirigidas a mejorar el acceso de las mujeres a los mercados de trabajo mediante la implementación de sistemas de gestión para la igualdad de género en organizaciones públicas y privadas, y el fomento del emprendimiento.
+3. Brindar asistencia técnica y compartir las lecciones aprendidas en aquellas áreas de trabajo que se acuerden ejecutar conjuntamente entre las Partes, en particular, en materia de otorgamiento de incentivos y reconocimientos a buenas prácticas laborales con enfoque de género y del “Sello IGUALA – CONCILIACIÓN Vida laboral, familiar y personal” a fin de retroalimentar la experiencia costarricense en relación al Sistema de Gestión para la Igualdad de Género (SIGIG) y el Sello de Igualdad de Género.
