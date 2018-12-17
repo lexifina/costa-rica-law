@@ -1,0 +1,19 @@
+N° 41416-G
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE GOBERNACIÓN Y POLICÍA
+En ejercicio de las atribuciones conferidas en los artículos 140 incisos 3); 8), 18) y 146) de la Constitución Política, los artículos 25, 27 y 28 de la Ley General de Administración Pública N° 6227 del 2 de mayo de 1978, los artículos 12 y 13 de la Ley General de Migración y Extranjería N° 8764 del 19 de agosto de 2009, y 1os artículos 9 y 87 del Reglamento Autónomo de Servicios de la Dirección General de Migración y Extranjería, Decreto N° 22060, del 15 de marzo de 1993 y sus reformas,
+Considerando:
+I.—Que con el fin de garantizar una mayor eficiencia en el servicio que presta la Dirección General de Migración y Extranjería, resulta necesario procurar el máximo aprovechamiento de los recursos humanos y materiales con que cuenta esta dependencia del Ministerio de Gobernación y Policía.
+II.—Que para cumplir con las obligaciones que, por imperativo constitucional y legal, competen a la Dirección General de Migración y Extranjería, es necesario regular las relaciones de servicio entre esta dependencia y sus funcionarios, en el entendido de que estos servidores del Estado deben procurar la realización óptima de los fines públicos.
+III.—Que los horarios dispuestos por el Reglamento Autónomo de Servicios de la Dirección General de Migración y Extranjería no responden a una realidad regional e internacional que ha cambiado, por lo que requieren ser modernizados y adaptados a las nuevas condiciones del desarrollo nacional, al contexto internacional y regional, y a las nuevas realidades migratorias del país.’
+IV.—Que la Asesoría Jurídica de la Dirección General de Servicio Civil, otorgó el visto bueno a la modificación del Reglamento Autónomo de Servicios de la Dirección General de Migración y Extranjería, mediante oficio AJ-OF-081-2018, de fecha 09 de marzo del 2018, en acatamiento a lo que dispone el inciso i) del artículo 13 del Estatuto de Servicio Civil.
+V.—Que se procedió a llenar el Formulario de Evaluación Costo-Beneficio, en la sección I denominada Control Previo de Mejora Regulatoria/siendo que el mismo dio resultado negativo y que la propuesta no contiene trámites ni requisitos, de conformidad con el Decreto Ejecutivo N° 37045-MP-MEIC y su reforma. Por tanto;
+Decretan:
+Reforma al artículo 9 del Reglamento
+Autónomo de servicios de la Dirección
+General de migración y extranjería
+Artículo 1º—Refórmese el artículo 9° del Reglamento Autónomo de Servicios de la Dirección General de Migración y Extranjería, decreto N° 22060-G, publicado en La Gaceta N° 88, del 10 de mayo de 1993, para que en adelante diga:
+“Artículo 9.- La jornada ordinaria —diaria- de trabajo de los servidores administrativos de la Dirección General de Migración y Extranjería será de ocho horas acumulativas, de lunes a viernes. El inicio y la terminación de la jornada, será determinada por el máximo jerarca de la Institución.
+La Dirección General de Migración y Extranjería, mediante resolución razonada, podrá disponer de horarios diferenciados, según la realidad nacional o internacional del momento y las necesidades de los administrados en las oficinas centrales o en las oficinas regionales.
+A solicitud del funcionario, la Dirección General de Migración y Extranjería, en casos particulares, podrá autorizar horarios diferenciados al establecido para la prestación de servicios en general.
+Los servidores de la Dirección General de Migración y Extranjería tendrán derecho a quince minutos en la mañana para la ingesta de desayuno, y de cuarenta y cinco minutos para almorzar, los cuales deberán ser coordinados por el jefe inmediato de cada funcionario, verificando, que el servicio de atención al público sea prestado en forma continua. Los servidores que no hicieren uso de esta concesión no podrán reclamar su compensación, ni podrán retirarse con antelación a la hora de salida establecida, ni podrán unir éstos para su disfrute”.
