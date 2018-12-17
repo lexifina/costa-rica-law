@@ -1,1 +1,1 @@
-Artículo 99.—A partir del 1° de enero de 1982, el paso anual establecido y vigente en el escalafón de salarios se aplicará sobre el salario base así: 5% por concepto de valor competitivo del puesto y 2% como adelanto de quinquenio.
+Artículo 99.—(Derogado en sesión N° 6057 del 17 de diciembre de 2018. Asimismo en dicha sesión se indica que se mantienen incólumes los derechos adquiridos ligados a este numeral)
