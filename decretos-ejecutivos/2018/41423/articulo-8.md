@@ -1,0 +1,1 @@
+Artículo 8°—Deróguese el inciso b. del artículo 3 del Decreto Ejecutivo N° 40769-S “Reglamento para el cobro de los trámites de registro y control de productos químicos peligrosos”, del 13 de noviembre del 2017, publicado en el Alcance N° 303 a La Gaceta N° 238 del 15 de diciembre de 2017.

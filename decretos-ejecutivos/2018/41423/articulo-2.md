@@ -1,0 +1,7 @@
+Artículo 2°—Para efectos de interpretación del presente reglamento se establecen las siguientes defunciones y abreviaturas:
+a) Comprobante de pago: Copia del comprobante de depósito en el Banco Nacional de Costa Rica o del pago en línea de fondos que demuestre la cancelación del servicio requerido al Ministerio de Salud.
+b) Ley: Ley General de Salud.
+c) MEIC: Ministerio de Economía, Industria y Comercio.
+d) Productos de interés sanitario: Productos que por su composición, utilización o función pueden afectar la salud de las personas. Incluyen los alimentos, medicamentos, suplementos a la dieta, cosméticos, equipos y materiales médicos, plaguicidas de uso doméstico y de uso profesional, productos naturales, medicinales, de higiene y químicos peligrosos.
+e) Cambio posterior al Registro: Acto administrativo, mediante el cual el Ministerio de Salud, después de analizar el cumplimiento de requisitos técnicos y legales establecidos, aprueba el cambio solicitado al registro previo de un producto de interés sanitario.
+f) Tarifa: Monto en dólares de los Estados Unidos de América o su equivalente en moneda nacional al tipo de cambio de venta de referencia del Banco Central de Costa Rica para el día en que se realiza la transacción, que debe pagar el administrado por el servicio de registros, renovaciones, cambios posteriores al registro, reconocimiento de registro, usos de registro, la vigilancia y control que realiza el Ministerio de Salud.
