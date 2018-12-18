@@ -1,0 +1,1 @@
+Artículo 2°—En la conformación de cada equipo de trabajo liderado por el ente operador del sistema de abastecimiento deben incluirse funcionarios de las Áreas Rectoras de Salud del Ministerio de Salud, para dar el seguimiento respectivo.
