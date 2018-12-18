@@ -1,1 +1,0 @@
-Artículo 31.—Supervisión y seguimiento de los programas y proyectos. La supervisión y fiscalización de las obligaciones de acceso universal, servicio universal y solidaridad asumidas por los operadores o proveedores, podrá ser realizada por la SUTEL.

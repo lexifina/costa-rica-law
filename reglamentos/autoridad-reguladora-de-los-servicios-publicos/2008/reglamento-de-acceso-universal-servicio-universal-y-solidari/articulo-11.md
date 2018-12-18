@@ -1,2 +1,0 @@
-Artículo 11.—Cuentas del FONATEL. Los recursos provenientes de las fuentes de financiamiento del FONATEL serán depositados en un Banco público del Sistema Bancario Nacional en un instrumento financiero que minimice la posibilidad de una merma en su capital.
-En la contabilidad de la SUTEL, figurará de forma independiente una cuenta denominada “Cuenta FONATEL”, así como las demás cuentas correspondientes a cada proyecto financiado con cargo a FONATEL.

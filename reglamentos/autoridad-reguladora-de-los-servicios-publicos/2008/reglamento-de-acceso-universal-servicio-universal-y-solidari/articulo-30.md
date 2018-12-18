@@ -1,3 +1,0 @@
-Artículo 30.—Pago y entrega de subsidios. Recibidas las obras e instalaciones del proyecto comprometido, la SUTEL efectuará el traspaso de fondos de los fideicomisos a nombre de la beneficiaria.
-Si el proyecto contempla distintas etapas para su ejecución, la SUTEL, de conformidad con lo que se establezca en el cartel de licitación del concurso público, puede traspasar, una vez recibidas las obras e instalaciones, los montos del subsidio correspondientes a cada etapa.
-Asimismo, en el cartel de licitación del concurso público se podrá establecer la entrega anticipada de parte o la totalidad del subsidio adjudicado, previa entrega por el concesionario o permisionario o de la garantía que permita cautelar adecuadamente el patrimonio fiscal.

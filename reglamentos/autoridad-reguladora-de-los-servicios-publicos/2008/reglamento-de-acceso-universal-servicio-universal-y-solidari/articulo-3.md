@@ -1,1 +1,0 @@
-Artículo 3º—Alcance del reglamento. Las disposiciones de acceso universal, servicio universal y solidaridad, establecidas en la Ley Nº 8642 y desarrolladas en este reglamento, son irrenunciables y de aplicación obligatoria sobre cualesquiera otras leyes, reglamentos, costumbres, prácticas, usos o estipulaciones contractuales en contrario.

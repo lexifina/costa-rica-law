@@ -1,2 +1,0 @@
-Artículo 25.—Oferta. Para los efectos del presente reglamento se entenderá como oferta la manifestación de la voluntad del participante en el concurso público de celebrar un contrato con la SUTEL, para prestar los servicios o ejecutar las obras objeto del concurso.
-La oferta deberá ser redactada en idioma español y presentarse por los medios autorizados en el cartel físicos o electrónicos, debidamente firmada por el representante o apoderado y deberá ser entregada en un sobre cerrado que indicará la ubicación de la oficina que recibe, el nombre y número del concurso.

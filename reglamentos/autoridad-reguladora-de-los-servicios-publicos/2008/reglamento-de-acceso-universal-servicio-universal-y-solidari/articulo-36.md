@@ -1,2 +1,0 @@
-Artículo 36.—Obligación de continuidad de los servicios. La eliminación del financiamiento por la causal del inciso a) del artículo anterior, no producirá la suspensión del servicio de que se trate. el operador o proveedor de telecomunicaciones mantienen la obligación de continuidad del servicio.
-La disminución del financiamiento por cualesquiera de las causales de los incisos b) y c) del artículo anterior, si el operador o proveedor de telecomunicaciones, tiene clientes activos, mantienen la obligación de continuidad del servicio.

@@ -1,2 +1,0 @@
-Artículo 13.—Contratos de fideicomiso. La SUTEL administrará los recursos financieros del FONATEL, mediante la constitución de los fideicomisos que le sean necesarios para el cumplimiento de sus fines, de conformidad con el artículo 35 de la Ley Nº 8642.
-Dentro de las cláusulas de los contratos de fideicomiso deberá indicarse que los recursos de estos fondos deberán de invertirse en las mejores condiciones de bajo riesgo y de alta liquidez.
