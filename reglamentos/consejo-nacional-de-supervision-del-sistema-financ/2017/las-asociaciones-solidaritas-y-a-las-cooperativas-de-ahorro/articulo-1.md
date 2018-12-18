@@ -1,5 +1,5 @@
 CONSEJO NACIONAL DE SUPERVISIÓN DEL SISTEMA FINANCIERO
-(Nota de Sinalevi: El Consejo Nacional de Supervisión del Sistema Financiero, en el artículo 8 de la sesión N° 1469-2018 del 18 de diciembre de 2018, acordó ratificar lo acordado en esta norma.)
+(Nota de Sinalevi: El Consejo Nacional de Supervisión del Sistema Financiero, en el artículo 8 de la sesión N° 1469-2018 del 18 de diciembre de 2018, acordó ratificar lo acordado en esta norma, en relación a las derogaciones de los acuerdos aprobados en el artículo 21 del acta de la sesión 19-96, del 27 de junio de 1996, así como los acuerdos posteriores en los que se ajustó el nivel de activos de las cooperativas de ahorro y crédito que exime de la supervisión de la SUGEF, yl artículo 22 del acta de la sesión 19-96, del 27 de junio de 1996, en el que se exceptúan de la supervisión de la SUGEF a todas las asociaciones solidaristas. )
 El Consejo Nacional de Supervisión del Sistema Financiero en el artículo 9 del acta de la sesión 1375-2017, celebrada el 14 de noviembre del 2017,
 considerando:
 Consideraciones de orden legal
@@ -38,10 +38,10 @@ g. Cumplir de mejor manera, con el objetivo primordial establecido en la Ley de 
 dispuso:
 1. Derogar los acuerdos que constan en el artículo 21 del acta de la sesión 19-96, del 27 de junio de 1996 y artículo 15 del acta de la sesión 109-99, del 16 de agosto de 1999, así como los acuerdos posteriores en los que ajustó el nivel de activos de las cooperativas de ahorro y crédito que se eximen de la supervisión de la SUGEF.
 2. Derogar el acuerdo que consta en el artículo 22 del acta de la sesión 19-96, del 27 de junio de 1996 en el que se exceptúan de la supervisión de la SUGEF a todas las asociaciones solidaristas.
-3. De conformidad con lo dispuesto en el párrafo tercero del artículo 117 de la Ley 7558, Ley Orgánica del Banco Central de Costa Rica, someter a la regulación y supervisión de la SUGEF a las asociaciones solidaristas y a las cooperativas de ahorro y crédito, independientemente de su naturaleza abierta o cerrada y del volumen de operaciones o nivel de activos.
-4. La aplicación de las disposiciones anteriores será efectiva doce (12) meses después a la vigencia de este acuerdo para aquellas entidades que superen el umbral fijado mediante un modelo estadístico de discriminación construido por SUGEF, el cual será actualizado con los datos al cierre de diciembre del 2017. Dichos entes ingresarán a un régimen de supervisión basado en riesgos, adecuado a la naturaleza de los negocios y realidad jurídica de los mismos, el cual se les aplicará en forma total o proporcional, según los resultados que arroje ese modelo, sobre su relevancia e importancia en el Sistema Financiero Nacional.
-5. Las entidades que se ubiquen por debajo de ese umbral establecido por el modelo de discriminación elaborado por la SUGEF, deberán solamente remitir información financiera y cualitativa a la SUGEF, con una periodicidad semestral. Lo anterior para fines estadísticos y cumplimiento de normas de política monetaria del Banco Central de Costa Rica.
-6. Se faculta a la SUGEF para que defina los requerimientos de información y la fecha a partir de la cual los solicitará, dando el plazo suficiente para que esas entidades se adecúen a las nuevas exigencias.
-7. Los enfoques de supervisión que se apliquen a las entidades de esos sectores debe sustentarse en aspectos de alta automatización y herramientas tecnológicas, con tal de que apoye la supervisión basada en riesgos de una forma eficiente y efectiva.
-8. En un plazo de treinta (30) días hábiles, posteriores a la firmeza de este acuerdo, la Superintendencia propondrá un plan de implementación de las disposiciones anteriores, que debe incluir aspectos de organización, de regulación, de requerimientos de información, tecnología de información y de aplicación proporcional del enfoque de supervisión basado en riesgos para las entidades de esos sectores, conforme a las resultas del modelo de discriminación construido por la SUGEF.
+3. (Derogado en sesión N° 1469-2018 del 18 de diciembre de 2018.)
+4. (Derogado en sesión N° 1469-2018 del 18 de diciembre de 2018.)
+5. (Derogado en sesión N° 1469-2018 del 18 de diciembre de 2018.).
+6. (Derogado en sesión N° 1469-2018 del 18 de diciembre de 2018.)
+7. (Derogado en sesión N° 1469-2018 del 18 de diciembre de 2018.)
+8. (Derogado en sesión N° 1469-2018 del 18 de diciembre de 2018.)
 Rige a partir de su publicación en el Diario Oficial La Gaceta.

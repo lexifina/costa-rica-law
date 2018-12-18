@@ -14,3 +14,4 @@ Las asociaciones solidaritas y a las cooperativas de ahorro y crédito estarán 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-12-19 | la propia norma |
+| 2 | 2018-12-18 | Acuerdo 0 (2018-12-18) |
