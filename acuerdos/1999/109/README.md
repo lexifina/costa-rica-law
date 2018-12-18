@@ -19,3 +19,4 @@ Exime de la fiscalizacion de la Superintendencia General de Entidades Financiera
 | 4 | 2006-03-13 | Resolución 988 (2006-03-13) |
 | 5 | 2006-10-26 | Acuerdo 0 (2006-10-26) |
 | 6 | 2017-11-14 | Reglamento 1375 (2017-11-14) |
+| 7 | 2018-12-18 | Acuerdo 0 (2018-12-18) |
