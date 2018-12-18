@@ -16,3 +16,4 @@ Crea Programa Nacional de Empleo y su Reglamento Respectivo(Rige a partir del 1 
 | 1 | 2000-11-09 | la propia norma |
 | 2 | 2009-01-16 | Decreto Ejecutivo 35028 (2009-01-16) |
 | 3 | 2012-04-18 | Decreto Ejecutivo 37143 (2012-04-18) |
+| 4 | 2018-12-18 | Decreto Ejecutivo 41494 (2018-12-18) |

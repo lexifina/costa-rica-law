@@ -1,1 +1,2 @@
-Artículo 6º—El Ministerio de Trabajo y Seguridad Social podrá suscribir convenios con las organizaciones o instituciones públicas o privadas sin fines de lucro, que puedan asumir la ejecución de proyectos de empleo y desarrollo social, debiendo delimitarse las responsabilidades y obligaciones de cada uno de los entes participantes.
+Artículo 6.- El Ministerio de Trabajo y Seguridad Social podrá suscribir convenios con las organizaciones o instituciones públicas o privadas, con o sin fines de lucro, que puedan asumir la ejecución de proyectos de desarrollo social, debiendo delimitarse las responsabilidades y obligaciones de cada uno de los entes participantes.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41494 del 18 de diciembre de 2018)
