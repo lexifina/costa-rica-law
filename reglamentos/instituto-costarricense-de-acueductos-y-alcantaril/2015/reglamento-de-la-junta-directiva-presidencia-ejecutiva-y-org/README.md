@@ -14,3 +14,4 @@ Reglamento de la Junta Directiva, Presidencia Ejecutiva y Órgano Gerencial de A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-27 | la propia norma |
+| 2 | 2018-12-18 | Reglamento 73 (2018-12-18) |
