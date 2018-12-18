@@ -1,0 +1,1 @@
+Artículo 29.—De la sanción. De darse el deterioro anormal de un activo, la jefatura respectiva se encargará de comunicarlo a la Dirección Administrativa, con la finalidad de realizar la investigación y determinar la posible responsabilidad del funcionario.

@@ -1,0 +1,1 @@
+Artículo 45.—De la baja en libros contables. La DGF realizará el registro contable de las bajas de los activos en desuso o por deterioro. La Proveeduría Institucional tramitará la disposición de los activos dados de baja según las políticas ambientales emitidas para el manejo de los desechos.

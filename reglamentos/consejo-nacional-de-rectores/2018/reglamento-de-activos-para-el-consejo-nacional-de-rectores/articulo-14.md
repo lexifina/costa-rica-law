@@ -1,0 +1,1 @@
+Artículo 14.—De la clasificación de activos. Los activos se clasificarán por familia (equipo de transporte, equipo de cómputo, software, equipo y mobiliario de oficina entre otros) utilizando la codificación del plan de cuentas de la Dirección General de Contabilidad Nacional (DGCN).

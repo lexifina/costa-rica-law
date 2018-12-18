@@ -1,0 +1,2 @@
+Artículo 22.—Del traslado. Los traslados de activos entre dependencias se realizarán a través del formulario pertinente el cual contará con el visto bueno del superior en grado, girando el original al DGF para el respectivo registro y control.
+Cuando un funcionario sea relevado de su cargo por permisos con o sin goce de salario, renuncia, despido, etc., la jefatura asumirá la responsabilidad de los activos bajo su custodia.

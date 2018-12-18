@@ -1,0 +1,2 @@
+Artículo 27.—Del uso. Los activos asignados directamente al funcionario deben ser utilizados únicamente en labores relacionadas con el desempeño de sus funciones y permanecerán en las instalaciones de la Institución, a excepción de aquellos bienes que por su naturaleza se utilicen en trabajos externos, los cuales una vez finalizados deberán ser regresados a la Institución.
+Lo anterior, debe tener la autorización temporal o permanente mediante la boleta o formulario correspondiente.

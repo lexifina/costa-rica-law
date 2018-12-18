@@ -1,0 +1,1 @@
+Artículo 42.—Del reporte de mantenimiento correctivo. Todo custodio de activos deberá reportar al director o encargado de la dependencia a que este pertenece, el daño o mal funcionamiento de los activos bajo su custodia y éste a la vez lo hará, de acuerdo con el procedimiento establecido, ante el Departamento técnico correspondiente.

@@ -1,0 +1,1 @@
+Artículo 49.—Del mantenimiento que generan aumentos. La Proveeduría informará a la Contabilidad sobre el mantenimiento preventivo y correctivo a los activos fuera de garantía que implique una mejora o adición que aumente su vida útil. Le corresponde al Departamento de Gestión Financiera la determinación de la naturaleza y el ajuste contable.

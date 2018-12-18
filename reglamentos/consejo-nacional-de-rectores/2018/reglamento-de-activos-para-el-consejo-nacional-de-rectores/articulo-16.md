@@ -1,0 +1,1 @@
+Artículo 16.—De la recepción de activos. La Proveeduría Institucional recibirá y registrará el ingreso de los bienes asignándoles su número de activo de conformidad con el artículo 9 del Reglamento de marras.

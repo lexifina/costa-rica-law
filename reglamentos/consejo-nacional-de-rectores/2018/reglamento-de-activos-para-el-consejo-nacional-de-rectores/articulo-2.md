@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. El presente Reglamento tiene como objetivo dotar al Consejo Nacional de Rectores, de un instrumento que le permita normar el uso de sus activos en materia administrativa y contable.

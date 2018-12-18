@@ -1,0 +1,1 @@
+Artículo 13.—De la responsabilidad de identificación. La Proveeduría Institucional, será responsable de la adquisición y control de las identificaciones, (placa metálica, código de barras u otros), además suministrará las existencias necesarias, para la identificación de los activos que ingresen a la Institución.

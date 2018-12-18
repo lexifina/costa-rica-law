@@ -1,0 +1,1 @@
+Artículo 25.—Del control del préstamo a terceros ajenos. Le corresponde al Departamento de Proveeduría controlar el préstamo de activos que se efectúe a otras Instituciones, velando por los plazos de expiración, para que una vez vencidos se proceda inmediatamente a trasladarlos a su lugar de procedencia.

@@ -1,0 +1,1 @@
+Artículo 5º—De asignación de custodia. Todo funcionario del Consejo Nacional de Rectores recibirá en buenas condiciones de funcionamiento los activos necesarios para el cumplimiento de sus funciones, asumiendo la responsabilidad de darles el uso adecuado y custodia.

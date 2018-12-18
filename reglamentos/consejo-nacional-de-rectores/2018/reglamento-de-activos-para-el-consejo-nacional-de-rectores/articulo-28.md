@@ -1,0 +1,1 @@
+Artículo 28.—De la responsabilidad del uso y reporte de daño, robo, etc. Todos los funcionarios que tengan asignado un activo asumen plena responsabilidad por su uso, custodia y gestión de mantenimiento, además tienen la obligación de reportar daños, robo o extravío de los bienes asignados.

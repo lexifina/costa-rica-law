@@ -1,0 +1,1 @@
+Artículo 31.—Del hurto. El funcionario que sufra el hurto o robo de uno de sus activos, debe interponer inmediatamente la denuncia formal sobre los hechos ante el Organismo de Investigación Judicial, lo anterior en coordinación con la Administración.

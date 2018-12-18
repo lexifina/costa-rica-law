@@ -1,0 +1,1 @@
+Artículo 11.—Del levantamiento de activos. El DGF, hará de una forma aleatoria, de acuerdo con el procedimiento establecido, la verificación de los levantamientos realizados por los directores o encargados de toda dependencia del CONARE, detallando las acciones realizadas según hallazgos, en el informe correspondiente.

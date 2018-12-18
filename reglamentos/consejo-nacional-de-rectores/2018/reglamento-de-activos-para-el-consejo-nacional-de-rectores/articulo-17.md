@@ -1,0 +1,1 @@
+Artículo 17.—De la responsabilidad por la identificación de activos. Le corresponde a la Proveeduría Institucional, llevar los controles necesarios para que todo bien que sea adquirido por los distintos medios, obtenga salida de bodega hacia cualquier dependencia posterior a su identificación.

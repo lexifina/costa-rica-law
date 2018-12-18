@@ -1,0 +1,1 @@
+Artículo 21.—De la confrontación física de las dependencias. El DGF emitirá reportes que contendrán el detalle de los bienes que se encuentran asignados a cada dependencia, con el objeto de que cotejar el inventario al menos dos veces al año.

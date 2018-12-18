@@ -1,0 +1,1 @@
+Artículo 43.—Del tiempo de respuesta para el mantenimiento correctivo. El Departamento encargado de brindar el mantenimiento o su homólogo en las Sedes, deberá en un plazo no mayor de tres días hábiles, entregar el reporte de la valoración o reparación de los activos reportados, por el director o encargado de la dependencia que así lo hiciese.

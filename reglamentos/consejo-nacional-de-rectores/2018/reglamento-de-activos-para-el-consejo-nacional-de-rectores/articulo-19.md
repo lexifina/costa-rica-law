@@ -1,0 +1,1 @@
+Artículo 19.—De la actualización de datos. Todos los funcionarios que custodien activos del CONARE, tienen la obligación de registrar y actualizar la información de activos a su cargo, sirviendo para su administración y control interno.

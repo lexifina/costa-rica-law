@@ -1,0 +1,1 @@
+Artículo 32.—De las sanciones por responsabilidad. Si se determina responsabilidad por parte del funcionario en los casos antes descritos, se le sancionará según lo estipulado en el Título X de la Ley de la Administración Financiera de la República.
