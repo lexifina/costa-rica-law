@@ -1,0 +1,1 @@
+Artículo 2º—Propósito del reglamento. El propósito de este reglamento es definir las responsabilidades y funciones del Comité, creado por acuerdo de la Junta Directiva General del Banco Nacional de Costa Rica mediante artículo 14º de la Sesión 11.163 celebrada el 13 de agosto del 2002.
