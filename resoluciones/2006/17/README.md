@@ -15,3 +15,4 @@ Obligación del Transportista Aduanero que efectúe operaciones en las Aduanas d
 | --- | --- | --- |
 | 1 | 2006-02-14 | la propia norma |
 | 2 | 2006-03-03 | Resolución 151 (2006-03-03) |
+| 3 | 2018-12-19 | Decreto Ejecutivo 41627 (2018-12-19) |
