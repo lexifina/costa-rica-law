@@ -14,3 +14,4 @@ Régimen transitorio de reparto. requisito pensión por sucesión hijas e hijos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-09-02 | la propia norma |
+| 2 | 2018-12-19 | Acuerdo 0 (2018-12-19) |
