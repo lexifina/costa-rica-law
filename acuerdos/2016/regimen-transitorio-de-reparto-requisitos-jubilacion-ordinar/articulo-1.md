@@ -6,7 +6,8 @@ JUBILACIÓN ORDINARIA
 Información general
 -Carta de solicitud debidamente firmada.
 -Carta de autorización a JUPEMA para solicitar documentos en caso de ser necesario.
--Carta de autorización en caso de que terceros entreguen la documentación (copia de ambas cédulas).
+-Carta de autorización en caso de que terceros entreguen la documentación (copia de ambas cédulas). JUPEMA(*)
+(*) (Así agregada la palabra anterior mediante publicación en La Gaceta N° 20 del 29 de enero del 2019, así como su publicación en el Alcance Digital N° 20 a La Gaceta antes mencionada.)
 -Cuenta cedular (Registro Civil).
 -- Presentación de la cédula de identidad vigente
 (Así reformado el párrafo anterior y publicado en el Alcance Digital N° 12 a La Gaceta N° 12 del 23 de enero de 2018)
@@ -49,7 +50,8 @@ De conformidad con el artículo 10 de código de trabajo se pueden eximir de la 
 En caso de percibir dietas en educación (aplica sólo para beneficiarios al amparo de la ley 2248):
 -Certificación de los montos mensuales, dietas y sobresueldos de los últimos cinco años, así como el número de sesiones.
 Es importante indicar que la certificación con los datos solicitados debe tener en cada una de las páginas que componen la misma, el nombre del interesado y el número de cédula, así como los sellos y firmas autorizadas en cada página.
-En el evento de haberse trasladado al régimen de invalidez vejez y muerte que administra la Caja Costarricense del Seguro Social, deberá aportar (debe aportarse en el caso de haber laborado en el INA):
+En el evento de haberse trasladado al régimen de invalidez vejez y muerte que administra la Caja Costarricense del Seguro Social, deberá aportar (valido para todas las instituciones del sector educativo):
+(Así reformado el párrafo anterior mediante publicación en La Gaceta N° 20 del 29 de enero del 2019, así como su publicación en el Alcance Digital N° 20 a La Gaceta antes mencionada.)
 -Certificación emitida por Presupuesto Nacional del Ministerio de Hacienda, donde indique si se le han liquidado cuotas del Magisterio al régimen de IVM a la Caja Costarricense de Seguro Social.
 -Certificación de cuenta individual emitida por la CCSS, donde se abarque todo el tiempo laborado con la institución con la cual labora y solicitó el traslado (se emite JUPEMA).
 -Presentar copia de la carta del traslado de régimen en el caso de existencia de la misma. (patrono, ministerio de hacienda o departamento Financiero Contable de la Junta (JUPEMA)).
