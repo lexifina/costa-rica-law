@@ -16,3 +16,4 @@ Reglamento para el funcionamiento del fondo de caja chica de la Municipalidad de
 | 1 | 2008-06-09 | la propia norma |
 | 2 | 2013-08-21 | Reglamento municipal 34 (2013-08-21) |
 | 3 | 2018-05-02 | Reglamento municipal 18 (2018-05-02) |
+| 4 | 2018-12-19 | Reglamento municipal 51 (2018-12-19) |
