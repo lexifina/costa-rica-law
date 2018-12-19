@@ -1,0 +1,6 @@
+Artículo 13.—Obligaciones de las entidades autorizadas. Las entidades autorizadas tienen las siguientes obligaciones:
+a) Sugerir a la oficina del Nivel de Atención en Comunidad las condiciones para el cumplimiento de las penas de utilidad pública.
+b) Elaborar un registro que demuestre el control, seguimiento y cumplimiento de la pena por la persona condenada. El registro deberá contener el lugar, hora y fecha, una breve explicación de las funciones desarrolladas por el sentenciado, cualquier observación que estimen pertinentes y la firma de la persona responsable de la entidad beneficiada. Deberán facilitar a la persona sentenciada mensualmente una copia del registro, que deberá ser presentado a la Oficina del Nivel de Atención en Comunidad.
+c) Facilitar a la persona sentenciada el cumplimiento de las condiciones fijadas en las penas de utilidad pública.
+d) Comunicar a la oficina del Nivel de Atención en Comunidad inmediatamente cualquier inobservancia de las condiciones fijadas en el plan de ejecución de la pena de utilidad pública.
+e) Comunicar a la oficina del Nivel de Atención en Comunidad cualquier modificación significativa en las condiciones fijadas en el plan de cumplimiento de la pena de utilidad pública.

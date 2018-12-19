@@ -1,0 +1,1 @@
+Artículo 16.—Comunicación al Juzgado de Ejecución de la Pena. En caso de incumplimiento se informará al Juzgado de Ejecución de la Pena competente para que proceda de conformidad con lo establecido en el artículo 56 bis del Código Penal.

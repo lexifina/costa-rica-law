@@ -1,0 +1,1 @@
+Artículo 3º—Promoción de los servicios de utilidad pública. El Ministerio de Justicia y Paz promoverá en todo el país la articulación de redes institucionales y la sociedad civil para garantizar el control, seguimiento y la disponibilidad de lugares donde se podrán realizar los servicios de utilidad pública.

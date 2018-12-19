@@ -1,0 +1,2 @@
+Artículo 6º—Recomendación judicial de entidad. Si en sentencia, el tribunal de juicio, de oficio o a solicitud de las partes, recomienda, mediante una motivación sucinta, la entidad en la que se cumplirá la pena de servicios de utilidad pública deberá adjuntarse la anuencia de la entidad de recibir al sentenciado.
+Si la entidad no se encontrara dentro del registro, se deberá remitir la información a la Dirección General de Adaptación Social para su inclusión, siempre y cuando cumpla con los requisitos.

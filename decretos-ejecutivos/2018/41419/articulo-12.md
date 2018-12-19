@@ -1,0 +1,7 @@
+Artículo 12.—Obligaciones de la persona sentenciada. La persona sentenciada tiene las siguientes obligaciones:
+a) Presentarse a la Oficina del Nivel de Atención en Comunidad con la documentación requerida.
+b) Cumplir las condiciones fijadas por la oficina del Nivel en Comunidad en el plan de cumplimiento de las penas de utilidad pública, de acuerdo a los fines dispuestos por el tribunal sentenciador.
+c) Aportar cada treinta días naturales a la oficina del Nivel de Atención en Comunidad las bitácoras que demuestren el cumplimiento efectivo de las horas de prestación de servicios de utilidad pública. Dicha información deberá venir acompañada por la firma del encargado de la entidad beneficiaria y el respetivo sello de la institución.
+Si la condena puede ser cumplida antes de los treinta días naturales, el sentenciado aportará la documentación que demuestre la conclusión de la totalidad de las horas una vez que finalice con las mismas. En caso de que no se suministre la información en tiempo, la oficina del Nivel en Comunidad a cargo se comunicará o visitará a la entidad autorizada para la respectiva verificación.
+d) Atender en tiempo y forma los requerimientos de la oficina del Nivel de Atención en Comunidad y de las autoridades jurisdiccionales.
+e) Informar a la oficina del Nivel de Atención en Comunidad sobre cualquier ausencia o incumplimiento temporal, por fuerza mayor, en el plan de ejecución de la pena de utilidad pública.

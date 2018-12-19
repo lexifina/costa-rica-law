@@ -1,0 +1,2 @@
+Artículo 4º—No sujeción laboral. La prestación de servicios de utilidad pública que realice una persona sentenciada a favor de una entidad beneficiaria no representará, en ningún caso, una relación laboral. Se trata de un servicio gratuito que no vincula en obligaciones o derechos entre patrono y trabajador -o viceversa- a quien brinda el servicio, a quien lo reciba, ni a la administración
+penitenciaria.
