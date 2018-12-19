@@ -81,7 +81,8 @@ Cuando la factura no contemple los datos a que hace referencia los literales d.,
 Cuando se presente copia de la factura, el importador deberá sujetarse a lo contemplado por el articulo 318 del Reglamento.
 - Título de propiedad o el documento que de conformidad con la legislación del mercado de procedencia de un vehículo usado, acredite su propiedad.
 - Original de la declaración de valor por cada proveedor o vendedor de la mercancía, debidamente firmada por el importador o su representante legal tratándose de una persona jurídica. No será necesaria la presentación de la declaración de valor para los casos de excepción previstos en la Ley y el Reglamento.
-- Copia del certificado de origen, para el Tratado de Libre Comercio con México, el original del mismo deberá conservarlo el importador y tenerlo a disposición de la autoridad aduanera cuando sea requerido. La certificación del origen en el caso de mercancía centroamericana, constara en el formulario aduanero único centroamericano.
+- Copia del certificado de origen, para el Tratado de Libre Comercio con México, el original del mismo deberá conservarlo el importador y tenerlo a disposición de la autoridad aduanera cuando sea requerido. La certificación del origen en el caso de mercancía centroamericana, constara en el Declaración Única Centroamericana (DUCA)(*).
+(*)(Así modificada su denominación por el artículo 6° del decreto ejecutivo N° 41627 del 19 de diciembre del 2018 “Publica Resolución Nº 409-2018 (COMIECO-LXXXV) de fecha 7 de diciembre de 2018 y su Anexo I: "Formato de la Declaración Única Centroamericana (DUCA)" y su Anexo II: "Instructivo de llenado de Declaración Única Centroamericana (DUCA)"”. Anteriormente indicaba “ Formulario Aduanero Único Centroamericano (FAUCA)”)
 - Copia clara y legible del original de la nota de exoneración o autorización, debidamente confrontada contra el original que permanece bajo custodia de la aduana, para lo cual se requiere que dicha copia esté sellada y firmada por el encargado de la unidad de contabilidad de la aduana, de conformidad con la norma 42 de este manual. El beneficiario de la exoneración o de la autorización, deberá coincidir con el importador indicado en la DAIM.
 - Cuando se trate de un levante con garantía, por estar en tramite una nota de exoneración normal; una fotocopia de la "solicitud de exoneración" con el sello y firma de recibido del encargado de la unidad de contabilidad de la aduana, de conformidad con la norma 42 de este manual.
 Asimismo, esta solicitud deberá contener la firma, sello y fecha de recibido de un funcionario del Departamento de Exenciones,,ya sea destacado en las oficinas centrales, en la Ventanilla Única de Comercio Exterior (VUCE) o en las oficinas del Sistema de Ventanilla Única de Trámites para las Exoneraciones Contempladas en la Ley de Incentivos a la Actividad Turística.
@@ -212,4 +213,4 @@ Peñas Blancas | 15 de enero de 2001
 Limón | 22 de enero de 2001
 Santamaría | 29 de enero de 2001).
 3°—Comuníquese a la División de Estadística. Registro y Divulgación para su correspondiente publicación en el Diario Oficial La Gaceta.
-[imagen]
+[imagen] [imagen]
