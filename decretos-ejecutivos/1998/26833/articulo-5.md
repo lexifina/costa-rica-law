@@ -22,7 +22,8 @@ Partes Contratantes: Los Estados que son parte del Tratado General de Integraci�
 Precio normal de una mercancía: Aquel que en el momento de la aceptación de la póliza se estima pudiera fijarse para las mercancías importadas corro consecuencia de una compraventa efectuada en condiciones de libre competencia entre un comprador y un vendedor independientes el uno del otro.
 Producción: El cultivo, la extracción, la cosecha, la pesca, la caza, la manufactura, el procesamiento o el ensamblado de una mercancía.
 Productor: Una persona, natural o jurídica, que cultiva, extrae, cosecha, pesca, caza, manufactura, procesa o ensambla una mercancía.
-Formulario Aduanero: Formulario Aduanero Único Centroamericano" en el que están contenidas la Declaración y Certificación de origen de las mercancías, de conformidad con el artículo V del Tratado General.
+Formulario Aduanero: Declaración Única Centroamericana (DUCA)(*)" en el que están contenidas la Declaración y Certificación de origen de las mercancías, de conformidad con el artículo V del Tratado General.
+(*)(Así modificada su denominación por el artículo 6° del decreto ejecutivo N° 41627 del 19 de diciembre del 2018 “Publica Resolución Nº 409-2018 (COMIECO-LXXXV) de fecha 7 de diciembre de 2018 y su Anexo I: "Formato de la Declaración Única Centroamericana (DUCA)" y su Anexo II: "Instructivo de llenado de Declaración Única Centroamericana (DUCA)"”. Anteriormente indicaba “ Formulario Aduanero Único Centroamericano (FAUCA)”)
 Protocolo de Guatemala: El Protocolo suscrito el 29 de octubre de 1993, que modifica al Tratado General de Integración Económica Centroamericana.
 SIECA: La Secretaría de Integración Económica Centroamericana.
 Tratado General; El Tratado General de Integración Económica Centroamericana.

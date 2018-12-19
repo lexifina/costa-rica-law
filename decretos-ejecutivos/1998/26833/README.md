@@ -20,3 +20,4 @@ Reglamento Centroamericano sobre el Origen de las Mercancías
 | 5 | 2003-01-06 | Decreto Ejecutivo 30948 (2003-01-06) |
 | 6 | 2005-04-22 | Decreto Ejecutivo 32362 (2005-04-22) |
 | 7 | 2005-10-24 | Decreto Ejecutivo 32795 (2005-10-24) |
+| 8 | 2018-12-19 | Decreto Ejecutivo 41627 (2018-12-19) |
