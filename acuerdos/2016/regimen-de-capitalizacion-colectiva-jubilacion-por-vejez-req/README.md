@@ -15,3 +15,4 @@ Régimen de capitalización colectiva. Jubilación por vejez. Requisitos
 | --- | --- | --- |
 | 1 | 2016-09-02 | la propia norma |
 | 2 | 2018-01-23 | Acuerdo 0 (2018-01-23) |
+| 3 | 2018-12-19 | Acuerdo 0 (2018-12-19) |
