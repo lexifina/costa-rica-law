@@ -1,10 +1,12 @@
 ANEXO
 DOCUMENTOS EXIGIBLES EN LAS OPERACIONES DE COMERCIO Y TRÁNSITO DE MERCANCÍAS ENTRE LOS PAISES CENTROAMERICANOS
 A. Para el comercio intrarregional de mercancías originarias de los países centroamericanos, que gozan de los beneficios del régimen de libre comercio, los documentos exigibles son:
-El Formulario Aduanero Único Centroamericano, cuyo formato vigente es el establecido mediante Resolución Nº 18-96 (COMRIEDRE) del 18 de marzo de 1996. (No debe exigirse para amparar dichas mercancías, ninguna clase de visa, ni certificado o constancia de origen, ni licencia de exportación o importación).
+El Declaración Única Centroamericana (DUCA)(*), cuyo formato vigente es el establecido mediante Resolución Nº 18-96 (COMRIEDRE) del 18 de marzo de 1996. (No debe exigirse para amparar dichas mercancías, ninguna clase de visa, ni certificado o constancia de origen, ni licencia de exportación o importación).
+(*)(Así modificada su denominación por el artículo 6° del decreto ejecutivo N° 41627 del 19 de diciembre del 2018 “Publica Resolución Nº 409-2018 (COMIECO-LXXXV) de fecha 7 de diciembre de 2018 y su Anexo I: "Formato de la Declaración Única Centroamericana (DUCA)" y su Anexo II: "Instructivo de llenado de Declaración Única Centroamericana (DUCA)"”. Anteriormente indicaba “ Formulario Aduanero Único Centroamericano (FAUCA)”)
 (Artículo V y Anexo "B", ambos del Tratado General de Integración Económica Centroamericana).
 A.1. Para el comercio intrarregional de bienes agropecuarios originarios de los países centroamericanos, que gozan de los beneficios del régimen de libre comercio:
-Además del Formulario Aduanero Unico Centroamericano, el país importador podrá exigir certificados fitosanitarios o zoosanitarios extendidos por profesionales oficiales o acreditados por la autoridad competente de cada Estado Parte, siempre que las medidas sanitarias y fitosanitarias que se pretendan adoptar o modificar:
+Además del Decalarción Única Centroamericana (DUCA)(*), el país importador podrá exigir certificados fitosanitarios o zoosanitarios extendidos por profesionales oficiales o acreditados por la autoridad competente de cada Estado Parte, siempre que las medidas sanitarias y fitosanitarias que se pretendan adoptar o modificar:
+(*)(Así modificada su denominación por el artículo 6° del decreto ejecutivo N° 41627 del 19 de diciembre del 2018 “Publica Resolución Nº 409-2018 (COMIECO-LXXXV) de fecha 7 de diciembre de 2018 y su Anexo I: "Formato de la Declaración Única Centroamericana (DUCA)" y su Anexo II: "Instructivo de llenado de Declaración Única Centroamericana (DUCA)"”. Anteriormente indicaba “ Formulario Aduanero Único Centroamericano (FAUCA)”)
 a) Estén basadas en principios científicos y que no se mantengan sin evidencia científica suficiente;
 b) Estén basadas en un análisis de riesgo;
 c) No entrañen un grado de restricción del comercio mayor del requerido para lograr el nivel adecuado de protección a la vida y a la salud humana y animal o preservar los vegetales y no constituyan una restricción encubierta al comercio entre los Estados Parte;
@@ -14,7 +16,8 @@ En cualquier caso, los Estados Parte deberán:
 a) Comunicar con antelación a los demás Estados Parte los requisitos sanitarios y fitosanitarios exigidos por las autoridades competentes, para importar los productos y subproductos de origen animal y vegetal;
 b) Comunicar a los demás Estados Parte los procedimientos de muestreo, diagnósticos, inspección, evaluación, control, aprobación y certificación de animales, vegetales, sus productos y subproductos, así como de la inocuidad de los alimentos;
 (Artículo III del Tratado General de Integración Económica Centroamericana y artículos 4, 6, 7, 9 y 23 del Reglamento Centroamericano sobre Medidas y Procedimientos Sanitarios y Fitosanitarios).
-B. Las mercancías incluidas en el Anexo "A" del Tratado General de Integración Económica Centroamericana, sujetas a licencia de importación, gozarán de libre comercio sólo mediante el otorgamiento de la respectiva licencia, para lo cual será necesario presentar, además del Formulario Aduanero Único Centroamericano, la licencia correspondiente. Las referidas mercancías son:
+B. Las mercancías incluidas en el Anexo "A" del Tratado General de Integración Económica Centroamericana, sujetas a licencia de importación, gozarán de libre comercio sólo mediante el otorgamiento de la respectiva licencia, para lo cual será necesario presentar, además del Declaración Única Centroamericana (DUCA)(*), la licencia correspondiente. Las referidas mercancías son:
+(*)(Así modificada su denominación por el artículo 6° del decreto ejecutivo N° 41627 del 19 de diciembre del 2018 “Publica Resolución Nº 409-2018 (COMIECO-LXXXV) de fecha 7 de diciembre de 2018 y su Anexo I: "Formato de la Declaración Única Centroamericana (DUCA)" y su Anexo II: "Instructivo de llenado de Declaración Única Centroamericana (DUCA)"”. Anteriormente indicaba “ Formulario Aduanero Único Centroamericano (FAUCA)”)
 Régimen común a los cinco países:
 17.01 Azúcar de caña, refinada o sin refinar
 1701.11.90 De caña
@@ -55,7 +58,8 @@ C. Para el tránsito de mercancías procedentes u originarias de los países de 
 a) En la aduana de partida:
 La Declaración de Mercancías para el Tránsito Aduanero Internacional Terrestre (DTI);
 Para la autorización de la DTI deberán presentarse los siguientes documentos:
-i. En caso de comercio regional, el Formulario Aduanero Único Centroamericano;
+i. En caso de comercio regional, el Declaración Única Centroamericana (DUCA)(*);
+(*)(Así modificada su denominación por el artículo 6° del decreto ejecutivo N° 41627 del 19 de diciembre del 2018 “Publica Resolución Nº 409-2018 (COMIECO-LXXXV) de fecha 7 de diciembre de 2018 y su Anexo I: "Formato de la Declaración Única Centroamericana (DUCA)" y su Anexo II: "Instructivo de llenado de Declaración Única Centroamericana (DUCA)"”. Anteriormente indicaba “ Formulario Aduanero Único Centroamericano (FAUCA)”)
 ii. En el caso de las exportaciones, la póliza de exportación, factura comercial y carta de porte;
 iii. En el caso de importaciones de ultramar, copia de conocimiento de embarque y de factura comercial;
 iv. Otros documentos que deban ser adjuntados al despacho de exportación de acuerdo a las leyes nacionales vigentes, y a las normas regionales aplicables.

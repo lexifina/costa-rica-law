@@ -14,3 +14,4 @@ Pone en vigencia la Resolución N° 63 de COMEICO, referente al Formulario Aduan
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-11-23 | la propia norma |
+| 2 | 2018-12-19 | Decreto Ejecutivo 41627 (2018-12-19) |
