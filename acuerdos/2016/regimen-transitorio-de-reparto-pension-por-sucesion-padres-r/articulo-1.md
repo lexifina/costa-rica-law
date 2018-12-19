@@ -5,7 +5,8 @@ PENSIÓN POR SUCESIÓN
 PADRES
 -Carta de solicitud debidamente firmada.
 -Carta de autorización a JUPEMA para solicitar documentos de ser necesario.
--Carta de autorización en caso de que terceros entreguen la documentación (copia de ambas cédulas).
+-Carta de autorización en caso de que terceros entreguen la documentación (copia de ambas cédulas). JUPEMA(*)
+(*) (Así agregada la palabra anterior mediante publicación en La Gaceta N° 20 del 29 de enero del 2019, así como su publicación en el Alcance Digital N° 20 a La Gaceta antes mencionada.)
 -Cuenta cedular del solicitante y del causante (Registro Civil).
 -Certificación de defunción (Registro Civil).
 -Fotocopia vigente de la cédula del solicitante y del causante por ambos lados.
