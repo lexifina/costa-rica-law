@@ -17,7 +17,8 @@ PENSIÓN SOBREVIVENCIA HERMANOS
 -Certificación de estado civil del solicitante y del causante (la presentan las personas mayores de 12 años (Registro Civil).
 -Certificación de cotizaciones del causante (JUPEMA).
 -Estudio socioeconómico (para demostrar la dependencia económica con respecto al causante realizado por la Junta de Pensiones y Jubilaciones del Magisterio Nacional).
--En caso de estar trabajando o recibir otros ingresos, debe presentar las certificaciones o documentos que comprueben los mismos. (SICERE, algún otro que se estime necesario de acuerdo a los datos indicados en el formulario.)
+-En caso de estar trabajando o recibir otros ingresos, debe presentar las certificaciones o documentos que comprueben los mismos. (Certificación de cuenta individual de la CCSS donde se compruebe si aparece reportado en planillas con algún patrono. (JUPEMA)(*))
+(*)(Corregido el párrafo anterior mediante Fe de Erratas y publicada en La Gaceta N° 293 del 15 de diciembre del 2020, página N° 2)
 -Constancias indicando si es pensionado o tramita pensión por algún otro régimen, en el caso de tener pensión por algún otro régimen del causante y solicitante :
 • CCSS (JUPEMA).
 • MTSS (JUPEMA).
@@ -26,16 +27,24 @@ En caso de disfrutar pensión con otro régimen, o se encuentre en proceso de tr
 • Los períodos y patronos considerados para la misma.
 • Constancia detalle de los salarios considerados para el cálculo del monto de pensión.
 En el caso de que la anterior documentación corresponda al Régimen de CCSS se emitirá en JUPEMA.
-Para la valoración médica (únicamente para hermanos mayores de edad inválidos:
--Boleta de valoración médica. (funcionario JUPEMA).
--Carta de notificación de citas médicas. (funcionario JUPEMA).
--Fotocopia de la cédula por ambos lados.
--Protocolos médicos (funcionario JUPEMA), o epicrisis (firmas y sellos de incapacidades y dirección médica).
-- En caso de contar con los dictámenes que den referencia de la enfermedad, aportar fotocopias.
--Copia certificada del expediente médico de la CCSS, para hermanos con invalidez declarada. En caso de no contar con esto deberán someterse a la valoración.
-Para determinar cuándo empezó a laborar por primera vez en el Magisterio en caso de que el causante sea activo o causante pensionado sin documentos de pertenencia (derechos otorgados antes del 2015) es necesario:
+(*)Para la Valoración Médica:
+• Para entregar los respectivos protocolos médicos, es indispensable la presentación de epicrisis o dictámenes médicos, de cada centro de salud donde recibe sus controles, en el cual se especifique diagnóstico y especialidad médica.
+• Protocolos médicos (un año de vigencia) por cada padecimiento del que mantenga control, cada centro médico y especialidad donde lo atienden. Tiene que contar con:
+o Datos de solicitante en protocolo médico.
+o Nombre, firma y código de médico tratante o designado por el director médico.
+o Nombre, sello y firma de dirección médica. (A excepción del HSJD en donde puede venir refrendado por jefatura de consulta externa o especialidad pertinente al diagnóstico).
+(Corregido el requisito anterior mediante Fe de Erratas y publicada en La Gaceta N° 228 del 29 de noviembre de 2019, página N° 56)
+o Fecha de emisión de protocolo (indispensable).
+En caso de tener una declaratoria por invalidez con la CCSS aportar:
+• Copia certificada del expediente completo de la Gerencia de Pensiones CCSS donde tramitó el caso.
+(*) (Así reformado el apartado para la valoración médica anterior mediante publicación en La Gaceta N° 20 del 29 de enero del 2019, así como su publicación en el Alcance Digital N° 20 a La Gaceta antes mencionada.)
+Para determinar cuándo empezó a laborar por primera vez en el Magisterio en caso de que el causante sea activo o sin documentos de pertenencia (derechos otorgados antes del 2015) es necesario:
+(Así reformado el párrafo anterior mediante publicación en La Gaceta N° 20 del 29 de enero del 2019, así como su publicación en el Alcance Digital N° 20 a La Gaceta antes mencionada.)
 -Certificación de cuenta individual de la Caja Costarricense de Seguro Social a nombre del cotizante (se emite en JUPEMA).
 - Certificación de salarios y cotizaciones de Contabilidad Nacional emitida a nombre del cotizante (dirección: de las oficinas centrales de Correos de Costa Rica 25 metros al norte, es la entrada entre el Restaurante MC Donald y la Tienda Gollo, a un costado de las paradas de Tibás).
-- En el evento de haber laborado horas estudiante, horas asistente o beca de algún tipo, presentar la certificación respectiva, con el nombre y número de cédula del causante en todas la hojas, incluyendo el aporte económico mensual (ejemplo beca 11 UCR).
+- En el evento de haber laborado horas estudiante, causante activo horas asistente o beca de algún tipo, presentar la certificación respectiva, con el nombre y número de cédula del causante en todas la hojas, incluyendo el aporte económico mensual (ejemplo beca 11 UCR).
+(Así reformado el párrafo anterior mediante publicación en La Gaceta N° 20 del 29 de enero del 2019, así como su publicación en el Alcance Digital N° 20 a La Gaceta antes mencionada.)
 -En caso de que el solicitante desee reconocimiento de cuotas del Régimen del IVM debe aportar el reporte de cuotas activas (mensuales) de la CCSS que se emite en JUPEMA. (solo aplica para sucesiones de causante activo)
 En el caso de hermanos menores de edad, y mayores de edad con discapacidad, quien ejerza la representación legal es quien debe de presentar el trámite.
+En caso de que cuente con salvaguardia y garante copia certificada del peritaje de Poder Judicial.
+(Así adicionado el párrafo anterior mediante publicación en La Gaceta N° 20 del 29 de enero del 2019, así como su publicación en el Alcance Digital N° 20 a La Gaceta antes mencionada.)
