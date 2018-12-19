@@ -14,3 +14,4 @@ Modifica mensaje "Formato Mensaje Declaración Única Aduanera Versión 3.44, en
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-01-13 | la propia norma |
+| 2 | 2018-12-19 | Decreto Ejecutivo 41627 (2018-12-19) |
