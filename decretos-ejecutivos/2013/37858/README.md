@@ -15,3 +15,4 @@ Publica Resolución N° 66-2013 (MOMRIEDRE) del 15 de mayo del 2013 Modificacion
 | --- | --- | --- |
 | 1 | 2013-09-11 | la propia norma |
 | 2 | 2013-12-09 | Decreto Ejecutivo 38248 (2013-12-09) |
+| 3 | 2018-12-19 | Decreto Ejecutivo 41627 (2018-12-19) |
