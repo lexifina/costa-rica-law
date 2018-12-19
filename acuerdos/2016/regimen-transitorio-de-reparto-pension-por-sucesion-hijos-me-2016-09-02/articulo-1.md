@@ -6,7 +6,8 @@ HIJOS MENORES DE EDAD
 -Carta de solicitud debidamente firmada por el representante legal quien solicita a nombre del menor.
 -Fotocopia de la cedula vigente del representante y del causante por ambos lados.
 -Carta de autorización a JUPEMA para solicitar documentos de ser necesario el caso firmada por el representante.
--Carta de autorización en caso de que terceros entreguen la documentación( copia de ambas cédulas)
+-Carta de autorización en caso de que terceros entreguen la documentación( copia de ambas cédulas) JUPEMA(*)
+(*) (Así agregada la palabra anterior mediante publicación en La Gaceta N° 20 del 29 de enero del 2019, así como su publicación en el Alcance Digital N° 20 a La Gaceta antes mencionada.)
 -Constancia de nacimiento del solicitante, cuenta cedular del causante (Registro Civil).
 -Certificación de defunción (Registro Civil).
 -Certificación de estado civil del solicitante (s), (la presentan las personas mayores de 12 años), (Registro Civil).
