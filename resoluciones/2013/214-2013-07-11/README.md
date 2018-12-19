@@ -14,3 +14,4 @@ Comunica a los agentes adueneros que declaren trato arancelario preferencial par
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-09-06 | la propia norma |
+| 2 | 2018-12-19 | Decreto Ejecutivo 41627 (2018-12-19) |
