@@ -17,3 +17,4 @@ Reglamento para la Operación y Control de Fondos de Caja Chica de la Operadora 
 | 2 | 2013-04-18 | Reglamento 404 (2013-04-18) |
 | 3 | 2014-12-04 | Reglamento 449 (2014-12-04) |
 | 4 | 2016-12-01 | Reglamento 501 (2016-12-01) |
+| 5 | 2018-12-19 | Reglamento 550 (2018-12-19) |
