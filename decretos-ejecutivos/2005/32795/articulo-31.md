@@ -1,2 +1,0 @@
-Artículo 31. Infracciones y sus sanciones
-Las infracciones y sus sanciones a que de origen la aplicación del presente Reglamento se regularán de conformidad con la legislación nacional de cada Parte.

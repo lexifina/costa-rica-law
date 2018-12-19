@@ -1,2 +1,0 @@
-Artículo 23. Omisión o errores en la Certificación de Origen.
-Cuando el exportador omita información o certifique incorrectamente el origen de determinada mercancía, la autoridad aduanera de la Parte importadora no denegará la importación. Sin embargo, la autoridad aduanera concederá un plazo de quince (15) días para la presentación de la declaración de corrección correspondiente en los términos del Artículo 20. De no presentarse dicha declaración en el plazo establecido la Parte importadora exigirá el pago de los derechos arancelarios correspondientes.
