@@ -55,7 +55,8 @@ DTI: Declaración Tránsito Internacional.
 DVA: Declaración del Valor en Aduanas de las Mercancías Importadas.
 ECA: Ente Costarricense de Acreditación.
 ET: Estacionamiento Transitorio.
-FAUCA: Formulario Aduanero Único Centroamericano.
+DUCA: Declaración Única Centroamericana (DUCA)(*)
+(*)(Así modificada su denominación por el artículo 6° del decreto ejecutivo N° 41627 del 19 de diciembre del 2018 “Publica Resolución Nº 409-2018 (COMIECO-LXXXV) de fecha 7 de diciembre de 2018 y su Anexo I: "Formato de la Declaración Única Centroamericana (DUCA)" y su Anexo II: "Instructivo de llenado de Declaración Única Centroamericana (DUCA)"”. Anteriormente indicaba “ Formulario Aduanero Único Centroamericano (FAUCA)”)
 LGA: Ley General de Aduanas.
 PA: Perfeccionamiento Activo.
 PROCOMER: Promotora de Comercio Exterior de Costa Rica.
