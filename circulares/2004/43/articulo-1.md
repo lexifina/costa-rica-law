@@ -14,7 +14,8 @@ Estimados señores:
 Como es de su conocimiento, nuestro país ha venido participando activamente en la definición de las acciones puntuales necesarias tendientes a fomentar el proceso de la Unión Aduanera.
 A efectos de concretar una de las primeras medidas tomadas, se informa que a partir del 1º de agosto próximo, las Direcciones Generales de Aduana de Costa Rica y Nicaragua no requerirán la presentación de la Declaración de Tránsito Internacional (DTI), para las exportaciones de Costa Rica con destino a Nicaragua, cuyo despacho aduanero de importación se realice en la Aduana de Peñas Blancas, Nicaragua.
 Igualmente, no se requerirá dicha declaración tratándose de exportaciones procedentes de Nicaragua, cuyo despacho aduanero de importación se realice en la aduana de Peñas Blancas, Costa Rica.
-En uno u otro caso, siempre y cuando las mercancías se encuentren amparadas a un Formulario Aduanero Único Centroamericano (FAUCA).
+En uno u otro caso, siempre y cuando las mercancías se encuentren amparadas a un Declaración Única Centroamericana (DUCA)(*)
+(*)(Así modificada su denominación por el artículo 6° del decreto ejecutivo N° 41627 del 19 de diciembre del 2018 “Publica Resolución Nº 409-2018 (COMIECO-LXXXV) de fecha 7 de diciembre de 2018 y su Anexo I: "Formato de la Declaración Única Centroamericana (DUCA)" y su Anexo II: "Instructivo de llenado de Declaración Única Centroamericana (DUCA)"”. Anteriormente indicaba “ Formulario Aduanero Único Centroamericano (FAUCA)”)
 Como corolario, las exportaciones amparadas a un FAUCA o a una declaración de exportación de cualquiera de los dos países, con destino a una aduana interior del otro país, o de los demás países del área, deberán ingresar amparadas a su correspondiente Declaración de Tránsito Internacional.
 Loretta Rodríguez Muñoz,
 Directora General
