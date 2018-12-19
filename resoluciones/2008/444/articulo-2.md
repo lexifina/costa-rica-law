@@ -1,1 +1,0 @@
-2. El llenado del FAUCA se deberá realizar a partir de la información estrictamente declarada en el sistema de exportación TICA, salvo lo concerniente a la casilla número 30 del instructivo de llenado, que deberá ser completada con los datos propios del exportador.

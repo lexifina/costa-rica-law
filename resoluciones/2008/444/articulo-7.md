@@ -1,1 +1,0 @@
-7. Comunicar a las Direcciones de Aduanas de los países miembros del Tratado General de Integración Económica Centroamérica la factibilidad de verificar la autenticidad de la información registrada en el FAUCA en la dirección electrónica: www.hacienda.go.cr /Tica/ consultas/ exportación/ FAUCA.
