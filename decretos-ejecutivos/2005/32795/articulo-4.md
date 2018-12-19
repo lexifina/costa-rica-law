@@ -13,7 +13,8 @@ Contenedores y materiales de embalaje para embarque: las mercancías que por su 
 Días: días naturales, calendario o corridos.
 Exportador: una persona establecida en un Estado Parte, desde donde la mercancía es exportada.
 FOB: el valor de la mercancía libre a bordo, independientemente del medio de transporte, en el puerto o lugar de envío definitivo al exterior.
-Formulario Aduanero: el Formulario Aduanero Único Centroamericano en el que están contenidas la Declaración y Certificación de origen de las mercancías, de conformidad con el Artículo V del Tratado General de Integración Económica Centroamericana.
+Formulario Aduanero: el Declaración Única Centroamericana (DUCA)(*) en el que están contenidas la Declaración y Certificación de origen de las mercancías, de conformidad con el Artículo V del Tratado General de Integración Económica Centroamericana.
+(*)(Así modificada su denominación por el artículo 6° del decreto ejecutivo N° 41627 del 19 de diciembre del 2018 “Publica Resolución Nº 409-2018 (COMIECO-LXXXV) de fecha 7 de diciembre de 2018 y su Anexo I: "Formato de la Declaración Única Centroamericana (DUCA)" y su Anexo II: "Instructivo de llenado de Declaración Única Centroamericana (DUCA)"”. Anteriormente indicaba “ Formulario Aduanero Único Centroamericano (FAUCA)”)
 Importación comercial: la importación de una mercancía a un Estado Parte con el propósito de venderla o utilizarla para fines comerciales, industriales o similares.
 Importación definitiva: el ingreso de mercancías procedentes del exterior para su uso o consumo definitivo en el territorio aduanero.
 Importador: una persona establecida en un Estado Parte desde donde la mercancía es importada.
@@ -38,8 +39,8 @@ e) minerales extraídos en territorio de una o más Partes;
 f) mercancías producidas a bordo de naves fábrica a partir de los productos identificados en el literal c), siempre que la naves fábrica estén registradas o matriculadas en una Parte y que lleven la bandera de esa Parte o por naves fábrica arrendadas por empresas legalmente establecidas en territorio de una Parte;
 g) mercancías obtenidas del fondo o del subsuelo marino fuera de las aguas territoriales, por una Parte o una persona de una Parte, siempre que la Parte tenga derechos para explotar ese fondo o subsuelo marino;
 h) desechos y desperdicios derivados de:
-la producción en territorio de una o más Partes; o,
-mercancías usadas, recolectadas en territorio de una o más Partes, siempre que esas mercancías sirvan sólo para la recuperación de materias primas; o,
+i. la producción en territorio de una o más Partes; o,
+ii. mercancías usadas, recolectadas en territorio de una o más Partes, siempre que esas mercancías sirvan sólo para la recuperación de materias primas; o,
 i mercancías producidas en territorio de una o más Partes exclusivamente a partir de las mercancías mencionadas en los literales a) al h) o de sus derivados, en cualquier etapa de producción.
 Parte: los Estados signatarios del Tratado General de Integración Económica Centroamericana.
 Período o año fiscal:
