@@ -14,7 +14,8 @@ Contenedores y materiales de embalaje para embarque: las mercancías que por su 
 Días: días naturales, calendario o corridos.
 Exportador: una persona establecida en una Parte desde donde la mercancía es exportada.
 FOB: el valor de la mercancía libre a bordo, independientemente del medio de transporte, en el puerto o lugar de envío definitivo al exterior.
-Formulario Aduanero: el Formulario Aduanero Único Centroamericano en el que están contenidas la Declaración y Certificación de Origen de las mercancías, de conformidad con el Artículo V del Tratado General de Integración Económica Centroamericana.
+Formulario Aduanero: el Declaración Única Centroamericana (DUCA)(*) en el que están contenidas la Declaración y Certificación de Origen de las mercancías, de conformidad con el Artículo V del Tratado General de Integración Económica Centroamericana.
+(*)(Así modificada su denominación por el artículo 6° del decreto ejecutivo N° 41627 del 19 de diciembre del 2018 “Publica Resolución Nº 409-2018 (COMIECO-LXXXV) de fecha 7 de diciembre de 2018 y su Anexo I: "Formato de la Declaración Única Centroamericana (DUCA)" y su Anexo II: "Instructivo de llenado de Declaración Única Centroamericana (DUCA)"”. Anteriormente indicaba “ Formulario Aduanero Único Centroamericano (FAUCA)”)
 Importación comercial: la importación de una mercancía de una Parte con el propósito de venderla o utilizarla para fines comerciales, industriales o similares.
 Importación definitiva: el ingreso de mercancías procedentes del exterior, para su uso o consumo definitivo en el territorio de una Parte.
 Importador: una persona establecida en una Parte desde donde la mercancía es importada.
