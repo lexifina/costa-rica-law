@@ -6,7 +6,8 @@ EX CÓNYUGE, DIVORCIADO O SEPARADO JUDICIALMENTE
 O DE HECHO
 -Carta de solicitud debidamente firmada.
 -Carta de autorización a JUPEMA para solicitar documentos de ser necesario.
--Carta de autorización en caso de que terceros entreguen la documentación( copia de ambas cédulas)
+-Carta de autorización en caso de que terceros entreguen la documentación( copia de ambas cédulas) JUPEMA(*)
+(*) (Así agregada la palabra anterior mediante publicación en La Gaceta N° 20 del 29 de enero del 2019, así como su publicación en el Alcance Digital N° 20 a La Gaceta antes mencionada.)
 - Cuenta cedular del solicitante y del causante (Registro Civil).
 -Certificación de defunción (Registro Civil).
 -Certificación de estado civil del causante y solicitante (Registro Civil).
@@ -21,5 +22,6 @@ O DE HECHO
 -En caso de que el causante sea pensionado, constancia de salario nominal del mes antes del fallecimiento (JUPEMA).
 Declaración jurada: debe ser autenticada por notario únicamente (no protocolizada)
 1. Indicando que “… desconoce de otras personas con igual o mejor derecho para el disfrute de la pensión…” de existir otras personas, debe de incluirse en la declaración; indicación textual(guía JUPEMA)
-2. Deberá demostrar que disfrutaba de pensión alimenticia, mediante sentencia judicial firme (Certificación Juzgado de Familia), o bien, declaración jurada, en la cual se indique que recibía de hecho ayuda económica del causante, en caso de aportar la declaración jurada se requerirá de estudio socioeconómico.
+2. Deberá demostrar que disfrutaba de pensión alimentaria(*), mediante sentencia judicial firme (Certificación Juzgado de Familia), o bien, declaración jurada, en la cual se indique que recibía de hecho ayuda económica del causante, en caso de aportar la declaración jurada se requerirá de estudio socioeconómico.
+(*) (Así reformada la frase anterior mediante publicación en La Gaceta N° 20 del 29 de enero del 2019, así como su publicación en el Alcance Digital N° 20 a La Gaceta antes mencionada.)
 En las declaraciones juradas es indispensable indicar el nombre y cédula del causante. Asimismo de conformidad con el artículo 10 del código de trabajo se pueden eximir de la presentación de timbres indicándolo expresamente.
