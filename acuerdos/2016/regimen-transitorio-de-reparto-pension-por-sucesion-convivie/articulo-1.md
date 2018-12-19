@@ -5,8 +5,10 @@ PENSIÓN POR SUCESIÓN
 CONVIVIENTE
 -Carta de solicitud debidamente firmada.
 -Carta de autorización a JUPEMA para solicitar documentos de ser necesario.
--Carta de autorización en caso de que terceros entreguen la documentación ( copia de ambas cédulas)
--Cuenta cedular (mayores de edad) constancia de nacimiento (menores de edad) del solicitante y del causante (Registro Civil).
+-Carta de autorización en caso de que terceros entreguen la documentación ( copia de ambas cédulas) JUPEMA(*)
+(*) (Así agregada la palabra anterior mediante publicación en La Gaceta N° 20 del 29 de enero del 2019, así como su publicación en el Alcance Digital N° 20 a La Gaceta antes mencionada)
+-Cuenta cedular del solicitante y del causante (Registro Civil).
+(Corregido el requisito anterior mediante Fe de Erratas y publicada en La Gaceta N° 228 del 29 de noviembre de 2019, página N° 56)
 - Certificación de defunción (Registro Civil).
 -Certificación de estado civil del solicitante (Registro Civil).
 - Certificación de matrimonio del causante (Registro Civil).
@@ -21,4 +23,5 @@ En caso de que el causante sea pensionado, constancia de salario nominal del mes
 Declaración jurada: debe ser autenticada por notario únicamente (no protocolizada)
 1. Indicando que “… desconoce de otras personas con igual o mejor derecho para el disfrute de la pensión…” de existir otras personas, debe de incluirse en la declaración; indicación textual (guía JUPEMA).
 En las declaraciones juradas es indispensable indicar el nombre y cédula del causante. Asimismo de conformidad con el artículo 10 del código de trabajo se pueden eximir de la presentación de timbres indicándolo expresamente.
--Estudio socioeconómico para demostrar la dependencia económica con el causante (realizado por las trabajadoras sociales de la Junta).
+-Estudio socioeconómico para demostrar la convivencia con el causante (realizado por las trabajadoras sociales de la Junta).
+(Corregido el párrafo anterior mediante Fe de Erratas y publicada en La Gaceta N° 293 del 15 de diciembre del 2020, página N° 2)
