@@ -14,3 +14,4 @@ Reglamento a la Ley para la prevención y sanción de la Violencia en eventos De
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-02-21 | la propia norma |
+| 2 | 2018-12-19 | Decreto Ejecutivo 41809 (2018-12-19) |
