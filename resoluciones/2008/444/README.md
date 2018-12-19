@@ -15,3 +15,4 @@ Establece la implementación en las aduanas de los régimenes exportación y ree
 | --- | --- | --- |
 | 1 | 2008-11-03 | la propia norma |
 | 2 | 2013-09-18 | Resolución 295 (2013-09-18) |
+| 3 | 2018-12-19 | Decreto Ejecutivo 41627 (2018-12-19) |
