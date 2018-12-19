@@ -14,3 +14,4 @@ Pone en vigencia Resolución No. 40-99 COMIECO XIII (Consejo de Ministros de Int
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-17 | la propia norma |
+| 2 | 2018-12-19 | Decreto Ejecutivo 41627 (2018-12-19) |
