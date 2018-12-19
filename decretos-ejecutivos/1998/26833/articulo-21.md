@@ -1,1 +1,0 @@
-Artículo 21.—Expedición directa. Cuando una mercancía originaria se exporta de una Parte Contratante a otra Parte Contratante y en su transportación pase por el territorio de otras Partes Contratantes, sin ser transformada, la Certificación de Origen será la expedida por el exportador.

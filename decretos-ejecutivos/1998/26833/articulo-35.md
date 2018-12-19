@@ -1,3 +1,0 @@
-Artículo 35.—Notificación. De ser admitida o rechazada la solicitud, la Dirección de la Parte internadora, en un plazo no mayor de cinco (5) días hábiles posteriores a la emisión de la resolución respectiva, la notificará a los interesados y, cuando corresponda, a la Dirección de la Parte exportadora.
-Una vez notificada la resolución de admisión a la Dirección de la Parte exportadora, ésta dentro de los diez (10) días hábiles posteriores, deberá notificar al exportador y al productor, el inicio del procedimiento para verificar el origen de las mercancías.
-Con la notificación de la Resolución de admisión, se enviará los cuestionarios, formularios y notas de solicitud de información.

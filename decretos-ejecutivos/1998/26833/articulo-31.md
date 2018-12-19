@@ -1,1 +1,0 @@
-Artículo 31.—Formas de Notificación. Para realizar las notificaciones a que se refiere el presente Reglamento, las Direcciones de las Partes Contratantes, podrán utilizar cualquier sistema de comunicación siempre que se garantice el acuse de recibo.

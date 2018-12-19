@@ -1,1 +1,0 @@
-Artículo 54.—Del Anexo. Forma parte integrante de este lamento el Anexo vigente, que contiene las Reglas Específicas para la terminación del Origen de las Mercancías, aprobado por la resolución 2-95 (COMRIEDRE-I) y sus modificaciones.

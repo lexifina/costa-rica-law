@@ -1,3 +1,0 @@
-Artículo 27.—Marcado General de Mercancías. La leyenda a que se refiere, el artículo anterior, deberá figurar en forma clara directamente sobre las mercancías que se comercialicen entre las Partes Contratantes.
-No obstante, si dichas mercancías, ya sea por su tamaño, naturaleza, o por la forma en que se comercialicen no se prestaren a ello, la leyenda en cuestión deberá figurar claramente en las envolturas, cajas, envases, empaques o recipientes que las contengan.
-En las mercancías que se comercialicen a granel o sin empaque, caja o envoltura de ninguna clase, bastará la identificación de país de origen en el Formulario Aduanero que los ampare al ser objeto de internación.

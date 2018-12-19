@@ -1,1 +1,0 @@
-Artículo 20.—Registros contables y otros documentos. El exportador que certifique el origen de las mercancías, debe conservar durante un período mínimo de cinco (5) años, después de la firma del mismo, todos los registros contables y documentos que amparen estrictamente el origen de las mercancías.

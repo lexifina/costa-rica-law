@@ -1,1 +1,0 @@
-Artículo 47.—Recursos de revisión e impugnación. Contra las resoluciones emitidas por las autoridades nacionales competentes, podrán oponerse los recursos que otorga el derecho interno de cada Parte Contratante.

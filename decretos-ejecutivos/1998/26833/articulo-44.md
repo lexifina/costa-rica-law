@@ -1,1 +1,0 @@
-Artículo 44.—Designación de testigos. La Dirección de la Parte exportadora solicitará al exportador o productor la designación de dos testigos que estén presentes durante la visita, siempre que éstos 1'ikm'ngan únicamente con esa calidad. De no haber designación de testigos. esa omisión no tendrá por consecuencia la posposición de la visita, ni la nulidad de lo actuado.

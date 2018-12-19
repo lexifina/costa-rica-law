@@ -1,3 +1,0 @@
-Artículo 14.—Del ensamble total. Serán mercancías originarias, según se establece en este Reglamento, las mercancías que de conformidad con el Sistema Arancelario Centroamericano (SAC), incorporen en su proceso de producción o de elaboración, partes y piezas no originarias y que no cumplan con un cambio de clasificación arancelaria debido a que:
-a) de conformidad con la Regla General de Interpretación 2a del Sistema Arancelario Centroamericano (SAC), la mercancía sin ensamblar se clasifica como mercancía ensamblada, en la misma partida o subpartida; o,
-b) las mercancías y sus partes se clasifican en la misma partida o subpartida.

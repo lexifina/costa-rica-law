@@ -1,2 +1,0 @@
-Artículo 36.—Período de prueba. Notificados los interesados, éstos tendrán hasta veinte (20) días hábiles para la presentación de sus argumentaciones y medios de prueba ante su Dirección. Una vez recibidos estos documentos, la Dirección de la Parte exportadora en un plazo no mayor de cinco (5) días hábiles los remitirá a la Dirección de la Parte internadora.
-Dentro o fuera del período de prueba, la Dirección de la Parte internadora podrá utilizar cualquiera de los medios de verificación estipulados en el Artículo treinta (30).

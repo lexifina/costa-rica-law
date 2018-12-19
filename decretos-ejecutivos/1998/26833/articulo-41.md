@@ -1,2 +1,0 @@
-Artículo 41.—Alcance de la verificación. La Dirección de la Parte internadora podrá solicitar al productor o exportador, que en la visita de verificación se pongan a disposición los registros contables y demás documentos que acrediten el cumplimiento de las reglas de origen.
-También podrá solicitar la inspección de las materias, productos, procesos e instalaciones que se utilicen en la elaboración de la mercancía.

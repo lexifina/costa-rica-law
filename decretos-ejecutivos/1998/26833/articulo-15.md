@@ -1,4 +1,0 @@
-Artículo 15.—Accesorios, repuestos y herramientas. Los accesorios, repuestos y herramientas entregados con la mercancía como parte usual de la misma, no se tomarán en cuenta para determinar si todas las materias o productos no originarios utilizados en la producción de una mercancía, cumplen con el correspondiente cambio de clasificación arancelaria establecido en este Reglamento y su Anexo, siempre que:
-a) los accesorios, repuestos y herramientas no sean facturados por separado de la mercancía, independientemente de que se desglosen o detallen cada uno en la propia factura; y
-b) la cantidad y el valor de estos accesorios, repuestos y herramientas sean los habituales para la mercancía clasificante.
-Los accesorios, repuestos y herramientas que no cumplan con las condiciones anteriores se les aplicará la regla de origen correspondiente a cada una de ellas por separado.

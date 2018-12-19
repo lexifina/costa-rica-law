@@ -1,1 +1,0 @@
-Artículo 40.—Modificación al contenido de la notificación. Cualquier modificación de la información a que se refiere el Artículo treinta y nueve (39) supra, deberá ser notificada por escrito a la Dirección de la Parte exportadora, quien a su vez lo notificará al productor o exportador, por lo menos con diez (10) días hábiles de antelación a la visita.

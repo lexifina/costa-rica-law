@@ -1,1 +1,0 @@
-Artículo 51.—Interpretación y casos no previstos. La interpretación de este Reglamento, así como la solución de los casos no vistos en el mismo, estarán a cargo del Consejo, pudiendo aplicar supletoriamente las disposiciones que sobre la materia norman el comercio internacional, en armonía con los principios y objetivos de la Integración económica Centroamericana.

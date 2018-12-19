@@ -1,2 +1,0 @@
-Artículo 33.—Solicitud de verificación. Cuando exista duda sobre el origen de una mercancía procedente del territorio de una de las Partes Contratantes, cualquier persona natural o jurídica, que demuestre tener interés jurídico al respecto, podrá presentar la solicitud de verificación correspondiente ante la Dirección de su país, aportando los documentos, peritajes y demás elementos de juicio, que fundamenten la solicitud.
-Esta verificación, también podrá iniciarse de oficio, cuando se tengan los elementos de juicio necesarios.

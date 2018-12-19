@@ -1,1 +1,0 @@
-Artículo 3°—Principio básico para la determinación de origen cuando se incorporen materias o productos no centroamericanos. Las Reglas de Origen de este Reglamento se basan en el principio general de cambio de clasificación arancelaria, que se complementará, cuando se hace necesario, con otros requisitos según se especifique en este Reglamento su Anexo.

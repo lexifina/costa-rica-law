@@ -1,1 +1,0 @@
-Artículo 16.—Envases y productos de empaque para venta al por, menor. Los envases y productos de empaque presentados conjuntamente con la mercancía para la venta al por menor y clasificados por la mercancía que contengan, no se tomarán en cuenta para establecer el origen de la mercancía objeto de comercio.

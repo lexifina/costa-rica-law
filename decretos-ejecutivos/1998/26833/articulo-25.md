@@ -1,2 +1,0 @@
-Artículo 25.—Declaraciones falsas o infundadas. Cuando el exportador ha certificado de manera falsa o infundada que la mercancía califica como originaria, la Dirección de la Parte internadora declarará como no originaria dicha mercancía hasta que el exportador pruebe que cumple con lo establecido en este Reglamento.
-Cada una de las Partes Contratantes se compromete a imponer las sanciones penales, civiles o administrativas correspondientes conforme su legislación nacional.
