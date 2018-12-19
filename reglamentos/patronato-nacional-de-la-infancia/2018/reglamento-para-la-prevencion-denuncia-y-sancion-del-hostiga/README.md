@@ -14,3 +14,4 @@ Reglamento para la prevención, denuncia, y sanción del Hostigamiento Laboral e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-05-03 | la propia norma |
+| 2 | 2018-12-19 | Reglamento 41 (2018-12-19) |

@@ -1,12 +1,2 @@
-Artículo 5°—De la integración de la Comisión. La Comisión será preferiblemente interdisciplinaria y estará integrada por 5 miembros titulares designados por la Presidencia Ejecutiva, de la siguiente manera:
-a) Un representante del Departamento de Recursos Humanos, quien presidirá la Comisión.
-b) Un representante de la Gerencia Técnica.
-c) Un representante de la Asesoría Jurídica, quien ejercerá la secretaría de la comisión.
-d) Un representante del Departamento de Recursos Humanos, quien presidirá la Comisión.
-e) Dos representantes de las organizaciones sindicales vinculadas al PANI, quienes serán designados por esas organizaciones.
-Cada miembro titular deberá contar con su respectivo suplente, quien lo suplirá en caso de ausencias.
-Los nombramientos de todos los miembros de la Comisión serán por el plazo de 2 arios, pudiendo ser prorrogables por un plazo idéntico. Todos los miembros de la Comisión actuarán con total imparcialidad en el conocimiento de los asuntos sometidos a su conocimiento.
-La Administración deberá brindar la capacitación y el apoyo necesario a los miembros titulares y suplentes de la Comisión, a fin de que ejecuten las labores encomendadas.
-El presidente y el secretario, tienen las mismas facultades establecidas para los presidentes y secretarios de los órganos colegiados según la Ley General de la Administración Pública. En el caso del presidente, éste contará con voto de calidad.
-La Comisión sesionará ordinariamente una vez al mes. Sin embargo, podrá sesionar extraordinariamente cuando así lo requiera.
-A la Comisión le serán aplicables las normas dispuestas por la Ley General de la Administración Pública para los órganos colegiados.
+Artículo 5°—De la integración del órgano Director Colegiado. El órgano director colegiado encargado de instruir la denuncia será conformado preferiblemente por un equipo interdisciplinario de tres personas funcionarias, garantizando en todo momento paridad y alternancia en la conformación de dicho órgano, lo anterior por la especialidad de la materia.
+(La reforma practicada a este artículo en sesión N° 041 del 19 de diciembre de 2018, posteriormente fue derogada por el artículo por el artículo 36 del Reglamento para la prevención, denuncia y sanción del hostigamiento laboral en el Patronato Nacional de la Infancia", aprobado mediante sesión N° 2021-037 del 12 de octubre del 2021. Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma).
