@@ -15,3 +15,4 @@ Publica Resolución N° 18-96 (COMRIEDRE) Nuevo Formato del Formulario Aduanero 
 | --- | --- | --- |
 | 1 | 1996-08-01 | la propia norma |
 | 2 | 2013-08-23 | Decreto Ejecutivo 37933 (2013-08-23) |
+| 3 | 2018-12-19 | Decreto Ejecutivo 41627 (2018-12-19) |

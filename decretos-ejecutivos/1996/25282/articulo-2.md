@@ -3,8 +3,8 @@ Dado en la Presidencia de la República, a los once días del mes de junio de mi
 [imagen]
 [imagen]
 INSTRUCCIONES PARA EL LLENADO
-DEL FORMULARIO ADUANERO
-ÚNICO CENTROAMERICANO
+DEL DECLARACIÓN ÚNICA CENTROAMERICANA (DUCA)(*)
+(*)(Así modificada su denominación por el artículo 6° del decreto ejecutivo N° 41627 del 19 de diciembre del 2018 “Publica Resolución Nº 409-2018 (COMIECO-LXXXV) de fecha 7 de diciembre de 2018 y su Anexo I: "Formato de la Declaración Única Centroamericana (DUCA)" y su Anexo II: "Instructivo de llenado de Declaración Única Centroamericana (DUCA)"”. Anteriormente indicaba “ Formulario Aduanero Único Centroamericano (FAUCA)”)
 Este formulario es el único documento exigible para amparar las mercancías objeto de libre comercio en Centroamérica, por lo tanto hace las veces de certificado de Origen y de factura comercial y tendrá las características de "SOLICITUD" en tanto no se concedan las autorizaciones respectivas. La información consignada en este formulario deberá llenarse a máquina, sin ALTERACIONES, BORRONES O ENMIENDAS.
 1. EXPORTADOR: Nombre completo, denominación o razón social, domicilio, (incluyendo ciudad y país), el número de teléfono, fax y el número de patente del exportador.
 2. IDENTIFICACIÓN TRIBUTARIA EXPORTADOR: Consignar el número de identificación tributaria asignado al exportador en su respectivo.
