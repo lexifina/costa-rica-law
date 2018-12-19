@@ -5,7 +5,8 @@ PENSIÓN POR INVALIDEZ
 Información general
 -Carta de solicitud debidamente firmada.
 -Carta de autorización a JUPEMA para solicitar documentos en caso de ser necesario.
--Carta de autorización en caso de que terceros entreguen la documentación (copia de ambas cédulas).
+-Carta de autorización en caso de que terceros entreguen la documentación (copia de ambas cédulas). JUPEMA(*)
+(*) (Así agregada la palabra anterior mediante publicación en La Gaceta N° 20 del 29 de enero del 2019, así como su publicación en el Alcance Digital N° 20 a La Gaceta antes mencionada.)
 -Cuenta cedular (Registro Civil).
 - Presentación de la cédula de identidad vigente
 (Así reformado el párrafo anterior y publicado en el Alcance Digital N° 12 a La Gaceta N° 12 del 23 de enero de 2018)
@@ -53,13 +54,22 @@ En el evento de haberse trasladado al régimen de invalidez vejez y muerte que a
 -Certificación de cuenta individual emitida por la CCSS donde se abarquetodo el tiempo laborado con la institución con la cual labora y solicitó eltraslado (se emite en JUPEMA).
 -Presentar copia de la carta del traslado de régimen en el caso de existenciade la misma. (patrono, Ministerio de Hacienda o Departamento FinancieroContable de la Junta (JUPEMA).
 -Carta de reingreso( copia de la carta)
-Para la valoración médica:
--Boleta de valoración médica. (funcionario JUPEMA)
--Carta de notificación de citas médicas (funcionario JUPEMA).
--Fotocopia vigente de la cédula por ambos lados.
--Protocolos médicos (funcionario JUPEMA) y/o epicrisis (firmas y sellos deincapacidades y dirección médica).
--En caso de contar con los dictámenes que den referencia de laenfermedad, aportar fotocopias.
+(*)Para la valoración médica:
+• Para entregar los respectivos protocolos médicos, es indispensable la presentación de epicrisis o dictámenes médicos, de cada centro de salud donde recibe sus controles, en el cual se especifique diagnóstico y especialidad médica.
+• Protocolos médicos (un año de vigencia) por cada padecimiento del que mantenga control, cada centro médico y especialidad donde lo atienden. Tiene que contar con:
+o Datos de solicitante en protocolo médico.
+o Nombre, firma y código de médico tratante o designado por el director médico.
+o Nombre, sello y firma de dirección médica. (A excepción del HSJD en donde puede venir refrendado por jefatura de consulta externa o especialidad pertinente al diagnóstico).
+(Corregido el requisito anterior mediante Fe de erratas y publicada en La gaceta N° 228 del 29 de noviembre de 2019, página N° 56)
+o Fecha de emisión de protocolo (indispensable).
+En caso de tener una declaratoria por invalidez con la CCSS aportar:
+• Copia certificada del expediente completo de la Gerencia de Pensiones CCSS donde tramitó el caso.
+(*) (Así reformado el apartado para la valoración médica anterior mediante publicación en La Gaceta N° 20 del 29 de enero del 2019, así como su publicación en el Alcance Digital N° 20 a La Gaceta antes mencionada.)
 En caso de tener una pensión por invalidez con la CCSS aportar:
 -Copia certificada del expediente médico de la CCSS.
 En caso de que el solicitante se encuentre incapacitado debe aportar el reporte que emite la CCSS o INS con el desglose de sus incapacidades. (Sólo para funcionarios activos del MEP).
 (Así adicionado el párrafo anterior y publicado en el Alcance Digital N° 12 a La Gaceta N° 12 del 23 de enero de 2018)
+Cuando este acto lo realice un apoderado o salvaguarda deberá presentar el documento idóneo que lo faculte para la ejecución de este acto.
+(Así adicionado el párrafo anterior mediante publicación en La Gaceta N° 20 del 29 de enero del 2019, así como su publicación en el Alcance Digital N° 20 a La Gaceta antes mencionada.)
+En caso de que cuente con salvaguardia y garante copia certificada del peritaje de Poder Judicial.
+(Así adicionado el párrafo anterior mediante publicación en La Gaceta N° 20 del 29 de enero del 2019, así como su publicación en el Alcance Digital N° 20 a La Gaceta antes mencionada.)
