@@ -14,3 +14,4 @@ Numeración electrónica del FAUCA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-20 | la propia norma |
+| 2 | 2018-12-19 | Decreto Ejecutivo 41627 (2018-12-19) |
