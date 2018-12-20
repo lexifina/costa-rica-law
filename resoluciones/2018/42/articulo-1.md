@@ -1,4 +1,5 @@
 DIRECCIÓN GENERAL DE HACIENDA
+(Nota de Sinalevi: Mediante resolución RES-DGH-091-2018 del 20 de diciembre del 2018, se acordó prorrogar esta norma, a fin de que tenga un vencimiento hasta el 31 de marzo del 2019, manteniendo en todos sus extremos las demás disposiciones establecidas en dicha resolución incluyendo lo referente a la presentación de los informes.)
 RES-DGH-042-2018. —Dirección General de Hacienda a las diez horas con diez minutos del once de junio del dos mil dieciocho.
 Procede la Dirección General de Hacienda a dictar resolución genérica para la adquisición de bienes exentos con el fin de financiar el Proyecto de Mercado Regional Mayorista de la Región Chorotega”, mediante el Programa Integral de Mercadeo Agropecuario (PIMA)
 Considerando:

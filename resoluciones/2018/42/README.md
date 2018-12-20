@@ -14,3 +14,4 @@ Concede autorización genérica por siete (7) meses a favor del Proyecto de Merc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-06-22 | la propia norma |
+| 2 | 2018-12-20 | Resolución 91 (2018-12-20) |
