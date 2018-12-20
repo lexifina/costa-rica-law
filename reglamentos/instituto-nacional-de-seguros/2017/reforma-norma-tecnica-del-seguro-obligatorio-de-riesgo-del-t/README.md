@@ -14,3 +14,4 @@ Reforma Norma Técnica del Seguro Obligatorio de Riesgo del Trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-11-30 | la propia norma |
+| 2 | 2018-12-20 | Reglamento 0 (2018-12-20) |

@@ -1,4 +1,5 @@
 INSTITUTO NACIONAL DE SEGUROS
+(Nota de Sinalevi: El Instituto Nacional de Seguros, mediante publicación en La Gaceta N° 237 del 20 de diciembre del 2018, acordó la Norma Técnica del Seguro Obligatorio de Riesgos del Trabajo publicada en La Gaceta en el Alcance N° 289 del 30 de noviembre del 2017, es de aplicación para el año 2018 y hasta tanto se realice una nueva publicación.)
 Modificación de la Norma Técnica del Seguro Obligatorio de Riesgos del Trabajo
 A solicitud del Instituto Nacional de Seguros, la Superintendencia General de Seguros autorizó el cambio en la metodología de cálculo utilizada para el establecimiento de las tarifas de renovación en el Seguro Obligatorio de Riesgos del Trabajo, de conformidad con lo indicado en el oficio SGS-R-2051-2017.
 Dado lo anterior y en apego a lo establecido en el artículo 208 del Título IV del Código de Trabajo, se procede con los ajustes respectivos en los artículos 20, 21 y 22 de la Norma Técnica del Seguro Obligatorio de Riesgos del Trabajo 2016, quedando incólume el resto del contenido de la Norma Técnica publicada en el Diario Oficial La Gaceta en el Alcance N° 95 del 10 de junio del 2016, la cual será de aplicación para el año 2017.
@@ -10,7 +11,6 @@ No obstante, en aplicación de lo que dispone el artículo 8 de esta Norma Técn
 1. La rehabilitación se realice dentro del último período de vigencia de la póliza.
 2. La póliza muestre un comportamiento de pagos oportunos en los dos (2) últimos períodos de vigencia, anteriores a la omisión que generó la rehabilitación.
 Para determinar la tarifa de rehabilitación (TREH) se aplica la siguiente formula:
-[imagen]
 Dónde:
 tmi = Tarifa mínima para la póliza.
 tma = Tarifa máxima para la póliza.
@@ -33,7 +33,6 @@ Dicha tarifa no podrá ser mayor a la tarifa máxima establecida para el Seguro 
 No obstante, en aplicación de lo que dispone el Artículo 8. Resoluciones motivadas, si la tarifa vigente de la póliza es inferior a la tarifa mínima señalada debido a su buena experiencia siniestral, la tarifa de renovación podrá ser inferior a dicha tarifa mínima, pero en ningún caso podrá ser inferior a la tarifa vigente de la póliza. En caso de presentarse esta última situación, se aplicará la tarifa vigente de la póliza.
 1. Pólizas Sector Privado
 Para determinar la tarifa de renovación (TREN) se aplican las siguientes formulas:
-[imagen]
 Dónde:
 tex = Tarifa de experiencia.
 tmi = Tarifa mínima para la póliza.
@@ -45,7 +44,6 @@ rf = Recargo por fraccionamiento de la prima (ver art 24)
 rt = Recargo o descuento según las características del seguro (ver art 11)
 2. Pólizas Sector Público
 Para determinar la tarifa de renovación (TREN) se aplican las siguientes formulas:
-[imagen]
 Dónde:
 tex = Tarifa de experiencia.
 tmi = Tarifa mínima para la póliza.
@@ -66,7 +64,6 @@ Están excluidos de este costo, aquellos reclamos donde el trabajador falleció 
 - Tarifa Promedio: Corresponde al resultado de dividir el Total de Prima Neta entre el Total de Monto Asegurado multiplicado por cien (100).
 b. Puntos acumulados por experiencia
 - Coeficiente de variación: Se calcula utilizando la siguiente fórmula:
-[imagen]
 - Porcentaje a aplicar por siniestralidad: Se determina con base en el coeficiente de variación
 obtenido en el punto anterior, ubicando el valor correspondiente en la siguiente tabla:
 Tabla No. 1
@@ -86,7 +83,6 @@ resultado final debe multiplicarse por uno negativo (-1).
 a. Tarifa de riesgo
 Se realiza estudio del costo y monto asegurado de cada póliza en los últimos cinco (5) años o
 menos, si no tuviera esos años, mediante la siguiente fórmula:
-[imagen]
 Dónde:
 TRi = Tarifa de riesgo
 CAM = Costo anual medio de los años considerados
@@ -94,7 +90,6 @@ MAAM = Monto asegurado anual medio de los años considerados
 Si la Institución paga directamente el subsidio por Incapacidad Temporal, el monto segurado anual que se debe utilizar es el "monto asegurado descontado" (es decir monto asegurado multiplicado por 0.76) y por consiguiente, se le ha otorgado un descuento equivalente al 24% de las primas.
 b. Coeficiente de variación
 Se compara la tarifa de riesgo con la tarifa que tiene vigente y se calcula el coeficiente de variación, mediante la siguiente fórmula:
-[imagen]
 Dónde:
 CV = Coeficiente de variación
 TRi = Tarifa de riesgo
