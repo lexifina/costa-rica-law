@@ -1,0 +1,2 @@
+ARTÍCULO 2- Donación
+Se autoriza a la Municipalidad de Turrialba para que done el lote segregado a la Asociación Administradora del Acueducto y Alcantarillado de El Mora, cédula jurídica número tres-cero cero dos-dos nueve seis seis cinco (N.º 3-002-29665), para que sea destinado a planta de tratamiento de aguas residuales. La donación del lote, descrito en el artículo 1 de esta ley, no modifica el uso de la plaza pública de deportes de El Mora.
