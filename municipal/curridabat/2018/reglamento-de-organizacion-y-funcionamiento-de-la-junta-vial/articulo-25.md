@@ -1,0 +1,4 @@
+Artículo 25.—Se requerirá de votación calificada para los siguientes acuerdos:
+25.1.1. Por mayoría calificada (al menos dos terceras partes) de los integrantes de la Junta Vial para acordar sesionar extraordinariamente, sin necesidad de convocatoria previa ni orden del día;
+25.1.2. Por unanimidad de los miembros presentes en una sesión ordinaria, para acordar la participación de público o personas en específico, definiendo de previo si los asistentes contarán con derecho o no de intervenir en las deliberaciones; 25.1.3. Por unanimidad, cuando concurran a la sesión ordinaria al menos dos tercios (mayoría calificada o 4 integrantes) de los miembros de la Junta Vial, para acordar asuntos urgentes no incluidos en el orden del día y;
+25.1.4. Con el voto de al menos, dos tercios (mayoría calificada o 4 integrantes) de los miembros de la Junta Vial para declarar la firmeza de los acuerdos adoptados en la misma sesión que se está celebrando.
