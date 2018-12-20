@@ -1,4 +1,5 @@
 DIRECCIÓN GENERAL DE HACIENDA
+(Nota de Sinalevi: Mediante resolución RES-DGH-091-2018 del 20 de diciembre del 2018, se acordó prorrogar esta norma, a fin de que tenga un vencimiento hasta el 31 de marzo del 2019, manteniendo en todos sus extremos las demás disposiciones establecidas en dicha resolución incluyendo lo referente a la presentación de los informes.)
 RES-DGH-077-2018. Dirección General de Hacienda a las catorce horas y cincuenta minutos del treinta y uno de octubre del dos mil dieciocho.
 Considerando:
 I. — Que el artículo 5 de la Ley Nº 3022 de fecha 27 de agosto de 1962, denominada “Crea Dirección General de Hacienda en el Ministerio de Hacienda”, establece que el Ministro de Hacienda, el Director General de Hacienda u otro funcionario de esa Dirección, escogido por aquéllos, son los funcionarios facultados para autorizar, bajo su responsabilidad, las exenciones de impuestos debiendo en cada caso señalar la ley en que se ampare dicha petición.
