@@ -1,1 +1,0 @@
-Artículo 57.—Quienes ingresen a la capilla y a sus alrededores están obligados a mantener el respeto y buen comportamiento. Queda prohibido el uso de bebidas alcohólicas y otras sustancias tóxicas, así como fumar dentro de la capilla, en caso de lo contrario se tomará las medidas correspondientes.

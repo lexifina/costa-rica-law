@@ -1,1 +1,0 @@
-Artículo 31.—Se prohíbe colocar sobre las bóvedas, fosas o nichos, jarrones, macetas, floreros u otros recipientes, para la colocación de flores, si éstos no disponen de agujeros adecuados para el apropiado drenaje del agua que pudiere entrar en ellos, para su colocación se requiere un permiso previo de la administración.

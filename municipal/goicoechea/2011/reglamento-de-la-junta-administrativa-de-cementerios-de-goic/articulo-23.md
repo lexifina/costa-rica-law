@@ -1,1 +1,0 @@
-Artículo 23.—Ninguna tumba, mausoleo, o derecho de arrendamiento, pueden ser cedidos o vendidos con pacto de retroventa, no son susceptibles de embargo, ni pueden ser dados en garantía, ni gravados en forma alguna.
