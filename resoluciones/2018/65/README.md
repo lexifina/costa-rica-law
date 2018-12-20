@@ -14,3 +14,4 @@ Concede autorización genérica a favor del proyecto de mercado regional mayoris
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-10-26 | la propia norma |
+| 2 | 2018-12-20 | Resolución 91 (2018-12-20) |
