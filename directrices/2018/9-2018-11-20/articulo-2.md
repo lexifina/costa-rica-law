@@ -1,0 +1,1 @@
+Artículo 2º—Planes Anuales Operativos. A partir de la publicación de la presente Directriz Ministerial las instituciones del Sector Agropecuario deberán incluir en sus planea Anuales Operativos acciones, objetivos y fondos presupuestarios, que coadyuven al PIMA a la puesta en marcha y funcionamiento del Mercado regional Chorotega.
