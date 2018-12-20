@@ -1,0 +1,10 @@
+N° 9586
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+DESAFECTACIÓN DE UN TERRENO PROPIEDAD DE LA MUNICIPALIDAD
+DE TURRIALBA Y AUTORIZACIÓN PARA QUE LO SEGREGUE Y
+DONE A LA ASOCIACIÓN ADMINISTRADORA DEL ACUEDUCTO Y
+ALCANTARILLADO DE EL MORA, PARA QUE SEA DESTINADO
+A PLANTA DE TRATAMIENTO DE AGUAS RESIDUALES
+ARTÍCULO 1- Segregación
+Se autoriza a la Municipalidad de Turrialba, cédula jurídica número tres-cero uno cuatro-cuatro dos cero ocho ocho (N.º 3-014-42088), para que segregue un lote de su propiedad, inscrita en el Registro Público bajo el sistema de folio real partido de Cartago, matrícula número uno uno uno cuatro cero cuatro-cero cero cero (N.º 111404-000), situado en el distrito primero Turrialba, cantón quinto Turrialba, provincia de Cartago, que tiene los siguientes linderos: al norte con el Instituto Nacional de Vivienda y Urbanismo (INVU); al sur con el rio Aquiares; al este con Sergio Castro Jiménez, y al oeste con la calle Yacuré; mide once mil veintisiete con noventa y seis decímetros cuadrados (11.027,96 m2), de conformidad con el plano catastrado número C-cinco tres siete nueve cinco ocho uno nueve ocho cuatro (N.º C-537958-1984). Dicha propiedad soporta los siguientes gravámenes: a) servidumbre traslada citas 349-08685-01-09002-001, b) servidumbre de acueducto citas 572-25180-01-0001-001 y c) servidumbre de paso cita 572-572-25180-01-001-001. El lote a segregar se describe así: terreno destinado a la plaza de deportes, situado en el distrito primero Turrialba, cantón quinto de Turrialba, provincia de Cartago, cuyos linderos actuales son los siguientes: al norte con la plaza de deportes; al oeste con el río Aquiares, y al este con servidumbre de paso y tuberías. El terreno mide cuatro mil setecientos veintiún metros cuadrados (4.721 m2), registrado en el plano número C-un millón doscientos cuarenta y nueve mil veinticinco-dos mil siete (N.º C-1249025-2007), propiedad que se encuentra libre de anotaciones y gravámenes hipotecarios. Asimismo, este terreno se desafecta de su uso público actual.
