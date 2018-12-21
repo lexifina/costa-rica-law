@@ -15,3 +15,4 @@ Declaratoria oficial del día 17 de mayo de cada año “Día nacional contra la
 | --- | --- | --- |
 | 1 | 2008-03-25 | la propia norma |
 | 2 | 2012-03-09 | Decreto Ejecutivo 37071 (2012-03-09) |
+| 3 | 2018-12-21 | Decreto Ejecutivo 41313 (2018-12-21) |

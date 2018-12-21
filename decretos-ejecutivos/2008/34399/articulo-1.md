@@ -8,7 +8,7 @@ II.—Que el 17 de mayo de 1990, la Organización Mundial de la Salud (OMS), eli
 III.—Que el Centro de Investigación y Promoción para América Central de Derechos Humanos (CIPAC), solicitó a este Despacho la declaratoria del día 17 de mayo como día nacional contra la Homofobia.
 IV.—Que en virtud de lo anteriormente expuesto, se ha considerando conveniente y oportuno acceder a dicha solicitud. Por tanto,
 Decretan:
-Declaratoria Oficial del Día Nacional
-contra la Homofobia
-Artículo 1º- Se declara el día 17 de mayo de cada año como el “Día Nacional contra la homofobia, la lesbofobia y la transfobia".
-(Así reformado por el artículo 1° del decreto ejecutivo N° 37071 del 9 de marzo del 2012)
+Declaratoria oficial del día 17 de mayo de cada año “Día nacional contra la homofobia, la lesbofobia, la bifobia y la transfobia. (*)
+(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 41313 del 21 de diciembre del 2018). Anteriormente se indicaba: "Declaratoria Oficial del Día Nacional contra la Homofobia".)
+Artículo 1º- Se declara el día 17 de mayo de cada año como el “Día Nacional contra la homofobia, la lesbofobia, la bifobia y la transfobia.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 41313 del 21 de diciembre del 2018)
