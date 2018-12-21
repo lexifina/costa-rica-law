@@ -1,0 +1,5 @@
+COMISIÓN NACIONAL DE PRÉSTAMOS PARA LA EDUCACIÓN
+El Consejo Directivo en sesión 40-2018 celebrada el 14 de noviembre de 2018, aprobó la modificación al artículo Nº 18 del Reglamento de Tesorería, como sigue:
+Artículo Nº 18. Las firmas autorizadas para aprobar transferencias corresponden a la Jefatura de la Sección de Tesorería, las Jefaturas de Departamento o quién las sustituya formalmente. Las firmas autorizadas para girar cheques corresponden a la Jefatura de Tesorería y a las Jefaturas de Departamento. En todos los cheques firmaran dos de estos funcionarios sin límite de suma, cuando se trate de pagos del giro normal de la institución.
+Las inversiones serán firmadas de forma mancomunada por la Jefatura de la Sección de Tesorería y la Jefatura del Departamento Financiero; en caso de ausencia de cualquiera de las firmas titulares, podrá firmar el Secretario Ejecutivo o quien sustituya formalmente a cualquiera de las firmas autorizadas.
+Rige a partir de la publicación en La Gaceta.
