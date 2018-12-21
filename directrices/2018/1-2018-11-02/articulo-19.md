@@ -1,0 +1,7 @@
+Artículo 19.—Sobre la cancelación del servicio de transporte de menaje de casa de las personas funcionarias del Servicio Exterior. La agencia de mudanzas adjudicada presentará ante la Proveeduría Institucional, los siguientes documentos:
+a) Original de la factura comercial, debidamente sellada y timbrada.
+b) Original del documento de Transporte Internacional, que puede ser Bill of Landing para transporte marítimo, Air Way Bill para transporte aéreo, o Carta al Porte para transporte terrestre. En los tres casos, debidamente firmada y sellada por la compañía transportista internacional.
+c) Lista de Empaque con la firma de la persona funcionaria haciendo entrega a satisfacción de su menaje de casa.
+La Proveeduría Institucional verificará, en el mismo momento de la recepción, que la factura original cumpla con los requisitos legales establecidos, que el peso de la carga consignado en el documento de transporte internacional no supere el peso máximo autorizado a la persona funcionaria y se ajuste a los requerimientos de la contratación administrativa.
+De encontrarse todo correctamente presentado, la Proveeduría Institucional pasará los documentos mencionados a la Dirección General de Servicio Exterior para que el Jefe de Programa firme la factura comercial, en un plazo no mayor a 24 horas después de la recepción de los documentos.
+La Proveeduría Institucional trasladará a la Dirección Financiera los documentos de liquidación anteriormente mencionados en un plazo de 24 horas, con el fin de que se inicie el pago respectivo.

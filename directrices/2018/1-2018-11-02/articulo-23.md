@@ -1,0 +1,1 @@
+Artículo 23.—Regulaciones de los procedimientos de contratación administrativa. La actividad contractual que despliegue la Administración en virtud de la presente directriz, se regirá por la Ley de Contratación Administrativa y su Reglamento.
