@@ -1,0 +1,5 @@
+CAPÍTULO IV
+SOLICITUDES DE SERVICIOS DE AUDITORÍA
+ARTÍCULO 31. Requerimientos de servicios de auditoría
+Las autoridades universitarias pueden solicitar a la Oficina de Contraloría Universitaria el estudio de un asunto específico, especialmente cuando observen indicios de debilitamiento del control interno institucional, perjuicio al interés universitario, menoscabo al patrimonio institucional, que requiera un estudio técnico para su corroboración o para generar posibles medidas correctivas. Esta Oficina le dará el trámite que considere pertinente, de acuerdo con su competencia, su plan de trabajo y los recursos disponibles, y considerando que, en primera instancia, les corresponde a los órganos de la administración activa fortalecer el control interno y proteger los intereses y recursos institucionales.
+Los requerimientos específicos de auditoría solicitados por el Consejo Universitario o la Rectoría tendrán un nivel relevante de prioridad y se incluirán de oficio en el programa de trabajo para su atención a la mayor brevedad posible.

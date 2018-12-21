@@ -1,0 +1,6 @@
+ARTÍCULO 20. Medidas de carácter preventivo
+La Oficina de Contraloría Universitaria, para el adecuado cumplimiento de sus funciones, podrá recomendar a la autoridad universitaria correspondiente y con competencia suficiente, tomar, de manera extraordinaria y temporal, las siguientes medidas de carácter preventivo:
+a) La incautación o custodia provisional de valores, documentos físicos o electrónicos o activos de la Universidad de Costa Rica.
+b) Cerrar o permitir un acceso controlado a determinado centro de trabajo.
+c) Separar temporalmente al personal universitario de sus funciones o de su lugar de trabajo habitual, cuando su presencia, a criterio de la Oficina de Contraloría Universitaria, pudiere entorpecer u obstruir las labores de auditoría o expusieren a un mayor riesgo los intereses o recursos universitarios.
+La Oficina de Contraloría Universitaria deberá incorporar en la recomendación respectiva, además de la justificación razonada, la indicación del plazo de la medida. La autoridad universitaria correspondiente podrá proceder conforme a lo recomendado o denegar la recomendación en forma sustentada, en un plazo no mayor de tres días hábiles. En caso necesario, la Oficina de Contraloría Universitaria podrá elevar la recomendación a instancias superiores.

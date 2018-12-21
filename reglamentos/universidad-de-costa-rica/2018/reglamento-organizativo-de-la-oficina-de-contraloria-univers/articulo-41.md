@@ -1,0 +1,3 @@
+ARTÍCULO 41. Seguimiento de las recomendaciones
+La Contraloría Universitaria, como acción complementaria a la responsabilidad de los órganos y autoridades universitarias, dispondrá de un programa de seguimiento de las recomendaciones. Para tal propósito, la Contraloría Universitaria, cuando estime conveniente, podrá solicitar a la persona responsable de ejecutar las recomendaciones o, al órgano superior, referirse, por escrito y en detalle, al estado de su cumplimiento y las acciones y plazos para implementar las recomendaciones pendientes.
+Como parte de este programa, la Contraloría Universitaria, considerando la importancia relativa, nivel de riesgo y otros factores técnicos, definirá el alcance del seguimiento para cada resultado.

@@ -1,0 +1,4 @@
+ARTÍCULO 4. Ámbito de acción
+La Oficina de Contraloría Universitaria ejerce su función sobre todos los órganos que conforman la Universidad de Costa Rica. Además, cuando la normativa así lo establezca, puede ejercer su gestión sobre otras entidades u organizaciones que, por su relación con la Institución, lo ameriten.
+Su ámbito de acción comprende el campo de la administración, control interno y materias afines a la gestión universitaria y la ejecución de los recursos públicos para el logro de los objetivos institucionales, incluye la gestión y apoyo de los órganos académico-administrativos.
+No comprende la evaluación del ejercicio de las funciones sustantivas de la academia en las distintas áreas del conocimiento, lo cual compete a los órganos universitarios especializados que corresponda.

@@ -1,0 +1,2 @@
+ARTÍCULO 11. Nombramiento de los puestos de la dirección
+La contralora o el contralor y la subcontralora o el subcontralor serán nombrados por el Consejo Universitario a tiempo completo y por plazo indefinido, en votación secreta y por los votos de las dos terceras partes de la totalidad de sus integrantes. El nombramiento se realizará mediante concurso público, de conformidad con la normativa vigente. El expediente y la terna se remitirán a la Contraloría General de la República para el aval respectivo, previo al nombramiento.

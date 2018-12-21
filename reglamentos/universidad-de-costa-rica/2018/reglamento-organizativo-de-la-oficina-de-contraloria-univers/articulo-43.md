@@ -1,0 +1,6 @@
+ARTÍCULO 43. Deberes de las autoridades y órganos universitarios para apoyar la función de auditoría interna
+Las autoridades y órganos universitarios deben facilitar, oportunamente, la información, documentación y colaboración que requiera el personal de la auditoría para cumplir con sus obligaciones. Como parte de este apoyo, deben:
+a) Instruir al personal a su cargo para que atienda los requerimientos específicos del personal de auditoría.
+b) Establecer las condiciones adecuadas de acceso, movilidad y asentamiento en las instalaciones.
+Para ello, la Contraloría Universitaria definirá las condiciones y plazos razonables en que se requiera este apoyo, y considerará las situaciones particulares que le presenten las autoridades. En caso de alguna discrepancia, lo resolverá la rectora o el rector, y de persistir la situación, podrá ser canalizada al Consejo Universitario. En caso de que sea la persona que ocupa la Rectoría, la Contraloría Universitaria lo canalizará al Consejo Universitario.
+El incumplimiento injustificado de estas disposiciones se considera falta grave, y genera una responsabilidad administrativa, que se regirá por la normativa interna de la Universidad de Costa Rica.

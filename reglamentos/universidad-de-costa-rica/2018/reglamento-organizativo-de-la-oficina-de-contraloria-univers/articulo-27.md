@@ -1,0 +1,8 @@
+ARTÍCULO 27. Potestades del personal de auditoría
+El personal de auditoría tendrá las siguientes potestades:
+a) Solicitar a cualquier funcionaria universitaria o funcionario universitario el libre acceso a todos los libros, los registros, los archivos, las cuentas bancarias, los documentos y otras fuentes de información que requiera, en el plazo y demás condiciones que le permitan cumplir su cometido. Además, en el ejercicio de sus funciones y en presencia de la persona responsable o custodia, se le deberá dar acceso a bienes y valores de la Institución, para examinar, glosar, verificar y dar por cumplidas sus funciones.
+b) Requerir a los sujetos privados que administran o custodian fondos o bienes públicos asignados a la Universidad la información relacionada con proyectos y actividades universitarias que asuman.
+c) Podrá acceder, para sus fines, en cualquier momento, a las transacciones electrónicas institucionales que consten en los archivos y sistemas electrónicos que realicen con los entes, los bancos u otras instituciones, para lo cual la Administración deberá brindar las facilidades que se requieran.
+d) Solicitar a cualquier funcionaria o funcionario y entidad privada que administre o custodie fondos públicos asignados a la Universidad, los informes, las opiniones o las declaraciones sobre un asunto específico relacionado con el trabajo de auditoría; esto, en el plazo y demás condiciones que le permitan cumplir su cometido.
+e) Solicitar a las personas funcionarias la colaboración, el asesoramiento y las facilidades que demande el ejercicio de la auditoría interna.
+f) Cualesquiera otras potestades necesarias para el cumplimiento de sus funciones, de acuerdo con el ordenamiento jurídico y técnico aplicable.

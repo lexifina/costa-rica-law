@@ -1,0 +1,2 @@
+ARTÍCULO 21. Programa de capacitación
+La Oficina de Contraloría Universitaria mantendrá un programa de capacitación técnica, dirigido a su personal, con el fin de que estos posean y mantengan las habilidades y conocimientos requeridos para cumplir con sus obligaciones. Esto, de forma independiente a los esfuerzos de índole personal que realicen las funcionarias y los funcionarios para actualizarse en sus respectivas profesiones.

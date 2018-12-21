@@ -1,0 +1,3 @@
+ARTÍCULO 12. Suspensión y remoción de los puestos de la dirección
+Las personas que ocupan los puestos de dirección y subdirección podrán ser removidas o suspendidas de sus cargos, por los votos de las dos terceras partes de la totalidad de las personas que integran el Consejo Universitario; esto, por causa justa y conforme a la normativa vigente y al debido proceso. Para ello, el Consejo Universitario conformará una comisión especial y se considerarán las faltas según lo establecido en la Ley general de control interno, el Código de Trabajo, este reglamento y demás normativa universitaria aplicable.
+Previo a acordar la suspensión o remoción de estas personas, se debe contar con el dictamen favorable de la Contraloría General de la República.

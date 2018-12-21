@@ -1,0 +1,2 @@
+ARTÍCULO 45. Convenios y contratos
+Los convenios, contratos e instrumentos similares que la Universidad firme con personas físicas y jurídicas, donde se comprometan recursos públicos o que, por otros motivos, se requieran los servicios de la auditoría, pueden ser objeto de fiscalización de la Oficina de Contraloría Universitaria, aun cuando no se especifique en el texto del respectivo instrumento jurídico suscrito.

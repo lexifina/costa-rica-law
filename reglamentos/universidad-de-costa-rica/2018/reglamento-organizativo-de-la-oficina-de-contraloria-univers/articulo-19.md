@@ -1,0 +1,3 @@
+ARTÍCULO 19. Asignación de recursos
+La Oficina de Contraloría Universitaria contará con los recursos humanos, financieros y materiales necesarios para cumplir con sus obligaciones y facilitar la ejecución independiente y oportuna de las funciones de la auditoría. Estos serán determinados por dicha Oficina y sometidos al Consejo Universitario para su valoración, el cual podrá aprobar o rechazar la solicitud, de acuerdo con las posibilidades y la normativa institucional. En el evento de rechazarse, deberá justificarse debidamente.
+En caso de discrepancia entre los recursos solicitados por la Oficina de Contraloría y la Administración, el asunto deberá resolverlo, en definitiva, el Consejo Universitario.
