@@ -1,0 +1,1 @@
+Artículo 76º. La municipalidad mantendrá construidos nichos dobles, para alquiler o donación de uso a personas en estado de pobreza, lo que determinará la administración del cementerio o el Alcalde municipal.

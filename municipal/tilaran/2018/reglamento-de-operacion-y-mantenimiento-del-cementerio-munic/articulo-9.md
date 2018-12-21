@@ -1,0 +1,1 @@
+Artículo 9º. Mediante la figura del Convenio, regulado en los artículos 4 y 7 del Código Municipal, la Municipalidad concertará los acuerdos necesarios, relacionados con la administración y operación de los cementerios, en los distritos y en aquellas comunidades que lo tengan.

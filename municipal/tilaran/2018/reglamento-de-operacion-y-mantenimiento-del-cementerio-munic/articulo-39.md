@@ -1,0 +1,1 @@
+Artículo 39º. Los cementerios estarán abiertos al público de las siete horas treinta minutos a las dieciséis horas, todos los días, excepto los días anterior y posterior al Día de Los Difuntos, 2 de noviembre de 7am a 7pm. Para cualquier otro cambio de horario, se requiere autorización del encargado, del Alcalde o del o la Vicealcaldesa.

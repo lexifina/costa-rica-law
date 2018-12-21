@@ -1,0 +1,1 @@
+Artículo 65º. La comisión administrativa de cementerios estará conformada por el encargado del cementerio, el o la profesional de Desarrollo y Control Urbano, el o la asesor legal de la Municipalidad y por un miembro designado por el Concejo municipal.

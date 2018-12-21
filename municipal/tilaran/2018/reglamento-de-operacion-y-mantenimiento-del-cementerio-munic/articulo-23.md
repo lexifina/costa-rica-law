@@ -1,0 +1,1 @@
+Artículo 23º. En los derechos sencillos o dobles, el concesionario podrá realizar inhumaciones directamente en tierra, pero queda obligado, después de un año, a construir bóvedas sobre ese derecho, haciendo debido pago por cada derecho y según las normas estipuladas en este Reglamento.

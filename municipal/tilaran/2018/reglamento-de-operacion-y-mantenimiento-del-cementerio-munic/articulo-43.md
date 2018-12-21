@@ -1,0 +1,2 @@
+Artículo 43º. Bajo ninguna circunstancia, se practicará la exhumación de cadáveres de personas fallecidas a causa de enfermedades infectocontagiosas, salvo por orden y autorización previa del Ministerio de Salud, y en caso de ser solicitada por el Poder Judicial.
+Con tal propósito a la hora de practicar la inhumación de tales cadáveres, se tomarán las consideraciones del caso, a efecto que la sepultura que se realice, tenga el carácter definitivo.

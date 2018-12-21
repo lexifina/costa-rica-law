@@ -1,0 +1,1 @@
+Artículo 53º. El encargado de cementerios deberá mantener una base de datos digital actualizada y ligada al sistema de cobro con la información municipal de los y las contribuyentes de cementerio, en la cual existirá información referente a cada bóveda y sus titulares. Además esta información estará respaldada en un archivo análogo por carpetas para cada bóveda.

@@ -1,0 +1,1 @@
+Artículo 24. En caso de morosidad del concesionario en el pago del mantenimiento por más de un año de la cuota correspondiente, hechas tres notificaciones personales, o en su casa de habitación, o a su representante, se perderá el derecho de uso.

@@ -1,0 +1,2 @@
+Artículo 17º. Para garantizar los posibles daños que produzca u ocasione la construcción a las bóvedas vecinas, el propietario de la bóveda a construir deberá hacer un depósito de garantía por daño eventual de un 5% del costo total de la obra en efectivo. Una vez concluida la bóveda y recibida mediante un acta en conformidad, por el encargado del cementerio y
+establecido que no hubo daños, se autorizará el retiro de dicha garantía. Caso contrario deberá reparar cualquier daño a bóvedas vecinas.

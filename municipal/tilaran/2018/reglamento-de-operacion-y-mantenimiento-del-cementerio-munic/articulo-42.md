@@ -1,0 +1,1 @@
+Artículo 42º. El encargado del cementerio deberá tener un libro de actas sellado y foliado por la Auditoría Municipal para las exhumaciones, del cual debe levantarse un acta cada vez que ocurra una exhumación, con la información del propietario de la bóveda, de la persona exhumada, en el acta deben quedar consignadas las firmas de todas las personas presentes en el acto.

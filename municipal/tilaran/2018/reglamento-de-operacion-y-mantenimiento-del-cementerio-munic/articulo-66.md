@@ -1,0 +1,1 @@
+Artículo 66º. Se prohíbe la venta y subarriendo de cualquier forma, del título funerario del lote o parcela en el cementerio, el cual es otorgado en carácter personalísimo. En caso contrario será rescindido el contrato de arrendamiento, de conformidad con la doctrina y el tenor del artículo 154 de la Ley General de la Administración Pública.

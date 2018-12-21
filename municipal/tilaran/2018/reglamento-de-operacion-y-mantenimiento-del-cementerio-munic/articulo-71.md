@@ -1,0 +1,1 @@
+Artículo 71º. Para que opere la pérdida del derecho funerario por la declaratoria de ruina o abandono de la bóveda, el concesionario deberá ser notificado en tres ocasiones en la forma del artículo 23 anterior, exponiendo con claridad el motivo y contenido del acto administrativo.

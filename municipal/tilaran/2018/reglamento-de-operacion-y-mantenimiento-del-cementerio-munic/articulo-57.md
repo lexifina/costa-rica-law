@@ -1,0 +1,1 @@
+Artículo 57º. El encargado del cementerio notificará, tres veces, personalmente o en su casa de habitación, al titular del derecho funerario de uso, la circunstancia del vencimiento del plazo, bajo apercibimiento de que, el no pago de la tasa y prórroga automática dentro del término de un año, producirá la caducidad del derecho funerario.

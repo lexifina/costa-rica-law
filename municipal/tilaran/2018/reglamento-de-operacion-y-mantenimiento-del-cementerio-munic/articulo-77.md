@@ -1,0 +1,1 @@
+Artículo 77º. La Municipalidad percibirá las tasas que se fijen, de conformidad con el procedimiento establecido en el artículo 83 del Código Municipal, por los siguientes servicios: derecho de inhumación, derecho de exhumación, alquiler de nicho municipal, exhumación judicial y traslado de restos humanos.

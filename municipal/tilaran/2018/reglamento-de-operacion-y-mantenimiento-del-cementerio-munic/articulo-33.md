@@ -1,0 +1,1 @@
+Artículo 33º. Las inhumaciones se llevarán a cabo entre las ocho horas y las dieciséis horas y únicamente serán realizadas por el encargado o el funcionario municipal designado del cementerio, o funcionarios del Poder Judicial; para inhumaciones fuera de este horario se requerirá autorización previa del encargado del cementerio o del Alcalde municipal, o del o la Vicealcaldesa.
