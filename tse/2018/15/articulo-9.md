@@ -1,0 +1,2 @@
+Artículo 9º—Adiciónese un párrafo segundo al artículo 18, que se leerá de la siguiente forma:
+“Tratándose de las resoluciones o autos relativos al proceso de inscripción de candidaturas y hasta que se concluya con ese proceso, se tendrá por ampliado el horario de notificación desde las ocho hasta las veinte horas incluyendo los días inhábiles. La notificación se tendrá por practicada hasta el día hábil siguiente a dicha comunicación”.

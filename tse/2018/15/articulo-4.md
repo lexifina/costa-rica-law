@@ -1,0 +1,2 @@
+Artículo 4º—Refórmase el artículo 9, para que se lea de la siguiente manera:
+“Artículo 9.-Formulario de inscripción de candidaturas. Para la presentación de las nóminas de inscripción de candidaturas se utilizarán únicamente los formularios digitales que, para tales efectos, la Dirección General del Registro Electoral y Financiamiento de Partidos Políticos ponga a disposición de los partidos políticos.”.

@@ -1,0 +1,2 @@
+Artículo 7º—Refórmase el artículo 12, cuyo texto será el siguiente:
+“Artículo 12.-Recepción de los formularios. Los formularios de inscripción de candidaturas serán enviados por vía digital por cualquier miembro del comité ejecutivo superior del partido habilitado para tales efectos. El sistema remitirá un mensaje para comunicar que la gestión se recibió satisfactoriamente e incluirá la fecha y hora en que se presentó el formulario; información que quedará registrada para efectos del sorteo de las posiciones en las papeletas.”.
