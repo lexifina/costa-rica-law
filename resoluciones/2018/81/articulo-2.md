@@ -1,0 +1,1 @@
+Artículo 2º—Documento para adquisiciones exentas: Las adquisiciones se realizarán mediante la utilización del documento de identificación DIDI, expedido a cada funcionario internacional del IICA acreditado en Costa Rica.
