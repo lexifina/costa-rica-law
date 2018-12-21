@@ -1,0 +1,1 @@
+Transitorio único.—Las instituciones sujetas por este Decreto podrán poner en práctica cualquiera de los elementos del artículo 5º del presente Decreto en tanto emiten formalmente el Plan Institucional de Movilidad Sostenible.

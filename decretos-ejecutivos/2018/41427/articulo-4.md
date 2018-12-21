@@ -1,0 +1,1 @@
+Artículo 4º—Plan Institucional de Movilidad Sostenible. Mediante la implementación de un Plan Institucional de Movilidad Sostenible, las instituciones que formen parte de la Administración Pública Central deberán promover la movilidad sostenible de personas, según sus posibilidades.

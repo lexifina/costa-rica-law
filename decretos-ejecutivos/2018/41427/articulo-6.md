@@ -1,0 +1,1 @@
+Artículo 6º—Plazo. Para implementar el Plan Institucional de Movilidad Sostenible, las instituciones de la Administración Pública Central contarán con el plazo máximo de doce meses, contado a partir de la entrada en vigencia de este Decreto.
