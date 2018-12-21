@@ -1,0 +1,1 @@
+Transitorio único.—Las exoneraciones establecidas en el Decreto Ejecutivo número 33096 del 14 de marzo de 2006 se mantendrán por un plazo de 12 meses a partir de la entrada en vigencia de este decreto.
