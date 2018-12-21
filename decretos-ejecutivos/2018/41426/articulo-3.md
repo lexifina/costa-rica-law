@@ -1,0 +1,1 @@
+Artículo 3º—Límite de incentivo económico. El incentivo económico se aplicará únicamente a los vehículos con un valor CIF en aduanas no mayor al monto equivalente a $30.000.00 (dólares de los Estados unidos de América). Este límite no se aplicará a vehículos de transporte público o transporte de carga.

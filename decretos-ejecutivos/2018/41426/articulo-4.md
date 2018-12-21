@@ -1,0 +1,1 @@
+Artículo 4º—Restricción vehicular. Los vehículos eléctricos usados no estarán sujetos a la restricción vehicular que definida el Ministerio de Obras Públicas y Transportes a partir de lo que dispone la ley de Tránsito por vías públicas terrestres.

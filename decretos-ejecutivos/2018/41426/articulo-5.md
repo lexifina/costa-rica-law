@@ -1,0 +1,1 @@
+Artículo 5º—Uso de parqueos azules. Los vehículos eléctricos usados podrán parquear en los espacios designados como azules dentro de los parqueos públicos, así como de supermercados, centros comerciales y demás parqueos privados, según lo estipulado en la Ley N° 9518, Incentivos y Fomento para el Transporte Eléctrico, de 25 de enero de 2018.

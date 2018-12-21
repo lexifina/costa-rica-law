@@ -1,0 +1,1 @@
+Artículo 9º—Traslado de la solicitud al Departamento de Gestión de Exenciones. Una vez comprobada fehacientemente que el vehículo cumple con las condiciones para su exención, se trasladará la solicitud vía EXONET, al Departamento de Gestión de Exenciones del Ministerio de Hacienda para la revisión correspondiente.

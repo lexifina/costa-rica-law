@@ -1,0 +1,1 @@
+Artículo 12.—Emisión de distintivo. Los vehículos eléctricos usados serán dotados de un distintivo, emitido por el Ministerio de Ambiente y Energía, que les permita su identificación para el usó de los espacios designados como azules dentro de los parqueos.
