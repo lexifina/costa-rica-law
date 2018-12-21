@@ -1,0 +1,1 @@
+Artículo 6º—Para la obtener una licencia municipal de obras menores o de mantenimiento el solicitante deberá presentar a la Municipalidad el formulario completo aportando los requisitos que al respecto haya determinado la Dirección de Gestión Técnica Operativa en dicho formulario.

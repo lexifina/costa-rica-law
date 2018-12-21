@@ -1,0 +1,1 @@
+Artículo 2º—Este Reglamento rige para todo el cantón de Moravia. Ninguna de las obras menores o de mantenimiento será ejecutada en cumplir los requerimientos que se detallan en la ley y la presente normativa.

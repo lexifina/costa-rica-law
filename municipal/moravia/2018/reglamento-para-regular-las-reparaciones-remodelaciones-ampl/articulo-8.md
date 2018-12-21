@@ -1,0 +1,1 @@
+Artículo 8º—El criterio técnico especializado del funcionario municipal competente, deberá indicar la ubicación exacta de la obra, datos del responsable, descripción de la misma, así como la indicación expresa de que se trata de una obra menor que no violenta lo establecido en la Ley N°833, Ley de Construcciones y el presente Reglamento.

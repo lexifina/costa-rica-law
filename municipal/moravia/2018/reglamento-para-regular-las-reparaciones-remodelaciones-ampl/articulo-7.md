@@ -1,0 +1,1 @@
+Artículo 7º—Las licencias municipales no se otorgarán sin que previamente se cuente con el criterio técnico especializado del funcionario municipal competente de acuerdo con lo establecido en el artículo 83 de la Ley N°833, Ley de Construcciones.
