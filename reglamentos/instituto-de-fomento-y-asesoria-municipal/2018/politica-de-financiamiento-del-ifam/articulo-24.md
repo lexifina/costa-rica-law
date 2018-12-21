@@ -1,0 +1,1 @@
+Artículo 24º- De la Comisión por Formalización y Administración del Financiamiento. El IFAM cobrará una comisión por la formalización y administración de los financiamientos otorgados, la cual deberá estar reglamentada.

@@ -1,0 +1,2 @@
+Artículo 23º- De la Garantía. Para garantizar las operaciones financieras que el IFAM celebre con las municipalidades, éstas podrán ceder en garantía sus rentas y gravar los bienes necesarios para tal fin.
+En todo caso y como garantía complementaria de todas estas operaciones, la Contraloría General de la República, no aprobará ningún presupuesto ordinario o extraordinario de una municipalidad que se encuentre en mora con el IFAM. A tales efectos, el IFAM remitirá mensualmente al ente Contralor, una lista de las corporaciones municipales en mora con él.

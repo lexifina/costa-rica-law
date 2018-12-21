@@ -1,0 +1,1 @@
+Artículo 28º- De las Instancias de aprobación. Para la evaluación del proyecto, la unidad técnica competente deberá presentar ante la Comisión Técnica la recomendación de aprobar o denegar las solicitudes de financiamiento, con base en el análisis efectuado al proyecto formulado por el sujeto de financiamiento.

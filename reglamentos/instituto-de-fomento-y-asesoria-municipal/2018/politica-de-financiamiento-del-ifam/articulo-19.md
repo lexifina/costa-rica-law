@@ -1,0 +1,2 @@
+Artículo 19º- De los estratos municipales. La tasa de interés será diferenciada, para lo cual se establecerá una estratificación de las municipalidades, basada en el presupuesto ordinario de éstas, aprobado por la Contraloría General de la República, clasificándolas en grupos relativamente homogéneos, a los efectos de privilegiar el principio de equidad, concediendo mejores condiciones a las municipalidades con menos recursos.
+La metodología técnica para definir los estratos presupuestarios se establecerá en el Reglamento de Financiamiento del IFAM.

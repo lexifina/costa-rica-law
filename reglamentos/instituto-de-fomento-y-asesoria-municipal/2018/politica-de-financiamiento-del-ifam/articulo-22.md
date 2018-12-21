@@ -1,0 +1,2 @@
+Artículo 22º- Del Plazo del Financiamiento. Los financiamientos podrán ser a corto, mediano y largo plazo. Estos se determinarán en función del tipo de proyecto, el plan de inversión, el plazo de agotamiento, la amortización de intangibles y la depreciación (vida útil, uso, función, obsolescencia, entre otros) del bien a financiar.
+El fin último será que el plazo establecido garantice la ejecución, el repago del proyecto y la recuperación de la inversión.

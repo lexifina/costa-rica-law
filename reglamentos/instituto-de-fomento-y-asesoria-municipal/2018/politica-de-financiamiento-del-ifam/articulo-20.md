@@ -1,0 +1,1 @@
+Artículo 20º- De la Ejecución del modelo de estratificación presupuestaria. El modelo de estratificación debe ejecutarse cada año, tan pronto estén disponibles las cifras presupuestarias definitivas, en virtud de que algunas municipalidades podrían migrar de un estrato a otro, en función del eventual aumento o disminución del presupuesto anual total aprobado.

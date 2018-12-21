@@ -1,0 +1,1 @@
+Artículo 26º- De la Forma de Pago. La forma de pago sobre el financiamiento será establecida por la unidad técnica competente, de acuerdo con el propósito del financiamiento y el plan, programa o proyecto a financiar.

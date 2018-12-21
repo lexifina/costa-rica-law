@@ -1,0 +1,1 @@
+Artículo 8º-. De la Disponibilidad de recursos. La dependencia administradora del financiamiento definirá la disponibilidad de recursos propios y valorará las necesidades de recursos externos requeridos para financiar la totalidad del Plan de Inversión.

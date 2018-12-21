@@ -1,0 +1,1 @@
+Artículo 29º- Del Expediente del proyecto. Como respaldo de los criterios utilizados para emitir la recomendación de financiamiento, se debe elaborar un expediente, cuyo contenido pormenorizado obedecerá a lineamientos utilizados para la formulación y evaluación de proyectos, los cuales serán reglamentados. Dicho expediente se deberá mantener actualizado permanentemente.

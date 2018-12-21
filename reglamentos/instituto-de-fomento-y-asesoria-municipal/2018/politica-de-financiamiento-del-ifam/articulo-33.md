@@ -1,0 +1,1 @@
+Artículo 33º- De la obligatoriedad de revisión de la Política de Financiamiento. La Política de Financiamiento debe ser revisada al menos bianualmente, o bien, cuando las condiciones macroeconómicas así lo demanden.

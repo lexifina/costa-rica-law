@@ -1,0 +1,1 @@
+Artículo 7º-. Del Origen de los Recursos. Para la concesión del financiamiento, el IFAM utiliza recursos provenientes de los fondos que le han sido autorizados por ley para este propósito, así como los que, por un efecto revolutivo, las mismas carteras generen.
