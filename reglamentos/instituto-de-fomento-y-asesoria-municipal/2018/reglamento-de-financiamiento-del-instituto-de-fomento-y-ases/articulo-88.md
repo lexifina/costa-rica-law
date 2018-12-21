@@ -1,0 +1,1 @@
+Artículo 88-. De la resolución de situaciones no contempladas en el presente reglamento. Toda situación no contemplada en este Reglamento deberá ser resuelta por la Junta Directiva del IFAM, con fundamento en criterios técnicos y legales.

@@ -1,0 +1,1 @@
+Artículo 4-. De la estratificación de las municipalidades. Las municipalidades del país se clasificarán en estratos relativamente homogéneos con el fin de brindar una tasa de interés diferenciada para cada uno de ellos, que estará en función de sus recursos, reflejado en el presupuesto ordinario, bajo el principio de equidad, sostenibilidad y equilibrio financiero.

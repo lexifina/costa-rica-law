@@ -1,0 +1,1 @@
+Artículo 74-. De la prohibición de condonar deudas e intereses. EL IFAM no podrá condonar deudas ni intereses a los prestatarios, por no encontrarse facultado legalmente para ello, salvo que una ley especial lo autorice.

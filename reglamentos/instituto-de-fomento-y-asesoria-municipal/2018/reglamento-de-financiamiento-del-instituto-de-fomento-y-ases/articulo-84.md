@@ -1,0 +1,1 @@
+Artículo 84-. De la facultad de exigir la cancelación total del préstamo en caso de incumplimiento de las condiciones. En caso de incumplimiento de las condiciones contractuales, la Junta Directiva del IFAM podrá proceder a la cancelación del financiamiento y exigir la suma adeudada.

@@ -1,0 +1,2 @@
+Transitorio 4-. La Unidad de Tecnologías de Información, en conjunto con el Departamento Gestión de Fortalecimiento Municipal diseñará un aplicativo informático que permita a los sujetos de financiamiento tramitar las solicitudes de financiamiento y aportar en formato digital los requisitos solicitados por el IFAM, para lo cual se concede el plazo de un año, contado a partir de la publicación del presente reglamento.
+Rige a partir de la publicación en el Diario Oficial La Gaceta.

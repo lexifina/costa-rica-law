@@ -1,0 +1,3 @@
+Artículo 12.- De la priorización del tipo de proyectos en el Plan de Inversión El carácter prioritario de los proyectos que podrán hacerse acreedores del descuento de un cuarto de punto porcentual estará definido por:
+a) Aquellos proyectos que versen sobre la potencialización de servicios relacionados con la satisfacción de necesidades básicas humanas, como son: Acueducto y alcantarillado, protección del ambiente y el recurso hídrico, recolección y manejo de residuos sólidos, mantenimiento y construcción de infraestructura vial cantonal.
+b) Aquellos proyectos de inversión que sean contestes con las líneas estratégicas definidas en el Plan Nacional de Desarrollo.

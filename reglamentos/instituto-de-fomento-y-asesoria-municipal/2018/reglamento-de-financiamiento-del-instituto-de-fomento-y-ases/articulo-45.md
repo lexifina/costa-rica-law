@@ -1,0 +1,5 @@
+Artículo 45-. Del cálculo de los intereses financieros derivados de la operación de financiamiento. Los intereses financieros que devenga la operación de financiamiento serán calculados sobre los saldos pendientes de pago, computados desde la fecha del último pago de intereses hasta la fecha en que corresponde efectuar el pago de los intereses que se están calculando, a tenor del plan o calendario de pagos establecido.
+El saldo pendiente de pago en cada una de las fechas de pago de intereses se determina sustrayendo al total de sumas efectivamente desembolsadas, las amortizaciones efectuadas al principal.
+Las amortizaciones al principal se determinan, en cada fecha de pago, restando los intereses financieros correspondientes a la cuota nivelada pagada por el sujeto de financiamiento.
+Las anteriores disposiciones aplican para los pagos que se realicen una vez que se haya agotado el período de gracia que eventualmente pudiera conceder el IFAM a un sujeto de financiamiento.
+El cálculo de intereses financieros durante el período de gracia se efectuará conforme lo establecido en el artículo 50 del presente reglamento.

@@ -1,0 +1,2 @@
+Artículo 27-. Del expediente de la solicitud de financiamiento. La Unidad de Servicios Técnicos y de Financiamiento creará un expediente en carpeta individualizada para cada solicitud de financiamiento que procese, el cual debe estar ordenado cronológicamente, debidamente foliado y actualizado permanentemente.
+El Departamento de Gestión para el Fortalecimiento Municipal debe disponer de un área o lugar para archivar y custodiar adecuadamente los expedientes de financiamiento.

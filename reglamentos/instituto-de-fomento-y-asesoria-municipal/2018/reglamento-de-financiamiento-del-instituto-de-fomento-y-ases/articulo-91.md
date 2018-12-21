@@ -1,0 +1,1 @@
+Artículo 91-. De la derogatoria de las versiones anteriores del Reglamento de Financiamiento. El presente Reglamento deroga los anteriores reglamentos de financiamiento y las disposiciones transitorias relacionadas y, rige a partir de su publicación en el Diario Oficial La Gaceta.
