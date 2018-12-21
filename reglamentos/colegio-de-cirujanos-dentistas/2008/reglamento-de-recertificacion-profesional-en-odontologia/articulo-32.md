@@ -1,1 +1,0 @@
-Artículo 32.—Al entregar la documentación para participar en el Programa de Recertificación Académica, en la Secretaría de la Dirección Académica del Colegio de Cirujanos Dentistas, se le asignará un número consecutivo a la actividad el cual será su número de identificación.

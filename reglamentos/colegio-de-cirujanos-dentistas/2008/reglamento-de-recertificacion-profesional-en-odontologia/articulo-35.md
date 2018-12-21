@@ -1,1 +1,0 @@
-Artículo 35.—Las actividades académicas de Educación Continua sin costo para el participante, seguirán el mismo procedimiento para su autorización del Consejo Académico en Odontología y no se les cobrará cuota por ningún concepto.

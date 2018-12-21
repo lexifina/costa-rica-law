@@ -1,1 +1,0 @@
-Artículo 37.—El aval de una actividad educativa se extenderá por dos años. Durante este período el ente proveedor de Educación Continua tendrá derecho a repetir la actividad educativa, previo permiso solicitado al Consejo Académico en Odontología.

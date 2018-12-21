@@ -1,1 +1,0 @@
-Artículo 27.—Hacer constar en los títulos el número de créditos aprobados por el Consejo Académico en Odontología e incluir los créditos obtenidos en sistema de información del Programa después de cada actividad académica.

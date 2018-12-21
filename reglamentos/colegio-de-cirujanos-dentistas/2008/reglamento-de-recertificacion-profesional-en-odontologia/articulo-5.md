@@ -1,1 +1,0 @@
-Artículo 5º—El quórum para sesiones del Consejo Académico en Odontología el cual está conformado por siete miembros, será de cuatro de sus integrantes. Cuando no esté presente el Director o la Directora Académica, el Consejo escogerá de entre los o las presentes, la persona que dirigirá la sesión. Las votaciones serán tomadas por mayoría simple de los presentes.

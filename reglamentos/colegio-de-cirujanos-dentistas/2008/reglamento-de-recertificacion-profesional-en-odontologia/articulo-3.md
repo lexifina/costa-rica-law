@@ -1,1 +1,0 @@
-Artículo 3º—El Colegio de Cirujanos Dentistas de Costa Rica brindará y garantizará la infraestructura administrativa y logística al Programa de Recertificación al dar los recursos necesarios para que el Consejo Académico en Odontología labore de acuerdo con sus requerimientos y a la vez vela porque dicho programa sea eficiente, sostenible y permanente.

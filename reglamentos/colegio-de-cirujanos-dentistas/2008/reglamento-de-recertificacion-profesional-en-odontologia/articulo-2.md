@@ -1,1 +1,0 @@
-Artículo 2º—La Recertificación en Odontología es voluntaria; el profesional en Odontología queda inscrito en el programa a partir de su primera participación en una actividad recertificada por el Consejo Académico en Odontología.

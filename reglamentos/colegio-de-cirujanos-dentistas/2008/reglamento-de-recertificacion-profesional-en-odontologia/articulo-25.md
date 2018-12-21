@@ -1,1 +1,0 @@
-Artículo 25.—Brindar asesoría a todas las entidades proveedoras de actividades educativas con especial atención a las entidades proveedoras de educación a quienes se les rechazó la solicitud de aval, por no cumplir requisitos mínimos establecidos por el Consejo Académico en Odontología.

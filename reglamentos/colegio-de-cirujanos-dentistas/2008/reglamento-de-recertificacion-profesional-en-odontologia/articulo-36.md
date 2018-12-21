@@ -1,1 +1,0 @@
-Artículo 36.—El aporte de las cuotas recibidas será depositado en la cuenta del Colegio de Cirujanos Dentistas de Costa Rica y se utilizará para solventar gastos del Programa de Recertificación Profesional. El Consejo Académico en Odontología, presentará una planificación de gastos que debe ser aprobada por la Junta Directiva del Colegio de Cirujanos Dentistas de Costa Rica.

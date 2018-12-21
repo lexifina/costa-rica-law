@@ -1,1 +1,0 @@
-Artículo 8º—El Consejo Académico en Odontología garantizará la implementación de los mecanismos para la transparencia, oportunidad y eficacia de todos los procesos que se desarrollen en el Programa de Recertificación Profesional en Odontología.

@@ -1,1 +1,0 @@
-Artículo 22.—El Consejo Académico en Odontología o los observadores adjuntos designados por el CAO y avalados por Junta Directiva de Colegio de Cirujanos Dentistas de Costa Rica será el encargado de fiscalizar las actividades realizadas por los entes proveedores, que previamente fueron avaladas por el CAO.

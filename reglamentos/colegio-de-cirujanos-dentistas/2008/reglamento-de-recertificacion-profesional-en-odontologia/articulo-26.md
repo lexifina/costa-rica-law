@@ -1,1 +1,0 @@
-Artículo 26.—La Dirección Académica del Colegio de Cirujanos Dentista de Costa Rica, será la autoridad responsable de llevar el control de créditos acumulados por los participantes y de extender los certificados de cumplimiento del Programa de Recertificación, al cumplir los tres (3) años estipulados en este Reglamento.

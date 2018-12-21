@@ -1,2 +1,0 @@
-Artículo 12.—La información de créditos acumulados se dará en forma personal y escrita o en forma electrónica, de acuerdo con la solicitud del participante durante el transcurso de su Recertificación.
-La Junta Directiva del Colegio de Cirujanos Dentistas de Costa Rica, realizará una divulgación anual en un medio masivo de comunicación, como internet, boletín o un periódico nacional de alta circulación, de los beneficios y participantes del Programa de Recertificación con el fin de informar a la población en general la importancia de la Educación Continua y Permanente.
