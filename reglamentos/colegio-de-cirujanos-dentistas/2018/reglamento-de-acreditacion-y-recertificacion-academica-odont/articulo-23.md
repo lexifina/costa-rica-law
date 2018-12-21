@@ -1,0 +1,1 @@
+Artículo 23.—El Ente Proveedor de educación continua puede desinscribirse en el momento en que lo considere, mediante documento escrito en el que manifiesta su voluntad; perdiendo los derechos y privilegios que el CARAO le otorgó. Esto no lo inhibe de inscribirse nuevamente.

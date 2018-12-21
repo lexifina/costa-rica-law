@@ -1,0 +1,3 @@
+Artículo 10.—La Asamblea General nombrará a cinco miembros suplentes escogidos de una nómina que el CARAO presentará a la Asamblea General por medio de la Junta Directiva.
+La selección de la suplencia para las vacantes se escogerá por votación, del CARAO, entre los miembros suplentes.
+Los requisitos para ser miembro suplente son los mismos establecidos para los propietarios en el artículo N° 8 de este reglamento. La vacante de un miembro suplente se llenará en la Asamblea General siguiente o la que se convoque para tal efecto, después de que la Junta Directiva del CCDCR reciba la notificación por parte de quien preside el Consejo.

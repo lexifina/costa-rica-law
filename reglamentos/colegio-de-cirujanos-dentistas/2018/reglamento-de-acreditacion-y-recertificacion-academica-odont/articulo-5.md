@@ -1,0 +1,1 @@
+Artículo 5º—La recertificación se entenderá como el proceso o mecanismo mediante el cual, los profesionales en Odontología cumplan con los requisitos administrativos y académicos normados en este Reglamento- para actualizarse en el ejercicio de su práctica odontológica.

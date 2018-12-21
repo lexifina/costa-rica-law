@@ -1,0 +1,1 @@
+Artículo 11.—El CARAO nombrará por mayoría simple, por un período de dos años, con posibilidades de reelección consecutiva e indefinida, a su Director o Directora, quien presidirá las sesiones plenarias.
