@@ -1,0 +1,1 @@
+Artículo 9º—El CONICIT deberá divulgar los términos de la convocatoria para este premio entre los interesados por medios impresos y digitales, comunicados y conferencias de prensa. En la convocatoria se deberá consignar que la entrega de la premiación económica estará sujeta a disponibilidad presupuestaria.

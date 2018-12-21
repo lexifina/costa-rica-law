@@ -1,0 +1,2 @@
+Artículo 11.—El jurado del premio seleccionará al (la) ganador (a) o ganadores por mayoría simple. El premio se entregará a un trabajo único o serie de publicaciones sobre un mismo tema. El fallo del jurado es inapelable.
+El veredicto será conocido en el seno del Consejo Director del CONICIT y el anuncio oficial del (la) ganador (a) o ganadores lo hará este Órgano Colegiado en asocio con los miembros del jurado en un acto especial.

@@ -1,0 +1,1 @@
+Artículo 2º—Este premio lo concederá el CONICIT cada dos años al periodista (as) autor (es) del mejor trabajo periodístico sobre ciencia, tecnología o innovación que se divulgue en el país. (trabajo único o serie de publicaciones sobre un mismo tema).
