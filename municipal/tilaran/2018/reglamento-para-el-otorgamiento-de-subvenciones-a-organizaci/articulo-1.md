@@ -1,0 +1,25 @@
+MUNICIPALIDAD DE TILARÁN
+ADOPCIÓN DEL REGLAMENTO DE OPERACIÓN
+Y MANTENIMIENTO DEL CEMENTERIO
+MUNICIPAL DE TILARÁN
+El Concejo Municipal de Tilarán, mediante acuerdo tomado en la sesión ordinaria N° 135 del 04 de diciembre de 2018, acordó:
+Considerando:
+1º—Que el artículo 170 de la Constitución Política, así como los artículos 4º, 13 inciso c) y 169 y 27 del Código Municipal, reconocen a la municipalidad la Autonomía política, financiera y
+administrativa, igualmente faculta a los regidores para proponer al Concejo Municipal, mociones escritas y firmadas y solicitar la dispensa del trámite de comisión.
+2º—Que el Concejo Municipal de Tilarán, en ejercicio de las facultades que le confiere el Código Municipal, dispuso mediante acuerdo N° 693, tomado en la sesión ordinaria número 123 del 11 de setiembre de 2018, publicar como aclaración que la publicación hecha de los reglamentos municipales, en el Alcance N° 81 a La Gaceta N° 69 del 20 de abril de 2018: Reglamento de Operación y mantenimiento del Cementerio municipal de Tilarán, lo mismo que el Reglamento para el otorgamiento de subvenciones a organizaciones que prestan servicios al cantón, centros de educación pública, beneficencia o servicio social, lo fue como proyecto y Consulta Pública no vinculante por el plazo mínimo de ley de diez días hábiles, de conformidad con el artículo 43 del Código Municipal, así consta en La Gaceta N° 193 del 19 de octubre de 2018.
+3º—Que vencido el plazo otorgado, no se recibieron objeciones ni observaciones a los proyectos citados, excepto la oposición interna de parte de la Coordinación del Proceso de Hacienda Municipal, en el sentido de que debe modificarse el artículo 77 del Reglamento de Operación y mantenimiento del Cementerio municipal de Tilarán, para que se eliminen los montos en colones que allí se señalan de las tasas por derecho de Inhumación, Exhumación, Alquiler de nicho municipal, Exhumación judicial y por Traslado de restos humanos, en virtud de que primero debe realizarse el procedimiento señalado en el artículo 83 del Código Municipal.
+Por tanto, se mociona para que, previa dispensa de trámite se acuerde definitivamente:
+1º—a) Adoptar como Reglamento de Operación y mantenimiento del Cementerio Municipal de Tilarán, la publicación del mismo hecha en el Alcance N° 81 a La Gaceta N° 69 del 20 de abril de 2018, con la siguiente modificación del artículo 77, que deberá leerse así:
+La Municipalidad percibirá las tasas que se fijen, de conformidad con el procedimiento establecido en el artículo 83 del Código Municipal, por los siguientes servicios: derecho de inhumación, derecho de exhumación, alquiler de nicho municipal, exhumación judicial y traslado de restos humanos.
+(Nota de Sinalevi: El Reglamento de Operación y mantenimiento del Cementerio Municipal de Tilarán, debe de consultarse en la base de datos del Sistema Nacional de legislación Vigente de forma independiente)
+b) Igualmente adoptar como Reglamento para el otorgamiento de subvenciones a organizaciones que prestan servicios al cantón, centros de educación pública, beneficencia o servicio social, la publicación hecha del mismo en el Alcance N° 81 a La Gaceta N° 69 del 20 de abril de 2018.
+2º—Se declara acuerdo definitivamente aprobado. Tilarán, cinco de diciembre del dos mil dieciocho
+(Nota de Sinalevi: Tal y como se indica anteriormente el texto que se incluye fue publicado como proyecto en el Alcance Digital N° 81 a La Gaceta N° 69 del 20 de abril de 2018, y se transcribe a continuación:)
+MUNICIPALIDAD DE TILARÁN
+REGLAMENTO PARA EL OTORGAMIENTO DE SUBVENCIONES A ORGANIZACIONES QUE
+PRESTAN SERVICIOS AL CANTON, CENTROS DE EDUCACION PUBLICA, BENEFICENCIA O
+SERVICIO SOCIAL
+El Concejo Municipal de Tilarán, en sesión ordinaria No. 87 celebrada el 09 de enero del 2018, artículo 16, acuerdo No. 009, por unanimidad y en firme, acordó aprobar el presente REGLAMENTO PARA EL OTORGAMIENTO DE SUBVENCIONES A ORGANIZACIONES QUE PRESTAN SERVICIOS AL CANTON, CENTROS DE EDUCACION PUBLICA, BENEFICENCIA O SERVICIO SOCIAL, de conformidad con las disposiciones de los artículos 75, 169 y 170 de la Constitución Política, en relación con el numeral 4, párrafo primero, inciso a) y 13 incisos c) y d), 43 y 62 del Código Municipal, el cual se transcribe a continuación:
+CAPITULO I
+De las ayudas y subvenciones por prestación de servicios al cantón.
+Artículo 1º- Del ámbito de aplicación: Para los efectos de este Reglamento se define organización prestataria de servicios al cantón de Tilarán y sujetos de subvenciones municipales a los centros de educación pública, a las organizaciones o grupos de beneficencia y de servicio social que tengan proyección a la comunidad y brinden apoyo a personas necesitadas en situación de necesidad, riesgo y vulnerabilidad como niñez, personas especiales, adulto mayor, comprende aquellas que apoyan con un fin social, situaciones comprobadas de emergencia causantes de desgracia o infortunios, por hechos de la naturaleza, fuerza mayor o caso fortuito, se incluyen las organizaciones religiosas de credo católico, conforme lo preceptuado en la Constitución, artículo 75

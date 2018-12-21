@@ -1,0 +1,1 @@
+Artículo 9º- La Municipalidad otorgará las ayudas con base en lo dispuesto en el presente reglamento, solamente una vez por año, para los grupos y organizaciones establecidas en el artículo 1. Para ello se establecerá un control y registro de adjudicatarios.

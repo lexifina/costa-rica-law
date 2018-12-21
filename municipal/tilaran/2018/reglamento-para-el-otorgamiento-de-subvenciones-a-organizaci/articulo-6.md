@@ -1,0 +1,1 @@
+Artículo 6º- Del monto de la ayuda: El monto de la ayuda económica será aprobado por el Concejo Municipal, según las necesidades del centro educativo u organizaciones que lo ameriten, monto que no podrá exceder el total de dos salarios base anualmente fijado para penas por la comisión de faltas, conforme el párrafo tercero del artículo 2 de la Ley 7337 de 5 de mayo de 1993.

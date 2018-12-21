@@ -1,0 +1,1 @@
+Artículo 4º- Las ayudas brindadas por parte de la municipalidad serán en materiales de construcción, alimentos, repuestos e implementos deportivos, transporte, implementos médicos, ortopédicos, audiovisuales y medicinas.
