@@ -1,0 +1,1 @@
+Artículo 6º—Del MINAE. El MINAE, en cumplimiento de la Ley N° 9518, proporcionará a las instituciones del sector público el apoyo y la orientación relacionada con las tecnologías requeridas para la renovación de la flota vehicular en el sector público, según las disposiciones contenidas en la presente Directriz.

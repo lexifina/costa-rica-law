@@ -1,0 +1,2 @@
+Artículo 5º—Verificación de cumplimiento. El MINIE será la autoridad competente para dar seguimiento del acatamiento de la presente norma y de informa a la Presidencia de la República sobre la ejecución de la misma. Para lo anterior, las instituciones de la Administración Pública rendirán un informe semestral ante ese Ministerio sobre el cumplimiento de esta Directriz.
+Asimismo, informarán a los coordinadores de la CTE para la respetiva trazabilidad y cuantificación de los beneficios de la tecnología seleccionada por las instituciones.

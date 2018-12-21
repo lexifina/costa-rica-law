@@ -1,0 +1,4 @@
+Artículo 2º—La transición de la flota vehicular en el sector público. Se instruye a las instituciones de la Administración Pública para que lleven a cabo la transición hacia una flota vehicular cero emisiones, mediante la adquisición únicamente de vehículos eléctricos o cero emisiones, en la medida de sus posibilidades.
+Para ello se les insta a la elaboración de todos los planes de adquisición de vehículos en correspondencia con la presente directriz y en atención a las disposiciones establecidas en la Ley
+para Incentivos y Promoción para el Transporte Eléctrico, Ley número 9518 de 25 de enero de 2018.
+Dichos planes deberán ser parte de las acciones definidas en el componente transversal de adquisición de bienes y transferencia tecnológica de los PGAI y así como la consideración de las disposiciones de la Política Nacional de Compras Públicas Sustentables.

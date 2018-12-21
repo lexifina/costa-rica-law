@@ -1,0 +1,1 @@
+Artículo 4º—Uso eficiente de vehículos Las instituciones de la Administración Pública promoverán hábitos de eficiencia en el uso de los vehículos institucionales, para lo cual incluirán en el PGAI las medidas y acciones que ejecutarán para la puesta en práctica de esta disposición.
