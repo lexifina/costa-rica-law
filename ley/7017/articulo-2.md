@@ -72,6 +72,11 @@ igualmente en este inciso los ácidos grasos extraídos del "TALL OIL" con un
 contenido en ácidos grasos igual o superior a 90% en peso del producto
 anhidro. Cuando el contenido de ácidos grasos es inferior a 90% se
 clasifican en la partida 38.05.
+NOTA DE SINALEVIi: Mediante Resolución N° 399-2018 (COMIECO-DCXXIII) de fecha 28 de junio de 2018 publicada mediante decreto ejecutivo N° 41391 del 16 de julio del 2018, en La Gaceta N° 226 del 5 de diciembre del 2018, aprueba la adopción, por parte de la República de Panamá, del código, la descripción y los Derechos Arancelarios a la Importación (DAI) del Arancel Centroamericano de Importación, para los incisos arancelarios correspondientes a grasas y aceites, en la forma y plazos que aparecen en el Anexo de la presente Resolución y que forma parte integrante de la misma.
+[imagen]
+[imagen]
+[imagen]
+Así mismo, quedan sin efecto los incisos arancelarios de las grasas y aceites de los Anexos 5.1 y 5.2 del Protocolo de Incorporación, incluidos en el Anexo a que hace referencia el punto primero de la Resolución N° 399-2018 (COMIECO-LXXXIII) de fecha 28 de junio de 2018.
 A la sección IV
 (IV-A) En esta sección se entiende por "envases herméticamente
 cerrados", aquellos envases en los que se puede producir el vacío
