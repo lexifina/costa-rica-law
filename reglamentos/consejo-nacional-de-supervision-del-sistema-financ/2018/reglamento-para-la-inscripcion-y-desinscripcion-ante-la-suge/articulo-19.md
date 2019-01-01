@@ -1,0 +1,1 @@
+Artículo 19. Publicación en el registro de la SUGEF. El registro de inscripciones, suspensiones, desinscripciones, revocaciones, y de los que se nieguen a inscribirse ante la SUGEF, se publicará por los medios dispuestos y autorizados por la SUGEF. Relaciones comerciales con entidades financieras supervisadas

@@ -1,0 +1,16 @@
+# Reglamento (2018-10-08)
+
+Reglamento para la inscripción y desinscripción ante la SUGEF de los sujetos obligados que realizan alguna o algunas de las actividades en los artículos 15 y 15 bis de ley estupefacientes sustancias psicotrópicas, drogas de uso no autorizado (SUGEF 11-18)
+
+- Tipo: Reglamento
+- Número: 1450
+- Fecha: 2018-10-08
+- Ente emisor: Consejo Nacional de Supervisión del Sistema Financiero
+- Publicación: La Gaceta N° 213 del 2018-11-16, Alcance 196
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=87558&param2=114155&param3=1 (ficha 87558)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2019-01-01 | la propia norma |

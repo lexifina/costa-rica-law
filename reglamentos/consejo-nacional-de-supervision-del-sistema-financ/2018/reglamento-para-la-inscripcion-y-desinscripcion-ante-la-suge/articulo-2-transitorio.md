@@ -1,0 +1,7 @@
+Transitorio segundo: Los sujetos obligados a los que se refieren los artículos 15 y 15 bis de la Ley 7786, que a la entrada en vigencia de este Reglamento mantienen relaciones comerciales con las entidades financieras y que no se encuentran inscritos ante la SUGEF, deberán tramitar su inscripción en un plazo máximo de seis meses a partir de la entrada en vigencia de este Reglamento.
+Las entidades financieras deberán velar porque los sujetos obligados cumplan con la obligación antes mencionada en el plazo establecido.
+Una vez notificados de su inscripción ante la SUGEF, los sujetos inscritos, deben remitir dicha información a las entidades financieras, para poder continuar con sus relaciones comerciales.
+Disposiciones derogatorias
+Derogatoria única: Deróguese la “Normativa para la inscripción ante la Superintendencia General de Entidades Financieras de personas físicas o jurídicas que realizan algunas de las actividades descritas en el artículo 15 de la Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, legitimación de capital y actividades conexas, Ley 8204” (Acuerdo SUGEF 11-06), aprobada por el Consejo Nacional de Supervisión del Sistema Financiero en el artículo 10 del acta de la sesión 597-2006 del 17 de agosto de 2006, publicada en el diario oficial La Gaceta 171, del 6 de setiembre de 2006.
+Disposiciones finales
+Disposición final única. El presente Reglamento entrará en vigencia a partir del 1° de enero de 2019.

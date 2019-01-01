@@ -1,0 +1,1 @@
+Artículo 21. Cuentas, productos o servicios para realizar las actividades. Los sujetos obligados deben mantener a su nombre, cuentas, productos o servicios, con entidades financieras supervisadas por alguna Superintendencia adscrita al CONASSIF, y utilizarlas de manera exclusiva para la(s) actividad(s) sujeta(s) a inscripción.

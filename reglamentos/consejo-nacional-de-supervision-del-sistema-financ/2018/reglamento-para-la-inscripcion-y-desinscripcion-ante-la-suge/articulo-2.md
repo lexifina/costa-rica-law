@@ -1,0 +1,1 @@
+Artículo 2. Alcance. Este Reglamento aplica a los sujetos que realicen actividades establecidas en los artículos 15 y 15bis de la Ley 7786 y que no estén supervisados por alguna de las Superintendencias adscritas al CONASSIF.

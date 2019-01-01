@@ -1,0 +1,1 @@
+Artículo 18. Plazo de vigencia de la inscripción. La inscripción será otorgada por un plazo indefinido, pero podrá ser suspendida o revocada de presentarse alguna de las causales establecidas en este Reglamento.
