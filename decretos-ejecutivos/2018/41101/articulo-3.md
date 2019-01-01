@@ -1,0 +1,1 @@
+Artículo 3º—Las instituciones deberán destinar los recursos necesarios que permitan implementar las modificaciones efectuadas al “Clasificador Presupuestario de los Ingresos del Sector Público” de uso generalizado para el Sector Público.
