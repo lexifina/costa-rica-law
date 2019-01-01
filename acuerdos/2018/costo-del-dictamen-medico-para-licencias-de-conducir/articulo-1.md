@@ -1,0 +1,4 @@
+COLEGIO DE MÉDICOS Y CIRUJANOS DE COSTA RICA
+Colegio de Médicos y Cirujanos de Costa Rica, Ccmunica que: La Junta de Gobierno del Colegio de Médicos y Cirujanos de Costa Rica, en la Sesión Ordinaria 2018-12-12, del 12 de diciembre del 2018 aprobó el siguiente reajuste en el costo por Dictamen Médico para Licencias de Conducir:
+El ajuste realizado al precio del Dictamen Médico para Licencias de Conducir, para el público, es en virtud de la actualización de costos que generan los procesos de elaboración de los Dictámenes de Licencia Digital (Plataforma digital, medidas de seguridad, incremento en los costos de material y elaboración, entre otros). En consecuencia, el valor de cada dictamen al público tendrá un precio total de ¢21.800,00 (veintiún mil ochocientos colones exactos); dicho monto incluye los timbres obligatorios de ley: médico y timbre de Cruz Roja.
+Este incremento empezará a regir a partir del 01 de enero 2019.
