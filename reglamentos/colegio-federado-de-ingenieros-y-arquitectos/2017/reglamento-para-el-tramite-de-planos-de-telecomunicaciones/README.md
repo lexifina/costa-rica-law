@@ -15,3 +15,4 @@ Reglamento para el trámite de planos de telecomunicaciones
 | --- | --- | --- |
 | 1 | 2019-01-01 | la propia norma |
 | 2 | 2019-01-01 | Reglamento 29 (2018-07-10) |
+| 3 | 2019-01-01 | Reglamento 41 (2018-10-16) |
