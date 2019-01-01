@@ -1,0 +1,1 @@
+Artículo 5º-Derogase el Decreto Ejecutivo Nº 34700-H, publicado en La Gaceta Nº 163 del 25 de agosto del 2008, denominado "Normas y Criterios Operativos para la utilización de los Clasificadores Presupuestarios del Sector Público".
