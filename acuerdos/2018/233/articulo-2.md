@@ -1,0 +1,1 @@
+Artículo 2º—Derogar los lineamientos incluidos en el acuerdo SGV-A-139, con el objetivo de incorporar las nuevas cuentas de orden grupos 850 y 870 que se ajustan a las cuentas de orden propuestas en el Reglamento de Información Financiera.
