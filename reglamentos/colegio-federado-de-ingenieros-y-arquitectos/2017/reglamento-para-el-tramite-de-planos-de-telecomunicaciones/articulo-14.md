@@ -1,0 +1,2 @@
+Artículo 14. Radiodifusión sonora, televisión satelital y transmisión inalámbrica.
+En toda edificación en la que se prevea la instalación de servicios de radiodifusión sonora, televisión por satélite y transmisión inalámbrica de datos, se deberá reservar espacio físico suficiente, libre de obstáculos, para la instalación de los elementos emisores o receptores de señal, así como las previstas de canalización desde los puntos de ubicación de dichos elementos hasta el cuarto de telecomunicaciones o cuarto de equipos, según corresponda.

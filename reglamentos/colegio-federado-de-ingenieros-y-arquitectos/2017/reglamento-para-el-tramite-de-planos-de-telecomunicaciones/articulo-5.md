@@ -1,0 +1,1 @@
+Artículo 5. Profesional responsable. El profesional responsable de cualquier proyecto de telecomunicaciones debe ser profesional en: Ingeniería Electrónica, Ingeniería Electrónica y Telecomunicaciones, Ingeniería en Telecomunicaciones o Ingeniería Eléctrica con énfasis en Electrónica y Telecomunicaciones, autorizado por el CIEMI o el CITEC según corresponda.

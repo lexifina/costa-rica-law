@@ -1,0 +1,1 @@
+Artículo 4. Elaboración de un proyecto. Todo proyecto de telecomunicaciones debe contar para su aprobación, cálculo, diseño, inspección, dirección técnica y administración con un profesional responsable, miembro del CFIA, de acuerdo a lo indicado en el artículo 5 del presente reglamento.

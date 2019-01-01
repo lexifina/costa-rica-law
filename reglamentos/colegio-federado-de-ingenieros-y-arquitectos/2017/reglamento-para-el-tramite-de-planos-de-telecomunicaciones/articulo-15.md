@@ -1,0 +1,2 @@
+Artículo 15. Sistemas de seguridad electrónica, video vigilancia, control de acceso y automatización de edificios.
+En conjunto con el diseño de telecomunicaciones, y en donde sea necesario, se deben diseñar los sistemas de seguridad electrónica, video vigilancia, control de acceso y sistemas de automatización de edificios, de manera tal que estos sistemas se logren integrar a la red de telecomunicaciones del proyecto.
