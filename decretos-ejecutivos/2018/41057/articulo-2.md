@@ -1,0 +1,5 @@
+Artículo 2°-Modificase el artículo 55 del Decreto Ejecutivo No. 32988- H-MP-PLAN, publicado en La Gaceta 74 de 18 de abril del 2006 y sus reformas corno se indica a continuación:
+"Artículo 55. - Firmeza de los registros. El registro de las operaciones contables que se realizan durante el proceso de ejecución presupuestaria, adquirirá su firmeza cuando:
+a) Haya sido completado satisfactoriamente el procedimiento establecido para su registro electrónico en los sistemas de información que autorice el ente rector del Sistema de Administración Financiera.
+b) Los documentos que se generan en el proceso cumplan con los requerimientos técnicos y jurídicos establecidos en los Manuales de Procedimientos del Sistema Integrado de la Gestión de la Administración Financiera y la normativa legal vigente.
+Como complemento al Clasificador Presupuestario por Objeto del Gasto, en los procesos de presupuestación y adquisición de bienes y servicios, el Ministerio de Hacienda preparó un módulo de consulta que despliega el código de clasificación del Sistema Integrado de Compras Públicas (SICOP), con las imputaciones presupuestarias asociadas."
