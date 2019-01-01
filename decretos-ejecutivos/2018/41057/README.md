@@ -14,3 +14,4 @@ Reforma Decreto Ejecutivo N° 31459 "Emite " Clasificador Presupuestario por Obj
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-01-01 | la propia norma |
+| 2 | 2019-01-01 | Decreto Ejecutivo 41264 (2018-05-17) |

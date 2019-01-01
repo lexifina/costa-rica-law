@@ -1,2 +1,4 @@
-Artículo 6º-Rige a partir de su publicación.
+(Nota de Sinalevi: Mediante el artículo 6° del decreto ejecutivo N° 45082 del 16 de junio de 2025, que aprobó el Clasificador por objeto del gasto del sector público de uso generalizado para el sector público, se derogará este numeral. De conformidad con el numeral 3° del decreto antes mencionado, el mismo se implementará para la formulación de los Presupuestos Ordinarios del ejercicio presupuestario del 2027, por lo que a partir del 1° de enero de 2027, se derogará este artículo.)
+Artículo 6º- Rige a partir del ejercicio presupuestario 2019.
+(Así reformado por el artículo 6° del decreto ejecutivo N° 41264 del 17 de mayo del 2018, “Normas y Criterios Operativos para la utilización de los Clasificadores Presupuestarios del Sector Público”)
 Dado en la Presidencia de la República, el día veintiuno de marzo del año dos mil dieciocho.
