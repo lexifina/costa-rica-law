@@ -1,0 +1,32 @@
+DIRECCIÓN GENERAL DE TRIBUTACIÓN
+Nº DGT-R-054-2018.—Dirección General de Tributación.— San José, a las ocho horas y cinco minutos del once de octubre del dos mil dieciocho.
+Considerando:
+I.—Que el artículo 99 del Código de Normas y Procedimientos Tributarios confiere facultades a esta Dirección General, para dictar normas generales que permitan la correcta aplicación de las leyes tributarias.
+II.—Que de conformidad con lo establecido en los artículos 4º y 10 de la Ley N° 8683 de 19 de noviembre del 2008, denominada “Ley del Impuesto Solidario para el Fortalecimiento de Programas de Vivienda”, para determinar el valor fiscal de los bienes gravados por esa Ley, se deberán utilizar los parámetros establecidos por la Dirección General de Tributación, los cuales se indican tanto en el Manual de Valores Base Unitarios por Tipología Constructiva para el caso de las construcciones y las instalaciones, así como en los criterios técnicos y modelos de valoración. Para estos efectos se emiten además los Mapas y las Matrices de Valores por Zonas Homogéneas. Ambos documentos constituyen los “Parámetros de Valoración” aplicables para determinar la base imponible de este impuesto.
+III.—Que la Dirección General de Tributación, publicó –por primera vez- los “Parámetros de Valoración” en referencia, mediante la Resolución N° 30-2009 del 24 de setiembre del 2009, publicada en el Alcance N° 40 a La Gaceta N° 189 del 29 de setiembre de 2009, estableciendo en el artículo 3 los parámetros que constituyen los criterios técnicos para la valoración de construcciones y terrenos, junto con el procedimiento para determinar el valor fiscal del inmueble objeto del impuesto, así como los “Factores de Corrección para la Valoración de Terrenos”.
+IV.—Que para efectos de actualizar anualmente los “Parámetros de Valoración”, la Dirección General de Tributación, a partir del período fiscal 2010, ha procedido a reformar la disposición contenida en el artículo 3 de la citada Resolución, para poner en vigencia los nuevos parámetros, siendo la última actualización la contenida en la Resolución N° DGT-R-50-2017, publicada en La Gaceta N° 215 del 14 de noviembre del 2017, vigente para el período fiscal 2018.
+V.—Que el Órgano de Normalización Técnica con base al artículo 12 de la Ley 7509 ha modificado los Mapas y Matrices de Valores por Zonas Homogéneas, de los distritos correspondientes a los cantones de Alajuelita y Curridabat de la provincia de San José; San Ramón, Zarcero, Valverde Vega, Upala, Los Chiles y Guatuso de la provincia de Alajuela; Santa Cruz de la provincia de Guanacaste y los correspondientes a los cantones de Puntarenas, Esparza y Montes de Oro de la provincia de Puntarenas, razón por la cual, esta Dirección General, debe modificar la disposición contenida en el artículo 1° de la Resolución N° DGT-R-50-2017 de referencia, para incluir esas variaciones, y para indicar la vigencia del “Manual de Valores Base Unitario por Tipología Constructiva, edición 2017” a efecto de la determinación del valor del inmueble de uso habitacional para el período fiscal 2019, según cuadro que a continuación se detalla:
+MAPAS Y MATRICES MODIFICADOS
+Provincia | Código | Cantón | Código | Distrito
+San José | 1 | Alajuelita | 10 | 01 al 05
+San José | 1 | Curridabat | 18 | 01 al 03
+Alajuela | 2 | San Ramón | 2 | 01 al 13
+Alajuela | 2 | Zarcero | 11 | 01 al 07
+Alajuela | 2 | Valverde Vega | 12 | 01 al 05
+Alajuela | 2 | Upala | 13 | 01 al 07
+Alajuela | 2 | Los Chiles | 14 | 01 al 04
+Alajuela | 2 | Guatuso | 15 | 01 al 03
+Guanacaste | 5 | Santa Cruz | 03 | 01 al 09
+Puntarenas | 6 | Puntarenas | 1 | 01 al 16
+Puntarenas | 6 | Esparza | 2 | 01 al 05
+Puntarenas | 6 | Montes de Oro | 4 | 01 al 03
+VI.—Que, en consecuencia, para efectos del período fiscal 2019, se debe aplicar el Manual de Valores Base Unitario por Tipología Constructiva, edición 2017 (MVBUTC) vigente para determinar el valor de las construcciones e instalaciones, y los Mapas y las Matrices de Valores por Zonas Homogéneas establecidos en el artículo 1° de la Resolución N° DGT-R-50-2017, para la determinación del valor de los terrenos por zonas homogéneas modificados en lo referente a los Mapas y las Matrices de Valores por Zonas Homogéneas de los distritos indicados en el considerando.
+VII.—Que, conforme al artículo 10 de la Ley N° 8683, publicada en La Gaceta N°239 del 10 de diciembre del 2008, los parámetros de valoración que rigen a partir del período fiscal 2019 serán puestos a disposición de los interesados por esta Dirección General, con cuarenta y cinco días de anticipación al inicio del período fiscal, en la página Web de esta Dirección.
+VIII.—Que, por existir en el presente caso, razones legales, de interés público y de urgencia, que obligan a la publicación de los Parámetros de Valoración aplicables al periodo fiscal 2019, cuarenta y cinco (45) días antes del 01 de enero de ese año, se prescinde de someter el presente proyecto de resolución a la audiencia que establece el artículo 174 del Código de Normas y Procedimientos Tributarios por encontrarnos en una situación de urgencia prevista por el mismo artículo. Por tanto,
+RESUELVE:
+Artículo 1º—Se modifica el artículo 3º de la Resolución Nº 30-2009 del 24 de setiembre del 2009, para que diga:
+“Artículo 3º—Parámetros de Valoración. Se consideran criterios técnicos, al amparo de lo dispuesto en el artículo 9º del Reglamento de la Ley citada, los parámetros de valoración, que se detallan seguidamente:
+a) El Manual de Valores Base Unitario por Tipología Constructiva, edición 2017, Este manual se utiliza únicamente para la valoración de construcciones y demás instalaciones fijas y permanentes y está disponible en la dirección:
+https://www.hacienda.go.cr/contenido/14595-fundamentolegal-impuesto-solidario-iso
+b) Los Mapas y las Matrices de Valores por Zonas Homogéneas se utilizan para la valoración de los terrenos, aplicables en todos los cantones del país, incluyendo los cantones actualizados de Alajuelita y Curridabat de la provincia de San José; San Ramón, Zarcero, Valverde Vega, Upala, Los Chiles y Guatuso de la provincia de Alajuela; Santa Cruz de la provincia de Guanacaste y los correspondientes a los cantones de Puntarenas, Esparza y Montes de Oro de la Provincia de Puntarenas. que se indican en el considerando quinto de la presente resolución. Estos parámetros están disponibles en la dirección:
+https://www.hacienda.go.cr/contenido/14595-fundamentolegal-impuesto-solidario-iso
