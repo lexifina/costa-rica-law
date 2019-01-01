@@ -14,3 +14,4 @@ Reforma decreto ejecutivo N° 31458 "Emite "Clasificador Presupuestario de los I
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-01-01 | la propia norma |
+| 2 | 2019-01-01 | Decreto Ejecutivo 41264 (2018-05-17) |
