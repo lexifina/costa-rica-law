@@ -1,0 +1,1 @@
+4. El porcentaje de acumulación mensual del 2,5%, para calcular el registro mensual del gasto por componente contra cíclico, se aplicará a partir del 1 de enero del 2019 y, estará sujeto a revisión en los primeros seis meses del año 2019.
