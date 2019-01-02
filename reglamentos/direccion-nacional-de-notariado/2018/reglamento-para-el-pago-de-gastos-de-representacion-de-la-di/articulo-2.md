@@ -1,0 +1,1 @@
+Artículo 2º—De la disponibilidad presupuestaria. La asignación presupuestaria anual de gastos de representación y la ejecución de los recursos se harán en apego a los principios de economía, austeridad y probidad propios del ejercicio de la función pública.

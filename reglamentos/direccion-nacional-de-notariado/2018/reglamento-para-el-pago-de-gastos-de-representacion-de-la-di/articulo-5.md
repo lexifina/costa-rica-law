@@ -1,0 +1,2 @@
+Artículo 5º—Deber de verificación. La Unidad Administrativa deberá verificar el cumplimiento de todos los requisitos señalados en el Reglamento para el pago de Gastos de Representación en el Gobierno de la República y sus Órganos Adscritos Decreto Ejecutivo 32031 del 31 de marzo del 2004 y el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos.
+En ningún caso se tramitarán liquidaciones que incumplan con lo dispuesto esa y en esta normativa.
