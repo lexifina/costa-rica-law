@@ -1,0 +1,5 @@
+Artículo 20.—Dietas. Los miembros de las Juntas de Crédito Local devengarán una dieta por cada sesión a la que asistan, equivalente al 2,5% del salario base del Contralor General de la República.
+Cuando por razones de fuerza mayor la persona titular deba ser sustituida por su respectiva suplente, la dieta será devengada por quien funja con voz y voto durante la mayor parte de la sesión.
+Dichas dietas serán canceladas dentro de los primeros 5 días hábiles de cada mes.
+La ausencia, llegada tardía por más de 15 minutos después de iniciada la sesión o el abandono de ella sin la debida justificación avalada por la presidencia de la Junta de Crédito Local, ocasionará la pérdida de la respectiva dieta.
+El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta y deroga el Reglamento de las Juntas de Crédito Local aprobado por la Junta Directiva Nacional en la sesión N° 5420, celebrada el 22 de noviembre de 2016 y publicado en La Gaceta N° 244 del día 20 de diciembre del año 2016, así como cualquier otra norma de igual o inferior rango que se le oponga”.

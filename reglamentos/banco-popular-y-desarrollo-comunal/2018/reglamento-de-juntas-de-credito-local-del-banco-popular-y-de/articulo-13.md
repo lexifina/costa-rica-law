@@ -1,0 +1,5 @@
+Artículo 13°—Facultades y atribuciones del secretario. La secretaria de la Junta de Crédito Local estará a cargo del funcionario que designe el Gerente General Corporativo y realizará las siguientes funciones:
+a. Levantar las actas de las sesiones de la Junta de Crédito Local, las cuales se asentarán en el respectivo libro de actas e indicarán los asistentes, las circunstancias de lugar y tiempo en que se han celebrado, los puntos principales de la deliberación, la forma, el resultado de la votación y el contenido de los acuerdos, todo lo cual deberá permitir conocer el motivo de los actos. Dichas actas serán firmadas por el presidente, el secretario de la Junta de Crédito Local y quien hubiere hecho constar su voto disidente.
+b. Archivar debidamente los documentos correspondientes a cada sesión junto con las copias de las comunicaciones.
+c. Comunicar las resoluciones de la Junta de Crédito Local cuando ello no corresponda al presidente.
+d. Cualesquiera otras funciones que le encargue la Junta de Crédito Local, compatibles con sus responsabilidades.
