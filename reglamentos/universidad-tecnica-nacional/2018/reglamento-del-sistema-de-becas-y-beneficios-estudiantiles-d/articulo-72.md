@@ -1,0 +1,1 @@
+Artículo 72—Sobre la asignación de becas y beneficios sujetos a contenido presupuestario. Toda asignación de beca o beneficio estudiantil que regule el presente reglamento está sujeta a la existencia de contenido presupuestario.

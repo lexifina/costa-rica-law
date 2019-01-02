@@ -1,0 +1,1 @@
+Artículo 20 —Sobre las notificaciones. La Vicerrectoría de Vida Estudiantil y las Coordinaciones del Área de Vida Estudiantil de las Sedes utilizarán medios de comunicación institucionales para notificar y garantizar una comunicación adecuada con los y las estudiantes acerca de los procesos relacionados a becas y otros beneficios estudiantiles.

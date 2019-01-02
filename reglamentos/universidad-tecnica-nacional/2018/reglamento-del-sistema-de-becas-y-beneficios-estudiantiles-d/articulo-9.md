@@ -1,0 +1,1 @@
+Artículo 9 — Quórum del Comité para el análisis del Presupuesto de Becas y Beneficios Estudiantiles. El quórum para sesionar en el Comité para el análisis del presupuesto de becas y beneficios estudiantiles” es la mitad más uno de sus integrantes.

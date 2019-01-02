@@ -1,0 +1,2 @@
+Artículo 38 —Carga académica y vigencia de la beca por adecuaciones curriculares. Los estudiantes que por razones de adecuación curricular no puedan llevar la carga académica para gozar de beca, serán eximidos de matricular y aprobar el mínimo de créditos establecido y en su lugar se exigirá el número de créditos que recomiende el Subárea de Bienestar Estudiantil que lleva el caso.
+La vigencia de la beca se puede prorrogar de acuerdo a las condiciones de las adecuaciones curriculares recomendadas.

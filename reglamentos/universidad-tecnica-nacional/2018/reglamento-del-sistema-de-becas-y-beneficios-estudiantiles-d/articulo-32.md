@@ -1,0 +1,1 @@
+Artículo 32 —Pagos obligatorios. El pago por concepto de matrícula, cuota de vida Estudiantil, póliza estudiantil, carné, uso de laboratorios, fondo de garantía de residencias y derechos de graduación no están sujetos a ningún tipo de exoneración.

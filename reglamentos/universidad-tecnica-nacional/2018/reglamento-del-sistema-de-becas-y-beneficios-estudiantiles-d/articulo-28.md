@@ -1,0 +1,3 @@
+Artículo 28 —De las condiciones de suspensión de la beca. La suspensión de la beca se otorga por un máximo de cuatro cuatrimestres consecutivos, por una única vez.
+Al matricularse de nuevo, el estudiante reanuda el periodo de su beca en las mismas condiciones en que ésta se encontraba al momento de efectuar la suspensión, si realiza su matrícula antes de un año.
+Si la condición de la suspensión supera el plazo de un año, se debe realizar por parte del Subárea de Becas y Beneficios Estudiantiles, una revaloración de la beca y los beneficios estudiantiles, cuyo resultado se aplicará al cuatrimestre siguiente al de su regreso.

@@ -1,0 +1,2 @@
+Artículo 25 —Vigencia de la beca socioeconómica para estudiantes del CFPTE. Con el fin de promover la formación pedagógica en los estudiantes, quienes cuenten con beca socioeconómica vigente para cualquier carrera de la Universidad y que simultáneamente cursen el Bachillerato o Licenciatura en la Enseñanza del CFPTE, podrán optar por la beca en ambas carreras siempre y cuando cumpla con los requisitos establecidos en este reglamento.
+Si el estudiante cuenta con una carrera técnica en la que ya ha cursado su grado terminal, la beca no podrá ser prorrogada para el CFPTE.
