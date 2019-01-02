@@ -1,0 +1,4 @@
+Artículo 25.—De las mayorías para adoptar acuerdos. Los acuerdos se tomarán por mayoría absoluta por las personas representantes del Comité Director, excepto en los casos siguientes:
+a) Declaratoria de firmeza de acuerdos en la misma sesión, en cuyo caso se requerirá de la votación favorable de no menos de cuatro personas representantes presentes.
+b) Adopción, modificación, derogatoria de reglamentación interna, en cuyo caso se requerirá la votación favorable de no menos de cuatro personas representantes del Comité Director.
+c) Cuando la Comité Director determine que en la adopción de acuerdos específicos se requiera un criterio de mayoría superior. Para adoptar o derogar un acuerdo que impone una regla de mayoría distinta a la absoluta, se requerirá que el acuerdo sea adoptado por mayoría calificada, es decir, tres personas representantes del Comité Director.

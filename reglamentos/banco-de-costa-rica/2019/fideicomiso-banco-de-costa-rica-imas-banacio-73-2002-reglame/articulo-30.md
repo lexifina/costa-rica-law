@@ -1,0 +1,1 @@
+Artículo 30.—Recursos contra los acuerdos. La persona interesada podrá interponer recurso de reconsideración contra los acuerdos de la Comité Director del Fideicomiso, dentro del plazo legal. Cabrá recurso de reconsideración o reposición contra los acuerdos del órgano colegiado.

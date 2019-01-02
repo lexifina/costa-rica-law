@@ -1,0 +1,1 @@
+Artículo 15.—Periodicidad. El Comité Director se reunirá dos veces al mes de manera ordinaria, estableciendo las fechas de sesión de todo el año, mediante acuerdo específico, por lo que no hará falta convocatoria previa. Para celebrar sesiones extraordinarias se realizará convocatoria especial.
