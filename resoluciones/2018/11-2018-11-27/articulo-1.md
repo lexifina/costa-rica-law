@@ -1,0 +1,8 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+DG-AV-011-2018.—Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+I.- DG-162-2018: Asigna a las clases de Director de Liceo Bilingüe 1, 2 y 3, pertenecientes al Manual de Clases de Puestos Docentes, Título II del Estatuto de Servicio Civil y a la clase Profesor de Enseñanza Técnico Profesional Bilingüe (III ciclo y Educación Diversificada, Enseñanza Especial y Escuela Laboratorio) (G. de E), a la Escala de Sueldos de la Administración Pública.
+II.- DG-174-2018: Autoriza al Ministerio de Educación Pública, para que asigne el pago de sobresueldos por funciones administrativas propias de puestos sujetos al Título I del Estatuto de Servicio Civil, limitándolo a funcionarios que desempeñen labores de índole operativo y calificado, correspondientes a clases de puestos del Manual de Clases Anchas.
+III.- DG-180-2018: Modificar la Resolución DG-030-2010, que contienen las Vías de Carrera Administrativa Docente, específicamente en cuanto a eliminar la posibilidad de ascenso directo entre el Director de Enseñanza General Básica 1 y la clase de Asistente en Asesoría y Supervisión, por cuanto no cumple con lo establecido en los Artículos 3° y 20° del Reglamento del Estatuto de Servicio Civil y adicionar a la Resolución DG-030-2010, que contiene las Vías de Carrera Administrativa del Sector Docente del MEP, las posibilidades de ascenso directo para las clases de Asistente de Asesoría y Supervisión y Asistente de Asesoría y Supervisión Indígena.
+IV.- DG-186-2018: Variar provisionalmente los requisitos de las clases de puesto de Técnico de Servicio Civil 2 y 3 (G. de E.) Especialidad Operación Aeroportuaria.
+Publíquese.
+San José, 27 de noviembre del 2018
