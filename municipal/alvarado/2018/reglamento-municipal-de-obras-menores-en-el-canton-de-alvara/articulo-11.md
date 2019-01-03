@@ -1,0 +1,1 @@
+Artículo 11.—Exhibición del Certificado de Licencia. Toda licencia de construcción debe ser colocada en un lugar visible, de manera que facilite las labores de inspección y control por parte de la Municipalidad.

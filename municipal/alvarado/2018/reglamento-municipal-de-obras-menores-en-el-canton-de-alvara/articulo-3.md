@@ -1,0 +1,1 @@
+Artículo 3º—Cumplimiento. Ninguna de las obras contempladas en este reglamento serán autorizadas ni ejecutadas sin cumplir con el Plan Regulador y sus reglamentos, así como con la normativa nacional que resulte aplicable.
