@@ -1,0 +1,1 @@
+Artículo 37. -Este Decreto deroga, el Decreto Ejecutivo número 25099 de 19 de abril de 1996, el Decreto Ejecutivo número 26865-MOPT del 3 de abril de 1998, el Decreto Ejecutivo número 28542 de 15 de marzo .de 2000 y en lo que se oponga, cualquier disposición normativa de igual o inferior rango.

@@ -1,0 +1,2 @@
+Artículo 31.-Todas las Unidades Asesoras,. Departamentos y Unidades funcionales definidas en este Decreto, contarán con un responsable por los resultados de la gestión que desarrollan y se conformaran en equipos de trabajo por procesos, que permitan la flexibilidad y movilización de los recursos, de conformidad con las necesidades específicas.
+Asimismo contarán con las plazas técnicas, administrativas y profesionales que se requieran para su eficaz funcionamiento.

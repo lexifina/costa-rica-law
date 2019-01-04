@@ -1,0 +1,1 @@
+Artículo 32. - La .Dirección General de Servicio Civil clasificará y valorará a cada plaza componente de los equipos de trabajo, considerando, parte del nivel de dificultad y responsabilidad de sus tareas, el carácter especial y ámbito internacional de la actividad aeronáutica, además la Autoridad Presupuestaria efectuará dicho trámite de acuerdo a su competencia.

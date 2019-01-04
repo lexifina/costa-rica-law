@@ -1,0 +1,1 @@
+Artículo 36.-Los ajustes en cuanto a funciones y definiciones de procesos para la Dirección General de Aviación Civil serán analizados y aprobados por la Unidad de Planificación Institucional y el CETAC.
