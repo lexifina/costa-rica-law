@@ -1,0 +1,1 @@
+Artículo 3 °- El citado Plan se pone a disposición, para las personas que deban consultarlo, en la página web del Ministerio de Salud, cuya dirección electrónica es www.ministeriodesalud.go.cr. Y una versión impresa estará disponible en la Dirección de Vigilancia de la Salud.
