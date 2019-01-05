@@ -1,4 +1,5 @@
 N° 40659 -MOPT–MP
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 41690 del 15 de enero del 2019, se acordó suspender los efectos jurídicos del presente decreto ejecutivo por un período de 6 meses a partir de la publicación del decreto ejecutivo N° 41690 del 1 de enero del 2019, hasta el 21 de noviembre del 2019)
 EL PRESIDENTE DE LA REPÚBLICA, EL MINISTRO DE OBRAS PÚBLICAS Y
 TRANSPORTES Y EL MINISTRO DE LA PRESIDENCIA
 En uso de las potestades conferidas por los artículos 140, incisos 3, 8 y 18 de la Constitución Política, artículo 28 párrafo segundo, inciso b) de la Ley Nº 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública", artículos 1,3,4, 43, 45,46,46 bis y Transitorio VIII de la Ley Nº 7600 del 2 de mayo de 1996" Ley de Igualdad de Oportunidades para las Personas con Discapacidad", artículos 157 y 165 del Decreto Ejecutivo Nº 26831 del 23 de marzo de 1998 Reglamento a la ley de Igualdad de Oportunidades para Personas con Discapacidad artículos 35,52 y Transitorio XVIII de la Ley Nº 9078 de Tránsito por Vías Públicas Terrestres y Seguridad Vial del 4 de octubre de 2012 ..

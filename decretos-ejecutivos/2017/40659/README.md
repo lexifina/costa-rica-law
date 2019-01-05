@@ -14,3 +14,4 @@ Reforma reglamentaria para reforzar el uso de los estacionamientos reservados y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-12-06 | la propia norma |
+| 2 | 2019-01-05 | Decreto Ejecutivo 41690 (2019-01-05) |
