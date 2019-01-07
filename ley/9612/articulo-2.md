@@ -1,0 +1,1 @@
+ARTÍCULO 2- Se declara de interés público y relevancia cultural la celebración del Festival Internacional de Calipso, que se celebra en julio de cada año en la comunidad tribal de Cahuita por la Asociación de Desarrollo Integral de Cahuita.
