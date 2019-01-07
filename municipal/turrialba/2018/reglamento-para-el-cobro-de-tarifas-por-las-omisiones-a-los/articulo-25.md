@@ -1,0 +1,1 @@
+Artículo 25.—De otras multas. En caso de tratarse de violaciones a las obligaciones contenidas en los artículos 206 y 208 de la Ley de Tránsito por Vías Públicas Terrestres, se coordinarán las acciones y denuncias ante las autoridades administrativas y judiciales que correspondan.

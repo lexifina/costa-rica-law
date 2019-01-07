@@ -1,0 +1,1 @@
+Artículo 9º—La Municipalidad escogerá la modalidad bajo la cual hará efectivas dichas labores, sea por sus recursos institucionales o por contratación de servicios externos por medio de las normas establecidas en la Ley de Contratación Administrativa y sus reformas, Ley Nº 7494 y su reglamento.

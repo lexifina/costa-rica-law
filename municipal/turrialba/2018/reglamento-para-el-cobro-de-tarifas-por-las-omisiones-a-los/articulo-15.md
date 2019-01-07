@@ -1,0 +1,1 @@
+Artículo 15.—En la determinación del costo efectivo, la Municipalidad tomará como base el gasto real que tenga la realización de las obras y servicios que señala el artículo 75 del Código y este Reglamento en el artículo 13º, que estará sustentada en los costos reales.

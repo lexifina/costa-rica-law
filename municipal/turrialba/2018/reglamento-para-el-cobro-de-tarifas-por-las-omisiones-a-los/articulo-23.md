@@ -1,0 +1,1 @@
+Artículo 23.—Del cobro Administrativo- judicial: En caso de omisión de pago la Municipalidad sin necesidad de aviso previo, procederá al cobro de acuerdo al Reglamento de Cobro Administrativo- Judicial.

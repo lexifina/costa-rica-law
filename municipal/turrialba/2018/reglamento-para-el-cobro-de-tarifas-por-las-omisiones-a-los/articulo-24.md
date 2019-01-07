@@ -1,0 +1,1 @@
+Artículo 24.—De las multas: Las multas correspondientes a omisiones de deberes serán las planteadas en el art 76, 76 bis y 76 ter del Código Municipal, las mismas deberán ser actualizadas anualmente, en el mismo porcentaje en que aumente el salario base establecido en el art 2 de la Ley N° 7337 del 5 de mayo, 1993.

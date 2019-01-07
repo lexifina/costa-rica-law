@@ -1,0 +1,1 @@
+Artículo 10.—La Municipalidad bajo ninguna circunstancia ejecutará las obras o suministrará los servicios enunciados en el presente reglamento de forma gratuita, ni exonerará total o parcialmente el pago de cualquier multa, intereses o cuentas, salvo disposición legal que la autorice para ello.
