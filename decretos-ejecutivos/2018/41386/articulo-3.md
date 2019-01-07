@@ -1,0 +1,1 @@
+Artículo 3 °- La citada Estrategia se pone a disposición, para las personas que deban consultarla, en la página web del Ministerio de Salud, cuya dirección electrónica es www.ministeriodesalud.go.cr. Y una versión impresa estará disponible en la Secretaria Técnica de Salud Mental del Ministerio de Salud.
