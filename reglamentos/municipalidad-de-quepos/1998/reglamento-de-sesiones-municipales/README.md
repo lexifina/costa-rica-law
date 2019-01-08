@@ -16,3 +16,4 @@ Reglamento de Sesiones Municipales
 | 1 | 1998-10-16 | la propia norma |
 | 2 | 2010-11-16 | Reglamento municipal 55 (2010-11-16) |
 | 3 | 2018-12-18 | Reglamento municipal 253 (2018-12-18) |
+| 4 | 2019-01-08 | Reglamento municipal 257 (2019-01-08) |
