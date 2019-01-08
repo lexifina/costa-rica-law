@@ -1,0 +1,1 @@
+Artículo 43. Es obligación de la Municipalidad hacer las reparaciones que requiera el Acueducto Municipal. Las acometidas forman parte de las redes de acueductos y su mantenimiento y reparación corresponden a la Municipalidad.

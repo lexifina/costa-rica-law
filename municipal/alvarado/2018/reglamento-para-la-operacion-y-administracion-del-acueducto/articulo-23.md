@@ -1,0 +1,1 @@
+Artículo 23. Los usuarios que disfrutan del servicio de agua potable podrán solicitar al Departamento de Acueducto, cambio en el nombre de la cuenta y cambio en el uso del servicio(diferente categoría), para lo cual el Departamento determinará si se justifica, la solicitud del usuario.

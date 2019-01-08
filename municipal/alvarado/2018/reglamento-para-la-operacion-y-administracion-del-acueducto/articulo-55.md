@@ -1,0 +1,1 @@
+Artículo 55. Por atraso o vencimiento en el pago del servicio de agua potable, se cobrarán los intereses de conformidad con el Código de Normas y Procedimientos Tributarios y la multa mensual sobre el monto de la deuda que se establece en la Ley General de Agua Potable.

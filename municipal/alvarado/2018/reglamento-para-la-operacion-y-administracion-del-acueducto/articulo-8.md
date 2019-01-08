@@ -1,0 +1,1 @@
+Artículo 8. La Municipalidad no podrá rechazar solicitudes de servicio, salvo que la prestación no fuere posible por razones técnicas, escases del recurso hídrico o aspectos reglamentarios que impidieren otorgarlo. Para los efectos del citado rechazo, deberá darse por resolución razonada.

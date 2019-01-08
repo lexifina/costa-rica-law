@@ -1,0 +1,1 @@
+Artículo 22. En casos excepcionales y donde no exista medidor, en un bien inmueble que se abastezca de una misma paja de agua a varias unidades de ocupación, el recibo se calculará por unidades de ocupación y según los respectivos usos, y se cargará al abonado registrado.

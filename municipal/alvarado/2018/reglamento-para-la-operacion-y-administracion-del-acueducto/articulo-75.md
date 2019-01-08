@@ -1,0 +1,1 @@
+Artículo 75. En caso de que los propietarios del inmueble se negaren a trasladar estas propiedades o vendarlas a la Municipalidad, ésta podrá decretar la expropiación, con el fin de satisfacer el interés público, para lo cual aplicará la normativa especial para estos efectos.

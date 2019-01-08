@@ -1,0 +1,1 @@
+Artículo 2. Los recursos, que se deriven por concepto de las tarifas por los servicios de acueducto, serán considerados como fondos con destino específico para el mantenimiento, funcionamiento y desarrollo del sistema de acueducto, no pudiendo ser utilizados para otros fines.

@@ -1,0 +1,1 @@
+Artículo 63. El abonado que incurra en el desperdicio del agua, será notificado por única vez, y de persistir en la conducta, se procederá sin más trámite a la suspensión del servicio por el mal aprovechamiento del recurso.

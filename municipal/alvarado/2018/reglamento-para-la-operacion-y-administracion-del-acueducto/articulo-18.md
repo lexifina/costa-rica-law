@@ -1,0 +1,1 @@
+Artículo 18. Aprobada la solicitud, se comunicará por el medio indicado en el formulario, para que el abonado proceda a cancelar el derecho por nueva conexión, así como el costo por conexión o prevista. Si en el momento de realizar la conexión se detectan diferencias de costos, estas serán incluidas para su pago en el recibo que se factura por primera vez o en el mes siguiente.

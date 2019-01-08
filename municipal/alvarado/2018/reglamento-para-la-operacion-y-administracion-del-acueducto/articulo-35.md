@@ -1,0 +1,1 @@
+Artículo 35. La realización de los estudios deberá ser gestionada por el Departamento de Acueducto, a fin de garantizar la fiscalización, protección de la propiedad física e intelectual del Acueducto Municipal, así como la salud y el interés público.

@@ -1,0 +1,1 @@
+Artículo 21. Los costos de reparación de daños al hidrómetro, sus accesorios y tubería en general, ocasionados por culpa grave o dolo del abonado o terceros, se cargarán a la cuenta del abonado en la siguiente facturación o mediante comprobante de ingresos.

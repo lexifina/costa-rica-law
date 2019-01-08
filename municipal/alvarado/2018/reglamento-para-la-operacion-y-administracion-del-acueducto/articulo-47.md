@@ -1,0 +1,1 @@
+Artículo 47. Cuando se trata de un acueducto nuevo, remodelaciones o prolongaciones en las líneas de conducción y distribución, el Departamento de Acueducto solicitará a los interesados el 100% del costo de la obra.

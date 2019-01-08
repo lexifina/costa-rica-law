@@ -1,0 +1,1 @@
+Artículo 79. Las obras o edificaciones construidas por el departamento de acueducto deberán estar protegidas y resguardadas, para limitar el acceso de particulares, evitar la contaminación del líquido y posibles daños a las estructuras.

@@ -1,0 +1,1 @@
+Artículo 34. De requerirse estudios adicionales relacionados con la prestación del servicio de agua potable o inversión en infraestructura, el interesado podrá solicitarlos por escrito, al Departamento de Acueducto, para lo cual deberá cancelar los gastos correspondientes para esta gestión o inversión, sin que esto represente que la Municipalidad otorgue los permisos solicitados.

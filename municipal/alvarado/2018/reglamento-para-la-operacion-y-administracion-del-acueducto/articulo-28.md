@@ -1,0 +1,1 @@
+Artículo 28. Para la tramitación de las solicitudes de este capítulo el propietario del inmueble no deberá tener obligaciones económicas con la Municipalidad, cumplir con los requisitos establecidos y cancelar los costos correspondientes.

@@ -1,0 +1,1 @@
+Artículo 52. La deuda por servicio de agua potable impone hipoteca legal preferente sobre el bien inmueble en el que recae la obligación de pagarla, de conformidad con el artículo 70 del Código Municipal y el artículo 12 de Ley General de Agua Potable número 1634, por lo tanto, la propiedad responde directamente sobre el valor adeudado del servicio que no cancele.

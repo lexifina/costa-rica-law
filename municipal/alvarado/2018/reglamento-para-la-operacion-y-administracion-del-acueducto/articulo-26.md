@@ -1,0 +1,1 @@
+Artículo 26. El abonado que disfruta de una conexión temporal estará en la obligación de proporcionar la fecha de conclusión del evento o de la obra, una vez concluido este la Municipalidad deberá interrumpir el servicio temporal, siempre y cuando no exista una prórroga de plazo autorizada por el Departamento de Acueducto.

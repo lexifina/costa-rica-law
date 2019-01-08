@@ -1,0 +1,1 @@
+Artículo 20. En ningún caso los usuarios podrán utilizar una única paja de agua, para dos o más unidades de ocupación. La Municipalidad procederá a suspender de oficio la paja y el usuario deberá tramitar el o los nuevos servicios de agua que sean necesarios para que cada unidad de ocupación cuente con una sola acometida.

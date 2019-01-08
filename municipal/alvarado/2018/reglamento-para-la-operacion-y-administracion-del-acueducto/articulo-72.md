@@ -1,0 +1,1 @@
+Artículo 72. La Municipalidad podrá establecer convenios con otras municipalidades, organizaciones comunales, instituciones públicas o privadas, para cumplir con los fines del presente Reglamento referente a los hidrantes, de conformidad con los requisitos y procedimientos legales de contratación administrativa.

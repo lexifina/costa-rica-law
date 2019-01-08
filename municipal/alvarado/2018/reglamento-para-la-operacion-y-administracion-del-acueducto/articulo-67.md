@@ -1,0 +1,1 @@
+Artículo 67. En el caso de que el usuario incumpla con el pago oportuno del arreglo de pago, el área tributaria procederá de inmediato con el trámite de cobro judicial, independientemente dela nueva suspensión del servicio.

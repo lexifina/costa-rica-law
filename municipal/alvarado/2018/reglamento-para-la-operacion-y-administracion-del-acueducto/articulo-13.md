@@ -1,0 +1,1 @@
+Artículo 13. Es responsabilidad y obligación del abonado mantener en buenas condiciones de funcionamiento la instalación domiciliar. De lo contrario la Municipalidad no asume responsabilidad alguna, por el mal funcionamiento del sistema.

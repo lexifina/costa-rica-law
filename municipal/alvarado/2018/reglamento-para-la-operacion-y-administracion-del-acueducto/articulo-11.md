@@ -1,0 +1,1 @@
+Artículo 11. La Municipalidad prestará el servicio de agua potable, que se pagará de conformidad con los consumos efectuados y medidos a través del hidrómetro y se cobrará de acuerdo con las tarifas aprobadas por el Concejo Municipal y publicadas en el Diario Oficial La Gaceta.

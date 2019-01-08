@@ -1,0 +1,1 @@
+Artículo 69. La Municipalidad realizará la reconexión del servicio de agua potable dentro del plazo de 16 horas hábiles siguientes a la cancelación de lo adeudado, o bien de la suscripción del respectivo arreglo de pago.
