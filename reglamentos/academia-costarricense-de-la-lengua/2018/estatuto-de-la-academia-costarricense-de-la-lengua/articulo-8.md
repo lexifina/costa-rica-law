@@ -1,0 +1,1 @@
+Artículo VIII.—Son funciones privativas de los miembros numerarios las decisiones y acuerdos sobre aspectos gubernativos y administrativos, asuntos económicos y políticas institucionales generales, incluidas las declaraciones públicas oficiales.

@@ -1,0 +1,1 @@
+Artículo IX.—Son miembros en retiro aquellas personas numerarias que hayan presentado formalmente su renuncia a la silla que ocupan y a quienes la Academia Costarricense de la Lengua decida conferirles esa categoría.

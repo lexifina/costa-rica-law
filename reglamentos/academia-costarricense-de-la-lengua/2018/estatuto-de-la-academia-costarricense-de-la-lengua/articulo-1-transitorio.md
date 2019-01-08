@@ -1,0 +1,1 @@
+Transitorio I.—La actual junta directiva seguirá vigente, de conformidad con el período de su nombramiento (del 3 de junio de 2017 al 2 de junio de 2021, ambas fechas inclusive). El nombramiento de los demás miembros, a los que se refiere el artículo XV de este estatuto, se hará una vez que entre en vigencia y regirá hasta el 2 de junio de 2021, inclusive.

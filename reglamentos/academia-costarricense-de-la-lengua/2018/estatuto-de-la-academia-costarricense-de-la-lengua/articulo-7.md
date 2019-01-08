@@ -1,0 +1,1 @@
+Artículo VII.—Son académicos honorarios las personas nacionales o extranjeras a quienes la Academia Costarricense de la Lengua les confiere ese título en reconocimiento de sus méritos literarios, lingüísticos, científicos, artísticos o docentes. Pueden asistir a las sesiones ordinarias o extraordinarias, con voz pero sin voto.

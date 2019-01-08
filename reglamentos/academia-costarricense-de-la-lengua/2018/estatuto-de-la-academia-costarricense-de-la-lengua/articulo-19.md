@@ -1,0 +1,1 @@
+Artículo XIX.—Aquellos aspectos no previstos en este estatuto serán resueltos por el pleno de la corporación en la sesión en que se trate y discuta, y aprobados por al menos dos tercios de los presentes.
