@@ -14,3 +14,4 @@ Deroga el decreto ejecutivo mediante el cual se creo el Distrito de Riego, Avena
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-04 | la propia norma |
+| 2 | 2019-01-08 | Decreto Ejecutivo 41542 (2019-01-08) |

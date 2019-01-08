@@ -1,1 +1,1 @@
-Artículo 3º—Facúltese a SURCOOP, Cooperativa que tiene a cargo el desarrollo del proyecto de Plátano en Palmar Sur, para que continúen haciendo uso de la infraestructura para riego ahí construida y la operen y mantengan, asumiendo plena responsabilidad por tal operación y mantenimiento.
+Artículo 3º—(Derogado por el artículo 5° del decreto ejecutivo N° 41542 del 8 de enero del 2019, “Recuperación y gestión de infraestructura para riego en río Térraba”)
