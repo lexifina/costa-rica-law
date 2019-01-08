@@ -1,0 +1,1 @@
+Artículo 11.—El secretario llevará un registro donde consten los nombres de los académicos, con la conveniente mención de sus calidades (de número, correspondientes, honorarios) e indicación de la fecha en que fueron nombrados, tema de su discurso de incorporación y, cuando corresponda, fecha en que fallecieron.

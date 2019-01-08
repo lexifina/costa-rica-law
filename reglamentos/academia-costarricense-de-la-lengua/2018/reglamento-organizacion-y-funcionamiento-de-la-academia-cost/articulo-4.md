@@ -1,0 +1,1 @@
+Artículo 4º—La resolución de los asuntos que se conocieren en las sesiones será decidida por mayoría de votos, excepto aquellos casos tipificados en el Estatuto. En caso de empate, el voto de quien presida se computará doble.

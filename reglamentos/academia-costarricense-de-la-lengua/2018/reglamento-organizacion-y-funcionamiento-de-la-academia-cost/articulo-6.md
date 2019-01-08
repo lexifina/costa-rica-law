@@ -1,0 +1,1 @@
+Artículo 6º—Cuando se proceda a la recepción de un nuevo académico, este leerá, en sesión extraordinaria, su discurso sobre un tema de su elección, pero que verse sobre alguna de las materias concernientes al instituto de la Academia.

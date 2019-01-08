@@ -1,0 +1,1 @@
+Artículo 3º—Para conocer asuntos de especialidad, la Academia integrará comisiones, permanentes o ad hoc. Serán comisiones permanentes las siguientes: comisión de lingüística, comisión de estudios literarios, comisión editorial, comisión del Boletín y comisión de extensión institucional. Cada comisión nombrará, en su propio seno, a su coordinador-relator.
