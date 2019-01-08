@@ -1,0 +1,11 @@
+MUNICIPALIDAD DE CARTAGO
+El Concejo Municipal de la Municipalidad de Cartago comunica que, en sesión ordinaria realizada el 27 de noviembre del 2018, en su artículo N° XIV, del acta N° 200-2018, se aprobó por unanimidad la Reforma al Reglamento sobre el Régimen de puestos de Confianza para las fracciones políticas que conforman el Concejo Municipal del Cantón Central de Cartago, por lo que se publica de acuerdo a lo establecido en el artículo 43 del Código Municipal, y se establece de la siguiente manera:
+REFORMA AL REGLAMENTO SOBRE EL RÉGIMEN DE
+PUESTOS DE CONFIANZA PARA LAS FRACCIONES
+POLÍTICAS QUE CONFORMAN EL
+CONCEJO MUNICIPAL DEL
+CANTÓN CENTRAL
+DE CARTAGO
+Para que se adicione un nuevo inciso al artículo 7, numerado e), que en adelante se lea:
+e) Abogado asesor 1 del Concejo Municipal: Cuyo requisito académico será de licenciado universitario, debidamente incorporado al Colegio de Abogados y Abogadas de Costa Rica, poseer el grado académico de licenciado/a en Derecho, poseer experiencia documentada de al menos tres años en Derecho Penal, poseer experiencia documentada de al menos tres años de laborar como abogado/a en el sector municipal, poseer mínimo cinco años de experiencia documentada en labores profesionales como abogado/a, manejo de software que facilite el desempeño de sus funciones. Requisito legal: No menos de cinco años de estar incorporado/a al Colegio de Abogados y Abogadas de Costa Rica. Su salario estará equiparado a la clase de un Profesional 1 de la Municipalidad de Cartago. Podrá optar por los beneficios que otorga la Municipalidad para esos puestos, conforme a la legislación vigente. La Alcaldía Municipal realizará el nombramiento tomando en cuenta la propuesta elaborada por el Concejo Municipal. Deberá asesorar en los temas propios de sus labores, al Concejo Municipal y a las comisiones, como órganos colegiados, y a las regidoras, regidores, síndicas y síndicos. En caso de que reciba de las personas citadas, instrucciones que consideren contradictorias o que no corresponden a las obligaciones de su cargo, podrá elevar el asunto ante el Concejo Municipal, para su resolución.
+Rige a partir de su publicación según lo dispuesto en el artículo 43 del Código Municipal.
