@@ -1,0 +1,1 @@
+Artículo 2º—La condonación será aplicable únicamente cuando los sujetos pasivos cancelen la totalidad del principal adeudado, durante el plazo establecido por la Ley, caso contrario, se mantendrán y aumentaran proporcionalmente.

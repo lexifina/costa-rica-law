@@ -1,0 +1,1 @@
+Artículo 3º—La condonación beneficiara a los sujetos pasivos, por única vez y de forma total, en el pago de los intereses y las multas que adeuden a la Municipalidad por concepto de impuestos, tasas, servicios y además obligaciones de carácter municipal, entre ellas el Impuesto sobre Bienes Inmuebles, al cierre del trimestre inmediato anterior a la entrada en vigencia de la Ley.
