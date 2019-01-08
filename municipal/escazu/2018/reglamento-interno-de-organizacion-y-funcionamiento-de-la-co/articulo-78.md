@@ -1,0 +1,1 @@
+Artículo 78.—Las asambleas de condóminos debidamente organizados, y con plazo de ley vigente tendrán para todos los efectos los mismos derechos que las asociaciones vecinales. Serán representados por su presidente. Deberá presentar personería jurídica vigente para participar.

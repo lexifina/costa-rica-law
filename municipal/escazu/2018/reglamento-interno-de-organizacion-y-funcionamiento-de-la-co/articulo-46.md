@@ -1,0 +1,1 @@
+Artículo 46.—Las solicitudes de audiencia de los particulares serán otorgadas, de acuerdo con el orden en que fueron presentadas y tomando en cuenta el interés municipal, la oportunidad y cualquier otro criterio que se considere oportuno.

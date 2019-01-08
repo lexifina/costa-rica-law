@@ -1,0 +1,1 @@
+Artículo 44.—Los acuerdos tomados por la Comisión quedarán firmes al aprobarse el acta respectiva. Sin embargo, por votación de las dos terceras partes de la totalidad de los miembros, la Comisión podrá declarar sus acuerdos como definitivamente aprobados.

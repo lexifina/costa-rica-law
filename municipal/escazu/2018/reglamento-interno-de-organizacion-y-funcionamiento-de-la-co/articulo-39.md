@@ -1,0 +1,1 @@
+Artículo 39.—Presentada una moción de orden, se concederá el uso de la palabra en primer término al proponente, este tendrá cinco minutos como máximo para hacer su exposición, luego a los demás miembros que la soliciten podrán tener este derecho, sin que pueda exceder de tres minutos cada intervención, existiendo derecho de réplica por dos minutos.

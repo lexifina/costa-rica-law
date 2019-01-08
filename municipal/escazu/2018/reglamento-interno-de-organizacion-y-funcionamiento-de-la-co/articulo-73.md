@@ -1,0 +1,7 @@
+SECCIÓN II
+De la Adopción y Aprobación de las Modificaciones
+al Plan Regulador
+Artículo 73.—De la Metodología de análisis de las Petitorias:
+a) La recepción de la petitoria. El documento con la petitoria deberá contener las calidades personales y vecindarios de quién o quienes las suscriben; la petición de modificación en concreto del plan regulador con la debida justificación de las razones de hecho y de derecho por la cuales considera conveniente que sea modificado el plan regulador vigente, lugar para atender notificaciones y la firma o firmas de los solicitantes.
+b) Traslado a las Subcomisión respectiva. Una vez presentada la petitoria de modificación, en la siguiente sesión ordinaria de la Comisión se trasladará a una de las Subcomisiones para su estudio y valoración. De considerarla esta Subcomisión procedente técnica, legal y ambientalmente, elaborará un Informe y lo presentará ante la Comisión en pleno del Plan Regulador para su conocimiento y posterior votación.
+c) Aprobación en sesión de Comisión de Plan Regulador. Una vez aprobado el Informe de Subcomisión en sesión ordinaria con la petitoria de modificación, la Comisión de Plan Regulador acordará por mayoría simple remitir el citado Informe a la Administración Municipal para que, en un plazo razonable, se pronuncie sobre la viabilidad técnica, legal y ambiental de la modificación mediante un informe técnico escrito, el cual remitirá a la Comisión a fin de que ésta incorpore la modificación en la agenda para la convocatoria a Audiencia Pública.

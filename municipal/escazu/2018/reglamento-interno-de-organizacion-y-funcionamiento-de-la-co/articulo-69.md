@@ -1,0 +1,3 @@
+SECCIÓN III
+Selección de correspondencia
+Artículo 69.—La correspondencia será analizada previamente, de acuerdo con el orden de recepción, por el Coordinador en colaboración con la Secretaría, quedando a discreción del Coordinador el envío digital de ésta a las Subcomisiones que le competa o a la Administración Municipal o al Concejo Municipal, según la urgencia y el asunto de que se trate. El Coordinador queda en la obligación, junto con la Secretaria de la Comisión, de levantar un listado de la correspondencia recibida, indicando en éste el día de recepción, el asunto de que se trata y el destino que se le dio, listado que deberá ser entregado digitalmente a cada miembro de la Comisión antes de la respectiva sesión.

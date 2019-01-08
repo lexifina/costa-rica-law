@@ -1,0 +1,4 @@
+CAPÍTULO VI
+SECCIÓN I
+De las actas
+Artículo 59.—De cada sesión de la Comisión de Trabajo del Plan Regulador se levantará un acta. En ella se harán constar los acuerdos tomados y sucintamente, las deliberaciones habidas, salvo cuando se trate de nombramiento o elecciones, de los cuales únicamente se hará constar el acuerdo tomado. Sin embargo, cuando lo que se solicite sea que conste en actas su intervención simplemente, se entenderá que la misma lo será de forma sucinta, y corresponderá al secretario cumplir con dicha petición. Para que la intervención conste literalmente en actas, deberá el miembro de la Comisión solicitarlo expresamente a la Secretaría de la Comisión previamente o durante su participación en el uso de la palabra, debiendo adjuntar digitalmente el texto de la intervención que desea se incluya en el Acta, la cual deberá ser sucinta.

@@ -1,0 +1,1 @@
+Artículo 47.—Corresponde a la secretaria de la Comisión notificar, oportunamente a los interesados, los acuerdos y las invitaciones a las audiencias que acuerde la Comisión, así como la remisión de los asuntos al Concejo Municipal y, por medio de éste, a la Administración Municipal

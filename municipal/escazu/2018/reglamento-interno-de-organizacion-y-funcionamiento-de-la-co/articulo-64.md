@@ -1,0 +1,1 @@
+Artículo 64.—Una vez designadas las Subcomisiones por el Coordinador de la Comisión, sus miembros en la sesión de instalación que deberá celebrarse dentro de los quince días siguientes, nombrarán un coordinador y un secretario, quienes deberán ser miembros de la Comisión de Plan Regulador.

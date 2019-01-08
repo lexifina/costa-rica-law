@@ -1,0 +1,2 @@
+Forma de Integración y Nombramientos
+Artículo 2°—La Comisión de Trabajo del Plan Regulador deberá formarse con tres regidores propietarios o suplentes, procurando la presidencia del Concejo Municipal que participen en su seno todas las fracciones políticas representadas en dicho órgano Municipal, un funcionario de planta y tres vecinos interesados, uno por cada distrito del cantón, quienes serán propietarios con derecho al voto, así como sus respectivos suplentes. Los integrantes vecinales de la Comisión pueden ser reelectos y todos ejercerán sus cargos ad honorem.

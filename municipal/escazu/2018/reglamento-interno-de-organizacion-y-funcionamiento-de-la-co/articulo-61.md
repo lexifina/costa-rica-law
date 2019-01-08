@@ -1,0 +1,1 @@
+Artículo 61.—Las actas de la Comisión deberán ser aprobadas en la sesión ordinaria inmediata siguiente salvo que lo impidan razones de fuerza mayor, en cuyo caso la aprobación se pospondrá para la siguiente sesión ordinaria. Podrán llevarse en hojas sueltas, solo si fueren previamente foliadas y selladas por la Auditoría Interna Municipal.

@@ -1,0 +1,1 @@
+Artículo 77.—La audiencia pública será presidida por el coordinador de la Comisión, o en su ausencia por el Subcoordinador, y será obligatoria la asistencia de los miembros de la Comisión de trabajo del Plan regulador en pleno pues tendrá el carácter de una sesión extraordinaria de la Comisión de Trabajo del Plan Regulador, para lo cual deberá ser debidamente convocada.

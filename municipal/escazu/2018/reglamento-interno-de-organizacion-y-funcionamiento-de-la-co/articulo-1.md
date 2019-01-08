@@ -1,0 +1,19 @@
+MUNICIPALIDAD DE ESCAZÚ
+Le comunico el acuerdo adoptado por el Concejo Municipal de Escazú en la sesión ordinaria Nº 136, Acta Nº 159 del 03 de diciembre del 2018, que indica lo siguiente:
+Acuerdo AC-337-18 “Se Acuerda: Con fundamento en las disposiciones de los artículos 11, 169 y 170 de la Constitución Política; 11, 13, 16, y 121 de la Ley General de la Administración Pública; 2, 3, 4 inciso a) y 13 inciso c), y 43 del Código Municipal; el acuerdo AC- 021-18 de la Comisión de Trabajo del Plan Regulador; y siguiendo la recomendación contenida en el Dictamen número C-AJ-032-18 de la Comisión de Asuntos Jurídicos, la cual hace suya este Concejo y la toma como fundamento para motivar este acuerdo se dispone: Primero: Aprobar el texto del “Reglamento Interno de Organización y Funcionamiento de la Comisión de Trabajo del Plan Regulador de la Municipalidad de Escazú”, que se transcribe en el Antecedente 3 del Punto Único del citado Dictamen C-AJ-032-18. Segundo: comisionar a la Secretaría Municipal para que proceda a publicar de manera integral el texto del Reglamento Interno de Organización y Funcionamiento de la Comisión de Trabajo del Plan Regulador de La Municipalidad de Escazú en el Diario Oficial La Gaceta por única vez, en razón de tratarse de un reglamento interno.
+Notifíquese este acuerdo al señor Alcalde Municipal en su despacho para lo de su cargo”. Declarado definitivamente aprobado.
+REGLAMENTO INTERNO DE ORGANIZACIÓN Y FUNCIONAMIENTO
+DE LA COMISIÓN DE TRABAJO DEL PLAN REGULADOR
+DE LA MUNICIPALIDAD DE ESCAZÚ
+La Municipalidad del cantón de Escazú, de conformidad con lo que establece el artículo 13 incisos c), n) y 50 del Código Municipal ley Nº 7794 del treinta de abril de mil novecientos noventa y ocho, y artículos 59 y 60 de la Ley de Planificación Urbana Nº 4240 del quince de noviembre de mil novecientos sesenta y ocho, procede a reglamentar la organización y el funcionamiento interno de la Comisión de Trabajo del Plan Regulador, como órgano especializado de planificación urbana local, creada mediante Acuerdo del Concejo Municipal Nº 218-03, en la sesión ordinaria 054 del 12 de mayo de 2013.
+Resultando:
+1°—Que el artículo 170 de la Constitución Política, así como el artículo 4 del Código Municipal reconocen la autonomía política, administrativa y financiera de las Municipalidades para dictar cualquier disposición reglamentaria que autorice el ordenamiento jurídico para cumplir de forma eficaz y eficiente en la prestación de los servicios públicos e intereses locales.
+2°—Que de conformidad con la normativa citada, el Concejo Municipal de la Municipalidad de Escazú en ejercicio de la potestad atribuida por la Constitución Política y las leyes citadas, procede a reglamentar la estructura organizativa y el funcionamiento interno de la Comisión de Trabajo del Plan Regulador de Escazú, formalmente creada mediante Acuerdo del Concejo Municipal N° 218-03, y regulada en la Sección Tercera, Capítulo I sobre “Los Órganos Especializados de Planificación Local y Regional” de la Ley Nº 4240 del 15 de noviembre de mil novecientos sesenta y ocho y sus reformas.
+3°—Este Concejo Municipal, en uso de las facultades que le otorga la Constitución Política y el Código Municipal, acuerda emitir el siguiente Reglamento:
+REGLAMENTO INTERNO DE ORGANIZACIÓN Y FUNCIONAMIENTO
+DE LA COMISIÓN DE TRABAJO DEL PLAN REGULADOR
+DE LA MUNICIPALIDAD DE ESCAZÚ
+CAPÍTULO I
+Organización
+El Órgano Especializado de Planificación Local
+Artículo 1°—El Órgano Especializado en materia urbanística, creado por la Municipalidad de Escazú para participar en la preparación y aplicación del Plan Regulador del cantón, se denomina Comisión de Trabajo del Plan Regulador de Escazú. Estará conformada por un cuerpo deliberativo de siete miembros propietarios y siete miembros suplentes, cuyo período de nombramiento coincidirá con el de los miembros del Concejo Municipal que designe a los miembros regidores.

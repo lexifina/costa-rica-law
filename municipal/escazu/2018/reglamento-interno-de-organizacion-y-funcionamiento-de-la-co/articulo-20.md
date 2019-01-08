@@ -1,0 +1,1 @@
+Artículo 20.—Podrán celebrarse sesiones extraordinarias en otros lugares del cantón, cuando se vayan a tratar asuntos relativos a los intereses de los vecinos de alguno de los distritos o la índole de los asuntos a tratar, si así lo requieran sus integrantes por votación de mayoría, y siempre que la convocatoria así lo indique.

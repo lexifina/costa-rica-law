@@ -1,0 +1,1 @@
+Artículo 23.—Si en el curso de una sesión se rompiere el quórum, el Coordinador por medio de la secretaría instará a los miembros integrantes que se hubieren retirado sin permiso, a que ocupen sus asientos. Si en el término de diez minutos no se ha podido restablecer el cuórum, se levantará la sesión.

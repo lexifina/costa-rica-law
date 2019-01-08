@@ -1,0 +1,1 @@
+Artículo 49.—Finalizadas las exposiciones de los particulares, el Coordinador concederá el uso de la palabra a los miembros integrantes de la Comisión que lo soliciten con el fin de que puedan intercambiar opiniones con los visitantes sobre el asunto de que se trata, en la forma establecida en el artículo 40 del presente Reglamento.

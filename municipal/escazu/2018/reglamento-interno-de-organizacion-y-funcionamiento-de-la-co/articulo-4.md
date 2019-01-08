@@ -1,0 +1,1 @@
+Artículo 4°—Los funcionarios administrativos propietario y suplente, serán de nombramiento del Alcalde Municipal, quién deberá designarlos una vez realizados los nombramientos de los vecinos interesados en las respectivas Asambleas Distritales, a fin de completar el sétimo miembro propietario de la Comisión con su suplente.

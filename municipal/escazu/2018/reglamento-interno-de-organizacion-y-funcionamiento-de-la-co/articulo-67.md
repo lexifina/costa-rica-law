@@ -1,0 +1,1 @@
+Artículo 67.—Las propuestas de acuerdos provenientes de las Subcomisiones, se decidirán por simple mayoría, lo cual se hará constar en el libro de acuerdos respectivo que al efecto lleve debidamente foliado y sellado la Secretaria de la Comisión.

@@ -1,0 +1,4 @@
+SECCIÓN VIII
+Sobre el uso de la palabra
+Artículo 40.—El Coordinador de la Comisión concederá el uso de la palabra, en primera instancia, en estricto orden de prioridad y conforme lo soliciten los miembros propietarios, posteriormente los miembros suplentes y el personal administrativo y técnico de la Comisión. Salvo en los que se fije un lapso menor, cada miembro de la Comisión podrá referirse al asunto en discusión hasta por cinco minutos la primera vez; por un lapso de tres minutos la segunda intervención, si desea hacer más intervenciones, deberá solicitarlo al Coordinador. El Coordinador debe pedir a los miembros y demás participantes que hagan uso de la palabra, que se concreten al punto en debate y en el caso de renuencia podrá retirarle el uso de este derecho.
+Los miembros propietarios tendrán derecho a voz y voto en las sesiones, mientras que los miembros suplentes solo derecho a voz.

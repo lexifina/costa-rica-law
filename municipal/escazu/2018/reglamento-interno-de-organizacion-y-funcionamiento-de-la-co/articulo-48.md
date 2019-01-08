@@ -1,0 +1,2 @@
+Artículo 48.—Corresponde al Coordinador moderar las intervenciones de los particulares, las cuales no podrán exceder de cinco minutos, a menos de que soliciten excederse de dicho término, lo cual puede ser aprobado por el Coordinador.
+Corresponde al Coordinador llamarlos al orden, suspender la audiencia si el caso lo amerita, y hasta solicitar que abandonen el salón de sesiones de ser necesario, para lo cual podrá pedir el auxilio de la fuerza pública si el caso lo amerita.

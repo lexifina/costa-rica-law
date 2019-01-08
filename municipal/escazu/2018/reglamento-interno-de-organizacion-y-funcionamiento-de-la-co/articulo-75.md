@@ -1,0 +1,3 @@
+SECCIÓN III
+De la Audiencia pública
+Artículo 75.—A efecto de realizar la Audiencia Pública, deberá ponerse a disposición de todos los interesados, un sitio web con el texto completo de la propuesta de modificación que será presentada el día de la audiencia pública. De manera que los participantes, debidamente legitimados, puedan remitir sus observaciones técnicas, legales o de oportunidad, de manera digital con anticipación a la Audiencia Pública, así como podrán de manera fundamentada y solo en cuanto a las modificaciones planteadas, presentar sus observaciones el día de la Audiencia Pública.
