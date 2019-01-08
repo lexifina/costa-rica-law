@@ -1,2 +1,0 @@
-Artículo 74.—Estudio de admisibilidad de ofertas. Cumplida la anterior etapa, Correos, procederá al estudio y valoración de las ofertas en relación con las condiciones y especificaciones de admisibilidad fijadas en el cartel y con las normas reguladoras de la materia.
-Serán declaradas fuera del concurso, las que incumplan aspectos esenciales de las bases de éste o sean sustancialmente disconformes con el ordenamiento jurídico. Los incumplimientos intrascendentes no implicarán la exclusión de la oferta, pero así deberá ser razonado expresamente en el respectivo informe.

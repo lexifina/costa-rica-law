@@ -1,4 +1,0 @@
-Artículo 49.—Audiencias previas al cartel. Correos, podrá celebrar audiencias públicas con potenciales oferentes antes de elaborar el cartel definitivo. Para ello, deberá mediar invitación por cualquier medio masivo que se considere pertinente. La no asistencia de un potencial oferente no le generará ninguna consecuencia de frente al eventual procedimiento.
-Por parte de Correos, deberán asistir a dichas audiencias, el Jefe de la Unidad solicitante o su representante, los técnicos de la materia del objeto de la contratación, un Asesor Legal y Jefe de Compras y Contrataciones o su representante acreditado.
-De la asistencia, lo actuado y de las sugerencias recibidas, se levantará un acta que firmarán los asistentes que quisieren hacerlo. Las manifestaciones que se formulen por escrito, así como el acta se agregarán al expediente.
-Correos, no se encuentra obligada a aceptar ninguna de las iniciativas que se le formulen.

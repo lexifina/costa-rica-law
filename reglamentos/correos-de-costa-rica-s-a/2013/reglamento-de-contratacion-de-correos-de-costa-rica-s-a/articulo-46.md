@@ -1,1 +1,0 @@
-Artículo 46.—Cláusula penal. La cláusula penal procede por ejecución tardía o prematura de las obligaciones contractuales, en este último según el objeto de la contratación, los supuestos y montos deberán incluirse en el respectivo cartel y le serán aplicables las disposiciones indicadas en los artículos anteriores.

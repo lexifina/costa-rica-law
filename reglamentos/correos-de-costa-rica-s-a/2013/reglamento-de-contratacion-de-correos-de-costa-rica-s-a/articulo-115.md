@@ -1,1 +1,0 @@
-Artículo 115.—Reemplazo de bienes muebles inscribibles. En caso de que a Correos le sean robados bienes muebles inscribibles podrá realizar la compra del mismo, sin necesidad de abrir concurso para ello.

@@ -1,5 +1,0 @@
-Artículo 149.—Recepción definitiva. El contrato administrativo se ejecutará conforme a las reglas de la buena fe y a los términos acordados por las partes.
-La recepción del objeto se entenderá como el recibo de los bienes y servicios, en el lugar estipulado, o en su defecto en el fijado en el cartel. Para ello, el contratista deberá coordinar con Correos, la hora y demás condiciones necesarias para la recepción, cuando sea pertinente, o bien informar cuando se ha procedido con la entrega, en aquellos casos en que se utilice una modalidad distinta.
-La recepción definitiva del objeto será dentro del plazo establecido en el cartel. La recepción definitiva no excluye la ejecución de la garantía de cumplimiento, si los bienes y servicios presentan alguna inconformidad con lo establecido en el contrato. A partir de este momento, comenzarán a regir las garantías de funcionamiento ofrecidas por el contratista y no correrán multas.
-El pago de los bienes, suministros o servicios se realizará luego de la recepción definitiva de éstos de acuerdo a los procedimientos establecidos.
-La recepción definitiva no exime al contratista de responsabilidad por vicios ocultos.

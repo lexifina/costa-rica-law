@@ -1,1 +1,0 @@
-Artículo 100.—Precio base de la subasta. Correos, definirá el precio base que servirá de límite máximo para la adjudicación. El precio base será fijado de acuerdo a los estudios de referencia de los precios del mercado que realice Correos, así como otros criterios que considere pertinentes. Correos, se reserva la facultad de indicar este precio base en las cláusulas cartelarias.

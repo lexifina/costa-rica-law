@@ -1,5 +1,0 @@
-Artículo 93.—Requisitos. En ambas modalidades, sea que el financiamiento provenga del oferente o de un tercero, a través suyo, la información contendrá un detalle de las principales condiciones
-del eventual préstamo identificando, al menos, monto total; plazo; tasa de interés; gastos de formalización y comisiones. En estos casos, Correos deberá prever en el cartel, las reglas para comparar no sólo la tasa de interés y forma de pago del préstamo, sino también los costos asociados y otros requisitos.
-La falta de información de las condiciones del eventual préstamo no será subsanable, a menos que los valores estén consignados en la oferta y la documentación posterior se presente a título probatorio.
-La propuesta de financiamiento proveniente de un tercero, deberá estar suscrita por persona autorizada para ello y contar con una vigencia similar a la estipulada para la oferta.
-En caso de que Correos llegara a adjudicar la propuesta con financiamiento de un tercero, ello se indicará así en el acuerdo de adjudicación, sin perjuicio de la formalización posterior de dicho crédito.

@@ -1,4 +1,0 @@
-SECCIÓN TERCERA
-Multas y cláusula penal
-Artículo 43.—Generalidades. Correos, podrá establecer en el cartel, el pago de multas por defectos en la ejecución del contrato, considerando para ello, aspectos tales como, monto, plazo, riesgo, repercusiones de un eventual incumplimiento para el servicio que se brinde o para el interés empresarial y la posibilidad de incumplimientos parciales o por líneas, siempre que se considere el medio idóneo para el cumplimiento y satisfacción de las obligaciones contractuales. Todo lo anterior con arreglo a criterios de proporcionalidad y razonabilidad. De conformidad con lo establecido en el Manual de Procedimientos.
-Los incumplimientos que originan el cobro de la multa, deberán estar detallados en el cartel. Una vez en firme el cartel, se entenderá que el monto de la multa es definitivo por lo que no se admitirán reclamos posteriores.

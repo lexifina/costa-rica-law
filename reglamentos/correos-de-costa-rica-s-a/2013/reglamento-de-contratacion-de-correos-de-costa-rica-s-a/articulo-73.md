@@ -1,1 +1,0 @@
-Artículo 73.—Consecuencias de no atender la prevención. Si la prevención de subsanar o aclarar no es atendida oportunamente, Correos, procederá a descalificar al oferente de que se trate, y a ejecutar la garantía de participación siempre y cuando se haya solicitado.

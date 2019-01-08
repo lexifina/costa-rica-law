@@ -1,4 +1,0 @@
-Artículo 10.—Estimación de la contratación. Para determinar la clase del procedimiento a seguir se deberá considerar la estimación indicada por la unidad solicitante del monto de la contratación incluyendo: el costo principal, fletes, seguros, comisiones, intereses, tributos, derechos y cualquier otra suma que deba reembolsar Correos como consecuencia de la contratación.
-Cuando la contratación de objeto continuo se celebrare por un plazo determinado, la estimación se efectuará sobre el valor total del contrato durante su vigencia.
-Si la contratación fuere por plazo indeterminado, la estimación se efectuará sobre la base del pago mensual estipulado multiplicado por dieciocho.
-Cuando en el contrato para satisfacer servicios por períodos menores de dieciocho meses se establezcan o existan prórrogas facultativas que puedan superar ese límite, o en caso de duda sobre si el plazo es indeterminado o no, se aplicará el método de cálculo previsto en el párrafo anterior.

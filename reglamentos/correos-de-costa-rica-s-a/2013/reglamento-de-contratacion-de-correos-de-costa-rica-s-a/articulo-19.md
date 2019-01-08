@@ -1,1 +1,0 @@
-Artículo 19.—Prohibición de influencias. A las personas cubiertas por el régimen de prohibiciones les está terminantemente prohibido intervenir a favor de terceros, directa o indirectamente, ante los trabajadores responsables de las etapas del procedimiento de contratación, a favor de otras personas (terceros). La presente prohibición aplica a todos los trabajadores de Correos.

@@ -1,1 +1,0 @@
-Artículo 82.—Publicación. La invitación a participar y las modificaciones al cartel, se publicarán en un diario de circulación nacional y medios electrónicos que permita la participación de posibles oferentes.

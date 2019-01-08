@@ -1,5 +1,0 @@
-Artículo 136.—Prórrogas, aclaraciones, modificaciones y adiciones al cartel.
-Contra las aclaraciones, modificaciones o adiciones del cartel, podrá interponerse recurso de objeción dentro del primer tercio del plazo que medie entre la publicación o comunicación de la variante del cartel y la fecha señalada para recibir ofertas.
-Cuando la modificación consista únicamente en la prórroga del plazo para presentar ofertas, el plazo para objetar se obtendrá de la sumatoria del plazo inicial más el plazo de la prórroga.
-Será responsabilidad de la Unidad Técnica Solicitante resolver y autorizar toda solicitud de prórrogas, aclaraciones, modificaciones, y adiciones a solicitud de parte. Las aclaraciones, modificaciones y adiciones resultantes deberán ser informadas al competente por monto, según corresponda, que autorizó en definitiva el cartel para dar inicio a la contratación, deberá existir la justificación escrita del caso.
-(Así reformado mediante sesión ordinaria N° 1341 del 4 de agosto del 2015)
