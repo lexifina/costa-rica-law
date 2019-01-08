@@ -1,0 +1,4 @@
+ARTÍCULO 2- Los ministerios de Educación Pública y de Cultura y Juventud llevarán a conocimiento de todas las costarricenses y los costarricenses la trascendencia e importancia que tiene la celebración de esa fecha. Con tal objeto, deberán celebrarse en todas las escuelas, centros de enseñanza media y bibliotecas, actos relacionados con tal festividad, y dedicar una hora a comentarios, asambleas y otras actividades afines. Además, en todo el sector público se llevarán a cabo conferencias, charlas y cualquier otro acto que ayude a crear conciencia cívica sobre la significación de la paz firme y duradera para la identidad costarricense y la hermandad centroamericana. Si dicha fecha correspondiera a un día no hábil, las actividades se celebrarán en cualquiera de los dos días inmediatos a esta.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los trece días del mes de agosto del año dos mil dieciocho.
+Ejecútese y publíquese.
