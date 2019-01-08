@@ -1,0 +1,3 @@
+CAPÍTULO II
+De las fuentes de financiamiento
+Artículo 2º - Con los recursos provenientes de la ley nº 5662, se financia el Programa Pobreza y Discapacidad, Eje de Promoción, por lo que serán beneficiarios y beneficiarias aquellas personas con discapacidad en situación de pobreza, costarricenses y extranjeros residentes legales del país, menores de 65 años de edad inclusive; incluyendo a las personas menores de edad con discapacidad que se encuentren en condición de pobreza, aunque carezcan de situación migratoria regular en el territorio nacional, de conformidad con lo dispuesto en el Código de la Niñez y la Adolescencia.

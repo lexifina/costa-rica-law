@@ -1,0 +1,1 @@
+Artículo 8º - Las modalidades residenciales se ofertarán en tres categorías, a saber, instituciones residenciales, en familia y autónomas, de conformidad con el Manual y Procedimientos del Programa Pobreza y Discapacidad, Eje de Protección.

@@ -1,0 +1,1 @@
+Artículo 23º - La interposición del recurso no requerirá de condiciones específicas, no obstante, lo anterior, cuando éste se interponga, la persona recurrente deberá aportar todas las pruebas que considere pertinentes para una eventual modificación de la decisión de la Administración.

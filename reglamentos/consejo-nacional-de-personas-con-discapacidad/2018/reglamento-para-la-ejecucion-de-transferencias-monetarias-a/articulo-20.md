@@ -1,0 +1,3 @@
+SECCIÓN III
+Del otorgamiento de las transferencias monetarias
+Artículo 20º- Para el otorgamiento de transferencias monetarias que concede el presente Reglamento por medio de los Programas de Pobreza y Discapacidad y Promoción de la Autonomía Personal de las Personas con Discapacidad, se deberá seguir el Procedimiento de Análisis y Selección de Personas Destinatarias de los Recursos, así como el Procedimiento de Prórroga, Ampliación y Modificación de Transferencias Monetarias. Toda aprobación o denegatoria de la transferencia económica tendrá que hacerse mediante resolución administrativa debidamente motivada, la cual deberá estar aprobada de acuerdo con el control de firmas y montos aprobados según procedimientos.
