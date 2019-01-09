@@ -14,3 +14,4 @@ Reconoce sinónimo de la Tecnología de Emergencias Médicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-10-25 | la propia norma |
+| 2 | 2019-01-09 | Reglamento 0 (2019-01-09) |
