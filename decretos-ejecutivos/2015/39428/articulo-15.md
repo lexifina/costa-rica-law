@@ -8,3 +8,4 @@ Horario diurno y nocturno:
 3. Sonidos producidos por artefactos para la prevención de accidentes.
 4. Sonidos causados por alarmas, campanarios y similares, que tengan una duración inferior a cinco (5) minutos.
 (Así reformado por el artículo 1° del decreto ejecutivo N° 41305 del 19 de junio de 2018)
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 000186 del 9 de enero del 2019, se declaró inconstitucional el inciso 2 de este artículo, el cual indicaba lo siguiente: “2. Sonidos producidos por el disparo de armas livianas de fuego en polígonos de tiro autorizados”. No obstante mediante el numeral 1° del decreto ejecutivo N° 41305 del 19 de junio de 2018, se reformó integralmente este artículo, eliminando lo indicado en el inciso 2 antes mencionado. Por esta razón, se indica una nota explicativa del voto.)
