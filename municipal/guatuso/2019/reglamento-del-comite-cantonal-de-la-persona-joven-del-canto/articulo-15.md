@@ -1,0 +1,1 @@
+Artículo 15.- De la acreditación de los representantes: Los representantes elegidos por cada sector deberán presentar al CCPJG una carta donde se les acredite como la persona elegida por su organización para participar en la conformación del Comité. En caso contrario, la persona respectiva no podrá ser parte del CCPJG.

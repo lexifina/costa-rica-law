@@ -1,0 +1,1 @@
+Artículo 3.-Ámbito de aplicación: La aplicación de este Reglamento se limita únicamente a la jurisdicción del cantón de Guatuso, provincia de Alajuela y es válido para todos los habitantes o munícipes y organizaciones de la sociedad civil domiciliadas en su territorio.

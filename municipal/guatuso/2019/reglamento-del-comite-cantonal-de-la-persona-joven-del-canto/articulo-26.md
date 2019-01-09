@@ -1,0 +1,1 @@
+Artículo 26.- De las funciones de los vocales: Son funciones del vocal sustituir al Presidente, Secretario y/o Tesorero en ausencia de uno o ambos, en estricto orden preferente, con las mismas obligaciones y atribuciones.

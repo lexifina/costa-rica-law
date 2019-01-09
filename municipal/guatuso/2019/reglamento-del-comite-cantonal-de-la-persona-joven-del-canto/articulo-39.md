@@ -1,0 +1,2 @@
+Artículo 39.- De la administración de los recursos del CCPJG: La Municipalidad, por medio de sus órganos administrativos, administrará los recursos con destino específico a que se hace referencia en el artículo 26 de la Ley General de la Persona Joven, girados por el CPJ para el financiamiento del CCPJG
+La Municipalidad velará por el registro y custodia de los activos destinados para el uso exclusivo del CCPJG.

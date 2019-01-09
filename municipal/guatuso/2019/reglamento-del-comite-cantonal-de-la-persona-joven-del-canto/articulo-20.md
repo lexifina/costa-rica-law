@@ -1,0 +1,2 @@
+Artículo 20.- Sustitución: Cuando la sustitución sea del representante del artículo 10 inciso a) el Concejo Municipal tendrá 8 días hábiles, a partir de la notificación de la destitución, para realizar el nombramiento correspondiente.
+Cuando la sustitución sea de alguno de los miembros del artículo 10 inciso b), c), d) y e), el CCPJG, una vez notificada por el Concejo Municipal sobre la correspondiente destitución, iniciará el proceso de sustitución en Asamblea de los sectores, según corresponda, siguiendo el procedimiento señalados en el artículo 14 del presente reglamento.

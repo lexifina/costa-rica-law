@@ -1,0 +1,2 @@
+Artículo 12.- De las Asambleas: Las Asambleas del CCPJG se realizarán con el fin de nombrar a los miembros según lo dispuesto en el artículo 24 de la Ley Nº 8261. Se invitarán a todos los sectores juveniles del cantón cuya representación es exigida por la Ley Nº 8261, conforme a las reglas de este Reglamento.
+Es facultad del Departamento designado por el Concejo Municipal en conjunto con el CCPJG vigente, definir y adoptar las acciones necesarias para convocar a todos los distintos sectores mencionados por la Ley General de la Persona Joven.

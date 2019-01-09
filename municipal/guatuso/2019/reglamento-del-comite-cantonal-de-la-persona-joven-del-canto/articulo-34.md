@@ -1,0 +1,2 @@
+Artículo 34.- Recurso de Revisión: Antes de la aprobación de acta, cualquier miembro del CCPJG podrá plantear un recurso de revisión en contra de un acuerdo tomado por ese órgano colegiado, salvo respecto de los acuerdos aprobados definitivamente en firme.
+El recurso se presentará por escrito, y para aceptar el recurso de revisión y declarar con lugar, se necesita la misma mayoría que requirió el acuerdo para ser aprobado. En lo no previsto en este Reglamento aplica la Ley General de la Administración Pública en lo que resulte procedente.
