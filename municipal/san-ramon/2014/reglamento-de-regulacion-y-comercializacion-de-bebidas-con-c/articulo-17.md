@@ -1,1 +1,0 @@
-Artículo 17.—Limitación cuantitativa. La cantidad total de licencias clase A y B otorgadas en cada distrito no. podrá exceder la cantidad de una por cada trescientos habitantes. En la determinación del total de habitantes del Cantón, se acudirá al estudio más reciente confiable y de una fuente verificable, que tenga la Administración.

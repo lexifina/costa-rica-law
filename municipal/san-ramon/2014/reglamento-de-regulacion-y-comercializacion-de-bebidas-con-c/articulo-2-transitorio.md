@@ -1,1 +1,0 @@
-Transitorio II.—Para el cumplimiento de las disposiciones de los artículos 13 y 14 de este Reglamento, en relación a la independencia que debe existir entre los locales, a partir de la vigencia de este Reglamento se dará un plazo de noventa días naturales, a fin de que los propietarios cumplan con lo establecido en dichos artículos.
