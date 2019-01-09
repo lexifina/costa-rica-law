@@ -1,0 +1,5 @@
+Artículo 7°: El producto de las multas a los infractores de la ley N°3580 y establecidas en este reglamento corresponderá a la Municipalidad. El producto de esas tarifas de estacionamiento constituirá un fondo que se destinará de la siguiente forma:
+1.El desarrollo del departamento de Policía Municipal y/o Transito, lo que incluye el pago de gastos administrativos y operativos de dicho servicio.
+2.En la instalación de sistemas de video vigilancia cantonal, así como el acondicionamiento del Departamento de Policía Municipal y/o Transito, y otras actividades atinentes a la seguridad de los ciudadanos del cantón.
+3.En la capacitación a los funcionarios investidos con la autoridad competente que desarrollen actividades de inspección y fiscalización de dicho servicio de estacionamiento, así como en la capacitación a las comunidades sobre el tema de educación en temas de seguridad ciudadana.
+4.En el desarrollo de los programas de diferente índole promovidos por el departamento de Policía Municipal y/o Transito en materia de seguridad ciudadana.

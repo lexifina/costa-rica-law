@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del procedimiento del sistema de cobro de estacionamiento de vehículos en las vías públicas
+Artículo 13.—Obligatoriedad del pago de tarifas: Para que un usuario adquiera derecho a las prestaciones del sistema de estacionamiento de vehículos en las vías públicas bajo la administración de la municipalidad, deberá cancelar una tarifa determinada por el Gobierno Local, tanto en su monto como forma de pago y las salvedades que establezca la Ley 3580, su reforma Ley 6852 y el presente Reglamento. Los vehículos dedicados al Transporte Público de personas no pagarán la tarifa cuando utilicen las paradas o zonas que se destinen para éstos.
