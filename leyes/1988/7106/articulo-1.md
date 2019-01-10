@@ -1,3 +1,5 @@
+(Derogado)
+(Esta norma fue derogada por el artículo 53 de la Ley Orgánica del Colegio Profesional de Ciencias Políticas y Relaciones Internacionales, N° 9614 del 20 de setiembre del 2018)
 TITULO PRIMERO
 De la creación, de las finalidades, de los miembros de sus deberes y derechos
 CAPITULO I
