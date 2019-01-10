@@ -1,0 +1,2 @@
+ARTÍCULO 11- Las entidades públicas que requieran los servicios de un politólogo o relacionista internacional extranjeros no incorporados al Colegio deberán solicitarle a este la autorización para el ejercicio temporal de esos profesionales, siempre y cuando ese plazo temporal no exceda los doce meses.
+Este requisito no aplicará si se presentan en el país para participar en charlas, foros, simposios o seminarios de carácter académico protegidos por la libertad de cátedra.

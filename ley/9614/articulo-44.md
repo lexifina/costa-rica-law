@@ -1,0 +1,1 @@
+ARTÍCULO 44- Cuando se trate de servicios ofrecidos a sujetos de derecho privado, el Colegio podrá cobrar los honorarios que establezca la Junta Directiva, de acuerdo con la normativa nacional vigente, por los dictámenes técnicos que emita y los estudios que elabore. Los recursos ingresarán a los fondos generales del Colegio.

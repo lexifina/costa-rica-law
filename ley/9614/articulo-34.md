@@ -1,0 +1,1 @@
+ARTÍCULO 34- Las Vocalías deberán asistir a todas las sesiones de la Junta Directiva y desempeñar en ellas las funciones que les correspondan a la Tesorería y la Secretaría, por impedimento o ausencia temporal de estos directivos, en cuyo caso actuarán en el orden de nombramiento y otras funciones que la Junta Directiva les asigne.

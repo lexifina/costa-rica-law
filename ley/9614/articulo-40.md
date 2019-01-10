@@ -1,0 +1,6 @@
+ARTÍCULO 40- Cuando llegue a conocimiento de la Junta Directiva cualquier denuncia por violación de los principios de la ética profesional, esta la pondrá a conocimiento del Comité de Ética Profesional, para que instruya la causa respectiva.
+Presentada la denuncia, se remitirá al Comité, el cual iniciará un proceso de investigación, observando las reglas del debido proceso de las partes.
+Terminada la investigación, dicho órgano deberá remitir, en un plazo máximo de sesenta días naturales, el informe a la Junta Directiva, con las recomendaciones respectivas.
+Dentro de los treinta días naturales siguientes en que se ha recibido el informe por parte de la Junta Directiva, lo analizará y dará a conocer a las partes de este y de lo que procede según el artículo 41 de esta ley.
+Si existiera alguna duda, la Junta Directiva solicitará al Comité de Ética del Colegio una aclaración. Dicho órgano tendrá un máximo de treinta días naturales para responder.
+Si la denuncia recae sobre un miembro de la Junta Directiva, el Comité de Ética deberá remitir el informe descrito en este artículo, a conocimiento de la Asamblea General, para que, en caso de existir infracción a los principios de la ética profesional, esta resuelva conforme a lo dispuesto en el artículo 41 de la presente ley, en lo referente a la imposición de las respectivas sanciones.

@@ -1,0 +1,1 @@
+ARTÍCULO 22- Las asambleas generales ordinarias y extraordinarias serán convocadas por medio de una publicación en el diario oficial La Gaceta, en un periódico de circulación nacional y en medios digitales. La publicación deberá hacerse al menos quince días naturales antes de celebrarse la Asamblea e incluir el día, la hora, el lugar y el orden del día.

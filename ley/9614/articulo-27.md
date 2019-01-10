@@ -1,0 +1,1 @@
+ARTÍCULO 27- La Junta Directiva funcionará durante un período de dos años que iniciara el 1º de abril de cada año y se renovará de la siguiente manera: en el primer año la Vicepresidencia, la segunda y tercera Vocalías y el siguiente año la Presidencia, Secretaría, Tesorería y primera Vocalía.

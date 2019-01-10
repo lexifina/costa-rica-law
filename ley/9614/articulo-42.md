@@ -1,0 +1,1 @@
+ARTÍCULO 42- Contra los acuerdos de la Junta Directiva, relativos al incumplimiento de los principios de ética profesional y de las suspensiones, procederá el recurso de revocatoria. El interesado deberá interponer el recurso dentro de los tres días hábiles siguientes a la notificación.

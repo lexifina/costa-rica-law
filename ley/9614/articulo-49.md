@@ -1,0 +1,1 @@
+ARTÍCULO 49- Para que una empresa consultora privada, nacional o extranjera, pueda prestar servicios al Estado en el campo de las ciencias políticas y las relaciones internacionales, deberá hacer constar que los profesionales que prestarán dichos servicios se encuentran debidamente incorporados a este colegio profesional.
