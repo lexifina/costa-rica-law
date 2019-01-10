@@ -1,1 +1,6 @@
-Artículo 39.—Del quórum. El quórum funcional se compone de seis Delegados o Delegadas representantes (titular o suplente) para sesionar válidamente. Si no se obtiene quórum transcurridos treinta minutos de la hora señalada para iniciar la sesión, los representantes presentes podrán constituirse en comisión de trabajo y los acuerdos que tomen se pondrán a conocimiento del Consejo Directivo en la siguiente sesión para su valoración. En caso de que no se constituya una comisión de trabajo, los(las) Delegados(as), levantarán un acta que firmarán los presentes, en la cual se dejará consignada esta circunstancia.
+CAPÍTULO VI
+De las mociones
+Artículo 39.- Durante el desarrollo de la sesión las personas Delegadas podrán interponer las siguientes mociones:
+1. Moción de Orden: Tienen prioridad en la discusión, se formulan para encauzar el asunto que se discute y han de referirse necesariamente a cuestiones de procedimiento. Bajo esta modalidad se podrá solicitar la modificación de la orden del día.
+2. Moción de Fondo: Dirigidas a modificar el contenido u objetivo de determinado asunto sometido a discusión. Se podrán presentar una vez concluidas las explicaciones del tema.
+3. Moción de Forma: Dirigidas a modificar la redacción de un acta o de un acuerdo, sin modificar su contenido. Una vez aprobadas pasarán directamente a la Secretaría de Actas para que sean incorporadas al documento correspondiente.

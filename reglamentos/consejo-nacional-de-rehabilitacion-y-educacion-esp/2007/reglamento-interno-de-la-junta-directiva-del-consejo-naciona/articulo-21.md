@@ -1,5 +1,2 @@
-Artículo 21.—Corresponde al Comité Directivo:
-a) Confeccionar el orden del día, teniendo en cuenta, en su caso, las peticiones de los delegados y delegadas, formuladas al menos con tres días de antelación.
-b) Analizar los asuntos delegados por el Órgano Colegiado.
-c) Recibir la correspondencia dirigida al Consejo Directivo y comunicarlo en la sesión inmediata siguiente para su conocimiento.
-d) Confeccionar y ejecutar el proceso de inducción a los nuevos delegados(as) del Consejo Directivo.
+Artículo 21.- En caso de ausencia de la persona que tenga a su cargo la Dirección Ejecutiva por incapacidad, vacaciones, permisos, representación de la institución o cualquier otra razón que implique un distanciamiento de su cargo, la Junta Directiva deberá designar a un(a) funcionario(a) de la institución para que le sustituya, siempre que cumpla con los requisitos establecidos en el Manual de Clases Institucional.
+Cuando la sustitución exceda de un mes calendario se nombrará interinamente una persona sustituta.

@@ -1,1 +1,3 @@
-Artículo 23.—El Presidente(a), el Vicepresidente(a) y el Secretario(a), serán electos por mayoría absoluta en la última sesión ordinaria de cada año, y desempeñarán sus cargos por un periodo de un año, pudiendo ser reelectos hasta por tres periodos consecutivos.
+CAPÍTULO IV
+De la Secretaría de Actas
+Artículo 23.- La Secretaría de Actas será la instancia encargada de las funciones administrativas que se deriven de la gestión de la Junta Directiva. La Secretaría de Actas la atenderá una persona funcionaria de la Institución, la cual será designada directamente por la Junta Directiva a partir de una terna presentada por la Unidad de Recursos Humanos.

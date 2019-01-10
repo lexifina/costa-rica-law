@@ -1,1 +1,1 @@
-Artículo 50.—De todas las actas de las sesiones se debe realizar un respaldo en formato digital accesible.
+Artículo 50.- En todo caso deberá existir una estrecha relación entre el motivo del viaje y la naturaleza del cargo que desempeña la persona Delegada, además del interés público que debe privar en la gestión y deberán observarse estrictamente los principios de razonabilidad y proporcionalidad que privan el servicio público

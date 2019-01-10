@@ -1,1 +1,1 @@
-Artículo 38.—El audio de todas las sesiones tanto ordinarias como extraordinarias será grabado como insumo para la redacción y la evacuación de dudas en la toma de decisiones del Órgano Colegiado. Dichos registros quedarán bajo custodia de la Secretaría de Actas.
+Artículo 38.- La sesión podrá suspenderse temporal o permanentemente por decisión debidamente justificada de la Presidencia de la Junta Directiva o por acuerdo de mayoría absoluta, cuando medien situaciones de caso fortuito o fuerza mayor.

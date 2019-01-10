@@ -1,6 +1,1 @@
-CAPÍTULO VI
-De las mociones
-Artículo 44.—Durante el desarrollo de la sesión los y las Delegadas podrán interponer las siguientes mociones:
-a) Moción de Orden: Tienen prioridad en la discusión, se formulan para encauzar el asunto que se discute y han de referirse necesariamente a cuestiones de procedimiento. Bajo esta modalidad se podrá solicitar la modificación de la orden del día.
-b) Moción de Fondo: Dirigidas a modificar el contenido u objetivo de determinado asunto sometido a discusión. Se podrán presentar una vez concluidas las explicaciones del tema.
-c) Moción de Forma: Dirigidas a modificar la redacción de un acta o de un acuerdo, sin modificar su contenido. Una vez aprobadas pasarán directamente a la Secretaría de Actas para que sean incorporadas al documento correspondiente.
+Artículo 44.- El acta será aprobada en la siguiente sesión ordinaria y los acuerdos contenidos en la misma quedarán firmes hasta su aprobación. A criterio de la Junta Directiva se podrá aprobar la firmeza y ejecución de determinados acuerdos en la misma sesión, para lo cual se deberá contar con una votación no menor a dos tercios de la totalidad de las personas delegadas presentes. Las actas carecerán de validez hasta que hayan sido debidamente firmadas por el o la Secretaria y el o la Presidenta del Consejo Directivo, lo cual deberá concretarse antes de la siguiente sesión ordinaria.

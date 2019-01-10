@@ -15,3 +15,4 @@ Reglamento Interno de la Junta Directiva del Consejo Nacional de Rehabilitación
 | --- | --- | --- |
 | 1 | 2007-12-11 | la propia norma |
 | 2 | 2014-07-10 | Reglamento 1072 (2014-07-10) |
+| 3 | 2019-01-10 | Reglamento 1 (2019-01-10) |

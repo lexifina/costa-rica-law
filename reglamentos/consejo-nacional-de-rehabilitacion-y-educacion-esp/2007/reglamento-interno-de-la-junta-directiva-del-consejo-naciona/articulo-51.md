@@ -1,2 +1,3 @@
-Artículo 51.—La información de interés público que se encuentre consignada en las actas aprobadas y firmes del Consejo Directivo tendrá naturaleza pública y por lo tanto podrá ser conocida por los administrados con propósitos de información. No se entregará información relacionada con Secretos de Estado, datos íntimos y sensibles de una persona o grupo, e información vinculada a la investigación de actividades delictivas efectuadas por cuerpos policiales.
-Para el traslado de las actas, la persona interesada deberá dirigir solicitud formal por escrito o en forma digital a la Secretaría de Actas. El costo de la reproducción de material correrá por cuenta del interesado(a).
+CAPÍTULO IX
+Responsabilidad de las Personas Delegadas
+Artículo 51.- Serán responsables personalmente ante terceros las personas delegadas que actúen con dolo o culpa grave en el desempeño de sus deberes o con ocasión de su cargo. Se considerarán en esta situación los y las delegadas que emitieren actos manifiestamente ilegales, de conformidad con lo dispuesto en el artículo 199 de la Ley General de la Administración Pública.

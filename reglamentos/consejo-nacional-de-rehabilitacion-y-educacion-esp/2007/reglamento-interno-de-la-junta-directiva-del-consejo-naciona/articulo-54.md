@@ -1,1 +1,3 @@
-Artículo 54.—En todo caso deberá existir una estrecha relación entre el motivo del viaje y la naturaleza del cargo que desempeña el o la Delegada, además del interés público que debe privar en la gestión.
+CAPÍTULO X
+Disposiciones finales
+Artículo 54.- Las dudas de interpretación de este Reglamento se resolverán por acuerdo de mayoría, previo dictamen jurídico.

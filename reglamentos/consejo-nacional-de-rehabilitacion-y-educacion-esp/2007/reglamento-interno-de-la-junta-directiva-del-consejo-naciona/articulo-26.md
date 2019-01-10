@@ -1,1 +1,1 @@
-Artículo 26.—En caso de renuncia, separación o vencimiento del periodo de nombramiento del Presidente(a), Vicepresidente(a) o Secretario(a), se deberá proceder con la elección de un nuevo Delegado(a) en dichos cargos, lo cual se deberá realizar en la sesión inmediata siguiente.
+Artículo 26.- Para sesionar extraordinariamente la convocatoria deberá hacerse por escrito con al menos veinticuatro horas de antelación, salvo casos de urgencia. En la convocatoria deberán indicarse los temas de la agenda y en la sesión se conocerán estrictamente los puntos contenidos en ella.

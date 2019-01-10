@@ -1,3 +1,1 @@
-CAPÍTULO IV
-De la Secretaría de Actas
-Artículo 29.—La Secretaría de Actas será la instancia encargada de las funciones administrativas que se deriven de la gestión del Consejo Directivo. La Secretaría de Actas la atenderá un(a) funcionario(a) de la Institución, el(la) cual será designado(a) directamente por la Consejo Directivo a partir de una terna presentada por la Unidad de Recursos Humanos.
+Artículo 29.- Las personas que ocupen cargos de suplentes asistirán a las sesiones únicamente cuando les corresponda sustituir a los respectivos titulares del cargo y lo harán con los mismos derechos, obligaciones y potestades que el delegado propietario.

@@ -1,3 +1,1 @@
-CAPÍTULO V
-De las sesiones
-Artículo 31.—El Consejo Directivo sesionará en forma ordinaria dos veces por mes y en forma extraordinaria cada vez que sea convocado por quien ocupe el cargo de la Presidencia del Consejo Directivo. Podrá convocarse a sesión extraordinaria cuando así lo soliciten por escrito al menos seis delegados(as) ante el(la) Secretario(a) Ejecutivo(a).
+Artículo 31.- Las sesiones podrán ser presenciales o no presenciales. Sin embargo, las sesiones no presenciales serán excepcionales y sólo podrán celebrarse si los medios tecnológicos que para ello se empleen, permiten una comunicación integral y simultánea, que comprenda vídeo, audio y datos, entre las personas integrantes presentes en el lugar donde se celebra la sesión, y las personas integrantes que no estén en ese lugar.

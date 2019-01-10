@@ -1,1 +1,4 @@
-Artículo 42.—Los y las Delegadas tienen el derecho de abstenerse a votar sobre determinados asuntos, haciéndolo constar en el acta respectiva. La abstención no libera al Delegado(a) de las responsabilidades que genere el acto adoptado.
+CAPITULO VII
+De las Actas
+Artículo 42.- El acta preliminar de cada sesión contendrá el nombre de las personas delegadas presentes, las personas invitadas, las personas delegadas ausentes, el lugar, la fecha, la hora de inicio y finalización de la sesión, el resumen sucinto de las intervenciones de los y las delgadas, los puntos principales de la deliberación, la forma y el resultado de la votación especificando: votos a favor, votos contrarios y abstenciones y los acuerdos tomados. Asimismo, se consignará en el acta el momento de ingreso y salida de los delegados(as) durante el trascurso de la sesión.
+Cuando algún delegado o delegada declare expresamente su voluntad de que se consigne en el acta alguna manifestación puntual, lo señalará a quien ocupe la Presidencia de la Junta Directiva en el momento de su intervención, debiendo el o la Secretaria de Actas trascribir literalmente lo indicado.

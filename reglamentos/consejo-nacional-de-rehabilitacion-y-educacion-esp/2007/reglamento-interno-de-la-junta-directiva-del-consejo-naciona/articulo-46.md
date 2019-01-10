@@ -1,1 +1,2 @@
-Artículo 46.—Una vez presentada la moción, la misma se someterá a votación, sin más trámite.
+Artículo 46.- La información de interés público que se encuentre consignada en las actas aprobadas y firmes de la Junta Directiva tendrá naturaleza pública y por lo tanto podrá ser conocida por los administrados. No se entregará información relacionada con Secretos de Estado, datos íntimos y sensibles de una persona o grupo, e información vinculada a la investigación de actividades delictivas efectuadas por cuerpos policiales.
+Para el traslado de las actas, la persona interesada deberá dirigir solicitud formal a la Secretaría de Actas. El costo de la reproducción de material correrá por cuenta del interesado(a).

@@ -1,1 +1,1 @@
-Artículo 41.—Los y las Delegadas en ejercicio asumirán la responsabilidad por el voto que emitan en nombre de los entes representados. Haciendo constar en actas su voto disidente a determinado acuerdo, quedarán exentos de las responsabilidades que pudieran derivarse de la adopción o ejecución de dicho acuerdo.
+Artículo 41.- Una vez presentada y discutida la moción, la misma se someterá a votación, sin más trámite.

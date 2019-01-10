@@ -1,2 +1,1 @@
-Artículo 37.—Los y las Delegadas del Consejo Directivo, así como los y las funcionarias de la institución que asistan a las sesiones, deberán guardar la más absoluta reserva sobre las deliberaciones y resoluciones del Órgano Colegiado.
-La inobservancia a la presente disposición podrá constituir falta grave la cual, de comprobarse debidamente mediante los procedimientos legalmente establecidos, permitirá al Consejo Directivo solicitar la aplicación de las sanciones disciplinarias de mérito ante las instancias correspondientes.
+Artículo 37.- Los y las Delegadas tienen el derecho de abstenerse a votar sobre determinados asuntos, sólo cuando la representación del ente no haya participado en la deliberación del tema. Las abstenciones deberán constar en el acta respectiva.

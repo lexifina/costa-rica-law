@@ -1,1 +1,1 @@
-Artículo 45.—Los proponentes de cada moción podrán hacer uso de la palabra en favor de su iniciativa, hasta por un plazo que, individualmente o en conjunto, no exceda de cinco minutos. Otros Delegados y Delegadas podrán referirse, individualmente o en conjunto, en contra de la moción por un plazo igual.
+Artículo 45.- De todas las actas de las sesiones se debe realizar un respaldo en formato digital accesible.
