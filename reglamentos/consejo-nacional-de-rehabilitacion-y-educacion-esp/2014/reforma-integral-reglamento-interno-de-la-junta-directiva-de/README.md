@@ -14,3 +14,4 @@ Reforma Integral Reglamento Interno de la Junta Directiva del Consejo Nacional d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-04 | la propia norma |
+| 2 | 2019-01-10 | Reglamento 1 (2019-01-10) |
