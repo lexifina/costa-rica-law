@@ -1,1 +1,0 @@
-Artículo 2º—Régimen legal. En uso de las facultades que les confieren la Ley General de la Administración Pública, N° 6227 del 2 de mayo de 1978, y artículo 3 de la Ley de Creación del Registro Nacional, Ley N° 5695 de 28 de mayo de 1975 y sus reformas.

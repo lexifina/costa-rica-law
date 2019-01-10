@@ -1,2 +1,0 @@
-Artículo 12.—Horario de las capacitaciones: En atención a su naturaleza, a las necesidades de la Institución y a la oferta del mercado, las acciones de capacitación podrán recibirse dentro o fuera de la jornada laboral, tratando de recibirlas preferiblemente fuera de la misma.
-El tiempo dedicado a actividades de capacitación fuera de la jornada laboral, no dará derecho al pago de horas extras, ni al pago de doble jornada laboral en forma total o parcial.

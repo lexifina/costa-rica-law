@@ -1,1 +1,0 @@
-Artículo 17.—Prestación de servicio. El beneficiario deberá prestar los servicios aludidos en el artículo anterior, en el Registro Nacional. Cuando se diera el traslado a un ente estatal, estando el trabajador en retribución de tiempo, continuará con el cumplimiento de la retribución en la nueva entidad.
