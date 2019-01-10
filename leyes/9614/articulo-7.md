@@ -1,0 +1,1 @@
+ARTÍCULO 7- Serán miembros honorarios, los miembros activos a quienes la Asamblea General del Colegio, previa recomendación de la Junta Directiva, les otorgue tal distinción, en reconocimiento de sus méritos personales, académicos y profesionales en el campo de las ciencias políticas o las relaciones internacionales.

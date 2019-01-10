@@ -1,0 +1,1 @@
+ARTÍCULO 52- Los documentos que emitan las personas profesionales en ciencias políticas o relaciones internacionales miembros del Colegio, referentes a su campo de competencia, deberán contener la firma y el código.

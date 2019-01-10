@@ -1,0 +1,2 @@
+ARTÍCULO 46- Podrán ejercer las funciones públicas para las cuales la ley o los decretos ejecutivos exijan en sus descriptores de puestos el ejercicio de la profesión de ciencias políticas o relaciones internacionales, los miembros activos del Colegio, de acuerdo con esta ley y su reglamento.
+Las personas que ejerzan la profesión contra lo dispuesto en la presente ley quedarán sujetas a las sanciones legales establecidas al efecto.
