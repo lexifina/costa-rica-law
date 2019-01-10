@@ -1,2 +1,0 @@
-Artículo 29.—Los profesionales extranjeros solo podrán ser contratados por entidades públicas o privadas, cuando sean miembros activos del Colegio y se haya declarado inopia de profesionales costarricenses. En casos especiales, la Junta Directiva podrá concederles un permiso temporal de trabajo a los extranjeros.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Ley No. 8356 de 12 de junio de 2002, publicada en La Gaceta No. 122 de 26 de junio de 2003.)
