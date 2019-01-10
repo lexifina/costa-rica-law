@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE TURRUBARES
+ALCALDÍA
+El Concejo Municipal de Turrubares en sesión ordinaria N° 50-2018, celebrada el 31 de octubre del 2018 acuerda: “Aprobar la enmienda al “Reglamento para la Autorización y el Pago de Egresos” que modifica el art. 1 y art. 5 del reglamento actual, de manera que indique:
+“Artículo 1º—El Alcalde Municipal podrá autorizar los pagos para los egresos por gastos fijos y la adquisición de bienes y servicios, tal como lo señala el artículo 17, inciso h) del Código Municipal, hasta por el 100% monto que establece la legislación vigente para el procedimiento de Contratación Directa, según el Presupuesto Ordinario de la Municipalidad y así estipulado por la Contraloría General de la República.
+Artículo 5º—Los pagos para los egresos contemplados en los artículos anteriores se efectuarán por medio transferencia electrónica de fondos o cualquier otro medio que a futuro se determine, atendiendo los principios de eficiencia y seguridad, referenciados en la Ley de la Administración Financiera de la República y Presupuestos Públicos y su Reglamento.
+Los cheques serán extendidos por el Departamento de Contabilidad, con la firma del Tesorero y al menos, con la de otro funcionario autorizado al efecto, de conformidad con lo establecido en los Artículos 17, inciso b) y 109, del Código Municipal y lo dispuesto en este Reglamento.
+Con respecto al resto del reglamento rige tal y como fue publicado originalmente en La Gaceta N° 184 del pasado 25 de setiembre del 2013 y su reforma del 09 de octubre de 2013, publicada en La Gaceta N° 222 del 18 de noviembre de 2013. Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Turrubares, San Pablo, 06 de noviembre del 2018
