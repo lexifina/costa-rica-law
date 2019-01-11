@@ -1,0 +1,2 @@
+Artículo 13.—Copia del Presupuesto para modificación de los sistemas.
+El encargado de la elaboración del presupuesto entregará una copia de cada variación que se realice del presupuesto al máximo nivel de detalle, a las oficinas de secretaria del Consejo Directivo, para la modificación que deba realizarse a la información presupuestaria en el (SIPP), en el sistema de presupuesto de la Federación, contabilidad y para efectos informativos de cualquier persona que lo requiera.

@@ -1,0 +1,2 @@
+Artículo 8º—Vigencia legal de los presupuestos extraordinarios y las modificaciones presupuestarias.
+Los Presupuestos Extraordinarios entrarán en vigencia una vez que sea aprobado por la Contraloría General de la República. Las modificaciones presupuestarias de aprobación administrativa tendrán efecto legal en el presupuesto a partir de la aprobación por parte de la Dirección administrativa y las modificaciones presupuestarias de aprobación del Consejo Directivo a partir de la ratificación del acta en la cual fueron aprobados o a partir de su acuerdo en firme.
