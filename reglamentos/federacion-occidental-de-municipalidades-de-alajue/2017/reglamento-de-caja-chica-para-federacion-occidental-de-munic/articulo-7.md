@@ -1,0 +1,1 @@
+Artículo 7º—No se permitirá el cambio de cheques personales y contribuyentes con fondos de caja chica, ni se permitirán prestamos como pueden ser vales a favor de un funcionario de la Federación, con cargo a la planilla, ni de otra índole.
