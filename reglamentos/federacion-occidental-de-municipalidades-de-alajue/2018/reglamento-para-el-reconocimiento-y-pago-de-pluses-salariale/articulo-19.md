@@ -1,0 +1,3 @@
+Artículo 19.—Compensación económica: La federación reconocerá una compensación salarial por dedicación exclusiva calculada sobre el salario base, cuyo monto está definido por el grado académico universitario que la persona trabajadora posea, de la siguiente manera:
+a) Un diez por ciento, para aquellas personas trabajadoras que poseen el grado académico de bachillerato universitario y ocupen un puesto para el que se requiere tal condición.
+b) Un veinticinco por ciento, para aquellas personas trabajadoras que ostentando el grado académico de licenciatura, ocupen un puesto para el que se requiere como mínimo dicho grado académico.

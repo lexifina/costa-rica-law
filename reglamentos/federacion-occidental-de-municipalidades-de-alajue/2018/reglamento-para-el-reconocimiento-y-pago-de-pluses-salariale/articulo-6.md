@@ -1,0 +1,1 @@
+Artículo 6º—Compensación económica de la prohibición: La Federación reconocerá la compensación salarial, establecida en cada una de las leyes que implantan este régimen, calculada sobre el salario base.

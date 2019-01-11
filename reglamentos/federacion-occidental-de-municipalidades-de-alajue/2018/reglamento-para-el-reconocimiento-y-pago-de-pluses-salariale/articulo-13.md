@@ -1,0 +1,1 @@
+Artículo 13.—Momento de inicio de las obligaciones del régimen: Las obligaciones del régimen de prohibición iniciarán, para ambas partes, desde el primer día de funciones de la persona trabajadora cubierta por este régimen. En las nuevas contrataciones de la federación a nuevos puestos, deberá verificarse previamente si el puesto está afectado por prohibición o no.

@@ -1,0 +1,1 @@
+Artículo 22.—Momento de inicio de las obligaciones del régimen: Las obligaciones del régimen de dedicación exclusiva iniciarán, para ambas partes, desde que sea posible para la se hayan cumplido los requisitos y se haya dado la respectiva aprobación presupuestaria y la firma del contrato de dedicación exclusiva.

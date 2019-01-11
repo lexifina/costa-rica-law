@@ -1,0 +1,1 @@
+Artículo 37.—Momento desde que será efectiva la renuncia: Para el régimen de dedicación exclusiva, la renuncia se hará efectiva al finalizar la bisemanal en que la renuncia fue presentada y la persona trabajadora no podrá acogerse nuevamente al régimen sin que hayan transcurrido dos años.

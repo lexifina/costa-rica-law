@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo del reglamento: El presente reglamento tiene como objetivo establecer los montos y las condiciones bajo las cuales la federación reconocerá las compensaciones salariales; conocidas como pluses; conforme a la Ley.

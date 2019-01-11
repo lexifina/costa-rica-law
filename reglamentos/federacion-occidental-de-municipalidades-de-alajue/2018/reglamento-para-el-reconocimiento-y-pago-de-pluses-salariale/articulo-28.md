@@ -1,0 +1,1 @@
+Artículo 28.—Consecuencias del incumplimiento: El incumplimiento de los deberes de los regímenes de prohibición o dedicación exclusiva, será una falta gravísima, sancionable con el despido sin responsabilidad patronal.
