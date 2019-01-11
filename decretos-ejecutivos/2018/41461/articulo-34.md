@@ -1,0 +1,1 @@
+Artículo 34.- En el momento de que se alerte de un posible donante, el establecimiento de salud en donde esté el receptor designado, tendrá un tiempo máximo de 4 horas para dar la respuesta de aceptación o no del órgano.

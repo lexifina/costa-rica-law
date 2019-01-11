@@ -1,0 +1,2 @@
+Artículo 43.- Cuando existan casos de duda en el proceso de inclusión y/o recalificación en la lista nacional de receptores, se conformará un Comité Técnico Asesor. Cada establecimiento de salud autorizado, designará un representante de su equipo de trasplante renal. El mismo será convocado por el establecimiento interesado a través de la Secretaría Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos.
+Para cada caso se deberá llegar a un consenso clínico.

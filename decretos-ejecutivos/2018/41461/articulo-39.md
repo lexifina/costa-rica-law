@@ -1,0 +1,1 @@
+Artículo 39.- Todo potencial receptor que ingrese a la lista nacional de receptores, no podrá participar de la distribución de los órganos una vez iniciado el operativo de distribución, hasta no ser validado por la Secretaría Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos.

@@ -1,0 +1,1 @@
+Artículo 15.- El fallecimiento y la baja transitoria o permanente de los potenciales receptores inscritos en la lista nacional de receptores, deberá ser reportado por el médico a cargo del paciente autorizado, en forma inmediata en el Sistema Informático establecido por el Ministerio de Salud, denominado Sistema Nacional de Donación de Órganos de Costa Rica (SINADOC).

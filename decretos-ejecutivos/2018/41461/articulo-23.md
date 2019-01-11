@@ -1,0 +1,1 @@
+Artículo 23.- El SINADOC utiliza los datos del posible donante y de todos los potenciales receptores inscritos, para evaluarlos según el órgano a trasplantar. Como resultado, emite un listado de posibles receptores con un orden de prioridad asignado a cada uno.

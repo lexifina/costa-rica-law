@@ -1,0 +1,1 @@
+Artículo 19.- El ordenamiento numérico de las listas se establece en cada operativo de donación, una vez conocidas las características de compatibilidad entre el donante/receptor y el lugar del país donde se procura el órgano.

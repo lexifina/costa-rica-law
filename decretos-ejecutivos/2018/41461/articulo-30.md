@@ -1,0 +1,1 @@
+Artículo 30.- En caso de nuevo ingreso a la lista nacional de receptores por retrasplante, si este ocurre en un periodo menor de 12 meses a la fecha del trasplante, se mantendrá en vigencia la fecha de ingreso previa a la lista. Si el periodo de retrasplante es mayor a los 12 meses, ésta será considerada como una nueva fecha de ingreso.

@@ -1,0 +1,1 @@
+Artículo 48.- El paciente receptor de órgano proveniente de donante con criterio extendido, es aquel que previo consentimiento acepta la recepción de un órgano proveniente de un donante con criterio ex-tendido, según el Anexo 6 del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 20.- El proceso de distribución y asignación de órganos y tejidos comienza ante la existencia de un potencial donante efectivo, una vez que se han cumplido los pasos operativos de verificación de consentimiento de donación, certificación de muerte encefálica, entrevista familiar y se ha determinado qué órganos son viables para ser trasplantados.

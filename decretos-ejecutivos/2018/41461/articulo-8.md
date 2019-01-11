@@ -1,0 +1,1 @@
+Artículo 8.- El paciente sólo podrá estar inscrito en un establecimiento de salud público o privado, con el fin de no duplicarse en otros establecimientos y la cirugía se realizará en el establecimiento de salud autorizado que lo tiene registrado en la lista nacional de receptores.

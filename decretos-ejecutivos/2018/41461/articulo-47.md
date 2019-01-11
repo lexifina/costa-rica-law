@@ -1,0 +1,1 @@
+Artículo 47.- En caso de encontrarse dos pacientes en igual situación, el orden de prioridad será determinado por la fecha de ingreso a diálisis. Si persistiera dicha igualdad, se priorizará la fecha y hora más antigua de efectivización de la inscripción en la lista nacional de receptores, en el Sistema Nacional de Donación de Órganos de Costa Rica (SINADOC).

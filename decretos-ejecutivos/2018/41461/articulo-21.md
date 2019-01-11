@@ -1,0 +1,1 @@
+Artículo 21.- El SINADOC emite un listado de los posibles receptores, con base en criterios pre-establecidos que tienen en cuenta la compatibilidad biológica y antropométrica, la prioridad al establecimiento de salud donde se procura, la situación clínica y el tiempo transcurrido en esa situación.

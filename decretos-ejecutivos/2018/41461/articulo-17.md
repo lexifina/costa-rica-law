@@ -1,0 +1,1 @@
+Artículo 17.- Todo donante cadavérico se le debe realizar el antígeno leucocitaria humano (HLA) de primera y segunda línea, insumo básico para la distribución renal de acuerdo a riesgo inmunológico principalmente en el paciente hipersensibilizado.

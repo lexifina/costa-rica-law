@@ -1,0 +1,1 @@
+Artículo 36.- En caso de que la no aceptación del órgano sea por un motivo no médico (de causa administrativa), le corresponderá al responsable del establecimiento de salud, enviar una nota justificando la misma.

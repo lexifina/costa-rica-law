@@ -1,0 +1,1 @@
+Artículo 38.- En el caso de pacientes en espera de trasplante multiorgánico, si se les asigna de acuerdo a lista un órgano impar, este paciente tiene prioridad para la lista nacional de receptores, según las pruebas de compatibilidad.
