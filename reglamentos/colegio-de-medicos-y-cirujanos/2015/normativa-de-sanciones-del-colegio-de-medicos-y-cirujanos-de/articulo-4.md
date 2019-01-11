@@ -9,11 +9,11 @@ b) El abandono injustificado de un paciente en peligro de muerte. Será sanciona
 2-De 120 a 180 días naturales, si es recurrente y siempre y cuando dicho abandono no determine la muerte del paciente.
 3-De 180 a 210 días naturales, si debido al abandono, el paciente muere.
 Para la valoración en el quantum de la falta, la Junta de Gobierno tomará en consideración la intención del denunciado, valorando si actuó con dolo o culpa.
-c) La violación al artículo 27 del Código de Ética Médica. Será sancionado con una suspensión en el ejercicio profesional de la siguiente forma:
-1. De 30 a 60 días la primera vez.
-2. Si es reincidente una suspensión de 60 a 90 días naturales.
-3. Si es recurrente una suspensión de 90 a 120 días naturales.
-Para la valoración en el quantum de la falta, la Junta de Gobierno tomará en consideración la gravedad de los actos o agravios proferidos por el denunciado al paciente u ofendido.
+(*)c) La discriminación, trato indigno al ser humano o practicar o promover prácticas de tortura directa e indirectamente, ser complaciente o no denunciar teniendo conocimiento de ello según lo establecido en los artículos 8, 10 y 11 del Código de Ética Médica (Decreto Ejecutivo número 39609-S) Será sancionado con una suspensión en el ejercicio profesional de la siguiente forma:
+1. De 90 a 120 días naturales, la primera vez que se incurra en esta infracción, salvo que dicha infracción derive en lesión grave, física o mental o muerte del paciente.
+2. De 120 a 180 días naturales, cuando sea recurrente, salvo que dicha infracción derive en lesión grave, física, o mental, o muerte del paciente.
+3. De 210 a 270 días naturales, cuando dicha infracción derive en lesión grave, física, mental o muerte del paciente
+(*)(Así reformado el inciso c) anterior en Asamblea General Extraordinaria celebrada el 11 de enero del 2019)
 d) La retención de una persona como paciente, para efecto de garantía de cobro de honorarios. Será sancionado con una suspensión en el ejercicio profesional, de la siguiente forma:
 1. De 90 a 120 a naturales la primera vez que incurra en esta falta.
 2. De 120 a 180 días naturales si es reincidente.
@@ -52,14 +52,16 @@ j) Ante solicitud oral o escrita de otro médico, pudiendo hacerlo, no acudir pe
 3. De 180 a 210 días naturales, si el no atender o colaborar en dicha emergencia produce lesiones graves al paciente.
 4. De 210 a 270 días naturales, si el no atender o colaborar en dicha emergencia produce la muerte del paciente.
 Para la valoración en el quantum de la falta, la Junta de Gobierno tomará en consideración el daño ocasionado por el infractor, así como si medió dolo o culpa en la comisión de la misma.
-k) El incumplimiento a los artículos: 10, 20, 24, 38, 42, 55 del Código de Ética Médica. Será sancionado con una suspensión en el ejercicio profesional, de la siguiente manera:
+(*)k) Incumplimiento de lo dispuesto en los artículos 1, 4, 6, 20, 57 104, 109 y 137 del Código de Ética Médica (Decreto Ejecutivo número 39609-S).
+Será sancionado con una suspensión en el ejercicio profesional, de la siguiente manera:
 1. De 30 a 60 a días naturales la primera vez que incurra en alguna de estas infracciones.
 2. De 60 a 90 días naturales si es reincidente.
 3. De 90 a 120 días naturales si es recurrente.
-Para la valoración en el quantum de la falta, la Junta de Gobierno tomará en consideración el perjuicio ocasionado por el infractor.
-l) El incumplimiento a los artículos: 28, 29 del Código de Ética Médica. Será sancionado con una suspensión en el ejercicio profesional, de la siguiente manera:
-1. De 90 a 120 días naturales, la primera vez que incurra en esta infracción salvo que dicha infracción derive en lesión grave física o mental o muerte del paciente.
-2. De 120 a 180 días naturales, cuando sea recurrente, salvo que dicha infracción derive en lesión grave, física o mental, o muerte del paciente.
-3. De 210 a 270 días naturales, cuando dicha infracción derive en lesión grave, física o mental, al paciente.
-4. De 270 días naturales a 1 año cuando dicha infracción derive en la muerte del paciente.
-Para la valoración en el quantum de la falta, la Junta de Gobierno tomará en consideración el perjuicio ocasionado al paciente y a la salud pública.
+Para la valoración en el quantum de la falta, la Junta de Gobierno tomará en consideración el perjuicio ocasionado por el infractor
+(*)(Así reformado el inciso c) anterior en Asamblea General Extraordinaria celebrada el 11 de enero del 2019)
+(*)l) El médico que viole el secreto profesional y deber de confidencialidad conforme al artículo 1 y Capítulo VI del Código de Ética Médica. Será sancionado de la siguiente manera:
+1. De 30 a 60 a días naturales la primera vez que incurra en alguna de estas infracciones.
+2. De 60 a 90 días naturales si es reincidente.
+3. De 90 a 120 días naturales si es recurrente.
+Para la valoración en el quantum de la falta, la Junta de Gobierno tomará en consideración el perjuicio ocasionado por el infractor al paciente y al Colegio.
+(*)(Así reformado el inciso l) anterior en Asamblea General Extraordinaria celebrada el 11 de enero del 2019)

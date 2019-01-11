@@ -15,3 +15,4 @@ Normativa de sanciones del Colegio de Médicos y Cirujanos de Costa Rica
 | --- | --- | --- |
 | 1 | 2015-10-08 | la propia norma |
 | 2 | 2015-10-14 | Reglamento 0 (2015-10-14) |
+| 3 | 2019-01-11 | Reglamento 0 (2019-01-11) |
