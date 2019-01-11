@@ -1,0 +1,1 @@
+Artículo 10.—Solicitud de Bienes y Servicios. Los bienes y servicios que requieran: la Asamblea General, el Consejo Directivo, la Dirección Ejecutiva, Áreas, Oficinas de la Institución y otros entes u órganos de la comunidad serán solicitados a la Gestión Financiera Institucional, mediante el oficio formal.

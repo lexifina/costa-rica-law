@@ -1,0 +1,2 @@
+Artículo 13.—Solicitud de muestras o demostraciones. Cuando el solicitante de bienes y servicios lo considere necesario, por medio de la Proveeduría, se solicitará a los oferentes, muestras o demostraciones con el propósito de conocer mejor el producto o servicio.
+El jefe del Área interesada debe prestar la debida colaboración para que las demostraciones se realicen en un corto lapso, con el fin de que sean analizadas y se realicen las valoraciones del caso.

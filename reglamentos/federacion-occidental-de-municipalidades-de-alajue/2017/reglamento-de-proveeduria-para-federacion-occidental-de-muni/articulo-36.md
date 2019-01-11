@@ -1,0 +1,2 @@
+Artículo 36.—Reporte de cambios en bienes y servicios ofrecidos y renovación de documentos. Los oferentes incluidos en el Registro de Proveedores quedan obligados a comunicar a la Proveeduría Institucional de todo cambio que se presente en sus datos, descripción y característica de los bienes y servicios.
+Los oferentes inscritos en el Registro de Proveedores están obligados a renovar aquellos documentos legales que hayan vencido y a actualizar sus datos anualmente y a mantenerse en el Registro de Proveedores cada dos años ante nota remitida a la Proveeduría.

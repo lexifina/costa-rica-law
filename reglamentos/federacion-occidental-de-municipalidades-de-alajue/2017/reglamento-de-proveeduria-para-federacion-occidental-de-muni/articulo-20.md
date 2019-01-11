@@ -1,0 +1,1 @@
+Artículo 20.—Valoración de las ofertas. Corresponde a la Gestión Financiera Institucional la responsabilidad final de valorar las ofertas previa revisión y criterio técnico y legal de estas, del área que realizó la solicitud del procedimiento y de la Asesoría Legal según corresponda.

@@ -1,0 +1,1 @@
+Artículo 31.—Invitación anual a inscribirse. La Gestión Financiera Institucional invitará, mediante una publicación anual en el Diario Oficial La Gaceta, a aquellas personas físicas o jurídicas que deseen formar parte del Registro de Proveedores para las futuras contrataciones a realizar.

@@ -1,0 +1,1 @@
+Artículo 25.—Orden de compra. La Proveeduría Institucional emitirá la orden de compra para las firmas respectivas, mediante el cual se ordena la ejecución de la prestación de bienes y servicios, misma que deberá ser comunicada al adjudicado.
