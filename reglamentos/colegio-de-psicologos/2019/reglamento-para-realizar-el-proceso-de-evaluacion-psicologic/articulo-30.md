@@ -1,0 +1,2 @@
+Artículo 30. Cuando el informe se anule, extravíe, destruya, inutilice, sea sustraído o se deteriore, total o parcialmente, deberá notificarse por escrito al Colegio y detallar los hechos en un plazo máximo de tres días.
+El Colegio ordenará al o a la profesional el pago previo para realizar la reposición del informe, y de sospechar delito, lo denunciará al Ministerio Público para que proceda conforme a la ley. Si el daño fuera únicamente parcial, las partes deterioradas se acompañarán con la solicitud de reposición.

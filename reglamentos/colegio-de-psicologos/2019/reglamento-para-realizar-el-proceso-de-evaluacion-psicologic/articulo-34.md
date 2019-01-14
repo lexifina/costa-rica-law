@@ -1,0 +1,4 @@
+Artículo 34. Tipos de evaluación. Las evaluaciones psicológicas de idoneidad con fines de adopción se realizan para brindar y reportar información a este proceso, tanto en sede administrativa, como en sede judicial.
+Dichas evaluaciones, según corresponda, se realizan a familias biparentales y uniparentales sin distinción de sexo o género, conforme a la legislación vigente.
+La evaluación psicológica se realiza de forma previa a la llegada del hijo o de la hija a la familia, o bien, como parte del peritaje del proceso de adopción con la persona menor de edad o grupo de hermanos y hermanas residiendo con quienes son adoptantes.
+En este último caso, la evaluación debe contemplar el diagnóstico psicológico de las condiciones actuales de las personas menores de edad y su vínculo con las figuras parentales.

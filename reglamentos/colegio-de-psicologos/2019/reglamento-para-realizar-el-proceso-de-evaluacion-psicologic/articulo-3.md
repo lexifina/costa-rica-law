@@ -1,0 +1,5 @@
+Artículo 3. Objetivos del Reglamento. En todo proceso de evaluación psicológica de idoneidad mental, los y las profesionales en psicología deberán velar para que en su trabajo se alcancen los siguientes objetivos:
+a) Asegurar el cumplimiento de las normas éticas y de calidad para salvaguardar el bienestar de las personas menores de edad.
+b) Realizar la evaluación en el marco del Manual de normas y procedimientos del proceso de evaluación psicológica de idoneidad mental para solicitantes de adopción.
+c) Lograr que las evaluaciones y recomendaciones resulten pertinentes y adecuadas para las acciones que deben tomar las personas solicitantes, la Fiscalía, jueces y juezas en materia de familia y el personal responsable del PANI.
+d) Definir el trabajo del o de la profesional en el proceso de adopción con base en el marco ético y desde la Convención sobre los Derechos del Niño y el Código de la Niñez y la Adolescencia, con la idea fundamental de que primen los intereses superiores de la persona menor de edad y no intereses particulares, políticos, económicos o de otra índole.

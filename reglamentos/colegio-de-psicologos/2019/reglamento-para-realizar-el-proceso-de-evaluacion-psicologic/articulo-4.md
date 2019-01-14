@@ -1,0 +1,5 @@
+Artículo 4. Marco Ético Profesional. Las personas profesionales en psicología que realicen valoraciones de idoneidad mental para adopción deben practicar los más altos valores ético profesionales, por lo que han de ajustar sus actos a las disposiciones del Código de Ética y Deontológico del Colegio de Profesionales en Psicología de Costa Rica:
+a) Son responsables por el cumplimiento de sus obligaciones y deberes profesionales, así como por la violación de las leyes y sus reglamentos. Esta responsabilidad puede ser administrativa, civil o penal.
+b) Se prohíbe al o a la profesional evaluar la idoneidad mental de quien lo solicitare en el siguiente caso:
+b.1 Emitir informes a sus respectivos cónyuges o convivientes, ascendientes, descendientes, hermanos, hermanas, tíos, tías, sobrinos o sobrinas y demás familiares hasta el tercer grado de consanguinidad o afinidad.
+c) Quien no cumpla con las disposiciones consignadas en el presente Reglamento tendrá como consecuencia la apertura de un proceso disciplinario, según lo establece el Código de Ética y Deontológico del Colegio.

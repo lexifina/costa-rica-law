@@ -1,0 +1,1 @@
+Artículo 6. Ejecución del presupuesto. Se realizará la ejecución del presupuesto de la Comisión conforme al acuerdo respectivo de la Junta Directiva y en apoyo de quien coordine la Comisión, respetando las normas y procedimientos establecidos por la administración del Colegio.

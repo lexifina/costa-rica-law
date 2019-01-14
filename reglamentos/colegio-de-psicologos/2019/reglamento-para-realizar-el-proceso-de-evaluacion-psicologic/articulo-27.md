@@ -1,0 +1,1 @@
+Artículo 27. Quien esté a cargo de la evaluación profesional deberá informar a la persona o pareja evaluada acerca de las implicaciones de incurrir en violaciones a los derechos de las personas menores de edad, dejando clara la existencia de responsabilidad administrativa, civil o penal, según sea el caso.

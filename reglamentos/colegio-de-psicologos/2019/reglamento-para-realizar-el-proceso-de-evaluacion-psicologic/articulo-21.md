@@ -1,0 +1,1 @@
+Artículo 21. Curso de formación. Toda persona profesional que pretenda realizar evaluaciones psicológicas para procesos de idoneidad mental para adopción, debe realizar y aprobar el curso de aprovechamiento, el cual constará de cuarenta (40) horas, con la evaluación respectiva.

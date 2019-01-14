@@ -1,0 +1,1 @@
+Artículo 38. Cuando la persona evaluada, pareja o familia deban firmar el consentimiento informado o un informe y no puedan hacerlo, se imprimirá la huella digital en el lugar designado para firmar. La o el profesional indicará a cuál dedo y extremidad corresponde.

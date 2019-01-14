@@ -1,0 +1,1 @@
+Artículo 15. Organización interna. La Junta Directiva designará a una persona para que coordine la Comisión. Será la Comisión, por mayoría simple, la que designe para el puesto de secretaría. Tal designación será reportada formalmente por la coordinación a la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 7. El Colegio autorizará que profesionales en psicología realicen el proceso de evaluación psicológica de idoneidad mental y emisión de documentos respectivos a la evaluación, cuando cumplan con los requisitos delimitados en el Título III del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 28. En caso de que la persona o pareja solicitante sea considerada apta, el informe mantiene su validez a partir de la fecha de emisión. Si resulta no apta, podrá volver a aplicar dos años después.
