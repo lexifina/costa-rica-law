@@ -1,1 +1,0 @@
-Artículo 29.—Instituciones susceptibles a recibir donaciones. Las donaciones se podrán otorgar a entidades declaradas de Interés público, de Interés Social o sin fines de lucro debidamente inscritas ante las instancias correspondientes, centros o instituciones de educación del Estado, u otras dependencias del Estado para la realización de sus fines.

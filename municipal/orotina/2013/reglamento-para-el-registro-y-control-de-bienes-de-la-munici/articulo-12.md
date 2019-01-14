@@ -1,1 +1,0 @@
-Artículo 12.—Faltante y daño de bienes. El jefe de la Oficina o Dependencia debe velar para que todo funcionario que cese en sus funciones entregue todos los bienes encargados a su custodia. Si el jefe, por olvido u otra razón, omitiere este requisito asume la responsabilidad por los faltantes y daños que posteriormente se encuentren.

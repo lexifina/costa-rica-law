@@ -1,1 +1,0 @@
-Artículo 5º—Inscripción de bienes. El Departamento de Proveeduría velara para que se realicen las gestiones necesarias, para inscribir los bienes que por su naturaleza requieran ser inscritos en los respectivos registros públicos existentes.
