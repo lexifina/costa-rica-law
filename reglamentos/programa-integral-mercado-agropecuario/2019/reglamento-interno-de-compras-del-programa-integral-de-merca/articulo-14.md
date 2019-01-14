@@ -1,0 +1,1 @@
+Artículo 14- Registro de proveedores. El PIMA, de conformidad con el Artículo 46 de la Ley de Contratación Administrativa y el Artículo 124 del Reglamento a la Ley de Contratación Administrativa N. 33411, utilizará el Registro único de proveedores que al efecto contiene el Sistema Integrado de Compras Públicas.

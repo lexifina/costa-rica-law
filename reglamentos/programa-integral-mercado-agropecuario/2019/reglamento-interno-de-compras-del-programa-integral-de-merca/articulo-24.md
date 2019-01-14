@@ -1,0 +1,1 @@
+Artículo 24- De la recomendación de adjudicación en la escaza cuantía: El responsable del Centro de Costo en conjunto con la Proveeduría, deberá remitir un informe de adjudicación a la Gerencia General, a efecto de que esta emita el acto de adjudicación.

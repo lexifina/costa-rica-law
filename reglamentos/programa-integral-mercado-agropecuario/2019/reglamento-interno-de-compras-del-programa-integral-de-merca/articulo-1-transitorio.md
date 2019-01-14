@@ -1,0 +1,1 @@
+Transitorio 1: En el tanto las interfaces de conexión del SICOP con el SIFPIMA no se encuentren habilitadas, se seguirá el procedimiento, requisitos y demás formalismos establecidos en el Reglamento de Compras de PIMA aquí derogado.

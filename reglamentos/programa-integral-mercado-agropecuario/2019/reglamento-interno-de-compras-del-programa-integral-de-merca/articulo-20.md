@@ -1,0 +1,1 @@
+Artículo 20- De las compras directas de escasa cuantía. En la contrataciones directas de escasa cuantía, establecidas en el Artículo 144 del Reglamento a la Ley de Contratación Administrativa, se debe contar con un cartel lacónico, que contenga términos de referencia concretos y concisos, de acuerdo con la naturaleza de este tipo de contratación.

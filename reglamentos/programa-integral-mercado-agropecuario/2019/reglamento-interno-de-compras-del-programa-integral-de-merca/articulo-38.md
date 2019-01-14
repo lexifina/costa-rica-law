@@ -1,0 +1,1 @@
+Artículo 38- Del refrendo Contralor. La Gerencia General, deberá solicitar ante la Contraloría General de República el refrendo de aquellos contratos que se originen a partir de licitaciones, cuyo monto u objeto requieran el refrendo contralor de conformidad con el Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública.

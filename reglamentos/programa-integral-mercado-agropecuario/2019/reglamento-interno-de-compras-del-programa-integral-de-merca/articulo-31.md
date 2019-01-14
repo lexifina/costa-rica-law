@@ -1,0 +1,1 @@
+Artículo 31- Del informe de la Comisión de Contratación Administrativa. La Comisión de Contratación Administrativa, remitirá a la Gerencia General el correspondiente informe de adjudicación, en caso de requerir ser aprobado por el Consejo Directivo, corresponderá a la Gerencia el reenvío del respectivo informe.

@@ -1,0 +1,1 @@
+Artículo 43- Del Inventario de bienes. Cuando se trate de la recepción de activos se procederá conforme lo establece el Procedimiento para el Manejo y Control de Bienes aprobado por la Gerencia General.

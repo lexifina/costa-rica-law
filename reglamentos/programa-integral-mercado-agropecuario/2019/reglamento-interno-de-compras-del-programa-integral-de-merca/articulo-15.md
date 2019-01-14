@@ -1,0 +1,1 @@
+Artículo 15- De la Estimación del negocio. Previa a la solicitud de contratación, el responsable de Centro de Costo deberá realizar una estimación del negocio de conformidad con el Artículo 12 del Reglamento a la Ley de Contratación Administrativa, de la que deberá dejar constancia en la solicitud de contratación.

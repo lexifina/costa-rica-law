@@ -1,0 +1,1 @@
+Artículo 30- De los mecanismos de control del Procedimiento de Compras de Caja Chica. El sistema de control que se seguirá en este procedimiento será el mismo establecido para la Caja Chica en general de la institución, y le será aplicable lo establecido en el Reglamento de Caja Chica y Fondos Especiales del PIMA.

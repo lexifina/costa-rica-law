@@ -1,0 +1,1 @@
+Artículo 11- De la operación de la comisión. La Comisión sesionará por la convocatoria de la proveeduría para la atención de los puntos indicados en el Artículo anterior y para su operación se regirá por lo establecido en la Ley General de la Administración Pública, dejando constancia en un libro de actas aprobado por la Auditoría Interna.

@@ -1,0 +1,1 @@
+Artículo 41- Del Inventario de bienes. El Proceso de Proveeduría es el responsable de administrar, fiscalizar y revisar en detalle cada uno de los bienes de inventario de bodega con el objetivo de mantener un registro actualizado de existencias en bodega.

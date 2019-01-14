@@ -1,0 +1,1 @@
+Artículo 34- De la notificación de Adjudicación. El respectivo acto de adjudicación por parte la Consejo Directivo o la Gerencia General, será notificado por la Proveeduría de conformidad con lo establecido en la Ley de Contratación Administrativa y su respectivo Reglamento.

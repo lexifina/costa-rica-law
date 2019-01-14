@@ -1,0 +1,1 @@
+Artículo 2- Objetivo: El presente Reglamento tiene como propósito establecer los procedimientos y controles institucionales para el proceso de Gestión de Compras, así como los controles aplicables a los proveedores y a los productos o servicios adquiridos por el PIMA, sin perjuicio de lo establecido en el Artículo 40 de la Ley de Contratación Administrativa.
