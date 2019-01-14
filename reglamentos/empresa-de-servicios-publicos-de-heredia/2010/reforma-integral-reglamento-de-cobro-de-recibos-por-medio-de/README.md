@@ -14,3 +14,4 @@ Reforma Integral Reglamento de Cobro de Recibos por medio de Agentes Recaudadore
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-03-17 | la propia norma |
+| 2 | 2019-01-14 | Reglamento 3897 (2019-01-14) |

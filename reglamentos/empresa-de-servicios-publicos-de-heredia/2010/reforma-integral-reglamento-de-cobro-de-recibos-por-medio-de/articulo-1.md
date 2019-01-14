@@ -1,4 +1,6 @@
+(Revocada)
 EMPRESA DE SERVICIOS PÚBLICOS DE HEREDIA S. A.
+(Esta norma fue revocada por el Reglamento de Prestación de Servicios de Agentes Recaudadores de la Empresa de Servicio Público de Heredia S.A, aprobado mediante session N° 3897 del 14 de enero del 2019)
 Sesión Nº 3050 de la fecha 8 de febrero del 2010, artículo III inciso 1). Acuerdo JD 037-2010.
 1. Refórmese el Reglamento de Cobro de Recibos por Medio de Agentes Recaudadores Externos, aprobado mediante acuerdo JD 179-2007 de la sesión Nº 2856 de fecha 9 de julio del 2007, para que en adelante se lea así:
 2.
