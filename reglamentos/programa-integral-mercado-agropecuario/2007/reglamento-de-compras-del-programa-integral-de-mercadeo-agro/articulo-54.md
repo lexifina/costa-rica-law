@@ -1,2 +1,0 @@
-Artículo 54.—El proceso de proveeduría en coordinación con la asesoría legal deberá solicitar ante la Contraloría General de República el refrendo de aquellos contratos que se originen partir de la de licitaciones cuyo monto de adjudicación se a igual o superior al establecido por la Contraloría General de la República para la obtención del refrendo contralor.
-(Así corrida su numeración y publicado en La Gaceta N° 9 del 14 de enero de 2009, que lo traspasó del anterior artículo 44 al 54 actual).

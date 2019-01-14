@@ -1,4 +1,0 @@
-Artículo 19.—La información del Registro estará compuesta por los datos que aporten los proveedores, dicha información será de uso restringido pero de libre acceso para los procesos de contratación y auditoría de PIMA.
-En este registro se deben anotar las sanciones e inhabilitaciones de los proveedores, para efectos de futuras contrataciones, divulgando apropiadamente dicha información a quien corresponda. Este registro deberá detallar el nombre de los proveedores con los cuales la Administración no podrá contratar bienes y servicios en el plazo de la inhabilitación.
-No se entregará la base de datos completa a ninguna empresa privada, pero el PIMA no obstante lo anterior, podrá celebrar acuerdos de intercambio de información con otras entidades de sector público.
-(Así reformado y publicado en La Gaceta N° 9 del 14 de enero de 2009)

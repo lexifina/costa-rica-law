@@ -1,2 +1,0 @@
-Artículo 25.—La información tanto del proveedor como del bien o servicio que ofrece, contenida en el registro debe coincidir con la estipulada en las ofertas. Mientras no varíe la situación declarada, el proveedor no tiene necesidad de actualizar información, pero si uno o más datos del proveedor varían, éste debe comunicarlo a la Proveeduría para su corrección. El comunicado puede ser mediante nota o por cualquier medio electrónico que la institución ponga a disposición para tal efecto.
-(Así adicionado y publicado en La Gaceta N° 9 del 14 de enero de 2009)

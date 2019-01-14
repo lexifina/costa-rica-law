@@ -1,2 +1,0 @@
-Artículo 60.—En los casos en de licitaciones, cual fuere su naturaleza será la Comisión de Contratación Administrativa quien de la recomendación sobre la calificación de las ofertas, en el caso de las contrataciones directas dicha recomendación la realizará la Proveeduría.
-(Así corrida su numeración y publicado en La Gaceta N° 9 del 14 de enero de 2009, que lo traspasó del anterior artículo 50 al 60 actual).

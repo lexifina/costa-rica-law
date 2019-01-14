@@ -1,1 +1,0 @@
-Artículo 12.—Cada Director preparará su respectivo programa anual de compras, este deberá ser entregado a la gerencia general a más tardar el último día hábil del mes de noviembre del año anterior a su ejecución, en el formato destinado para tal fin en el SIFPIMA.

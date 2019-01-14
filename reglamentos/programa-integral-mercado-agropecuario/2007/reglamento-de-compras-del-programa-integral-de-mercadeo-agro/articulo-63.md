@@ -1,2 +1,0 @@
-Artículo 63.—En el caso de darse adelantos deberán liquidarse por los funcionarios de proveeduría en el término de 3 días hábiles mediante el comprobante de liquidación aprobado por el Líder del proceso de Proveeduría; después de entregado el dinero, respaldado con los documentos probatorios de la compra.
-(Así corrida su numeración y publicado en La Gaceta N° 9 del 14 de enero de 2009, que lo traspasó del anterior artículo 53 al 63 actual).

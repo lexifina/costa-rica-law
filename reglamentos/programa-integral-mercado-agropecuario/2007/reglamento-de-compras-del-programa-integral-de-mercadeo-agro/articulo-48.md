@@ -1,2 +1,0 @@
-Artículo 48.—Cuando se trate de procedimiento de Interés de colaboración con el PIMA establecido en el artículo 131 inciso I) del Reglamento a la Ley de Contratación Administrativa, deberá quedar constancia en el expediente administrativo de los respectivos estudios de mercado que demuestren el cumplimiento de la normativa.
-(Así corrida su numeración y publicado en La Gaceta N° 9 del 14 de enero de 2009, que lo traspasó del anterior artículo 38 al 48 actual).

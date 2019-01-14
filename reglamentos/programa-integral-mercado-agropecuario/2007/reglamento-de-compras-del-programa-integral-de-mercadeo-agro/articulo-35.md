@@ -1,2 +1,0 @@
-Artículo 35.—Dicha solicitud ingresará sistemáticamente a la Asesoría Legal quien verificará la justificación de la procedencia de conformidad con el artículo 8 del Reglamento a la Ley de Contratación Administrativa, quien a su vez lo remitirá al Proceso de Proveeduría para la iniciación o en caso contrario lo devolverá al interesado para su subsanación.
-(Así corrida su numeración y publicado en La Gaceta N° 9 del 14 de enero de 2009, que lo traspasó del anterior artículo 25 al 35 actual).

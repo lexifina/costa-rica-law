@@ -1,2 +1,0 @@
-Artículo 33.—El SIFPIMA deberá contener un registro de las invitaciones que no han sido atendidas por los oferentes, esto permitirá a su vez identificar al proveedor como inactivo. Además el sistema debe contemplar un apartado que permita identificar las razones por las cuales un oferente ha sido designado como inactivo o inhabilitado, siempre en concordancia con la evidencia documental que respaldará cualquiera de los dos casos.
-(Así adicionado y publicado en La Gaceta N° 9 del 14 de enero de 2009)

@@ -1,2 +1,0 @@
-Artículo 45.—El proceso de análisis estará a cargo del Proceso de Proveeduría. En cuanto a la adjudicación ésta deberá ser remitir un informe de adjudicación a la gerencia general para que esta se encargue de adjudicar. La adjudicación se notificará al oferente mediante la suscripción de la respectiva orden de compra por parte de la proveeduría de la Institución.
-(Así corrida su numeración y publicado en La Gaceta N° 9 del 14 de enero de 2009, que lo traspasó del anterior artículo 35 al 45 actual).

@@ -1,1 +1,0 @@
-Artículo14.—Las contrataciones que no estén amparadas al Programa Anual de Compras original o modificado, no serán tramitadas por la Proveeduría, salvo los casos de emergencia o urgencia que sean autorizados por la Gerencia General.

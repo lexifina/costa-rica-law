@@ -1,2 +1,0 @@
-Artículo 55.—En aquellos casos en que se establezca en la licitación la necesidad de inspección, para evaluar la experiencia y los equipos que se ofrecen, se integrará un solo grupo para que visite todas las empresas que se vayan a evaluar, debiendo estar conformado por un funcionario de la Dirección respectiva, otro de la Proveeduría y demás que considere necesario la Proveeduría.
-(Así corrida su numeración y publicado en La Gaceta N° 9 del 14 de enero de 2009, que lo traspasó del anterior artículo 45 al 55 actual).

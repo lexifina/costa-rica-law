@@ -1,9 +1,0 @@
-Artículo 32.—La Proveeduría deberá garantizar una adecuada rotación de los potenciales oferentes, para ello el módulo de proveeduría contenido en el SIFPIMA contará con un sistema de rotación automático, en atención de los siguientes criterios:
-1. La rotación de proveedores aplicará para los concursos promovidos mediante los procedimientos de Contratación Directa y Licitación Abreviada.
-2. El número de proveedores a seleccionar mediante el sistema de rotación, dependerá de las cantidades mínimas y máximas establecidas para cada tipo de contratación.
-3. Únicamente se tomará en cuenta en el sistema de rotación, los proveedores que ostenten la condición de activos.
-4. El SIFPIMA mediante un reporte, generará un rol automático de proveedores a invitar por categoría de recursos. Este rol estará dispuesto de forma cronológica ubicando los oferentes según la fecha de la última invitación en orden ascendente. Es así que los oferentes que ostenten los primeros lugares son a los que corresponde invitar.
-La proveeduría podrá adicionar proveedores acudiendo a otras fuentes, cuando desee obtener mayor participación en un determinado concurso, siempre y cuando el proveedor no esté inhabilitado para contratar con la administración pública.
-El SIFPIMA deberá identificar en el rol automático a los oferentes que sean PYMES, para que el funcionario que tramite el concurso le de prioridad en la invitación.
-Una vez obtenido el reporte de rotación el funcionario de Proveeduría que tramita la compra, debe indagar si el oferente tiene interés en participar en el concurso, de no ser así, se tomará en cuenta a otros oferentes según orden de rotación. Aun cuando un oferente justifique el no participar, será incluido en el rol de rotación.
-(Así adicionado y publicado en La Gaceta N° 9 del 14 de enero de 2009)

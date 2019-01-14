@@ -1,1 +1,0 @@
-Artículo 16.—Si en el momento de realizar el proceso de contratación se determina que el monto estimado y publicado en el Programa Anual de Compras requiere un ajuste, este podrá realizarse con la debida aprobación de la Gerencia General.

@@ -1,2 +1,0 @@
-Artículo 43.—La ejecución de las garantías no excluye el cobro en cede judicial de los daños y perjuicios causados a PIMA con el incumplimiento del oferente o del contratista, ni excluye la aplicación de las cláusulas penales expresamente previstas en el contrato, ni las retenciones acordadas por las partes, cuando resulte necesario para cubrir el monto de los respectivos daños y perjuicios.
-(Así corrida su numeración y publicado en La Gaceta N° 9 del 14 de enero de 2009, que lo traspasó del anterior artículo 33 al 43 actual).
