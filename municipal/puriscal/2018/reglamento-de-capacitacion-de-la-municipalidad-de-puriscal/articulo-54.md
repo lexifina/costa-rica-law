@@ -1,0 +1,1 @@
+Artículo 54º—La contratación de eventos de capacitación, cuando se trate de eventos no programados y sean de oferta diaria y los mismos son de oportunidad y conveniencia institucional; siempre y cuando su monto no supere el máximo permitido por Caja Chica, se cancelara por este medio presentando para su liquidación la factura o depósito bancario correspondiente.

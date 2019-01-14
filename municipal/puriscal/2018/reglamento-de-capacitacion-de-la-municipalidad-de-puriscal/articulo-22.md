@@ -1,0 +1,1 @@
+Artículo 22º—El departamento de Recursos Humanos contará con un periodo de seis meses, contados a partir de la publicación del presente reglamento, para elaborar el manual de procedimientos para la participación, organización y autorización de capacitaciones de los funcionarios municipales.

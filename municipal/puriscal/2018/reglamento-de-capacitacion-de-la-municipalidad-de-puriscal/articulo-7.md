@@ -1,0 +1,1 @@
+Artículo 7º—Actividades de inducción. Se consideran todas aquellas que permitan al funcionario adquirir conocimientos en torno a la Municipalidad, a fin de acelerar y facilitar el proceso de identificación y aceptación a ésta. Estas serán no escolarizadas y programadas únicamente por el Proceso de Recursos Humanos y con la coordinación de la jefatura inmediata correspondiente.

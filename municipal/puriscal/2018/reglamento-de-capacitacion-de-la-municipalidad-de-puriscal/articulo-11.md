@@ -1,0 +1,4 @@
+Artículo 11º—Requisitos de participación. Tendrán derecho a la capacitación los funcionarios que cumplan con los siguientes requisitos, según sea el caso.
+1. Para actividades de capacitación orientadas al puesto de trabajo, haber aprobado el periodo de prueba y laborar para la Municipalidad a tiempo completo. Se excluyen de esta disposición las actividades de inducción que se desarrollarán durante el periodo de prueba.
+2. Para actividades de capacitación orientadas a otro puesto de trabajo que el solicitante desee ocupar, se requiere laborar en plaza fija a tiempo completo y por un periodo mayor a seis meses y haber obtenido en la última evaluación del desempeño una calificación mayor o igual a un 70%.
+3. Para actividades de formación, laborar para la Municipalidad a tiempo completo y contar con el visto bueno de la jefatura inmediata.

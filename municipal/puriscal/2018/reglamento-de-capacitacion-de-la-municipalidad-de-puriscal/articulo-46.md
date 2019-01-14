@@ -1,0 +1,1 @@
+Artículo 46º—Detección de Necesidades de Capacitación. Es una etapa de investigación obligada, metodológicamente, que deberá llevarse a cabo antes de emprender actividades de capacitación y desarrollo.

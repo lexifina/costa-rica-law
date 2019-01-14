@@ -1,0 +1,1 @@
+Artículo 60º—La Municipalidad programará y presupuestará tal y como lo indica la Convención Colectiva de Trabajo en su artículo 68, inciso b) el 0.31% del presupuesto ordinario para programas de capacitación, esto en cada centro de costos y en coordinación con el Proceso de Recursos Humanos. Acorde a las necesidades detectadas de capacitación por las jefaturas inmediatas.

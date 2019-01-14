@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De los convenios con otros centros
+Artículo 61º—Convenios con centros de enseñanza públicos y privados. La Municipalidad de Puriscal podrá firmar convenios de cooperación interinstitucional, observando las normas de contratación administrativa aplicables, con centros de educación superior del país, así como con organismos internacionales, en programas de aprendizaje, especialización o carreras de profesionalización de interés de la Institución, con el propósito de asegurar la excelencia académica, satisfacer necesidades específicas de formación profesional, aprovechar factores de oportunidad, viabilidad y costos.

@@ -1,0 +1,1 @@
+Artículo 27º—El personal en propiedad que preste sus servicios en la Municipalidad de Puriscal, tiene derecho a participar en la capacitación necesaria para el mejor desempeño de sus funciones. La participación en los programas, quedará sujeto a contenido presupuestario para dichas actividades.

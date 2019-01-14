@@ -1,0 +1,1 @@
+Artículo 63º—Convenios con Empresas Privadas. La Municipalidad de Puriscal podrá firmar convenios de cooperación, observando las normas de contratación administrativa aplicables, para la adjudicación de cursos de capacitación de interés institucional, con empresas privadas, tanto fuera como dentro del cantón.

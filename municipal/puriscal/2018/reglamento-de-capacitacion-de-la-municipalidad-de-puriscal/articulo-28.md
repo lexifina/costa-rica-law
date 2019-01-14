@@ -1,0 +1,1 @@
+Artículo 28º—Aquellos funcionarios contratados de forma interina, por servicios especiales, jornales o suplencias, podrán recibir capacitación para mejorar su trabajo, previa solicitud escrita de la jefatura inmediata y la autorización del Proceso de Recursos Humanos.

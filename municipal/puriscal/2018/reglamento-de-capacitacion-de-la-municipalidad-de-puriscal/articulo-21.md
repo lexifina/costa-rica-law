@@ -1,0 +1,1 @@
+Artículo 21º—El manejo documental de las capacitaciones a las que asistan los funcionarios de la institución, debe de ser resguardada en cada proceso o subproceso al que pertenezca, además de entregar una copia de la misma, ya sea CD, folletos, presentaciones u otra información impresa o digital a la oficina de Recursos Humanos y a la oficina de Archivo institucional.

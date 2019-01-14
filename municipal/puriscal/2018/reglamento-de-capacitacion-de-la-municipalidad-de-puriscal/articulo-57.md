@@ -1,0 +1,1 @@
+Artículo 57º—Los funcionarios que participen en capacitaciones individuales o grupales, no incluidas dentro del programa de capacitación institucional; una vez concluida su participación, deberá rendir un informe al Proceso de Recursos Humanos sobre la capacitación recibida y estar en disposición de transmitir los conocimientos adquiridos cuando se le requiera.

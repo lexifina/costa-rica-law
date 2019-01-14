@@ -1,0 +1,1 @@
+Artículo 51º—Los eventos de capacitación y desarrollo emergentes que surjan fuera del plan y programa establecido, deberán ser solicitados con anticipación al Proceso de Recursos Humanos quién hará las gestiones de coordinación de autorización, registro y separación de recursos, siempre que existan los requisitos establecidos y fondos necesarios.

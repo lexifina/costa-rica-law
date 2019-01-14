@@ -1,0 +1,1 @@
+Artículo 64º—Los convenios indicados en este capítulo deben de ser de conocimiento del Concejo Municipal y contar con su debida aprobación para llevar a cabo la firma del mismo e implementar su aplicación y ejecución.

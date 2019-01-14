@@ -1,0 +1,1 @@
+Artículo 2º—Actividades de capacitación. Se consideran actividades de capacitación todas aquellas que permitan al funcionario adquirir conocimientos, desarrollar habilidades y destrezas, así como actitudes favorables para el puesto o para un puesto por ocupar, de igual o mayor categoría.

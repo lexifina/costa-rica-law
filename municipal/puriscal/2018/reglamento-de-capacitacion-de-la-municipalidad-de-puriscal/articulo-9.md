@@ -1,0 +1,1 @@
+Artículo 9º—Financiamiento. El financiamiento parcial o total de la participación de los funcionarios en cursos de capacitación o de formación profesional, técnica, o básica, que se lleven a cabo quedará sujeto a que existan las disposiciones presupuestarias suficientes para este fin.

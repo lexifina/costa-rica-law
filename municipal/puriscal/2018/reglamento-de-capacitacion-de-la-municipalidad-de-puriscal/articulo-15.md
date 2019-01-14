@@ -1,0 +1,1 @@
+Artículo 15º—Le corresponderá al Proceso de Recursos Humanos coordinar la inducción de los nuevos funcionarios con cada jefatura inmediata, además suministrar al nuevo funcionario la información relevante de la Municipalidad, como reglamentos, manual de atención al usuario, entre otros.

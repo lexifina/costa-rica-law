@@ -1,0 +1,1 @@
+Artículo 40º—La Municipalidad brindará el tiempo necesario y el transporte a sus funcionarios para la participación en actividades de capacitación o formación que se realicen fuera de sus centros de trabajo; cubrirá los costos que el traslado implique acogiéndose a las tarifas establecidas para los medios colectivos de transporte y a la disponibilidad presupuestaria.

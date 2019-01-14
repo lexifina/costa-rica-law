@@ -1,0 +1,1 @@
+Artículo 49º—Evaluación. Forma parte del Sistema Integral de Capacitación y Desarrollo, deberá asociarse siempre a la búsqueda de la comprobación del logro de los objetivos previstos en el desarrollo curricular. Este proceso tendrá que ser permanente.

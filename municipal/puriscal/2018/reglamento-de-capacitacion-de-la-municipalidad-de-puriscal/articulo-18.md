@@ -1,0 +1,1 @@
+Artículo 18º—Los desembolsos para el pago de eventos de capacitación y formación (cursos, seminarios, talleres, congresos, simposios u otros similares); corresponderá coordinarlos a cada jefatura inmediata, contando además con el visto bueno de la Alcaldía y la Hacienda Municipal.

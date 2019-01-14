@@ -1,0 +1,1 @@
+Artículo 13º—La administración municipal deberá de dotar al Proceso de Recursos Humanos los recursos económicos y presupuestarios para garantizar un adecuado proceso de capacitación, como los son tecnología apropiada, materiales y personal para la obtención de las metas propuestas.

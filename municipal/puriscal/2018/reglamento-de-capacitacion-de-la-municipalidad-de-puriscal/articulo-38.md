@@ -1,0 +1,1 @@
+Artículo 38º—Recursos Humanos deberá llevar a cabo un informe de los hechos acontecidos de la situación descrita en el Artículo anterior y deberá trasladarla al Proceso de Servicios Jurídicos para que se inicie el procedimiento administrativo si fuera necesario.

@@ -1,0 +1,1 @@
+Artículo 3º—Actividades de capacitación programadas. Se consideran todas aquellas actividades en que la Municipalidad mediante el Proceso de Recursos Humanos, determine por medio de un estudio las necesidades en materia de capacitación y para su satisfacción elabora un plan, cuyos objetivos tiendan a su solución.

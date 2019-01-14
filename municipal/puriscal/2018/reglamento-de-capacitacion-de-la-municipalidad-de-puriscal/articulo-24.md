@@ -1,0 +1,1 @@
+Artículo 24º—Es obligación de los funcionarios de la Municipalidad el recibir la capacitación programada por el Proceso de Recursos Humanos, sea esta durante la jornada laboral o fuera de ella; para lo cual se les comunicará con antelación la fecha, hora y lugar para que se tomen las previsiones requeridas.
