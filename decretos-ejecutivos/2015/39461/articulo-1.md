@@ -16,5 +16,6 @@ PARA LA FORMULACIÓN DE PLAGUICIDAS QUÍMICOS EN FORMULADORAS
 NACIONALES, BAJO EL RÉGIMEN DE PERFECCIONAMIENTO ACTIVO (P.A.),
 ZONA FRANCA (Z.F.) U OTROS REGÍMENES SIMILARES CON FINES EXCLUSIVOS
 DE EXPORTACIÓN Y LOS PRODUCTOS FORMULADOS EN DICHOS REGÍMENES ”
-Artículo 1º—Ámbito de aplicación:
-Este reglamento aplica a los Ingredientes Activos Grado Técnico que se utilicen en la formulación de plaguicidas químicos formulados tanto en las formuladoras nacionales como en los regímenes de perfeccionamiento activo, zona franca u otros regímenes similares, con fines exclusivos de exportación, así como a los plaguicidas químicos formulados al amparo de éstos regímenes.
+Artículo 1º—Ámbito de aplicación: Este reglamento aplica a los Ingredientes Activos Grado Técnico que se utilicen en la formulación de plaguicidas químicos formulados tanto en las formuladoras nacionales como en los regímenes de perfeccionamiento activo, zona franca u otros regímenes similares, con fines exclusivos de exportación, así como a los plaguicidas químicos formulados, que se registren al amparo de los dispuesto en el artículo 5 de este-1 Decreto Ejecutivo, que sean internados temporalmente, con propósitos de reempaque o reenvase en empresas formuladoras nacionales y su posterior exportación.
+Los Ingredientes Activos Grado Técnico y los plaguicidas químicos formulados, exclusivos para exportación que se internen temporalmente al país para formulación, reetiquetado, reempaque y reenvase, deberán ser exportados en un plazo máximo de un año contado a partir de la fecha en que se ingresó el producto a la empresa formuladora nacional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41608 del 14 de enero del 2019)

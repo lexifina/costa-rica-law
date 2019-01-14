@@ -14,3 +14,4 @@ Registro de Ingrediente Activo grado técnico importados al país para la formul
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-02-15 | la propia norma |
+| 2 | 2019-01-14 | Decreto Ejecutivo 41608 (2019-01-14) |
