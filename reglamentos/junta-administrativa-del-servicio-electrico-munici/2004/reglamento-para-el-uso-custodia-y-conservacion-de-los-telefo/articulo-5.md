@@ -1,2 +1,0 @@
-Artículo 5º—Prohibiciones. Queda absolutamente prohibido el uso personal del teléfono celular. Estas herramientas son de uso exclusivo del funcionario al que se le asignó para atender y realizar comunicaciones relativas al cumplimiento de las funciones, tareas y actividades propias de su cargo. En consecuencia queda terminantemente prohibido el trasiego o préstamo de estas herramientas de una persona a otra.
-(Así reformado en sesión N° 4789 del 6 de junio de 2013, que eliminó el término " y/o un radiolocalizador")

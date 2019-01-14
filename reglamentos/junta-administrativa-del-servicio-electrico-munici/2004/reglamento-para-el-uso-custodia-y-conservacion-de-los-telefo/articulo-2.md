@@ -1,2 +1,0 @@
-Artículo 2º—Objeto. El presente Reglamento tiene por objeto establecer las disposiciones de acatamiento obligatorio y la adquisición, asignación, uso racional, custodia, conservación y control de los terminales móviles, líneas y otros servicios complementarios adquiridos o contratados por JASEC y entregados a los funcionarios que determine la Gerencia General, que por la naturaleza de sus funciones o en razón de las necesidades institucionales así lo ameriten para el cumplimiento del fin público institucional.
-(Así reformado en sesión N° 4789 del 6 de junio de 2013)

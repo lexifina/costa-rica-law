@@ -1,1 +1,0 @@
-Artículo 32.—(El texto de este numeral debe de ser consultado en el artículo 25. Esto porque en sesión N° 4789 del 6 de junio de 2013 se ordena derogar los numerales originales que van del artículo 24 al 31 y correr la respectiva numeración)

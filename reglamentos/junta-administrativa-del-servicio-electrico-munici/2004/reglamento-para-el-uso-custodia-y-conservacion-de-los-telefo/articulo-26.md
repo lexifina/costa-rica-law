@@ -1,2 +1,0 @@
-Artículo 26.—Sanciones. El incumplimiento de las disposiciones contenidas en el presente Reglamento hará acreedor al funcionario de las medidas disciplinarias correspondientes, sin perjuicio de cualquier otro tipo de responsabilidades que conforme al ordenamiento jurídico le sean aplicables.
-(Corrida la numeración mediante sesión N° 4789 del 6 de junio de 2013. En dicha sesión se ordena derogar los numerales originales que van del artículo 24 al 31 y correr la respectiva numeración, por lo que el artículo 33 paso a ser el 26)
