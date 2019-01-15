@@ -1,0 +1,1 @@
+Artículo 27°-: Utilización de equipos técnicos si se requiere ingresar equipo de iluminación, de sonido, video, cómputo en las instalaciones del Museo de Arte Costarricense, estos deberán ser reportados al Museo antes de ingresarlos.

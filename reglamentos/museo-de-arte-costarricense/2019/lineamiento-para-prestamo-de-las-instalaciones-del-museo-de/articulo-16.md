@@ -1,0 +1,1 @@
+Artículo 16°-:Bebidas con contenido alcohólico. La comercialización de bebidas alcohólicas está prohibida en las instalaciones del Museo de Arte Costarricense. Se autoriza el consumo moderado de bebidas alcohólicas en el marco de celebraciones, inauguraciones y actividades especiales organizadas por el Museo o por los prestatarios de sus instalaciones.

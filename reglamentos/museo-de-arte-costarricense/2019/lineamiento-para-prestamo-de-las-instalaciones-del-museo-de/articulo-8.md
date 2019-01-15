@@ -1,0 +1,11 @@
+Artículo 8º-Funciones de la Comisión. Corresponderá a la Comisión creada en el artículo anterior las siguientes funciones:
+a) Elaborar una tabla de canon, en la cual se consigne el monto de cada rubro que compone el canon por hora, tanto en horario diurno como nocturno, en horario de apertura regular y en horario de cierre por sede, e indicando además los rubros especiales fuera del cálculo horario, como el transporte del personal en horario nocturno, entre otros.
+b) Sesionar semestralmente para la revisión de cada ítem que compone el canon y actualizar los montos de cada uno según las variaciones de servicios públicos, servicios privados, insumos, salarios y otros.
+c) Sesionar extraordinariamente a solicitud de la Dirección del Museo de Arte Costarricense, con el fin de calcular y consignar en la tabla de costos cualquier otro rubro necesario, o con el fin de llevar a cabo una revisión de costos general o para una actividad en particular.
+d) Recibir para trámite todas las solicitudes de préstamo de instalaciones, salvo aquellas solicitudes para realizar actividades que no coincidan con los objetivos legales de creación del Museo de Arte Costarricense, especificadas en el artículo 1 del presente lineamiento.
+e) Elevar a la Dirección del Museo de Arte Costarricense dichas solicitudes conforme los términos del presente lineamiento, para su respectivo trámite, acompañadas de una recomendación positiva o negativa, con una justificación relativa a esta recomendación.
+f) Fijar si así se determina, la suma que debe cubrir el solicitante por concepto de gastos operativos del espacio cedido.
+g) Emitir a los interesados las recomendaciones que estime pertinentes para el mejor desarrollo de la actividad a efectuar en el espacio cedido.
+h) Llevar el control de las actividades autorizadas en cuanto a fechas, horarios y espacios, con la finalidad de procurar el mayor aprovechamiento de éstas y evitar la autorización simultánea de actividades, en un mismo espacio y fecha.
+i) Elaborar los documentos de préstamo para todas las actividades que sean recomendadas y luego aprobadas por la Dirección, donde se establezcan todas las pautas y obligaciones del usuario para garantizar la seguridad de las personas, bienes e infraestructura del Museo.
+j) Tramitar la firma de estos documentos de préstamo y gestionar el cobro del canon.

@@ -1,0 +1,1 @@
+Artículo 13°-:Excepción del cobro por concepto de gastos operativos. La Dirección del Museo de Arte Costarricense se encuentra facultada para exonerar de manera excepcional el pago de gastos operativos a los solicitantes, cuando las condiciones económicas de éstos y la relevancia cultural y/o social del evento así lo justifiquen.

@@ -1,0 +1,1 @@
+Artículo 29°-: Ingreso y ubicación de Proveedores. En el caso de que proveedores ingresen para dar servicios al evento, se deberá presentar con al menos una semana de antelación, una lista de cada uno de ellos, así como de todo el mobiliario o equipo que ingrese al Museo. Los proveedores deberán ubicarse en el lugar designado por el Museo.

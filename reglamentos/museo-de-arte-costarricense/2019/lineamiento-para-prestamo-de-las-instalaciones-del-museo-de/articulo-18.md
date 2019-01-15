@@ -1,0 +1,18 @@
+Artículo 18°-:Prohibiciones al usuario: Las instalaciones del Museo de Arte Costarricense sólo podrán ser utilizadas para actividades que promuevan el fomento, la conservación, la divulgación y el estímulo de las artes y la literatura costarricense en todas sus manifestaciones, por lo que toda autorización de uso contraria a dichos fines se encuentra prohibida. La Comisión previa autorización de la Dirección del Museo de Arte Costarricense se encuentra facultada para ordenar la suspensión inmediata de cualquier actividad que se desarrolle en oposición a ese destino o incumpla alguno de los requisitos del préstamo.
+Los espacios a ocupar constituyen bienes patrimoniales. Además, el Museo es una institución deservicio público, por lo cual está terminantemente prohibido:
+a) Ingresar armas de fuego o punzocortantes, así como cualquier artefacto o equipo de pueda utilizarse para causar daño físico o material, tanto a los invitados como al recinto.
+b) La distribución, consumo ni la promoción de tabaco en las instalaciones (Ley Nº 9028 "Ley General de Control del Tabaco y sus efectos nocivos en la salud" del 22 de marzo del 2012).
+c) No se permite actividades que produzcan ruido mayor a 65 decibeles (db) en horario de 8:00 a.m. a 8:00 p.m. ni mayor a 45 db a partir de las 8:01 p.m. (Reglamento para el Control de Contaminación por Ruido No. 28718-S del 15 de junio del 2000).
+d) El uso de fuego (encendedores, inciensos, velas, candelas y cualquier otro) en cualquiera de sus manifestaciones, incluyendo su uso como parte de efectos escenográficos en el Museo.
+e) La utilización de cualquier equipo de grabación o reproducción dentro de las instalaciones producto de la actividad autorizada, sin consentimiento previo y por escrito por parte del Museo.
+f) Fotografiar o grabar vídeo sin autorización debidamente solicitada con anterioridad a la Comisión.
+g) Ceder el espacio concedido en préstamo a persona u organización diferente a la solicitante. La actividad autorizada no podrá ser variada en su naturaleza, contenido, objetivo, número de asistentes, equipos o servicios sin la aprobación previa de la Comisión.
+h) Cerrar todas las puertas y ventanas de las salas. En todo momento deberá mantenerse al menos una puerta abierta durante cualquier actividad en todos los espacios cedidos en préstamo.
+i) Dejar desordenado algún material, las luces de las instalaciones encendidas o las puertas y ventanas abiertas, o dejar desechos en los espacios luego de finalizada la actividad.
+j) Tocar las obras de arte y objetos históricos ubicados dentro de las salas de exhibición como en las otras salas bajo ningún término. El permisionario será directamente responsable de cualquier daño causado a las instalaciones y/o bienes del Museo por parte de los asistentes.
+k) Subir al Salón Dorado antes, durante o después de la actividad sin previa autorización. El permisionario tendrá la responsabilidad de indicar con claridad el alcance espacial permitido a los asistentes.
+l) Correr, resbalar en los corredores, o gritar dentro del Museo. El permisionario será responsable de velar por el comportamiento de los asistentes.
+m) Ofrecer al público más localidades que la capacidad que las instalaciones tienen y sobre la cual se pacta el uso del mismo.
+n) Utilizar los equipos técnicos, de iluminación, de sonido, video, video-beam, equipo de cómputo y equipo tecnológico que sea propio del Museo de Arte Costarricense, salvo permiso especial extendido por la Comisión.
+o) Utilizar el mobiliario como sillas, mesas, mantelería, cristalería, el piano u otros bienes del Museo sin previa autorización emitida por la Comisión.
+p) Clavar, utilizar cintas adhesivas u otros métodos que dañen las paredes, cerchas y columnas.
