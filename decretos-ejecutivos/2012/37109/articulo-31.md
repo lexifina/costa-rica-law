@@ -1,6 +1,0 @@
-Artículo 31°- Solicitud de renovación del reconocimiento ambiental.
-Una Organización podrá solicitar ante el Organizador la renovación del reconocimiento otorgado por otro período igual, siempre y cuando se mantenga con el mismo alcance del reconocimiento inicial. La Organización interesada en renovar su reconocimiento deberá pagar el monto correspondiente para el proceso de renovación de acuerdo a los costos de inscripción y de evaluación definidos en el artículo 25º de este reglamento y que serán publicados por decreto ejecutivo emitido por el Poder Ejecutivo. La solicitud de renovación ante el Organizador deberá realizarse con noventa días hábiles previos a la fecha de vencimiento de su reconocimiento, a través de una solicitud que contendrá la siguiente información:
-a) Formulario de solicitud de renovación publicado en el sitio web del Ministerio de Ambiente, Energía y Telecomunicaciones el cual se encontrará disponible durante el segundo semestre del año.
-b) Comprobante de pago correspondiente a la renovación.
-c) Someterse al proceso de evaluación contemplado en el artículo 23º de este reglamento.
-El Organizador recibirá las solicitudes de renovación durante el mes de julio de cada año.
