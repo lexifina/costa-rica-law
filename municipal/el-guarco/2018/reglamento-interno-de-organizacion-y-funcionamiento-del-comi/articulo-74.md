@@ -1,0 +1,1 @@
+Artículo 74.—Periocidad de los estados financieros: Al finalizar el primer semestre y segundo semestre de cada año el Comité Cantonal de Deportes y Recreación de El Guarco deben presentar informes sobre los resultados de la gestión al Concejo Municipal.

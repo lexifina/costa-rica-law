@@ -1,0 +1,1 @@
+Artículo 36.—Cuando se realicen torneos internos y todo tipo de eventos del Distrito/Comunidad, el Comité Comunal debe confeccionar el respectivo reglamento interno el que deberá ser ratificado y aprobado por el Comité Cantonal para su aplicación.

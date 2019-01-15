@@ -1,0 +1,1 @@
+Artículo 75.—Los pagos que realice el Comité deben contener como soporte documental certificación del contenido presupuestario, número de cheque con que se efectuó y las firmas de control de revisión y recibido conforme.

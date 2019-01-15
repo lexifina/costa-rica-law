@@ -1,0 +1,1 @@
+Artículo 4º—El domicilio legal del Comité Cantonal será el distrito primero El Tejar, cantón El Guarco pudiendo variarse para casos excepcionales la sede en forma temporal previo acuerdo de la Junta Directiva.

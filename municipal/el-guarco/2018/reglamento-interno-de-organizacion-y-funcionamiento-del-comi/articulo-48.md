@@ -1,0 +1,1 @@
+Artículo 48.—Todo miembro deberá comunicar, por cualquier medio electrónico o por escrito las razones de su inasistencia a las sesiones, en la siguiente sesión; caso contrario, será catalogada la inasistencia como injustificada y sancionable.

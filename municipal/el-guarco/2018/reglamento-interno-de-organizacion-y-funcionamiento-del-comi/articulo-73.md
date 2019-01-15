@@ -1,0 +1,1 @@
+Artículo 73.—A más tardar la segunda quincena de cada mes, deben estar debidamente elaborados los Estados Financieros correspondientes firmados por el presidente y el tesorero. Los Estados financieros deben realizarse de acuerdo a las normas contables vigentes en el momento de su elaboración y deberán presentarse al Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 41.—Es atribución del Comité Cantonal, objetar los nombres de personas que integren las comisiones. Las personas encargadas de entrenar escuelas de fútbol y otros deportes deberán cumplir con los requerimientos profesionales respectivos para realizar esta labor.

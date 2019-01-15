@@ -1,0 +1,1 @@
+Artículo 77.—Los recursos del Comité Cantonal solamente se podrán invertir en obras de interés deportivo y recreativo, ubicados dentro de los límites territoriales del cantón de El Guarco; así como en la capacitación, promoción y participación de atletas, entrenadores, árbitros y dirigentes Guarqueños en justas nacionales e internacionales.

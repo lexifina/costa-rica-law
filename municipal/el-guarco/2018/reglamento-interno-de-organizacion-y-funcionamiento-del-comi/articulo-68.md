@@ -1,0 +1,1 @@
+Artículo 68.—Toda recaudación deberá estar debidamente registrada, para este efecto el Comité Cantonal deberá de contar con una cuenta en cualquier ente del Sistema Financiero y Bancario Nacional, supervisado por la Superintendencia General de Entidades Financieras. El Comité asignará una de sus sub-cuentas a cada Comité Comunal para el mismo efecto.

@@ -1,0 +1,1 @@
+Artículo 38.—Las personas interesadas en formar parte de una comisión presentarán los requisitos respectivos ante el Comité Cantonal para la valoración de idoneidad. Dichos interesados participaran de las comisiones en condición de asesores ad honorem.

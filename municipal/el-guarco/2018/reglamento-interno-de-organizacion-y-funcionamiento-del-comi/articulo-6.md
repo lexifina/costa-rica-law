@@ -1,0 +1,1 @@
+Artículo 6º—El Comité Cantonal y los órganos que él designe son los encargados del deporte y la recreación en el cantón de El Guarco, según los planes municipales que en esta materia dicten la Municipalidad de acuerdo con sus competencias y las leyes vigentes.

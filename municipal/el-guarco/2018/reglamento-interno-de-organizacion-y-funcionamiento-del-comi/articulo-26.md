@@ -1,0 +1,1 @@
+Artículo 26.—El quórum para sesionar estará integrado por la mitad más uno del total de los miembros del comité. Los acuerdos se tomarán por mayoría simple de los votos presentes, salvo que este Reglamento señala un mayor número de votos. En caso de empate en una votación el presidente tendrá voto calificado.

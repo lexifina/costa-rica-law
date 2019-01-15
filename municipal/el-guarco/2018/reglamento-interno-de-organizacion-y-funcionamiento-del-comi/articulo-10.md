@@ -1,0 +1,1 @@
+Artículo 10.—La Municipalidad por medio del Concejo Municipal, fijará las políticas generales en materia deportiva y de recreación, a su vez el Comité Cantonal ejecutara y ejercerá los controles que corresponden, para que sus órganos y afiliados, cumplan con las funciones asignadas para el logro de dichas políticas.

@@ -1,0 +1,1 @@
+Artículo 24.—Los Comités Comunales deberán reunirse dos veces al mes ordinariamente y extraordinariamente cuando lo requieran. Deberán comunicar por escrito al Comité Cantonal el día, lugar y la hora de las sesiones.
