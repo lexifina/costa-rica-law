@@ -1,0 +1,3 @@
+ARTÍCULO 6- Los inmuebles adjudicados y traspasados, conforme a lo establecido en el artículo 292 de la Ley N.° 63, Código Civil, de 28 de setiembre de 1887, no podrán ser vendidos, gravados, arrendados, cedidos ni traspasados a terceros, hasta tanto no hayan transcurrido diez años de la adjudicación y el traspaso. Se exceptúan de esta regulación las operaciones de los adjudicatarios con entes autorizados del Sistema Nacional Financiero de la Vivienda.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los trece días del mes de agosto del año dos mil dieciocho.
