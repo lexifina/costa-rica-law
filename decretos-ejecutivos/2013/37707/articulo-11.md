@@ -1,1 +1,0 @@
-Artículo 11.—Moneda en que deben realizarse los depósitos. Los depósitos se deberán realizar en colones según el tipo de cambio oficial de venta establecido por el Banco Central de Costa Rica al momento en que se efectúe la transacción.

@@ -1,1 +1,0 @@
-Artículo 8º—Incumplimiento en el pago. En caso que la organización interesada no realice el pago total de los montos estipulados en este reglamento, no se continuará con el trámite de inscripción o evaluación según corresponda.
