@@ -14,3 +14,4 @@ Derogación del Decreto Ejecutivo N° 27485-MINAE, y de los incisos A) y B) del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-01 | la propia norma |
+| 2 | 2019-01-15 | Decreto Ejecutivo 41594 (2019-01-15) |
