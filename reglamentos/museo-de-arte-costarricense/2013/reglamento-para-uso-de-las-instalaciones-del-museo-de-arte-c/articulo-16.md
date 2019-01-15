@@ -1,1 +1,0 @@
-Artículo 16.—Utilización de equipos técnicos. La utilización de cualquier equipo de grabación o reproducción dentro de las instalaciones producto de la actividad o espectáculo autorizado, queda sujeto a la aprobación previa de la autoridad encargada de ceder los espacios.
