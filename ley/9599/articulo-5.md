@@ -1,0 +1,2 @@
+ARTÍCULO 5- Para gozar del beneficio otorgado por esta ley, los aspirantes al título de propiedad deberán demostrar, ante la Municipalidad de Guácimo, que han ejercido, su derecho de posesión, por el período de posesión de un mínimo de diez años, de manera continua, pública, pacífica y a título de dueño.
+Para el cálculo del término, se computará la transferencia de la posesión de los anteriores poseedores, según el artículo 863 de la Ley N.° 63, Código Civil, de 28 de setiembre de 1887.
