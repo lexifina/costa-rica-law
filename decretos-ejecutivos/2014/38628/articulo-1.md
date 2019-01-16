@@ -1,4 +1,6 @@
+(Anulada)
 Nº 38628-MP-H-COMEX-MINAE-SP-G
+(Este decreto ejecutivo fue anulado mediante resolución de la Sala Constitucional N° 000673 del 16 de enero del 2019)
 EL PRESIDENTE DE LA REPÚBLICA
 Y LOS MINISTROS DE HACIENDA,
 DE COMERCIO EXTERIOR, DE

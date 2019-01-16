@@ -14,3 +14,4 @@ Reglamento a la Ley para Regular la Creación y el Desarrollo del Puesto Fronter
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-09-16 | la propia norma |
+| 2 | 2019-01-16 | SINALEVI (sin norma nombrada) |
