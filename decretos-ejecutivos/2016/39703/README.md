@@ -15,3 +15,4 @@ Reglamento para la Operación de Actividades de Turismo de Aventura
 | --- | --- | --- |
 | 1 | 2016-06-06 | la propia norma |
 | 2 | 2017-07-07 | Decreto Ejecutivo 40621 (2017-07-07) |
+| 3 | 2019-01-16 | Decreto Ejecutivo 41554 (2019-01-16) |
