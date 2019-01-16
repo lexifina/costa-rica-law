@@ -1,4 +1,6 @@
+(Anulada)
 N° 8803
+(Esta norma fue anulada mediante resolución de la Sala Constitucional N° 000673 del 16 de enero del 2019, Asimismo dicho voto indica que se insta a la Asamblea Legislativa, en el uso de sus atribuciones constitucionalmente asignadas, a que en el plazo de 18 meses, contado a partir de la publicación íntegra de este pronunciamiento en el Boletín Judicial, se apruebe una nueva ley para regular la creación y el desarrollo del puesto fronterizo Las Tablillas, que esté fundamentada en estudios técnicos completos e incorpore las medidas de compensación que correspondan.)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 LEY PARA REGULAR LA CREACIÓN Y EL DESARROLLO
