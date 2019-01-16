@@ -19,3 +19,4 @@ Reglamento del Comité de Riesgos de la Operadora de Planes de Pensiones Complem
 | 4 | 2014-08-28 | Reglamento 442 (2014-08-28) |
 | 5 | 2016-07-28 | Reglamento 492 (2016-07-28) |
 | 6 | 2018-10-10 | Reglamento 545 (2018-10-10) |
+| 7 | 2019-01-16 | Reglamento 551 (2019-01-16) |
