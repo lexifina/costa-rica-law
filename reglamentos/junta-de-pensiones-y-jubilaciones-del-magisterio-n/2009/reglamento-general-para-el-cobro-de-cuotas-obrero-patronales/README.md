@@ -27,3 +27,4 @@ Reglamento General para el cobro de cuotas Obrero-Patronales de las Institucione
 | 12 | 2016-01-28 | Reglamento 11 (2016-01-28) |
 | 13 | 2017-01-31 | Reglamento 12 (2017-01-31) |
 | 14 | 2018-01-19 | Reglamento 8 (2018-01-19) |
+| 15 | 2019-01-17 | Reglamento 8 (2019-01-17) |
