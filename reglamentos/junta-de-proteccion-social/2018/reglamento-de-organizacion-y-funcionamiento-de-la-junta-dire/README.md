@@ -15,3 +15,4 @@ Reglamento de organización y funcionamiento de la junta directiva de la Junta d
 | --- | --- | --- |
 | 1 | 2018-05-18 | la propia norma |
 | 2 | 2018-10-24 | Reglamento 61 (2018-10-24) |
+| 3 | 2019-01-17 | Reglamento 2 (2019-01-17) |
