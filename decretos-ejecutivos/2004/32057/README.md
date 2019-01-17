@@ -14,3 +14,4 @@ Reglamento de Funcionamiento del Consejo Directivo Interinstitucional del Parque
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-10-22 | la propia norma |
+| 2 | 2019-01-17 | Decreto Ejecutivo 41663 (2019-01-17) |
