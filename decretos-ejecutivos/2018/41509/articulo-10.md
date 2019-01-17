@@ -1,0 +1,1 @@
+Artículo 10.—Luego de recibido el padrón oficial, el presidente del Consejo Nacional de Cooperativas podrá convocar a las tres asambleas sectoriales para la segunda semana de mayo del año impar, de conformidad con el artículo 137, inciso i) de la Ley de Asociaciones Cooperativas.

@@ -1,0 +1,1 @@
+Transitorio I.—Se deroga el Decreto Ejecutivo Nº 40402- MTSS del 11 de mayo de 2017; así mismo, se ordena al INFOCOOP y al CONACOOP modificar o eliminar sus reglamentos internos para que se ajusten a estas disposiciones.

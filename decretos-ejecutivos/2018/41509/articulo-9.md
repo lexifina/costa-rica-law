@@ -1,0 +1,2 @@
+Artículo 9º—Toda credencial de cooperativa emitida por el INFOCOOP tendrá: nombre de la cooperativa, número de resolución, Asamblea sectorial en la que participa, nombre y cédula del delegado(a) propietario(a) y suplente, fecha de ingreso de ambos a la cooperativa y sello de seguridad del INFOCOOP.
+Esta credencial deberá ser presentada el día de las votaciones al equipo de apoyo designado por el Comité de Escrutinio, junto con la cédula de identidad original de la persona acreditada.
