@@ -14,3 +14,4 @@ Lineamientos para la aplicación del artículo 5 de la Ley de Tránsito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-07-11 | la propia norma |
+| 2 | 2019-01-17 | Directriz 1 (2019-01-17) |
