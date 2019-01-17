@@ -1,0 +1,1 @@
+Artículo 5º—Deber de cooperación interinstitucional. Se ordena a los ministerios y se insta a las instituciones públicas descentralizadas, cuya participación sea considerada necesaria, a incorporarse, en el ámbito de sus competencias, en el proceso de construcción de la política.

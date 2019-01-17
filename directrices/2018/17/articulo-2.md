@@ -1,0 +1,1 @@
+Artículo 2º—Autoridad Responsable. El Ministerio de la Presidencia, a través del Viceministerio de la Presidencia en Asuntos Políticos y Diálogo Ciudadano, será la autoridad encargada de coordinar y gestionar el proceso señalado en el artículo anterior.

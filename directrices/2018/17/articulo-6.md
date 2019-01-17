@@ -1,0 +1,1 @@
+Artículo 6º—Declaratoria de interés público. Para asegurar el efectivo cumplimiento de sus objetivos, se declaran de interés público las actividades relacionadas con la Construcción Participativa e Intercultural de la Política Pública para los Pueblos Indígenas 2019-2024.
