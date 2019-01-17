@@ -1,0 +1,9 @@
+Artículo 8: Funciones en materia de cooperación
+El Secretario general propone a las instancias, de conformidad con las orientaciones de la Cumbre, los ejes prioritarios de la acción francófona multilateral. Lo hace en concertación con los operadores.
+Propone la asignación del FMU y ordena las decisiones presupuestarias y financieras correspondientes.
+El Secretario General es responsable de la animación de la cooperación multilateral francófona financiada por el FMU.
+En la realización de estas funciones, nombra, después de consultar al CPF, un Administrador encargado de ejecutar, animar y administrar la cooperación intergubernamental multilateral, así como de asegurar, bajo su autoridad, la gestión de los Asuntos administrativos y financieros. El Administrador propone al Secretario General los programas de cooperación de la OIF, definidos en el marco de las decisiones de la Cumbre. Se encarga de su ejecución, participa en los trabajos de las instancias. Contribuye en la preparación de la Conferencia de las organizaciones internacionales no gubernamentales, así como la organización y seguimiento de las Conferencias Ministeriales sectoriales decididas por la Cumbre y confiadas a la OIF.
+El Administrador es nombrado por cuatro años y su misión puede ser renovada.
+Ejerce sus funciones por delegación del Secretario General.
+El Secretario General evalúa la acción de cooperación intergubernamental francófona, tal y como ha sido decidida. Vela por la normalización de los programas y acciones de todos los operadores directos reconocidos.
+A tal efecto, preside un Consejo de cooperación, el cual reúne al Administrador de la OIF, a los responsables de los operadores, así como de la APF. Ejerce estas funciones con imparcialidad, objetividad y equidad. El Consejo de cooperación asegura, de manera permanente, la coherencia, la complementariedad y la sinergia de los programas de cooperación de los operadores.
