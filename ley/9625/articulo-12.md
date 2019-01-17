@@ -1,0 +1,3 @@
+ARTÍCULO 12- Dietas
+Los integrantes del Consejo Directivo devengarán una dieta equivalente al diez por ciento (10%) del salario mínimo de un auxiliar judicial establecido por ley, conforme lo dispuesto en el artículo 2 de la Ley N.º 7337, de 5 de mayo de 1993.
+Solo se pagará la dieta correspondiente a las sesiones ordinarias y una extraordinaria, asistidas durante el mes, siempre y cuando no exista superposición horaria entre la jornada laboral y las respectivas sesiones. En el caso de sustitución, el miembro suplente devengará la dieta del titular al cual sustituye en la sesión correspondiente.
