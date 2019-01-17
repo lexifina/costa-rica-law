@@ -1,0 +1,4 @@
+ARTÍCULO 9
+MECANISMOS DE COOPERACIÓN
+De conformidad a lo establecido en el Convenio Marco de Cooperación Bilateral entre la República de Costa Rica y la República de El Salvador, la Comisión Mixta de Cooperación Técnica y Científica, aprobará el programa de iniciativas de cooperación, evaluará su cumplimiento, así como examinará y analizará los asuntos relacionados con su ejecución.
+La definición, coordinación e implementación de los proyectos e iniciativas de cooperación técnica que se deriven de los mencionados programas serán responsabilidad de las instituciones nacionales rectoras de la cooperación internacional de cada Parte. En el caso de El Salvador, corresponderá al Viceministerio de Cooperación para el Desarrollo del Ministerio de Relaciones Exteriores; y de Costa Rica corresponderá a la Dirección de Cooperación Internacional del Ministerio de Relaciones Exteriores y Culto.
