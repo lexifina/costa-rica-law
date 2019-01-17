@@ -1,0 +1,1 @@
+Artículo 18.—Vigencia de la calificación de idoneidad. La calificación de idoneidad otorgada por el Concejo Municipal de Vázquez de Coronado tendrá una vigencia máxima de dos años, contados a partir de la fecha en que se adopte el acuerdo.

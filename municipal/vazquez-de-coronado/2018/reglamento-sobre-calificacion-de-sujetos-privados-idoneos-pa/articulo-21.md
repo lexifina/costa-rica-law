@@ -1,0 +1,1 @@
+Artículo 21.—Renovación de la calificación de idoneidad. El sujeto privado al que le venza la calificación de idoneidad, sin que hubiere solicitado una prórroga, deberá realizar un nuevo procedimiento de solicitud.

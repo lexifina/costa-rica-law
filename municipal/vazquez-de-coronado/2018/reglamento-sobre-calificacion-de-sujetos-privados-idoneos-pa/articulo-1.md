@@ -1,0 +1,6 @@
+MUNICIPALIDAD VÁZQUEZ DE CORONADO
+Según Acuerdo 2018-129-17, tomado en la Sesión Ordinaria N° 129-2018, celebrada el 01 de octubre. El Concejo Municipal del cantón de Vázquez de Coronado, en uso de las atribuciones establecidas en los artículos 169 y 170 de la Constitución Política, en relación con los numerales 4, inciso a), 12, 13, inciso c) y 43 del Código Municipal, aprueba publicar por segunda vez el siguiente Reglamento sobre calificación de sujetos privados idóneos para administrar fondos públicos de la Municipalidad de Vázquez de Coronado, para regular el funcionamiento de este órgano, el cual se regirá por las siguientes disposiciones:
+REGLAMENTO SOBRE LA CALIFICACIÓN DE SUJETOS
+PRIVADOS IDÓNEOS PARA ADMINISTRAR
+FONDOS PÚBLICOS
+Artículo 1º—Objeto. Calificar y declarar la idoneidad delos sujetos privados domiciliados en el cantón de Vázquez de Coronado, para la administración de fondos públicos provenientes de transferencias y partidas específicas, contempladas en los Presupuestos Ordinarios y Extraordinarios de la República, según la Ley de Control de las Partidas Específicas con Cargo al Presupuesto Nacional, nro. 7755, así como para la administración de transferencias a cargo del presupuesto de esta Corporación Municipal.

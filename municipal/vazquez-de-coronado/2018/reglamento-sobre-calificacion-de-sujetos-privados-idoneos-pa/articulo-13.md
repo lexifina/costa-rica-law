@@ -1,0 +1,1 @@
+Artículo 13.—Conformación de expediente administrativo. De cada solicitud las oficinas municipales encargadas crearán un único expediente administrativo debidamente foliado, lo mantendrán bajo su custodia y le agregarán toda la documentación aportada y generada sobre el sujeto y/o el proyecto realizado con los fondos públicos asignados.
