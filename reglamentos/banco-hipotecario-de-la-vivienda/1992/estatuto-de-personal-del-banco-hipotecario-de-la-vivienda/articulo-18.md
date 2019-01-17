@@ -1,3 +1,5 @@
 CAPITULO IV
 De la jornada de trabajo
-Artículo 18.—Jornada ordinaria: La jornada de trabajo del Banco será de 44 horas semanales, de conformidad con el siguiente horario: de lunes a jueves de las ocho a las diecisiete horas y los viernes de las ocho a las dieciséis horas. En el caso del personal de vigilancia y misceláneo su jornada será la que se establezca en los roles respectivos, debiendo tener libre por lo menos un día a la semana. El personal dispondrá de una hora para el almuerzo.
+Artículo 18.—Jornada Ordinaria: La jornada de trabajo del Banco será de 44:00 horas semanales, disponiendo los funcionarios de una hora al día para el almuerzo.
+Corresponderá a la Gerencia General, definir el horario de trabajo de la institución, garantizando que éste se realice de forma ordenada y salvaguardando la eficiencia del servicio.
+(Así reformado en sesión N° 04 del 17 de enero del 2019)

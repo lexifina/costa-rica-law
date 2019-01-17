@@ -22,3 +22,4 @@ Estatuto de Personal del Banco Hipotecario de la Vivienda
 | 7 | 2007-06-14 | Reglamento 39 (2007-06-14) |
 | 8 | 2008-12-11 | Reglamento 93 (2008-12-11) |
 | 9 | 2012-03-19 | Reglamento 19 (2012-03-19) |
+| 10 | 2019-01-17 | Reglamento 4 (2019-01-17) |
