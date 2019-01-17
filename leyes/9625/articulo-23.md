@@ -1,0 +1,5 @@
+ARTÍCULO 23- Reconocimiento
+Las instituciones de educación superior universitaria, tanto públicas como privadas, reconocerán los pregrados otorgados por el Colegio Universitario de Cartago (CUC) plenamente reconocidos por el Consejo Superior de Educación, con el fin de que los graduados de la institución puedan continuar sus estudios a nivel de grado universitario, siempre y cuando sea una carrera afín a su pregrado.
+Cuando así lo requiera el Estado, sus entes u órganos y empresas gubernamentales, reconocerán estudios, títulos y pregrados de esta institución.
+Los títulos que el Colegio Universitario de Cartago otorgue a sus graduados se regirán por las normas del Consejo Superior de Educación y las nomenclaturas establecidas por el Consejo Nacional de Rectores, según corresponda; particularmente, en lo relativo a la carga académica, las unidades de valor académico o créditos, los grados y cualquier otro aspecto.
+Asimismo, podrá otorgar títulos honoríficos, según su reglamentación interna.

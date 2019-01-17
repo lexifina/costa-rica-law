@@ -1,0 +1,2 @@
+ARTÍCULO 10- Ejercicio del cargo
+Las personas integrantes del Consejo Directivo durarán en sus cargos cuatro años, excepto el representante estudiantil que durará dos años, pudiendo todos ser reelectos. En caso de que la Presidencia recaiga en el representante estudiantil la detentará, únicamente, para el plazo por el que fue electo. La credencial se perderá por la ausencia a tres sesiones consecutivas o seis sesiones alternas, en ambos casos injustificados.
