@@ -1,0 +1,1 @@
+Artículo 7º—Ninguna licencia municipal de obras menores podrá otorgarse sin que se haya elaborado antes el criterio técnico especializado del funcionario técnico municipal competente, de acuerdo con el artículo 83 de la Ley de Construcciones.

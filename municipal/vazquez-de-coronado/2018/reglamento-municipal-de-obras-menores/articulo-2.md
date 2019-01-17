@@ -1,0 +1,2 @@
+Artículo 2º—Este reglamento rige para todo el cantón Vázquez de Coronado. Ninguna de las obras menores a realizar en el cantón podrá ser autorizada sin cumplir los requerimientos que se detallan en la Ley y en el presente Reglamento.
+Las obras menores previo a su construcción deberán contar con la licencia expedida por la unidad municipal correspondiente, la cual tendrá la obligación de vigilar las obras para las que haya autorizado la licencia.

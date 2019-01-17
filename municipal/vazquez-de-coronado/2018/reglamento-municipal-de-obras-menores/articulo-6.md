@@ -1,0 +1,1 @@
+Artículo 6º—Para la solicitud de la licencia de construcción de obra menor se deberá completar el formulario que para tales efectos se localiza en la Plataforma de Servicios y completar los requisitos que ahí se indican, además de aportar un croquis legible que refleje de forma clara las obras a ejecutar, además de una descripción detallada de los trabajos.

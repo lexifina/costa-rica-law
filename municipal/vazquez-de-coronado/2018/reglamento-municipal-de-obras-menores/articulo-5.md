@@ -1,0 +1,1 @@
+Artículo 5º—Las obras menores, deberán de contar con una licencia expedida por la Dirección de Planificación Urbana y Rural, la cual, por medio de la Sección de Inspección Municipal, tendrá la obligación de vigilar y fiscalizar las obras para las que se haya extendido dicha licencia.
