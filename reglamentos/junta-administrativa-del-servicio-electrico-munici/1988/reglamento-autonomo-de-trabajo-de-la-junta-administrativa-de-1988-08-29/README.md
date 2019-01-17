@@ -19,3 +19,4 @@ Reglamento Autónomo de Trabajo de la Junta Administrativa de Servicio Eléctric
 | 4 | 2003-09-08 | Reglamento 3087 (2003-09-08) |
 | 5 | 2003-10-13 | Reglamento 3816 (2003-10-13) |
 | 6 | 2012-11-20 | Reglamento 4730 (2012-11-20) |
+| 7 | 2019-01-17 | Reglamento 4 (2019-01-17) |
