@@ -1,0 +1,2 @@
+Artículo 10.—Resolución administrativa. La resolución administrativa en la cual se le apruebe el reconocimiento de la identidad de género de la persona extranjera en el DIMEX deberá consignar en el “Por Tanto” la variación y/o modificación de su nombre.
+En la resolución administrativa, la Dirección General le recordará a la persona extranjera que el DIMEX no reemplaza el requerimiento de utilizar un documento hábil de viaje (pasaporte u otros) de acuerdo con su nacionalidad para ingresar o egresar del país.

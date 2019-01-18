@@ -1,0 +1,1 @@
+Artículo 5º—Trámite único. El reconocimiento de la identidad de género en el DIMEX se hará por una única vez. Sin embargo, esto no impide que la persona pueda retrotraer los efectos de dicho reconocimiento para retomar a su nombre y género anteriores.

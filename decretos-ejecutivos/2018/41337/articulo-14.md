@@ -1,0 +1,1 @@
+Artículo 14.—Sanciones. En caso de comprobarse fraude de ley por parte de la persona extranjera, utilizando esta vía del reconocimiento de la identidad de género para ocultar su identidad originaria, la Dirección General de Migración y Extranjería recabará la prueba correspondiente y remitirá los informes a la autoridad judicial competente.

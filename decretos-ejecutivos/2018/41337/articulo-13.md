@@ -1,0 +1,1 @@
+Artículo 13.—Alcance. Una vez hecho el reconocimiento, la Dirección General de Migración y Extranjería no podrán hacer referencia a otra identidad que no sea la consignada en el DIMEX. La Dirección General capacitará a su personal sobre las disposiciones del presente Decreto.

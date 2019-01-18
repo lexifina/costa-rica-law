@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación. Podrán invocar los derechos contenidos en el presente decreto todas aquellas personas extranjeras que deseen realizar algún cambio relativo a su identidad sexual y/o de género ante la Dirección General de Migración y Extranjería.

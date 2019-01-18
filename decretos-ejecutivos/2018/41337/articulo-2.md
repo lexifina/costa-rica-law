@@ -1,0 +1,1 @@
+Artículo 2º—Objeto: El presente decreto tiene por objeto regular la adecuación del nombre, la imagen, y la referencia al sexo o género de la persona en el Documento de Identidad Migratorio para Extranjeros (DIMEX) expedido por la Dirección General de Migración y Extranjería, según su propia identidad sexual y de género.
