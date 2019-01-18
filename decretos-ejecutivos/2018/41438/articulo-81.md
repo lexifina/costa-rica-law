@@ -1,0 +1,1 @@
+Artículo 81.-Deber de reportar discontinuidad y fallas en los sistemas. Las instituciones con sistemas que inter-operan con SICOP deberán reportar al proveedor del SICOP la discontinuidad o las fallas en la infraestructura tecnológica o en las aplicaciones que se interconecten. Este reporte debe realizarse en el mismo momento en que se detecte la discontinuidad o la falla.

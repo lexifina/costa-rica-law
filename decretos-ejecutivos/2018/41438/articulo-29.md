@@ -1,0 +1,2 @@
+Artículo 29.-La Unidad encargada del Catálogo de bienes y servicios de SICOP. Corresponderá a un área especializada del proveedor del sistema la administración centralizada del Catálogo de bienes y servicios. Esta función comprende la definición de procesos y garantías sobre el buen funcionamiento del Catálogo.
+La coordinación integral del Catálogo de SICOP será responsabilidad de los analistas y coordinadores del catálogo.

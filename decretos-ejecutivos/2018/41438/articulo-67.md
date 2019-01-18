@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Trámite de autorizaciones, recursos y refrendos
+Artículo 67.-Trámite de recursos interpuestos ante las instituciones usuarias. Las impugnaciones que procedan contra los actos emitidos en los procedimientos de contratación administrativa tramitados por medio de SICOP y cuya resolución es competencia de la institución usuaria, deberán ser planteadas por el proveedor registrado, y tramitadas y resueltas por la institución usuaria utilizando los formularios electrónicos disponibles en SICOP. Para ello se deben observar los procedimientos y los plazos establecidos en la Ley de Contratación Administrativa y su Reglamento, así como cualquier otra normativa especial aplicable.

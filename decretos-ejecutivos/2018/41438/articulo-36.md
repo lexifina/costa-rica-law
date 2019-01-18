@@ -1,0 +1,2 @@
+Artículo 36.-Divulgación del cartel. El cartel, sus aclaraciones, modificaciones y prórrogas serán publicados en el portal de SICOP y agregados al expediente electrónico. Además, cualquier interesado podrá obtenerlos de manera gratuita por medio de SICOP.
+Quedan excluidos de esta publicación los carteles que correspondan a procedimientos declarados confidenciales, según el Reglamento a la Ley de Contratación Administrativa, o la normativa especial aplicable.

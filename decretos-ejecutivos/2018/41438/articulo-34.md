@@ -1,0 +1,2 @@
+Artículo 34.-Actualización de la información del Catálogo de bienes y servicios de SICOP. Con el propósito de garantizar la calidad de la información disponible en el Catálogo de bienes y servicios de SICOP, el encargado del Catálogo podrá excluir los bienes y los servicios que se dupliquen, o bien, inactivar aquellos que se encuentren obsoletos o en desuso.
+Es obligación de las instituciones usuarias y proveedores registrados comunicar las actualizaciones de los bienes y los servicios que afecten los datos del Catálogo.

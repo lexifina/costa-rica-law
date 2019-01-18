@@ -1,0 +1,1 @@
+Artículo 72.-Confirmación de recepción de factura electrónica. Una vez recibida a satisfacción la factura electrónica, SICOP validará con la institución usuaria que esta resulte conforme con los bienes o los servicios recibidos. En caso afirmativo, la institución usuaria mediante el sistema autorizará para que efectúe el pago respectivo.

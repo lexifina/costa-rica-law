@@ -1,0 +1,1 @@
+Artículo 79.-Objetivo del Plan de continuidad. El objetivo del Plan de continuidad es mantener en operación los servicios y los procesos críticos ante situaciones imprevistas o desastres que generen la indisponibilidad de SICOP, procurando la reducción de impactos en un plazo y costo menor.

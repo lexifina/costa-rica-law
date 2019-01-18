@@ -1,0 +1,1 @@
+Artículo 73.-Pago electrónico. Una vez que la institución usuaria haya autorizado el pago a favor del contratista, SICOP debitará de la cuenta domiciliada por la institución usuaria, la suma respectiva y la depositará en la cuenta indicada por el contratista por medio de Sinpe.

@@ -1,0 +1,4 @@
+Artículo 39.-Contenido de las ofertas. La información técnica o complementaria y los manuales de uso expedidos por el fabricante, así como los demás documentos que acompañan la oferta, deberán adjuntarse en forma electrónica.
+Las muestras serán registradas mediante un formulario electrónico disponible en SICOP y la institución usuaria indicará en el cartel cómo se llevará a cabo la entrega, la custodia, el análisis y la devolución de estas.
+La garantía de participación deberá ser gestionada por el oferente según lo dispuesto en el capítulo V del presente Reglamento.
+Para efectos de identificación del bien o el servicio por ofrecer, se debe utilizar el código de producto del Catálogo de SICOP y cuando corresponda, según la naturaleza del bien, se deben indicar los datos del registro sanitario del Ministerio de Salud.

@@ -1,0 +1,2 @@
+Artículo 30.-Operadores del módulo de Catálogo de bienes y servicios de SICOP. Las instituciones usuarias deben contar con funcionarios especialistas en materia de catalogación de bienes y servicios, quienes tendrán acceso a SICOP en condición de operadores de catálogo.
+Dichos funcionarios serán responsables de velar por la calidad de la información del Catálogo de SICOP, y de solicitar ante la Unidad encargada del Catálogo de SICOP la inclusión, la modificación o la exclusión de bienes o servicios que se ubiquen dentro del alcance del código de identificación.

@@ -1,0 +1,1 @@
+Artículo 26.-Composición del Catálogo de bienes y servicios de SICOP. El código completo para bienes y servicios en el Catálogo de SICOP se compone del código de clasificación de las Naciones Unidas, el código de identificación y el código de producto.

@@ -1,0 +1,1 @@
+Artículo 94.-Verificación de información. Cuando lo considere pertinente, la institución usuaria podrá corroborar, por cualquier medio, la veracidad de la información y los documentos electrónicos suministrados por los proveedores registrados, así como la fiscalización de los procedimientos que llevara a cabo la DGABCA.
