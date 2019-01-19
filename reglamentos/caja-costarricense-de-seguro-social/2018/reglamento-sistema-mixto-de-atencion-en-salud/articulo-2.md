@@ -1,0 +1,2 @@
+Artículo 2: Objetivo del Sistema Mixto de Atención en Salud
+El objetivo del Sistema Mixto de Atención en Salud es ofrecer a los asegurados una modalidad alternativa de acceso a los servicios de atención en salud no urgente que brinda la CCSS, de manera que el asegurado pueda disponer o contratar los servicios privados de su elección y a través de los profesionales inscritos en alianza con la CCSS acceder a una oferta de servicios institucionales definida.

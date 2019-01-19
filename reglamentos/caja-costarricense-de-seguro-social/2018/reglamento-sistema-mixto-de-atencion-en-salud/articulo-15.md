@@ -1,0 +1,9 @@
+Artículo 15: De los Servicios Farmacéuticos
+a) El Comité Central de Farmacoterapia será la unidad responsable de definir la prescripción y el despacho de medicamentos mediante la Normativa de la Lista Oficial de Medicamentos (http://www.ccss.sa.cr/lom) y los documentos institucionales de normalización técnica que modifiquen, refuercen o clarifiquen la Norma.
+b) La oferta de servicios farmacéuticos que se brindará a través del Sistema Mixto de Atención en Salud corresponde a los medicamentos almacenables incluidos en la Lista Oficial de medicamentos (LOM-vigente) bajo las claves M y HM, equivalente al primer y segundo nivel de atención e la CCSS. Cuando el médico ostente una especialidad y se encuentra registrada en el Programa de Sistemas Alternativos, este podrá prescribir los medicamentos correspondientes a su especialidad, medicamentos clave E.
+Los medicamentos especializados de uso hospitalario (HE, HR, HRE), los restringidos (R), los restringidos por especialidad (RE), los regulados por protocolos específicos y los de uso para patologías refractarias NO están autorizados para su prescripción en el Sistema Mixto de Atención y Salud.
+c) Los profesionales de odontología podrán prescribir los medicamento autorizados por el Comité Central de Farmacoterapia, según directrices vigentes. Estarán autorizados los siguientes medicamentos:
+Amoxicilina | Cefalexina | Claritromicina
+Clorfenamina | Codeina con Paracetamol | Ibuprofeno
+Metronidazol | Nistatina | Paracetamol
+Respecto de la receta digital, el Sistema Mixto de Atención en Salud continuará utilizado la papelería correspondiente para la prescripción de medicamentos. En el momento que se establezcan normas y procedimientos para la entrada en vigencia de la prescripción digital los profesionales deberán acatar los mismos.

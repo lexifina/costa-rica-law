@@ -1,0 +1,3 @@
+Artículo 9: Registros Estadísticos
+a) El profesional inscrito en el Sistema deberá llevar el censo diario de su consulta y mensualmente deberá entregar un informe mensual estadístico. En este informe se deberá registrar todos los pacientes atendidos en el consultorio ya sea que utilizaron o no los servicios de apoyo del Sistema Mixto de Atención en Salud.
+c) El informe mensual estadístico se realizará según el ordenamiento institucional que se establezca y es de carácter obligatorio para todos los profesionales activos en el Sistema Mixto de Atención en Salud. El profesional deberá presentar un informe mensual estadístico por cada consultorio registrado.

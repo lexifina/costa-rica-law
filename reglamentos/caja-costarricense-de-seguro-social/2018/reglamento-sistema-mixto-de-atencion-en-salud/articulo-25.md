@@ -1,0 +1,3 @@
+CAPÍTULO IX: Disposiciones Finales
+Artículo 25: Exclusión de responsabilidad
+Al brindarse los servicios de salud en los consultorios mediante un contrato privado entre el paciente, los profesionales en salud, municipalidades y/o una persona jurídica, la Caja Costarricense de Seguro Social no asumirá la responsabilidad alguna de índole civil, laboral o de cualquier otro tipo por el trabajo que ellos desarrollen dentro de su quehacer profesional. Se entenderá que la aceptación del profesional en ciencias de la salud, en el Sistema Mixto de Atención en Salud, no les confiere ningún derecho subjetivo que les permita reclamar derechos adquiridos, en el evento de cancelárseles la autorización.
