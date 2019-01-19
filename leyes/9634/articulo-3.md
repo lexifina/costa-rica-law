@@ -1,0 +1,2 @@
+ARTÍCULO 3- Se adiciona el artículo 5 a la Ley N.º 9440, Creación del Cantón XVI Río Cuarto de la Provincia de Alajuela, de 20 de mayo de 2017. El texto es el siguiente:
+Artículo 5- Se autoriza a la Municipalidad de Río Cuarto para que contrate a los funcionarios que se encuentren laborando para la Municipalidad de Grecia, destacados en ese territorio. A dichos funcionarios se les respetarán todos sus derechos laborales.

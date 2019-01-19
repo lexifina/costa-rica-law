@@ -1,0 +1,2 @@
+ARTÍCULO 4- Se adiciona el transitorio II a la Ley N.º 9440, Creación del Cantón XVI Río Cuarto de la Provincia de Alajuela, de 20 de mayo de 2017. El texto es el siguiente:
+Transitorio II- La Municipalidad de Grecia seguirá administrando los intereses y servicios locales del territorio del cantón de Río Cuarto, así como recaudando los tributos municipales y realizando la gestión presupuestaria, hasta que sus respectivas autoridades municipales asuman su cargo el 1 de mayo de 2020.
