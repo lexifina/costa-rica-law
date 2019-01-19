@@ -1,0 +1,1 @@
+Artículo 3º—Detalle de los premios: Consisten en 50 enteros de Lotería por sorteo, durante los sorteos de Lotería Popular y Lotería Nacional que se realicen entre el 1 de febrero y el 31 de marzo 2019 para cada ganador y la suma de ¢10.000.000 para quien resulte ganador del concurso mediante la acumulación de premios con la lotería asignada.
