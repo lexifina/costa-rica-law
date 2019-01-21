@@ -1,0 +1,2 @@
+Artículo 8 bis- Derecho a la justicia restaurativa. En fase de ejecución de la sanción penal juvenil se deberá garantizar el acceso de las personas menores de edad a la justicia restaurativa, para promover una responsabilidad activa frente a los hechos delictivos, la restauración al daño causado a la víctima, la comunidad y la integración a su familia y sociedad.
+(Así adicionado por el artículo 53 de la Ley de justicia restaurativa, N° 9582 del 2 de julio del 2018)

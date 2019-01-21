@@ -1,0 +1,1 @@
+ARTÍCULO 26- Continuidad de la reunión restaurativa. La reunión restaurativa se realizará sin interrupción, en la sesión previamente convocada hasta el cierre de esta, sin posibilidad de realizar suspensiones ni continuaciones. De presentarse una circunstancia que impida concluir, según criterio de la persona facilitadora, se deberá reprogramar una nueva reunión restaurativa.
