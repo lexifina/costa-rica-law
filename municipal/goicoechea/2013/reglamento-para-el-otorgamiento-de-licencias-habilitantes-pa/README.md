@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de licencias habilitantes para la venta de bebid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-08-27 | la propia norma |
+| 2 | 2019-01-21 | Reglamento municipal 3 (2019-01-21) |
