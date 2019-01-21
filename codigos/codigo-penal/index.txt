@@ -56,6 +56,7 @@ articulo-54.md
 articulo-55.md
 articulo-56.md
 articulo-56-bis.md
+articulo-56-ter.md
 articulo-57.md
 articulo-57-bis.md
 articulo-58.md
