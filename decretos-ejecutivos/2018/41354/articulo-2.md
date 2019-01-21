@@ -1,1 +1,0 @@
-Artículo 2º— Deróguese el Decreto Ejecutivo número 41225-H de fecha 06 de julio de 2018, publicado en el Alcance número 138 a La Gaceta número 138 de fecha 31 de julio de 2018, a partir de la vigencia del presente decreto.
