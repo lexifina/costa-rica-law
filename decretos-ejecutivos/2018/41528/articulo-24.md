@@ -1,0 +1,2 @@
+Artículo 24°—Aplicación del Reglamento para el Funcionamiento del Órgano Fiscalizador del Consejo Nacional de Concesiones
+Además de lo establecido en la Sección III del Capítulo II de este Reglamento, en lo que no se oponga a tales disposiciones, aplica el “Reglamento para el Funcionamiento del Órgano Fiscalizador del Consejo Nacional de Concesiones”, publicado el Alcance No. 134 a la Gaceta No. 132 del 20 de julio del 2018.

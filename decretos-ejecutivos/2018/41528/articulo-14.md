@@ -1,0 +1,24 @@
+Artículo 14º—Funciones
+Son funciones y atribuciones de la Unidad de Supervisión:
+a. Supervisar permanentemente, la explotación de las obras y servicios concesionados.
+b. Apoyar permanentemente a la Unidad Ejecutora en las actividades necesarias para el control y cumplimiento de las obligaciones contractuales del Concesionario en la fase de explotación, informando y recomendando en forma oportuna sobre cualquier aspecto relevante para la toma de decisiones que se origine o derive de las funciones propias de la Unidad de Supervisión.
+c. Establecer y aplicar los mecanismos y procedimientos para el control y seguimiento de la fase de explotación de todos los servicios que prestará la el Concesionario en la Terminal de Contenedores de Moín.
+d. Supervisar el cumplimiento de lo establecido en el Reglamento del Servicio de la Terminal de Contendores de Moín y todos los planes en él incluidos, así como toda la normativa que es parte del Contrato de Concesión.
+e. Supervisar, vigilar, controlar, dar seguimiento e informar en forma permanente que la operación y el mantenimiento de la Terminal se esté llevando de acuerdo con los Planes aprobados.
+f. Supervisar, controlar, dar seguimiento e informar periódicamente sobre las actividades rutinarias y periódicas de mantenimiento que realiza el Concesionario, teniendo en cuenta las normas, especificaciones, diseños, manuales y verificando el cumplimiento de los indicadores de mantenimiento establecidas en los Planes aprobados.
+g. Supervisar el cumplimiento de los parámetros de medición de la calidad del servicio establecidos en el Contrato de Concesión y en el Reglamento del Servicio de la Terminal de Contenedores de Moín, de acuerdo con el ordenamiento jurídico nacional.
+h. Vigilar, controlar y dar seguimiento del cumplimiento de los Planes y Programas definidos en la Evaluación Ambiental elaborados por el Concesionario y aprobados por la SETENA, así como la ejecución del Plan de Gestión Ambiental.
+i. Supervisar el cumplimiento de las disposiciones sobre seguridad, contenidas en los planes aprobados.
+j. Constatar que los seguros y pólizas exigidos al Concesionario se mantengan actualizados y vigentes, de acuerdo con sus obligaciones.
+k. Supervisar y controlar el cumplimiento por parte del Concesionario de todos los requisitos y controles financieros establecidos en el Contrato de Concesión.
+l. Supervisar, controlar y llevar estadísticas permanentes de los recaudos durante la etapa operación, utilizando un sistema automatizado de tecnología avanzada, que garantice a la Administración un control eficaz y eficiente con el fin cumplir con lo establecido en el Contrato de Concesión. Lo anterior incluyendo tanto los ingresos por servicios públicos como los de servicios complementarios, así como por el servicio eléctrico prestado a los contenedores refrigerados.
+m. Supervisar el pago mensual de los cánones y los montos girados por el Concesionario por estos conceptos.
+n. Revisar el contenido de los informes que debe presentar el Concesionario y emitir el criterio que corresponda a la Unidad Ejecutora, de acuerdo con lo dispuesto contractualmente.
+o. Elaborar informes sobre el cumplimiento o incumplimiento de las obligaciones contractuales del Concesionario, con indicación precisa de las causas, consecuencias y/o perjuicios para las partes y el Estado costarricense.
+p. Elaborar los informes pertinentes a los procesos y sistemas de calidad de los servicios y el cumplimiento de las normas técnicas y ambientales.
+q. Presentar las recomendaciones oportunas, a partir del análisis permanente de la evolución y desarrollo de la explotación de la TCM, para la toma de acciones preventivas o correctivas, de tal modo que se garantice la continuidad de los servicios portuarios en caso de suspensión, resolución anticipada, finalización de la concesión o bien en caso de desastres.
+r. Emitir los informes técnicos necesarios, dentro del ámbito de acción de la Unidad, para recomendar acciones para la resolución de las disputas y/o arbitrajes que se susciten de la explotación del Contrato de Concesión.
+s. Rendir informes mensuales en los que se detalle el estado de la infraestructura y de los equipos de la terminal.
+t. Informar a la Unidad Ejecutora del Consejo Nacional de Concesiones, como representante de la Administración Concedente, con copia al Órgano Fiscalizador, sobre aquellos hechos relevantes, informes y hallazgos que en el curso de su proceso supervisor haya encontrado.
+u. Mantener informado permanentemente al Consejo de Administración de JAPDEVA sobre todas las actuaciones realizadas, los hallazgos y las recomendaciones emitidas en razón de su gestión y la supervisión ejercida sobre la operación de la terminal en su etapa de explotación.
+v. Proponer oportunamente las medidas que se consideren necesarias para que el Concesionario y sus subcontratistas se ajusten al estricto cumplimiento de las obliga

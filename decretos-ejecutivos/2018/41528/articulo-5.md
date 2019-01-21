@@ -1,0 +1,2 @@
+Artículo 5º—Articulación de la Administración Concedente
+Tanto el Consejo Nacional de Concesiones como JAPDEVA se prestarán colaboración mutua para realizar, de manera sistemática, armoniosa, efectiva y eficiente, los procesos de supervisión y fiscalización que a cada institución corresponden. Cuando fuere necesario, la Presidencia de la República colaborará para la coordinación entre tales instituciones y el resto de dependencias que tengan vinculación con la operación del puerto.
