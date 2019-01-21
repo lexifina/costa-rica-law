@@ -1,1 +1,0 @@
-Artículo 15.—Atributos del personal de la Auditoría. El Auditor y Subauditor Internos, así como el resto del personal de la Auditoría Interna, deberán conducirse de conformidad con lo dispuesto en el capítulo I de “Normas Personales” del Manual de Normas Generales de Auditoría para el Sector Público, emitido por la Contraloría General.

@@ -1,2 +1,0 @@
-Artículo 40.—Obligación de asesorar a la Auditoría. La Asesoría Legal del INDER(*), estará en la obligación de atender de manera oportuna y efectiva, las necesidades de orden jurídico de la Auditoría Interna, que le permitan cumplir sus competencias.
-(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
