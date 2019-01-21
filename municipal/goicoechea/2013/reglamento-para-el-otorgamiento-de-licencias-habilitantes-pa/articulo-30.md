@@ -8,7 +8,8 @@ d) Por omisión o irrespeto al control previo de publicidad comercial relacionad
 e) Por no presentación de actualización de capital accionario en los términos del artículo 7, inciso m) de este reglamento.
 f) Por venta o facilitación de bebidas con contenido alcohólico a personas menores de edad y/o con limitaciones cognoscitivas y volitivas.
 g) Por permitir la permanencia de personas menores de edad en los establecimientos con licencias clase B y E-4.
-Serán sancionados con multa de entre uno y diez salarios base los supuestos de los incisos a, b, c y d) de este artículo, según la siguiente escala:
+Serán sancionados con multa de entre uno y diez salarios base los supuestos de los incisos a), b), c), d) y e) de este artículo, según la siguiente escala:
+(Así reformado el párrafo anterior mediante sesión ordinaria N°03-19 del 21 de enero del 2019)
 - Por el primer irrespeto se sancionará con multa de 2.5 salarios base.
 - Por el segundo irrespeto se sancionará con multa de 5 salarios base, siempre que no medie más de un año entre la firmeza de la primera sanción y el segundo incumplimiento.
 - Ante el tercer irrespeto se sancionará con multa de 7.5 salarios base, en tanto entre la firmeza de la segunda sanción y tercer incumplimiento no hubiere trascurrido más de dos años.
