@@ -6,6 +6,7 @@ articulo-5.md
 articulo-6.md
 articulo-7.md
 articulo-8.md
+articulo-8-bis.md
 articulo-9.md
 articulo-10.md
 articulo-11.md
@@ -51,12 +52,14 @@ articulo-50.md
 articulo-51.md
 articulo-52.md
 articulo-53.md
+articulo-53-bis.md
 articulo-54.md
 articulo-55.md
 articulo-56.md
 articulo-57.md
 articulo-58.md
 articulo-59.md
+articulo-59-bis.md
 articulo-60.md
 articulo-61.md
 articulo-62.md

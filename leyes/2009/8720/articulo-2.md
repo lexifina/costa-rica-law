@@ -1,5 +1,6 @@
-Artículo 2.- Principios
-Para la aplicación de este título, se tendrán en cuenta los principios siguientes:
-a) Principio de protección: considera primordial la protección de la vida, la integridad física, la libertad y la seguridad de las personas a que se refiere la presente Ley.
-b) Principio de proporcionalidad y necesidad: las medidas de protección responderán al nivel de riesgo o peligro en que se encuentre la persona destinataria, y solo podrán ser aplicadas en cuanto sean necesarias para garantizar su seguridad o reducir los riesgos existentes.
-c) Principio de confidencialidad: toda la información y actividad administrativa o jurisdiccional relacionada con el ámbito de protección de las personas a que se refiere esta Ley, deberá ser reservada para los fines de la investigación o del proceso respectivo.
+Artículo 2- Principios. Para la aplicación de este título, se tendrán en cuenta los principios siguientes:
+a) Principio de protección: considera primordial la protección de la vida, la integridad física, la libertad y la seguridad de las personas a que se refiere la presente ley.
+b) Principio de proporcionalidad y necesidad: las medidas de protección responderán al nivel de riesgo o peligro en que se encuentre la persona destinataria y solo podrán ser aplicadas en cuanto sean necesarias para garantizar su seguridad o reducir los riesgos existentes.
+c) Principio de confidencialidad: toda la información y actividad administrativa o jurisdiccional relacionada con el ámbito de protección de las personas a que se refiere esta ley deberá ser reservada para los fines de la investigación o del proceso respectivo.
+d) Principio de justicia restaurativa: la protección de las víctimas en el proceso penal, penal juvenil y contravencional deberá considerar la restauración, la integración, la rehabilitación, la recuperación y su convivencia pacífica y segura en la familia y sociedad; para lo cual toda intervención de las víctimas deberá tener un abordaje integral y holístico con el apoyo de programas restaurativos.
+(Así reformado por el artículo 54 de la Ley de justicia restaurativa, N° 9582 del 2 de julio del 2018)
