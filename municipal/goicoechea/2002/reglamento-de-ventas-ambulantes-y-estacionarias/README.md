@@ -15,3 +15,4 @@ Reglamento de Ventas Ambulantes y Estacionarias
 | --- | --- | --- |
 | 1 | 2002-12-13 | la propia norma |
 | 2 | 2005-05-02 | Reglamento municipal 18 (2005-05-02) |
+| 3 | 2019-01-21 | Reglamento municipal 3 (2019-01-21) |
