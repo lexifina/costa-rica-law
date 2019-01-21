@@ -14,3 +14,4 @@ Reglamento de la Comisión de Accesibilidad y Discapacidad (COMAD)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-04-04 | la propia norma |
+| 2 | 2019-01-21 | Reglamento municipal 217 (2019-01-21) |
