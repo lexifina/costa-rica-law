@@ -1,0 +1,1 @@
+ARTÍCULO 41- Seguimiento de los acuerdos judicializados. El seguimiento del plan reparador de las personas ofensoras juveniles estará a cargo del equipo psicosocial juvenil. En lo demás será aplicable lo dispuesto para el seguimiento de los acuerdos judicializados derivados del procedimiento de justicia penal restaurativa dispuesto en esta ley.
