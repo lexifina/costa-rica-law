@@ -1,0 +1,1 @@
+Artículo 37.- Sobre el Reporte de Avance. La información contenida en el Plan Municipal de Gestión Integral de Residuos Sólidos, debe ser actualizada en la plataforma SINIGIR, antes del 30 de marzo de cada año, junto con un reporte de avance del cumplimiento del Plan Municipal, basado en su Plan de Acción.

@@ -1,0 +1,1 @@
+Artículo 16.-Trazabilidad y consulta de la plataforma SINIGIR. La plataforma SINIGIR debe permitir la visualización por parte del usuario registrado, del estado en que se encuentran los trámites solicitados, así como los responsables en el Ministerio de Salud de tramitarlos.

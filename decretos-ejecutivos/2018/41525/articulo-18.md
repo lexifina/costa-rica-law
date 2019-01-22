@@ -1,0 +1,1 @@
+Artículo 18.- Almacenamiento y custodia de la información. La plataforma SINIGIR debe de contar con espacios físicos y mecanismos óptimos para evitar que la información almacenada y custodiada, sufra daños, pérdidas, destrucciones, modificaciones, sustracciones y divulgación indebida.

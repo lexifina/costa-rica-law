@@ -1,0 +1,1 @@
+Artículo 17.- Integridad e inalterabilidad de la información. La plataforma SINIGIR debe conservar, sin ningún tipo de alteración, los formularios electrónicos enviados y recibidos en dicha plataforma y dejar constancia de todas las transacciones y los mensajes generados.

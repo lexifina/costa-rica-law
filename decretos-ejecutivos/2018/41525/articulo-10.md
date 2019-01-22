@@ -1,0 +1,2 @@
+Artículo 10.- Expediente electrónico y conservación de documentos. Por cada trámite que se gestione mediante la plataforma SINIGIR, se conformará un expediente electrónico que contendrá todos los documentos electrónicos que se generen en la tramitación de la solicitud.
+El solicitante de acuerdo con su perfil de seguridad tendrá acceso al seguimiento de su trámite, el cual podrá ser consultado en línea, con excepción de aquella información que el Ministerio de Salud considere confidencial.
