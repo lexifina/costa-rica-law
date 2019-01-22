@@ -13,3 +13,4 @@ Atención de servicios en el Poder Judicial en virtud de la huelga nacional del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-09-11 | la propia norma |
+| 2 | 2019-01-22 | Circular 8 (2019-01-22) |
