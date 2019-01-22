@@ -1,1 +1,0 @@
-Artículo 7º—Todo Cajero(a) Facturador(a), sea titular o suplente contratado por más de tres meses, deberá contar con una póliza de fidelidad otorgada por el Instituto Nacional de Seguros, cuyo monto lo fijará dicho instituto de conformidad con sus disposiciones internas.

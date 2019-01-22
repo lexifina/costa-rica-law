@@ -1,1 +1,0 @@
-Artículo 5º—El (la) Cajero(a) Facturador(a), finalizado el día, entregará diariamente el dinero al Tesorero (a), el cual preparará el depósito bancario con la totalidad del dinero recaudado, guardando adicionalmente en su caja el monto correspondiente al fondo fijo.

@@ -1,1 +1,0 @@
-Artículo 20.—En caso de que un contribuyente cancele sus deudas con cheque; para la emisión de constancias de deuda, deberá primeramente acreditarse el depósito de los recursos, en la cuenta corriente municipal.
