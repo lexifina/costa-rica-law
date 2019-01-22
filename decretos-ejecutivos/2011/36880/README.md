@@ -14,3 +14,4 @@ Reglamento sobre la limitación a la responsabilidad de los proveedores de servi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-12-16 | la propia norma |
+| 2 | 2019-01-22 | Decreto Ejecutivo 41557 (2019-01-22) |
