@@ -1,0 +1,2 @@
+Artículo 26.—Vigencia. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, de conformidad con lo dispuesto en el artículo 43 del Código Municipal. III. Instruir a la Administración Municipal para que realice la publicación correspondiente en el Diario Oficial La Gaceta, de manera que el reglamento entre en vigencia una vez sea publicado.
+Acuerdo unánime y declarado definitivamente aprobado N° 713-18.
