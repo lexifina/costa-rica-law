@@ -1,0 +1,6 @@
+Artículo 13.-0bligaciones del Ministerio de Ambiente y Energía.
+1. Apoyar al Ministerio de Salud, ente rector en la gestión de residuos peligrosos, en la formulación y ejecución de la Política Nacional para la Gestión Integral de Residuos Peligrosos y el Plan Nacional de Gestión Integral de Residuos Peligrosos, así como evaluarlos y adaptarlos periódicamente.
+2. Comunicar oportunamente a los entes públicos y privados las directrices relacionadas con el cumplimiento de convenios internacionales sobre residuos peligrosos en el nivel nacional.
+3. Elaborar, en coordinación con el Ministerio de Salud, normas específicas para residuos peligrosos, según sector o sectores productivos que los generen.
+4. Ejercer las funciones de Contraloría Ambiental y de Evaluación del Impacto Ambiental para sitios de gestión de residuos peligrosos, contenidas en la Ley Nº 7554 de 4 de octubre de 1995 "Ley Orgánica del Ambiente," y establecer vía reglamento los requisitos y procedimientos específicos para estos sitios.
+5. Diseñar, implementar y administrar el Sistema de Registro de Emisión y Transferencia de Contaminantes (RECT), con el apoyo del Ministerio de Salud. Asimismo, proporcionará el acceso a la información contenida en dicho sistema al Ministerio de Salud.

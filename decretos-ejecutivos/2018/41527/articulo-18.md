@@ -1,0 +1,1 @@
+Artículo 18.-Derogatoria. Deróguese el Decreto Ejecutivo Nº 37788-S-MINAE del 15 de febrero del 2013 "Reglamento General para la Clasificación y Manejo de Residuos Peligrosos", publicado en La Gaceta Nº 138 del 18 de julio del 2013.
