@@ -1,0 +1,2 @@
+Artículo 3°- Córrase la numeración del artículo 21 del Decreto Ejecutivo No. 38924- S del 12 de enero del 2015 "Reglamento para la Calidad del Agua Potable", publicado en el Alcance No. 69 a La Gaceta No. 170 del 1° de setiembre del 2015, de manera que en lo sucesivo se lea como sigue:
+"Artículo 22°- Vigencia. Este reglamento entrará en vigencia a partir de su publicación en el Diario Oficial La Gaceta."
