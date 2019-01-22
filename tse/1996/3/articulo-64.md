@@ -1,1 +1,2 @@
-Artículo 64.—El patrono concederá hasta veinte días hábiles por año, con goce de salario, para ser distribuidos entre los miembros de la Junta Directiva del Sindicato, para que puedan asistir a cursos, seminarios, o congresos sindicales, dentro o fuera del país.
+Artículo 64.—El patrono concederá hasta veinte días hábiles por año, con goce de salario para cada sindicato existente y reconocido en la institución, a fin de ser distribuidos entre los miembros de sus respectivas juntas directivas, para que puedan asistir a cursos, seminarios, o congresos sindicales, dentro o fuera del país.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 01-2019 del 22 de enero del 2019)

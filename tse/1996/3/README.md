@@ -40,3 +40,4 @@ Reglamento Autónomo Servicios del Tribunal Supremo de Elecciones
 | 25 | 2016-12-13 | Decreto TSE 16 (2016-12-13) |
 | 26 | 2017-07-06 | Decreto TSE 8 (2017-07-06) |
 | 27 | 2018-06-07 | Decreto TSE 8 (2018-06-07) |
+| 28 | 2019-01-22 | Decreto TSE 1 (2019-01-22) |
