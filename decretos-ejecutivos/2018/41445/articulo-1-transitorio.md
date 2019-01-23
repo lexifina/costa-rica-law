@@ -1,0 +1,3 @@
+Capítulo IV
+Disposiciones Finales
+Transitorio I: La Dirección General de Aduanas, creará en los siguientes 30 días naturales desde la solicitud de la Secretaría Ejecutiva del Sistema Nacional de Control, las aperturas nacionales en el Arancel Nacional en el capítulo 88, partida arancelaria 8802 -"Las demás aeronaves (por ejemplo: helicópteros, aviones); vehículos espaciales (incluidos los satélites) y sus vehículos de lanzamiento y vehículos suborbitales" para las "Aeronaves de Combate y Helicópteros de Ataque" (según peso en vacío), así como los Vehículos aéreos no tripulados "armados" (Orones - según peso en vacío).

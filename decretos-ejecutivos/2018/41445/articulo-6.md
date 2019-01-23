@@ -1,0 +1,1 @@
+Artículo 6°. Cambios en el Sistema Informático del Ministerio de Hacienda. La Dirección General de Aduanas contará con un plazo de 30 días naturales, a partir de la recepción de la solicitud formal por parte de la Secretaría Ejecutiva, para realizar la implementación de los cambios requeridos en el Sistema Informático del Ministerio de Hacienda.
