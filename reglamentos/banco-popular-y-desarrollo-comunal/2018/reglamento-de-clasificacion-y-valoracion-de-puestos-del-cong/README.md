@@ -14,3 +14,4 @@ Reglamento de clasificación y valoración de puestos del Conglomerado Financier
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-09-04 | la propia norma |
+| 2 | 2019-01-23 | Reglamento 5610 (2019-01-23) |
