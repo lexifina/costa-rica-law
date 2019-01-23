@@ -1,0 +1,1 @@
+Artículo 7. La Junta Directiva autorizará que profesionales en psicología realicen el proceso de evaluación psicológica de idoneidad mental y emisión de documentos respectivos a la certificación, cuando cumplan los requisitos delimitados en el Título III del presente Reglamento.

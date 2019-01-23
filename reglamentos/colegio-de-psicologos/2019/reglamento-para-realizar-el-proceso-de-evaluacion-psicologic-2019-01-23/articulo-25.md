@@ -1,0 +1,1 @@
+Artículo 25. El o la profesional deberá brindar una devolución en forma directa a la persona evaluada, con base en los resultados de la evaluación, la cual será de carácter individual. Luego de esto se le entregará el certificado original de la evaluación.

@@ -1,0 +1,1 @@
+Artículo 31. Cuando el formulario o certificado con el correspondiente dictamen se anule, extravíe, destruya, inutilice, sea sustraído o se deteriore, total o parcialmente, la o el profesional deberá notificar por escrito al Colegio y detallar los hechos en un plazo máximo de tres (3) días hábiles.

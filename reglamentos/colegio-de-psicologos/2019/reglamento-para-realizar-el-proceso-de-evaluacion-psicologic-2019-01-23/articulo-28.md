@@ -1,0 +1,1 @@
+Artículo 28. En caso de que la persona solicitante se considere apta, su certificado tendrá validez por un año, a partir de la fecha de emisión. Si resulta no apta, se podrá evaluar seis (6) meses después de la fecha de emisión luego de aplicada la primera vez.

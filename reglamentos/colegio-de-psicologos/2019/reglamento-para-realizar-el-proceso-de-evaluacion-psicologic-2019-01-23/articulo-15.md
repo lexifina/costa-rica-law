@@ -1,0 +1,1 @@
+Artículo 15. Organización interna. La Comisión estará conformada por una persona designada como coordinadora por la Junta Directiva. La Comisión, por mayoría simple, será la que designe para el puesto de secretaría, correspondiendo a quien coordina comunicarlo formalmente a la Junta Directiva.

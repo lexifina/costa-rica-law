@@ -1,0 +1,5 @@
+Artículo 4. Marco Ético Profesional. Las personas profesionales en psicología que realicen valoraciones de idoneidad mental para quienes desean laborar en un CAI público, privado o mixto, deben practicar los más altos valores ético-profesionales, por lo que han de ajustar sus actos a las disposiciones del Código de Ética y Deontológico del Colegio de Profesionales en Psicología de Costa Rica:
+a) Son responsables por el cumplimiento de sus obligaciones y deberes profesionales, así como por la violación de las leyes y sus reglamentos. Esta responsabilidad puede ser administrativa, civil o penal.
+b) Se prohíbe al Profesional evaluar la Idoneidad Mental para el solicitante, en los siguientes casos:
+b.1. Emitir certificados a sus respectivos cónyuges o convivientes, ascendientes, descendientes, hermanos, hermanas, tíos, tías, sobrinos, sobrinas, y demás familiares hasta tercer grado de consanguinidad o afinidad.
+c) Quien no cumpla con las disposiciones consignadas en el presente Reglamento tendrá como consecuencia la apertura de un proceso disciplinario, según lo establece el Código de Ética y Deontológico del Colegio.

@@ -1,0 +1,1 @@
+Artículo 38. Cuando la persona solicitante deba firmar el consentimiento informado o un certificado y no pueda hacerlo, imprimirá su huella digital en el lugar designado para firmar. El o la profesional en psicología indicará a cuál dedo y extremidad corresponde.

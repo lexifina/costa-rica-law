@@ -1,0 +1,1 @@
+Artículo 19. Las personas funcionarias, designadas por la Fiscalía para revisar las evaluaciones psicológicas de idoneidad mental, estarán inhibidas de realizar estas evaluaciones durante el período que ejerzan dichas labores fiscalizadoras.

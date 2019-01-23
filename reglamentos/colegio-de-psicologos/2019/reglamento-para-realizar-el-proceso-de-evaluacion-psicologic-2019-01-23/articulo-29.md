@@ -1,0 +1,1 @@
+Artículo 29. Los formularios para la confección de los certificados serán vendidos únicamente a profesionales con habilitación para evaluar y posteriormente emitir documentos de idoneidad mental para laborar en un CAI público, privado o mixto. Asimismo, las personas profesionales deberán estar al día en sus obligaciones con el Colegio.

@@ -1,0 +1,1 @@
+Artículo 37. Una vez presentado el reporte al Ministerio, no procederá corregir la información declarada en él. Luego de emitido el certificado no procederá ningún cambio. En caso de detectarse algún error el certificado deberá ser anulado y se solicitará a la Fiscalía el procedimiento de corrección.

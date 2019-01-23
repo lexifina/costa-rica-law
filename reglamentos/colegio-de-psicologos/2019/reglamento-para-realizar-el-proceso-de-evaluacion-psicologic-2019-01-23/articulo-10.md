@@ -1,0 +1,2 @@
+Artículo 10. El Colegio, por medio del Departamento de Capacitaciones y en coordinación con la Comisión, realizará cursos de formación y actualización, de acuerdo con la necesidad de las personas profesionales habilitadas, para preparar en el proceso de evaluación psicológica de idoneidad mental.
+Estas personas están en la obligación de asistir a los cursos de certificación y recertificación (en este último caso, según se indica en el artículo 20, inciso e) que se convoque.

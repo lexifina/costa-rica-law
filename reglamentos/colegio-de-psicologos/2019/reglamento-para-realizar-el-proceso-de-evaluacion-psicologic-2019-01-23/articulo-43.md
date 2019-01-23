@@ -1,0 +1,1 @@
+Artículo 43. El presente Reglamento, a partir del momento en que se publique, será revisado por la Comisión cada cinco años. La Comisión posteriormente trasladará a la Junta Directiva lo correspondiente y esta lo remitirá a la Asamblea General para su aprobación.

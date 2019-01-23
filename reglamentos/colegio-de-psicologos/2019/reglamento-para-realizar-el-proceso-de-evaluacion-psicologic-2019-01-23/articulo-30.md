@@ -1,0 +1,1 @@
+Artículo 30. La persona profesional en psicología será depositaria y responsable de la guarda y conservación de los formularios y de la entrega oportuna de certificados emitidos ante el Ministerio y el Colegio.

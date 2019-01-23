@@ -1,0 +1,2 @@
+Transitorio 1.
+El presente Reglamento entrará en vigencia doce meses después de su publicación integral en La Gaceta. Durante ese período la Comisión de Centros de Atención Integral preparará la propuesta y aplicación del Manual de normas y procedimientos del Proceso de Evaluación Psicológica de Idoneidad Mental para Laborar en Centros de Atención Integral Infantil Públicos, Privados y Mixtos, el cual será enviado a la Junta Directiva para su estudio y aprobación.

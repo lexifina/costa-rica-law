@@ -1,0 +1,1 @@
+Artículo 40. La persona profesional en psicología será depositaria y responsable de la guarda y conservación de los formularios que adquiera y tendrá la responsabilidad de la entrega oportuna de los certificados emitidos ante el Colegio.

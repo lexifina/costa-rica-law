@@ -1,0 +1,1 @@
+Artículo 8. El Colegio comunicará por escrito al Ministerio el listado de profesionales en psicología con autorización para realizar las evaluaciones psicológicas de idoneidad mental y emisión de documentos requeridos en el proceso de certificación; asimismo, dará a conocer a quienes se les ha suspendido dicha autorización.
