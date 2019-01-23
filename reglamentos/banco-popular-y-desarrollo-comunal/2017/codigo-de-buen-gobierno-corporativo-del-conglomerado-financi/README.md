@@ -15,3 +15,4 @@ Código de Buen Gobierno Corporativo del Conglomerado Financiero Banco Popular y
 | --- | --- | --- |
 | 1 | 2017-06-14 | la propia norma |
 | 2 | 2017-06-14 | Reglamento 5471 (2017-06-14) |
+| 3 | 2019-01-23 | Reglamento 5610 (2019-01-23) |

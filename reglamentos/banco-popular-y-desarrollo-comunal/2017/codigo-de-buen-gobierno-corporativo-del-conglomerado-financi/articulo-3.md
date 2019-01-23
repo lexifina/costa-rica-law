@@ -44,11 +44,13 @@ Dentro del marco de sus competencias, las Políticas son emitidas por la Junta D
 36) Popular SAFI: Popular Sociedad Fondos de Inversión Sociedad Anónima.
 37) Popular Seguros: Popular Sociedad Agencia de Seguros Sociedad Anónima.
 38) Popular Valores: Popular Valores Puesto de Bolsa Sociedad Anónima.
-39) Puestos Claves: Posición dentro de la organización que resulta de importancia crítica en la definición y el desarrollo de la estrategia de negocios o de las actividades sustantivas de la entidad. Tratándose del Banco Popular y de Desarrollo Comunal, está integrada por el Gerente General Corporativo, sus dos Subgerentes y los Directores de Área. Tratándose de las Sociedades, está integrada por el Gerente General de cada una de ellas y adicionalmente en el caso de:
+39) Puestos Claves: Posición dentro de la organización que resulta de importancia crítica en la definición y el desarrollo de la estrategia de negocios o de las actividades sustantivas de la entidad.
+Tratándose del Banco Popular y de Desarrollo Comunal, está integrada por el Gerente General Corporativo, sus dos Subgerentes, Director General Corporativo, Directores de Área, Director de Riesgo, Oficialía de Cumplimiento y aquellos que a futuro la Junta Directiva defina. Tratándose de las Sociedades, está integrada por el Gerente General de cada una de ellas y adicionalmente en el caso de:
 i) Popular Pensiones: Gerencias de Departamento, con excepción de las unidades o función de Auditoría Interna, Riesgo, Cumplimiento Normativo y Oficialía de Cumplimiento.
 ii) Popular SAFI: Gerencia Financiera-Administrativa, Gerencia de Negocios, Gestor de Carteras Financieras, Gestor de Carteras No Financieras, Gestor de Desarrollo de Proyectos.
 iii) Popular Seguros: Gerente del Área Comercial, Gerente del Área Control Operativo, Gerente del Área de Tecnología de Información, Gerente del Área Administrativa Financiera.
 iv) Popular Valores: Gerencia de Operaciones y Gerencia de Negocios.
+(Así reformado el aparte 39) anterior en sesión N° 5610 del 23 de enero del 2019)
 40) Sistema de Información Gerencial: Conjunto de Sistemas de Información que interactúan entre sí para apoyar suficiente y congruentemente a la Junta Directiva y a la Alta Gerencia para la toma de decisiones, la administración de los riesgos y el cumplimiento de los planes estratégicos y operativos.
 41) Sociedad: Cada una de las sociedades de las cuales el Banco Popular y de Desarrollo Comunal, es su único propietario.
 42) SUGEF: Superintendencia General de Entidades Financieras.
