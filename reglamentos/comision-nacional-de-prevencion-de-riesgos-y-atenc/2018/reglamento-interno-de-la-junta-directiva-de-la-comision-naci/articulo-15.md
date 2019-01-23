@@ -1,0 +1,1 @@
+Artículo 15.—Medios de contacto de los miembros de Junta Directiva. El Secretario (a) deberá de llevar direcciones actualizadas e información de contacto de todos los miembros de Junta Directiva y contar con un registro de las comunicaciones realizadas y recibidas.

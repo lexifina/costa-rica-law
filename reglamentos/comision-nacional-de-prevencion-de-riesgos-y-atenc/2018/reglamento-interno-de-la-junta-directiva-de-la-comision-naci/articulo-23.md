@@ -1,0 +1,2 @@
+Artículo 23.—Vigencia. Rige a partir de su publicación en el Diario Oficial La Gaceta. Deróguese el actual Reglamento de la Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias aprobado mediante acuerdo Nº 067-03-2014 de la Sesión Ordinaria Nº 04-03-14 y Publicado en el Alcance Nº 59 de La Gaceta del martes 2 de marzo del 2014.
+2. Instruir a la Dirección Ejecutiva para que se proceda con la debida publicación en el Diario Oficial La Gaceta. Acuerdo Unánime.

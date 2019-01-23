@@ -1,0 +1,2 @@
+Artículo 12.—Mociones. Los miembros de la Junta Directiva podrán en cualquier momento de la Sesión presentar mociones sobre los asuntos que se estén discutiendo, y aquellas que se referan
+a cuestiones de orden o procedimiento tendrán prioridad en la discusión.
