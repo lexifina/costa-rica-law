@@ -14,3 +14,4 @@ Perfil del profesional de enfermería en epidemiología
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-09-14 | la propia norma |
+| 2 | 2019-01-23 | Acuerdo 29 (2019-01-23) |

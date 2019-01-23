@@ -158,6 +158,8 @@ Requisitos profesionales
 Maestría Profesional en Epidemiología
 Maestría académica en Epidemiología
 Maestría en Epidemiología de Campo
+Maestría en Salud Pública con énfasis en epidemiología
+(Así adicionado el párrafo anterior mediante acuerdo N° 29 de la sesión N° 2405)
 Requisito legal
 Debidamente incorporación al Colegio de Enfermeras de Costa Rica
 Contar con la licencia profesional al día.
