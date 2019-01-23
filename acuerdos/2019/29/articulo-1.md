@@ -1,0 +1,2 @@
+COLEGIO DE ENFERMERAS DE COSTA RICA
+La Junta Directiva del Colegio de Enfermeras de Costa Rica mediante el acuerdo N° 29, tomado en la sesión extraordinaria N° 2405, acuerda incorporar la maestría en Salud Pública con énfasis en epidemiología en los requisitos que constituyen el perfil profesional de Enfermería en Epidemiología del Colegio de Enfermeras de Costa Rica, publicado en La Gaceta N° 161 del viernes 14 de setiembre del 2018.
