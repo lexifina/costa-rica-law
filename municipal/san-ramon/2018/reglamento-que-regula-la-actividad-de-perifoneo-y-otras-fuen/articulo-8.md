@@ -1,0 +1,2 @@
+CAPITULO II – DE LA LICENCIA
+Artículo 8: Toda persona física o jurídica que pretenda dedicarse lícitamente a la actividad del perifoneo o similares deberán contar con la licencia municipal respectiva de acuerdo con el Artículo 88 del Código Municipal y los requisitos establecidos en el presente Reglamento. La licencia será para operar una sola y específica unidad móvil que se describirá en la solicitud de licencia mediante la placa y las características descriptivas del vehículo o unidad móvil a utilizar.

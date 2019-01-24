@@ -1,0 +1,1 @@
+Artículo 23: Será sancionado con multa equivalente a tres salarios base, a la persona responsable del servicio o uso del perifoneo, DJ o similares, que no cuenten con licencia municipal o que teniéndola este suspendida y continúen desarrollando la actividad.

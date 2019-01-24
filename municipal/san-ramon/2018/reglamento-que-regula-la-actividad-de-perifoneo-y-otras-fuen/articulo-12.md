@@ -1,0 +1,1 @@
+Artículo 12: Las solicitudes para obtener licencia para el desarrollo de la actividad de perifoneo, utilización de DJ o similares, deberán presentarse ante la Plataforma de Servicios, en el formato y con los requisitos que al efecto establezca la Municipalidad de San Ramón, con 30 días naturales de anticipación a la realización de la actividad.

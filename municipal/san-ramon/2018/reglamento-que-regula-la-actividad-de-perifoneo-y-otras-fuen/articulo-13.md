@@ -1,0 +1,2 @@
+Artículo 13: Una vez recibida toda la documentación, la dependencia técnica y administrativa competente, realizará la valoración correspondiente de la solicitud y la documentación aportada.
+Verificada la documentación presentada por el solicitante, en caso de determinarse que hacen falta requisitos, se prevendrá por única vez al administrado para que en el plazo de diez días hábiles complete los requisitos o aclare la información, tal prevención suspende el plazo que tiene la administración para resolver la solicitud.

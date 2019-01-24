@@ -1,0 +1,1 @@
+Artículo 24: La Municipalidad podrá denunciar ante los órganos jurisdiccionales competentes, a quien incurra en violación de lo dispuesto en el presente reglamento o cuando la conducta pueda tipificar algún ilícito penal, y así se le haya notificado previamente al infractor.

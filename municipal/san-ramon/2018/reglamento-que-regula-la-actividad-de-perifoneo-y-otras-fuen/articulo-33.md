@@ -1,0 +1,5 @@
+Artículo 33: El horario de funcionamiento de perifoneo móvil será de lunes a viernes con un horario de 09:00 am a 5:00 pm. Los domingos y días feriados, sin excepción, no se permitirá el funcionamiento de esta actividad.
+Cuando el Concejo Municipal, excepcionalmente autorice el perifoneo estacionario, éste solamente podrá realizarse de la siguiente forma:
+Se autorizará dos veces al día, por un periodo máximo de duración de una hora cada uno, con intervalo mínimo de cinco horas entre ellos. Esta autorización podrá concederse en cualquier día de la semana, dentro del horario comprendido entre las 9:00 am y las 5:00 pm.
+Es totalmente prohibido el funcionamiento de perifoneo estacionario, DJ o uso de altoparlantes fuera de este horario.-
+El perifoneo móvil o estacionario con motivo de emergencia o situaciones exclusivas de prevención, riego, alerta o servicios públicos, podrá realizarse cuando por su misma naturaleza y objetivo, resulte y se considere necesario, sin restricción de horario por razones de interés público, por medio a cargo de los organismos que atienden o advierten de la situación de emergencia.

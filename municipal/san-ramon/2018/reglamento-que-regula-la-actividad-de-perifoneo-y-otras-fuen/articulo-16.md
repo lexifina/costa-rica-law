@@ -1,0 +1,1 @@
+Artículo 16: Firme la resolución que apruebe la solicitud, la dependencia encargada de otorgar licencias, emitirá el certificado de licencia respectivo y lo comunicará a la Sección de Inspecciones, para su conocimiento y respectivo control.

@@ -1,0 +1,1 @@
+Artículo 4: Queda prohibido ejercer la actividad de perifoneo y similares dentro de la jurisdicción territorial de la Municipalidad de San Ramón, sin contar previamente con la licencia municipal que lo autorice, tal y como lo señala el artículo 88 y siguientes de la Ley N° 7794, Código Municipal y sus reformas.

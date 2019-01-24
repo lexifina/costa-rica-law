@@ -1,0 +1,1 @@
+Artículo 11: Tratándose de zonas residenciales y mixtas, el titular de la licencia móvil no podrá perifonear más de dos (2) veces al día en el sector y no más de tres (3) veces al día en las demás zonas autorizadas. De igual forma el vehículo no podrá permanecer por más de un minuto estacionado en un solo lugar con el sonido activo.

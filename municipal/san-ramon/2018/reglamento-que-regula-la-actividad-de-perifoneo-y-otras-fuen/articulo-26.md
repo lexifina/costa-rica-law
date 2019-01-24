@@ -1,0 +1,2 @@
+Artículo 26: Suspensión de la Licencia por Faltas Leves: Las licencias de perifoneo serán suspendidas por ocho (8) días cuando se determine la comisión de una falta leve, en cuyo caso el inspector solicitará el retiro inmediato del equipo utilizado. Se considerará falta leve:
+a- Mantener la unidad estacionada por más de un minuto, sea realizando perifoneo en un mismo lugar. Cuando la unidad móvil deba detenerse por alguna razón, deberá de apagarse el perifoneo inmediatamente.-
