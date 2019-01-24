@@ -15,3 +15,4 @@ Reglamento de la Contraloría de Servicios del INVU
 | --- | --- | --- |
 | 1 | 2008-10-24 | la propia norma |
 | 2 | 2018-11-15 | Reglamento 6349 (2018-11-15) |
+| 3 | 2019-01-24 | Reglamento 6361 (2019-01-24) |
