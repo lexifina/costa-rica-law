@@ -1,0 +1,2 @@
+16.—Grabación de video. Se prohíbe grabar video en las instalaciones del Museo mediante cualquier dispositivo. En caso de grabación con fines de comunicación relativos a las actividades del Museo, la sesión deberá coordinarse y programarse con antelación con el Departamento de Prensa y Relaciones Públicas del Museo.
+En caso de grabación con fines comerciales, institucionales o profesionales, el permiso especial deberá gestionarse con antelación ante la Dirección del Museo.

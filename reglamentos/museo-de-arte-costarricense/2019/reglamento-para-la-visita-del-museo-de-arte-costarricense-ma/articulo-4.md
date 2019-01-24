@@ -1,0 +1,1 @@
+4°—Horario de apertura. La sede patrimonial del Museo de Arte Costarricense abre al público de las 09h00 a las 16h00 (de 9:00 a.m. a 4:00 p.m.). Las salas de exposición, el Espacio 4, el Salón Dorado y el Jardín de Esculturas deben ser evacuados por los visitantes a más tardar a las 15h50 (3:50 p.m.).

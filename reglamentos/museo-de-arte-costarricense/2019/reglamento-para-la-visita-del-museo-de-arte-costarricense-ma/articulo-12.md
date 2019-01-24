@@ -1,0 +1,1 @@
+12.—Menores de edad. Las personas menores de edad que visiten el Museo deberán estar acompañadas en todo momento por una persona adulta responsable de su seguridad. En el Museo se autoriza el ingreso de coches para infantes de primera edad.

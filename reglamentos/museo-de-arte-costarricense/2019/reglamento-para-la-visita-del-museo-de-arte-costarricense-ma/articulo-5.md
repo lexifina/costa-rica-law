@@ -1,0 +1,1 @@
+5°—Ingreso. El ingreso al vestíbulo del Museo es libre y gratuito, siempre y cuando quien ingrese acepte y respete el conjunto de disposiciones contenidas en esta normativa. El acceso a los espacios interiores y el Jardín de Esculturas implicará una tarifa, la cual será comunicada en una tabla de precios instalada en el vestíbulo del Museo.
