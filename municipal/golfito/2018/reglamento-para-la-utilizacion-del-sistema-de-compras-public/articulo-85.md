@@ -1,0 +1,1 @@
+Artículo 85.—Verificación de información. Cuando lo considere pertinente, la Unidad de Proveeduría de la Municipalidad de Golfito podrá corroborar, por cualquier medio, la veracidad de la información y los documentos electrónicos suministrados por los proveedores registrados.

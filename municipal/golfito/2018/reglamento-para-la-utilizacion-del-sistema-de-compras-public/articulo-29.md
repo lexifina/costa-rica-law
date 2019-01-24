@@ -1,0 +1,2 @@
+Artículo 29.—Administración del Catálogo de bienes y servicios de SICOP. Corresponderá a un área especializada de SICOP la administración centralizada del Catálogo de bienes y servicios. Esta función comprende la definición de políticas, procesos y garantías sobre el buen funcionamiento del Catálogo.
+La administración integral del Catálogo de SICOP será responsabilidad de los analistas y coordinadores de catálogo, quienes tendrán a su cargo el control y la atención de las solicitudes de inclusión, modificación o exclusión de los códigos de clasificación e identificación.

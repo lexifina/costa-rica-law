@@ -1,0 +1,2 @@
+TRANSITORIO III.—Las solicitudes de autorización, los recursos, el refrendo y las notificaciones que le corresponda tramitar a la Contraloría General de la República se gestionarán en documentos físicos hasta que se implementen los servicios web para que SICOP y los sistemas del órgano contralor interactúen entre sí; no obstante, la Contraloría consultará los expedientes electrónicos por medio de SICOP; de igual modo, los proveedores registrados presentarán sus gestiones ante el órgano contralor mediante SICOP.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.

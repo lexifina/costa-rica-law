@@ -1,0 +1,1 @@
+Artículo 57.—Comunicación del plan de adquisiciones. La Unidad de Proveeduría de la Municipalidad de Golfito deberá divulgar el respectivo programa de adquisiciones y sus modificaciones en el portal SICOP. Lo anterior se ejecutará sin perjuicio de cumplir las publicaciones que se requieran, de acuerdo con la normativa vigente.

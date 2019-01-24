@@ -1,0 +1,12 @@
+CAPÍTULO V
+Garantías electrónicas
+Artículo 44.—Formas de rendir las garantías de participación y de cumplimiento. Las formas de rendir las garantías de participación y de cumplimiento son las siguientes:
+a) Cuando una garantía de participación o de cumplimiento se rinda a favor de la Municipalidad de Golfito mediante depósito de bono de garantía, la entidad garante que emita la garantía electrónica deberá transmitirla a SICOP en el mismo acto de su emisión.
+b) Tratándose de una garantía de participación o cumplimiento rendida mediante certificados de depósito a plazo, bonos del Estado y sus instituciones, y cheques certificados o de gerencia de un banco del sistema bancario nacional, estos valores deberán entregarse al banco del sistema bancario nacional que el administrador de SICOP determine para su custodia; una vez constituida la custodia, dicho banco deberá generar de inmediato un comprobante electrónico de que la garantía ha sido rendida a favor de la Municipalidad de Golfito que promueve el concurso y lo registrará en el Sistema SICOP.
+c) En caso de una garantía de participación o cumplimiento rendida mediante dinero en efectivo, éste será depositado en una cuenta del banco del Sistema Bancario Nacional que el Administrador de SICOP determine a nombre de la Municipalidad de Golfito que promueve el procedimiento de contratación administrativa respectivo; una vez realizado el depósito, el banco referido emitirá un comprobante electrónico de que la garantía ha sido rendida a favor de la Municipalidad de Golfito que promueve el concurso y lo registrará en el Sistema.
+d) Toda garantía de Participación o de Cumplimiento deberá ser depositada a la cuenta N° 100-01-007-003349-1 del Banco Nacional de Costa Rica a favor de la Municipalidad de Golfito por medio del sistema SINPE.
+e) Todos los procesos de Contratación Directa realizados en la Municipalidad de Golfito serán exentos de la presentación de la Garantía de Participación.
+f) En todo proceso de contratación administrativa que se realice en la Municipalidad de Golfito el adjudicatario deberá presentar la Garantía de Cumplimiento de la siguiente manera:
+Ø En todo tipo de Contratación Directa de servicios o bienes sin importar la cuantía, un 5%.
+Ø En contrataciones de licitaciones abreviadas o públicas de todo tipo de servicio o bien un 7%.
+Ø En contrataciones de todo tipo de servicio (obra) sin importar la cuantía deberá presentar la garantía de cumplimiento de un 10%.

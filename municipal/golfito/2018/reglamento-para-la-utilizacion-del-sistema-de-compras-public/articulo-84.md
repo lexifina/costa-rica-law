@@ -1,0 +1,1 @@
+Artículo 84.—Actualización de registros. La Unidad de Proveeduría de la Municipalidad de Golfito debe mantener actualizada la información del Catálogo de bienes y servicios, portal y expediente electrónico. Asimismo, deberán colaborar en la actualización de datos del Registro electrónico de proveedores.

@@ -1,0 +1,1 @@
+Artículo 65.—Acuse de recibo. Cada vez que la unidad de proveeduría de la Municipalidad de Golfito o un proveedor registrado envíen un documento por medio de SICOP, el Sistema emitirá un acuse electrónico de recibo que permitirá acreditar la fecha y la hora de la recepción.

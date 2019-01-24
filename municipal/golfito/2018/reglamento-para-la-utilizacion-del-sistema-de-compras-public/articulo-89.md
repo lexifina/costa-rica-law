@@ -1,0 +1,1 @@
+Artículo 89.—Desactivación del uso de SICOP. En caso de que el proveedor registrado cese el uso de SICOP por cualquier causa, ello no implicará de modo alguno que quede relevado del cumplimiento de los compromisos, las responsabilidades y las obligaciones que haya adquirido previamente con la Municipalidad de Golfito.

@@ -1,0 +1,6 @@
+Artículo 21.—Causales para declarar inactivo a un proveedor registrado. Se podrá declarar inactivo a un proveedor registrado en las siguientes circunstancias:
+a) La muerte o la extinción de la persona física o jurídica.
+b) La manifestación expresa del proveedor inscrito.
+c) Los que hayan sido inhabilitados para contratar con toda la Municipalidad de Golfito durante el tiempo que subsista la sanción.
+d) Por la no sujeción del proveedor a los estándares de calidad que indique la Municipalidad de Golfito mediante reglamentos o normas técnicas emanadas de los órganos competentes.
+e) Por vencimiento o expiración del plazo de inscripción.

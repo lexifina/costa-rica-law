@@ -1,0 +1,4 @@
+SECCIÓN II
+Registro electrónico de proveedores
+Artículo 14.—Constitución de un único Registro electrónico de proveedores. El Registro electrónico de proveedores de SICOP será de uso obligatorio para la Municipalidad de Golfito y constituye el único instrumento idóneo en el que se inscribirán las personas físicas y jurídicas que deseen participar en los procedimientos de contratación administrativa tramitados por medio de SICOP. Dicha inscripción tendrá una vigencia de veinticuatro meses.
+Los proveedores registrados podrán ser evaluados en forma integral en cuanto a su historial, capacidad técnica, financiera, jurídica y cualquier otra que resulte indispensable para la adecuada selección del contratista y del interés público. La información que conste en el Registro electrónico de proveedores es de libre acceso.
