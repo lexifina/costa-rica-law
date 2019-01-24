@@ -1,2 +1,0 @@
-Artículo 15- Competencia de la Gerencia General y de la Dirección de Recursos Humanos: será competencia de la Gerencia General la aprobación o improbación de las facilidades de capacitación que además de subsidio o préstamo incluyan permisos con goce de salario hasta por dos semanas o menos y permiso sin goce de salario hasta por un año.
-La Dirección de Recursos Humanos aprobará las solicitudes individuales de capacitación que impliquen subsidio.

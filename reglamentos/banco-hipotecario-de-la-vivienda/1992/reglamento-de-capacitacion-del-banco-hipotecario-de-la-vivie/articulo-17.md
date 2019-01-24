@@ -1,1 +1,0 @@
-Artículo 17- Facilidades otorgadas por otros organismos: aquellas facilidades que pudieran recibir un funcionario del Banco en materia regulada por este Reglamento, con base en acuerdos o programas especiales que se establezcan con otros organismos o entidades, nacionales o extranjeras, quedarán sujetas a la aplicación de este Reglamento.

@@ -1,1 +1,0 @@
-Artículo 16-Competencia de las jefaturas de Dirección: toda solicitud de facilidad de capacitación que sea sometida a la aprobación de la Dirección de Recursos Humanos, Gerencia General o Junta Directiva, deberá contar con el criterio del Jefe de Dirección respectiva.

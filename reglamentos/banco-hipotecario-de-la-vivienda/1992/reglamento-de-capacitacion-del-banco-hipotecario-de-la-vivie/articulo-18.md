@@ -1,1 +1,0 @@
-Artículo 18- Casos no previstos: los casos no previstos en el presente Reglamento serán resueltos por la Junta Directiva. La Gerencia General resolverá aquellos aspectos de naturaleza operativa no previstos en el presente Reglamento.

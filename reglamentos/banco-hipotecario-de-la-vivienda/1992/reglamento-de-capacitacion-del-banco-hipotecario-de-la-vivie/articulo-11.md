@@ -1,1 +1,0 @@
-Artículo 11- Incumplimiento de obligaciones: al funcionario que habiéndosele otorgado las facilidades a que se refiere el presente Reglamento, no cumpla con cualquiera de las obligaciones que contrajo, deberá reintegrar al Banco el monto correspondiente, equivalente o proporcional a las facilidades otorgadas.
