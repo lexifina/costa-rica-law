@@ -14,3 +14,4 @@ Tiempo de ejecución del acto médico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-01-24 | la propia norma |
+| 2 | 2019-01-24 | Acuerdo 0 (2019-01-23) |
