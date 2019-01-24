@@ -13,3 +13,4 @@ Reiteración y Adición a la circular N° 151-14 “Requisitos para solicitar ci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-09-28 | la propia norma |
+| 2 | 2019-01-24 | Circular 9 (2019-01-24) |
