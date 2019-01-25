@@ -1,0 +1,8 @@
+Artículo 15.—Retiro del uso del teléfono celular. El contrato contendrá expresamente la determinación de que la asignación y el uso del teléfono celular, no creará derechos a favor del funcionario, ni se considera parte del salario, ni un beneficio personal, por lo que el Alcalde Municipal podrá retirar su uso unilateralmente en cualquier momento, y dejar sin efecto el contrato -entre otras por las siguientes causas:
+a) Desaparición de la necesidad institucional, o de las circunstancias que motivaron la asignación del servicio.
+b) Incumplimiento de este Reglamento o al convenio por parte del funcionario (a) responsable.
+c) Cambio de cargo del funcionario responsable.
+d) Despido del funcionario (a).
+e) Limitaciones presupuestarias.
+f) No cancelar los excedentes a los que hace mención el 12 de este reglamento.
+g) Cualquier otro motivo o causa que a criterio exclusivo del Alcalde Municipal, dé pie a la recisión del mismo.

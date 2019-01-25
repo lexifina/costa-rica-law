@@ -1,0 +1,1 @@
+Artículo 23.—Del cobro del excedente. Si el cobro reportado por el proveedor de servicios telefónicos excede el monto autorizado en el convenio, el Departamento de Tesorería procederá de conformidad con lo estipulado en el artículo 12 de este Reglamento.

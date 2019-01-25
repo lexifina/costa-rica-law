@@ -1,0 +1,1 @@
+Artículo 8º—De la autorización. La Alcaldía deberá autorizar mediante resolución administrativa la asignación del servicio de telefonía celular al respectivo funcionario municipal, tomando en cuenta los motivos de la excepción, restricción y motivaciones de la necesidad institucional de realizar la asignación del servicio.

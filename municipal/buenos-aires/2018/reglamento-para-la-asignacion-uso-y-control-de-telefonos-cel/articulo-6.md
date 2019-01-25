@@ -1,0 +1,3 @@
+CAPÍTULO II
+Usuarios del servicio y tarifas
+Artículo 6º—Usuarios del servicio. Salvo para las personas que ocupen la Alcaldía y Vicealcaldía, quienes, por su rango dentro de la Municipalidad, desde el inicio de sus gestiones deberán tener acceso al servicio de telefonía celular pagado por la Municipalidad, en los demás casos se podrá asignar un servicio de telefonía y su respectivo teléfono celular a aquel funcionario que, por la naturaleza de sus funciones y en virtud de su cargo, lo requiere para el buen desempeño de sus funciones municipales. Lo anterior bajo resolución sustentada por la Alcaldía.
