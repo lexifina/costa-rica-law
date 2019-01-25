@@ -1,0 +1,1 @@
+Artículo 9º—Los miembros de la comisión local de plan regulador una vez electos y juramentados nombrarán una junta directiva, que estará formada por un(a) presidente, un (a) vicepresidente, un tres vocales y un secretario.
