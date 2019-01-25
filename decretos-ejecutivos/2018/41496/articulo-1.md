@@ -1,0 +1,17 @@
+N° 41496-S
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE SALUD
+En uso de las facultades que les confieren los artículos 140 incisos 3) 8) 18) y 20) y 146 de la Constitución Política y los artículos 25, 27 inciso 1) y 28 inciso 2), acápite b) de la Ley General de la Administración Pública, Ley N°6227 del 02 de mayo de 1978.
+Considerando:
+I.—Que en la Opinión Consultiva 24-17, la Corte Interamericana de Derechos Humanos ha definido la identidad de género -parte del derecho a la identidad- como “la vivencia interna e individual del género tal como cada persona la siente, la cual podría corresponder o no con el sexo asignado al momento del nacimiento”. Según lo anterior, el Estado debe reconocer el pleno goce de los derechos humanos a las personas transgénero, especialmente la protección contra todas formas de discriminación y el derecho a la salud.
+II.—Que en el informe de la Comisión Interamericana de Derechos Humanos sobre Violencia contra personas LGBTI, recopiló datos que muestran que la esperanza de vida de las personas trans de la región es de 35 años o menos. Además, analizó un grupo de entrevistas realizadas a personas trans, donde 70% afirmó que se les negó la atención médica necesaria o que recibieron otras formas de discriminación por parte de los profesionales de salud, como negarse a tocarlos, utilización de lenguaje grosero o abusivo o son físicamente abusivos, así como la negación al acceso a la terapia hormonal.
+III.—Que según los artículos 50 y 73 de nuestra Constitución Política, que establecen el derecho a la salud, es de interés del Gobierno de la República que se ajusten la prestación de servicios de salud para la población trans, según las necesidades propias que estas personas puedan requerir.
+IV.—Que la Organización Mundial de la Salud ha reconocido que las personas trans requieren de especialistas para que atiendan sus necesidades específicas, por ejemplo, la terapia hormonal. Sin embargo, se cuentan con barreras legales que impiden el acceso a estos medios para ejercer su identidad de género. Según los objetivos de la Agenda de Desarrollo Sostenible 2030, se debe brindar este acceso, así como eliminar la discriminación, incluyendo las formas de tratamiento degradantes para así lograr que la salud sea universal y cumplir con dichos objetivos.
+V.—Que actualmente las personas trans utilizan medicamentos para realizarse el proceso sin supervisión médica, muchos de los tratamientos utilizados son de uso veterinario, los cuales pueden generar serias complicaciones para su salud, consecuencias que son atendidas en los hospitales públicos, elevando adicionalmente, el costo de la atención.
+VI.—Que el pasado 29 de noviembre de 2018, la Junta Directiva de la Caja Costarricense del Seguro Social (CCSS) aprobó ayer, el protocolo de atención integral de personas trans para la hormonización en la red de servicios de salud, el cual pretende brindarles atención integral a las personas trans, con el fin de que utilicen tratamientos prescritos por un especialista, con la seguridad, calidad debida y vivan una vida plena. Por tanto;
+Decretan:
+DECLARATORIA DE INTERÉS PÚBLICO Y NACIONAL DEL
+PROTOCOLO DE ATENCIÓN INTEGRAL DE PERSONAS
+TRANS PARA LA HORMONIZACIÓN
+EN LA RED DE SERVICIOS DE SALUD
+Artículo 1°—Declaratoria. Se declara de interés público y nacional el “Protocolo de Atención Integral de Personas Trans para la Hormonización en la Red de Servicios de Salud”, con el que se brindará atención integral a las personas trans.
