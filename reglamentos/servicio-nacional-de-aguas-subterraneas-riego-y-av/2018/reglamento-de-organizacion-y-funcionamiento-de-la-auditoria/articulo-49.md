@@ -1,0 +1,2 @@
+Artículo 49.—Responsabilidades y sanciones. El incumplimiento a lo dispuesto en el presente Reglamento será causal de responsabilidad administrativa para el Auditor Interno y para los funcionarios de la Auditoría Interna, el Jerarca, titulares subordinados y demás funcionarios del SENARA.
+La determinación de responsabilidades y aplicación de las sanciones administrativas corresponde al órgano competente, según las regulaciones internas y la normativa que resulte aplicable.

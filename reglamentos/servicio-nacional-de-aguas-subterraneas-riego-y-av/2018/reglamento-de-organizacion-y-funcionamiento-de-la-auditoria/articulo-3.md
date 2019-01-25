@@ -1,0 +1,1 @@
+Artículo 3°—Ámbito de aplicación. El presente reglamento será de acatamiento obligatorio para todos los funcionarios de la Auditoría Interna y para el resto de los funcionarios de la Administración Activa del SENARA, en la materia que les resulte aplicable.
