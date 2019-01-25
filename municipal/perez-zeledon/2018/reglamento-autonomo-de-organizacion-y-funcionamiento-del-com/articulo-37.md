@@ -1,0 +1,1 @@
+Artículo 37º—Aspectos que conoce la Junta. Corresponde a la JDCCDR conocer en sus sesiones, los proyectos, planes, estudios y conflictos relacionados con el mismo. Todo lo que se discuta en las sesiones deberá quedar constando en el acta respectiva.
