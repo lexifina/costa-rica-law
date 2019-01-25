@@ -17,3 +17,4 @@ Reglamento sobre Gastos Fijos y Adquisición de Bienes y Servicios de Competenci
 | 2 | 2004-03-20 | Reglamento municipal 179 (2004-03-20) |
 | 3 | 2006-05-26 | Reglamento municipal 7 (2006-05-26) |
 | 4 | 2007-05-03 | Reglamento municipal 81 (2007-05-03) |
+| 5 | 2019-01-25 | Reglamento municipal 212 (2019-01-25) |
