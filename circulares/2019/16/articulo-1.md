@@ -1,0 +1,8 @@
+CIRCULAR N° 16-2019
+DE: Ana Eugenia Romero Jenkins, Directora Ejecutiva
+PARA: Todas las Autoridades Judiciales, Instituciones, Abogados y Público en General
+ASUNTO: Adición a la Circular 03-2019 de “Tarifas de Honorarios de Peritos y Peritas, Ejecutores, Honorarios para Peritos y Peritas en Trabajo Social y Psicología, Servicios Médicos Forenses y Especialidades Médicas, Tarifas de Honorarios de los Servicios Médicos, Honorarios para Actuarios Matemáticos, Traductores de Idiomas e Intérpretes de Lenguaje de Señas Costarricense y las Tarifas de Ayuda para Testigos, Imputados y Ofendidos de Escasos Recursos Económicos”
+FECHA: 25 de enero del 2019
+En adición a la Circular 3-2019, en la que se publicó las “Tarifas de Honorarios de Peritos y Peritas, Ejecutores, Honorarios para Peritos y Peritas en Trabajo Social y Psicología, Servicios Médicos Forenses y Especialidades Médicas, Tarifas de Honorarios de los Servicios Médicos, Honorarios para Actuarios Matemáticos, Traductores de Idiomas e Intérpretes de Lenguaje de Señas Costarricense y las Tarifas de Ayuda para Testigos, Imputados y Ofendidos de Escasos Recursos Económicos”, se debe incluir en el cuadro No. 4 de Tarifas y Honorarios Médicos Forenses y Especialidades Médicas, la siguiente línea:
+Exámenes Complementarios | Honorarios (aplicados 2018) | Porcentaje de actualización (2,02% Var. IPC) | Honorarios actualizados 2019 (redondeado a la centena superior próxima)
+Reporte de estudios de imágenes médicas (radiografías, tomografías, resonancia magnética nuclear, ultrasonido, otros) No se incluye en estos reportes los ultrasonidos con y sin Doppler y TAC con y sin contraste, contemplados en el cuadro No. 5. | ¢ 8.400,00 | ¢ 8.569,68 | ¢ 8.600,00
