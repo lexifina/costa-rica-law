@@ -1,0 +1,1 @@
+Artículo 11.—Las disposiciones contenidas en este reglamento son aplicables a todos los funcionarios que en razón de sus cargos usen, controlen o administran los recursos de transporte de la Municipalidad de Buenos Aires, incluido el Alcalde.

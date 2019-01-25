@@ -1,0 +1,1 @@
+Artículo 13.—Cualquier reforma o adición a este reglamento será realizada por el Alcalde Municipal, aprobado por el Concejo Municipal y publicada en el Diario Oficial La Gaceta de acuerdo con lo estipulado por el artículo 43 de la Ley 7794.

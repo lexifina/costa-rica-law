@@ -1,0 +1,2 @@
+CAPÍTULO VI
+Artículo 9º—Los accesorios repuestos herramientas u otro implemento de los vehículos extraviados injustificadamente serán suplidos por el funcionario que tuvo a su cargo el vehículo como responsable directo de la pérdida, así como el pago de la reparación de aquellos daños que se comprueben se deben a falta de cuidado, abandono o incumplimiento de las disposiciones de este reglamento siempre y cuando no sean cubiertas por el Instituto Nacional de Seguros.
