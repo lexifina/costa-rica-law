@@ -13,3 +13,4 @@ Tarifas honorarios de peritos (as), ejecutores en trabajo social y psicología, 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-01-01 | la propia norma |
+| 2 | 2019-01-25 | Circular 16 (2019-01-25) |

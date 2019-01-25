@@ -8,6 +8,9 @@ En acuerdo del Consejo Superior tomado en sesión celebrada el 3 de setiembre de
 Por lo anterior, a partir del 01 de enero del 2019, regirán las siguientes tarifas de Honorarios de Peritos y Peritas, Ejecutores, Honorarios para Peritos y Peritas en Trabajo Social y Psicología, Servicios Médicos Forenses y Especialides Médicas, Tarifas de Honorarios de los Servicios Médicos, Honorarios para Actuarios Matemáticos, Traductores de Idiomas e Intérpretes de Lenguaje de Señas Costarricense y las Tarifas de Ayuda para Testigos, Imputados y Ofendidos de Escasos Recursos Econónicos, que se presentan en los siguientes cuadros:
 [imagen]
 [imagen]
+Exámenes Complementarios | Honorarios (aplicados 2018) | Porcentaje de actualización (2,02% Var. IPC) | Honorarios actualizados 2019 (redondeado a la centena superior próxima)
+Reporte de estudios de imágenes médicas (radiografías, tomografías, resonancia magnética nuclear, ultrasonido, otros) No se incluye en estos reportes los ultrasonidos con y sin Doppler y TAC con y sin contraste, contemplados en el cuadro No. 5. | ¢ 8.400,00 | ¢ 8.569,68 | ¢ 8.600,00
+(Así adicionado el punto anterior mediante circular N° 16-2019 del 25 de enero del 2019, publicada en el Boletín Judicial N° 38 del 22 de febrero del 2019)
 [imagen]
 [imagen]
 [imagen]
