@@ -1,0 +1,1 @@
+Artículo 17. Criterios de Evaluación. El DRMS, en coordinación con la parte técnica responsable del procedimiento, definirá los elementos que se incorporarán en el cartel como criterios de evaluación, los cuales se basarán en los principios de igualdad, libre competencia, eficiencia y transparencia que establece la Ley de Contratación Administrativa.

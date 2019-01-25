@@ -1,0 +1,2 @@
+Artículo 47. Contratos irregulares. En caso de que el DRMS detecte la posible irregularidad de una contratación, inmediatamente pondrá el caso en conocimiento del Despacho del Alcalde, para que éste en su condición de jerarca máximo de la Institución, ordene el levantamiento de las investigaciones que corresponda.
+En cuanto a la eventual cancelación de contrataciones que hayan sido determinadas como irregulares, tanto la orden de pago como las condiciones en que procede, deben ser emitidas por el Despacho del Alcalde.
