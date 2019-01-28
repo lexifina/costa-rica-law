@@ -1,0 +1,1 @@
+Artículo 8°—Se proporcionará equipos de protección personal tanto a los trabajadores como a las personas que en calidad de visitantes se encuentran dentro del área del tajo de Paso Canoas y alrededores, se les advertirá de los posibles riesgos. Las medidas de seguridad y las obligaciones escritas en la reglamentación y directrices establecidas que deben acatar.

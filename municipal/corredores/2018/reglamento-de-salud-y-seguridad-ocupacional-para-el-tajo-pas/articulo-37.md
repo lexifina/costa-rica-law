@@ -1,0 +1,1 @@
+Artículo 37.—Es responsabilidad de cada trabajador, hacer uso correcto del equipo de protección personal y reportar a la administración los daños o términos de la vida útil del equipo para su reposición.

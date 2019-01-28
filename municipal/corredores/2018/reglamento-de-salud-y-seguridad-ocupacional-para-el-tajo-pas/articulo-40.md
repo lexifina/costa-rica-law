@@ -1,0 +1,1 @@
+Artículo 40.—Se realizarán mediciones periódicas de los decibeles en las zonas de trabajo como dentro de las cabinas de los vehículos, para determinar los niveles de ruido a los que se ve expuesto el trabajador, acorde a la norma INTE/ISO/TR 18690:2016.

@@ -1,0 +1,1 @@
+Artículo 30.—Se realizará un control técnico preventivo del sistema de los vehículos y maquinarias, el mantenimiento preventivo, así como la carga de combustible y cambios de lubricantes se harán en la zona designada para tal efecto y se dispondrá de un extintor de dióxido de carbono en el sitio.

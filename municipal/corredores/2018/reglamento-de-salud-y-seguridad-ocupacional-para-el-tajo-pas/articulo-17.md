@@ -1,0 +1,1 @@
+Artículo 17.—Se suspenderán las labores cuando las condiciones climáticas locales se incrementen, hasta el estado de amenaza natural y solo se reanudarán hasta que las retornen a un estado normal. Del desecho de escombro y transporte del material

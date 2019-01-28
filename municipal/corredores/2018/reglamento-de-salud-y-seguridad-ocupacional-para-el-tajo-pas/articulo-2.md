@@ -1,0 +1,31 @@
+Artículo 2°—Definiciones: Para la correcta interpretación de este reglamento, se consideran los siguientes términos, de acuerdo a las especificaciones técnicas que deben de cumplir para el caso que nos ocupa.
+a. Accidente de trabajo: Es todo evento que le suceda al trabajador como causa de la labor que ejecuta o como consecuencia de ésta, durante el tiempo que permanece bajo la dirección y dependencia del patrono o sus representantes, y que puede producirle la muerte o pérdida o reducción, temporal o permanente de la capacidad para el trabajo. De igual forma se clasifica como accidente de trabajo, el que ocurra al trabajador bajo las siguientes circunstancias:
+a.1. En el trayecto usual de su domicilio al trabajo y viceversa, cuando el recorrido que efectúa no haya sido interrumpido o variado por motivo de su interés personal, siempre que el patrono proporcione directamente o pague el transporte, igualmente cuando en el acceso al centro de trabajo deba afrontarse peligro de naturaleza especial, que se considere inherentes al trabajo mismo. En todos los demás casos de accidente en el trayecto, cuando el recorrido que efectúe el trabajador no haya sido variado por interés personal de éste, las prestaciones que se cubran serán aquellas estipuladas en la normativa que rige la materia y que no hayan sido otorgadas por otros regímenes de seguridad social, parcial o totalmente.
+a.2 En el cumplimiento de órdenes del patrono o en la prestación de un servicio bajo su autoridad, aunque el accidente ocurra fuera del lugar de trabajo y después de finalizada la jornada.
+a.3 En el curso de una interrupción del trabajo, antes de empezarlo o después de terminarlo, si el trabajador se encuentra en el lugar de trabajo de la Municipalidad, con el consentimiento expreso o tácito del patrono o de sus representantes.
+a.4 Al prestar los auxilios necesarios en caso de siniestro o riesgo inminente en que las personas o intereses del patrono, o algún compañero de trabajo estén en peligro.
+b. Enfermedad del trabajo: Estado patológico que resulte de la acción continúa de una causa que tiene su origen o motivo en el propio servicio o en el medio o condiciones en que el trabajador labora y en el que, la entidad competente, establezca que ha sido la causa de la enfermedad.
+c. Riesgos del Trabajo: Accidentes y enfermedades que ocurran a los funcionarios, con ocasión o por consecuencia de la función que desempeñen en forma subordinada y remuneradas, así como la agravación y reagravación que resulte como consecuencia directa, inmediata e indudable de éstos.
+d. Salud ocupacional: Es la responsabilidad social, moral y legal que tiene el patrono para adoptar en el centro de trabajo actividades que conlleven a:
+d.1 Promover y conservar la salud de la persona trabajadora.
+d.2 Prevenir todo daño que las condiciones de trabajo pudieran causar a la persona trabajadora.
+d.3 Proteger la salud ante los riesgos nocivos que resulten de las condiciones de trabajo.
+d.4 Garantizar a la persona trabajadora un empleo acorde con sus capacidades fisiológicas y sicológicas.
+d.5 Adaptar las condiciones de la tarea a la persona trabajadora.
+e. Tajo o cantera: es una explotación minera, generalmente a cielo abierto, en la que se obtienen rocas industriales, ornamentales o áridos, suelen ser explotaciones de pequeño tamaño, aunque el conjunto de ellas representa, probablemente, el mayor volumen de la minería mundial.
+f. Macizo: En geología, macizo es una sección de la corteza terrestre, que está demarcada por fallas o fisuras, en áreas rocosas, o en materiales sólidos. En el movimiento de la corteza, un macizo tiende a retener su estructura interna al ser desplazado en su totalidad.
+g. Taludes: acumulación de fragmentos de roca partida en la base de paredes de roca, acantilados de montañas o cuencas de valles.
+h. Excavaciones: Se denomina excavación al proceso de análisis de las estratigrafías naturales y antrópicas que se sedimentan en un determinado lugar. El proceso de excavación consiste en remover los depósitos en el orden inverso a como se han ido formando.
+i. Berma: Es un espacio llano, cornisa, o barrera elevada que separa dos zonas.
+j. Deslizamiento: Es un tipo de corrimiento o movimiento en masa de tierra, provocado por la inestabilidad de un talud. Se produce cuando una gran masa de terreno se convierte en zona inestable y se desliza con respecto a una zona estable, a través de una superficie o franja de terreno de pequeño espesor.
+k. Vagoneta: Vagón pequeño y descubierto para transporte de mercancías.
+l. Apilamiento: Conjunto de cosas amontonadas unas sobre otras.
+m. Setena: Secretaria Técnica Nacional Ambiental.
+n. EsIA: Estudios de Impacto Ambiental.
+ñ. Cunetas: Zanja a los lados de un camino o vía de circulación para recoger el agua de la lluvia.
+o. Acarreo: el acarreo es el nombre utilizado para describir un recurso mnemotécnico en una operación aritmética, principalmente en la operación suma. Se usa cuando un dígito ha sido transferido de una columna de dígitos a otra columna de mayor potencia en un algoritmo de cálculo.
+p. Aluvial: Que se ha formado a partir de materiales arrastrados y depositados por corrientes de agua.
+q. Cribado: Cribado en medicina y una prueba es una estrategia aplicada sobre una población para detectar una enfermedad en una población de individuos sin signos o síntomas de esa enfermedad.
+r. Excavadora: Se denomina pala excavadora a una máquina autopropulsada, sobre neumáticos u orugas, con una estructura capaz de girar al menos 3600 (en un sentido y en otro, y de forma ininterrumpida) que excava terrenos, o carga, eleva, gira y descarga materiales por la acción de la cuchara, fijada a un conjunto formada por pluma y brazo o balancín, sin que la estructura portante o chasis se desplace.
+s. Geólogo: es la ciencia que estudia la composición y estructura tanto interna como superficial del planeta Tierra y los procesos por los cuales ha ido evolucionando a lo largo del tiempo geológico.
+t. Regente Ambiental: es el profesional encargado de velar por el cumplimiento de los compromisos ambientales que una empresa o institución ha adquirido ante la Secretaría Técnica Nacional Ambiental o SETENA, institución costarricense que otorga los permisos de viabilidad ambiental.

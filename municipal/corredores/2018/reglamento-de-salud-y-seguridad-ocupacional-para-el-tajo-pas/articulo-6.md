@@ -1,0 +1,1 @@
+Artículo 6°—La Municipalidad proporcionará los recursos financieros, los procedimientos y métodos de trabajo así como las herramientas, la maquinaria, los equipos y los materiales para que la administración y la explotación del Tajo Paso Canoas se de en condiciones de seguridad e higiene para todos los trabajadores y visitantes.

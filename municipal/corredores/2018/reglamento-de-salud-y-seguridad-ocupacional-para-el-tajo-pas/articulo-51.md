@@ -1,0 +1,1 @@
+Artículo 51.—Todos los recipientes de depósito en los que se almacenen líquidos combustibles o lubricantes, deben de estar rotulados y guardados de forma segura, evitando los derrames y aislados de todas las fuentes de ignición, deberá contar con suficiente ventilación, para evitar la aparición de presiones o vacos.

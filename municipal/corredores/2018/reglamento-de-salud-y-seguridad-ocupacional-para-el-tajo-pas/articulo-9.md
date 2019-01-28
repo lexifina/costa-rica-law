@@ -1,0 +1,1 @@
+Artículo 9°—Se harán inspecciones periódicas, para realizar la evaluación de las condiciones de trabajo dentro de las operaciones del Tajo Paso Canoas, conforme vayan evolucionando dentro del plan de explotación y extracción del mineral.

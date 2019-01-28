@@ -1,0 +1,1 @@
+Artículo 33.—Se señalizarán las vías de circulación, acceso y salida dentro del área del proyecto con carteles, los mismos serán de acatamiento obligatorio para todas las personas que laboren en el proyecto o estén visitándolo.

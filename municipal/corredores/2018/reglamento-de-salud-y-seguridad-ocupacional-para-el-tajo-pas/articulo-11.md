@@ -1,0 +1,1 @@
+Artículo 11.—Se aplicará para la inclinación de los taludes la relación que se da entre la profundidad de la excavación y el desplazamiento respecto a la pared vertical, recomendándose conformar bermas y taludes con anchos y alturas de 10 y 7 m respectivamente. Se conformarán superficies regulares en la medida que el material lo permita.

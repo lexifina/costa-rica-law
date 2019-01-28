@@ -1,0 +1,1 @@
+Artículo 48.—Todos los trabajadores deben conocer lo estipulado en el reglamento de salud y seguridad ocupacional vigente y demás documentos que prescriban, las leyes y los reglamentos Jurídicos Nacionales en materia de Salud Ocupacional.

@@ -1,0 +1,1 @@
+Artículo 50.—Todo el personal de proyecto, debe conocer el manejo de los aparatos de extinción, así como las medidas de prevención, evacuación y primeros auxilios en caso de incendio u otra emergencia.

@@ -1,0 +1,1 @@
+Artículo 7°—Se asegurará que las instalaciones que se construyan respeten las normas de seguridad con espacios a lo ancho y alto que le brinde solidez y eviten situaciones de riesgos a las personas que participen en el proyecto.

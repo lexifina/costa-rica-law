@@ -1,0 +1,1 @@
+Artículo 36.—Será de uso obligatorio el equipo de protección personal para todos los trabajadores y visitantes, así como cualesquiera otras disposiciones que a nivel nacional se dicten en cuanto al equipo de protección personal.

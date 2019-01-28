@@ -1,0 +1,1 @@
+Artículo 25.—Se aplicará un plan de control técnico periódico que garantice un funcionamiento de la maquinaria y equipos, así como de mantener al día una bitácora del estado de los mismos. De esta se mantendrá una copia en la oficina, asignándosele un responsable de revisar, reportar y tomar las medidas pertinentes para corregir cualquier inconsistencia.

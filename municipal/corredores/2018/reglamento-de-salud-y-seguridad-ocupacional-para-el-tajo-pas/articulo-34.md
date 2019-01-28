@@ -1,0 +1,1 @@
+Artículo 34.—Se establecerán señales de prevención y control de la velocidad dentro del área del proyecto, zonas de aparcamiento tanto para visitantes como para los equipos y maquinarias que ofrezcan seguridad.

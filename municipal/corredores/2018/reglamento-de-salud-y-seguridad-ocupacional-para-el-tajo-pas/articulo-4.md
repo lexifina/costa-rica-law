@@ -1,0 +1,1 @@
+Artículo 4°—La Municipalidad cuenta con una estructura organizativa que se encarga de poner en práctica las medidas preventivas que genere el presente reglamento, según se estipula en la legislación vigente.

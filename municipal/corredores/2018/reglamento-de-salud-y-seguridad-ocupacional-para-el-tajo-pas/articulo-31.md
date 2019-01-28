@@ -1,0 +1,1 @@
+Artículo 31.—Es responsabilidad de los choferes al final de las tareas, estacionar su vehículo en el área designada y poner los mandos en punto de estacionamiento, colocar los respectivos sistemas de freno y tomar todas las medidas preventivas necesarias para evitar accidentes.
