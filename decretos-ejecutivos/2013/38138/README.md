@@ -14,3 +14,4 @@ Reglamento para el manejo del fondo de caja chica del Instituto Costarricense de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-23 | la propia norma |
+| 2 | 2019-01-28 | Decreto Ejecutivo 41592 (2019-01-28) |
