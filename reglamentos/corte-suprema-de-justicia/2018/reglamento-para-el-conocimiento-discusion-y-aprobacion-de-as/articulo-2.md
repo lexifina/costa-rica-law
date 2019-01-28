@@ -1,0 +1,1 @@
+Artículo 2º—La Corte tendrá una sesión ordinaria una vez al mes los días lunes. Además, se reunirá cada vez que sea convocada por la Presidencia, cuando lo considere conveniente o por solicitud de siete Magistrados o Magistradas.

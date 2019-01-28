@@ -1,0 +1,1 @@
+Artículo 15.—Una vez aprobadas las actas de las sesiones de la Corte, deberán publicarse en el sitio Web del Poder Judicial, previo resguardo de los datos personales de acceso restringido y los sensibles, de acuerdo con la Ley de protección de la persona frente al tratamiento de sus datos personales.
