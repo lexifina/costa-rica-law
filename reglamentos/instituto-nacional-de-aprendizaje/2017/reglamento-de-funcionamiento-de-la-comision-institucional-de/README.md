@@ -15,3 +15,4 @@ Reglamento de funcionamiento de la Comisión Institucional de Ética y Valores d
 | --- | --- | --- |
 | 1 | 2018-01-31 | la propia norma |
 | 2 | 2018-07-09 | Reglamento 4853 (2018-07-09) |
+| 3 | 2019-01-28 | Reglamento 3 (2019-01-28) |

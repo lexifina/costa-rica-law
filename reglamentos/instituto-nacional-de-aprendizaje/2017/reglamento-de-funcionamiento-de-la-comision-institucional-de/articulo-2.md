@@ -1,1 +1,1 @@
-Artículo 2º—Alcance. El presente reglamento es de aplicación para los miembros propietarios y suplentes de la Comisión Institucional de Ética y Valores del Instituto Nacional de Aprendizaje y a la administración en general, en el ámbito de sus competencias.
+Artículo 2º—Alcance. El presente reglamento es de aplicación para las personas propietarias y suplentes que integran la Comisión la Comisión Institucional de Ética y Valores del Instituto Nacional de Aprendizaje y a la administración en general, en el ámbito de sus competencias.
