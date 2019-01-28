@@ -1,0 +1,10 @@
+DIRECCIÓN GENERAL DE HACIENDA
+RES-DGH-091-2018.—Dirección General de Hacienda, a las ocho horas con quince minutos del veinte de diciembre del dos mil dieciocho.
+Considerando:
+I.—Que con fundamento en la Ley N°9327 de fecha 08 de octubre de 2015, denominada “Aprueba Contrato de Préstamo N° 2157 con el Banco Centroamericano de Integración Económica, para financiar el Proyecto de Mercado Regional Mayorista de la Región Chorotega” y la Ley Nº 4755 de fecha 03 de mayo de 1971, denominada “Código de Normas y Procedimientos Tributarios”, la Dirección General de Hacienda otorgó cuatro resoluciones genéricas a favor del Programa Integral de Mercadeo Agropecuario (PIMA) a fin de exonerar todas las adquisiciones de bienes adquiridos en sus distintas etapas constructivas para la implementación del proyecto.
+II.—Que cada resolución genérica, para las distintas etapas constructivas del Programa Integral de Mercadeo Agropecuario PIMA, se otorgaron con distintas fechas de vencimiento: RESDGH- 039-2018 con vencimiento para el 25 de enero del 2019, RESDGH- 042-2018 con vencimiento para el 11 de enero del 2019, RESDGH- 065-2018 y RES-DGH-077-2018, ambas con vencimiento para el 31 de enero del 2019.
+III.—Que mediante oficio UEP-DUEP-GAF-163-18 el PIMA indica a la Administración que por motivos de modificaciones de la obra y los efectos que generó la huelga del sector Público se han visto afectados en los plazos de construcción y de entrega del proyecto, razón por la cual solicitan la ampliación del plazo de vigencia para que todas las resoluciones genéricas otorgadas venzan el 31 de marzo de 2019. Por tanto:
+LA DIRECCIÓN GENERAL DE HACIENDA,
+RESUELVE:
+Conceder prórroga del plazo de vigencia de las Resoluciones RES-DGH-039-2018, RES-DGH-042-2018, RES-DGH-065-2018 y RES-DGH-077-2018, a fin de que todas tengan un vencimiento hasta el 31 de marzo del 2019, manteniendo en todos sus extremos las demás disposiciones establecidas en cada una de las resoluciones incluyendo lo referente a la presentación de los informes. Es conforme. Notifíquese a los correos hsolis@pima.go.cr y rmiranda@pima.go.cr.
+Publíquese.
