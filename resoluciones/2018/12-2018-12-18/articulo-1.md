@@ -1,0 +1,6 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+AVISO
+DG-AV-012-2018.—Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+I.—Resolución DG-187-2018: Autorizar como sujeto al régimen de Disponibilidad, el puesto N° 006116, clasificado como Profesional Jefe de Servicio Civil 1, ocupado por el Licenciado Allan Rodríguez Vargas, en razón de la ejecución del cargo de Coordinador de la Unidad de Disponibilidad de la Dirección General de Migración y Extranjería, del Ministerio de Gobernación y Policía.
+II.—Resolución DG-188-2018: Modifica el Manual Descriptivo de Especialidades Docentes Resolución DG-399-2010, la Especialidad “Bibliotecología”, de manera que en el apartado “Atinencias Académicas”, se incluyan las carreras Bachillerato en Bibliotecología y Nuevas Tecnologías de Información y Comunicación, Licenciatura en Bibliotecología y Nuevas Tecnología de Información y Comunicación, Diplomado en Bibliotecología, Bibliotecas Educativas y Centros de Recursos para el Aprendizaje, Bachillerato en Bibliotecología, Bibliotecas Educativas y Centros de Recursos para el Aprendizaje y Licenciatura en Bibliotecología, Bibliotecas Educativas y Centros de Recursos para el Aprendizaje.
+Publíquese.—18 de diciembre del 2018.
