@@ -1,1 +1,0 @@
-Artículo 16.—Para los funcionarios que ingresen a laborar a la Municipalidad después de la aprobación del presente Reglamento por el Concejo Municipal y que ostenten los puestos cubiertos por dicho Régimen se acogerán obligatoriamente a éste.

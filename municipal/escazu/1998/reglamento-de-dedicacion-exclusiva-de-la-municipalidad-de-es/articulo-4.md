@@ -1,3 +1,0 @@
-CAPÍTULO II
-Procedimiento para acogerse al Régimen de Dedicación Exclusiva
-Artículo 4°—El funcionario municipal que desee acogerse al Régimen de Dedicación Exclusiva, deberá previamente solicitarlo por escrito al Departamento de Recursos Humanos de la Municipalidad de Escazú. Este una vez que reciba la petición del servidor verificará y certificará por escrito que el funcionario solicitante cumple con los requisitos que señala el artículo tercero, confeccionará el respectivo contrato de Dedicación Exclusiva y lo remitirá al Alcalde Municipal para que proceda a firmarlo en conjunto con el funcionario solicitante.

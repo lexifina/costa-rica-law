@@ -1,2 +1,0 @@
-Artículo 17.—El Alcalde y Vice-Alcaldes Municipales devengarán por concepto de dedicación exclusiva, calculado de acuerdo con su salario base, un treinta y cinco (35%) cuando sean bachilleres universitarios y un cincuenta y cinco por ciento (55%) cuando sean licenciadas o posean cualquier grado académico superior al señalado.
-(Así reformado por acuerdo del Concejo Municipal, en su sesión N° 46 del 14 de enero de 1999)

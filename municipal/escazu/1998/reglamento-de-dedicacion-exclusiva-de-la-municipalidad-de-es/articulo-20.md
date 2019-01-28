@@ -1,1 +1,0 @@
-Artículo 20.—Acogerse al Régimen de Dedicación Exclusiva es un derecho que tendrá el funcionario de esta Municipalidad, en consecuencia es facultativo del funcionario el acogerse o no al mismo, excepto aquellos funcionarios mencionados en el artículo 16 de este reglamento.
