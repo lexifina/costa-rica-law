@@ -1,0 +1,1 @@
+ARTÍCULO 7-El Fondo Nacional de Sostenibilidad Cafetalera (Fonascafé) tendrá su propia contabilidad, independiente de la del Instituto del Café de Costa Rica (!café); deberá ser auditada por la Auditoría Interna del Instituto del Café de Costa Rica y, adicionalmente, por una firma auditora externa de reconocimiento Internacional.

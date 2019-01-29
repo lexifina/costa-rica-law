@@ -1,0 +1,1 @@
+ARTÍCULO 4-El Consejo Ejecutivo queda facultado para otorgar los poderes que estime necesarios para la correcta operación del Fondo Nacional de Sostenibilidad Cafetalera (Fonascafé). El manejo de todos los registros, el patrimonio, los recursos y los pasivos del Fonascafé se mantendrán de forma separada de los del propio Instituto del Café de Costa Rica (lcafé).

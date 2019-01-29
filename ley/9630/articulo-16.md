@@ -1,0 +1,1 @@
+ARTÍCULO 16-El Fondo Nacional de Sostenibilidad Cafetalera (Fonascafé) deberá presentar sus informes financieros ante el Congreso Nacional Cafetalero en sus sesiones ordinarias de cada año, conforme lo establece la Ley N. º 2762, Ley sobre Régimen de Relaciones entre Productores, Beneficiadores y Exportadores de Café, de 21 de junio de 1961, y su reglamento.

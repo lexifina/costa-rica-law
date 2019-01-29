@@ -1,4 +1,6 @@
+(Derogado)
 N° 9153
+(Esta norma fue derogada por el artículo 19 de la ley Creación del Fondo Nacional de Sostenibilidad Cafetalera (FONASCAFÉ), N° 9630 del 2 de diciembre del 2018)
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
