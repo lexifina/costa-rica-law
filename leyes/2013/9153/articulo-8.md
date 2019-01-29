@@ -1,4 +1,0 @@
-ARTÍCULO 8.- Modificaciones de otras leyes
-Se modifica la Ley N.° 5662, Ley de Desarrollo Social y Asignaciones Familiares, para que se incluya un transitorio que se leerá así:
-“Transitorio X
-Se modifica el artículo 3) de la Ley del Fondo de Asignaciones Familiares y Desarrollo Social, N.º 5662, para que por una única vez, el cincuenta por ciento (50%) del superávit presupuestario 2013 se destine al Fideicomiso de apoyo a productores y productoras de café afectados por la roya (hemileia vastatrix), el cual atenderá a los productores y productoras cafetaleros afectados que califiquen como beneficiarios según los parámetros de esta ley incluyendo aquellos que se encuentren en pobreza coyuntural, según los términos y los alcances de la declaratoria en esa condición de los pequeños productores de café afectados por la roya del cafeto, Decreto N.° 37691-MP-MBSF-MAG.
