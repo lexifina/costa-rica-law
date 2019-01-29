@@ -1,0 +1,1 @@
+Artículo 19° Plan de Gestión para Concentraciones Masivas. Para la realización de concentraciones masivas o eventos especiales, ferias, turnos y similares, el ente organizador del evento, deberá contar con un Plan de Gestión Integral de Residuos Sólidos – PGIRS, que indique sistema de recolección, clasificación, almacenamiento y disposición final aprobado por la Municipalidad.

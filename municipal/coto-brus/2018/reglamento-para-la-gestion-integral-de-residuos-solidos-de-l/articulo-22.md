@@ -1,0 +1,1 @@
+Artículo 22° Rutas y Horarios de Recolección. Este tipo de residuos deberán ser recolectados en horarios y rutas definidos y comunicados al usuario, mientras no exista o no estén disponibles en el cantón otras opciones de manejo o alternativas tecnológicas para la valorización o tratamiento de estos residuos.

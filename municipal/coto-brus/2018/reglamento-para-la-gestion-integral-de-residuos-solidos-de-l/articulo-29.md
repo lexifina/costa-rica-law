@@ -1,0 +1,1 @@
+Artículo 29° Remoción y Extracción. Se prohíbe a toda persona remover o extraer el contenido total o parcial de los residuos sólidos, una vez colocados en el sitio de recolección, exceptuando a personal debidamente autorizado. infracciones en esta materia se clasifican en gravísimas, graves y leves. De acuerdo a esa clasificación serán aplicables las sanciones correspondientes.

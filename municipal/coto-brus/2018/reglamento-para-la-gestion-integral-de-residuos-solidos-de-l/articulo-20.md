@@ -1,0 +1,1 @@
+Artículo 20° Plan de Gestión para Actividades Temporales. Igual requisito deberán cumplir los responsables de actividades temporales como construcciones, servicios móviles u otras, como condición para la aprobación del respectivo permiso Municipal.

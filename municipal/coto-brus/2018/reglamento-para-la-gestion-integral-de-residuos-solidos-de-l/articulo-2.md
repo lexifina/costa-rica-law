@@ -1,0 +1,1 @@
+Artículo 2º Alcance: Este reglamento es de acatamiento obligatorio para todas las personas, físicas y jurídicas, públicas y privadas, que de cualquier forma gestionen residuos sólidos, ordinarios y especiales de competencia Municipal dentro del territorio del cantón de Coto Brus.

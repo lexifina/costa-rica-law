@@ -1,0 +1,1 @@
+Artículo 33° Coordinación Interinstitucional. Para los efectos del artículo anterior, los funcionarios municipales podrán coordinar con otros agentes, del Ministerio de Salud, el Ministerio de Ambiente y Energía, Fuerza Pública y el Poder Judicial, entre otros de acuerdo a sus competencias.

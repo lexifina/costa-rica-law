@@ -1,0 +1,1 @@
+Artículo 24° Residuos Infecto-Contagiosos. En el caso de los residuos infecto-contagiosos que se generan en establecimientos que presten atención a la salud y afines deberán cumplir con lo dispuesto en el Reglamento sobre la Gestión de los Desechos Infecto-Contagiosos es (Decreto Ejecutivo N° 30965-S) y sus variaciones a estos y/o normativa vinculante.

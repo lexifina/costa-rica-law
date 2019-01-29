@@ -1,0 +1,1 @@
+Artículo 18° Residuos en Vía Pública. Durante el proceso de recolección, los operarios del servicio deberán proceder a la recolección de la totalidad de los residuos sólidos, evitando dejar residuos y lixiviados esparcidos en la vía pública.

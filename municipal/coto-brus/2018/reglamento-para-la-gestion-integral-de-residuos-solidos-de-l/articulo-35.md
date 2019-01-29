@@ -1,0 +1,1 @@
+Artículo 35° Clausura por Incumplimiento en Pago. Toda actividad comercial, que presente un adeudo de dos o más trimestres por el servicio de residuos sólidos, facultará a la Administración a suspender la licencia comercial de conformidad con el Artículo 81 bis del Código Municipal, Ley N° 7794, sus variaciones y/o normativa vinculante.
