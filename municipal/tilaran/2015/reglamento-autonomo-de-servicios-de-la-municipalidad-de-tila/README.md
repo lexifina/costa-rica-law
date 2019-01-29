@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicios de la Municipalidad de Tilarán
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-25 | la propia norma |
+| 2 | 2019-01-29 | Reglamento municipal 143 (2019-01-29) |
