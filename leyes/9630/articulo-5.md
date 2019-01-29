@@ -1,0 +1,1 @@
+ARTÍCULO 5-A los representantes designados por la Junta Directiva del Instituto del Café de Costa Rica (lcafe), que integrarán el Consejo Ejecutivo del Fondo Nacional de Sostenibilidad Cafetalera (Fonascafé), se les reconocerá algún tipo de beneficio económico únicamente si se encuentra contemplado dentro del presupuesto.
