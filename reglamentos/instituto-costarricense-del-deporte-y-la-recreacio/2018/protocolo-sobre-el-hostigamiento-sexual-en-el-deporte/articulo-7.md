@@ -1,0 +1,1 @@
+Artículo 7º—La denuncia ante las referidas autoridades del evento no constituye obstáculo para que, quien así lo desee pueda presentar la denuncia correspondiente ante el Ministerio Público. En caso de que la conducta acusada constituya delito sancionado por la Ley Penal, se trasladará para conocimiento del Ministerio Público.
