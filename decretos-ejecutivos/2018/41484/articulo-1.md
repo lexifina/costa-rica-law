@@ -1,0 +1,17 @@
+N° 41484-MJP
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 146 de la Constitución Política, 25 inciso1 ), 28 inciso 2) acápite b) de la Ley General de la Administración Pública y la resolución 2018-014218 de las nueve horas veinte minutos del treinta y uno de agosto de dos mil dieciocho de la Sala Constitucional.
+CONSIDERANDO
+1. La Asociación de Seguridad y Embellecimiento de Carreteras Nacionales (ASECAN), cédula de persona jurídica número 3-002-087733, fue declarada de utilidad pública mediante el decreto ejecutivo número 11622-G de fecha dieciséis de junio de mil novecientos ochenta, publicado en el Diario Oficial La Gaceta Nº 130 de fecha nueve de julio de dos mil novecientos ochenta.
+2. Mediante el control interno que lleva la Unidad de Servicios Técnicos de la Asesoría Jurídica del Ministerio de Justicia y Paz, ente encargado de fiscalizar a la actuación de las asociaciones declaradas de utilidad pública, se determinó que la Asociación de Seguridad y Embellecimiento de Carreteras Nacionales (ASECAN), incumplió con el deber de mantener los motivos por los cuales le fue otorgado el beneficio de utilidad pública, tal y como está regulado en la Ley de Asociaciones y su Reglamento.
+3. En razón de lo anterior, mediante resolución de las RMJP-0335-05-2018 de fecha 24 de mayo del 2018, emitida por el Ministerio de Justicia y Paz, se resuelve revocar el beneficio de declaratoria de utilidad pública a la Asociación de Seguridad y Embellecimiento de Carreteras Nacionales (ASECAN).
+4. Mediante decreto ejecutivo número 41180-MJP de fecha veinticinco de mayo de dos mil dieciocho publicado en La Gaceta Nº 134 del veinticuatro de julio de dos mil dieciocho, se deroga la declaratoria de utilidad pública de la Asociación de Seguridad y Embellecimiento de Carreteras Nacionales (ASECAN).
+5. Ante la revocatoria del beneficio de la utilidad pública, el señor Oscar Rodríguez López, presidente de la asociación, interpuso recurso de amparo ante la Sala Constitucional, expediente judicial 18-011811-0007-CO y mediante resolución 2018-014218 de las nueve horas veinte minutos del treinta y uno de agosto de dos mil dieciocho, la Sala resolvió:
+'' . . . (. . .) Se declara con lugar el recurso. Se anula la resolución RMJP-0335-05- 2018 de fecha 24 de mayo del 2018 emitida por el Ministerio de Justicia y Paz y todo el procedimiento posterior a esa fecha y se retrotrae el proceso hasta dicho punto para su correcta sustanciación. (. . .) ... ".
+6. Por lo que el Ministerio de Justicia y Paz, respetuoso de los mandatos judiciales, procede a dejar sin efecto el decreto ejecutivo que deroga la declaratoria de utilidad pública de Asociación de Seguridad y Embellecimiento de Carreteras Nacionales (ASECAN). Por tanto,
+DECRETAN:
+DEJAR SIN EFECTO LA DEROGATORIA DE UTILIDAD PÚBLICA DE LA
+ASOCIACIÓN DE SEGURIDAD Y EMBELLECIMIENTO DE CARRETERAS
+NACIONALES (ASECAN)
+Artículo 1º.-Dejar sin efecto el decreto ejecutivo número 41180-MJP de fecha veinticinco de mayo de dos mil dieciocho, publicado en el Diario Oficial la Gaceta Nº 134 de fecha veinticuatro de julio de dos mil dieciocho con el que se derogó la declaratoria de utilidad pública otorgada a la Asociación de Seguridad y Embellecimiento de Carreteras Nacionales (ASECAN), cédula jurídica número 3-002-087733, en consecuencia queda vigente el decreto ejecutivo número 11622-G de fecha dieciséis de junio de mil novecientos ochenta con el que se otorgó el beneficio de utilidad pública.
