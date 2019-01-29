@@ -1,0 +1,1 @@
+ARTICULO 17.-Prórroga. Procederá la prórroga de la Calificación de ldóneidad a solicitud del sujeto privado, previa valoración de la Comisión de los resultados y administración de los recursos otorgados.

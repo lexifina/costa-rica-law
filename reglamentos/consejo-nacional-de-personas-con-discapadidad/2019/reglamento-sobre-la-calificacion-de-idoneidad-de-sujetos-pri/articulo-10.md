@@ -1,0 +1,6 @@
+ARTICULO 10.- Comisión Especial. La Comisión Especial tendrá las siguientes funciones:
+a. Estudiar toda la documentación aportada por los sujetos privados, con el fin de valorar la capacidad del solicitante para administrar fondos públicos. Para esos efectos debe llevar un expediente foliado de cada sujeto privado que realice una solicitud.
+b. Documentar en un dictamen el resultado de esa valoración, el cual será puesto en conocimiento de la Dirección Ejecutiva, para su aprobación. El resultado de la valoración deberá presentarse diez días después de que fue sometida ante la Comisión.
+c. Verificar la capacidad legal, administrativa y financiera del sujeto privado, así como su aptitud técnica en el desarrollo de programas, proyectos u otros, financiados total o parcialmente con fondos públicos.
+d. Verificar, por los medios que estime pertinentes, la información suministrada por los sujetos de derecho privado que requieran la calificación de "idóneo para administrar fondos públicos".
+e. Una vez otorgada la calificación de idoneidad y transferidos los fondos, si la Comisión detectara irregularidades en el manejo de los fondos, fallas en el desarrollo de los proyectos, falta de control interno o cualquier falta grave que ponga en riesgo los fondo transferidos podrá solicitar la respectiva revocatoria de la calificación de idoneidad.

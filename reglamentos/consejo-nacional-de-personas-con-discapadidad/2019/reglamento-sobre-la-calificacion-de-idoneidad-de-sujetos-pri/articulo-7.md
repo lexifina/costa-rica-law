@@ -1,0 +1,1 @@
+ARTICULO 7.- Vigencia de los documentos. Los documentos y certificaciones que se deben presentar no deberán tener más de un mes de emitidos, exceptuando aquellos cuya vigencia sea mayor por disposición de otra norma jurídica.

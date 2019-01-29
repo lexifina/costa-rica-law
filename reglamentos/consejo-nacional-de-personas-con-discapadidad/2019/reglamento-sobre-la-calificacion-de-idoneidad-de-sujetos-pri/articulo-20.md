@@ -1,0 +1,4 @@
+ARTICULO 20.- Controles sobre las personas calificadas como idóneas para administrar fondos públicos.
+a. La entidad concedente deberá cumplir con lo estipulado en la Ley Orgánica de la Contraloría General de la República y la Ley General de Control Interno, y lineamientos emitidos por el Ente Contralor, en lo referente a la implementación de los mecanismos de control necesarios y suficientes para verificar el correcto uso y destino de los beneficios otorgados a sujetos privados.
+b. Durante la vigencia de la Calificación de Idoneidad otorgada por el CONAPDIS, este queda obligado a verificar, previo desembolso de nuevos recursos en favor de sujetos privados, que las situaciones técnicas en apego a las que se otorgó la idoneidad se mantienen.
+c. Todo sujeto privado está obligado a comunicar a la Comisión la existencia de cualquier cambio en la información que suministró con el fin de obtener la calificación de idoneidad.

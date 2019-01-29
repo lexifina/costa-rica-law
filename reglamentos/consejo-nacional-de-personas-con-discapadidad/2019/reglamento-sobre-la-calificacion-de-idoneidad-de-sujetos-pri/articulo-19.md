@@ -1,0 +1,1 @@
+Artículo 19º - Actos recurribles: Contra los actos emitidos durante el proceso y el acto de calificación de idoneidad, cabrá la interposición de recurso de revocatoria y apelación, según las reglas establecidas la Ley General de la Administración Pública.

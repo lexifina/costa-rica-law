@@ -1,0 +1,1 @@
+ARTICULO 13.- Dictamen definitivo. La Dirección Ejecutiva tendrá cinco días hábiles para resolver lo que corresponda a la solicitud de idoneidad, contados a partir del recibo del dictamen emitido por la Comisión.

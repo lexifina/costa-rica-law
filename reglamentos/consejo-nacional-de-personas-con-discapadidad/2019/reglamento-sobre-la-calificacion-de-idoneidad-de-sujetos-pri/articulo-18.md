@@ -1,0 +1,1 @@
+ARTICULO 18.- Fiscalización. La Auditoría Interna del CONAPDIS, podrá fiscalizar la actuación realizada por la Comisión, por la Dirección Ejecutiva y el sujeto privado que ha sido declarado idóneo. Dicha facultad también procederá para la Contraloría General de la República, al amparo de su Ley Orgánica.

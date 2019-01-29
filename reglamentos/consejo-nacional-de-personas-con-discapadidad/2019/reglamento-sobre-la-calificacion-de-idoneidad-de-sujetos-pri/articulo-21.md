@@ -1,0 +1,3 @@
+ARTICULO 21.-Revocación de la Calificación de Idoneidad. La Dirección Ejecutiva podrá revocar la calificación otorgada de "idóneo para administrar fondos públicos", de oficio o a solicitud de la Comisión, sin perjuicio del establecimiento de responsabilidades y sanciones previstas en el ordenamiento jurídico.
+El acto que revoque la Calificación de idoneidad deberá ser motivado y razonado a través del debido proceso establecido en el Libro 11 de la Ley General de Administración Pública.
+Corresponde al CONAPDIS llevar un registro de aquellos sujetos privados a los que se les revoque la Calificación de Idoneidad.

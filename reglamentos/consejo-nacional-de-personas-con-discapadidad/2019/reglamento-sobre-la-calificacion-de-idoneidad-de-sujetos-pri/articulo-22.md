@@ -1,0 +1,1 @@
+ARTICULO 22.-Renovación de la Calificación de Idoneidad. El sujeto privado al que se le venza la calificación de idoneidad deberá iniciar el procedimiento previsto en este Reglamento para recibir nuevos recursos de la ley señalada en el ámbito de aplicación de la presente regulación. Para tal efecto se deberán aportar todos los documentos exigidos en la primera solicitud.

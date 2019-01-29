@@ -1,0 +1,2 @@
+ARTICULO 15.- Otorgamiento de la Calificación de Idoneidad. En caso de que la Dirección Ejecutiva determine que el sujeto privado es idóneo para recibir fondos públicos, deberá adoptar la resolución respectiva debidamente motivada y previendo los elementos requeridos en el dictado de todo acto administrativo.
+Posteriormente procederá a notificar al solicitante su decisión, sea favorable o desfavorable.
