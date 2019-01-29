@@ -1,0 +1,1 @@
+(Nota de Sinalevi: En la publicación de este reglamento municipal, no se publicó el capítulo III. No obstante el sistema exige una numeración consecutiva, por lo que se ha creado el mismo pero sin texto.)
