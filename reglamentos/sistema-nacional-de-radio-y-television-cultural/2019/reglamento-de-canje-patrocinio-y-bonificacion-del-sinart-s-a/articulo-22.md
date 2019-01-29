@@ -1,0 +1,2 @@
+Artículo 22. Expediente administrativo
+Recibido el requerimiento de inicio, la Dirección Comercial conformará un expediente administrativo, en el cual se resguardará toda la documentación que se levante durante el proceso de contratación. Este deberá ser conformado y foliado en forma cronológica y contener toda la documentación y comunicación realizada al efecto. El mismo será custodiado por la Dirección Comercial, hasta por el plazo ordinario de 5 años.

@@ -1,0 +1,3 @@
+Artículo 24. Tarifas vigentes
+La Dirección Comercial, en todo momento, deberá respetar las tarifas vigentes para pauta publicitaria y demás servicios publicitarios aprobados por el Consejo Ejecutivo de SINART S.A.
+Todo ofrecimiento o propuesta a negociarse con el proveedor deberá contemplar los costos reales de los servicios de acuerdo a las tarifas establecidas, y no se tendrá permitido el ofrecimiento de descuentos, salvo que exista autorización expresa de la Dirección General. Dicha autorización deberá ser motivada y deberá indicar las razones de oportunidad y/o conveniencia que justifican el otorgamiento de descuento.

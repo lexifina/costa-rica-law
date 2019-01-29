@@ -1,0 +1,4 @@
+Artículo 23. Negociación
+Corresponde a la Dirección Comercial, la localización de posibles proveedores que brinden los bienes o servicios requeridos, negociación del contrato, generación de propuestas, planes de venta y ofrecimiento de beneficios.
+Toda la negociación deberá atender los principios de eficiencia y eficacia, así como la planificación anual aprobada por la Comisión de Programación. Asimismo, será responsabilidad de la Dirección Comercial verificar que las contraprestaciones sean proporcionales y exista equilibrio económico.
+La Dirección Comercial está facultada para interrumpir el proceso de negociación, en cualquier momento de previo a la firma del contrato, si se verifica que existe un desequilibrio en las prestaciones. Asimismo, podrá iniciar dicho proceso con otro u otros proveedores que sí se ajusten a la necesidad del SINART S.A.

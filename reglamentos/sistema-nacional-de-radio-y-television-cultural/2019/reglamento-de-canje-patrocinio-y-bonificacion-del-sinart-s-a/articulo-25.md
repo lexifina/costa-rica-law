@@ -1,0 +1,4 @@
+Artículo 25. Verificación de aptitud para contratar
+Durante la negociación de las condiciones contractuales, la Dirección Comercial deberá verificar que el proveedor posee aptitud para contratar y representación, así como requerir la información de la empresa para cumplir con los requisitos legales.
+Para ello, la Dirección Comercial deberá hacer la consulta a las bases de datos pertinentes a fin de verificar el cumplimiento del proveedor con la normativa de orden tributario y seguridad social. De todo ello, se dejará registro en el expediente administrativo.
+La Dirección Comercial deberá verificar que el SINART S.A. dispone o dispondrá, previo a la ejecución del contrato, con los recursos financieros, productivos o materiales, técnicos y humanos para dar fiel cumplimiento y aprovechamiento de la contratación.

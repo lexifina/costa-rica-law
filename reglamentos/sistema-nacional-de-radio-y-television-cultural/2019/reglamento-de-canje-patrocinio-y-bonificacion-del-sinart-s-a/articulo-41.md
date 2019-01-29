@@ -1,0 +1,2 @@
+Artículo 41. Rescisión por mutuo acuerdo
+La rescisión contractual por mutuo acuerdo únicamente podrá ser convenida cuando existan razones de interés empresarial y no concurra causa de resolución imputable al contratista. En este caso el SINART S.A. podrá acordar los extremos a liquidar o indemnizar, que en ningún caso podrá exceder la cuantificación del contrato, y siempre dentro de los límites de razonabilidad y proporcionalidad.

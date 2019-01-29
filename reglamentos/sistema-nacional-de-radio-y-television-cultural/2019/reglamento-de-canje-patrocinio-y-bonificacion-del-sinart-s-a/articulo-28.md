@@ -1,0 +1,2 @@
+Artículo 28. Contenido del contrato
+El contrato que se suscriba deberá consignar el detalle del objeto a contratarse, plazos de entrega, garantías, responsable del contrato y cualquier otra cláusula de importancia para el negocio. Deberá indicarse con claridad la descripción y especificaciones del objeto que será entregado por el contratista y los servicios publicitarios a brindarse por parte de SINART S.A. Asimismo deberá consignarse los derechos y obligaciones de las partes.

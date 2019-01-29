@@ -1,0 +1,7 @@
+Artículo 39. Resolución contractual
+El SINART S.A. podrá resolver unilateralmente los contratos por motivo de incumplimiento imputable al contratista.
+Una vez que sea documentado preliminarmente el incumplimiento, el SINART S.A. emitirá la orden de suspensión del otorgamiento de servicios de publicidad, y éste indicará los alcances del presunto incumplimiento. Para lo anterior se le hará el traslado de cargos al contratista por el plazo de tres días hábiles para que se refiera a dicho incumplimiento. El contratista se referirá a la causal invocada, las pruebas y brindará su correspondiente defensa.
+Vencido ese plazo, el SINART S.A. contará con diez días hábiles para emitir la resolución.
+La resolución final tendrá los recursos ordinarios de revocatoria y apelación.
+La Dirección Comercial será la responsable de iniciar, dar impulso y resolver el procedimiento hasta el acto final. Asimismo, será responsable de conocer el recurso de revocatoria. La Dirección General conocerá en alzada la impugnación del acto final.
+Una vez emitida la orden de suspensión del contrato, el SINART S.A. podrá contratar directamente los objetos faltantes a fin de concluir la obra o también proveerse del bien o servicio. La contratación directa podrá realizarse en atención a los tipos de contrato regulados en el presente reglamento, o los regulados en el Reglamento de Contratación de Bienes y Servicios del SINART S.A., sin que sea necesario la apertura de concurso.

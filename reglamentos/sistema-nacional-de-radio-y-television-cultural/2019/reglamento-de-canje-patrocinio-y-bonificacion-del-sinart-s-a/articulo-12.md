@@ -1,0 +1,4 @@
+Artículo 12. Registro contable
+La Comisión de Programación a través de la Presidencia Ejecutiva, notificará a la Dirección Administrativa Financiera, y a la Jefatura del Departamento de Financiero – Contable, la aprobación realizada para la contratación de canjes y patrocinios, sea a través del Plan Anual de Programación y Contenidos, así como las autorizaciones y modificaciones extraordinarias, a fin de que se registre en la contabilidad de la empresa.
+Debe entenderse que dicha notificación operará en primera instancia con la aprobación del Plan Anual de Programación y Contenidos, y posteriormente notificará de cada modificación que se le realice.
+Asimismo, la Asesoría Legal deberá remitir a la Dirección Administrativa Financiera cada contrato formalizado al amparo del presente reglamento, para proceder con el registro contable individual.

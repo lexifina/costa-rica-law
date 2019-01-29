@@ -1,0 +1,4 @@
+Artículo 40. Rescisión unilateral contractual
+El Dirección Comercial podrá autorizar la rescisión unilateralmente sus contratos, no iniciados o en curso de ejecución, por razones de interés empresarial, caso fortuito o fuerza mayor, debidamente acreditadas. Para ello deberá emitir una resolución razonada en donde señale la causal existente y la prueba en que se apoya, la cual será puesta en conocimiento del contratista por el plazo de diez hábiles.
+El SINART S.A. deberá entregar al contratista los servicios publicitarios acordados, como contraprestación por la parte efectivamente ejecutada del contrato, en el evento de que no lo hubiera hecho con anterioridad.
+Únicamente se reconocerá por concepto de daños y perjuicios, los gastos en que ese contratista haya incurrido para la ejecución del objeto al momento en que se le notifica la rescisión unilateral, y siempre que estén debidamente probados. No se reconocerá pago alguno por concepto de lucro cesante.
