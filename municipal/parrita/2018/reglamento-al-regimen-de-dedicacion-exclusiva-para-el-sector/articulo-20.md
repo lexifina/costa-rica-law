@@ -1,0 +1,1 @@
+Artículo 20.—Los servidores que laboren bajo la modalidad de teletrabajo o cualquier otra forma de trabajo que a futuro se autorice por parte de la Municipalidad de Parrita, pueden acogerse al Régimen de Dedicación Exclusiva o bien, mantener esta compensación económica, siempre que cumplan con las condiciones indicadas en este reglamento.

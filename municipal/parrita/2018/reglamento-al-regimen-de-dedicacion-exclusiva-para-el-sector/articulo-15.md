@@ -1,0 +1,2 @@
+Artículo 15.—Al darse el traslado, reubicación o ascenso de un servidor municipal acogido al régimen de dedicación exclusiva, se extingue el contrato que posee.
+Si el servidor desea acogerse al régimen de dedicación exclusiva bajo la nueva condición que ostenta, deberá de solicitarlo ante el departamento de Recursos Humanos de la Municipalidad, conforme a lo estipulado en el reglamento sobre el procedimiento para acogerse a la dedicación exclusiva y lo indicado en el Manual de Procedimientos para tal fin.

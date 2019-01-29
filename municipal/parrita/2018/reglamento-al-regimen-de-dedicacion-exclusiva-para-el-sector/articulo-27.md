@@ -1,0 +1,1 @@
+Artículo 27.—Se establece como documentos de uso obligatorio para la dedicación exclusiva los formatos de contrato, prórroga y adenda anexos a este reglamento. Anexo Uno: Contrato de dedicación exclusiva, Anexo dos: prórroga al contrato de dedicación exclusiva y anexo tres: adenda al contrato de dedicación exclusiva.

@@ -1,0 +1,11 @@
+Artículo 5º—Para acogerse o continuar disfrutando del régimen de dedicación exclusiva el servidor debe de cumplir con los siguientes requisitos:
+a) Ser profesional, con el grado académico de bachiller universitario como mínimo. En caso de títulos obtenidos en Universidades extranjeras el servidor debe aportar certificación donde conste su reconocimiento y equiparación por parte de una universidad o institución costarricense autorizada para ello.
+b) Estar desempeñando un cargo para el cual se requiera como mínimo la condición académica señalada en el inciso anterior, siempre que el servidor demuestre que cuenta con dicho requisito.
+c) El grado académico que ostenta el servidor con base en el cual solicita esta compensación, debe estar contemplado dentro de las atinencias del puesto y la clase.
+d) La profesión que ostenta el servidor con base en la cual solicita esta compensación debe ser una profesión que se pueda ejercer liberalmente.
+e) Que el servidor no esté recibiendo retribución alguna por concepto de disponibilidad, prohibición del ejercicio liberal de la profesión, u otra compensación otorgada por ley especial que, a juicio de la Municipalidad de Parrita, resulten incompatibles con la Dedicación Exclusiva.
+f) Estar incorporado al Colegio Profesional respectivo, cuando exista esta entidad en el área correspondiente.
+g) Aportar certificación emitida por el Colegio Profesional correspondiente, donde se indique que el servidor se encuentra habilitado y al día para el ejercicio de su profesión.
+h) Haber sido nombrado para laborar una jornada de tiempo completo, en base a lo que indica el Código de Trabajo, con la excepción que se establece en el artículo 19 de este reglamento.
+i) Aportar justificación escrita extendida por la jefatura inmediata del servidor, manifestando la necesidad del ente municipal de utilizar los servicios del funcionario en forma exclusiva, basada en el interés público y determinando el beneficio recíproco de acogerse al régimen. Así como la verificación previa de la existencia del contenido presupuestario. Y a su vez que se establezca el tiempo propuesto para dicha dedicación exclusiva, sustentado en el mismo interés público.
+j) Firmar el contrato de Dedicación Exclusiva, prórroga o adenda respectiva, con el alcalde de la Municipalidad de Parrita o con quien este delegue.

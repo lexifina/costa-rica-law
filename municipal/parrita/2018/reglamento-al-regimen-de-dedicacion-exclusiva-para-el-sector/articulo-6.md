@@ -1,0 +1,4 @@
+Artículo 6º—La Municipalidad de Parrita podrá otorgar la compensación económica que ha sido señalada en los artículos anteriores a aquellos servidores de nivel profesional, debido a la
+naturaleza y responsabilidades de los puestos que desempeñan y mediando el interés público, una suma adicional sobre sus salarios bases por concepto de dedicación exclusiva, de la siguiente manera:
+a) Un 10% a aquellos servidores que poseen el grado académico de bachillerato universitario y ocupen un puesto para el que se requiere la condición anterior y además satisfaga lo establecido en el artículo anterior.
+b) Un 20% a aquellos que poseen el grado académico de licenciatura u otro superior al señalado, y ocupen un puesto para el que se requiere como mínimo el grado académico de bachillerato universitario y además satisfaga lo establecido en el artículo anterior de este Reglamento.

@@ -1,0 +1,2 @@
+Artículo 10.—El asesor legal o servidor asignado por el Alcalde Municipal deberá refrendar los contratos de dedicación exclusiva, sus prórrogas y adenda, en un plazo máximo de ocho días
+hábiles a partir de la fecha en que es firmado por las partes, dando fe de que cumplen con todos los requisitos establecidos para tal fin, para tal efecto sígase lo indicado en el Manual de procedimientos de Recursos Humanos en material de dedicación exclusiva.

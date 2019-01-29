@@ -1,0 +1,1 @@
+Artículo 11.—Una vez refrendado el contrato, el servidor no podrá ejercer la profesión comprometida bajo el régimen de dedicación exclusiva, ni actividades relacionadas con esta o con su cargo, si no es con la Municipalidad de Parrita, misma con quien firmó el contrato.

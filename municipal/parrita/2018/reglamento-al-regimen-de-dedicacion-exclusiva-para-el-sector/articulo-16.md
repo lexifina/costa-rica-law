@@ -1,0 +1,2 @@
+Artículo 16.—Al darse un recargo de funciones a un servidor municipal acogido al régimen de dedicación exclusiva, este mantendrá las mismas condiciones respecto al plus salarial que ostenta.
+Al darse un recargo de funciones a un servidor municipal que no esté acogido al régimen de dedicación exclusiva y que el servidor a sustituir posea este beneficio, el sustituto tendrá derecho a optar por el beneficio del plus salarial, siempre y cuando satisfaga los requisitos que se estipulan el presente reglamento y que el recargo sea mayor a un mes.

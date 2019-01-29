@@ -1,0 +1,1 @@
+Artículo 17.—Cuando un servidor municipal este acogido al régimen de dedicación exclusiva y ostente un grado académico mayor, podrá solicitar una adenda al contrato por variación porcentual, conforme al procedimiento para adendas al contrato de dedicación exclusiva indicado en el Manual de Procedimientos para tal fin.

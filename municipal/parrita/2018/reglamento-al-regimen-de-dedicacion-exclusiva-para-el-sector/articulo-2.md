@@ -1,0 +1,1 @@
+Artículo 2º—Se entenderá por retribución patrimonial adicional al salario base la compensación que reconocerá la Municipalidad de Parrita a los servidores que tengan grado académico profesional y que opten por acogerse al régimen de Dedicación Exclusiva en la forma que lo fija este Reglamento en los artículos siguientes.
