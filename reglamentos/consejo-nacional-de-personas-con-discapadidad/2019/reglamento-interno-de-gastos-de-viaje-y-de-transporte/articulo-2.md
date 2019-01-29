@@ -1,0 +1,1 @@
+Artículo 2º.Asignaciones Máximas. Se aplicará lo dispuesto en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos de la Contraloría General de la República, sin determinaciones mínimas sobre los gastos regulados.
