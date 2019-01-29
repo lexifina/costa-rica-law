@@ -13,3 +13,4 @@ Adición a la circular No. 119-17 “Protocolo de Actuación de Justicia Juvenil
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-10-16 | la propia norma |
+| 2 | 2019-01-29 | Circular 13 (2019-01-29) |
