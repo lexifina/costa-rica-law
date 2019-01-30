@@ -14,3 +14,4 @@ Inclusión financiera en programas de transferencia del Estado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2018-07-30 | la propia norma |
+| 2 | 2019-01-30 | Directriz 40 (2019-01-30) |
