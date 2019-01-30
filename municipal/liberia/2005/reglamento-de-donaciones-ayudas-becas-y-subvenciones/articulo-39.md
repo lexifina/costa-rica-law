@@ -1,4 +1,0 @@
-Artículo 39.—Sobre el trabajo comunal y el encuentro de becados:
-a) Como forma de motivar la solidaridad hacia la comunidad y retribuir el beneficio recibido, se establece el trabajo comunal de los becados, que deberá ser realizado anualmente y dirigido por la Comisión de Bienestar Social de la Municipalidad.
-b) Las áreas de servicio, bajo las cuales se desarrollará el trabajo comunal, serán definidas anualmente por la Comisión de Bienestar Social quien de considerarlo pertinente, someterá a consulta de los Concejos de Distrito su propuesta.
-c) El encuentro de becados consiste en una actividad para compartir, premiar aquellos estudiantes que se han destacado en lo académico, deportes y artes. Dicho evento se realizará en el mes de diciembre de cada año. La definición, organización y programación del encuentro estará a cargo de la Comisión de Bienestar Social, la cual contará, para tal fin, con una asignación global dentro del presupuesto de becas de cada año.

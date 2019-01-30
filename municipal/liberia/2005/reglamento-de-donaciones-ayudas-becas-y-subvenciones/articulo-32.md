@@ -1,1 +1,0 @@
-Artículo 32.—Trámites para renovación de la beca. Para la tramitación de la solicitud de renovación de la beca, el becado deberá retirar el formulario de solicitud de beca en la primera semana del mes de diciembre.

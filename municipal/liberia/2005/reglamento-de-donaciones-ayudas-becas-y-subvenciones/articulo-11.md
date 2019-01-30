@@ -1,4 +1,0 @@
-CAPÍTULO III
-De las ayudas por situaciones
-de desgracia e infortunio
-Artículo 11.—Del ámbito de aplicación. Para los efectos de este Reglamento, se define desgracia e infortunio, como un acontecimiento inesperado que amenaza gravemente la integridad física y emocional de una persona o una familia. Por lo que de acuerdo con ese concepto, se tienen como situaciones de desgracia e infortunio aquellos casos motivados por hechos de la naturaleza como: terremotos, huracanes, terraplenes, inundaciones, derrumbes o incendios no ocasionados en forma premeditada ni dolosa, sino por circunstancias accidentales e inevitables que deben ser debidamente demostradas, por la persona o la familia solicitante y comprobadas por la Municipalidad, a través de los estudios que se realicen en cada caso.

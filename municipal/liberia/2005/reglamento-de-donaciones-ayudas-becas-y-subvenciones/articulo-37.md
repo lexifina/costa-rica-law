@@ -1,1 +1,0 @@
-Artículo 37.—En caso de que el estudiante becado, no haya aprobado alguna materia, deberá justificarlo razonablemente, con el objetivo de que sea analizado por la Comisión de Bienestar Social y previo estudio correspondiente continúe gozando del beneficio.

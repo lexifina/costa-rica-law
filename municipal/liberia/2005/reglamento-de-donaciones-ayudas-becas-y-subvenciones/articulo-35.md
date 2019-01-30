@@ -1,1 +1,0 @@
-Artículo 35.—Del control de los expedientes. La Comisión de Bienestar Social conformará un expediente, para cada becado, en el que consten todos los datos y documentos que acrediten el comportamiento y resultados de los estudios del becado.
