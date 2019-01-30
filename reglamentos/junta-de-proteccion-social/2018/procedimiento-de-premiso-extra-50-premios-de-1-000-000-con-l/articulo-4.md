@@ -1,0 +1,5 @@
+Artículo 4º—Mecánica del Sorteo Premios Especiales “Sorteos de Lotería Popular y Lotería Nacional”. El sorteo se realizará el sábado 6 de abril del 2019 en el programa La Rueda de la Fortuna; se realizará un sorteo por medio de una tómbola electrónica o cualquier otro medio que la Junta indique, entre todas las activaciones que votaron por la provincia que ganó el Concurso Súper Suertudo(a), participarán las activaciones que hayan ingresado desde el viernes 01 de febrero, 2019 hasta el viernes 5 de abril del 2019 a media noche.
+Una misma persona puede salir favorecida solo una vez en este sorteo.
+Los nombres de los ganadores serán publicados en el sitio web de la Junta de Protección Social (www.jps.go.cr) y en el sitio de la red social Facebook “Junta de Protección Social (Oficial)” al finalizar el sorteo.
+• Activación para el programa Rueda de la Fortuna
+Se aclara que la lotería que se active para participar en esta promoción, puede ser activada además para participar en los juegos que se efectúan en el programa Rueda de la Fortuna para los cuales deben activarse enteros de Lotería Popular y/o Lotería Nacional de los sorteos designados por la Institución.

@@ -1,0 +1,1 @@
+Artículo 9º—Vigencia. Este procedimiento tiene vigencia del 01 de febrero, 2019 al 06 de abril, 2019 a las 6:00 p.m. y la lotería participante corresponde a los “Sorteos de Lotería Popular y Lotería Nacional” que se realicen en el período comprendido del 01 de febrero, 2019 al 31 de marzo, 2019.
