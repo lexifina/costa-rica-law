@@ -1,22 +1,54 @@
-Artículo 3°—De las rutas autorizadas
-A los efectos del artículo anterior, se habilitan las siguientes rutas:
-3.1 Para el tránsito Paso Canoas-Sixaola (Circulación dentro de San José)
-Los vehículos provenientes de Paso Canoas realizarán el siguiente recorrido:
-Ruta Nacional No 2, hasta la intersección con la Ruta No 39 (Rotonda de la Hispanidad en San Pedro), luego deberán tomar la Carretera de Circunvalación de sur a norte hasta la Rotonda de Guadalupe, continúa al oeste por la Ruta Regional No 218 hasta la intersección con la Ruta Regional No 108, sigue hacia el oeste por esta ruta hasta la intersección con la Ruta Nacional No 32 en el Barrio Tournón, de donde se incorporarán a la carretera Braulio Carrillo (Ruta Nacional No 32).
-3.2 Para el tránsito Sixaola-Paso Canoas (Circulación dentro de San José)
-Los vehículos provenientes de Sixaola deberán efectuar el siguiente recorrido:
-Ruta Nacional No 32 (Carretera Braulio Carrillo), hasta intersección con la Ruta Regional No 108, continuando al este por esta última ruta y la Ruta Regional No 218 hasta la intersección con la Ruta Nacional No 39 en la Rotonda de Guadalupe, de ahí toma la Carretera de Circunvalación con dirección norte-sur hasta la Rotonda de las Garantías Sociales en Zapote, y luego continúa por la Ruta Regional N° 215 al este, hasta la intersección con la Ruta Nacional No 2 y desde ahí se sigue la ruta usual hacia Paso Canoas.
-3.3 Para el tránsito Paso Canoas-Peñas Blancas o algún otro destino al norte del país (Circulación en San José)
-Los vehículos provenientes de Paso Canoas y con rumbo hacia Peñas Blancas o cualesquier otro punto ubicado al norte del país, deberán efectuar el siguiente recorrido:
-Ruta Nacional N° 2 hasta la intersección con la Ruta Nacional No 39 en la Rotonda de la Hispanidad en San Pedro, continúa por la Carretera de Circunvalación con dirección sur-norte, hasta la intersección con la Ruta Regional No 109, sigue luego 400 metros al oeste hasta la intersección con la Ruta Regional N° 100, y continúa siempre al oeste por esta ruta hasta la intersección con la Ruta Regional No 166 en la Uruca, continúa al oeste por esta misma ruta hasta la intersección con la Ruta Nacional No 3, y luego 500 metros al oeste, hasta la intersección con la Ruta Nacional No 1 (Carretera General Cañas) y desde ahí por la ruta usual hasta Peñas Blancas o el punto de su destino en el norte del territorio nacional.
-3.4 Para el tránsito Peñas Blancas-San José (Circulación en San José)
-Los vehículos provenientes de la Zona Norte del país deberán efectuar el siguiente recorrido:
-Ruta Nacional No 1 (Carretera General Cañas), hasta la intersección con la Rotonda Juan Pablo II, en donde se virará al norte por la Ruta Nacional No 3, hasta la intersección con la Ruta Regional No 166, para continuar al este por esta misma ruta, la Ruta Regional No 100 y la Ruta Regional No 109, hasta la intersección con la Ruta Nacional No 39, y después se toma la Carretera de Circunvalación en sentido norte-sur hasta la Rotonda de las Garantías Sociales en Zapote, continuando por la Ruta Regional Bo 215 hacia el este, hasta la intersección con la Ruta Nacional N° 2, y de ahí hacia Paso Canoas por la ruta usual.
-3.5 Para el tránsito Paso Canoas-Sixaola (Resto del país)
-Deberá todo vehículo observar el siguiente recorrido:
-Ruta Nacional No 2 a Paso Canoas-Palmar Norte-Buenos Aires de Osa-San Isidro de Pérez Zeledón-Cartago-San José (según los recorridos establecidos supra)-Ruta Nacional No 32-Carretera Guápiles-Siquirres-Limón-Ruta No 36-Sixaola.
-3.6 Para el tránsito Paso Canoas-Peñas Blancas (Resto del País)
-Deberá cumplirse con el siguiente recorrido:
-a. Para transporte dirigido a entregas nacionales (almacenes fiscales, zona franca o mercancías nacionalizadas): Ruta Nacional N° 2 a Paso Canoas-Palmar Norte-Buenos Aires de Osa-San Isidro de Pérez Zeledón-Cartago-San José (según los recorridos establecidos supra)-Ruta Nacional N° 1-Autopista General Cañas-Carretera Bernardo Soto-Esparza-Barranca-Cañas-Liberia-La Cruz-Peñas Blancas.
-b. Para tránsito internacional con mercancías en tránsito podrán utilizarse la vía Costanera Sur, salvo que se presentaran situaciones especiales de caso fortuito o fuerza mayor que requiera transitar por otras vías y fueran previamente autorizados por la autoridad competente para usar dichas vías.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 31603 de 19 de enero de 2004)
+Artículo 3°—Sobre las rutas exclusivamente habilitadas. A los efectos del artículo anterior, las rutas exclusivamente habilitadas para tránsito aduanero son las que se describen a continuación, y que pueden ser consultadas en la página web del MOPT:
+CUADRO N° 1
+RUTAS EXCLUSIVAMENTE HABILITADAS
+RUTA NACIONAL | DESCRIPCIÓN DE LA RUTA
+1 | San José, Intersección con la Ruta Nacional N° 39 (Carretera de Circunvalación) – Carretera- General Cañas – Aeropuerto Juan Santamaría – Carretera Bernardo Soto – Intersección con Ruta Nacional N° 141 a Naranjo – San Ramón – La Irma – Cañas – Liberia – La Cruz – Peñas Blancas Frontera Norte.
+2 | San José, Intersección con la Ruta Nacional N° 39 (Carretera de Circunvalación) – Montes de Oca – Curridabat – Lomas de Ayarco - Alto de Ochomogo - Taras - La Lima – Casa Mata – La Sierra – El Empalme – Ojo de Agua – La Ese – San Isidro del General – Palmares – Juntas de Pacuar – Convento – Buenos Aires - Paso Real – Palmar Norte – Chacarita – Río Claro – Ciudad Neily – Paso Canoas Frontera Sur.
+4 | Pococí, La Y Griega – Horquetas – Puerto Viejo de Sarapiquí – Bajos de Chilamate Vuelta de Kooper – Intersección con Ruta Nacional N° 35 (Muelle)
+14 | Río Claro (Intersección con Ruta Nacional N° 2) – Kilómetro 3 – Golfito.
+21 | Liberia (Intersección con la Ruta Nacional N°1) - Aeropuerto Internacional Daniel Oduber Quirós
+23 | Barranca (Intersección con Ruta Nacional N° 1) – Puerto Caldera
+27 | San José, Intersección con la Ruta Nacional N° 39 (Carretera de Circunvalación) – Guachipelín – Brasil de Santa Ana – Cebadilla - Orotina - Pozón - Intersección con Ruta Nacional N° 23 a Puerto Caldera.
+32 | San José, Barrio Tournón –Río Virilla – Túnel Zurquí - Río Sucio - Guápiles – Jiménez – Guácimo - Pocora – Siquirres – Limón
+34 | Coyolar de Orotina (Intersección con la Ruta Nacional N° 27) – Quebrada Ganado - Herradura – Jacó – Parrita – Managua - Matapalo - Río Barú – Uvita – Punta Mala – Palmar Norte (Intersección con Ruta Nacional N° 2).
+35 | Florencia (Intersección con Ruta Nacional N°141) – Muelle – Terrón Colorado – Santa Rosa de Pocosol – Chimurria – Pavón - Los Chiles – Tablillas
+36 | Limón (Intersección con Ruta Nacional N° 32) – Río Banano – Tuba Creek – Cahuita – Honey Creek – Bribrí – Daytona – Sixaola.
+39 | La Uruca (Intersección con Ruta Nacional N°108) - Paso Superior con Ruta Nacional N°1 – Pavas – Hatillos - San Sebastián – Paso Ancho – Parque de La Paz – Zapote – San Pedro de Montes de Oca – Guadalupe – Calle Blancos (Intersección con Ruta Nacional N° 109)
+100 | La Uruca (Intersección con Ruta Nacional N°108) – Paso Superior sobre Ruta Nacional N° 5 - Calle Blancos (Intersección con Ruta Nacional N° 39)
+RUTA NACIONAL | DESCRIPCIÓN DE LA RUTA
+108 | La Uruca (Intersección con Ruta Nacional N°39) - La Uruca (Intersección con Ruta Nacional N°100) – Intersección con Ruta Nacional N°5 – La Uruca (Intersección con Ruta Nacional N°109)
+109 | La Uruca (Intersección con Ruta Nacional 108) - Guadalupe (Intersección con Ruta Nacional N°39)
+126 | San Miguel de Sarapiquí (Intersección con Ruta Nacional N° 140) – Lomas – La Virgen – Bajos de Chilamate (Intersección con Ruta Nacional N°4).
+140 | Ciudad Quesada - La Marina – Agua Zarcas – Venecia - Río Cuarto - San Miguel de Sarapiquí (Intersección con Ruta Nacional N° 140).
+141 | Naranjo (Intersección con Ruta Nacional N° 1) – El Muro – Palmita – Zarcero – Zapote – Lajas – Ciudad Quesada – Florencia (Intersección con Ruta Nacional N°35)
+218 | Calle Blancos (Intersección con Ruta Nacional N° 39)
+250 | Aguas Zarcas (Intersección con la Ruta Nacional N° 140) - Los Chiles (Intersección con la Ruta Nacional N° 751)
+751 | San José de Aguas Zarcas (Intersección con Ruta Nacional N° 4) - Los Chiles de Aguas Zarcas- Intersección con Ruta Nacional N° 250.
+Sin Número Radial El Coyol | Intersección con Ruta Nacional N° 1 – Intersección con Ruta Nacional N° 27
+Asimismo, los recorridos que deberán utilizarse para el tránsito entre las Aduanas y entre los Puestos Fronterizos, corresponden a los señalados en el siguiente cuadro:
+CUADRO N° 2
+RECORRIDOS EN RUTAS NACIONALES UTILIZADAS PARA TRÁNSITO
+ENTRE ADUANAS O PUESTOS
+[imagen]
+[imagen]
+CTL:
+Aduana Central
+SAT:
+Aduana Santamaría
+CAL:
+Aduana Caldera
+LIM:
+Aduana Limón
+SIX:
+Puesto de Aduana Sixaola
+PCA:
+Aduana Paso Canoas
+GOL:
+Puesto de Aduana Golfito
+ANX:
+Aduana La Anexión
+PBL:
+Aduana Peñas Blancas
+TBL Puesto de Aduana Las Tablillas
+RC: Radial Coyol
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41624 del 30 de enero del 2019)

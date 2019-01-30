@@ -1,2 +1,2 @@
-Artículo 7°—Habilitación de otras rutas
-En casos de urgencia o emergencia la Dirección General de Aduanas, previa coordinación con las oficinas competentes del Ministerio de Obras Públicas y Transportes, podrá autorizar temporalmente rutas alternas para el tránsito aduanero.
+Artículo 7°—Habilitación de otras rutas. Se autoriza, a la Dirección General de Aduanas, para que previa coordinación con las oficinas competentes del Ministerio de Obras Públicas y Transportes, y con sustento en criterio técnico de necesidad, urgencia o emergencia ya sea con carácter permanente o temporal; habilite otras rutas y sus tiempos de rodaje en el tránsito aduanero terrestre, mediante resolución administrativa de alcance general publicada en La Gaceta.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 41624 del 30 de enero del 2019)

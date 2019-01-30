@@ -15,3 +15,4 @@ Reglamento de Habitación de Rutas de Paso Obligatorio para los Vehículos Autom
 | --- | --- | --- |
 | 1 | 1997-07-03 | la propia norma |
 | 2 | 2004-01-19 | Decreto Ejecutivo 31603 (2004-01-19) |
+| 3 | 2019-01-30 | Decreto Ejecutivo 41624 (2019-01-30) |
