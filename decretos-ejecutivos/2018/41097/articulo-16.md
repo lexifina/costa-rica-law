@@ -1,1 +1,0 @@
-Artículo 16.—Sede. La Presidencia de la República facilitará un recinto acondicionado para las sesiones del CCES, previa coordinación de la Secretaría General. Además, podrá sesionar en otros recintos si recibe invitación para ello.
