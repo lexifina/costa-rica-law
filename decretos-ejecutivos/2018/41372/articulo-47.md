@@ -1,0 +1,1 @@
+Artículo 47.- Auditoría. La Dirección General del Centro de Cine deberá solicitar a la Auditoría Interna del Ministerio de Cultura y Juventud, incluir en su programa de trabajo, la realización de una Auditoria Anual al Fondo de Caja Chica que se administra, con el fin de evaluar la suficiencia y efectividad de su operación y del sistema de control implantado.

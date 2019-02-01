@@ -1,0 +1,1 @@
+Artículo 12.- Facturas o Recibos que Respaldan el Gasto. Los documentos que respaldan el gasto del Fondo de Caja Chica deben contar con los requisitos mínimos establecidos por el artículo 18 del Decreto Ejecutivo No. 14082-H del 29 de noviembre de 1982, Reglamento de la Ley de Impuesto General sobre las Ventas.

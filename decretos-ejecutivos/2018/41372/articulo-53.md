@@ -1,0 +1,1 @@
+Artículo 53.- Modificaciones. Este Reglamento podrá ser modificado únicamente por Decreto Ejecutivo, previo acuerdo firme del Consejo Nacional de Cinematografía del Centro de Cine, previo visto bueno de la Tesorería Nacional.

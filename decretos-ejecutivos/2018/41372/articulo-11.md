@@ -1,0 +1,1 @@
+Artículo 11.- Contenido Presupuestario. Todas las compras o pagos que se realicen por medio del Fondo de Caja Chica deberán contar con el debido contenido presupuestario, de acuerdo con las partidas autorizadas por la Tesorería Nacional en el Clasificador por Objeto del Gasto del Sector Público para Compras por Fondo Fijo de Caja Chica

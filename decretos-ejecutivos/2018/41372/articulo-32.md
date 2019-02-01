@@ -1,0 +1,1 @@
+Artículo 32.- Prohibición de Girar un Nuevo Adelanto. No se podrá autorizar el trámite de un anticipo de dinero por el Fondo de Caja Chica, al funcionario que tenga pendiente una liquidación de un anticipo anterior, hasta tanto no lo haya liquidado según lo establece el artículo 26 del presente Reglamento.

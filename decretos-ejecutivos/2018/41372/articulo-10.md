@@ -1,0 +1,1 @@
+Artículo 10.- Prohibición. Bajo ninguna circunstancia podrá encomendarse la administración temporal o permanente de un Fondo de Caja Chica a una persona que no sea funcionario público del Centro de Cine.

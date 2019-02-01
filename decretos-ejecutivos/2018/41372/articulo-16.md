@@ -1,0 +1,1 @@
+Artículo 16.- Reglamento Fondo de Caja Chica. Es responsabilidad de la Dirección General del Centro, contar con un Reglamento Fondo de Caja Chica actualizado, en el cual se detallen, de forma clara y precisa, las rutinas de trabajo relacionadas con la operación del Fondo de Caja Chica y los responsables de ejecutarlas.

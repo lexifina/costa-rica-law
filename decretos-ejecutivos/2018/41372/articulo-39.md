@@ -1,0 +1,6 @@
+CAPÍTULO V.
+REINTEGROS AL FONDO DE CAJA CHICA
+Artículo 39.- Reintegros al Fondo de Caja Chica. El responsable de la custodia y operación del Fondo de Caja Chica será el encargado de tramitar sus reintegros, con la aprobación del Director General y el Contador del Centro.
+Adjunto al formulario “Detalle de Reintegro de Caja Chica por Consecutivo”, “Detalle de Reintegro de Caja Chica por Subpartida Presupuestaria” y “Arqueo de Caja Chica” se presentarán los documentos respectivos, tal y como lo establecen los artículos 19, 25, 26 y 29 del presente Reglamento; y corresponde a la Unidad Receptora de estos documentos, verificar los siguientes aspectos: veracidad de los datos consignados, relación entre el monto de la factura y el límite del gasto, liquidación del adelanto en tiempo, disponibilidad presupuestaria y las autorizaciones correspondientes.
+Los reembolsos a la cuenta del Fondo de Caja Chica se realizarán por cheque, una vez autorizados por el Director General, el Administrador y el Contador del Centro.
+Los documentos mencionados en este artículo, deberán permanecer a disposición de los entes fiscalizadores en el archivo del área de Contabilidad, según lo establece la Ley No. 7202 del 24 de octubre, Ley del Sistema Nacional de Archivos.

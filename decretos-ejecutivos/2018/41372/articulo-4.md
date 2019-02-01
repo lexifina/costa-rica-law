@@ -1,0 +1,3 @@
+CAPÍTULO II.
+SOBRE EL FONDO DE CAJA CHICA
+Artículo 4.- Naturaleza. La ejecución del gasto por medio del Fondo de Caja Chica, es un procedimiento de excepción, y por lo tanto está limitado a la atención de gastos menores de verdadera urgencia y necesidad indispensables, según el criterio justificado de la Dirección General del Centro de Cine. Los bienes o servicios que se adquieran por este medio no deben existir en el inventario de la Institución y para poder adquirirlos, se necesitará obligatoriamente la certificación del encargado de bienes del Centro Costarricense de Producción Cinematográfica de que en bodega no existen.

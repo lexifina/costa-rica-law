@@ -1,0 +1,1 @@
+Artículo 34.- Nombramiento. Corresponde a la Dirección General, determinar e investir a los funcionarios responsables directos de la custodia y operación de los Fondos de Caja Chica. Esta designación deberá ser comunicada al Consejo Nacional de Cinematografía para su información, previa autorización de la Tesorería Nacional.

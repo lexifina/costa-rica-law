@@ -1,0 +1,1 @@
+Artículo 17.- Condiciones de Custodia. La Administración del Centro proporcionará a los responsables del Fondo de Caja Chica, los recursos materiales y el espacio físico necesario para garantizar la seguridad y custodia apropiada de los valores de los cuales son depositarios, tanto durante la jornada laboral, como fuera de ella.

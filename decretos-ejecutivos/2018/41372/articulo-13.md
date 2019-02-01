@@ -1,0 +1,1 @@
+Artículo 13.- Sobre los Impuestos de Ventas y de Renta. El Centro de Cine esta exonerado del pago de Impuesto de Ventas y de Renta, de conformidad con las Leyes que rigen la materia y la aplicación del principio de inmunidad fiscal que cubre a los entes del Estado, como Órgano perteneciente a la estructura organizativa del Ministerio de Cultura y Juventud.

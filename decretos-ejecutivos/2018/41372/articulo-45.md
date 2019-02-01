@@ -1,0 +1,1 @@
+Artículo 45.- Derecho de Verificación. Todo arqueo del Fondo de Caja Chica, se realizará en presencia de la persona responsable del Fondo, quien tendrá el derecho a pedir una segunda verificación, si tuviese dudas sobre el resultado obtenido.
