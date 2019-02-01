@@ -1,6 +1,6 @@
 # Ley Orgánica del Colegio de Licenciados y Profesores en Letras y Filosofía, Ciencias y Artes.
 
-Ley N° 4770 del 1972-10-13. SINALEVI, ficha 53586: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=53586&param2=107762&param3=1>.
+Ley N° 4770 del 1972-10-13. SINALEVI, ficha 53586: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=53586&param2=115075&param3=1>.
 
 Publicada en La Gaceta N° 205 del 1972-10-28.
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 6 | 1975-11-11 | Ley 5825 | 1975-10-29 |
 | 4 de 6 | 2013-07-19 | Ley 9148 | 2013-07-09 |
 | 5 de 6 | 2017-03-24 | Ley 9420 | 2017-02-07 |
+| 6 de 6 | 2019-02-01 | Ley 9601 | 2018-09-14 |
