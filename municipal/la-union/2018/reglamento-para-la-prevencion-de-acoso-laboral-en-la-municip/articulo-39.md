@@ -1,0 +1,1 @@
+Artículo 39: De la comunicación de la resolución final: Una vez firme la resolución final que se dicte en el respectivo procedimiento disciplinario, será el Alcalde, el que comunicará mediante copia a la Dirección Gestión de Capital Humano con el fin de que se incluya en el respectivo expediente.
