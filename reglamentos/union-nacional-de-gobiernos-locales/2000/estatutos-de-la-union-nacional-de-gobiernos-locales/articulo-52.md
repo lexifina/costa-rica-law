@@ -1,3 +1,2 @@
-CAPITULO XII
-Disposiciones finales
-Artículo 52.—La Unión Nacional de Gobiernos Locales podrá solicitarle a las Municipalidades y Federaciones de Municipalidades, el personal técnico y administrativo que necesite para el cumplimiento de sus funciones, en la medida de sus posibilidades.
+Artículo 52.- Se autoriza a la Dirección Ejecutiva de la UNION para tramitar la donación de bienes muebles que estén registrados dentro de los activos de la organización, siempre y cuando los activos se encuentren depreciados u obsoletos, para lo cual deberá solicitar una certificación publica elaborada por un contador público autorizado quien solicitara a la unidad contable de la organización un análisis técnico de las condiciones y valores contables de los bienes muebles. Y se deberá elevar ante el Consejo Directivo para el acuerdo de autorización de la donación. La donación únicamente puede solicitada por municipalidades, concejos municipales de distrito, federaciones de municipalidades, afiliadas a la organización.
+(Así adicionado y publicado en el Alcance Digital N° 23 a La Gaceta N° 23 del 1° de febrero del 2019)

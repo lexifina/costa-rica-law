@@ -1,1 +1,2 @@
-Artículo 11.—Los delegados deberán presentar el acuerdo municipal que los acredita como tales, con la debida identificación en la Asamblea Nacional.
+Artículo 11.-Los delegados y delegadas nombrados por los Concejos Municipales, Concejos Municipales de Distrito y Federaciones de Municipalidades deberán presentar el acuerdo que los acredita como tales, en el caso de los delegados y delegadas sean alcaldes, alcaldesas, intendentes e intendentas en ejercicio no será necesario presentar ningún acuerdo municipal. Todos los delegados y delegadas deberán presentar la cédula de identidad para el proceso de verificación de asistencia y votaciones en la Asamblea Nacional.
+(Así reformado y publicado en el Alcance Digital N° 23 a La Gaceta N° 23 del 1° de febrero del 2019)

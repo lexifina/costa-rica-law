@@ -1,3 +1,7 @@
-Artículo 9º—Son miembros de la Asamblea Nacional:
-a. Dos delegados del Gobierno Municipal nombrados por acuerdo del Concejo de cada una de las Municipalidades que integran la UNIÓN, uno de los cuales podrá ser el Alcalde.
-b. Dos delegados nombrados por acuerdo del Consejo de cada una de las Federaciones de Municipalidades, los cuales podrán ser Regidores o Alcaldes.
+Artículo 9°-Son miembros de la Asamblea Nacional:
+a. Tres delegados del Gobierno Municipal, de los cuales dos serán nombrados por acuerdo del Concejo Municipal de cada una de las Municipalidades afiliadas a la UNIÓN, los cuales deberán ser regidores o regidoras, y uno será quien ostente la titularidad de la alcaldía en ejercicio.
+b. Dos delegados nombrados por acuerdo del Consejo Directivo de cada una de las Federaciones de Municipalidades, los cuales deberán ser Regidores, regidoras, titulares de la Alcaldía, titulares Intendencias.
+c. Tres delegados de los Concejos Municipales de Distrito, de los cuales Dos delegados nombrados por acuerdo del Concejo Municipal de Distrito, los cuales deberán ser concejales de distrito. y uno será quien ostente la titularidad de la intendencia en ejercicio.
+En los nombramientos de delegados y delegadas realizados por los Concejos Municipales, Concejos Municipales de Distrito y Federaciones de Municipalidades deberá respetarse la equidad de género.
+En caso de que no se respete la equidad de género en el concejo municipal, el concejo municipal de distrito o federación de municipalidades deberá especificarlo en el acuerdo respectivo, caso contrario se rechaza de plano el nombramiento por incumplimiento de lo establecido. Ningún delegado o delegada podrá tener una doble representación ante la Asamblea Nacional.
+(Así reformado y publicado en el Alcance Digital N° 23 a La Gaceta N° 23 del 1° de febrero del 2019)
