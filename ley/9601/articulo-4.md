@@ -1,0 +1,3 @@
+ARTÍCULO 4- Colegiatura obligatoria
+Será obligatoria la incorporación al Colegio para quienes desempeñen cargos de jefatura en cualquier nivel y cargos calificados como profesionales en el Instituto Geográfico Nacional, así como las personas que laboren en las instituciones públicas y privadas, oficiales y semioficiales, universitarias, municipales, educativas y especializadas en las que se desempeñen los geógrafos y los cartógrafos del país.
+Para los profesionales en geografía y cartografía con alguna especialidad, que ejerzan como profesores en las instituciones de enseñanza superior pública, será obligatorio que estén incorporados al Colegio de Profesionales en Geografía, siempre y cuando la docencia ejercida sea en el marco de esta profesión.

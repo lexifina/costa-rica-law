@@ -1,0 +1,5 @@
+CAPÍTULO III
+INGRESO AL COLEGIO, DEBERES Y DERECHOS DE LOS COLEGIADOS
+ARTÍCULO 5- Incorporación
+La Junta Directiva del Colegio reglamentará la inscripción de las personas profesionales en geografía, como miembros del Colegio. De igual forma, serán incorporados los técnicos y los diplomados en cartografía expertos en manejo de sistemas de información geográfica, teledetección, fotogrametría y fotointerpretación.
+A solicitud de la persona interesada, la Junta Directiva del Colegio también resolverá sobre los reconocimientos adicionales correspondientes a los miembros activos del Colegio que, mediante estudios universitarios, hayan obtenido otras especialidades en geografía, tales como ordenamiento territorial en áreas protegidas, cuencas hidrográficas, áreas de riegos de desastres, planes reguladores, ordenamiento costero, impacto ambiental, estrategias y planes de desarrollo sostenible, recuperación de ambientes, dinámica poblacional y urbana, investigación y docencia en institutos académicos reconocidos por el Estado.

@@ -1,0 +1,3 @@
+ARTÍCULO 21- Sesiones de la Junta Directiva
+La Junta Directiva se reunirá, ordinariamente, por lo menos una vez al mes, o cuando la convoque la Presidencia o tres personas que integren la Junta Directiva.
+Para que la Junta Directiva pueda celebrar sus sesiones, hará cuórum con la presencia de al menos cinco miembros, y para que haya acuerdo o resolución el voto de mayoría simple de las personas presentes. En caso de empate, decidirá el voto de la Presidencia. Para declarar un acuerdo firme, se necesita la concurrencia de por lo menos dos terceras partes de los votos de los miembros presentes. Los acuerdos de la Junta Directiva son apelables ante la Asamblea General, y el recurso debe interponerse dentro del tercer día a partir de la aprobación del acta respectiva.

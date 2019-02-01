@@ -1,0 +1,2 @@
+ARTÍCULO 41- Apelación de las sanciones
+Cabrán contra las sanciones de amonestación y disculpa pública los recursos de revocatoria, y para la expulsión cabrá apelación ante la Asamblea General. Ambos recursos deberán ser presentados en un plazo improrrogable de ocho días hábiles. En el caso de la apelación, el Tribunal lo pondrá en conocimiento de la Junta Directiva, que hará la respectiva convocatoria en un plazo máximo de tres meses, contado después de recibida la solicitud de parte del Tribunal.

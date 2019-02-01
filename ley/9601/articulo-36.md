@@ -1,0 +1,4 @@
+ARTÍCULO 36- Recibo de denuncias
+Las denuncias deberán contener una relación clara y sucinta de los hechos que se acusan y de las pruebas que respaldan las acusaciones. Además, la persona denunciante deberá hacer una manifestación expresa en la que autoriza al Colegio a publicar el fallo del Tribunal, si la persona denunciada es absuelta por el Tribunal de Honor.
+La denuncia deberá presentarse directamente ante la Secretaría de este órgano, el cual verificará los requisitos formales antes señalados, ante omisiones o defectos los comunicará al denunciante para que dentro del plazo improrrogable de tres días hábiles los corrija. Verificados los requisitos, se trasladará la denuncia a la Fiscalía para que continúe con el procedimiento que corresponda.
+El Tribunal no conocerá las denuncias que se presenten sin los requisitos indicados anteriormente.
