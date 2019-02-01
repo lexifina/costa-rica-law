@@ -1,0 +1,1 @@
+Artículo 17º— Plazo de la Contraloría de Servicios. Las gestiones interpuestas por las personas usuarias deberán ser tramitados con la mayor diligencia. La Contraloría de Servicios tendrá 10 días hábiles como plazo máximo para responder luego de recibir los resultados de las dependencias respectivas.

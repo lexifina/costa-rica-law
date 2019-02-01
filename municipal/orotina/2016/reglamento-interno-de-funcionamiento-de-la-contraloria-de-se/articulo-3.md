@@ -1,0 +1,11 @@
+Artículo 3º— Definiciones
+a. Contraloría de Servicios: Instancia de participación ciudadana que facilita la comunicación entre los usuarios y la Municipalidad de Orotina, con el fin de velar por la calidad de los servicios, la satisfacción del usuario y el uso racional de los recursos públicos.------------
+b. Municipalidad: Para los efectos de este Reglamento se entiende por Municipalidad a la Municipalidad de Orotina, representada por las distintas dependencias de acuerdo a sus funciones y nivel de autoridad. -
+c. Usuario Interno: Se refiere a los funcionarios que hacen uso de los servicios que este brinda la Municipalidad.------
+d. Usuario Externo: Persona física o jurídica, que recurre a La Municipalidad para realizar trámites o gestiones, haciendo uso de los servicios que este brinda en virtud de su naturaleza.
+Gestiones:
+Es todo aquel trámite que la Persona Usuaria solicite que involucre alguna inconformidad, denuncia, sugerencia o felicitación.---Inconformidad: se entenderá por inconformidad todas aquellas quejas o reclamos respecto de un servicio, que según su criterio no satisface sus requerimientos. La inconformidad podrá ser interpuesta por la vía oral, escrita, electrónica o cualquier otra disponible.----
+e. Denuncia: Es un acto formal y escrito por el cual los usuarios de los servicios de la Municipalidad, declaran el conocimiento de un hecho irregular relacionado con la prestación de los servicios o los actos internos que afecten injustamente sus intereses legítimos o derechos.------------------------------
+f. Reclamo o queja: El encontrarse no-satisfecho con el servicio recibido o la forma en que fue realizado, o bien, si el servicio no cumplió sus expectativas esperadas. ----------------
+g. Sugerencias: Es una propuesta en relación con alguna situación (servicios o trámites) que desea externar en procura de una mejora en los servicios que brinda la Municipalidad.
+h. Servicio: es el conjunto de acciones las cuales son realizadas para servir a alguien, algo o alguna causa. Los servicios son funciones ejercidas por las personas hacia otras personas con la finalidad de que estas cumplan con la satisfacción de recibirlos, esto se manifiesta por medio de la interacción entre el usuario y el servidor municipal.

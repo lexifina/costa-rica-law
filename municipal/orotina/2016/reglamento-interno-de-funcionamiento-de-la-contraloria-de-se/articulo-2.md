@@ -1,0 +1,1 @@
+Artículo 2º- Creación. Se crea la Contraloría de Servicios de la Municipalidad de Orotina como un órgano adscrito a la Alcaldía de la Municipalidad de Orotina, quien dependerá administrativamente de éste.
