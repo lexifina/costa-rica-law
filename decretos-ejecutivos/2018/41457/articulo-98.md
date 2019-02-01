@@ -1,0 +1,3 @@
+Artículo 98.- Fideicomiso. La constitución de fideicomiso en sede notarial devengará los honorarios establecidos en la Tarifa General, calculados sobre la cuantía del contrato, con un mínimo de ciento ochenta y un mil quinientos colones.
+El traspaso de bienes en propiedad fiduciaria devengará honorarios según la Tarifa General, calculados sobre el mayor valor de los bienes que resulte entre el valor fiscal o el valor real, y con un mínimo de sesenta mil quinientos colones.
+La devolución de bienes en fideicomiso devengará honorarios del cincuenta por ciento (50%) de la Tarifa General, con un mínimo de sesenta mil quinientos colones.

@@ -1,0 +1,1 @@
+Artículo 79.- Trámites y/o estudios complementarios para el otorgamiento de un acto o contrato notarial. Por trámites o estudios complementarios para el otorgamiento de un acto notarial, como la revisión de traspaso de acciones, los honorarios mínimos serán de doscientos cuarenta y dos mil colones.
