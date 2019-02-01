@@ -1,0 +1,9 @@
+Artículo 10 º.Potestades. Para el cumplimiento de sus funciones el (la) Contralor (a) de Servicios podrá actuar de oficio o a solicitud de parte y tendrá las siguientes potestades:
+a) Libre acceso en cualquier momento, a todos los libros, archivos y documentos de la entidad, así como a otras fuentes de información relacionadas con la prestación del servicio, excepto los secretos de Estado e informes técnicos que puedan servir para la sustentación de procedimientos administrativos que estén pendientes de ser firmados, o de resolución e información personal de los funcionarios.
+b) Solicitar a los funcionarios del MREC, pertenecientes al nivel administrativo, directivo e instancias asesoras, los informes, datos y documentos necesarios para el cabal cumplimiento de sus funciones
+c) Solicitar a los funcionarios del MREC, la colaboración, el asesoramiento y las facilidades que demande el ejercicio de sus funciones, para lo cual trabajará en coordinación con las diferentes dependencias del Ministerio.
+d) Solicitar el respaldo del jerarca, ante la negativa o negligencia de un funcionario o dependencia del MREC, de atender sus solicitudes y recomendaciones; dicho jerarca deberá prestar atención inmediata y determinar cualquier responsabilidad, en conjunto con el Proceso de Recursos Humanos y la Director Jurídica.
+e) Actuar como persona mediadora en la búsqueda de una solución más adecuada a las gestiones planteadas como una forma de agilizar la prestación de los servicios.
+f) Ejecutar sus funciones con independencia de criterio, con respecto a los demás órganos o dependencias del MREC.
+g) Establecer los mecanismos de comunicación, coordinación y apoyo con la Secretaría Técnica, otras Contralorías de Servicios y todas las instancias que considere oportuno, a fin de mejorar la atención de las gestiones presentadas por las personas usuarias.
+Todo lo anterior de conformidad con las potestades otorgadas mediante la Ley No. 9158 y su reglamento.

@@ -1,0 +1,8 @@
+CAPITULO IV
+Responsabilidades y obligaciones de la Contraloría de Servicios.
+Artículo 11 º. Obligaciones de la Contraloría de Servicios. De conformidad con el Artículo 14 de la Ley 915 8 y su reglamento serán obligaciones de la Contraloría de Servicios:
+a) Presentar al Ministro (a) del MREC, con copia a la Secretaría Técnica, un plan anual de trabajo, que sirva de base para el informe anual de labores. Dicho plan deberá presentarse a más tardar el 30 de noviembre de cada año.
+b) Presentar a la Secretaría Técnica, un informe anual de labores, avalado por el Ministro (a) del MREC y elaborado de acuerdo con la guía metodológica propuesta por MIDEPLAN, que incluya las recomendaciones y las acciones realizadas en su cumplimiento. Dichos informes serán presentados durante el primer trimestre del año, debiendo presentarse a más tardar el último día hábil de marzo.
+c) Mantener un registro actualizado sobre la naturaleza y frecuencia de las inconformidades y denuncias, así como de las acciones institucionales acatadas o recomendadas para resolver el caso y su cumplimiento.
+d) Elaborar y aplicar anualmente, o cuando se considere pertinente, entre los usuarios de los servicios, instrumentos de percepción para obtener su opinión sobre la calidad de los servicios, grado de satisfacción y las mejoras requeridas.
+e) Elaborar y proponer al Ministro (a) del MREC para su aprobación, los procedimientos de recepción, tramitación y resolución de inconformidades, reclamos, denuncias, consultas, sugerencias o felicitaciones del usuario respecto a los servicios que se prestan, así como establecer los mecanismos de control y seguimiento respectivos. Dichos procedimientos deberán ser accesibles y expeditos.

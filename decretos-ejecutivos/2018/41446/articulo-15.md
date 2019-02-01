@@ -1,0 +1,1 @@
+Artículo 15. Recepción. Una vez recibida la gestión el Contralor (a) clasifica, valora y analiza la misma y se encargará de atenderla o designarla a uno de sus colaboradores para la tramitación pertinente. En el caso de que esta no proceda lo comunicará de forma inmediata al usuario.

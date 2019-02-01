@@ -1,0 +1,1 @@
+Artículo 22 ° . Registro, clasificación y control de las gestiones presentadas. La Contraloría de Servicios llevará registros de todas las gestiones y recomendaciones emitidas de conformidad con el Artículo 14 inciso 11 de la Ley 9158.

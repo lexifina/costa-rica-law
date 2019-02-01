@@ -1,0 +1,1 @@
+Artículo 7º. Criterio del Contralor. El criterio del Contralor (a) del MREC en el ejercicio de sus funciones es independiente, y no podrá el jerarca de la institución tomar o ejecutar acciones tendientes a influir o hacer cambiar dicho criterio, según el artículo 13 de la Ley 9158 antes mencionada.

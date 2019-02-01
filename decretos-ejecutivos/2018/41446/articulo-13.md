@@ -1,0 +1,4 @@
+CAPITULO V
+Procedimiento para la presentación y atención de gestiones
+Ante la Contraloría de Servicios
+Artículo 13 º . Presentación de gestión de la persona usuaria ante la Contraloría. Toda persona física o jurídica o su representante, en forma individual o colectiva, podrá plantear ante la Contraloría, inconformidades, reclamos, denuncias, sugerencias, consultas, y felicitaciones respecto a la prestación de los servicios brindados por el MREC, así como sobre las actuaciones de los funcionarios cuando en el ejercicio de sus labores estime que afecten directa o indirectamente los servicios prestados. Los medios disponibles para su presentación serán mediante correo electrónico, vía telefónica, formulario impreso o electrónico o atención personalizada y cualquier otro medio que la Contraloría de Servicios ponga a disposición de los usuarios, los cuales deberán ser debidamente comunicados por medio de la página web del Ministerio.

@@ -1,0 +1,1 @@
+Artículo 18º. Seguimiento de Recomendaciones. Las recomendaciones emitidas por la Contraloría de Servicios serán revisadas por esta dependencia de manera trimestral, solicitando informes a las unidades involucradas con el fin de vigilar la evolución de los avances que se hayan realizado a partir de la emisión del informe.

@@ -1,0 +1,1 @@
+Artículo 12º. Manual de servicio al usuario. La Contraloría de Servicios pondrá a disposición del MREC un manual de servicio al usuario, que establezca las condiciones que deben cumplir sus funcionarios al atender las personas usuarias. Esas condiciones deben ser de actitud (valorar al usuario como persona) y aptitud (conocer el servicio que se ofrece).

@@ -1,0 +1,1 @@
+Artículo 24 °. Asesoría. El Contralor (a) de Servicios podrá requerir la asesoría de los funcionarios internos o externos que estime necesarios para el cumplimiento de los objetivos de su cargo. En el caso de la asesoría legal, ésta le será brindada por la Jefatura de la Dirección Jurídica del Ministerio.
