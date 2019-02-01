@@ -1,0 +1,2 @@
+Artículo 52. Contrataciones autorizadas por la Contraloría General de la República. La administración podrá solicitar autorización a la Contraloría General de la República.
+Para tramitar una contratación directa o utilizar procesos sustitutivos a los ordinarios, siempre y cuando existan razones suficientes para cumplir con el fin público. Asimismo podrá solicitar recomendación al órgano contralor para utilizar otros sistemas alternativos. Esa solicitud se regirá por los pasos definidos en los lineamientos de la Administración del C.C.D.R.T.

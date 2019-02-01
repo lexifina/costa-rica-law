@@ -1,0 +1,3 @@
+CAPÍTULO II: FUNCIONES DEL ENCARGADO (A) DE RECURSOS
+MATERIALES Y SERVICIOS
+Artículo 4. El ERMS será el competente para conducir los procedimientos de contratación administrativa, y fungirá como Técnico Institucional en esa materia, así como para realizar los procesos de control, almacenamiento y distribución o tráfico de bienes producto de los procedimientos de contratación, quien llevara un inventario actualizado de los bienes bajo su custodia, entendiéndose distnbución como entrega en bodega. Deberá contar con el recurso humano idóneo e indispensable, con experiencia, conocimiento y formación en el campo de la contratación administrativa, que le permita el cumplimiento oportuno de sus funciones.
