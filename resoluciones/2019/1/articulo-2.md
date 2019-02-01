@@ -1,0 +1,1 @@
+Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución número RES-DGH-070-2018 del cinco de octubre de 2018, publicado en La Gaceta número 191 del 17 de octubre de 2018.
