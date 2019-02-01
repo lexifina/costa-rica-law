@@ -14,3 +14,4 @@ Modificación del artículo 2 de la Directriz DVMI-D-002-2018, denominada Mecani
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2019-02-01 | la propia norma |
+| 2 | 2019-02-01 | Directriz 270 (2018-10-12) |

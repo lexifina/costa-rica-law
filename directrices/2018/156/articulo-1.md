@@ -24,4 +24,5 @@ c) Que sea difícil de replicar.
 d) La información que contendrá dicho código será: “Depósito Libre Comercial de Golfito. Únicamente para uso personal. Prohibida su venta”, así como el nombre del importador o fabricante nacional y el número de cédula jurídica.
 El importador o fabricante deberá proporcionar al Ministerio de Hacienda el enlace a la base de datos donde se podrá verificar por parte del Ministerio de Hacienda, la información contenida en el código QR.
 El Ministerio podrá señalar la necesidad de identificar con el dispositivo permanente otros tipos de bebidas con contenido alcohólico, según se estime necesario.
-VII.—Vigencia. Rige a partir del 2 de noviembre del 2018.
+VII.—Vigencia. Rige a partir del 01 de febrero del 2019.
+(Así reformado el párrafo anterior por directriz-DVMI-D-0270-2018 del 12 de octubre de 2018)
