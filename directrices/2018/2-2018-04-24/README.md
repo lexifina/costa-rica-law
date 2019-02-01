@@ -15,3 +15,4 @@ Mecanismos de control para la identificación de bebidas con contenido alcohóli
 | --- | --- | --- |
 | 1 | 2019-02-01 | la propia norma |
 | 2 | 2019-02-01 | Directriz 156 (2018-06-22) |
+| 3 | 2019-02-01 | Directriz 270 (2018-10-12) |
