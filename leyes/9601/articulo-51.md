@@ -1,0 +1,2 @@
+ARTÍCULO 51- Fusión del Fondo de Mutualidad y subsidios
+El Fondo de Mutualidad y subsidios, a que se refiere este capítulo, puede ser refundido en uno común a todos los colegios profesionales del país, siempre y cuando las personas miembros del Colegio reciban iguales o superiores beneficios a los aquí establecidos. El acuerdo de fusión deberá ser tomado en Asamblea General extraordinaria convocada al efecto y por una votación de los dos tercios de las personas colegiadas presentes, como mínimo.

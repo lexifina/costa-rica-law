@@ -1,0 +1,5 @@
+ARTÍCULO 18- Elección de la Junta Directiva
+La elección de los miembros de la Junta Directiva se hará en votación secreta, cargo por cargo, en Asamblea General, en el caso de las sustituciones que en ese momento se presenten, y para los casos de sustitución motivada por incapacidad permanente en el desempeño del cargo, renuncias, muerte u otras razones imprevistas deberá convocarse a una asamblea extraordinaria. La elección por aclamación no está permitida.
+En caso de empate, aun cuando hayan solo dos personas candidatas, se repetirá la elección entre las personas que hayan tenido mayor número de votos. Si el empate persiste, quedará elegido el candidato o la candidata que tenga más tiempo de ser miembro del Colegio, según su registro o, en su defecto, el de mayor edad.
+No podrán formar parte de la misma Junta Directiva las personas que tengan algún parentesco por consanguinidad o afinidad hasta el segundo grado, inclusive.
+Deberá observarse para la elección el criterio de igualdad de género.

@@ -1,0 +1,2 @@
+ARTÍCULO 38- Investigación preliminar
+Ante cualquier denuncia, y previo al inicio del procedimiento administrativo ante este Tribunal, se efectuará, por parte de la Fiscalía, una investigación preliminar en la que se recopilen los datos y se elaboren informes, con el objetivo de establecer la procedencia e iniciar el respectivo procedimiento. La Fiscalía deberá presentar un informe final al Tribunal con la recomendación sobre iniciar o no el procedimiento, la cual no será vinculante.
