@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el Decreto Ejecutivo número 41354-H de fecha 10 de octubre de 2018, publicado en el Alcance número 191 a La Gaceta número 201 de fecha 31 de octubre de 2018, a partir de la vigencia del presente decreto.
