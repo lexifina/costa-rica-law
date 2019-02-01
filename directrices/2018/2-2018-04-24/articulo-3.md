@@ -1,0 +1,1 @@
+Artículo 3. Toda bebida con contenido alcohólico (vinos, cervezas, aguardientes y licores), destinada al Depósito Libre Comercial de Golfito y sean puestos a la venta, o por cualquier otro modo se traspasen, ofrezcan o reciban bajo cualquier título y con carácter comercial, podrán ser decomisados por las autoridades policiales y administrativas competentes.

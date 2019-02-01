@@ -1,0 +1,1 @@
+Artículo 4. Los Directores Generales del Área de Ingresos del Ministerio de Hacienda deberán tomar las previsiones tecnológicas para dotar de recursos para sus funcionarios puedan realizar la verificación de los dispositivos colocados por los Concesionarios en las mercancías.
