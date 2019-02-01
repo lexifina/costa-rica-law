@@ -1,0 +1,1 @@
+ARTICULO 23. LOS DERECHOS DE ZONAS O ESPACIOS: Los derechos de zonas o espacios, podrán ser revocados cuando se considere conveniente a los intereses de la Municipalidad o cuando se compruebe que no se está dando el uso debido para la cual fue solicitado. La revocatoria de la adjudicación será comunicada por escrito al interesado.

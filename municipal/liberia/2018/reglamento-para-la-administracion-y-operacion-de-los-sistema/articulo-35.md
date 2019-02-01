@@ -1,0 +1,1 @@
+ARTICULO 35. VEHÍCULOS SIN MATRÍCULA: Queda absolutamente prohibido estacionar vehículos en las áreas de estacionamiento, cuando no posean sus respectivas placas de circulación. En tales casos, la Municipalidad, por medio de los inspectores viales, podrán coordinar con las autoridades de tránsito, el retiro del vehículo que no porte placas de identificación.

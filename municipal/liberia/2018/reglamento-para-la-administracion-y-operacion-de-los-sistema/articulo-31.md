@@ -1,0 +1,2 @@
+ARTICULO 31: DE LA SANCIÓN POR EL NO PAGO DE LA TARIFA. La infracción contemplada en el artículo anterior podrá ser cancelada dentro de las 48 horas siguientes en las cajas recaudadoras de la Municipalidad o en la forma y lugar de pago que la Municipalidad establezca.
+En caso de no pagarse la multa según lo anteriormente estipulado, esta tendrá un recargo por intereses de conformidad al artículo 69 del Código Municipal, a razón de un dos por ciento mensual, que no podrá exceder en ningún caso un veinticuatro por ciento del monto adeudado.

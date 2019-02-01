@@ -1,0 +1,1 @@
+ARTICULO 21. PARA LA ADJUDICACIÓN O ARRENDAMIENTO: Para la adjudicación o arrendamiento de los espacios en las zonas no reguladas por algún sistema de los que establece este reglamento denominadas Zonas NO Céntricas que sean Rutas Nacionales, se tomará en cuenta el criterio técnico del Ministerio de Obras Públicas y Transportes.

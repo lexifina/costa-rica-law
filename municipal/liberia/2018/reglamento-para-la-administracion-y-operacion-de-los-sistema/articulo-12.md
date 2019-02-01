@@ -1,0 +1,1 @@
+ARTICULO 12. DE LAS EXENCIONES DE COBRO: Estarán exentas del pago de la tarifa los espacios demarcados para transporte público, ya sea paradas terminales o fijas de autobuses, servicios de taxi autorizado o algún otro de la modalidad de vehículos de transporte público y vehículos de emergencia.

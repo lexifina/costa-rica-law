@@ -1,0 +1,1 @@
+ARTICULO 16. ESTACIONAMIENTO PERMANENTE: Se autoriza el uso de estacionamiento permanente en zonas céntricas y no céntricas. La zona o espacio para estacionamiento permanente no podrá exceder de las medidas señaladas en el artículo 5 de este reglamento.

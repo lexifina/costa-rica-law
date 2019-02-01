@@ -1,0 +1,3 @@
+ARTICULO 30. DE LAS TARIFAS: Quien incurra en cualquiera de las infracciones señaladas por el artículo anterior estará obligado a pagar una multa, que consistirá en el pago de diez veces el valor de la tarifa por hora.
+La boleta de infracción será levantada por la autoridad competente que serán personas inspectoras de estacionamiento autorizado, estas no serán policías municipales. Dicho parte se levantará contra la placa o número de VIN del vehículo mediante el cual se cometió la infracción, acompañado preferiblemente de una fotografía digital del mismo.
+Contra las boletas de infracción, cabrán los recursos que establece el artículo 162 del Código Municipal, y deberán ser interpuestos en los plazos ahí establecidos.

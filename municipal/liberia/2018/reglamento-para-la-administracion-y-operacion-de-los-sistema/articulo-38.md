@@ -1,0 +1,4 @@
+ARTICULO 38. DE LA VIGENCIA: El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, una vez cumplido el trámite de consulta pública establecido en el artículo 43 del Código Municipal. Publíquese en el Diario Oficial La Gaceta.
+De conformidad con lo establecido en el artículo 43 del Código Municipal, este proyecto de Reglamento se somete a consulta pública no vinculante por un lapso de diez días hábiles. Durante el plazo por de la consulta, podrán los interesados hacer sus observaciones por escrito ante el concejo municipal de Liberia, ubicado 50 metros norte del costado oeste del parque central de Liberia. Transcurrido dicho plazo, el Concejo Municipal se pronunciará sobre el fondo de este. vencido se pronunciará sobre el fondo.
+Acuerdo adoptado mediante el Articulo 4 del capítulo 4 de la sesión Ordinaria N° 29-2018 realizada el 17 de julio del 2018.
+Liberia, 03 de setiembre, 2018.

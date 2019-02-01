@@ -1,0 +1,1 @@
+ARTICULO 36.ANULACIÓN DE BOLETAS DE INFRACCIÓN: La competencia para la anulación de boletas de parte será respectivamente, de la Unidad de Parquímetros al resolver los recursos de revocatoria y del Alcalde al resolver los recursos de apelación presentados en tiempo.

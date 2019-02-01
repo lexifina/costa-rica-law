@@ -1,0 +1,1 @@
+Artículo 7. GARAGES O ACCESOS A ESTACIONAMIENTOS: En caso que se habiliten garajes o accesos a estacionamientos privados posterior a la instalación de parquímetros la UCAP eliminará los parquímetros en un periodo de 8 días posterior a la obtención de licencia de construcción respectiva previo solicitud formal de interesado.
