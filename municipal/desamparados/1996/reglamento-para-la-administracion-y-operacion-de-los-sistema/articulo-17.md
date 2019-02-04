@@ -1,1 +1,0 @@
-Artículo 17.—La Municipalidad de Desamparados por medio de los inspectores velara por el cumplimiento en el pago de la tasa establecida en este Reglamento, quienes reportarán los vehículos de quienes infrinjan la ley, en caso necesario. El jefe de sección pasará el asunto a la Alcaldía de Tránsito respectiva.

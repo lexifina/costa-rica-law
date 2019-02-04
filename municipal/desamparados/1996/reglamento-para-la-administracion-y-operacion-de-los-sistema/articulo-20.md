@@ -1,2 +1,0 @@
-Artículo 20.—Estacionamiento de motocicletas
-Las motocicletas que se estacionen en el espacio dedicado al estacionamiento autorizado para vehículos, deberá pagar las tasas respectivas y quedan sujetas a las sanciones que prevé este Reglamento en su artículo 13. Cuando este tipo de vehículos se estacione ocupando algún sistema de estacionamiento fijado por este Reglamento deberá satisfacer la tasa correspondiente.

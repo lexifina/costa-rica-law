@@ -1,2 +1,0 @@
-Artículo 5°—El horario para el funcionamiento y uso de los Estacionamientos Autorizados, corresponde fijarlos a la jefatura del Departamento de Servicios Generales. Para la aplicación de este reglamento queda autorizado el horario de lunes a sábado entre las 8,00 horas a las 17,00 horas, los domingos, feriados y días de fiestas nacionales, no se exigirá el uso de la tarjeta.
-(Así reformado mediante artículo único del Reglamento Municipal N°462 de 09 de Enero de 1998)

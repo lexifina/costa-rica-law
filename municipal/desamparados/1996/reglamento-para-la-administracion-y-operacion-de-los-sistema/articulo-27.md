@@ -1,2 +1,0 @@
-Artículo 27.—Los interesados en la adjudicación de una zona o espacio permanente deberán solicitarlo por escrito en papel común con los timbres de ley correspondientes, dirigido al jefe de la sección, indicando el nombre del propietario o representante legal, la ubicación exacta de la zona por calles y avenidas del negocio y la zona o espacio solicitado y el tiempo de ocupación.
-Además el ofrecimiento de pago por mes adelantado y las razones convenientes que justifiquen la solicitud. Asimismo la renuncia se deberá comunicar por escrito.
