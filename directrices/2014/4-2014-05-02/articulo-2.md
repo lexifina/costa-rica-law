@@ -1,1 +1,10 @@
-Artículo 2º— Fechas de presentación de los Estados Financieros (EEFF). Las entidades que pertenecen al Gobierno de la República (Administración Central y Poderes) deberán presentar los Estados Financieros (EEFF) a más tardar los días 15 de abril, 15 de julio y 15 de octubre correspondiente al trimestre inmediato anterior y todas las entidades públicas contempladas en el artículo 1 de esta Directriz deberán presentar los Estados Financieros en la primera semana del mes de febrero de cada año, lo correspondiente al cierre definitivo del período inmediato anterior. Los plazos acá indicados, son perentorios para la efectiva entrega o envío de la información.
+Artículo 2º— Fechas de presentación de los Estados Financieros (EEFF). Todas las entidades del Sector Público Costarricense nombradas en el artículo 1° de esta Directriz y las obligadas a remitir información de conformidad con el artículo 94 de la Ley 8131 deberán presentar y emitir según las fechas establecidas los Estados Financieros (EEFF) y el balance de comprobación trimestralmente; tomando las siguientes consideraciones: (Poderes de la Republica, Órganos Desconcentrados, Instituciones Descentralizadas, Instituciones Financieras no Bancarias, Gobiernos Locales y Empresas Publicas).
+| Período comprendido |
+Trimestre | Del | Al | A más tardar el:
+Primer | 1ero de Enero | 31 de Marzo | El 30 de Abril
+Segundo | 1ero de Enero | 30 de Junio | El 30 de Julio
+Tercer | 1ero de Enero | 30 de Setiembre | El 30 de Octubre
+Cuarto | 1ero de Enero | 31 de Diciembre | El 15 de Febrero
+| | | | |
+Los plazos acá indicados, son perentorios para la efectiva entrega o envío de la información.
+(Así reformado por el artículo 1° de la directriz N° CN-001-2019 del 4 de febrero del 2019)

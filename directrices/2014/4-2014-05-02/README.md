@@ -14,3 +14,4 @@ Presentación de Estados Financieros y otra información
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-06-30 | la propia norma |
+| 2 | 2019-02-04 | Directriz 1 (2019-02-04) |

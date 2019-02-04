@@ -1,7 +1,4 @@
-Artículo 4º— Estados Financieros. Los estados financieros y sus anexos que deben ser elaborados son los que a continuación se detallan:
-a) Estado de Situación Financiera o Balance General (ESF),
-b) Estado de Rendimiento Financiero (ERF), (Según corresponda a su actividad).
-c) Estado de Cambios en el Patrimonio (ECP),
-d) Estado de Flujos de Efectivo (EFE),
-e) Notas a los EEFF (Notas),
-Las entidades deberán presentar información comparativa, con respecto al período anterior, para toda clase de información cuantitativa incluida en los EEFF. No se requiere la presentación de dicho tipo de información con respecto a los EEFF en los que se adopta por primera vez la base contable de acumulación (o devengado) de acuerdo con las Normas Internacionales de Contabilidad para el Sector Público.
+Artículo 4º— Detalle de los informes financieros de acuerdo con las fechas de presentación.
+Información Comparativa; Las entidades deberán presentar información comparativa, con respecto al período anterior, para toda clase de información cuantitativa incluida en los EEFF de acuerdo con las Normas Internacionales de Contabilidad para el Sector Público y NIC-NIFF para el caso de las Empresas Públicas (ejemplo, en el primer trimestre marzo del año anterior contra marzo del año actual).
+Termino Monetario: Todos los Estados Financieros deben ser expresados en miles de colones.
+(Así reformado por el artículo 1° de la directriz N° CN-001-2019 del 4 de febrero del 2019)
