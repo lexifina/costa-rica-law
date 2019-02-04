@@ -1,0 +1,1 @@
+Artículo 37—Aprobación. El presente Reglamento fue aprobado por la Junta Directiva de la Junta de Protección Social, mediante acuerdo JD-961 de la sesión extraordinaria Nº 58-2018 celebrada el 11 de octubre de 2018.

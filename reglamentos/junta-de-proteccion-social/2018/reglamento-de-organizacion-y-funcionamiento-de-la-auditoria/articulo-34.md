@@ -1,0 +1,1 @@
+Artículo 34—Archivo permanente. La Auditoría Interna mantendrá un archivo permanente físico y digital debidamente clasificado y actualizado, que contenga la correspondencia enviada y recibida, los informes de auditoría; así como la normativa legal y técnica, entre otros.

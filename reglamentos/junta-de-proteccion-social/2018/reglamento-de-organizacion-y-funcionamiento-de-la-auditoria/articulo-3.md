@@ -1,0 +1,3 @@
+CAPÍTULO II
+De la organización de la Auditoría Interna
+Artículo 3—Concepto de Auditoría Interna. La Auditoría Interna de la Junta de Protección Social es una actividad independiente, objetiva y asesora que aplica un enfoque sistémico y profesional que le permite evaluar y mejorar la efectividad de la administración del riesgo, del control y los procesos de dirección; contribuyendo a que se alcancen los objetivos institucionales y proporcionando una garantía razonable a la ciudadanía de que la actuación del jerarca y la del resto de la administración se ejecuta conforme al marco legal y técnico y a las prácticas sanas.

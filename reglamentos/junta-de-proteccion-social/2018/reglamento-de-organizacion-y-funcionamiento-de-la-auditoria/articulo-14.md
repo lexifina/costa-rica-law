@@ -1,0 +1,1 @@
+Artículo 14—De la jornada laboral del Auditor y Subauditor Interno. La jornada laboral del Auditor y Subauditor Interno será de tiempo completo, tal como lo establece el artículo Nº 30 de la Ley General de Control Interno.

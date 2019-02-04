@@ -1,0 +1,1 @@
+Artículo 2—Ámbito de aplicación. El presente reglamento es de acatamiento obligatorio para todos los colaboradores de la Auditoría Interna; así como para los colaboradores de la Administración Activa de la Junta de Protección Social, en la materia que les resulte aplicable.
