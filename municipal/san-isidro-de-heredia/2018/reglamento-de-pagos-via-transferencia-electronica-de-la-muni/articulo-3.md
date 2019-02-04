@@ -1,0 +1,17 @@
+CAPÍTULO II
+Procedimiento para realizar pagos
+vía transferencia electrónica
+Artículo 3º—Del procedimiento. Para efectos de que la
+Municipalidad lleve a cabo pagos electrónicos a sus proveedores de
+bienes y servicios se deberá seguir el siguiente procedimiento:
+a) La Proveeduría Institucional deberá incluir en los carteles y pliegos de condiciones de las contrataciones que realice el requerimiento de que el proveedor señale dentro de su oferta el número de IBAN, así como la autorización para que en caso de resultar adjudicado se le deposite en dicha cuenta el pago respectivo.
+b) Una vez firme la contratación, la Proveeduría emitirá la orden de compra
+c) La proveeduría deberá recibir la factura electrónica del proveedor, la cual de cumplir con todos los requisitos legales, deberá remitirla al fiscalizador del contrato cuando se trate de materia de contratación administrativa.
+d) Una vez que el fiscalizador avale formalmente el pago de la factura, deberá remitirla a la Proveeduría Municipal nuevamente junto con el documento donde consta su aceptación para el correspondiente trámite de pago.
+e) Recibida la factura por parte de la Proveeduría, deberá emitirla orden de compra y remitirla a la Alcaldía junto a la solicitud de que se incluya en nómina de órdenes de pago. Asimismo, deberán aportarse los documentos de respaldo necesarios, entre los cuales estarán las facturas, así como en los casos que medie contrato, una copia de este junto con el documento mediante el cual el fiscalizador haya recibido el bien o servicio a satisfacción.
+f) Una vez entregada la orden de compra a la Alcaldía, esta dependencia deberá generar y autorizar la nómina de órdenes de pago. Para ello, deberá verificar que la información contenida en la nómina coincida con los documentos de respaldo.
+g) Generada y autorizada la nómina por parte del Alcalde, la enviará al Departamento de Control y Ejecución Presupuestaria para que avale el contenido presupuestario para hacer frente a la erogación; en caso de no contar con el contenido presupuestario, lo devolverá a la Alcaldía. De hacerse constar la existencia del contenido presupuestario, la nómina se pasa a Contabilidad para que esa instancia elabore un documento consecutivo, el cual deberá ser impreso en papel corriente con un número de consecutivo, y en paralelo, Contabilidad generará el archivo digital bajo el formato específico y lo incluirá en el sistema de la entidad financiera respectiva. El documento consecutivo se adjuntará a los documentos que conforman la nómina para respaldo de la transacción y será entregado a la Oficina de Tesorería.
+h) La Tesorería Municipal deberá revisar el archivo en el sistema, si está correcto, procederá a su validación. En caso de detectar algún error lo deberá devolver al Departamento de Contabilidad para su subsanación. Validada la información, la Tesorería Municipal deberá generar el o los débitos correspondientes en forma mancomunada con el funcionario autorizado por el Alcalde o Alcaldesa o con este último y deberá generar los comprobantes de pago electrónico respectivos dependiendo de la entidad financiera.
+i) El departamento de contabilidad revisara en el sistema las cuentas bancarias o caja única que no queden aplicaciones pendientes
+Este procedimiento no se aplicará cuando se trate del pago de gastos recurrentes por parte de la institución, sino únicamente a aquellos derivados de procedimientos de contratación administrativa.
+Los pagos de gastos recurrentes se realizarán al amparo de los procedimientos internos que mantenga la institución.
