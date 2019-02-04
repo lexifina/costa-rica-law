@@ -1,0 +1,1 @@
+Artículo 49º. —Las Juntas Directivas de los Comités Comunales deberán reunirse en forma ordinaria dos ocasiones al mes o en Sesión Extraordinaria cuando a juicio del Presidente o tres miembros directivos realicen la correspondiente convocatoria. Tanto las sesiones ordinarias como extraordinarias son de carácter público.
