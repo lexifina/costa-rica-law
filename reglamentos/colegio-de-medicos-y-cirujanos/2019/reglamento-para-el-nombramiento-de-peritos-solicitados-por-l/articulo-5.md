@@ -1,0 +1,1 @@
+Artículo 5- RESPONSABILIDAD. La Junta de Gobierno del Colegio de Médicos y Cirujanos será el órgano encargado de asignar al profesional encargado del peritaje, el cual tendrá la responsabilidad total del peritaje que realice. El Colegio de Médicos no adquiere ninguna responsabilidad por el servicio que preste el profesional asignado.

@@ -1,0 +1,1 @@
+Artículo 2. Cuando se consulte al Colegio de Médicos y Cirujanos acerca de una cuestión técnica de su competencia, la Junta de Gobierno, le dará trámite conforme a la normativa vigente, ya sea evacuándola en su propio seno, o bien, remitiéndola a quien corresponda.

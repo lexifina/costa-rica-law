@@ -1,0 +1,1 @@
+Artículo 14.- Los honorarios establecidos por la labor pericial asignada serán cancelados directamente al profesional una vez entregado el informe en forma definitiva, incluyendo adiciones o aclaraciones que pudieran ser solicitadas.
