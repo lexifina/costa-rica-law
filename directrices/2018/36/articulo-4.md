@@ -1,0 +1,2 @@
+Artículo 4º—Atención Integral. Los diferentes proyectos a financiar a través de Bono Colectivo deberán tener dentro su ‘s prioridades, el mejorar la calidad de vida de habitantes, el acceso a los servicios institucionales, dándose especial preferencia a aquellos de atención integral, especialmente para que la población tenga acceso de ésta, a la oferta institucional de programas sociales y saneamiento ambiental.
+También se analizarán proyectos que promuevan comunidades resilientes, y que procuren espacios públicos seguros y accesibles.

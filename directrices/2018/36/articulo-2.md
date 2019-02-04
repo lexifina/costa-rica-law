@@ -1,0 +1,6 @@
+Artículo 2º—Fines del Bono Colectivo. Al Sistema Financiero Nacional para la Vivienda, se le instruye utilizar el Bono Colectivo para implementar un plan de desarrollo local, que incluya el financiamiento de la construcción de obras comunales y de equipamiento social, que facilite la articulación de los programas sociales, con un objetivo de integralidad, que fomente la inclusión y cohesión social en las zonas intervenidas en asentamientos humanos. En términos de obras comunales y de equipamiento social, la inversión puede contemplar:
+1. Las redes y los sistemas para la provisión de servicios básicos de saneamiento energía y tecnología de la información.
+2. El equipamiento social y comunitario.
+3. Las redes internas y externas de acceso y movilidad entre los distintos sectores de la comunidad o la interrelación de esta con otras comunidades.
+4. Las zonas verdes, deportivas y recreativas, que promueven la convivencia y la cohesión social para el mejoramiento de la calidad de vida, en los asentamientos y comunidades.
+5. Equipamiento productivo referido al conjunto de instalaciones comunitarias o estatales donde se desarrollan actividades productivas o partes fundamentales del ciclo productivo.

@@ -1,0 +1,1 @@
+Artículo 5º—Derogatoria. Se deroga la Directriz Bono Colectivo para obrad de infraestructura en asentamientos en precarios, programa de erradicación de tugurios, N° 027-MSMIVAH del 25 de marzo del 2008.
