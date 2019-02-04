@@ -1,0 +1,1 @@
+Artículo 17. Por cada parte del sito web existirá un responsable de la actualización de la información contenida en ella, la que será comunicada periódicamente por la DTI, a todos los funcionarios de la institución.

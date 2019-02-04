@@ -1,0 +1,1 @@
+Artículo 25. Los títulos o certificaciones emitidos como comprobante de la capacitación virtual, en el territorio nacional, o fuera de él, tendrán la misma validez que los mismos documentos emitidos en forma impresa.

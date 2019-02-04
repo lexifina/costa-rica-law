@@ -1,0 +1,23 @@
+Artículo 2. Definiciones básicas.
+Ancho de banda: En sistemas digitales, el ancho de banda digital es la cantidad de datos que pueden ser transportados por algún medio en un determinado período de tiempo (generalmente segundos). Por lo tanto a mayor ancho de banda, mayor transferencia de datos por unidad de tiempo (mayor velocidad). (Alegsa, 2018)
+Argot: Lenguaje especial entre personas de un mismo oficio o actividad (Real Academia Española, 2006).
+Chat: Conversación entre varias personas a través de Internet mediante el intercambio de mensajes electrónicos. (Real Academia Española, 2006).
+Código QR: Corresponde a un código de respuesta rápida que sirve para vincular sitios, documentos, imágenes u otros de manera inmediata por medio de un lector QR.
+Documento electrónico: Cualquier manifestación con carácter representativo o declarativo, expresada o transmitida por un medio electrónico o informático. (Reglamento 33018, 2008)
+Emoticones: Son una secuencia de caracteres que expresan emociones positivas o negativas.
+Firma Digital: Cualquier conjunto de datos adjunto o lógicamente asociado a un documento electrónico, que permita verificar su integridad, así como identificar en forma unívoca y vincular jurídicamente al autor con el documento electrónico. (Ley 8454, 2005)
+Funcionario: toda persona que presta sus servicios en los órganos y en los entes de la Administración Pública, estatal y no estatal, a nombre y por cuenta de esta y como parte de su organización, en virtud de un acto de investidura y con entera independencia del carácter imperativo, representativo, remunerado, permanente o público de la actividad respectiva. Los términos funcionario, servidor, trabajador y empleado público serán equivalentes para los efectos de este reglamento. (Ley 8422, 2004).
+Internet: Red informática mundial, descentralizada, formada por la conexión directa entre computadoras u ordenadores mediante un protocolo especial de comunicación. (Real Academia Española, 2006)
+Intranet: Red informática interna de Conavi, en la que las computadoras están conectadas a los servidores institucionales.
+Jefatura: Jefe de una unidad organizativa incluida en el organigrama del Conavi (Gerente, Director, Jefe Unidad Asesora, Jefe Departamento y Jefe Unidad).
+Navegar: Desplazarse a través de una red o de un sistema informático. (Real Academia Española, 2006)
+Netiqueta: Conjunto de reglas o normas básicas de comportamiento general que deben cumplirse en la comunicación e interacción de usuarios en el mundo virtual, para facilitar la convivencia en la web, por medio de la utilización de buenos modales, respeto, humanidad, tolerancia u otros valores.
+Informática en la Nube: La computación en la nube es un modelo que permite acceso de red ubicuo, conveniente y bajo demanda a un grupo compartido de recursos informáticos configurables (por ejemplo, redes, servidores, almacenamiento, aplicaciones y servicios) que pueden aprovisionarse y lanzarse rápidamente con un mínimo esfuerzo administrativo o la interacción del proveedor de servicios. (National Institute of Standards and Technology (NIST), 2011)
+Página Web: Conjunto determinado de informaciones, accesible a una red informática, que puede contener textos, imágenes y sonidos, así como enlaces con otras páginas. (Real Academia Española, 2006)
+Red informática: Es un conjunto de dispositivos interconectados entre sí a través de un medio, que intercambian información y comparten recursos. (Redusers, 2013)
+Red social: son sitios de Internet formados por comunidades de individuos con intereses o actividades en común (como amistad, parentesco, trabajo) y que permiten el contacto entre estos, de manera que se puedan comunicar e intercambiar información. (Equipo de redacción de editorial Concepto.de (enciclopedia online), 2017)
+Repositorio digital: Son sitios en donde se almacena y resguarda información de forma centralizada y son accedidos principalmente desde redes informáticas o de internet. (Rivera, 2009)
+Sitio: Conjunto de datos estructurados bajo una misma dirección de internet y organizados como una o varias páginas web. (Real Academia Española, 2006)
+Unidad organizativa: Una dependencia de la estructura organizacional a cuyo cargo está la ejecución de funciones especializadas que contribuyen al logro de los objetivos institucionales.
+Virus: Programa introducido subrepticiamente en la memoria de una computadora u ordenador que, al activarse, afecta a su funcionamiento al destruir total o parcialmente la información almacenada. (Real Academia Española, 2006)
+Web: Red informática. (Real Academia Española, 2006)

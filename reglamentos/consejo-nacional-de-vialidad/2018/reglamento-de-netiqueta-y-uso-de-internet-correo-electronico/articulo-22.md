@@ -1,0 +1,1 @@
+Artículo 22. El histórico actualizado del presupuesto ordinario, el presupuesto extraordinario y la ejecución presupuestaria, debe estar disponible en el sitio web del Conavi, lo anterior bajo la responsabilidad del Director Financiero.

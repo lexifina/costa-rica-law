@@ -1,0 +1,8 @@
+TITULO IV. NORMAS PARA USO DE INTERNET INSTITUCIONAL
+Artículo 6. Son normas para uso de internet institucional las siguientes:
+i. Todo funcionario de Conavi con acceso a la red institucional también tendrá acceso al uso de internet con el fin de que puedan realizar de manera más eficiente y eficaz su desempeño y de esta forma contribuir al logro de los objetivos institucionales. Este servicio corresponde a una concesión que puede ser revocada temporal o permanentemente en cualquier momento, si se detecta uso indebido o acción que contradiga lo dispuesto en este reglamento.
+ii. La navegación en internet queda delimitada única y exclusivamente para fines propios de la institución, los cuales están referidos a la búsqueda de información necesaria, así como la capacitación para la elaboración, ampliación o referencia de temas relacionados con las metas y objetivos institucionales.
+iii. Deberá emplear la menor cantidad de ventanas web abiertas en forma simultánea, y en caso de no encontrarse navegando deberá cerrarlas.
+iv. El horario de navegación por Internet será establecido y comunicado por la DTI según las necesidades laborales.
+v. Las jefaturas del Conavi podrán solicitar a la DTI, reportes o informes de navegación en internet de los funcionarios a su cargo cuando lo consideren pertinente.
+vi. Toda la información de Internet que sea redactada, transmitida y/o recibida por los sistemas informáticos de Conavi se considera que pertenecen a la institución y se reconoce como parte de su información oficial; por lo tanto, está sujeta a revelación por razones legales o para terceros apropiados.

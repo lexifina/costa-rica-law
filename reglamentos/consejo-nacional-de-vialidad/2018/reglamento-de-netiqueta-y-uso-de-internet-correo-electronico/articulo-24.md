@@ -1,0 +1,1 @@
+Artículo 24. La Dirección de Gestión de Recursos Humanos, con la colaboración de la Dirección de Tecnologías de la Información, fomentará la capacitación virtual en la institución, incluyendo la que se brinda.
