@@ -15,3 +15,4 @@ Reglamento para el otorgamiento de becas para estudio a munícipes de Escazú
 | --- | --- | --- |
 | 1 | 2015-05-07 | la propia norma |
 | 2 | 2016-07-11 | Reglamento municipal 11 (2016-07-11) |
+| 3 | 2019-02-04 | Reglamento municipal 145 (2019-02-04) |
