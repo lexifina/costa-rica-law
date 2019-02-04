@@ -1,0 +1,1 @@
+Artículo 3º—Protección de derechos patrimoniales. Se instruye al BANHVI para que, al momento en que se formalicen las operaciones de bono familiar de vivienda mediante escritura pública, adopte las medidas correspondientes para proteger los derechos patrimoniales de las parejas del mismo sexo.

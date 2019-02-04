@@ -1,0 +1,1 @@
+Artículo 4º—Seguimiento. Corresponderá al Comisionado de la Presidencia de la República para asuntos relacionados con las personas LGTBI el seguimiento a las disposiciones de la presente directriz. El Banco Hipotecario de la Vivienda informará al Comisionado sobre el cumplimiento de la presente directriz.
