@@ -14,3 +14,4 @@ Reglamento para la Operación y Control de Fondos de Caja Chica del Banco Popula
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-04 | la propia norma |
+| 2 | 2019-02-04 | Reglamento 5613 (2019-02-04) |

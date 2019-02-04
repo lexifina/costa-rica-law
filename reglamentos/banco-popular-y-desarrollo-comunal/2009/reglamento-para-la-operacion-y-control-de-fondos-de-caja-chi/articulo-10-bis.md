@@ -1,0 +1,2 @@
+Artículo 10 bis.—Los adelantos mediante el vale provisional o las liquidaciones con vale definitivo se tramitarán directamente contra la cuenta del beneficiario. Para ello, las unidades administrativas deberán establecer los procedimientos de control.
+Por su parte, las cajas chicas que consideren el uso de efectivo para la liquidación como un mecanismo de mayor facilidad, podrán utilizarlo para su operación.

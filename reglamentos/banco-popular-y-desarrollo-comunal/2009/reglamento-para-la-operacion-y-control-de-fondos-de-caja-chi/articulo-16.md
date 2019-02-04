@@ -1,1 +1,1 @@
-Artículo 16.—El custodio de los fondos de caja chica será un funcionario distinto del facultado para autorizar vales y del Contador en los Centros de Negocios. Los funcionarios facultados para autorizar vales de caja chica no podrán autorizar vales a su nombre.
+Artículo 16.—El custodio de los fondos de caja chica será un funcionario distinto del facultado para autorizar vales y del Contador en los Centros de Negocios o las sociedades. Los funcionarios facultados para autorizar vales de caja chica y los custodios no podrán autorizar vales a su nombre.

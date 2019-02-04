@@ -1,1 +1,1 @@
-Artículo 9º—El custodio de la caja chica, el jefe de la dependencia donde ésta opera y las personas que autoricen el uso de estos fondos, serán los responsables de que opere de acuerdo con el presente Reglamento.
+Artículo 9°—El custodio de la caja chica, el jefe o el responsable donde esta ópera y las personas que autoricen el uso de estos fondos, serán los responsables de su funcionamiento de acuerdo con el presente Reglamento.
