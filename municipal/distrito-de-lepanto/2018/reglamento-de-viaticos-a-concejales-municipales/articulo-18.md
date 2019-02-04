@@ -1,0 +1,1 @@
+Artículo 18°. Rige a partir de su publicación en el diario oficial La Gaceta. Visto el acuerdo en todas sus partes este es APROBADO UNANIME, se dispensa el trámite de comisión y se aplica el artículo 45 del código municipal este es DEFINITIVAMENTE APROBADO

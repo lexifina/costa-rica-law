@@ -1,0 +1,1 @@
+Artículo 13°. Si por decisión del Concejo Municipal o del Intendente Municipal se brindara el transporte requerido para que los concejales puedan asistir sin problemas o atrasos a las sesiones del Concejo, éstos, en ningún caso, podrán solicitar el pago por ese concepto.

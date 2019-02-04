@@ -1,0 +1,4 @@
+Artículo 11: Por concepto de alimentación, se le pagará únicamente a aquellos concejales, que residan a una distancia igual o mayor a los cinco kilómetros, o zonas de difícil acceso (transporte público) de la Sede Municipal y bajo los siguientes términos:
+A. Desayuno. Serán reconocidos únicamente a los concejales, queinicien el viaje de su casa de habitación, entre las cero horas a las seishoras, para estar presente en la sesión del Concejo Municipal.
+B. Almuerzo. Será reconocido únicamente a los concejales, que inicie elviaje de su casa de habitación, entre las seis horas a las doce horas,para estar presente en la sesión de Concejo Municipal.
+C. Cena. Será reconocido únicamente este beneficio a los concejales,que participen en una sesión del Concejo Municipal que inicie a lasdiecisiete horas y hasta que la misma finalice.

@@ -1,0 +1,1 @@
+Artículo 5°- Los gastos de alimentación y pasajes de transporte público colectivo no requerirán la presentación de la factura correspondiente, salvo en aquellos casos especiales a juicio de la Administración Activa.
