@@ -1,0 +1,1 @@
+Artículo 4.- De las zonas de estacionamiento. Para los efectos del cobro de la tarifa, el Cantón de Desamparados se divide en zona Céntrica y zona No Céntrica, establecidas mediante los estudios técnicos pertinentes que realice la corporación municipal, y que para tales efectos serán debidamente demarcados.

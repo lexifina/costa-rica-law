@@ -1,0 +1,3 @@
+Artículo 22.- De los distintivos. Serán distintivos y atributos del uniforme: En la parte frontal del uniforme llevará un bordado del logo de la Dirección de Seguridad Ciudadana.
+a)Un distintivo tipo carné que contendrá el logotipo de la Municipalidad de Desamparados, y a la Unidad a la que pertenece, apellido, nombre y cédula. Así como una fotografía reciente. Este distintivo estará a la altura del pecho en el lado izquierdo.
+b)En el chaleco, tanto en la parte frontal como posterior se leerá la palabra “Control Vial”.
