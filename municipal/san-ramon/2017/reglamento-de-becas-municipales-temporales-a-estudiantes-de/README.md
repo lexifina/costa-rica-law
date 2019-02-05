@@ -14,3 +14,4 @@ Reglamento de becas municipales temporales a estudiantes de escasos recursos del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-10-24 | la propia norma |
+| 2 | 2019-02-05 | Reglamento municipal 214 (2019-02-05) |
