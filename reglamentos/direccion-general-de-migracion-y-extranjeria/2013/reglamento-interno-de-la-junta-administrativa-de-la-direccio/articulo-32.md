@@ -1,0 +1,1 @@
+Artículo 32°- Del personal de apoyo de la Secretaría. El personal de apoyo secretarial, se encargará de dar trámite a la notificación del acuerdo correspondiente, debiendo dejarse comprobante de dicho trámite. Igualmente, la Secretaría de actas estará pendiente de aquellos acuerdos en los que se concedió plazo para su cumplimiento.

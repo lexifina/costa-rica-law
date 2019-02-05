@@ -1,0 +1,1 @@
+Artículo 31 °- De la Comunicación de acuerdos. Solamente procederá la comunicación de acuerdos en firme. La comunicación deberá hacerse a más tardar tres días hábiles posteriores a la firmeza del acuerdo.

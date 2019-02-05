@@ -1,0 +1,1 @@
+Artículo 29"- Transcripción de las sesiones. Para la transcripción del acta respectiva será permitido que un auxiliar de la Secretaría de actas se encuentre presente durante el desarrollo de las sesiones; persona que deberá limitarse a esa labor y no participar en ninguna otra forma en la sesión, a menos que le sea requerido para algún servicio o información especial.

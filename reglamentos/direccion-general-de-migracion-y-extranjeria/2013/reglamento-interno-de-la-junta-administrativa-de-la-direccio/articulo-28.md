@@ -1,0 +1,3 @@
+Artículo 28°- Responsabilidad del Secretario. Será responsabilidad del Secretario, una vez firmes las actas respectivas, transcribir éstas de manera inmediata en el libro, y que éstas sean firmadas por el Presidente, el Secretario y por aquellos miembros que hubieren hecho constar su voto disidente. Bajo ninguna circunstancia, podrá superar un plazo máximo de ocho días hábiles luego de la aprobación de las actas.
+Una vez firmadas las actas se procederá a realizar respaldo tecnológico, con el fin de asegurar su preservación.
+La responsabilidad de la custodia, firma y foliado del libro, recae en el Secretario.

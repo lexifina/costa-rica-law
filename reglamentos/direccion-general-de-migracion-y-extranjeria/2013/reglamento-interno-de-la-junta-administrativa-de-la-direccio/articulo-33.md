@@ -1,0 +1,2 @@
+Artículo 33°- Certificación de actas y acuerdos. Cualquier persona física o jurídica, pública o privada, podrá solicitar en forma escrita y ante el Secretario, la certificación de las actas y acuerdos tomados por la Junta Administrativa.
+En caso de que se soliciten fotocopias de actas, el costo de éstas, deberán ser canceladas por el petente, de conformidad con las disposiciones administrativas correspondientes.

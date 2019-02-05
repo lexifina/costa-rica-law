@@ -1,0 +1,1 @@
+Artículo 30°- Uso de medios tecnológicos. Será facultado el uso del sistema de grabación, con el estricto propósito de auxiliarse en la labor de toma de acuerdos y transcripción, en cuyo caso la grabación se custodiará por el tiempo que sea necesario para la transcripción en limpio de la respectiva acta.

@@ -1,0 +1,2 @@
+Artículo 18°- Asuntos varios. Los asuntos que los miembros de Junta Administrativa consideren someter a conocimiento del pleno de la Junta Administrativa, podrán ser presentados en forma verbal o escrita al momento de la lectura del orden del día y se incluirá en asuntos varios.
+Las mociones de orden han de referirse necesariamente a cuestiones de procedimiento y prelación en el conocimiento de los asuntos y tienen prioridad en la discusión. Se votarán y resolverán en forma inmediata y lo que se resuelva, carece de recurso alguno.

@@ -1,0 +1,4 @@
+Artículo 13°- De las sesiones extraordinarias. La convocatoria a sesiones extraordinarias deberá hacerse por lo menos con veinticuatro horas de antelación por la o el Presidente de la Junta Administrativa, o bien a solicitud de un número no menor de tres miembros de la Junta Administrativa, indicando los asuntos a tratar, salvo los casos de urgencia.
+La convocatoria será acompañada del orden del día y únicamente podrán discutirse los aspectos ahí consignados.
+La convocatoria a sesiones extraordinarias será comunicada por escrito o por cualquier medio de transmisión electrónica, tecnológica, dejando constancia de recibo.
+No se aplicarán los requisitos del plazo y las formalidades para la convocatoria a sesiones extraordinarias cuando se encuentren presentes todos los miembros del órgano y así lo acuerden por unanimidad. En caso de suplentes, deberán contar con la respectiva designación del titular.

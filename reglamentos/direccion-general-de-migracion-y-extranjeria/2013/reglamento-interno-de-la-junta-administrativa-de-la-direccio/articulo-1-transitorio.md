@@ -1,0 +1,2 @@
+TRANSITORIO ÚNICO. En el plazo de tres meses a más tardar a partir de la aprobación de este Reglamento, la Representación del Ministerio de Gobernación y Policía, en la Junta Administrativa, informará de las gestiones realizadas para la dotación del recurso administrativo y profesional señalado en el artículo 11 de este Reglamento.
+Aprobado por la Junta Administrativa de la Dirección General de Migración y Extranjería, mediante acuerdo Nº 06, tomado en Sesión Ordinaria Nº 47, celebrada el día 29 del mes de octubre del 2013.

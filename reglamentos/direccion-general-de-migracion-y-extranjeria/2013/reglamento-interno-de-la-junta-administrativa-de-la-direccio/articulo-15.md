@@ -1,0 +1,1 @@
+Artículo 15°- Quórum de las sesiones. Para que la Junta Administrativa pueda sesionar válidamente, el quórum será el de mayoría simple de la totalidad de los miembros, o sea tres miembros titulares o suplentes.

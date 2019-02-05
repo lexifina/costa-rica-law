@@ -1,0 +1,1 @@
+Artículo 14°- Sesiones en lugares distintos. La Junta Administrativa podrá convocar a sesiones en un lugar distinto al habitual comunicado al menos con 12 horas de antelación. A menos que se cuente con la totalidad de los miembros.
